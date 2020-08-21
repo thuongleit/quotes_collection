@@ -1,0 +1,53 @@
+ - There is a sense of decency that’s like a barometer to a man’s or a country’s health.
+ - Suggestion is a literary strategy.
+ - The emblem of a philosophy is not that it contains a set of specific thoughts, but that it generates a way of thinking.
+ - Endings to be useful must be inconclusive.
+ - I am in terror of the infinity before me, having come through the one behind bringing no knowledge I can take on.
+ - I was a kid who liked art and theater and dance and music, but if you lived in Harlem, high culture was somewhere else, and it wasn’t black.
+ - Ambition like a liquid ruby stains.
+ - Apocalypse has come and gone. We’re just grubbing in the ashes.
+ - Don’t go chattering to the stars if you’re going to do it with your eyes closed.
+ - Babes, I am so bored here that I don’t think, since I’ve come, I’ve ever been more than three minutes away from some really astonishing act of violence.
+ - Spending practically every minute of your day on pure survival is an absolutely boring life.
+ - Linguistics is very much a science. It’s a human science, one of the human sciences. And it’s one of the more interesting human sciences.
+ - I suspect most of life takes place in the interstices of what’s already been articulated.
+ - Ah, well, during the Middle Ages, religion was often able to redeem art. Today, however, art is about the only thing that can redeem religion, and the clerics will never forgive us for that.
+ - It is not that love sometimes makes mistakes, but that it is, essentially, a mistake. We fall in love when our imagination projects nonexistent perfections on to another person. One day the phantasmagoria vanishes, and with it love dies.
+ - But I realized something. About art. And psychiatry. They’re both self-perpetuating systems. Like religion. All three of them promise you a sense of inner worth and meaning, and spend a lot of time telling you about the suffering you have to go through to achieve it.
+ - There are three types of actions : purposeful, habitual, and gratuitous. Characters, to be immediate and apprehensible, must be presented by all three.
+ - Honesty is the best policy ; a policy is, after all, a strategy for living in the polis in the city...
+ - The truth is always multiplex.
+ - The only important elements in any society are the artistic and the criminal, because they alone, by questioning the society’s values, can force it to change.
+ - Everyone in a position of authority is hysterical, and everyone else is pretending to be asleep.
+ - It’s a very new, not to mention vulgar, idea that the spectator’s experience should be identical to, or even have anything to do with, the artist’s.
+ - The General Public is a statistical fiction created by a few exceptional men to make the loneliness of being exceptional a little easier to bear.
+ - I still believe pattern fascinates on its own. And three-sevenths of a pattern, or even a smaller fragment, can fascinate still more – get us really hunkering down, trying to tease out the whole of the figure in the carpet.
+ - The problem isn’t to learn to love humanity, but to learn to love those members of it who happen to be at hand.
+ - Human beings being what they are, order spreads, given half a chance, almost as fast as confusion.
+ - The past is what makes now like now makes tomorrow.
+ - The strange machinery by which a reputation precedes its source we all know is faulty. Yet how much faith we put in it!
+ - It’s frightening for one artist to see another one, any other one turn away from art.
+ - Sometimes you want to say things, and you’re missing an idea to make them with, and missing a word to make the idea with. In the beginning was the word. That’s how somebody tried to explain it once. Until something is named, it doesn’t exist.
+ - All too often, when creative people pick out someone else’s creative work as an inspiration, what they end up with is very, very far from the original.
+ - Power is all. Another falsification; I do not tell how I gain or maintain it. I only record the ginger stroll through the vaguely fetid garden of its rewards.
+ - How we treat our invalids – our mad, our physically or mentally compromised family members – does tell you something about who we are politically, historically, culturally.
+ - Like contemporary poetry, philosophy is one of those things, especially at the beginning stages, most people would rather do than study which is why most of what gets done is so impoverished.
+ - Good writing is clear. Talented writing is energetic. Good writing avoids errors. Talented writing makes things happen in the reader’s mind – vividly, forcefully...
+ - A number of things in ‘Dhalgren’ are just meant to function as mysteries. They’re mysteries when the book begins, and they’re mysteries when the book ends.
+ - As a prose writer, I work with language; and those who work with language turn to poetry for renewal.
+ - It is easier to argue that something nobody believes in actually exists than it is to argue that something everybody believes in is unreal.
+ - The rich are always enamored of the ancient.
+ - I want to read about a character doing something fairly quiet where I can picture who the character is, and what their attitude towards the world is – which I’m a lot more interested in than what they do under the pressure of a gunfight.
+ - When what is is congruent to what is supposed, the reaction is functional and the mental processes competent. When what is and what is supposed have nothing to do with each other, the choice of reactions is random. Something tears.
+ - If you are to stay in the good graces of the powerful, you had best, however unobtrusively, please the servants of the powerful.
+ - In myths things always turn into their opposites as one version supersedes the next.
+ - The idea that certain things in life – and in the universe – don’t yield up their secrets is something that requires a slightly more mature reader to accept.
+ - Clouds out of control decoct anticipation. What use can any of us have for two moons? The miracle of order has run out and I am left in an unmiraculous city where anything may happen.
+ - I took my writing seriously, and it seemed to pay off.
+ - Topologically, men and women are identical. Some things are just larger and more developed in one than the other and positioned differently.
+ - I think of myself as a very lazy writer, though other people see it differently.
+ - Breathing is a fascinating thing to watch in a woman.
+ - The pleasures of love are really quite wonderful – though I suspect they are rather a luxury and require a certain level of socioeconomic stability to be anything other than a mode of suffering.
+ - What you are will make you what you will become.
+
+51 quotes

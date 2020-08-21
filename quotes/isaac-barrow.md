@@ -1,0 +1,38 @@
+ - Mathematics – the unshaken Foundation of Sciences, and the plentiful Fountain of Advantage to human affairs.
+ - Nothing of worth or weight can be achieved with half a mind, with a faint heart, and with a lame endeavor.
+ - It is commonly said that revenge is sweet, but to a calm and considerate mind, patience and forgiveness are sweeter.
+ - If men are wont to play with swearing anywhere, can we expect they should be serious and strict therein at the bar or in the church.
+ - Industry has annexed thereto the fairest fruits and the richest rewards.
+ - Smiling always with a never fading serenity of countenance, and flourishing in an immortal youth.
+ - Sin is never at a stay; if we do not retreat from it, we shall advance in it; and the farther on we go, the more we have to come back.
+ - Facetiousness is allowable when it is the most proper instrument of exposing things apparently base and vile to due contempt.
+ - Because Mathematicians frequently make use of Time, they ought to have a distinct idea of the meaning of that Word, otherwise they are Quacks.
+ - Even private persons in due season, with discretion and temper, may reprove others, whom they observe to commit sin, or follow bad courses, out of charitable design, and with hope to reclaim them.
+ - We may be as good as we please, if we please to be good.
+ - Upright simplicity is the deepest wisdom, and perverse craft the merest shallowness.
+ - Let us consider that swearing is a sin of all others peculiarly clamorous, and provocative of Divine judgment.
+ - In defiance of all the tortue, of all the might, of all the malice of the world, the liberal man will ever be rich; for God’s providence is his estate, God’s wisdom and power are his defence, God’s love and favor are his reward, and God’s word is his security.
+ - Slander is a complication, a comprisal and sum of all wickedness.
+ - Mr Newton, a fellow of our College, and very young, being but the second year master of arts; but of an extraordinary genius and proficiency.
+ - That men should live honestly, quietly, and comfortably together, it is needful that they should live under a sense of God’s will, and in awe of the divine power, hoping to please God, and fearing to offend Him, by their behaviour respectively.
+ - There do remain dispersed in the soil of human nature divers seeds of goodness, of benignity, of ingenuity, which, being cherished, excited, and quickened by good culture, do, by common experience, thrust out flowers very lovely, and yield fruits very pleasant of virtue and goodness.
+ - If we desire to live securely, comfortably, and quietly, that by all honest means we should endeavor to purchase the good will of all men, and provoke no man’s enmity needlessly; since any man’s love may be useful, and every man’s hatred is dangerous.
+ - Wherefore for the public interest and benefit of human society it is requisite that the highest obligations possible should be laid upon the consciences of men.
+ - The fruits of the earth do not more obviously require labor and cultivation to prepare them for our use and subsistence, than our faculties demand instruction and regulation in order to qualify us to become upright and valuable members of society, useful to others, or happy ourselves.
+ - I pass by that it is very culpable to be facetious in obscene and smutty matters.
+ - Nothing hath wrought more prejudice to religion, or brought more disparagement upon truth, than boisterous and unseasonable zeal.
+ - Generosity is nothing more seen than in a candid estimation of other men’s virtues and good qualities.
+ - Virtue is not a mushroom, that springeth up of itself in one night when we are asleep, or regard it not; but a delicate plant, that groweth slowly and tenderly, needing much pains to cultivate it, much care to guard it, much time to mature it, in our untoward soil, in this world’s unkindly weather.
+ - The proper work of man, the grand drift of human life, is to follow reason, that noble spark kindled in us from heaven.
+ - The reading of books, what is it but conversing with the wisest men of all ages and all countries.
+ - Every ear is tickled with the sweet music of applause.
+ - None are too wise to be mistaken, but few are so wisely just as to acknowledge and correct their mistakes, and especially the mistakes of prejudice.
+ - It is safe to make a choice of your thoughts, scarcely ever safe to express them all.
+ - It consisteth in one knows not what, and springeth up one can hardly tell how. Its ways are unaccountable and inexplicable, being answerable to the numberless rovings of fancy and windings of language.
+ - Shall we keep our hands in our bosom, or stretch ourselves on our beds of laziness, while all the world about us is hard at work, in pursuing the designs of its creation?
+ - That in affairs of very considerable importance men should deal with one another with satisfaction of mind, and mutual confidence, they must receive competent assurances concerning the integrity, fidelity, and constancy each of other.
+ - Nature has concatenated our fortunes and affections together with indissoluble bands of mutual sympathy.
+ - No man speaketh, or should speak, of his prince, that which he hath not weighed whether it will consist with that veneration which should be preserved inviolate to him.
+ - As a stick, when once it is dry and stiff you may break it, but you can never bend it into a straighter posture; so doth the man become incorrigible who is settled and stiffened into vice.
+
+36 quotes

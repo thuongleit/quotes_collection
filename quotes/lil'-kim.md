@@ -1,0 +1,34 @@
+ - I’m sayin’, why spend mine when I can spend yours?
+ - I really want people to understand that nobody is perfect and that things happen in life beyond our control.
+ - I am blessed to have so many great things in my life – family, friends and God. All will be in my thoughts daily.
+ - I have low self-esteem and I always have. Guys always cheated on me with women who were European-looking. You know, the long-hair type. Really beautiful women that left me thinking, ‘How I can I compete with that?’ Being a regular black girl wasn’t good enough.
+ - I respect everybody, but at the same time, I carry myself with an aura that demands respect, too.
+ - I know I always say my occupation is not dancing, but dancing is in my heart, dancing makes me feel good.
+ - I think people have a misconception of me, period. My life has been a whirlwind sometimes, but it’s different to what people think. I definitely feel like there’s a misconception about me and who I am.
+ - I’ve always expressed my love for fashion through my music.
+ - Cruise the diamond district with my biscuit.
+ - All my life, men have told me I wasn’t pretty enough – even the men I was dating. And I’d be like, ‘Well, why are you with me, then?’ It’s always been men putting me down just like my dad. To this day when someone says I’m cute, I can’t see it. I don’t see it no matter what anybody says.
+ - I love spending time with my dog, my niece and my family. I’m very family-oriented.
+ - It was a very emotional dinner. Everyone shared personal stories about her and gave her words of encouragement and inspiration. Everyone tried to remain positive.
+ - I am honored and quite proud that a class is being taught on my sensationalist lyrics, unique style and fashion and leadership role within the hip-hop community.
+ - But this is Miami, you can’t come to Miami and not show any skin. You gotta show something. If you’re all covered up in this heat, you’re gonna make me pass out out just to look at you. It’s sweaty in Miami-but the diamonds will keep me cool.
+ - The party don’t stop, til the casket drop.
+ - Life’s a wheel of fortune and y’all can’t buy a vowel.
+ - I love to reinvent myself, and that’s because I am a very free person. I do what I feel, and I love who I am.
+ - Imagine for a minute yourself in the same shoes, the same sense of survival and the same nothing to lose.
+ - The artist I wanna be like is Michael Jackson. I’ll get the house with the roller coaster and the rides and a disco, and I’ll invite all my friends and just stay at home.
+ - There are some people who still don’t understand. But I know by the end of my fulfillment they will.
+ - I’ma make sure the family keep a decent meal, no matter what I got to do or who I got to kill.
+ - I want all my friends, family and fans to know that I am in good spirits and I will be fine.
+ - I like to be daring and I like to be different. You think anyone out here looks like me? It’s pretty different, right?
+ - I ain’t acting when I’m on stage. That’s why all the little love bugs who’ll come and see me at Lovebox love me. They know it’s the real me.
+ - If your immature, I’m out the door.
+ - Take a journey to the realm of the truth.
+ - I love reinventing my music and myself as well, and that’s something my fans love about me.
+ - Throughout my life, I have always lived with adversity and will continue to have faith and do good for my family, friends and fans.
+ - These devils find a way to get at’cha. All it takes is some green and your face on the screen.
+ - I like to live righteous. And I just want everyone to know I’m not trying to get out of anything.
+ - My fan mail is what keeps me going.
+ - I’m human, you’re human. So they said, but inside we’re all animals.
+
+32 quotes

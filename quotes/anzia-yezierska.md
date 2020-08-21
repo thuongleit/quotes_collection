@@ -1,0 +1,25 @@
+ - I’m one of the millions of immigrant children, children of loneliness, wandering between worlds that are at once too old and too new to live in.
+ - In America, money takes the place of God.
+ - Give a beggar a dime and he’ll bless you. Give him a dollar and he’ll curse you for withholding the rest of your fortune. Poverty is a bag with a hole at the bottom.
+ - As one of the dumb, voiceless ones I speak. One of the millions of immigrants beating, beating out their hearts at your gates for a breath of understanding.
+ - When I only begin to read, I forget I’m on this world. It lifts me on wings with high thoughts.
+ - Like all people who have nothing, I lived on dreams.
+ - If I had never met him I would have dreamed him into being.
+ - The world is a wheel always turning.
+ - Without comprehension, the immigrant would forever remain shut-a stranger in America. Until America can release the heart as well as train the hand of the immigrant, he would forever remain driven back upon himself, corroded by the very richness of the unused gifts within his soul.
+ - Though my father was poor and had nothing, the Torah, the poetry of prophets, was his daily bread.
+ - The power that makes grass grow, fruit ripen, and guides the bird in flight is in us all.
+ - I tasted the bread and wine of equality.
+ - A man is free to go up as high as he can reach up to; but I, with all my style and pep, can’t get a man my equal because a girl is always judged by her mother.
+ - The real thing creates its own poetry.
+ - Those who were high go down low, and those who’ve been low go up higher.
+ - Poor people who had escaped from poverty as I had, feared it, hated it and fled from it all their lives. Those born rich could afford to be touched by it.
+ - I was so obsessed and consumed with my grievances that I could not get away from myself and think things out in the light. I was in the grip of that blinding, destructive, terrible thing – righteous indignation.
+ - Poverty was an ornament on a learned man like a red ribbon on a white horse.
+ - The only compensation for the artist is the chance to feed hungry hearts.
+ - I too was frightened the first time I felt I hated my father. I felt like a criminal. But could I help it what was inside of me? I had to feel what I felt even if it killed me.
+ - Science has salvaged scrap metal and even found vitamins and valuable oils in refuse, but old people are extravagantly wasted.
+ - This fire in me, it’s not just the hunger of a woman for a man – it’s the hunger of all my people back of me, from all ages, for light, for the life higher!
+ - Woe is me! Bitter is me! For what is my life? Why didn’t the ship go under and drown me before I came to America?
+
+23 quotes

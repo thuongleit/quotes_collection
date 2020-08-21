@@ -1,0 +1,57 @@
+ - You’ve got to get up every morning with determination if you’re going to go to bed with satisfaction.
+ - It is good to have money and the things that money can buy, but it’s good too, to check up once in a while and make sure you haven’t lost the things money can’t buy.
+ - There’s a vast difference between having a carload of miscellaneous facts sloshing around loose in your head and getting all mixed up in transit, and carrying the same assortment properly boxed and crated for convenient handling and immediate delivery.
+ - Procrastination is the longest word in the language, but there’s only one letter between its ends when they occupy their proper places in the alphabet.
+ - If there’s anything worse than knowing too little, it’s knowing too much. Education will broaden a narrow mind, but there’s no known cure for a big head. The best you can hope is that it will swell up and bust.
+ - When an office begins to look like a family tree, you’ll find worms tucked away snug and cheerful in most of the apples.
+ - Consider carefully before you say a hard word to a man, but never let a chance to say a good one go by. Praise judiciously bestowed is money invested.
+ - Say less than the other fellow and listen more than you talk; for when a man’s listening he isn’t telling on himself and he’s flattering the fellow who is.
+ - And a diplomatist is one who lets the other fellow think he’s getting his way, while all the time he’s having his own. It never does any special harm to let people have their way with their mouths.
+ - When the tongue lies, the eyes tell the truth.
+ - Give fools the first and women the last word.
+ - True love is not only blind, but too gallant to ask a lady’s age.
+ - There is one excuse for every mistake a man can make, but only one. When a fellow makes the same mistake twice he’s got to throw up both hands and own up to carelessness or cussedness.
+ - Having money and buying things with money is a good thing. But also do not forget to check occasionally to lose if you do not buy anything with money or not.
+ - Clothes don’t make the man, but they make all of him except his hands and face during business hours, and that’s a pretty considerable area of the human animal.
+ - You’ve got to preach short sermons to catch sinners.
+ - Doing the same thing in the same way year after year is like eating a quail a day for thirty days. Along toward the middle of the month a fellow begins to long for a broiled crow or a slice of cold dog.
+ - Were we all one body, we should lose the tremendous stimulation that comes from the present arrangement, and I fear that our uniformity would become the uniformity of death and the tomb.
+ - A tactful man can pull the stinger from a bee without getting stung.
+ - Those who succeed can’t forgive a fellow for being a failure, and those who fail can’t forgive him for being a success.
+ - It’s all right when you are calling on a girl or talking with friends after dinner to run a conversation like a Sunday-school excursion, with stops to pick flowers; but in the office your sentences should be the shortest distance possible between periods.
+ - Appearances are deceitful, I know, but so long as they are, there’s nothing like having them deceive for us instead of against us.
+ - A man’s got to keep company a long time, and come early and stay late and sit close, before he can get a girl or a job worth having.
+ - You’ll find that education’s about the only thing lying around loose in this world, and that it’s about the only thing a fellow can have as much of as he’s willing to haul away. Everything else is screwed down tight and the screw-driver lost.
+ - Culture is not a matter of a change of climate.
+ - Back of every noble life there are principles that have fashioned it.
+ - Colleges don’t make fools, they only develop them.
+ - Every fellow is really two men – what he is and what he might be; and you’re never absolutely sure which you’re going to bury till he’s dead.
+ - I ain’t one of those who believe that a half knowledge of a subject is useless, but it has been my experience that when a fellow has that half knowledge he finds it’s the other half which would really come in handy.
+ - Never threaten, because a threat is a promise to pay that it isn’t always convenient to meet, but if you don’t make it good it hurts your credit. Save a threat till you’re ready to act, and then you won’t need it.
+ - When a fellow’s got what he set out for in this world, he should go off into the woods for a few weeks now and then to make sure that he’s still a man, and not a plug-hat and a frock-coat and a wad of bills.
+ - A business man’s conversation should be regulated by fewer and simpler rules than any other function of the human animal. They are: Have something to say. Say it. Stop talking.
+ - The aim of the college, for the individual student, is to eliminate the need in his life for the college; the task is to help him become a self-educating man.
+ - A lesson learned at the muzzle has the virtue of never being forgotten.
+ - When you make a mistake, don’t make a second one – keeping it to yourself. Own up. The time to sort out rotten eggs is at the nest. The deeper you hide them in the case the longer they stay in circulation, and the worse impression they make when they finally come to the breakfast table.
+ - What you know is a club for yourself, and what you don’t know is a meat-ax for the other fellow.
+ - I remember reading once that some fellows use language to conceal thought; but it’s been my experience that a good many more use it instead of thought.
+ - The more I deal in it, the surer I am that human nature is all of the same critter, but that there’s a heap of choice in the cuts.
+ - When a man makes a specialty of knowing how some other fellow ought to spend his money, he usually thinks in millions and works for hundreds.
+ - Books are all right, but dead men’s brains are no good unless you mix a live one’s with them.
+ - The great secret of good management is to be more alert to prevent a man’s going wrong than eager to punish him for it.
+ - When a fortune comes without calling, it’s apt to leave without asking.
+ - The easiest way in the world to make enemies is to hire friends.
+ - When love is full grown it has few words, and sometimes it growls them out.
+ - Because a fellow has failed once or twice or a dozen times, you don’t want to set him down as a failure till he’s dead or loses his courage.
+ - There are two unpardonable sins in this world – success and failure.
+ - The world is full of bright men who know all the right things to say and who say them in the wrong place.
+ - A fellow and his business should be bosom friends in the office and sworn enemies out of it.
+ - Beginning before you know what you want to say and keeping on after you have said it lands a merchant in a lawsuit or the poorhouse, and the first is a shortcut to the second.
+ - It isn’t what a man’s got in the bank, but what he’s got in his head, that makes him a great merchant.
+ - Never ask a man what he knows, but what he can do.
+ - In all your dealings, remember that today is your opportunity; tomorrow some other fellow’s.
+ - Some men are like oak leaves – they don’t know when they’re dead, but still hang right on; and there are others who let go before anything has really touched them.
+ - Putting off a hard thing makes it impossible.
+ - The solution to our energy needs must go through a show of respect for nature, not, once again, a policy that does violence to our hills.
+
+55 quotes

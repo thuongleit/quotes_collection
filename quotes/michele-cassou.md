@@ -1,0 +1,21 @@
+ - If you do not listen to your intuition, it will stop talking to you. Your intuition is like a sensitive friend. If you question it, censor it, judge it, it gets hurt and becomes silent.
+ - Chaos is the soul of creation. It plows the ground of intuition. Without chaos, nothing will grow.
+ - When a seed sprouts, it’s a violent process. The skin breaks and splits in two. Something dies and something is born. Anytime you paint a strong or violent image, you may be expressing that part of yourself that’s opening in order to let the new emerge.
+ - When you have done your best, confronted your fear of committing to color and form, and dared to step over the threshold into the unknown, you will invariably find your own voice.
+ - When you set aside the mantle of control in the painting process, images arise from ancient layers of the psyche.
+ - Your art is part of the big painting of your life. You are on your own, standing by yourself in the middle of creation. In the beauty of that aloneness, and in how you respond to it, you will find your passion.
+ - You do not use art as a means to an end, but as a way to inhabit and explore the present. Right and wrong fade away; you recover your sense of what is authentic in you.
+ - We have within us enormous reserves of trapped potential. Our natural urges have been so constrained by the accommodations of living that we each have a smoldering volcano just below the surface. To enable this force to erupt in a healthy, open, and positive manner is a momentous act.
+ - The unfolding of the unexpected becomes the energy that drives you. You discover how thirsty you are for exploration without analysis. You become strangely at home in a place you can’t define. You are truly creating.
+ - Look upon paintings with eyes of mystery rather than judgement. Support the need to enter into the sacred space beyond evaluation.
+ - Painting for process is the visual equivalent of journal writing, done not for the sake of being seen or published, but purely for the telling itself.
+ - What I want people to realize is that there is enough inside them, that everything that they really need in order to feel a sense of aliveness and creativity is already inside. And not only is it inside them, but if they allow it they will have an interesting life.
+ - Painting is just a tool; it is nothing in itself. What counts is how you do it.
+ - When we begin to lift the veils of censorship and repression in painting, a great deal of energy is unleashed.
+ - If you listen inside, the brush will want to run toward a color. What you really need and want is very close, and the brush goes to it quickly if you don’t think.
+ - There is this mysterious energy that wants us to keep growing.
+ - It is extraordinary to see how the discovery of one single free stroke of paint can fill you with such joy and amazement.
+ - To play is to listen to the imperative inner force that wants to take form and be acted out without reason. It is the joyful, spontaneous expression of one’s self. The inner force materializes the feeling and perception without planning or effort. That is what play is.
+ - To play is to listen to the imperative inner force that wants to take form and be acted out without reason.
+
+19 quotes

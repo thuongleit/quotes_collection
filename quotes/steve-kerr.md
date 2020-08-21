@@ -1,0 +1,21 @@
+ - The future is coming so fast, we can’t possibly predict it; we can only learn to respond quickly.
+ - I do believe that one way to bring cultures together, to develop trust between people and countries and religions, is through education. And through music and art and basketball and activities and joys that people share worldwide, regardless of ethnic background or religious orientation.
+ - Don’t think shoot. Soon as you start thinking you miss.
+ - It is an interesting balance in trying to find players to make your team really good and at the same time running a financially sound operation. That is the challenge for every team.
+ - Our team, because of our depth and our talent, we were able to do that, and it turned into a special season as a result.
+ - I can’t believe how lucky I am.
+ - I think it’s imperative to follow your heart and choose a profession you’re passionate about, and if you haven’t found that ‘spark’ yet, if you’re not sure what you want to do with your lives – be persistent until you do.
+ - We had a lot of luck this year and our guys took advantage. Wow. What a night.
+ - Despite the amazing diversity we’re blessed with in this country, schools are still in large part segregated because of economic disparity. Sports are one of the few areas where kids are really given the opportunity to interact with those of different races and religions.
+ - I learned that people everywhere are basically the same and have similar goals that we do. They want health and happiness and the opportunity to provide for their families.
+ - I want to say congratulations to Cleveland and Coach Blatt. LeBron is an incredible player.
+ - I never ever gave ownership a thought. My thoughts before I retired were coaching and broadcasting.
+ - It seems to me as I reviewed the literature that, with few exceptions, the more confident were the prescriptions about how to behave with ethics and integrity, the further removed was the author from the life and work of the everyday manager.
+ - It’s different as a coach because you feel responsible for a lot of people. Even though you don’t take a shot, you don’t get a rebound, you feel like you just want people to succeed and you want to help them any way you can.
+ - Guarding LeBron James has to be the hardest job in basketball.
+ - We didn’t do much different against LeBron. We were just more active and more competitive.
+ - Yeah, I know there’s been all this talk this year especially about the 3-point shot and can you win shooting it. There’s a lot of different styles that can work. You have to base it on your own personnel.
+ - I’m just thrilled for so many people. Our players, mostly, but the people in our organization – Rick Welts, Joe Lacob and Peter Guber and the whole group. It’s just a phenomenal group of people. I think as a coach you just appreciate kind of the big picture a little bit more.
+ - I have always been very comfortable behind a microphone. I love talking about basketball, I love being around people, I love being around the game, the travel and the excitement around the arena.
+
+19 quotes

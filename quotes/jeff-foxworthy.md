@@ -1,0 +1,193 @@
+ - Look at where Jesus went to pick people. He didn’t go to the colleges; he got guys off the fishing docks.
+ - You might be a redneck if you have a very special baseball cap, just for formal occasions.
+ - You might be a redneck if your coffee table used to be a telephone cable spool.
+ - We sing about God because we believe in Him. We are not trying to offend anybody, but the evidence that we have seen of Him in our small little lives trumps your opinion about whether or not He exists.
+ - You might be a redneck if more than one living relative is named after a Southern Civil War general.
+ - I wish I could relate to the people I’m related to.
+ - You might be a redneck if you have started a petition to change the National Anthem to Georgia on My Mind.
+ - I have never been jealous. Not even when my dad finished fifth grade a year before I did.
+ - You might be a redneck if an episode of Walker, Texas Ranger changed your life.
+ - You might be a redneck if you’ve ever hauled a can of paint to the top of a water tower to defend your sister’s honor.
+ - I say, If everybody in this house lives where it’s God first, friends and family second and you third, we won’t ever have an argument.
+ - I’m two decisions away from putting up drywall for a living. I am, and there’s nothing wrong with that, but whatever I got, it’s through the grace of God, and I’ve got to use it right.
+ - You might be a redneck if an expired license plate means another decoration for your living room wall.
+ - People should see your faith. If all you do is talk about your faith and people don’t see it, but they ought to see it in the way you treat your family, you treat your friends, you treat your community.
+ - The problem with the designated driver program, it’s not a desirable job, but if you ever get sucked into doing it, have fun with it. At the end of the night, drop them off at the wrong house.
+ - Ladies have come up with all these expressions to reassure men. “Oh, honey, it’s not the size of the ship, it’s the motion of the ocean.” That may be true, but it takes a long time to get to England in a rowboat.
+ - It’s like cuddling with a Butterball turkey.
+ - Children that play outside develop better problem solving skills and have a stronger ability to work within a group.
+ - If your mother doesn’t remove the Marlboro from her lips before telling the State Trooper to kiss her ass, you might be a redneck.
+ - You have to change those diapers every day. When those directions on the side of the Pampers box say, ‘holds 6-12 pounds’ they’re not kidding!
+ - You might be a redneck if there are four or more cars up on blocks in the front yard.
+ - You just may be a redneck if your lawn furniture used to be your living room furniture.
+ - You might be a redneck if there is a sheet hanging in your closet and a gun rack hanging in your truck.
+ - Changing a diaper is a lot like getting a present from your grandmother – you’re not sure what you’ve got but you’re pretty sure you’re not going to like it.
+ - You might be a redneck if you had to remove a toothpick for wedding pictures.
+ - The biggest thing I’ve learned is to listen to my own gut. I have learned to trust my instincts.
+ - If someone at Fleet Farm offers you assistance and they don’t work there you might live in Wisconsin.
+ - I’m an outdoor nut. If I’m not working, I’m on a tractor on my farm, hunting, fishing or climbing a mountain.
+ - You might be a redneck if a full-grown ostrich has fewer feathers than your cowboy hat.
+ - If you ever start feeling like you have the goofiest, craziest, most dysfunctional family in the world, all you have to do is go to a state fair. Because five minutes at the fair, you’ll be going, ‘you know, we’re alright. We are dang near royalty.’
+ - I used to say that whenever people heard my Southern accent, they always wanted to deduct 100 IQ points.
+ - You might be a redneck if you think that the styrofoam cooler is the greatest invention of all time.
+ - Louisiana has the best food on the planet if you don’t really ask too much about what you’re eating.
+ - You might be a redneck if you hammer bottle caps into the frame of your front door to make it look nice.
+ - I’ve got keys to crap I’ve never owned. You put all my keys together I could be a high school janitor tonight.
+ - You moon the wrong person at an office party and suddenly you’re not ‘professional’ any more.
+ - You might be a redneck if the richest member of your family bought a house and you have to help take the wheels off of it.
+ - You might be a redneck if the first words out of your mouth every time you see friends are Howdy!, Hey! or How Y’all Doin’?
+ - You might be a redneck if your wife wants to stop at the gas station to see if they’ve got the new Darrell Waltrip Budweiser wall clock.
+ - You might be a redneck if your mother has been involved in a fist fight at a high school sports event.
+ - Pride is the first step in people unraveling and companies unraveling and relationships unraveling.
+ - If your idea of a 7 course meal is a bucket of KFC and a sixpack, you might be a redneck.
+ - My wife is so analytical with raising kids, and I am not. My feeling is if they turn out good, then that means I was a good daddy and put a lot of effort into it. If they turn out bad, it means they took after her side of the family.
+ - You might be a redneck if it’s easier to spray weed killer on your lawn than mow it.
+ - You might be a redneck if you consider a six-pack and a bug-zapper high-quality entertainment.
+ - You might be a redneck if the best way to keep things cold is to leave’em in the shade.
+ - I hope someday we can stamp out illiteracy in America. Of course you’ll have to kill alot of my relatives to do it.
+ - You know you’re a redneck if your home has wheels and your car doesn’t.
+ - If you have a complete set of salad bowls and they all say Kool Whip on the side, you might be a redneck.
+ - You find out that all this stuff you’ve accumulated, you could care less about it. It’s just the relationships that matter.
+ - When I was a kid, my parents had a 900-pound television on top of a TV tray. My dad’s theory was, ‘Let him pull it over his head a few times, he’ll learn.’
+ - You might be a redneck if getting a package from your post office requires a full tank of gas in the truck.
+ - Find something in life that you love doing. If you make a lot of money, that’s a bonus, and if you don’t, you still won’t hate going to work.
+ - You might be a redneck if there are more than ten lawsuits currently pending against your dog.
+ - Have you ever seen people so ugly that you have to get someone else to verify it?
+ - The stuff that made me mad 20 years ago doesn’t really make me mad any more.
+ - You might be a redneck if your biggest ambition in life is to git that big ole coon. The one what hangs ’round over yonder, back’ah Bubba’s barn...
+ - If the gas pedal on your car is shaped like a bare foot, you might be a redneck.
+ - I love comedy. God has given me this platform.
+ - Did you know babies are nauseated by the smell of a clean shirt?
+ - You might be a redneck if you think that beef jerky and Moon Pies are two of the major food groups.
+ - You might be a redneck if you have been fired from a construction job because of your appearance.
+ - If your working television sits on top of your non-working television, you might be a redneck.
+ - You might be a redneck if your classes at school were cancelled because the path to the restroom was flooded.
+ - You might be a redneck if when you run out of gas, you put gin in the gas tank.
+ - If you break into my house, I will shoot you. My wife will shoot you and then spend thirty minutes telling you why she shot you.
+ - Buying a used rental car is kind of like going to a house of ill repute looking for a wife. Anything that’s been driven that hard by that many people, you really don’t want to put your key in it.
+ - I got my wife a mood ring. It works real good! When shes in a good mood it turns blue, but when shes in a bad mood theres a red mark across my forehead.
+ - If you’re a redneck, you have that blood flowing through your veins. That’s almost on the bucket list, to hear Lynyrd Skynyrd’s “Freebird” live.
+ - My wife is like, You finally get your own TV show, you can have any kind of car you want and you get a darned truck. But my brother and I have the same kind of truck now.
+ - Please don’t get me wrong here. I’m not making fun of old people. In fact I think that’s the goal of everybody here tonite. We all want to be an old person someday.
+ - Watching a baby being born is a little like watching a wet St. Bernard coming in through the cat door.
+ - You might be a redneck if the antenna on your truck is a danger to low flying airplanes.
+ - I always wore cowboy boots and drove a truck, and talked like this. So everywhere I would go in comedy people would say, “Foxworthy, you ain’t nothing but a redneck from Georgia!” It kind of became a formula joke.
+ - If your stomach blocks your view of your feet, cover it up! The only people who should be wearing belly shirts are people who don’t have bellies. Now those little baby spare tires are kinda cute; tractor tires aren’t! Especially if they’ve got hair on them!
+ - You might be a redneck if you’re a lite beer drinker, because you start drinking when it gets light.
+ - You might be a redneck if you have refused to watch the Academy Awards since Smokey and the Bandit was snubbed for best picture.
+ - The things that I’m talking about not knowing, they’re not mysteries of the universe; it’s just stuff I thought I would know by the time I was thirty-nine.
+ - Redneck is: the glorious absence of sophistication.
+ - The only negative about doing stand-up is that you’re on the road by yourself. When you’re on the road with comics we just crack each other up every night going, “Can you believe they’re paying us to do this? They’re crazy.”
+ - If the veins in the back of your legs look like the street map of greater Pittsburgh, you ain’t nobody’s babydoll.
+ - When you get to your third millionth frequent flyer mile, I think something snaps in your brain.
+ - Little girls love dolls. They just don’t love doll clothes. We’ve got four thousand dolls and ain’t one of them got a stitch of clothes on.
+ - I turned down a movie this summer because it was nine weeks in Vancouver and my oldest daughter is 14. I’ve got four more summers with her. I’m not giving away nine weeks of her summer to go do a silly movie.
+ - My grandma’s the most careful, safe driver in the world. You put her in a rental car, and she’s doing doughnuts in the K-Mart parking lot!
+ - If most people wanted to be incognito, they put on a fake beard or mustache. If I wanted to I’d just shave mine off.
+ - Kids aren’t suppose to have cancer, they’re suppose to have a future.
+ - Sophisticated people invest their money in stock portfolios. Rednecks invest their money in commemorative plates.
+ - You know that you are a teacher when you spend more money on school stuff than you do on your own children.
+ - If your wife’s hairdo has ever been ruined by a ceiling fan, you might be a redneck.
+ - I talked to Larry the Cable Guy the other day. Larry’s made more money than 10 people should ever make in a lifetime. He was excited because he’d gone over to the livestock auction and bought 20 new feeder pigs.
+ - I’ve gotten to the point I won’t even watch the 11 o’clock news. You just walk away from it thinking how bad everything is.
+ - You might be a redneck if somebody hollers ho-down and your girlfriend hits the floor.
+ - Country music is about new love and it’s about old love.
+ - You might be a redneck if when you leave your house, you are followed by federal agents of the Bureau of Alcohol Tobacco and Firearms, and the only thing you worry about is if you can lose them or not.
+ - If men have a smell it’s usually an accident.
+ - If your thighs look like the hood of a white Toyota minivan after a hailstorm, you aren’t juicy.
+ - I know if mama ain’t happy, ain’t nobody happy.
+ - As a comedian I appreciate every kind of comedy. You decide for yourself what you’re going to do.
+ - I think for one thing, kids are a lot smarter now then we ever were.
+ - Between New York and LA, there’s 200 million people that aren’t hip, and they don’t want to be hip.
+ - It’s sad when you see somebody that talented that passes away and doesn’t have to.
+ - Being a comedian, people tell me stuff they shouldn’t tell their therapist.
+ - You might be a redneck if you own all the components of soap on a rope except the soap.
+ - Nothing in life prepares you to be famous.
+ - What I hated was doing what somebody in LA thought Jeff Foxworthy ought to do.
+ - To me, the media in New York and LA have always missed the essence of this country.
+ - You might be a redneck if you think Silence of the Lambs is what happens when Larry walks out to the barn.
+ - Any job that posts a price list for your body parts is a bad job.
+ - You take a normal guy, give him a wife, give them time, and you’ve got AN IDIOT!
+ - As an actor, there was that freedom of not having to worry about lights or marks or other people. It was just going out there and having fun with the character.
+ - You might be a redneck if on your first date you had to ask your Dad to borrow the keys to the tractor.
+ - I’ll just have itchy, watery eyes!
+ - I actually had a chance to be in Delta Farce, but I couldn’t do it because I read the script.
+ - There’s a whole segment of the population with a mentality that bases good times on where they can go and what they can buy.
+ - There’s no down time any more.
+ - If you own a home with wheels on it and several cars without, you just might be a redneck.
+ - Sacrificing myself to kill Hilary Clinton was the best thing I could possibly do for humanity.
+ - That’s the great thing about a tractor. You can’t really hear the phone ring.
+ - You can call us rednecks if you want. We’re not offended, ’cause we know what we’re all about. We get up and go to work, we get up and go to church, and we get up and go to war when necessary.
+ - You might be a redneck if you are still holding on to Confederate money because you think the South will rise again.
+ - I’ve got nothing against tattoos. I don’t have one myself. If I did, it would be right there next to my watch. It would say Your wife’s birthday is August 2nd, your anniversary is September 18th, don’t let Ron White drive your car again.
+ - You might be a redneck if you move your refrigerator and the grass underneath it has turned yellow.
+ - I’m very lucky in that I’ve gotten to do a lot of things. But if you ever put a gun to my head and said, “You can only do one,” I’d think it would be stand-up. I think it’s the coolest job in the world.
+ - As an individual, as a household, you can’t spend more money than you’re bringing in. You can do it for a little while, but you end up going broke and you end up losing everything you have. That is the path that we’re on as a country, and it scares me to death.
+ - You might be a redneck if your good deed for the month was hiding your brother for a few days.
+ - I would love for someone to offer me a serious part in something. I don’t know if I could even pull it off, but I would like to be the cowboy that rides off and someone shoots him off the horse in the middle of town. Just a serious role. It wouldn’t have to be a big one.
+ - You might be a redneck if you were shooting pool when your kids were born.
+ - By the time we get to church, I need church cuz I’ve been yelled at by everyone in the family.
+ - For the first time ever I was taking the family on the road. We stayed with my in-laws, which on life’s list of experiences ranks right below sitting in a tub full of scissors.
+ - You might be a redneck if you’re moved to tears every time you hear Dolly Parton singing I Will Always Love You.
+ - I think with a comedian, when you get to the point of a greatest hits, it’s kind of an acknowledgment that you’ve been doing stand-up a long time, which not very many people do.
+ - You might be a redneck if you stand under the mistletoe at Christmas and wait for Granny and cousin Sue-Ellen to walk by.
+ - You might be a redneck if your momma calls you over to help, cause she has a flat tire on her house.
+ - If you don’t have anything good to say about someone, you must be talking about Hillary Clinton.
+ - Thank God I’m at that point in my career where I don’t have to take stuff that I don’t really want to do.
+ - I really don’t require a whole lot in life.
+ - Because criminals know that when they see a house with 2 foot tall grass, a dog on a chain, and an engine hanging from a tree, a gun lives in that house. And if you want to know what kind, just break in at 2 in the morning.
+ - Hell, when I was in high school, a drive-by shooting meant somebody had their rear end hanging out a car window!
+ - A lot of people up North, they think everybody from the South is married to their sister and has seen a UFO. I told them, ‘I’m just dating my sister and couldn’t swear that it wasn’t a weather balloon.’
+ - You might be a redneck if you refer to the time you won a free case of oil as the day my ship came in.
+ - You might be a redneck if your grandfather completely executes the pull my finger trick at the family reunion.
+ - I was talking to Alan Jackson. He had his second Greatest Hits album. He said, You don’t ever get into this really thinking you’re gonna make it.
+ - You might be a redneck if you’ve ever stood in line to get your picture taken with a freak of nature.
+ - My whole career can be summed up with ‘Ignorance is bliss.’ When you do not know better, you do not really worry about failing.
+ - You might be a redneck if you see a sign that says Say No To Crack and it reminds you to pull your jeans up.
+ - I don’t necessarily think of it as Southern comedy. I just think I’m a comedian and I have a Southern accent.
+ - You might be a redneck if your kids are going hungry tonight because you just had to have those Yosemite Sam mud flaps.
+ - You might be a redneck if your pocketknife has ever been referred to as Exhibit A.
+ - People would say, Can we develop a sitcom around you? and I would say, Not interested. I’m very happy doing standup and writing and taking my kids to school.
+ - I’ve been to all 50 states, and traveled this whole country, and 90 percent of the people are good folks. The rest of them take after the other side of the family.
+ - It’s hard to think of yourself as a loser at 2 years old.
+ - I don’t know why my brain has kept all the words to the Gilligan’s Island theme song and has deleted everything about triangles.
+ - It’s a weird sensation to be mad and learning at the same time.
+ - You might be a redneck if you have to check in the bottom of your shoe for change so you can get Grandma a new plug of tobacco.
+ - It seems like movies that have heart to them always do well, and they find their audience.
+ - Some people like to keep their grass cut really short, so they can see the intruders coming. Keep those kill zones open. I say let the grass grow tall so they don’t know there’s a house behind it. Some call it lazy, I say it’s thinking.
+ - You might be a redneck if your wheelbarrow breaks and it takes four relatives to figure out how to fix it.
+ - You might be a redneck if you have a picture of Johnny Cash, Willie Nelson, or Elvis over your fireplace.
+ - When I did the sitcom I was too naive. I thought, Well, they know what they’re talking about, let’s do that.
+ - All these years I’ve sat in airports and kind of drawn people and put like Far Side captions on them.
+ - You might be a redneck if going to the bathroom involves shoes and a flashlight.
+ - You might be a redneck if your momma gives you tips on how to sneak booze into sporting events.
+ - Little girls love dolls. They just don’t love dolls clothes.
+ - We probably stagnate our children’s emotional growth by not letting them have some separation from us.
+ - You might be a redneck if you entire family has ever sat around waiting for a call from the governor to spare a loved one.
+ - If you have ever spray-painted your girlfriends name on an overpass, you might be a redneck.
+ - You might be a redneck if the Home Shopping Channel operator recognizes your voice.
+ - I had to perform at the White House for the president, That’s always kind of a weird set to try to put together.
+ - I tried real hard to play golf, and I was so bad at it they would have to check me for ticks at the end of the round because I’d spent about half the day in the woods.
+ - You might be a redneck if you prominently display a gift you bought at Graceland.
+ - You might be a redneck if your beer can collection is considered a tourist attraction in your home town.
+ - You might be a redneck if in an effort to watch your cholesterol, you eat Spam Lite.
+ - You might be a redneck if you keep a fly swatter in the front seat of the car so you can reach your kids in the back seat of the car.
+ - You might be a redneck if motel 6 turns off the lights when they see you coming.
+ - Did you know babies are nauseated by the smell of a clean shirt? You put on something from the cleaners, they’ll spit up just like that. My wardrobe looks like we have condors living in our yard.
+ - The more excited the rooster gets, the higher his voice goes. He’s got a little bit of a Barney Fife quality to him.
+ - Comics don’t usually have very long careers, and I’m 22 years into this.
+ - You might be a redneck if you go Christmas shopping for your mom, sister, and girlfriend, and you only need to buy one gift.
+ - In my life, I have driven some crappy vehicles. But I have never been so desperate for a vehicle that I wanted a used rental car.
+ - As a comic, you learn to use your voice because you don’t have the benefit of visual things.
+ - I’m having my house repainted and we have a piano in the corner and the painter says, Is that y’all’s piano? I said, No, that’s our coffee table; it just has buck teeth. Here’s Your Sign.
+ - You might be a redneck if you grow Vidalia onions, rather than considering them a gourmet item.
+ - We’re a heart attack away from losing the right to bear arms.
+ - If your biggest tax deduction was bail money, you might be a redneck.
+ - You might be a redneck if your vehicle has a two-tone paint job – primer red and primer gray.
+ - You might be a redneck if you dated your daddy’s current wife in high school.
+ - You might be a redneck if the receptionist checks the rat traps at your place of business.
+ - You might be a redneck if the highlight of your parties is when you flip out your false teeth.
+ - I refuse to this day to do e-mail because everybody I know that does it, it takes another two or three hours a day. I don’t want to give two or three more hours away.
+ - My father-in-law gets up at 5 o’clock in the morning and watches the Discovery Channel. I don’t know why there’s this big rush to do this.
+
+191 quotes

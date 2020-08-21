@@ -1,0 +1,43 @@
+ - People say ‘follow in the footsteps’ but I always find that a strange expression because what you want to do is forge your own path, so to speak.
+ - I’ve always wanted to be a fighter pilot. But I don’t want to kill people. I’d hate to.
+ - Nepotism is despised in England, which is a very good thing. I think something to do with the class system. People really look down on nepotism. So yeah, it never really works in your favor – even in this industry.
+ - Kindness and a generous spirit go a long way. And a sense of humor. It’s like medicine – very healing.
+ - I guess if everything went tits up, having no work whatsoever, obviously you have to do something else. At the moment I don’t see myself quitting, but I’m open minded about it.
+ - I like reading, free diving and hiking. But my favorite thing to do is travel anywhere in Greece. I love everything about that place.
+ - In fact, when I met Kit Harington first, he was pretty much feeling how I’m feeling today – at a photo shoot and you’ve had no sleep. He was just a really nice, English, down-to-earth guy. No pretense, nothing.
+ - I think it’s quite good to have an amount of unavailability.
+ - They’re a nasty bunch of people. The Riot Club’s sole purpose is to celebrate wealth, elitism, hedonism, and excess – just random acts of destruction and chauvinism, which is interesting because our Prime Minister, our Chancellor of the Exchequer, the Mayor of London were are a part of this club.
+ - I never wear sneakers. I don’t feel comfortable in them.
+ - I’ve got my dad’s height and smoking habit. But I think I’ve got my mum’s looks and sensibilities.
+ - If you try to bring ‘teen drama,’ you end up doing nothing but pouting.
+ - I think New York is more stylish than London.
+ - You know, Taylor Lautner, with a body like that, he should be taking his shirt off. For me, it’s not so essential.
+ - For an actor who has the ability to take a chance, which may make him look like a fool, but may end in the pot of gold at the end of the rainbow so to speak. So you have to take chances to be a bit dangerous and a bit silly every now and then and playful.
+ - Coats are my favorite thing, and it’s always cold in England. I’m comfortable spending a bit of money if you know you’re going to be wearing it 10 years later.
+ - As a child I’d get given parts as a tree.
+ - The actors I respect are the ones who see it as a career and manage to live reasonably normal lives, like Meryl Streep and Philip Seymour Hoffman.
+ - Bullingdon would never go co-ed. I’m not going to give anything away, but there are a couple of girls involved in our story and it doesn’t end well for anyone.
+ - I always wanted to be a teacher. A bit of me still wants to be a teacher.
+ - It’s a mistake to dwell too much on the consequences of a piece of work that you’re making.
+ - Also I don’t want to refer to myself as Maximilian. You’d have to win an Oscar or become mind-numbingly wealthy or hit 50. It’s like smoking a cigar, you know what I mean? You can’t be a young guy and do it.
+ - Acting advice is a bit like your parents teaching you how to drive a car. You know they’re right, but you still kind of want them to shut up a bit.
+ - Well, I couldn’t spell my name until I was eight – my second name. I was so dyslexic. Max I could do. Irons, nope.
+ - The Host’ is very much in the same vein as ‘Twilight’, and there’s clearly a huge fan base out there. But I can’t imagine myself being as huge as Robert Pattinson. I’m not sure I could handle that level of fame.
+ - There are certain things that cut right to the bone, but as an actor you have to because you get turned down for things all the time. I have a friend who was told he didn’t get a job because he was too hairy. I’ve never heard anything that bad, but you have to get used to that sort of thing.
+ - The only person I can amaze is me.
+ - I don’t think I’ve got enough energy to be competitive! Most of my energy is just devoted to me being nervous and trying to deal with the situation.
+ - I don’t look on the Internet; it’s a world of pain.
+ - Once you become the story off-screen, you are less likely to be the onscreen one.
+ - I think I was about 16 when I first figured I wanted to be an actor. I wanted to be a fighter pilot before that, but then I thought I don’t want to kill people so that ruled that out.
+ - For me, comfort is paramount.
+ - Less so here, I’ve noticed. I can see why there’s a misconception that it’s easier when your parents are actors, but it doesn’t work out at all. In fact, it’s the reverse.
+ - My name has opened doors and slammed doors shut.
+ - If you look at the careers of Philip Seymour Hoffmann, Paul Giamatti, Meryl Streep, none of them shot up in terms of fame or fortune or recognition, they laid a platform of good, solid work and became better and better.
+ - I was supposed to go up for something recently that was a six-year commitment, and I didn’t want to do it. It was a terrible part as well. I don’t want to be doing six years of something. I’d go crazy.
+ - I like to think that at the end of a show, you can just take your costume off and go to the pub.
+ - I know I haven’t done it. I’ve done a couple of films, which were intended to go straight up. Thankfully they didn’t. So now, I think that’s what I need to do. I just need to grow as an actor.
+ - Towards the end, one of them was older than I was in real life.
+ - People often find it surprising that actors find photo shoots difficult, because you’re very concerned about what’s going on externally in those things when you have to be concerned with what’s going on internally as an actor.
+ - I want to have a career that lasts 60 years, not six.
+
+41 quotes

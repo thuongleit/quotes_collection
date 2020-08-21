@@ -1,0 +1,38 @@
+ - In God becoming human in Jesus Christ, God has established solidarity with the human condition.
+ - Intelligent design is just the Logos theology of John’s Gospel restated in the idiom of information theory.
+ - The mechanical philosophy was ever blind to this fact. Intelligent design, on the other hand, readily embraces the sacramental nature of physical reality. Indeed, intelligent design is just the Logos theology of John’s Gospel restated in the idiom of information theory.
+ - I believe God created the world for a purpose. The Designer of intelligent design is, ultimately, the Christian God.
+ - There is an immediate payoff to intelligent design: it destroys the atheistic legacy of Darwinian evolution. Intelligent design makes it impossible to be an intellectually fulfilled atheist.
+ - I think the opportunity to deal with students and getting them properly oriented on science and theology and the relation between those is going to be important because science has been such an instrument used by the materialists to undermine the Christian faith and religious belief generally.
+ - The atheist is cheating whenever he makes a moral judgment, acting as though it has an objective reference, when his philosophy in fact precludes it.
+ - As long as the wrong people hold power, how can the right political climate even arise?
+ - If you have no authority to legislate my freedoms, then I’m truly free, at least from you.
+ - Natural selection certainly operates. It explains how bacteria will gain antibiotic resistance; it will explain how insects get insecticide resistance, but it doesn’t explain how you get bacteria or insects in the first place.
+ - The wrong people will do everything in their power to guarantee that the wrong political climate will continue. It seems, then, that the wrong people ensure the wrong political climate and the wrong political climate ensures the wrong people. How then to break free of this vicious circle?
+ - Design theorists are no friends of theistic evolution.
+ - Government has a legitimate sphere of operation. The problem arises when that sphere continually expands, encompassing areas where government lacks legitimacy.
+ - Wrong people are wrong not because of their faults but because of their presumed virtues.
+ - Because we don’t see the evil destroyed now and thus experience the suffering that evil inevitably inflicts, we are tempted to doubt God’s existence and goodness.
+ - The world is a mirror representing the divine life...
+ - Without a unified political climate of opinion, there is little or no political profit in doing the right thing.
+ - Intelligent design, unlike creationism, is a science in its own right and can stand on its own feet.
+ - Thus, in its relation to Christianity, intelligent design should be viewed as a ground-clearing operation that gets rid of the intellectual rubbish that for generations has kept Christianity from receiving serious consideration.
+ - The problem with merely writing so that you can be understood is that the wrong people, in advancing their agendas, are only too ready to misunderstand you. Writing so that you cannot be misunderstood anticipates and preempts those who would willfully distort what you are trying to say.
+ - Intelligent design is a modest position theologically and philosophically. It attributes the complexity and diversity of life to intelligence, but does not identify that intelligence with the God of any religious faith or philosophical system.
+ - As far as design theorists are concerned, theistic evolution is American evangelicalism’s ill-conceived accommodation to Darwinism .
+ - This is really an opportunity to mobilize a new generation of scholars and pastors not just to equip the saints but also to engage the culture and reclaim it for Christ. That’s really what is driving me.
+ - My thesis is that all disciplines find their completion in Christ and cannot be properly understood apart from Christ.
+ - As a biblical inerrantist, I believe that what the Bible teaches is true and bow to the text, including its teaching about the Flood and its universality.
+ - Virtually every discipline and endeavor is presently under a naturalistic pall.
+ - Christ is indispensable to any scientific theory, even if its practitioners do not have a clue about him.
+ - The fundamental claim of intelligent design is straightforward and easily intelligible: namely, there are natural systems that cannot be adequately explained in terms of undirected natural forces and that exhibit features which in any other circumstance we would attribute to intelligence.
+ - The problem of good as it faces the atheist is this: Nature, which is the nuts-and-bolts reality for the atheist, has no values and thus can offer no grounding for good and evil. Values on the atheist view are subjective and contingent.
+ - What I propose, then, is a strategy for interrogating the Darwinists to, as it were, squeeze the truth out of them.
+ - The question rather is how we should do science and theology in light of the impending collapse of Enlightenment rationalism and scientific naturalism. These ideologies are on the way out. They are on the way out.
+ - The scientific picture of the world championed since the Enlightenment is not just wrong but massively wrong. Indeed entire fields of inquiry, especially in the human sciences, will need to be rethought from the ground up in terms of intelligent design.
+ - Because government has tremendous power, it attracts people who are eager to game the system, obtaining by force of law what they could never achieve through consensus.
+ - Intelligent Design opens the whole possibility of us being created in the image of a benevolent God.
+ - Any view of the sciences that leaves Christ out of the picture must be seen as fundamentally deficient.
+ - Precisely because intelligent design does not turn the study of biological origins into a Bible-science controversy, intelligent design is a position around which Christians of all stripes can unite.
+
+36 quotes

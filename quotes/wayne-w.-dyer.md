@@ -1,0 +1,502 @@
+ - The state of your life is nothing more than a reflection of the state of your mind.
+ - Love what you do; Do what you love.
+ - With everything that has happened to you, you can either feel sorry for yourself or treat what has happened as a gift. Everything is either an opportunity to grow or an obstacle to keep you from growing. You get to choose.
+ - Change the way you look at things and the things you look at change.
+ - How people treat you is their karma; how you react is yours.
+ - Go for it now. The future is promised to no one.
+ - It's never crowded along the extra mile.
+ - You'll see it when you believe it.
+ - When you judge another, you do not define them, you define yourself.
+ - You don't need to be better than any one else you just need to be better than you used to be.
+ - Heaven on Earth is a choice you must make, not a place you must find.
+ - Begin with the end in mind. Start with the end outcome and work backwards to make your dream possible.
+ - When you have a choice to be right, or to be kind, choose to be kind.
+ - I have absolutley no limits on what I intent to create.
+ - You cannot always control what goes on outside. But you can always control what goes on inside.
+ - Banish doubt. When doubt is banished, abundance flourishes and anything is possible.
+ - The law of attraction is this: You don’t attract what you want. You attract what you are.
+ - No one can create negativity or stress within you. Only you can do that by virtue of how you process your world.
+ - Heaven is a state of mind, not a location.
+ - Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.
+ - With God, all things are possible.
+ - You are not stuck where you are unless you decide to be.
+ - I am realistic – I expect miracles.
+ - Attitude is everything, so pick a good one.
+ - You are an infinite spiritual being having a temporary human experience.
+ - Doing what you love is the cornerstone of having abundance in your life.
+ - Everything I need now is here.
+ - You get treated in life the way you teach people to treat you.
+ - The more you see yourself as what you'd like to become, and act as if what you want is already there, the more you'll activate those dormant forces that will collaborate to transform your dream into your reality.
+ - As You Think, So Shall You Be.
+ - I am thankful to all those who said no. It's because of them, I did it myself.
+ - Peace is the result of retraining your mind to process life as it is, rather than as you think it should be.
+ - A belief system is nothing more than a thought you've thought over and over again.
+ - Never underestimate your power to change yourself; never overestimate your power to change others.
+ - Whatever the question, love is the answer.
+ - You cannot be lonely if you like the person you're alone with.
+ - You are what you choose to be today. Not what you've chosen to be before.
+ - You cannot fail, you can only produce results.
+ - Conflict cannot survive without your participation.
+ - I would rather be hated for who I am than loved for who I'm not. 
+ - Begin to see yourself as a soul with a body rather than a body with a soul.
+ - A non-doer is very often a critic - that is, someone who sits back and watches doers, and then waxes philosophically about how the doers are doing. It's easy to be a critic, but being a doer requires effort, risk, and change.
+ - If you believe it will work out, you’ll see opportunities. If you believe it won’t you will see obstacles.
+ - Circumstances do not make a man, they reveal him.
+ - You have everything you need for complete peace and total happiness right now.
+ - There is one grand lie - that we are limited. The only limits we have are the limits we believe.
+ - Self-worth comes from one thing – thinking that you are worthy.
+ - All blame is a waste of time. No matter how much fault you find with another, it will not change you.
+ - When you're at peace with yourself and love your self, it is virtually impossible to do things to yourself that are destructive.
+ - What comes out of you when you are squeezed is what is inside of you.
+ - No one knows enough to be a pessimist.
+ - Each experience in your life was absolutely necessary in order to have gotten you to the next place, and the next place, up to this very moment.
+ - When you abandon making choices, you enter the vast world of excuses.
+ - Your reputation is in the hands of others. That's what the reputation is. You can't control that. The only thing you can control is your character.
+ - Everything you do is based on the choices you make. It’s not your parents, your past relationships, your job, the economy, the weather, an argument or your age that is to blame. You and only you are responsible for every decision and choice you make. Period.
+ - Passion is a feeling that tells you: this is the right thing to do. Nothing can stand in my way. It doesn't matter what anyone else says. This feeling is so good that it cannot be ignored. I'm going to follow my bliss and act upon this glorious sensation of joy.
+ - If you meet someone whose soul is not aligned with yours, send them love and move along.
+ - There's no scarcity of opportunity to make a living at what you love. There is only a scarcity of resolve to make it happen.
+ - How people treat you is their karma; how you react is yours. Maxim for life: You get treated in life the way you teach people to treat you. If you change the way you look at things, the things you look at change. When you judge another, you do not define them, you define yourself.
+ - If you knew who walked beside you at all times, on the path that you have chosen, you could never experience fear or doubt again.
+ - Judgements prevent us from seeing the good that lies beyond appearances.
+ - When you dance, your purpose is not to get to a certain place on the floor. It’s to enjoy each step along the way.
+ - Enjoying life is far superior to being graded on your performance in life.
+ - When you are able to shift your inner awareness to how you can serve others, and when you make this the central focus of your life, you will then be in a position to know true miracles in your progress toward prosperity.
+ - We are divine enough to ask and we are important enough to receive.
+ - We are not human beings in search of a spiritual experience. We are spiritual beings emersed in a human experience.
+ - Let the world know why you’re here, and do it with passion.
+ - The greatest gift that you were ever given was the gift of your imagination.
+ - Beautiful thoughts, build a beautiful soul.
+ - Acceptance means no complaining, and happiness means no complaining about the things over which you can do nothing.
+ - Abundance is not something we acquire. It is something we tune into.
+ - Good morning, this is God. I will be handling all of your problems today. I will not need your help, so have a miraculous day.
+ - You are in a partnership with all other human beings, not a contest to be judged better than some and worse than others.
+ - Love is forgiving and Love is for giving.
+ - There is no stress in the world, only people thinking stressful thoughts.
+ - Discontinue deciding what anyone else should or shouldn't be doing.
+ - The highest form of ignorance is when you reject something you don’t know anything about.
+ - Miracles come in moments. Be ready and willing.
+ - Love is the ability and willingness to allow those that you care for to be what they choose for themselves without any insistence that they satisfy you.
+ - See the Light in Others, and Treat Them as if That is All you See.
+ - Our intentions create our reality.
+ - Stop acting as if life is a rehearsal. Live this day as if it were your last. The past is over and gone. The future is not guaranteed.
+ - Within you is the divine capacity to manifest and attract all you desire.
+ - Your teacher might be a child who takes you by the hand and asks you a question that you hadn't considered before, and your answer to the child is your answer to yourself.
+ - It is easy to love people when they smell good, but sometimes they slip into the manure of life and smell awful. You must love them just as much when they smell foul.
+ - The last suit that you wear, you don't need any pockets.
+ - If you want to accomplish something, you must first expect it of yourself.
+ - Look for the blessing in all situations.
+ - Fear knocked at the door. Love answered and no one was there.
+ - Real magic in relationships means an absence of judgment of others.
+ - Seize every second of your life and savor it. Value your present moments.
+ - The antidote to fear is faith.
+ - Live as if your prayers are to be answered.
+ - It is better to be kind than right.
+ - Authentic freedom is actually the freedom of knowing who you are, why you are here, your purpose in life and where you are going when you leave here.
+ - You are a Divine creation, a Being of Light who showed up here as a human being at the exact moment you were supposed to. You are the Beloved, a miracle, a part of the eternal perfection.
+ - Too often we jump to the conclusion that something is impossible simply because we cannot see the solution. No one knows enough to be a pessimist.
+ - The measure of your life will not be in what you accumulate, but in what you give away.
+ - Friends are God’s way of apologizing for your family.
+ - Simply put, you believer that things or people make you unhappy, but this is not accurate. You make yourself unhappy.
+ - Infinite patience produces immediate results.
+ - What other people think of me is none of my business. One of the highest places you can get to is being independent of the good opinions of other people.
+ - Know that everything will happen at just the right time, at just the right place, with just the right people.
+ - Remind yourself that you cannot fail at being yourself.
+ - You create your thoughts, your thoughts create your intentions, and your intentions create your reality.
+ - Attachment to being right creates suffering. When you have a choice to be right, or to be kind, choose kind and watch your suffering disappear.
+ - Progress and growth are impossible if you always do things the way you’ve always done things.
+ - You can either be a Host to God, or a Hostage to your ego!
+ - Don’t pole-vault over mouse turds.
+ - I am free now to detach myself from what used to be.
+ - Remember this maxim: When you change the way you look at things, the things you look at change. The way you perceive things is an extremely powerful tool that will allow you to fully bring the power of intention into your life.
+ - Remember that your natural state is joy.
+ - When you live on a round planet, there’s no choosing sides.
+ - Quantum physics is teaching us that particles themselves don’t create particles. It’s what Jesus said 2,000 years ago, that it’s the Spirit that gives life and that you don’t get particles from more particles.
+ - Freedom means you are unobstructed in living your life as you choose. Anything less is a form of slavery.
+ - Our lives are a sum total of the choices we have made.
+ - We expand what we focus on.
+ - You may succeed in making another feel guilty about something by blaming him, but you won’t succeed in changing whatever it is about you that is making you unhappy.
+ - If prayer is you talking to God, then intuition is God talking to you.
+ - We become what we think about all day long. The qustion is, “What do you think about?”
+ - Healthy habits are learned in the same way as unhealthy ones – through practice.
+ - Change your inner thoughts to the higher frequencies of love, harmony, kindness, peace, and joy, and you’ll attract more of the same.
+ - Your miracles are an inside job. Go there to create the magic that you seek in your life.
+ - Earth is heaven. Or hell. Your choice.
+ - The first step toward discarding a scarcity mentality involves giving thanks for everything that you have.
+ - There is no way to prosperity, prosperity is the way.
+ - When you trust in yourself, you are trusting in the same wisdom that created you. When you fail to trust in yourself, when you fail to love yourself, you are denying your own Divinity, and therefore attracting the opposite of what The Source is.
+ - When you squeeze an orange, orange juice comes out – because that’s what’s inside. When you are squeezed, what comes out is what is inside.
+ - By surrendering, you create an energy field of receptivity for the solution to appear.
+ - We can only give away to others what we have inside ourselves.
+ - You must become the producer, director and actor in the unfolding story of your life.
+ - As I unclutter my life, I free myself to answer the callings of my soul.
+ - The Universe provides abundantly when you’re in a state of gratefulness.
+ - Enlightenment is the “quiet acceptance of what is”. I believe the truly enlightened beings are those who refuse to allow themselves to be distressed over things that simply are the way they are.
+ - Always be aware that you have the power to create the naturally stress-free and tranquil life you desire.
+ - I am worthy of attracting unlimited abundance and prosperity into my life, regardless of what life experiences have gone before me. I only reinforce and contemplate images that are in harmony with this vision.
+ - Peace can be a lens through which you see the world. Be it. Live it. Radiate it out. Peace is an inside job.
+ - You become what you think about all day long and those days eventually become your lifetime.
+ - Feelings of passion, pure bliss, reverence, optimism, trust and illumination indicate that your desire to manifest success and abundance has an extremely strong pulling power from the universal source to you.
+ - All forgiveness is self forgiveness.
+ - Send out love and harmony, put your mind and body in a peaceful place, and then allow the universe to work in the perfect way that it knows how.
+ - Not only do you become what you think about, but the world also becomes what you think about. Those who think that the world is a dark place are blind to the light that might illuminate their lives. Those who see the light of the world view the dark spots as merely potential light.
+ - Be in a state of gratitude for everything that shows up in your life. Be thankful for the storms as well as the smooth sailing. What is the lesson or gift in what you are experiencing right now? Find your joy not in what’s missing in your life but in how you can serve.
+ - The purpose of dancing isn’t to end up at a particular spot on the floor. The purpose of dancing and of life is to enjoy every moment and every step, regardless of where you are when the music ends.
+ - Your children will see what you’re all about by what you live rather than what you say.
+ - The only difference between a flower and a weed is judgement.
+ - What you think about expands. If your thoughts are centered on what’s missing, then what’s missing, by definition, will have to expand.
+ - Self worth cannot be verified by others. You are worthy because you say it is so. If you depend on others for your value it is other-worth.
+ - Hold no grudges and practice forgiveness. This is the key to having peace in all your relationships.
+ - Upon awakening, let the words Thank You flow from your lips, for this will remind you to begin your day with gratitude and compassion.
+ - Self-actualized people are independent of the good opinion of others.
+ - There are no justified resentments.
+ - I release all feelings of worry and guilt. Throughout life, the two most futile emotions are guilt for what has been done and worry about what might be done.
+ - God is like the ocean and we’re like that glass of water. We try to sustain life and do all that the source tells us that we are capable of doing, but if we do it alone, we wither away and collapse instead.
+ - Being relaxed, at peace with yourself, confident, emotionally neutral loose, and free-floating – these are the keys to successful performance in almost everything.
+ - There are only two emotions – Fear and Love. Go with Love.
+ - There is a universal intelligence that we call God or Soul or Spirit or Consciousness, and it is everywhere and in all things.
+ - Enlightenment is your ego’s greatest disappointment.
+ - Simply be the qualities you seek in others.
+ - Let go of your ego’s need to be right. When you’re in the middle of an argument, ask yourself: Do I want to be right or be happy? When you choose the joyous, loving, spiritual mode, your connection to intention is strengthened.
+ - Everything is perfect in the universe – even your desire to improve it.
+ - Being infinitely patient means having an absolute knowing that you’re in vibrational harmony with the all-creating force that intended you here. You know that everything will happen at just the right time, at just the right place, with just the right people.
+ - That which offends you only weakens you. Being offended creates the same destructive energy that offended you in the first place- so transcend your ego and stay in peace.
+ - Failure does not exist. Failure is simply someone else’s opinion of how a certain act should have been completed. Once you believe that no act must be performed in any specific other-directed way, then failing becomes impossible.
+ - It’s only a thought and a thought can be changed. Choose good ones.
+ - Practice being gentle, respectful and loving toward the life force in all things. Remind yourself that your efforts do make a difference, even if you think they are miniscule in comparison to the magnitude of the problem.
+ - If you are not generous when it’s difficult, you will not be generous when it’s easy. Generosity is a function of the heart, not the wallet.
+ - I will attract into my life what I am, not what I want.
+ - You are doomed to make choices. This is life’s greatest paradox.
+ - Live one day at a time emphasizing ethics rather than rules.
+ - Transformation literally means going beyond your form.
+ - You can never get enough of what you don’t want.
+ - If you are living out of a sense of obligation you are slave.
+ - Be willing to dream, and imagine yourself becoming all that you wish to be. Keep in mind the basic axiom – all that now exists was once imagined. It follows then that what you want to exist for you in the future must now be imagined.
+ - When I chased after money, I never had enough. When I got my life on purpose and focused on giving of myself and everything that arrived into my life, then I was prosperous.
+ - Writing isn’t something I do, writing is something that I am. I am writing – it’s just an expression of me.
+ - Realize How Little you Need in Order to be Satisfied and at Peace.
+ - I say no to doubt and yes to life!
+ - Anything you want to succeed in, you can do.
+ - Research has shown that a simple act of kindness directed toward another improves the functioning of the immune system and stimulates the production of serotonin in both the recipient of the kindness and the person extending the kindness. Kindness extended, received or observed beneficially impacts the physical health and feelings of everyone involved.
+ - Everything you are against weakens you. Everything you are for empowers you.
+ - Anytime you start a sentence with I AM, you are creating what you are and what you want to be.
+ - It is a simple procedure to calculate the number of seeds in an apple. But who among us can ever say how many apples are in a seed?
+ - The power of intention manifests as an expression of expanding creativity, kindness, love, and beauty.
+ - Examine the labels you apply to yourself. Every label is a boundary or limit you will not let yourself cross.
+ - Live today. Let go of your attachment to your past as an excuse for your life conditions today. You are the product of the choices you are making right now.
+ - Keep doing what you love to the best of your ability. Stop judging and get out of your own way.
+ - As you awaken to your divine nature, you’ll begin to appreciate beauty in everything you see, touch and experience.
+ - Money – like health, love, happiness, and all forms of success that you want to create for yourself – is the result of living purposefully. It is not a goal unto itself.
+ - Act as if what you intend to manifest in life is already a reality. Eliminate thoughts of conditions, limitations, or the possibility of it not manifesting. If left undisturbed in your mind and in the mind of intention simultaneously, it will germinate in the physical world.
+ - If it excites you, if it makes you feel good, it’s God speaking to you.
+ - You do not fail in life, you only produce results, and you have the right to learn and grow from any results that you produce.
+ - A mind at peace, a mind centered and not focused on harming others, is stronger than any physical force in the universe.
+ - The secret to changing your life is in your intentions. Wishing, hoping and goal setting cannot accomplish change without intention. What is needed is a shift from the inert energy of wanting to the active energy of doing and intention.
+ - Your body is the garage where you park your soul.
+ - If you don’t feel fabulous, you have deviated from the path of who-you-really-are.
+ - Life is an Attitude. It’s what you Choose to Believe, ALWAYS.
+ - Habits are changed by practicing new behaviors, and this is true for mental habits as well.
+ - We must honor our worthiness in order to receive what we want. In our society we are conditioned to believe that we are not worthy, and that it is even selfish to want to be able to attract things into our lives.
+ - Without Exception, Begin Every Day of your Life with Gratitude.
+ - Here is an affirmation for today: I feel passionately about my life, and this passion fills me with excitement and energy!
+ - You’re here for a reason and it’s not to hoard a lot of physical stuff.
+ - You get what you think about whether you want it or not.
+ - Your soul – that inner quiet space – is yours to consult. It will always guide you in the right direction.
+ - Instead of asking yourself what everyone else’s opinion is going to be and how your action will be perceived by others, ask yourself, ‘How do I want my life to be lived?’ Then proceed to take a small risk in the direction of that new action.
+ - One individual who lives and vibrates to the energy of pure love and reverence for all of life will counterbalance the negativity of 750,000 individuals who calibrate at the lower weakening levels.
+ - Inside of us is a place that is all-knowing, all mighty, which is a fragment of God. Nourishing, healing elements with in us. There is a spark in each one of us.
+ - Procrastination is One of those Excuses, Born of Fear, that we Use to Keep Ourselves Stuck.
+ - The single most important tool to being in balance is knowing that you and you alone are responsible for the imbalance between what you dream your life is meant to be, and the daily habits that drain life from that dream.
+ - Give yourself the gift of nature as often as you can.
+ - The unseen energy that was once in Shakespeare or Picasso or Galileo or any human form, is also available to all of us. That is because the spirit energy does not die, it simply changes form.
+ - Be a busy person. People who are active are often much more at peace with themselves than those who are inactive and inert.
+ - Listen to your Own Heart Concerning the Path you Wish to Travel.
+ - What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds.
+ - If you don’t make peace with your past it will keep showing up in your present.
+ - When you’re inspired you attract abundance.
+ - Life is never boring, but some people choose to be bored.
+ - The qualities of creativity and genius are within you, awaiting your decision to match up with the power of intention.
+ - Stop waiting for others to change. Recognize that every person has the right to be whatever they choose-even if you irritate yourself about it.
+ - Choose to be in close proximity to people who are empowering, who appeal to your sense of connection to intention, who see the greatness in you, who feel connected to God, who live a life that gives evidence that Spirit has found celebration through them.
+ - Successful people make money. It’s not that people who make money become successful, but that successful people attract money. They bring success to what they do.
+ - With our divine connection we are always in touch with the solutions we are seeking.
+ - You are the Beloved, you are the Divine, you are a creation that is made into perfection.
+ - Rejoice in the prosperity of others. When you feel contemptuous, or even a twinge of jealousy, toward the accomplishments or life-styles of others, you are harboring negativity where love must reside.
+ - You’re not what you eat; you’re what you believe about what you eat.
+ - You can Light Up the Whole World by Giving without any Expectation Back.
+ - You can set yourself up to be sick, or you can choose to stay well.
+ - As long as I continue to hear ‘normal’ people telling me I am too childish, I know I’m doing just fine.
+ - Become aware that there are no accidents in our intelligent universe. Realize that everything that shows up in your life has something to teach you. Appreciate everyone and everything in your life.
+ - If all you do is follow the herd, you’ll just be stepping in poop all day.
+ - St John of the Cross told us that if a man wishes to be sure of the road he treads on, he must close his eyes and walk in the dark. I interpret that as a direction for us to trust in the guidance we receive from our invisible self.
+ - People would pull the rug out from under me. So I learnt how to dance on a moving carpet.
+ - God brings millions of flowers to bloom without force.
+ - If you think peaceful thoughts, you’ll feel peaceful emotions, and that’s what you’ll bring to every life situation. If you’re attached to being right or absolutely need something in order to be at peace or successful, you’ll live a life of striving yet never arriving.
+ - One of the important principles I live by is the idea that you have to contemplate yourself as surrounded by the conditions you intend to produce.
+ - Every obstacle is a test.
+ - There’s a big difference between oneness and sameness. Oneness implies that we’re all connected and that we all come from the same source. Sameness implies that we all have to do things and exactly think the same way as everybody else does.
+ - The essence of greatness is the ability to choose personal fulfillment in circumstances where others choose madness.
+ - Relationships based on obligation lack dignity.
+ - Extend some kind of unexpected generosity to someone, preferably a stranger, every single day for two weeks. The more you practice being generous, the more you’ll impact others in an inspiring way.
+ - Enjoy everything that happens in your life, but never make your happiness or success dependent on an attachment to any person, place, or thing.
+ - The only boundaries we have are in form. There are no obstacles in thought.
+ - You get World Peace through Inner Peace. If you’ve got a world full of people who have Inner Peace, then you have a Peaceful World.
+ - Treat yourself and others with kindness when you eat, exercise, play, work, love, and everything else. When you think, feel, and act kindly, you hasten your ability to connect to the power of intention.
+ - We are not a body with a soul, but a soul with a body. When the body dies the soul returns to the source.
+ - My beliefs are that the truth is a truth until you organize it, and then it becomes a lie. I don’t think that Jesus was teaching Christianity, Jesus was teaching kindness, love, concern, and peace. What I tell people is don’t be Christian, be Christ-like. Don’t be Buddhist, be Buddha-like.
+ - You never need to defend yourself or your desires to anyone, as those inner feelings are Spirit speaking to you. Those thoughts are sacred, so don’t ever let anyone trample on them.
+ - You must attach yourself spiritually to what you have placed in your imagination as a future fact, and never allow anyone, anything, any circumstance, no matter how persuasive their case, to alter what you know to be your destiny.
+ - Destiny is not preordained. Destiny is ordained totally by you. Every single moment of your NOW existence is the result of your previous thought. The idea that everything is already laid out for you in advance is a hallucination. You can and do manifest your own destiny.
+ - An infinity of forest lies dormant within the dreams on one acorn.
+ - I send you Love and all Green Lights.
+ - No-limit people are so in charge that they can trust their instincts, be childlike, be creative, do anything that makes sense to them and make their lives into what they really believe they want for themselves.
+ - Conflict is a violation of harmony. If you participate in it, you’re part of the problem, not the solution.
+ - Forgiveness is the most powerful thing you can do for yourself. If you can’t learn to forgive, you can forget about achieving true success in your life.
+ - Practice radical humility when it comes to your own accomplishments, and give credit everywhere except to your ego.
+ - The more I give myself permission to live in the moment and enjoy it without feeling guilty or judgmental about any other time, the better I feel about the quality of my work.
+ - The components of anxiety, stress, fear, and anger do not exist independently of you in the world. They simply do not exist in the physical world, even though we talk about them as if they do.
+ - The people who receive the most approval in life are the ones who care the least about it – so technically, if you want the approval of others, you need to stop caring about it.
+ - Most people are searching for happiness. They’re looking for it. They’re trying to find it in someone or something outside of themselves. That’s a fundamental mistake. Happiness is something that you are, and it comes from the way you think.
+ - The opposite of courage is not so much fear as it is conformity.
+ - You can make your life into a grand ever-evolving work of art. The key is your thoughts, the wonderous invisible part of you that is your spiritual soul.
+ - Only the insecure strive for security.
+ - To successfully open the door to heightened awareness, we must open it inward.
+ - When you arrive where you thought you wanted to be, you’ll just begin a new journey so enjoy each step along the way.
+ - If we are to have magical bodies, we must have magical minds.
+ - Attitude is an inner concept. It is the most important thing you can develop in your life.
+ - You can’t discover light, by analyzing the dark.
+ - It makes no sense to worry about things you have no control over because there’s nothing you can do about them, and why worry about things you do control? The activity of worrying keeps you immobilized.
+ - Society demands conformity at the expense of individual liberty. Let us be for once a non conformist to be fully alive.
+ - We manifest from Spirit. When Spirit begins to rule in our lives, we can literally manifest or attract to us everything that we perceive to be missing. That’s really the essence of it.
+ - Critics hang around and wait for others to make mistakes. But the real doers of the world have not time for criticizing others. They are too busy doing, making mistakes, improving, making progress.
+ - Try viewing everyone who comes into your life as a teacher.
+ - Did you ever notice how difficult it is to argue with someone who is not obsessed with being right?
+ - Make peace with silence, and remind yourself that it is in this space that you’ll come to remember your spirit. When you’re able to transcend an aversion to silence, you’ll also transcend many other miseries. And it is in this silence that the remembrance of God will be activated.
+ - Wherever you are, at whatever age, you’re only a thought away from changing your life.
+ - Live today. Remove all blame from your vocabulary. Catch yourself when you find yourself using your past history as a reason for your failure to act today, and instead say, ‘I am free now to detach myself from what used to be.’
+ - I always say, don’t be a Christian, be Christ-like. Don’t be a Muslim, be Mohammed-like. Be Buddha-like. Emulate these great spiritual Masters and what they were teaching.
+ - Anonymously perform acts of kindness, expecting nothing in return, not even a thank-you. The universal all-creating Spirit responds to acts of kindness with the response: “How may I be kind to you?”
+ - I am patient and loving with my fearful thoughts. Be patient and loving with every fearful thought. Practice observing your fears as a witness, and you’ll see them dissolve.
+ - I will grow. I will become something new and grand, but no grander than I now am. Just as the sky will be different in a few hours, its present perfection and completeness is not deficient, so am I presently perfect and not deficient. I will be different tomorrow. I will grow and I am not deficient.
+ - If you blame others for something that happens in your life, then you must wait until they change in order to get better.
+ - Acting as if you were what you want to become and know you can become is the way to remove self-doubt and enter your real-magic kingdom.
+ - The more you extend kindness to yourself, the more it will become your automatic response to others.
+ - You are important enough to ask and you are blessed enough to receive back.
+ - View the events you consider obstacles as perfect opportunities to test your resolve and find your purpose.
+ - Opening to the power of intention, you begin knowing that conception, birth and death are all natural aspects of the energy field of creation.
+ - You have a very powerful mind that can make anything happen as long as you keep yourself centered.
+ - The words I AM are your sacred identification as God- your highest self. Take care how you use this terms because saying anything after I AM that’s incongruent with God is really taking the Lord’s name in vain!
+ - If others hurt you, let the injury go. This is your test. If you let it go, you will find serenity.
+ - In order to forgive, you must have blamed.
+ - Meditation gives you an opportunity to come to know your invisible self. It allows you to empty yourself of the endless hyperactivity of your mind, and to attain calmness. It teaches you to be peaceful, to remove stress, to receive answers where confusion previously reigned...
+ - An inner knowing, along with a burning desire, is the prerequisite for becoming a person capable of manifesting his or her heart’s desires.
+ - Focus on loving the life you have now in the body you’ve got!
+ - Every time I see a coin on the street, I stop, pick it up, put it into my pocket, and say out loud “Thank you, God, for this symbol of abundance that keeps flowing into my life” Never once have I asked, “Why only a penny, God? You know I need a lot more than that.”
+ - Expressing gratitude for the miracles in your world is one of the best ways to make each moment of your life a special one. Happy Thanksgiving to you and your loved ones!
+ - The problem is that we have allowed our egos, the part of us which believes that we are separate from God and separate from each other, to dominate our lives.
+ - Examine what you believe to be impossible, and then change your beliefs.
+ - There’s a difference between knowing God and knowing about God. Knowing about God is all of the stuff we’ve been told and all of the books we’ve read and all of our religious experiences and what others have told us and tried to convince us of. But knowing God is when we make conscious contact.
+ - If you are unwell, don’t ask to be healed, instead ask to be restored to that perfection from which you emanated.
+ - You’re able to love others, to give to others, and do for others by giving and doing for yourself first.
+ - Fear of Failure becomes Fear of Success for those who Never Try Anything New.
+ - As a holistic being you shatter the illusion of your separateness and reveal your connection to everything. This empowers you in a way that the ego-driven self could never contemplate.
+ - Know that success and inner peace are your birthright, that you are a child of God and as such that you’re entitled to a life filled with joy, love and happiness.
+ - What you feel is wrong or missing in your relationships is an indication that something is amiss within you.
+ - A positive mindset, not a doomsday mentality, supports being exceptional.
+ - We put labels on people and fight wars over them. If we truly want harmony, we have to get past the labels.
+ - Stop looking for your purpose. BE it!
+ - Now is all we have. Everything that has ever happened to you, and anything that is ever going to happen to you, is just a thought.
+ - Be at ease, not dis-ease.
+ - Trusting yourself is trusting the wisdom that created you.
+ - To sit in judgment of those things which you perceive to be wrong or imperfect is to be one more person who is part of judgment, evil or imperfection.
+ - If you’re always in a hurry, always trying to get ahead of the other guy, or someone else’s performance is what motivates you, then that person is in control of you.
+ - It is impossible for you to be angry and laugh at the same time. Anger and laughter are mutually exclusive and you have the power to choose either.
+ - If you choose to lead your life just like everyone else, then what exactly is it that you have to offer?
+ - Anything you really want, you can attain, if you really go after it.
+ - The willingness to listen and act on your inspiration is imperative if you’re going to live the life you desire.
+ - Send out judgment and low energy and that is what you’ll attract back. Remember, when you judge another, you do not define them, you define yourself as someone who needs to judge. The same applies to judgments directed at you.
+ - Empowerment is the inner joy of knowing that external force isn’t necessary to be at harmony with oneself.
+ - Listen. Don’t explain or justify.
+ - Vow to seek a Calm Inner Response to the Circumstances of your Life.
+ - Your children are spiritual beings who come through you, not for you.
+ - Every thought that you have impacts you. Shift from a thought that weakens to one that strengthens you.
+ - You are a holistic being with both nondualistic energy and the energy of the physical plane as a part of your being at your disposal.
+ - Surround yourself with people who are doers!
+ - Love creates new form, changes matter, and holds the cosmos together beyond time and space. It’s in every one of us. It’s what God is.
+ - A mind that’s open to everything means being peaceful, radiating love, practicing forgiveness, being generous, respecting all life, and most important, visualizing yourself as capable of doing anything that you can conceive of in your mind and heart.
+ - I think my mission is to support people in being steadfast in not having thoughts of harm – thoughts of judgment, worry, or hatred – directed toward themselves or others.
+ - When you’re in the Middle of an Argument, ask yourself: Do I want to be Right or be Happy?
+ - Get your passion on the paper. Detach from the outcome. Forget about whether it’s going to get published.
+ - Don’t “pole-vault over mouse truds” – by the time you’ve discussed the many options available to you, the problem itself could have been long behind you had you simply disposed of those rodent droppings with a simple tissue and dumped them into the garbage!
+ - By being peaceful, quiet, and receptive, you pattern yourself in the image of God, and you regain the power of your Source.
+ - Every little obstacle-every fall you have-is an opportunity.
+ - A woman asked me recently, “What are the blocks to my happiness?” I said, “The belief that you have blocks.”
+ - I’m convinced that some of our greatest and most influential teachers show up in our lives disguised as people we resent or even despise.
+ - Our lives are greatly enriched when we immerse ourselves in literature and spiritual writing, not because we are going to be tested but purely for the sake of enrichment.
+ - I have found that people who have a passion or a strong will for what they want to achieve, and who do not allow others to smear or sully their inner pictures of what they want to manifest, always seem to get what they desire in their lives.
+ - Our most important problems cannot be solved; they must be outgrown.
+ - All your behavior results from the thoughts that precede it.
+ - You get what you think about, whether you want it or not. Commit to thinking about what you want, rather than how impossible or difficult that dream may seem.
+ - If you want to be a voice for peace in the world, begin by making peace a permanent condition of your own life.
+ - There is no past. That’s another illusion. Everything that has ever happened to you, to me, to anyone in this world, happened in the present moment. That’s all there ever is. So your relationship to life isn’t your relationship to your past, it’s your relationship to the present moment.
+ - Everything that happens to us has a blessing built into it.
+ - When you acquire enough inner peace and feel really positive about yourself, it’s almost impossible for you to be controlled and manipulated by anybody else.
+ - I have found that the more I get my ego out of a picture and the more I think about how can I serve other people instead of always thinking about me, the more miracles show up.
+ - Not One Tiny Slice of that Guilt will Do Anything to Change a Single Thing in the Past.
+ - Whatever your plan, you never invest your own self-worth in its ultimate success or failure.
+ - The power of intention is the power to manifest, to create, to live a life of unlimited abundance, and to attract into your life the right people at the right moments.
+ - Live purely in the moment on a rampage of appreciation.
+ - Live forgiveness every day rather than just talking about it on Sunday.
+ - The child in you, like all children, loves to laugh, to be around people who can laugh at themselves and life. Children instinctively know that the more laughter we have in our lives, the better.
+ - Be content. Know that whatever comes along, you can handle it and grow from it.
+ - Everything you need you already have. You are complete right now, you are a whole, total person, not an apprentice person on the way to someplace else.
+ - The law of flotation was not discovered by contemplating the sinking of things. Rather, it was discovered by thinking about things that float naturally.
+ - Feeling unworthy is like putting a huge obstacle into the God force, into the life force which is everywhere.
+ - Everything that is fear cannot be love, and everything that is love cannot be fear.
+ - I believe we came from nowhere. We show up, and we are now here. It’s all the same. It just is a question of spacing.
+ - Try squeezing a handful of water, and see how quickly it disappears. But relax and let your hand flow in the same water, and you have the experience of the water as long as you like...
+ - One of the most responsible things you can do as an adult is to become more of a child.
+ - Each time you send love in response to hate, you diffuse the hate.
+ - Ego is simply an idea of who you are that you carry around with you.
+ - The use of mental imagery is one of the strongest and most effective strategies for making something happen for you.
+ - Christ wasn’t teaching people to hate Jews. He was a Jew himself. He wasn’t teaching people to hate anybody who didn’t believe as he did.
+ - Radiate an energy of serenity and peace so that you have an uplifting effect on those you come into contact with.
+ - Be at Peace with Everyone – No one is capable of making you upset without your consent, so if you begin practicing the intention to be authentic and peaceful with everyone, you connect to peace itself- and gain the power to change the energy of your relationships with family and friends.
+ - People who feel empowered by your presence become kindred spirits.
+ - During any moment in which you’re experiencing thoughts that make you feel sick or bad, do your best to change them to thoughts that support the idea of feeling good. Refuse to talk about disease, and work to activate thoughts that predict recovery and overall well-being.
+ - The only antidote to anger is to eliminate the internal sentence: “If only you were more like me.”
+ - Arrange photographs of nature scenes, animals and expressions of joy and love in your environment and let their energy radiate into your heart and provide you with their higher frequency.
+ - In the East, they contemplate the forest; in the West, they count the trees.
+ - If you are what you do, then when you don’t, you aren’t.
+ - Beware of the temptation to see yourself as unfairly treated.
+ - Amidst the rush of worldly comings and goings, I observe how all endings become beginnings.
+ - You practice forgiveness for two reasons: to let others know that you no longer wish to be in a state of hostility with them and to free yourself from the self-defeating energy of resentment. Send love in some form to those you feel have wronged you and notice how much better you feel.
+ - Loving Others Starts with Loving Myself.
+ - Do not abandon trust when your ego thinks things should be different than they are.
+ - Look into a mirror, make eye contact with yourself, and say “I love me” as many times as possible during the day.
+ - This is called synchronicity – a state in which you almost feel as if you are in a collaborative arrangement with fate.
+ - In any relationship in which two people become one, the end result is two half people.
+ - Failure is a judgment, an opinion. It stems from your fears, which can be eliminated by love-love for yourself, love for what you do, love for others, and love for your planet.
+ - Eternity is now. Right now, right here, you’re an infinite being. Once you get past the fear of death as an end, you merge with the infinite and feel the comfort and relief that this realization brings.
+ - Happiness is not something that you get in life, hapiness is something that you bring in life.
+ - When you’re feeling unwell, remember that the same power that actually made your body knows how to restore it to its original state of well-being. All you have to do is remove the obstacles erected by you and your toxic world, and allow this healing power to flow through you.
+ - Giving Love to Others is Directly Related to How Much Love you Have for Yourself!
+ - The soul is the birthless, deathless, changeless part of us – the part of us that looks out from behind our eyes and has no form.
+ - See the genius in everyone you encounter. Just as the mountain cannot crack a nut though it can carry a forest on its back, so too does every living creature have its own perfection built into it.
+ - Honor the physical temple that houses you by eating healthfully, exercising, listening to your body’s needs and treating it with dignity and love.
+ - I have a suit in my closet with the pocket cut out. It’s a reminder to me that I won’t be taking anything with me. The last suit I wear won’t need any pockets.
+ - The only thing that feeling bad accomplishes is to plummet you into anxiety, despair, depression, and stress. In such situations, ask yourself in that moment what THOUGHT you can have that will make you feel GOOD!
+ - Your reputation is none of your business.
+ - Hit the delete button every time fear appears.
+ - I appreciate all that I am and all that I have. Stop focusing on what you do not have, and shift your consciousness to an appreciation for all that you are and all that you do have.
+ - Everything that you want to create is already there. Your job is to connect yourself to it.
+ - Our thoughts are a field of energy cycles, a mind field, and just by our thoughts alone we impact not only ourselves but those around us as well.
+ - Stop giving energy to the things you don’t want.
+ - God is love and doesn’t ask for anything back in return. So it’s that process of letting go and just allowing, and just being in that pure state.
+ - You cannot solve a problem with the mind that created it. First you must change the mind.
+ - Problems in relationship occur because each person is concentrating on what is missing in the other person.
+ - All the great teachers have left a similar message: Go within, discover your invisible higher self and know God as the love that is within you.
+ - Resist Impulses to Label Yourself with Descriptions that Limit You in Any Way.
+ - You’ll seldom experience regret for anything that you’ve done. It is what you haven’t done that will torment you. The message, therefore, is clear. Do it! Develop an appreciation for the present moment. Seize every second of your life and savor it.
+ - First, imagine taking the potentially regret – producing path of inaction. Then imagine what the very best outcome would be were you to take this risk. By picturing both scenarios in advance, you can avoid the regret of what might have been.
+ - Be gentle and forgiving with yourself, abandon any and all shame, and refuse to engage in any self-repudiation.
+ - Prosperity in the form of wealth works exactly the same as everything else. You will see it coming into your life when you are unattached to needing it.
+ - Authentic empowerment is the knowing that you are on purpose, doing God’s work, peacefully and harmoniously.
+ - Generosity is a function of the heart, not the wallet.
+ - Albert Einstein once reported, “Great spirits have always encountered voilent opposition from mediocre minds.” If you want to achieve your own greatness, to climb your own mountains, you’ll have to use yourself as your first and last consultant.
+ - As you begin to heal the inner you, you alter your immune system.
+ - One of the reasons most people are not good at solving problems and manifesting or attracting into their life what they want is because their thoughts are always on what’s wrong and on what’s missing and on the problem.
+ - The mere presence of PASSION within you is all you need to fulfill your DREAMS.
+ - By banishing doubt and trusting your intuitive feelings, you clear a space for the power of intention to flow through.
+ - Every morning, in your first view of the day, you have the choice to say, ‘Good morning, God’ or ‘Good God, morning.’
+ - You cannot solve a problem by condemning it.
+ - When you’re connected to God, every moment is perfectly perfect.
+ - When you move into a spiritual approach to life you begin to see yourself as connected to everyone and everything, and competition is replaced by something called cooperation.
+ - Happiness is something that you are, and it comes from the way you think.
+ - I do not concern myself with being unique, and I do not concern myself with success. I feel I just do and say what I am supposed to. I do not know where it comes from. I go where I am told, and I just allow whatever it is to come out.
+ - By choosing to hang on to your corner of freedom in even the worst situations, you can process your world with the energy of appreciation and beauty, and create an opportunity to transcend your circumstances.
+ - When you’re at peace with your life and in a state of tranquility, you actually send out a vibration of energy that impacts all living creatures, including plants, animals and even babies.
+ - Before speaking, consult your inner-truth barometer, and resist the temptation to tell people only what they want to hear.
+ - You, a person with a vision, are like a pebble in a stream, moving ever outward to infinity, impacting on all who come into contact with the ripple.
+ - Have within you an imaginary candle flame that burns brightly regardless of what goes before you. Let this inner flame represent for you the idea that you’re capable of manifesting miracles in your life.
+ - When you connect to your source, you can create anything you’d like to have in your life.
+ - The more space you allow and encourage within a relationship, the more the relationship willflourish.
+ - People who want the most approval get the least and people who need approval the least get the most.
+ - In God’s eyes, no one on this planet is any better than you.
+ - By giving children lots of affection, you can help fill them with love and acceptance of themselves. Then that’s what they will have to give away.
+ - Well, your whole life is like a checkerboard and there’s a sense that you get, especially looking back on it, that you begin to realize and gain awareness that there’s something else moving all of these pieces around in your life, and that was really true for me right from the very beginning.
+ - By referring to previous struggles and using them as reasons for not getting on with your life today, you’re assigning responsibility to the past for why you can’t be successful or happy in the present.
+ - On your daily journeys, listen to those inner signals that help you make the right choices no matter what anyone thinks.
+ - A higher concept of yourself involves taking on new truths and shedding your old views of what you can achieve. This is the only way you can achieve your desires.
+ - Take some time to be silent and repeat the sound of God as an inner mantra. Meditation allows you to make conscious contact with your Source and achieve success in every area. If a problem arises, then go within, get very quiet about it and find the answers inside of you.
+ - There’s No Such Thing as a Bad Meditation. Any Time you Spend in Silence is Valuable.
+ - In interactions with others, instead of trying to be right, why don’t we try being kind?
+ - You can sit there forever, lamenting about how bad you’ve been, feeling guilty until you die, and not one tiny slice of that guilt will do anything to change a single thing in the past. Forgive yourself, then MOVE ON!
+ - Appreciate everything and everyone. Look upon every experience you’ve ever had, and everyone who’s ever played any role in your life, as having been sent to you for your benefit. In this universe, which was created by a divine, organizing intelligence, there are simply no accidents.
+ - You must be willing to take whatever pieces of life come your way and arrange them so that they work with and for you rather than against you. The key is to be willing. The willingness to arrange rather than complain or make excuses will pay off.
+ - Blame is a neat little device that you can use whenever you don’t want to take responsibility for something in your life. Use it and you will avoid all risks and impede your own growth.
+ - The meaning of life is to get meaning for life.
+ - Discarding doubt is a decision to reconnect to your original self.
+ - The purpose of prayer is not to influence God to grant you special favors, but rather to remind yourself that you are always connected to God.
+ - Whatever I fight weakens me. Whatever I cooperate with strengthens me.
+ - Don’t allow the approval and attention of others to destroy you.
+ - Forgiveness is the Most Powerful thing you can Do for Yourself on the Spiritual Path.
+ - But when you get to a higher level of consciousness, when you get into a spiritual approach to life, you are not trying to get someplace else.
+ - For the spiritual being, intuition is far more than a hunch. It is viewed as guidance or as God talking, and this inner insight is never taken lightly or ignored.
+ - The purpose of life is to be happy. I don’t think it’s any more complicated than that. It’s also important not to interfere with anybody else’s right to do the same. We just need to practice that. It’s the Golden Rule.
+ - Once you believe in yourself and see your soul as divine and precious, you’ll automatically be converted to a being who can create miracles.
+ - If you’re not aligned with God, it’s hard to recognize yourself as being of God. The way that you get aligned with God is by being like God, being like Source, being like energy. That means understanding how God works.
+ - When we are in fear, there is no room for love, and when we are in love, there is no room for fear.
+ - In the context of eternity, time doesn’t matter.
+ - You can’t go around being what everyone wants you to be, living your life through other people’s rules, and expect to be happy and have inner peace.
+ - When I go to a music concert, I don’t say, “My purpose is to get to the end and enjoy the finale.” If that were the purpose, everybody would write finales and nothing more. The purpose of the concert is to enjoy each note as you go along.
+ - Your physical self is inspired by a divine force that beats its heart, digests its food and grows its fingernails, and this same force is receptive to endlessly abundant health.
+ - Life is all about learning and one of the most memorable ways of learning something is by messing up.
+ - Can you see the beauty in a cockroach?
+ - Everything you’re currently against blocks you from abundance.
+ - When you’re at peace, there’s no counterfeit freedom.
+ - You need to keep reminding yourself that you are a Divine piece of God. Feeling as if you’re unworthy of God’s abundance is the same as denying your spiritual essence.
+ - You’re not what you have and you’re not what you do; you’re aninfinite, divine being disguised as a successful person who has accumulated a certain amount of stuff. The stuff is not you. For that reason, you must avoid being attached to it in any way.
+ - You can victimize yourself by wallowing around in your own past.
+ - As I look back at the entire tapestry of my life, I can see from the perspective of the present moment that every aspect of my life was necessary and perfect. Each step eventually led to a higher place, even though these steps often felt like obstacles or painful experiences.
+ - We believe we can’t attract to ourselves what we want because we think we are separate from God, and whether we are able to manifest anything is dependent upon whether God wants us to do that or not.
+ - You are a creature of Divine Love connected at all times to Source. Divine Love is when you see God in everyone and everything you encounter.
+ - In reality, it’s much easier not to smoke or eat chocolate than to do so. It’s your mind that convinces you otherwise.
+ - Irving Wallace wrote a bestselling novel, The Man, in the 1960s about a black man becoming president of the United States. We thought that such a possibility was thousands of years in the future. Some people may still have some difficulty with the idea, but that’s a major cultural meme shift.
+ - Behavior is a much better barometer of what you are than words.
+ - There’s nothing that feels better than to do something nice for somebody. I mean nothing feels better.
+ - A transcendent being can be any miracle.
+ - Virtually every spiritual tradition teaches that your higher self is the presence of God within you.
+ - Anytime you have a thought, for example, that excludes someone, if you have a religion that excludes someone, then you’ve really left God behind, and you’ve really left your source energy behind.
+ - I am the reflection of my source which is magnificent in all ways.
+ - Emotions are choices.
+ - When I get on the dance floor, my purpose in being on the dance floor is not to end up at another spot when the music stops. The purpose of the dance is to enjoy every step along the way.
+ - Money always has come to me, because I always have seen myself as endlessly abundant.
+ - Creativity means believing you have greatness.
+ - Know that you are part of a joyful Universe. Allow your romantic, ecstatic, blissful emotions to appear more frequently in your daily life. When you feel joy, experience it and express it! As the New Testament says, ‘Joy is the fruit of the Spirit.’
+ - We’ve lost the sense of our own divinity. We think that we’re separate from God, but we can’t be. We must be like what we came from, and we came from an infinite, loving, kind, beautiful Source. We’ve forgotten that.
+ - If you know with a complete absence of doubt that what you are doing is consistent with your own purpose and that you are involved in accomplishing a great affair, then you are at peace with yourself and in harmony with your own heroic mission.
+ - Our Futures are Formed by the Thoughts we Hold Most Often.
+ - The difference between highly functioning people and people who live with ordinary levels of consciousness is that the self-actualizers never put their intention on what they don’t want. They know that what you think about is what expands.
+ - You have a one of a kind gift to offer this world, and you are unique in the entire history of creation.
+ - People Really Do Respect Those who are Willing to Speak their Truth.
+ - You can’t just have a thought. You have to follow the thought through. But everything starts with the thought.
+ - Healthy thinking is a habit, just like neurotic thinking is a habit.
+ - A true barometer of intelligence is an effective, happy life lived each day and each present moment of the day.
+ - While the world of reality has its limits, the world of your imagination is without boundaries.
+ - In this universe, which was created by a divine organizing intelligence, there are simply no accidents.
+ - The concept of boredom entails an inability to use up present moments in a personally fulfilling way.
+ - Refuse to ever use the term ‘failure’ again about yourself or anyone else. Remind yourself that wehn things didn’t go as planned you didn’t fail, you only produced a result.
+ - I really believe that God builds all the bridges, writes all the books, and delivers all the speeches. When I say God, again, I mean that source we all come from, we all are pieces of, and we all are connected to.
+ - You are always a valuable, worthwhile human being – not because anybody says so, not because you’re successful, not because you make a lot of money – but because you decide to believe it and for no other reason.
+ - The more we give away, the more is given to us.
+ - Motivation means we have an idea and we are going to carry through on that idea. We work hard at it, and we are disciplined.
+ - Nor can you trust in God because everything that you attempt to trust is coming from someone who is not trustworthy to begin with. So everything that you think, feel or act upon is based upon coming from someone who is untrustworthy. Therefore, you’ll always be lost.
+ - When you know and feel the miracle that you are, you become certain that nothing is impossible for you.
+ - I start every day by wanting more for others than I do for myself. I think that is how God works, and that is how I think we have to work.
+ - Each person must decide for himself what he wants each day. As a leader, I will expose you to the options and the likely consequences of those options. I’ll even share my opinion if asked, but I’ll never confuse it with the opinion, which simply doesn’t exist.
+ - Give thanks for all that shows up in your life including the stuff that you perceive to be negative, the things that you wish wouldn’t have happened. Don’t take anything forgranted.
+ - Be aware of your infinite connection to your source. Know that you’re more than an encapsulated collection of bones, blood and organs in a skin and hair covered body.
+ - Take a few minutes of every day to fantasize about how you would wander, travel, or explore if you could.
+
+500 quotes

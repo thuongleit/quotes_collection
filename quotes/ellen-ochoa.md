@@ -1,0 +1,22 @@
+ - Don’t be afraid to reach for the stars.
+ - Education is what allows you to stand out.
+ - What everyone in the astronaut corps shares in common is not gender or ethnic background, but motivation, perseverance, and desire – the desire to participate in a voyage of discovery.
+ - A hallmark of the Latino community is to help one another, if students are interested in a way to give back and help their communities, becoming a teacher is probably one of the very best ways of doing that.
+ - I feel very privileged. But what I really hope for young people is that they find a career they’re passionate about, something that’s challenging and worthwhile.
+ - I tell students that the opportunities I had were a result of having a good educational background. Education is what allows you to stand out.
+ - Usually, girls weren’t encouraged to go to college and major in math and science. My high school calculus teacher, Ms. Paz Jensen, made math appealing and motivated me to continue studying it in college.
+ - Astronauts are very professional and when they’re preparing for launch, they prepare for it as the most serious endeavor of our lives.
+ - That’s what we want to do here at Johnson Space Center. I think what we have always brought to NASA and brought to the country is trying to push the boundaries, trying to go to the next level.
+ - Well, with so many space shuttle missions that we’ve done, I think it’s just sort of natural that each one hasn’t necessarily gotten the attention that the early ones did.
+ - We are constantly emphasizing to people that they need to address anything that affects flight safety or mission success – many pathways to do that. We need to understand better what may be preventing people from using those pathways.
+ - I think of it as a good opportunity to let, in particular, school kids know that this job and other interesting jobs in science and engineering are open to anyone who works hard in school and gets a good education and studies math and science. And that it’s not just for a select group of people.
+ - There was a lot of light and a lot of rumbling and vibration, especially the first minute or minute-and-a-half. And then after about two minutes, when the solid rocket boosters separated, the ride got a lot smoother.
+ - It’s fun to work the robotic arm in part because it’s really a team effort.
+ - We are involved in technology development for, you know, missions that we hope to plan that would take us to an asteroid and eventually to Mars.
+ - I was always drawn to teachers who made class interesting. In high school, I enjoyed my American and English literature classes because my teachers, Jeanne Dorsey and Dani Barton, created an environment where interaction was important.
+ - I’ll tell you, being involved in human space flight, it is an emotional endeavor. I think it brings in the highest highs and the lowest lows.
+ - I don’t know of any issues associated with alcohol before flight.
+ - I don’t recall any interest in science in particular. It came later in college.
+ - I realized how important it was to know something about aviation, and it was something I was interested in, so I followed my brother’s footsteps and obtained my pilot’s license.
+
+20 quotes

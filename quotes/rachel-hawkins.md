@@ -1,0 +1,55 @@
+ - I think I can hold my own in smartassery.
+ - No. Don’t distract me with your sexy talk.
+ - Why had my life suddenly become a Nancy Drew mystery from hell?
+ - You hate him for what he did, but you miss him.
+ - Trust me, after the Boy Issues I’ve had, I’m becoming a nun.
+ - I’m not creepy. At least not on purpose.
+ - Please don’t joke and bleed at the same time.
+ - Let’s just say you may regret that second piece of cake.? Oh my God. Regret cake? Whatever was about to happen must be truly evil.
+ - I wish we weren’t like this. You know, demon, demon-hunter. I wish I’d met you in a normal high school, and taken you on normal dates, and like, carried your books or something.
+ - Archer Cross, resident bad boy and total heartthrob. Warlock. Every girl here is at least, like, half in love with him. Crushing on Archer Cross might as well be a class.
+ - I felt electrified from the top of my head to my toes, and somewhere in the back of my mind I heard Alice saying that love had a power all its own. She was right: this was magic.
+ - Don’t even think about it, Mercer.
+ - I rubbed my hand over my chest, just above my heart. Mrs. Casnoff watched with a look of concern. “Did he hurt you?” “No,” I told her. “He didn’t.” Nowhere you could see, at least.
+ - Irish girls, red hair,? I replied, remembering a picture of them from Mrs. Casnoff’s ‘People Who Want to Kill Us All’ lecture at Hex Hall last year.
+ - I bet she woke up with her hair looking like something out of a Pantene commercial while little bluebirds circled around her head, and raccoons brought her breakfast or something.
+ - Wow, Cross. I think you missed your calling. Screw demon hunting: you should clearly be writing Hallmark cards.
+ - They stared each other down, and while the dorky eleven-year-old in my soul kind of hoped that two hot boys might fight over me, the rational, seventeen-year-old knew that Archer need to get out of here, fast.
+ - Okay, fine. But just so you know, following me into hell means you’re all definitely the sidekicks.
+ - When someone tells you somebody’s been murdered, laughing is probably not the best response. You know, for future reference. But laughing is exactly what I did.
+ - Jenna and Vix laughed at that and, after making me promise to hang out with them tomorrow, practically waltzed out the door. I felt like there should have been rainbows and rose petals in their wake or something. Ugh. That was catty.
+ - Somehow, my whole existence had become a really complicated word problem. I’d always sucked at those.
+ - But before he could either comfort me or commit further acts of violence upon my person, I spun away from him and made my drama queen moment complete by running away.
+ - Jackass, jackass on the wall, where’s the info on Hex Hall?
+ - I would actually write books totally full of nothing BUT kissing scenes, but apparently people like books to have, like, “plots” or whatever.
+ - The “Holy-crap-that’s-a-lot-of-pink” zone would have been a more accurate description.
+ - Most girls got flowers. I got a dirt pit used for demon raising. Nice.
+ - I think I might have seen pride in Dad’s eyes. Or maybe it was just a gleam of Why is my offspring so insane?
+ - I’m not thrilled. And I totally reserve the right to angst over all this later. But honestly, Mom? Right now, I’m so happy to see you that I wouldn’t care if you’re secretly a ninja sent from the future to destroy kittens and rainbows.
+ - You know, Take Your Demon To Work Day.
+ - I decided not to wear makeup, figuring the more innocent I looked, the harder it might be for him to ground me, or shoot hellfire from his eyes, or whatever it was that angry demon dads did.
+ - The great thing about best friends is that they know you really well. And the terrible thing about best friends is that they know YOU really well.
+ - Where the heck was I while you were playing Grand Theft Cellar?
+ - Oh, God, if that’s where this woman had gotten her Sophie Mercer gossip, I was surprised she’d greeted me with a handshake instead of an exorcism.
+ - I was panting slightly, thanks to trying to keep up with him. Stupid short legs.
+ - So how was cellar duty tonight? Cellarific.
+ - He raised an eyebrow, which made me totally jealous. I’ve never been able to do that. I always just end up raising both of them and looking surprised or scared instead of sardonic.
+ - I wondered if there were ever times when Dad didn’t sound like he escaped from a Jane Austen novel.
+ - You mean I’m the first guy your parents have rescued from an enchanted island via use of a magic mirror? I feel special.
+ - Well, that explained it, then. Secret demon hunter and thief. Man, did I know how to pick ’em.
+ - Yeah, it’s beautiful. For a prison.
+ - But this room looked like it had been decorated by the unholy lovechild of Barbie and Strawberry Shortcake.
+ - Ugh. A club for Prodigium? That conjured up images of way more velvet and dry ice and angst than I was up for.
+ - Archer! Let us fetch a spot of tea, old boy!
+ - I’d been harboring this secret fantasy that he was only pretending to like her so that he could publicly dump her in the most embarrassing way possible, preferably on national television.
+ - He ran his thumb over my lower lip, sending a flurry of sparks through me. “Good-bye, Sophie.” -Cal.
+ - People are so rarely villains in their own minds.
+ - Then, like I wasn’t thrown enough, Cal leaned down and picked up a potted African violet on the low table next to the sofa and brought it over to me. For a second, I wondered if this was his socially awkward way of trying to give me flowers.
+ - It’s so obnoxious when you’re right about stuff.
+ - I was just about to get up when Dad rushed into the kitchen. He was in pajamas, which was totally bizarre. Dad never came down to breakfast until he was completely dressed. Of course, his pajamas even had a little pocket and handkerchief, so maybe he felt dressed.
+ - You know, ’help me, Sophie Wan Kenobi, you’re my only hope.
+ - I should say upfront that I have never been in a cellar in my life. In fact, I can see no reason why anyone should ever go into a cellar unless there is wine involved.
+ - If I’d had any doubts about how Archer felt about me, they were eradicated when I saw the look on his face. I’d never had my spleen ripped out, but if I had, I figured I’d make the same face Archer wore now.
+ - At 7:45, I was in the bathroom putting on some mascara when Jenna slipped in wearing an outfit that I can only describe as Hello Kitty Goes Goth.
+
+53 quotes

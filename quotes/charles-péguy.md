@@ -1,0 +1,32 @@
+ - It is the essence of genius to make use of the simplest ideas.
+ - The faith that I love the best, says God, is hope.
+ - Life holds only one tragedy, ultimately: not to have been a saint.
+ - Tyranny is always better organized than freedom.
+ - Suffering passes; having suffered never passes.
+ - The honest man must be a perpetual renegade, the life of an honest man a perpetual infidelity. For the man who wishes to remain faithful to truth must make himself perpetually unfaithful to all the continual, successive, indefatigable renascent errors.
+ - We shall never know how many acts of cowardice have been motivated by the fear of appearing not sufficiently progressive.
+ - We must always tell what we see. Above all, and this is more difficult, we must always see what we see.
+ - It is better to have a war for justice than peace in injustice.
+ - Everything begins in mysticism and ends in politics.
+ - He who does not bellow the truth when he knows the truth makes himself the accomplice of liars and forgers.
+ - It is innocence that is full and experience that is empty. It is innocence that wins and experience that loses.
+ - Any father whose son raises his hand against him is guilty of having produced a son who raised his hand against him.
+ - Freedom is a system based on courage.
+ - Homer is new this morning, and perhaps nothing is as old as today’s newspaper.
+ - One has not the right to betray even a traitor. Traitors must be fought, got betrayed.
+ - When a man dies, he does not just die of the disease he has: he dies of his whole life.
+ - A word is not the same with one writer as it is with another. One tears it from his guts. The other pulls it out of his overcoat pocket.
+ - Love is rarer than genius itself. And friendship is rarer than love.
+ - What is most contrary to salvation is not sin but habit.
+ - When you love someone you love him as he is.
+ - The sinner is at the heart of Christianity. No one is as competent as the sinner in matters of Christianity. No one, except a saint.
+ - A great philosophy is not one that passes final judgments and establishes ultimate truth. It is one that causes uneasiness and starts commotion.
+ - The classical artist can be recognized by his sincerity, the romantic by his laborious insincerity.
+ - A great philosophy is not a philosophy without reproach; it is philosophy without fear.
+ - There will be things that I do that no one will be left to understand.
+ - I prefer a saint with faults to a sinner with none.
+ - The life of an honest man must be a perpetual infidelity.
+ - It has never been given to a man to attain at once his happiness and his salvation.
+ - The references you do not verify are the good ones.
+
+30 quotes

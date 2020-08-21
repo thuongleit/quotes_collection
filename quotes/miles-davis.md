@@ -1,0 +1,96 @@
+ - Do not fear mistakes. There are none.
+ - Knowledge is freedom and ignorance is slavery.
+ - Music is an addiction.
+ - If you hit a wrong note, it’s the next note that you play that determines if it’s good or bad.
+ - In music, silence is more important than sound.
+ - First you imitate, then you innovate.
+ - Jazz is like blues with a shot of heroin!
+ - Always look ahead, but never look back.
+ - There are no wrong notes in jazz: only notes in the wrong places.
+ - Good music is good no matter what kind of music it is.
+ - A painting is music you can see and music is a painting you can hear.
+ - My future starts when I wake up every morning.
+ - We don’t play to be seen. I’m addicted to music, not audiences.
+ - It’s not the notes you play, it’s the notes you don’t play.
+ - Sometimes you have to play a long time to be able to play like yourself.
+ - It’s not the note you play that’s the wrong note – it’s the note you play afterwards that makes it right or wrong.
+ - Don’t worry about playing a lot of notes. Just find one pretty one.
+ - There are no wrong notes.
+ - I don’t like to hear someone put down dixieland. Those people who say there’s no music but bop are just stupid; it shows how much they don’t know.
+ - Music is the framework around the silence.
+ - It’s not about standing still and becoming safe. If anybody wants to keep creating they have to be about change.
+ - I know what I’ve done for music, but don’t call me a legend. Just call me Miles Davis.
+ - If you’re not nervous then you’re not paying attention.
+ - In improvisation, there are no mistakes.
+ - John Lee Hooker is the funkiest man alive.
+ - If you have to ask, you’ll never know.
+ - When the band plays fast, you play slow; when the band plays slow, you play fast.
+ - It took me twenty years study and practice to work up to what I wanted to play in this performance. How can she expect to listen five minutes and understand it?
+ - My ego only needs a good rhythm section.
+ - Jazz is the big brother of Revolution. Revolution follows it around.
+ - Don’t play what’s there, play what’s not there.
+ - For me, music and life are all about style.
+ - Play what you know and then play above that.
+ - Look, man, all I am is a trumpet player.
+ - If somebody told me I only had an hour to live, I’d spend it choking a white man. I’d do it nice and slow.
+ - All my inspiration comes from Ahmad Jamal.
+ - You know why I quit playing ballads? Cause I love playing ballads.
+ - If you don’t know what to play, play nothing.
+ - You can tell whether a person plays well or not by the way he carries the instrument, whether it means something to him or not.
+ - Food makes my mind sluggish.
+ - If you understood everything I said, you’d be me.
+ - I’ve always told the musicians in my band to play what they know and then play above that. Because then anything can happen, and that’s where great art and music happens.
+ - The only reason to write a new song is because you’re tired of the old ones.
+ - What’s swinging in words? If a guy makes you pat your foot and if you feel it down your back, you don’t have to ask anybody if that’s good music or not. You can always feel it.
+ - If you got up on the bandstand at Minton’s and couldn’t play, you were not only going to be embarrassed by the people ignoring you or booing you, you might get your ass kicked.
+ - I don’t care if a dude is purple with green breath as long as he can swing.
+ - Joao Gilberto on guitar could read a newspaper and sound good.
+ - I never thought Jazz was meant to be a museum piece like other dead things once considered artistic.
+ - If you sacrifice your art because of some woman, or some man, or for some color, or for some wealth, you can’t be trusted.
+ - I still got my Ferrari.
+ - So What or Kind of Blue were done in that era, the right hour, the right day. It’s over; it’s on the record.
+ - To keep creating you have to be about change.
+ - You can’t play anything on a horn that Louis Armstrong hasn’t played.
+ - A legend is an old man with a cane known for what he used to do. I’m still doing it.
+ - Music is a funny thing when you really come to think about it.
+ - Americans don’t like any form of art, man. All they like to do is make money. They don’t like me, Sammy Davis, or anybody else. They don’t like nothing. They just like Sammy because he can make ’em a lot of money.
+ - You have to be born with it. You can’t even buy it. If you could buy it, they’d have it at the next Newport Festival.
+ - You have to know 400 notes that you can play, then pick the right four.
+ - Some day I’m gonna call me up on the phone, so when I answer, I can tell myself to shut up.
+ - People will go for anything they don’t understand if it’s got enough hype...
+ - Coltrane, you cant play everything at once!
+ - If you’re trying to be hip, be hip.
+ - The thing to judge in any jazz artist is, does the man project and does he have ideas.
+ - I began to realize that some of the things Ornette Coleman had said about things being played three or fours ways, independently of each other, were true because Bach had also composed that way.
+ - White folks always think that you have to have a label on everything – you know what I mean?
+ - I can tell whether a person can play just by the way he stands.
+ - At least one day out of the year all musicans should just put their instruments down, and give thanks to Duke Ellington.
+ - I always listen to what I can leave out.
+ - You want to know how I started playing trumpet? My father bought me one, and I studied the trumpet. And everybody I heard that I liked, I picked up things from.
+ - As long as I’ve been playing, they never say I done anything. They always say that some white guy did it.
+ - You should never be comfortable, man. Being comfortable fouled up a lot of musicians.
+ - My father’s rich, my momma’s good looking. Right? And I can play the Blues. I’ve never suffered and don’t intend to suffer.
+ - Trane was the perfect saxophonist for Monk’s music because of the space that Monk always used. Trane could fill up all that space with all them chords and sounds he was playing then.
+ - Jazz is an Uncle Tom word. They should stop using that word for selling. I told George Wein the other day that he should stop using it.
+ - Bebop didn’t have the humanity of Duke Ellington. It didn’t have that recognizable thing. Bird and Diz were great, fantastic, challenging – but that weren’t sweet.
+ - We’re not going to play the blues anymore. Let the white folks play the blues. They got ’em, so they can keep ’em.
+ - Tom Jones is funny to me, man. I mean, he really tries to ape Ray Charles and Sammy Davis, you know. He’s nice-looking; he looks good doing it. I mean, if I was him, I’d do the same thing. If I was only thinking about making money.
+ - In high school I was best in music class on the trumpet, but the prizes went to the boys with blue eyes. I made up my mind to outdo anybody white on my horn.
+ - It’s always been a gift with me, hearing music the way I do. I don’t know where it comes from, it’s just there and I don’t question it.
+ - I’m not messing around with nobody’s woman. If I want a woman I go get her – you know what I mean?
+ - I used to enjoy all the white bands when I was a kid listening to the radio. But the record companies, they take music and label it – like, they say “rock”. Because the white singers can’t sound like James Brown, they call him “soul”. They’ve been doing that for years. That’s the prejudice crap.
+ - If you love them in the morning with their eyes full of crust; if you love them at night with their hair full of rollers, chances are, you’re in love.
+ - A legend is an old man with a cane...
+ - I was minding my own business when something says to me, “you ought to blow trumpet.” I have just been trying ever since.
+ - Keith, how does it feel to be a genius?
+ - I’ll play it first and figure out what it’s called later.
+ - I really liked Wynton when I first met him. He’s still a nice young man, only confused.
+ - He sounded to me like he’s supposed to be the savior of jazz. Sometimes people speak as though someone asked them a question. Well, no one asked him a question.
+ - In Europe, they like everything you do. The mistakes and everything. That’s a little bit too much.
+ - I ain’t no entertainer, and ain’t trying to be one. I am one thing, a musician.
+ - Monk taught me more about music composition than anyone else on 52nd Street.
+ - You can’t eat a winner’s plaque.
+ - I’m out there doing the best that I can, My lip is cut and I’m still playing.
+ - When I heard Coleman Hawkins, I learned to play ballads.
+
+94 quotes

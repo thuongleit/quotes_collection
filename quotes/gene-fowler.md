@@ -1,0 +1,24 @@
+ - Writing is easy. You only need to stare at a blank piece of paper until drops of blood form on your forehead.
+ - Men are not against you; they are merely for themselves.
+ - Every man should be allowed to love two cities, his own and San Francisco.
+ - A book is never finished; it’s abandoned.
+ - An editor should have a pimp for a brother so he’d have someone to look up to.
+ - Love and memory last and will so endure till the game is called because of darkness.
+ - He has a profound respect for old age. Especially when it’s bottled.
+ - What is success? It is a toy balloon among children armed with pins.
+ - News is history shot on the wing. The huntsmen from the Fourth Estate seek to bag only the peacock or the eagle of the swifting day.
+ - Don’t be dismayed by the opinions of editors, or critics. They are only the traffic cops of the arts.
+ - Why may not the Bible and especially the New Testament be read and taught as a divine revelation in school? Where else can the purest principles of morality be learned so clearly or so perfectly as from the New Testament?
+ - News is history shot on the wing.
+ - Perhaps no mightier conflict of mind occurs ever again in a lifetime than that first decision to unseat one’s own tooth.
+ - It is no disgrace to rest a bit.
+ - Sometimes I think my writing sounds like I walked out of the room and left the typewriter running.
+ - A man who makes a one-dollar profit on his expense account is dishonest. A man who loses five cents on one is a damned fool.
+ - Never thank anybody for anything, except a drink of water in the desert -and then make it brief.
+ - If they haven’t heard it before it’s original.
+ - Everyone needs a warm personal enemy or two to keep him free from rust in the movable parts of his mind.
+ - I will be brief. Not nearly so brief as Salvador Dali, who gave the world’s shortest speech. He said I will be so brief I have already finished, and he sat down.
+ - Psychoanalysts seem to be long on information and short on application.
+ - The best way to become a successful writer is to read good writing, remember it, and then forget where you remember it from.
+
+22 quotes

@@ -1,0 +1,60 @@
+ - Dance with the one who brung ya.
+ - We live one day at a time and scratch where it itches.
+ - There is no such thing as defeat except when it comes from within. As long as a person doesn’t admit he is defeated, he is not defeated-he’s just a little behind and isn’t through fighting.
+ - The coach is the team, and the team is the coach. You reflect each other.
+ - Potential just means you ain’t done it yet.
+ - The real make of a man is how he treats people who can do nothing for him.
+ - Three things can happen when you throw the ball, and two of them are bad.
+ - Once you cross the 50 you feel like an unsaddled horse.
+ - You’ve got to think lucky. If you fall into a mudhole, check your back pocket – you might have caught a fish.
+ - He’s as quick as a hiccup.
+ - The majority of people pull for the underdog. Heck, even your friends don’t like you to be too successful. We’ve lost enough over the years for me to maintain my friendships.
+ - We don’t want any candy stripes on our uniforms. These are work clothes.
+ - You’ve got to be in a position for luck to happen. Luck doesn’t go around looking for a stumblebum.
+ - I know that the odds are against a marriage lasting 60 years.
+ - I try not to make the same mistakes today that I made yesterday.
+ - Football doesn’t build character. It eliminates the weak ones.
+ - Don’t matter what they throw at us. Only angry people win football games.
+ - On game day, I’m as nervous as a pig in a packing plant.
+ - You never lose a game if the opponent doesn’t score.
+ - I don’t count on the boy who waits till October, when it’s cool and fun, then decides he wants to play.
+ - There are always going to be people who run faster, jump higher, dive deeper, and come up drier.
+ - They cut us up like boarding house pie. And that’s real small pieces.
+ - A boy shows how much he wants to play in the spring, when it’s tough, and during two a days, when it’s hot and tough.
+ - I knew that when I resigned from the University of Texas that I would never coach again.
+ - I’m not bored; I’m not a guy who has nothing to do.
+ - I’ve enjoyed my retirement.
+ - My wife, Edith, and I both have good health – and she’s been very tolerant.
+ - Winning coaches must treat mistakes like copperheads in the bedclothes – avoid them with all the energy you can muster.
+ - I’m still healthy as can be.
+ - But I do have time to pencil in golf, and we’ve got four excellent courses.
+ - It has really filled a big space, especially since I have been so-called retired – although I haven’t noticed my schedule slacking at all.
+ - I move around and play different golf courses. I just enjoy it.
+ - The Texas-OU game is a big revenue bear. And because it’s played at a neutral site, you don’t have as many student body going as you would if it was home-and-home. These are full-price tickets.
+ - It’s more fun when you shoot well and when you have a good score, but that’s not a prerequisite to me for having a good time.
+ - As far as I’m concerned, everything’s ham and jam.
+ - I didn’t want to stay until I had used up all the enjoyment because that’s too long to stay anywhere.
+ - I enjoy traveling and playing some of the well-known courses sometimes, but basically, I have a good time at Barton Creek.
+ - He looks like he needs worming.
+ - I never have planned a whole lot of future. It’s one day at a time.
+ - I really don’t have a favorite course. I usually ask where there are the least players.
+ - I don’t have the proudest moment in football.
+ - I was in a profession that received a lot of media.
+ - I do not let a bad score ruin my enjoyment for golf.
+ - For one thing, I like to walk when I play golf. Now I don’t walk the whole way, but I try not to be the driver when in a cart.
+ - You know, a football coach is nothing more than a teacher. You teach them the same subject, and you have a group of new guys every year.
+ - I was still enjoying coaching, but there was a repetitious manner about it.
+ - I had hoped God would be neutral.
+ - When I was a freshman at Oklahoma in 1946, the game was sold out – and it’s been sold out ever since.
+ - We’re as average as everyday’s wash.
+ - Coaching at Texas and playing at the University of Oklahoma, I had the opportunity to see a lot of guys in Texas – Texas lettermen – who I played against.
+ - I have found that the players who have played in that game really do have respect for their adversaries.
+ - For me, it is just the total experience – from the time I first started as an assistant coach until I wound up at the University of Texas for 20 years.
+ - If worms carried pistols, birds wouldn’t eat ’em.
+ - The only thing that would change would be the year, the names. It just got to be a repetitious life.
+ - I try not to play two days in succession. I usually try to space it so I have a day in between.
+ - I learned this about coaching: You don’t have to explain victory and you can’t explain defeat.
+ - I quit when I was 52, and everybody was telling me that I was too young and I’d be bored – all of those things.
+ - The only place you can win a football game is on the field, the only place you can lose it is in your hearts.
+
+58 quotes

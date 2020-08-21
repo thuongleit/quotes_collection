@@ -1,0 +1,29 @@
+ - NO ONE is immune to the trials and tribulations of life.
+ - Life- ride it until the wheels fall off.
+ - I don’t live to eat, I eat to live.
+ - Enjoy your popcorn and enjoy the show. It’s just a movie, so have fun!
+ - We grew to know the meaning of love. That is what allowed me and my family to stay close together.
+ - I try to always step up to the plate, be professional, be good at what I’m doing and deliver on the character. In Hollywood, what more can you ask for. You want a consummate professional.
+ - I don’t really judge. To each his own. You like what you like. If you want someone who’s big-boned and you like that, ain’t nothing wrong with having a little extra meat on their. If you like them thin-boned, then that’s okay too.
+ - I’m most proud of the blessings that God has bestowed upon me, in my life. He’s given me the vision to truly see that you can fall down, but you can still get back up. Hopefully I’ll learn from my mistakes and have the opportunity to strengthen and improve the next thing I do.
+ - Women love to impress and be their best.
+ - You can be cool and at the same time respect your woman, who will hopefully become your wife, who will hopefully become the mother of your kids. America needs to get back to family values.
+ - I don’t like forcing comedy and people just trying to do things just to find a funny beat all the time.
+ - I don’t really judge. To each his own. You like what you like.
+ - For me, this was all or nothing. I left no room for anything else. That goal was just for my own push, my own self-esteem. The fear of not being a success in my life made me push even harder.
+ - When I’m playing Big Momma, it’s so much work that all I want to do, when I’m finished, is go back home and just relax and study my lines and get ready for the next day.
+ - Boxing kept me out of the streets, by giving me something to do. And it gave me a father figure in the coach that was there for me. I just reiterated what my mother was trying to teach me about focusing and getting my life together.
+ - Fatherhood means a great deal to me. I love it. To me, there aint nothing better, because your kids keep it real with you. When you think things are bad, you look at them and they show you how things could be all right, and it’s all worth it.
+ - You make due with the time you have here. Hopefully when you pass on, somebody can look back and say, ‘Wow, they made a difference in some kind of way.’
+ - I just try to get along with people and show the love that I would like to be shown to me.
+ - As long as there’s Big Momma, we’re going to bring you comedy.
+ - I don’t want to sound facetious, but humour is the key to the soul. You know what I mean?
+ - You might see some of the movies that I’m in where there are shades of drama or whatever, but for the most part, I don’t get offered serious roles.
+ - It’s always fun to be able to have a voice, because it helps me to stay in tune with the project and the people that I am working with. Ther’s nothing worse than being on a project and not being able to have a voice. I don’t like that.
+ - If I give you two children films then come back and give you an adult film. I just love mixing it up and not being pegged into one specific thing.
+ - I wanted to trust in my partners and the directors and producers and do the best I can to deliver what I could deliver.
+ - If somebody pisses me off and I understand it ain’t personal then I’ll go to another place and I’ll meditate.
+ - My audience is a diehard audience. They are dedicated. My audience always follows me and sticks with me. They’re the reason I’m still here – in the films and in stand-ups.
+ - Everybody has a Big Momma: the mother or the grandmother who tells it like it is, keeps it real with them, isn’t afraid to tell you the truth about yourself.
+
+27 quotes

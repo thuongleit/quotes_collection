@@ -1,0 +1,54 @@
+ - What is lovely never dies, but passes into other loveliness, Star-dust, or sea-foam, flower or winged air.
+ - To keep the heart unwrinkled, to be hopeful, kindly, cheerful, reverent that is to triumph over old age.
+ - Great orators who are not also great writers become very indistinct shadows to the generations following them. The spell vanishes with the voice.
+ - The ability to have our own way, and at the same time convince others they are having their own way, is a rare thing among men. Among women it is as common as eyebrows.
+ - With the tears a Land hath shed. Their graves should ever be green.
+ - O Liberty, white Goddess! is it well to leave the gates unguarded? On thy breast fold Sorrow’s children, soothe the hurts of Fate, lift the down-trodden, but with hand of steel stay those who to thy sacred portals come to waste the gifts of Freedom.
+ - So precious life is! Even to the old, the hours are as a miser’s coins!
+ - How fugitive and brief is mortal life between the budding and the falling leaf.
+ - It is only your habitual late riser who takes in the full flavor of Nature at those rare intervals when he gets up to go afishing. He brings virginal emotions and unsatiated eyes to the sparkling freshness of earth and stream and sky.
+ - The ocean moans over dead men’s bones.
+ - They fail, and they alone, who have not striven.
+ - Night is a stealthy, evil Raven, Wrapt to the eyes in his black wings.
+ - Shakespeare is forever coming into our affairs – putting in his oar, so to speak – with some pat word or sentence.
+ - The fate of the worm refutes the pretended ethical teaching of the proverb, which assumes to illustrate the advantage of early rising and does so by showing how extremely dangerous it is.
+ - The possession of unlimited power will make a despot of almost any man. There is a possible Nero in the gentlest human creature that walks.
+ - But I, in the chilling twilight stand and wait At the portcullis, at thy castle gate, Longing to see the charmed door of dreams Turn on its noiseless hinges, delicate sleep!
+ - Gracious to all, to none subservient, Without offense he spoke the word he meant.
+ - No bird has ever uttered note That was not in some first bird’s throat; Since Eden’s freshness and man’s fall No rose has been original.
+ - Come watch with me the shaft of fire that glows in yonder West; the fair, frail palaces, The fading Alps and archipelagoes and great cloud continents of sunset-seas.
+ - Civilization is the lamb’s skin in which barbarism masquerades.
+ - I like not lady-slippers, Nor yet the sweet-pea blossoms, Nor yet the flaky roses, Red or white as snow; I like the chaliced lilies, The heavy Eastern lilies, The gorgeous tiger-lilies, That in our garden grow.
+ - After a debauch of thunder-shower, the weather takes the pledge and signs it with a rainbow.
+ - The ring of a false coin is not more recognizable than that of a rhyme setting forth a false sorrow.
+ - True art selects and paraphrases, but seldom gives a verbatim translation.
+ - Great thoughts in crude, unshapely verse set forth lose half their preciousness, and ever must, unless the diamond with its own rich dust be cut and polished, it seems little worth.
+ - Dialect tempered with slang is an admirable medium of communication between persons who have nothing to say and persons who would not care for anything properly said.
+ - O harp of life, so speedily unstrung!
+ - Everyone has a bookplate these days, and the collectors are after it. The fool and his bookplate are soon parted. To distribute one’s ex libris is inanely to destroy the only significance it has, that of indicating the past or present ownership of the volume in which it is placed.
+ - That was indeed to live – at one bold swoop to wrest from darkling death the best that death to life can give.
+ - Up from the dark the moon begins to creep; and now a pallid, haggard face lifts she above the water-line: thus from the deep a drowned body rises solemnly.
+ - When friends are at your hearthside met, Sweet courtesy has done its most If you have made each guest forget That he himself is not the host.
+ - The man who suspects his own tediousness is yet to be born.
+ - It were better to be a soldier’s widow than a coward’s wife.
+ - What is slang in one age sometimes goes into the vocabulary of the purist in the next.
+ - Imagine all human beings swept off the face of the earth, excepting one man. Imagine this man in some vast city, New York or London. Imagine him on the third or fourth day of his solitude sitting in a house and hearing a ring at the door-bell!
+ - At the beginning of the twentieth century barbarism can throw off its gentle disguise, and burn a man at the stake as complacently as in the Middle Ages.
+ - We weep when we are born, Not when we die!
+ - What probing deep Has ever solved the mystery of sleep?
+ - The possession of gold has ruined fewer men than the lack of it. What noble enterprises have been checked and what fine souls have been blighted in the gloom of poverty the world will never know.
+ - The fanatic has the courage of his conviction and the intolerance of his courage. He is opposed to the death penalty for murder, but he would willingly have anyone electrocuted who disagreed with him on the subject.
+ - The laurels of an orator who is not a master of literary art wither quickly.
+ - All the best sands of my life are somehow getting into the wrong end of the hourglass. If I could only reverse it! Were it in my power to do sowould I?
+ - So I sit there kicked my heels, thinking about New Orleans, and watching a morbid blue-bottle fly attempt to commit suicide by butting his head against the windowpane.
+ - The young girl in my story is to be as sensitive to praise as a prism is to light. Whenever anybody praises her she breaks into colors.
+ - The possession of gold has ruined fewer men than the lack of it.
+ - Between the reputation of the author living and the reputation of the same author dead there is ever a wide discrepancy.
+ - Books that have become classics – books that have had their day and now get more praise than perusal – always remind me of retired colonels and majors and captains who, having reached the age limit, find themselves retired on half pay.
+ - The thing one reads and likes, and then forgets, is of no account. The thing that stays, and haunts one, and refuses to be forgotten, that is the sincere thing.
+ - It is the Lord’s Day, and I do believe that cheerful hearts and faces are not unpleasant in His sight.
+ - This one sits shivering in Fortune’s smile, taking his joy with bated, doubtful breath. This other, gnawed by hunger, all the while laughs in the teeth of Death.
+ - Turn on its noiseless hinges, delicate sleep!
+ - My father invested his money so securely in the banking business that he was never able to get any of it out again.
+
+52 quotes

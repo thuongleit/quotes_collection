@@ -1,0 +1,23 @@
+ - To love what you do and feel that it matters – how could anything be more fun?
+ - Truth and news are not the same thing.
+ - A mistake is simply another way of doing things.
+ - News is what someone wants suppressed. Everything else is advertising.
+ - We live in a dirty and dangerous world. There are some things the general public does not need to know, and shouldn’t. I believe democracy flourishes when the government can take legitimate steps to keep its secrets and when the press can decide whether to print what it knows.
+ - No one can avoid aging, but aging productively is something else.
+ - Some questions don’t have answers, which is a terribly difficult lesson to learn.
+ - The longer I live, the more I observe that carrying around anger is the most debilitating to the person who bears it.
+ - What I essentially did was to put one foot in front of the other, shut my eyes and step off the ledge. The surprise was that I landed on my feet.
+ - Democracy depends on information circulating freely in society.
+ - When I have a terrible need of – shall I say the word -religion. Then I go out and paint the stars. -Vincent Van Gogh A mistake is simply another way of doing things.
+ - I always thought if you worked hard enough and tried hard enough, things would work out. I was wrong.
+ - The Montessori Method- learning by doing-once again became my stock in trade...
+ - If one is rich and one’s a woman, one can be quite misunderstood.
+ - The power is to set the agenda. What we print and what we don’t print matter a lot.
+ - The only way I can describe the extent of my anxiety is to say that I felt as if I were pregnant with a rock.
+ - So few grown women like their lives.
+ - Whatever power I exert is collegial.
+ - To me, working is a form of sustenance, like food or water, and nearly as essential.
+ - If we had failed to pursue the facts as far as they led, we would have denied the public any knowledge of an unprecedented scheme of political surveillance and sabotage.
+ - In Washington, the public and the private intertwine in such a way that they can’t be easily separated. This is the city where the personal and the political are most closely linked.
+
+21 quotes

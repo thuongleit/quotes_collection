@@ -1,0 +1,195 @@
+ - The way you do anything is the way you do everything.
+ - Don’t plant your bad days. They grow into weeks. The weeks grow into months. Before you know it, you got yourself a bad year. Take it from me – choke those little bad days. Choke ’em down to nothing.
+ - I like beautiful melodies telling me terrible things.
+ - I started out with nothing and I still got most of it left.
+ - The world is a hellish place, and bad writing is destroying the quality of our suffering.
+ - We are buried beneath the weight of information, which is being confused with knowledge; quantity is being confused with abundance and wealth with happiness. We are monkeys with money and guns.
+ - There’s always free cheddar in the mousetrap, baby.
+ - Don’t you know there ain’t no devil, it’s just god when he’s drunk.
+ - You’re my North Star when I’m lost and feeling blue.
+ - If you get far enough away you’ll be on your way back home.
+ - I think I have an adrenaline addiction, no question about that.
+ - All that you’ve loved is all you own.
+ - Champagne for my real friends and real pain for my sham friends.
+ - Come down off the cross, we could use the wood.
+ - The piano has been drinking, not me.
+ - It’s hard to win when you always lose.
+ - We are all just monkeys with money and guns.
+ - Most people don’t care if you’re telling them the truth or if you’re telling them a lie, as long as they’re entertained by it.
+ - Well, it’s either kiss me or kill me, that’s how I see it.
+ - I’ve never met anyone who made it with a chick because they owned a Tom Waits album. I’ve got all three, and it’s never helped me.
+ - A gentleman is someone who can play the accordion, but doesn’t.
+ - I’m just trying to make a buck like everyone else.
+ - You’re innocent when you dream.
+ - The big print giveth and the small print taketh away.
+ - If there’s one thing you can say about mankind, there’s nothing kind about man.
+ - The devil knows the Bible like the back of his hand.
+ - You can learn a lot about a woman by getting smashed with her.
+ - The dog won’t bite if you beat Him with a bone.
+ - The ocean doesn’t want me today, But I’ll come back tomorrow to play. The riptide is waging And the life guard’s away But the ocean doesn’t want me today.
+ - I’ve lost my equilibrium, my car keys, and my pride.
+ - You learn as much from your kids as they learn from you.
+ - There’s no prayer like desire.
+ - God’s away, God’s away, God’s away on business. Business!
+ - You got to tell me the brave captain Why are the wicked so strong? How do the angels get to sleep When the devil leaves the porch light on?
+ - A mental midget with the IQ of a fence post.
+ - I’m so horny the crack of dawn better watch out.
+ - Sing me a rainbow. Steal me a dream.
+ - I worry about a lot of things, but I don’t worry about achievements. I worry primarily about whether there are nightclubs in Heaven.
+ - Children make up the best songs, anyway. Better than grown-ups. Kids are always working on songs and throwing them away, like little origami things or paper airplanes. They don’t care if they lose it; they’ll just make another one.
+ - Bill Hicks – blowtorch, excavator, truthsayer, and brain specialist. He will correct your vision. Others will drive on the road he built.
+ - She’s got the whole dark forest living inside of her.
+ - I’ve always believed that the way you affect your audience is more important than how many of them are there.
+ - If you walk with Jesus, he’s gonna save your soul. You gotta keep the devil way down in the hole. He’s got the fire and the fury at his command.
+ - Their memory’s like a train: you can see it getting smaller as it pulls away And the things you can’t remember Tell the things you can’t forget that History puts a saint in every dream.
+ - I’d rather have a free bottle in front of me than a prefrontal lobotomy.
+ - It’s hard to play with a bagpipe player. It’s like an exotic bird. I love the sound, it’s like strangling a goose.
+ - Most songs that aren’t jump-rope songs, or lullabies, are cautionary tales or goodbye songs and road songs.
+ - Oh I don’t mind going to weddings, just as long as it’s not my own...
+ - When I was younger, I wanted to be older. Now I am older, I am not quite so sure.
+ - There’s a beauty of show business. It’s the only business you can have a career in when you’re dead.
+ - I put food on the table and roof overhead. But I’d trade it all tomorrow for the highway instead.
+ - I don’t like hearing Beatles songs in commercials. It almost renders them useless. I think, ‘Oh God, another one bites the dust.’
+ - On my gravestone, I want it to say, “I told you I was sick.”
+ - I like my music with the rinds and the seeds and pulp left in.
+ - Songs are really just very interesting things to be doing with the air.
+ - For a songwriter, you don’t really go to songwriting school; you learn by listening to tunes. And you try to understand them and take them apart and see what they’re made of, and wonder if you can make one, too.
+ - The Universe is making music all the time.
+ - I’ve been riding on the crest of a slump lately.
+ - I’m reliable sources, I’ll tell ya anything you want me to know.
+ - The blues and gospel stuff seemed to go together.
+ - The fact is most of the things that people know about me are made up. My own life is backstage. So what you “know” about me is only what I allowed you to know about me.
+ - I walked 500 miles just to see a halo, when I opened my eyes I was blind as can be.
+ - I sold a quart of blood and bought a half a pint of scotch.
+ - I admit that I ain’t no angel, I admit that I ain’t no saint – I’m selfish and I’m cruel and I’m blind. If I exorcise my devils, well my angels may leave too. When they leave they’re so hard to find...
+ - I always had a great appreciation for jazz, but I’m a very pedestrian musician. I get by. I like to think that my main instrument is vocabulary.
+ - It’s very hard to stop doing things you’re used to doing. You almost have to dismantle yourself and scatter it all around and then put a blindfold on and put it back together so that you avoid old habits.
+ - I was born in the back seat of a Yellow Cab in a hospital loading zone and with the meter still running. I emerged needing a shave and shouted ‘Time Square, and step on it!’
+ - Now its raining its pouring the old man is snoring now I lay me down to sleep I hear the sirens in the street all my dreams are made of chrome I have no way to get back home I’d rather die before I wake like Marilyn Monroe and throw my dreams out in the street and the rain make ’em grow.
+ - It’s cold out there, colder than a ticket taker’s smile at the Ivar Theatre on a Saturday night.
+ - The moon was sharp enough to draw blood from a stone.
+ - I can’t listen to so much music at the same time. I think you really have to have a diet. You’re just processing too much, there’s no place to put it. If you go a long time without hearing music, then you hear music that nobody else hears.
+ - Never trust a man in a blue trench coat, never drive a car when you’re dead.
+ - He said, I’m better off without her, until I showed him my tattoo.
+ - It was a hubba, hubba, ding dang, baby you are just everythang.
+ - You just write and you don’t try to make sense of it. You just put it down the way you got it.
+ - Time is just memory Mixed in with Desire.
+ - My wife called me a mule. She once said, “I didn’t marry a man; I married a mule!” I kept thinking about it. It was in the back of my head. I think it makes a good title for an album.
+ - It’s a battered old suitcase and a hotel someplace and a wound that will never heal.
+ - I did my time in the jail of your arms.
+ - I know a girl, she been married so many times, she got rice marks all over her face.
+ - All the donuts have names that sound like prostitutes.
+ - They say that I have no hits and that I’m difficult to work with. And they say that like it’s a bad thing.
+ - You know when you throw a party, you think people will show up and no one will like each other. It’s like that with music – parts of your musical psyche have never met other parts. You wonder if you should get them together.
+ - Sometimes words are just music themselves. Like ‘Chicago’ is a very musical sounding name.
+ - Got a head full of lightning, a hat full of rain.
+ - Disneyland is Vegas for children.
+ - Did the devil make the world while God was sleeping?
+ - Don’t plant your days they turn into weeds.
+ - There’s nothing that makes me laugh more than being in the situation where you’re not supposed to laugh. Funerals. People crying. Breaking down. Telling you their life. I’m the worst. I’m the worst at that.
+ - Are you still jumping out of windows in expensive clothes?
+ - Folks who work here are professors. Don’t replace all the knowers with guessors keep’em open they’re the ears of the town.
+ - Presley’s what I go by, why don’t you change the station.
+ - The beginning of it starts at the end.
+ - Writing songs is like capturing birds without killing them. Sometimes you end up with nothing but a mouthful of feathers.
+ - There’s truths there that spiral out of what appears to be just a word game. That’s what I find mystifying about the meanings of things: they kind of unscrew themselves from the practical words.
+ - There’s only one reason why you write new songs: You get sick of the old songs. It’s not that I didn’t do anything during the time when I wrote no songs. I was creative, but in another way. I had ideas for songs and collected the ideas.
+ - I’ve seen it all through the yellow windows of the evening train...
+ - The trick is to have a career and have a family. It’s like having two dogs that hate each other and you have to take them for a walk every night.
+ - When you say you’re doing an opera, it’s like when you’re a seven-year-old and say, ‘I’m off to Washington, Dad.’ You kind of go, ‘Sure. Sure you are, son.’
+ - As a kid, I did want to be an old-timer, since they were the ones with the big stories and the cool clothes. I wanted to go there. Now, I guess I want to bring that with me and go back in time.
+ - I always liked the idea that America is a big facade. We are all insects crawling across on the shiny hood of a Cadillac. We’re all looking at the wrapping. But we won’t tear the wrapping to see what lies beneath.
+ - Not the kind of wheel you fall asleep at.
+ - She pulls a razor from her boot and a thousand victims fall around her feet.
+ - I don’t know if any genuine, meaningful change could ever result from a song. It’s kind of like throwing peanuts at a gorilla.
+ - I’ll take a rusty nail and scratch your initials on my arm.
+ - You’ve gotta have somebody to trust, that knows a lot.
+ - I do like books on anatomy. I have to say I’m an amateur physician, I guess.
+ - You can drive out nature with a pitch fork But it always comes roaring back again.
+ - But then I’m one of those guys that is still a bit afraid of the telephone, its implications for conversation. I still wonder if the jukebox might be the death of live music.
+ - When the weather’s rough and it’s whiskey in the rain it’s best to wrap your savior up in cellophane.
+ - The average person spends two weeks over their lifetime waiting for the traffic light to change.
+ - My friends think I’m ugly, I gotta masculine face.
+ - Cross my wooden leg, swear on my glass eye.
+ - I’m usually more concerned with how things sound than how they look on the page.
+ - People make songs so that somebody else will hear them and want to do them. I guess it’s an indication that the songs aren’t so ultra-personal that they can’t possibly be interpreted by anyone else.
+ - I’m not fighting for justice. I am not fighting for freedom. I am fighting for my life and another day in the world here.
+ - You choke my days, I’ll choke yours.
+ - I think all songs should have weather in them. Names of towns and streets, and they should have a couple of sailors. I think those are just song prerequisites.
+ - Oh, I got a beautiful 1959 Cadillac Coupe DeVille four-door. No one will ride in it with me.
+ - I may be drunk but at least I’m not insane.
+ - Arithmetic arithmetock Turn the hands back on the clock How does the ocean rock the boat? How did the razor find my throat? The only strings that hold me here Are tangled up around the pier.
+ - I used to imagine that making it in music – really making it in music – is if you’re an old man going by a schoolyard and you hear children singing your songs, playing jump-rope, or on the swings. That’s the ultimate. You’re in the culture.
+ - I hate Disneyland. It primes our kids for Las Vegas.
+ - Planes and Trains and Boats and Busses Characteristically Evolve a common attitude of blue Unless you have a suitcase and a ticket and a passport And the cargo that they’re carrying is you.
+ - My reality needs imagination like a bulb needs a socket. My imagination needs reality like a blind man needs a cane.
+ - Photos are profound because they have such short lives. They are more like fingerprints, dead leaves, rain puddles, or the corpses of flies.
+ - I always thought songs are movies for the ears and films are like songs for the eyes.
+ - I was always laughing in church.
+ - I don’t really like listening to the radio so much.
+ - What you want is for music to love you back. That’s why you pay your dues. You want to feel like you belong and are part of this symbiosis, metamorphosis, whatever you want to call it.
+ - I knelt at the altar of Ray Charles for years. I worked at a restaurant, and that’s all there was on the jukebox.
+ - It’s new, it’s improved, it’s old fashioned.
+ - When it’s raining you can’t find enough things to catch it in. When it’s not you can stand out in the middle of the street in a dress and a funny hat and nothing’s gonna make it rain. I go through periods – or spells – when I’m more receptive.
+ - I guess I’ve always lived upside down when I want things I can’t have.
+ - I don’t go to church on Sunday, don’t get on my knees to pray, or memorize the books of the Bible, I got my own special way.
+ - I’m trying to get music ideas that come and keep them alive. It’s like carrying water in your hands. I want to keep it all, and sometimes by the time you get to the studio you have nothing.
+ - Most of the people I admire, they usually smell funny and don’t get out much. It’s true. Most of them are either dead or not feeling well.
+ - If you are recording, you are recording. I don’t believe there is such a thing as a demo or a temporary vocal.
+ - Sometimes when you’re making songs you just make sounds, and the sounds slowly mutate and evolve into actual words that have meaning.
+ - It’s terrible for the culture of music. Like anything that is purely economic, it ignores the most important component.
+ - They called it the Terminal Bar but they had no idea that like twenty years later the place’d be filling up with terminal cases.
+ - You hope people are going to be listening to you after you’re gone. And they like you better after you’re gone.
+ - I like vocal word stuff. But I don’t always write with an instrument, I usually write a capella. It’s more like drawing in the air with your fingers. It’s closest to the choreography of a bee. You’re freer.
+ - I have an audio stigmatism whereby I hear things wrong – I have audio illusions.
+ - Any place is good for eavesdropping, if you know how to eavesdrop.
+ - Any image I have, it’s just what I do, but it comes off as being very pretentious. When you’re a bit in the public astigmatism, anything you do seems like you did it so somebody would see you do it, like showing up at the right parties.
+ - We are buried beneath the weight of information...
+ - Misery is the River of the World.
+ - Well you say that it’s gospel, But I know that it’s only church.
+ - We have a deficit of wonder right now.
+ - Jimmy Stewart said he stopped making movies because he didn’t like the way he looked on screen anymore. I’m more the guy who says I look like hell but I’m going to see where it gets me.
+ - George Burns was a Vaudeville performer I particularly loved.
+ - I really like your playing.
+ - With families and music, you’re usually looking for something that can make you unique.
+ - Most changes in music, most exciting things that happen in music, occur through a miscommunication between people “I thought you said this.” Poetry comes out of that too.
+ - I’m not one of those people the tabloids chase around.
+ - Most of us have the residue of thousands of songs in our ears, that if you end up songwriting, I think you’re mostly smoking the residue of all that material you absorbed over time.
+ - Some men are searching for the Holy Grail, but there ain’t nothing sweeter than riding the rail. Pregnant women and Vietnam vets, beggin on the freeway, bout as hard as it gets.
+ - My first big gig was an opening show for Frank Zappa, and I think that was difficult.
+ - Got 27 children I never see.
+ - Well, they’ll bark you down like carneys, sell you Christmas cards in June.
+ - I like Thelonious Monk, he’s so gnarled, he’s like a piece of machinery that’s pulled up the bolts on the floor and gone off on its own.
+ - If I exorcise my devils, all my angels may go, too.
+ - Jesus Christ, this godamn rain, will someone put me on a train.
+ - I like writing melody without an instrument. It’s just so – it’s more like the choreography of a bee; you just go.
+ - George Bush is a fan of mine, he came to see me in the Seventies. His coke dealer brought him.
+ - I’m always looking for sounds that are pleasing at the time. The sound of a helicopter is really annoying until you’re drowning, and it’s there to rescue you. Then it sounds like music.
+ - I don’t know what the ‘big time’ is.
+ - You want soldiers who, when they get to a river after a long march, don’t start rooting for their canteen in their pack, but just dive right in.
+ - I hope I’m becoming more eccentric. More room in the brain.
+ - The Music was like Electric Sugar.
+ - If you’re a writer, you know that the stories don’t come to you – you have to go looking for them. The old men in the lobby: that’s where the stories were.
+ - Most of the things you absorb you will ultimately secrete.
+ - There’s a place on my arm where I’ve written her name next to mine.
+ - I didn’t really want to be part of a clique or a niche. But I also was looking for my own voice, as a writer, y’know? And a world I could call my own.
+ - Words are music, really.
+ - You almost have to create situations in order to write about them, so I live in a constant state of self-imposed poverty. I don’t want to live any other way.
+ - I took a hundred dollars from a blindman’s hand.
+ - Popular music is like a big party, and it’s a thrill sneaking in rather than being invited. Every once in a while, a guy with his shirt on inside out, wearing lipstick and a pillbox hat gets a chance to speak.
+ - It’s rather mystifying when you think about writing songs – where they come from, and how they’re born.
+ - You know what I really love? The CD players in a car. How when you put the CD right up by the slot, it actually takes it out of your hand, like it’s hungry. It pulls it in, and you feel like it wants more silver discs.
+ - People get frightened that success is going to take them out of life. They’re no longer going to be on the corner of Bedlam and Squalor; life will only be something you can get through the mail.
+ - Don’t look back, because someone might be gaining on you.
+ - You know, we just buy music now. We don’t make it any more. And that goes for just about everything. I think it’s so important that people develop and subscribe to and have confidence in their own ability to make music, however rough it is.
+ - I think some bands thrive on the idea of changing instruments. When they’re off their real instrument, the ability to go very far from the original idea is reduced.
+ - Oh, I’m not a percussionist, I just like to hit things.
+ - I do some acting. And there’s a difference between “I do some acting” and “I’m an actor.”
+ - Music has generally involved a lot of awkward contraptions, a certain amount of heavy lifting.
+ - I think this whole division between the genres has more to do with marketing than anything else. It’s terrible for the culture of music.
+ - I finally discovered that my life is more important than show business.
+ - It’s the same with men as with horses and dogs, nothing wants to die.
+ - New York forces you to be in endless surreal situations.
+ - Sometimes the magnetism of a song is impossible to ignore, and it demands that it be sung in a certain way.
+
+193 quotes

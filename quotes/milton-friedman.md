@@ -1,0 +1,252 @@
+ - There’s no such thing as a free lunch.
+ - Underlying most arguments against the free market is a lack of belief in freedom itself.
+ - A society that puts equality before freedom will get neither. A society that puts freedom before equality will get a high degree of both.
+ - Nothing is so permanent as a temporary government program.
+ - One of the great mistakes is to judge policies and programs by their intentions rather than their results.
+ - You cannot be sure that you are right unless you understand the arguments against your views better than your opponents do.
+ - The greatest advances of civilization, whether in architecture or painting, in science and literature, in industry or agriculture, have never come from centralized government.
+ - You cannot simultaneously have free immigration and a welfare state.
+ - I am favor of cutting taxes under any circumstances and for any excuse, for any reason, whenever it’s possible.
+ - A free man will ask neither what his country can do for him nor what he can do for his country.
+ - Statistics do not speak for themselves.
+ - The way you solve things is by making it politically profitable for the wrong people to do the right thing.
+ - Adam Smith’s key insight was that both parties to an exchange can benefit and that, so long as cooperation is strictly voluntary, no exchange can take place unless both parties do benefit.
+ - The Internet is the most effective instrument we have for globalization.
+ - And where are you going to get these angels who are going to run society for us?
+ - If you pay people not to work and tax them when they do, don’t be surprised if you get unemployment.
+ - If you put the federal government in charge of the Sahara Desert, in 5 years there’d be a shortage of sand.
+ - The government doesn’t have any money. The only power it has is to take from some and give to others.
+ - The most important single central fact about a free market is that no exchange takes place unless both parties benefit.
+ - Most economic fallacies derive from the tendency to assume that there is a fixed pie, that one party can gain only at the expense of another.
+ - The government solution to a problem is usually as bad as the problem.
+ - A society based on the freedom to choose is better than a society based on the principles of socialism, communism and coercion.
+ - The real tragedy of minimum wage laws is that they are supported by well-meaning groups who want to reduce poverty. But the people who are hurt most by higher minimums are the most poverty stricken.
+ - Never try to walk across a river just because it has an average depth of four feet.
+ - He moves fastest who moves alone.
+ - Economics has become increasingly an arcane branch of mathematics rather than dealing with real economic problems.
+ - Inflation is always and everywhere a monetary phenomenon.
+ - Few trends could so thoroughly undermine the very foundations of our free society as the acceptance by corporate officials of a social responsibility other than to make as much money for their stockholders as possible.
+ - Corruption is government intrusion into market efficiencies in the form of regulations.
+ - I am a limited-government libertarian.
+ - I’m in favor of legalizing drugs. According to my values system, if people want to kill themselves, they have every right to do so. Most of the harm that comes from drugs is because they are illegal.
+ - The word ‘free’ is used three times in the Declaration of Independence and once in the First Amendment to the Constitution, along with ‘freedom.’ The word ‘fair’ is not used in either of our founding documents.
+ - You can only make money if you buy a product, whatever it is – maybe a currency, maybe wheat and maybe something else – at a relatively low price and sell it at a higher price than you buy it at. There’s no other way to make money.
+ - Only a crisis – actual or perceived – produces real change. When that crisis occurs, the actions that are taken depend on the ideas that are lying around.
+ - Whenever we depart from voluntary cooperation and try to do good by using force, the bad moral value of force triumphs over good intentions.
+ - Hell hath no fury like a bureaucrat scorned.
+ - I can spend somebody else’s money on somebody else. And if I spend somebody else’s money on somebody else, I’m not concerned about how much it is, and I’m not concerned about what I get. And that’s government. And that’s close to 40 percent of our national income.
+ - The combination of economic and political power in the same hands is a sure recipe for tyranny.
+ - The facts never speak for themselves. They have to be interpreted in terms of some understanding of where they come from and what the relation between them is.
+ - How can we keep the government we create from becoming a Frankenstein that will destroy the very freedom we establish it to protect? Freedom is a rare and delicate plan.
+ - See, if you look at the drug war from a purely economic point of view, the role of the government is to protect the drug cartel. That’s literally true.
+ - The stock market and economy are two different things.
+ - The world runs on individuals pursuing their self interests. The great achievements of civilization have not come from government bureaus. Einstein didn’t construct his theory under order from a, from a bureaucrat. Henry Ford didn’t revolutionize the automobile industry that way.
+ - When you start paying people to be poor, you wind up with an awful lot of poor people.
+ - Inflation is a monetary phenomenon. It is made by or stopped by the central bank.
+ - When something goes wrong, the natural tendency is to say, “By God, we need to pass a law and do something.”
+ - To really understand something you’ve got to reduce it to its principles.
+ - I would say that in this world, the greatest source of inequality has been special privileges granted by government.
+ - Universities exist to transmit knowledge and understanding of ideas and values to students not to provide entertainment for spectators or employment for athletes.
+ - Drugs are a tragedy for addicts. But criminalizing their use converts that tragedy into a disaster for society, for users and non-users alike. Our experience with the prohibition of drugs is a replay of our experience with the prohibition of alcoholic beverages.
+ - If you do not force political freedom, economic freedom will be stymied sooner or later.
+ - There is no good way of measuring poverty.
+ - The benefits of a tariff are visible. Union workers can see they are “protected”. The harm which a tariff does is invisible. It’s spread widely. There are people that don’t have jobs because of tariffs but they don’t know it.
+ - Higher taxes never reduce the deficit. Governments spend whatever they take in and then whatever they can get away with.
+ - The Social Responsibility of Business is to Increase its Profits.
+ - A society that aims for equality before liberty will end up with neither equality nor liberty. And a society that aims first for liberty will not end up with equality, but it will end up with a closer approach to equality than any other kind of system that has ever been developed.
+ - Not all schooling is education nor all education, schooling.
+ - The Great Depression, like most other periods of severe unemployment, was produced by government mismanagement rather than by any inherent instability of the private economy.
+ - Making prohibition work is like making water run uphill; it’s against nature.
+ - Theories can be based on any assumptions, however bizarre.
+ - What kind of society isn’t structured on greed?
+ - Governments never learn. Only people learn.
+ - I think it’s a scandal what has been happening in the school system so far as lower income classes. The dropout rates, the illiteracy rate, you know literacy in the United States was a lot higher in 1890 than it is now.
+ - Money is a very powerful thing, which you hardly notice when it goes right, but which can create havoc when it goes wrong.
+ - Concentrated power is not rendered harmless by the good intentions of those who create it.
+ - There is one and only one responsibility of business: to use its resources and engage in activities designed to increase its profits so long as it stays within the rules of the game.
+ - I say thank God for government waste. If government is doing bad things, it’s only the waste that prevents the harm from being greater.
+ - There’s no point in comparing an actual, operating system with an ideal system that doesn’t exist.
+ - People who intend only to serve public interest are led by invisible hand to private interest which was no part of their intention.
+ - So long as large sums of money are involved – and they are bound to be if drugs are illegal – it is literally impossible to stop the traffic, or even to make a serious reduction in its scope.
+ - The history of mankind is the history of money losing value.
+ - There’s no doubt in my mind that Ronald Reagan was by far the greatest. Because he had real principles and he stuck by them. He made clear what he was going to do, and he did it. He didn’t back down.
+ - The future of private enterprise capitalism is also the future of a free society. There is no possibility of having a politically free society unless the major part of its economic resources are operated under a capitalistic private enterprise system.
+ - Legalizing drugs would simultaneously reduce the amount of crime and raise the quality of law enforcement. Can you conceive of any other measure that would accomplish so much to promote law and order?
+ - My interest in political philosophy was rather casual until I met Hayek.
+ - On aging societies, there is no reason why a country that has a lot of old people can’t be prosperous if, during their working lives, individuals provide for their retirement.
+ - The one thing that’s missing, but that will soon be developed, is a reliable e-cash, a method whereby on the Internet you can transfer funds from A to B, without A knowing B or B knowing A.
+ - Complete free trade is not politically feasible. Why? Because it’s only in the general interest and in no one’s special interest.
+ - The fall of the Berlin Wall did more for the progress of freedom than all of the books written by myself or Friedrich Hayek or others.
+ - Humility is the distinguishing virtue of the believer in freedom; arrogance, of the paternalist.
+ - The evidence of history speaks with a single voice. I do not know any exception to the proposition that if you compare like with like, the freer the system, the better off the ordinary poor people have been.
+ - The euro is going to be a big source of problems, not a source of help.
+ - The problem in this world is to avoid concentration of power – we must have a dispersion of power.
+ - There’s a smokestack on the back of every government program.
+ - The high rate of unemployment among teenagers, and especially black teenagers, is both a scandal and a serious source of social unrest. Yet it is largely a result of minimum wage laws. We regard the minimum wage law as one of the most, if not the most, anti-black laws on the statute books.
+ - We had much freer trade in the 19th century. We have much less globalization now than we did then.
+ - If China don’t free up the political side, its economic growth will come to an end – while it is still at a very low level.
+ - The invisible hand in politics operates in the opposite direction to the invisible hand in the market.
+ - Socialism, in the traditional sense, meant government ownership and operation of the means of production. Outside of North Korea and a couple of other spots, no one in the world today would define socialism that way. That will never come back.
+ - I think that the Internet is going to be one of the major forces for reducing the role of government.
+ - We have a freer world because of the collapse of the Soviet Union and the changes in China. Those two have been the main contributors to freedom in our time.
+ - What does it mean to say that government might have a responsibility? Government can’t have a responsibility any more than the business can. The only entities which can have responsibilities are people.
+ - One role of prohibition is in making the drug market more lucrative.
+ - The long-range sloution to high unemployment is to increase the incentive for ordinary people to save, invest, work, and employ others. We make it costly for employers to employ people; we subsidize people not to go to work We have a system that increasingly taxes work and subsidizes nonwork.
+ - Political freedom means the absence of coercion of a man by his fellow men.
+ - Anybody who was easily converted was not worth converting.
+ - The broader and more influential organisations of businessmen have acted to undermine the basic foundation of the free market system they purport to represent and defend.
+ - The fall of the Berlin Wall really demonstrated beyond the shadow of a doubt that there was a bad system, and what subsequently happened in the Soviet Union, that that system was a failure.
+ - There’s nothing that does so much harm as good intentions.
+ - Now that I’m 60, every morning I look in the mirror and say, “I don’t know who you are, stranger, but I’m gonna shave you anyway”.
+ - When everybody owns something, nobody owns it, and nobody has a direct interest in maintaining or improving its condition. That is why buildings in the Soviet Union – like public housing in the United States – look decrepit within a year or two of their construction...
+ - You never can cure poverty. Poverty is in the eye of the beholder.
+ - No major institution in the US has so poor a record of performance over so long a period as the Federal Reserve, yet so high a public reputation.
+ - So that the record of history is absolutely crystal clear. That there is no alternative way, so far discovered, of improving the lot of the ordinary people that can hold a candle to the productive activities that are unleashed by a free enterprise system.
+ - In the US, the problem is primary and secondary education. We’ve had such an increase in inequality because a quarter of American kids don’t finish high school!
+ - Congress can raise taxes because it can persuade a sizable fraction of the populace that somebody else will pay.
+ - We economists don’t know much, but we do know how to create a shortage. If you want to create a shortage of tomatoes, for example, just pass a law that retailers can’t sell tomatoes for more than two cents per pound. Instantly you’ll have a tomato shortage. It’s the same with oil or gas.
+ - There is no place for government to prohibit consumers from buying products the effect of which will be to harm themselves.
+ - It’s a moral problem that the government is making into criminals people, who may be doing something you and I don’t approve of, but who are doing something that hurts nobody else.
+ - The price works so well, so efficiently, that we are not aware of it most of the time.
+ - So the question is, do corporate executives, provided they stay within the law, have responsibilities in their business activities other than to make as much money for their stockholders as possible? And my answer to that is, no they do not.
+ - Germany has a very able and productive workforce. It has high-quality products that are valued all over the world. It has every opportunity to be a productive, growing state. It just has to give its entrepreneurs a chance. It has to let them make money, hire and fire, and act like entrepreneurs.
+ - A crackpot theory. Instead of saying labor’s exploited, as Marx did, Kelso says capital’s exploited. It’s worse than Marx. It’s Marx stood on its head.
+ - History suggests that capitalism is a necessary condition for political freedom. Clearly it is not a sufficient condition.
+ - Undoubtedly Internet has reduced the possibilities of taxation. Why should I buy something here if I can buy it from a company in Japan or England or Brazil with a lower tax?
+ - Why is it that private insurance companies are not in trouble because people are getting older? Aren’t they subject to the same demographics? The difference is that they’ve accumulated a fund, not a pay-in, pay-out system.
+ - The countries that have risen and separated out as a result of the collapse of the Soviet Union are, on the whole, following freer economic policies. Most of these states have freer government and less restrictions on trade.
+ - Americans know very little about social statistics, but I am not sure that it’s important that Americans know about social statistics.
+ - Reality ensures that the end of history will never come.
+ - If freedom were not so economically efficient it certainly wouldn’t stand a chance.
+ - By encouraging men to spy and report on one another, by making it in the private interest of large numbers of citizens to evade the controls, and by making actions illegal that are in the public interest, the controls undermine individual morality.
+ - The big problem for a democratic government – democrat with a small “d” – is how to hold down government spending.
+ - Only a crisis, actual or perceived, produces real change.
+ - Nobody spends somebody else’s money as carefully as he spends his own.
+ - Pick at random any three letters from the alphabet, put them in any order, and you will have an acronym designating a federal agency we can do without.
+ - What is not forbidden in Sweden, is obligatory.
+ - There is only one social responsibility of business.
+ - Freedom is a rare and delicate plant. Our minds tell us, and history confirms, that the great threat to freedom is the concentration of power.
+ - In response to a suggestion that total free trade would end in cheaper foreign products flooding the market and causing unemployment.
+ - We have a system that increasingly taxes work and subsidizes nonwork.
+ - The Internet moves us closer to “perfect information” on markets. Individuals and companies alike can buy and sell across borders and jurisdictions wherever they find the best match of supply and demand.
+ - Society doesn’t have values. People have values.
+ - Freedom means diversity but also mobility. It preserves the opportunity for today’s disadvantaged to become tomorrow’s privileged and, in the process, enables almost everyone, from top to bottom, to enjoy a fuller and richer life.
+ - Inflation is always and everywhere a monetary phenomenon in the sense that it is and can be produced only by a more rapid increase in the quantity of money than in output.
+ - The black market was a way of getting around government controls. It was a way of enabling the free market to work. It was a way of opening up, enabling people.
+ - Is it really true that political self-interest is nobler somehow than economic self-interest?
+ - Inflation is taxation without legislation.
+ - One man’s opportunism is another man’s statesmanship.
+ - Every economist knows that minimum wages either do nothing or cause inflation and unemployment. That’s not a statement, it’s a definition.
+ - In the 1960s, The National Education Association changed its character. The NEA changed into a union. And from that point on you can see deterioration in the quality of schooling in the United States.
+ - Many people want the government to protect the consumer. A much more urgent problem is to protect the consumer from the government.
+ - The free market is not only a more efficient decision maker than even the wisest central planning body, but even more important, the free market keeps economic power widely dispersed.
+ - Columbus did not seek a new route to the Indies in response to a majority directive.
+ - Cutting government spending and government intrusion in the economy will almost surely involve immediate gain for the many, short-term pain for the few, and long-term gain for all.
+ - There have been unions based on gold or silver, but not on fiat money – money tempted to inflate – put out by politically independent entities.
+ - John Lott documents how far ‘politically correct’ vested interests are willing to go to denigrate anyone who dares disagree with them. Lott has done us all a service by his thorough, thoughtful scholarly approach to a highly controversial issue.
+ - The central banks cannot control interest rates. That’s a mistake. They can control a particular rate, such as the Federal Funds rate, if they want to, but they can’t control interest rates.
+ - The great virtue of a free market is that it enables people who hate each other, or who are from vastly different religious or ethnic backgrounds, to cooperate economically. Government intervention can’t do that.
+ - Unfortunately, unanimity is not always feasible.
+ - The preservation of liberty, not the promotion of efficiency, is the primary justification for private property. Efficiency is a happy, though not accidental, by-product – and a most important by-product because liberty could not have survived if it had not also produced affluence.
+ - If you really want to engage in policy activity, don’t make that your vocation. Make it your avocation. Get a job. Get a secure base of income. Otherwise, you’re going to get corrupted and destroyed.
+ - Government is a way by which every individual believes he can live at the expense of everybody else.
+ - Germany cannot get out of the euro. What it has to do, therefore, is make the economy more flexible – to eliminate the restrictions on prices, on wages and on employment; in short, the regulations that keep 10 percent of the German workforce unemployed.
+ - Well first of all, tell me, is there some society you know of that doesn’t run on greed? You think Russia doesn’t run on greed? You think China doesn’t run on greed? What is greed?
+ - Government spends somebody else’s money on somebody else.
+ - If you cannot state a proposition clearly and unambiguously, you do not understand it.
+ - It doesn’t worry me a bit that China and Japan hold so much US debt. In a way, it seems foolish for them to do it because they get lower returns than they might elsewhere. But that is their business.
+ - Most of the energy of political work is devoted to correcting the effects of mismanagement of government.
+ - The argument for collectivism is simple; free market is not.
+ - You mustn’t judge a politician by talk. You have to judge them by performance.
+ - Every friend of freedom must be as revolted as I am by the prospect of turning the United States into an armed camp, by the vision of jails filled with casual drug users and of an army of enforcers empowered to invade the liberty of citizens on slight evidence.
+ - The only way that has ever been discovered to have a lot of people cooperate together voluntarily is through the free market. And that’s why it’s so essential to preserving individual freedom.
+ - In a bureaucratic system, useless work drives out useful work.
+ - So long as it stays within the rules of the game, which is to say, engages in open and free competition without deception or fraud.
+ - Political leaders in capitalist countries who cheer the collapse of socialism in other countries continue to favor socialist solutions in their own. They know the words, but they have not learned the tune.
+ - The Great Depression in the United States, far from being a sign of the inherent instability of the private enterprise system, is a testament to how much harm can be done by mistakes on the part of a few men when they wield vast power over the monetary system of the country.
+ - Saying it is one thing. Doing it is very different.
+ - The state of our educational system is a disgrace to our country. We have an elementary and secondary school system in which close to half of the youngsters never graduate properly. It’s a disgrace that there is more illiteracy today than there was 100 years ago.
+ - What would the people who sold us goods do with the money? They’d get dollars. What would they do with the dollars? Eat them?!
+ - If the only motive was to help people who could not afford education, advocates of government involvement would have simply proposed tuition subsidies.
+ - World trade depends on differences among countries, not similarities. Different countries are in different stages of development. It is appropriate for them to have different patterns, different policies for ecology, labor standards, and so forth.
+ - You can travel from one end of the industrialized world to the other and almost the only people you will find engaging in backbreaking toil are people who are doing it for sport. To find people whose day’s toil has not been lightened by mechanical invention, you must go to the non-capitalist world.
+ - I know of no severe depression, in any country or any time, that was not accompanied by a sharp decline in the stock of money, and equally of no sharp decline in the stock of money that was not accompanied by a severe depression.
+ - If you continue to use monetary policy to attempt to promote full employment the result would be that you would have higher inflation, and that you would not have lower unemployment.
+ - The Great Depression in the United States was caused – I won’t say caused, was enormously intensified and made far worse than it would have been by bad monetary policy.
+ - The use of quantity of money as a target has not been a success. I’m not sure that I would as of today push it as hard as I once did.
+ - Nobody spends somebody else’s money as carefully as he spends his own. Nobody uses somebody else’s resources as carefully as he uses his own. So if you want efficiency and effectiveness, if you want knowledge to be properly utilized, you have to do it through the means of private property.
+ - If even a small fraction of the money we now spend on trying to enforce drug prohibition were devoted to treatment and drug rehabilitation, in an atmosphere of compassion not punishment, the reduction in drug usage and in the harm done to users could be dramatic.
+ - Germany’s problem, in part, is that it went into the euro at the wrong exchange rate that overvalued the deutsche mark.
+ - The big issue is whether the United States will succeed in its venture of reshaping the Middle East. It is not clear to me that using military force is the way to do it. We should not have gone into Iraq. But we have.
+ - The unions might be good for the people who are in the unions but it doesn’t do a thing for the people who are unemployed. Because the union keeps down the number of jobs, it doesn’t do a thing for them.
+ - Because we live in a largely free society, we tend to forget how limited is the span of time and the part of the globe for which there has ever been anything like political freedom: the typical state of mankind is tyranny, servitude, and misery.
+ - When you have a time of crisis what happens depends on what ideas are floating around, and what ideas have been developed, and thought through, and are made effective.
+ - The power to do good is also the power to do harm.
+ - When you argue for free markets, you are arguing against the trend.
+ - Only government can take perfectly good paper, cover it with perfectly good ink and make the combination worthless.
+ - There’s no way to avoid a burden on your freedom. The costs themselves are a burden on your freedom. The restrictions that are necessary in order to get rid of the terrorists are a burden to your freedom. So there’s no way in the short run to avoid a restriction on your freedom.
+ - Fundamentally, there are only two ways of coordinating the economic activities of millions. One is central direction involving the use of coercion – the technique of the army and of the modern totalitarian state. The other is voluntary cooperation of individuals – the technique of the marketplace.
+ - The most unresolved problem of the day is precisely the problem that concerned the founders of this nation: how to limit the scope and power of government. Tyranny, restrictions on human freedom, come primarily from governmental restrictions that we ourselves have set up.
+ - Everywhere, and at all times, economic progress has meant far more to the poor than to the rich.
+ - Rich people are the experimental ground for every new development. The nature of progress is that what begins as a luxury for the rich becomes a necessity for the poor as it’s developed and passed on.
+ - The great achievements of civilization have not come from government bureaus.
+ - How can thinking people believe that a government that cannot deliver the mail can deliver gas better than Exxon, Mobil, Texaco, Gulf, and the rest?
+ - I think that nothing is so important for freedom as recognizing in the law each individual’s natural right to property, and giving individuals a sense that they own something that they’re responsible for, that they have control over, and that they can dispose of.
+ - China’s productive system draws upon the other East Asian countries to a great extent. The volume of trade is much larger than the net amount being exported from China. China needs substantial reserves to finance all that.
+ - I believe that the monetary stability is an absolutely critical element in the satisfactory operation of a system.
+ - It is a mark of how far we have gone on the road to serfdom that government allocation and rationing of oil is the automatic response to the oil crisis.
+ - One of the reasons that I am in favor of less government is because when you have more government, industrialists take it over.
+ - You must distinguish sharply between being pro free enterprise and being pro business.
+ - There is no person, no theorist so reckless as he who says that the facts speak for themselves.
+ - The existence of a free market does not of course eliminate the need for government. On the contrary, government is essential both as a forum for determining the “rule of the game” and as an umpire to interpret and enforce the rules decided on.
+ - There are severe limits to the good that the government can do for the economy, but there are almost no limits to the harm it can do.
+ - Economists may not know how to run the economy, but they know how to create shortages or gluts simply by regulating prices below the market, or artificially supporting them from above.
+ - Economic freedom is an essential requisite for political freedom. By enabling people to cooperate with one another without coercion or central direction, it reduces the area over which political power is exercised.
+ - The euro is good for Europe. But only if there is flexibility all around.
+ - I do not believe there is a natural resource economics. I believe there is good economics and bad economics.
+ - Japan has introduced fiscal stimulus five times in the past seven or eight years and each time it’s been a failure and that’s not a surprise. Fiscal stimulus is not stimulating in and of itself.
+ - I think a major reason why intellectuals tend to move towards collectivism is that the collectivist answer is a simple one. If there’s something wrong, pass a law and do something about it.
+ - I think in some ways it would make more sense to have as a poverty level a relative concept and say, the level of poverty is that level of income or that level of consumption below which 10 percent of the people now are.
+ - We don’t have a desperate need to grow. We have a desperate desire to grow.
+ - The true test of any scholar’s work is not what his contemporaries say, but what happens to his work in the next twenty-five or fifty years. And the thing that I will really be proud of is if some of the work I have done is still cited in the text books long after I am gone.
+ - The argument for the free market is a complicated and sophisticated one and depends on demonstration of secondary effects. I have confidence market efficiency will win out.
+ - I’d like to promote lots of things. I’d like to promote elimination of drug prohibition. I’d like to promote parental choice in education through vouchers. Those are two things I think are very urgent and important. They’re both more important than the harm which Social Security will do.
+ - Rapid increases in the quantity of money produce inflation. Sharp decreases produce depression.
+ - Politicians will always spend every penny of tax raised and whatever else they can get away with.
+ - You never have real changes unless you have a time of crisis.
+ - The only reason free markets have a ghost of a chance is that they are so much more efficient than any other form of organization.
+ - When a private enterprise fails, it is closed down; when a government enterprise fails, it is expanded. Isn’t that exactly what’s been happening with drugs?
+ - The case against a fully independent central bank is strong indeed.
+ - With some notable exceptions, businessmen favor free enterprise in general but are opposed to it when it comes to themselves.
+ - Hong Kong is the bellwether. If the Chinese stick to their agreement to let Hong Kong go its own path, then China will also go that way. If they don’t, that is a very bad sign. I’m optimistic.
+ - If a tax cut increases government revenues, you haven’t cut taxes enough.
+ - As a nation, we have been responsible for the murder of literally hundreds of thousands of people at home and abroad by fighting a war that should never have been started and can be won, if at all, only by converting the United States into a police state.
+ - I think almost every economist would agree that government gets itself in trouble when it tries to interfere with voluntary behavior.
+ - How did we make the transition from using wood to using coal, from using coal to using oil, from using oil to using natural gas? How in God’s name did we make that transition without a Federal Energy Agency?
+ - The collapse of communism in essence added tens and tens of millions of people to the world labor supply, and the people who were added had previously been getting very low income, but they were not unskilled. Many of them were fairly well educated.
+ - A minimum-wage law is, in reality, a law that makes it illegal for an employer to hire a person with limited skills.
+ - Personal freedom has grown greatly within China, and that will provoke ever more points of conflict between the individual and state.
+ - Every businessman is in favor of freedom for everybody else, but when it comes to himself that’s a different question. He’s always the special case. He ought to get special privileges from the government, a tariff, this, that and the other thing.
+ - What you have as a result of past policies is that German entrepreneurs go outside of Germany for many of their activities. They are investing abroad instead of at home because there isn’t the openness, fluidity and opportunity they find outside their borders.
+ - We do not influence the course of events by persuading people that we are right when we make what they regard as radical proposals. Rather, we exert influence by keeping options available when something has to be done at a time of crisis.
+ - The problem of social organization is how to set up an arrangement under which greed will do the least harm, capitalism is that kind of a system.
+ - There is not a line in ‘The Wealth of Nations’ that is not still applicable to this day.
+ - To the free man, the country is the collection of individuals who compose it, not something over and above them.
+ - The present oil crisis has not been produced by the oil companies. It is a result of government mismanagement exacerbated by the Mideast war.
+ - The most important ways in which I think the Internet will affect the big issue is that it will make it more difficult for government to collect taxes.
+ - The only relevant test of the validity of a hypothesis is comparison of prediction with experience.
+ - The growing role that the government has played in financing and administering schooling has led not only the enormous waste of taxpayers money but also to a far poorer educational system.
+ - It is true that a competitive market is not the whole of society. A great deal depends on the qualities of the population and the nation in how they organize the non-market aspects of society.
+ - The Soviet experience was much worse than experts in the West had thought. That discovery had a tremendous impact both on the intellectual community and on the public at large.
+ - It all would have been much better if individuals saved for their own old age.
+ - Anything that government can do, private enterprise can do for half the cost.
+ - How do you hold down government spending?
+ - I have long been a critic of Social Security, basically because I believe that it is not the business of government to tell people what fraction of their incomes they should devote to providing for their own or someone else’s old age.
+ - No central banker would disagree with the proposition that inflation is primarily a monetary phenomenon. Not one of them will disagree that every inflation has been accompanied by a rapid increase in the quantity of money and every deflation by a decline in the quantity of money.
+ - I think there is universal agreement within the economics profession that the decline – the sharp decline in the quantity of money played a very major role in producing the Great Depression.
+ - I know of no example in time or place of a society that has been marked by a large measure of political freedom, and that has not also used something comparable to a free market to organize the bulk of economic activity.
+ - To the best of my knowledge, there has never been a monetary union, putting out a fiat currency, composed of independent states.
+ - I believe the role that people like myself have played in the transformation of public opinion has been by persistently presenting a different point of view, a point of view which stresses the importance of private markets, of individual freedom, and the distorting effect of governmental policy.
+ - Prohibition is an attempted cure that makes matters worse – for both the addict and the rest of us.
+
+250 quotes

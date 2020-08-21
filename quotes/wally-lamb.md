@@ -1,0 +1,44 @@
+ - I cried because I had no shoes. Then I met a man who had no feet.
+ - Change what you can, accept what you can’t, and be smart enough to know the difference.
+ - Only there’s two sides to every story, you know. You just remember that.
+ - The seeker embarks on a journey to find what he wants and discovers, along the way, what he needs.
+ - The greatest griefs are silent.
+ - Fiction writing is a strange business when you think about it. You sit down and weave a network of lies to explore deeper truths.
+ - Love grows from the rich foam of forgiveness, mongrels make good dogs, and the evidence of God exists in the roundness of things.
+ - Accept what people offer. Drink their milkshakes. Take their love.
+ - Getting a job scared her but she was determined not to shy away from risk. That’s what life’s all about. Climbing out onto the airplane wing and jumping off.
+ - Its the most breathtakingly ironic things about living: the fact that we are all-identical twins included-alone. Singular. And yet what we seek-what saves us-is our connection to others.
+ - Love comes in far more shapes and sizes than what the family-values crowd condones, of course.
+ - If the book is true, it will find an audience that is meant to read it.
+ - The evidence of God exists in the roundness of things.
+ - Love is like breathing, you take it in and let it out.
+ - With destruction comes renovation.
+ - A woman who surrenders her freedom need not surrender her dignity.
+ - The point is this: that the stream of memory may lead you to the river of understanding. And understanding, in turn, may be a tributary to the river of forgiveness.
+ - Life is a whoopee cushion, a chair pulled away just as you were taking a seat.
+ - Let me tell you something, my wife died for Tuesdays ago. Cancer of the colon. We were married forty-one years. Now you stop feeling sorry for yourself and lose some of that pork of yours. Pretty girl like you – you don’t want to do this yourself.
+ - Power, wrongly used, defeats the oppressor as well as the oppressed.
+ - People waste their happiness – that’s what makes me sad. Everyone’s so scared to be happy.
+ - But what are our stories if not the mirrors we hold up to our fears?
+ - If you want your prayers answered, get up off your knees and do something about them.
+ - Human behavior in the midst of hardship caught my attention very early on, and my first stories were all pictures, no words.
+ - I thought about how love was always the thing that did that – smashed into you, left you raw. The deeper you loved, the deeper it hurt.
+ - I walked over and looked closer at the statue of the goddess. She was wearing a headdress with a skull and a cobra and a crescent moon. Maybe this is what peace of mind was all about: having a poisonous snake on your head and smiling anyway.
+ - First I laughed my way through Elinor Lipman’s book of political tweets. Then I put my ear to the ground and listened to Molly Ivins guffawing from the grave. Lipman is a piquant poetic rock star!
+ - If you risked love, it took you wherever you wanted to go. If you repressed it, you ended up unhappy.
+ - I usually learn more from the situations I hate than the ones I love.
+ - All the dead bolts, pulled shades and hidden knives in the world couldn’t protect you from the truth.
+ - The roundness of life’s design may be a sign that there is a presence beyond ourselves.
+ - However far fiction writers stray from their own lives and experiences – and I stray pretty far from mine – I think, ultimately, that we may be writing what we need to write in some way, albeit unconsciously.
+ - I think I write fiction for the opportunity to get beyond the limits of my own life.
+ - This was what could happen to you: you could end up this far from where you thought you were going.
+ - Love stories are probably all Ive ever been able to write or want to write.
+ - I love the most the students with troubled lives.
+ - I like to be surprised. The best writing is when it defies me, when it starts going a different way than I had planned.
+ - I wanted to connect a modern story with a myth that I had read.
+ - As my early drawings warned me, where humans go, lions and tidal waves follow.
+ - I like to write first-person because I like to become the character I’m writing.
+ - So many bad things have happened to them that they can’t trust the good things. They have to shove them away before someone can get it back.
+ - Religion’s just a well-oiled profit-driven denial of the randomness of it all.
+
+42 quotes

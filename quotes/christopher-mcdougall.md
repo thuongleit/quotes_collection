@@ -1,0 +1,44 @@
+ - You don’t stop running because you get old, you get old because you stop running.
+ - If you can run six miles on a summer day, then you, my friend, are a lethal weapon in the animal kingdom.
+ - If you don’t have answers to your problems after a four-hour run, you ain’t getting them.
+ - If you don’t think you were born to run you’re not only denying history. You’re denying who you are.
+ - Ask nothing from your running, and you’ll get more than you ever imagined.
+ - The reason we race isn’t so much to beat each other, but to be with each other.
+ - You don’t have to be fast. But you’d better be fearless.
+ - Deny your nature, and it will erupt in some other, uglier way.
+ - We’ve got a motto here-you’re tougher than you think you are, and you can do more than you think you can.
+ - We run when we’re scared, we run when we’re ecstatic, we run away from our problems and run around for a good time.
+ - We were born to run; we were born because we run.
+ - Suffering is humbling. It pays to know how to get your butt kicked.
+ - Humans are built for endurance, not speed. We’re awful sprinters compared to every other animal. We try to run our races as if they were speed races, but they are not. They’re endurance races. Even a marathon, the way it’s run now, it’s not an endurance contest.
+ - We’re constantly told that running will ruin our knees and outrage our hearts, but for nearly all of human existence, it was associated with freedom, vitality, and eternal youth.
+ - In ‘Tarahumara’ land, there was no crime, war or theft. There was no corruption, obesity, drug addiction, greed, wife-beating, child abuse, heart disease, high blood pressure, or carbon emissions. They didn’t get diabetes, or depressed, or even old: 50-year-olds outran teenagers.
+ - Everyone is built for running.
+ - Perhaps all our troubles – all the violence, obesity, illness, depression, and greed we can’t overcome – began when we stopped living as Running People. Deny your nature, and it will erupt in some other, uglier way.
+ - But you can’t muscle through a five-hour run that way; you have to relax into it like easing your body into a hot bath, until it no longer resists the shock and begins to enjoy it.
+ - Only recently have we come up with the technology to turn lazing around into a way of life. We’ve taken our sinewy, durable, hunter-gatherer bodies and plunked them into an artificial world of leisure.
+ - Anyone can do running. Running should be easy. It should be fun. It should include everyone. It shouldn’t be a punishment for eating cheesecake, which is what we’ve turned it into.
+ - The only way to truly conquer something, as every great philosopher and geneticist will tell you, is to love it.
+ - Running is the heart of what it means to be human.
+ - The ‘Tarahumara’ use their legs ‘as designed.’ By running at a young age with minimal footwear, they naturally develop the best biomechanical use of their legs. Cushioned shoes restrict foot movements and allow for over-striding. Short strides are natural.
+ - That was the real secret of the Tarahumara: they’d never forgotten what it felt like to love running. They remembered that running was mankind’s first fine art, our original act of inspired creation.
+ - Running should be free, man.
+ - We wouldn’t be alive without love we wouldn’t have survived without running maybe we shouldn’t be surprised that getting better at one could make you better at the other.
+ - Were designed for persistence hunting, which is a mix of running and walking. Whats built into that kind of running is a sense of pleasure. You are designed and built and perfect for this activity, and it should be enjoyable and fun.
+ - Blaming the running injury epidemic on big, bad Nike seems too easy – but that’s okay, because it’s largely their fault.
+ - Endurance, after all, is the only reason we even exist. We think of ourselves as nature’s deadliest animals, but the truth is, a naked human is the biggest wimp in the wild. We have no fangs, no claws, no strength, and no speed.
+ - If you read folklore and mythology, any kind of myths, any kind of tall tales, running is always associated with freedom and vitality and youthfulness and eternal vigor. It’s only in our lifetime that running has become associated with fear and pain.
+ - Extreme heroism springs from something that no scientific theory can fully explain; it’s an illogical impulse that flies in the face of biology, psychology, actuarial statistics, and basic common sense.
+ - Way before we were scratching pictures on caves or beating rhythms on hollow trees we were perfecting the art of combining our breath and mind and muscles into fluid self-propulsion over wild terrain.
+ - There is a growing subculture of barefoot runners, people who got rid of their shoes. And what they have found uniformly is you get rid of the shoes, you get rid of the stress, you get rid of the injuries and the ailments.
+ - He was onto something. Something huge. It wasn’t just how to run; it was how to live, the essence of who we are as a species and what we’re meant to be.
+ - For nearly 2 million years, our ancestors survived and thrived and spread across the planet because they could run other mammals into heat exhaustion.
+ - The words of the social critic Eric Hoffer were ringing true: “Every great cause begins as a movement, becomes a business, and turns into a racket.”
+ - One of the most dangerous and best-kept secrets of the medical profession is the epidemic of anesthesiologists who are addicted to their own drugs.
+ - When it comes to mentors, you can’t beat survival.
+ - Even Charles Darwin, that human decoder ring of bizarre behavior, found the idea of saving a stranger’s life to be a total head-scratcher.
+ - Faced with the almost inescapable conclusion that it had been selling lemons, Nike shifted into make-lemonade mode. Jeff Pisciotta became head of a top-secret and seemingly impossible project: finding a way to make a buck off a naked foot.
+ - We’ve created an unnatural form of running. It’s not just the shoes, but we run on artificial surfaces – straight ahead, hard and steady – instead of speeding up and slowing down, reacting to the terrain with changes of pace and rhythm.
+ - We are the biggest sissies in the jungle. Every other animal is stronger than we are – they have fangs, they have claws, they have nimbleness, they have speed. We think Usain Bolt is fast – Usain Bolt can get his ass kicked by a squirrel.
+
+42 quotes

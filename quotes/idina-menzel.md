@@ -1,0 +1,24 @@
+ - It’s funny how some distance makes everything seem small, and the fears that once controlled me can’t get to me at all.
+ - Things happen for a reason, and in their own time.
+ - You can’t get it all right all the time, but you can try your best. If you’ve done that, all that’s left is to accept your shortcomings and have the courage to try to overcome them.
+ - The truth is I love musical theatre and always have.
+ - The cold never bothered me anyway.
+ - You get to relive your childhood when you have a baby and you see these toys and these books you read when you were little – the innocence that you are able to maintain because you have to find that again in order to connect with your child keeps you in a special state of mind.
+ - I love my husband very much. I knew it was real true love because I felt like I could be myself around that person. Your true, true innermost authentic self, the stuff you don’t let anyone else see, if you can be that way with that person, I think that that’s real love.
+ - Nerves are good. They keep you alive.
+ - Being a role model is about being true to myself.
+ - When you sit back and you just do what you love, things happen.
+ - I definitely use my music to kind of alleviate my stress and get me through specific moments in time where I’m just being really tough on myself.
+ - The one who tried too hard, the outsider, the oddball. Yeah, that was me.
+ - I always use my husband’s cocoa butter stuff. He has amazing skin!
+ - As a mom, I don’t have much time for beauty.
+ - I know I’m known for singing some of those high notes, but that’s really not what giving someone goosebumps is all about. It’s about really trying to find what makes you unique.
+ - My biggest project right now is trying to be a really great mom and learning how to balance family and career. I’m just trying to spend as much time with my family as I can.
+ - I find that, maybe because I’m also a singer, I hear music in characters all the time, even if they don’t sing. I hear what affects me in my heart.
+ - As I get older, I realize all I’ve done is sing and act and hone those skills.
+ - My favorite thing of all time is a New York City when there’s a blizzard. Everything gets really quiet, and everyone goes to the movies and the park.
+ - I will never leave the theater. My heart is there and I love being on stage eight times a week.
+ - I love working with a cast and a group of people every day, which is different than recording because you’re usually pretty isolated and alone. They serve as a good balance for each other.
+ - The intensity of being in front of all these incredible musicians and tremendous conductors in these elaborate halls can be overwhelming.
+
+22 quotes

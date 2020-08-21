@@ -1,0 +1,128 @@
+ - Education is for improving the lives of others and for leaving your community and world better than you found it.
+ - You can’t be what you can’t see.
+ - Democracy is not a spectator sport.
+ - You really can change the world if you care enough.
+ - You just do it one step at a time.
+ - We must not, in trying to think about how we can make a big difference, ignore the small daily differences we can make which, over time, add up to big differences that we often cannot foresee.
+ - Children must have at least one person who believes in them. It could be a counselor, a teacher, a preacher, a friend. It could be you. You never know when a little love, a little support will plant a small seed of hope.
+ - Don’t be afraid of hard work.
+ - No person has the right to rain on your dreams.
+ - Service is the rent we pay for being. It is the very purpose of life, and not something you do in your spare time.
+ - Be a good ancestor. Stand for something bigger than yourself. Add value to the Earth during your sojourn.
+ - If we don’t stand up for children, then we don’t stand for much.
+ - Just because a child’s parents are poor or uneducated is no reason to deprive the child of basic human rights to health care, education and proper nutrition.
+ - It really takes a community to raise children, no matter how much money one has. Nobody can do it well alone. And it’s the bedrock security of community that we and our children need.
+ - Learn to be quiet enough to hear the genuine within yourself so that you can hear it in others.
+ - Character, self-discipline, determination, attitude and service are the substance of life.
+ - If you don’t like the way the world is, you change it. You have an obligation to change it. You just do it one step at a time.
+ - Service is the rent we pay for living.
+ - Don’t just dream about grandiose acts of doing good. Every day do small ones, that add up over time to positive patterns.
+ - Homeless shelters, child hunger, and child suffering have become normalized in the richest nation on earth. It’s time to reset our moral compass and redefine how we measure success.
+ - Be real. Try to do what you say, say what you mean, and be what you seem.
+ - God, please help us remember that all the darkness in the world cannot snuff out the light of one little candle. Help us to keep lighting our little candles until a mighty torch of justice sweeps our nation and the world.
+ - We do not have a money problem in America. We have a values and priorities problem.
+ - You’re not obligated to win. You’re obligated to keep trying to do the best you can every day.
+ - It’s time for greatness – not for greed. It’s a time for idealism – not ideology. It is a time not just for compassionate words, but compassionate action.
+ - Never let us confuse what is legal with what is right. Everything Hitler did in Nazi Germany was legal, but it was not right.
+ - So often we think we have got to make a difference and be a big dog. Let us just try to be little fleas biting. Enough fleas biting strategically can make a big dog very uncomfortable.
+ - A lot of people are waiting for Martin Luther King or Mahatma Gandhi to come back – but they are gone. We are it. It is up to us. It is up to you.
+ - The question is not whether we can afford to invest in every child; it is whether we can afford not to.
+ - Failure is just another way to learn how to do something right.
+ - Never work just for money or for power. They won’t save your soul or help you sleep at night.
+ - Democracy cannot breathe, indeed will die, if those enjoined to protect it and uphold the laws snuff it out – with no consequences.
+ - You were born God’s original. Try not to become someone’s copy.
+ - No time is ever wasted if you have a book along as a companion.
+ - I hadn’t planned on going to law school. I wanted to study 19th-century Russian literature.
+ - God did not create two classes of children or human beings-only one.
+ - The future which we hold in trust for our own children will be shaped by our fairness to other people’s children.
+ - Family and moral values are so central to everything that I am.
+ - Don’t assume a door is closed; push on it. Don’t assume if it was closed yesterday that it is closed today. Don’t ever stop learning and improving your mind. If you do, you’re going to be left behind.
+ - In every seed of good there is always a piece of bad.
+ - The Declaration of Independence was always our vision of who we wanted to be, our ideal of freedom and justice, how we were going to be different, and what the American experiment was going to be about.
+ - To all those mothers and fathers who are struggling with teen-agers, I say, just be patient: even though it looks like you can’t do anything right for a number of years, parents become popular again when kids reach 20.
+ - Children teach us to be courageous and to stand up against injustice.
+ - Let all children come unto me.
+ - Service is what life is all about.
+ - I’m doing what I think I was put on this earth to do. And I’m really grateful to have something that I’m passionate about and that I think is profoundly important.
+ - Semi-automatic weapons have no socially redeeming purpose.
+ - Every child’s life is sacred and it is long past time that we protect it.
+ - No one, Eleanor Roosevelt said, can make you feel inferior without your consent. Never give it.
+ - Understand and be confident that each of us can make a difference by caring and acting in small as well as big ways.
+ - When I fight about what is going on in the neighborhood, or when I fight about what is happening to other people’s children, I’m doing that because I want to leave a community and a world that is better than the one I found.
+ - We are willing to spend the least amount of money to keep a kid at home, more to put him in a foster home and the most to institutionalize him.
+ - If things are too easy, life is a whole lot less interesting.
+ - You can achieve much in life if you don’t mind doing the work and giving someone else the credit.
+ - Education remains one of the black community’s most enduring values. It is sustained by the belief that freedom and education go hand in hand, that learning and training are essential to economic quality and independence.
+ - The outside world told black kids when I was growing up that we weren’t worth anything. But our parents said it wasn’t so, and our churches and our schoolteachers said it wasn’t so. They believed in us, and we, therefore, believed in ourselves.
+ - It is utterly exhausting being Black in America – physically, mentally, and emotionally. While many minority groups and women feel similar stress, there is no respite or escape from your badge of color.
+ - Together we can and must fight for justice for our children and protect them from draconian tax cuts and budget choices that threaten their survival, education and preparation for the future. If they are not ready for tomorrow, neither is America.
+ - Unless children have strong education and strong families and strong communities and decent housing, it’s not enough to go sit in at a lunch counter.
+ - You’d better stay determined, because that’s how our ancestors got us where we are.
+ - Why are guns the only unregulated consumer products in America? We regulate toy guns and teddy bears, but we do not regulate a product that kills 4,600 children a year.
+ - Hope is the best contraceptive.
+ - Hunger and malnutrition have devastating consequences for children and have been linked to low birth weight and birth defects, obesity, mental and physical health problems, and poorer educational outcomes.
+ - So much of America’s tragic and costly failure to care for all its children stems from our tendency to distinguish between our own children and other people’s children – as if justice were divisible.
+ - So much of the deep lingering sadness over President Kennedy’s assassination is about the unfinished promise: unspoken speeches, unfulfilled hopes, the wondering about what might have been.
+ - Black women rock the cradle, and whoever rocks the cradle rocks the future.
+ - Somehow we are going to have to develop a concept of enough for those at the top and at the bottom so that the necessities of the many are not sacrificed for the luxuries of the few.
+ - If parents snicker at racial and gender jokes, another generation will pass on the poison adults still have not had the courage to snuff out.
+ - If we think we have ours and don’t owe any time or money or effort to help those left behind, then we are a part of the problem rather than the solution to the fraying social fabric that threatens all Americans.
+ - We are not going to deal with the violence in our communities, our homes, and our nation, until we learn to deal with the basic ethic of how we resolve our disputes and to place an emphasis on peace in the way we relate to one another.
+ - You didn’t have a choice about the parents you inherited, but you do have a choice about the kind of parent you will be.
+ - Whoever said anyone has the right to give up.
+ - Justice is not cheap. Justice is not quick. It is not ever finally achieved.
+ - In politics, there are no friends.
+ - Ordinary women of grace are, in a sense, my real role models.
+ - Children cannot lobby and cannot vote. We must speak for them.
+ - The old notion that children are the private property of parents dies very slowly. In reality, no parent raises a child alone. How many of us nice middle-class folk could make it without our mortgage reduction.
+ - The legacies that parents and church and teachers left to my generation of Black children were priceless but not material: a living faith reflected in daily service, the discipline of hard work and stick-to-itiveness, and a capacity to struggle in the face of adversity.
+ - We must serve consciously as caring role models, emphasizing the ethic of service, not consumption.
+ - Dr. King used to say, ‘I was sitting in the back of the bus, but my mind was always up front.’ Don’t let anybody tell you that you can’t do it. You aim high and you work very hard and now I think it’s clear that you can be anything you want to.
+ - It is time for every one of us to roll up our sleeves and put ourselves at the top of our commitment list.
+ - Parents have become so convinced that educators know what is best for their children that they forget that they themselves are really the experts.
+ - Children under five are the poorest age group in America, and one in four infants, toddlers and preschoolers are poor during the years of greatest brain development.
+ - I never thought I was breaking a glass ceiling. I just had to do what I had to do, and it never occurred to me not to.
+ - If it’s wrong for 13-year-old inner-city girls to have babies without the benefit of marriage, it’s wrong for rich celebrities, and we ought to stop putting them on the cover of People magazine.
+ - Our true remembrance to President Kennedy is in our actions to honor the unspoken words and finish the unfinished work today and tomorrow and for as long as it takes.
+ - A nation that does not stand for its children does not stand for anything and will not stand tall in the future.
+ - I grew up in a very religious family and it is the motivating force to every thing I do. I am fortunate to have had adults all around me who really lived their faith, in helping other people and doing the best you can do.
+ - Far less wealthy industrialized countries have committed to end child poverty, while the United States is sliding backwards. We can do better. We must demand that our leaders do better.
+ - The legacy I want to leave is a child-care system that says that no kid is going to be left alone or left unsafe.
+ - Education is a precondition to survival in America today.
+ - I think it is important that people who are perceived as liberals not be afraid of talking about moral and community values.
+ - It never occurred to me that I was not going to challenge segregation.
+ - I don’t care what my children choose to do professionally, just as long as within their choices they understand they’ve got to give something back.
+ - This act will leave a moral blot on his presidency.
+ - It is a spiritually impoverished nation that permits infants and children to be the poorest Americans.
+ - The challenge of social justice is to evoke a sense of community that we need to make our nation a better place, just as we make it a safer place.
+ - I have always believed that I could help change the world, because I have been lucky to have adults around me who did.
+ - When President Kennedy was elected, many black Americans, like so many Americans, were captivated by his youth and energy and promise and were especially hopeful that he might move the country in a new direction on civil rights.
+ - The crisis of children having children has been eclipsed by the greater crisis of children killing children.
+ - In my generation, we learned how to be leaders by being exposed to and involved with adults who empowered us and gave us a sense that we could choose things. We’ve let down the generations coming behind us and we are trying to re- establish that connection.
+ - I worry about the kids who have too much. As a parent living in a so-called good neighborhood with children who went to private high school, I found myself spending much time in parent groups worrying about alcohol, unsupervised parties, and parents not being parents.
+ - I hope that people of all faiths will start looking for our too-invisible children who are crying out for help...
+ - Amidst protestations of ‘Who can be against the children?’ too few people are FOR children when it really matters.
+ - Don’t count out Marian Wright Edelman, because there is talk that President Clinton may want to shock the nation by putting a real black on the Supreme Court.
+ - There are levels of outrage, and there’s a point at which you can’t be trespassed upon anymore.
+ - In trying to make a big difference, don’t ignore the small daily differences we can make.
+ - So often we are depressed by what remains to be done and forget to be thankful for all that has been done.
+ - When Jesus Christ asked little children to come to him, he didn’t say only rich children, or White children, or children with two-parent families, or children who didn’t have a mental or physical handicap. He said, Let all children come unto me.
+ - History does not pose problems without eventually producing the solutions.
+ - There should not be one new dime in tax breaks for millionaires and billionaires as long as millions of children in America are poor, hungry, uneducated and without health coverage.
+ - As I contemplate the kind of future I want for children-my own and other people’s-I believe we must look inward to God for guidance and strength and backward to draw on the values and legacies of our families, ancestors, and communities.
+ - There are so many noises and pulls and competing demands in our lives that many of us never find out who we are. Learn to be quiet enough to hear the sound of the genuine within yourself so that you can hear it in other people.
+ - Remember and help America remember that the fellowship of human beings is more important than the fellowship of race and class and gender in a democratic society.
+ - I’ve always hated being hemmed in or seeing anybody being hemmed in. Even when I was the smallest child, I couldn’t bear being told I couldn’t drink at a so-called white drinking fountain.
+ - You just need to be a flea against injustice. Enough committed fleas biting strategically can make even the biggest dog uncomfortable and transform even the biggest nation.
+ - I’m tough in the sense that I believe as strongly in what I’m doing as anybody else believes in what they are doing.
+ - Be grateful for good breaks and kind favors but don’t count on them.
+ - We have the capacity to make sure that every mother has pre-natal care. Yet, we don’t do it. What is it about America? It says we don’t value children and families. We are hypocrites.
+ - Don’t feel entitled to anything you didn’t sweat and struggle for.
+ - Children cannot eat rhetoric and they cannot be sheltered by commissions. I don’t want to see another commission that studies the needs of kids. We need to help them.
+ - I’m sure I am impatient sometimes. I sure do get angry sometimes. I think it’s outrageous how hard it is to get this country to feed its children and to take care of its children, to give them a decent education.
+ - We must always refill and ensure there is a critical mass of leaders and activists committed to nonviolence and racial and economic justice who will keep seeding and building transforming movements.
+ - People who don’t vote have no line of credit with people who are elected and thus pose no threat to those who act against our interests.
+ - Children don’t vote but adults who do must stand up and vote for them.
+ - I try to act out of faith.
+
+126 quotes

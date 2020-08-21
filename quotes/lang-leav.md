@@ -1,0 +1,25 @@
+ - Before I fell in love with words, with setting skies and singing birds – it was you I fell in love with first.
+ - We may be just two different clocks, that do not tock in unison.
+ - I don’t think all writers are sad, she said. I think it’s the other way around- all sad people write.
+ - For the past has taught to not be caught, in what is not worth pursuing –.
+ - I was there in your forgetting, until I was forgot.
+ - Do you remember the song that was playing the night we met? No, but I remember every song I have heard since you left.
+ - You were you, and I was I; we were two before our time. I was yours before I knew, and you have always been mine too.
+ - When words run dry, he does not try, nor do I. We are on par. He just is, I just am and we just are.
+ - But it was now time for her to go away – to find someone who could show her what happiness was.
+ - But it’s perplexingly sweet, and quite sexy too – to be ignored, ignored by you.
+ - It was a question I had worn on my lips for days – like a loose thread on my favourite sweater I couldn’t resist pulling – despite knowing it could all unravel around me. “Do you love me?” I ask. In your hesitation I found my answer.
+ - We had no ending, no said goodbye. For all my life, I’ll wonder why.
+ - I thought you were a keeper, I wish I could have kept you.
+ - Can I ask you something? Anything. Why is it every time we say goodnight, it feels like goodbye?
+ - You were the one, I wanted most to stay. But time could not be kept at bay. The more it goes, the more it’s gone, the more it takes away.
+ - In time she will learn, not to miss them.
+ - Love is a game of tic-tac-toe, constantly waiting for the next x or o.
+ - A marker drawn to show our end, is etched into its line. The briefest moment shared with you – the longest on my mind.
+ - Of lips that I am yet to kiss, and eyes not met my own.
+ - Beauty’s Curse Her bow is drawn to worlds of dark, where arrows spring and miss their mark – she’ll turn their heads but not their hearts.
+ - It’s so dark right now, I can’t see any light around me. That’s because the light is coming from you. You can’t see it but everyone else can.
+ - I had my first dream about you last night. Really? She smiles. What was it about? I don’t remember exactly but the whole time I was dreaming, I knew you were mine.
+ - Saving You The darkness takes him over, the sickness pulls him in; his eyes – a blown out candle, I wish to go with him. Sometimes I see a flicker – a light that shone from them; I hold him to me tightly, before he’s gone again.
+
+23 quotes

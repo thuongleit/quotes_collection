@@ -1,0 +1,313 @@
+ - You gotta risk it to get the biscuit.
+ - I like doing energetic things.
+ - Don’t keep reaching for the stars because you’ll just look like an idiot stretching that way for no reason.
+ - I remember people saying to us, “You’re too nice. Hollywood is going to eat you up and spit you out.” I never listened to them.
+ - I like video games, I like tech, I like being positive.
+ - I’d be nothing without my wife. She’s the coolest. She’s the greatest. She is the smartest. She’s the funniest. I love her so much. She’s like the – it’s like your best friend for the rest of your life.
+ - Success is just happiness. When you are happy, that is success.
+ - A new study found that a mother’s diet affects her baby’s allergies. Which can only mean one thing: My mom ate cats.
+ - A 99-year-old man is filing for divorce from his 96-year-old wife, making them the world’s oldest divorced couple. It’s got to be weird when a divorce lawyer is fighting for your kids to get custody of you.
+ - Whenever I’m stuck in traffic, I can’t help but wonder, ‘Where did the creator of The Jetsons go, and why hasn’t he done something about this?’
+ - Today is the midterm elections. The Washington Post is predicting that there’s a 98 percent chance of the Republicans taking the Senate and The New York Times says there’s a 75 percent chance. And CNN said, ‘Wait, that’s today?’
+ - North Korea has declared its own time zone that they are calling ‘Pyongyang Time,’ and set their clocks back half an hour. So if it’s say, 11:40 here now in New York, in North Korea it’s still 1925.
+ - Thank you, yard sales, for being the perfect way to say to your neighbors: ‘We think we’re important enough to charge money for our garbage.’
+ - I haven’t been on a date in awhile. I went on maybe two dates in my whole life.
+ - Apple is developing a service called Home Kit that will allow people to operate gadgets like garage openers and thermostats through one app. In related news, please don’t tell my parents about this. I can’t be explaining this stuff every week.
+ - Earlier this week Donald Trump gave an interview with CNN at a winery he owns in Virginia. It turns out Trump’s winery makes two different kinds of wine: white wine and not-white wine.
+ - There’s a new Facebook app that will post a final status update for you after you die. That’s ridiculous. I don’t need someone to change my status when I die. I need them to water my Farmville crops.
+ - New Scientist magazine reported that in the future, cars could be powered by hazelnuts. That’s encouraging, considering an eight-ounce jar of hazelnuts costs about nine dollars. Yeah, I’ve got an idea for a car that runs on bald eagle heads and Faberge eggs.
+ - Thank you, people who say ‘Wow, you’re really photogenic,’ for not saying what you really mean: ‘Wow, you’re really ugly in person.’
+ - Father’s Day is important because, besides being the day on which we honor Dad, it’s the one day of the year that Brookstone does any business.
+ - Listening is more important than talking. Just hit your mark and believe what you say. Just listen to people and react to what they are saying.
+ - I just feel like people like a little break. Especially at 12:37 at night, you go, like, ‘I’m just tired of the snarky right now. I just want to lie down and have somebody make me laugh for an hour. Entertain me, and then I’m going to sleep with a smile on my face.’ That’s my job; that’s what I do.
+ - A new survey out says 64 percent of Americans own a smartphone. Which is interesting because in a related survey, 100 percent of smart phones say they own an American.
+ - I think you just look for the person you have the most fun with. And that’s enough. You realize, “Wait, I can just keep having fun with her forever?” Yes, you can do that. That is the key.
+ - This week, a 95-year-old woman married a 98-year-old man to become the world’s oldest newlyweds. They’re registered at Bed, Sponge Bath and Beyond.
+ - During a charity boxing match on Friday, Mitt Romney lasted two rounds against Evander Holyfield and raised a million dollars. It was just like Holyfield’s fight with Mike Tyson, except Romney chewed off his other ear talking about his 18 grandchildren.
+ - I became a Yankees fan for a few years. But now, I gotta say, I’m really rooting for the Red Sox.
+ - Today is Earth Day. Environmentalists spent the day drawing attention to the Earth, while the Earth just spent the day checking Facebook to see which planets wished it a happy Earth Day.
+ - I know what you want. And I know what you need. But I’m gonna screw it up, yeah, cause I’m an idiot. And I’m your boyfriend.
+ - The Department of Agriculture announced that it will ban six new strains of E. coli. Which explains why the hot dog vendor outside my building is now just selling napkins.
+ - A clothing company is making T-shirts inspired by Bernie Sanders with messages like ‘Feel the Bern.’ They were gonna make them for Lincoln Chafee too, but no one wants to wear a shirt that says ‘Feel the Chafee.’
+ - In celebration of Mother’s Day yesterday, President Obama called three moms who had written him letters. Then kids who made their mom a macaroni necklace said, ‘Thanks, Obama.’
+ - I feel like I’m being too Zen. I’m inhaling too much patchouli and incense. It’s embarrassing.
+ - Thank you, horseradish, for being neither a radish nor a horse. What you are is a liar food.
+ - John McCain responded to critics who say he’s too old for a sixth term by saying that his mother is 103 years old and doing well. The crazy thing is that even she is somehow younger than John McCain.
+ - Live your life by doing activities that are beneficial.
+ - According to a new study, the marijuana in Colorado is almost twice as strong as it was 20 years ago. Of course, people had some questions for the scientists, like ‘How can I get your job?’
+ - Politics is pop. Our job as comedians – especially me, as a late-night talk show, which is a broader audience – is to amplify what we think America is thinking.
+ - A new study found that women think men holding a guitar are more attractive, even if they are not playing it. In a related story, guys with an accordion will die alone.
+ - Disney World is celebrating its 40th birthday! You can tell the characters are getting old. In addition to Snow White’s seven dwarfs, she now has 25 cats.
+ - I read one chapter of a book and put it down. Thank God for Kindle.
+ - This weekend the Conservative Political Action Conference, CPAC, featured several speakers including Sarah Palin and Phil Robertson from ‘Duck Dynasty.’ It was a good weekend for conservatives – and a great weekend for wild animals.
+ - I sing in the car if I’m in LA, because you’re like soundproofed.
+ - In a speech in South Carolina, Donald Trump responded to criticisms from Senator Lindsey Graham by giving out Graham’s personal cellphone number. Graham knew something was up when he saw he had more than one missed call.
+ - A new poll found that 43 percent of Americans think President Obama is doing a good job at handling the BP oil spill. Of course, the same poll found that 43 percent of Americans hate pelicans.
+ - My dream was to grow up and get a job at IBM, like my dad. That seemed like a logical dream.
+ - People ask me, Jimmy, howd you get here tonight. Lets just say it involved a two-hour make-out session with Elaine Stritch. It got pretty heavy actually, I almost had to host.
+ - Republican Scott Brown lost his bid for Senate in New Hampshire last night, two years after he was voted out as Senator in Massachusetts. When asked what he was planning to do next, he said, ‘Are they still looking for a mayor in Toronto?’
+ - A new survey found that 12 percent of parents punish their kids by banning social networking sites. The other 88 percent punish their kids by joining social networking sites.
+ - It’s Friday. That’s one reason to celebrate. Also, it’s the first day in a long time when no one declared they’re running for president.
+ - We had the guys from X Men 2 do the cameras. They had a 360 camera that would go from one car, up in the air and over to another car in a continuous shot while the film was still rolling, going 90 mph.
+ - Honestly, I just want to keep people awake. Or at least give you one joke to go to bed with.
+ - BP wants Twitter to shut down a fake BP account that is mocking the oil company. In response, Twitter wants BP to shut down the oil leak that’s ruining the ocean.
+ - If you’re a sports fan you realize that when you meet somebody, like a girlfriend, they kind of have to root for your team. They don’t have a choice.
+ - Jeb Bush gave a speech yesterday. He had a pretty rough time. He accidentally said that ISIS has 200,000 men instead of 20,000, and then he mispronounced the name of the terrorist group Boko Haram. So if history has taught us anything, Jeb is well on his way to winning the White House.
+ - Apparently President Obama’s favorite cocktail is a martini. When asked how he likes it, he said, ‘On the beach, in Hawaii, in 2017.’
+ - In New York, there are so many potholes, they’re like craters on the moon. That’s another traffic thing.
+ - There’s a growing trend of older Americans who are using marijuana in their retirement. That makes sense because old people are always talking about their joints.
+ - The man who invented Doritos has passed away at the age of 97. He asked to be buried with the creator of Fritos and Cheetos in a variety pack.
+ - During a speech on Sunday, President Obama said to the crowd, ‘We’ve got to vote. Vote. Vote. Vote. Vote. Vote.’ This went on for an hour until someone finally fixed his teleprompter.
+ - When I see professional clowns, mimes, or people who makes ballon animals, I think of their relatives and how disappointed they must be.
+ - The Pentagon banned the army from using Chinese-made berets. In a more veiled slap at the Chinese, the Pentagon also banned any alternative form of checkers.
+ - The Illinois Senate passed a bill on Wednesday to legalize medical marijuana. The bill was passed after the state senator said, ‘Come on, dude, pass it. Come on.’
+ - Apple is apparently building a large solar energy farm in North Carolina. And if there’s any justice, the minute they’re done building it, God will introduce a newer, smaller sun that’s not compatible with their machinery.
+ - Here’s a little bit of good news. The Coast Guard says that BP is now catching up to 630,000 gallons of oil a day. The bad news is that they’re capturing it with ducks.
+ - I didn’t think it was going to be this fun. But everything just gets heightened when you have a baby. The volume gets turned up on life. I never knew I could be this happy, and that’s the truth.
+ - You only think of the best comeback when you leave.
+ - President Obama has reduced the sentences of 22 federal prisoners who were arrested for drug-related crimes – eight of whom were serving life sentences. It marks the first time someone has said ‘Thanks Obama’ but actually meant it.
+ - Iran said it will give up trying to make a nuclear weapon. But it got awkward when Iran said, ‘But just for Lent. We’ll start again on Monday.’
+ - Some areas near Dallas experienced a 3.5-magnitude earthquake, which some blame on fracking. However, scientists say that it was more likely aftershocks from Chris Christie celebrating at the Cowboys game.
+ - Scott Walker’s campaign slogan is ‘Reform. Growth. Safety.’ Which is actually similar to Donald Trump’s new slogan: ‘Mexico. Money. Crazy.’
+ - I like being absurd. Being silly.
+ - After facing backlash from customers, Subway says it will remove a chemical in its bread that is also found in yoga mats. Some people were like, ‘You mean I’ve been eating a dangerous chemical?’ While most people were like, ‘You mean I can eat my yoga mat?’
+ - Joe Biden went to Brazil in an effort to try and repair America’s relationship with their government. Biden said, ‘It’s great to be here in the Amazon. I’ve always wanted to see where all the books come from.’
+ - Another scandal for Hillary Clinton – they’re saying she used a private email address when she was secretary of state, which means the government couldn’t archive and preserve her emails. Then Obama said, ‘Don’t worry, we saw them. We see everyone’s emails.’
+ - The White House is worried about Joe Biden’s potential run for president, and a source says they fear that it wouldn’t have the right outcome. That’s right, they think he might win.
+ - Arnold Schwarzenegger’s publicist told USA Today that the actor has not ruled out running for governor of California, saying that he will make a decision soon. Reportedly Arnold needs that time to learn how to pronounce ‘gubernatorial.’
+ - Republicans also took control of the Senate after gaining another seven seats. I haven’t seen the GOP get this many seats since Chris Christie made an airline reservation.
+ - The Senate has passed a new bill that requires TV stations to lower the volume level on commercials. This is great, a hundred of the most powerful people in the nation have managed to do the same thing my remote does.
+ - NASA is developing space taxis to shuttle astronauts to the International Space Station. And just like New York taxis, they’re all going to be driven by aliens.
+ - President Obama awarded a National Medal of Arts to author Stephen King. You know, because if there’s anyone who can relate to the story of a guy trapped in a mansion that’s driving him insane, it’s Obama.
+ - There are reports that leaders from ISIS and al-Qaida met at a farm house in Syria last week, and agreed to work together against their common enemies. That story again: Two radical terrorist groups managed to do what two American political parties cannot.
+ - A new helicopter service called Gotham Air is now offering users cheap flights from Manhattan to JFK or Newark airports that start at just $99. If there’s two words I trust together in the same sentence, it’s ‘cheap’ and ‘helicopter.’
+ - Researchers here in New York created a robot that actually passed a self-awareness test. So if you’re keeping score, that’s robots: 1, Donald Trump, 0.
+ - I remember watching Soulja Boy on YouTube over and over again to prepare for it. For the first one, I was up all night in my kitchen, practicing the dance, because I knew I had to dance with Timberlake and that guy can dance.
+ - During a recent event at a restaurant called Tommy’s Country Ham House in South Carolina, presidential candidate Ben Carson delivered a speech right after he lost his front tooth. Which still left him with more teeth than everyone combined at Tommy’s Country Ham House.
+ - A group called the Texas Tea Party Patriots is hosting a debate next month where Newt Gingrich and Herman Cain will go head to head, while people watching that will go head to pillow.
+ - During an interview, former President George W. Bush discussed his painting hobby and said, ‘Never paint your wife or your mother.’ Then he added, ‘Because it’s almost impossible to get the paint out of their hair.’
+ - President Obama had beer with four unemployed construction workers. And Obama asked the guys what was it like to lose their jobs, and they were like, ‘Oh, you’ll see.’
+ - Congrats to Prince William and Kate Middleton, who welcomed a baby girl on Saturday. The royal baby weighed eight pounds – or around 12 American dollars.
+ - In a new interview, Herman Cain said that if Rick Perry were an ice cream flavor, he’d be ‘Rocky Road.’ I don’t know, Perry’s not really any flavor of ice cream. He’s just the brain freeze part.
+ - After a six-year battle, the Senate will vote next week to begin construction on the Keystone XL pipeline, which is an oil pipeline that runs from Canada to the Gulf Coast. They’re hoping the pipeline will provide enough oil to cover Kim Kardashian’s next photo shoot.
+ - We picked the Red Sox because they lose. If you root for something that loses for 86 years, you’re a pretty good fan. You don’t have to win everything to be a fan of something.
+ - With more and more states legalizing marijuana, companies are lining up to create the first marijuana breathalyzer. Officials say the toughest part is getting stoners to stop trying to inhale off the breathalyzer.
+ - Fifteen states across the country have gas prices that have dipped below $2. That means it’s now cheaper to buy a gallon of liquefied dinosaurs than one cup of coffee at Starbucks.
+ - Donald Trump announced that he’s running for president. During his speech he told the crowd that if elected he would be ‘the greatest jobs president that God ever created.’ Then God said, ‘Hey, don’t drag me into this publicity stunt.’
+ - A new study found that women gain more weight after marriage, but men gain more weight after a divorce. Yeah, the divorce usually takes place after men point out that women gained more weight after marriage.
+ - According to a new report, since he’s been governor, Chris Christie has spent $82,000 at a concession stand at MetLife Stadium. Now, I know it seems like the perfect story for a Chris Christie joke but I’m actually on a Chris Christie joke diet. So nothing for me, thanks.
+ - This morning my dad called me up and said, ‘So, tonight’s your last show, huh.’ And I said, ‘No, Dad, that’s someone else.’
+ - A new study found that most people can’t go 10 minutes without lying. But since the study took 20 minutes nobody knows what to believe.
+ - Yesterday on CNN, Joe Biden said he hasn’t made up his mind about whether he’ll run for president in 2016. Which raises the question: ‘Who was raising that question?’
+ - I saw that Donald Trump is selling his penthouse suite at the Trump Park Avenue building here in New York City for $21 million. When asked why he’s selling it now, Trump said ‘Hey, Americans seem to be buying everything else I’m selling, so why not strike while the iron’s hot.’
+ - The heroic New York doctor who caught Ebola has been declared Ebola free. President Obama called the doctor to thank him for his selflessness and compassion. Then to be safe, Obama threw his phone in a trash can and lit it on fire.
+ - Yesterday in Florida, President Obama kissed a woman on the cheek after she told him he looks good. Which explains why last night, Michelle made him sleep on Air Mattress One.
+ - There are reports that if Joe Biden runs for president, he would promise to serve for only one term – because nothing says confidence like promising your presidency would be over quickly.
+ - Rand Paul is taking a week-long break from talking to the media to spend time with his family before he officially announces that he is running for president. Because nothing motivates you to be on the road for two straight years like a week alone with your family.
+ - Facebook founder Mark Zuckerberg apparently called President Obama directly to complain about NSA and how it spies on ordinary Americans. That’s right, the guy who runs Facebook got mad at the NSA for spying on people. Talk about the pot unfriending the kettle!
+ - I’m so excited. Jay Leno is on the show tonight. He brought some really funny jokes and some great stories. Although I’m a little concerned he also brought his old desk and Kevin Eubanks. I just want Jay to be comfortable, but not too comfortable.
+ - Oh here’s an idea: let’s make pictures of our internal organs and give them to other people we love on Valentine’s Day. That’s not weird at all.
+ - A new poll also shows that a majority of people in Colorado think Hillary Clinton is not trustworthy. Although, that’s not saying much coming from the most paranoid state in America. ‘Hillary Clinton? She’s a cop?’
+ - Starbucks is planning to close down all the restrooms in its New York locations. Which explains the most popular new Starbucks order: An empty cup.
+ - While he was in Utah, Obama discussed immigration reform with leaders of the Mormon Church. Obama introduced the first lady. Then the church’s president introduced HIS first lady. And his second lady. And his third, fourth, and fifth ladies.
+ - President Obama finally has his own personal Twitter account. Even John McCain said, ‘Welcome to the Internet, grandpa.’
+ - The White House announced that it has rejected several petitions to legalize marijuana. They say it has nothing to do with politics. It’s just that they can’t accept a petition that was written on a crumpled up Funyuns bag.
+ - President Obama is launching a new $6 billion space policy that will ultimately take astronauts to Mars. Of course, it’s $6 billion and $45 if the astronauts have a carry-on.
+ - One of the candidates at the early GOP debate, George Pataki, said his routine before every debate is to drink a diet lemon Snapple iced tea and pray. Which is also the advice Chris Christie gets from his doctor.
+ - Thinking about all that – what it means to be happy – I think it overloaded your brain.
+ - A tell-all book by David Axelrod, one of President Obama’s former strategists, reveals that Obama chose Joe Biden as his VP because of his energy and enthusiasm. You know, the qualities you look for in someone whose main job is traveling to state funerals.
+ - As gas prices continue to drop, 28 states are now selling regular gasoline for less than $2 a gallon. It’s getting cheaper to pump two gallons of gas outside the station than it is to pump two squirts of nacho cheese inside.
+ - Time magazine interviewed Bill Clinton about the current presidential campaign, and he claimed he had to ask Hillary to marry him three times before she said yes. Then Hillary was like, ‘Yeah. That wasn’t me.’
+ - I just really don’t like being the center of attention that much. It’s kind of ironic.
+ - Arizona Senator John McCain announced that he plans on running for a sixth term because he is concerned about the nation’s security. He plans to help just like any other 80-year-old: by sitting on his porch with a police scanner.
+ - The Senate came one vote short of granting approval to build the Keystone pipeline. Democrats say the pipeline could accelerate global warming. Then people who’ve been outside today said, ‘Sounds good to me. Let’s accelerate that global warming.’
+ - Tomorrow President Obama will host NASCAR racing champion Kevin Harvick at the White House. They both said they look forward to spending an hour or two not having the slightest interest in what the other is saying.
+ - You run on the treadmill. But you need to stop watching The Food Network when you’re doing it. That is how you torture yourself.
+ - I read that yesterday, the Mexican peso hit its lowest point since March of 2009. In fact, things got so bad, it was seen leaving a bar with the American dollar.
+ - It’s something I worry about when I’m working out. I don’t want to get too fit. Because I don’t want the new DaVinci of this Millennium to say, “You. I have found my muse. I have to sculpt you.”
+ - During a recent interview, President Obama revealed that his favorite movie this year was ‘Boyhood.’ It makes sense. If there’s one thing Obama can identify with, it’s aging several years over the course of a couple of hours.
+ - I got every Dan Shaughnessy book known to man.
+ - Trump is running for president and he’s wasting no time getting down to business. In fact, just after his announcement he demanded to see Jeb Bush’s birth certificate.
+ - In a new poll of Democratic voters, presidential candidate Lincoln Chafee came in with zero percent support. Or in other words: We’re all tied with presidential candidate Lincoln Chafee.
+ - It’s all about the script. Reality is key to me and less cutesy.
+ - Sometimes in a movie, the lines are so perfect.
+ - Even the White House is weighing in on the deflate-gate scandal. Yesterday they encouraged Tom Brady to ‘be mindful of the way he serves as a role model.’ And then President Obama stuffed out his cigarette and went golfing at noon on a weekday.
+ - Jeb Bush is facing criticism after it was just revealed that he checked off his race as ‘Hispanic’ on a voter registration form back in 2009. When asked if he regrets it now, Bush said, ‘Si.’
+ - A new poll found that almost 70 percent of voters say that whoever our next president is, they must have political experience. You know, because it would be rude to say ‘anyone but Donald Trump.’
+ - The BP president said yesterday that the company would survive. That’s like someone running over your dog and saying, ‘Don’t worry, my car is fine.’
+ - Now that the midterm elections are over, President Obama has invited congressional leaders from both parties to a meeting at the White House tomorrow. When asked if he’s nervous, Obama said, ‘Oh, I’m not going to be there. I just invited them over. They can figure it out themselves.’
+ - Got Bin Laden AND interrupted Celebrity Apprentice? Win for Obama all around.
+ - Yesterday the CEO of Citigroup said that he can understand why all these Occupy Wall Street protesters are so frustrated. In fact, he felt so bad for them, he gave himself a $10 million sympathy bonus.
+ - Apparently, the Obamas chose New York City because they’ve gotten so used to people trying to break into their house.
+ - Jeb Bush’s brother Neil said that their mother has ‘come around’ to the idea of Jeb running for president in 2016. Because if there’s anything that says you’re qualified to be president, it’s your own mom saying, ‘I guess you could do it.’
+ - A top aide to Donald Trump says he quit the campaign this weekend because of Trump’s public feuds, but Trump said he was fired. When asked what he was fired for, Trump said, ‘Quitting!’
+ - Vladimir Putin celebrated his 63rd birthday today. He had a nice party, but it got awkward when two of his friends got him the same country.
+ - Ohio Governor John Kasich became the 16th Republican to announce that he is running for president. During his speech he referred to Jesus Christ, which is ironic because so did Americans when they heard another Republican was running for president.
+ - This week, Georgia’s board of education approved a plan that allows teachers to keep using the word Evolution when teaching biology. Though, as a compromise, dinosaurs are now called Jesus Horses.
+ - Sandler’s always good. Tom Hanks gave me some good advice.
+ - Listening is more important than talking.
+ - In a two-hour interview last Friday, Bruce Jenner told ABC’s Diane Sawyer, ‘For all intents and purposes, I’m a woman.’ At which point, Joe Biden ran in and started giving Bruce a shoulder rub.
+ - Ben Carson actually lost a tooth. Which explains why he said that under his leadership, Americans would be entitled to ‘life, liberty, and the purthuit of happineth.’
+ - The White House is apparently pushing to create more Latino-themed landmarks. Now that’s in addition to our current Latino-themed landmark, California.
+ - The acting director of the Secret Service, Joseph Clancy, said they may make the fence around the White House taller because of the recent security failures. When asked if he had any other ideas, he said, ‘Uh, make the sidewalk lower?’
+ - A new report found that Facebook has created more than 450,000 jobs. Unfortunately, photos posted on Facebook have ended 550,000 jobs.
+ - Big news from last night’s Republican debate, you guys. It turns out George Bush was actually the smart Texas governor.
+ - Yesterday, the Supreme Court spent over an hour listening to arguments on whether Obamacare is unconstitutional. Yeah, listening to arguments about Obamacare for an hour, or as most people call that, ‘Thanksgiving Dinner.’
+ - President Obama recently said that his day is all about politics, so in the mornings he likes to watch ESPN. So if you get the feeling he’s repeating himself every half hour, that’s where he learned it from.
+ - Rick Perry said Donald Trump is unfit to be president and called for him to immediately withdraw from the race. Then he said, ‘And that’s coming from ME!’
+ - In a speech in Texas, Donald Trump called Hillary Clinton ‘easily the worst Secretary of State in the history of our country.’ When asked what he based that on, Trump said, ‘I heard ME say it just now. So it’s gotta be true.’
+ - Today Mitt Romney visited a firehouse here in New York City. Of course, he was disappointed when he learned that the firehouse is not where you get to fire people.
+ - Sometimes I wish I had a terrible childhood, so that at least I’d have an excuse.
+ - I don’t even read the papers. I read ‘USA Today’ because it has color photos.
+ - I read that as marijuana legalization becomes more popular, it could affect the jobs of drug-sniffing dogs. Or as those dogs put it, ‘Thanks, Bo Obama.’
+ - John McCain addressed critics who believe he will be too old to run for a sixth term in the Senate, saying that he’s still healthy and ready to go. Then people around McCain said, ‘Why is he talking to that mannequin?’
+ - Everyone looks so much better when they smile.
+ - Marco Rubio’s presidential campaign has raised $40 million in the last week. When he heard that, Rubio said, ‘Hey, any chance I can drop out of the race and just keep the 40 million?’
+ - Politicians are really getting desperate. In fact, Senate Majority Leader Harry Reid sent out a final fundraising email to Democrats with the subject line, ‘I’m begging.’ Because what better way to show you’re a strong leader than acting like you’re drunk and dialing your ex?
+ - During the CPAC conference, Rand Paul told the crowd it was time for a new president and that people need to help make the change. Of course, most people agreed with him, since that’s how term limits work.
+ - Mitt Romney announced he will fight former heavyweight champion Evander Holyfield in a charity boxing match. You can tell that Romney is serious about it. Today, his butler gave him a piggyback ride up the steps of the Philadelphia art museum.
+ - The TSA’s airport body scanners have been shown to be so ineffective, the Homeland Security chairman suggested using traditional metal detectors. While LaGuardia will continue to just have a scarecrow dressed as a cop.
+ - Donald Trump told ABC news that if he had Oprah as a running mate, they could easily win. Although you know who’d definitely win? Oprah WITHOUT Donald Trump.
+ - Thank you ‘adults who wear back packs’ for letting me know that I don’t have to take you seriously.
+ - If people want to see you, they’ll find you. If they don’t see you on TV, they’ll find you on the Internet.
+ - I don’t shoot guns. I don’t know how to do that. I grew Upstate New York, so I fought with my fists.
+ - Senate Democrats blocked President Obama’s trade bill yesterday because they’re worried it could hurt jobs. It’s not an issue for Republicans, since they’ve all found work as presidential candidates.
+ - President Obama just made his first presidential trip to the state of Utah. Obama spent his time in Utah just like you’d expect – telling people, ‘Uh, no, I don’t play for the Jazz.’
+ - President Obama broke a world record after he reached a million followers on Twitter in just five hours. The only guys not following Obama? His Secret Service agents. They lost track months ago.
+ - Today, President Obama finally met with BP’s CEO, Tony Hayward, but the meeting was only scheduled 20 minutes. Call me crazy, but I think it should take more time to discuss an oil spill than it does to get your oil checked.
+ - A political action committee trying to raise money for a 2016 Hillary Clinton campaign is selling “Ready for Hillary” champagne glasses and Christmas ornaments. Because if one thing improves the holidays, it’s drinking mixed with politics.
+ - Newt Gingrich plans to announce his campaign for president this Wednesday. I don’t know about his chances. I mean, I’m not saying Gingrich peaked in the ’90s, but his campaign is being sponsored by Tamagotchis and Crystal Pepsi.
+ - Yesterday, the White House confirmed that President Obama will meet with Pope Francis during his visit in September. Some experts are wondering if they’ll discuss their disagreement over contraception. Then Joe Biden said, ‘I didn’t even know they were dating.’
+ - After President Obama announced his support for net neutrality yesterday, Texas Senator Ted Cruz tweeted that ‘Net neutrality is Obamacare for the Internet.’ While Ted Cruz continues to be the Taylor Swift of not getting over Obamacare.
+ - In a recent interview, Jeb Bush revealed that his brother George gave him the nickname ‘tortoise’ because he’s making slow, steady progress. Though I think the bigger story here is that compared to George, Jeb is the slow one.
+ - Nissan is recalling almost 135,000 Infiniti G35s to address an airbag problem. When Toyota heard that, they said, ‘Airbags! I knew we forgot something.’
+ - There are reports that French President Francois Hollande had an affair with an actress who is 18 years younger than him. It’s pretty serious. Under French law, he could face up to 30 high fives.
+ - Ten Delta Airlines baggage handlers were arrested for smuggling drugs into Detroit. Yeah, you can tell Delta was involved, because the drugs were supposed to be smuggled into Chicago.
+ - God invented mankind because he loved silly stories. Ralph Steadman I like being absurd.
+ - Many believe that Hillary Clinton was channeling President Obama during her recent speech in New York City. She focused on equality, justice, and how hard it was for her growing up as a young black man in Hawaii.
+ - According to a new survey, almost half of the voters in Ohio, Florida, and Pennsylvania say that they do not trust Hillary Clinton. Republicans immediately got together and said, ‘OK, this is a huge opportunity for us. How are we going to screw it up?’
+ - Thank you, hard taco shells, for surviving the long journey from factory, to supermarket, to my plate and then breaking the moment I put something inside you. Thank you.
+ - New York Mayor Bill de Blasio has been positioning himself to challenge Hillary Clinton for the Democratic nomination. Hillary once developed a program to deliver rural healthcare, while de Blasio once dropped a groundhog on its head.
+ - Look, I know these Rick Perry jokes are a little mean, but tomorrow, he won’t even remember them.
+ - In an interview last night, Rick Perry criticized Mitt Romney for flip-flopping on the issues. Romney said that Perry has no idea what he’s talking about. Then he added, ‘But he does know what he’s talking about.’
+ - This weekend President Obama attended the annual Gridiron Club Dinner, and during his speech he joked that he is getting older and crankier. Which explains why he announced he no longer supports President Obama.
+ - Donald Trump got in some trouble for saying that John McCain is not a war hero, and said, ‘I like people that weren’t captured.’ Not good. In fact, Trump’s people are telling him to lay low for a while until this all combs over.
+ - In several speeches and interviews, Donald Trump has brought up his book ‘The Art of the Deal,’ and said that Obama would have negotiated a better deal with Iran if he had read it. It got even more awkward for Obama when Iran was like, ‘It worked for us – you guys got screwed!’
+ - A new study found that students who are taught abstinence end up with better math scores. Of course, if you join the math team, the abstinence takes care of itself.
+ - The fans were so psyched that someone was doing a movie about a Boston fan that they were giving their all.
+ - After months of negotiations, Iran has finally agreed to reduce its nuclear weapons program. Which was great until Putin showed up and said, ‘Hi, I’m here about Craigslist ad for nukes.’
+ - Hillary Clinton is receiving criticism after telling a crowd to ‘unlock their full potential,’ because that line is commonly used by another possible candidate, Carly Fiorina. People said, ‘You can’t just steal someone’s slogan like that!’ And Hillary said, ‘Yes we can!’
+ - President Obama unveiled a $4 trillion budget for 2016 that would increase taxes on the wealthy and spend more money on education. He also made a snowball and put it in the oven, just to see which would last longer, his budget or the snowball.
+ - Sources say the Obama administration is in the ‘final stages’ of planning the closing of Guantanamo Bay. The way it’s gonna work is, they’re going to put a Radio Shack sign out front and let nature take its course.
+ - Jim Gilmore was the only GOP candidate not invited to the Republican debates tonight, but I saw that he actually planned to live-tweet it. When he heard that, Jeb Bush was like ‘Can I do that? I don’t want to be here!’
+ - Donald Trump’s campaign has raised about $100,000 in donations during the second quarter. Which raises an important question: Who is giving Donald Trump money? That’s like giving your money to a pile of money.
+ - Shouldn’t every day be Earth Day? I mean, what are our options?
+ - Both President Obama and former President George W. Bush were interviewed on ‘Face the Nation’ over the weekend. President Bush said there’s a 50 percent chance his brother Jeb will run for president in 2016. Then he said, ‘But there’s an 80 percent chance he won’t.’
+ - The big news is the midterm elections. Last night Republicans picked up a dozen seats in the House to give them their biggest majority since World War II. Or as they put it, ‘Time to party like it’s 1939!’
+ - Republican Ted Cruz announced that he will run for president in 2016. So finally, Carnival is no longer the most dangerous cruise in America.
+ - After Michael Jordan recently criticized President Obama’s golf game, Obama responded by saying that Jordan should spend more time thinking about his basketball team, the Charlotte Hornets. Then Jordan said, ‘Do you really want to talk about whose team got crushed this week?’
+ - New York Governor Andrew Cuomo just signed a bill that bans powdered alcohol from the state. So if you live in New York and you’re consuming powdered alcohol, your life just somehow got even worse.
+ - A recent study shows that standing at work for long periods of time is bad for you, after earlier research indicated that sitting for too long at work is bad for you. So really the only thing we know is, work is bad for you.
+ - I honestly, purposely have not gone to therapy because I know some crazy stuff’s going to be dragged up and, you know, I’ll be like, ‘Wait, what?’
+ - Researches tested a new form of medical marijuana that treats pain but doesn’t get the user high, prompting patients who need medical marijuana to declare, ‘Thank you?’
+ - Hillary Clinton made a campaign stop in Las Vegas yesterday. She said she wants citizenship for undocumented immigrants. But after seeing Americans celebrate Cinco de Mayo yesterday, immigrants said, ‘You know what, we’re good. We’re gonna head back now. We had enough.’
+ - I can’t believe there are so many people who aren’t us.
+ - Mitt Romney will travel to London where he will attend the Olympics opening ceremony. Of course it’s going ot be weird when they’re announcing all the countries, and he’s like ‘Got a bank account there, got one there, two bank accounts there.’
+ - Researchers in Canada say they have discovered the part of the brain that is used to make decisions, and this is weird: If you’re married, it’s actually located in your wife’s brain.
+ - During his weekly address to the nation, President Obama discussed higher education and said, ‘The most important skill you can sell is your knowledge.’ Or as English majors working at Starbucks put it, ‘No it’s not.’
+ - You’re sitting there, with your wife and your baby and your smiling dog, and you’re watching Real Housewives getting into fistfights on TV. And you go, ‘How great is my life? I’m so happy right now.’
+ - Arizona just became the 15th state to approve medical marijuana. So I give it three days before they stop caring about the whole immigration thing.
+ - Joe Biden was spotted with a bruise on his face that was apparently caused by his dog. I guess they collided when they both went after the same tennis ball.
+ - In her new book, Sarah Palin says she once gave up chocolate for an entire year just to prove she could do it. Still think she’s not qualified to be President?
+ - Vermont Senator Bernie Sanders is expected to announce tomorrow that he is running for president, making him Hillary Clinton’s only Democratic challenger so far. Or as Hillary put it, ‘Oooo, appetizers!’
+ - Rand Paul is officially running for president. He even revealed his campaign slogan, which is ‘Defeat the Washington machine. Unleash the American dream.’ It’s hard to tell if he’s running for president or doing an infomercial for Bowflex.
+ - Today New Jersey Gov. Chris Christie announced that he’s endorsing Mitt Romney for president. It’s good news for Romney. I mean, you always want Chris Christie on your side. Unless you’re in a canoe.
+ - President Obama and Mitt Romney both gave commencement speeches over the last few days. Obama was like, ‘You can be whatever you want to be,’ while Romney was like, ‘I can be whatever you want me to be.’
+ - President Obama spent Election Day away from any press coverage, attending closed-door meetings inside the White House. But on the bright side, it is nice to see some doors actually closed at the White House. It’s a whole new Secret Service security thing.
+ - No-one gets beaten to death quite like Hilary Swank.
+ - New Defense Secretary Ashton Carter said that he is open to letting transgender people serve in the military. He said there’s no reason to prevent people from being generals just because of their privates.
+ - President Obama said that if he could have any superpower, he’d want the ability to speak any language. That’s so everyone in the world could tell him he picked one of the lamest possible superpowers.
+ - Donald Trump said he still wants to look more closely at Obama’s birth certificate to make sure that it’s real. Incidentally, President Obama said the same exact thing about Donald Trump’s hair.
+ - Republican candidate Ben Carson told reporters he thinks American prisons might be too comfortable. As opposed to Mexican prisons that have personal showers with $5 million escape tunnels.
+ - In a recent interview, John McCain addressed Trump’s campaign rally in Arizona and said that he just quote, ‘fired up the crazies.’ Not to be confused with Trump’s show ‘Celebrity Apprentice,’ where he just FIRED the crazies.
+ - Leno, Conan. They are both really funny. They really know how to land one.
+ - I, of course, wanted to do something with Drew Barrymore. Please. So we were reading scripts back and forth and then we found this script, Fever Pitch.
+ - A house panel in Texas has approved full marijuana legalization for the state. Yeah, meaning Texas could go from having dude ranches to ‘Dude, ranches.’
+ - There are reports that Kim Jong Un climbed North Korea’s highest mountain. Kim Jong Un said all it took to climb that mountain was hard work, determination, and lying about climbing that mountain.
+ - A man in Thailand was arrested with more than 10,000 pairs of stolen underwear. Legal experts are expecting a brief trial.
+ - In a new interview, the president discussed the upcoming election. He said that Hillary Clinton is going to do great as a presidential candidate. When asked how Biden would do, Obama said, ‘Hillary’s going to do great.’
+ - According to a new poll, Republicans are more likely to have a doughnut for breakfast, while Democrats prefer to eat bagels and croissants. While Independents are that annoying friend who’s still looking at the menu after 15 minutes.
+ - Ted Cruz raised over a million dollars after announcing that he’s running for president. Which is why today RadioShack announced that it is also running for president.
+ - Despite Russia’s move to raise interest rates this week, the value of the ruble has continued to crash. Russia’s economy is so bad, Edward Snowden had to put government secrets on Craigslist.
+ - John Walker Lindh, a twenty-year-old American studying in Pakistan, was captured in Northern Afghanistan fighting for the Taliban. Experts call it the worst semester abroad program ever.
+ - Police in Texas arrested a man who was using the alias ‘Barack Obama’ while trying to steal money from 35 ATMs. They could tell something was up when a guy named Barack Obama was trying to take money from banks instead of giving it to them.
+ - President Obama became the first sitting president to visit a federal prison yesterday. Obama said it was a good chance to talk about prison reform, and to catch up with so many former congressmen.
+ - Anything I learned was just work hard, just keep working and don’t worry about the outside stuff. Whatever happens will happen.
+ - I had a gun and I had to run and shoot, which is not easy.
+ - Researches at Yale found a connection between brain cancer and work environment. The No. 1 most dangerous job for developing brain cancer? Plutonium hat model.
+ - People are being really picky about the upcoming election. I read that Americans do not want the next president to be a first-term senator, be over 65, or have a former president in the family. Then the Secret Service said, ‘Hey, whoever slips through slips through. No promises.’
+ - We have a really, really great dog. It doesn’t bark. My dog almost smiles, which is weird. He’s just a very happy dog.
+ - This week a man was arrested for jumping over the White House fence and trying to spray paint a political message. If that guy really wanted to get a message to the president, he could have just written it in an email to literally anyone.
+ - Hillary Clinton said that Libyan leader Moammar Gadhafi is engaged in ‘theater.’ Which explains the new strategy to defeat him: casting him as the lead in ‘Spider-Man: the Musical.’
+ - The Tonight Show didn’t seem like an actual job that you could have. All you remember is you watched Johnny Carson, and you never thought he would retire.
+ - The film ‘Boyhood’ won the Golden Globe for best drama. It follows one guy’s journey over the course of 12 years – or as Mitt Romney calls that, ‘running for president.’
+ - At a recent education summit, President Obama admitted that he can’t rap. When they heard, Americans said, ‘Good!’
+ - This is interesting. Researchers have found that people who drive drunk are more dangerous on the road than drivers who are high on marijuana. Don’t get too excited. It’s mostly because the drivers using marijuana are just sitting in the Taco Bell drive-through.
+ - It seems like everybody’s weighing in on Trumps campaign – even Dallas Mavericks owner Mark Cuban. He said that Trump is ‘probably the best thing to happen to politics in a long, long time.’ Then Trump was like, ‘Well, at least one Cuban loves me.’
+ - I’d do entire music videos in my bedroom, where I used to stand in front of my television memorizing the moves to Michael Jackson’s ‘Beat It.’
+ - When I was a kid, you would tune in to ‘The Tonight Show’ before you went to sleep. Johnny Carson. A big treat. I know it’s a privilege of mine to be able to be in people’s homes. So I hope I make everyone proud, including my parents, and do a good job in this.
+ - Hillary Clinton wrote an Op-Ed for a paper in Iowa about her plans to help the middle class. Middle-class Americans said, ‘Why didn’t you just say that in a speech?’ and she said, ‘Because I charge $200,000 for a speech.’
+ - Many people are noting the difference between Hillary Clinton’s friendly public appearances and her blunt and direct Twitter account. Yeah, she’s nice in person, and mean on the Internet. You know, kinda like EVERYONE.
+ - The White House announced that President Obama will attend a summit in Kenya this July. When asked if he’s ever been to Kenya, Obama said, ‘Of course. I was born – no, bored – over there. There’s nothing to do in Kenya.’
+ - When NBC told me I got the job, I asked, ‘Can we do it from New York?’ There was just silence on the phone.
+ - It was the 60th anniversary of ‘Face the Nation.’ During his interview, President Obama said, ‘Our country doesn’t fear the future. We grab it.’ Nothing says you grab the future like going on a 60-year-old show hosted by a 77-year-old-man to speak to a 90-year-old audience.
+ - A girl in New York whose parents were on Wife Swap is suing the show for 100-million dollars for making her look like a spoiled brat. Note to girl: guess what else makes you look like a spoiled brat? Being 15 and suing for a hundred million dollars.
+ - Democrats have been doing everything they can to get young people and college students to vote in the midterms. Though if you want students to participate in something, maybe you shouldn’t call them midterms.
+ - The favorite to win the Olympic gold medal in archery is a legally blind athlete from South Korea, mainly because everyone else is too scared to compete next to him.
+ - Wearing shorts is a huge perk. I think it’s probably one of the reasons people become mailmen. You also get to drive in that vehicle that should be illegal in the United States, where the steering wheel is on the other side. They have no rules! They are the punk rock of government jobs.
+ - I like living with myself. I mean obviously, because here I am interviewing myself.
+ - It was just revealed that Donald Trump hasn’t voted in primary elections in over 20 years. Or in simpler terms, Trump hasn’t voted in primary elections in over three wives.
+ - After Donald Trump wrote Lindsey Graham’s cellphone number on a piece of paper and showed it to everybody, Graham said he’s getting a new phone. Which explains Lindsey Graham’s latest campaign slogan, ‘New phone, who dis?’
+ - In a recent attack ad, the NRA claims that President Obama cares about his own children more than he cares about other children. In response, President Obama was like, ‘Yeah, that’s how families work.’
+ - Christine O’Donnell released a commercial in which she says, ‘I’m not a witch.’ That’s pretty good, though not as effective as her opponent’s slogan, ‘I’m not Christine O’Donnell.’
+ - I never sing in the shower. It’s very dangerous.
+ - I like to see people laugh who are normally serious.
+ - According to a new poll, 48 percent of Americans believe that Hillary Clinton is honest and trustworthy. Then Hillary said, ‘Actually I just made that poll up.’
+ - Yesterday President Obama traveled to Jamaica, where he will meet with students and Caribbean leaders. Jamaica’s such a beautiful place, Obama says he can’t wait to just take it all in, hold it for several seconds, and then exhale.
+ - New Jersey Gov. Chris Christie is going to Israel. He’s going to be pretty disappointed when he finds out the Gaza Strip isn’t a steak.
+ - Today President Obama gave a major speech where he defended his handling of the economy. And there were tons of people in the audience, you know, since nobody had to be at work.
+ - The federal government is starting to plan for climate change by making extended forecasts that can help people plan for extreme weather – because what can go wrong when you combine the efficiency of government with the accuracy of weathermen?
+ - Officials from the soccer organization FIFA, which decides which cities get to host the World Cup, are accused of accepting bribes when making their decision. Of course the toughest part for the soccer officials was taking bribes without using their hands.
+ - There are reports that Russia is actually working with North Korea to encourage “collaboration and cooperation” between the two countries. Yeah, they believe that with Russia’s economic power and North Korea’s technology, they can be a real threat to 1987.
+ - Hillary Clinton was actually inducted into the Irish American Hall of Fame yesterday. Hillary said she’s very proud of her Irish heritage or her Italian heritage or her Asian heritage. Whatever it takes to seal the deal with you guys. I’ve got to get into that Oval Office.
+ - In an interview, President Obama said he recently deejayed a small dance party at the White House. Obama has a lot in common with deejays. He takes requests and then completely ignores them.
+ - I’m not a big baseball fan, to be honest.
+ - Over on the Democratic side, Martin O’Malley recently spoke about the need for Wall Street reform and said that he isn’t running for president to be quote, ‘wined and dined’ by executives. Then Chris Christie said, ‘And I am also not running to be wined.’
+ - There couldn’t have been a better Hollywood ending for us. It’s beyond baseball. It’s rooting for your family.
+ - I’m going to North Pole to help out Santa this year.
+ - I’m on so late I’m definitely the last seconds of anyone’s attention. So I just want to give them something dumb to laugh at, so they go, ‘That’s funny,’ then fall asleep.
+ - The White House encouraged Tom Brady to be more of a role model. They would’ve said more, but there was a drunken Secret Service agent streaking across the Rose Garden.
+ - This week Bill Clinton tweeted a photo of himself reading George W. Bush’s new book ‘41.’ Then George W. Bush responded to that post on Instagram. Then John McCain said ‘You two are hilarious’ by telegraph.
+ - Shepard Fairey, the street artist responsible for President Obama’s ‘Hope’ poster, is now facing vandalism charges in Detroit. It’s pretty serious. Detroit officials say the artist’s spray paint caused over $9,000 worth of improvements.
+ - According to a new poll, the number of Americans who trust Hillary is dropping. Specifically into a hole that Hillary covered with leaves.
+ - There are reports that President Obama and his family may move to New York City after his term is over. Unfortunately, the city is so expensive, he’s looking for another ex-president to be roommates with.
+ - This week Biden said that he will decide on a potential 2016 presidential campaign by the spring or the summer. Then he said, ‘Whichever comes first.’
+ - An Internet rumor claims that John Kerry had an affair with a young woman. When asked if this was similar to the Clinton-Lewinsky scandal, a spokesman said ‘Close, but no cigar.’
+ - Donald Trump’s not backing down. Yesterday he said he doesn’t need to be lectured by the other Republican candidates, who he says have no business running for president. Not to be confused with Donald Trump, who ran for president and now has no business.
+ - In a recent interview, Hillary Clinton said that one of the jobs that prepared her to be president was sliming fish in Alaska. As opposed to Bill, who learned by catching crabs in Cancun.
+ - During a recent press conference, former President Jimmy Carter said he could never run for president today because he doesn’t have a lot of money. Well, that and the fact that he’s the famously bad president Jimmy Carter.
+ - We have first lady Michelle Obama on the show tonight. As you’d expect, security’s been pretty tight. On my way in I got five pat-downs, and that was just from Joe Biden.
+ - Mike Huckabee said he’s the only person who has fought the Clinton political machine and won. As opposed to Democratic candidate Bernie Sanders, who’s the only person who fought a fax machine and lost.
+ - President Obama is in China now for an economic summit in Beijing. The president wore a traditional purple silk shirt along with Chinese President Xi Jinping and Vladimir Putin. That’s after they taught Putin how to put a shirt ON.
+ - The one thing you shouldn’t do is try to tell a cab driver how to get somewhere.
+ - Officials at the London Olympics will be conducting 5,000 tests for steroids. Or as Lance Armstrong calls that, ‘a Monday.’
+ - Democratic Senator Harry Reid is expected to make a full recovery after he was exercising with a resistance band that snapped, causing him to fall. The good news is he’s fine. The bad news is there’s no video of it.
+ - Japan and South Korea are on high alert after North Korea successfully launched a long-range rocket. Both countries are surprised by North Korea’s successful launch, but definitely not as surprised as North Korea.
+ - One GOP Congressman named Carlos Curbelo actually suggested that Donald Trump may be a ‘phantom candidate’ that has been planted by the Democrats. The DNC strongly denied this – while Hillary said, ‘Crap, they figured it out! Take off the wig, Bill.’
+ - Regis Philbin’s back in primetime, hosting 11 new episodes of ‘Who Wants To Be a Millionaire.’ But because of Obama’s tax plan, it’s been re-titled ‘Who Wants To Win Just Under $250,000.’
+ - I didn’t act like I was there. I just got into the story.
+ - They’re making a movie about Barack and Michelle Obama’s first date, called ‘Southside With You,’ and the producers say they’ve already cast someone to play young Barack Obama. Now, I’m not saying the president has aged a lot but that young actor is Morgan Freeman.
+ - It’s being reported that Google spent over $5 million on lobbying just during the first quarter of this year. You’d think Google wouldn’t really need to lobby politicians. All they have to say is, ‘We have your search history. Do what we tell you.’
+ - Happy birthday to Arnold Palmer, who turned 82. That’s 41 years iced tea and 41 years lemonade.
+
+311 quotes

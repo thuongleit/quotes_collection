@@ -1,0 +1,64 @@
+ - Silence is God’s first language.
+ - In the dark night of the soul, bright flows the river of God.
+ - Whenever anything disagreeable or displeasing happens to you, remember Christ crucified and be silent.
+ - Never give up prayer, and should you find dryness and difficulty, persevere in it for this very reason. God often desires to see what love your soul has, and love is not tried by ease and satisfaction.
+ - God leads every soul by a separate path.
+ - In the twilight of life, God will not judge us on our earthly possessions and human success, but rather on how much we have loved.
+ - In the inner stillness where meditation leads, the Spirit secretly anoints the soul and heals our deepest wounds.
+ - Contemplation is nothing else but a secret, peaceful, and loving infusion of God, which, if admitted, will set the soul on fire with the Spirit of love.
+ - The soul that walks in love neither tires others nor grows tired.
+ - It is great wisdom to know how to be silent and to look at neither the remarks, nor the deeds, nor the lives of others.
+ - Never relax, for you will not attain to the possession of true spiritual delights if first you do not learn to deny your every desire.
+ - Faith is the union of God and the soul.
+ - Love consists not in feeling great things but in having great detachment and in suffering for the Beloved.
+ - Whoever does not seek the cross of Christ doesn’t seek the glory of Christ.
+ - Seek by reading and you will find by meditating. Knock by praying, and it will be opened to you in contemplation.
+ - Who teaches the soul if not God?
+ - In tribulation immediately draw near to God with confidence, and you will receive strength, enlightenment, and instruction.
+ - If you lose an opportunity you will be like one who lets the bird fly away; you will never get it back.
+ - My sole occupation is love.
+ - Now that I no longer desire all, I have it all without desire.
+ - Do not let your “eye” be drawn by the false “beacon lamps” -of wealth, or position, or fame, or possessions. Be vigilant over your will and desires, for these are the corrupt forces that dwell within, and keep you from living free.
+ - He who interrupts the course of his spiritual exercises and prayer is like a man who allows a bird to escape from his hand; he can hardly catch it again.
+ - If you do not learn to deny yourself, you can make no progress in perfection.
+ - The soul that journey’s to God, but doesn’t shake off it’s cares and quiet it’s appetities, is like someone who drags a cart of dirt uphill.
+ - Beloved, all that is harsh and difficult I want for myself, and all that is gentle and sweet for thee.
+ - God passes through the thicket of the world, and wherever His glance falls He turns all things to beauty.
+ - Desolation is a file, and the endurance of darkness is preparation for great light.
+ - At the end of our life, we shall all be judged by charity.
+ - Live in faith and hope, though it be in darkness, for in this darkness God protects the soul. Cast your care upon God for you are His and He will not forget you. Do not think that He is leaving you alone, for that would be to wrong Him.
+ - The soul of one who serves God always swims in joy, always keeps holiday, is always in her palace of jubilation, ever singing with fresh ardor and fresh pleasure a new song of joy and love.
+ - The purest suffering bears and carries in its train the purest understanding.
+ - God desires from you the least degree of purity of conscience more than all the works you can perform.
+ - The virtuous soul that is alone and without a master is like a long lone burning coal; it will grow colder rather than hotter.
+ - Live in the world as if only God and your soul were in it; then your heart will never be made captive by any earthly thing.
+ - Faith is a dark night for man, but in this very way it gives him light.
+ - Where there is no love, pour love in, and you will draw love out.
+ - The eternal spring is hidden in this living bread for our life’s sake, although it is night. It is here calling out to creatures; and they satisfy their thirst, although in darkness, because it is night. This living spring that I long for, I see in this bread of life, although it is night.
+ - To love is to be transformed into what we love. To love God is therefore to be transformed into God.
+ - Abide in peace, banish cares, take no account of all that happens, and you will serve God according to his good pleasure and rest in him.
+ - Have a great love for those who contradict and fail to love you, for in this way love is begotten in a heart that has no love.
+ - A Christian should always remember that the value of his good works is not based on their number and excellence, but on the love of God which prompts him to do these things.
+ - He who avoids prayer is avoiding everything that is good.
+ - Though the path is plain and smooth for men of good will, he who walks it will not travel far, and will do so only with difficulty, if he does not have good feet: that is, courage and a persevering spirit.
+ - Obedience is a penance of reason, and, on that account, a sacrifice more acceptable than all corporal penances and mortifications.
+ - He who loves is not ashamed before men of what he does for God, neither does he hide it through shame though the whole world should condemn it.
+ - Let my soul live as if separated from my body.
+ - The eternal tide flows hid in Living Bread. That with its Heavenly Life too be fed...
+ - Never listen to accounts of the frailty of others; and if anyone should complain to you of another, humbly ask him not to speak about him at all.
+ - The road is narrow. He who wishes to travel it more easily must cast off all things and use the cross as his cane. In other words, he must be truly resolved to suffer willingly for the love of God in all things.
+ - However softly we speak, God is so close to us that he can hear us; nor do we need wings to go in search of him, but merely to seek solitude and contemplate him within ourselves, without being surprised to find such a good Guest there.
+ - However high be your endeavors, unless you renounce and subjugate your own will – unless you forget yourself and all that pertains to yourself – not one step will you advance on the road to perfection.
+ - Lord, I shall see you no more with the eyes of the flesh...
+ - There is nothing better or morenecessary than love.
+ - Not to follow the advice of our confessor is pride and a want of faith.
+ - Strive always to confess your sins with a deep knowledge of your own wretchedness and with clarity and purity.
+ - Let all find COMPASSION in YOU.
+ - Take God for your spouse and friend and walk with him continually, and you will not sin and will learn to love, and the things you must do will work out prosperously for you.
+ - The window of the soul cleansed perfectly and made completely transparent by the divine light.
+ - They say, “God told me”, or “God replied to me”. And yet most of the time they are talking to themselves.
+ - See that you are not suddenly saddened by the adversities of this world, for you do not know the good they bring, being ordained in the judgments of God for the everlasting joy of the elect.
+ - If it were given to a man to see virtue’s reward in the next world, he would occupy his intellect, memory and will in nothing but good works, careless of danger or fatigue.
+ - Yearning: It needs to hurt in order to be worthy of the word. Otherwise it is just wanting.
+
+62 quotes

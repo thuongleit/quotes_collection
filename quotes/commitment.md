@@ -1,0 +1,42 @@
+ - The road to success is through commitment. ~~Will Smith
+ - Most people fail, not because of lack of desire, but, because of lack of commitment. ~~Vince Lombardi
+ - Commitment is an act, not a word. ~~Jean-Paul Sartre
+ - If you want to take the island, then burn your boats. With absolute commitment come the insights that create real victory. ~~Tony Robbins
+ - At the moment of commitment the entire universe conspires to assist you. ~~Johann Wolfgang von Goethe
+ - The greatest things in life all require commitment, sacrifice, some struggle and hardship. It’s not easy. But absolutely worth it. ~~Robin S. Sharma
+ - Your commitments can develop you or destroy you, but either way, they will define you. ~~Rick Warren
+ - Realize that the hardest step in achieving anything is making a true commitment. ~~Tony Robbins
+ - Commitment is that turning point in your life when you seize the moment to alter your destiny. ~~Denis Waitley
+ - Integrity is keeping a commitment even after circumstances have changed. ~~David Jeremiah
+ - Remember that all success is based on long-term commitment, faith, discipline, attitude and a few stepping stones along the way. ~~Jim Rohn
+ - Accountability is the glue that ties commitment to the result. ~~Bob Proctor
+ - The only limit to your impact is your imagination and commitment. ~~Tony Robbins
+ - Courage is the commitment to begin without any guarantee of success. ~~Johann Wolfgang von Goethe
+ - Once a man has made a commitment to a way of life, he puts the greatest strength in the world behind him. It’s something we call heart power. Once a man has made this commitment, nothing will stop him short of success. ~~Vince Lombardi
+ - The time to hesitate is through. ~~Jim Morrison
+ - Fall in love with some activity, and do it! Nobody ever figures out what life is all about, and it doesn’t matter. ~~Richard P. Feynman
+ - Aspire greatly; anything less than a commitment to excellence becomes an acceptance of mediocrity. ~~Brian Tracy
+ - Your silence will not protect you. ~~Audre Lorde
+ - Unless a man believes in himself and makes a total commitment to his career and puts everything he has into it – his mind, his body, his heart – what’s life worth to him? ~~Vince Lombardi
+ - The how will show up after the commitment to the what. ~~Tony Robbins
+ - Honor your commitments with integrity. ~~Les Brown
+ - You have to be un-compromised in your level of commitment to whatever you are doing, or it can disappear as fast as it appeared. Commitment cannot be compromised by rewards. ~~Michael Jordan
+ - Nature loves courage. You make the commitment and nature will respond to that commitment by removing impossible obstacles. Dream the impossible dream and the world will not grind you under, it will lift you up. ~~Terence McKenna
+ - Only to the extent that we expose ourselves over and over to annihilation can that which is indestructible in us be found. ~~Pema Chödrön
+ - Compassion is not a virtue – it is a commitment. It’s not something we have or don’t have – it’s something we choose to practice. ~~Brené Brown
+ - Lighthouses don’t go running all over an island looking for boats to save; they just stand there shining. ~~Anne Lamott
+ - Trust only movement. Life happens at the level of events, not of words. Trust movement. ~~Alfred Adler
+ - The most important thing is to have a sense of responsibility, commitment, and concern for each of our fellow human beings. ~~Dalai Lama XIV
+ - Until one is committed, there is hesitancy, the chance to draw back, always ineffectiveness. Concerning all acts of initiation – creation – there is one elementary truth, the ignorance of which kills countless ideas and splendid plans... ~~Johann Wolfgang von Goethe
+ - Our only hope lies in the power of our love, generosity, tolerance and understanding and our commitment to making the world a better place for all... ~~Muhammad Ali
+ - The way you get meaning into your life is to devote yourself to loving others, devote yourself to your community around you, and devote yourself to creating something that gives you purpose and meaning. ~~Mitch Albom
+ - Every man has his own destiny: the only imperative is to follow it, to accept it, no matter where it leads him. ~~Henry Miller
+ - As a peaceful warrior, I would choose when, where and how I would behave. With that commitment, I began to live the life of a warrior. ~~Dan Millman
+ - Love is just a word until someone comes along and gives it meaning. Dream is also just a word until you decide to fight for it with all your enthusiasm and commitment. ~~Paulo Coelho
+ - Tolerance implies no lack of commitment to one’s own beliefs. Rather it condemns the oppression or persecution of others. ~~John F. Kennedy
+ - True peace must be anchored in justice and an unwavering commitment to universal rights for all humans, regardless of ethnicity, religion, gender, national origin or any other identity attribute. ~~Desmond Tutu
+ - A great commitment to the Great Commandment and the Great Commission will grow a great church. ~~Rick Warren
+ - Network marketing gives people the opportunity, with very low risk and very low financial commitment, to build their own income-generating asset and acquire great wealth. ~~Robert T. Kiyosaki
+ - You can be committed to Church but not committed to Christ, but you cannot be committed to Christ and not committed to church. ~~Joel Osteen
+
+40 quotes

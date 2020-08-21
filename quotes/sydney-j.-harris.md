@@ -1,0 +1,134 @@
+ - The whole purpose of education is to turn mirrors into windows.
+ - The time to relax is when you don’t have time for it.
+ - Our dilemma is that we hate change and love it at the same time; what we really want is for things to remain the same but get better.
+ - Regret for the things we did can be tempered by time; it is regret for the things we did not do that is inconsolable.
+ - Happiness is a direction, not a place.
+ - The two words ‘information’ and ‘communication’ are often used interchangeably, but they signify quite different things. Information is giving out; communication is getting through.
+ - History repeats itself, but in such cunning disguise that we never detect the resemblance until the damage is done.
+ - Self-discipline without talent can often achieve astounding results, whereas talent without self-discipline inevitably dooms itself to failure.
+ - Elitism is the slur directed at merit by mediocrity.
+ - When I hear somebody sigh, ‘Life is hard,’ I am always tempted to ask, ‘Compared to what?’
+ - At it’s highest level, the purpose of teaching is not to teach – it is to inspire the desire for learning. Once a student’s mind is set on fire, it will find a way to provide its own fuel.
+ - A loser says that’s the way it’s always been done. A winner says there ought to be a better way.
+ - A winner rebukes and forgives; a loser is too timid to rebuke and too petty to forgive.
+ - If you’re not part of the solution, you’re part of the problem, but the perpetual human predicament is that the answer soon poses its own problems.
+ - Maturity begins when we’re content to feel we’re right about something without feeling the necessity to prove someone else wrong.
+ - Most people are mirrors, reflecting the moods and emotions of the times; few are windows, bringing light to bear on the dark corners where troubles fester. The whole purpose of education is to turn mirrors into windows.
+ - An idealist believes the short run doesn’t count. A cynic believes the long run doesn’t matter. A realist believes that what is done or left undone in the short run determines the long run.
+ - Time is love, above all else. It is the most precious commodity in the world and should be lavished on those we care most about.
+ - We believe what we want to believe, what we like to believe, what suits our prejudices and fuels our passions.
+ - The art of listening needs its highest development in listening to oneself; our most important task is to develop an ear that can really hear what we’re saying.
+ - If the devil could be persuaded to write a bible, he would title it, “You Only Live Once.”
+ - We truly possess only what we are able to renounce; otherwise, we are simply possessed by our possessions.
+ - Law is order in liberty, and without order liberty is social chaos.
+ - Good teaching must be slow enough so that it is not confusing, and fast enough so that it is not boring.
+ - The greatest enemy of progress is not stagnation, but false progress.
+ - Nobody can be so amusingly arrogant as a young man who has just discovered an old idea and thinks it is his own.
+ - Real loneliness consists not in being alone, but in being with the wrong person, in the suffocating darkness of a room in which no deep communication is possible.
+ - If a small thing has the power to make you angry, does that not indicate something about your size?
+ - Happiness held is the seed; happiness shared is the flower. A truly happy person is one who can enjoy the scenery while on a detour. Happiness is a direction, not a place.
+ - Many people know how to work hard; many others know how to play well; but the rarest talent in the world is the ability to introduce elements of playfulness into work, and to put some constructive labor into our leisure.
+ - The commonest fallacy among women is that simply having children makes them a mother – which is as absurd as believing that having a piano makes one a musician.
+ - The best combination of parents consists of a father who is gentle beneath his firmness, and a mother who is firm beneath her gentleness.
+ - Honesty consists of the unwillingness to lie to others; maturity, which is equally hard to attain, consists of the unwillingness to lie to oneself.
+ - Why do so many people yearn for an eternal life when they don’t even know what to do with themselves in this brief one?
+ - The art of living consists in knowing which impulses to obey and which must be made to obey.
+ - Those who imagine that the world is against them have generally conspired to make it true.
+ - Why are we willing to accept a new mathematical formula we don’t understand as the product of a brilliant mind, while rejecting a new art form we don’t understand as the product of a deranged mind?
+ - The pessimist sees only the tunnel; the optimist sees the light at the end of the tunnel; the realist sees the tunnel and the light – and the next tunnel.
+ - The profound immoralities of our time are cruelty, indifference, injustice and the use of others as means rather than ends in themselves.
+ - Any philosophy that can be put in a nutshell belongs there.
+ - Character is something you forge for yourself; temperament is something you are born with and can only slightly modify.
+ - Intolerance is the most socially acceptable form of egotism, for it permits us to assume superiority without personal boasting.
+ - A winner rebukes and forgives; a loser is too Forgiveness breaks the chain of causality because he who forgives you – out of love – takes upon himself the consequences of what you have done. Forgiveness, therefore, always entails a sacrifice.
+ - Many a secret that cannot be pried out by curiosity can be drawn out by indifference.
+ - Democracy is the only system that persists in asking the powers that be whether they are the powers that ought to be.
+ - Never take the advice of someone who has not had your kind of trouble.
+ - A cynic is not merely one who reads bitter lessons from the past, his is also one who is permanently disappointed in the future.
+ - Much as a teacher may wince at the thought, he is also an entertainer – for unless he can hold his audience, he cannot really instruct or edify them.
+ - You may be sure that when a man begins to call himself a realist he is preparing to do something that he is secretly ashamed of doing.
+ - People who think they’re generous to a fault usually think that’s their only fault.
+ - Being yourself is not remaining where you are, or being satisfied with what you are. It is the point of departure.
+ - A famously wise old man in a village was once asked how he came by his wisdom. “I got it from my good judgment,” he answered. And where did his good judgment come from? “I got it from my bad judgment.”
+ - Nuclear war is inevitable, says the pessimists; Nuclear war is impossible, says the optimists; Nuclear war is inevitable unless we make it impossible, says the realists.
+ - Confidence, once lost or betrayed, can never be restored again to the same measure; and we learn too late in life that our acts of deception are irrevocable – they may be forgiven, but they cannot be forgotten by their victims.
+ - Nothing is as easy to make as a promise this winter to do something next summer; this is how commencement speakers are caught.
+ - We have not passed that subtle line between childhood and adulthood until we have stopped saying ‘It got lost,’ and say, ‘I lost it.’
+ - Man’s unique agony as a species consists in his perpetual conflict between the desire to stand out and the need to blend in.
+ - People who won’t help others in trouble “because they got into trouble through their own fault” would probably not throw a lifeline to a drowning person until they learned whether that person fell in through his or her own fault or not.
+ - But what is significant is that if you don’t want to like and accept somebody, one excuse is as good as another. The objective facts don’t matter, and the reasons are never as ‘reasonable’ as we like to think they are.
+ - The best thing you can give children, next to good habits, are good memories.
+ - We must become masters of our own actions and attitudes. To let another person determine whether we will be rude or gracious, elated or depressed is to give control of ourselves. The only true possession is self possession.
+ - When you run into someone who is disagreeable to others, you may be sure he is uncomfortable with himself; the amount of pain we inflict upon others is directly proportional to the amount we feel within us.
+ - The primary purpose of a liberal education is to make one’s mind a pleasant place in which to spend one’s leisure.
+ - No one should pay attention to a man delivering a lecture or a sermon on his “philosophy of life” until we know exactly how he treats his wife, his children, his neighbors, his friends, his subordinates and his enemies.
+ - Between the semi-educated, who offer simplistic answers to complex questions, and the overeducated, who offer complicated answers to simple questions, it is a wonder that any questions get satisfactorily answered at all.
+ - The paradox of friendship is that it is both the strongest thing in the world and the most fragile. Wild horses cannot separate friends, but whining words can. A man will lay down his life for his friend but will not sacrifice his eardrums.
+ - Men make counterfeit money; in many more cases, money makes counterfeit men.
+ - Nobody can misunderstand a child as much as his own parents.
+ - Many persons of high intelligence have notoriously poor judgement.
+ - Middle Age is that perplexing time of life when we hear two voices calling us, one saying, ‘Why not?’ and the other, ‘Why bother?’
+ - And most of the failures in parent-child relationships, from my observation, begin when the child begins to acquire a mind and a will of its own, to make independent decisions and to question the omnipotence or the wisdom of the parent.
+ - The truest test of independent judgment is being able to dislike someone who admires us, and to admire someone who dislikes us.
+ - Almost every man looks more so in a belted trench coat.
+ - The difference between faith and superstition is that the first uses reason to go as far as it can, and then makes the jump; the second shuns reason entirely – which is why superstition is not the ally, but the enemy, of true religion.
+ - A truly successful person knows how to overcome the past, use the present, and prepare for the future-but unless we can first surmount the past, we cannot effectively cope with either the present or the future.
+ - A winner knows how much he still has to learn, even when he is considered an expert by others; a loser wants to be considered an expert by others before he has learned enough to know how little he knows.
+ - The world has always been betrayed by decent men with bad ideals.
+ - The most important thing in an argument, next to being right, is to leave an escape hatch for your opponent, so that he can gracefully swing over to your side without too much apparent loss of face.
+ - Why do most Americans look up to education and down upon educated people?
+ - When a baseball player makes an error, it goes into the record and is published. How many of us could stand this sort of daily scrutiny?
+ - Enemies, as well as lovers, come to resemble each other over a period of time.
+ - Isolation always perverts; when a man lives only among his own sort, he soon begins to believe that his sort are the best sort. This attitude breeds both the arrogance of the conservative and the bitterness of the radical.
+ - People decline invitations when they are “indisposed” physically, and I wish they would do likewise when they feel indisposed emotionally. A person has no more right to attend a party with a head full of venom than with a throat full of virus.
+ - As the horsepower in modern automobiles steadily rises, the congestion of traffic steadily lowers the average possible speed of your car. This is known as Progress.
+ - When we have “second thoughts” about something, our first thoughts don’t seem like thoughts at all – just feelings.
+ - A ‘penchant for telling the truth’ can cripple a candidates chances faster than being caught in flagrante delicto with the governor’s wife.
+ - Sincerity that thinks it is the sole possessor of the truth is a deadlier sin than hypocrisy, which knows better.
+ - The main discomfort in being a middle-of-the-roader is that you get sideswiped by partisans going in both directions.
+ - Marriages we regard as the happiest are those in which each of the partners believes he or she got the best of it.
+ - If you cannot endure to be thought in the wrong, you will begin to do terrible things to make the wrong appear right.
+ - Almost no one is foolish enough to imagine that he automatically deserves great success in any field of activity; yet almost everyone believes that he automatically deserves success in marriage.
+ - Take away grievances from some people and you remove their reasons for living; most of us are nourished by hope, but a considerable minority get psychic nutrition from their resentments, and would waste away purposelessly without them.
+ - It may be true that the weak will always be driven to the wall; but it is the task of a just society to see that the wall is climbable.
+ - We evaluate others with a Godlike justice, but we want them to evaluate us with a Godlike compassion.
+ - Every morning I take out my bankbook, stare at it, shudder – and turn quickly to my typewriter.
+ - There is no such thing as an “atrocity” in warfare that is greater than the atrocity of warfare itself.
+ - Genealogy: A perverse preoccupation of those who seek to demonstrate that their forebears were better people than they are.
+ - It is not only useless, it is harmful, to believe in oneself until one truly knows oneself. And to know oneself means to accept our moments of insanity, of eccentricity, of childishness and blindness.
+ - Somebody who never got over the embarrassing fact that he was born in bed with a lady.
+ - Gourmet: Usually little more than a glutton festooned with credit cards.
+ - The beauty of ‘spacing’ children many years apart lies in the fact that parents have time to learn the mistakes that were made with the older ones – which permits them to make exactly the opposite mistakes with the younger ones.
+ - The deepest and rarest kind of courage has nothing to do with feats or obstacles in the outside world; and, indeed, has nothing to do with the outside world – it is the courage to be who you are.
+ - Those obsessed with health are not healthy; the first requisite of good health is a certain calculated carelessness about oneself.
+ - By the time a man asks you for advice, he has generally made up his mind what he wants to do, and is looking for confirmation rather than counseling.
+ - We can often endure an extra pound of pain far more easily than we can suffer the withdrawal of an ounce of accustomed pleasure.
+ - The severest test of character is not so much the ability to keep a secret as it is, when the secret is finally out, to refrain from disclosing that you knew it all along.
+ - The principal difference between love and hate is that love is a irradiation, and hate is a concentration. Love makes everything lovely; hate concentrates itself on the object of its hatred.
+ - The greatest educational dogma is also its greatest fallacy: the belief that what must be learned can necessarily be taught.
+ - The real danger is not that computers will begin to think like men, but that men will begin to think like computers.
+ - When we inform, we lead from strength; when we communicate, we lead from weakness – and it is precisely this confession of mortality that engages the ears, heads and hearts of those we want to enlist as allies in a common cause.
+ - Many people feel “guilty” about things they shouldn’t feel guilty about, in order to shut out feelings of guilt about things they should feel guilty about.
+ - The lusts of the flesh can be gratified anywhere; it is not this sort of license that distinguishes New York. It is rather, a lust of the total ego for recognition, even for eminence. More than elsewhere, everybody here wants to be somebody.
+ - All our efforts to attain immortality-by statesmanship, by conquest, by science or the arts-are equally vain in the long run, because the long run is longer than any of us can imagine.
+ - There’s no point in burying a hatchet if you’re going to put up a marker on the site.
+ - Perseverance is the most overrated of traits, if it is unaccompanied by talent; beating your head against a wall is more likely to produce a concussion in the head than a hole in the wall.
+ - Western civilization has not yet learned the lesson that the energy we expend in ‘getting things done’ is less important than the moral strength it takes to decide what is worth doing and what is right to do.
+ - God cannot be solemn, or he would not have blessed man with the incalculable gift of laughter.
+ - The founder of every creed from Jesus Christ to Karl Marx, would be appalled to return to earth and see what has been made of that creed, not by its enemies, but by its most devoted adherents.
+ - Many married couples separate because they quarrel incessantly, but just as many separate because they were never honest enough or courageous enough to quarrel when they should have.
+ - Once we assuage our conscience by calling something a “necessary evil”, it begins to look more and more necessary and less and less evil.
+ - More trouble is caused in this world by indiscreet answers than by indiscreet questions.
+ - All significant achievement comes from daring from experiment from the willingness to risk failure.
+ - Sometimes the best, and only effective, way to kill an idea is to put it into practice.
+ - Filth is always a sign of weakness – in the mouth of the user and in the mind of the writer.
+ - As long as there are human beings, there will be the idea of brotherhood – and an almost total inability to practice it.
+ - Knowledge fills a large brain; it merely inflates a small one.
+ - Ignorance per se is not nearly as dangerous as ignorance of ignorance.
+ - Making out an invitation list for a party brings out the worst in everyone. It is then that our most ruthless estimates of the people we know come into play.
+ - Just about the only interruption we don’t object to is applause.
+ - Skepticism is not an end in itself; it is a tool for the discovery of truths.
+ - Any creed whose basic doctrines do not include respect for the creeds of others, is simply power politics masquerading as philosophy.
+ - As WArden Lawes once said of convicts, no man can be called a failure until he has tried something he really likes, and fails at it.
+
+132 quotes

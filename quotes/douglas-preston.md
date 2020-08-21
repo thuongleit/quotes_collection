@@ -1,0 +1,21 @@
+ - We all have a Monster within; the difference is in degree, not in kind.
+ - My hobbies are mountain biking, horseback riding and packing, canoeing and kayaking, hiking, camping, cooking, and skiing.
+ - The truth shall make you free, but first it will make you miserable.
+ - The mandalas were meant to be objects of contemplation, aids to meditation, their proportions magically balanced to purify and calm the mind. To stare at a mandala was to experience, if only briefly, the nothingness that is at the heart of enlightenment.
+ - It’s a very bad habit, but one I find hard to break.
+ - The wise and good are outnumbered a thousand to one by the brutal and stupid.
+ - Once again, we shall have to operate not only outside the box, but outside the room containing the box.
+ - Hubris and science are incompatible.
+ - I would have to say the novel ‘War and Peace’ influenced me more than any other book. This greatest of novels demonstrated to me the enormous power of literature and fired me up with a desire to become a writer, to participate in what I considered then to be the greatest of all endeavors.
+ - One can reach the gates of hell just as easily by short steps as by large.
+ - Retribution is just outstanding.
+ - There is nothing inherently wrong about science.
+ - My first job was washing dishes in the basement of a nursing home for $2.10 an hour, and I learned as much about the value of hard work there as I ever did later.
+ - I’m pretty much a 9-to-5 kind of guy. I usually get to work about 8 in the morning, and I work until 4 or 5, and sometimes I work on Saturday and Sunday mornings. Pretty much I keep the same hours as an accountant or clerk or whatever.
+ - There are so many journalists out there, I hate to say it, who are lazy and don’t do their research – and it shows.
+ - The Monster’s crimes were so horrific that a mere man could not possibly have committed them. Satan, in the end, had to be invoked.
+ - When I’m writing fiction I’m thinking, God, this is so hard – I have to make all this stuff up! I wish I were writing a nonfiction book where all the facts are laid out and I don’t have to be so much at sea.
+ - He found Pendergast’s cool gaze on him, and he fidgeted. He’d forgotten about those eyes. They made you feel like you had just been stripped of your secrets.
+ - I need to write in a small room – the smaller the better. I can’t write in a big room where someone might sneak up behind my back.
+
+19 quotes

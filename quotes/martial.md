@@ -1,0 +1,128 @@
+ - Tomorrow’s life is too late. Live today.
+ - Why do strong arms fatigue themselves with frivolous dumbbells? To dig a vineyard is worthier exercise for men.
+ - Life is not merely to be alive, but to be well.
+ - A novice always behaves with propriety.
+ - No hero to me is the man who, by easy shedding of his blood, purchases fame: my hero is he who, without death, can win praise.
+ - A man who lives everywhere lives nowhere.
+ - If pale beans bubble for you in a red earthenware pot, you can often decline the dinners of sumptuous hosts.
+ - If I remember right, Aelia, you had four teeth; a cough displaced two, another two more. You can now cough without anxiety all the day long. A third cough can find nothing to do in your mouth.
+ - There is nothing more contemptible than a bald man who pretends to have hair.
+ - Conceal a flaw, and the world will imagine the worst.
+ - Gifts are like fish-hooks; for who is not aware that the greedy char is deceived by the fly which he swallows?
+ - To be able to enjoy one’s past life is to live twice.
+ - It is easy in adversity to despise death; he has real fortitude who dares to live and be wretched.
+ - You give me nothing during your life, but you promise to provide for me at your death. If you are not a fool, you know what I wish for!
+ - Why do I not kiss you, Philaenis? you are bald. Why do I not kiss you, Philaenis? you are carrotty. Why do I not kiss you, Philaenis? you are one-eyed. He who kisses you, Philaenis, sins against nature.
+ - Every epigram should resemble a bee; it should have sting, honey, and brevity.
+ - If you are poor now, Aemilianus, you will always be poor. Riches are now given to none but the rich.
+ - All your female friends are either old or ugly; nay, more ugly than old women usually are. These you lead about in your train, and drag with you to feasts, porticos and theaters. Thus, Fabulla, you seem handsome, thus you seem young.
+ - The virtuous man is never a novice in worldly things.
+ - Live thy life as it were spoil and pluck the joys that fly.
+ - Givers of great dinners know few enemies.
+ - Every bird that upwards swings Bears the Cross upon its wings.
+ - Do you ask why I am unwilling to marry a rich wife? It is because I am unwilling to be taken to husband by my wife. The mistress of the house should be subordinate to her husband, for in no other way, Priscus, will the wife and husband be on an equality.
+ - It is feeling and force of imagination that make us eloquent.
+ - What’s a wretched man? A man whom no man pleases.
+ - Wine and women bring misery.
+ - If you have any shame, forbear to pluck the beard of a dead lion.
+ - If you want him to mourn, you had best leave him nothing.
+ - Gifts are like hooks.
+ - It is to live twice when we can enjoy the recollections of our former life.
+ - Man loves malice, but not against one-eyed men nor the unfortunate, but against the fortunate and proud.
+ - Neither fear your death’s day nor long for it.
+ - The face that cannot smile is never fair.
+ - The swifter hand doth the swift words outrun: Before the tongue hath spoke the hand hath done.
+ - Your seventh wife, Phileros, is now being buried in your field. No man’s field brings him greater profit than yours, Phileros.
+ - Rarity gives a charm; so early fruits and winter roses are the most prized; and coyness sets off an extravagant mistress, while the door always open tempts no suitor.
+ - The bee is enclosed, and shines preserved in amber, so that it seems enshrined in its own nectar.
+ - The flaw which is hidden is deemed greater than it is.
+ - It is not, believe me, the act of a wise man to say, “I will live.” To-morrow’s life is too late; live to-day.
+ - You are sad in the midst of every blessing. Take care that Fortune does not observe – or she will call you ungrateful.
+ - There is no glory in otustripping donkeys.
+ - A fisherman’s walk: three steps and overboard.
+ - He who weighs his burdens, can bear them.
+ - You ask what a nice girl will do? She won’t give an inch, but she won’t say no.
+ - I am a shell-fish just come from being saturated with the waters of the Lucrine lake, near Baiae; but now I luxuriously thrust for noble pickle.
+ - When your crowd of attendants so loudly applaud you, Pomponius, it is not you, but your banquet, that is eloquent.
+ - You puff the poets of other days, The living you deplore. Spare me the accolade: your praise Is not worth dying for.
+ - You crystal break, for fear of breaking it: Careless and careful hands like faults commit.
+ - I commend you, Postumus, for kissing me with only half your lip; you may, however, if you please, withhold even the half of this half. Are you inclined to grant me a boon still greater, and even inexpressible? Keep this whole half entirely to yourself, Postumus.
+ - What quick wit is found in sudden straits!
+ - Some are good, some are middling, the most are bad.
+ - Be satisfied, and pleased with what thou art, Act cheerfully and well thou allotted part; Enjoy the present hour, be thankful for the past, And neither fear, nor wish, the approaches of the last.
+ - Tis easy to write epigrams nicely, but to write a book is hard.
+ - I know all that better than my own name.
+ - If my opinion is of any worth, the fieldfare is the greatest delicacy among birds, the hare among quadrupeds.
+ - It is not he who forms idols in gold or marble that makes them gods, but he who kneels before them.
+ - The shameless Chloe placed on the tombs of her seven husbands the inscription, “The work of Chloe.” How could she have expressed herself more plainly?
+ - A cook should double one sense have: for he Should taster for himself and master be.
+ - There is no living with thee, nor without thee.
+ - Service cannot be expected from a friend in service; let him be a freeman who wishes to be my master.
+ - You admire, Vacerra, only the poets of old and praise only those who are dead. Pardon me, I beseech you, Vacerra, if I think death too high a price to pay for your praise.
+ - He truly sorrows who sorrows unseen.
+ - Glory comes too late when we are nought but ashes.
+ - Virtue extends our days: he lives two lives who relives his past with pleasure.
+ - Generosity during life is a very different thing from generosity in the hour of death; one proceeds from genuine liberality, and benevolence; the other from pride or fear, or from the fact that you cannot take your money with you to the other world.
+ - I seem to you cruel and too much addicted to gluttony, when I beat my cook for sending up a bad dinner. If that appears to you too trifling a cause, say for what cause you would have a cook flogged.
+ - Do you ask what sort of a maid I desire or dislike, Flaccus? I dislike one too easy and one too coy. The just mean, which lies between the two extremes, is what I approve; I like neither that which tortures nor that which cloys.
+ - Be content to be what you are, and prefer nothing to it, and do not fear or wish for your last day.
+ - He writes nothing whose writings are not read.
+ - You’ll get no laurel crown for outrunning a burrow.
+ - In adversity it is easy to despise life; he is truly brave who can endure a writeched life.
+ - The swan murmurs sweet strains with a flattering tongue, itself the singer of its own dirge.
+ - Life is not living, but living in health.
+ - It is folly to waste labour about trifles.
+ - While you remain at home your hair is at the hairdresser’s; you take out your teeth at night and sleep tucked away in a hundred cosmetics boxes – even your face does not sleep with you.
+ - The bee is enclosed, and shines preserved, in a tear of the sisters of Phaeton, so that it seems enshrined in its own nectar. It has obtained a worthy reward for its great toils; we may suppose that the bee itself would have desired such a death.
+ - Fortune gives too much to many, enough to none.
+ - He who thinks that the lives of Priam and of Nestor were long is much deceived and mistaken. Life consists not in living, but in enjoying health.
+ - You importune me, Tucca, to present you with my books. I shall not do so; for you want to sell, not to read, them.
+ - You praise, in three hundred verses, Sabellus, the baths of Ponticus, who gives such excellent dinners. You wish to dine, Sabellus, not to bathe.
+ - You’re obstinate, pliant, merry, morose, all at once. For me there’s no living with you, or without you.
+ - Joys do not stay, but take wing and fly away.
+ - You complain, friend Swift, of the length of my epigrams, but you yourself write nothing. Yours are shorter.
+ - Wish to be what you are, and wish for no other position.
+ - I have granted you much that you asked: and yet you never cease to ask of me. He who refuses nothing, Atticilla, will soon have nothing to refuse.
+ - I have not hated the man, but his faults.
+ - Red-haired, black-lipped, club-footed, and blink-eyed; if you’re a good man, you’re a wonder!
+ - That which prevents disagreeable flies from feeding on your repast, was once the proud tail of a splendid bird.
+ - Our days pass by, and are scored against us.
+ - My poems are naughty, but my life is pure.
+ - A good man enlarges the term of his own existence.
+ - Epigrams need no crier, but are content with their own tongue.
+ - You may envy every one, but no one envies you.
+ - Whoever makes great presents, expects great presents in return.
+ - While an ant was wandering under the shade of the tree of Phaeton, a drop of amber enveloped the tiny insect; thus she, who in life was disregarded, became precious by death.
+ - Such are thou and I: but what I am thou canst not be; what thou art any one of the multitude may be.
+ - You should not fear, nor yet should you wish for your last day.
+ - However great the dish that holds the turbot, the turbot is still greater than the dish.
+ - For wealth’s now given to none but to the rich.
+ - Those they praise, but they read the others.
+ - I do not love thee, Sabidius, nor can I say why; I can only say this, “I do not love thee.”
+ - She grieves sincerely who grieves unseen.
+ - He who writes distichs, wishes, I suppose, to please by brevity. But, tell me, of what avail is their brevity, when there is a whose book full of them?
+ - No man is quick enough to enjoy life.
+ - Make it a point not to be over-fascinating.
+ - Laugh, if thou art wise.
+ - Your page stands against you and says to you that you are a thief.
+ - For life is only life when blessed with health.
+ - A good man doubles the length of his existence; to have lived so as to look back with pleasure on our past existence is to live twice.
+ - Of no day can the retrospect cause pain to a good man.
+ - Spare the person but lash the vice.
+ - See, how the liver is swollen larger than a fat goose! In amazement you will exclaim: Where could this possibly grow?
+ - While you cannot resolve what you are, at last you will be nothing.
+ - It is as good as second life to be able to look back upon our past life with pleasure.
+ - Nothing is more ill-timed than an ill-timed laugh.
+ - Work divided is in that manner shortened.
+ - One genius has made many clever artists.
+ - The world is blessed most by men who do things, and not by those who merely talk about them. -James Oliver ‘Tomorrow I will live,’ the fool does say; tomorrow itself is late; the wise live yesterday.
+ - To the ashes of the dead glory comes too late.
+ - I would not miss your face, your neck, your hands, your limbs, your bosom and certain other of your charms. Indeed, not to become boring by naming them all, I could do without you, Chloe, altogether.
+ - Some good, some so-so, and lots plain bad: that’s how a book of poems is made, my Friend.
+ - Hidden evils are most dreaded.
+ - If fame is to come only after death, I am in no hurry for it.
+ - Be not too thick with anybody; your joys will be fewer, and so will pains.
+ - Short is the life of those who possess great accomplishments, and seldom do they reach a good old age. Whatever thou lovest, pray that thou mayest not set too high a value on it.
+ - I’m what I seem; not any dyer gave, But nature dyed this colour that I have.
+
+126 quotes

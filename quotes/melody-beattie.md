@@ -1,0 +1,113 @@
+ - Gratitude turns what we have into enough.
+ - Gratitude unlocks the fullness of life. It turns what we have into enough, and more. It turns denial into acceptance, chaos to order, confusion to clarity. It can turn a meal into a feast, a house into a home, a stranger into a friend.
+ - The new year stands before us, like a chapter in a book, waiting to be written. We can help write that story by setting goals.
+ - Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.
+ - Love yourself just as you are.
+ - Striving for excellence is a positive quality. Striving for perfection is self-defeating.
+ - Relax, you’re on a journey of discovery. Let life reveal itself to you.
+ - Our best problem-solving resource is peace. Solutions arise easily and naturally out of a peaceful state.
+ - Be patient. Relax and trust. Let go. Then, let go some more.
+ - Let go of your expectations. The universe will do what it will. Sometimes your dreams will come true. Sometimes they won’t. Sometimes when you let go of a broken dream, another one gently takes its place. Be aware of what is, not what you would like to be, taking place.
+ - Gratitude turns negative energy into positive energy. There is no situation or circumstance so small or large that it is not susceptible to gratitude’s power.
+ - Beliefs create reality.
+ - We cannot change others, but when we change ourselves, we may end up changing the world.
+ - Each life needs its own quiet place.
+ - Gratitude helps us stop trying to control outcomes. It is the key that unlocks positive energy in our life. It is the alchemy that turns problems into blessings, and the unexpected into gifts.
+ - Letting go helps us to live in a more peaceful state of mind and helps restore our balance. It allows others to be responsible for themselves and for us to take our hands off situations that do not belong to us. This frees us from unnecessary stress.
+ - I used to spend so much time reacting and responding to everyone else that my life had no direction. Other people’s lives, problems, and wants set the course for my life. Once I realized it was okay for me to think about and identify what I wanted, remarkable things began to take place in my life.
+ - God, help me let go of my need to be afraid. I welcome peace, trust, acceptance, and safety into my life. I will make a point of listening to my healthy, rational fears, and will relinquish all the others.
+ - This moment, we are right where we need to be, right where we are meant to be.
+ - Much of the time, the things we feel guilty about are not our issues. Another person behaves inappropriately or in some way violates our boundaries. We challenge the behavior, and the person gets angry and defensive. Then we feel guilty.
+ - Goals give us direction. They put a powerful force into play on a universal, conscious, and subconscious level. Goals give our life direction.
+ - Acceptance is the magic that makes change possible. It is not forever, it is for the present moment.
+ - A codependent person is one who has let another person’s behavior affect him or her and who is obsessed with controlling that person’s behavior.
+ - Today I will not wait for someone to come to my aid. I’m not helpless. Although help may come, I’m my own rescuer. My relationships will dramatically improve when I stop rescuing others and stop expecting others to rescue me.
+ - Today, I will focus on having a good relationship with myself.
+ - Worrying, obsessing, and controlling are illusions. They are tricks we play on ourselves.
+ - Expressing passion and gratitude will guide your life. Say it again and again. Say it until you believe it. Say it until you live it.
+ - Today I will focus on a peaceful pace, rather than a harried one. I will keep moving forward gently, not frantically. I will let go of my need to be anxious and upset and will replace these feelings with calmness and harmony.
+ - You don’t have to search so hard for meaning and destiny. If you focus on keeping yourself clear and in balance and you live from your heart, destiny and your highest-good path will unfold naturally at your feet.
+ - Today I will stop trying to control my relationships. I will participate at a reasonable level and let the other person do the same. I can let go, knowing that the relationship will find its own life-or not-and that I don’t have to do all the work, only my share.
+ - Today, I will let go. I will stop trying to control everything. I will stop trying to make myself be and do better, and I will let myself be.
+ - Embrace and love all of yourself – past, present, and future. Forgive yourself quickly and as often as necessary. Encourage yourself. Tell yourself good things about yourself.
+ - Today I will honor, cherish, and love myself. When I get confused about what to do, I just have to remember that I need to be true to myself. I will break free of the hold that others-and their expectations-ha ve on me.
+ - When you wonder what is coming, tell yourself the best is coming, the very best life and love have to offer, the best God and His universe have to send. Then open your hands to receive it. It’s yours.
+ - The surest way to make ourselves crazy is to get involved in other people’s business, and the quickest way to become sane and happy is to tend to our own affairs.
+ - Our strength will continue if we allow ourselves the courage to feel scared, weak, and vulnerable...
+ - Furthermore, worrying about people and problems doesn’t help. It doesn’t solve problems, it doesn’t help other people, and it doesn’t help us. It is wasted energy.
+ - Waiting time is not wasted time. Something is being worked out – in us, in someone else, in the Universe.
+ - Life is always moving, changing, shifting into its next shape. The movement is natural. It is how we evolve. Let the shifts happen. Take responsibility for yourself each step of the way. Trust the new shape and form of your world.
+ - Today I will learn to reject shame. Shame is an overwhelming sense that who I am isn’t good enough. I realize that I am good enough, and that my imperfections are part of being human. I let go of shame.
+ - When we’re surrounded by things that look impossible, making a simple choice to do something that’s possible is a powerful thing to do.
+ - It’s hard to give up the self-esteem connected to being codependent and appearing ‘right,’ which is probably a survival behavior learned from growing up in a crazy family. It feels like you will actually disappear.
+ - Gratitude unlocks the fullness of life.
+ - Love means each person is free to follow his or her own heart.
+ - The more we learn to love and respect ourselves, the more we will become attracted to people who will love and respect us and who we can safely love and respect.
+ - Arranging for and allowing ourselves to have fun is an important part of taking care of ourselves. It helps us stay healthy. It helps us work better. It balances life. We deserve to have fun. Fun is a normal part of being alive. Fun is taking time to celebrate being alive.
+ - Writing forces consciousness.
+ - Letting go of our ideas about how life should go is a choice that sets life’s magic free.
+ - Codependents are reactionaries. They overreact. They under-react. But rarely do they act. They react to the problems, pains, lives, and behaviors of others. They react to their own problems, pains, and behaviors.
+ - Let your mind and soul be at ease. Don’t grasp and grab for the magic and miracles. When you reside in that place of stillness, the joy, miracles, and magic you’re seeking will find you.
+ - Make New Year’s goals. Dig within, and discover what you would like to have happen in your life this year. This helps you do your part. It is an affirmation that you’re interested in fully living life in the year to come.
+ - It’s not what we don’t know that hurts us, people say. It’s what we believe is true that isn’t that does the damage.
+ - Perspective will come in retrospect.
+ - Seek healing, a refilling of energy and spirit, as soon as you see that you need it. You don’t have to push yourself to give, do, or perform when what your body, mind, soul and emotions need is to heal.
+ - Do we really have the right to take care of ourselves? Do we really have the right to set boundaries? Do we really have the right to be direct and say what we need to say? You bet we do.
+ - Today I will surrender to discipline. I realize that sometimes it takes time to see the fruits of my labors, yet I still need to practice discipline. Help me to remember, God, that I’m moving forward, and that I’m learning the very important art of discipline.
+ - Today I will do something just for the fun of it. I will find something to do that’s just for me and I won’t worry about what I should be doing. I will learn how to make myself feel good and enjoy life to the fullest.
+ - Today I will tell myself that I’m lovable. Just because some people haven’t been able to love me in ways that worked doesn’t mean that I’m unlovable. I’ve had lessons to learn, and some of them have hurt deeply, but I can still love, and I still am loved.
+ - Live your life fom your heart. Share from your heart. And your story will touch and heal people’s souls.
+ - We don’t have to do it any better than we can – ever. Do our best for the moment, then let it go. If we have to redo it, we can do our best in another moment, later.
+ - Going home means getting comfortable being who you are and who your soul really wants to be. There is no strain with that. The strain and tension come when we’re not being who our soul wants to be and we’re someplace where our soul doesn’t feel at home.
+ - We can say what we need to say. We can gently, but assertively, speak our mind. We do not need to be judgmental, tactless, blaming or cruel when we speak our truths.
+ - Choosing to take responsibility for ourselves and for the consequences our choices create looks like hard work, but it really sets us free.
+ - I never know what the next lesson is going to be, because we’re not supposed to know – we’re supposed to trust ourselves to discover it.
+ - The lesson I was learning involved the idea that I could feel compassion for people without acting on it.
+ - There is honor in all work, in all tasks, but take it one step further. Make what you do a labor of love. Then your work will truly touch and change the world in the way you desire. The work you do, whatever your chosen field, will be work that heals.
+ - If that person doesn’t want to be in your life, just let him or her leave.
+ - Money is not evil. There is no scarcity, except in our mind and attitudes. And what we believe we deserve will be about what we shall receive.
+ - It’s easy to see and notice what we like in other people. Sometimes, it’s not as easy to see the attributes and beauty in ourselves. It’s good to see the beauty in others. But sometimes, take a moment and get excited when you notice what’s beautiful in yourself, too.
+ - Even if the most important person in your world rejects you, you are still real, and you are still okay.
+ - I pray for faith that my future will be good if I live today well, and in peace. I will remember that staying in the present is the best thing I can do for my future. I will focus on what’s happening now instead of what’s going to happen tomorrow.
+ - Today I will simply accept. I will relinquish the need to be in resistance to myself and my environment in any way. I will move forward in joy by accepting where I am right now.
+ - Nurtured, nourished people, who love themselves and care for themselves, are the delight of the Universe.
+ - If we are unhappy without a relationship, we’ll probably be unhappy with one as well. A relationship doesn’t begin our life; a relationship doesn’t become our life. A relationship is a continuation of life.
+ - Today, I will focus on what’s right about me. I will give myself some of the caring I’ve extended to the world.
+ - Panic, not the task, is the enemy.
+ - Real power comes when we stop holding others responsible for our pain, and we take responsibility for all our feelings.
+ - I saw people who were hostile; they had felt so much hurt that hostility was their only defense against being crushed again.
+ - Anger is a warning signal. It points to problems.
+ - We need to build downtime into our lives, so that we can have solitude without feeling overcome with guilt.
+ - Like it or not, i was already learning that in the worst and darkest time, I would find specks of light, moments of joy. What I didn’t want to learn was the other, harsher lesson – that in life’s brightest moments there would also be unbearable pain. p 87.
+ - When we don’t ask for what we want and need, we discount ourselves.
+ - If somebody rejects you or your choices, you are still real, and you are still worth every bit as much as you would be if you had not been rejected.
+ - We learn the magical lesson that making the most of what we have turns it into more.
+ - According to some Eastern religion, there is a belt that goes across the world, and I’ve heard that Minnesota is right in the heart of this spiritual-creative belt of energy.
+ - It’s our job to first make ourselves feel better and then make ourselves feel good.
+ - If we are waiting for guaranteed courses of action, we may spend much of our life waiting.
+ - I didn’t have to scramble up and down the ladder from despair to euphoria anymore, trying to convince myself that life was either painful and terrible or joyous and wonderful. The simple truth was that life was both. p 214.
+ - We have as much time as we need.
+ - Whatever we try to control does have control over us and our life.
+ - Prayer changes things. Prayer changes us. Prayer changes life. Sometimes an event has been manifested that needs to be stopped, midair. Don’t pray just when you’re in trouble. Pray every day. Surround yourself with prayer. You never know when you might need an extra miracle.
+ - I gave three years of my life to take care of my dying mother who had Alzheimer’s disease. Being there for her every need for three years might have looked codependent but it wasn’t because it was what I wanted to do.
+ - I trust so much in the power of the heart and the soul; I know that the answer to what we need to do next is in our own hearts. All we have to do is listen, then take that one step further and trust what we hear. We will be taught what we need to learn.
+ - Today I will practice healthy giving, understanding that caretaking and compulsive giving don’t work. I choose what I want to give, to whom, when, and how much. It takes time to learn how to give in healthy ways. It takes time to learn to receive. Balance will come.
+ - What’s a codependent? The answer’s easy. They’re some of the most loving, caring people I know.
+ - When our heart is broken, we can’t hear it. And when we can’t hear our heart, we can’t hear God.
+ - We are on a very rich emotional and physical journey on this planet.
+ - Guilt can prevent us from setting the boundaries that would be in our best interests, and in other peoples best interests.
+ - Caring works. Caretaking doesn’t. We can learn to walk the line between the two.
+ - A man went to Istanbul, his first visit there. On his way to a business meeting, this man lost his way. He began raging at himself for getting lost, until a realization allowed him to transcend his ire. “How can I be lost? I’ve never been here before?” pp 104-105.
+ - We don’t just get our choice; we get the consequence that choice creates.
+ - No – simple to pronounce, hard to say.
+ - Few situations – no matter how greatly they appear to demand it – can be bettered by us going beserk.
+ - Each moment in time we have it all, even when we think we don’t.
+ - God, help me remember that when I admit and accept the truth, I’ll be given the power and guidance to change.
+ - Living our lives may not be an exciting prospect to some of us either. Maybe we’ve been so wrapped up in other people that we’ve forgotten how to live and enjoy our lives.
+ - When it’s too difficult to keep swimming, float.
+ - Panic is our great enemy.
+ - Who you are is love. What love does is heal.
+ - God loves me enough to let me go through all the lessons I came here to learn, even the ones that hurt the most. His presence doesn’t deny me. It’s always there to help me see and understand what I came to this planet to learn.
+ - Resentments are hardened chunks of anger. They loosen up and dissolve with forgiveness and letting go.
+
+111 quotes

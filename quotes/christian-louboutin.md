@@ -1,0 +1,154 @@
+ - Nothing needs to be perfect to be good, and no one should need to feel perfect to feel right.
+ - I like to see people who are survivors wearing my shoes. I am fascinated by people who can bounce back.
+ - A shoe is not only a design, but it’s a part of your body language, the way you walk. The way you’re going to move is quite dictated by your shoes.
+ - There is an element of seduction in shoes that doesn’t exist for men. A woman can be sexy, charming, witty or shy with her shoes.
+ - Strangely enough, I really think that shoes are a communication tool between people.
+ - I was born 20 years after my eldest sister. I was the pampered child. That kind of love gives you an almost unbreakable backbone. My mother had three kids before me. She let me be completely free. I just never had anything to beat myself up over.
+ - Shoes transform your body language and attitude. They lift you physically and emotionally.
+ - Istanbul is inspiring because it has its own code of architecture, literature, poetry, music.
+ - People are proud of their tattoos. It’s like a modern coat of arms.
+ - People say I am the king of painful shoes. I don’t want to create painful shoes, but it is not my job to create something comfortable. I try to make high heels as comfortable as they can be, but my priority is design, beauty and sexiness. I’m not against them, but comfort is not my focus.
+ - High heels are pleasure with pain.
+ - Shoes are just a pedestal. What interests me is the power of the woman who wears them.
+ - Shoes for men are about elegance or wealth, they are not playing with the inner character. That is why women are happy to wear painful shoes.
+ - My shoes are perfect for the very sexy woman who wants to be elegant.
+ - Beauty is all about form; proportions and the relationships between one line and another.
+ - The stiletto is a feminine weapon that men just don’t have.
+ - What was called extreme 20 years ago definitely isn’t extreme anymore. When I started, I remember people saying, ‘Oh my God, I can’t walk in that!’ It was like, three inches – they look like kitten heels now.
+ - The red sole was born from red nail polish. I am giving back to beauty what the shoes took from the nails many years ago.
+ - I would hate for someone to look at my shoe and say, ‘Oh my God! That looks so comfortable!’ That’s not what I want to project. But I’m not a sadist. I don’t believe suffering makes you beautiful. But comfort is not part of my creative process.
+ - Men are like bulls. They cannot resist the red sole.
+ - My business partner gave me a drone, a small helicopter you pilot with an iPhone, and also it has a camera so you can see what it sees on the iPhone. Great fun. I fly it outside in Portugal. It’s wonderful to oversee gardens.
+ - Men in high heels? That’s a prosthesis. But I sympathise. Women have these giant heels. They get taller and taller. The men need help. But a man in heels is ridiculous.
+ - Don’t reject a shoe because you can’t run in it. It’s OK not to run.
+ - The higher the better. It’s more about an attitude. High heels empower women in a way.
+ - Meet people from other cultures, so you understand that the world doesn’t swirl around you.
+ - I am more feminist than feminists.
+ - Even if you don’t like colours, you will end up having something red. For everyone who doesn’t like colour, red is a symbol of a lot of culture. It has a different signification but never a bad one.
+ - One moves more slowly in heels. Walking fast is neither sexy nor engaging. Nobody notices the people who race around. If you’re walking in heels, you’ve got time. It’s much more attractive.
+ - Born and raised in Paris, I am deeply attached to my city; we almost have half a century of love story together, where I have been truly completely faithful! The most beautiful city in the world is my city, yeepeeee!
+ - I mean, the shoe – there is a music to it, there is attitude, there is sound, it’s a movement. Clothes – it’s a different story. There are a million things I’d rather do before designing clothes: directing, landscaping.
+ - The core of my work is dedicated not to pleasing women, but to pleasing men.
+ - You need to believe in yourself and what you do. Be tenacious and genuine.
+ - A naked woman in heels is a beautiful thing. A naked man in shoes looks like a fool.
+ - In France you cannot not have lunch. If you stopped the French from having lunch, you will have a second revolution, I can tell you this. Not going to work – it is part of the French privilege.
+ - I feel I am a role model to many, not just for my designs, but also for the fact that I started my own company with the help of my two friends. I became a success story, and people relate to that.
+ - I love deep cleavage on the foot. It reminds me of Berlin in 1930s, ‘Cabaret.’
+ - Designing my shoes, I’m thinking timeless. Not trendy.
+ - To feel like a woman, wear heels, to feel like a goddess, wear five inches.
+ - A lot of women don’t like when they’re sort of fat, but a fat foot is as beautiful as a skinny foot. Think of Greek statues. Look how many people love the foot of the baby! There is something super-charming about the baby foot.
+ - When a woman buys shoes, she takes them out of the box and looks at herself in the mirror. But she isn’t really looking at her shoes – she’s looking at herself. If she likes herself, then she likes the shoes.
+ - I would hate for someone to look at my shoes and say, ‘Oh my God! That looks so comfortable!’
+ - Everyone has their dates. For me, it’s 1991. I can place every memory of my life either before or after this date. It’s the year I became an adult. My mother died, and I created my company shortly thereafter. I definitely would not have done it if she hadn’t passed away.
+ - My drawing for women is really curvy. My drawings for men are actually quite angular.
+ - Cinderella is not only an iconic character when it comes to beauty, grace and fairytale love, but also shoes.
+ - I hate the whole concept of the clog! It’s fake, it’s ugly, and it’s not even comfortable!
+ - I really have not so much sympathy. If Tina Turner and Prince’s back-up band can perform on stage in them for three hours, you can’t tell me they are impossible to walk in. High heels are pleasure with pain. If you can’t walk in them, don’t wear them.
+ - I wanted to be a shoe designer, but I never thought it could be a profession. But what was the alternative? Doctor? Too dirty! Air-hostess? Maybe not! Then someone gave me a book on Roger Vivier, and, cheri, instantly I knew that was it!
+ - I guess being French, I love Hollywood. I love Hollywood movies. Joseph Mankiewicz’s ‘All About Eve.’ ‘Mildred Pierce.’
+ - I perfectly understand the obsession with shoes. I myself am pretty obsessed. I have a few hundred pairs of shoes in general, because I’ve been collecting shoes for a long time.
+ - I wanted to create something that broke rules and made women feel confident and empowered.
+ - I remain faithful to bourbon sour. It’s absolutely delicious. You’d have to ask a bartender what’s in it, but I think if you know you might never have a drink. I also love a little rum, 7 years aged, brown, when it is chilly, before dinner.
+ - For women raised in the ’70s, high heels can still carry a stigma; they’re associated with being stupid, with just wanting to please a man. Other women find them empowering.
+ - You know, I’m behind my company. My company has been a big part of my life. And it’s not that I been buying a company or that my father bought a company and tried to do something out of it. You know, it’s not the same thing. It’s my name, it’s my company, it’s my signature.
+ - Boredom is a concept that I don’t understand.
+ - A good pump is a silhouette, like the bone structure of the face. It’s like a beautiful face with no make-up. You can cover a not-so-beautiful face with make-up, but it is just a mask – it is the same with shoes.
+ - I always loved fish for the colors and birds for the plumage. In the same way, I loved those women of the cabaret. They were birds of paradise.
+ - People tend to fear the ghosts in their own family. You feel these family curses and think, ‘If it happened to my father, it could happen to me.’
+ - If I’m in the country, my big idea is to do nothing. It means talking, it means cooking with the leftovers in the fridge – l’art d’accommoder les restes – it means gardening.
+ - Being on a trapeze is like dreaming. I feel totally outside of myself when I’m flying. You know, designing shoes, my imagination is flying in my drawings.
+ - I really wish I had invented the flip-flop. I love flip-flops. It’s the one style of shoe I would be so proud of inventing: the Havaiana.
+ - Part of my work is dedicated to artisanship and can only be done by very few people because it requires a specific technique. Being an artist is being at the service of yourself; I am at the service of other people.
+ - My relationship with shoes has always been linked to shoes, women, women in their shoes and performance.
+ - I never wanted to design clothes. I never wanted to work for the fashion industry. Shoes sort of belong to the fashion industry, which is why I’m part of the fashion industry. But that’s never been my thought. My thought since I was a child was really to design those shoes for girls on stage.
+ - There is a heel that is too high to walk in, certainly. But who cares? You don’t have to walk in high heels.
+ - There are a million things I’d rather do before designing clothes: directing, landscaping.
+ - When you are too specific on a target, it can drain you. Ask me where I will be when I am 60, and I will have no answer to give.
+ - I don’t follow anything online. I am rather slow on that side.
+ - I’m very detail oriented. Everything that takes a lot of dedication and creativity I do in the morning when there is light and I’m really concentrated.
+ - A good host is someone who really takes care of everyone, from the food to their daily programme. I can’t.
+ - Really good shoes have to seduce both men and women.
+ - The most outrageous shoe that I had to do was a shoe where the person gave me stones – precious stones – and say that I could do anything with precious stones.
+ - I think I have a part of myself which is a woman. When girls are together, they speak completely differently than when there is a guy around. But, with me, they don’t see this masculine thing stopping them, and there is not this boundary.
+ - I don’t like conflicts. I’m not a competitive person at heart. To be in the middle of turmoil is boring.
+ - I never had the dream to be a great designer. My focus was just to do beautiful things.
+ - If you are not bored by life, and your primary motto is enthusiasm and if you like your friends, family around you, it all translates into your designs. That’s what keeps the creativity alive.
+ - I’m always taking into consideration how the shoe will look on the foot, its relation to the ankle and the leg – that’s very important. I often see shoes that seem interesting or nice until a woman puts them on. then a lot of shoes look very clunky, and nobody likes to see that.
+ - Even today, I am still very child-like while designing. It’s a bit like Christmas – each of your designs you create is like unravelling your presents.
+ - One thing I detest, I have to say, is when a shoe is too soft, and it’s molding to the foot. This is quite disgusting. And I really, really hate incredibly long shoes, where the last is very pointy, almost like Aladdin.
+ - There’s nothing I liked visually of the period I was a child. There was no dream in it, and nothing sparkled.
+ - I listen to my stomach. It tells me when I am starving.
+ - These heels are candy for the feet; they’re for pleasure, not practicality.
+ - I never had a plan. I have to say, I’m very shocked when people start a company and say, ‘In five years I want to launch a perfume, or in 10 years I want to have this.’ How can you know?
+ - Funnily enough, the most difficult style to do is the plain pump because it needs to look good on a variety of feet. I compare it to having a good bone structure. Make-up will make you look good, but it helps if you have a good skeleton to begin with.
+ - I am interested in all things that celebrate and enhance the female form.
+ - I sort of don’t believe in trends. I know that they exist, but what is important at the end of the day is to remain independent.
+ - I would say that a good shoe is exactly like a good wine. These shoes are going to stay and last for a long time.
+ - You have two categories of Shoes, Shoes which are dressing a woman or Shoes which are undressing a Woman.
+ - For me there ain’t no high heel high enough.
+ - At age 12 or 13, I wanted to design for showgirls – for the theater!
+ - I didn’t even know ‘Vogue’ existed when I was growing up.
+ - I never wanted to work in fashion. At age 12 or 13, I wanted to design for showgirls – for the theater! And I was crazy for the Hollywood of the 1950s: Dietrich, Elizabeth Taylor, Jennifer Jones. They were my idea of glamour – and Sylvie Vartan, the French singer.
+ - I have always loved tartans – such an ornamented type of weaving, so vivid in colour, and such a masculine aspect. But actually, I think tartans can be feminine or masculine.
+ - I think every market has lot of things in common, and at the same time, every market has lot of different things.
+ - The highest heels I do are six-inch heels – but mostly only dancers can wear them, since they are used to being on point in ballet shoes. Their feet are arched.
+ - The heel is engineering in itself. This little thing that supports the human weight has to have a precise balance.
+ - Madonna is a feminist and has been doing more for the cause than all the grumpy feminists, who are giving nothing back by being grumpy.
+ - When you sketch a shoe but don’t have the intention to do a proper shoe, it remains a curvy sketch with no detail. The shoe completely morphs to the body.
+ - A lot of men said they were jealous of me because my shoes excite women in a way they can’t.
+ - If you’re passionate about the world, and if you really look closely at everything around you, each thing can be transformed into a shoe, or into a part of a shoe.
+ - If I could do shoes for anyone, it would be a special project for the Queen of England.
+ - Breakfast is a peaceful moment for me, so I never have the radio on, no music, no noise around. The only noise that is permitted is people’s voices. It’s a way for me to wake up without too much of a high speed feeling.
+ - I don’t give away my shoes to celebrities for free. I’m only happy when people like what I do and make the effort to buy them. I would not be happy to see people in my shoes if I knew that they had to be paid to do it, that they had to be pushed.
+ - The shoe is very much an X-ray of social comportment.
+ - I’ll do shoes for the lady who lunches, but it would be, like, a really nasty lunch, talking about men.
+ - It’s a good addition. There are so many bad addictions. Better be addicted to shoes than something else.
+ - When I have meetings scheduled so tight that I can’t go to the loo, that’s where I draw the line!
+ - If I’m in Italy, I’m going to have a cappuccino and two small brioches and then a mix of orange and grapefruit. I don’t drink tea in Italy.
+ - A house is very much like a portrait. I cannot disconnect houses from people. The thought of arrangement, the curves and straight lines. It gives an indication of the character at the heart of it.
+ - I sketch literally all the time; constructing a collection is like building a family – you have to have a certain balance. I isolate myself – I need to be concentrated for this so I leave Paris, I leave to a place without a phone.
+ - My favorite sound is definitely mules. If it was an instrument, it’s really pingthe touch of the black keys of the piano.
+ - I hate the idea of natural. For example, I prefer gardens to wild nature. I like to see the human touch. High heels are a complete invention – an extravagance. They’re far from natural, but it’s the impracticality that I adore. I prefer the useless to the useful, the sophisticated to the natural.
+ - Be completely true to yourself and you’ll be happy.
+ - A lot of my friends have tattoos; I realized that it’s not only just a part of pop culture, but a bit of a map on someone’s body, which says something about people. A part of their life, like an armor or a crest.
+ - A woman carries her clothes. But the shoe carries the woman.
+ - The shiny red color of the soles has no function other than to identify to the public that they are mine. I selected the color because it is engaging, flirtatious, memorable, and the color of passion.
+ - Shoes are a mirror of what you want, what you are or what you’re missing.
+ - A good shoe is one that doesn’t dress you but undresses you.
+ - I’ve always been very detail orientated, but I have gone from embellishment to nudity – from designing for a woman that likes to be dressed to designing for a woman that likes to be undressed.
+ - I am always surprised by who wears my shoes. This is a good thing. There is no type of woman, but all my women like to feel feminine. They are women who are happy to be women.
+ - My father, who was a cabinetmaker, told me, ‘Wood has a grain and if you go into the grain, you have beauty. If you go against it, you have splinters – it breaks.’ And I took that as my view of life. You have to follow the grain – to be sensitive to the direction of life.
+ - I am very bad at drawing. Seriously. I can draw shoes. That’s about it.
+ - The thing I always try to remember is that feet are attached to the leg, and that you must prolong the silhouette. The shoe elongates the leg and does it discreetly. The goal is to get people to look at a woman’s legs. It’s all about the leg. No, it’s not about the leg. It’s about the woman.
+ - Fashion isn’t interesting when it comes from an uninspired place.
+ - To me, the word ‘decadent’ is so difficult to use; it’s a very sensitive word, in a way.
+ - My job is designing shoes. It’s work that happens behind the scenes, as they say, and that suits me just fine because in general I am a shy person. But sometimes I have these extroverted outbursts.
+ - There are few plants that are ugly. It’s how you use them that may not be pretty.
+ - I haven’t yet met a woman who told me, ‘I wish I had shorter legs.’
+ - Something I really hate more than anything else is clogs.
+ - I buy Dries van Noten shoes. I love his clothes, too.
+ - I mean, the shoe – there is a music to it, there is attitude, there is sound, it’s a movement.
+ - Everyone wears what they feel great in or comfortable with.
+ - I like to undress women – not to dress them. You know, like Manet’s ‘Olympia’ or Helmut Newton’s photographs – naked women with shoes. This is what I am trying to do.
+ - I’m really not a fascist. Everyone wears what they feel great in, or comfortable with. It’s a beautiful day, you have an armless shirt: it goes with flip-flops.
+ - Passage Vero-Dodat – I started my company on this passage. It feels as much home as it can!
+ - Fashion isn’t interesting when it comes from an uninspired place. It’s like voodoo; we don’t want things that are soaked in blood, sweat, and tears. I adore life, and I’m very easygoing – and it shows in my work.
+ - I don’t repeat that many styles if I can help, although some have become classics. I try not to repeat. I’d rather surprise people.
+ - A shoe has so much more to offer than just to walk.
+ - I prefer buying things and figuring out where to put them later than regretting not buying them.
+ - In designing shoes for myself; I’m not thinking of a specific person or catwalk. I’m just not thinking of clothes at all. I’m always thinking of a naked woman, actually.
+ - Bollywood stars are versatile; they not only act, but each one has the dance skills of John Travolta in ‘Saturday Night Fever.’
+ - If the height of the heel is the same as the length of your foot, it starts to look wrong. And if the heel is positioned badly on the sole, you get into ballerina territory, where the body is pushed into a very strange posture. You can exaggerate the arch only so much.
+ - I am very much into voices. I would say I’m a fan of voices, not of sound. I’m a fan of singers, not of bands.
+ - When a woman puts on a heel, she has a different posture, a different attitude. She really stands up and has a consciousness of her body.
+ - I love David Lynch’s ‘Mulholland Drive;’ such a wonderful movie.
+ - I like my customer to be fierce.
+ - Sometimes women feel uncomfortable when men stare at them when they try on shoes.
+ - If you do what you love, it is the best way to relax.
+ - I’m a designer, and I think if you work in fashion, you have to give people fantasy.
+ - I’d already decided I wanted to design shoes after I saw a sign in the Museum of African and Oceanic Art forbidding high heels. Well, who could resist?
+ - During breakfast there is something I cannot resist, apart from my boyfriend – it’s actually the phone. I have a phone breakfast. Always. I call friends, boyfriend, family. Checking who is where. ‘Is everything fine?’ This is breakfast.
+ - I hate the whole concept of comfort!
+ - In a creative business, if you’re happy, it will come out in your work. I don’t see how you can be happy if you don’t like the people you’re working with and if they aren’t a joy to have fun with.
+
+152 quotes

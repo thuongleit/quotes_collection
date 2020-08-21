@@ -1,0 +1,151 @@
+ - The object isn’t to make art, it’s to be in that wonderful state which makes art inevitable.
+ - Paint the flying spirit of the bird rather than its feathers.
+ - The great painter has something to say. He does not paint men, landscapes, or furniture; but an idea.
+ - Why do we love the sea? It is because it has some potent power to make us think things we like to think.
+ - Color is only beautiful when it means something.
+ - Those who cannot begin do not finish.
+ - Realize that a drawing is not a copy. It is a construction in very different materials. A drawing is an invention.
+ - Art cannot be separated from life. It is the expression of the greatest need of which life is capable, and we value art not because of the skilled product, but because of its revelation of a life’s experience.
+ - The most vital things in the look of a landscape endure only for a moment. Work should be done from memory; memory of that vital moment.
+ - Do whatever you do intensely.
+ - There is nothing more entertaining than to have a frank talk with yourself. Few do it-frankly. Educating yourself is getting acquainted with yourself.
+ - Feel the dignity of a child. Do not feel superior to him, for you are not.
+ - The real artist’s work is a surprise to himself.
+ - To be free, to be happy and to be fruitful, can only be attained through sacrifice of many common but overestimated things.
+ - Paint what you feel. Paint what you see. Paint what is real to you.
+ - Do whatever you do intensely. The artist is the man who leaves the crowd and goes pioneering. With him there is an idea which is his life.
+ - Beauty is an intangible thing; can not be fixed on the surface, and the wear and tear of old age on the body cannot defeat it. Nor will a “pretty” face make it, for “pretty” faces are often dull and empty, and beauty is never dull and it fills all spaces.
+ - We are not here to do what has already been done.
+ - By my teaching I hope to inspire you to personal activity and to present your vision.
+ - The sketch hunter moves through life as he finds it, not passing negligently the things he loves, but stopping to know them, and to note them down in the shorthand of his sketchbook.
+ - Knowledge of anatomy is a tool like good brushes.
+ - It is harder to see than it is to express. The whole value of art rests in the artist’s ability to see well into what is before him.
+ - When the motives of artists are profound, when they are at their work as a result of deep consideration, when they believe in the importance of what they are doing, their work creates a stir in the world.
+ - Finished persons are very common – people who are closed up, quite satisfied that there is little more to learn.
+ - Each sensation is precious, protect it, cherish it, keep it. Never give it away. You must develop that balance which allows all of the world to come in to you, and only that which you have expressed in your art to move back out again into the world.
+ - Through art mysterious bonds of understanding and of knowledge are established among men.
+ - Painting should never look as if it were done with difficulty, however difficult it may actually have been.
+ - In every human being there is the artist, and whatever his activity, he has an equal chance with any to express the result of his growth and his contact with life. I don’t believe any real artist cares whether what he does is ‘art’ or not. Who, after all, knows what art is?
+ - Art is, after all, only a trace – like a footprint which shows that one has walked bravely and in great happiness.
+ - Art when really understood is the province of every human being. It is simply a question of doing things, anything, well. It is not an outside, extra thing.
+ - There is nothing in all the world more beautiful or significant of the laws of the universe than the nude human body.
+ - Beauty is no material thing. Beauty cannot be copied. Beauty is the sensation of pleasure on the mind of the seer. No thing is beautiful. But all things await the sensitive and imaginative mind that may be aroused to pleasurable emotion at sight of them. This is beauty.
+ - Do not let the fact that things are not made for you, that conditions are not as they should be stop you. Go on anyway. Everything depends on those who go on anyway.
+ - There is no art without contemplation.
+ - Through art, mysterious bonds of understanding and of knowledge are established among men. They are the bonds of a great Brotherhood. Those who are of the Brotherhood know each other, and time and space cannot separate them.
+ - Strokes carry a message whether you will it or not. The stroke is just like the artist at the time he makes it. All the certainties, all the uncertainties, all the bigness of his spirit and the littlenesses are in it.
+ - There are mighty few people who think what they think they think.
+ - Good composition is like a suspension bridge – each line adds strength and takes none away.
+ - An artist must first of all respond to his subject, he must be filled with emotion toward that subject and then he must make his technique so sincere, so translucent that it may be forgotten, the value of the subject shining through it.
+ - No work of Art is really ever finished. They only stop at good places.
+ - When the artist is alive in any person, whatever his kind of work may be, he becomes an inventive, searching, daring, self-expressing creature.
+ - Keep a bad drawing until by study you have found out why it is bad.
+ - All education must be self-education.
+ - Cherish your own emotions and never undervalue them.
+ - Art appreciation, like love, cannot be done by proxy.
+ - It’s a wrong idea that a master is a finished person. Masters are very faulty; they haven’t learned everything and they know it.
+ - A Curve does not exist in its full power until contrasted with a straight line.
+ - Count on big lines to express your ideas.
+ - I am interested in art as a means of living a life; not as a means of making a living.
+ - Art is an extension of language – an expression of sensations too subtle for words.
+ - Educate yourself. Don’t let me educate you.
+ - If you work from memory, you are most likely to put in your real feeling.
+ - Your only hope of satisfying others is in satisfying yourself. I speak of a great satisfaction, not a commercial satisfaction.
+ - Students work in schools making life studies for years, win prizes for life studies and find in the end that they know practically nothing of the human figure. They have acquired the ability to copy.
+ - All the past up to a moment ago is your legacy. You have a right to it.
+ - A tree growing out of the ground is as wonderful today as it ever was. It does not need to adopt new and startling methods.
+ - You can do anything you want to do. What is rare is this actual wanting to do a specific thing: wanting it so much that you are practically blind to all other things, that nothing else will satisfy you.
+ - Pretend you are dancing or singing a picture. A worker or painter should enjoy his work, else the observer will not enjoy it.
+ - All manifestations of art are but landmarks in the progress of the human spirit toward a thing but as yet sensed and far from being possessed.
+ - There is weakness in pretending to know more than you know or in stating less than you know.
+ - The ignorant are to be found as much among the educated as among the uneducated.
+ - Do not expect pictures to say the expected; some of the best will have surprises for you, which will, at first, shock you.
+ - After all, the goal is not making art. It is living a life. Those who live their lives will leave the stuff that is really art.
+ - Because we are saturated with life, because we are human, our strongest motive is life, humanity; and the stronger the motive back of the line the stronger, and therefore more beautiful, the line will be.
+ - There are pictures that manifest education and there are pictures that manifest love.
+ - Be a warhorse for work and enjoy even the struggle against defeat.
+ - Art is the giving by each man of his evidence to the world. Those who wish to give, love to give, discover the pleasure of giving. Those who give are tremendously strong.
+ - A weak background is a deadly thing.
+ - A mountain seen in the haze of distance must nevertheless look a solid heavy mountain.
+ - All outward success, when it has value, is but the inevitable result of an inward success of full living, full play and enjoyment of one’s faculties.
+ - Fight with yourself when you paint, not with the model. A student is one who struggles with himself for order.
+ - Whatever you feel or think your exact state at the exact moment of your brush touching the canvas is in some way registered in that stroke.
+ - Let every student enter the school with this advice. No matter how good the school is, his education is in his own hands. All education must be self education.
+ - There is only one reason for art in America, and that is that the people of America learn the means of expressing themselves in their own time, and their own land.
+ - To paint is to know how to put nothing on canvas, and have it look like something when you stand back.
+ - Pretend you are dancing or singing a picture.
+ - I paint for the sole purpose of magnifying the privilege of being alive.
+ - You pass people on the street, some are for you, some are not.
+ - The model is not to be copied, but to be realized.
+ - Everything depends on the attitude of the artist toward his subject. It is essential.
+ - The artist should be intoxicated with the idea of the thing he wants to express.
+ - Manet did not do the expected. He was a pioneer. He followed his individual whim. Told the public what he wanted it to know, not the time worn things the public already knew and thought it wanted to hear again. The public was very much offended.
+ - Has your drawing the meaning you saw in the model at first?
+ - All real works of art look as though they were done in joy.
+ - Your painting is the marking of your progression into nature, a sensation of something you see way beyond the two pretty colors over there. Don’t stop to paint the material, but push on to give the spirit.
+ - There are forms that can only be seen when you are near a painting, others only appear when you are far away.
+ - It seems to me that before a man tries to express anything to the world he must recognize in himself an individual, a new one, very distinct from others.
+ - What we need is more sense of the wonder of life and less of this business of making a picture.
+ - Today must not be a souvenir of yesterday, and so the struggle is everlasting. Who am I today? What do I see today? How shall I use what I know, and how shall I avoid being victim of what I know? Life is not repetition.
+ - Drawing is not following a line on the model, it is drawing your sense of the thing.
+ - Look for echoes. Sometimes the same shape or direction will echo through the picture.
+ - I am interested in the size of your intention. It is better to overstate the important than to understate it.
+ - I can think of no greater happiness than to be clear-sighted and know the miracle when it happens. And I can think of no more real life than the adventurous one of living and liking and exclaiming the things of one’s own time.
+ - If the artist’s will is not strong he will see all kinds of unessential things.
+ - A drawing should be a verdict on the model. Don’t confuse a drawing with a map.
+ - Develop your visual memory. Draw everything you have drawn from the model from memory as well.
+ - Self-education only produces expressions of self.
+ - Find out what you really like if you can. Find out what is really important to you. Then sing your song. You will have something to sing about and your whole heart will be in the singing.
+ - The artist should have a powerful will. He should be powerfully possessed by one idea.
+ - Lines are results, do not draw them for themselves.
+ - There are people who buy pictures because they were difficult to do, and are done. Such pictures are often only a record of pain and dull perseverance. Great works of art should look as though they were made in joy. Real joy is a tremendous activity, dull drudgery is nothing to it.
+ - Personal experimentation is revealing, and once you get into it, immensely engaging.
+ - Colors are beautiful when they are significant.
+ - The good thing about painting from memory is that so much is forgotten.
+ - Each man must take the material that he finds at hand, see that in it there are the big truths of life, the fundamentally big forces, and then express in his art whatever is the cause of his pleasure.
+ - The man who has honesty, integrity, the love of inquiry, the desire to see beyond, is ready to appreciate good art.
+ - A common defect of modern art study is that too many students do not know why they draw.
+ - Don’t stop to paint the material, but push on to give the spirit.
+ - The more simply you see, the more simply you will render. People see too much, scatteringly.
+ - There are moments in our lives, there are moments in a day, when we seem to see beyond the usual. Such are the moments of our greatest happiness. Such are the moments of our greatest wisdom.
+ - Do not worry about your originality. You could not get rid of it even if you wanted to.
+ - Don’t worry about the rejections. Everybody that’s good has gone through it. Don’t let it matter if your works are not “accepted” at once. The better or more personal you are the less likely they are of acceptance.
+ - Many receive a criticism and think it is fine; think they got their money’s worth; think well of the teacher for it, and then go on with their work just the same as before. That is the reason much of the wisdom of Plato is still locked up in the pages of Plato.
+ - The pictures which do not represent an intense interest cannot expect to create an intense interest.
+ - Art is certainly not a pursuit for anyone who wants to make money.
+ - Work always as if you were a master, expect from yourself a masterpiece.
+ - Artists must be men of wit, consciously or unconsciously philosophers; read, study and think a great deal of life...
+ - Many things that come into the world are not looked into. The individual says ‘My crowd doesn’t run that way.’ I say, don’t run with crowds.
+ - The fun of living is that we have to make ourselves, after all.
+ - Perhaps whatever there is in my work that may be really interesting to others and surely what is interesting to me, is the result of a sometimes successful effort to free myself from any idea that what I produce must be art...
+ - Things should all be moving toward the expression of a great idea.
+ - I have heard it very often said that an artist does not need intelligence, that his is the province of the soul.
+ - An artist must have imagination. An artist who does not use his imagination is a mechanic.
+ - The pernicious influence of the prize and medal giving in art is so great that it should be stopped. History proves that juries in art have been generally wrong.
+ - Know what the old masters did. Know how they composed their pictures, but do not fall into the conventions they established. These conventions were right for them, and they are wonderful. They made their language. You make yours. All the past can help you.
+ - Genius is not a possession of the limited few, but exists in some degree in everyone. Where there is natural growth, a full and free play of faculties, genius will manifest itself.
+ - If you do not act on a suggestion at first, you grow dull to its message.
+ - In certain books – some way in the first few paragraphs you know that you have met a brother.
+ - There has never been a painting that was more beautiful than nature. The model does not unfold herself to you, you must rise to her. She should be the inspiration for your painting. No man has ever over-appreciated a human being.
+ - If you think of a school drawing while you work, your drawing will look like one.
+ - Life is finding yourself. It is a spirit development.
+ - Art tends toward balance, order, judgment of relative values, the laws of growth, the economy of living – very good things for anyone to be interested in.
+ - In great art there is no beginning and end in point of time. All time is comprehended.
+ - Self-acquainta nce is a rare condition.
+ - Your style is the way you talk in paint.
+ - Reality is obtained not by imitation, but by producing the sense of nature.
+ - A picture should be the expression of the will of the painter.
+ - To have ideas one must have imagination. To express ideas one must have science.
+ - The reason for the survival of the award system is purely commercial.
+ - You will never draw the sense of a thing unless you are feeling it at the time you work.
+ - Art need not be intended. It comes inevitably as the tree from the root, the branch from the trunk, the blossom from the twig. None of these forget the present in looking backward or forward. They are occupied wholly with the fulfillment of their own existence.
+ - Art is an outsider, a gypsy over the face of the earth.
+ - If a certain activity, such as painting, becomes the habitual mode of expression, it may follow that taking up the painting materials and beginning work with them will act suggestively and so presently evoke a flight into the higher state.
+ - Paint like a fiend when the idea possesses you.
+ - The picture that looks as if it were done without an effort may have been a perfect battlefield in its making.
+ - Renoir had not only a great interest in human character, in human feeling, but had also a great love for the people he painted.
+ - Get the few main lines and see what lines they call out.
+ - Concentrate on a single feature – as, build all toward one eye – make all lines lead toward that eye.
+ - When we respect the nude, we will no longer have any shame about it.
+
+149 quotes

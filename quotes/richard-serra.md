@@ -1,0 +1,33 @@
+ - Everything we choose in life for its lightness soon reveals its unbearable weight.
+ - What interests me is the opportunity for all of us to become something different from what we are, by constructing spaces that contribute something to the experience of who we are.
+ - Play is a necessary ingredient in art because there is a kind of wonder that goes on when you play. You’re directing your activity toward a conclusion that isn’t prescribed by a particular method.
+ - To see is to think, and to think is to see.
+ - The thing about rigging is, you can learn it if you become a master rigger but there’s no book on rigging.
+ - Time and movement became really crucial to how I deal with what I deal with, not only sight and boundary but how one walks through a piece and what one feels and registers in terms of one’s own body in relation to another body.
+ - Most photographs take their cues from advertising, where the priority is high image content for an easy Gestalt reading.
+ - I consider space to be a material. The articulation of space has come to take precedence over other concerns. I attempt to use sculptural form to make space distinct.
+ - I used to eat lunch with Billy Wilder when I first came out here.
+ - Your eye is a muscle, you have to keep it in shape and the more you draw, the more you see.
+ - The thing about coming back to the Bay Area, it’s like coming home for me.
+ - I was in analysis and I told my analyst I wanted to be the best sculptor in the world and he said, ‘Richard, calm down.’
+ - I think you always have to find where the boundary is in relation to the context in order to be able to kind of articulate how you want the space to interact with the viewer.
+ - But I don’t think of any particular viewer in mind other than myself.
+ - I thought Out of Action was better as a catalogue than the honeycomb because the honeycomb was like walking into one compartment and then another compartment.
+ - When I moved into making sculpture, I could handle steel the way it had been handled in the technological revolution. I could use it the way bridge builders used it; I could use it the way they used it in industry and building and not the way it had been used in art.
+ - I started working for Bethlehem Steel when I was about 16 during the summers.
+ - But I’ll try to immerse myself in as many of the formal characteristics of site as possible in the landscape.
+ - But what does interest me is the notion that if you do a lot of work it means there’s a potential for other people to understand that a lot of things are possible with a sustained effort and that the broadening of experiences is possible and I think that’s all art can be.
+ - Art is not democratic. It is not for the people.
+ - I think different people have different problems and different relations to the exhibition of their work.
+ - If you get it out into the urban field it’s going to be used or misused but it’ll also probably provide a way of people acknowledging what the aesthetic is about because people have to confront it every day.
+ - Art for the most part, is about concentration, solitude and determination. It’s really not about other people’s needs and assumptions. I’m not interested in the notion that art serves something. Art is useless, not useful.
+ - The viewer becomes aware of himself and of his movement through the plaza. As he moves, the sculpture changes. Contraction and expansion of the sculpture result from the viewer’s movement. Step by step the perception not only of the sculpture but of the entire environment changes.
+ - On the other hand, if there’s an underlying core of poetry that I go to, I go to the sea. I’ve lived on the sea all my life. I live on the sea in Cape Breton.
+ - And certainly the history of public sculpture has been disastrous but that doesn’t mean it ought not to continue and the only way it even has a chance to continue is if the work gets out into the public.
+ - Basically, what you really want to do is try to engage the viewer’s body relation to his thinking and walking and looking, without being overly heavy-handed about it.
+ - But you have to take all of those things, you have to take into consideration the paths, the roadways, how much cloud cover there is, how much foliage cover there is, whether there are streams, all of that comes into play.
+ - Most of what you see in architecture are watered-down ideas of sculptors who have come before.
+ - I think this, I think basically I’m not interested in people following my work or making work like my work.
+ - Work out of your work. Don’t work out of anybody else’s work.
+
+31 quotes

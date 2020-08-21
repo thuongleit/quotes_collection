@@ -1,0 +1,245 @@
+ - It does not matter how slowly you go so long as you do not stop.
+ - Don’t think about making art, just get it done. Let everyone else decide if it’s good or bad, whether they love it or hate it. While they are deciding, make even more art.
+ - They always say time changes things, but you actually have to change them yourself.
+ - As soon as you stop wanting something, you get it.
+ - Perception precedes reality.
+ - Look poor, think rich.
+ - Don't pay any attention to what they write about you. Just measure it in inches.
+ - People should fall in love with their eyes closed.
+ - Art is what you can get away with.
+ - Sometimes people let the same problem make them miserable for years when they could just say, So what. That's one of my favorite things to say. So what.
+ - I think having land and not ruining it is the most beautiful art that anybody could ever want.
+ - An artist is somebody who produces things that people don't need to have.
+ - Being good in business is the most fascinating kind of art. Making money is art and working is art and good business is the best art.
+ - The best thing about a picture is that it never changes, even when the people in it do.
+ - I like boring things.
+ - There is beauty in everything, Just not everybody sees it.
+ - The world fascinates me.
+ - Think rich, look poor.
+ - The idea of waiting for something makes it more exciting.
+ - When people are ready to, they change. They never do it before then, and sometimes they die before they get around to it. You can’t make them change if they don’t want to, just like when they do want to, you can’t stop them.
+ - Fashion is more art than art is.
+ - I just do art because I’m ugly and there’s nothing else for me to do.
+ - I learned that you actually have more power when you shut up.
+ - I want to die with my blue jeans on.
+ - Kiss me with your eyes.
+ - I am a deeply superficial person.
+ - You have to do stuff that average people don’t understand because those are the only good things.
+ - Why do people spend their time being sad when they could be happy?
+ - New things are always better than old things.
+ - Pop art is about liking things.
+ - I smoke pot because I want to go to heaven before I die.
+ - I never fall apart, because I never fall together.
+ - Security breeds stagnation.
+ - The reason I’m painting this way is that I want to be a machine, and I feel that whatever I do and do machine-like is what I want to do.
+ - You have to be willing to get happy about nothing.
+ - People are always so boring when they band together. You have to be alone to develop all the idiosyncrasies that make a person interesting.
+ - I’m seeking out a new way to live and if it’s surfing, that’s the way I’ll do it. I’ll be a surfer for the rest of my life.
+ - I think everybody should like everybody.
+ - You need to let the little things that would ordinarily bore you suddenly thrill you.
+ - If you’re not trying to be real, you don’t have to get it right. That’s art.
+ - But I always say, one’s company, two’s a crowd, and three’s a party.
+ - I wake up every morning. I open my eyes and think: here we go again.
+ - The most exciting thing is not doing it. If you fall in love with someone and never do it, it’s much more exciting.
+ - The nicer I am, the more people think I’m lying.
+ - Being born is like being kidnapped. And then sold into slavery.
+ - I don’t want to be smart, because being smart makes you depressed.
+ - Day after day I look in the mirror and I still see something.
+ - I’m afraid that if you look at a thing long enough, it loses all of its meaning.
+ - The moment you label something, you take a step-I mean, you can never go back again to seeing it unlabelled.
+ - Pop art is for everyone.
+ - My fascination with letting images repeat and repeat or in film’s case ‘run on’ manifests my belief that we spend much of our lives seeing without observing.
+ - I still care about people but it would be so much easier not to care. I don’t want to get too close; I don’t like to touch things...
+ - Everyone will be famous for 15 minutes.
+ - Fantasy love is much better than Reality Love.
+ - Isn’t life a series of images that change as they repeat themselves?
+ - Every song has a memory; every song has the ability to make or break your heart, shut down the heart, and open the eyes. But I’m afraid if you look at a thing long enough; it loses all of its meaning.
+ - People need to be made more aware of the need to work at learning how to live because life is so quick and sometimes it goes away too quickly.
+ - If you wear a wig, everybody notices. But if you then dye the wig, people notice the dye.
+ - The mystery was gone but the amazement was just starting.
+ - Everyone winds up kissing the wrong person goodnight.
+ - Sometimes something can look beautiful just because it’s different in some way from the other things around it. One red petunia in a window box will look very beautiful if all the rest of them are white, and vice-versa.
+ - You can never predict what little things in the way somebody looks or talks or acts will set off peculiar emotional reactions in other people.
+ - If everybody’s not a beauty, then nobody is.
+ - People are always calling me a mirror and if a mirror looks into a mirror, what is there to see?
+ - Paintings are too hard. The things I want to show are mechanical. Machines have less problems. I’d like to be a machine, wouldn’t you?
+ - When you do something exactly wrong, you always turn up something.
+ - When I got my first television set, I stopped caring so much about having close relationships.
+ - Empty space is never-wasted space. Wasted space is any space that has art in it.
+ - Sex is the biggest nothing of all time.
+ - If there’s ever a problem, I film it and it’s no longer a problem. It’s a film.
+ - I wanted to paint nothing. I was looking for something that was the essence of nothing, and the soup can was it.
+ - Publicity is like eating peanuts. Once you start you can’t stop.
+ - The most beautiful thing in Tokyo is McDonald’s. The most beautiful thing in Stockholm is McDonald’s. The most beautiful thing in Florence is McDonald’s. Peking and Moscow don’t have anything beautiful yet.
+ - One person in the 60s fascinated me more than anybody I had ever known. And the fascination I experienced was probably very close to a certain kind of love.
+ - The key of the success of Studio 54 is that it’s a dictatorship at the door and a democracy on the dance floor.
+ - If you can convince yourself that you look fabulous, you can save yourself the trouble of primping.
+ - Land really is the best art.
+ - My instinct about painting says, ‘if you don’t think about it, it’s right.’ As soon as you have to decide and choose, it’s wrong. And the more you decide about, the more wrong it gets.
+ - I used to have the same lunch every day, for 20 years, I guess, the same thing over and over again.
+ - Love and sex can go together and sex and unlove can go together and love and unsex can go together. But personal love and personal sex is bad.
+ - Two people kissing always look like fish.
+ - My idea of a good picture is one that’s in focus and of a famous person.
+ - It’s the movies that have really been running things in America ever since they were invented. They show you what to do, how to do it, when to do it, how to feel about it, and how to look how you feel about it.
+ - I think somebody should be able to do all my paintings for me.
+ - I want everybody to think alike. I think everybody should be a machine.
+ - I never think that people die. They just go to department stores.
+ - Wasting money puts you in a real party mood.
+ - Death means a lot of money, honey. Death can really make you look like a star.
+ - Voyeurism is a director’s job description. It’s an artist’s, too.
+ - I always run into strong women who are looking for weak men to dominate them.
+ - Sometimes the little times you don’t think are anything while they’re happening turn out to be what marks a whole period of your life.
+ - I love Los Angeles. I love Hollywood. They’re beautiful. Everybody’s plastic, but I love plastic. I want to be plastic.
+ - Art? That’s a man’s name.
+ - I wonder if it’s possible to have a love affair that lasts forever.
+ - I used to drink Coke all the time. It was so good. It gives you a lot of energy.
+ - I always thought I’d like my own tombstone to be blank. No epitaph, and no name. Well, actually, I’d like it to say ‘figment.’
+ - Everybody must have a fantasy.
+ - Dying is the most embarrassing thing that can ever happen to you, because someone’s got to take care of all your details.
+ - Fashion wasn’t what you wore someplace anymore; it was the whole reason for going.
+ - I always wished I had died, and I still wish that, because I could have gotten the whole thing over with.
+ - I have Social Disease. I have to go out every night. If I stay home one night I start spreading rumors to my dogs.
+ - I’m bored with that line. I never use it anymore. My new line is ‘In 15 minutes everybody will be famous.’
+ - I think anybody can take a good picture. My idea of a good picture is one that’s in focus and of a famous person doing something unfamous. It’s being in the right place at the wrong time.
+ - I do the same thing everyday. I go to work and paint. I try to turn out as many pictures as I can.
+ - Switzerland is my favorite place now, because it’s so – nothing. There is absolutely nothing to do.
+ - If I had gone ahead and died ten years ago, I’d probably be a cult figure today.
+ - The most exciting attractions are between two opposites that never meet.
+ - Don’t think about making art...
+ - Living in New York City gives people real incentives to want things that nobody else wants.
+ - Being born is like being kidnapped. And then sold into slavery. People are working every minute. The machinery is always going. Even when you sleep.
+ - My ideal city would be one long main street with no cross streets or side streets to jam up traffic. Just a long one-way street.
+ - You’d be surprised how many people want to hang an electric chair on their living-room wall. Specially if the background color matches the drapes.
+ - The best museum is Bloomingdales.
+ - James Dean was the damaged but beautiful soul of our time.
+ - I always notice flowers.
+ - If you want to know all about Andy Warhol, just look at the surface of my paintings and films and me, and there I am. There’s nothing behind it.
+ - Exposure and attention make a work famous – the more you talk about it, the more attention it gets, the more validity it achieves.
+ - I went to vote once, but I got too scared. I couldn’t decide whom to vote for.
+ - Everybody has their own America, and then they have pieces of a fantasy America that they think is out there but they can’t see.
+ - Uptown is for people who have already done something. Downtown is where they’re doing something now. I live uptown but I love downtown.
+ - Rodeo Drive is a giant butterscotch sundae.
+ - I can’t remember my dreams more than a couple of seconds after I wake up. It’s frustrating because sometimes I dream that I’m watching a really good movie.
+ - Buying is more American than thinking, and I’m as American as they come.
+ - A picture means I know where I was every minute. That’s why I take pictures. It’s a visual diary.
+ - I want to be a machine.
+ - Even beauties can be unattractive. If you catch a beauty in the wrong light at the right time, forget it. I believe in low lights and trick mirrors. I believe in plastic surgery.
+ - The idea of America is so wonderful because the more equal something is, the more American it is.
+ - I will go to the Opening of Anything, including a Toilet Seat.
+ - I broke something and realized I should break something once a week to remind me how fragile life is.
+ - I always hear myself saying, ‘She’s a beauty!’ or ‘He’s a beauty!’ or ‘What a beauty!’ but I never know what I’m talking about.
+ - Everything will be art and nothing will be art, because everything, as I believe, already is.
+ - Everything is more glamorous when you do it in bed anyway.
+ - When you work with people who misunderstand you, instead of getting transmissions, you get transmutations, and that’s much more interesting in the long run.
+ - What’s great about this country is that America started the tradition where the richest consumers buy essentially the same things as the poorest.
+ - Brigitte Bardot was one of the first women to be really modern and treat men like love objects, buying them and discarding them. I like that.
+ - I like to be the right thing in the wrong place and the wrong thing in the right place. Being the right thing in the wrong place and the wrong thing in the right place is worth it because something interesting always happens.
+ - Business art is the step that comes after Art. I started as a commercial artist, and I want to finish as a business artist.
+ - I read an article on me once that described my machine-method of silk-screen copying and painting: ‘What a bold and audacious solution, what depths of the man are revealed in this solution!’ What does that mean?
+ - I don’t believe people die. They just go uptown. To Bloomingdales. They just take longer to get back.
+ - The mosquito is the state bird of New Jersey.
+ - Actually, I jade very quickly. Once is usually enough. Either once only, or every day. If you do something once it’s exciting, and if you do it every day it’s exciting. But if you do it, say, twice or just almost every day, it’s not good any more.
+ - You can be just as faithful to a place or a thing as you can to a person. A place can really make your heart skip a beat, especially if you have to take a plane to get there.
+ - Once you ‘got’ Pop, you could never see a sign again the same way again. And once you thought Pop, you could never see America the same way again.
+ - You have to hang on in periods when your style isn’t popular, because if it’s good, it’ll come back, and you’ll be a recognized beauty once again.
+ - When I look at things, I always see the space they occupy. I always want the space to reappear, to make a comeback, because it’s lost space when there’s something in it.
+ - Why do people think artists are special? It’s just another job.
+ - You meet rich people and you hang around with them, and one night they’ve had a few drinks and they say ‘I’ll buy it!’ Then they tell their friends, ‘You must have this person’s work, darling,’ and that’s all you need. That’s all it takes. Get it?
+ - Employees make the best dates. You don’t have to pick them up and they’re always tax-deductible.
+ - I had a lot of dates but I decided to stay home and dye my eyebrows.
+ - The biggest price you pay for love is that you have to have somebody around, you can’t be on your own, wich is always so much better.
+ - In some circles where very heavy people think they have very heavy brains, words like “charming” and “clever” and “pretty” are all put-downs; all the lighter things in life, which are the most important things, are put down.
+ - I just happen to like ordinary things. When I paint them, I don’t try to make them extraordinary. I just try to paint them ordinary-ordina ry.
+ - People’s fantasies are what give them problems. If you didn’t have fantasies you wouldn’t have problems because you’d just take whatever was there.
+ - So many people seem to prefer my silver-screenings of movie stars to the rest of my work. It must be the subject matter that attracts them, because my death and violence paintings are just as good.
+ - I’ve decided something: Commercial things really do stink. As soon as it becomes commercial for a mass market it really stinks.
+ - Romance is finding your fantasy in people who don’t have it.
+ - New York restaurants are about selling atmospheres.
+ - Traveling makes time go fast. So maybe traveling in space will give people time.
+ - We live in an age when the traditional great subjects – the human form, the landscape, even newer traditions such as abstract expressionism – are daily devalued by commercial art.
+ - I think kids should go to high school until they’re 30. No, really, because people are staying younger now and there’s nothing to do. If you stayed longer, then it would be really great.
+ - Success is when the checks don’t bounce.
+ - People sometimes say that the way things happen in the movies is unreal, but actually, it’s the way things happen to you in life that’s unreal. The movies make emotions look strong and real, whereas when things really do happen to you, it’s like you’re watching television – you don’t feel anything.
+ - Sex is more exciting on the screen and between the pages than between the sheets.
+ - Everything is beautiful. Pop is everything.
+ - I get so tired of painting. I’ve been trying to give it up all the time, if we could just make a living out of movies or the newspaper business or something. It’s so boring, painting the same picture over and over.
+ - I love going out every night. It’s so exciting.
+ - A friend of mine always says, ‘Women love me for the man I’m not.’
+ - After being alive, the next hardest work is having sex.
+ - Maybe the reason my memory is so bad is that I always do at least two things at once. It’s easier to forget something you only half-did or quarter did.
+ - Bad taste makes the day go by faster.
+ - Before I was shot, I always thought that I was more half-there than all-there – I always suspected that I was watching TV instead of living life. Right when I was being shot and ever since, I knew that I was watching television.
+ - Now and then, someone would accuse me of being evil – of letting people destroy themselves while I watched, just so I could film them and tape-record them. But I didn’t think of myself as evil – just realistic.
+ - I like church. It’s empty when I go. I walk around. There are so many beautiful Catholic churches in New York.
+ - I don’t know anybody who doesn’t have a fantasy. Everybody must have a fantasy.
+ - I’d rather do new stuff. The old stuff is better to talk about than to see. It always sounds better than it really is.
+ - I believe in low lights and trick mirrors.
+ - Since I was shot, everything is such a dream to me. Like I don’t know whether I’m alive or whether I died. I wasn’t afraid before. And having been dead once, I shouldn’t feel fear. But I am afraid. I don’t understand why.
+ - I never wanted to be a painter; I wanted to be a tap dancer.
+ - There should be a course in first grade on love.
+ - Sports figures are to the ’70s what movie stars were to the ’60s.
+ - Beauty is a sign of intelligence.
+ - Most people in America think Art is a man’s name.
+ - I don’t know where the artificial stops and the real starts.
+ - Beauty really has to do with the way a person carries it off.
+ - After Wakefield Poole’s films, mine are unnecessary and a bit naive, don’t you think?
+ - When I look around today, the biggest anachronism I see is pregnancy. I just can’t believe that people are still pregnant.
+ - When I think about what sort of person I would most like to have on a retainer, I think it would be a boss. A boss who could tell me what to do, because that makes everything easy when you’re working.
+ - The teachers liked me. In grade school, they make you copy pictures from books. I think the first one was Robert Louis Stevenson.
+ - I suppose I have a really loose interpretation of ‘work,’ because I think that just being alive is so much work at something you don’t always want to do. The machinery is always going. Even when you sleep.
+ - Sociological critics are waste makers.
+ - When I was in the hospital after I was shot they gave me drugs, but it was so great to get off those.
+ - I really do live for the future, because when I’m eating a box of candy, I can’t wait to taste the last piece.
+ - During the 1960s, I think, people forgot what emotions were supposed to be. And I don’t think they’ve ever remembered.
+ - The symptom of love is when some of the chemicals inside you go bad. So there must be something in love because your chemicals do tell you something.
+ - Photographers feel guilty that all they do for a living is press a button.
+ - I used to think that everything was just being funny but now I don’t know. I mean, how can you tell?
+ - I loved working when I worked at commercial art and they told you what to do and how to do it and all you had to do was correct it and they’d say yes or no. The hard thing is when you have to dream up the tasteless things to do on your own.
+ - Whenever I’m interested in something, I know the timing’s off, because I’m always interested in the right thing at the wrong time. I should just be getting interested after I’m not interested any more.
+ - I wish I hadn’t made so many images.
+ - I never understand how the lipstick business goes on because lipstick lasts forever.
+ - The lobbies are always the best-looking place in the hotel-you wish you could bring out a cot and sleep in them. Compared to the lobby, your room always looks like a closet.
+ - The wide multitude wanted to seem contrarian. It meant that this type of nonconformism had to be mass-produced.
+ - When the Woolworth’s-Hot-Fudge-Sundae switch goes on, then I know I really have something.
+ - I never met a pet I didn’t like.
+ - I think Chris Burden is terrific. I really do.
+ - Money has a certain kind of amnesty.
+ - I’ve never made the separation between, say, the museum and the hardware store. I mean, I enjoy both of them, and I want to combine the two.
+ - You know it’s ART, when the check clears.
+ - I can never get over when you’re on the beach how beautiful the sand looks and the water washes it away and straightens it up and the trees and the grass all look great. I think having land and not ruining it is the most beautiful art that anybody could ever want to own.
+ - Remember, they’ve never seen you before in their life.
+ - Business Art is the step that comes after Art.
+ - Since people are going to be living longer and getting older, they’ll just have to learn how to be babies longer.
+ - It would be very glamorous to be reincarnated as a great big ring on Liz Taylor’s finger.
+ - I used to cut out paper dolls.
+ - Free countries are great, because you can actually sit in somebody else’s space for a while and pretend you’re a part of it. You can sit in the Plaza Hotel and you don’t even have to live there. You can just sit and watch the people go by.
+ - I’m for mechanical art. When I took up silk screening, it was to more fully exploit the preconceived image through the commercial techniques of multiple reproduction.
+ - I think an artist is anybody who does something well, like if you cook well.
+ - Success is what sells.
+ - I’d asked around 10 or 15 people for suggestions. Finally one lady friend asked the right question, ‘Well, what do you love most?’ That’s how I started painting money.
+ - If you’re traveling for five years or something like that, you’re going somewhere. But five years are being used up, and you don’t have to do anything. You just sit on the plane. That might make time go really fast.
+ - I’m the type who’d be happy not going anywhere as long as I was sure I knew exactly what was happening at the places I wasn’t going to. I’m the type who’d like to sit home and watch every party that I’m invited to on a monitor in my bedroom.
+ - I think pot should be legal. I don’t smoke it, but I like the smell of it.
+ - My style was always to spread out rather than to move up.
+ - I like to work when I’m not working – do something that may not be considered work, but to me it’s work. Getting exercise by going to the grocery store.
+ - I think the first photograph I did was a ballplayer. It was a way of showing action or something.
+ - I’ll bet there are a lot of artists that nobody hears about who just make more money than anybody. The people that do all the sculptures and paintings for big building construction. We never hear about them, but they make more money than anybody.
+ - I really like to work a lot. It makes time go by fast.
+ - What we’re all looking for is someone who doesn’t live there, just pays for it.
+ - I always think I don’t do the first one good, so I try to do it more.
+ - I always like to see if the art across the street is better than mine.
+ - It must be hard to be a model, because you’d want to be like the photograph of you, and you can’t ever look that way.
+ - I think video is the best market. When the cassette market comes out, if you just do movies that nobody else can do, that’ll be the new way.
+ - The only time I ever want to be something is outside a party so I can get in.
+ - What I was actually trying to do in my early movies was show how people can meet other people and what they can do and what they can say to each other. That was the whole idea: two people getting acquainted.
+ - The clothes of Courreges are so nice.
+ - The interviewer should just tell me the words he wants me to say and I’ll repeat them after him. I think that would be so great because I’m so empty I just can’t think of anything to say.
+ - If you don’t think about it, it’s right.
+ - I do mostly portraits. So it’s just people’s faces, not really any ideas.
+ - I’ll bet there are a lot of artists that nobody hears about who just make more money than anybody.
+ - I really hate heights. I always like to live on the first floor.
+ - Andy Warhol: I think everybody should like everybody. Gene Swenson: Is that what Pop Art is all about? Andy Warhol: Yes, it’s liking things.
+ - And your own life while it’s happening to you never has any atmosphere until it’s a memory.
+ - Nutty people are always writing me. I always think I must be on some nutty mailing list.
+
+243 quotes

@@ -1,0 +1,36 @@
+ - I just think it’s important to be direct and honest with people about why you’re photographing them and what you’re doing. After all, you are taking some of their soul.
+ - The subject gives you the best idea of how to make a photograph. So I just wait for something to happen.
+ - Photograph the world as it is. Nothing’s more interesting than reality.
+ - It’s not when you press the shutter, but why you press the shutter.
+ - Reality is always extraordinary.
+ - I’m not against digital photography. It’s great for newspapers. And there are photographers doing great work digitally. When they use Photoshop as a darkroom tool, that’s fine, too. But at this point of my life, after so many years, I don’t really want to change, and I still love film.
+ - When I started out, it was considered very wrong to change an image. There were scandals if someone inserted a sky into a war picture or something. Now it’s all about that.
+ - Finding the right subject is the hardest part.
+ - I want my photographs not only to be real but to portray the essence of my subjects also. In order to do that, you have to be patient.
+ - I respect newspapers, but the reality is that magazine ‘photojournalism’ is finished. They want illustrations, Photoshopped pictures of movie stars.
+ - There are some people who become best friends with everyone they photograph. There are people that I really like and admire and respect, but in a way I think it’s better to keep a distance. I think you get better pictures of people that you don’t know very well.
+ - I think the prom is very serious also. It’s an American ritual, it’s a rite of passage, and it’s very much a part of this country.
+ - If you are interested in photography because you love it and are obsessed with it, you must be self-motivated, a perfectionist, and relentless.
+ - Everyone asks me how I get my subjects to open up to me. There’s no formula to it. It’s just a matter of who you are and how you talk to people – of being yourself.
+ - If I hadn’t become a photographer, I would have loved to become a doctor. I would have loved to have done something that actually helped people and changed their lives.
+ - I’m just interested in people on the edges. I feel an affinity for people who haven’t had the best breaks in society. What I want to do more than anything is acknowledge their existence.
+ - A great photograph needs no explanation; it functions by suggestion. There is no need to be explicit.
+ - Nowadays shots are created in post-production, on computers. It’s not really photography.
+ - Im just interested in what makes a photograph.
+ - I always wanted to photograph the universal subjects.
+ - I’m a documentary photographer. That’s what I’ve always wanted to be; that’s where my heart and soul is.
+ - I work in colour sometimes, but I guess the images I most connect to, historically speaking, are in black and white. I see more in black and white – I like the abstraction of it.
+ - In a portrait, you always leave part of yourself behind.
+ - I wanted to travel from the beginning. As a kid, I used to dream about airplanes, before I ever flew in one.
+ - Learning how to use different formats has made me a better photographer. When I started working in medium format, it made me a better 35 mm photographer. When I started working in 4x5, it made me a better medium-format photographer.
+ - I’m interested in reality, and I’m interested in survival. I’m interested in people who aren’t the lucky ones, who maybe have a tougher time surviving, and telling their story.
+ - One of my all-time favorite photographers is Irving Penn. I wish I could have watched him work.
+ - Sometimes I work on film sets. I’ve done this for 40 years. I always wanted to photograph on the set of an Ingmar Bergman film. Unfortunately, I never had the opportunity.
+ - The obsessions we have are pretty much the same our whole lives. Mine are people, the human condition, life.
+ - Usually my ideas for work have revolved around my interest in people, especially people that live on the edges of society.
+ - I go into every story thinking I’m going to fail. I think about that all the time – I think it’s going to be terrible. Every story is like the first I’ve ever done.
+ - When you’re working on a film, it’s almost like photographing paintings at a museum. You’re photographing somebody else’s world. I just try and interpret it and make it real, and make it what the actors are about, what the director is about, and what the film is about.
+ - I don’t think you can develop or learn a way of seeing or a point of view. A way of seeing is who you are, how you think and how you create images. It is something that is inside of you. It’s how you look at the world.
+ - I was fascinated by my own prom pictures.
+
+34 quotes

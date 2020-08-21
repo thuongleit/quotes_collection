@@ -1,0 +1,29 @@
+ - I like peace and solitude and silence.
+ - I’m not really a femme fatale.
+ - My dream life is just to go back to my job full-time. And be with my family. You know, regular dreams, common dreams that everyone has.
+ - It would never occur to me to judge anyone.
+ - I only judge people in one way. I like them or I don’t. But I don’t have preconceived ideas.
+ - I’m not at all an active feminist. On the contrary, I’m a bourgeois. I love family life, I love doing the same thing every day.
+ - I love English rock music the best and have always been fascinated by The Clash, especially Joe Strummer, their singer.
+ - When I met Eric Clapton, I was a very young girl. I was 20 years old. And we were linked for a very short time, and then we became friends. And then we lost touch, which I’m really sorry about.
+ - I’m monogamous from time to time, but I prefer polygamy and polyandry.
+ - In reality, I don’t see myself as a man hunter. In fact, when it comes to love, I am rarely the one to make the first move.
+ - Love lasts a long time but burning desire lasts two to three weeks.
+ - I am cursed with computers; something always goes wrong.
+ - I think it would be shocking for me to pretend not to have any past. And also, it would be a lie.
+ - I want a man with nuclear power.
+ - When I was having my hair and make-up done backstage at a fashion show, I would sneak in a copy of Dostoevsky and read it inside a copy of Elle or Vogue. But it would be pretentious of me to say I was more intelligent than the other supermodels.
+ - My mother was a classical pianist and my stepfather was an industrialist who was passionate about composing contemporary music.
+ - Marriage is another trap. If you are someone who likes independence, it’s another stamp against that. And you have to swear to fidelity.
+ - It’s always astounded me to have succeeded at having kids. It’s crazy!
+ - I find that talking about myself is often the most boring thing in the world. Sixty per cent of interviews I find mechanical.
+ - I’m crazy about Israel. It’s full of life.
+ - But I’m very careful with opinions because I never know what the truth is. When I read what the press says about me, I don’t really believe what it says about other people.
+ - I care about writing music and playing my music.
+ - I hoped that, you know, France wouldn’t mind about, you know, the wife of their president to having a job.
+ - We don’t need to be feminist in my generation.
+ - I’ve ended up becoming my mother in some respects, despite my eight years of analysis!
+ - I must represent France, and I want to be elegant, and I want the French people to be proud of me, you know.
+ - I thought marriage was something very quiet and very regular and very bourgeois.
+
+27 quotes

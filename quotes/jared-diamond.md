@@ -1,0 +1,67 @@
+ - Perhaps our greatest distinction as a species is our capacity, unique among animals, to make counter-evolutionary choices.
+ - Biology is the science. Evolution is the concept that makes biology unique.
+ - All of our current environmental problems are unanticipated harmful consequences of our existing technology. There is no basis for believing that technology will miraculously stop causing new and unanticipated problems while it is solving the problems that it previously produced.
+ - Much of human history has consisted of unequal conflicts between the haves and the have-nots.
+ - Although native Africans domesticated some plants in the Sahel and in Ethiopia and in tropical West Africa, they acquired valuable domestic animals only later, from the north.
+ - Recent discoveries about apes suggest, however, that a gorilla or common chimp stands at least as good a chance being murdered as the average human.
+ - Forced to choose between limiting population or trying to increase food production, we chose the latter and ended up with starvation, warfare, and tyranny.
+ - Why is it that you white people developed so much cargo and brought it to New Guinea, but we black people had little cargo of our own?
+ - The adoption of agriculture, supposedly our most decisive step toward a better life, was in many ways a catastrophe from which we have never recovered.
+ - It’s striking that Native Americans evolved no devastating epidemic diseases to give to Europeans, in return for the many devastating epidemic diseases that Indians received from the Old World.
+ - African cavalry mounted on rhinos or hippos would have made mincemeat of European cavalry mounted on horses. But it couldnt happen.
+ - Infectious diseases introduced with Europeans, like smallpox and measles, spread from one Indian tribe to another, far in advance of Europeans themselves, and killed an estimated 95% of the New World’s Indian population.
+ - Technology has to be invented or adopted.
+ - Rhino-mounted Bantu shock troops could have overthrown the Roman Empire. It never happened.
+ - A blueprint for disaster in any society is when the elite are capable of insulating themselves.
+ - Measles and TB evolved from diseases of our cattle, influenza from a disease of pigs, and smallpox possibly from a disease of camels. The Americas had very few native domesticated animal species from which humans could acquire such diseases.
+ - The past was still a Golden Age, of ignorance, while the present is an Iron Age of willful bliss.
+ - With the rise of chiefdoms around 7,500 years ago, people had to learn, for the first time in history, how to encounter strangers regularly without attempting to kill them.
+ - Our biggest threat is not an asteroid about to crash into us, something we can do nothing about. Instead, all the major threats facing us today are problems entirely of our own making. And since we made the problems, we can also solve the problems.
+ - Not until the beginning of the 20th century did Europe’s urban populations finally become self-sustaining: before then, constant immigration of healthy peasants from the countryside was necessary to make up for the constant deaths of city dwellers from crowd diseases.
+ - History as well as life itself is complicated – neither life nor history is an enterprise for those who seek simplicity and consistency.
+ - Why did human development proceed at such different rates on different continents for the last 13,000 years?
+ - The King’s 28 letters have been described by scholars as the world’s best alphabet and the most scientific system of writing.
+ - I’d rather spend my leisure time doing what some people call my work and I call my fun.
+ - The single most important problem is our misguided focus on identifying the single most important problem!
+ - Australia is the most isolated continent.
+ - All recognized famous inventors had capable predecessors and successors and made their improvements at a time when society was capable of using their product.
+ - Civilization originates in conquest abroad and repression at home.
+ - What did the last Easter Islander say as he chopped down the last tree? The Easter Islanders didnt have anthropologists.
+ - The United States has long thought of itself as the land of infinite plenty, and historically we did have abundant resources. But now we are gradually exhausting our fisheries, our topsoil, our water. On top of that, we’re coming to the end of world resources.
+ - Technology causes problems as well as solves problems. Nobody has figured out a way to ensure that, as of tomorrow, technology won’t create problems. Technology simply means increased power, which is why we have the global problems we face today.
+ - The rate of human invention is faster, and the rate of cultural loss is slower, in areas occupied by many competing societies with many individuals and in contact with societies elsewhere.
+ - It invites a search for ultimate causes: why were Europeans, rather than Africans or Native Americans, the ones to end up with guns, the nastiest germs, and steel?
+ - Native Americans had only stone and wooden weapons and no animals that could be ridden. Those military advantages repeatedly enabled troops of a few dozen mounted Spaniards to defeat Indian armies numbering in the thousands.
+ - The Anasazi did manage to construct in stone the largest and tallest buildings erected in North America until the Chicago steel girder skyscrapers of the 1880s.
+ - The main thing that gives me hope is the media. We have radio, TV, magazines, and books, so we have the possibility of learning from societies that are remote from us, like Somalia. We turn on the TV and see what blew up in Iraq or we see conditions in Afghanistan.
+ - To dismiss the current extinction wave on the grounds that extinctions are normal events is like ignoring a genocidal massacre on the grounds that every human is bound to die at some time anyway.
+ - Today Charles Darwin is best known for establishing the fact of evolution and for recognizing the major role of natural selection in driving it.
+ - We’re uncomfortable about considering history as a science. It’s classified as a social science, which is considered not quite scientific.
+ - With the MacArthur grant, I realized that people have high expectations of me, that they were placing me in this group of achievers. I compared what Id actually achieved in my life with what I would like to achieve and what other people have achieved, and I found that comparison depressing.
+ - All human societies go through fads in which they temporarily either adopt practices of little use or else abandon practices of considerable use.
+ - Human societies vary in lots of independent factors affecting their openness to innovation.
+ - Why were there far more species of domesticated animals in Eurasia than in the Americas? The Americas harbor over a thousand native wild mammal species, so you might initially suppose that the Americas offered plenty of starting material for domestication.
+ - Eurasia ended up with the most domesticated animal species in part because it’s the world’s largest land mass and offered the most wild species to begin with.
+ - Some people have much more pull than other people. But when I say that the public has ultimate responsibility, I’m not saying it in a moral sense. I’m just saying it in the sense of what is it that’s really going to bring change.
+ - In much of the rest of the world, rich people live in gated communities and drink bottled water. That’s increasingly the case in Los Angeles where I come from. So that wealthy people in much of the world are insulated from the consequences of their actions.
+ - The history of interactions among disparate peoples is what shaped the modern world through conquest, epidemics and genocide. Those collisions created reverberations that have still not died down after many centuries, and that are actively continuing in some of the world’s most troubled areas.
+ - Even to this day, no native Australian animal species and only one plant species-the macadamia nut-have proved suitable for domestication. There still are no domestic kangaroos.
+ - Think of all the human suffering caused by the sad truth that beautiful sexy women or handsome Porsche-owning men often prove to have miserable genes for other traits.
+ - Take air quality in the United States today: It’s about 30 percent better than it was 25 years ago, even though there are now more people driving more cars.
+ - I’ve always been interested in a lot of things, and a lot of things at the same time, and I always tried to explain them to myself. I ask a lot of questions.
+ - One way to explain the complexity and unpredictability of historical systems, despite their ultimate determinacy, is to note that long chains of causation may separate final effects from ultimate causes lying outside the domain of that field of science.
+ - Starbucks goes to a great effort, and pays twice as much for its coffee as its competitors do, and is very careful to help coffee producers in developing countries grow coffee without pesticides and in ways that preserve forest structure.
+ - Thousands of years ago, humans domesticated every possible large wild mammal species fulfilling all those criteria and worth domesticating, with the result that there have been no valuable additions of domestic animals in recent times, despite the efforts of modern science.
+ - The southward advance of native African farmers with Central African crops halted in Natal, beyond which Central African crops couldn’t grow – with enormous consequences for the recent history of South Africa.
+ - In parts of Montana, salt concentrations in soil water, have reached those double those of seawater.
+ - We can’t manipulate some stars while maintaining other stars as controls; we can’t start and stop ice ages, and we can’t experiment with designing and evolving dinosaurs.
+ - Federal elections happen every two years in this country. Presidential elections every four years. And four years just isn’t long enough to dismantle all the environmental laws we’ve got in this country.
+ - Science is often misrepresented as “the body of knowledge acquired by performing replicated controlled experiments in the laboratory.” Actually, science is something broader: the acquisition of reliable knowledge about the world.
+ - When you have seen the errors in which you live, you will understand the good that we have done you by coming to your land by order of his Majesty the King of Spain. Our Lord permitted that your pride should be brought low and that no Indian should be able to offend a Christian.
+ - Twenty years ago, you might have been pessimistic and said there’s no hope. But these days, some of our very biggest companies are acting remarkably cleanly. And in some cases, although not all cases, the CEOs are the driving forces behind that.
+ - In the latter case it is often government that organizes the conquest, and religion that justifies it.
+ - I personally am not conscious of my accent.
+ - No government is here forever. And there are other forces – the most potent force in our society, in fact, big business – doing good for the environment.
+ - Introspection and preserved writings give us far more insight into the ways of past humans than we have into the ways of past dinosaurs. For that reason, I’m optimistic that we can eventually arrive at convincing explanations for these broadest patterns of human history.
+
+65 quotes

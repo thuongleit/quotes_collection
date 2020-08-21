@@ -1,0 +1,36 @@
+ - Concentration and mental toughness are the margins of victory.
+ - Success is a result of consistent practice of winning skills and actions. There is nothing miraculous about the process. There is no luck involved.
+ - You can do anything you want to do if you want it bad enough.
+ - To love someone is nothing, to be loved by someone is something, to love someone who loves you is everything.
+ - Commitment separates those who live their dreams from those who live their lives regretting the opportunities they have squandered.
+ - Learning is a daily experience and a lifetime mission. I truly believe in the saying “We work to become, not to acquire.”
+ - The magic to a great meeting is all of the work that’s done beforehand.
+ - The idea is not to block every shot. The idea is to make your opponent believe that you might block every shot.
+ - The most important measure of how good a game I played was how much better I’d made my teammates play.
+ - You got to have the killer instinct. If you do not have it, forget about basketball and go into social psychology or something. If you sometimes wonder if you’ve got it, you ain’t got it. No pussycats, please.
+ - Friendship is a full-time job.
+ - If a guy pays you five dollars, you give him seven dollars worth of work.
+ - The most important thing to me is the friends that I’ve made.
+ - Create unselfishness as the most important team attribute.
+ - Heart in champions has to do with the depth of our motivation and how well your mind and body react to pressure – that is, being able to do what you do best under maximum pain and stress.
+ - My most prized possession was my library card from the Oakland Public Library.
+ - Most people have a harder time letting themselves love than finding someone to love them.
+ - Durability is part of what makes a great athlete.
+ - If Shakespeare can compare all of life to a stage, maybe it’s not odd to believe that part of the play can take place on a basketball court.
+ - If you really have integrity, there are very few people who can insult you, or honor you.
+ - Remember that basketball is a game of habits. If you make the other guy deviate from his habits, you’ve got him.
+ - The only important statistic is the final score.
+ - What distinguishes a great player is his presence. When he goes on to the court, his presence dominates the atmosphere.
+ - Don’t knock the ball in the stands, keep it in your hands!
+ - We overreached our decision power. Sometimes our decisions have to fit the reality of the outside world.
+ - What’s more important than who’s going to be the first black manager is who’s going to be the first black sports editor of the New York Times.
+ - The morale and the camaraderie that we had for one another earlier in the year is starting to come under duress because of all the losses. Some of the guys are feeling the pressure now from the last year when they were not successful.
+ - We couldn’t sustain it. And they got a lot of kids that can shoot. We just couldn’t close out well enough.
+ - I think what has happened to our basketball team, we’ve been badly distracted. They’re not reading too many positive things in the paper.
+ - I think that David Stern is probably the greatest commissioner that any sport has ever had in the history of this country.
+ - I’ve been fortunate to meet and work with a lot of really smart people. The thing that strikes me most about them is how they continue to explore and learn every day. I have tried to apply that approach in my modest career as well.
+ - We learn to make a shell for ourselves when we are young and then spend the rest of our lives hoping for someone to reach inside and touch us. Just touch us – anything more than that would be too much for us to bear.
+ - The last five or six days, I’ve been running. The last two days, I’ve been running pretty hard. Everybody’s got to be someplace.
+ - If you can take something to levels that very few other people can reach, then what you’re doing becomes art.
+
+34 quotes

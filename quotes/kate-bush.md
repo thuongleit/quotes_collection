@@ -1,0 +1,72 @@
+ - We let the weirdness in.
+ - The only person with you all your life is you. Your parents die. Things inside you die – illusions, gushes of personality. Only you can sort yourself out. Yourself may not be all you need, but it’s all you’ve got.
+ - I just know that something good is going to happen. I don’t know when – but just saying it could even make it happen.
+ - It’s not important to me that people understand me.
+ - I love words, I think they’re fascinating and incredibly wonderful things and part of the joy of my work is that I not only get to work with music but also with words. Sometimes it’s a difficult process but a lot of the time it’s really fun.
+ - Every old sock meets an old shoe.
+ - I think quotes are very dangerous things.
+ - Everyone of us has a heaven inside.
+ - They say that the Devil is a charming man. And just like you I bet he can dance.
+ - Clowns are always creepy!
+ - Mozart didn’t have Pro Tools, but he did a pretty good job.
+ - Irish folk is probably the biggest influence musically that I’ve ever had. My mother’s Irish. And when I was very young, both my brothers were very into traditional music, English and Irish. They were always playing music, so I was always brought up with it.
+ - Im the shyest megalomaniac youre ever likely to meet.
+ - We let it in, we give it out, and in the end what’s it all about? It must be love.
+ - When I’m a man, I will be an astronaut, and find Peter Pan on the second star on the right.
+ - Comedy is a very big part of the English culture, the sense of humor; it’s a very dominant trait.
+ - I think snow is so evocative and has such a powerful atmosphere.
+ - There is magic within, there is magic without. Follow me and you’ll learn just what life’s all about.
+ - My first Top of the Pops I didn’t want to do. I was terrified. I’d never done television before. Seeing the video afterwards was like watching myself die.
+ - I haven’t actually seen a Lady Gaga tour, but I do think she’s very good.
+ - Bang goes another kanga on the bonnet of the van.
+ - If you believe in what you do and you really want to be in music, just stick at it. It’s always a learning process. Enjoy it because I think making music is a privilege, really. In an ideal world, it should also always be fun. As much as possible, make it fun.
+ - Numbers are really fascinating things, and they do play a big part in our lives. They are a language of their own.
+ - It’s funny when you write a song – it’s easy for me now – but there’s almost a second stage where you take control of the song. You start writing it, and if you’re not careful, it just finishes itself and it might not be what you wanted. It’s very strange, it takes over itself. It has its own life.
+ - All we’re ever looking for is another open door.
+ - My studio is a fantastic combination of old and new, and that’s how I’ve always liked to work.
+ - Quite often, lyrics get misunderstood – and I never mind that. I guess what all artists want is for their work to touch someone or for it to bethought provoking.
+ - Its so fascinating to think about how each snowflake is completely individual – there are millions and millions of them, but each one is so unique.
+ - Don’t fall for a magic wand, we humans got it all, we perform the miracles.
+ - The great thing about vinyl is that if you wanted to get a decent-sounding cut, you could really only have 20 minutes max on each side. So you had a strict boundary, and that was something I’d grown up with as well. Also, you were able to have different moods on each side, which was nice.
+ - I could find faults with all my albums because that’s just a part of being an artist – it’s hard being a human being, isn’t it?
+ - I think I was just lucky to be brought up in a very musical family. My two older brothers were, and still are, very musical and very creative, and music was a big part of my life from a very young age, so it is quite natural for me to become involved in music in the way that I did.
+ - I think comedy and music are both things that we need as human beings. I think that both art forms can touch people.
+ - Maybe if my songs feel personal, that’s very nice. I like that. I take that as a great compliment.
+ - When I was first writing, I used to sit at the piano and play songs – I’d write one or two a night. It was my hobby. At some point, it then became a process that was mainly done within the context of the studio, and writing became part of the recording process.
+ - When you’d buy vinyl, you’d have this lovely-sized object with a lovely picture, and you’d read the lyrics and usually there was something artistic that went with it.
+ - Sometimes when I look back on myself on those earlier records, there was so much effort going in, so much trying. With this, I was trying to make it much more laid back.
+ - For me, having a child is a really great responsibility because you’ve got something there that is depending on you for information and love until a certain age when it goes to school.
+ - I feel like I have to do some promotion to let the people know that the records are out there; but I kind of like the idea that it’s my work that does the talking rather than me.
+ - There are a lot of very strong connections with music and mathematics. They both can work in patterns and sequences and repetitions.
+ - When you reach for a star, only angels are there. And it’s not very far, just a step on a stair.
+ - What I’ve tended to do is to use my own experiences to get into someone else’s mind, like in Wuthering Heights.
+ - I like to work with a combination of analog and Pro Tools. I love the sound of analog tape, but there’s so many things you can do with Pro Tools that would be incredibly difficult and very time-consuming with analog.
+ - I’ve read a couple of things that I was sort of close to having a nervous breakdown. But I don’t think I was. I was very, very tired. It was a really difficult time.
+ - I don’t think a lot of people listen to their old stuff, do they? I spent a long time making it, so I don’t really want to spend much time listening to it again.
+ - Some of the best pop music ever has come out of the States.
+ - It’s not that I don’t like American pop; I’m a huge admirer of it, but I think my roots came from a very English and Irish base. Is it all sort of totally non-American sounding.
+ - Music is like comedy in that you can enjoy a very – for want of abetter word – sophisticated classical piece as much as you enjoy something that’s very simple pop.
+ - When I’m writing I’ve been playing something for a couple of hours and I’m almost in a trance. At two or three in the morning you can actually see bits of inspiration floating about and grab them.
+ - Whatever is going on in your life when you’re writing has to somehow seep into your work.
+ - My desire was never to be famous. It was to try and create something interesting musically if I could.
+ - But I don’t have a very good track record with royalty. My dress fell off in front of Prince Charles at the Prince’s Trust, so I’m just living up to my reputation.
+ - I think in some parts of our English history we’ve had huge amounts of almost too much great comedy. You kind of wonder how so much great work could come out of one country.
+ - I wasnt an easy, happy-go-lucky girl because I used to think about everything so much, and I think I probably still do.
+ - School was a very cruel environment and I was a loner. But I learnt to get hurt and I learnt to cope with it.
+ - To say that you like music is a bit like saying youlike the whole world.
+ - The original vocals had an awful lot of work put into them at the time, and I wasn’t really sure that I could better them – I don’t know if I have bettered them.
+ - It was obvious that computers were going to become more a part of our lives, and they will continue to unless something dramatic happens to change that.
+ - Clothes are such a strong part of who a human being is.
+ - I just try to put myself in the sense of being a character, sometimes male. I suppose I just like the idea of trying to be different people coming from all kinds of different angles. Most of it was just from my imagination.
+ - I think what is great is that if anything that I do is interesting to somebody else, then I really don’t think it matters at all what I had originally intended.
+ - Don’t ever think that you can’t change the past.
+ - You’ll never know that you had all of me. You’ll never know the poetry you’ve stirred in me.
+ - I’d become very involved in the production, so the albums were taking longer. So it was never a deliberate decision not to do live shows. A few times, I’ve thought about doing them again, but it’s just kind of never happened. I’ve just sort of gone the path of becoming a recording artist I guess.
+ - I love comedy. I like to think that there’s a sense of humor in some of my music – obviously not all of it.
+ - I think that music is something that surpasses trends, fashions; music is something much deeper...
+ - For the last 12 years, I’ve felt really privileged to be living such a normal life. It’s so a part of who I am.
+ - After I’ve done the salesman bit, I like to be quiet and retreat, because that’s whereI write from. I’m a sort of quiet little person.
+ - As the people grow colder, I turn to my computer and spend my evenings with it like a friend.
+ - My father was always playing the piano. He played all kinds of music – Gershwin, all kinds of stuff. He was really a hugely encouraging force to me when I was little.
+
+70 quotes

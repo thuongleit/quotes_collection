@@ -1,0 +1,57 @@
+ - If you plan to face tomorrow, do it soon.
+ - Rainy day people all know there’s no sorrow they can’t rise above.
+ - Sometimes a broken dream will make you sad or make you mean. Sometimes things ain’t bad as they seem.
+ - To wear the crown of peace, you must wear the crown of thorns.
+ - Does anyone know where the love of God goes when the waves turn the minutes to hours?
+ - She been looking like a queen in a sailor’s dream.
+ - The road to love is littered by the bones of other ones, who by the magic of the moment were mysteriously undone.
+ - The strength of his will was the tool of his trade.
+ - The house you live in will never fall down, if you pity the stranger who stands at your door.
+ - Sometimes I think it’s a shame, when I get feeling better when I’m feeling no pain.
+ - I took the song The First Time Ever I Saw Your Face from a folk singer called Bonnie Dobson. I knew her and she had a record with that track on it.
+ - If I could read your mind, what a tale your thoughts could tell. Just like a paperback novel, the kind that drugstores sell.
+ - Give me a wave I can ride upon, come and show your strength to me.
+ - Will you gather daydreams or will you gather wealth? How can you find your fortune when you cannot find yourself?
+ - I liked the American folk style of Woody Guthrie.
+ - I once performed The Wreck of the Edmund Fitzgerald to about 15 sea captains. The song was about a ship that broke in half and sank.
+ - I don’t know where we went wrong, but the feeling’s gone and I just can’t get it back.
+ - You just get the vibes of your surroundings and it rubs off on you.
+ - My first song was Hula Hoop Song, in 1955. It was a novelty song. I had to find someway to reach out and it was with a novelty song. Now, all of my recording obligations have been taken care of. I made 14 albums for Warner Brothers. Five for United Artist before that.
+ - Both the Beatles and The Rolling Stones broke on the music scene the summer I was in England. I can vividly remember hearing She Loves You in August 1963.
+ - She is my flower and she blooms for the one who loves her best.
+ - Be calm in the face of all common disgraces.
+ - Getting lost in her loving is your first mistake.
+ - Those who put their faith in fire, in fire their faith shall be repaid.
+ - Everything is trust, all the rest is dust.
+ - I’m a little nuts. I’m a lot nuts. All I know is that in the midst of the madness of this world it’s my therapy. The music touches my heartstrings.
+ - Whitecaps in profusion all around me, but somehow in your eyes I found the strength to sail upon that raging sea.
+ - If there’s a reason for the way that life is I’d like to find it. After all, who’s life is it?
+ - When love is true there is no truer occupation.
+ - There was a TV show called Thank Your Lucky Stars, with the catchphrase “I’ll give it five!” The Beatles and Stones were so popular when they were on it. One week The Beatles were number one and then the Stones were right on their heels.
+ - There is always something wrong with a song, you can’t be perfect.
+ - Words are for explaining the mistakes we might have made, names are for calling when there is nothing left to say.
+ - I would never have ever dreamed that I would get married again and then all of a sudden you meet somebody. That’s the thing about life. It can be so unexpected.
+ - Think about the fool who by his virtue can be found in a most unusual situation playing jester to the clown.
+ - Don Quixote was a song for a 1969 Michael Douglas movie called Hail Hero! I wrote the title song for the film and they also used the Don Quixote one I had submitted.
+ - I never really had stage nerves but I did have had trouble getting up to the right energy level. For a long time I drank. I drank up until 1982 and then I gave up alcohol.
+ - I can remember sitting in a cabin outside of Denver writing that with a can of soup on the stove.
+ - I was a drummer in the bugle band in cadets. I marched. It’s probably quite funny to look back on it.
+ - Of course I knew The Band’s Canadian keyboard player, the late Richard Manuel, but I didn’t play that night because I was there as a guest with my record executives. People ask, “why didn’t you play?” If I had known I was going to be playing then I would have been prepared for it.
+ - I had lots of friends who were fighting in Vietnam and I am still friends with veterans of the war.
+ - All that remains is the faces and the names of the wives and the sons and the daughters.
+ - I got to sing solo in the junior choir when I was 10 or 11 and won a competition, and my sister’s piano playing improved to a certain level. One time my sister and I worked together. The first song we ever sang in High School was Rags to Riches by Tony Bennett.
+ - A lot of people influenced me as I was learning but probably Bing Crosby was the most influential, because I would hear his Christmas albums, which my parents played a lot.
+ - See the judge upon the bench who tries the case as best he can, see the wise and wicked ones who feed upon life’s sacred fire, see the soldier with his gun who must be dead to be admired.
+ - It seems so lucky to just to have the right of telling you with all my might, you’re beautiful tonight.
+ - You will go with me everywhere. When I’m dreaming, you still share my lonely nights.
+ - I try to write songs. At our concerts, we take the cream of the crop from my back catalogue and I don’t know if I could write something now that would replace any of that. We don’t lose any of the standards. We have lots of songs in rotation.
+ - I worked in a plant when I was 14 for two years. I always wanted to do the summer jobs. Honest to God, I always had to be doing something.
+ - I can see her lying back in her faded dress in a room where do what you don’t confess.
+ - My parents got my sister and I to go to church and have piano lessons. We were keen and they could see that.
+ - I never got really good at hockey.
+ - The giant neon spinning discs are a reminder of the huge role that Sam Sniderman and his store played in the cultural life of Toronto and I believe they should be preserved and remounted in the interests of our city’s heritage.
+ - I play piano, but not well enough to play professionally.
+ - I was happy to be in England, because my mother had always loved the royals, and so do I.
+ - I’m not really a bird person or an Audubon guy who studies them, but as I was around them, they interested me.
+
+55 quotes

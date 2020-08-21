@@ -1,0 +1,161 @@
+ - All you need is love. But a little chocolate now and then doesn’t hurt.
+ - In life, it’s not where you go, it’s who you travel with.
+ - I think I’m afraid of being happy because whenever I get too happy something bad always happens.
+ - I love humanity, it’s people I don’t like.
+ - My mind reels with sarcastic replies.
+ - Friendship isn’t about who you’ve known the longest. It’s all about the friend who comes and stands by your side in bad times.
+ - Christmas is doing a little something extra for someone.
+ - Don’t worry about the world coming to an end today. It is already tomorrow in Australia.
+ - Be yourself. No one can say you’re doing it wrong.
+ - It’s better to live one day as a lion than a dozen years as a sheep.
+ - Life is like a ten speed bicycle. Most of us have gears we never use.
+ - I gave up trying to understand people long ago. Now I let them try to understand me!
+ - My life has no purpose, no direction, no aim, no meaning, and yet I’m happy. I can’t figure it out. What am I doing right?
+ - Exercise is a dirty word. Every time I hear it I wash my mouth out with chocolate.
+ - Life is like an ice-cream cone, you have to lick it one day at a time.
+ - Absence makes the heart grow fonder, but it sure makes the rest of you lonely.
+ - If you grit your teeth and show real determination, you’ll always have a chance.
+ - All his life he tried to be a good person. Many times, however, he failed. For after all, he was only human. He wasn’t a dog.
+ - Life is too short not to live it up a little!
+ - In the Book of Life, The answers aren’t in the back.
+ - Nothing echoes like an empty mailbox.
+ - It was a dark and stormy night. Suddenly, a shot rang out! A door slammed. The maid screamed. Suddenly, a pirate ship appeared on the horizon! While millions of people were starving, the king lived in luxury. Meanwhile, on a small farm in Kansas, a boy was growing up.
+ - Happiness is anyone and anything that’s loved by you.
+ - Dearest darling, how I love you. Words cannot tell how much I love you. So forget it.
+ - I never made a mistake in my life. I thought I did once, but I was wrong.
+ - I have a feeling that when my ship comes in I’ll be at the airport.
+ - A good education is the next best thing to a pushy mother.
+ - No problem is so big or so complicated that it can’t be run away from!
+ - Decorate your home. It gives the illusion that your life is more interesting than it really is.
+ - It doesn’t matter what you believe just so long as you’re sincere.
+ - I think I’ve discovered the secret of life – you just hang around until you get used to it.
+ - There is nothing more attractive than a nice smile.
+ - Why me, lord? Don’t answer that!
+ - Why can’t we get all the people together in the world that we really like and then just stay together? I guess that wouldn’t work. Someone would leave. Someone always leaves. Then we would have to say good-bye. I hate good-byes. I know what I need. I need more hellos.
+ - Never lie in bed at night asking yourself questions you can’t answer.
+ - Winning isn’t everything, but losing isn’t anything.
+ - Dear Sweetheart, do you ever think of me? Just the other day I was thinking of you. I’m pretty sure it was you.
+ - Happiness is waking up, looking at the clock and finding that you still have two hours left to sleep.
+ - It was a dark and stormy night. – Snoopy.
+ - It always looks darkest just before it gets totally black.
+ - Lucy: Do you think you have Pantophobia, Charlie Brown? Charlie: I don’t know, what is pantophobia? Lucy: The fear of Everything. Charlie: THAT’S IT!!!
+ - My anxieties have anxieties.
+ - If I were given the opportunity to present a gift to the next generation, it would be the ability for each individual to learn to laugh at himself.
+ - Christmas is a box of tree ornaments that have become part of the family.
+ - The only thing I ever wanted to be was a cartoonist. That’s my Life. DRAWING.
+ - Yesterday I was a dog. Today I’m a dog. Tomorrow I’ll probably still be a dog. Sigh! There’s so little hope for advancement.
+ - I have a new philosophy. I’m only going to dread one day at a time.
+ - Love is sharing your popcorn.
+ - Of all the Charlie Browns in the world, you’re the Charlie Brownest.
+ - I don’t know the meaning of life. I don’t know why we are here. I think life is full of anxieties and fears and tears. It has a lot of grief in it, and it can be very grim. And I do not want to be the one who tries to tell somebody else what life is all about. To me it’s a complete mystery.
+ - There is no greater burden than great potential.
+ - Some days, a beautiful sunset with your best friend can be one of the most peaceful and relaxing mediations of the day.
+ - Love makes you do strange things...
+ - Dear Valentine, I love you. Whoever you are.
+ - Snoopy didn’t start off being a Beagle. It’s just that ‘beagle’ is a funny word.
+ - How can we lose when we’re so sincere?
+ - A whole stack of memories never equal one little hope.
+ - Happiness is loving your enemies.
+ - A beep on the nose is a sign of great affection.
+ - I’m torn between the desire to create and the desire to destroy.
+ - Security is a thumb and a blanket. Happiness is a warm puppy.
+ - If you can’t beat ’em, cooperate ’em to death!
+ - Linus: What would you say you want most out of life, Charlie Brown? To be happy? CB: Oh, no. I don’t expect that. I really don’t. I just don’t want to be unhappy!
+ - Sometimes I lie awake at night, and ask, ‘Where have I gone wrong?’ Then a voice says to me, ‘This is going to take more than one night.’
+ - I’m dying and all I hear are insults!
+ - Dear Santa Claus, just a last note before you take off. I hope you have a nice trip. Don’t forget to fasten your seat belt.
+ - The best theology is probably no theology; just love one another.
+ - This is my depressed stance. When you’re depressed, it makes a lot of difference how you stand. The worst thing you can do is straighten up and hold your head high because then you’ll start to feel better. If you’re going to get any joy out of being depressed, you’ve got to stand like this.
+ - The world is filled with unmarried marriage counselors.
+ - Have you ever known anyone who was happy? And was still in his right mind, I mean...
+ - It just seems that if you hang on for a while longer, there is always something bright around the corner, or the dark clouds will go away and there will be sunshine again.
+ - The early bird gets the worm but the late bird doesn’t even get the late worm.
+ - I think they assign things to students which are way over their heads, which destroy your love of reading, rather than leading you to it. I don’t understand that. Gosh.
+ - What’s the good of living if you don’t try a few things?
+ - I come from a long line of generations!
+ - To dance is to live!
+ - Brothers and sisters should never be in the same family.
+ - Life is full of choices, but you never get any!
+ - Just thinking about a friend makes you want to do a happy dance, because a friend is someone who loves you in spite of your faults.
+ - Valentine, just a few words to tell you how I love you. I have loved you since the first day I saw you. Whenever that was.
+ - I know the answer! The answer lies within the heart of all mankind! The answer is twelve? I think I’m in the wrong building.
+ - Big sisters are the crab grass in the lawn of life.
+ - We used to have a dog named Snoopy, you know, a real live dog. I suppose people who love Snoopy won’t like it, but we gave him away. He fought with other dogs, so we traded him in for a load of gravel.
+ - I can hear my heart beating. I can hear my stomach growling. I can hear my teeth grinding and my joints creaking. My body’s so noisy, I can’t sleep.
+ - If life were a camera, I’d have the lens cap on.
+ - Aren’t the clouds beautiful? I could just lie here all day, and watch them drift by...
+ - You can’t survive by sucking the juice from a wet mitten.
+ - It is difficult to talk about what I do, because I do it so I don’t have to talk about it.
+ - Cartooning will destroy you; it will break your heart.
+ - Linus: It was a short summer, Charlie Brown. Charlie Brown: And it looks like it’s gonna be a looong winter.
+ - Lucy: You learn more when you lose Charlie Brown: Well then I must be the smartest person in world!!!
+ - I just draw what I think is funny, and I hope other people think it is funny, too.
+ - Going to our school is an education in itself which is not to be confused with actually getting an education.
+ - Love is a letter on pink stationery.
+ - The secret to speed-reading is moving your lips faster.
+ - It seems beyond the comprehension of people that someone can be born to draw comic strips, but I think I was. My ambition from earliest memory was to produce a daily comic strip.
+ - Sometimes I lie awake at night and ask why me? Then a voice answers nothing personal, your name just happened to come up.
+ - One night I was sitting listening to some Hank Williams songs – and they’ll change your life in a hurry...
+ - I fall in love with any girl who smells of library paste.
+ - Happiness is a warm puppy.
+ - Duck, big brother! Here comes another day!
+ - Never set your stomach for a jelly-bread sandwich until you’re sure there’s some jelly!
+ - You try for a little happiness, and what do you get? A few memories and a fat stomach!
+ - I don’t think God wants to be worshiped. I think the only pure worship of God is by loving one another, and I think all other forms of worship became a substitute for the love that we should show one another.
+ - On a beautiful day like this it would be best to stay in bed so you wouldn’t get up and spoil it!
+ - Just wait and see, Charlie Brown. I’ll see the Great Pumpkin. I’ll SEE the Great Pumpkin! Just you wait, Charlie Brown. The Great Pumpkin will appear and I’ll be waiting for him...
+ - There’s a difference between a philosophy and a bumper sticker.
+ - A kiss on the nose does much toward turning aside anger.
+ - Learn from yesterday, live for today, look to tomorrow, rest this afternoon.
+ - Here I am flying high over enemy lines in my Sopwith Camel searching for the Red Baron. Who’s that behind me? It’s the Red Baron! He has me in his sights! Give my regards to Broadway.
+ - Sometimes, when you’re really depressed, all you want to do is nothing. All you want to do is lean your head on your arm, and stare into space. Sometimes this can go on for hours. If you’re unusually depressed, you may have to change arms.
+ - When no one loves you, you have to pretend that everyone loves you.
+ - I love people; it’s mankind I can’t stand.
+ - Never jump into a pile of leaves with a wet sucker.
+ - Only in math can you buy sixty cantaloupes and no one asks what the hell is wrong with you.
+ - The term that best describes me now is ‘secular humanist.’
+ - There’s nothing like unrequited love to take all the flavor out of a peanut butter sandwich.
+ - Humor is proof that everything is going to be all right with God nevertheless.
+ - I was jumping rope. Everything was fine. And then suddenly everything seemed so futile.
+ - You can’t eat compliments.
+ - All of earth’s creatures have, hidden within their beings, a wild uncontrollable urge to punt!
+ - Well, I know about loneliness. I won’t talk about it, but I was very lonely after the war. I know what it feels like to spend a whole weekend all by yourself and no one wants you at all.
+ - Dear IRS, I am writing to cancel my subscription. Please remove my name from your mailing list.
+ - Five hundred years from now, who’ll know the difference?!
+ - The only time a dog gets complimented is when he doesn’t do anything.
+ - Cartooning really is just designing.
+ - I’ve learned all I need to know to live under a bed.
+ - People shouldn’t be embarrassed just because they get caught acting a little silly.
+ - There’s no sense in doing a lot of barking if you don’t really have anything to say.
+ - You’re a good man, Charlie Brown.
+ - Never give your heart to a blockhead.
+ - For a nothing, Charlie Brown, you’re really something!
+ - Dear Valentine, I have thought of you often. Not all the time, but often.
+ - Love is not knowing what you’re talking about.
+ - Sucking your thumb without a blanket is like eating a cone without ice cream!
+ - Love is letting him win even though you know you could slaughter him.
+ - Do what is absolutely you and nobody else.
+ - What’s the sense in having an eclipse if you can’t look at it? Somebody in production sure slipped up this time!
+ - The hand that controls the supper dish rules the world!
+ - Beethoven can’t really be great because his picture isn’t on a bubble gum card.
+ - Beauty tips. How to look younger: Don’t be born so soon.
+ - Jogging is very beneficial. It’s good for your legs and your feet. It’s also very good for the ground. If makes it feel needed.
+ - If you’re going to draw a comic strip every day, you’re going to have to draw on every experience in your life.
+ - I wonder if there’s such a thing as a spiritual dentist? I think my whole personality is full of cavities!
+ - A cartoonist is someone who has to draw the same thing day after day without repeating himself.
+ - Cartooning is preaching. And I think we have a right to do some preaching. I hate shallow humor. I hate shallow religious humor, I hate shallow sports humor, I hate shallowness of any kind.
+ - Little brothers are the buck privates of life!
+ - That’s the only dog I know who can smell someone just thinking about food.
+ - How can I play baseball when I’m worried about foreign policy?
+ - The crabby little girls of today are the crabby old women of tomorrow!
+ - No one would have been invited to dinner so often as Jesus was unless he were interesting and had a sense of humor.
+ - You can’t write a term paper before breakfast.
+ - Nothing takes the taste out of peanut butter quite like unrequited love.
+ - A tragic life is romantic when it happens to somebody else.
+ - Sometimes I think my soul is full of weeds!
+ - A watched supper dish never fills!
+ - You know what I think my best quality is? I think I’m nice to have around. I’d hate it if I weren’t around!
+ - I have observed that whenever you try to hit somebody, there is a tendency for them to try to hit you back.
+ - Wouldn’t it be nice if our lives were like VCRs, and we could ‘fast forward’ through the crummy times?
+
+159 quotes

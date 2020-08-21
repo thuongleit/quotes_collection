@@ -1,0 +1,93 @@
+ - True friends are like diamonds – bright, beautiful, valuable, and always in style.
+ - When I pictured heroin, I pictured some crazy crackhead with no shoes under a bridge. You never think that is going to be you. And it never was me. I was never under a bridge, and I always had shoes.
+ - It’s hard to tell who has your back, from who has it long enough just to stab you in it...
+ - I’m a jeans and t-shirt type of girl.
+ - I never want to disappoint my parents, ever. They are people that I always look up to.
+ - I wish everyone could hear the soundtrack for my life that I hear in my head.
+ - The older you get, the more you realize you need a handful of good, close, tight friends.
+ - The early bird might catch the worm, but I bet it also needs a ton of under eye concealer.
+ - I went to the University of Arizona. I stopped because I went there for two years and I felt like I experienced college or whatever. I’m over it. I like Hollywood better.
+ - I’m a Virgo and the sign is a virgin. So when I was 16, I got the word virgin tattooed on my wrist, thinking I was sooo deep and cool. And now I just look really weird having virgin written across my wrist and I have to explain it.
+ - Life is about doing the things that make you happy, not the things that please other people. If you can please other people, that’s a plus, but as long as you’re not hurting anyone, you’re golden.
+ - Have a nice rest of your life.
+ - I like to sleep so much that I wake up exhausted from sleeping so hard.
+ - I know there are rumours concerning my ‘breakup’ with Brody Jenner. The truth is, we were never really together. We hung out, and he’s a nice guy, but my heart was never in it. Anything further is just a cry for publicity.
+ - With every year, I always try and learn something new and grow gracefully, and that’s just kind of my rule for every year.
+ - Be kind to everybody, be grateful, say thank you everyday. My parents taught me well.
+ - This year has been full of lessons learned and soul searching and realizing I’m an adult. It’s time to take responsibility and not take the easy way out.
+ - I’m a Virgo and I’m really good at scheduling. And I really make it work. I get up 6.30 every day.
+ - I don’t trust valets, waiters – nobody. I don’t waste my time anymore trying to figure out who leaks things to the press.
+ - I want to be happy and stable. My life is clearly going to slow down.
+ - I’ve always been someone who’s extremely relaxed in my everyday life. I’m not the girl who can wear awful seven-inch heels all night. I keep it simple – I consider myself to be a jeans and T-shirt kind of girl who just accessorizes a lot.
+ - An eating disorder is serious and it’s a disease, and I don’t think you can lightly say that someone has a disease unless they’re openly telling you that they do.
+ - I think lingerie plays a big part in how you carry yourself.
+ - It is important not to copy other people’s careers but set the tone of who you want to be. My father’s always encouraged me to do that.
+ - Everything good in life is either immoral, illegal or fattening.
+ - Besides being responsible for myself, I’m now responsible for someone else. And I have to set the right examples. I have to really be someone that I would want my child to look up to.
+ - When my dad divorced my mom it was kind of like him leaving me also.
+ - I am proud that my collections have received such praise, and I am even more proud to share the stage with so many talented designers.
+ - I would say my biggest mentor has been my father because he always has been. Actually both of my parents have always been ones to encourage me to be myself and stay true to myself and not fall into what other people want me to do.
+ - I have olive skin, so if I get pale, I look green. I have to tan.
+ - All the boys in rehab are totally available because their girlfriends have all given up on them. It’s fantastic.
+ - I think fame is harder when people have something to hide, but I’m very comfortable, and have nothing to hide.
+ - You just have to go after what you want and if it doesn’t want you back then so be it; it doesn’t deserve you anyways.
+ - Oh my god. I just hung around with an unpretty person. Excuse me while I go home to scrub myself with expensive body wash and a pink loofah, to rid myself of the unpretty germs.
+ - I know I’m too thin right now, so I wouldn’t want any young girl looking at me and saying, ‘That’s what I want to look like.’
+ - Well my favorite thing about being a mom is getting to relive your childhood all over again, that’s one of my favorite things. And my favorite thing about being a wife? I have more freedom to just be crazy, because he’s already stuck with me.
+ - Life just makes so much more sense with black framed glasses on...
+ - I’ve always stayed really close with my mother and my father.
+ - Music is a huge part of my life, I enjoy every genre of music from jazz to country, and I even get down with a bit of hip hop.
+ - I admire anyone with their own sense of personal style.
+ - Anytime I am around a male body part it is kind of exiting.
+ - I live my life and I do what I do, and sometimes you forget that people are watching you.
+ - The Winter Kate-House of Harlow 1960 customer is a multi-tasker, therefore it’s important that they are able to put together an outfit with ease and elegance. Pieces that are easy to mix within their own wardrobe. Easy dressing while maintaining a well put together look.
+ - When we were in the design studio I always was pretending like I was in a closet asking my friend before I step out into the world what do I look like? And everybody wants that honest friend before they go and go to dinner or go to an event.
+ - I definitely wouldn’t mind gaining a few more pounds at all.
+ - But my everyday music is classic rock. It’s what I relate to the most and where my heart is.
+ - Guys are so transparent most of the time. Unless, of course, they’re dating you, in which case they are utter mysteries.
+ - I think that British girls have a very eclectic and unique style.
+ - I owe the baby my life. I owe this baby everything and I have a responsibility now.
+ - I am extremely involved in the design process of both my brands, Winter Kate and House of Harlow 1960.
+ - I’m not insecure, but I’m not like, ‘Hi, I’m confident.’
+ - I’ve just gone through so much in my life that pulling my top up just doesn’t seem like that big a deal.
+ - I don’t have a clue why I’m famous, either. But I didn’t make myself famous. I’m not doing it; you are doing it.
+ - I believe there are only one or two people in the world with whom one can have a true connection. When you’ve been fortunate enough to marry one of those people, you are reluctant to settle for less. One can have lovers, those are easily found, but true love rarely strikes twice.
+ - I mean I constantly had security guards around me when I was younger and I wasn’t allowed to go to the mall with a lot of my friends and stuff like that. And so, when I finally was able to sneak out, I would just really, really take it to the next level.
+ - I have a responsibility, and it’s something that I did wrong, and if I could personally apologize to every single person that has lost a loved one from drunk driving I would.
+ - I know that it’s a big struggle with a lot of women to dress up – especially now women have been working – because it can be uncomfortable. So it was important to me with my role to make clothes that are slightly more dressed up but easy to wear.
+ - I do love to shop. But I’m a social shopper. I like to do it while hanging out with my friends. Some of them hate shopping because they treat it like something you have to plan, like a grocery list. But if I’m out and I pass a store, I just pop in.
+ - Fashion icon to me is somebody who has, the first person who struck you and introduced you to the world of fashion, and that person is my mom.
+ - I think that people’s weight fluctuates. It happens. It happens to everybody.
+ - I believe that fashion is the ultimate form if self expression therefore it really depends on my mood.
+ - My job ranges from creating the initial overall theme of the season, to developing fabrics and sketching to sampling and fitting.
+ - You can see it right away when a person is dressing outside of who she is.
+ - People who type with their iPhones on loud are barbarians and probably killers.
+ - I never want to possibly take another life in my hands.
+ - You have to be comfortable in what you’re wearing.
+ - They may signify wealth, but they can actually mean so much more-like committment, family, and love. And there’s nothing like a perfect diamond to remind you that you’ll never be perfect – the truth is, all you can do is try.
+ - I was 21 and I got to film with my best friend.
+ - I feel great, very healthy and alive and really happy that I can remember yesterday and I can remember the day before.
+ - I tend to dress a little more sophisticated than most women do.
+ - Pack an outfit to change into on the plane.
+ - I’m gonna dress up as an iPhone so my husband pays attention to me.
+ - Australia is one of my favorite places in the world. I spend a lot of time there. And I find Sydney a lot like LA in some ways, and it’s beautiful, great for kids, and I absolutely love it over there.
+ - I try to focus less on the actual items and more on the way they make me feel. I like color around my face because it does something to me emotionally. I don’t like to wear black because it brings me down.
+ - I have really good instincts about friends.
+ - I encourage costumers to not focus on trends but to just wear whatever they feel like wearing because I think that’s when a woman looks most attractive – when she’s the most comfortable.
+ - I absolutely love Oscar. So classic. So timeless.
+ - It’s been a pattern in my life – when I get in trouble, I try to get out of it, since I was little.
+ - Being a mentor is something that’s new for me but a role that I take very seriously.
+ - Fame and fortune are calling. Are we taking the call or blocking the number?
+ - You know, I’m just – I’m really happy for my dad.
+ - I woke up today knowing everything about everything.
+ - Always keep bobby pins on hand. It’s amazing what you can do with those in a time crunch.
+ - Clothing was something I always wanted to do. I’ve been pulling tear sheets from magazines since I was a little girl.
+ - People who try to be something they are not, the most attractive thing to me are people who are 100% authentically them. And I appreciate and actually always look for people that are different than me in friendships, because that helps me grow.
+ - As for style, there is something about the way musicians dress-they seem to be able to create their own world within their fashion alone.
+ - I will be really happy once I have done my jail time. I can start fresh.
+ - It’s not me that’s obsessed with my weight, it’s everyone else. I know that I’m healthy, so I don’t really feel the need to answer to anyone. I’ve never substituted a meal for a salad in my life.
+ - I also feel that I have been very honest with my friends, my family and also with the public about the mistakes that I’ve made and the challenges that I’ve gone through.
+ - I have to wear heels. There are some things that you just have to do.
+ - I was like a trashcan. I took everything.
+
+91 quotes

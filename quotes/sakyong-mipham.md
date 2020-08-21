@@ -1,0 +1,112 @@
+ - The body benefits from movement, and the mind benefits from stillness.
+ - There are no boundaries-only possibilities.
+ - If you want to be miserable, think of yourself. If you want to be happy, think of others.
+ - Like gravity, karma is so basic we often don’t even notice it.
+ - We suffer because we want life to be different from what it is. We suffer because we try to make pleasurable what is painful, to make solid what is fluid, to make permanent what is always changing.
+ - Enlightened Society is all about nurturing the human spirit – waking up to the goodness, kindness and strength that we already have.
+ - If you rise with a positive attitude – because everything is possible, everything is doable – if you have that level of confidence, you exude it. It actually inspires the people around you.
+ - If the mind is flexible, the world is flexible.
+ - Karma moves in two directions. If we act virtuously, the seed we plant will result in happiness. If we act non-virtuously, suffering results.
+ - Our mind is always subject to being distracted by thoughts of what happened in the past and ideas of what could happen in the future, but the living experience is what is happening NOW.
+ - Every moment of our life is important.
+ - Movement is good for the body. Stillness is good for the mind.
+ - The bones and tendons of the mind are mindfulness and awareness. Mindfulness is the mind’s strength, and awareness is its flexibility. Without these abilities, we cannot function. When we drink a glass of water, drive a car, or have a conversation, we are using mindfulness and awareness.
+ - Our power comes not from suppressing others but from uplifting them.
+ - Running and meditation are very personal activities. Therefore they are lonely. This loneliness is one of their best qualities because it strengthens our incentive to motivate ourselves.
+ - Our only reliable source of strength is the goodness of our hearts. Our only foundation for coming to terms with the suffering of the times is our innate need to be decent human beings.
+ - If we do not appreciate the sensitivity and subtlety of the human heart, how can we appreciate the sensitivity and subtlety of the natural world?
+ - If you see life as an opportunity, or if you see helping others as an opportunity, then all of a sudden you become joyous. You want to go forward.
+ - Caring for others is the basis of worldly success.
+ - Whatever we do lays a seed in our deepest consciousness, and one day that seed will grow.
+ - Auspicious coincidence is the right thing happening at the right time.
+ - What distinguishes Shambhala is its intention of trying to create a society based upon certain principles. So, Shambhala’s focus is not just on the individual, but on society as a whole.
+ - When we are using this term ‘basic goodness,’ we are talking about our inherent completeness.
+ - Initially, you have to live a period where you are developing your attitude. I would consider that a meditation: determining what you want to do. You have a period where you meditate and you get the strength.
+ - As a leader, people push you. They really want to keep pushing you until you get aggressive. Then they say, “Oh, see, it doesn’t work.”
+ - If we are going to live in a society, there has to be an attitude where people really do care for others.
+ - Shambhala existed in Tibet and has been continued over the years, and now it is in the West. At its core, it is very much dedicated to the basic theme of benefiting others.
+ - When the mind is totally present, it is relaxed, nimble, and sensitive. It feels lighter and clearer. It notices everything, but it is not distracted by anything. It is the feeling of knowing exactly where you are and what you are doing.
+ - We want to infuse our day with good habits so that we can turn seemingly mundane situations into a ceremony of goodness.
+ - Shambhala is a tradition where there were rulers, kings, and powerful people who actually were very benevolent and kind. They got things done, and they didn’t abandon their tradition.
+ - Many of us are slaves to our minds. Our own mind is our worst enemy. We try to focus, and our mind wanders off. We try to keep stress at bay, but anxiety keeps us awake at night. We try to be good to the people we love, but then we forget them and put ourselves first.
+ - The notion of auspiciousness is something positive, something with forward momentum, coming out of our actions.
+ - It doesn’t matter if you’re rich or poor-the determining factor of success and happiness is contentment.
+ - Many people think spirituality has nothing to do with success or accomplishing – that it’s something you do with removal, with leaving the world.
+ - If we cut speed and relax with what’s going on in our life right now, kindness and patience will naturally come about.
+ - I write about whatever is timely – whatever is happening at the time for me – with what the expressive feeling is.
+ - Your life and your practice should not be separate. You bring your practice into experience. You bring it about.
+ - When I was going into one of my first meditation retreats, I asked my father, Chogyam Trungpa Rinpoche, for some advice. He said, “How you act when you’re alone affects the rest of your life.” Even in solitude, the ruler engages in virtue.
+ - When stress is the basic state of mind, even good things stress us out. We have to learn to let go.
+ - The most outrageous thing we can do in this world is to accept what happens and fly with it.
+ - True happiness is always available to us, but first we have to create the environment for it to flourish.
+ - In a speedy and aggressive culture, we need different principles to live by-bravery and insight. The first moment of bravery is building trust in the mind, which we do in meditation. When we know how to create peace in our own mind, we can transform the world.
+ - For a lot of us, the opposite of auspicious coincidence is obstacles. Life usually is a mixture of both, but as we begin to exhibit exertion, more and more auspiciousness happens.
+ - Meditation practice is relevant because in meditation our conceptual mind relaxes and we can feel who we are at heart.
+ - After you run, there’s a sense of accomplishment; you feel like your life is meaningful. It’s a moment of clarity.
+ - The wise are balanced, and the foolish are extreme.
+ - In Tibetan, we say people who have good windhorse have the sense they can accomplish what they want to do.
+ - A lot of people talk about the spirituality of Buddhism, and it is a spiritual discipline. But in Shambhala there also is a notion that you have to be synchronized with both heaven and earth.
+ - The self-assured strength that grows from knowing that we already have what we need makes us gentle, because we are no longer desperate.
+ - If we can feel confident in our goodness, it will illuminate our life and society.
+ - Changing our decision sets up a bad habit. It reinforces decision-making as an expression of bewilderment and ignorance, instead of wisdom and freedom.
+ - My books definitely are ambassadors, as you called them. They express what the vision is, what the purpose is.
+ - As the conceptual, material world increases its hold on us, and inanimate objects become more lifelike, we humans must become more human. Open hearts, kindness and care-these are our most precious gifts.
+ - I think we are very environmental people. We need to be supported environmentally. Books very much have that imprint on the mind.
+ - We live in a culture where information is becoming easier to access. Certain special practices have been kept very quiet and secret, and those traditions need to be respected. But there are a lot of teachings people can access that would benefit them greatly.
+ - This is bravery: using the challenge of daily life to sharpen our mind and open our heart.
+ - We can’t hire out our own inner work, but we can do the manual labor with delight and decency.
+ - To protect this earth is to protect the very spirit of life.
+ - The nature of our mind may be displayed in many ways, but Ashe is the fundamental basis.
+ - The first thing you have to do is acknowledge the basic and fundamental goodness of all beings. If you don’t, then you are going to have conflict. That’s at the core of Shambhala.
+ - Your regular teachers will get mad at you. If you keep asking something again and again, they will get tired of saying the same thing. A book will not do that. A book always will be there for you. In whatever you want, the book will be there.
+ - Part of the notion in Shambhala teachings is that everybody can live their lives so they get weaker and more stressed out as they go along, or so they get more fortitude and strength.
+ - Being fooled into trying to make things work out for ‘me’ is called samsara.
+ - As a leader, you have the choice to determine what you are going to do and how you are going to engage others. You can decide to act compassionately regardless of what the weather is – whether it is cloudy or sunny – or whether things are inspirational or not.
+ - The most important thing is having the right mind – a mind that can see it. Once you have an open mind, you see a lot of auspicious coincidence taking place.
+ - When we have gone beyond the boundaries of hope and fear, we are able to work with whatever comes our way.
+ - I think Shambhala can be a very strong force as a social example of how you can try to live a life balanced in terms of both the spiritual and the secular.
+ - Shambhala does have unique teachings, as do many Buddhist traditions. For example, certain teachings within Shambhala have to do with raising the personal windhorse, or the energy of the individual, so a person has good fortitude to be able to live a good life.
+ - It is said that if our intention is to help others-even if we are unable to follow it through-we will never have any regret. Regret is a result of trying to make “me” happy.
+ - Being human is a precious situation, and we shouldn’t waste time in useless activities.
+ - A lot of times people do spiritual practice just for themselves. I try to turn that a little bit. I try to make spiritual practice more a part of the community. I write about infusing people with compassion.
+ - The principles of Buddhism and Shambhala can be effective in helping the course of what is happening in the world.
+ - If ruling our world stems from developing certainty in our sanity, how do we discover it? The Shambhala teachings instruct us to “put our mind of fearfulness in the cradle of loving-kindnes.”
+ - You have people who are good at English but don’t have the training in Buddhism or Shambhala, or they have the training but are not good in English. Getting that mixture is really rare.
+ - One of the characteristics of every great teacher I’ve known is tremendous exertion. It’s interesting: You may see them as spiritual people or compassionate people, but the driving force is that incredible exertion – and their ability to sustain it.
+ - When we are certain that the way to accomplish our own wishes is to help others, we have no regrets.
+ - I would say courage first; then wisdom, which is a sense of knowledge and confidence; and also the wish and desire to uplift. The underlying notion is “How do I help?” That attitude really is a spiritual journey and a path.
+ - Fundamentally, Buddhism is for the awakenment and benefit of beings. So, you can’t say, “Oh, you can’t have it because you’re not ready for it.” That goes against the fundamental principle.
+ - Our root fantasy is that “I” am real and that it’s possible for “me” to be happy.
+ - A lot of people dabbling means Buddhism has come into the mainstream, where people begin to use these terms and ideas, and they become less foreign.
+ - To shift the direction of our planet, we must now be willing to experiment with the theory that within the speed and stress, we are good.
+ - Certain teachers have tremendous amounts of experience. They are articulate, and they give wonderful discourse. But at some point along the road, they themselves learned from and studied a book.
+ - It’s one thing to have the attitude of enlightenment and another thing to act in an enlightened way, which is conduct or activity...
+ - A lot of people do their practice. They meditate on compassion. Then they yell at people afterwards. NThat is not quite working. One of the things I try to emphasize is contemplative meditation – bringing your thought and intention into meditation.
+ - Each of us holds human destiny in our hands. It will be completely determined by how the mind feels about itself.
+ - I think there is a tendency for people to become more isolated as they move along a spiritual path. With more development, people get more isolated. Also, as they have more wealth, they get more isolated.
+ - Ultimately, as individuals we each have to ask ourselves to be courageous and apply certain principles.
+ - Shambhala is a Buddhist tradition with its own unique view and approach.
+ - I want people to know you can live a life that is less aggressive and still have success.
+ - Sometimes it seems like most people are being pulled into a negative energy, but then you meet strong individuals or strong leaders and they are free from it.
+ - It seems we all agree that training the body through exercise, diet, and relaxation is a good idea, but why don’t we think about training our mind?
+ - You need to eat well, sleep well, and have a roof over your head, but don’t go much further than that before extending yourself to others.
+ - We humans have come to a crossroads in our history: we can either destroy the world or create a good future.
+ - What is my great wish and intention, is to make a base of compassion and to encourage people to work to shift the energy.
+ - In looking for my mind, I discovered that it seems to be in many different places. Sometimes it is drinking a glass of water, remembering swimming in the summer, feeling the breeze. In this contemplation I observed that the self is more elusive than I thought.
+ - When people say that meditation makes them calm, they are often referring to this stability of the mind. A stable mind creates the foundation for a happier and more contented person.
+ - The principles of Buddhism have become more commonplace, which is a good thing.
+ - If we do not push ourselves enough, we do not grow, but if we push ourselves too much, we regress. What is enough will change, depending on where we are and what we are doing. In that sense, the present moment is always some kind of beginning.
+ - For me, language and how I use it are very important. I held back on doing a poetry book, walking the fine line between trying to be helpful and just putting more junk out there.
+ - Poetry is a language for when you can’t quite write prose about something, you can’t quite say it, but if you do a poem, it kind of gets to the point.
+ - People sometimes don’t like organized situations. Sometimes people need to be left alone more. Sometimes people need environmental support.
+ - Shambhala teachings say we all have the potential to accomplish our enlightened nature – our basic goodness.
+ - People can be trained in certain principles, but then they actually have to apply them and try them out.
+ - When we appreciate something, that means we have allowed ourselves to relax and take it in.
+ - What is amazing is how stuck people are in their own habits. It is really hard to get people out of their habits. But once they shift, it also is amazing how rapid the progress can be.
+ - Even when we speak of selflessness, the mind goes to “me.” We think, “I’m selfless,” but everything is selfless.
+ - You need to become more genuine to who you are. So, people pushing you can help take you to the level where you really understand the principles and enter them into action.
+ - In meditation we are continuously discovering who and what we are.
+ - What is really happening in meditation is that we are developing the ability to think when we want to, and to not think when we don’t want to.
+ - A book very much is the center of the road, so people always can refer back to it.
+
+110 quotes

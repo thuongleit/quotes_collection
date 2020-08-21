@@ -1,0 +1,189 @@
+ - Never doubt that a small group of thoughtful, committed, citizens can change the world. Indeed, it is the only thing that ever has.
+ - I learned the value of hard work by working hard.
+ - Children must be taught how to think, not what to think.
+ - Always remember that you are absolutely unique. Just like everyone else.
+ - We won’t have a society if we destroy the environment.
+ - What people say, what people do, and what they say they do are entirely different things.
+ - Never believe that a few caring people can’t change the world. For, indeed, that’s all who ever have.
+ - Never underestimate the ability of a small group of committed individuals to change the world.
+ - All social change comes from the passion of individuals.
+ - If we are to achieve a richer culture, rich in contrasting values, we must recognize the whole gamut of human potentialities, and so weave a less arbitrary social fabric, one in which each diverse human gift will find a fitting place.
+ - If a fish were an anthropologist, the last thing it would discover would be water.
+ - You can no longer save your family, tribe or nation. You can only save the whole world.
+ - It is easier to change a man’s religion than to change his diet.
+ - You know you love someone when you cannot put into words how they make you feel.
+ - I have a respect for manners as such, they are a way of dealing with people you don’t agree with or like.
+ - The most intractable problem today is not pollution or technology or war; but the lack of belief that the future is very much in the hands of the individual.
+ - One of the oldest human needs is having someone to wonder where you are when you don’t come home at night.
+ - Home, I learned, can be anywhere you make it. Home is also the place to which you come back again and again.
+ - An ideal culture is one that makes a place for every human gift.
+ - I was wise enough to never grow up while fooling most people into believing I had.
+ - Never depend upon institutions or government to solve any problem. All social movements are founded by, guided by, motivated and seen through by the passion of individuals.
+ - I learned to observe the world around me, and to note what I saw.
+ - Never underestimate that a small group of people can hold up a liquor license. Sometimes, it’s the only thing that can.
+ - We are living beyond our means. As a people we have developed a life-style that is draining the earth of its priceless and irreplaceable resources without regard for the future of our children and people all around the world.
+ - Where we choose to put our attention changes our brain, which in time can change how we see and interact with the world.
+ - The solution to adult problems tomorrow depends on large measure upon how our children grow up today.
+ - Sooner or later I’m going to die, but I’m not going to retire.
+ - What we lack is not so much leisure to do as time to reflect and time to feel. What we seldom “take” is time to experience the things that have happened, the things that are happening, the things that are still ahead of us.
+ - Motherhood is a biological fact, while fatherhood is a social invention.
+ - No society that feeds its children on tales of successful violence can expect them not to believe that violence in the end is rewarded.
+ - Somehow, we have to get older people back close to growing children if we are to restore a sense of community, acquire knowledge of the past, and provide a sense of the future.
+ - I was brought up to believe that the only thing worth doing was to add to the sum of accurate information in the world.
+ - I must admit that I personally measure success in terms of the contributions an individual makes to her or his fellow human beings.
+ - In the modern world we have invented ways of speeding up invention, and people’s lives change so fast that a person is born into one kind of world, grows up in another, and by the time his children are growing up, lives in still a different world.
+ - Laughter is man’s most distinctive emotional expression. Man shares the capacity for love and hate, anger and fear, loyalty and grief, with other living creatures. But humour, which has an intellectual as well as an emotional element belongs to man.
+ - The mind is not sex-typed.
+ - A woman, even a brilliant woman, must have two qualities in order to fulfill her promise: more energy than mere mortals, and the ability to outwit her culture.
+ - Of course we need children! Adults need children in their lives to listen to and care for, to keep their imagination fresh and their hearts young and to make the future a reality for which they are willing to work.
+ - Because our civilization is woven of so many diverse strands, the ideas which any one group accepts will be found to contain numerous contradictions.
+ - Anthropology demands the open-mindedness with which one must look and listen, record in astonishment and wonder that which one would not have been able to guess.
+ - Every time we liberate a woman, we liberate a man.
+ - Human nature is almost unbelievably malleable, responding accurately and contrastingly to contrasting cultural conditions.
+ - There is no more creative force in the world than the menopausal woman with zest.
+ - War is only an invention, not a biological necessity.
+ - There is no hierarchy of values by which one culture has the right to insist on all its own values and deny those of another.
+ - One of the most dangerous things that can happen to a child is to kill or torture an animal and get away with it.
+ - The Samoan puts the burden of amatory success upon the man and believes that women need more initiating, more time for maturing of sexual feeling. A man who fails to satisfy a woman is looked upon as a clumsy, inept blunderer.
+ - We are now at a point where we must educate our children in what no one knew yesterday, and prepare our schools for what no one knows yet.
+ - The way to do fieldwork is never to come up for air until it is all over.
+ - No one will live all his life in the world into which he was born and no one will die in the world in which he worked in his maturity.
+ - The atmosphere is the key symbol of global interdependence.
+ - Grandparents are given a second chance to enjoy parenthood with fewer of its tribulations and anxieties.
+ - My grandmother wanted me to get a good education, so she kept me as far away from schools as possible.
+ - What the world needs is not romantic lovers who are sufficient unto themselves, but husbands and wives who live in communities, relate to other people, carry on useful work and willingly give time and attention to their children.
+ - Instead of being presented with stereotypes by age, sex, color, class, or religion, children must have the opportunity to learn that within each range, some people are loathsome and some are delightful.
+ - It is not until science has become a discipline to which the research ability of any mind from any class in society can be attracted that it can become rigorously scientific.
+ - The problem with America today is that too many people know too much about not enough.
+ - If man has not found ways to deal with environmental problems such as water and air pollution by 1998, it will be too late. The future is not determined and it lies in our own hands.
+ - With the exception of the few cases to be discussed in the next chapter, adolescence represented no period of crisis or stress, but was instead an orderly developing of a set of slowly maturing interests and activities.
+ - For the very first time the young are seeing history being made before it is censored by their elders.
+ - It is an open question whether any behavior based on fear of eternal punishment can be regarded as ethical or should be regarded as merely cowardly.
+ - For art to be reality, the whole sensuous being must be caught up in the experience.
+ - Nobody has ever before asked the nuclear family to live all by itself in a box the way we do. With no relatives, no support, we’ve put it in an impossible situation.
+ - Monogamous heterosexual love is probably one of the most difficult, complex and demanding of human relationships.
+ - Be who you really are, do what you want to do, in order to have what you really want.
+ - EARTH DAY reminds the people of the world of the need for continuing care which is vital to Earth’s safety.
+ - The anonymity of the city is one of its strengths as well as – carried too far – one of its weaknesses.
+ - I’ve been married three times – and each time I married the right person.
+ - Dancing is the only activity in which almost all ages and both sexes participate.
+ - It was not until we saw the picture of the earth, from the moon, that we realized how small and how helpless this planet is – something that we must hold in our arms and care for.
+ - Jealousy is not a barometer by which the depth of love can be read. It merely records the degree of the lover’s insecurity.
+ - Loving you is just like breathing, as effortless, and as lovely.
+ - The semimetaphysical problems of the individual and society, of egoism and altruism, of freedom and determinism, either disappear or remain in the form of different phases in the organization of a consciousness that is fundamentally social.
+ - Standardized personality differences between the sexes are of this order, cultural creations to which each generation, male and female, is trained to conform.
+ - What is new is not bisexuality, but rather the widening of our awareness and acceptance of human capacities for sexual love.
+ - Samoa culture demonstrates how much the tragic or the easy solution of the Oedipus situation depends upon the inter-relationship between parents and children, and is not created out of whole cloth by the young child’s biological impulses.
+ - The United States has the power to destroy the world, but not the power to save it alone.
+ - Sister is probably the most competitive relationship within the family, but once the sisters are grown, it becomes the strongest relationship.
+ - Any town that doesn’t have sidewalks doesn’t love its children.
+ - We are at a point in history where a proper attention to space, and especially near space, may be absolutely crucial in bringing the world together.
+ - An education not founded on Art will never succeed.
+ - Fathers are biological necessities, but social accidents.
+ - We may say that many, if not all, of the personality traits which we have called masculine or feminine are as lightly linked to sex as are the clothing, the manners, and the form of headdress that a society at a given period assigns to either sex.
+ - People are still encouraged to marry as if they could count on marriage being for life, and at the same time they are absorbing a knowledge of the great frequency of divorce.
+ - Our human situation no longer permits us to make armed dichotomies between those who are good and those who are evil, those who are right and those who are wrong. The first blow dealt to the enemy’s children will sign the death warrant of our own.
+ - The assumption that men were created equal, with an equal ability to make an effort and win an earthly reward, although denied every day by experience, is maintained every day by our folklore and our daydreams.
+ - In the presence of grandparent and grandchild, past and future merge in the present.
+ - And when our baby stirs and struggles to be born it compels humility: what we began is now its own.
+ - It is utterly false and cruelly arbitrary to put all the play and learning into childhood, all the work into middle age, and all the regrets into old age.
+ - Man’s role is uncertain, undefined, and perhaps unnecessary.
+ - Living in the modern world, clothed and muffled, forced to convey our sense of our bodies in terms of remote symbols like walking sticks and umbrellas and handbags, it is easy to lose sight of the immediacy of the human body plan.
+ - Injustice experienced in the flesh, in deeply wounded flesh, is the stuff out of which change explodes.
+ - We must recognize that beneath the superficial classifications of sex and race the same potentialities exist, recurring generation after generation, only to perish because society has no place for them.
+ - It may be necessary temporarily to accept a lesser evil, but one must never label a necessary evil as good.
+ - Learned behaviors have replaced the biologically given ones.
+ - The liberals have not softened their view of actuality to make themselves live closer to the dream, but instead sharpen their perceptions and fight to make the dream actuality...
+ - And as I had my father’s kind of mind-which was also his mother’s-I learned that the mind is not sex-typed.
+ - Women have an important contribution to make.
+ - To the extent a person makes, invents or thinks something that is new to him, he may be said to have performed a creative act.
+ - Each suburban housewife spends her time presiding over a power plant sufficient to have staffed the palace of a Roman emperor with a hundred slaves.
+ - Throughout history, females have picked providers for males. Males pick anything.
+ - Even though the ship may go down, the journey goes on.
+ - Men have always been afraid that women could get along without them.
+ - Manners, really good ones, make it possible to live with almost anyone, gracefully and pleasantly...
+ - I was a child that both my parents wanted. I was told from the time I was born that I was totally satisfactory. I had a chance to be what I wanted to be.
+ - The most extraordinary thing about a really good teacher is that he or she transcends accepted educational methods. Such methods are designed to help average teachers approximate the performance of good teachers.
+ - If the future is to remain open and free, we need people who can tolerate the unknown, who will not need the support of completely worked out systems or traditional blueprints from the past.
+ - Maleness in America is not absolutely defined; it has to be kept and re-earned every day, and one essential element in the definition is beating women in every game that both sexes play.
+ - I do not believe in using women in combat, because females are too fierce.
+ - Everyone needs to have access both to grandparents and grandchildren in order to be a full human being.
+ - The older child who has lost or broken some valuable thing will be found when his parents return, not run away, not willing to confess, but in a deep sleep The thief whose case is being tried falls asleep.
+ - Human nature is potentially aggressive and destructive and potentially orderly and constructive.
+ - I had my father’s mind, but he had his mother’s mind. Fortunately, his mother lived with us and so I early realized that intellectual abilities of the kind I shared with my father and grandmother were not sex-linked.
+ - The time has come, I think, when we must recognize bisexuality as a normal form of human behavior.
+ - We need every human gift and cannot afford to neglect any gift because of artificial barriers of sex or race or class or national origin.
+ - All of us who grew up before World War II are immigrants in time, immigrants from an earlier world, living in an age essentially different from anything we knew before.
+ - No matter how many communes anybody invents, the family always creeps back.
+ - We know of no culture that has said, articulately, that there is no difference between men and women except in the way they contribute to the creation of the next generation.
+ - In this country, some people start being miserable about growing old while they are still young.
+ - The closest friends I made all through life have been people who also grew up close to a loved and loving grandmother or grandfather.
+ - Our humanity rests upon a series of learned behaviors, woven together into patterns that are infinitely fragile and never directly inherited.
+ - I have spent most of my life studying the lives of other peoples – faraway peoples – so that Americans might better understand themselves.
+ - For the human species to evolve, the conversation must deepen.
+ - Keeping even the most humble talent wrapped in a napkin becomes the more reprehensible the greater the emergency.
+ - In almost any society I think, the quality of the nonconformists is likely to be just as good as and no better than that of the conformists.
+ - Leisure and the cultivation of human capacities are inextricably interdependent.
+ - The way in which each human infant is transformed into the finished adult, into the complicated individual version of his city and his century is one of the most fascinating studies open to the curious minded.
+ - An occupation that has no basis in sex-determined gifts can now recruit its ranks from twice as many potential artists.
+ - We must bear in mind the possibility that the greater opportunities open in the twentieth century to women may be quite withdrawn, and that we may return to stricter regimentation of women...
+ - Having two bathrooms ruined the capacity to co-operate.
+ - In our contemporary world, no one can think or work with a single picture of what a family is. No one can fit all human behavior, all thought and feeling, into a single pattern.
+ - The negative cautions of science are never popular. If the experimentalist would not commit himself, the social philosopher, the preacher, and the pedagogue tried the harder to give a short-cut answer.
+ - You just have to learn not to care about the dusty mites under the beds.
+ - Because of their age long training in human relations for that is what feminine intuition really is women have a special contribution to make any group enterprise.
+ - No country that permits firearms to be widely and randomly distributed among its population – especially firearms that are capable of wounding and killing human beings – can expect to escape violence, and a great deal of violence.
+ - Women want mediocre men, and men are working to be as mediocre as possible.
+ - It is typical, in America, that a person’s hometown is not the place where he is living now but is the place he left behind.
+ - The prophet who fails to present a bearable alternative and yet preaches doom is part of the trap that he postulates.
+ - Many societies have educated their male children on the simple device of teaching them not to be women.
+ - I devoutly believe that there is no difficulty between two people for which both are not responsible.
+ - Envy of the male role can come as much from an undervaluation of the role of wife and mother as from an overvaluation of the public aspects of achievement that have been reserved for men.
+ - I have tried to answer the question which sent me to Samoa: Are the disturbances which vex our adolescents due to the nature of adolescence itself or to the civilization? Under different conditions does adolescence present a different picture?
+ - The ability to learn is older as it is also more widespread than is the ability to teach.
+ - Blackberry winter, the time when the hoarforst lies on the blackberry blossoms; without this frost the berries will not set. It is the forerunner of a rich harvest.
+ - We will be a better country when each religious group can trust its members to obey the dictates of their own religious faith without assistance from the legal structure of the country.
+ - I think rigid heterosexuality is a perversion of nature.
+ - A city is a place where there is no need to wait for next week to get the answer to a question, to taste the food of any country, to find new voices to listen to and familiar ones to listen to again.
+ - It has been a woman’s task throughout history to go on believing in life when there was almost no hope.
+ - Cynicism is the other thing that goes with sentimentality...
+ - If one cannot state a matter clearly enough so that even an intelligent twelve-year-old can understand it, one should remain within the cloistered walls of the university and laboratory until one gets a better grasp of one’s subject matter.
+ - A city must be a place where groups of women and men are seeking and developing the highest things they know.
+ - Once any group in society stands in a relatively deprived position in relation to other groups, it is genuinely deprived.
+ - The important thing about women today is, as they get older, they still keep house. It’s one reason why they don’t die, but men die when they retire. Women just polish the teacups.
+ - Instead of needing lots of children, we need high-quality children.
+ - I don’t consider my marriages as failures! It’s idiotic to assume that because a marriage ends, it’s failed.
+ - We grow up never questioning that which is unquestioned around us.
+ - The negative cautions of science are never popular.
+ - Prayer does not use up artificial energy, doesn’t burn up any fossil fuel, doesn’t pollute. Neither does song, neither does love, neither does the dance.
+ - When I stand on a street in a Canadian city and look across the street, it couldn’t be anywhere but Canada, but how can I prove it?
+ - The pains of childbirth were altogether different from the enveloping effects of other kinds of pain. These were pains one could follow with one’s mind.
+ - Pigs and cows and chickens and people are all competing for grain.
+ - Of all the peoples whom I have studied, from city dwellers to cliff dwellers, I always find that at least 50 percent would prefer to have at least one jungle between themselves and their mothers-in-law.
+ - It is of very doubtful value to enlist the gifts of a woman into fields that have been defined as male; it frightens the men, unsexes the women, and muffles and distorts the contribution women could make.
+ - There is no lonelier person than the one who lives with a spouse with whom he or she cannot communicate.
+ - Man’s most human characteristic is not his ability to learn, which he shares with many other species, but his ability to teach and store what others have developed and taught him.
+ - Life in the twentieth century is like a parachute jump: you have to get it right the first time.
+ - The contempt for law and the contempt for the human consequences of lawbreaking go from the bottom to the top of American society.
+ - One characteristic of Americans is that they have no toleration at all of anybody putting up with anything. We believe that whatever is going wrong ought to be fixed.
+ - Britons put up with, Americans fix, Canadians cope.
+ - Parents feel like immigrants in the country of the young.
+ - The differences between the two sexes is one of the important conditions upon which we have built the many varieties of human culture that give human beings dignity and stature.
+ - You can never have a relationship with someone whose smell you don’t like.
+ - As long as any adult thinks that he, like the parents and teachers of old, can become introspective, invoking his own youth to understand the youth before him, he is lost.
+ - We – mankind – stand at the center of an evolutionary crisis, with a new evolutionary device – our consciousness of the crisis – as our unique contribution.
+ - Our first and most pressing problem is how to do away with warfare as a method of solving conflicts between national groups within a society who have different views about how the society is to run.
+ - I had no reason to doubt that brains were suitable for a woman.
+ - I am interested in what happens to people who find the whole of life so rewarding that they are able to move through it with the same kind of delight in which a child moves through a game.
+ - Sometimes, instead of helping people to advance, a discovery or an invention holds them back.
+ - Contentment can be bought at a price that one can not possibly pay.
+ - I suddenly realized that through no act of my own I had become biologically related to a new human being.
+ - A small group of thoughtful people could change the world.
+ - As far back as our knowledge takes us, human beings have lived in families. We know of no period when this was not so. We know of no people who have succeeded for long in dissolving the family or displacing it.
+ - If sports are the toy department of life, then the NFL is the FAO Schwartz of sports.
+ - We end up with the contradictory picture of a society that appears to throw its doors wide open to women, but translates her every step towards success as having been damaging.
+ - Through a grandmother’s voice and hands the end of life is known at the beginning.
+ - In each age there is a series of pressing questions which must be asked and answered. On the correctness of the questions depends the survival of those who ask; on the quality of the answers depends the quality of the life those survivors will lead.
+ - Creationism: the theory that Rome was built in a day.
+
+187 quotes

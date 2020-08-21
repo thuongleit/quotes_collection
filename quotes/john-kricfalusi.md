@@ -1,0 +1,26 @@
+ - One guy records the voices, another guy times the storyboard, another guy times the sheets, one guy is the story editor. All these jobs should be covered by the director.
+ - There’s tons of people with talent; it’s the system that’s all screwed up.
+ - Modern animated movies are the products not of anyone’s individual vision, but rather a scattered accumulation of compromises made out of fear by members of large committees.
+ - I think we are destroying the minds of America and that has been one of my lifelong ambitions.
+ - I influenced the BG style by not being able to draw perspective. The BG artists developed cool graphic painting styles to make my bad backgrounds look like they were that way on purpose.
+ - In old movies, the cinematography is a thousand times better than anything today. Writing, a thousand times better.
+ - Kids cannot follow stories. They don’t know what the hell is going on in a cartoon. They like to see funny visual things happening.
+ - I’ll let you in on a secret: I can’t stand Jay Ward. I hate being compared to Rocky and Bullwinkle. It’s just a different style of humor.
+ - From 20 years of experience hiring artists out of the schools, I know-they get worse every year. They’re absolutely ridiculously retarded now.
+ - Cartoonists are untrained artists, while illustrators are more trained.
+ - The generic Canadian style of illustration is different from the generic American style.
+ - Schools are really bad now. Schools are not only bad in reading, writing and arithmetic, they’re worse in cultural aspects, like in music and art. They don’t teach you anything.
+ - To make something look real and alive, nothing can be symmetrical because nothing in real life is symmetrical. You have to make it look organic.
+ - My style is very strong poses and expressions.
+ - Joe Barbera’s s always complaining that he can’t get humor into cartoons anymore. Just do it. You’ve got your money. Why do they let the networks run their lives?
+ - Not all cartoon humor is just about having bugged-out eyes and tongues flying out of people’s heads.
+ - If you’re a kid wanting to be a cartoonist today, and you’re looking at Family Guy, you don’t have to aim very high.
+ - The storyboard department doesn’t talk to the layout department, which doesn’t talk to the writing department. They’re all jealous of each other.
+ - I don t think cartoons are only for kids, but I think kids will love anything as long as it’s visually interesting.
+ - I find it very hard to sit down and create an idea or especially a new character on command. Usually my characters evolve by accident out of some story context.
+ - George Liquor is really the richest character I have. I’m amazed there aren’t 365 episodes about him on TV already.
+ - The only character I ever remember actually creating in a flash of inspiration was George Liquor. God planted that in my head in an instant.
+ - All artists get better with age. The more you draw, the better you’re going to get.
+ - As soon as I found out how compartmentalized the industry was, I realized, Well, no wonder the cartoons are so bad.
+
+24 quotes

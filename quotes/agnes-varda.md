@@ -1,0 +1,77 @@
+ - I’m missing some people, you know, and this is not nostalgia. I miss them. This is melancholy.
+ - This is all you need in life: a computer, a camera, and a cat.
+ - I’m not nostalgic. My memories are back here in my mind.
+ - I live in cinema. I feel I’ve lived here forever.
+ - The tool of every self-portrait is the mirror. You see yourself in it. Turn it the other way, and you see the world .
+ - You have to invent life.
+ - Society is so slow. A feminist is a bore.
+ - I didn’t go to film school. I was never an assistant or trainee on a film. I had not seen all those cameras. So I think it gave me a lot of freedom.
+ - The mirror is the tool of the one who wants to do a self-portrait. And if you want to make a photo you need a mirror.
+ - Humor is such a strong weapon, such a strong answer. Women have to make jokes about themselves, laugh about themselves, because they have nothing to lose.
+ - People think you are an orphan when you are a child, and don’t believe that old people can feel that they are orphans.
+ - You can buy a good pasta but when you cook it yourself it has another feeling.
+ - I tried to find a language for the film – not just telling stories. I picked the Picasso painting because it said more than I could explain. I need images, I need representation which deals in other means than reality. We have to use reality but get out of it. That’s what I try to do all the time.
+ - I go back to many films that I really love. Some Bresson, some Godard of the early times, the Cassavetes of those years I love. And the early Wim Wenders. But my own films I don’t watch, unless I need them.
+ - You are always in the world. Even in Vagabond. I am not on the road, I am not eating nothing. But in a way we all have a Mona. We all have inside ourselves a woman who walks alone on the road. In all women there is something in revolt that is not expressed.
+ - If we opened people up, we’d find landscapes.
+ - In my films I always wanted to make people see deeply. I don’t want to show things, but to give people the desire to see.
+ - To share a lot of ideas – not ideas – emotions, a way of looking at people, a way of looking at life. If it can be shared, it means there is a common denominator.
+ - I wanted to speak strongly about feminism in my life, since it’s been a struggle.
+ - I’m still fighting. I don’t know how much longer, but I’m still fighting a struggle, which is to make cinema alive and not just make another film.
+ - I had a world. I don’t think I had a career. I made films.
+ - Good cinema is good cinema. It makes you feel like you need to work. Just yesterday I saw a good film, but even if I’d seen a bad one, I’d feel, “Oh my god, what a bad job, I can do better.”
+ - Sometimes I feel sad, but this is not nostalgia, because I don’t want time to come back.
+ - Sometimes I want to work with a DP, sometimes I want to work myself. I go to 35mm, 16mm, it’s all the same, but it depends on what you want to tell and what are the tools you need.
+ - Gleaning is getting things that are abandoned. I did not abandon my early pictures, my photos, my early films. It’s just going through my body of work as something I can pick from.
+ - I quit seeing some people who were saying bad things about women; I don’t even want to meet them or see them.
+ - The story of a couple is always very fragile, especially over more than thirty years. People know it’s not easy, and even though you have strong feeling and desire and endless love, it doesn’t always happen.
+ - I hated myself totally white. So now I cheat. It’s my white hair, and I put color there. My grandson says I’m punk.
+ - Nostalgia doesn’t make sense, because it’s like bringing the memories back to be a special part of my day or to be part of my week. And I’m inside my memories the same way I’m inside my everyday life.
+ - When I started my first film, there were three women directors in France. Their films were OK, but I was different. It’s like when you start to jump and you put the pole very high – you have to jump very high. I thought, I have to use cinema as a language.
+ - I’m trying to capture something more fragile than a regular story. I love what people bring me.
+ - If you know nothing, it could be like an enemy in a way. I think that’s the way I felt when I was young.
+ - I have respect for literature. If he found the words, if she found the words – this is a book!
+ - The boundaries between contemporary art and cinema are so rigid. It’s unbelievable. The film critics don’t know my artwork and the art world doesn’t know my films.
+ - I’ve changed my approach to people and to filming because of the new equipment, which is important.
+ - When I started I did not know I wanted to be a filmmaker. I started – I made a film. Then when I finished I said, Oh my god it’s so beautiful – I should be a filmmaker!
+ - To change history is very slow. The first two times I came to the States – black people didn’t have the right to vote.
+ - I had flops, I had success.
+ - I made a braid because Chinese old people, they say that the God will take you by the hair to join you with – but God didn’t take me, so I cut the braid.
+ - Hands are the tool of the painter, the artist.
+ - I think we need to have a nest of something which is family.
+ - I think people should be different. I love people who don’t go by the rule that you have to be careful because you’re old, you have to do this and that, you have to eat this and that.
+ - I’m not interested in seeing a film just made by a woman – not unless she is looking for new images.
+ - I thought, If I’m an ancestor and grandmother when I’m twenty-five, I should go peacefully to the real time when I’m an ancestor and a grandmother.
+ - I try to do nothing. I drink rosemary when I have a lot of work to do. People take coffee, they take speed, whatever. I take rosemary.
+ - I don’t watch my own films. There is little time; I’d rather see another film.
+ - I don’t try to make a place in history at all! People put me in the history of cinema because my first film, La pointe-courte, was so ahead of some other filmmakers. Many filmmakers have made resurgent work, and I was just a little ahead of the time.
+ - I wanted to catch the problem of consumption, waste, poor people eating what we throw away, which is a big subject. But I didn’t want to become a sociologue, an ethnographe, a serious thinker. I thought I should be free, even in a documentary which has a very serious subject.
+ - I was nineteen and I put a bowl on and I said, Cut around! Because it was not the fashion at the time when I did that hairdo – and I kept it all my life!
+ - It’s a way of living, sharing things with people who work with me, and they seem to enjoy it.
+ - I never met Publo Picasso. I took pictures at the Festival d’Avignon, but I was too shy to ask to go in his studio. It does not look like me now, but I was very shy, and shy of men also. I think there was a world that frightened me totally.
+ - I cannot say something different to one person and then another.
+ - I’m interested in people who are not exactly the middle way, or who are trying something else because they cannot prevent themselves from being different, or they wish to be different, or they are different because society pushed them away.
+ - It’s interesting work for me to tell my life, as a possibility for other people to relate it to themselves – not so much to learn about me.
+ - I should say nothing! I’m through with it! I hate to repeat myself all the time.
+ - At that time, when I started, in the ’50s, cinema was very classical in its aims.
+ - I’ve seen many films, and many beautiful films. And I try to keep a certain level of quality of my films. I don’t do commercials, I don’t do films pre-prepared by other people, I don’t do star system. So I do my own little thing.
+ - I see all these students, and I admire them – they’re trying to learn something, they go to school, they do film school, they go on shoots, they help. I’m sure they learn a lot, and some of them, it makes them aware of what they wish to do. I was – that’s the way I was – autodidact.
+ - If I was tall and blonde, I might have been a dancer or singer.
+ - I think I got people confidence because I was not looking at them like insects that I would film.
+ - Humor is such a strong weapon, such a strong answer.
+ - People like my films. They understand me through my films; it’s like a connection that has been established between all my work and myself and the audience and the viewer.
+ - I waited for each film to become important for me. If I had no ideas for a film, I didn’t do a film. So I made not that many films for fifty-four years of working.
+ - It’s peaceful to think about the family as a group. I totally believe in extended families.
+ - It’s a way of living, cinema. And I see my family, I do this and that, I travel. It’s a long process to let it happen.
+ - It’s nice to think that we have in ourselves the energy. It’s somewhere, but it’s sleeping sometimes. I try to wake it up when I need it.
+ - I didn’t have a list of things I should do this year, next year, find a good novel, sign two stars and make a deal – because I think cinema should come from cinema. I never adapted anything. Beautiful books are beautiful books, that’s it. I don’t know why we should transform them.
+ - I was eighteen, this was back in ’46, so we also had these very frightening images of soldiers in the streets of Paris. So the effect of war, plus my shyness, plus my lack of education – I was afraid of men, really. It changes later, but it took me a certain time to adjust.
+ - You have to be strong to be a carpenter, maybe, but the director of a film doesn’t need to have muscles.
+ - I’m myself – knowing I’m doing a documentary and speaking with the people, telling them I have a bed, that I can eat every day, but I would like to speak to you. And they really gave me wonderful answers. We got along very well without trying to make me look like I’m what I’m not.
+ - I think I did fifteen long features and fifteen documentaries, or something like this, which is very little when you think of people making a film every year. Some people have done fifty or sixty films.
+ - Some people meet each other again only when I’m there!
+ - We need to find another way or another shape or an allegory or something that tells us more. Even Vagabond – it was a fiction but it was really a documentary. I mean, it has the texture of documentary. Even if I made up every line, it has the texture of being true.
+ - You know, an hour and fifty-four minutes is too much for audiences. They get nervous.
+ - I’d been educated stupidly, I knew nothing about nothing, that’s part of being shy.
+
+75 quotes

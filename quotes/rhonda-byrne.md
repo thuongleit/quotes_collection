@@ -1,0 +1,247 @@
+ - The life of your dreams, everything you would love to be, do or have, has always been closer to you than you knew, because the power to everything you want is inside you.
+ - We become what we think about. Energy flows where attention goes.
+ - The law of attraction says that like attracts like, and when you think and feel what you want to attract on the inside, the law will use people, circumstances and events to magnetize what you want.
+ - If you can think about what you want in your mind, and make that your dominant thought, you will bring it into your life.
+ - We are like magnets – like attract like. You become AND attract what you think.
+ - Play the picture in your mind – focus on the end result.
+ - Start telling the story of your amazing life, and the law of attraction must make sure you receive it!
+ - Gratitude is the great multiplier, so say thank you for your health every single day.
+ - See yourself living in abundance and you will attract it.
+ - Happy feelings will attract more happy circumstances.
+ - Life isn’t happening to you; life is responding to you.
+ - How it will happen, how the Universe will bring it to you, is not your concern or job. Allow the Universe to do it for you.
+ - VISUALIZE!!! Rehearse your future.
+ - As you ask and feel and believe, you will receive.
+ - Every single second is an opportunity to change your life, because in any moment you can change the way you feel.
+ - If you practice gratitude a little, your life will change a little. If you practice gratitude a lot every day, your life will change dramatically and in ways that you can hardly imagine.
+ - To attract money, you must focus on wealth.
+ - Gratitude will bring more into our lives immediately.
+ - Trust the Universe. Trust and believe and have faith.
+ - When we open our minds to the unlimited creative power, we will call forth abundance and see and experience a whole new world.
+ - VISUALIZE!!! See it, feel it! This is where action begins.
+ - The Great Secret of Life is the law of attraction that says like attracts like, so when you think a thought, you are also attracting like thoughts to you.
+ - Through this most powerful law, your thoughts become things in your life.
+ - The Universe is a masterpiece of abundance.
+ - The law of attraction is the law of creation. Quantum physicists tell us that the entire Universe emerged from thought!
+ - Ask once, believe you have received, and all you have to do to receive is feel good.
+ - If you are feeling good, it is because you are thinking good thoughts .
+ - As you think of yourself living in abundance, you are powerfully and consciously determining your life through the law of attraction.
+ - There is always something to be grateful for.
+ - All stress begins with one negative thought.
+ - What you are thinking now is creating your future life.
+ - Every thought has a frequency. Thoughts send out a magnetic energy.
+ - You will attract everything that you require.
+ - Nothing can come into your experience unless you summon it through persistent thoughts.
+ - Create your day in advance by thinking the way you want it to go, and you will create your life intentionally.
+ - The more love you give in your day-to-day life, the greater the magnetic power of love you have in the field around you, and everything you want will fall at your feet.
+ - Your feelings are your greatest tools to help you create your life.
+ - There are no accidents or coincidences in life – everything is synchronicity – because everything has a frequency. It’s simply the physics of life and the universe in action.
+ - The feeling of love is the highest frequency you can emit. The greater the love you feel and emit, the greater the power you are harnessing.
+ - Whoever has gratitude will be given more, and he or she will have an abundance. Whoever does not have gratitude, even what he or she has will be taken from him or her.
+ - Start thinking happy thoughts and start being happy.
+ - Your wealth is waiting for you in the invisible, and to bring it into the visible, think wealth!
+ - Remember, if you are criticising, you are not being grateful. If you are blaming, you are not being grateful. If you are complaining, you are not being grateful.
+ - You attract your dominant thoughts.
+ - I’m so happy and grateful now that...
+ - To use the law of attraction to your advantage, make it a habitual way of being, not just a one-time event.
+ - Gratitude is the great multiplier.
+ - It is as easy to manifest one dollar as it is to manifest one million dollars.
+ - We are the creators of our universe.
+ - You are the only one that creates your reality.
+ - Thoughts are magnetic, and thoughts have a frequency. As you think thoughts, they are sent out into the Universe, and they magnetically attract all like things that are on the same frequency. Everything sent out returns to the source – you.
+ - You are meant to have an amazing life.
+ - Whatever you believe about your body, your cells believe too. They don’t question anything you think, feel, or believe. In fact, they hear every thought, feeling, and belief you have.
+ - Close your eyes and visualize having what you already want – and the feeling of having it already.
+ - Remove stress from the body and the body regenerates itself. You can heal yourself.
+ - Treat yourself with love and respect, and you will attract people who show you love and respect.
+ - Set a goal so big that if you achieved it, it would blow your mind.
+ - You have to talk about what you love, to bring what you love to you.
+ - There is no such thing as a hopeless situation. Every single circumstances of your life can change!
+ - Gratitude is a powerful process for shifting your energy and bringing more of what you want into your life. Be grateful for what you already have, and you will attract more good things.
+ - Your current thoughts are creating your future life. What you think about the most or focus on the most will appear as your life.
+ - Your happiness depends upon your very own thoughts. No one else can think your thoughts for you. Deliberately think thoughts of what you want because they’re the thoughts that make you happy.
+ - Success comes from within, not from without.
+ - To make a relationship work, focus on what you appreciate about the other person, and not your complaints.
+ - It’s impossible to feel sad or have any negative feeling when you’re grateful. If you’re in the midst of a difficult situation, look for something to be grateful for.
+ - The universe likes SPEED. Don’t delay, don’t second-guess, don’t doubt...
+ - Your imagination is more real that then the world you see, because the world you see comes from what you imagine and believe! What you believe and feel to be true is what will be your life.
+ - Your ability to think is unlimited, and so the things you can think into existence are unlimited.
+ - Your thoughts are seeds, and the harvest you reap will depend on the seeds you plant.
+ - There is a truth deep down inside of you that has been waiting for you to discover it, and that truth is this: you deserve all good things life has to offer.
+ - Laughter attracts joy, releases negativity, and leads to miraculous cures.
+ - Universe will re-arrange itself accordingly.
+ - You have to feel love to harness its power!
+ - There is no greater power in the Universe than the power of love. The feeling of love is the highest frequency you can emit. If you could wrqp every thought in love, if you could love everything and everyone, your life would be transformed.
+ - Everything else you see and experience in this world is effect, and that includes your feelings. The cause is always your thoughts.
+ - Faith is trusting in the good. Fear is putting your trust in the bad.
+ - Ninety-nine percent of who you are is invisible and untouchable.
+ - You are the driver of your mind, so take charge and keep it busy with your instructions by telling it where you want it to go. Your mind only takes off on its own if you are not telling it what to do.
+ - There is no excuse not to give two minutes today to intend your tomorrow.
+ - Expectation is a powerful attractive force.
+ - Difficult times are the greatest opportunities in disguise. When we face difficult times we have to put in determined work to get ourselves into joy. Difficult times are your greatest opportunity to practice yourself into joy!
+ - Love is appreciating, complimenting, feeling gratitude, and speaking good words to others.
+ - Compliment people wherever you go. Praise every single thing you see. Be a ray of sunshine to everyone you meet.
+ - You can’t change a negative situation with bad feelings. If you keep reacting negatively, your bad feelings will magnify and multiply the negativity.
+ - When you emit the perfect frequency of what you want, the perfect people, circumstances, and events will be attracted to you and delivered!
+ - Every day, in every moment, you make the choice whether to love and harness the positive force – or not.
+ - When you conceive something in your mind, know it is a fact, and that there can be no question about its manifestation.
+ - You have the freedom to choose to be optimistic or pessimistic. You can peel off your old attitude like a suit of clothes, and put on a brand spanking new attitude every single day. It’s as simple as that.
+ - You are energy, and energy cannot be created or destroyed. Energy just changes form. And that means You! The true essence of You, the pure energy of You, has always been and always will be. You can never not be.
+ - To attract money, you must focus on wealth. It is impossible to bring more money into your life when you are noticing you do not have enough, because that means you are thinking thoughts that you do not have enough.
+ - The law of attraction is a law of nature. It is as impartial and impersonal as the law of gravity is. It is precise and it is exact.
+ - People who have drawn wealth into their lives used The Secret, whether consciously or unconsciously. They think thoughts of abundance and wealth, and they do allow any contradictory thoughts to take root in their minds.
+ - The time to embrace your magnificence is now.
+ - Thoughts that bring about good feelings mean you are on the right track. Thoughts that bring about bad feelings means you are not on the right track.
+ - When you make feeling good a priority, that magnificent frequency will radiate and touch everyone close to you.
+ - People are responsible for their own joy.
+ - Life is so much easier than you think it is, and as you come to understand the way life works, and the power you have inside you, you will experience the magic of life in its fullness.
+ - You are not here to try to get the world to be just as you want it. You are here to create the world around you that you choose.
+ - When you are praising or blessing you are on the highest frequency of love.
+ - I was trying to change things on the outside and you can’t. You’ve got to feel it on the inside and everything else will change.
+ - Remember it only takes giving love and good feelings a minimum of 51 percent of the tiem to reach the tipping point and change everything.
+ - Decide what you want to be, do, and have, think the thoughts of it, emit the frequency, and your vision will become your life.
+ - What you focus on with your thought and feeling is what you attract into your experience.
+ - You create your future with the power of your intention. Intention is simply the conscious act of determining your future now.
+ - Your power is in your thoughts, so stay awake. In other words, remember to remember.
+ - The more you use the power within you, the more you will draw it to you.
+ - Adjusting to a new path and a new direction will require new qualities and strengths, and these qualities are always exactly what we need to acquire in order to accomplish the great things ahead in our life.
+ - Before you eat food or drink water, look at what you’re about to eat or drink and feel love and gratitude. Make sure your conversations are positive when you are sitting down to a meal.
+ - It only takes a few minutes in the morning to use gratitude to Have A Magical Day by giving thanks for the events in your day ahead of time, but this one practice alone will change the way your entire day unfolds.
+ - Love and gratitude can part seas, move mountains, and create miracles.
+ - We are mass energy. Everything is energy. EVERYTHING.
+ - You can’t have a universe without the mind entering into it.
+ - We are all connected, and we are all One.
+ - The shortcut to anything you want in your life is to BE and FEEL happy now!
+ - When you feel good you uplift your life, and you uplift the world.
+ - Claim the things you want by feeling and believing they are yours.
+ - The Universe offers all things to all people through the law of attraction.
+ - All your power is in your awareness of that power, and through holding that power in your consciousness.
+ - It may seem like a big risk to follow your dream, but isn’t the greatest risk of all to miss your life?
+ - All of this abundance begins to shine through a mind that is aware of it’s own infinite nature. There’s enough for everyone. See it. Believe it. it will show up for you.
+ - It only takes a minute to cause hurt but sometimes a lifetime to repair. Be careful with your words and actions.
+ - The truth is that the universe has been answering you all of your life, but you cannot receive the answers unless you are awake.
+ - If you have an intuitive or instinctive feeling, follow it, and you will find that the Universe is magnetically moving you to receive what you asked for.
+ - Every day is an opportunity for a new life. Every day you stand at the tipping point of your life. And on any one day you can change the future – through the way that you feel.
+ - Focus only on things you love, feel love, and you will experience that love and joy coming back to you – multiplied!
+ - Life doesn’t just happen to you; you receive everything in your life based on what you’ve given.
+ - Even challenges are beautiful opportunities in disguise.
+ - Remember that your thoughts are the primary cause of everything.
+ - Your imagination is an extremely powerful tool.
+ - Your thoughts determine your frequency, and your feelings tell you immediately what frequency you are on.
+ - Life is meant to be abundant in ALL areas...
+ - No matter what challenging situation you may find yourself in, imagine the best outcome of it and feel it! When you do, you will change the circumstances, and you will change the situation into what you want!
+ - There is no greater power in the Universe than the power of love.
+ - The Secret is within you.
+ - When you say “I am,” the words that follow are summoning creation with a mighty force, because you are declaring it to be fact.
+ - In the moment you ask, and believe and know you already have it in the unseen, the entire Universe shifts to bring it into the seen.
+ - You get to choose what you want, but you must get clear about what you want.
+ - You are the one who calls the law of attraction into action, and you do it through your thoughts.
+ - Your life will be what you create it as, and no one will stand in judgment of it, now or ever.
+ - The Law of Attraction is the Law of Love.
+ - You can purposefully use your feelings to transmit an even more powerful frequency, by adding feeling to what you are wanting.
+ - Never let a day pass without looking for the good, feeling the good within you, praising, appreciating, blessing, and being grateful. Make it your life commitment, and you will stand in utter awe of what happens in your life.
+ - You are free to think thoughts of worry or joy, and whatever you choose will attract the same kind back to you. Worry attracts worry. Joy attracts joy.
+ - An affirmative thought is 100 times more powerful than a negative one.
+ - You are human, you will make mistakes, and it’s one of the most beautiful things about being human, but you must learn from your mistakes, otherwise your life will have a lot of unnecessary pain.
+ - Whatever is in your magnetic field is attracting to itself, and so the more love in your field, the more power you have to attract the things you love.
+ - Love, because when you love, you are using the greatest power in the Universe.
+ - No matter who you are, no matter how difficult things might appear to be, you are always being moved towards magnificence. Always.
+ - You are the most powerful magnet in the universe! You contain a magnetic power within you that is more powerful than anything in this world, and this unfathomable magnetic power is emitted through your thoughts.
+ - Let go of the things you don’t love about your childhood, and keep the things you love. Let go of the things you don’t love about your adolescent and adult years, and keep the good things. Just keep the things you love about your whole life.
+ - The positive force of love can create anything good, increase good things and change anything negative in your life.
+ - Whatever you give out in life is what you receive back in life. Give positivity, you receive back positivity; give negativity, you receive back negativity.
+ - Food cannot cause you to put on weight, unless you think it can.
+ - Giving is a powerful action to bring more money into your life, because when you are giving you are saying, “I have plenty.”
+ - You must look for the good in people to have more of it appear. As you look only for the good things in a person, you will be amazed at what your new focus reveals.
+ - The key is your thoughts and feelings, and you have been holding the key in your hand all of your life.
+ - You are the master of your life, and the Universe is answering your every command.
+ - Be aware of everything around you, because you are receiving the answers to your questions in every moment of the day.
+ - What does it mean to be healthy? You may think that being healthy means that you are not sick, but being healthy is far more than that. If you feel okay, or average, or nothing much at all, you are not healthy.
+ - You have the ability to give so much to the world by emitting feelings of love and well-being, despite what is happening around you.
+ - There is both joy and suffering on planet Earth because this beautiful world is a world of duality – a world of opposites. There is an opposite side to everything.
+ - When you are in Joy, you are compassionate. When you are in Joy, you are considerate and caring.
+ - Life is simple. Your life is made up of only two kinds of things – positive things and negative things.
+ - Everyone has the power to visualize.
+ - If you focus completely on the things you love, then you are on your way to a beautiful life.
+ - The only reason why people do not have what they want is because they are thinking more about what they don’t want than what they do want.
+ - Even if you think the tentacles of security have already wrapped themselves around you and you can’t move because of your obligations, it’s never too late-there are always unlimited ways to follow your dreams, and it is much easier than you think.
+ - We have so much love to give, and the more that we give, the more we receive.
+ - Shift your awareness.
+ - Receiving involves feeling the way you feel once your desire has manifested.
+ - It is impossible to feel bad and at the same time have good thoughts.
+ - Remember that you are a magnet! Appreciation attracts appreciation!
+ - Healthy respect for yourself.
+ - When you get the hang of this, before you know it you will KNOW you are the creator.
+ - Many people don’t know about the power of good feelings, and so their feelings are reactions or responses to what happens to them. They have put their feelings on automatic pilot, instead of deliberately taking charge of them.
+ - The only difference between people who are really living this way is they have habituated ways of being.
+ - To not love ourselves can keep what we want from us.
+ - Are your thoughts worthy of you? If not – NOW is the time to change them. You can begin right were you are right now. Nothing matters but this moment and what you are focusing your attention on.
+ - Health: thank the universe for your own healing. Laugh, stress free happiness will keep you healthy.
+ - I am a psychologically disabled person and it’s difficult for me to get and hold down a job. When I don’t work people accuse me of being lazy, taking advantage of government money.
+ - Life is not about negative circumstances that happen to you, it’s about what you do with the golden opportunities hidden within!
+ - Love is not weak, feeble or soft. Love is the positive force of life. Love is the cause of everything positive and good.
+ - Every good thought, every good word, every good emotion, and every act of kindness, is lifting the vibration of your being to new heights. And as you begin to raise your vibration, a new life and a new world will reveal itself to you.
+ - Plant as many good thoughts as you can in each day.
+ - When you realize your potential to feel good, you will ask no one to be different in order for you to feel good.
+ - When you have an inspired thought, you must trust it and act on it.
+ - You cannot create in another’s life against their will, but if it is something they want, your thoughts are a real force that helps them.
+ - Most people offer the majority of their thought in response to what they are observing.
+ - Life is supposed to be fun! When you’re having fun, you feel great and you receive great things! Having fun brings the life you want, and taking things too seriously brings a life you have to take seriously.
+ - It is impossible to bring more into your life if you are feeling ungrateful about what you have. Why? Because the thoughts and feelings you emit as you feel ungrateful are all negative emotions.
+ - Whatever you give out in life is what you receive back in life.
+ - When you need money, it is a powerful feeling within you, and so of course through the law of attraction you will continue to attract needing money.
+ - You cannot help the world by focusing on the negative things. As you focus on the world’s negative events, you not only add to them, but you also bring more negative things into your own life.
+ - When you do not treat yourself the way you want others to treat you, you can never change the way things are.
+ - Just the simple process of letting go of negative thoughts will allow your natural state of health to emerge within you.
+ - It doesn’t matter whether your thoughts and feelings are good or bad, you are giving them out, and they will return to you as automatically and precisely as an echo returns the same words you send out.
+ - You might get an inspired thought or idea to help you move towards what you want faster.
+ - The truth is there is more than enough love, creative ideas, power, joy, happiness to go around.
+ - Illness cannot exist in a body that has harmonious thoughts.
+ - Asking is the first step in the Creative Process, so make it a habit to ask.
+ - You have to find a different approach to what is through a different vantage point.
+ - When you give thanks as though you have already received what you want, you are emitting a powerful signal to the Universe.
+ - By all means ask for abundance and health for you, but also ask for it to be given to everyone.
+ - Your thoughts cause your feelings.
+ - When you want to change your circumstances, you must first change your thinking.
+ - Healing through the mind can work harmoniously with medicine.
+ - Without exception, every person who has a great life used love to achieve it. The power to have all the positive and good things in life is love.
+ - Every person has their own unique circumstances to overcome, but every single person has the opportunity to achieve anything – and change everything.
+ - To attract the things we love we must transmit love, and those things will appear immediately.
+ - You are a genius beyond description, so start telling yourself that and become aware of who you really are.
+ - The better you feel about money, the more money you magnetize to yourself.
+ - Whatever you can imagine is waiting for you, fully created in the invisible, and the way to make it visible is to harness the force of love by imagining and feeling what you love.
+ - You are the ruler of a kingdom, and whatever you think and feel becomes the law of your kingdom – the law within your body.
+ - The Secret’s message is to empower people. Its message releases people from feeling like victims and gives them the knowledge to intentionally create their lives the way they want.
+ - People who have great lives think and talk about what they love more than what they don’t love. And people who are struggling, think and talk about what they don’t love more than what they do love.
+ - One energy field. Our bodies have distracted us from our energy. We are the infinite field of unfolding possibilities. The creative force.
+ - Go for the sense of inner joy and peace then all outside things appear.
+ - Whether you have been aware of your thoughts in the past or not, now you are becoming aware. Right now, with the knowledge of The Secret, you are waking up from a deep sleep and becoming aware!
+ - If you have more negative things than positive things in your life, then something is very wrong and you know it.
+ - Absolutely everything you experience in your life is a result of what you have given in your thoughts and feelings, whether you realize you have given them or not.
+ - People think about what they don’t want and attract more of the same.
+ - Be grateful for what you already have, and you will attract more good things.
+ - It’s important to feel good.
+ - Every idea from your thoughts is the real thing it’s strength.
+ - You don’t need to know HOW the universe is going to rearrange itself.
+ - You must believe that you have received. You must know that what you want is your the moment you ask.
+ - You can change your life, because you have an unlimited ability to think and talk about what you love, and so you have an unlimited ability to bring everything good in life to you.
+ - Make a written list of everything you love.
+ - I am content and happy with my situation and like the flexibility that comes with being self-employed. And it’s nice to know that I can contribute something to society.
+ - It’s OK that thoughts don’t manifest into reality immediately.
+ - There is always something to be grateful for. Pure love has no conditions or boundaries. Love does not restrain itself or hold back. Love gives all the time and doesn’t ask for anything in return. Love is a continuous flow without any limits. And all of this is inside you.
+ - Immune system will heal itself.
+ - I don’t control anything I create.
+ - It’s not “wishful” thinking.
+ - You can use the law of attraction to create your whole life in advance, right down to the next thing you are doing today.
+ - They remember to do it all the time.
+ - Out of my greatest dispair, was to come my greatest gift.
+ - And allow the world as others choose to see it, exist as well.
+ - Everything you want to be, do or have comes from love.
+ - You have the ability to choose what you want to experience.
+ - I looked at what my talents and desires are and decided to start my own business. I like the advantage of being able to work at a slower pace if I need to do that and there is no one pressuring me to work faster.
+ - When you find your purpose, it is like your heart has been set alight with passion. You know it absolutely, without any doubt.
+ - You get exactly what you are FEELING.
+ - It is important to remember that we are energy. Einstein told us that. And energy cannot be created or destroyed, it just changes form.
+ - LOA is simply figuring out for yourself what will generate the positive feelings of having it NOW.
+
+245 quotes

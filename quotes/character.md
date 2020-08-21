@@ -1,0 +1,42 @@
+ - People are interested by talent. God is impressed by character. ~~Rick Warren
+ - Habits change into character. ~~Ovid
+ - Knowledge will give you power, but character respect. ~~Bruce Lee
+ - When wealth is lost, nothing is lost; when health is lost, something is lost; when character is lost, all is lost. ~~Billy Graham
+ - Talent sets the floor, character sets the ceiling. ~~Bill Belichick
+ - Fame is a vapor, popularity an accident, and riches take wings. Only one thing endures and that is character. ~~Horace Greeley
+ - Adversity is a crossroads that makes a person choose one of two paths: character or compromise. Every time he chooses character, he becomes stronger, even if that choice brings negative consequences. ~~John C. Maxwell
+ - The greatest legacy one can pass on to one’s children and grandchildren is not money or other material things accumulated in one’s life, but rather a legacy of character and faith. ~~Billy Graham
+ - Silver is purified in fire and so are we. It is in the most trying times that our real character is shaped and revealed. ~~Helen Keller
+ - Any fool can criticize, condemn and complain – and most fools do. But it takes character and self control to be understanding and forgiving. ~~Dale Carnegie
+ - Another flaw in the human character is that everybody wants to build and nobody wants to do maintenance. ~~Kurt Vonnegut
+ - A man’s character is not judged after he celebrates a victory, but by what he does when his back is against the wall. ~~John Cena
+ - A man’s true character comes out when he’s drunk. ~~Charlie Chaplin
+ - Your task is to stand straight; not to be held straight. ~~Marcus Aurelius
+ - Character is far more important than intellect in making a man a good citizen or successful at his calling- meaning by character not only such qualities as honesty and truthfulness, but courage, perseverance and self-reliance. ~~Theodore Roosevelt
+ - By constant self-discipline and self-control you can develop greatness of character. Grenville Kleiser Discipline is the bridge between goals and accomplishment. ~~Jim Rohn
+ - You can’t just pretend that the things you watch, and the things you hear, and the places you go will not have an impact on your character. They will. ~~Nouman Ali Khan
+ - Bad things do happen; how I respond to them defines my character and the quality of my life. I can choose to sit in perpetual sadness, immobilized by the gravity of my loss, or I can choose to rise from the pain and treasure the most precious gift I have – life itself. ~~Walter Anderson
+ - The real Da’wah to Islam is the character of a Muslim. ~~Nouman Ali Khan
+ - Learning to stand in somebody else’s shoes, to see through their eyes, that’s how peace begins. And it’s up to you to make that happen. Empathy is a quality of character that can change the world. ~~Barack Obama
+ - Winning takes talent, to repeat takes character. ~~John Wooden
+ - I care not what others think of what I do, but I care very much about what I think of what I do! That is character! ~~Theodore Roosevelt
+ - Money is either a good or bad influence, according to the character of the person who possesses it. ~~Napoleon Hill
+ - When writing a novel a writer should create living people; people not characters. A character is a caricature. ~~Ernest Hemingway
+ - When we deal in generalities, we shall never succeed. When we deal in specifics, we shall rarely have a failure. When performance is measured, performance improves. When performance is measured and reported, the rate of performance accelerates. ~~Thomas S. Monson
+ - You can start right where you stand and apply the habit of going the extra mile by rendering more service and better service than you are now being paid for. ~~Napoleon Hill
+ - A long habit of not thinking a thing wrong gives it a superficial appearance of being right. ~~Thomas Paine
+ - Human greatness does not lie in wealth or power, but in character and goodness. People are just people, and all people have faults and shortcomings, but all of us are born with a basic goodness. ~~Anne Frank
+ - A Man’s management of his own purse speaks volumes about character. ~~Thomas Jefferson
+ - Weakness of attitude becomes weakness of character. ~~Albert Einstein
+ - Some of us are more concerned with our reputation than our character. The latter takes care of the former. ~~Lecrae
+ - Not until we are lost do we begin to understand ourselves. ~~Henry David Thoreau
+ - Human kindness has never weakened the stamina or softened the fiber of a free people. A nation does not have to be cruel to be tough. ~~Franklin D. Roosevelt
+ - Reputation is what men and women think of us; character is what God and angels know of us. ~~Thomas Paine
+ - Love is not primarily a relationship to a specific person; it is an attitude, an ordination of character which determines the relatedness of the person to the whole world as a whole, not toward one object of love. ~~Erich Fromm
+ - Too often character assassination has replaced debate in principle here in Washington. Destroy someone’s reputation, and you don’t have to talk about what he stands for. ~~Ronald Reagan
+ - The opposite of compromise is character. ~~Frederick Douglass
+ - All paths lead to the same goal: to convey to others what we are. ~~Pablo Neruda
+ - A man’s character may be learned from the adjectives which he habitually uses in conversation. ~~Mark Twain
+ - Kind words do not cost much. Yet they accomplish much. ~~Blaise Pascal
+
+40 quotes

@@ -1,0 +1,22 @@
+ - Life’s most precious gift is uncertainty.
+ - Ambition never comes to an end.
+ - In everything, no matter what it may be, uniformity is undesirable. Leaving something incomplete makes it interesting, and gives one the feeling that there is room for growth.
+ - Leave undone whatever you hesitate to do.
+ - To sit alone in the lamplight with a book spread out before you, and hold intimate converse with men of unseen generations – such is a pleasure beyond compare.
+ - If life were eternal, all interest and anticipation would vanish. It is uncertainty which lends it fascination.
+ - Blossoms are scattered by the wind and the wind cares nothing but the blossoms of the heart no wind can touch.
+ - You should never put the new antlers of a deer to your nose and smell them. They have little insects that crawl into the nose and devour the brain.
+ - What a strange, demented feeling it gives me when I realize I have spent whole days before this ink stone, with nothing better to do, jotting down at random whatever nonsensical thoughts have entered my head.
+ - On a moonlit night, after a snowfall, or under cherry blossoms, it adds to our pleasure if, while chatting at our ease, we bring forth the wine cups.
+ - The hour of death waits for no order. Death does not even come from the front. It is ever pressing on from behind. All men know of death, but they do not expect it of a sudden, and it comes upon them unawares. So, though the dry flats extend far out, soon the tide comes and floods the beach.
+ - It is a most wonderful comfort to sit alone beneath a lamp, book spread before you, and commune with someone from the past whom you have never met.
+ - A certain recluse, I know not who, once said that no bonds attached him to this life, and the only thing he would regret leaving was the sky.
+ - If you must take care that your opinions do not differ in the least from those of the person with whom you are talking, you might just as well be alone.
+ - There is nothing finer than to be alone with nothing to distract you.
+ - Even members of the nobility, let alone persons of no consequence, would do well not to have children.
+ - One should write not unskillfully in the running hand, be able to sing in a pleasing voice and keep good time to music; and, lastly, a man should not refuse a little wine when it is pressed upon him.
+ - The true criminal must be defined as a man who commits a crime though he is as decently fed and clothed as others.
+ - If you imagine that once you have accomplished your ambitions you will have time to turn to the Way, you will discover that your ambitions never come to an end.
+ - The truth is at the beginning of anything and its end are alike touching.
+
+20 quotes

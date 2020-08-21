@@ -1,0 +1,91 @@
+ - You’re in the arms of the Angels; may you find some comfort here.
+ - Your love is better than chocolate. Better than anything else that I’ve tried.
+ - I’m so tired, but I can’t sleep. Standing on the edge of something much too deep.
+ - Change and growth is so painful. But it’s so necessary for us to evolve.
+ - Theres beauty everywhere. There are amazing things happening everywhere, you just have to be able to open your eyes and witness it. Some days, thats harder than others.
+ - The more we take the less we become, the fortune of one man means less for some.
+ - It’s easier to believe in this sweet madness, oh this glorious sadness, that brings me to my knees.
+ - We’re constantly being told what other people think we are, and that’s why it is so important to know yourself.
+ - My love, you know you are my best friend. You know that I’d do anything for you, and my love, let nothing come between us. My love for you is strong and true.
+ - Don’t let your life pass you by, weep not for the memories.
+ - People’s ignorance really pisses me off. Stupidity is when you can’t help it -ignorance is when you choose not to understand something.
+ - The night is my companion, and solitude my guide.
+ - You made my world stand still, and in that stillness, there was a freedom I never felt before.
+ - Every time I’m close to you, there’s too much I can’t say, and you just walk away. And I forgot to tell you I love you.
+ - You take me in, no questions asked. You strip away the ugliness that surrounds me. Are you an angel?
+ - I pull you from your tower, take away your pain. Show you all the beauty you possess, if you only let yourself believe.
+ - I’m so afraid to love you, but more afraid to lose. Clinging to a past that doesn’t let me chose.
+ - I don’t follow any organized religion, but I do believe in the idea of god as a verb – being love and light. And that we are part of everything as everything is part of us.
+ - I play piano every day.
+ - If you only try to please others, you’re going to resent those people you’re trying to please; the ones who are often closest to you. If you choose a path that you yourself want to take, then you’re going to be much kinder to the people in your life.
+ - If you love large, you’ve got to hurt large. If you’ve got a lot of light, you’ve probably got an equal amount of darkness.
+ - I think sometimes all you need is to hear someone else say the same thing that you’re going through to realize that you’re not alone. I try to put some sense of hope into the songs, into whatever the situation is so that it’s not just dirt, drudgery and a life of misery.
+ - Cast me gently into the morning for the night has been unkind.
+ - Cause I rely on my illusions, to keep me warm at night. I’ve denied in my capacity to love, and I am willing to give up this fight.
+ - Once there was a darkness, a deep and endless night, you gave me everything you had and oh, you gave me light.
+ - You speak to me in riddles, you speak to me in rhymes, my body aches to breathe your breath, your word keeps me alive.
+ - I threw bitter tears at the ocean, but all that came back was the tide.
+ - I sort of feel like music saved my life when I was young. This is the one thing that I knew I was good at.
+ - Happiness is like a cloud, if you stare at it long enough, it evaporates.
+ - I try so hard to live in the moment – I don’t think ahead very much.
+ - I don’t tend to question things that much. If it feels right, I go for it.
+ - I think one of the most important things, that this album is for me, and this period in my life, is about gratitude. About recognizing all of the things, daily, that I’m grateful for, and there are many in my life. I’m just so blessed, and I try to carry that with me every day.
+ - I was trying to uphold what I thought feminism was as best I could by supporting women, by trying to create an opportunity to get women to get together, play music together and celebrate the fact that we are having great success making music on our own and together.
+ - Everybody loves you when you’re easy, so don’t disappoint them.
+ - Oh darkness, I feel like letting go.
+ - I want to be alone. Sympathies wasted on my hollow shell. I feel there’s nothing left to fight for. No reason for a cause.
+ - All the fear has left me now, I’m not frightened anymore. It’s my heart that pounds beneath my flesh, it’s my mouth that pushes out this breath.
+ - Your love is just the antidote when nothing else can cure me.
+ - I write music all the time. When I talk about having writer’s block, it’s more to do with lyrics than anything else.
+ - I kind of have a happy magnet. I can’t stand being depressed, so I work my ass off to get out of it as soon as possible.
+ - Music is very nebulous, and you can conjure up a lot of moods with music. But lyrics – they’re a lot more tangible. They’re much more specific. And you want to say something meaningful and creative and artistic and that tells a story and that takes people someplace else.
+ - Deep within I’m shaken by the violence of existing for only you...
+ - Trying to force creativity is never good.
+ - I spent a lot of years on the road, and what happens is you find out who your real friends are and you find out where your strengths and weaknesses lie in communication. I’ve had the same friends for 20 years now and I can count them on one hand.
+ - I’ve got to live my life the way I feel is right for me. Might not be right for you, but it’s right for me.
+ - I’m a closet Backstreet Boys fan. They’re very sweet.
+ - We are in an age of technology where we sit in our little cubicles and we IM each other and Skype each other and never connect as human beings.
+ - Deadlines are meant to be broken. And I just keep breaking them.
+ - It’s a very romantic sentiment, but to think that you would die if you didn’t write, well, I would definitely choose to not write and live.
+ - I think a lot of contemplation happens in bathtubs. It does for me. Nothing like a hot bath to ease the tension and think about what’s going to happen next.
+ - I have a full life: I have two amazing kids, I have great friends, great family. And right now, that’s plenty for me to manage. A new relationship just seems like way too much work.
+ - It’s an amazing luxury to say I’m 31 years old and I’m gonna take a year off. That’s pretty amazing.
+ - I’ve learned to trust myself, to listen to truth, to not be afraid of it and to not try and hide it.
+ - Water is very forgiving. Everything lifts in water.
+ - I believe this is Heaven to no one else but me...
+ - Coming to terms with the fact that my marriage was a failure was devastating and very difficult.
+ - And it’s hard at the end of the day.
+ - I’m really lucky that my record companies have been patient with me and leave me alone and give me the time to make it right in my mind.
+ - Nothing outside of my child is important.
+ - We try to create this interesting appearance to make ourselves feel better about ourselves.
+ - I’ve heard myself referred to as a quiet superstar, and I don’t quite know what that means.
+ - If I cried me a river of all my confessions, would I drown in my shallow regret?
+ - I was a pretty insecure kid, didn’t have a lot of friends, and was picked on a lot, and music gave me confidence.
+ - I have fallen, I have sunk so low. I have messed up, better I should know.
+ - I think often sadness is a great place to get songs from.
+ - Through this world I’ve stumbled, so many times betrayed, trying to find an honest word, to find the truth enslaved.
+ - I’m an eternal optimist with a small degree of cynicism.
+ - When I say music saved me, I don’t say that lightly.
+ - Music gave me a sense that I was worthwhile and that I had something of value to offer the world even though everybody was telling me that I didnt.
+ - And music has always been incredibly cathartic for me, whether it’s writing my own stuff or singing other people’s music; it’s very freeing.
+ - It’s a big challenge for me to keep my integrity and some of my privacy intact.
+ - I was very awkward as a kid. I was a square trying to fit into a circle and it never worked for me. The harder I tried, the harder I fell. For some reason I was a real target and I got beat up and called names.
+ - You’ve been gone so long from all that you know. It’s been shuffled aside as you bask in the glow. All the beauitful strangers who whisper your name, do they fill up the emptiness? Larger that life is your fiction, in a universe made upon one.
+ - It was overwhelmingly beautiful to see my music performed.
+ - I don’t court paparazzi. I definitely don’t like that part of it.
+ - Nature is a perfect example of the harmony between the beautiful and the brutal. You turn over a pretty rock and there are worms writhing underneath.
+ - I go out on the road for much longer than I probably should and lose more of myself than I should.
+ - I like the idea that we build up these walls or rules or laws to maintain our reality, and when they fall away, you’re left with a whole bunch of illusions.
+ - I’ve never done heroin, but I totally understood what would drive people to that distraction-to need that so much.
+ - I don’t think about what other people want from me.
+ - I think I’ve become a much better singer and a much better player. Years and years of playing a couple of hours every day will do that.
+ - I’m not one to sit and wallow – I would rather figure out a way around so I can move past it and be at peace with things. I don’t like bad feelings gnawing away at me.
+ - I’m not a media darling. I’m not on the cover of all these magazines. I just quietly do my thing.
+ - Time is a beautiful thing. It’s like when you meet an old lover on the street six years later and they don’t look so ugly anymore.
+ - I’m a great mummy. I’ve mapped out all the fun spots in every city.
+ - I’ve been so busy I haven’t had a chance to go crazy. I don’t party like I used to.
+ - I didn’t get hugely famous really quick. It was a slow, gradual process, so I was able to sort of grow into myself and figure out who I was and what I wanted without the glaring spotlight on me telling me who I was.
+ - Larger than life is your fiction in a universe made up of one.
+ - I will rememeber you. Will you remember me? Don’t let your life pass you by and don’t forget all your memories.
+
+89 quotes

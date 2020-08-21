@@ -1,0 +1,28 @@
+ - A man can do all things if he will.
+ - No art, however minor, demands less than total dedication if you want to excel in it.
+ - The city is like a great house, and the house in its turn a small city.
+ - Beauty is the adjustment of all parts proportionately so that one cannot add or subtract or change without impairing the harmony of the whole.
+ - What is painting but the act of embracing, by means of art, the surface of the pool?
+ - The Arts are learnt by reason and method; they are mastered by practice.
+ - Philosophers say that nothing can be seen that is neither illuminated nor colored.
+ - Practice by drawing things large, as if equal in representation and reality. In small drawings every large weakness is easily hidden; in the large, the smallest weakness is easily seen.
+ - Errors accumulate in the sketch and compound in the model.
+ - We must always take from nature what we paint and always choose the most beautiful things.
+ - Painting is possessed of divine power, for not only does it make the absent present, but also makes the dead almost alive.
+ - A common error of ignorance is to maintain that what one does not know does not exist.
+ - I shall praise those faces which seem to project out of the picture as though they were sculptured, and I shall censure those faces in which I see no art but that of outline.
+ - The greatest work of an artist is the history of a painting.
+ - It seems obvious that colors vary according to lights, because when any color is placed in the shade, it appears to be different from the same color which is located in light. Shade makes color dark, whereas light makes color bright where it strikes.
+ - As ability goes, so goes our fortune.
+ - Buildings have been made because of man.
+ - I prefer you to take as your model a mediocre sculpture rather than an excellent painting, for from painted objects we train our hand only to make a likeness, whereas from sculptures we learn to represent both likeness and correct incidence of light.
+ - There is no art which has not had its beginnings in things full of errors. Nothing is at the same time both new and perfect.
+ - It is very rarely granted even to Nature herself to produce anything absolutely perfect in every part.
+ - It was never shameful to learn from any teacher things that are useful to know.
+ - The picture will have charm when each color is very unlike the one next to it.
+ - I certainly consider a great appreciation of painting to be the best indication of a most perfect mind...
+ - Men are themselves the source of their own fortune and misfortune.
+ - A person can do anything if they only will it strongly enough.
+ - Nothing overshadows truth so much as authority.
+
+26 quotes

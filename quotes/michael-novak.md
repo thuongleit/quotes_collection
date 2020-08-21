@@ -1,0 +1,31 @@
+ - Love is not a feeling of happiness. Love is a willingness to sacrifice.
+ - Sports is, somehow, a religion.
+ - Tradition lives because young people come along who catch its romance and add new glories to it.
+ - Our capacity for self-deception has no known limits.
+ - Marriage, the family unit, was the “original Department of Health, Education and Welfare.”
+ - Sports events do not really exist at all unless there is a certain order and fairness – justice in each event.
+ - Unity in diversity is the highest possible attainment of a civilization, a testimony to the most noble possibilities of the human race. This attainment is made possible through passionate concern for choice, in an atmosphere of social trust.
+ - To go into a competition and not strive to win is to be a dishonest competitor.
+ - We really feel happier when things look bleak. Hope is endurance. Hope is holding on and going on and trusting in the Lord.
+ - The Lord God, the creator of Judaism and the God of Judaism and Christianity, empowered our minds and gave us the ability to question.
+ - I need not to be afraid of the void. The void is part of my person. I need to enter consciously into it. To try to escape from it is to try to live a lie. It is also to cease to be. My acceptance of despair and emptiness constitutes my being; to have the courage to accept despair is to be.
+ - Our Founders always wondered about how long it would last. The price of liberty is everlasting vigilance. You’ve got to be on your guard every minute or you will lose it.
+ - Individual freedom is a Jewish idea, but it’s one of the functions of Christianity to make this idea universal.
+ - Granted that I must die, how shall I live?
+ - To know oneself is to disbelieve utopia.
+ - Christians must be Jews. The truth of what we believe depends on the truth of Judaism, depends on the first covenant.
+ - Our political institutions work remarkably well. They are designed to clang against each other. The noise is democracy at work.
+ - Command by instinct is swifter, subtler, deeper, more accurate, more in touch with reality than command by conscious mind. The discovery takes one’s breath away.
+ - In most of history, societies have not been free. It’s a very rare society that is free. The default condition of human societies is tyranny.
+ - The most critical threat to our freedom is a failure to appreciate the power of truth.
+ - Don’t be afraid of anything. We’ve seen so much suffering and evil in the 20th century and we got through it. We can go on. God is with us. God will help us. Trust Him.
+ - There is a bigotry rampant in America, against evangelicals. It is the last respectable bigotry.
+ - Even rock stars are entitled to privacy.
+ - Atheists in our midst are proof that all consciences can be accommodated here, even those that have no ground for holding that conscience is sacred, inalienable, and prior to civil society.
+ - Practically every movie that shows the pope or even a bishop as a character, and in much of western literature of the last 300 or 400 years, these are portrayed as awful figures.
+ - What is the most effective, practical way of raising the wealth of nations? What causes wealth? I have come to think that the dream of democratic socialism is inferior to the dream of democratic capitalism, and that the latter’s superiority in actual practice is undeniable.
+ - You’re a sovereign as a citizen. If you’re not involved in your government, you’re not doing your job. In the long run that’s very bad for the Republic.
+ - It is almost inconceivable that citizens of that time were willing to support so bloody a war, by putting so high a price upon Union and Liberty.
+ - Everything I do that I’m enthusiastic about. This is genuine enthusiasm. If I don’t – I mean I’ve done other projects that I have not been a fan of until I realized I was doing it and I wasn’t really there. And I don’t do those anymore.
+
+29 quotes

@@ -1,0 +1,472 @@
+ - Maybe this world is another planet’s hell.
+ - To travel is to discover that everyone is wrong about other countries.
+ - There is only one corner of the universe you can be certain of improving, and that’s your own self.
+ - The more powerful and original a mind, the more it will incline towards the religion of solitude.
+ - The secret of genius is to carry the spirit of the child into old age, which means never losing your enthusiasm.
+ - Experience is not what happens to a man; it is what a man does with what happens to him.
+ - Facts do not cease to exist because they are ignored.
+ - Never put off till tomorrow the fun you can have today.
+ - I wanted to change the world. But I have found that the only thing one can be sure of changing is oneself.
+ - Happiness is not achieved by the conscious pursuit of happiness; it is generally the by-product of other activities.
+ - Consistency is contrary to nature, contrary to life. The only completely consistent people are the dead.
+ - Liberties aren’t given, they are taken.
+ - Dream in a pragmatic way.
+ - After silence, that which comes nearest to expressing the inexpressible is music.
+ - No social stability without individual stability.
+ - Experience teaches only the teachable.
+ - I’m afraid of losing my obscurity. Genuineness only thrives in the dark. Like celery.
+ - All that happens means something; nothing you do is ever insignificant.
+ - Most human beings have an almost infinite capacity for taking things for granted.
+ - In life, man proposes, God disposes.
+ - Words can be like X-rays if you use them properly – they’ll go through anything. You read and you’re pierced.
+ - But I don’t want comfort. I want God, I want poetry, I want real danger, I want freedom, I want goodness. I want sin.
+ - It's a little embarrassing that after 45 years of research and study, the best advice I can give people is to be a little kinder to each other.
+ - I’d rather be myself. Myself and nasty.
+ - People will come to love their oppression, to adore the technologies that undo their capacities to think.
+ - Technological progress has merely provided us with more efficient means for going backwards.
+ - If one’s different, one’s bound to be lonely.
+ - A love of nature keeps no factories busy.
+ - The deepest sin against the human mind is to believe things without evidence.
+ - The more you know, the more you see.
+ - To his dog, every man is Napoleon; hence the constant popularity of dogs.
+ - You shall know the truth, and the truth shall make you mad.
+ - My father considered a walk among the mountains as the equivalent of churchgoing.
+ - If most of us remain ignorant of ourselves, it is because self-knowledge is painful and we prefer the pleasures of illusion.
+ - The most valuable of all education is the ability to make yourself do the thing you have to do, when it has to be done, whether you like it or not.
+ - A bad book is as much of a labor to write as a good one; it comes as sincerely from the author’s soul.
+ - I can sympathize with people’s pains, but not with their pleasure. There is something curiously boring about somebody else’s happiness.
+ - If you don’t gamble, you’ll never win.
+ - That men do not learn very much from the lessons of history is the most important of all the lessons of history.
+ - For the born traveller, travelling is a besetting vice. Like other vices, it is imperious, demanding its victim’s time, money, energy and the sacrifice of comfort.
+ - Love casts out fear; but conversely fear casts out love. And not only love. Fear also casts out intelligence, casts out goodness, casts out all thought of beauty and truth.
+ - Beauty is worse than wine, it intoxicates both the holder and beholder.
+ - The propagandist’s purpose is to make one set of people forget that certain other sets of people are human.
+ - When the sun rises, it rises for everyone.
+ - Every man’s memory is his private literature.
+ - An intellectual is a person who’s found one thing that’s more interesting than sex.
+ - Hinduism the perennial philosophy that is at the core of all religions.
+ - Your true traveller finds boredom rather agreeable than painful. It is the symbol of his liberty – his excessive freedom. He accepts his boredom, when it comes, not merely philosophically, but almost with pleasure.
+ - Medical science is making such remarkable progress that soon none of us will be well.
+ - Most ignorance is vincible ignorance. We don’t know because we don’t want to know.
+ - Silence is as full of potential wisdom and wit as the unshown marble of great sculpture. The silent bear no witness against themselves.
+ - If you want to be a psychological novelist and write about human beings, the best thing you can do is keep a pair of cats.
+ - One believes things because one has been conditioned to believe them.
+ - Both of us victims of the same twentieth-century plague. Not the Black Death, this time; the Gray Life.
+ - Hug me till you drug me, honey; Kiss me till I’m in a coma.
+ - In all activities of life, the secret of efficiency lies in an ability to combine two seemingly incompatible states: a state of maximum activity and a state of maximum relaxation.
+ - Addiction is an increasing desire for an act that gives less and less satisfaction.
+ - Nobody can have the consolations of religion or philosophy unless he has first experienced their desolations.
+ - I want to know what passion is. I want to feel something strongly.
+ - I have spoken so far only of the blissful visionary experience? But visionary experience is not always blissful. It’s sometimes terrible. There is hell as well as heaven.
+ - We cannot reason ourselves out of our basic irrationality. All we can do is learn the art of being irrational in a reasonable way.
+ - Habit converts luxurious enjoyments into dull and daily necessities.
+ - We tend to think and feel in terms of the art we like; and if the art we like is bad then our thinking and feeling will be bad. And if the thinking and feeling of most of the individuals composing a society is bad, is not that society in danger?
+ - Dictators can always consolidate their tyranny by an appeal to patriotism.
+ - Happiness is never grand.
+ - If you have behaved badly, repent, make what amends you can and address yourself to the task of behaving better next time.
+ - In real life there is no such thing as the average man.
+ - The natural rhythm of human life is routine punctuated by orgies.
+ - Sixty two thousand four hundred repetitions make one truth. Idiots!
+ - When life appears to be working against you, when your luck is down, when the supposedly wrong people show up, or when you slip up and return to old, self-defeating habits, recognize the signs that you’re out of harmony with intention.
+ - We live together, we act on, and react to one another; but always, and in all circumstances, we are by ourselves.
+ - The proper study of mankind is books.
+ - Industrialization is the systemic exploitation of wasting assets. In all too many cases, the thing we call progress is merely an acceleration in the rate of that exploitation.
+ - The more a man knows about himself in relation to every kind of experience, the greater his chance of suddenly, one fine morning, realizing who in fact he is...
+ - We are all geniuses up to the age of ten.
+ - If one is not oneself a sage or saint, the best thing one can do is to study the words of those who were.
+ - Blood of the world, time staunchless flows; The wound is mortal and is mine.
+ - No Romeo-and-Juliet acts, no nonsense about Love with a large L, none of that popular song claptrap with its skies of blue, dreams come true, heaven with you. Just sensuality for its own sake.
+ - Ironically enough, the only people who can hold up indefinitely under the stress of modern war are psychotics. Individual insanity is immune to the consequences of collective insanity.
+ - Most lead lives at worst so painful, at best so monotonous, poor and limited that the urge to escape, the longing to transcend themselves if only for a few moments, is and has always been one of the principle appetites of the soul.
+ - How difficult it is to sound persuasive at the top of one’s voice!
+ - The charm of history and its enigmatic lesson consist in the fact that, from age to age, nothing changes and yet everything is completely different.
+ - Applied Science is a conjuror, whose bottomless hat yields impartially the softest of Angora rabbits and the most petrifying of Medusas.
+ - The Christian idea of a perfect heaven that is something other than a non-existence is a contradiction in terms.
+ - The Bhagavad-Gita is the most systematic statement of spiritual evolution of endowing value to mankind. It is one of the most clear and comprehensive summaries of perennial philosophy ever revealed; hence its enduring value is subject not only to India but to all of humanity.
+ - Death is the only thing we haven’t succeeded in completely vulgarizing.
+ - The effectiveness of political and religious propaganda depends upon the methods employed, not upon the doctrines taught. These doctrines may be true or false, wholesome or pernicious it makes little or no difference.
+ - A child-like man is not a man whose development has been arrested; on the contrary, he is a man who has given himself a chance of continuing to develop long after most adults have muffled themselves in the cocoon of middle-aged habit and convention.
+ - Reality, no matter how utopian, seems to be something people need to frequently take a holiday from.
+ - Generalized intelligence and mental alertness are the most powerful enemies of dictatorship and at the same time the basic conditions of effective democracy.
+ - For the first time in the history of the world, Buddhism proclaimed a salvation which each individual could gain from him or herself, in this world, during this life, without any least reference to God, or to gods either great or small.
+ - Thought must be divided against itself before it can come to any knowledge of itself.
+ - Only a person with a Best Seller mind can write Best Sellers.
+ - Cynical realism is the intelligent man’s best excuse for doing nothing in an intolerable situation.
+ - Words form the thread on which we string our experiences.
+ - The finest works of art are precious, among other reasons, because they make it possible for us to know, if only imperfectly and for a little while, what it actually feels like to think subtly and feel nobly.
+ - The world is an illusion, but an illusion which we must take seriously.
+ - Everyone belongs to everyone else.
+ - Back to culture. Yes, actually to culture. You can’t consume much if you sit still and read books.
+ - The victim of mind-manipulati on does not know that he is a victim. To him, the walls of his prison are invisible, and he believes himself to be free.
+ - What’s the point of truth or beauty or knowledge when anthrax bombs are popping all around you?
+ - Reality cannot be ignored except at a price; and the longer the ignorance is persisted in, the higher and more terrible becomes the price that must be paid.
+ - Real progress is progress in charity, all other advances being secondary thereto.
+ - For particulars, as everyone knows, make for virtue and happiness; generalities are intellectually necessary evils. Not philosophers but fretsawyers and stamp collectors compose the backbone of society.
+ - Folly is often more cruel in the consequences than malice can be in the intent.
+ - The impulse to cruelty is, in many people, almost as violent as the impulse to sexual love – almost as violent and much more mischievous.
+ - Ending is better than mending.
+ - Universal happiness keeps the wheels steadily turning, truth and beauty can’t.
+ - Pain was a fascinating horror.
+ - The pursuit of truth is just a polite name for the intellectual’s favorite pastime of substituting simple and therefore false abstractions for the living complexities of reality.
+ - Every man who knows how to read has it in his power to magnify himself, to multiply the ways in which he exists, to make his life full, significant and interesting.
+ - Of course the Dharma-body of the Buddha was the hedge at the bottom of the garden. At the same time, and no less obviously, it was these flowers, it was anything that I – or rather the blessed Not-I – cared to look at.
+ - When the individual feels, the community reels.
+ - Every ceiling, when reached, becomes a floor, upon which one walks as a matter of course and prescriptive right.
+ - Our vanity makes us exaggerate the importance of human life; the individual is nothing; Nature cares only for the species.
+ - Happiness is like coke – something you get as a by-product in the process of making something else.
+ - The essay is a literary device for saying almost everything about almost anything.
+ - God: a gaseous vertebrate.
+ - I am I, and I wish I weren’t.
+ - The survival of democracy depends on the ability of large numbers of people to make realistic choices in the light of adequate information.
+ - Man’s life on earth has only one end and purpose: to identify himself with his eternal Self and so to come to intuitive knowledge of the Divine Ground.
+ - Armaments, universal debt and planned obsolescence – those are the three pillars of Western prosperity.
+ - A really efficient totalitarian state would be one in which the all-powerful executive of political bosses and their army of managers control a population of slaves who do not have to be coerced, because they love their servitude.
+ - War is often described as a law of nature-this is not true: Among the lower animals, war is unknown.
+ - Beware of being too rational. In the country of the insane, the integrated man doesn’t become king. He gets lynched.
+ - Nonsense is an assertion of man’s spiritual freedom in spite of all the oppressions of circumstance.
+ - The silent bear no witness against themselves.
+ - No man, however civilized, can listen for very long to African drumming, or Indian chanting, or Welsh hymn singing, and retain intact his critical and self-conscious personality.
+ - It was one of those evenings when men feel that truth, goodness and beauty are one. In the morning, when they commit their discovery to paper, when others read it written there, it looks wholly ridiculous.
+ - In regard to man’s final end, all the higher religions are in complete agreement. The purpose of human life is the discovery of Truth, the unitive knowledge of the Godhead.
+ - Actual happiness always looks pretty squalid in comparison with the over-compensations for misery.
+ - Sons have always a rebellious wish to be disillusioned by that which charmed their fathers.
+ - Those who meant well behaved in the same way as those who meant badly.
+ - People often ask me what is the most effective technique for transforming their life. It is a little embarrassing that after years and years of research and experimentation, I have to say that the best answer is – just be a little kinder.
+ - Everyone who wants to do good to the human race always ends in universal bullying.
+ - Civilization is sterilization.
+ - Consciousness is only possible through change; change is only possible through movement.
+ - Every ceiling reached becomes a floor.
+ - On no account brood over your wrongdoing. Rolling in the muck is not the best way of getting clean.
+ - Every individual is at once the beneficiary and the victim of the linguistic tradition into which he has been born...
+ - I’m claiming the right to be unhappy.
+ - Who lives longer? The man who takes heroin for two years and dies, or a man who lives on roast beef, water and potatoes ’till 95? One passes his 24 months in eternity. All the years of the beefeater are lived only in time.
+ - One seventh of your life is spent on Monday.
+ - We are not our own any more than what we possess is our own. We did not make ourselves, we cannot be supreme over ourselves. We are not our own masters.
+ - The present moment is the only aperture through which the soul can pass out of time into eternity, through which grace can pass out of eternity into the soul, and through which love can pass from one soul in time to another soul in time.
+ - Contemplation is that condition of alert passivity, in which the soul lays itself open to the divine Ground within and without, the immanent and transcendent Godhead.
+ - Family, monogamy, romance. Everywhere exclusiveness, a narrow channelling of impulse and energy.
+ - There is only one corner of the universe you can be certain of improving, and that is your own self. So you have to begin there, not outside, not on other people. That comes afterwards, when you have worked on your own corner.
+ - The more stitches, the less riches.
+ - Knowledge is an affair of symbols and is, all too often, a hindrance to wisdom, the uncovering of the self from moment to moment.
+ - Science in itself is morally neutral; it becomes good or evil according as it is applied.
+ - To be excited is still to be unsatisfied.
+ - The best way to find things out is not to ask questions at all. If you fire off a question, it is like firing off a gun – bang it goes.
+ - All conditioning aims at that: making people like their inescapable social destiny.
+ - The sum of evil, Pascal remarked, would be much diminished if men could only learn to sit quietly in their rooms.
+ - Almost all of us long for peace and freedom; but very few of us have much enthusiasm for the thoughts, feelings, and actions that make for peace and freedom.
+ - Round pegs in square holes tend to have dangerous thoughts about the social system and tend to infect others with their discontents.
+ - Cleanliness is next to fordliness.
+ - Teaching is the last refuge of feeble minds with a classical education.
+ - Thanks to words, we have been able to rise above the brutes; and thanks to words, we have often sunk to the level of the demons.
+ - But the nature of the universe is such that the ends never justify the means. On the contrary, the means always determine the end.
+ - Dedicated to all those who say: “I don’t have time for analytics” or “I don’t understand analytics”.
+ - No holiday is ever anything but a disappointment.
+ - The author of the Iliad is either Homer or, if not Homer, somebody else of the same name.
+ - Never have so many been manipulated so much by so few.
+ - To see ourselves as others see us is a most salutary gift. Hardly less important is the capacity to see others as they see themselves.
+ - If Men and Women took their Pleasures as noisily as the Cats, what Londoner could ever hope to sleep of nights?
+ - Hell isn’t merely paved with good intentions; it’s walled and roofed with them. Yes, and furnished too.
+ - We can only love what we know, and we can never know completely what we do not love. Love is a mode of knowledge.
+ - The third petition of the Lord’s Prayer is repeated daily by millions who have not the slightest intention of letting anyone’s will be done but their own.
+ - The creation by word-power of something out of nothing – what is that but magic? And, may I add, what is that but literature?
+ - Man is an intelligence in servitude to his organs.
+ - At this point we find ourselves confronted by a very disquieting question: Do we really wish to act upon our knowledge?
+ - The traveller’s-eye view of men and women is not satisfying. A man might spend his life in trains and restaurants and know nothing of humanity at the end. To know, one must be an actor as well as a spectator.
+ - Every gain made by individuals or societies is almost instantly taken for granted. The luminous ceiling toward which we raise our longing eyes becomes, when we have climbed to the next floor, a stretch of disregarded linoleum beneath our feet.
+ - We shall be permitted to live on this planet only for as long as we treat all nature with compassion and intelligence.
+ - To travel is to discover that everybody is wrong. The philosophies, the civilizations which seem, at a distance, so superior to those current at home, all prove on a close inspection to be in their own way just as hopelessly imperfect.
+ - Pully, hauly, tug with a will; the gods wiggle waggle, but the sky stands still.
+ - So long as men worship the Caesars and Napoleons, Caesars and Napoleons will duly arise and make them miserable.
+ - Art and religion, carnivals and saturnalia, dancing and listening to oratory – all these have served, in H. G. Wells’s phrase, as Doors in the Wall.
+ - I was not looking now at an unusual flower arrangement. I was seeing what Adam had seen on the morning of his creation – the miracle, moment by moment, of naked existence.
+ - A belief in hell and the knowledge that every ambition is doomed to frustration at the hands of a skeleton have never prevented the majority of human beings from behaving as though death were no more than an unfounded rumor.
+ - My fate cannot be mastered; it can only be collaborated with and thereby, to some extent, directed. Nor am I the captain of my soul; I am only its noisiest passenger.
+ - You should hurry up and acquire the cigar habit. It’s one of the major happinesses. And so much more lasting than love, so much less costly in emotional wear and tear.
+ - Words play an enormous part in our lives and are therefore deserving of the closest study.
+ - It is a bit embarrassing to have been concerned with the human problem all one’s life and find at the end that one has no more to offer by way of advice than ‘try to be a little kinder.’
+ - I write everything many times over. All my thoughts are second thoughts.
+ - Nothing – the only perfection, the only absolute. Infinite and eternal nothing.
+ - To talk about religion except in terms of human psychology is an irrelevance.
+ - Chaos and ineptitude are anti-human; but so too is a superlatively efficient government, equipped with all the products of a highly developed technology.
+ - If the Prince of Peace should come to earth, one of the first things he would do would be to put psychiatrists in their place.
+ - One right-thinking man thinks like all other right-thinking men of his time that is to say, in most cases, like some wrong-thinking man of another time.
+ - Each person is at each moment capable of remembering all that has ever happened to him and of perceiving everything that is happening everywhere in the universe.
+ - It isn’t only art that is incompatible with happiness, it’s also science. Science is dangerous, we have to keep it most carefully chained and muzzled.
+ - The quality of moral behavior varies in inverse ratio to the number of human beings involved.
+ - Writers write to influence their readers, their preachers, their auditors, but always, at bottom, to be more themselves.
+ - There was a thing called Heaven; but all the same they used to drink enormous quantities of alcohol.
+ - Thought of the incomprehensible sequence of changes and chances that make up a life, all the beauties and horrors and absurdities whose conjunctions create the uninterpretable and yet divinely significant pattern of human destiny.
+ - What wonder, then, if human beings in their search for the divine have generally preferred to look within!
+ - But then every man is ludicrous if you look at him from outside, without taking into account what’s going on in his heart and mind.
+ - Religion is always a patron of the arts, but its taste is by no means impeccable.
+ - Men make use of their illnesses at least as much as they are made use of by them.
+ - Sunsets and death; death and therefore kisses, kisses and consequently birth and then death for yet another generation of sunset watchers.
+ - One cubic centimeter cures ten gloomy sentiments.
+ - A million million spermatozoa, All of them alive: Out of their cataclysm but one poor Noah Dare hope to survive.
+ - Thought is barred in this City of Dreadful Joy and conversation is unknown.
+ - In a word, they failed to take into account man’s almost infinite appetite for distractions.
+ - Give us this day our daily Faith, but deliver us, dear God, from Belief.
+ - Somewhere in the rain, there will always be an abandoned dog that prevents you from being happy.
+ - People intoxicate themselves with work so they won’t see how they really are.
+ - The leech’s kiss, the squid’s embrace, The prurient ape’s defiling touch: And do you like the human race? No, not much.
+ - The worst enemy of life, freedom and the common decencies is total anarchy; their second worst enemy is total efficiency.
+ - Impulse arrested spills over, and the flood is feeling, the flood is passion, the flood is even madness.
+ - Home, home – a few small rooms, stiflingly over-inhabited by a man, by a periodically teeming woman, by a rabble of boys and girls of all ages. No air, no space; an understerilized prison; darkness, disease, and smells.
+ - Champagne has the taste of an apple peeled with a steel knife.
+ - A man can smile and smile and be a villain.
+ - It is natural to believe in God when you’re alone – quite alone, in the night, thinking about death.
+ - There is no bad day that can’t be overcome by listening to a barbershop quartet. This is just truth, plain and simple.
+ - Let us be kinder to one another.
+ - God in the safe and Ford on the shelves.
+ - Liberty? Why it doesn’t exist. There is no liberty in this world, just gilded cages.
+ - This really revolutionary revolution is to be achieved, not in the external world, but in the souls and flesh of human beings.
+ - To make this trivial world sublime, take half a gram of phanerothyme.
+ - Nothing short of everything will really do.
+ - When people are suspicious with you, you start being suspicious with them.
+ - Those who feel themselves despised do well to look despising.
+ - At any given moment, life is completely senseless. But viewed over a period, it seems to reveal itself as an organism existing in time, having a purpose, trending in a certain direction.
+ - We don’t want to change. Every change is a menace to stability.
+ - Work is prayer. Work is also stink. Therefore stink is prayer.
+ - Good is that which makes for unity. Evil is that which makes for separateness.
+ - I was born wandering between two worlds, one dead, the other powerless to be born, and have made, in a curious way, the worst of both.
+ - There is no substitute for talent. Industry and all its virtues are of no avail.
+ - Which is better: to have fun with fungi or to have Idiocy with ideology, to have wars because of words, to have tomorrow’s misdeeds out of yesterday’s miscreeds?
+ - You all remember, I suppose, that beautiful and inspired saying of Our Ford’s: History is bunk.
+ - Seated upon the convex mound Of one vast kidney, Jonah prays And sings his canticles and hymns, Making the hollow vault resound God’s goodness and mysterious ways, Till the great fish spouts music as he swims.
+ - Speed, it seems to me, provides the one genuinely modern pleasure.
+ - Generalities are intellectually necessary evils.
+ - People will insist on treating the mons Veneris as though it were Mount Everest. Too silly!
+ - It isn’t a matter of forgetting. What one has to learn is how to remember and yet be free of the past.
+ - What man has joined, nature is powerless to put asunder.
+ - Every idol, however exalted, turns out, in the long run, to be a Moloch, hungry for human sacrifice.
+ - Words are good servants but bad masters.
+ - Man has an almost infinite capacity for taking things and people for granted and thereby missing out on the pleasure of being grateful that things aren’t worse and of praising and thereby lifting the spirits of others.
+ - Marble, I perceive, covers a multitude of sins.
+ - And so, resisting the temptation to wallow in artistic remorse, I prefer to leave both well and ill alone and to think about something else.
+ - Perhaps it’s good for one to suffer. Can an artist do anything if he’s happy? Would he ever want to do anything? What is art, after all, but a protest against the horrible inclemency of life?
+ - Grace is always sufficient, provided we are ready to cooperate with it.
+ - Modern man’s besetting temptation is to sacrifice his direct perceptions and spontaneous feelings to his reasoned reflections; to prefer in all circumstances the verdict of his intellect to that of his immediate intuitions.
+ - The investigation of nature is an infinite pasture-ground where all may graze, and where the more bite, the longer the grass grows, the sweeter is its flavor, and the more it nourishes.
+ - Chastity – the most unnatural of all the sexual perversions.
+ - Proverbs are always platitudes until you have personally experienced the truth of them.
+ - Good is a product of the ethical and spiritual artistry of individuals; it cannot be mass-produced.
+ - Civilization means food and literature all round. Beefsteaks and fiction magazines for all. First-class proteins for the body, fourth-class love-stories for the spirit.
+ - We can’t allow science to undo its own good work.
+ - It’s a very salutary thing to realize that the rather dull universe in which most of us spend most of our time is not the only universe there is. I think it’s healthy that people should have this experience.
+ - All the advantages of Christianity and alcohol; none of their defects.
+ - There isn’t any formula or method. You learn to love by loving – by paying attention and doing what one thereby discovers has to be done.
+ - Can you say something about nothing?
+ - Ignore death up to the last moment; then, when it can’t be ignored any longer, have yourself squirted full of morphia and shuffle off in a coma. Thoroughly sensible, humane and scientific, eh?
+ - What is absurd and monstrous about war is that men who have no personal quarrel should be trained to murder one another in cold blood.
+ - Individual insanity is immune to the consequences of collective insanity.
+ - Feasts must be solemn and rare, or else they cease to be feasts.
+ - A competent portraitist knows how to imply the profile in the full face.
+ - Man is hypnotized by the glitter of his own gadgetry.
+ - In the course of history many more people have died for their drink and their dope than have died for their religion or their country.
+ - Assembled in a crowd, people lose their powers of reasoning and their capacity for moral choice.
+ - Ultimate Reality is not clearly and immediately apprehended except by those who have made themselves loving, pure in heart and poor in spirit.
+ - The flower of the present rosily blossomed.
+ - Idealism is the noble toga that political gentlemen drape over their will to power.
+ - For every traveller who has any taste of his own, the only useful guidebook will be the one which he himself has written.
+ - Single-mindedness is all very well in cows or baboons; in an animal claiming to belong to the same species as Shakespeare, it is simply disgraceful.
+ - If human beings were shown what they’re really like, they’d either kill one another as vermin, or hang themselves.
+ - Defined in psychological terms, a fanatic is a man who consciously over-compensates a secret doubt.
+ - Lying in bed, he would think of Heaven and London.
+ - A majority of young people seem to develop mental arteriosclerosis forty years before they get the physical kind.
+ - Man is an amphibian who lives simultaneously in two worlds-the given and the home-made, the world of matter, life and consciousness and the world of symbols.
+ - A man may be a pessimistic determinist before lunch and an optimistic believer in the will’s freedom after it.
+ - People travel for the same reason as they collect works of art: because the best people do it.
+ - It takes two to make a murder. There are born victims, born to have their throats cut, as the cut-throats are born to be hanged.
+ - This growing poverty in the midst of growing population constitutes a permanent menace to peace. And not only to peace, but also to democratic institutions and personal liberty For overpopulation is not compatible with freedom.
+ - One believes things because one has been conditioned to believe them. Finding bad reasons for what one believes for other bad reasons-that’s philosophy. People believe in God because they’ve been conditioned to believe in God.
+ - Man must learn to simplify, but not to the point of falsification.
+ - Our goal is to discover that we have always been where we ought to be.
+ - Dinted dimpled wimpled-his mind wandered down echoing corridors of assonance and alliteration ever further and further from the point. He was enamoured with the beauty of words.
+ - The optimum population is modeled on the iceberg- eight-ninths below the water line, one-ninth above.
+ - Finding bad reasons for what one believes for other bad reasons – that’s philosophy.
+ - Parodies and caricatures are the most penetrating of criticisms.
+ - Several excuses are always less convincing than one.
+ - We objected to the morality because it interfered with our sexual freedom.
+ - One thinks one’s something unique and wonderful at the center of the universe, when in fact one’s just a slight interruption in the ongoing march of entropy.
+ - The pleasures of ignorance are as great, in their way, as the pleasures of knowledge.
+ - Art, I suppose, is only for beginners, who have made up in their minds to be content with symbols rather than with what they signify, with the elegantly composed recipe in lieu of actual dinner.
+ - Man is unique in organizing the mass murder of his own species.
+ - Most of one’s life is one prolonged effort to prevent oneself thinking.
+ - All our science is just a cookery book, with an orthodox theory of cooking that nobody’s allowed to question, and a list of recipes that mustn’t be added to except by special permission from the head cook.
+ - The horror no less than the charm of real life consists precisely in the recurrent actualization of the inconceivable.
+ - Man is so intelligent that he feels impelled to invent theories to account for what happens in the world. Unfortunately, he is not quite intelligent enough, in most cases, to find correct explanations. So that when he acts on his theories, he behaves very often like a lunatic.
+ - Like every other good thing in this world, leisure and culture have to be paid for. Fortunately, however, it is not the leisured and the cultured who have to pay.
+ - We participate in a tragedy; at a comedy we only look.
+ - These are the sort of things people ought to look at. Things without pretensions, satisfied to be merely themselves.
+ - If you want to write, keep cats.
+ - The instinct of acquisitiveness has more perverts, I believe, than the instinct of sex. At any rate, people seem to me odder about money than about even their amours.
+ - The ductless glands secrete among other things our moods, our aspirations, our philosophy of life.
+ - We now spend a good deal more on drink and smoke than we spend on education. This, of course, is not surprising. The urge to escape from selfhood and the environment is in almost everyone almost all the time.
+ - Modern man no longer regards Nature as in any sense divine and feels perfectly free to behave toward her as an overweening conqueror and tyrant.
+ - A large city cannot be experientially known; its life is too manifold for any individual to be able to participate in it.
+ - Children are remarkable for their intelligence and ardor, for their curiosity, their intolerance of shams, the clarity and ruthlessness of their vision.
+ - Don’t try to behave as though you were essentially sane and naturally good. We’re all demented sinners in the same cosmic boat – and the boat is perpetually sinking.
+ - Industrial civilization is only possible when there’s no self-denial. Self-indulgence up to the very limits imposed by hygiene and economics. Otherwise the wheels stop turning.
+ - Now, a corpse, poor thing, is an untouchable and the process of decay is, of all pieces of bad manners, the vulgarest imaginable. For a corpse is, by definition, a person absolutely devoid of savoir vivre.
+ - The people who kill and torture and tell lies in the name of their sacred causes, these are never the publicans and the sinners. No, they’re the virtuous, respectable men, who have the finest feelings, the best brains, the noblest ideals.
+ - The question of the next generation will not be one of how to liberate the masses, but rather, how to make them love their servitude.
+ - Happiness is a hard master, particularly other people’s happiness.
+ - Art is one of the means whereby man seeks to redeem a life which is experienced as chaotic, senseless, and largely evil.
+ - You’ve got to be hurt and upset; otherwise you can’t think of the really good, penetrating, X-rayish phrases.
+ - The nature of oratory is such that there has always been a tendency among politicians and clergymen to oversimplify complex matters. From a pulpit or a platform even the most conscientious of speakers finds it very difficult to tell the whole truth.
+ - When truth is nothing but truth, it’s unnatural, it’s an abstraction that resembles nothing in the real world.
+ - Everybody strains after happiness, and the result is that nobody’s happy.
+ - Half at least of all morality is negative and consists in keeping out of mischief. The lords prayer is less than 50 words long, and 6 of those words are devoted to asking god not to lead us into temptation.
+ - The most shocking fact about war is that its victims and its instruments are individual human beings, and that these individual beings are condemned by the monstrous conventions of politics to murder or be murdered in quarrels not their own.
+ - The gods are just. No doubt. But their code of law is dictated, in the last resort, by the people who organize society; Providence takes its cue from men.
+ - I know the outer world as well as you do, and I judge it. You know nothing of my inner world, and yet you presume to judge that world.
+ - Every civilization is, among other things, an arrangement for domesticating the passions and setting them to do useful work.
+ - I have always found that Angels have the vanity to speak of themselves as the only wise.
+ - Unlike the masses, intellectuals have a taste for rationality and an interest in facts.
+ - The condition of being forgiven is self-abandonment. The proud man prefers self-reproach, however painful – because the reproached self isn’t abandoned; it remains intact.
+ - Words are magical in the way they affect the minds of those who use them.
+ - I believe one would write better if the climate were bad. If there were a lot of wind and storms for example...
+ - It takes a certain amount of intelligence and imagination to realize the extraordinary queerness and mysteriousness of the world in which we live.
+ - Societies are composed of individuals and are good only insofar as they help individuals to realize their potentialities and to lead a happy and creative life.
+ - God isn’t compatible with machinery and scientific medicine and universal happiness. You must make your choice. Our civilization has chosen machinery and medicine and happiness.
+ - In actual life a downward movement may sometimes be made the beginning of an ascent.
+ - Higher education is not necessarily a guarantee of higher virtue.
+ - Indifference to all the refinements of life – it’s really shocking. Just Calvinism, that’s all. Calvinism without the excuse of Calvin’s theology.
+ - Wild inside; raging, writhing – yes, “writhing” was the word, writhing with desire. But outwardly he was hopelessly tame; outwardly – baa, baa, baa.
+ - In religion all words are dirty words. Anybody who gets eloquent about Buddha, or God, or Christ, ought to have his mouth washed out with carbolic soap.
+ - Wherever the choice has had to be made between the man of reason and the madman, the world has unhesitatingly followed the madman.
+ - We lie to ourselves in order that we may still have the excuse of ignorance, the alibi of stupidity and incomprehension, possessing which we can continue with a good conscience to commit and tolerate the most monstrous crimes.
+ - Only times and places, only names and ghosts.
+ - A type of revolutionary novelty may be extremely beautiful in itself; but, for the creatures of habit that we are, its very novelty tends to make it illegible, at any rate to begin with.
+ - All democracies are based on the proposition that power is very dangerous and that it is extremely important not to let any one person or small group have too much power for too long a time.
+ - Sleep is the most blessed and blessing of all natural graces.
+ - Craving for power is not a vice of the body, consequently it knows none of the limitations imposed by a tired or satiated physiology upon gluttony, intemperance and lust.
+ - Some of the greatest advances in mathematics have been due to the invention of symbols, which it afterwards became necessary to explain; from the minus sign proceeded the whole theory of negative quantities.
+ - Every significant artist is a metaphysician, a propounder of beauty-truths and form-theories.
+ - In a few years, no doubt, marriage licences will be sold like dog licences, good for 12 months.
+ - The advertisement is one of the most interesting and difficult of modern literary forms.
+ - The course of every intellectual, if he pursues his journey long and unflinchingly enough, ends in the obvious, from which the non-intellectuals have never stirred.
+ - I am entirely on the side of mystery. I mean, any attempt to explain away the mystery is ridiculous. I believe in the profound and unfathomable mystery of life which has a sort of divine quality about it.
+ - An unexciting truth may be eclipsed by a thrilling lie.
+ - The greater a man’s talents, the greater his power to lead astray.
+ - Universal education has created an immense class of what I may call the New Stupid, hungering for certainty yet unable to find it in the traditional myths and their rationalizations.
+ - Only one more indispensable massacre of Capitalists or Communists or Fascists or Christians or Heretics, and there we are in the Golden Future.
+ - An irrelevance, and your life’s altered.
+ - The lunatic fringe is more like a Spanish shawl, where the fringe makes up the entire garment.
+ - The self is coming from a state of pure awareness from the state of being. All the rest that comes about in a outward manifesation of the physical world, including fluctuations which end up as thoughts and actions.
+ - But a priest’s life is not supposed to be well-rounded; it is supposed to be one-pointed – a compass, not a weathercock.
+ - Bondage is the life of personality, and for bondage the personal self will fight with tireless resourcefulness and the most stubborn cunning.
+ - The snapshots had become almost as dim as memories.
+ - All gods are homemade, and it is we who pull their strings, and so, give them the power to pull ours.
+ - Like every man of sense and good feeling, I abominate work.
+ - What with making their way and enjoying what they have won, heroes have no time to think. But the sons of heroes – ah, they have all the necessary leisure.
+ - Music is an ocean, but the repertory is hardly even a lake; it is a pond.
+ - Look with complete innocence at the infinitely improbable thing before you.
+ - A poor degenerate from the ape, Whose hands are four, whose tail’s a limb, I contemplate my flaccid shape And know I may not rival him Save with my mind.
+ - Morality is always the product of terror; its chains and strait-waistcoats are fashioned by those who dare not trust others, because they dare not trust themselves, to walk in liberty.
+ - Words, words, words! They shut one off from the universe. Three quarters of the time one’s never in contact with things, only with the beastly words that stand for them.
+ - Pure Spirit, one hundred degrees proof – that’s a drink that only the most hardened contemplation-guzzlers indulge in. Bodhisattvas dilute their Nirvana with equal parts of love and work.
+ - The only truly consistent are the dead.
+ - The social body persists although the component cells may change.
+ - Science has explained nothing; the more we know the more fantastic the world becomes and the profounder the surrounding darkness.
+ - I don’t care where I’m from, nor where I’m going. From hell to hell.
+ - The fact that people are shocked is the best proof that they need shocking.
+ - To write fiction, one needs a whole series of inspirations about people in an actual environment, and then a whole lot of work on the basis of those inspirations.
+ - Dying is almost the least spiritual of our acts, more strictly carnal even than the act of love. There are Death Agonies that are like the strainings of the Costive at stool.
+ - No man ever dared to manifest his boredom so insolently as does a Siamese tomcat when he yawns in the face of his amorously importunate wife.
+ - Hell is the incapacity to be other than the creature one finds oneself ordinarily behaving as.
+ - An ideal is merely the projection, on an enormously enlarged scale, of some aspect of personality.
+ - The thin and precarious crust of decency is all that separates any civilization, however impressive, from the hell of anarchy or systematic tyranny which lie in wait beneath the surface .
+ - Christianity accepted as given a metaphysical system derived from several already existing and mutually incompatible systems.
+ - And what strange voices they have! Sometimes like the complaining of small children; sometimes like the noise of lambs...
+ - The most distressing thing that can happen to a prophet is to be proved wrong. The next most distressing thing is to be proved right.
+ - The business of a seer is to see; and if he involves himself in the kind of God-eclipsing activities which make seeing impossible, he betrays the trust which his fellows have tacitly placed in him.
+ - Facts are ventriloquist’s dummies. Sitting on a wise man’s knee they may be made to utter words of wisdom; elsewhere, they say nothing, or talk nonsense, or indulge in sheer diabolism.
+ - Complete prohibition of all chemical mind changers can be decreed, but cannot be enforced, and tends to create more evils than it cures.
+ - Today we are faced, I think, with the approach of what may be called the ultimate revolution, the final revolution, where man can act directly on the mind-body of his fellows.
+ - As late as the seventeenth century, monarchs owned so little furniture that they had to travel from palace to palace with wagon-loads of plate and bedspreads, of carpets and tapestries.
+ - In the world of ideas everything was clear; in life all was obscure, embroiled.
+ - That all men are equal is a proposition to which, at ordinary times, no sane human being has ever given his assent.
+ - If it were not for the intellectual snobs who pay – in solid cash – the arts would perish with their starving practitioners. Let us thank heaven for hypocrisy.
+ - One of the great attractions of patriotism – it fulfills our worst wishes. In the person of our nation we are able, vicariously, to bully and cheat. Bully and cheat, what’s more, with a feeling that we are profoundly virtuous.
+ - For in spite of language, in spite of intelligence and intuition and sympathy, one can never really communicate anything to anybody.
+ - For some strange reason murder has always seemed more respectable than fornication. Few people are shocked when they hear God described as the God of Battles; but what an outcry there would be if anyone spoke of him as the God of Brothels.
+ - Pageantry is a visionary art which has been used, from time immemorial, as a political instrument.
+ - It’s embarrassing to tell you this, but it seems to come down mostly to just learning to be kinder.
+ - Faith may be relied upon to produce sustained action and, more rarely, sustained contemplation.
+ - The consistent thinker, the consistently moral man, is either a walking mummy or else, if he has not succeeded in stifling all his vitality, a fanatical monomaniac.
+ - In any race between human numbers and natural resources, time is against us.
+ - Orthodoxy is the diehard of the world of thought. It learns not, neither can it forget.
+ - Why should human females become sterile in their forties, while female crocodiles continue to lay eggs into their third century?
+ - It is only when we have renounced our preoccupation with “I,” “me,” “mine,” that we can truly possess the world in which we live. Everything, provided that we regard nothing as property. And not only is everything ours; it is also everybody else’s.
+ - Of the significant and pleasurable experiences of life only the simplest are open indiscriminately to all. The rest cannot be had except by those who have undergone a suitable training.
+ - It is only when it takes the form of physical addiction that sex is evil. It is also evil when it manifests itself as a way of satisfying the lust for power or the climber’s craving for position and social distinction.
+ - To aspire to be superhuman is a most discreditable admission that you lack the guts, the wit, the moderating judgment to be successfully and consummately human.
+ - That we are not much sicker and much madder than we are is due exclusively to that most blessed and blessing of all natural graces, sleep.
+ - There’s only one effectively redemptive sacrifice, the sacrifice of self-will to make room for the knowledge of God.
+ - Such prosperity as we have known it up to the present is the consequence of rapidly spending the planet’s irreplaceable capital.
+ - For at least two thirds of our miseries spring from human stupidity, human malice and those great motivators and justifiers of malice and stupidity, idealism, dogmatism and proselytizing zeal on behalf of religious or political idols.
+ - De Sade is the one completely consistent and thoroughgoing revolutionary of history.
+ - What the rest of us see only under the influence of mescalin, the artist is congenitally equipped to see all the time.
+ - Europe is so well gardened that it resembles a work of art, a scientific theory, a neat metaphysical system. Man has re-created Europe in his own image.
+ - I know very dimly when I start what’s going to happen. I just have a very general idea, and then the thing develops as I write.
+ - Oh, how desperately bored, in spite of their grim determination to have a Good Time, the majority of pleasure-seekers really are!
+ - The thing that impresses me most about this country is its hopefulness. It is this which distinguishes it from Europe, where there is hopeless depression and fear.
+ - To those who think that liberty is a good thing, and that it may someday be possible for people to live in a society fit for free, fully human individuals, a thorough education in the nature of language, its uses and abuses, seems indispensable.
+ - The indispensible is not necessarily the desirable.
+ - People are much too solemn about things – I’m all for sticking pins into episcopal behinds.
+ - When an artist deserts to the side of the angels, it is the most odious of treasons.
+ - No less than war or statecraft, the history of Economics has its heroic ages.
+ - Every gain made by individuals or society is almost instantly taken for granted.
+ - Industrial man – a sentient reciprocating engine having a fluctuating output, coupled to an iron wheel revolving with uniform velocity. And then we wonder why this should be the golden age of revolution and mental derangement.
+ - Henri IV’s feet and armpits enjoyed an international reputation.
+ - Liberty, as we all know, cannot flourish in a country that is permanently on a war footing, or even a near war footing. Permanent crisis justifies permanent control of everybody and everything by the agencies of central government.
+ - Plasticene and self-expression will not solve the problems of education. Nor will technology and vocational guidance; nor the classics and the Hundred Best Books.
+ - Two hours. One hundred and twenty minutes. Anything might be done in that time. Anything. Nothing. Oh, he had had hundreds of hours, and what had he done with them? Wasted them, spilt the precious minutes as though his reservoir were inexhaustible.
+ - Can we unite against ourselves for our own higher interest?
+ - The critics don’t interest me because they’re concerned with what’s past and done, while I’m concerned with what comes next.
+ - It is in the social sphere, in the realm of politics and economics, that the Will to Order becomes really dangerous.
+ - I’m sick. I’ve eaten civilisation and I’m sick.
+ - I’ve never discussed my writing with others much, but I don’t believe it can do any harm. I don’t think that there’s any risk that ideas or materials will evaporate.
+ - Official dignity tends to increase in inverse ratio to the importance of the country in which the office is held.
+ - My sympathies are, of course, with the Government side, especially the Anarchists ; for Anarchism seems to me more likely to lead to desirable social change than highly centralized, dictatorial Communism .
+ - After all, what is reading but a vice, like drink or venery or any other form of excessive self-indulgence? One reads to tickle and amuse one’s mind; one reads, above all, to prevent oneself thinking.
+ - Drinking can not be sacramentalised except in religions which set no store on decorum. The worship of Dionysos or the Celtic god of beer was a loud and disorderly affair.
+ - In books, the proportion of exceptional to commonplace people is very high; in reality, very low.
+ - Those who believe that they are exclusively in the right are generally those who achieve something.
+ - In the contexts of religion and politics, words are not regarded as standing, rather inadequately, for things and events; on the contrary things and events are regarded as particular illustrations of words.
+ - It’s with bad sentiments that one makes good novels.
+ - The greatest triumphs of propoganda have been accomplished, not by doing something, but by refraining from doing. Great is truth, but still greater, from a practical point of view, is silence about truth.
+ - Peace is a necessary condition of spirituality, no less than an inevitable result of it.
+ - Everyone thinks this way at some point. The important thing is to power through and get to learning. If you really don’t have the time Let Me Handle Your Analytics.
+ - The artists who the world has always recognized as the greatest are those with the widest sympathy. The greatness of the great artist depends precisely on the width and the intensity of his sympathy.
+ - The poet’s place, it seems to me, is with the Mr. Hydes of human nature.
+ - One of the great attractions of patriotism.
+ - A democracy which makes or even effectively prepares for modern, scientific war must necessarily cease to be democratic. No country can be really well prepared for modern war unless it is governed by a tyrant, at the head of a highly trained and perfectly obedient bureaucracy.
+ - There are few who would not rather be taken in adultery than in provocation.
+ - Being cared for when one is dead is less satisfactory than being cared for when one is alive.
+ - Happiness has got to be paid for. You’re paying for it, Mr. Watson–paying because you happen to be too much interested in beauty. I was too much interested in truth; I paid too.
+ - Given a fair chance, human beings can govern themselves, and govern themselves better.
+ - There are many kinds of gods. Therefore there are many kinds of men.
+ - The most intractable of our experiences is the experience of Time-the intuition of duration, combined with the thought of perpetual perishing.
+ - When one individual comes into intimate contact with another, she – or he, of course, as the case may be – must almost inevitably receive or inflict suffering.
+ - Too much consistency is as bad for the mind as for the body.
+ - To be a fool at the right time is also an art.
+ - But the quiet grows and grows. Beautifully and unbearably.
+ - In spiritual matters, knowledge is dependent upon being; as we are, so we know.
+ - If we must play the theological game, let us never forget that it is a game. Religion, it seems to me, can survive only as a consciously accepted system of make-believe.
+ - At their first appearance innovators have always been derided as fools and mad men.
+ - Nothing is more dreadful than a cold, unimpassioned indulgence. And love infallibly becomes cold and unimpassioned when it is too lightly made.
+ - Specialized meaninglessness has come to be regarded, in certain circles, as a kind of hallmark of true science.
+ - Deprived of their newspapers or a novel, reading-addicts will fall back onto cookery books, on the literature which is wrapped around bottles of patent medicine, on those instructions for keeping the contents crisp which are printed on the outside of boxes of breakfast cereals. On anything.
+ - The vast majority of human beings are not interested in reason or satisfied with what it teaches.
+ - Since Mozart’s day composers have learned the art of making music throatily and palpitatingly sexual.
+ - Man approaches the unattainable truth through a succession of errors.
+ - The nature of power is such that even those who have not sought it, but have had it forced upon them, tend to acquire a taste for more.
+ - I think we have to prepare the mind in one way or another to accept the great uprush or downrush, whichever you like to call it, of the greater non-self.
+ - By comparison with a night-club, churches are positively gay.
+ - Amour is the one human activity of any importance in which laughter and pleasure preponderate, if ever so slightly, over misery and pain.
+ - What we feel and think and are is to a great extent determined by the state of our ductless glands and viscera.
+ - Most kings and priests have been despotic, and all religions have been riddled with superstition.
+
+470 quotes

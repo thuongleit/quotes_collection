@@ -1,0 +1,22 @@
+ - When we lose the right to be different, we lose the privilege to be free.
+ - I believe in work, hard work, and long hours of work. Men do not breakdown from overwork, but from worry and dissipation.
+ - The peril of this Nation is not in any foreign foe! We, the people, are its power, its peril, and its hope.
+ - The first lesson in civics is that efficient government begins at home.
+ - While democracy must have its organizations and controls, its vital breath is individual liberty.
+ - Selfishness and demagoguery take advantage of liberty. The selfish hand constantly seeks to control government, and every increase of governmental power, even to meet just needs, furnishes opportunity for abuse and stimulates the effort to bend it to improper uses.
+ - War should be made a crime, and those who instigate it should be punished as criminals.
+ - Each man begins with his own world to conquer, and his education is the measure of his conquest.
+ - The United States is the greatest law factory the world has ever known.
+ - The Supreme Court and the Court of Appeal will take care of themselves. Look after the courts of the poor, who stand most in need of justice. The security of the republic will be found in the treatment of the poor and the ignorant. In indifference to their misery and helplessness lies disaster.
+ - Dissents are appeals to the brooding spirit of the law, to the intelligence of another day.
+ - The liberty of the press is not confined to newspapers and periodicals. It necessarily embraces pamphlets and leaflets. These indeed have been historic weapons in the defense of liberty, as the pamphlets of Thomas Paine and others in our history abundantly attest.
+ - We are under a Constitution, but the Constitution is what the judges say it is, and the judiciary is the safeguard of our property and our liberty and our property under the Constitution.
+ - The Constitution is what the judges say it is.
+ - In a number of cases dissenting opinions have in time become the law.
+ - A man has to live with himself, and he should see to it that he always has good company.
+ - The power to wage war is the power to wage war successfully.
+ - Publicity is a great purifier because it sets in action the forces of public opinion, and in this country public opinion controls the courses of the nation.
+ - It is the essence of the institutions of liberty that it be recognized that guilt is personal and cannot be attributed to the holding of opinions or to mere intent in the absence of overt acts.
+ - When we deal with questions relating to principles of law and their applications, we do not suddenly rise into a stratosphere of icy certainty.
+
+20 quotes

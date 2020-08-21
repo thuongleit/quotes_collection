@@ -1,0 +1,107 @@
+ - People often say that humans have always eaten animals, as if this is a justification for continuing the practice. According to this logic, we should not try to prevent people from murdering other people, since this has also been done since the earliest of times.
+ - Our knowledge is a little island in a great ocean of nonknowledge.
+ - I did not become a vegetarian for my health, I did it for the health of the chickens.
+ - Life is God’s novel. Let him write it.
+ - We must believe in free will, we have no choice.
+ - Literature is the memory of humanity.
+ - As long as people will shed the blood of innocent creatures there can be no peace, no liberty, no harmony between people. Slaughter and justice cannot dwell together.
+ - Doubt is part of all religion. All the religious thinkers were doubters.
+ - Night is a time of rigor, but also of mercy. There are truths which one can see only when it’s dark.
+ - As often as Herman had witnessed the slaughter of animals and fish, he always had the same thought: in their behavior toward creatures, all men were Nazis.
+ - What a strange power there is in clothing.
+ - We all play chess with Fate as partner. He makes a move, we make a move. He tries to checkmate us in three moves, we try to prevent it. We know we can’t win, but we’re driven to give him a good fight.
+ - A good writer is basically a story teller, not a scholar or a redeemer of mankind.
+ - When you betray somebody else, you also betray yourself.
+ - Two important things are to have a genuine interest in people and to be kind to them. Kindness, I’ve discovered, is everything.
+ - There will never be any peace in the world as long as we eat animals.
+ - Whenever I’m in trouble, I pray. And because I’m in trouble all of the time, I pray almost constantly.
+ - The waste basket is the writer’s best friend.
+ - The Jewish people have been in exile for 2,000 years; they have lived in hundreds of countries, spoken hundreds of languages and still they kept their old language, Hebrew. They kept their Aramaic, later their Yiddish; they kept their books; they kept their faith.
+ - When a writer tries to explain too much, he’s out of time before he begins.
+ - There is a permanent amnesia planted in us, which just as we keep forgetting our dreams, we sometimes keep on forgetting our reality.
+ - Sometimes you have the feeling that some little imp is standing behind you and dictating to you, but he gives it to you slowly, drop by drop.
+ - While facts never become obsolete or stale, commentaries always do.
+ - The more you see what other people do, the more you learn about yourself.
+ - Children read books, not reviews. They don’t give a hoot about critics.
+ - To me the Yiddish language and the conduct of those who spoke it are identical.
+ - Heaven and earth conspire that everything which has been, be rooted and reduced to dust. Only the dreamers, who dream while awake, call back the shadows of the past and braid nets from the unspun thread.
+ - We are all God’s creatures-that we pray to God for mercy and justice while we continue to eat the flesh of animals that are slaughtered on our account is not consistent.
+ - If you keep saying things are going to be bad, you have a good chance of being a prophet.
+ - The sexual organs are the most sensitive organs of the human being. They are not diplomats. They tell the truth.
+ - Every creator painfully experiences the chasm between his inner vision and its ultimate expression. The chasm is never completely bridged. We all have the conviction, perhaps illusory, that we have much more to say than appears on the paper.
+ - It is written, better to be a fool all your days than for one hour to be evil. You are not a fool. They are the fools. For he who causes his neighbor to feel shame loses Paradise himself.
+ - One can find in the Yiddish tongue and in the Yiddish spirit expressions of pious joy, lust for life, longing for the Messiah, patience and deep appreciation of human individuality.
+ - The very essence of literature is the war between emotion and intellect, between life and death. When literature becomes too intellectual – when it begins to ignore the passions, the emotions – it becomes sterile, silly, and actually without substance.
+ - Kindness, I’ve discovered, is everything in life.
+ - If Moses had been paid newspaper rates for the Ten Commandments, he might have written the Two Thousand Commandments.
+ - Slaughter and justice cannot dwell together.
+ - When a day passes, it is no longer there. What remains of it? Nothing more than a story. If stories weren’t told or books weren’t written, man would live like the beasts, only for the day.
+ - In their behavior toward creatures, all men are Nazis. Human beings see oppression vividly when they’re the victims. Otherwise they victimize blindly and without a thought.
+ - The greatness of art is not to find what is common but what is unique.
+ - When I was a little boy, they called me a liar, but now that I am grown up, they call me a writer.
+ - Sometimes love is stronger than a man’s convictions.
+ - What nature delivers to us is never stale. Because what nature creates has eternity in it.
+ - Even in the worm that crawls in the earth there glows a divine spark. When you slaughter a creature, you slaughter God.
+ - Those who run around with women don’t walk tightropes. They find it hard enough to crawl on the ground.
+ - A story to me means a plot where there is some surprise. Because that is how life is – full of surprises.
+ - They still believe in God, the family, angels, witches, goblins, logic, clarity, punctuation, and other obsolete stuff.
+ - In our time, when the literature for adults is deteriorating, good books for children are the only hope, the only refuge.
+ - No matter how much you know a human being, you don’t know him enough.
+ - When we’re trying to decide whether a leader is a good leader or a bad one, the question to ask is: ‘Is he with the Ten Commandments or is he against them?’ Then you can determine if the leader is a true messiah or another Stalin.
+ - What happened was no accident. Everything was preordained. True, the will was free, but heaven also made its ordinances.
+ - The Yiddish mentality is not haughty. It does not take victory for granted. It does not demand and command but it muddles through, sneaks by, smuggles itself amidst the powers of destruction, knowing somewhere that God’s plan for Creation is still at the very beginning.
+ - How can we speak of right and justice if we take an innocent creature and shed its blood? How can we pray to God for mercy if we ourselves have no mercy? Nobel laureate in literature.
+ - Each soul must accomplish its task, or it would not have been sent here.
+ - The analysis of character is the highest human entertainment.
+ - I know as a writer how valuable a tool is the wastebasket. Perhaps God throws away many experiments before He finds the right expression. Perhaps we are the discards – or we could be the part He keeps. This mystery is what keeps us all going, to see what happens in the next chapter.
+ - If we have people with the power to tell a story, there will always be readers.
+ - The genuine writer cannot ignore the fact that the family is losing its spiritual foundation.
+ - No doubt the world is entirely an imaginary world, but it is only once removed from the true world.
+ - It seems that the analysis of character is the highest human entertainment. And literature does it, unlike gossip, without mentioning names.
+ - From borrowing one gets poorer and from work one gets richer.
+ - The soul never dies and the body is never really alive.
+ - I believe in God but people are liars. It’s those people who say they are appointed by God who I don’t believe in.
+ - Shoulders are from God and burdens too.
+ - When the time comes I will go joyfully. Whatever may be there, it will be real, without complication, without ridicule, without deception.
+ - What’s the good of not believing? Today it’s your wife you don’t believe; tomorrow it’s God Himself you won’t take stock in.
+ - There is no death. How can there be death if everything is part of the Godhead? The soul never dies and the body is never really alive.
+ - God is a writer and we are both the heroes and the readers.
+ - In God’s mill even chaff becomes flour.
+ - Literature has neglected the old and their emotions. The novelists never told us that in love, as in other matters, the young are just beginners and that the art of loving matures with age and experience.
+ - For those who are willing to make an effort, great miracles and wonderful treasures are in store.
+ - Writing has power, but its power has no vector. Writers can stir the mind, but they can’t direct it. Time changes things, God changes things, the dictators change things, but writers can’t change anything.
+ - There will be no justice as long as man will stand with a knife or with a gun and destroy those who are weaker than he is.
+ - The pessimism of the creative person is not decadence but a mighty passion for the redemption of man.
+ - When a human being kills an animal for food, he is neglecting his own hunger for justice.
+ - In the history of old Jewish literature there was never any basic difference between the poet and the prophet. Our ancient poetry often became law and a way of life.
+ - I am thankful, of course, for the prize and thankful to God for each story, each idea, each word, each day.
+ - In many ways, astrology, numerology and palmistry are corruptions of the occult because they have attempted to make a practice out of something that is essentially imaginative.
+ - Originality is not seen in single words or even in sentences. Originality is the sum total of a man’s thinking or his writing.
+ - As much as I can give of myself I give of myself. There’s no reason why not. And when I have to hide something, I let the character speak.
+ - All is foreseen but the choice is given.
+ - Every creator painfully experiences the chasm between his inner vision and its ultimate expression.
+ - One has to trust that God knows how to manage the world.
+ - In the half darkness I winked to my other self, my mad dictator, and congratulated him on his droll victory. I closed my eyes and felt the warmth flowing from Shosha’s head to my face. What did I have to lose? Nothing more than what everyone loses anyway.
+ - Whatever doesn’t really happen is dreamed at night. It happens to one if it doesn’t happen to another, tomorrow if not today, or a century hence if not next year.
+ - It is a general rule that when the grain of truth cannot be found, men will swallow great helpings of falsehood.
+ - There is a plan to this universe. There is a high intelligence, maybe even a purpose, but it’s given to us on the installment plan.
+ - There is great treasure there behind our skull and this is true about all of us. This little treasure has great, great powers, and I would say we only have learnt a very, very small part of what it can do.
+ - Actually, the true story of a person’s life can never be written. It is beyond the power of literature. The full tale of any life would be both utterly boring and utterly unbelievable.
+ - I am not ashamed to admit that I belong to those who fantasize that literature is capable of bringing new horizons and new perspectives – philosophical, religious, aesthetical and even social.
+ - Man is a disgusting thing. If you beat him he starts to scream, but if it is the other one who is beaten, then he constructs a theory.
+ - The second half of the twentieth century is a complete flop.
+ - There must be a way for man to attain all possible pleasures, all the powers and knowledge that nature can grant him, and still serve God – a God who speaks in deeds, not in words, and whose vocabulary is the Cosmos.
+ - Some of my cronies call me a pessimist and a decadent, but there is always a background of faith behind resignation.
+ - When literature becomes overly erudite, it means that interest in the art has gone and curiosity about the artist is what’s important. It becomes a kind of idolatry.
+ - The New England conscience doesn’t keep you from doing what you shouldn’t – it just keeps you from enjoying it.
+ - We know what a person thinks not when he tells us what he thinks, but by his actions.
+ - We write not only for children but also for their parents. They, too, are serious children.
+ - It is a fact that the classics of Yiddish literature are also the classics of the modern Hebrew literature.
+ - The characters have their own lives and their own logic, and you have to act accordingly.
+ - I get up every morning with a desire to do some creative work. This desire is made of the same stuff as the sexual desire, the desire to make money, or any other desire.
+ - God gave us so many emotions, and so many strong ones. Every human being, even if he is an idiot, is a millionaire in emotions.
+ - A Marxist has never written a good novel.
+ - The ghetto was not only a place of refuge for a persecuted minority but a great experiment in peace, in self-discipline and in humanism. As such it still exists and refuses to give up in spite of all the brutality that surrounds it. I was brought up among those people.
+ - All that God does is for the good.
+
+105 quotes

@@ -1,0 +1,31 @@
+ - If you really want it, you need to really work for it.
+ - Music is my way of getting away from everything. It means a lot to me.
+ - I like to smile when its natural. I’m not mad or anything. That’s my style.
+ - I want to keep everyone happy but at the same time I also have to be confident with what I’m putting out and be secure with it.
+ - I’ve always wanted to like, swim in a swimming pool filled with peanut butter.
+ - I get insecure about a lot of things. In my line of work, unfortunately, your appearance is important, and I’m always like, ‘Am I going to the gym enough this month? Have I been taking care of myself?’ I get insecure about things from time to time.
+ - I have a hard time waking up. No alarm clock works! It sounds childish, but I seriously have my manager, my mom or a buddy of mine wake me up if I have to be somewhere. It’s a serious issue! I’ve been very late for some serious gigs because of it!
+ - I’d love to direct, I’d love to produce. I’d love to learn all about it, and being around it all the time certainly helps.
+ - All I watch is the Food Network. I took a cheese making class a few weeks ago, and I told my family and friends to only get me kitchen stuff on my birthday. I’m into every kind of cookbook and anything by Anthony Bourdain. I’d love to own a restaurant if I could find the right chef.
+ - I used to have six left feet. Now I only have one and a half left feet.
+ - My mother was not the cook in the family. My dad was. I’d watch him behind the grill, and I said, ‘If I ever make it and have enough money, I’m going to make sure I dine in the best restaurants.’
+ - I’ve always wanted to play a soldier and I’d never taken on a character where I’m the happy-go-lucky protagonist. I’ve played a lot of jerks recently.
+ - I’m a Giants fan through and through. I am crazy about Eli Manning. I’m all about the Giants.
+ - I used to watch every episode of ‘Justice League,’ I went to all the movies, I had the Superman lunchbox. I was enamored with animation in general and always wanted to somehow be a part of it.
+ - The first record I ever listened to was Elvis Presley, and I remember thinking, ‘Man this guy is cool!’ The swagger he had really helped my confidence, because he really made me think that a white boy could make music like this.
+ - My biggest hero when I was a kid was Will Smith. I used to watch ‘Fresh Prince,’ and I was a huge fan of his albums. I bought all of his albums when I was a kid. Now, he is the biggest movie star in the world.
+ - Kids are pretty brutal.
+ - Whenever I have time, I try to get in the studio and write, whether it’s for me or other artists or my catalog of music. It’s definitely one of my favorite parts of the music industry.
+ - I think it is important to grow. Your fans are growing up with you whether you like it or not. You have to keep it fresh and exciting for them. You have to bring something new to the table each time.
+ - Bono is my inspiration – not only as a rock star but as a humanitarian. We aren’t just put on this earth to sell records. Maybe it’s because of my upbringing, but I do consider myself a moral guy.
+ - I’m in the gym pretty much every day. I’ve been very strict about my diet during shooting. It all helps me bring as much authenticity to the role as I can.
+ - I still bite my nails.
+ - With any character, the main objective is to bring authenticity to the role.
+ - I went to a public high school that had a very small graduating class of 156 students. I lived a relatively normal childhood until I turned probably around 16. Things started to take off career-wise.
+ - Giants versus Jets Super Bowl. I’m telling you, that’s all I want to see.
+ - I try to keep that quiet unless it is asked but yeah, I have a girlfriend and she is a great girl.
+ - I went to school every day, like everyone else, and I played baseball for my high school team. I was a part of a lot of different activities outside of school.
+ - Anybody who has a career is going to have to deal with a rumor in their time, or something that usually isn’t true. I have a great team behind me and a family that supports me. I just care too much about my career. I have been working too long to let it slip away for something stupid.
+ - I definitely caught a lot of backlash in my situation, not just from students but also from faculty, which was unfortunate, given that I was spending a lot of my time outside school working on a career, which a lot of people didn’t really agree with.
+
+29 quotes

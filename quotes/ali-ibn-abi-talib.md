@@ -1,0 +1,131 @@
+ - The best revenge is to improve yourself.
+ - Never explain yourself to anyone, because the one who likes you would not need it, and the one dislikes you wouldn’t believe it.
+ - Silence is the best reply to a fool.
+ - Be like a flower that gives its fragrance even to the hand that crushed it.
+ - Do not let your difficulties fill you with anxiety, after all it is only in the darkest nights that stars shine more brightly.
+ - Body is purified by water. Ego by tears. Intellect is purified by knowledge. And soul is purified with love.
+ - A hopeless man sees difficulties in every chance, but a hopeful person sees chances in every difficulty.
+ - People are of two types, they are either your brothers in faith or your equals in humanity.
+ - Beautiful people are not always good, but good people are always beautiful.
+ - Do not feel lonely on the road of righteousness Because of the fewness of the walkers on it.
+ - The one who has no control over his desires has no control over his mind.
+ - The word of God is the medicine of the heart.
+ - The wiser a man is, the less talkative will he be.
+ - Hide the good you do, and make known the good done to you.
+ - He who trusts the world, the world betrays him.
+ - A moment of patience in a moment of anger prevents a thousand moments of regret.
+ - Greed is permanent slavery.
+ - The vision of the eye is limited; the vision of the heart transcends all barriers of time and space.
+ - Don’t engage your heart in grief over the past or you wont be ready for what is coming.
+ - The disease of the heart is worse than the disease of the body.
+ - I will be patient till even patience tires of my patience.
+ - Your souls are precious and can only be equal to the price of Paradise, therefore sell them only at that price.
+ - Do not take someone’s silence as his pride, perhaps he is busy fighting with his self.
+ - When proven wrong, the wise man will correct himself and the ignorant will keep arguing.
+ - No wealth like education and no poverty like ignorance.
+ - Nothing hurts a good soul and kind heart more than to live amongst people who can’t understand it.
+ - Authority, power, and wealth do not change a man; they only reveal him.
+ - Do not use the sharpness of your speech on your mother who taught you how to speak.
+ - Fear only the will of God and you will have no cause to fear anyone else.
+ - Do for this life as if you live forever, do for the afterlife as if you will die tomorrow.
+ - He who understands humanity seeks solitude.
+ - Recitation of the Qur’an without contemplation and thought is futile.
+ - Courtesy costs nothing, but buys everything.
+ - The worst of our faults is our interest in other people’s faults.
+ - The sin which makes you sad and repentant is more liked by Allah than the good deed which turns you arrogant.
+ - The days of life pass away like clouds, so do good while you are alive.
+ - A wise man first thinks and then speaks and a fool speaks first and then thinks.
+ - To fight against one’s desires is the greatest of all fights.
+ - The highest person is he who is of most use to humankind.
+ - Patience is of two kinds: patience over what pains you, and patience against what you covet.
+ - Fear the sins that you commit in secret, because the Witness of those sins is the Judge Himself!
+ - Asceticism is not that you should not own anything, but that nothing should own you.
+ - Stubbornness destroys good advice.
+ - Surely silence can sometimes be the most eloquent reply.
+ - It is better to listen to a wise enemy than to seek counsel from a foolish friend.
+ - Not every man with a heart is understanding, nor every man with an ear a listener, and nor every man with eyes able to see.
+ - An alert and learned man will take advice from any event.
+ - Always consider your intellect to be lacking; otherwise too much faith in it surely leads to error.
+ - True friends are a single soul divided between different bodies.
+ - Safety lies in silence. It is easier to rectify what you miss by silence, than to secure what you lose by speaking.
+ - Understanding the knowledge and wisdom of the Qur’an is by far, higher than memorizing.
+ - Vanity prevents improvement.
+ - Like your body your mind also gets tired so refresh it by wise sayings.
+ - Man comes from a drop of semen and leaves as a piece of dust. He doesn’t know when he came and he doesn’t know when he’s leaving, yet he walks on the earth thinking he knows everything.
+ - Happiness comes towards those which believe in him.
+ - There is no greater wealth than wisdom, no greater poverty than ignorance; no greater heritage than culture and no greater support than consultation.
+ - A man’s worth depends upon the nobility of his aspirations.
+ - There is no capital more useful than intellect and wisdom, and there is no indigence more injurious than ignorance and unawareness.
+ - There are three signs of a knowledgeable person: knowledge, forbearance and silence.
+ - Do not be too hard, lest you be broken; do not be too soft, lest you be squeezed.
+ - Two things cause people to be destroyed: fear of poverty and seeking superiority through pride.
+ - Allah’s Generosity is connected to gratitude, and gratitude is linked to increase in His generosity. The generosity of Allah will not stop increasing unless the gratitude of the servant ceases.
+ - Of all the follies the greatest is to love the world.
+ - Poverty is the worst form of death.
+ - Contentment is a wealth that is never exhausted.
+ - Lead such a life, that, when you die, the people may mourn you, and while you are alive they long for your company.
+ - Know thyself, and thou shalt know God.
+ - The most helpless person is the one who is helpless in reforming himself.
+ - How many lessons there are and how little they are taken.
+ - The relation of patience to iman is like the relation of the head to the body. If the head is chopped off, the body becomes useless. Then he raised his voice and said: Certainly, the one who has no patience has no iman, and patience is like a riding-beast that nevers gets tired.
+ - To make one good action succeed another, is the perfection of goodness.
+ - There is no rest for the person who has envy, and there is no love for the person who has bad manners.
+ - Riches without faith are the greatest poverty.
+ - Associating with the wise and the knowledgeable people adds to the prestige of a person.
+ - To whatever extent a person’s knowledge increases, his attention will be turned more towards his soul.
+ - Bear sorrows and calamities patiently, otherwise you will never be happy.
+ - The outcome of fear is disappointment and shyness is frustration.
+ - He who is greedy is disgraced; he who discloses his hardship will always be humiliated; he who has no control over his tongue will often have to face discomfort.
+ - Wealth tends to create enemies, whereas knowledge tends to warm hearts.
+ - He who busies himself with things other than improvement of his own self becomes perplexed in darkness and entangled in ruin. His evil spirits immerse him deep in vices and make his bad actions seem handsome.
+ - Let me alone, and go in search of someone else.
+ - There is no knowledge and science like pondering and thought; and there is no prosperity and advancement like knowledge and science.
+ - Blessed is he whose own faults keep him from seeing the faults of others.
+ - Oh writer! An Angel watches over all you write. Make your writing meaningful for it will eventually return to you and you will be questioned about what you wrote.
+ - To maintain nice relation with the people is half of intelligence, nice questioning is half of knowledge, and nice domestic arrangements is half of the management of livelihood.
+ - Patience to faith is like the head to the body. The person who has no patience has not faith.
+ - There is no nobility with bad manners.
+ - He who guards his secrets retains control in his own hands.
+ - Do not be like those on whom advice has no effect and who require punishment to correct themselves.
+ - Many a spoken word is more piercing than an attack.
+ - A calamity does not descend except due to a sin and it is not lifted except with repentance.
+ - Either you are just or unjust. If you are just, then you will not keep aloof from the people, but will listen to them and meet their requirements. But if you are unjust, the people themselves will keep away from you.
+ - A man’s behavior is the index of the man, and his discourse is the index of his understanding.
+ - During civil disturbance adopt such an attitude that people do not attach any importance to you – they neither burden you with complicated affairs, nor try to derive any advantage out of you.
+ - Do not share the knowledge with which you have been blessed with everyone in general, as you do with some people in particular; and know that there are some men in whom Allah, may He he glorified, has placed hidden secrets, which they are forbidden to reveal.
+ - Do not be misled by appearances for these are apt to be deceptive.
+ - The best companion and helper is admirable morals.
+ - The one from among the Muslims who recites the Qur’an but in the end finds his way to hell, is considerd to be among those that have taken the word of Allah in jest.
+ - One who rushes madly after inordinate desire, runs the risk of encountering destruction and death.
+ - Be afraid of a dignified man when he is hungry and a wicked man when his belly is full.
+ - Never make a decision in anger and never make a promise in happiness.
+ - A True friend is one who sees a fault, gives you advice and who defends you in your absence.
+ - The nourishment of body is food, while the nourishment of the soul is feeding others.
+ - The world is darkness; knowledge is light; but knowledge without truth is a mere shadow.
+ - The best deed of a great man is to forgive and forget.
+ - A friend cannot be considered a friend until he is tested in three occasions: in timeof need, behind your back, and after your death.
+ - Everyone who is taken by death asks for more time, while everyone who still has time makes excuses for procrastination.
+ - Do not hate what you do not know, for the greater part of knowledge consists of what you do not know.
+ - Loving one another is half of wisdom.
+ - Knowledge is of two kinds: that which is absorbed and that which is heard. And that which is heard does not profit if it is not absorbed.
+ - If you are greeted then return the greetings more warmly. If you are favored, then repay the obligation manifold; but he who takes the initiative will always excel in merit.
+ - Thy lot or portion of life is seeking after thee; therefore be at rest from seeking after it.
+ - O World, try to deceive someone else. Are you trying to tempt me or attract me? No way! I divorce you irrevocably. Your time is short and you are insignificant. Alas! The provision is little, the journey is long and the way is lonely.
+ - People’s hearts are like wild animals. They attach their selves to those that love and train them.
+ - Perfecting one’s intellect causes one to speak less, and those words spoken will be adorned with wisdom.
+ - Often your utterances and expressions of your face leak out the secrets of your hidden thoughts.
+ - A girl is a good deed and a boy is a bounty. Good deeds are rewarded while people are held accountable for bounties.
+ - Abstinence from sins is better than seeking help afterwards.
+ - Dislike in yourself what you dislike in others.
+ - The weakest man is the one who is able to correct his moral defects, but doesn’t take action.
+ - There are so many highly esteemed ones who became miserable and humiliated just because of their bad temper and morals; and humble people who have attained eminence and the highest honors because of good temper and morals.
+ - When wisdom reaches the acme of perfection, it will suppress the vicious instincts and injurious desires.
+ - A man is hid under his tongue.
+ - One who is mild rather than forceful has greater capacity for outreach.
+ - One who thinks and reflects develops his foresight and vision.
+ - No one has ever suffered from his people as I have.
+ - Reciter and listener of the Qur’an are alike in prize and reward.
+ - I wonder at a man who loses hope of salvation when the door of repentance is open for him.
+ - I was not created to be occupied by eating delicious foods like tied up cattle.
+
+129 quotes

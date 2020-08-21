@@ -1,0 +1,31 @@
+ - My best source of grounding are animals and nature. Animals live more in the moment and don’t worry so much! And nature is proof of a greater power than myself. Both put things in perspective, or at least gently move us forward.
+ - I really don’t want to hurt others for my benefit.
+ - That evidence of the spirit of life is what makes me get out of bed in the morning.
+ - When I turn on my central air conditioner, I feel like, “Wow, I really have come a long way.” Or buying the super expensive organic raw food for my dogs, and I remember when I had to buy the cheapest big bag of kibble. So I think for me it’s often in terms of comfort.
+ - I’ve heard stories about me as a kid. My dad got me a T-shirt that said “here comes trouble,” and when I ask my mom what I was like, she just sighs with this weary tone and says, “Oh, you were really busy.”
+ - I am no longer able to be anonymous.
+ - I can watch endless humans get killed, but if I see a movie and they kill a dog, I practically want to walk out.
+ - I went to school for fine art. I’m a decent housepainter, but I’m a really good fine art painter.
+ - I will never be ok with the suffering of others – that I will likely continue to fight so I must treat it as a marathon race not a sprint.
+ - As an actor, I look at first what I can borrow from what I really feel.
+ - I have discovered that I cannot ignore the infliction of suffering – especially for my convenience or pleasure! It’s as if a puppy is being kicked in front of me. I must try to do something.
+ - If you wear clothing, and put out trash you are using up resources that others also need BUT I can pay attention and I can do better. That I know for sure about me, my soul needs to try or I can’t lay my head down on my pillow at night and even hope to sleep.
+ - The loss of free will I find unacceptable – what most of us refer to as rights.
+ - I’ve been married for four years, and I’m still finding out things about my husband.
+ - The one thing I’ve come to figure out is this equation where the more uncomfortable I am, the better I’m going to look. I’m like, “This one really hurts. I must look awesome!” The corsets are uncomfortable, but they are so flattering. No, my waist will never be that small.
+ - Art and the triumph of the human spirit – the two combined thrill me.
+ - I’ve had my share, less than so many though, but enough to feel empathy. It’s tough and I see it so much on Earth, too much suffering. The loss of free will I find unacceptable – what most of us refer to as rights.
+ - What I would hope to do is painting, because I don’t think I’m qualified for anything else. My last job would be babysitting, so I don’t think Starbucks would even hire me.
+ - To hear that you’re doing something that other people are enjoying, it’s a fun game. It’s like hitting a tennis ball over the net, and somebody hits it back. That’s what it feels like with the fans. It feels like someone else is participating in my creation, and it’s quite incredible.
+ - As an actor, you can’t play big, huge things. But, what you can play is love for your father and caring for your daughter and being afraid, and having to dig deep and find out what you’re made of. All of those things have been incredibly fun to play.
+ - My acting teacher used to say that people reveal themselves in their opposites.
+ - I have more things going on right now than I can actually do without the invention of a cloning device. It is great!
+ - I have to remember to not criticize other networks for other shows when I’m doing interviews because some day I’m going to be going to them, looking for a job, I’m assuming.
+ - One of my main techniques for acting is I try to know almost nothing beyond the words that I have to say, because that’s my zone of control.
+ - Anytime you walk onto a stage or something where there’s lots of people staring at you, you need to have something inspiring inside your head. Bolstering.
+ - I tend to worry about each “emergency” or unforeseen complication on all my projects. But there are so many! All of life is unforeseen! So I am learning that is the cycle of life – everything is cyclical and temporary and to get ok with that someday could be my greatest achievement.
+ - I’m getting the jobs that are a gift, and also the jobs that I do because I just love them. That’s ideal, for anybody. I get to enjoy the day that I go to work. I actually enjoy every minute of the day.
+ - People can do all kinds of things that maybe aren’t wise in hindsight because of jealousy.
+ - I was a maid, so cleaning toilets wasn’t my favorite thing, but honestly, standing outside all day in the cold was worse.
+
+29 quotes

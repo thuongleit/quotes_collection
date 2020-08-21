@@ -1,0 +1,21 @@
+ - That brain of mine is something more than merely mortal; as time will show.
+ - The more I study, the more insatiable do I feel my genius for it to be.
+ - If you can’t give me poetry, can’t you give me poetical science?
+ - Understand well as I may, my comprehension can only be an infinitesimal fraction of all I want to understand.
+ - The intellectual, the moral, the religious seem to me all naturally bound up and interlinked together in one great and harmonious whole.
+ - The Analytical Engine, on the contrary, can either add, subtract, multiply or divide with equal facility; and performs each of these four operations in a direct manner, without the aid of any of the other three.
+ - Thus not only the mental and the material, but the theoretical and the practical in the mathematical world, are brought into more intimate and effective connection with each other.
+ - A new, a vast, and a powerful language is developed for the future use of analysis, in which to wield its truths so that these may become of more speedy and accurate practical application for the purposes of mankind than the means hitherto in our possession have rendered possible.
+ - In abstract mathematics, of course operations alter those particular relations which are involved in the considerations of number and space, and the results of operations are those peculiar results which correspond to the nature of the subjects of operation.
+ - The Analytical Engine is an embodying of the science of operations, constructed with peculiar reference to abstract number as the subject of those operations.
+ - One essential object is to choose that arrangement which shall tend to reduce to a minimum the time necessary for completing the calculation.
+ - In enabling mechanism to combine together general symbols in successions of unlimited variety and extent, a uniting link is established between the operations of matter and the abstract mental processes of the most abstract branch of mathematical science.
+ - But the science of operations, as derived from mathematics more especially, is a science of itself, and has its own abstract truth and value; just as logic has its own peculiar truth and value, independently of the subjects to which we may apply its reasonings and processes.
+ - It may be desirable to explain, that by the word operation, we mean any process which alters the mutual relation of two or more things, be this relation of what kind it may. This is the most general definition, and would include all subjects in the universe.
+ - The object of the engine is in fact to give the utmost practical efficiency to the resources of numerical interpretations of the higher science of analysis, while it uses the processes and combinations of this latter.
+ - This one fact implies everything; and it is scarcely necessary to point out, for instance, that while the Difference Engine can merely tabulate, and is incapable of developing, the Analytical Engine can either tabulate or develope.
+ - It is however pretty evident, on general principles, that in devising for mathematical truths a new form in which to record and throw themselves out for actual use, views are likely to be induced, which should again react on the more theoretical phase of the subject.
+ - One main reason why the separate nature of the science of operations has been little felt, and in general little dwelt on, is the shifting meaning of many of the symbols used in mathematical notation. First, the symbols of operation are frequently also the symbols of the results of operations.
+ - We cannot forbear suggesting one practical result which it appears to us must be greatly facilitated by the independent manner in which the engine orders and combines its operations: we allude to the attainment of those combinations into which imaginary quantities enter.
+
+19 quotes

@@ -1,0 +1,44 @@
+ - Today is a new day. Even if you were wrong yesterday, you can get it right today.
+ - I love wearing suits. I love being suited and booted. When I’m chilling, I also like to look nice.
+ - My purpose in life, my goal for the NBA is to preach God’s word – not just try to beat everybody over the head with a Bible but just being a good example and always conducting myself in a Christian-like manner.
+ - The biggest thing is always being around people that are going to lift you up and not bring you down. That’s why I prayed for God to send me some good friends. He’s done that. I don’t really have a lot of friends, but the friends I do have are great.
+ - I’m really thankful to be alive. If you get to know me, I’m a person that’s always smiling and always joyful and I’ve been that way since I was born because of the struggles I went through. I was supposed to be number eight that died so I’m always thankful.
+ - I’m trying to earn everything given to me. I play hard and I want guys to remember that when they play the Magic they have to face Dwight Howard. And when you face him you have to get after it.
+ - God says, Turn the other cheek. So there’s no way I could play in a man’s game.
+ - Always look at what your goal is. Understand that there are going to be days when you feel like crap. There are going to be days where you feel like “I don’t want to do this” but you’ve got to understand what you’re doing it for.
+ - I’m not a nest-egg person.
+ - Sugar can cause fatigue and it can also build up on your joints. It can lead to those injuries where you’ve got nagging pain on those joints.
+ - Growing up, I played about every sport imaginable except soccer and hockey. I’ve always had a passion for basketball. I remember actually playing basketball when I was two or three years old. The time I knew that I could really take my game to the next level.
+ - The hardest thing to do is to trust people.
+ - But at the end of the day, every star, every person that been iconic, has gone through a time in their lives where it was just bad. Everybody. It just made them better.
+ - The hardest thing to do is to trust people. Even if you know them from way back when, it’s hard to trust people. There’s a lot we have to deal with, and it’s the price of fame.
+ - That’s my job, to motivate people. I can do more, show people more things. That’s really why I play basketball. That’s my whole purpose of playing basketball.
+ - I had a lot of negativity growing up, so I understand how to block the negativity out.
+ - When I’m anywhere, I’m going to show God that I’m thankful just for life. I’m living out my dream. This is what I want to do.
+ - Are you gonna be tough, or are you going to be tough?
+ - I would never, ever desert my child. A lot of my friends didn’t have fathers growing up, and they were very upset that their fathers weren’t around. I was lucky to have mine around.
+ - A lot of times when I’m in the gym, I might not have that energy but I realize what I’m doing it for and it gives me the strength to do one more extra rep, to do one more set or to push even harder, and to not let whatever obstacle is in front of me stop me from reaching my goal.
+ - My team in Orlando was a team full of people who nobody wanted, and I was the leader and I led that team with a smile on my face.
+ - I do a lot of exercises where I’m so tired that I’m not supposed to do the last rep. What that does is it teaches me that no matter how far I am, how hard I’ve fallen, I’m never out of the fight. I just take that with me every time I’m in the weight room.
+ - Coming out of high school, I think it was good for me instead of going to college because college and the NBA are two different things. You can dominate on the college level, but the NBA is a whole different story. The dudes that do the best are the ones who work hard.
+ - People say you don’t need a father to be successful. I take offense to that.
+ - I work extremely hard in the weight room, and also on the court to get better and make sure I keep my body in shape.
+ - I’ve been on the side where you have nothing, and now I’m on the side where anything I want is there for me. When I didn’t have the means to do whatever I wanted to do, I still had peace.
+ - I’ve always played ‘NBA Live’ since I was a kid, so to be on the cover is a blessing.
+ - I didn’t try to cry my way out of Orlando. That was never my intention, or not what I did at all. And I understand everybody thought it was that way because of what was being put out there.
+ - You always have to keep up with the trends. The biggest thing is making your own trend and making your own stamp in the fashion industry. Whatever is going to be your style, make that your style and go from there.
+ - The NBA is not for everybody. And looking from the outside in like I did last year, it seems so easy from just watching, but on the court it is a whole different level.
+ - The toughest part for me is the city – the people. They’ve got burgers named after me in Orlando, they’ve got a Web site saying, “Please stay.” I love the people in the city. I’ve literally sat on the bench with a towel on my head crying, because I feel the passion in the stands.
+ - Nobody thought that I was going to make it to the NBA. I only had a couple of believers growing up.
+ - Rolexes never lose value, so I started getting a couple of them. I like them. Not only do they look good but they work very well.
+ - It was more of me rushing my shots than anything. Thats the biggest thing for me. I was making good moves, but at the end of my moves, I was rushing all my shots. I learned a lesson.
+ - I’ve decided to become a member of the Houston Rockets. I feel it’s the best place for me and I am excited about joining the Rockets and I’m looking forward to a great season. I want to thank the fans in Los Angeles and wish them the best.
+ - I was supposed to be in the NBA. I was supposed to travel the world and make the world a better place.
+ - I try not to have a lot of sugar in my system. If I have sugar for breakfast, whether that be fruit or some pancakes or French toast, they’ll make sure all of the meals for the rest of the day have no sugar in them. I try to take the sugar out of my diet.
+ - I want to be the greatest player ever in my era.
+ - I’m just going to keep working. Spend more days in the gym, as possible. Just trying to get my game up, and just keep playing. And if it’s in God’s will for me to win, then I’ll get it.
+ - I want to make sure I’m fly. Nothing too baggy, something that fits right. I just like that feeling when you go out in public and everyone’s like “Wow, that’s an awesome outfit.”
+ - In Orlando, I handled a lot of stuff the wrong way.
+ - You go from high school, to the NBA, and you’re thrown in the fire.
+
+42 quotes

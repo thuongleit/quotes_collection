@@ -1,0 +1,68 @@
+ - My growth depends on my walls coming down.
+ - If God were small enough to be understood, He would not be big enough to be worshipped.
+ - Love is creative. It does not flow along the easy paths, spending itself in the attractive. It cuts new channels, goes where it is needed.
+ - In the created world around us we see the Eternal Artist, Eternal Love at work.
+ - I do hope your Christmas has had a little touch of Eternity in among the rush and pitter patter and all. It always seems such a mixing of this world and the next – but that after all is the idea!
+ - The life, beauty and meaning of the whole created order, from the tomtit to the Milky Way, refers back to the Absolute Life and Beauty of its Creator: and so lived, every bit has spiritual significance.
+ - God is always coming to you in the Sacrament of the Present Moment. Meet and receive Him there with gratitude in that sacrament.
+ - After all it is those who have a deep and real inner life who are best able to deal with the irritating details of outer life.
+ - The spiritual life is a stern choice. It is not a consoling retreat from the difficulties of existence; but an invitation to enter fully into that difficult existence, and there apply the Charity of God and bear the cost.
+ - The spiritual life of individuals has to be extended both vertically to God and horizontally to other souls; and the more it grows in both directions, the less merely individual and therefore more truly personal it will become.
+ - Deliberately seek opportunities for kindness, sympathy, and patience.
+ - Every minute you are thinking of evil, you might have been thinking of good instead. Refuse to pander to a morbid interest in your own misdeeds. Pick yourself up, be sorry, shake yourself, and go on again.
+ - It seems so much easier in these days to live morally than to live beautifully. Lots of us manage to exist for years without ever sinning against society, but we sin against loveliness every hour of the day.
+ - Adoration is caring for God above all else.
+ - This is the secret of joy. We shall no longer strive for our own way; but commit ourselves, easily and simply, to God’s way, acquiesce in His will, and in so doing find our peace.
+ - Mysticism is the passionate longing of the soul for God...
+ - Man’s will and God’s grace rise and fall together.
+ - Your dreamer may do without a creed, but he always wants a ritual...
+ - We spend most of our lives conjugating three verbs: to want, to have, and to do.
+ - For lack of attention a thousand forms of loveliness elude us every day.
+ - It looks impossible until you do it, and then you find it is possible.
+ - I do not think reading the mystics would hurt you myself: you say you must avoid books which deal with ‘feelings’ – but the mystics don’t deal with feelings but with love which is a very different thing. You have too many ‘feelings,’ but not nearly enough love.
+ - On every level of life, from housework to heights of prayer, in all judgment and efforts to get things done, hurry and impatience are sure marks of the amateur.
+ - Many people feel unaware of any guidance, unable to discern or understand the signals of God; not because the signals are not given, but because the mind is too troubled, clouded, and hurried to receive them.
+ - The determined fixing of our will upon God, and pressing toward him steadily and without deflection; this is the very center and the art of prayer.
+ - Worship is the one, total adoring response of man to the one Eternal God.
+ - It is important to increase our sense of God’s richness and wonder by reading what his great lovers have said about him.
+ - Mysticism is the art of union with Reality.
+ - Delicate humor is the crowning virtue of the saints.
+ - We have descended into the garden and caught three hundred slugs. How I love the mixture of the beautiful and the squalid in gardening. It makes it so lifelike.
+ - Try to arrange things so that you can have a reasonable bit of quiet every day.
+ - Spiritual achievement costs much, though never as much as it is worth.
+ - As the social self can only be developed by contact with society, so the spiritual self can only be developed by contact with the spiritual world.
+ - Spiritual reading is a regular, essential part of the life of prayer, and particularly is it the support of adoring prayer.
+ - I have an idea heaven will be both absolutely happy and absolutely dark, to protect us from the blaze of God.
+ - The first question here, then, is not “What is best for my soul?” nor is it even “What is most useful to humanity?” But-transcending both these limited aims-what function must this life fulfill in the great and secret economy of God?
+ - Saints are the great teachers of the loving-kindness and fascination with God.
+ - Grace is God himself, his loving energy at work within his church and within our souls.
+ - There is no place in my soul, no corner of my character, where God is not.
+ - If by losing the spirit of prayer, you mean losing the heavenly sensations of deep devotion, I am afraid that does not matter a scrap.
+ - All things are perceived in the light of charity, and hence under the aspect of beauty; for beauty is simply reality seen with the eyes of love.
+ - The spiritual life is not a special career, involving abstraction from the world of things. It is a part of every man’s life; and until he has realized it, he is not a complete human being, has not entered into possession of all his powers.
+ - Love makes the whole difference between an execution and a martyrdom.
+ - Christian history looks glorious in retrospect; but it is made up of constant hard choices and unattractive tasks, accepted under the pressure of the Will of God.
+ - The mystic lives and looks; and speaks the disconcerting language of first-hand experience.
+ - As to the most prudent logicians might venture to deduce from a skein of wool the probable existence of a sheep; so you, from the raw stuff of perception, may venture to deduce a universe which transcends the reproductive powers of your loom.
+ - Christianity is a religion which concerns us as we are here and now, creatures of body and soul. We do not “follow the footsteps of his most holy life” by the exercise of a trained religious imagination, but by treading the firm, rough earth, up hill and down dale.
+ - The heart outstrips the clumsy senses, and sees – perhaps for an instant, perhaps for long periods of bliss – an undistorted and more veritable world.
+ - When you let intution have its way with you, you open up new levels of the world. Such opening-up is the most practical of all activities.
+ - The will is what matters – as long as you have that, you are safe.
+ - The note we end on is and must be the note of inexhaustible possibility and hope.
+ - Sometimes I think the resurrection of the body, unless much improved in construction, a mistake!
+ - A simple rule, to be followed whether one is in the light or not, gives backbone to one’s spiritual life, as nothing else can.
+ - All artist are of necessity in some measure contemplatives.
+ - The life of prayer is so great and various there is something in it for everyone. It is like a garden which grows everything, from alpines to potatoes.
+ - In prayer the soul comes nearest the experience of absolute love: in belief it ascends by means of symbols towards absolute truth.
+ - Never forget that the key to the situation lies in the will and not in the imagination.
+ - The mystic cannot wholly do without symbol and image, inadequate to his vision though they must always be: for his experience must be expressed if it is to be communicated, and its actuality is inexpressible except in some hint or parallel which will stimulate the dormant intuition of the reader.
+ - God is acting on your soul all the time, whether you have spiritual sensations or not.
+ - If we ask of the saints how they achieved spiritual effectiveness, they are only able to reply that, insofar as they did it themselves, they did it by love and prayer.
+ - The business and method of mysticism is love.
+ - No metaphysician has yet shaken the ordinary individual’s belief in his own existence. The uncertainties only begin for most of us when we ask what else is.
+ - God is much in the difficult home problems as in the times of quiet and prayer.
+ - The London streets are paths of loveliness; the very omnibuses look like colored archangels, their laps filled full of little trustful souls.
+ - In my relations with my father, which are difficult and where I’m often met by coolness and indifference, I am constantly tempted to be cold and indifferent. Yet I know that this is a test if I could take it rightly.
+ - The direction and constancy of the will is what really matters, and intellect and feeling are only important insofar as they contribute to that.
+
+66 quotes

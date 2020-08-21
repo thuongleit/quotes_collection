@@ -1,0 +1,21 @@
+ - If you do the best you can, you have nothing to be ashamed of. A defeat is not a disgrace.
+ - Growing up, my idols were Lucky Luke and Jolly Jumper. And Scottie Pippen.
+ - I always wanted to be a basketball player. Nothing more, nothing less.
+ - Basketball gave me a lot, which is why I want to stay connected with this sport later on, maybe working with young people. But it would be more in the background. Being in the spotlight was never really my thing. I never wanted to be famous.
+ - When I think about my MVP season, I will also think about the loss to Golden State. But winning the award as Most Valuable Player of the NBA is just a huge honor. I didn’t really realize how big it was until Mark Cuban had tears in his eyes at the award ceremony.
+ - The playoffs is all about showing heart and playing together.
+ - I know, basketball is a dance. I didn’t understand the significance of that type of training at first. I was supposed to read poems...
+ - I thought basketball was a game for women. My mother played basketball, and so did my sister.
+ - I lost control of myself a couple times in the playoffs. I have to keep cooler in the future.
+ - I wanted to avoid service, because I was on the road to becoming a professional basketball player.
+ - As a star you never know when people are really serious.
+ - I want to raise a family and have a couple of small Dirks running around. But it will not be easy to win my heart.
+ - This feeling to be on the best team of the world is just indescribable.
+ - I’m not the kind of guy who just goes up to women.
+ - I came up with my own ‘Dream Shake’ I guess – the white version.
+ - Of course parents want their children to confide in them.
+ - The best player I’ve ever played against is Kobe Bryant. I have seen him do some stuff that is just unbelievable.
+ - If theres an injury, for a couple games, you can have guys step in. But for a long period of time, it always catches up with you.
+ - As a newcomer, I was often expected to carry the bags of the older players, or get them burgers. That can make you feel pretty miserable.
+
+19 quotes

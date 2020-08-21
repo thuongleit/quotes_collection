@@ -1,0 +1,48 @@
+ - To show that you truly care, you listen.
+ - History is made every day. The challenge is getting everyone to pay attention to it.
+ - In order to make anything a reality, you have to dream about it first.
+ - You must lend an ear today, because we are the leaders of tomorrow.
+ - The goal is not to turn kids into your kind of adult, but rather better adults than you have been.
+ - Enthusiasm just creates bubbles; it doesn’t keep them from popping.
+ - Prom has all the elements of a popular story. It reeks of all-Americanness, tension, drama. It has romance. Pretty dresses. Dancing. Limos. High school. Coming of age.
+ - The traits the word ‘childish’ addresses are seen so often in adults that we should abolish this age-discriminatory word when it comes to criticizing behavior associated with irresponsibility and irrational thinking.
+ - Learning between grown-ups and kids should be reciprocal. The reality, unfortunately, is a little different, and it has a lot to do with trust, or a lack of it.
+ - Our words can have power that we don’t think we have in everyday life. Anyone can make a difference!
+ - Any good teacher knows how important it is to connect with students and understand our culture.
+ - We’re used to the characteristics of social media – participation, connection, instant gratification – and when school doesn’t offer the same, it’s easy to tune out.
+ - I cannot emphasize enough the importance of family encouragement – not just for me, but for everyone.
+ - To try to teach ignoring technology is to ignore the progress that we have made over the last century. If school is preparation for the real world – a real world that is increasingly technology-driven – then to ignore technology is to become obsolete.
+ - As children, we have a tenuous idea of love; we often try to quantify it with how much we feel seen and heard.
+ - I realise I’m still a child, though I do feel older. I recently did an on-line test called ‘What’s Your True Age?’ My result was 50-60 years old.
+ - Young people are often asked, ‘What do you want to be when you grow up?’ and given advice about how to lead meaningful adult lives, but where’s the encouragement to lead meaningful lives right now?
+ - No matter your position or place in life, it is imperative to create opportunities for children so that we can grow up to blow you away.
+ - We all love people who give credit to others for their success. Companies would probably do better with CEOs who didn’t blow their own horn and ask for ridiculous salaries and new yachts every year.
+ - With writing, I can express myself, really, and share my ideas and just let my thoughts flow out.
+ - Hoping to instill my love of learning in other children, I taught my first class at a local elementary school the year my first book, ‘Flying Fingers,’ debuted; since then, I have spoken at hundreds of schools, classrooms and conferences around the world.
+ - CEOs of top companies could probably use a dose of not-asking-for-raise behavior and less self-entitlement, rather than us trying to change girls in order to fit into the common mold of what we think a CEO looks like.
+ - All that you need to become an entrepreneur and change the world is a working brain – and pretty much nothing else.
+ - Make sure that your kids or the kids in your life have an opportunity to share their ideas, and to teach you something about what we know.
+ - None of my friends don’t have Facebook accounts. Op-eds and studies can highlight our decreased enthusiasm for Facebook ’til the cows come home, but it doesn’t change the fact that we are chained to the beast. Voluntarily, of course.
+ - I was thrilled to be able to read at three. I just thought everyone loved reading as much as I did.
+ - Students read for tests and because their parents ask them to, but I think it’s very important to tell children that you can read for fun, too, and to understand human spirit. It builds empathy.
+ - I realise I’m still a child, though I do feel older.
+ - If I had my way, I’d end all wars and poverty. We should all be more aware of what’s going on in the world around us and less ignorant.
+ - The first thing anyone can do, about any issue, is get informed.
+ - Let’s abolish the term ‘childish’ because adults normally cause the largest problems.
+ - A lot of negative words adults call the young, like ‘naive,’ ‘impulsive’ and ‘way too connected online,’ are all things we can turn into strengths to help us.
+ - Since the age of four, I’ve been exploring what I can do with the written word: everything from championing literacy and youth voice to raising awareness about world hunger.
+ - My family joke that I’m really a very senior person who accidentally happens to be 11.
+ - We always reference kids but very rarely ask their opinion. Our inexperience might be what gives us the ability to teach our elders something, due to the fact that we are not jaded or cynical.
+ - There are lots of different interpretations of the word ‘prodigy.’ My own is of someone who is talented and tries to help other children. So in that respect I could be called one, although I don’t think I’ll go off the rails.
+ - Success on the front of women’s rights will look like a world not only with obvious advances – where no girl is denied access to education, for instance – but also one with more subtle changes in how we regard gender and gender stereotypes.
+ - I wouldn’t call myself a geek, but I do sometimes teach Mommy and Daddy stuff about computers. And I do watch TV, but only informative programmes like the news and documentaries.
+ - If you pursued something that you felt strongly about, then I call that success.
+ - The point of my work is to make it clear that all youth can make ‘big miracles’ happen.
+ - By creating so many illusory images of physical perfection, whether on store aisles or storefronts ads, magazine covers or TV show, we speak more to the profit margins of companies than the self-esteem of today’s girls.
+ - There’s no committee that says, ‘This is the type of person who can change the world – and you can’t.’ Realizing that anyone can do it is the first step. The next step is figuring out how you’re going to do it.
+ - Mostly, I avoid worrying since the time spent doing it could be spent more constructively.
+ - By bringing current events into the classroom, everyday discussion, and social media, maybe we don’t need to wait for our grandchildren’s questions to remind us we should have paid more attention to current events.
+ - If we all understood we can learn from both older and younger people, then we’d have a better world.
+ - It seems we’re not only uninformed about our present, we’re ignorant of our past.
+
+46 quotes

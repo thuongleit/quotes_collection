@@ -1,0 +1,22 @@
+ - Unexpected kindness is the most powerful, least costly, and most underrated agent of human change. Kindness that catches us by surprise brings out the best in our natures.
+ - Like Jonah, the whale had swallowed me; unlike him, I believed I would spend eternity inside the belly of the beast.
+ - Clinton’s an unusually good liar. Unusually Good. Do you realize that?
+ - I thought dying for your country was the worst thing that could happen to you. I think killing for your country can be a lot worse. Because that’s the memory that haunts.
+ - The cheapest gift I have to give is kindness, and it is the best.
+ - When I say be skeptical of everything I mean it. Just because someone was elected to do a job doesn’t mean that person has any idea of what they’re doing.
+ - My view is that you never argue with the customer about your name.
+ - A hero is someone who over and over does the right thing even though no one is there to witness it.
+ - There is no force more liberating than the knowledge that you are fighting for others.
+ - The only medal that I am certain I deserved is the Purple Heart.
+ - It was not just inappropriate behavior.
+ - Slow down, especially at the beginning of a speech. You’ll get the audience’s attention by pausing.
+ - If you look beyond the short term violence and instability, you do see significant activities on the part of the Iraqi people that indicate they understand the commitment necessary to govern themselves. Its not clear how they will do it, but it never is.
+ - When you’re fighting for economic and social justice, you’re always fighting for the minority.
+ - The problem is you tend to look back and identify mistakes, and as a consequence of feeling terrible about mistakes you say you bungled this so bad, let’s get out of here.
+ - I’ve been a Yankees fan since I was six.
+ - I value public service and I’m relatively good at organizing political causes.
+ - The idea that somebody who has done something horrible in a war is not willing to talk about it for 32 years is hardly a shocking idea. Quite the contrary.
+ - But on the big things, I’m not going to trim in order to win public opinion. Because I really don’t want to serve in the Senate if I arrive there without permission to do the things I think need to be done.
+ - Cuba wants to get rid of a dictator, and baseball needs a dictator.
+
+20 quotes

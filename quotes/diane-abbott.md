@@ -1,0 +1,27 @@
+ - Mental health is often missing from public health debates even though it’s critical to wellbeing.
+ - You can’t defend the indefensible – anything you say sounds self-serving and hypocritical.
+ - Tackling childhood obesity is key.
+ - I don’t think you can have pain and soul-searching doing the right thing for your child.
+ - I want to write a best-selling book.
+ - Being an MP is a good job, the sort of job all working-class parents want for their children – clean, indoors and no heavy lifting. What could be nicer?
+ - I’m not thick-skinned at all, and of course I’m hurt by people attacking me as a person.
+ - My forebears refused to cut the sugar cane for plantation owners, and I am recognisably a product of that background.
+ - Outsiders often have an insight that an insider doesn’t quite have.
+ - I was a postman one Christmas and I developed a morbid fear of dogs.
+ - In politics, the people I most despise are those who have no values.
+ - I’m a West Indian mum and West Indian mums will go to the wall for their children.
+ - My London constituency in Hackney has one of the highest levels of gun crime in the country. But the problem is no longer confined to inner city areas. Gun crime has spread to communities all over Britain.
+ - My mother liked Jim Reeves. I hated his records. He was unbearable.
+ - You learn from mistakes.
+ - It’s very lonely bringing up a child on your own.
+ - My father was a manual worker.
+ - Gun crime is a major cause of fear and distress throughout the UK. The problem is deeply entrenched in a wide range of social and cultural factors and therefore not an isolated issue.
+ - Finally, there’s a sense in which I look at this Westminster village and London intelligentsia as an outsider.
+ - When fast food is not a treat but a dietary staple, the children surf the internet all day in dark corners of the room and are bombarded with latest gadgets. Things replace parental standards.
+ - My family were from Jamaica.
+ - There are 101 websites out there for debate – this was a blatant last attempt to get someone to stand against Gordon Brown.
+ - Abortion is an issue of conscience for the Labour party.
+ - I spend a lot of time visiting local organisations.
+ - I wanted my marriage to work, but it didn’t.
+
+25 quotes

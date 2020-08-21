@@ -1,0 +1,72 @@
+ - As it turns out, now is the moment you’ve been waiting for.
+ - The perfect man? A poet on a motorcycle.
+ - Have compassion for everyone you meet, even if they don’t want it.
+ - I grew up in a very literate, very independent household where people spoke their ideas and were very supportive of helping each other find their own way.
+ - I’m not just a doormat. I’m not just being stepped on all over the place. If you look at the bulk of my material, it’s about trying to find some strength through that.
+ - What seems conceit, bad manners or cynicism is always a sign of things no ear have heard, no eyes have seen. You do not know what wars are going on down there where the spirit meets the bone.
+ - Blaze Foley was a genius and a beautiful loser.
+ - Sometimes I dream song ideas. I write a song in my dream, the melody and everything. But then sometimes I can’t remember them. I think later on, I probably do.
+ - I can speak for most songwriters – those breakup love songs are so easy to write, as far as the inspiration and all that.
+ - First thing, I throw on some jeans, a T-shirt and my Keds sneakers and make coffee. That is actually my favorite time of day. That is when I do my songwriting, when I am in writing mode.
+ - I am trying to get right with God. I’m sort of making a statement about the excessiveness.
+ - The old jazz singers or old blues singers, you always just saw them kind of sitting down and singing. They weren’t worried as much about their voice sounding perfect. They would make the song kind of fit their voice.
+ - I’m always writing ideas down and then I stick em in my pocket and put em in that folder so I don’t lose them. Like, somebody might say something, and I’ll go, oh that’s a good line, and that goes in the folder, too. It’s kind of an ongoing process for me.
+ - Just because I’m talking about something that might have been a sad or painful situation doesn’t mean that I’m sad or tortured 24 hours a day any more than anybody else is.
+ - People let their own hang-ups become the obstacles between them and personal happiness.
+ - If you come into success too soon, you’ll burn out and be finished before you know it. If you let the maturation process happen naturally, you’ll be happier with yourself in the end.
+ - I’m just like everyone. I like to feel togetherness with someone.
+ - RB Morris is the greatest unknown singer-songwrit er in the US.
+ - Above all, the listener should be able to understand the poem or the song, not be forced to unravel a complicated, self-indulgent puzzle. Offer your art up to the whole world, not just an elite few.
+ - Any time there’s a major change, whether it’s going into a relationship, getting out of a relationship, moving to a new city, a death – that usually provides a catalyst for an explosion of creativity.
+ - Sometimes I feel like I just open myself up like I’m a vehicle for something coming through me. It’s like a meditative state I have to be in.
+ - I just broke up with my boyfriend, and I’ve been spending more time alone than I’d like.
+ - Believe it or not, people went so far as to suggest that I might not be able to write songs anymore because now I am married. I tried to explain again that there are other things to write about besides boy meets girl, girl meets boy, boy breaks up with girl, girl is sad.
+ - I’m trying to get out of my own way.
+ - You should put time into learning your craft. It seems like people want success so quickly, way before they’re ready.
+ - I’m pretty much the same person I was 20 years ago. My politics haven’t changed. I have the same feeling of idealism. But I am a little bit wiser and more experienced.
+ - I started writing little short stories and poems as soon as I learned to read and write. I think I was six years old. And then when I got to be eleven, twelve, and into my teens, I was just listening to records all the time, and I got a guitar. I started to take guitar lessons when I was twelve.
+ - It’s just the more you do it the better you get, or at least that’s how I feel in my case. I think it’s a combination of confidence and just having done it this long and just learning. I’m always learning. I’m still honing my craft.
+ - I feel like it’s really kind of a sit-down album, much in the same way I imagine Billie Holiday or someone sitting down in the studio and singing.
+ - I don’t mean to complain. I wouldn’t trade my life for anything.
+ - I’ve had trouble being in relationships and writing. This has been a real problem for me. I don’t know if it’s because I’m not free to fantasize or create these fantasy things about other people.
+ - Back in the 1960s, I saw Peter, Paul and Mary. I was at that age, about 14, and I was mesmerized.
+ - I usually don’t write about my life right when it happens. I process it, and I store it away. Then, when I get in the mood I pull the stuff back out.
+ - Sade’s stuff is real deceptive. She’s got stuff about prostitutes, poverty and people on the streets.
+ - I’m an artist first and foremost. So things are gonna go up and down and sideways and whichever way all through life.
+ - The more I separate myself from my upbringing, the more I appreciate what it’s done for me.
+ - I’m fascinated by the whole concept of snake handling. When you read about the Pentecostal snake handlers, what strikes you the most is their commitment.
+ - I guess you could write a good song if your heart hadn’t been broken, but I don’t know of anyone whose heart hasn’t been broken.
+ - I feel a lot more comfortable being me these days. I’m constantly told that my work is good. A lot of fans and a lot of other artists say my songs and albums mean a lot to them. Isn’t that what’s important?
+ - When the muse hits me, or the mood, or whatever it is, I get my guitar out and I empty it out. I just start going through things to see what’s going to happen.
+ - I’d rather play a few nights at the Fillmore than play one night at an arena.
+ - Of course, Im older now. Im in a different place in my life than when I wrote the songs for Car Wheels or Essence or whatever. Different things were going on.
+ - People seemed to think, you get to a certain age or you get married or you, you’re comfortable. And so now there’s nothing to write about: that angst is gone. The youthful angst. And that just hasn’t happened with me.
+ - I write first for myself as a therapeutic process, to get stuff out and to deal with it.
+ - I don’t keep a journal anymore. I did when I was a teenager, but now because I write about it all in my songs, that’s what I’m really doing.
+ - Theres so many other things to write about than unrequited love.
+ - I usually have an idea of how I want a song to sound, but I don’t always know how to get there.
+ - I started writing more with my voice in mind.
+ - Some of their best songs don’t have bridges and choruses. So that made me think I should trust my instincts. My songs were okay, I figured. I didn’t need to change anything.
+ - What I do as a songwriter is a constant force in my life, that I’m grateful to have.
+ - I have had to come to terms with wearing glasses.
+ - Offer your art up to the whole world, not just an elite few.
+ - I mean, whose songs don’t focus on tragedy and loss?
+ - I started writing songs, I guess, when I was about 13 or 14, but I didn’t know if they were good enough yet or anything.
+ - It’s easier to write songs when you’re single.
+ - I love Emmylou Harris’s version of my song, ‘Sweet Old World.’ Her intonation is great.
+ - I would worry if I wasn’t coming up with ideas, if I wasn’t inspired.
+ - I have to try different things to see what works best. Other people get impatient with that.
+ - We just did a few takes of a song and just picked the best one. It was real organic and genuine.
+ - I didn’t grow up in a mom-and-pop, Ozzie and Harriet type of environment, but who did.
+ - I write the songs, go in and record them, then I listen to everything and decide how it all fits together.
+ - I was immediately taken with Geoff Muldaur’s rich soulful voice, masterful phrasing and guitar playing when I first heard him.
+ - I’m trying to learn how to tap into the power of my own being. I know it sounds corny.
+ - I think in the world of rock music or whatever it’s called – anything outside of Nashville – there’s a lot more freedom within that industry to do whatever you want to do.
+ - I have such a great band. We had played all this material on the road. I just wanted to let it fly.
+ - You can’t be afraid to deal with your demons. You’ve got to go there to be able to write.
+ - So few people are truly themselves when they’re in the spotlight.
+ - I’m dealing with things as they come along, and I’m talking about it.
+ - You can’t really praise somebody’s work and then criticize the process.
+ - I grew up around poets and novelists and my dad wrote poems about everything – from a cat sleeping in a window to a car wreck he passed on the highway. I learned not to censor myself: that was one of things I learned in my apprenticeship, my creative-writing apprenticeship with my dad.
+
+70 quotes

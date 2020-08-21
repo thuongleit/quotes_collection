@@ -1,0 +1,31 @@
+ - Remember, the greatest failure is not to try.
+ - Good enough never is. Set your standards so high that even the flaws are considered excellent.
+ - Don’t ever lose sight of your dreams. And, more importantly, reach for the stars.
+ - You have to have passion when you’re finding a recipe for a career. If you love what you are doing, you’ll never work a day in your life.
+ - If you think you can, then you’re half way there. If you say, ‘I can’t,’ then you’re defeated.
+ - I love to brainstorm. I like to mentor. When you’re starting out, especially as an entrepreneur, you really don’t know what you’re doing. You go out there and you try so many things. The key in the process, to me, is that you keep trying and you never give up.
+ - Being good enough never is.
+ - We are here for a reason. We all have a gift or gifts to share. You want to look inside your heart and your soul, and you want to tap into the one thing you love to do. Develop it. Share it. Nurture it. You were meant to have that gift.
+ - There is always competition. Whatever you do, there will be competition, and you have to decide how you’re going to play. For me, I had to be the very best. I had to be the very best. Because, if I was not the very best, I would end up being number two.
+ - A cookie store is a bad idea. Besides, the market research reports say America likes crispy cookies, not soft and chewy cookies like you make.
+ - Once you find something you love to do, be the best at doing it.
+ - You do not have to be superhuman to do what you believe in.
+ - If youre going to be at a job environment, you should love it. You shouldnt do it just for money. You should do it because you love it. And the money comes naturally.
+ - Be great at what you do, and don’t ever settle for mediocrity or else you will always wonder how great you could have been.
+ - The most important thing is for you to believe in what you are doing.
+ - It’s never too late – not now, not ever – for you to pursue your passion.
+ - I’ve never felt like I was in the cookie business. I’ve always been in a feel good feeling business. My job is to sell joy. My job is to sell happiness. My job is to sell an experience.
+ - Never give up. The bankers and financial people did not take me seriously initially. Everyone thought I would fail. My attitude was that ‘No’ is an unacceptable answer when it comes to financing.
+ - The important thing is not being afraid to take a chance...
+ - Number one, I absolutely love making chocolate chip cookies. I mean, it’s fun. It’s exciting. Beyond the fact that I love making them, I love eating them.
+ - What I wanted was to be allowed to do the thing in the world that I did best – which I believed then and believe now is the greatest privilege there is. When I did that, success found me.
+ - Because what nobody ever understood is that I, too, wanted to be a somebody. But how do you go through life wanting to be a someone and not knowing how?
+ - Small business in America is what fuels the American economy. We need more small business to assist us in creating a great nation and in creating more jobs. It’s this frontier that is endless in terms of opportunity and potential.
+ - And, more importantly, reach for the stars. And realize that it is never too late – not now, not ever – for you to pursue your passion, your pursuit of perfection. And most importantly, your perseverance for making it happen.
+ - The principle was right there – you couldn’t miss it. The more we did for our customers, the more they did for us.
+ - We knew we loved making cookies and every time we did, we made people happy. That was our business plan.
+ - Don’t stop at the first no. You have to be a risk taker. If there weren’t room for creativity, the patent office would close down.
+ - I use nothing but the best ingredients. My cookies are always baked fresh. I price cookies so that you cannot make them at home for any less. And I still give cookies away.
+ - Too many people have a wonderful dream and just talk about it rather than do something about it.
+
+29 quotes

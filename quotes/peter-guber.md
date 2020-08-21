@@ -1,0 +1,25 @@
+ - Being true to yourself involves showing and sharing emotion. The spirit that motivates most great storytellers is ‘I want you to feel what I feel,’ and the effective narrative is designed to make this happen. That’s how the information is bound to the experience and rendered unforgettable.
+ - Truth is a point of view, but authenticity can’t be faked.
+ - Language is a more recent technology. Your body language, your eyes, your energy will come through to your audience before you even start speaking.
+ - Today everyone, whether they know it or not, is in the emotional transportation business. More and more, success is won by creating compelling stories that have the power to move people to action. Simply put, if you can’t tell it, you can’t sell it.
+ - Social cohesion was built into language long before Facebook and LinkedIn and Twitter – we’re tribal by nature. Tribes today aren’t the same as tribes thousand of years ago: It isn’t just religious tribes or ethnic tribes now: It’s sports fans, it’s communities, it’s geography.
+ - Stories aren’t the icing on the cake; they are the cake!
+ - Use state-of-the-heart technology online and offline to turn listeners into viral advocates and customers into raving fans.
+ - There are no rules, but you break them at your peril.
+ - Every journey that is successful has culs-de-sac and speed bumps. I carry a wisdom gene through my life through the good, the bad, and the ugly.
+ - At Casablanca we did ‘Midnight Express,’ ‘Flashdance,’ and ‘The Deep.’ My willingness for risk has always been my strength.
+ - In today’s roller-coaster economy, hyper-competitive, fear-based, flat and global world, convincing anyone to do anything at any time requires getting their attention, creating their intention and turning it to action.
+ - A German shepherd dog could walk in the office with a script in his mouth, and if that script was really good, they’d buy the script.
+ - Nothing replaces being in the same room, face-to-face, breathing the same air and reading and feeling each other’s micro-expressions.
+ - I’ve worked with Jack Warner and Jimmy Stewart – and Angelina Jolie, Brad Pitt, and Johnny Depp twice. I’ve had dinners with Fred Astaire and Cary Grant.
+ - With a purposeful story, you can change a “wanna be” to a “gonna be” to a “be”.
+ - Beside every great success are the seeds of enormous failure. In every failure, there’s the opportunity seeds of great success. They’re not miles apart. So if they’re that close together, and if you’re really working, you’re always gonna have that likelihood that something’s not going to work.
+ - The Internet is an audience of one, a million times over.
+ - The portal into people’s hearts is being interested in them.
+ - People love to be swept off their feet, to go into an environment where they’ve never been, to experience things they only dream about. And filmmaking offers that potential.
+ - Most young people haven’t used their storytelling skills since they were 8 or 9 or 10 and wanted to persuade Mom and Dad to take them to the ball game.
+ - Are you motivated? Are you coherent? Is your intention aligned? Are your feet, tongue, heart and wallet congruent? That intention shines through.
+ - The arts tend to be more liberal. There tends to be more social relevance in the arts.
+ - Miss the audience’s heart as a filmmaker, and the only wallet that gets hit will be your own. That’s because the heart is always the first target in story telling.
+
+23 quotes

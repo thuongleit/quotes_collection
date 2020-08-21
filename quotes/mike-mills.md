@@ -1,0 +1,32 @@
+ - The oldest sibling always knows things that the younger ones don’t.
+ - Sadness is a super important thing not to be ashamed about but to include in our lives. One of the bigger problems with sadness or depression is there’s so much shame around it. If you have it you’re a failure. You are felt as being very unattractive.
+ - To me it’s like, every time I’m a director, like today, you’re the captain of the ship, so you better dress like it. You’re the host of the party.
+ - Grief and memory go together. After someone dies, that’s what you’re left with. And the memories are so slippery yet so rich.
+ - My graffiti really comes more from a May ’68, sort of Situationist vibe than the hip-hop world. I think a real graffiti artist would find me a poser.
+ - There’s great sadness and life doesn’t work out like you would want, on a lot of levels, but there’s no need to feel all alone. This happens to everybody, so there’s no self-pity. This is the ride that humans are on, and all of it is essential for our natural part of it.
+ - I am intrigued by inanimate objects. They’re a piece of history, someone’s statement and ideas of life.
+ - Life is too short for a half-rack.
+ - No one leaves the edit room thinking, ‘Yeah, I nailed that one!’ Everyone I know goes into their first premiere or their first screening thinking, ‘I screwed up so bad. I’m sorry, I messed up.’ It’s just a real common feeling.
+ - I’m not a craftsman of graphics or art or film. I’m more of an idea generator and manufacturer.
+ - Humans are vulnerable, messy little animals and that’s normal. And all I want to do is make a space for that in my films.
+ - People ask ‘How does doing a film compare to doing an ad?’ Well, when you’re doing a commercial you don’t have to sell tickets. You have a captured audience. Which is actually completely rare and great; it gives you a lot of freedom. When you make a film, you have to do advertisements for the film.
+ - I don’t really believe that documentary is objective reality and fiction is all illusion.
+ - There’s some movies I watch, they’re kind of like my anti-anxiety pill, my anti-depressant pill. I watch them at least once or twice a month probably. And I never stop learning from them as a filmmaker.
+ - Film is endlessly just beyond your reach. I think that’s what I love so much about it.
+ - Being a good Hans Haacke student, part of his influence on me is that there’s no difference between a gallery show and a film – or even an ad and a T-shirt-in terms of cultural legitimacy. They’re just different contexts in which to have some sort of communication.
+ - To me, sadness and humor aren’t disrelated and humor is the best tool I’ve had against the sadness in my life.
+ - Over and over again, I’m trying to express or communicate these big and small struggles to the world, and really to myself.
+ - Actors are pretending for you, but they’re not lying. They are not putting on a guise instead of themselves. They are finding things inside that they have experienced.
+ - As a son of a man who pretended to be one thing for 33 years of my life and then was another thing, the questions of ‘what is real’ and ‘what is not real’ are very blurrily vivid to me.
+ - I was so happy with my bow ties from the last kickstarted project that I’m back for more.
+ - I pretty much believe that a film is a film and when an audience watches a film, they finish it.
+ - I’m into people’s emotional lives and relationships and the complications of living. That’s my turf.
+ - It’s funny now how much we look at – whatever you want to call it: art, design, culture stuff, film – online, and how in the online world, you’re instantly global.
+ - I definitely believe in the energy of the set and the energy of the actor, way more than your written word.
+ - The littlest thing can have the strongest connection when you’re grieving. Your Proustian, poetic nerve is turned up to ten.
+ - There is a drunkenness to grief, which is good.
+ - As someone who grew up in a house where there wasn’t a lot of talking, I’m used to just looking at the world. And in general I often feel like I just don’t understand what’s happening. That everybody else does, but I don’t quite get it.
+ - We never did things as we were supposed to do. That was part of our ethic. We did what felt right to us, not what someone told us we should do.
+ - I guess I watch movies to make myself happier a lot.
+
+30 quotes

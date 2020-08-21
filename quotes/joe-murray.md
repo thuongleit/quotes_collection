@@ -1,0 +1,22 @@
+ - Marriage should be a duet – when one sings, the other claps.
+ - The world turns on a dime, the same now as it always has – which is to say, money makes the world go ’round. It’s also what makes the world go spinning out of control.
+ - With Charles Woods, it was the first time I had ever seen tissue from a dead person used to save a human life. It piqued my curiosity.
+ - Anyone who knows me, knows I don’t walk away from a commitment, but I had a commitment to myself. Yes, there were times Nickelodeon made it more difficult than it needed to be, but there were also times they made it easier.
+ - I do not feel any artist can produce great art without putting great personality into it. It is always a piece of you that goes on the screen or the canvass.
+ - The friend that I based Heffer on was adopted, and it all played into his total personality.
+ - I still have a vivid memory of my excitement when I first saw a chart of the periodic table of elements.
+ - More and more, I tend to read history. I often find it more up to date than the daily newspapers.
+ - Two days prior to the Herrick operation I repaired a double cleft lip, resected a recurrent cancer of the mouth, corrected lop ears in a child, and closed a burn of the buttocks.
+ - I am constantly getting letters from inconsistancies in the back stories of these characters.
+ - Post-operatively the transplanted kidney functioned immediately with a dramatic improvement in the patient’s renal and cardiopulmonary status.
+ - Sometimes a serendipitous reaction occurs when a network asks you if you have any ideas for a series, at a time when your creative flow is working in that direction.
+ - Removal of an organ is difficult and dangerous. There have been several deaths of healthy donors. I think myself, I would be hesitant to participate as a liver donor. It’s a very tricky operation.
+ - I think cheese smells funny, but I feel bananas “are” funny. I’m assuming Swamp told the whole story of the executives seriously asking us to replace the banana with cheese because they thought it was funnier.
+ - I had worked on dogs for a couple of years developing a renal transplant operation. We had dogs running around with kidneys we had transplanted back into themselves.
+ - Somebody said us artists have trouble with success because art is derived from struggle. I disagree with that, because truely doing your art is success, whether you make money from it or not.
+ - We’re the real estate industry – not the manufacturers.
+ - Since this was the first and only series I had ever produced, I was unaware of what the “Normal” environment was for a studio. I tried to run it as I did in my SF studio.
+ - When I speak to students and they ask how much money you can make in art, as if that is a reason to persue it, I tell them to do something else.
+ - When an executive walked on our floor, it was at their own risk. As far as what others thought of working for me, I know I was very tough at times, and would storm down the hall after watching some bad animation from Korea. But overall, I feel we had a good time.
+
+20 quotes

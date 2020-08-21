@@ -1,0 +1,63 @@
+ - I went to college, I went pre-med, I thought I was going to be a doctor.
+ - I hate movies that tell people what to think. I’m proud that Democrats thought ‘Thank You For Smoking’ was their film and Republicans thought it was theirs. I’m proud that pro-choice people thought ‘Juno’ was their film and pro-life people thought it was theirs.
+ - I’m a kind of private guy.
+ - I’ve always had an underdog perspective.
+ - Selfishness, narcissism, being uncomfortable in your own skin, not feeling connected to the world around you, feeling dislocated from family and youth, having a strange relationship with your childhood – all those things feel really true to me.
+ - Everyone wants to be loved; everyone wants to know where they’re going in life; everyone wants to have a sense of direction and feel the next day is going to be better than today. We just all deal with it in a different way.
+ - Things like Facebook have made you feel as though you’re connected to everybody. You’ve got a thousand friends on Facebook, but you don’t actually talk to anybody. You’re not close to anybody.
+ - Doesn’t every generation feel like the one that’s coming up behind them doesn’t know how to grow up? I’m not sure if we’re progressively getting worse or if your perspective shifts.
+ - I find nice people kind of boring.
+ - Filmmaking is a completely imperfect art form that takes years and, over those years, the movie tells you what it is. Mistakes happen, accidents happen and true great films are the results of those mistakes and the decisions that those directors make during those moments.
+ - It’s funny, I can sit through the worst horror film ever made but even a quite good romantic comedy can drive me nuts.
+ - Creating a wonderful drama is an art form, while comedy is just entertainment.
+ - I think it’s a mistake for young filmmakers to just buy digital equipment and shoot a feature. Make short films first, make your mistakes and learn from them.
+ - And I certainly like being on a plane, next to a stranger, having conversations that you’d never otherwise have. You’re unplugged, your phone doesn’t work, you’re not online.
+ - I don’t want to make films that give you the answer. If there is a message to my films – and I hope there isn’t – it’s to be open-minded.
+ - All the airports kind of feel and look the same now. Some are more beautiful, some are less beautiful, but for the most part you’re going to find a Starbucks in every airport. You’re going to get your coffee and the ‘USA Today’ or ‘New York Times’ in every airport.
+ - Being the son of a filmmaker, you are aware of a career as a director. You don’t think of it as just movies, but as a life.
+ - When I think of ‘Nightmare on Elm Street,’ there was a warmth to those teenagers that I related to. They were not aware that they were in the middle of a horror film, and I really loved those characters and I empathized with them.
+ - My writing voice is very much like ‘Thank You for Smoking.’ It’s a guy’s voice. It’s very masculine.
+ - If someone else made ‘Up in the Air’ or ‘Thank You For Smoking’ or ‘Juno,’ I would have wanted to rip their head off. I need that same sort of passion for every project I take on.
+ - When characters change on screen, it makes you feel better about yourself. You think, ‘Oh I change too, I’m constantly becoming a better person.’
+ - People want to know if I have a moral standpoint that they should be picking up on, and the truth is, I don’t. I don’t want people to think that I’m trying to tell them to feel a certain way. I think that’s cheap filmmaking.
+ - There are only so many movies you can direct. And yet there are movies that I want to make sure make it to the screen in as honest a way as possible.
+ - I have one of the original ‘Ghostbusters’ guns in my house.
+ - I’m not Michael Moore. I think Michael Moore wants to tell you how to think. He wants to give you answers. I make movies to raise my own personal questions and not to give answers.
+ - I think, through comedy, sometimes we’re allowed to discuss things that you’d never be able to talk about in a drama.
+ - I remember when I was like 19 years old and I started a desk calendar company to pay for my first short film, just so I could say one day that my daddy didn’t pay for my first short film. And I really established myself in the film festival world.
+ - I don’t know why I’m drawn to anti-heroes, but I certainly am.
+ - And the biggest improvement I see between ‘Up in the Air’ and ‘Juno’ and ‘Thank You for Smoking’ is that ‘Up in the Air’ deals with the complicated human stuff in a way that my other films have not. It’s a more articulated film, and because of that, I’m most proud of it.
+ - Unlike with any other art form, filmmakers have this unique web of festivals. There are hundreds. It is a democratic system in which you submit films, and if they are good enough, they play. The only barrier to entry is the submission fee.
+ - Most people see a documentary about the meat industry and then they become a vegetarian for a week.
+ - Rian Johnson’s ‘Looper’ is inventive, entertaining, and thought-provoking in every way a movie can be. It is in fact the kind of movie that reminds us why we watch them and make them, a beautifully told story that deserves to be not only remembered, but acknowledged for its writing.
+ - Comedy and horror are cousins; they’re related. They both come from storytellers who want to specifically affect the audience and elicit specific reactions during the movie.
+ - I am an obsessive flyer, myself.
+ - I really enjoy theater. I just went to see ‘Death of a Salesman,’ and it knocked me on my ass.
+ - I don’t consider myself bossy, but I do know what I want. You know, I have a gut feeling about a piece of material, but I’ve never envisioned myself as the director on top of the hill with a megaphone in my hand, screaming at 1,000 extras.
+ - When I write a film, all I think about is where the thing ends and how to get the audience there.
+ - And as a director, you make 1,000 decisions a day, mostly binary decisions: yes or no, this one or that one, the red one or the blue one, faster or slower. And it’s the culmination of those decisions that define the tone of the film and whether or not it moves people.
+ - I want my movies to be audience experiences. As much as I like Michael Haneke, I’m not going to make a Haneke film. That’s just not in my DNA.
+ - I always believed that you can make challenging films, but they should be fiscally responsible.
+ - What I do feel is that ‘Up in the Air’ is the most indicative film of 2009. It is the portrait of 2009.
+ - I grew up on movie sets, I’m comfortable on sets. A movie set is like a circus. I don’t understand why moviemaking has to be such an insane environment.
+ - Filmmaking is finding a piece of granite and you start to chip away and then you have the shape of a head, the shape of the arm, you can see the shape of the face and the face starts to gather character. You have to find it.
+ - Yeah, I was born in Montreal and I go back to Vancouver and Toronto a lot, so I have a sense of being Canadian, and I was raised by two Canadians, and my wife is Canadian, so yeah, I feel it.
+ - I don’t believe in director’s cuts where you make things longer. The coolest thing was when the Coen brothers did a director’s cut of ‘Blood Simple,’ and they made it shorter.
+ - Each one of my films is personal; each one of my films is emotionally autobiographical. And I like directors who do that.
+ - When you’re young, you want to make every kind of film: musicals, Westerns, horror. Slowly you begin to hear your own voice. I hope people receive what I do as small, personal films that are somewhat contrarian about their main characters.
+ - I’m equally guilty of using technology – I Twitter, I text people, I chat. But I think there’s something strangely insidious about it that it makes us think we’re closer when in fact we’re not seeing each other, we’re not connecting.
+ - With each one of my films, I’m exploring one of my own issues and I try to expose myself a little in the film.
+ - When it comes to casting, I’ve been so lucky. I’ve worked with unbelievable actors who make me look better than I am and take the written word and make it honest.
+ - The first set I remember was ‘Ghostbusters.’ It was a scene in which the street erupted. I remember even at seven years old thinking, ‘Wow, if you direct a movie, you can break the streets of New York.’
+ - Directing ‘The Office’ is kind of like someone going, ‘Would you like to drive my Lamborghini?’ And I’m like ‘Yes, I would like to drive your Lamborghini. That sounds like fun.’
+ - I’m too big a fan of rhythm and editing. I’d much rather my editing be brave than my shooting.
+ - I’m not going to have a perfect career. It’s better to be Billy Wilder and make lots of movies and have five or six great ones than to make so few movies that when you make a bad one it crushes you.
+ - I’m really specific in the way that I shoot. I’ve always had a very good sense of what I need in the editing room.
+ - I used to have a group called Bad-Movie Saturday. Every Saturday, six of us would go see the worst movie that came out each weekend. It’d be noon in Burbank. It was just a running commentary. All executives – we would each talk through the movie and make jokes.
+ - I want my audiences to be as open-minded as my characters.
+ - And over the course of the last six years, as I’ve directed more features and commercials, I’ve become better at articulating exactly how I want the audience to feel.
+ - I’m a believer that people need to understand that filmmaking is not a perfect process for anybody. It is a process in which you find the film and the film finds you. And that is every film.
+ - Really, it’s the director’s job to disappear and allow the movie to just feel.
+ - I’ve been very, very lucky in my career, in my life – from day one. When aspiring directors say, ‘What’s your advice?’ first I say, ‘Be born the son of a famous director. It’s invaluable.’
+
+61 quotes

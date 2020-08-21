@@ -1,0 +1,66 @@
+ - The past is to be respected and acknowledged, but not worshipped; it is our future in which we will find our greatness.
+ - There is no such thing as a model or ideal Canadian. What could be more absurd than the concept of an “all Canadian” boy or girl? A society which emphasizes uniformity is one which creates intolerance and hate.
+ - Vive la France libre.
+ - Le raison avant la passion – Reason over passion.
+ - Luck, that’s when preparation and opportunity meet.
+ - My life is one long curve, full of turning points.
+ - Living next to you is in some ways like sleeping with an elephant. No matter how friendly and even-tempered is the beast, if I can call it that, one is affected by every twitch and grunt.
+ - I’ve been called worse things by better people.
+ - We wish nothing more, but we will accept nothing less. Masters in our own house we must be, but our house is the whole of Canada.
+ - Well, I am trying to put Quebec in its place – and the place of Quebec is in Canada, nowhere else.
+ - We are in the extreme centre, the radical middle. That is our position.
+ - The attainment of of a just society is the cherished hope of civilized men.
+ - I will use all my strength to bring about a just society to a nation living in a tough world.
+ - Paddling a canoe is a source of enrichment and inner renewal.
+ - The new frontier lies not beyond the planets but within each one of us.
+ - There’s no place for the state in the bedrooms of the nation. What’s done in private between adults doesn’t concern the Criminal Code.
+ - I walked until midnight in the storm, then I went home and took a sauna for an hour and a half. It was all clear. I listened to my heart and saw if there were any signs of my destiny in the sky, and there were none – there were just snowflakes.
+ - It is wonderful to be despised, if, deep down, we know we are right.
+ - The community of man should be treated in the same way you would treat your community of brothers or fellow citizens.
+ - Canada will be a strong country when Canadians of all provinces feel at home in all parts of the country, and when they feel that all Canada belongs to them.
+ - You just cannot cut a country in two any more than you can cut a human being in two. If you do, you do not have two human beings; you have a corpse.
+ - Power only tires those who don’t exercise it.
+ - Our hopes are high. Our faith in the people is great. Our courage is strong. And our dreams for this beautiful country will never die.
+ - If Canada is to survive, it can only survive in mutual respect and in love for one another.
+ - Bilingualism is not an imposition on the citizens. The citizens can go on speaking one language or six languages, or no languages if they so choose. Bilingualism is an imposition on the state and not the citizens.
+ - Canada is not a country for the cold of heart or the cold of feet.
+ - The next time you see Jesus Christ, ask Him what happened to the just society He promised 2,000 years ago.
+ - We peer so suspiciously at each other that we cannot see that we Canadians are standing on the mountaintop of human wealth, freedom and privilege.
+ - I saw the charter as an expression of my long-held view that the subject of law must be the individual human being; the law must permit the individual to fulfil himself or herself to the utmost.
+ - I remember thinking that walking on the beach as a free man is pretty desirable.
+ - As against the “invisible hand” of Adam Smith, there has to be a visible hand of politicians whose objective is to have the kind of society that is caring and humane.
+ - I was too busy doing my job and living my life to spend time keeping notes for some future volume of memoirs.
+ - Canada is a country whose main exports are hockey players and cold fronts. Our main imports are baseball players and acid rain.
+ - The state has no business in the bedrooms of the nation.
+ - In reality, though, the first thing to ask of history is that it should point out to us the paths of liberty. The great lesson to draw from revolutions is not that they devour humanity but rather that tyranny never fails to generate them.
+ - If I found in my own ranks that a certain number of guys wanted to cut my throat, I’d make sure that I cut their throats first.
+ - We must now establish the basic principles, the basic values and beliefs which hold us together as Canadians so that beyond our regional loyalties there is a way of life and a system of values which make us proud of the country that has given us such freedom and such immeasurable joy.
+ - I want to separate sin from crime. You may have to ask forgiveness for your sins from God, but not from the Minister of Justice. There’s no place for the state in the bedrooms of the nation.
+ - Let us overthrow the totems, break the taboos. Or better, let us consider them cancelled. Coldly, let us be intelligent.
+ - In academic life you seek to state absolute truths; in politics you seek to accommodate truth to the facts around you.
+ - I just think you Westerners should take over this country if you are so smart.
+ - Democracy demands that elected members be able to realize fully the role for which they have been chosen.
+ - Harvard was an extraordinary window on the world.
+ - Canada is seen to some as a confederation of shopping centres.
+ - The essential ingredient of politics is timing.
+ - Liberalism is the philosophy for our time, because it does not try to conserve every tradition of the past, because it does not apply to new problems the old doctrinaire solutions, because it is prepared to experiment and innovate and because it knows that the past is less important than the future.
+ - Some things I never learned to like. I didn’t like to kiss babies, though I didn’t mind kissing their mothers.
+ - People are more interested in ideas than dress.
+ - I must say that “Give Peace a Chance” has always seemed to me to be sensible advice.
+ - Obviously, the state’s responsibility should be to legislate rules for a well-ordered society. It has no right or duty to creep into the bedrooms of the nation.
+ - The politicians, who once stated that war was too complex to be left to the generals, now act as though peace were too complex to be left to themselves.
+ - A country, after all, is not something you build as the pharaohs built the pyramids, and then leave standing there to defy eternity. A country is something that is built every day out of certain basic shared values.
+ - When they are 50 yards from Parliament Hill, they are no longer honourable members, they are just nobodies.
+ - I believe a constitution can permit the co-existence of several cultures and ethnic groups with a single state.
+ - I bear solemn witness to the fact that NATO heads of state and of government meet only to go through the tedious motions of reading speeches, drafted by others, with the principal objective of not rocking the boat.
+ - I believe that Canada cannot, indeed, that Canada must not survive by force. The country will only remain united – it should only remain united – if its citizens want to live together in one civil society.
+ - The federal government is the balance wheel of the federal system, and the federal system means using counterweights.
+ - The state has an active role to play in ensuring that there is equilibrium between the constituent parts of the economy, the consumers and the producers.
+ - Society must take every means at its disposal to defend itself against the emergence of a parallel power which defies the elected power.
+ - I never actually got around to taping conversations with my guests, but there are a lot of things you can learn from a man like Nixon.
+ - The best thing you can possibly do for a friend is to be his friend.
+ - I think we have to realize that Canada is not immortal. But if it is going to go, let it go with a bang rather than a whimper.
+ - What is considered sinful in one of the great religions to which citizens belong isn’t necessarily sinful in the others. Criminal law therefore cannot be based on the notion of sin; it is crimes that it must define.
+ - The Jesuits were good educators, exceptional teachers. In an era and in a society where freedom of speech was not held in high regard, of course, that the discourse be focused on what they were teaching, but we were able to go beyond this framework without incurring too great a risk.
+
+64 quotes

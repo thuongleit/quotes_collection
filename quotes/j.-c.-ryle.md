@@ -1,0 +1,295 @@
+ - The heart that has really tasted the grace of Christ, will instinctively hate sin.
+ - Prayer is the mightiest weapon that God has placed in our hands.
+ - Trials are intended to make us think, to wean us from the world, to send us to the Bible, to drive us to our knees.
+ - To say that we are sorry for our sins is mere hypocrisy, unless we show that we are really sorry for them, by giving them up. Doing is the very life of repentance.
+ - HATE SIN! Instead of loving it, cleaving to it, excusing it, playing with it, we ought to hate it with a deadly hatred.
+ - The highest form of selfishness is that of the man who is content to go to heaven alone.
+ - There is a common, worldly kind of Christianity in this day, which many have, and think they have enough-a cheap Christianity which offends nobody, and requires no sacrifice-which costs nothing, and is worth nothing.
+ - A converted man will not wish to go to heaven alone.
+ - The best of men are men at best.
+ - No one ever reached heaven without repentance toward God, and faith toward our Lord Jesus Christ.
+ - Election is always to sanctification. Where there is no visible fruit of sanctification, we may be sure there is no election.
+ - No salvation without regeneration – no spiritual life without a new birth – no heaven without a new heart.
+ - God is far more willing to save sinners than sinners are to be saved.
+ - Oh, dear friend, if you love your children, I charge you, do not let the early impression of a habit of prayer slip by. If you train your children to do anything, train them, at least, to have a habit of prayer.
+ - Never let us be guilty of sacrificing any portion of truth on the altar of peace.
+ - We must wrestle earnestly in prayer, like men contending with a deadly enemy for life.
+ - Pride is the oldest and most common of sins. Humility is the rarest and most beautiful of graces.
+ - Let us seek friends that will stir up our prayers, our Bible reading, our use of time, and our salvation.
+ - Obedience is the only reality. It is faith visible, faith acting, and faith manifest. It is the test of real discipleship among the Lord’s people.
+ - A religion that costs nothing is worth nothing. A cheap Christianity, without a cross, will prove in the end a useless Christianity, without a crown.
+ - Except a man be born again, he will wish one day he had never been born at all.
+ - Tomorrow is the devil’s day, but today is God’s. Satan does not care how spiritual your intentions are, or how holy your resolutions, if only they are determined to be done tomorrow.
+ - Better to confess Christ 1000 times now and be despised by men, than be disowned by Christ before God on the day of Judgment.
+ - Blessed are they who feel like pilgrims and strangers in this life, and whose best things are all to come!
+ - Let us beware of repentance without evidence.
+ - Look not to yourselves! You are by nature wretched, miserable, poor, blind and naked. Look simply unto Jesus.
+ - Of all the doctrines of the Bible none is so offensive to human nature as the doctrine of God’s sovereignty.
+ - Prayer will consume sin, or sin will choke prayer.
+ - Holiness is the habit of being of one mind with God, according as we find His mind described in Scripture. It is the habit of agreeing in God’s judgment, hating what He hates, loving what He loves, and measuring everything in this world by the standard of His Word.
+ - Health is a good thing; but sickness is far better, if it leads us to God.
+ - A trial is an instrument by which our Father in heaven makes Christians more holy.
+ - Good hymns are an immense blessing to the Church. They train people for heaven, where praise is one of the principal occupations.
+ - I believe it to be clear evidence of the Spirit’s presence when the Word of God is really precious to a person’s soul.
+ - Look to the cross, think of the cross, meditate on the cross, and then go and set your affections on the world if you can.
+ - Hell itself is truth known too late.
+ - To be prayerless is to be without God, without Christ, without grace, without hope, and without heaven.
+ - O Christian, look up and take comfort. Jesus has prepared a place for you, and those who follow Him shall never perish, neither shall anyone pluck them out of His hands.
+ - We are all naturally self-righteous. It is the family disease of all the children of Adam.
+ - Do not glory in your own faith, your own feelings, your own knowledge, or your own diligence. Glory in nothing but Christ.
+ - The children of God all have a cross to bear. A suffering Savior generally has suffering disciples.
+ - We have the truth and we need not be afraid to say so.
+ - Unity without the gospel is a worthless unity; it is the very unity of hell.
+ - No time is so well spent in every day as that which we spend upon our knees.
+ - Naked we came upon earth, and naked we go forth, and of all our possessions, we can carry nothing with us.
+ - Sin forsaken is one of the best evidences of sin forgiven.
+ - Nothing so hardens the heart of man as a barren familiarity with sacred things.
+ - There is only one door, one bridge, one ladder, between earth and heaven – the crucified Son of God.
+ - The harvest of the Lord’s field is seldom ripened by sunshine only. It must go through its days of wind, rain and storm.
+ - God does not look at riches, titles, education, or beauty. There is only one thing that God does look at, and that is the soul.
+ - Your trials, crosses, and conflicts are all temporary.
+ - Fear not because your prayer is stammering, your words feeble, and your language poor. Jesus can understand you.
+ - Prayer is the very life-breath of true Christianity.
+ - Since Satan can’t destroy the gospel, he has too often neutralized its usefulness by addition, subtraction or substitution.
+ - Do something, by God’s help, to make heaven more full and hell more empty.
+ - Let us receive nothing, believe nothing, follow nothing which is not in the Bible, nor can be proved by the Bible.
+ - Our prayers may be weak, stammering, and poor in our eyes. But if they come from a right heart, God understands them. Such prayers are His delight.
+ - Beware of self-righteousness in every possible shape and form. Some people get as much harm from their “virtues” as others do from their sins.
+ - We should no more tolerate false doctrine that we would tolerate sin.
+ - Beware of manufacturing a God of your own: a God who is all mercy, but not just. Such a God is an idol of your own.
+ - Take away the cross of Christ, and the Bible is a dark book.
+ - The love of Christ towards His people is a deep well which has no bottom.
+ - The blood of Christ can cleanse away all sin. But we must ‘plead guilty’ before God can declare us innocent.
+ - Faith is to the soul what life is to the body. Prayer is to faith what breath is to the body. How a person can live and not breathe is past my comprehension, and how a person can believe and not pray is past my comprehension too.
+ - True Christianity is not merely believing a certain set of dry abstract propositions: it is to live in daily personal communication with an actual living person – Jesus Christ.
+ - We ought to regard the sacrament of baptism with reverence. An ordinance of which the Lord Jesus Himself partook, is not to be lightly esteemed. An ordinance to which the great Head of the Church submitted, ought to be ever honorable in the eyes of professing Christians.
+ - Christ is never fully valued, until sin is clearly seen. We must know the depth and malignity of our disease, in order to appreciate the great Physician.
+ - The fear of punishment, the desire of reward, the sense of duty, are all useful arguments, in their way, to persuade people to holiness. But they are all weak and powerless, until a person loves Christ.
+ - Christ’s death is the Christian’s life. Christ’s cross is the Christian’s title to heaven. Christ “lifted up” and put to shame on Calvary is the ladder by which Christians “enter into the holiest,” and are at length landed in glory.
+ - Let your Christianity be so unmistakable, your eye so single, your heart so whole, your walk so straightforward, that all who see you may have no doubt whose you are, and whom you serve.
+ - We must give up the vain idea of trying to please everybody. That is impossible, and the attempt is a mere waste of time. We must be content to walk in Christ’s steps, and let the world say what it likes.
+ - The only way to be really happy in such a world as this, is to be ever casting all our cares on God.
+ - What is the best safeguard against false doctrine? The Bible regularly read, regularly prayed over, regularly studied.
+ - The nearer we live to God while we live, the more ready we will be to dwell forever in His presence when we die.
+ - Laughter, ridicule, opposition and persecution are often the only reward which Christ’s followers get from the world.
+ - It is neglect of the Bible which makes so many a prey to the first false teacher whom they hear.
+ - Beware of letting small faults pass unnoticed under the idea it is a little one. There are no little things in training children; all are important. Little weeds need plucking up as much as any. Leave them alone and they will soon be great.
+ - What would you expect? Sin will not come to you saying, ‘I am sin.’ It would do little harm if it did. Sin always seems ‘good, pleasant and desirable’ at the time of arrival.
+ - Prosperity is a great mercy, but adversity is a greater one, if it brings us to Christ.
+ - Let us be real, honest, and sincere in our Christianity. We cannot deceive an all-seeing God.
+ - There will be no universal peace until the Prince of Peace appears.
+ - Let it never surprise true Christians if they are slandered and misrepresented in this world. They must not expect to fare better than their Lord.
+ - How can we love sin, when we remember that because of our sins Jesus died?
+ - The love of our Lord Jesus Christ towards sinners is strikingly shown in His steady purpose of heart to die for them.
+ - Without a thorough conviction of sin, men may seem to come to Jesus and follow Him for a season, but they will soon fall away and return to the world.
+ - The cause of Christ does not need less working, but it does need among the workers, more praying.
+ - Do we profess to love Christ? Then let us show it by our lives.
+ - Until we give God our heart, we give Him nothing at all.
+ - There is one subject in religion, about which you can never know too much. That subject is Jesus Christ the Lord.
+ - Wherever we may be, or whatever our circumstances, the Lord Jesus sees them. We are never beyond the reach of His care.
+ - The true cure for self-righteousness is self-knowledge.
+ - A zealous man feels that like a lamp he is made to burn; and if consumed in burning, he has but done the work for which God appointed him. Such a one will always find a sphere for his zeal. If he cannot preach and work and give money, he will cry and sigh and pray.
+ - Meekness is one of the brightest graces which can adorn the Christian character.
+ - However corrupt our hearts, and however wicked our past lives, there is hope for us in the Gospel.
+ - The best of men are only men at their very best. Patriarchs, prophets, and apostles, – martyrs, fathers, reformers, puritans, – all are sinners, who need a Savior: holy, useful, honorable in their place – but sinners after all.
+ - Assurance of hope is more than life, it is health, strength, power, vigor, activity, energy, manliness, beauty.
+ - True worship leads to a more full knowledge of self, God, heaven, duty, doctrine, practice and experience.
+ - According to the men of the world, few are going to hell; According to the Bible, few are going to heaven.
+ - Sanctification is the outcome and inseparable consequence of regeneration. He who is born again and made a new creature receives a new nature and a new principle and always lives a new life.
+ - The first step towards attaining a higher standard of holiness is to realize more fully the amazing sinfulness of sin.
+ - Miserable indeed is that religious teaching which calls itself Christian, and yet contains nothing of the cross.
+ - There is more to be learned at the foot of the Cross than anywhere else in the world.
+ - Christmas is a season which almost all Christians observe in one way or another. Some keep it as a religious season. Some keep it as a holiday. But all over the world, wherever there are Christians, in one way or another Christmas is kept.
+ - Every fresh act of sin lessens fear and remorse, hardens our hearts, blunts the edge of our conscience, and increases our evil inclination.
+ - Conversion is not putting a man in an armchair and taking him easily to heaven. It is the beginning of a mighty conflict, in which it costs much to win the victory.
+ - What you think now about the cross of Christ, I cannot tell; but I can wish you nothing better than this – that you may be able to say with the apostle Paul, before you die or meet the Lord, ‘God forbid that I should glory, save in the cross of our Lord Jesus Christ.’
+ - Wealth is no mark of God’s favor. Poverty is no mark of God’s displeasure.
+ - The eye of God! Think of that. Everywhere, in every house, in every field, in every room, in every company, alone or in a crowd, the eye of God is always upon you.
+ - We may love money without having it, just as we may have money without loving it.
+ - Are you tempted? Look unto Jesus. Are you afflicted? Look unto Jesus. Do all speak evil of you? Look unto Jesus. Do you feel cold, dull, and backsliding? Look unto Jesus.
+ - A Christian is a walking sermon. They preach far more than a minister does, for they preach all week long.
+ - The parent who tries to train without setting a good example is building with one hand, and pulling down with the other.
+ - By affliction Christ shows us our emptiness and weakness, draws us to the throne of grace, purifies our affections, weans us from the world, and makes us long for heaven.
+ - Faith in the Lord Jesus is the only sure medicine for troubled hearts.
+ - No prayers can be heard which do not come from a forgiving heart.
+ - Backsliding, generally first begins with neglect of private prayer.
+ - True Christians delight to read the Scriptures, because they tell them about their beloved Savior.
+ - Troublous times, departures from the faith, evil men waxing worse and worse, love waxing cold, are things distinctly predicted.
+ - Men fall in private long before they fall in public.
+ - He does not regard the quantity of faith, but the quality. He does not measure its degree, but its truth. He will not break any bruised reed, nor quench any smoking flax. He will never let it be said that any perished at the foot of the cross.
+ - The chief end for which Christ lived and died: To provide eternal redemption for sinners.
+ - People will never set their faces decidedly towards heaven, and live like pilgrims, until they really feel that they are in danger of hell.
+ - One single soul saved shall outlive and outweigh all the kingdoms of the world.
+ - It was the whole Trinity, which at the beginning of creation said, “Let us make man”. It was the whole Trinity again, which at the beginning of the Gospel seemed to say, “Let us save man”.
+ - The work of the preacher resembles that of the sower. Like the sower, the preacher must sow good seed, the Word of God.
+ - Weak, feeble and foolish as it may seem to people, the simple story of the Cross is enough for all mankind in every part of the globe.
+ - If you want to warm a church, put a stove in the pulpit.
+ - If you profess to be a child of God, leave it to the Lord Jesus to sanctify you in His own way.
+ - We must read our Bibles like men digging for hidden treasure.
+ - The temple in which the Lord Jesus delights most, is a broken and contrite heart, renewed by the Holy Spirit.
+ - When the Lord Jesus Christ gives a man remission of sins, He also gives him repentance.
+ - The devil has more knowledge than any of us, and yet is no better for it.
+ - People fall in private, long before they fall in public. The tree falls with a great crash, but the secret decay which accounts for it, is often not discovered until it is down on the ground.
+ - Our Lord has many weak children in his family, many dull pupils in his school, many raw soldiers in his army, many lame sheep in his flock. Yet he bears with them all, and casts none away. Happy is that Christian who has learned to do likewise with his brethren.
+ - No one ever said at the end of his days; ‘I have read my bible too much, I have thought of God too much, I have prayed too much, I have been too careful with my soul’
+ - If God has given His Son to die for us, let us beware of doubting His kindness and love in any painful providence of our daily life.
+ - We must be holy, because this is the only sound evidence that we have a saving faith in our Lord Jesus Christ.
+ - If you and sin are friends, you and God are not yet reconciled.
+ - When I speak of a man growing in grace, I mean simply this – that his sense of sin is becoming deeper, his faith stronger, his hope brighter, his love more extensive, his spiritual mindedness more marked.
+ - Happiness does not depend on outward circumstances, but on the state of the heart.
+ - Young men, I beseech you earnestly, beware of pride. Two things are said to be very rare sights in the world- one is a young man that is humble, and the other is an old man that is content. I fear that this is only too true.
+ - Imagination is the hotbed where this sin is too often hatched. Guard your thoughts, and there will be little fear about your actions.
+ - We are evidently no friends of Satan. Like the kings of this world, he wars not against his own subjects. The very fact that he assaults us should fill our minds with hope.
+ - Whatever you read, read the Bible first. Beware of bad books: there are plenty in this day. Take heed what you read.
+ - If you want to find out how much someone loves you, find out how much they pray for you.
+ - Let us cleave to Christ more closely, love Him more heartily, live to Him more thoroughly, copy Him more exactly, confess Him more boldly, and follow Him more fully.
+ - I should as soon expect a farmer to prosper in business who contented himself with sowing his fields and never looking at them till harvest, as expect a believer to attain much holiness who was not diligent about his Bible reading, his prayers, and the use of his Sundays.
+ - The beginning of the way to heaven, is to feel that we are on the way to hell.
+ - There is no fickleness about Jesus: those whom He loves, He loves to the end.
+ - The surest mark of true conversion is humility.
+ - Pride comes from not knowing yourself and the world. The older you grow, and the more you see, the less reason you will find for being proud. Ignorance and inexperience are the pedestal of pride; once the pedestal is removed – pride will soon come down.
+ - The person that goes regularly and intelligently to the Lord’s Table finds it increasingly hard to yield to sin and conform to the world.
+ - We want more men and women who walk with God and before God, like Enoch and Abraham.
+ - The true secret of spiritual strength is self-distrust and deep humilty.
+ - We corrupt the Word of God most dangerously, when we throw any doubt on the plenary inspiration of any part of Holy Scripture.
+ - In justification the word to be addressed to man is believe – only believe; in sanctification the word must be ‘watch, pray, and fight.’
+ - The world’s idea of greatness is to rule, but Christian greatness consists in serving.
+ - Knowledge of the Bible never comes by intuition. It can only be obtained by diligent, regular, daily, attentive reading.
+ - I must honestly declare my conviction that, since the days of the Reformation, there never has been so much profession of religion without practice, so much talking about God without walking with Him, so much hearing God’s words without doing them...
+ - It costs something to be a true Christian. It will cost us our sins, our self-righteousn ess, our ease and our worldliness.
+ - We live in an age when there is a false glare on the things of time and a great mist over the things of eternity.
+ - Sicknesses, losses, crosses, anxieties and disappointments seem absolutely needful to keep us humble, watchful and spiritual-minde d. They are as needful as the pruning knife to the vine and the refiner’s furnace to the gold.
+ - Let us only take heed that this office of Christ is not set before us in vain. It will profit us nothing at the last day that Jesus was a Shepherd, if during our lifetime, we never heard His voice and followed Him. If we love life, let us join His flock without delay.
+ - Let us watch against pride in every shape-pride of intellect, pride of wealth, pride of our own goodness.
+ - Love should be the silver thread that runs through all your conduct.
+ - I declare I know no state of soul more dangerous than to imagine we are born again and sanctifiied by the Holy Spirit, because we have picked up a few religious feelings.
+ - Just as the first sign of life in an infant when born into the world is the act of breathing, so the first act of men and women when they are born again is praying.
+ - Children are very quick observers; very quick in seeing through some kinds of hypocrisy, very quick in finding out what you really think and feel, very quick in adopting all your ways and opinions. You will often discover that, as the father is, so is the son.
+ - The Gospel which we possess was not given to us only to be admired, talked of, and professed – but to be practiced.
+ - Be very sure of this,-people never reject the Bible because they cannot understand it. They understand it only too well; they understand that it condemns their own behavior; they understand that it witnesses against their own sins, and summons them to judgment.
+ - There are eternal consequences resulting from all our thoughts, words and actions, of which we take far too little account.
+ - My chief desire in all my writings, is to exalt the Lord Jesus Christ and make Him beautiful and glorious in the eyes of people; and to promote the increase of repentance, faith, and holiness upon earth.
+ - Doctrine is useless if it is not accompanied by a holy life. It is worse than useless; it does positive harm. Something of ‘the image of Christ’ must be seen and observed by others in our private life, and habits, and character, and doings.
+ - The rulers of the earth plan, and scheme, and make laws, and change laws, and war, and pull down one, and raise up another. But they little think that they rule only by the will of Jesus, and that nothing happens without the permission of the Lamb of God.
+ - Let us resolve by God’s grace that, however feeble and poor our prayers may seem to us, we will pray on.
+ - Nothing perhaps affects man’s character more than the company he keeps.
+ - There is a vast quantity of religion current in the world which is not true, genuine Christianity. It passes muster, it satisfies sleepy consciences; but it is not good money. It is not the authentic reality that called itself Christianity in the beginning.
+ - Live as if you thought that Christ might come at any time.
+ - Prayer needs neither learning, wisdom or book knowledge to begin it. It needs nothing but heart and will.
+ - That preaching is sadly defective which dwells exclusively on the mercies of God and the joys of heaven, yet never sets forth the terrors of the Lord and the miseries of hell.
+ - It must not content us to take our bodies to church if we leave our hearts at home.
+ - We know nothing of humility by nature, for we are all born proud.
+ - The Word of God is ROCK. All else is sand.
+ - Conduct is the grand test of character. Words are one great evidence of the condition of the heart.
+ - If Christ had not gone to the cross and suffered in our stead, the just for the unjust, there would not have been a spark of hope for us. There would have been a mighty gulf between ourselves and God, which no man ever could have passed.
+ - The doctrine of Christ crucified is the strength of a Minister. I, for one, would not be without it for all the world.
+ - Sin always seems ‘good, and pleasant, and desirable,’ at the time of commission.
+ - Let us be very careful that we never exalt any minister, or sermon, or book, or friend above the Word of God.
+ - Knowledge of the Bible never comes by intuition.
+ - We can never make too much of Christ. He is worthy of all the honor that we can give Him.
+ - All converted people should labor to adorn the doctrine they profess by humility. If they can do nothing else, they can strive to be humble.
+ - Nothing is so offensive to Christ as lukewarmness in religion.
+ - What is the cause of most backslidings? I believe, as a general rule, one of the chief causes is neglect of private prayer.
+ - People are backsliders on their knees long before they backslide openly in the eyes of the world.
+ - To be Christian it will cost a man his love of ease.
+ - The Gospel was not meant merely to reside in our intellect, memories, and tongues, but to be seen in our lives.
+ - God knew what we were before conversion – wicked, guilty, and defiled; yet He loved us. He knows what we will be after conversion – weak, erring, and frail; yet He loves us.
+ - Whatever others around you think, don’t you ever be ashamed of being a Christian.
+ - Let us read the Bible reverently and diligently, with an honest determination to believe and practice all we find in it.
+ - On the one hand stand salvation by free grace for Christ’s sake; but on the other stands renewal of the carnal heart by the Spirit. We must be changed as well as forgiven; we must be renewed as well as redeemed.
+ - If you train your children to anything, train them, at least, to a habit of prayer.
+ - Never does a person see any beauty in Christ as a Savior, until they discover that they are a lost and ruined sinner.
+ - Without the blessing of the Lord, your best endeavors will do no good. He has the hearts of all men in His hands, and except He touch the hearts of your children by His Spirit, you will weary yourself to no purpose. Water, therefore, the seed you sow on their minds with unceasing prayer.
+ - I maintain that to tell a person they are born again, while they are living in carelessness or sin, is a dangerous delusion.
+ - It is not always those who have the most eminent gifts who are the most successful laborers for God. It is generally those who keep up closest communion with Christ and are most constant in prayer.
+ - Hearken, my believing reader. What is the cause of your weakness? Is it not because the fountain of life is little used? Is it not because you are resting on old experiences, and not daily gathering new manna – daily drawing new strength from Christ?
+ - Prayer is the surest remedy against the devil and besetting sins.
+ - We are all so sunk in sin, and so wedded to the world, that we would never turn to God and seek salvation, unless He first called us by His grace. Without a divine call, no one can be saved.
+ - A Bible reading laity is a nation’s surest defence against error.
+ - A Christian is nothing more than a sinner who has found out their sinfulness, and has learned the blessed secret of living by faith in Christ.
+ - God has linked holiness and happiness; and what God has joined together we must not think to put asunder.
+ - Follow Christ for His own sake, if you follow Him at all.
+ - The minister who keeps back hell from his people in his sermons is neither a faithful nor a charitable man.
+ - If you would train your children rightly, train them in the way they should go and not in the way they would.
+ - The standard of the world, and the standard of the Lord Jesus, are indeed widely different. They are more than different. They are flatly contradictory one to the other.
+ - What could an unsanctified man do in Heaven, if by any chance he got there? Let that question be fairly looked in the face and fairly answered. No man can possibly be happy in a place where he is not in his element and where all around him is not congenial to his tastes, habits and character.
+ - Next to praying there is nothing so important in practical religion as Bible-reading.
+ - A right knowledge of sin lies at the root of all saving Christianity.
+ - If I never spoke of hell, I should think I had kept back something that was profitable, and should look on myself as an accomplice of the devil.
+ - He that would be conformed to Christ’s image, and become a Christ-like man, must be constantly studying Christ Himself.
+ - A zealous Savior ought to have zealous disciples.
+ - Let it be a settled principle in our minds that the first and chief business of the Church of Christ is to preach the Gospel.
+ - The very sermon that we needlessly miss, may contain a precious word in season for our souls.
+ - Let us never forget that our chief danger is from within. The world and the devil combined, cannot do us as much harm as our own hearts will, if we do not watch and pray.
+ - The faith that has not a sanctifying influence on the character is no better than the faith of devils.
+ - It is not hard to deceive ministers, relatives and friends. But it is impossible to deceive Christ.
+ - When a person’s tongue is extensively wrong, it is absurd, no less than unscriptural, to say that their heart is right.
+ - Any well-read man knows that the moral difference between the condition of the world before Christianity was planted and since Christianity took root is the difference between night and day, the kingdom of heaven and the kingdom of the devil.
+ - If we would have good ministers, we must remember our Lord’s example, and pray for them. Their work is heavy. Their responsibility is enormous. Their strength is small. Let us see that we support them, and hold up their hands by our prayers.
+ - What is the reason that some believers are so much brighter and holier than others? I believe the difference, in nineteen cases out of twenty, arises from different habits about private prayer. I believe that those who are not eminently holy pray little, and those who are eminently holy pray much.
+ - Churches may decay and perish; riches may make themselves wings and fly away-but he who builds their happiness on Christ crucified and union with Him by faith, that person is standing on a foundation which shall never be moved, and will know something of true peace.
+ - Let us strive, every year we live, to become more deeply acquainted with Scripture.
+ - That Bible is read best – which is practiced most!
+ - If anyone feels his sins, let him come at once, straight, direct, not merely to church, or to the sacrament, or to repentance, or to prayer, but to Christ Himself.
+ - Go to the cross of Christ, all you that want to be delivered from the power of selfishness.
+ - I am one of those old-fashioned ministers who believe the whole Bible and everything that it contains.
+ - Two-thirds of all the strifes, quarrels, and lawsuits in the world arise from one simple cause-money.
+ - Growth in grace is one way to be happy in our religion. God has wisely linked together our comfort and our increase in holiness.
+ - If you love Christ, never be ashamed to let others see it and know it. Speak for Him. Witness for Him. Live for Him.
+ - We never know who they are that God will draw, and have nothing to do with it. Our duty is to invite all, and leave it to God to choose the vessels of mercy.
+ - Let us daily strive to copy our Saviour’s humility.
+ - The key to understanding the Bible is Jesus Christ.
+ - The Christian who keeps their heart diligently in little things shall be kept from great falls.
+ - Surely if there be any habit which your own hand and eye should help in forming, it is the habit of prayer.
+ - Never be satisfied with the world’s standard of Christianity!
+ - A good conscience will be found a pleasant visitor at our bedside in a dying hour.
+ - No person ever thought too much of Christ.
+ - A saved soul has many sorrows. They have their share of bereavements, deaths, disappointments, crosses. What shall enable a believer to bear all this? Nothing but the consolation there is in Christ.
+ - A right heart leans on Christ, hangs on Christ, builds on Christ and cleaves to Christ.
+ - Experience supplies painful proof that traditions once called into being are first called useful, then they become necessary. At last they are too often made idols, and all must bow down to them or be punished.
+ - If Christianity is a mere invention of man, and the Bible is not from God, how can infidels explain Jesus Christ? His existence in history they cannot deny. How is it that without force or bribery, without arms or money, He has made such an immensely deep mark on the world as He certainly has?
+ - The Christianity that saves is a thing personally grasped, personally experienced, personally felt and personally possessed.
+ - Am I honest? Am I sincere? Do I really desire first the praise of God?
+ - Before Christ comes, it is useless to expect to see the perfect church.
+ - Where no visible fruit can be found, there you may be sure is no conversion.
+ - Let us never measure our religion by that of others, and think we are doing enough if we have gone beyond our neighbors.
+ - We know but little of true Christianity, if we don’t feel a deep concern about the souls of unconverted people.
+ - Let us learn to be patient in the days of darkness, if we know anything of vital union with Christ.
+ - There is something sadly wrong when it is more important to us whether others are a part of our denomination, rather than whether they repent of sin, believe on Christ and live holy lives.
+ - There must not only be good preaching, but good hearing.
+ - A man’s state before God may always be measured by his prayers.
+ - Wrong views about holiness are generally traceable to wrong views about human corruption.
+ - So long as you do not quarrel with sin, you will never be a truly happy man.
+ - The ‘means of grace’ are such as Bible reading, private prayer, and regularly worshiping God in Church, wherein one hears the Word taught and participates in the Lord’s Supper.
+ - Nothing is so fickle and uncertain as popularity. It is here today and gone tomorrow. It is a sandy foundation, and sure to fail those who build upon it.
+ - How is it that many who profess and call themselves Christians, do so little for the Savior whose name they bear?
+ - There are no lessons so useful as those learned in the school of affliction.
+ - A true Christian is one who has not only peace of conscience, but war within. He may be known by his warfare as well as by his peace.
+ - The love of the Bible will show itself in a believer’s actions.
+ - Inability to distinguish doctrine is spreading far and wide, and so long as the preacher is “clever” and “earnest,” hundreds seem to think it must be all right, and call you dreadfully “narrow and uncharitable” if you hint that he is unsound!
+ - The Bible in the pulpit must never supersede the Bible at home.
+ - Who shall dare to talk of strength when David can fall?
+ - I fear we are in danger of forgetting that to HAVE the Bible is one thing, and to READ it quite another.
+ - The man who has nothing more than a kind of Sunday religion – whose Christianity is like his Sunday clothes put on once a week, and then laid aside – such a man cannot, of course, be expected to care about growth in grace.
+ - When you cannot answer a skeptic, be content to wait for more light; but never forsake a great principle.
+ - Millions of people profess and call themselves Christians, whom the Apostle Paul would not have called Christians at all.
+ - The brightest saint is the man who has the most heart-searching sense of his own sinfulness, and the liveliest sense of his own complete acceptance in Christ.
+ - Doubting does not prove that a man has no faith, but only that his faith is small. And even when our faith is small, the Lord is ready to help us.
+ - If you do not love Christ, let me plainly tell you what is the reason: You have no sense of debt to Him.
+ - If we would know whether our faith is genuine, we do well to ask ourselves how we are living.
+ - Value all books in proportion as they are agreeable to Scripture. Those that are nearest to it are the best, and those that are farthest from it, and most contrary to it, the worst.
+ - A crucified Savior will never be content to have a self-pleasing, self-indulging, worldly-minded people.
+ - But if there is one thing clearly and plainly laid down about election, it is this: that elect men and women may be known and distinguished by holy lives.
+ - The last day will prove that some of the holiest men that ever lived are hardly known.
+ - A man may just as soon read the Scripture without eyes, as understand the spirit of it without grace.
+ - The true Christian delights to hear something about their Master. They like those sermons best which are full of Christ.
+ - Sin rarely seems sin at first beginnings.
+ - People may refuse to see the truth of our arguments, but they cannot evade the evidence of a holy life.
+ - The true Christian does not need to be reminded that they have a crucified Master. They OFTEN think of Him.
+ - Sin and the devil will always find helpers in our hearts.
+ - Persecution, in short, is like the goldsmith’s stamp on real silver and gold – it is one of the marks of a converted man.
+ - The Bible applied to the heart by the Holy Ghost is the chief means by which men are built up and established in the faith, after their conversion. It is able to cleanse them, to sanctify them, to instruct them in righteousness, and to furnish them thoroughly for all good works.
+ - Do you wish to grow in grace and be a holy Christian? Then never forget the value of prayer.
+ - Make it a part of every day’s business to read and meditate on some portion of God’s Word. Private means of grace are just as needful every day for our souls as food and clothing are for our bodies.
+
+293 quotes

@@ -1,0 +1,54 @@
+ - The first responsibility of a leader is to define reality. The last is to say thank you. In between, the leader is a servant.
+ - We can accomplish more together than we can alone.
+ - We need to give each other the space to grow, to be ourselves, to exercise our diversity. We need to give each other space so that we may both give and receive such beautiful things as ideas, openness, dignity, joy, healing, and inclusion.
+ - In the end, it is important to remember that we cannot become what we need to be by remaining what we are.
+ - Leaders should be able to Stand Alone, Take the Heat, Bear the Pain, Tell the Truth, and Do What’s Right.
+ - The leader is the servant who removes the obstacles that prevent people from doing their jobs.
+ - Leaders don’t inflict pain – they share pain.
+ - Leadership is much more an art, a belief, a condition of the heart, than a set of things to do.
+ - The first responsibility of a leader is to define reality.
+ - We do not grow by knowing all of the answers, but rather by living with the questions.
+ - There may be no single thing more important in our efforts to achieve meaningful work and fulfilling relationships than to learn to practice the art of communication.
+ - Earning trust is not easy, nor is it cheap, nor does it happen quickly. Earning trust is hard and demanding work. Trust comes only with genuine effort, never with a lick and a promise.
+ - To be a leader means, especially, having the opportunity to make a meaningful difference in the lives of those who permit leaders to lead.
+ - Change without continuity is chaos. Continuity without change is sloth-and very risky.
+ - We can go through anything because Jesus goes before us.
+ - We talk about the quality of product and service. What about the quality of our relationships and the quality of our communications and the quality of our promises to each other?
+ - A whale is as unique as a cactus. But don’t ask a whale to survive Death Valley. We all have special gifts. Where we use them and how determines whether we actually complete something.
+ - Without forgiveness, there can be no real freedom to act within a group.
+ - Trust cannot be bought or commanded, inherited or enforced. To maintain it, leaders must continually earn it.
+ - By ourselves we suffer serious limitations. Together we can be something wonderful.
+ - Leaders should leave behind them assets and a legacy.
+ - Understanding the diversity of our gifts enables us to begin taking the crucial step of trusting each other.
+ - The greatest thing is, at any moment, to be willing to give up who we are in order to become all that we can be.
+ - Trust grows when people see leaders translate their personal integrity into organizational fidelity. At the heart of fidelity lies truth-telling and promise-keeping.
+ - Trust comes only with genuine effort, never with a lick and a promise.
+ - The simple act of recognizing diversity in corporate life helps us to connect the great variety of gifts that people bring to the work and service of the corporation.
+ - In some South Pacific cultures, a speaker holds a conch shell as a symbol of temporary position of authority. Leaders must understand who holds the conch-that is, who should be listened to and when.
+ - Integrity in all things precedes all else. The open demonstration of integrity is essential.
+ - Leaders who keep promises and followers who respond in kind create an opportunity generate enormous energy around their commitment to serve others.
+ - A friend of mine characterizes leaders simply like this: Leaders don’t inflict pain. They bear pain.
+ - Above all, leadership is a position of servanthood.
+ - When trust permeates a ministry, great things are possible, not the least of which is an opportunity to reach the ministry’s potential.
+ - No question about it: potential is wrapped in great mystery. Like rainbows, which are really circles-we see only the upper halves, the horizon hides the rest-potential never reveals its entirety.
+ - We cannot avoid growing old; but we can avoid growing cold.
+ - Innovation is the lifeblood of an organization. Knowing how to lead and work with creative people requires knowledge and action that often goes against the typical organizational structure. Protect unusual people from bureaucracy and legalism typical of organizations.
+ - The signs of outstanding leadership appear primarily among the followers.
+ - Jazz, like leadership, combines the unpredictability of the future with the gifts of individuals.
+ - Intimacy is at the heart of competence. It has to do with understanding, with believing, and with practice. It has to do with the relationship to one’s work.
+ - We are alone, absolutely alone on this chance planet; and amid all the forms of life that surround us, not one, excepting the dog has made an alliance with us.
+ - Leadership is like third grade: it means repeating the significant things.
+ - When things go awry, trust powers the generators until the problem is fixed.
+ - The signs of outstanding leadership appear primarily among the followers. Are the followers reaching their potential? Are they learning? Serving? Do they achieve the required results? Do they change with grace? Manage conflict?
+ - A team of giants needs giant pitchers who throw good ideas but every pitcher needs an outstanding catcher. Without giant catchers, the ideas of the giant pitchers may eventually disappear.
+ - In most vital organizations, there is a common bond of interdependence, mutual interest, interlocking contributions, and simple joy.
+ - We can choose to see life as a series of trials and tribulations, or we can choose to see life as an accumulation of treasures.
+ - History can’t be left to fend for itself. For when it comes to history and beliefs and values, we turn our future on the lathe of the past.
+ - When we think about the people with whom we work, people on whom we depend, we can see that without each individual, we are not going to go very far as a group. By ourselves, we suffer serious limitations. Together we can be something wonderful.
+ - Leadership is liberating people to do what is required of them in the most effective and humane way possible.
+ - Everyone in a successful organization must be willing and ready to risk. Risk is like change; it’s not a choice.
+ - From a leader’s perspective, the most serious betrayal has to do with thwarting human potential, with quenching the spirit, with failing to deal equitably with each other as human beings.
+ - We see a decline of civility, and, sadly, it’s often modeled by the very people from whom we have the least right to expect it.
+ - We can teach ourselves to see things the way they ARE. Only with vision can we begin to see things the way they CAN BE.
+
+52 quotes

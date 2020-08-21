@@ -1,0 +1,25 @@
+ - Everyone wants to beat us. So you can never take a single game lightly.
+ - It’s not that difficult to win. It’s more difficult to win consistently and stay on top.
+ - You come out hurting all over, and what didn’t hurt, didn’t work.
+ - You must also give mental and physical fitness priority.
+ - I liked to play against all the teams in the National Football League or the American Football League, because they were always a challenge.
+ - You have to stay one level above everyone else.
+ - When I hear anything derogatory towards the Raiders, I am definitely hurt.
+ - I also played in the 1967 Super Bowl against the Green Bay Packers.
+ - If something is said about the Raiders, I’m ready to go to war.
+ - The NFL offensive blocking is played differently; they use their hands instead of their head and shoulders.
+ - I was told in high school that the last game during your senior year stays with you forever, which is true.
+ - And as a true athlete, mistakes haunt you forever.
+ - I’ve been a Raider all my life.
+ - I have seen the Raiders develop into what they are today.
+ - The first game I played. We played against the Dallas Texans.
+ - I think the officials and NFL owners are playing to the type of game that people want to see.
+ - The plays I remember are the plays I made a mistake.
+ - I think the tougher the challenge the better.
+ - If the entire team can feel the same way about these things, you can consistently remain a winner.
+ - We have always had great and loyal fans in Oakland.
+ - I work here at the Raiders. My position is basically what I make it.
+ - Everyday I walked on to the field I was the best center.
+ - I think Ray Guy and John Madden for sure should be in the Hall of Fame and Cliff Branch should be as well.
+
+23 quotes

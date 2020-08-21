@@ -1,0 +1,111 @@
+ - Writing a first draft and reminding myself that I’m simply shoveling sand into a box so that later I can build castles.
+ - Life is short, so live extra lives. Read books.
+ - It was karma, it was kismet, it was magic. It doesn’t matter how it happened, just that it did.
+ - I’m not bossy – I just happen to be more capable than most everyone else.
+ - Really, becoming a writer sounds more like a mental illness than a professional choice.
+ - I think the only way to get through this life is laughing hard and constantly, mostly at myself.
+ - You are my butterfly and refuse to set you free.
+ - Smell is the voice of the soul...
+ - But the hoping, that’s what really hurts.
+ - No wolf falters before the bite So strike No hawk wavers before the dive Just strike.
+ - When you get tired of worrying and mourning your horse and trying not to be afraid, tell me and I’ll do it for you a while so you can shut your eyes and sleep peaceful.
+ - Look no farther than your hand, Make a choice and take a stand.
+ - Mama used to say, you have to know someone a thousand days before you can glimpse her soul.
+ - Many times I have learned that, you never judge a book by its cover. Like people, it is the inside that counts.
+ - Throwing herself into learning helped Miri ignore the painful chill of solitude around her.
+ - Miss Hayes, have you stopped to consider that you might have this all backward? That in fact you are my fantasy?
+ - Truth is when your mind and your gut agree.
+ - What should I say? That I like him so much it hurts?
+ - Right now I’d like all my troubles to stand in front of me in a straight line, and one by one I’d give each a black eye.
+ - I, Geric-Sinath of Gerhard, declare that you’re beautiful and you’re perfect and I’ll slay any man who tries to take you from my side. Goose girl, may I kiss you?
+ - All I’ve ever wanted was to be near you.
+ - He smiled in a way that made me want to kiss him right on the spot. Or the lips. Whichever was closer.
+ - They laughed much harder than the memory was funny because it felt good to laugh.
+ - I cannot write to anyone outside myself – if I tried, it would be a horrible story, flat and lifeless. I write to myself. That’s the only person I’m trying to please.
+ - What she had long believed was not true, and now the world was wide open to discover what was. It is like all my life I thought the sky was green.
+ - They finished laughing and caught their breaths, and looked at each other, and Ani thought Geric looked at her too long, as though he forgot he was looking, as though he did not wish to do anything else. She looked back. Her took heart took its time quieting down.
+ - But, how do you know if an ending is truly good for the characters unless you’ve traveled with them through every page?
+ - He looked at her, and the clarity of his dark eyes struck her heart with a sensation of a wound touched.
+ - No more crying. It’s all wetness and no comfort at all.
+ - They weren’t nice words he said. He could’ve lived a good life and died never having made a person feel rubbed down to bones and too sad to hold together.
+ - For Colin Firth: You’re a really great guy, but I’m married, so I think we should just be friends.
+ - She’s as fetching as brown hair done up with ribbons blue The mountain, my lady She’s as sweet as pink flowers made bright with morning dew, Mount Eskel, my lady.
+ - Oh, but I like my geese. Like cats, they can’t be told what to do, and like dogs, they’re loyal, and like people, they talk every chance they get.
+ - Sometimes one does not mean to fall in love. Sometimes it just happens.
+ - She put a wedge beside my heart And then she brought the mallet down She sang no song to guide her work I lost my heart without a sound.
+ - You, what are you? The brat of lucky parents who were related to a childless king. There is no such thing as royal blood. I believe we are what we make ourselves, and as such, you, Crown Princess, are nothing.
+ - She touched the healthy folds of skin around the baby’s neck, wrists, and thighs, the dark lines crying for life made in his forehead, and thought how people start with wrinkles and end with wrinkles, grow into their skin and then live to grow out of it again.
+ - No small thing, a bee’s sting When it enters the heart Not so benign, the growing vine When it tears stone apart.
+ - The three girls were sitting and lying beside her, holding one another, weeping, their arms and legs and hair tangled like the roots of close trees, sobs shaking them like leaves in a high wind.
+ - Saying my story makes me want to change it, make it sound pretty the way I do with the stories I tell the workers. I’d like it to have a beginning as grand as a ball and an ending in a whisper, like a mother tucking in a child for sleep.
+ - I’m a terrible prince. I should put my kingdom first and everything else second, but your first. I want you by my side every second, but I know I would crumble if I lost you.
+ - It’s not something you tell your single best friend. It’d be like rubbing your nose in the poop of my happiness.
+ - She closed the book and put her cheek against it. There was still an odor of a library on it, of dust, leather, binding glue, and old paper, one book carrying the smell of hundreds.
+ - She wore white heirloom lace about her throat And in her hair a bright golden feather A pearl like a plum hung ripe from her neck But her smile fetched ten gold together.
+ - Just like the old adage – what you dislike most in other people is what you dislike the most in yourself –.
+ - Her smile was peculiar – it made her nose wrinkle, not as though she smelled something unpleasant, but more that she was so amused, her whole face wanted to be a part of the smile.
+ - Her eyes were distant, and she seemed to be listening to that voice that first told her the story, a mother, sister, or aunt. Then her voice, like her singing, cut through the crickets and crackling fire.
+ - Go on, son, you’re not doing me any good by bleeding.
+ - I wonder if everyone who faces death hurts like this. It’s as though for the first time I realize how much just being alive makes my body ache. But I don’t want that ache to stop.
+ - Figure out what is real for you. No use leaning on someone else’s story all your life.
+ - Sometimes my fancy gets to floating inside me, threatening to carry me away like a leaf on a wind. Better to be a stone.
+ - Razo knew he was best at nothing, except maybe cramming two cherries into a single nostril.
+ - Words can fall hard like a boulder loosed from a cliff. Words can drift unnoticed like a weed seed on a breeze. Words can sing.
+ - Listen to your second thought, or the third might be too late.
+ - Clearly she was expected to say something, but panic at having to speak stole the thoughts from her head.
+ - The book smelled dusty and old but also carried a sweet tang, a hint of something inviting. She opened to the first page and started to read, pronouncing the words in a reverent whisper.
+ - The snow was too light to stay, the ground too warm to keep it. And the strange spring snow fell only in that golden moment of dawn, the turning of the page between night and day.
+ - He would never abandon her, never leave a gaping hole, and even if he died someday, he was preserved like a lab specimen from all the alcohol he imbibed, so he wouldn’t look or act much different.
+ - I was under the stars, like a fish is under water.
+ - When the mountain quaked Like an elbow’s nudge Like a shout that something is wrong The people awoke and Knew, yes, knew, that bandits had come.
+ - And new, too. Remade. Ready to move again. Listening was the start, she decided. Doing was the next step.
+ - Razo was sorely tempted to assert that all was true and he’d lost his horns and tail in a tragic childhood accident.
+ - The army slew a thousand and showed little pity The king ordered fealty from the conquered city The prince charmed its people with words wise and witty And the queen sat on a couch, looking very pretty.
+ - Nom, do say something funny so she can admire!
+ - Wait, I want more green. I hope I did not imply I only wanted your colors. We can’t turn a cold shoulder to green, and blue, and purple, for the sake of all ordered things, how can you dismiss purple? Celi, call Nom back and tell him of my need for purple!
+ - I do like the world quite a lot.
+ - Here’s the thing about home: you can create it most anywhere, as long as you gather your people around you.
+ - She was born Anidori-Kiladra Talianna Isilee, Crown Princess of Kildenree, and she did not open her eyes for three days.
+ - I was sorry to lose it, and if you make me another one, I promise not to get taken captive by bandits and have to use it to save my life.
+ - For one thing, everyone there is so clever. Do they think me dull? Perhaps I should assure them that our goats enjoyed listening to me for hours on end. I am certain their bleats meant “Do go on, Miri, darling. You are immensely entertaining.” Your immensely entertaining sister, Miri.
+ - Why was the judgement of the disapproving so valuable? Who said that their good opinions tended to be any more rational than those of generally pleasant people?
+ - A heart’s a heart, in a child or a man. You are tougher than you feel right now. Your roots are deep, your canopy’s spread wide. You’re going to show everyone what it means to be a king.
+ - Time is a wind that keeps blowing in my face and mumbling words that don’t make sense.
+ - Seriously, a thirty-something woman shouldn’t be daydreaming about a fictional character in a two-hundred-year-old world to the point where it interfered with her very real and much more important life and relationships. Of course she shouldn’t.
+ - Her nightmare clung to her like the smell of smoke to cloth.
+ - No one had ever called her wild before. She wanted to be wild now, for him. Wild seemed more enticing then a bowl of berries.
+ - I know I would crumble if I lost you.
+ - I am not sure I am ready to know what I think about that, so I dare not write it out.
+ - My ma says a rock lasts forever, but people don’t, and that’s what makes them more precious.
+ - You’re better than seven years of food. You’re better than windows. You’re even better than the sky.
+ - What? Don’t British women know how to use their knees?
+ - I couldn’t see what was real until time had washed away everything else.
+ - A little snark, properly directed, can change the world.
+ - Uge, save me from the sauce of their loveyness-raso Forest Born.
+ - Careful with the accusations of insanity, oh my lady whose home is a tower with windows of brick, all for the sake of some skinny-ankled, laugh-prone boy of a khan.
+ - The woman gestured to a seat and put on a patient face. An impatient sort of patient face, like an impatient face dressing up as a patient one for Halloween.
+ - Goodness knows she is too fierce for you Goodness knows she has eyes for a lord Goodness knows she yet will prove untrue Her cheek’s blush is as false as her word.
+ - Rin slept inside the oak’s thought. Its own memories of weather and growth continued to hum, and like a pond, its stillness reflected back herself.
+ - I keep thinking about a tale my nurse used to read to me about a bird whose wings are pinned to the ground. In the end, when he finally frees himself, he flies so high he becomes a star. My nurse said the story was about how we all have something that keeps us down.
+ - I’m going to find whoever is responsible for me sleeping out side with outside without pillows and kick them in the shins!-Enna.
+ - Some people are born with the first word of a language resting on their tongue though it may take some time before they can taste it.
+ - Years ago, before this estate was generously and unwillingly turned over to the crown, the lord here was a genuine dimwit. He had a minister stashed behind his throne to whisper clever things to say.
+ - He had a dashing smile. It nearly dashed right off his face.
+ - It is a truth universally acknowledged that a thirty-something woman in possession of a satisfying career and fabulous hairdo must be in want of very little.
+ - I couldn’t remember the last time I had stayed up into the squeaky hours of the night because I couldn’t put a book down, and that was a tragedy.
+ - A heart is a heart in a child or a man.
+ - Razo hopped back up and adopted a posture that said he was completely unruffled, never had been, and in fact was ready to do something manly like lift boulders or swallow live worms.
+ - As a general rule, writing is very inconvenient.
+ - Ani felt a stirring, a hope, a winged thing waking up in her chest and brushing her heart with it’s feathers.
+ - If you’re listening Big Brother, I refuse to be Fanny Price.
+ - I can see that one can never pay back Gilsa for the fear that she will give again.
+ - Even the jerks earn some of our affection. We can be glad they’re gone and yet still mourn the good parts.
+ - If we’re mad, we’re mad in large numbers, at least larger than yours.
+ - Being a writer is a good, good thing.
+ - He did a very good impression of a stone column.
+ - Its important to know stories. I felt the earth shift to make a place for you when you were born, and I came to tell you stories while you are young. And like me, you were born with a word on your tongue.
+ - There’s nothing more aggravating in the world than the midnight sniffling of the person you’ve decided to hate.
+ - I’m the sheen on water, Rin thought. I’m a looking glass. I’m not real.
+ - She answered by standing and kissing him first and held his cheeks and closed her eyes and felt sure as bones and deep as blood that she had found her place.
+
+109 quotes

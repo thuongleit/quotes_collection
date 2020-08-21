@@ -1,0 +1,36 @@
+ - Men stumble over pebbles, never over mountains.
+ - To nourish children and raise them against odds is in any time, any place, more valuable than to fix bolts in cars or design nuclear weapons.
+ - All men are rapists and that’s all they are.
+ - Women are afraid in a world in which almost half the population bears the guise of the predator, in which no factor – age, dress, or color – distinguishes a man who will harm a woman from one who will not.
+ - Never underestimate the power of helplessness!
+ - My goal in life is to change the entire social and economic structure of western civilization, to make it a feminist world.
+ - Oh, God, why don’t I remember that a little chaos is good for the soul?
+ - When they kept you out it was because you were black; when they let you in, it is because you are black. That’s progress?
+ - There’s power to: and everyone should have that, but everyone doesn’t. Power to play Bach, or tennis, or boccie if you like. And there’s power over; and no one should have that, but people do.
+ - Survival is an art. It requires the dulling of the mind and the senses, and a delicate attunement to waiting, without insisting on precision about just what it is you are waiting for.
+ - There is no power greater than the power of passive dependency.
+ - Well, love is insanity. The ancient Greeks knew that. It is the taking over of a rational and lucid mind by delusion and self-destruction. You lose yourself, you have no power over yourself, you can’t even think straight.
+ - Men seem unable to feel equal to women: they must be superior or they are inferior.
+ - I’d discovered you never know yourself until you’re tested and that you don’t even know you’re being tested until afterwards, and that in fact there isn’t anyone giving the test except yourself.
+ - She drowned in words that could not teach her how to swim.
+ - Control over a woman is the only form of dominance most men possess, for most men are merely subjects of more powerful men.
+ - The view of life as a struggle for power generates a language in which life has no significance and only power matters.
+ - Men’s need to dominate women may be based in their own sense of marginality or emptiness; we do not know its root, and men are making no effort to discover it.
+ - I believe that all human beings are equal. I believe that no one has the right to authority over anyone else.
+ - Nothing is ever simple. What do you do when you discover you like parts of the role you’re trying to escape?
+ - All the women I know feel a little like outlaws.
+ - I have opened all the doors in my head. I have opened all the pores in my body. But only the tide rolls in.
+ - Fear is a question. What are you afraid of and why? Our fears are a treasure house of self-knowledge if we explore them.
+ - Desire consumes you, it takes you over. You forget yourself completely. All you can think about is the other, the one you desire, your self is just a fire.
+ - Losing the future is the best thing that ever happened to me.
+ - For many people, morality means a set of rules governing the disposition on one’s genital organs; or a set of injunctions against lying, stealing, or killing except when such acts are sanctioned by church or state.
+ - There was no justice, there was only life. And life she had.
+ - The same men who are blind and deaf to feminism are acutely sensitive to what threatens their dominance and privilege.
+ - It’s strange how men feel they have the right to criticize a woman’s appearance to her face.
+ - Even disasters – there are always disasters when you travel – can be turned into adventures.
+ - Anyone determined to find another person or group inferior can always find whole lists of grounds that demonstrate inferiority because we are all inferior to the ideals of humanness we have erected.
+ - In a great gasp, puts her head in her hands again and cries as if her throat were a cave, as if the howling winds came from her belly, she cries like a storm that will never end.
+ - It isn’t success after all, is it, if it isn’t an expression of your deepest energies?
+ - The very notion of superiority of one kind over another will have to disappear, although differences among kind will remain.
+
+34 quotes

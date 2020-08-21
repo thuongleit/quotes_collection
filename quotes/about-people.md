@@ -1,0 +1,42 @@
+ - One day, the people that didn’t believe in you will tell everyone how they met you. ~~Johnny Depp
+ - A team is not a group of people that work together. A team is a group of people that trust each other. ~~Simon Sinek
+ - Become one of the rare people who don’t know how to quit. ~~Robin S. Sharma
+ - Management is about persuading people to do things they do not want to do, while leadership is about inspiring people to do things they never thought they could. ~~Steve Jobs
+ - People don’t buy what you do; they buy why you do it. And what you do simply proves what you believe. ~~Simon Sinek
+ - You don’t build a business – you build people – and then people build the business. ~~Zig Ziglar
+ - The realest people don’t have a lot of friends. ~~Tupac Shakur
+ - Sometimes it is the people no one imagines anything of who do the things that no one can imagine. ~~Alan Turing
+ - Choose people who lift you up. ~~Michelle Obama
+ - It’s good to learn from your mistakes. It’s better to learn from other people’s mistakes. ~~Warren Buffett
+ - I believe success is achieved by ordinary people with extraordinary determination. ~~Zig Ziglar
+ - It doesn’t make sense to hire smart people and tell them what to do; we hire smart people so they can tell us what to do. ~~Steve Jobs
+ - Don’t ever let someone tell you that you can’t do something. You got a dream, you gotta protect it. When people can’t do something themselves, they are going to tell you that you can’t do it. You want something, go get it. Period. ~~Will Smith
+ - Most people can learn a lot more than they think they can. They sell themselves short without trying. ~~Elon Musk
+ - We all need people who will give us feedback. That’s how we improve. ~~Bill Gates
+ - Everything around you that you call life was made up by people that were no smarter than you and you can change it, you can influence it, you can build your own things that other people can use. ~~Steve Jobs
+ - It is the responsibility of leadership to work intelligently with what is given, and not waste time fantasizing about a world of flawless people and perfect choices. ~~Marcus Aurelius
+ - People are rewarded in public for what they practice for years in private. ~~Tony Robbins
+ - To be successful you must be unique, you must be so different that if people want what you have, they must come to you to get it. ~~Walt Disney
+ - Most people fail in life not because they aim too high and miss, but because they aim too low and hit. ~~Les Brown
+ - Poor minds talk about people. Average minds talk about events. Great minds talk about ideas. ~~Eleanor Roosevelt
+ - A leader takes people where they want to go. A great leader takes people where they don’t necessarily want to go, but ought to be. ~~Rosalynn Carter
+ - But you are the average of the five people you associate with most, so do not underestimate the effects of your pessimistic, unambitious, or disorganized friends. If someone isn’t making you stronger, they’re making you weaker. ~~Tim Ferriss
+ - Don’t waste your energy trying to convince people to understand you. Your time is too valuable to try to prove yourself to people. ~~Joel Osteen
+ - People will do anything, no matter how absurd, to avoid facing their own souls. ~~C.G. Jung
+ - People who dream small dreams continue to live as small people. ~~Robert T. Kiyosaki
+ - You can’t change how people treat you or what they say about you. All you can do is change how you react to it. ~~Nicky Gumbel
+ - Be bold and don’t worry about what people think. They don’t do it that often anyway. ~~Tim Ferriss
+ - I’m just going to keep doing what I’m doing. Keep proving people wrong and proving myself right. ~~Conor McGregor
+ - So many people of wealth understand much more about making and saving money than about using and enjoying it. They fail to live because they are always preparing to live. ~~Alan Watts
+ - Extraordinary people survive under the most terrible circumstances and they become more extraordinary because of it. ~~Robertson Davies
+ - All tyranny needs to gain a foothold is for people of good conscience to remain silent. ~~Thomas Jefferson
+ - A leader can never be happy until his people are happy. ~~Genghis Khan
+ - If you can learn to love yourself and all the flaws, you can love other people so much better. And that makes you so happy. ~~Kristin Chenoweth
+ - People say money ain’t nothing; money is basically everything. ~~Meek Mill
+ - Some people look for a beautiful place, others make a place beautiful. ~~Hazrat Inayat Khan
+ - You get treated in life the way you teach people to treat you. ~~Wayne W. Dyer
+ - When people walk away from you, let them go. Your destiny is never tied to anyone who leaves you, and it doesn’t mean they are bad people. It just means that their part in your story is over. ~~T.D. Jakes
+ - Happy people have no history. ~~Leo Tolstoy
+ - A network marketing business is the perfect business for people who like helping other people. ~~Robert T. Kiyosaki
+
+40 quotes

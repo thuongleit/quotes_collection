@@ -1,0 +1,243 @@
+ - What the hand does the mind remembers.
+ - The goal of early childhood education should be to activate the child’s own natural desire to learn.
+ - A child needs freedom within limits.
+ - Play is the work of the child.
+ - Discipline must come through liberty.
+ - When children come into contact with nature, they reveal their strength.
+ - Peace is what every human being is craving for, and it can be brought about by humanity through the child.
+ - The senses, being the explorers of the world, open the way to knowledge.
+ - The education of even a small child, therefore, does not aim at preparing him for school, but for life.
+ - Free the child’s potential, and you will transform him into the world.
+ - The exercises of practical life are formative activities, a work of adaptation to the environment. Such adaptation to the environment and efficient functioning therein is the very essence of a useful education.
+ - The first essential for the child’s development is concentration. The child who concentrates is immensely happy.
+ - Growth comes from activity, not from intellectual understanding.
+ - The human hand allows the mind to reveal itself.
+ - Teach by teaching, not by correcting.
+ - He does it with his hands, by experience, first in play and then through work. The hands are the instruments of man’s intelligence.
+ - There is no description, no image in any book that is capable of replacing the sight of real trees, and all of the life to be found around them in a real forest.
+ - There must be provision for the child to have contact with nature; to understand and appreciate the order, the harmony and the beauty in nature.
+ - To teach details is to bring confusion; to establish the relationship between things is to bring knowledge.
+ - Growth is not merely a harmonious increase in size, but a transformation.
+ - Do not tell them how to do it. Show them how to do it and do not say a word. If you tell them, they will watch your lips move. If you show them, they will want to do it themselves.
+ - Within the child lies the fate of the future.
+ - Education today, in this particular social period, is assuming truly unlimited importance. And the increased emphasis on its practical value can be summed up in one sentence: education is the best weapon for peace.
+ - Children become like the things they love.
+ - Never help a child with a task at which he feels he can succeed.
+ - We shall walk together on this path of life, for all things are part of the universe and are connected with each other to form one whole unity.
+ - The first aim of the prepared environment is, as far as it is possible, to render the growing child independent of the adult.
+ - The child is both a hope and a promise for mankind.
+ - Of all things love is the most potent.
+ - Concentration is a part of life. It is not the consequence of a method of education.
+ - We especially need imagination in science. It is not all mathematics, nor all logic, but it is somewhat beauty and poetry.
+ - Joy, feeling one’s own value, being appreciated and loved by others, feeling useful and capable of production are all factors of enormous value for the human soul.
+ - Children display a universal love of mathematics, which is par excellence the science of precision, order, and intelligence.
+ - The environment must be rich in motives which lend interest to activity and invite the child to conduct his own experiences.
+ - Order is one of the needs of life which, when it is satisfied, produces a real happiness.
+ - The child should live in an environment of beauty.
+ - Whoever touches the life of the child touches the most sensitive point of a whole which has roots in the most distant past and climbs toward the infinite future.
+ - Culture and education have no bounds or limits; now man is in a phase in which he must decide for himself how far he can proceed in the culture that belongs to the whole of humanity.
+ - The land is where our roots are. The children must be taught to feel and live in harmony with the Earth.
+ - The child seeks for independence by means of work; an independence of body and mind.
+ - Freedom in intellectual work is found to be the basis of internal discipline.
+ - There are many things which no teacher can convey to a child of three, but a child of five can do it with ease.
+ - The most important period of life is not the age of university studies, but the first one, the period from birth to the age of six.
+ - Children are human beings to whom respect is due, superior to us by reason of their innocence and of the greater possibilities of their future.
+ - An education capable of saving humanity is no small undertaking; it involves the spiritual development of man, the enhancement of his value as an individual, and the preparation of young people to understand the times in which they live.
+ - Our aim is not merely to make the child understand, and still less to force him to memorize, but so to touch his imagination as to enthuse him to his innermost core.
+ - To let the child do as he likes when he has not yet developed any powers of control is to betray the idea of freedom.
+ - The child has a mind able to absorb knowledge. He has the power to teach himself.
+ - Establishing lasting peace is the work of education; all politics can do is keep us out of war.
+ - Character formation cannot be taught. It comes from experience and not from explanation.
+ - Education cannot be effective unless it helps a child to open up himself to life.
+ - Education must start from birth.
+ - When dealing with children there is greater need for observing than of probing.
+ - He who is served is limited in his independence.
+ - One test of the correctness of educational procedure is the happiness of the child.
+ - The hands are the instruments of man’s intelligence.
+ - It is necessary for the teacher to guide the child without letting him feel her presence too much, so that she may always be ready to supply the desired help, but may never be the obstacle between the child and his experience.
+ - Only through freedom and environmental experience is it practically possible for human development to occur.
+ - As soon as children find something that interests them they lose their instability and learn to concentrate.
+ - Concentration is the key that opens up to the child the latent treasures within him.
+ - First the education of the senses, then the education of the intellect.
+ - Mental development must be connected with movement and be dependent on it. It is vital that educational theory and practice should be informed by that idea.
+ - It is exactly in the repetition of the exercises that the education of the senses exists; not that the child shall know colors, forms or qualities, but that he refine his senses through an exercise of attention, comparison and judgment.
+ - There should be music in the child’s environment, just as there does exist in the child’s environment spoken speech. In the social environment the child should be considered and music should be provided.
+ - To assist a child we must provide him with an environment which will enable him to develop freely.
+ - Only practical work and experience lead the young to maturity.
+ - We cannot create observers by saying ‘observe,’ but by giving them the power and the means for this observation and these means are procured through education of the senses.
+ - We must help the child to act for himself, will for himself, think for himself; this is the art of those who aspire to serve the spirit.
+ - The work of education is divided between the teacher and the environment.
+ - The child’s progress does not depend only on his age, but also on being free to look around him.
+ - No one who has ever done anything really great or successful has ever done it simply because he was attracted by what we call a ‘reward’ or by the fear of what we call a ‘punishment.’
+ - The ‘absorbent mind’ welcomes everything, puts its hope in everything, accepts poverty equally with wealth, adopts any religion and the prejudices and habits of its countrymen, incarnating all in itself. This is the child!
+ - The child who has felt a strong love for his surroundings and for all living creatures, who has discovered joy and enthusiasm in work, gives us reason to hope that humanity can develop in a new direction.
+ - Imagination does not become great until human beings, given the courage and the strength, use it to create.
+ - The child is truly a miraculous being, and this should be felt deeply by the educator.
+ - Joy is the evidence of inner growth.
+ - The role of education is to interest the child profoundly in an external activity to which he will give all his potential.
+ - It is not enough for the teacher to love the child. She must first love and understand the universe. She must prepare herself, and truly work at it.
+ - Watch the unending activity of the flowing stream or the growing tree. See the breakers of the ocean, the unceasing movements of the earth, the planets, the sun and the stars. All creation is life, movement, work.
+ - Our care of the child should be governed, not by the desire to make him learn things, but by the endeavor always to keep burning within him that light which is called intelligence.
+ - When the child goes out, it is the world itself that offers itself to him. Let us take the child out to show him real things instead of making objects which represent ideas and closing them up in cupboards.
+ - To stimulate life, leaving it then free to develop, to unfold, herein lies the first task of the teacher.
+ - If we really want children to grow into independent and resourceful adults, we should stop pouring their milk as soon as they have learned to pour it themselves and stop fastening their buttons as soon as they can fasten them without help.
+ - Education should no longer be most imparting of knowledge, but must take a new path, seeking the release of human potentialities.
+ - Imitation is the first instinct of the awakening mind.
+ - Any child who is self-sufficient, who can ties his shoes, dress or undress himself, reflects in his joy and sense of achievement the image of human dignity which is derived from a sense of independence.
+ - Giving children the opportunity to stir up life and leave it free to discover.
+ - Every great cause is born from repeated failures and from imperfect achievements.
+ - We discovered that education is not something which the teacher does, but that it is a natural process which develops spontaneously in the human being.
+ - The unknown energy that can help humanity is that which lies hidden in the child.
+ - Only when the child is able to identify its own center with the center of the universe does education really begin.
+ - It is true that we cannot make a genius. We can only give to teach child the chance to fulfil his potential possibilities.
+ - Social grace, inner discipline and joy. These are the birthright of the human being who has been allowed to develop essential human qualities.
+ - The greatness of the human personality begins at the hour of birth.
+ - We are the sowers – our children are those who reap. We labor so that future generations will be better and nobler than we are.
+ - What we need is a world full of miracles, like the miracle of seeing the young child seeking work and independence, and manifesting a wealth of enthusiasm and love.
+ - Two things are necessary, the development of individuality and the participation of the individual in a truly social life.
+ - How often is the soul of man – especially in childhood – deprived because he is not allowed to come in contact with nature.
+ - The essence of independence is to be able to do something for one’s self.
+ - There is in every child a painstaking teacher so skillful that he obtains identical results in all children in all parts of the world. The only language men ever speak perfectly is the one they learn in babyhood, when no one teaches them anything.
+ - We must therefore turn to the child as to the key to the fate of our future life.
+ - The teacher’s task is not to talk, but to prepare and arrange a series of motives for cultural activity in a special environment made for the child.
+ - Beauty lies in harmony, not in contrast; and harmony is refinement; therefore, there must be a fineness of the senses if we are to appreciate harmony.
+ - The adult works to improve his environment while the child works to improve himself.
+ - Preventing war is the work of politicians, establishing peace is the work of educationists.
+ - The ancient saying, “There is nothing in the intellect which was not first in some way in the senses,” and senses being explorers of the world, opens the way to knowledge.
+ - My vision of the future is no longer of people taking exams and proceeding from secondary school to University but of passing from one stage of independence to a higher, by means of their own activity and effort of will.
+ - Work is necessary; it can be nothing less than a passion; a person is happy in accomplishment.
+ - The needs of mankind are universal. Our means of meeting them create the richness and diversity of the planet. The Montessori child should come to relish the texture of that diversity.
+ - Independence is not a static condition; it is a continuous conquest, and in order to reach not only freedom, but also strength, and the perfecting on one’s powers, it is necessary to follow this path of unremitting toil.
+ - It is almost possible to say that there is a mathematical relationship between the beauty of his surroundings and the activity of the child; he will make discoveries rather more voluntarily in a gracious setting than in an ugly one.
+ - It is well to cultivate a friendly feeling towards error, to treat it as a companion inseparable from our lives, as something having a purpose, which it truly has.
+ - A child is a discoverer. He is an amorphous, splendid being in search of his own proper form.
+ - If help and salvation are to come, they can only come from the children, for the children are the makers of men.
+ - All our handling of the child will bear fruit, not only at the moment, but in the adult they are destined to become.
+ - It is necessary, then, to give the child the possibility of developing according to the laws of his nature, so that he can become strong, and, having become strong, can do even more than we dared hope for him.
+ - Plainly, the environment must be a living one, directed by a higher intelligence, arranged by an adult who is prepared for his mission.
+ - Respect all the reasonable forms of activity in which the child engages and try to understand them.
+ - Love and the hope of it are not things one can learn; they are a part of life’s heritage.
+ - Free choice is one of the highest of all the mental processes.
+ - We teachers can only help the work going on, as servants wait upon a master.
+ - The secret of good teaching is to regard the child’s intelligence as a fertile field in which seeds may be sown, to grow under the heat of flaming imagination.
+ - A child starts from nothing and advances alone. It is the child’s reason about which the sensitive periods revolve. The reason provides the initial force and energy, and a child absorbs his first images to assist the reason and act on it.
+ - It is the child who makes the man, and no man exists who was not made by the child he once was.
+ - To have a vision of the cosmic plan, in which every form of life depends on directed movements which have effects beyond their conscious aim, is to understand the child’s work and be able to guide it better.
+ - The development of the child during the first three years after birth is unequaled in intensity and importance by any period that precedes or follows in the whole life of the child.
+ - The concept of an education centered upon the care of the living being alters all previous ideas. Resting no longer on a curriculum, or a timetable, education must conform to the facts of human life.
+ - To give a child liberty is not to abandon him to himself.
+ - Do not erase the designs the child makes in the soft wax of his inner life.
+ - The child is endowed with unknown powers, which can guide us to a radiant future. If what we really want is a new world, then education must take as its aim the development of these hidden possibilities.
+ - The instructions of the teacher consist then merely in a hint, a touch-enough to give a start to the child. The rest develops of itself.
+ - Rewards and punishments, to speak frankly, are the desk of the soul, that is, a means of enslaving a child’s spirit, and better suited to provoke than to prevent deformities.
+ - If I am going up a ladder, and a dog begins to bite at my ankles, I can do one of two things – either turn round and kick out at the it, or simply go on up the ladder. I prefer to go up the ladder!
+ - The child is essentially alien to this society of men and might express his position in the words of the Gospel: My kingdom is not of this world.
+ - Knowing what we must do is neither fundamental nor difficult, but to comprehend which presumptions and vain prejudices we must rid ourselves of in order to be able to educate our children is most difficult.
+ - Childhood constitutes the most important element in an adult’s life, for it is in his early years that a man is made.
+ - The child is the spiritual builder of mankind, and obstacles to his free development are the stones in the wall by which the soul of man has become imprisoned.
+ - A vital force is active in every individual and leads it towards its own evolution.
+ - When a child is given a little leeway, he will at once shout, “I want to do it!” But in our schools, which have an environment adapted to children’s needs, they say, “Help me to do it alone.” And these words reveal their inner needs.
+ - If children are allowed free development and given occupation to correspond with their unfolding minds their natural goodness will shine forth.
+ - Conventions which camouflage a man’s true feelings are a spiritual lie which help him adapt himself to the organized deviations of society...
+ - The activity of the child has always been looked upon as an expression of his vitality.
+ - The principal agent is the object itself and not the instruction given by the teacher. It is the child who uses the objects; it is the child who is active, and not the teacher.
+ - Do not offer the child the content of the mind, but the order for that content.
+ - No one can be free unless he is independent.
+ - The real preparation for education is the study of one’s self.
+ - The child will reveal himself through work.
+ - For what is the use of transmitting knowledge if the individual’s total development lags behind?
+ - An adult who does not understand that a child needs to use his hands and does not recognize this as the first manifestation of an instinct for work can be an obstacle to the child’s development.
+ - But an adult if he is to provide proper guidance, must always be calm and act slowly so that the child who is watching him can clearly see his actions in all their particulars.
+ - A new education from birth onwards must be built up. Education must be reconstructed and based on the law of nature and not on the preconceived notions and prejudices of adult society.
+ - But if for the physical life it is necessary to have the child exposed to the vivifying forces of nature, it is also necessary for his psychical life to place the soul of the child in contact with creation.
+ - An interesting piece of work, freely chosen, which has the virtue of inducing concentration rather than fatigue, adds to the child’s energies and mental capacities, and leads him to self-mastery.
+ - Watching a child makes it obvious that the development of his mind comes through his movements.
+ - If the idea of the universe is presented to the child in the right way, it will do more for him than just arouse his interest, for it will create in him admiration and wonder, a feeling loftier than any interest and more satisfying.
+ - The whole of mankind is one and only one, one race, one class and one society.
+ - The child, making use of all that he finds around him, shapes himself for the future.
+ - Little children, from the moment they are weaned, are making their way toward independence.
+ - A child is mysterious and powerful; And contains within himself the secret of human nature.
+ - No social problem is as universal as the oppression of the child.
+ - Sometimes very small children in a proper environment develop a skill and exactness in their work that can only surprise us.
+ - The greatest step forward in human evolution was made when society began to help the weak and the poor, instead of oppressing and despising them.
+ - There is in the child a special kind of sensitivity which leads him to absorb everything about him, and it is this work of observing and absorbing that alone enables him to adapt himself to life.
+ - Except when he has regressive tendencies, the child’s nature is to aim directly and energetically at functional independence.
+ - No one can be free unless he is independent. Therefore, the first active manifestations of the child’s individual liberty must be so guided that through this activity he may arrive at independence.
+ - Solicitous care for living things affords satisfaction to one of the most lively instincts of the child’s mind. Nothing is better calculated than this to awaken an attitude of foresight.
+ - It is in the encounter of the maternal guiding instincts with the sensitive periods of the newly born that conscious love develops between parent and child.
+ - The child’s parents are not his makers but his guardians.
+ - The more perfect the approximation to truth, the more perfect is art.
+ - The more the capacity to concentrate is developed, the more often the profound tranquility in work is achieved, then the clearer will be the manifestation of discipline within the child.
+ - The first duty of the educator, whether he is involved with the newborn infant or the older child, is to recognize the human personality of the young being and respect it.
+ - The study of love and its utilization will lead us to the source from which it springs, The Child.
+ - This is the treasure we need today – helping the child become independent of us and make his way by himself, receiving in return his gifts of hope and light.
+ - Children must grow not only in the body but in the spirit, and the mother longs to follow the mysterious spiritual journey of the beloved one who to-morrow will be the intelligent, divine creation, man.
+ - The essential thing is to arouse such an interest that it engages the child’s whole personality.
+ - The hand is the prehensile organ of the mind.
+ - The child who concentrates is immensely happy.
+ - We must, therefore, quit our roles as jailers and instead take care to prepare an environment in which we do as little as possible to exhaust the child with our surveillance and instruction.
+ - To consider the school as a place where instruction is given is one point of view. But, to consider the school as a preparation for life is another. In the latter case, the school must satisfy all the needs of life.
+ - The environment itself will teach the child, if every error he makes is manifest to him, without the intervention of a parent of teacher, who should remain a quiet observer of all that happens.
+ - The child should love everything he learns. Whatever is presented to him must be made beautiful and clear. Once this love has been kindled, all problems confronting the educationalist will disappear.
+ - Great tact and delicacy is necessary for the care of the mind of a child from three to six years, and an adult can have very little of it.
+ - The child builds his inmost self out of the deeply held impressions he receives.
+ - What advice can we give to new mothers? Their children need to work at an interesting occupation: they should not be helped unnecessarily, nor interrupted, once they have begun to do something intelligent.
+ - Order is not goodness; but perhaps it is the indispensable road to arrive at it.
+ - The child is much more spiritually elevated than is usually supposed. He often suffers, not from too much work, but from work that is unworthy of him.
+ - The world of education is like an island where people cut off from the world are prepared for life by exclusion from it.
+ - In the psychological realm of relationship between teacher and child, the teacher’s part and its techniques are analogous to those of the valet; they are to serve, and to serve well: to serve the spirit.
+ - Adults have not understood children or adolescents and they are, as a consequence, in continual conflict with them.
+ - The prize and punishments are incentives toward unnatural or forced effort, and, therefore we certainly cannot speak of the natural development of the child in connection with them.
+ - The objects in our system are instead a help to the child himself, he chooses what he wants for his own use, and works with it according to his own needs, tendencies and special interests. In this way, the objects become a means of growth.
+ - Our goal is not so much the imparting of knowledge as the unveiling and developing of spiritual energy.
+ - A humankind abandoned in its earlier formative stage becomes its own greatest threat to survival.
+ - We must clearly understand that when we give the child freedom and independence, we are giving freedom to a worker already braced for action, who cannot live without working and being active.
+ - The children are now working as if I did not exist.
+ - In nature nothing creates itself and nothing destroys itself.
+ - The best instruction is that which uses the least words sufficient for the task.
+ - The teacher’s task is not a small easy one! She has to prepare a huge amount of knowledge to satisfy the child’s mental hunger. She is not like the ordinary teacher, limited by a syllabus. The needs of the child are clearly more difficult to answer.
+ - The greatness of the human personality begins at the hour of birth. From this almost mystic affirmation there comes what may seem a strange conclusion: that education must start from birth.
+ - The teacher, when she begins work in our schools, must have a kind of faith that the child will reveal himself through work.
+ - With younger children the greatest reward is to be able to pass on to a new stage in each subject. It is a punishment to a young child not to be allowed to use the apparatus but to sit still and do nothing.
+ - The word education must not be understood in the sense of teaching but of assisting the psychological development of the child.
+ - Bring the child to the consciousness of his own dignity, and he will be free. We see no limit to what should be offered to the child, for his will be an immense field of chosen activity.
+ - At a given moment a child becomes interested in a piece of work, showing it by the expression of his face, by his intense attention, by his perseverance in the same exercise. That child has set foot upon the road leading to discipline.
+ - The task of the educator lies in seeing that the child does not confound good with immobility and evil with activity.
+ - All human victories, all human progress, stand upon the inner force.
+ - The first idea the child must acquire is that of the difference between good and evil.
+ - Education should therefore include the two forms of work, manual and intellectual, for the same person, and thus make it understood by practical experience that these two kinds complete each other and are equally essential to a civilized existence.
+ - A great deal of time and intellectual force are lost in the world, because the false seems great and the truth so small and insignificant.
+ - Happiness is not the whole aim of education. A man must be independent in his powers and character; able to work and assert his mastery over all that depends on him.
+ - No adult can bear a child’s burden or grow up in his stead.
+ - A man is not what he is because of the teachers he has had, but because of what he has done.
+ - The greatest source of discouragement is the conviction that one is unable to do something.
+ - One of the great problems facing men is their failure to realize the fact that a child possesses an active psychic life even when he cannot manifest it, and that the child must secretly perfect this inner life over a long period of time.
+ - There can be no substitute for work, neither affection nor physical well-being can replace it.
+ - We must support as much as possible the child’s desires for activity; not wait on him, but educate him to be independent.
+ - A teacher, therefore, who would think that he could prepare himself for his mission through study alone would be mistaken. The first thing required of a teacher is that he be rightly disposed for his task.
+ - Today, however, those things which occupy us in the field of education are the interests of humanity at large and of civilization, and before such great forces we can recognize only one country-the entire world.
+ - The child has other powers than ours, and the creation he achieves is no small one; it is everything.
+ - Bring the child to the consciousness of his own dignity and he will feel free.
+ - We do not believe in the educative power of words and commands alone, but seek cautiously, and almost without the child’s knowing it, to guide his natural activity.
+ - I have studied the child. I have taken what the child has given me and expressed it and that is what is called the Montessori method.
+ - The first thing required of a teacher is that he be rightly disposed for his task.
+ - It is not in human nature for all men to tread the same path of development, as animals do of a single species.
+ - At about a year and a half, the child discovers another fact, and that is that each thing has its own name.
+ - It follows that at the beginning of his life the individual can accomplish wonders without effort and quite unconsciously.
+ - The teacher must derive not only the capacity, but the desire, to observe natural phenomena. The teacher must understand and feel her position of observer: the activity must lie in the phenomenon.
+ - The development of the individual can be described as a succession of new births at consecutively higher levels.
+ - The child endures all things.
+ - The adult ought never to mold the child after himself, but should leave him alone and work always from the deepest comprehension of the child himself.
+ - The fundamental basis of education must always remain that one must act for oneself. That is clear. One must act for him or herself.
+ - Environment is undoubtedly a secondary factor in the phenomena of life; it can modify in that it can help or hinder, but it can never create.
+ - Deceit is a kind of garment that conceals the soul. It might even be compared to a whole wardrobe, so many are its guises.
+ - The greatest triumph of our educational method should always be this: to bring about the spontaneous progress of the child.
+ - Education, as conceived today, is something separated both from biological and social life.
+ - The child, in fact, once he feels sure of himself, will no longer seek the approval of authority after every step.
+ - Education demands, then, only this: the utilization of the inner powers of the child for his own instruction.
+ - If a child finds no stimuli for the activities which would contribute to his development, he is attracted simply to ‘things’ and desires to posses them.
+ - It is easy to substitute our will for that of the child by means of suggestion or coercion; but when we have done this we have robbed him of his greatest right, the right to construct his own personality.
+ - When we want to infuse new ideas, to modify or better the habits and customs of a people, to breathe new vigor into its national traits, we must use the children as our vehicle; for little can be accomplished with adults.
+ - Since it is through movement that the will realises itself, we should assist a child in his attempts to put his will into act.
+
+241 quotes

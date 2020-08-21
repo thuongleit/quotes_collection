@@ -1,0 +1,58 @@
+ - There are two ways of meeting difficulties: you alter the difficulties, or you alter yourself to meet them.
+ - Truth is its own defense.
+ - All persecution is a sign of fear; for if we did not fear the power of an opinion different from our own, we should not mind others holding it.
+ - Morale is not a single instinct. It has many ingredients. A sense of personal responsibility, the natural courage of an individual, the amount of his acquired self-discipline – and above all his interest in others – these together make up the spirit of morale.
+ - Life was a series of messes, and one spent one’s time cleaning them up; if one had any heart at all one also gave a part of one’s time to cleaning up those of other people.
+ - A refugee is as helpless as a new born child – but not so appealing! Besides, a new born child has no memories!
+ - People who talk of new lives believe there will be no new troubles.
+ - It is a very dangerous thing to have an idea that you will not practice.
+ - A man whose every exertion is bent upon showing up the flaws in his wife’s character must be at least partially responsible for some of them.
+ - It’s a good thing to learn early that other people’s opinions do not matter, unless they happen to be true.
+ - No emergency excuses you from exercising tolerance.
+ - A desire that has never been fulfilled is considerably less acute than one that has been fulfilled and then checked at the source.
+ - Truth is no man’s slave – but lies – what magnificent servants they make...
+ - Truth, though it has many disadvantages, is at least changeless. You can always find it where you left it.
+ - If money had been the way to save the world, Christ himself would have been rich.
+ - To be in the right is often an expensive business.
+ - Things that happen, however painful they are at the time, do not matter very much for long. Only how we behave to them matters.
+ - When you know a person particularly well, you cannot escape their ruffled feelings.
+ - Some of us cling to our curses if we haven’t anything better to cling to!
+ - Time indeed has very little to do with living except at its beginning or near its end.
+ - Feelings change facts...
+ - There’s nothing final about a mistake, except its being taken as final.
+ - If a writer is true to his characters they will give him his plot. Observations must play second fiddle to integrity.
+ - Our responsibility to ourselves comes first – because in a sense what one is oneself is the responsibility that one has for others!
+ - A blossom must break the sheath it has been sheltered by.
+ - Human beings don’t show, any more than cities at dusk, their real necessities! And yet if you looked – past the circle of outside lights, through the street walls still standing – into the want and emptiness within!
+ - Poets, when they write of love, give themselves and everyone else away!
+ - Curiosity is the only thing that really carries through time, isn’t it? The creative curiosity, I mean, which fights its way into expression?
+ - Where there is laughter there is always more health than sickness.
+ - The two best subjects for conversation are talking shop and making love.
+ - Every hen thinks she has laid the best egg! Can we not all believe as we choose? But the choice of others – what is that to us? Let them alone...
+ - Curses are children of hate; they belong to the wrong family! Prayers are better than curses!
+ - When a reserved person once begins to talk, nothing can stop him; and he does not want to have to listen, until he has quite finished his unfamiliar exertion.
+ - Death deceives relations often, and doctors sometimes, but the patient – never.
+ - This is the real tragedy of mankind, that until now the spirit of man has not been able to free itself, even along the path of its own development, from the tentacles of self-deception.
+ - When we refuse to accept our limitations, Nature, who is a stern realist, pays us out.
+ - There is no thermometer for wants!
+ - I am never at picnics. The ground was not meant to be sat upon in its raw state, I feel sure, and I prefer my food without either caterpillars or drafts!
+ - Personally, I think it’s a good way to let a child start right in with the laws of Nature before he’s old enough to be surprised at them.
+ - Taboos on the human heart are more dangerous than any risk we run by using our emotions. Sensation is the life of man; it is his actual energy. To suppress it is to lose creative power!
+ - A red-hot belief in eternal glory is probably the best antidote to human panic that there is.
+ - What are so mysterious as the eyes of a child?
+ - To be a Jew is to be strong with a strength that has outlived persecutions. It is to be wise against ignorance, honest against piracy, harmless against evil, kind against cruelty.
+ - Neither saints nor angels have ever increased my faith in this enigma Life; but what are called ‘common men and women’ have increased it.
+ - Jane had that happy disposition which would like to imagine that every one really wishes the well-being of his neighbour and struggles, though sometimes rather disastrously, to help him towards it.
+ - She believed in letting children have a certain amount of rope, and only intervened at the last moment, in order to prevent their hanging themselves by it.
+ - That a Jew is despised or persecuted is bad for him, of course-but far worse for the Christian who does it-for although persecuted he can remain a good Jew-whereas no Christian who persecutes can possibly remain-if he ever was one-a good Christian.
+ - Nobody can afford to appear more pleasant than they really are!
+ - We cannot alter facts, but we can alter our ways of looking at them.
+ - If one has one cow, it is always better not to be too familiar with those who have seven.
+ - To see a shadow and think it is a tree that is a pity; but to see a tree and to think it a shadow can be fatal.
+ - We do good by ourselves, but we seldom do wrong alone.
+ - Luck enters into every contingency. You are a fool if you forget it – and a greater fool if you count upon it.
+ - When lightning strikes, the mouse is sometimes burned with the farm.
+ - Knowledge cannot be changed, but the use to which it may be put can very easily be changed.
+ - Anger is like mild, it should not be kept too long.
+
+56 quotes

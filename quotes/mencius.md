@@ -1,0 +1,87 @@
+ - The best things in life come in threes, like friends, dreams, and memories.
+ - The feeling of compassion is the beginning of humanity.
+ - If you know the point of balance, You can settle the details. If you can settle the details, You can stop running around. Your mind will become calm. If your mind becomes calm, You can think in front of a tiger. If you can think in front of a tiger, You will surely succeed.
+ - To act without clear understanding, to form habits without investigation, to follow a path all one’s life without knowing where it really leads; such is the behavior of the multitude.
+ - Friends are the siblings God never gave us.
+ - Human nature is disposed to do good.
+ - Sincerity is the way to heaven.
+ - Try your best to treat others as you would wish to be treated yourself, and you will find that this is the shortest way to benevolence.
+ - The great person never loses a childlike spirit.
+ - Never lose your child’s heart.
+ - Human nature is good, just as water seeks low ground. There is no man who is not good, just as there is no water that does not flow downward.
+ - Secure property in hand leads to peace in mind.
+ - The great man does not think beforehand of his words that they may be sincere, nor of his actions that they may be resolute- he simply speaks and does what is right.
+ - The great man is he who does not lose his child’s heart.
+ - If you love men and they are unfriendly, look into your love; if you rule men and they are unruly, look into your wisdom; if you are courteous to them and they do not respond, look into your courtesy. If what you do is vain, always seek within.
+ - So I like life and I like righteousness; if I cannot keep the two together, I will let life go and choose righteousness.
+ - The root of the kingdom is in the state. The root of the state is in the family. The root of the family is in the person of its head.
+ - A man must not be without shame, for the shame of being without shame is shamelessness indeed.
+ - The way is near, but men seek it afar. It is in easy things, but men seek for it in difficult things.
+ - There is no greater delight than to be conscious of sincerity on self-examination.
+ - If the King loves music, it is well with the land.
+ - Heaven sees as the people see. Heaven hears as the people hear.
+ - People are eager to comment on something when they themselves are not in the situation of doing it.
+ - Treat your elders as elders, and extend it to the elders of others; treat your young ones as young ones, and extend it to the young ones of others; then you can turn the whole world in the palm of your hand.
+ - The path of duty lies in what is near, and men seek for it in what is remote; the work of duty lies in what is easy, and men seek for it in what is difficult.
+ - I dislike death, however, there are some things I dislike more than death. Therefore, there are times when I will not avoid danger.
+ - He who loves others is constantly loved by them. He who respects others is constantly respected by them.
+ - A real man is he whose goodness is a part of himself.
+ - When one by force subdues men, they do not submit to him in heart. They submit because their strength is not adequate to resist.
+ - The way of truth is like a great road. It is not difficult to know it. The evil is only that men will not seek it.
+ - The myriad things are complete in us. There is no greater joy than to reflect on ourselves and become sincere.
+ - He who respects others is respected by them.
+ - The sole concern of learning is to seek one’s original heart.
+ - Those who follow the part of themselves which is great are great men; those who follow the part which is little are little men.
+ - Sincerity is the way to heaven; to think how to be sincere is the way of man.
+ - The Tao is near and people seek it far away.
+ - If you know that a thing is unrighteous, then use all dispatch in putting an end to it – why wait till next year?
+ - If you let people follow their feelings, they will be able to do good. This is what is meant by saying that human nature is good.
+ - Benevolence is one of the distinguishing characters of man.
+ - He who wishes to be benevolent will not be rich.
+ - Never has a man who has bent himself been able to make others straight.
+ - Never has there been one possessed of complete sincerity who did not move others. Never has there been one who had not sincerity who was able to move others.
+ - In abundance prepare for scarcity.
+ - All things are already complete in us. There is no greater delight than to be conscious of right within us. If one strives to treat others as he would be treated by them, he shall not fail to come near the perfect life.
+ - Only those who develop their minds and spirits to the utmost can serve Heaven and fulfill their own destinies.
+ - Only when someone refuses to do certain things will he be capable of doing great things.
+ - All things are complete within ourselves.
+ - Men must be decided on what they will not do, and then they are able to act with vigor in what they ought to do.
+ - It is not difficult to govern. All one has to do is not to offend the noble families.
+ - The ways are two: love and want of love. That is all.
+ - When Heaven is about to confer a great office upon you, it first exercises your mind with suffering and your sinews and bones with toil.
+ - Kindly words do not enter so deeply into men as a reputation for kindness.
+ - One who believes all of a book would be better off without books.
+ - Is it only the mouth and belly which are injured by hunger and thirst? Men’s minds are also injured by them.
+ - The way is One and only One. The way is close at hand, but men seek it afar.
+ - Evil exists to glorify the good. Evil is negative good. It is a relative term. Evil can be transmuted into good. What is evil to one at one time, becomes good at another time to somebody else.
+ - Truth uttered before its time is dangerous.
+ - Friendship is one mind in two bodies.
+ - A small country cannot contend with a great; the few cannot contend with the many; the weak cannot contend with the strong.
+ - The Way lies at hand yet it is sought afar off; the thing lies in the easy yet it is sought in the difficult.
+ - Virtue alone is not sufficient for the exercise of government; laws alone cannot carry themselves into practice.
+ - A man must first despise himself, and then others will despise him.
+ - Mankind fears an evil man but heaven does not.
+ - Water indeed will flow indifferently to the east or west, but will it flow indifferently up or down? The tendency of our nature to good is like the tendency of water to flow downwards. There are none but have this tendency to good, just as all water flows downward.
+ - Every duty is a charge, but the charge of oneself is the root of all others.
+ - Friendship with a man is friendship with his virtue, and does not admit of assumptions of superiority.
+ - If the prince of a State love benevolence, he will have no opponent in all the empire.
+ - He who outrages benevolence is called a ruffian: he who outrages righteousness is called a villain. I have heard of the cutting off of the villain Chow, but I have not heard of the putting of a ruler to death.
+ - Listen to a man’s words and look at the pupil of his eye. How can a man conceal his character?
+ - The disease of men is that they neglect their own fields and go to weed the fields of others.
+ - The way of learning is none other than finding the lost mind.
+ - Incessant falls teach men to reform, and distress rouses their strength. Life springs from calamity, and death from ease.
+ - The poor attend to their own virtue in solitude.
+ - The tendency of mans nature to good is like the tendency of water to flow downward.
+ - Let not a man do what his sense of right bids him not to do, nor desire what it forbids him to desire. This is sufficient. The skillful artist will not alter his measures for the sake of a stupid workman.
+ - The people turn in allegiance to Humanity, as surely as water flows downward or as a wild animal takes cover in the wilderness.
+ - He who attends to his greater self becomes a great man, and he who attends to his smaller self becomes a small man.
+ - All people have the common desire to be elevated in honour, but all people have something still more elevated in themselves without knowing it.
+ - The five kinds of grains are considered good plants, but if the grains are not ripe, they are worse than cockles. It is the same with regard to kindness, which must grow into maturity.
+ - He who exerts his mind to the utmost knows his nature.
+ - To feed men and not to love them is to treat them as if they were barnyard cattle. To love them and not respect them is to treat them as if they were household pets.
+ - There is a power in everything; it is the job of the artist to determine it and express it.
+ - The regular path of virtue is to be pursued without any bend, and from no view to emolument.
+ - To lay hold of the mean without taking into account the occasion is like grasping one thing only.
+ - Where it is permissible both to die and not to die, it is an abuse of valour to die.
+
+85 quotes

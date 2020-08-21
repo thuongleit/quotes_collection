@@ -1,0 +1,36 @@
+ - In pushing other species to extinction, humanity is busy sawing off the limb on which it perches.
+ - What’s the use of having developed a science well enough to make predictions if, in the end, all we’re willing to do is stand around and wait for them to come true?
+ - It may seem impossible to imagine that a technologically advanced society could choose, in essence, to destroy itself, but that is what we are now in the processnof doing.
+ - People tend to focus on the here and now. The problem is that, once global warming is something that most people can feel in the course of their daily lives, it will be too late to prevent much larger, potentially catastrophic changes.
+ - You’ve got to do everything, everything’s got to be pointing in the same direction and you’ve got to really turn this whole economic engine from one that’s based on fossil fuels to one that isn’t.
+ - Though it might be nice to imagine there once was a time when man lived in harmony with nature, it’s not clear that he ever really did.
+ - Neanderthals were pretty smart, and if we actively killed them off, then probably we did so in the same way that humans kill each other.
+ - Humans will eventually become extinct. People treat that as a radical thing to say. But the fossil record shows us that everything eventually becomes extinct.
+ - For a long time, science has gone in the direction of sort of putting people in their place. We learned that the sun doesn’t revolve around the Earth, the Earth revolves around the sun; we learned that we’re just another species, evolved, like all other species, so we’re just another animal, really.
+ - It doesn’t much matter whether people care or don’t care. What matters is that people change the world.
+ - The Earth is big. There are huge natural forces that have worked over geological time. But it turns out, when you look carefully at the geological time, you can’t find anything like us.
+ - We can’t say that when x happens we get a mass extinction. To the extent we understand mass extinction, one has been caused by glaciation event, one has been caused by a massive climate change, and one has been caused by an asteroid. These events turn out to have no precedent.
+ - Mitochondrial DNA, which is a sort of abridged version of DNA, is passed directly from mother to child, so it’s something that can be looked at to trace matrilineal descent.
+ - I did not mean to suggest that autism could be traced to Neanderthal genes. The point is that some genes that have been implicated in autism changed pretty significantly between the time Neanderthal line and human line split.
+ - As soon as you acknowledge that we’re changing the planet on this scale, that it has very potentially massive repercussions and very damaging repercussions, then the next question is okay, what are we going to do about it?
+ - No matter what Donald Trump says, it’s clear that global warming is rapidly changing conditions on our planet.
+ - I traveled really to amazing places. I went to the Great Barrier Reef, I went to the Amazon, I went to the Andes, to try to bring people stories of sort of what’s going on out in the world and bring this issue alive, in a way, and put it out there.
+ - What are the Chinese doing, what are we doing, what are – so we need, both the developed world and the developing world, really need to be moving, once again, getting all your arrows in the same direction if you want to have any impact.
+ - In a poll commissioned by Time and CNN, two-thirds of American parents said they think that their children are spoiled.
+ - There’s this idea of shifting baselines. It was coined by a guy named Jeremy Jackson. It’s the idea that every generation takes what it sees, and says, “Okay, well, that’s the norm.”
+ - If in your lifetime you watch a species go extinct, or plummet almost to the point of extinction, that is a sign that something really serious is going on.
+ - As best as can be determined, the world is now warmer than it has been at any point in the last two millennia, and, if current trends continue, by the end of the century it will likely be hotter than at any point in the last two million years.
+ - Of the many species that have existed on earth – estimates run as high as fifty billion – more than ninety-nine per cent have disappeared. In the light of this, it is sometimes joked that all of life today amounts to little more than a rounding error.
+ - If you’re a conservation biologist in many fields, you’re seeing your study subject disappear. People are in the position where they’re chronicling radical decline, and that is not a position that conservation biologists want to be in.
+ - Some of these species that are now no longer with us were killed off by a fungal disease that was moved around the planet by people.
+ - There are a lot of things that we could do to minimize what we’re doing, but we’re not getting back those frogs that I saw that no longer exist.
+ - People sometimes say we need to be really almost on a wartime footing if you want to change. Our whole economy is based on burning fossil fuels, which is taking CO2 out of the ground and putting it up into the air.
+ - Most of the world’s major waterways have been diverted or dammed or otherwise manipulated – in the United States, only two per cent of rivers run unimpeded – and people now use half the world’s readily accessible freshwater runoff.
+ - Most of us live in parts of the world where we don’t expect to see much, and we wouldn’t necessarily notice things that are crashing.
+ - Well in the scientific there is virtually no debate over certain things. For example, that we are changing the world. Humans are changing the world very radically, very dramatically. Climate change, which I assume is one of the points you’re alluding to, is at the heart of this.
+ - We’re talking really huge global-scale change, and I did not feel that I had the prescription for that kind of action, so I’m going to leave it to the reader.
+ - Increasingly developing countries are asking for aid to help deal with the consequences of climate change, which we don’t want to give.
+ - I don’t think there are too many places left that humans haven’t pretty thoroughly explored.
+ - You’re an animal that needs to move across the landscape, you can’t anymore, and that’s another way we’re just changing the surface of the Earth in very dramatic ways.
+
+34 quotes

@@ -1,0 +1,138 @@
+ - There is no hospitality like understanding.
+ - Slander is the tool of cowards.
+ - Humility is the ability to give up your pride and still retain your dignity.
+ - The beauty you see in me is a reflection of you.
+ - There are infinite possibilities.
+ - Mediocrity inspires neither great love nor hate.
+ - The height of mediocrity is still low.
+ - Slander reveals the greatest truth about the coward implementing it.
+ - Love is a quality, not a quantity.
+ - Your heart is the beacon, your heart is the storm. Dare to embrace it; you’ll never be torn.
+ - Cinnamon bites and kisses simultaneously.
+ - Gifts have ribbons, not strings.
+ - The real story is not the plot, but how the characters unfold by it.
+ - The true poem rests between the words.
+ - Hate: return to sender; address unknown.
+ - Success makes enemies of those who would have never been true friends.
+ - We are the ancestors of those gardening the universe.
+ - Gossip can be entertaining: occasionally, I’ve heard the most fascinating things about myself I never knew.
+ - The stars are not the limit.
+ - Sometime is that appointment, the final one to meet. Let’s color all with love, for Time is naught but fleet.
+ - Don’t count your check-ins before they cash.
+ - Money is only a human invention. I get paid for my work, it’s a system of trade, but it’s not my purpose and reason for living.
+ - Popularity is not an indication of quality.
+ - There is only now. And look! How rich we are in it.
+ - Purity of heart is blooming the same colors in the middle of the wilderness when no one sees you.
+ - Greed is the lack of confidence of one’s own ability to create.
+ - I would rather have an inferiority complex and be pleasantly surprised, than have a superiority complex and be rudely awakened.
+ - Love is not blind. Love sees what is most true.
+ - The great thing about knowing you’re wrong is the moment you realize it, you’re right.
+ - Love is the eternal first breath.
+ - To a friend, achievement is good news, to an enemy, it’s bragging.
+ - It is an awesome thing to comprehend the magnitude of the fact that what a human being dreams and imagines can be realized. The power of that truth needs to be directed toward our creation of a future that is worthy of true human value and the world civilization.
+ - When we love, we are courageous; and courage has nothing to do with being fearless, it’s about being willing to experience fear, even dread, to do what we must, without guarantee of outcome.
+ - The last motive in the world for acquiring vocabulary should be to impress. Words should be acquired because we urgently need them – to convey, to reach, to express something within us, and to understand others.
+ - Where you see valid achievements or virtue being attacked, it’s by someone viewing them as a mirror of their own inadequacy instead of an inspiring beacon for excellence.
+ - People who worship only themselves get a slick, polished look – like monuments. Too bad they had to go so soon.
+ - Each character is an allegory for every aspect of human existence.
+ - Style of the future is the convergence of function and fashion.
+ - Thought has no gender.
+ - It is an awesome thing to comprehend that what a human being dreams and imagines can be realized.
+ - Poetry is a subset of a Cosmos, which in itself, is a poem.
+ - It is indisputable that evolved thinking recognizes the universality of Life.
+ - Truth may sometimes hurt, but delusion harms.
+ - Hot air expands, and seriously pompous attitude is the inflation of choice by those lacking substance.
+ - It is interesting to note that poetry, a literary device whose very construct involves the use of words, is itself the word of choice by persons grasping to describe something so beautiful it is marvelously ineffable.
+ - Pure at heart: to be like a flower that blooms as gloriously, brilliantly in a secluded wild wood, not seen and praised.
+ - Any leader who doesn’t support the heart of evolving humanity is not a leader worthy of being followed.
+ - Any literature, when it arrives at being good literature, transcends genre.
+ - Any leaders who disappoint the people, ideals and promises by which they were appointed are by definition themselves dis-appointed.
+ - To paraphrase the great poet Dante, the heavens swirl above us and our eyes are still cast to the ground.
+ - Patience is being friends with Time.
+ - A heart needs only its own voice to do what is right.
+ - I became a total yes. We don’t even have names anymore.
+ - Teaching English and teaching Writing are two separate things.
+ - Remembrance of our kiss brings not your lips nor mine to mind. The flesh can only envy consumption so divine.
+ - Ridicule has historically proven itself a rickety fence for great ideas.
+ - I am in prayer. I am one hand, this Universe the other.
+ - You are not going to find yourself anywhere except right where you are.
+ - A poet’s first contract is with truth.
+ - To the degree it is efficient, a spaceship is elegant and beautiful.
+ - Events, time, forms, all propel the inner plot within each of us.
+ - Unfortunately, in our society, power means the ability to dominate and oppress.
+ - Genuine art and business are the ultimate partnership toward catalyzing social evolution and well-being.
+ - Poets can’t worry about popularity since loving life and humanity involves saying what some people don’t want to hear.
+ - Poverty and War have no excuse.
+ - Anger is a wound gone mad.
+ - Understanding precedes peace.
+ - It’s vital as we postulate and work toward exploration and human settlement beyond Earth. I like to think of the possibilities of sustaining humanity’s continuum, with preserved recorded history way beyond the life of our Sun.
+ - Quantum fiction is any story that witnesses life and the human experience on a subatomic level.
+ - The news is disease in disguise pretending to be information.
+ - When we can build something like the Hubble telescope and fathom images of this vast cosmos of which we are a part, it really gives pause to wonder what and who we are within a larger framework than linear adventures at the shopping mall and taxes.
+ - My body is an avatar.
+ - Do it right, regret nothing.
+ - Which came first – the observer or the particle?
+ - The greatest justice in life is to be who one is.
+ - The category “Women Poets” is bizarre and irrelevant. It’s a subcategory of Poets, but there is not a “Men Poets” category.
+ - Little did the artist know, who neglected his appearance in favor of his work, that the years would produce a breed that spent hours meticulously acquiring a neglected look to appear like an artist.
+ - Words are contact with other beings. I see a word that says something I’ve noticed, seen, felt, obserevd, and I capture it; “I need that word!”
+ - How can I follow my heart when it’s waiting around for the rest of me to make the decision?
+ - Ridicule is a public confession of fear.
+ - What appears to us solid is ultimately both a particle and a wavelength, and on that realm everything behaves as both a particle and a wave.
+ - We’ve been there on World Wars, it’s time for World Party I.
+ - How enlightened is wearing God like some do Versace?
+ - A cure for War? Furiously spending the same daily amount of money toward making friends. Being an indispensable source of food, shelter, peace, and cultural support dedicatedly spending 9 billion dollars a month on helping people would be a formidable enemy of evil.
+ - Pythagorean thought was dominated by mathematics, but it was also profoundly mystical.
+ - Apart from Love, which is not a human emotion, of all the rest my last words would best read: It’s all for the experience.
+ - The people knew what had made them human. It was not their shortcomings, but their hearts.
+ - Poetry isn’t an activity, it’s a way life is lived.
+ - High finance trembles in its boots whenever there is some political complication.
+ - Our true enemies are: ignorance and limitation.
+ - Corporately contrived art product replaces inspired intellectual property with ineffectual poperty.
+ - Money is only a human invention.
+ - I didn’t have a Barbie doll, so I played with eternity.
+ - The realm of quanta is how I have intrinsically approached and viewed reality since I was born.
+ - People at large are becoming more aware that there is much more to reality and to themselves than what meets the eye.
+ - Poetry absolves spirituality from the dividedness of religions and provides us with a sanctuary that excludes no one.
+ - Inspiration always arrives unannounced.
+ - I consider myself more exportant than important.
+ - Is it a form of social play that underneath the words people say, there is a different conversation going on?
+ - I’m not an intellectual, I’m just a writer.
+ - I am sacred when you love me. I am your sanctuary, you are mine.
+ - Why have a cake if I can’t eat it?
+ - The primary dues a writer or any artist pays is to remain sentient, and to forfeit the illusionary luxury of such anesthetics as avoidance, numbness, and denials.
+ - Our lives are fictions, a work we leave behind, signed.
+ - Poetry is our heart, our spirit, our soul. Call it whatever; without it, everything else is nothing but hardware.
+ - Fear plants the whisper to beware but doesn’t look to see who’s there.
+ - Language achieves soul only when it’s applied as a tool, used by those who imbue it with what they have had the courage and honesty to perceive and feel.
+ - The illusion is we are only physical.
+ - We call interconnected order beautiful. When interrupted, we call it chaos.
+ - Your kisses are thieves which leave me wanting nothing.
+ - My primary motivation for writing is to communicate my perceptions and insights into the human condition, in a way that may provide understanding, comfort, and company to others.
+ - On Earth, much of the wrenching discomfort of emesis, apart from the sensation of nausea itself, is from the coordination of many muscles it takes to counter gravity.
+ - Leadership is not about being important, it’s about serving something important.
+ - Leaders in all realms and activities of life knew that the power they had come to hold existed because they were responsible to serve the many, thus power was position of service.
+ - Space is as infinite as we can imagine, and expanding this perspective is what adjusts humankinds focus on conquering our true enemies, the formidable foes: ignorance and limitation.
+ - If a dishonest creep wants to tap dance, give them the spotlight and a mirror.
+ - Nature abhors a vacuum but why do most people hasten to fill in the blanks with garbage.
+ - Essentially Flight is just an adventure of multiple realities.
+ - She listened to him all night and he found her fascinating.
+ - If you were the sky, I would unfurl myself in you, as a rainbow of colors yet unseen. I would become oceans of stars in your night.
+ - When we love there is no reason why.
+ - I’m in love with the whole world.
+ - Everything solid was first an idea.
+ - The only sins are violations of Love.
+ - Only Love conceives things worthy enough to stand greater than individual accomplishment.
+ - Fame is not the glory! Virtue is the goal, and fame only a messenger, to bring more to the fold.
+ - There are abundantly more English professors in the world than there are authors.
+ - Ideals do exist, the rest is just temporary interruption.
+ - You never read about the real pain. It lives where no word can travel.
+ - Any time a body goes outside the environmental conditions for which it developed it has to acclimate.
+ - Anyone contemplating world war is certifiably insane, no matter how calm they seem.
+ - Your mouth on mine our bridge to cross and serve where we would go. Utopia of sensations the flesh could never know.
+ - Always is no Time at all.
+ - Because I had goodwill for all, I thought all were my friends, and then I learned of treachery, that some preferred my end. A glorious day, the one I learned the meaning of the word. It’s good to know my enemies, though their reasons are absurd.
+ - Penalty is different than punishment, because it offers something with which to regain honor.
+ - Recognition of one’s fellows is distorted when money is prioritized as value itself.
+
+136 quotes

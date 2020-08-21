@@ -1,0 +1,21 @@
+ - I’m always thinking about story, and the development of ideas or images, so with all types of media, I’m simply trying to communicate the feelings and ideas in the story or characters in the most appropriate and effective way.
+ - I think the two jobs I dreamed of doing as a teenager were comic book artist and record cover illustrator. Maybe film director was in the mix as well, but that seemed to be an impossible mountain to climb.
+ - I like stories that exist both in the naturalistic world and in our imaginative lives, films are so immersive in that sense, we can explore how our characters think and dream, as well as how they exist in the real world.
+ - The filmmakers I really love are the ones that let me look through their eyes for a while. They have an aesthetic and social point of view.
+ - Everybody’s a bird, locked up in a pretty cage. Sometimes you fly to a slightly bigger one, but you never quite have the courage to abandon captivity completely.
+ - The reason I love comics is that they DON’T move, and there is NO sound. As a creator I have to evoke those elements in the drawings and writing, and the reader has to create those elements in their own minds.
+ - So I really love this very difficult feeling of being completely out at sea. I don’t know what I’m doing, and I kind of like this feeling. So I think for the moment, I’m going to continue to try and nail film down in some sort of shape where I’m happy with it.
+ - Pride in what and who you are is a strong foundation, but don’t be defined by your oppression; use your anger, don’t let it use you.
+ - Film gives me live actors, editing, music, sound, a huge and powerful toolbox to play with. If there is a problem for me, it is that film gives me too much. There is less room for the audience to add their side of the conversation.
+ - I’m a huge science fan; I read a lot of science books. But I’m not a scientist, my interest in science is I love the facts, but I like to interpret those facts. They become the raw materials for stories and paintings and things.
+ - Reading a good comic is a creative act. Watching a film is often a more passive experience, and since I’m interested in engaging that conversational aspect of creativity, I’m trying to find ways of achieving that in my films.
+ - I love the silent era because you can see the rules being written, the grammar of film being created. Most of my films are in some way love letters to the silent era.
+ - You could easily spend several lifetimes trying to master film. It make very good use of all the things that I love. Narrative, image-making, also sound and music. It’s so full that I can’t really imagine getting tired of it. Or getting to the point like I feel like I know it.
+ - I love telling stories. And even in single images, I tend to have stories inside them. I’ve always loved film, but I was making drawings and paintings and photographs. And you put art and narrative together, and that really is comics.
+ - When you just get fantasy stories that are about fairies or goblins, I just don’t care. I’m never going to meet a goblin, it doesn’t mean anything to me. So my definition of fantasy is very broad, it’s anything to do with memory, or dreams, or ways of interpreting or making sense of the world.
+ - My stuff is generally quite collage-y anyway. So it’s sort-of suited to gathering raw materials like shooting actors, then making stills or animating characters, then just bringing them all together in a 3D space. That process is very close to my 2D work anyway.
+ - I tend to be known for different things. I mean, there are a lot of comics or sci-fi fans out there who sort of think of me doing that kind of work, but there are just as many people who like the CD covers I’ve done, or the children’s books I’ve done. So different people like different things.
+ - I like being able to do anything. I think that’s healthy, doing anything and everything, rather than just getting completely obsessed with one particular genre or particular kind of work.
+ - Usually, the most difficult thing to do is photo-real stuff. Something that has to actually look like the real world, because it’s just so difficult to do that. We’re just so used to looking at the real world, our brains instantly see when something is not quite right.
+
+19 quotes

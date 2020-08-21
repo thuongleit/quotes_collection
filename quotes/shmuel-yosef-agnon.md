@@ -1,0 +1,29 @@
+ - I belong to the tribe of Levi.
+ - Our days on earth are like a shadow, and the time of our affliction is the length of our days.
+ - A home from which you can be ejected at any time is no true home.
+ - Through a historical catastrophe – the destruction of Jerusalem by the emperor of Rome – I was born in one of the cities in the diaspora. But I always deemed myself a child of Jerusalem, one who is in reality a native of Jerusalem.
+ - Our sages of blessed memory have said that we must not enjoy any pleasure in this world without reciting a blessing.
+ - People’s talk and the stories they tell have been engraved on my heart, and some of them have flown into my pen.
+ - After all my possessions had been burned, God gave me the wisdom to return to Jerusalem.
+ - Sometimes small things lead to great joys.
+ - I returned to Jerusalem, and it is by virtue of Jerusalem that I have written all that God has put into my heart and into my pen.
+ - If we breathe the scent of goodly grass, the fragrance of spices, the aroma of good fruits, we pronounce a blessing over the pleasure.
+ - For myself, I am very small indeed in my own eyes.
+ - If we eat any food, or drink any beverage, we must recite a blessing over them before and after.
+ - On everything you need to hear other people’s opinions. It’s the only way to do things. You ask a friend’s advice and then between the two of you things somehow get clearer.
+ - The fate of the singers who, like my songs, went up in flame was also the fate of the books which I later wrote. All of them went up in flame to Heaven in a fire which broke out one night at my home in Bad Homburg as I lay ill in a hospital.
+ - But perhaps the truth newly discovered is itself only temporary and when new discoveries are made these truths too will be abandoned. But one truth remains for ever, and that is the search for truth.
+ - As a result of the historic catastrophe in which Titus of Rome destroyed Jerusalem and Israel was exiled from its land, I was born in one of the cities of the Exile.
+ - I am generally ashamed to walk out in new clothes. And why am I ashamed? Is it because I don’t want to embarrass the others who don’t have new things? Or perhaps because a new coat makes you stand out, and you seem to be clothes and nothing else.
+ - If I am proud of anything, it is that I have been granted the privilege of living in the land which God promised our forefathers to give us, as it is written.
+ - Not every man remembers the name of the cow which supplied him with each drop of milk he has drunk.
+ - I have also written a book about the Giving of the Torah, and a book on the Days of Awe, and a book on the books of Israel that have been written since the day the Torah was given to Israel.
+ - God in heaven sits on high and plays games with us. He has plenty to do up there, what with building worlds and then knocking them down again, breaking things up and then rebuilding them, and yet he can manage to put his mind even to a little grocer in his shop or to a babe in the cradle.
+ - But always I regarded myself as one who was born in Jerusalem.
+ - It is not enough for a man to dwell in the Land of Israel, he must also pray to be free.
+ - At the age of nineteen and a half, I went to the Land of Israel to till its soil and live by the labour of my hands. As I did not find work, I sought my livelihood elsewhere.
+ - The beginnings of my studies also came to me from my father, as well as from the Rabbinical Judge of our town. But they were preceded by three tutors under whom I studied, one after the other, from the time I was three and a half till I turned eight and a half.
+ - I was five years old when I wrote my first song. It was out of longing for my father that I wrote it.
+ - When I first began to combine letters other than Hebrew, I read every book in German that came my way, and from these I certainly received according to the nature of my soul.
+
+27 quotes

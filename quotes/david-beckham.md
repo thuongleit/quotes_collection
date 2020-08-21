@@ -1,0 +1,103 @@
+ - Every situation has changed me as a person.
+ - You will go through tough times, it’s about getting through them.
+ - The secret of the team’s success is easy – unity and hard work.
+ - The secret to my success is practice!
+ - Soccer is a magical game.
+ - I don’t have time for hobbies. At the end of the day, I treat my job as a hobby. It’s something I love doing.
+ - People react to criticism in different ways, and my way is definitely to come out fighting.
+ - I’ll never forget where I’m from, never forget my roots. It doesn’t matter where I live. I’m English, simple as that.
+ - I have always believed that if you want to achieve anything special in life you have to work, work, and then work some more.
+ - You can be the one – in – a – million. Don’t be discouraged by the odds to Succeed.
+ - I’m a very stubborn person. I think it has helped me over my career. I’m sure it has hindered me at times as well, but not too many times. I know that if I set my mind to do something, even if people are saying I can’t do it, I will achieve it.
+ - Like any parent, I just want the best for my kids, whatever they decide to do. They will choose what path they want to follow, and we will always be there to encourage them.
+ - As a footballer you always want to test yourself against the best.
+ - I knew it was my time to retire, when I saw Messi running past me.
+ - He was a quiet man, Eric Cantona, but he was a man of few words...
+ - I’ve felt a little tired, but I’m only 24. I love playing football. That’s my job and that’s what I love doing.
+ - We’re definitely going to get Brooklyn christened, but we don’t know into which religion.
+ - Two of my boys are Manchester United fans; one is an Arsenal fan. Whenever there is a game I can take the boys to, I love taking them.
+ - As soon as a free kick is given and it’s anywhere near the box, I get excited. I don’t really concentrate what side the keeper is on, because I always think that if I catch it as well as I can, then I can beat him whichever way he goes.
+ - As soon as I hit the ball, I know if it’s in.
+ - No one’s ever really given me any style advice. I wear what I want, and it doesn’t matter what other people think.
+ - I don’t think I have reached a plateau. I have just reached the level where I am today. But I need to go above it.
+ - It is so great that fashion is not a question of price, and it can be more accessible to everyone interested in fashion.
+ - At the end of the day, I’m a footballer who has played at some of the biggest football clubs in the world and played with some of the best players in the world.
+ - Football’s the biggest game in the world. America’s the greatest sporting nation there is. To play some part in putting those two things together: why wouldn’t I be excited about that?
+ - I haven’t retired from international football – I still believe I have a part to play in the future of England.
+ - I always wanted kids I could take to work, and for them to experience the things I experience. So, having three boys as a footballer was a dream.
+ - I have got this obsessive compulsive disorder where I have to have everything in a straight line, or everything has to be in pairs.
+ - My life here is perfect and I’m happy at Real Madrid so of course I want to stay as long as I can.
+ - I always used to go for blondes and quiet girls, but Victoria is the total opposite – dark and loud.
+ - I’m happy in Madrid, my kids are happy and my wife is happy, so everything’s good. If anyone knows about contracts they take a while to sort out.
+ - I don’t regret the decision to retire. My body was losing its edge. I was taking longer to recover from injuries. You have to get out at some point.
+ - That was in the past – we’re in the future now.
+ - When I was a kid, I thought my dad was a little bit harsh with me at times. Sometimes I needed an arm around me instead of my dad telling me what I did wrong, but it obviously worked.
+ - To play with Zinedine Zidane was the biggest honour I have had in my career.
+ - I feel I can still do the same job as I did 10 years ago – I’ve just got a few more wrinkles!
+ - I’m surprised I still have so much hair after all the things I’ve done with it.
+ - Wayne’s like my son, Brooklyn, who goes out in the garden to play and have fun.
+ - I respect all religions, but I’m not a deeply religious person. But I try and live life in the right way, respecting other people. I wasn’t brought up in a religious way, but I believe there’s something out there that looks after you.
+ - I work out with my trainer or do an hour of pilates at 6 or 7AM. I’m done by the time my household is awake.
+ - Is the Pope Catholic. No I’m serious. I really need to know.
+ - I am happier now than I have ever been.
+ - I didn’t expect it to come so quickly. It’s been hard to keep up with. There’s been articles in the papers that say I’ve got too big for my boots but people who know me say I’m just the same. Things have changed in my life but I haven’t, too many people would knock me down if I did.
+ - Hong Kong and Macau are both very dynamic cities. I am always inspired about the culture, people and food in these two cities. There is always so much to do and so much to explore!
+ - Alex Ferguson is the best manager I’ve ever had at this level. Well, he’s the only manager I’ve actually had at this level. But he’s the best manager I’ve ever had.
+ - My new tattoo is Jesus being carried by three cherubs. Obviously the cherubs are my boys. At some point they are going to need to look after me. That’s what they’re doing in the picture. It means a lot.
+ - Maths is totally done differently to what I was teached when I was at school.
+ - I love football and I love winning, and when things aren’t going right I get annoyed.
+ - In Spain people have lunch and dinner a lot later – when I return to England I’ll have to eat alone at midnight.
+ - Joining Real Madrid is a dream come true.
+ - I’ve always come back from adversity, and I’ve always had the mentality of proving people wrong.
+ - I showed that I wasn’t just at Real Madrid to sell shirts.
+ - Some men over-tweeze their eyebrows, and it’s just too perfect. Men are meant to have kind of a bushy brow. Too much aftershave is also off-putting; it’s one of my pet hates.
+ - I just want people to see me as a hard-working footballer and someone who is passionate about the game.
+ - Tom Cruise, he’s a lot more famous than me.
+ - It’s my responsibility to walk around the hotel with a big smile on my face and not worry about what’s happened in the last game.
+ - It’s not easy when someone pulls your ponytail.
+ - I’ve got my wife. I’ve got my four kids. I’ve got parents, grandparents still, and three really good friends. It’s all you need. I’d rather have three really good friends than 20 good friends.
+ - I’ve got friends in the different teams I’ve played for, but family is the most important thing to me. That will always be the case.
+ - One thing will not change – we will be going out to win.
+ - I feel this pang of regret whenever I watch sport; this sense that I will never play a big match again.
+ - Keeping fit is really important as playing football is all I’ve ever wanted to do.
+ - Kids can have great passion and great ability but if you have the facilities for your particular sport that can give you the inspiration to become a sportsman.
+ - I am always going to have problems with the paparazzi. I have had two men outside my house for the last two years, which is frightening at times, but that is my life unfortunately.
+ - I know that I will always regret it later in life if I had turned down the chance to play at another great club like Real Madrid.
+ - To have a successful team, you have to have great players of course – but you have to have good personalities and good people as well.
+ - The criticism hurts sometimes and I worry about the effect on my family.
+ - It’s is always nice to be respected as a footballer. I am going to go out and enjoy the game and if I can set one or two goals up then so be it – I would love to.
+ - I dream a lot about football and a lot of them have come true for me.
+ - It’s one thing I like about America – they respect the sportsman. They put them up on a pedestal. They don’t try to knock them down. And that’s a great thing, to be respected by the whole country. It’s so patriotic!
+ - Everyone’s been so quick to say that I’m really thick or I haven’t got a brain. People will think whatever they want to think.
+ - Being a dad is more important than football.
+ - I’ve heard some of Victoria’s new album and it’s frightening.
+ - I would never complain about the position I’m in or the attention I get. At the end of the day, I’m very lucky to have what I have and do what I do, but I don’t see myself as any different from anyone else who works hard and is a dad and a husband.
+ - I can play in the center, on the right and occasionally on the left side.
+ - No matter who our opponents are, or who we are playing against, we want to win the game.
+ - Our performance during this World Cup has not been enough to progress further and both myself and all the players regret that and are hurt by that more than people realise.
+ - I’m used to being around kids. Even when I was growing up in London, I had an older sister, I had a younger sister that I used to look after from time to time.
+ - I have come to accept that if I have a new haircut it is front page news. But having a picture of my foot on the front page of a national newspaper is a bit exceptional.
+ - Coaching is not something I’m passionate about. I’m passionate about coaching kids.
+ - I think the most important goal I scored in Spain was the first one because people were wary about me coming over to Spain as a player – they thought I was just there to sell shirts.
+ - I would walk back from the United States to play for England again.
+ - Being at a club that supported me meant a lot.
+ - Paul Scholes was always unbelievably talented. Quiet. And dirty. When he got his tackle right, it was a great tackle. But when he got it wrong, he could kill someone. He was so talented and a player I feel honoured to have played with.
+ - The game is in a neutral country for both teams.
+ - To this day, one of my proudest achievements is captaining my country.
+ - Some people think that I haven’t got the brains to be that clever.
+ - I left United, but my Heart didn’t.
+ - Finally, I have lived the dream, I am extremely proud to have worn the armband and been captain of England and for that I will always be grateful.
+ - There is always scope for football to be more charitable but a lot happens already. Personally I have always been passionate about charity.
+ - People in Hong Kong are stylish and fashionable, which is one of the many reasons making Hong Kong itself such an energetic place.
+ - When I was seven I wanted to be a footballer, but when I was 14, I wanted to be a model. Look where it’s put me now!
+ - I’ve always been proud to represent my country, whether it be World Cups, European Championships or just friendly games, I’ve always been a proud person, I’m very patriotic.
+ - I have always found it an honor that people have wanted to buy my shirt and an honor that fans turn up to watch the team I am playing in. I have always found that a huge honor.
+ - Pele was a complete player. I didn’t see him live obviously, because I wasn’t born.
+ - I’m a big fan of old boots.
+ - I hope I become a better player day after day. This is one of my goals. I want to improve in every situation, but when you are playing along with top figures, it is a quality bonus and a bigger effort. Besides, the Spanish Liga also gives you the chance to progress and improve.
+ - Well I’m the Prince and I’m sort of slaying a dragon – which is something I’ve never done before, obviously.
+ - You know when you play in the big away games that the fans are going to be behind their team and will be booing you. As a professional you need to tune yourself out of that part of the game and concentrate on the job at hand.
+ - I know that, as captain, you are in a privileged position and must always abide by Fifa’s code of fair play, something which I have always done throughout my career.
+ - I still believe I have a part to play for England.
+
+101 quotes

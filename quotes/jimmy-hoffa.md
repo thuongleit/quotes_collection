@@ -1,0 +1,30 @@
+ - I may have my faults, but being wrong ain’t one of them.
+ - Rome wasn’t built in a day, but man, did they get a break on the labor.
+ - To the best of my recollection, I must recall on my memory, I cannot remember.
+ - I don’t need a bodyguard.
+ - There are simply no public figures today who so challenge the elite business and government establishment and so champion the working class as Jimmy Hoffa did almost daily and with arrogance.
+ - We never had any silk sheets in our family...
+ - I do to others what they do to me, only worse.
+ - Don’t let any man into your cab, your home, or your heart, unless he’s a friend of labor.
+ - I’ve told you before and I’ll tell you again. The strong survive and the weak disappear. We do not intend to disappear.
+ - Power leads to more power, no matter what your racket, and not only were they rich and influential but they were smart as hell, too.
+ - In the ten years I was president of the Teamsters, I had raised the membership from eight hundred thousand to more than 2 million and made it the largest single labor union the world.
+ - Run from a knife and rush a gun.
+ - A slab of bread “buttered” with lard and, if you were lucky, seasoned with salt and pepper, was a luxury.
+ - Hell, I’m not saying I’m an angel, but when it came to dirty tricks I couldn’t hold a candle to the Irish Mafia.
+ - In the old days all you needed was a handshake. Nowadays you need forty lawyers.
+ - Sure, we loaned money to build hotels and casinos in Las Vegas. So what? Las Vegas borrowers were good customers.
+ - I’ve said consistently that no employer ever really accepts a union. They tolerate the unions. The very minute they can get a pool of unemployment they’ll challenge the unions and try to get back what they call managements prerogatives, meaning hire, fire, pay what you want.
+ - But to hear Kennedy when he was grandstanding in front of the McClellan Committee you might have thought I was making as much out of the pension fund as the Kennedys made out of selling whiskey.
+ - When you go to prison they forget it’s your Constitution, too.
+ - They all know I’m back, very much back, and that I will be the general president again come hell or high water.
+ - Mob guys had muscle, and where in hell do you think employers got the tough guys when they wanted to break a strike?
+ - When you run an organization like the Teamsters one man has to be the boss and run things.
+ - You almost had to live through it to really know the gut ripping misery of the depression during the early thirties which led to labor’s bloodiest and most violent days.
+ - From 1955 until 1965 Jimmy Hoffa was as famous as Elvis Presley. From 1965 until 1975 Jimmy Hoffa was as famous as the Beatles.
+ - More apparent to Teamster members than any moral lapses were the tangible gains that had been steadily realized under Hoffa since his advent to power.
+ - Our rooms were bugged, our phones were tapped, and our lawyer’s rooms were broken into and their files stolen. We finally had to hire armed guards with pistols to be able to maintain our records. It was hard to believe we weren’t in Russia.
+ - But because we are financially solid, because we do have an organization that is equipped to handle any situation that comes in front of us, we are successful in getting from the employers what are members want and need without strikes.
+ - It has to be considered damned unusual that no other union was ever investigated.
+
+28 quotes

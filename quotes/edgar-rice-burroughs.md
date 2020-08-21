@@ -1,0 +1,48 @@
+ - A warrior may change his metal, but not his heart.
+ - I have been successful probably because I have always realized that I knew nothing about writing and have merely tried to tell an interesting story entertainingly.
+ - Am I alive and a reality, or am I but a dream?
+ - The whole fabric of our religion is based on superstitious beliefin lies that have been foisted upon us for ages by those directly above us, to whose personal profit and aggrandizement it was to have us continue to believe as they wished us to believe.
+ - If you write one story, it may be bad; if you write a hundred, you have the odds in your favor.
+ - The time has arrived when patience becomes a crime and mayhem appears garbed in a manner of virtue.
+ - As the body rolled to the ground Tarzan of the Apes placed his foot upon the neck of his lifelong enemy and, raising his eyes to the full moon, threw back his fierce young head and voiced the wild and terrible cry of his people.
+ - Anger and hate against one we love steels our hearts, but contempt or pity leaves us silent and ashamed.
+ - They say that none of us exists, except in the imagination of his fellows, other than as an intangible, invisible mentality.
+ - You are here for but an instant, and you mustn’t take yourself too seriously.
+ - We are, all of us, creatures of habit, and when the seeeming necessity for schooling ourselves in new ways ceases to exist, we fall naturally and easily into the manner and customs which long usage has implanted ineradicably within us.
+ - If I had followed my better judgment always, my life would have been a very dull one.
+ - In that little party there was not one who would desert another; yet we were of different countries, different colours, different races, different religions – and one of us was of a different world.
+ - I knew nothing about the technique of story writing, and now, after eighteen years of writing, I still know nothing about the technique, although with the publication of my new novel, “Tarzan and the Lost Empire”, there are 31 books on my list.
+ - I do not think that I am ever overconfident. I am merely wholly confident, and I maintain that there is all the difference in the world there.
+ - I shall have to believe even though I cannot understand.
+ - Yes, I was a fool, but I was in love, and though I was suffering the greatest misery I had ever known I would not have had it otherwise for all the riches of Barsoom. Such is love, and such are lovers wherever love is known.
+ - I presume that it is the better part of wisdom that we bow to our fate with as good grace as possible.
+ - I had this story from one who had no business to tell it to me, or to any other. I may credit the seductive influence of an old vintage upon the narrator for the beginning of it, and my own skeptical incredulity during the days that followed for the balance of the strange tale.
+ - Death, only, renders hope futile.
+ - For myself, I always assume that a lion is ferocious, and so I am never caught off my guard.
+ - It is a characteristic of the weak and criminal to attribute to others the misfortunes that are the result of their own wickedness.
+ - Love is a strange master, and human nature is still stranger.
+ - I love you, and because I love you I believe in you. But if I did not believe, still should I love. Had you come back for me, and had there been no other way, I would have gone into the jungle with you – forever.
+ - When Tarzan killed he more often smiled than scowled, and smiles are the foundation of beauty.
+ - In one respect at least the Martians are a happy people, they have no lawyers.
+ - I have ever been prone to seek adventure and to investigate and experiment where wiser men would have left well enough alone.
+ - For me, temperance is essential to good work.
+ - Clothes therefore, must be the insignia of the superiority of man over all other animals, for surely there could be no other reason for wearing the hideous things.
+ - No fiction is worth reading except for entertainment. If it entertains and is clean, it is good literature, or its kind. If it forms the habit of reading, in people who might not read otherwise, it is the best literature.
+ - Even brave men, and D’Arnot was a brave man, are sometimes frightened by solitude.
+ - Were there no desire there would be no virtue, and because one man desires what another does not, who shall say whether the child of his desire be Vice or Virtue?
+ - Golf is a mental disorder.
+ - It never seems to occur to some people, that, like beauty, a sense of humor may sometimes be fatal.
+ - Subconscious minds are no less fallible than the objective mind.
+ - So strong is the power of superstition that even though we know that we have been reverencing a sham, yet still we hesitate to admit the validity of our new-found convictions.
+ - This was life! Ah, how he loved it! Civilization held nothing like this in its narrow and circumscribed sphere, hemmed in by restrictions and conventionalities. Even clothes were a hindrance and a nuisance. At last he was free. He had not realized what a prisoner he had been.
+ - I have discovered that the world over, unusual weather prevails at all times of the year.
+ - I got this story from someone who had no business in the telling of it.
+ - Even theories must have foundations.
+ - I do not believe that I am made of the stuff which constitutes heroes, because, in all of the hundreds of instances that my voluntary acts have placed me face to face with death, I cannot recall a single one where any alternative step to that I took occurred to me until many hours later.
+ - Could it be that there were other things more desirable than cold logic and undefiled brain power?
+ - I loathed poverty and I would have liked to put my hands on the party who said that poverty is an honorable estate. It is an indication of inefficiency and nothing more. There is nothing honorable or fine about it.
+ - The more one listens to ordinary conversations the more apparent it becomes that the reasoning faculties of the brain take little part in the direction of the vocal organs.
+ - I could write stories just as rotten.
+ - Traveling through space is stupifyingly monotonous.
+
+46 quotes

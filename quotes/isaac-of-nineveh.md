@@ -1,0 +1,37 @@
+ - Above anything, welcome silence, for it brings fruits that no tongue can speak of, neither can it be explained.
+ - Let them push you, but do not push; Let them crucify you, but do not crucify. Let them insult, but do not insult. Let them slander, but do not slander. Be meek, and do not be zealous in evil.
+ - As a handful of sand thrown into the ocean, so are the sins of all flesh as compared with the mind of God.
+ - Solitude is an ocean with wonderful places hidden in its depths.
+ - This life has been given to you for repentance; do not waste it in vain pursuits.
+ - Why do you increase your bonds? Take hold of your life before your light grows dark and you seek help and do not find it. This life has been given to you for repentance; do not waste it in vain pursuits.
+ - Do not waste this life in vain pursuits.
+ - Whoever hates his sins will stop sinning; and whoever confesses them will receive remission. A man can not abandon the habit of sin if he does not first gain enmity toward sin, nor can he receive remission of sin without confession of sin. For the confession of sin is the cause of true humility.
+ - Be persecuted, rather than be a persecutor. Be crucified, rather than be a crucifier. Be treated unjustly, rather than treat anyone unjustly. Be oppressed, rather than be an oppressor. Be gentle rather than zealous. Lay hold of goodness, rather than justice.
+ - Be dead in life, and you will not live in death. Let your soul die strenuously, and not live in weakness. Not only those who suffer death for the sake of faith in Christ are martyrs; but also those who die because of their observance of His commandments.
+ - Conquer evil people by gentle kindness, and make zealous people wonder at your goodness. Put the lover of legality to shame by your compassion.
+ - The man who follows Christ in solitary mourning is greater than he who praises Christ amid the congregation of men.
+ - The wisdom of the Holy Spirit is much greater than the wisdom of the entire world. Within the wisdom of the Holy Spirit, silence prevails; the wisdom of the world, however, goes astray into idle talk.
+ - The soul that loves God has its rest in God and in God alone. In all the paths that men walk in in the world, they do not attain peace until they draw nigh to hope in God.
+ - Afflictions for God’s sake are dearer to Him than any prayer or sacrifice.
+ - Someone who has actually tasted truth is not contentious for truth. Someone who is considered by people to be zealous for truth has not yet learned what truth is really like; once he has truly learned it, he will cease from zealousness on its behalf.
+ - The Commandments of God are higher than all the treasures of the earth. Whoever has acquired them has received God within himself.
+ - If a man does not argue with the thoughts that the enemy secretly sows in us, but by prayer to God uproots conversation with them, this is a sign that his mind has attained wisdom, and that he has found a short path.
+ - Just as a strongly flowing fountain is not blocked up by a handful of earth, so the compassion of the Creator is not overcome by the wickedness of his creatures.
+ - The man with a heart cannot think about or see creatures without his eyes filling up with tears because of the immense compassion which seizes his heart.
+ - A man who is truly humble is not troubled when he is wronged and he says nothing to justify himself against the injustice, but he accepts slander as truth; he does not attempt to persuade men that he is calumniated, but he begs forgiveness.
+ - There is love like a small lamp, which goes out when the oil is consumed; or like a stream which dries up when it doesn’t rain. But there is a love that is like a mighty spring gushing up out of the earth; it keeps flowing forever, and is inexhaustible.
+ - Speech is the organ of this present world. Silence is the mystery of the world to come.
+ - Someone who bears a grudge while he prays is like a person who sows in the sea and expects to reap a harvest.
+ - If you cannot close the mouth of one who reviles his brother, at least avoid conversation with him.
+ - The prayer of one who does not consider himself a sinner is not accepted by the Lord.
+ - If, at the time when the mind is praying it is distracted by any extraneous thought or worry about anything, then this prayer is not called pure.
+ - Whoever can weep over himself for one hour is greater than the one who is able to teach the whole world; whoever recognizes the depth of his own frailty is greater than the one who sees visions of angels.
+ - God requires not the doing of the commandments for their own sake, but the correction of the soul, for whose sake He established the commandments.
+ - If zeal had been appropriate for putting humanity right, why did God the Word clothe himself in the body, using gentleness and humility in order to bring the world back to his Father?
+ - When you want to make a beginning of a good deed, first prepare for temptations, which will come to you, and don’t doubt the truth of that which you do for God.
+ - If you practice an excellent virtue without perceiving the taste of its aid, do not marvel; for until a man becomes humble, he will not receive a reward for his labor. Recompense is given, not for labor, but for humility.
+ - Whoever prematurely begins a work that is above his strength receives nothing, but only brings harm upon himself.
+ - If you are truly merciful, then when what is yours is unjustly taken, don’t be sad inside, and do not tell of our loss to your neighbor. Let a better loss, inflicted by those who insult you, be absorbed by your mercy.
+ - The Lord bears all the weaknesses of men, but He does not bear a man who is always murmuring, and does not leave Him without chastisement.
+
+35 quotes

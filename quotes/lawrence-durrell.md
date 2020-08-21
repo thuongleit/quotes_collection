@@ -1,0 +1,91 @@
+ - Does not everything depend on our interpretation of the silence around us?
+ - Music is only love looking for words.
+ - Art like life is an open secret.
+ - I’m trying to die correctly, but it’s very difficult, you know.
+ - To write a poem is like trying to catch a lizard without its tail falling off.
+ - I don’t believe one reads to escape reality. A person reads to confirm a reality he knows is there, but which he has not experienced.
+ - Music was invented to confirm human loneliness.
+ - Our inventions mirror our secret wishes.
+ - Truth is a woman. That is why it is enigmatic.
+ - No one can go on being a rebel too long without turning into an autocrat.
+ - Science is the poetry of the intellect and poetry the science of the heart’s affections.
+ - Life is like a cucumber. One minute it’s in your hand, the next it’s up you ass.
+ - It only takes one match to ignite a haystack, or one remark to fire a mind.
+ - Life is more complicated than we think, yet far simpler than anyone dares to imagine.
+ - I am quite alone. I am neither happy nor unhappy; I lie suspended like a hair or a feather in the cloudy mixtures of memory.
+ - A taste older than meat, older than wine. A taste as old as cold water.
+ - Prohibitions create the desire they were intended to cure.
+ - We are the children of our landscape; it dictates behavior and even thought in the measure to which we are responsive to it.
+ - Brazil is bigger than Europe, wilder than Africa, and weirder than Baffin Land.
+ - Love is like trench warfare – you cannot see the enemy, but you know he is there and that it is wiser to keep your head down.
+ - The richest love is that which submits to the arbitration of time.
+ - Like all young men I set out to be a genius, but mercifully laughter intervened.
+ - A woman’s best love letters are always written to the man she is betraying.
+ - I have been thinking about the girl I met last night in the mirror: dark on the marble-ivory white: glossy black hair: deep suspiring eyes in which one’s glances sink because they are nervous, curious, turned to sexual curiosity.
+ - I had become, with the approach of night, once more aware of loneliness and time – those two companions without whom no journey can yield us anything.
+ - Travel can be one of the most rewarding forms of introspection.
+ - Gamblers and lovers really play to lose.
+ - It is the duty of every patriot to hate his country creatively.
+ - Every man is made of clay and diamond, and no woman can nourish both.
+ - All culture corrupts, but French culture corrupts absolutely.
+ - Who invented the human heart, I wonder? Tell me, and then show me the place where he was hanged.
+ - There is no pain compared to that of loving a woman who makes her body accessible to one and yet who is incapable of delivering her true self – because she does not know where to find it.
+ - The cocktail party – as the name itself indicates – was originally invented by dogs. They are simply bottom-sniffings raised to the rank of formal ceremonies.
+ - A diary is the last place to go if you wish to seek the truth about a person. Nobody dares to make the final confession to themselves on paper: or at least, not about love.
+ - Sorrow is implicit in love as gravitation is implicit in mass.
+ - Old age is an insult. It’s like being smacked.
+ - It is not peace we seek but meaning.
+ - It takes a lot of energy and a lot of neurosis to write a novel. If you were really sensible, you’d do something else.
+ - Now stiff on a pillar with a phallic air nelson stylites in Trafalgar square reminds the British what once they were.
+ - History is an endless repetition of the wrong way of living.
+ - Somewhere in the heart of experience there is an order and a coherence which we might purprise if we were attentive enough, loving enough, or patient enough.
+ - Truth disappears with the telling of it.
+ - These are the moments which are not calculable, and cannot be assessed in words; they live on in the solution of memory, like wonderful creatures, unique of their own kind, dredged up from the floors of some unexplored ocean.
+ - Odd, isn’t it? He really was the right man for her in a sort of way; but then as you know, it is a law of love that the so-called ‘right’ person always comes to soon or too late.
+ - How grudging memory is, and how bitterly she clutches the raw material of her daily work.
+ - Art – the meaning of the pattern of our common actions in reality. The cloth-of-gold that hides behind the sackcloth of reality, forced out by the pain of human memory.
+ - Poverty is a great cutter-off and riches a great shutter-off.
+ - I suppose the secret of his success is in his tremendous idleness which almost approaches the supernatural.
+ - You see, nothing matters except pleasure – which is the opposite of happiness, its tragic part, I expect.
+ - A city becomes a world when one loves one of its inhabitants.
+ - We should tackle reality in a slightly jokey way, otherwise we miss its point.
+ - Lovers can find nothing to say to each other that has not been said and unsaid a thousand times over. Kisses were invented to translate such nothings into wounds.
+ - Guilt always hurries towards its complement, punishment: only there does its satisfaction lie.
+ - Truth is what most contradicts itself.
+ - The realisation of one’s own death is the point at which one becomes adult.
+ - The sense of truth no matter how subjective is necessary for the experience of beauty.
+ - A critic is a lug-worm in the liver of literature.
+ - Perhaps our only sickness is to desire a truth which we cannot bear rather than to rest content with the fictions we manufacture out of each other.
+ - Shyness has laws you can only give yourself; tragically to those who least understand.
+ - An idea is like a rare bird which cannot be seen. What one sees is the trembling of the branch it has just left.
+ - All artists today are expected to cultivate a little fashionable unhappiness.
+ - But I love to feel events overlapping each other, crawling over one another like wet crabs in a basket.
+ - I see artists as a great battalion moving through paint, words, music towards cosmological interpretation.
+ - The artist’s work constitutes the only satisfactory relationship he can have with his fellow men since he seeks his real friends among the dead and the unborn.
+ - I am just a refugee from the long slow toothache of English life. It is terrible to love life so much you can hardly breathe!
+ - We are all hunting for rational reasons for believing in the absurd.
+ - They flower spontaneously out of the demands of our natures – and the best of them lead us not only outward in space, but inward as well.
+ - People only see in us the contemptible skirt-fever which rules our actions but completely miss the beauty-hunger underlying it.
+ - Love joins and then divides. How else would we be growing?
+ - The memory of man is as old as misfortune.
+ - It’s unthinkable not to love -you’d have a severe nervous breakdown. Or you’d have to be Philip Larkin.
+ - Everything really desirable has come about because of, or in spite of, wine!
+ - Journeys, like artists, are born and not made. A thousand differing circumstances contribute to them, few of them willed or determined by the will-whatever we may think.
+ - Of women, the most we can say, not being Frenchmen, is that they are burrowing animals.
+ - It’s only with great vulgarity that you can achieve real refinement, only out of bawdry that you can get tenderness.
+ - Poetry is what happens when an anxiety meets a technique.
+ - Everyone loathes his own country and countrymen if he is any sort of artist.
+ - No history much? Perhaps. Only this ominous Dark beauty flowering under veils, Trapped in the spectrum of a dying style: A village like an instinct left to rust, Composed around the echo of a pistol-shot.
+ - Life, the raw material, is only lived in potentia until the artist deploys it in his work.
+ - The heaviest impact of the work of art is in the guts. Art does not reason. It manhandles you and changes you...
+ - He thought and suffered a good deal but he lacked the resolution to dare – the first requisite of a practitioner.
+ - To be the equal of reality you must learn how to ignore it without danger.
+ - Whatever the heart desires, it purchases at the cost of soul.
+ - Frost in January minus 20 for a week. Dead birds frozen on the branch – they fall with the first thaw like ripe fruit – death-ripened. We shall all end like them – just a stain in the snow.
+ - Truth is a matter of direct apprehension-you can’t climb a ladder of mental concepts to it.
+ - What are stars but points in the body of God where we insert the healing needles of our terror and longing?
+ - For us artists there waits the joyous compromise through art with all that wounded or defeated us in daily life; in this way, not to evade destiny, as the ordinary people try to do, but to fulfil it in its true potential – the imagination.
+ - They say that if you get bored enough with calamity you can learn to laugh.
+ - Comedians are the nearest to suicide.
+
+89 quotes

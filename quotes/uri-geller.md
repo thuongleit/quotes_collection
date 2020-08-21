@@ -1,0 +1,24 @@
+ - I no longer want to be rich because I am rich.
+ - The best part of being a vegan is the purity and peace of mind one experiences and the strong connection I feel to the animal kingdom.
+ - Our meaning is to make our little planet Earth a better place to live, to stop wars, disarm nuclear missiles, to stop diseases, AIDS, plague, cancer and to stop pollution.
+ - Do what you love. When you love your work, you become the best worker in the world.
+ - I don’t fear death because I believe it is a transition. Our souls can’t be destroyed. I know we are going to live in another life.
+ - The lnternet is turning economics inside-out. For example, everybody on the internet now wants stuff for free and there are so many free services available.
+ - I think I usually have quite ordinary dreams. Sometimes my dreams take me to other dimensions. I can travel in my mind especially when I’m dreaming I focus my mind on what I want to dream. If I want to fly, I focus on flying.
+ - I sought a great performer who would deeply impress me, and I found Lior Suchard.
+ - I’ve stopped caring about skeptics, but if they libel or defame me they will end up in court.
+ - I believe that we’re all connected to each other with an invisible spiritual thread through which we can transmit energy emissions and positive thinking. I want you to use your visualization techniques.
+ - I’m a religious man. I am Jewish but I believe in all religions. I believe in God and see him as an old man with a big white beard and pray to him every day for a few minutes.
+ - I’ll no longer say that I have supernatural powers. I am an entertainer. I want to do a good show. My entire character has changed.
+ - We’re all brilliant at something. I discovered my powers when I was four years old. When you’re young you’re more in touch with your real talents, but so often the 30 year slog knocks it out of people.
+ - I was sued by a woman who claimed that she became pregnant because she watched me on television and I bent her contraceptive coil.
+ - I was about five years old when I was eating soup in our kitchen, and as I was lifting the spoon towards my mouth, it bent and broke in half.
+ - If you’re brilliant and open-minded, you can start at the top.
+ - I believe in past lives but I know nothing about mine and I don’t want to know. I live in the present, taking one day at a time.
+ - I’ve seen lights in the sky, I’ve seen UFOs, I’ve even seen something on the ground that I can’t explain, but I’ve never actually seen a being. I wish I had.
+ - Ive just taught thousands of people over the radio in the USA how to mend broken watches and broken house appliances. I am a catalyst or trigger to access these powers.
+ - Nowadays even presidents, vice-presidents, and heads of big agencies are opening their minds to accept psychic phenomena, because they know it works.
+ - So, I am independently well-off and don’t have to do anything, but I still do. I write books, lecture around the world, work with scientists and governments.
+ - I don’t take myself seriously all the time; I have to do quirky things, such as helping football teams, moving the ball away from McAllister’s foot, getting into The Sun and The Star – because, you know, I like sensationalism, it’s a part of what I do.
+
+22 quotes

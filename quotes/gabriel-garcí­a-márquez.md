@@ -1,0 +1,266 @@
+ - Only God knows how much I love you.
+ - Never stop smiling not even when you’re sad, someone might fall in love with your smile.
+ - It is not true that people stop pursuing dreams because they grow old, they grow old because they stop pursuing dreams.
+ - Everyone has three lives: a public life, a private life, and a secret life.
+ - The only regret I will have in dying is if it is not for love.
+ - Nobody deserves your tears, but whoever deserves them will not make you cry.
+ - What matters in life is not what happens to you but what you remember and how you remember it.
+ - There is no greater glory than to die for love.
+ - It’s enough for me to be sure that you and I exist at this moment.
+ - No matter what, nobody can take away the dances you’ve already had.
+ - The problem with marriage is that it ends every night after making love, and it must be rebuilt every morning before breakfast.
+ - Don’t struggle so much, the best things happen when not expected.
+ - The secret of a good old age is simply an honorable pact with solitude.
+ - There is always something left to love.
+ - No medicine cures what happiness cannot.
+ - He allowed himself to be swayed by his conviction that human beings are not born once and for all on the day their mothers give birth to them, but that life obliges them over and over again to give birth to themselves.
+ - It had to teach her to think of love as a state of grace: not the means to anything but the alpha and omega, an end it itself.
+ - Do not allow me to forget you.
+ - She was lost in her longing to understand.
+ - The spirit of her invincible heart guided her through the shadows.
+ - Tell him yes. Even if you are dying of fear, even if you are sorry later, because whatever you do, you will be sorry all the rest of your life if you say no.
+ - El secreto de una buena vejez no es mas que un pacto honrado con la soledad.
+ - Sex is one’s consolation when love is not enough.
+ - No, not rich. I am a poor man with money, which is not the same thing.
+ - Wherever they might be they always remember that the past was a lie, that memory has no return, that every spring gone by could never be recovered, and that the wildest and most tenacious love was an ephemeral truth in the end.
+ - A lie is more comfortable than doubt, more useful than love, more lasting than truth.
+ - I have never done anything except write, but I don’t possess the vocation or talents of a narrator, have no knowledge at all of the laws of dramatic composition, and if I have embarked upon this enterprise it is because I trust in the light shed by how much I have read in my life.
+ - To oppression, plundering and abandonment, we respond with life.
+ - She likes to try everything, out of curiosity, but she’ll be sorry if she isn’t guided by her heart.
+ - You can’t eat hope,? the woman said. You can’t eat it, but it sustains you,? the colonel replied.
+ - Be calm. God awaits you at the door.
+ - Always remember that the most important thing in a good marriage is not happiness, but stability.
+ - If God hadn’t rested on Sunday, He would have had time to finish the world.
+ - Cease, cows, life is short.
+ - For you was I born, for you do I have life, for you will I die, for you am I now dying.
+ - It was inevitable: the scent of bitter almonds always reminded him of the fate of unrequited love.
+ - Very well, I will marry you if you promise not to make me eat eggplant.
+ - Morality, too, is a question of time.
+ - I think just the opposite is true: love is an ideology for eternal militants, and the more misfortunes life tries to burden us with, the more essential love becomes.
+ - Fiction was invented the day Jonah arrived home and told his wife that he was three days late because he had been swallowed by a whale...
+ - Love becomes greater and nobler in calamity.
+ - The first of the line is tied to a tree and the last is being eaten by the ants .
+ - I have learned that a man has the right and obligation to look down at another man, only when that man needs help to get up from the ground.
+ - They were so close to each other that they preferred death to separation.
+ - If you love something – let. If it is yours – it will come back. I love you not because of who you are, but for who I am when I’m with you.
+ - He who awaits much can expect little.
+ - Give me a prejudice and I will move the world.
+ - He really had been through death, but he had returned because he could not bear the solitude.
+ - Nobody is worth crying for, and those that are worth it will not make you cry.
+ - How strange women are.
+ - The interpretation of our reality through patterns not our own, serves only to make us ever more unknown, ever less free, ever more solitary.
+ - Today, when I saw you, I realized that what is between us is nothing more than an illusion.
+ - I would not have traded the delights of my suffering for anything in the world.
+ - But when a woman decides to sleep with a man, there is no wall she will not scale, no fortress she will not destroy, no moral consideration she will not ignore at its very root: there is no God worth worrying about.
+ - Those who wanted to sleep, not from fatigue but because of the nostalgia of dreams...
+ - Sex is the consolation you have when you can’t have love.
+ - It’s much more important to write than to be written about.
+ - Shame has poor memory.
+ - He would wake for no reason in the middle of the night, and the memory of the self-absorbed love was revealed to him for what it was: a pitfall of happiness that he despised and desired at the same time, but from which it was impossible to escape.
+ - The heart’s memory eliminates the bad and magnifies the good.
+ - How will I ever get out of this labyrinth!
+ - Crazy people are not crazy if one accepts their reasoning.
+ - Music is important for one’s health.
+ - When one reaches absolute power, one loses total contact with reality.
+ - He repeated until his dying day that there was no one with more common sense, no stone cutter more obstinate, no manager more lucid or dangerous, than a poet.
+ - She let him finish, scratching his head with the tips of her fingers, and without his having revealed that he was weeping from love, she recognized immediately the oldest sobs in the history of man.
+ - A man knows when he is growing old because he begins to look like his father.
+ - One of the most difficult things is the first paragraph. I have spent many months on a first paragraph, and once I get it, the rest just comes out very easily.
+ - She discovered with great delight that one does not love one’s children just because they are one’s children but because of the friendship formed while raising them.
+ - The only Virgos left in the world are people like you who were born in August.
+ - A man should have two wives: one to love and one to sew on his buttons.
+ - Most critics don’t realize that a novel like One Hundred Years of Solitude is a bit of a joke, full of signals to close friends; and so, with some pre-ordained right to pontificate they take on the responsibility of decoding the book and risk making terrible fools of themselves.
+ - Fatality makes us invisible.
+ - He was still too young to know that the heart’s memory eliminates the bad and magnifies the good, and that thanks to this artifice we manage to endure the burden of the past.
+ - Just because someone does not love you as you want, it does not mean that you do not love with all his being.
+ - Age isn’t how old you are but how old you feel.
+ - A falcon who chases a warlike crane can only hope for a life of pain.
+ - Once again she shuddered with the evidence that time was not passing, as she had just admitted, but that it was turning in a circle.
+ - Ultimately, literature is nothing but carpentry. With both you are working with reality, a material just as hard as wood.
+ - At some point, you no longer feel pain. Sensation disappears and reason is dulled, until you lose all grasp of time and place.
+ - Thinking that it would console him, she took a piece of charcoal and erased the innumerable loves that he still owed her for, and she voluntarily brought up her own most solitary sadnesses so as not to leave him alone in his weeping.
+ - For they had lived together long enough to know that love was always love, anytime and anyplace, but it was more solid the closer it came to death.
+ - It was a meditation on life, love, old age, death: ideas that had often fluttered around her head like nocturnal birds but dissolved into a trickle of feathers when she tried to catch hold of them.
+ - I became aware that the invincible power that has moved the world is unrequited, not happy, love.
+ - Love does not die, when someone gets old, people get old, because they can not love anymore.
+ - She would defend herself, saying that love, no matter what else it might be, was a natural talent. She would say: You are either born knowing how, or you never know.
+ - Disbelief is more resistant than faith because it is sustained by the senses.
+ - As I kissed her the heat of her body increased, and it exhaled a wild, untamed fragrance.
+ - I’ve remained a virgin for you.
+ - As a writer I’m merely a journalist who has learned to write better than others.
+ - We’ll grow old waiting.
+ - The people of the United States are one of the people I most admire in the world. The only thing I don’t understand is why a country that manages to do so well cannot do better in choosing its president.
+ - He did not dare to console her, knowing that it would have been like consoling a tiger run thru by a spear.
+ - For a week I did not take off my mechanic’s coverall day or night I did not bathe or shave or brush my teeth because love taught me too late that you groom yourself for someone you dress and perfume yourself for someone and I’d never had anyone to do that for.
+ - A true friend is the one who holds your hand and touches your heart.
+ - More than mother and son, they were accomplices in solitude.
+ - He always considered death an unavoidable professional hazard.
+ - One minute of reconciliation is worth more than a whole life of friendship!
+ - A man only has the right to look down at another when he helps him to lift himself up.
+ - Take advantage of it now, while you are young, and suffer all you can, because these things don’t last your whole life.
+ - The only thing worse than bad health is a bad name.
+ - Perhaps this is what the stories meant when they called somebody heartsick. Your heart and your stomach and your whole insides felt empty and hollow and aching.
+ - It was then that she realized that the yellow butterflies preceded the appearances of Mauricio Babilonia.
+ - He pleaded so much that he lost his voice. His bones began to fill with words.
+ - Hate and love are reciprocal passions.
+ - The rain would not have bothered Fernanda, after all, her whole life had been spent as if it were raining.
+ - He soon acquired the forlorn look that one sees in vegetarians.
+ - I would give wings to children, but I would leave it to them to learn how to fly by themselves.
+ - An early-rising man is a good spouse but a bad husband.
+ - Caribbean reality resembles the wildest imagination.
+ - It was a lone voice in the middle of the ocean, but it was heard at great depth and great distance.
+ - This soup tastes like windows.
+ - Amputees suffer pains, cramps, itches in the leg that is no longer there. That is how she felt without him, feeling his presence where he no longer was.
+ - Make no mistake: peaceful madmen are ahead of the future.
+ - Santiago Nasar had often told me that the smell of closed-in flowers had an immediate relation to death for him.
+ - She would not shed a tear, she would not waste the rest of her years simmering in the maggot broth of memory.
+ - Then he made one last effort to search in his heart for the place where his affection had rotted away, and he could not find it.
+ - One could be happy not only without love, but despite it.
+ - The world is divided into those who screw and those who do not. He distrusted those who did not – when they strayed from the straight and narrow it was something so unusual for them that they bragged about love as if they had just invented it.
+ - Florentina Ariza had kept his answer ready for fifty-three years, seven months and eleven days and nights. ‘Forever,’ he said.
+ - Inspiration gives no warnings.
+ - Become a better person and be sure to know who you are, before meeting someone new and hoping that person knows who you are.
+ - There is bound to be someone driven mad by love who will give you the chance to study the effects of gold cyanide on a cadaver. And when you do find one, observe with care, they almost always have crystals in their heart.
+ - Lost in the solitude of his immense power, he began to lose direction.
+ - A person does not belong to a place until there is someone dead under the ground.
+ - The only difference today between Liberals and Conservatives is that the Liberals go to mass at five o’clock and the Conservatives at eight.
+ - It was a love of perpetual flight.
+ - People spend a lifetime thinking abouthow they would really like to live. I asked my friends and no one seems to know very clearly. To me, it’s very clear now. I wish my life could have been like the years when I was writing ‘Love in the Time of Cholera.’
+ - I have waited for this opportunity for more than half a century, to repeat to you once again my vow of eternal fidelity and everlasting love.
+ - Surrealism comes from the reality of Latin America.
+ - Freedom is often the first casualty of war.
+ - Intrigued by that enigma, he dug so deeply into her sentiments that in search of interest he found love, because by trying to make her love him he ended up falling in love with her.
+ - Between the covers of the books that no one had ever read again, in the old parchments damaged by dampness, a livid flower had prospered, and in the air that had been the purest and brightest in the house an unbearable smell of rotten memories floated.
+ - The more transparent the writing, the more visible the poetry.
+ - You have to have spent the night at sea, sitting in a life raft and looking at your watch, to know that the night is immeasurably longer than the day.
+ - The problem in public life is learning to overcome terror; the problem in married life is learning to overcome boredom.
+ - She searched the truth with an anguish almost as great as her terrible fear of finding it .
+ - She knew that he loved her above all else, more than anything in the world, but only for his own sake.
+ - When I stand and contemplate my fate and see the path along which you have led me, I reach my end, for artless I surrendered to one who is my undoing and my end.
+ - She sensed it, saw my eyes wet with tears, and only then must have discovered I was no longer the man I had been, and I endured her glance with a courage I never thought I had.
+ - It is life, more than death, that has no limits.
+ - In the beginning, when the world was new and nothing had a name, my father took me to see the ice.
+ - I plead youth as a mitigating circumstance.
+ - I don’t believe in God, but I’m afraid of Him.
+ - Justice limps along, but gets there all the same.
+ - Her laugh was sad and taciturn, seemingly detached from any feeling of the moment, like something she kept in the cupboard and took out only when she had to, using it with no feeling of ownership, as if the infrequency of her smiles had made her forget the normal way to use them.
+ - It was the time when they loved each other best, without hurry or excess, when both were most conscious of and grateful for their incredible victories over adversity.
+ - Even when the winds of misfortune blow, amazing things can still happen.
+ - Life had already given him sufficient reasons for knowing that no defeat was the final one.
+ - It always amuses me that the biggest praise for my work comes for the imagination, while the truth is that there’s not a single line in all my work that does not have a basis in reality. The problem is that Caribbean reality resembles the wildest imagination.
+ - It was the last that remained of a past whose annihilation had not taken place because it was still in a process of annihilation, consuming itself from within, ending at every moment but never ending its ending.
+ - My most important problem was destroying the lines of demarcation that separate what seems real from what seems fantastic.
+ - Blood circulated through her veins with the fluidity of a song that branched off into the most hidden areas of her body and returned to her heart, purified by love.
+ - Your first realization when you become an important person is that all day and all night, whatever the circumstances, people want to hear you talk about yourself.
+ - She felt the abyss of disenchantment.
+ - Why do you insist on talking about what does not exist?
+ - Gaston was not only a fierce lover, with endless wisdom and imagination, but he was also, perhaps, the first man in the history of the species who had made an emergency landing and had come close to killing himself and his sweetheart simply to make love in a field of violets.
+ - The world was reduced to the surface of her skin and her inner self was safe from all bitterness.
+ - There had never been a death so foretold.
+ - There was no sleeper more elegant than she, with her curved body posed for a dance and her hand across her forehead, but there was also no one more ferocious when anyone disturbed the sensuality of her thinking she was still asleep when she no longer was.
+ - I do not believe there is a method better than Montessori for making children sensitive to the beauties of the world and awakening their curiosity regarding the secrets of life.
+ - The truth is I’m getting old, I said. We already are old, she said with a sigh. What happens is that you don’t feel it on the inside, but from the outside everybody can see it.
+ - Necessity has the face of a dog.
+ - Thus they went on living in a reality that was slipping away, momentarily captured by words, but which would escape irremediably when they forgot the values of the written letters.
+ - Always tell what you feel. Do what you think...
+ - The adolescents of my generation, greedy for life, forgot in body and soul about their hopes for the future until reality taught them that tomorrow was not what they had dreamed, and they discovered nostalgia.
+ - An artisan without memories, whose only dream was to die of fatigue in the oblivion and misery of his little gold fishes.
+ - Nothing resembles a person as much as the way he dies.
+ - I discovered the miracle that all things that sound are music, including the dishes and silverware in the dishwasher, as long as they fulfill the illusion of showing us where life is heading.
+ - If you lie down in a village square hoping to capture a sea gull, you could stay there your whole life without succeeding. But a hundred miles from shore it’s different. Sea gulls have a highly developed instinct for self-preservation on land but at sea they’re very cocky.
+ - Jose Palacios, his oldest servant, found him floating naked with his eyes open in the purifying waters of his bath and thought he had drowned.
+ - Her heart of compressed ash, which had resisted the most telling blows of daily reality without strain, fell apart with the first waves of nostalgia.
+ - Each man is master of his own death, and all that we can do when the time comes is to help him die without fear of pain.
+ - The woman let out an expansive laugh that resounded through the house like a spray of broken glass.
+ - He said that love was an emotion contra natura that condemned two strangers to a base and unhealthy dependence, and the more intense it was, the more ephemeral.
+ - Then he knew that they had rounded the cape of good hope, and he took her large, soft hand again and covered it with forlorn little kisses, first the hard metacarpus, the long, discerning fingers, the diaphanous nails, and then the hieroglyphics of her destiny on her perspiring palm.
+ - The fact is that being seductive is an addiction that can never be satisfied.
+ - For a week, almost without speaking, they went ahead like sleepwalkers through a universe of grief, lighted only by the tenuous reflection of luminous insects, and their lungs were overwhelmed by a suffocating smell of blood.
+ - The weak would never enter the kingdom of love.
+ - Children’s lies are signs of great talent.
+ - What Uncle Leo XIII never suspected was that his nephew’s courage did not come from the need to survive or from a brute indifference inherited from his father, but from a driving need for love, which no obstacle in this world or the next would ever break.
+ - The truth is that the first changes are so slow they pass almost unnoticed, and you go on seeing yourself as you always were, from the inside, but others observe you from the outside.
+ - In that way the long-awaited visit, for which both had prepared questions and had even anticipated answers, was once more the usual everyday conversation.
+ - From the moment I wrote ‘Leaf Storm’ I realized I wanted to be a writer and that nobody could stop me and that the only thing left for me to do was to try to be the best writer in the world.
+ - If men gave birth, they’d be less inconsiderate.
+ - One can be in love with several people at the same time, feel the sorrow with each, and not betray any of them.
+ - She had the revelation one Sunday that while the other instruments played for everyone the violen played for her alone .
+ - All my life, I’ve been frightened at the moment I sit down to write.
+ - She had never imagined that curiosty was one of the many masks of love .
+ - No matter what you do this year or in the next hundred, you will be dead forever.
+ - Nevertheless, no matter how much they killed themselves with work, no matter how much money they eked out, and no matter how many schemes they thought of, their guardian angels were asleep with fatigue while they put in coins and took them out trying to get just enough to live with.
+ - While a person does not give up on sex, sex does not give up on the person.
+ - In her final years she would still recall the trip that, with the perverse lucidity of nostalgia, became more and more recent in her memory.
+ - A great commotion immobilized her in her center of gravity, planted her in her place, and her defensive will was demolished by the irresistible anxiety to discover what the orange bells and whistles and the invisible globes on the other side of death were like.
+ - When you have a healthy appetite there is no such thing as bad bread.
+ - The most important thing Paris gave me was a perspective on Latin America. It taught me the differences between Latin America and Europe and among the Latin American countries themselves through the Latins I met there.
+ - He was weary of the uncertainty of the vicious circle of that eternal war that always found him in the same place, but always older, wearier, even more in the position of not knowing why, or how, or even when.
+ - Over the years they both reached the same wise conclusion by different paths: it was not possible to live together in any other way, or love in any other way, and nothing in this world was more difficult than love.
+ - Ah, me, if this is love, then how it torments.
+ - The only thing he could do to stay alive was not to allow himself the anguish of that memory. He erased it from his mind, although from time to time in the years that were left to him he would feel it revive, with no warning and for no reason, like the sudden pang of an old scar.
+ - Injections are the best thing ever invented for feeding doctors.
+ - She was a ghost in a strange house that overnight had become immense and solitary and through which she wandered without purpose, asking herself in anguish which one of them was deader: the man who had died or the woman he had left behind.
+ - Horses frighten me as much as chickens do,’ he said. ‘That is too bad, because lack of communication with horses has impeded human progress,’ said Abrenuncio. ‘If we ever broke down the barriers, we could produce the centaur.
+ - Tricks you need to transform something which appears fantastic, unbelievable into something plausible, credible, those I learned from journalism. The key is to tell it straight. It is done by reporters and by country folk.
+ - Fernanda, on the other hand, looked for it in vain along the paths of her everyday itinerary without knowing that the search for lost things is hindered by routine habits and that is why it is so difficult to find them.
+ - Humanity, like armies in the field, advances at the speed of the slowest.
+ - Dr Urbino did not agree: in his opinion a Liberal president was exactly the same as a Conservative president, but not as well dressed.
+ - To all, I would say how mistaken they are when they think that they stop falling in love when they grow old, without knowing that they grow old when they stop falling in love.
+ - In the end, it is impossible not to become what others believe you are.
+ - I think that the idea that I’m writing for many more people than I ever imagined has created a certain general responsibility that is literary and political. There’s even pride involved, in not wanting to fall short of what I did before.
+ - The people one loves should take all their things with them when they die.
+ - This was when I heard that the first symptom of old age is when you begin to resemble your father.
+ - Faulkner is a writer who has had much to do with my soul, but Hemingway is the one who had the most to do with my craft – not simply for his books, but for his astounding knowledge of the aspect of craftsmanship in the science of writing.
+ - I never had intimate friends, and the few who came close are in New York. By which I mean they’re dead, because that’s where I suppose condemned souls go in order not to endure the truth of their past lives.
+ - I would like for my books to have been recognized posthumously, at least in capitalist countries, where they turn you into a kind of merchandise.
+ - And again, as always, after so many years we were still in the same place we always were.
+ - And nevertheless, when they watched him leave the house, this man they themselves had urged to conquer the world, then they were the ones left with the terror that he would never return. That was their life. Love, if it existed, was something separate: another life.
+ - Death really did not matter to him but life did, and therefore the sensation he felt when they gave their decision was not a feeling of fear but of nostalgia.
+ - Love is not a condition of the spirit but a sign of the zodiac.
+ - That’s maybe the reason he does so many things so that he will not have to think .
+ - Nothing one does in bed is immoral if it helps to perpetuate love.
+ - There was a house at the foot of the tower, close to the thunder of the waves breaking against the cliffs, where love was more intense because it seemed like a shipwreck.
+ - Fame is very agreeable, but the bad thing is that it goes on 24 hours a day.
+ - She wanted to be herself again, to recover all that she had been obliged to give up in half a century of servitude that had doubtless made her happy but which, once her husband was dead, did not leave her even the vestiges of her identity.
+ - He thought about his people without sentimentalily, with a strick closing of his accounts with life, beginning to understand how much he really loved the people he hated the most.
+ - The truth was that I could not manage my soul, and I was becoming aware of old age because of my weakness in the face of love.
+ - He thought that the world would make more rapid progress without the burden of old people.
+ - I must try and break through the cliches about Latin America. Superpowers and other outsiders have fought over us for centuries in ways that have nothing to do with our problems. In reality we are all alone.
+ - He spent six hours examining things, trying to find a difference from their appearance on the previous day in the hope of discovering in them some change that would reveal the passage of time.
+ - Nobody teaches life anything.
+ - It was the year they fell into devastating love. Neither one could do anything except think about the other, dream about the other, and wait for letters with the same impatience they felt when they answered them.
+ - I don’t know who said that novelists read the novels of others only to figure out how they are written. I believe it’s true. We aren’t satisfied with the secrets exposed on the surface of the page: we turn the book around to find the seams.
+ - In the end all books are written for your friends.
+ - This was his world, he said to himself, the sad, oppressive world that God had provided for him, and he was responsible to it.
+ - In all the houses keys to memorizing objects and feelings had been written. But the system demanded so much vigilance and moral strength that many succumbed to the spell of an imaginary reality, one invented by themselves, which was less practical for them but more comforting.
+ - It was, at last, real life, with my heart safe and condemned to die of happy love in the joyful agony of any day after my hundredth birthday.
+ - In some way impossible to ascertain, after so many years of absense, Jose Arcadio was still an autumnal child, terribly sad and solitary.
+ - His place was always set at the table, in case he rturned from the dead without warning .
+ - What is essential, therefore, is not that you no longer believe, but that God continues to believe in you.
+ - Fame invades your private life. It takes away from the time that you spend with friends, and the time that you can work. It tends to isolate you from the real world.
+ - A famous writer who wants to continue writing has to be constantly defending himself against fame.
+ - The only everyday and eternal reality was love.
+ - The anxiety of falling in love could not find repose except in bed.
+ - I don’t have a method. All I do is read a lot, think a lot, and rewrite constantly. It’s not a scientific thing.
+ - Four geological eras had to pass so that human beings would be able to outsing the birds and die for love.
+ - It is not that the girl is unfit for everything, it is that she is not of this world.
+ - I can’t think of any one film that improved on a good novel, but I can think of many good films that came from very bad novels.
+ - I always had understood that dying of love was mere poetic license.
+ - One had to live a long time to know a man’s true nature.
+ - It is impossible to explain. But what I like most is to eat.
+ - Life is but a continual succession of opportunities for surviving.
+ - Then the writing became so fluid that I sometimes felt as if I were writing for the sheer pleasure of telling a story, which may be the human condition that most resembles levitation.
+ - He was healthier than the rest of us, but when you listened with the stethoscope you could hear the tears bubbling inside his heart.
+ - Everything that goes into my mouth seems to make me fat, everything that comes out of my mouth embarrasses me.
+ - I want the same one, the way she always is, without failures, without fights, without bad memories.
+ - Just as real events are forgotten, some that never were can be in our memories as if they happened.
+ - He was carrying a suitcase with clothing in order to stay and another just like it with almost two thousand letters that she had written him. They were arranged by date in bundles ties with colored ribbons, and they were all unopened.
+ - He governed as if he felt predestined to never die.
+ - I must warn you that the books I like are not necessarily the ones I think are the best. I like them for various reasons not always easy to explain.
+ - Ultimately, literature is nothing but carpentry.
+ - Old people, with other old people, are not so old.
+ - The truth is that I know very few novelists who have been satisfied with the adaptation of their books for the screen.
+ - The year I turned ninety, I wanted to give myself the gift of a night of wild love with an adolescent virgin.
+ - But that afternoon he asked himself, with his infinite capacity for illusion, if such pitiless indifference might not be a subterfuge for hiding the torments of love.
+
+264 quotes

@@ -1,0 +1,34 @@
+ - Nothing is more powerful than beauty in a wicked world.
+ - I like down-to-earth people.
+ - I’m in love with a girl who’s in love with the world.
+ - We all need a place that we can go, And feel over the rainbow.
+ - Theres nothing but spirit in music. Thats all it is. Yeah, theres a lot of intellectual elements to it, but no matter how you approach it, its all spirit.
+ - I live a pretty anonymous life.
+ - The closest place that I feel like I come to having religious moments is always musical.
+ - I’m not afraid to be bluntly honest in my songs, even if it means I’m discovering things about myself that I’d rather not.
+ - I’m not into cold weather, I like warm weather.
+ - You need a strong sense of ‘otherness’ to be able to create in your life.
+ - I think most of the time when people have big disagreements and big misunderstandings, when time lessens that blow it creates a deeper understanding for both people.
+ - Across the board, from my mother to my father to my aunts and uncles, everybody has always given me a lot of love.
+ - I don’t know anyone who is a writer who isn’t influenced by the relationships in their life.
+ - I don’t know anything about music theory at all. Zero. But I don’t really need to.
+ - I’m not a mass-appeal artist.
+ - I love when people are coming up and they’re working hard and you can see that they’re really focused on the process to their music. I really dig that. As a musician, it’s nice to see people who really care about the process.
+ - I love what I do, so I don’t mind working.
+ - I grew up working at a record store and listening to vinyl. Even if it’s side A and B, there’s always this continuity that really turned me on about music.
+ - Songwriting isn’t always something that’s directly proportionate to the experience.
+ - I don’t really hang out with a lot of celebrities.
+ - I’m always flattered and honored when people cover my music or sing my songs, no matter where it is.
+ - Country artists have advantages all over the place. The radio support is incredible. The fanbase is rabid, all over.
+ - I don’t really know what ‘folk music’ means anymore.
+ - Genre, to me, is not all that important, and it never has been.
+ - My favorite time in music is probably 1970-75. Still Bill by Bill Withers, Harvest by Neil Young, John Prine’s first album, James Taylor’s One Man Dog-I hope I can bring the same sort of spirit I hear on those records.
+ - I don’t really know that there’s any real rules for songwriting.
+ - As an experience, as a listener, for me, I miss the record store. I miss going in and knowing the guy at the counter and being like, “Hey,” knowing that he was going to hate the record I put on the counter, and still buying it. That takes some guts.
+ - As I’ve moved along – not only my life, but my career and things like that – you look at yourself and start going, ‘Oh, man, are you still doing what you set out to do? Are the ideals you had still the same?’ Sometimes you measure up and sometimes you don’t.
+ - I do not go on my Wikipedia page. There’s just too much weird information on there for me to pick apart.
+ - There’s not a whole lot of media interest in me other than just the records that I make.
+ - People love music, they’re always going to love music, it’s our job to consistently push ourselves as artists to keep delivering stuff for people to stay engaged with.
+ - I wasn’t a very good teacher.
+
+32 quotes

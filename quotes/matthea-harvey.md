@@ -1,0 +1,44 @@
+ - Teaching is a great way to keep learning.
+ - I write poems from dreams pretty frequently. It’s limiting to think the poem has to come from a sensical lyric “I” stating things clearly or dramatically. This whole course is trying to say there are millions of ways to approach writing a poem.
+ - I like to photograph miniature constructed scenes – I’ll buy a very sad cake decoration like a plastic computer for a dreary office birthday party and construct a wildly colorful scene to put on its screen, or do a series of dollhouse chairs frozen in ice cubes.
+ - Writing directly from a feeling of anger or sadness is difficult, but if you distract part of your brain with word games, the ignored emotion often tiptoes in.
+ - What I like about prose poems is that they seem to make people uncomfortable – people want to define them, justify them, attack them. Prose poems are natural fence-sitters.
+ - I am pretty interested in hybrid forms. I love graphic novels and I think there should be more graphic poems in the world.
+ - I do have a tendency to invest inanimate objects with human qualities.
+ - Having my poems set to music by Eric Moe has completely knocked my socks off.
+ - I have a vague memory of seeing an image of a child in an iron lung and the phrase “sad little breathing machine” coming into my head. The more I thought about it, the more I felt that on certain days – the worse ones – we could all be described as sad little breathing machines.
+ - I think all poetry is accessible in a certain sense if you spend enough time with it.
+ - I’m pretty lenient with myself about time – if I feel like taking photographs of small things inside ice cubes or making animal collages, I just do it. When I want to write, I write. It’s all part of the same thing for me.
+ - Poems tend to have instructions for how to read them embedded in their language.
+ - I certainly believe you can write a narrative lyric or a lyrical narrative – why not a nyric or a larrative?
+ - Poetic success is when you write a poem that makes you excited and bewildered and aglow.
+ - I do love the prose poem because it’s such a perverse and provocative little box – always asking to be questioned, never giving a straight or definitive answer.
+ - I’m interested in concrete poems – anything that complicates the line between the written and the visual.
+ - I grew up spending time at my grandmother’s farm in Germany and she lived a few kilometers away from the border between east and west Germany. It was so strange that roads which used to connect two towns now ended in the middle.
+ - I let my narrative embroidering impulses take over in prose poems.
+ - I also like poems that are haunted by a structure or a narrative, or poems that frisk flirtatiously at the boundary of sense.
+ - Not everyone is going to like every carnival ride.
+ - I don’t think that you can say by any stretch of the imagination that all Wisconsin or Brooklyn-based poets write in a particular way. Similar sensibilities can spring up next to each other in the flower bed, or across oceans.
+ - I guess I’m a bit of a projector – my emotions tend to get translated into different, fanciful situations.
+ - I suppose it’s useful in designating writing that tends to come from personal experience, work that delineates an “I,” but it’s a loose lasso, one which may rope certain poems by one poet and not others.
+ - I don’t like basements, but definitely basements could be poems. Not fond of skin diseases, but again, there’s a pattern. Probably anything could be a poem.
+ - I’m all over my poems, even if their relation to my everyday life is that of dream to reality.
+ - Erasures are interesting to me because they prove what particular sieves we all are.
+ - In my own writing, I’ve mostly abandoned end-rhyme, but wordplay is still a huge part of my process.
+ - I would love to collaborate on a graphic novel with an artist – I’m terrible at drawing but I really love that genre.
+ - I think poetry involves heightened noticing or imagining as well as creating a certain made shape. On the other hand, that shape can be made just by pointing at something and saying, “That’s a poem.”
+ - I don’t think all poems need to be written in conversational language – those are often great poems but there should also be poems of incoherent bewilderment and muddled mystery.
+ - To be a poet you have to experiment.
+ - I read a lot of graphic novels – some of my favorites graphic novelists or artists are Rebecca Kraatz, Gabrielle Bell, Graham Roumieu, Tom Gauld, and Renee French.
+ - A lot of people are writing poems and don’t realize it. They have this limited idea of how the poem should sound or what subjects it should address.
+ - As a reader I don’t distinguish between confessional and non-confessional work. After all, how do we even know that certain “I” poems are confessional? It’s a tricky business, this correlating of the speaker and the poet.
+ - If you were going to make sculptures of them, the swivel poems would be disparate objects all attached with hinges and the prose poems would be small sheep wrapped in extra wool.
+ - We humans have an amazing way of making everything personal.
+ - When I start writing a poem, I can usually know quite early on whether it’s a lineated or prose poem, but I don’t think I can explain how. It’s like deciding whether to wear a skirt or a pair of pants.
+ - Writing a poem is always a process of subtracting: you start with all of language available to you, and you choose a smaller field.
+ - People “confess” can be wildly different. I might go into the confessional and say, “Father, what is my obsession with miniatures?”
+ - When I have my students do erasures, I’m always amazed by the way their voice comes through, whether they’re doing an erasure of a romance novel or an encyclopedia. Your sensibility will out.
+ - Poems can’t help but be personal. Mine are certainly an accurate blueprint of the things I think about, if not a record of my daily life.
+ - Usually form seems to find me in the process of writing a poem, though I have nothing against starting out with the form.
+
+42 quotes

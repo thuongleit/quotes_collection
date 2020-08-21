@@ -1,0 +1,40 @@
+ - I don’t flirt and I don’t play the people that I’m meeting with.
+ - Twin Peaks was special because it was so groundbreaking. In the early 90s it really changed television a lot. A bunch of weird shows, like Northern Exposure, came on after that.
+ - I see people giving me looks because I’m so opinionated. That hurts my feelings, but at the end of the day I have to live with me and respect myself. And I’ve done enough things in my life where I was confused and didn’t respect myself that I will not do it any more.
+ - There is something at work that’s bigger than us. It’s about having a trust in life and being at peace that things are happening the way they should. You do what you do as well as you can do it, and then you don’t worry or agonize about the outcome.
+ - I was told once that I didn’t play the Hollywood game, and that’s why I wasn’t a big star. What they meant when was that I don’t go to parties, and when I go to an audition and I don’t like the script, they know it.
+ - I don’t want my body to look like a man’s. I just want to tone my body.
+ - I’m contemplating moving to London for a period of time. I’ve been in Los Angeles for 15 years and I’m really tired of it. I’m continually uninspired by what’s being sent to me. Even by huge films that they’re doing there. They’re just awful.
+ - They’re pushing me to do Howard. Howard’s a trip. My friend made me watch the Lesbian Love Connection and I was like, Oh God, get me out of here!
+ - I like taking risks and I decided to put every bit of me into the role.
+ - I love to dance. But I don’t like being up in front of tons of people. I didn’t have the desire to be performing in front of a lot of people. So it wasn’t something I ever seriously considered.
+ - I was a brat. It was crazy, I was very picky. In other words, I didn’t take advantage of what was happening.
+ - I loved working on Of Mice and Men. It was a wonderful group of people. John Malkovich is to me one of the best actors around right now-and a lot of fun to work with.
+ - I can sing, but my voice is untrained. Id like to do a musical someday.
+ - At the very least, my tastes are out of the ordinary.
+ - Instead of making Friday The 13th, Part VIII or whatever, I was making the girl-meets-boy, girl-meets-girl-dressed-as-boy movie. It was fun. I liked it. It’s goofy. I look back at myself and think, “What the hell was I doing?”
+ - If you’re a young woman in Hollywood, then they want you to look a certain way and paint you in this and that. To this day, it’s hard to find people like us, who want to kind of find deep truths, not just skirt above the top of it.
+ - Now I know why guys like to hug girls. You guys just want to cop a feel. I can’t believe that I’ve fallen for it all these years!
+ - I remember my agent at the time called me and was like, “I’ve got it! I’ve found it! I’ve found your role!” I worked my ass off to get that role, because I think me and three or four other girls tested for it. But it was a great time.
+ - I’ve always been drawn to Marilyn Monroe, but certain aspects of her story may be too sad to tell.
+ - It’s not sometimes realistic to think that something magical can happen, but I think I look for the magic.
+ - I really loved Twin Peaks. When I saw the two-hour pilot, they screened it in the big theatre. I said, I don’t know what is going to happen. I’m in this and I don’t understand it. This is never going to sell. Who’s going to watch this thing?
+ - We all have sadness in our life and things that we can draw upon.
+ - My mother’s been married many, many times and grew up believing in love like that. It’s remarkable.
+ - I think there’s an anxiety in life where we automatically tend to look to the next thing or we’re complaining about the past. Worrying is not going to make it happen or not happen.
+ - I’m honest. I say what I feel. I try to be tactful, but I can’t not say what I feel. I have a really big problem with that.
+ - Generally, Hollywood makes the same stories over and over. I’ve never wanted to do the same thing twice. If a script doesn’t surprise me in some way, I simply can’t commit to the project.
+ - It’s completely different to work with a woman that is my age, maybe younger.
+ - The studios have their list of five actresses and whether they’re right or wrong for a role doesn’t matter. It’s how much money their last movie made.
+ - I’m not big with an audience; I get very nervous.
+ - I don’t think I could ever do a network sitcom because the humor is often based on some trite circumstance. I don’t want to be a part of a show where it’s mostly about coming up with the jokes.
+ - I said, “Oh well, I’ll act.” I started to study, but I didn’t know what I was doing, and I don’t know that I was taking it very seriously then.
+ - Women do feel like they’re in a box. Society, Hollywood, some men-they want to wrap women up in a neat little package.
+ - I don’t know why people see the things that they do. I wouldn’t pay to see them, they don’t touch me or move me in any way.
+ - In a perfect world, I could be doing some bigger films and balance that with some independent films because they seem to be the most challenging and unique.
+ - Playing Elizabeth Taylor was probably the hardest job I’ve ever done.
+ - The world has certain rules – Hollywood has certain rules – but it doesn’t mean you have to play by them, and I don’t, or I’d be a miserable person.
+ - I don’t go to parties and all that. I don’t think being seen or being in the right place is going to make me a better actress. I care about my work and try to do what’s right in my heart.
+ - They’ve offered me every variation on Audrey Horne, none of which were as good or as much fun.
+
+38 quotes

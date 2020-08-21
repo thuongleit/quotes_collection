@@ -1,0 +1,86 @@
+ - Look into your own heart, discover what it is that gives you pain and then refuse, under any circumstance whatsoever, to inflict that pain on anybody else.
+ - Religions don’t own compassion; it is a human virtue.
+ - The hajj is one of the five essential practices of Islam; when they make the pilgrimage to Mecca, Muslims ritually act out the central principles of their faith.
+ - If we could view Muhammad as we do any other important historical figure we would surely consider him to be one of the greatest geniuses the world has known.
+ - Mythology and science both extend the scope of human beings. Like science and technology, mythology, as we shall see, is not about opting out of this world, but about enabling us to live more intensely within it.
+ - Compassion is not feeling sorry for others. It’s not soft. It requires an intellectual effort.
+ - Compassion is not an option. It’s the key to our survival.
+ - Surely it’s better to love others, however messy and imperfect the involvement, than to allow one’s capacity for love to harden.
+ - You have to get into the water and learn against what seems to be the law gravity to float and dancing, or athletics takes you years before you develop a skill. But if you work at it, practicing daily, you can enable your body to do things that are utterly impossible to an untrained physic.
+ - Geniuses are not always pleasant people.
+ - Each of the world religions has its own particular genius, its own special insight into the nature and requirements of compassion, and has something unique to teach us.
+ - Like art, religion is an imaginative and creative effort to find a meaning and value in human life.
+ - Religion starts with the perception that something is wrong.
+ - When you feel compassion, you dethrone yourself from the centre of the world.
+ - Some people simply bury their heads in the sand and refuse to think about the sorrow of the world, but this is an unwise course, because, if we are entirely unprepared, the tragedy of life can be devastating.
+ - Ever since the Crusades, when Christians from western Europe were fighting holy wars against Muslims in the near east, western people have often perceived Islam as a violent and intolerant faith – even though when this prejudice took root Islam had a better record of tolerance than Christianity.
+ - Islam is a religion of success. Unlike Christianity, which has as its main image, in the west at least, a man dying in a devastating, disgraceful, helpless death.
+ - It’s quite common for a Sufi mystic to cry in ecstasy that he’s neither a Jew, a Christian, nor a Muslim. He is at home equally in a synagogue, a mosque, a temple, or a church because when one’s glimpsed the divine, one’s left these man-made distinctions behind.
+ - The first person to promulgate the Golden Rule, which was the bedrock of this empathic spirituality, was Confucius 500 years before Christ.
+ - If we don’t manage to implement the Golden Rule globally, so that we treat all peoples, wherever and whoever they may be, as though they were as important as ourselves, I doubt that we’ll have a viable world to hand on to the next generation.
+ - If your child dies, or you witness a terrible natural disaster, yes, you certainly want a scientific explanation as to what’s happened. But science can’t help you to find meaning, help you deal with that turbulence of your grief, rage, and dismay.
+ - Compassion is the key in Islam and Buddhism and Judaism and Christianity. They are profoundly similar.
+ - When the horror recedes and the world resumes its normal shape, you cannot forget it. You have seen what is really there, the empty horror that exists when the consoling illusion of our mundane experience is stripped away, so you can never respond to the world in quite the same way again.
+ - We should probably all pause to confront our past from time to time, because it changes its meaning as our circumstances alter.
+ - You are your best self when you give yourself away.
+ - Well, logos is science or reason, something that helps us to function practically and effectively in the world, and it must therefore be closely in tune and reflect accurately the realities of the world around us.
+ - Compassion doesn’t, of course, mean feeling sorry for people, or pity, which is how the word has become emasculated in a way.
+ - Here in America, religious people often prefer to be right rather than compassionate. They’ve lost the Axial Age vision of concern for everybody.
+ - Religion is not about accepting twenty impossible propositions before breakfast, but about doing things that change you. It is a moral aesthetic, an ethical alchemy. If you behave in a certain way, you will be transformed.
+ - If we try to hold on to our partial glimpses of the divine, we cut it down to our own size and close our minds. Like it or nor, our human experience of anything or anybody is always incomplete: there is usually something that eludes us, some portion of experience that evades our grasp.
+ - Compassion has to become a discipline. It’s something that you do. It’s no good thinking that you agree with compassion or not, you’ve just got to do it. Just like it’s no good agreeing that it’s possible to float, you just have to get into the pool and then you learn that it’s possible.
+ - There is nothing in Islam that is more violent than Christianity.
+ - Religion is not a nice thing. It is potentially a very dangerous thing because it involves a heady complex of emotions, desires, yearnings and fears.
+ - A gentleman is not born but crafted. He had to work on himself in the same way as a sculptor shaped a rough stone and made it a thing of beauty.
+ - We can’t say what God is, and until the modern period, Jewish, Christian, and Muslim theologians in the three God religions all knew that. They insisted that we have no idea what we meant when we said that God was good, or wise, or intelligent.
+ - In the past some of the most influential Jewish, Christian and Muslim theologians, such as Maimonides, Aquinas and Ibn Sina, made it clear that it was very difficult to speak about God, because when we confront the ultimate, we are at the end of what words or thoughts can do.
+ - And so, one of the reasons why I started my Charter for Compassion, was to bring the Golden Rule back to the center of religion and morality and not put other’s secondary goals, less demand goals, into the forefront.
+ - Let’s use our stories to encourage listening to one another and to hear not just the good news, but also the pain that lies at the back of a lot of people’s stories and histories.
+ - There is a danger in monotheism, and it’s called idolatry. And we know the prophets of Israel were very, very concerned about idolatry, the worship of a human expression of the divine.
+ - You put yourself in the receptive frame of mind with which we approach music or poetry, which you can measure the difference on a neurological scanner.
+ - We talk about God as though he was like a somebody. We ask him to bless our nation, or save our Queen, or give us a fine day for the picnic. And we actually expect him to be on our side in an election or war even though our opponents are also God’s children.
+ - A mode of knowledge rooted in silence and intuitive insight which gives meaning to life but which cannot be explained in rational terms.
+ - Religion isn’t about believing things. It’s ethical alchemy. It’s about behaving in a way that changes you, that gives you intimations of holiness and sacredness.
+ - We want to create, never mind the leaders or the bishops or chief rabbis or imams, or Popes. We want to create a grassroots movement where people will become attuned to uncompassionate discourse in the same way as we are now attuned to sort of gender imbalance in our speech.
+ - And sometimes it’s the very otherness of a stranger, someone who doesn’t belong to our ethnic or ideological or religious group, an otherness that can repel us initially, but which can jerk us out of our habitual selfishness, and give us intonations of that sacred otherness, which is God.
+ - In order to always treat others, as we would wish to be treated ourselves, we have to learn about each other. Not just relying on an op-ed piece we may have read here, or a half-remembered interview on the television program there that happens to chime with our own views.
+ - Buddhists talk about nirvana in very much the same terms as monotheists describe God.
+ - The only way to show a true respect for God is to act morally while ignoring God’s existence.
+ - Respect only has meaning as respect for those with whom I do not agree.
+ - Nirvana is something within you. It is not an external reality. No god thunders down from the mountaintop. Just as the great mystics in the Christian, Jewish and Muslim faiths all discovered, God is within the self. God is virtually inseparable from ourselves.
+ - Huge imbalance in power has resulted in the alienation, rage, fury, and awful amoral terrorism that has erupted and is erupting at the present time. And in order to counter this, we need to make the compassionate voice of religion and morality a dynamic force in our world.
+ - Every fundamentalist movement I’ve studied in Judaism, Christianity and Islam is convinced at some gut, visceral level that secular liberal society wants to wipe out religion.
+ - Religious ideas and practices take root not because they are promoted by forceful theologians, nor because they can be shown to have a sound historical or rational basis, but because they are found in practice to give the faithful a sense of sacred transcendence.
+ - The study of the traditions doesn’t necessarily make you want to convert to another tradition, but it helps you to see your own differently and expands your outlook.
+ - I had failed to make a gift of myself to God.
+ - It’s a great event to get outside and enjoy nature. I find it very exciting no matter how many times I see bald eagles.
+ - The early doctrines of the church, even doctrines like Trinity and Incarnation were originally also calls for action, calls for selflessness, calls for compassion, and unless you live that out compassionately, selflessly, you didn’t understand what the doctrine was saying.
+ - The great task of our time is to build a global society, where people can live together in peace.
+ - Creation stories had never been regarded as historically accurate; their purpose was therapeutic. But once you start reading Genesis as scientifically valid, you have bad science and bad religion.
+ - Yet a personal God can become a grave liability. He can be a mere idol carved in our own image, a projection of our limited needs. fears and desires. We can assume that he loves what we love and hates what we hate, endorsing our prejudices instead of compelling us to transcend them.
+ - When violence becomes imbedded in a region, then this affects everything. It affects your dreams, your fantasies and relationships, and your religion becomes violent, too.
+ - Deeds that seemed unimportant at the time would prove to have been momentous; a tiny act of selfishness and unkindness or, conversely, an unconsidered act of generosity would become the measure of a human life.
+ - Whatever conclusions we reach about the reality of God, the history of this idea must tell us something important about the human mind and the nature of our aspiration.
+ - We have to make a disciplined effort to find out what our governments are doing in these various parts of the world and what is actually happening. We have to learn to listen to each other’s stories. Something we are not very good at.
+ - After I left the convent, for 15 years I was worn out with religion, I wanted nothing whatever to do with it. I felt disgusted with it. If I saw someone reading a religious book on a train, I’d think, how awful.
+ - Religion is hard work. Its insights are not self-evident and have to be cultivated in the same way as an appreciation of art, music, or poetry must be developed.
+ - I learned a lot from both, initially Jewish and Muslim theologians that had been missing, perhaps from my rather parochial Catholic upbringing.
+ - Religion is a practical discipline and it’s one that we have always done, ever since humanity appeared on the scene when Homo sapiens became Homo sapiens. Sapiens became a human being, our minds very naturally segue into transcendence.
+ - Often when religious leaders come together, they talk about a particular sexual ethic, or an abstruse doctrine, as though this, rather than compassion, was the test of spiritual life.
+ - Compassion is not a popular virtue.
+ - It is not difficult to find a religious justification for killing.
+ - Now I think one of the reasons why religion developed in the way that it did over the centuries was precisely to curb this murderous bent that we have as human beings.
+ - The trouble with a lot of modern theology and a lot of modern thinking about God, is that we think of God a sort of being like ourselves, but bigger and better with likes and dislikes similar to our own.
+ - At the beginning of the twentieth century, every single leading Muslim intellectual was in love with the west, and wanted their countries to look just like Britain and France.
+ - The values of Islam are expressed by Muslims clearly. September 11 changed the world, and put Muslims on the spotlight.
+ - We are most creative and sense other possibilities that transcend our ordinary experience when we leave ourselves behind.
+ - Religion is a practical discipline and in the 17th century in the West, we turned it onto a head trip. But it’s like dancing, or swimming, or driving, which you can’t learn by texts. You have to get into the car and learn how to manipulate the vehicle.
+ - We are what we are because of the hard work, insights and achievements of countless others.
+ - From the Muslims I learned from the extraordinary pluralism of the Koran, the fact that the Koran endorses every single one of the major world faiths, but I was particularly enthralled by the Sufi tradition, the mystical tradition of Islam, which is so open to other religious faiths.
+ - There must be no coercion in matters of faith!
+ - So, we think about God far to easily and that’s because of a lot of social, intellectual, and scientific changes that have taken place in the western world and that has made God very problematic for a lot of people.
+ - We constantly have ideas and experiences that go beyond what we can say or know. Most often these are expressed in art, in painting, in music. Music, everyday confronts us with a form of knowing that doesn’t depend on words.
+ - A theology should be like poetry, which takes us to the end of what words and thoughts can do.
+ - Jewish, Christian, and Muslim theologians have insisted for centuries that God does not exist and that there is ‘nothing’ out there; in making these assertions, their aim was not to deny the reality of God but to safeguard God’s transcendence.
+
+84 quotes

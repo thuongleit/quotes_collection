@@ -1,0 +1,24 @@
+ - Photoshop is an art, and you can do a lot with it. Change the atmosphere through different lighting and make the pictures look more interesting.
+ - Focus and having energy is the most important goal when choosing my activities and how I treat myself.
+ - I’ve been collecting crystals for many, many years for healing purposes and decoration. I guess since my name is Crystal, I have no choice.
+ - We women are a lot more powerful if we see ourselves as fighters on the same side. But it’s easier to judge others – their choices and their bodies – than to think about the struggles we share.
+ - Redken is a brand I’ve been using since I was a kid, my grandmother introduced it to me, my mother used it, so obviously I was very aware of the brand, so when I heard we were going to meet and potentially do something in the future, I was very excited.
+ - All women bring something different to the table and we have to appreciate them all.
+ - The problem is that we as a society simply accept these unrealistic standards: that you have to be thin to be perfect, to be beautiful, to be successful at work and to have a good relationship. And it is making us sick. This self-loathing is crippling women.
+ - There’s been a lot of focus on my body, but it’s taught me to appreciate myself no matter where I am.
+ - You can never go wrong with a nice red lip. I’m not afraid to wear it during the day or basically any time because I wear a lot of black and it’s a great backdrop for it.
+ - Too many of us feel that we have to be perfect, in order to be loved.
+ - Anorexia is a disease that happens to people, mostly women and girls, who have obsessive, perfectionist personalities.
+ - I have made a choice to listen to myself even if everyone in the entire world doesn’t agree with what I think. I know me, at the end of the day and I know what I can handle emotionally and what I can handle physically.
+ - The girls everyone considers the “prettiest” are not always the most interesting or ambitious people.
+ - I’m very lucky that I have people styling my hair and teaching me how to work with it, but it wasn’t always like that. Growing up, I had extremely wavy and thick hair and that can be very overwhelming – you end up with the same ponytail every day.
+ - I think there’s a lot you can learn from everybody; everybody has a story and a strength within them.
+ - No matter what size you are, you must be healthy. I focus on health as a model, whether it’s doing yoga, hiking, kickboxing – those things bring me joy.
+ - I was anorexic. I was in hell. Now I eat what I want, and I’m still a model. So you see, it works.
+ - We can always find each other, we girls with secrets.
+ - I am a good model because I have mastered my craft. I have accepted my body, I know it well and I know how to move in front of the camera.
+ - I absolutely believe that when one goes on vacation, it should be pure decadence.
+ - Models should just be beautiful women who inspire others. They won’t be starving themselves because they are being accepted for themselves. Any thinner than today’s ideals would be impossible. Any thinner means dead.
+ - Besides being a model, I’m a human and a woman.
+
+22 quotes

@@ -1,0 +1,502 @@
+ - Shakespeare wrote, Einstein thought, Ataturk built.
+ - The price of doing the same old thing is far higher than the price of change.
+ - Education is not a privilege, it is a right!
+ - Follow the trend lines, not the headlines.
+ - The future is not an inheritance, it is an opportunity and an obligation.
+ - It’s the economy, stupid.
+ - Let’s create an integrated global community where we have shared benefits and responsibilities, and we don’t fight because of our differences.
+ - Mental illness is nothing to be ashamed of, but stigma and bias shame us all.
+ - If you live long enough, you’ll make mistakes. But if you learn from them, you’ll be a better person. It’s how you handle adversity, not how it affects you. The main thing is never quit, never quit, never quit.
+ - I hate it when people blame someone else and don’t take responsibility.
+ - We must teach our children to resolve their conflicts with words, not weapons.
+ - We need a spirit of community, a sense that we are all in this together. If we have no sense of community, the American dream will wither.
+ - Literacy is not a luxury, it is a right and a responsibility.
+ - The road to tyranny, we must never forget, begins with the destruction of the truth.
+ - The Malcolm Baldrige National Quality Award, which highlights customer satisfaction, workforce empowerment, and increased productivity, has come to symbolize America’s commitment to excellence.
+ - When our memories outweigh our dreams, it is then that we become old.
+ - You can’t say you love your country and hate your government.
+ - We’re all in this together is a far better philosophy than you’re on your own.
+ - In the new economy, information, education, and motivation are everything.
+ - Yesterday is yesterday. If we try to recapture it, we will only lose tomorrow.
+ - We will stand mighty for peace and freedom and maintain a strong defense against terror and destruction. Our children will sleep free from the threat of nuclear, chemical, or biological weapons.
+ - Education no longer stops on graduation day. We must demand excellence at every level of education.
+ - Behind every great man there stands a great woman. Behind every great woman is a great behind.
+ - Every American should have above average income, and my Administration is going to see they get it.
+ - We know that when we protect our oceans we’re protecting our future.
+ - Nearly every problem has been solved by someone, somewhere. The challenge of the 21st century is to find out what works and scale it up.
+ - Turning 50 gives me more yesterdays than tomorrows.
+ - Poverty, discrimination, and ignorance restrict growth.
+ - Work organizes life. It gives structure and discipline to life.
+ - In today’s knowledge-based economy, what you earn depends on what you learn. Jobs in the information technology sector, for example, pay 85 percent more than the private sector average.
+ - If there’s grass in the field, play ball!
+ - In science, if the last 50 years were the age of physics, the next 50 years will be the age of biology.
+ - When personal freedom’s being abused, you have to move to limit it.
+ - Effort, not ability, makes the biggest difference in achievement.
+ - I love and revere the rich and proud history of America. And I am determined to take our best traditions into the future. But with all respect, we do not need to build a bridge to the past. We need to build a bridge to the future.
+ - We must say no to illegal immigration so we can continue to say yes to legal immigration.
+ - Sometimes when people are under stress, they hate to think, and it’s the time when they most need to think.
+ - I tried to walk a line between acting lawfully AND testifying falsely, but I now realize that I did not fully accomplish that goal.
+ - I’m very proud that the first bill I had the opportunity to sign into law as President was the Family and Medical Leave Act No parent should ever have to choose between work and family; between earning a decent wage and caring for a child.
+ - America’s greatness depends on the ability of its citizens to make the most of their lives. Americans with disabilities are an enormous, often untapped reservoir of that potential.
+ - There’s never a perfect bipartisan bill in the eyes of a partisan.
+ - No problem of human making is too great to be overcome by human ingenuity, human energy, and the untiring hope of the human spirit.
+ - I had some words with my wife, and she had some paragraphs with me.
+ - Sharing in God’s blessings is at the heart of Thanksgiving and at the core of the American spirit.
+ - Sometimes I feel like a fire hydrant looking at a pack of dogs.
+ - There is nothing more precious to a parent than a child, and nothing more important to our future than the safety of all our children.
+ - Profound and powerful forces are shaking and remaking our world. And the urgent question of our time is whether we can make change our friend and not our enemy.
+ - It is dangerously destabilizing to have half the world on the cutting edge of technology while the other half struggles on the bare edge of survival.
+ - Nothing big ever came from being small.
+ - Character doesn’t matter.
+ - I believe that those who promote discrimination on the basis of sexual orientation or any other grounds are gravely mistaken about the values that make our nation strong. I will continue to move my administration in the direction of compassion, acceptance, and understanding.
+ - I’m someone who had a deep emotional attachment to ‘Starsky and Hutch.’
+ - For too long we’ve been told about ‘us’ and ‘them.’ Each and every election we see a new slate of arguments and ads telling us that ‘they’ are the problem, not ‘us.’ But there can be no ‘them’ in America. There’s only us.
+ - When I was a younger man and had a life, I owned an El Camino pickup in the ’70s. It was a real sort of Southern deal. I had Astroturf in the back.
+ - When we make college more affordable, we make the American dream more achievable.
+ - No generation has had the opportunity, as we now have, to build a global economy that leaves no-one behind. It is a wonderful opportunity, but also a profound responsibility.
+ - You can put wings on a pig, but you don’t make it an eagle.
+ - Everybody knows that I have tougher ethics rules than any other previous President.
+ - We live in an interdependent world. Every time you cut off somebody else’s opportunities, you shrink your own horizons.
+ - By lifting the weakest, poorest among us, we lift the rest of us as well.
+ - Considering the current sad state of our computer programs, software development is clearly still a black art, and cannot yet be called an engineering discipline.
+ - Supporters of capital punishment bear a special responsibility to ensure the fairness of this irreversible punishment.
+ - Abortion should not only be safe and legal, it should be rare.
+ - I would never approach a small-breasted woman.
+ - The last time I checked, the Constitution said, ‘of the people, by the people and for the people.’ That’s what the Declaration of Independence says.
+ - A lot of wonderful people love their country and hate the military.
+ - Ultimately, the best strategy to ensure our security and to build a durable peace is to support the advance of democracy elsewhere. Democracies don’t attack each other.
+ - I still believe in a place called Hope, a place called America.
+ - If you want a future of shared prosperity, where the middle class is growing and poverty is declining, where the American Dream is alive and well, and where the United States remains the leading force for peace and prosperity in a highly competitive world, you should vote for Barack Obama.
+ - The Republicans could mess up a two car parade.
+ - We live to prove that cooperation works better than conflict.
+ - We set forth on a journey to bring our vision to our country, to keep the American dream alive for all who are willing to work for it, to make our American community stronger, to keep America the world’s strongest force for peace and freedom and prosperity.
+ - Noting his mother’s visit to Las Vegas the weekend before she died. She got to go to heaven four days early.
+ - The people have spoken, but it will take a while to determine exactly what they said.
+ - I’m sorry, could you please tell me what the definition of the word “is” is?
+ - If you voluntarily quit in the face of adversity, you’ll wonder about it for the rest of your life.
+ - Running helps me stay on an even keel and in an optimistic frame of mind.
+ - I have news for the forces of greed and the defenders of the status quo: your time has come – and gone. It’s time for change in America.
+ - We have a unique opportunity to unite America, urban and rural, coastal and midwestern, red and blue, under the banner of a truly unifying national effort. We can start right now.
+ - Only the police should have handguns.
+ - Our overriding environmental challenge tonight is the worldwide problem of climate change, global warming, the gathering crisis that requires worldwide action.
+ - If the personal freedoms guaranteed by the Constitution inhibit the government’s ability to govern the people, we should look to limit those guarantees.
+ - Work is about more than making a living, as vital as that is. It’s fundamental to human dignity, to our sense of self-worth as useful, independent, free people.
+ - Globalisation is not something that we can hold off or turn off: it is the economic equivalent of a force of nature – like wind or water.
+ - Global poverty is a powder keg that could be ignited by our indifference.
+ - Part of our essential humanity is paying respect to what God gave us and what will be here a long time after we’re gone.
+ - I don’t think I would have become President if it were not for my school music program.
+ - Our generation, like the one before us, must choose. Without the threat of the Cold War, without the pain of economic ruin, without the fresh memory of World War II’s slaughter, it is tempting to pursue our private agendas – to simply sit back and let history unfold. We must resist the temptation.
+ - There’s nothing wrong with making mistakes. Just don’t respond with encores.
+ - When you strip away all the little things that divide us, it’s important to remember how tied we are.
+ - I think what breaks people is not adversity; what breaks people is thinking that tomorrow is going to be just like yesterday. That’s what’s numbing – if you think you can’t change, you can’t be better. And I didn’t like that.
+ - The economy has produced 6.1 million jobs since I became president, and if Michael Jordan comes back to the Bulls, it will be 6,100,001 jobs.
+ - We cannot idealize technology. Technology is only and always the reflection of our own imagination, and its uses must be conditioned by our own values. Technology can help cure diseases, but we can prevent a lot of diseases by old-fashioned changes in behavior.
+ - Pessimism is an excuse for not trying and a guarantee to a personal failure.
+ - To avoid having bad things happen, learning to manage your anger and to actually share how you really feel about something, and get it behind you is one of the most important aspects of growing up.
+ - Never tell anyone to go to hell unless you can make ’em go.
+ - I tried marijuana once. I did not inhale.
+ - Without a high pain threshold, you can’t be a successful President.
+ - When you stifle human potential, when you don’t invest in new ideas, it doesn’t just cut off the people who are affected. It hurts us all.
+ - The best example of all, to me, that our problems are both personal and cultural and political and social is the whole condition of the middle class economically.
+ - Indeed I did have a relationship with Miss Lewinsky that was not appropriate. In fact, it was wrong.
+ - A lot of presidential memoirs, they say, are dull and self-serving. I hope mine is interesting and self-serving.
+ - When people are feeling insecure, they’d rather have someone who is strong and wrong rather than somebody who is weak and right.
+ - I’m proud to say that there is not a single Russian nuclear missile pointed at an American child.
+ - When times are tough, constant conflict may be good politics but in the real world, cooperation works better. After all, nobody’s right all the time, and a broken clock is right twice a day.
+ - Democracies don’t go to war against each other, and by and large they don’t sponsor terrorism. They’re more likely to respect the environment and human rights and social justice. It’s no accident that most of the terrorists come from non-democratic countries.
+ - And I’d like to say to the Senate, I hope you will say yes to a stronger American democracy in the year 2000.
+ - You can’t blame the administration and the Republicans for taking us back to deficits, for spending the Social Security surplus and assaulting the environment. That’s what they promised to do in the last election.
+ - The first thing I had to start with was, you know, we don’t have a war. We don’t have a depression, we don’t have a Cold War.
+ - Some day we hope to liberate every man on earth from the tendency as old as human history to identify our strength and manhood with the ability to control the lives, limit the chances, and doom the dreams of women and girls.
+ - We need to help younger people recognize their own capacity to do good, and help them discover the rewards of generosity.
+ - Four years ago nobody but nuclear physicists had ever heard of the Internet. Today even my cat, Socks, has his own web page. I’m amazed at that. I meet kids all the time, been talking to my cat on the Internet.
+ - Only a fool does not look to explain his mistakes.
+ - Promising too much can be as cruel as caring too little.
+ - The ideals that bind us together are as old as our nation, but so are the forces that pull us apart.
+ - On Bill Clinton: I have a simple question: Who’s the last President to give you a balanced budget?
+ - That is, we’re into a whole new world with the Internet, and whenever we sort of cross another plateau in our development, there are those who seek to take advantage of it. So this is a replay of things that have happened throughout our history.
+ - Sincerity? I can fake that.
+ - Democracy does not have to be a bloodsport, it can be an honorable enterprise that advances the public interest.
+ - Forget what you may have heard about a digital divide or worries that the world is splintering into ‘info haves’ and ‘info have-nots.’ The fact is, technology fosters equality, and it’s often the relatively cheap and mundane devices that do the most good.
+ - If we disagree and I think I’m right, I just go ahead and do what I think is right. And then she tells me, ‘I told you so.’
+ - Politics gives guys so much power that they tend to behave badly around women. And I hope I never get into that.
+ - Almost makes you want to go to jail out here, doesn’t it?
+ - There is a government within the government who controll this and i do not controll it.
+ - Our Nation owes a lasting debt of gratitude to all those selfless members of our Armed Forces who have risked their own freedom and safety to defend the the lives and liberty of others.
+ - I like that about the Republicans; the evidence does not faze them, they are not bothered at all by the facts.
+ - That all depends on what “is” is.
+ - I want to build a bridge to the 21st century that ends the permanent underclass, that lifts up the poor and ends their isolation, their exile, and they are not forgotten anymore.
+ - We have no intention of abandoning the American people to unproven theories and extreme positions. We’re the people party and we’re going to stick up for the people.
+ - Putin wants to reestablish Russian greatness, not as the Cold War, but in 19th century empire terms.
+ - If you look at how many thousands and thousands of pages, Web pages, are being added to the Internet every day, it’s the fastest growing organism in human history for communications.
+ - We can’t be so fixated on our desire to preserve the rights of ordinary Americans...
+ - If you want to be forgiven, you have to extend forgiveness, even to people who aren’t smart enough to ask for it.
+ - We don’t need a constitutional amendment for kids to pray.
+ - We all have to learn to live together.
+ - People like change in general, but not in particular.
+ - If you believe in the values of the Constitution, the Bill of Rights, the Declaration of Independence, if you’re willing to work hard and play by the rules, you are part of our family. And we’re proud to be with you.
+ - The only preparation for prospering in the global economy is investing in ourselves.
+ - All my life I’ve been interested in other people’s stories. I wanted to know them, understand them, feel them.
+ - Downsizing budgets may be necessary, but downsizing dreams is a decision to be disappointed.
+ - The most powerful people on earth are focus groups.
+ - It depends upon what the meaning of the word ‘is’ is.
+ - The 22nd Amendment should probably be modified to say two consecutive terms instead of two terms for a lifetime.
+ - I do not believe we can repair the basic fabric of society until people who are willing to work have work. Work organizes life. It gives structure and discipline to life.
+ - The future belongs to those who are creative collaborators.
+ - I may not have been the greatest president, but I’ve had the most fun eight years.
+ - This will arguably be the third great revolution of America, if we can prove that we literally can live without having a dominant European culture.
+ - African Americans watch the same news at night that ordinary Americans do.
+ - After years of denial and deception, the Philip Morris company has admitted that cigarette smoking causes lung cancer and other diseases. This formal acknowledgment comes far too late but still we must all welcome it. It can be the beginning of clearing the air.
+ - I want American Dream growth – lots of new businesses, well-paying jobs, and American leadership in new industries, like clean energy and biotechnology.
+ - When times are tough and people are frustrated and angry and hurting and uncertain, the politics of constant conflict may be good, but what is good politics does not necessarily work in the real world. What works in the real world is cooperation.
+ - They are cutting medicare.
+ - I don’t mind the debates, they’re good for America, but we shouldn’t be out there attacking each other all the time.
+ - When I was president, I knew exactly what I wanted to do every day to bring America together and create a greater sense of opportunity and a larger sense of responsibility and a stronger sense of community.
+ - Nearly everyone will lie to you given the right circumstances.
+ - Won’t it be sad to have an Internet connection to Mars if there are no Martians to write to or e-mail us?
+ - I know that the precise magnitude and patterns of climate change cannot be fully predicted. But global warming clearly is a growing, long-term threat with profound consequences. And make no mistake about it, it will take decades to reverse.
+ - My only enemy is right-wing religious fundamentalism.
+ - You need to know that a member of Congress who refuses to allow the minimum wage to come up for a vote made more money during last year’s one-month government shutdown than a minimum wage worker makes in an entire year.
+ - Americans – not just starting thirty years ago but going back to the beginning, when we were rebelling against King George – we’ve always been of two minds about the government, which is why the framers wrote the Constitution the way they did.
+ - We simply have to transition from an economy based almost exclusively on oil and coal and natural gas to one that’s far more diversified, that uses solar energy, and wind energy, and the power of the tides, and bio-mass energy, and eventually, develops hydrogen.
+ - We will lower the tax burden on middle class Americans by asking the very wealthy to pay their fair share. Middle class taxpayers will have a choice between a children’s tax credit or a significant reduction in their income tax rate.
+ - An innocent bureaucratic snafu.
+ - Life’s real victories must be shared.
+ - Learning improves in school environments where there are comprehensive music and arts programs. They increase the ability of young people to do math. They increase the ability of young people to read. And most important of all, they’re a lot of fun.
+ - We simply cannot afford to give the reigns of government so someone who will double down on trickle down.
+ - We should make it a crime even to attempt to pollute. Our children should grow up next to parks, not poison.
+ - I will tell you this: I will not raise taxes on the middle-class to pay for these programs.
+ - I think actually that the speech work I do is fine. It’s important, because I try to help people think about what’s going on and organize their lives accordingly.
+ - My plan after office is to get up and spend that entire first day helping my wife move into her new senatorial office.
+ - Simply put, unsustainable debt is helping to keep too many poor countries and poor people in poverty.
+ - I regret to say that my hand did, in fact, have an improper relationship with Chelsea Clinton. The incident represents a profound lapse of judgment for which my hand takes sole responsibility.
+ - The hard fact is that so long as Saddam remains in power, he threatens the well-being of his people, the peace of his region, and the security of the world.
+ - I don’t like to use the word sacrifice.
+ - Let me be clear: we are still a nation of immigrants, and we honor all those immigrants who are working hard to become new citizens.
+ - The era of big government is over, but the era of big challenge is not. We need an era of big citizenship. There are many important people at this summit, but the most important title is ‘citizen.’ This is our republic. Let us keep it!
+ - If we want to invest in the prosperity of our nation, we must invest in the education of our children so that their talents may be fully employed.
+ - I spent a lot of time when I was president, trying to end wars, prevent killing, and promote understanding. What I have seen is that peace works better than conflict, and one of the best manifestations of it is in travel and tourism.
+ - Cooperation will save the future. And America should lead it. Every time humanity has been in danger of extinguishing itself, our consciousness and our conscience have led us to come together. That’s the big issue of the 21st century.
+ - He was a martyr of peace but was the victim of hate. If people can’t let go of the hatred of their enemies they risk sowing the seeds of hate among themselves.
+ - Marijuana is ten times more dangerous than twenty years ago.
+ - Our land of new promise will be a nation that meets its obligations, a nation that balances its budget, but never loses the balance of its values.
+ - What’s a man got to do to get in the top fifty?
+ - Climate change is more remote than terror but a more profound threat to the future of the children and the grandchildren and the great-grandchildren I hope all of you have.
+ - I have never had sexual relations with Monica Lewinsky. I’ve never had an affair with her.
+ - There seems to be no mainframe explanation for the PC world in which we’re living.
+ - Progress changes consciousness, and when people’s consciousness changes, then their awareness of what is possible changes as well – a virtuous circle.
+ - In a world with no systems, with chaos, everything becomes a guerilla struggle, and this predictability is not there. And it becomes almost impossible to save lives, educate kids, develop economies, whatever.
+ - If one candidate is appealing to your fears, and the other one’s appealing to your hopes, you’d better vote for the person who wants you to think and hope!
+ - Let us do the work that is before us, so that when our time here is over we will all watch the sun go down as we all must, and say truly, we have prepared our children for the dawn.
+ - Advances in computer technology and the Internet have changed the way America works, learns, and communicates. The Internet has become an integral part of America’s economic, political, and social life.
+ - All of us have to do a better job of teaching young people not to let themselves be defined by the words other people use against them.
+ - I have said many times-if I hadn’t been exposed to music as a child I don’t think I would have been president.
+ - Though our challenges are fearsome, so are our strengths. Americans have ever been a relentless, questioning, hopeful people.
+ - Frankly, I’m fed up with politicians in Washington lecturing the rest of us about family values. Our families have values. But our government doesn’t.
+ - It is now conceivable that our children’s children will know the term cancer only as a constellation of stars.
+ - The most important question of the 21st century is not what or how much, it is ‘How?’ How do you propose to turn your good ideas into positive changes in other people’s lives? You must be the ‘how generation.’
+ - What works in the real world is cooperation.
+ - Simply put, no society can truly flourish if it stifles the dreams and productivity of half its population. Happily, I see evidence all over the world that women are gaining social and economic power that they never had before. This is good news...
+ - By the time you become the leader of a country, someone else makes all the decisions.
+ - Because primarily of the power of the Internet, people of modest means can band together and amass vast sums of money that can change the world for some public good if they all agree.
+ - I am grateful to President George W. Bush for PEPFAR, which is saving the lives of millions of people in poor countries and to both Presidents Bush for the work we’ve done together after the South Asia tsunami, Hurricane Katrina and the Haitian earthquake.
+ - I’m pretty good at seeing like a lot of different things happening at once and putting them in a pattern and figuring out how you can rearrange it so it might have a better outcome.
+ - I believe I’m a better authority than anybody else in America on my own wife. I have never known a person with a stronger sense of right and wrong in my life ever.
+ - The world economy, the world environment, the world AIDS crisis, the world arms race: they affect us all.
+ - Our bridge to the future must include bridges to other nations, because we remain the world’s indispensable nation to advance prosperity, peace and freedom and to keep our own children safe from the dangers of terror and weapons of mass destruction.
+ - When you’re president, the Democrats got to feel good when they walk in the door if you’re a Republican; if you’re a Democrat, the Republican has to feel like you’re listening. And you should be listening.
+ - Our mission in this new century is clear. For good or ill, we live in an interdependent world. We can’t escape each other. Therefore, we have to spend our lives building a global community of shared responsibilities, shared values, shared benefits.
+ - One of the things that all kids are taught by their parents is this old “sticks and stones will break my bones, but words will never hurt me.”
+ - You have to make a conscious decision to change for your own well-being, and that of your family and your country.
+ - I try to be self-analytical, both to outline the mistakes I made in my life and try to explain why I did, and the things that on balance I did pretty well on.
+ - If President Reagan could be an actor and become president, maybe I could become an actor. I’ve got a good pension. I can work for cheap.
+ - We should not let our response to the people who disagree with us be dictated by what they say about us or even how they treat people we care for. There has to be a chance that we can find love.
+ - You don’t have to wait till your party’s in power to have an impact on life at home and around the world.
+ - Let me say this as clearly as I can: No matter how sharp a grievance or how deep a hurt, there is no justification for killing innocents.
+ - A man is more than the sum of all the things he can do.
+ - There is a huge body of business evidence now showing that energy savings give better service at lower cost with higher profit. We have to tear down barriers to successful markets and we have to create incentives to enter them.
+ - We are moving people from welfare to work. On welfare, we launch a quiet revolution.
+ - Throughout the Middle East, there is a great yearning for the quiet miracle of a normal life.
+ - People ought to be going over this, finding things they don’t like. Congress has clearly proved they can act in a hurry. If there’s something wrong with it, it can be amended. If something needs to be kicked in, it can be put in. If something needs to be taken out, it can be taken out.
+ - I haven’t eaten at a McDonald’s since I became President.
+ - My fellow Americans, we can only build our bridge to the 21st century if we build it together, and if we’re willing to walk arm-in-arm across that bridge together.
+ - I want to nominate a man who’s cool on the outside, but who burns for America on the inside.
+ - Justice may be blind, but we all know that diversity in the courts, as in all aspects of society, sharpens our vision and makes us a stronger nation.
+ - Our big goal should be to make connection to the Internet as common as connection to telephones is today.
+ - The country is groaning and moaning and screaming for change.
+ - Politics is not religion and we should govern on the basis of evidence, not theology.
+ - Torture must only be hypothetical exception, not US policy.
+ - If you come from a wealthy country with open borders, unless you seriously believe you can kill, imprison or occupy all your enemies, you have to make a world with more friends and fewer enemies – with more partners and fewer terrorists.
+ - Any president that lies to the American people should have to resign.
+ - If you think the President was right to open the doors of American opportunity to young immigrants brought here as children who want to go to college or serve in the military, you should vote for Barack Obama.
+ - I refuse to be part of a generation that celebrates the death of communism abroad with the loss of the American dream at home.
+ - A few months ago, and again this week, bin Laden publicly vowed to publicly wage a terrorist war against America, saying, and I quote, “We do not differentiate between those dressed in military uniforms and civilians. They’re all targets.” Their mission is murder, and their history is bloody.
+ - I will never let Israel down...
+ - Music is about communication, creativity, and cooperation, and by studying music in schools, students have the opportunity to build on these skills, enrich their lives, and experience the world from a new perspective.
+ - Only astrophysicists new about the Internet 20 years ago. Today my cat has a website.
+ - Let’s adopt some short-term strategies to get growth going and then let’s have a long-term debt reduction package. That’s what I think we should do and I think it will work.
+ - The light may be fading on the 20th century, but the sun is still rising on America.
+ - Politics is for people who are too ugly to get into showbusiness.
+ - There is nothing wrong with America that cannot be cured with what is right in America.
+ - We have the most religious freedom of any country in the world, including the freedom not to believe.
+ - Any poll is a picture of an unfinished horse race except the Election Day polls.
+ - The most ethical administration in the history of the Republic.
+ - When I leave the office on January 20th, I will leave even more idealistic than I was the day I took the oath of office.
+ - Terrorists are as big a threat to our future, perhaps bigger, than organized crime.
+ - Citizenship in the 21st century requires more than paying your taxes and voting and occasionally running for office. That even if you’re never in political office, you have political responsibilities. You can make your society stronger and better.
+ - When I was in office I expressed admiration and respect and even affection for Republicans that I knew and liked and cared about, and I tried to find ways to work with them. I think the Democrats should do that, and just keep trying to lower the temperature.
+ - I love the HRC. The initials are great.
+ - We should scrub all of our federal regulations to find responsible ways to make life easier to small businesses, i want to be a small business president.
+ - Now, people ask me all the time how we got four surplus budgets in a row. What new ideas did we bring to Washington? I always give a one-word answer: Arithmetic.
+ - Great rewards will come to those who can live together, learn together, work together, forge new ties that bind together.
+ - I don’t know in my long life that I ever worked with anybody that has quite the combination of policy knowledge and concern, political skills, of a personal touch with people, and a sense of innate fairness that inspires confidence.
+ - As we have throughout this century, we will lead with the power of our example, but be prepared, when necessary, to make an example of our power.
+ - I believe in religious liberty. I believe in freedom of speech. I believe in working hard and playing by the rules. I’m showing up for work tomorrow.
+ - I misled people, including even my wife.
+ - You can’t blame your opponents for applying a strategy that beats your brains out with regularity.
+ - Thomas Jefferson believed that to preserve the very foundations of our nation, we would need dramatic change from time to time. Well, my fellow citizens, this is our time. Let us embrace it.
+ - I think the idea of moving to a cleaner energy future and doing more energy efficiency makes smart sense.
+ - We want to live forever, and we’re getting there.
+ - We are on the right track to the 21st century. We are on the right track, but our work is not finished. What should we do? First, let us consider how to proceed. I say the question is no longer, “Who’s to blame?” but “What to do?”
+ - Since I don’t have access to the White House pastry chef anymore, it’s done wonders for my figure.
+ - Today’s possibilities are not tomorrows guarantees.
+ - It is important to me that everybody who has been hurt know that the sorrow I feel is genuine: First and most important, my family; also my friends, my staff, my Cabinet, Monica Lewinsky and her family, and the American people. I have asked all for their forgiveness.
+ - One of the things that I think we have learned is that we should all be very careful about making predictions about the future.
+ - Millions of people of color still experience racism daily.
+ - There are times when only America can make the difference between war and peace, between freedom and repression, between life and death. We cannot save all the world’s children, but we can save many of them.
+ - I did not have sexual relations with that woman.
+ - I am in support of the NRA position on gun control.
+ - I am trying to be honest with you and it hurts me. Now...
+ - No one who has lived through the second half of the 20th century could possibly be blind to the enormous impact of exchange programs on the future of countries...
+ - By the end of the first month of the 1995 session, each senator will have made more money than any person who works 40 hours a week at minimum wage for the entire year.
+ - The problem with any ideology is that it gives you the answer before you examine the evidence.
+ - Our campaign is the opposite of ‘competence.’
+ - If you take advantage of the fact that technology abolishes distance, then you won’t need to go to India. Just go to Indiana.
+ - Nobody is right all the time and even a broken clock is right twice a day.
+ - I want the ability to monitor high-tech communications among far-flung terrorists. I want to be able to have our people learn their plans before they strike. That’s the key.
+ - The community of nations may see more and more of the very kind of threat Iraq poses now: a rogue state with weapons of mass destruction, ready to use them or provide them to terrorists. If we fail to respond today, Saddam and all those who would follow in his footsteps will be emboldened tomorrow.
+ - If Saddam rejects peace and we have to use force, our purpose is clear. We want to seriously diminish the threat posed by Iraq’s weapons of mass destruction program.
+ - Let us never forget the greatest untapped market for American enterprise is right here in America, in the inner cities, in the rural areas.
+ - Palestinians are a hard-working and an incredible community. They have done remarkably well outside their country. I have never met a poor Palestinian in the United States; every Palestinian I know is a college professor or a doctor.
+ - I’m just trying to suppress my natural impulses and get back to work.
+ - No one can change yesterday, but we can all change tomorrow.
+ - There are two kinds of people in the world. Those who have seen the Taj Mahal and love it and those who have not seen the Taj and love it.
+ - In addition I had real and serious questions about an independent counsel investigation that began with private business dealings twenty years ago.
+ - She got to go to heaven four days early.
+ - People can quarrel with whether we should have more troops in Afghanistan or internationalize Iraq or whatever, but it is incontestable that on the day I left office, there were unaccounted for stocks of biological and chemical weapons.
+ - The power of our example is more important than the strength of our military.
+ - There is no example on the planet of a successful economy with broadly shared prosperity and a shrinking, weak government.
+ - Golf is like life in a lot of ways – All the biggest wounds are self-inflicted.
+ - President Obama’s record on national security is a tribute to his strength, and judgment, and to his preference for inclusion and partnership over partisanship.
+ - You know, I’ve always been really interested in this stuff, and I’m going to read this.
+ - You can’t be involved in modern American politics without somebody attacking you.
+ - It is time to stop personal destruction and prying into private lives.
+ - It is a $270 billion cut in medicare.
+ - We’re not talking about a few rooms here with delicate personal matters involved.
+ - Health care’s complicated, can be misrepresented, it’s personal, it can spark fear, it’s expensive, and the people who have got the money want to keep it.
+ - I believe that people of my income group should pay more, and I explained why, but that won’t necessarily lift overall wage levels.
+ - You cannot have an integrated world and have your say all the time. America can lead the world towards that, but we cannot dominate and run the world in that direction. There is a big difference.
+ - America can no longer afford to get the Nobel Prizes while our competitors get the profits.
+ - I was an equal opportunity eater. Every ethnic group got a shot.
+ - We can’t afford to lose control of our own borders or to take on new financial burdens at a time when we are not adequately providing for the jobs, the health care and the education of our own people.
+ - I can spend your money better than you can.
+ - Today, many companies are reporting that their number one constraint on growth is the inability to hire workers with the necessary skills.
+ - NASA even sent Chuck Berry’s music on a space probe searching for intelligent life in outer space. Well, now, if they’re out there, they’re duck walking.
+ - First, I worry about climate change. It’s the only thing that I believe has the power to fundamentally end the march of civilization as we know it, and make a lot of the other efforts that we’re making irrelevant and impossible.
+ - Every time Bush talks about trust it makes chills run up and down my spine. The way he has trampled on the truth is a travesty of the American political system.
+ - Just because we cannot do everything for everyone does not mean we should do nothing for anyone.
+ - Together, people with good hearts and fine minds can move the world.
+ - Today’s generation of young people holds more power than any generation before it to make a positive impact on the world.
+ - We passed welfare reform. All of you know I believe we were right to do it.
+ - We have to change the whole job structure of America. We have got to basically reorient our economy toward the future.
+ - It takes a long time to turn a big country around. Just be of good cheer and keep working on it.
+ - The simple fact is that we must not-and we will not-surrender our borders to those who wish to exploit our history of compassion and justice.
+ - If you believe in a security strategy – a strategy of more friends and fewer enemies, a strategy of greater cooperation and a strategy of keeping America better at home as we grow more diverse – we have to build the minds and hearts to build this kind of world.
+ - Posterity is the world to come; the world for whom we hold our ideals, from whom we have borrowed our planet, and to whom we bear sacred responsibility. We must do what America does best: offer more opportunity to all and demand responsibility from all.
+ - You are the most powerful cultural force in the world.
+ - If we were being attached by space aliens, we wouldn’t be playing these kinds of games.
+ - What we believe in is what works.
+ - I did have a relationship with Ms Lewinsky that was not appropriate. In fact, it was wrong. It constituted a critical lapse in judgment and a personal failure on my part for which I am solely and completely responsible.
+ - The stimulus is our bridge over troubled waters. And if it’s invested well, it’ll generate a lot of economic growth, and we’ll get quite a bit of the revenues back.
+ - I think we need to push harder, we the Democrats, because it’s an open door for the Republicans – prosperity centers.
+ - I might not have been President if it hadn’t been for school music. Learning improves in school environments where there are comprehensive music programs.
+ - The world knows of Rosa Parks because of a single, simple act of dignity and courage that struck a lethal blow to the foundations of legal bigotry.
+ - We need not just a new generation of leadership but a new gender of leadership.
+ - We should stay on the right track to the 21st century. Opportunity alone is not enough. I want to build an America in the 21st century in which all Americans take personal responsibility for themselves, their families, their communities and their country.
+ - I was not elected to produce a pile of vetoes.
+ - There’s this whole problem of trafficking, which has gotten worse in the economic downturn, which disproportionately affects young women, but also affects some young men who are sold into bondage, into basically servitude for indebted work that they can often never escape from.
+ - We find as our interdependence increases that, on the whole, we do better when other people do better as well.
+ - Somehow we all end up paying for what we do.
+ - In speaking powerfully and eloquently for mercy and reconciliation to people divided by old hatreds and persecuted by abuse of power, the Holy Father was a beacon of light not just for Catholics, but for all people.
+ - If you are focusing your anger at government, you are focusing your anger at all of us. Government is just a personification of this country.
+ - When people think, Democrats win.
+ - Success is not the measure of a man but a triumph over those who choose to hold him back.
+ - We should, all of us, be filled with gratitude and humility for our present progress and prosperity. We should be filled with awe and joy at what lies over the horizon. And we should be filled with absolute determination to make the most of it.
+ - The purpose of government is to rein in the rights of the people.
+ - It’s heartbreaking to see so many people trapped in a web of enforced idleness, deep debt, and gnawing self-doubt.
+ - If you want to live like a Republican, vote like a Democrat.
+ - The new energy future is decentralised, entrepreneurial and needs people like you to say ‘Give me a clean car, give me solar shingles to put on my roof – give me a clean future’
+ - If you wanna maintain 20 percent of the world’s income with 4 percent of the world’s people, you gotta first of all have more shared prosperity and shared growth.
+ - The established order has too many self-protecting economic entities, and not enough people who yet understand what it takes to change.
+ - Volunteering is an act of heroism on a grand scale. And it matters profoundly. It does more than help people beat the odds; it changes the odds.
+ - Presidents are not permitted to have personal feelings.
+ - We are here to celebrate the completion of the first survey of the entire human genome. Without a doubt, this is the most important, most wondrous map ever produced by human kind.
+ - Though we march to the music of our time, our mission is timeless.
+ - Nothing in our lifetimes has been more heartening than when people of the former Soviet Union and Central Europe broke the grip of communism. We have aided their progress and I am proud of it.
+ - When we give what we can, and give it with joy, we don’t just renew the American tradition of giving, we also renew ourselves.
+ - You know, everybody makes mistakes when they are president.
+ - I want to make it very clear that this middle-class tax cut, in my view, is central to any attempt we’re going to make to have a short-term economic strategy and a long-term fairness strategy, which is part of getting this country going again.
+ - Sometimes I think the environment in which we operate is entirely too secular. The fact that we have freedom of religion doesn’t mean we need to try to have freedom from religion.
+ - Anyone can want something; it’s those who believe in their goals that achieve.
+ - It appears that some school officials, teachers, and parents have assumed that religious expression of any type is either inappropriate or forbidden altogether in public schools; however, nothing in the First Amendment converts our public schools into religion-free zones.
+ - If you want to know where I come by the passionate commitment I have to bringing people together without regard to race, it all started with my grandfather.
+ - When personal freedom’s being abused, you have to move to limit it. That’s what we did in the announcement I made last weekend on the public housing projects, about how we’re going to have weapon sweeps.
+ - Saddam Hussein didn’t kill 3,100 people on Sept. 11. Osama bin Laden did, and as far as we know he’s still alive.
+ - In general I saw my job as the first president whose full term would be served after the Cold War in a global information society where we were interdependent but not integrated. And therefore, we were vulnerable to the worst, and able to seize the best, of what’s going on in the world.
+ - We all do better when we work together. Our differences do matter, but our common humanity matters more.
+ - Well, I don’t have much job security.
+ - The earth is warming at an alarming rate, we are running out of fossil fuels, and it is long past time for us to take action to correct these problems.
+ - I’m sure I spent more time in Texas than anybody else who had run for President recently.
+ - When you get asked hundreds of questions, it’s not possible to remember the answer to every one.
+ - Everybody counts, everybody deserves a chance, everybody has a responsible role to play and we all do better when we work together.
+ - Strength and wisdom are not opposing values.
+ - When I started out in public life there used to be a saying we’d hear from time to time, that every man who runs for public office will claim that he was born in a log cabin he built with his own hands. Well, my mother knew better. And she made sure I did too.
+ - The struggle for your own character is the struggle for the nation’s character.
+ - I mean my life was a combination of fascination with other people, with politics, and with policy, and the impact of government decisions on people’s lives and the life of our nation and the life of the world.
+ - The greatest progress we have made, and the greatest progress we have yet to make, is in the human heart. In the end, all the world’s wealth and a thousand armies are no match for the strength and decency of the human spirit.
+ - Over time, the more we bring China into the world, the more the world will bring freedom to China.
+ - It was Mario Cuomo’s great gift and our good fortune that he was both a sterling orator and a passionate public servant. His life was a blessing.
+ - Literacy is not a luxury, it is a right and a responsibility. If our world is to meet the challenges of the twenty-first century we must harness the energy and creativity of all our citizens.
+ - Just as war is freedom’s cost, disagreement is freedom’s privilege.
+ - Remember, Republican economic policies quadrupled the debt before I took office and doubled it after I left. We simply can’t afford to double-down on trickle-down.
+ - All of us in our administration worked hard to support families in raising their children and succeeding at work.
+ - One way or the other, we are determined to deny Iraq the capacity to develop weapons of mass destruction and the missiles to deliver them. That is our bottom line.
+ - We know that progress is not inevitable. But neither was victory upon these beaches. Now, as then, the inner voice tells us to stand up and move forward. Now, as then, free people must choose.
+ - From New Hampshire forward, for reasons that absolutely mystified me, the press thought the most important issue in the race was the middle class tax cut. I never did meet any voter who thought that.
+ - Just try to imagine what it would be like to be 300 million years old.
+ - I made a big mistake. It is indefensible and I am sorry.
+ - What happened to us in September, 2001, is a microcosmic but painful and powerful example of the fact we live in an inter-dependent world that is not yet an integrated global community.
+ - We cannot build our own future without helping others to build theirs.
+ - It might suprise you to know I think I raised them too much, too.
+ - Though I often disagree with Republicans, I never learned to hate them the way the far right that now controls their party seems to hate President Obama and the Democrats.
+ - I have no intention of raising taxes.
+ - But the truth is, countries have to do what is best in each instance to pursue both their interest and their values.
+ - I’ve gained first hand knowledge of the challenges faced by people with disabilities. It’s made me understand that those of us who have full use of our physical faculties owe an enormous amount of respect and sensitivity to people who don’t.
+ - Without question, bicycling is an efficient, economical and environmentally sound form of transportation and recreation. Bicycling is a great activity for families, recreational riders and commuters. Hillary, Chelsea and I have bicycles...
+ - If no one consumes these products, people will stop producing them. They will not build it if you don’t come.
+ - President Obama is going to have to run against himself. In tough times, nobody can defeat himself.
+ - When we put aside partisanship, embrace the best ideas regardless of where they come from and work for principled compromise, we can move America not left or right, but forward.
+ - Edgar Wayburn has worked to preserve the most breath-taking examples of the American landscape. In fact, over the course of more than a half-century, both as President of the Sierra Club and as a private citizen, he has saved more of our wilderness than any person alive.
+ - You don’t have to be an elected official to be a public servant.
+ - The conservative Republican governors tend to be more oriented toward trying to work with Democrats and getting things done.
+ - The era of big government is over.
+ - I challenge every business person in America who has ever complained about the failure of the welfare system to try to hire somebody off welfare. And try hard.
+ - America just works better when more people have a chance to live their dreams.
+ - I believe that a worthwhile life is defined by a kind of spiritual journey and a sense of obligation.
+ - I experimented with marijuana a time or two.
+ - I never thought of political endeavors primarily in terms of power and prestige, and I never thought of economic endeavors primarily in terms of wealth and position.
+ - It is pretty hard to talk about responsibility unless you have exercised it yourself.
+ - 41, you look great. Love what you’re doing.
+ - A great democracy doesn’t make it harder to vote than to buy an assault weapon.
+ - When it comes to anything that’s social, whether it’s your family, your school, your community, your business or your country, winning is a team sport.
+ - Every tax cut I call for is targeted, it’s responsible and it is paid for within my balanced budget plan. My tax cuts will not undermine our economy. They will speed economic growth.
+ - I wanted to continue to be active on those things that I cared about when I was president where I could still have an impact.
+ - When, President Bush asks me to go with his father to the Tsunami impacted areas and help raise money, I was thrilled to do that, because I think we have to always keep looking for common ground.
+ - The risk is that as we come out of this recession, we’ll have so much debt to finance, we’ll either have to have inflation or very high interest rates to continue to borrow the money, or both. That’s a risk.
+ - The new rage is to say that the government is the cause of all our problems, and if only we had no government, we’d have no problems. I can tell you, that contradicts evidence, history, and common sense.
+ - We have a moral obligation to make sure the people who are being required to work have the opportunity to work. We must make sure the jobs are there.
+ - Our paradigm now seems to be: Something terrible happened to us on September 11, and that gives us the right to interpret all future events in a way that everyone else in the world must agree with us. And if they don’t, they can go straight to hell.
+ - I’m Bill Clinton and I think you deserve a change. That’s why I’ve offered a plan to get the economy moving again, starting with a middle-class tax cut...
+ - It is inconceivable that anyone could say we have tried to hide anything.
+ - I want a man who had the good sense to marry Michelle Obama.
+ - It’s important that the American people understand that President has proposed and passed this stimulus plan not as the end-all and be-all to our economic woes but as our bridge over troubled water until we get the finance system, the banking system working again.
+ - I believe that this country’s policies should be heavily biased in favor of nondiscrimination.
+ - If ever there comes a time when everyone you vote for wins and they do everything you think they should do, there will still be a gap between what is and what ought to be.
+ - I issued a number of denials to people I thought needed to hear them.
+ - I came of age believing that, no matter what happened, I would always be able to support myself.
+ - The purpose of politics is to give people tools to make the most of their lives.
+ - It’s good for young people to be angry about something.
+ - Elvis Presley was the first and the best. He is my favorite of all time.
+ - In the emerging global economy, everything is mobile: capital, factories, even entire industries. The only resource that’s really rooted in a nation – and the ultimate source of all its wealth – is its people.
+ - The great thing about this game is that the bad days are wonderful.
+ - Don’t you ever forget that in the end, our future is tied to people.
+ - We still have too many Americans who give in to their fears of those who are different from them. Not so long ago, swastikas were painted on the doors of some African-American members of our Special Forces at Ft. Bragg. They are special forces. They do not deserve to have swastikas on their doors.
+ - President Obama started with a much weaker economy than I did. Listen to me now. No president, not me, not any of my predecessors, no one could have fully repaired all the damage that he found in just four years.
+ - AIDS is no longer a death sentence for those who can get the medicines. Now it’s up to the politicians to create the “comprehensive strategies” to better treat the disease.
+ - No wonder Americans hate politics when, year in and year out, they hear politicians make promises that won’t come true because they don’t even mean them – campaign fantasies that win elections but don’t get nations moving again.
+ - The world has never truly had to develop an ethic of interdependence rooted in our common humanity. And if we do it, the 21st century will be the most interesting, exciting, peaceful era in history.
+ - The United States is too big and we are too involved with too many people for any president to be able to take actions that will be universally agreed to all day, every day and everywhere in the world.
+ - More people can be great leaders than think they can, but they need a purpose greater than themselves.
+ - Most of the major mistakes I made in my life, I made when I was too tired to know what I was doing – both personally and professionally.
+ - We must all be profoundly grateful for the magnificent achievements of our forbearers in this century. Yet perhaps in the daily press of events, in the clash of controversy, we don’t see our own time for what it truly is – a new dawn for America.
+ - These dilemmas present perhaps the most enduring conundrum of human history: can people derive their identity primarily by positive association or does life’s meaning also require negative comparison to others?
+ - In the whole history of this country, we have probably won more friends from the power of our example than from the power of our military.
+ - And I have a plan to do even better, to end welfare as we know it.
+ - We must fortify African democracy and peace by launching Radio Democracy for Africa, supporting the transition to democracy now beginning to take place in Nigeria.
+ - I did not have sexual relations with that woman, Miss Lewinsky. I never told anybody to lie, not a single time – never. These allegations are false.
+ - Fanatics are defined by their hatreds; free people by their humanity.
+ - We need to be creating a world that we would like to live in when we’re not the biggest power on the block.
+ - Government is not the problem, and government is not the solution. We, the American people, we are the solution.
+ - I think that the responsibility that the Democrats had may rest more in resisting any efforts by Republicans in the Congress, or by me when I was President, to put some standards and tighten up a little on Fannie Mae and Freddie Mac.
+ - It’s the biggest public health problem in America, the rising rates of obesity among our young people and very heavy statistics among our adult population.
+ - We are a people of faith. We have been so secure in that faith that we have enshrined in our Constitution protection for people who profess no faith. And good for us for doing so. That is what the First Amendment is all about.
+ - What we did with deeming rules were designed – it was designed to keep costs from coming on to the government that should be borne by families of immigrants who actually have incomes and can afford to pay.
+ - You know what higher interest rates mean. To you it means a higher mortgage payment, a higher car payment, a higher credit card payment. To our economy it means businesspeople will not borrow as much money, invest as much money, create as many new jobs, create as much wealth, raise as many raises.
+ - It simply doesn’t make any sense for us to have illegal aliens in our custody in our courts and then let them go back to living here illegally. That’s wrong and we should stop it.
+ - Our policy is guided by the principle that we will keep unauthorized aliens out of the United States, welcome legal immigrants, and protect refugees from harm. Our solutions rely on working in partnership with States and communities.
+ - Each generation of Americans must define what it means to be an American.
+ - This remains a very important opportunity for the American people to have their day in court against big tobacco and its marketing practices. I urge Congress to provide the funding to allow the lawsuit to move forward, and not to shield the tobacco industry from the consequences of its actions.
+ - I was also very concerned about protecting my family.
+ - There’s a big conservative press unabashedly and for the Democrats and even people to the left of the Democratic party, there’s almost virtually no outlets that you can compare with the vast array of conservative press that’s out there.
+ - Keep your eyes on the prize and don’t turn back.
+ - Sometimes there is a difference in what is legal and what ought to be done.
+ - Let us all take more responsibility, not only for ourselves and our families but for our communities and our country.
+ - I don’t think the Republicans can damage my character.
+ - Even as people take pride in their national independence, we know we are becoming more and more interdependent.
+ - Today what we are doing is modernizing the financial services industry, tearing down those antiquated laws and granting banks significant new authority.
+ - The Reagan-Bush years have exalted private gain over public obligation, special interests over the common good, wealth and fame over work and family. The 1980s ushered in a Gilded Age of greed and selfishness, of irresponsibility and excess, and of neglect.
+ - People should really take care when they vote, and pay more attention to what people say they’re going to do – instead of just how they feel about how things are going.
+ - In our efforts to battle terrorism and cyber attacks and biological weapons, all of us must be extremely aggressive. We must protect our people from danger and keep America safe and free.
+ - I think if the White House or the President want to say anything about our conversations or anything I tried to do to help our country with their support or at their request, then I think they should be the ones to do that. But I think that former presidents should do that.
+ - I do think that the role of the Internet, and the way it’s bringing everything into the home, has made a parent’s job much more difficult. And it’s harder to know what to do and how to do it. It’s much, much harder.
+ - American and Israel share a special bond. Our relationship is unique among all nations. Like America, Israel is a strong democracy, a symbol of freedom, and an oasis of liberty, a home to the oppressed and persecuted.
+ - We live in a completely interdependent world, which simply means we can not escape each other. How we respond to AIDS depends, in part, on whether we understand this interdependence. It is not someone else’s problem. This is everybody’s problem.
+ - We cannot become the world’s policeman, but where our values and our interests are at stake, and where we can make a difference, we must act and we must lead. That is our job and we are better, stronger and safer because we are doing it.
+ - I did a lot of work on energy efficiency at the White House. By the time I left we had taken the equivalent of six hundred cars a year off the road in reduced greenhouse gas emissions just in the White House complex.
+ - For four years we’ve been cooperating exhaustively.
+ - I am fascinated by this partnership between Lady Gaga and Tony Bennett. It’s magic and I love it.
+ - True Excellence requires a worthy dream, a good Idea of how to realize it and the courage to risk failure to achieve it.
+ - You should strive to find happiness every day and not believe that it comes at the end of the journey.
+ - If you want to have a good life you have to have some constructive outlet for your feelings.
+ - We’re going to build the bridge to the 21st century, we have to make our children free – free of the vise grip of guns and gangs and drugs; free to build lives of hope.
+ - Being President is a little like being the grounds-keeper at a cemetery: there’s plenty of people below you but no one’s listening.
+ - To build a twenty-first-century economy, America must revive a nineteenth-century habit – investing in the common, national economic resources that enable every person and every firm to create wealth and value.
+ - We’ve had periods of meanness in American politics. Actually, the dawn of partisan division in America was basically in George Washington’s second term, when it was obvious that he would be the first and only consensus president.
+ - I always get nervous when people start talking about legacies.
+ - I personally don’t believe we ought to be raising taxes or cutting spending, either one, until we get this economy off the ground. I’ll pay more, but it won’t solve the problem.
+ - President Obama’s approach embodies the values, the ideas, and the direction America must take to build a 21st century version of the American Dream in a nation of shared opportunities, shared prosperity and shared responsibilities.
+ - Citizen service is the very American idea that we meet our challenges not as isolated individuals but as members of a true community, with all of us working together. Our mission is nothing less than to spark a renewed sense of obligation, a new sense of duty, a new season of service...
+ - Even if it takes changing the law, the president should honor the commitment the federal government made to those people and let them keep what they got.
+ - I mean, when’s the last time we elected a president based on one year of service in the Senate before he started running? I mean, he will have been a senator longer by the time he’s inaugurated, but essentially once you start running for president full time you don’t have time to do much else.
+ - You live in the age of interdependence. Borders don’t count for much or stop much, good or bad, anymore.
+ - You know the one thing that’s wrong with this country? Everyone gets a chance to have their fair say.
+ - You live in a country that makes it harder to raise children than any other country in the world. You vote for me and I’ll give you family values.
+ - Rarely have Americans lived through so much change, in so many ways, in so short a time. Quietly, but with gathering force, the ground has shifted beneath our feet as we have moved into an Information Age, a global economy, a truly new world.
+ - So much of modern politics is focused not on honest differences of policy but on personal attacks.
+ - Well, first of all, I think that a lot of the voters who are voting for the tea party candidates have really good impulses. That is, they believe that for years and years and years, the people with wealth and power or government power have done well and ordinary people have not. That’s true.
+ - A parent may be without a job, but no child should be without a doctor.
+ - I am committed to curbing the influence of money in our political system.
+ - We will reduce the White House staff by 25 percent.
+ - We must continue to deepen our ties to the Americas and the Caribbean, our common work to educate children, fight drugs, strengthen democracy, and increase trade.
+ - We should pass a flex time law that allows employees to take their overtime pay in money or in time off, depending on what’s better for their family.
+ - The Bible is the authoritative Word of God and contains all truth.
+ - When you’re president, you learn to act like you know what you’re talking about. And it’s a great skill.
+ - There are always going to be people who want to be president, and some days I’d like to give it to them.
+ - Sure enough at Oxford, I was another Yank half a step behind.
+ - At the dawn of the 21st century, a free people must now choose to shape the forces of the Information Age and the global society, to unleash the limitless potential of all our people, and yes, to form a more perfect union.
+ - To realize the full possibilities of this economy, we must reach beyond our own borders, to shape the revolution that is tearing down barriers and building new networks among nations and individuals, and economies and cultures: globalization. It’s the central reality of our time.
+ - One of the main reasons America should re-elect President Obama is that he is still committed to cooperation. He appointed Republican Secretaries of Defense, the Army and Transportation. He appointed a Vice President who ran against him in 2008.
+ - I don’t believe you can find any evidence of the fact that I have changed government policy solely because of a contribution.
+ - I think it’s crazy for us to play games with our children’s future. We know what’s happening to the climate, we have a highly predictable set of consequences if we continue to pour greenhouse gases into the atmosphere.
+
+500 quotes

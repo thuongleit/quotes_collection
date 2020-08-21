@@ -1,0 +1,133 @@
+ - Only God can move mountains, but faith and prayer can move God.
+ - God shapes the world by prayer. The prayers of God’s saints are the capitol stock of heaven by which God carries on His great work upon the earth.
+ - Prayer should not be regarded as a duty which must be performed, but rather as a privilege to be enjoyed, a rare delight that is always revealing some new beauty.
+ - Prayer makes a godly man, and puts within him “the mind of Christ,” the mind of humility, of self-surrender, of service, of pity, and of prayer. If we really pray, we will become more like God, or else we will quit praying.
+ - The Church is looking for better methods; God is looking for better men.
+ - The lazy man does not, will not, cannot pray, for prayer demands energy.
+ - We can do nothing without prayer. All things can be done by importunate prayer. It surmounts or removes all obstacles, overcomes every resisting force and gains its ends in the face of invincible hindrances.
+ - Talking to men for God is a great thing, but talking to God for men is greater still. He will never talk well and with real success to men for God who has not learned well how to talk to God for men.
+ - No erudition, no purity of diction, no width of mental outlook, no flowers of eloquence, no grace of person can atone for lack of fire. Prayer ascends by fire. Flame gives prayer access as well as wings, acceptance as well as energy. There is no incense without fire; no prayer without flame.
+ - The story of every great Christian achievement is the history of answered prayer.
+ - Prayer is the highest intelligence, the profoundest wisdom, the most vital, the most joyous, the most efficacious, the most powerful of all vocations.
+ - God shapes the world by prayer.
+ - To give prayer the secondary place is to make God seconday in life’s affairs.
+ - God shapes the world by prayer. Prayers are deathless. They outlive the lives of those who uttered them.
+ - The word of God is the food by which prayer is nourished and made strong.
+ - Prayer is a specific divine appointment, an ordinance of Heaven, whereby God purposes to carry out His gracious designs on earth and to execute and make efficient the plan of salvation.
+ - The pride of learning is against the dependent humility of prayer.
+ - There is power through prayer. For many Christians, prayer is nothing special, just something we’re supposed to do – go to church, tithe, read the Bible, pray. But prayer should be so much more than an item on our “to do” lists.
+ - The sanctity of prayer is needed to impregnate business. We need the spirit of Sunday carried over to Monday and continued until Saturday. But this cannot be done by prayerless men, but by men of prayer.
+ - Prayer and a holy life are one. They mutually act and react. Neither can survive alone. The absence of the one is the absence of the other.
+ - I feel it is far better to begin with God, to see His face first, to get my soul near Him before it is near another. In general it is best to have at least one hour alone with God before engaging in anything else.
+ - Prayer breaks all bars, dissolves all chains, opens all prisons, and widens all straits by which God’s saints have been held.
+ - Every mighty move of the Spirit of God has had its source in the prayer chamber.
+ - Praying men must be strong in hope, and faith, and prayer.
+ - Prayer, in one phase of its operation, is a disinfectant and a preventive. It purifies the air; it destroys the contagion of evil.
+ - Prayer is no fitful, short-lived thing. It is no voice crying unheard and unheeded in the silence. It is a voice which goes into God’s ear, and it lives as long as God’s ear is open to holy pleas, as long as God’s heart is alive to holy things.
+ - Walking with God down the avenue of prayer we acquire something of His likeness, and unconsciously we become witnesses to others of His beauty and His grace.
+ - Prayer is God’s plan to supply man’s great and continuous need with God’s great and continuous abundance.
+ - Prayer succeeds when all else fails.
+ - Four things let us ever keep in mind: God hears prayer, God heeds prayer, God answers prayer, and God delivers by prayer.
+ - It is hard to wait and press and pray, and hear no voice, but stay till God answers.
+ - God’s willingness to answer our prayers exceeds our willingness to give good and necessary things to our children, just as far as God’s ability, goodness and perfection exceed our infirmities and evil.
+ - Importunate praying is the earnest inward movement of the heart toward God.
+ - Prayer is the easiest and hardest of all things; the simplest and the sublimest; the weakest and the most powerful; its results lie outside the range of human possibilities-they are limited only by the omnipotence of God.
+ - God is waiting to be put to the test by His people in prayer. He delights in being put to the test on His promises. It is His highest pleasure to answer prayer, to prove the reliability of His promises.
+ - Praying men are God’s agents on earth, the representative of government of Heaven, set to a specific task on the earth.
+ - It is true that Bible prayers in word and print are short, but the praying men of the Bible were with God through many a sweet and holy wrestling hour. They won by few words but long waiting.
+ - A life growing in its purity and devotion will be a more prayerful life.
+ - Prayer, like faith, obtains promises, enlarges their operation, and adds to the measure of their results.
+ - The central significance of prayer is not in the things that happen as results, but in the deepening intimacy and unhurried communion with God at His central throne of control in order to discover a sense of God’s need in order to call on God’s help to meet that need.
+ - No man can do a great and enduring work for God who is not a man of prayer, and no man can be a man of prayer who does not give much time to praying.
+ - Our praying, however, needs to be pressed and pursued with an energy that never tires, a persistency which will not be denied, and a courage which never fails.
+ - No learning can make up for the failure to pray. No earnestness, no diligence, no study, no gifts will supply its lack.
+ - Praying gives sense, brings wisdom, and broadens and strengthens the mind. The prayer closet is a perfect schoolteacher and schoolhouse for the preacher. Thought is not only brightened and clarified in prayer, but thought is born in prayer.
+ - Prayer is our most formidable weapon, the thing which makes all else we do efficient.
+ - Prayer puts God’s work in his hands-and keeps it there.
+ - That man is the most immortal who has done the most and the best praying. They are God heroes, God’s saints, God’s servants, God’s vicegerents.
+ - A man can pray better because of the prayers of the past; a man can live holier because of the prayers of the past; the man of many and acceptable prayers has done the truest and greatest service to the incoming generation.
+ - Heavenly citizenship and heavenly homesickness are in prayer. Prayer is an appeal from the lowness, from the emptiness, from the need of earth, to the highness, the fullness and to the all-sufficiency of heaven.
+ - The ministry of prayer, if it be anything worthy of the name, is a ministry of ardor, a ministry of unwearied and intense longing after God and after his holiness.
+ - He who would pray, must obey.
+ - Our praying, to be strong, must be buttressed by holy living. The life of faith perfects the prayer of faith.
+ - The prayers of God’s saints strengthen the unborn generation against the desolating waves of sin and evil.
+ - Prayer honors God, acknowledges His being, exalts His power, adores His providence, secures His aid.
+ - Prayer thrives in the atmosphere of true devotion.
+ - The possibilities of prayer are found in its allying itself with the purposes of God, for God’s purposes and man’s praying are the combination of all potent and omnipotent forces.
+ - A holy life does not live in the closet, but it cannot live without the closet.
+ - Those who know God the best are the richest and most powerful in prayer. Little acquaintance with God, and strangeness and coldness to Him, make prayer a rare and feeble thing.
+ - He who is too busy to pray will be too busy to live a holy life. Satan had rather we let the grass grow on the path to our prayer chamber than anything else.
+ - The men who have done the most for God in this world have been early on their knees.
+ - Holy living is essential preparation for prayer.
+ - That man cannot possibly be called a Christian, who does not pray.
+ - Faith, and hope, and patience and all the strong, beautiful, vital forces of piety are withered and dead in a prayerless life. The life of the individual believer, his personal salvation, and personal Christian graces have their being, bloom, and fruitage in prayer.
+ - If God is not first in our thoughts and efforts in the morning, He will be in the last place the remainder of the day.
+ - The resurrection of Jesus Christ was necessary to establish the truth of his mission and put the stamp of all-conquering power on his gospel.
+ - In doing God’s work, there is no substitute for praying. The men of prayer cannot be displaced with other kinds of men.
+ - Safety is in Heaven. Put your values there only; put your heart there. No tears are there to flood your heart, no sorrows there to break it, no losses there to grieve and embitter.
+ - Heaven is too busy to listen to half-hearted prayers or to respond to pop-calls.
+ - Sainthood’s piety is made, refined, perfected, by prayer. The gospel moves with slow and timid pace when the saints are not at their prayers early and late and long.
+ - God’s Word does not say, “Call unto me, and you will thereby be trained into the happy art of knowing how to be denied. Ask, and you will learn sweet patience by getting nothing.” Far from it. But it is definite, clear and positive: “Ask, and it shall be given unto you.”
+ - Jesus taught that perseverance is the essential element in prayer.
+ - Mans access in prayer to God opens everything and makes his impoverishment his wealth. All things are his through prayer.
+ - Faith does the impossible because it brings God to undertake for us, and nothing is impossible with God.
+ - He only can truly pray who is all aglow for holiness, for God, and for heaven.
+ - The stream of praying cannot rise higher than the fountain of living.
+ - Bible revelations are not against reason but above reason, for the uses of faith, mans highest faculty.
+ - The world needs more true praying to save it from the reign and ruin of Satan.
+ - The reformer is one who with clarion voice will call the ministry back to it’s knees.
+ - The houses of Heaven are God-built and are as enduring and incorruptible as their builder. We will have bodies after the resurrection; transfigured they will be after the model of Christs glorious body.
+ - Private place and plenty of time are the life of prayer.
+ - Trust is faith that has become absolute, approved, and accomplished. When all is said and done, there is a sort of risk in faith and its exercise. But trust is firm belief; it is faith in full bloom. Trust is a conscious act, a fact of which we are aware.
+ - Little praying is a kind of make believe, a salve for the conscience, a farce and a delusion.
+ - Other duties become pressing and absorbing and crowd our prayer. “Choked to death” would be the coroner’s verdict in many cases of dead praying if an inquest could be secured on this dire, spiritual calamity.
+ - Apostolic preaching cannot be carried on unless there be apostolic prayer. Men of God, before anything else, are indispensable to the furtherance of the kingdom of God on earth.
+ - We can do nothing without prayer.
+ - Crucified preaching only can give life. Crucified preaching can come only from a crucified man.
+ - The Scriptures bear ample and continuous evidence that the faith of the resurrection of the body lies in the faith that Jesus Christ died and rose again.
+ - Preaching is God’s great institution for the planting and maturing of spiritual life. When properly executed, its benefits are untold. When wrongly executed, no evil can exceed its damaging results.
+ - It is necessary to iterate and reiterate that prayer, as a mere habit, as a performance gone through by routine or in a professional way, is a dead and rotten thing.
+ - In prayerful sympathy and love. Hold to the old truth – double distilled.
+ - Non-praying is lawlessness, discord, anarchy.
+ - Pray for ‘all men.’ We usually pray more for things than we do for men. Our prayers should be thrown across their pathway as they rush in their downward course to a lost eternity.
+ - Men would pray better if they lived better. They would get more from God if they lived more obedient and well-pleasing to God.
+ - It is not great talents or great learning or great preachers that God needs, but men great in holiness, great in faith, great in love, great in fidelity, great for God...
+ - Praying which does not result in pure conduct is a delusion. We have missed the whole office and virtue of praying if it does not rectify conduct. It is in the very nature of things that we must quit praying, or quit bad conduct.
+ - A denial of the reality of demonical possessions on the part of anyone who believes the Gospel narrative to be true and inspired may justly be regarded as simply and plainly inconceivable.
+ - You will find out that in the measure you have allowed yourself to look back you have missed that which God has for you.
+ - We can learn more in an hour praying, when praying indeed, than from many hours of rigorous study.
+ - Prayer is not learned in a classroom but in the closet.
+ - It is only when the whole heart is gripped with the passion of prayer that the life-giving fire descends, for none but the earnest man gets access to the ear of God.
+ - Few persons are made of such strong fiber that they will make a costly outlay when surface work will pass as well in the market.
+ - Public prayers are of little worth unless they are founded on or followed up by private praying.
+ - Prayer is a trade to be learned. We must be apprentices and serve our time at it. Painstaking care, much thought, practice and labour are required to be a skillful tradesman in praying. Practice in this, as well as in all other trades, makes perfect.
+ - We cannot talk to God strongly when we have not lived for God strongly. The closet cannot be made holy to God when the life has not been holy to God.
+ - Prayer is the language of a man burdened with a sense of need.
+ - Prayer concerns God, whose purposes and plans are conditioned on prayer. His will and His glory are bound up in praying.
+ - Bread for today is bread enough.
+ - The little estimate we put on prayer is evidence from the little time we give to it.
+ - Christianity is not rationalism, but faith in Gods revelation. A conspicuous, all-important item in that revelation is the resurrection of the body.
+ - The character of our praying will determine the character of our preaching. Light praying makes light preaching.
+ - The most important lesson we can learn is how to pray. Prayers do not die, prayers live before God, and God’s heart is set on them.
+ - The first and last stages of holy living are crowned with praying.
+ - Straight praying is never born of crooked conduct.
+ - All God’s plans have the mark of the cross on them, and all His plans have death to self in them.
+ - We can never know God as it is our privilege to know Him by brief repetitions that are requests for personal favors, and nothing more.
+ - God’s cause is committed to men; God commits Himself to men. Praying men are the vice-regents of God; they do His work and carry out His plans.
+ - We can never expect to grow in the likeness of our Lord unless we follow His example and give more time to communion with the Father. A revival of real praying would produce a spiritual revolution.
+ - Talking to men for God is a great thing, but talking to God for men is greater still.
+ - Trouble and prayer are closely related. Trouble often drives men to God in prayer, while prayer is but the voice of men in trouble.
+ - Prayer is the greatest of all forces, because it honors God and brings him into active aid.
+ - The conditions of praying are the conditions of righteousness, holiness, and salvation.
+ - We must lose all for Christ in order to gain all for Christ.
+ - Preaching is not the performance of an hour. It is the outflow of a life. It takes twenty years to make a sermon because it takes twenty years to make the man. The true sermon is a thing of life. The sermon grows because the man grows.
+ - God shapes the world by prayer. The more prayer there is in the world the better the world will be, the mightier the forces of against evil.
+ - If we would have God in the closet, God must have us out of the closet. There is no way of praying to God, but by living to God.
+ - By prayer, the ability is secured to feel the law of love, to speak according to the law of love, and to do everything in harmony with the law of love.
+ - The men who have most fully illustrated Christ in their character and have most powerfully affected the world for Him have been men who spend so much time with God as to make it a notable feature in their lives.
+ - Prayer is the one prime, eternal condition by which the Father is pledged to put the Son in possession of the world. Christ prays through His people. Had there been importunate, universal, and continuous prayer by God’s people, long ere this the earth had been possessed for Christ.
+ - The only limits to prayer are the promises of God and His ability to fulfill those promises.
+ - A severe apprenticeship in the trade of praying must be served in order to become a journeyman in it.
+ - When trust is perfect and there is no doubt, prayer is simply the outstretched hand ready to receive.
+
+131 quotes

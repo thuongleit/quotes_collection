@@ -1,0 +1,494 @@
+ - Find what you love and let it kill you.
+ - If you’re going to try, go all the way. Otherwise, don’t even start.
+ - Some people never go crazy. What truly horrible lives they must lead.
+ - Understand me. I’m not like an ordinary world. I have my madness, I live in another dimension and I do not have time for things that have no soul.
+ - The problem with the world is that the intelligent people are full of doubts, while the stupid ones are full of confidence.
+ - Life’s as kind as you let it be.
+ - Without literature, life is hell.
+ - If you’re going to try, go all the way. There is no other feeling like that. You will be alone with the gods, and the nights will flame with fire. You will ride life straight to perfect laughter. It’s the only good fight there is.
+ - An intellectual says a simple thing in a hard way. An artist says a hard thing in a simple way.
+ - You have to die a few times before you can really live.
+ - I don’t hate people. I just feel better when they aren’t around.
+ - I have no time for things that have no soul.
+ - If something burns your soul with purpose and desire, it’s your duty to be reduced to ashes by it. Any other form of existence will be yet another dull book in the library of life.
+ - We are here to laugh at the odds and live our lives so well that Death will tremble to take us.
+ - Sometimes you climb out of bed in the morning and you think, I’m not going to make it, but you laugh inside – remembering all the times you’ve felt that way.
+ - We are like roses that have never bothered to bloom when we should have bloomed and it is as if the sun has become disgusted with waiting.
+ - Wherever the crowd goes run in the other direction. They’re always wrong.
+ - The less I needed, the better I felt.
+ - Writers are desperate people and when they stop being desperate they stop being writers.
+ - Nothing can save you except writing. It keeps the walls from failing.
+ - Invent yourself and then reinvent yourself.
+ - Drink from the well of yourself and begin again.
+ - We’re all going to die, all of us, what a circus! That alone should make us love each other but it doesn’t. We are terrorized and flattened by trivialities, we are eaten up by nothing.
+ - I wanted the whole world or nothing.
+ - I have one problem, I don’t hate people. They disgust me and I want to get away from them. I do not have hatred. I have an escape mechanism.
+ - We don’t even ask happiness, just a little less pain.
+ - You can’t beat death but you can beat death in life, sometimes. And the more often you learn to do it, the more light there will be. Your life is your life. Know it while you have it.
+ - If you have the ability to love, love yourself first.
+ - Don’t fight your demons. Your demons are here to teach you lessons. Sit down with your demons and have a drink and a chat and learn their names and talk about the burns on their fingers and scratches on their ankles. Some of them are very nice.
+ - People empty me. I have to get away to refill.
+ - There’s a light somewhere. It may not be much light but it beats the darkness.
+ - Simplicity is always the secret, to a profound truth, to doing things, to writing, to painting. Life is profound in its simplicity.
+ - If you’re going to try, go all the way. This could mean losing girlfriends, wives, relatives, jobs and maybe your mind.
+ - “Baby,” I said, “I’m a genius but nobody knows it but me.”
+ - I stopped looking for a Dream Girl, I just wanted one that wasn’t a nightmare.
+ - The world is full of boring, identical and mindless people.
+ - My heart is a thousand years old. I am not like other people.
+ - Only the boring get bored.
+ - The free soul is rare, but you know it when you see it.
+ - It wasn’t my day. My week. My month. My year. My life. God damn it.
+ - Those who escape hell however never talk about it and nothing much bothers them after that.
+ - Beware of those who seek constant crowds; they are nothing alone.
+ - If you let them kill you, they will.
+ - If you are going to try, go all the way or don’t even start. If you follow it you will be alive with the gods. It is the only good fight there is.
+ - Love breaks my bones and I laugh.
+ - The empty, the angry, the lonely, the tricked, we are all museums of fear.
+ - My ambition is handicapped by laziness.
+ - I felt like crying but nothing came out. it was just a sort of sad sickness, sick sad, when you can’t feel any worse. I think you know it. I think everybody knows it now and then. but I think I have known it pretty often, too often.
+ - The difference between a democracy and a dictatorship is that in a democracy you vote first and take orders later; in a dictatorship you don’t have to waste your time voting.
+ - Let it die. Let there be a new beginning. It’s awful. Goodnight.
+ - I am not a snob; it is simply that I am not interested with what most people have to say, or what they want to do – mostly with my time.
+ - I was a man who thrived on solitude; without it I was like another man without food or water. Each day without solitude weakened me. I took no pride in my solitude; but I was dependent on it. The darkness of the room was like sunlight to me.
+ - The courage it took to get out of bed each morning to face the same things over and over was enormous.
+ - The crowd is the gathering place of the weakest; true creation is a solitary act.
+ - I’ve had so many knives stuck into me, when they hand me a flower I can’t quite make out what it is. It takes time.
+ - It’s possible to love a human being if you don’t know them too well.
+ - There’s a bluebird in my heart that wants to get out.
+ - If you’re losing your soul and you know it, then you’ve still got a soul left to lose.
+ - Death is not the problem; waiting around for it is.
+ - There is a place in the heart that will never be filled; a space. And even during the best moments, and the greatest times, we will know it.
+ - You begin saving the world by saving one man at a time; all else is grandiose romanticism or politics.
+ - If I stop writing I am dead. And that’s the only way I’ll stop: dead.
+ - We are all museums of fear.
+ - If I never see you again I will always carry you inside outside on my fingertips and at brain edges and in centers centers of what I am of what remains.
+ - Before my death I hope to obtain my life.
+ - Real loneliness is not necessarily limited to when you are alone.
+ - There’s music in everything, even defeat.
+ - The more cats you have, the longer you live. If you have a hundred cats, you’ll live ten times longer than if you have ten. Someday this will be discovered, and people will have a thousand cats and live forever.
+ - I am a poem. There is no way out.
+ - The area dividing the brain and the soul Is affected in many ways by experience – Some lose all mind and become soul: insane. Some lose all soul and become mind: intellectual. Some lose both and become: accepted.
+ - The secret is writing down one simple line after another.
+ - Poetry is what happens when nothing else can.
+ - To create art means to be crazy alone forever.
+ - Why did I come here? I thought. Why is it always only a matter of choosing between something bad and something worse?
+ - I want to let her know though that all the nights sleeping beside her even the useless arguments were things ever splendid and the hard words I ever feared to say can now be said: I love you.
+ - And yet women-good women – frightened me because they eventually wanted your soul, and what was left of mine, I wanted to keep.
+ - That was all a man needed: hope. It was lack of hope that discouraged a man.
+ - Lighting new cigarettes, pouring more drinks. It has been a beautiful fight. Still is.
+ - I tell you such fine music waits in the shadows of hell.
+ - I never met another man I’d rather be. And even if that’s a delusion, it’s a lucky one.
+ - Existence was not only absurd, it was plain hard work. Think of how many times you put on your underwear in a lifetime. It was appalling, it was disgusting, it was stupid.
+ - Bad luck for the young poet would be a rich father, an early marriage, an early success or the ability to do anything well.
+ - Look, let me put it this way: with me, you’re number one and there isn’t even a number two.
+ - I no longer want it all, just some comfort and some sex and some minor love.
+ - I am ashamed to be a member of the human race but I don’t want to add any more to that shame, I want to scrape a little of it off.
+ - There’s a bluebird in my heart that wants to get out but I’m too tough for him, I say, stay in there, I’m not going to let anybody see you.
+ - Don’t wait for the good woman. She doesn’t exist. There are women who can make you feel more with their bodies and their souls but these are the exact women who will turn the knife into you right in front of the crowd.
+ - Play the Piano Drunk Like a Percussion Instrument Until the Fingers Begin to Bleed a Bit.
+ - I can almost understand why people leap from bridges.
+ - I’m too careless. I don’t put out enough effort. I’m tired.
+ - People don’t need love. What they need is success in one form or another. It can be love but it needn’t be.
+ - Each man’s hell is in a different place: mine is just up and behind my ruined face.
+ - Humanity, you never had it to begin with.
+ - Lawyers, doctors, plumbers, they all made the money. Writers? Writers starved. Writers suicided. Writers went mad.
+ - Those who preach god, need god Those who preach peace do not have peace Those who preach love do not have love.
+ - Bad poetry is caused by people who sit down and think, Now I am going to write a Poem.
+ - It’s not so much that nothing means anything but more that it keeps meaning nothing. there’s no release, just gurus and self- appointed gods and hucksters. the more people say, the less there is to say. even the best books are dry sawdust.
+ - I guess we often get the deep blues, both of us, and wonder what it all means- the people, the buildings, the day by day things, the waste of time, of ourselves.
+ - All a guy needed was a chance. Somebody was alway controlling who got a chance and who didn’t.
+ - Sometimes you just have to pee in the sink.
+ - For each Joan of Arc there is a Hitler perched at the other end of the teeter-totter.
+ - A spark can set a whole forest on fire. Just a spark. Save it.
+ - People are strange: They are constantly angered by trivial things, but on a major matter like totally wasting their lives, they hardly seem to notice.
+ - I’ve never been lonely. I like myself. I’m the best form of entertainment I have. Let’s drink more wine!
+ - Slavery was never abolished, it was only extended to include all the colors.
+ - Love is a Dog from Hell.
+ - If it doesn’t come bursting out of you in spite of everything, don’t do it.
+ - To not to have entirely wasted one’s life seems to be a worthy accomplishment, if only for myself.
+ - Love is a fog that burns with the first daylight of reality.
+ - Censorship is the tool of those who have the need to hide actualities from themselves and from others.
+ - Boring damned people. All over the earth. Propagating more boring damned people. What a horror show. The earth swarmed with them.
+ - I guess the only time most people think about injustice is when it happens to them.
+ - Style is the answer to everything. A fresh way to approach a dull or dangerous thing. To do a dull thing with style is preferable to doing a dangerous thing without it. To do a dangerous thing with style is what I call art.
+ - I write right off the typer. I call it my “machinegun.” I hit it hard, usually late at night while drinking wine and listening to classical music on the radio and smoking mangalore ganesh beedies.
+ - To do a dull thing with style-now that’s what I call art.
+ - That’s how it is with books, isn’t it: They’re not in a hurry. They’ll wait for you till you’re ready. People empty me. I have to go away to refill.
+ - If there are junk yards in hell, love is the dog that guards the gates.
+ - I would certainly end up forever crying the blues into a coffee cup in a park for old men playing chess or silly games of some sort.
+ - I loved you like a man loves a woman he never touches, only writes to, keeps little photographs of.
+ - I didn’t have any friends at school, didn’t want any. I felt better being alone. I sat on a bench and watched the others play and they looked foolish to me.
+ - I read my books at night, like that, under the quilt with the overheated reading lamp. Reading all those good lines while suffocating. It was magic.
+ - To be young is the only religion.
+ - I wasn’t a misanthrope and I wasn’t a misogynist but I liked being alone. It felt good to sit alone in a small space and smoke and drink. I had always been good company for myself.
+ - The more crap you believe, the better off you are.
+ - The difference between a brave man and a coward is a coward thinks twice before jumping in the cage with a lion. The brave man doesn’t know what a lion is. He just thinks he does.
+ - They never pay the slaves enough so they can get free, just enough so they can stay alive and come back to work.
+ - If you want to know who your friends are, get yourself a jail sentence.
+ - If you can’t write the next line, well, you’re dead. The past doesn’t matter.
+ - That’s the problem with drinking, I thought, as I poured myself a drink. If something bad happens you drink in an attempt to forget; if something good happens you drink in order to celebrate; and if nothing happens you drink to make something happen.
+ - It’s 4:30 in the morning, it’s always 4:30 in the morning.
+ - There is nothing as boring as the truth.
+ - Beauty is nothing, beauty won’t stay. You don’t know how lucky you are to be ugly, because if people like you, you know it’s for something else.
+ - Once a woman turns against you, forget it. They can love you, then something turns in them. They can watch you dying in a gutter, run over by a car, and they’ll spit on you.
+ - Keep your money in your pocket. Or bet it on a good horse.
+ - Goodness can be found sometimes in the middle of hell.
+ - I am a series of small victories and large defeats and I am as amazed as any other that I have gotten from there to here.
+ - The shortest distance between two points is often unbearable.
+ - Anybody can be a non-drunk. It takes a special talent to be a drunk. It takes endurance. Endurance is more important than truth.
+ - When a hot woman meets a hermit one of them is going to change.
+ - Drinking is another way of thinking, another way of living. It gives you two lives instead of one.
+ - Cautiously, I allowed myself to feel good at times. I found moments of peace in cheap rooms just staring at the knobs of some dresser or listening to the rain in the dark. The less I needed the better I felt.
+ - Most of the world was mad. And the part that wasn’t mad was angry. And the part that wasn’t mad or angry was just stupid. I had no chance. I had no choice. Just hang on and wait for the end. It was hard work. It was the hardest work imaginable.
+ - And don’t forget: time is meant to be wasted, love fails and death is useless.
+ - It will rain all this night and we will sleep transfixed by the dark water as our blood runs through our fragile life.
+ - Maybe when I get in the grave, things will be beautiful.
+ - Long before I became ‘rich and famous’ I just sat round drinking wine and staring at the walls.
+ - I want so much that is not here and do not know where to go.
+ - I walk into the kitchen, look at the typer down there on the floor. It’s a dirty floor. It’s a dirty typer that types dirty stories.
+ - The Difference Between Art and Life is that Art is More Bearable.
+ - The nine-to-five is one of the greatest atrocities sprung upon mankind. You give your life to a function that doesn’t interest you. This situation so repelled me that I was driven to drink, starvation, and mad females, simply as an alternative.
+ - The fuckers. There, I feel better. God-damned human race. There, I feel better.
+ - Many a good man has been put under the bridge by a woman.
+ - I enjoy the bad things that are said about me. It enhances sales and makes me feel evil. I don’t like to feel good ’cause I am good. But evil? Yes. It gives me another dimension.
+ - Almost everyone is born a genius and buried an idiot.
+ - I am a series of small victories and large defeats.
+ - Well, the rain had stopped but the pain was still there.
+ - I remember awakening one morning and finding everything smeared with the color of forgotten love.
+ - Human relationships are strange. I mean, you are with one person a while, eating and sleeping and living with them, loving them, talking to them, going places together, and then it stops.
+ - I wish to weep but sorrow is stupid. I wish to believe but belief is a graveyard.
+ - Some people like what you do, some people hate what you do, but most people simply don’t give a damn.
+ - It began as a mistake.
+ - I have gotten so used to melancholia that I greet it like an old friend.
+ - There is no hurry. Time means nothing to you.
+ - I think that the world should be full of cats and full of rain, that’s all, just cats and rain, rain and cats, very nice, good night.
+ - We’re all going to die, all of us, what a circus!
+ - Genius might be the ability to say a profound thing in a simple way.
+ - I’ve never met another man I’d rather be.
+ - They swallow God without thinking, they swallow country without thinking. Soon they forget how to think, they let others think for them.
+ - People with no morals often considered themselves more free, but mostly they lacked the ability to feel or love.
+ - I heard an airplane passing overhead. I wished I was on it.
+ - True revolution comes from true revulsion; when things get bad enough the kitten will kill the lion.
+ - Food is good for the nerves and the spirit. Courage comes from the belly – all else is desperation.
+ - Are you becoming what you’ve always hated?
+ - There’s no way I can stop writing, it’s a form of insanity.
+ - The male, for all his bravado and exploration, is the loyal one, the one who generally feels love. The female is skilled at betrayal and torture and damnation.
+ - I knew I was strong, and maybe like they said, “crazy.” But I had this feeling inside of me that something real was there.
+ - Sexual intercourse is kicking death in the ass while singing.
+ - An early taste of death is not necessarily a bad thing.
+ - Love dries up, I thought as I walked back to the bathroom, even faster than sperm.
+ - I will remember the kisses, our lips raw with love, and how you gave me everything you had and how I offered you what was left of me.
+ - It’s when you hide things that you choke on them.
+ - Pretty words, as pretty women, wrinkle up and die.
+ - In New York you’ve got to have all the luck.
+ - Drinking is an emotional thing. It joggles you out of the standardism of everyday life, out of everything being the same.
+ - This incompleteness is all we have.
+ - There’s nothing to mourn about death any more than there is to mourn about the growing of a flower. What is terrible is not death but the lives people live or don’t live up until their death.
+ - The night kept coming on in and there was nothing I could do.
+ - I was in love again. I was in trouble.
+ - There is a loneliness in this world so great that you can see it in the slow movement of the hands of a clock. People so tired, mutilated either by love or no love.
+ - You’ve got to rise from the floor alone or fall back alone.
+ - Now something so sad has hold of us that the breath leaves and we can’t even cry.
+ - Don’t wait for the good woman. She doesn’t exist.
+ - I have a face like a washrag. I sing love songs and carry steel. I would rather die than cry. I can’t stand hounds can’t live without them. I hang my head against the white refrigerator and want to scream like the last weeping of life forever but I am bigger than the mountains.
+ - I met a genius on the train today about 6 years old, he sat beside me and as the train ran down along the coast we came to the ocean and then he looked at me and said, it’s not pretty.
+ - The years have gone by quickly. Death sits in the seat next to me. We make a lovely couple.
+ - A love like that was a serious illness, an illness from which you never entirely recover.
+ - People do too much. They say too much.
+ - There will always be something to ruin our lives, it all depends on what or which finds us first. We are always ripe and ready to be taken.
+ - I only want sweet peace and kindliness when I awaken – but there’s always some finger pointing, telling me some terrible deed I committed during the night. It seems I make a lot of mistakes and it seems that I am not allowed any.
+ - Death is nothing, brother, it’s life that’s hard.
+ - It’s hot tonight and half the neighborhood is drunk. the other half is dead. if I have any advice about writing poetry it’s – don’t. I’m going to send out for some fried chicken.
+ - What a weary time those years were – to have the desire and the need to live but not the ability.
+ - Alcohol is probably one of the greatest things to arrive upon the earth – alongside of me.
+ - I had no Freedom. I had nothing.
+ - Things will be far worse than they are now. And far better. I wait.
+ - Bad taste creates many more millionaires than good taste.
+ - LSD, yeah, the big parade – everybody’s doin’ it now. Take LSD, then you are a poet, an intellectual. What a sick mob. I am building a machine gun in my closet now to take out as many of them as I can before they get me.
+ - That’s when I first learned that it wasn’t enough to just do your job, you had to have an interest in it, even a passion for it.
+ - I don’t know about other people, but when I wake up in the morning and put my shoes on, I think, Jesus Christ, now what?
+ - Why do you insist upon destroying yourself?
+ - Never get out of bed before noon.
+ - I like the way Mahler wandered about in his music and still retained his passion. He must have looked like an earthquake walking down the street.
+ - It didn’t pay to trust another human being. Humans didn’t have it, whatever it took.
+ - The problem was you had to keep choosing between one evil or another, and no matter what you chose, they sliced a little bit more off you, until there was nothing left.
+ - It’s nice enough to make a man weep, but I don’t weep, do you?
+ - The trouble with a mask is it never changes.
+ - I will put on my shoes and shirt and get out of here – it’ll be better for all of us.
+ - Never envy a man his lady. Behind it all lays a living hell.
+ - There are only two things wrong with money: too much or too little.
+ - New Year’s Eve always terrifies me.
+ - Sundays kill more people than bombs.
+ - The trouble with these people is that their cities have never been bombed and their mothers have never been told to shut up.
+ - I don’t understand people, never will. It looks like I got to travel pretty much alone.
+ - I often stood in front of the mirror alone, wondering how ugly a person could get.
+ - If I bet on humanity, I’d never cash a ticket.
+ - Knowledge without follow-through is worse than no knowledge.
+ - That’s what friendship is, sharing the prejudice of experience.
+ - People in love often become edgy, dangerous. They lose their sense of perspective.
+ - Oh, I don’t mean you’re handsome, not the way people think of handsome. Your face seems kind. But your eyes – they’re beautiful. They’re wild, crazy, like some animal peering out of a forest on fire.
+ - I’m going, she said. I love you but you’re crazy, you’re doomed.
+ - I had decided against religion a couple of years back. If it were true, it made fools out of people, or it drew fools. And if it weren’t true, the fools were all the more foolish. What I need is a good doctor, I thought. You either lived or died.
+ - I never felt right being alone; sometimes it felt good but it never felt right.
+ - The human heart, as of course we all know is essentially good.
+ - I can never drive my car over a bridge without thinking of suicide. I can never look at a lake or an ocean without thinking of suicide.
+ - I have two rules. One is, never trust a man who smokes a pipe. The other is, never trust a man with shiny shoes.
+ - In my next life I want to be a cat. To sleep 20 hours a day and wait to be fed. To sit around licking my ass.
+ - Her eyes always had a frantic, lost look. He could never cure her eyes of that.
+ - Animals never worry about Heaven or Hell. Neither do I. Maybe that’s why we get along.
+ - I suppose like others I have come through fire and sword, love gone wrong, head-on crashes, drunk at sea, and I have listened to the simple sound of water running in tubs and wished to drown.
+ - Love is a form of prejudice. I have too many other prejudices.
+ - With me, my main vision for life was to avoid as many people as possible. The less people I saw the better I felt.
+ - Each person is only given so many evenings and each wasted evening is a gross violation against the natural course of your only life.
+ - I take much pleasure in being alone but there is also a strange warm grace in not being alone.
+ - Finally there is nothing here for death to take away.
+ - When you play the field selfishly everything works against you: one can’t insist on love or demand affection. you’re finally left with whatever you have been willing to give which often is: nothing.
+ - Sometimes a man doesn’t know what to do about things and sometimes it’s best to lie very still and try not to think at all about anything.
+ - One more drink and you’re dead. This is no way to talk to a suicide head.
+ - She was desperate and she was choosey at the same time and, in a way, beautiful, but she didn’t have quite enough going for her to become what she imagined herself to be.
+ - The crazy ones only laugh when there is no reason to laugh.
+ - I went to the worst of bars hoping to get killed but all I could do was to get drunk again.
+ - It was a joy! Words weren’t dull, words were things that could make your mind hum. If you read them and let yourself feel the magic, you could live without pain, with hope, no matter what happened to you.
+ - So, that’s what they wanted: lies. Beautiful lies. That’s what they needed. People were fools. It was going to be easy for me.
+ - Some of my poems indicate that I am writing while living alone after a split with a woman, and I’ve had many splits with women. I need solitude more often when I’m not writing than when I am.
+ - I wish I were driving a blue 1952 Buick or a dark blue 1942 Buick or a blue 1932 Buick over a cliff of hell and into the sea.
+ - Well, people got attatched. Once you cut the umbilical cord they attatched to the other things. Sight, sound, sex, money, mirages, mothers, masturbation, murder, and Monday morning hangovers.
+ - I don’t like jail, they got the wrong kind of bars in there.
+ - Learn, he says, that there will be hours, days and months ahead of feeling absolutely terrible and nothing can change that; neither new girlfriends, health professionals, changes of diet, dope, humility, or God.
+ - Bullfighting can be an art Boxing can be an art Loving can be an art Opening a can of sardines can be an art.
+ - People who believe in politics are like people who believe in God: they are sucking wind through bent straws.
+ - I am a dolt of a man, easily made happy or even stupidly happy almost without cause and left alone I am mostly content.
+ - I wasn’t sleeping on the streets at night. Of course, there were a lot of good people sleeping in the streets. They weren’t fools, they just didn’t fit into the needed machinery of the moment. And those needs kept altering.
+ - Dying in a a war never stopped wars from happening.
+ - I hope that death contains less than this.
+ - News travels fast in places where nothing much ever happens.
+ - It was like the beginning of life and laughter. It was the real meaning of the sun.
+ - Don’t do it. Don’t love me.
+ - Everything else just kept picking and picking, hacking away. And nothing was interesting, nothing. The people were restrictive and careful, all alike. And I’ve got to live with these fuckers for the rest of my life, I thought.
+ - What a woman wants is a reaction. What a man wants is a woman.
+ - We waste days like mad blackbirds and pray for alcoholic nightsour silk-sick human smiles wrap around us like somebody else’s confetti.
+ - I’m not the cruel type, but they are, and that’s the secret.
+ - The best thing about the bedroom was the bed. I liked to stay in bed for hours, even during the day with covers pulled up to my chin. It was good in there, nothing ever occurred in there, no people, nothing.
+ - Those faces you see every day on the streets were not created entirely without hope: be kind to them: like you they have not escaped.
+ - Style is the answer to everything. A fresh way to approach a dull or dangerous thing.
+ - You were destroyed by what you befriended.
+ - When you drank the world was still out there, but for the moment it didn’t have you by the throat.
+ - People were interesting at first. Then later, slowly but surely, all the flaws and madness would manifest themselves. I would become less and less to them; they would mean less and less to me.
+ - People don’t do me much good.
+ - My part of the game is that I must live the best I can.
+ - Let’ em learn or let’ em die.
+ - You can steal my women but don’t play with my whiskey.
+ - I can see where creation often stops while the body still lives and often does not care to. the death of life before life dies.
+ - Why do we embroider everything we say with special emphasis when all we really need to do is simply say what needs to he said? Of course the fact is that there is very little that needs to be said.
+ - I was glad I wasn’t in love, that I wasn’t happy with the world. I like being at odds with everything. People in love often become edgy, dangerous. They lose their sense of perspective. They lose their sense of humor. They become nervous, psychotic bores. They even become killers.
+ - If I’m an ass, I should say so. If I don’t, somebody else will. If I say it first, that disarms them.
+ - What’s genius? I don’t know but I do know that the difference between a madman and a professional is that a pro does as well as he can within what he has set out to do and a madman does exceptionally well at what he can’t help doing.
+ - It was better for me when I could imagine greatness in others, even if it wasn’t always there.
+ - I just let it roll. Like a hot turd down a hill.
+ - I wasn’t going anywhere and neither was the rest of the world. We were all just hanging around waiting to die and meanwhile doing little things to fill the space. Some of use weren’t even doing little things. We were vegetables.
+ - There is something about writing poetry that brings a man close to the cliff’s edge.
+ - I went to the bathroom and threw some water on my face, combed my hair. If I could only comb that face, I thought, but I can’t.
+ - Insanity is relative. Who sets the norm?
+ - To experience real agony is something hard to write about, impossible to understand while it grips you; you’re frightened out of your wits, can’t sit still, move, or even go decently insane.
+ - There’s nothing unusual about love.
+ - You don’t go on “probably” when love and guns are in hand.
+ - I was settled into nothingness; a kind of non-being, and I accepted it. It didn’t make for an interesting person. I didn’t want to be interesting, it was too hard. What I really wanted was only a soft, hazy space to live in, and to be left alone.
+ - In a capitalistic society the losers slaved for the winners and you have to have more losers than winners.
+ - Most people’s deaths are a sham. There’s nothing left to die.
+ - I seldom know what I’m going to write when I sit down. There isn’t much agony and sweat of the human spirit involved in doing it. The writing’s easy, it’s the living that is sometimes difficult.
+ - Love is a form of prejudice. You love what you need, you love what makes you feel good, you love what is convenient. How can you say you love one person when there are ten thousand people in the world that you would love more if you ever met them? But you’ll never meet them.
+ - The hangover was brutal but he didn’t mind. It told him he had been somewhere else, someplace good.
+ - We have wasted History like a bunch of drunks shooting dice back in the men’s crapper of the local bar.
+ - But she projected vitality – you knew that she was there.
+ - Writing is like going to bed with a beautiful woman and afterwards she gets up, goes to her purse and gives me a handful of money.
+ - People were usually much better in their letters than in reality. They were much like poets in this way.
+ - My flesh looked like it wasn’t trying. It looked like it hated being part of me.
+ - But my whole life has been a matter of fighting for one simple hour to do what I want to do. There was always something getting in the way of my getting to myself.
+ - I feel strangely normal.
+ - Dear child, I only did to you what the sparrow did to you; I am old when it is fashionable to be young; I cry when it is fashionable to laugh. I hated you when it would have taken less courage to love.
+ - I am aware that a computer can’t create a poem, but neither can a typewriter.
+ - You have my soul and I have your money.
+ - I was fairly poor but most of my money went for wine and classical music. I loved to mix the two together.
+ - You just rebel against everything. How are you going to survive? I don’t know. I’m already tired.
+ - We use such big words to move nowhere.
+ - The wisest thing to do if you’re living in hell is to make yourself comfortable.
+ - More often than not Democratic Law works to the advantage of the few even though the many have voted; this, of course, is because the few have told them how to vote.
+ - There are times when those eyes inside your brain stare back at you.
+ - God is a lonely place without steak.
+ - I got lost somehow, began staring up her legs. I was always a leg man. It was the first thing I saw when I was born. But then I was trying to get out. Ever since I have been working in the other direction and with pretty lousy luck.
+ - You can forgive a fool because he only runs in one direction and doesn’t deceive anybody. It’s the deceivers who make you feel bad.
+ - Show me a man who lives alone and has a perpetually clean kitchen, and 8 times out of 9 I’ll show you a man with detestable spiritual qualities.
+ - Sometimes I feel as if we are all trapped in a movie. We know our lines, where to walk, how to act, only there is no camera. Yet, we can’t break out of the movie. And it’s a bad one.
+ - People need me. I fill them. If they can’t see me for a while they get desperate, they get sick. But if I see them too often I get sick. It’s hard to feed without getting fed.
+ - Long ago, among other lies they were taught that silence was bravery.
+ - The centuries are sprinkled with rare magic with divine creatures who help us get past the common and extraordinary ills that beset us.
+ - I was their bar freak, they needed me to make themselves feel better. just like, at times, I needed that graveyard.
+ - It’s the order of things: each one gets a taste of honey then the knife.
+ - Fay had a spot of blood on the left side of her mouth and I took a wet cloth and wiped it off. Women were meant to suffer; no wonder they asked for constant declarations of love.
+ - I was young I was so young it hurt like a knife inside because there was no alternative except to hide as long as possible – not in self-pity but with dismay at my limited chance: trying to connect.
+ - I am for the small man who has not forgotten, for the man who loves his beer and his women and his sunlight.
+ - Four days alone with nothing. Emerge empowered. The first human face you see will knock you back 50%.
+ - I hid in bars, because I didn’t want to hide in factories.
+ - Love is a horse with a broken leg trying to stand while 45,000 people watch.
+ - There still might be a place for us somewhere.
+ - I was drawn to all the wrong things: I liked to drink, I was lazy, I didn’t have a god, politics, ideas, ideals.
+ - I had no feeling for the things so many others needed.
+ - I walked around the block twice, passed 200 people and failed to see a human being.
+ - I am this fiery snail crawling home.
+ - Death meant little to me. It was the last joke in a series of bad jokes.
+ - Careful poetry and careful people live only long enough to die safely.
+ - As a recluse I couldn’t bear traffic. It had nothing to do with jealousy, I simply disliked people, crowds, anywhere, except at my readings. People diminished me, they sucked me dry.
+ - I don’t know if this is true to you but for me sometimes it gets so bad that anything else say like looking at a bird on an overhead power line seems as great as a Beethoven symphony. then you forget it and you’re back again.
+ - I was beaten down long ago in some alley in another world.
+ - Parties sickened me. I hated the game-playing, the dirty play, the flirting, the amateurs drunks, the bores.
+ - That the young rich smell the stink of the poor and learn to find it a bit amusing. They had to laugh, otherwise it would be too terrifying.
+ - Her one drink had Cecelia giggling and talking and she was explaining that animals had souls too. Nobody challenged her opinion. It was possible, we knew. What we weren’t sure of was if we had any.
+ - I would give anything for a female’s hand on me tonight. they soften a man and then leave him listening to the rain.
+ - Capitalism has survived communism. Now, it eats away at itself.
+ - Art is its own excuse, and it’s either Art or it’s something else. It’s either a poem or a piece of cheese.
+ - It was sad, it was sad, it was sad. When Betty came back we didn’t sing or laugh, or even argue. We sat drinking in the dark, smoking cigarettes, and when we went to sleep, I didn’t put my feet on her body or she on mine like we used to. We slept without touching. We had both been robbed.
+ - I often carry things to read so that I will not have to look at the people.
+ - I have seen too many men wilt and go silly under a little light, and then they continue to write and get published, turning out pure crap under a name that has become a bad habit. The next poem is all that counts. You can’t stand on past poems.
+ - As we live we all get caught and torn by various traps. Nobody escapes them. Some even live with them. The idea is to realize that a trap is a trap. If you are in one and you don’t realize it, then you’re finished.
+ - I can’t blame her. but wonder why she’s here with me? where are the other guys? how can you be lucky? having someone the others have abandoned?
+ - I’ve learned to feel good when I feel good. it’s better to be driven around in a red porsche than to own one. the luck of the fool is inviolate.
+ - The park grass looked greener, the park benches looked better and the flowers were trying harder.
+ - Never trust a man in a jumpsuit.
+ - Too often the people complain that they have done nothing with their lives and then they wait for somebody to tell them that this isn’t so.
+ - Our disappointment sits between us.
+ - I would be married, but I’d have no wife, I would be married to a single life.
+ - Most people are not ready for death, theirs or anybody elses.
+ - My body gnaws at me from one side and my spirit gnaws at me from the other.
+ - Dying should come easy: like a freight train you don’t hear when your back is turned.
+ - Love came hard and very seldom. When it did it was usually for the wrong reasons.
+ - Some men hope for revolution but when you revolt and set up your new government you find your new government is still the same old Papa, he has only put on a cardboard mask.
+ - When you clean up a city, you destroy it.
+ - It seems I make a lot of mistakes and it seems that I am not allowed any.
+ - I had noticed that both in the very poor and very rich extremes of society the mad were often allowed to mingle freely.
+ - I always started a job with the feeling that I’d soon quit or be fired, and this gave ma a relaxex manner that was mistaken for intelligence or some secret power.
+ - There is nothing that teaches you more than regrouping after failure and moving on.
+ - God knows I am not too hippy. Perhaps because I am too much around the hip and I fear fads for, like anybody else, I like something that tends to last.
+ - I don’t think I’ll travel anymore. Travel is nothing but an inconvenience. There is always enough trouble where you are.
+ - It’s better to do a dull thing with style than a dangerous thing without it.
+ - A woman is a full time job. You have to choose your profession.
+ - And I said to myself that he was the first thing that I had ever missed in my life.
+ - Complaint is often the result of an insufficient ability to live within the obvious restrictions of this god damned cage.
+ - Forgive me, I guess I am off in the head, but I mean, except for a quickie piece of ass it wouldn’t matter to me if all the people in the world died. Yes, I know it’s not nice. But I’d be as contended as a snail; it was, after all, the people who had made me unhappy.
+ - I knew it would be you.
+ - Some people have written that my writing has helped them go on. It has helped me too. The writing, the roses, the 9 cats.
+ - The world had somehow gone too far, and spontaneous kindness could never be so easy.
+ - Do some living and get yourself a typewriter.
+ - I give you soul. I give you wisdom and light and music and a bit of laughter. Also, I am the world’s greatest horseplayer.
+ - The writer has no responsibility other than to jack off in bed alone and write a good page.
+ - Before you kill something make sure you have something better to replace it with...
+ - Getting drunk was good. I decided that I would always like getting drunk. It took away the obvious and maybe if you could get away from the obvious often enough, you wouldn’t become so obvious yourself.
+ - If you want to know where God is, ask a drunk.
+ - The blankets had fallen off and I stared down at her white back, the shoulder blades sticking out as if they wanted to grow into wings, poke through that skin. Little blades. She was helpless.
+ - I could never accept life as it was, I could never gobble down all its poisons bu there were parts, tenuous magic parts open for the asking.
+ - Most people are much better at saying things in letters than in conversation, and some people can write artistic, inventive letters, but when they try a poem or story or novel they become pretentious.
+ - Don’t ever write a novel unless it hurts like a hot turd coming out.
+ - Joan of Arc had style. Jesus had style.
+ - That’s the way it ends. The thin edge of the wedge.
+ - They laughed. Things were funny. They weren’t afraid to care. There was no sense to life, to the structure of things.
+ - I never pump up my vulgarity. I wait for it to arrive in its own terms.
+ - I mean, say that you figure that everything is senseless, then it can’t be quite senseless because you are aware that it’s senseless and your awareness of senselessness almost gives it sense. You know what I mean?
+ - I was a bore and didn’t know when to smile or fake it. Or rather worse, I did but didn’t.
+ - It’s hard to drink when you dance. And it’s hard to dance when you drink.
+ - I don’t remember going to bed, but in the morning, there I was.
+ - There’s nothing else as pleasant as being unpleasant when there’s nothing else to do, and there’s usually nothing else to do.
+ - I think that everything should be made available to everybody, and I mean LSD, cocaine, codeine, grass, opium, the works. Nothing on earth available to any man should be confiscated and made unlawful by other men in more seemingly powerful and advantageous positions.
+ - Hemingway and Saroyan had the line, the magic of it. The problem was that Hemingway didn’t know how to laugh and Saroyan was filled with sugar.
+ - Was I the only person who was distracted by this future without a chance?
+ - And there I was, 225 pounds, perpetually lost and confused, short legs, ape-like upper body, all chest, no neck, head too large, blurred eyes, hair uncombed, 6 feet of geek, waiting for her.
+ - I felt I had to win. It seemed very important. I didn’t know why it was important and I kept thinking, why do I think this is so important? And another part of me answered, just because it is.
+ - It’s so easy to be easy – if you let it.
+ - Sex can sometimes become the most horrible of tasks.
+ - Angels, we have grown apart.
+ - When a writer is swayed with his fame and his fortune, you can float him down the river with the turds.
+ - The pest, in a sense, is a very superior being to us: he knows where to find us and how – usually in the bath or in sexual intercourse or asleep.
+ - I held her wrists and then I got it through the eyes: hatred, centuries deep and true. I was wrong and graceless and sick. all the things I had learned had been wasted. there was no creature living as foul as I and all my poems were false.
+ - It seemed better to delay thinking.
+ - American women drove hard bargains and the ended up looking the worst for it. The few natural American women left were mostly in Texas and Louisiana.
+ - I have loved you woman as surely as I have named you rust and sand and nylon.
+ - Sweet Christ, you must know that a man will go further for any poem than for any woman ever born.
+ - Basically, that’s why I wrote: to save my ass, to save my ass from the madhouse, from the streets, from myself.
+ - Sometimes I get too exhausted to even feel bad.
+ - We are hardly ever as strong as that which we create.
+ - I got up and walked back to my roominghouse. The moonlight was bright. My footsteps echoed in the empty street and it sounded as if somebody was following me, I looked around. I was mistaken. I was quite alone.
+ - I grow tired of 18th century moralities in a 20th century space-atomic age.
+ - There would never be a way for me to live comfortably with people. Maybe I’d become a monk. I’d pretend to believe in God and live in a cubicle, play an organ and stay drunk on wine.
+ - I am too sick to lay down the sidewalks frighten me the whole damned city frightens me, what I will become what I have become frightens me.
+ - People just weren’t interesting. Maybe they weren’t supposed to be. But animals, birds, even insects were. I couldn’t understand it.
+ - I drive around the streets an inch away from weeping, ashamed of my sentimentality and possible love.
+ - Experience can dull. With most men experience is a series of mistakes; the more experience you have the less you know.
+ - I guess for me Hemingway is a lot like it is for others: he goes down well when we are young.
+ - It was only the matter of a new voice. Nobody listened to an old voice anymore. Old voices became a part of one’s self, like a fingernail.
+ - If you can only remain pure in your stupidity, someday you may get a phone call from hell.
+ - When I begin to doubt my ability to work the word, I simply read another writer and know I have nothing to worry about. My contest is only with myself, to do it right, with power, and force, and delight, and gamble.
+ - My objection to war was not that I had to kill somebody or be killed senselessly, that hardly mattered. What I objected to was to be denied the right to sit in a small room and starve and drink cheap wine and go crazy in my own way and at my own leisure.
+ - I was so thin I could slice bread with my shoulderblades, only I seldom had bread.
+ - Not everybody thought they could be a dentist or an automobile mechanic but everybody knew they could be a writer.
+ - Knowledge is knowing as little as possible.
+ - I made practice runs down to skid row to get ready for my future.
+ - Fiction is an improvement on life.
+ - Courts are places where the ending is written first and all that precedes is simply vaudeville.
+ - Well, we lost it, and that’s all there is to that.
+ - We’ve died so many times now that we can only wonder why we still care.
+ - I hated you when it would have taken less courage to love.
+ - I remember when each 4th lot was vacant and overgrown, and the landlord only go this rent when you had it, and each day was clear and good and each moment was full of promise.
+ - Trouble and pain were what kept a man alive. Or trying to avoid trouble and pain. It was a full time job.
+ - I lie as truthfully as I can.
+ - I pretend to understand because I don’t want anybody to be hurt.
+ - It’s never quite right, all the things we are taught, all the loves we chase, all the deaths we die, all the lives we live.
+ - People just don’t know how to write down a simple easy line. It’s difficult for them; it’s like trying to keep a hard-on while drowning – not many can do it.
+ - Frankly, I was horrified by life, at what a man had to do simply in order to eat, sleep, and keep himself clothed. So I stayed in bed and drank. When you drank the world was still out there, but for the moment it didn’t have you by the throat.
+ - Morals were restrictive, but they were grounded on human experience.
+ - I write as a function. Without it I would fall ill and die. It’s as much a part of one as the liver or intestine, and just about as glamorous.
+ - I don’t carry notebooks and I don’t consciously store ideas. I try not to think that I am a writer and I am pretty good at doing that. I don’t like writers, but then I don’t like insurance salesmen either.
+ - I didn’t feel that way about it. I had been playing with death for some time. I can’t say we were the best of friends but we were well acquainted.
+ - I’ll use the knives for spreading jam, and the gas to warm my greying love.
+ - I was an Agnostic. Agnostics didn’t have much to argue about.
+ - Disneyland remains the central attraction of Southern California, but the graveyard remains our reality.
+ - Even the stove and the refrigerator looked human, I mean good human – they seemed to have arms and voices and they said, hang around, kid, it’s good here, it can be very good here.
+ - We are here to laugh at the odds.
+ - They were beautiful nothings.
+ - There was nothing glorious about the life of a drinker or the life of a writer.
+ - Of course, there would always be arguments. That is the nature of Woman. They like the mutual exchange of dirty laundry, a bit of screaming, a bit of dramatics. Then an exchange of vows.
+ - I could read the great books but the great books don’t interest me.
+ - Gradually I came to realize that my understanding of women goes only as far as the pleasure is concerned.
+ - As we go on with our lives we tend to forget that the jails and the hospitals and the madhouses and the graveyards are packed.
+ - I am not a man who looks for solutions in God or politics. If somebody else wants to do the dirty work and create a better world for us and he can do it, I will accept it.
+ - I’m only interested in poetry.
+ - I’m going to open another vottle. not a vottle, but a bottle. you open it and I’ll drink it. and you try to write as much as I did without falling off of your chair.
+ - Writers are nothing but beggars with a good line.
+ - I went home each night dizzy and sick. He was murdering me with the sound of his voice.
+ - The public takes from a writer, or a writing, what it needs and lets the remainder go. but what they take is usually what they need least and what they let go is what they need most.
+ - Turgenev was a very serious fellow but he could make me laugh because a truth first encountered can be very funny. When someone else’s truth is the same as your truth, and he seems to be saying it just for you, that’s great.
+ - No matter how little a man has he will find that he will always settle for less.
+ - It is possible to be truly mad and to still exist upon scraps of life.
+ - A woman has to have something on or there’s nothing to take off.
+ - I was only photographing in words the reality of it all.
+ - When Ginsburg is at the top of his game you might as well put down your toys and listen.
+ - Some nights I knew that if I slept I would die.
+ - They, all of them, seemed to put literary form in front of the actuality and living of life itself.
+ - If you want to create, you’ll create...
+ - I have been treated better than I should have been – not by life in general nor by the machinery of things but by women.
+ - If you can hit a guy once, you can hit him twice.
+ - Banion wondered which was worse – being sodomized by aliens, or having to sit through two hours of Charles Ives.
+ - In the morning it was morning and I was still alive.
+ - A man who can beat the horses can do anything he makes up his mind to do.
+ - If I hadn’t been a drunkard, I probably would have committed suicide long ago.
+ - I’ve found out why men sign their names to their works- not that they created them but more than the others did not.
+ - The writing’s easy, it’s the living that is sometimes difficult.
+ - I broke that town in half like a wooden match.
+ - An artist is a man who says a difficult thing in a simple way.
+ - When I’m drinking around people, I tend to get silly or pugnacious or wild, which can cause problems.
+ - He had long nostril hairs, powerfully intimidating, like an unscheduled nightmare.
+ - I knew exactly what I was doing: I was doing nothing. because I knew there was nothing to do.
+ - Something that never happens anywhere at any time.
+ - A dry period for me means perhaps going two or three nights without writing. I probably have dry periods but I’m not aware of them and I go on writing, only the writing probably isn’t much good.
+ - YOU DULL ME!
+ - It’s just that the grape has me down.
+ - The worst thing for a writer is to know another writer, and worse than that, to know a number of other writers. Like flies on the same turd.
+
+492 quotes

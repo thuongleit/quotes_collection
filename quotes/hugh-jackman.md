@@ -1,0 +1,166 @@
+ - Giving people a hand up, not a handout, is the way forward.
+ - If you accept the pain, it cannot hurt you.
+ - If you put Buddha, Jesus Christ, Socrates, Shakespeare, Arjuna, Krishna at a dinner table together, I can’t see them having an argument.
+ - There comes a certain point in life when you have to stop blaming other people for how you feel or the misfortunes in your life. You can’t go through life obsessing about what might have been.
+ - The longer it takes you to become successful, the harder it will be for somebody else to take it away from you.
+ - In life you don’t regret the things you do, you regret the things you don’t do.
+ - Unless you’re willing to fail miserably in the pursuit of your dreams, you’ll never make it.
+ - A film is the director’s medium. The theater is an actor’s.
+ - Your wife is always right. Very simple. I think I’m going to get it tattooed on my forehead.
+ - The audience knows the truth, the world is simple. It’s miserable, solid all the way through. But if you could fool them, even for a second, then you can make them wonder, and then you got to see something really special.
+ - To get down to the quick of it, respect motivates me – not success.
+ - My father taught me that losing your temper is a self-indulgent act.
+ - I like the Rolling Stones for karaoke. ‘Sympathy For The Devil’ is a great one.
+ - Nobody suddenly discovers anything. Thing are made slowly and in pain.
+ - I work extremely hard doing what I love, mainly to ensure that I don’t have to work extremely hard doing what I hate.
+ - Now I meditate twice a day for half an hour. In meditation, I can let go of everything. I’m not Hugh Jackman. I’m not a dad. I’m not a husband. I’m just dipping into that powerful source that creates everything. I take a little bath in it.
+ - I love food, all types of food. I love Korean food, Japanese, Italian, French. In Australia, we don’t have a distinctive Australian food, so we have food from everywhere all around the world. We’re very multicultural, so we grew up with lots of different types of food.
+ - To have memories of those you have loved and lost is perhaps harder than to have no memories.
+ - I hate being frightened of things. I’m not someone who can say: “Oh, I’m scared of flying, I won’t fly.” Fear seems to creep over every part of your life so if there’s something I identify as frightening to me I want to tackle it.
+ - If you never fall in love with your character, you’ll never be able to do that character justice. No matter who it is, no matter what the character does, you have to find the reason for it. Everyone’s got a reason for what they do, even if it’s a reason that they’re not proud of.
+ - I feel so lucky to have both a son and a daughter, because there’s a different relationship with each of them.
+ - I’d sell my soul for a good cause.
+ - Transcendental Meditation gives you what you need, when you need it. It’s literally changed my life. Some of the clearest ideas or epiphanies I’ve had in life happened during or after meditating. Everything becomes clear and the truth starts coming out.
+ - Meditation is all about the pursuit of nothingness. It’s like the ultimate rest. It’s better than the best sleep you’ve ever had. It’s a quieting of the mind. It sharpens everything, especially your appreciation of your surroundings. It keeps life fresh.
+ - The Wolverine was fired from his job as a cashier in a newsagents after just six weeks because his boss said, “he talks too much to customers”. He can talk to me all day.
+ - I don’t think I knew how going to Ethiopia would affect my life, through a very simple choice of buying fair-trade coffee, we can take part in change.
+ - Australians are coffee snobs. An influx of Italian immigrants after World War II ensured that – we probably had the word ‘cappuccino’ about 20 years before America. Cafe culture is really big for Aussies. We like to work hard, but we take our leisure time seriously.
+ - Tiramisu is my favourite.
+ - When I come home, my daughter will run to the door and give me a big hug, and everything that’s happened that day just melts away.
+ - I have two children and it’s amazing how in tune they are with nature, with light, with smells, with time.
+ - If somebody in your industry is more successful than you, it’s because he works harder than you.
+ - Salvatore Ferragamo have done some nice handmade suits for me.
+ - I once sang ‘Summer Nights,’ from ‘Grease,’ at a bar in Melbourne with John Travolta, who’s a good friend of mine. He looked cool singing the part of Danny – sitting in an armchair, smoking a cigar – while I got stuck playing Sandy.
+ - The definition of being good is being able to make it look easy.
+ - I’ve never heard my dad say a bad word about anybody. He always keeps his emotions in check and is a true gentleman. I was taught that losing it was indulgent, a selfish act.
+ - I’m a mad lover of sport. You cannot say a bad word to me about sports. So I know business is involved and I know it can be cynical, and, of course, I watch it, but for me it’s pure.
+ - I’m not a loner at all.
+ - Comic book fans have loved Wolverine, and all the ‘X-Men’ characters, for more than the action. I think that’s what set it apart from many of the other comic books. In the case of Wolverine, when he appeared, he was a revolution really. He was the first anti-hero.
+ - Now I meet people with full-color Wolverine tattoos on their backs. Thank God I did okay, because I think if I hadn’t, they’d spit on me in the street.
+ - I had a bad back for a couple of years. I had to do a lot of physiotherapy for it. What I couldn’t understand at the time was why the therapists had me doing a lot of stomach work.
+ - I have two kids, career and I travel, and I don’t think my life is any different than most couples. The most valuable commodity now for many people is time and how to parcel that out.
+ - Life has ups and it has downs. I don’t care who you are.
+ - That’s all about the natural order of things, the idea of nature protecting children but also children protecting nature.
+ - I’m a big goofball, you know. Don’t tell anyone that, but I’m a big goofball. In Australia we call it a dag.
+ - Doing anything worthwhile takes forever.
+ - I’ve always felt that if you back down from a fear, the ghost of that fear never goes away. It diminishes people.
+ - Wolverine was created in the ’60s, but he feels like a ’70s character in every way. More Dirty Harry, more politically incorrect, the hair, the mutton chops.
+ - If you ask my wife, the biggest fault is my inability around the house. She says the only thing handy about me is that I’m close by. And, I have a terrible memory. I’m bad at saying no. I often double-book. There are a lot of things.
+ - One afternoon when I was 9, my dad told me I’d be skipping school the next day. Then we drove 12 hours from Melbourne to Sydney for the Centenary Test, a once-in-a-lifetime commemorative cricket match. It was great fun – especially for a kid who was a massive sports fan.
+ - Your marriage goes to a whole new level. You not only fall in love with your wife in a new way, but you’re forced to pull together. You have to become a united front.
+ - We can live tough lives, but the human spirit is stronger, seemingly, than anything. There is redemption, hope, and love. All different forms of heartbreak, but beyond all that there is hope, there is love. There is beauty and bliss.
+ - I had spent some time in the outback, but to meet Aboriginals and work with them was wonderful. It gave me a great appreciation of how tough life is and about the indomitable spirit that the Aboriginal people have always possessed.
+ - I’m doing a new musical on Broadway, which opens in October called ‘The Boy from Oz,’ where I play Peter Allen. For those of you who don’t know, he became first famous in America for marrying Liza Minelli.
+ - Singing is incredibly physical.
+ - My gosh, I love food. If I wasn’t an actor, I could be a completely different body shape right now.
+ - I think adoption is a blessing all around when it’s done right.
+ - Writer’s block is just a symptom of feeling like you have nothing to say, combined with the rather weird idea that you should feel the need to say something. Why? If you have something to say, then say it. If not, enjoy the silence while it lasts. The noise will return soon enough.
+ - My favorite play in drama school was ‘The Bacchae.’ It’s about a king who literally gets eaten alive by all the women in the play in a kind of orgy – it’s related to the word ‘bacchanal’ – and I loved that idea of animalistic chaos and following our own desires.
+ - I can look back on my life, where there have been moments where things might have gone the other way. Everything is like stepping stones, and I’ve seen people I admire falter. We’re all vulnerable.
+ - You have to find your own shtick. A Picasso always looks like Picasso painted it. Hemingway always sounds like Hemingway. A Beethoven symphony always sounds like a Beethoven symphony. Part of being a master is learning how to sing in nobody else’s voice but your own.
+ - There was a whole display set up of all the X-Men paraphernalia. My wife couldn’t resist telling this 5-year-old boy that I was Wolverine. The little kid looked up at me and he was staring at me.
+ - My dad’s main client was the World Bank, and he spent most of his time traveling to Third World countries. His particular interest lay in the eradication of poverty through development and business.
+ - I’m an actor. Never trust an actor, whatever their energy is. I suppose you guys see that side of me, but I’m sure there’s plenty of people close to me who’ve seen the other one. I think if we’re all honest with ourselves, we all know that internal rage.
+ - I like to dress up in a tailored suit from time to time, and there’s a tailor I go to in Naples who’s fantastic. But if I told anyone his name, I’d have to kill them.
+ - Luckily, I’m not afraid to make a fool of myself.
+ - When you’re playing an icon like Wolverine, it’s sometimes better to be someone that nobody knows because they don’t know what to expect. I don’t mind a little bit of anonymity; it helps on the subway.
+ - Anyone who thinks they’re indispensible is fooling themselves.
+ - To this day, I am the least materialistic person I know, because my father didn’t raise me to just go out and buy this or that car. The only reason I wanted to make money as an actor was because I’m passionate about food!
+ - Your idea doesn’t have to be big. It just has to be yours alone. The more the idea is yours alone, the more freedom you have to do something really amazing. The more amazing, the more people will click with your idea. The more people click with your idea, the more it will change the world.
+ - The moment your kid’s born you realize no one knows anything. No one goes to classes. You just have a kid. You can read all the books you like, but unfortunately none of our kids have read the books so they don’t care. You’re basically making it up as you go along.
+ - Because I believe actually the more you do something, the less frightening it becomes because you start to realize the outcome is not as important as you think.
+ - I can live with failure if it is born of conviction.
+ - Meditation is all about the pursuit of nothingness...
+ - For Sunday breakfast, I make orange and ricotta pancakes, crepes and eggs. You know men, we usually go for breakfast because it’s the easiest thing to cook and then we try to make it seem fancy.
+ - Being on Broadway is the modern equivalent of being a monk. I sleep a lot, eat a lot, and rest a lot.
+ - Nothing has ever opened my eyes like transcendental meditation has. It makes me calm and happy, and, well, it gives me some peace and quiet in what’s a pretty chaotic life!
+ - I didn’t really know X-Men at all before I started. So I’d heard of this comic but I didn’t know it was as beloved or as iconic as I have now found out, but I just know fans are going to flip out at this.
+ - With age, you see people fail more. You see yourself fail more. How do you keep that fearlessness of a kid? You keep going. Luckily, I’m not afraid to make a fool of myself.
+ - I’m not a kid. You don’t get in this business for anonymity. It’s not like I have posters of myself on the wall, but at the same time, I’m kind of ready for a little bit of it, but I worry for my little one, and my family – their privacy. That’s what I’m more protective of.
+ - Sometimes you have to go places with characters and emotions within yourself you don’t want to do, but you have a duty to the story and as a storyteller to do it.
+ - Write down five things you love to do. Next, write down five things that you’re really good at. Then just try to match them up! Revisit your list once a year to make sure you’re on the right track.
+ - My father is very Jean Valjean. He’s what I would call a great example of a religious person. He is a deeply thoughtful man whose religion is in his deeds way more than anything else. It’s not talked about that much.
+ - Anyone can be an idealist. Anyone can be a cynic. The hard part lies somewhere in the middle.
+ - I truly believe that the job of an actor and the drive of an actor is simulating the internal journey in life which is to get deeper and deeper into our understanding of who we are.
+ - I’m an actor who believes we all have triggers to any stage of emotion. It’s not always easy to find but it’s still there.
+ - I do not think it is logical to try and outsmart the smartest people. Instead, my weapons are irony and paradox. The joy of life is partly in the strange and unexpected. It is in the constant exclamation ‘Who would have thought it?’
+ - As an actor, you have many tools – your body, your voice, your emotions, mentally. In film, you have your eyes because they communicate your thought process. In fact, generally in film, what you don’t say is more important than what you say. That’s not so much the case for stage.
+ - My kids are not that interested in my movie career, by the way. My son, in particular, never talks about it. He just wants me as his dad.
+ - The first show I ever did, singing and dancing, was ‘Beauty and the Beast.’ I was playing Gaston. Gaston has red tights, knee high boots, and it’s very physical. I had headaches every day for two months.
+ - My friends say, ‘Man you’re going to have kids sleeping on pillowcases with your face on it! You’re going to be on toothbrushes and magnets and stuff.’ I guess now that I’m a dad, I’m thrilled about that.
+ - When you dance, your body just wants to find its natural weight. I’m naturally a lot more Tommy Tune than I am Wolverine.
+ - Breakfast is my specialty. I admit it’s the easiest meal to cook, but I make everything with a twist, like lemon ricotta pancakes or bacon that’s baked instead of fried.
+ - The last 10 years I have had to bulk up for roles and I’m naturally skinny, so I have eaten and killed so many chickens! I wouldn’t even want to count. I need to balance that out.
+ - But in another world, another life, probably growing up in another country, I might have been more of a dancer.
+ - I tended to favour the piano over the guitar because it stays in one place, which is what I like to do.
+ - Americans are the most generous country on the planet. I’ve worked in Europe, I’ve worked in Australia. There is no where else where you get absolutely no attitude for being a foreigner. If you do your job well, they embrace you.
+ - I’m always very nervous about the word ‘dancer’ next to my name because anyone who’s really trained in dance will go, ‘This guy’s fudging so badly.’
+ - Actually, I graduated from university as a journalist.
+ - The hunger will give you everything and it will take from you, everything. It will cost you your life, and there isn’t a damn thing you can do about it. But knowing this, of course, is what ultimately sets you free.
+ - And I think that, of course, there is some dysfunction of needing to be liked or noticed or to feel part of things, something going on there for most actors. For some there’s not and I think they really struggle with it.
+ - As you get older you have more respect and empathy for your parents. Now I have a great relationship with both of them.
+ - I meditated before I hosted the Oscars, I meditate before I go on stage, I meditate in the morning and lunchtime when I’m on a film set.
+ - One thing that I love about World Vision is every place they go, they go in with an exit plan, they don’t want people dependent on them.
+ - Becoming a father, I think it inevitably changes your perspective of life. I don’t get nearly enough sleep. And the simplest things in life are completely satisfying. I find you don’t have to do as much, like you don’t go on as many outings.
+ - At the end of drama school, I made a contract with myself: I’d try acting for five years. I was 26. I had already spent eight years working in restaurants and gas stations. So I had seen enough small businesses to understand that that’s what acting is: a small business.
+ - If I’m a lush at anything, it’s food and drink. I’m not materialistic in any way, but I value food.
+ - I remember at one point being in fellowship, and everyone used to wear the fish symbol; it said you were a Christian. So I asked my father, ‘Dad, why don’t you wear that at work?’ And he said, ‘Your religion should be in your actions.’ He set a great, great example.
+ - I come from the theater, so for me rehearsal is vital and a way of life. There are many film directors who don’t believe in it and some actors who prefer not to rehearse.
+ - Meditation has changed my life.
+ - I’m quite an independent person, and I had to be. As a boy and growing into a young man I had to look out for myself. And now I’m very family-oriented. It’s a big priority in my life.
+ - Instead of setting goals, seek defining moments. Those are the real tests, because you have to be willing to fail in a pressure situation in front of other people.
+ - Look, my philosophy in life is expect nothing and everything is a bonus.
+ - You have to eat before you train. Otherwise, that really intense training, after about 40 minutes you start to flag.
+ - You can’t tackle climate change until you tackle poverty.
+ - I lived with a coffee farmer called Dukale on a trip I made with World Vision to Ethiopia, and realised there’s no good reason for the disparity in opportunity around the world.
+ - As a boy, I’d always had an interest in theater. But the idea at my school was that drama and music were to round out the man. It wasn’t what one did for a living. I got over that.
+ - I got hooked on espresso when I visited Italy at 18, but these days I prefer a ‘flat white.’ It’s like a small latte with less milk – they’re popular in Australia.
+ - To make films like ‘X-Men’ work commercially – and also have some class – is one of the hardest things there is to do. I want to be seen to be able to cross lots of genres and still be ‘fair dinkum,’ as we say in Australia, which means genuine and true and, well, unique.
+ - One thing I do personally started 20 years ago. I started meditating, and I know twice a day I can kind of let everything drop. It’s just about being quiet, like drawing back the day, and it allows me to have energy.
+ - What I respect as far as in myself and in others is the spirit of just doing it. For better or worse, it may work and it may not, but I’m going to go for it. Ultimately I probably prefer to be respected for that than whether it works out or not, either winning or losing.
+ - If I meet someone at a bus stop, I want to really meet that person. I don’t want to be ‘Hugh Jackman, the famous actor.’
+ - I always felt love from both my parents.
+ - I tried making an album six years ago. It was just horrific. Trust me, it’s smashed into smithereens. I paid big money to silence that one.
+ - If I go to a party I don’t feel like I have to be in the centre. But I do find myself quite often being placed in that position. Even when I was younger at school, I would be asked to make a speech. I don’t remember putting up my hand and all that often but I’d just find myself there.
+ - The activity of being a husband, a father – those are roles, too, but underneath them is the spiritual center that connects us all, and that’s what’s most important.
+ - When you’re NAT on the net, you’re NOT on the net.
+ - When your dreams becoming reality, they’re no longer your dreams.
+ - If I weren’t getting paid or didn’t have a character like Wolverine to maintain, I would just be a tall, lean, fit guy.
+ - Acting is something I love. It’s a great craft that I have a lot of respect for. But I don’t think it’s any greater challenge than teaching 8-year-olds or any other career. In my life, I try not to make it more important than it is and I just hope that rubs off on the people around me.
+ - It’s always interesting – how do you actually convey thought through song? We’re used to the convention on stage. In film, we used to be used to it, and now sometimes it works and sometimes it doesn’t. You need to be fresh and really look at the material.
+ - I’ve broken a cardinal rule of art, music, and career paths: actors are supposed to act, and musicians are supposed to music. That’s how it works. You don’t buy fish from a dentist, or ask a plumber for financial advice, so why listen to an actor’s music?
+ - I’ve dreamt of being in a movie musical for a long time. For some reason I never even thought ‘Les Mis’ would be possible.
+ - I have a terrific marriage, but unlike a lot of relationships where they ebb and flow, no matter what happens you fall deeper and deeper in love every day. It’s kind of the best thing that can happen to you. It’s thrilling.
+ - But anyone who’s done a musical knows; whether you’re dancing or not, physically it’s the most difficult thing you can do.
+ - I always think the great parts outlive the actors that play them and that’s a stage tradition, that goes back hundreds of years and it should be that way.
+ - I’ve always felt embraced by the Broadway community even before I felt like I earned it.
+ - When lifting, I’m always with a trainer because the thing that makes a difference is that last 20% in your training, and he very scientifically looks after my food as well, because when I’m going for a ‘shirt off’ shot, everything changes the month before, and I’m timed down to the day.
+ - I would love to have a robot at home.
+ - For me that’s one of the great indulgences in life – a hand-tailored suit, and a great pair of handmade shoes.
+ - I can’t stand the sound of fingernails on a chalkboard!
+ - It dawned on me that acting was what I wanted to do with my life. Nothing had ever touched my heart like acting did.
+ - I think I may have been the only person to be rewarded charitably and get a tax deduction for swearing on film!
+ - My mum and I are, in many ways, quite similar. We’re both creative, gregarious, and energetic.
+ - In terms of theater, there’s not a more supportive theater community than in New York. It’s really kind of a real thrill to go there. I mean, don’t forget, I’m a boy from the suburbs of Sydney, so getting to New York is a huge, huge thrill.
+ - I think one of the things I always loved about the comics was this idea that this character, when he goes berserk, that white, blind rage makes him incredibly powerful, but it’s also a great flaw. It’s almost like he loses consciousness of what he’s doing. During that he can do great damage.
+ - I was brought up in a way that when you’re at a dinner party, you don’t grab a chip unless it’s been offered to everyone else. It’s the manners of being brought up by English parents.
+ - By nature I’m not a brooder.
+ - I know I’m not known as method. By nature I’m not a brooder. What I continue to use is a mixture of the English school, which is traditionally outside-in, and the more American way of working from the inside out.
+ - One of things I’d love to do one day is a Shakespeare with Trevor Nunn. I’ve done musicals with him, but never Shakespeare. There’s no one better.
+ - At which point should we let go and do what we want to do, and when should we submit to rules? Coming to terms with our true natures and who we really are has always been a fascination to humans. I know it fascinates me.
+ - Historically, much of the motivation for public schooling has been to stifle variety and institute social control.
+ - I just find the evangelical church too, well, restrictive. But the School of Practical Philosophy is nonconfrontational. We believe there are many forms of Scripture. What is true is true and will never change, whether it’s in the Bible or in Shakespeare. It’s about oneness.
+ - I’ve never been on a film when an entire cast signs up for the entire time.
+ - The physical reality is assumed to be the wave function of the whole universe itself.
+ - It’s absolutely physically demanding to play the role of Wolverine. There’s a lot of action, and I try to do as much of it as I can because it’s better for the audience.
+ - I’m lucky to have worked in theater all over the world, but there’s something magical about Broadway. The audiences are smart, they’re educated. They go in ready and they’re up for it, they’re up for the party. It’s a whole different atmosphere.
+ - I treat auditions like I treated my first dates. It’s an opportunity to get to know a stranger and to learn from each other.
+ - It’s tough to watch a movie you’re in – you put everything into it, you want everything to work, and you never know until you see it all together.
+ - I was probably more scared of my high school exams than I was of the Oscars. At the time you think it’s everything and if you don’t do well, your life’s over. Opportunities are gone. So the more you do it, the less the fear is present.
+ - I don’t think many actors are the best judge of careers. I think generally we have good instincts about what we can do in terms of acting. And often they become directors, which I don’t want to be.
+ - I have lots of older siblings, and as they started to leave the house, I went from cooking once a week to twice, three times, and so on. After a while, it was just like making the bed.
+ - I’m quite a competitive person, so I do quite like to win.
+ - I never wanted to go longer than five years off the stage. Not necessarily musicals, but just doing a play or something.
+ - To me, the smell of fresh-made coffee is one of the greatest inventions.
+
+164 quotes

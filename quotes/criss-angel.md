@@ -1,0 +1,36 @@
+ - When you think like a child your imagination is free and anything is possible.
+ - Reality is perspective. All you have to do is Believe.
+ - I would love to be fooled. The innocence of child for the first time, seeing something and being in wonder is something that I long for because I’m tainted.
+ - I came up with the term ‘mindfreak’ because I didn’t like the word ‘magician.’ I felt like I wanted to coin a term that would be basically the reaction to my art. It would be a mindfreak and so that’s why I came up with that. But, many people say I’m really a student of humanity and psychology.
+ - I am the Mindfreak, there’s no Reality! Just this World of Illusion that keeps on haunting me...
+ - Life is but a series of memories you make.
+ - Pain can be a beautiful thing.
+ - Magic speaks to the child in all of us. No matter how sophisticated we become, there’s still a part of us who wants to believe in an alternative reality, where we can defy the laws of nature.
+ - When my father died in my arms it had such a profound affect on me that at that very moment when my dad passed I realized that I needed to face my own fears.
+ - You can’t please everyone, and trying to is the kiss of death. I don’t care about Wayne Newton’s demographics. When I do, I’ll know that it’s time to quit.
+ - Well I have you know, several CD’s out; one of my best friends is Sully Erna from Godsmack – he is Godsmack, and we’re going to be working on an album together.
+ - To me, it’s never about the trick. I don’t care about how something works. I care about how people feel when they watch it. You know, that – that connection – that emotional connection is true magic.
+ - I have mentally overcome situations most of you would be terrified to ever attempt: heights, fire, needles, spiders, snakes, angry monkeys, being shot, being hit by a car, going blind – you name it, I have been in a situation where I have had to mentally overcome my inherent fears to do my job.
+ - Indeed, most magicians catch the bug as kids. My first audience was my family in Long Island. My first ‘assistant’ was my mother, whom I levitated on a broom in our living room.
+ - Well, I had an immense respect for Cirque du Soleil when I first say them in the ’80s on a television show and just thought, you know, this group is really reinventing the circus, as you know. Because there wasn’t three rings. There were no animals.
+ - I want to ride my motorcycle up the side of the Luxor to the light and vanish.
+ - I love develop as an artist, to push my envelope, to grow, to make mistakes, to learn from them and to try and be the very best that I can be while I’m on this earth.
+ - I wasn’t a smart kid and I still don’t think I’m too smart when it comes to book smart, but I was very good with what I knew and with my craft and I think that was my calling in life. But even today I never went to college.
+ - I’m actually tougher on myself as I get older. It’s a vicious cycle. The things that are important in life are the things that you can’t buy in life: love, health and happiness. I say that, and I believe that, and I try to live that.
+ - If people are fans of ‘Mindfreak,’ they are going to be so excited with ‘Believe.’ They are actually going to see those illusions that people think can only happen with trick photography.
+ - You can’t please everyone and trying to do so is the kiss of death.
+ - One of my inspirations, Harry Houdini, remains an icon of the art because he defied our primal fears. His demonstrations in the early 20th century, especially his escape from the Chinese water torture cell, represented triumph over suffocation, drowning, disorientation and helplessness.
+ - I wish what I do was all real. Some of it’s real, some of it’s an illusion and I try to blur the line between both, but unfortunately I’ve got to be honest with you. Taking a $1 bill and turning it into a $100 – unfortunately it’s not real.
+ - No one has the ability, that I’m aware of, to do anything supernatural, psychic, talk to the dead.
+ - We are thrilled to work with Fun and share the same sentiment that we want do some really exciting and innovative things for the magic community.
+ - I had an amazing childhood, lots of love. But my dad worked his tail off, getting up at 4 in the morning and going off at 5, 6 o’clock, yet he always had time to spend with his kids and his wife.
+ - Well to be perfectly frank with you I never created art or have done demonstrations for anyone before myself artistically. I always do it to try to push my own envelope to be the best I can be.
+ - I love the press; I even like the people that don’t like me. If it wasn’t for those people, no one would know who I was and I wouldn’t have a gig.
+ - I have real TV studios. If I have an idea, I can go shoot it. I can experiment. If I choose to air it or not, it’s at my discretion. I don’t have to do it to somebody else’s time frame.
+ - The American Public is who I’m interested in. Ultimately, if they think I’m good and they think I’m entertaining that’s all that matters.
+ - Sometimes my art is just an illusion – or is it?
+ - A lot of the demonstrations that I do, when I get inside peoples minds, is understanding human behavior and understanding how people think and getting their patterns down so I know how to create the illusion that I get inside their brain.
+ - I’m able to do my television projects and movie projects that I really want to explore. For me, it’s not about the money, it’s not about the fame. I love creating.
+ - The first time I thought about attempting a body suspension was after watching a documentary on rites-of-passage ceremonies from other cultures. I was completely intrigued by what these people put their bodies through.
+
+34 quotes

@@ -1,0 +1,50 @@
+ - Pray for great things, expect great things, work for great things, but above all pray.
+ - The chief purpose of prayer is that God may be glorified in the answer.
+ - The truly wise man is he who believes the Bible against the opinions of any man. If the Bible says one thing, and any body of men says another, the wise man will decide, “This book is the Word of him who cannot lie”.
+ - When the devil sees a man or woman who really believes in prayer, who knows how to pray, and who really does pray, and, above all, when he sees a whole church on its face before God in prayer, he trembles as much as he ever did, for he knows that his day in that church or community is at an end.
+ - If we then let the words of Christ abide in us, they will stir us up in prayer.
+ - The truly wise man is he who always believes the Bible against the opinions of any man.
+ - The one who is truly born again will love the Word of God.
+ - God’s Word is pure and sure, in spite of the devil, in spite of your fear, in spite of everything.
+ - If loving God with all our heart and soul and might is the greatest commandment, then it follows that not loving Him that way is the greatest sin.
+ - Prayer can do anything that God can do.
+ - We must know the power of the Blood if we are to know the power of God. Our knowing experimentally the power of the Word, the power of the Holy Spirit, and the power of prayer is dependent upon our knowing the power of the Blood of Christ.
+ - When the perceptive child of God stops to weigh the meaning of these words, then notes the connection in which they are found, he or she is driven to say, I must pray, pray, pray. I must put all my energy and heart into prayer. Whatever else I do, I must pray.
+ - Oh, men and women, pray through; pray through! Do not just begin to pray and pray a little while and throw up your hands and quit; but pray and pray and pray until God bends the heavens and comes down.
+ - I would rather go to heaven alone than go to hell in company.
+ - Do not study commentaries, lesson helps or other books about the Bible: study the Bible itself. Do not study about the Bible, study the Bible. The Bible is the Word of God, and only the Bible is the Word of God.
+ - We are too busy to pray, and so we are too busy to have power.
+ - God has not changed; and His ear is just as quick to hear the voice of real prayer, and His hand is just as long and strong to save; as it ever was.
+ - To win men to acceptance of Jesus Christ as Saviour and Lord is the only reason Christians are left in this world.
+ - Those persons who know the deep peace of God, the unfathomable peace that passeth all understanding, are always men and women of much prayer.
+ - Ninety-nine Christians in every hundred are merely playing at Bible study; and therefore ninety-nine Christians in every hundred are mere weaklings, when they might be giants, both in their Christian life and in their service.
+ - I am ready to meet God face to face tonight and look into those eyes of infinite holiness, for all my sins are covered by the atoning blood.
+ - We are too busy to pray, and so we are too busy to have power. We have a great deal of activity, but we accomplish little; many services but few conversions; much machinery but few results.
+ - Prayer that is born of meditation upon the Word of God is the prayer that soars upward most easily to God’s listening ears.
+ - I prayed fifteen years for the conversion of my oldest brother. When he seemed to be getting further and further away from any hope of conversion, I prayed on.
+ - There must be, in any complete revelation of God’s mind and will and character and being, things hard for the beginner to understand; and the wisest and best of us are but beginners.
+ - Triumphant prayer is almost impossible where there is neglect of the study of the Word of God.
+ - The man or woman at home who prays often has as much to do with the effectiveness of the missionary on the field, and consequently with the results of his or her labors, as the missionary.
+ - The failure to return thanks for definite blessings received is a manifestation of ingratitude that grieves Jesus Christ.
+ - Any church may have a mighty man of God for its pastor, if it is willing to pay the price, and that price is not a big salary, but great praying.
+ - Before one can correctly understand the work of the Holy Spirit, he must first of all know the Spirit himself. A frequent source of error and fanaticism about the work of the Holy Spirit is the attempt to study and understand His work without, first of all, coming to know Him as a person.
+ - We are not saved by denying self, or taking up our cross, or doing anything else, we are saved by simply believing in Jesus.
+ - Prayer will promote our personal holiness as nothing else, except the study of the Word of God.
+ - If you make a great deal of Christ, He will make a great deal of you; but if you make but a little of Christ, Christ will make but a little of you.
+ - Worship is adoring contemplation of God.
+ - To have as one’s ever-present friend, and to be conscious that one has as his ever-present friend, the Holy Spirit and to surrender one’s life in all it’s departments entirely to His control – this is true Christian living.
+ - There are two ways of reaching the people. One way is to invite them to come to you, the other way is to go to them.
+ - If you in any way abate the doctrine of hell, it will abate your zeal.
+ - We must always bear in mind that the primary purpose of our work, is not to get persons to join the church or to give up their bad habits or to do anything else than this, to accept Jesus Christ, as their Saviour.
+ - The life of entire surrender is a joyous life all along the way.
+ - Every Christian who does not study, really study, the Bible every day is a fool.
+ - All that God is, and all that God has, is at the disposal of prayer. Prayer can do anything that God can do, and as God can do everything, prayer is omnipotent.
+ - Just as one gets the firstfruits of spiritual salvation in the life that now is, so we get the firstfruits of our physical salvation in the life that now is.
+ - It is of the highest importance from the standpoint of experience that we know the Holy Spirit as a person.
+ - Those who truly believe on Jesus Christ are saved from all fear.
+ - The Spirit, when He prays through us, or helps us to meet the mighty “ougthness” of right praying, trims our praying down to the will of God...
+ - Wealth, honors, pleasures, is not so eagerly to be desired as the forgiveness of our sins.
+ - Many who read their Bibles make the great mistake of confining all their reading to certain portions of the Bible which they enjoy. In this way they get no knowledge of the Bible as a whole. They miss altogether many of the most important phases of Bible truth.
+ - Tell me your doctrine of the Fall and I will tell you the state of your theology.
+
+48 quotes

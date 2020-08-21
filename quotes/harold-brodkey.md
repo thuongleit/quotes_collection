@@ -1,0 +1,31 @@
+ - You really can’t write unless you read. You have to know what the game is all about.
+ - God is an immensity, while this disease, this death, which is in me, this small, tightly defined pedestrian event, is merely and perfectly real, without miracle – or instruction.
+ - Nothing I have ever written has been admired as much as the announcement of my death.
+ - My protagonists are my mother’s voice and the mind I had when I was thirteen.
+ - In our opposed forms of loneliness and self-recognition and recognition of the other, we touched each other often as we spoke; and on shore in explorations of the past, we strolled with our arms linked...
+ - I have thousands of opinions still – but that is down from millions – and, as always, I know nothing.
+ - I have the sense that if I push too hard or too far into memory I’ll come apart.
+ - Being ill like this combines shock – this time I will die – with a pain and agony that are unfamiliar, that wrench me out of myself.
+ - I can’t change the past, and I don’t think I would. I don’t expect to be understood. I like what I’ve written, the stories and two novels. If I had to give up what I’ve written in order to be clear of this disease, I wouldn’t do it.
+ - In New York one lives in the moment rather more than Socrates advised, so that at a party or alone in your room it will always be difficult to guess at the long term worth of anything.
+ - The disparity between what people said life was and what I knew it to be unnerved me at times, but I swore that nothing would ever make me say life should be anything...
+ - I am startled when people are themselves and are not my thoughts of them.
+ - It bothers me that I won’t live to see the end of the century, because, when I was young, in St. Louis, I remember saying to Marilyn, my sister by adoption, that that was how long I wanted to live: seventy years.
+ - True stories, autobiographical stories, like some novels, begin long ago, before the acts in the account, before the birth of some of the people in the tale.
+ - It is death that goes down to the center of the earth, the great burial church the earth is, and then to the curved ends of the universe, as light is said to do.
+ - I am in an adolescence in reverse, as mysterious as the first, except that this time I feel it as a decay of the odds that I might live for a while, that I can sleep it off.
+ - I’m sixty-two, and it’s ecological sense to die while you’re still productive, die and clear a space for others, old and young.
+ - Death and I are head to head in a total collision, pure and mutual distaste.
+ - I was always crazy about New York, dependent on it, scared of it – well, it is dangerous – but beyond that there was the pressure of being young and of not yet having done work you really liked, trademark work, breakthrough work.
+ - I awake with a not entirely sickened knowledge that I am merely young again and in a funny way at peace, an observer who is aware of time’s chariot, aware that some metamorphosis has occurred.
+ - Death is not soft-mouthed, vague-footed, nearby. It is in the hall.
+ - Me, my literary reputation is mostly abroad, but I am anchored here in New York. I can’t think of any other place I’d rather die than here.
+ - But death’s acquisitive instincts will win.
+ - Public radio is alive and kicking, it always has been.
+ - Often writing is like a struggle to get back to a kind of belated, quite impure virginity.
+ - Athletes have studied how to leap and how to survive the leap some of the time and return to the ground. They don’t always do it well. But they are our philosophers of actual moments and the body and soul in them, and of our maneuvers in our emergencies and longings.
+ - Memory, so complete and clear or so evasive, has to be ended, has to be put aside, as if one were leaving a chapel and bringing the prayer to an end in one’s head.
+ - Almost the first thing I did when I became ill was to buy a truly good television set.
+ - It is like visiting one’s funeral, like visiting loss in its purest and most monumental form, this wild darkness, which is not only unknown but which one cannot enter as oneself.
+
+29 quotes

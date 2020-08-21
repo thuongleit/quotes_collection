@@ -1,0 +1,29 @@
+ - The opportunity for an entrepreneur to start a company from scratch today is abysmal.
+ - I am truly my mother’s son.
+ - My mother taught me to love my work. I learned everything about business from her.
+ - Everybody in politics lies.
+ - Anybody who thinks money will make you happy, hasn’t got money.
+ - I’d rather kill myself than work in the music industry today.
+ - Move to California. Malibu is paradise.
+ - In Hollywood people lie to each other and cheat each other and then go and play tennis. But I don’t want to be a tennis player.
+ - I’m not Sammy Glick. I’ve never killed anyone. I don’t have to. I’m too talented.
+ - I have no talent except for being able to enjoy and recognize it in others.
+ - HIV infection and AIDS is growing – but so too is public apathy. We have already lost too many friends and colleagues.
+ - I’m Billy the Kid, the fastest draw. It’s not arrogance. It’s the truth.
+ - Everybody in politics lies, but they do it with such ease, it’s troubling.
+ - I would say that Bob Dylan is as interested in money as any person I’ve known in my life. That’s just the truth.
+ - I just needed a job. Before being hired as an usher at the CBS Theater, I didn’t even know there was a show business.
+ - I believe we’re all in denial about the people we love.
+ - I never went to business school. I was just bumbling through a lot of my life. I was like the guy behind the curtain in The Wizard of Oz.
+ - In Los Angeles, they don’t want you to fail, they want you to die.
+ - Your life isn’t made up of people who aren’t in it.
+ - It’s easy in music to tell what’s good. It’s hard to tell what’s bad.
+ - I intend to be me. Whatever that is.
+ - Steven Spielberg and I have tremendous amounts of money.
+ - I thought I’d be a success even back in the mailroom at William Morris.
+ - It’s very easy for me to thank everyone for the incredible contribution they’ve made to my life.
+ - To be able to live and work in the United States is a privilege.
+ - You have an idea of the way you think it is, and it’s not that way at all, it’s something else.
+ - Broke is a Hollywood term!
+
+27 quotes

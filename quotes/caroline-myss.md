@@ -1,0 +1,134 @@
+ - Just let go. Let go of how you thought your life should be, and embrace the life that is trying to work its way into your consciousness.
+ - Always go with the choice that scares you the most, because that’s the one that is going to require the most from you. Do you really want to look back on your life and see how wonderful it could have been had you not been afraid to live it?
+ - To love yourself, truly love yourself, is to finally discover the essence of personal courage, self-respect, integrity, and self-esteem. These are the qualities of grace that come directly from a soul with stamina.
+ - The soul always knows what to do to heal itself. The challenge is to silence the mind.
+ - Live one day at a time. Keep your attention in present time. Have no expectations. Make no judgements. And give up the need to know why things happen as they do. Give it up!
+ - Keep the focus of your life in the here and now.
+ - Intention without action is useless.
+ - Never blame another person for your personal choices – you are still the one who must live out the consequences of your choices.
+ - The dark night of the soul is a journey into light, a journey from your darkness into the strength and hidden resources of your soul.
+ - Self-love means caring for ourselves enough to forgive people in our past so that the wounds can no longer damage us – for our wounds do not hurt the people who hurt us, they hurt only us.
+ - The act of forgiveness is the act of returning to present time. And that’s why when one has become a forgiving person, and has managed to let go of the past, what they’ve really done is they’ve shifted their relationship with time.
+ - Fate is how your life unfolds when you let fear determine your choices. A path of destiny reveals itself to you, however, when you confront your fear and make conscious choices.
+ - Your body is your own planet Earth.
+ - When you do not seek or need approval, you are at your most powerful.
+ - Perfectionism is the fear of being criticized.
+ - The moment you come to trust chaos, you see God clearly. Chaos is divine order, versus human order. Change is divine order, versus human order. When the chaos becomes safety to you, then you know you’re seeing God clearly.
+ - People suffer when they pursue a life or chase a dream that doesn’t belong to them.
+ - Your biography becomes your biology. This biography includes the totality of your choices, the things you feed your body – you thoughts, your actions, your food – the thing you feed your life.
+ - If you have life, you have purpose.
+ - Silence is a learned practice that requires far more than just not talking. Not talking is not silence; it’s just not talking.
+ - The spirit for me is the eternal self. And when one incarnates, an aspect comes with that incarnation, that’s called the soul. And together the mind, the emotional body, and the soul form the energy field that lives within this thing called the human body.
+ - It’s easy to get lost in endless speculation. So today, release the need to know why things happen as they do. Instead, ask for the insight to recognize what you’re meant to learn.
+ - Choice is your greatest power. It is an even greater power than love, because you must first choose to be a loving person.
+ - Faith is the power to stand up to the madness and chaos of the physical world, while holding the position that nothing external has any authority over what heaven has in mind for you.
+ - We evolve at the rate of the tribe we are plugged into.
+ - Grant me the grace to dissolve my negative thoughts about myself today. I breathe the grace of kindness into my heart. And may the grace of healing flow abundantly to every one in need of help.
+ - Get bored with your past, it’s over!
+ - I would remind people that this day of your life will never come again. Do not use one day of your life carelessly. It will never come again. You’ll never see the person you’re sitting across from in that light or in that way. You will never see the sunset twice. This day will never come again.
+ - Managing the power of choice, with all it’s creative and spiritual implications, is the essence of the human experience.
+ - Forgive and call back the energy wasted on past events.
+ - Healing is a different type of pain. It’s the pain of becoming aware of the power of one’s strength and weakness, of one’s capacity to love or do damage to oneself and to others, and of how the most challenging person to control in life is ultimately yourself.
+ - Our lives change externally as we change internally.
+ - To heal illness, begin by restoring balance.
+ - What drains your spirit drains your body. What fuels your spirit fuels your body.
+ - Every life has a purpose. We need to let go of the past. Live in the present. Do not waste today worrying about what will happen tomorrow. Embrace your true spirit, embrace and listen to grace and you be transformed in the moment. Do not fixate on what you want but give thanks for what you have.
+ - It is our nature to defy gravity, to transcend the limitations of the reasoning mind and connect with the realm of the mystical truth.
+ - The more conscious we become the more consciously we choose that which we set in motion to create.
+ - Power is at the root of the human experience. Our attitudes and beliefs – positive or negative – are all extensions of how we define and use power.
+ - Seeing and admitting the truth about ourselves, about our role in creating our own problems, and about how we relate to others is vital for healing.
+ - Let me give up the need to know why things happen as they do. I will never know and constant wondering is constant suffering.
+ - People around the world are confusing the therapeutic value of self-expression with permission to manipulate others with their wounds.
+ - We have converted our wounds into a type of relationship currency that we use in order to control situations and people.
+ - Healing is, by definition, taking a process of disintegration of life and transforming into a process of return to life.
+ - Forgiveness is a mystical act, not a reasonable one.
+ - Keep your honor code between you and God, you don’t break that, no matter who’s not looking. God is.
+ - While we measure our own success in terms of our personal comfort and security, the universe measures our success by how much we have learned.
+ - You cannot change anything in your life with intention alone, which can become a watered-down, occasional hope that you’ll get to tomorrow. Intention without action is useless.
+ - It is not what we choose that is important; it is the reason we choose it.
+ - If you don’t appreciate what you have in life right now, whatever it is, you will never realize your purpose. Without appreciation, you will never become strong enough to respect yourself.
+ - Being of service is not an option, it is a biological necessity. Every kind of action we do for someone is a reanimation of our own life force – and of the other person’s.
+ - Whatever is in me is stronger than what is out there to defeat me.
+ - The empowerment journey that is critical to your healing – and to your life – comes from progressing through the deep waters of your dark passions and continuing onward to discover not what has been taken from you, but what you have yet to give and who you have yet to become.
+ - Between thinking and seeing, there is a place called knowing.
+ - Forgiveness is no longer an option but a necessity for healing.
+ - Knowing that every single day is so filled with potential – you cannot wait for life to give you anything. You have no right to feel entitled. You are not entitled to anything.
+ - Becoming internally empowered shifts a person’s center of gravity from external to internal- a mark of spiritual passage.
+ - A soulmate is the person who makes your sould grow the most.
+ - Wounds are the means through which we enter the hearts of other people. They are meant to teach us to become compassionate and wise.
+ - Through the years of my life, the older I’ve gotten, the more sensitive I’ve become to the suffering of people and to my inability to really fix that. I wish that proportion was different. I wish I could help more. Unfortunately, that’s not how the equation is working out here.
+ - You will always receive help within a second of a prayer. To recognize the help, you must see everything in your life from that second on as a part of the answer to your prayer.
+ - From a spiritual perspective every relationship we develop, from the most casual to the most intimate, serves the purpose of helping us to become more conscious.
+ - A breakthrough occurs when you recognize, you are more energy than matter.
+ - Life was never meant to be safe. It was meant to be lived right to the end.
+ - We are actually more afraid of change than we are of death.
+ - The reason you have descended into physical life is to unleash the power of your soul upon Earth.
+ - Healing requires taking action-it is not a passive event.
+ - I do a lot of reflection. I do. I spend a lot of time in reflection and contemplation. I guess the way the old mystics used to do. I don’t do meditation. That’s not for me. It’s not my thing.
+ - So long as we use comfort and security as our criteria of success, we will fear our own intuitive guidance because by its very nature it directs us into new cycles of learning that are sometimes uncomfortable.
+ - We are also very presumptuous to negate the possibility that an illness may be a gift. It’s a neutral experience is what I’m trying to say. It should be viewed in some regard as no different than any other experience.
+ - Be consistent and live what you believe.
+ - By far the strongest poison to the human spirit is the inability to forgive oneself or another person. Forgiveness is no longer an option but a necessity for healing.
+ - Faith in anything, be it positive or negative, produces results. Putting faith in fear generates destructive results, beginning with the disintegration of our ability to relate confidently to the external world.
+ - Grace is a power that comes in and transforms a moment into something better.
+ - Every choice we make contains the energy of either faith or fear, and the outcome of every decision reflects to some extent that faith or fear. This dynamic of choice guarantees that we cannot run away from ourselves or our decisions.
+ - Act on your inner guidance, and give up your need for ‘proof’ that your inner guidance is authentic. The more you ask for proof, the less likely you are to receive any.
+ - You don’t need a wishbone, you need a backbone.
+ - How would your life change if your self-esteem improved?
+ - Intuition is natural by-product of flowering of a mature self-esteem and a sense of empowerment – not power over, but power to be.
+ - I think the idea that women have all this wonderful emotion is a myth, as well as the fact that men do not. I mean, people are people. What is happening across the board is that the recognition that emotions, and the spirit and soul play a fundamental part in the art of healing.
+ - I have to trust that there is a force greater than me that also knows and sees this, and breathes with it and knows that it’s part of a grander plan, and all the good things people do matter.
+ - If anyone tries to complicate your life, turn and walk away from them.
+ - I love myself enough-not in a schmaltzy garbage sense, Hallmark stuff, I’m talking respect myself-I respect my life-force enough to no longer waste it.
+ - You have resources yet to be unleashed. Make bold, courageous choices. Live as though you have the power to change the world – because you do.
+ - Spiritual maturity is measured not by the sophistication of a person’s opinions, but by their genuineness and the courage necessary to express and maintain them.
+ - Spiritual connection does not mean romance.
+ - Follow your pain as if it were a candle in the night, leading you to a place of decision.
+ - Forgiveness, quite frankly, is the most selfish thing you can do. Because it is the greatest thing you can do for yourself.
+ - The greatest gift you can give another person is strength.
+ - Women most certainly carry a more sympathetic heart in the traditional, classic sense the mother archetype. They have been given the role to carry the heart energy of the human community, whereas men carry the survival energy.
+ - Therefore, when you enter into anything, as a frightened being, that contract you make with another person out of fear, has to fall apart.
+ - In general, if a couple cannot expand their original rules and boundaries to accommodate personal growth, the relationship disintegrates.
+ - I think that the practice of medicine, the science of it, has become 50% pharmacological, so that doctors are like walking pharmacies.
+ - Master your responses to external events – don’t attempt to control them.
+ - Become mindful that remaining in a conflict is a choice.
+ - Spirituality on the other hand, is a chosen path of developing intimate relationships with God. It’s chosen, it’s nurtured, and it’s optional.
+ - Belief in oneself is required for healing.
+ - Your biography becomes your biology.
+ - I can sense and feel this wretched compassion that I don’t want. But it’s there. It’s a very painful kind of compassion. It’s not one you look for. You don’t want this kind of compassion; it just happens.
+ - Guidance requires action, but it does not guarantee safety.
+ - I have come to believe that energy medicine is a practice of healing that is dependent upon the energy of time. Whereas allopathic medicine uses linear time as a fundamental healing measure. Energy medicine needs to understand the dynamic of chiros time, that is the time without time.
+ - Our goal while on this earth is to transcend our illusions and discover the innate power of our spirit. We are responsible for what we create, and we must therefore learn to act and think with love and wisdom and live in service to others and all life.
+ - The women with high social pressure seem to be amongst the strongest carriers of the possibility of breast cancer.
+ - Dominant energy patterns that are contributing to the stress in a human being, are able to be picked up, if a person is open enough. And for me, as a medical intuitive, that’s where I focus my attention. That’s what the skill is all about.
+ - The amount of suffering you actually can feel, you want to be able to do something about it. You want to be able to attend to it, to change the system that is making this happen. Because you are so aware of how unnecessary it is, and therein lies the deeper pain.
+ - It doesn’t matter what you choose, what matters is the energy with which you choose it.
+ - Developing personal power includes learning not to negotiate your self-worth for the sake of someone else or sell yourself short for a job.
+ - Becoming adept at the process of self inquiry and symbolic insight is a vital spiritual task that leads to the growth of faith in oneself.
+ - The journey of consciousness, of mysticism, is to come to know yourself and your own motivations.
+ - The goal of the human experience is to transform ourselves from being who long to attain power in the physical world to beings who are empowered from within.
+ - It is your birthright to discover your sacred contract. It will guide you to find your divine destiny.
+ - Imagine what a focused human being could do in a day to make a difference in this world.
+ - Finding the right healing path requires all or nothing. Once you place conditions on healing, all you can achieve is conditional healing.
+ - Human reasoning can never answer the mysteries of our lives.
+ - The common ingredient in every single dysfunction is an issue of power.
+ - Practice the healing power of the compassionate mind.
+ - We are reluctant to live outside tribal rules because we are afraid of getting kicked out of the tribe.
+ - The spiritual test inherent in all our lives is the challenge to discover what motivates us to make the choices we do, and whether we have faith in our fears or the Divine...
+ - For me the information has to remain incredibly neutral. It’s what I would call ‘ice-like’ information. I receive very rapid impressions. I don’t have to sit there and concentrate. Because, if I start to really focus, my conscious mind begins to apply data, which is not accurate.
+ - I have yet to meet a person who has not felt betrayed.
+ - I grew to understand or really grasp a sense of what the power of being humble is – that becomes a practice. Otherwise you’ll be crushed by your fear of being humiliated. It’ll control you the rest of your life. I really understood that. I haven’t mastered it, I haven’t come close to it.
+ - One has a more practical survival level, that’s the mind function. The heart function obviously has an internal level that has to do with the quality of developing perceptions, feelings, the self. And the spirit level has to do with the pondering part of our lives.
+ - It’s two things: it’s totally impersonal and it’s totally personal, simultaneously. That’s the nature of the mystical experience of life. Everything about life is impersonal, but you have a personal experience. And the bridge between the personal and the impersonal is called prayer.
+ - You never really know how or when your life is going to change, and that’s for the best.
+ - I don’t want to ever, ever give that kind of pain to one living mortal. And I will not give that thought power in my life. That’s my practice.
+ - There isn’t anything in your life that cannot be changed.
+ - The strings to our past are burned because we need a new beginning.
+ - For me, all of the data that is contained in your cell memory, and in your energetic field, is able to be picked up.
+ - When you approach intuitive methods with respect, you become open to hearing from your interior channels.
+ - How can you live without knowing what your spirit is doing and what your spirit is saying to you?
+ - That which serves our spirits enhances our bodies. That which diminishes our spirits diminishes our bodies.
+ - You change the rules or you are going under.
+ - I think every part of our lives begins at an energetic level. Like creativity. You can’t separate anything from that archetypal process.
+
+132 quotes

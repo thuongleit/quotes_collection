@@ -1,0 +1,437 @@
+ - Stay hungry. Stay foolish.
+ - The people who are crazy enough to think they can change the world are the ones who do.
+ - Think Different.
+ - Your time is limited, so don’t waste it living someone else’s life.
+ - The only way to do great work is to love what you do. If you haven’t found it yet, keep looking. Don’t settle.
+ - Focusing is about saying No.
+ - Innovation is the only way to win.
+ - The journey is the reward.
+ - Why join the navy if you can be a pirate?
+ - Don’t let the noise of others’ opinions drown out your own inner voice.
+ - Deciding what not to do is as important as deciding what to do.
+ - Let’s go invent tomorrow instead of worrying about what happened yesterday.
+ - Creativity is just connecting things.
+ - Follow your heart and your intuition. They somehow already know what you truly want to become. Everything else is secondary.
+ - Design is not just what it looks like and feels like. Design is how it works.
+ - If you live each day as it was your last, someday you'll most certainly be right.
+ - Sometimes life’s going to hit you in the head with a brick. Don’t lose faith. I’m convinced that the only thing that kept me going was that I loved what I did.
+ - Details matter, it’s worth waiting to get it right.
+ - Have the courage to follow your heart and intuition. They somehow already know what you truly want to become. Everything else is secondary.
+ - You have to be burning with an idea, or a problem, or a wrong that you want to right. If you’re not passionate enough from the start, you’ll never stick it out.
+ - A lot of times, people don’t know what they want until you show it to them.
+ - Real artists ship.
+ - Being the richest man in the cemetery doesn’t matter to me. Going to bed at night saying we’ve done something wonderful, that’s what matters to me.
+ - If you haven't found it yet, keep looking. Don't settle. As with all matters of the heart, you'll know when you find it. And, like any great relationship, it just gets better and better as the years roll on.
+ - Be a yardstick of quality. Some people aren’t used to an environment where excellence is expected.
+ - Learn continually. There’s always “one more thing” to learn.
+ - Things don’t have to change the world to be important.
+ - Innovation is not about saying yes to everything. It’s about saying no to all but the most crucial features.
+ - My job is not to be easy on people. My job is to take these great people we have and to push them and make them even better.
+ - What we are doing here is going to send a giant ripple through the universe.
+ - Again, you can’t connect the dots looking forward; you can only connect them looking backwards. So you have to trust that the dots will somehow connect in your future. You have to trust in something – your gut, destiny, life, karma, whatever. This approach has never let me down, and it has made all the difference in my life.
+ - To go forward you have to leave something behind.
+ - I have looked in the mirror every morning and asked myself: “If today were the last day of my life, would I want to do what I am about to do today?” And whenever the answer has been “No” for too many days in a row, I know I need to change something.
+ - It doesn’t make sense to hire smart people and tell them what to do; we hire smart people so they can tell us what to do.
+ - That’s been one of my mantras – focus and simplicity. Simple can be harder than complex: You have to work hard to get your thinking clean to make it simple. But it’s worth it in the end because once you get there, you can move mountains.
+ - Innovation is the ability to see change as an opportunity – not a threat.
+ - I’ve been rejected, but I am still in love.
+ - I’m convinced that about half of what separates the successful entrepreneurs from the non-successful ones is pure perseverance.
+ - If you don’t have a passion, you’ll give up.
+ - Start small, think big. Don’t worry about too many things at once. Take a handful of simple things to begin with, and then progress to more complex ones. Think about not just tomorrow, but the future. Put a ding in the universe.
+ - Have the courage to follow your heart and intuition.
+ - Each dream you leave behind is a part of your future that will no longer exist.
+ - Never settle for average.
+ - Management is about persuading people to do things they do not want to do, while leadership is about inspiring people to do things they never thought they could.
+ - You’ve got to find what you love.
+ - A brand is simply trust.
+ - The heaviness of being successful was replaced by the lightness of being a beginner again.
+ - Whatever you do, you must never let the voice in your head control the brain in your heart.
+ - Everything around you that you call life was made up by people that were no smarter than you and you can change it, you can influence it, you can build your own things that other people can use.
+ - Do your best at every job. Don’t sleep! Success generates more success so be hungry for it. Hire good people with a passion for excellence.
+ - Listen to me. We’re here to make a dent in the universe. Otherwise why even be here?
+ - We don’t settle for anything less than excellence.
+ - When you first start off trying to solve a problem, the first solutions you come up with are very complex, and most people stop there. But if you keep going, and live with the problem and peel more layers of the onion off, you can often times arrive at some very elegant and simple solutions.
+ - My favorite things in life don’t cost any money. It’s really clear that the most precious resource we all have is time.
+ - Get closer than ever to your customers. So close that you tell them what they need well before they realize it themselves.
+ - Sometimes life hits you in the head with a brick. Don’t lose faith.
+ - Everybody in this country should learn how to program a computer, because it teaches you how to think.
+ - Click. Boom. Amazing!
+ - Great art stretches the taste, it doesn’t follow tastes.
+ - You’ve got to start with the customer experience and work backwards to the technology. You can’t start with the technology and try to figure out where you’re going to sell it.
+ - Life can be much broader. You can embrace it, change it, improve it, make your mark upon it.
+ - We’re not going to be the first to this party, but we’re going to be the best.
+ - Your customers dream of a happier and better life. Don’t move products. Instead, enrich lives.
+ - Manage the top line: your strategy, your people, and your products, and the bottom line will follow.
+ - The customer is the final inspector.
+ - I hate it when people call themselves ‘entrepreneurs’ when what they’re really trying to do is launch a startup and then sell of go public, so they can cash in and move on. They’re unwilling to do the work it takes to build a real company, which is the hardest work in business.
+ - You can’t just ask customers what they want and then try to give that to them. By the time you get it built, they’ll want something new.
+ - And we’ve all chosen to do this with our lives. So it better be damn good. It better be worth it.
+ - We’re here to make a dent in the universe. Otherwise, why even be here? We’re creating a completely new consciousness, like an artist or a poet. That’s how you have to think of this. We’re rewriting the history of human thought with what we’re doing.
+ - Don’t be evil is a load of crap.
+ - In most cases, strengths and weaknesses are two sides of the same coin. A strength in one situation is a weakness in another, yet often the person can’t switch gears. It’s a very subtle thing to talk about strengths and weaknesses because almost always they’re the same thing.
+ - I would rather gamble on our vision than make a ‘me, too’ product.
+ - The most important thing is a person. A person who incites your curiosity and feeds your curiosity; and machines cannot do that in the same way that people can.
+ - I end up not buying a lot of things, because I find them ridiculous.
+ - I’m not dismissing the value of higher education; I’m simply saying it comes at the expense of experience.
+ - I think the biggest innovations of the 21st century will be at the intersection of biology and technology. A new era is beginning.
+ - Many companies forget what it means to make great products. After initial success, sales and marketing people take over and the product people eventually make their way out.
+ - One way to drive fear out of a relationship is to realize that your partner’s values are the same as yours, that what you care about is exactly what they care about. In my opinion, that drives fear out and makes for a great partnership, whether it’s a corporate partnership or a marriage.
+ - I know that living with me was not a bowl of cherries.
+ - Some people can do one thing magnificently, like Michelangelo, and others make things like semiconductors or build 747 airplanes – that type of work requires legions of people. In order to do things well, that can’t be done by one person, you must find extraordinary people.
+ - Companies must have a noble cause, and it’s the leaders job to transform that noble cause into such an inspiring vision, that it will attract the most talented people in the world to want to join it.
+ - Every once in a while, a revolutionary product comes along that changes everything.
+ - People need to have the incentive that if they invest and succeed, they can make a fair profit. Otherwise they’ll stop investing.
+ - The lunatics have taken over the asylum and we can do anything we want.
+ - The system is that there is no system. That doesn’t mean we don’t have process. Apple is a very disciplined company, and we have great processes. But that’s not what it’s about. Process makes you more efficient.
+ - You need to have a collaborative hiring process.
+ - Make it like a sunflower.
+ - Simplicity is the ultimate sophistication – Steve Jobs turned this into the slogan behind an early Mac advertising campaign. Which doesn’t make it less true.
+ - Most people have no concept of how an automatic transmission works, yet they know how to drive a car. You don’t have to study physics to understand the laws of motion to drive a car. You don’t have to understand any of this stuff to use Macintosh.
+ - My job is to make the whole executive team good enough to be successors, so that’s what I try to do.
+ - A lot of people think big business in America is a bad thing. I think it’s a really good thing. Most people in business are ethical, hard-working, good people. And it’s a meritocracy.
+ - The engineering is long gone in most PC companies. In the consumer electronics companies, they don’t understand the software parts of it. And so you really can’t make the products that you can make at Apple anywhere else right now. Apple’s the only company that has everything under one roof.
+ - When you have feelings like sadness or anger about your cancer or your plight, to mask them is to lead an artificial life.
+ - The technology companies don’t understand creative things at all. Silicon Valley’s view of the creative process in Hollywood is a bunch of guys in their young thirties sitting on a couch, drinking beer, and thinking up jokes.
+ - Taking LSD was a profound experience, one of the most important things in my life.
+ - The iPod is not a new category. Music is not new. It’s not a speculative market. It’s a very, very large market. It’s been around for thousands of years and will be around as long as humans exist.
+ - We’ve gone through the operating system and looked at everything and asked how can we simplify this and make it more powerful at the same time.
+ - No one is going to buy a big phone.
+ - Every once in a while a revolutionary product comes along that changes everything. It’s very fortunate if you can work on just one of these in your career. Apple’s been very fortunate in that it’s introduced a few of these.
+ - I buy everything from CostCo. It’s great; they’ve got everything I need.
+ - We’re not a media company. We don’t own media. We don’t own music. We don’t own films or television. We’re not a media company. We’re just Apple.
+ - Great things in business are never done by one person, they’re done by a team of people.
+ - You can’t connect the dots looking forward; you can only connect them looking backwards.
+ - If you are working on something exciting that you really care about, you don’t have to be pushed. The vision pulls you.
+ - Remembering that I’ll be dead soon is the most important tool I’ve ever encountered to help make the big choices in life. Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose.
+ - Focus does not mean saying yes, it means saying no.
+ - Don’t be afraid, you can do it.
+ - Technology alone is not enough.
+ - If you define the problem correctly, you almost have the solution.
+ - Do not try to do everything. Do one thing well.
+ - Packaging can be theater, it can create a story.
+ - Customers don’t measure you on how hard you tried, they measure you on what you deliver.
+ - You’re already naked. There is no reason not to follow your heart.
+ - Innovation distinguishes between a leader and a follower.
+ - The best way to create value in the 21st century is to connect Creativity with Technology.
+ - Intuition is a very powerful thing, more powerful than intellect.
+ - I want to put a ding in the universe.
+ - The only way to be truly satisfied is to do what you believe is great work.
+ - If you haven’t found it yet, keep looking.
+ - The most precious resource we have is time.
+ - Don’t be trapped by dogma – which is living with the results of other people’s thinking.
+ - It’s better to be a pirate than to join the navy.
+ - Life can be much broader once you discover one simple fact: Everything you call life was made up by people no smarter than you.
+ - Everything is important- that success is in the details.
+ - Overnight success stories take a long time.
+ - Quality is more important than quantity. One home run is much better than two doubles.
+ - Innovation is saying ‘no’ to 1,000 things.
+ - If a user is having a problem, it’s our problem.
+ - We believe people with passion can change the world for the better. That’s what we believe. And we believe that those people who are crazy enough to think they can change the world are the ones that actually do.
+ - Marketing is about values. It’s a complicated and noisy world, and we’re not going to get a chance to get people to remember much about us. No company is. So we have to be really clear about what we want them to know about us.
+ - The most important decisions you make are not the things you do, but the things you decide not to do.
+ - We had nothing to lose and everything to gain.
+ - Don’t just live a life; build one.
+ - You can’t look at the competition and say you’re going to do it better. You have to look at the competition and say you’re going to do it differently.
+ - In the first 30 years of your life, you make your habits. For the last 30 years of your life, your habits make you.
+ - Life is about creating and living experiences that are worth sharing.
+ - No one wants to die. Even people who want to go to heaven don’t want to die to get there.
+ - If you don’t cannibalize yourself, someone else will.
+ - I sat in a garage and invented the future.
+ - The were good times, there were hard times, but there were never bad times.
+ - Recruiting is hard. It’s just finding the needles in the haystack. You can’t know enough in a one-hour interview.
+ - It takes a lot of hard work to make something simple.
+ - Technology is nothing. What’s important is that you have a faith in people, that they’re basically good and smart, and if you give them tools, they’ll do wonderful things with them.
+ - Of course it was impossible to connect the dots looking forward when I was in college. But it was very, very clear looking backwards 10 years later.
+ - Let’s go invent tomorrow!
+ - It’s technology married with liberal arts, married with the humanities, that yields us the results that make our heart sing.
+ - Computers are like a bicycle for our minds.
+ - Stay Hungry. Stay Foolish. And I have always wished that for myself. And now, as you graduate to begin anew, I wish that for you.
+ - Somewhere between the janitor and the CEO, reasons stop mattering.
+ - Sometimes when you innovate, you make mistakes. It is best to admit them quickly, and get on with improving your other innovations.
+ - Death is very likely the single best invention of life. It is life’s change agent. It clears out the old to make way for the new.
+ - There’s a phrase in Buddhism, ‘Beginner’s mind.’ It’s wonderful to have a beginner’s mind.
+ - Most people never pick up the phone and call. Most people never ask, and that’s what separates the people who do things from the people who just dream about them.
+ - It’s not a faith in technology. It’s faith in people.
+ - You have to trust in something – your gut, destiny, life, karma, whatever.
+ - Design is a funny word. Some people think design means how it looks. But of course, if you dig deeper, it’s really how it works.
+ - We have always been shameless about stealing great ideas.
+ - Without passion, any rational person would give up!
+ - You cannot mandate productivity, you must provide the tools to let people become their best.
+ - If you want it, you can fly, you just have to trust you a lot.
+ - Some mistakes will be made along the way. That’s good. Because some decisions are being made along the way. We’ll find the mistakes. We’ll fix them.
+ - Much of what I stumbled into by following my curiosity and intuition turned out to be priceless later on.
+ - This revolution, the information revolution, is a revolution of free energy as well, but of another kind: free intellectual energy.
+ - We’ve got to make the small things unforgettable.
+ - Follow your heart, but check it with your head.
+ - You should never go to a meeting or make a telephone call without a clear idea of what you are trying to achieve.
+ - Don’t settle, as with all matters of the heart you’ll know when you find it.
+ - We’re just enthusiastic about what we do.
+ - That’s been one of my mantras – focus and simplicity. Simple can be harder than complex.
+ - We hire people who want to make the best things in the world.
+ - Everything is based on a simple rule: Quality is the best business plan, period.
+ - Right now the new is you, but someday not too long from now, you will gradually become the old and be cleared away. Sorry to be so dramatic, but it is quite true.
+ - I’m as proud of many of the things we haven’t done as the things we have done. Innovation is saying no to a thousand things.
+ - The broader one’s understanding of the human experience, the better design we will have.
+ - In your life you only get to do so many things and right now we’ve chosen to do this, so let’s make it great.
+ - Death is the destination we all share, no one has ever escaped it. And that is as it should be because death is very likely the single best invention of life.
+ - Most people make the mistake of thinking design is what it looks like. People think it’s this veneer – that the designers are handed this box and told, “Make it look good!” That’s not what we think design is. It’s not just what it looks like and feels like. Design is how it works.
+ - I think if you do something and it turns out pretty good, then you should go do something else wonderful, not dwell on it for too long. Just figure out what’s next.
+ - Ask for feedback from people with diverse backgrounds. Each one will tell you one useful thing. If you’re at the top of the chain, sometimes people won’t give you honest feedback because they’re afraid. In this case, disguise yourself, or get feedback from other sources.
+ - As Regis Mckenna once said, the best marketing is education.
+ - We’re gambling on our vision, and we would rather do that than make “me too” products. Let some other companies do that. For us, it’s always the next dream.
+ - Great engineers are a huge multiplier.
+ - Your customers don’t care about you. They don’t care about your product or service. They care about themselves, their dreams, their goals. Now, they will care much more if you help them reach their goals, and to do that, you must understand their goals, as well as their needs and deepest desires.
+ - Being the richest man in the cemetery doesn’t matter to me.
+ - Creativity comes from spontaneous meetings, from random discussions.
+ - Everyone here has the sense that right now is one of those moments when we are influencing the future.
+ - The greatest artists like Dylan, Picasso and Newton risked failure. And if we want to be great, we’ve got to risk it too.
+ - You are all over the map, figure out the top 5 things you want to focus on and get rid of the rest.
+ - I always thought of myself as a humanities person as a kid, but I liked electronics. Then I read something that one of my heroes, Edwin Land of Polaroid, said about the importance of people who could stand at the intersection of humanities and sciences, and I decided that’s what I wanted to do.
+ - Design is the fundamental soul of a human-made creation that ends up expressing itself in successive outer layers of the product or service.
+ - I hate the way people use slide presentations instead of thinking. People would confront a problem by creating a presentation. I wanted them to engage, to hash things out at the table, rather than show a bunch of slides. People who know what they’re talking about don’t need PowerPoint.
+ - People don’t know what they want until you show it to them. That’s why I never rely on marketing research. Our task is to read things that are not yet on the page.
+ - After all the statistics and calculations are formulated, the one element that breathes life into marketing is good design.
+ - I don’t really care about being right, I just care about success. I don’t mind being wrong, and I’ll admit that I’m wrong a lot. It doesn’t really matter to me too much. What matters to me is that we do the right thing.
+ - I hate the way people use PowerPoints instead of thinking.
+ - Don’t just follow your passion but something larger than yourself.
+ - Death is very likely the single best invention of life.
+ - Oh wow. Oh wow. Oh wow.
+ - It’s not about money. It’s about the people you have, how you’re led, and how much you get it.
+ - We don’t get a chance to do that many things, and every one should be really excellent. Because this is our life. Life is brief, and then you die, you know? So this is what we’ve chosen to do with our life.
+ - My passion has been to build an enduring company where people were motivated to make great products. Everything else was secondary. Sure, it was great to make a profit, because that was what allowed you to make great products. But the products, not the profits were the motivation.
+ - One of my beliefs very strongly is that any democracy depends on a free, healthy press.
+ - You’ve heard of plug-and-play. This is plug, unplug and play. It’s so simple to use, it’s unbelievable.
+ - The desktop computer industry is dead. Innovation has virtually ceased. Microsoft dominates with very little innovation. That’s over. Apple lost. The desktop market has entered the dark ages, and it’s going to be in the dark ages for the next 10 years, or certainly for the rest of this decade.
+ - And it comes from saying no to 1,000 things to make sure we don’t get on the wrong track or try to do too much. We’re always thinking about new markets we could enter, but it’s only by saying no that you can concentrate on the things that are really important.
+ - When you’re young, you look at television and think, there’s a conspiracy. The networks have conspired to dumb us down. But when you get a little older, you realize that’s not true. The networks are in business to give people exactly what they want.
+ - None of us are as creative as all of us.
+ - I began to realize that an intuitive understanding and consciousness was more significant than abstract thinking and intellectual logical analysis. Intuition is a very powerful thing, more powerful than intellect, in my opinion. That’s had a big impact on my work.
+ - My opinion is that the only two computer companies that are software-driven are Apple and NeXT, and I wonder about Apple.
+ - If you keep your eye on the profit, you’re going to skimp on the product. But if you focus on making really great products, then the profits will follow.
+ - I was lucky to get into computers when it was a very young and idealistic industry. There weren’t many degrees offered in computer science, so people in computers were brilliant people from mathematics, physics, music, zoology, whatever. They loved it, and no one was really in it for the money.
+ - The real art is knowing what to leave out, not what to put in.
+ - Our DNA is as a consumer company – for that individual customer who’s voting thumbs up or thumbs down. That’s who we think about. And we think that our job is to take responsibility for the complete user experience. And if it’s not up to par, it’s our fault, plain and simply.
+ - How can you get fired from the company you started?
+ - Fear of failure falls away in the face of death.
+ - Our friends up north spend over five billion dollars on research and development and all they seem to do is copy Google and Apple.
+ - You can’t win on innovation unless you have a way to communicate it to customers.
+ - Our goal is to make the best devices in the world, not to be the biggest.
+ - I wish developing great products was as easy as writing a check. If that was the case, Microsoft would have great products.
+ - I found that there were these incredibly great people at doing certain things, and you couldn’t replace one of these people with fifty average people.
+ - A lot of people in our industry haven’t had very diverse experiences. So they don’t have enough dots to connect, and they end up with very linear solutions without a broad perspective on the problem. The broader one’s understanding of the human experience, the better design we will have.
+ - We just wanted to build the best thing we could build.
+ - But innovation comes from people meeting up in the hallways or calling each other at 10:30 at night with a new idea, or because they realized something that shoots holes in how we’ve been thinking about a problem.
+ - If you want to live your life in a creative way, as an artist, you have to not look back too much. You have to be willing to take whatever you’ve done and whoever you were and throw them away.
+ - Shake off this erroneous notion that life is there and you’re just gonna live in it, versus embrace it, change it, improve it, make your mark upon it.
+ - To follow the path that others have laid before you is a reasonable course of action; therefore all progress is made by unreasonable men.
+ - We all have a short period of time on this earth-We probably only have the opportunity to do a few things really great and do them well. None of us has any idea how long we’re going to be here nor do I, but my feeling is I’ve got to accomplish a lot of these things while I’m young.
+ - Kick-start your brain. New ideas come from watching something, talking to people, experimenting, asking questions and getting out of the office!
+ - There are times when you run a marathon and you wonder, Why am I doing this? But you take a drink of water, and around the next bend, you get your wind back, remember the finish line, and keep going.
+ - I think death is the most wonderful invention of life. It purges the system of these old models that are obsolete.
+ - I don’t think of my life as a career. I do stuff. I respond to stuff. That’s not a career – it’s a life!
+ - Combine science and humanities.
+ - When you’re doing something for yourself, or your best friend or family, you’re not going to cheese out. If you don’t love something, you’re not going to go the extra mile, work the extra weekend, challenge the status quo as much.
+ - This is a very noisy world, so we have to be very clear what we want them to know about us.
+ - I’m sorry, it’s true. Having children really changes your view on these things. We’re born, we live for a brief instant, and we die. It’s been happening for a long time. Technology is not changing it much – if at all.
+ - Do you create anything, or just criticize others work and belittle their motivations?
+ - Design is the fundamental soul of a man-made creation.
+ - The Japanese have hit the shores like dead fish. They’re just like dead fish washing up on the shores.
+ - It gave a tremendous level of self-confidence, that through exploration and learning one could understand seemingly very complex things in one’s environment.
+ - I’m the only person I know that’s lost a quarter of a billion dollars in one year. It’s very character-building.
+ - You’ve got to find what you love. And that is as true for your work as it is for your lovers.
+ - Pixar is the most technically advanced creative company; Apple is the most creatively advanced technical company.
+ - It’s not like Windows users don’t have any power. I think they are happy with Windows, and that’s an incredibly depressing thought.
+ - The Macintosh was supposed to be the computer for people that just wanted to use a computer without having to learn how to use one.
+ - I’m going to destroy Android, because it’s a stolen product. I’m willing to go thermonuclear war on this.
+ - The creative industries tend to dismiss technology as just something to buy and not understand how hard it is and how creative it can be as well.
+ - What a computer is to me is the most remarkable tool that we have ever come up with. It’s the equivalent of a bicycle for our minds.
+ - Nobody has tried to swallow us since I’ve been here. I think they are afraid how we would taste.
+ - Once IBM gains control of a market sector, they almost always stop innovation. They prevent innovation from happening.
+ - We limit how much technology our kids use at home.
+ - A-plus players like to work together and they don’t like it if you tolerate B work.
+ - It took us three years to build the NeXT computer. If we’d given customers what they said they wanted, we’d have built a computer they’d have been happy with a year after we spoke to them – not something they’d want now.
+ - The juice goes out of Christianity when it becomes too based on faith rather than on living like Jesus or seeing the world as Jesus saw it.
+ - Computers themselves, and software yet to be developed, will revolutionize the way we learn.
+ - The cure for Apple is not cost-cutting. The cure for Apple is to innovate its way out of its current predicament.
+ - Your thoughts construct patterns like scaffolding in your mind. You are really etching chemical patterns. In most cases, people get stuck in those patterns, just like grooves in a record, and they never get out of them.
+ - We made the buttons on the screen look so good you’ll want to lick them.
+ - The only problem with Microsoft is they just have no taste. They have absolutely no taste. And I don’t mean that in a small way, I mean that in a big way, in the sense that they don’t think of original ideas, and they don’t bring much culture into their products.
+ - For you to sleep well at night, the aesthetic, the quality, has to be carried all the way through.
+ - It was one of those sort of apocalyptic moments. I remember within ten minutes of seeing the graphical user interface stuff, just knowing that every computer would work this way someday. It was so obvious once you saw it. It didn’t require tremendous intellect. It was so clear.
+ - The unions are the worst thing that ever happened to education because it’s not a meritocracy. It turns into a bureaucracy, which is exactly what has happened. The teachers can’t teach and administrators run the place and nobody can be fired. It’s terrible.
+ - That’s what makes great products. It’s not process-it’s content.
+ - The reason that Apple is able to create products like iPad is because we always try to be at the intersection of technology and liberal arts, to be able to get the best of both.
+ - The axis today is not liberal and conservative, the axis is constructive-destructive.
+ - Pursue your dreams and see the opportunities in life’s setbacks.
+ - We want to reinvent the phone. What’s the killer app? The killer app is making calls! It’s amazing how hard it is to make calls on most phones. We want to let you use contacts like never before – sync your iPhone with your PC or mac.
+ - Bill Gates’d be a broader guy if he had dropped acid once or gone off to an ashram when he was younger.
+ - The people who built Silicon Valley were engineers. They learned business, they learned a lot of different things, but they had a real belief that humans, if they worked hard with other creative, smart people, could solve most of humankind’s problems. I believe that very much.
+ - Apple’s market share is bigger than BMW’s or Mercedes’s or Porsche’s in the automotive market. What’s wrong with being BMW or Mercedes?
+ - The people who are doing the work are the moving force behind the Macintosh. My job is to create a space for them, to clear out the rest of the organization and keep it at bay.
+ - What is Apple, after all? Apple is about people who think ‘outside the box,’ people who want to use computers to help them change the world, to help them create things that make a difference, and not just to get a job done.
+ - When we started off we didn’t know how to spell software.
+ - The desktop metaphor was invented because one, you were a stand-alone device, and two, you had to manage your own storage. That’s a very big thing in a desktop world. And that may go away. You may not have to manage your own storage. You may not store much before too long.
+ - It’s rare that you see an artist in his 30s or 40s able to really contribute something amazing.
+ - Team, it turned out that Michael Dell wasn’t perfect at predicting the future. Based on today’s stock market close, Apple is worth more than Dell. Stocks go up and down and things may be different tomorrow but I thought it was worth a moment of reflection today.
+ - I’d like the people teaching my kids to be good enough that they could get a job at the company I work for, making a hundred thousand dollars a year. Why should they work at a school for thirty-five to forty thousand dollars if they could get a job here at a hundred thousand dollars a year?
+ - Find people who are competent and really bright, but more importantly, people who care exactly about the same things you care about.
+ - The day I was born songs were on records, phones were tied down, computers needed rooms and the web was fiction. Change the world. You can.
+ - Stealing music is not right, and I can understand people being very upset about their intellectual property being stolen.
+ - When the sales guys run the company, the product guys do not matter so much, and a lot of them just turn off.
+ - What’s new is this amazingly efficient distribution system for stolen property called the Internet – and no one’s gonna shut down the Internet.
+ - The minute I dropped out I could stop taking the required classes that didn’t interest me, and begin dropping in on the ones that looked interesting.
+ - I’m one of those people that think Thomas Edison and the light bulb changed the world more than Karl Marx ever did.
+ - The mark of an innovative company is not only that it comes up with new ideas first, but also that it knows how to leapfrog when it finds itself behind.
+ - There’s a temptation in our networked age to think that ideas can be developed by email and iChat. That’s crazy. Creativity comes from spontaneous meetings, from random discussions. You run into someone, you ask what they’re doing, you say ‘wow,’ and soon you’re cooking up all sorts of ideas.
+ - Pixar is seen by a lot of folks as an overnight success, but if you really look closely, most overnight successes took a long time.
+ - Without death there would be very little progress.
+ - The most corrosive piece of technology that I’ve ever seen is called television – but then, again, television, at its best, is magnificent.
+ - I’m not worried about the country’s long-term future. This country is insanely great. What I’m worried about is that we don’t talk enough about solutions.
+ - Innovation is usually the result of connections of past experiences. But if you have the same experiences as everyone else, you are unlikely to look in a different direction.
+ - All we are is our ideas, or people. That’s what keeps us going to work in the morning, to hang around these great bright people. I’ve always thought that recruiting is the heart and soul of what we do.
+ - You know, I’ve got a plan that could rescue Apple. I can’t say any more than that it’s the perfect product and the perfect strategy for Apple. But nobody there will listen to me.
+ - It is piracy, not overt online music stores, which is our main competitor.
+ - I’ve got to tell you, the Internet is a place you go when you want to turn your brain on, and television is a place you go when you want to turn your brain off. I’m not at all convinced that the twain will meet.
+ - Apple stores are intended not just to move boxes, but to enrich lives.
+ - I thought deeply about this. I ended up concluding that the worst thing that could possibly happen as we get big and as we get a little more influence in the world is if we change our core values and start letting it slide, I can’t do that. I’d rather quit.
+ - I don’t view wealth as something that validates my intelligence.
+ - I am saddened, not by Microsoft’s success – I have no problem with their success. They’ve earned their success, for the most part. I have a problem with the fact that they just make really third-rate products.
+ - When you’re a carpenter making a beautiful chest of drawers, you’re not going to use a piece of plywood on the back, even though it faces the wall and nobody will ever see it. You’ll know it’s there, so you’re going to use a beautiful piece of wood on the back.
+ - Apple is the only company in the world that has all of that under one roof. We can invent a complete a solution that works – and take responsibility for it.
+ - I feel like somebody just punched me in the stomach and knocked all my wind out. I’m only 30 years old and I want to have a chance to continue creating things. I know I’ve got at least one more great computer in me. And Apple is not going to give me a chance to do that.
+ - You can tell a lot about a person by who his or her heroes are.
+ - When companies get bigger they try to replicate their success. But they assume their magic came from process. They try to use processes to substitute content.
+ - It is hard to think that a $2 billion company with 4,300-plus people couldn’t compete with six people in blue jeans.
+ - You’ve got to have a problem that you want to solve; a wrong that you want to right.
+ - I get asked a lot why Apple’s customers are so loyal. It’s not because they belong to the Church of Mac! That’s ridiculous.
+ - Ad campaigns are necessary for competition. But good PR educates people; that’s all it is.
+ - A lot of companies have chosen to downsize, and maybe that was the right thing for them. We chose a different path. Our belief was that if we kept putting great products in front of customers, they would continue to open their wallets.
+ - I’ll always stay connected with Apple. I hope that throughout my life I’ll sort of have the thread of my life and the thread of Apple weave in and out of each other, like a tapestry. There may be a few years when I’m not there, but I’ll always come back.
+ - We do not say anything about future products. We work on them in secret, then we announce them.
+ - Why would I ever want to run Disney? Wouldn’t it make more sense just to sell them Pixar and retire?
+ - If, for some reason, we make some big mistake and IBM wins, my personal feeling is that we are going to enter a computer Dark Ages for about twenty years.
+ - We think Android is very, very fragmented, and becoming more fragmented by the day. And as you know, Apple strives for the integrated model so that the user isn’t forced to be the systems integrator.
+ - Each year has been so robust with problems and successes and learning experiences and human experienes that a year is a lifetime at Apple. So this has been ten lifetimes.
+ - I have enough to last for the rest of my life.
+ - The thing that drives me and my colleagues at both Apple and Pixar is that you see something very compelling to you, and you don’t quite know how to get to it, but you know, sometimes intuitively, it’s within your grasp. And it’s worth putting in years of your life to make it come into existence.
+ - The problem with the Internet startup craze isn’t that too many people are starting companies; it’s that too many people aren’t sticking with it.
+ - We’re cautious. We’d rather exceed expectations than miss but I think it’s going to be a continued difficult economy. Apple is trying a different way to navigate out of this, we’re trying to innovate.
+ - I’m one of the few people who understands how producing technology requires intuition and creativity, and how producing something artistic takes real discipline.
+ - I think right now it’s a battle for the mindshare of developers and for the mindshare of customers, and right now iPhone and Android are winning that battle.
+ - It wasn’t that Microsoft was so brilliant or clever in copying the Mac, it’s that the Mac was a sitting duck for 10 years. That’s Apple’s problem: Their differentiation evaporated.
+ - Let them know precisely what you are going to do with their data.
+ - Making an enduring company was both harder and more important than making a great product.
+ - Unfortunately, people are not rebelling against Microsoft. They don’t know any better.
+ - I have always said if there ever came a day when I could no longer meet my duties and expectations as Apple’s CEO, I would be the first to let you know. Unfortunately, that day has come.
+ - It comes from saying no to 1,000 things to make sure we don’t get on the wrong track or try to do too much.
+ - People say sometimes, “You work in the fastest-moving industry in the world.” I don’t feel that way. I think I work in one of the slowest. It seems to take forever to get anything done.
+ - I’m very excited about having the Internet in my den.
+ - There are sneakers that cost more than an iPod.
+ - I just had a romance that I really care about, a lot-I mean, a lot-go up in smoke. Because of the stress, and the sort of other woman that Macintosh is.
+ - If I were running Apple, I would milk the Macintosh for all it’s worth – and get busy on the next great thing. The PC wars are over. Done. Microsoft won a long time ago.
+ - To have your whole music library with you at all times is a quantum leap in listening to music. How do we possibly do this?
+ - The most compelling reason for most people to buy a computer for the home will be to link it to a nationwide communications network. We’re just in the beginning stages of what will be a truly remarkable breakthrough for most people – as remarkable as the telephone.
+ - Be ready to catch the ball when it is thrown by life.
+ - Stay hungry. Stay foolish. Do you know a good Steve Jobs quote? Let us know in the comments!
+ - The world doesn’t need another Dell or Compaq.
+ - What we want to do is make a leapfrog product that is way smarter than any mobile device has ever been, and super-easy to use. This is what iPhone is. OK? So, we’re going to reinvent the phone.
+ - There are downsides to everything; there are unintended consequences to everything.
+ - The tragedy is that Dell didn’t win it – we lost it.
+ - I think we’re having fun. I think our customers really like our products. And we’re always trying to do better.
+ - It’s like when IBM drove a lot of innovation out of the computer industry before the microprocessor came along. Eventually, Microsoft will crumble because of complacency, and maybe some new things will grow. But until that happens, until there’s some fundamental technology shift, it’s just over.
+ - If you tell people they can’t burn CDs of their music, as almost every current legal music service has done, or they can only burn one CD with a track or pay per track per burn extra, nobody is going to go for it.
+ - I met Woz when I was 13, at a friend’s garage. He was about 18. He was, like, the first person I met who knew more electronics than I did at that point. We became good friends, because we shared an interest in computer and we had a sense of humor. We pulled all kinds of pranks together.
+ - If I had never dropped in on that single course in college, the Mac would have never had multiple typefaces or proportionally spaced fonts. And since Windows just copied the Mac, it’s likely that no personal computer would have them.
+ - And no, we don’t know where it will lead. We just know there’s something much bigger than any of us here.
+ - The roots of apple were to build computers for people, not for corporations. The world doesn’t need another dell or compaq.
+ - I know from my own education that if I hadn’t encountered two or three individuals that spent extra time with me, I’m sure I would have been in jail.
+ - Customers always want something new.
+ - I can help the next generation remember the lineage of great companies here and how to continue the tradition. The Valley has been very supportive of me. I should do my best to repay.
+ - The subscription model of buying music is bankrupt. I think you could make available the Second Coming in a subscription model and it might not be successful.
+ - Every good product I’ve ever seen is because a group of people cared deeply about making something wonderful that they and their friends wanted. They wanted to use it themselves.
+ - First was the mouse. The second was the click wheel. And now, we’re going to bring multi-touch to the market. And each of these revolutionary interfaces has made possible a revolutionary product – the Mac, the iPod and now the iPhone.
+ - Pretty much, Apple and Dell are the only ones in this industry making money. They make it by being Wal-Mart. We make it by innovation.
+ - It’s not about charisma and personality, it’s about results and products and those very bedrock things that are why people at Apple and outside of Apple are getting more excited about the company and what Apple stands for and what its potential is to contribute to the industry.
+ - The biggest effect of the personal computer revolution has been to allow millions and millions of people to experience computers themselves decades before they ever would have in the old paradigm.
+ - To turn really interesting ideas and fledgling technologies into a company that can continue to innovate for years, it requires a lot of disciplines.
+ - I think we need editorial oversight now more than ever. Anything we can do to help newspapers find new ways of expression that will help them get paid, I am all for.
+ - The web is not going to change the world, certainly not in the next 10 years. It’s going to augment the world. And once you’re in this web-augmented space, you’re going to see that democratization takes place.
+ - My mother taught me to read before I went to school, so I was pretty bored in school, and I turned into a little terror. You should have seen us in third grade. We basically destroyed our teacher. We would let snakes loose in the classroom and explode bombs.
+ - Music companies are not technology companies any more than technology companies are music companies. They’re really different from each other.
+ - You’ve probably had somebody punch you in the stomach and it knocks the wind of you and you can’t breathe. That’s how I felt.
+ - Now, we are selling over 5 million songs a day now. Isn’t that unbelievable? That’s 58 songs every second of every minute of every hour of every day.
+ - We think that computers are the most remarkable tools that humankind has ever come up with, and we think that people are basically tool users. So if we can just get lots of computers to lots of people, it will make some qualitative difference to the world.
+ - This was a very typical time. I was single. All you needed was a cup of tea, a light, and your stereo, you know, and that’s what I had.
+ - One of the failures of technology companies is that they build technologies thinking everything else will work out.
+ - Pointing is a metaphor we all know. We’ve done a lot of studies and tests on that, and it’s much faster to do all kinds of functions, such as cutting and pasting, with a mouse, so it’s not only easier to use but more efficient.
+ - I would trade all of my technology for an afternoon with Socrates.
+ - I think the Macintosh was created by a group of people who felt that ah there wasn’t a strict vision between sort of science and art.
+ - There’s nothing that makes my day more than getting an e-mail from some random person in the universe who just bought an iPad over in the UK and tells me the story about how it’s the coolest product they’ve ever brought home in their lives. That’s what keeps me going.
+ - I think PCs are going to be like trucks. Less people will need them. And this is going to make some people uneasy.
+ - We have never worried about numbers. In the market place, Apple is trying to focus the spotlight on products, because products really make a differenceYou can’t con people in this business. The products speak for themselves.
+ - You know, you keep on innovating, you keep on making better stuff. And if you always want the latest and greatest, then you have to buy a new iPod at least once a year.
+ - If I knew in 1986 how much it was going to cost to keep Pixar going, I doubt if I would have bought the company.
+ - If you want to hire great people and have them stay, you have to be run by ideas, not hierarchy. The best ideas have to win.
+ - When you’re in a startup, the first ten people will determine whether the company succeeds or not.
+ - The manual for WordStar, the most popular word-processing program, is 400 pages thick. To write a novel, you have to read a novel – one that reads like a mystery to most people. They’re not going to learn slash q-z any more than they’re going to learn Morse code. That is what Macintosh is all about.
+ - That’s my job – to make sure everything is great.
+ - I’m an optimist in the sense that I believe humans are noble and honorable, and some of them are really smart. I have a very optimistic view of individuals.
+ - Because believing that the dots will connect down the road will give you the confidence to follow your heart even when it leads you off the well worn path.
+ - I’m as proud of what we don’t do as I am of what we do.
+ - The HD revolution is over, it happened. HD won. Everybody wants HD.
+ - The reason we wouldn’t make a seven-inch tablet isn’t because we don’t want to hit a price point, it’s because we don’t think you can make a great tablet with a seven-inch screen.
+ - When we hire someone, even if they are going to be in marketing, I will have them talk to the design folks and the engineers.
+ - To do anything of magnitude takes at least five years, more likely seven or eight. Rightfully or wrongfully, that’s how I think.
+ - It’s very simple: The more successful you are, the more you’ll earn. But if you’re not successful, you will not earn a dime.
+ - Electronics was something I could always fall back on when I needed food on the table.
+ - Mac OS X Tiger will come out long before Longhorn.
+ - Who wants a stylus. You have to get em and put em away, and you lose em. Yuck. Nobody wants a stylus.
+ - Expose yourself to the best things humans have done and then try to bring those things into what you are doing.
+ - We think the Mac will sell zillions, but we didn’t build the Mac for anybody else. We built it for ourselves. We were the group of people who were going to judge whether it was great or not. We weren’t going to go out and do market research. We just wanted to build the best thing we could build.
+ - Part of what made the Macintosh great was that the people working on it were musicians and poets and artists and zoologists and historians who also happened to be the best computer scientists in the world.
+ - What this means is that people are seeing a stable business, which is good, and a business that is in control, which is also good.
+ - When you ask creative people how they did something, they feel a little guilty because they didn’t really do it, they just saw something.
+ - Woz is living his own life now. He hasn’t been around Apple for about five years. But what he did will go down in history.
+ - Good PR educates people; that’s all it is. You can’t con people in this business. The products speak for themselves.
+ - My philosophy is that everything starts with a great product.
+ - I don’t think I’ve ever worked so hard on something, but working on Macintosh was the neatest experience of my life. Almost everyone who worked on it will say that. None of us wanted to release it at the end. It was as though we knew that once it was out of our hands, it wouldn’t be ours anymore.
+ - I think this is the start of something really big. Sometimes that first step is the hardest one, and we’ve just taken it.
+ - The problem is I’m older now, I’m 40 years old, and this stuff doesn’t change the world. It really doesn’t.
+ - Do you want to spend the rest of your life selling sugared water or do you want a chance to change the world?
+ - The web is just going to be one more of those major change factors that businesses face every decade.
+ - School was pretty hard for me at the beginning.
+ - For most of my life, I’ve felt that there must be more to our existence than meets the eye. This is who I am, and you can’t expect me to be someone I’m not.
+ - If you’re afraid of failing you won’t get very far.
+ - I don’t really care about being right, I just care about success.
+ - I think the world’s a better place because Bill realized that his goal isn’t to be the richest guy in the cemetery, right?
+ - We’re going to be able to ask our computers to monitor things for us, and when certain conditions happen, are triggered, the computers will take certain actions and inform us after the fact.
+ - All the work I’ve done in my life will be obsolete by the time I’m fifty.
+ - I’d like to create an integrated television set that is completely easy to use. It would be seamlessly synced with all of your devices and with iCloud. It will have the simplest user interface you could imagine. I finally cracked it.
+ - There’s an old Wayne Gretzky quote that I love. ‘I skate to where the puck is going to be, not where it has been.’ And we’ve always tried to do that at Apple. Since the very, very beginning. And we always will.
+ - It’s not the tools that you have faith in – tools are just tools. They work, or they don’t work. It’s people you have faith in or not. Yeah, sure, I’m still optimistic I mean, I get pessimistic sometimes but not for long.
+ - Strategy is figuring out what not to do.
+ - The good music companies do an amazing thing. They have people who can pick the person that’s gonna be successful out of 5,000 candidates. And there’s not enough information to do that – it’s an intuitive process.
+ - We try to use the talents we do have to express our deep feelings, to show our appreciation of all the contributions that came before us, and to add something to that flow. That’s what’s driven me.
+ - I’ve always wanted to own and control the primary technology in everything we do.
+ - One: demonstrations always crash. And two: the probability of them crashing goes up exponentially with the number of people watching.
+ - But Apple really beats to a different drummer. I used to say that Apple should be the Sony of this business, but in reality, I think Apple should be the Apple of this business.
+ - So when these people sell out, even though they get fabulously rich, they’re gypping themselves out of one of the potentially most rewarding experiences of their unfolding lives. Without it, they may never know their values or how to keep their newfound wealth in perspective.
+ - Apple has some tremendous assets, but I believe without some attention, the company could, could, could – I’m searching for the right word – could, could die.
+ - It places value on experience versus intellectual understanding. I saw a lot of people contemplating things but it didn’t seem to lead to too many places. I got very interested in people who had discovered something more significant than an intellectual, abstract understanding.
+ - There’s a lot of symbolism to your return. Is that going to be enough to reinvigorate the company with a sense of magic?
+ - You’ll see more and more perfection of that – computer as servant. But the next thing is going to be computer as a guide or agent.
+ - Focus is about saying, No. And the result of that focus is going to be some really great products where the total is much greater than the sum of the parts.
+ - I think Pixar has the opportunity to be the next Disney – not replace Disney – but be the next Disney.
+ - But it’s a disservice to constantly put things in this radical new light – that it’s going to change everything. Things don’t have to change the world to be important.
+ - The seven-inch tablets are tweeners: too big to compete with a smartphone, and too small to compete with an iPad.
+ - By honoring the lives of those we admire, we make our own values known.
+ - There will always be music on the Internet that people can steal. What’s new is not theft. What’s new is a distribution channel for stolen property called the Internet. So there will always be illegal music on the Internet.
+ - You know, my main reaction to this money thing is that it’s humorous, all the attention to it, because it’s hardly the most insightful or valuable thing that’s happened to me.
+ - People equated burning CDs with theft. That’s not what burning CDs is. Theft is about acquiring the music from the Internet.
+ - If Macintosh hadn’t been successful, then I should have just thrown in the towel, because my vision of the whole industry would have been totally wrong.
+ - Guess who surprised themselves and changed their minds.
+ - It takes these very simple-minded instructions – ‘Go fetch a number, add it to this number, put the result there, perceive if it’s greater than this other number’ – but executes them at a rate of, let’s say, 1,000,000 per second. At 1,000,000 per second, the results appear to be magic.
+ - Our job is to read things that are not yet on the page.
+ - We live in an information economy. The problem is that information’s usually impossible to get, at least in the right place, at the right time.
+
+435 quotes

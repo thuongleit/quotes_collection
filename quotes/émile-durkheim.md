@@ -1,0 +1,53 @@
+ - When man discovered the mirror, he began to lose his soul.
+ - Each new generation is reared by its predecessor; the latter must therefore improve in order to improve its successor. The movement is circular.
+ - Socialism is not a science, a sociology in miniature: it is a cry of pain.
+ - Man is only a moral being because he lives in society, since morality consists in solidarity with the group, and varies according to that solidarity. Cause all social life to vanish, and moral life would vanish at the same time, having no object to cling to.
+ - If religion has given birth to all that is essential in society, it is because the idea of society is the soul of religion.
+ - Reality seems valueless by comparison with the dreams of fevered imaginations; reality is therefore abandoned.
+ - A mind that questions everything, unless strong enough to bear the weight of its ignorance, risks questioning itself and being engulfed in doubt.
+ - Our whole social environment seems to us to be filled with forces which really exist only in our own minds.
+ - Man is a moral being, only because he lives in society. Let all social life disappear and morality will disappear with it.
+ - A person is not merely a single subject distinguished from all the others. It is especially a being to which is attributed a relative autonomy in relation to the environment with which it is most immediately in contact.
+ - Science cannot describe individuals, but only types. If human societies cannot be classified, they must remain inaccessible to scientific description.
+ - When mores are sufficient, laws are unnecessary; when mores are insufficient, laws are unenforceable.
+ - Social life comes from a double source, the likeness of consciences and the division of social labour.
+ - To pursue a goal which is by definition unattainable is to condemn oneself to a state of perpetual unhappiness.
+ - It is not human nature which can assign the variable limits necessary to our needs. They are thus unlimited so far as they depend on the individual alone. Irrespective of any external regulatory force, our capacity for feeling is in itself an insatiable and bottomless abyss.
+ - Man cannot become attached to higher aims and submit to a rule if he sees nothing above him to which he belongs. To free him from all social pressure is to abandon him to himself and demoralize him.
+ - Religious representations are collective representations which express collective realities.
+ - Faith is not uprooted by dialectic proof; it must already be deeply shaken by other causes to be unable to withstand the shock of argument.
+ - We do not condemn it because it is a crime, but it is a crime because we condemn it.
+ - Maniacal suicide. – This is due to hallucinations or delirious conceptions. The patient kills himself to escape from an imaginary danger or disgrace, or to obey a mysterious order from on high, etc.
+ - A religion is a unified system of beliefs and practices relative to sacred things, that is to say, things set apart and forbidden-beliefs and practices which unite into one single moral community called a Church, all those who adhere to them.
+ - The totality of beliefs and sentiments common to the average members of a society forms a determinate system with a life of its own. It can be termed the collective or creative consciousness.
+ - Man seeks to learn, and man kills himself because of the loss of cohesion in his religious society; he does not kill himself because of his learning. It is certainly not the learning he acquires that disorganizes religion; but the desire for knowledge wakens because religion becomes disorganized.
+ - Sadness does not inhere in things; it does not reach us from the world and through mere contemplation of the world. It is a product of our own thought. We create it out of whole cloth.
+ - From top to bottom of the ladder, greed is aroused without knowing where to find ultimate foothold. Nothing can calm it, since its goal is far beyond all it can attain. Reality seems valueless by comparison with the dreams of fevered imaginations; reality is therefore abandoned.
+ - It is science, and not religion, which has taught men that things are complex and difficult to understand.
+ - One does not advance when one walks toward no goal, or – which is the same thing – when his goal is infinity.
+ - The Christian conceives of his abode on Earth in no more delightful colors than the Jainist sectarian. He sees in it only a time of sad trial; he also thinks that his true country is not of this world.
+ - Religious phenomena are naturally arranged in two fundamental categories: beliefs and rites. The first are states of opinion, and consist in representations; the second are determined modes of action.
+ - At first sight, one does not see what relations there can be between religion and logic.
+ - Too cheerful a morality is a loose morality; it is appropriate only to decadent peoples and is found only among them.
+ - While the State becomes inflated and hypertrophied in order to obtain a firm enough grip upon individuals, but without succeeding, the latter, without mutual relationships, tumble over one another like so many liquid molecules, encountering no central energy to retain, fix and organize them.
+ - The man whose whole activity is diverted to inner meditation becomes insensible to all his surroundings.
+ - By definition, sacred beings are separated beings. That which characterizes them is that there is a break of continuity between them and the profane beings.
+ - The term suicide is applied to all cases of death resulting directly or indirectly from a positive or negative act of the victim himself, which he knows will produce this result.
+ - The wise man, knowing how to enjoy achieved results without having constantly to replace them with others, finds in them an attachment to life in the hour of difficulty.
+ - The first and most fundamental rule is: Consider social facts as things.
+ - I can be free only to the extent that others are forbidden to profit from their physical, economic, or other superiority to the detriment of my liberty.
+ - It is too great comfort which turns a man against himself. Life is most readily renounced at the time and among the classes where it is least harsh.
+ - There is no sociology worthy of the name which does not possess a historical character.
+ - Each victim of suicide gives his act a personal stamp which expresses his temperament, the special conditions in which he is involved, and which, consequently, cannot be explained by the social and general causes of the phenomenon.
+ - A social fact is every way of acting, fixed or not, capable of exercising on the individual an external constraint; or again, every way of acting which is general throughout a given society, while at the same time existing in its own right independent of its individual manifestations.
+ - Melancholy suicide. – This is connected with a general state of extreme depression and exaggerated sadness, causing the patient no longer to realize sanely the bonds which connect him with people and things about him. Pleasures no longer attract;.
+ - Even one well-made observation will be enough in many cases, just as one well-constructed experiment often suffices for the establishment of a law.
+ - There is a collective as well as an individual humor inclining peoples to sadness or cheerfulness, making them see things in bright or somber lights. In fact, only society can pass a collective opinion on the value of human life; for this the individual is incompetent.
+ - An act cannot be defined by the end sought by the actor, for an identical system of behaviour may be adjustable to too many different ends without altering its nature.
+ - Man could not live if he were entirely impervious to sadness. Many sorrows can be endured only by being embraced, and the pleasure taken in them naturally has a somewhat melancholy character.
+ - Our excessive tolerance with regard to suicide is due to the fact that, since the state of mind from which it springs is a general one, we cannot condemn it without condemning ourselves; we are too saturated with it not partly to excuse it.
+ - It is only by historical analysis that we can discover what makes up man, since it is only in the course of history that he is formed.
+ - Men have been obliged to make for themselves a notion of what religion is, long before the science of religions started its methodical comparisons.
+ - That men have an interest in knowing the world which surrounds them, and consequently that their reflection should have been applied to it at an early date, is something that everyone will readily admit.
+
+51 quotes

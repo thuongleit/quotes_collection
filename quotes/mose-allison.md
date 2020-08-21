@@ -1,0 +1,34 @@
+ - The things that really matter don’t mix with idle chatter.
+ - I have no idea what I’m doin’. I’ve never seen me.
+ - You always want to write the perfect song. But no one will ever write the perfect song, I guess. I would just like to write on that has all the elements of what I’m tring to do. And I’m working on it. I’m always working on it.
+ - I’ve been able to do pretty well. I don’t work as many consecutive nights as I used to, but I’m still working over 100 nights a year, so that’s good for me.
+ - Ever since the world ended, I don’t go out as much.
+ - My dad was a self-taught stride piano player. The myth is – I don’t whether it’s true or not – that he taught himself to play by watching a player piano.
+ - If it’s worth remembering, I’ll remember it. If something keeps coming back, if I keep thinking of that phrase, if I see manifestations of it at different times and different places, then I feel it’s worth making a song out of.
+ - I went through the whole number, you know. The swing era, the boogie woogie era, the bebop era. Thelonious Monk is still one of my favorites. So a lot of these people had their effect on me.
+ - I was taking chemical engineering. But I went into the army after that. When I came out of the army, I was a different person. I met a lot of good jazz players in the army.
+ - I never thought I was playing black music. I was just playing music, the stuff I liked. I sang blues at parties and things when I was a kid.
+ - I don’t care what anyone does, as long as they go through the copyright office.
+ - I’m not inspired by songwriting at all; that took place years ago. I’m pretty well established, as far as my influences go. I don’t listen to music anymore. It all sounds the same to me.
+ - I start out with words, with the idea, the line. Then after I get a line or two, I try to find what melodic line those lines would be suited to. As soon as I find the form I can finish the song in my head.
+ - The idea was I’d never amount to anything in music, The theme there was that I was talented, but I wouldn’t work hard enough to do anything with it.
+ - I started going to a piano teacher at 5 years old, but pretty soon I started picking things out on my own and stopped taking music lessons. I never could read music very well, but I’ve still been doing it.
+ - My main influences have always been the classic jazz players who sang, like Louis Armstrong and Nat King Cole and Jack Teagarden.
+ - All the classic jazz players all sang and a lot of ’em sang blues.
+ - As far as I’m concerned, the essentials of jazz are: melodic improvisation, melodic invention, swing, and instrumental personality.
+ - I been getting good crowds. It only took 50 years.
+ - I’m improvising all the time. Everything I do is improvised. On the piano, at least.
+ - I’m always storing away phrases and ideas and things that I think might turn into songs.
+ - I just try to do as good job with the material as I can and play some jazz as well, some improvised music, and do that every night. Just see where it goes.
+ - I never sit down and write. I just sorta let things form in my brain.
+ - I do some concerts. At the moment, I’m being helped a lot by a gig I play in London, which is Pizza Express.
+ - I just have a lot off different influences.
+ - I do very few standards. Hardly any. Other people’s tunes that I do are usually obscure tunes, for the most part, although I do a couple of Duke Ellington tunes that are well known.
+ - And Lennie Tristano I like a lot, I still like him.
+ - I finally decided if I was going to make a living, I was gonna have to come to New York.
+ - I’m happy whenever anybody does my material. I don’t care what they do with it. I do what I want to with other people’s songs.
+ - I sang and wrote songs when I was 12 years old.
+ - I don’t sit down to write a song; they just come to me from something that somebody says, or something in the news. The punchline comes to me, and I go over it in my head and get the song form. I hadn’t been doing that a lot.
+ - I’ve heard some tunes in recent years that were pretty close to that same idea. The idea was you turn on the radio and you want to hear some music and up comes a commercial.
+
+32 quotes

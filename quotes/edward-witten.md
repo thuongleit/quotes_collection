@@ -1,0 +1,26 @@
+ - Quantum mechanics brought an unexpected fuzziness into physics because of quantum uncertainty, the Heisenberg uncertainty principle. String theory does so again because a point particle is replaced by a string, which is more spread out.
+ - Even before string theory, especially as physics developed in the 20th century, it turned out that the equations that really work in describing nature with the most generality and the greatest simplicity are very elegant and subtle.
+ - But the beauty of Einstein’s equations, for example, is just as real to anyone who’s experienced it as the beauty of music. We’ve learned in the 20th century that the equations that work have inner harmony.
+ - There is a difference between knowing what is true and knowing why it is true.
+ - You enter a completely new world where things aren’t at all what you’re used to.
+ - I have a tendency, more than most other physicists, to try to figure out everything all at once, before I publish. And even to try to figure out everything in my head, without pencil and paper.
+ - String theory is 21 st century physics that fell accidentally into the 20th century.
+ - One of the basic things about a string is that it can vibrate in many different shapes or forms, which gives music its beauty.
+ - String theory is an attempt at a deeper description of nature by thinking of an elementary particle not as a little point but as a little loop of vibrating string.
+ - As for the forces, electromagnetism and gravity we experience in everyday life. But the weak and strong forces are beyond our ordinary experience. So in physics, lots of the basic building blocks take 20th- or perhaps 21st-century equipment to explore.
+ - One very important aspect of string theory is definitely testable. That was the prediction of supersymmetry, which emerged from string theory in the early ’70s.
+ - In Einstein’s general relativity the structure of space can change but not its topology. Topology is the property of something that doesn’t change when you bend it or stretch it as long as you don’t break anything.
+ - We know a lot of things, but what we don’t know is a lot more.
+ - So when you ask me how string theory might be tested, I can tell you what’s likely to happen at accelerators or some parts of the theory that are likely to be tested.
+ - M stands for Magic, Mystery, or Matrixaccording to taste.
+ - I have a much easier time imagining how we would understand the big bang, even though we can’t do it yet, than I can imagine understanding consciousness.
+ - The theory has to be interpreted that extra dimensions beyond the ordinary four dimensions the three spatial dimensions plus time are sufficiently small that they haven’t been observed yet.
+ - There was a long history of speculation that in quantum gravity, unlike Einstein’s classical theory, it might be possible for the topology of spacetime to change.
+ - I wouldn’t have thought that a wrong theory should lead us to understand better the ordinary quantum field theories or to have new insights about the quantum states of black holes.
+ - If I take the theory as we have it now, literally, I would conclude that extra dimensions really exist. They’re part of nature. We don’t really know how big they are yet, but we hope to explore that in various ways.
+ - Im actually, for the most part, a complete agnostic politically.
+ - As far as extra dimensions are concerned, very tiny extra dimensions wouldn’t be perceived in everyday life, just as atoms aren’t: we see many atoms together but we don’t see atoms individually.
+ - It’s indeed surprising that replacing the elementary particle with a string leads to such a big change in things. I’m tempted to say that it has to do with the fuzziness it introduces.
+ - As of now, string theorists have no explanation of why there are three large dimensions as well as time, and the other dimensions are microscopic. Proposals about that have been all over the map.
+
+24 quotes

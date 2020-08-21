@@ -1,0 +1,34 @@
+ - Losing is essential to anyone’s success. The more you lose, the more you want to win.
+ - It’s like the animal kingdom. Adapt or go extinct.
+ - I’m good at everything.
+ - How’s the game changed in my 15 years in the league? Well, we used to be called hard-working players. Now we’re overpaid crybabies.
+ - You have to know how to score.
+ - I don’t like hockey. I’m just good at it.
+ - If you have an active mind, it always helps. You know, people who don’t do crosswords, their minds fall asleep. That’s why I do them-my mind is always working. One day my brain is going to explode through the top of my head.
+ - He’s the kind of guy who will stab you in the back right to your face.
+ - Don’t worry what people say or what people think. Be yourself.
+ - I’m not done yet making people miserable. If they’re going to make me miserable, then I’m going to make them miserable.
+ - I’m not dumb enough to be a goalie.
+ - I’m patient with crossword puzzles and the most impatient golfer.
+ - I am very proud to align myself with Miken – a brand known as an innovator and leader in the development of high performance sports equipment.
+ - I’m known as a winner now.
+ - Baseball has all the money.
+ - Anything that’s signed by me on EBay is a forgery and not authentic.
+ - My son’s 8 he loves his skateboarding and his bike and his snowboard.
+ - You know what? I did! I impressed myself just making it.
+ - You know what? I don’t care. I’m my own guy. I’m very secure with my sexuality. I can cry anytime I want.
+ - You know what, I had 11 great years with St. Louis. My gosh, those are the best years of my life. And I will never, ever forget that.
+ - I am 10 times smarter than everyone else in this game. Beyond a shadow of a doubt.
+ - I see myself playing as long as I am partially enjoying the game and partially successful and they are paying me. But honestly, two more years is about all I can take.
+ - Bob Goodenow will kill me, but if we’re going to be realistic about things, probably 75 per cent of the league is overpaid. But we’re not paying ourselves. There are people giving it to us and no one is putting a gun to their heads. Something has to be done if we’re going to fix this.
+ - My teeth have never been touched. Why did I tell you that? Knock on wood. I’ve got a few scars over the eyes, a couple on the chin, a few on the beak and one across the cheek. But my luck is running out.
+ - Sometimes guys need to cry. Some hockey players think they’re too tough to cry.
+ - I’m realistic. And realistically, I’m not that type of player that earns that type of money any more. So I’d be willing to take a little cut to get a couple of extra years.
+ - Do I catch flak because I’m so much smarter than everyone else? I don’t know.
+ - I’m very impatient. I am. That’s the bane of my game. I don’t think about what I’m going to do – I just go hit it, I don’t stop to wait and think. Costs me two shots a round.
+ - Hockey is its own game. It’s completely different than all the other games, although it’s getting way too close to soccer.
+ - I bet you there’s a lot of guys who dream of having a girl that fine.
+ - I think the biggest thing for me is being able to adjust to the way the game has changed. It’s basically a 180-degree turn from the style I like to play. That’s what I think I’m most proud of, being able to fit into this style of game and still be fairly successful.
+ - If you’re going to play hockey now, you have to be able to play. If you have the ability to fight and play, you’re an unbelievable commodity. But if you can only fight, there might be six of those guys left in the league, and I can guarantee they’re going fast.
+
+32 quotes

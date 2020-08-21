@@ -1,0 +1,170 @@
+ - And suddenly you know: It’s time to start something new and trust the magic of beginnings.
+ - If the only prayer you ever say in your entire life is thank you, it will be enough.
+ - Be willing to be a beginner every single morning.
+ - The price of inaction is far greater than the cost of making a mistake.
+ - God is not found in the soul by adding anything but by a process of subtraction.
+ - God is at home, it’s we who have gone out for a walk.
+ - The most important hour is always the present. The most significant person is precisely the one sitting across from you right now. The most necessary work is always love.
+ - There is nothing so much like God in all the universe as silence.
+ - The eye through which I see God is the same eye through which God sees me; my eye and God’s eye are one eye, one seeing, one knowing, one love.
+ - Every creature is a word of God.
+ - Above all else, know this: Be prepared at all times for the gifts of God and be ready always for new ones. For God is a thousand times more ready to give than we are to receive.
+ - Apprehend God in all things, for God is in all things. Every single creature is full of God and is a book about God. Every creature is a word of God.
+ - The seed of God is in us: Pear seeds grow into pear trees; Hazel seeds into hazel trees; And God seeds into God.
+ - The beast that bears you fastest to perfection is suffering.
+ - The Ultimate and Highest leave taking is leaving God for GOD, leaving your notion of God for an Experience of That which transcends all notions.
+ - God holds each of us by a string. When we sin, we cut the string. But God ties it up again, making a knot. Each time our wrongdoing cuts the string, God ties another knot drawing us up closer to Him.
+ - Compassion is where peace and justice kiss.
+ - Do exactly what you would do if you felt most secure.
+ - Spirituality is not to be learned by flight from the world, or by running away from things, or by turning solitary and going apart from the world. Rather, we must learn an inner solitude wherever or with whomsoever we may be. We must learn to penetrate things and find God there.
+ - God is greater than God.
+ - There is a huge silence inside each of us that beckons us into itself, and the recovery of our own silence can begin to teach us the language of heaven.
+ - You may call God love, you may call God goodness. But the best name for God is compassion.
+ - It is in the darkness that one finds the light.
+ - Only the hand that erases can write the true thing.
+ - To the quiet mind all things are possible.
+ - Whatever God does, the first outburst is always compassion.
+ - God expects but one thing of you, and that is that you should come out of yourself in so far as you are a created being made and let God be God in you.
+ - For the person who has learned to let go and let be, nothing can ever get in the way again.
+ - As God can only be seen by His own light, so He can only be loved by His own love.
+ - Truly, it is in darkness that one finds the light, so when we are in sorrow, then this light is nearest of all to us.
+ - When the Soul wants to experience something she throws out an image in front of her and then steps into it.
+ - There is no stopping place in this life – nor is there ever one for any person, no matter how far along the way one’s gone.
+ - What we plant in the soil of contemplation, we shall reap in the harvest of action.
+ - A pure heart is one that is unencumbered, unworried, uncommitted and which does not want its own way about anything but which, rather, is submerged in the loving will of God.
+ - God is like a person who clears his throat while hiding and so gives himself away. God lies in wait for us with nothing so much as love.
+ - Nothing in all creation is so like God as stillness.
+ - Love is the root of all joy and sorrow.
+ - This then is salvation – when we marvel at the beauty of created things and praise their beautiful Creator.
+ - God cannot know himself without me.
+ - Only those who have dared to let go can dare to re-enter.
+ - Theologians may quarrel, but the mystics of the world speak the same language.
+ - What good is it to me that Mary gave birth to the son of God fourteen hundred years ago, and I do not also give birth to the Son of God in my time and in my culture? We are all meant to be mothers of God. God is always needing to be born.
+ - God is a great underground river that no one can dam up and no one can stop.
+ - Everything is meant to be lost, that the soul may stand in unhampered nothingness.
+ - As long as I am this or that, or have this or that, I am not all things and I have not all things. Become pure till you neither are nor have either this or that; then you are omnipresent and, being neither this nor that, are all things.
+ - To the extent that you eliminate ego from your activities, God comes into them – but no more and no less. Begin with that, and let it cost you your uttermost. In this way, and no other, is true peace to be found.
+ - The shell must be cracked apart if what is in it is to come out, for if you want the kernel you must break the shell.
+ - The knower and the known are one. Simple people imagine that they should see God as if he stood there and they here. This is not so. God and I, we are one in knowledge.
+ - God is intelligence occupied with knowing itself.
+ - To grasp God in all things – this is the sign of your new birth.
+ - God is equally near in all creatures.
+ - Nobody at any time is cut off from God.
+ - God is at his greatest when I am at my least.
+ - Love God, and do as you like, say the Free Spirits. Yes; but as long as you like anything contrary to God’s will, you do not love Him.
+ - Let God work in you, give the work to God, and have peace. Don’t worry if He works through your nature or above your nature, because both are His, nature and grace.
+ - People who dwell in God dwell in the eternal now.
+ - The soul does not grow by addition but by subtraction.
+ - I have a capacity in my soul for taking in God entirely. I am as sure as I live that nothing is so near to me as God.
+ - Stillness is where creativity and solutions are found.
+ - Remember this: all suffering comes to an end. And whatever you suffer authentically, God has suffered from it first.
+ - To walk on not wondering am I right or doing something wrong.
+ - Do not think that saintliness comes from occupation; it depends rather on what one is. The kind of work we do does not make us holy, but we may make it holy.
+ - Whatever thou sayest of God is untrue.
+ - When a man sees the one in all things, he is above mere understanding.
+ - If the seal is pressed completely through the wax so that no wax remains without being impressed by the seal, then it becomes indistinguishably one with the seal. Similarly the soul becomes completely united with God.
+ - I have often said that a person who wishes to begin a good life should be like one who draws a circle. Let him or her get the center in the right place and keep it so and the circumference will be good.
+ - People who have let go of themselves are so pure that the world cannot harm them.
+ - I am as sure as I live that nothing is so near to me as God. God is nearer to me than I am to myself; my existence depends on the nearness and the presence of God.
+ - We shall find God in everything alike, and find God always alike in everything.
+ - Knowledge comes through likeness. And so because the soul may know everything, it is never at rest until it comes to the original idea, in which all things are one. And there it comes to rest in God.
+ - People should not worry so much about what they do but rather about what they are.
+ - The more deeply we are our true selves, the less self is in us.
+ - When I think of God’s Kingdom, I am compelled to be silent because of its immensity, because God’s Kingdom is none other than God himself with all His riches.
+ - The quieter the mind, the more powerful, the worthier, the deeper, the more telling and more perfect the prayer is.
+ - God is nearer to me than I am to myself; He is just as near to wood and stone, but they do not know it.
+ - God wants nothing from you but the gift of a peaceful heart.
+ - I maintain that all sorrow comes from love of those things of which loss deprives me.
+ - God is not good, or else he could do better.
+ - I tell you the truth, any object you have in your mind, however good, will be a barrier between you and the inmost Truth.
+ - To be properly expressed a thing must proceed from within, moved by its form: it must come, not in from without but out from within.
+ - All God wants of man is a peaceful heart.
+ - One must not always think so much about what one should do, but rather what one should be. Our works do not ennoble us; but we must ennoble our works.
+ - In this breaking-through, I receive that God and I are one. Then I am what I was, and then I neither diminish nor increase, for I am then an immovable cause that moves all things.
+ - The soul must long for God in order to be set aflame by God’s love; but if the soul cannot yet feel the longing, then it must long for the longing. To long for the longing is also from God.
+ - Time is what keeps the light from reaching us. There is no greater obstacle to God than time: and not only time but temporalities, not only temporal things but temporal affections, not only temporal affections but the very taint and smell of time.
+ - Relation is the essence of everything that exists.
+ - God is bound to act, to pour Himself into thee as soon as He shall find thee ready.
+ - The outward work can never be small if the inward one is great, and the outward work can never be great or good if the inward is small or of little worth.
+ - God does not work in all hearts alike, but according to the preparation and sensitivity He finds in each.
+ - No-one knows what the soul is. But what we do know is, the soul is where God works compassion.
+ - The soul is created in a place between Time and Eternity: with its highest powers it touches Eternity, with its lower Time.
+ - For a heart to be perfectly ready it has to be perfectly empty. In this condition it has attained its maximum capacity.
+ - This is not only a commandment but also a promise or reward.
+ - Truth is something so noble that if God could turn aside from it, I could keep the truth and let God go.
+ - He who would be serene and pure needs but one thing, detachment.
+ - I may err but I am not a heretic, for the first has to do with the mind and the second with the will!
+ - Be ready at all times for the gifts of God, and always for new ones.
+ - Only those to whom God is present in everything and who employ their reason in the highest degree and have true enjoyment in it know anything of true peace and have a real kingdom of heaven.
+ - Though it may be called a nescience, and unknowing, yet there is in it more than all knowing and understanding without it; for this unknowing lures and attracts you from all understood things, and from yourself as well.
+ - Therefore, look only for this fishhook, and you will be happily caught. The more you are caught, the more you will be liberated.
+ - Where intuition finds, love follows, and memory and all the soul as well.
+ - The very best and highest attainment in this life is to remain still and let God act and speak in you.
+ - Love is as strong as death, as hard as Hell. Death separates the soul from the body, but love separates all things from the soul.
+ - One person who has mastered life is better than a thousand persons who have mastered only the contents of books, but no one can get anything out of life without God.
+ - What a man takes in by contemplation, that he pours out in love.
+ - The now wherein God made the world is as near this time as the now I am speaking in this moment, and the last day is as near this now as was yesterday.
+ - If you seek the kernel, then you must break the shell. An likewise, if you would know the reality of Nature, you must destroy the appearance, and the farther you go beyond the appearance, the nearer you will be to the essence.
+ - The soul at its highest is found like God, but an angel gives a closer idea of him. That is all an angel is: an idea of God.
+ - If God gave the soul his whole creation she would not be filled thereby but only with himself.
+ - When I experience Love I must go to God. When I experience non-attachment God must come to me.
+ - Outward as well as inward morality helps to form the idea of a true Christian freedom. We are right to lay stress on inwardness, but in this world there is no inwardness without an outward expression.
+ - One must learn an inner solitude, wherever one may be.
+ - The man who has submitted his will and purposes entirely to God, carries God with him in all his works and in all circumstances.
+ - Words derive their power from the original word.
+ - No one is forgotten. It is a lie, any talk of God that does not comfort you.
+ - In silence man can most readily preserve his integrity.
+ - There are plenty to follow our Lord half-way, but not the other half. They will give up possessions, friends and honors, but it touches them to closely to disown themselves.
+ - A life of rest and peace in God is good; a life of pain lived in patience is still better; but to have peace in a life of pain is best of all.
+ - The soul loves the body. And consider too how it is that the body is more in the soul than the soul is in the body.
+ - My Lord told me a joke. And seeing Him laugh has done more for me than any scripture I will ever read.
+ - Even stones have a love, a love that seeks the ground.
+ - Our bodily food is changed into us, but our spiritual food changes us into it.
+ - God is at home. We are in the far country.
+ - If we seek God for our own good and profit, we are not seeking God.
+ - There is no greater valor nor no sterner fight. He who would be what he ought to be must stop being what he is.
+ - Man goes far away or near but God never goes far-off; he is always standing close at hand, and even if he cannot stay within he goes no further than the door.
+ - Jesus might have said, I became man for you. If you do not become God for me, you wrong me.
+ - Wisdom consists in doing the next think you have to do, doing it with your whole heart, and finding delight in doing it.
+ - The outward work will never be puny if the inward work is great.
+ - Become aware of what is in you. Announce it, pronounce it, produce it, and give birth to it.
+ - The human spirit must transcend number and break through multiplicity, and God will break through him; and just as He.
+ - Even now one rarely hears of people achieving great things unless they first stumble in some respect.
+ - Our best chance of finding God is to look in the place where we left him.
+ - This much is certain: when a man is happy, happy to the core and root of beatitude, he is no longer conscious of himself or anything else.
+ - I need to be silent for awhile, worlds are forming in my heart.
+ - As long as I am this or that, I am not all things.
+ - When God sends his angel to the soul it becomes the one who knows for sure.
+ - He who can make distinction in God without number or quantity, knows that the three persons of the Trinity are one God.
+ - For then I knew my soul – every soul – has always held Him.
+ - The outward man is the swinging door; the inner man is the still hinge.
+ - By humility, out of an enemy He has made a friend, which is more than to have created a new earth.
+ - I am what I wanted and I want what I am.
+ - There is in the soul a something in which God dwells, and there is in the soul a something in which the soul dwells in God.
+ - One must learn an inner solitude, where or with whomsoever he may be. He must learn to penetrate things and find God there, to get a strong impression of God firmly fixed on his mind.
+ - Through the higher love the whole life of man is to be elevated from temporal selfishness to the spring of all love, to God: man will again be master over nature by abiding in God and lifting her up to God.
+ - And so, too, I speak of love: he who is held by it is held by the strongest of bonds, and yet the stress is pleasant. Moreover, he can sweetly bear all that happens to him. When one has found this bond, he looks for no other.
+ - Let God operate in thee; Hand the work over to Him and do not disquiet thyself as to whether or no He is working with nature or above nature, for His are both nature and grace.
+ - Now rejoice, all ye powers of my soul, that you are so united with God that no one may separate you from Him. I cannot fully praise nor love Him therefore must I die, and cast myself into the divine void, till I rise from non-existence to existence.
+ - The greatest power available to man is not to use it.
+ - God is in all things, but so far as God is Divine and so far as He is rational, God is nowhere so properly as in the soul – in the innermost of the soul.
+ - To seek God by rituals is to get the ritual and lose God in the process.
+ - It is not by your actions that you will be saved, but by your being.
+ - Do not cling to the symbols, but get to the inner truth!
+ - God is the word that speaks itself.
+ - The Father and the Son have one Will, and that Will is the Holy Ghost, Who gives Himself to the soul so that the Divine Nature permeates the powers of the soul so that it can only do God-like works.
+ - Your own efforts “did not bring it to pass,” only God-but rejoice if God found a use for your efforts in His work.
+ - When you are thwarted, it is your own attitude that is out of order.
+ - All that the Eternal Father teaches and reveals is His being, His nature, and His Godhead, which He manifests to us in His Son, and teaches us that we are also His Son.
+ - A just person is one who is conformed and transformed into justice.
+ - Nothing is sharper than suffering, nothing is sweeter than to have suffered.
+ - What our Lord did was done with the intent, and this alone, that he might be with us and we with him.
+ - Think more about who you are and less about what you do, for if you are just, your ways will be just.
+ - Action and becoming are one.
+ - Everything is full and pure at its source and precisely there, not outside.
+ - The love by which we love God is the very same love with which God has first loved us.
+ - Whoever possesses God in their being has Him in a divine manner, and He shines out to them in all things; for them all things taste of God and in all things it is God’s image that they see.
+ - No man was ever lost except for one reason: having once left his ground he has let himself become too permanently settled abroad.
+ - Things are all made from nothing; hence their true source is nothing.
+
+168 quotes

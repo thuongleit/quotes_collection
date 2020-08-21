@@ -1,0 +1,37 @@
+ - You have to focus on the process. You cannot be glued to the results.
+ - I believe the brain is like a muscle – like any other it can be improved.
+ - I enjoy life. I always enjoy jokes.
+ - I just travel all the time.
+ - I am not playing Wimbledon because I am allergic to grass.
+ - If you look at any superior athlete, you will find a strong parental influence. Parents introduce their children to a sport, and then they support them.
+ - He’s a haircut and a forehand.
+ - I have seriously thought about retiring, but that was on a good day. On a bad day I’ve thought about killing myself.
+ - When I lose, it doesn’t just go to my head; it goes to my heart too. If you’re at all in the match, if you love to play and ein, it must go to your heart.
+ - I’m certainly not sorry that there were some things I missed. You may think you’re missing something at that time but later when you look at it, you didn’t miss anything.
+ - You know how kids are. They like to do what parents do.
+ - Too many people asking too many questions in tennis. Golf is better.
+ - It’s very nice to see when somebody who wanted to work hard and is willing to put the work in gets rewarded for it.
+ - Not winning at Wimbledon is not going to bother me forever.
+ - I think talent is dangerous to have if you take it for granted. If you use it well and put hard work with it together, it’s hard to catch that guy. And I think that’s what you’re seeing right now.
+ - I don’t make a habit of watching tennis matches, but I try to watch all the major finals. I try to make time for that. So unless I have something going with the kids where I can’t, I try to watch, and I enjoy that.
+ - My serve and my forehand I pretty much always had, but my backhand was a made backhand. I worked on it for years.
+ - Don’t mistake activity for achievement – practice the right way. – John Wooden I only play well when I’m prepared. If I don’t practice the way I should, then I won’t play the way that I know I can.
+ - I just travel all the time. And I was just looking at the schedules now and starting the first week of October I will be every weekend with somebody at tournaments through Christmas. So it gets very difficult to just go away and not do that.
+ - Once you win, you have no doubt that you can win. So you have gone through it once, and you can do it again.
+ - People may say I developed an iron will, but what really happened is that I made myself much fitter. I think an iron will is always supported by fitness.
+ - If you become great, then you can become happy. If you’re happy first, it’s much more difficult to be great.
+ - If I don’t practice the way I should, then I won’t play the way that I know I can.
+ - I certainly don’t lose any sleep if I lose a tennis match.
+ - What I like about golf is there are no bad calls.
+ - I got bad calls every match, and I never got an apology. So I thought it was rather strange.
+ - Many times the players get in there and it’s just about as well as they could have done, and other times they get in there and they favorites and they don’t win.
+ - If you lose, it hurts, but as long as you have fought hard, you can still feel good about yourself.
+ - It’s flattering to be compared in any way to Tiger Woods, because he’s the best player in the world.
+ - Because in order to beat Jimmy, I had to get around the ball a little bit quicker so I wasn’t always on defensive and catching the ball on last stride, that I had little more time. Once I was able to get little bit quicker, then it has helped me a lot.
+ - But to be fair, if you take players from my era to now, the game has changed and the players have many more shots. They use them differently than we did. The speed of the game has changed.
+ - Tennis is not like other sports where the coach is hired by an independent entity, and that makes a huge difference in the dynamic.
+ - I was between 2 and 3 in the world for two, three years. That’s not exactly where I wanted to be.
+ - If you go to school and practice for five days a week, it still gives you two days you can go and see your friends, you can go to the movies, you do whatever you like to do.
+ - But it’s very difficult, I can tell you I played the Czech Open a few times and it’s very difficult just to go on to a scene where the course is prepared differently when the greens are fast and he’s not used to it and they’re hard as a rock and he’s not used to it.
+
+35 quotes

@@ -1,0 +1,60 @@
+ - Be bold, free, and truthful.
+ - This is what I learned: that everybody is talented, original and has something important to say.
+ - Consistency is the horror of the world.
+ - Try to discover your true, honest, untheoretical self.
+ - I will tell you what I have learned myself. For me, a long five or six mile walk helps. And one must go alone and every day.
+ - Listening is a magnetic and strange thing, a creative force. When we really listen to people there is an alternating current, and this recharges us so that we never get tired of each other. We are constantly being re-created.
+ - We are always afraid to start something that we want to make very good, true, and serious.
+ - Since you are like no other being ever created since the beginning of time, you are incomparable.
+ - The imagination needs moodling, – long, inefficient happy idling, dawdling and puttering.
+ - When we are listened to, it creates us, makes us unfold and expand. Ideas actually begin to grow within us and come to life.
+ - When we commit ourselves to writing for some part of each day, we are happier, more enlightened, alive, light-hearted and generous to everyone else. Even our health improves.
+ - Inspiration does not come like a blot, nor is it kinetic energy striving, but it comes to us slowly and quietly all the time.
+ - All children have creative power.
+ - Don’t always be appraising yourself, wondering if you are better or worse than other writers. “I will not Reason and Compare,” said Blake; “my business is to Create.” Besides, since you are like no other being ever created since the beginning of Time, you are incomparable.
+ - Write a true, careless, slovenly impulsive, honest diary every day of your life.
+ - Inspiration comes to us slowly and quietly. prime it with a little solitude.
+ - If you are never satisfied with what you write, that is a good sign. It means that your vision can see so far that it’s hard to come up to it. Again I say – the only unfortunate people are the glib ones, immediately satisfied with their work. To them, the ocean is only knee-deep.
+ - You do not know what is in you – an inexhaustible fountain of ideas.
+ - The true self is always in motion like music, a river of life, changing, moving, failing, suffering, learning, shining. That is why you must freely and recklessly make new mistakes – in writing or in life – and do not fret about them but pass on and write more.
+ - Everyone knows how people who laugh easily create us by their laughter, – making us think of funnier and funnier things.
+ - Everybody is talented because everybody who is human has something to express.
+ - You know, I have come to think listening is love, that’s what it really is.
+ - We are always doing something, talking, reading, listening to the radio, planning what next. The mind is kept naggingly busy on some easy, unimportant external thing all day.
+ - The only good teachers for you are those friends who love you, who think you are interesting, or very important, or wonderfully funny.
+ - You have to hold your audience in writing to the very end-much more than in talking, when people have to be polite and listen to you.
+ - If I did not wear torn pants, orthopedic shoes, frantic disheveled hair, that is to say, if I did not tone down my beauty, people would go mad. Married men would run amuck.
+ - Know that it is good to work. Work with love, and think of liking it when you do it. It is easy and interesting. It is a privilege. There is nothing hard about it but your anxious vanity and fear of failure.
+ - The best way to know the Truth or Beauty is to try to express it.
+ - You can write anything you want to, – a six-act blank verse, symbolic tragedy or a vulgar short, short story. Just so that you write it with honesty and gusto, and do not try to make somebody believe that you are smarter than you are. What’s the use? You can never be smarter than you are.
+ - Creative power flourishes only when I am living in the present.
+ - The tragedy of bold, forthright, industrious people is that they act so continuously without much thinking, that it becomes dry and empty.
+ - The writer has a feeling and utters it from his true self. The reader reads it and is immediately infected and has exactly the same feeling. This is the whole secret of enchantment and fascination.
+ - Think of yourself as an incandescent power, illuminated and perhaps forever talked to by God and his messengers.
+ - Sometimes I think of life as a process where everybody is discouraging and taking everybody else down a peg or two.
+ - I learned that you should feel when writing, not like Lord Byron on a mountain top, but like child stringing beads in kindergarten, – happy, absorbed and quietly putting one bead on after another.
+ - Self-trust is so important. When you launch on a story, make your neck loose, feel free, good-natured. And be lazy. Feel that you are going to throw it away. Try writing utterly unplanned stories and see what comes out.
+ - Science and vivisection make no appeal to a theological idea, much less a political one. You can argue with a theologian or a politician, but doctors are sacrosanct. They know; you do not. Science has its mystique much more powerful than any religion active today.
+ - I know that we live after death and again and again, not in the memory of our children, or as a mulch for trees and flowers, however poetic that may be, but looking passionately and egocentrically out of our eyes.
+ - Of course, in fairness, I must remind you of this: that we writers are the most lily-livered of all craftsmen. We expect more, for the most peewee efforts, than any other people.
+ - In true courage there is always an element of choice, of an ethical choice, and of anguish, and also of action and deed. There is always a flame of spirit in it, a vision of some necessity higher than oneself.
+ - We should all know this: that listening, not talking, is the gifted and great role, and the imaginative role.
+ - Duty should be a byproduct.
+ - It is so conceited and timid to be ashamed of one’s mistakes. Of course they are mistakes. Go on to the next.
+ - No writing is a waste of time – no creative work where the feelings, the imagination, the intelligence must work. With every sentence you write, you have learned something. It has done you good.
+ - And the true listener is much more beloved, magnetic than the talker, and he is more effective and learns more and does more good.
+ - So remember these two things: you are talented and you are original. Be sure of that. I say this because self-trust is one of the very most important things in writing...
+ - We start out in our lives as little children, full of light and the clearest vision.
+ - If you would shut your door against the children for an hour a day and say: ‘Mother is working on her five-act tragedy in blank verse!’ you would be surprised how they would respect you. They would probably all become playwrights.
+ - Advertising companies hire the very brightest, wittiest young people to write for them. Not one single sentence of it is worth repeating. Why? Because it wasn’t meant.
+ - Know that it is good to work. Work with love and think of liking it when you do it.
+ - Even if I knew for certain that I would never have anything published again, and would never make another cent from it, I would still keep on writing.
+ - It is only by expressing all that is inside that purer and purer streams come.
+ - These people who are always briskly doing something and as busy as waltzing mice, they have little, sharp, staccato ideas, such as: “I see where I can make an annual cut of $3.47 in my meat budget.” But they have no slow, big ideas.
+ - There is that American pastime known as “kidding” – with the result that everyone is ashamed and hangdog about showing the slightest enthusiasm or passion or sincere feeling about anything.
+ - The only way to write well, so that people believe what we say and are interested or touched by it, is to slough off all pretentiousness and attitudinizing.
+ - Writing is the action of thinking, just as drawing is the action of seeing and composing music is the action of hearing.
+ - Families are great murderers of the creative impulsive, particularly husbands.
+ - You must become aware of the richness in you and come to believe in it and know it is there, so that you can write opulently and with self-trust. If you once become aware of it and have faith in it, you will be all right.
+
+58 quotes

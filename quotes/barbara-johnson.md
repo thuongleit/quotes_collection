@@ -1,0 +1,58 @@
+ - Change is a process not an event.
+ - Never let a problem to be solved become more important than a person to be loved.
+ - Faith is seeing light with your heart when all your eyes see is darkness.
+ - True love doesn’t have a happy ending, because true love never ends. Letting go is one way of saying I love you.
+ - Prayer is asking for rain and faith is carrying the umbrella.
+ - Attitude is the mind’s paintbrush; it can color any situation.
+ - Don’t let your life speed out of control. Live intentionally. Do something today that will last beyond your lifetime.
+ - Life is too short to spend it being angry, bored, or dull.
+ - We are Easter people living in a Good Friday world.
+ - Winners see an answer for every problem; losers see a problem in every answer!
+ - Patience is the ability to idle your motor when you feel like stripping your gears.
+ - Stop what you are doing long enough to enjoy the sunset, listen to a special song that lifts you up, or pick up the phone and share some special thought with a caring friend.
+ - Live for today, but hold your hands open to tomorrow. Anticipate the future and its changes with joy. There is a seed of God’s love in every event, every unpleasant situation in which you may find yourself.
+ - It never hurts your eyesight to look on the bright side of things.
+ - We spend our lives dreaming of the future, not realizing that a little of it slips away every day.
+ - Choices not chance determine your destiny.
+ - Allow your dreams a place in your prayers and plans. God-given dreams can help you move into the future He is preparing for you.
+ - A balanced diet is a cookie in each hand.
+ - Have we forgotten that we’re all born the same way: naked, wet, and hungry? Then things get worse!
+ - Motherhood: if it were going to be easy, it never would have started with something called labor.
+ - Love is what makes two people sit in the middle of a bench when there is plenty of room at both ends.
+ - Growing is a lifetime job, and we grow most when we’re down in the valleys, where the fertilizer is.
+ - A lot of kneeling keeps one in good standing.
+ - Grudges are like hand grenades: it is wise to release them before they destroy you.
+ - Humor is the chocolate chips in the ice cream of life.
+ - We cannot protect ourselves from trouble, but we can dance through the puddles of life with a rainbow smile, twirling the only umbrella we need – the umbrella of God’s love.
+ - You have to look for the joy. Look for the light of God that is hitting your life, and you will find sparkles you didn’t know were there.
+ - The attitude of kindness is everyday stuff like a great pair of sneakers. Not frilly. Not fancy. Just plain and comfortable.
+ - I’m glad God has all the answers, ’cause I barely understand the questions.
+ - If you can forgive the person you were, accept the person you are, and believe in the person you will become, you are headed for joy. So celebrate your life.
+ - As you’re rushing through life, take time to stop a moment, look into people’s eyes, say something kind, and try to make them laugh!
+ - Laughter dulls the sharpest pain and flattens out the greatest stress. To share it is to give a gift of health.
+ - The joy of motherhood: what a mother experiences when all her children are in bed.
+ - We can choose to gather to our hearts the thorns of disappointment, failure, loneliness, and dismay in our present situation. Or we can gather the flowers of God’s grace, boundless love, abiding presence, and unmatched joy. I choose to gather the flowers.
+ - When we have hope, we are showing that we trust God to work out the situation. Trust is the only way we’re going to make it through and be a part of God’s marvelous plan for His child.
+ - Worry is the senseless process of cluttering up tomorrows opportunities with leftover problems from today.
+ - Forgiveness is a stunning principal, your ticket out of hate and fear and chaos. I know what regret feels like; I’ve earned my credentials. But I also know what forgiveness feels like, because God has so graciously forgiven me. Forgiveness frees you of the past so you can make good choices today.
+ - God will never let you sink under your circumstances. He always provides a safety net and His love always encircles.
+ - I don’t have to figure out why or how or when. God has a plan, and I’m committed to it. That commitment frees me from having to worry about the details.
+ - My karma just ran over my dogma.
+ - We are destined for joy no matter how difficult our daily life. Something in us responds to the happiness other people experience, because we glimpse life as God intended it to be.
+ - The secret of growing younger is counting blessings, not birthdays.
+ - Always remember that better days are ahead – if not in this life, in the next.
+ - If we give someone a piece of bread and butter, that’s kindness, but if we put jelly or peanut butter on it, then it’s Loving Kindness.
+ - How will you use the years God gives you? Will you be remembered for being a fault-finder? Or will you be known for your quick smile, the laugh lines around your eyes, and the twinkle deep within? After all, God gives you your face, but you provide the expression!
+ - Laughter is to life what shock absorbers are to automobiles. It won’t take the potholes out of the road, but it sure makes the ride smoother.
+ - The most important things in your home are people.
+ - Your face is a billboard advertising your philosophy of life!
+ - We can never untangle all the woes in other people’s lives. We can’t produce miracles overnight. But we can bring a cup of cool water to a thirsty soul, or a scoop of laughter to a lonely heart.
+ - Being codependent means that when you die, someone else’s life passes before your eyes.
+ - Kids can be a pain in the neck when they’re not a lump in your throat.
+ - All we can take with us to heaven is what we leave behind in the lives we touch.
+ - Forgiveness is a stunning principle, your ticket out of hate and fear and chaos.
+ - I think living to be one hundred would be great, but living to fifty twice would be so much better.
+ - Old florists never die. They just make other arrangements.
+ - Everybody wants to go to heaven, but nobody wants to go there right away.
+
+56 quotes

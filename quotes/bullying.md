@@ -1,0 +1,42 @@
+ - If they don’t like you for being yourself, be yourself even more. ~~Taylor Swift
+ - Courage is fire, and bullying is smoke. ~~Benjamin Disraeli
+ - People don’t realize how badly verbal harassment and cyber bullying affects you. I wish they had hit me in the face and gotten it over with, because what they said to me, sticks to me to this day. It affected me into the person that I am today. ~~Demi Lovato
+ - Leadership is not bullying and leadership is not aggression. Leadership is the expectation that you can use your voice for good. That you can make the world a better place. ~~Sheryl Sandberg
+ - People talk about bullying, but you can be your own bully in some ways. You can be the person who is standing in the way of your success, and that was the case for me. ~~Katy Perry
+ - The malicious have a dark happiness. ~~Victor Hugo
+ - If I make a fool of myself, who cares? I’m not frightened by anyone’s perception of me. ~~Angelina Jolie
+ - We have got to dispel this myth that bullying is just a normal rite of passage. ~~Barack Obama
+ - You can only offend me if you mean something to me. ~~Chris Rock
+ - Bullying is not okay. Period. ~~Jim C. Hines
+ - I never set out to be weird. It was always other people who called me weird. ~~Frank Zappa
+ - Bullies thrive wherever authority is weak. ~~Tim Field
+ - All I can do is be me, whoever that is. ~~Bob Dylan
+ - The smaller the mind the greater the conceit. ~~Aesop
+ - We focus so much on our differences, and that is creating, I think, a lot of chaos and negativity and bullying in the world. And I think if everybody focused on what we all have in common – which is – we all want to be happy. ~~Ellen DeGeneres
+ - Things will get easier, people’s minds will change, and you should be alive to see it. ~~Ellen DeGeneres
+ - By not caring too much about what people think, I’m able to think for myself and propagate ideas which are very often unpopular. And I succeed. ~~Albert Ellis
+ - Everyone has the bully or the mean girl or the ex-boyfriend who tried to bring them down. ~~Demi Lovato
+ - Allow the world to live as it chooses, and allow yourself to live as you choose. ~~Richard Bach
+ - Usually the bullies are the most insecure. I was bullied and it’s hard, you feel like high schools never going to be over. Its four years of your life and you just have to remember the person picking on you has their own problems and their own issues. And you’re going to be ok. ~~Megan Fox
+ - You build on failure. You use it as a stepping stone. Close the door on the past. You don't try to forget the mistakes, but you don't dwell on it. You don't let it have any of your energy, or any of your time, or any of your space. ~~Johnny Cash
+ - The greater the power, the more dangerous the abuse. ~~Edmund Burke
+ - To be or not to be is not a question of compromise. Either you be or you don’t be. ~~Golda Meir
+ - Leadership means firmness, not harshness or bullying; understanding, not weakness; justice, not irresponsible freedom; humaneness, not intolerance; generosity, not selfishness; pride, not egotism. ~~Omar N. Bradley
+ - Everyone who wants to do good to the human race always ends in universal bullying. ~~Aldous Huxley
+ - Do not be bullied out of your common sense by the specialist; two to one, he is a pedant. ~~Oliver Wendell Holmes
+ - It is the lack of knowledge of, or the unwillingness to recognise, or the deliberate denial of the existence of the serial bully which is the most common reason for an unsatisfactory outcome for both employee and employer. ~~Tim Field
+ - The flagrantly gay Quentin Crisp dealt with homophobic bullying by refusing to bow to its onslaught. His number listed in the phone directory, he responded to derogatory remarks accompanied with a stated intent to kill him by asking, “Would you like to make an appointment?” ~~Quentin Crisp
+ - In fact, my courage and my bravery at a young age was the thing I was bullied for, a kind of ‘Who do you think you are?’ ~~Lady Gaga
+ - I want to help with bullying because there are girls who can’t just up and homeschool and focus on their career. ~~Demi Lovato
+ - Private property is one of the best institutions which has ever evolved, to protect us from the bullying of others. ~~Roger Scruton
+ - Not all forms of abuse leave bruises. ~~Danielle Steel
+ - Be not afraid of life. Believe that life is worth living, and your belief will help create the fact. ~~William James
+ - Throughout life people will make you mad, disrespect you and treat you bad. Let God deal with the things they do, cause hate in your heart will consume you too. ~~Will Smith
+ - If you are neutral in situations of injustice, you have chosen the side of the oppressor. If an elephant has its foot on the tail of a mouse and you say that you are neutral, the mouse will not appreciate your neutrality. ~~Desmond Tutu
+ - The human race has one really effective weapon, and that is laughter. ~~Mark Twain
+ - Anger is an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured. ~~Mark Twain
+ - The place where you made your stand never mattered. Only that you were there... and still on your feet. ~~Stephen King
+ - I think all the funny people were bullied. When they talk about outlawing bullying, it’s like, what? You want no Comedy Central? ~~Chris Rock
+ - I found one day in school a boy of medium size ill-treating a smaller boy. I expostulated, but he replied: “The bigs hit me, so I hit the babies; that’s fair.” In these words he epitomized the history of the human race. ~~Bertrand Russell
+
+40 quotes

@@ -1,0 +1,222 @@
+ - Nature is the art of God.
+ - The path to paradise begins in hell.
+ - The darkest places in hell are reserved for those who maintain their neutrality in times of moral crisis.
+ - All hope abandon, ye who enter here!
+ - The secret of getting things done is to act!
+ - Follow your own star!
+ - From a little spark may burst a flame.
+ - Because your question searches for deep meaning, I shall explain in simple words.
+ - Beauty awakens the soul to act.
+ - The devil is not as black as he is painted.
+ - In the middle of the journey of our life I came to myself within a dark wood where the straight way was lost.
+ - If your world isn’t right, the cause is in you.
+ - Follow your path, and let the people talk.
+ - The wisest are the most annoyed at the loss of time.
+ - Consider your origins: you were not made to live as brutes, but to follow virtue and knowledge.
+ - Love insists the loved loves back.
+ - Do not be afraid; our fate Cannot be taken from us; it is a gift.
+ - If you give people light, they will find their own way.
+ - Eternal love made me.
+ - Before me things created were none, save things Eternal, and eternal I endure. All hope abandon, ye who enter here.
+ - A mighty flame followeth a tiny spark.
+ - He is not always at ease who laughs.
+ - Where the way is hardest, there go thou; Follow your own path and let people talk.
+ - From there we came outside and saw the stars.
+ - Three things remain with us from paradise: stars, flowers and children.
+ - I love to doubt as well as know.
+ - Do not desert me when I need you most. And if we can’t go on together, let’s retrace our steps as quickly as we can.
+ - Consider that this day ne’er dawns again.
+ - My course is set for an uncharted sea.
+ - Everywhere is here and every when is now.
+ - I did not die, and yet I lost life’s breath.
+ - But already my desire and my will were being turned like a wheel, all at one speed, by the Love which moves the sun and the other stars.
+ - Come, follow me, and leave the world to its babblings.
+ - I wept not, so to stone within I grew.
+ - The man who lies asleep will never waken fame, and his desire and all his life drift past him like a dream, and the traces of his memory fade from time like smoke in air, or ripples on a stream.
+ - But the stars that marked our starting fall away. We must go deeper into greater pain, for it is not permitted that we stay.
+ - A fair request should be followed by the deed in silence.
+ - He who sees a need and waits to be asked for help is as unkind as if he had refused it.
+ - Thus you may understand that love alone is the true seed of every merit in you, and of all acts for which you must atone.
+ - They yearn for what they fear for.
+ - He loves but little who can say and count in words, how much he loves.
+ - If thou follow thy star, thou canst not fail of glorious heaven.
+ - He listens well who takes notes.
+ - I made my own house be my gallows.
+ - In His will, our peace.
+ - Here let dead poetry rise once more to life.
+ - Knowledge comes Of learning well retain’d, unfruitful else.
+ - You sure know how to throw a party! No food, no drinks, and the only babe just left.
+ - Love is the source of every virtue in you and of every deed which deserves punishment.
+ - But if, as morning rises, dreams are true.
+ - The man who lies asleep will never waken fame.
+ - Be like a solid tower whose brave height remains unmoved by all the winds that blow; the man who lets his thoughts be turned aside by one thing or another, will lose sight of his true goal, his mind sapped of its strength.
+ - Pride, envy, avarice – these are the sparks have set on fire the hearts of all men.
+ - No sorrow is deeper than the remembrance of happiness when in misery.
+ - When I had journeyed half of our life’s way, I found myself within a shadowed forest, for I had lost the path that does not stray.
+ - We have no hope and yet we live in longing.
+ - Justice divine has weighed: the doom is clear. All hope renounce, ye lost, who enter here.
+ - Through me you go into a city of weeping; through me you go into eternal pain; through me you go amongst the lost people.
+ - Into the eternal darkness, into fire and into ice.
+ - I care not where my body may take me as long as my soul is embarked on a meaningful journey.
+ - For she doth make my veins and pulses tremble.
+ - And we came forth to contemplate the stars.
+ - There is no greater sorrow than to recall happiness in times of misery.
+ - Blessed are the peacemakers, For they have freed themselves from sinful wrath.
+ - A fight every now and again does make life more interesting. Don’t ya think?
+ - It was the hour of morning, when the sun mounts with those stars that shone with it when God’s own love first set in motion those fair things.
+ - The only fit reply to a fit request is silence and the fact.
+ - Now you know how much my love for you burns deep in me when I forget about our emptiness, and deal with shadows as with solid things.
+ - Heat cannot be separated from fire, or beauty from The Eternal.
+ - Conscience, that boon companion who sets a man free under the strong breastplate of innocence, that bids him on and fear not.
+ - I found myself within a forest dark, for the straightfoward pathway had been lost. Ah me! How hard a thing is to say, what was this forest savage, rough, and stern, which in the very thought renews the fear. So bitter is it, death is little more...
+ - The whole universe is but the footprint of the Divine goodness.
+ - The well heeded well heard.
+ - Midway in our life’s journey, I went astray from the straight road and woke to find myself alone in a dark wood.
+ - A backward glance can often lift the heart.
+ - Oh blind, oh ignorant, self-seeking cupidity whcih spurs as so in the short mortal life and steeps as through all eternity.
+ - Abandon every hope, you who enter.
+ - As phantoms frighten beasts when shadows fall.
+ - Consider the sea’s listless chime: Time’s self it is, made audible.
+ - The heaven that rolls around cries aloud to you while it displays its eternal beauties, and yet your eyes are fixed upon the earth alone.
+ - We are but a day in this world, and in that day the fashion is changed a thousand times: all seek liberty, yet all deprive themselves of it.
+ - If a thief helps a poor man out of the spoils of his thieving, we must not call that charity.
+ - He is, most of all, l’amor che move il sole e l’altre stelle.
+ - Nothing which is harmonized by the bond of the Muse can be changed from its own to another language without destroying its sweetness.
+ - When we encountered a band of souls coming along the barrier, and each was gazing at us in the evening people gaze at one another under the new moon.
+ - Deed done is well begun.
+ - Hope not ever to see Heaven. I have come to lead you to the other shore; into eternal darkness; into fire and into ice.
+ - He who know most grieves most for wasted time.
+ - Love can move the Sun and the stars.
+ - There is a gentle thought that often springs to life in me, because it speaks of you.
+ - Be as a tower firmly set; Shakes not its top for any blast that blows.
+ - No one thinks of how much blood it costs.
+ - Here my powers rest from their high fantasy, but already I could feel my being turned- instinct and intellect balanced equally. as in a wheel whose motion nothing jars- by the Love that moves the Sun and the other stars.
+ - It is necessity and not pleasure that compels us.
+ - He who shall never be divided from me kissed my mouth all trembling.
+ - At grief so deep the tongue must wag in vain; the language of our sense and memory lacks the vocabulary of such pain.
+ - There is no greater pain than to remember, in our present grief, past happiness.
+ - O human race, born to fly upward, wherefore at a little wind dost thou so fall?
+ - Lost are we, and are only so far punished, That without hope we live on in desire.
+ - Midway upon the journey of our life.
+ - The more a thing is perfect, the more it feels pleasure and likewise pain.
+ - Infinite goodness has such wide arms.
+ - Fate’s arrow, when expected, travels slow.
+ - A rapid bolt will rend the clouds apart, and every single White be seared by wounds. I tell you this. I want it all to hurt.
+ - Justice does not descend from its own pinnacle.
+ - Love kindled by virtue always kindles another, provided that its flame appear outwardly.
+ - To course across more kindly waters now my talent’s little vessel lifts her sails, leaving behind herself a sea so cruel; and what I sing will be that second kingdom, in which the human soul is cleansed of sin, becoming worthy of ascent to Heaven.
+ - Without hope we live in desire.
+ - Astrology, the noblest of sciences.
+ - Love, that exempts no one beloved from loving, seized me with pleasure of this man so strongly, that, as thou seest, it doth not yet desert me.
+ - As the geometer intently seeks to square the circle, but he cannot reach, through thought on thought, the principle he needs, so I searched that strange sight.
+ - I saw a point that shone with light so keen, the eye that sees it cannot bear its blazing; the star that is for us the smallest one would seem a moon if placed beside this point.
+ - Not one drop of blood is left inside my veins that does not throb: I recognize signs of the ancient flame.
+ - All your renown is like the summer flower that blooms and dies; because the sunny glow which brings it forth, soon slays with parching power.
+ - There is a place in Hell called the Malebolge...
+ - I’m beginning to think I’ve got rotten luck with women.
+ - No sadness is greater than in misery to rehearse memories of joy.
+ - My mother used to always tell me that my father was a man who fought for the weak. He had courage and righteous heart. In the name of my father, I will kill Mundus!
+ - I felt for the tormented whirlwinds Damned for their carnal sins Committed when they let their passions rule their reason.
+ - The heavens call to you, and circle about you, displaying to you their eternal splendors, and your eye gazes only to earth.
+ - Behold a God more powerful than I who comes to rule over me.
+ - Love and the gentle heart are but the same thing.
+ - That with him were, what time the Love Divine.
+ - Art, as far as it is able, follows nature, as a pupil imitates his master; thus your art must be, as it were, God’s grandchild.
+ - You can stay and die or you can walk your ugly ass back through that gate. It’s your call, pal.
+ - There, pride, avarice, and envy are the tongues men know and heed, a Babel of depsair.
+ - Mankind is at its best when it is most free. This will be clear if we grasp the principle of liberty. We must recall that the basic principle is freedom of choice, which saying many have on their lips but few in their minds.
+ - In the midway of this our mortal life, I found me in a gloomy wood, astray, Gone from the path direct.
+ - How come I never meet any nice girls?
+ - Here pity only lives when it is dead – Virgil.
+ - Stand firm as the tower that never shakes its top whatever wind may blow.
+ - Open your mind to what I shall disclose, and hold it fast within you; he who hears, but does not hold what he has heard, learns nothing. Beatrice – Canto V 40-42.
+ - Will cannot be quenched against its will.
+ - I am searching for that which every man seeks-peace and rest.
+ - At this high moment, ability failed my capacity to describe.
+ - That which had pleased me once, troubled by spirit.
+ - Give unto us this day the daily manna Without which, in this desert where we dwell, He must go backward who would most advance.
+ - My soul tasted that heavenly food, which gives new appetite while it satiates.
+ - If the present world go astray, the cause is in you, in you it is to be sought.
+ - This mountain is so formed that it is always wearisome when one begins the ascent, but becomes easier the higher one climbs.
+ - A man’s renown is like the hue of grass, Which comes and goes.
+ - The day that man allows true love to appear, those things which are well made will fall into cofusion and will overturn everything we believe to be right and true.
+ - There is in hell a place stone-built throughout, Called Malebolge, of an iron hue, Like to the wall that circles it about.
+ - For where the instrument of intelligence is added to brute power and evil will, mankind is powerless in its own defense.
+ - The more perfect a thing is, the more susceptible to good and bad treatment it is.
+ - No man may be so cursed by priest or pope but what the Eternal Love may still return while any thread of green lives on in hope.
+ - Because there is no man who can be true and just judge of himself, so much will self-love deceive him.
+ - I am made of God, through his Grace. Such that your misery touches me not, Nor does flame of that burning assail me.
+ - I hope for your sake you’ve got something inside that big body of yours!
+ - You shall find out how salt is the taste of another man’s bread, and how hard is the way up and down another man’s stairs.
+ - Thy soul is by vile fear assailed, which oft so overcasts a man, that he recoils from noblest resolution, like a beast at some false semblance in the twilight gloom.
+ - So that the Universe felt love, by which, as somebelieve, the world has many times been turned to chaos. And at that moment this ancient rock, here and elsewhere, fell broken into pieces.
+ - The mouse had fallen in with evil cats.
+ - As one who sees in dreams and wakes to find the emotional impression of his vision still powerful while its parts fade from his mind – Just such am I, having lost nearly all the vision itself, while in my heart I feel the sweetness of it yet distill and fall.
+ - As little flowers, which the chill of night has bent and huddled, when the white sun strikes, grow straight and open fully on their stems, so did I, too, with my exhausted force.
+ - Love hath so long possessed me for his own And made his lordship so familiar.
+ - I know this is a major cultural artifact but it’s bad for the community.
+ - The experience of this sweet life.
+ - Less shame a greater fault would palliate.
+ - Worldly fame is but a breath of wind that blows now this way, and now that, and changes name as it changes direction.
+ - The loser, when a game of dice is done, remains behind reviewing every roll sadly, and sadly wiser, and alone.
+ - This sorrow weighs upon the melancholy souls of those who lived without infamy or praise.
+ - I was so full of sleep at the time that I left the true way.
+ - Do ye not comprehend that we are worms born to bring forth the angelic butterfly that flieth unto judgment without screen?
+ - All of nature is God’s art.
+ - Three sparks – pride, envy, and avarice – have been kindled in all hearts.
+ - The human race finds itself in a better situation when it has the higher level of freedom.
+ - Imagination, that dost so abstract us That we are not aware, not even when A thousand trumpets sound about our ears!
+ - As fall the light autumnal leaves, one still the other following, till the bough strews all its honors on the earth below.
+ - Fame is not won on downy plumes nor under canopies; the man who consumes his days without obtaining it leaves such mark of himself on earth as smoke in air or foam on water.
+ - O conscience, upright and stainless, how bitter a sting to thee is a little fault!
+ - Curb your talent lest it speed where virtue does not guide.
+ - It is no learning to understand what you do not retain.
+ - Well, if the kid screws up, then I’ll just have to kick his ass.
+ - I presumed to fix my look on the eternal light so long that I consumed my sight thereon.
+ - Compassion is not a passion; rather a noble disposition of the soul, made ready to receive love, mercy, and other charitable passions.
+ - In judgement be ye not too confident, Even as a man who will appraise his corn When standing in a field, ere it is ripe.
+ - Your fame is as the grass, whose hue comes and goes, and His might withers it by whose power it sprang from the lap of the earth.
+ - Small projects need much more help than great.
+ - Like the lark that soars in the air, first singing, then silent, content with the last sweetness that satiates it, such seemed to me that image, the imprint of the Eternal Pleasure.
+ - Oh foolish desires of mortals! How weak are the reasons that lead us to not take off our flight from the ground.
+ - You shall leave everything you love.
+ - It bugs the crap out of me when somebody talks more than I do.
+ - And as he, who with laboring breath has escaped from the deep to the shore, turns to the perilous waters and gazes.
+ - If i thought i was replying to someone who would every return to the world, this flame would cease it’s flickering. But since no one has returned from these depths alive, if what I’ve heard is true, I will answer you without fear of infamy.
+ - Doubting charms me not less than knowledge.
+ - Pure essence, and pure matter, and the two joined into one were shot forth without flaw, like three bright arrows from a three-string bow.
+ - To run over better waters the little vessel of my genius now hoists her sails, as she leaves behind her a sea so cruel.
+ - It may be that a more subtle person would find for this thing a reason of greater subtlety: but such is the reason that I find, and that liketh me best.
+ - Go forth and preach impostures to the world, But give them truth to build on.
+ - A prayer may chance to rise From one whose heart lives in the grace of God. A prayer from any other is unheeded.
+ - One ought to be afraid of nothing other then things possessed of power to do us harm, but things innoucuous need not be feared.
+ - The glory of Him who moves everything penetrates through the universe, and is resplendent in one part more and in another less.
+ - Honor is the greatest poet.
+ - In each fire there is a spirit; Each one is wrapped in what is burning him.
+ - O foolish anxiety of wretched man, how inconclusive are the arguments which make thee beat thy wings below!
+ - Still desiring, we live without hope.
+ - O mortal men, be wary of how ye judge.
+ - Lying in a featherbed will bring you no fame, nor staying beneath the quilt, and he who uses up his life without achieving fame leaves no more vestige of himself on Earth than smoke in the air or foam upon the water.
+ - Mankind is at its best when it is most free.
+ - Reason flies When following the senses, on clipped wings.
+ - These have not the hope to die.
+ - O faithful conscience, delicately pure, how doth a little failing wound thee sore!
+ - Ah! Justice of our God! Who else could stow Such travails new and pains as met my glance!
+ - As, pricked out with less and greater lights, between the poles of the universe, the Milky Way so gleameth white as to set very sages questioning.
+ - Often a retrospect delights the mind.
+ - There’s not the least thing can be said or done, but people will talk and find fault.
+ - So may heaven’s grace clear away the foam from the conscience, that the river of thy thoughts may roll limpid thenceforth.
+ - Love, that all gentle hearts so quickly know.
+ - The splendors that belong unto the fame of earth are but a wind, that in the same direction lasts not long.
+ - As flowerlets drooped and puckered in the night turn up to the returning sun and spread their petals wide on his new warmth and light-just so my wilted spirits rose again and such a heat of zeal surged through my veins that I was born anew.
+ - The customs and fashions of men change like leaves on the bough, some of which go and others come.
+ - Many have justice in their hearts, but slowly it is let fly, for it comes not without council to the bow.
+ - He who awaits the call, but sees the need, Already sets his spirit to refuse it.
+ - Of my sowing such straw I reap. O human folk, why set the heart there where exclusion of partnership is necessary.
+ - Seldom indeed does human virtue rise From trunk to branch.
+ - What shall one do with the verse, if he knows not That?
+ - I saw within Its depth how It conceives All things in a single volume bound by Love of which the universe is the scattered leaves.
+ - Go right on and listen as thou goest.
+ - Mankind, why do ye set your hearts on things That, of necessity, may not be shared?
+
+220 quotes

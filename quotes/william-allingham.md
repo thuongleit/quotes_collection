@@ -1,0 +1,22 @@
+ - Autumn’s the mellow time.
+ - Solitude is very sad, Too much company twice as bad.
+ - Not like Homer would I write, Not like Dante if I might, Not like Shakespeare at his best, Not like Goethe or the rest, Like myself, however small, Like myself, or not at all.
+ - History of Ireland – lawlessness and turbulency, robbery and oppression, hatred and revenge, blind selfishness everywhere – no principle, no heroism. What can be done with it?
+ - Now Autumn’s fire burns slowly along the woods and day by day the dead leaves fall and melt.
+ - Ring-ting! I wish I were a primrose, A bright yellow primrose blowing in the spring! The stooping boughs above me, The wandering bee to love me, The fern and moss to creep across, And the elm-tree for our king!
+ - She danced a jig, she sung a song that took my heart away.
+ - Fairies, arouse! Mix with your song Harplet and pipe, Thrilling and clear, Swarm on the boughs! Chant in a throng! Morning is ripe, Waiting to hear.
+ - Winds and waters keepA hush more dead than any sleep.
+ - Sin we have explain’d away; Unluckily, the sinners stay.
+ - Round the world and home again, that’s the sailor’s way!
+ - I have been an “Official” all my life, without the least turn for it. I never could attain a true official manner, which is highly artificial and handles trifles with ludicrously disproportionate gravity.
+ - Soul’s Castle fell at one blast of temptation, But many a worm had pierced the foundation.
+ - Scarcely a tear to shed; Hardly a word to say; The end of a Summer’s day; Sweet Love is dead.
+ - Does not the latent feeling that much of their striving is to no purpose tend to infuse large quantities of sham into men’s work?
+ - The mother’s kiss is the sweetest thing ever.
+ - Politeness costs nothing. Nothing, that is, to him that shows it; but if often costs the world very dear.
+ - One who can see without seeming to see – That’s an observer as good as three.
+ - Writing is learning to say nothing, more cleverly every day.
+ - If any foes of mine are there, I pardon every one: I hope that man and womankind will do the same by me.
+
+20 quotes

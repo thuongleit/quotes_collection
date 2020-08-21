@@ -1,0 +1,91 @@
+ - I don’t usually lose my temper, but if I get angry, it’s true – I’m scary.
+ - I love my curves and I embrace them.
+ - Rejection is good for the soul.
+ - A shimmery bronzer is the perfect way to look alive. If you don’t want to wear makeup, mix some with moisturizer. You’ll look pretty but not made-up.
+ - I love being naked. I do everything in the nude, even the gardening! We’re Cuban, and it’s a hot island. Why not go nude?
+ - I’m a modern woman in the sense of I take care of myself, I’m fiercely independent, and I’m really ambitious. Yet I have these old-school thoughts in my mind.
+ - Anchorman’ is my favorite movie of all time and Ron Burgundy is one of my favorite characters of all time. It’s my ‘Gone With the Wind.
+ - I speak English without an accent, and I speak Spanish without an accent. I really do have the best of both worlds.
+ - I don’t cook. I respect food too much.
+ - I like a mysterious man. I like a man who reads and is knowledgeable about the world, but who doesn’t have to brag about it.
+ - I love sleeping. If there was an Olympics for it, I’d take gold. I’m Cuban. We love to sleep.
+ - I keep my backstory pretty private and personal.
+ - I love having a man in my life, and being his woman at the end of the day. I know it’s a dichotomy.
+ - I love every aspect of being a woman. I believe you should celebrate who you are.
+ - I do like to belong to a man.
+ - When people write lies about you, and you know that they are lies, that means that they don’t know the truth, so that’s OK with me. If something true came out, I would have to check my circle to see who’s talking and possibly make an apology phone call to my parents!
+ - People are incapable of stereotyping you; you stereotype yourself because you’re the one who accepts roles that put you in this rut or in this stereotype.
+ - I love it, but it’s not important to me to always be thought of as sexy. I like it when it doesn’t limit my career. It’s a part of my life, but on a secondary plane.
+ - It’s the scariest thing in the world, going to acting class, because first of all, there’s a lot of pressure. I just go back to being that fourth grader who couldn’t, like, sit still in her seat.
+ - Well I’m a 5 year old at heart; I still think that there is a monster under my bed – and I’m not joking. It’s pathetic, it’s really not cute.
+ - I love therapy! There’s nothing like talking to someone who has no emotional tie to your life.
+ - I really like nice forearms – nice strong hands and forearms. I love that because then they can wear a watch really well.
+ - We seem okay with violence, but nudity we race to criticize and censor.
+ - I think that, when you play a mother, whether you play a bad mother or a not so great mother or an amazing mother, being a mother is already so complicated. It’s already three-dimensional, automatically, no matter what the role is, because you’re playing a mother.
+ - It’s fun to be a woman. It’s fun to flirt and wear makeup and have boobs.
+ - I love a loose-fitting skirt with a cinched waist. A feminine silhouette is a no-stress zone – it’s comfortable and I don’t have to worry about wardrobe malfunctions!
+ - I make conscious decisions to stay out of the limelight. Without my make-up I’m pretty much the girl next door.
+ - I’m very free with my sexuality, but not everywhere all the time. I pick and choose when I do nudity, and who I do it for when I’m working, and when I’m doing it. I’ve done nudity twice in a film.
+ - I’m drawn to look tough. The arched eyebrows are just there – I don’t do them like that. I have strong features, but I wish I could be tougher.
+ - Maybe something that’s acceptable in your teens or 20s is unacceptable in your 30s or 40s.
+ - I’m proud of people who have the determination and the fearlessness to actually go and face their demons and get better.
+ - Perfectionism is boring and doesn’t exist-to strive for it makes you uninteresting.
+ - The careers that I admire and actually try to emulate are those of Julianne Moore and Annette Bening. Those women, to me, make amazing choices. They’re sexy, beautiful women, but that doesn’t dictate their choices.
+ - When people write lies about you, and you know that they are lies, that means that they don’t know the truth.
+ - When the bread basket comes to the table and I have a bite, people are like, “Oh, you eat bread?” I say, “Oh, my God, of course I eat bread. I’m human.”
+ - I’m not an exhibitionist. But, honestly, for my art I’ll do anything almost. I’ll go there.
+ - It’s tapping into something so deep that when I reap the rewards, I do not even know I’m reaping them. It’s a more overall kinda thing.
+ - If you took me to Coachella for our first date, it would probably be a done deal. It would be a sure thing.
+ - I think it’s so hypocritical to be so anti-nudity in films, and be so pro-violence. I’d rather see two people making love, than somebody being done in. Or being shot and getting their head blown off.
+ - The one thing I never want to do is act drunk or act high. You don’t do it from a mental kind of place because then you’re just acting.
+ - I’m definitely responsible for the image that I put out there. But it does become frustrating, because I don’t want ‘sexy’ to be my defining characteristic. I’d love for my ambition and will and intellect and sense of humour to define me as well.
+ - It’s flattering that people think I’m sexy, but it’s not the end-all, be-all. The minute I put my self-esteem on what they think I am, I’m screwed, because one day they’re not going to think I’m sexy.
+ - I’ve learned that it’s way harder to be a baby. Everything is a struggle for her. For instance, I haven’t thrown up since the ’90s and she’s thrown up twice since we started this interview. Motherhood is cake compared to what it’s like to be a baby.
+ - You’re going from audition to audition, changing in the backseat, and all that fun stuff that’s great to do at one time in your life. That’s when the 49-cent taco, as disgusting as it is, really plays into your day. It really helps you out.
+ - I love my country, but I believe that we are too quick to censor nudity.
+ - It’s challenging being a woman. There are other kinds of obstacles that come your way, but there are many times that being Latin has actually helped me, being a Cuban-American has helped me.
+ - I hope to never stop growing. I hope that with every role I play, I keep adding layers to my craft. I love acting and I study religiously with my coach.
+ - Personally, I think wearing a baby chinchilla says, ‘I’m ignorant.’
+ - I feel I’ll take on the responsibility of showing the world a whole different kind of Latin woman.
+ - Yet in the celebrity-obsessed culture, where everything of you is a shot on the red carpet, I don’t want that to dominate my image. First and foremost, I am an actor. I want great roles.
+ - I think being a woman in Hollywood is a big enough challenge. It really is. I don’t want to be one of those people who complain. But the lack of roles out there – it’s unbelievable.
+ - That’s the beauty of being an actress, is that you hopefully get to have different roles and really stretch yourself. This is really what I’ve been working for a while. I’ve been in the business for a minute, and it’s an opportunity like this that I’ve been really working towards.
+ - When I first went to Europe, I thought I was going to move there. I was making plans to move to the south of Spain. It’s such a cute, innocent thought. I think we all go through it.
+ - I’m very comfortable with myself and my sexuality, but it doesn’t define me. I also read books believe it or not.
+ - I don’t go to premieres. I attend film openings I’m in, and that’s about it. Fame and celebrity doesn’t matter to me. The longevity of my career does.
+ - I’ve never had a problem with nudity, but I don’t put it out there without a reason.
+ - I still go to acting class. I love the craft. It’s just so much fun for me, and I’m always a student.
+ - We shouldn’t dwell on what is ‘perfect.’ We should celebrate our uniqueness.
+ - Being sexy is just one component. It’s not a thing I am. It’s a thing I can be. It’s a side of myself I can tap into, just like I can tap into my funny side, my quirky side or my dramatic side. It’s not what I am.
+ - I come from a family and a heritage where you don’t really go to therapy unless you’re crazy. I want people to know that that’s so not the case. It’s enriching, and I’ve learned this new tool.
+ - I used to love fast food because I had no money, and I was a struggling actor.
+ - I don’t like my men to be too ornate. I like them to stand back and let their women shine, and they should really wear the pants in the relationship.
+ - I am a man with an open mind. I really don’t know anything, but I’m very interested in the spiritual and the material.
+ - I wish writing was a talent that I had. I’ve tried. Unfortunately, I’m just not talented in the writing department. But, if I was, I would just write complicated roles for women because there’s a lack of them.
+ - My acting coach breaks down what happens to people’s bodies when they do drugs. She breaks down what happens physiologically to you.
+ - I might act like it’s an accident but the opposite is true. I’m incredibly calculated when it comes to my career.
+ - What makes it frustrating is when a director or a studio head doesn’t see me for the same part that they’ll see, let’s say, Drew Barrymore for. Drew’s a great friend of mine. But it’s like, “No, we want more of an American type of girl.”
+ - I think now we just know way too much about our celebrities. It’s not that interesting when you know that much about people.
+ - I want my mother to think – she’s a tough fashion critic.
+ - I wanted to go into art history. Acting fell into my lap when a neighbor took pictures of me and showed them to an agent.
+ - What’s interesting is that my style is a lot crazier than what I project out there. It’s a lot edgier.
+ - I liked the monsters, I liked them because I couldn’t understand how something so scary could also be so good. It got me thinking as a very early age, and I had a lot of rehearsal.
+ - I think we are living in pretty scary times and people are looking for inspiration and are also more open to the spiritual possibilities.
+ - We see everything. We see what celebrities buy at the supermarket. It’s ridiculous. It’s that visibility. I’m confused by this whole celebrity-obsessed culture.
+ - But I’ve never felt objectified. Nothing you see me do is an accident.
+ - I love the little suckers; they’re so cute but I love sleep so much and I worry about everything.
+ - I read a lot of scripts. I believe you’ve got to read one that you know you’re not going to do, because you’ve got to educate yourself on what’s out there to make the best decision for you.
+ - I’ve been with the same person for a very long time but I’m just non-conventional in that way. I don’t think people need to be married. I think a lot of people need that piece of paper, but I don’t think everybody needs that to feel secure.
+ - Even if you buy a fur glove with the little trim, and you think ‘Oh, my God, it’s just a little trim,’ that animal got clubbed.
+ - I just want to be known for things other than my sexuality.
+ - I don’t come from a wealthy or privileged background, and growing up I was always looking for the best quality at a price I could afford. My love of vintage is rooted in that. Drugstores were the mecca for the latest makeup trends and products.
+ - I’m an actress. To be honest, it’s a very awkward business. It’s one of those things where it’s almost like a first date. There’s a way you want to come across. You want to show your goods. The truth starts to slip out sometimes.
+ - I try not to go crazy, but yes, I pay attention to what I eat.
+ - I talk about therapy a lot because I love therapy. It has just enriched my life.
+ - I’m a trained actress and I can do it, but I think that you have to prove yourself.
+ - I do think once I get into expectations, I’ve just trained myself. I’ve just trained myself to just move on to the next.
+ - It’s important for me to work with a strong director because I know I can go to some really deep places, I just need direction on how to get there.
+ - The celebrity world can be so ugly. Everyone seems to have slept with everyone else and it’s some sort of strange weird cycle. I don’t want to get into that.
+ - I like the idea of playing a historical detective.
+
+89 quotes

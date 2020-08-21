@@ -1,0 +1,27 @@
+ - It’s not so much a thankless task, it’s more a job with no thanks.
+ - I take every job on its merits.
+ - I hope I’m always convincing when I act!
+ - If we use less, if we consume less, we’re going to have more.
+ - The waves of time wash us all clean.
+ - Small though it is, the human brain can be quite effective when working at full efficiency, not unlike myself!
+ - I like challenges that test your ingenuity.
+ - I’m an actor. If you had said to me before I started acting that I’d get two bites of the cherry – you would do things that people will remember forever like ‘The Brothers’ which I did in the ’70s and now ‘Doctor Who’ – I’d have been overjoyed and I still am.
+ - I was well aware of the fact that once you appeared in Doctor Who as something else, you were ruled out for the part of the Doctor: that was a kind of well known thing in the business.
+ - I’ve mellowed quite quickly.
+ - As any actor will tell you, the hardest thing to do is small parts, because you focus all your attention and concentration on that small part. When you’re playing the lead part, you don’t have time to think about the whole of it, so you just have to steam on and get on with it.
+ - I do adore food. If I have any vice it’s eating. If I was told I could only eat one food for the rest of my life, I could put up with sausage and mash forever.
+ - The standard of writing that I’m getting now from ‘Big Finish’ compares very favourably with some of the stuff I was doing on screen in the ’80s.
+ - I loathe cheese, it makes me ill.
+ - It was lovely to do The Knock because I haven’t done anything really significant since Doctor Who.
+ - I do remember reading the script of ‘The Nightmare Fair’ and looking forward to doing it.
+ - I’m perfectly proud of the work I did, looking back at it. I know I’ve had a bit of a revision since my ‘Big Finish’ stories came out.
+ - I am a big man, but I’ve allowed my condition to deteriorate by being overweight.
+ - Actors love to act all those death scenes.
+ - I never turn down scripts without good reason. If I did, I would probably never work.
+ - I could, I think, quite easily have gone to Oxford. I got four good A levels, but my father’s income was such that I wouldn’t have got a grant, and he wouldn’t let me go to university, and that was the end of it.
+ - One way of watering down the effects of violence is to approach it in a more lighthearted way. I don’t mean to say that you laugh when somebody has their arm sawn off, but you can diffuse fear with humour.
+ - I never have reservations about doing anything as long as I’m being paid.
+ - Nobody can fail to lose weight in the jungle, unless they’ve got a secret stash of pork pies somewhere.
+ - If you turn down work because you are frightened of getting typecast, you’ll never do anything good.
+
+25 quotes

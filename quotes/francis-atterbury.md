@@ -1,0 +1,30 @@
+ - The things of another world being distant, operate but faintly upon us: to remedy this inconvenience, we must frequently revolve their certainty and importance.
+ - The smallest act of charity shall stand us in great stead.
+ - Should we grieve over a little misplaced charity, when an all knowing, all wise Being showers down every day his benefits on the unthankful and undeserving?
+ - It is little the sign of a wise or good man, to suffer temperance to be transgressed in order to purchase the repute of a generous entertainer.
+ - It is impossible to have a lively hope in another life, and yet be deeply immersed in the enjoyments of this.
+ - Even the wisdom of God hath not suggested more pressing motives, more powerful incentives to charity, than these, that we shall be judged by it at the last dreadful day.
+ - Affliction is a school of virtue; it corrects levity, and interrupts the confidence of sinning.
+ - The priesthood hath in all nations, and all religions, been held highly venerable.
+ - Hospitality sometimes degenerates into profuseness, and ends in madness and folly.
+ - If God be infinitely holy, just, and good, He must take delight in those creatures that resemble Him most in these perfections.
+ - A very prosperous people, flushed with great victories and successes, are seldom so pious, so humble, so just, or so provident as to perpetuate their happiness.
+ - A good man not only forbears those gratifications which are forbidden by reason and religion, but even restrains himself in unforbidden instances.
+ - From mere success nothing can be concluded in favor of any nation upon whom it is bestowed.
+ - Nothing can be reckoned good or bad to us in this life, any further than it indisposes us for the enjoyment of another.
+ - They who are not induced to believe and live as they ought by those discoveries which God hath made in Scriptures would stand out against any evidence whatever, even that of a messenger sent express from the other world.
+ - A sturdy, hardened sinner shall advance to the utmost pitch of impiety, with less reluctance than he took the first step while his conscience was yet vigilant and tender.
+ - A just and wise magistrate is a blessing as extensive as the community to which he belongs; a blessing which includes all other blessings whatsoever that relate to this life.
+ - A good character when established should not be rested in as an end, but only employed as a means of doing still further good.
+ - What we employ in charitable uses during our lives is given away from ourselves; what we bequeath at our death is given from others only, as our nearest relations.
+ - There is a variety in tempers of good men.
+ - Luther deters me from solitariness; but he does not mean from a sober solitude that rallies our scattered strengths and prepares us against any new encounter from without.
+ - He who performs his duty in a station of great power must needs incur the utter enmity of many, and the high displeasure of more.
+ - Though fanaticism drinks at many founts, its predisposing cause is mostly the subject of an invisible futurity.
+ - Few consider how much we are indebted to government, because few can represent how wretched mankind would be without it.
+ - The temptations of prosperity insinuate themselves after a gentle, but very powerful manner; so that we are but little aware of them and less able to withstand them.
+ - Those good men who take such pleasure in relieving the miserable for Christ’s sake, would not have been less forward to minister onto Christ Himself.
+ - It is the duty of every one to strive to gain and deserve a good reputation.
+ - The greater absurdities are, the more strongly they evince the falsity of that supposition from whence they flow.
+
+28 quotes

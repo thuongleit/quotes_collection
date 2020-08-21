@@ -1,0 +1,100 @@
+ - Being like everybody is the same as being nobody.
+ - Any state, any entity, any ideology that fails to recognize the worth, the dignity, the rights of man, that state is obsolete.
+ - I think I would like to be in Victorian times. Small town. Bandstands. Summer. That kind of thing. Without disease.
+ - Fantasy is the impossible made probable. Science Fiction is the improbable made possible.
+ - Every Superstate has one iron rule: logic is an enemy and the truth is a menace.
+ - You’re traveling through another dimension, a dimension not only of sight and sound but of mind; a journey into a wondrous land whose boundaries are that of imagination. That’s the signpost up ahead – your next stop, the Twilight Zone.
+ - There is nothing in the dark that isn’t there when the lights are on.
+ - The writer’s role is to menace the public’s conscience. He must have a position, a point of view. He must see the arts as a vehicle of social criticism and he must focus on the issues of his time.
+ - Somewhere between apathy and anarchy lies the thinking human being.
+ - An Ingmar Bergman film would probably owe a sizeable bulk of its import and its direction and its quality to the directorial end and to the director because it’s uniquely a Bergman film. But that again is not the general – no, that’s much more the exception than the rule.
+ - Writing is a demanding profession and a selfish one. And because it is selfish and demanding, because it is compulsive and exacting, I didn’t embrace it. I succumbed to it.
+ - I just want people to remember me a hundred years from now. I don’t care that they’re not able to quote any single line that I’ve written. But just that they can say, “Oh, he was a writer.” That’s sufficiently an honored position for me.
+ - It may be said with a degree of assurance that not everything that meets the eye is as it appears.
+ - Justice can span years. Retribution is not subject to a calendar.
+ - Star Trek, I thought, was a very inconsistent show, which at times sparkled with true ingenuity and pure science fiction approaches, and other times was more carnival-like, and very much more the creature of television than the creature of a legitimate literary form.
+ - Science fiction makes the implausible possible, while science fantasy makes the impossible plausible.
+ - The ultimate obscenity is not caring, not doing something about what you feel, not feeling! Just drawing back and drawing in; becoming narcissistic.
+ - But it makes you wonder, doesn’t it? Just how normal are we? Just who are the people we nod our hellos to as we pass on the street? A rather good question to ask – particularly in The Twilight Zone.
+ - I’m a Western-cultured man who subscribes to the ancient saw that men do not cry, I don’t cry either. I’ll go to a movie, for example, and not infrequently something triggers the urge to weep, but I don’t allow myself.
+ - Whenever you write, whatever you write, never make the mistake of assuming the audience is any less intelligent than you are.
+ - Why do I write? I guess that’s been asked of every writer. I don’t know. It isn’t any massive compulsion.
+ - I write much better in the nonconfines of the early morning than I do the clutter of the day.
+ - Coming up with ideas is the easiest thing on earth. Putting them down is the hardest.
+ - It has forever been thus: So long as men write what they think, then all of the other freedoms – all of them – may remain intact. And it is then that writing becomes a weapon of truth, an article of faith, an act of courage.
+ - I guess we all have a little vaunting itch for immortality, I guess that must be it.
+ - Every writer is a frustrated actor who recites his lines in the hidden auditorium of his skull.
+ - There is a fifth dimension, beyond that which is known to man. It is a dimension as vast as space and as timeless as infinity. It is the middle ground between light and shadow, between science and superstition.
+ - If you want to prove that God is not dead first prove that man is alive.
+ - Up there, up there in the vastness of space, in the void that is sky, up there is an enemy known as isolation. It sits there in the stars waiting, waiting with the patience of eons, forever waiting in the Twilight Zone.
+ - You unlock the door with the key of imagination.
+ - If survival calls for the bearing of arms, bear them you must. But the most important part of the challenge is for you to find another means that does not come with the killing of your fellow man.
+ - There are weapons that are simply thoughts. For the record, prejudices can kill and suspicion can destroy.
+ - I guess Requiem for a Heavyweight as old as it is was as honest a piece as I’ve ever done.
+ - You can be a hunchback and a dwarf and what-all. If you write beautifully, you can write beautifully.
+ - Some people possess talent, others are possessed by it. When that happens, a talent becomes a curse.
+ - Someplace between apathy and anarchy is the stance of the thinking human being. He does embrace a cause, he does take a position, and can’t allow it to become business as usual. Humanity is our business.
+ - According to the Bible, God created the heavens and the Earth. It is man’s prerogative – and woman’s – to create their own particular and private hell.
+ - You can become much more independent, much more courageous with a bank account. And also, much more independent and self-reliant when you know you have money behind you.
+ - I’m afraid that if I started to ponder who I am and what I am, I might not like what I find.
+ - I don’t enjoy any of the process of writing. I enjoy it when it goes on if it zings and it has great warmth and import and it’s successful.
+ - I don’t feel, God dictated that I should write.
+ - For the record, suspicion can kill, and prejudice can destroy. And a thoughtless, frightened search for a scapegoat has a fallout all its own, for the children and the children yet unborn. And the pity of it is that these things cannot be confined to the Twilight Zone.
+ - I found that it was all right to have Martians saying things Democrats and Republicans could never say.
+ - We’re developing a new citizenry. One that will be very selective about cereals and automobiles, but won’t be able to think.
+ - I find it very difficult to live through the censorship of profanity on television.
+ - Somehow, some way, incredibly enough, good writing ultimately gets recognized. If you’re a really good writer and deserve that honored position, then by God, you’ll write, and you’ll be read.
+ - I’ve never really topped myself, because awards in themselves really don’t reflect major accomplishment. It’s kind of a strange, backslapping ritual that we go through in this town where you get awards for almost everything. For surviving the day you’re going to get awards.
+ - I’d rather go along with this sense of illusion that I’m a neutral beast going along through life doing everything that’s preordained.
+ - Not since the British raided Cologne had so many bombs landed in such a small space in such a short time.
+ - The writer’s no different. When he’s rejected, that paper is rejected, in a sense, a sizeable fragment of the writer is rejected as well. It’s a piece of himself that’s being turned down.
+ - I don’t believe in reincarnation. That’s a cop-out, I know. I don’t really want to be reincarnated.
+ - Personally, my daughter’s wedding gave me a tremendous pleasure.
+ - There are millions of ways to not be writing. You say you’re not in the mood, you’ll pick it up tomorrow.
+ - Do I want to start my own production company? No, I doubt it. I’m too old for that. I don’t want to start anything.
+ - Writers, like most human beings, are adaptable creatures. They can learn to accept subordination without growing fond of it. No writer can forever stand in the wings and watch other people take the curtain calls while his own contributions get lost in the shuffle.
+ - I’m sufficiently independent to know that I can live well and comfortably all the rest of my life whether I’m rejected or not.
+ - Now death is with us in such abundance and hovers over us in so massive a form that we don’t have time to invent a mythology, nor is our creativity directed toward same. Now it’s to prevent death.
+ - I find dictating in the mass media particularly good because you’re writing for voice anyway; you’re writing for people to say a line and, consequently, saying a line through a machine is quite a valid test for the validity of what you’re saying.
+ - It is difficult to produce a television documentary that is both incisive and probing when every twelve minutes one is interrupted by twelve dancing rabbits singing about toilet paper.
+ - It’s part of the business of really not caring about topping myself because I really don’t care what’s going to happen. I think just surviving is a major thing. I’d like to write something that my peers, my colleagues, my fellow writers would find a source of respect.
+ - Infinitely more taboos, on television.
+ - Ideas are born from what is smelled, heard, seen, experienced, felt, emotionalized.
+ - I don’t have close relationships with agents. They’re friends, but they’re not confidants.
+ - When I dig back through memory cells, I get one particularly distinctive feeling-and that’s one of warmth, comfort and well-being. For whatever else I may have had, or lost, or will find-I’ve still got a hometown. This, nobody’s gonna take away from me.
+ - Most screenplays, most motion pictures, owe much more to the screenplay. Ingmar Bergman has such an economy of language, so little language in his piece, it is so visual, his moods are introduced and buttressed by camera rather than by word or character. But again, that’s unique.
+ - I couldn’t direct because I’m too impatient and I couldn’t put together a package because I don’t understand money. I’d rather just do what I’m doing.
+ - The good agent probably is not the reader, he’s just the guy who can put together a deal.
+ - All the Dachaus must remain standing.
+ - If you write beautifully, you write beautifully, that’s all.
+ - I was a Christmas present that was delivered unwrapped.
+ - I remember the first sale I made was a hundred and fifty dollars for a radio script, and, as poor as I was, I didn’t cash the check for three months. I kept showing it to people.
+ - I don’t know what my friends do. Generally they become producers. That way they can stop writing!
+ - Personally, my daughter’s wedding gave me a tremendous pleasure. And the wedding was a radiant event and I enjoyed it. I was afraid I’d cry. I’m given to crying at odd times, and I was very much afraid of the emotionalism of that moment, but I didn’t even come close to crying.
+ - If the producer doesn’t like you, consequently he reads the script with a very negative view. But I wouldn’t preoccupy myself with that, I don’t give a damn. You can be a hunchback and a dwarf and whatall.
+ - I choose to think of tv audience as nameless, formless, faceless people who are all like me. And anything that I write, if I like it, they’ll like it.
+ - In terms of screenwriting adaptations it’s trying to cut out stuff that’s extraneous, without doing damage to the original piece, because you owe a debt of some respect to the original author. That’s why it was bought.
+ - I would guess that the price of the script really is secondary. The credit is much more the essence.
+ - I think I’d rather win, for example, a Writer’s Guild award than almost anything on earth. And the few nominations I’ve had with the guild, and the few awards I’ve had, represented to me a far more legitimate concrete achievement than anything.
+ - I don’t have any system. I dictate a lot, through a machine, and I also have a secretary. But I used to type just like everybody else.
+ - If in any quest for magic, in any search for sorcery, witchery, legerdemain, first check the human spirit.
+ - I miss the comraderie of live television – the fact that you were on the set, you worked closely with the director and the cast, that I miss. But, no, I’m happy, I’m happy doing film.
+ - There are a lot I’m proud of, and a lot I wish the hell I’d never written.
+ - Just drawing back and drawing in; becoming narcissistic.
+ - Most shows, buying shows, have a standard fee for the first shot of the writer and if you have a very militant agent, I suppose he might jack it up four percent or something. But in essence, you sell for what is the going rate.
+ - If you need drugs to be a good writer, you are not a good writer.
+ - I think the essence of the argument has always been, first of all, the Guild doesn’t want writing on spec. And that’s been a major problem over the years. But obviously, to the young writer that’s unfair and it’s discriminatory, and it can be very hurtful to one’s career.
+ - I’m an affluent screenwriter and all that – I’m a known screenwriter, but I’m not in the fraternity of the very, very major people. I would say a guy like Ernie Lehman, William Goldman, and a few others are quite a cut above.
+ - You see. No shock. No engulfment. No tearing assunder. What you feared would come like an explosion is like a whisper. What you thought was the end is the beginning.
+ - Over the long haul I’d say that most directors I’ve worked with have been pretty sensitive to the quality of the interpreted scenes.
+ - If it sounds good as you say it, likely as not it’ll sound good when an actor’s saying it.
+ - I ask for your indulgence when I march out quotations. This is the double syndrome of men who write for a living and men who are over forty. The young smoke pot – we inhale from our Bartlett’s.
+ - I don’t think it’s man’s function to write. I don’t think it’s a normal thing like teeth-brushing and going to the bathroom. It’s a supered position on the animal.
+ - Our greatest responsibility is not to be pencils of the past.
+ - The major difference frequently is in time. The motion picture, for example, gives you considerably more freedom of expression than does the confined thirty-minute television show. But in essence, they’re not that dissimilar.
+ - I’ve written all that I’ve wanted to write to date.
+ - I’m frequently surprised, sometimes bugged off, and sometimes happy, depending on the actor. It’s a fact of life that just as often as not an actor can breathe life into a line as he can destroy it by misinterpretation, and I’ve been blessed frequently by having good actors.
+ - Seeing does not always believe.
+ - The tendency when you dictate is to overwrite, because you’re not counting pages, you don’t really know what the hell the page count is.
+
+98 quotes

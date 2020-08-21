@@ -1,0 +1,186 @@
+ - Put. That coffee. Down. Coffee’s for closers only.
+ - Every fear hides a wish.
+ - Old age and treachery will always beat youth and exuberance.
+ - Always tell the truth – it’s the easiest thing to remember.
+ - Worry is interest paid in advance on a debt that never comes due...
+ - We all hope. It’s what keeps us alive.
+ - Get into the scene late; get out of the scene early.
+ - We must have a pie. Stress cannot exist in the presence of a pie.
+ - They say you can’t study Kabbalah until you are at least 40 years old. You know why? You have to have experienced at least one generation making the same mistakes as the previous one.
+ - Everybody makes their own fun. If you don’t make it yourself, it isn’t fun. It’s entertainment.
+ - Let the cut tell the story. Otherwise you have not got dramatic action, you’ve got narration.
+ - As you all know first prize is a Cadillac El Dorado. Anyone wanna see second prize? Second prize is a set of steak knives. Third prize is you’re fired.
+ - People ask me, ‘What do you do?’ And I tell them I’m a writer, but always with the silent reservation, ‘I am, of course, not really a writer. Hemingway was a writer.’
+ - The dream and the film are the juxtaposition of images in order to answer a question.
+ - Welcome to Chicago. This town stinks like a whorehouse at low tide.
+ - When the three branches of government have failed to represent the citizenry and the mass of the media has failed to represent the citizenry, then the citizenry better represent the citizenry.
+ - What I value most in my friends is loyalty.
+ - Everyone needs money. That’s why they call it money.
+ - Opportunity may knock, but it seldom nags.
+ - Invent nothing, deny nothing, speak up, stand up, stay out of school.
+ - Policemen so cherish their status as keepers of the peace and protectors of the public that they have occasionally been known to beat to death those citizens or groups who question that status.
+ - All of us. All of us. We’re doomed.
+ - The main question in drama, the way I was taught, is always, ‘What does the protagonist want?’ That’s what drama is. It comes down to that. It’s not about theme, it’s not about ideas, it’s not about setting, but what the protagonist wants.
+ - The study of acting consists in the main of getting out of one’s own way, and in learning to deal with uncertainty and being comfortable being uncomfortable.
+ - Don’t assume I’m dumb because I wear a suit and tie.
+ - I hate vacations. There’s nothing to do.
+ - All fears are one fear. Just the fear of death. And we accept it, then we are at peace.
+ - It’s not a lie. It’s a gift for fiction.
+ - Do not internalize the industrial model. You are not one of the myriad interchangeable pieces, but a unique human being, and if you’ve got something to say, say it, and think well of yourself while you’re learning to say it better.
+ - To find beauty in the sad, hope in the midst of loss, and dignity in failure is great poetic art.
+ - The surprise is half the battle. Many things are half the battle, losing is half the battle. Let’s think about what’s the whole battle.
+ - You want to get Capone? Here’s how you get him: he pulls a knife, you pull a gun, he sends one of yours to the hospital, you send one of his to the morgue. It’s the Chicago way and that’s how you get Capone.
+ - Film is a collaborative business: bend over.
+ - Forget narrative, backstory, characterisation, exposition, all of that. Just make the audience want to know what happens next.
+ - You got an all-out prize fight, you wait ’til the fight’s over, one guy’s left standing and that’s how you know who’s won.
+ - The secret knowledge is there’s nobody home but us chickens. The Constitution was written by a bunch of regular guys who tried to get together and thrash out a contract under which they could get together that would keep people together.
+ - My alma mater is the Chicago Public Library. I got what little educational foundation I got in the third-floor reading room, under the tutelage of a Coca-Cola sign.
+ - The subject of drama is The Lie. At the end of the drama THE TRUTH – which has been overlooked, disregarded, scorned, and denied – prevails. And that is how we know the Drama is done.
+ - The greater the intellect, the more ease in its misdirection.
+ - The essence of jiu-jitsu is philosophy.
+ - All rhetorical questions are accusations.
+ - We all die in the end, but there’s no reason to die in the middle.
+ - The so-called assault weapons ban is a hoax. It is a political appeal to the ignorant. The guns it supposedly banned have been illegal for 78 years. Did the ban make them ‘more’ illegal? The ban addresses only the appearance of weapons, not their operation.
+ - We Americans have always considered Hollywood, at best, a sinkhole of depraved venality. And, of course, it is. It is not a Protective Monastery of Aesthetic Truth. It is a place where everything is incredibly expensive.
+ - The purpose of technique is to free the unconscious. If you follow the rules ploddingly, they will allow your unconscious to be free.
+ - It is the writer’s job to make the play interesting. It is the actor’s job to make the performance truthful.
+ - Anyone ever lost in the wild knows that nature wants you dead.
+ - My dad was an immigrant kid and a Democrat and a Jew, and we didn’t know any Republicans in our group. So I grew up Democratic. My dad was a labor lawyer – a very hardworking guy, a one-horse labor lawyer – and then I went to hippie college and lived in the bubble.
+ - The avant-garde is to the left what jingoism is to the right. Both are a refuge in nonsense.
+ - Marijuana, for example, won’t help one determine the correct aspect ratio...
+ - My idea of perfect happiness is a healthy family, peace between nations, and all the critics die.
+ - Encounter: Doubt, Shame, Humiliation. It will finally be worth it. Acting is more about courage than anything else.
+ - You get rich through luck. You get rich through crime. You get rich through fulfilling the needs of another. You can be as greedy as you like. If you can’t do one of those three things, you ain’t going to get any money.
+ - Culture exists and evolves to relegate to habit categories of interactions the constant conscious reference to which would make human interaction impossible.
+ - If the scene bores you when you read it, rest assured it WILL bore the actors, and will then bore the audience, and we’re all going to be back in the breadline.
+ - It’s hard to write a good play because it’s hard to structure a plot. If you can think of it off the top of your head, so can the audience.
+ - I love Superman. I’m a big fan of anyone who can make his living in his underwear.
+ - I love working on a typewriter – the rhythm, the sound; it’s like playing the piano, which I do, too.
+ - I don’t have any experience with film schools. I suspect that they’re useless, because I’ve had experience with drama schools, and have found them to be useless.
+ - The mind is a mill which can incessant turn, ’til its mere operation focus the stress inward and the stones grind themselves to dust.
+ - They say the definition of ambivalence is watching your mother-in-law drive over a cliff in your new Cadillac.
+ - The product of the artist has become less important than the fact of the artist. We wish to absorb this person. We wish to devour someone who has experienced the tragic. In our society this person is much more important than anything he might create.
+ - Train yourself for a profession that does not exist.
+ - I pray you indulge me for a space, for I am going to set out on a speech which may have some duration, but whose theme may be gleaned from its opening phrase: how dare you.
+ - My dad was a labour lawyer, and the ideas that I grew up with – bad management, bad capitalism, robber barons – when I applied this to my own life, I saw that we are all on both sides of the coin.
+ - Being a writer in Hollywood is like going to Hitler’s Eagle Nest with a great idea for a bar mitzvah.
+ - The audience requires not information but drama.
+ - If you’re writing an opinion piece, it’s your job to write your opinion. If, on the other hand, you wrote a novel, as Virginia Woolf tells us, it would be inappropriate if you let your novel be influenced by your political opinions.
+ - The correct unit of study is not the play; it is the scene.
+ - I hate the computer. I hate their spell-check. I won’t ever do e-mail.
+ - Fun is what you do for yourself. If somebody else does it, it’s entertainment.
+ - The job of the artist, is to say, wait a second, everything that we have thought is wrong. Let’s re-examine it.
+ - Show business is and has always been a depraved carnival.
+ - Like Lincoln said: “If slavery is not wrong, nothing is wrong,” and I feel the same way about the leftist dismantling of the West. If that’s not wrong, then nothing is wrong.
+ - Where in the wide history of the world do we find art created by the excessively wealthy, powerful, or educated?
+ - No one enjoys being equal.
+ - I always thought the real violence in Hollywood isn’t what’s on the screen. It’s what you have to do to raise the money.
+ - Here is a sovereign talisman against regret: never do that which might engender it.
+ - When you come into the theatre, you have to be willing to say, ‘We’re all here to undergo a communion, to find out what the hell is going on in this world.’ If you’re not willing to say that, what you get is entertainment instead of art, and poor entertainment at that.
+ - My alma mater is the Chicago Public Library.
+ - I don’t think there’s any information to be gotten from television.
+ - I grew up in a tough neighborhood and we used to say you can get further with a kind word and a gun than just a kind word.
+ - I’m greedy and ambitious like everybody else.
+ - Being among my people is a delight. We Jews live among ourselves. I love it.
+ - You can’t rely on the acting to tell the story.
+ - Art is about the spontaneous connection of the artist to his own unconscious – about insight beyond reason. If his insight were reasonable, anyone could do it, but anyone cannot. Only few can, and they are called.
+ - It’s hard to write a good plot, it’s very hard.
+ - I look back on my liberal political beliefs with a sort of wonder – as another exercise in self-involvement – rewarding myself for some superiority I could not logically describe.
+ - Obama is a tyrant the same way FDR was a tyrant. He has a view of presidential power that states: the government is in control of the country, and the president is in charge of the government. He’s taken an imperial view of the presidency.
+ - One can read all one wants, and spend eternities in front of a blackboard with a tutor, but one is not going to learn to swim until one gets in the water.
+ - I tend to write a lot, which I think is the secret to being prolific.
+ - War is tragedy. The great war stories are tragedies. It’s the failure of diplomacy. ‘War and Peace,’ ‘A Farewell to Arms,’ ‘For Whom the Bell Tolls.’ Those are some of the greatest tragedies.
+ - Make the audience wonder what’s going on by putting them in the same position as the protagonist.
+ - Before you can steal fire from the Gods you gotta be able to get coffee for the director.
+ - We live in oppressive times. We have, as a nation, become our own thought police; but instead of calling the process by which we limit our expression of dissent and wonder ‘censorship,’ we call it ’concern for commercial viability.
+ - I won’t ever do e-mail.
+ - I took the liberal view for many decades, but I believe I have changed my mind.
+ - Liberalism is a religion. Its tenets cannot be proved, its capacity for waste and destruction demonstrated. But it affords a feeling of spiritual rectitude at little or no cost.
+ - It’s upsetting to be a man in our society.
+ - Many players will not improve because they cannot bear self-knowledge.
+ - Our job, as writers is to do our jobs.
+ - The great movie can be as free of being a record of the progress of the protagonist as is a dream.
+ - American football seems to resemble soccer in that one scores by putting the ball through the opponent’s goal; but football, truly is about land. The Settlers want to move the line of scrimmage Westward, the Native Americans want to move it East.
+ - We respond to a drama to that extent to which it corresponds to our dream life.
+ - A good film script should be able to do completely without dialogue.
+ - I’ve been alienating my public since I was 20 years old. When ‘American Buffalo’ came out on Broadway, people would storm out and say, ‘How dare he use that kind of language!’ Of course I’m alienating the public! That’s what they pay me for.
+ - The theatre is traditionally where people go to hear the truth.
+ - A stage play is basically a form of uber-schizophrenia. You split yourself into two minds – one being the protagonist and the other being the antagonist. The playwright also splits himself into two other minds: the mind of the writer and the mind of the audience.
+ - My definition of a ‘friend’ is, coming from Chicago, someone who says, ‘Yeah, sure. You know what? Let’s talk about what we can talk about. Let’s help each other out. Your politics are none of my business.’
+ - If, indeed, a firearm were more dangerous to its possessors than to potential aggressors, would it not make sense for the government to arm all criminals, and let them accidentally shoot themselves? Is this absurd? Yes, and yet the government, of course, is arming criminals.
+ - I’ve been alienating my public since I was 20 years old.
+ - What we’re trying to do is find two or more shots the juxtaposition of which will give us the idea.
+ - The individual is not only best qualified to provide his own personal defense, he is the only one qualified to do so: and his right to do so is guaranteed by the Constitution.
+ - I like Bach. I like Randy Newman.
+ - If You can’t tell it to me in one sentence, they can’t put it in TV Guide.
+ - I know very well what it is to be out of work and to be cheated by employers and I know what it is to be an employer.
+ - Always do things the least interesting way, the most blunt way, and you make a better movie. This is my experience.
+ - I used to think I’d like to be a fireman – in fact, I still would – and the only drawback I could see was coming back to the firehouse, after a day of fighting fires, and still having to put in an eight-hour day writing.
+ - Almost all movie scripts contain material that cannot be filmed.
+ - A novel it’s different. It’s kind of exhilarating not to have to cut to the bone constantly. Oh, well I can go over here for a moment. I can say what I think the guy was thinking or what the day looked like or what the bird was doing. If you do that as a playwright, you’re dead.
+ - In practice we, in the world, must do business with each other.
+ - In a restaurant one is both observed and unobserved. Joy and sorrow can be displayed and observed “unwittingly,” the writer scowling naively and the diners wondering, What the hell is he doing?
+ - How can I be secure? Through amassing wealth beyond all measure? No. And what’s beyond measure? That’s a sickness. That’s a trap. There is no measure. Only greed.
+ - There’s nothing in the world more silent than the telephone the morning after everybody pans your play. It won’t ring from room service; your mother won’t be calling you. If the phone has not rung by 8 in the morning, you’re dead.
+ - Conservatives believe in smaller government and in the power of the electorate. So I think that we’re less likely to try to use a dramatic forum to warp people’s political views.
+ - As long as the protagonist wants something, the audience will want something.
+ - In a world we find terrifying, we ratify that which doesn’t threaten us.
+ - Every reiteration of the idea that nothing matters debases the human spirit.
+ - Writing a novel is an incredibly free experience. One puts one’s self in a narrative mode. You can go off in any direction – the past, the future, or go laterally, or include one’s own beliefs. It’s total freedom.
+ - The true writer must write not the acceptable but the true.
+ - In my family, in the days prior to television, we liked to while away the evenings by making ourselves miserable, solely based on our ability to speak the language viciously.
+ - A good writer gets better only by learning to cut, to remove the ornamental, the descriptive, the narrative, and especially the deeply felt and meaningful. What remains? The story remains.
+ - The audience will teach you how to act and the audience will teach you how to write and to direct. The classroom will teach you how to obey, and obedience in the theatre will get you nowhere. It’s a soothing falsity.
+ - The liberals in my neighbourhood wouldn’t give away Brentwood to the Palestinians, but they want to give away Tel Aviv.
+ - Don’t write stage directions. If it is not apparent what the character is trying to accomplish by saying the line, tell us how the character said it or whether or not she moved to the couch isn’t going to aid the case.
+ - I’m responding to the will of the people.
+ - In Chicago, we love our crooks!
+ - The Israelis would like to live in peace within their borders; the Arabs would like to kill them all.
+ - Characters on stage, like people in what we refer to as “real life,” do not speak to reveal themselves. They do not speak to conceal themselves. They speak to get whatever it is that they want. It is the only reason they speak.
+ - The images in a dream are vastly varied and magnificently interesting.
+ - Hitchcock denigrated American films, saying they were all ‘pictures of people talking’ – as, indeed, most of them are.
+ - The pain of losing is diverting. So is the thrill of winning. Winning, however, is lonelier, as those you’ve won money from are not likely to commiserate with you. Winning takes getting used to.
+ - The quality I most admire in a man is steadfastness.
+ - There’s something in me that just wants to create dialogue.
+ - It is not the constitutional prerogative of the Government to determine needs.
+ - I don’t really have a social life.
+ - When we leave the play saying how spectacular the sets or costumes were, or how interesting the ideas, it means we had a bad time.
+ - I was fortunate enough to have a rambling youth.
+ - My greatest fear is that the audience will beat me to the punch line.
+ - Films have degenerated to their original operation as carnival amusement – they offer not drama but thrills.
+ - It is the objective of the protagonist that keeps us in our seats.
+ - The audience perceives only what the actor wants to do to the other actor.
+ - I’m afraid of only two things: being lazy and being cowardly.
+ - I’m entitled to my political opinions, and I get to vote because I’m an American.
+ - Cultivate a love of skill. Learn theatrical skills. They will give you continual pleasure, self-confidence, and link you to fifty thousand years of the history of our profession.
+ - I love all insider memoirs. It doesn’t matter whether it’s truck-drivers or doctors. I think everybody likes to go backstage, find out what people think and what they talk about and what specialised job they have.
+ - Blasphemy and prayer are one. Both assert the existence of a superior power. The first, however, with conviction.
+ - The first amendment ensures not that speech will be fair, but that it will be free. It cannot be both.
+ - Luck, if there is such a thing, is either going to favor everyone equally or going to exhibit a preference for the prepared.
+ - President Obama seems to understand the Constitution as a ‘set of suggestions.’
+ - I’ve always been fascinated by the picaresque.
+ - I didn’t knowingly meet a conservative until, to my shame, I was 60 years old and sat down and said, ‘Wow, I don’t understand what this guy’s talking about, but he has a great civility about him. Perhaps I better investigate this thing.’
+ - The work of the director is the work of constructing the shot list from the script.
+ - Movies were never an art form, they were entertainment. It just evolved into an art form from there, and it’s still evolving in different ways.
+ - We recipients of the boon of liberty have always been ready, when faced with discomfort, to discard any and all first principles of liberty, and, further, to indict those who do not freely join with us in happily arrogating those principles.
+ - The most charming of theories holds that someone other than Shakespeare wrote Shakespeare’s plays – that he was of too low a state, and of insufficient education. But where in the wide history of the world do we find art created by the excessively wealthy, powerful, or educated?
+ - Roll back the clock, and every possession of every great country started with a crime.
+ - The terror and beauty of the dream come from the connection of previously unrelated mundanities of life.
+ - Art is an expression of joy and awe. It is not an attempt to share one’s virtues and accomplishments with the audience, but an act of selfless spirit.
+ - I’m not the guy to ask about politics. I’m a gag writer.
+ - When I started out I was a failed actor.
+ - You don’t know what life is. You know nothing.
+ - There’s no such thing as talent; you just have to work hard enough.
+ - People only speak to get something.
+ - There is a profound and ineradicable taint of antisemitism in the British.
+ - Listen, here’s the thing about an English degree – if you sat somebody down and asked them to make a list of the writers they admire over the last hundred years, see how many of them got a degree in English.
+ - You can’t write about history without writing about politics at some point. History is about movements of people. ‘What is criminality and what is government’ is a theme that runs through every history.
+ - For it is written that just as it is forbidden to partake of the forbidden, it is forbidden not to partake of the permitted.
+ - Having spent too many years in show business, the one thing I see that succeeds is persistence. It’s the person who just ain’t gonna go home. I decided early on that I wasn’t going to go home. This is what I’ll be doing until they put me in jail or in a coffin.
+ - Art and mass entertainment and propaganda, they can all be plotted on the same graph, but there is a difference.
+ - You know, young actors say all the time, ‘Should I use my own life experience?’ And my response is, ‘What choice do you have?’
+ - Any claim to actual identification as a drama must rest upon the construction of a plot independent of the assignment of affliction to the protagonist.
+ - My tendency as an actor was to correct people, was to say, ‘What if we tried it this way, what about if we tried that way?’ That’s terrible habit for an actor, but that’s a good habit for director. So I became a director.
+ - There is no such thing as character other than the habitual action, as Mr. Aristotle told us two thousand years ago.
+
+184 quotes

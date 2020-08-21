@@ -1,0 +1,63 @@
+ - I do not intend to be made the scapegoat of sacrifice, to be offered up as a victim to society.
+ - I shall not change my course because those who assume to be better than I desire it.
+ - I am a free lover. I have an inalienable, constitutional and natural right to love whom I may, to love as long or short a period as I can; to change that love every day if I please.
+ - I do not assume to speak for anyone. I know I speak in direct opposition to the wishes of many by whom I am surrounded.
+ - I offer you the remedy of Free Love as an antidote for enforced lust, and the world will have to take it before the disease can be cured.
+ - I supposed that to marry was to be transported to a heaven not only of happiness but of purity and perfection.
+ - No man who respects his mother or loves his sister, can speak disparagingly of any woman; however low she may seem to have sunk, she is still a woman. I want every man to remember this. Every woman is, or, at some time, has been a sister or daughter...
+ - All talk of women’s rights is moonshine. Women have every right. They have only to exercise them.
+ - Woman, no less than man, can qualify herself for the more onerous occupations of life.
+ - Why is a woman to be treated differently? Woman suffrage will succeed, despite this miserable guerilla opposition.
+ - The American nation, in its march onward and upward, can not publicly choke the intellectual and political activity of half its citizens by narrow statutes.
+ - The rights of children as individuals begin while yet they remain the foetus.
+ - The wife who submits to sexual intercourse against her wishes or desires, virtually commits suicide; while the husband who compels it, commits murder.
+ - There is something wrong with a government that makes women the legal property of their husbands. The whole system needs changing, but men will never make the changes. They have too much to lose.
+ - I believe in Spiritualism; I advocate free love in the highest, purest sense, as the only cure for the damnation by which men corrupt God’s most holy institution of sexual relations.
+ - The spirits are coming back to tear your damned system of sexual slavery into tatters and consign its blackened remnants to the depth of everlasting hell.
+ - So after all I am a very promiscuous free lover. I want the love of you all, promiscuously.
+ - It makes no difference who or what you are, old or young, black or white, pagan, Jew, or Christian, I want to love you all and be loved by you all, and I mean to have your love.
+ - It must always be remembered that you can never do right until you are first free to do wrong; since the doing of a thing under compulsion is evidence neither of good nor bad intent; and if under compulsion, who shall decide what would be the substituted rule of action under full freedom?
+ - You are all aware that my private life has been pictured to the public by the press of the country with the intent to make people believe me to be a very bad woman.
+ - Woman’s ability to earn money is better protection against the tyranny and brutality of men than her ability to vote.
+ - There are none so ignorant but they may be taught. So, too, are there none so unfortunate in their understanding of the true and high relation of the sexes as not to be amenable to the right kind of instruction.
+ - Denounce me for advocating freedom if you can, and I will bear your curse with a better resignation.
+ - While others prayed for the good time coming, I worked for it.
+ - Women have no government.
+ - My judges preach against free love openly, practice it secretly.
+ - The uses of government should be to foster, protect and promote the possession of equality.
+ - The women of the country have the power in their own hands, in spite of the law and the government being altogether of the male order.
+ - I now announce myself as candidate for the Presidency. I anticipate criticism; but however unfavorable I trust that my sincerity will not be called into question.
+ - I imagined that the priestly ceremony was perfect sanctification, and that the sin of sins was for either husband or wife to be false to that relation.
+ - I shall make it my business to take my chances in the matter of libel suits.
+ - I boldly entered the arena of business and exercised the rights I already possessed.
+ - Hundreds, thousands, aye, millions of human beings, men, women and children, wander the streets of our cities and the highways of our country, hungry, ragged and cold, vainly seeking in this land of plenty, where physical want should be unknown.
+ - I endeavor to make the most of everything.
+ - I do not shake hands from a sanitary standpoint.
+ - I ask the rights to pursue happiness by having a voice in that government to which I am accountable.
+ - Strike as much and as hard as you please, only don’t do it in the dark so that I cannot know who is my enemy.
+ - When I found I had given birth to a human wreckage, to a child that was an imbecile, my heart was broken.
+ - Let women issue a declaration of independence sexually, and absolutely refuse to cohabit with men until they are acknowledged as equals in everything, and the victory would be won in a single week.
+ - Rude contact with facts chased my visions and dreams quickly away, and in their stead I beheld the horrors, the corruption, the evils and hypocrisy of society, and as I stood among them, a young wife, a great wail of agony went out from my soul.
+ - Suffrage is a common right of citizenship. Women have the right of suffrage. Logically it cannot be escaped.
+ - One of the charges made against me is that I lived in the same house with my former husband, Dr. Woodhull, and my present husband, Col. Blood. The fact is a fact.
+ - I believed that a husband must necessarily be an angel, impossible of corruption or contamination.
+ - Political matters are developing so fast that we must not let a single thing slip without use.
+ - I know that my companions from the moment of birth were heaven’s choicest souls. I grew side by side with them, in fact all the education and inspiration came over them.
+ - I was divorced from Dr. Woodhull for reasons which to me were sufficient, but I was never his enemy.
+ - To go behind a man’s hall-door is mean, cowardly, unfair opposition.
+ - For a woman to consider a financial question was shuddered over as a profanity.
+ - If women would today would rise en masse and demand their emancipation, the men would be compelled to grant it.
+ - Is it fair to treat a woman worse than a man, and then revile her because she is a woman?
+ - When I first saw the light of day on this planet, it seemed as if I had been rudely awakened from a death-like sleep.
+ - It is extremely unfortunate that an editor’s own life and practice should be notoriously at variance with his written principles.
+ - I went with my husband and an innocent child to California. I went to a theatrical manager and asked him to allow me to earn money enough on the stage to buy our tickets home. He did.
+ - If Congress refuse to listen to and grant what women ask, there is but one course left then to pursue. What is there left for women to do but to become the mothers of the future government?
+ - The sin of all time has been the exercise of assumed powers. This is the essence of tyranny.
+ - My opinions and principles are subjects of just criticism.
+ - I would like above any other place to go to Hartford. I want to face the conservatism there centered and compel it into decency.
+ - By what right do you refuse to accept the vote of a citizen of the United States?
+ - Every woman knows that if she were free, she would never bear an unwished-for child nor think of murdering one before its birth.
+ - Love is that which exists to do good, not merely to get good...
+ - Entrepreneurs are risk takers, willing to roll the dice with their money or reputations on the line in support of an idea or enterprise.
+
+61 quotes

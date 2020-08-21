@@ -1,0 +1,82 @@
+ - No matter how you feel, get up, dress up and show up.
+ - Whatever doesn’t kill you really does make you stronger.
+ - Time heals almost everything. Give time time.
+ - Over prepare, then go with the flow.
+ - Take a deep breath. It calms the mind.
+ - If we threw our problems in a pile and saw everyone else’s, we’d grab ours back.
+ - No one is in charge of your happiness except you.
+ - Don’t take yourself so seriously. No one else does.
+ - However good or bad a situation is, it will change.
+ - No one really has a bad life. Not even a bad day. Just bad moments.
+ - When it comes to chocolate, resistance is futile.
+ - When it comes to going after what you love in life, don’t take no for an answer.
+ - Life is too short to waste time hating anyone.
+ - Forgive everyone everything.
+ - Life is too short for long pity parties. Get busy living, or get busy dying.
+ - You don’t have to win every argument. Agree to disagree.
+ - Sometimes you have to disconnect to stay connected. Remember the old days when you had eye contact during a conversation? When everyone wasn’t looking down at a device in their hands? We’ve become so focused on that tiny screen that we forget the big picture, the people right in front of us.
+ - It’s scary to make major changes, but we usually have enough courage to take the next right step. One small step and then another. That’s what it takes to raise a child, to get a degree, to write a book, to do whatever it is your heart desires.
+ - Everything can change in the blink of an eye. But don’t worry; God never blinks.
+ - Get outside every day. Miracles are waiting everywhere.
+ - Choice, not chance, determines your destiny. It’s up to you to decide what you are worth, how you matter, and how you make meaning in the world. No one else has your gifts – your set of talents, ideas, interests. You are an original. A masterpiece.
+ - Frame every so-called disaster with these words: In five years, will this matter?
+ - Envy is a waste of time. You already have all you need.
+ - Growing old beats the alternative – dying young.
+ - No matter how I feel, I get up, dress up, and show up for life. When I do, the day always serves up more than I could have hoped for. Each day truly is a slice of heaven. Some days the slices are just smaller than others.
+ - When in doubt, take the next step.
+ - Don’t audit life. Show up and make the most of it now.
+ - To celebrate growing older, I once wrote the 45 lessons life taught me. It is the most-requested column I’ve ever written.
+ - Your children get only one childhood.
+ - Be eccentric now. Don’t wait for old age to wear purple.
+ - If a relationship has to be a secret, you shouldn’t be in it.
+ - It’s OK to get angry with God. He can take it.
+ - Too often, we get attention and sympathy by being a victim. If we’re invested in someone being our villain, we must love being the victim. We have to let go of both characters in the story.
+ - Life isn’t tied with a bow, but it’s still a gift.
+ - It’s OK to let your children see you cry.
+ - A writer writes. If you want to be a writer, write.
+ - If you’re lucky enough to still have grandparents, visit them, cherish them and celebrate them while you can.
+ - We’ve come a long way from having one land line that was forbidden to be answered during dinner. We had no answering machine, just a dad who barked, ‘Who calls during dinner? If it’s important, they’ll call back.’ He was right.
+ - It’s easier to forgive those who hurt you than those who hurt the people you love.
+ - Cry with someone. It’s more healing than crying alone.
+ - God isn’t present in the past or future. The great ‘I Am’ is in the present moment. When I claim that presence, I can get through anything today.
+ - God loves you because of who God is, not because of anything you did or didn’t do.
+ - We all have a personal pool of quicksand inside us where we begin to sink and need friends and family to find us and remind us of all the good that has been and will be.
+ - Before I started chemotherapy treatments, I wrote down the best advice from doctors, family, friends, books, and survivors and created an ‘Owner’s Manual’ to help me take care of myself. It would remind me that cancer is doable.
+ - Summer is the annual permission slip to be lazy. To do nothing and have it count for something. To lie in the grass and count the stars. To sit on a branch and study the clouds.
+ - A book store is a treasure chest. Every time you walk in one, you strike gold.
+ - Most of life is showing up. You do the best you can, which varies from day to day.
+ - We need to be smarter than our smart phones and realize the people we are with are more important than the people we aren’t with, and way more important than the strangers we hope will tweet and like and share and Instagram whatever we’re sending out into the cybersphere.
+ - Bakers get excited over aprons. I love the soft cotton ones with pockets like my gramma and mom wore. They always kept a hankie tucked in one pocket, which wasn’t sanitary, but was comforting to the child who needed a tear or nose wiped.
+ - If baking is any labor at all, it’s a labor of love. A love that gets passed from generation to generation.
+ - Get rid of anything that isn’t useful, beautiful or joyful.
+ - My daughter had carried within her a story that kept hurting her: Her dad abandoned her. She started telling herself a new story. Her dad had done the best he could. He wasn’t capable of giving more. It had nothing to do with her. She could no longer take it personally.
+ - It takes tough love to order kids to step away from the iPhone or iPad during dinner or to take the devices away if they’re interrupting and interfering with everyone else’s pleasure at a movie, concert or other public event.
+ - Eating something fresh out of the oven is like a hug you can taste.
+ - Family is more than DNA, more than who we used to be, more than we can imagine we will become.
+ - When you have cancer, it’s like you enter a new time zone: the Cancer Zone. Everything in the Tropic of Cancer revolves around your health or your sickness. I didn’t want my whole life to revolve around cancer. Life came first; cancer came second.
+ - Some people hate funerals. I find them comforting. They hit the pause button on life and remind us that it has an end. Every eulogy reminds me to deepen my dash, that place on the tombstone between our birth and our death.
+ - The last watch I wore felt like a handcuff. When I need to know the time, I check my cell phone.
+ - The secret to success, to parenting, to life, is to not count up the cost. Don’t focus on all the steps it will take. Don’t stare into the abyss at the giant leap it will take. That view will keep you from taking the next small step.
+ - I say we all take the pledge and stay home. Thanksgiving is a day to give thanks for what you have, not to save a few dollars to get more.
+ - God never gives us more than what we can carry.
+ - I once heard someone say that prayer is more than words. It’s a stance you take, a position you claim. You throw your body against the door to keep the demons from advancing and stay put until they go away.
+ - While journalists cannot right every wrong, champion every cause or fix every problem, they can – through the written word – lift someone’s burden for a day, make some elderly woman on a bus smile or let them know they are noticed by someone.
+ - It’s sad that grandkids show up at the end of obituaries, way behind the list of work place achievements, social clubs and survivors. Why last? If you’ve got grandkids, you know they’re first when it comes to the joy in your life.
+ - Back when I was dating, the dreaded C word was Commitment. As soon as most men found out I had a child, they ran. If I ever got close enough to say the words, ‘I love you,’ they ran faster.
+ - Baking happens with ingredients that last for months and come to life inside a warm oven. Baking is slow and leisurely.
+ - When you hear the word ‘cancer,’ it’s as if someone took the game of Life and tossed it in the air. All the pieces go flying. The pieces land on a new board. Everything has shifted. You don’t know where to start.
+ - Even if you have nothing in your wallet, nothing can keep you from having a great summer. You can listen to crickets sing you to sleep, trace the Big Dipper, breathe in the stars, run through a sprinkler, host a cartwheel contest in the front yard.
+ - Cancer is messy and scary. You throw everything at it, but don’t forget to throw love at it. It turns out that might be the best weapon of all.
+ - Each day is a precious gift to be savored and used, not left unopened and hoarded for a future that may never come.
+ - For me, being Catholic was who I was and who I am, just like I’m Irish and Slovak. It’s just so ingrained in us.
+ - Sometimes you have to censor books. When I read ‘Peter Rabbit,’ I skip the part about Peter’s father ending up in one of Mrs. McGregor’s pies. I also hid the book of ‘Grimm Fairy Tales.’ They’re just too grim for my grandkids. Reality will come soon enough.
+ - When you write a book, you are asking someone to make an investment in their time and money. A column can come and go as the weeks pass, but a book needs to be timeless.
+ - It takes courage to sit on a jury. How many of us want to decide the fate of another person’s life or freedom? How many of us want to hold that kind of power in our hands?
+ - The idea of being stuck in a plane with dozens of people chatting over each other on their phones might feel like Dante’s 10th circle of hell.
+ - There are few places you can find silence. Air travel could be the last fortress of solitude.
+ - There’s so much living to be squeeze into the cracks of one little day. You can make someone laugh, smile, hope, sing, think.
+ - Pope Francis is not only changing the face of the Catholic Church, he’s challenging us to be the face of God in the world by seeing the face of God in the person we least expect to see it, including the person in the mirror.
+ - Choas will come, calm will follow, and then it will start up all over again. The secret is to savor the ride.
+ - As much as the Pulitzer is the hallmark of journalism, I think what I love the most is when somebody says they took my column and it’s in their wallet. I have had people open their wallet and show me a corner of a column.
+
+80 quotes

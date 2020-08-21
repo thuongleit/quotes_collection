@@ -1,0 +1,24 @@
+ - PhD, MFA, self-taught – the only things you must have to become a writer are the stamina to continue and a wily, cagey heart in the face of extremity, failure, and success.
+ - The ideal editor will hold you to the best of yourself in the piece.
+ - As I get ready to buy a new computer, I’m stunned at all the many micro drafts, of different chapters and scenes and whatnot, that litter the hard drive.
+ - Characters to me are like sonnets, they have limits that you obey which allow a force to enter in, an invention that makes the novel possible. Change the limits and the force leaves. The novel becomes impossible.
+ - Most written work is a conversation between the editor and the writer, that the writer essentially fulfills in public, and the editor provides the stage for that to happen as well as the prompts.
+ - With my family background – my parents were both activists – writing about culture and politics came naturally.
+ - As writer pay declined and teacher pay also, we all started hanging out online. You could say online social networks cheapen our friendships or you could say we were cheapened by a plutocratic power grab and this is all we can afford.
+ - It’s my experience that people don’t think of fiction writing as being as intellectually serious as other kinds of writing in academia and so without a career as a critic or essayist you can be treated as something of a spiritual medium – a fraud – for “just” writing fiction.
+ - Every now and then, you find a book that feels like it was keyed to your DNA.
+ - The way some were entrapped into lives of prostitution, the way that something like marriage could rob them of their rights.
+ - Everyone would tell me they couldn’t identify with sexual abuse. No one says they can’t identify with the tales of the Greek gods and goddesses because they don’t live on Mt. Olympus.
+ - Writers aren’t born, they’re made – from practice, reading, and a lot of caffeine.
+ - I was trying to make a novel about something no one wanted to read about into something they couldn’t put down or look away from.
+ - I realized that my identity as a novelist was private. Only I knew how much of a novelist I was!
+ - The myth works to make the very real things people don’t want to look at visible for them.
+ - Each source that I read, I would look through the bibliography and the footnotes, and use that as a map for the next thing I would read.
+ - I grew up treating a life as a writer as a career in letters, one devoted to many kinds of writing. And so it seemed normal to study both fiction writing and the literary essay as an undergrad.
+ - I have lived for a long time inside a series of coincidences that most people would find implausible in a novel.
+ - The idea of a talent that was bigger than an artist’s ability to choose to use it, that would dictate the artist’s life more than the artist could dictate, was interesting to me.
+ - I’ve been told it’s hard to write about singing. I didn’t realize that going into it. I might not have tried if I knew!
+ - Whenever people say a coincidence in a novel is implausible, I think, Do I have a story for you...
+ - I knew it was a risk but what I was after was a novel that is about the feeling that comes with a coincidence in real life – that you feel as if something divine has intervened and has arrived with a message.
+
+22 quotes

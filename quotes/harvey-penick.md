@@ -1,0 +1,26 @@
+ - Be yourself. Play within yourself. Play your own game.
+ - In golf your strengths and weaknesses will always be there. If you could improve your weaknesses, you would improve your game. The irony is that people prefer to practice their strengths.
+ - Be brave if you lose and meek if you win.
+ - If you play golf, you are my friend.
+ - I don’t care how good you play, you can find somebody who can beat you, and I don’t care how bad you play, you can find somebody you can beat.
+ - I see things written about the golf swing that I can’t believe will work except by accident .
+ - A golfer rarely needs to hit a spectacular shot until the one that preceded it was pretty bad.
+ - In my opinion, no young player can develop his or her game to its highest potential if he or she rides around the course in a golf cart.
+ - Golf tips are like aspirin. One may do you good, but if you swallow the whole bottle you will be lucky to survive.
+ - A pretty girl will always have the toughest time learning to play golf, because every man wants to give her lessons.
+ - Life is full of many minor annoyances, and few matters of real consequence.
+ - I learn teaching from teachers. I learn golf from golfers. I learn winning from coaches.
+ - No matter how poorly you play, there is always someone you can beat. No matter how well you play, there is always someone who can beat you.
+ - A good putter is a match for anyone. A bad putter is a match for no one.
+ - Looking up is the biggest alibi ever invented to explain a terrible shot. By the time you look up, you’ve already made the mistake.
+ - All seasoned players know, or at least have felt, that when you are playing your best, you are much the same as in a state of meditation. You are free of tension and chatter. You are concentrating on one thing. It is the ideal condition for good golf.
+ - Lessons are not to take the place of practice, but to make practice worthwhile.
+ - You don’t lose your swing between the ninth green and the tenth tee, and you don’t lose your swing from one day to the next. If you think you do, something is going on that you don’t understand. A diary might help explain it to you.
+ - Golf has probably kept more people sane than psychiatrists have.
+ - Make a game out of practice, you’re still a child at heart.
+ - I compare the pressure of a golf shot with making an extra point in basketball. The player starts from a full stop, and that rim doesn’t move.
+ - The woods are full of long drivers.
+ - Go out and have fun. Golf is a game for everyone, not just for the talented few.
+ - Never try a shot you haven’t practised.
+
+24 quotes

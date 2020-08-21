@@ -1,0 +1,31 @@
+ - I want to go outside and play.
+ - My motto is that I enjoy life. I think there’s a kind of simplicity to that way of thinking.
+ - There is such a thing as fate, but it only takes you so far. Then its up to you to make it happen.
+ - AIDS is a state of mind, not a disease.
+ - The most memorable moment was playing drums with Bob Dylan.
+ - Not hippie – my parents were not hippies – but they were very supportive and encouraging, and that does a lot for someone, and it gives them a lot of confidence.
+ - There’s a power in women being women. There’s a role for men, but we don’t have to be men, because we’re women. I think that representing that on television is a cool thing.
+ - Sting! I mean, come on – whoe doesn’t love Sting? Even if you love Megadeath, you have respect for Sting. If you love Pokemon, you’ll find out who Sting is someday.
+ - I can’t say I can foresee the future and tell the stars, you know. But I do have an understanding for my own reality, just elements and things that I’ve learned from.
+ - And you don’t want to just totally mess up the rhythm when you’re playing with Bob Dylan.
+ - I think that marriage is an amazing institution and should be preserved, and you can have great marriages, and you must because sharing your life with someone is like the greatest thing. And I loved being able to set a good example for that on television.
+ - I’m not some big party chick, so it’s not like I have to keep up my big social life.
+ - I intend to make Scientology as accessible to as many people as I can.
+ - And as a character, what I found very inspiring about playing Dharma, especially at that time, is that the women on television were more neurotic than they were free. And I thought, this is a rare bird and this is unique on television and I think it’s really refreshing.
+ - If you get excited about something, it’s totally okay to show it.
+ - It’s such a pleasurable experience to look back, and all of the fun I had just comes rushing back.
+ - I just think it’s fun to remind people that good television has exited and it can exist again and just to give them pleasure and enjoy it and make them laugh.
+ - Drama is not hard for me. It just didn’t seem hard.
+ - I got good notice from that show, and on the last day of filming Townies, Twentieth Century Fox called wanting to meet with me about a development deal.
+ - I just think that it’s such a good show and timeless and still very funny, and that just makes me happy to have that whole first season in one concentrated space for people to enjoy so that it’s not hit and miss trying to find it in syndication always.
+ - And you know, we did it as an independent film, and we weren’t expecting it to be on television, and Lifetime ended up buying it. And the viewers responded intensely to that film.
+ - I’ll probably stick to comedy for the time being. I mean, a great piece of work is a great piece of work, and I’m up for good work anytime. But I do love comedy!
+ - Yeah, I think the common denominator – and this is probably going to sound like Acting 101 – but the common denominator is belief in the character in the moment.
+ - Playing in front of an audience was just such a turn-on for me, and you have 200 people in the audience and it’s like doing live theater. And filming something that goes to millions of people several weeks later, it’s an interesting dynamic.
+ - Comedy is much more challenging, because you have to have the same level of belief but you have to make people laugh, and that’s definitely a challenge.
+ - In comedy, something may be more absurd, but you have to believe just as much as you do when you’re doing drama.
+ - Especially while television I think is going through some growing pains or is in need of – I think current comedy is a bit, uh, not happening, you know?
+ - And I’m so excited to remind people and even gain new fans who find out about Dharma – a new generation who could find out about Dharma and enjoy her and all the characters on the show.
+ - I just kind of understood it, and I threw my love for others and love for life into the character, and was having a blast. I loved playing Dharma. I loved it!
+
+29 quotes

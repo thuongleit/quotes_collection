@@ -1,0 +1,84 @@
+ - I love you even when you’re sick and look disgusting.
+ - I like playing strange characters. Some people might say it has something to do with a hidden part of myself, but I think it’s a lot simpler than that: normal people are just not very interesting.
+ - I’ll be your friend so long as you’re not crap.
+ - My singing voice is somewhere between a drunken apology and a plumbing problem.
+ - I think it’s quite extraordinary that people cast me as if I’m Warren Beatty: until I met my present wife, at the age of 35, you could name two girlfriends.
+ - It’s a very dangerous state. You are inclined to recklessness and kind of tune out the rest of your life and everything that’s been important to you. It’s actually not all that pleasurable. I don’t know who the hell wants to get in a situation where you can’t bear an hour without somebody’s company.
+ - I never saw myself as Mr. Ugly, but I’m not that handsome. I can sort of be made to look quite a lot better or quite a lot worse.
+ - Just driving I just was in a car on flat ground and I couldn’t make it go. Having ticked driving and taken three driving lessons, I just was unable to produce any motion whatsoever under perfectly normal circumstances. I think we’ve all been busted on driving, and riding.
+ - When I’m really into a novel, I’m seeing the world differently during that time – not just for the hour or so in the day when I get to read. I’m actually walking around in a haze, spellbound by the book and looking at everything through a different prism.
+ - It’s a funny thing – the reality is I have no feelings about school. It’s long gone. Funnily enough, the bad memories – of which I don’t have any left to be honest, I can just remember a sense of tedium – have faded. And teachers that I liked have remained quite vivid. There are three or four left.
+ - Because I am an Englishman I spent most of my life in a state of embarrassment.
+ - The last thing I would attempt to do is to buy clothes for a child I didn’t know well.
+ - Nothing brings you closer together than blind terror.
+ - My parents and grandparents have always been engaged in teaching or the medical profession or the priesthood, so I’ve sort of grown up with a sense of complicity in the lives of other people, so there’s no virtue in that; it’s the way one is raised.
+ - I think England has served me very well. I like living in London for the reasons I gave. I have absolutely no intentions of cutting those ties. There is absolutely no reason to do so. Certainly not, so that I can have a swimming pool and a palm tree.
+ - Firth – all dodgy ‘tache and frantic eyebrows – has got the sexual allure of a man who runs a swingers’ club in Surbiton.
+ - Looking in the mirror, staring back at me isn’t so much a face as the expression of a predicament.
+ - I think everyone is throwing happy stuff at you, and that’s when you come over all humbug. It’s happy stuff in your face, happy stuff is being sold to you...
+ - As much as the next person, I want to be approved of, but I’m not greedy for that stuff.
+ - Comedy – particularly the frothy and frivolous – is notoriously neglected by festivals and awards. But it’s bloody hard to get right.
+ - So, I think there’s a danger that good stuff can fall by the wayside if it doesn’t conform to formula. But I think it comes down to money and they just don’t know where it’s going if they haven’t got any precedent.
+ - When I visited coffee farms in Ethiopia, the farmers could not believe we spend a week’s wages in their country on a cup of coffee in ours, because they see so little of the profits. Oxfam’s fair trade campaign helps right this wrong.
+ - If you’re playing someone who’s got marital problems, you have to play someone who’s trying not to have marital problems. So, you’ve got to get into the problem first.
+ - Actors are basically drag queens. People will tell you they act because they want to heal mankind or, you know, explore the nature of the human psyche. Yes, maybe. But basically we just want to put on a frock and dance.
+ - I think that London is very much like that. I find there’s humour in the air and people are interesting. And I think that it’s a place which is constantly surprising. The worst thing about it? I think it can be smug and aggressive.
+ - I think it helps to get a film made because people who put money in are nervous. They like to have something recognisable enough to make them secure that there’s a pattern there – that someone else put their money into something like this and made it back.
+ - On his fight scene with Hugh Grant in Bridget Jones: It was a delicious experience.
+ - Some people come up to be directors by coming through the camera department and there’s not a lot of women in the camera department. The ones that are have to kind of prove they’re one of the boys, I think. I don’t want to get into trouble with generalisations but I think it’s a fair observation.
+ - When I look in the mirror, I don’t see my Dad, I see my grandmother. For a while it was my mother looking back at me. If only it was my Dad.
+ - My primary instinct as an actor is not the big transformation. It’s thrilling if a performer can do that well, but that’s not me. Often with actors, it’s a case of witnessing a big party piece but wondering afterwards, where’s the substance?
+ - It’s whether they have a vision and whether they’re able to communicate it. The best director is just someone who gets over-excited about doing it – they don’t even have to know much about camera or acting.
+ - My grandmother was a minister as well, which was not that common in the 1930s.
+ - The English people, a lot of them, would not be able to understand a word of spoken Shakespeare. There are people who do and I’m not denying they exist. But it’s a far more philistine country than people think.
+ - I was delighted to become a popular-culture reference point. I’m still delighted about it actually, and I still find it to be weird.
+ - The Hollywood Foreign Press have just given me a time out from my 20-year midlife crisis. My heartfelt thanks to them.
+ - Sometimes to think about why some institutions are stable, it’s interesting to go one generation back and look at the author of that stability.
+ - But this is where you get all the market research and things get in danger of becoming formulaic, and where you depend on brands and getting recognised actors. It’s the thing that precludes risk very often, otherwise everyone would be avant-garde all over the place.
+ - I have a kind of neutrality, physically, which has helped me. I have a face that can be made to look a lot better – or a lot worse.
+ - The great thing about dealing with people about whom we have historical resources, is that if the writing needs work, there’s everywhere to go to enrich it.
+ - We’ve always been involved with America – I have a son who lives there and it’s a big part of my life.
+ - People have the idea of missionaries as going out with the Bible and hitting natives with it. It’s not really what they were doing. They were all doing something rather different.
+ - However good a communicator a director is, unless they’ve been actors, it’s just not the same as the shorthand you get with someone who’s been an actor.
+ - The skill of a good actor is to make it always seem like you’re in that fantastically spontaneous moment. Very often, a stand-up comedian has a different instinct, which is to reinvent. Once you’ve laid down some material, and made them laugh, you move on and find some new material.
+ - It used to be that I was always paranoid or a loser or something so there’s usually something that you seem to associate yourself with at one time or another.
+ - One of my grandfathers, actually, having gone out there as a minister, decided he would better serve the people as a doctor. So at a very late age – at the age of 38 in fact – he changed course and decided to become a doctor.
+ - I would rather five people knew my work and thought it was good work than five million knew me and were indifferent.
+ - Whenever you take on playing a villain, he has to cease to be a villain to you. If you judge this man by his time, he’s doing very little wrong.
+ - I often think it can often be very difficult for comedians to revisit the same gag. I think Russell’s a bit more than a comedian.
+ - It didn’t have to be a newfound respect for the craft, I knew that it’s notoriously difficult and frightens a lot of people off. I don’t think anyone knows quite who to attribute it to, but the dying actor who says: “dying is easy, comedy is hard.” I hear it.
+ - I think the dictator director is based upon stories from the past. I don’t think anyone would put up with it now. There are a lot of people on a film set with egos. So, to be completely authoritarian, you’d probably have to have a reputation like Kurosowa or somebody to get away with it.
+ - I don’t know if this qualifies as gentle reassurance, but right now this is all that stands between me and a Harley-Davidson.
+ - I’d love to try my hand at something else.
+ - It does help to actually realize that however stunning the person who is, you know, fluttering eyelashes at you, she doesn’t do anything to match up to your wife.
+ - I thought I was managing my expectations, but on hearing the news I discovered new and unfamiliar vocal tones. Perhaps I should do another musical.
+ - Directors don’t get to see other directors at work – they’re the only one on the set. I’ve met directors who’ve asked me what another filmmaker is like. So, there’s probably nobody better placed to make all the comparisons and to pick up stuff than an actor.
+ - But it’s interesting being directed by someone who is a very good actor. There’s nothing like it. It might sound like a territorial thing about what I do, but I don’t think you can understand what it is until you’ve done it. I know that to be a fact.
+ - And that is a hard route for a woman to come through. There’s still a lot of roles that have to be conformed to. It’s quite an old fashioned environment in a lot of ways.
+ - I don’t think it’s aiming at gags, I think the humour is woven into it. It’s part of how the characters operate and how they deal with disaster because they’re worldly enough to have a bit of irony and wryness about their own circumstances. So, I think the humour comes out of that.
+ - Hollywood hasn’t aggressively pursued me. Neither have I aggressively pursued Hollywood.
+ - If you’re playing someone who’s impeded by fear, or shyness, or has whatever dysfunction your character might have, you have to achieve the dysfunction first, imaginatively, in order to play someone who is trying to negotiate their way out of it.
+ - It’s entirely to do with personality, I think. There are good directors who talk a lot, bad directors who talk a lot, and good directors who don’t say much and vice-versa. It just depends on whether people respond to that personality and whether people have a willingness to do something for them.
+ - I’ve actually heard people protesting furiously about straight male costume people as well. It’s not universal and there are examples that break the mould all over the place. In my experience, it’s more prevalent in the UK than in America.
+ - To be bothered wherever you go – it’s not a rational thing to want at all.
+ - I do think a good story in a novel is fair game and there’s nothing wrong with adapting that. It sometimes gets a bit facile where they think: “Let’s get the next best-seller and see if we can turn it into a film.”
+ - Almost every comedy you see is about people making all wrong choices and making all the errors of judgement possible. Good comedy is when it works on this scale. Because it is psychologically very real.
+ - I can’t bring you absolute truth in the detailed factual sense. All I can do is bring you an interpretation as I understand it. That’s all you can ever get from an actor.
+ - I do also think it eludes genre a bit – not in any groundbreaking way but you can’t quite call it a comedy and you can’t quite call it a romantic anything. It’s not quite a drama either really. But it has elements of all those things.
+ - I absolutely don’t care about my looks and I’m so used to them that I wouldn’t change a thing. I would end up missing my defects.
+ - I do notice that when I’ve been away and I come back to London. People look at you. People are ready to pick arguments.
+ - Maybe it’s shallow of me to have a wife that’s so beautiful, but it makes things easier. To me she’s the most beautiful woman in the world.
+ - You have to be ill if you want to get better.
+ - Doing a job, or even watching a film, can make a difference to your life, but I don’t think it ever has an explosive impact where your life will never be the same again. It kind of seeps into your life, and perhaps realise you’re a little more vigilant about certain things than you might have been.
+ - I have a very long relationship with America. My mother grew up there and I felt to some extent that I partly belong there. I was schooled there briefly for about a year.
+ - I do think I’m a character actor.
+ - So, if you haven’t picked up some tips during an apprenticeship like that, you shouldn’t be directing. It doesn’t mean you can do it, but it loads you up with information.
+ - Forget trying to be sexy. That’s just gruesome.
+ - Most actors will tell you they have some sort of dream of doing something other than what they’re doing.
+ - To work effectively in a film, you have to repeat and work consistently. Basically, you shoot a big master then you do close-ups. You’re supposed to be in the same moment, the same 30-second moment, for a day.
+ - Bridget Jones is part of literary lore now and actually to be a part of it is enormously flattering.
+ - I haven’t had to struggle very much. I haven’t paid my dues. I think I have been lucky.
+ - I’m just the last English twit, really.
+ - No matter how much technique you draw on or how much training you have, acting is a mystery.
+
+82 quotes

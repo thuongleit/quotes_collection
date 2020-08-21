@@ -1,0 +1,66 @@
+ - Social progress makes the well-being of all more and more the business of each.
+ - Everybody works but the vacant lot.
+ - What protectionism teaches us, is to do to ourselves in time of peace what enemies seek to do to us in time of war.
+ - Unless there be correct thought, there cannot be any action, and when there is correct thought, right action will follow.
+ - Trade has ever been the extinguisher of war, the eradicator of prejudice, the diffuser of knowledge.
+ - The fundamental principle of human action, the law, that is to political economy what the law of gravitation is to physics is that men seek to gratify their desires with the least exertion.
+ - Charity is false, futile, and poisonous when offered as a substitute for justice.
+ - There are three ways by which an individual can get wealth-by work, by gift, and by theft. And, clearly, the reasons why the workers get so little is that the beggars and thieves get so much.
+ - What has destroyed every previous civilization has been the tendency to the unequal distribution of wealth and power.
+ - So long as all the increased wealth which modern progress brings goes but to build up great fortunes, to increase luxury and make sharper the contrast between the House of Have and the House of Want, progress is not real and cannot be permanent.
+ - There is danger in reckless change, but greater danger in blind conservatism.
+ - Man is the only animal whose desires increase as they are fed; the only animal that is never satisfied.
+ - Progressive societies outgrow institutions as children outgrow clothes.
+ - Passing into higher forms of desire, that which slumbered in the plant, and fitfully stirred in the beast, awakes in the man.
+ - The people must think because the people alone can act.
+ - To prevent government from becoming corrupt and tyrannous, its organization and methods should be as simple as possible, its functions be restricted to those necessary to the common welfare, and in all its parts it should be kept as close to the people and as directly within their control as may be.
+ - Compare society to a boat. Her progress through the water will not depend upon the exertion of her crew, but upon the exertion devoted to propelling her. This will be lessened by any expenditure of force in fighting among themselves, or in pulling in different directions.
+ - The protection of the masses has in all times been the pretense of tyranny – the plea of monarchy, of aristocracy, of special privilege of every kind. The slave owners justified slavery as protecting the slaves.
+ - How many men are there who fairly earn a million dollars?
+ - I propose to beg no question to shrink from no conclusion, but to follow truth wherever it may lead.
+ - The march of invention has clothed mankind with powers of which a century ago the boldest imagination could not have dreamt.
+ - How can a man be said to have a country when he has not right of a square inch of it.
+ - Man must be doing something, or fancy that he is doing something, for in him throbs the creative impulse; the mere basker in the sunshine is not a natural, but an abnormal man.
+ - That which is unjust can really profit no one; that which is just can really harm no one.
+ - We have made, and still are making, enormous advances on material lines. It is necessary that we commensurately advance on moral lines. Civilization, as it progresses, requires a higher conscience, a keener sense of justice, a warmer brotherhood, a wider, loftier, truer public spirit.
+ - How vainly shall we endeavor to repress crime by our barbarous punishment of the poorer class of criminals so long as children are reared in the brutalizing influences of poverty, so long as the bite of want drives men to crime.
+ - He who sees the truth, let him proclaim it, without asking who is for it or who is against it.
+ - The equal right of all men to the use of land is as clear as their equal right to breathe the air it is a right proclaimed by the fact of their existence. For we cannot suppose that some men have a right to be in this world, and others no right.
+ - The value of a thing is the amount of laboring or work that its possession will save the possessor.
+ - Capital is a result of labor, and is used by labor to assist it in further production. Labor is the active and initial force, and labor is therefore the employer of capital.
+ - The man who gives me employment, which I must have or suffer, that man is my master, let me call him what I will.
+ - For every social wrong there must be a remedy. But the remedy can be nothing less than the abolition of the wrong.
+ - God showers upon us his gifts-more than enough for all; But like swine scrambling for food, we tread them in the mire, and rend each other.
+ - It is not the business of government to make men virtuous or religious, or to preserve the fool from the consequences of his own folly.
+ - As it is with an individual, so it is with a nation. One must produce to have, or one will become a have-not.
+ - The methods by which a trade union can alone act, are necessarily destructive; its organization is necessarily tyrannical.
+ - Let no man imagine that he has no influence. Whoever he may be, and wherever he may be placed, the man who thinks becomes a light and a power.
+ - Private ownership of land is the nether mill-stone. Material progress is the upper mill-stone. Between them, with an increasing pressure, the working classes are being ground.
+ - The tolerance of wrong dulls our sense of its injustice. Men may become accustomed to theft, murder, even to slavery – that sum of all villainies – so they see no injustice in it, yet that which is unjust is unjust still.
+ - The word capital, as philologists trace it, comes down to us from a time when wealth was estimated in cattle, and a man’s income depended upon the number of head he could keep for their increase.
+ - Whoever becomes imbued with a noble idea kindles a flame from which other torches are lit, and influences those with whom he comes in contact, be they few or many. How far that influence, thus perpetuated, may extend, it is not given to him here to see.
+ - Poverty is the openmouthed relentless hell which yawns beneath civilized society. And it is hell enough.
+ - Property in land is as indefensible as property in man.
+ - There can be to the ownership of anything no rightful title which is not derived from the title of the producer and does not rest upon the natural right of the man to himself.
+ - Abolish all taxation save that upon land values.
+ - No person, I think, ever saw a herd of buffalo, of which a few were fat and the great majority lean. No person ever saw a flock of birds, of which two or three were swimming in grease, and the others all skin and bone.
+ - That amid our highest civilization men faint and die with want is not due to the niggardliness of nature, but to the injustice of man.
+ - For as labor cannot produce without the use of land, the denial of the equal right to the use of land is necessarily the denial of the labor to its own produce.
+ - Let no man imagine that he has no influence.
+ - The state, it cannot too often be repeated, does nothing, and can give nothing, which it does not take from somebody.
+ - I do not think that any sorrow of youth or manhood equalled in intensity or duration the black and hopeless misery which followed the wrench of transference from a happy home to a school.
+ - Whence shall come the new barbarians? Go through the squalid quarters of great cities, and you may see, even now, their gathering hordes! How shall learning perish? Men will cease to read, and books will kindle fires and be turned into cartridges.
+ - What would happen to the individual if all the functions of the body were placed under the control of the consciousness is what would happen to a nation in which all individual activities were directed by government.
+ - That alone is wise which is just; that alone is enduring which is right.
+ - It is as to whether its services or uses are to be exchanged or not which makes a tool an article of capital or merely an article of wealth. Thus, the lathe of a manufacturer used in making things which are to be exchanged is capital, while the lathe kept by a gentleman for his own amusement is not.
+ - It is not from top to bottom that societies die; it is from bottom to top.
+ - A good, very good, not to say admirable schoolmaster, but then he is only a schoolmaster.
+ - There are people into whose heads it never enters to conceive of any better state of society than that which now exists.
+ - As man is so constituted that it is utterly impossible for him to attain happiness save by seeking the happiness of others, so does it seem to be of the nature of things that individuals and classes can obtain their own just rights only by struggling for the rights of others.
+ - Poorly paid labor is inefficient labor, the world over.
+ - It is but a truism that labor is most productive where its wages are largest. Poorly paid labor is inefficient labor, the world over.
+ - In all the new states of the Union, land monopolization has gone on at an alarming rate, but in none of them so fast as in California, and in none of them, perhaps, are the evil effects so manifest.
+ - The ideal social state is not that in which each gets an equal amount of wealth, but in which each gets in proportion to his contribution to the general stock.
+ - If you would have the slave show the virtues of the freeman, you must first make him free.
+
+64 quotes

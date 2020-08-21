@@ -1,0 +1,22 @@
+ - I still have great faith in what is good and right in all of us.
+ - Music can make a difference. There is a global nature to music, which has the potential to bring all people together. Music is truly an international language, and I hope to contribute by widening communication as much as I can.
+ - I think that when NASA works on a moon shot, they know too well that all of the people working on it must do their job at 110 percent. Sometimes they probably put in 18 hour days, but they’re aiming for the moon, and that’s what counts.
+ - Maybe I’m old-fashioned. But I remember the beauty and thrill of being moved by Broadway musicals – particularly the endings of shows.
+ - You know, anyone who invites me to do something makes me feel special.
+ - There have been studies that clearly state that children who are exposed to arts education at a young age will in fact do markedly better in their SAT tests.
+ - I have always thought of music as a highway with many lanes.
+ - Normally I can balance two or three things. The problem is when you’re out of work and don’t have anything to balance. I think people assume you’re always busy. You go through dry spells.
+ - As I get older, I’m slowing down and, yes, calming down in my desire to be taken seriously. That I can be entertaining and funny and high nervous energy can work against me as a serious composer, slowly but surely you’ll see me be quieter just so that people will listen.
+ - The biggest thrill you can have is to tell people one of your songs, and have them be able to hum it.
+ - I started studying music at the age of five and a half. My older sister was taking piano lessons. When her teacher left our apartment, I would get up on the piano bench and start picking out the notes that were part of my sister’s lessons.
+ - From the time I could play the piano, I remember trying to write tunes. They were in my head, and I would just sit down and start noodling. Next thing I knew, I had written a melody.
+ - I never took any vocal training.
+ - Let’s say music is needed for only 43 seconds of film. You have to score it so it is an entity, so it won’t bother anyone when it ends so quickly. Or if a song runs 2 minutes and 45 seconds, but the titles run a minute longer, you have to arrange that song so it doesn’t get repetitious.
+ - I was always drawn to Broadway musicals, and obviously composers like Gershwin, Rodgers, Berlin and Porter were writing music that I found wildly impressive.
+ - You mustn’t underestimate an audience’s intelligence.
+ - I’m not one of those people who says, ‘I never read reviews,’ because I don’t believe those people.
+ - My show business career doesn’t mean I can’t write a symphony. It just means I was never asked to write one.
+ - Barbra Streisand is without a doubt one of the most honest people I have ever known. There is no doubt in my mind that she will not be doing any more concerts. Of course, she still will be making records and starring and directing in movies.
+ - My whole thing is not just to play music for people, but to make them part of the evening.
+
+20 quotes

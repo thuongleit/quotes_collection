@@ -1,0 +1,23 @@
+ - An artist’s failures are as valuable as his successes: by misjudging one thing he conforms something else, even if at the time he does not know what that something else is.
+ - The word ‘paradox’ has always had a kind of magic for me, and I think my pictures have a paradoxical quality, a paradox of chaos and order in one.
+ - If you can allow colour to breathe, to occupy its own space, to play its own game in its unstable way, it’s wanton behaviour, so to speak. It is promiscuous like nothing.
+ - As the artist picks his way along, rejecting and accepting as he goes, certain patterns of enquiry emerge.
+ - Painters have always needed a sort of veil upon which they can focus their attention. It’s as though the more fully the consciousness is absorbed, the greater the freedom of the spirit behind.
+ - Focusing isn’t just an optical activity; it is also a mental one.
+ - It is important that the painting can be inhabited, so that the mind’s eye, or the eye’s mind, can move about it credibly.
+ - In general, my paintings are multifocal. You can’t call it unfocused space, but not being fixed to a single focus is very much of our time.
+ - Painting is, I think, inevitably an archaic activity and one that depends on spiritual values.
+ - I work with nature, although in completely new terms.
+ - In my earlier paintings, I wanted the space between the picture plane and the spectator to be active.
+ - For me nature is not landscape, but the dynamism of visual forces.
+ - For me nature is not landscape, but the dynamism of visual forces, an event rather than an appearance. These forces can only be tackled by treating color and form as ultimate identities, freeing them from all descriptive or functional roles.
+ - I learned from Seurat this important thing about colour and light, that ‘a light’ can be built from colour. I learned a great deal about interaction, that ‘a blue’ in different parts will play all sorts of different roles.
+ - I used to build up to sensation, accumulating tension until it released a perceptual experience.
+ - The actual basis of colour is instability. Once you accept that in lieu of something which is stable, which is form, you are dealing with something which is unstable in its basic character, you begin to get a way of dealing with it.
+ - I never make studies from nature. They would get in the way. I make use of my mind.
+ - There was a time when meanings were focused and reality could be fixed; when that sort of belief disappeared, things became uncertain and open to interpretation.
+ - An artist’s early work is inevitably made up of a mixture of tendencies and interests, some of which are compatible and some of which are in conflict.
+ - As a painter today you have to work without that essential platform. But if one does not deceive oneself and accepts this lack of certainty, other things may come into play.
+ - I think this lack of a center has something to do with the loss of certainties that Christianity had to offer.
+
+21 quotes

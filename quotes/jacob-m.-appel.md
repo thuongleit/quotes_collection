@@ -1,0 +1,31 @@
+ - The most dangerous ideas are not those that challenge the status quo. The most dangerous ideas are those so embedded in the status quo, so wrapped in a cloud of inevitability, that we forget they are ideas at all.
+ - Patriotism is being convinced your country is better because you were born in it.
+ - Nothing sells tombstones like a Girl Scout in uniform.
+ - If you give a man a hammer, he thinks he can solve all problems by pounding. Well, God gave men penises...
+ - Even a poor tour guide is entitled to some happiness.
+ - The boss is never your friend, even if you’re sleeping with him.
+ - Marriage is like a series of opposing reflections, inverse images getting ever smaller like nesting dolls, each one of your trying to squeeze yourself smaller to fit inside the hopes of the other, until one of you cracks or stops existing.
+ - Life is nasty, brutish, and short. Death is easy.
+ - I am grateful that I have rights in the proverbial public square – but, as a practical matter, my most cherished rights are those that I possess in my bedroom and hospital room and death chamber.
+ - Never make enemies of anyone younger or healthier than you are. They write your history.
+ - Maybe life involves the pairing of unsuitable people, those who wait and those who keep others waiting, and the key to happiness is finding the one person with whom you share the same internal chronometer.
+ - Depression and hopelessness are not the only reasons terminally ill patients wish to end their lives. Many individuals see nothing undignified about choosing to end their lives at the time and manner of their choosing – and many view such a choice as the meaningful culmination of a good life.
+ - This is how most stories end in the hospital. Not with crash carts and sirens and electric shocks to the chest, but with an empty room, a crisp white bed, silence.
+ - Be optimistic. Always put on clean underwear if you’re going on a date.
+ - If God wanted teenagers to be abstinent, puberty would begin at twenty.
+ - Choose old people for enemies. They die. You win.
+ - A century ago, people laughed at the notion that we were descended from monkeys. Today, the individuals most offended by that claim are the monkeys.
+ - There is a fundamental difference, however, between asking to be permitted to keep a vegetative relative on costly machinery, and asking the taxpayers or society as a whole to pay for such machinery.
+ - Catholic extremism should be resisted as fiercely at home as we oppose the Taliban abroad.
+ - If freedom means anything at all, it is the right to primacy in regard to sexuality, reproduction, medical care and death.
+ - The cold, cruel reality is that with one current justice now approaching ninety, and four others over seventy, the day will inevitably arrive when a sitting justice lies in an intensive care unit, both unable to resign and unable to resume his or her duties.
+ - A free society, to be truly worthy of that name, owes healthy, competent individuals the right to end their lives on their own terms.
+ - I used to dream of true love; now I’m open to false, but convincing...
+ - Such is the demographic paradox of a junior physician’s relationship with his patients: I worry about how to extend their lives. This anxiety inevitably shortens my own.
+ - Most people are far more concerned that they can control their own bodies than they are about petitioning Congress.
+ - Much as constitutional guarantees of press freedom do little good for prospective publishers if they do not have access to paper or ink, the right to aid in dying is strikingly useless if nobody is willing to help.
+ - I can handle being married for my money; it’s being married for my life insurance that gives me pause...
+ - Maybe that is the greatest of wonders: that we can be shaped so much by those we’ve known closely, and equally by those we’ve never known at all – and that we too can change the world long after we’ve left it.
+ - I would prefer to believe that a market in fetal organs would empower women to use their reproductive capabilities to their own economic advantage.
+
+29 quotes

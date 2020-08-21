@@ -1,0 +1,34 @@
+ - There’s nothing better than live music. It’s raw energy, and raw energy feeds the soul.
+ - Louis Armstrong’s ‘What a Wonderful World’ is my ultimate karaoke song. It is a wonderful world. People forget we only have a certain amount of time, and it can all end at any moment. Armstrong and Frank Sinatra’s ‘My Way’ are the ultimate one-two punch.
+ - When you wear a bow tie, doors open for you. Your posture is a little more erect; your shoulders are a little further back; your style is a little more dynamic. It’s about the reestablishment of the gentleman.
+ - There’s four main pillars to the bow tie – self-representation, service, collaboration and critical thought. You have to understand how to represent yourself and critically understand how to collaborate and serve others.
+ - Pretty much any place that I haven’t been is the next place I definitely I want to go.
+ - Ideas and thoughts and creativity is more of who I am than football.
+ - I mean at the world as a checklist. Once you got to a place, you check them off and if you love the spot, you might check it off twice. You’ll always find your way to go back to those places.
+ - Turks and Caicos is one of my favorite places to go. I’ve been to some really cool places and it started out when I was young by wanting to go to different places.
+ - I’m living my future as long as you’re living in the present and realize how beautiful life is.
+ - What better way to get to know a culture than to go there and learn their sports? And I say to people who tell me they can’t travel, ‘How much did you spend at the mall this year? How many times did you eat out? Take that money and go.’
+ - Travel around the world is amazing. New people. New-found family, really.
+ - I like a basic uniform for guys. Steve Jobs is my fashion icon, because he wears the same outfit every day. If you always wear the same thing, you make a statement. Then put a bow tie on and really stand out.
+ - Doing things out of the ordinary – out of the box – like jumping out of airplanes and landing in cities that you’ve never been to before, then finding your way through. That’s the type of trip that excites me.
+ - Human survival is something that you can’t see in another person; you can see if someone has that will to survive or that will to win; you can’t see that, you can only watch that evolve over time.
+ - I always have a positive reaction to Times Square – you’ve got so many people passing through here, so many cultures, and so many people merging into the central community of New York City. This is the hub of America.
+ - People look at you differently if you wear a bow tie, as opposed to a necktie.
+ - Football is a sport of paradox. It requires reaction, not reflection. Yet you must use your mind to calculate, to anticipate – to think and not think at the same time.
+ - Whether a plane to Singapore, a subway in Manhattan, or the streets of Cincinnati, I search for meaningful conversation wherever I may travel. Without it, I believe we lose the ability to not only understand others, but more importantly, ourselves.
+ - We all have personalities, but in football a lot of times you don’t talk about that because you want to focus more on the grit and grind of the season, instead of people’s personal styles or worldly habits.
+ - I like to keep things classic, not lavish or blinged out. I don’t even say that word. The last thing I want to be is over the top.
+ - When you wear a bow tie, doors open for you.
+ - When I’m in the Switzerland backcountry and nobody around looks like me, people were like, ‘Can I touch your hair?’
+ - Football is one side of me. Art is another. Travel is another.
+ - Just because you wear a bow tie doesn’t mean you’re a nerd.
+ - Without creation, what are we but stalled in life?
+ - Every country I go to, I learn a little bit more about myself.
+ - I do like Peyton Manning. I mean, you can’t lose with a guy like that – especially with the amount of touchdowns he’s been able to produce.
+ - I will be the first black James Bond.
+ - I found out that changing the perception of myself and the NFL, and reestablishing the notion of being a gentleman was important to me.
+ - For my birthday, I would ask for a ticket from my mother. Just buy me a ticket to said country and I’ll just find my way through. And that’s what I always did. I never changed too much of that.
+ - I want everybody to travel, to travel and not be afraid.
+ - When it all boils down, its about embracing each others stories and maybe even finding that synergy to collaborate for the common good.
+
+32 quotes

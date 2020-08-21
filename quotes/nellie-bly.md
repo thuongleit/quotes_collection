@@ -1,0 +1,21 @@
+ - I have never written a word that did not come from my heart. I never shall.
+ - I was too impatient to work at the usual duties assigned women on newspapers.
+ - The insane asylum on Blackwell’s Island is a human rat-trap. It is easy to get in, but once there it is impossible to get out.
+ - Never having failed, I could not picture what failure meant.
+ - I always had a desire to know asylum life more thoroughly – a desire to be convinced that the most helpless of God’s creatures, the insane, were cared for kindly and properly.
+ - I took upon myself to enact the part of a poor, unfortunate crazy girl, and felt it my duty not to shirk any of the disagreeable results that should follow.
+ - I always made a point of telling the doctors I was sane, and asking to be released, but the more I endeavored to assure them of my sanity, the more they doubted it.
+ - People in the world can never imagine the length of days to those in asylums. They seemed never ending, and we welcomed any event that might give us something to think about as well as talk of.
+ - How can a doctor judge a woman’s sanity by merely bidding her good morning and refusing to hear her pleas for release? Even the sick ones know it is useless to say anything, for the answer will be that it is their imagination.
+ - I have watched patients stand and gaze longingly toward the city they in all likelihood will never enter again. It means liberty and life; it seems so near, and yet heaven is not further from hell.
+ - Even that was all consumed after two days, and the patients had to try to choke down fresh fish, just boiled in water, without salt, pepper or butter; mutton, beef, and potatoes without the faintest seasoning.
+ - They were being driven to a prison, through no fault of their own, in all probability for life. In comparison, how much easier it would be to walk to the gallows than to this tomb of living horrors!
+ - I had, toward the last, been shut off from all visitors, and so when the lawyer, Peter A. Hendricks, came and told me that friends of mine were willing to take charge of me if I would rather be with them than in the asylum, I was only too glad to give my consent.
+ - I had looked forward so eagerly to leaving the horrible place, yet when my release came and I knew that God’s sunlight was to be free for me again, there was a certain pain in leaving.
+ - In our short walks we passed the kitchen where food was prepared for the nurses and doctors. There we got glimpses of melons and grapes and all kinds of fruits, beautiful white bread and nice meats, and the hungry feeling would be increased tenfold.
+ - I shuddered to think how completely the insane were in the power of their keepers, and how one could weep and plead for release, and all of no avail, if the keepers were so minded.
+ - But here let me say one thing: From the moment I entered the insane ward on the Island, I made no attempt to keep up the assumed role of insanity.
+ - I had never been near insane persons before in my life, and had not the faintest idea of what their actions were like.
+ - It is only after one is in trouble that one realizes how little sympathy and kindness there are in the world.
+
+19 quotes

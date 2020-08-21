@@ -1,0 +1,234 @@
+ - Don’t judge yourself by someone else’s standards. You will always lose.
+ - Despite all my rage I am still just a rat in the cage.
+ - Time is never time at all. You can never ever leave without leaving a piece of youth. And our lives are forever changed. We will never be the same. The more you change, the less you feel.
+ - My earliest memory is of feeling different. My parents told me that I wasn’t like other children.
+ - Saturn Return is just the return of your planets to their original position.
+ - I realize I’m a mirror.
+ - As long as you have faith, you’re willing to try to take another chance. God wants you to amble toward the right spot on the horizon. The idea is that you’re willing to get up and keep moving toward that light.
+ - I was part of a generation that changed the world, and it was taken over by posers.
+ - Calm, open debate, and logical thought drive strength to its maximum effectiveness.
+ - At some point, you protest too much they think you’re guilty just because you’re protesting.
+ - Life is everything and nothing all at once.
+ - All I can go on is my own value system.
+ - I feel like I’m always fighting not to repeat myself.
+ - Shave your head, wear a ‘ZERO’ shirt. Take away your identity. What do you have? You still have yourself.
+ - If practice makes perfect, and no one’s perfect, then why practice?
+ - Jesus teaches us to forgive and I’ve got to trust him on that one.
+ - I’m Irish and I was born on St. Patrick’s day. I’m lucky sevens.
+ - Do I belong in the conversation about the best artists in the world? My answer is yes, I do.
+ - In the beginning, though, I have to admit that I did have a chip on my shoulder. I did want to prove everyone wrong. But after I went through the process and came out the other side, it wasn’t about anyone else.
+ - And the world so hard to understand is the world you can’t live without.
+ - I’m not going to die glamorously. I’ll probably be eating a Twinkie, take a bite, and fall over.
+ - A missive to all you metal bands, the world is totally over the rock thing. Rock is deader than it’s ever been.
+ - Music is 99% of my life. But I know I need a break. Besides, if you give people too much, they start to not want it. We need to restrain ourselves.
+ - Compliments and criticism are all ultimately based on some form of projection.
+ - Heavy metal is a universal energy – it’s the sound of a volcano. It’s rock, it’s earth shattering. Somewhere in our primal being we understand.
+ - I started thinking that if post modernism is about people opening up all their skeletons, I’m going the other way. I don’t want anyone knowing anything about me anymore.
+ - The ideology of the Smashing Pumpkins was ultimately more valuable than the music of the Smashing Pumpkins. That’s what critics can’t put their finger on.
+ - I know how stupid people can be. I’ve played in front of 5,000 people that bought a ticket to my concert, and some guy who’s bought a ticket decides he’s going to throw a bottle at my head. That’s a simple act of stupidity. That’s not even defiance.
+ - I’m sort of like a lame, single guy in a red sports car.
+ - I had concussions as a kid playing football and basketball, and know what it feels like and to have someone say ‘Just rub some dirt on it, and get back in there.’
+ - Your basic person wants to talk about material culture, internet culture. I think about God, cats, nature.
+ - Everything about life makes me lonely.
+ - I’m a Pisces, and Pisces have this weird inability to be completely spontaneous. We’re too conscious of our actions. I’ve always been way too sensible for my own good.
+ - I’m very disappointed in my country right now, because I think we’ve kind of lost our moral compass.
+ - The Smashing Pumpkins was never meant to be a small band. It was going to either be a big band, or a no band.
+ - I think a spiritual journey is not so much a journey of discovery. It’s a journey of recovery. It’s a journey of uncovering your own inner nature. It’s already there.
+ - Radiohead and Our Lady Peace are doing the seven layers of guitar, and I kind of jumped on that before anyone else did.
+ - I didn’t grow up with my mother, and so losing her for real was like, some sort of latent childhood, some sort of unresolved issue. When she left for real, it was sort of like, I was done.
+ - It was shocking to see Nirvana play, because it was like, “Here’s this little guy with a monster-guitar sound.” And it was heavier than Black Sabbath. That was shocking.
+ - I have a hard time thinking of men trying to sing my songs, because I think my perspective is definitely feminine.
+ - My step-mom would tell me that she would get complaints from adults that I stared too much at them.
+ - You know Americans are obsessed with life and death and rebirth, that’s the American Cycle. You know, awakening, tragic, horrible death and then Phoenix rising from the ashes. That’s the American story, again and again.
+ - Smashing Pumpkins has never been a band about hit songs.
+ - Live simply; make compassionate choices when it comes to food.
+ - I’m by nature kind of a glum person, but I’m not a sad pathetic.
+ - There’s a lot of UFO sightings in New Orleans, which isn’t really too surprising. There’s a lotta crazy people there. The people there lack the intelligence to know what they are seeing, so that’s why the UFO’s go there.
+ - In my case I don’t mind playing a character that irritates people or makes people question my sanity.
+ - The Pumpkins love rock-and-roll, we absolutely love it, but we also think it’s a flatulent, ego-serving kiddie playground. You can have your cake and eat it too.
+ - Like any good tree that one would hope to grow, we must set our roots deep into the ground so that what is real will prosper in the Light of Love.
+ - I didn’t find Jesus. He’s been there the whole time.
+ - Around the mid-’90s every hair guy who would have been in a hair-metal band got his tattoos and suddenly decided he was alternative. It just became like a thing.
+ - What most people do is try to find a comfortable persona that they’re in alignment with and the public likes and appreciates them for.
+ - My version, of course, is not this flag-waving, let’s all get on the Jesus train and ride out of hell. I’m not that kind of guy. It’s an embrace that life is good, worth living and yeah, it’s not easy, but there are more pluses than minuses.
+ - If you don’t have some sort of belief system by which to center your life, it’s hard sometimes to understand why you would put up with your family.
+ - I’m from a lower middle class background; all my family were immigrants.
+ - I grew up in a house of no love or emotion – it kind of sticks with you.
+ - I feel completely free to do whatever I want and how I want to do it. I feel unburdened by my past.
+ - Gish was the best representation of where we were at the time.
+ - I believe that if the Tribune company ever tries to close down Wrigley Field that you will have a protest from every corner of the globe.
+ - There’s a difference between being a poseur and being someone who’s so emotionally challenged they’re kind of just doing their best to show you what they’ve got.
+ - One thing I’ve learned to appreciate as I’ve gotten a little older is direct forms of communication.
+ - As a citizen of the great city of Chicago, I find it impossible to root against the White Sox. The White Sox organization has been much more consistent, in my lifetime at least, at putting a winning ballclub on the field.
+ - The weird nihilism that permeates Mellon Collie is extremely relevant to what’s going on right now. So many kids are intelligent and articulate, but they don’t know what to do with themselves.
+ - Most great records really start with the drums.
+ - We had a wonderful time with this kind of grunge awareness, where suddenly rock was cool again. People wanted to head loud guitars. It was a great time, and I’m glad we were there. But the gimmick part has worn off.
+ - Indie world won’t have me, and mainstream world treats me like an alien, but here I am still floating between these two worlds.
+ - We’ve turned into a whining society.
+ - I was brought up Roman Catholic. I’m not even baptized.
+ - I use music as some kind of weird salvation to get away from life.
+ - That’s at the root of the human interaction: fair trade.
+ - Once a pumpkin, Always a pumpkin.
+ - We have a problem with any labels that people try to hang on us, because all it does is drag you down.
+ - I always thought Kurt Cobain was the perfect embodiment of the great alternative guitar player.
+ - I have a musical ancestry as much as I have a family ancestry. Honoring those ancestors gives you access to a greater source of appreciation and information than you would have if you were just going on your own ego system.
+ - People always called the Cure gloomy, but listening to the Cure made me happy. There was something about the gloominess that gave me comfort, and I think we’re the same way.
+ - The Killer in me is the Killer in you.
+ - Soon you won’t even have the choice to live or die as you wish!
+ - It’s important for people to talk and get beyond the wall of Facebook and social media.
+ - For a 6-foot-3 guy with no hair and a whiny voice, I’ve done all right.
+ - My mother and I parting company at four years old is a recurring theme; although it’s not symbolically necessarily present, it’s present in all my relationships.
+ - It seems to me that references to bands like Black Sabbath and Led Zeppelin meant more to me a year ago and all those old things are totally losing importance.
+ - We don’t make music for people to take drugs to, we make music for people to live their life.
+ - I think God is the most unexplored territory in rock and roll music.
+ - Music is supposed to be interwoven into the fabric of society; it is not supposed to be a plaything that is there to serve the population’s titillation of the moment.
+ - I do not trust those who make the vaccines, or the apparatus behind it all to push it on us through fear.
+ - As a 28 year old who’s lived long enough to know the difference, I know now that the feelings I felt an 16 were not necessarily correct. But however overly dramatic, the desperation and hopelessness I felt at 16 was my reality.
+ - If you don’t fit into this kind of like gossipy, trendy, Web-hit thingy, you’re relegated to sort of second-class celebrity status.
+ - I lay a lot of blame at the feet of Dusty Baker for not being more strict about fundamentals, which I think would give the team a stronger day-to-day identity.
+ - The reason I don’t play any of the old songs is because I really honor my old band, and I think that those songs are best served within the context of that band.
+ - You can only be this high-powered mojo rock band for so long, then you just can’t look people in the eye. So, we’ve projected our own demise.
+ - I don’t think people are fans of me because I wrote hit songs. I think they’re fans because I’m a lunatic or a weirdo. The hit songs came out of my idiosyncratic personality, not the other way around.
+ - The simplest way that I can understand therapy is that we’re born a certain way, we’re taught to be something different, and we spend our whole lives trying to unravel it.
+ - I met Scott Stapp when the band was first coming up, great guy. I haven’t seen him for years, but a great guy.
+ - We can look you in the eye and talk to you about life, heart, love rock’n’roll, whatever, but we do not have the moral authority to tell people how to vote or what to do with their bodies. We are just a rock band.
+ - If I had spent fourteen months in a small room with Jesus, I’d want to fist fight with him.
+ - If you’ve sold over a million records, you are not punk rock, you are milking the system for everything that it’s worth.
+ - Thinking about the future and thinking about the past is really only a way of ignoring the present.
+ - My father was a guitar player, and I was raised with a super high standard of what good guitar playing was.
+ - I never seemed to fit in. But it made me try to strive for things ten times harder.
+ - We are the most beloved and hated band in the world.
+ - For someone who’s had the level of success I’ve had, there’s been very little critical review of my work, which is pretty fascinating.
+ - About six months ago, I listened to Siamese Dream. That was the first time I’d ever really heard my own album, because I had separated from the experience of making the record. And it really moved me. It made me cry, it’s so beautiful.
+ - Usually the intention of the artistic effect is too sophisticated for most people to understand, sort of like a joke that they don’t get so they don’t think it’s funny.
+ - The deeper I get into my life as a musician, I’m discovering that it becomes less and less about other people, and more about what I want to do. And that’s a good place to be.
+ - Even if you don’t believe in God, exploring fully the idea of a god or gods should pose no threat to you.
+ - The music is all we care about – so if that’s bad, then we’re bad.
+ - I’m passionate about creating new systems that are more holistic to humankind. What do I mean by that? I mean, create new systems of business so that people with ethics both exploit their goods and their gifts while not exploiting the earth, exploiting one another.
+ - My pat line about the Cubs and payroll is that the amount of merchandise the Cubs would sell off a world series championship would more than cover for a big payroll.
+ - If there was a simple ethic for the band, it was that we want to be able to do whatever we want to do.
+ - I reached a point in my life where I felt like I was living through some old character.
+ - I’ve had a lot of things rendered as not being effective or as some indication of my lack of sanity, only to be praised ten, fifteen, twenty years later for what I did once in this overt consciousness.
+ - The things I’m guided to do are really strange to me.
+ - You have to keep adapting to the times. If you kind of go with it, it can kind of fun.
+ - You will never see the four original Pumpkins on stage ever again, unless it’s a Hall of Fame thing. But you would never see a tour. There’s so much damage, there’s no way.
+ - Why is it that all non-conformists look the same?
+ - I hate how in magazine pictures, they always stick me somewhere in the back. It means they don’t think I’m the cute one.
+ - I’m definitely responsible for coming in with some basic chord changes, or ideas. Everybody in the band looks to me to come up with the basic seed, so it’s not very productive to come in with nothing.
+ - I’ve rarely done anything that’s overtly self-destructive without consciously knowing what I’m doing. And then of course, the astute journalist jumps forward and says, “Why are you being calculated?” Calculated seems to assume a sinister intent. My intent is always for artistic effect.
+ - A good artist is willing to die many times over. What’s funny is, I’ve died so many times.
+ - I do not think wrestling is going to save the world.
+ - I did 13-something years of talking to wrestlers and promoters about why they did certain things and why they booked matches a certain way and what they were thinking and whether they were satisfied with the draw. And I got a lot of insight in the business.
+ - In a weird kind of way, music has afforded me an idealism and perfectionism that I could never attain as me.
+ - My view of the world is always tempered by the fact that there are people who are less fortunate than I am.
+ - We weren’t like mates who decided to form a band. The other three met me because they were interested in being in the band that I was starting.
+ - The music business – and I guess you could say any artistic endeavor – usually rewards those who are on the leading edge of where everything is going, but you can’t be too far.
+ - People act like Nirvana invented grunge; they just took it and personified it.
+ - I think humankind is going to have to evolve into systems that are more transparent. Then people will be able to make more integral choices about the food they eat.
+ - I don’t have any sentimental notion about how people are going to remember me.
+ - I don’t have a problem with ‘Idol’ or ‘X Factor,’ I have a problem with when those things are not given the proper contextual hue.
+ - When I’ve tried to reinvent the wheel, I get bashed for not doing the familiar things.
+ - In my particular instance, I came from a family that didn’t have anything. Everything I earned in life I made. Myself. With songs that I wrote.
+ - Injuries are nothing to be ashamed about.
+ - I really think it’s a white, bourgeois idea to pretend that you don’t have influences. It seems to be the obsession strictly of white people in college.
+ - The difficulty, if you’re in the world – and this is for anybody – is the eventual disappointment that comes with having to meet other versions of reality. Imposed systems that ask you to compromise or sacrifice things which you consider holy or sacred.
+ - I work differently than most people.
+ - There’s a lot of days where you feel forgotten.
+ - There is something mighty suspicious about declaring an emergency for something that has yet to show itself to be a grand pandemic.
+ - I’m not interested in pop art.
+ - I think the days of working with producers in the conventional sense are over for me.
+ - To me, music was about being accepted and escaping from this crummy existence.
+ - I mean my point as an artist is I’m on my own little weird journey across the sky here and whether or not anybody’s listening, or listening to the degree I would like them to, at the end of the day has to be an inconsequential thing because I can’t chase this culture.
+ - The title of a song is like the wrapping on a present.
+ - I don’t think I’m before my time, I just don’t think I’m in my time.
+ - I want to make great songs.
+ - Personally, I think Jesus would like better bands.
+ - Wrestling is one of the last truly rebellious American things left.
+ - The desire to hit a big home run is dominating the music business.
+ - Most people don’t know that wrestling came out of the circus.
+ - We need to get back to a level of social responsibility that we haven’t seen for a long time.
+ - I think the original, ‘They’re the next Jane’s Addiction’ things that people said about us in the beginning have been pretty much wiped out.
+ - Well, I’m known as a guitar-rock guy, you know? You’re not supposed to play with synthesizers. This is not in the rulebook.
+ - When alternative music – which is supposed to be the standard-bearer of where white rock is headed – becomes either too cute or too manufactured, that’s just really not good.
+ - I don’t think ’90s music was as significant as ’60s music in terms of changing the world, but it was significant, and I think it was similarly disillusioning when you realize the mainstream just.
+ - Everybody I’m working with now is a friend. And I would be very, very remiss to work with anybody in the future who has not shown me who they really are.
+ - Beware of those angels with their wings glued on.
+ - What bothers me is when music becomes entertainment. Of course, music is supposed to be entertaining, but go back to any period of time – music had a cultural significance on different levels, whether it was folk music, it was the news of the village, or it had to do with the rites of passage.
+ - When you move artistically, the natural inclination is to denounce everything that’s gone before.
+ - I think long and hard about what it is I’m actually trying to do, and then I kind of have to narrow my focus into that. If I don’t, I’m too all over the place.
+ - I’ve become a guy who’s like a complaining, whining neurotic.
+ - When you present people with things from the heart and from the soul, they make better choices: They make better choices about their bodies, they make better choices about their partners, they make better choices about the environment.
+ - To re-embrace what I once loved about music has been a warming process for me, because it’s a good, earned feeling now.
+ - I’m prepared to spend the rest of my life playing clubs, if that means I’m playing music that I believe in.
+ - I was trying to be this person who is cool, eternally rocking.
+ - Every year that goes by, I lose that much more motivation to play rock.
+ - Rock and Roll is still asking people like me to live up to the old guard’s concept of what success is but it doesn’t mean anything.
+ - I think when I listen to old records, it puts me back in the atmosphere of what it felt like to make the record and who was there and what the room looked like. It’s more a sensory memory.
+ - All humans are part male and part female. The other side must be explored to gain complete understanding ofourselves and the world we live in. Forme, the idea of having a feminine perspective is a willingness to be vulnerable.
+ - I want people to see me happy.
+ - The funny thing about me that most people never really understand is that, at heart, I’m really a jock.
+ - Rock in the mainstream culture has lost a lot of its mojo.
+ - These days you’re not just competing with the tedium, you’re competing with the cellphone.
+ - Say you write a song about a chandelier, and the chandelier gives off light. And the light is the color red and red reminds you of the color your not supposed to wear around a bull. So you name the song ‘Cow.’
+ - In my Corgan brain, I’ve decided it’s almost as simple as ‘All you need is love.’ Almost.
+ - Well, we have brought certain things upon ourselves. I’ve certainly brought things upon us with my mouth.
+ - I mean, I’m certainly not a ‘teaophyte,’ or whatever the word would be.
+ - I mean there’s certainly a lot of progressive rock and metal that exists at the underground level, which has its own vitality, as it should. But it seems to have lost its ability to really charge up the hill.
+ - That’s the real endeavor: to try to create that direct conduit from the pure consciousness of your creative voice to the person who’s a craftsman who can go into the world and consistently deliver new things worth paying attention to.
+ - There’s nothing wrong with technology. It’s when technology is the story and not the artist, that’s the problem.
+ - I’ll come in with a string of riffs and direct the musical ideas. But you still need a band and their input to make the ideas come alive. You can’t underestimate band chemistry.
+ - It’s a simple formula for me now, I don’t play any song I don’t want to play.
+ - You have to be willing to deal with the ups and downs of the music, the ups and downs of the audience.
+ - People try to make a big deal, like I don’t want to play my old songs. That’s not it. I don’t want to play my old songs if that’s my only option. That’s a different thing.
+ - You’ve got to be ready to be in a great relationship.
+ - It’s what the mainstream does – they absorb things and they blunt the power of it. And so the next generation and the next generation has to become more shocking and more provocative in order to get any rise out of anybody.
+ - I walked away from going to church when I was 8. I didn’t set foot in another church until I was 28.
+ - In 1992, with the weight of a perceived world on our shoulders, we disappeared into a parking garage to write the songs that would change the course of our lives forever. ‘Siamese Dream’ represents all of our dreams coming true, while the dreams of a happy band fell apart.
+ - It makes me crazy to think that somebody might attack my city or any other city.
+ - Not let the child run the circus, just have that child be the source of the creative voice.
+ - I’m an experimental artist in a field that doesn’t celebrate experimentation. It celebrates self-destruction, which I guess you could say is a creative endeavor.
+ - I want to be able to look back and think that as long as I was going this, I did the best that I could.
+ - There’s nothing more satisfying than going to a market and meeting the person who picked the strawberries, or it’s their farm that the strawberries came from, and giving them a fair value in exchange for what they’re giving you.
+ - I’d reached a point where there was a direct conflict between what I was trying to be and who I really was.
+ - I went to see a shaman. He put his hands on me, and I cried like a baby for an hour.
+ - Ultimately, running a band is about the relationships you have with people.
+ - I get more out of life just being myself, by just being a human being. Not by being a rock star, not by being whatever. Sometimes I act like a jerk, but I think people respect me for being myself. That’s the ultimate thing about the Smashing Pumpkins.
+ - We were just a little immature in the past. I think we actually wanted to create difficult situations for ourselves just to be able to use that emotion for stimulation.
+ - Great music completely obliterates any conceptions of genre.
+ - Sometimes people just like being around each other, and good things come out of that.
+ - I look at other members of my generation who have basically done one thing, and one thing well, and have been handsomely rewarded for it.
+ - I’m viewed as this weird, crippled character. But you got to take your lumps.
+ - In our lives in a lot of ways it’s all about fake. You’ve got people wanting things for fake reasons.
+ - I had such a big mouth for so long that it doesn’t faze anybody anymore.
+ - I’ve always believed that we could reach past genre – we didn’t ride the grunge coat-tails; we’ve always been on our terms.
+ - If I have resistance to something, it means there’s something wrong. The resistance to me is a sign of fear.
+ - Everybody likes to run around on their phones, including me, but we don’t always want to hear who’s sweating somewhere in some non-air-conditioned factory to create those things so that they can keep the prices down.
+ - I’ve been too productive for too long, and despite what anybody wants to strip away from me, I am influential. I am.
+ - Well, all rock and roll is based in artifice.
+ - I’ve seen foreigners really shift on their view of America, and that’s hard for me to take.
+ - That was a terrible Super Bowl, I have to say. I mean you got the big Peyton Manning walk off into the sunset win, but what a shnoozo.
+ - If the next record is no better than Gish, then we’ve failed.
+ - I’m like the Fugitive, running from the one-armed indie-rock community!
+ - Most of my arguments with musicians through the years have had more to do with their attitude about music, or their attitude about their own lives, or their personal responsibility. Music has never really been the big centerpiece of the fight.
+ - In the music business I am surrounded by people who don’t view music as a sacred voice. They view music as something that they can use and exploit, often times lazily. They have no sense of the tradition, they have no sense of honor about those who came before and charted the path.
+ - I grew up in the suburbs and basically associate the suburbs with cultural death.
+ - It’s wonderful to read interviews by old blues guys – they talk about all their influences, they talk about who taught them how to play, and who they saw, and how they were determined to play that way.
+ - Stay in school. Lie to your teachers, but stay in school.
+ - To be able to put your arms around 24 years of music, it’s really fun.
+ - Where is this great love for rock and roll that existed for 50 or 60 years?
+ - I’m attacking the pomposity that says this is more valuable than that. I’m sick of that.
+ - More than any audience in the world, Americans will cross their arms, stare at you and say, ‘OK, whaddya got?’ – no matter how many times you’ve proven it to them.
+ - Being in a rock band is just an excuse not to get a job.
+ - I like my home and I like the nature.
+ - I don’t wanna play this kind of cartoon character anymore.
+ - People think I take some sort of masochistic pleasure out of putting out music that’s gonna be unpopular.
+ - I often have deer on my property and there’s a fox and owls. You’re not going to see that in the city.
+ - People always seemed to pay attention to us. I have no idea why – there was just a presence between the four people or something.
+ - There are people out there who are older who are cool. I want that.
+ - The closer I get back to being who I really am, the stronger the music gets.
+ - I put up with the music business because I understand that I’m in the tradition, I’m in a tradition that’s of far greater importance than the business I seem to be in. Everywhere I go in the world, people ask me about the business that I seem to be in, but I’m not really in that business.
+ - This is not a reaction against a negative world. It’s a response to a negative world.
+ - Somewhere between the intellectual idea of why we’re attracted to certain things and the pragmatic reality is some form of ever-evolving truth.
+ - I never wanted to leave the Smashing Pumpkins. That was never the plan.
+
+232 quotes

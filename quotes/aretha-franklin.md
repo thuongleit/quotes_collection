@@ -1,0 +1,52 @@
+ - If you disrespect everybody that you run into, how in the world do you think everybody’s supposed to respect you?
+ - R-E-S-P-E-C-T, find out what it means to me.
+ - We all require and want respect, man or woman, black or white. It’s our basic human right.
+ - Be your own artist, and always be confident in what youre doing. If youre not going to be confident, you might as well not be doing it.
+ - Being the Queen is not all about singing, and being a diva is not all about singing. It has much to do with your service to people. And your social contributions to your community and your civic contributions as well.
+ - Music does a lot of things for a lot of people. It’s transporting, for sure. It can take you right back, years back, to the very moment certain things happened in your life. It’s uplifting, it’s encouraging, it’s strengthening.
+ - The milk of kindness flows through my body, I shall follow Jesus to the Taco Bell and give thanks.
+ - Soul is a constant. It’s cultural. It’s always going to be there, in different flavors and degrees.
+ - Women have broken through the glass ceiling, and they’re now more and more in the power seats.
+ - Trying to grow up is hurting. You make mistakes. You try to learn from them, and when you don’t, it hurts even more.
+ - You’re a no good heartbreaker, you’re a liar, and you’re a cheat. I don’t know why I let you do these things to me.
+ - I think the hardest thing is losing weight. That’s the hardest thing more than anything else.
+ - Gospel goes with me wherever I go. Gospel is a constant with me.
+ - I sing to the realists; people who accept it like it is.
+ - Being a singer is a natural gift. It means I’m using to the highest degree possible the gift that god gave me to use. I’m happy with that.
+ - My faith always has been and always will be important to me.
+ - Music changes, and I’m gonna change right along with it.
+ - Judy Garland is a singer with a capital S. And talk about soul. This woman was soul personified. Judy Garland is a class by herself.
+ - When God loves you, what can be better than that?
+ - Better friends than lovers. Sugar can’t you see? You need you and I really need me.
+ - I love producing, writing. I rarely write with other writers unless I have a real great respect for them. Like Burt Bacharach, or Carole Sager, or Stevie Wonder. Somebody like Smokey – like that. Otherwise, I choose to write alone.
+ - I like Beyonce’s music – some of it, not all of it.
+ - Call in the Caped Crusader, Green Hornet, Kato, too. I’m in so much trouble I don’t know what to do.
+ - Falling out of love is like losing weight. It’s a lot easier putting it on than taking it off.
+ - People really don’t have to give you anything, so appreciate what people give you. And just don’t let that go to your head, whatever it is they give you.
+ - I donate heavily to the church and various churches in the Detroit community and food banks.
+ - I love to sing. It’s just a natural thing for me.
+ - I was in my dad’s church, his Baptist church, and I think the first song I ever performed was ‘Jesus Be a Fence Around Me.’
+ - On the sly, scoping for love.
+ - And I’ve been hurt hurt bad. I might be just twenty-six, but I’m an old woman in disguise twenty-six goin’on sixty-five.
+ - I love ‘Anne of Green Gables.’ I have for years. That’s one of my favourite things. She’s such a can-do kind of girl; that’s why I’m crazy about her.
+ - Parents have to really talk to their children before they leave home.
+ - Politics are not my arena. Music is.
+ - I’ve been around long enough for people to know who I am and what my contributions are. They know me as more than just an artist. I think they know me as a woman as well.
+ - The man who gets me is getting one hell of a woman.
+ - Clark Terry is an American Master. I love to listen to him, particularly ‘Mumbles.’ I was so delighted when we received degrees together, along with Edward Kennedy, at the New England Conservatory in 1997.
+ - I’m the lady next door when I’m not on stage.
+ - If a song’s about something I’ve experienced or that could’ve happened to me it’s good. But if it’s alien to me, I couldn’t lend anything to it. Because that’s what soul is all about.
+ - I saw the Supremes when they were still singing in little black skirts and white blouses.
+ - I don’t feel one’s personal medical condition is everybody’s business. It just isn’t something you advertise, and it’s not open to discussion.
+ - I’ve never recorded anything I didn’t like.
+ - Yes, I’ve always been fashion conscious.
+ - And I was booked once to go on ‘Ed Sullivan’ and I got bumped and ran out the back door crying.
+ - Let’s start with the church. As you know, it’s my background, it’s a natural setting for me and it’s definitely my roots.
+ - Don’t say Aretha is making a comeback, because I’ve never been away!
+ - I’m a big woman. I need big hair.
+ - I remember singing around the house to records that were playing. All kinds of music. And the great James Cleveland was often in our house, and I grew up with his sound as well.
+ - Now, occasionally I will still have that quarter pounder because I love fast food, but you have to keep it to a minimum.
+ - I know people I feel are extremely talented, but I don’t know that I’ve ever heard any geniuses.
+ - I’m never tired of going to the studio. I enjoy recording and documenting everything and trying new things.
+
+50 quotes

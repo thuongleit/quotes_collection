@@ -1,0 +1,117 @@
+ - Real girls aren’t perfect, and perfect girls aren’t real.
+ - Only dumb people are happy.
+ - I’m not a woman. I’m a force of nature.
+ - Cocaine is like really evil coffee.
+ - I’m so proud of myself. I worked with anger, with the darkest things in the world.
+ - Being offended is part of being in the real world.
+ - No guy is worth your tears, but when you find that one that could be worth it, he shouldn’t make you cry.
+ - You want to live the dream? You do what you want on your terms.
+ - Everything that becomes true starts with a manifesto.
+ - Love is the core of everything – nothing survives without it.
+ - To me, ‘selling out’ means everyone bought a ticket.
+ - I’m a catalogue artist: I compete with Bob Dylan.
+ - I don’t think you can ever do too much. Life would be so boring if you didn’t have these, like, holes to fall into and climb out of. I want to do everything. I just want everything. I don’t think you can ever have too much.
+ - The language of love letters is the same as suicide notes.
+ - Kurt Cobain was Nirvana. He named the band, hired its members, played guitar, wrote the songs, fronted the band onstage and in interviews, and took responsibility for the band’s business decisions.
+ - I wish I was beautiful or at least wise, but I’m simply mad and violent.
+ - I’m clean and sober for over a year and no one seems to care! They’re like, ‘Oh, her dramatic weight gain.’ So, stop making fun of me!
+ - Being famous is just like being in high school. But I’m not interested in being the cheerleader. I’m not interested in being Gwen Stefani. She’s the cheerleader, and I’m out in the smoker shed.
+ - I want every girl in the world to pick up a guitar and start screaming.
+ - I might lie a lot but never in my lyrics.
+ - I don’t really miss God but I sure miss Santa Claus!
+ - It’s very hard to describe to people sometimes the way I grew up, because it wasn’t like my parents were irresponsible. They weren’t necessarily reckless, but they were bringing all types of energy into the house, all kinds of people.
+ - If you want to ask about my drug problem, go ask my big, fat, smart, ten pound daughter, she’ll answer any questions you have about it.
+ - Don’t be bitter and mean ’couse you don’t fit in, it’s a GIFT. Look at you. you’ve got your individuality, you don’t have the herd instinct, you can read Neitzsche and understand it. Only dumb people are happy.
+ - I’m covered with loser dust.
+ - On Sofia Coppola’s 16th birthday, way back in 1987, I stole a lip gloss from her Sistine Chapel of a bedroom. Years later, I left a Chanel lip gloss in the reception of the Mercer Hotel for her. You know why? I believe that you’ve got to fix your karma.
+ - My daughter is an angel on earth, so when I see her it all goes away. I see her and – phew! – all that dark goes away pretty much.
+ - I surrounded myself with women when I was growing up because I had this horrible psycho father. Now I’m trying to really appreciate and like men more.
+ - I don’t watch reality TV much, but sometimes I’ll be on the E! channel and see that show “Total Divas”, about female wrestlers. It’s like, fake tits are de rigueur. Nose jobs are de rigueur. Exaggerated asses are de rigueur. Twerking is de rigueur.
+ - Don’t date the captain of the football team; be the captain of the football team.
+ - You know, if Nicole Kidman was a rock star, she’d be alot more professional than me, I’m sorry.
+ - It’s the horsey-shape piece that moves in an L shape. It’s what makes chess complicated, and why stupid people can’t play chess. Go play checkers! Knights are the first piece you look at. They elevate the game. No chess master wants to lose her knights.
+ - The minute I got skinny and got a nose job and became photogenic, and all of a sudden I had a bidding war, and every boy I ever wanted, wanted me.
+ - I have a deathly fear of mediocrity and that nips at my heels and gets me into a lot of trouble.
+ - The American public really does have a death wish for me. They want me to die. I’m not going to die.
+ - Being a rock star is like being a cult leader – you really have to be in your own religion.
+ - I don’t need plastic in my body to validate me as a woman.
+ - I’ve been screwed by as many women as I have by men, in terms of lawyers. But lawyers don’t count. If you take lawyers out of the equation, you have a more fair playing field. There is a sisterhood.
+ - There’s not a lot of people expressing anger in the culture. They’re expressing a lot of hyper-exaggerated sexuality.
+ - No one’s coming in seeing my dogs, daughter or the crack of my ass, forget it.
+ - I’m driven. I am. I’m driven for some reason. But I don’t know where I’m going.
+ - I like there to be some testosterone in rock, and it’s like I’m the one in the dress who has to provide it.
+ - I never expected I would be connected to the Alpha male as some kind of ancillary object, and to this day it mystifies me.
+ - I like all the angels around because they protect me and my daughter. I mean, her Dad’s an angel.
+ - I’m not psychic, but my lyrics are.
+ - Much of my high-jinx have been drug-related. When you’re under 30, whatever, but once you’re past 40 it’s just ugly.
+ - My number one thing to work on is not being reactive – but appropriateness doesn’t come easily to me sometimes.
+ - I’ve discreetly dated a lot of people – I once dated a billionaire, mostly because it was fun to say, “I’m dating a billionaire,” but we did not have the same taste in music, and it was doomed.
+ - If there’s any time you should be on drugs it’s when you’re pregnant, cause it sucks.
+ - Being a rock widow is not my job, so I would hire people to do it for me.
+ - That which is imagined need never be lost.
+ - If I see a chick playing guitar, I’m drawn to that band immediately. I want to know everything, even if it’s completely electronic. But you have to really get my attention if you’re male. I can’t help it. It’s part of my nature.
+ - I don’t mean to be a diva, but some days you wake up and you’re Barbara Streisand.
+ - For years, despite having impeccable taste, I didn’t understand how to convey that I had impeccable taste.
+ - Kurt had this dumb suicidal ideation – that’s what I called it. I thought if we could live through this, we could live through anything.
+ - You need to write on your own and produce your own life.
+ - When you’re feeling overwhelmed in business, one smart idea can beat the biggest Super Bowl ad.
+ - America does four things better than any other country in the world: rock music, movies, software and high-speed pizza delivery. All of these are sacred American art forms.
+ - When I stepped out from doing films and had a dark period, I never did anything dark on a set, so I never made enemies on a set. I never was a bad girl on a set; I always considered films a really sacred space, so when I had my problems, I had them very much away from the film community.
+ - Princess Di is my sister, she just won’t admit it.
+ - I used to do drugs, but don’t tell anyone or it will ruin my image.
+ - I had found The Runaways and I had seen Foxes, and I decided I was just gonna become a juvie, like Cherie Currie.
+ - Remember, if you write anything nasty about me, I’ll come around and blow up your toilet.
+ - But I always wound up being the damn John, when I wanted to be the Paul.
+ - Drugs have nothing to do with the creation of music. In fact, they are dumb and self indulgent. Kind of like sucking your thumb!
+ - I’ll always prefer to play with women and hang out with women, and I’ll always be a feminist.
+ - I have a lot of regrets, of course I do. I should have taken that part; I should have maybe married that one, I don’t know, but I didn’t. So I am what I am and I’m pretty confident that I can break in. I think what I have to offer on film and on television is honest.
+ - I’m offended every time I see George Bush on TV!
+ - I can turn on the radio right now and be inspired.
+ - In rock ‘n’ roll it’s really about being as vulnerable as possible and giving them what they want. But onstage it’s about pausing, about internal life, it’s about internal triggers – that’s one of the reasons I’m really challenged to do a play.
+ - To find your female scream and not withhold is so liberating. You can do anything then. It’s like you can fly. It gives you superpowers.
+ - Rock is all about writing your own script; it’s all about pioneering.
+ - I have no intention of dying young and being some stinking rock’n’roll person.
+ - I get nervous about press and about being rejected or disappointing myself.
+ - Making good records tastes good in your mouh. And when that record sells, it tastes even better.
+ - Twitter is an amazing thing, because people follow each other and they can make friends.
+ - That is something I’m specifically equipped to discuss – how reputation can affect even your capacity to rent a place. Having good credit is irrelevant in the face of something like getting thrown out of court six years ago. I’ve really thought this out.
+ - There are ten commandments, I’ve only broken three.
+ - A good stylist knows that and is not going to push you to wear something that you’re not comfortable with.
+ - I wish people would just like me for what I am, the singer in an OK new wave band.
+ - I want to be the girl with the most cake.
+ - Four inch nails is more like it!
+ - I’m a survivor, at least that’s what everyone tells me.
+ - It’s a radical time for musicians, a really revolutionary time, and I believe revolutions like Napster are a lot more fun than cash, which by the way we don’t have at major labels anyway, so we might as well get with it and get in the game.
+ - These are my wakeup cupcakes, some anti-depressants, and a cell phone book.
+ - Mainstream success is important – that’s probably anathema to an indie publication like Pitchfork, but it’s what I believe having experienced it personally.
+ - My mentors are people like Cameron Crowe and Carrie Fisher.
+ - I wanted my anger to be valid, and the only way to do that is to be fairly attractive.
+ - I am just the classic person who wants to learn stuff. I want good tutors, and with Kurt, I had the best.
+ - I think Andy Kaufman is to comedy what the Velvet Underground was to music – it’s like, 80 thousand records sold, but everybody who bought one started a band.
+ - Movie stars are supposed to be healthy. They’re kept happy and nutritionally together.
+ - I think self-destructiveness is given a really bad rap. I think it can also mean self-reflection and poetic sensiblity. It can mean empathy, hedonism, a libertarianism.
+ - I’m not a theater rat, so I never got a theatrical agent and did a play. I came really close though.
+ - I’m a major feminist. There’s a real politic in life, where I’ve been in rooms where real decisions are made, and it’s a lot of powerful white men. There are women in those rooms, but not as many as there should be.
+ - I’ve done enough films to know how to save up my energy for the take and then give it on the take and do that.
+ - Unless there are pictures, I don’t admit to anything.
+ - I did not want to make the widow record. I still haven’t made the widow record.
+ - But, you know, all good rock is easy.
+ - How does Macy Gray or Kid Rock not win over Christina Aguilera?
+ - Own what you are, and I mean whether that’s art, or whether that’s fashion, or whether that’s music, or whether that’s acting, or whether that’s politics, or whether that’s literature; it’s own what you are, and grab it, and, you know, be as prolific as possible.
+ - I listen to too many people. I’m only going to listen to my gut for the rest of my life.
+ - But let me tell you something. Gloria Steinem never helped me out; Larry Flynt did.
+ - I do wish I ruled the world, I think it’d be a better place.
+ - In rock stardom there’s an absolute economic upside to self-destruction.
+ - I’d definitely like to see less twerking and more power chords.
+ - The past is part of the present, is part of the future, it’s all part of being an artist. You cannot be something that you’re not when you’re not that thing anymore, and if you do that then you’re a liar.
+ - I’m pretty normal in some ways. In some ways I’m completely extraordinary, and in other ways I’m completely weird and eccentric.
+ - I’m ultimately a widow and a single mother, who’s not even getting to be a mother right now. I am so alone, it’s freaky.
+ - Songs need to have a secret, cryptic, thematic thing about them, otherwise they are just messy and all over the place.
+ - You gotta be able to change worlds.
+ - Warren Beatty took an interest in my career at one point.
+ - I lived out my little rock’n’roll fantasy, I just wish I hadn’t gotten into so much trouble for it.
+ - What makes the most money for this business? Dead rock stars.
+ - I think commercial success is really important. It means there are more people listening, and you’re affecting the zeitgeist more. If only a hundred people know you exist, it’s harder to get your message across.
+ - I cannot exist as a solo artist.
+
+115 quotes

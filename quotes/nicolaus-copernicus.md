@@ -1,0 +1,42 @@
+ - The Universe has been wrought for us by a supremely good and orderly Creator.
+ - To know that we know what we know, and to know that we do not know what we do not know, that is true knowledge.
+ - Mathematics is written for mathematicians.
+ - Every light has its shadow, and every shadow hath a succeeding morning.
+ - Finally we shall place the Sun himself at the center of the Universe.
+ - Finally we shall place the Sun himself at the center of the Universe. All this is suggested by the system of procession of events and the harmony of the whole Universe, if only we face the facts, as they say, “with eyes wide open.”
+ - For it is the duty of an astronomer to compose the history of the celestial motions through careful and expert study.
+ - To know the mighty works of God, to comprehend His wisdom and majesty and power; to appreciate, in degree, the wonderful workings of His laws, surely all this must be a pleasing and acceptable mode of worship to the Most High, to whom ignorance cannot be more grateful than knowledge.
+ - Moreover, since the sun remains stationary, whatever appears as a motion of the sun is really due rather to the motion of the earth.
+ - At rest, however, in the middle of everything is the sun.
+ - The massive bulk of the earth does indeed shrink to insignificance in comparison with the size of the heavens.
+ - Of all things visible, the highest is the heaven of the fixed stars.
+ - I am aware that a philosopher’s ideas are not subject to the judgment of ordinary persons, because it is his endeavour to seek the truth in all things, to the extent permitted to human reason by God.
+ - First of all, we must note that the universe is spherical.
+ - For a traveler going from any place toward the north, that pole of the daily rotation gradually climbs higher, while the opposite pole drops down an equal amount.
+ - For I am not so enamoured of my own opinions that I disregard what others may think of them.
+ - Therefore, when I considered this carefully, the contempt which I had to fear because of the novelty and apparent absurdity of my view, nearly induced me to abandon utterly the work I had begun.
+ - I shall now recall to mind that the motion of the heavenly bodies is circular, since the motion appropriate to a sphere is rotation in a circle.
+ - For what could be more beautiful than the heavens which contain all beautiful things.
+ - There may be babblers, wholly ignorant of mathematics, who dare to condemn my hypothesis, upon the authority of some part of the Bible twisted to suit their purpose. I value them not, and scorn their unfounded judgment.
+ - Those things which I am saying now may be obscure, yet they will be made clearer in their proper place.
+ - The earth together with its surrounding waters must in fact have such a shape as its shadow reveals, for it eclipses the moon with the arc of a perfect circle.
+ - Although all the good arts serve to draw man’s mind away from vices and lead it toward better things, this function can be more fully performed by this art, which also provides extraordinary intellectual pleasure.
+ - Nations are not ruined by one act of violence, but gradually and in an almost imperceptible manner by the depreciation of their circulating currency, through its excessive quantity.
+ - Astronomy is written for astronomers.
+ - I can easily conceive, most Holy Father, that as soon as some people learn that in this book which I have written concerning the revolutions of the heavenly bodies, I ascribe certain motions to the Earth, they will cry out at once that I and my theory should be rejected.
+ - So far as hypotheses are concerned, let no one expect anything certain from astronomy, which cannot furnish it, lest he accept as the truth ideas conceived for another purpose, and depart from this study a greater fool than when he entered it.
+ - In the midst of all dwells the Sun. For who could set this luminary in another or better place in this most glorious temple, than whence he can at one and the same time brighten the whole.
+ - So, influenced by these advisors and this hope, I have at length allowed my friends to publish the work, as they had long besought me to do.
+ - Pouring forth its seas everywhere, then, the ocean envelops the earth and fills its deeper chasms.
+ - Therefore, having obtained the opportunity from these sources, I too began to consider the mobility of the earth.
+ - Therefore, in the course of the work I have followed this plan: I describe in the first book all the positions of the orbits together with the movements which I ascribe to the Earth, in order that this book might contain, as it were, the general scheme of the universe.
+ - Therefore I would not have it unknown to Your Holiness, the the only thing which induced me to look for another way of reckoning the movements of the heavenly bodies was that I knew that mathematicians by no means agree in their investigation thereof.
+ - In so many and such important ways, then, do the planets bear witness to the earth’s mobility.
+ - In first place we must observe that the universe is spherical. This is either because that figure is the most perfect, as not being articulated, but whole and complete in itself; or because it is the most capacious and therefore best suited for that which is to contain and preserve all things.
+ - Accordingly, since nothing prevents the earth from moving, I suggest that we should now consider also whether several motions suit it, so that it can be regarded as one of the planets. For, it is not the center of all the revolutions.
+ - We regard it as a certainty that the earth, enclosed between poles, is bounded by a spherical surface.
+ - Those who know that the consensus of many centuries has sanctioned the conception that the earth remains at rest in the middle of the heavens as its center, would, I reflected, regard it as an insane pronouncement if I made the opposite assertion that the earth moves.
+ - More stars in the north are seen not to set, while in the south certain stars are no longer seen to rise.
+ - Not only the phenomena of the others followed from this, but also it so bound together both the order and magnitude of all the planets and the spheres and the heaven itself, that in no single part could one thing be altered without confusion among the other parts and in all the universe.
+
+40 quotes

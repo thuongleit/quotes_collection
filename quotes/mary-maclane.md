@@ -1,0 +1,46 @@
+ - I was born to be alone, and I always shall be but now I want to be.
+ - When a man and a woman love one another that is enough. That is marriage. A religious rite is superfluous. And if the man and woman live together without the love, no ceremony in the world can make it a marriage.
+ - The art of Good Eating has two essential points: one must eat only when one is hungry, and one must take small bites.
+ - Genius, apart from natural sensitiveness, is prone equally to unreasoning joy and to bitterest morbidness.
+ - I am not good. I am not virtuous. I am not sympathetic. I am not generous. I am merely and above all a creature of intense passionate feeling. I feel – everything. It is my genius. It burns me like fire.
+ - Fame is indeed beautiful and benign and gentle and satisfying, but happiness is something at once tender and brilliant beyond all things.
+ - People say of me, ‘She’s peculiar.’ They do not understand me. If they did they would say so oftener and with emphasis.
+ - I want to write such things as compel the admiring acclamation of the world at large, such things as are written but once in years, things subtle but distinctly different from the books written every day.
+ - You may think me crude, and probably I am crude, but I am not so crude as I was, for I am clever enough to see that the girl of nineteen who thought herself a genius was only an unusual girl writing her heart out.
+ - I never give my real self. I have a hundred sides, and I turn first one way and then the other. I am playing a deep game. I have a number of strong cards up my sleeve. I have never been myself, excepting to two friends.
+ - Some people say that beauty is a curse. It may be true, but I’m sure I should not have at all minded being cursed a little.
+ - There is really no right and wrong. I recognize no right and wrong.
+ - I want to live quietly.
+ - I read of the Kalamazoo girl who killed herself after reading the book. I am not at all surprised. She lived in Kalamazoo, for one thing, and then she read the book.
+ - I am lithe, but fragile from constant involuntary self-analysis.
+ - But in my life, in my personality, there is an essence of falseness and insincerity. A thin, fine vapor of fraud hangs always over me and dampens and injures some things in me that I value.
+ - Are there many things in this cool-hearted world so utterly exquisite as the pure love of one woman for another woman?
+ - I do not sing nor play, but I adore music, particularly Chopin. I like him because I cannot understand him.
+ - The highest thing one can do in literature is to succeed in saying that thing which one meant to say. There is nothing better than that – to make the world see your thoughts as you see them.
+ - The world is like a little marsh filled with mint and white hawthorn.
+ - I’ve never made plans for more than a day ahead.
+ - When I was three years old I was taken with my family to a little town in Western Minnesota, where I lived a more or less vapid and ordinary life until I was ten.
+ - I would rather be a fairly happy wife and mother.
+ - One’s thoughts are one’s most crucial adventures. Seriously and strongly and intently to contemplate doing murder is everyway more exciting, more romantic, more profoundly tragic than the murder done.
+ - I do not see any beauty in self-restraint.
+ - My intention to lecture is as vague as my intention is to go on the stage. I will never consider an offer to lecture, not because I despise the vocation, but because I have no desire to appear on the public rostrum.
+ - It is with pain that I read of the dire effects of my book upon the minds of young girls.
+ - I have never read a line of Walt Whitman.
+ - May I never, I say, become that abnormal, merciless animal, that deformed monstrosity – a virtuous woman.
+ - Just why I sent it to the publishers would be hard to say, but when I had finished it I felt that it was literature, because it is real and because it was well written. And I know that the world wants such things.
+ - Of poets I put Virgil first – he was greatest.
+ - Do you think a man is the only creature with whom one may fall in love?
+ - A genius who does not know that he is a genius is no genius.
+ - I began to be a woman at twelve, or more properly, a genius.
+ - One must always say things that aim to interest, because in the world one must after all pay for one’s keep.
+ - When I wrote my book I wanted to love someone. I wanted to be in love. Now I know that I shall never be in love – and I no longer wish to be.
+ - I have read of women who have been strongly, grandly brave. Sometimes I have dreamed that I might be brave. The possibilities of this life are magnificent.
+ - I am a genius. Then it amused me to keep saying so, but now it does not. I expected to be happy sometime. Now I know I shall never be.
+ - I want fame more than I can tell. But more than I want fame I want happiness.
+ - I write every day. Writing is a necessity – like eating.
+ - Well, if I am not vulgar, neither is my book. I wrote myself. Suggestiveness is always vulgar. But truth never. My book is not even remotely suggestive. I call things by their names. That is all.
+ - However great one’s gift of language may be, there is always something that one cannot tell.
+ - Let me but make a beginning, let me but strike the world in a vulnerable spot, and I can take it by storm.
+ - Genius of a kind has always been with me; an empty heart that has taken on a certain wooden quality; an excellent, strong woman’s body and a pitiably starved soul.
+
+44 quotes

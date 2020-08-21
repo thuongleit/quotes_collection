@@ -1,0 +1,219 @@
+ - It is not the strongest or the most intelligent who will survive but those who can best manage change.
+ - A man who dares to waste one hour of time has not discovered the value of life.
+ - Only the fittest will survive.
+ - It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change, that lives within the means available and works co-operatively against common threats.
+ - The love for all living creatures is the most noble attribute of man.
+ - It’s not the strongest, but the most adaptable that survive.
+ - The most important factor in survival is neither intelligence nor strength but adaptability.
+ - It is not the most intellectual of the species that survives; it is not the strongest that survives; but the species that survives is the one that is able best to adapt and adjust to the changing environment in which it finds itself.
+ - Ignorance more frequently begets confidence than does knowledge.
+ - Some call it evolution, And others call it God.
+ - The world will not be inherited by the strongest, it will be inherited by those most able to change.
+ - If I had my life to live over again, I would have made a rule to read some poetry and listen to some music at least once every week.
+ - I am not apt to follow blindly the lead of other men.
+ - In the struggle for survival, the fittest win out at the expense of their rivals because they succeed in adapting themselves best to their environment.
+ - Even people who aren’t geniuses can outthink the rest of mankind if they develop certain thinking habits.
+ - Endless forms most beautiful and most wonderful have been, and are being evolved.
+ - Man in his arrogance thinks himself a great work, worthy the interposition of a great deity. More humble and I believe true to consider him created from animals.
+ - There is no fundamental difference between man and animals in their ability to feel pleasure and pain, happiness, and misery.
+ - Intelligence is based on how efficient a species became at doing the things they need to survive.
+ - Blushing is the most peculiar and most human of all expressions.
+ - A mathematician is a blind man in a dark room looking for a black cat which isn’t there.
+ - Ignorance more frequently begets confidence than does knowledge: it is those who know little, and not those who know much, who so positively assert that this or that problem will never be solved by science.
+ - The most powerful natural species are those that adapt to environmental change without losing their fundamental identity which gives them their competitive advantage.
+ - Great is the power of steady misrepresentation; but the history of science shows that fortunately this power does not long endure.
+ - A man’s friendships are one of the best measures of his worth.
+ - The highest possible stage in moral culture is when we recognize that we ought to control our thoughts.
+ - Freedom of thought is best promoted by the gradual illumination of men’s minds which follows from the advance of science.
+ - Building a better mousetrap merely results in smarter mice.
+ - If every one were cast in the same mould, there would be no such thing as beauty.
+ - Music was known and understood before words were spoken.
+ - There is a grandeur in this view of life, from so simple a beginning endless forms most beautiful are being evolved.
+ - The fact of evolution is the backbone of biology, and biology is thus in the peculiar position of being a science founded on an improved theory, is it then a science or faith?
+ - If I had life to live over again, I would give my life to poetry, to music, to literature, and to art to make life richer and happier. In my youth I steeled myself against them and thought them so much waste.
+ - I have been speculating last night what makes a man a discoverer of undiscovered things. As far as I can conjecture the art consists in habitually searching for the causes and meaning of everything which occurs.
+ - The willing horse is always overworked.
+ - Free will is to mind what chance is to matter.
+ - I have called this principle, by which each slight variation, if useful, is preserved, by the term of Natural Selection.
+ - The very essence of instinct is that it’s followed independently of reason.
+ - At no time am I a quick thinker or writer: whatever I have done in science has solely been by long pondering, patience and industry.
+ - I always make special notes about evidence that contridicts me: supportive evidence I can remember without trying.
+ - Every new body of discovery is mathematical in form, because there is no other guidance we can have.
+ - Worms have played a more important part in the history of the world than humans would at first suppose.
+ - I am turned into a sort of machine for observing facts and grinding out conclusions.
+ - Much love much trial, but what an utter desert is life without love.
+ - Nature will tell you a direct lie if she can.
+ - The normal food of man is vegetable.
+ - We can allow satellites, planets, suns, universe, nay whole systems of universes, to be governed by laws, but the smallest insect, we wish to be created at once by special act.
+ - Everything in nature is the result of fixed laws.
+ - The school as a means of education to me was simply a blank.
+ - In my simplicity, I remember wondering why every gentleman did not become an ornithologist.
+ - Wherever the European had trod, death seemed to pursue the aboriginal.
+ - Nothing exists for itself alone, but only in relation to other forms of life.
+ - The most energetic workers I have encountered in my world travels are the vegetarian miners of Chile.
+ - A grain in the balance will determine which individual shall live and which shall die – which variety or species shall increase in number, and which shall decrease, or finally become extinct.
+ - I was a young man with uninformed ideas. I threw out queries, suggestions, wondering all the time over everything; and to my astonishment the ideas took like wildfire. People made a religion of them.
+ - Multiply, vary, let the strongest live and the weakest die.
+ - My mind seems to have become a kind of machine for grinding general laws out of large collections of facts.
+ - The mystery of the beginning of all things is insoluble by us; and I for one must be content to remain an agnostic.
+ - To suppose that the eye could have been formed by natural selection, seems, I freely confess, absurd in the highest possible degree.
+ - We are not here concerned with hopes or fears, only with truth as far as our reason permits us to discover it.
+ - An American monkey, after getting drunk on brandy, would never touch it again, and thus is much wiser than most men.
+ - Nothing before had ever made me thoroughly realise, though I had read various scientific books, that science consists in grouping facts so that general laws or conclusions may be drawn from them.
+ - I cannot persuade myself that a beneficent and omnipotent God would have designedly created parasitic wasps with the express intention of their feeding within the living bodies of Caterpillars.
+ - I am not the least afraid to die.
+ - To my deep mortification my father once said to me, “You care for nothing but shooting, dogs, and rat-catching, and you will be a disgrace to yourself and all your family.”
+ - It is mere rubbish thinking, at present, of origin of life; one might as well think of origin of matter.
+ - If the misery of the poor be caused not by the laws of nature, but by our institutions, great is our sin.
+ - Our faculties are more fitted to recognize the wonderful structure of a beetle than a Universe.
+ - The noble science of Geology loses glory from the extreme imperfection of the record. The crust of the earth with its embedded remains must not be looked at as a well-filled museum, but as a poor collection made at hazard and at rare intervals.
+ - In the survival of favoured individuals and races, during the constantly-recurring struggle for existence, we see a powerful and ever-acting form of selection.
+ - Linnaeus and Cuvier have been my two gods, though in very different ways, but they were mere schoolboys to old Aristotle.
+ - If it could be demonstrated that any complex organ existed, which could not possibly have been formed by numerous, successive, slight modifications, my theory would absolutely break down. But I can find no such case.
+ - Englishmen rarely cry, except under the pressure of the acutest grief; whereas in some parts of the Continent the men shed tears much more readily and freely.
+ - A scientific man ought to have no wishes, no affections, – a mere heart of stone.
+ - The question of whether there exists a Creator and Ruler of the Universe has been answered in the affirmative by some of the highest intellects that have ever existed.
+ - A republic cannot succeed, till it contains a certain body of men imbued with the principles of justice and honour.
+ - Seeing this gradation and diversity of structure in one small, intimately related group of birds, one might really fancy that from an original paucity of birds in this archipelago, one species had been taken and modified for different ends.
+ - I have no great quickness of apprehension or wit which is so remarkable in some clever men, for instance Huxley.
+ - On your life, underestimating the proclivities of finches is likely to lead to great internal hemorrhaging.
+ - It is so easy to hide our ignorance under such expressions as the plan of creation or unity of design, etc., and to think that we give an explanation when we only restate a fact.
+ - Life is nearly over with me. I have taken no pains about my style of writing.
+ - Daily it is forced home on the mind of the biologist that nothing, not even the wind that blows, is so unstable as the level of the crust of this earth.
+ - Nothing is easier than to admit in words the truth of the universal struggle for life, or more difficult – at least I have found it so – than constantly to bear this conclusion in mind.
+ - Attention, if sudden and close, graduates into surprise; and this into astonishment; and this into stupefied amazement.
+ - You will be astonished to find how the whole mental disposition of your children changes with advancing years. A young child and the same when nearly grown, sometimes differ almost as much as do a caterpillar and butterfly.
+ - Hence, a traveller should be a botanist, for in all views plants form the chief embellishment.
+ - Even when we are quite alone, how often do we think with pleasure or pain of what others think of us – of their imagined approbation or disapprobation.
+ - I can remember the very spot in the road, whilst in my carriage, when to my joy the solution occurred to me.
+ - A novel according to my taste, does not come into the moderately good class unless it contains some person whom one can thoroughly love – and if a pretty woman, all the better.
+ - We behold the face of nature bright with gladness.
+ - We have happy days, remember good dinners.
+ - I am dying by inches, from not having any body to talk to about insects.
+ - Man scans with scrupulous care the character and pedigree of his horses, cattle, and dogs before he matches them; but when he comes to his own marriage he rarely, or never, takes any such care.
+ - It is easy to specify the individual objects of admiration in these grand scenes; but it is not possible to give an adequate idea of the higher feelings of wonder, astonishment, and devotion, which fill and elevate the mind.
+ - It is like confessing to a murder.
+ - With mammals the male appears to win the female much more through the law of battle than through the display of his charms.
+ - I agree with Agassiz that dogs possess something very like conscience.
+ - If I had not been so great an invalid, I should not have done so much as I have accomplished.
+ - I hate a Barnacle as no man ever did before, not even a Sailor in a slow-sailing ship.
+ - As the sense of smell is so intimately connected with that of taste, it is not surprising that an excessively bad odour should excite wretching or vomitting in some persons.
+ - Mathematics seems to endow one with something like a new sense.
+ - I feel like an old warhorse at the sound of a trumpet when I read about the capturing of rare beetles.
+ - I conclude that the musical notes and rhythms were first acquired by the male or female progenitors of mankind for the sake of charming the opposite sex.
+ - It strikes me that all our knowledge about the structure of our Earth is very much like what an old hen would know of the hundred-acre field in a corner of which she is scratching.
+ - Not one great country can be named, from the polar regions in the north to New Zealand in the south, in which the aborigines do not tattoo themselves.
+ - Progress has been much more general than retrogression.
+ - Man himself cannot express love and humility by external signs, so plainly as does a dog, when with drooping ears, hanging lips, flexuous body, and wagging tail, he meets his beloved master.
+ - Such simple instincts as bees making a beehive could be sufficient to overthrow my whole theory.
+ - The survival or preservation of certain favoured words in the struggle for existence is natural selection.
+ - Man, wonderful man, must collapse, into nature’s cauldron, he is no deity, he is no exception.
+ - It is a cursed evil to any man to become as absorbed in any subject as I am in mine.
+ - Often a cold shudder has run through me, and I have asked myself whether I may have not devoted myself to a fantasy.
+ - Animals, whom we have made our slaves, we do not like to consider our equal.
+ - A cell is a complex structure, with its investing membrane, nucleus, and nucleolus.
+ - But Geology carries the day: it is like the pleasure of gambling, speculating, on first arriving, what the rocks may be; I often mentally cry out 3 to 1 Tertiary against primitive; but the latter have hitherto won all the bets.
+ - I suppose you are two fathoms deep in mathematics, and if you are, then God help you. For so am I, only with this difference: I stick fast in the mud at the bottom, and there I shall remain.
+ - An agnostic would be the more correct description of my state of mind.
+ - It is a truly wonderful fact – the wonder of which we are apt to overlook from familiarity – that all animals and all plants throughout all time and space should be related to each other in group subordinate to group.
+ - The limit of man s knowledge in any subject possesses a high interest which is perhaps increased by its close neighbourhood to the realms of imagination.
+ - As natural selection works solely by and for the good of each being, all corporeal and mental endowments will tend to progress toward perfection.
+ - Besides love and sympathy, animals exhibit other qualities connected with the social instincts which in us would be called moral.
+ - I have deeply regretted that I did not proceed far enough at least to understand something of the great leading principles of mathematics, for men thus endowed seem to have an extra sense.
+ - From the war of nature, from famine and death, the most exalted object which we are capable of conceiving, namely, the production of higher animals, directly follows.
+ - Delight itself, however, is a weak term to express the feelings of a naturalist.
+ - Many kinds of monkeys have a strong taste for tea, coffee and spirituous liqueurs.
+ - Blushing is the most peculiar and most human of all expressions. Monkeys redden from passion but it would take an overwhelming amount of evidence to make us believe that any animal can blush.
+ - To kill an error is as good a service as, and sometimes even better than, the establishing of a new truth or fact.
+ - I have tried lately to read Shakespeare, and found it so intolerably dull that it nauseated me.
+ - It has been a bitter mortification for me to digest the conclusion that the “race is for the strong” and that I shall probably do little more but be content to admire the strides others made in science.
+ - When the sexes differ in beauty, in the power of singing, or in producing what I have called instrumental music, it is almost invariably the male which excels the female.
+ - Nothing can be more hopeless than to attempt to explain this similarity of pattern in members of the same class, by utility or by the doctrine of final causes.
+ - It may be doubted that there are many other animals which have played so important a part in the history of the world as have these lowly organized creatures.
+ - If man had not been his own classifier, he would never have thought of founding a separate order for his own reception.
+ - What wretched doings come from the ardor of fame; the love of truth alone would never make one man attack another bitterly.
+ - I have long discovered that geologists never read each other’s works, and that the only object in writing a book is a proof of earnestness.
+ - The instruction at Edinburgh was altogether by lectures, and these were intolerably dull, with the exception of those on chemistry.
+ - A grand and almost untrodden field of inquiry will be opened, on the causes and laws of variation, on correlation of growth, on the effects of use and disuse, on the direct actions of external conditions, and so forth.
+ - I see no good reasons why the views given in this volume should shock the religious views of anyone.
+ - I am a firm believer, that without speculation there is no good and original observation.
+ - I never gave up Christianity until I was forty years of age.
+ - Man selects only for his own good: Nature only for that of the being which she tends.
+ - The tree of life should perhaps be called the coral of life, base of branches dead; so that passages cannot be seen-this again offers contradiction to constant succession of germs in progress.
+ - What can be more curious than that the hand of a man, formed for grasping, that of a mole for digging, the leg of the horse, the paddle of the porpoise, and the wing of the bat, should all be constructed on the same pattern?
+ - Sympathy beyond the confines of man, that is, humanity to the lower animals, seems to be one of the latest moral acquisitions.
+ - Great is the power of steady misrepresentation.
+ - Sympathy will have been increased through natural selection.
+ - Man is descended from a hairy, tailed quadruped, probably arboreal in its habits.
+ - Nothing can be more improving to a young naturalist, than a journey in a distant country.
+ - Thus we have given to man a pedigree of prodigious length, but not, it may be said, of noble quality.
+ - Animals manifestly enjoy excitement, and suffer from annul and may exhibit curiosity.
+ - One hand has surely worked throughout the universe.
+ - Formerly Milton’s Paradise Lost had been my chief favourite, and in my excursions during the voyage of the Beagle, when I could take only a single small volume, I always chose Milton.
+ - Sympathy for the lowest animals is one of the noblest virtues with which man is endowed.
+ - He who understands baboons would do more towards metaphysics than Locke.
+ - Natural selection acts solely by accumulating slight successive favorable variations, it can produce no great or sudden modification; it can act only by very short steps.
+ - How paramount the future is to the present when one is surrounded by children.
+ - The age-old and noble thought of ‘I will lay down my life to save another,’ is nothing more than cowardice.
+ - The main conclusion arrived at in this work, namely that man is descended from some lowly-organised form, will, I regret to think, be highly distasteful to many persons. But there can hardly be a doubt that we are descended from barbarians.
+ - On the ordinary view of each species having been independently created, we gain no scientific explanation.
+ - The formation of different languages and of distinct species and the proofs that both have been developed through a gradual process, are curiously parallel.
+ - From the first dawn of life, all organic beings are found to resemble each other in descending degrees, so that they can be classed in groups under groups. This classification is evidently not arbitrary like the grouping of stars in constellations.
+ - It is a fatal fault to reason whilst observing, though so necessary beforehand and so useful afterwards.
+ - We thus learn that man is descended from a hairy quadruped, furnished with a tail and pointed ears, probably arboreal in its habits, and an inhabitant of the Old World.
+ - I worked on true Baconian principles, and without any theory collected facts.
+ - The season of love is that of battle. The roots of these fights run deep.
+ - At some future period, not very distant as measured by centuries, the civilized races of man will almost certainly exterminate, and replace the savage races throughout the world.
+ - It is scarcely possible to doubt that the love of man has become instinctive in the dog.
+ - Light may be shed on man and his origins.
+ - What a book a devil’s chaplain might write on the clumsy, wasteful, blundering, low, and horribly cruel work of nature!
+ - False facts are highly injurious to the progress of science, for they often endure long; but false views, if supported by some evidence, do little harm, for every one takes a salutary pleasure in proving their falseness.
+ - Thus disbelief crept over me at a very slow rate, but at last was complete. The rate was so slow that I felt no distress, and have never since doubted even for a single second that my conclusion was correct.
+ - Man tends to increase at a greater rate than his means of subsistence.
+ - Believing as I do that man in the distant future will be a far more perfect creature than he now is, it is an intolerable thought that he and all other sentient beings are doomed to complete annihilation after such long-continued slow progress.
+ - It is no valid objection that science as yet throws no light on the far higher problem of the essence or origin of life. Who can explain gravity? No one now objects to following out the results consequent on this unknown element of attraction...
+ - Whoever is led to believe that species are mutable will do good service by conscientiously expressing his conviction; for only thus can the load of prejudice by which this subject is overwhelmed be removed.
+ - May we not suspect that the vague but very real fears of children, which are quite independent of experience, are the inherited effects of real dangers and abject superstitions during ancient savage times?
+ - So great is the economy of Nature, that most flowers which are fertilized by crepuscular or nocturnal insects emit their odor chiefly or exculsively in the evening.
+ - Any one whose disposition leads him to attach more weight to unexplained difficulties than to the explanation of facts will certainly reject my theory.
+ - We may confidently come to the conclusion, that the forces which slowly and by little starts uplift continents, and that those which at successive periods pour forth volcanic matter from open orifices, are identical.
+ - Our descent, then, is the origin of our evil passions!! The devil under form of Baboon is our grandfather.
+ - Why, if species have descended from other species by insensibly fine gradations, do we not everywhere see innumerable transitional forms.
+ - I long to set foot where no man has trod before.
+ - We will now discuss in a little more detail the Struggle for Existence.
+ - As for a future life, every man must judge for himself between conflicting vague probabilities.
+ - The more one thinks, the more one feels the hopeless immensity of man’s ignorance.
+ - Thomson’s views on the recent age of the world have been for some time one of my sorest troubles.
+ - I have at least, as I hope, done good service in aiding to overthrow the dogma of separate creations.
+ - Disbelief crept over me at a very slow rate, but at last it was complete.
+ - When the views entertained in this volume on the origin of species, or when analogous views are generally admitted, we can dimly forsee that there will be a considerable revolution in natural history.
+ - Man is developed from an ovule, about 125th of an inch in diameter, which differs in no respect from the ovules of other animals.
+ - When I view all beings not as special creations, but as the lineal descendants of some few beings which lived long before the first bed of the Cambrian system was deposited, they seem to me to become ennobled.
+ - So in regard to mental qualities, their transmission is manifest in our dogs, horses and other domestic animals. Besides special tastes and habits, general intelligence, courage, bad and good tempers. etc., are certainly transmitted.
+ - It struck me that favourable variations would tend to be preserved and unfavourable ones tend to be destroyed.
+ - Till facts be grouped and called there can be no prediction. The only advantage of discovering laws is to foretell what will happen and to see the bearing of scattered facts.
+ - The man that created the theory of evolution by natural selection was thrown out by his Dad because he wanted him to be a doctor. GAWD, parents haven’t changed much.
+ - The man who walks with Henslow.
+ - If Mozart, instead of playing the pianoforte at three years old with wonderfully little practice, had played a tune with no practice at all, he might truly have been said to have done so instinctively.
+ - I have been speculating last night what makes a man a discoverer of undiscovered things; and a most perplexing problem it is. Many men who are very clever – much cleverer than the discoverers – never originate anything.
+ - A moral being is one who is capable of reflecting on his past actions and their motives – of approving of some and disapproving of others.
+ - Physiological experiment on animals is justifiable for real investigation, but not for mere damnable and detestable curiosity.
+ - I ought, or I ought not, constitute the whole of morality.
+ - And hail their queen, fair regent of the night.
+ - We are optimists, until we are not.
+ - The moral faculties are generally and justly esteemed as of higher value than the intellectual powers.
+ - There are several other sources of enjoyment in a long voyage, which are of a more reasonable nature. The map of the world ceases to be a blank; it becomes a picture full of the most varied and animated figures.
+ - It is impossible to concieve of this immense and wonderful universe as the result of blind chance or necessity.
+ - With highly civilised nations continued progress depends in a subordinate degree on natural selection; for such nations do not supplant and exterminate one another as do savage tribes.
+ - I shall always feel respect for every one who has written a book, let it be what it may, for I had no idea of the trouble which trying to write common English could cost one – And alas there yet remains the worst part of all correcting the press.
+ - The expression often used by Mr. Herbert Spencer of the Survival of the Fittest is more accurate, and is sometimes equally convenient.
+ - The young blush much more freely than the old but not during infancy, which is remarkable, as we know that infants at a very early age redden from passion.
+ - It may be conceit, but I believe the subject will interest the public, and I am sure that the views are original.
+ - I think it can be shown that there is such an unerring power at work in Natural Selection, which selects exclusively for the good of each organic being.
+ - We fancied even that the bushes smelt unpleasantly.
+ - I would give absolutely nothing for the theory of Natural Selection, if it requires miraculous additions at any one stage of descent.
+ - It may be doubted whether any character can be named which is distinctive of a race and is constant.
+ - In regard to the amount of difference between the races, we must make some allowance for our nice powers of discrimination gained by a long habit of observing ourselves.
+ - Although I am fully convinced of the truth of Evolution, I by no means expect to convince experienced naturalists. But I look with confidence to the future naturalists, who will be able to view both sides with impartiality.
+
+217 quotes

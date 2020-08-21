@@ -1,0 +1,383 @@
+ - Water, water, everywhere, And all the boards did shrink; Water, water, everywhere, Nor any drop to drink.
+ - In Xanadu did Kubla Khan A stately pleasure-dome decree: Where Alph, the sacred river, ran Through caverns measureless to man Down to a sunless sea.
+ - The happiness of life is made up of minute fractions – the little, soon forgotten charities of a kiss or a smile, a kind look or heartfelt compliment.
+ - Imagination is the living power and prime agent of all human perception.
+ - A great mind must be androgynous.
+ - He prayeth best, who loveth best All things both great and small; For the dear God who loveth us, He made and loveth all.
+ - What comes from the heart goes to the heart.
+ - And in today already walks tomorrow.
+ - Deep thinking is attainable only by a man of deep feeling, and all truth is a species of revelation.
+ - That willing suspension of disbelief for the moment, which constitutes poetic faith.
+ - Work without hope draws nectar in a sieve, And hope without an object cannot live.
+ - Poetry: the best words in the best order.
+ - Advice is like snow – the softer it falls, the longer it dwells upon, and the deeper in sinks into the mind.
+ - Sympathy constitutes friendship; but in love there is a sort of antipathy, or opposing passion. Each strives to be the other, and both together make up one whole.
+ - Where true Love burns Desire is Love’s pure flame; It is the reflex of our earthly frame, That takes its meaning from the nobler part, And but translates the language of the heart.
+ - Nature never deserts the wise and pure; no plot so narrow, be but nature there; no waste so vacant, but may well employ each faculty of sense, and keep the heart awake to love and beauty.
+ - He who is best prepared can best serve his moment of inspiration.
+ - A grief without a pang, void, dark and drear, A drowsy, stifled, unimpassioned grief, Which finds no natural outlet or relief, In word, or sigh, or tear.
+ - The history of man for the nine months preceding his birth would, probably, be far more interesting and contain events of greater moment than all the three score and ten years that follow it.
+ - If a man could pass through Paradise in a dream, and have a flower presented to him as a pledge that his soul had really been there, and if he found that flower in his hand when he awake – Aye, what then?
+ - I shall attack Chemistry, like a Shark.
+ - O lady! we receive but what we give And in our life alone does Nature live.
+ - All Nature seems at work. Slugs leave their lair The bees are stirring, birds are on the wing, And Winter slumbering in the open air, Wears on his smiling face a dream of spring.
+ - He is the best physician who is the most ingenious inspirer of hope.
+ - Like one, that on a lonesome road Doth walk in fear and dread, And having once turned round walks on, And turns no more his head; Because he knows, a frightful fiend Doth close behind him tread.
+ - Oh sleep! it is a gentle thing, Beloved from pole to pole.
+ - If people could learn history, what lessons it might teach us!
+ - Milton had a highly imaginative, Cowley a very fanciful mind.
+ - I ago’s soliloquy – the motive-hunting of a motiveless malignity – how awful it is!
+ - He prayeth best who loveth best.
+ - The juggle of sophistry consists, for the most part, in using a word in one sense in all the premises, and in another sense in the conclusion.
+ - Day after day, day after day, We stuck, nor breath nor motion; As idle as a painted ship Upon a painted ocean.
+ - Alone, Alone, all, all alone, Alone on a wide wide sea! And never saint took pity on My soul in agony.
+ - My eyes make pictures when they are shut.
+ - Flowers are lovely; love is flower-like; Friendship is a sheltering tree; Oh the joys that came down shower-like, Of friendship, love, and liberty, Ere I was old!
+ - To be beloved is all I need, And whom I love, I love indeed.
+ - Come, come thou bleak December wind, And blow the dry leaves from the tree! Flash, like a Love-thought, thro’me, Death And take a Life that wearies me.
+ - Earth, with her thousand voices, praises God.
+ - Sublimity is Hebrew by birth.
+ - Acquaintance many, and conquaintance few, But for inquaintance I know only two – The friend I’ve wept and the maid I woo.
+ - Novels are to love as fairy tales to dreams.
+ - During the act of knowledge itself, the objective and subjective are so instantly united, that we cannot determine to which of the two the priority belongs.
+ - What is one man’s gain is another’s loss.
+ - If men could learn from history, what lessons it might teach us. But passion and party blind our eyes, and the light which experience gives us is a lantern on the stern, which shines only on the waves behind us.
+ - Ignorance seldom vaults into knowledge...
+ - The nightmare Life-in-Death was she.
+ - There is nothing insignificant-nothing.
+ - Water cannot rise higher than its source, neither can human reason.
+ - Trochee trips from long to short; From long to long in solemn sort Slow Spondee stalks.
+ - Milton has carefully marked in his Satan the intense selfishness, the alcohol of egotism, which would rather reign in hell than serve in heaven.
+ - A spring of love gush’d from my heart, And I bless’d them unaware.
+ - Love is flower like; Friendship is like a sheltering tree.
+ - It is a gentle and affectionate thought, that in immeasurable height above us, at our first birth, the wreath of love was woven with sparkling stars for flowers.
+ - Painting is the intermediate between a thought and a thing.
+ - The one red leaf, the last of its clan, That dances as often as dance it can, Hanging so light, and hanging so high, On the topmost twig that looks up at the sky.
+ - Life went a-maying With Nature, Hope, and Poesy, When I was young!
+ - The love of a mother is the veil of a softer light between the heart and the heavenly Father.
+ - The man hath penance done, And penance more will do.
+ - He saw a lawyer killing a viper on a dunghill hard by his own stable; And the Devil smiled, for it put him in mind of Cain and his brother Abel.
+ - I have seen great intolerance shown in support of tolerance.
+ - The dwarf sees farther than the giant, when he has the giant’s shoulders to mount on.
+ - Her skin was white as leprosy.
+ - For more than a thousand years the Bible, collectively taken, has gone hand in hand with civilization science, law; in short, with the moral and intellectual cultivation of the species, always supporting and often leading he way.
+ - The principle of the Gothic architecture is infinity made imaginable.
+ - How strange and awful is the synthesis of life and death in the gusty winds and falling leaves of an autumnal day!
+ - An idea, in the highest sense of that word, cannot be conveyed but by a symbol.
+ - Pity is best taught by fellowship in woe.
+ - Taste is the intermediate faculty which connects the active with the passive powers of our nature, the intellect with the senses; and its appointed function is to elevate the images of the latter, while it realizes the ideas of the former.
+ - Not one man in a thousand has the strength of mind or the goodness of heart to be an atheist.
+ - And what if all of animated nature Be but organic harps diversely framed, That tremble into thought, as o’er them sweeps, Plastic and vast, one intellectual breeze, At once the soul of each, and God of all?
+ - We must not be guilty of taking the law into our own hands, and converting it from what it really is to what we think it ought to be.
+ - Nor dim nor red, like God’s own head, The glorious Sun uprist.
+ - Swiftly, swiftly flew the ship, Yet she sailed softly too: Sweetly, sweetly blew the breeze – On me alone it blew.
+ - Finally, good sense is the body of poetic genius, fancy its drapery, motion its life, and imagination the soul that is everywhere and in each; and forms all into one graceful and intelligent whole.
+ - Farewell, farewell! but this I tell To thee, thou Wedding-Guest! He prayeth well, who loveth well Both man and bird and beast.
+ - Nothing can permanently please, which doesn’t contain in itself the reason why it is so, and not otherwise.
+ - O let me be awake, my God! Or let me sleep alway.
+ - So will I build my altar in the fields, And the blue sky my fretted dome shall be, And the sweet fragrance that the wild flower yields Shall be the incense I will yield to thee.
+ - Genius is the power of carrying the feelings of childhood into the powers of manhood.
+ - Silence does not always mark wisdom.
+ - The fair breeze blew, The white foam flew, And the forrow followed free. We were the first to ever burst into the silent sea.
+ - The primary imagination I hold to be the living power and prime agent of all human perception, and as a repetition in the finite mind of the eternal act of creation in the infinite I Am.
+ - Poetry gives most pleasure when only generally and not perfectly understood.
+ - Wherever you find a sentence musically worded, of true rhythm and melody in the words, there is something deep and good in the meaning also.
+ - The fancy is indeed no other than a mode of memory emancipated from the order of time and space.
+ - Imagination that compares and contrasts with what is around as well as what is better and worse is the living power and prime agent of all human perception judgement and emotional reaction.
+ - To admire on principle is the only way to imitate without loss of originality.
+ - May all the stars hang bright above her dwelling, Silent as though they watched the sleeping earth!
+ - Within today, tomorrow is already walking.
+ - Death came with friendly care; The opening bud to heaven conveyed, And bade it blossom there.
+ - That gracious thing, made up of tears and light.
+ - I do not call the sod under my feet my country; but language-religion-government-blood-identity in these makes men of one country.
+ - Joy is the sweet voice, joy the luminous cloud. We in ourselves rejoice! And thence flows all that charms or ear or sight, all melodies the echoes of that voice, all colours a suffusion from that light.
+ - An orphan’s curse would drag to hell, a spirit from on high; but oh! more horrible than that, is a curse in a dead man’s eye!
+ - There is in every human countenance either a history or a prophecy which must sadden, or at least soften every reflecting observer.
+ - That agony returns; And till my ghastly tale is told, This heart within me burns.
+ - The form is mechanic when on any given material we impress a predetermined form. The organic form, on the other hand, is innate, it shapes as it develops itself from within.
+ - And the Devil did grin, for his darling sin is pride that apes humility.
+ - Why is it that so many of us persist in thinking that autumn is a sad season? Nature has merely fallen asleep, and her dreams must be beautiful if we are to judge by her countenance.
+ - Greatness and goodness are not means, but ends.
+ - A woman’s friendship borders more closely on love than man’s. Men affect each other in the reflection of noble or friendly acts; whilst women ask fewer proofs and more signs and expressions of attachment.
+ - Talk of the devil, and his horns appear.
+ - In many ways doth the full heart reveal The presence of the love it would conceal.
+ - A mother is a mother still, The holiest thing alive.
+ - A Gothic church is a petrified religion.
+ - Oh Sleep! it is a gentle thing, beloved from pole to pole, to Mary Queen the praise be given! She sent the gentle sleep from Heaven, that slid into my soul.
+ - Chance is but the pseudonym of God for those particular cases, which he does not choose to acknowledge openly with his own sign manual.
+ - And I, the while, the sole unbusy thing, Nor honey make, nor pair, nor build, nor sing.
+ - How well he fell asleepl Like some proud river, widening toward the sea; Calmly and grandly, silently and deep, Life joined eternity.
+ - Ancestral voices prophesying war.
+ - A man’s desire is for the woman, but the woman’s desire is rarely other than for the desire of the man.
+ - The author of Biographia Literaria was already a ruined man. Sometimes, however, to be a “ruined man” is itself a vocation.
+ - I have often thought what a melancholy world this would be without children, and what an inhuman world without the aged.
+ - Frenchmen are like gunpowder, each by itself smutty and contemptible, but mass them together and they are terrible indeed!
+ - Christianity is not a theory or speculation, but a life; not a philosophy of life, but a life and a living process.
+ - Prayer is the very highest energy of which the mind is capable.
+ - To most men experience is like the stern lights of a ship, which illuminate only the track it has passed.
+ - The sun’s rim dips; the stars rush out: At one stride comes the dark; With far-heard whisper o’er the sea, Off shot the spectre-bark.
+ - The river Rhine, it is well known, Doth wash your city of Cologne; But tell me, nymphs! what power divine Shall henceforth wash the river Rhine?
+ - Memory, bosom-spring of joy.
+ - The first duty of a wise advocate is to convince his opponents that he understands their arguments, and sympathies with their just feelings.
+ - That saints will aid if men will call; For the blue sky bends over all!
+ - Ah why refuse the blameless bliss? Can danger lurk within a kiss?
+ - O pure of heart! Thou needest not ask of me what this strong music in the soul may be!
+ - Force yourself to reflect on what you read, paragraph by paragraph.
+ - The moving moon went up the sky, And nowhere did abide: Softly she was going up, And a star or two beside.
+ - The worth and value of knowledge is in proportion to the worth and value of its object.
+ - He went like one that hath been stunn’d, And is of sense forlorn: A sadder and a wiser man He rose the morrow morn.
+ - Remorse is as the heart in which it grows; If that be gentle, it drops balmy dews Of true repentance; but if proud and gloomy, It is the poison tree, that pierced to the inmost, Weeps only tears of poison.
+ - No voice; but oh – the silence sank Like music on my heart.
+ - I have found in the Bible words for my inmost thoughts, songs for my joy, utterance for my hidden griefs and pleadings for my shame and feebleness.
+ - Remorse weeps tears of blood.
+ - And looking to the Heaven, that bends above you, How oft! I bless the Lot, that made me love you.
+ - The water-lily, in the midst of waters, opens its leaves and expands its petals, at the first pattering of the shower, and rejoices in the rain-drops with a quicker sympathy than the packed shrubs in the sandy desert.
+ - A stately pleasure-dome decree.
+ - Nothing great was ever achieved without enthusiasm. For what is enthusiasm but the oblivion and swallowing-up of self in an object dearer than self?
+ - Facts are not truths; they are not conclusions; they are not even premises, but in the nature and parts of premises.
+ - No sound is dissonant which tells of life.
+ - And in Life’s noisiest hour, There whispers still the ceaseless Love of Thee, The heart’s Self-solace and soliloquy. You mould my Hopes, you fashion me within.
+ - Alas! they had been friends in youth; But whispering tongues can poison truth, And constancy lives in realms above; And life is thorny, and youth is vain; And to be wroth with one we love Doth work like madness in the brain.
+ - Therefore all seasons shall be sweet to thee, Whether the summer clothe the general earth With greenness, or the redbreast sit and sing Betwixt the tufts of snow on the bare branch Of mossy apple tree.
+ - Our quaint metaphysical opinions, in an hour of anguish, are like playthings by the bedside of a child deathly sick.
+ - Never pursue literature as a trade.
+ - Real pain can alone cure us of imaginary ills. We feel a thousand miseries till we are lucky enough to feel misery.
+ - Our own heart, and not other men’s opinion, forms our true honor.
+ - It is a flat’ning Thought, that the more we have seen, the less we have to say.
+ - My case is a species of madness, only that it is a derangement of the Volition, and not of the intellectual faculties.
+ - This world has angels all too few, and heaven is overflowing.
+ - In wonder all philosophy began, in wonder it ends, and admiration fill up the interspace; but the first wonder is the offspring of ignorance, the last is the parent of adoration.
+ - To leave no interval between the sentence and the fulfillment of it doth beseem God only, the Immutable!
+ - Poor little Foal of an oppressed race! I love the languid patience of thy face.
+ - To know, to esteem, to love,-and then to part, Makes up life’s tale to many a feeling heart.
+ - The blue and bright-eyed floweret of the brook, Hope’s gentle gem, the sweet Forget-me-not.
+ - A noise like of a hidden brook In the leafy month of June, That to the sleeping woods all night Singeth a quiet tune.
+ - I know the Bible is inspired because it finds me at greater depths of my being than any other book.
+ - Common sense in an uncommon degree is what the world calls wisdom.
+ - How inimitably graceful children are in general-before they learn to dance.
+ - The Beautiful arises from the perceived harmony of an object, whether sight or sound, with the inborn and constitutive rules of the judgment and imagination: and it is always intuitive.
+ - And they three passed over the white sands, between the rocks, silent as the shadows.
+ - An instinctive taste teaches men to build their churches with spire steeples which point as with a silent finger to the sky and stars.
+ - All thoughts, all passions, all delights Whatever stirs this mortal frame All are but ministers of Love And feed His sacred flame.
+ - The many men, so beautiful! And they all dead did lie: And a thousand thousand slimy things Lived on; and so did I.
+ - I have heard of reasons manifold Why Love must needs be blind, But this the best of all I hold,- His eyes are in his mind.
+ - And all who heard should see them there, And all should cry, Beware! Beware! His flashing eyes, his floating hair! Weave a circle round him thrice, And close your eyes with holy dread, For he on honey-dew hath fed, And drunk the milk of Paradise.
+ - Iambics march from short to long; – With a leap and a bound the swift Anapaests throng.
+ - Show me one couple unhappy merely on account of their limited circumstances, and I will show you ten who are wretched from other causes.
+ - Shakespeare knew the human mind, and its most minute and intimate workings, and he never introduces a word, or a thought, in vain or out of place; if we do not understand him, it is our own fault.
+ - Her lips were red, her looks were free, Her locks were yellow as gold: Her skin was white as leprosy, The Nightmare Life-in-Death was she, Who thicks man’s blood with cold.
+ - Guilt is a timorous thing ere perpetration; despair alone makes guilty men be bold.
+ - No one does anything from a single motive.
+ - The sense of beauty is intuitive, and beauty itself is all that inspires pleasure without, and aloof from, and even contrarily to interest.
+ - The happiness of life is made up of minute fractions.
+ - The best part of human language, properly so called, is derived from reflection on the acts of the mind itself.
+ - The book of Job is pure Arab poetry of the highest and most antique cast.
+ - The most happy marriage I can picture or imagine to myself would be the union of a deaf man to a blind woman.
+ - Genius must have talent as its complement and implement, just as in like manner imagination must have fancy. In short, the higher intellectual powers can only act through a corresponding energy of the lower.
+ - Swans sing before they die – ’twere no bad thing should certain persons die before they sing.
+ - Be not merely a man of letters! Let literature be an honorable augmentations to your arms, not constitute the coat or fill the escutcheon!
+ - So lonely ’twas that God himself Scarce seemed there to be.
+ - If a man is not rising upwards to be an angel, depend upon it, he is sinking downwards to be a devil. He cannot stop at the beast. The most savage of men are not beasts; they are worse, a great deal worse.
+ - And here were forests ancient as the hills, Enfolding sunny spots of greenery.
+ - The love of indolence is universal, or next to it.
+ - For mother’s sake the child was dear, and dearer was the mother for the child.
+ - Boys and girls, And women, that would groan to see a child Pull off an insect’s leg, all read of war, The best amusement for our morning meal.
+ - Not the poem which we have read, but that to which we return, with the greatest pleasure, possesses the genuine power, and claims the name of essential poetry .
+ - Joy rises in me, like a summer’s morn.
+ - Sir, I admit your general rule, That every poet is a fool, But you yourself may serve to show it, That every fool is not a poet.
+ - In politics, what begins in fear usually ends in folly.
+ - When thieves come, I bark; when gallants, I am still – So perform both my master’s and mistress’s will.
+ - He who begins by loving Christianity more than Truth, will proceed by loving his sect or church better than Christianity, and end in loving himself better than all.
+ - Love is the admiration and cherishing of the amiable qualities of the beloved person, upon the condition of yourself being the object of their action.
+ - Cant is the parrot talk of a profession.
+ - In Shakespeare one sentence begets the next naturally; the meaning is all inwoven. He goes on kindling like a meteor through the dark atmosphere.
+ - Never can true courage dwell with them, Who, playing tricks with conscience, dare not look At their own vices.
+ - Everyone should have two or three hives of bees. Bees are easier to keep than a dog or a cat. They are more interesting than gerbils.
+ - When a man mistakes his thoughts for persons and things, this is madness.
+ - I stood in unimaginable trance And agony that cannot be remembered.
+ - A wild rose roofs the ruined shed, And that and summer well agree.
+ - Alas! they had been friends in youth; but whispering tongues can poison truth.
+ - God is everywhere! the God who framed Mankind to be one, mighty family, Himself our Father, and the world our home.
+ - A man of maxims only is like a Cyclops with one eye, and that in the back of his head.
+ - Lovely was the death Of Him whose life was Love! Holy with power, He on the thought-benighted Skeptic beamed Manifest Godhead.
+ - But oh! each visitation Suspends what nature gave me any my birth, My shaping spirit of Imagination.
+ - Nature has her proper interest; and he will know what it is, who believes and feels, that every Thing has a Life of its own, and that we are all one Life.
+ - The necessity for external government to man is in an inverse ratio to the vigor of his self-government. Where the last is most complete, the first is least wanted. Hence, the more virtue the more liberty.
+ - Nothing is as contagious as enthusiasm. It is the real allegory of the myth of Orpheus; it moves stones, and charms brutes. It is the genius of sincerity, and truth accomplishes no victories without it.
+ - Some persons have contended that mathematics ought to be taught by making the illustrations obvious to the senses. Nothing can be more absurd or injurious: it ought to be our never-ceasing effort to make people think, not feel.
+ - The devil is not, indeed, perfectly humorous, but that is only because he is the extreme of all humor.
+ - We ne’er can be Made happy by compulsion.
+ - No mind is thoroughly well organized that is deficient in a sense of humor.
+ - Perhaps ’tis pretty to force together Thoughts so all unlike each other; To mutter and mock a broken charm, To dally with wrong that does no harm.
+ - Let every book-worm, when in any fragrant, scarce old tome, he discovers a sentence, a story, an illustration, that does his heart good, hasten to give it the widest circulation that newspapers and magazines, penny and halfpenny, can afford.
+ - The Reformation in the sixteenth century narrowed Reform. As soon as men began to call themselves names, all hope of further amendment was lost.
+ - For compassion a human heart suffices, but for full and adequate sympathy, with joy, an angel’s only.
+ - I look’d to Heav’n, and try’d to pray; But or ever a prayer had gusht, A wicked whisper came and made My heart as dry as dust.
+ - Friends should be weighed, not told; who boasts to have won a multitude of friends has never had one.
+ - Every human feeling is greater and larger than its exciting cause-a proof, I think, that man is designed for a higher state of existence.
+ - The genius of the Spanish people is exquisitely subtle, without being at all acute; hence there is so much humour and so little wit in their literature.
+ - Works of imagination should be written in very plain language; the more purely imaginative they are the more necessary it is to be plain.
+ - All nature seems at work.
+ - No man was ever yet a great poet, without being at the same time a profound philosopher. For poetry is the blossom and the fragrance of all human knowledge, human thoughts, human passions, emotions, language.
+ - A sight to dream of, not to tell!
+ - Poetry has been to me its own exceeding great reward; it has given me the habit of wishing to discover the good and beautiful in all that meets and surrounds me.
+ - Christianity is within a man, even as he is gifted with reason; it is associated with your mother’s chair, and with the first remembered, tones of her blessed voice.
+ - Contempt is egotism in ill- humor.
+ - The spirit of poetry, like all other living powers, must of necessity circumscribe itself by rules, were it only to unite power with beauty.
+ - All powerful souls have kindred with each other.
+ - O it is pleasant, with a heart at ease, Just after sunset, or by moonlight skies, To make the shifting clouds be what you please.
+ - Metaphysics, – the science which determines what can and what cannot be known of being and the laws of being.
+ - A man’s as old as he’s feeling. A woman as old as she looks.
+ - Laughter is equally the expression of extreme anguish and horror as of joy: as there are tears of sorrow and tears of joy, so is there a laugh of terror and a laugh of merriment.
+ - God! sing, ye meadow-streams, with gladsome voice! Ye pine-groves, with your soft and soul-like sounds! And they too have a voice, you piles of snow, And in their perilous fall shall thunder, God!
+ - In your intercourse with sects, the sublime and abstruse doctrines of Christian belief belong to the Church; but the faith of the individual, centred in his heart, is, or may be, collateral to them. Faith is subjective.
+ - When the whole and the parts are seen at once, as mutually producing and explaining each other, as unity in multeity, there results shapeliness.
+ - I dislike the frequent use of the word virtue, instead of righteousness, in the pulpit; in prayer or preaching before a Christian community, it sounds too much like pagan philosophy.
+ - If you wish to assured of the truth of Christianity, try it. Believe, and if thy belief be right, that insight which gradually transmutes faith into knowledge will be the reward of thy belief.
+ - There is one art of which people should be masters – the art of reflection.
+ - An ear for music is very different from a taste for music. I have no ear whatever; I could not sing an air to save my life; but I have the intensest delight in music, and can detect good from bad.
+ - Of no agenor of any religion, or party or profession. The body and substance of his works came out of the unfathomable depths of his own oceanic mind.
+ - The principle of the Gothic architecture is infinity made imaginable. It is no doubt a sublimer effort of genius than the Greek style; but then it depends much more on execution for its effect.
+ - Mr. Mum’s Rudesheimer And the church of St. Geryon Are the two things alone That deserve to be known In the body-and-soul-stinking town of Cologne.
+ - Often do the spirits stride on before the event; and in today already walks tomorrow.
+ - Humor is consistent with pathos, whilst wit is not.
+ - For I often please myself with the fancy, now that I may have saved from oblivion the only striking passage in a whole volume, and now that I may have attracted notice to a writer undeservedly forgotten.
+ - And though thou notest from thy safe recess old friends burn dim, like lamps in noisome air love them for what they are; nor love them less, because to thee they are not what they were.
+ - The Eighth Commandment was not made for bards.
+ - What is an epigram? A dwarfish whole, its body brevity, and wit its soul.
+ - How like herrings and onions our vices are in the morning after we have committed them.
+ - Until you understand a writer’s ignorance, presume yourself ignorant of his understanding.
+ - How did the atheist get his idea of that God whom he denies?
+ - Call not that man wretched, who whatever else he suffers as to pain inflicted, or pleasure denied, has a child for whom he hopes and on whom he doats.
+ - Persecution is a very easy form of virtue.
+ - A Falsehood is, in one sense, a dead thing; but too often it moves about, galvanized by self-will, and pushes the living out of their seats.
+ - Thou rising Sun! thou blue rejoicing Sky! Yea! every thing that is and will be free! Bear witness for me, whereso’er ye be, With what deep worship I have still adored The spirit of divinest Liberty.
+ - The bride hath paced into the hall, Red as a rose is she.
+ - You do not believe, you only believe that you believe.
+ - To sentence a man of true genius, to the drudgery of a school is to put a racehorse on a treadmill.
+ - A rogue is a roundabout fool.
+ - That passage is what I call the sublime dashed to pieces by cutting too close with the fiery four-in-hand round the corner of nonsense.
+ - Exclusively of the abstract sciences, the largest and worthiest portion of our knowledge consists of aphorisms: and the greatest and best of men is but an aphorism.
+ - Good and bad men are less than they seem.
+ - The Earth with its scarred face is the symbol of the Past; the Air and Heaven, of Futurity.
+ - The whole faculties of man must be exerted in order to call forth noble energies; and he who is not earnestly sincere lives in but half his being, self-mutilated, self-paralyzed.
+ - Democracy is the healthful lifeblood which circulates through the veins and arteries, which supports the system, but which ought never to appear externally, and as the mere blood itself.
+ - Veracity does not consist in saying, but in the intention of communicating the truth.
+ - To all new truths, or renovation of old truths, it must be as in the ark between the destroyed and the about-to-be renovated world. The raven must be sent out before the dove, and ominous controversy must precede peace and the olive wreath.
+ - As I live and am a man, this is an unexaggerated tale – my dreams become the substances of my life.
+ - All men, even the most surly are influenced by affection.
+ - The rules of prudence, like the laws of the stone tables, are for the most part prohibitive. “Thou shalt not” is their characteristic formula.
+ - Heart-chilling superstition! thou canst glaze even Pity’s eye with her own frozen tear.
+ - I must reject fluids and ethers of all kinds, magnetical, electrical, and universal, to whatever quintessential thinness they may be treble distilled, and as it were super-substantiated.
+ - Those who best know human nature will acknowledge most fully what a strength light hearted nonsense give to a hard working man.
+ - Be that blind bard who on the Chian strand, By those deep sounds possessed with inward light, Beheld the Iliad and the Odyssey Rise to the swelling of the voiceful sea.
+ - Seldom can philosophic genius be more usefully employed than in thus rescuing admitted truths from the neglect caused by the very circumstance of their universal admission.
+ - It would not be correct to say that every moral obligation involves a legal duty; but every legal duty is founded on a moral obligation.
+ - The poet is the man made to solve the riddle of the universe who brings the whole soul of man into activity.
+ - I feel as if God had, by giving the Sabbath, given fifty-two springs in every year.
+ - As it must not, so genius cannot be lawless; for it is even that constitutes its genius – the power of acting creatively under laws of its own origination.
+ - Genius of the highest kind implies an unusual intensity of the modifying power.
+ - It is the duty of the Judge in criminal trials to take care that the verdict of the jury is not founded upon any evidence except that which the law allows.
+ - One thought includes all thought, in the sense that a grain of sand includes the universe.
+ - This is the course of every evil deed, that, propagating still it brings forth evil.
+ - Dryden ’s genius was of that sort which catches fire by its own motion; his chariot wheels get hot by driving fast.
+ - Conscience is the pulse of reason.
+ - Intense study of the Bible will keep any writer from being vulgar, in point of style.
+ - The act of praying is the very highest energy of which the human mind is capable; praying, that is, with the total concentration of the faculties. The great mass of worldly men and of learned men are absolutely incapable of prayer.
+ - Oh, the difficulty of fixing the attention of men on the world within them!
+ - The words in prose ought to express the intended meaning, and no more; if they attract attention to themselves, it is, in general, a fault.
+ - Too soon did the doctors of the church forget that the heart – the moral nature – was the beginning and the end, and that truth, knowledge, and insight were comprehended in its expansion.
+ - A single thought is that which it is from other thoughts as a wave of the sea takes its form and shape from the waves which precede and follow it.
+ - Clergymen who publish pious frauds in the interest of the church are the orthodox liars of God.
+ - The faults of great authors are generally excellences carried to an excess.
+ - There are errors which no wise man will treat with rudeness while there is a probability that they may be the refraction of some great truth still below the horizon.
+ - Brute animals have the vowel sounds; man only can utter consonants.
+ - A nation to be great ought to be compressed in its increment by nations more civilized than itself.
+ - There are three classes into which all the women past seventy that ever I knew were to be divided: 1. That dear old soul; 2. That old woman; 3. That old witch.
+ - Happiness can be built only on virtue, and must of necessity have truth for its foundation.
+ - Ah! from the soul itself must issue forth A light, a glory, a fair luminous cloud Enveloping the Earth And from the soul itself must there be sent A sweet and potent voice, of its own birth Of all sweet sounds the life and element!
+ - Religion is the most gentlemanly thing in the world. It alone will gentilize, if unmixed with cant.
+ - Is duty a mere sport, or an employ! Life an entrusted talent or a toy!
+ - Language is the armory of the human mind, and at once contains the trophies of its past and the weapons of its future conquests.
+ - Pedantry consists in the use of words unsuitable to the time, place, and company.
+ - We have to administer the law whether we like it or no.
+ - There is small chance of truth at the goal, where there is not childlike humility at the starting-post.
+ - A poet ought not to pick nature’s pocket. Let him borrow, and so borrow as to repay by the very act of borrowing. Examine nature accurately, but write from recollection, and trust more to the imagination than the memory.
+ - Summer has set in with its usual severity.
+ - We are now Courts of equity, and must decide the thing according to all the rights.
+ - As there is much beast and some devil in man, so is there some angel and some God in him. The beast and the devil may be conquered, but in this life never destroyed.
+ - Oh worse than everything, is kindness counterfeiting absent love.
+ - Men of humor are always in some degree men of genius; wits are rarely so, although a man of genius may, amongst other gifts, possess wit, as Shakespeare.
+ - The first man of science was he who looked into a thing, not to learn whether it furnished him with food, or shelter, or weapons, or tools, armaments, or playwiths but who sought to know it for the gratification of knowing.
+ - Experience informs us that the first defence of weak minds is to recriminate.
+ - Poetry is certainly something more than good sense, but it must be good sense, at all events, just as a palace is more than a house, but it must be a house, at least.
+ - A man may devote himself to death and destruction to save a nation; but no nation will devote itself to death and destruction to save mankind.
+ - The genius of Coleridge is like a sunken treasure ship, and Coleridge a diver too timid and lazy to bring its riches to the surface.
+ - History has a point of view; it cannot be all things to all people.
+ - To believe and to understand are not diverse things, but the same things in different periods of growth.
+ - Rage is essentially vulgar.
+ - Ignorance seldom vaults into knowledge, but passes into it through an intermediate state of obscurity, even as night into day through twilight.
+ - The artist must imitate that which is within the thing, that which is active through form and figure, and discourses to us by symbols.
+ - The history of all the world tells us that immoral means will ever intercept good ends.
+ - Look through the whole history of countries professing the Romish religion, and you will uniformly find the leaven of this besetting and accursed principle of action – that the end will sanction any means.
+ - All sympathy not consistent with acknowledged virtue is but disguised selfishness.
+ - The paternal and filial duties discipline the heart, and prepare it for the love of all mankind. The intensity of private attachment encourages, not prevents, universal benevolence.
+ - The first great requisite is absolute sincerity. Falsehood and disguise are miseries and misery-makers.
+ - If you would stand well with a great mind, leave him with a favorable impression of yourself; if with a little mind, leave him with a favorable impression of himself.
+ - The present system of taking oaths is horrible. It is awfully absurd to make a man invoke God’s wrath upon himself, if he speaks false; it is, in my judgment, a sin to do so.
+ - The form of truth will bear exposure, as well as that of beauty herself.
+ - In what way, or by what manner of working, God changes a soul from evil to good, how He impregnates the barren rock – the priceless gems and gold – is to the human mind an impenetrable mystery, in all cases alike.
+ - As long as there are readers to be delighted with calumny, there will be found reviewers to calumniate.
+ - That only can with propriety be styled refinement which, by strengthening the intellect, purifies the manners.
+ - The more sparingly we make use of nonsense, the better.
+ - Death but supplies the oil for the inextinguishable lamp of life.
+ - Motives by excess reverse their very nature and instead of exciting, stun and stupefy the mind.
+ - For she belike hath drunken deep Of all the blessedness of sleep.
+ - We must follow the old authorities and precedents in criminal matters.
+ - I do not wish you to act from these truths; no, still and always act from your feelings; only meditate often on these truths that sometime or other they may become your feelings.
+ - As long as we have to administer the law we must do so according to the law as it is. We are not here to make the law.
+ - A people are free in proportion as they form their own opinions.
+ - Men, I think, have to be weighed, not counted.
+ - Enlist the interests of stern Morality and religious Enthusiasm in the cause of Political Liberty, as in the time of the old Puritans, and it will be irresistible.
+ - Moral obligation is to me so very strong a Stimulant, that in 9 cases out of ten it acts as a Narcotic. The Blow that should rouse, stuns me.
+ - I believe that obstinacy, or the dread of control and discipline, arises not so much from self-willedness as from a conscious defect of voluntary power; as foolhardiness is not seldom the disguise of conscious timidity.
+ - Mr. Lyell’s system of geology is just half the truth, and no more. He affirms a great deal that is true, and he denies a great deal which is equally true; which is the general characteristic of all systems not embracing the whole truth.
+ - To see him act is like reading Shakespeare by flashes of lightning.
+ - An undevout poet is an impossibility.
+ - The primary notion i hold to be the Living Power.
+ - Carved with figures strange and sweet, All made out of the carver’s brain.
+ - Indignation at literary wrongs I leave to men born under happier stars. I cannot afford it.
+ - Intellect really exists in its products; its kingdom is here.
+ - I must lay down the law as I understand it, and as I read it in books of authority.
+ - We should manage our thoughts as shepherds do their flowers in making a garland: first, select the choicest, and then dispose them in the most proper places, that every one may reflect a part of its color and brightness on the next.
+ - Why aren’t more gems from our great authors scattered over the country? Great books aren’t within everybody’s reach.
+ - Every reform, however necessary, will by weak minds be carried to an excess, that itself will need reforming.
+ - The three great ends which a statesman ought to propose to himself in the government of a nation, are one, Security to possessors; two, facility to acquirers; and three, hope to all.
+ - As a man without forethought scarcely deserves the name of a man, so forethought without reflection is but a metaphorical phrase for the instinct of a beast.
+ - Fear gives sudden instincts of skill.
+ - Tranquillity! thou better name Than all the family of Fame.
+ - On the Greek stage a drama, or acted story, consisted in reality of three dramas, called together a trilogy, and performed consecutively in the course of one day.
+ - Whenever philosophy has taken into its plan religion, it has ended in skepticism; and whenever religion excludes philosophy, or the spirit of free inquiry, it leads to willful blindness and superstition.
+ - We ought not to extract pernicious honey from poison blossoms of misrepresentation and mendacious half-truth, to pamper the course appetite of bigotry and self-love.
+ - The wise only possess ideas; the greater part of mankind are possessed by them.
+ - People of humor are always in some degree people of genius.
+ - About, about, in reel and rout the death fires danced at night.
+ - Bells, the poor man’s only music.
+ - The fastidious taste will find offence in the occasional vulgarisms, or what we now call slang, which not a few of our writers seem to have affected.
+ - Farce is nearer tragedy in its essence than comedy is.
+ - A maxim is a conclusion upon observation of matters of fact, and is merely speculative; a “principle” carries knowledge within itself, and is prospective.
+ - I never knew a trader in philanthropy who was not wrong in his head or heart somewhere or other.
+ - Men of genius are rarely much annoyed by the company of vulgar people.
+ - The doing evil to avoid an evil cannot be good.
+ - Every crime has, in the moment of its perpetration, Its own avenging angel-dark misgiving, An ominous sinking at the inmost heart.
+ - Blest hour! It was a luxury – to be!
+ - Fellows of colleges in the universities are in one sense the recipients of alms, because they receive funds which originally were of an eleemosynary character.
+ - Stimulate the heart to love and the mind to be early accurate, and all other virtues will rise of their own accord, and all vices will be thrown out.
+ - A woman in a single state may be happy and may be miserable; but most happy, most miserable, these are epithets belonging to a wife.
+ - No man was ever yet a great poet, without being at the same time a profound philosopher.
+ - Reviewers are usually people who would have been, poets, historians, biographer, if they could. They have tried their talents at one thing or another and have failed; therefore they turn critic.
+ - A Court has no right to strain the law because it causes hardship.
+ - False doctrine does not necessarily make a man a heretic, but an evil heart can make any doctrine heretical.
+ - Men of genius are rarely much annoyed by the company of vulgar people, because they have a power of looking at such persons as objects of amusement of another race altogether.
+
+381 quotes

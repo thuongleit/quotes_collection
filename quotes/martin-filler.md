@@ -1,0 +1,35 @@
+ - Renzo Piano and Richard Rogers’s Centre Georges Pompidou of 1971-1977 – the true prototype of the modern museum as popular architectural spectacle – wound up costing so much more than planned that the French government solved the shortfall by cutting support for several regional museums.
+ - The financial benefits of prefabrication have never been as large as its advocates predicted, for although some labor costs can be reduced by machine manufacturing, on-site assembly of any building still depends to some extent on the handwork of skilled craftsmen.
+ - Any set of decisions about design is inevitably influenced by cultural prejudice, no matter how intent an architect might be to avoid it.
+ - One of the Age of Enlightenment’s most hypnotic images is Ledoux’s rendering of his neoclassical theater of 1775 – 1784 in Besancon, surreally reflected in the colossal eye of an unidentified cosmic being.
+ - One of the most persistent yet elusive dreams of the Modern Movement in architecture has been prefabrication: industrially made structures that can be assembled at a building site.
+ - Architecture is not a profession for the faint-hearted, the weak-willed, or the short-lived.
+ - Before World War II, Modernist architects sometimes had to resort to custom fabrication or outright fakery to achieve the machine imagery advocated by the Bauhaus after its initial, Expressionist, phase. Stucco masqueraded as reinforced concrete; rivets were used for decoration.
+ - Snohetta promotes a more democratic workplace atmosphere than most other architectural offices. This may merely reflect prevalent employment practices in Scandinavia, but Snohetta places a stronger emphasis on group participation in the design process than typical high-style firms.
+ - The truth be told, the World Trade Center was neither a very good work of architecture nor a very successful piece of urbanism. Its shortcomings were somewhat mitigated by the westward and southward expansion of the World Financial Center and Battery Park City during the 1980s.
+ - The most basic task of any museum must be the protection of works of cultural significance entrusted to its care for the edification and pleasure of future generations.
+ - All architecture, classical or not, must have some sense of order, and order is much harder to achieve without the straight lines and right angles that have dominated the building art from time immemorial.
+ - Before the professionalization of architecture in the nineteenth century, it was standard for an aspiring mason or carpenter to begin his apprenticeship at fourteen and to become a master builder by his early twenties.
+ - Architecture was the last of the major professions to devise a formal ‘cursus honorum’ before its practice could be undertaken.
+ - The popular mythology of creative genius depends on beloved stereotypes of the artist in youth and old age: the misunderstood upstart who forces us to see the world afresh; and the revered sage who shows us depths of insight attainable only through a lifetime of hard-won experience.
+ - By 1970, the first stirrings of the revolt against Modernist orthodoxy in architecture had been felt, although it would be several years more until Postmodernism was widely accepted and made classical motifs permissible in high-style building design for the first time in decades.
+ - Despite the persistent image of the architect as a heroic loner erecting monumental edifices through sheer force of will, the building art has always been a highly cooperative enterprise.
+ - Considering my specialization in architecture, I’m not surprised that the first graphic novel to thoroughly engage, not to say captivate, me is Chip Kidd and Dave Taylor’s ‘Batman: Death by Design.’
+ - Avant-garde architects have never been able to depend on the support of the establishment, since the customary patrons of this most conservative and slowly moving art form have historically been resistant to innovation and experiment.
+ - There is no sadder tale in the annals of architecture than the virtual disappearance of the defining architectural form of the Modern Movement – publicly sponsored housing.
+ - There can be little question that the tall building presents one of the most difficult challenges to the architect.
+ - Few developments central to the history of art have been so misrepresented or misunderstood as the brief, brave, glorious, doomed life of the Bauhaus – the epochally influential German art, architecture, crafts, and design school that was founded in Goethe’s sleepy hometown of Weimar in 1919.
+ - The first half of the 1960s was the apogee of what might be termed the Age of Cool – as defined by that quality of being simultaneously with-it and disengaged, in control but nonchalant, knowing but ironically self-aware, and above all inscrutably undemonstrative.
+ - The danger for any artist whose work is both recognizable and critically acclaimed is complacent repetition – the temptation to churn out easily identifiable, eagerly welcomed, and readily salable designs.
+ - Architectural kitsch is most common in the commercial pop vernacular – typified by the Big Duck of 1931 in Flanders, New York, a Long Island roadside poultry stand resembling a duck, which Venturi and Scott Brown made a cult object through their writings.
+ - Truly great architecture always transcends its stated function, sometimes in unanticipated ways.
+ - During the modern period, the vanguard architect has usually relied on small residential jobs both to supply a steady income and to serve as ‘sketches’ for ideas that are often later translated to the larger scale of public commissions.
+ - High among the unpredictable variables that endanger the survival of worthy buildings are the vagaries of taste.
+ - One of the stated goals of the postmodern movement in architecture was a greater sensitivity to the people who live in or use newly designed buildings.
+ - Always beware an unsigned architectural design.
+ - From the outset, MoMA followed the Bauhaus’s strict prohibition against design that even hinted at the decorative, a prejudice that skewed the pioneering museum’s view of Modernism for decades.
+ - The skyscraper style first advocated by Louis Sullivan – a tower of strongly vertical character with clear definitions among base, shaft, and crown – has remained remarkably consistent throughout the history of this building type.
+ - A turning point in the public’s perception of the building art came with the publication of Frank Lloyd Wright’s ‘An Autobiography’ of 1932, a picaresque narrative that captivated many who hadn’t the slightest inkling of what architects actually did.
+ - Elevated locations imply elevated purposes, even in American cities departing as radically as Los Angeles does from the traditional planning patterns of the Eastern Seaboard.
+
+33 quotes

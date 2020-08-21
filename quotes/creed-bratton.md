@@ -1,0 +1,31 @@
+ - No matter how you get here or where you end up, human beings have this miraculous gift to make that place home.
+ - I’m a survivalist and a survivor.
+ - When I was a teenager, I was in an iron-lung.
+ - I’ve been involved in a number of cults both as a leader and a follower. You have more fun as a follower but you make more money as a leader.
+ - Oh, I steal things all the time. It’s just something I do. I stopped caring a long time ago.
+ - In case you were wondering, my spirit animal is a duck billed platypus.
+ - Honestly, I love stealing things.
+ - I’m a pretty normal guy. I do one weird thing. I like to go in the women’s room for number two. I’ve been caught several times and I have paid dearly.
+ - What does a painter do? You get a painting, you put some intent and passion and emotion into these things, and hope the people will receive it. Same as a playwright. It’s art.
+ - Nobody steals from Creed Bratton and gets away with it. The last person to do this disappeared. His name? Creed Bratton.
+ - I love Westerns and I remember as a kid climbing up on the couch and make it into a saddle and shoot guns and fall off. I would lay there after my death and my mom would tell me to eat lunch and I’d say, ‘I’m still dead, Mom!’ I was Method, even then.
+ - Playing with my grandfather, grandmother and my parents, I came to music pretty naturally.
+ - I keep busy. That was my nickname in college, ‘Iron to the Fire.’ I like to keep several things going at once.
+ - I’m not one of these people who sits down and writes to say I’m gonna write a song about this or that, or a specific subject. The songs actually kind of write themselves.
+ - I do love to walk around in New York because people will notice me, smile, but they never bother anyone. New Yorkers are very cool. I love New York.
+ - If I write songs and I think they sound good, then that’s it. That’s what I do. I’m not a technical musician, which is fine for rock and roll.
+ - I’m an actor, I created the character myself originally. I do tell the fans I appreciate that they think he’s real. It all finally comes down to the writers who really got the character and wrote so many memorable lines.
+ - In my early days, I was about 145 pounds. I was really a starving artist; the poster child for starving artists.
+ - I was a drama major through college.
+ - There’s not that many people from the sixties who have progressed as writers and are continuing on. They’re out there. But I’m one of them who’s just continued on, following his own little inner madness.
+ - I wake up in the morning, or the middle of the night when an idea comes through. My songwriting style, basically I just write down information given to me from the muse and how that works for songwriters. Record the muse and the muse delivers.
+ - Women in stores will pull their children away from me sometimes so they won’t catch the crazy Creed virus. Other folks are disappointed that I’m not that guy in person.
+ - I wouldn’t really say I’m a jazz guy, which I’m not.
+ - I had always planned to be an actor, and the music was just in my DNA, it’s always been.
+ - I love music so much; I’ve always played.
+ - I don’t sit down to write a song, per se.
+ - I was with a folk trio back in ’63 and ’64, and we traveled all across North Africa, Israel, and Europe.
+ - I still have auditions for independent films. I’ve been still working.
+ - I don’t want to take myself too seriously. That’s my lesson to myself.
+
+29 quotes

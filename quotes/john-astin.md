@@ -1,0 +1,29 @@
+ - With friends like these, who needs hallucinations?
+ - The world is a collective madhouse, its inhabitants are merely faking sanity. It is critical to becoming aware of these aberrations, for pretensions can be the enemy of love.
+ - If you live your life in truth, the truth will out.
+ - We are running ourselves into a damaged earth. But I am optimistic. I believe that we can change; we must change. As a human race, we are very young and quite primitive. The sooner we learn the greatness of humanity the better off we will all be.
+ - One life is worth the universe. Poe was able to go right into the very depth of life and to demonstrate this.
+ - My background is basically scientific math. My Dad was a physicist, so I have it in my blood somewhere. Scientific method is very important to me. I think anything that contradicts it is probably not true.
+ - Where is the boundary between your thoughts and feelings and my thoughts and feelings? Where does it end – the outer layer of epidermis? If you look at the body as energy – not matter – maybe there’s a possibility we as human beings are more connected to one another than we realize.
+ - At a certain point he was very popular, from THE RAVEN. He was never fully appreciated, never made the money, and you know he was looked upon with admiration by some people, but also as an oddball. But that was his point.
+ - Sometimes when I see a performance that really takes me, I struggle. How can I express this to this person, I want this person to know how I felt. I want to get this across, and it’s not very easy.
+ - I get into certain yoga positions at times, when Im working out and for exercises. I use a little of it in some of my meditation, but I chant now and that sort of replaced it.
+ - My work is to reach people with ideas, hopes, dreams, encouragement, insight, and revelation. That’s what an actor wants to do.
+ - People are transported to that space that Poe wanted to make available to us.
+ - The world is, for the most part, a collective madhouse, and practically everyone, however “normal” his facade, is faking sanity.
+ - The themes Poe used were universal and timeless. As long as the English language exists at all, we will be able to appreciate what he did. It will not age! It will not become dated!
+ - I guess one of the reasons I’m doing the Poe piece is that I think Poe demonstrates that no matter how difficult things are, if you continue to move forward in life, you can eventually become victorious, even if it’s later in life.
+ - Poe was a student of many things, and among those things he read and referred to in his work was the Bible.
+ - One of the great things about being recognized is that you receive this feedback from people. It is easy to see how sincere people are. It’s nothing fake or jive. They’re giving sincere appreciation. And it’s not that easy to express.
+ - I got things like the lotus position long before anybody else did, or at least in the mainstream. But I had fun. I guess my legs are pretty flexible, so I used to get a kick out of doing things like that. I would get into a full lotus with my legs and then roll around.
+ - There are things so deep and complex that only intuition can reach it in our stage of development as human beings.
+ - I think people really want to be happy.
+ - It is important to me that what Poe has to say gets across to people. I want to give people the feeling that I get from all this. I think that we are succeeding. The feedback is very warm.
+ - I think Poe had a mission to tell us what it’s all about. To answer some of the great questions of life.
+ - Sometimes it was tough doing take after take upside down! I did a lot of that sort of thing.
+ - I love to play for audiences that are simply made of people rather than so-called special people.
+ - I figure I basically am a ghost. I think we all are.
+ - There is something good about the character of Gomez. I wouldn’t trade the association with him for anything or any role that I might have missed.
+ - People are smarter than you might think.
+
+27 quotes

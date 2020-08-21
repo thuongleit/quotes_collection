@@ -1,0 +1,82 @@
+ - When we plant trees, we plant the seeds of peace and seeds of hope.
+ - Culture is coded wisdom.
+ - Those of us who have been privileged to receive education, skills, and experiences and even power must be role models for the next generation of leadership.
+ - Until you dig a hole, you plant a tree, you water it and make it survive, you haven’t done a thing. You are just talking.
+ - You cannot enslave a mind that knows itself. That values itself. That understands itself.
+ - We need to promote development that does not destroy our environment.
+ - In a few decades, the relationship between the environment, resources and conflict may seem almost as obvious as the connection we see today between human rights, democracy and peace.
+ - We all share one planet and are one hummanity, there is no escaping this reality.
+ - The women of the Green Belt Movement have learned about the causes and the symptoms of environmental degradation. They have begun to appreciate that they, rather than their government, ought to be the custodians of the environment.
+ - There are opportunities even in the most difficult moments.
+ - I don’t really know why I care so much. I just have something inside me that tells me that there is a problem, and I have got to do something about it. I think that is what I would call the God in me.
+ - No matter who or where we are, or what our capabilities, we are called to do the best we can.
+ - In the course of history, there comes a time when humanity is called to shift to a new level of consciousness, to reach a higher moral ground. A time when we have to shed our fear and give hope to each other. That time is now.
+ - The little grassroots people can change this world.
+ - We cannot tire or give up. We owe it to the present and future generations of all species to rise up and walk!
+ - Culture defines who we are and how we see ourselves. A new attitude toward nature provides space for a new attitude toward culture and the role it plays in sustainable development.
+ - You can make a lot of speeches, but the real thing is when you dig a hole, plant a tree, give it water, and make it survive. That’s what makes the difference.
+ - In Kenya women are the first victims of environmental degradation, because they are the ones who walk for hours looking for water, who fetch firewood, who provide food for their families.
+ - The people are learning that you cannot leave decisions only to leaders. Local groups have to create the political will for change, rather than waiting for others to do things for them. That is where positive, and sustainable, change begins.
+ - You cannot protect the environment unless you empower people, you inform them, and you help them understand that these resources are their own, that they must protect them.
+ - Anybody can dig a hole and plant a tree. But make sure it survives. You have to nurture it, you have to water it, you have to keep at it until it becomes rooted so it can take care or itself. There are so many enemies of trees.
+ - What a friend we have in a tree, the tree is the symbol of hope, self improvement and what people can do for themselves.
+ - We can work together for a better world with men and women of goodwill, those who radiate the intrinsic goodness of humankind.
+ - That’s the way I do things when I want to celebrate, I always plant a tree. And so I got an indigenous tree, called Nandi flame, it has this beautiful red flowers. When it is in flower it is like it is in flame.
+ - We think that diamonds are very important, gold is very important, all these minerals are very important. We call them precious minerals, but they are all forms of the soil. But that part of this mineral that is on top, like it is the skin of the earth, that is the most precious of the commons.
+ - I’m very conscious of the fact that you can’t do it alone. It’s teamwork. When you do it alone you run the risk that when you are no longer there nobody else will do it.
+ - Human rights are not things that are put on the table for people to enjoy. These are things you fight for and then you protect.
+ - The living conditions of the poor must be improved if we really want to save our environment.
+ - Disempowerment – whether defined in terms of a lack of self-confidence, apathy, fear, or an inability to take charge of one’s own life – is perhaps the most unrecognised problem in Africa today.
+ - We do the right thing not to please people but because it’s the only logically reasonable thing to do, as long as we are being honest with ourselves – even if we are the only ones.
+ - As long as there is no trust and confidence that there will be justice and fairness in resource distribution, political positioning will remain more important than service.
+ - Women are responsible for their children, they cannot sit back, waste time and see them starve.
+ - It is important to nurture any new ideas and initiatives which can make a difference for Africa.
+ - If you make mistakes that is alright because we all make mistakes and we learn from those mistakes. You gain confidence from learning, failing and rising again.
+ - For me, one of the major reasons to move beyond just the planting of trees was that I have tendency to look at the causes of a problem. We often preoccupy ourselves with the symptoms, whereas if we went to the root cause of the problems, we would be able to overcome the problems once and for all.
+ - We owe it to ourselves and to the next generation to conserve the environment so that we can bequeath our children a sustainable world that benefits all.
+ - It’s the little things citizens do. That’s what will make the difference. My little thing is planting trees.
+ - We are very fond of blaming the poor for destroying the environment. But often it is the powerful, including governments, that are responsible.
+ - As long as we have all these conflicts, it is the women who will continue to suffer, so that is one reason why I guess as women we should really work for peace, because we know how painful wars can be to us and our daughters.
+ - Passion begins with a burden and a split-second moment, when you understand something like never before. That burden is on those who know. Those who don’t know are at peace. Those of us who do know get disturbed and are forced to take action.
+ - Resources on the planet are limited, and limited resources can come to an end. But there are also a lot of resources that are renewable. A lot of land, for example, can be reclaimed from the encroaching deserts.
+ - The planet needs trees. If there is indeed that carbon dioxide out there in the atmosphere, the only species on the planet that can actually trap it for us in a natural process of photosynthesis are the trees.
+ - We tend to put the environment last because we think the first thing we have to do is eliminate poverty. But you can’t reduce poverty in a vacuum. You are doing it in an environment.
+ - I definitely hope to relax when I get back hope. I will disappear into the forest and be rejuvenated by the beauty of the mountains.
+ - What people see as fearlessness is really persistence. Because I am focused on the solution, I don’t see the danger.
+ - But when you have bad governance, of course, these resources are destroyed: The forests are deforested, there is illegal logging, there is soil erosion. I got pulled deeper and deeper and saw how these issues become linked to governance, to corruption, to dictatorship.
+ - Some say that AIDS came from the monkeys, and I doubt that because we have been living with monkeys from time immemorial, others say it was a curse from God, but I say it cannot be that.
+ - There’s a general culture in this country to cut all the trees. It makes me so angry because everyone is cutting and no one is planting.
+ - Because I was a woman, I was vulnerable. It was easy to vilify me and project me as a woman who was not following the tradition of a ‘good African woman.’
+ - We have a responsibility to protect the rights of generations, of all species, that cannot speak for themselves today. The global challenge of climate change requires that we ask no less of our leaders, or ourselves.
+ - Unfortunately, the issues of climate change, unlike many other issues, are very subtle because the changes we observe are very, very subtle.
+ - Do not be naive. AIDS is not a curse from God to Africans or the black people. It is a tool to control them designed by some evil-minded scientists, but we may not know who particularly did it.
+ - I knew that I was not doing anything wrong, and I knew in my mind I was doing the right thing. I knew that the people who were going against me were not going against me for a good purpose. I knew that they were trying to justify their corruption and misgovernance.
+ - We refuse to share resources; we govern irresponsibly. If we are confident, if we have some of our cultural values, then we would be more committed to assisting our people out of poverty and creating an environment that can make it possible for our friends to assist us.
+ - Why has there been so much secrecy about AIDS? When you ask where did the virus come from, it raises a lot of flags. That makes me suspicious.
+ - What is really important is to educate people how to protect themselves and how to ensure that, despite their poverty, they can get tested and access drugs. So I just hope that those who can will make those drugs available.
+ - When people can’t use you, they ridicule what you represent. I was lucky that I understood that, because when one does not understand that, it is very easy to be broken and to be subdued.
+ - And so I’m saying that, yes, colonialism was terrible, and I describe it as a legacy of wars, but we ought to be moving away from that by now.
+ - All of us have a God in us, and that God is the spirit that unites all life, everything that is on this planet.
+ - I know there is pain when sawmills close and people lose jobs, but we have to make a choice. We need water and we need these forests.
+ - It gradually became clear that the Green Belt Movement’s work with communities to repair the degraded environment could not be done effectively without participants embracing a set of core spiritual values.
+ - Every person who has ever achieved anything has been knocked down many times. But all of them picked themselves up and kept going, and that is what I have always tried to do.
+ - You cannot blame the mismanagement of the economy or the fact that we have not invested adequately in education in order to give our people the knowledge, the skills and the technology that they need in order to be able to use the resources that Africa has to gain wealth.
+ - Sometimes I feel frustration at the bureaucracy for not moving fast enough to deliver in the way that I would prefer. But that is probably because I have worked for many years in the civil society, which tends to move much faster than government.
+ - The essential role of the environment is still marginal in discussions about poverty. While we continue to debate these initiatives, environmental degradation, including the loss of biodiversity and topsoil, accelerates, causing development efforts to falter.
+ - It would be good for us Africans to accept ourselves as we are and recapture some of the positive aspects of our culture.
+ - We can love ourselves by loving the earth.
+ - It’s a matter of life and death for this country. The Kenyan forests are facing extinction and it is a man-made problem.
+ - All through the ages the African people have made efforts to deliver themselves from oppressive forces.
+ - You can educate people on how to preempt their own conflict.
+ - I think what the Nobel committee is doing is going beyond war and looking at what humanity can do to prevent war. Sustainable management of our natural resources will promote peace.
+ - There will always be people who think that you have ambitions.
+ - I am working to make sure we don’t only protect the environment, we also improve governance.
+ - African women in general need to know that it’s OK for them to be the way they are – to see the way they are as a strength, and to be liberated from fear and from silence.
+ - For us who are now in power, we need to be challenged to serve the people and ignore our own egos and personal interests so that we can really demonstrate to other African states that it is possible to share power without going to war.
+ - I think that for anybody who has worked in the civil society, government bureaucracy moves very very slowly.
+ - That’s the way I do things when I want to celebrate, I always plant a tree.
+ - When I first started, it was really an innocent response to the needs of women in rural areas. When we started planting trees to meet their needs, there was nothing beyond that. I did not see all the issues that I have to come to deal with.
+ - It was easy for me to be ridiculed and for both men and women to perceive that maybe I’m a bit crazy because I’m educated in the West and I have lost some of my basic decency as an African woman.
+ - The people are starving. They need food; they need medicine; they need education. They do not need a skyscraper to house the ruling party and a 24-hour TV station.
+
+80 quotes

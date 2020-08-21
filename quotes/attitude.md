@@ -1,0 +1,42 @@
+ - Happiness is not by chance, but by choice. ~~Jim Rohn
+ - When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. ~~Henry Ford
+ - Attitude is a little thing that makes a big difference. ~~Winston Churchill
+ - Change your thoughts and you change your world. ~~Norman Vincent Peale
+ - The time is always right to do the right thing. ~~Martin Luther King Jr.
+ - If you don’t like something, change it. If you can’t change it, change your attitude. ~~Maya Angelou
+ - Ability is what you’re capable of doing. Motivation determines what you do. Attitude determines how well you do it. ~~Lou Holtz
+ - A successful man is one who can lay a firm foundation with the bricks others have thrown at him. ~~David Brinkley
+ - Happiness mainly comes from our own attitude, rather than from external factors. ~~Dalai Lama XIV
+ - Success is not final, failure is not fatal: it is the courage to continue that counts. ~~Winston Churchill
+ - You cannot control what happens to you, but you can control your attitude toward what happens to you, and in that, you will be mastering change rather than allowing it to master you. ~~Brian Tracy
+ - The only disability in life is a bad attitude. ~~Scott Hamilton
+ - The greatest day in your life and mine is when we take total responsibility for our attitudes. That's the day we truly grow up. ~~John C. Maxwell
+ - Reality is merely an illusion, albeit a very persistent one. ~~Albert Einstein
+ - My father gave me the greatest gift anyone could give another person, he believed in me. ~~Jim Valvano
+ - The greatest discovery of any generation is that a human can alter his life by altering his attitude. ~~William James
+ - Develop an attitude of gratitude, and give thanks for everything that happens to you, knowing that every step forward is a step toward achieving something bigger and better than your current situation. ~~Brian Tracy
+ - My attitude is that if you push me towards something that you think is a weakness, then I will turn that perceived weakness into a strength. ~~Michael Jordan
+ - The greatest discovery of all time is that a person can change his future by merely changing his attitude. ~~Oprah Winfrey
+ - Human beings can alter their lives by altering their attitudes of mind. ~~William James
+ - It’s not what you look at that matters, it’s what you see. ~~Henry David Thoreau
+ - Nothing will work unless you do. ~~Maya Angelou
+ - No one can make you feel inferior without your consent. ~~Eleanor Roosevelt
+ - Attitude, not aptitude, determines altitude. ~~Zig Ziglar
+ - Our life is what our thoughts make it. ~~Marcus Aurelius
+ - I can’t change the direction of the wind, but I can adjust my sails to always reach my destination. ~~Jimmy Dean
+ - Because you are alive, everything is possible. ~~Nhat Hanh
+ - Things turn out best for those who make best of how things turn out. ~~John Wooden
+ - A healthy attitude is contagious but don’t wait to catch it from others. Be a carrier. ~~Tom Stoppard
+ - Only I can change my life. No one can do it for me. ~~Carol Burnett
+ - Weakness of attitude becomes weakness of character. ~~Albert Einstein
+ - Life is 10 percent what you make it, and 90 percent how you take it. ~~Irving Berlin
+ - There are always flowers for those who want to see them. ~~Henri Matisse
+ - We don't see things as they are, we see them as we are. ~~Anaïs Nin
+ - Don’t go around saying the world owes you a living. The world owes you nothing. It was here first. ~~Mark Twain
+ - Nothing can stop the man with the right mental attitude from achieving his goal; nothing on earth can help the man with the wrong mental attitude. ~~Thomas Jefferson
+ - Adopting the right attitude can convert a negative stress into a positive one. ~~Hans Selye
+ - I have found that if you love life, life will love you back. ~~Arthur Rubinstein
+ - A strong positive mental attitude will create more miracles than any wonder drug. ~~Patricia Neal
+ - Positive thinking will let you do everything better than negative thinking will. ~~Zig Ziglar
+
+40 quotes

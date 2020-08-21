@@ -1,0 +1,33 @@
+ - God used beautiful mathematics in creating the world.
+ - A physical law must possess mathematical beauty.
+ - A theory with mathematical beauty is more likely to be correct than an ugly one that fits some experimental data.
+ - I consider that I understand an equation when I can predict the properties of its solutions, without actually solving it.
+ - If there is a God, he’s a great mathematician.
+ - The methods of theoretical physics should be applicable to all those branches of thought in which the essential features are expressible with numbers.
+ - It is more important to have beauty in one’s equations than to have them fit experiment.
+ - One could perhaps describe the situation by saying that God is a mathematician of a very high order, and He used very advanced mathematics in constructing the universe.
+ - As time goes on, it becomes increasingly evident that the rules which the mathematician finds interesting are the same as those which Nature has chosen.
+ - Pick a flower on Earth and you move the farthest star.
+ - Quantum mechanics has explained all of chemistry and most of physics.
+ - Scientific progress is measured in units of courage, not intelligence.
+ - The aim of science is to make difficult things understandable in a simpler way; the aim of poetry is to state simple things in an incomprehensible way. The two are incompatible.
+ - I do not see how a man can work on the frontiers of physics and write poetry at the same time. They are in opposition.
+ - I learnt to distrust all physical concepts as the basis for a theory. Instead one should put one’s trust in a mathematical scheme, even if the scheme does not appear at first sight to be connected with physics. One should concentrate on getting interesting mathematics.
+ - I admired Bohr very much. We had long talks together, long talks in which Bohr did practically all the talking.
+ - The measure of greatness in a scientific idea is the extent to which it stimulates thought and opens up new lines of research.
+ - Mathematics is the tool specially suited for dealing with abstract concepts of any kind and there is no limit to its power in this field.
+ - In science one tries to tell people, in such a way as to be understood by everyone, something that no one ever knew before. But in poetry, it is the exact opposite.
+ - Hopes are always accompanied by fears, and, in scientific research, the fears are liable to become dominant.
+ - If we are honest – and scientists have to be – we must admit that religion is a jumble of false assertions, with no basis in reality.
+ - A great deal of my work is just playing with equations and seeing what they give.
+ - The fundamental laws necessary for the mathematical treatment of a large part of physics and the whole of chemistry are thus completely known, and the difficulty lies only in the fact that application of these laws leads to equations that are too complex to be solved.
+ - There is in my opinion a great similarity between the problems provided by the mysterious behavior of the atom and those provided by the present economic paradoxes confronting the world.
+ - A book on the new physics, if not purely descriptive of experimental work, must essentially be mathematical.
+ - Living is worthwhile if one can contribute in some small way to this endless chain of progress.
+ - There are always more people who prefer to speak than to listen.
+ - I should like to suggest to you that the cause of all the economic troubles is that we have an economic system which tries to maintain an equality of value between two things, which it would be better to recognise from the beginning as of unequal value.
+ - The shortage of buyers, which the world is suffering from, is readily understood, not as due to people not wishing to obtain possession of goods, but as people being unwilling to part with something which might earn a regular income in exchange for those goods.
+ - It seems that if one is working from the point of view of getting beauty in one’s equations, and if one has really a sound insight, one is on a sure line of progress.
+ - No. I had successfully solved the difficulty of finding a description of the electron which was consistent with both relativity and quantum mechanics. Of course, when you solve one difficulty, other new difficulties arise. You then try to sove them. You can never solve all difficulties at once.
+
+31 quotes

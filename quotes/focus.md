@@ -1,0 +1,53 @@
+ - STAY FOCUSED ~~Get It Done
+ - Focus on the solution, not on the problem. ~~Jim Rohn
+ - Ignore the noise, focus on your work. ~~Anonymous
+ - A goal without a plan is just a wish. ~~Antoine de Saint-Exupéry
+ - Don’t think about what can happen in a month. Don’t think about what can happen in a year. Just focus on the 24 hours in front of you and do what you can to get closer to where you want to be. ~~Eric Thomas
+ - What you focus on grows. ~~Esther Hicks
+ - Always remember, your focus determines your reality. ~~George Lucas
+ - Stay focused, ignore the distractions, and you will accomplish your goals much faster. ~~Joel Osteen
+ - Focus on your strengths, not your weaknesses. ~~Gary Vaynerchuk
+ - Don’t make excuses for why you can’t get it done. Focus on all the reasons why you must make it happen. ~~Ralph Marston
+ - Focus like a laser, not a flashlight. ~~Michael Jordan
+ - Only through focus can you do world-class things, no matter how capable you are. ~~Bill Gates
+ - Where focus goes, energy flows. ~~Tony Robbins
+ - FOCUS – Follow One Course Until Successful. ~~Robert T. Kiyosaki
+ - If there are nine rabbits on the ground and you want to catch one, just focus on one. ~~Jack Ma
+ - Whatever you focus on is what you get. ~~Tony Robbins
+ - When you focus on problems, you get more problems. When you focus on possibilities, you have more opportunities. ~~Zig Ziglar
+ - The time that leads to mastery is dependent on the intensity of our focus. ~~Robert Greene
+ - Change your focus from making money to serving more people. Serving people makes the money come in. ~~Robert T. Kiyosaki
+ - What you focus on grows. What you concentrate on is what you see more of in your life. ~~Robin S. Sharma
+ - Starve your distractions, feed your focus. ~~Anonymous
+ - Your future is created by what you do today, not tomorrow. ~~Robert T. Kiyosaki
+ - Stop managing your time. Start managing your focus. ~~Robin S. Sharma
+ - Focus on being productive instead of busy. ~~Tim Ferriss
+ - You will never reach your destination if you stop and throw stones at every dog that barks. ~~Winston Churchill
+ - Focus is more important than intelligence. ~~Anonymous
+ - The successful warrior is the average man, with laser-like focus. ~~Bruce Lee
+ - Nothing happens without focus. Don’t try to do everything at once. Take it one step at a time. ~~Dave Ramsey
+ - Focus does not mean saying yes, it means saying no. ~~Steve Jobs
+ - The only reason men fail is because of broken focus. ~~Mike Murdock
+ - Focus. Otherwise you will find life becomes a blur. ~~Anonymous
+ - Channel your energy. Focus. ~~Carl Lewis
+ - Don’t dwell on what went wrong. Instead, focus on what to do next. Spend your energies on moving forward, toward finding the answer. ~~Denis Waitley
+ - Where you are headed is more important than how fast you are going. Rather than always focusing on what’s urgent, learn to focus on what is really important. ~~Stephen R. Covey
+ - You always have to focus in life on what you want to achieve. ~~Michael Jordan
+ - Focus on the possibilities for success, not on the potential for failure. ~~Napoleon Hill
+ - Clarity affords focus. ~~Thomas Leonard
+ - Lacking an external focus, the mind turns inward on itself and creates problems to solve, even if the problems are undefined or unimportant. If you find a focus, an ambitious goal that seems impossible and forces you to grow, these doubts disappear. ~~Tim Ferriss
+ - People who can focus, get things done. People who can prioritize, get the right things done. ~~John Maeda
+ - The artists who endure are the ones who stay focused even after they have reached the top of their profession. ~~Simon Cowell
+ - Efficiency and focus are the keys to success. ~~Robert Crais
+ - A man should never be appointed into a managerial position if his vision focuses on people’s weaknesses rather than on their strengths. ~~Peter F. Drucker
+ - Focus alone is not enough; putting in the time to commit is also crucial to achieve success. ~~Warren Buffett
+ - The key to success is to focus our conscious mind on things we desire not things we fear. ~~Brian Tracy
+ - I learned long ago to focus on things you can control and don’t even pay attention to things you don’t. ~~Bryan Cranston
+ - In business, staying focused requires that you turn most opportunities down. ~~Margaret Heffernan
+ - I can multitask very well. But I know exactly when to block off anything coming in from the outside and just stay focused on the film. ~~Arnold Schwarzenegger
+ - Focus on the solution, not the problem. ~~Walter Anderson
+ - Where focus goes, energy flows. And if you don’t take the time to focus on what matters, then you’re living a life of someone else’s design. ~~Tony Robbins
+ - I pursue this dream and carry on. I don’t dwell too much on the outside, I just focus on the inside. ~~Conor McGregor
+ - Do more of what works. ~~Stay Focused
+
+51 quotes

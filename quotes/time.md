@@ -1,0 +1,42 @@
+ - Don’t watch the clock; do what it does. Keep going. ~~Sam Levenson
+ - How we spend our days is, of course, how we spend our lives. ~~Annie Dillard
+ - You will never ‘find’ time for anything. If you want time, you must make it. ~~Charles Buxton
+ - Remember, today is the tomorrow you worried about yesterday.  ~~Dale Carnegie
+ - Lost time is never found again. ~~Benjamin Franklin
+ - Today is the first day of the rest of your life. ~~Abbie Hoffman
+ - Time is more value than money. You can get more money, but you cannot get more time. ~~Jim Rohn
+ - Tough times never last, but tough people do. ~~Robert H. Schuller
+ - Time is valuable, and when it is gone, it is gone. Time is wealth, and unlike money, when it is gone, you cannot replace it. ~~Napoleon Hill
+ - I never think of the future – it comes soon enough. ~~Albert Einstein
+ - Nothing is a waste of time if you use the experience wisely. ~~Auguste Rodin
+ - Light tomorrow with today! ~~Elizabeth Barrett Browning
+ - Time is money. ~~Benjamin Franklin
+ - Once you have mastered time, you will understand how true it is that most people overestimate what they can accomplish in a year – and underestimate what they can achieve in a decade! ~~Tony Robbins
+ - Time is the fire in which we burn. ~~Gene Roddenberry
+ - The butterfly counts not months but moments, and has time enough. ~~Rabindranath Tagore
+ - Never put off till tomorrow what may be done day after tomorrow just as well. ~~Mark Twain
+ - It has been said, ‘time heals all wounds.’ I do not agree. The wounds remain. In time, the mind, protecting its sanity, covers them with scar tissue and the pain lessens. But it is never gone. ~~Rose Kennedy
+ - If there must be trouble, let it be in my day, that my child may have peace. ~~Thomas Paine
+ - Time flies like an arrow; fruit flies like a banana. ~~Groucho Marx
+ - Yesterday is gone. Tomorrow has not yet come. We have only today. Let us begin. ~~Mother Teresa
+ - Time is what we want most, but what we use worst. ~~William Penn
+ - Time is free, but it’s priceless. You can’t own it, but you can use it. You can’t keep it, but you can spend it. Once you’ve lost it you can never get it back. ~~Harvey MacKay
+ - Waste no more time arguing about what a good man should be. Be one. ~~Marcus Aurelius
+ - I can’t go back to yesterday – because I was a different person then. ~~Lewis Carroll
+ - Time is the longest distance between two places. ~~Tennessee Williams
+ - We waste time looking for the perfect lover, instead of creating the perfect love. ~~Tom Robbins
+ - There comes a time when the world gets quiet and the only thing left is your own heart. So you’d better learn the sound of it. Otherwise you’ll never understand what it’s saying. ~~Sarah Dessen
+ - The time you enjoy wasting is not wasted time. ~~Bertrand Russell
+ - Anybody can become angry – that is easy, but to be angry with the right person and to the right degree and at the right time and for the right purpose, and in the right way – that is not within everybody’s power and is not easy. ~~Aristotle
+ - Maturity is the ability to think, speak and act your feelings within the bounds of dignity. The measure of your maturity is how spiritual you become during the midst of your frustrations. ~~Samuel Ullman
+ - Just a few words on time management: forget all about it. ~~Tim Ferriss
+ - Time can’t be measured in days the way money is measured in pesos and centavos, because all pesos are equal, while every day, perhaps every hour, is different. ~~Jorge Luis Borges
+ - We must use time creatively, and forever realize that the time is always ripe to do right. ~~Nelson Mandela
+ - Education is an admirable thing, but it is well to remember from time to time that nothing that is worth knowing can be taught. ~~Oscar Wilde
+ - As if you could kill time without injuring eternity. ~~Henry David Thoreau
+ - Come grow old with me. The best is yet to be. ~~William Wordsworth
+ - Let our New Year’s resolution be this: we will be there for one another as fellow members of humanity, in the finest sense of the word. ~~Goran Persson
+ - That old law about ‘an eye for an eye’ leaves everybody blind. The time is always right to do the right thing. ~~Martin Luther King Jr.
+ - I have from an early age abjured the use of meat, and the time will come when men such as I will look upon the murder of animals as they now look upon the murder of men. ~~Leonardo da Vinci
+
+40 quotes

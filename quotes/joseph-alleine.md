@@ -1,0 +1,22 @@
+ - There is no remedy, but you must either turn or burn.
+ - O miserable man, what a deformed monster has sin made you! God made you “little lower than the angels”; sin has made you little better than the devils.
+ - There is no surer evidence of an unconverted state than to have the things of the world uppermost in our aim, love, and estimation.
+ - None are drawn to Christ by their calling, nor come to him by believing, but only his sheep, those whom the Father has given him,. Effectual calling runs parallel with eternal election.
+ - Two sorts of peace are more to be dreaded than all the troubles in the world – peace with sin, and peace in sin.
+ - For a soul to come to Jesus, is the grandest event in its history.
+ - Woe unto thee if after all thy profession thou shouldst be found under the power of ignorance, lost in formality, drowned in earthly-mindedness, envenomed with malice, exalted in an opinion of thine own righteousness, leavened with hypocrisy and carnal ends in God’s service.
+ - It is one thing to have sin alarmed only by convictions, and another to have it crucified by converting grace. Many, because they have been troubled in conscience for their sins, think well of their case, miserably mistaking conviction for conversion.
+ - Christ does not control his subjects by force, but is King of a willing people. They are, through His grace, freely devoted to His service.
+ - Converting grace puts God on the throne, and the world at His footstool; Christ in the heart, and the world under Hisfeet.
+ - Satan turned Eve’s eye to the apple, Achan’s eye to the wedge of gold, Ahab’s eye to Naboth’s vineyard, and then what work did he make with them!
+ - Come from your knees to the sermon, and come from the sermon to your knees.
+ - While we keep aloof in general statements, there is little fruit to be expected; it is the hand-fight that does execution.
+ - If thy hope be any thing worth, it will purify thee from thy sins.
+ - The unsound convert takes Christ by halves. He is all for the salvation of Christ, but is not for sanctification. He is for the privileges, but does not appropriate the person of Christ.
+ - A man may as well hew marble without tools, or paint without colors or instruments, or build without materials, as perform any acceptable service without the graces of the Spirit, which are both the materials and instruments in the work.
+ - The Lord Jesus Christ would have the whole world to know, that though He pardons sin, He will not protect it.
+ - Though sin may be in the Christian, yet it hath no more dominion over him; he hath an unfeigned respect to all God’s commandments, making conscience even of little sins and little duties.
+ - Conversion is not a repairing of the old building, but it takes all down and erects a new structure. It is not the sewing on a patch of holiness; but, with the true convert, holiness is woven into all his powers, principles and practice.
+ - A man may as certainly miscarry by his seeming righteousness and supposed graces, as by gross sins; and that is, when a man doth trust in these as his righteousness before God, for the satisfying His justice, appeasing His wrath, procuring His favor, and obtaining his own pardon.
+
+20 quotes

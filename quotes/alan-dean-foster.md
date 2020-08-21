@@ -1,0 +1,33 @@
+ - Spontaneity is one of the joys of existence, especially if you prepare for it in advance.
+ - Freedom is just Chaos, with better lighting.
+ - The thing all writers do best is find ways to avoid writing.
+ - We’re all nothing but unified arrangements of atoms and particles, drifting around, enjoying consciousness every now and then for a second or so before splitting up to become bits and pieces of trees and stars and french fries.
+ - An apex is always surrounded only by emptiness.
+ - In loquaciousness lay insanity.
+ - It is always hard when reality intrudes on belief.
+ - Living gives you a better understanding of life. I would hope that my characters have become deeper and more rounded personalities. Wider travels have given me considerably greater insight into how cultural differences affect not only people, but politics and art.
+ - Getting inside the mind of a terrorist wasn’t difficult at all. Even as children, human beings fabricate elaborate revenge fantasies. We’re not a particular species. Check out popular video games.
+ - Where lies the line between sorcery and science? It is only a matter of terminology, my friend.
+ - Writing allows me the time to travel and see the world, which is what I always wanted to do. I’d really like to have been Sir Richard Francis Burton, but it’s the wrong century.
+ - The universe is full of dead people who lived by assumption.
+ - There is nothing in art, in philosophy, or in politics to match the fervor of mutual cooperation among discordant bands of fanatics.
+ - The storm hit with all the fury of a woman who’d been dieting for six months, only to discover she’d gained four pounds.
+ - I try to challenge myself as much as possible, as often as possible.
+ - I have a bad tendency to get rapidly bored with my own material, so rewriting is hard for me. I mean, I already know the story and would rather read something new.
+ - Keep writing. Try to do a little bit every day, even if the result looks like crap. Getting from page four to page five is more important than spending three weeks getting page four perfect.
+ - Growing up, I never gave a thought to being a writer. All I ever wanted to be was a traveler and explorer. Science-fiction allowed me to go places that were otherwise inaccessible, which is why I started reading it.
+ - I’ve been writing full-time since 1978.
+ - Advances have fallen, generally, for everything except the biggest potential bestsellers. Given all the changes, both economic and technological, SF hasn’t done too badly.
+ - The overwhelming triumph of the international multimedia conglomerate has resulted in less diversity within the field and has made it much harder for newer writers not only to break in, but to make any kind of a living while doing so.
+ - I write early in the morning, usually after reading portions of at least half a dozen newspapers on the web.
+ - I usually do one con a year as a GoH and try to make the World Fantasy Convention for business purposes. Last year I went to a worldcon for the first time in two decades. I may go again this year.
+ - There’s certainly more new SF available than when I started writing. That means there’s also more bad SF available. Whether there is also more good is a matter for future historians of the field.
+ - If you’re crazy, there’s two things you can do to make yourself feel better: One is to get yourself cured. The other is to make everyone you have to deal with crazy.
+ - In one book, CACHALOT, just for my own amusement, every character is based directly on someone I have known.
+ - Besides the mistakes that are pointed out, I love the way readers become involved with the characters. When readers start asking about character motivations instead of concentrating on the special effects, it means you’re connecting with them on a personal level.
+ - Don’t try to write to the trend of the moment.
+ - I hear entire symphonies, oratorios, in my head, but I can’t write a note.
+ - How much research I have to do depends on the nature of the story. For fantasy, none at all.
+ - I see the Jedi mission as giving up a normal life in exchange for protecting the innocent. It’s a life of sacrifice. There are rewards, but also a certain degree of sterility.
+
+31 quotes

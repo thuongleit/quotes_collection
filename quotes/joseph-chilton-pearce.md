@@ -1,0 +1,22 @@
+ - To live a creative life, we must lose our fear of being wrong.
+ - What we are teaches the child far more than what we say, so we must be what we want our children to become.
+ - Play is the royal road to childhood happiness and adult brilliance.
+ - The word ‘comfort’ comes from the Latin words for ‘with’ and ‘strength’ and originally meant operating from a position of power.
+ - Seeing within changes one’s outer vision.
+ - As a child, reality is whatever one makes of it.
+ - Women have millions of years of genetically-enc oded intelligences, intuitions, capacities, knowledges, powers, and cellular knowings of exactly what to do with the infant.
+ - We have a cultural notion that if children were not engineered, if we did not manipulate them, they would grow up as beasts in the field. This is the wildest fallacy in the world.
+ - We are shaped by each other. We adjust not to the reality of a world, but to the reality of other thinkers.
+ - One’s capacity for metaphor is one’s capacity for a full life.
+ - We must become the people we want our children to be.
+ - For only as we ourselves, as adults, actually move and have our being in the state of love, can we be appropriate models and guides for our children. What we are teaches the child far more than what we say, so we must be what we want our children to become.
+ - We live in a web of ideas, a fabric of our own making.
+ - The parent knows that the child cannot be artificially motivated to learn; they know that he is already motivated by the strongest driving force on earth: his inner intent.
+ - Our reality is influenced by our notions about reality, regardless of the nature of those notions.
+ - Any representation of God produces accordingly.
+ - And what does every child believe every adult capable of doing? Of actually being able to bend the world to an inner desire, exactly what the child is busily practicing in his passionate play.
+ - We must accept that this creative pulse within us is God’s creative pulse itself.
+ - Any idea seriously entertained tends to bring about the realization of itself.
+ - A ‘school-at-home’ approach to homeschooling is just decorating the electric chair in different colors.
+
+20 quotes

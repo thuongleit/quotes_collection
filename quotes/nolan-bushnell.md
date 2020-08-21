@@ -1,0 +1,47 @@
+ - The true entrepreneur is a doer, not a dreamer.
+ - The ultimate inspiration is the deadline.
+ - A good game is easy to learn but hard to master.
+ - Everyone who has ever taken a shower has had an idea. It’s the person who gets out of the shower, dries off, and does something about it that makes a difference.
+ - Hire for passion and intensity; there is training for everything else.
+ - Business is a good game – lots of competition and a minimum of rules. You keep score with money. 
+ - Creativity in life is about saying yes to new ideas.
+ - If you’re willing to work harder than anybody else, you can create your own luck.
+ - A lot of people have ideas, but there are few who decide to do something about them now. Not tomorrow. Not next week. But today. The true entrepreneur is a doer, not a dreamer.
+ - If you don’t hire at least one or two people that are smarter than you are, then you’re a terrible manager and I don’t need you.
+ - The truth is just an excuse for lack of imagination.
+ - Any business that does not innovate will fail over time.
+ - A lot of people think that success is luck and being in the right place at the right time. But I think if you’re willing to work harder than anybody else, you can create an awful lot of your own luck.
+ - I appreciate the fact that technology and games are a big part of life.
+ - If you really want you people to innovate, buy a science fiction book, tear off the covers, and tell them it’s history.
+ - One of the big concerns I have is that most of the HR departments in a lot of companies are hiring away from creativity and they don’t know it. For instance, they are requiring everybody to have a college degree. The most creative people I know couldn’t deal with college.
+ - My perception is that I’m a guy who really does a lot of homework surrounding any project that I do.
+ - I founded Atari in my garage in Santa Clara while at Stanford. When I was in school, I took a lot of business classes. I was really fascinated by economics. You end up having to be a marketeer, finance maven and a little bit of a technologist in order to get a business going.
+ - I always try to do something nobody else has done.
+ - I’m a big believer in the Wii. I love the physicality of the Wii controller, and how you can get the feeling of throwing a bowling ball or swinging a golf club. Those are the kinds of games I really like.
+ - Being your own boss is much superior to working for the man. Including working for your father.
+ - I’ve always thought legal addictions are a great way to create a business. Starbucks is a wonderful example.
+ - The best ideas lose their owners and take on lives of their own.
+ - I don’t think people understand how much hard work innovation is. That it’s not just getting an idea. You really have to cross your T’s and dot your I’s long before you ever start on the project. I don’t think people perceive that about me. I work hard.
+ - People hate to and will not read instructions.
+ - Everybody believes in innovation until they see it. Then they think, ‘Oh, no; that’ll never work. It’s too different.’
+ - I think in terms of businesses, in terms of things that are really big and marry technology with entertainment. That’s where I like to spend my time.
+ - I’ve always been a tech-head.
+ - We’re moving away from a credentialed society to a merit society.
+ - Some of the best projects to ever come out of Atari or Chuck E. Cheese’s were from high school dropouts, college dropouts. One guy had been in jail.
+ - I believe that in games, when you’re talking about pitting my wits and my brain against your wits and your brain, that simplicity of the game becomes a dominant factor.
+ - I’m the only one who was predicting the Nintendo Wii would beat Sony’s PlayStation 3.
+ - Radical innovation is difficult to fund. It seems scary. And the really radical things seem even more scary.
+ - I like games where you can use stealth and guile. As you get older, it’s like the difference between playing squash and racketball. Squash is an older man’s game, because if you’re stealthy and wily, you can beat a better-co-ordinated and stronger, younger person.
+ - Can liberty be destroyed by the truth?
+ - In the early days of the video game business, everybody played. The question is, what happened? My theory – and I think it’s pretty well borne out – is that in the ’80s, games got gory, and that lost the women. And then they got complex, and that lost the casual gamer.
+ - When you’re building something, you know all of the trade-offs...
+ - I’m glad to see the casual game play coming back now on the Internet, games that aren’t violent, that aren’t complex that you can sit down and you can have some fun.
+ - In 1989, SimCity introduced an entirely new brand of game play.
+ - I must confess I’ve always had a couple of pinball machines in my home and really have enjoyed some of the old classics, like Fireball.
+ - Video games in some ways are too powerful, they have too much resonance with kids. And it’s very easy to overdose on video games and to let the outside world go by.
+ - The subtle generational cues that make one thing cool and another uncool aren’t always obvious to a parent. My children are my dinner-table sounding board. I’ve come up with some wonderful ideas that they universally dismissed as ‘lame.’
+ - I think ‘Something Ventured’ is a nice piece because it celebrates venture capital in a unique and powerful way.
+ - Being successful is kind of dull.
+ - People can buy a bottle of gin and drink it at home for about a buck a drink, whereas they are willing to go to a bar and pay 12 bucks for the same cocktail. The difference is that man needs to be social. So I believe that there is a strong demand for games that are social.
+
+45 quotes

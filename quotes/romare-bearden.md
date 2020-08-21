@@ -1,0 +1,22 @@
+ - The artist confronts chaos. The whole thing of art is, how do you organize chaos?
+ - You don’t paint what you see, you paint what you feel.
+ - You should always respect what you are and your culture because if your art is going to mean anything, that is where it comes from.
+ - Black art has always existed. It just hasn’t been looked for in the right places.
+ - The most difficult object in painting is yourself because you’re always at issue.
+ - My purpose is to paint the life of my people as I know it.
+ - You put down one color and it calls for an answer. You have to look at it like a melody.
+ - Art is the soul of a people.
+ - Every artist wants his work to be permanent. But what is? The Aswan Dam covered some of the greatest art in the world. Venice is sinking. Great books and pictures were lost in the Florence floods. In the meantime we still enjoy butterflies.
+ - Painting and art cannot be taught. You can save time if someone tells you to put blue and yellow together to make green, but the essence of painting is a self-disciplined activity that you have to learn by yourself.
+ - The artist has to be something like a whale swimming with his mouth wide open, absorbing everything until he has what he really needs.
+ - The essence of art is to recapturel the fantasy and the imagination of a child again, but without the innocence of a child.
+ - If you’re any kind of artist, you make a miraculous journey, and you come back and make some statements in shapes and colors of where you were.
+ - But no one, when you stop to think, has ever equated abstract expressionism as a movement with jazz music. It’s based on improvisation. The rhythms, the personal involvement, all of this is part of the jazz experience.
+ - The function of the artist is to organize the facets of life according to his imagination.
+ - When I conjure these memories, they are of the present to me, because after all, the artist is a kind of enchanter in time.
+ - Painting is the act of discovery and you’re constantly enlarging your horizon or finding yourself every time you paint.
+ - Memory embellishes Life. Forgetfulness makes it possible.
+ - I want to see how life can triumph.
+ - Painting is a self-disciplined activity that you have to learn by yourself.
+
+20 quotes

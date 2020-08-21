@@ -1,0 +1,52 @@
+ - Personally, I’m not afraid of a robot uprising. The benefits far outweigh the threats.
+ - Change creates fear, and technology creates change. Sadly, most people don’t behave very well when they are afraid.
+ - Right now, we have the most complex relationship with technology that we’ve ever had. Your regular person has more technology in their life now than the whole world had 100 years ago.
+ - Across the sea of space lies an infinite emptiness. I can feel it, suffocating me. It is without meaning. But each life creates its own reality.
+ - I absolutely don’t think a sentient artificial intelligence is going to wage war against the human species.
+ - Each new generation builds on the work of the previous one, gaining new perspective. New verbs are introduced. We Google strange and dangerous places. We tweet mindlessly to the cosmos. We Facebook our own grandmothers. I, for one, don’t want to be left behind.
+ - To survive, humans will work together. Accept each other. For a moment, we are all equal. Backs against the wall, human beings are at their finest.
+ - If the knowledge is spread, it cannot be stamped out.
+ - Memories fade but words hang around forever.
+ - It is not enough to live together in peace, with one race on its knees.
+ - You probably found ‘How to Survive a Robot Uprising’ in the humor section. Let’s just hope that is where it belongs.
+ - The goal for many amputees is no longer to reach a ‘natural’ level of ability but to exceed it, using whatever cutting-edge technology is available. As this new generation sees it, our tools are evolving faster than the human body, so why obey the limits of mere nature?
+ - Zombies, vampires, Frankenstein’s monster, robots, Wolfman – all of this stuff was really popular in the ’50s. Robots are the only one of those make-believe monsters that have become real. They are really in our lives in a meaningful way. That’s pretty fascinating to me.
+ - People need meaning as much as they need air. Lucky for us, we can give meaning to each other for free. Just by being alive.
+ - Sometimes a technology is so awe-inspiring that the imagination runs away with it – often far, far away from reality. Robots are like that. A lot of big and ultimately unfulfilled promises were made in robotics early on, based on preliminary successes.
+ - A mechanic is just an engineer in blue jeans.
+ - We’ve been co-evolving with our technology for a hundred thousand years. Human beings and the technology we make were always inseparable. We’re finally coming into this moment where it’s coming inside our body for the first time in history.
+ - Johannes Cabal would kill me for saying this, but he’s my favorite Zeppelin-hopping detective. The fellow has got all the charm of Bond and the smarts of Holmes – without the pesky morality.
+ - How much change can a person absorb before everything loses meaning Living for its own sake isn’t life. People need meaning as much as they need air.
+ - These days the technology can solve our problems and then some. Solutions may not only erase physical or mental deficits but leave patients better off than “able-bodied” folks. The person who has a disability today may have a superability tomorrow.
+ - Humans are inscrutable. Infinitely unpredictable. This is what makes them dangerous.
+ - Demolition is a part of construction.
+ - Technology changes, but people stay the same.
+ - The fear of the never-ending onslaught of gizmos and gadgets is nothing new. The radio, the telephone, Facebook – each of these inventions changed the world. Each of them scared the heck out of an older generation. And each of them was invented by people who were in their 20s.
+ - Robots are interesting because they exist as a real technology that you can really study – you can get a degree in robotics – and they also have all this pop-culture real estate that they take up in people’s minds.
+ - Robots should stand up for themselves and not try to be humans. They should either utterly destroy us or protect us from aliens. And vampires. And pirates.
+ - When a man resists sin on human motive only, he will not hold out long.
+ - You don’t want to stand too close to a robot arm; it can turn your head to mush.
+ - The true knowledge is not in the things, but in finding the connections between the things.
+ - If popular culture has taught us anything, it is that someday mankind must face and destroy the growing robot menace.
+ - Without us here to witness, the universe is just pointless physics unfolding.
+ - In movies and in television the robots are always evil. I guess I am not into the whole brooding cyberpunk dystopia thing.
+ - As a kid I wanted to write science fiction, and I was never without a book. Later I really got into being a scientist and never thought I’d be writing novels.
+ - There are an endless number of things to discover about robotics. A lot of it is just too fantastic for people to believe.
+ - You don’t pick your revolution. It picks you.
+ - It’s hard to guess how smart the machines are, but a good rule of thumb is that they’re always smarter than you think.
+ - Luckily, unreasonable expectations go hand in hand with naive young scientists. The more naive the better – otherwise we would never have the audacity to try and build a 22,000-mile-high space elevator or some sprawling underwater hotel.
+ - I wrote a query letter to an editor – a friend of a friend. The editor called me an idiot, told me never to contact an editor directly, and then recommended three literary agents he had worked with before. Laurie Fox was one of them, and I’ve never looked back.
+ - For people who have been raised on text-based interactions, just speaking on the telephone can be high bandwidth to the point of anxiety.
+ - It’s dangerous to be people-blind.
+ - It’s hard to wipe your eyes when you have whirring buzzsaws for hands.
+ - Human reactions to robots varies by culture and changes over time. In the United States we are terrified by killer robots. In Japan people want to snuggle with killer robots.
+ - A soul isn’t given for free. The races of men fight each other to the death for the honor of being recognized as human beings, with souls.
+ - We are all expressions of our own minds, projected onto the world.
+ - You want to know what a robot’s designed for. And if it’s doing something outside the scope of what it’s made to do, you should be very suspicious.
+ - I absolutely believe that a lot of the issues raised in ‘Amped’ about technology migrating into our bodies are issues that we’re really going to deal with soon.
+ - There are no truer choices than those made in crisis, choices made without judgment.
+ - No matter how much kids beg to be treated like adults, nobody likes to let go of their childhood. You wish for it and dream of it and the second you have it, you wonder what you’ve done. You wonder what it is you’ve become.
+ - Some unspoken human communication is taking place on a hidden channel. I did not realize they communicated this much without words. I note that we machines are not the only species who share information silently, wreathed in codes.
+ - As a society, I think we express our cultural mores through our politics. We’re trying constantly to figure out what’s OK and what’s not OK. And it’s hard, because our society is constantly buffeted by gale force winds of technology. Things are always changing.
+
+50 quotes

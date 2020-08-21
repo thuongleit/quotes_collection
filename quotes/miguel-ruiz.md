@@ -1,0 +1,204 @@
+ - The Four Agreements 1. Be impeccable with your word. 2. Don’t take anything personally. 3. Don’t make assumptions. 4. Always do your best.
+ - Whatever life takes away from you, let it go.
+ - Don’t Take Anything Personally. Nothing others do is because of you.
+ - You don’t need to change the world; you need to change yourself.
+ - There is a huge amount of freedom that comes to you when you take nothing personally.
+ - The dream of life is really an illusion, and everybody lives in the reality he or she creates – a virtual reality that is only true for the one who creates it.
+ - Your whole life is nothing but a dream. You live in a fantasy where everything you know about yourself is only true for you. Your truth is not the truth for anyone else.
+ - I am here and I’m alive. That’s enough.
+ - We only see what we want to see, and hear what we want to hear.
+ - Respect is one of the greatest expressions of love.
+ - Also, go inside and listen to your body, because your body will never lie to you. Your mind will play tricks, but the way you feel in your heart, in your guts, is the truth.
+ - The real us is pure love, pure light.
+ - We only see what we want to see; we only hear what we want to hear. Our belief system is just like a mirror that only shows us what we believe.
+ - Be impeccable with your words.
+ - I am made of light; I am made of stars.
+ - Whatever life takes away from you, let it go. When you surrender and let go of the past, you allow yourself to be fully alive in the moment.
+ - Be impeccable with your word. Speak with integrity. Say only what you mean.
+ - People like to say that the conflict is between good and evil. The real conflict is between truth and lies.
+ - I change the world by changing myself. I am changing the world by loving myself, by enjoying life, by making my personal world a dream of heaven. I change myself, and just like magic, other people start to change.
+ - Always Do Your Best. Your best is going to change from moment to moment; it will be different when you are healthy as opposed to sick. Under any circumstance, simply do your best, and you will avoid self-judgment, self-abuse and regret.
+ - When we really see other people as they are without taking it personally, we can never be hurt by what they say or do.
+ - Don’t make assumptions.
+ - Every human is an artist. The dream of your life is to make beautiful art.
+ - Your life is the manifestation of your dream; it is an art. You can change your life anytime if you aren’t enjoying the dream.
+ - The cells in your body are completely loyal to you; they work for you in harmony. We can even say they pray to you. You are their God. That is absolutely the truth. Now what are you going to do with this knowledge?
+ - Personal importance, or taking things personally, is the maximum expression of selfishness because we make the assumption that everything is about me.
+ - Don’t believe me, don’t believe yourself, and don’t believe anyone else.
+ - Only the truth can set us free from the fear, the drama and the conflict of our lives.
+ - When you make it a strong habit not to take anything personally, you avoid many upsets in your life. Your anger, jealousy, and envy will disappear, and even your sadness will simply disappear if you don’t take things personally.
+ - But it is not what I am saying that is hurting you; it is that you have wounds that I touch by what I have said. You are hurting yourself. There is no way I can take this personally.
+ - Be Skeptical, but learn to listen.
+ - You can have many great ideas in your head, but what makes the difference is the action. Without action upon an idea, there will be no manifestation, no results, and no reward.
+ - The only reason you are happy is because you choose to be happy. Happiness is a choice, and so is suffering.
+ - When you love without conditions, you the human and you the God, align with the spirit of life moving through you.
+ - I don’t know what I am. And it’s not important.
+ - I am the love of my life, the marriage between my mind and my body.
+ - I am here to enjoy life. I am not here to suffer. I am here to be a dreamer, to be an artist, to be a seer. The mission of my life is to enjoy every single moment of my life.
+ - When you love, whatever you do is because you want to do it. It becomes a pleasure, it’s like a game, and you have fun with it. When you love, you don’t expect something to happen; whatever happens is okay, and hardly anything disappoints you.
+ - All of humanity is searching for truth, justice, and beauty.
+ - When you speak openly and honestly, you won’t have to make assumptions. The day you stop making assumptions, you will communicate cleanly and clearly, and achieve impeccability with your word.
+ - Your own body is a manifestation of God, and if you honor your body everything will change for you.
+ - We make all sorts of assumptions because we don’t have the courage to ask questions.
+ - Love does not want or fear anything.
+ - Humans are mentally sick with a disease called fear.
+ - Being impeccable with your word is the correct use of your energy; it means to use your energy in the direction of truth and love for yourself.
+ - Awareness is always the first step.
+ - To be authentic is to stop pretending to be what think you are, because you are not.
+ - The freedom we are looking for is the freedom to be ourselves, to express ourselves.
+ - We make the assumption that everyone sees life the way we do.
+ - Dream masters create a masterpiece of life; they control the dream by making choices.
+ - The same way that you are the main character of your story, you are only a secondary character in everybody else’s story.
+ - The best way to say, “I love you, God,” is to live your life doing your best. The best way to say, “Thank you, God,” is by letting go of the past and living in the present moment, right here and now.
+ - If you create your life with love, your dream becomes a masterpiece of art.
+ - I am awake, I see the sun. I am going to give my gratitude to the sun and to everything and everyone because I am still alive. One more day to be myself.
+ - Forgiveness is the only way to heal.
+ - The human mind is like a fertile ground were seed are continually being planted. The seeds are opinions, ideas, and concepts. You plant a seed, a thought grows, and it grows. The word is like a seed and the human mind is so fertile!
+ - Death is not the biggest fear we have; our biggest fear is taking the risk to be alive – the risk to be alive and express what we really are.
+ - Forgiveness is an act of self-love and respect.
+ - It is always better to ask then to make an assumption.
+ - Find yourself and express yourself in your own particular way. Express your love openly.
+ - Life doesn’t need to be justified or judged.
+ - You express your own divinity by being alive and by loving yourself and others.
+ - Selfishness comes from poverty in the heart, from the belief that love is not abundant.
+ - Respect is one of the greatest expressions of Love. If other people try to write your story, it means they don’t respect you. They consider that you’re not a good artist who can write your own story, even though you were born to write your own story.
+ - Ninety-five percent of the beliefs we have stored in our minds are nothing but lies, and we suffer because we believe all these lies.
+ - You don’t need to justify your love, you don’t need to explain your love, you just need to practice your love. Practice creates the master.
+ - All of the sadness and drama you have lived in your life was rooted in the making of assumptions and taking things personally. The whole world of control between humans is based on that.
+ - Maybe we cannot escape from the destiny of the human, but we have a choice: to suffer our destiny or to enjoy our destiny.
+ - Return to the purity of your innocence where you are enchanted with life. Give love for no reason. Surround yourself with others doing the same...
+ - Love is ruthless; it doesn’t feel sorry for anyone, but it does have compassion. Fear is full of pity; it feels sorry for everyone.
+ - Listen to other people tell their story, but don’t believe them. You know that it’s just a story that is only true for them, but listen because the communication can be wonderful.
+ - I no longer agree to treat myself with disrespect. Every time a self-critical thought comes to mind, I will forgive the Judge and follow this comment with words of praise, self-acceptance, and love.
+ - When we respect everybody around us, we are in peace with everybody around us.
+ - The problem with assumptions is that we believe they are the truth.
+ - Children are born innocent. Before they are domesticated they live in the moment, love without fear, and don’t even think about the opinions of others.
+ - And what is the right woman, the right man? Someone who wants to go in the same direction as you do, someone who is compatible with your views and your values – emotionally, physically, economically, spiritually.
+ - When you feel good, everything around you is good, when everything around you is great, everything makes you happy. You are loving everything that is around you, because you are loving yourself.
+ - My personal prayer is simply my joy to be alive, and to live in gratitude and generosity.
+ - The truth is silent. The truth doesn’t come with words. It’s something that I just know; it’s something that I can feel without words, and it’s called silent knowledge.
+ - How many times do we pay for one mistake? The answer is a thousand times for the same mistake. The human is the only animal on earth that pays a thousand times for ONE mistake. The rest of the animals pay once for every mistake.
+ - All around the world, people believe that there is a great conflict between good and evil. Well, it’s true that there’s a conflict, but it only exists in the human mind.
+ - We are creators, just like the one who created us. And we are always expressing our creativity, with or without awareness.
+ - Love for yourself is the key to loving other. Love begins with you.
+ - The best path to happiness is learning to change as rapidly as life does.
+ - Impeccability of the word can lead you to personal freedom, to huge success and abundance; it can take away all fear and transform it into joy and love.
+ - When we believe in lies, we cannot see the truth, so we make thousands of assumptions and we take them as truth. One of the biggest assumptions we make is that the lies we believe are the truth!
+ - What we call education is nothing but domestication of the human being.
+ - You know that if you lie to yourself, surely other people lie to themselves. And if they lie to themselves, they will lie to you also.
+ - The way to keep yourself from making assumptions is to ask questions.
+ - We search for everything we believe we don’t have, not knowing that everything we are looking for is already inside us. We are born with it.
+ - Life is like dancing. If we have a big floor, many people will dance. Some will get angry when the rhythm changes. But life is changing all the time.
+ - Be Impeccable With Your Word. Speak with integrity. Say only what you mean. Avoid using the word to speak against yourself or to gossip about others. Use the power of your word in the direction of truth and love.
+ - What you will see is love coming out of the trees, love coming out of the sky, love coming out of the light. You will perceive love from everything around you. This is the state of bliss.
+ - To have faith is to believe unconditionally.
+ - It’s easier to be skeptical because it’s easier to understand that every human lives in their own world.
+ - We ask everybody to help us to change the world, but we are not talking about our planet Earth; we are talking about the world that each one of us creates within our mind. We are talking about the story that we create.
+ - With knowledge, our creation can go in any direction – from the worst kind of drama, to the most beautiful dream. Then the best way to express our creativity is with love and awareness of what we really are.
+ - We express our art in everything we say, everything we feel, and everything we do. The creation is ongoing, it is endless, it is happening in every moment.
+ - Forgive yourself. The supreme act of forgiveness is when you can forgive yourself for all the wounds you’ve created in your own life. Forgiveness is an act of self-love. When you forgive yourself, self-acceptance begins and self-love grows.
+ - God, the supreme artist, uses our life for the creation of art. We are the instruments through which the force of life expresses itself.
+ - I will no longer allow anyone to manipulate my mind and control my life in the name of love.
+ - We make the assumption that everyone sees life the way we do. We assume that others think the way we think, feel the way we feel, judge the way we judge, and abuse the way we abuse. This is the biggest assumption that humans make.
+ - Self-rejection is the biggest sin that you can commit.
+ - I don’t take anything personally. I am a secondary character in other people’s stories. I know that whatever people say about me is just a projection of their image of me. It has nothing to do with me.
+ - Use the power of your word in the direction of truth and love.
+ - Every prayer is an agreement with yourself. The mind is asking the real you, which is life, to guide your decisions for every single choice that you make.
+ - The big diffrence between a warrior and a victim is that the victim represses and the warrior refrains.
+ - Find the courage to ask questions and to express what you really want. Communicate with others as clearly as you can to avoid misunderstandings, sadness and drama.
+ - The truth is still the truth whether or not you believe it. Can we say the same about lies? No, lies only exist because we believe them. If we don’t believe in lies, they simply disappear.
+ - We want to know. If we don’t know, we don’t feel safe, we don’t feel secure.
+ - Let everything we do and say be an expression of the beauty in our heart, always based on love.
+ - For me personally, I don’t pray using words – it is just with my intent. Why do I need to pray with “words,” to something external, when I know what I want?
+ - To have great faith is to have great power, because your intent, your will, is undivided. When your word isn’t dissipated by doubt, the power of your word becomes even stronger.
+ - Practice makes the Master. You can reconcile what you are and what you want to be.
+ - A sin is anything you do which goes against yourself.
+ - True justice is to pay one time for every mistake we make.
+ - Life brings you exactly what you need.
+ - When we fulfill any need of the human body, it gives us pleasure. To breathe gives us much pleasure.
+ - What others say and do is a projection of their own reality.
+ - When we get into a relationship of any kind, it is because we want to share, we want to enjoy, we want to have fun, we don’t want to be bored. If we look for a partner, it is because we want to play, we want to be happy and enjoy what we are.
+ - We don’t need to justify love; it is there or not there. Real love is accepting other people the way they are without trying to change them.
+ - Accept your own divinity. Everything is a manifestation of God. When you know that, the power that is LIFE is inside you, you accept your own divinity, and yet you are humble, because you see that see the same divinity in everyone else.
+ - Do not let great ambitions overshadow small success.
+ - If you hold a beautiful flower in your hand, you can write a whole book about it. However, you are still just you perceiving and experiencing it from your own point of view.
+ - True justice is paying only once for each mistake. True injustice is paying more than once for each mistake.
+ - Don’t make assumptions. Find the courage to ask questions and to express what you really want.
+ - All humans are storytellers with their own unique point of view. When we understand this, we no longer feel the need to impose our story on others or to defend what we believe. Instead we see all of us as artists with the right to create our own art.
+ - From my point of view, humanity is one living being. Male-female – we complement each other in a sacred communion. But once again, respect is the key. Respect is what makes the sacred communion possible.
+ - Imagine living your life without being afraid to take a risk and to explore life.
+ - Humans punish themselves endlessly for not being what they believe they should be. They become very self-abusive, and they use other people to abuse themselves as well.
+ - We have millions of questions that need answers because there are so many things that the reasoning mind cannot explain. It is not important if the answer is correct; just the answer itself makes us feel safe.
+ - The truth is like a scalpel. The truth is painful.
+ - Love coming out of you makes you happy. The whole world can love you, but that love will not make you happy. What will make you happy is to share all the love you have inside you. That is the love that will make a difference.
+ - Letting go of the past means that you can enjoy the dream that is happening right now.
+ - When we try to describe the truth with words, we distort it and it’s no longer truth – it’s our story. The story may be true for us, but that doesn’t mean it’s true for anyone else.
+ - Before we were born, a whole society of storytellers was already here. The storytellers who were here before us taught us how to be human.
+ - When you are immune to the opinions and actions of others, you won’t be the victim of needless suffering.
+ - If we look at human society we see a place so difficult to live in because it is ruled by fear.
+ - If we like what we do, if we always do our best, then we are really enjoying life. We are having fun, we don’t get bored, we don’t have frustrations.
+ - Life is very, very simple and easy to understand, but we complicate it with the beliefs and ideas that we create.
+ - Perhaps you’re not finished with your story, and who knows if you’ll ever finish it or not. Honestly, it’s not that important.
+ - Today, imagine all the love flowing from your heart to all the people who need your love.
+ - Through our faith, we gain the courage to take action. And through action, we move one step closer toward the manifestation of our desires.
+ - Every single human being on this earth make a difference on this planet earth but each one of us make a different contribution and it will be a better contribution when we have more gratitude and more generosity, when we love more.
+ - If you can see yourself as an artist, and you can see that your life is your own creation, then why not create the most beautiful story for yourself?
+ - Attention is the ability we have to discriminate and to focus only on that which we want to perceive.
+ - If you are not afriad, thereis no way you will get mad at me. If you are not afraid, there is no way you will hate me. If you are not afraid, there is no way you will be jealous or sad.
+ - The whole world can gossip about you, and if you don’t take it personally you are immune.
+ - Nobody abuses us more than we abuse ourselves.
+ - It is when we lose control that we repress the emotions, not when we are in control.
+ - So much of the knowledge in our minds is based on lies and superstitions that come from thousands of years ago. Humans create stories long before we are born, and we inherit those stories, we adopt them, and we live in those stories.
+ - Doing your best is taking the action because you love it, not because you’re expecting a reward.
+ - We are alive and need to take risks. And if we fail, so what? Who cares? It doesn’t matter. Learn and move on without judgement.
+ - How much you love yourself and how you feel about yourself are directly proportionate to the quality and integrity of your word. When you are impeccable with your word, you feel good; you feel happy and at peace.
+ - Say only what you mean.
+ - The word is a force you cannot see, but you can see the manifestation of that force, the expression of the word, which is your own life.
+ - Our brain is the factory of the emotions.
+ - For thousands of years, there have been lies about being gay or not being gay. If you know they’re lies, you’re free.
+ - What we know and believe is just a program; it is nothing but words, opinions, and ideas we learn from others and from our own life experience.
+ - When you learn to love your physical body, every activity can become a ritual of gratitude where you fully express the joy to be alive!
+ - Happiness begins with impeccability of the word. The way to measure the impeccability of my word is to ask, “Am I happy or am I suffering?” If I’m suffering, then I’m not being impeccable with my word.
+ - Your opinion is nothing but your point of view.
+ - You can choose to follow your heart always.
+ - When you look in the mirror and hate what you see, you need addictions to survive.
+ - There is nothing to do except to be just who you are. You have the right to feel beautiful and enjoy it.
+ - Under any circumstance, simply do your best, and you will avoid self-judgment, self-abuse and regret.
+ - Being impeccable with your word is not using the word against yourself.
+ - What has happened to the adult human?
+ - You were programmed to deliver a message, and the creation of that message is your greatest art. What is the message? Your life.
+ - Every human is an artist. And this is the main art that we have: the creation of our story.
+ - Awareness is something that is very important. And you say that it looks impossible to become what we really are, to be authentic, to be ourselves again. But I will tell you that it is much more difficult to try to be what we are not.
+ - We learn to be right and to make everyone else wrong. The need to be right is the result of trying to protects the image we want to project to the outside. We have to impose our way of thinking, not just onto other humans, but even upon ourselves.
+ - Relationship is an art. The dream that two people create is more difficult to master than one.
+ - You go against yourself when you judge or blame yourself for anything.
+ - Love has no resistance. Whatever we do is because we want to do it.
+ - Whenever we hear an opinion and believe it, we make an agreement, and it becomes part of our belief system.
+ - Humans create their own boundaries, their own limitations. We say what is humanly possible, and what is not possible. Then just because we believe it, it becomes truth for us.
+ - Only love has the ability to put you in that state of bliss.
+ - You see everything is about belief, whatever we believe rules our existence, rules our life.
+ - Everything you think about yourself, everything you believe about yourself, is because you learned it.
+ - Love is unknown. To open the heart in trust is unknown. They say love hurts. It doesn’t have to.
+ - We are masters because we have the power to create and to rule our own lives.
+ - There are many ways that we hurt ourselves when we don’t like who we are.
+ - Your word is the power that you have to create.
+ - When you do your best you learn to accept yourself.
+ - We were born in this society, we grew up in this society. And we learn to be like everyone else, playing nonsense all the time.
+ - In our development, as we grow throughout our lives, the structure of our beliefs becomes very complicated, and we make it even more complicated because we make the assumption that what we believe is the absolute truth.
+ - For many years, I used to pray as an act of power, but that was before I had 100% faith in myself.
+ - We never stop to consider that our beliefs are only a relative truth that’s always going to be distorted by all the knowledge we have stored in our memory.
+ - Everything is made of light.
+ - Humans are born in truth, but we grow up believing in lies.
+ - Everything that is true is authentic. When we were born, we did not have knowledge. As soon as we have language, we learn to describe everything through that language and we learn to be like our family, our parents, those at school, etc.
+ - Humans hardly know what they want, how they want it, or when they want it.
+ - If you have the expectation that I have to be a certain way, then I feel the obligation to be that way. The truth is I am not what you want me to be.
+ - Life is not the body; it is not the mind; it is not the soul. It is a force.
+ - You are the way you are because that is what you believe about yourself.
+ - Your best changes from moment to moment, sick or well, tired or rested. Remember that you are an imperfect human being. There is no value to judging yourself for.
+ - We are the same, you and I. We are images of light.
+ - We are addicted to being the way we are.
+ - Your reactions are the key to having a wonderful life.
+ - You find that the injustice that created a wound is no longer true, right now, in this moment.
+ - You are alive, so take your life and enjoy it. You were born with the right to be happy, to love, and to share your love. Just to be-to take a risk and enjoy your life-is all that matters.
+
+202 quotes

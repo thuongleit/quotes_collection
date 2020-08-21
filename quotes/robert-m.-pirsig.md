@@ -1,0 +1,151 @@
+ - When one person suffers from a delusion, it is called insanity. When many people suffer from a delusion it is called a Religion.
+ - The only Zen you can find on the tops of mountains is the Zen you bring up there.
+ - Even though quality cannot be defined, you know what quality is.
+ - Although motorcycle riding is romantic, motorcycle maintenance is purely classic.
+ - The past exists only in our memories, the future only in our plans. The present is our only reality.
+ - To live for some future goal is shallow. It’s the sides of the mountain that sustain life, not the top.
+ - The truth knocks on the door and you say, go away, I’m looking for the truth, and it goes away. Puzzling.
+ - Boredom always precedes a period of great creativity.
+ - The test of the machine is the satisfaction it gives you. There isn’t any other test. If the machine produces tranquility it’s right. If it disturbs you it’s wrong until either the machine or your mind is changed.
+ - And what is good, Phaedrus, And what is not good – Need we ask anyone to tell us these things?
+ - You want to know how to paint a perfect painting? It’s easy. Make yourself perfect and then just paint naturally.
+ - When you want to hurry something, that means you no longer care about it and want to get on to other things.
+ - Any effort that has self-glorification as its final endpoint is bound to end in disaster.
+ - My favorite piece of technical writing: Assembly of Japanese bicycle require great peace of mind.
+ - If you become restless, speed up. If you become winded, slow down. You climb the mountain in an equilibrium between restlessness and exhaustion.
+ - The real cycle you’re working on is a cycle called yourself.
+ - Sometimes it’s a little better to travel than to arrive.
+ - We take a handful of sand from the endless landscape of awareness around us and call that handful of sand the world.
+ - Is it hard?? Not if you have the right attitudes. Its having the right attitudes thats hard.
+ - In the high country of the mind one has to become adjusted to the thinner air of uncertainty...
+ - It’s so hard when contemplated in advance, and so easy when you do it.
+ - Quality isn’t a thing. It is an event.
+ - For every fact there is an infinity of hypotheses.
+ - When you look directly at an insane man all you see is a reflection of your own knowledge that he’s insane, which is not to see him at all.
+ - The real purpose of the scientific method is to make sure nature hasn’t misled you into thinking you know something you actually don’t know.
+ - The ultimate test’s always your own serenity. If you don’t have this when you start and maintain it while you’re working you’re likely to build your personal problems right into the machine itself.
+ - Stuckness shouldn’t be avoided. It’s the psychic predecessor of all real understanding. An egoless acceptance of stuckness is a key to an understanding of all Quality, in mechanical work as in other endeavors.
+ - An egoless acceptance of stuckness is a key to an understanding of all Quality.
+ - If you don’t generalize you don’t philosophize.
+ - You look at where you’re going and where you are and it never makes sense, but then you look back at where you’ve been and a pattern seems to emerge.
+ - Within a Metaphysics of Quality, science is a set of static intellectual patterns describing this reality, but the patterns are not the reality they describe.
+ - One of the most moral acts is to create a space in which life can move forward.
+ - We want to make good time, but for us now this is measured with the emphasis on “good” rather than on “time”...
+ - When you live in the shadow of insanity, the appearance of another mind that thinks and talks as yours does is something close to a blessed event.
+ - Sanity is not truth. Sanity is conformity to what is socially expected. Truth is sometimes in conformity, sometimes not.
+ - It’s not the ‘nice’ guy who brings about real social change. ‘Nice’ guys look nice because they’re conforming. It’s the ‘bad’ guys, who only look nice a hundred years later, that are the real Dynamic force in social evolution.
+ - Traditional scientific method has always been at the very best, 20 – 20 hindsight. It’s good for seeing where you’ve been. It’s good for testing the truth of what you think you know, but it can’t tell you where you ought to go.
+ - When you’ve got a Chautauqua in your head, it’s extremely hard not to inflict it on innocent people.
+ - When somebody goes outside the cultural norms, the culture has to protect itself.
+ - When a shepherd goes to kill a wolf, and takes his dog to see the sport, he should take care to avoid mistakes. The dog has certain relationships to the wolf the shepherd may have forgotten.
+ - Mental reflection is so much more interesting than TV it’s a shame more people don’t switch over to it.
+ - The solutions all are simple – after you have arrived at them. But they’re simple only when you know already what they are.
+ - The way to see what looks good and understand the reasons it looks good, and to be at one with this goodness as the work proceeds, is to cultivate an inner quietness, a peace of mind so that goodness can shine through.
+ - There’s so much talk about the system. And so little understanding.
+ - One thing about pioneers that you don’t hear mentioned is that they are invariably, by their nature, mess-makers. They go forging ahead, seeing only their noble, distant goal, and never notice any of the crud and debris they leave behind them.
+ - That’s all the motorcycle is, a system of concepts worked out in steel.
+ - Reality is always the moment of vision before the intellectualization takes place. There is no other reality.
+ - The Buddha takes no position on gods, he suggests they may exist or they may not, but either way you can live a moral life.
+ - If you have a high evaluation of yourself then your ability to recognize new facts is weakened.
+ - A person who follows the dharma is unpredictable because the dharma is unpredictable.
+ - We keep passing unseen through little moments of other people’s lives.
+ - It’s nice to start journeys pleasantly, even when you know they won’t end that way.
+ - Caring about what you are doing is considered either unimportant or taken for granted.
+ - The past cannot remember the past. The future can’t generate the future. The cutting edge of the instant right here and now is always nothing less than the totality of everything there is.
+ - Data without generalization is just gossip.
+ - Absence of Quality is the essence of squareness.
+ - New York has always been going to hell but somehow it never gets there.
+ - I really don’t mind dying because I figure I haven’t wasted this life. Up until my first book was published I had all this potential, people would say, and I screwed up. After it, I could say: No, I didn’t screw up.
+ - What’s wrong with technology is that it’s not connected in any real way with matters of the spirit and of the heart. And so it does blind, ugly things quite by accident and gets hated for that.
+ - Metaphysics is a restaurant where they give you a thirty thousand page menu, and no food.
+ - If your mind is truly, profoundly stuck, then it might be much better off than when it was loaded with ideas.
+ - I go on living, more from force of habit than anything else.
+ - Quality is a direct experience independent of and prior to intellectual abstractions.
+ - Peace of mind produces right values, right values produce right thoughts. Right thoughts produce right actions and right actions produce work which will be a material reflection for others to see of the serenity at the center of it all.
+ - Art is the Godhead as revealed in the works of man.
+ - The intelligence of the mind can’t think of any reason to live, but it goes on anyway because the intelligence of the cells can’t think of any reason to die.
+ - When analytic thought, the knife, is applied to experience, something is always killed in the process.
+ - I argued that physical discomfort is important only when the mood is wrong. Then you fasten on to whatever thing is uncomfortable and call that the cause. But if the mood is right, then physical discomfort doesn’t mean much.
+ - Why, for example, should a group of simple, stable compounds of carbon, hydrogen, oxygen, and nitrogen struggle for billions of years to organize themselves into a professor of chemistry? What’s the motive?
+ - The place to improve the world is first in one’s own heart and head and hands.
+ - There is an evil tendency underlying all our technology – the tendency to do what is reasonable even when it isn’t any good.
+ - The range of human knowledge today is so great that we’re all specialists and the distance between specializations has become so great that anyone who seeks to wander freely between them almost has to forego closeness with the people around him.
+ - Even in the presence of others he was completely alone.
+ - Between the subject and the object lies the value.
+ - For me, a writer should be more like a lighthouse keeper, just out there by himself. He shouldn’t get his ideas from other people all around him.
+ - I think now the trace of egotism may have been the beginning of all his troubles.
+ - I have been a lifelong Democrat. Like all ideas, though, the Democrat ideas need to be dynamic. It needs to be kept current.
+ - From an endless beach of reality, we take a grain of sand and call it the world.
+ - We always condemn most in others that which we most fear in ourselves.
+ - If someone’s ungrateful and you tell him he’s ungrateful, okay, you’ve called him a name. You haven’t solved anything.
+ - I have money, fame, a happy wife, our daughter Nell.
+ - We’re in such a hurry most of the time we never get much chance to talk. The result is a kind of endless day-to-day shallowness, a monotony that leaves a person wondering years later where all the time went and sorry that it’s all gone.
+ - One geometry cannot be more true than another; it can only be more convenient. Geometry is not true, it is advantageous.
+ - The pencil is mightier than the pen.
+ - The sun of quality does not revolve around the subjects and objects of our existence. It does not just passively illuminate them. It is not subordinate to them in any way. It has CREATED them. They are subordinate to IT.
+ - The world comes to us in an endless stream of puzzle pieces that we would like to think all fit together somehow, but that in fact never do.
+ - It is always good policy to tell the truth unless of course you are an exceptionally good liar. Jerome K. Jerome It is a puzzling thing. The truth knocks on the door and you say, go away, I’m looking for the truth. and so it goes away. Puzzling.
+ - A motorcycle functions entirely in accordance with the laws of reason, and a study of the art of motorcycle maintenance is really a miniature study of the art of rationality itself.
+ - Squareness is such a uniquely intellectual disease.
+ - The real evil isn’t the objects of technology but the tendency of technology to isolate people into lonely attitudes of objectivity. It’s the objectivity, the dualistic way of looking at things underlying technology, that produces the evil.
+ - Stuckness shouldn’t be avoided. It’s the physic predecessor of all real understanding.
+ - What we think of as reality is a continuous synthesis of elements from a fixed hierarchy of a priori concepts and the ever changing data of the senses.
+ - I really don’t mind dying because I figure I haven’t wasted this life.
+ - It’s better not to see than to see wrongly.
+ - People say mental hospitals are for the patients, in fact they are to protect society from them. They are justified in doing that. Society has to do what is best for itself.
+ - Definitions are the foundation of reason. You can’t reason without them.
+ - Quality tends to fan out like waves.
+ - A thing that has no value does not exist.
+ - The best students always are flunking. Every good teacher knows that.
+ - The real ugliness lies in the relationship between people who produce the technology and the things they produce, which results in a similar relationship between the people who use the technology and the things they use.
+ - The major producer of the social chaos, the indeterminacy of thought and values that rational knowledge is supposed to eliminate, is none other than science itself.
+ - Analytic and romantic understanding should be united at a basic level. Reassimilate the passions from which the rational mind fled.
+ - One could almost define life as the organized disobedience of the law of gravity. One could show that the degree to which an organism disobeys this law is a measure of its degree of evolution.
+ - Socrates is not just expounding noble ideas in a vacuum. He is in the middle of a war between those who think truth is absolute and those who think truth is relative. He is fighting that war with everything he has.
+ - Good is a noun rather than an adjective.
+ - Now, to take that which has caused us to create the world, and include it within the world we have created, is clearly impossible. This is why Quality cannot be defined. If we do define it, we are defining something less than Quality itself.
+ - Who really can face the future? All you can do is project from the past, even when the past shows that such projections are often wrong. And who really can forget the past? What else is there to know?
+ - The logic of science was infallible, and if the scientists were sometimes mistaken, this was assumed to be only from their mistaking its rules.
+ - Physical distance between people has nothing to do with loneliness. It’s psychic distance.
+ - That which destroys the old mythos becomes the new mythos.
+ - Laws of nature are human inventions, like ghosts. Laws of logic, or mathematics are also human inventions, like ghosts. The whole blessed thing is a human invention, including the idea that it isn’t a human invention.
+ - Only social patterns can control biological patterns, and the instrument of conversation between society and biology is not words. The instrument of conversation between society and biology has always been a policeman or a soldier and his gun.
+ - Cultivate peace of mind which does not separate one’s self from one’s surroundings. When that is done successfully, then everything else follows naturally.
+ - It’s better to live with a sad truth than with all the happy progress talk you get up here in the North.
+ - Like those in the valley behind us, most people stand in sight of the spiritual mountains all their lives and never enter them, being content to listen to others who have been there and thus avoid the hardships.
+ - Great minds struggle to cure diseases so that people may live longer, but only madmen ask why. One lives longer in order that he may live longer. There is no other purpose.
+ - The more you read, the more you calm down.
+ - We must understand that when a society undermines intellectual freedom for its own purposes it is absolutely morally bad, but when it represses biological freedom for its own purposes it is absolutely morally good.
+ - What I am is a heretic who’s recanted, and thereby in everyone’s eyes saved his soul. Everyone’s eyes but one, who knows deep down inside that all he has saved is his skin.
+ - You’ve got to keep close to your spouse I think, which is a very hard thing to do in America, with everything always pulling you away. I would advise all married people to spend two hours talking to each other. That’s my moral for the day.
+ - If you stare at a wall from four in the morning till nine at night, and you do that for a week, you are getting pretty close to nothingness.
+ - I suppose philosophy is historically not a woman’s game, though that is changing.
+ - Civilization, or “the system” or “society” or whatever you want to call it, is best served not by mules but by free men.
+ - You have to remember, that insane people can do some horrors themselves. I had committed no crime, though. I hadn’t shot anybody. Yet.
+ - I think metaphysics is good if it improves everyday life; otherwise forget it.
+ - Other people can talk about how to expand the destiny of mankind. I just want to talk about how to fix a motorcycle. I think that what I have to say has more lasting value.
+ - Cliches and stereotypes such as “beatnik” or “hippie” have been invented for the antitechnologists, the antisystem people, and will continue to be. But one does not convert individuals into mass people with the simple coining of a mass term.
+ - The number of hypotheses available to explain any given phenomenon is infinite.
+ - Science values static patterns.
+ - We have artists with no scientific knowledge and scientists with no artistic knowledge and both with no spiritual sense of gravity at all, and the result is not just bad, it is ghastly.
+ - Objects are inorganic and biological values; subjects are social and intellectual values.
+ - Familiarity can blind too.
+ - If you are following the dharma no matter what you do it is moral.
+ - Art is anything you can do well. Anything you can do with Quality.
+ - You go up the mountaintop and all you’re gonna get is a great big heavy stone tablet handed to you with a bunch of rules on it.
+ - The kid who is scared is the one the bullies go after. I used to get beat up pretty badly.
+ - That’s the classical mind at work, runs fine inside but looks dingy on the surface.
+ - Talk about rationality can get very confusing unless the things with which rationality deals are also included.
+ - The funny thing about insane people is that it is kind of the opposite of being a celebrity. Nobody envies you.
+ - Education should not be fun. You are being brought up into society and society has a way of doing things. It may not be pleasant but sooner or later you are going to have to do it anyway.
+ - No one is fanatically shouting that the sun is going to rise tomorrow. They know it’s going to rise tomorrow.
+ - The bones and flesh and legal statistics are the garments worn by the personality, not the other way around.
+ - The Good was not a form of reality. It was reality itself, ever-changing, ultimately unknowable in any kind of fixed, rigid way.
+ - An evolutionary morality argues that The North was right in pursuing that war because a nation is a higher form of evolution than a human body and the principle of human equality is an even higher form than a nation.
+ - 99 per cent of your life recognises things without definition, a baby recognises its mother’s face without having it defined. It’s just an arbitrary rule this rule of definition that Socrates set down.
+ - What is seen now so much more clearly is that although the names keep changing and the bodies keep changing, the larger pattern that holds us all together goes on and on.
+ - If there were only one person in the world, is there any way he could be insane?
+ - The buddah can reside in the gears of a motorcycle as easily as in a flower on a mountaintop. To believe otherwise is to demean the buddah; which is to demean one’s self.
+ - Cultures are not the source of all morals, only a limited set of morals. Cultures can be graded and judged morally according to their contribution to the evolution of life.
+
+149 quotes

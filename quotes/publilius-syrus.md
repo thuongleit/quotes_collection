@@ -1,0 +1,378 @@
+ - What is left when honor is lost?
+ - Debt is the slavery of the free.
+ - A wise man will be master of his mind, a fool will be its slave.
+ - Would you have a great empire? Rule over yourself.
+ - Practice is the best of all instructors.
+ - Where there is unity, there is the victory.
+ - The power of habit is very strong.
+ - Not every question deserves an answer.
+ - Audacity augments courage; hesitation, fear.
+ - A rolling stone can gather no moss.
+ - A guilty conscience never feels secure.
+ - Observation, not old age, brings wisdom.
+ - No one know what he can do till he tries.
+ - Pardon others often, thyself never.
+ - Speech is the mirror of the soul.
+ - A good reputation is more valuable than money.
+ - It is only the ignorant who despise education.
+ - To lose a friend is the greatest of all losses.
+ - It is a bad plan that cannot be altered.
+ - You can accomplish by kindness what you cannot by force.
+ - Valor grows by daring, fear by holding back.
+ - From the errors of others, a wise man corrects his own.
+ - Be your money’s master, not its slave.
+ - Never find your delight in another’s misfortune.
+ - Necessity knows no law except to conquer.
+ - A virtuous wife commands her husband by obeying him.
+ - Admonish your friends privately, but praise them openly.
+ - No good man ever became suddenly rich.
+ - The poor lack much, the greedy everything.
+ - A tongue prone to slander is the proof of a depraved mind.
+ - Do not despise the bottom rungs in the ascent to greatness.
+ - A woman either loves or hates; she knows no medium.
+ - A pleasant companion reduces the length of the journey.
+ - One ungrateful person does an injury to all needy people.
+ - To accept a favor is to sell one’s freedom. -Beneficium accipere libertatem est vendere.
+ - Better to be ignorant of a matter than half know it.
+ - In every enterprise consider where you would come out.
+ - No one reaches a high position without daring.
+ - Many receive advice, few profit by it.
+ - Never promise more than you can perform.
+ - Divide the fire, and you will the sooner put it out.
+ - Pardon one offence, and you encourage the commission of many.
+ - Through indecision opportunity is often lost.
+ - It is of no profit to have learned well, if you neglect to do well.
+ - It is a good thing to learn caution from the misfortunes of others.
+ - A pleasant traveling companion on a journey is as good as a carriage. Each day is the scholar of yesterday.
+ - Do not turn back when you are just at the goal.
+ - Take care that no one hates you justly.
+ - Equanimity is calamity’s medicine.
+ - The bow too tensely strung is easily broken.
+ - Ready tears are a sign of treachery, not of grief.
+ - Better use medicines at the outset than at the last moment.
+ - A homely woman is one of the most comely of apes.
+ - An evil gain equals a loss.
+ - The person who receives the most favors is the one who knows how to return them.
+ - The gods never let us love and be wise at the same time.
+ - No hour brings good fortune to one man without bringing misfortune to another.
+ - No one ever lost his honor, except he who had it not.
+ - Only the bold get to the top.
+ - Discord gives a relish for concord.
+ - The pain of the mind is worse than the pain of the body.
+ - Even a god finds it hard to love and be wise at the same time. -Amare et sapere vix deo conceditur.
+ - It matters not what you are thought to be, but what you are.
+ - The wise man avoids evil by anticipating it.
+ - Tears gratify a savage nature, they do not melt it.
+ - Powerful indeed is the empire of habit.
+ - Deliberando saepe perit occasio.
+ - If you can walk, you can run.
+ - To spare the guilty is to injure the innocent.
+ - Confidence, like the soul, never returns whence it has once departed.
+ - It is foolish to fear that which you cannot avoid. -Stultum est timere quod vitare non potes.
+ - He is truly wise who gains wisdom from another’s mishap.
+ - Poverty wants much; but avarice, everything.
+ - When you can despise death, you have conquered all fears.
+ - Anyone who believes that men are the equal of women has never seen a man trying to wrap a Christmas present.
+ - For a good cause, wrongdoing is virtuous.
+ - Adversity shows whether we have friends, or only the shadows of friends.
+ - Money should be mastered, not served.
+ - When innocence trembles, it condemns the judge.
+ - The greater a man is in power above others, the more he ought to excel them in virtue. None ought to govern who is not better than the governed.
+ - Every vice has its excuse ready.
+ - To dispute with a drunkard is to debate with an empty house.
+ - He who helps the guilty, shares the crime.
+ - Let a fool hold his tongue and he will pass for a sage.
+ - A fair exterior is a silent recommendation.
+ - Always shun whatever may make you angry.
+ - It is a very hard undertaking to seek to please everybody.
+ - There is no medicine to cure hatred.
+ - Love, like a tear, rises in the eye and falls upon the breast.
+ - A suspicious mind always looks on the black side of things.
+ - Society in shipwreck is comfort to all.
+ - We simply rob ourselves when we make presents to the dead.
+ - He who quarrels with a drunken man injures one who is absent.
+ - Whatever you can lose, you should reckon of no account.
+ - The weeping of an heir is laughter in disguise.
+ - Where destiny blunders, human prudence will not avail.
+ - Shun an angry man for a moment-your enemy forever.
+ - Friendship is stronger than kindred.
+ - Prosperity has no power over adversity.
+ - He who gets the better of an irascible temperament conquers his worst enemy.
+ - It is a pitiful fortune that is not without enemies.
+ - Anger would inflict punishment on another; meanwhile, it tortures itself.
+ - It is time, not the mind, that puts an end to love.
+ - It is sometimes expedient to forget what you know.
+ - An angry father is most cruel towards himself.
+ - A man suffers death himself as often as he loses those dear to him.
+ - A small loan makes a debt; a great one an enemy.
+ - Any one can hold the helm when the seas are calm.
+ - He is a despicable sage whose wisdom does not profit himself.
+ - A great man may commence life in a hovel.
+ - He wrongly accuses Neptune, who makes shipwreck a second time.
+ - Hares can gambol over the body of a dead lion.
+ - Nothing pleases which is not freshened by variety.
+ - The losing side is full of suspicion.
+ - When reason rules, money is a blessing.
+ - God looks at the clean hands, not the full ones.
+ - In doubtful matters boldness is everything.
+ - How happy the life unembarrassed by the cares of business!
+ - Gain cannot be made without some other person’s loss.
+ - It is easier to add to a great reputation than to get it.
+ - In a heated argument we are apt to lose sight of the truth.
+ - God looks with favor at pure, not full, hands.
+ - Opportunity is lost by deliberation.
+ - Even when we get what we wish, it is not ours.
+ - What a tragedy is help where it harms what it supports!
+ - He who has plenty of pepper will pepper his cabbage.
+ - You should hammer your iron when it is glowing hot.
+ - He who flees from trial confesses his guilt.
+ - The judge is found guilty when a criminal is acquitted.
+ - Great hatred can be concealed in the countenance, and much in a kiss.
+ - Man has been lent, not given, to life.
+ - You must endure what is painful to secure that which is profitable.
+ - There is but a step between a proud man’s glory and his disgrace.
+ - Even when the wound is healed the scar remains.
+ - If you would live innocently, seek solitude.
+ - The gladiator lays his plans after he enters the arena.
+ - No tears are shed when an enemy dies.
+ - Frugality is misery in disguise.
+ - He can best avoid a snare who knows how to set one.
+ - Each day should be passed as though it were our last.
+ - We must give lengthy deliberation to what has to be decided once and for all.
+ - The brave or the fortunate can afford to laugh at envy.
+ - Wisdom had rather be buffeted than not listened to.
+ - To forget the wrongs you receive, is to remedy them.
+ - How unhappy is he who cannot forgive himself.
+ - Every madman considers everyone else a madman.
+ - The things which belong to others please us more, and that which is ours, is more pleasing to others.
+ - That should be considered long which can be decided but once.
+ - He doubly benefits the needy who gives quickly.
+ - He gets through too late who goes too fast.
+ - He is foolish to blame the sea that is shipwrecked twice.
+ - He who has lost honor can lose nothing more.
+ - He who lives only for himself is truly dead to others.
+ - There is no need of spurs when the horse is running away.
+ - A hasty judgment is a first step to recantation.
+ - The wounds of love can only be healed by the one who made them.
+ - Humility means accepting reality with no attempt to outsmart it. -David Richo A rolling stone can gather no moss.
+ - It is as well now and then not to remember all we know.
+ - We may escape misfortune for a while, but the evil day will come.
+ - Fortune, by being too lavish of her favours on a man, only makes a fool of him.
+ - A friend must not be injured, even in jest.
+ - Bad nature never lacks an instructor.
+ - Cruelty isn’t softened by tears; it feeds on them.
+ - At daybreak, when loath to rise, have this thought in thy mind: I am rising for a man’s work.
+ - When fortune flatters, she does it to betray.
+ - The eyes are not responsible when the mind does the seeing.
+ - He blames Neptune unjustly who twice suffers shipwreck.
+ - The coward regards himself as cautious, the miser as thrifty.
+ - Man’s life is short; and therefore an honorable death is his immortality.
+ - Necessity gives the law and does not itself receive it.
+ - Venus yields to caresses, not to compulsion.
+ - Successful guilt is the bane of society.
+ - We tolerate without rebuke the vices with which we have grown familiar.
+ - We die as often as we lose a friend.
+ - Modesty once lost, never returns into favour.
+ - He who conquers his wrath overcomes his greatest enemy.
+ - The remedy for wrongs is to forget them.
+ - Treat your friend as if he might become an enemy.
+ - In love, anger is always false.
+ - You cannot put the same shoe on every foot.
+ - Modest women choose a man by the mind, not the eye.
+ - It is a bitter dose to be taught obedience after you have learned to rule.
+ - Look for a tough wedge for a tough log.
+ - You should go to a pear tree for pears, not to an elm.
+ - They pass peaceful lives who ignore mine and thine.
+ - Wise man also fears a weak enemy.
+ - The most delightful pleasures cloy without variety.
+ - The eyes start love; intimacy perfects it.
+ - A frog would leap from a throne of gold into a puddle.
+ - When Gold argues the cause, eloquence is impotant.
+ - A bad man becomes worse when he apes a saint.
+ - You need not hang up the ivy branch over the wine that will sell.
+ - It is a consolation to the wretched to have companions in misery.
+ - There is no fruit which is not bitter before it is ripe.
+ - He is the furthest from danger, who is on his guard even when in safety.
+ - Each succeeding day is the scholar of that which went before it.
+ - We may with advantage at times forget what we know.
+ - It is well to moor your bark with two anchors.
+ - One day treats us like a hireling nurse, another like a mother.
+ - They live ill who expect to live always.
+ - In excess altercation, truth is lost.
+ - The evil you do to others you may expect in return.
+ - The honied tongue hath its poison.
+ - Depend not on fortune, but on conduct.
+ - To take refuge with an inferior is to betray one’s self.
+ - A gift in season is a double favor to the needy.
+ - Mighty rivers can easily be leaped at their source.
+ - No one should be judge in his own case.
+ - Money does not sate Avarice, but stimulates it.
+ - Agreement is made more precious by disagreement.
+ - He who sounds his own trumpet will soon find plenty to laugh at him.
+ - The end always passes judgement on what has gone before.
+ - Unless you make allowances for your friends foibles, you betray your own.
+ - The wounds of conscience always leave a scar.
+ - One man’s wickedness may easily become all men’s curse.
+ - Pain forces even the innocent to lie.
+ - You are in a pitiable condition if you have to conceal what you wish to tell.
+ - The master is a slave when he fears those whom he rules.
+ - If what must be given is given willingly the kindness is doubled.
+ - They who plough the sea do not carry the winds in their hands.
+ - Even one hair has a shadow.
+ - The wise man guards against the future as if it were the present.
+ - The fear of death is more to be dreaded than death itself.
+ - He who will not grant a favour has no right to ask one.
+ - The habitual living in prosperity is most injurious.
+ - The wretched reflect either too much or too little.
+ - A disorderly patient makes the physician cruel.
+ - When Providence favors, you can make a safe voyage on a twig.
+ - When you are in love you are not wise; or, when you are wise you are not in love.
+ - Patience is the remedy for every misfortune.
+ - He who boasts of a favor bestowed, would like it back again.
+ - While we stop to think, we often miss our opportunity.
+ - It is easy for men to talk one thing and think another.
+ - Nothing can be done quickly and prudently at the same time.
+ - The bare recollection of anger kindles anger.
+ - It is folly to censure him whom all the world adores.
+ - Fortune makes many loans, but gives no presents.
+ - Dangerous he who thinks it safe to die!
+ - Other people’s things are more pleasing to us, and ours to other people. -Aliena nobis, nostra plus aliis placent.
+ - There is no safety in regaining the favor of an enemy.
+ - Some remedies are worse than the disease.
+ - Lovers know what they want, but not what they need.
+ - Every rumor is believed against the unfortunate.
+ - He who lives in solitude may make his own laws.
+ - We desire nothing so much as what we ought not to have.
+ - To love is a pleasure of youth, a sin in old age.
+ - The sweetest pleasure arises from difficulties overcome.
+ - Life is short, but its ills make it seem long.
+ - With little loan you get a friend, with big loan an enemy.
+ - A position of dignity is more easily improved upon than acquired.
+ - You should not live one way in private, another in public.
+ - When you are at sea, keep clear of the land.
+ - All delay is helpful, but it does produce wisdom.
+ - Even speed, when we are anxious, seems like delay.
+ - The hope of reward is the solace of labor.
+ - Unless degree is preserved, the first place is safe for no one.
+ - Learn to see in another’s calamity the ills which you should avoid.
+ - When the bad imitate the good, there is no knowing what mischief is intended.
+ - He who is bent on doing evil can never want occasion.
+ - Gain at the expense of reputation is manifest loss.
+ - A kindness spontaneously offered to him who needs it, is doubly gratifying.
+ - Little does the sick man consult his own interests, who makes his physician his heir.
+ - What is to be once resolved on should be first often well considered.
+ - Danger comes on us more speedily when we treat it with contempt.
+ - It is his nature, not his standing, that makes the good man.
+ - It is kindness immediately to refuse what you intend to deny.
+ - Whom Fortune wishes to destroy she first makes mad.
+ - I often regret that I have spoken; never that I have been silent.
+ - To-day is the pupil of yesterday.
+ - Every accusation against a fallen man gains credence.
+ - A sly piece of good luck, which nobody knows of is delightful.
+ - The wickedness of the few makes the calamity of the many.
+ - There are men steady and wise whose body, words and mind are self-controlled. They are the men of supreme self-control.
+ - Life itself is short, but lasts longer than misfortunes.
+ - No pleasure lasts long unless there is variety in it.
+ - Every one excels in something in which another fails.
+ - The eyes see not what is before them when the mind is intent on other matters.
+ - Past happiness augments present wretchedness.
+ - It is fraud to accept what you cannot repay.
+ - We should lay up in peace what we shall need in war.
+ - A good opportunity is seldom presented, and is easily lost.
+ - Death is fortunate for the child, bitter to the youth, too late to the old.
+ - When two do the same thing, it is not the same thing after all.
+ - The little vices of the great must needs be accounted very great.
+ - A noble spirit finds a cure for injustice in forgetting it.
+ - The loss which is unknown is no loss at all.
+ - Suspicion is ever strong on the suffering side.
+ - Let your life be pleasing to the multitude, and it can not be so to yourself.
+ - It is well not to lend too easy an ear to accusations.
+ - Well does he sleep who knows not that his sleep has been broken.
+ - Grief diminishes when it has nothing to grow upon.
+ - Repentance follows hasty counsels.
+ - What valor cannot win, flattery may.
+ - A god could hardly love and be wise.
+ - The empire of custom is most mighty.
+ - An intemperate patient makes a harsh doctor.
+ - Alas how difficult is it to preserve a high reputation!
+ - It is better to learn late than never.
+ - Vices that are familiar we pardon, and only new ones reprehend.
+ - He who leaves a fault unpunished invites crime.
+ - He who injures one man threatens many.
+ - He who fears his servants is less than a servant.
+ - Conversation is the image of the mind. As the man is, so is his talk.
+ - Friendship neither finds nor makes equals.
+ - We must master our good fortune, or it will master us.
+ - A wise man never refuses anything to necessity.
+ - The future struggles that it may not become the past.
+ - Who would recognize the unhappy if grief had no language?
+ - Amid a multitude of projects, no plan is devised.
+ - Why do we not hear the truth? Because we do not speak it.
+ - When you confer a benefit on those worthy of it, you confer a favor on all.
+ - It a wretched thing to suffer at the hand of one of whom we cannot complain.
+ - To have acquired wealth is with many not to end but to change the nature of their troubles.
+ - Fortune is never satisfied with bringing one sorrow.
+ - The circumstances of others seem good to us, while ours seem good to others.
+ - The eye strays not while under the guidance of reason.
+ - One is not exposed to danger who, even when in safety is always on their guard.
+ - To refuse graciously is to confer a favor.
+ - To have the universe bear one company would be a great consolation in death.
+ - Apathy borders upon folly.
+ - A great fortune enslaves its owner.
+ - He bids fair to grow wise who has discovered that he is not so.
+ - No fortune is so good but that you may find something to grumble about.
+ - What is done hastily cannot be done prudently.
+ - Clean hands are better than full ones in the sight of God.
+ - The swiftest despatch seems slow to desire.
+ - The further the fall, the greater the hurt.
+ - He is much to be dreaded who stands in dread of poverty.
+ - Humility neither falls far, nor heavily.
+ - What greater evil could you wish a miser, than long life?
+ - There is no pain in the wound received in the moment of victory.
+ - There is more of fear than delight in a secret pleasure.
+ - Flattery was formerly a vice; it has now become the fashion.
+ - That delay is our surest protection which enables us to deliberate on the merits of our intentions.
+ - Even to smile at the misfortunes of others is to do an injury.
+ - He is twice a conqueror, who can restrain himself in the hour of triumph.
+ - It is easy to defend the innocent; but who is eloquent enough to defend the guilty?
+ - If you refuse where you have always granted you invite to theft.
+ - The miser is as much in want of what he has as of what he has not.
+ - Confidence is the only bond of friendship.
+ - Give your friend cause to blush, and you will be likely to lose him.
+ - Would you be known by everybody? Then you know nobody.
+ - Fortune is like glass – the brighter the glitter, the more easily broken.
+ - He knows not when to be silent who knows not when to speak.
+ - He who wishes to injure another, will soon find a pretext.
+ - Fortune is like glass; she breaks when she is brightest.
+ - It is vain to look for a defense against lightning.
+ - To die at the command of another is to die twice.
+ - There is no gain so certain as that which arises from sparing what you have.
+ - Keep the golden mean between saying too much and too little.
+ - An end to our getting is the only end to our losses.
+ - To confess a fault freely is the next thing to being innocent of it.
+ - That man has the fewest wants who is the least anxious for wealth.
+ - The poor man is ruined as soon as he begins to ape the rich.
+ - You must endure, and not cry out against that which cannot be avoided.
+ - Hasty conclusions lead to speedy repentance.
+ - To become rich is easy. Much harder is to solve the riddles of of the heart.
+ - Take care not to begin anything of which you may repent.
+ - An enemy despised is the most dangerous of all enemies.
+ - Yesterday should be the teacher of today.
+ - He has existed only, not lived, who lacks wisdom in old age.
+ - It is an unhappy lot which finds no enemies.
+ - When Fortune is on our side, popular favor bears her company.
+ - Death laughs when old women frolic.
+ - That should be regarded as a loss, which is won at the expense of our reputation.
+ - He dies twice who perishes by his own weapons.
+ - He confesses his crime who flees the tribunal.
+ - The highest condition takes rise in the lowest.
+ - Men will judge your past deeds by your last.
+ - Any plan is bad which is incapable of modification.
+ - He whom many fear, has himself many to fear.
+ - The prompter the refusal, the less the disappointment.
+ - Excessive severity misses its own aim.
+ - It is more easy to get a favor from fortune than to keep it.
+ - Union gives strength to the humble.
+ - The friendship that can come to an end, never really began.
+
+376 quotes

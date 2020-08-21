@@ -1,0 +1,278 @@
+ - Write like it matters, and it will.
+ - Judge not, lest ye be judged.
+ - And that is how change happens. One gesture. One person. One moment at a time.
+ - In every end, there is also a beginning.
+ - My personal motto is: WWWWD?: What Would Wonder Woman Do?
+ - Power changes everything till it is difficult to say who are the heroes and who the villains.
+ - People have a habit of inventing fictions they will believe wholeheartedly in order to ignore the truth they cannot accept.
+ - But we can’t go back. We can only go forward.
+ - People think boundaries and borders build nations. Nonsense-words do. Beliefs, declarations, constitutions-words. Stories. Myths. Lies. Promises. History.
+ - If you tell them what they want to hear, they don’t bother to try to see.
+ - I changed the world; the world changed me. Everything you do comes back to you. When you affect a situation, you are also affected.
+ - You can never really know someone completely. That’s why it’s the most terrifying thing in the world, really – taking someone on faith, hoping they’ll take you on faith too. It’s such a precarious balance, It’s a wonder we do it at all. And yet...
+ - People always fear what they don’t understand, Evangeline. History proves that.
+ - Everyone’s dying. A little, every day. Make it count.
+ - Because you don’t notice the light without a bit of shadow. Everything has both dark and light. You have to play with it till you get it exactly right.
+ - I’m a librarian, not an oracle.
+ - How I’d love to get away from here and be someone else for a while in a place where no one knows or expects certain things from me.
+ - Because ‘You’re perfect just the way you are,’ is what your guidance counselor says. And she’s an alcoholic.
+ - These are hard times. The world hurts. We live in fear and forget to walk with hope. But hope has not forgotten you. So ask it to dinner. It’s probably hungry and would appreciate the invitation.
+ - We sit and listen and are enthralled anew, for good stories, it seems, never lose their magic.
+ - Why is it that some secrets can drown you while some pull you close to others in a way you never want to lose?
+ - We create the illusions we need to go on.
+ - I do not want to pass the time. I want to grab hold of it and leave my mark upon the world.
+ - There is never any turning back Gemma. You have to go forward. Make the future yours.
+ - Sometimes we seek that which we are not yet ready to find.
+ - To live is to love, to love is to live.
+ - It is funny how you do not miss affection until it is given, but once it is, it can never be enough; you would drown in it if possible.
+ - To each his own magic.
+ - I’m just saying it’s not all sand castles and ninjas.
+ - You must remember, my dear lady, the most important rule of any successful illusion: First, the people must want to believe in it.
+ - But if we are to remain a great empire, we must have a greater understanding of the hearts and minds of others.
+ - Tell my brother to remember his heart in all things. That is where his honor and his destiny will be found. Tell him.
+ - Peace is not happenstance. It is a living fire that must be fed constantly. It must be tended to with vigilance, else it dies out.
+ - But the past cannot be changed, and we carry our choices with us, forward, into the unknown. We can only move on.
+ - What happens if your choice is misguided, You must try to correct it But what if it’s too late? What if you can’t? Then you must find a way to live with it.
+ - In a world like this one, only the random makes sense.
+ - Men have feelings too, you know. You bruise the petals of my manflower.
+ - She knew what it was to wait for someone who would never come home. She knew that grief, like a scar, faded but never really went away.
+ - There are no wrong decisions – only different ones.
+ - She smiled as sweetly as a show poster for the glorified, all-American Ziegfeld girl just before dumping her second cigarette into Wally’s fresh cup of coffee.
+ - There is nothing more terrifying than the absoluteness of one who believes he’s right.
+ - The world is only as fair as you can make it. Takes a lot of fight. A lot of fight. But if you stay in here, in your little cave, that’s one less fighter on the side of fair.
+ - I know I’ve done the right thing but I couldn’t feel worse about it, and I suppose that is part of what it is to lead.
+ - I run after her, not really giving chase. I’m running because I can, because I must. Because I want to see how far I can go before I have to stop.
+ - The world expected girls to pluck and primp and put on heels. Meanwhile, boys dressed in rumpled T-shirts and baggy pants and misplace their combs, and yet you were suppose to fall at their feet? Unacceptable.
+ - Will you punish me forever?
+ - We all walk in a land of dreams. For what are we but atoms and hope, a handful of stardust and sinew? We are weary travelers trying to find our way home on a road that never ends. Am I a part of your dream? or are you but a part of mine?
+ - There are no safe choices. Only other choices.
+ - There’s a lot about discovering who you are and how difficult that is. And it never stops.
+ - I should never be left alone with my mind for too long.
+ - You’ve been assigned an identity since birth. Then you spend the rest of your life walking around in it to see if it really fits. You try on all these different selves and abandon just as many. But really it’s about dismantling all that false armor, getting down to what’s real. -Going Bovine.
+ - You can never know about about your own destiny: are the people you meet there to play a part on your oun destiny, or do you exist just to play a role in theirs?
+ - I refuse to let the past find me here.
+ - I don’t have time to feel sorry for myself. I’ve got to think.
+ - I change the world, the world changes me.
+ - What you want can be yours. But you must first know what it is you want.
+ - Who but the mad would choose to keep on living? In the end, aren’t we all just a little crazy?
+ - Or perhaps it is some combination of spirit and desire, love and hope, some alchemy that we each possess and can put to use, if we first know where to look without flinching.
+ - I wish to live for myself. I should never want to be trapped.
+ - I’ve heard it said that God is in the details. It’s the same with the truth. Leave out the details, the crucial heart, and you can damn someone with the bare bones of it.
+ - So, now I’ve been to see a drug counselor who told me I need to lay off the drugs and talk about my feelings, and a shrink who heard what I had to say and immediately put me on drugs.
+ - There’s a moment of profound sadness that can be dispelled only by summoning my anger.
+ - The trouble with morning is that it comes well before noon.
+ - What if evil doesn’t really exist? What if evil is something dreamed up by man, and there is nothing to struggle against except out own limitations? The constant battle between our will, our desires, and our choices?
+ - How terrible it is to have no cares, no longings. I do not fit. I feel too deeply and want too much. As cages go, it is a gilded one, but I shall not live well in it or any cage for that matter.
+ - We all do things we desperately wish we could undo. Those regrets just become part of who we are, along with everything else. To spend time trying to change that, well, it’s like chasing clouds.
+ - Instead, I try to adjust to the dawn, letting the tears fall where they may, because it is morning; it is morning and there is so much to see.
+ - Naughty John, Naughty John, does his work with his apron on. Cuts your throat and takes your bones, sells ’em off for a coupla stones.
+ - Did God ever cry over his lost angel, I wonder?
+ - The hand you hold the longest is your own.
+ - The best day of my life happened when I was five and almost died at Disney World. I’m sixteen now, so you can imagine that’s left me with quite a few days of major suckage.
+ - When she can’t bring me to heal with scolding, she bends me to shape with guilt.
+ - Travel opens your mind as few other things do.
+ - Travel opens your mind as few other things do. It is its own form of hypnotism, and I am forever under its spell.
+ - I’m sorry, Gemma. But we can’t live in the light all of the time. You have to take whatever light you can hold into the dark with you.
+ - You set fire to my house, killed my family, and ate my dog. But steal my boyfriend? That’s a step too far.
+ - Yes, go on. Leave. You’re always coming and going. The rest of us are stuck here. Do you think he’d still love you if he knew who you are? He doesn’t really care – only when it suits him.
+ - I don’t think you should die until you’re ready. Until you’ve wrung out every last bit of living you can.
+ - There is an ancient tribal proverb I once heard in India. It says that before we can see properly we must first shed our tears to clear the way.
+ - She never utters a sound even when she’s crying, and that makes me a little sad. Doesn’t seem right. When you cry, people should hear you. The world should stop.
+ - Maybe girls need an island to find themselves. Maybe they need a place where no one’s is watching them so they can be who they really are.
+ - It is a giggle full of high spirits and merry mischief, proof that we never lose our girlish selves, no matter what sort of women we become.
+ - She bestowed the blessing of a wild girl’s lips.
+ - Board the cows! We’ve come to enslave your marigolds.
+ - Reminds us that greatness lies even in the smallest of moments, in the humblest of hearts, and we shall, each of us, be called to greatness. Whether we shall rise to meet it or let it slip away is the challenge put before us all.
+ - I’m like everyone else in this stupid, bloody, amazing world. I’m flawed. Impossibly so. But hopeful. I’m still me.
+ - I love you for who you are, not who the world thinks you should be.
+ - The uncertainty of our future is nothing more than a fog of breath on a windowpane.
+ - The rules of magic, my dear, are best not discusses. For once we understand the illusion, we no longer believe it.
+ - Clothing left on the bed unfolded. Books stained with coffee spots. Tabs not paid until the last possible second. Boys kissed and then forgotten in a week’s time.
+ - I will tell you the story of how we found ourselves in a realm where dreams are formed, destiny is chosen, and magic is as real as a handprint in the snow.
+ - To those who will see, the world waits.
+ - It’s knowing I’ll never have what she has – a beauty so powerful it brings things to you. I fear I will always have to chase things I want. I’ll always have to wonder whether I’m truly wanted or whether I’ve just been settled for.
+ - Who the heck is Don Quick-oats?
+ - The night’s chilly breath tickles up my neck and finds my ear, whispering secrets only the wind knows.
+ - We don’t look at each other anymore. Not really. Not since I pulled him from that opium den. Now when I look at him, I see the addict. And when he looks at me, he sees what he would rather not remember. I wish I could be his adored little girl again, sitting at his side.
+ - The dull pain of truth weights my soul, pulling it under. I am left hopelessly awake.
+ - Her eyes take on that suspicious, wounded look girls get when they know they’ve fallen off the top rung of friendship and someone else has passed them, but they don’t know when or how the change took place.
+ - We’re comfortable with women in certain roles but not comfortable with women expressing anger or fully accepting their power. The most daring question a woman can ask is, ‘What do I want?’
+ - I feel like I swallowed a Magritte. Like on the inside, I’m made of clouds and floating eyes, green apples, and slowly rising men in bowler hats.
+ - When I dream, I dream of him. For several nights now he’s come to me, waving from a distant shore as if he’s been waiting patiently for me to arrive. He doesn’t utter a word, but his smile says everything: I’ve missed you.
+ - Evie didn’t mind yelling, but she hated feeling judged. It got under her skin and made her feel small and ugly and unfixable.
+ - The face staring back at me isn’t beautiful but she isn’t something that would scare the horses, either.
+ - Feast for the Fisherman, the ultimate emo band. Said to be sold with a complimentary prescription for antidepressants and a free flatiron.
+ - I’m an oddity of one, my strangeness too complicated to explain or share.
+ - The man in the shop peered disapprovingly at Evie through the glass. She pumped her arms and legs up and down in imitation of a marching band, gave the man a salute, and continued her meandering walk to the museum.
+ - When I dream, I dream of him.
+ - A guy’s gotta live, you know, gotta make his way and find his meaning in life and love, and to do that he needs coffee, he needs coffee and coffee and coffee.
+ - We’ve barley stepped into the bright glow of the realms when everything goes dark...
+ - Please, I’m a transgender former boy-bander. You think I don’t know how to defend myself?
+ - In them, she saw the sham of her life laid out like a book, the foolish belief that she, that anyone, could escape the consequences of this world, could flee from death. That was the deceit. The true serpent in the garden.
+ - A place to keep all your secrets.
+ - Do you think they missed him terribly when he fell? Did God cry over his lost angel, I wonder?
+ - Any book that can help you survive the slings and arrows of adolescence is a book to love for life; ‘The Catcher in the Rye’ did just that, and I still do love it.
+ - Time has no meaning. I feel as if I have been left in the desert to die and am eagerly awaiting the vultures to begin their work and end my misery.
+ - There is a time in every life when paths are chosen, character is forged. I could have chosen a different path. But I didn’t. I failed myself.
+ - Im a techno moron. I need help just to plug in my video camera.
+ - I invited myself. Thought this table needed some class.
+ - We’re like pretty horses, and just as on horses, they mean to put blinders on us so we can’t look left or right but only straight ahead where they would lead.
+ - Didn’t you have any sadistic nannies who told you these tales to keep you quiet and well behaved at night? Heavens, what’s to become of the Empire if governesses have lost their touch for scaring the wits out of their girls?
+ - You are truly Satan’s sequined spawn.
+ - It’s so laughable that it’s somewhere beyond comedy and right into tragedy again.
+ - They would place their hands together inside the circle so that they could walk in each other’s dreams. It forged a bond that could not be broken. The circle represents love in eternity. For there is no beginning and no end.
+ - I want to ask him if it’s possible that a girl can be born unlovable, or does she just become that way?
+ - It keeps her purity vacum-sealed to preserve its freshness for her future husband.
+ - Prepared to fly, even if she has to loose her legs to do it.
+ - There’s no such thing as nothing. In every nothing, there’s a something. In fact, there could be everything!
+ - I am dying a thousand cruel and unusual deaths as fifty pairs of eyes take me in, size me up like something that should be hanging over a fireplace in a gentleman’s den.
+ - Our mouths and bodies speak for us in a new language as the trees shake loose a rain of petals that stick to our slickness like skins we will wear forever. And just like that, I am changed.
+ - I’ve been poked and prodded in places I’d always prided myself on keeping untouched for that one special doctor who gives me a ring and a promise someday.
+ - I’ve never been in love. I will die without knowing what it feels like to need to see one person’s face when you go to sleep at night, to crave seeing it when you wake up. I wish I knew.
+ - But what was the point of living so quietly you made no noise at all?
+ - Reason was for suckers and Presbyterians.
+ - They don’t know what they’re in for at Spence, getting me, a ghost of a girl who’ll nod and smile and take her tea but who isn’t really here.
+ - I am starting a collection of only right-hand gloves. It’s ever so bourgeois to have two.
+ - Might. Is there any opiate more powerful than that word?
+ - No one can live in the light all the time.
+ - He took comfort in the neon signs, the wild strands of jazz creeping out of clubs whenever happy swells of people pushed through the doors in their finery.
+ - We are English, and I expect you to behave as such. No more crying.
+ - Sheep. I’m stuck in a boarding school filled with sheep.
+ - Jeez, someone needs to push the reset button on this planet.
+ - Everyone seems to want more form me. I am a thoroughly disappointing girl around. I shall wear a scarlet ‘D’ upon my bosom for all to see so that they will know not to raise their expectations.
+ - People will believe anything if it means they can go on with their lives and not have to think too hard about it.
+ - You couldn’t be perfect enough to keep the world from betraying you.
+ - Wow, you’re awesome and The universe loves a winner, so the universe must really love you!
+ - Everything is randomly connected.
+ - It’s always darkest before the ultimate sparkle.
+ - Tonight, she went into the woods, and I fear she shall live in the woods of my soul for the rest of my days.
+ - Thou shalt not steal. I seem to recall that being one of God’s I’d rather you didn’t lest I have to smite you into ash commandments.
+ - No? Part girl, part wolf? Do they lick their butter knives?
+ - And for a moment, I understand that I have friends on this lonely path; that sometimes your place is not something you find, but something you have when you need it.
+ - This is how the fire starts. This is how we burn.
+ - They misspelled ‘party.’ How evil genius can they be?
+ - No, I call. Come back. I’m here, he says. But I can’t see. It’s too bright. You can’t hold back the light, Gemma. I’m here. Trust me.
+ - She loved attention. It was like a glass of the best champagne – bubbly and intoxicating – and as with champagne, she always wanted more of it. Still, she didn’t want to seem like an easy mark. “If you must know, I’ve come to join a convent,” Evie said, testing him.
+ - Felicity and I watch the dancers moving as one. They spin about like the earth on it’s axis, enduring the dark, waiting for the sun.
+ - I’m not interested in being polite. It’s false.
+ - HI. I’m from Arkansas, the cantaloupe state. And tonight, I hope you will hold my melons close to your heart and vote me your Miss Teen Dream.
+ - They see her differently now, as somebody. And isn’t that what everyone wants? To be seen?
+ - Around us the night creatures have their say. We are surrounded by a symphony of crickets and frogs. Neither of us feels the need to speak, and I suppose that is one of the qualities I find comforting in Kartik. We can be alone together.
+ - Will was making a speech, something about having been young and careless once, the sort of thing old-timers said when they issued a deathblow, as if they thought their sanctimonious ramblings disguised as empathy would be welcomed, but Evie was only half listening.
+ - Things aren’t good or bad in and of themselves. It’s what we do with them that makes them so.
+ - There is a dualism inherent in democracy – opposing forces pushing against each other, always. Culture clashes. Different belief systems. All coming together to create this country. But this balance takes a great deal of energy.
+ - If God has nothing better to do than punish schoolgirls for a bit of tomfoolery, then I’ve no use for God.
+ - People aren’t always what you want them to be.
+ - He wanted to hit something or someone. He wanted to burn up the whole world, heal it, and burn it down again.
+ - All the small, simple, conscious acts of living a sudden defense against the dying we do every day.
+ - Its so daunting to walk into a classroom or a school auditorium. Its like the worlds weirdest blind date. I know all the students are thinking, Who is this tool standing up in front of us?
+ - Libraries are the torch of the world, illuminating the path when it feels too dark to see. We mustn’t allow that torch to be extinguished.
+ - You are working up to Mr. Fantastic Fiction levels of Zombie Expert, which is like playing Guitar Hero on some level that actually melts the guitar controller, burning your fingers with searing hot plastic till you scream in pain. Only with words. And zombies.
+ - Think: who has vans, huh? Soccer moms and serial killers.
+ - We have traveled through space and time. We have been many places. Visited many worlds. And there is good news: the acoustics everywhere are terrific.
+ - Just once I’d like to meet a fella who isn’t a phony. Somebody who doesn’t wanna buy me a fur so he can show me off to his boys.
+ - How do people stay in love, anyway? Is it a choice? Or is it like those plants we studied in biology that mutate into something new and totally different but are still part of the same plant family?
+ - The dark does not weep for itself because there is no light. Rather, it accepts that it is the dark.
+ - Free the snow globes!
+ - Warning: If you are insufferable, do not walk here. We shall eat you down to the marrow.
+ - I am no longer content to be the scared, obedient schoolgirl. Who are you, a stranger, to tell me what I can and cannot do?
+ - Prohibition? I drink to its health whenever I can.
+ - Retribution is a dog chasing its tail.
+ - I told myself it was the snow – she couldn’t possibly get to Philadelphia on the roads. I told myself a hundred lies. Children do that. It’s amazing the sorts of things you’ll make yourself believe.
+ - Please do not strain yourself, Miss Doyle. I won’t have my girls going cross-eyed in the name of art.
+ - I thought research would be more glamorous, somehow. I’d give the librarian a secret code word and he’d give me the one book I needed and whisper the necessary page numbers. Like a speakeasy. With books.
+ - No one can steal our dream.
+ - Any librarian or scholar will tell you: Close is not the same as accurate.
+ - Beauty, grace, and charm my foot. It’s a school for sadists with good tea-serving skills.
+ - It was a kiss small in its ministrations but epic in its feeling.
+ - As one, they leap, laughing, and that is where we leave them – mouths open, arms spread wide, fingers splayed to take in the whole world, bodies flying high in defiance of gravity, as if they will never fall.
+ - Without further warning, the sky opens up and cries.
+ - Life don’t come to you, Memphis. You gotta take it. We have to take it. Because ain’t nobody handing it to us.
+ - Pastoralia by George Saunders. Possibly my favorite book. Its one of the weirdest books Ive ever read. If Monty Python and Thomas Pynchon had a love child, and it was raised by Frank Zappa on a weird commune, that would be this book.
+ - When you looked up to the sky and cried ‘Why?’ sometimes the sky shrugged, yet other times it answered with warm assurance of linked hands.
+ - The mere suggestion of fame and fortune casts a glamour all its own. It is rather alarming how quickly people will turn someone else’s fiction into fact in order to support their own fictions of themselves.
+ - She’s no beauty, mate.
+ - When you peeled back the skin, you were dealing with bone and muscle, blood and nerve endings. It was all the same. She liked the beautiful logic of the circulatory system, the elegance of the neurological, and the fierce warrior spirit of the heart. The body had rules and it had quirks.
+ - My misery is reaching epidemic proportions.
+ - One could argue that it’s romantic to die for love. Of course, then you’re dead and unable to take that honeymoon trip to the Alps with all the other fashionable young couples, which is a shame.
+ - With each shimmy, the bugle beads on their scandalously revealing costumes swung and shook. It was the sort of display Evie knew her mother would have found appalling – an example of the moral decay of the young generation. It was sexual and dangerous and thrilling, and Evie wanted more of it.
+ - May I suggest that you all read? And often. Believe me, it’s nice to have something to talk about other than the weather and the Queen’s health. Your mind is not a cage. It’s a garden. And it requires cultivating.
+ - We’re still expected to color within the lines of accepted femininity, and women who step out of those lines are usually attacked, whether verbally or physically.
+ - I think about dying every day, because I can’t stop thinking about living.
+ - What kind of person doesn’t let you have gummi bears?
+ - The wolf was at the door. His shadow spilled into the room, taking it over.
+ - There were few things worse than being ordinary, in Evie’s opinion. Ordinary was for suckers.
+ - You’ve influenced the world not because you wanted to hug it and cuddle it and call it sweet thing, but because one day you wanted to beat the crap out of somebody but you didn’t. You made a painting instead.
+ - For once, Evie didn’t know what to say. She hadn’t really thought of her uncle as very human. He was more like a textbook who occasionally remembered to put on a tie. But it was clear that he was, indeed, human, with a deep wound named Rotke.
+ - There was something about the island that made the girls forget who they had been. All those rules and shalt nots. They were no longer waiting for some arbitrary grade. They were no longer performing. Waiting. Hoping. They were becoming. They were.
+ - If there was one truth Evie had learned in her short life, it was that forgiveness was easier to seek than permission. She didn’t plan to ask for either one.
+ - The desperation meeting the silence with its unmasked wish.
+ - I’m from the health department. You’ve heard of Typhoid Mary? This fella’s got enough typhoid to start his own colony.
+ - We have work to do if you are not to be a total failure like high-waisted, acid-wash jeans.
+ - I know because I read. Might I suggest you try it?
+ - It occurs to me that cricket is not the true sport in London – gossip is.
+ - Jericho lay back down on his side, watching her breathe just an arm’s length from him. She was not beautiful while she slept; her mouth hung open and she snored very lightly, and this, despite everything that had happened, made him smile.
+ - Careful there, Poet. I might start to believe you.
+ - I will never, ever drink whiskey again. From now on, it’s strictly sherry.
+ - I had a friend who said, “You don’t have an internal critic. You have an internal sadist.”
+ - Evie wanted to cry. From fear. From exhaustion, yes. But mostly from the cruel uselessness, the damned stupid arbitrariness of it all.
+ - True affection and love have a purity which shall always prevail over bigotry.
+ - I had thought Felicity dangerous a moment ago, when she felt powerful. I was wrong. Wounded and powerless, she is more dangerous than I could imagine.
+ - A gentle breeze catches in the branches then and I hear it, soft and low, a murmured prayer – Gem-ma, Gem-ma – and then the leaves bend down and trail delicate fingers across my cold cheeks.
+ - It isn’t that we do what we want. It’s that we’re allowed to want at all.
+ - But sons are a different matter to a man. More a duty than an indulgence.
+ - Just once, she’d like to be the exciting one, the girl somebody wanted.
+ - We’re each of us our own chiaroscuro, our own bit of illusion trying to emerge into something solid, something real. We’ve got to forgive ourselves that. I must remember to forgive myself. Because there’s an awful lot of gray to work with. No one can live in the light all the time.
+ - If this were a movie, I would bust a secret move so fierce the entire place would be razed to the ground. I’d finish with something snappy like “And don’t forget my soda, punk” while I strolled off into the night.
+ - Do not be tempted by English roses. Their beauty fades, but their thorns are forever.
+ - Greetings, ax murderer! I was just wondering how you like your eggs?
+ - Just because you’re funny doesn’t mean you get to be cruel.
+ - My cholera’s acting up again.
+ - Women who have power are always feared.
+ - Truth casts a spell of its own.
+ - You are unique, and this is a beautiful, beautiful thing, grasshopper.
+ - And now I understand that truth casts a spell of its own, one I’m not sure of how to hold on to, though I’m desperate to try.
+ - Ain’t that a sight? With all the things we know and learn, we still ain’t touched the big mysteries – where we come from, where we go next, why we even her. And when something truly miraculous happens, we run and hide in our caves. We deny.
+ - I hate high heels. Walking in high heels for eight hours a day should be forbidden by the Geneva Convention.
+ - Can we really conquer chaos so easily? If that were so, I should be able to prune the pandemonium of my own soul into something neat and tidy rather than this maze of wants and needs and misgivings that has me forever feeling as if I cannot fit into the landscape of things.
+ - When the world moves forward too fast for some people, they try to pull us all back with their fear.
+ - People see what they want to see when they need to.
+ - All things are possible.
+ - The beast attempts a beautific look that could be mistaken for a bout of painful wind.
+ - Maybe that’s what real friendship is – getting so used to people that you need to be annoyed by them.
+ - I am for hockey. I find I should like to hit something with a stick. -Gemma Doyle Trilogy.
+ - Does my new feminism make me look fat?
+ - She wished she were as inconsequential as the ghosts in her dreams.
+ - It’s possible to pretend I’m someone other than who I am, and if I pretend long enough, I can believe it.
+ - Corrupt my brother, will you? I’ll see you in hell first, sir.
+ - Sitting in my favorite coffeehouse with a new notebook and a hot cup of java is my idea of Heaven.
+ - When the music is over, she keeps her head down till she finds her seat again, and I wonder how many times each day she dies a little.
+ - The key holds the truth.
+ - I can see his pain, see it in the way he runs his fingers through his hair, over and over, and I understand what it costs him to hide it all.
+ - Discord need not be an impediment. Differences can bring strength.
+ - What do you feel? I’ve never been asked this question once. None of us has. We aren’t supposed to feel. We’re British.
+ - I am a jumble of passions, misgivings, and wants. It seems that I am always in a state of wishing and rarely in a state of contentment.
+ - I’ve never done acid, finding it hard to go willingly to a place that could be frightening, hellish, and totally beyond my control. A place much like high school.
+ - Adina appealed to the sky. “We asked for rescue and you sent us incompetent rockstar pirates with a broken ship and perfect abs?” “Thank you, God,” Petra said.
+ - And when it comes, her kiss is like something not so much felt as found.
+ - They kept the lie going, and the people loved it.
+ - How can my ankles and arms be obscene?
+ - Dude, this is a stoner conversation and we’re not even high.
+ - She hadn’t meant to get trapped in a conversation. That was the trouble with offering help to old people.
+ - I thought I was having an existential crisis, but it was nothing. Please don’t tailgate: body in trunk.
+ - There are times when one friend requires the blind faith of another...
+ - I can be whatever. You can be whatever. We can be whatever. Whatever, together.
+ - Scoring well on tests is the sort of happy thing that gets the school district the greenbacks they crave. Understanding and appreciating the material are secondary.
+ - Agent Jones held Sinjin’s face in his hands. “I’m going to make balloon animals. People need balloon animals.” “How right you are, strange delusional man,” Sinjin said.
+ - Brought to you by The Corporation: In your homes and in your pants.
+ - I wonder how many times each day she dies a little.
+ - There is no greater power on this earth than story.
+ - I’ve had so many bikini waxes, I cry every time I see a Popsicle stick.
+ - They swoon over Tom, who preens for them, bowing, which sets them to blushing and giggling. God help us all.
+ - And just as I begin to believe that all is well, there is some subtle change in the light. The room takes its true shape. I fight to go back to that blissful ignorance, but it is too late. The dull pain of truth weights my soul, pulling it under. I am left hopelessly awake.
+ - Memphis – it’s just a bird. Birds fly around, brother. It’s what they do. It’s not following you, and it’s not a sign. Unless you really did give it candy and flowers, in which case you are one strange brother.
+ - He plants his feet stubbornly, adopting what he must think is an heroic post. He’s just begging for a pigeon to fly by and relieve itself.
+ - That’s what living in their world is-a big lie. An illusion where everyone looks the other way and pretends that nothing unpleasant exists at all, no goblins of the dark, no ghosts of the soul.
+ - I’d like to thank readers. Every time you open a book, it is a strike against ignorance. Unless you’re reading Sarah Palin.
+
+276 quotes

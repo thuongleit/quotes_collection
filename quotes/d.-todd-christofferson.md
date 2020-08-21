@@ -1,0 +1,37 @@
+ - The gospel of Jesus Christ opens the path to what we may become.
+ - The central purpose of all scripture is to fill our souls with faith in God the Father and in His Son, Jesus Christ.
+ - The gifts of the Holy Spirit are testimony, faith, knowledge, wisdom, revelations, miracles, healing, and charity, to name but a few...
+ - A covenant is an agreement between God and man, an accord whose terms are set by God.
+ - Many things are good, many are important, but only a few are essential.
+ - True success in this life comes in consecrating our lives – that is, our time and choices – to God’s purposes. In so doing, we permit Him to raise us to our highest destiny.
+ - With confidence we testify that the Atonement of Jesus Christ has anticipated and, in the end, will compensate all deprivation and loss for those who turn to Him. No one is predestined to receive less than all that the Father has for His children.
+ - In creating a family, we fulfill our greatest purpose on earth.
+ - Repentance is a divine gift, and there should be a smile on our faces when we speak of it. It points us to freedom, confidence, and peace. Rather than interrupting the celebration, the gift of repentance is the cause for true celebration.
+ - Freedom comes not from resisting truth, but from applying it.
+ - The work of our missionaries is a magnificent expression of the Lord’s redeeming love.
+ - Whatever the cost of repentance, it is swallowed up in the joy of forgiveness.
+ - Integrity is fundamental to being men. Integrity means being truthful, but it also means accepting responsibility and honoring commitments and covenants.
+ - Everyone has gifts; everyone can contribute.
+ - Moral discipline is the consistent exercise of agency to choose the right because it is right, even when it is hard.
+ - All of us can meet God’s high expectations.
+ - What does God want me to do with the resources, time, and talents He has given me?
+ - As days lengthen into weeks and months and even years of adversity, the hurt grows deeper. The Church cannot hope to save a man on Sunday if during the week it is a complacent witness to the crucifixion of his soul.
+ - We do not need to achieve some minimum level or capacity or goodness before God will help – divine aid can be ours every hour of every day, no matter where we are in the path of obedience.
+ - Keep going and the Lord will help you.
+ - Work builds and refines character, creates beauty, and is the instrument of our service to one another and to God.
+ - Without repentance, there is no real progress or improvement in life. Pretending there is no sin does not lessen its burden and pain. Suffering for sin does not by itself change anything for the better. Only repentance leads to the sunlit uplands ofa better life.
+ - As men of the priesthood, we have an essential role to play in society, at home, and in the Church. But we must be men that women can trust, that children can trust, and that God can trust.
+ - The greatest service we can provide to others in this life, beginning with those of our own family, is to bring them to Christ.
+ - One of the blessings of the temple is the perspective that it provides. When we go to the house of the Lord, we leave all of our cares and problems at the door. And when we come back out, they’re still there. We have to pick them back up and they haven’t changed, but what has changed is us.
+ - A mother can exert an influence unequaled by any other person in any other relationship.
+ - The Church and the world and women are crying for men, men who are developing their capacity and talents, who are willing to work and make sacrifices, who will help others achieve happiness and salvation.
+ - Any pain entailed in repentance will always be far less than the suffering required to satisfy justice for unresolved transgression.
+ - You cannot lift others to virtue on the one hand if you are entertaining vice on the other.
+ - Of all your associations, it is your relationship with God, your Heavenly Father, who is the source of your moral power.
+ - Take responsibility and go to work so God has something to help us with.
+ - A God who makes no demands, is the functional equivalent of a God who does not exist.
+ - Quorum and group leaders should provide the leading voice and laboring oar in every ward and branch council regarding retention of converts.
+ - The greatest good we can do in helping others become what they can become will be to lead them to the Savior.
+ - Only through repentance do we gain access to the atoning grace of Jesus Christ.
+
+35 quotes

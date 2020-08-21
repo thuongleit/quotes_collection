@@ -1,0 +1,76 @@
+ - We only have one life and one body to care of, and we better do it right. You never know what tomorrow may bring and so we better live this life the best we can and be grateful for everything we have.
+ - I think luck falls on not just the brave but also the ones who believe they belong there.
+ - Everybody believes in something... Most of all, we should believe in ourselves.
+ - Tennis is a mental game. Everyone is fit, everyone hits great forehands and backhands.
+ - In my case, I can sincerely say nothing is impossible.
+ - I always try to adjust to the situation.
+ - I always tried to win. I was as competitive as I am today.
+ - I love being around people who care about me, and I care about them.
+ - I don’t think, that you can always – you can ever – get your game to perfection, you know. Only if you’re Federer.
+ - No, I have something else between my legs.
+ - I stopped thinking too much about what could happen and relied on my physical and mental strength to play the right shots at the right time.
+ - I want the same thing I’ve wanted since I was 7 years old. I want to be No. 1.
+ - I am the greatest tennis player. The other players are like coins in my pocket that I give to a homeless man.
+ - All children have rights and those rights must be protected.
+ - I embraced, I think, the process of becoming No. 1 of the world, which was long and difficult, but it’s sweeter in the end.
+ - My nutritionist has done a great job in changing my diet after we established I am allergic to things like gluten – I can’t eat pizza, pasta and bread. I have lost some weight, but my movement is sharper and I feel great.
+ - Joking around is part of my personality, just who I am.
+ - My father believed in me many times more than I believed in myself.
+ - You have to consistently be successful to be one of the top players in the world, and everything is possible in life.
+ - Serbian history tells that family is the most important thing and you have to stick with the family.
+ - My father never talked about the sacrifices that the family made for me.
+ - Those born into poverty or on the margins of society require our extra support to realize their dreams.
+ - Building a solid foundation in the early years of a child’s life will not only help him or her reach their reach their full potential but will also result in better societies as a whole.
+ - When the last point is done, we are humans. Give your opponent a hug and say, ‘great fight,’ and that’s all.
+ - I had a unique privilege to have a good start in life and a chance to develop my talents.
+ - I had to listen to the classical music because it calms me down, calms my nerves down.
+ - Each year represents new challenges and obstacles. You have to adjust.
+ - I have always valued the care for my body, and my mind and had holistic approach to life. I always thought this is utmost importance for my tennis.
+ - I always try to have something that keeps my mind relaxed, keeps my mind a little bit off tennis.
+ - I’m trying not to pay too much attention to the rankings because calculations can distract you.
+ - In order to stay where I am – and I want to do that – I have to stay dedicated as well as I have been before I became No. 1.
+ - You have to believe on the court. In the end, it’s mental. In these moments against a great champion like Rafa, you have to believe. It’s all about stepping in and taking your chances. I always believed, but it’s a process of learning.
+ - The confidence is there, the game is there, but physically you can’t fight nature sometimes. You can’t do much about it.
+ - It’s always easier if you have the support of your family, if you’re not alone. I came from a country that has been through a lot of troubles in the last 20 to 30 years, but we have been through them together.
+ - I got married, going to become father soon, being No. 1 in the sport that I love with all my heart. I mean, it’s pretty awesome.
+ - Tennis is my life, obviously; I need to focus, I need to win. But it’s not the only thing. I’m not going to play forever.
+ - I’m happy, my family’s happy, everything is going well.
+ - I’m a happy man, because I am successful in what I do, of course; but what makes me most happy is I have people around me that I love and who love me back. This, for me, is the most important thing. Nobody likes to be alone.
+ - I haven’t been in tennis for that long, but what I can say is that we have a lot of young guys at the top who are willing to do a lot of good things for tennis in general.
+ - The tradition in Serbia has always been team sports – football, basketball, handball, volleyball and water polo, individual sports are not supported.
+ - We have a harder way to succeed in life as Serbs because of the past that we had and because of the history we had.
+ - I love football and it’s the sport I would really like to play. I’ve said on national television here that I would really love to play for one of our football clubs when I finished my tennis career.
+ - Pressure is part of what we do. It’s always present.
+ - It has been the best thing that has ever happened in my life.
+ - People look up to me as somebody who is able to switch the image of our country from negative to positive.
+ - I physically feel very fit, i’m very motivated to keep on playing on a very high level. I’m going to try to use these years in front of me to fight for number one in the world and the biggest titles in the sport.
+ - My mother is a special story. She went through so much to bring us up, four men at home, especially when our country was going through really difficult times.
+ - Coaches are very important to players. They’re people that are mentors, people that are advising them, people that should be their friends and somebody you can rely on on the tour.
+ - I have been through two wars in my 24 years, and I know what it’s like to be without anything, to see the bombs flying above your head.
+ - It gives me goose bumps and little butterflies in the stomach when I start thinking about the ‘golden slam.’
+ - Nobody actually played tennis in my family.
+ - It was very unusual for a boy to play tennis in my country.
+ - Honestly, I’m not a big fan of baseball.
+ - I remember as a kid, I was improvising and making little trophies out of different materials and going in front of the mirror, lifting the trophies and saying ‘Nole was the champion!’
+ - I’m trying to enjoy my lie as much as I can and I know that tennis hopefully is going to be my life the next 10, 15 years.
+ - When my boy arrived in this life, on this planet, it was completely a new dimension of experience for me and my wife. I’m still riding on the wave of that experience.
+ - The history of our country is cruel. We have to face those issues or, should I say, we had to. Not anymore I hope, because we are going in the right direction, and we are ready to forgive, ready to move on.
+ - I want to help children in Serbia and around the world so they can realize their dreams.
+ - My grandfather went through a lot in his life.
+ - My strokes just weren’t there.
+ - I had to know at least two languages.
+ - I lost to a better player who played some courageous tennis and deserved to win.
+ - I don’t like to compare years, honestly. I think every year is a different experience, a different challenge. You grow. You evolve as a person and as a player.
+ - I’ve had my ups and downs in my private life.
+ - I never wanted to change countries; it’s something that is part of me.
+ - Even though now I’m pretty popular in my country and tennis is the No. 1 sport, and I’m very flattered that the people recognise me and come up and give me compliments, I’m more a person who likes to have privacy and peace.
+ - Mostly the problems when I was down were caused by myself. There were times when I was not responsible enough or decisive enough.
+ - I like my groundstrokes, I can say. I like it. That’s my game – I’m a groundstroke player and I play pretty aggressive.
+ - What I learned as a young child continues to have a tremendous impact on my life today.
+ - My father had never watched tennis, never liked tennis too much. He said, ‘OK, we buy a racket, we watch together,’ because we didn’t know anything. It was a process of learning together that made it more interesting.
+ - I cannot guarantee anything.
+ - As a kid I was creative.
+ - Not everybody can like what I do, and if you feel that somebody is coming up closer to you and starting the rivalry and everything, you maybe change your position to him.
+ - I am fast and very powerful on the court, so this is what matters.
+
+74 quotes

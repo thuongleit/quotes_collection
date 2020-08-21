@@ -1,0 +1,26 @@
+ - Love is a game that two can play and both win.
+ - If a man is truly in love, the most beautiful woman in the world couldn’t take him away. Maybe for a few days, but not forever.
+ - All any girl needs, at any time in history, is simple velvet and basic diamonds.
+ - I’m a workaholic. Before long I’m traveling on my nervous energy alone. This is incredibly exhausting.
+ - Our Darling Eva We Love You.
+ - I should have been smart enough to stay happy. But my ambition ruled my life.
+ - I believe in loyalty. When a woman reaches an age she likes, she should stick with it.
+ - The only thing you have to know are your words.
+ - It’s sheer torture. I have to be up with the chickens every day and go to work on my body. I hate it, but I do it.
+ - I learned early that you only have so much energy to give. You have to spend it correctly.
+ - I love the fast lane.
+ - There was no way I could live in Hollywood and not become an actress.
+ - I was the first actress in the family, and I am still the only actress in the family. I shouldn’t be saying it, but it slipped out!
+ - The average housewife goes to the restaurant to relax and enjoy the food. But when Eva walks in, she becomes the center of attention.
+ - My first husband, yes, I eloped with him from Hungary against my mother’s wishes.
+ - After all the work I’ve done, why should I suddenly be treated as a bona fide actress?
+ - I ask myself more questions than Hamlet as I ponder which shoes to wear.
+ - I made up my mind to be an actress when I was 4 years old.
+ - Most people don’t need to work as hard as I do.
+ - Marriage is too interesting an experiment to be tried only once.
+ - I’m acting when I serve as a hostess, when I run my wig business. I was born to act, and life itself is the greatest part.
+ - I’ve always known I would be a success, but I was surprised at the way it came.
+ - East Hampton happens to have been the first place in the world where I was a star, a real star with a star pasted above my name on the dressing-room door.
+ - My co-workers expect me to be late and temperamental.
+
+24 quotes

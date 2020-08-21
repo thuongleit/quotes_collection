@@ -1,0 +1,25 @@
+ - I guess chemistry is just another word for love.
+ - I’m a total nerd. I love fantasy.
+ - I’m not really cool, or dashing, or any of those things.
+ - I’ve pretty much given up on the orange. I really have. I just don’t even bother. It’s just either sour, or woody, or the skin’s too thick. It’s very nice when you come across the perfect orange, because it’s really a beautiful experience. But the stakes are too high.
+ - People don’t listen when you lecture. No one wants to be talked down to or scolded.
+ - My parents won’t let me have a motorcycle, but they give me all the guns I want. I asked them for a motorcycle last Christmas and they told me I’d only kill myself. They got me this twelve-gauge instead.
+ - I’m not a wilting flower. I’m honest, so I pick a lot of fights. I’ve burned a lot of bridges.
+ - When I was younger I wanted to be a big movie star who’d get to be funny on talk shows and then I wanted to retire and write science fiction.
+ - I think the Canadian sense of humor is dryer than America’s and juicier than Britain’s. I think it’s a cross between the two of them, really.
+ - I think Canadian humor is a little less broad than American humor.
+ - This world is filled with five billion people with five billion different ways of looking at things.
+ - Comedy is actually very macho driven.
+ - My cancer continues to make for all kind of hilarity.
+ - Art is about the edges and the sharp corners and those places are not conducive to activism, which is about putting on a gloss.
+ - I believe the things that happened to me as a child scarred me terribly, and I wish somebody would have helped me with some of the things that happened.
+ - My theory is that comedy comes from little people.
+ - Fathers should start teaching the boys how to punch.
+ - Well I think comedy everywhere has lost a bit of its bite. In Canada, I can’t argue with the quality, but it feels like it’s gotten a little safe.
+ - In Canadian comedy, you’ll almost never see guns. If you bring a gun into a scene, it’s like, ‘Whoa! Wow, how are we going to deal with that!’ Guns in an American comedy are a given. Violence in America is used in a much more cavalier way.
+ - I resented that my career wasn’t going the way that it was supposed to. And I was angry that I wasn’t getting the parts that I wanted.
+ - When I found out I had cancer, I just said one thing: ‘I want to hold on to life’ and that changed everything for me.
+ - I think a case could be made that there’s sort of a crisis of masculinity in the West. Particularly with white males.
+ - If comedy duos don’t like each other, it just won’t work.
+
+23 quotes

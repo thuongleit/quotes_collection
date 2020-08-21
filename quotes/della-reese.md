@@ -1,0 +1,28 @@
+ - I’m an honest hoe, and all my hoes is honest.
+ - I could not have made it this far had there not been angels along the way.
+ - I have the background singers of Ray Charles, the background singers of Smokey Robinson, and the background singers of Barry White and I built a choir around that.
+ - So whatever it is you want, need or desire or just like to have, you better try to get it now, ’cause this is the only time there is.
+ - My idea of forgiveness is letting go of resentment that does not serve your better interest, ridding yourself of negative thoughts. All they do is make you miserable. Believe me, you can fret and fume all you want, but whoever it was that wronged you is not suffering from your anguish whatsoever.
+ - If you’re not getting the things you want, need or desire, it’s because you have not accepted that you can have them.
+ - My mother was a personal friend of God’s. They had ongoing conversations.
+ - So, yes, I believe in angels, absolutely, I do.
+ - When you really believe in God, it gives you a courage, a confidence that enables you to meet the things coming.
+ - I don’t want my husband to push me around in a wheelchair. I don’t want someone to lead me around because I’m blind.
+ - There are people much less fortunate than us, and I don’t mean people hungry sleeping in the streets either.
+ - I teach metaphysics and pastor a church.
+ - I like to sing very much.
+ - I have a children’s book already out and my autobiography.
+ - Yes, I’m a Pastor of a church called Understand Principles for Better Living Church, in Los Angeles, CA.
+ - Each week, from a different point of view, you get another look at God, and that’s exciting to me.
+ - We have made people in the industry and the people that see us aware that God loves them.
+ - You see, I was born in the slums, that was before the ghetto. The ghetto was kind of refined; the slums was right there on the ground.
+ - Now I walk every where I can. I also ride a stationary bicycle for a total of 30 minutes. I do it three or more times a week now and I have lost 20 pounds.
+ - I don’t see how I possibly could have come from where I entered the planet to where I am now if there had not been angels along the way.
+ - I can still enjoy the foods I like I just eat much smaller portions now. And of course Ive had to give up that southern style way of cooking.
+ - I also work with the spirituality of people.
+ - They started to try and keep us off the air in the beginning.
+ - Sometimes I think the choir gets a little ticked with me because I haven’t sung in a long time and I can sing.
+ - Touching people is very rewarding to me.
+ - People have known me for so long, I’m just Della to them.
+
+26 quotes

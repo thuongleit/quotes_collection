@@ -1,0 +1,277 @@
+ - Without deviation from the norm, progress is not possible.
+ - A mind is like a parachute. It doesn’t work if it is not open.
+ - So many books, so little time.
+ - Without music to decorate it, time is just a bunch of boring production deadlines or dates by which bills must be paid.
+ - Music is the only religion that delivers the goods.
+ - There is more stupidity than hydrogen in the universe, and it has a longer shelf life.
+ - Writing about music is like dancing about architecture.
+ - The universe consists of 5% protons, 5% neutrons, 5% electrons and 85% morons.
+ - Information is not knowledge. Knowledge is not wisdom. Wisdom is not truth. Truth is not beauty. Beauty is not love. Love is not music. Music is THE BEST.
+ - Art is making something out of nothing, and selling it.
+ - It’s better to have something to remember than anything to regret.
+ - Government is the Entertainment division of the military-industrial complex.
+ - If you want to get laid, go to college. If you want an education, go to the library.
+ - Don’t forget to vote.
+ - Don’t eat the yellow snow.
+ - One size does not fit all.
+ - There are more love songs than anything else. If songs could make you do something we’d all love one another.
+ - Reality is what it is, not what you want it to be.
+ - You can’t be a real country unless you have a beer and an airline – it helps if you have some kind of football team, or some nuclear weapons, but in the very least you need a beer.
+ - I don’t want to spend my life explaining myself. You either get it, or you don’t.
+ - Jazz isn’t dead. It just smells funny.
+ - Shut Up and Play your Guitar.
+ - Love of my life, I love you so. Love of my life, don’t ever go.
+ - All the good music has already been written by people with wigs and stuff.
+ - It gets harder the more you know. Because the more you find out the uglier everything seems.
+ - The most important thing to do in your life is to not interfere with somebody else’s life.
+ - Stupidity has a certain charm – ignorance does not.
+ - Drop out of school before your mind rots from exposure to our mediocre educational system. Forget about the Senior Prom and go to the library and educate yourself if you’ve got any guts. Some of you like Pep rallies and plastic robots who tell you what to read.
+ - Moving to Montana soon, gonna be a dental floss tycoon.
+ - Music is the most physically inspiring of all the arts.
+ - To me absurdity is the only reality.
+ - Ram it up your poop chute.
+ - The most abundant element in the Universe is stupidity.
+ - I never set out to be weird. It was always other people who called me weird.
+ - I enjoy irritating the people who enjoy being irritated.
+ - A wise man once said, never discuss philosophy or politics in a disco environment.
+ - The crux of the biscuit is: If it entertains you, fine. Enjoy it. If it doesn’t, then blow it out your ass. I do it to amuse myself. If I like it, I release it. If somebody else likes it, that’s a bonus.
+ - The only difference between a cult and a religion is the amount of real estate they own.
+ - I can take about an hour on the tower of power, as long as I gets a little golden shower.
+ - Why do you necessarily have to be wrong just because a few million people think you are?
+ - Tobacco is my favorite vegetable.
+ - I’m not black, but there’s a whole lot of times I wish I could say I’m not white.
+ - The United States is a nation of laws: badly written and randomly enforced.
+ - The disgusting stink of a too-loud electric guitar; now that’s my idea of a good time.
+ - The whole Universe is a large joke. Everything in the Universe are just subdivisions of this joke. So why take anything too serious.
+ - Call any vegetable and the chances are good that the vegetable will respond to you.
+ - I’m probably more famous for sitting on the toilet than for anything else that I do.
+ - There is no hell. There is only France.
+ - If classical music is the state of the art, then the arts are in a sad state.
+ - This is a stupid song and that’s the way I like it.
+ - Don’t mind your make-up, you’d better make your mind up.
+ - Maybe you should stay with your mama, you’re kind of stupid and ugly, too.
+ - There will never be a nuclear war; there’s too much real estate involved.
+ - One of my favorite philosophical tenets is that people will agree with you only if they already agree with you. You do not change people’s minds.
+ - The first thing you have to do if you want to raise nice kids, is you have to talk to them like they are people instead of talking to them like they’re property.
+ - Drugs will turn you into your parents.
+ - I think that if you use the so-called “strong words” you’ll get your point across faster and you can save a lot of beating around the bush. Why are people afraid of words? Sometimes the dumbest thing that gets said makes the point for you.
+ - Rock music was never written for or performed for conservative tastes.
+ - Just because somebody hears something you say, or reads something that you write, doesn’t mean you’ve reached them.
+ - The crux of the biscuit is the apostrophe!
+ - Mr. Gorbachev has apparently stumbled onto one of the best-kept secrets in recent Soviet history: Communism doesn’t work.
+ - The most important thing in art is The Frame. For painting: literally; for other arts: figuratively – because without this humble appliance, you can’t know where The Art stops and The Real World begins.
+ - The more boring a child is, the more the parents, when showing off the child, receive adulation for being good parents – because they have a tame child-creature in their house.
+ - Anything played wrong twice in a row is the beginning of an arrangement.
+ - My best advice to anyone who wants to raise a happy, mentally healthy child is: Keep him or her as far away from a church as you can.
+ - Take the Kama Sutra. How many people died from the Kama Sutra as opposed to the Bible? Who wins?
+ - I write what I like to write. Those who like to listen to it, listen to it. And the ones who don’t, watch football and drink beer, jog, go to discos and so forth. I never claimed to be a man for all seasons.
+ - The computer can’t tell you the emotional story. It can give you the exact mathematical design, but what’s missing is the eyebrows.
+ - She is an office girl, her name is Betty. Her favorite group is Helen Reddy.
+ - Beware of the fish people, they are the true enemy.
+ - Information doesn’t kill you.
+ - I think that if a person doesn’t feel cynical then they’re out of phase with the 20th century. Being cynical is the only way to deal with modern civilization – you can’t just swallow it whole.
+ - The last election just laid the foundation of the next 500 years of Dark Ages.
+ - Whatever you have to do to have a good time, let’s get on with it, so long as it doesn’t cause a murder.
+ - You are what you is, you is what you am, you ain’t what you’re not. So see what you got?
+ - Communism doesn’t work because people like to own stuff.
+ - I ain’t the type for begging, I am not the type to plead. If she don’t change those evil ways, I’m gonna make her bleed.
+ - Bad facts make bad law, and people who write bad laws are in my opinion more dangerous than songwriters who celebrate sexuality.
+ - Anyone who is disturbed by the idea of newts in a nightclub is potentially dangerous.
+ - Listen honey, would I lie to you to get in your pants?
+ - I think you should leave it up to the parent, because not all parents want to keep their children totally ignorant.
+ - Fact of the matter is, there is no hip world, there is no straight world. There’s a world, you see which has people in it who believe a variety of different things.
+ - The plumber he says, never flush a tampon. This is great information, cost me half a weeks pay.
+ - I’m the devil’s advocate. We have our own worshipers.
+ - My balls feel like a pair of maracas.
+ - Do your job and do it right, life’s a ball, TV tonight.
+ - The essence of Christianity is told us in the Garden of Eden history. The fruit that was forbidden was on the tree of knowledge. The subtext is, All the suffering you have is because you wanted to find out what was going on.
+ - It isn’t necessary to imagine the world ending in fire or ice. There are two other possibilities: one is paperwork, and the other is nostalgia.
+ - Cocaine decisions that you make today, will mean nothing later on when you get nose decay.
+ - Did you ever consider that LSD was really one of the most dangerous drugs ever manufactured because the people who took it turned into yuppies?
+ - Definition of rock journalism: People who can’t write, doing interviews with people who can’t think, in order to prepare articles for people who can’t read.
+ - Republicans stand for raw, unbridled evil and greed and ignorance smothered in balloons and ribbons.
+ - I’m more interested in melodic things. I think the biggest challenge when you go to play a solo is trying to invent a melody on the spot.
+ - Producing satire is kind of hopeless because of the literacy rate of the American public.
+ - My school spirit is at an all time low, I’m losing my status at the school.
+ - If we can’t be free at least we can be cheap.
+ - Scientists believe that the universe is made of hydrogen because they claim it’s the most plentiful ingredient. I claim that the most plentiful ingredient is stupidity.
+ - Our big prize tonight is fifty American dollars to the girl with the most exciting mammalian protuberances.
+ - My guitar wants to kill your mama.
+ - I want a steamy little Jewish Princess with over-worked gums, who squeaks when she cums. I don’t want no troll, I just want a Yemenite hole.
+ - I want a horny little Jewish princess.
+ - Nobody looks good with brown lipstick on.
+ - Most people don’t bother about their friends in the vegetable kingdom.
+ - The kerosene record player is not a very efficient device.
+ - Republican is fine, if your a millionaire. Democrats is fair, if all you own is what you wear. Neither of them’s really right, cause neither of them care.
+ - Anybody who wants religion is welcome to it, as far as I’m concerned – I support your right to enjoy it. However, I would appreciate it if you exhibited more respect for the rights of those people who do not wish to share your dogma, rapture, or necrodestination.
+ - In order to deviate successfully, one has to have at least a passing acquaintance with whatever norm one expects to deviate from.
+ - Some scientists claim that hydrogen, because it is so plentiful, is the basic building block of the universe. I dispute that. I say there is more stupidity than hydrogen, and that is the basic building block of the universe.
+ - I would say that today, dishonesty is the rule, and honesty the exception. It could be, statistically, that more people are honest than dishonest, but the few that really control things are not honest, and that tips the balance.
+ - The price of meat has just gone up and your old lady has just gone down.
+ - Give me the enchilada with the pickle sauce shoved up between the donkey’s ass.
+ - I am the slime oozing out from your TV set. You will obey me while I lead you, and eat the garbage while I feed you.
+ - Mama stroked his dinger, Daddy got stinky finger.
+ - Catholic girls with tiny little mustaches.
+ - He took a dog-doo snow cone and stuffed it in my right eye. He took a dog-doo snow cone and stuffed it in my other eye.
+ - If you pick up a guitar and it says, ‘take me, I’m yours,’ then that’s the one for you.
+ - You’ve got to be digging it while it’s happening ’cause it just might be a one shot deal.
+ - When God created Republicans, he gave up on everything else.
+ - You can’t always write a chord ugly enough to say what you want to say, so sometimes you have to rely on a giraffe filled with whipped cream.
+ - Children are naive-they trust everyone. School is bad enough, but, if you put a child anywhere in the vicinity of a church, you’re asking for trouble.
+ - Their stupidity does not amaze me, its when they’re smart that amazes me. It’s baffling whenever you find someone who’s smart – incredible. Soon you’ll have zoos for such things.
+ - There’s a big difference between kneeling down and bending over.
+ - As far as rearing children goes, the basic idea I try to keep in mind is that a child is a person. Just because they happen to be a little shorter than you doesn’t mean they are dumber than you.
+ - She lives in Mojave in a Winnebago. His name is Bobby, he looks like a potato.
+ - The rock and roll business is pretty absurd, but the world of serious music is much worse.
+ - I want a hairy little Jewish Princess with a brand new nose, who knows where it goes.
+ - It is always advisable to be a loser if you cannot become a winner.
+ - All that we got here is American made. It’s a little bit cheesy, but it’s nicely displayed.
+ - Two things are universal: Hydrogen and stupidity.
+ - Wowie zowie, love me do. Wowie zowie, and I’ll love you, too.
+ - I proceeded to take that mitten full of the deadly yellow snow crystals and rub it all into his beady little eyes with a vigorous circular motion.
+ - The whole foundation of Christianity is based on the idea that intellectualism is the work of the Devil. Remember the apple on the tree? Okay, it was the Tree of Knowledge. You eat this apple, you’re going to be as smart as God. We can’t have that.
+ - Well Mike, I’m abnormal.
+ - You can’t escape the puking sphinx.
+ - Science is moving closer to weaponry, and Art is moving closer to commercialism. And never the twain shall meet.
+ - Roller-skates and disco are a lot of fun, I’m much too young and stupid to operate a gun.
+ - Politics is the entertainment branch of industry.
+ - I think pop music has done more for oral intercourse than anything else that has ever happened, and vice versa.
+ - Modern music is people who can’t think signing artists who can’t write songs to make records for people who can’t hear.
+ - If your children ever find out how lame you really are, they’ll murder you in your sleep.
+ - Beauty is a pair of shoes that makes you wanna die.
+ - Sit and spin ’til you rot on the cosmic utensil.
+ - Let’s not be too rough on our own ignorance, it’s what makes America great.
+ - Music is always a commentary on society.
+ - Brown shoes don’t make it.
+ - Outdoors for me is walking from the car to the ticket desk at the airport.
+ - I’m not going to be Bill Clinton and say I never inhaled. I did inhale. I liked tobacco a lot better.
+ - Her head is full of bubbles, her nose is petite, she looks like she never gets nothing to eat.
+ - The language and concepts contained herein are guaranteed not to cause eternal torment in the place where the guy with the horns and pointed stick conducts his business.
+ - He wants to do you in cause the color of your skin.
+ - Modern Americans behave as if intelligence were some sort of hideous deformity.
+ - Wisdom is not the domain of the Wiz.
+ - I want a girl that can swallow my pride.
+ - There are three things that smell of fish. One of them is fish. The other two are growing on you!
+ - In every language, the first word after “Mama!” that every kid learns to say is “Mine!” A system that doesn’t allow ownership, that doesn’t allow you to say “Mine!” when you grow up, has.
+ - Consider for a moment any beauty in the name Ralph.
+ - Sexual gratification can only be achieved through the use of machines.
+ - Elmore James only knew one lick, but you had the feeling that he meant it.
+ - In your dreams you can see yourself as a prophet saving the world.
+ - Music, in performance, is a type of sculpture. The air in the performance is sculpted into something.
+ - Tosses her head and flips her hair, she got a whole bunch of nothing in there.
+ - Power will be maintained by the groovy guy or gal who gets the most media coverage for his sleaze. Naturally, his friends in various businesses will do okay, too.
+ - The whiskers sticking up from underneath his pancake makeup, and yet he was a beautiful lady.
+ - I wrote a song about dental floss but did anyone’s teeth get cleaner?
+ - With a tongue like a cow, she could make you go wow.
+ - I’m in a big dilemma about my Big-Leg Emma.
+ - You don’t dig me, I don’t understand what it is, I had my car reupholstered.
+ - The NRA, with the fingers on the triggers when they kneel and pray.
+ - The devil, he’s about this big. He had a red suit on and a widow’s peak, and then a pointed tail, and like a sulfur reek. Yes, it was him alright, I swear.
+ - Disco boy, no one understands, but thank the lord you still got hands.
+ - I have four children, and I want them to grow up in a country that has a working First Amendment.
+ - Hey ugly folks, go get some cyanide and die.
+ - We was on our way to fame, got matching suits and Beatle boots.
+ - It’s two o’clock in the morning, they’re not going to get any nooky anyway, so this one guy and the guy with the t-shirt guy started sniffing the girls panties.
+ - Weedly-weedly-wee, make a face, hold your guitar like it’s your weenie, point it heavenward, and look like you’re really doing something. Then, you get a big ovation while the smoke bombs go off, and the motorized lights in your truss twirl around.
+ - The bigger the cushion, the better the pushin’.
+ - These girls wouldn’t let just anybody spew on their vital parts, they wanted a guy from a group with a big hit song on the charts.
+ - If you really love guitar, you’re going to spend every waking hour stroking the thing.
+ - I write the music I like. If other people like it, fine, they can go buy the albums. And if they don’t like it, there’s always Michael Jackson for them to listen to.
+ - You is what you am, a cow don’t make ham.
+ - I don’t want to see any religious people in public office because they’re working for another boss.
+ - Is this something new, having people stomp on you? Is it what I need to do for your pleasure?
+ - The typical rock fan is not smart enough to know when he is being dumped on.
+ - They were wearing smelly blankets, they looked like Donovan fans.
+ - We could improve worldwide mental health if we acknowledged that parents can make you crazy.
+ - While your children are sleeping, your puppy is crappin’.
+ - Elvis has left the building to climb up that heavenly stair. So what if he looks like a wart-hog in heat?
+ - Journalism is kind of scary and of it we should be wary.
+ - Everybody believes in something and everybody, by virtue of the fact that they believe in something, uses that something to support their own existence.
+ - They tried to make me go to Catholic school, too. I lasted a very short time. When the penguin came after me with a ruler, I was out of there.
+ - Only thirteen, and she knows how to nasty.
+ - I detest ‘love lyrics.’ I think one of the causes of bad mental health in the United States is that people have been raised on ’love lyrics.
+ - My English teacher, he’s like, he’s like Mr. Bu-fu.
+ - Environmental laws were not passed to protect our air and water, they were passed to get votes.
+ - This here song might offend some, if it does it’s because your dumb.
+ - Moses, Aaron, Abraham, they’re all a waste of time. It’s your ass that’s on the line.
+ - Out on a 30 day tour, you got nothing, but groupies and promoters to love you.
+ - Sometimes you got to get sick before you can feel better.
+ - A composer’s job involves the decoration of fragments of time.
+ - Stuff up the cracks, turn on the gas, I’m gonna take my life.
+ - So much gets lost in the translation. Even if you sat there listening to it with a microscope, there’s no way you’re gonna find out what it means.
+ - Hair growing out every hole in me.
+ - Unbind your mind, there is no time.
+ - Your mind is totally controlled, it has been stuffed into my mold. And you will do as you are told, until the rights to you are sold.
+ - Tighten my headband for an extra rush.
+ - Ever try to have a conversation with someone on drugs? It just doesn’t work...
+ - There is no such thing as a dirty word. Nor is there a word so powerful, that it’s going to send the listener to the lake of fire upon hearing it.
+ - I think love lyrics have contributed to the general aura of bad mental health in America.
+ - Everything on this planet has something to do with music. Music functions in the realm of sculptured air.
+ - People are just waiting around to get certified.
+ - They’s making it worse, the labor movement got the mafia curse.
+ - Decades of indoctrination, manipulation, censorship and KGB excursions haven’t altered this fact: People want a piece of their own little Something-or-Other, and, if they don’t get it, have a tendency to initiate counterrevolution.
+ - If lyrics make people do things, how come we don’t love each other?
+ - Yeah, I tell them to change the channel if they see some guy in a brown suit with a telephone number at the bottom of the screen asking for money.
+ - Most people wouldn’t know music if it came up and bit them on the ass.
+ - Nobody looks good bent over. Especially to pick up a check.
+ - She use to knock me out until her face broke out.
+ - On the Planet of Baritone women, they talk low.
+ - You’re baloney without the mayo.
+ - Find her, blind her, see who designed her. Act like a dummy until you grind her.
+ - Find you a bridge and take a jump. Just make certain you do it right the first time, cause nothing’s worse than a suicide chump.
+ - Censoring what you say is one of the ways in which people who are not nice can take away your personal freedom.
+ - What something is depends more on when it is than anything else.
+ - I think that people are entitled to be amused, and entertained. If they see deviations from this classical norm, it’s probably good for their mental health.
+ - Never bend over for a Christian.
+ - It’s the same mysterious exotic oriental fragrance as what the Beatles get off on.
+ - Stupidity is the basic building block of the universe.
+ - Why doncha come on over to the house and I’ll show ’em to ya?
+ - America was founded by the refuse of the religious fanatics of England, these undesirable elements that came over on the Mayflower. Ignorant, religious fanatics who land here and abuse the Indians.
+ - Believe it or not, there are places in the world where music is important. There are places in the world where all the arts are a matter of national pride.
+ - He just got in the car, but the batteries dead. So he asks to use the phone and she gives him some head.
+ - In a fight between yourself and the world, always side with the world.
+ - Classical music is this music that was written by a bunch of dead people a long time ago.
+ - Elmer has the mentality of approximately one peanut.
+ - The closer you are, the brighter the flames in my heart.
+ - It’s a despicable thing to share your personal inner torment for money.
+ - I hit you and I beat you and I told you that I love you.
+ - Organized religions by their very natures are misleading.
+ - No change in musical style will survive unless it is accompanied by a change in clothing style. Rock is to dress up to.
+ - Without “Louie Louie” a symphony is not quite so grand.
+ - He likes to flirt with all the boys in the class.
+ - Donnie and Marie can both take a bite.
+ - Just be glad you don’t live in one of those little countries where at this very moment, music is severely restricted, or as it is in Iran, totally illegal.
+ - It would be easier to pay off the national debt overnight than to neutralise the long-range effects of our national stupidity.
+ - I searched for years I found no love. I’m sure that love will never be a product of plasticity.
+ - What kind of man can name a child Moon Unit?
+ - Hendrix is one of the most revolutionary figures in today’s pop culture, musically and sociologically.
+ - Our criminal institutions are full of creeps like you who do wrong things, and many of them were driven to these crimes by the horrible force called music.
+ - Gave my money all to you, took my watch and pawned it, too.
+ - All the old history was written for the amusement of the ruling classes. The lower classes couldn’t read, and their rulers didn’t care about remembering what happened to them.
+ - Nobody gives a crap if we’re great musicians.
+ - Books Are Good For Lots Of Uses, Not For Dropping In The Toilet.
+ - Did he really choose Tammy to do his work?
+ - I never have no trouble with my rubber girl.
+ - Being interviewed is one of the most abnormal things that you can do to somebody else. It’s two steps removed from the Inquisition.
+ - I think the music of the Fifties is really good. I suspect it’s much better musically than much of what’s available now. Not in terms of production, but in terms of content.
+ - Don’t go to bed with any woman crazier than you are.
+ - People like to own things.
+ - I don’t think there’s a problem. First of all, I don’t think music turns people into social liabilities. Because you hear a lyric.
+ - The people of your century no longer require the service of composers. A composer is as useful to a person in a jogging suit as a dinsoaur turd in the middle of his runway.
+ - You can’t be a real country unless you have a beer.
+ - I think it is good that books still exist, but they do make me sleepy.
+ - Studied law, but not qualified to practice it.
+ - There isn’t anything weird about my music.
+ - The lifestyle that I have is probably neither desirable nor useful to most people.
+ - Michael is Janet and Janet is Michael.
+ - King of kings, that must be Elvis.
+ - Left me here to cry alone with a bottle of juice and pork chop bone.
+ - A composer is a guy who goes around forcing his will on unsuspecting air molecules, often with the assistance of unsuspecting musicians.
+ - One and one is eleven.
+ - She was a steady date until she put on some weight.
+ - I have been monitoring your earthly broadcasts for many years.
+ - Am I a boy or a lady, I don’t know which?
+ - Nothing I’ve ever written has been motivated by trying to impact or influence anybody.
+ - Jazz is the music of unemployment.
+
+275 quotes

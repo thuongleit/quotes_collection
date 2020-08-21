@@ -1,0 +1,77 @@
+ - Life is too short for a long story.
+ - No entertainment is so cheap as reading, nor any pleasure so lasting.
+ - I give myself sometimes admirable advice, but I am incapable of taking it.
+ - Civility costs nothing, and buys everything.
+ - People wish their enemies dead – but I do not; I say give them the gout, give them the stone!
+ - There can be no situation in life in which the conversation of my dear sister will not administer some comfort to me.
+ - A woman, till five-and-thirty, is only looked upon as a raw girl, and can possibly make no noise in the world till about forty.
+ - Miserable is the fate of writers: if they are agreeable, they are offensive; and if dull, they starve.
+ - Whatever is clearly expressed is well wrote.
+ - General notions are generally wrong.
+ - True knowledge consists in knowing things, not words.
+ - But the fruit that can fall without shaking Indeed is too mellow for me.
+ - People are never so near playing the fool as when they think themselves wise.
+ - It’s all been very interesting.
+ - I despise the pleasure of pleasing people that I despise.
+ - While conscience is our friend, all is at peace; however once it is offended, farewell to a tranquil mind.
+ - We travellers are in very hard circumstances. If we say nothing but what has been said before us, we are dull and have observed nothing. If we tell anything new, we are laughed at as fabulous and romantic.
+ - In short I will part with anything for you but you.
+ - Only a mother knows a mother’s fondness.
+ - Satire should, like a polished razor keen, Wound with a touch that’s scarcely felt or seen.
+ - I am in perfect health, and hear it said I look better than ever I did in my life, which is one of those lies one is always glad to hear.
+ - We are apt to consider Shakespeare only as a poet; but he was certainly one of the greatest moral philosophers that ever lived.
+ - We are no more free agents than the queen of clubs when she victoriously takes prisoner the knave of hearts.
+ - Solitude begets whimsies.
+ - To always be loved one must ever be agreeable.
+ - The screech-owl, with ill-boding cry, Portends strange things, old women say; Stops every fool that passes by, And frights the school-boy from his play.
+ - I prefer liberty to chains of diamonds.
+ - The one thing that reconciles me to the fact of being a woman is the reflection that it delivers me from the necessity of being married to one.
+ - No entertainment is so cheap as reading, nor any pleasure so lasting. She will not want new fashions nor regret the loss of expensive diversions or variety of company if she can be amused with an author in her closet.
+ - I am afraid we are little better than straws upon the water; we may flatter ourselves that we swim, when the current carries us along.
+ - I have never, in all my various travels, seen but two sorts of people I mean men and women, who always have been, and ever will be, the same. The same vices and the same follies have been the fruit of all ages, though sometimes under different names.
+ - Be plain in dress, and sober in your diet; In short, my deary, kiss me, and be quiet.
+ - The pretty fellows you speak of, I own entertain me sometimes, but is it impossible to be diverted with what one despises? I can laugh at a puppet show, at the same time I know there is nothing in it worth my attention or regard.
+ - Men are vile inconstant toads.
+ - I have often observ’d the loudest Laughers to be the dullest Fellows in the Company.
+ - The pious farmer, who ne’er misses pray’rs, With patience suffers unexpected rain; He blesses Heav’n for what its bounty spares, And sees, resign’d, a crop of blighted grain. But, spite of sermons, farmers would blaspheme, If a star fell to set their thatch on flame.
+ - Nobody should trust their virtue with necessity, the force of which is never known till it is felt, and it is therefore one of the first duties to avoid the temptation of it.
+ - As I approach a second childhood, I endeavor to enter into the pleasures of it.
+ - There is no remedy so easy as books, which if they do not give cheerfulness, at least restore quiet to the most troubled mind.
+ - One can never outlive one’s vanity.
+ - Prudent people are very happy; ’tis an exceeding fine thing, that’s certain, but I was born without it, and shall retain to my day of Death the Humour of saying what I think.
+ - We have all our playthings. Happy are they who are contented with those they can obtain; those hours are spent in the wisest manner that can easiest shade the ills of life, and are the least productive of ill consequences.
+ - I know a love may be revived which absence, inconstancy, or even infidelity has extinguished, but there is no returning from a dTgovt given by satiety.
+ - The ultimate end of your education was to make you a good wife.
+ - Copiousness of words, however ranged, is always false eloquence, though it will ever impose on some sort of understandings.
+ - A man that is ashamed of passions that are natural and reasonable is generally proud of those that are shameful and silly.
+ - No modest man ever did or ever will make a fortune.
+ - Making verses is almost as common as taking snuff, and God can tell what miserable stuff people carry about in their pockets, and offer to all their acquaintances, and you know one cannot refuse reading and taking a pinch.
+ - Begin nothing without considering what the end may be.
+ - You can be pleased with nothing if you are not pleased with yourself.
+ - I believe more follies are committed out of complaisance to the world, than in following our own inclinations.
+ - Nobody can deny but religion is a comfort to the distressed, a cordial to the sick, and sometimes a restraint on the wicked...
+ - It goes far towards reconciling me to being a woman, when I reflect that I am thus in no danger of ever marrying one.
+ - My chief study all my life has been to lighten misfortunes and multiply pleasures, as far as human nature can.
+ - People commonly educate their children as they build their houses, according to some plan they think beautiful, without considering whether it is suited to the purposes for which they are designed.
+ - See how that pair of billing doves With open murmurs own their loves And, heedless of censorious eyes, Pursue their unpolluted joys: No fears of future want molest The downy quiet of their nest.
+ - The most romantic region of every country is that where the mountains unite themselves with the plains or lowlands.
+ - The knowledge of numbers is one of the chief distinctions between us and the brutes.
+ - Muse, time has taught me that all metaphysical systems, even historical facts given as truths, are hardly that, so I amuse myself with more agreeable lies; I no longer read anything but novels.
+ - There is nothing can pay one for that invaluable ignorance which is the companion of youth, those sanguine groundless hopes, and that lively vanity which makes all the happiness of life.
+ - Nature is seldom in the wrong, custom always.
+ - A face is too slight a foundation for happiness.
+ - Let this great maxim be my virtue’s guide,- In part she is to blame that has been tried: He comes too near that comes to be denied.
+ - It was formerly a terrifying view to me that I should one day be an old woman. I now find that Nature has provided pleasures for every state.
+ - Writers of novels and romance in general bring a double loss to their readers; robbing them of their time and money; representing men, manners, and things, that never have been, or are likely to be.
+ - Lord Bacon makes beauty to consist of grace and motion.
+ - As marriage produces children, so children produce care and disputes; and wrangling.
+ - I wish you would moderate that fondness you have for your children. I do not mean you should abate any part of your care, or not do your duty to them in its utmost extent, but I would have you early prepare yourself for disappointments, which are heavy in proportion to their being surprising.
+ - Time has the same effect on the mind as on the face; the predominant passion and the strongest feature become more conspicuous from the others retiring.
+ - Strictly speaking, there is but one real evil: I mean acute pain. All other complaints are so considerably diminished by time that it is plain the grief is owing to our passion, since the sensation of it vanishes when that is over.
+ - Philosophy is the toil which can never tire persons engaged in it. All ways are strewn with roses, and the farther you go, the more enchanting objects appear before you and invite you on.
+ - My health is so often impaired that I begin to be as weary of it as mending old lace; when it is patched in one place, it breaks out in another.
+ - Gardening is certainly the next amusement to reading.
+ - We should ask, not who is the most learned, but who is the best learned.
+ - And we meet, with champagne and a chicken, at last.
+
+75 quotes

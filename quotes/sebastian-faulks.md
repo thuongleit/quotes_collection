@@ -1,0 +1,60 @@
+ - You put your time where your priority is.
+ - There you are, sir. There’s nothing more than to love and be loved.
+ - My direction? Anywhere. Because one is always nearer by not keeping still.
+ - I have written millions of words about contemporary England – in journalism. Why don’t I take it as the background for a novel? I may do one day. But the simple answer is that it does not excite the novelistic part of my brain; it does not fire it up.
+ - It’s better to have a malign providence than an indifferent one.
+ - The end-of-summer winds make people restless.
+ - I know. I was there. I saw the great void in your soul, and you saw mine.
+ - Something had been buried that was not yet dead.
+ - And sometimes in life, I imagine, good things do happen. Most of the time, it’s the opposite, obviously. But I don’t think you should rule out the possibility that just occasionally chance might deal you a good card.
+ - The function of music is to liberate in the soul those feelings which normally we keep locked up in the heart.
+ - Gradually the feeling wears off, and I feel swamped again by the inexplicable pettiness of being alive.
+ - The thunder of false modesty was deafening.
+ - That sense of happiness just out beyond my reach – I’m not sure I’d grasped that exactly, but I’d got something close to it, contentment maybe, or at least a functioning routine with regular rewards.
+ - One thing about London is that when you step out into the night, it swallows you.
+ - I’d never chosen to be alone, but that was the way things had turned out, and I’d grown used to it.
+ - I am driven by a greater force than I can resist. I believe that force has its own reason and its own morality even if they may never be clear to me while I am alive.
+ - Inhale and hold the evening in your lungs.
+ - If I could eat only one thing for the rest of my life, it would be rhubarb fool, which I make with ginger and a hint of elderflower cordial.
+ - Have you ever been lonely? No, neither have I. Solitary, yes. Alone, certainly. But lonely means minding about being on your own. I’ve never minded about it.
+ - That’s what opium does to suffering: makes it of hypothetical interest only.
+ - We’re deaf men working as musicians; we play the music but we can’t hear it.
+ - Memory is the only thing that binds you to earlier selves; for the rest, you become an entirely different being every decade or so, sloughing off the old persona, renewing and moving on. You are not who you were, he told her, nor who you will be.
+ - Our own choices might not be as good as those that are made for us.
+ - Oh, the sweetness of giving in, of full surrender.
+ - This is how most people live: alive, but not conscious; conscious but not aware; aware, but intermittently.
+ - I don’t like being rumbled, I like to be invisible.
+ - You can’t recall someone whose name has worn away.
+ - The thing about opium is that it makes pain or difficulty unimaginable.
+ - In the 1970s, British food was beginning to get good, whereas in France it was just starting its long, sad decline. My most memorable meals, however, have been in Italy.
+ - They’re so attached to their patterns that they’ve forgotten rule number one of human behavior: there are no patterns. People just do things. There’s no such things as a coherent and fully integrated human personality, let alone consistent motivation.
+ - Some crime against nature is about to be committed. I feel it in my veins. These men and boys are grocers and clerks, gardeners and fathers – fathers of small children. A country cannot bear to lose them.
+ - This intimacy is not necessary; no one is compelling me to open my inmost self and lay it naked, undefended, against that of another – merely for the joy of the communion.
+ - He wrote one more paragraph for his own sake, to see what he had to say.
+ - I don’t think you ever understand your life – not till it’s finished and probably not then either. The more I live the less I seem to understand.
+ - The nicest characters in A Week in December are, in fact, Muslims – and their religious devotion is one of the things that defines them.
+ - The best thing is the combined effect of nicotine with alcohol, greater than the sum of the two parts.
+ - The physical shock took away the pain of being.
+ - It’s only after the change is fully formed that you can see what’s happened.
+ - Why take drugs specifically designed to send you insane?
+ - Life can be lived at a remove. You trade in futures, and then you trade in derivatives of futures. Banks make more money trading derivatives than they do trading actual commodities.
+ - Knowing one was comprised of recycled matter only and that selfhood was a delusion did not take away the aching of the heart.
+ - One of the hardest things about being alive is being with other people.
+ - I breathed and breathed and did feel some calmness enter in, though it was, as always, shot with a sense of loss. Loss and fear.
+ - A bit of the vagueness of music stops you going completely mad, I imagine.
+ - I suppose that each of us may have a great moment in our life, a month, a week a year, when we are most fully what we are meant to be.
+ - I think closeness to death would be pretty exhilarating in a way, and friendship, yeh, and selflessness, a kind of selflessness, a sense of your own worthlessness, I think, is pretty exhilarating.
+ - I don’t find life unbearably grave. I find it almost intolerably frivolous.
+ - The past was suddenly rushing in on me in a way I found hard to fight.
+ - Shakespeare drew a map of the human mind as clearly as Newton mapped the heavens. Wht is one considered science and the other fir only to be mocked with jokes about pretty girls and drury lane?
+ - We all operate on different levels of awareness. Half the time I don’t know what I’m doing.
+ - If not just the brain but the quirks that made the individual were composed of recycled matter only, it was hard to be sure where the edges of one such being ended and another person began.
+ - I never for a moment considered killing myself, because it wouldn’t have achieved anything.
+ - If you have only one life, you cant altogether ignore the question: are you enjoying it?
+ - It was entirely silent and I tried to breathe its peace.
+ - Lonely’s like any other organism; competitive and resourceful in the struggle to perpetuate itself.
+ - I want to be careful not to throw all this away. This is happiness. I think this is what happiness is. I haven’t got it yet, but I can sense it out there. I feel I’m close to it. Some days, I’m so close I can almost smell it.
+ - The thought of all that happiness was hard to bear. What’s the point of happiness when all it does is throw the facts of dying into clear relief?
+ - But I think if any song can touch the heart, then one should value it.
+
+58 quotes

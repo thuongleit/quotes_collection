@@ -1,0 +1,30 @@
+ - He who feeds you, controls you.
+ - We must dare to invent the future.
+ - Debt is a cleverly managed reconquest of Africa.
+ - When the people stand up, imperialism trembles.
+ - Never be shamed of being Afrikan.
+ - Comrades, there is no true social revolution without the liberation of women.
+ - Without patriotic political education, a soldier is only a potential criminal.
+ - We must learn to live the African way. It’s the only way to live in freedom and with dignity.
+ - I can hear the roar of women’s silence.
+ - You cannot carry out fundamental change without a certain amount of madness.
+ - It took the madmen of yesterday for us to be able to act with extreme clarity today. I want to be one of those madmen. We must dare to invent the future.
+ - The enemies of a people are those who keep them in ignorance.
+ - Women hold up the other half of the sky...
+ - While revolutionaries as individuals can be murdered, you cannot kill ideas.
+ - Imperialism is a system of exploitation that occurs not only in the brutal form of those who come with guns to conquer territory. Imperialism often occurs in more subtle forms, a loan, food aid, blackmail. We are fighting this system that allows a handful of men on earth to rule all of humanity.
+ - The revolution and women’s liberation go together. We do not talk of women’s emancipation as an act of charity or out of a surge of human compassion. It is a basic necessity for the revolution to triumph. Women hold up the other half of the sky.
+ - May my eyes never see and my feet never take me to a society where half the people are held in silence.
+ - I want people to remember me as someone whose life has been helpful to humanity.
+ - Comrades, there is no true social revolution without the liberation of women. May my eyes never see and my feet never take me to a society where half the people are held in silence. I hear the roar of women’s silence. I sense the rumble of their storm and feel the fury of their revolt.
+ - The Revolution Cannot Triumph Without the Emancipation of Women.
+ - The spirit is smothered, as it were, by ignorance, but so soon as ignorance is destroyed, spirit shine forth, like the sun when released from clouds.
+ - Let there be an end to the arrogance of the big powers who miss no opportunity to put the rights of the people in question. Africa’s absence from the club of those who have the right to veto is unjust and should be ended.
+ - We have to work at decolonizing our mentality and achieving happiness within the limits of sacrifice we should be willing to make. We have to recondition our people to accept themselves as they are, to not be ashamed of their real situation, to be satisfied with it, to glory in it, even.
+ - We make every effort to see that our actions live up to our words and be vigilant with regards to our behavior.
+ - The greatest difficulty we have faced is the neocolonial way of thinking that exists in this country. We were colonized by a country, France, that left us with certain habits. For us, being successful in life, being happy, meant trying to live as they do in France, like the richest of the French.
+ - Inequality can be done away with only by establishing a new society, where men and women will enjoy equal rights, resulting from an upheaval in the means of production and in all social relations. Thus, the status of women will improve only with the elimination of the system that exploits them.
+ - The French revolution taught us the rights of man.
+ - Our revolution in Burkina Faso draws on the totality of mans experiences since the first breath of humanity. We wish to be the heirs of all the revolutions of the world, of all the liberation struggles of the peoples of the Third World. We draw the lessons of the American revolution.
+
+28 quotes

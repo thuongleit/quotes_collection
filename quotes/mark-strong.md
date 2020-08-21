@@ -1,0 +1,23 @@
+ - If you think about Shakespeare, you remember Richard III and Macbeth before you remember Ferdinand, whose role is just to fall in love and be a bit of a wimp. I love the baddies. More important, though, is making the baddies somehow, weirdly, understood.
+ - The idea of transformation – playing something I’m not – is the bit I enjoy most about acting.
+ - I’m very organized and tidy in my home life and I generally do something myself rather than farm it out to somebody else. I don’t have an assistant or anything because I think I can do it myself.
+ - You sign for a sequel for everything these days, just in case, options. In the past, you avoided them like the plague because it meant somewhere down the road you couldn’t take a job because you had to do a sequel. Now it’s a feature of pretty much any feature you do.
+ - It’s great to have the chance to play a character before he goes to the dark side, or the yellow side if you will. Normally, you don’t get that opportunity. The narrative of a movie usually demands that you are that guy from the start.
+ - I loved making The Imitation Game and it’s really gratifying to hear the audience’s response to the character that I play.
+ - The important bit for an actor is the actual shooting of it, because the minute the shoot ends, it’s got nothing to do with you anymore.
+ - The Peugeot is a very unthreatening car.
+ - When you’re making a psychological thriller, what you need to do is have an audience on shifting sand so they’re never quite sure where they are.
+ - In the movie, you have to decide as an actor how you are going to give a character presence. You can’t really move, walk, and talk like yourself. This creates something so you have to find something “other”.
+ - And I think in your 40s, you land a little bit, physically and mentally, you arrive at a place where you feel you’ve learned some stuff. Having children at that point meant I had something very useful to do for the next 20 years.
+ - Rowan Joffe was on top of everything. He knew exactly how he wanted everything to be, right down to the fact when I made those telephone calls, I didn’t do it afterwards in a studio. I think that’s how he operates. He likes it to be as real and as clear as possible.
+ - I’ve played lots of villains in my time and I think the reason they’ve been so successful is that they’re not two-dimensional. They’re not black and white. That’s the gig.
+ - All these portrayals we see of knights fighting must be absolute rubbish because knights in armour could literally have only had two or three blows and then they’d have had to sit down to have a cup of tea.
+ - I think it serves the purpose of the film if the premise is that you’re unsure of me because you’ve only ever really seen me play villains.
+ - Part of me was fascinated by the idea that I would only get next week’s episode a week in advance and wouldn’t actually know where I was going with it, until the script landed on my mat. But, part of me wanted to know what was going to happen.
+ - In the past, if I didn’t work, I didn’t eat but now I feel I can not work and I won’t starve.
+ - I’ve put my friends and family through the wringer over the years, I have to say, by doing unspeakable things to people, not the least of which was pulling out poor George Clooney’s fingernails in Syriana.
+ - I’m not a writer, inherently. Most of the writers I’ve met have stories they need to tell. I don’t have that. I’m an interpreter. I like getting a script, seeing a character and thinking, “Oh, wow, I know what I can do with that.”
+ - The Secret Service I’m really excited about because Matthew Vaughn directed it. I’ve done a couple of movies with him – Stardust, which is one of my favorite films, and Kick-Ass, which is just a crazy, wonderful movie.
+ - Rowan Joffe is very specific. I mean, he wrote it as well and he has a very orderly writer’s mind and the same applies to his directing.
+
+21 quotes

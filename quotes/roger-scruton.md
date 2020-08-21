@@ -1,0 +1,62 @@
+ - Beauty matters. It is not just a subjective thing but a universal need of human beings. If we ignore this need we find ourselves in a spiritual desert.
+ - A writer who says that there are no truths, or that all truth is ‘merely relative,’ is asking you not to believe him. So don’t.
+ - Art and music shine a light of meaning on ordinary life, and through them we are able to confront the things that trouble us and to find consolation and peace in their presence.
+ - Beauty is assailed from two directions – by the cult of ugliness in the arts, and by the cult of utility in everyday life.
+ - The consolation of imaginary things is not imaginary consolation.
+ - Through the pursuit of beauty we shape the world as a home, and in doing so we both amplify our joys and find consolation for our sorrows.
+ - The culture of a civilization is the art and literature through which it rises to consciousness of itself and defines its vision of the world.
+ - Being unpopular is never easy; but being unpopular in a good cause is a shield against despair.
+ - Nothing is more useful than the useless.
+ - Art once made a cult of beauty. Now we have a cult of ugliness instead. This has made art into an elaborate joke, one which by now has ceased to be funny.
+ - In our democratic culture people often think it is threatening to judge another person’s taste. Some are even offended by the suggestion that there is a difference between good and bad taste, or that it matters what you look at or read or listen to.
+ - Styles may change, details may come and go, but the broad demands of aesthetic judgement are permanent.
+ - Beauty is vanishing from our world because we live as though it does not matter.
+ - Like adverts, today’s works of art aim to create a brand, even if they have no product to sell except themselves.
+ - Wine is not just an object of pleasure, but an object of knowledge; and the pleasure depends on the knowledge.
+ - In argument about moral problems, relativism is the first refuge of the scoundrel.
+ - Classical buildings endure because they are loved, admired and accepted, and enjoy an innate adaption to human needs and purposes.
+ - There are no chords in modernist architecture, only lines – lines that may come to an end, but that achieve no closure.
+ - The core of common culture is religion. Tribes survive and flourish because they have gods, who fuse many wills into a single will, and demand and reward the sacrifices on which social life depends.
+ - The music takes over the words and makes them speak to me in another language.
+ - Modern art was born from a desire to destroy kitsch.
+ - The art establishment has turned away from the old curriculum which puts beauty and craft at the top of the agenda.
+ - Modernism in architecture went hand in hand with socialist and fascist projects to rid old Europe of its hierarchical past.
+ - There is a deep human need for beauty and if you ignore that need in architecture your buildings will not last.
+ - Private property is one of the best institutions which has ever evolved, to protect us from the bullying of others.
+ - Architecture, like dress, is an exercise in good manners, and good manners involve the habit of skillful insincerity – the habit of saying “good morning” to those whose mornings you would rather blight, and of passing the butter to those you would rather starve.
+ - The abstract, unreal freedom of the liberal intellect was really nothing more than childish disobedience, amplified into anarchy.
+ - Marriage does not exist for the benefit of the present generation but for the benefit of the next.
+ - It is not enough to be nice; you have to be good. We are attracted by nice people; but only on the assumption that their niceness is a sign of goodness.
+ - In the absence of organized religion, the only vehicle for redemption is art – not just the fragmentary arts of painting or music or poetry, but the kind of art that creates a whole world in itself and in that world we see ourselves reflected and see our religious life perfected.
+ - When art becomes merely shock value, our sense of humanity is slowly degraded.
+ - Art has the ability to redeem life by finding beauty even in the worst aspect of things.
+ - When gifts are replaced by rights, so is gratitude replaced by claims. And claims breed resentment.
+ - Something of the child’s pure delight in creation survives in every true work of art.
+ - The sexual parts are not only vivid examples of the body’s dominion; they are also apertures whose damp emissions and ammoniac smells testify to the mysterious putrefaction of the body.
+ - In the attacks on the old ways of doing things on word in particular came into currency. That word was “kitsch.” Once introduced, the word stuck. Whatever you do, it musn’t be kitsch. This became the first precept of the modernist artist in every medium.
+ - Faith exalts the human heart, by removing it from the market-place, making it sacred and unexchangeable. Under the jurisdiction of religion our deeper feelings are sacralized, so as to become raw material for the ethical life: the life lived in judgement.
+ - The two most potent post-war orthodoxies – socialist politics and modernist art – have at least one feature in common: they are bothforms of snobbery, the anti-bourgeois snobbery of people convinced of their right to dictate to the common man in the name of the common man.
+ - Sometimes the intention is to shock us. But what is shocking first time around is boring and vacuous when repeated.
+ - Conservatism is itself a modernism, and in this lies the secret of its success.
+ - A philosopher who says, ‘There are no truths, only interpretations,’ risks the retort: ‘Is that true, or only an interpretation?’
+ - Music addresses us from beyond the borders of the natural world.
+ - Conservatives resonate to Burke’s view of society, as a partnership between the living, the unborn and the dead.
+ - When truth cannot make itself known in words, it will make itself known in deeds.
+ - In 1970s Britain, conservative philosophy was the preoccupation of a few half-mad recluses.
+ - Modernist buildings exclude dialogue, and the void that they create around themselves is not a public space but a desertification.
+ - There is a sort of mystery to kitsch. When did it begin? If it is just simply another name for faking emotions, it ought to have been a permanent part of the human condition.
+ - Affect not to despise beauty: no one is freed from its dominion; But regard it not a pearl of price – it is fleeting as the bow in the clouds.
+ - The pageant of a former hour, Is Beauty in the Grave.
+ - The best evidence of a mind is when you change it.
+ - Science proposes something and then does everything it can to disprove it. Religion is not like that. It proposes something and does everything it can to keep it from being disproved.
+ - A philosophy that begins in doubt assails what no-one believes, and invites us to nothing believable.
+ - The first effect of modernism was to make high culture difficult: to surround beauty with a wall of erudition.
+ - Sanctions make a substantial contribution to power based on privation, and they have never hurt a single despot in the whole history of their use.
+ - A civilization is a social entity that manifests religious, political, legal, and customary uniformity over an extended period, and which confers on its members the benefits of socially accumulated knowledge.
+ - When many people individually get what they want, the result may be something they collectively dislike.
+ - The problems of philosophy and the systems designed to solve them are formulated in terms which tend to refer, not to the realm of actuality, but to the realms of possibility and necessity: to what might be and what must be, rather than to what is.
+ - States are more like people than they are like anything else: they exist by purpose, reason, suffering, and joy. And peace between states is also like peace between people. It involves the willing renunciation of purpose, in the mutual desire not to do, but to be.
+ - Kant’s position is extremely subtle – so subtle, indeed, that no commentator seems to agree with any other as to what it is.
+ - The future of mankind, for the socialist, is simple: pull down the existing order and allow the future to emerge.
+
+60 quotes

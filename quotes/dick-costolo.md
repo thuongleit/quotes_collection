@@ -1,0 +1,24 @@
+ - There is no script. Live your life. Soak it all in.
+ - The way you build trust with your people is by being forthright and clear with them from day one. You may think people are fooled when you tell them what they want to hear. They are not fooled.
+ - Twitter is a global town square.
+ - Once in a rare while, somebody comes along who doesn’t just raise the bar, they create an entirely new standard of measurement.
+ - When you are doing what you love to do, you become resilient.
+ - Don’t always worry what your next line is going to be.
+ - Believe that if you make courageous choices and bet on yourself and put yourself out there, that you will have an impact, as a result of what you do. And you don’t need to know now what that would be or how will it happen because no one ever does.
+ - Don’t always worry about what your next line is supposed to be. There is no script. Live your life. Be in this moment.
+ - Not only can you not plan the impact you’re going to have, you often won’t recognize it when you’re having it.
+ - As you get ready to walk out under the bright lights of the improvisational stage of the rest of your life be bold. Don’t always worry about what your next line is going to be.
+ - Believe that if you make courageous choices, and bet on yourself, then you will have an impact.
+ - When I was your age, we didn’t have the Internet in our pants. We didn’t even have the Internet not in our pants. That’s how bad it was.
+ - Managing by trying to be liked is the path to ruin.
+ - That’s just silly. Closing a global business in reaction to single-issue national politics is foolish.
+ - What is the thing that matters most to making progress right now?
+ - The beauty of Twitter is that more and more people are flocking to it because it’s shrinking their world.
+ - I was in Shanghai recently, where Twitter is blocked, and yet there were ads and billboards across town with hashtags on them.
+ - Apple is our mentor, Facebook is our enemy.
+ - Authenticity is absolutely the key to a great tweet.
+ - If there’s ever an example of the importance of making bold bets and focusing on what you love, it’s Twitter.
+ - Twitter brings you closer. I mean, we see this over and over again from our users. It brings them closer to the action. It brings them closer to their heroes.
+ - The Internet destroyed most of the barriers to publication. The cost of being a publisher dropped to almost zero with two interesting immediate results: anybody can publish, and more importantly, you can publish whatever you want.
+
+22 quotes

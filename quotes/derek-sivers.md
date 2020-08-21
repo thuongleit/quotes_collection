@@ -1,0 +1,42 @@
+ - Customer service is the new marketing.
+ - If I’m not saying ‘Hell Yeah!’ to something, then I say no.
+ - How you do anything is how you do everything. Your “character” or “nature” just refers to how you handle all the day-to-day things in life, no matter how small.
+ - To me, ideas are worth nothing unless executed. They are just a multiplier. Execution is worth millions.
+ - It was the first follower that transformed the lone nut into a leader.
+ - If you really care about starting a movement, have the courage to follow and show others how to follow. And when you find a lone nut doing something great, have the guts to be the first one to stand up and join in.
+ - The most important lesson is probably to spend less than you earn.
+ - Don’t be on your deathbed someday, having squandered your one chance at life, full of regret because you pursued little distractions instead of big dreams.
+ - Business is not about money. It’s about making dreams come true for others and for yourself.
+ - Obvious to you is amazing to others.
+ - Whatever excites you, go do it. Whatever drains you, stop doing it.
+ - When you make a company, you make a utopia. It’s where you design your perfect world.
+ - Repeated psychology tests have proven that telling someone your goal makes it less likely to happen.
+ - The single most important thing is to make people happy. If you are making people happy, as a side effect, they will be happy to open up their wallets and pay you.
+ - Never forget why you’re really doing what you’re doing.
+ - Care about your customers more than about yourself, and you’ll do well.
+ - The most brilliant idea, with no execution, is worth $20. The most brilliant idea takes great execution to be worth $20,000,000.
+ - Making a company is a great way to improve the world while improving yourself.
+ - You’re free to do anything you want with your company. It’s more like art. You don’t have to follow any norms. It’s an expression of how you feel the world should be. When you make a company, that’s your little place to make your own little utopia.
+ - Success comes from persistently improving and inventing, not from persistently promoting what’s not working.
+ - Go find very early versions of things: the first TV pilot of a later-successful TV show; early audition tapes by famous actors; early demos by famous musicians. Focus on these early examples, not what they became over the next 20 years. Remember that what you’re doing will constantly improve.
+ - Five years after I started CD Baby, when it was a big success, the media said I had revolutionized the music business. But ‘revolution’ is a term that people use only when you’re successful. Before that, you’re just a quirky person who does things differently.
+ - There is no movement without the first follower. See, we are told that we all need to be leaders but that would be ineffective. The best way to make a movement, if you really care, is to courageously follow and show others how to follow.
+ - When you make a business, you get to make a little universe where you control all the laws.
+ - I love that sometimes we need to go to the opposite side of the world to realize assumptions that we didn’t even know we had and realize that the opposite may also be true.
+ - I’m not interested until I see their execution.
+ - Learning. It’s really the primary reason behind everything I do. Programming, entrepreneuring, writing.
+ - If you want to be useful, you can always start now. It will be a humble prototype of your grand vision, but you’ll be in the game. Start by teaching someone this week. Starting small puts 100% of your energy into solving real problems for real people.
+ - The purpose of money is to trade for things that make you happy. So if you can bypass money and get directly to the happy, you’ve saved a lot of trouble. And it makes others happier, too, when you organize your business around non-monetary things.
+ - In the end, it’s about what you want to be, not what you want to have.
+ - The creative person basically has two kinds of jobs: One is the sexy, creative kind. Second is the kind that pays the bills. Sometimes the task at hand covers both bases, but not often.
+ - You can’t please everyone, so proudly exclude people.
+ - Instead of staying strong and working through when times are really tough, I usually quit this recipe for failure and start a whole new recipe. So if something is too challenging, I tend to chalk it up as not a good fit, and move on to something else.
+ - Let’s never forget that whatever brilliant ideas you have or hear, that the opposite may also be true.
+ - Are you helping people? Are they happy? Are you happy? Are you profitable? Isn’t that enough?
+ - Make every decision – even decisions about whether to expand the business, raise money, or promote someone – according to what’s best for your customers.
+ - Ideas are just a multiplier of execution.
+ - It’s only a little difficult to say no. You’ve got to believe that the work you’re doing is ultimately more useful to the world.
+ - If it’s not a hit, switch.
+ - Don’t pursue business just for your own gain. Only answer the calls for help.
+
+40 quotes

@@ -1,0 +1,32 @@
+ - Life doesn’t make any sense without interdependence. We need each other, and the sooner we learn that, the better for us all.
+ - Personality, too, is destiny.
+ - In the social jungle of human existence, there is no feeling of being alive without a sense of identity.
+ - The more you know yourself, the more patience you have for what you see in others.
+ - The richest and fullest lives attempt to achieve an inner balance between three realms: work, love and play.
+ - Play is the most natural method of self-healing that childhood affords.
+ - There is in every child at every stage a new miracle of vigorous unfolding.
+ - If one sees the personality not as an apparatus that is essentially constructed by the time childhood is over, but as always in its essence developing, then life at 25 or 30 or at the gateway to middle age will stimulate its own intrigue, surprise, and exhilaration of discovery.
+ - You’ve got to learn to accept the law of life, and face the fact that we disintegrate slowly.
+ - Hope is the enduring belief in the attainability of fervent wishes, in spite of the dark urges and rages which mark the beginning of existence. Hope is the ontogenetic basis of faith, and is nourished by the adult faith which pervades patterns of care.
+ - The sense of identity provides the ability to experience one’s self as something that has continuity and sameness, and to act accordingly.
+ - If life is to be sustained, hope must remain...
+ - Hope is both the earliest and the most indispensable virtue inherent in the state of being alive. If life is to be sustained hope must remain, even where confidence is wounded, trust impaired.
+ - Do not mistake a child for his symptom.
+ - Doubt is the brother of shame.
+ - Healthy children will not fear life if their elders have integrity enough not to fear death.
+ - Adolescents need freedom to choose, but not so much freedom that they cannot, in fact, make a choice.
+ - The playing adult steps sideward into another reality; the playing child advances forward to new stages of mastery.
+ - When established identities become outworn or unfinished ones threaten to remain incomplete, special crises compel men to wage holy wars, by the cruelest means, against those who seem to question or threaten their unsafe ideological bases.
+ - Farms and in castles, in homes, studies, and cloisters – where sensible people manage to live relatively lusty and decent lives, as moral as they must be, as free as they may be, and as masterly as they can be. If we only knew it, this elusive arrangement is happiness.
+ - The fact that human conscience remains partially infantile throughout life is the core of human tragedy.
+ - When we looked at the life cycle in our 40s, we looked to old people for wisdom. At 80, though, we look at other 80-year-olds to see who got wise and who not. Lots of old people don’t get wise, but you don’t get wise unless you age.
+ - Mans true taproots are nourished in the sequence of generations, and he loses his taproots in disrupted developmental time, not in abandoned localities.
+ - If there is any responsibility in the cycle of life it must be that one generation owes to the next that strength by which it can come to face ultimate concerns in its own way.
+ - Will, therefore, is the unbroken determination to exercise free choice as well as self-restraint, in spite of the unavoidable experience of shame and doubt in infancy.
+ - The American feels too rich in his opportunities for free expression that he often no longer knows what he is free from. Neither does he know where he is not free; he does not recognize his native autocrats when he sees them.
+ - Children love and want to be loved and they very much prefer the joy of accomplishment to the triumph of hateful failure. Do not mistake a child for his symptom.
+ - Nobody likes to be found out, not even one who has made ruthless confession a part of his profession. Any autobiographer, therefore, at least between the lines, spars with his reader and potential judge.
+ - You can actively flee, then, and you can actively stay put.
+ - Let us face it: ‘deep down’ nobody in his right mind can visualize his own existence without assuming that he has always lived and will live hereafter.
+
+30 quotes

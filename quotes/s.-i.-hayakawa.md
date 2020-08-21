@@ -1,0 +1,35 @@
+ - Learning to write is learning to think. You don’t know anything clearly unless you can state it in writing.
+ - It is not true that we have only one life to live; if we can read, we can live as many more lives and as many kinds of lives as we wish.
+ - The meanings of words are not in the words, they are in us.
+ - McDonalds in Tokyo is a terrible revenge for Pearl Harbor.
+ - You guys are both saying the same thing. The only reason you’re arguing is because you’re using different words.
+ - I’m going to speak my mind because I have nothing to lose.
+ - It is the individual who knows how little they know about themselves who stands the most reasonable chance of finding out something about themselves before they die.
+ - In the age of television, image becomes more important than substance.
+ - We live in a highly competitive society, each of us trying to outdo the other in wealth, in popularity or social prestige, in dress, in scholastic grades or golf scores. One is often tempted to say that conflict, rather than cooperation, is the great governing principle of human life.
+ - There is only one thing age can give you, and that is wisdom.
+ - Bilingualism for the individual is fine, but not for a country.
+ - The language we share is at the core of our identity as citizens, and our ticket to full participation in American political life. We can speak any language we want at the dinner table, but English is the language of public discourse, or the marketplace and of the voting booth.
+ - Language is a unifying instrument which binds people together. When people speak one language they become as one, they become a society.
+ - If you see in any given situation only what everybody else can see, you can be said to be so much a representative of your culture that you are a victim of it.
+ - Notice the difference between what happens when a man says to himself, I have failed three times, and what happens when he says, I am a failure.
+ - If I spoke no English, my world would be limited to the Japanese-speaking community, and no matter how talented I was, I could never do business, seek employment or take part in public affairs outside that community.
+ - Republicans are people who, if you were drowning 50 feet from shore, would throw you a 25-foot rope and tell you to swim the other 25 feet because it would be good for your character. Democrats would throw you a hundred-foot rope and then walk away looking for other good deeds to do.
+ - Ever since man began to till the soil and learned not to eat the seed grain but to plant it and wait for harvest, the postponement of gratification has been the basis of a higher standard of living and of civilization.
+ - In a very real sense, people who have read good literature have lived more than people who cannot or will not read.
+ - Agreement is brought about by changing people’s minds – other people’s.
+ - Patriotic societies seem to think that the way to educate school children in a democracy is to stage bigger and better flag-saluting.
+ - I believe we are being dishonest with language minority groups if we tell them they can take full part in American life without learning the English language.
+ - English is the key to full participation in the opportunities of American life.
+ - English, our common language, binds our diverse people.
+ - Definitions, contrary to popular opinion, tell us nothing about things. They only describe people’s linguistic habits; that is, they tell us what noises people make under what conditions.
+ - Those terrifying verbal jungles called laws are simply such directives, accumulated, codified, and systematized through the centuries.
+ - The great thing about the United States is our ability to absorb foreign people and make them a part of us.
+ - The last thing a scientist would do is cling to a map because he inherited it from his grandfather, or because it was used by George Washington or Abraham Lincoln.
+ - You just don’t know anything unless you can write it. Sure you can argue things out in your own head and bring them out at parties, but in order to argue anything thoroughly, you must be able to put it down on paper.
+ - Good teachers never say anything. What they do is create the conditions under which learning takes place.
+ - How anybody dresses is indicative of his self-concept. If students are dirty and ragged, it indicates they are not interested in tidying up their intellects either.
+ - The United States is enriched by many cultures, and united by a single common language.
+ - Advertising is a symbol-manipulating occupation.
+
+33 quotes

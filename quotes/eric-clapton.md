@@ -1,0 +1,104 @@
+ - I know there will be no more tears in heaven.
+ - Would you know my name, if I saw you in Heaven?
+ - All along this path I tread, my heart betrays my weary head, with nothing but my love to save, from the cradle to the grave...
+ - You can’t mastermind everything. You’ll go crazy. Just show up and play.
+ - I’m an egomaniac with an inferiority complex.
+ - I feel wonderful because I see the love light in your eyes, and the wonder of it all is you just don’t realize how much I love you.
+ - Plant your love and let it grow.
+ - Music survives everything, and like God, it is always present. It needs no help, and suffers no hindrance.
+ - I got a problem, can you relate? I got a woman calling love hate.
+ - Before you accuse me, take a look at yourself.
+ - Time can bring you down, time can bend your knees.
+ - I am, and always will be, a blues guitarist.
+ - Our love will rule in this kingdom we have made.
+ - Given the choice between accomplishing something and just lying around, I’d rather lie around. No contest.
+ - One of the most beneficial things I’ve ever learned is how to keep my mouth shut.
+ - I like solitude. I like the anomalous life. I like a quiet life.
+ - Lately I’ve been running on faith.
+ - I sought my father in the world of the black musician, because it contained wisdom, experience, sadness and loneliness. I was not ever interested in the music of boys. From my youngest years, I was interested in the music of men.
+ - For me, the most trustworthy vehicle for spirituality had always proven to be music.
+ - Music became a healer for me.
+ - For me there is something primitively soothing about this music, and it went straight to my nervous system, making me feel ten feet tall.
+ - Every time you pick up your guitar to play, play as if it’s the last time.
+ - My driving philosophy about making music is that you can reduce it all down to one note if that note is played with the right kind of sincerity.
+ - I think everybody has their own way of looking at their lives as some kind of pilgrimage. Some people will see their role as a pilgrim in terms of setting up a fine family, or establishing a business inheritance. Everyone’s got their own definition.
+ - Well, I think part of my gift, or if I have one, is that I love listening.
+ - When I’m wrong it’s never meant for you, so don’t confuse my love with what I do.
+ - If you hand me a guitar, I’ll play the blues. That’s the place I automatically go.
+ - Music became a healer for me. And I learned to listen with all my being. I found that it could wipe away all fear and confusion...
+ - All I am certain of right now is that I don’t want to go anywhere, and that’s not bad for someone who always used to run.
+ - I never set myself too high a goal. It was always tone and feeling, for me.
+ - I did play a lot of fingerstyle when I first started playing. I could never really find the right combination of flatpick or fingerpick, so playing fingerstyle is really the easiest way – though it’s quite strenuous on the fingertips.
+ - I’m not a big fan of lead vocalists, people who sing but don’t play. I never wanted to be in a band where the guy who was up front just sang. I’ve always thought it better when one of the musicians sings, like Steve Winwood.
+ - I wish I could write easily. I’m one of those guys who’s visited by the muse when things are dire.
+ - There’s a desire in me to express something – to match what I hear in my head.
+ - The point of being at home is to be with my family as much as possible.
+ - I often enjoy singing in an acoustic setting more than an amplified one.
+ - Only ask and you will get what you are needing, the rest is up to you.
+ - And I don’t like having my picture taken. I’m almost like an old African in that sense. I think it steals a bit of the soul.
+ - Like a fool, I fell in love with you, Turned my whole world upside down.
+ - I thought, ‘My God, this is like Buddy Guy on acid.’
+ - I admire Eddie Van Halen and Steve Lukather, but they might blow me away quite easily if we were to jam together.
+ - I couldn’t believe how good Jimi Hendrix was It was a really difficult thing for me to deal with, but I just had to surrender and say, ‘This is fantastic.’
+ - When all the original blues guys are gone, you start to realize that someone has to tend to the tradition. I recognize that I have some responsibility to keep the music alive, and it’s a pretty honorable position to be in.
+ - There are people these days who can do things on the guitar which are beyond my reach. There’s one guy who plays with Queen who can do things I would dream of doing. I sincerely mean that.
+ - I saw you walking with your other man today. If I catch you one more time, I’m gonna blow you both away.
+ - Leave bands, go back to obscurity if I choose to, without a great sense of loss of security because it’s all been based on the fact that I did it on my own or was doing, enjoying doing it on my own in the first place.
+ - In playing, I suppose my greatest gift was to express the way I felt or the willingness to express myself.
+ - It’s very dependent on your state of mind. And your emotional state as well. And a lot of it comes pouring out, you don’t really have that much control with it.
+ - I mean, it didn’t matter to me that there were people, it didn’t matter that I was shy Just the sound was so captivating that it helped me to get rid of those inhibitions.
+ - I tried when I was 13, when my grandparents gave me an acoustic guitar, and I tried for a year. It hurt so much to play. I mean, the fingertips hurt so much, I gave up.
+ - They found our hero in the gutter with a diamond ring and a gun.
+ - From the beginning, I knew intuitively that if nothing else, music was safe, and that nobody could tell me anything about it. Music didn’t need a middleman, whereas all the other things in school needed some kind of explanation.
+ - Risk is trying to control something you are powerless over.
+ - In my lowest moments, the only reason I didn’t commit suicide was that I knew I wouldn’t be able to drink any more if I was dead.
+ - I’d love to knock an audience cold with one note, but what do you do for the rest of the evening?
+ - Give me a guitar and I’ll play; give me a stage and I’ll perform; give me an auditorium and I’ll fill it.
+ - The music scene as I look at it today is a little different from when I was growing up. The percentages are roughly the same – 95 percent rubbish, 5 percent pure.
+ - I used to do crazy things that people would bail me out of, and I’m just grateful that I survived. But the music got very lost; I didn’t know where I was going, and I didn’t really care. I was more into just having a good time, and I think it showed.
+ - I just like the company of beautiful women. I have a weakness in that department.
+ - Very much like that, and very much a loner, do you know and I didn’t fit really into sport or all kind of group activities as a kid, I couldn’t find a niche. And music was not really part of the kind of village curriculum it would, you know.
+ - And if I don’t be there by morning, she’ll know that I must’ve spent the night in jail.
+ - Up until I became a father, it was all about self-obsession. But then I learned exactly what it’s all about: the delight of being a servant.
+ - It is painful to relive things that have caused emotional crises or whatever and find ways to express that musically.
+ - Oh yeah, I mean, it wasn’t a very good guitar, most good guitars have got thrust rods in the necks that you can adjust or that’ll keep them in shape, you know keep them straight. This one just, well it turned into a bow and arrow after a couple of months.
+ - The only planning I do is about a minute before I play. I desperately try to think of something that will be effective, but I never sit down and work it out note for note.
+ - The blues are what I’ve turned to, what has given me inspiration and relief in all the trials of my life.
+ - An obsession is where something will not leave your mind.
+ - Although they can do it all the time, you know, they’re far better than me, on a musically, on a theoretical music level. You know, they’re out of my league.
+ - So there I was in Hollywood, thinking I was doing good.
+ - I just managed to convince my grandmother that it was a worth while that was something to do, you know, and when I did finally get the guitar, it didn’t seem that difficult to me, to be able to make a good noise out of it.
+ - I just like the company of beautiful women. I have a weakness in that department. And I suppose because I am fairly well off and a famous musician, I’m up for grabs. And that makes me an eligible bachelor in the press.
+ - The first guitar I ever had was a gut-string Spanish guitar, and I couldn’t really get the hang of it. I was only 13, and I talked my grandparents into buying it for me. I tried and tried and tried, but got nowhere with it.
+ - I remember hearing Sonny Terry and Brownie McGhee, Big Bill Broonzy, Chuck Berry and Bo Diddley and not really knowing anything about the geography or the culture of the music. But for some reason it did something to me – it resonated.
+ - To sing in a lower key is harder work. You have to use your diaphragm more.
+ - My original interests and intentions in guitar playing were primarily created on quality of tone, for instance, the way the instrument could be made to echo or simulate the human voice.
+ - It’s taken me to be an older guy, an old man, to have an old man’s voice. Because I only liked old men’s voices. As a kid, I didn’t like pip-squeaked singers.
+ - But the guitar, when you think about it, is the most versatile, really. I mean you can pick it up and take it with you wherever you go.
+ - This moment in time, on this tour, you know, I’m discovering a lot of new things. And to be 45 and doing that, it’s a mixture of pleasure and pain, I can assure you.
+ - A British pressing with a compilation of the best stuff really, I mean actually not only that but, these were all kind of semi hits for the people on it in America.
+ - Having lovers and friends is all good and fine But I don’t like yours and you don’t like mine.
+ - The first band I identified with from Chicago was the Muddy Waters band.
+ - I feel a real need to observe a level of propriety in what I’m handing out. Instead of me just venting or spilling my guts, I’ve got to consider how it’s going to affect people. How it’s going to affect me, as well. Because it’s like a cycle.
+ - I don’t know if I believe in luck. I think I’m very fortunate.
+ - You were at school and you were pimply and no one wanted to know you. You get into a group and you’ve got thousands of chicks there.
+ - I never met Johnny Rotten, and I didn’t want to meet Johnny Rotten.
+ - Musically, he was like an old man in a boy’s skin.
+ - Loose ladies on the road will drive you crazy, every no, becomes a maybe.
+ - I mean, the sound of an amplified guitar in a room full of people was so hypnotic and addictive to me, that I could cross any kind of border to get on there.
+ - I can’t play long solos anymore without boring myself.
+ - I remember when I thought of singing as the bit that went between the guitar playing – something I couldn’t wait to get out of the way. Singing was originally like a chore that I didn’t really enjoy.
+ - Yeah, it is, because it’s a real discovery of your inner resources, you know. That’s what my character is all about and what my playing is all about. But to get up there and just go inside and draw out something that makes you feel good first and foremost.
+ - It’s been very important throughout my career that I’ve met all the guys I’ve copied, because at each stage they’ve said, ‘Don’t play like me, play like you.’
+ - It’s been up to me to inspire me.
+ - I think I deliberately sold out a couple of times. I picked the songs that I thought would do well in the marketplace, even though I didn’t really love the song.
+ - I grew up playing in clubs – that’s my spiritual stomping ground.
+ - I don’t have half the nerves there that I have anywhere else.
+ - They looked great, you know the drawings of the guys playing looked great and bits of string around their necks. So it didn’t seem to be that difficult a thing to do, or that inaccessible.
+ - It was stumbling on to really the bible of the blues, you know, and a very powerful drug to be introduced to us and I absorbed it totally, and it changed my complete outlook on music.
+ - When I was in Nashville, Tennessee in 1970 with Derek and the Dominoes, I went into this shop and they had a rack of Strats and Teles – all going for $100.00 each. I bought a handfull and made Blackie out of the body from one, the neck from another, and so on.
+ - But I did go to music really early on, even when I was 4 or 5, I was responding to music probably in ways other kids were not.
+ - The toughest thing about being a celebrity, I suppose, is being polite when I don’t want to be.
+ - One summer I remember, I got exposed to Chuck Berry and Buddy Holly and Buddy Holly was a very very big, made a very big impression on me. Because of a lot of things, you know, the way he looked and his charisma.
+
+102 quotes

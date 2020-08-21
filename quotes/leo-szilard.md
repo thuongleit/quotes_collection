@@ -1,0 +1,24 @@
+ - Do not destroy what you cannot create.
+ - You may assume infinite ignorance and unlimited intelligence.
+ - A scientist’s aim in a discussion with his colleagues is not to persuade, but to clarify.
+ - I’m all in favor of the democratic principle that one idiot is as good as one genius, but I draw the line when someone takes the next step and concludes that two idiots are better than one genius.
+ - In life you must often choose between getting a job done or getting credit for it. In science, the most important thing is not the ideas you have but the decision which ones you choose to pursue. If you have an idea and are not doing anything with it, why spoil someone else’s fun by publishing it?
+ - Speak to all men as you do to yourself, with no concern for the effect you make, so that you do not shut them out from your world; lest in isolation the meaning of life slips out of sight and you lose the belief in the perfection of creation.
+ - Don’t lie if you don’t have to.
+ - If you want to succeed in the world, you don’t have to be much cleverer than other people. You just have to be one day earlier.
+ - Do your work for six years; but in the seventh, go into solitude or among strangers, so that the memory of your friends does not hinder you from being what you have become.
+ - I am thinking of keeping a diary, not with the intend to publish it, merely to record the facts for the information of God, in case God does not know my version of the facts.
+ - I’m looking for a market for wisdom.
+ - If one knows only what one is told, one does not know enough to be able to arrive at a well-balanced decision.
+ - Even if we accept, as the basic tenet of true democracy, that one moron is equal to one genius, is it necessary to go a further step and hold that two morons are better than one genius?
+ - Pronouncement of experts to the effect that something cannot be done has always irritated me.
+ - Science is progressing at such a rapid rate that when you make a prediction and think you are ahead of your time by 100 years you may be ahead of your time by 10 at most.
+ - In science it is not enough to think of an important problem on which to work. It is also necessary to know the means which could be used to investigate the problem.
+ - The most important step in getting a job done is the recognition of the problem. Once I recognize a problem I usually can think of someone who can work it out better than I could.
+ - A great power imposes the obligation of exercising restraint, and we did not live up to this obligation. I think this affected many of the scientists in a subtle sense, and it diminished their desire to continue to work on the bomb.
+ - If the thickness is larger than the critical value I can produce an explosion.
+ - I have been asked whether I would agree that the tragedy of the scientist is that he is able to bring about great advances in our knowledge, which mankind may then proceed to use for purposes of destruction. My answer is that this is not the tragedy of the scientist; it is the tragedy of mankind.
+ - We turned the switch, saw the flashes, watched for ten minutes, then switched everything off and went home. That night I knew the world was headed for sorrow.
+ - A man’s clarity of judgment is never very good when you’re involved, and as you grow older, and as you grow more involved, your clarity of judgement suffers .
+
+22 quotes

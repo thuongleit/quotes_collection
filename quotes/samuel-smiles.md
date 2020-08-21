@@ -1,0 +1,133 @@
+ - Sow a thought, and you reap an act; Sow an act, and you reap a habit; Sow a habit, and you reap a character; Sow a character, and you reap a destiny.
+ - We learn wisdom from failure much more than from success. We often discover what will do, by finding out what will not do; and probably he who never made a mistake never made a discovery.
+ - The shortest way to do many things is to do one at a time.
+ - Self-control is only courage under another form.
+ - Hope is like the sun, which, as we journey toward it, casts the shadow of our burden behind us.
+ - Cheerfulness is also an excellent wearing quality. It has been called the bright weather of the heart.
+ - With will one can do anything.
+ - When typhus or cholera breaks out, they tell us that Nobody is to blame. That terrible Nobody! How much he has to answer for. More mischief is done by Nobody than by all the world besides.
+ - Politeness goes far, yet costs nothing.
+ - All work and no play makes Jack a dull boy. But all play and no work makes him something worse.
+ - The great leader attracts to himself men of kindred character, drawing them towards him as the loadstone draws iron.
+ - The very greatest things – great thoughts, discoveries, inventions – have usually been nurtured in hardship, often pondered over in sorrow, and at length established with difficulty.
+ - The battle of life is, in most cases, fought uphill; and to win it without a struggle were perhaps to win it without honor. If there were no difficulties there would be no success; if there were nothing to struggle for, there would be nothing to be achieved.
+ - The spirit of self-help is the root of all genuine growth in the individual.
+ - He who never made a mistake, never made a discovery.
+ - It is energy – the central element of which is will – that produces the miracle that is enthusiasm in all ages. Everywhere it is what is called force of character and the sustaining power of all great action.
+ - Childhood is like a mirror, which reflects in after life the images first presented to it.
+ - It is the close observation of little things which is the secret of success in business, in art, in science, and in every pursuit of life.
+ - It is not ease, but effort-not facility, but difficulty, makes men. There is, perhaps, no station in life in which difficulties have not to be encountered and overcome before any decided measure of success can be achieved.
+ - Self-respect is the noblest garment with which a man can clothe himself, the most elevating feeling with which the mind can be inspired.
+ - Lost wealth may be replaced by industry, lost knowledge by study, lost health by temperance or medicine, but lost time is gone forever.
+ - Good character is property. It is the noblest of all possessions.
+ - Example teaches better than precept. It is the best modeler of the character of men and women. To set a lofty example is the richest bequest a man can leave behind him.
+ - Progress however, of the best kind, is comparatively slow. Great results cannot be achieved at once; and we must be satisfied to advance in life as we walk, step by step.
+ - Men whose acts are at variance with their words command no respect, and what they say has but little weight.
+ - Good sense, disciplined by experience and inspired by goodness, issues in practical wisdom.
+ - A woman’s best qualities do not reside in her intellect, but in her affections. She gives refreshment by her sympathies, rather than by her knowledge.
+ - Men who are resolved to find a way for themselves will always find opportunities enough; and if they do not find them, they will make them.
+ - The experience gathered from books, though often valuable, is but the nature of learning; whereas the experience gained from actual life is one of the nature of wisdom.
+ - I see nothing quite conclusive in the art of temporal government, But violence, duplicity and frequent malversation. King rules or barons rule: The strong man strongly and the weak man by caprice. They have but one law, to seize the power and keep it.
+ - Obedience, submission, discipline, courage – these are among the characteristics which make a man.
+ - Practical wisdom is only to be learned in the school of experience. Precepts and instruction are useful so far as they go, but, without the discipline of real life, they remain of the nature of theory only.
+ - Time is of no account with great thoughts. They are as fresh today as when they first passed through their author’s minds, ages ago.
+ - The great high-road of human welfare lies along the old highway of steadfast, well-doing; and they who are the most persistent, and work in the truest spirit, will invariably be the most successful; success treads on the heels of every right effort.
+ - Although genius always commands admiration, character most secures respect. The former is more the product of the brain, the latter of heart-power; and in the long run it is the heart that rules in life.
+ - The noble people will be nobly ruled, and the ignorant and corrupt ignobly.
+ - Sympathy is the golden key that unlocks the hearts of others.
+ - Childhood is like a mirror, which reflects in afterlife the images first presented to it. The first thing continues forever with the child. The first joy, the first sorrow, the first success, the first failure, the first achievement, the first misadventure, paint the foreground of his life.
+ - The duty of helping one’s self in the highest sense involves the helping of one’s neighbors.
+ - True politeness is consideration for the opinions of others. It has been said of dogmatism that it is only puppyism come to its full growth; and certainly the worst form this quality can assume is that of opinionativeness and arrogance.
+ - The truest politeness comes of sincerity.
+ - Alexander the Great valued learning so highly, that he used to say he was more indebted to Aristotle for giving him knowledge than to his father Philip for life.
+ - Luck whines; labor whistles.
+ - An intense anticipation itself transforms possibility into reality; our desires being often but precursors of the things which we are capable of performing.
+ - Life will always be to a large extent what we ourselves make it.
+ - It is a mistake to suppose that men succeed through success; they much oftener succeed through failures. Precept, study, advice, and example could never have taught them so well as failure has done.
+ - All experiences of life seems to prove that the impediments thrown in the way of the human advancement may for the most part be overcome by steady good conduct, honest zeal, activity, perseverance and above all, by a determined resolution to surmount.
+ - Energy of will may be defined to be the very central power of character in a man.
+ - Great men are always exceptional men; and greatness itself is but comparative. Indeed, the range of most men in life is so limited that very few have the opportunity of being great.
+ - Luck lies in bed, and wishes the postman would bring him news of a legacy; labor turns out at six, and with busy pen or ringing hammer lays the foundation of a competence.
+ - The government of a nation itself is usually found to be but the reflux of the individuals composing it. The government that is ahead of the people will be inevitably dragged down to their level, as the government that is behind them will in the long run be dragged up.
+ - The cheapest of all things is kindness, its exercise requiring the least possible trouble and self-sacrifice. Win hearts, said Burleigh to Queen Elizabeth, and you have all men’s hearts and purses.
+ - To set a lofty example is the richest bequest a man can leave behind.
+ - There is no act, however trivial, but has its train of consequences.
+ - Character is undergoing constant change, for better or for worse – either being elevated on the one hand, or degraded on the other.
+ - The knowledge and experience which produce wisdom can only become a man’s individual possession and property by his own free action; and it is as futile to expect these without laborious, painstaking effort, as it is to hope to gather a harvest where the seed has not been sown.
+ - Commit a child to the care of a worthless, ignorant woman, and no culture in after-life will remedy the evil you have done.
+ - For want of self-restraint many men are engaged all their lives in fighting with difficulties of their own making.
+ - The career of a great man remains an enduring monument of human energy. The man dies and disappears, but his thoughts and acts survive and leave an indelible stamp upon his race.
+ - The egotist is next door to a fanatic.
+ - Help from without is often enfeebling in its effects, but help from within invariably invigorates.
+ - Persons with comparatively moderate powers will accomplish much, if they apply themselves wholly and indefatigably to one thing at a time.
+ - The possession of a library, or the free use of it, no more constitutes learning, than the possession of wealth constitutes generosity.
+ - The healthy spirit of self-help created among working people would, more than any other measure, serve to raise them as a class; and this, not by pulling down others, but by levelling them up to a higher and still advancing standard of religion, intelligence, and virtue.
+ - Marriage like government is a series of compromises. One must give and take, repair and restrain, endure and be patient.
+ - The greatest slave is not he who is ruled by a despot, great though that evil be, but he who is in the thrall of his own moral ignorance, selfishness, and vice.
+ - National progress is the sum of individual industry, energy, and uprightness, as national decay is of individual idleness, selfishness, and vice.
+ - Those who have most to do, and are willing to work, will find the most time.
+ - Men must necessarily be the active agents of their own well-being and well-doing they themselves must in the very nature of things be their own best helpers.
+ - Life is of little value unless it be consecrated by duty.
+ - Whatever is done for men takes away from the stimulus and necessity of doing things for themselves. The value of legislative as an agent in human advancement has been much over-estimated. No laws, however stringent, can make the idle industrious, the thriftless provident or the drunken sober.
+ - Those who are the most persistent, and work in the true spirit, will invariably be the most successful.
+ - Manners are the ornament of action.
+ - He who labours not, cannot enjoy the reward of labour.
+ - The life of a good man is at the same time the most eloquent lesson of virtue and the most severe reproof of vice.
+ - The work of many of the greatest men, inspired by duty, has been done amidst suffering and trial and difficulty. They have struggled against the tide, and reached the shore exhausted.
+ - The brave man is an inspiration to the weak, and compels them, as it were, to follow him.
+ - No laws, however stringent, can make the idle industrious, the thriftless provident, or the drunken sober.
+ - Riches do not constitute any claim to distinction. It is only the vulgar who admire riches as riches.
+ - Those who aren’t making mistakes probably aren’t making anything.
+ - Home is the first and most important school of character. It is there that every human being receives his best moral training, or his worst; for it is there that he imbibes those principles of conduct which endure through manhood, and cease only with life.
+ - If we opened our minds to enjoyment, we might find tranquil pleasures spread about us on every side. We might live with the angels that visit us on every sunbeam, and sit with the fairies who wait on every flower.
+ - Courage is by no means incompatible with tenderness. On the contrary, gentleness and tenderness have been found to characterize the men, no less than the women, who have done the most courageous deeds.
+ - The women of the poorer classes make sacrifices, and run risks, and bear privations, and exercise patience and kindness to a degree that the world never knows of, and would scarcely believe even if it did know.
+ - Conscience is that peculiar faculty of the soul which may be called the religious instinct.
+ - Work is one of the best educators of practical character.
+ - Men cannot be raised in masses as the mountains were in he early geological states of the world. They must be dealt with as units; for it is only by the elevation of individuals that the elevation of the masses can be effectively secured.
+ - Character is itself a fortune.
+ - Commonplace though it may appear, this doing of one’s duty embodies the highest ideal of life and character. There may be nothing heroic about it; but the common lot of men is not heroic.
+ - Purposes, like eggs, unless they be hatched into action, will run into rottenness.
+ - Cecil’s dispatch of business was extraordinary, his maxim being, “The shortest way to do many things is to do only one thing at once.”
+ - Make good thy standing place, and move the world.
+ - The great and good do no die even in this world. Embalmed in books, their spirits walk abroad. The book is a living voice. It is an intellect to which one still listens.
+ - This extraordinary metal, the soul of every manufacture, and the mainspring perhaps of civilised society. Of iron.
+ - The apprenticeship of difficulty is one which the greatest of men have had to serve.
+ - Like men, nations are purified and strengthened by trials.
+ - Necessity, oftener than facility, has been the mother of invention; and the most prolific school of all has been the school of difficulty.
+ - Experience serves to prove that the worth and strength of a state depend far less upon the form of its institutions than upon the character of its men; for the nation is only the aggregate of individual conditions, and civilization itself is but a question of personal, improvement.
+ - Progress, of the best kind, is comparatively slow.
+ - There are many counterfeits of character, but the genuine article is difficult to be mistaken.
+ - Any number of depraved units cannot form a great nation.
+ - Stothard learned the art of combining colors by closely studying butterflies wings; he would often say that no one knew what he owed to these tiny insects. A burnt stick and a barn door served Wilkie in lieu of pencil and canvas.
+ - Men often discover their affinity to each other by the mutual love they have for a book.
+ - The principal industrial excellence of the English people lay in their capacity of present exertion for a distant object.
+ - All that is great in man comes through work; and civilization is its product.
+ - Woman, above all other educators, educates humanly. Man is the brain, but woman is the heart, of humanity.
+ - Mere political reform will not cure the manifold evils which now afflict society. There requires a social reform, a domestic reform, an individual reform.
+ - The best school of discipline is home. Family life is God’s own method of training the young, and homes are very much as women make them.
+ - Fortune has often been blamed for her blindness; but fortune is not so blind as men are. Those who look into practical life will find that fortune is usually on the side of the industrious, as the winds and waves are on the side of the best navigators.
+ - The spirit of self-help is the root of all genuine growth in the individual; and, exhibited in the lives of many, it constitutes the true source of national vigour and strength. Help from without is often enfeebling in its effects, but help from within invariably invigorates.
+ - Though an inheritance of acres may be bequeathed, an inheritance of knowledge and wisdom cannot. The wealthy man may pay others for doing his work for him; but it is impossible to get his thinking done for him by another, or to purchase any kind of self-culture.
+ - The reason why so little is done, is generally because so little is attempted.
+ - The great lesson of biography is to show what man can be and do at his best. A noble life put fairly on record acts like an inspiration to others.
+ - Honorable industry always travels the same road with enjoyment and duty, and progress is altogether impossible without it.
+ - The most influential of all the virtues are those which are the most in request for daily use. They wear the best, and last the longest.
+ - Nothing of real worth can be obtained without courageous working. Man owes his growth chiefly to the active striving of the will, that encounter with difficulty which he calls effort; and it is astonishing to find how often results apparently impracticable are then made possible.
+ - Energy enables a man to force his way through irksome drudgery and dry details and caries him onward and upward to every station in life.
+ - Knowledge conquered by labor becomes a possession -a property entirely our own.
+ - Great men stamp their mind upon their age and nation.
+ - Riches are oftener an impediment than a stimulus to action; and in many cases they are quite as much a misfortune as a blessing.
+ - Wisdom and understanding can only become the possession of individual men by travelling the old road of observation, attention, perseverance, and industry.
+ - Success treads on the heels of every right effort; and though it is possible to overestimate success to the extent of almost deifying it, as is sometimes done, still in any worthy pursuit it is meritorious.
+ - There are many persons of whom it may be said that they have no other possession in the world but their character, and yet they stand as firmly upon it as any crowned king.
+ - Man cannot aspire if he looked down; if he rise, he must look up.
+ - Even happiness itself may become habitual. There is a habit of looking at the bright side of things, and also of looking at the dark side.
+ - Labor is still, and ever will be, the inevitable price set upon everything which is valuable.
+ - The highest culture is not obtained from the teacher when at school or college, so much as by our ever diligent self-education when we become men.
+ - If character be irrecoverably lost, then indeed there will be nothing left worth saving.
+ - Labour may be a burden and a chastisement, but it is also an honour and a glory. Without it, nothing can be accomplished.
+ - The influence of woman is the same everywhere. Her condition influences the morals, manners, and character of the people of all countries. Where she is debased, society is debased; where she is morally pure and enlightened, society will be proportionately elevated.
+ - The tiniest bits of opinion sown in the minds of children in private life afterwards issue forth to the world, and become its public opinion; for nations are gathered out of nurseries.
+
+131 quotes

@@ -1,0 +1,23 @@
+ - I was a grad student at UC Berkeley when I bought my Apple II and it suddenly because a lot more interesting than school.
+ - I’m the kind of developer who likes to throw lightning rods around. To make a great program there’s got to be at least one person at the center who is breathing life into it. In a ferocious way.
+ - People who work on the user interface side need to have empathy as a key characteristic. But if you are writing device drivers you don’t really need to understand humans so well.
+ - I did some products for the Apple II, most notably the first small low cost thermal printer, the Silent Type.
+ - Being idealistic really helps you overcome some of the many obstacles put in your path.
+ - I started working at Apple about 18 months after I bought my Apple II.
+ - I developed some unique software to public it on the web that I call the Folklore Project.
+ - The Macintosh having shipped, his next agenda was to turn the rest of Apple into the Mac group. He had perceived the rest of Apple wasn’t as creative or motivated as the Mac team, and what you need to take over the company are managers, not innovators or technical people.
+ - The Apple II was not designed like an ordinary product. It used crazy tricks everywhere.
+ - As you know, Microsoft eventually kind of grabbed the gold ring out of Apple’s hands, I guess.
+ - I got bitten by the free software bug in February of 1998 around the time of the Mozilla announcement.
+ - I left Apple in April of 1984, pretty soon after the introduction of the Mac.
+ - We were developing an innovative Personal Information Manager called Chandler but a couple years ago I took off from that to do a project writing down my memoirs essentially, reminiscing about the development of the Macintosh.
+ - Part of Steve’s job was to drum into us how important what we were doing actually would be to the world.
+ - I knew the Apple II was great when I bought it, but as I dug into the details it just completely blew me away the creative artistic approach that the designers had taken.
+ - You show me a great program and I’ll show you a passionate individual somewhere behind it.
+ - I left General Magic in 1996 to become an Internet hobbyist – got a T-1 line to my house. At one point I had all four food banks of the Bay Area hosted from this house here.
+ - A lot of people thought Steve Jobs was a CEO of Apple but he never was until he came back to Apple in 1997.
+ - But I think Steve’s main contribution besides just the pure leadership is his passion for excellence. He’s a perfectionist. Good enough isn’t good enough. And also his creative spirit. You know he really, really wants to do something great.
+ - Scotty heard that I was thinking about quitting Apple because of his actions, so he called me into his office and asked what it would take for me to stay? I said, maybe if I could work on the Mac project, which Steve had just taken over from Jef Raskin.
+ - In fact when I first got my Apple II the first thing I did was turn it on and off, on and off, just because I had the power to do so, which I’d never had on a computer before.
+
+21 quotes

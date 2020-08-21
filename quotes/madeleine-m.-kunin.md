@@ -1,0 +1,54 @@
+ - A skilled worker, regardless of the job description, remains a treasure.
+ - We see the world through the lens of all our experiences; that is a fundamental part of the human condition.
+ - Early childhood education begins early, even before birth.
+ - We continue to blame the poor for their own condition. They are lazy. We do not want to know that the poorest of the poor are toddlers under three years of age.
+ - Those who speak up, those who use their connections, are more likely to succeed than those who sit and wait.
+ - Any smart executive understands that to find the best talent she has to explore new territory that lies beyond familiar geography. That applies not only to gender, but also to race, religion, background and age.
+ - Fair treatment in the work force is no longer exclusively a labor issue, nor is it a women’s issue – it is a fundamental economic issue.
+ - Women need to see ourselves as individuals capable of creating change. That is what political and economic power is all about: having a voice, being able to shape the future. Women’s absence from decision-making positions has deprived the country of a necessary perspective.
+ - Our right to disagree is precious but fragile. The best way to protect and preserve it is to let the other side speak without demonizing them or destroying their right to be heard. Such civil exchanges are the heart beat of democracy – essential to keeping it alive.
+ - The best antidote to poverty remains simple – a paycheck. Policies like paid family leave, workplace flexibility and affordable quality childcare can make the difference for two-parent or single-parent working families who struggle to make ends meet.
+ - Contradictory as it seems, malnutrition is a key contributor to obesity.
+ - There are no more excuses for leaving women out of the inner circles of power. Qualified women are everywhere. Women are ready for leadership; they just need to be identified and asked.
+ - To make flexibility work, it is not only necessary to change our attitude about who is a good worker and who is not, but we have to train managers at all levels to recognize the difference between the number of hours worked and the quality of work produced.
+ - Simply put, when women do well, everybody does better.
+ - Money often determines not only who gets elected, but what gets done. Which voices do lawmakers listen to, the banks or home owners, coal companies, or asthma sufferers, the CEOs or the unemployed?
+ - Inaction, contrary to its reputation for being a refuge, is neither safe nor comfortable.
+ - Working moms, and increasingly working dads, don’t want a government handout, but they do need a hand up.
+ - Children refuse to compromise. Adults learn how.
+ - Every time a woman leaves the workforce because she can’t find or afford childcare, or she can’t work out a flexible arrangement with her boss, or she has no paid maternity leave, her family’s income falls down a notch. Simultaneously, national productivity numbers decline.
+ - Are there really good wars and bad wars? We thought so during World War II, and in retrospect, we were right. But in Vietnam, and Iraq we were wrong.
+ - If months were marked by colors, November in New England would be colored gray.
+ - Volunteer activities can foster enormous leadership skills. The nonprofit professional volunteer world is a laboratory for self – realization.
+ - Like art, political action gives shape and expression to the things we fear as well as to those we desire. It is a creative process, drawing on the power to imagine as well as to act.
+ - When I ran for governor, was I ambitious? Yes. Anyone, male or female, who goes through the trials of a campaign must be ambitious.
+ - One is responsible for one’s own life. Passivity provides no protection.
+ - Statistics do not convey emotion. They shock us for a minute or two, and then we click again.
+ - Video games seem to be mostly a boy thing – viewed by young boys and created by big boys. I believe that if more videos games were created by women, the violence in these games – especially against women – would be rapidly toned down.
+ - A desire to succeed in politics is propelled by these two seemingly contradictory forces, which frequently change places and sometimes coexist: to save others and to save oneself.
+ - The Republican agenda is, and always has been, to repeal Roe v. Wade, and at the very least, erode it to the greatest extent possible.
+ - Why is computer science a good field for women? For one thing, thats where the jobs are, and for another, the pay is better than for many jobs, and finally, its easier to combine career and family.
+ - Women in leadership cannot cry without raising a storm of commentary.
+ - When we mention the 1 percent and the 99 percent, everybody now knows what we are talking about. It’s part of our vocabulary. How quickly these numbers jumped from the sidelines to the center.
+ - Why are video games so violent? The ones I’ve seen remind me of the 4th of July, with everything exploding, buildings, cars, airplanes, men and women. Kill, kill, and kill for sport and entertainment.
+ - The United States is no longer first in the world in upward mobility. We can reverse that trend by giving our young children an equal start in life as they begin their journey to fulfill the American Dream.
+ - A small pay discrepancy between men’s and women’s salaries for the same job may seem inconsequential. But over the years, salary discrimination adds up to a significantly smaller pension.
+ - It is the future, of course, which politicians grapple with, and that is why politics is so disorderly. Only history clears away some of the debris.
+ - Babies are smart. They can tell the difference between a responsive face and a blank face, wiped clean of emotion.
+ - We’re all basically made of the same stuff: generosity and selfishness, goodness and greed.
+ - Investment in early education is not a Liberal or Conservative idea. Nor should it be decided along party lines.
+ - The political environment we create matters because a disturbed person cannot always tell the difference between explosive rhetoric and explosive actions.
+ - Common wisdom dictates that the vice president should provide balance to the ticket by representing a different part of the country, another set of experiences, or a basketful of electoral votes.
+ - When there is violence against any person in society, because he or she is different, it threatens us all. Only by speaking out are any of us safe.
+ - Without putting the brakes on out-of-control campaign contributions from individuals and corporations – it will be business as usual, with 1 percent of Americans pulling the strings.
+ - Life experience is not something to be denied, but to be celebrated.
+ - If we are serious about providing upward mobility and building a skilled workforce, pre-school is the place to begin.
+ - Somehow I got the feeling at an early age that I had to do something important with my life.
+ - Most female CEOs have been more understanding than their male counterparts, of the stress that new mothers experience to ‘do it all,’ which often means, ‘all by themselves.’ Why? They’ve been there. They understand the policies needed to keep women in the workforce.
+ - There are not many female role models to guide voters, and the tradition that a Southern woman’s place is in the home still lingers in some quarters.
+ - It’s time to recognize what compromise means: no side wins or loses all.
+ - To equate a corporation with a person is a travesty of justice.
+ - If being a woman is a factor politically, it’s usually not because of a conscious bias, but because women are a novelty.
+ - Political success is often dependent on the ability to be heard above the din of controversy and debate and to set a course with one’s own compass.
+
+52 quotes

@@ -1,0 +1,33 @@
+ - We are storytelling creatures, and as children we acquire language to tell those stories that we have inside us.
+ - The fish will be the last to discover water.
+ - Teaching is the canny art of intellectual temptation.
+ - The essence of creativity is figuring out how to use what you already know in order to go beyond what you already think.
+ - In reference to right answers – Knowing is a process, not a product.
+ - Good teaching is forever being on the cutting edge of a child’s competence.
+ - Knowledge is justified belief.
+ - Passion, like discriminating taste, grows on its use. You more likely act yourself into feeling than feel yourself into action.
+ - The notion of multiple literacies recognized that there are many ways of being-and of becoming-literate, and that how literacy develops and how it is used depend on the particular social and cultural setting.
+ - Understanding something in one way does not preclude understanding it in other ways.
+ - Being able to “go beyond the information” given to “figure things out” is one of the few untarnishable joys of life.
+ - Stimuli, however, do not act upon an indifferent organism.
+ - We begin with the hypothesis that any subject can be taught effectively in some intellectually honest form to any child at any stage of development.
+ - Learners are encouraged to discover facts and relationships for themselves.
+ - Grasping the structure of a subject is understanding it in a way that permits many other things to be related to it meaningfully. To learn structure in short, is to learn how things are related.
+ - The foundations of any subject may be taught to anybody at any age in some form.
+ - The main characteristic of play – whether of child or adult – is not it content but its mode. Play is an approach to action, not a form of activity.
+ - In time, and as one comes to benefit from experience, one learns that things will turn out neither as well as one hoped nor as badly as one feared.
+ - Organizing facts in terms of principles and ideas from which they may be inferred is the only known way of reducing the quick rate of loss of human memory.
+ - The young child approaching a new subject or anew problem is like the scientist operating at the edge of his chosen field.
+ - Knowledge helps only when it descends into habits.
+ - We carry with us habits of thought and taste fostered in some nearly forgotten classroom by a certain teacher.
+ - In the perception of the incongruous stimuli, the recognition process is temporarily thwarted and exhibits characteristics which are generally not observable in the recognition of more conventional stimuli.
+ - We need to conceive of ourselves as “agents” impelled by self-generated intentions.
+ - It is sentimentalism to assume that the teaching of life can always be fitted to the child’s interests, just as it is empty formalism to force the child to parrot the formulas of adult society. Interests can be created and stimulated.
+ - Agency presupposes choice.
+ - Whoever reflects recognizes that there are empty and lonely spaces between one’s experiences.
+ - We cannot, even given our most imaginative efforts, construct a concept of Self that does not impute some causal influence of prior mental states on later ones.
+ - I would urge that the yeast of education is the idea of excellence, and the idea of excellence comprises as many forms as there are individuals, each of whom develops his own image of excellence. The school must have as one of its principal functions the nurturing of images of excellence.
+ - We are only now on the threshold of knowing the range of the educability of man-the perfectibility of man. We have never addressed ourselves to this problem before.
+ - There is a deep question whether the possible meanings that emerge from an effort to explain the experience of art may not mask the real meanings of a work of art.
+
+31 quotes

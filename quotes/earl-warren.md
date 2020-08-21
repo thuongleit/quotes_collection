@@ -1,0 +1,47 @@
+ - I always turn to the sports pages first, which records people’s accomplishments. The front page has nothing but man’s failures.
+ - In civilized life, law floats in a sea of ethics.
+ - Don’t complain about growing old – many, many people do not have that privilege.
+ - To get what you want, STOP doing what isn’t working.
+ - Everything I did in my life that was worthwhile I caught hell for.
+ - It is the spirit and not the form of law that keeps justice alive.
+ - It is doubtful that congress would pass the Bill of Rights if it were introduced today.
+ - In The Field Of Public Education, The Doctrine Of ‘Separate But Equal’ Has No Place.
+ - If it is a mistake of the head and not the heart don’t worry about it, that’s the way we learn.
+ - Liberty, not communism, is the most contagious force in the world.
+ - We are now at the point where we must decide whether we are to honour the concept of a plural society which gains strength through diversity, or whether we are to have bitter fragmentation that will result in perpetual tension and strife.
+ - The most tragic paradox of our time is to be found in the failure of nation-states to recognize the imperatives of internationalism.
+ - The man of character, sensitive to the meaning of what he is doing, will know how to discover the ethical paths in the maze of possible behavior.
+ - We come then to the question presented: Does segregation of children in public schools solely on the basis of race, even though the physical facilities and other “tangible” factors may be equal, deprive the children of the minority group of equal education opportunities? We believe that it does.
+ - When the rights of any individual or group are chipped away, the freedom of all erodes.
+ - I hate banks. They do nothing positive for anybody except take care of themselves. They’re first in with their fees and first out when there’s trouble.
+ - Citizenship is the right to have rights.
+ - I believe no one can read the history of our country without realizing that the Good Book and the spirit of the Savior have from the beginning been our guiding geniuses.
+ - The only reason that there has been no sabotage or espionage on the part of Japanese-Americans is that they are waiting for the right moment to strike.
+ - The success of any legal system is measured by its fidelity to the universal ideal of justice.
+ - It would indeed be ironic if, in the name of national defence, we would sanction the subversion of one of those liberties which make the defence of our nation worthwhile.
+ - Today, as always, the people, no less than the courts, must remain vigilant to preserve the principals of our Bill of Rights, lest in our desire to be secure we lose our ability to be free.
+ - The police must obey the law while enforcing the law.
+ - In mid-life the man wants to see how irresistible he still is to younger women. How they turn their hearts to stone and more or less commit a murder of their marriage I just don’t know, but they do.
+ - A republic is not an easy form of government to live under, and when the responsibility of citizenship is evaded, democracy decays and authoritarianism takes over.
+ - Ben Franklin may have discovered electricity- but it is the man who invented the meter who made the money.
+ - I’m very pleased with each advancing year. It stems back to when I was forty. I was a bit upset about reaching that milestone, but an older friend consoled me. ‘Don’t complain about growing old – many, many people do not have that privilege.’
+ - Separate educational facilities are inherently unequal.
+ - The old Court you and I served so long will not be worthy of its traditions if Nixon can twist, turn and fashion If Nixon gets away with that, then Nixon makes the law as he goes along – not the Congress nor the courts.
+ - The fantastic advances in the field of electronic communication constitute a greater danger to the privacy of the individual.
+ - Legislatures represent people, not acres or trees.
+ - To summarize: Americans have one of the greatest legal systems, but not a monopoly of the sense of justice, which is universal; nor have we a permanent copyright on the means of securing justice, for it is the spirit and not the form of law that keeps justice alive.
+ - Mere unorthodoxy or dissent from the prevailing mores is not to be condemned. The absence of such voices would be a symptom of grave illness to our society.
+ - Life and liberty can be as much endangered from illegal methods used to convict those thought to be criminals as from the actual criminals themselves.
+ - Before this distinguished assembly and the world, the bells today proclaim the joyous tidings of the completion of this quietly soaring tower.
+ - Those who serve upon our juries have maintained a standard of fairness and excellence and demonstrated a vision toward the administration of justice that is a wellspring of inspiration.
+ - Many people consider the things government does for them to be social progress but they regard the things government does for others as socialism.
+ - If Nixon is not forced to turn over tapes of his conversations with the ring of men who were conversing on their violations of the law, then liberty will soon be dead in this nation.
+ - You sit up there, and you see the whole gamut of human nature. Even if the case being argued involves only a little fellow and $50, it involves justice. That’s what is important.
+ - To separate children from others of similar age and qualifications solely because of their race generates a feeling of inferiority as to their status in the community that may affect their hearts and minds in a way unlikely ever to be undone.
+ - Prior to any questioning, the person must be warned that he has a right to remain silent, that any statement he does make may be used as evidence against him and that he has a right to the presence of an attorney, either retained or appointed.
+ - Legislators represent people, not trees or acres. Legislators are elected by voters, not farms or cities or economic interests.
+ - The censor’s sword pierces deeply into the heart of free expression.
+ - Such an opportunity, where the state has undertaken to provide it, is a right which must be made available to all on equal terms.
+ - In these days, it is doubtful that any child may reasonably be expected to succeed in life if he is denied the opportunity of an education.
+
+45 quotes

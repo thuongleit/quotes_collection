@@ -1,0 +1,29 @@
+ - From a knowledge of His work, we shall know Him.
+ - The book of nature is a fine and large piece of tapestry rolled up, which we are not able to see all at once, but must be content to wait for the discovery of its beauty, and symmetry, little by little, as it graduallly comes to be more and more unfolded, or displayed.
+ - I am not ambitious to appear a man of letters: I could be content the world should think I had scarce looked upon any other book than that of nature.
+ - God would not have made the universe as it is unless He intended us to understand it.
+ - Sound consists of an undulating motion of the air.
+ - In the Bible the ignorant may learn all requisite knowledge, and the most knowing may learn to discern their ignorance.
+ - If the omniscient author of nature knew that the study of his works tends to make men disbelieve his Being or Attributes, he would not have given them so many invitations to study and contemplate Nature.
+ - Exalt your passion by directing and settling it upon an object the due con-templation of whose loveliness may cure perfectly all hurts received from mortal beauty.
+ - Nature always looks out for the preservation of the universe.
+ - I think myself obliged, whatever my private apprehensions may be of the success, to do my duty, and leave events to their Disposer.
+ - The generality of men are so accustomed to judge of things by their senses that, because the air is indivisible, they ascribe but little to it, and think it but one remove from nothing.
+ - As the sun is best seen at his rising and setting, so men’s native dispositions are clearest seen when they are children, and when they are dying.
+ - The gospel comprises indeed, and unfolds, the whole mystery of mans redemption, as far forth as it is necessary to be known for our salvation.
+ - Well, I see I am not designed to the finding out the Philosophers Stone, I have been so unlucky in my first attempts in chemistry.
+ - There is no less invention in aptly applying a thought found in a book, than in being the first author of the thought.
+ - The veneration, wherewith Men are imbued for what they call Nature, has been a discouraging impediment to the Empire of Man over the inferior Creatures of God. For many have not only look’d upon it, as an impossible thing to compass, but as something impious to attempt.
+ - Our Saviour would love at no less rate than death; and from the supereminent height of glory, stooped and debased Himself to the sufferance of the extremest of indignities, and sunk himself to the bottom of abjectness, to exalt our condition to the contrary extreme.
+ - He whose faith never doubted, may justly doubt of his faith.
+ - It is my intent to beget a good understanding between the chymists and the mechanical philosophers who have hitherto been too little acquainted with one another’s learning.
+ - Female beauties are as fickle in their faces as in their minds; though casualties should spare them, age brings in a necessity of decay.
+ - He that condescended so far, and stooped so low, to invite and bring us to heaven, will not refuse us a gracious reception there.
+ - The inspired and expired air may be sometimes very useful, by condensing and cooling the blood that passeth through the lungs; I hold that the depuration of the blood in that passage, is not only one of the ordinary, but one of the principal uses of respiration.
+ - As the moon, though darkened with spots, gives us a much greater light than the stars that sewn all-luminous, so do the Scriptures afford more light than the brightest human authors. In them the ignorant may learn all requisite knowledge, and the most knowing may learn to discern their ignorance.
+ - God may rationally be supposed to have framed so great and admirable an automaton as the world for special ends and purposes.
+ - In an arch each single stone which, if severed from the rest, would be perhaps defenceless is sufficiently secured by the solidity and entireness of the whole fabric, of which it is a part.
+ - Darkness, that here surrounds our purblind understanding, will vanish at the dawning of eternal day.
+ - He that said it was not good for man to be alone, placed the celibate amongst the inferior states of perfection.
+
+27 quotes

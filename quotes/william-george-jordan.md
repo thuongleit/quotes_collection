@@ -1,0 +1,22 @@
+ - Into the hands of every individual is given a marvelous power for good or evil – the silent, unconscious, unseen influence of his life. This is simply the radiation of what man really is, not what he pretends to be.
+ - Gratitude is thankfulness expressed in action.
+ - Life is simply time given to man to learn how to live.
+ - Conscience, as a mentor, the guide and compass of every act, leads ever to happiness. When the individual can stay alone with his or her conscience and get its approval, without knowing force or specious knowledge, then he or she begins to know what real happiness is.
+ - Self-confidence without self-reliance is as useless as a cooking recipe without food. Self-confidence sees the possibilities of the individual; self-reliance realizes them. Self-confidence sees the angel in the unhewn block of marble; self-reliance carves it out for oneself.
+ - Happiness is the soul’s joy in the possession of the intangible.
+ - Education, in its highest sense, is conscious training of mind or body to act unconsciously. It is conscious formation of mental habits, not mere acquisition of information.
+ - Nature is very un-American. Nature never hurries.
+ - Every man has an atmosphere which is affecting every other.
+ - Life is a state of constant radiation and absorption; to exist is to radiate; to exist is to be the recipient of radiations.
+ - Love can transmute all duties into privileges, all responsibilities into joys.
+ - A fad lives its life in a few weeks; a philosophy lives through generations and centuries; a principle, forever.
+ - There are times when a man should be content with what he has but never with what he is.
+ - Plants grow most in the darkest hours preceding dawn; so do human souls. Nature always pays for a brave fight. Sometimes she pays in strengthened moral muscle, sometimes in deepened spiritual insight, sometimes in a broadening, mellowing, sweetening of the fibres of character, – but she always pays.
+ - Worry is discounting possible future sorrows so that the individual may have present misery.
+ - Life is not something to be lived through: it is something to be lived up to. It is a privilege, not a penal servitude of so many decades on earth.
+ - Worry is forethought gone to seed.
+ - We carry our house plants from one window to another to give them the proper heat, light, and moisture. Should we not be at least as careful of ourselves?
+ - He who thinks all mankind is vile is a pessimist who mistakes his introspection for observation; he looks into his own heart and thinks he sees the world.
+ - If there is a little sand in the sugar of home happiness, it really seems better to concentrate on the sweetness that remains than to carry around samples of the grit in envelopes of conversational confidence.
+
+20 quotes

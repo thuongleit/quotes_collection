@@ -1,0 +1,30 @@
+ - I distrust camels, and anyone else who can go a week without a drink.
+ - I never went to school beyond the 3rd grade, but my mother taught me the difference between right and wrong.
+ - I met with an accident on the way to the track; I arrived safely.
+ - I know a lot more old drunks than old doctors.
+ - If you drink like a fish, don’t drive: swim.
+ - You can lead a horse to water, but if you can get him to roll over and float on his back, then you got something!
+ - I went on a diet, swore off drinking and heavy eating, and in fourteen days I had lost exactly two weeks.
+ - It doesn’t matter whether you are rich or poor – as long as you’ve got money.
+ - We can afford almost any mistake once.
+ - I’m still chasing girls. I don’t remember what for, but I’m still chasing them.
+ - Whenever someone asks me if I want water with my scotch, I say, I’m thirsty, not dirty.
+ - It pays to get drunk with the best people.
+ - Adlai Stevenson has a genius for saying the right thing, at the right time, to the wrong people.
+ - They had me on the operating table all day. They looked into my stomach, my gall bladder, they examined everything inside of me. Know what they decided? I need glasses.
+ - I don’t drink anymore – just the same amount.
+ - There’s only one thing money won’t buy, and that is poverty.
+ - I would take a bomb, but I can’t stand the noise.
+ - I told my doctor I get very tired when I go on a diet, so he gave me pep pills. Know what happened? I ate faster.
+ - Show me a man with both feet on the ground and I’ll show you a man who can’t get his pants on.
+ - I don’t drink any more than the man next to me, and the man next to me is Dean Martin.
+ - Boys, I have been rich and I have been poor, and believe me being rich is better.
+ - I drink to forget I drink.
+ - I play in the low 80s. If it’s any hotter than that, I won’t play.
+ - I always wake up at the crack of ice.
+ - A man is never drunk if he can lay on the floor without holding on.
+ - Show me a friend in need and I’ll show you a pest.
+ - I’ve been on such a losing streak that if I had been around I would have taken General Custer and given points.
+ - I don’t like money actually, but it quiets the nerves.
+
+28 quotes

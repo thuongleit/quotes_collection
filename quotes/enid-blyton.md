@@ -1,0 +1,22 @@
+ - The best way to treat obstacles is to use them as stepping-stones. Laugh at them, tread on them, and let them lead you to something better.
+ - You’re trying to escape from your difficulties, and there never is any escape from difficulties, never. They have to be faced and fought.
+ - When you’re paid to do a job, it’s better to give a few minutes more to it, than a few minutes less. That’s one of the differences between doing a job honestly and doing it dishonestly! See?
+ - Hatred is so much easier to win than love – and so much harder to get rid of.
+ - I’m good at exploring roofs. You never know when that kind of thing comes in useful.
+ - If you can’t look after something in your care, you have no right to keep it.
+ - Oh, I wish I lived in a caravan!’ said Jimmy longingly. ‘How lovely it must be to live in a house that has wheels and can go away down the lanes and through the towns, and stand still in fields at night!
+ - Remorse is a terrible thing to bear, Pam, one of the worst of all punishments in this life. To wish undone something you have done, to wish you could look back on kindness to someone you love, instead of on unkindness – that is a very terrible thing.
+ - Writing for children is an art in itself, and a most interesting one.
+ - I am not really much interested in talking to adults, although I suppose practically every mother in the kingdom knows my name and my books. It’s their children I love.
+ - The point is not that I don’t recognise bad people when I see them – I grant you I may quite well be taken in by them – the point is that I know a good person when I see one.
+ - A clown needn’t be the same out of the ring as he has to be when he’s in it. If you look at photographs of clowns when they’re just being ordinary men, they’ve got quite sad faces.
+ - I get over a hundred letters a day from all over the world, from children and parents, and it’s a wonder I ever have time to write books, let alone speak!
+ - We must have Christian ethics for our children, good and strong, but we must make them attractive, too, and it can be done.
+ - I think people make their own faces, as they grow.
+ - Mothers were much too sharp. They were like dogs. Buster always sensed when anything was out of the ordinary, and so did mothers. Mothers and dogs both had a kind of second sight that made them see into people’s minds and know when anything unusual was going on.
+ - I have written, probably, more books for children than any other writer, from story-books to plays, and can claim to know more about interesting children than most.
+ - It wasn’t a bit of good fighting grown-ups. They could do exactly as they liked.
+ - Here Mr Potts come here you little idiot!
+ - My work in books, films and talks lies almost wholly with children, and I have very little time to give to grown-ups.
+
+20 quotes

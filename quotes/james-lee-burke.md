@@ -1,0 +1,49 @@
+ - If there is any human tragedy, there is only one, and it occurs when we forget who we are and remain silent while a stranger takes up residence inside our skin.
+ - The real gladiators of the world are so humble in their origins and unremarkable in appearance that when we stand next to them in a grocery-store line, we never guess how brightly their souls can burn in the dark.
+ - When you find the right people, you never let go. The people who count are the ones who are your friends in lean times. You have all the friends you want when things are going well.
+ - There’s no substitute for loyalty.
+ - The only thing an artist has to remember is to never lose faith in his vision.
+ - To misuse one’s talent, to be cavalier about it, to set it aside because of fear or sloth is unpardonable.
+ - There’s nothing like rejection to make you do an inventory of yourself.
+ - How do you explain to yourself the casual manner in which you threw your life away?
+ - We gain no wisdom by imposing our way on others.
+ - You have two choices in life. You either die or do something with your time. You’re going to be doing something – why not write?
+ - That’s one of the great advantages of age. You can say, I don’t want to, I don’t care, you can throw temper tantrums, and nobody minds.
+ - Using a first-person narrator is simply a matter of hearing the voice inside yourself.
+ - You do it a day at a time. You write as well as you can, you put it in the mail, you leave it under submission, you never leave it at home.
+ - When people make a contract with the devil and give him an air-conditioned office to work in, he doesn’t go back home easily.
+ - You do it a day at a time. You just put your rejection slips in a shoebox and tell yourself one day you’re going to autograph them and sell them at auction.
+ - Age is a clever thief. It takes a little from you each day, so you’re not aware of your loss until it’d irreversible.
+ - Money can’t buy happiness but it’ll sure keep a mess of grief off your front porch.
+ - If we break promises to God, shouldn’t we be allowed an occasional violation of our word to our friends and superiors?
+ - One day you’ll have a quiet heart.
+ - Louisiana is a fresh-air mental asylum.
+ - If you put somebody on a crack pipe and give them a 9 mm Baretta, you don’t have to be a rocket scientist to figure out what’s going to happen next.
+ - THE ALLURE OF Montana is like a commitment to a narcotic; you can never use it up or get enough of it. Its wilderness areas probably resemble the earth on the first day of creation.
+ - The system shaves the dice on the side of those with money and power, and anyone who believes otherwise deserves anything that happens to him.
+ - There is no higher form of artistic expression then film.
+ - A lie is an act of theft. It steals peoples faith and makes them resent themselves.
+ - Every rejection is incremental payment on your dues that in some way will be translated back into your work.
+ - Never read bad stuff if you’re an artist; it will impair your own game.
+ - Don’t undo a brave and noble deed. Don’t rob yourself of your own virtue.
+ - The story of Ulysses and Agamemnon and Menelaus, of Jesus, of the Good Knight of Chaucer, lives in every one of us.
+ - We all end up in the same place. Some sonner than others.
+ - Age is a peculiar kind of thief. It slips up on you and steps inside your skin and is so quiet and methodical in its work that you never realize it has stolen your youth until you look into the mirror one morning and see a man you don’t recognize.
+ - And like most middle-aged people who hear the clock ticking in their lives, I had come to resent a waste or theft of my time that was greater than any theft of my goods or money.
+ - Never read bad stuff if you’re an artist; it will impair your own game. I don’t know if you ever played competitive tennis, but you learn not to watch bad tennis; it messes up your game. Art’s the same way.
+ - God bless the Reference Librarians.
+ - Don’t let anyone tell you that age purchases your freedom from fear of death.
+ - Write for the love of your art. Someplace down the road, the money, the fame, they’ll come, but by that time you won’t be thinking in terms of money or fame.
+ - I wouldn’t write anything autobiographical. If you’ve lived a life like Laurence of Arabia, it might be a consideration, but otherwise it’s a little bit vain, it seems to me.
+ - Today, there are more opportunities for writers in terms of access to larger success, but it’s more difficult to publish a literary novel in the lower ranges. In other words, you almost have to hit a home run. You can hit a triple, maybe, but nobody’s interested in a single.
+ - My experience has been that people who die for causes have few friends in death.
+ - Is there a design in the events of our lives? Or do things just happen, much like a junk yard falling down a staircase? If it’s the latter, how do you deal with it?
+ - Neither our own passing nor the passing of an era is a tragedy, no matter how much we would like to think it is.
+ - Why do I always feel like you’re trying to staple my umbilical cord to the corner of your desk?
+ - It has been my experience that most human stories are circular rather than linear. Regardless of the path we choose, we somehow end up where we commenced – in part, I suspect, because the child who lives in us goes along for the ride.
+ - And every good artist knows that the gift comes from somewhere else, and it’s there for a reason, and that’s to make the world a better place.
+ - Humility is not a virtue in a writer, it is an absolute necessity.
+ - I looked at Lucas with the pang that a parent feels when he knows his child will be hurt and that it’s no one’s fault and that to try to preempt the rites of passage is an act of contempt for the child’s courage.
+ - How do you caution a fawn about a cigarette a motorist has just flipped from his car window into a patch of yellow grass, or tell a sparrow that winged creatures eventually plummet to earth?
+
+47 quotes

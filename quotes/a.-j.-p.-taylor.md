@@ -1,0 +1,36 @@
+ - No matter what political reasons are given for war, the underlying reason is always economic.
+ - We learn nothing from history except the infinite variety of men’s behaviour.
+ - Conformity may give you a quiet life; it may even bring you to a University Chair. But all change in history, all advance, comes from the nonconformists. If there had been no trouble-makers, no Dissenters, we should still be living in caves.
+ - Perfect soldier, perfect gentleman never gave offence to anyone not even the enemy.
+ - No war is inevitable until it breaks out.
+ - Bismarck fought ‘necessary’ wars and killed thousands, the idealists of the twentieth century fight ‘just’ wars and kill millions.
+ - The great armies, accumulated to provide security and preserve the peace, carried the nations to war by their own weight.
+ - History gets thicker as it approaches recent times: more people, more events, and more books written about them. More evidence is preserved, often, one is tempted to say, too much. Decay and destruction have hardly begun their beneficent work.
+ - Human blunders usually do more to shape history than human wickedness.
+ - George VI in the conventional parlance was a Good King who sacrificed his life to his sense of duty. If we are to have monarchs it would be hard to find a better one.
+ - The Foreign Office knows no secrets.
+ - History is the great propagator of doubt.
+ - A master of improvised speech and improvised policies.
+ - Fascism was little more than terrorist rule by corrupt gangsters. Mussolini was not corrupt himself but he did nothing except to rage impotently.
+ - The male clerk with his quill pen and copper-plate handwriting had gone for good. The female short-hand typist took his place. It was a decisive moment in women’s emancipation.
+ - In 1917 European history, in the old sense, came to an end. World history began. It was the year of Lenin and Woodrow Wilson, both of whom repudiated the traditional standards of political behaviour. Both preached Utopia, Heaven on Earth. It was the moment of birth for our contemporary world.
+ - Lenin was the first to discover that capitalism ‘inevitably’ caused war; and he discovered this only when the First World War was already being fought. Of course he was right. Since every great state was capitalist in 1914.
+ - Freedom does not always win. This is one of the bitterest lessons of history.
+ - Psychoanalysts believe that the only “normal” people are those who cause not trouble to either themselves or anyone else.
+ - A racing tipster who only reached Hitler’s level of accuracy would not do well for his clients.
+ - When I write I have no loyalty except to historical truth as I see it and care no more about British achievements and mistakes than any other.
+ - If there had been no troublemakers, no Dissenters, we should still be living in caves.
+ - All other forms of history – economic history, social history, psychological history, above all sociology – seem to me history with the history left out.
+ - There is nothing more agreeable in life than to make peace with the establishment and nothing more corrupting.
+ - The crusade against Communism was even more imaginary than the specter of Communism.
+ - One of the penalties of being president of the United States is that you must subsist for four years without drinking anything except Californian wine.
+ - The God of Battles will throw the dice that decide...
+ - History is not another name for the past, as many people imply. It is the name for stories about the past.
+ - In my opinion, most of the great men of the past were only there for the beer – the wealth, prestige and grandeur that went with the power.
+ - There is nothing nicer than nodding off while reading. Going fast asleep and then being woken by the crash of the book on the floor, then saying to yourself, well it doesn’t matter much. An admirable feeling.
+ - The greatest problem about old age is the fear that it may go on too long.
+ - If men are to respect each other for what they are, they must cease to respect each other for what they own.
+ - Though the object of being a Great Power is to be able to fight a Great War, the only way of remaining a Great Power is not to fight one.
+ - The present enables us to understand the past, not the other way round.
+
+34 quotes

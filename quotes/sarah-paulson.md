@@ -1,0 +1,42 @@
+ - Nobody could ever say as many terrible things to me as I say to myself.
+ - Acting is doing. The more you do, the more you learn. Work begets work.
+ - To not have any hope is where things start to get really bleak. Things are possible. The impossible can be possible.
+ - I could feel my body temperature – I knew I was bright red. It was so humiliating, I was so upset, and it was nothing I had planned to do. It was just one of those beautiful moments, the alchemy of acting that is so mysterious, where you sort of go, “How did that come out of me?”
+ - To me, most of life kind of lives in the grey and I don’t just mean morally. I just mean kind of everything. If things were black and white it would be a lot clearer as to what to do all the time.
+ - When I have brown hair I feel the most like myself, but I don’t feel glamorous. It’s a disgusting thing to admit.
+ - I was constantly, always and forever, trying to perform the musical ‘Annie’ for anyone who would listen, and I have a terrible singing voice. It was the first thing that made me think I wanted to be an actress.
+ - I do like the immediacy of audience’s reaction. I like when I can hear the stillness and I know that they’re with us.
+ - There are rules, and when certain things happen, there are ceratin consequences.
+ - I had gone away from Twitter because before people had been so mean to me. Talking about my lisp and my enormous forehead and all these things. I do have a lisp, I do have a forehead I know you could land a plane on, it’s no mystery to me. I just didn’t have the skin for it.
+ - I’d love to be in the ’70s. I’d love to have a big, long wig parted down the middle with flat-ironed hair and bell-bottoms. They’re actually very flattering for my figure. The wider the leg, the better for a person with a booty.
+ - All of my friends went to college and I got a job at Circle Pizza, where I worked for 24 hours. I had to call my mother four times to ask her how to spell Parmesan. I’m not kidding. I was a terrible speller. I think I was really nervous that I somehow didn’t feel right out in the world in that way.
+ - All my friends went to the Madonna concert when I was in, maybe, the 9th grade, and my mother refused to let me go.
+ - If you heard me sing, you would just plug your ears and run, screaming, the other way. I promise.
+ - I’m one of those actors who’s just standing there, waiting and ready for something to come my way. I don’t really try to think about, “Oh, I feel the next thing I should do should be a feature. Now, I think I should do a play.” I just hope someone wants to cast me in something.
+ - I am a person who is not mated.
+ - I’m sporting some really blonde hair because I live in Hollywood and I’m an actress.
+ - If I had my druthers, I would be working in all different mediums, forever.
+ - The theater commitment is hard, especially in conjunction with a television commitment. That’s a big, long commitment.
+ - I like the ritual of putting on my makeup, putting on my costume, doing my warm-ups. I eat the same dinner every night before I go on stage. I like having something that I can count on, something that feels stabilizing for me.
+ - When I look at my career, the bulk of it has been television, and I love working in television. But there’s a speed at which you do it. You’re doing seven to ten pages a day on a series, and it’s hard to feel like you’re doing the detail-oriented work that I like to do.
+ - It’s OK to sit in the Golden Globe room and look around and think, ‘Oh, Helen Mirren’s a loser tonight, so is Nicole Kidman. Meryl Streep lost tonight. Jessica Lange didn’t win.’ If you’re gonna be in the company of losers, that’s the company to be in.
+ - I usually feel like the role comes to you to sort of illuminate some piece of where you are in your life. I feel like I myself am a single woman and I’m childless – by choice – at this point, and I don’t know what will happen.
+ - I think it’s very important for people to not judge the people you’re playing. You have to find a way to love them because their story is theirs. I just don’t think there would be any use in that.
+ - I have been sitting around waiting for an opportunity to get to do something that matters for so long. Not just that matters in the world, which I think that season, in particular, had a very important meaning for a lot of people, but for me, as an actress.
+ - Sometimes I think on television, you use maybe a tenth of what you are able to do. So it’s nice to go, ‘Well, I’m gonna take two months and reinvest in acting and storytelling.’ You don’t get to do that on television.
+ - I’ve only been to one concert in my life.
+ - I like that feeling in your brain when you’ve got seven things that you’re holding in one moment-you heard that person cough, you heard that person laugh, you’re also saying your line, you’re also listening to the person who’s talking to you.
+ - I’ve always really made my living in television. Television has always been so good to me.
+ - I could never have thought, “I wanna play a two-headed woman.” That just never would have occurred to me, in a million years.
+ - Anything is possible, and the truth is any human being at any given moment, no matter how good they are – not only at their job but also as a person – they’re capable of anything, and it’s not always a conscious thing.
+ - My great love is the stage because I do feel like it’s the place where, if you’re lucky and everything is firing in the right way, you have the greatest shot at being successful. I don’t mean by getting great reviews, but I mean by finding the core fo the person that you’re playing.
+ - If you get on a TV show that’s successful, odds are that you’re playing the same character for as many years as the show is running, which can be its own blessing, but it can also be a curse because you’re playing the same thing and that can be tiresome.
+ - I’m interested in telling the character’s story, not my beliefs, political or otherwise.
+ - I remember feeling the temperature change the first time the curtain came up, the difference between the audience temperature and the stage temperature. I’ll never forget it.
+ - I was a victim of what most people are a victim of, which is really, really just gulping down what was being fed to me by the media.
+ - I’ve never been on a show that’s run for more than a season.
+ - The idea of being on a show where each season stands alone, and you can come back the next year and show an entirely different aspect of your personality or your talent or your anything is an enormous gift that you rarely get in television.
+ - No, I’m not a Republican working in Hollywood, I am a Democrat.
+ - I’m addicted to routine. I don’t know if that’s because I moved around so much as child – by the time I was 12 years old, I had lived in about 10 different places. But I like going to the theater at a certain time.
+
+40 quotes

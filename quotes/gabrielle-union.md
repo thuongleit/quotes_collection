@@ -1,0 +1,53 @@
+ - You have to be resilient.
+ - We give a lot of others significance in our lives even when they don’t deserve it. It doesn’t matter if they’re family or if you’ve known them forever. If they’re not good for you, they’ve got to go.
+ - I drink a gallon of water a day.
+ - You know what lasts longer than beauty? Being smart.
+ - Reality TV looks more like America than movies do.
+ - I can’t just say one time of the year I’m going to do something different. I have to commit to a lifestyle behavioral change and just try to be a little bit better today than I was yesterday.
+ - If someone lacked decency or respect, I didn’t allow that person to stay in my world.
+ - I played sports year around: basketball, soccer, softball and I ran track year around, from the time I was, like, six, seven.
+ - I had to learn – since I’m divorced now and everyone is like, ‘Oh my God, you’re single, what’s going on?’ – that if I don’t like to spend time with myself, how can I ask someone else to enjoy spending time with me? I’m getting to learn how to enjoy my solitude and have a good time.
+ - I’m not going to change the world overnight. It’s one person at a time, and hopefully they’re people in positions of power who can help people get in those roles and really, truly embrace colorblind casting.
+ - We all have to let go of the Prince Charming complex and realize he doesn’t necessarily exist in the package we assume he’ll come in.
+ - After Halle Berry does her films and Queen Latifah does her films, it’s left to all the black, Latino and Asian actresses to fight over a couple of roles. I opted for some TV. There’s just not a ton of work in film.
+ - I want to be Miss USA or Miss America. I would bring the trophy back to Nebraska. My interests are agriculture and corn. Hey, I’m just riding this train as long as I can. As long as I’m having fun, I’ll do it. When it stops being fun, I’ll try something else.
+ - A couple of my friends started having babies, and I thought, ‘Maybe one day, with the right guy.’ I have to find the guy first.
+ - I don’t get enough sleep so I always have undereye bags.
+ - I’ve dated a number of ‘mama’s boys.’
+ - The guys I tended to date, you know, didn’t necessarily have it altogether but I had a great time.
+ - I was at one time a football wife, and there is a certain level of bonding that happens between women who are the wives of football players.
+ - When you want a break from dogs, and you take them to the kennel to the stars, no one thinks you’re a bad pet owner. But when you have kids, you can’t drop them off for three weeks without someone calling Child Protective Services!
+ - I’m the kind of person whose clothes are all hung up and color-coordinated, to the point where my whites don’t touch my creams.
+ - When someone who loves and cares about me compliments me, I feel more glamorous than when the flashbulbs are going off on the red carpet.
+ - Right now, I don’t have the same urges as other women when they see a baby. When I see children, I see responsibilities, which I don’t think I’m quite ready for. I feel the same about puppies. They’re cute for a second, but there’s a lot of responsibility involved.
+ - Hollywood panders to the 18-to-34 crowd. That demographic doesn’t care about race and the package it comes in. They care about the hottest chick. They just like hot chicks.
+ - In Hollywood, you play a mom, and the next thing you know, you’re on ‘The Golden Girls.’ They age you so fast.
+ - I’ve been trying to get cast as a lesbian for years.
+ - But I prefer to go to comedies. Give me Julia Roberts smiling anyday.
+ - I realized I had been keeping people around even when deep down I knew they were bad for me. I had overridden myself.
+ - I love romantic comedies. They’re for me the easiest thing to do and the most natural to do. There’s nothing natural about holding an uzi hanging out of a moving van shooting at people. That’s not second nature to me, thank God.
+ - If we can have drones, we can have brown people on TV, and the world won’t end! We need to catch up. We are painfully behind.
+ - I just thought acting would be something to help out with my student loans, but my first year as an actress, I made more money than my parents. That’s when I realized it could turn into a career. After that, I put everything I had into it.
+ - My mom is painfully sweet; she’s from Nebraska.
+ - I love TV. I love the stability of it.
+ - I don’t function well in chaos, whether it be my sheets or the dishwasher.
+ - Hollywood needs to recognise all shades of African American beauty.
+ - We don’t consider black, urban films as ‘indies,’ though many of them are shot for under $10 million which is kind of the definition of an indie.
+ - In my career, there have been roles I haven’t taken because someone involved with the project gave me a bad vibe. I don’t care how much money is on the table: No job is worth feeling uneasy every day.
+ - The black community in Hollywood is very small and close-knit. Everyone has a common goal: to make a two-hour movie in 30 days.
+ - As a newly married person, as much as I would love for my husband to buy into the ‘my way or the highway’ philosophy, you realize it’s all about compromising and finding some sort of middle ground that everyone can live with.
+ - Sometimes it’s not even a role that’s specifically written for a woman. It could be a role written for a white man or Asian man, or Latino. If it’s something that I feel I could do well, I go after it. Especially if it’s nothing that has to be gender or race specific, I’m all over it.
+ - Drama can feel like therapy whereas comedy feels like there’s been a pressure and a weight lifted off of you.
+ - Before I got married, I dated the gamut.
+ - In Hollywood, you play a mom and instantly, you’ve got osteoporosis.
+ - All minorities think they’re immune, but we’re absolutely part of the one in five that gets skin cancer! It’s a myth, and myths are meant to be debunked!
+ - I date, but the person I date most is myself, unfortunately.
+ - If my real life was half as exciting as what is reported, I would be thrilled.
+ - Boys are so much drama.
+ - I like directors who have worked as actors. They know the experience.
+ - I think if we open ourselves to all different kinds of men and all groups, we find a lot more opportunities to love.
+ - You want to come home to a nice firm bed with the corners tucked in so you start over, like each night is like a new night.
+ - I just kind of assumed that you do a movie and then you leave and you hop onto the next thing. I never thought that people are actually buddies.
+ - I think there’s a lot of things that occur within the African-American community, that we would prefer to stay within the African-American community – that we get a little nervous when you start having scenes or dialogue that we know is going to be viewed and heard on a national or global scale.
+
+51 quotes

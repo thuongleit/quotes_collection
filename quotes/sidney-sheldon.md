@@ -1,0 +1,61 @@
+ - Don’t give up. There are too many nay-sayers out there who will try to discourage you. Don’t listen to them. The only one who can make you give up is yourself.
+ - The only one who can make you give up is yourself.
+ - Nothing lasts forever.
+ - A blank piece of paper is God’s way of telling us how hard it is to be God.
+ - Being poor is only romantic in books.
+ - Life is like a novel. It’s filled with suspense. You have no idea what is going to happen until you turn the page.
+ - Try to leave the Earth a better place than when you arrived.
+ - To find riches is a beggar’s dream, but to find love is the dream of kings.
+ - To be successfull you need friends and to be very successfull you need enemies.
+ - Death is the number two fear that people have and public speaking is the first!
+ - I’m a woman. I have a right to change my mind.
+ - Libraries store the energy that fuels the imagination. They open up windows to the world and inspire us to explore and achieve, and contribute to improving our quality of life. Libraries change lives for the better.
+ - Usually, when people get to the end of a chapter, they close the book and go to sleep. I deliberately write a book so when the reader gets to the end of the chapter, he or she must turn one more page.
+ - If. A two-letter word for futility.
+ - Business is a game, played for fantastic stakes, and you’re in competition with experts. If you want to win, you have to learn to be a master of the game.
+ - I like to write about women who are talented and capable, but most important, retain their femininity. Women have tremendous power – their femininity, because men can’t do without it.
+ - The foolish think the Eagle weak, and easy to bring to heel. The Eagle’s wings are silken, but its claws are made of steel.
+ - There is magic, but you have to be the magician. You have to make the magic happen.
+ - Writing novels is the most exciting.
+ - When people tell me I’ve kept them up all night, I feel like I’ve succeeded.
+ - We’re flimflam artists. But remember, sonny, you can’t con people unless they’re greedy to begin with. W. C. Fields had it right. You can’t cheat an honest man.
+ - I’m sure that whatever changed is only temporary. It will change again.
+ - I’m tired of the lies and the cheating, and the broken promises that were never meant to be kept.
+ - My heroes are those who risk their lives every day to protect our world and make it a better place – police, firefighters and members of our armed forces.
+ - I will survive, Tracy thought. I face mine enemies naked, and my courage is my shield.
+ - You have two choices. you can keep running and hiding and blaming the world for your problems, or you can stand up for yourself and decide to be somebody important.
+ - Life is a very thin thread and it only takes a second to snap it.
+ - I admire people who are, by nature, kind and fair to others.
+ - Every man is a prisoner, and the greatest irony of all is to be the prisoner of another man.
+ - The Dalai Lama. He is a very wise man of great inner peace who believes that happiness is the purpose of our lives. Through his teachings and leadership, he continues to make this world a better place in which to live.
+ - The fact that my female characters have strong personalities but are also physically attractive probably reflects the women I’ve known in my life.
+ - What I do is put my characters into situations that are so precarious there is no way to get out. And then I figure how to get them out.
+ - God cannot take sides; for He is in all of us. We are all a part of Him, and when we try to destroy Him, we destroy ourselves.
+ - I wanted to make sure that the man who found the genie would not take terrible advantage of her, so he needed to be a person of integrity and honor – which is why I made the male lead an astronaut. The rest, as they say, is history.
+ - Because there was a hunger in me to see everything and do everything. I wanted to be everyone I saw. I wasn’t enough for me. Can you understand that?
+ - Abraham Lincoln because he was a man filled with great compassion who believed that all men are created free and equal, and was not afraid to stand on that platform. The way Lincoln lived his life has served me well in mine.
+ - Surely you’ve been sent from the heavens to teach us mortals what beauty is.
+ - Jamie enjoyed solitude, but loneliness was a constant ache.
+ - The part of my writing I find the most rewarding is when people write to me or speak to me in public to tell me how his or her life has been changed by my books.
+ - I love the freedom that the narrative form provides.
+ - If there is any secret to my success, I think it’s that my characters are very real to me. I feel everything they feel, and therefore I think my readers care about them.
+ - I always spend time exploring the customs and attitudes of the countries I’m using for locations, and interviewing the people who live there. I’ve visited over 90 countries thus far.
+ - I try to give both my heroes and villains an emotional dimensionality which provides the motivation for their actions.
+ - I was scared. Do you know what it’s like to hold someone else’s life in your hands? It’s like playing God. Can you think of anything scarier than that?
+ - Stories had always been told about male genies coming out of bottles, but they were usually fat, old men. Never had the genie been a gorgeous woman, so that idea really appealed to me, and I created the series based on that premise.
+ - When you write a movie, you have a hundred collaborators. But when you write a novel, it’s yours.
+ - I think people throughout the world identify with my characters.
+ - She undressed slowly, dreamily, and when she was naked, she selected a bright red negligee to wear so that the blood would not show.
+ - I worked in Hollywood as a reader and a would-be writer for about 6 years before I sold my first story.
+ - When they die no one will ever know that once they lived.
+ - I go to great lengths to make certain situations feel right to the reader.
+ - I will not write about anyplace in the world unless I’ve been there to personally research it.
+ - Talent is a gift that can be given, and it can be taken away. We have to appreciate that.
+ - I think that’s because believable action is based on authenticity, and accuracy is very important to me. I always spend time researching my novels, exploring the customs and attitudes of the county I’m using for their setting.
+ - In a novel, on the other hand, you not only have to describe the rooms, but the clothes, the characters and what they are thinking. It’s a much more in-depth process.
+ - There’s this sense of excitement because you invent and control the characters. You decide whether they live or die. I find this type of creative process tremendously stimulating.
+ - Womens value has been under-recognized for far too long.
+ - He believed nothing he was told and trusted no one.
+ - It moves at its own measured pace, for it has no reason to hurry. Tomorrow will come in its own good time.
+
+59 quotes

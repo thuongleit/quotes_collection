@@ -1,0 +1,42 @@
+ - Because it’s our choices that makes us who we are...
+ - You and your group of nerds fall into a pit and it’s full of dynamite and you blow up. The End.
+ - Some day I will be famous but for now I am stuck in middle school with a bunch of morons.
+ - Zoo-Wee Mama!
+ - You can’t expect everyone to have the same dedication as you.
+ - I’m basically one of the best people I know.
+ - Back in those days it was just me swimming around in the dark, doing back flips and taking naps whenever I want.
+ - YO MOMMA.
+ - I’m having a seriously hard time getting used to the fact that summer is over and I have to get out of bed every morning to go to school.
+ - Well, the problem is, it’s not easy for me to think of ways to improve myself, because I’m pretty much one of the best people I know.
+ - But the thing I’m finding out is some people don’t really appreciate it when you’r trying to be helpful.
+ - Mom is always saying I’m a smart kid, but that I just don’t apply myself.
+ - Greg starts a middle school and asks: Why is “bullies” such a big PROBLEM? And says people need to shave twice a day.
+ - Dear Aunt Loretta, Thank you so much for the awesome pants! How did you know I wanted that for Christmas? I love the way the pants look on my legs! All my friends will be so jealous that I have my very own pants. Thank you for making this the best Christmas ever! Sincerely, Greg.
+ - I only work on my books at nights and at weekends. It is really just like a hobby.
+ - I’m probably something like 95% chicken nugget.
+ - The best person I know is Myself.
+ - It’s not easy to writing thank-you notes for the stuff you didn’t want in the first place.
+ - First of all, let me get this straight: This is a JOURNAL, not a diary. I know what it says on the cover, but when Mom went out to buy this thing I SPECIFICALLY told her to get one that didn’t say ‘diary’ on it.
+ - Monkeys can’t talk, stupid!
+ - The only reason I get out of bed at all on weekends is because eventually I can’t stand the taste of my own breath any more.
+ - Chirag: Rowley, do you think I exist? Rowley: Nope! I can’t even hear you or see you!
+ - If there’s one thing I learned from Rodrick, it’s to set people’s expectations real low so you end up surprising them by practically doing nothing at all.
+ - I realised all the good ideas were taken before I was even born.
+ - I don’t know what a guy needs to do to impress a girl these days.
+ - So if you want to find somebody to blame for the way i am, I guess you’d have to start with the public education system.
+ - I think if everyone would write down the funny stories from their own childhoods, the world would be a better place.
+ - Youre gonna grow up and marry some ice cream! Haha!
+ - I labored for eight years thinking that I was writing a book for adults that was a nostalgic look back on childhood. Then my publisher informed me I’d written a children’s book.
+ - My advice to authors would be to try to do something original rather than to try to anticipate what the market is looking for.
+ - So I’ve started wearing sweatpants to bed because I really don’t need Santa seeing me in my underwear.
+ - I’m not really sure what makes a book a ‘classic’ to begin with, but I think it has to be at least fifty years old and some person or animal has to die at the end.
+ - I think Diary of a Wimpy kidis sooooo good!!!!!!!
+ - I didn’t really know what to expect from detention but when I waked into the room, the first thought I had was, I don’t belong in here with these future criminals.
+ - See, when you’re a little kid, nobody ever warns you that you’ve got an expiration date. One day you’re hot stuff and the next day you’re a dirt sandwich.
+ - I don’t know if this makes me a bad person or whatever, but it’s hard for me to get interested in other people’s vacations.
+ - Holly is the fourth-prettiest girl in the class, but the top 3 all have boyfriends. So a lot of guys like me are doing everything they can to get in good with her.
+ - When you’re used to having electricity and then all of a sudden it’s taken away, you’re basically just one step from being a wild animal.
+ - He got the crib, so for the first few months of my life I had to sleep in the top dresser drawer, which I’m pretty sure isn’t even legal.
+ - I’ve seen a lot of movies where a kid my age finds out he’s got magical powers and then gets invited to go away to some special school. Well, if I’ve got an invitation coming, now would be the perfect time to get it.
+
+40 quotes

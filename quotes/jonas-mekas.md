@@ -1,0 +1,31 @@
+ - In the very end, civilizations perish because they listen to their politicians and not to their poets.
+ - For an artist, to be normal is a disaster.
+ - We need less perfect but more free films.
+ - My films are the celebration of reality, of life, of my friends, of actual daily life that passes and is gone tomorrow. We don’t pay attention to it when it happens.
+ - I’m not so much in the future as always in the present. The future always takes care of itself. What I do now with my video camera, it can only record what is happening now. I am celebrating reality and the essence of the moment. And that’s the greatest challenge that I have.
+ - In a meadow full of flowers, you cannot walk through and breathe those smells and see all those colors and remain angry. We have to support the beauty, the poetry, of life.
+ - Seek the insignificant small but essential qualities, essential to life.
+ - An adventurer can always return home; an exile cannot. So I decided that my home would be culture.
+ - I missed my teenage years. I was never a teenager.
+ - I began writing poetry when I was about 10. Bad poetry, but you start with bad poetry.
+ - Place means nothing to me. I can be at home anywhere.
+ - The nature of the video camera really makes you focus on the present. Since I have always been a diarist filmmaker, not one who stages scenes with actors, it has always been about the present moment.
+ - In Lithuania, I am known as a poet, and they don’t care about my cinema. In Europe they don’t know my poetry; in Europe, I am a filmmaker. But here, in the United States, I am only a maverick!
+ - For me, to catch, to celebrate the reality and life and friends and everything around me the very moment it happens – that’s what is, that’s what I’m possessed by.
+ - I’m not an abstract artist; I leave that to others. To me, abstract art ended with Kazimir Malevich’s ‘Black Square.’ To continue it is senseless.
+ - Some cameras are heavier and need to be on tripods. Others are small enough to hide in your pocket. There are places where you don’t want to feel like you are disturbing anything, so I may use a camera like that.
+ - I’m working in a form of cinema that can be described, and has been described, as a diaristic form of cinema. In other words, with material from my own life. I walk through life with my camera, and occasionally I film. I never think about scripts, never think about films, making films.
+ - There is no other way to break the frozen cinematic conventions than through a complete derangement of the official cinematic senses.
+ - My life is essentially not so unique. On some deeper levels we feel the same, we know the same things. Therefore if I show my life 365 days, moments from those days, it will reflect and it will have connection with lives of all of us.
+ - I brought Yoko Ono to New York and gave her her first job there. I was editing a magazine called ‘Film Culture.’
+ - I had the fortune to spend some time, mostly during the summers, with Jackie Kennedy’s and her sister Lee Radziwill’s families and children. Cinema was an integral, inseparable, as a matter of fact, a key part of our friendship.
+ - You have the possibility to give light a dimension in time.
+ - Most of my videos consist of fragments, one or two minutes long. They are haikus or sketches. I have thousands.
+ - Just as in writing, there are novelistic and sort of pedestrian ways of telling a story, to write a postcard with your little pocket camera and put it on websites. I think that’s where the most exciting kind of imagery and content is being recorded and exchanged today.
+ - I make home movies-therefore I live. I live-therefore I make home movies.
+ - Yes, I got my first Bolex camera a few weeks after being dropped in New York by the United Nations Refugee Organization. That was on October 29th, 1949. With my brother Adolfas, we wanted to make a film about displaced persons, how one feels being uprooted from one’s home.
+ - As a film-maker and a poet, I feel it’s my duty to be an eye and an antenna to what’s happening around me. I always felt a solidarity with those who are desperate and confused and misused and are seeking a way out of it.
+ - The deeper I went into culture, the more confused I got. So I needed something more real. I said, “Okay, from now on, my country will be cinema.”
+ - I am very active on the Internet. In 2007, I made one film every day and posted it on my website. That was a 365-day project, really exhausting, but I still put a lot of stuff on – from life, friends, my own life.
+
+29 quotes

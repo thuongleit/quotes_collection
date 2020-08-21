@@ -1,0 +1,243 @@
+ - You never know what worse luck your bad luck has saved you from.
+ - Keep a little fire burning; however small, however hidden.
+ - People don’t pay attention. And then one day there’s an accounting. And after that, nothing is the same.
+ - If the rule you followed brought you to this, of what use was the rule?
+ - I can normally tell how intelligent a man is by how stupid he thinks I am.
+ - This is what the good guys do. They keep trying. They don’t give up.
+ - We’re carrying the fire.
+ - Scared money can’t win and a worried man can’t love.
+ - When the lambs is lost in the mountain, he said. They is cry. Sometime come the mother. Sometime the wolf.
+ - But there are no absolutes in human misery and things can always get worse.
+ - There is no God and we are his prophets.
+ - All the time you spend tryin to get back what’s been took from you there’s more goin out the door. After a while you just try and get a tourniquet on it.
+ - Scars have the strange power to remind us that our past is real.
+ - You forget what you want to remember, and you remember what you want to forget.
+ - To see God everywhere is to see Him nowhere.
+ - You say you can’t? Then don’t do it. That’s all.
+ - The wind sounded of Mother Earth’s forsaken and abandoned cries.
+ - Creative work is often driven by pain. It may be that if you don’t have something in the back of your head driving you nuts, you may not do anything. It’s not a good arrangement. If I were God, I wouldn’t have done it that way.
+ - No lists of things to be done. The day providential to itself. The hour. There is no later. This is later. All things of grace and beauty such that one holds them to one’s heart have a common provenance in pain. Their birth in grief and ashes.
+ - Whatever in creation exists without my knowledge exists without my consent.
+ - If only my heart were stone.
+ - Life is brief and to have to spend every day of it doing what somebody else wants you to do is not the way to live it.
+ - War was always here. Before man was, war waited for him. The ultimate trade awaiting its ultimate practitioner.
+ - I always thought when I got older that God would sort of come into my life in some way. He didn’t. I don’t blame him. If I was him I’d have the same opinion about me that he does.
+ - The things that I loved were very frail. Very fragile. I didn’t know that. I thought they were indestructible. They weren’t.
+ - It’s the tide. It’s the dismal tide. It’s not the one thing.
+ - People think they know what they want but they generally don’t. Sometimes if they’re lucky they’ll get it anyways.
+ - If trouble comes when you least expect it then maybe the thing to do is to always expect it.
+ - It is personal. That’s what an education does. It makes the world personal.
+ - Your heart’s desire is to be told some mystery. The mystery is that there is no mystery.
+ - Teaching writing is a hustle.
+ - I tried to put things in perspective but sometimes you’re just too close to it.
+ - There is for a man two things in life that are very important, head and shoulders above everything else. Find work you like, and find someone to live with you like. Very few people get both.
+ - Do you know what happens with people who cannot govern themselves? That’s right. Others come in to govern for them.
+ - I got here the same way the coin did.
+ - What’s the bravest thing you ever did? He spat in the road a bloody phlegm. Getting up this morning, he said.
+ - On this road there are no godspoke men. They are gone and I am left and they have taken with them the world.
+ - By day the banished sun circles the earth like a grieving mother with a lamp.
+ - The road has its own reasons and no two travelers will have the same understanding of those reasons. If indeed they come to an understanding of them at all.
+ - The night sky lies so sprent with stars that there is scarcely space of black at all and they fall all night in bitter arcs and it is so that their numbers are no less.
+ - Every day is a lie. But you are dying. That is not a lie.
+ - In dreams we stand in this great democracy of the possible and there we are right pilgrims indeed. There we go forth to meet what we shall meet.
+ - I guess if everybody went crazy together nobody would notice.
+ - The trouble with a liar is he can’t remember what he said.
+ - It takes very little to govern good people. Very little. And bad people cant be governed at all. Or if they could I never heard of it.
+ - There is no such joy in the tavern as upon the road thereto.
+ - If you break little promises, you’ll break big ones.
+ - People were always getting ready for tomorrow. I didn’t believe in that. Tomorrow wasn’t getting ready for them. It didn’t even know they were there.
+ - Choose your enemies carefully ’cause they will define you Make them interesting ’cause in some ways they will mind you They’re not there in the beginning but when your story ends Gonna last with you longer than your friend.
+ - They say death comes like a thief in the night, where is he? I’ll hug his neck.
+ - The world is quite ruthless in selecting between the dream and the reality, even where we will not.
+ - You think when you wake up in the mornin yesterday don’t count. But yesterday is all that does count. What else is there? Your life is made out of the days it’s made out of. Nothin else.
+ - What could a child know of the darkness of God’s plan? Or how flesh is so frail it is hardly more than a dream.
+ - When the shooting starts would you rather be armed or legal?
+ - Borrowed time and borrowed world and borrowed eyes with which to sorrow it.
+ - Word gets around when the circus comes to town, don’t it?
+ - The wrath of God lies sleeping. It was hid a million years before men were and only men have the power to wake it.
+ - Between the wish and the thing the world lies waiting.
+ - He didn’t say a lot so I tend to remember what he did say. And I don’t remember that he had a lot of patience with havin to say things twice so I learned to listen the first time.
+ - Hell ain’t half full.
+ - He never sleeps, the judge. He is dancing, dancing. He says that he will never die.
+ - This country will kill you in a heartbeat and still people love it.
+ - Somewhere in the world is the most invincible man. Just as somewhere is the most vulnerable.
+ - Long before morning I knew that what I was seeking to discover was a thing I’d always known. That all courage was a form of constancy. That it is always himself that the coward abandoned first. After this all other betrayals come easily.
+ - If one were to be a person of value that value could not be a condition subject to hazards of fortune. It had to be a quality that could not change. No matter what.
+ - If a man’s at odds to know his own mind it’s because he hasn’t got aught but his mind to know it with.
+ - Even if what you’re working on doesn’t go anywhere, it will help you with the next thing you’re doing. Make yourself available for something to happen. Give it a shot.
+ - Dying ain’t in people’s plans, is it?
+ - For the poor any choice was a gift with two faces.
+ - The hardest lesson in the world: Maybe it’s just that when things are gone they’re gone. They aint comin back.
+ - What would you do if I died? If you died I would want to die too. So you could be with me? Yes. So I could be with you. Okay.
+ - The point is there ain’t no point.
+ - The closest bonds we will ever know are bonds of grief. The deepest community one of sorrow.
+ - They were watching, out there past men’s knowing, where stars are drowning and whales ferry their vast souls through the black and seamless sea.
+ - He said that those who have endured some misfortune will always be set apart but that it is just that misfortune which is their gift and which is their strength.
+ - People complain about the bad things that happen to em that they don’t deserve but they seldom mention the good. About what they done to deserve them things.
+ - Listen to me, he said, when your dreams are of some world that never was or some world that never will be, and you’re happy again, then you’ll have given up. Do you understand? And you can’t give up, I won’t let you.
+ - She was gone and the coldness of it was her final gift.
+ - For things at a common destination there is a common path. Not always easy to see. But there.
+ - He can give me what you cannot. Death is not a lover. Oh yes, he is.
+ - There is no forgiveness. For women. A man may lose his honor and regain it again. But a woman cannot. She cannot.
+ - He’d half meant to speak but those eyes had altered the world forever in the space of a heartbeat.
+ - He knew only that his child was his warrant. He said: If he is not the word of God God never spoke.
+ - You have my whole heart. You always did.
+ - Every man’s death is standing in for every other. And since death comes to all there is no way to abate the fear of it except to love the man who stands for us.
+ - Ever is a long time. But the boy knew what he knew. That ever is no time at all.
+ - When God made man the devil was at his elbow. A creature that can do anything. Make a machine. And a machine to make the machine. And evil that can run itself a thousand years, no need to tend it.
+ - When one has nothing left make ceremonies out of the air and breathe upon them.
+ - No one can tell you what your life is goin to be, can they? No. It’s never like what you expected. Quijada nodded. If people knew the story of their lives how many would then elect to live them?
+ - If you think about some of the things that are being talked about by thoughtful, intelligent scientists, you realize that in 100 years the human race won’t even be recognizable.
+ - You go back home and everything you wished was different is still the same and everything you wished was the same is different.
+ - Men say they only learn this but he said that no creature can learn that which his heart has no shape to hold.
+ - The man watched him. Real life is pretty bad? What do you think? Well, I think we’re still here. A lot of bad things have happened but we’re still here. Yeah. You don’t think that’s so great. It’s okay.
+ - It would take a hell of a wife to beat no wife at all.
+ - See the child. He is pale and thin, he wears a thin and ragged linen shirt. He stokes the scullery fire.
+ - A goodlookin horse is like a goodlookin woman, he said. They’re always more trouble than what they’re worth. What a man needs is just one that will get the job done.
+ - The nights were blinding cold and casket black and the long reach of the morning had a terrible silence to it.
+ - How would you know if you were the last man on Earth? He said. I don’t guess you would know it. You’d just be it. Nobody would know it. It wouldn’t make any difference. When you die it’s the same as if everybody else died too.
+ - My daddy used to tell me not to chew on something that was eatin you.
+ - Perhaps in the world’s destruction it would be possible at last to see how it was made. Oceans, mountains. The ponderous counterspectacle of things ceasing to be. The sweeping waste, hydroptic and coldly secular. The silence.
+ - What business is it of yours where I’m from, friendo?
+ - Remember her hair in the morning before it was pinned, black, rampant, savage with loveliness. As if she slept in perpetual storm.
+ - Nobody wants to be here and nobody wants to leave.
+ - Life is a memory, and then it is nothing.
+ - War is the ultimate game because war is at last a forcing of the unity of existence. War is god.
+ - It is supposed to true that those who do not know history are condemned to repeat it. I don’t believe knowing can save us. What is constant in history is greed and foolishness and love of blood.
+ - Nor does God whisper through the trees. His voice is not to be mistaken. When men hear it they fall to their knees and their souls are riven and they cry out to Him and there is no fear but only wildness of heart that springs from such longing...
+ - Pain for the old was no longer a surprise.
+ - The way of the world is to bloom and to flower and die but in the affairs of men there is no waning and the noon of his expression signals the onset of night. His spirit is exhausted at the peak of its achievement. His meridian is at once his darkening and the evening of his day.
+ - You keep runnin that mouth and I’m goin to take you back there and screw you.
+ - By the time I was sixteen I had read many books and I had become a freethinker.
+ - I’ve always been interested in the Southwest. There isn’t a place in the world you can go where they don’t know about cowboys and Indians and the myth of the West.
+ - If there’s one thing on this planet you don’t look like it’s a bunch of good luck walkin around.
+ - Ever step you take is forever.
+ - There was someone there and they had been there. There was no one there. There was someone there and they had been there and they had not left but there was no one there.
+ - Ever dumb thing I ever done in my life there was a decision I made before that got me into it. It was never the dumb thing. It was always some choice I’d made before it.
+ - How does a man decide in what order to abandon his life?
+ - In every trade save war men of talent and vigor prosper. In war they die.
+ - Just take me with you. Please. I cant. Please, Papa. I cant. I cant hold my son dead in my arms. I thought I could but I cant.
+ - What is it? Nothing. I had a bad dream. What did you dream about? Nothing. Are you okay? No. He put his arms around him and held him. It’s okay, he said. I was crying. But you didnt wake up. I’m sorry. I was just so tired. I meant in the dream.
+ - Not all dying words are true and this blessing is no less real for being shorn of its ground.
+ - This is my child, he said. I wash a dead man’s brains out of his hair. That is my job.
+ - They came upon themselves in a mirror and he almost raised the pistol. It’s us, Papa, the boy whispered. It’s us.
+ - Men of God and men of war have strange affinities.
+ - What man is such a coward he would not rather fall once than remain forever tottering?
+ - It starts when you begin to overlook good manners. Any time you quit hearing Sir and Mam the end is pretty much in sight...
+ - It was always himself that the coward abandoned first. After this all other betrayals came easily.
+ - She said that these were things all women knew yet seldom spoke of. Lastly she said that if women were drawn to rash men it was only that in their secret hearts they knew that a man who would not kill for them was of no use at all.
+ - In the end we all come to be cured of our sentiments.
+ - Query: How does the never to be differ from what never was?
+ - Men’s memories are uncertain and the past that was differs little from the past that was not.
+ - I ain’t got an original thought in my head. If it ain’t got the scent of divinity to it, I ain’t interested in it.
+ - How surely are the dead beyond death. Death is what the living carry with them. A state of dread, like some uncanny foretaste of a bitter memory. But the dead do not remember and nothingness is not a curse. Far from it.
+ - Deep in each man is the knowledge that something knows of his existence. Something knows, and cannot be fled nor hid from.
+ - Creedless shells of men tottering down the causeways like migrants in a feverland.
+ - The small wad of burning paper drew down to a wisp of flame and then died out leaving a faint pattern for just a moment in the incandescence like the shape of a flower, a molten rose. Then all was dark again.
+ - I got what I needed instead of what I wanted and that’s just about the best kind of luck you can have.
+ - Then they set out along the blacktop in the gunmetal light, shuffling through the ash, each the other’s world entire.
+ - When he went back to the fire he knelt and smoothed her hair as she slept and he said if he were God he would have made the world just so and no different.
+ - He saw very clearly how all his life led only to this moment and all after led to nowhere at all. He felt something cold and soulless enter him like another being and he imagined that it smiled malignly and he had no reason to believe that it would ever leave.
+ - Do you think that your fathers are watching? That they weigh you in their ledgerbook? Against what? There is no book and your fathers are dead in the ground.
+ - You always pay too much. Particularly for promises. There aint no such thing as a bargain promise.
+ - I don’t know why I started writing. I don’t know why anybody does it. Maybe they’re bored, or failures at something else.
+ - Each the others world entire.
+ - Doomed enterprises divide lives forever into the then and now.
+ - The frailty of everything revealed at last. Old and troubling issues resolved into nothingness and night. The last instance of a thing takes the class with it. Turns out the light and is gone. Look around you. Ever is a long time. But the boy knew what he knew. That ever is no time at all.
+ - Here beyond men’s judgments all covenants were brittle.
+ - He could not construct for the child’s pleasure the world he’d lost without constructing the loss as well and he thought perhaps the child had known this better than he.
+ - The freedom of birds is an insult to me.
+ - The cooler days have brought a wistful mood upon him. The smell of coalsmoke in the air at night. Old times, dead years. For him such memories are bitter ones.
+ - Can you do it? When the time comes? When the time comes there will be no time. Now is the time. Curse God and die.
+ - There was nothin to set a man’s mind at ease like wakin up in the morning and not havin to decide who you were.
+ - It may be that the life I desire for her no longer even exists, yet I know what she does not. That there is nothing to lose.
+ - There is no greater monster than reason.
+ - And the dreams so rich in color. How else would death call you? Waking in the cold dawn it all turned to ash instantly. Like certain ancient frescoes entombed for centuries suddenly exposed to the day.
+ - He thought that in the history of the world it might even be that there was more punishment than crime but he took small comfort from it.
+ - He may be dead; or he may be teaching English.
+ - If God meant to interfere in the degeneracy of mankind would he not have done so by now? Wolves cull themselves, man. What other creatures could? And is the race of man not more predacious yet?
+ - Well, I guess in all honesty I would have to say that I never knew nor did I ever hear of anybody that money didnt change.
+ - Men believe death’s elections to be a thing inscrutable yet every act invites the act which follows and to the extent that men put one foot before the other they are accomplices in their own deaths as in all such facts of destiny.
+ - At one time in the world there were woods that no one owned.
+ - Notions of chance and fate are the preoccupations of men engaged in rash undertakings.
+ - Anything that doesn’t take years of your life and drive you to suicide hardly seems worth doing.
+ - She smiled. I think it’s just the snow. I think it makes people stop and think. Bell nodded. I hope it comes a blizzard then.
+ - Hard weather, says the old man. So let it be. Wrap me in the weathers of the earth, I will be hard and hard. My face will wash rain like the stones.
+ - Just remember that the things you put into your head are there forever, he said.
+ - The martyr who longs for the flames can be no right candidate for them.
+ - Suppose you were the last one left? Suppose you did that to yourself?
+ - Best way to live in California is to be from somewheres else.
+ - When you die it’s the same as if everybody else did too.
+ - And in the dream I knew that he was goin on ahead and that he was fixin to make a fire somewhere out there in all that dark and all that cold and I knew that whenever I got there he would be there. And then I woke up.
+ - Words pale and lose their savor while pain is always new.
+ - I think by the time you’re grown you’re as happy as you’re goin to be. You’ll have good times and bad times, but in the end you’ll be about as happy as you was before. Or as unhappy. I’ve knowed people that just never did get the hang of it.
+ - Our waking life’s desire to shape the world to our convenience invites all manner of paradox and difficulty.
+ - All progressions from a higher to a lower order are marked by ruins and mystery and a residue of nameless rage.
+ - One of the things you realize about gettin older is that not everybody is goin to get older with you.
+ - The world to come must be composed of what is past. No other material is at hand.
+ - Because the question for me was always whether that shape we see in our lives was there from the beginning or whether these random events are only called a pattern after the fact. Because otherwise we are nothing.
+ - Men have in their minds a picture of how the world will be. How they will be in that world. The world may be many different ways for them but there is one world that will never be and that is the world they dream of.
+ - They spoke less and less between them until at last they were silent altogether as is often the way with travelers approaching the end of a journey.
+ - What deity in the realms of dementia, what rabid god decocted out of the smoking lobes of hydrophobia could have devised a keeping place for souls so poor as is this flesh. This mawky worm-bent tabernacle.
+ - In the nights sometimes now he’d wake in the back and freezing waste out of softly colored worlds of human love, the songs of birds, the sun.
+ - A dream inside a dream might not be a dream.
+ - Each memory recalled must do some violence to its origins.
+ - Goodness will find the little boy. It always has. It will again.
+ - Fear of an enemy can often blind men to other hazards, not least the shape which they themselves make in the world.
+ - He sat a long time and he thought about his life and how little of it he could ever have foreseen and he wondered for all his will and all his intent how much of it was his doing.
+ - This country was filled with violent children orphaned by war.
+ - The passing of armies and the passing of sands in the desert are one.
+ - What you alter in the remembering has yet a reality, known or not.
+ - The voice of the Almighty speaks most profoundly in such things as lives in silence themselves.
+ - I look for the words, Professor. I look for the words because I believe that the words is the way to your heart.
+ - I don’t think goodness is something that you learn. If you’re left adrift in the world to learn goodness from it, you would be in trouble.
+ - He thought each memory recalled must do some violence to its origins. As in a party game. Say the words and pass it on. So be sparing. What you alter in the remembering has yet a reality, known or not.
+ - Ever step you take is forever. You cant make it go away. None of it. You understand what I’m sayin?
+ - When the lies are all told and forgot the truth will be their yet.
+ - Ah me, thou Destiny, Giver of evil gifts.
+ - And perhaps beyond those shrouded swells another man did walk with another child on the dead gray sands. Slept but a sea apart on another beach among the bitter ashes of the world or stood in their rags lost to the same indifferent sun.
+ - Do you have any notion of how goddamned crazy you are?
+ - It is not my experience that life’s difficulties make people more charitable.
+ - What he could bear in the waking world he could not by night and he sat awake for fear the dream would return.
+ - I’d rather to make a good run as a bad stand.
+ - Last words are only words.
+ - We think we are the victims of time. In reality, the way of the world isn’t fixed anywhere. How could that be possible? We are our own journey. And therefore we are time as well. We are the same. Fugitive. Inscrutable. Ruthless.
+ - Finally he said that among men there was no such communion as among horses and the notion that men can be understood at all was probably an illusion.
+ - This place aint the same. It never will be. Maybe we’ve all got a little crazy. I guess if everbody went crazy together nobody would notice, what do you think?
+ - He stood at the window of the empty cafe and watched the activites in the square and he said that it was good that God kept the truths of life from the young as they were starting out or else they’d have no heart to start at all.
+ - In history there are no control groups. There is no one to tell us what might have been. We weep over the might have been, but there is no might have been. There never was.
+ - It just bothered me that you might think I’m somethin special. I aint.
+ - I was afraid I was going to die and then I was afraid I wasnt.
+ - He said that whether a man’s life was writ in a book someplace or whether it took its form day by day was one and the same for it had but one reality and that was the living of it.
+ - I think if you were Satan and you were settin around tryin to think up somethin that would just bring the human race to its knees what you would probably come up with is narcotics.
+ - Any time you’re throwin dirt you’re losin ground.
+ - My perfect day is sitting in a room with some blank paper. That’s heaven. That’s gold, and anything else is just a waste of time.
+ - For even if you should have stood your ground, he said, yet what ground was it?
+ - The carrion birds sat about the topmost corners of the houses with their wings outstretched in attitudes of exhortation like dark little bishops.
+ - If people knew the story of their lives, how many would then elect to live them?
+ - Where in this pukehole can a man get a drink? he said.
+ - He rocked in the swells, floating like the first germ of life adrift on the earth’s cooling seas, formless macule of plasm trapped in a vapor drop and all creation yet to come.
+ - Maybe it’s like Mac says. Ever man winds up with the horse that suits him.
+ - The world could only be known as it existed in men’s hearts. For while it seemed a place which contained men it was in reality a place contained within them.
+ - He believed in God even if he was doubtful of men’s claims to know God’s mind. But that a God unable to forgive was no God at all.
+ - There is a moon shaped rictus in the streetlamp’s globe where a stone has gone and from this aperture there drifts down through the constant helix of aspiring insects a faint and steady rain of the same forms burnt and lifeless.
+ - I guess you ought to be careful about cussin the dead. I would say at the least there probably ain’t no luck in it.
+ - Yet it is the narrative that is the life of the dream while the events themselves are often interchangeable. The events of the waking world on the other hand are forced upon us and the narrative is the unguessed axis along which they must be strung.
+ - Only that man who has offered up himself entire to the blood of war, who has been to the floor of the pit and seen the horror in the round and learned at last that it speaks to his inmost heart, only that man can dance. – The judge.
+ - You are either born a writer or you are not.
+ - There’s a difference between quittin and knowin when you’re beat.
+ - The societies to which I have been exposed seemed to me largely machines for the suppression of women.
+ - Maybe. Anyway, some men get what they want. No man. Or perhaps only briefly so as to lose it. Or perhaps only to prove to the dreamer that the world of his longing made real is no longer that world at all.
+ - I felt early on I wasn’t going to be a respectable citizen.
+ - He had divested himself of the little cloaked godlet and his other amulets in a place where they would not be found in his lifetime and he’d taken for talisman the simple human heart within him.
+ - Acts have their being in the witness. Without him who can speak of it? In the end one could even say that the act is nothing, the witness all.
+ - It is community and respect, of course, but the dead have more claims on you than what you might want to admit or even what you might know about and them claims can be very strong indeed. Very strong indeed.
+ - The world was new each day for God so made it daily. Yet it contained within it all the evils as before, no more, no less.
+ - To have a child when you’re older, it wrenches you up out of your nap and makes you look at things, you know, afresh. It forces the world on you. And I think it’s a good thing.
+ - Even the damned in hell have the community of their suffering.
+ - But I didn’t know what to say to him. What do you say to a man that by his own admission has no soul? Why would you say anything?
+ - The rain falls upon the just And also on the unjust fellas But mostly it falls upon the just Cause the unjust have the just’s umbrellas.
+ - If it is life that you feel you are missing I can tell you where to find it. In the law courts, in business, in government. There is nothing occurring in the streets. Nothing but a dumbshow composed of the helpless and the impotent.
+ - Where men can’t live gods fare no better.
+
+241 quotes

@@ -1,0 +1,32 @@
+ - You don’t disrupt genius at work.
+ - This is life and imperfection is beautiful and don’t be afraid of that.
+ - I don’t think teens make mistakes when they fall in love. You experience what you experience and you take away what you can from it; it is very human.
+ - I want to wish you all luck with every bit of life you have ahead of you! Be strong. Be fearless. Be passionate.
+ - The perfect date is the one where anything and everything goes wrong, but at the end of it, all you want is to see them again.
+ - I’m always a little innately shy when I first talk to a girl, and I think I always will be! But I think that’s a good thing. You don’t want to lose that.
+ - I’m a big root beer guy.
+ - Part of growing up is realizing you learn to love so many people. It’s about forming those relationships and finding what will last forever.
+ - I feel like I’m good with girls. I understand them and am good at loving them. I’ve always felt like that’s been natural for me.
+ - I didn’t have that many friends my first few years of high school. It was very cliquey and I’m super shy, so it was hard to make friends.
+ - In high school, girls started wearing high-waisted pants with their shirts tucked into them. I don’t get what that’s about.
+ - I’m always one who will lash out at anyone hurts my friends, viciously, kind of. I’m very protective of the people I love.
+ - When a chick has a sense of humor, theres nothing more attractive.
+ - I never have an opinion about clothes and know nothing about fashion.
+ - That’s such a relevant thing, as an actor – committing and not being distracted by any kind of technical awareness, or whatever. You do have to block things out sometimes, and sometimes it’s easier than others.
+ - I’m never offered any sort of roles. I need to audition in a typically lengthy process to receive roles.
+ - I didn’t grow up acting. I really just started, literally, when I was 18. I just feel like it’s a thing of always just experiencing it and growing, as a person.
+ - I never trained in any acting, other than just joking around and doing my own dinky little videos.
+ - Acting is a weird thing. You’ve gotta do it to get better, and you’ve gotta try things to grow.
+ - The thing I like a lot about acting is I’ll never learn enough. I’ll never know it inside and out.
+ - In real life I’d say we’re more bromantic. It’s like we’re literally like a married couple kind of.
+ - I love baseball – ‘Moneyball’ was my favorite book when I was 13.
+ - Kissing on screen is just, funny enough you’re just acting so you’re distracted by that more than anything. Or at least I am. I’m actually always coming away from those things going like, ‘I wonder how I kissed just now.’ Because I have no idea! I’m just thinking about what’s happening.
+ - My heroes are guys like Tom Hanks, Leonardo DiCaprio, and Matt Damon. These are amazing actors with amazing careers that every actor should aspire to. I’m not saying I’m going to get anywhere close. It’s not going to be an easy feat. I’m just in awe of their careers.
+ - I moved to California when I was twelve and I got a video camera and made little movies because I didn’t have any friends yet. I would force my sister to make these movies with me – which became my YouTube channel.
+ - I just want to work with good filmmakers and do good projects that mean something to me and play interesting characters. That’s really it.
+ - I love doing stunt stuff and action stuff. I’m not flipping off helicopters; that would be insane.
+ - With TV, you just have to finish the days and get the episodes out. And it’s always going to be an impossible schedule. That’s the funny thing with TV that not a lot of people realize.
+ - Yeah, I’ve only been acting since I was 18 out of high school.
+ - I don’t really give much thought to the roles that I’d ideally love to play.
+
+30 quotes

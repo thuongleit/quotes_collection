@@ -1,0 +1,47 @@
+ - The day will happen whether or not you get up.
+ - Tell me how much a nation knows about its own language, and I will tell you how much that nation knows about its own identity.
+ - Patience is the art of caring slowly.
+ - The classroom should be an entrance into the world, not an escape from it.
+ - Early to bed and early to rise probably indicates unskilled labor.
+ - Let our love be like an arch- two weaknesses leaning together to form one strength.
+ - I’m smiled out, talked out, quipped out, socialized so far from any being, I need the weight of mortal silences to get realized back into myself.
+ - Love is the word used to label the sexual excitement of the young, the habituation of the middle-aged, and the mutual dependence of the old.
+ - You don’t have to suffer to be a poet; adolescence is enough suffering for anyone.
+ - Spontaneous is what you get after the seventeenth draft.
+ - A university is what a college becomes when the faculty loses interest in the students.
+ - Fermentation and civilization are inseparable.
+ - Who could believe an ant in theory? A giraffe in blueprint? Ten thousand doctors of what’s possible Could reason half the jungle out of being.
+ - At the next vacancy for God, if I am elected, I shall forgive last the delicately wounded who, having been slugged no harder than anyone else, never got up again, neither to fight back, nor to finger their jaws in painful admiration.
+ - Poetry lies its way to the truth.
+ - Men marry what they need. I marry you.
+ - There’s nothing wrong with sobriety in moderation.
+ - The public library is the most dangerous place in town.
+ - A dollar saved is a quarter earned.
+ - Boys are the cash of war. Whoever said: we’re not free spenders- doesn’t know our like.
+ - The success of the poem is determined not by how much the poet felt in writing it, but by how much the reader feels in reading it.
+ - Modern art is what happens when painters stop looking at girls and persuade themselves that they have a better idea.
+ - Intelligence recognizes what has happened. Genius recognizes what will happen.
+ - Gentility is what is left over from rich ancestors after the money is gone.
+ - A good question is never answered. It is not a bolt to be tightened into place but a seed to be planted and to bear more seed toward the hope of greening the landscape of idea.
+ - Every game ever invented by mankind, is a way of making things hard for the fun of it!
+ - A neighborhood is a residential area that is changing for the worse.
+ - The constitution gives every American the inalienable right to make a damn fool of himself.
+ - It is easy enough to praise men for the courage of their conviction. I wish I could teach the sad young of this mealy generation the courage of their convictions.
+ - Conviction is possible only in a world more primitive than ours can be perceived to be. A man can achieve a simply gnomic conviction only by ignoring the radical describers of his environment, or by hating them, as convinced men have hated, say, Darwin and Freud, as agents of some devil.
+ - You have to fall in love with hanging around words.
+ - A savage is simply a human organism that has not received enough news from the human race.
+ - To read a poem with no thought in mind but to paraphrase it into a single, simple and usually high-minded prose statement is the destruction of poetry.
+ - Every parent is at some time the father of the unreturned prodigal, with nothing to do but keep his house open to hope.
+ - Nothing goes further toward a man’s liberation than the act of surviving his need for character.
+ - What has any poet to trust more than the feel of the thing? Theory concerns him only until he picks up his pen, and it begins to concern him again as soon as he lays it down.
+ - Honesty: The ability to resist small temptations.
+ - I have one head that wants to be good, And one that wants to be bad. And always, as soon as I get up, One of my heads is sad.
+ - A man is what he does with his attention and mine is not for sale.
+ - Boys are the cash of war.
+ - Written by a sponge dipped in warm milk and sprinkled with sugar.
+ - The reader deserves an honest opinion. If he doesn’t deserve it, give it to him anyhow.
+ - If a man means his writing seriously, he must mean to write well. But how can he write well until he learns to see what he has written badly. His progress toward good writing and his recognition of bad writing are bound to unfold at something like the same rate.
+ - The thing about cats as you might find, is that no one knows what they have in mind.
+ - General rules have been legislated into being by past masters.
+
+45 quotes

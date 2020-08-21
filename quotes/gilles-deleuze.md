@@ -1,0 +1,52 @@
+ - The self is only a threshold, a door, a becoming between two multiplicities.
+ - Write, form a rhizome, increase your territory by deterritorialization, extend the line of flight to the point where it becomes an abstract machine covering the entire plane of consistency.
+ - A concept is a brick. It can be used to build a courthouse of reason. Or it can be thrown through the window.
+ - The aim of critique is not the ends of man or of reason but in the end the Overman, the overcome, overtaken man. The point of critique is not justification but a different way of feeling: another sensibility.
+ - There’s no need to fear or hope, but only to look for new weapons.
+ - Art is not communicative, art is not reflexive. Art, science, philosophy are neither contemplative, neither reflexive, nor communicative. They are creative, that’s all.
+ - The shame of being a man – is there any better reason to write?
+ - Underneath all reason lies delirium and drift.
+ - A creator is someone who creates their own impossibilities, and thereby creates possibilities.
+ - It’s not easy to see things from the middle, rather than looking down on them from above or up at them from below, or from left to right or right to left: try it, you’ll see that everything changes.
+ - Why do men fight for their servitude as stubbornly as though it were their salvation?
+ - Philosophy, art, and science are not the mental objects of an objectified brain but the three aspects under which the brain becomes subject.
+ - Bring something incomprehensible into the world!
+ - Writing has nothing to do with meaning. It has to do with landsurveying and cartography, including the mapping of countries yet to come.
+ - You never walk alone. Even the devil is the lord of flies.
+ - A leftist government doesn’t exist because being on the left has nothing to do with governments.
+ - In truth, Freud sees nothing and understands nothing.
+ - Psychoanalysts are bent on producing man abstractly, that is to say ideologically, for culture. It is Oedipus who produces man in this fashion and who gives a structure to the false movement of infinite progression and regression.
+ - Can you harness the power of drugs without them taking over, without turning into a dazed zombie?
+ - The percept is the landscape before man, in the absence of man.
+ - One of the principal motifs of Nietzsche’s work is that Kant had not carried out a true critique because he was not able to pose the problem of critique in terms of values.
+ - An image of thought called philosophy has been formed historically and it effectively stops people from thinking.
+ - The plane of consistency is the abolition of all metaphor; all that consists is Real.
+ - The philosopher creates, he doesn’t reflect.
+ - The shadow escapes from the body like an animal we had been sheltering.
+ - Something in the world forces us to think. This something is an object not of recognition but of a fundamental encounter.
+ - Let us create extraordinary words, on condition that they be put to the most ordinary use and that the entity they designate be made to exist in the same way as the most common object.
+ - To affirm is not to bear, carry, or harness oneself to that which exists, but on the contrary to unburden, unharness, and set free that which lives.
+ - Philosophy is not in a state of external reflection on other domains, but in a state of active and internal alliance with them, and it is neither more abstract nor more difficult.
+ - I believe strongly that philosophy has nothing to do with specialists.
+ - My eye, my brain, are images, parts of my body. How could my brain contain images since it is one image among others?
+ - According to Beckett’s or Kafka’s law, there is immobility beyond movement: beyond standing up, there is sitting down, and beyond sitting down, lying down, beyond which one finally dissipates.
+ - What interests us in operations of striation and smoothing are precisely the passages or combinations: how the forces at work within space continually striate it, and how in the course of its striation it develops other forces and emits new smooth spaces.
+ - Intuition is neither a feeling, an inspiration nor a disorderly sympathy but a fully developed method.
+ - Forming grammatically correct sentences is for the normal individual the prerequisite for any submission to social laws. No one is supposed to be ignorant of grammaticality; those who are belong in special institutions. The unity of language is fundamentally political.
+ - Only thought is capable of inventing the fiction of a State that is universal by right, of elevation the State to the level of de jure universality.
+ - Reading something from beginning to end. That is reading with love.
+ - It is not the slumber of reason that engenders monsters, but vigilant and insomniac rationality.
+ - The instinct of revenge is the force which constitutes the essence of what we call psychology, history, metaphysics and morality. The spirit of revenge is the genealogical element of our thought, the transcendental principle of our way of thinking.
+ - Every time someone puts an objection to me, I want to say: ‘OK, OK, let’s go on to something else.’ Objections have never contributed anything.
+ - A tyrant institutionalises stupidity, but he is the first servant of his own system and the first to be installed within it.
+ - There’s no democratic state that’s not compromised to the very core by its part in generating human misery.
+ - Nietzsche’s break with Schopenhauer rests on precisely this point; it is a matter of knowing whether the will is unitary or multiple.
+ - Photography, if there is photography, is already snapped, already shot, in the very interior of things and for all points of space.
+ - Things never pass where you think, nor along the paths you think.
+ - As for being responsible or irresponsible, we don’t recognize those notions, they’re for policemen and courtroom psychiatrists.
+ - External images act on me, transmit movement to me, and I return movement: how could images be in my consciousness since I am myself image, that is, movement?
+ - It is always from the depths of its impotence that each power center draws its power, hence their extreme maliciousness, and vanity.
+ - Is it not first through the voice that one becomes animal?
+ - Far from being a psychological trait, the spirit of revenge is the principle on which our whole psychology depends.
+
+50 quotes

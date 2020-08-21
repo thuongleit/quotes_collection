@@ -1,0 +1,26 @@
+ - If you just change one person’s life, you feel like you’ve done something. But if you can change a whole lot of them and get them looking at themselves differently, it’s amazing.
+ - In places in the world where we don’t speak the same language, or even understand that we pray to the same God, we dance to the same beat, that is the ONE.
+ - I’m always moving forward.
+ - I use something that is a real staple in the directing world. It’s called a dance floor. You lay it down so that it’s so smooth you can roll around, and you can put furniture on top of it. It’s seamless and you don’t see it.
+ - I’m driven by passion. I mean, I am tired right now. I work to a point of abandon. I am fueled by my understanding of the need for self-expression that exists for young people.
+ - Fame is fleeting, honey. Fame is fleeting and it changes.
+ - There was a time when fame meant that you were either someone who is really gifted in your field or you were making an impact or you are famous because you were a really horrible person, you know? But now, you can become famous by eating a frog. It’s just not the same thing.
+ - As one who loves literature, art, music and history, I’ve been deeply rooted in the Harlem Renaissance for many years.
+ - Failure: Is it a limitation? Bad timing? It’s a lot of things. It’s something you can’t be afraid of, because you’ll stop growing. The next step beyond failure could be your biggest success in life.
+ - I didn’t need the insurance. I do it again if my DP tells me it didn’t look good in the camera or if the actors didn’t hit their marks. But if everything was working why do it again?
+ - Time management is a big part of the director’s job.
+ - As far as pacing the shoot is concerned, I know when I’ve got it. I don’t think there’s any reason to take ten takes unless you need them.
+ - Be true. Be beautiful. Be free. In the midst of segregation and racism Mamma raised us to be independent and free. We saw ourselves as citizens of the world, not of a block.
+ - You have to examine a scene on the page first. Then you get into the basics of acting: Who are you? Who are you talking to? How do you feel about that person?
+ - It’s kind of dangerous to cut in the camera, but that’s the only way I know how to direct.
+ - Michael Ralph brilliantly plays the street prophet, a West Indian who foreshadows the Harlem riot.
+ - The clothes back in those days were made so much better than clothes are today. They actually took time to make clothes to fit a woman’s body. Today they make clothes that fit sizes, so it stretches to fit this and that.
+ - The first thing that goes into shooting a scene is understanding whats on the page.
+ - I’ve had a lot of experience auditioning people, and I can do it rather quickly even though sometimes I let them linger and give them time, but I kind of know after I see them do a couple of steps. I know.
+ - There are some scenes that work beautifully in a moving, sweeping master, which is how I like to work.
+ - That’s the only way I can control my movie. If you shoot everything, then everything is liable to end up in the movie. If you have a vision, you don’t have to cover every scene.
+ - I think a good director casts a film so that the actors bring a lot to the table.
+ - The radio for these women is like television is for us today, which is really like looking at the radio.
+ - It goes back to a style of moviemaking I remember seeing as a child, in movies like The Man With The Golden Arm, which I think was shot all on a sound stage.
+
+24 quotes

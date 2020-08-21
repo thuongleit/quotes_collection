@@ -1,0 +1,70 @@
+ - It’s not information overload. It’s filter failure.
+ - When we change the way we communicate, we change society.
+ - The change we are in the middle of isn’t minor and it isn’t optional.
+ - A revolution doesn’t happen when society adopts new tools. It happens when society adopts new behaviors.
+ - Human beings are social creatures – not occasionally or by accident but always. Sociability is one of our lives as both cause and effect.
+ - Even with the sacred printing press, we got erotic novels 150 years before we got scientific journals.
+ - More interesting than thinking about whats possible in 10 years is thinking whats possible now but that no one has built.
+ - Knowledge, unlike information, is a human characteristic; there can be information no one knows, but there can’t be knowledge no one knows.
+ - It is the people who figure out how to work simply in the present, rather than the people who mastered the complexities of the past, who get to say what happens in the future.
+ - We systematically overestimate the value of access to information and underestimate the value of access to each other.
+ - It used to be expensive to make things public and cheap to make them private. Now it’s expensive to make things private and cheap to make them public.
+ - Curiously, once technology gets boring, the social effects get interesting.
+ - The Shirky Principle declares that complex solutions, like a company, or an industry, can become so dedicated to the problem they are the solution to, that often they inadvertently perpetuate the problem.
+ - Institutions will try to preserve the problem to which they are the solution.
+ - We have lived in this world where little things are done for love and big things for money. Now we have Wikipedia. Suddenly big things can be done for love.
+ - We’re not good at thinking fast. We are good at feeling fast.
+ - If it’s a revolution it can’t be predictable. And if it’s predictable it can’t be a revolution.
+ - Bureaucracies temporarily suspend the Second Law of Thermodynamics. In a bureaucracy, it’s easier to make a process more complex than to make it simpler, and easier to create a new burden than kill an old one.
+ - When you adopt a tool you adopt the management philosophy embedded in that tool.
+ - There is no larger collective-action problem than the environment. The three biggest lies of the environmental movement is that every little bit helps, you can do your part, and together we can do it.
+ - Multi-taskers often think they are like gym rats, bulking up their ability to juggle tasks, when in fact they are like alcoholics, degrading their abilities through over-consumption.
+ - If someone around you is multitasking, you pick up distraction like second-hand smoke.
+ - We are moving from sharing to cooperation to collective action.
+ - Behavior is motivation filtered through opportunity.
+ - When you got a cell phone you stopped making plans. ‘I’ll call you when I get there.’
+ - The loss of control you fear is already in the past.
+ - A firm is successful when the costs of directing employee effort are lower than the potential gain from directing.
+ - Our social life is literally primal, in the sense that chimpanzees and gorillas, our closest relatives among the primates, are also social.
+ - Society is not just the product of its individual members; it is also the product of its constituent groups.
+ - Prior to the internet, the last technology that had any real effect on the way people sat down and talked together was the table.
+ - It’s not a revolution if nobody loses.
+ - Communications tools don’t get socially interesting until they get technologically boring.
+ - Egalitarianism is possible only in small social systems. Once a medium gets past a certain size fame is a forced move.
+ - The great tension in media has always been that freedom and quality are conflicting goals.
+ - The waterfall method amounts to a pledge by all parties not to learn anything while doing the actual work.
+ - Our social tools are not an improvement to modern society, they are a challenge to it.
+ - The tools that a society uses to create and maintain itself are as central to human life as a hive is to bee life. Though the hive is not part of any individual bee, it is part of the colony, both shaped by and shaping the lives of its inhabitants.
+ - We use the word ‘organization’ to mean both the state of being organized and the groups that do the organizing.
+ - There are three things you need to be a good writer: you need to read a lot, you need to write a lot, and you need a lot of feedback.
+ - One of the biggest changes in our society is the shift from prevention to reaction...
+ - What you need for a participatory system to work: “a plausible promise, an effective tool, and an acceptable bargain.”
+ - There is no news industry.
+ - Publishing isn’t a job anymore. It’s a button.
+ - Fame is simply an imbalance between inbound and outbound attention.
+ - Wikipedia is forcing people to accept the stone-cold bummer that knowledge is produced and constructed by argument rather than by divine inspiration.
+ - It is our misfortune, as a historical generation, to live through the largest expansion in expressive capability in human history, a misfortune because abundance breaks more things than scarcity.
+ - Trying to express implicit and fuzzy relationships in ways that are explicit and sharp doesn’t clarify the meaning, it destroys it.
+ - Unlike sharing, where the group is mainly an aggregate of participants, cooperating creates group identity.
+ - Society doesn’t need newspapers. What we need is journalism.
+ - We are in a world where most American citizens over the age of 12 share things with each other online.
+ - Anybody who predicts the death of cities has already met his spouse.
+ - Curation comes up when people realize that it isn’t just about information seeking, it’s also about synchronizing a community.
+ - Collaboration is not an absolute good.
+ - How we put our collective talents to work is a social issue, not solely a personal one.
+ - Time Warner has called and they want us all back on the couch, just consuming – not producing, not sharing – and we should say, ‘No.’
+ - One of the best ways to know you’re completely wrong, is to behave as if you’re complete right.
+ - Upgrading one’s imagination about what is possible is always a leap of faith.
+ - A Wikipedia article is a process, not a product.
+ - The more ideas there are in circulation, the more ideas there are for any individual to disagree with. More media always means more arguing.
+ - So forget about blogs and bloggers and blogging and focus on this – the cost and difficulty of publishing absolutely anything, by anyone, into a global medium, just got a whole lot lower. And the effects of that increased pool of potential producers is going to be vast.
+ - The more people are involved in a given task, the more potential agreements need to be negotiated to do anything, and the greater the transaction costs.
+ - Amateur production, the result of all this new capability, means that the category of ‘consumer’ is now a temporary behavior rather than a permanent identity.
+ - The real gap is between doing nothing and doing something.
+ - To have a discussion about the plusses and minuses of various forms of group action, though, is going to require discussing the current tools and services as they exist, rather than discussing their caricatures or simply wishing that they would disappear.
+ - It is possible to think that the Internet will be a net positive for society while admitting that there are significant downsides – after all, it’s not a revolution if nobody loses.
+ - In a profession, members are only partly guided by service to the public.
+ - Civic participants don’t aim to make life better merely for members of the group. They want to improve even the lives of people who never participate...
+ - If what you’re doing is valuable for people, they will find a way to pay you to keep doing it.
+
+68 quotes

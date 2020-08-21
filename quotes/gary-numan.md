@@ -1,0 +1,42 @@
+ - Time heals nothing, it merely rearranges our memory.
+ - I worship nothing. Not a good lie nor a dark one. If nature is proof of God’s amazing creation then I have truly seen the light, and the light is black. Nature is genius at its most cruel and savage. No benevolent God could have come up with such an outrage.
+ - I think if you are creative then it’s an unstoppable thing. It just keeps coming throughout your entire life.
+ - I’m very intolerant and I get fed up with people easily.
+ - I don’t believe in sharing my money. If I go out and work my nuts off and make some money, I don’t feel that I should have to share it with my community.
+ - I want them to play Britney Spears at my funeral. This way I won’t feel so bad about being dead, and everyone there will know there is something worse than Death.
+ - I’m hopeless at small talk and have a problem making eye contact.
+ - I was a loner as a child and happiest at home, launching toy rockets and aeroplanes. When I started causing trouble in my third year at grammar school, Mum was really surprised. My parents sent me to a child psychologist, who suggested I might have Asperger’s syndrome.
+ - I’ve always considered myself to be fiercely patriotic. I love Britain – its history and the down-to-earth attitude people have.
+ - I have a condition called Aspergers Syndrome, which is like a mild form of autism It means I don’t interact properly in certain social situations.
+ - I’ll be the in to your sane.
+ - I have one brother, John, an airline pilot, who is seven years younger. He’s adopted, though we’re still blood related – he’s my cousin. My parents couldn’t have any more children after me, so when Dad’s brother died, they adopted John, then just a baby.
+ - When I was a kid it was big news when someone flew around the world in a little aeroplane, but nobody cared when I did it. Then, to rub salt into my wounds, the customs people ripped my aeroplane to pieces, looking for stuff.
+ - Ultravox were the blueprint for what I wanted to do, but I stumbled across them by accident.
+ - I met Gemma, my wife, when she was 12. She had a schoolgirl crush on me and her dad had arranged for her to meet me. Later, she started coming to my concerts, but I only got to know her well after her mother died. I rang to see how she was, and that’s how it started.
+ - Any time anyone says anything nice about me, whether it’s Lady Gaga or your neighbor, it’s a nice feeling, I’m very grateful for it. It’s very helpful for your career. Every time someone says something complimentary it introduces you to their audience. It gives you credibility.
+ - I became famous so quickly and so young – it was daunting. I was immature and I used to say some really stupid things in interviews. I never smiled on stage so I looked really serious, but it was because I hated my teeth and was incredibly nervous.
+ - My dad was a baggage handler at Heathrow and careful with money. He worked hard and had three jobs when I was young. I wish I’d inherited his care for money. Sadly, I’ve grown up to be rather scatty when it comes to finances.
+ - I’m very into science-fantasy, that kind of swordfights and magic and technology thing.
+ - I’ve got Asperger’s syndrome and I’m not a very good people person, so I’ve always been more comfortable around machinery. Not in a weird way – I don’t want to marry my car or anything stupid like that!
+ - I always say it took me 10 minutes to write ‘Cars,’ but if I am honest it could have been even less than that – and it has been a really successful song over the years. It is still massively used, in advertising, in films, and people do cover versions of it a lot.
+ - It seems no matter what you say and how politically correctly and carefully you say it, you offend someone. Or at least I always do.
+ - I think any song should sound good just played on a solitary instrument with the vocal. If you have those basics you have all you need. The production then just polishes that idea into the finished thing.
+ - I’m not good at happy, lightweight kind of music. I’m not really good at pop music. ‘Cars’ is probably the only true pop song I ever wrote. I wish I could write more, but I’m not very good at it.
+ - I collect fantasy swords, replicas from films, and have them displayed on the wall as you go up the stairs.
+ - I’d been a Bowie fan before punk and used to get no end of trouble. I was always getting knocked about and having to run up the street, getting chased by people. It was horrible.
+ - I just didn’t make music that you could sing with a big grin, still don’t.
+ - I wouldn’t say I’m vain – I’m just in a job where the way you look is important. Well, at least the facelift wasn’t vanity, but the hair was.
+ - When you decide to do this kind of music then you just accept the facts.
+ - There’s no point in lying saying I am doing really, really well because I’m not; I’m cult level.
+ - Here in my car, I feel safest of all, I can lock all the doors.
+ - I was always a bit different. I had a very happy childhood, but I could never hang on to mates.
+ - I’ve spent a lot of time in the United States and I’m not under any illusions that it’s a crime-free nirvana. I’m well aware it has plenty of problems, though they seem to be associated with particular areas.
+ - I sometimes wonder if I might be a bit of a disappointment to people, because they are expecting all these ’80s hits and what they get is a dark industrial wall of noise.
+ - Maybe I over-do the ‘not-80s’ thing. It should be a part of my life that I’ve got some sort of pride in, but I’ve got this huge chip on my shoulder about ’80s nostalgia – and it annoys fans sometimes.
+ - If I thought that any of this was pre ordained, then it takes away any kind of incentive to struggle, or to put up with things, to reach for those impossible dreams, all those dramatic things.
+ - I actually have two hats in my office; one says “network,” one says “studio.” Paul Lee over at ABC sent those over to us and I find it very useful.
+ - If you’ve been massive and it’s all slid away, you tend to get written off. It’s quite difficult to overcome that, which is why I’ve got this problem with nostalgia.
+ - I genuinely don’t know how many albums I’m going to sell when the new album comes out, because I honestly don’t know how many fans I’ve actually got at the moment.
+ - I’m very lucky in the sense that I’ve got a voice that’s distinctive. Not good, but distinctive. That’s a very useful thing to have in this business. I’m glad on the one hand that I’ve got it, but I wish it was more powerful. I wish I had a greater range. I wish it was more accurate at times.
+
+40 quotes

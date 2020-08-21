@@ -1,0 +1,148 @@
+ - The greatest happiness is to transform one’s feelings into action.
+ - We understand death for the first time when he puts his hand upon one whom we love.
+ - One must choose in life between boredom and suffering.
+ - Enthusiasm signifies God in us.
+ - A voyage without companionship, that is to say without conversation, is one of the saddest pleasures of life.
+ - Search for the truth is the noblest occupation of man; its publication is a duty.
+ - Happiness is a wondrous commodity: the more you give, the more you have.
+ - Taste is to literature what bon ton is in society.
+ - Scientific progress makes moral progress a necessity; for if man’s power is increased, the checks that restrain him from abusing it must be strengthened.
+ - Love is a symbol of eternity. It wipes out all sense of time, destroying all memory of a beginning and all fear of an end.
+ - I believe that happiness consists in having a destiny in keeping with our abilities. Our desires are things of the moment, often harmful even to ourselves; but our abilities are permanent, and their demands never cease.
+ - Who understands much, forgives much.
+ - Superstition is related to this life, religion to the next; superstition is allied to fatality, religion to virtue; it is by the vivacity of earthly desires that we become superstitious; it is, on the contrary, by the sacrifice of these desires that we become religious.
+ - Purity of mind and conduct is the first glory of a woman.
+ - Politeness is the art of choosing among your thoughts.
+ - The more we know the better we forgive. Whoever feels deeply, feels for all who live.
+ - The desire of the man is for the woman, but the desire of the woman is for the desire of the man.
+ - In women’s destiny everything goes downhill except for thought, whose immortal nature it is to keep constantly rising.
+ - O memory, thou bitter sweet, – both a joy and a scourge!
+ - Who understands much forgives much. To understand everything makes us very forgiving...
+ - I am glad that I am not a man, for then I should have to marry a woman.
+ - Men do not change, they unmask themselves.
+ - Love is the symbol of eternity.
+ - Prayer is more than meditation. In meditation the source of strength is one’s self. When one prays he goes to a source of strength greater than his own.
+ - Never, never have I been loved as I love others!
+ - Life often seems like a long shipwreck of which the debris are friendship, glory, and love. – The shores of existence are strewn with them.
+ - Love, supreme power of the heart, mysterious enthusiasm that encloses in itself all poetry, all heroism, all religion!
+ - When a noble life has prepared old age, it is not decline that it reveals, but the first days of immortality.
+ - Society develops wit, but its contemplation alone forms genius.
+ - Liberty is the only idea which circulates with the human blood, in all ages, in all countries, and in all literature – liberty that is, and what cannot be separated from liberty, a love of country.
+ - Self-love, so sensitive in its own cause, has rarely any sympathy to spare for others.
+ - Love is the whole history of a woman’s life, it is but an episode in a man’s.
+ - Wit lies in recognizing the resemblance among things which differ and the difference between things which are alike.
+ - Sow good services: sweet remembrances will grow from them.
+ - Mystery such as is given of God is beyond the power of human penetration, yet not in opposition to it.
+ - We cease loving ourselves if no one loves us.
+ - Divine Wisdom, intending to detain us some time on earth, has done well to cover with a veil the prospect of the life to come; for if our sight could clearly distinguish the opposite bank, who would remain on this tempestuous coast of time?
+ - Truth and, by consequence, liberty, will always be the chief power of honest men.
+ - Life teaches much, but to all thinking persons it brings ever closer the will of God – not because their faculties decline, but on the contrary, because they increase.
+ - Poetry is the apotheosis of sentiment.
+ - The mystery of existence is the connection between our faults and our misfortunes.
+ - It is difficult to grow old gracefully.
+ - Innocence in genius, and candor in power, are both noble qualities.
+ - Conscience is doubtless sufficient to conduct the coldest character into the road of virtue; but enthusiasm is to conscience what honor is to duty; there is in us a superfluity of soul, which it is sweet to consecrate to the beautiful when the good has been accomplished.
+ - Intellect does not attain its full force unless it attacks power.
+ - There is no second country for an Englishman, except a ship and the sea.
+ - There is no reality on this earth except religion and the power of love; all the rest is even more fugitive than life itself.
+ - Why shouldn’t man be as angry about not having always been alive as about having to stop being alive?
+ - Between God and love, I recognize no mediator but my conscience...
+ - Venice astonishes more than it pleases at first sight...
+ - Music revives the recollections it would appease.
+ - Morality must guide calculation, and calculation must guide politics.
+ - Have you not observed that faith is generally strongest in those whose character may be called the weakest?
+ - The universe is in France; outside it, there is nothing.
+ - Love is above the laws, above the opinion of men; it is the truth, the flame, the pure element, the primary idea of the moral world.
+ - Enthusiasm gives life to what is invisible; and interest to what has no immediate action on our comfort in this world.
+ - Every time a new nation, America or Russia for instance, advances toward civilization, the human race perfects itself; every time an inferior class emerges from enslavement and degradation, the human race again perfects itself.
+ - Ought not every woman, like every man, to follow the bent of her own talents?
+ - It seems to me that we become more dear one to the other, in together admiring works of art, which speak to the soul by their true grandeur.
+ - Happy the land where the writers are sad, the merchants satisfied, the rich melancholic, and the populace content.
+ - The most careful reasoning characters are very often the most easily abashed.
+ - The egotism of woman is always for two.
+ - Beauty is one in the universe, and, whatever form it assumes, it always arouses a religious feeling in the hearts of mankind.
+ - Frivolity, under whatever form it appears, deprives attention of its power, thought of its originality, and sentiment of its depth.
+ - The language of religion can alone suit every situation and every mode of feeling.
+ - Nature, who permits no two leaves to be exactly alike, has given a still greater diversity to human minds. Imitation, then, is a double murder; for it deprives both copy and original of their primitive existence.
+ - That past which is so presumptuously brought forward as a precedent for the present, was itself founded on some past that went before it.
+ - To pray together, in whatever tongue or ritual, is the most tender brotherhood of hope and sympathy that man can contract in this life.
+ - Genius inspires this thirst for fame: there is no blessing undesired by those to whom Heaven gave the means of winning it.
+ - You do not reach the sublime by degrees; the distance between it and the merely beautiful is infinite.
+ - There are only two distinct classes of people on this earth, those who espouse enthusiasm and those who despise it.
+ - Love which is only an episode in the life of men, is the entire history of the life of women.
+ - As we grow in wisdom, we pardon more freely.
+ - The thing that must be preserved in all situations whatever is the reputation of one’s character.
+ - Danger is like wine, it goes to your head.
+ - How much past there is in a life, however brief it be.
+ - Genius is essentially creative; it bears the stamp of the individual who possesses it.
+ - Be happy, but be happy through piety.
+ - When we destroy an old prejudice, we have need of a new virtue.
+ - No nation has the right to bring about a revolution, even though such a change may be most urgently needed, if the price is the blood of one single innocent individual...
+ - The people are as severe toward the clergy as toward women; they want to see absolute devotion to duty from both.
+ - The memories which come to us through music are not accompanied by any regrets; for a moment music gives us back the pleasures it retraces, and we feel them again rather than recollect them.
+ - What matters in a character is not whether one holds this or that opinion: what matters is how proudly one upholds it.
+ - The sense of this word among the Greeks affords the noblest definition of it; enthusiasm signifies God in us.
+ - Anything that happens gradually is always irrevocable.
+ - I do not want an echo of myself from my children. I do not want to hear from them merely the reverberation of my own voice.
+ - Speech happens to not be his language.
+ - The face of a woman, whatever be the force or extent of her mind, whatever be the importance of the object she pursues, is always an obstacle or a reason in the story of her life.
+ - Tombs decked by the arts can scarcely represent death as a formidable enemy; we do not, indeed, like the ancients, carve sports and dances in the sarcophagus, but thought is diverted from the bier by works that tell of immortality, even from the altar of death.
+ - The only equitable manner in my opinion, of judging the character of a man is to examine if there are personal calculations in his conduct; if there are not, we may blame his manner of judging, but we are not the less bound to esteem him.
+ - I never was able to believe in the existence of next year except as in a metaphysical notion.
+ - Exile: A tomb in which you can get mail.
+ - New doctrines ever displease the old. They like to fancy that the world has been losing wisdom, instead of gaining it, since they were young.
+ - Prayer is the life of the soul.
+ - Men have made of fortune an all-powerful goddess, in order that she may be made responsible for all their blunder’s.
+ - Gaiety pleases more when we are assured that it does not cover carelessness.
+ - Thought can never be compared with action, but when it awakens in us the image of truth.
+ - If one hour’s work is enough to govern France, four minutes is all that is needed for Italy. There is no nation more easily frightened; even its poetic imagination predisposes it to fear, and they look upon power as on an image that fills them with terror.
+ - When once enthusiasm has been turned into ridicule, everything is undone except money and power.
+ - One must, so long as there is any life left, back up the character of one’s life.
+ - I learn life from the poets.
+ - It is not enough to forgive; one must forget.
+ - In matters of the heart, nothing is true except the improbable.
+ - The education of life perfects the thinking mind, but depraves the frivolous.
+ - I must keep on rowing, not until I reach port but until I reach my grave.
+ - When at eve, at the bounding of the landscape, the heavens appear to recline so slowly on the earth, imagination pictures beyond the horizon an asylum of hope, – a native land of love; and nature seems silently to repeat that man is immortal.
+ - The world is the work of a single thought, expressed in a thousand different ways.
+ - What is love, if it can calculate and provide against its own decay?
+ - Let us then blend everything: love, religion, genius, with sunshine, perfume, music, and poetry.
+ - The study of history, it seems to me, leads to the conviction that all important events tend toward the same end – the civilization of mankind.
+ - The soul is a fire that darts its rays through all the senses; it is in this fire that existence consists; all the observations and all the efforts of philosophers ought to turn towards this Me, the centre and moving power of our sentiments and our ideas.
+ - Of all human sentiments, enthusiasm creates the most happiness; it is the only sentiment in fact which gives real happiness, the only sentiment which can help us to bear our human destiny in any situation in which we may find ourselves.
+ - And all the bustle of departure – sometimes sad, sometimes intoxicating – just as fear or hope may be inspired by the new chances of coming destiny.
+ - Providence protects us in all the details of our lot.
+ - Man’s most valuable faculty is his imagination.
+ - Life, for me, is living among my friends.
+ - Courage of soul is necessary for the triumphs of genius.
+ - A man must know how to fly in the face of opinion; a woman to submit to it.
+ - The pursuit of politics is religion, morality, and poetry all in one.
+ - If it were not for respect for human opinions, I would not open my window to see the Bay of Naples for the first time, whilst I would go five hundred leagues to talk with a man of genius whom I had not seen.
+ - Glory can be for a woman but the brilliant morning of happiness.
+ - Good taste cannot supply the place of genius in literature, for the best proof of taste, when there is no genius, would be, not to write at all.
+ - The life of famous men was more glorious in antiquity; the life of obscure men is happier with the moderns.
+ - Love is admiring with the heart. And admiring is loving with the mind.
+ - Anyone who can see as far as tomorrow in politics arouses the wrath of people who can see no farther than today.
+ - When men do wrong, it is out of hardness; when women do wrong, it is out of weakness.
+ - The greater part of what women write about women is mere sycophancy to man.
+ - The human mind always makes progress, but it is a progress in spirals.
+ - Whatever is natural admits of variety.
+ - Life resembles Gobelin tapestry; you do not see the canvass on the right side; but when you turn it, the threads are visible.
+ - To be totally understanding makes one very indulgent.
+ - However old a conjugal union, it still garners some sweetness. Winter has some cloudless days, and under the snow a few flowers still bloom.
+ - The success of any man with any woman is apt to displease even his best friends.
+ - The evil arising from mental improvement can be corrected only by a still further progress in that very improvement. Either morality is a fable, or the more enlightened we are, the more attached to it we become.
+ - A religious life is a struggle and not a hymn.
+ - The mind’s pleasures are made to calm the tempests of the heart.
+ - Men err from selfishness; women because they are weak.
+ - When women oppose themselves to the projects and ambition of men, they excite their lively resentment; if in their youth they meddle with political intrigues, their modesty must suffer.
+ - To live beneath sorrow, one must yield to it.
+ - Unhappy love freezes all our affections: our own souls grow inexplicable to us. More than we gained while we were happy we lose by the reverse.
+ - The mind may be exhausted, but the language of the heart is inexhaustible.
+ - Only the refined and delicate pleasures that spring from research and education can build up barriers between different ranks.
+ - Atheism exists only in coldness, selfishness, and baseness.
+ - The most beautiful landscapes in the world, if they evoke no memory, if they bear no trace of a remarkable event, are uninteresting compared to historic landscapes.
+ - I desire no other proof of Christianity than the Lord’s Prayer.
+ - If we would succeed in works of the imagination, we must offer a mild morality in the midst of rigid manners; but where the manners are corrupt, we must consistently hold up to view an austere morality.
+
+146 quotes

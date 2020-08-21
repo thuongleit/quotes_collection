@@ -1,0 +1,24 @@
+ - Life is not a dress rehearsal.
+ - The unfolding of a story is both as exciting and as difficult for each and every novel I’ve written, regardless of time and place.
+ - Writing is a strange synthesis between the two parts of your mind: the analytical side and the side that knows nothing at all, and you have to allow the dreaming side free rein.
+ - In the planning stage of a book, don’t plan the ending. It has to be earned by all that will go before it.
+ - Learn from cinema. Be economic with descriptions. Sort out the telling detail from the lifeless one. Write dialogue that people would actually speak.
+ - Forget the boring old dictum, ‘Write about what you know.’ Instead, seek out an unknown yet knowable area of experience that’s going to enhance your understanding of the world and write about that.
+ - There is something about the unexpected that moves us. As if the whole of existence is paid for in some way, except for that one moment, which is free.
+ - When an idea comes, spend silent time with it. Remember Keats’s idea of Negative Capability and Kipling’s advice to “drift, wait, and obey.” Along with your gathering of hard data, allow yourself also to dream your idea into being.
+ - Life should be embraced like a lover.
+ - And she did not want him to think her quite mad, only a little unique, only containing within her just that measure of the unexpected sufficient to make her irreplaceable.
+ - The imagination conjures gifts; what the ungrateful, unsentimental part of the mind has to do is to unwrap them, find fault with them, see them for what they are and then alter them.
+ - Never be satisfied with a first draft. In fact, never be satisfied with your own stuff at all, until you’re certain it’s as good as your finite powers can enable it to be.
+ - Perhaps, all writers walk such a line. In general – as we all do in our dreams – I believe I put something of myself into all the characters in my novels, male as well as female.
+ - When you’ve finished a piece of work you’ve had a kind of love affair with it.
+ - Any setting can potentially acquire this vividness. It slowly arrives during the period of research, until it is as immediate to me as my own real surroundings.
+ - Respect the way characters may change once they’ve got 50 pages of life in them. Revisit your plan at this stage and see whether certain things have to be altered to take account of these changes.
+ - At the moment, I’m toying with a new idea for a book, but fully engaged with writing screenplays, so the book idea – which needs empty space in my head – is barely formed yet.
+ - A novel usually takes me two years. A year to research and plan and dream. Then a year to write.
+ - Listen to the criticisms and preferences of your trusted ‘first readers.’
+ - I can inhabit any character in a way that is difficult to do successfully in a contemporary novel.
+ - So history is fertile territory for me and I think I could feel happy with any period of history, provided I had the right sources and the necessary time for the initial research.
+ - The process of rewriting is enjoyable, because you’re not in that existential panic when you don’t have a novel at all.
+
+22 quotes

@@ -1,0 +1,24 @@
+ - Wealth is so concentrated that a large segment of society is virtually unaware of its existence.
+ - We want capitalism and market forces to be the slave of democracy rather than the opposite.
+ - I am not political. It is not my job. But I would be happy if politicians could read my work and draw some conclusions from it.
+ - When inequality gets to an extreme, it is completely useless for growth.
+ - No hypocrisy is too great when economic and financial elites are obliged to defend their interest.
+ - Democracy will never be supplanted by a republic of experts – and that is a very good thing.
+ - Indeed, the distribution of wealth is too important an issue to be left to economists, sociologists, historians, and philosophers.
+ - Over a long period of time, the main force in favor of greater equality has been the diffusion of knowledge and skills.
+ - At the heart of every major political upheaval lies a fiscal revolution.
+ - We know too little about global wealth dynamics, so we need international transmission of bank information.
+ - Das Kapital, I think, is very difficult to read, and for me, it was not very influential.
+ - For far too long economists have sought to define themselves in terms of their supposedly scientific methods. In fact, those methods rely on an immoderate use of mathematical models, which are frequently no more than an excuse for occupying the terrain and masking the vacuity of the content.
+ - Our modern democratic ideal is based on the hope that inequalities will be based on merit more than inheritance or luck.
+ - Refusing to deal with numbers rarely serves the interests of the least well-off.
+ - I certainly agree that capital is not a one-dimensional object, and that the return on capital takes very different forms for different assets or different people.
+ - I don’t think there is any serious evidence that we need to be paying people more than 100 times the average wage in order to get high-performing managers.
+ - It’s not Utopian to believe that we can create a global registry of financial assets so we know who owns what in different countries.
+ - It’s important to realize that innovation and growth in itself are not sufficient to moderate inequality of wealth.
+ - Without precisely defined sources, methods, and concepts, it is possible to see absolutely everything and its opposite.
+ - The democratic ideal has always been related to a moderate level of inequality. I think one big reason why electoral democracy flourished in 19th century America better than 19th century Europe is because you had more equal distribution of wealth in America.
+ - I loved American universities. In many ways, they are better organized – certainly than French universities.
+ - The principal mechanism for convergence at the international as well as the domestic level is the diffusion of knowledge.
+
+22 quotes

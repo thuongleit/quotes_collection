@@ -1,0 +1,21 @@
+ - Never judge anyone by another’s opinions. We all have different sides that we show to different people.
+ - When you’re climbing Mount Everest, nothing is easy. You just take one step at a time, never look back and always keep your eyes glued to the top.
+ - Yes, there’s one thing I do want. I want to be aware of the minutes and the seconds, and to make each one count.
+ - As a writer no one’s gonna tell me how to write. I’m gonna write the way I wanna write!
+ - People parted, years passed, they met again- and the meeting proved no reunion, offered no warm memories, only the acid knowledge that time had passed and things weren’t as bright or attractive as they had been.
+ - Love shouldn’t make a beggar of one. I wouldn’t want love if I had to beg for it, to barter or qualify it. And I should despise it if anyone ever begged for my love. Love is something that must be given – it can’t be bought with words or pity, or even reason.
+ - Never let anyone shame you into doing anything you don’t choose to do. Keep your identity.
+ - I’ve got a library copy of Gone with the Wind, a quart of milk and all these cookies. Wow! What an orgy!
+ - Money bought freedom; without it one could never be free.
+ - Philip Roth is a good writer, but I wouldn’t want to shake hands with him.
+ - Do not measure the number of tragedies you sustain, but to quantify the success you derive from them.
+ - Acting is glamour but writing is hard work, so I’m going to be an actress.
+ - Did money give people a blind spot? Rob them of their hearing?
+ - The second draft is on yellow paper, that’s when I work on characterizations. The third is pink, I work on story motivations. Then blue, that’s where I cut, cut, cut.
+ - Everyone has an identity. One of their own, and one for show.
+ - A new book is just like any new product, like a detergent. You have to acquaint people with it. They have to know it’s there. You only get to be number one when the public knows about you.
+ - A man must feel he runs things, but as long as you control yourself, you control him.
+ - I wanted to write it long before I wrote Every Night, Josephine! I’d been thinking about it a long time.
+ - The 60s will be remembered for The Beatles, Andy Warhol and Me!
+
+19 quotes

@@ -1,0 +1,50 @@
+ - I am a big believer in visualization. I run through my races mentally so that I feel even more prepared.
+ - I always want to give more than I gave yesterday.
+ - Being a role model is a privilege.
+ - I have learned that track doesn’t define me. My faith defines me. I’m running because I have been blessed with a gift.
+ - My speed is a gift from God, and I run for His glory. Whatever I do, it all comes from him.
+ - What’s really heavy on my heart is fighting physical inactivity.
+ - The most important lesson that I have learned is to trust God in every circumstance. Lots of times we go through different trials and following God’s plan seems like it doesn’t make any sense at all. God is always in control and he will never leave us.
+ - I’m just competitive. It doesn’t matter what it is. I want to win.
+ - Philippians 1:21 is very special to me because it helps to keep my life centered.
+ - Try to think of working out and healthy eating as a lifestyle. Rather than go on a diet or try a crazy exercise routine, try making them something you do every day.
+ - I’m always nervous. If I wasn’t nervous, it would be weird. I get the same feeling at all the big races. It’s part of the routine, and I accept it. It means I’m there and I’m ready.
+ - I don’t have a sprinter’s body.
+ - I myself am frustrated in just where sports are at. It’s a hard thing when you’re out there working every day, and you know that someone else is cheating and they may not necessarily get caught.
+ - I am a sprinter, and I love to go fast. It’s very difficult for me to be patient and follow a race strategy or conserve energy.
+ - For me, my faith is the reason I run. I definitely feel I have this amazing gift that God has blessed me with, and it’s all about using it to the best of my ability.
+ - My faith is the reason I run – it calms my heart and makes everything feel like a lift. My speed is definitely a gift from Him, and I run for His glory. Whatever I do, He allows me to do it.
+ - It was not until the end of my freshman year in high school that I thought I could really have a future in track and field. I definitely did not think I could make it to the Olympics back then, though; I was just focused on making it to the state finals!
+ - My faith inspires me so much. It is the very reason that I run. I feel that my running is completely a gift from God and it is my responsibility to use it to glorify him.
+ - I love the relays. Track is such an individual sport, so it’s fun to do something together.
+ - You know, I love wearing heels. I wish I could wear them all the time, but, you know, my sport doesn’t really permit it.
+ - I can be a voice. I can use my platform to help the younger generation. I think it’s really important for them to understand how to do things the right way, and not just in sports, in life in general.
+ - I grew up in my mom’s third grade classroom and always helping her, and I also got a passion for kids that way.
+ - I think that kids aren’t even exploring the option of sports anymore, and they don’t even know what they could do.
+ - My dad’s a pastor and a seminary professor; my mom, she has such great faith.
+ - Parents have to understand, that even if their child isn’t showing athletic excellence in a certain sport, they still need to be involved. They don’t need to be involved in a military type of setting, they just need to get out and play and enjoy themselves and find it themselves.
+ - I was a disruptive child.
+ - Before a race, I block out what’s going on in the stadium. It’s different for everyone. But for me, I’ve always been able to block it out. For a sprint race, it’s important not to get distracted.
+ - The pressure is hard. You get – the world is only watching every four years, and I think lots of people feel like they have to win in that time frame.
+ - I try to think about my goals. I think about my competitors-I know they’re working hard, and if they are, I have to work hard too. I have to be one step ahead of them.
+ - I’m really laid back but I still like to dress up sometimes.
+ - I majored in elementary education, and I have a passion for kids.
+ - I grew up in a Christian home with amazing parents.
+ - Most people don’t think about plyometrics when they think about powerful strength. But I do lots of them to build mine.
+ - My mom is great and I make sure that we pray together before every race. She helps me put everything in perspective and remind me of the real reason I run.
+ - I’ve heard so many stories of young girls watching the Olympics and being inspired by it, and they want to do it now, and that’s really cool.
+ - I spend around two and half hours on the track every day running and another 2 hours in the weight room lifting weights with my strength coach.
+ - I want to run for eternal glory and track is great, but it’s not what life is all about.
+ - For me, there’s a lot of expectations and you want to be able to live up to them.
+ - I love a great pair of jeans and a nice blouse.
+ - I’ve got to make sure I’m keeping weight on.
+ - Right now I’d say my favorite fashion designer is Zac Posen.
+ - I never let track define me. That’s something that’s really important to me.
+ - If I wasn’t active and involved in different sports and just moving around, I wouldn’t have even known that I had the potential to become an Olympian.
+ - I think it’s very important, even if you’re not in organized sports, but just to be active, to be healthy.
+ - I focused solely on the sprints, dedicated my time there, got in the weight room, just really did everything I could to make sure I would be in the best position to run for gold.
+ - I always look back to my first Olympic medal in 2004 in Athens. I was very new to the sport, and it was my first big win at the Olympics.
+ - I know that I wasn’t bred to be an Olympian. I didn’t start running until high school, and I just stumbled upon to.
+ - I think every genius person has a bit of insanity.
+
+48 quotes

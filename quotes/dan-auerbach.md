@@ -1,0 +1,22 @@
+ - When I learned to play music, I was listening to blues music. And all the blues music I liked was super simple and stripped down. And then all the hip hop I liked was super simple and stripped down and we always heard that connection.
+ - Guitar solos bore the hell out of me. Only a few guitarists interest me, and it’s not about the solos they play, it’s about the grooves they create.
+ - You know, there’s always someone in mind when I’m writing. You know, it’s all comes from somewhere inside.
+ - I tend to name albums after one of the songs.
+ - The Black Keys is just a band that wants to get on stage and rock it.
+ - I’m definitely a guitar player, but it’s the last thing I listen to in a song, after the singer and the drums.
+ - I’m really not worried about what fans think.
+ - Being 16 years old and getting an electric guitar is never going to get old. There’s always going to be kids making music. There’s always going to be kids in bands.
+ - I’m certainly not your typical front-man material. Some people love being on stage and really open up, and I’m sort of the opposite of that. I don’t crave the spotlight. I’m still not comfortable even talking on stage.
+ - I never listen to Led Zeppelin. But, I mean, I don’t think Robert Plant or Jimmy Page listen to Led Zeppelin, either. We all probably obsessed over the same old blues records growing up.
+ - I’m not too picky about guitars. I love to collect them, mostly oddballs, but I’m not married to any brand or model. Whatever guitar has the best character for the song is the one I want to use, because if you’ve got a style, you’re going to sound like yourself no matter what guitar you play.
+ - I started playing bluegrass with my family, so there were the G, C and D chords. I was playing a Martin acoustic because that’s what Carter Stanley of the Stanley Brothers played. Then I got into the really raw blues of Hound Dog Taylor and started on electric guitar.
+ - That culture, of looking at catchy music as a negative thing, is weird. It has nothing to do with me, or the music I was into growing up. The Stones and the Beatles only tried to write hits. Every Motown song, every Credence Clearwater song – they were trying to write hits.
+ - A Grammy is really nice, but having lots of fans is really nice, too. I think just getting a record out is a success on its own.
+ - Coming from a smaller place always made things feel more personal, which is really what it’s all about.
+ - Bands from Akron have a sense of humor and don’t tend to take themselves too seriously.
+ - You get to bring your own sound system when you play an arena, all the lights and visual stuff, which I think is really cool. There’s something about those old arenas, where it feels larger than life.
+ - I am nice to everybody. But people really take advantage of it.
+ - The modern video games kind of – they’re too three dimensional.
+ - My mum’s family would all get together, with guitars, harmonica, mandolins and upright bass and play old blues and folk songs. That was normal to me.
+
+20 quotes

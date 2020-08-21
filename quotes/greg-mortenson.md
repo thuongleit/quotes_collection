@@ -1,0 +1,33 @@
+ - The solution to terrorism is education, not bombs.
+ - The Pathan people of Waziristan are proud people who I greatly admire.
+ - Slow down and make building relationships as important as building projects.
+ - Haji Ali taught me to share three cups of tea, to slow down and make building relationships as important as building projects. He taught me that I had more to learn from the people I work with than I could ever hope to teach them.
+ - I say if you fight terrorism, it’s based in fear, but if you promote peace, it’s based on hope.
+ - When you take the time to actually listen, with humility, to what people have to say, it’s amazing what you can learn. Especially if the people who are doing the talking also happen to be children.
+ - But what I really believe is education is a key to pretty much everything – prosperity, economics, peace, stability.
+ - If you teach a boy, you educate an individual; but if you teach a girl, you educate a community.
+ - When ordinary human beings perform extraordinary acts of generosity, endurance or compassion, we are all made richer by their example. Like the rivers that flow out of the Karakoram and the Hindu Kush, the inspiration they generate washes down to the rest of us. It waters everyone’s fields.
+ - Just as the Torah and Bible teach concern for those in distress, the Koran instructs all Muslims to make caring for widows, orphans, and refugees a priority.
+ - If you really want to change a culture to empower women improve basic hygiene and health care and fight high rates of infant mortality the answer is to educate girls.
+ - Yes, I first visited Korphe village, Braldu valley, Baltistan, Pakistan, after failing to summit K2 in 1993, and met Haji Ali, a long time dear mentor and friend. My second visit to Korphe was in 19.
+ - I used to climb mountains a lot; I decided to go to Pakistan to climb K2, the world’s second-highest mountain. I didn’t get quite to the top.
+ - The older I get, the more I appreciate my childhood. It was paradise.
+ - Really, what education does is it gives opportunity, but it also gives hope.
+ - In Muslim societies, a person who has been manipulated unto believing in extremist violence or terrorism often seeks the permission of his mother before he may join a militant jihad and educated women as a rule, tend to withhold their blessings from such things.
+ - Yes, I was detained for eight days in Waziristan in 1996. It was against my will, and my passport and money were taken from me. I was not mistreated or harmed, but I was also not allowed to leave.
+ - When your kids accomplish something it means much more than anything you’ve done.
+ - Liberals, conservatives, Muslims, Jews, Christians, and I find – I think education is something that can bring us together.
+ - My father ended up starting the Kilimanjaro Christian Medical Centre, which is on the slopes of Kilimanjaro. My mother started a school.
+ - You can hand out condoms, drop bombs, build roads, or put in electricity, but until the girls are educated a society won’t change.
+ - In ‘Three Cups of Tea’ I was fairly critical of the military. And I mentioned that they’re laptop warriors and there’s no boots on the ground. But I can say now that they’ve gone through a tremendous learning curve.
+ - In times of war, you often hear leaders – Christian, Jewish, and Muslim – saying, ‘God is on our side.’ But that isn’t true. In war, God is on the side of refugees, widows, and orphans.
+ - I decided in ’96 to dedicate my life to mostly promoting literacy and education for girls in rural Pakistan and Afghanistan.
+ - Once I started the first school, I realized this is what my life is meant to be, is to promote education and help kids go to school, and that’s very clear.
+ - We all sat there laughing and sipping tea peacefully, an infidel and representatives from three warring sects of Islam. And I thought if we can get along this well, we can accomplish anything. The British policy was ‘divide and conquer.’ But I say ’unite and conquer.
+ - The tune was too ingrained for Mortenson to consider the novelty of this moment- an American, lost in Pakistan, singing a German hymn in Swahili.
+ - He was a man who understood the virtue of small things.
+ - I’ve learned that terror doesn’t happen because some group of people somewhere like Pakistan or Afghanistan simply decide to hate us. It happens because children aren’t being offered a bright enough future that they have a reason to choose life over death.
+ - And they did it with something that is basicly worthless in our society – pennies. But overseas, pennies can move mountains.
+ - One thing that I noticed is having met some former Taliban is even they, as children, grew up being indoctrinated. They grew up in violence. They grew up in war. They were taught to hate. They were, they grew up in very ignorant cultures where they didn’t learn about the outside world.
+
+31 quotes

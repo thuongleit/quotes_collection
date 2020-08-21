@@ -1,0 +1,31 @@
+ - Only in your imagination can you revise.
+ - When it was over my daughter said, ‘Oh, I felt so sorry for him – he didn’t want to hurt you, he liked you.’ That was Victoria. When you visualize him up there on top of the Empire State Building, you do feel sorry for him.
+ - Recently, a six-year-old boy said to me, ‘I’ve been waiting to meet you for half my life.’
+ - Sometimes I worked with just a background of a rock or a tree or black velvet, and just had to imagine the whole thing.
+ - I think to have done ‘Titanic’ would have been a tortuous experience altogether. I feel good about where my life is, now. I feel free and joyous and happy and more liberated than I have ever been.
+ - My next book is Scene by Scene: as Seen by Fay Wray. It’ll be about different incidents. Just my feelings about quite a few people. Attitudes. My thoughts about the universe and simple things like that.
+ - I would say the secret is to be enthusiastic about everything that comes into your life. To care, to care about people. To be excited about everything that comes close to you. I love to read. And I love to write, mostly.
+ - Lillian Gish thought that there should be a cabinet position for the arts and I think she was right. I think she was right.
+ - My children didn’t when they were little because I thought that they had to be of a certain age. I hoped they liked me well enough not to want to see me in that sort of a spot.
+ - I don’t know why Sinclair Lewis fell in love with me. He didn’t get even the slightest response from me. But his letters were lovely. And the poems he wrote me were lovely. I used some of them in my book.
+ - It was so satisfying for me – a great reward, just to see it done well. And it was beautifully directed by my daughter Susan Riskin. Imagine, a play about my mother directed by my daughter?!
+ - He was just trying to tease me – I knew that later – but he said he’d have to leave because it wasn’t fair to have anyone in the room who was going to make fun of what he had to say. He had a good sense of humor, really.
+ - There were shots of Kong pulling at my clothes, but only in horizontal and never from above. Never from above.
+ - Juan Tripp was a friend. Good name for an airline man, huh? Juan Tripp after another?
+ - When the picture was finished, they took me into the sound room and then I screamed more for about five minutes just steady screaming, and then they’d cut that in and add it.
+ - As far as advice, that will be in my next book, my next collection. I certainly never like to instruct anyone, but just say as I feel. That’s the same as advice, isn’t it?
+ - I went to Washington to ask for a little residual payment for the people who had written films in the early, early days, people who never got any residuals on tapes or anything at all.
+ - I think the studio gave me that series on purpose, because they knew perfectly well that Robert Riskin was ill and that I needed to go to work. They gave me that series to do.
+ - They were very considerate, I must say. Every time I felt I was about to slip out of these fingers and would yell for help, they’d let me down and re-organize things.
+ - The producers who wanted me to do it liked me and trusted me, and more than one scene was only one take, because I’d plan ahead what I thought would be appropriate for that scene-so one take was enough.
+ - Mr. Cooper said to me that he had an idea for a film in mind. The only thing he’d tell me was that I was going to have the tallest, darkest leading man in Hollywood. Naturally, I thought of Clark Gable.
+ - So I was asked to do horror film after horror film, a series of about five, after that, and some of those were a little too gruesome. I wasn’t too comfortable all the time in those. I didn’t really care for them.
+ - Paul Lucas had a particularly amusing accent, so I chuckled. That was terrible; I shouldn’t have done that, but he took it too big. He got up and said he couldn’t work with people who laughed at him!
+ - Cary Grant was wonderful to work with on stage. He would move downstage, so that as he looked at me the audience had to look at me, too. He knew a lot about the theater and how to move around. He was very secure.
+ - That was one time when my technique absolutely deserted me, I must admit. There was a wax face that he had created himself to cover his own ugliness. I was in his clutches and I had to hit him in the face.
+ - It was good for us, I suppose. Those kinds of times produce qualities in us that make us better for having had them. My parents were not getting along. My mother was quite intolerant of friendships that were being developed.
+ - Actually, the camera was never overhead at any time. It was always a side view of me. Subsequently, after the picture was released, I saw some scenes from above and my clothes being pulled-and I think that was added later.
+ - There is a lot of strength and intelligence in Hollywood.
+ - Cary Grant and I were doing a play in New York. He had a crush on me. Whenever we went to a party, he would always sit on the floor beside me. I thought that was kind of beautiful, like that’s where he wanted to be.
+
+29 quotes

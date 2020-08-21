@@ -1,0 +1,60 @@
+ - Karaoke is the great equalizer.
+ - I’ve always been a gamer, and I had a period where I was gaming at a really hardcore level.
+ - Nothing really worth having is easy to get. The hard-fought battles, the goals won with sacrifice, are the ones that matter.
+ - I’m black, and black don’t crack. It does droop.
+ - I like to be nice. I want to be a hero. I want to save people. Or just kill zombies, because they deserve it, because they’re already dead and they can’t feel it. They don’t have feelings.
+ - I love Toronto. I love it. I love Toronto. I love Canada. I can’t wait to get back. Can’t wait to have some Timbits.
+ - I have one girlfriend who is dating right now – she’s divorced – and she’s on Tinder, so we play Tinder. I know that’s not a real game, but it’s my favorite thing to do.
+ - I love being married. I love my husband. I think married people always have that thing where they think that the grass is greener on the single side, but all my single friends are like, “Trust me, you don’t want to have to actually interact with these people.”
+ - I love to be busy and be challenged. I’m my happiest when I’m under pressure and almost overwhelmed by how much I have to get done.
+ - I’m my own boss and my boss is a total ass.
+ - I want to point out, that this is not my fault that everyone’s afraid of me, because I did not kill a couple people the other day.
+ - No one wants to hear about how awesome you were; people want to hear about the time you blew it. So I think the longer you do stand-up, the more comfortable you are. You stop wanting to hide your foibles and instead want to show who you are.
+ - I don’t know if I was always an open person, but I think stand-up comics specifically have this way of running towards embarrassing things – whereas regular people tend to run away – because the embarrassing story is always going to be the really funny story.
+ - I don’t believe in superheroes but I love Batman movies. There’s a part of every person that is entertained by the idealistic, the fantastic.
+ - I was raised by a single dad, so I’ve always just kind of liked “guys” stuff. I think my dad just took me to the things he was interested in.
+ - I grew up on the back of a motorcycle – my dad didn’t have a car until I was a teenager. And then my closest friend from grade school was a guy.
+ - I don’t want to be pandered to, so I try not to pander.
+ - Wounds turn into scars and scars make you tough.
+ - I’m sure I had low-level scurvy all of my childhood.
+ - I’m the kindest, most supportive friend ever, probably to my own detriment, but I hope that I am toughening up a little bit.
+ - I’m just myself, so I don’t know that I think of myself as a nerd icon.
+ - Marriage isn’t a carnival ride.
+ - I love it when I come across a word I don’t know. And I would never treat my audience like they weren’t smart enough to come along with me.
+ - When I get old and slow down I want to look behind me and see all the fire and the wreckage and no stone left unturned.
+ - So much of a stand-up’s life is doing live radio and having to be funny and quick on the spot with these strangers, and sort of surgical in terms of how funny I can be in three minutes.
+ - They always say some women like to fix people. I don’t like to fix people, but you like a challenge.
+ - Sometimes the mistake I see people make is thinking that they’re always going to be up, and I think that’s impossible for anyone.
+ - I take the most wrenchingly painful moments of my life, brush them off and present them for the amusement of others. Luckily for me, my childhood was torture.
+ - I like the company of guys. I have a lot of good girlfriends that I really love, but you know, most of my close friends are men.
+ - I visualize myself winning the Olympic Pentathlon, inventing a phone that can be controlled by brain waves, or doing the laundry. I do not actually DO these things, but I see myself doing them, and that is almost MORE satisfying, because I am also lying down.
+ - I think diversity in television is important. It’s not about trying to fill a quota or satisfy some idea of diversity, but I think what diversity brings to any daypart is more eyeballs, just more opportunity.
+ - I’m such a geek, and have always been a real nerd.
+ - On general principle, I boycott shows that don’t employ actors.
+ - Pop culture is great, but it can be bad, at times.
+ - One thing we do really well on Archer and one thing I’ve always tried to do in my comedy and my writing and my podcast is to never speak down to my audience.
+ - Marriage is a mystery and part of it is just being kind to each other, not being selfish.
+ - Maybe the nails are a little stubby and gnawed on, but I definitely do not have man hands.
+ - I was born in California, raised a vegetarian, and love science fiction, so don’t tell me how I need to be in order to fit your standards. When I was younger, those kinds of comments bothered me, but eventually got to a point where I realized I wasn’t going to change who I was.
+ - I always wanted to be as busy as possible so that if one job went away I’d still have plenty of other things to do.
+ - My parents were vegetarians. I’d show up at school, this giant black kid, with none of the cool clothes and a tofu sandwich and celery sticks.
+ - I think I was only attracted to drunken douches before I got married.
+ - I spent most of my seventh grade summer dehydrated, green-tongued, and smelling like a Malaysian whorehouse.
+ - I am absolutely a Giants fan and I’m a Dynasty baby so I was a 49ers fan for a long time.
+ - I liked comedy, but didn’t know it was something you could do for a living. I actually wanted to be an attorney.
+ - Comedy is ugly. It’s honest, it’s raw.
+ - But I love stand-up, and it’s where I came from creatively, so it’s something I never want to walk away from.
+ - Am I going to complain about being typecast as smart? I don’t think so.
+ - I really do know football.
+ - I thought I was gonna be an attorney, so I went to Dartmouth and I was a government major and I minored in environmental policy, and I didn’t do anything academically around the arts.
+ - TV always wants more people to be watching.
+ - Omnipresence can be a good or bad thing, I suppose. I don’t want to spend a lot of time thinking about it. I’m super-grateful.
+ - I’m just going to be the best version of me that I could possibly be and be as funny as I possibly can. I’ve just got to be myself and hopefully people will find me. And my audience did find me.
+ - I like grown up comedy.
+ - You know, it’s about getting out there and having a good time. Not about worrying – all these young books for women are like I’m 29 with a closet full of Prada shoes and I can’t get a date. Come on.
+ - The best advice anybody could have given me was to keep getting up over and over again.
+ - Pop culture hales you and wants you to fail.
+ - I talk to grown-ups who are out to have a good time and they want to be spoken to in a different way. I don’t want to be pandered to, so I try not to pander.
+ - I can tell you this: Stand-up is not glamorous.
+
+58 quotes

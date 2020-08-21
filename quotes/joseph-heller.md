@@ -1,0 +1,107 @@
+ - Just because you’re paranoid doesn’t mean they aren’t after you.
+ - I’m gonna live forever, or die trying.
+ - There was only one catch and that was catch 22.
+ - It doesn’t make a damned bit of difference who wins the war to someone who’s dead.
+ - The problem with the loneliness I suffer is that the company of others has never been a cure for it.
+ - Every writer I know has trouble writing.
+ - Peace on earth would mean the end of civilization as we know it.
+ - Destiny is a good thing to accept when it’s going your way. When it isn’t, don’t call it destiny; call it injustice, treachery, or simple bad luck.
+ - Remember that everyone deserves some fun during working hours.
+ - He was a self-made man who owed his lack of success to nobody.
+ - He was never without misery, and never without hope.
+ - Insanity is contagious.
+ - You’re an intelligent person of great moral character who has taken a very courageous stand. I’m an intelligent person with no moral character at all, so I’m in an ideal position to appreciate it.
+ - I’m not running away from my responsibilities. I’m running to them. There’s nothing negative about running away to save my life.
+ - The country was in peril; he was jeopardizing his traditional rights of freedom and independence by daring to exercise them.
+ - He knew everything about literature except how to enjoy it.
+ - Why are they going to disappear him?? I don’t know.? It doesn’t make sense. It isn’t even good grammar.
+ - Let someone else get killed!
+ - Well, he died. You don’t get any older than that.
+ - Gold was not sure of many things, but he was definite about one: for every successful person he knew, he could name at least two others of greater ability, better, and higher intelligence who, by comparison, had failed.
+ - There was only one catch and that was Catch-22. Orr would be crazy to fly more missions and sane if he didn’t, but if he was sane he had to fly them. If he flew them he was crazy and didn’t have to; but if he didn’t want to he was sane and had to.
+ - When I look up, I see people cashing in. I don’t see heaven or saints or angels. I see people cashing in on every decent impulse and every human tragedy.
+ - She was the epitome of stately sorrow each time she smiled.
+ - Surely there can’t be so many countries worth dying for.? Anything worth living for,? said Nately, ‘is worth dying for.’ And anything worth dying for,? answered the sacrilegious old man, ’is certainly worth living for.
+ - Success and failure are both difficult to endure. Along with success come drugs, divorce, fornication, bullying, travel, meditation, medication, depression, neurosis and suicide. With failure comes failure.
+ - Let’s take a drive into the middle of nowhere with a packet of Marlboro lights and talk about our lives.
+ - Be glad you’re even alive.? Be furious you’re going to die.
+ - From men motivated by moral certitude, history teaches, no lasting good ever comes.
+ - If character is destiny, the good are damned.
+ - When I grow up I want to be a little boy.
+ - The enemy is anybody who’s going to get you killed, no matter which side he’s on.
+ - Nately had a bad start. He came from a good family.
+ - There are yawning gulfs into which large chunks of me have fallen. I do not always know where I am at present.
+ - The question is: what is a sane man to do in an insane society?
+ - I don’t understand the process of imagination-though I know that I am very much at its mercy.
+ - The Texan turned out to be good-natured, generous and likable. In three days no one could stand him.
+ - There was no telling what people might find out once they felt free to ask whatever questions they wanted to.
+ - For war there is always enough. It’s peace that’s expensive.
+ - He was one of those people with lots of intelligence but no brains.
+ - The Lord gave us farmers two strong hands so we could grab as much as we could with both of them.
+ - All through the night, men looked at the sky and were saddened by the stars.
+ - I’ll tell you what justice is. Justice is a knee in the gut from the floor on the chin at night sneaky with a knife brought up down on the magazine of a battleship sandbagged underhanded in the dark without a word of warning.
+ - But the God I don’t believe in is a good God, a just God, a merciful God. He’s not the mean and stupid God you make him out to be.
+ - He was sick with lust and mesmerized with regret.
+ - Rise above principal and do what’s right.
+ - But how can one be warm alone?
+ - A man’s head is his castle.
+ - I could not write about a subject sacred to me because I would be too flippant. Fortunately, there are no subjects sacred to me.
+ - But that was war. Just about all he could find in its favor was that it paid well and liberated children from the pernicious influence of their parents.
+ - It made him proud that 29 months in the service had not blunted his genius for ineptitude.
+ - They couldn’t keep Death out, but while she was in she had to act like a lady.
+ - Just for once I’d like to see all these things sort of straightened out, with each person getting exactly what he deserves. It might give me some confidence in this universe.
+ - In the long run, failure was the only thing that worked predictably. All else was accidental.
+ - Men went mad and were rewarded with medals.
+ - All of our religions but the Judaic and the Greek think more of us dead than alive.
+ - When you consider the opportunity and power He had to really do a job, and then look at the stupid, ugly little mess He made of it instead, His sheer incompetence is almost staggering.
+ - If God was dead, how could I feel this bad?
+ - I couldn’t see tying myself down with a middle-aged woman with four children, even though the woman was my wife and the children were my own.
+ - If Richard Nixon was second-rate, what in the world is third-rate?
+ - Now you’ve given them hope, and they’re unhappy. So the blame is all yours.
+ - I had examined myself pretty thoroughly and discovered that I was unfit for military service.
+ - We do have a zeal for laughter in most situations, give or take a dentist.
+ - I don’t believe in miracles because it’s been a long time since we’ve had any.
+ - He had decided to live forever or die in the attempt.
+ - Some people are born mediocre, some people achieve mediocrity, and some people have mediocrity thrust upon them.
+ - I am miracle ingredient Z-247. I’m immense. I’m a real, slam-bang, honest-to-goodness, three-fisted humdinger. I’m a bona fide supraman.
+ - Death to all modifiers, he declared one day, and out of every letter that passed through his hands went every adverb and every adjective.
+ - Someone had to do something sometime. Every victim was a culprit, every culprit a victim, and somebody had to stand up sometime to try to break the lousy chain of inherited habit that was imperiling them all.
+ - How did I get here? Somebody pushed me. Somebody must have set me off in this direction and clus-ters of other hands must have touched themselves to the controls at various times, for I would not have picked this way for the world.
+ - Fortunately, just when things were blackest, the war broke out.
+ - I wouldn’t want to live without strong misgivings.
+ - I’ve come to look upon death the same way I look upon root-canal work. Everyone else seems to get through it all right, so it couldn’t be too difficult for me.
+ - You wouldn’t be normal if you were never afraid. Even the bravest men experience fear. One of the biggest jobs we all face in combat is to overcome fear.
+ - Major Major never sees anyone in his office while he’s in his office.
+ - The captain was a good chess player, and the games were always interesting. Yossarian had stopped playing chess with him because the games were so interesting they were foolish.
+ - Nurse Duckett found Yossarian wonderful and was already trying to change him.
+ - Prostitution gives her an opportunity to meet people. It provides fresh air and wholesome exercise, and it keeps her out of trouble.
+ - I want to keep my dreams, even bad ones, because without them, I might have nothing all night long.
+ - Maybe a long life does have to be filled with many unpleasant conditions if it’s to seem long. But in that event, who wants one?
+ - Man was matter, that was Snowden’s secret. Drop him out a window, and he’ll fall. Set fire to him and he’ll burn. Bury him and he’ll rot, like other kinds of garbage. The spirit gone, man is garbage. That was Snowden’s secret. Ripeness was all.
+ - Erogenous zones are either everywhere or nowhere.
+ - Everybody is as unstable as water.
+ - Only Hungry Joe had something better to do each time he finished his missions. He had screaming nightmares and won fist fights with Huple’s cat.
+ - Well then I’d certainly be a damned fool to feel any other way, wouldn’t I?
+ - And anything worth dying for.
+ - The promises of maniacs, like those of women, are not safely relied upon.
+ - Everyone in my book accuses everyone else of being crazy. Frankly, I think the whole society is nuts – and the question is: What does a sane man do in an insane society?
+ - I never even realized I was Jewish until I was practically grown up. Or rather, I used to feel that everybody in the world was Jewish, which amounts to the same thing.
+ - If a man is going to leave one wife to marry another, it’s better if he divorces the first before he marries the second.
+ - The smartest people in Washington are the political reporters. They write about their inferiors.
+ - Under Colonel Korn’s rule, the only people permitted to ask questions were those who never did.
+ - Suppose everyone on our side felt that way?
+ - Major Major had lied, and it was good. He was not really surprised that it was good, for he had observed that people who did lie were, on the whole, more resourceful and ambitious and successful than people who did not lie.
+ - Clevinger had a mind, and Lieutenant Scheisskoph had noticed that people with minds tended to get pretty smart at times.
+ - I’d like to see the government get out of war altogether and leave the whole field to private individuals.
+ - When I read something saying I’ve not done anything as good as ‘Catch-22’ I’m tempted to reply, ‘Who has?’
+ - I can’t start writing until I have a closing line.
+ - I think that maybe in every company today there is always at least one person who is going crazy slowly.
+ - I don’t think the ‘what’ distinguishes a good novel from a bad one but rather the ‘how.’
+ - Something did happen to me somewhere that robbed me of confidence and courage and left me with a fear of discovery and change and a positive dread of everything unknown that may occur.
+ - I write longhand and I type and I rewrite on the typed pages.
+ - Hungry Joe collected lists of fatal diseases and arranged them in alphabetical order so that he could put his finger without delay on any one he wanted to worry about.
+ - Gold was not altogether certain what, anatomically, a gorge was, but he knew that his was rising.
+ - When people disagreed with him he urged them to be objective.
+ - They can do anything we can’t stop them from doing.
+
+105 quotes

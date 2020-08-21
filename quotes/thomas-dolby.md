@@ -1,0 +1,21 @@
+ - She blinded me with science and failed me in geometry.
+ - At the same time, one of the things I noticed was that the moment there was any kind of audio attached to virtual reality, it really improved the experience, even though the audio didn’t feel like a sound engineer or composer had been anywhere near it.
+ - I’ve been out on the periphery.
+ - The man who never dreams, goes slowly mad.
+ - It isn’t cool to abuse the ability to swing.
+ - From a technical point of view, there seemed to me to be absolutely no reason why – with the existing technology – we couldn’t do very high quality audio, because whereas the boom in digital graphics is ongoing, the boom in digital audio has already happened.
+ - The games industry is already bigger than the music industry, and it’s mainly directed at teenage boys.
+ - Smother me in your hot sauce woman until smoke comes from your thighs.
+ - If I were a 13-year-old and I wanted to create subversive art, I wouldn’t go out and buy an electric guitar. I’d get myself a personal computer.
+ - Etch out the future on your own design.
+ - So I’ll set a cycle in motion and pop it into record and I’ll lay down a drum pattern, a bass line, a keyboard and guitar part, and once the groove is going I launch into the song and sing my song over the top.
+ - She’d like to model or maybe act or star in a magazine. Before she signs any big contracts, she better learn how to read.
+ - I started looking at small companies that were running a sort of virtual reality cottage industry: I had imagined that I would just put on a helmet and be somewhere else – that’s your dream of what it’s going to be.
+ - It’s poetry in motion, when she turned her tender eyes to me.
+ - While I’m impressed with the length of those legs, she’s not an intellectual giant.
+ - I was very pleased to find that once I had records out music videos were starting to happen, so I directed some of my own music videos and got to experiment in other areas of expression.
+ - So evidently music was a killer app and is a killer app for computer and the Internet; it just took the tech industry a long time to hear that message.
+ - I was desperate really for people not to accuse me of coldness. It was taboo.
+ - So a more sensible thing it seemed to me was to go to Silicon Valley and be pushing on the technology companies to accelerate the use of audio and music in computers.
+
+19 quotes

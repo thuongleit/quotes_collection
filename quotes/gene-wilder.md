@@ -1,0 +1,37 @@
+ - Time is a precious thing. Never waste it.
+ - If you’re not gonna tell the truth, then why start talking?
+ - Great art direction is NOT the same thing as great film direction!
+ - The suspense is terrible. I hope it’ll last.
+ - For what we are about to see next, we must enter quietly into the realm of genius!
+ - I love the art of acting, and I love film, because you always have anther chance if you want it. You know, if we – if this isn’t going well, you can’t say – well, you could say – let’s stop. Let’s start over again, Gene, because you were too nervous.
+ - Little surprises around every corner, but nothing dangerous.
+ - I like writing books. I’d rather be at home with my wife. I can write, take a break, come out, have a glass of tea, give my wife a kiss, and go back in and write some more. It’s not so bad. I am really lucky.
+ - Invention, my dear friends, is 93% perspiration, 6% electricity, 4% evaporation, and 2% butterscotch ripple.
+ - When you please your mother by doing something, it gives you confidence that you can please other people.
+ - I never used to believe in fate. I used to think you make your own life and then you call it fate. That’s why I call it irony.
+ - Which one of us, anywhere in the world, doesn’t yearn to be believed when the audience is watching?
+ - I like – it’s not that I want to be someone different from me, but I suppose it partly is that. I love creating a character in a fantastical situation, like Dr. Frankenstein, like Leo Bloom, a little caterpillar who blossoms into a butterfly. I love that.
+ - I’m in complete remission. I’m alive and well.
+ - I was so afraid to feel free to enjoy my own life if my mother was sick and suffering everyday of her’s. I didn’t think I had the right.
+ - My favorite author is Anton Chekhov, not so much for the plays but for his short stories, and I think he was really my tutor.
+ - I love acting, especially if it’s a fantasy of some kind, where it’s not just realistic, it’s not naturalism.
+ - The big catalyst was seeing my sister, when I was 11, doing a dramatic recital. When I saw her on the stage and everyone listening to her so patiently, quietly, that’s all I wanted: for someone to look at me and listen to me, but in some beautiful and artistic way.
+ - On stage or in the movies I could do whatever I wanted to. I was free.
+ - To match the shoes with the jacket is fey. To match the shoes with the hat is taste.
+ - I’m funny on camera sometimes. In life, once in a while. Once in a while.
+ - My basic mistake in ‘The World’s Greatest Lover’ was that I made the leading character a neurotic kook and sent him to Hollywood. I should have made him a perfectly normal, sane, ordinary person, and sent him to Hollywood. The audience identifies with the lead character.
+ - I wanted to be an actor. Maybe a comic actor, but an actor. That’s what got me into acting was putting on an act, because in life, I wasn’t funny and I felt on stage or in the movies, I could do whatever I wanted to. I was free.
+ - I write funny. If I can make my wife laugh, I know I’m on the right track. But yes, I don’t like to get Maudlin. And I have a tendency towards it.
+ - I never thought of it as God. I didn’t know what to call it. I don’t believe in devils, but demons I do because everyone at one time or another has some kind of a demon, even if you call it by another name, that drives them.
+ - I wanted to do – there was this film called ‘Magic’ that Anthony Hopkins did. And the director wanted me. The writer wanted me. Joe Levine said no, I don’t want any comedians in this.
+ - Actors fall into this trap if they missed being loved for who they really were and not for what they could do – sing, dance, joke about – then they take that as love.
+ - But the acting process – create a human being – was real, not only to the audience, but real to me.
+ - So my idea of neurotic is spending too much time trying to correct a wrong. When I feel that I’m doing that, then I snap out of it.
+ - Lots of things are hard work, but I think writing, for me, after I started acting at 13 years old. I like writing now much more than I do acting only because, well, partly because the scripts that are offered are junk.
+ - As they say in Corsica... Goodbye.
+ - I don’t mean to sound – I don’t want it to come out funny, but I don’t like show business. I love – I love acting in films. I love it.
+ - Woody makes a movie as if he were lighting 10,000 safety matches to illuminate a city. Each one is a little epiphany: topical, ethnic, or political.
+ - And in ‘Frisco Kid’ and in ‘The Woman in Red’ I had to ride badly. Then you have to really ride well in order to ride badly.
+ - I’d like to do a comedy with Emma Thompson. I admire her as an actress so much. I love her. And I didn’t know it until recently that her whole career started in comedy.
+
+35 quotes

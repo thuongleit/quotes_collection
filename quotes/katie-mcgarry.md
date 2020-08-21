@@ -1,0 +1,34 @@
+ - Sometimes life happens.
+ - Silence. I hate silence. Silence means thinking and thinking means judgement.
+ - Because growing up means making tough choices, and doing the right thing doesn’t necessarily mean doing the thing that feels good.
+ - I met his dark brown eyes. His fingers skimmed the back of my hand. The sensation tickled like a spring breeze yet hit me like a wave rushing from the ocean.
+ - I’ve already lost a piece of my mind. I can’t trust you with what’s left.
+ - I like you. I. Like. You. I’ll admit you’re annoying. Sometimes you agitate me to the brink of insanity, but you can throw it back at me like no one else. When you laugh, I want to laugh. When you smile, I want to smile. Hell, I want to be the one to make you smile.
+ - Quiet anger frightens me. The drunks, the idiots, the ones that rage easily – them I can handle. I know when to step out of their way. It’s the ones that hold the anger in, the men that think about what they do and how they do it, that scare me. They’re the ones that cause damage.
+ - Luke used to give me butterflies. Noah spawned mutant pterodactyls.
+ - I saw the world in black and white instead of the vibrant colours and shades I knew existed.
+ - It’s like I have this large black hole in my brain and it’s sucking the life out of me. The answers are in there so I sit for hours and stare. No matter how hard and long I look, I only see darkness.
+ - You’re falling for me like I’m falling for you. That’s why you’re pushing me so hard.
+ - Emotions is evil. People who make me feel are worse. I take comfort in the stone inside of me. If I don’t feel, I don’t hurt.
+ - My fingers lightly trace her arm and I swear she presses closer to me. I’d love to kiss her right now. Not the type of kiss that makes her body come alive. The type of kiss that shows her how much I care – the type that involves my soul.
+ - You can ignore me, Rachel, and you can try to treat me as a friend, but none of that will erase the fact that I think about kissing you every second I’m awake and dream at night of my hands on your body. And it sure as hell won’t erase that I’m terrified by how much I like you.
+ - I love you enough to never make you choose.
+ - You’re a lot like that bird in the barn. You’re so scared that you’re going to be caged in forever you can’t see the way out. You smack yourself against the wall again and again and again. The door is open, Beth. Stop running in circles and walk out.
+ - A warm, tickling touch crashed me back to earth. Maybe it sent me straight to heaven. Either way, it dragged me out of hell.
+ - That must be love: when everything else in the world could implode and you wouldn’t care as long as you had that one person standing beside you.
+ - I can’t give you the world, Rachel, but I’ll give you all I got.
+ - Baby, you’ve got enough strength and tenacity to take down drug dealers. You’ll be fine.
+ - I watched you battle against the worst memory of your life and I watched you win. Make no mistake, Echo. I battled right beside you.
+ - Because the only way anyone will ever be okay with me is if they love me. Really love me enough to not care that I’m damaged.
+ - How many more of us are faking the facade? How many more of us are pretending to be something we’re not? Even better, how many of us will have the courage to be ourselves regardless of what others think?
+ - Wow. I thought I was the only person at this school faking every moment.
+ - My siren had sung to me for way too long, capturing my heart, tempting me with her body, driving me slowly insane. Now, I expected her to pay up.
+ - Sometimes when you see the line, you think it’s a good idea to cross it – until you do.
+ - This isn’t me giving him a memory. This is me giving him my heart.
+ - This overwhelming, encompassing feeling is love. It’s not perfect and it’s messy as hell. And it’s exactly what I need.
+ - Nothing makes you think you might need years of therapy like saying the word breasts in front of your mother.
+ - How could he love her when she’d destroyed so much?
+ - It’s our rain, Beth.
+ - Beth feels likes this storm. Constant and persistent as a whole, but the more I get close and try to clutch the individual drops of rain, the more the water falls out of my hands.
+
+32 quotes

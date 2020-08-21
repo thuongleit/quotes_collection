@@ -1,0 +1,24 @@
+ - Today a reader, tomorrow a leader. ~~Margaret Fuller
+ - There is no friend as loyal as a book. ~~Ernest Hemingway
+ - If you only read the books that everyone else is reading, you can only think what everyone else is thinking. ~~Haruki Murakami
+ - So many books, so little time. ~~Frank Zappa
+ - A room without books is like a body without a soul. ~~Marcus Tullius Cicero
+ - Good books don't give up all their secrets at once. ~~Stephen King
+ - A mind needs books as a sword needs a whetstone, if it is to keep its edge. ~~George R.R. Martin
+ - Books are a uniquely portable magic. ~~Stephen King
+ - Never trust anyone who has not brought a book with them. ~~Lemony Snicket
+ - I cannot live without books. ~~Thomas Jefferson
+ - Books are the perfect entertainment: no commercials, no batteries, hours of enjoyment for each dollar spent. What I wonder is why everybody doesn’t carry a book around for those inevitable dead spots in life. ~~Stephen King
+ - I find television very educating. Every time somebody turns on the set, I go into the other room and read a book. ~~Groucho Marx
+ - Some books should be tasted, some devoured, but only a few should be chewed and digested thoroughly. ~~Francis Bacon
+ - I can't imagine a man really enjoying a book and reading it only once. ~~C. S. Lewis
+ - So, please, oh please, we beg, we pray, go throw your TV set away, and in its place you can install, a lovely bookcase on the wall. ~~Roald Dahl
+ - Reading furnishes the mind only with materials of knowledge; it is thinking that makes what we read ours. ~~John Locke
+ - Reading one book is like eating one potato chip. ~~Diane Duane
+ - I am too fond of reading books to care to write them. ~~Oscar Wilde
+ - In a good bookroom you feel in some mysterious way that you are absorbing the wisdom contained in all the books through your skin, without even opening them. ~~Mark Twain
+ - My alma mater was books, a good library. I could spend the rest of my life reading, just satisfying my curiosity. ~~Malcolm X
+ - Many people, myself among them, feel better at the mere sight of a book. ~~Jane Smiley
+ - I declare after all there is no enjoyment like reading. How much sooner one tires of any thing than of a book. ~~Jane Austen
+
+22 quotes

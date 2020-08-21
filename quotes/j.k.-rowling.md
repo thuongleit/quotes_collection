@@ -1,0 +1,346 @@
+ - It is impossible to live without failing at something, unless you live so cautiously that you might as well not have lived at all – in which case, you fail by default.
+ - Rock bottom became the solid foundation on which I rebuilt my life.
+ - It is our choices, Harry, that show what we truly are, far more than our abilities.
+ - It does not do to dwell on dreams and forget to live.
+ - I solemnly swear that I am up to no good.
+ - The only way out is through.
+ - It matters not what someone is born, but what they grow to be.
+ - It takes a great deal of bravery to stand up to our enemies, but just as much to stand up to our friends.
+ - We’ve all got both light and dark inside us. What matters is the part we choose to act on. That’s who we really are.
+ - If you want to know what a man's like, take a good look at how he treats his inferiors, not his equals.
+ - Dark times lie ahead of us and there will be a time when we must choose between what is easy and what is right. -Albus Dumbledore.
+ - We are only as strong as we are united, as weak as we are divided.
+ - Anything’s possible if you’ve got enough nerve.
+ - If you don’t like to read, you haven’t found the right book.
+ - We do not need magic to transform our world. We carry all the power we need inside ourselves already.
+ - Words are, in my not-so-humble opinion, our most inexhaustible source of magic. Capable of both inflicting injury, and remedying it.
+ - Of course it is happening inside your head, Harry, but why on earth should that mean that it is not real?
+ - Things we lose have a way of coming back to us in the end, if not always in the way we expect.
+ - Do not pity the dead, Harry. Pity the living, and, above all those who live without love.
+ - Dumbledore watched her fly away, and as her silvery glow faded he turned back to Snape, and his eyes were full of tears. “After all this time?” “Always,” said Snape.
+ - Here lies Dobby, a free elf.
+ - Wit beyond measure is a man’s greatest treasure.
+ - Numbing the pain for a while will make it worse when you finally feel it.
+ - I open at the close.
+ - There is no good and evil, there is only power and those too weak to seek it.
+ - Don’t worry. You’re just as sane as I am.
+ - I don’t believe in the kind of magic in my books. But I do believe something very magical can happen when you read a good book.
+ - Indifference and neglect often do much more damage than outright dislike.
+ - The last enemy that shall be destroyed is death.
+ - Books are like mirrors: if a fool looks in, you cannot expect a genius to look out.
+ - The stories we love best do live in us forever.
+ - For in dreams we enter a world that is entirely our own. Let them swim in the deepest ocean or glide over the highest cloud.
+ - It is the unknown we fear when we look upon death and darkness, nothing more.
+ - You will also find that help will always be given at Hogwarts to those who ask for it.
+ - Constant vigilance!
+ - I don’t go looking for trouble. Trouble usually finds me.
+ - She had a way of seeing the beauty in others, even, and perhaps most especially, when that person couldn’t see it in themselves.
+ - Just because you have the emotional range of a teaspoon doesn’t mean we all have.
+ - You’re a wizard, Harry.
+ - There’s always room for a story that can transport people to another place.
+ - Differences of habit and language are nothing at all if our aims are identical and our hearts are open.
+ - Understanding is the first step to acceptance, and only with acceptance can there be recovery.
+ - You don’t understand – there are things worth dying for!
+ - Whether you come back by page or by the big screen, Hogwarts will always be there to welcome you home.
+ - We teachers are rather good at magic, you know.
+ - Ask us no questions and we’ll tell you no lies.
+ - We’re all human, aren’t we? Every human life is worth the same, and worth saving.
+ - We must try not to sink beneath our anguish, Harry, but battle on.
+ - I was set free, because my greatest fear had already been realized, and I was still alive, and I still had a daughter whom I adored, and I had an old typewriter and a big idea. And so rock bottom became the solid foundation on which I rebuilt my life.
+ - Let us step into the night and pursue that flighty temptress, adventure.
+ - The ministry has fallen. Scrimgeour is dead. They are coming.
+ - What’s most important in a friendship? Tolerance and loyalty.
+ - Youth can not know how age thinks and feels. But old men are guilty if they forget what it was to be young.
+ - No story lives unless someone wants to listen. So thank you, all of you.
+ - You think the dead we loved truly ever leave us? You think that we don’t recall them more clearly in times of great trouble?
+ - We can’t choose our fate, but we can choose others. Be careful in knowing that.
+ - Merlin’s beard.
+ - The consequences of our actions are always so complicated, so diverse, that predicting the future is a very difficult business indeed.
+ - Your mother died to save you. If there is one thing Voldemort cannot understand, it is love. Love as powerful as your mother’s for you leaves it’s own mark. To have been loved so deeply, even though the person who loved us is gone, will give us some protection forever.
+ - I sometimes find, and I am sure you know the feeling, that I simply have too many thoughts and memories crammed into my mind.
+ - Fools who wear their hearts proudly on their sleeves, who cannot control their emotions, who wallow in sad memories and allow themselves to be provoked this easily – weak people, in other words...
+ - You are the true master of death, because the true master does not seek to run away from Death. He accepts that be must die, and understands that there are far, far worse things in the living world than dying.
+ - Somewhere out in the darkness, a phoenix was singing in a way Harry had never heard before: a stricken lament of terrible beauty. And Harry felt, as he had felt about phoenix song before, that the music was inside him, not without: It was his own grief turned magically to song...
+ - The mind is not a book, to be opened at will and examined at leisure. Thoughts are not etched on the inside of skulls, to be perused by an invader. The mind is a complex and many-layered thing.
+ - I don’t need a cloak to become invisible.
+ - Nothing more or less than the deepest, most desperate desire of our hearts.
+ - Tut, tut – fame clearly isn’t everything.
+ - Honestly, if you were any slower, you’d be going backward.
+ - His eyes are as green as a fresh pickled toad, His hair is as dark as a blackboard. I wish he was mine, he’s really divine, The hero who conquered the Dark Lord.
+ - I hope you’re pleased with yourselves. We could all have been killed – or worse, expelled. Now if you don’t mind, I’m going to bed.
+ - Of all the trees we could’ve hit, we had to get one that hits back.
+ - There is an expiry date on blaming your parents for steering you in the wrong direction; the moment you are old enough to take the wheel, responsibility lies with you.
+ - Greatness inspires envy, envy engenders spite, spite spawns lies.
+ - Because to confide a part of your soul to something that can think and move for itself is obviously a very risky business.
+ - Twilight fell: The sky turned to a light, dusky purple littered with tiny silver stars.
+ - Really Hagrid, if you are holding out for universal popularity, I’m afraid you will be in this cabin for a very long time.
+ - You will find that I will only truly have left this school when none here are loyal to me.
+ - I enjoyed the meetings, too. It was like having friends.
+ - Hearing voices no one else can hear isn’t a good sign, even in the wizarding world.
+ - Dumbledore would have been happier than anybody to think that there was a little more love in the world.
+ - Cinderella? Snow White? What’s that? An illness?
+ - I think it’s the books that you read when you’re young that live with you forever.
+ - Snape’s patronus was a doe,? said Harry, ’the same as my mother’s because he loved her for nearly all of his life, from when they were children.
+ - Always the innocent are the first victims, so it has been for ages past, so it is now.
+ - It is a curious thing, Harry, but perhaps those who are best suited to power are those who have never sought it. Those who, like you, have leadership thrust upon them, and take up the mantle because they must, and find to their own surprise that they wear it well.
+ - Holey? You have the the whole world of ear-related humor before you, you go for holey?
+ - Once again you’ve put your keen and penetrating mind to the task and as usual come to the wrong conclusion!
+ - Power was my weakness and my temptation.
+ - Snape was looking as though the first person to ask him for a Love Potion would be force-fed poison.
+ - Or perhaps in Slytherin, you’ll make your real friends. Those cunning folk use any means to achieve their ends.
+ - Oh you is a bad elf, Dobby!
+ - If you made a better rat than a human, it’s not much to boast about, Peter.
+ - And tears came before he could stop them, boiling hot then instantly freezing on his face, and what was the point in wiping them off? Or pretending? He let them fall.
+ - Great, tell me when you’ve defeated Voldemort for me, will you?
+ - Ah, Harry, how often this happens, even between the best of friends! Each of us believes that what he has to say is much more important than anything the other might have to contribute!
+ - Whatever house I’m in, I hope she’s not in it.
+ - Finally, the truth. Lying with his face pressed into the dusty carpet of the office where he had once thought he was learning the secrets of victory, Harry understood at last that he was not supposed to survive.
+ - The silence was unbearable to him. If the pictures could have reflected the feelings inside him, they would have been screaming in pain.
+ - No, I’m fine,? said Harry, wondering why he kept telling people this, and wondering whether he had ever been less fine.
+ - You can laugh! But people used to believe there were no such things as the Blibbering Humdinger or the Crumple-Horned Snorkack!
+ - Don’t be stupid, it’s a flying house!
+ - To the well-organized mind, death is but the next great adventure.
+ - It’s so difficult to describe depression to someone who’s never been there, because it’s not sadness. I know sadness. Sadness is to cry and to feel. But it’s that cold absence of feeling – that really hollowed-out feeling.
+ - Can I have a look at Uranus too, Lavender?
+ - Depression isn’t just being a bit sad. It’s feeling nothing. It’s not wanting to be alive anymore.
+ - Only the difference between truth and lies, courage and cowardice.
+ - Harry: This book belongs to Harry Potter. Ron: Shared by Ron Weasley, because his fell apart. Hermione: Why don’t you buy a new one then? Ron: Write on your own book, Hermione. Hermione: You bought all those dungbombs on Saturday. You could have bought a new book instead. Ron: Dungbombs rule.
+ - You’d think a bit of kissing would cheer her up.
+ - When I was quite young my parents never said books were off limits.
+ - Failure is so important. We speak about success all the time. It is the ability to resist failure or use failure that often leads to greater success. I’ve met people who don’t want to try for fear of failing.
+ - Death comes for us all in the end.
+ - Enter, stranger, but take heed Of what awaits the sin of greed, For those who take, but do not earn, Must pay most dearly in their turn. So if you seek beneath our floors A treasure that was never yours, Thief, you have been warned, beware Of finding more than treasure there.
+ - Dumbledore says people find it far easier to forgive others for being wrong than being right.
+ - There are some things you can’t share without ending up liking each other, and knocking out a twelve-foot mountain troll is one of them.
+ - Fear of a name increases fear of the thing itself.
+ - I’m going to keep going until I succeed – or die. Don’t think I don’t know how this might end. I’ve known it for years.
+ - Mr. and Mrs. Dursley, of number four Privet Drive, were proud to say that they were perfectly normal, thank you very much.
+ - We Slytherins are brave, yes, but not stupid. For instance, given the choice, we will always choose to save our own necks.
+ - He can run faster than Severus Snape confronted with shampoo.
+ - Age is foolish and forgetful when it underestimates youth.
+ - What we achieve inwardly will change outer reality.
+ - Give her hell from us, Peeves.
+ - As our listeners will know, unless they’ve taken refuge at the bottom of a garden pond or somewhere similar, You-Know-Who’s strategy of remaining in the shadows is creating a nice little climate of panic.
+ - Fawkes is a phoenix, Harry. Phoenixes burst into flame when it is time for them to die and are reborn from the ashes.
+ - Enemies of the Heir, beware! You’ll be next, Mudbloods!
+ - All was well.
+ - Or yet in wise old Ravenclaw, if you’ve a ready mind, Where those of wit and learning, Will always find their kind.
+ - From now on, I don’t care if my tea leaves spell ‘Die, Ron, Die,’ I’m chucking them in the bin where they belong.
+ - I want to commit the murder I was imprisoned for.
+ - The best of us must sometimes eat our words.
+ - From this point forth, we shall be leaving the firm foundation of fact and journeying together through the murky marshes of memory into thickets of wildest guesswork.
+ - It was so good to be held. If only their relationship could be distilled into simple, wordless gestures of comfort. Why had humans ever learned to talk?
+ - The last words Albus Dumbledore spoke to the pair of us?? Harry is the best hope we have. Trust him.
+ - Autumn seemed to arrive suddenly that year. The morning of the first September was crisp and golden as an apple.
+ - Remember, if the time should come when you have to make a choice between what is right and what is easy, remember what happened to a boy who was good, and kind, and brave, because he strayed across the path of Lord Voldemort. Remember Cedric Diggory.
+ - Where your treasure is, there will your heart be also.
+ - He didn’t realize that love as powerful as your mother’s for you leaves its own mark.
+ - Hogwarts was the first and best home he had known. He and Voldemort and Snape, the abandoned boys, had all found home here.
+ - You are protected, in short, by your ability to love!
+ - I can teach you how to bottle fame, brew glory, even put a stopper on death.
+ - Oooh, look, a Blibbering Humdinger!
+ - I think I’ll just go down and have some pudding and wait for it all to turn up – it always does in the end.
+ - What happened down in the dungeons between you and Professor Quirrell is a complete secret, so, naturally the whole school knows.
+ - Oh, HONESTLY, don’t you two read?
+ - Swish and flick.
+ - We did it, we bashed them wee Potter’s the one, and Voldy’s gone moldy, so now let’s have fun!
+ - It is a strange thing, but when you are dreading something, and would give anything to slow down time, it has a disobliging habit of speeding up.
+ - I have gone temporarily deaf and haven’t any idea what you said, Harry.
+ - Well you seemed too busy to call him a prat and I thought someone should.
+ - It unscrews the other way.
+ - Voldemort himself created his worst enemy, just as tyrants everywhere do! Have you any idea how much tyrants fear the people they oppress? All of them realize that, one day, amongst their many victims, there is sure to be one who rises against them and strikes back!
+ - Longbottom, if brains were gold, you’d be poorer than Weasley, and that’s saying something.
+ - As for the fact that Malfoy, Crabbe, and Goyle apeared to be going their different ways when they were usually inseparable, these things happened as people got older – Ron and Hermione, Harry reflected sadly, were living proof.
+ - Harry looked down and saw deep green mountains and lakes, coppery in the sunset.
+ - Fred and George turned to each other and said together, “Wow, we’re identical!” “I dunno though, I think I’m still better looking,” said Fred, examining his reflection in the kettle.
+ - Turn to page three hundred and ninety-four.
+ - Some wounds run too deep for the healing.
+ - I would like to be remembered as someone who did the best she could with the talent she had.
+ - By Gryffindor, the bravest were Prized far beyond the rest; For Ravenclaw, the cleverest Would always be the best; For Hufflepuff, hard workers were Most worthy of admission; And power-hungry Slytherin Loved those of great ambition.
+ - Don’t count your owls before they are delivered.
+ - No witch has ever claimed to own the Elder Wand. Make of that what you will.
+ - Accio Firebolt!
+ - Parry Otter, the Chosen Boy Who – well – something of that sort...
+ - However,? said Dumbledore, speaking very slowly and clearly so that none of them could miss a word, ’you will find that I will only truly have left this school when none here are loyal to me. You will also find that help will be given at Hogwarts to those who ask for it.
+ - The scar had not pained Harry for nineteen years. All was well.
+ - Never tickle a sleeping dragon.
+ - Neither can live while the other survives, and one of us is about to leave for good...
+ - And what will you give me in return, Severus?’ ‘In – in return?’ Snape gaped at Dumbledore, and Harry expected him to protest, but after a long moment he said, ‘Anything...
+ - The fact that you can feel pain like this is your greatest strength.
+ - You see what you expect to see, Severus.
+ - No man or woman alive, magical or not, has ever escaped some form of injury, whether physical, mental, or emotional. To hurt is as human as to breathe.
+ - What exactly is the function of a rubber duck?
+ - Although people rarely died playing Quidditch, referees had been known to vanish and turn up months later in the Sahara Desert.
+ - Mischief Managed.
+ - Even if I could, I wouldn’t. Scars can come in handy. I have one myself above my left knee that is a perfect map of the London Underground.
+ - She’s as nutty as squirrel poo.
+ - Listeners, that brings us to the end of another Potterwatch. We don’t know when it will be possible to broadcast again, but you can be sure we shall be back. Keep twiddling those dials: the next password will be ‘Mad-Eye.’ Keep each other safe. Keep faith. Good night.
+ - It was strange how your brain could know what your heart refused to accept.
+ - I don’t expect you will really understand the beauty of the softly simmering cauldron with its shimmering fumes, the delicate power of liquids that creep through human veins, bewitching the mind, ensnaring the senses...
+ - Harry and Hermione are very platonic friends. But I won’t answer for anyone else, nudge-nudge wink-wink!
+ - Gringotts was the safest place in the world for something you wanted to hide – except perhaps Hogwarts.
+ - And Percy was shaking his brother, and Ron was kneeling beside them, and Fred’s eyes stared without seeing, the ghost of his last laugh still etched upon his face.
+ - You care so much you feel as though you will bleed to death with the pain of it.
+ - Let muggles manage without us!
+ - I just write what I wanted to write. I write what amuses me. It’s totally for myself.
+ - I can’t give a Professor love!
+ - Welcome to a new year at Hogwarts! Before we begin our banquet, I would like to say a few words. And here they are: Nitwit! Blubber! Oddment! Tweak!
+ - The Forbidden Forest looked as though it had been enchanted, each tree smattered with silver, and Hagrid’s cabin looked like an iced cake.
+ - Time will not slow down when something unpleasant lies ahead.
+ - I believe your friends Misters Fred and George Weasley were responsible for trying to send you a toilet seat. No doubt they thought it would amuse you.
+ - It’s lucky it’s dark. I haven’t blushed so much since Madam Pomfrey told me she liked my new earmuffs.
+ - Once again, you show all the sensitivity of a blunt axe.
+ - I make mistakes like the next man. In fact, being – forgive me – rather cleverer than most men, my mistakes tend to be correspondingly huger.
+ - Nothing like a nighttime stroll to give you ideas.
+ - I take my hat off to you – or I would, if I were not afraid of showering you in spiders.
+ - Extraordinary imagination, especially in a witch world. Also friendship.
+ - Percy wouldn’t notice a joke if it danced naked in front of him wearing one of Dobby’s hats.
+ - But Dumbledore says he doesn’t care what they do as long as they don’t take him off the Chocolate Frog cards.
+ - Gryffindor, where dwell the brave at heart!
+ - Harry was left to ponder in silence the depths to which girls would sink to get revenge.
+ - According to Madam Pomfrey, thoughts could leave deeper scars than almost anything else.
+ - First sign of madness, talking to your own head.
+ - Bangs and smoke were more often the marks of ineptitude than expertise.
+ - It was as if Snape had started handing out sweets.
+ - As much money and life as you could want! The two things most human beings would choose above all – the trouble is, humans do have a knack of choosing precisely those things that are worst for them.
+ - You must accept the reality of other people. You think that reality is up for negotiation, that we think it’s whatever you say it is. You must accept that we are as real as you are; you must accept that you are not God.
+ - Hagrid. You live in a wooden house!
+ - Lockhart’ll sign anything if it stands still long enough.
+ - Witness for the defense, Albus Percival Wulfric Brian Dumbledore.
+ - Nasty temper he’s got, that Sirius Black.
+ - Potter! There are hundreds of people thundering through my pub!
+ - Sometimes you remind me a lot of James. He called it my ‘furry little problem’ in company. Many people were under the impression that I owned a badly behaved rabbit.
+ - Clever as I am, I remain just as big a fool as anyone else.
+ - I tell you, that dragon’s the most horrible animal I’ve ever met, but the way Hagrid goes on about it, you’d think it was a fluffy little bunny rabbit.
+ - This is night, Diddykins. That’s what we call it when it goes all dark like this.
+ - Dumbledore will only leave from Hogwarts when there are none loyal to him!
+ - I am a wizard, not a baboon brandishing a stick.
+ - There will be books written about Harry. Every child in the world will know his name.
+ - You never get it right, you people, do you? Either we’ve got Fudge, pretending everything’s lovely while people get murdered right under his nose, or we’ve got you, chucking the wrong people into jail and trying to pretend you’ve got ‘The Chosen One’ working for you!
+ - Everybody finished the song at different times. At last, only the Weasley twins were left singing along to a very slow funeral march.
+ - Oh, shut up Weatherby.
+ - You’d better hurry up, they’ll be waiting for ‘the Chosen Captain’ – ‘The Boy Who Scored’ – whatever they call you these days.
+ - Don’t be sorry, my dear sir, for nothing could upset me today! Rejoice, for You-Know-Who is gone at last! Even muggles like yourself should be celebrating this happy, happy day.
+ - One more lesson like that and I might just do a Weasley.
+ - He’s a werewolf! That’s why he’s been missing classes!
+ - Anyone can speak Troll. All you have to do is point and grunt.
+ - Get up, you useless lump, get up!
+ - Don’t, Ginny, we’ll send you loads of owls. We’ll send you a Hogwarts toilet seat. George! Only joking, Mum.
+ - Oh, it can’t be a reference to the fact Harry’s a great Seeker, that’s way too obvious. There must be a secret message from Dumbledore hidden in the icing!
+ - If all goes well, you will be able to save more than one innocent life tonight.
+ - And without thinking, without planning it, without worrying about the fact that fifty people were watching, Harry kissed her.
+ - Professor Kettleburn, our Care of Magical Creatures teacher, retired at the end of last year in order to enjoy more time with his remaining limbs.
+ - I knew Ginny was lying about that tattoo.
+ - All those poor elves I haven’t set free yet, having to stay over during Christmas because there aren’t enough hats!
+ - Perhaps just one more, Master Harry, for luck?
+ - What she did have were Bertie Bott’s Every Flavor Beans, Drooble’s Best Blowing Gum, Chocolate Frogs, Pumpkin Pasties, Cauldron Cakes, Licorice Wands, and a number of other strange things Harry had never seen in his life.
+ - Twitchy little ferret, aren’t you, Malfoy?
+ - Hide them all, then. Keep her – them – safe. Please.? And what will you give me in return, Severus?? In – in return? Anything.
+ - Just then Neville caused a slight diversion by turning into a large canary.
+ - Accio Brain!
+ - Montague’s just been found in a toilet, Sir.
+ - Whatever happens to your body, your soul will survive, untouched...
+ - It was as though they had been plunged into a fabulous dream. This, thought Harry, was surely the only way to travel – past swirls and turrets of snowy cloud, in a car full of hot, bright sunlight, with a fat pack of toffees in the glove compartment...
+ - Hermione was screaming again: the sound went through Harry like physical pain.
+ - There was a brief silence in which the distant echo of Hagrid smashing down a wooden front door seemed to reverberate through the intervening years.
+ - As Ginny and Hermione moved closer to the rest of the family, Harry had a clear view of the bodies lying next to Fred: Remus and Tonks, pale and still and peaceful-looking, apparently asleep beneath the dark, enchanted ceiling.
+ - I’ll be in my bedroom, making no noise and pretending I’m not there.
+ - Deliberately causing mayhem in Snape’s Potions class was about as safe as poking a sleeping dragon in the eye.
+ - I am very frustrated by fear of imagination, I don’t think that’s healthy.
+ - It is impossible to manufacture or imitate love.
+ - Why, dear boy, we don’t send wizards to Azkaban just for blowing up their aunts.
+ - Nobody’s ever asked me to a party before, as a friend. Is that why you dyed your eyebrow, for the party? Should I do mine too?
+ - He lay face down, listening to the silence. He was perfectly alone. Nobody was watching. Nobody else was there. He was not perfectly sure that he was there himself.
+ - You think the dead we loved ever truly leave us?
+ - The mistake ninety-nine percent of humanity made, as far as Fats could see, was being ashamed of what they were; lying about it, trying to be somebody else.
+ - We’re all going to keep fighting, Harry. You know that?
+ - Are you insane? Of course I want to leave the Dursleys! Have you got a house? When can I move in?
+ - Probably that you’re going to be eaten by a giant marshmallow or something.
+ - What do I care how ’e looks? I am good-looking enough for both of us, I theenk! All these scars show is zat my husband is brave!
+ - Size is no guarantee of power.
+ - Every second he breathed, the smell of the grass, the cool air on his face, was so precious: To think that people had years and years, time to waste, so much time it dragged, and he was clinging to each second.
+ - Harry, just go down to the lake tomorrow, right, stick your head in, yell at the merpeople to give back whatever they’ve nicked, and see if they chuck it out. Best you can do, mate.
+ - And that’s the second time we’ve saved your life tonight, you two-faced bastard!? Ron yelled.
+ - Warrington’s aim’s so pathetic I’d be more worried if he was aiming for the person next to me.
+ - Ron’s indignation on his behalf was worth about a hundred points to him.
+ - On Harry dug, deeper and deeper into the hard, cold earth, subsuming his grief in sweat, denying the pain in his scar.
+ - Dumbledore had not raised his voice, he did not even sound angry, but Harry would have preferred him to yell; this cold disappointment was worse than anything.
+ - The idea of a teenage Dumbledore was simply odd, like trying to imagine a stupid Hermione or a friendly Blast-Ended Skrewt.
+ - But who could bear to know which stars were already dead, she thought, blinking up at the night sky; could anybody stand to know that they all were?
+ - Yeah, Quirrell was a great teacher. There was just that minor drawback of him having Lord Voldemort sticking out of the back of his head!
+ - Time is making fools of us again.
+ - She can’t keep writing about what a tragic little hero I am, it’ll get boring.
+ - The wizards represent all that the true ‘muggle’ most fears: They are plainly outcasts and comfortable with being so. Nothing is more unnerving to the truly conventional than the unashamed misfit!
+ - Nitwit! Blubber! Oddment! Tweak!
+ - Harry was just thinking that all he needed was for Dumbledore’s pet bird to die while he was all alone in the office with it, when the bird burst into flames.
+ - Because – oh shut up laughing, you two – because they’ve just been turned down by girls they asked to the ball!
+ - To hurt is as human as to breathe.
+ - They’re evacuating the younger kids and everyone’s meeting in the Great Hall to get organized. We’re fighting.
+ - As he followed Bill back to the others a wry though came to him, born no doubt of the wine he had drunk. He seemed set on course to become just as reckless a godfather to Teddy Lupin as Sirius Black had been to him.
+ - Next time there’s a ball, ask me before someone else does, and not as a last resort!
+ - Your Wheezy, sir, your Wheezy – Wheezy who is giving Dobby his sweater!
+ - Why are you worrying about YOU-KNOW-WHO, when you should be worrying about YOU-NO-POO? The constipation sensation that’s gripping the nation!
+ - I hope there’s pudding!
+ - There are much more terrible things than physical injury.
+ - Ron gave a tiny jerk of the head that Harry understood to mean, Well – if you must.
+ - The world isn’t split into good people and Death Eaters.
+ - At least my happiness doesn’t depend on Ron’s goalkeeping ability.
+ - I bet you’re not dangerous at all, are you? Are you, you great ugly brute?
+ - It was not, after all, so easy to die.
+ - Apparently wizards poke their noses in everywhere!
+ - Imagine losing fingernails, Harry! That really puts our sufferings into perspective, doesn’t it?
+ - Parents shouldn’t leave their kids unless – unless they’ve got to.
+ - I see a light in the kitchen. Let us not deprive Molly any longer of the chance to deplore how thin you are.
+ - Would you like a cough drop Dolores?
+ - Harry ran upstairs to their dark dormitory. He pulled out the cloak and then his eyes fell on the flute Hagrid had given him for Christmas. He pocketed it to use on Fluffy – he didn’t feel much like singing.
+ - I love magic!
+ - Honestly, woman, you call yourself our mother?
+ - Which only goes to show that the best of us must sometimes eat our words,? Dumbledore went on, smiling.
+ - On and on they flew, over the countryside parceled out in patches of green and brown, over roads and rivers winding through the landscapes like strips of matte and glossy ribbon.
+ - Time is Galleons, little brother.
+ - And anyway, it’s not as though I’ll never see Mum again, is it?
+ - Three turns should do it.
+ - Mr. Weasley was unavailable for comment, although his wife told reporters to clear off or she’d set the family ghoul on them.
+ - The inner eye does not see upon command.
+ - It seemed to take Sirius an age to fall: his body curved in a graceful arc as he sank backwards through the ragged veil hanging from the arch.
+ - It seemed impossible that there could be people in the world who still desired food, who laughed, who neither knew nor cared that Sirius Black was gone forever.
+ - By all means continue destroying my possessions. I daresay I have too many.
+ - This liberating discovery enables me to proceed without any fear that I might inadvertently influence you to abandon promising careers in business, law or politics for the giddy delights of becoming a gay wizard.
+ - So that’s little Scorpious. Make sure you beat him in every test, Rosie. Thank god you’ve inherited your mother’s brains.
+ - You look in excellent health to me, Potter, so you will excuse me if I don’t let you off homework today. I assure you that if you do die, you need not hand it in.
+ - You can have a very intense relationship with fictional characters because they are in your own head.
+ - Merlin’s pants!
+ - Voldemort is playing a very clever game. Declaring himself might have provoked open rebellion. Remaining masked has created confusion, uncertainty, and fear.
+ - He never seemed to grasp the immense mutability of human nature, nor to appreciate that behind every nondescript face lay a wild and unique hinterland like his own.
+ - I think that perhaps if I had had to slow down the ideas so that I could capture them on paper I might have stifled some of them.
+ - Krystal’s slow passage up the school had resembled the passage of a goat through the body of a boa constrictor, being highly visible and uncomfortable for both parties concerned.
+ - Have to? Of course you have to! But only because of you, Harry, won’t rest until Voldemort is finished! Think now, for once, if you have never heard of the prophecy! What would you do?
+ - Now, it is the view of the Ministry that a theoretical knowledge will be more than sufficient to get you through your examination, which, after all, is what school is all about.
+ - Then he heard a terrible cry that pulled at his insides, that expressed agony of a kind that neither flame nor curse could cause, and he stood up, swaying, more frightened than he had been that day, more frightened, perhaps, than he had been in his whole life...
+ - It was his own grief turned magically to song.
+ - Yes, it is easy to see that nearly six years of magical education have not been wasted on you, Potter. Ghosts are transparent.
+ - Contemplating the task ahead would not make it easier or the water warmer.
+ - He might have crawled up into the airing cupboard and died, but I mustn’t get my hopes up.
+ - Her voice was now so shrill only bats would be able to hear it soon, but she had reached a level of indignation that rendered her temporarily speechless...
+ - And all along the corridor the statues and suits of armor jumped down from their plinths, and from the echoing crashes from the floors above and below, Harry knew that their fellows throughout the castle had done the same.
+ - Birth and death: there was the same consciousness of heightened existence and of her own elevated importance.
+ - The spells are made up. I have met people who assure me, very seriously, that they are trying to do them, and I can assure them, just as seriously, that they don’t work.
+ - He felt that he was still groping in the dark; he had chosen his path but kept looking back, wondering whether he had misread the signs, whether he should not have taken the other way.
+ - Where’s the fun without a bit of risk?
+ - S’up, Figgy?
+ - Would it hurt to die?
+ - Killing rips the soul apart.
+ - Would it hurt to die? All those times he had thought it was about to happen and escaped, he had never really thought of the thing itself: his will to live had always been so much stronger than his fear of death.
+ - Choose what to believe. He wanted the truth. Why was everybody so determined that he should not get it.
+ - Lord Voldermort Has Risen Again.
+ - He tried to give his wife pleasure in little ways, because he had come to realize, after nearly two decades together, how often he disappointed her in the big things. It was never intentional. They simply had very different notions of what ought to take up most space in life.
+ - Why would I go looking for someone I know wants to kill me?
+ - I will not calm down!
+ - Rita looked as though she would have liked nothing better than to seize the paper umbrella sticking out of Hermione’s drink and thrust it up her nose.
+ - Magic causes as much trouble as it cures.
+ - And it’s Gryfindor in possession again, as Johnson takes the Quaffle – Flint alongside her – poke him in the eye, Angelina – it was a joke, professor, it was a joke...
+ - Hope springs forever.
+ - I expect what you’re not aware of would fill several books, Dursely.
+ - Well, I dreamed I was playing Quidditch the other night,? said Ron, screwing up his face in an effort to remember. ‘What d’you reckon that means?’ ‘Probably that you’re going to be eaten by a giant marshmallow or something,’ said Harry.
+
+344 quotes

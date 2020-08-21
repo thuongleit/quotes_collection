@@ -1,0 +1,28 @@
+ - You can’t conserve what you haven’t got.
+ - You have to stand up for some things in this world.
+ - The Everglades is a test. If we pass it, we may get to keep the planet.
+ - There must be progress, certainly. But we must ask ourselves what kind of progress we want, and what price we want to pay for it. If, in the name of progress, we want to destroy everything beautiful in our world, and contaminate the air we breathe, and the water we drink, then we are in trouble.
+ - There is always the need to carry on.
+ - All we need, really, is a change from a near frigid to a tropical attitude of mind.
+ - The miracle of light pours over the green and brown expanse of saw grass and of water, shining and slowly moving, the grass and water that is the meaning and the central fact of the Everglades. It is a river of grass.
+ - Life should be lived so vividly and so intensely that thoughts of another life, or of a longer life, are not necessary.
+ - There are no other Everglades in the world.
+ - I take advantage of every thing I can – age, hair, disability – because my cause is just.
+ - Conservation is now a dead word.
+ - Child welfare ought really to cover all sorts of topics, such as better water and sanitation and good roads, and clean streets and public parks and playgrounds.
+ - There are no other Everglades in the world. They are, they have always been, one of the unique regions of the earth; remote, never wholly known. Nothing anywhere else is like them.
+ - The wealth of south Florida, but even more important, the meaning and significance of south Florida lies in the black muck of the Everglades and the inevitable development of this country to be the great tropic agricultural center of the world.
+ - Elizabeth Rothra’s excellent biography of Charles Torrey Simpson restates his philosophies about the intrinsic value of natural ecosystems like the Everglades. No one knew better than he the history of the plants and animals of South Florida or conveyed it with more humor and enthusiasm.
+ - It is a woman’s business to be interested in the environment. It’s an extended form of housekeeping.
+ - I’m just a tough old woman.
+ - I’ll talk about the Everglades at the drop of a hat.
+ - Whoever wants me to talk, I’ll come over and tell them about the necessity of preserving the Everglades.
+ - No matter how poor my eyes are I can still talk.
+ - I wanted to go to a good college, and my mind was set on Wellesley.
+ - There is nothing inherently wrong with a brain in your nineties. If you keep it fed and interested, you’ll find it lasts you very well.
+ - The problem of the environment is the extension of good housekeeping of the thinking woman.
+ - It’s a little bit late in the day for men to object that women are getting outside their proper sphere.
+ - Since 1972, I’ve been going around making speeches on the Everglades.
+ - No one is satisfied with their life’s work.
+
+26 quotes

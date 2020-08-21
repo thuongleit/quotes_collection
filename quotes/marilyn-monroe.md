@@ -1,0 +1,386 @@
+ - Don’t stop when you’re tired; stop when you’re done.
+ - The sky is not the limit. Your mind is.
+ - Imperfection is beauty, madness is genius and it’s better to be absolutely ridiculous than absolutely boring.
+ - We are all of us stars, and we deserve to twinkle.
+ - Who said nights were for sleep?
+ - It’s better to be unhappy alone than unhappy with someone.
+ - I’m selfish, impatient and a little insecure. I make mistakes, I am out of control and at times hard to handle. But if you can’t handle me at my worst, then you sure as hell don’t deserve me at my best.
+ - You never know what life is like, until you have lived it.
+ - We should all start to live before we get too old. Fear is stupid. So are regrets.
+ - I am good, but not an angel. I do sin, but I am not the devil. I am just a small girl in a big world trying to find someone to love.
+ - I believe that everything happens for a reason. People change so that you can learn to let go, things go wrong so that you appreciate them when they’re right, you believe lies so you eventually learn to trust no one but yourself, and sometimes good things fall apart so better things can fall together.
+ - Boys think girls are like books, If the cover doesn’t catch their eye they won’t bother to read what’s inside.
+ - If you’re gonna be two-faced at least make one of them pretty.
+ - All a girl really wants is for one guy to prove to her that they are not all the same.
+ - If you can make a woman laugh, you can make her do anything.
+ - A wise girl kisses but doesn’t love, listens but doesn’t believe, and leaves before she is left.
+ - The real lover is the man who can thrill you by kissing your forehead or smiling into your eyes or just staring into space.
+ - Ever notice how ‘What the hell’ is always the right answer?
+ - Sometimes good things fall apart so better things could fall together.
+ - If I’d observed all the rules I’d never have got anywhere.
+ - I don't want to make money, I just want to be wonderful.
+ - I don’t mind living in a man’s world, as long as I can be a woman in it.
+ - Beneath the makeup and behind the smile I am just a girl who wishes for the world.
+ - A career is wonderful, but you can’t curl up with it on a cold night.
+ - Never regret anything because at one time it was exactly what you wanted.
+ - Always, always, always believe in yourself, because if you don’t, then who will, Sweetie? So keep your head high, keep your chin up, and most importantly, keep smiling, because life’s a beautiful thing and there’s so much to smile about.
+ - A wise girl knows her limits, a smart girl knows that she has none.
+ - No girl should ever forget that she doesn’t need anyone who doesn’t need her.
+ - Keep smiling, because life is a beautiful thing and there’s so much to smile about.
+ - Imperfection is beauty, madness is genius.
+ - Always, always, always believe in yourself, because if you don’t, then who will, sweetie?
+ - I believe this: You just do it. You force yourself to get up. You force yourself to put one foot before the other, and goddamn it, you refuse to let it get to you. you fight. you cry. You curse. Then you go about your business of living. That’s how I’ve done it. There’s no other way.
+ - Fear is stupid. So are regrets.
+ - I restore myself when I’m alone.
+ - They will only care when you’re gone.
+ - She was a girl who knew how to be happy even when she was sad. And that’s important – you know.
+ - I don’t forgive people because I’m weak, I forgive them because I am strong enough to know people make mistakes.
+ - I live to suceed, not to please you or anyone else.
+ - Beauty only gets attention, but personality captures the heart.
+ - Always remember to smile and look up at what you got in life.
+ - You’re the beautiful one. It’s society that’s ugly.
+ - It’s all make believe, isn’t it?
+ - I’ve never fooled anyone. I’ve let people fool themselves. They didn’t bother to find out who and what I was. Instead they would invent a character for me. I wouldn’t argue with them. They were obviously loving somebody I wasn’t.
+ - The nicest thing for me is sleep, then at least I can dream.
+ - I said pour yourself a drink, put on some lipstick, and pull yourself together.
+ - The happiest time of my life is now.
+ - When it comes down to it, I let them think what they want. If they care enough to bother with what I do, then I’m already better than them.
+ - What do I wear in bed? Why, Chanel No. 5, of course.
+ - Just because you fail once doesn’t mean you’re gonna fail at everything.
+ - I am trying to find myself. Sometimes that’s not easy.
+ - Within crisis, are the seeds of opportunity.
+ - You believe lies so you eventually learn to trust no one but yourself.
+ - Cutting negative people from my life does not mean I hate them, it simply means I respect me.
+ - Dogs never bite me. Just humans.
+ - I don’t mind making jokes, but I don’t want to look like one.
+ - To all the girls that think you’re fat because you’re not a size zero, you’re the beautiful one, its society who’s ugly.
+ - Success makes so many people hate you. I wish it wasn’t that way. It would be wonderful to enjoy success without seeing envy in the eyes of those around you.
+ - I have feelings too. I am still human. All I want is to be loved, for myself and for my talent.
+ - All little girls should be told they are pretty, even if they aren’t.
+ - This life is what you make it. Not matter what, you’re going to mess up sometimes, it’s a universal truth.
+ - Happiness is not in money, but in shopping.
+ - It’s not true that I had nothing on. I had the radio on.
+ - In spite of everything life is not without hope.
+ - It’s often just enough to be with someone. I don’t need to touch them. Not even talk. A feeling passes between you both. You’re not alone.
+ - I’ve been on a calendar, but I’ve never been on time.
+ - No sex is wrong, if there’s love in it.
+ - When you’re young and healthy you can plan on Monday to commit suicide, and by Wednesday you’re laughing again.
+ - I’m very definitely a woman and I enjoy it.
+ - If I play a stupid girl and ask a stupid question, I’ve got to follow it through, what am I supposed to do, look intelligent?
+ - A strong man doesn’t have to be dominant toward a woman. He doesn’t match his strength against a woman weak with love for him. He matches it against the world.
+ - You must feel attractive to be attractive.
+ - You might as well make yourself fly as to make yourself love.
+ - That’s the way you feel when you’re beaten inside. You don’t feel angry at those who’ve beaten you. You just feel ashamed.
+ - I could never pretend something I didn’t feel. I could never make love if I didn’t love, and if I loved I could no more hide the fact than change the color of my eyes.
+ - Before marriage, a girl has to make love to a man to hold him. After marriage, she has to hold him to make love to him.
+ - When you don’t have any money, the problem is food. When you have money, it’s sex. When you have both, it’s health.
+ - A smart girl is one who knows how to play tennis, golf, piano – and dumb.
+ - I don’t know who invented high heels, but all women owe him a lot!
+ - My heart belongs to daddy.
+ - Suicide, is a persons privilege. I don’t believe it’s a sin or a crime it’s your right if you do. Though it doesn’t get you anywhere.
+ - I want to grow old without facelifts. I want to have the courage to be loyal to the face I have made.
+ - For those who are poor in happiness, each time is a first time; happiness never becomes a habit.
+ - It’s a terrible thing to be lonesome, especially in the middle of a crowd.
+ - I’m trying to find myself as a person, sometimes that’s not easy to do. Millions of people live their entire lives without finding themselves. But it is something I must do. The best way for me to find myself as a person is to prove to myself that I am an actress.
+ - I lay in bed at night crying to myself. The only one who loved me and watched over me was someone I couldn’t see or hear or touch.
+ - I read poetry to save time.
+ - I’m pretty, but I’m not beautiful.
+ - Happy Birthday, Mr Presidenttttt.
+ - The thing I want more than anything else? I want to have children. I used to feel for every child I had, I would adopt another.
+ - Respect is one of life’s greatest treasures. I mean, what does it all add up to if you don’t have that?
+ - I am alone; I am always alone no matter what.
+ - A woman knows by intuition, or instinct, what is best for herself.
+ - A sex symbol becomes a thing. I hate being a thing.
+ - I don’t mind being burdened with being glamorous and sexual. Beauty and femininity are ageless and can’t be contrived, and glamour, although the manufacturers won’t like this, cannot be manufactured. Not real glamour; it’s based on femininity.
+ - Promises are worse than lies. You don’t just make them believe, you also make them hope.
+ - I learned to walk as a baby and I haven’t had a lesson since.
+ - I would have told her then she was the only thing that I could love in this dying world but the simple word “love” itself already died and went away.
+ - Don’t let your fear of failing triumph over the joy of participating.
+ - I used to think as I looked out on the Hollywood night – there must be thousands of girls sitting alone like me, dreaming of becoming a movie star. But I’m not going to worry about them. I’m dreaming the hardest.
+ - Some people have been unkind. If I say I want to grow as an actress, they look at my figure. If I say I want to develop, to learn my craft, they laugh. Somehow they don’t expect me to be serious about my work.
+ - There’s only one sort of natural blonde on earth – albinos.
+ - When it comes to gossip, I have to readily admit men are as guilty as women.
+ - You know, most people really don’t know me.
+ - The trouble with censors is that they worry if a girl has cleavage. They ought to worry if she hasn’t any.
+ - Happiness is the most important thing in the world, without it, you live a life of depression.
+ - There are no women who do not like perfume, there are women who have not found their scent.
+ - Don’t you know that a man being rich is like a girl being pretty? You wouldn’t marry a girl just because she’s pretty, but my goodness, doesn’t it help?
+ - Fame doesn’t fulfill you. It warms you a bit, but that warmth is temporary.
+ - There is nothing positive about being fat. And there is nothing positive about loving yourself. We all need to conform to society’s expectations of who we are, because if we don’t, who will? Life is more enjoyable when you are thin and pretty. I was never fat a day in my life and I never will.
+ - I could have loved you once And said it But then you went away And when you came back Love was a forgotten word, Remember?
+ - Sex is a part of nature. I go along with nature.
+ - Marriage is the dark side of the honeymoon.
+ - I have too many fantasies to be a housewife. I guess I am a fantasy.
+ - Do not worry, and worry.
+ - I have never liked sex. I do not think I ever will. It just seems the opposite of love.
+ - Remember now, Cheers, no tears.
+ - Sisters make the best friends in the world.
+ - I’m the type of person that tries to fall back asleep in the morning just to finish a dream.
+ - I’ve never dropped anyone I believed in.
+ - I sleep in the nude but I pull the sheets up.
+ - When Clark Gable died, I cried for 2 days straight. I couldn’t eat or sleep.
+ - Friends accept you the way you are.
+ - Of the nude pictures: Sure I posed. I needed the money.
+ - It’s better being completely ridiculous than unbelievably boring.
+ - I guess I have always been deeply terrified to really be someone’s wife since I know from life one cannot love another, ever, really.
+ - I’ve given pure sex appeal very little thought. If I had to think about it I’m sure it would frighten me.
+ - Love and work are the only two real things in our lives. They belong together, otherwise it is off. Work is in itself a form of love.
+ - Experts on romance say for a happy marriage there has to be more than a passionate love. For a lasting union, they insist, there must be a genuine liking for each other. Which, in my book, is a good definition for friendship.
+ - Diamonds are a girls bestfriend.
+ - Do people ever get over being shy? I think it’s with you for life-like the color of your eyes.
+ - I am good, but not an angel.
+ - Looking back, I guess I used to play-act all the time. For one thing, it meant I could live in a more interesting world than the one around me.
+ - If your man is a sports enthusiast, you may have to resign yourself to his spouting off in a monotone on a prize fight, football game or pennant race.
+ - Designers want me to dress like Spring, in billowing things. I don’t feel like Spring. I feel like a warm red Autumn.
+ - It takes a smart brunette to play a dumb blonde.
+ - Just remember, some come, some go. The ones that stay with you through everything – they’re your true best friends. Don’t let go of them.
+ - I think to love bravely is the best and accept – as much as one can bear.
+ - A smart girl leaves before she is left.
+ - A kiss on the hand might feel very good, but a diamond tiara is forever.
+ - If a man doesn’t want you at your worst, then he sure as hell doesn’t deserve you at your best.
+ - Fame is like caviar, you know – it’s good to have caviar but not when you have it at every meal.
+ - By nature, I suppose I have a languorous disposition.
+ - I’m so many people. They shock me sometimes. I wish I was just me! I used to think I was going crazy, until I discovered that some people I admired were like that to.
+ - I knew I belonged to the public and to the world, not because I was talented or even beautiful, but because I had never belonged to anything or anyone else.
+ - A career is born in public – talent in privacy.
+ - You’re always running into people’s unconscious.
+ - I want to say to the people, if I am a star, the people made me a star. No studio, no person, but the people did.
+ - A man is more frank and sincere with his emotions than a woman. We girls, I’m afraid, have a tendency to hide our feelings.
+ - I believe in everything – a little bit.
+ - I do sin, but I am not the devil.
+ - In life, we weep at the thought of death. In death, perhaps we weep at the thought of life.
+ - Only parts of us will ever touch only parts of others.
+ - I am good, but not an angel. I do sin, but I am not the devil. I am pretty, but not beautiful. I have friends, but I am not the peacemaker.
+ - I think cheesecake helps call attention to you. Then you can follow through and prove yourself.
+ - As far as I can make out, women’s friendships with each other are based on a gush of lies and pretty speeches that mean nothing. You’d think they were all wolves trying to seduce each other the way they flatter and flirt when they’re together.
+ - All my stepchildren carried the burden of my fame. Sometimes they would read terrible things about me, and I’d worry about whether it would hurt them. I would tell them: ‘Don’t hide these things from me. I’d rather you ask me these things straight out, and I’ll answer all your questions.’
+ - My marriage didn’t make me sad, but it didn’t make me happy either. My husband and I hardly spoke to each other. This wasn’t because we were angry. We had nothing to say. I was dying of boredom.
+ - I won’t be satisfied until people want to hear me sing without looking at me. Of course, that doesn’t mean I want them to stop looking.
+ - Hollywood is a place where they’ll pay you a thousand dollars for a kiss and fifty cents for your soul. I know, because I turned down the first offer often enough and held out for the fifty cents.
+ - The outside world wants me to have glamour; my fans want me glamorous. I won’t let them down.
+ - That’s the story of my life; I always get the fuzzy end of the lollipop.
+ - Men who think that a woman’s past love affairs lessen her love for them are usually stupid and weak.
+ - There are many times when a woman will ask another girl friend how she likes her new hat. She will reply, ‘Fine,’ but slap her hand to her forehead the minute the girl leaves to yipe, ‘What a horror!’
+ - The worst thing that happens to people when they dress up and go to a party is that they leave their real selves at home.
+ - But square-cut or pear-shaped, These rocks don’t lose their shape. Diamonds are a girl’s best friend.
+ - Only the public can make a star. It’s the studios who try to make a system out of it.
+ - Do not ever go back to that from which decided to leave. As much as you did not ask, and how would you not want to own. Having conquered a mountain, begin to attack the other.
+ - But chiefly, no lies! No lies about there being a Santa Claus or about the world being full of noble and honorable people all eager to help each other and do good to each other. I’ll tell her there are honor and goodness in the world, the same as there are diamonds and radium.
+ - If marriage were only bed, we could have made it.
+ - If there is only one thing in my life that I am proud of, it’s that I’ve never been a kept woman.
+ - As of today, I have absolutely no regrets. I think I am a mature person who can take things in stride. I’m grateful for people in my past. They helped me get to where I am, wherever that is. But now, I am thinking for myself and sitting in on all the business transactions.
+ - Well, whatever I am, I am the blonde!
+ - Isn’t there any other part of the matzo you can eat?
+ - I am not a victim of emotional conflicts. I am human.
+ - Most men judge your importance in their lives by how much you can hurt them.
+ - The more I think of it, the more I realize there are no answers. Life is to be lived.
+ - Personally, I react to Marlon Brando. He’s a favorite of mine.
+ - People respect you because they feel you’ve survived hard times and endured, and although you’ve become famous, you haven’t become phony.
+ - People always ask me if I believe diamonds are a girl’s best friend. Frankly, I don’t.
+ - Sometimes I think it would be easier to avoid old age, to die young, but then you’d never complete your life, would you? You’d never wholly know you.
+ - I love to do the things the censors won’t pass.
+ - A man has a tendency to accept you the way you are, while most women immediately start to pick flaws and want to change you.
+ - Everybody says I can’t act. They said the same thing about Elizabeth Taylor. And they were wrong. She was great in A Place in the Sun. I’ll never get the right part, anything I really want. My looks are against me. They’re too specific.
+ - I don’t understand why people aren’t a little more generous with each other.
+ - Dating a new man is like holding a strawberry milkshake; first the taste, then the pleasure.
+ - Dogs have never hurt me. Only men have.
+ - Nights are not just for sleep.
+ - There was my name up in lights. I said, ‘God, somebody’s made a mistake.’ But there it was, in lights. And I sat there and said, ‘Remember, you’re not a star.’ Yet there it was up in lights.
+ - Fame is fickle, and I know it. It has its compensations but it also has its drawbacks, and I’ve experienced them both.
+ - Maybe I’ll never be able to do what I hope to, but at least I have hope.
+ - Who does she think she is, Marilyn Monroe?
+ - It’s nice to be included in people’s fantasies but you also like to be accepted for your own sake.
+ - I keep my undies in the icebox!
+ - I usually eat four or five raw carrots with my meat, and that is all. I must be part rabbit; I never get bored with raw carrots.
+ - I’m thirty-six years old. I’m just getting started!
+ - Next to my husband, and along with Marlon Brando, I think that Yves Montand is the most attractive man I’ve ever met.
+ - I don’t think sun-tanned skin is any more attractive than white skin, or any healthier, for that matter.
+ - When it gets hot like this, you know what I do? I keep my undies in the ice box.
+ - People had a habit of looking at me as if I were some kind of mirror instead of a person. They didn’t see me, they saw their own lewd thoughts, then they white-masked themselves by calling me the lewd one.
+ - I’m one of the world’s most self-conscious people. I really have to struggle.
+ - I like to feel blonde all over.
+ - Millions of people live their entire lives without finding themselves. But it is something I must do.
+ - To put it bluntly, I seem to have a whole superstructure with no foundation. But I’m working on the foundation.
+ - The body is meant to be seen, not all covered up.
+ - My illusions didn’t have anything to do with being a fine actress. I knew how third rate I was. I could actually feel my lack of talent, as if it were cheap clothes I was wearing inside. But, my God, how I wanted to learn, to change, to improve!
+ - Creativity starts with humanity when were being human we feel – joys, sadness, when we’re sick, when we’re nervous.
+ - I’m personally opposed to a deep tan because I like to feel blond all over.
+ - I am invariably late for appointments – sometimes as much as two hours. I’ve tried to change my ways but the things that make me late are too strong, and too pleasing.
+ - Husbands are chiefly good as lovers when they are betraying their wives.
+ - I’m a failure as a woman. My men expect so much of me, because of the image they’ve made of me- and that I’ve made of myself- as a sex symbol. They expect bells to ring and whistles to whistle, but my anatomy is the same as any other woman’s and I can’t live up to it.
+ - I’ve never liked the name Marilyn. I’ve often wished that I had held out that day for Jean Monroe. But I guess it’s too late to do anything about it now.
+ - I want to be an artist, not an erotic freak. I don’t want to be sold to the public as a celluloid aphrodisiac.
+ - I finally made up my mind I wanted to be an actress and I was not going to let my lack of confidence ruin my chances.
+ - Men are climbing to the moon, but they don’t seem interested in the beating human heart.
+ - Yes, there was something special about me, and I knew what it was. I was the kind of girl they found dead in a hall bedroom with an empty bottle of sleeping pills in her hand.
+ - Nearly everyone I knew talked to me about God. They always warned me not to offend Him.
+ - Always admired men who had many women. It must be that to a child of a dissatisfied woman the idea of monogamy is hollow.
+ - If you spend your life competing with business men, what do you have? A bank account and ulcers!
+ - I have never been able to wear pajamas or creepy nightgowns; they disturb my sleep.
+ - Anything’s possible, almost.
+ - Sometimes I feel my whole life has been one big rejection.
+ - I have too much imagination to be a housewife.
+ - Girdles and wire stays should have never been invented. No man wants to hug a padded bird cage.
+ - My public is growing up just as I am. After all, I’m not 19 anymore and if I stick with the sex bit, who will be paying to see me when I’m 50?
+ - Being a movie star was never as much fun as dreaming of being one.
+ - The truth is, I’ve never fooled anyone. I’ve let men sometimes fool themselves.
+ - Trying to build myself up with the fact that I have done things right that were even good and have had moments that were excellent but the bad is heavier to carry around and feel have no confidence.
+ - I’ve often stood silent at a party for hours listening to my movie idols turn into dull and little people.
+ - I think I made his back feel better.
+ - Of course, it does depend on the people, but sometimes I’m invited places to kind of brighten up a dinner table like a musician who’ll play the piano after dinner, and I know you’re not really invited for yourself. You’re just an ornament.
+ - When you’re a failure in Hollywood, that’s like starving to death outside a banquet hall, with smells of filet mignon driving you crazy.
+ - Men are always ready to respect anything that bores them.
+ - We human beings are strange creatures and still reserve the right to think for ourselves.
+ - For a long time I was scared I’d find out I was like my mother.
+ - In Rockford I decided that I had seen enough of the world.
+ - I think that sexuality is only attractive when it’s natural and spontaneous.
+ - I don’t look at myself as a commodity, but I’m sure a lot of people have.
+ - In Hollywood a girl’s virtue is much less important than her hairdo.
+ - Dreaming about being an actress, is more exciting then being one.
+ - The chief drawback with men is that they are too talkative.
+ - An actor is supposed to be a sensitive instrument. Isaac Stern takes good care of his violin. What if everybody jumped on his violin?
+ - Jewish men don’t know anything.
+ - Black men don’t like to be called ‘boys,’ but women accept being called ‘girls.’
+ - I had to use my wits or else I’d have been sunk – and nothings going to sink me. Everyone was always pulling at me, tugging at me, as if they wanted a piece of me. It was always, ‘do this, do that,’ and not just on the job but off, too. God, I’ve tried to stay intact, whole.
+ - I was never used to being happy, so that wasn’t something I ever took for granted.
+ - I want the world to see my body.
+ - If I’m a star, then the people made me a star.
+ - I hear you’re looking for a sexy blonde to play with the Marx Brothers. Would you like to see me. I’m blonde and I’m sexy.
+ - Sometimes I’ve been to a party where no one spoke to me for a whole evening. The men, frightened by their wives or sweeties, would give me a wide berth. And the ladies would gang up in a corner to discuss my dangerous character.
+ - Speaking of Oscars, I would win overwhelmingly if the Academy gave an Oscar for faking orgasms. I have done some of my best acting convincing my partners I was in the throes of ecstasy.
+ - I don’t consider myself an intellectual. And this is not one of my aims. But I admire intellectual people.
+ - A sex-symbol becomes a thing, I just hate being a thing. But if I’m going to be a symbol of something I’d rather have it sex than some other things we’ve got symbols of.
+ - First, I’m trying to prove to myself that I’m a person. Then maybe I’ll convince myself that I’m an actress.
+ - I have always had a talent for irritating women since I was fourteen.
+ - Acting became more than a profession to me. It became a sort of religion.
+ - There is just no comparison between having a dinner date with a man and staying home playing canasta with the girls.
+ - Squeezing yourself to ooze out the last ounce of sex allure is terribly hard. I’d like to do roles like Julie in Bury the Dead, Gretchen in Faust and Teresa in Cradle Song.
+ - I always have a full-length mirror next to the camera when I’m doing publicity stills. That way, I know how I look.
+ - I’ll think I have a few wonderful friends and all of a sudden, ooh, here it comes. They do a lot of things. They talk about you to the press, to their friends, tell stories, and you know, it’s disappointing.
+ - Everyones childhood plays itself out. No wonder no one knows the other or can completely understand.
+ - Nothing’s ever easy as long as you go on living.
+ - Someone said to me, ‘If fifty percent of the experts in Hollywood said you had no talent and should give up, what would you do?’ My answer was then and still is, ‘If a hundred percent told me that, all one hundred percent would be wrong.’
+ - What good am I? I can’t have kids. I can’t cook. I’ve been divorced three times. Who would want me?
+ - Being a sex symbol is a heavy load to carry, especially when one is tired, hurt and bewildered.
+ - I never wanted to be Marilyn – it just happened. Marilyn’s like a veil I wear over Norma Jeane.
+ - I’ve found men are less likely to let petty things annoy them.
+ - I have been told my eating habits are absolutely bizarre. But I don’t think so.
+ - Gee, I never thought I had an effect on people until I was in Korea.
+ - I used to get the feeling, and sometimes I still get it, that I was fooling somebody – I don’t know who or what – maybe myself. I have feelings some days where there are scenes with a lot of responsibility, and I’ll wish, ‘Gee, if only I had been a cleaning woman.’
+ - I love a natural look in pictures.
+ - I don’t want to play sex roles any more. I’m tired of being known as the girl with the shape.
+ - Consider the fellow. He never spends his time telling you about his previous night’s date. You get the idea he has eyes only for you and wouldn’t think of looking at another woman.
+ - I often wake up in the night, and I like to have something to think about.
+ - Men love you more if they can be made a little uncertain about owning you.
+ - I don’t digest things with my mind.
+ - Like any creative human being, I would like a bit more control so that it would be a little easier for me when the director says, ‘One tear, right now,’ that one tear would pop out.
+ - After all, all we demanded was a right to twinkle.
+ - It’s better to be angry without paying for gold than to be angry after you paid.
+ - The only thing a star asks is to be allowed to twinkle.
+ - It stirs up envy, fame does.
+ - The public doesn’t mind people living together without being married, providing they don’t overdo it.
+ - I was brought up differently than the average American child because the average child is brought up expecting to be happy.
+ - I have evolved my own exercises, for the muscles I wish to keep firm, and I know they are right for me because I can feel them putting the proper muscles into play as I exercise.
+ - The studio people want me to do “Good-bye Charlie” for the movies, but I’m not going to do it. I don’t like the idea of playing a man in a woman’s body – you know? It just doesn’t seem feminine.
+ - I have always felt comfortable in blue jeans. I have found it interesting, however, that people also whistle at blue jeans. I have to admit that I like mine to fit. There’s nothing I hate worse than baggy blue jeans.
+ - There is a need for aloneness, which I don’t think most people realise for an actor. It’s almost having certain kinds of secrets for yourself that you’ll let the whole world in on only for a moment, when you’re acting. But everybody is always tugging at you. They’d all like sort of a chunk of you.
+ - There isn’t anybody that looks like me without clothes on.
+ - I think every human being knows how to hate. Because if they didn’t know how to hate how to hate they wouldn’t know how to love.
+ - I’ve always wanted a baby.
+ - I learned to walk when I was ten months old and I’ve been walking this way ever since.
+ - I love a natural look in pictures. I like people with a feeling one way or another – it shows an inner life. I like to see that there’s something going on inside them.
+ - I just got to feel that whoever I marry has some real regard for me.
+ - It stirs up envy, fame does. People feel fame gives them some kind of privilege to walk up to you and say anything to you – and it won’t hurt your feelings – like it’s happening to your clothing.
+ - A man makes you feel important – makes you glad you are a woman.
+ - I’m for the individual as opposed to the corporation. The way it is the individual is the underdog, and with all the things a corporation has going for them the individual comes out banged on her head. The artist is nothing. It’s really tragic.
+ - It’s better for the whole world to know you, even as a sex star, than never to be known at all.
+ - With fame, you know, you can read about yourself, somebody else’s ideas about you, but what’s important is how you feel about yourself – for survival and living day to day with what comes up.
+ - I enjoy acting when you really hit it right. And I guess I’ve always had too much fantasy to be only a housewife.
+ - As long as I can remember, I’ve always loved people.
+ - Why is it you always meet people when you look your worst?
+ - A woman can’t be alone. She needs a man. A man and a woman support and strengthen each other. She just can’t do it by herself.
+ - Important people are much more interesting when they are drunk and seem much more like human beings.
+ - The working men, I’ll go by and they’ll whistle. At first they whistle because they think, ‘Oh, it’s a girl. She’s got blond hair and she’s not out of shape,’ and then they say, ‘Gosh, it’s Marilyn Monroe!’
+ - They’ve said I want to direct pictures. I couldn’t direct traffic.
+ - I want to be an artist, an actress with integrity, and that includes all kinds of parts.
+ - When I was five I think, that’s when I started wanting to be an actress.
+ - Things go wrong so that you appreciate them when they’re right.
+ - I feel that beauty and femininity are ageless.
+ - I myself would like to become more disciplined within my work.
+ - In fact, my popularity seems almost entirely a masculine phenomenon.
+ - Let yourself go, the pleasure of physical movement is so important. If that’s a problem, you say to yourself, what is there that I am afraid of, or hiding? Maybe your libido!
+ - In leaving Hollywood and coming to New York, I feel I can be more myself. After all, if I can’t be myself, what’s the good of being anything at all?
+ - One of the things I like best about men is they’re a little vulnerable.
+ - How do I know about a man’s needs for a sex symbol? I’m a girl.
+ - The fact is that I find more most men are more open, more generous, and much more stimulating than the majority of females I know.
+ - I wish I knew why I am so anguished.
+ - For life: it is rather a determination not to be overwhelmed. For work: the truth can only be recalled, never invented.
+ - The truth can only be recalled, never invented.
+ - Creativity has got to start with humanity.
+ - I don’t want everybody to see exactly where I live, what my sofa or my fireplace looks like.
+ - Confidentially, the type of male I find most enjoyable for a friend is one who has enough fire and assurance to speak up for his convictions.
+ - I used to say to myself, ‘What the devil have you got to be proud about, Marilyn Monroe?’ And I’d answer, ‘Everything, everything,’ and I’d walk slowly and turn my head slowly as if I were a queen.
+ - I wanted to ask a thousand questions, but there was no one to ask. Besides I knew that people only told lies to children-lies about everything from soup to Santa Claus.
+ - When you have only a single dream it is more than likely to come true – because you keep working toward it without getting mixed up.
+ - I am involved in a freedom ride protesting the loss of the minority rights belonging to the few remaining earthbound stars. All we demanded was our right to twinkle.
+ - It’s almost having certain kinds of secrets for yourself that you’ll let the whole world in on only for a moment.
+ - Happiness never becomes a habit.
+ - I once wanted to prove myself by being a great actress. Now I want to prove that I’m a person. Then maybe I’ll be a great actress.
+ - An actor is supposed to be a sensitive instrument.
+ - The one thing a person wants in life is usually something basic that money can’t buy.
+ - I’m going to be a great movie star some day.
+ - I don’t know if high society is different in other cities, but in Hollywood, important people can’t stand to be invited someplace that isn’t full of other important people. They don’t mind a few unfamous people being present because they make good listeners.
+ - Fame will go by and, so long, I’ve had you, fame. If it goes by, I’ve always known it was fickle. So at least it’s something I experience, but that’s not where I live.
+ - Someday I want to have children and give them all the love I never had.
+ - My work is the only ground I’ve ever had to stand on.
+ - When you’re famous you kind of run into human nature in a raw kind of way. It stirs up envy, fame does.
+ - I’ve fallen in love with Brooklyn. I’m going to buy a little house in Brooklyn and live there. I’ll go to the coast only when I have to make a picture.
+ - Arthur Miller wouldn’t have married me if I had been nothing but a dumb blonde.
+ - I’ve always felt toward the slightest scene, even if all I had to do in a scene was just to come in and say, ‘Hi,’ that the people ought to get their money’s worth and that this is an obligation of mine, to give them the best you can get from me.
+ - There is a future, and I can’t wait to get to it.
+ - A sweater is like life, you get nothing out of it that you don’t put into it!
+ - Girls shouldn’t worry about being the equal of men in the business world.
+ - If a man isn’t a certain age, he just isn’t interesting.
+ - If a star or studio chief or any other great movie personages find themselves sitting among a lot of nobodies, they get frightened – as if somebody was trying to demote them.
+ - It’s easier to look sexy when you’re thinking of one man in particular.
+ - Most people in the world are Christ lovers. And then there are Christ haters. But all of them are fixated on Christ, and he perpetuates for ever.
+ - Enjoy the fact that you’re a woman and men will enjoy it too.
+ - Women who try to be equivalent with men need desire.
+ - I always felt I was a nobody, and the only way for me to be somebody was to be – well, somebody else. Which is probably why I wanted to act.
+ - President Kennedy is very democratic and very penetrating.
+ - I’m looking forward to becoming a marvelous – excuse the word marvelous – character actress. like Marie Dressler, like Will Rogers.
+ - When I was 11, the whole world was closed to me. I just felt I was on the outside of the world.
+ - The ‘public’ scares me, but people I trust.
+ - It was my fans who made me a star.
+ - Fame has a special burden, which I might as well state here and now. I don’t mind being burdened with being glamorous and sexual. But what goes with it can be a burden.
+ - Fame may go by and – so long, I’ve had you.
+ - Having a child, that’s always been my biggest fear. I want a child and I fear a child.
+ - A woman can bring a new love to each man she loves, providing there are not too many.
+ - I didn’t mind being thought of as dumb. I knew I wasn’t.
+ - I think I have always had a little humor.
+ - I’ve always felt those articles somehow reveal more about the writers than they do about me.
+ - What good is it being Marilyn Monroe? Why can’t I just be an ordinary woman?
+ - I think one of the basic reasons men make good friends is that they can make up their minds quickly.
+ - You can read about yourself but what’s important is how you feel about yourself.
+ - Love is something you cant invent, no matter how much you want to.
+ - Doing a scene is like opening a bottle. If it doesn’t open one way, try another – perhaps even give it up for another bottle?
+ - Marriage destroyed my relationship with two wonderful men.
+ - If you can’t handle me at my worst, then you sure as hell shouldn’t schedule a meeting with me before 10am.
+ - I never used to bother with exercises. Now I spend at least 10 minutes each morning working out with small weights.
+ - You can’t sleep your way into being a star. It takes much, much more. But it helps a lot of actresses get their first chance that way.
+ - Acting isn’t something you do. Instead of doing it, it occurs. If you’re going to start with logic, you might as well give up. You can have conscious preparation, but you have unconscious results.
+ - I think that when you are famous every weakness is exaggerated.
+ - What’s the good of drawing in the next breath if all you do is let it out and draw in another?
+ - When I was a youngster I lived with different families. I nearly always felt closer to the man of the house. Maybe because I always dreamed of having a father of my own.
+ - At twelve I looked like a girl of seventeen. My body was developed and shapely. I still wore the blue dress and the blouse the orphanage provided. They made me look like an overgrown lummox.
+ - An actress is not a machine, but they treat you like a machine. A money machine.
+ - I like actors very much, but to marry one would be like marrying your brother. You look too much alike in the mirror.
+ - It is wonderful to have someone praise you, to be desired.
+ - Frankly, I’ve never considered my own figure so exceptional; until quite recently, I seldom gave it any thought at all.
+ - One of the best things that ever happened to me is that I’m a woman. That is the way all females should feel.
+ - I wanna be loved by you, just you, nobody else but you.
+ - I learned also that the best way to keep out of trouble was by never complaining or asking for anything.
+ - I enjoy acting when you really hit it right.
+ - I doubt if any doctor could recommend a more nourishing breakfast for a working girl in a hurry.
+
+384 quotes

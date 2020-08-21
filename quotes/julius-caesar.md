@@ -1,0 +1,50 @@
+ - Without training, they lacked knowledge. Without knowledge, they lacked confidence. Without confidence, they lacked victory.
+ - Experience is the teacher of all things.
+ - It is better to create than to learn. Creating is the essence of life.
+ - Fate, dear Brutus, lies not with the stars but within ourselves.
+ - If I fail it is only because I have too much pride and ambition.
+ - It is easier to find men who will volunteer to die, than to find those who are willing to endure pain with patience.
+ - A coward dies a thousand deaths, the gallant never tast of death but once.
+ - The greatest enemy will hide in the last place you would ever look.
+ - We have not to fear anything, except fear itself.
+ - To win by strategy is no less the role of a general than to win by arms.
+ - It’s only hubris if I fail.
+ - In the end, it is impossible not to become what others believe you are.
+ - I would rather be the first man in a barbarian village than the second man in Rome.
+ - The die has been cast.
+ - I love treason but hate a traitor.
+ - The difference between a republic and an empire is the loyalty of one’s army.
+ - Men willingly believe what they wish.
+ - Wine and other luxuries have a tendency to enervate the mind and make men less brave in battle.
+ - In war, important events result from trivial causes.
+ - He conquers twice, who shows mercy to the conquered.
+ - Cowards die many times before their actual deaths.
+ - Men’s minds tend to fear more keenly those things that are absent.
+ - Let me have men about me that are fat, Sleek-headed-men, and such as sleep o’nights; Yond Cassius has a lean and hungry look; he thinks too much; such men are dangerous.
+ - The Celts were fearless warriors because they wish to inculcate this as one of their leading tenets, that souls do not become extinct, but pass after death from one body to another...
+ - All bad precedents begin as justifiable measures.
+ - Arms and laws do not flourish together.
+ - Avoid an unusual and unfamiliar word just as you would a reef.
+ - Friends, Romans, countrymen, lend me your ears; I come to bury Caesar, not to praise him.
+ - As a rule, what is out of sight disturbs men’s minds more seriously than what they see.
+ - It is better to suffer once than to be in perpetual apprehension.
+ - As a result of a general defect of nature, we are either more confident or more fearful of unusual and unknown things.
+ - The things that we want we willingly believe, and the things that we think we expect everyone else to think.
+ - Go on, my friend, and fear nothing; you carry Caesar and his fortune in your boat.
+ - I am going to Spain to fight an army without a general, and thence to the East to fight a general without an army.
+ - I have lived long enough both in years and in accomplishments.
+ - War gives the right to the conquerors to impose any condition they please upon the vanquished.
+ - It is the custom of the immortal gods to grant temporary prosperity and a fairly long period of impunity to those whom they plan to punish for their crimes, so that they may feel it all the more keenly as a result of the change in their fortunes.
+ - Yond Cassius has a lean and hungry look.
+ - No music is so charming to my ear as the requests of my friends, and the supplications of those in want of my assistance.
+ - All Gaul is divided into three parts, one of which the Belgae inhabit, the Aquitani another, those who in their own language are called Celts, in ours Gauls, the third.
+ - All Gaul is divided into three parts.
+ - In war trivial causes produce momentous events.
+ - Men gladly believe what they wish. -Libenter homines id quod volunt credunt.
+ - Every woman’s man, and every man’s woman.
+ - I wished my wife to be not so much as suspected. Common traditional saying: Caesar’s wife must be above suspicion.
+ - After divorce of Pompeia in 62 BC I feel that members of my family should never be suspected of breaking the law. -Meos tam suspicione quam crimine iudico carere oportere.
+ - I believe that the members of my family must be as free from suspicion as from actual crime.
+ - I wished my wife to be not so much as suspected.
+
+48 quotes

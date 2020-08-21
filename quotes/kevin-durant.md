@@ -1,0 +1,88 @@
+ - I’m always hungry. I want to be the best.
+ - It’s hard to play well, but it’s easy to work hard.
+ - I know that the hard work got me here. And the day I stop working hard, this can all go away.
+ - So many people doubted me. They motivated me every single day, to be, who I am.
+ - Last, I just want to thank God again. He’s the first and the last. Alpha and Omega. I thank you for saving my life.
+ - First off, I’d like to thank God for changing my life. He let me really realize what life is all about. Basketball is just a platform, In order for me to inspire people. And I realize that.
+ - And I didn’t fall in love with the game of basketball just because it was me playing. I fell in love with it Because I got guys like this, Like these guys every single day That push me to be the best player I can be.
+ - I’ve learned what it feels like to lose, believe me. But I think, in the end, that is just going to make winning that much better.
+ - I fell so many times and got back up. I been through the toughest times with my family, but I’m still standing.
+ - My mother taught me to always be strong and always work hard. She’s been working hard her whole life for me and my brother. I’m a lot like her in that I work hard for what I want. She taught me that.
+ - I was the second-best player in high school. I was the second pick in the draft. I’ve been second in the MVP voting three times. I came in second in the Finals. I’m tired of being second. I’m not going to settle for that. I’m done with it.
+ - Our best years are only ahead of us, so we got to continue to keep pushing.
+ - Set the goal and work all days for it, until you achieve, I want to be a champion, the best!
+ - I’m an old-school type of guy.
+ - You gotta win. That’s all it takes.
+ - I’m a basketball player. That’s what I do and what I love but that’s just not all who I am. I’m talented in a lot of different areas.
+ - I go to sleep at night, like, ‘Am I gonna be alone forever?’
+ - We live in a world of what have you done for me lately. We don’t remember the day before sometimes. Think back five, six, years ago what he was doing. It’s unheard of.
+ - I just want to grow spiritually with the Lord. I’m keeping strong at it, just trying to make my walk with faith a little better.
+ - Music has always been a big part of my life. It’s kind of like a refuge for me. I just use it to get away.
+ - I’m here to shine a bright light. I’m not here to be a guy of death. I just like ‘KD’ better.
+ - The grass is not always greener on the other side. You learn to appreciate these people.
+ - It feels good to be a part of history.
+ - I’m a big competitor.
+ - I’ve got a long way to go to being the ultimate best, but I think my time is now. And I’m starting to enter my prime.
+ - This means the world to me That you guys are here celebrating with me. Thank you. Thank you. I can’t express it enough.
+ - With everything I do, I just try to be myself.
+ - I’m like a chameleon. I adapt to my situation. It’s very slowed down here. I like it that way. I’m a guy that’s very reserved, quiet and shy myself.
+ - And the game of basketball, I play, I play first off because I love it. I love to have fun. I love to run up and down the court.
+ - I Tweeted Keri Hilson the other day and she actually wrote back! I was so excited.
+ - I look at my jersey and see the NBA logo, I’m like, ‘I didn’t think I’d be here.’
+ - I don’t know what I’m going to do tomorrow. I just know for sure I’m going to keep playing basketball.
+ - I just loved being in the gym. It was tough at times. Sometimes I wanted to quit, but I’m glad I stuck with it.
+ - Work harder than your opponent.
+ - Jimmer Fredette is the best scorer in the world!!
+ - I would describe my style as off the wall. I like stuff that doesn’t match. I just like to stand out.
+ - I play because I have fun. The vets of this team, I just wanted to say thanks to them. You guys mean so much to me. I can have a terrible day and walk in the gym and have Hasheem smile at me. That will change my day.
+ - I’m busy working on every aspect of my game – defense, shooting, rebounding – but I really want to become a better overall team player. Help my teammates become better players out on the court in order to win more ball games.
+ - I was always in the gym. People would look at me crazy because I spent so much time there. But that’s what it was about. I’m glad I did it.
+ - Whoever want my spot can play me one-on-one for it.
+ - All this stuff is kind of surreal to me – Ididn’t think I’d be in the league or none of that. It was making it to college. That’s about it.
+ - You sacrificed for us. You’re the real MVP.
+ - People always think women meet us in the hotel lobby, but it’s the opposite. The majority of the time, you go out to eat with your teammates, then rest for the next day’s game. It’s not a vacation – most guys view the road as a business trip.
+ - This city, All they want us to be is ourselves. You love us how we are. We’re all a work in progress as men, And you still love us. And I thank you so much for embracing us.
+ - I feel as though I’ve proved myself these last five years that I can be one of the top players in the league.
+ - You hear all these stories about, ‘There’s one in a million guys that make it to the NBA and stay there.’ To see people cheering for me and when they say my name, it’s just crazy. It’s still crazy to me.
+ - Grateful for this opportunity with Roc Nation Sports. It’s go time.
+ - I always want to win because I never want to sit out on the sidelines outside.
+ - You know, I think more people should watch women’s basketball. It’d do so much for the game.
+ - I’ll play all five positions if my team needs me to.
+ - With a versatile player, there’s no spot on the court you can’t pass him the ball. You can do anything.
+ - It’s part of my game, getting to the free-throw line and being aggressive. If you say that I get superstar calls or I get babied by the refs, that’s just taking away from how I play. That’s disrespectful to me.
+ - All the support from all my friends, All my family over the years, I appreciate it.
+ - Every memory I had growing up was involving a basketball. I didn’t go to the prom and stuff like that. It was always basketball for me.
+ - I want to go down as a winner.
+ - I can score the basketball, but I think I can pass pretty well or I can make the correct pass. I’m not the type of guy who’s just going to throw the ball inbounds to a guy who’s wide open. I can make the right pass.
+ - In this league, experience means a lot.
+ - Twitter is a place where I can let people know what type of person I am, and I got some good feedback from it. More good than bad, so it’s a good outlet to let people know who I am.
+ - When people are used to you doing something, they want you to stay in that lane.
+ - My style has changed and evolved mainly because I’ve grown to have more confidence in myself.
+ - Basketball is just a platform for me to inspire people.
+ - My acting coach I’ve got here, Richard Lawson, he’s been doing good, just telling me to calm down sometimes and just be me.
+ - I probably play games more than I practice.
+ - I was just a big fan of tattoos always growing up, and I wanted something cool that symbolizes what I’ve been through in my life, and everything on my chest and my back is like a collage.
+ - Chemistry is important. If you like your teammates, it’s going to be easier to play with them on the court.
+ - My mom just wants to make sure that my heart is always in whatever I do and I’m in things for the right reasons.
+ - Everything has been such a whirlwind ever since I stepped foot in the league and everything has been like a dream, so I’m just blessed to be in this position.
+ - I like the nucleus that we have. I’m excited. I want to be here as long as possible. It’s like family. I love being here.
+ - If I’d gone straight to the NBA, I don’t think I would have been ready as a player or a person.
+ - You know, I don’t want to stand out too much.
+ - My dream was to become a Rec League coach. That’s what I wanted to do. I wanted to stay home, And help the kids out, And be a coach.
+ - When you got people behind you, you can do whatever.
+ - Hopefully before I’m done, I can be on an Olympic team.
+ - It feels good to come here and be a winning program.
+ - Perry, Jeremy, Man, Just knowing that you guys look up to me, And I can help you out so much, I could pull you to the side when we’re working out. And just as much as you think I’m making you better, You elevate my game.
+ - Every memory I have from when I was a kid involves basketball.
+ - I’ve just got to let my teammates know in practice, without even telling them, that I don’t think I’m ahead of anybody.
+ - I’m not a guy that’s going to brag or feel like I’m better than the group.
+ - I’ve heard a few times, in three or four years, this league is going to be yours. I don’t like that. Because I think I’m established now.
+ - I love Oklahoma. The fans have been with me every night. What more can you ask for?
+ - I want to be one of the best players in the game.
+ - I feel good doing it. It’s not like guys are stripping me at half-court or I’m just losing the ball dribbling. I think I’m handling the ball pretty well, just trying to make good passes, man.
+ - The clothes are not making me If I like it, that’s all that mattersIt’s not about the clothes. It’s about how I am as a person and how confident I am.
+ - If I continue to just get to the playoffs every year, I guess you could say I arrived, but right now I’m just trying to find my way.
+ - I learned how to pass when I was real young. That’s one thing I always knew how to do was find the open man.
+ - It’s fun that I get to live out my dream every single day. It’s a blessing. I can’t lose sight of that and I’ve just got to keep pushing.
+
+86 quotes

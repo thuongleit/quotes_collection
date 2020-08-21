@@ -1,0 +1,298 @@
+ - Not all readers are leaders, but all leaders are readers.
+ - It is amazing what you can accomplish if you do not care who gets the credit.
+ - If you can’t convince them, confuse them.
+ - Imperfect action is better than perfect inaction.
+ - You can’t get rich in politics unless you’re a crook.
+ - Work Hard. Do your best. Keep your word. Never get too big for your britches. Trust in God. Have no fear; and Never forget a friend.
+ - A society will be judged by how it treats its weakest members.
+ - If you can’t stand the heat, get out of the kitchen.
+ - I never did give them hell. I just told the truth, and they thought it was hell.
+ - An optimist is presented with a problem and sees an opportunity. A pessimist is presented with an opportunity and sees a problem.
+ - The only thing new in the world is the history you do not know.
+ - The ‘C’ students run the world.
+ - To be able to lead others, a man must be willing to go forward alone.
+ - No man should be allowed to be the President who does not understand hogs, or hasn’t been around a manure pile.
+ - Never kick a fresh turd on a hot day.
+ - Selfishness and greed, individual or national, cause most of our troubles.
+ - Tact is the ability to step on a man’s toes without messing up the shine on his shoes.
+ - If we do not want to die together in war, we must learn to live together in peace.
+ - A pessimist is one who makes difficulties of his opportunities and an optimist is one who makes opportunities of his difficulties.
+ - We must have strong minds, ready to accept facts as they are.
+ - We worship money instead of honour.
+ - I never sit on a fence. I am either on one side or another.
+ - America was not built on fear. America was built on courage, on imagination and an unbeatable determination to do the job at hand.
+ - If you don’t have your own goals, you’ll be doomed to work toward someone else’s.
+ - Once a government is committed to the principle of silencing the voice of opposition, it has only one way to go, and that is down the path of increasingly repressive measures, until it becomes a source of terror to all its citizens and creates a country where everyone lives in fear.
+ - Fame is a vapor, popularity is an accident, riches take wings, those who cheer today may curse tomorrow and only one thing endures – character.
+ - I felt like the moon, the stars, and all the planets had fallen on me.
+ - When the decision is up before you-and on my desk I have a motto which says “The buck stops here”-the decision has to be made.
+ - Men make history and not the other way around. In periods where there is no leadership, society stands still. Progress occurs when courageous, skillful leaders seize the opportunity to change things for the better.
+ - Give me a one-handed economist! All my economists say, On the one hand on the other.
+ - If you want to live like a Republican, you’ve got to vote for a Democrat.
+ - Our debt to the heroic men and valiant women in the service of our country can never be repaid. They have earned our undying gratitude. America will never forget their sacrifices.
+ - Politics is a fascinating game, because politics is government. It is the art of government.
+ - For some time I have been disturbed by the way the CIA has been diverted from its original assignment. It has become an operational and at times a policy making arm of the government.
+ - Actions are the seed of fate deeds grow into destiny.
+ - Peace is precious to us. It is the way of life we strive for with all the strength and wisdom we possess. But more precious than peace are freedom and justice. We will fight, if fight we must, to keep our freedom and to prevent justice from being destroyed.
+ - Without a strong educational system democracy is crippled. Knowledge is not only key to power. It is the citadel of human freedom.
+ - Religious and racial persecution is moronic at all times, perhaps the most idiotic of human stupidities.
+ - I found that the men and women who got to the top were those who did the jobs they had in hand, with everything they had of energy and enthusiasm and hard work.
+ - I can always get along with an honest friend.
+ - I have tried my best to give the nation everything I had in me. There are probably a million people who could have done the job better than I did it, but I had the job and I always quote an epitaph on a tombstone in a cemetery in Tombstone, Arizona: “Here lies Jack Williams. He done his damndest.”
+ - We have to get tough with the Russians. They don’t know how to behave. They are like bulls in a china shop. They are only 25 years old. We are over 100 and the British are centuries older. We have got to teach them how to behave.
+ - My choice early in life was either to be a piano player in a whorehouse or a politician. And to tell the truth, there’s hardly any difference.
+ - Always be sincere, even if you don’t mean it.
+ - I never would have agreed to the formulation of the Central Intelligence Agency back in forty-seven, if I had known it would become the American Gestapo.
+ - When you have to deal with a beast, you have to treat him as a beast. It is most regrettable but nevertheless true.
+ - There shall be equality of treatment and opportunity for all persons in the armed services without regard to race, color, religion or national origin.
+ - I’m the ultimately responsible person in this organization. Other people can pass the buck to me, but I can’t pass the buck to anyone else.
+ - The atomic bomb is too dangerous to be loose in a lawless world.
+ - There’s nothing better than cake but more cake.
+ - If we see that Germany is winning we ought to help Russia and if Russia is winning we ought to help Germany, and that way let them kill as many as possible.
+ - I fear we are too much concerned with material things to remember that our real strength lies in spiritual values.
+ - I can deal with Stalin. He is honest, but smart as hell.
+ - How do you live a long life? “Take a two-mile walk every morning before breakfast.”
+ - If there is one basic element in our Constitution, it is civilian control of the military.
+ - Our goal must not be peace in our time but peace for all time.
+ - Being President is a little bit like riding a tiger. You have to keep riding, or else you will be swallowed up by it!
+ - The best way to give advice to your children is to find out what they want and then advise them to do it.
+ - The White House is the finest prison in the world.
+ - A man who is not interested in politics is not doing his patriotic duty toward maintaining the constitution of the United States.
+ - In this shrinking world, it is futile to seek safety behind geographical barriers. Real security will be found only in law and in justice.
+ - We must build a new world, a far better world – one in which the eternal dignity of man is respected.
+ - I wonder how many times you have to be hit on the head before you find out who’s hitting you? It’s about time that the people of America realized what the Republicans have been doing to them.
+ - The United Nations is designed to make possible lasting freedom and independence for all its members.
+ - Secrecy and a free, democratic government don’t mix.
+ - There is no gratitude for things past. Gratitude is always for what you’re going to do for people in the future.
+ - A bureaucrat is a Democrat who holds some office that a Republican wants.
+ - We seek a peaceful world, a prosperous world, a free world, a world of good neighbors, living on terms of equality and mutual respect, as Canada and the United States have lived for generations.
+ - But all of us-at home, at war, wherever we may be-are within the reach of God’s love and power. We all can pray. We all should pray. We should ask the fulfillment of God’s will.
+ - Being too good is apt to be uninteresting.
+ - When we understand the other fellow’s viewpoint – understand what he is trying to do – nine times out of ten he is trying to do right.
+ - No nation on this globe should be more internationally minded than America because it was built by all nations.
+ - You should never form judgments from front page headlines. As with a contract, the fine print on the inside pages should be carefully studied.
+ - A President cannot always be popular.
+ - When even one American – who has done nothing wrong – is forced by fear to shut his mind and close his mouth – then all Americans are in peril.
+ - I don’t give a damn about “The Missouri Waltz” but I can’t say it out loud because it’s the song of Missouri. It’s as bad as “The Star-Spangled Banner” so far as music is concerned.
+ - It is understanding that gives us an ability to have peace. When we understand the other fellow’s viewpoint, and he understands ours, then we can sit down and work out our differences.
+ - In periods where there is no leadership, society stands still.
+ - When you have an efficient government, you have a dictatorship.
+ - It isn’t polls or public opinion at the moment that counts. It is right and wrong and leadership – men with fortitude, honesty, and a belief in the right that makes epochs in the history of the world.
+ - Given the choice between a Republican and someone who acts like a Republican, people will vote for the real Republican all the time.
+ - I can assure you that flying saucers, given that they exist, are not constructed by any power on Earth.
+ - Term limits would cure both senility and seniority- both terrible legislative diseases.
+ - I’m very proud that I’m smart enough to get to the point.
+ - Prosperous farmers make for a prosperous nation, and when farmers are in trouble, the nation is in trouble.
+ - My favorite animal is the mule. He has more horse sense than a horse. He knows when to stop eating – and he knows when to stop working.
+ - The Marine Corps is the Navy’s police force and as long as I am President that is what it will remain. They have a propaganda machine that is almost equal to Stalin’s.
+ - As you get older, you get tired of doing the same things over and over again, so you think Christmas has changed. It hasn’t. It’s you who has changed.
+ - Ignorance and its hand-maidens, prejudice, intolerance, suspicion of our fellowman, breed dictators and breed wars.
+ - The atom bomb was no ‘great decision.’ It was merely another powerful weapon in the arsenal of righteousness.
+ - The greatest honor that has come to me, and that can ever come to me in my life, is to be Grand Master of Masons in Missouri.
+ - Men often mistake notoriety for fame, and would rather be noticed for their vices than not be noticed at all.
+ - It’s plain hokum. If you can’t convince ’em, confuse ’em. It’s an old political trick. But this time it won’t work.
+ - We all have to recognise, no matter how great our strength, that we must deny ourselves the licence to do always as we please.
+ - Every segment of our population, and every individual, has a right to expect from his government a fair deal.
+ - Canada and the United States have reached the point where we no longer think of each other as ‘foreign’ countries. We think of each other as friends, as peaceful and cooperative neighbors on a spacious and fruitful continent.
+ - Here lies Jack Williams. He done his damndest.
+ - May the sun never set on American baseball.
+ - All my life I have fought against prejudice and intolerance.
+ - The true foundation of the brotherhood of humankind is belief in the knowledge that God is the Father of humankind. For us, therefore, brotherhood is not only a generous impulse but also a divine command.
+ - The fundamental basis of this Nation’s law was given to Moses on the Mount. The fundamental basis of our Bill of Rights comes from the teachings which we get from Exodus and St. Matthew, from Isaiah and St. Paul.
+ - If we do not abolish war on this earth, then surely one day war will abolish us from the earth.
+ - There is no more fundamental axiom of American freedom than the familiar statement: In a free country we punish men for the crimes they commit but never for the opinions they have.
+ - If I hadn’t been President of the United States, I probably would have ended up a piano player in a bawdy house.
+ - The Republicans believe in the minimum wage – the more the minimum, the better.
+ - There is enough in the world for everyone to have plenty, to live happily, and to be at peace with his neighbors.
+ - I said that an expert was a fella who was afraid to learn anything new because then he wouldn’t be an expert anymore.
+ - You can always amend a big plan, but you can never expand a little one. I don’t believe in little plans. I believe in plans big enough to meet a situation which we can’t possibly foresee now.
+ - Once a decision was made, I didn’t worry about it afterward...
+ - Any man who has had the job I’ve had and didn’t have a sense of humor wouldn’t still be here.
+ - The America to which these Swedish settlers came was a land that needed the hardy qualities they brought. It was not a land that was particularly softhearted towards newcomers, but everyone believed that each should have a fair chance regardless of his origin.
+ - Although I hold the highest civil honour in the world, I have always regarded my rank and title as a Past Grand Master of Masons the greatest honour that had ever come to me.
+ - Some questions cannot be answered, but they can be decided.
+ - France is France and a grand place for Frenchman.
+ - The United States should not under any circumstances throw away our gun until we are sure the rest of the world cannot arm against us.
+ - Any story worth telling is worth exaggerating.
+ - A person who is fundamentally honest doesn’t need a code of ethics. The Ten Commandments and the Sermon on the Mount are all the ethical code anybody needs.
+ - The absence of war is not peace.
+ - Three things ruin a man: power, money, and women. I never wanted power. I never had any money, and the only woman in my life is up at the house right now.
+ - The most peaceful thing in the world is plowing a field. Chances are you’ll do your best thinking that way.
+ - Brave men don’t belong to any one country. I respect bravery wherever I see it.
+ - Nixon is one of the few in the history of this country to run for high office talking out of both sides of his mouth at the same time and lying out of both sides.
+ - The seeds of totalitarian regimes are nurtured by misery and want.
+ - We are trying to prevent a third world war.
+ - The most peaceful thing in the world is plowing a field. Chances are you’ll do your best thinking that way. And that’s why I’ve always thought and said, farmers are the smartest people in the world, they don’t go for high hats and they can spot a phony a mile off.
+ - No one in the world can take the place of your mother. Right or wrong, from her viewpoint you are always right. She may scold you for little things, but never for the big ones.
+ - If that’s art, I’m a Hottentot!
+ - We should resolve now that the health of this nation is a national concern; that financial barriers in the way of attaining health shall be removed; that the health of all it’s citizens deserves the help of all the nation.
+ - Canada is a broad land – broad in mind, broad in spirit, and broad in physical expanse.
+ - I don’t feel qualified to be president either, but I’ve got the job.
+ - You know that being an American is more than a matter of where your parents came from. It is a belief that all men are created free and equal and that everyone deserves an even break.
+ - Here we now have the freedom of all religions, and I hope that never again will we have a repetition of religious bigotry, as we have had in certain periods of our own history. There is no room for that kind of foolishness here.
+ - Those who want the Government to regulate matters of the mind and spirit are like men who are so afraid of being murdered that they commit suicide to avoid assassination.
+ - You know of our sympathetic interest in this country in Iran’s desire to control its natural resources. From this point of view we were happy to see that the British Government has on its part accepted the principle of nationalization.
+ - Andrew Johnson wasn’t too bad, but he was overwhelmed by a hostile Congress.
+ - You and I are stuck with the necessity of taking the worst of two evils or none at all. So-I’m taking the immature Democrat as the best of the two. Nixon is impossible.
+ - He “wasn’t used to being criticized, and he never did get it through his head that’s what politics is all about. He was used to getting his ass kissed.”
+ - I had faith in Israel before it was established, I have faith in it now.
+ - The world has experienced a revival of an old faith in the everlasting moral force of justice. At no time in history has there been a more important Conference, or a more necessary meeting, than this one in San Francisco, which you are opening today.
+ - A president either is constantly on top of events or, if he hesitates, events will soon be on top of him. I never felt that I could let up for a moment.
+ - A leader in the Democratic Party is a boss, in the Republican Party he is a leader.
+ - I believe in the brotherhood of man, not merely the brotherhood of white men but the brotherhood of all men before law.
+ - He wanted to know what assurance we could give the American people that we aren’t getting the tar licked out of us by the North Korean army. It has never happened to us. It won’t happen this time.
+ - Everybody is headed for the same place, and they are headed on the same train, and under the same engineer.
+ - Our efforts have brought new hope to all mankind. We have beaten back despair and defeatism. We have saved a number of countries from losing their liberty. Hundreds of millions of people all over the world now agree with us, that we need not have war-that we can have peace.
+ - This is a Christian nation.
+ - Millions do not now have protection or security against the economic effects of sickness.
+ - I have little patience with people who take the Bill of Rights for granted. The Bill of Rights, contained in the first ten amendments to the Constitution, is every American’s guarantee of freedom.
+ - I have no desire to crow over anybody or to see anybody eating crow, figuratively or otherwise. We should all get together and make a country in which everybody can eat turkey whenever he pleases.
+ - There is a lure in power. It can get into a man’s blood just as gambling and lust for money have been known to do.
+ - The Republican Party either corrupts its liberals or it expels them.
+ - When a High Explosive shell bursts in fifteen feet and does you no damage, you can bet your sweet life you bear a charmed life and no mistake.
+ - If I’d known how much packing I’d have to do, I’d have run again.
+ - It sure is hell to be president.
+ - My father was not a failure. After all, he was the father of a president of the United States.
+ - We have found that it is easier for men to die together on the field of battle than it is for them to live together at home in peace.
+ - I sincerely regret the unfortunate choice of language, which I used in my letter of Aug 29 to Congress McDonough concerning the Marine Corps...
+ - This administration is going to be cussed and discussed for years to come.
+ - In the simplest of terms, what we are doing in Korea is this: We are trying to prevent a third world war.
+ - Study men, not historians.
+ - I think there is an immense shortage of Christian charity among so-called Christians.
+ - You members of this Conference are to be the architects of the better world. In your hands rests our future.
+ - All will concede that in order to have good neighbors, we must also be good neighbors. That applies in every field of human endeavor.
+ - When you get to be President, there are all those things, the honors, the twenty-one gun salutes, all those things. You have to remember it isn’t for you. It’s for the Presidency.
+ - I’ve had a few setbacks in my life, but I never gave up.
+ - The United States recognizes the provisional government as the de facto authority of the new State of Israel.
+ - The responsibility of the great states is to serve, and not to dominate, the world.
+ - One of the difficulties with all our institutions is the fact that we’ve emphasized the reward instead of the service.
+ - I do not believe in shooting anything that cannot shoot back.
+ - May we Americans all live up to our glorious heritage.
+ - Today, America has become one of the most powerful forces for good on earth. We must keep it so.
+ - Justice remains the greatest power on earth. To that tremendous power alone will we submit.
+ - About the meanest thing you can say about a man is that he means well.
+ - Of course, there are dangers in religious freedom and freedom of opinion. But to deny these rights is worse than dangerous, it is absolutely fatal to liberty.
+ - I got very well acquainted with Joe Stalin, and I like old Joe! He is a decent fellow. But Joe is a prisoner of the Politburo.
+ - We believe that all men are created equal because they are created in the image of God.
+ - Whenever the press quits abusing me, I know I’m in the wrong pew.
+ - Of course I believe in free enterprise but in my system of free enterprise, the democratic principle is that there never was, never has been, never will be, room for the ruthless exploitation of the many for the benefit of the few.
+ - It is through generous giving, that we affirm before the world, our nation’s faith in the inalienable right of every man, to a life of freedom, justice and security.
+ - Men make history. History does not make the man.
+ - I do not understand a mind which sees a gracious beneficence in spending money to slay and maim human beings in almost unimaginable numbers and deprecates the expenditure of a smaller sum to patch up the ills of mankind.
+ - It’s tougher to be a football coach than the President of the United States. You’ve got four years as a president, and they guard you. A football coach doesn’t have anyone to protect him when things go wrong.
+ - People are very much wrought up about the Communist bugaboo.
+ - How far would Moses have gone if he had taken a poll in Egypt?
+ - The stress stops here.
+ - I remember when I first came to Washington. For the first six months you wonder how the hell you ever got here. For the next six months you wonder how the hell the rest of them ever got here.
+ - Dictatorship, by whatever name, is founded on the doctrine that the individual amounts to nothing; that the State is the only one that counts; and that men and women and children were put on earth solely for the purpose of serving the state.
+ - A politician is a man who understands government. A statesman is a politician who’s been dead for 15 years.
+ - Washington is a very easy city for you to forget where you came from and why you got there in the first place.
+ - No one who has not had the responsibility can really understand what it is like to be President, not even his closest aides or members of his immediate family. There is no end to the chain of responsibility that binds him, and he is never allowed to forget that he is President.
+ - If you think somebody is telling a big lie about you, the only way to answer is with the whole truth.
+ - You want a friend in Washington? Get a dog.
+ - A man cannot have character unless he lives within a fundamental system of morals that creates character.
+ - I believe that we must assist free peoples to work out their own destinies in their own way.
+ - He’ll sit there are he’ll say “Do this! Do that!” and nothing will happen. Poor Ike – it won’t be a bit like the army.
+ - Human life is something that comes to us from beyond this world, and the purpose of our society is to cherish it and to enable the individual to attain the highest achievement of which he is capable.
+ - A President needs political understanding to run the government, but he may be elected without it.
+ - The way in which you endure that which you must endure is more important than the crisis itself.
+ - This attack has made it clear, beyond all doubt, that the international Communist movement is willing to use armed invasion to conquer independent nations. An act of aggression such as this creates a very real danger to the security of all free nations.
+ - This government has been informed that a Jewish state has been proclaimed in Palestine, and recognition has been requested by the provisional government thereof. The United States recognizes the provisional government as the de facto authority of the new State of Israel.
+ - Carry the battle to them. Don’t let them bring it to you. Put them on the defensive and don’t ever apologize for anything.
+ - When the Liberals said they were going to create a million new jobs, I didn’t think they were all going to be tax collectors. If you can’t convince them, confuse them.
+ - Democracy alone can supply the vitalizing force to stir the peoples of the world into triumphant action, not only against their human oppressors, but also against their ancient enemies-hunger, misery, and despair.
+ - Upon books the collective education of the race depends; they are the sole instruments of registering, perpetuating and transmitting thought.
+ - Such an atmosphere is un-American, the most un-American thing we have to contend with today. It is the climate of a totalitarian country in which scientists are expected to change their theories to match changes in the police state’s propaganda line.
+ - I would rather have peace in the world than be President.
+ - But Quantrill and his men were no more bandits than the men on the other side. I’ve been to reunions of Quantrill’s men two or three times. All they were trying to do was protect the property on the Missouri side of the line...
+ - I don’t believe in anti-anything. A man has to have a program; you have to be for something. Otherwise, you will never get anywhere.
+ - The United States is not so strong, the final triumph of the democratic ideal is not so inevitable that we can ignore what the world thinks of us or our record.
+ - The President hears a hundred voices telling him that he is the greatest man in the world. He must listen carefully indeed to hear the one voice that tells him his is not.
+ - Well, I wouldn’t say that I was in the great class, but I had a great time while I was trying to be great.
+ - Art is parasitic on life, just as criticism is parasitic on art.
+ - If you want to get elected, shake hands with 25, 000 people between and November 7.
+ - I’ve said many a time that I think the Un-American Activities Committee in the House of Representatives was the most un-American thing in America!
+ - I come to the office each morning and stay for long hours doing what has to be done to the best of my ability. And when you’ve done the best you can, you can’t do any better.
+ - The human animal cannot be trusted for anything good except en masse. The combined thought and action of the whole people of any race, creed or nationality, will always point in the right direction.
+ - This generation, raised on “Eyewitness News,” conditioned by the instant replay, and spared the illumination that comes from tedious historical study, tends to be even more ahistorical than most.
+ - Experience has shown how deeply the seeds of war are planted by economic rivalry and social injustice.
+ - John Adams and Thomas Jefferson were political enemies, but they became fast friends. And when they passed away on the same day, the last words of one of them was, The country is safe. Jefferson still lives. And the last words of the other was, John Adams will see that things go forward.
+ - I have to decide Japanese strategy – shall we invade Japan proper or shall we bomb and blockade? That is my hardest decision to date. But I’ll make it when I have all the facts.
+ - Partisanship must end at the waters edge.
+ - We must help to the limits of our strength. And we will.
+ - Some of the presidents were great and some of them weren’t. I can say that, because I wasn’t one of the great presidents, but I had a good time trying to be one, I can tell you that.
+ - We must face the fact that peace must be built on power, as well as upon good will and good deeds.
+ - The Republican party still helps the rich and sticks a knife in the back of the poor.
+ - I always considered statesmen to be more expendable than soldiers.
+ - The Marshall Plan will go down in history as one of America’s greatest contributions to the peace of the world.
+ - Children and dogs are as necessary to the welfare of the country as Wall Street and the railroads.
+ - A man who is influenced by the polls or is afraid to make decisions which make him unpopular is not a man to represent the welfare of the country.
+ - All through history it’s the nations that have given most to generals and the least to the people that have been the first to fall.
+ - Whenever you put a man on the Supreme Court he ceases to be your friend.
+ - It doesn’t matter how big a ranch you own or how many cows you brand, the size of your funeral is still gonna depend on the weather.
+ - All the president is, is a glorified public relations man who spends his time flattering, kissing, and kicking people to get them to do what they are supposed to do anyway.
+ - Beware of the guy praying loudest in the amen corner.
+ - I believe that it must be the policy of the United States to support free peoples who are resisting attempted subjugation by armed minorities or by outside pressures.
+ - Why, this fellow doesn’t know any more about politics than a pig knows about Sunday.
+ - We can never tell what is in store for us.
+ - I sit here all day trying to persuade people to do the things they ought to have the sense to do without my persuading them. That’s all the powers of the President amount to.
+ - I like riding a bicycle built for two – by myself.
+ - Most of the problems a President has to face have their roots in the past.
+ - I enjoyed my new position as vice president, but it took me a while to get used to the fact that I no longer had the voting privileges I had enjoyed for 10 years as a senator.
+ - We can all pray. We all should pray. We should ask the fulfillment of Gods will. We should ask for courage, wisdom, for the quietness of soul which comes alone to them who place their lives in His hands.
+ - The United States, which would live on Christian principles with all of the peoples of the world, cannot omit a fair deal for its own Indian citizens.
+ - I don’t want this office, this responsibility, any longer, even if you want me. Find the strongest and most able and God bless you. Good-bye.
+ - To me party platforms are contracts with the people.
+ - I had faith in Israel before it was established, I have in it now. I believe it has a glorious future before it – not just another sovereign nation, but as an embodiment of the great ideals of our civilization.
+ - I am proud of my part in the creation of this new state. Our Government was the first to recognize the State of Israel.
+ - I consider Monroe a pretty minor president. In spite of the Monroe Doctrine. That’s the only important thing he ever did more or less on his own, when you really get down to it.
+ - The United States has become great because we, as a people, have been able to work together for great objectives even while differing about details.
+ - There is some risk involved in action, there always is. But there is far more risk in failure to act.
+ - Democracy is based on the conviction that man has the moral and intellectual capacity, as well as the inalienable right, to govern himself with reason and justice.
+ - Republicans don’t like people to talk about depressions. You can hardly blame them for that. You remember the old saying: Don’t talk about rope in the house where somebody has been hanged.
+ - In the long view, no nation is any healthier than its children.
+ - It is time that all Americans realized that the place of labor is side by side with the businessman and with the farmer, and not one-degree lower.
+ - The only things worth learning are the things you learn after you know it all.
+ - Yours is not the task of making your way in the world, but the task of remaking the world which you will find before you.
+ - Whenever a man does the best he can, then that is all he can do.
+ - The President is always abused. If he isn’t, he isn’t doing anything.
+ - You can never get all the facts from just one newspaper, and unless you have all the facts, you cannot make proper judgements about what is going on.
+ - It can be lost, and it will be, if the time ever comes when these documents are regarded not as the supreme expression of our profound belief, but merely as curiosities in glass cases.
+ - I do not believe there is a problem in this country or the world today which could not be settled if approached through the teaching of the Sermon on the Mount.
+ - If wars in the future are to be prevented the nations must be united in their determination to keep the peace under law.
+ - A leader has to lead otherwise he has no business in politics.
+ - Never, never waste a minute on regret. It’s a waste of time.
+ - The record proves that in peaceful commerce the combined efforts of our countries can produce outstanding results. Our trade with each other is far greater than that of any other two nations on earth.
+ - In most of my campaigns, I find it is best not to mention my opponent by name because, by doing so, it just gives him a chance to get into the headlines.
+ - When contemplating General Eisenhower winning the Presidential election, Truman said, Hell sit here, and hell say, Do this! Do that! And nothing will happen. Poor Ikeit wont be a bit like the Army. Hell find it very frustrating.
+ - We shall never be able to remove suspicion and fear as potential causes of war until communication is permitted to flow, free and open, across international boundaries.
+ - The successful man has enthusiasm. Good work is never done in cold blood; heat is needed for forge anything. Every great achievement is the story of a flaming heart.
+ - Everybody has the right to express what he thinks. That, of course, lets the crackpots in. But if you cannot tell a crackpot when you see one, then you ought to be taken in.
+ - When we refused to be forced out of Berlin, we demonstrated to the people of Europe that with their cooperation we would act, and act resolutely, when their freedom was threatened.
+ - Whenever a fellow tells me he’s bipartisan, I know he’s going to vote against me.
+ - There are always a lot of people so afraid of rocking the boat that they stop rowing. We can never get ahead that way.
+ - We must remember that the test of our religious principles lies not just in what we say, not only in our prayers, not even in living blameless lives – but in what we do for others.
+ - For reasons of national security and out of consideration for some people still alive I have omitted certain material. Some of this material cannot be made available for many years, perhaps for many generations.
+ - Nothing is more important in our national life than the welfare of our children.
+ - At the present moment in world history nearly every nation must choose between alternative ways of life. The choice is too often not a free one.
+ - To reporters the day after his accession to the presidency, April 13, 1945: When they told me yesterday what had happened, I felt like the moon, the stars and all the planets had fallen on me.
+ - It is understanding that gives us an ability to have peace.
+ - The only thing you have to worry about is bad luck. I never had bad luck.
+ - Some of my best friends never agree with me politically.
+ - It’s not the hand that signs the laws that holds the destiny of America. It’s the hand that casts the ballot.
+ - On tight money: It reflects a reversion to the old idea that the tree can be fertilized at the top instead of at the bottom – the old trickle-down theory.
+ - Canadian-American relations for many years did not develop spontaneously. The example of accord provided by our two countries did not come about merely through the happy circumstance of geography. It is compounded of one part proximity and nine parts good will and common sense.
+ - In my opinion eight years as president is enough and sometimes too much for any man to serve in that capacity.
+ - It is ignorance that causes most mistakes.
+ - The difficulty with businessmen entering politics, after they’ve had a successful business career, is that they want to start at the top.
+ - If you tell Congress everything about the world situation, they get hysterical. If you tell them nothing, they go fishing.
+ - The friendless, the weak, the victims of prejudice and public excitement are entitled to the same quality of justice and fair play that the rich, the powerful, the well-connected, and the fellow with pull thinks he can get.
+ - I have had enough experience in all my years, and have read enough of the past, to know that advice to grandchildren is usually wasted.
+ - When you can’t do any housecleaning because everything that goes on is a damned secret, then we’re on our way to something the Founding Fathers didn’t have in mind. Secrecy and a free, democratic government don’t mix.
+ - The Russians are liars – you can’t trust them. At Potsdam they agreed to everything and broke their word. It’s too bad the second world power is like this, but that’s the way it is, and we must keep our strength.
+ - With firm faith in our hearts, to sustain us along the hard road to victory, we will find our way to a secure peace, for the ultimate benefit of all humanity.
+ - Intense feeling too often obscures the truth.
+ - It’s a recession when your neighbor loses his job; it’s a depression when you lose your own.
+ - A leader is the man who has the ability to get other people to do what they don’t want to do, and like it.
+
+296 quotes

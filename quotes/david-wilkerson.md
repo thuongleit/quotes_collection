@@ -1,0 +1,63 @@
+ - Love is not only something you feel, it is something you do.
+ - Faith comes by hearing all the Word, not just preferred sections.
+ - When you strip it of everything else, Pentecost stands for power and life. That’s what came into the church when the Holy Spirit came down on the day of Pentecost.
+ - Most Christians never associate joy with repentance. But repentance is actually the mother of all joy in Jesus. Without it, there can be no joy. Yet, any believer who walks in repentance will be flooded with the joy of the Lord.
+ - God uses people. God uses people to perform His work. He does not send angels. Angels weep over it, but God does not use angels to accomplish His purposes. He uses burdened broken-hearted weeping men and women.
+ - A watered down gospel is no gospel at all.
+ - Faith is not to get you out of a hard place but to change your heart in the hard place.
+ - Biblical hope is not wishful thinking or an optimistic outlook; rather, it is a confident expectation based on the certainty of God’s Word that as He has anchored us in the past, so He will in the future.
+ - Our faith is not meant to get us out of a hard place or change our painful condition. Rather, it is meant to reveal God’s faithfulness to us in the midst of our dire situation.
+ - You see, growing in grace doesn’t mean doing more or greater things for God. True growth comes in doing the same things over and over, with more heart assurance that we’re doing everything for Him.
+ - How quickly we forget God’s great deliverances in our lives. How easily we take for granted the miracles he performed in our past.
+ - Blessed are those who believe when there is no evidence of an answer to prayer.
+ - A humble person is not one who thinks little of himself, hangs his head and says, “I’m nothing.” Rather, he is one who depends wholly on the Lord for everything, in every circumstance.
+ - Likewise today, some Christians are content to merely exist until they die. They don’t want to risk anything, to believe God, to grow or mature. They refuse to believe his Word, and have become hardened in their unbelief. Now they’re living just to die.
+ - God does sometimes change our trying circumstances. But more often, He doesn’t – because He wants to change us.
+ - Drugs, what a devil-inspired poison! It’s death on the installment plan.
+ - I’m not about to put up a silly skit and preach a 15-minute message on ‘how to cope’ to a multitude of people who are dying and going to hell. I tremble at the thought.
+ - We want his power more than his purity.
+ - You asked the Holy Spirit for a miracle, and now that you’ve got one you’re trying to argue it away. People who don’t believe in miracles shouldn’t pray for them.
+ - How can you know when you are trusting in man rather than in God? If you fall apart when someone else lets you down, or if the actions of others affect your walk with God, then you know you are leaning on the arm of flesh!
+ - I have questioned God sometimes whether prayers have gone unanswered. But answered prayer is still harder to believe.
+ - Beloved, God has never failed to act but in goodness and love. When all means fail-his love prevails. Hold fast to your faith. Stand fast in his Word. There is no other hope in this world.
+ - After much prayer, careful study and reliance on the Holy Spirit, I have concluded this about Christ’s intercession for us. Jesus died on the cross to purchase peace with God for me – and He is in heaven now to maintain that peace, for me and in me.
+ - At its heart, legalism is a desire to appear holy. It is trying to be justified before men and not God.
+ - From the beginning, this has been a faith-based ministry.
+ - Our nation is being led astray by ungodly judges, mayors and governors, who are given to change, defying the Constitution and substituting their own wicked agendas.
+ - Many of those who once were so passionately in love with Christ now run about pursuing their own interests. They’re burdened down with stress and problems, chasing after riches and the things of this world.
+ - Worshippers aren’t made when they see the enemy on the run, put to flight. The truth is, worshippers of God are made during dark, stormy nights. And how we respond to our storms determines just what kind of worshippers we are.
+ - Riches and the things that are necessary in life are not evil in themselves. And all of us face cares and troubles in this life. The sin comes in the time and energy we spend in pursuing these things, at the expense of neglecting Christ.
+ - True freedom from fear consists of totally resigning one’s life into the hands of the Lord.
+ - God does not accept weak, boring, halfhearted worship!
+ - As I look back over fifty years of ministry, I recall innumerable tests, trials and times of crushing pain. But through it all, the Lord has proven faithful, loving, and totally true to all his promises.
+ - When God sets His heart on you, you will be tried often. But the longer and harder your affliction, the more deeply God has set His heart on you, to show you His love and care.
+ - We are blood-secured, delivered from the enemy’s power, and raised up into newness of life in God.
+ - To believe when all means fail is exceedingly pleasing to God and is most acceptable.
+ - If you are experiencing confusion, pain, and suffering, it may be that God is working things out for you in his own way. It is most often the sovereign work of our God unfolding a master plan known only to him.
+ - Recently I prayed, “Lord, I want to know your peace at all costs. I won’t listen to the devil’s lies any longer. I know my salvation is not in my performance. No, Jesus, you alone plead my case. I rest in what you’ve done for me.” Can you say the same by faith?
+ - I believe in walking in the Spirit.
+ - Jesus didn’t save you so you could cruise to heaven in a luxury liner. He wants you to be useful in His kingdom! The moment you got saved, He enrolled you in His school the school of suffering and affliction.
+ - The church used to confess its sin, now it confesses its right.
+ - God has never, in the history of mankind, allowed His name to go long offended.
+ - A final word: I am not knowledgeable about the internet. I do not have a computer. I guess that at 74 years of age, I don’t have the patience to learn.
+ - Eighteen years ago, the Holy Spirit led me to establish a church in the heart of Times Square.
+ - Christ died to save this lost world; he did not come to destroy, maim or pour out wrath.
+ - Our ministry is debt free and we have not had to beg or plead for finances.
+ - The day you learn to be publically specific in your prayer, that is the day you will discover power.
+ - The greatest fear that haunts this city is a suitcase bomb, nuclear or germ. Many people carry small gas masks. The masses here seem to be resigned to the inevitable, believing an attack of major proportions will happen.
+ - As far as the Lord is concerned, the time to stand is in the darkest moment. It is when everything seems hopeless, when there appears no way out, when God alone can deliver.
+ - Our ministry is supported entirely by faith, through the missions gifts of readers who receive my messages every three weeks. We seldom mention money, and we never burden supporters.
+ - We simply can’t trust God’s power fully until we experience it in the midst of our crisis.
+ - America is a giving nation and very compassionate.
+ - Christ does not inhabit buildings or a certain atmosphere; in fact, the very heavens cannot contain Him. Rather, He is manifested through our obedient, sanctified bodies-His temples.
+ - I am not officially involved now in the direction of the Teen Challenge ministry, but I rejoice that God permits me to be the father of these ministries.
+ - I have no ghost writers. I personally write every message and every piece of published mail.
+ - In these times, God’s people must trust him for rest of body and soul.
+ - We humans can work hard for each other, and we should and we must work. But it is God, and only God, who heals.
+ - Both of our daughters, Debbie and Bonnie, are also cancer survivors.
+ - The Teen Challenge Training Center on Pennsylvania farmland houses over 200 men in rehab. Other farms and centers have been birthed out of this ministry all over the world.
+ - Every Teen Challenge ministry is responsible for raising its own finances, but we assist these works with finances, prayer and counseling, especially overseas in areas such as Siberia, Africa, South America.
+ - The Teen Challenge ministry was born out of those humble early days of ministry. It now includes over 500 drug and alcohol rehab centers around the world, even in Muslim countries. These include homes for girls and women addicts and alcoholics, all which are reaching many.
+ - Also, I preached to gangs on the streets of Manhattan, Brooklyn and the Bronx – and miracles began to happen.
+
+61 quotes

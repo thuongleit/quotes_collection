@@ -1,0 +1,54 @@
+ - Which would be worse, to live as a monster or to die as a good man?
+ - The brain controls pain. It controls fear. Sleep. Empathy. Hunger. Everything we associate with the heart or the soul or the nervous system is actually controlled by the brain. Everything. What if you could control it?
+ - The foundation of your life is luck. Hard work and talent make up the difference.
+ - Narrative becomes the way you make sense of chaos. That’s how you focus the world. It’s the only reason you should ever try this writing job.
+ - Everyone sees different things.
+ - We were supposed to grow old together, Dolores. Have kids. Take walks under old trees. I wanted to watch the lines etch themselves into your flesh and know when each and every one of them appeared. Die together.
+ - This world can only give me reminders of what I don’t have, can never have, didn’t have for long enough.
+ - There are threads in our lives. You pull one, and everything else gets affected.
+ - How am I supposed to let you go, that’s all I’m asking. I want to hold you again, smell you, and, yes too, I just want you to fade. To please, please fade...
+ - You’ve learned that every good lie is threaded with truth and every accepted truth leaks lies.
+ - In Greek tragedy, they fall from great heights. In noir, they fall from the curb.
+ - There are so many more important things to worry about than how you’re perceived by strangers.
+ - There’s something ugly about the flawless.
+ - He wanted to ask her what sound a heart made when it broke from pleasure, when just the sight of someone filled you the way food, blood, and air never could, when you felt as if you’d been born for only one moment and this, for whatever reason, was it.
+ - It’s very simple. If you learn how to write well, to write with depth, cream will rise to the top. You’ll get published. But, there is no secret.
+ - Whatever she saw beyond the camera lens, beyond the photographer, beyond anything in the known world probably – wasn’t fit to be seen.
+ - When I was young, I asked my priest how to get to heaven and still protect yourself from all the evil in the world. He told me what God told His children;’You are sheep among wolves, be wise as the serpent, yet innocent as doves.
+ - The world according to Bubba is simple – if it aggravates you, stop it. By whatever means necessary.
+ - I found that I could write two kinds of short stories: I could write very absurd, kind of surrealistic, funny stories; or I could write very dark, realistic – hyper-realistic – stories. I was never happy with that, because I couldn’t meld the two.
+ - Waking, after all, was an almost natal state. You surfaced without history, then spent the blinks and yawns reassembling your past, shuffling the shards into chronological order before fortifying yourself for the present.
+ - I won the parental lottery. Most of the kids I grew up with either came from really fractured homes, or really violent ones. I went home to a very traditional, good Irish Catholic family.
+ - I held her, he wanted to say, and if I knew for certain that all it would take to hold her again would be to die, then I couldn’t raise the gun to my head fast enough.
+ - Catch me on a good day, I think half of my books aren’t too bad. Catch me on a bad day, I think I’ve never written a good line.
+ - Choice, I’ve always believed, is all that separates us from animals.
+ - Maybe there are some things we were put on this earth not to know.
+ - What molds us is what maims us.
+ - I was not going to use writing for advertising or journalism. I would tend bar, load trucks, chauffeur – do whatever it took. But from the moment I took my first writing workshop, I was a writer.
+ - I believe so deeply in the primacy of language, in lifting your prose to the highest level you’re capable of and making your words symphonic.
+ - Charm was the luxury of those who still believed in the essential rightness of things. In purity and picket fences.
+ - The best thing that can happen to people entering creative professions is the dwindling of all other possibilities.
+ - The world does not have tidy endings. The world does not have neat connections. It is not filled with epiphanies that work perfectly at the moment that you need them.
+ - That’s the thing about being a victim; you start to think it’ll happen to you on a regular basis. It’s living with the reality of your own vulnerability, and it sucks.
+ - She was afraid of all that and so much more, but what terrified her most was inside of her, an insect of unnatural intelligence who’d been living in her brain her entire life, playing with it, clicking across it, wrenching loose its cables on a whim.
+ - He wondered if this was what clinical depression felt like, a total numbness, a weary lack of hope.
+ - I was blessed to grow up in really interesting times and to go back to a home where I was very safe.
+ - Chuck said, “Hey. How many surrealists does it take to screw in a lightbulb?” Cawley looked over at him. “I’ll bite. How many?” “Fish,” Chuck said and let loose a bright bark of a laugh.
+ - I have a lot of rage about things that didn’t happen to me, tied up with watching an immigrant, working-class father struggle to make his way through the world – and seeing how society was modeled to keep him in his place.
+ - It’s good not only to realize that you can’t please all of the people all of the time, but that you don’t want to. There’s a certain type of reader that you don’t ever want to write for.
+ - Visitation Street is urban opera writ large. Gritty and magical, filled with mystery, poetry and pain, Ivy Pochoda’s voice recalls Richard Price, Junot Diaz, and even Alice Sebold, yet it’s indelibly her own.
+ - It’s hard to close the door on optimistic expectations when you love someone.
+ - Grief, I swear to God, doesn’t live in the heart. It lives in the senses. And sometimes, all I want to do is cut off my nose so I can’t smell her, hack my fingers off at the joint.
+ - Patrick Kenzie asking a bemused waitress for a newspaper in smalltown USA. ‘It’s like a homepage without a scroll button?’
+ - Don’t get me wrong, I love literary fiction. It’s faux literary fiction I can’t stand.
+ - Grief, he said, is carnivorous.
+ - I love television. I think we’re in a renaissance of epic proportion in television now.
+ - The loneliness of another can be shocking when it lays itself bare without warning.
+ - I sort of play golf because a lot of my friends are into it, but I’m awful – my handicap is about six or seven thousand.
+ - I love to write, so it rarely seems like work – even when it gets arduous.
+ - The ornament of beauty, Shakespeare wrote, is suspect. And he was right. But beauty itself, unadorned and unaffected, is sacred, I think, worthy of our awe and our loyalty.
+ - But I often think we talk way too much in this society, that we consider verbalization a panacea that it very often is not, and that we turn a blind eye to the sort of morbid self-absorption that becomes a predictable by-product of it.
+ - I can’t remember coming across a more precise evocation of innocence lost since Golding’s The Lord of the Flies. With The Death of Sweet Mister, Daniel Woodrell has written his masterpiece-spare, dark, and incandescently beautiful. It broke my heart.
+ - Or maybe I’d do what I always do – hang out and see what develops. Fatalist to the core.
+
+52 quotes

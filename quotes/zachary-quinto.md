@@ -1,0 +1,32 @@
+ - Part of being a psychopath is an ability to dissociate from one reality and create another one, completely.
+ - Gay kids need to stop killing themselves because they are made to feel worthless by cruel and relentless bullying.
+ - We just have to have visibility. We have to have acknowledgement. We have to have accountability to how we treat one another.
+ - I listen to music a lot, if I need to get into a particular space. I do stretching and breathing, and take time to mostly be quiet and find the stillness. I think that’s important.
+ - Parents need to teach their children principles of respect and acceptance.
+ - It is my intention to live an authentic life of compassion and integrity and action.
+ - I’m incredibly happy, I’m incredibly lucky.
+ - Other actors are not my concern, and that’s their life and that’s their journey. Everybody has to get to a point in their own time and their own way.
+ - I love playing characters that go to extreme places, and I love to explore different kinds of psychological landscapes, so it is ultimately a kind of fun, but it’s also complicated and colored by the depth of the nastiness of it, at certain times, as well.
+ - My desire to be valued is manifested in cultivating relationships with my friends and family.
+ - I just find that there’s something about looking back on interviews, whether for purposes of remembering what I said about something or if it’s for posterity when I’m 75.
+ - I just try to let myself really focus on the work that’s ahead of me and what my job is and how I bring something to life.
+ - We are witnessing an enormous shift of collective consciousness throughout the world. We are at the precipice of great transformation within our culture and government.
+ - But when I found out that Jamey Rodemeyer had made an It Gets Better video only months before taking his own life, I felt indescribable despair.
+ - What scares me? Oh, now that’s a big question. I don’t know what scares me- cockroaches, nuclear apocalypse. Fear is an interesting thing. It has a place in all of our lives. I try to be as fearless as possible. I don’t always succeed, but I like to think I try.
+ - My passion is acting, and has always been. It’s what brought me to this point of being able to diversify and do other things, and I hope it’s something I’ll continue to have a passion for.
+ - The interesting thing about my character Sylar is that my strengths as an actor seemed to go completely against the shape of a character in the shadow.
+ - Exercise is an important element of being an actor, on any level.
+ - I love supporting emerging voices, and new writers and directors. I love engaging an audience in a way that doesn’t have to involve me, personally, and yet still generates an experience for groups of people.
+ - I don’t immerse myself in the Internet chatter because it opens you up to a whole source of danger.
+ - I love when you aren’t accountable to anybody or anything, and you can just be wherever you are.
+ - I think it’s always good when you’re able to, as an actor, allow your work to be some kind of a conduit for social discourse, and an examination of where we are, as a society.
+ - That idea of comparison is what fans do. That’s why fans exist. They believe in something and something connects to them, and they have passionate feelings and opinions about films.
+ - I’m a big believer in the notion that our greatest potential lies in our darkest parts. To a certain extent it’s only in facing those parts of ourselves that we can truly grow, and I think that’s true of all of the characters I’ve played, certainly in the past few years.
+ - I find that communication as an actor and person is an important part of who I am. And I’m really drawn into the psychology of those dynamics.
+ - I found myself in a pattern of being attracted to people who were somehow unavailable, and what I realized was that I was protecting myself because I equate the idea of connection and love with trauma and death.
+ - I try to be as fearless as possible. I don’t always succeed, but I like to think I try.
+ - I think it’s like, you know, you can’t get ahead of yourself, because no amount of success or exposure or opportunity is going to really matter or be ultimately fulfilling unless you can be totally present in what you’re doing right now.
+ - I recognized that I had a window of opportunity that had opened because of my exposure as an actor.
+ - I don’t really approach a character as to whether or not it’s good or bad. I just approach a character as to where it lives in me.
+
+30 quotes

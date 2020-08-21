@@ -1,0 +1,24 @@
+ - A spark can become a flame, a flame a fire.
+ - Blood hardly defines one’s character. We are made by our actions, not our blood. – Soren.
+ - I think the Lewis and Clark Expedition was the greatest undertaking in American History. I think landing a man on the moon pales next to it.
+ - I believe that reading widely is the best preparation for writing.
+ - Thinking – in particular abstract thinking, which most of us are introduced to through the study of mathematics and literature – helps us learn that we can become problem solvers.
+ - Dreams weigh nothing. – Marie Antoinette.
+ - Flutter like a hummingbird, Dive like an eagle, Ain’t no bird that’s my equal. – Twilight.
+ - When I was growing up I loved reading historical fiction, but too often it was about males; or, if it was about females, they were girls who were going to grow up to be famous like Betsy Ross, Clara Barton, or Harriet Tubman. No one ever wrote about plain, normal, everyday girls.
+ - I am ashamed of anyone who has eyes and still can’t see.
+ - Our lives are just spectacles. We are like dolls, in a sense, to be observed and played with – often with cruel and deceitful intentions – in an unreal world.
+ - A legend, Kludd, is a story that you begin to feel in your gizzard and then over time it becomes true in your heart. And perhaps makes you become a better owl.
+ - Whether you are a twelve-year-old princess or a twelve-year-old regular kid, you need to know you are loved and respected.
+ - To find one’s special quality One must lead a life of deep humility. To serve in this way Never question but obey Is the blessing of St Aggie’s charity. – The owls of St. Aegolius.
+ - Hush little owl, You’re with Twi. I got the moves to get you by. Big bad crows. St. Aggie’s scamps Ain’t got nothin to show the champ. I’ll pop a spiral With a twist, Do a three-sixty And scatter mist – -.
+ - Cycling, cycling forever bear, wolf, caribou. When had it all started, where will it end? We are all part of one, from such simple beginnings and yet all so different. Yet one. One and again.
+ - She told them simply and directly that the meadow was a place of peace and beauty, where indeed if one came to it in a quiet manner, the animals would not be disturbed; for there are lovely birds, and squirrels and field mice, and sometimes deer.
+ - The tail of the comet slashed the dawn and in the red light of the rising sun, for a brief instant, it seemed as if the comet was bleeding across the sky.
+ - Words, as you well know, can be powerful. – Digger.
+ - My mother was a great advocate of womens rights, a member of the League of Womens Voters and lifelong member of Planned Parenthood and an advocate of a womans rights in terms of reproductive issues. She was also a founding member of Common Cause in the state of Indiana.
+ - To me, the most important thing is to tell a good story. If I can do that, I think that enlightenment, respect of nature, etc. follows.
+ - Far away if first black, But it shall be back Over field Over flower In the twilight hour. We are home in our tree. We are owls, we are free. As we go, this we know Glaux is nigh.
+ - He didn’t know what he wanted. He only knew what he didn’t want.
+
+22 quotes

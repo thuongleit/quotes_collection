@@ -1,0 +1,31 @@
+ - Why would I endorse the hibachi grill when I am the hibachi grill?
+ - The hibachi is coming to a city near you. I’m cooking chicken and shrimp, but if you want to throw a double team my way, filet mignon gets cooked too.
+ - Individual honors come with team success.
+ - My swag was phenomenal.
+ - It sucks the way the world works. You can do a hundred things for people, but you do one bad mistake and everyone crucifies you and that’s all they want to remember.
+ - If your heart is bigger than the biggest guy on the team, then you’re the biggest guy on the team.
+ - When I hear about people murdering, I wonder, What has to go through your brain to say, I don’t want him breathing anymore? What makes you get that angry? How can you take someone’s breath away? That just blows my mind.
+ - This sport is just crazy. Your worst enemy in college is your teammate and friend when you get to the NBA. Who would have thought it?
+ - Everyone is gonna have a bad day, everyone is gonna have a bad game. The questions are: How do you recover? What builds your character? I decided one day early on in high school that I wanted to be great at basketball, not just a good basketball player.
+ - When I leave the NBA, I don’t want my legacy to be, ‘He won a championship ring.’ I want my legacy to say: ‘He played for the people. He gave everybody in the world hope that they can be just like him.’
+ - I try not to do the fantasy thing. If I didn’t get hurt, what would I be? Who knows? When I look back on my career, from the hard work I put in, I got everything I deserved.
+ - Everybody get drunk and make bad decisions.
+ - I want to be the best at whatever I do. I don’t care who gets in the way.
+ - I’m still trying to be a kid. I really don’t want to feel like an adult.
+ - Most kids would be like, ‘My dad’s never around.’ But I saw it as a positive. He was out there working to provide for me.
+ - You have to do everything to help your team out. I have the ability to rebound, so I might as well go and do it to help my team win.
+ - You don’t want to be too uptight about anything. Especially your job.
+ - You know, that’s all basketball is. If someone loves something, and you take it away, it’s like what does he do now? What does someone do? That’s what happened with me.
+ - As a player leaving early, you always look back and wonder what could have been. But you have to be happy with your decisions, because you ultimately have to live with them.
+ - As happy as I am off the floor, on the floor I am the opposite. I don’t take any crap.
+ - I lost all feeling a long time ago. Basketball is basketball. It doesn’t matter what floor I’m on.
+ - I’m a jokester, so when I was joking on Twitter, it kinda rubbed people the wrong way. And I was like, I didn’t make these up. I’m just letting you know they’re there.
+ - It’s hard to get recognition when your team is losing.
+ - I always have something going on.
+ - I hate it when you see talented teams with a lot of scorers and they can’t get along with each other.
+ - When I was little, I asked God if I could meet my mom just one more time, and my prayer was answered in 2001. It was weird.
+ - I like when somebody says something negative about me because I can put it back in their face.
+ - I found out this summer how to hook up my Xbox 360 in the hotel and get past security. It took me a while to figure out, but I got it now.
+ - A woman gave my dad $400 so we could get an apartment. We were living in a park. That’s how we got started: Four hundred bucks, and look at me. When I donate a computer to a school, I never know what’s going to come out of it.
+
+29 quotes

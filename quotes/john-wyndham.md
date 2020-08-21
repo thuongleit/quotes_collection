@@ -1,0 +1,21 @@
+ - If you run away from a thing just because you don’t like it, you don’t like what you find either.
+ - Knowledge is simply a kind of fuel; it needs the motor of understanding to convert it into power.
+ - And we danced, on the brink of an unknown future, to an echo from a vanished past.
+ - Why was I condemned to live in a democracy where every fool’s vote is equal to a sensible man’s?
+ - Anybody who has had a great treasure has always led a precarious existence.
+ - Why should I? I’ve done nothing to be ashamed of. I am not ashamed – I am only beaten.
+ - It’s humiliating to be dependent, anyway, but it’s still a poorer pass to have no one to depend on.
+ - If you want to keep alive in the jungle, you must live as the jungle does.
+ - Find a nice, self sufficient hilltop, and fortify it.
+ - But, as I understand it, your God is a universal God; He is God on all suns and all planets. Surely, then, He must have universal form? Would it not be a staggering vanity to imagine that He can manifest Himself only in the form that is appropriate to this particular, not very important planet?
+ - The clock is the most scared thing in a hospital.
+ - Children have a different convention of the fearful until they have been taught the proper things to be shocked at.
+ - When a day that you happen to know is Wednesday starts off by sounding like Sunday, there is something seriously wrong somewhere.
+ - The humans have a curious force they call ambition. It drives them, and, through them, it drives us. This force which keeps them active, we lack. Perhaps, in time, we machines will acquire it.
+ - It must be, I thought, one of the race’s most persistent and comforting hallucinations to trust that “it can’t happen here” – that one’s own time and place is beyond cataclysm.
+ - There was often a great deal of grown-up fuss that seemed disproportionate to causes.
+ - We all have our youthful follies, embarassing to recall – but people somehow find it hard to dismiss as a youthful folly anything that has happened to be a financial success.
+ - I’m a reliable witness, you’re a reliable witness, practically all God’s children are reliable witnesses in their own estimation – which makes it funny how such different ideas of the same affair get about.
+ - The simple rely on a bolstering mass of maxim and precept, so do the timid, so do the mentally lazy – and so do all of us, more than we imagine.
+
+19 quotes

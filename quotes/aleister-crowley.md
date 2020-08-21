@@ -1,0 +1,146 @@
+ - Every man and every woman is a star.
+ - A man who is doing his True Will has the inertia of the Universe to assist him.
+ - Do what thou wilt shall be the whole of the law.
+ - Love is the law, love under will.
+ - By the power of truth, I, while living, have conquered the universe.
+ - Balance every thought with its opposition. Because the marriage of them is the destruction of illusion.
+ - I did not hate God or Christ, but merely the God and Christ of the people whom I hated.
+ - Magick is the science and art of causing change to occur in conformity with will.
+ - I am alone. There is no God where I am.
+ - The key of joy is disobedience.
+ - To train the mind to move with the maximum speed and energy, with the utmost possible accuracy in the chosen direction, and with the minimum of disturbance or friction. That is Magick. To stop the mind altogether. That is Yoga.
+ - Magick is the Science of understanding oneself and one’s conditions. It is the Art of applying that understanding in action.
+ - Every intentional act is a magical act.
+ - In the absence of willpower the most complete collection of virtues and talents is wholly worthless.
+ - Ordinary morality is only for ordinary people.
+ - This serpent, SATAN, is not the enemy of Man, but He who made Gods of our race, knowing Good and Evil; He bade ‘Know Thyself!’ and taught Initiation.
+ - Magick is the Art of Life itself.
+ - Initiation means the Journey Inwards: nothing is changed or can be changed; but all is trulier understood with every step.
+ - It will be seen that the formula – ‘Do what thou wilt shall be the whole of the Law’ has nothing to do with ‘Do as you please.’ It is much more difficult to comply with the Law of Thelema than to follow out slavishly a set of dead regulations.
+ - I believe in one Gnostic and Catholic Church of Light, Life, Love and Liberty, the Word of whose Law is THELEMA .
+ - We place no reliance On virgin or pigeon; Our Method is Science, Our Aim is Religion.
+ - I slept with faith and found a corpse in my arms on awakening; I drank and danced all night with doubt and found her a virgin in the morning.
+ - There is no part of me that is not of the Gods.
+ - May the New Year bring you courage to break your resolutions early!
+ - For pure will, unassuaged of purpose, delivered from the lust of result, is every way perfect.
+ - A burnt child dreads the fire.
+ - Love is the only principle which makes life tolerable.
+ - I will interpret every phenomenon as a particular dealing of God with my soul.
+ - You can only accomplish your object in life by complete disregard of the opinions of other people.
+ - I was in the death struggle with self: God and Satan fought for my soul those three long hours. God conquered – now I have only one doubt left – which of the twain was God?
+ - I do not want to father a flock, to be the fetish of fools and fanatics or the founder of a faith whose followers are content to echo my opinions. I want each man to cut his own way through the jungle.
+ - Sex is the sacred song of the soul; Sex is the sanctuary of Self.
+ - Modern morality and manners suppress all natural instincts, keep people ignorant of the facts of nature and make them fighting drunk on bogey tales.
+ - Your friends will notice at once that glib vacuities fail to impress, and hate you, and tell lies about you. It’s worth it.
+ - This Universe is a wild revel of atoms, men, and stars, each one a Soul of Light and Mirth, horsed on Eternity.
+ - The Way of Mastery is to break all the rules – but you have to know them perfectly before you can do this; otherwise you are not in a position to transcend them.
+ - Happiness lies within one’s self, and the way to dig it out is cocaine.
+ - When you have proved that God is merely a name for the sex instinct, it appears to me not far to the perception that the sex instinct is God.
+ - The intention of this Book of The Law is perfectly simple. Whatever your sexual predilections may be, you are free, by the Law of Thelema, to the the star you are, to go your own way rejoicing.
+ - The joy of life consists in the exercise of one’s energies, continual growth, constant change, the enjoyment of every new experience. To stop means simply to die. The eternal mistake of mankind is to set up an attainable ideal.
+ - A white male child of perfect innocence and intelligence makes the most suitable victim.
+ - A single ego is an absurdly narrow vantage point from which to view the world.
+ - Invoke often! Inflame thyself with prayer!
+ - He shall fall down into a pit called Because, and there he shall perish with the dogs of reason.
+ - Intolerance is evidence of impotence.
+ - What the eye doesn’t see, the heart doesn’t grieve over.
+ - Imagine listening to Beethoven with the prepossession that C is a good note and F a bad one; yet this is exactly the stand point from which all uninitiates contemplate the universe. Obviously, they miss the music.
+ - Having to talk destroys the symphony of silence.
+ - It is necessary that we stop, once for all, this ignorant meddling with other people’s business. Each individual must be left free to follow his own path.
+ - Oh, how superior is the Eye of Horus to the Mouth of Isis!
+ - Love is a virtue; it grows stronger and purer and less selfish by applying it to what it loathes; but theft is a vice involving the slave-idea that one’s neighbor is superior to oneself.
+ - Repeal all laws which assume that mankind is a herd of cattle.
+ - It is the mark of the mind untrained to take its own processes as valid for all men, and its own judgments for absolute truth.
+ - The Quest of the Holy Grail, the Search for the Stone of the Philosophers-by whatever name we choose to call the Great Work-is therefore endless. Success only opens up new avenues of brilliant possibility.
+ - Your kiss is bitter with cocaine.
+ - The sin which is unpardonable is knowingly and wilfully to reject truth, to fear knowledge lest that knowledge pander not to thy prejudices.
+ - For I am divided for love’s sake, for the chance of union.
+ - Light, Life and Love are like three glow-worms at thy feet: the whole universe of stars, the dewdrops on the grass whereon thou walkest!
+ - I am the blue-lidded daughter of Sunset; I am the naked brilliance of the voluptuous night-sky.
+ - Anything which throws light upon the Universe, anything which reveals us to ourselves, should be welcome in this world of riddles.
+ - The first task of the Magician in every ceremony is therefore to render his Circle absolutely impregnable.
+ - Tell the truth, but lead so improbable a life that the truth will never be believed.
+ - Unspeakable is the variety of form and immeasurable the diversity of beauty, but in all is the seal of unity.
+ - The word of Sin is Restriction.
+ - What is necessary is not to seek after some fantastic ideal, utterly unsuited to our real needs, but to discover the true nature of those needs, to fulfill them, and rejoice therein.
+ - The customer is usually wrong, but statistics indicate that it doesn’t pay to tell him so.
+ - 30. If Will stops and cries Why, invoking Because, then Will stops an does naught. 31. If power asks why, then power is weakness.
+ - I hardly ever talk- words seem such a waste, and they are none of them true. No one has yet invented a language from my point of view.
+ - What is the meaning of Initiation? It is the Path to the realisation of your Self as the sole, the supreme, the absolute of all Truth, Beauty, Purity, Perfection!
+ - Falsehood is invariably the child of fear in one form or another.
+ - The best models of English writing are Shakespeare and the Old Testament.
+ - There are no “standards of Right”. Ethics is balderdash. Each Star must go on its own orbit. To hell with “moral principle”; there is no such thing.
+ - One would go mad if one took the Bible seriously; but to take it seriously one must be already mad.
+ - Astrology has no more useful function than this, to discover the inmost nature of a man and to bring it out into his consciousness, that he may fulfil it according to the law of light.
+ - The most delicious sensation of all is the re-birth of healthy human love. Spring coming back to Earth!
+ - The people who have really made history are the martyrs.
+ - The ordinary man looking at a mountain is like an illiterate person confronted with a Greek manuscript.
+ - Crime, folly, sickness and all phenomena must be contemplated with complete freedom from fear aversion or shame. Otherwise we shall fail to see accurately, and interpret intelligently; in which case we shall be unable to outwit and outfight them.
+ - Paganism is wholesome because it faces the facts of life.
+ - The more necessary anything appears to my mind, the most certain it is that I only assert a limitation.
+ - To me, every dirty act was simply a sacrament of sin, a passionately religious protest against Christianity, which was for me the symbol of all vileness, meanness, treachery, falsehood and oppression.
+ - I have been accused of being a ‘black magician.’ No more foolish statement was ever made about me. I despise the thing to such an extent that I can hardly believe in the existence of people so debased and idiotic as to practice it.
+ - Black magic is not a myth. It is a totally unscientific and emotional form of magic, but it does get results – of an extremely temporary nature.
+ - Sit still. Stop thinking. Shut up. Get out! The first two of these instructions comprise the whole of the technique of Yoga. The last two are of a sublimity which it would be improper to expound in this present elementary stage.
+ - Alas the Master; so he sinks in death. But whoso knows the mystery of man Sees life and death as curves of the same plan.
+ - Toronto as a city carries out the idea of Canada as a country. It is a calculated crime against the aspirations of the soul and the affection of the heart.
+ - The Holy Guardian Angel is the spiritual Sun of the Soul of the Adept.
+ - I can imagine myself on my death-bed, spent utterly with lust to touch the next world, like a boy asking for his first kiss from a woman.
+ - The pious pretense that evil does not exist only makes it vague, enormous and menacing.
+ - Those magicians who object to the use of blood, have endeavored to replace it with incense. But, the bloody sacrifice, though more dangerous, is more efficacious. And for nearly all purposes, human sacrifice is the best.
+ - There is a splendour in my name hidden and glorious, as the sun of midnight is ever the son.
+ - I was not content to just believe in Satan. I wanted to be his chief or staff.
+ - I’m a poet, and I like my lies the way my mother used to make them.
+ - Morality can muddle mystical understanding and virtue is only necessary in so far as it favours success. All wisdom must be encompassed in order to achieve enlightenment.
+ - The supreme satisfaction is to be able to despise one’s neighbor and this fact goes far to account for religious intolerance. It is evidently consoling to reflect that the people next door are headed for hell.
+ - The man who denounces life merely defines himself as the man who is unequal to it.
+ - Every one interprets everything in terms of his own experience. If you say anything which does not touch a precisely similar spot in another man’s brain, he either misunderstands you, or doesn’t understand you at all.
+ - It is necessary, in this world, to be made of harder stuff than one’s environment.
+ - Don’t talk for five minutes, there’s a good chap! I’ve a strange feeling come over me – almost as if I were going to think!
+ - The nails from a suicide’s coffin, and the skull of the parricide, were of course no trouble; for Vesquit never traveled without these household requisites.
+ - The Gods are but names for the forces of Nature themselves.
+ - Practically, Science is true; and Faith is foolish.
+ - This complaining rambling rubbish is the substitute which has taken the place of love.
+ - There is only one really safe, mild, harmless beverage and you can drink as much of that as you like without running the slightest risk, and what you say when you want it is, Garcon! Un Pernod!
+ - Acts which are essentially dishonourable must not be done; they would be justified only by calm contemplation of their correctness in abstract cases.
+ - Every incarnation that we remember must increase our comprehension of ourselves as who we are.
+ - Their false compassion is called compassion and their false understanding is called understanding, for this is their most potent spell.
+ - All phenomena of which we are aware take place in our own minds, and therefore the only thing we have to look at is the mind; which is a more constant quantity over all the species of humanity than is generally supposed.
+ - The average man cannot believe that an artist may be as serious and highminded an observer of life as the professed man of science.
+ - I am certainly of opinion that genius can be acquired, or, in the alternative, that it is an almost universal possession.
+ - We must conquer life by living it to the full, and then we can go to meet death with a certain prestige.
+ - The absolute rule of the state shall be a function of the absolute liberty of each individual will.
+ - The sot drinks, and is drunken: the coward drinks not, and shivers: the wise man, brave and free, drinks, and gives glory to the Most High God.
+ - The eternal mistake of mankind is to set up an attainable ideal.
+ - Ever man is eternally alone. But when you get mixed up with a fairly decent crowd, you forget that appalling fact for long enough to give your brain time to recover from the acute symptoms of its disease – that of thinking.
+ - I have never grown out of the infantile belief that the universe was made for me to suck.
+ - I’ve written this to keep from crying. But I am crying, only the tears won’t come.
+ - Sanity is a compromise.
+ - Science is always discovering odd scraps of magical wisdom and making a tremendous fuss about its cleverness.
+ - I was not content to believe in a personal devil and serve him, in the ordinary sense of the word. I wanted to get hold of him personally and become his chief of staff.
+ - Since all things are God, in all things thou seest just so much of God as thy capacity affordeth thee.
+ - Truth! Truth! Truth! crieth the Lord of the Abyss of Hallucinations.
+ - I was asked to memorise what I did not understand; and, my memory being so good, it refused to be insulted in that manner.
+ - Indubitably, magic is one of the subtlest and most difficult of the sciences and arts. There is more opportunity for errors of comprehension, judgment and practice than in any other branch of physics.
+ - Religion itself becomes offensively monotonous. On every point of vantage are pagodas – stupid stalagmites of stagnant piety.
+ - If one were to take the bible seriously one would go mad. But to take the bible seriously, one must be already mad.
+ - There are hardly half a dozen writers in England today who have not sold out to the enemy. Even when their good work has been a success, Mammon grips them and whispers: More money for more work.
+ - Chinese civilisation is so systematic that wild animals have been abolished on principle.
+ - To me a book is a message from the gods to mankind; or, if not, should never be published at all.
+ - It’s no good trying to teach people who need to be taught.
+ - Part of the public horror of sexual irregularity so-called is due to the fact that everyone knows himself essentially guilty.
+ - The True Will is thus both determined by its equations, and free because those equation are simply its own name, spelt out fully.
+ - I’ve often thought that there isn’t any “I” at all; that we are simply the means of expression of something else; that when we think we are ourselves, we are simply the victims of a delusion.
+ - The old spelling MAGICK has been adopted throughout in order to distinguish the Science of the Magi from all its counterfeits.
+ - A madhouse of frenzied moneymaking and frenzied pleasure-seeking, with none of the corners chipped off. It is beautifully situatedand the air reminds one curiously of Edinburgh.
+ - The essence of independence has been to think and act according to standards from within, not without.
+ - To use legal or financial constraint to compel either abstention or submission, is entirely horrible, unnatural and absurd.
+ - To read a newspaper is to refrain from reading something worth while. The first discipline of education must therefore be to refuse resolutely to feed the mind with canned chatter.
+ - It is only necessary to destroy in oneself the roots of those motives which determine a man’s course, in order to enjoy the omnipotence and immunity of a god.
+ - When one walks, one is brought into touch first of all with the essential relations between one’s physical powers and the character of the country; one is compelled to see it as its natives do. Then every man one meets is an individual.
+ - We can no longer assert any single proposition, unless we guard ourselves by enumerating countless conditions which must be assumed.
+ - All questions of the Law are to be decided only by appeal to my writings, each for himself.
+ - Further, an excess of legislation defeats its own ends. It makes the whole population criminals, and turns them all into police and police spies. The moral health of such a people is ruined for ever; only revolution can save it.
+ - How right politicians are to look upon their constituents as cattle! Anyone who has any experience of dealing with any class as such knows the futility of appealing to intelligence, indeed to any other qualities than those of brutes.
+
+144 quotes

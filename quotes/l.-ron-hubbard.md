@@ -1,0 +1,244 @@
+ - Never regret yesterday. Life is in you today and you make your tomorrow.
+ - A philosophy can only be a route to knowledge. It cannot be knowledge crammed down one’s throat. If one has a route, he can then find what is true for him. And that is Scientology.
+ - Think your own way through things, accept what is true for you, discard the rest.
+ - A civilization is as great as its dreams, and its dreams are dreamt by artists.
+ - Man thrives, oddly enough, only in the presence of a challenging environment.
+ - Communication is the universal solvent.
+ - Morale is boosted to high highs by accomplishment. In fact, it can be demonstrated that production is the basis of morale.
+ - A civilization without insanity, without criminals and without war, where the able can prosper and honest beings can have rights, and where man is free to rise to greater heights, are the aims of Scientology.
+ - If a man can dream, if a man can have goals, he can be happy and he can be alive. If he has no goals he doesn’t even have a future.
+ - Inaction and indecision in the present is because of fear of consequences of the future.
+ - Are you making life or is life making you?
+ - To love in spite of all is the secret of greatness. And may very well be the greatest secret in this universe.
+ - The evolution of knowledge is toward simplicity, not complexity.
+ - The artist injects the spirit of life into a culture.
+ - It takes truth to live with a swiftly changing world. Nothing less than truth can survive. You cannot survive with anything less than truth.
+ - There is nothing wrong with being the most important person under the sun if everybody else is just as important as you are.
+ - The first step of handling anything is gaining the ability to face it.
+ - All the happiness you ever find lies in you.
+ - Boldness in itself is genius.
+ - If a person thinks he can be happy without making those around him happy, he’s crazy.
+ - The way to happiness requires that one set a good example for others.
+ - In a culture, manners are the lubrication that ease the frictions of social contacts.
+ - The test of true competence is the end result.
+ - And that is my wish for you: flourish and prosper!
+ - The clue to happiness is being interested in life. People’s happiness is as great as they can create it.
+ - Scientology is used to increase spiritual freedom, intelligence, ability and to produce immortality.
+ - The goal of Scientology is making the individual capable of living a better life in his own estimation and with his fellows and the playing of a better game.
+ - This relationship is the vessel wherein is nurtured the life force of both individuals, whereby they create the future of the human race in body and thought.
+ - As long as children and young men and women find pleasure in study, they will continue studying throughout life – and upon that depends their happiness.
+ - Oh yes! The one man in the world who never believes he’s mad is the madman.
+ - Change no man’s religion, change no man’s politics, interrupt the sovereignty of no nation. Instead, teach Man to use what he has and what he knows to the factual creation, within any political reference, of a civilization on Earth for the first time.
+ - The best way to know any future is to cause one.
+ - Unethical conduct is actually the conduct of destruction and fear; lies are told because one is afraid of the consequences should one tell the truth; thus, the liar is inevitably a coward, the coward is inevitably a liar.
+ - Happiness is the overcoming of not unknown obstacles toward a known goal.
+ - Freedom is for honest people. No man who is not himself honest can be free – he is his own trap.
+ - Certainty, not data, is knowledge.
+ - Insecurity exists in the absence of knowledge. All security derives from knowledge.
+ - The mind when it has an old experience will add that data into its current experience, and it keeps coming up with wrong answers.
+ - Life in its highest state is understanding.
+ - The ultimate freedom depends on knowing the ultimate Truth. Truth is not what people say it is, it is what it is. And Truth, quite remarkably, sets one free, just like philosophers have said down the ages.
+ - That which one fears becomes one’s master.
+ - Because the artist deals in future realities, he always seeks improvements or changes in the existing reality. This makes the artist, inevitably and invariably, a rebel against the status quo. The artist, day by day, by postulating the new realities of the future, accomplishes peaceful revolution.
+ - Self-confidence is nothing more than belief in one’s ability to decide and in one’s decisions.
+ - The only aberration is denial of self.
+ - Adventure, I well know, is in the heart, not in the view.
+ - The most valuable asset we have, actually, is our ability to understand, to do the right thing, to be kind, to be decent.
+ - True greatness merely refuses to change in the face of bad actions against one – and a truly great person loves his fellows because he understands them.
+ - On the day when we can fully trust each other, there will be peace on Earth.
+ - Your Integrity is more important than your immediate Life.
+ - Two Rules for Happy Living: 1. Be able to experience anything. 2. Cause only those things which others are able to experience easily.
+ - Art is a word which summarizes the quality of communication.
+ - Probably the most neglected friend you have is you. And yet every man, before he can be a true friend to the world, must first become a friend to himself.
+ - Knowledge is observation and is given to those who would look.
+ - True greatness depends on total wisdom. The real lesson is to learn to love.
+ - Getting married is an adventure. Because when you’re getting married, you’re doing something you don’t know anything about. Did you ever think of that?
+ - The wrong thing to do about any given circumstance or situation is to do nothing.
+ - You want to raise your child in such a way that you don’t have to control him, so that he will be in full possession of himself at all times. Upon that depends his good behavior, his health, his sanity.
+ - If things were a little better known and understood, we would all lead happier lives.
+ - Nothing in Scientology is true for you unless you have observed it and it is true according to your observation.
+ - When you can be your own best audience and when your applause is the best applause you know of, youre in good shape.
+ - Save the child and you save the nation.
+ - Understanding has very specific component parts. These component parts are affinity, reality and communication.
+ - Now, get this as a technical fact, not a hopeful idea. Every time we have investigated the background of a critic of Scientology, we have found crimes for which that person or group could be imprisoned under existing law. We do not find critics of Scientology who do not have criminal pasts.
+ - The way to happiness is much, much easier to travel with people one can trust.
+ - The Ultimate decision, the fastest decision there is, is ACTION!
+ - What is true for you is what you have observed yourself. And when you lose that, you have lost everything.
+ - I know no man who has any monopoly upon the wisdom of this universe. It belongs to those who can use it to help themselves and others.
+ - What are your goals? Where are you going? Why are you here? What are you? Scientology has answers to these questions, good answers that are true, answers that work for you. For the subject matter of Scientology is you.
+ - People who tell you that control is bad are trying to tell you that automobile accidents and industrial accidents are good.
+ - What is important is how much service you can give the world and how much you can get done and how much better you can make things.
+ - Not smoking enough will cause lung cancer!
+ - Tolerance is a good cornerstone on which to build human relationships.
+ - You don’t get rich writing science fiction. If you want to get rich, you start a religion.
+ - A culture is as rich and as capable of surviving as it has imaginative artists, skilled men of science, a high ethic level, workable government, land and natural resources, in about that order of importance.
+ - Today’s children will become tomorrow’s civilization.
+ - Unfortunately, it is all too often true that suppressors to a creative action must be removed before construction and creation takes place. Any person very high on the Tone Scale may level destruction toward a suppressor.
+ - People attack Scientology, I never forget it, always even the score. People attack auditors, or staff, or organisations, or me. I never forget until the slate is clear.
+ - The end and goal of any society as it addresses the problem of education is to raise the ability, the initiative and the cultural level, and with all these the survival level of that society.
+ - You are treating yourself in present time much as you were treated by others in the past. And you punish yourself far more than anyone would ever punish you.
+ - I like to help others and count it as my greatest pleasure in life to see a person free himself of the shadows which darken his days.
+ - A person is either the effect of his environment or is able to have an effect upon his environment.
+ - There’s only one remedy for crime – get rid of the psychs! They are causing it!
+ - There is no person alive who cannot make a new beginning.
+ - You’re here so you’re a Scientologist. Now we’re going to make you into an expert auditor no matter what happens. We’d rather have you dead than incapable.
+ - Writing for a penny a word is ridiculous. If a man wanted to make a million dollars, the best way would be to start his own religion.
+ - Here on Earth there was undoubtedly a Christ.
+ - A political system seeking to function amongst ignorant, illiterate and barbaric people could have marvelous principles but could only succeed in being ignorant, illiterate and barbaric unless one addressed the people one by one and cured the ignorance, illiteracy and barbarism of each citizen.
+ - To be happy, one only must be able to confront, which is to say, experience, those things that are. Unhappiness is only this the inability to confront that which is.
+ - Always maintain good relations with your public.
+ - Affection can no more spoil a child than the sun could be put out by a bucket of gasoline.
+ - I am studying ancient civilizations, trying to find what happened to them, finding out why they went into a decline, why they died.
+ - Men who know are secure. Men who don’t know believe in luck.
+ - Maintain silence in the presence of birth to save both the sanity of the mother and the child and safeguard the home to which they will go.
+ - All real difficulty stems from no responsibility. Full responsibility is not fault; it is recognition of being cause.
+ - The man who has his ideals, no matter how thoroughly he may be persuaded to desert them, survives well only so long as he is true to those ideals.
+ - True competence is based on one’s own ability to observe.
+ - Living is a pretty grim joke, but a joke just the same.
+ - Not smoking enough will cause lung cancer! If anybody is getting a cancerous activity in the lung, the probabilities are that it’s radiation dosage coupled with the fact that he smokes. And what it does is start to run out the radiation dosage, don’t you see.
+ - Try to treat others as you would want them to treat you.
+ - The way to make a million dollars is to start a religion.
+ - It is vital to any organization, to be strong and effective, to be ethical.
+ - The wise man tests before he talks. The critic but follows the fad of a cynical and apathetic age.
+ - A Venezuelan dictator once decided to stop leprosy. He saw that most lepers in his country were also beggars. By the simple expedient of collecting and destroying all the beggars in Venezuela an end was put to leprosy in that country.
+ - Teach where data can be found or how it can be derived, not the recording of data.
+ - You make New Year’s resolutions. And you make them into the teeth of old resolutions which were different. Then you don’t keep your new resolutions and you tell yourself you are weak-willed. You aren’t weak-willed, you are simply obeying yourself as of yesterday.
+ - If there is an authoritarian structure at St. Hill it has been brought into being by the government itself. St. Hill is trying to correct itself. It doesn’t know what it’s trying to correct because nobody has told it what to correct.
+ - Ideas and not battles mark the forward progress of mankind.
+ - Religion is the first sense of community. Your sense of community occurs by reason of mutual experience with others.
+ - In all great leaders there is a purpose and intensity which is unmistakable.
+ - God was feeling sardonic the day He created the Universe. So it’s rather up to at least one man every few centuries to pop up and come just as close to making him swallow his laughter as possible.
+ - I believe that to command is to serve and only gives one the right to serve.
+ - So we listen. We add up associations of people with people. When a push against Scientology starts somewhere, we go over the people involved and weed them out. Push vanishes.
+ - If you want to make a little money, write a book. If you want to make a lot of money, create a religion.
+ - Having viewed slum clearance projects in most major cities of the world may I state that you have conceived and created in the Johannesburg townships what is probably the most impressive and adequate resettlement activity in existence.
+ - Dianetics is not in any way covered by legislation anywhere, for no law can prevent one man sitting down and telling another man his troubles, and if anyone wants a monopoly on dianetics, be assured that he wants it for reasons which have to do not with dianetics but with profit.
+ - If you can achieve action, you will achieve happiness.
+ - Benzedrine often helps a case run.
+ - The very nature of the Chinaman holds him back. If his fellow should fall, John thinks it quite proper that he stamp on the underdogs face.
+ - A truly Suppressive Person or group has no rights of any kind and actions taken against them are not punishable.
+ - In all the broad Universe there is no other hope for Man than ourselves.
+ - The one impulse in man which cannot be erased is his impulse toward freedom, his impulse toward sanity, toward higher levels of attainment in all of his endeavors.
+ - I loved the sea. I loved steamers and sailboats and surf and sailors. And I yearned and strained to the sea, always the sea, for it is a lovely, vicious lonely thing. In its limitless variety I had a sort of HOME.
+ - As South Africa has a white population of only 2.8 million or thereabouts, you can see that every other central organization in the world has been out-created.
+ - Truth is an all-freeing mechanism.
+ - Blaming something else makes that something else cause; and as that cause takes on power, the individual in the same act loses control and becomes effect.
+ - The last Martian report station on Earth was established in the Pyrenees.
+ - Now if we can get white population, immigrants and big companies and so on moving into Africa and if we can get with that Scientology well established in Southern Africa, why we can then look forward to a salvage operation base, in case the northern hemisphere’s lights go out.
+ - Who said the road doesn’t have bumps? It can still be traveled.
+ - To really know life you’ve got to be part of life. You must get down and look, you must get into the nooks and crannies of existence. You have to rub elbows with all kinds and types of men before you can finally establish what he is.
+ - In any event, any person from 2.0 down on the Tone Scale should not have, in any thinking society, any civil rights of any kind, because by abusing those rights he brings into being arduous and strenuous laws which are oppressive to those who need no such restraints.
+ - A science is something which is constructed from truth on workable axioms. There are 55 axioms in scientology which are very demonstrably true, and on these can be constructed a great deal.
+ - Now we say there’s, well, another place in the world-there’s India. Wonderful place – except for its people.
+ - My own philosophy is that one should share what wisdom he has, one should help others to help themselves and one should keep going despite heavy weather, for there is always a calm ahead.
+ - Scientology is the study of knowingness. It increases one’s knowingness, but if a man were totally aware of what was going on around him, he would find it relatively simple to handle any outnesses in that.
+ - Personnel and their capacity for work on their exact jobs is the basic key to income and success.
+ - The first principle of my own philosophy is that wisdom is meant for anyone who wishes to reach for it. It is the servant of commoner and king alike and should never be regarded with awe.
+ - Being competent means the ability to control and operate the things in the environment and the environment itself.
+ - You are only three or four hours from taking your glasses off for keeps.
+ - You can put these things into the hands of some Chinese and send him to Hong Kong and we’ll have cleared chinks.
+ - Here on Earth there was undoubtedly a Christ. One of the reasons he swept in so suddenly and he would go forward so hard is, he had a good assist in back of him in terms of an implant.
+ - You can blame your whole confusion on the fact that you bought illusion.
+ - We’ve got some new ways to make slaves here.
+ - One of the ways you learn about life is to associate with people.
+ - One of the great truths of Scientology is that increased awareness is the only factor which offers any road out. That is an awfully simple truth, but you’ll find out that people don’t know that. They think that less awareness is the road out – and that is the road down into the basement.
+ - You can get a much better fee – I tell you as auditors quite frankly – it’s much easier to get a great deal of money out of somebody who’s on a down spiral into becoming MEST than it is to get money out of somebody who is going on an up spiral toward becoming theta.
+ - Music is indeed the Universal Language.
+ - As long as life has the level of being a game, you can play it.
+ - The African tribesman, with his complete contempt for truth and his emphasis on brutality and savagery for others but not for himself, is a no-civilization.
+ - When a man has a problem very thoroughly and can’t solve it, he really has too few problems. He needs more.
+ - Well, I don’t know that I’m OK any more than anybody else is OK but I’ve led at least a happy life and a very full one.
+ - All we know of science or of religion comes from philosophy. It lies behind and above all other knowledge we have or use.
+ - An individual is as alive as he has ideas. He’s as aware as he has ideas.
+ - A true Educator locates the intelligence and abilities within another, drawing them out for all, even the student, to see. And then steps out of the way, allowing them to develop, create and pursue their talent.
+ - There are vistas never dreamed of, there are joys never even known, there are glories no past glory ever surpassed. These wait for you but only if you accept my legacy and help bring these things about.
+ - A man who is willing to accept restriction and barriers and is not afraid of them is free. A man who does nothing but fight restrictions and barriers will usually be trapped.
+ - The greatest ability in the whole human race and all amongst the livingness, is the ability to help. And when you can improve that ability all the way up along the line, you’ve improved about all there is to improve about a person.
+ - The third principle is that any philosophic knowledge is only valuable if it is true or if it works.
+ - Scientology does not teach you. It only reminds you. For the information was yours in the first place.
+ - Learn to write when you would rather sleep. Learn to exercise this gift of language when no conscious portion of your wits can vibrate anything but worry. Learn to write so, my son, and you can call yourself a writer.
+ - Single men and determined groups have been the only makers of space in which man could walk free.
+ - China, slavishly dedicated to ancient scholars, incapable of generating within herself sufficient rulers to continue, without bloodshed, a nation.
+ - Any of us probably could do more important things than we are doing. Any of us could use some changes in our tasks. But none of us – and still stay alive and sane – could do without something to do.
+ - Well I don’t know that I’m okay any more than anyone else is okay, I lead a happy life and a very full one – I have a happy marriage and my kids are all cheerful, and no one is finding fault with me, personally.
+ - Your potentialities are a great deal better than anyone ever permitted you to believe.
+ - One cannot be able in life by fearing to live.
+ - All men have inalienable rights to think freely, to talk freely, to write freely their own opinions and to counter or utter or write upon the opinions of others.
+ - Oh yes as a matter of fact it’s quite interesting that exercises can be conducted which demonstrate conclusively that there are memories which exist prior to this life.
+ - Through our hardest times we have endured. Into our brightest times we are expanding.
+ - There are conditions worse than being unable to see, and that is imagining one sees.
+ - I would say that 99 per cent of what my father has written about his own life is false.
+ - The Arab is trying to be pleased with death and murder and mayhem and disease and poverty and political unrest.
+ - That mind which understands itself is the mind of a free man.
+ - There is no national problem in the world today which cannot be resolved by reason alone.
+ - If attacked on some vulnerable point by anyone or anything or any organization, always find or manufacture enough threat against them to cause them to sue for peace.
+ - The only way you can be successful on a post or win at it is to be at cause over it.
+ - I am a writer of the textbooks of scientology.
+ - And what do you think will happen to you when you find life is just too good to be left alone? You’ll start living it.
+ - My own verse is usually free verse. The freer the better.
+ - Religious tolerance does not mean one cannot express his own beliefs. It does mean that seeking to undermine or attack the religious faith and beliefs of another has always been a short road to trouble.
+ - They smell of all the baths they didnt take. The trouble with China is, there are too many chinks here.
+ - Scientology is a power-and-money-and-intelligence-gathering game.
+ - Let the child see Mama and Daddy both at least once a day. Never quarrel or argue in front of a baby or a child-it destroys security.
+ - It is in your power to point the way to a less dangerous and happier life.
+ - A good Dianetic auditor can take a broken-down, sorrow-drenched lady of thirty-eight and knock out her past periods of physical and mental pain and have on his hands somebody who appears to be twenty-five-and a bright, cheerful twenty-five at that.
+ - One cannot hold power and not use it.
+ - It is not man’s dreams that fail him. It is the lack of know-how required to bring those dreams into actuality.
+ - The artist, day by day, by postulating the new realities of the future, accomplishes peaceful revolution.
+ - Learning locked in mildewed books is of little use to anyone and therefore of no value unless it can be used.
+ - The cold, basic truth is that you are a vital and necessary part of this world.
+ - See what you see, not what someone tells you that you see.
+ - It requires real strength to love Man. And to love him despite all invitations to do otherwise, all provocations and all reasons why one should not.
+ - Those small brown men who sell their sisters on the streets of Cairo were once the mighty Egyptians.
+ - Security is not a static thing. Security would only lie in a man’s confidence in reaching his goals and, indeed, in his having goals to reach.
+ - The way to happiness is a high-speed road to those who know where the edges are.
+ - A human being feels able and competent only so long as he is permitted to contribute as much as or more than he has contributed to him.
+ - Communication is the root of marital success from which a strong union can grow, and noncommunicatio n is the rock on which the ship will bash out her keel.
+ - Perhaps the single most important point for parents to follow is the importance of giving goals to a child. And the most important goal is that of growing up to be an adult.
+ - I set out to try to help my fellow man and to do what little I could to make the world a better place.
+ - Self-confidenc e alone is security. Your ability is your security. There is no security but you.
+ - In fact, you don’t have a soul, you are your own soul. In other words, you are not this book, your social security card, your body or your mind. You are you.
+ - There were very, very large sums of money that I made when I was very young – 15 million published works and a great many successful movies don’t make nothin’.
+ - Stress the right of the individual to select only what he desires to know, to use any knowledge as he wishes, that he himself owns what he has learned.
+ - There are no conflicts which cannot be resolved unless the true promoters of them remain hidden.
+ - You would be amazed how much action anyone is capable of.
+ - The second that you make a man truly free, he becomes truly good. And it is only that individual who has lost his belief in himself and his own pride of goodness and his own pride of being and his own honor who is dangerous.
+ - The only time anyone has ever gotten into serious trouble was when he decided he could do nothing about something.
+ - It is a remarkable fact, a scientific fact, that the healthiest children come from the happiest mothers.
+ - If one does not like the crime, cruelty, injustice and violence of this society, he CAN do something about it.
+ - There is no more ethical group on this planet than ourselves.
+ - The sudden and abrupt deletion of all individuals occupying the lower bands of the Tone Scale from the social order would result in an almost instant rise in the cultural tone and would interrupt the dwindling spiral into which any society may have entered.
+ - When reading a book, be very certain that you never go past a word you do not fully understand. The only reason a person gives up a study or becomes confused or unable to learn is because he or she has gone past a word that was not understood.
+ - Never discuss Scientology with the critic. Just discuss his or her crimes, known and unknown.
+ - The handling of a problem seems to be simply the increase of ability to confront the problem and when the problem can be totally confronted it no longer exists.
+ - Like the bright, cool dawn after a night of prison and of thunder, Man can taste that freedom sought so long.
+ - Dianetics is a milestone for man comparable to his discovery of fire and superior to his invention of the wheel and the arch.
+ - How wonderful it will be if we discover atomic fission.
+ - Works of art are viewed by people. They are heard by people. They are felt by people. They are not just the fodder of a close-knit group of initiates. They are the soul food of all people.
+ - Probably the most neglected friend you have is you.
+ - Any information is valuable to the degree that you can use it.
+ - You can remember times when you were a kid, when life looked too doggoned deliciously beautiful to be left alone. So you could feel like that again if you worked at it.
+ - People have value and are important. Big or small they are important.
+ - A suppressing person isn’t critical. A suppressing person is a person who denies the rights of others.
+ - Living is having and following a purpose. That’s all.
+ - No man is happy without a goal, and no man can be happy without faith in his own ability to reach that goal.
+ - A society in which women are taught anything but the management of a family, the care of men and the creation of the future generation is a society which is on the way out.
+ - All great cathedrals began their building by the placement of a single stone. The building unit of a great society is the individual.
+ - What is generally missed, is that my writing financed research.
+ - Those fields which most depend upon authoritative opinion for their data least contain known natural law.
+ - Organised religion tries to control, so therefore must be lying.
+ - An individual who can freely and with a clear heart do things because they’re fun is a very sane person.
+ - Technical Expertise is composed of all the little and large bits of technique known to the skilled painter, musician, actor, any artist. He adds these things together in his basic presentation. He knows what he is doing. And how to do it. And then to his he adds his message.
+ - All men shall be my slaves! All women shall succumb to my charms! All mankind shall grovel at my feet and not know why!
+ - I’m drinking lots of rum and popping pinks and greys.
+ - I’d like to start a religion. That’s where the money is.
+ - Arthritis vanishes, myopia gets better, heart illness decreases, asthma disappears, stomachs function properly and the whole catalogue of illnesses goes away and stays away.
+ - The South African native is probably the one impossible person to train in the entire world; he is probably impossible by any human standard.
+ - Imagination is actually a form of computation. Imagination gives calculated and instinctive solutions for the future.
+ - Now we notice that Mars doesn’t have any atmosphere either and won’t support life. In spite of the fact that it turns green and red and purple with the seasons, it doesn’t support life.
+ - I have high hopes of smashing my name into history so violently that it will take a legendary form even if all books are destroyed.
+ - Scientology 1970 is being planned on a religious organization basis throughout the world. This will not upset in any way the usual activities of any organization. It is entirely a matter for accountants and solicitors.
+ - The alleviation of the condition of insanity has also been accomplished now.
+ - Artistry is to a large degree simplicity.
+
+242 quotes

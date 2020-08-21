@@ -1,0 +1,39 @@
+ - We should indeed keep calm in the face of difference, and live our lives in a state of inclusion and wonder at the diversity of humanity.
+ - STAR TREK is a show that had a vision about a future that was positive.
+ - Social media is like ancient Egypt: writing things on walls and worshiping cats.
+ - If you have to make laws to hurt a group of people just to prove your morals and faith, then you have no true morals or faith to prove.
+ - I spent my boyhood behind the barbed wire fences of American internment camps and that part of my life is something that I wanted to share with more people.
+ - Nothing is what it seems on the surface of Heroes.
+ - Our democracy is a people’s democracy, and it can be as great as people can be, but it is also as fallible as people are.
+ - People forget that stereotypes aren’t bad because they are always untrue. Stereotypes are bad because they are not always true. If we allow ourselves to judge another based on a stereotype, we have allowed a gross generalization to replace our own thinking.
+ - The only thing worse than human ignorance is human pride in that ignorance.
+ - There is more story in a minor character like Boba Fett than there is in all the clutter of various vampires in the Twilight franchise.
+ - The starship Enterprise was a metaphor starship Earth, and the vision was that the strength of this starship lay in its diversity.
+ - I’m an anglophile. I visit England regularly, sometimes three or four times a year, at least once a year.
+ - Unfriending me when I didn’t even know we were friends? It’s like breaking wind when you’re home alone. If I can’t smell you, knock yourself out.
+ - A man who layeth with another man must be stoned.
+ - This is supposed to be a participatory democracy and if we’re not in there participating then the people that will manipulate and exploit the system will step in there.
+ - It’s really hard to hate someone for being different when you’re too busy laughing together.
+ - To do theater you need to block off a hunk of time.
+ - Pioneering is never done in front of cheerleaders urging on a roaring grandstand of popular approval.
+ - My memories of camp – I was four years old to eight years old – they’re fond memories.
+ - And it seems to me important for a country, for a nation to certainly know about its glorious achievements but also to know where its ideals failed, in order to keep that from happening again.
+ - You know, I grew up in two American internment camps, and at that time I was very young.
+ - Well, the whole history of Star Trek is the market demand.
+ - I’m a civic busybody and I’ve been blessed with an active career.
+ - As the old saying goes, I was simply looking for fan love, in Alderaan places.
+ - I myself am a Buddhist, not a Christian. But I cannot help but think that if Christ ran a public establishment, it would be open to all, and He would be the last to refuse service to anyone. It is, simply put, the most un-Christian of notions.
+ - Facebook itself has an interest in having great content so that its users keep coming back.
+ - Yes, I remember the barbed wire and the guard towers and the machine guns, but they became part of my normal landscape. What would be abnormal in normal times became my normality in camp.
+ - If leadership requires a fired-up sense of purpose and imagination, it also demands a profound connection to the society to be led.
+ - Life is too short not to order the bacon dessert.
+ - As you know, when Star Trek was canceled after the second season, it was the activism of the fans that revived it for a third season.
+ - Cat’s are unpredictable. It is a fine line between the cure, inquisitive and innocent creature resting on our lap and the hissing, spitting and deranged banshee it might become at any moment. This is why we’re trying always to win their love.
+ - But when we came out of camp, that’s when I first realized that being in camp, that being Japanese-American, was something shameful.
+ - I think we learn more from those times in our history where we stumbled as a democracy than we learn from the glorious chapters.
+ - Plays close, movies wrap and TV series eventually get cancelled, and we were cancelled in three season.
+ - I’ve run the marathon several times, so I definitely don’t look like the Great Ancestor!
+ - Well, it gives, certainly to my father, who is the one that suffered the most in our family, and understanding of how the ideals of a country are only as good as the people who give it flesh and blood.
+ - I have two passions in my life. One is to raise the awareness of the internment of Japanese-American citizens. My other passion is the theater.
+
+37 quotes

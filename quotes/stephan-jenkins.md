@@ -1,0 +1,37 @@
+ - Life is cruel and unfair, my friends, and that is fact.
+ - When people come together around music, there’s something ancient going on. It has to come from a genuine place and that’s part of the challenge. You have to cultivate that authenticity everyday.
+ - It’s important to face down your demons.
+ - What we value about music and literature are the moments that they create in our minds when we encounter them.
+ - You make kingdoms and castles on your own.
+ - When you’re just shagging girls, you can talk about it, but once it gets real, then you don’t.
+ - I like surfing; I bring a surfboard with me on tour.
+ - I don’t think DIY is something that necessarily comes to mind when people hear Third Eye Blind, but that is completely how we’ve been from the beginning.
+ - I have this really beautiful Martin guitar, and it just kind of writes songs for me.
+ - Sometimes something will come along, and it feels easy and sometimes you’ll get 85 percent there on a song and the last 15 percent will elude you for three years.
+ - I don’t really believe in palm readers and crystal balls and tarot cards, but I respond to the need for them.
+ - That’s what drew me to rock music in the first place – that sense of remaking the world on your own terms.
+ - Am I a rock star? Yeah, I guess.
+ - There are songs I really enjoy playing. I like playing “Say It” live because it’s a long jam, kind of like shoegaze, so I do enjoy that.
+ - I try to be the fixer of situations and I gravitate to people who are institutional misfits.
+ - I’ve spent several years now with my head down.
+ - I’ve always identified with the misfits.
+ - Books stay with me and have shaped me and made huge impacts on my life.
+ - I respect Chris Carrabba as a songwriter and I also respect his past. He’s got this fierce, straight edge, kind of hardcore core. There’s so many songs that people are connected to and they all came together in a kind of DIY way, which I really do respect.
+ - I carry groceries home on the tank of my motorcycle.
+ - I like people who have a pulse and aren’t afraid to show it.
+ - But I’m not worried about seeking out the approval of others – that high school thing of joining the club.
+ - There’s usually a rhythm and a melody in my head, and that creates an emotional state.
+ - I like that gathering moment where the music is about to begin, that moment right there. It’s like jumping out of an airplane. It’s that moment when the lights go out and then you’re in it.
+ - A lot of people say I wouldn’t have a down day, but you look at the music and there’s real melancholy.
+ - It was a hard time for me to have a pure moment, to be present, to be here.
+ - You probably became a musicians because you’re into it so stay that way. Don’t believe that someone else has the golden ticket for you because they don’t.
+ - I was not someone who participated in other people’s castles.
+ - I find pleasure in things that are simple.
+ - My music is my way to rearrange the world according to my own hopes.
+ - You just gotta go after things you like.
+ - My music is so often like a lullaby I write to myself to make sense of things I can’t tie together, or things I’ve lost, or things I’ll never have.
+ - I play video games, dude!
+ - Luxury and Ostentation usually make me feel antsy, like I’m going to get a case of Gout.
+ - I have my share of insecurities, hopes and fears.
+
+35 quotes

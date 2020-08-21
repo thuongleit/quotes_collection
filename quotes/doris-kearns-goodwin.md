@@ -1,0 +1,29 @@
+ - Good leadership requires you to surround yourself with people of diverse perspectives who can disagree with you without fear of retaliation.
+ - I still think about that one Jamiroquai video a lot.
+ - I wish we could go back to the time when the private lives of our public figures were relevant only if they directly affected their public responsibilities.
+ - I am a historian. With the exception of being a wife and mother, it is who I am. And there is nothing I take more seriously.
+ - I think after Sandy Hook, when Obama went out, and he talked a lot about gun control and met with the parents, there was a sense that something was going to happen. But then, I guess, the power of special interests was greater than public sentiment.
+ - The past is not simply the past, but a prism through which the subject filters his own changing self-image.
+ - Excitement about things became a habit, a part of my personality, and the expectation that I should enjoy new experiences often engendered the enjoyment itself.
+ - That is what leadership is all about: staking your ground ahead of where opinion is and convincing people, not simply following the popular opinion of the moment.
+ - I’ve been to the White House a number of times.
+ - I shall always be grateful for this curious love of history, allowing me to spend a lifetime looking back into the past, allowing me to learn from these large figures about the struggle for meaning for life.
+ - Once a president gets to the White House, the only audience that is left that really matters is history.
+ - The turn of the century was the age of the banker, so much so that the leading bankers of the day had become legendary figures in the public imagination-vast, overshadowing behemoths whose colossal power seemed to reach everywhere.
+ - My books are written with a strong chronological spine.
+ - I liked the thought that the book I was now holding had been held by dozens of others.
+ - Washington was a typical American. Napoleon was a typical Frenchman, but Lincoln was a humanitarian as broad as the world. He was bigger than his country – bigger than all the Presidents together.
+ - Where’s the progress that we’re going to see in Afghanistan? You have to keep public support both on the economy and the war or these things will really become troubling.
+ - As a historian, what I trust is my ability to take a mass of information and tell a story shaped around it.
+ - Lincoln had internalized the pain of those around him-the wounded soldiers, the captured prisoners, the defeated Southerners. Little wonder that he was overwhelmed at times by a profound sadness that even his own resilient temperament could not dispel.
+ - Go ahead, and fear not. You will have a full library at your service.
+ - The only protection as a historian is to institute a process of research and writing that minimizes the possibility of error. And that I have tried to do, aided by modern technology, which enables me, having long since moved beyond longhand, to use a computer for both organizing and taking notes.
+ - I really believe that what happens one day affects the next, and I think that came from that experience of learning that if I told the score inning by inning, play by play, it built up to its natural climax.
+ - People tease me about knowing somehow that Obama would put Clinton into the cabinet, and everybody would talk about a team of rivals.
+ - We’ve got to figure out a way that we give a private sphere for our public leaders. We’re not gonna get the best people in public life if we don’t do that.
+ - Ironically, the more intensive and far-reaching a historian’s research, the greater the difficulty of citation. As the mountain of material grows, so does the possibility of error.
+ - A lot of times when people are on campaigns, it can be like a movie set.
+ - Those who knew Lincoln described him as an extraordinarily funny man. Humor was an essential aspect of his temperament. He laughed, he explained, so he did not weep.
+ - I now rely on a scanner, which reproduces the passages I want to cite, and then I keep my own comments on those books in a separate file so that I will never confuse the two again.
+
+27 quotes

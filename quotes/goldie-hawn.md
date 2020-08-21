@@ -1,0 +1,60 @@
+ - You often meet your fate on the road you take to avoid it.
+ - If we can just let go and trust that things will work out they way they’re supposed to, without trying to control the outcome, then we can begin to enjoy the moment more fully. The joy of the freedom it brings becomes more pleasurable than the experience itself.
+ - The only thing that will make you happy is being happy with who you are, and not who people think you are.
+ - I have witnessed the softening of the hardest of hearts by a simple smile.
+ - Stress is something that’s created in the mind, basically. It’s how we look at things. So ovr greatest defense against stress is the ability to change ovr minds; to change ovr thinking.
+ - Why not just live in the moment, especially if it has a good beat?
+ - I’ve finally stopped running away from myself. Who else is there better to be?
+ - The key is to figure out what you want out of life, not what you want out of your career.
+ - We have to embrace obstacles to reach the next stage of joy.
+ - Family has always been the most important thing in my life. The only real goal that I ever had was to be a good mother.
+ - The beauty of getting older is the surprise of what else you can do to make the world a better place with the wisdom that you’ve accrued over those years.
+ - Letting go of someone we love is the hardest thing we will ever do. Some people never surrender to love for the fear of being hurt. But to not have loved, to not have felt the immense joy it brings, would have been a far worse kind of death.
+ - Everybody ages. Everybody dies. There is no turning back the clock. So the question in life becomes: What are you going to do while you’re here.
+ - We need to have empathy. When we lose empathy, we lose our humanity.
+ - There are three words I like to repeat to myself: glass half full. Just to remind myself to be grateful for everything I have.
+ - We are born with the seed of joy; it is up to us to nurture it.
+ - So each time you do a shift in your life, right, or you do a change in your life, then sometimes it feels like it’s not gonna happen. And your career is not gonna do well. And the next thing you know is that these choices that you make actually catapult you to the next level.
+ - Happiness, I think, has to come in the beginning, truly, from feeling a sense of well-being within yourself. To me it’s that incredible sense of belonging and peace within your own self and heart that really is joy.
+ - Comedy is like catching lightning in a bottle.
+ - One of Buddhism’s main practices is understanding and experiencing compassion, and how that ultimately is a road to happiness.
+ - If you have a sense of yourself, your mission, your belief system, those things will lead you to success.
+ - I’m not afraid of my femininity and I’m not afraid of my sexuality.
+ - Comedy breaks down walls. It frees us for just a moment from the ugliness of this world.
+ - At 11 years old I made a very definitive decision. And my decision was that I wanted to be happy.
+ - All I ever wanted to be was happy.
+ - I noted that people are happy here in India. When I went back home, people had everything in the materialistic sense and were surrounded with abundance, but they were not happy.
+ - So curiosity, I think, is a really important aspect of staying young or youthful.
+ - Youthfulness is connected to the ability to see things new for the first time. So if your eyes still look at life with wonder, then you will seem young, even though you may not be chronologically young.
+ - If you put junk food in your body, your body will turn to junk...
+ - I practice Buddhist philosophy and contemplation but I don’t know if I’m more of anything.
+ - I’ve come to believe that seeking happiness is not a frivolous pursuit. It’s honorable and necessary. And most people forget even to thing about it.
+ - What I’ve learned through my meditation is a sense of equanimity, a sense of all things being equal.
+ - You don’t have to tell a child not to bully. You know, you talk at kids, they don’t hear you, but when you give them a visceral experience, then they have something to remember.
+ - The key is to learn to respect and honor the complications of other people’s lives.
+ - I think what we can do is to develop this incredible computer that we have on our heads, because it’s endless. It’s just the most brilliant thing we have to develop, and know that we have the power over all of it.
+ - I’m a woman who was raised to believe that you are not complete unless you have a man. Well, in some ways it’s true. I am a feminist to a point. But I’m not going to deny the fact that I love to be with men.
+ - So maybe that’s what the difference is, is that when you intend to be happy, then you figure out ways to sustain your happiness or your ability to feel moments of joy in your life.
+ - I’ll have a lot of wrinkles on my face, but I feel like my heart will be fat and full.
+ - It is not the question, what am I going to be when I grow up; you should ask the question, who am I going to be when I grow up.
+ - When I realized this fear, this uncertainty, this potential of dying, I guess I needed something greater to hold onto than what we can see, touch, and smell-and that was the spiritual aspect of God, the nature of God and his relationship to humans.
+ - A rested face is a beautiful face. However you can, find your place of rest and peace.
+ - When you look at the amount of medication that has been administered to children today, it stands the hair up on your arms. Because this is the way that they are helping children manage their emotions.
+ - I think that the boys have a tendency to be less receptive than the girls.
+ - There are only three ages for women in Hollywood-Babe, District Attorney, and Driving Miss Daisy.
+ - I must say that the biggest lesson you can learn in life, or teach your children, is that life is not castles in the skies, happily ever after. The biggest lesson we have to give our children is truth. We’re all built with illusions. And they break.
+ - Because I like that I got an ugly girl’s personality. In other words, a homely girl always has to develop that muscle. And I did. But the good news is that I never considered myself beautiful at all. And I still don’t.
+ - We’re social animals; we’re meant to be together, but we were never necessarily meant to be together without being together. That was never the plan, I don’t think.
+ - Marriage is ridiculous.
+ - Paparazzi will try to get the most controversial picture of you in a compromising position because that’s how they’re going to sell it.
+ - Men, they come and go. They always will. Hopefully, they stay. But, it’s the girl that’s sitting next to you, or the girl that’s sitting across from you, that’s going to get you through everything.
+ - I got a heart tattooed on my foot. It’s my first tattoo.
+ - Ditzy dumb blonde? I can be ditzy. I can be.
+ - I wrote the book because I wanted to be able to share some things that I had learned and as pompous as that may sound, as you get to a certain point in life, you figure so what am I doing?
+ - So, but I’ve always been very realistic about what it is when you’re in the public eye.
+ - My mother loved the Bible.
+ - The biggest lesson we have to give our children is truth...
+ - Peter Sellers was great to work with. A lovely man. A little bit crazy in that he – you know, as I say, it was hard. It was sort of balancing a very delicate spirit on a needle. You know, because you never know where he was going.
+ - I really think that to a lot of people hair is everything. Bad hair takes over everything, it really does. I think if somebody has bad hair it doesn’t matter what else is happening.
+
+58 quotes

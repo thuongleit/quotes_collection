@@ -1,0 +1,42 @@
+ - Adventure in life is good; consistency in coffee even better.
+ - Getting lost is just another way of saying ’going exploring.
+ - There is real comfort in being quiet.
+ - Silence, too, can be torture.
+ - You raze the old to raise the new.
+ - The pressure of his touch through my jacket and my sweater was more assurance than any promise ever made to me. It was a touch that said, I have your back and I am here for you. If a girl wasn’t careful, she could fall in love with a touch like that.
+ - When the creative impulse sweeps over you, grab it. You grab it and honor it and use it, because momentum is a rare gift.
+ - Physical beauty wasn’t the same as True Beauty, any more than pretty ugly meant truly ugly or Magnetic North meant True North.
+ - Inertia is so easy – don’t fix what’s not broken. Leave well enough alone. So we end up accepting what is broken, mistaking complaining for action, procrastinating for deliberation.
+ - Beauty – real everlasting beauty – lives not on our faces, but in our attitude and our actions. It lives in what we do for ourselves and for others.
+ - A pathfinder’s job is hard enough – blazing trails where there are none, guided by nothing but hearsay and gut. While you’re hacking your way through bracken, worrying about lurking beasts, all you can do is hope you had chosen the right direction.
+ - Let the glossy spreads have their heart-stopping, head-turning kind of beauty. Give me the heart-filling beauty instead. Jolie laide, that’s what I would choose. Flawed, we’re truly interesting, truly memorable, and yes, truly beautiful.
+ - What swells inside me is a love so boundless, I am the sunrise and sunset. I am Liberty Bell in the Cascades. I am Beihai Lake. I am every beautiful, truly beautiful, thing I’ve ever seen, captured in my personal Geographia, the atlas of myself.
+ - Forgiving others is easier when I remember that I’m human and stupid, too.
+ - Maybe we don’t have the same definition of about what’s beautiful. So define it. Define true beauty.
+ - You can see beauty in everything, except for yourself.
+ - Hey, if it’s a good philosophy, it works. Death is imminent. Live every day like it’s your last.
+ - To dream is to starve doubt, feed hope.
+ - From her dubious tone alone, I could see how Karin had no idea how terrifying words spoken quietly could be. How words chosen precisely to wreak maximum damage ticked like a bomb in your head, but exploded in your heart hours later, leaving you scarred and changed.
+ - Come on, don’t you ever stop and smell the coffee?
+ - Like world describers before me, those mapmakers in the seventeenth centure, I had laid down my first faintly drawn border. With that one tentative mark, my world expanded by a few freeing degrees.
+ - What was so miraculous about a relationship that was based more on my gratitude than on mutual self respect?
+ - Maybe getting around in life was nothing but map-reading. A skill that required practice. A key to unlock where you wanted to go. A legend to show where you were.
+ - What would it be like to look in the mirror and actually accept what you see? Not loathe the reflection, or despise it, or be resigned to it? But to like it?
+ - Teachers wondered why I didn’t speak up more in class. Why would I when I knew how precarious words could be, how betraying they were, how vulnerable they made you?
+ - I didn’t know that the world could be so mind-blowingly beautiful.
+ - You know, sometimes the most direct route isn’t the right one. – Jacob.
+ - I preferred my brand of beauty where Norah was more beautiful than any bimbette, and Mom was beautiful whether sized extra-small or extra-large. Where Peony could look at herself in the mirror and murmur, wow, look at me. Just look at me.
+ - If Jacob was right and clothes were costumes and makeup a mask, then our attitudes and habits must be our shields.
+ - If there was one thing I refused to be, it was an insignificant footnote in some boy’s history.
+ - I wondered about her chicken-and-egg relationship with Dad. Which came first? Her helplessness or his controlling?
+ - But even quashed rebellions leave us different. Because freedom may be a forbidden fruit in tyrannies, but once tasted, it is unforgettable.
+ - You would be surprised what two hours of daily exercise and five hundred stomach crunches can do for you.
+ - He knew me in all the ways that truly mattered: the shape of my fears, the contours of my dreams.
+ - Safe, I decided, didn’t leave much room for fun.
+ - That’s exactly why nature always trumps gardens. Gardens are just reality pruned of chaos. What doesn’t work you rip out.
+ - My confidence was of the hothouse variety, carefully cultivated under highly regulated conditions. One wrong look, one mean comment, and my facade would wither.
+ - No power was total, no power permanent, no power absolute.
+ - You know, there are easier ways to meet a guy than to run him over.
+ - Flawed, we’re truly interesting, truly memorable, and yes, truly beautiful.
+
+40 quotes

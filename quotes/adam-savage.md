@@ -1,0 +1,83 @@
+ - I reject your reality and substitute my own.
+ - Failure is always an option.
+ - The difference between screwing around and science is writing it down.
+ - Deadlines refine the mind. They remove variables like exotic materials and processes that take too long. The closer the deadline, the more likely you’ll start thinking waaay outside the box.
+ - I’ve learned over decades of building that a deadline is a potent tool for problem-solving.
+ - Bad spellers of the world untie!
+ - I have some ideas on how to fix that. They’re not very good ideas, but at least they’re ideas!
+ - I believe that inside every tool is a hammer.
+ - Gravity. It’s not just a good idea; it’s the law!
+ - Am I missing an eyebrow?
+ - We didn’t set out to be educators or even scientists, and we don’t purport that what we do is real science but we’re demonstrating a methodology by which one can engage and satisfy your curiosity.
+ - I think one of the defining moments of adulthood is the realization that nobody’s going to take care of you. That you have to do the heavy lifting while you’re here. And when you don’t, well, you suffer the consequences.
+ - I’m obsessed with the form of a toolbox. The idea of a portable kit that has everything you might need ignites something inside me. It’s like Batman’s utility belt.
+ - I just had one of those ‘what the hell are we doing’ moments.
+ - This is the point in the show where we say, ‘Oh, what else do we have in the van that’s flammable?’
+ - In the spirit of science, there really is no such thing as a ‘failed experiment.’ Any test that yields valid data is a valid test.
+ - We are always works in progress. You will hurt people you love, and help people you detest. This is called being a human and it happens to everyone.
+ - I’m not a sculptor; I’m a hard-edged model maker. You give me a drawing, you give me a prop to replicate, you give me a crane, scaffolding, parts from ‘Star Wars’ – especially parts from ‘Star Wars’ – I can do this stuff all day long. It’s exactly how I made my living for 15 years.
+ - I’m actually the fourth generation in my family to have no practical use for the church, or God, or religion. My children continue this trend.
+ - The Internet is probably the most important technological advancement of my lifetime. Its strength lies in its open architecture and its ability to allow a framework where all voices can be heard.
+ - The coolest toys don’t have to be bought; they can be built. In fact, sometimes the only way they’ll ever exist is if you make them yourself.
+ - That aesthetic of the Star Wars universe: the do-it-yourself, hotrod ethic that George Lucas exported from his childhood, is exactly the same kind of soul behind what we do and build for the show. It may not look pretty, but it gets the job done.
+ - How hard can it be to blow up a room full of gasoline?!
+ - When I finally got up to Industrial Light And Magic to work on the ‘Star Wars’ movies as a model-maker, it felt like dying and going to heaven.
+ - There is no dignity in television.
+ - My advice is keep your lips away from the spinning things.
+ - Fractals, the theory of relativity, the genome: these are magnificently beautiful constructs.
+ - Stand back! I gotta get some rocket fuel out of the fridge!
+ - I would have to say that looked like it hurt.
+ - It’s sort of a mental attitude about critical thinking and curiosity. It’s about mindset of looking at the world in a playful and curious and creative way.
+ - New York State is giant and has some of the most beautiful landscape on the Eastern seaboard. There is so much history in New York State, from the Erie Canal to the Catskills, the birth of American stand-up comedy.
+ - The skeptical community is absolutely near and dear to the ‘Mythbusters’ heart and there’s no small reason that they’ve embraced us. That’s our people. That’s the way we like to think.
+ - I think LEGOs are one of the best toys ever developed.
+ - Walking the floor at a con dressed as Chewbacca, you might as well be Bono. I mean it’s ridiculous. People just walk up and grab you and hold you, because they love Chewbacca so much.
+ - I go home at the end of the day and I rarely talk about what I did that day. So my wife’s experience is just like that of anybody else whose husband goes away to a blue collar job and comes home bruised and dirty and often proud of the work that they’re doing.
+ - The idea of an ordered and elegant universe is a lovely one. One worth clinging to. But you don’t need religion to appreciate the ordered existence. It’s not just an idea, it’s reality. We’re discovering the hidden orders of the universe every day.
+ - Remember kids, I have life insurance.
+ - If I had any dignity, that would have been humiliating.
+ - We cleared all traces of our occupation out of M6 and moved to M7, and it’s been quite smooth over there. We chose a place all the way at the end of an industrial park.
+ - I wouldn’t say jamie is an evil genius. I’m not sure he’s evil and I’m not sure he’s a genius.
+ - The best-case scenario is that the glass shatters in my face! How do you think that makes me feel?
+ - I like to work fast. I despise not having the right tool or, worse, knowing I have it but not being able to find it. It’s a pointless delay that wrecks my pace – and mood.
+ - Technology is usually there to let some process go on hidden in the background. For us on ‘MythBusters,’ we’re always trying to make the process apparent. So, we have learned to try and never rely on a technological solution when an analogue one is in front of us.
+ - The fact is that the British Museum had a complete specimen of a dodo in their collection up until the 18th century – it was actually mummified, skin and all – but in a fit of space-saving zeal, they actually cut off the head and they cut off the feet and they burned the rest in a bonfire.
+ - Firemen have the coolest toys ever!
+ - The explosions, like the urban legends, are a great way of bringing people in to watch, because it’s really fun, and you know we’re always going to give you a satisfying ending.
+ - When in doubt, C-4.
+ - I am now standing in a mixture of cooling fluid, gasoline, and cola.
+ - I find that your basic Internet chat board is way too vitriolic for my taste.
+ - Am I about to feel really, really stupid?
+ - Jamie’s gonna go take a break now, and i am going to continue the on-going process of making a fool of myself and go ahead and try it myself.
+ - We’re allowed to explore the world at large on these things; the urban-legend aspect of it is just kind of an excuse.
+ - I believe that rules do not make us moral; loving each other makes us moral.
+ - From earliest times, humans – explorers and thinkers – have wanted to figure out the shape of their world. Forever, the way we’ve done that is through storytelling. It is difficult to let the truth get in the way of a good story.
+ - After all those years of doing remote detonations, where we just push a button and something explodes, to actually see a nice big fat line of black smoke heading toward something that will blow up is very satisfying.
+ - I learned at an early age that I could make the things that I wanted. That’s a very powerful thing to realize as a kid. LEGOs were a key part of that.
+ - The ‘Mythbusters’ crew, we monitor the Discovery boards, we look for the new ideas that are being forwarded on those boards, and we keep track of what’s going on, we keep updated.
+ - Isn’t television glamourous?
+ - Bigger is always better.
+ - Sometimes my brain writes a check that reality can’t cash.
+ - If I haven’t had any long term psychological side effects from all the things I’ve already done on this show, this isn’t gonna hurt much more.
+ - I find it’s too much for me to read endless critiques, even if we’re being well-defended, of exactly what we’re doing. When someone tells us something we’re doing wrong on the boards, we try to respond, we try to be responsive to the fan boards, but yeah, I can’t read them.
+ - Whether it’s the experiments on ‘MythBusters’ or my earlier work in special effects for movies, I’ve regularly had to do things that were never done before, from designing complex motion-control rigs to figuring out how to animate chocolate.
+ - I am incrementally a pessimist, but I see the international debate that Edward Snowden has engendered, and I think this is exactly where the discussion should be. So, I would say I’m more optimistic than pessimistic.
+ - That was excellent! I mean, it didn’t do anything, but it looked really cool!
+ - It’s a treat to see the sun rise over the desert. What am I saying? It’s a treat to fire off a rocket car over the desert!
+ - There’s few things that get you over your own crap more than working hard.
+ - I’ve always thought something that makes you laugh, it makes you laugh because there’s a little bit of truth to it.
+ - Let’s get on our knees and pray. I don’t know to whom. Is there a patron saint of ballistics gel?
+ - Being a geek is all about learning the inventories of things.
+ - Prayer doesn’t work because someone out there is listening, it works because someone in here is listening. I’ve paid attention. I’ve pictured what I want to happen in my life. I’ve meditated extensively on my family, my future, my past actions and what did and didn’t work for me about them.
+ - The only thing that differentiates you and me from a couple of fourteen year old pyromaniacs is balistic glass!
+ - There’s this group online that I frequent. It’s a group of prop crazies just like me called the Replica Props Forum, and it’s people who trade, make and travel in information about movie props.
+ - Lists are how I parse and manage the world.
+ - Of course, I love tools. I also love arranging them, to the point where I came up with a name for my organizing metric: first-order retrievability.
+ - My dignity and good television – they’ll never meet.
+ - There are women who are wishing that they were that piece of tape right now.
+ - We don’t necessarily stand by our faults every time, but we will always stand by our methodologies and ethos.
+ - Again, like I said, my life has been about being fascinated by objects and the stories that they tell, and also making them for myself, obtaining them, appreciating them and diving into them.
+ - Let’s blow some stuff up.
+ - That’s our job – to strap rockets onto everything.
+
+81 quotes

@@ -1,0 +1,49 @@
+ - Anything can happen in life, especially nothing.
+ - Those who love life do not read. Nor do they go to the movies, actually. No matter what might be said, access to the artistic universe is more or less entirely the preserve of those who are a little fed up with the world.
+ - The most stupid religion is Islam.
+ - Islam is a dangerous religion.
+ - People are suspicious of single men on vacation, after they get to a certain age: they assume that they’re selfish, and probably a bit pervy. I can’t say they’re wrong.
+ - I prefer reading to writing. Reading changes your world view. Writing changes absolutely nothing. Except, of course, when it makes you rich.
+ - To increase desires to an unbearable level whilst making the fulfillment of them more and more inaccessible: this was the single principle upon which Western society was based.
+ - The absence of the will to live is, alas, not sufficient to make one want to die.
+ - I want to be loved despite my faults. It isn’t exactly true that I’m a provocateur. A real provocateur is someone who says things he doesn’t think, just to shock. I try to say what I think.
+ - Life is painful and disappointing. It is useless, therefore, to write new realistic novels. We generally know where we stand in relation to reality and don’t care to know any more.
+ - Father died last year. I don’t subscribe to the theory by which we only become truly adult when our parents die; we never become truly adult.
+ - In order to pass the time I told him the story of the German who ate the other German whom he’d met on the internet.
+ - I don’t like this world. I definitely do not like it. The society in which I live disgusts me; advertising sickens me; computers make me puke.
+ - The triumph of vegetation is total.
+ - When you read the Koran, you give up. At least the Bible is very beautiful because Jews have an extraordinary literary talent.
+ - It’s a curious idea to reproduce when you don’t even like life.
+ - In reality, the monotheist texts preach neither peace, love nor tolerance. They are texts of hate.
+ - Not having anything around to read is dangerous: you have to content yourself with life itself, and that can lead you to take risks.
+ - Love binds, and it binds forever. Good binds while evil unravels. Separation is another word for evil; it is also another word for deceit.
+ - The world outside had its own rules, and those rules were not human.
+ - Adolescence is not only an important period in life, but that it is the only period where one may speak of life in the full sense of the word.
+ - If life is an illusion it’s a pretty painful one.
+ - As a teenager, Michel believed that suffering conferred dignity on a person. Now he had to admit that he had been wrong. What conferred dignity on people was television.
+ - Active people don’t change the world profoundly; ideas do. Napoleon is less important in world history than Jean-Jacques Rousseau.
+ - The press may hate me, and I know my battles with them are not over, but that doesn’t matter.
+ - I think that if writers don’t speak about real life, it’s because they don’t know it.
+ - My novels are all ideas.
+ - The love of a dog is a pure thing. He gives you a trust which is total. You must not betray it.
+ - I’d say that the question whether love still exists plays the same role in my novels as the question of God’s existence in Dostoevsky.
+ - The terrible predicament of a beautiful girl is that only an experienced womanizer, someone cynical and without scruple, feels up to the challenge. More often than not, she will lose her virginity to some filthy lowlife in what proves to be the first step in an irrevocable decline.
+ - Tenderness is a deeper instinct than seduction, which is why it is so hard to give up hope.
+ - The Americans are completely stupid. The intellectual level in any single European country is higher than in America.
+ - There is no point in asking me general questions because I am always changing my mind.
+ - I am for the muscles. I would like to have a lot of muscles, because women like it. I’m for bodybuilding, but it’s very exhausting.
+ - A reactionary is someone who wants to return to a previous state – that’s never a possibility in my books. For me, everything’s irreversible in the life of a society, as well as an individual’s.
+ - The great advantage of a novel is you can put in whatever comes into your head – it has the same shape as the human brain.
+ - Now abideth beauty, truth, and intensity; but the greatest of these is intensity.
+ - I tend to think that good and evil exist and that the quantity in each of us is unchangeable. The moral character of people is set, fixed until death.
+ - Those who think they know me are simply lacking in information.
+ - Why am I popular? I don’t know. Is it a mistake? I should think it’s a mistake somewhere.
+ - I admit that invective is one of my pleasures. This only brings me problems in life, but that’s it. I attack, I insult. I have a gift for that, for insults, for provocation. So I am tempted to use it.
+ - On Sunday morning I went out for a while in the neighbourhood; I bought some raisin bread. The day was warm but a little sad, as Sundays often are in Paris, especially when one doesn’t believe in God.
+ - I think it’s more difficult to live without a religion, definitely.
+ - When we think about the present, we veer wildly between the belief in chance and the evidence in favour of determinism. When we think about the past, however, it seems obvious that everything happened in the way that it was intended.
+ - In my own writing, I think of myself as a realist who exaggerates a little.
+ - Polemical debates happen all the time in France.
+ - I think that if I am notorious, it is because other people have decided that this is how I should be.
+
+47 quotes

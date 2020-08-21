@@ -1,0 +1,28 @@
+ - I squeeze oranges every morning to make juice.
+ - I get strangely obsessed about the cleanliness of my house.
+ - No one told me I had to make something that would sell, but I personally want everyone to like my music.
+ - I’m not like a gorgeous bombshell or anything like that.
+ - I can never really enjoy being famous.
+ - If I suddenly disappear from the music world, you might see Hikaru Utada working as a helper at some inn in Atami.
+ - Wish I could prove I love you, but does that mean I have to walk on water?
+ - For the version of this CD released in Japan, a translation of the English lyrics is included, but there are lots of places where meanings are lost in the process of translation.
+ - I’ve been missing Japanese literature so much of late.
+ - I figure no matter how old you are, it’s always going to be your first marriage and no life experience is going to make you a better judge of who you should marry.
+ - The thing is, in English I’m able to write the lyrics as I’m making the song, once I’m done with the melody.
+ - I just want people to see that I do my own stuff, that I’m not stupid, and I can make fun of myself.
+ - The world is in motion, as it seems.
+ - In English, the sounds and melodies I created were an inspiration to me, and words came to me as I explored the sounds, and from there I was able expand on the meaning.
+ - In Japan, people don’t really sing about sexual content.
+ - Americans are somehow obsessed with her, and something about me hit a spot with people in Japan.
+ - There really aren’t any completely Asian people singing right now.
+ - Since I was doing all of it myself, I had to decide where I wanted to go with the songs, how to proceed with the chords, if the sound was alright, and all that detail on my own.
+ - Sort of like, I have to make the Japanese lyrics really deep.
+ - I don’t like going to the gym because I don’t like being with people I don’t know in that intense environment.
+ - People do ask me if I think I can make it in the States.
+ - I bought an espresso maker and coffee maker and make them myself every day.
+ - The same parts of my brain get as excited as when I study bio or read a novel and write a paper on it.
+ - I do feel really determined, and that I have to pull myself together, but I don’t really think like, my market has changed and my company has changed, and I’m going to make it BIG in America!
+ - It’s a fairly recent thing but I’ve become very fond of making drinks myself.
+ - The Japanese version comes with a translation, but that’s different from the lyrics, so people could look things up and find a translation of their own if they’re interested.
+
+26 quotes

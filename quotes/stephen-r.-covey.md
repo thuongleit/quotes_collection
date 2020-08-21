@@ -1,0 +1,502 @@
+ - The key is not to prioritize what’s on your schedule, but to schedule your priorities.
+ - Seek first to understand, then to be understood.
+ - Most people do not listen with the intent to understand; they listen with the intent to reply.
+ - I am not a product of my circumstances. I am a product of my decisions.
+ - Sow a thought, reap an action; sow an action, reap a habit; sow a habit, reap a character; sow a character, reap a destiny.
+ - Start with the end in mind.
+ - Live out of your imagination, not your history.
+ - Treat your employees exactly as you want them to treat your best customers.
+ - Be part of the solution, not part of the problem.
+ - The main thing is to keep the main thing the main thing.
+ - Make time for planning: Wars are won in the general’s tent.
+ - There are three constants in life: change, choice and principles.
+ - Trust is the glue of life. It’s the most essential ingredient in effective communication. It’s the foundational principle that holds all relationships.
+ - Proactive people carry their own weather with them.
+ - Motivation is a fire from within. If someone else tries to light that fire under you, chances are it will burn very briefly.
+ - Synergy is better than my way or your way. It’s our way.
+ - To begin with the end in mind means to start with a clear understanding of your destination. It means to know where you’re going so that you better understand where you are now and so that the steps you take are always in the right direction.
+ - The way we see the problem is the problem.
+ - Strength lies in differences, not in similarities.
+ - Stop setting goals. Goals are pure fantasy unless you have a specific plan to achieve them.
+ - Be a light, not a judge. Be a model, not a critic.
+ - Accountability breeds response-ability.
+ - To achieve goals you’ve never achieved before, you need to start doing things you’ve never done before.
+ - Most of us spend too much time on what is urgent and not enough time on what is important.
+ - Leadership is a choice, not a position.
+ - Taking initiative is a form of self-empowerment.
+ - Live your life by a compass, not a clock.
+ - We see the world, not as it is, but as we are – or, as we are conditioned to see it. When we open our mouths to describe what we see, we in effect describe ourselves, our perceptions, our paradigms.
+ - To live; to love; to learn; and to leave a legacy.
+ - What you do has far greater impact than what you say.
+ - Self-awareness involves deep personal honesty. It comes from asking and answering hard questions.
+ - When you have too many top priorities, you effectively have no top priorities.
+ - One thing’s for sure. If we keep doing what we’re doing, we’re going to keep getting what we’re getting. One definition of insanity is to keep doing the same thing and expect different results.
+ - People don’t listen to understand. They listen to reply. The collective monologue is everyone talking and no one listening.
+ - The undisciplined are slaves to moods, appetites and passions.
+ - If I really want to improve my situation, I can work on the one thing over which I have control – myself.
+ - The essence of synergy is to value differences-to respect them, to build on strengths, to compensate for weaknesses.
+ - When the trust account is high, communication is easy, instant, and effective.
+ - All things are created twice. There’s a mental or first creation, and a physical or second creation to all things.
+ - The enemy of the “best” is often the “good.”
+ - The key is in not spending time, but in investing it.
+ - You always reap what you sow; there is no shortcut.
+ - You can learn great things from your mistakes when you aren’t busy denying them.
+ - Where you are headed is more important than how fast you are going. Rather than always focusing on what’s urgent, learn to focus on what is really important.
+ - Difference is the beginning of synergy.
+ - Treat a man as he is and he will remain as he is. Treat a man as he can and should be and he will become as he can and should be.
+ - Happiness, like unhappiness, is a proactive choice.
+ - Be patient with yourself. Self-growth is tender; it’s holy ground. There’s no greater investment.
+ - It takes humility to seek feedback. It takes wisdom to understand it, analyze it and appropriately act on it.
+ - Beginners are many; finishers are few.
+ - Highly proactive people don’t blame circumstances, conditions, or conditioning for their behavior. Their behavior is a product of their own conscious choice.
+ - Personal leadership is the process of keeping your vision and values before you and aligning your life to be congruent with them.
+ - To change ourselves effectively, we first had to change our perceptions.
+ - It’s not what happens to us, but our response to what happens to us that hurts us.
+ - We judge ourselves by our intentions. And others by their actions.
+ - Interdependent people combine their own efforts with the efforts of others to achieve their greatest success.
+ - We can act instead of being acted upon.
+ - Trust is the highest form of human motivation. It brings out the very best in people. But it takes time and patience.
+ - Free your heart from hatred – forgive. Free your mind from worries – most never happen. Live simply and appreciate what you have. Give more. Expect less.
+ - Paradigms are powerful because they create the lens through which we see the world.
+ - If the big rocks don’t go in first, they aren’t going to fit in later.
+ - The only thing that endures over time is the ‘Law of the Farm.’ You must prepare the ground, plant the seed, cultivate, and water if you expect to reap the harvest.
+ - Trust is the highest form of human motivation.
+ - Two people can see the same thing, disagree, and yet both be right. It’s not logical; it’s psychological.
+ - The greatest risk is the risk of riskless living.
+ - To know and not to do is not to know.
+ - If the ladder is not leaning against the right wall, every step we take just gets us to the wrong place faster.
+ - Life is a mission, not a career.
+ - Self-awareness is our capacity to stand apart from ourselves and examine our thinking, our motives, our history, our scripts, our actions, and our habits and tendencies.
+ - To touch the soul of another human being is to walk on holy ground.
+ - We think we see the world as it is, when in fact we see the world as we are.
+ - You can’t hold someone accountable for results if you supervise their methods.
+ - Almost every significant breakthrough is the result of a courageous break with traditional ways of thinking.
+ - The amateur salesman sells products; the professional sells solutions to needs and problems.
+ - Once you have a clear picture of your priorities – that is values, goals, and high leverage activities – organize around them.
+ - Nothing tastes as good as thin feels.
+ - Compliance does not foster innovation, trust does. You can’t sustain long-term innovation, for example, in a climate of distrust.
+ - The reality is that everybody makes mistakes. The issue isn’t whether you will make them, it’s what you will do about them. It’s whether you will choose the path of humility and courage or the path of ego and pride.
+ - Most people struggle with life balance simply because they haven’t paid the price to decide what is really important to them.
+ - Satisfied needs do not motivate. It’s only the unsatisfied need that motivates. Next to physical survival, the greatest need of a human being is psychological survival – to be understood, to be affirmed, to be validated, to be appreciated.
+ - We must never be too busy to take time to sharpen the saw.
+ - When you show deep empathy toward others, their defensive energy goes down, and positive energy replaces it. That’s when you can get more creative in solving problems.
+ - Our ultimate freedom is the right and power to decide how anybody or anything outside ourselves will affect us.
+ - Without involvement, there is no commitment. Mark it down, asterisk it, circle it, underline it. No involvement, no commitment.
+ - Visualising something organises one’s ability to accomplish it.
+ - If you can hire people whose passion intersects with the job, they won’t require any supervision at all. They will manage themselves better than anyone could ever manage them. Their fire comes from within, not from without. Their motivation is internal, not external.
+ - Everyone chooses one of two roads in life – the old and the young, the rich and the poor, men and women alike. One is the broad, well-traveled road to mediocrity, the other road to greatness and meaning.
+ - Moving along the upward spiral requires us to learn, commit, and do on increasingly higher planes. We deceive ourselves if we think that any one of these is sufficient. To keep progressing, we must learn, commit, and do-learn, commit, and do-and learn, commit, and do again.
+ - Humility is the mother of all virtues, courage the father, integrity the child and wisdom the grandchild.
+ - When you engage in a work that taps your talent and fuels your passion-that rises out of a great need in the world that you feel drawn by conscience to meet-therein lies your voice, your calling, your soul’s code.
+ - Where there’s no gardener, there’s no garden.
+ - We not not our feelings. We are not our moods. We not even our thoughts.
+ - Some people achieve the top of the ladder and only then realise it was standing against the wrong wall.
+ - Role modeling is the most basic responsibility of parents. Parents are handing life’s scripts to their children, scripts that in all likelihood will be acted out for the rest of the children’s lives.
+ - We are free to choose our response in any situation, but in doing so we chose the attendant consequence. If we pick up one end of the stick, we pick up the other.
+ - To Retain those who are present, be loyal to those who are absent.
+ - The ability to establish, grow, extend, and restore trust is the key professional and personal competency of our time.
+ - The environment you fashion out of your thoughts, your beliefs, your ideals, your philosophy is the only climate you will ever live in. The key is in not spending time, but in investing it.
+ - There’s strong data that, within companies, the No. 1 reason for ethical violations is the pressure to meet expectations, sometimes unrealistic expectations.
+ - All the well-meaning advice in the world won’t amount to a hill of beans if we’re not even addressing the real problem.
+ - Passion is the fire, enthusiasm and courage that an individual feels when she is doing something she loves while accomplishing worthy ends, something that satisfies her deepest needs.
+ - Win-win is a belief in the Third Alternative. It’s not your way or my way; it’s a better way, a higher way.
+ - Make small commitments and keep them. Be a light, not a judge. Be a model, not a critic. Be a part of the solution, not the problem.
+ - Being is seeing in the human dimension.
+ - The key to success is dedication to life-long learning.
+ - If you want to be trusted, be trustworthy.
+ - We are not human beings on a spiritual journey. We are spiritual beings on a human journey.
+ - Find your voice, and inspire others to find theirs. Don’t ignore that longing to make a difference.
+ - Leadership is communicating people’s worth and potential so clearly that they come to see it themselves.
+ - Organize and execute around priorities.
+ - Time management is a misnomer, the challenge is to manage ourselves.
+ - I teach people how to treat me by what I will allow.
+ - People are social beings and want interaction and social learning is the primary form of learning, just as word of mouth advertising is the highest form of advertising.
+ - Your power to choose your direction of your life allows you to reinvent yourself, to change your future, and to powerfully influence the rest of creation.
+ - Network marketing has come of age. It’s undeniable that it has become a way to entrepreneurship and independence for millions of people.
+ - Effective leadership is putting first things first. Effective management is discipline, carrying it out.
+ - A personal mission statement becomes the DNA for every other decision we make.
+ - Nothing is as fast as the speed of trust. Nothing is as fulfilling as a relationship of trust. Nothing is as inspiring as an offering of trust. Nothing is as profitable as the economics of trust. Nothing has more influence than a reputation of trust.
+ - Trust is a function of two things: character and competence. Character includes your integrity, your motive and your intent with people. Competence includes your capabilities, your skills, and your track record. Both are vital.
+ - What is common sense isn’t common practice.
+ - The proactive approach to a mistake is to acknowledge it instantly, correct and learn from it. This literally turns a failure into a success.
+ - When you really listen to another person from their point of view, and reflect back to them that understanding, it’s like giving them emotional oxygen.
+ - Your most important work is always ahead of you, never behind you.
+ - Efficient management without effective leadership is, as one individual phrased, it, “like straightening deck chairs on the Titanic”.
+ - If you don’t have confidence in the diagnosis, you won’t have confidence in the prescription.
+ - The greatest and most inspiring mountain climbing achievements in history are not so much stories of individual achievement, but are stories of the extraordinary power of a unified, talented, prepared team that stays loyally committed to one another and to their shared vision to the end.
+ - Self-mastery and self-discipline are the foundation of good relationships with others.
+ - An empowered organization is one in which individuals have the knowledge, skill, desire, and opportunity to personally succeed in a way that leads to collective organizational success.
+ - Sacrifice really means giving up something good for something better.
+ - All things are created twice; first mentally; then physically. The key to creativity is to begin with the end in mind, with a vision and a blue print of the desired result.
+ - Interdependence is a higher value than independence.
+ - Synergy: The combined effect of individuals in collaboration that exceeds the sum of their individual effects.
+ - Vision is seeing a future state with the mind’s eye. Vision is applied imagination.
+ - Private victories precede public victories. You can’t invert that process any more than you can harvest a crop before you plant it.
+ - The key is taking responsibility and initiative, deciding what your life is about and prioritizing your life around the most important things.
+ - Response-ability is the ABILITY to choose our response to any circumstance or condition.
+ - You think effectiveness with people and efficiency with things.
+ - Your systems are perfectly designed to get the results that you are getting.
+ - Live simply and appreciate what you have. Give more. Expect less.
+ - Integrity in the Moment of Choice Quality of life depends on what happens in the space between stimulus and response.
+ - Human beings are not things needing to be motivated and controlled; they are four dimensional – body, mind, heart, and spirit.
+ - I am fortunate to have a very helpful team that enables me to spend time doing things that are important but not necessarily urgent. People who have no such team need to also make these larger decisions so that they can cheerfully say No to that which is urgent but not important.
+ - Be proactive. Ask yourself, “Are my actions based on self-chosen values or on my moods, feelings and circumstances?”
+ - The place to begin building any relationship is inside ourselves, inside our circle of influence, our own character.
+ - There are certain things that are fundamental to human fulfillment. The essence of these needs is captured in the phrase ‘to live, to love, to learn, to leave a legacy.’ The need to leave a legacy is our spiritual need to have a sense of meaning, purpose, personal congruence, and contribution.
+ - It doesn’t really matter how fast you’re going if you’re heading in the wrong direction.
+ - True leadership is moral authority, not formal authority. Leadership is a choice, not a position. The choice is to follow universal timeless principles, which will build trust and respect from the entire organization. Those with formal authority alone will lose this trust and respect.
+ - Results matter! They matter to your credibility.
+ - People are your most valuable asset. Only people can be made to appreciate in value.
+ - We are the creative force of our life, and through our own decisions rather than our conditions, if we carefully learn to do certain things, we can accomplish those goals.
+ - As long as you think the problem is out there, that very thought is the problem.
+ - Do what is important, not what is urgent.
+ - If you’re proactive, you don’t have to wait for circumstances or other people to create perspective expanding experiences. You can consciously create your own.
+ - Unless you’re continually improving your skills, you’re quickly becoming irrelevant.
+ - A moment of choice is a moment of truth. It’s the testing point of our character and competence.
+ - To listen with empathy is the most important human skill.
+ - Wisdom is your perspective on life, your sense of balance, your understanding of how the various parts and principles apply and relate to each other.
+ - Happen to things, don’t let things happen to you.
+ - When we listen with the intent to understand others, rather than with the intent to reply, we begin true communication and relationship building. Opportunities to then speak openly and to be understood come much more naturally and easily.
+ - Belief is another word for paradigm. It’s a synonymous. Your belief of the way things are. Values are the way things should be, it’s a paradigm of the way things should be. Beliefs are the paradigms of the way things are.
+ - What you see often depends on what you are looking for.
+ - Effective communication is built on the cement of trust. And trust is based on trustworthiness, not politics.
+ - You can’t have the fruits without the roots.
+ - The greatest thing you can do for your children is love your spouse.
+ - Exercise integrity in the moment of truth.
+ - Before you wonder “Am I doing things right?” wonder “Am I doing the right things?”
+ - A good affirmation has five basic ingredients: it’s personal, it’s positive, it’s present tense, it’s visual, and it’s emotional.
+ - Most people do not listen with the intent to understand; they listen with the intent to reply. They’re either speaking or preparing to speak. They’re filtering everything through their own paradigms, reading their autobiography into other people’s lives.
+ - It’s incredibly easy to get caught up in an activity trap, in the busy-ness of life, to work harder and harder at climbing the ladder of success only to discover it’s leaning against the wrong wall. It is possible to be busy – very busy – without being very effective.
+ - If I were to summarize in one sentence the single most important principle I have learned in the field of interpersonal relations, it would be this: Seek first to understand, then to be understood. This principle is the key to effective interpersonal communication.
+ - Listen, involve, synergize at work. Then you will bury the old and create an entirely new winning culture which will unleash people’s talents and create complementary teams where strengths are made productive and weakness are made irrelevant through the strengths of others.
+ - Life is not accumulation, it is about contribution.
+ - Management works in the system; leadership works on the system.
+ - Success is when you realize obstacles you face are challenges to help you become better – and your response equals the challenge.
+ - Perhaps the most important vision of all is develop a sense of self, a sense of your own destiny, a sense of unique mission and role in life.
+ - Private Victory precedes Public Victory. Algebra comes before calculus.
+ - I am personally convinced that one person can be a change catalyst, a ‘transformer’ in any situation, any organization. Such an individual is yeast that can leaven an entire loaf. It requires vision, initiative, patience, respect, persistence, courage, and faith to be a transforming leader.
+ - If you carefully consider what you want to be said of you in the funeral experience, you will find your definition of success.
+ - If you put good people in bad systems you get bad results. You have to water the flowers you want to grow.
+ - True greatness will be achieved through the abundant mind that works selflessly – with mutual respect, for mutual benefit.
+ - Feedback often tells you more about the person who is giving it than about you.
+ - The ability to subordinate an impulse to a value is the essence of the proactive person. Reactive people are driven by feelings, by circumstances, by conditions, by their environment. Proactive people are driven by values – carefully thought about, selected and internalized values.
+ - True independence of character empowers us to act rather than be acted upon.
+ - The challenge is not to manage time, but to manage ourselves.
+ - Building and repairing relationships are long-term investments.
+ - Our greatest joy and our greatest pain comes in our relationships with others.
+ - Leaders are not born or made – they are self made.
+ - Trust is the glue that holds everything together. It creates the environment in which all of the other elements win-win stewardship agreements, self-directing individuals and teams, aligned structures and systems, and accountability can flourish.
+ - Anything less then a conscious commitment to the important is an unconscious commitment to the unimportant.
+ - The process of building trust is an interesting one, but it begins with yourself, with what I call self trust, and with your own credibility, your own trustworthiness. If you think about it, it’s hard to establish trust with others if you can’t trust yourself.
+ - This is the single most powerful investment we can ever make in life – investment in ourselves, in the only instrument we have with which to deal with life and to contribute.
+ - The key to growth is to learn to make promises and to keep them.
+ - Remember, technology is a great servant, but a terrible master.
+ - As human beings, we are responsible for our own lives. Our behavior is a function of our decisions, not our conditions. We can subordinate feelings to values.
+ - Trust is the one thing that affects everything else you’re doing. It’s a performance multiplier which takes your trajectory upwards, for every activity you engage in, from strategy to execution.
+ - I can change. I can live out of my imagination instead of my memory. I can tie myself to my limitless potential instead of my limiting past.
+ - Effective interdependence can only be built on true independence.
+ - Most people say their main fault is a lack of discipline. On deeper thought, I believe this is not the case. The basic problem is that their priorities have not become deeply planted in their hearts and minds.
+ - The deepest desire of the human spirit is to be acknowledged.
+ - When we succumb to believing that we are victims of our circumstances and yield to the plight of determinism, we lose hope, we lose drive, and we settle into resignation and stagnation.
+ - Will we act upon life, or will we merely be acted upon?
+ - How different our lives are when we really know what is deeply important to us, and keeping that picture in mind, we manage ourselves each day to be and to do what really matters most.
+ - If you want the secondary greatness of recognized talent, focus first on primary greatness of character.
+ - Consequences are governed by principles, and behavior is governed by values; therefore, value principles!
+ - Courage isn’t absenct of fear, it is the awareness that something else is important.
+ - When we pick up one end of the stick, we pick up the other.
+ - The challenge of work-life balance is without question one of the most significant struggles faced by modern man.
+ - Each of us guard a gate of change that can only be opened from the inside.
+ - The fire inside people is like a match; the way to ignite that flame is initially through friction, then other matches are lit through warmth.
+ - Our behavior is a function of our decisions, not our conditions.
+ - Priority is a function of context.
+ - Doing more things faster is no substitute for doing the right things.
+ - Independent thinking alone is not suited to interdependent reality.
+ - Instead, I have an abundance mentality: When people are genuinely happy at the successes of others, the pie gets larger.
+ - The more people rationalize cheating, the more it becomes a culture of dishonesty. And that can become a vicious, downward cycle. Because suddenly, if everyone else is cheating, you feel a need to cheat, too.
+ - Nothing is more exciting and bonding in relationships than creating together.
+ - You don’t see the world as it is, you see it according to who you are.
+ - Most leaders would agree that they’d be better off having an average strategy with superb execution than a superb strategy with poor execution. Those who execute always have the upper hand.
+ - Love is a verb. Love – the feeling – is the fruit of love the verb or our loving actions. So love her. Sacrifice. Listen to her. Empathize. Appreciate. Affirm her.
+ - By centering our lives on timeless, unchanging principles, we create a fundamental paradigm of effective living. It is the center that puts all other centers in perspective.
+ - Retire from your job but never from meaningful projects. If you want to live a long life, you need eustress, that is, a deep sense of meaning and of contribution to worthy projects and causes, particularly, your intergenerational family.
+ - Values determine behavior; Principles determine the consequences of behavior.
+ - Each of us tends to think we see things as they are, that we are objective. But this is not the case. We see the world, not as it is, but as we are – or as we are conditioned to see it.
+ - People and organizations don’t grow much without delegation and completed staff work because they are confined to the capacities of the boss and reflect both personal strengths and weaknesses.
+ - Principles are the territory. Values are maps.
+ - You have two ears and one mouth. Use them accordingly.
+ - Our character is basically a composite of our habits. Because they are consistent, often unconcious patterns, they constantly, daily, express our character.
+ - Don’t get buried in the thick of thin things.
+ - Trust is a powerful accelerator to performance and when trust goes up, speed also goes up while cost comes down – producing what we call a trust dividend.
+ - Effective people are not problem-minded; they’re opportunity minded. They feed opportunities and starve problems.
+ - Only as we keep an open communication with our deep inner life will we have the wisdom to make effective choices.
+ - Technology and tools are useful and powerful when they are your servant and not your master.
+ - Principles are natural laws that are external to us and that ultimately control the consequences of our actions. Values are internal and subjective and represent that which we feel strongest about in guiding our behavior.
+ - The key to the ability to change is a changeless sense of who you are, what you are about and what you value.
+ - The first principle of ethical power is Purpose. By purpose, I don’t mean your objective or intention-something toward which you are always striving. Purpose is something bigger. It is the picture you have of yourself-the kind of person you want to be or the kind of life you want to lead.
+ - What does it matter how much we do if what we’re doing isn’t what matters most?
+ - If our feelings control our actions, it is because we have abdicated our responsibility and empowered them to do so.
+ - If we can’t make and keep commitments to ourselves as well as to others, our commitments become meaningless.
+ - The person who is truly effective has the humility and reverence to recognize his own perceptual limitations and to appreciate the rich resources available through interaction with the hearts and minds of other human beings.
+ - The struggle comes when we sense a gap between the clock and the compass – when what we do doesn’t contribute to what is most important in our lives.
+ - Internal victories precede external victories.
+ - Admission of ignorance is often the first step in our education.
+ - Love – the feeling – is a fruit of love, the verb.
+ - The key to motivation is motive. It’s the why. It’s the deeper yes! burning inside that makes it easier to say no to the less important.
+ - Highly effective people tend to be proactive. They decide to find a better job or to have better health, rather than of responding to whatever curves life throws at them.
+ - Almost all of the world-class athletes and other peak performers are visualizers. They see it; they feel it; they experience it before hey actually do it. They begin with the end in mind.
+ - Patience is emotional diligence.
+ - Most people define greatness through wealth and popularity and position in the corner office. But what I call everyday greatness comes from character and contribution.
+ - People who end up with the good jobs are the proactive ones who are solutions to problems, not problems themselves, who seize the initiative to do whatever is necessary to get the job done.
+ - We’re often so busy cutting through the undergrowth we don’t even realise we’re in the wrong jungle.
+ - Trust is a function of both character and competence. Of course you can’t trust someone who lacks integrity, but if someone is honest but they can’t perform, you’re not going to trust them either. You won’t trust them to get the job done.
+ - We’re constantly making choices about the way we spend our time. The issue is not between the good and the bad, but between the good and the best. So often, the enemy of the best is the good.
+ - We don’t invent our missions, we detect them.
+ - It takes a great deal of character strength to apologize quickly out of one’s heart rather than out of pity.
+ - Writing distills, crystallizes, and clarifies thought.
+ - Make specific appointments with yourself to work on goals, and treat an appointment with yourself as you’d treat an appointment with anybody else.
+ - Being humble does not mean being weak, reticent, or self-effacing. It means recognizing principle and putting it ahead of self. It means standing firmly for principle, even in the fact of opposition.
+ - Synergy is the highest activity of life; it creates new untapped alternatives; it values and exploits the mental, emotional, and psychological differences between people.
+ - In order to have influence, you have to be influenced.
+ - You can say you love someone – but unless you demonstrate that love through your actions, your words become meaningless.
+ - Frustration is a function of our expectations, and our expectations are often a reflection of the social mirror rather than our own values and priorities.
+ - If the only vision we have of ourselves comes from the social mirror – from the current social paradigm and from the opinions, perceptions, and paradigms of the people around us – our view of ourselves is like the reflection in a crazy mirror room at the carnival.
+ - Security represents your sense of worth, your identity, your emotional anchorage, your self-esteem, your basic personal strength or lack of it.
+ - The ability to subordinate an impulse to a value is the essence of the proactive person.
+ - The character ethic, which I believe to be the foundation of success, teaches that there are basic principles of effective living, and that people can only experience true success and enduring happiness as they learn and integrate these principles into their basic character.
+ - As you live your values, your sense of identity, integrity, control, and inner-directedness will infuse you with both exhilaration and peace. You will define yourself from within, rather than by people’s opinions or by comparisons to others.
+ - We tend to get what we expect – both from ourselves and from others. When we expect more, we tend to get more; when we expect less, we tend to get less.
+ - We are product of neither nature nor nurture; we are a product of choice, because there is always a space between stimulus and response. As we wisely exercise our power to choose based on principles, the space will become larger.
+ - Petty things become unimportant when people are impassioned about a purpose higher than self.
+ - Little kindness and courtesies are so important. In relationships, the little things are the big things.
+ - You can’t talk your way out of a problem you behaved your way into!
+ - But borrowing strength builds weakness.
+ - Words are like eggs dropped from great heights. You could no more call them back then ignore the mess they left when they fell.
+ - The role of the leader is to foster mutual respect and build a complementary team where each strength is made productive and each weakness irrelevant.
+ - Creating and integrating an empowering personal mission statement is one of the most important investments we can make.
+ - You can’t have the fruits without the roots. It’s the principle of sequencing: Private Victories proceed Public Victories. Self-mastery and self-discipline are the foundation of good relationships with others.
+ - It takes courage to realize that you are greater than your moods, greater than your thoughts, and that you can control your moods and thoughts.
+ - Creating a warm, caring, supportive, encouraging environment is probably the most important thing you can do for your family.
+ - We develop our character muscles by overcoming challenges and obstacles.
+ - Moral authority comes from following universal and timeless principles like honesty, integrity, treating people with respect.
+ - Peace of mind comes when your life is in harmony with true principles and values and in no other way.
+ - I win the private victory when I have made my mind up and commit to live by correct principles and to serve worthy purposes.
+ - Our character is basically a composite of our habits.
+ - To blame and accuse other people, is to choose to empower them, to control us.
+ - The first job of a leader-at work or at home-is to inspire trust. It’s to bring out the best in people by entrusting them with meaningful stewardships, and to create an environment in which high-trust interaction inspires creativity and possibility.
+ - The most important ingredient we put into any relationship is not what we say or what we do, but what we are.
+ - By behaving in ways that build trust with one, you build trust with many.
+ - Keeping a personal journal a daily in-depth analysis and evaluation of your experiences is a high-leverage activity that increases self-awareness and enhances all the endowments and the synergy among them.
+ - When you listen with empathy to another person, you give that person psychological air.
+ - The personal power that comes from principle-centered living is the power of a self-aware, knowledgeable, proactive individual, unrestricted by the attitudes, behaviors, and actions of others or by many of the circumstances and environmental influences that limit other people.
+ - Empathy takes time, and efficiency is for things, not people.
+ - Above all, success in business requires two things: a winning competitive strategy, and superb organizational execution. Distrust is the enemy of both. I submit that while high trust won’t necessarily rescue a poor strategy, low trust will almost always derail a good one.
+ - If we want to make relatively minor changes in our lives, we can perhaps appropriately focus on our attitudes and behaviors. But if we want to make significant, quantum change, we need to work on our basic paradigms.
+ - As you care less about what people think of you, you will care more about what others think of themselves.
+ - One of the most important ways to manifest integrity is to be loyal to those who are not present. In doing so, we build the trust of those who are present.
+ - Involve people in the problem and work out the solution together.
+ - It is possible to be busy-very busy-without being very effective.
+ - My behavior is a product of my own conscious choices based on principles, rather than a product of my conditions, based on feelings.
+ - A long, healthy, and happy life is the result of making contributions, of having meaningful projects that are personally exciting and contribute to and bless the lives of others.
+ - The way we see things is the source of the way we think or the way we act.
+ - Over time, I have come to this simple definition of leadership: Leadership is getting results in a way that inspires trust.
+ - We accomplish all that we do through delegation – either to time or to other people.
+ - It’s not that we ignore our weaknesses; rather, we make our weaknesses irrelevant by working effectively with others so that we compensate for our weaknesses through their strengths and they compensate for their weaknesses through our strengths.
+ - If there’s one thing that’s certain in business, it’s uncertainty.
+ - Synergy is what happens when one plus one equals ten or a hundred or even a thousand! It’s the profound result when two or more respectful human beings determine to go beyond their preconceived ideas to meet a great challenge.
+ - Anyone can count the seeds of an apple. Who can count the apples in a seed?
+ - We value the clock for its speed and efficiency. The clock has its place, efficiency has its place, after effectiveness. The symbol of effectiveness is the compass a sense of direction, purpose, vision, perspective, and balance. But the empowerment process itself is not efficient.
+ - None of us see the world as it is but as we are, as our frames of reference, or maps, define the territory.
+ - To focus on technique is like cramming your way through school. You sometimes get by, perhaps even get good grades, but if you don’t pay the price day in and day out, you’ll never achieve true mastery of the subjects you study or develop an educated mind.
+ - Humility is the mother of all virtues. Humility says we are not in control, principles are in control, therefore we submit ourselves to principles. Pride says that we are in control, and since our values govern our behavior, we can simply do life our way.
+ - We hear a lot about identity theft when someone takes your wallet and pretends to be you and uses your credit cards. But the more serious identity theft is to get swallowed up in other people’s definition of you.
+ - Spiritual Intelligence represents our drive for meaning and connection with the infinite.
+ - In effective personal leadership, visualization and affirmation techniques emerge naturally out of a foundation of well thought through purposes and principles that become the center of a person’s life.
+ - Ineffective people live day after day with unused potential.
+ - The bottom line is, when people are crystal clear about the most important priorities of the organization and team they work with and prioritized their work around those top priorities, not only are they many times more productive, they discover they have the time they need to have a whole life.
+ - Be sure that, as you scramble up the ladder of success, it is leaning against the right building.
+ - Every exaggeration of the truth once detected by others destroys our credibility and makes all that we do and say suspect.
+ - Be governed by your internal compass, not by some clock on the wall.
+ - Trust is clearly a key competency. A competency or skill that can be learned, taught, and improved and one that talent can be screened for.
+ - Whether we are aware of it or not, whether we are in control of it or not, there is a first creation to every part of our lives. We are either the second creation of our own proactive design, or we are the second creation of other people’s agendas, of circumstances, or of past habits.
+ - You can retire from a job, but don’t ever retire from making extremely meaningful contributions in life.
+ - What we are communicates far more eloquently than anything we say or do. There are people we trust because we know their character. Whether they’re eloquent or not, whether they have human-relations techniques or not, we trust them and work with them.
+ - We must not let the actions or words of others determine our responses. Magnanimous people make the choice to respond to the indignities of others based upon their own principles and their own value system rather than their moods or anger.
+ - It’s sometimes a painful process. It’s a change that has to be motivated by a higher purpose, by the willingness to subordinate what you think you want now for what you want later.
+ - There is so much we can do to render service, to make a difference in the world – no matter how large or small our circle of influence.
+ - A moment of choice is a moment of truth.
+ - You can’t be successful with other people if you haven’t paid the price of success with yourself.
+ - Most learning is social, or what I call the cultural DNA. Everyone knows that word of mouth advertising is the best advertising. That’s social learning.
+ - When we value correct principles, we have truth – a knowledge of things as they are.
+ - You basically get what you reward. If you want to achieve the goals and reflect the values in your mission statement, then you need to align the reward system with these goals and values.
+ - Despite all our gains in technology, product innovation and world markets, most people are not thriving in the organizations they work for.
+ - While we cannot always choose what happens to us, we can choose our responses.
+ - If you don’t know yourself, if you don’t control yourself, if you don’t have mastery over yourself, it’s very hard to like yourself, except in some short-term, psych-up, superficial way.
+ - Always surround yourself with people who are even more talented and competent than you.
+ - An abundance mentality springs from internal security, not from external rankings, comparisons, opinions, possessions, or associations.
+ - If you don’t set your goals based upon your Mission Statement, you may be climbing the ladder of success only to realize, when you get to the top, you’re on the WRONG building.
+ - Live the law of love. We encourage obedience to the laws of life when we live the laws of love.
+ - The more deeply you understand other people, the more you will appreciate them, the more reverent you will feel about them. To touch the soul of another human being is to walk on holy ground.
+ - It’s better to be trusted than to be liked.
+ - Treat them all the same by treating them differently.
+ - There are principles that govern human effectiveness – natural laws in the human dimension that are just as real, just as unchanging and unarguably there as laws such as gravity are in the physical dimension.
+ - Remember that our reactions are a product of our perceptions, and our perceptions are a result of what is at the center of our life.
+ - To be successful we must live from our imaginations, not from our memories.
+ - How many on their deathbeds wished they’d spent more time at the office – or watching TV? The answer is, No one.
+ - The principle of fasting is taught in almost all major world religions as a means of developing a higher level of self-mastery and self-control, and also a deeper awareness of how really dependent we are.
+ - People and their managers are working so hard to be sure things are done right, that they have hardly have time to decide if they are doing the right things.
+ - In this knowledge-worker age, it’s now increasingly tied to doing well in school so you can get into better grad schools so you can get better jobs – so the pressure to do well is really high.
+ - Reducing children to a test score is the worst form of identity theft we could commit in schools.
+ - A cardinal principle of Total Quality escapes too many managers: you cannot continuously improve interdependent systems and processes until you progressively perfect interdependent, interpersonal relationships.
+ - The roots of the problems we face in the world, in our national life, and in our family and personal lives are spiritual.
+ - Begin each day with the blueprint of my deepest values FIRMLY in mind then when challenges come, make decisions BASED on those values.
+ - Contrary to what most people believe, trust is not some soft, illusive quality that you either have or you don’t; rather, trust is a pragmatic, tangible, actionable asset that you can create.
+ - In the end, life teaches us what is important, and that is family.
+ - People who exercise their embryonic freedom day after day, little by little, expand that freedom. People who do not will find that it withers until they are literally ‘being lived.’ They are acting out scripts written by parents, associates, and society.
+ - Sometimes poor behavior is simply bad execution of good intent.
+ - Employers and business leaders need people who can think for themselves – who can take initiative and be the solution to problems.
+ - The human will is an amazing thing. Time after time, it has triumphed against unbelievable odds.
+ - The key to the 99 is the one. Or, put another way, the key to the group is the one individual. Think about the one, talk to the one, regard the one, serve the one. If you are sincere and constant, you will discover that gradually your influence with the many will be magnified.
+ - You can buy a person’s hands but you can’t buy his heart. His heart is where his enthusiasm, his loyalty is.
+ - Through imagination, we can visualize the uncredited worlds of potential that lie within us.
+ - If you don’t choose to do it in leadership time up front, you do it in crisis management time down the road.
+ - If we overcome the pull and “get up and get at it,” we will have won a victory. We have kept our own resolve. We can then move to other things, for by small means great things are accomplished. Thus, even this one small step is also in another sense a giant leap.
+ - The universal elements are integrity, vision, discipline, passion, governed by conscience. Conscience has been educated through studying and pondering the universal, timeless principles of all six major world religions.
+ - When we say that leadership is a choice, it basically means you can choose the level of initiative you want to exercise in response to the question, ‘What is the best I can do under the given circumstances?’
+ - It is futile to put personality ahead of character, to try to improve relationships with others before improving ourselves.
+ - What difference would a clear vision of my principles, values, and ultimate objectives make in the way I spend my time?
+ - People can’t live with change if there’s not a changeless core inside them.
+ - Doing the right things for the right reason in the right way is the key to Quality of Life!
+ - Success comes from the ability to view each arising problem as an opportunity for self improvement.
+ - Link yourself to your potential, not to your past.
+ - If you don’t let a teacher know what level you are – by asking a question, or revealing your ignorance – you will not learn or grow.
+ - When people have a real sense of legacy, a sense of mattering, a sense of contribution, it seems to tap into the deepest part of their heart and soul. It brings out the best and subordinates the rest.
+ - See every problem as an opportunity to exercise creative energy.
+ - Historically, the family has played the primary role in educating children for life, with the school providing supplemental scaffolding to the family.
+ - Leadership without mutual trust is a contradiction in terms.
+ - We do make a difference – one way or the other. We are responsible for the impact of our lives. Whatever we do with whatever we have, we leave behind us a legacy for those who follow.
+ - A life of integrity is the most fundamental source of personal worth.
+ - We are limited but we can push back the borders of our limitations.
+ - Actually I did not invent the seven habits, they are universal principles and most of what I wrote about is just common sense. I am embarrassed when people talk about the Covey Habits, and dislike the idea of being some sort of guru.
+ - We all go through stages. Concerns about appearances, making good impressions, being popular, comparing yourself to others, having unbridled ambition, wanting to make money, striving to be recognized and noticed and trying to establish yourself, all fade as your responsibilities and character grow.
+ - The real beginning of influence comes as others sense you are being influenced by them – when they feel understood by you – that you have listened deeply and sincerely, and that you are open.
+ - We can never really change someone; people must change themselves.
+ - Real excellence does not come cheaply. A certain price must be paid in terms of practice, patience, and persistence – natural ability notwithstanding.
+ - Trust is a competency. It’s something you can get good at. It’s a strength you personally, and your team and your company can master. Being good at it will elevate every other strength you have.
+ - Prepare your mind and heart before you prepare your speech. What we say may be less important than how we say it.
+ - How you treat the one reveals how you regard the many, because everyone is ultimately a one.
+ - Principles are the basis for developing a vision and value system for all.
+ - Strategy is important, but trust is the hidden variable. On paper you can have clarity around your objectives, but in a low-trust environment, your strategy won’t be executed.
+ - Principles don’t die. They aren’t here one day and gone the next. They can’t be destroyed by fire, earthquake or theft. Principles are deep, fundamental truths, classic truths.
+ - The key to motivation is motive.
+ - Principles are guidelines for human conduct that are proven to have enduring, permanent value.
+ - We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.
+ - Distinguish between the person and the behavior or performance.
+ - Quality relationships are built on principles, especially the principle of trust.
+ - The great apparent dichotomy is that the more we give, the more we get.
+ - You are dependent if you allow the weaknesses of other people to ruin your emotional life!
+ - The reflection of the current social paradigm tells us we are largely determined by conditioning and conditions.
+ - Keep in mind that you are always saying “no” to something. If it isn’t to the apparent and urgent things in your life, it is probably to the most fundamental, highly important things.
+ - Independent will is our capacity to act. It gives us the power to transcend our paradigms, to swim upstream, to rewrite our scripts, to act based on principle rather than reacting based on emotion or circumstance.
+ - In our personal lives, if we do not develop our own self-awareness and become responsible for first creations, we empower other people and circumstances to shape our lives by default.
+ - Whenever you experience stress of any kind, look into yourself and ask, In what way am I compromising my innermost values in this situation?
+ - The exercise of true leadership is inversely proportional to the exercise of power.
+ - Every time I see high-trust cultures, I see a lessening of adversarialism.
+ - Before a performance, a sales presentation, a difficult confrontation, or the daily challenge of meeting a goal, see it clearly, vividly, relentlessly, over and over again. Create an internal “comfort zone”. Then, when you get into the situation, it isn’t foreign. It doesn’t scare you.
+ - As we create synergy among the roles of our lives, there’s more of us to put into the time we have.
+ - When the trust is high, you get the trust dividend. Investors invest in brands people trust. Consumers buy more from companies they trust, they spend more with companies they trust, they recommend companies they trust, and they give companies they trust the benefit of the doubt when things go wrong.
+ - Employees are given the chance to help shape their company by participating in a company-wide communications program making suggestions on waste reduction, environmental improvement, customer satisfaction, quality improvement, and safety issues.
+ - What one thing could you do in your personal and professional life that, if you did on a regular basis, would make a tremendous positive difference in your life? Quadrant II activities have that kind of impact. Our effectiveness takes quantum leaps when we do them.
+ - Conscience connects us with the wisdom of the ages and the wisdom of the heart.
+ - Without trust, the best we can do is compromise.
+ - In a very real sense, there are only two roles in organisations: customers and suppliers. Everybody functions simultaneously in both roles, whether inside or outside the organisation the essence of good business, therefore, is the quality of the relationship between customer and supplier.
+ - Trust is the glue in relationships and organizations.
+ - Don’t cheat people of their growth. Empower them to solve problems and generate ideas. Watch them grow!
+ - While you can think in terms of efficiency in dealing with time, a principle-centered person thinks in terms of effectiveness in dealing with people.
+ - An empowering mission statement has to become a living document, part of our very nature, so that the criteria we’ve put into it are also in us, in the way we live our lives day by day.
+ - Studies have identified a significant ‘skills gap’ between what students are currently being taught and the skills employers are seeking in today’s global economy. Our children must be better prepared than they are now to meet the future challenges of our ever-changing world.
+ - Affirm people. Affirm your children. Believe in them, not in what you see but in what you don’t see – their potential.
+ - Management is formal authority given from above. Leadership is moral authority given from below and all around.
+ - The key to acting with integrity is to simply stop playing the game.
+ - Whether or not we belong to a church or service organization or have a job that provides meaningful service opportunities, not a day goes by that we can’t at least serve one other human being by making deposits of unconditional love.
+ - Most people think of leadership as a position and therefore don’t see themselves as leaders.
+ - When air is charged with emotions, an attempt to teach is often perceived as a form of judgment and rejection.
+ - Whether you’re on a sports team, in an office or a member of a family, if you can’t trust one another there’s going to be trouble.
+ - My temptation is emotional, and resisting will further my needed weight loss and strengthen my character. Furthermore, nothing tastes as good as thin feels.
+ - The problems in life come when we’re sowing one thing and expecting to reap something entirely different.
+ - When your happiness comes primarily from the happiness of others, you know you have moved from a ‘me’ experience to a ‘we’ experience. And the whole problem-solving and opportunity-seizing process changes.
+ - It’s a fact that more people watch television and get their information that way than read books. I find new technology and new ways of communication very exciting and would like to do more in this field.
+ - The best way to develop courage is to set a goal and achieve it, make a promise and keep it.
+ - But with the steady disintegration of the family in modern society over the last century, the role of the school in bridging the gap has become vital!
+ - When our honor becomes greater than our moods, that is where transformation happens.
+ - Brands need to reinvent themselves from time to time to stay relevant.
+ - We exhaust ourselves more from the tension and the consequences of internal disharmony than from hard, unremitting work.
+ - If you focus on principles, you empower everyone who understands those principles to act without constant monitoring, evaluating, correcting, or controlling.
+ - The heart and soul of loving yourself is integrity and the peace of conscience it inspires.
+ - I think the most significant work we’ll do in our whole life, in our whole world is done within the four walls of our home.
+ - Everyone has values; even criminal gangs have values. Values govern people’s behavior but principles govern the consequences of those behaviors.
+ - We can’t live without eating, but we don’t live to eat.
+ - To set and work toward any goal is an act of courage.
+ - Our problems and pain are universal and increasing, and the solutions to the problems are and always will be based upon universal, timeless, self-evident principles common to every enduring, prospering society throughout history.
+ - If we know how to listen to our own heart, we can listen to the hearts of others.
+ - In many situations involving service recovery – the problem itself became the catalyst for the creation of even greater trust as the companies took the issues head-on and worked through the difficult problem in a way that restored confidence.
+ - Basing our happiness on our ability to control everything is futile.
+ - While I believe in the power of positive thought, I do not believe that you or I can simply psyche ourselves into success or peace of mind.
+ - In the long run, you can never accomplish a worthy end with an unworthy means.
+ - Without exception, empathy is always appropriate.
+ - Attending church does not necessarily mean living the principles taught in those meeting. You can be active in a church but inactive in its gospel.
+ - Unfortunately, too many executives believe the myths about trust. Myths like how trust is soft and is merely a social virtue. The reality is that trust is hard-edged and is an economic driver.
+ - The highest challenge inside organizations is to enable each person to contribute his or her unique talents and passion to accomplish the organization’s purpose.
+ - When it comes to developing character strength, inner security and unique personal and interpersonal talents and skills in a child, no institution can or ever will compare with, or effectively substitute for, the home’s potential for positive influence.
+ - Success in one role can’t justify failure in another.
+ - Power is the faculty or capacity to act, the strength and potency to accomplish something. It is the vital energy to make choices and decisions. It also includes the capacity to overcome deeply embedded habits and to cultivate higher, more effective ones.
+ - In the last analysis, what we are communicates far more eloquently than anything we say or do.
+ - Management is efficiency in climbing the ladder of success.
+ - People simply feel better about themselves when they’re good at something.
+ - People behave more on the basis of how they feel than how they think; unless there are good feelings between people, it is almost impossible to reason intelligently.
+ - I love interaction with audiences. If were my choice, I would spend most of my time interacting with audiences. Walking around and asking them to challenge me.
+ - I keep my phone number unlisted and rely on my associates to handle all voice mail, e-mail, faxes.
+ - Unless people feel that they are accepted and that they have a right to express their feelings without fear of embarrassment or ridicule, all they will do is react and rebel and struggle for their identity.
+ - I am senting many books for endorsement purposes, which enables me to stay relevant in my own field, and I have people that help me decide which ones I should read and endorse.
+ - Trust is central to an economy that works.
+ - Our behavior is governed by principles. Living in harmony with them brings positive consequences; violating them brings negative consequences.
+ - Happiness can be defined, in part at least, as the fruit of the desire and ability to sacrifice what we want now for what we want eventually.
+ - It’s not what people do to us that hurts us. In the most fundamental sense, it is our chosen response to what they do to us that hurts us.
+ - Principles are the simplicity on the far side of complexity.
+ - The only way we can handle change around us is to know what is changeless about ourselves.
+ - Consult the wisdom of your heart as well as your mind.
+ - Improve relationships with others by assuming that they can hear everything you say about them.
+ - When I started teaching I realized that I had never had such a level of satisfaction and such a feeling of fulfillment and sense of contribution. Just like that. But, usually it’s more cumulative, slow, evolutionary and less revolutionary.
+ - It comes from within.
+ - Every person in the organization must change inside their hearts and minds, so that they themselves become principle centred.
+ - Principle-centered people are constantly educated by their experiences.
+ - Only 20 percent of employees working in large organizations surveyed feel their strengths are in play every day. Thus, eight our of ten employees surveyed feel somewhat miscast in their role.
+ - To judge individuals before understanding them is a form of human rejection and feeds upon itself.
+ - Want to improve your relationships? See love as a verb rather than as a feeling?
+ - One of the best ways to educate our hearts is to look at our interaction with other people, because our relationships with others are fundamentally a reflection of our relationship with ourselves.
+ - If you say to one flower, ‘Grow,’ but you water another, the first one won’t grow.
+ - I believe that there are parts to human nature that cannot be reached by either legislation or education, but require the power of God to deal with.
+ - I try to exercise regularly every day, if I can. It renews you and it gives you more balance in your life. This is a key leverage point.
+ - Perhaps a sense of possessing needs to come to come before a sense of genuine sharing.
+ - Integrity is conforming reality to our words – in other words, keeping promises and fulfilling expectations.
+ - One thing about trust is that everyone’s for it.
+ - Communication is the most important skill in life. We spend most of our waking hours communicating. But consider this: You’ve spent years learning how to read and write, years learning how to speak. But what about listening?
+ - The ability to manage well doesn’t make much difference if you’re not even in the right jungle.
+ - You can’t live principals you can’t understand.
+ - Once you’ve found your own voice, the choice to expand your influence, to increase your contribution, is the choice to inspire others to find their voice.
+ - When people seriously undertake to identify what really matters most to them in their lives, what they really want to be and do, they become very reverent. They start to think in larger terms than today and tomorrow.
+ - In the absence of wake-up calls, many of us never really confront the critical issues of life.
+ - It is one thing to make a mistake, and quite another thing not to admit it.
+ - If we want to make a change in our lives, we should first focus on our personal attitudes and behaviors.
+ - It’s better to be humbled by the word than by the force of circumstances.
+ - What is important to another person must be as important to you as the other person is to you.
+ - All broken relationships can be traced back to broken agreements.
+ - Empathic listening takes time, but it doesn’t take anywhere near as much time as it takes to back up and correct misunderstandings when you’re already miles down the road; to redo; to live with unexpressed and unsolved problems; to deal with the results of not giving people psychological air.
+ - Putting first things first means organizing and executing around your most important priorities. It is living and being driven by the principles you value most, not by the agendas and forces surrounding you.
+ - Public behavior is merely private character writ large.
+ - Executives need to understand the economic benefits of trust dividend, especially when the behavior is real, not artificially or superficially created as PR to manipulate trust.
+ - Management is clearly different from leadership. Leadership is primarily a high-powered, right-brain activity. It’s more of an art it’s based on a philosophy. You have to ask the ultimate questions of life when you’re dealing with personal leadership issues.
+ - The great contributors in life are those who, though afraid of the knock at the door, still answer it.
+ - When you make a commitment to yourself, do so with the clear understanding that you’re pledging your integrity.
+ - You will never be able to truly step inside another person, to see the world as he sees it, until you develop the pure desire, the strength of personal character, and the positive Emotional Bank Account, as well as the empathetic listening skills to do it.
+
+500 quotes

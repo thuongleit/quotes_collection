@@ -1,0 +1,214 @@
+ - If you quit once it becomes a habit. Never quit.
+ - Always turn a negative situation into a positive situation.
+ - Don’t be afraid to fail. Be afraid not to try.
+ - Talent wins games, but teamwork and intelligence wins championships.
+ - I’ve missed more than 9000 shots in my career. I’ve lost almost 300 games. 26 times, I’ve been trusted to take the game winning shot and missed. I’ve failed over and over and over again in my life. And that is why I succeed.
+ - Some people want it to happen, some wish it would happen, and others make it happen.
+ - I can accept failure, everyone fails at something. But I can't accept not trying.
+ - Everybody has talent, but ability takes hard work.
+ - If you can’t stop thinking about it, don’t stop working on it.
+ - Never say never, because limits, like fears, are often just an illusion.
+ - Make it happen.
+ - I didn’t come here to be average.
+ - To learn to succeed, you must first learn to fail.
+ - If nobody will help you, do it alone.
+ - Obstacles don’t have to stop you. If you run into a wall, don’t turn around and give up. Figure out how to climb it, go through it, or work around it.
+ - You must expect great things of yourself before you can do them.
+ - I’ve never lost a game. I just ran out of time.
+ - Focus like a laser, not a flashlight.
+ - Failure gave me strength. Pain was my motivation.
+ - Once I made a decision, I never thought about it again.
+ - My attitude is that if you push me towards something that you think is a weakness, then I will turn that perceived weakness into a strength.
+ - Just play. Have fun. Enjoy the game.
+ - Work ethics eliminates fear.
+ - You can practice shooting eight hours a day, but if your technique is wrong, then all you become is very good at shooting the wrong way. Get the fundamentals down and the level of everything you do will rise.
+ - If you don’t back it up with performance and hard work, talking doesn’t mean a thing.
+ - I’ve never been afraid to fail.
+ - There is no ‘i’ in team but there is in win.
+ - Another day, another opportunity to prove everyone who doubts you wrong.
+ - Get the fundamentals down and the level of everything you do will rise
+ - Live the moment for the moment.
+ - Earn your leadership every day.
+ - My best skill was that I was coachable. I was a sponge and aggressive to learn.
+ - Being nervous isn’t bad. It just means something important is happening.
+ - I’ve failed over and over and over again in my life and that is why I succeed.
+ - No brain, no gain. Stay in school.
+ - All I knew is that I NEVER wanted to be AVERAGE.
+ - I play to win, whether during practice or a real game.
+ - It doesn’t matter if you fall down, it’s whether you get back up.
+ - Anything can happen if you are willing to put in the work and remain open to the possibility. Dreams are realized by effort, determination, passion and staying connected to that sense of who you are.
+ - If you do the work you get rewarded. There are no shortcuts in life.
+ - Sometimes a winner is just a dreamer who never gave up.
+ - You always have to focus in life on what you want to achieve.
+ - I’m a firm believer in goal setting. Step by step. I can’t see any other way of accomplishing anything.
+ - The harder I prepare, the luckier I seem to get.
+ - It’s not about the shoes, it’s what you do in them.
+ - If you think and achieve as a team, the individual accolades will take care of themselves. Talent wins games, but teamwork and intelligence win championships.
+ - The key to success is failure.
+ - Patience. I will become what I know I am.
+ - I play to win, whether during practice or a real game. And I will not let anything get in the way of me and my competitive enthusiasm to win.
+ - To be successful you have to be selfish, or else you never achieve. And once you get to your highest level, then you have to be unselfish. Stay reachable. Stay in touch. Don’t isolate.
+ - I know fear is an obstacle for some people, but it is an illusion to me. Failure always made me try harder next time.
+ - Winners don’t just learn the fundamentals, they master them. You have to monitor your fundamentals constantly because the only thing that changes will be your attention to them.
+ - If you put your mind to doing whatever it is you want to do, good things can happen.
+ - I’ve always believed that if you put in the work, the results will come.
+ - I never looked at the consequences of missing a big shot. When you think about the consequences you always think of a negative result.
+ - Success isn’t something you chase. It’s something you have to put forth the effort for constantly. Then maybe it’ll come when you least expect it. Most people don’t understand that.
+ - Nothing of value comes without being earned.
+ - Any fear is an illusion. You think something is standing in your way, but nothing is really there. What is there is an opportunity to do your best and gain some success.
+ - Don’t let them drag you down by rumors just go with what you believe in.
+ - I’ll quit competing when my heart quits beating.
+ - Be optimistic about everything in life.
+ - My heroes are and were my parents. I can’t see having anyone else as my heroes.
+ - If you accept the expectations of others, especially negative ones, then you never will change the outcome.
+ - If it turns out that my best wasn’t good enough, at least I won’t look back and say that I was afraid to try; failure makes me work even harder.
+ - Every time I feel tired while I am exercising and training, I close my eyes to see that picture, to see that list with my name. This usually motivates me to work again.
+ - Obstacles don’t have to stop you.
+ - I’ve always believed that if you put in the work, the results will come. I don’t do things half-heartedly. Because I know if I do, then I can expect half-hearted results.
+ - A coach is someone that sees beyond your limits and guides you to greatness!
+ - I just feel that my competitive drive is far greater than anyone else that I’ve met, and I think that I thrive on that.
+ - Being afraid on the court, means you’re not confident of your skills.
+ - People ask me if I could fly, I said, ‘yeah... for a little while.’
+ - There was never any fear for me, no fear of failure. If I miss a shot, so what?
+ - Even when I’m old and grey, I won’t be able to play it, but I’ll still love the game.
+ - A loss is not a failure until you make an excuse.
+ - I would tell players to relax and never think about what’s at stake. Just think about the basketball game. If you start to think about who is going to win the championship, you’ve lost your focus.
+ - Success doesn’t stop when you get there.
+ - You have to be un-compromised in your level of commitment to whatever you are doing, or it can disappear as fast as it appeared. Commitment cannot be compromised by rewards.
+ - I have failed many times, but I have never gone into a game expecting myself to fail.
+ - If I have an agenda or a goal, no one is going to deter me from what I want to do.
+ - Sometimes, things may not go your way, but the effort should be there every single night.
+ - Each time I step on the basketball court, I never know what will happen. I live for the moment. I play for the moment.
+ - Fundamentals were the most crucial part of my game in the NBA. Everything I did, everything I achieved, can be traced back to the way I approached the fundamentals.
+ - Never think of the consequences of failing for you will always think of a negative result. Think only positive thoughts and your mind will gravitate towards those thoughts!
+ - The game is my wife. It demands loyalty and responsibility, and it gives me back fulfillment and peace.
+ - The game has its ups and downs, but you can never lose focus of your individual goals and you can’t let yourself be beat because of lack of effort.
+ - I’m not afraid to take a step and if I fall, I fall. I pick myself up and move on. If we can all learn one thing in life, it’s don’t be afraid to take on something that you believe you’re capable of achieving.
+ - Not every flying hero has a cape.
+ - Since I’ve been in chiropractic, I’ve improved by leaps and bounds both mentally and physically.
+ - I Own the guy guarding me.
+ - Figure out how to climb it, go through it, or work around it.
+ - We’re not winning because of talent. We’re just beating bad teams.
+ - Basketball isn’t just about the bright lights, packed arenas and highlight reels. Basketball is a way of life. Basketball is a relationship between you and the ball, you and your teammates. If you love the game, nobody can take that from you.
+ - If I had been playing for money I would have complained a long time ago that I was underpaid.
+ - I don’t know about flying, but sometimes it feels like I have these little wings on my feet.
+ - It’s always been said that when I can’t find a way to do anything, I will find a way to do it.
+ - I never thought a role model should be negative.
+ - I realize that I’m black, but I like to be viewed as a person, and that’s everybody’s wish. I try to be a role model for black kids, white kids, yellow kids, green kids. This is what I felt was good about my personality.
+ - I’m sorry to see it end.
+ - I’m retired 99.9%. Of course, there always is that .1%.
+ - I hate being out there with those garbage men. They don’t get you the ball.
+ - Excellence isn’t a one-week or one-year ideal. It’s a constant.
+ - My father used to say that it’s never too late to do anything you wanted to do. And he said, ‘You never know what you can accomplish until you try.’
+ - Authenticity is about being true to who you are, even when everyone around you wants you to be someone else.
+ - What is love? Love is playing every game as if it’s your last!
+ - It doesn’t matter if you win as long as you give everything in your heart.
+ - Heart is what separates the good from the great.
+ - In reality, I never want to grow up.
+ - I’m not out there sweating for three hours every day just to find out what it feels like to sweat.
+ - I am competing with what I am capable of.
+ - The minute you get away from fundamentals – whether its proper technique, work ethic or mental preparation – the bottom can fall out of your game, your schoolwork, your job, whatever you’re doing.
+ - If you are confident you have done everything possible to prepare yourself, then there is nothing to fear.
+ - You have competition every day because you set such high standards for yourself that you have to go out every day and live up to that.
+ - People can fly. Some people fly higher than others, that’s all.
+ - My body could stand the crutches but my mind couldn’t stand the sideline.
+ - The basketball court for me, during a game, is the most peaceful place I can imagine. On the basketball court, I worry about nothing. When I’m out there, no one can bother me...
+ - My mother is my root, my foundation. She planted the seed that I base my life on, and that is the belief that the ability to achieve starts in your mind.
+ - Number 45 doesn’t explode like Number 23 used to.
+ - Republicans buy sneakers, too.
+ - There have been times when I have failed. But there have never been times when I thought I would fail.
+ - I’ve missed more than 9000 shots in my career...
+ - I took cooking classes when I was younger; girls weren’t interested in me, and I thought I may be alone for the rest of my life.
+ - You remember what you said in 1994 about, ‘I think I can guard you, I can shut you down, I would love to play against you?’ Well, you’re about to get your chance.
+ - Sometimes you need to get hit in the head to realize that you’re in a fight.
+ - It’s not how hard you pushed along the way. It’s having something in you to finish.
+ - The best come from the worst.
+ - I missed 9000 shots in my career, lost almost 300 games and missed the shot to win the game 26 times.
+ - I want to be the bridge to the next generation.
+ - I want people to understand, gambling is not a bad thing if you do it within the framework of what it’s meant to be, which is fun and entertaining.
+ - When I was young, I had to learn the fundamentals of basketball. You can have all the physical ability in the world, but you still have to know the fundamentals.
+ - The reason I became such a successful athlete was my mind was saying that no matter who you put up against me, I am better, I am the best.
+ - I dont take pictures with Niggas.
+ - I’ve had tendinitis since college.
+ - I truly love the game; I wouldn’t be playing if I didn’t love the game. I’m not getting paid astronomical dollars; it’s truly for the love of the game of basketball.
+ - I want to wake up every day and do whatever comes in my mind, and not feel pressure or obligations to do anything else in my life.
+ - When I step onto the court, I’m ready to play. If you’re going up against me, you’d better be ready. If you’re not going to compete, I will dominate you.
+ - I failed so therefore I succeed.
+ - Accept a loss as a learning experience, and never point fingers at your teammates.
+ - My advice is find fuel in failure. Sometimes failure gets you closer to where you want to be.
+ - In any investment, you expect to have fun and make money.
+ - Failure makes me work even harder.
+ - I do not have a problem, I enjoy gambling, but I think people are trying to make it seem like I have a problem, because people really don’t know.
+ - Gambling is legal and betting is legal, for what I bet.
+ - Failure is acceptable. but not trying is a whole different ball park.
+ - There will be a player greater than me.
+ - The players today reflect how much the game has evolved and changed both in style and culture. The game now has a wider appeal to a larger market.
+ - If I have something and move forward, it is only my weakness, which I hate and turn into my strength. You are not lost as long as you do not give up!
+ - When I lose the sense of motivation and the sense to prove something as a basketball player, it’s time for me to move away from the game.
+ - If you’re trying to achieve, there will be roadblocks. I’ve had them; everybody has had them.
+ - How many times have your parents told you not to do things, and the next thing you know, you go do it? And you realized you shouldn’t have done it.
+ - I have failed many times, and that’s why I am a success.
+ - I hope the millions of people I’ve touched have the optimism and desire to share their goals and hard work and persevere with a positive attitude.
+ - The good part about being famous is being able to help people. The hard part is every day you have to be in a good mood, because that is what people expect. You learn to get good at it.
+ - A leader can’t make excuses. There has to be quality in everything you do. Off the court, on the court, in the classroom.
+ - Drugs have been in the game for a long time. They were there when I was in college, and even in high school. It’s in life. It’s in business. It’s everywhere.
+ - You’re an idiot. You’ve screwed up every play we ever ran. You’re too stupid to even remember the plays. We ought to get rid of you.
+ - Great players never look in the mirror and think I’m a great basketball player. You ask yourself, Am I the best player I can be?
+ - Playing sick. That is so hard to do. It has to be a total mental challenge, as well as the physical challenge.
+ - I went to a bookstore to try to find a book. The bottom line is, it all comes by trial and error. It was scary and exciting at first you don’t know what to expect. But once you look into your child’s eyes, you forget about that.
+ - There is no such thing as a perfect basketball player, and I don’t believe there is only one greatest player either.
+ - It’s a habit of mine now, noticing labels, logos, shoes.
+ - I viewed it as a business, but I always viewed it as a game. An opportunity to show my skills, my basketball skills, amongst the best in the world.
+ - It’s easier for me to get ready for a game on the road because you’re expected to lose when you play away from home. That’s a challenge to right there and that perks my competitive juices.
+ - All I wanted to do was to improve, to keep getting better.
+ - I can’t speak for the future. I have no crystal ball.
+ - I wasn’t really a work conscious type of person.
+ - I basically expect anything. Isn’t that wild? I used to surprise myself a lot: certain moves, how I’d get out of trouble. But at some point, you accept the talent that you have, you accept your creativity.
+ - Don’t be like me. Be better than me. That’s the goal.
+ - When I was playing before I retired, I never really understood the appreciation and the respect that people gave me. People had treated me like a god or something, and that was very embarrassing.
+ - I’d like to be settled into somewhat of a normal life. Somewhat. I know it’s never going to be completely normal.
+ - It’s probably a twelve-day. He needs two days to wake up.
+ - The best evaluation I can make of a player is to look in his eyes and see how scared they are.
+ - Purchasing the Bobcats is the culmination of my post-playing career goal of becoming the majority owner of an NBA franchise.
+ - I won’t have any competitive instincts in any sports, other than golf. I can’t see being competitive in sports any more.
+ - Do I need my number retired throughout the course of the league to acknowledge what I’ve done? No.
+ - I make shoes for white suburban kids, not the poor black kids. That would be like opening a restaurant for people without stomachs.
+ - Once I get the ball, you’re at my mercy. There is nothing you can say or do about it. I own the ball.
+ - If you pass the ball to Bill Cartwright, you’ll never get the ball from me.
+ - Enjoy every minute of life. Never second-guess life.
+ - My most memorable dunk, that I think about very, very often, is the Patrick Ewing dunk.
+ - I smoked my first cigar in 1991, when we won the championship. Up to that point, I had never smoked a cigar, never smoked anything.
+ - It takes a hell of a lot for a man to put up with me. I can be a handful.
+ - For a competitive junkie like me, golf is a great solution because it smacks you in the face every time you think you have accomplished something. That to me has taken over a lot of the energy and competitiveness for basketball.
+ - Winning isn’t always championships.
+ - I know the signs of scaredness.
+ - I believe greatness is an evolutionary process that changes and evolves era to era.
+ - Confidence allows you to progress in something you’re attempting to accomplish, whether it’s playing basketball or baseball or whether it’s trying to succeed in business.
+ - I heave the basketball; I know it sails in a parabola, exhibiting perfect symmetry, which is interrupted by the basket. It’s funny, but it is always interrupted by the basket.
+ - I will not quit this game because of what the media has done to me.
+ - Its better to shoot and miss, then to let time run out and wonder what if.
+ - Basketball isn’t my job.
+ - As athletes, we’re used to reacting quickly. Here, it’s ‘come, stop, come, stop.’ There’s a lot of downtime. That’s the toughest part of the day.
+ - I would never play an extra year for money. I play the game because I love it. I just so happen to get paid. If I don’t feel I still enjoy the game, I can care less what a year is worth. I’m not going to play the game just because of money.
+ - There’s only one Michael Jordan.
+ - It’s absolutely wrong that I don’t want guys to challenge me. And the people who say that aren’t in the room.
+ - If you love the game, nobody can take that from you.
+ - You believe an eye for an eye until you are put in that situation. If they kill those guys, it really doesn’t mean much to me. My father is gone.
+ - I know what I would do if I were coach. I’d determine our strengths and weaknesses and utilize them. And it’s pretty clear what our strength is.
+ - When I play against someone that’s new in the league, I make him respect me. They may have heard about me, but now you get to see me actually in front of you. That drives me.
+ - I’d take 12 guys who had a strong passion for the game over 12 guys who don’t respect the game.
+ - I knew where I wanted to go, what kind of player I wanted to become and I focused on getting there.
+ - I built my talents on the shoulders of someone else’s talent.
+ - I want to be perceived as a guy who played his best in all facets, not just scoring. A guy who loved challenges.
+ - Being Michael Jordan means acting the same as I always have.
+ - Sometimes I wonder what it will be like to look back on all this. Whether it will seem real.
+ - I want to play for years.
+ - I’ve reached the pinnacle of my career. I just feel that I don’t have anything else to prove.
+ - I’m all about challenges and seeing if I can go out and see if I can achieve something. If at the end of the day I do it, great. If I don’t, I can live with myself.
+ - I am privileged to have played basketball.
+ - I realize that I’m black, but I like to be viewed as a person, and this is everybody’s wish.
+ - It’s hard to say if the NBA is hurt by the influx of younger players, but it’s definitely impacted the league.
+ - I think the players win the championship, and the organization has something to do with it, don’t get me wrong. But don’t try to put the organization above the players.
+ - The greatest people that ever lived were also the greatest failures. They just didn’t let those failures affect them like they do most.
+
+212 quotes

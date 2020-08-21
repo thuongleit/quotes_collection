@@ -1,0 +1,42 @@
+ - If I had a flower for every time I thought of you... I could walk through my garden forever. ~~Alfred Tennyson
+ - Finding someone you love and who loves you back is a wonderful, wonderful feeling. But finding a true soul mate is an even better feeling. A soul mate is someone who understands you like no other, loves you like no other, will be there for you forever, no matter what. They say that nothing lasts forever, but I am a firm believer in the fact that for some, love lives on even after we’re gone. ~~Cecelia Ahern
+ - As he read, I fell in love the way you fall asleep: slowly, and then all at once. ~~John Green
+ - Absence makes the heart grow fonder. ~~Eleanor Roosevelt
+ - Every heart sings a song, incomplete, until another heart whispers back. Those who wish to sing always find a song. At the touch of a lover, everyone becomes a poet. ~~Plato
+ - There may be a brighter star. But through my eyes the light of you is all I see. ~~Stevie Wonder
+ - Where love is concerned, too much is not even enough. ~~Pierre Beaumarchais
+ - Wise men say only fools rush in. But I can’t help falling in love with you. ~~Elvis Presley
+ - In vain have I struggled. It will not do. My feelings will not be repressed. You must allow me to tell you how ardently I admire and love you. ~~Jane Austen
+ - Love does not begin and end the way we seem to think it does. Love is a battle, love is a war; love is a growing up. ~~James Baldwin
+ - What will survive of us is love. ~~Philip Larkin
+ - The arms of love encompass you with your present, your past, your future, the arms of love gather you together. ~~Antoine de Saint-Exupéry
+ - We are each of us angels with only one wing, and we can only fly by embracing one another. ~~Luciano De Crescenzo
+ - Love of my life, I love you so. Love of my life, don’t ever go. ~~Frank Zappa
+ - Be thou the rainbow in the storms of life. The evening beam that smiles the clouds away, and tints tomorrow with prophetic ray. ~~Lord Byron
+ - Love is an act of faith. ~~Erich Fromm
+ - I see you everywhere, in the stars, in the river, to me you’re everything that exists; the reality of everything. ~~Virginia Woolf
+ - Sometimes I can’t see myself when I’m with you. I can only just see you. ~~Jodi Lynn Anderson
+ - Grace was in all her steps, heaven in her eye, in every gesture dignity and love. ~~John Milton
+ - And I urge you to please notice when you are happy, and exclaim or murmur or think at some point, ‘If this isn’t nice, I don’t know what is.’ ~~Kurt Vonnegut
+ - Love means to commit oneself without guarantee, to give oneself completely in the hope that our love will produce love in the loved person. Love is an act of faith, and whoever is of little faith is also of little love. ~~Erich Fromm
+ - Soul meets soul on lovers’ lips. ~~Percy Bysshe Shelley
+ - Gravitation is not responsible for people falling in love. ~~Albert Einstein
+ - Love is being stupid together. ~~Paul Valéry
+ - I want everyone to meet you. You’re my favorite person of all time. ~~Rainbow Rowell
+ - There is no greater glory than to die for love. ~~Gabriel Garcí­a Márquez
+ - The only regret I will have in dying is if it is not for love. ~~Gabriel Garcí­a Márquez
+ - Sometimes people don’t understand the promises they’re making when they make them. ~~John Green
+ - Absence diminishes mediocre passions and increases great ones, as the wind extinguishes candles and fans fires. ~~François de La Rochefoucauld
+ - He stepped down, trying not to look long at her, as if she were the sun, yet he saw her, like the sun, even without looking. ~~Leo Tolstoy
+ - Once upon a time there was a boy who loved a girl, and her laughter was a question he wanted to spend his whole life answering. ~~Nicole Krauss
+ - Love doesn’t just sit there, like a stone; it has to be made, like bread, remade all the time, made new. ~~Ursula K. Le Guin
+ - I’d cut up my heart for you to wear if you wanted it. ~~Margaret Mitchell
+ - Love comes when manipulation stops; when you think more about the other person than about his or her reactions to you. When you dare to reveal yourself fully. When you dare to be vulnerable. ~~Joyce Brothers
+ - I want to do to you what spring does with the cherry trees. ~~Pablo Neruda
+ - It had to teach her to think of love as a state of grace: not the means to anything but the alpha and omega, an end it itself. ~~Gabriel Garcí­a Márquez
+ - Love is a force more formidable than any other. It is invisible – it cannot be seen or measured, yet it is powerful enough to transform you in a moment, and offer you more joy than any material possession could. ~~Barbara De Angelis
+ - The first time I ever saw your face, I thought the sun rose in your eyes and the moon and the stars were the gifts you gave to the dark and empty sky, my love. ~~Ewan MacColl
+ - Lost love is still love. It takes a different form, that’s all. You can’t see their smile or bring them food or tousle their hair or move them around a dance floor. But when those senses weaken another heightens. Memory. Memory becomes your partner. You nurture it. You hold it. You dance with it. ~~Mitch Albom
+ - You pierce my soul. I am half agony, half hope...I have loved none but you. ~~Jane Austen
+
+40 quotes

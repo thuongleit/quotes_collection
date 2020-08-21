@@ -1,0 +1,62 @@
+ - I remember someone said to me, “Never stand up when you can sit down, never sit down when you can lie down, never lie down when you can be asleep.” Those are bits of advice that I haven’t taken, really. I’ve done the opposite of them, but they have stayed with me.
+ - Change the scheme! Alter the mood! Electrify the boys and girls, if you’d be so kind.
+ - No matter how difficult things are, and no matter how much grief and loss there is, you can turn it into something positive.
+ - By the time you are 30 you are still trying to make your 15-year-old self happy but you are a different person. You need to be brave and let go of that.
+ - I think I’m becoming more relaxed in front of a camera. I suppose I’ll always feel slightly more at home on stage. It’s more of an actor’s medium. You are your own editor, nobody else is choosing what is being seen of you.
+ - When I was at drama school, I wanted to change the world, and thought I had some great wisdom to impart to people about humanity. Now that I’m older, I know enough to realise that I know nothing at all.
+ - My rule of thumb is that I want to do things I’d like to go and see myself.
+ - We live in a bubble of the fantasy of death, but the reality of it is something that we obviously all face and have to deal with, at some point.
+ - I perceive and relate to the world through where I grew up; that’s part of me. It’s what I judge everything else against.
+ - I live a very Kenneth Williams-like existence.
+ - My dad is a Jack Nicholson lookalike and a frustrated performer, my mother’s into reading and poetry. I suppose the thing I owe them most is my confidence.
+ - When you look at all the miracles attributed to Jesus, they’re all about change.
+ - Stories have always been the things that entertain me and make me feel happy and sad and move me and give me the experience of being able to live many lives in one lifetime. It’s the best thing about being alive.
+ - Acting itself is quite scary. Some people say that actors are show-offs, very egotistical and all that kind of stuff, but it is quite scary.
+ - My tragedy is that all I want is a dog, and yet I have been cursed with cats all my life.
+ - We see death constantly on film.
+ - A parent can seem very kind and gentle, but as any child knows, as soon as that parent gets stressed, they can suddenly turn and get a bit angry.
+ - I don’t find the life in Hollywood all that meaningful or inspiring.
+ - Getting older is a struggle. I always feel that just under the surface of acceptance and enjoyment of the ageing process is a terrible hysteria just waiting to burst out.
+ - With vampires, there is such a great tradition that you suddenly find yourself a part of. Each generation reinvents what that means to them.
+ - Americans are much more open than people in Britain.
+ - My chief gifts are – naturally good at all sports with a raw talent for pretty much everything, which if nurtured could develop into improper talent.
+ - Hopefully, any character I play has an anchor in reality. The more fantastical characters, or fantastical worlds that they inhabit are really fun and allow you, in some ways, to tell stories and reveal things about our lives that would be harder to take, in a more realistic setting.
+ - I suppose I’m something of an eccentric dresser.
+ - For me, what makes life enjoyable is having a shared culture and shared references.
+ - I think the best acting is when you allow yourself to be kind of vulnerable in the moment.
+ - I can be a lazy dresser.
+ - Although my family – parents and sister – all work in the personnel management business, their real passion is performing, amateur operatic societies and so on.
+ - I think parenthood is a wonderful balancing act. On the one hand, you want to spend as much time with your children as possible. On the other hand, you want to set an example for them to see that you’re fulfilled in your life and in your work.
+ - I find increasingly that the more extreme are the things going on in your life, the more cultural reference points fail you. More mythical reference points actually help, and you realise that’s what myths are for. It’s for human beings to process their experience in extremis.
+ - As a general thing, I’ve always been drawn to characters who appear to be one thing on the surface, but are actually something else underneath.
+ - On the one hand Twitter gives you the opportunity to engage with people, which is great, but on the other there are people who feel they can say whatever they want, put poison out there, really, without fear of any repercussions.
+ - I think the story of ‘Alice in Wonderland’ in a way is a reminder that life is frightening, it can shift on you at any moment.
+ - When you come to actually act, it’s a game. It may be a very serious game, but it’s still a game. If you lose that sense of play, the work suffers.
+ - I enjoy doing things that involve research because it’s part of what I enjoy about acting.
+ - Hopefully, any character I play has an anchor in reality.
+ - I’ve always loved animation and animated films.
+ - I suppose I’ve got a reputation for playing quite extreme characters and making them quite believable.
+ - I’m a big fan of vampire movies generally and that sort of tradition of characters.
+ - A lot of the times when I’ve auditioned for parts in America, the answer is, ‘Sorry, we need a bigger name.’
+ - In terms of how prudish Americans were in the ’40s and ’50s, I have absolutely no idea. I do know about the character that I play. And I don’t think it’s about being prudish. I think it’s about trying to balance a sense of control in this man’s life.
+ - I was obsessed with football when I was growing up.
+ - I love watching Jeff Bridges act. He’s brilliant.
+ - You don’t want to get into doing the same thing, over and over again. I know I don’t.
+ - I would like to be taller, thinner and more rakish looking.
+ - So, if they’re coming in and having to do scenes that involve nudity or sexuality, in some way, the utmost important thing is that everyone feels comfortable and safe. If there’s any gray area, that’s going to be a problem.
+ - It’s funny the more technological advanced everything gets, the more like acting in your bedroom when you’re a kid it is.
+ - I try not to pay any attention to clothes fascism and I’d rather be thought of as someone who has his own sense of style.
+ - It’s interesting that in searching for monsters to play you often end up playing leaders.
+ - We knew, very early on, that we had to be very, very clear that directors need to speak to actors and actresses and be very clear about what is expected, and find out whether they’re comfortable with that. Wardrobe has to be in place. There have to be checks.
+ - Everyone deserves compassion.
+ - I am prone to get carried away thinking about creative projects.
+ - My own daughter is a big fan of the ‘Twilight’ stories, the books.
+ - I’m not a Tony Blair impersonator.
+ - I think when you work on a Woody Allen film the actors become a real company, probably more than on any other film.
+ - I don’t want to do something that I’ve done before; I can’t see the point of it.
+ - What’s enjoyable for me, as an actor, is to do as many different things as possible.
+ - I love being able to play as many different characters, in as many different worlds as I possibly can. That’s what I really enjoy.
+ - I have a daughter, and fairies meant a lot to her growing up.
+ - I’m a huge fan of science fiction and fantasy – not so much horror because I get a bit scared.
+
+60 quotes

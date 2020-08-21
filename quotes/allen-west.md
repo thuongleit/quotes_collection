@@ -1,0 +1,68 @@
+ - Leadership is about being a servant first.
+ - We must never forget why we have, and why we need our military. Our armed forces exist solely to ensure our nation is safe, so that each and every one of us can sleep soundly at night, knowing we have ‘guardians at the gate.’
+ - I’m tired of liberals dividing this country up into little groups, setting them upon each other, breeding spite and envy, and then having the nerve to accuse conservatives of hatred.
+ - We believe in humility and integrity, the spirit of one people, bound together under God. We understand that the Constitution was written to control and regulate the government, not the people.
+ - As Conservatives, We Don’t Care About The Color of Your Skin, We Care About The Color of Our Flag.
+ - We must not allow the liberals to move us away from the conservative values of the American past which sustain our present and shall secure our future. As for me and my family, we will serve God, we will serve this constitutional republic, we will serve America.
+ - I find it hilarious when Obama’s hand gets caught in the cookie jar.
+ - I want no part of peace with savages who throw acid on and gun down young girls going to school. I would prefer to crush them and kill them wherever they exist. That’s not being a warmonger. It’s being a realist.
+ - As a 22-year Army Veteran who served in Operations Desert Storm and Iraqi Freedom, and as a Civilian Advisor to the Afghan Army in Operation Enduring Freedom, I understand both the gravity of giving the order, and the challenge of carrying it out.
+ - So now is an opportunity for us to stand up and have a good, strong immigration policy to make sure that E- Verify becomes mandatory and we have got to train and properly equip our Border Patrol.
+ - If it’s about the lives of my soldiers at stake, I’d go through hell with a gasoline can.
+ - I’ll give you a great example of an issue that no one brought up during this Florida primary, the fact that we’re going to have a Chinese made oil rig put in place about 60 miles off the coast of Florida.
+ - We are in a new Civil War, and just like the last, it is a struggle for the sanctity of the Union – and it’s hardly civil.
+ - The great thing that I appreciate – the fact that my godfather, William ‘Sticky’ Jackson, was a Tuskegee Airman because my father was first born in Ozark, Alabama. The sacrifices and the commitment of those men made it possible for myself and many others.
+ - Nowadays, many Americans have forgotten the meaning and traditions of Memorial Day. At cemeteries across the country, the graves of the fallen are sadly ignored, and worse, neglected.
+ - One of the most positive things about America is just like what we’re all doing here today. We’re standing on Jensen Beach, we’re watching a beautiful sunrise over the Atlantic. It’s all because of men and women who were willing to make a sacrifice so that we can enjoy these freedoms.
+ - Indeed, there are Islamic terrorist training camps in America.
+ - There’s nothing on this green earth that a liberal progressive fears more than a black American who wants a better life and a smaller government.
+ - I don’t look to a man to get pride in myself. It’s not about having a black president, it’s about having a good president, and I think that’s the most important thing.
+ - I’m a conservative because I believe in peace – real peace, not just the peace of mind. I’m a conservative because we understand that real peace comes from the Marine Corps, not the Peace Corps.
+ - Take your message of equality of achievement, take your message of economic dependency, take your message of enslaving the entrepreneurial will and spirit of the American people somewhere else.
+ - Our soldiers, sailors, airmen, Marines and Coast Guardsmen volunteer to protect and defend this country and all its citizens, and do so with honor, integrity and excellence. Our nation continually asks them to do more and more, with less and less.
+ - Are we witnessing an Obama ‘Wag the Dog’ moment with Boko Haram in Nigeria? I say yes. Consider all the scandals facing the Obama administration, especially Benghazi and the Select Committee.
+ - For far too long we’ve allowed the other side to paint us as racist, as sexist, inhumane war mongers – well, today as a conservative black Republican and former solider, I’m here to set that record straight.
+ - I must confess, when I see anyone with an Obama 2012 bumper sticker, I recognize them as a threat to the gene pool.
+ - The republic I fell in love with, the republic I risked my life to defend, the values I hold dear, the integrity that we all share – these do not know prejudice and they do not accept partiality.
+ - I do not believe having a baby is punishment.
+ - Compassion comes from a choice and not the liberal definition of a choice – the choice to say I can do with a little less so my brother can have a little more.
+ - Liberals worry that what’s best for the individual might not be better for the public at large. But that philosophy assumes something vicious about each and every one of us. It assumes we only care about ourselves.
+ - One of the critical issues that we have to confront is illegal immigration, because this is a multi-headed Hydra that affects our economy, our health care, our health care, our education systems, our national security, and also our local criminality.
+ - The message for the American youth is that this is a great country and we need to make sure that we pass on a heritage, a lineage and a legacy of American exceptionalism to each and everyone of you so that you can enjoy all the great liberties and freedoms that all the previous generations have had.
+ - There is a simple maxim that I use to express this situation, ‘when tolerance becomes a one way street, it leads to cultural suicide.’
+ - Of course we have compassion. We just don’t believe the safety net should be used as a hammock.
+ - I will take my hands off Medicare when there is no Medicare, then I will come and see you sir.
+ - In the real world, I see conservatives volunteering at adoption agencies, at churches, at bake sales and the local American Legion Post while the only charity a progressive sends is a smug sermon on fair share and what fairness is.
+ - When I retired out of the military, I registered myself as a Republican because my views and perspectives were more in line with that party.
+ - It was the Democrats who were against civil rights legislation.
+ - You had 42 blacks that ran on the Republican ticket this Cycle, 14 made of them made it to the general election and two of us made it to the House of Representatives. So I think that there is a new movement that needs to have a voice in the Congressional Black Caucus.
+ - From 1971 onwards, the Memorial Day holiday was officially observed on the last Monday in May and became the unofficial start of the summer, with barbecues, blockbuster movie openings and mattress sales.
+ - As for everyone else, unless you have been shot at by the Taliban, shut your mouth, war is hell.
+ - I believe there’s about 78 to 81 members of the Democrat Party who are members of the Communist Party. It’s called the Congressional Progressive Caucus.
+ - I think we have to understand that when tolerance becomes a one-way street, it will lead to cultural suicide. We should not allow the Muslim Brotherhood or associated groups to be influencing our national security strategy.
+ - While there are towns and cities still planning Memorial Day parades, many have not held a parade in decades. Some think the day is for honoring anyone who has died, not just those fallen in service to our country.
+ - A person like myself, born and raised in the inner city of Atlanta, Georgia, to lower-middle-class parents. But I had the opportunity to get an education, to go and earn a commission in the United States Army, to serve for 22 years, to lead men and women in combat.
+ - I’m a conservative because I believe we’re here on this earth to do a little more than crawl through life, comfortable in the cradle of government excess and oblivious to the duties required to keep this republic standing.
+ - Every year, thousands of Californians flee that populous paradise for tax-eased small government oasis of America’s red states.
+ - I think that there is a changing wind. There are black conservatives out there, and their voices need to be heard.
+ - When dealing with illegal immigration, the answer is simple; enforce Constitutional mandates, and you will protect Floridians and the American people.
+ - This is what America is about when it comes to understanding that it is equal opportunity versus equal achievement. Each and every one of us has the opportunity for greatness in this country.
+ - I think that Governor Romney operates on the capital gains tax, his investments, what he lives off of instead of doing it off of his income.
+ - I don’t think there’s anything divisive about me.
+ - Quite simply, federal laws already on the books aimed at stopping the flow of illegal immigration must be enforced. Furthermore, states must be given the resources necessary to confront the problem, which includes strengthening the border patrol.
+ - The future does not belong to those who attack our Embassies and Consulates and kill our Ambassadors. The Angel of Death in the form of an American Bald Eagle will visit you and wreak havoc and destruction upon your existence.
+ - And always remember, Abraham Lincoln only served one term in Congress, too.
+ - It would be nice if Patrick Murphy was half as upset about Democrats removing God and Jerusalem from their platform, or booing when they were added back in, as he is pretending to be about our new tv ad which simply points out what happened.
+ - Liberal progressivism evolved after our Constitution. It has repeatedly failed all over the world so why do we think it could be successful here in the United States of America?
+ - No one talked about the fact that in this year under the Obama administration you’ve seen the highest casualties in Afghanistan. And the fact that it took him almost 90 days to figure out what his strategy is going to be was absolutely appalling.
+ - You have an imperial presidency that makes Richard Nixon look like a boy scout.
+ - Where is love exchanged? Where is the love felt when a state administrator stuffs a welfare check into an outgoing mail?
+ - I spent 22 years in the United States military, so I’m a pretty strategic level thinker.
+ - Well, I think we need to have attrition by enforcement. We need to secure our borders. We need to enforce our laws.
+ - I think that Governor Romney needs to talk about the fact that what he tried to do in the state of Massachusetts was him seeing what could be best for his state, but maybe it didn’t work out as well.
+ - When more Americans prefer freebies to freedom, these great United States will become a fertile ground for tyranny.
+ - Today’s endorsement by President Barack Obama of the creation of a Hamas-led Palestinian state based on the pre-1967 borders signals the most egregious foreign policy decision his administration has made to date.
+ - Conservatives understand that the power that binds our republic together is fierce independence held high on the shoulders of compassion.
+ - But when I look at the fact that today is 1,000 days that we have not had a budget for the United States of America, you know, the House, one of the things we did, we passed a budget last year. But that is still sitting over there at the Senate. And so we have got to get this country back on track.
+
+66 quotes

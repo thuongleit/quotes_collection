@@ -1,0 +1,22 @@
+ - It is not your environment, it is you- the quality of your mind, the integrity of your soul and the determination of your will that will decide your future and shape your life.
+ - It must be borne in mind that the tragedy of life doesn’t lie in not reaching your goal. The tragedy lies in having no goals to reach.
+ - You have the ability, now apply yourself.
+ - The tragedy of life is not found in failure but complacency. Not in you doing too much, but doing too little. Not in you living above your means, but below your capacity. It’s not failure but aiming too low, that is life’s greatest tragedy.
+ - Every man and woman is born into the world to do something unique and something distinctive and if he or she does not do it, it will never be done.
+ - He who starts behind in the great race of life must forever remain behind or run faster than the man in front.
+ - A child must learn early to believe that she is somebody worthwhile, and that she can do many praiseworthy things.
+ - It isn’t a disgrace not to reach the stars, but it is a disgrace to have no stars to reach for.
+ - The tragedy of this life is not failure, but low aim.
+ - Honest communication is built on truth and integrity and upon respect of the one for the other.
+ - It isn’t a calamity to die with dreams unfulfilled, but it is a calamity not to dream.
+ - It isn’t more light we need, it isn’t more truth, and it isn’t more scientific data. It is more Christ, more courage, more spiritual insight to act on the light we have.
+ - Whatever you do, do it so well that people looking on will feel that the task was reserved especially for you by God Himself.
+ - We, today, stand on the shoulders of our predecessors who have gone before us. We, as their successors, must catch the torch of freedom and liberty passed on to us by our ancestors. We cannot lose in this battle.
+ - In this perilous world, if a black boy wanted to live a halfway normal life and die a natural death he had to learn early the art of how to get along with white folks.
+ - The tragedy lies in having no goal to reach.
+ - Man is what his dreams are.
+ - If what is communicated is false, it can hardly be called communication.
+ - Many well-meaning intelligent people have argued since the May 17, 1954, decision of the United States Supreme Court outlawing segregation in the public schools that communication between the races has broken down.
+ - The creation of the spiritual was no accident. It was a creation born of necessity, so that the slave might more adequately adjust himself to the conditions of the New World.
+
+20 quotes

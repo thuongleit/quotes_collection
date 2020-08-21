@@ -1,0 +1,22 @@
+ - A man who works with his hands is a laborer; a man who works with his hands and his brain is a craftsman; but a man who works with his hands and his brain and his heart is an artist.
+ - True religion is the life we lead, not the creed we profess.
+ - Where there is no difference, there is only indifference.
+ - I know of no higher fortitude than stubborness in the face of overwhelming odds.
+ - Preparation is the be-all of good trial work. Everything else – felicity of expression, improvisational brilliance – is a satellite around the sun. Thorough preparation is that sun.
+ - Yes, there’s such a thing as luck in trial law but it only comes at 3 o’clock in the morning. You’ll still find me in the library looking for luck at 3 o’clock in the morning.
+ - Words of comfort, skillfully administered, are the oldest therapy known to man.
+ - The best reply to an atheist is to give him a good dinner and ask him if he believes there is a cook.
+ - When a man points a finger at someone else, he should remember that four of his fingers are pointing at himself.
+ - A graceful taunt is worth a thousand insults.
+ - A beautiful lady is an accident of nature. A beautiful old lady is a work of art.
+ - Books are standing counselors and preachers, always at hand, and always disinterested; having this advantage over oral instructors, that they are ready to repeat their lesson as often as we please.
+ - A fine artist is one who makes familiar things new and new things familiar.
+ - A speaker who does not strike oil in ten minutes should stop boring.
+ - In cross examination, as in fishing, nothing is more ungainly than a fisherman pulled into the water by his catch.
+ - Luck usually visits me at 2 am on a cold morning when, red-eyed and bone-weary, I am pouring over law books preparing a case. It never visits me when I am at the cinema, on a golf course or reclining in an easy chair.
+ - Some people will believe anything if you whisper it to them.
+ - A man’s life is colored by the dye of his imagination.
+ - Education is not the accumulation of knowledge, but the ability to find it.
+ - Oh, I get lucky a lot. I get lucky at four in the morning in the law library.
+
+20 quotes

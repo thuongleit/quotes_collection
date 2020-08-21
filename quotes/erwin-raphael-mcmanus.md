@@ -1,0 +1,97 @@
+ - We can’t change history, but we can create the future.
+ - You are both a work of art and an artist at work.
+ - The future awaits those with the courage to create it.
+ - God gives God-sized dreams to people with God-shaped hearts.
+ - A life well lived is the most exquisite work of art.
+ - I think a lot of us are not on a path; we’re in a rut. We have confused comfort with peace, belief with faith, safety with wisdom, wealth with blessing, and existence with life.
+ - You cannot wash the feet of a dirty world if you refuse to touch it.
+ - We were created to be expressions of the goodness and wholeness of God.
+ - Talent doesn’t win. Hard work, determination, and character wins. If you root your talent and ability in those things, then you have a powerful combination.
+ - It is amazing where God will take you when you are willing to follow. Life is full of surprises when we choose mystery over security.
+ - When you live your life knowing the mission and calling and voice of God in your soul and you know where that compass is driving you forward, you will become a rare commodity in a world searching for direction.
+ - Within a moment there is monumental potential. That is the mystery of a moment. It is small enough to ignore and big enough to change your life forever.
+ - The history of God’s people is not a record of God searching for courageous men and women who could handle the task, but God transforming the hearts of cowards and calling them to live courageous lives.
+ - Greatness comes with discipline.
+ - Behind real freedom, there lies discipline.
+ - Love never comes without wounds; faith never comes without failure.
+ - We need both to aspire and accomplish. Without a vision for your life, without a sense of purpose, you will begin to die a slow death.
+ - The world doesn’t need more great leaders, it needs more great people who lead.
+ - You are an artist. What work of art will you leave behind?
+ - If you were meant to fly, not even running really fast is that impressive.
+ - Your soul craves truth, beauty, wonder, love. Your soul craves to dream, to imagine, and even simply to understand. Your soul craves to connect, to commune, to create.
+ - Humility is not about having a low self-image or poor self-esteem. Humility is about self-awareness.
+ - When we stop believing the world can become a better place, when we stop caring about the lives and conditions of others, we lose a part of ourselves.
+ - We may not be able to accomplish everything we can dream, but we will not accomplish anything without our dreams.
+ - Gratitude changes your perspective about life. You see the future, experience the present, and remember the past in a dramatically different way.
+ - Courage is not the absence of fear; it is the absence of self.
+ - Home is ultimately not about a place to live but about the people with whom you are most fully alive. Home is about love, relationship, community, and belonging, and we are all searching for home.
+ - Jesus is being lost in a religion bearing his name.
+ - It is insanity to run from God and search for love.
+ - Deeper than our instinct to live is our longing to be alive.
+ - Problems, obstacles, and challenges can either become the markers of our limits and limitations, or they can become the springboard into a whole new world.
+ - I think Christianity is the same as Buddhism and Hinduism – whenever a religion begins to say that these are the things you have to do to be loved by God, you have a religion.
+ - How in the world could you ever imagine a life of faith that does not require risk? Faith and risk are inseparable.
+ - To live outside of God’s will puts us in danger; to live in his will makes us dangerous.
+ - We are all time voyagers leaving history in our wake, pioneering into the future.
+ - The shape of your character is the shape of your future.
+ - We have to ask ourselves, ‘Am I really trying to discern God’s will, or determine whether I want to do it?’
+ - When we lack integrity, we use power to control. When we lead with integrity, we use power to bless.
+ - Is it possible that the creative act is simply the materialization of the future- making the invisible, visible?
+ - We are all hypocrites in transition. I am not who I want to be, but I am on the journey there, and thankfully I am not whom I used to be.
+ - Jesus did not have a value for prayer for prayer’s sake. He had a value for the intimate communion between God and man.
+ - The fuel of ambition is not the problem; it is the focus of ambition that frees or betrays us.
+ - The journey to freedom is paved by the substance of our character.
+ - The limitations you are willing to accept establish the boundaries of your existence.
+ - Your dreams are the product of your longings, a portrait of your potential, and a promise of your future.
+ - You’re not supposed to die with your potential. A life well lived squeezes all the potential placed within and does something with it.
+ - When we dwell on the past, we tend to want to live there. When we dream of the future, we want to go there. Our dreams are where God paints a picture of a life waiting to be created.
+ - It’s not your freedom to choose that makes you free. It’s what you choose in that freedom that makes you free.
+ - The most important moments rarely come at a convenient time.
+ - Far too often, when we think we are frightened by mystery, the fact is that we are haunted by history.
+ - Faith is the determination to create with our lives what only our hearts can conceive.
+ - People who are fully alive look out of their minds to those who simply exist.
+ - My goal is to destroy Christianity.
+ - The person who loves the process has a much greater chance of success than the person who loves the outcome.
+ - Whoever tells the best story shapes the culture.
+ - This thing that haunts you, that never seems satisfied, the cravings in your soul that you are unable to satiate through all the success that the world can bring this is your soul screaming for God.
+ - How is it, that for many of us, being a good Christian is nothing more than being a good person? The entire focus of our faith has been the elimination of sin, which is important but inadequate; rather than the unleashing of a unique, original, extraordinary, wonderfully untamed, faith.
+ - In some sense we are all hypocrites in transition.
+ - A world without God cannot wait for us to choose the safe path. If we wait for someone else to take the risk, we risk that no one will ever act and that nothing will ever be accomplished.
+ - Jesus beckons his followers to a path that’s far from the easy road. It’s a path filled with adventure, uncertainty, and unlimited possibilities – the only path that can fulfill the deepest longings and desires of your heart.
+ - If God imagined you at birth, what makes you think He’s stopped imagining you now.
+ - I realize that I live on the bubble of insanity. I feel the weight of human suffering, loneliness and despair on me all the time. It’s not getting easier; if anything, it’s always right on the edge of my skin.
+ - The epicenter of creativity and imagination should be the Church, reflecting the character and glory of God.
+ - When the church becomes an institution, people are nothing more than volunteers to be recruited. When the church is a movement, our stewardship becomes the unleashing of our God-given gifts, talents, and passions.
+ - The greatest enemy to the movement of Jesus Christ is Christianity.
+ - Sin creates the illusion of freedom. In the end it fools us into seeking freedom from God rather than finding freedom in God.
+ - Attitude is an accurate monitor of where we fall on the spectrum of pride and humility.
+ - Two thousand years ago, God started a revolt against the religion He started. So don’t ever put it past God to cause a groundswell movement against churches and Christian institutions that bear His name.
+ - The church does not exist for us. We are the church, and we exist for the world.
+ - It is not balance you need but adaptability.
+ - All the evidence you need to prove God is waiting within you to be discovered.
+ - I have so much confidence in the reality of Jesus that I feel no pressure to try to make people act or be a certain way. I’m banking everything on the fact that God actually changes people.
+ - Great dreams require great courage.
+ - You need to remember who God is, forget the painful wounds and let Him renew you.
+ - Our citizenship is in eternity; history is our temporary residence.
+ - If our children are going to walk away from Christ, we need to raise them in such a way that they understand that to walk away from Jesus is to walk away from a life of faith, risk and adventure and to choose a life that boring, mundane and ordinary.
+ - The Christian faith grew through story – not text. Only later did the stories become Scripture. While the Scripture must be held in the highest regard, we must not neglect the power of story.
+ - God clarifies in the midst of obedience, not beforehand.
+ - It is amazing how much we can endure when we are convinced there is a purpose to our struggle.
+ - When you’re passionate about God, you can trust your passions.
+ - Truth should never travel faster than love.
+ - What is the future you’re creating right now?
+ - When you begin to create the life of your dreams – or maybe better stated, when you begin to live the life that God dreams for you – you take responsibility to prepare for the future.
+ - Courage frees us from the fears that would rob us of life itself.
+ - Religion as a whole specializes in sin management. It’s all about organizing humanity in such a way that we cause as little damage as possible.
+ - You can plant a church and grow a church. That’s not that hard to do, but it’s harder to be a viable source of transformation in a city or your time or space.
+ - To be apathetic is literally to be without passion.
+ - Churches all over the country have decided they love their traditions more than their children.
+ - I guess when I really think about it, God’s voice sounds a lot like my voice.
+ - A person God himself deems as wise is one who not only hears His voice, but immediately begins to act upon His instruction.
+ - The first and most important step in the process of becoming genuinely is to be once again authenticated by the original designer.
+ - True religion always moves us to serve others and to give our lives to see those oppressed find freedom.
+ - The real measure of our power is the freedom and opportunity we create for others.
+ - It’s a wonderful thing when you look inside your own heart and like what you see.
+ - I refused to let go of what I had.
+
+95 quotes

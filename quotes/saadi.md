@@ -1,0 +1,158 @@
+ - Have patience. All things are difficult before they become easy.
+ - How do I get to Carnegie Hall? Practice. Practice. Practice.
+ - If a gem falls into mud it is still valuable. If dust ascends to heaven, it remains valueless.
+ - All human beings are limbs of the same body. God created them from the same essence. If one part of the body suffers pain, then the whole body is affected. If you are indifferent to this pain, you cannot be called a human being.
+ - Ants, fighting together, will vanquish the lion.
+ - Religion is only in the service of the people; it is not in the rosary and the prayer-carpet.
+ - Forgiveness is commendable, but apply not ointment to the wound of an oppressor.
+ - Whatever makes an impression on the heart seems lovely in the eye.
+ - A grateful dog is better than an ungrateful man.
+ - The sons of Adam are limbs of each other, Having been created of one essence. When the calamity of time affects one limb, the other limbs cannot remain at rest. If you have no sympathy for the troubles of others, You are unworthy to be called by the name of a human.
+ - The world is not a courtroom There is no judge no jury no plaintiff. This is a caravan filled with eccentric beings telling wondrous stories about God.
+ - The remedy against want is to moderate your desires.
+ - Patience accomplishes its object, while hurry speeds to its ruin.
+ - I fear God the most, but after Him, I fear those who don’t fear Him.
+ - A man is insensible to the relish of prosperity until he has tasted adversity.
+ - Make no friendship with an elephant keeper If you have no room to entertain an elephant.
+ - You who feel no pain at the suffering of others It is not fitting for you to be called human.
+ - Whoever interrupts the conversation of others to make a display of his fund of knowledge, makes notorious his own stock of ignorance.
+ - Of journeying the benefits are many: the freshness it bringeth to the heart, the seeing and hearing of marvelous things, the delight of beholding new cities, the meeting of unknown friends, and the learning of high manners.
+ - Shut the door of that house of pleasure which you hear resounding with the loud voice of a woman.
+ - Every leaf of the tree becomes a page of the book, once the heart is opened and it has learnt to read.
+ - Joy and sorrow, beauty and deformity, equally pass away.
+ - O Contentment, make me rich! for without thee there is no wealth.
+ - The sons of Adam are formed from dust; if not humble as the dust, they fall short of being men.
+ - Use a sweet tongue, courtesy, and gentleness, and thou mayest manage to guide an elephant by a hair.
+ - However much you are read in theory, if thou hast no practice thou art ignorant.
+ - Publish not men’s secret faults, for by disgracing them you make yourself of no repute.
+ - Be not in the desire of thine own ease.
+ - I fear God and next to God I mostly fear them that fear him not.
+ - A wise man among the ignorant is as a beautiful girl in the company of blind men.
+ - It’s no virtue to gain the whole world. Just gain the heart of one person.
+ - Whoever gives advice to a heedless man is himself in need of advice.
+ - Whoever acquires knowledge but does not practice it is as one who ploughs but does not sow.
+ - Reveal not every secret you have to a friend, for how can you tell but that friend may hereafter become and enemy. And bring not all mischief you are able to upon an enemy, for he may one day become your friend.
+ - A man of virtue, judgment, and prudence speaks not until there is silence.
+ - A traveler without knowledge is a bird without wings.
+ - Tell no one the secret that you want to keep, although he may be worthy of confidence; for no one will be so careful of your secret as yourself.
+ - Better is the sinner who hath thoughts about God, than the saint who hath only the show of sanctity.
+ - The rose and the thorn, and sorrow and gladness are linked together.
+ - Were the diver to think on the jaws of the shark, he would never lay hands on the precious pearl.
+ - No one ever sowed the grain of generosity who gathered not up the harvest of the desire of his heart.
+ - The heart is like a musical instrument of many strings, all the chords of which require putting in harmony.
+ - There is no great difficulty to separate the soul from the body, but it is not so easy to restore life to the dead.
+ - An enemy to whom you show kindness becomes your friend.
+ - The rose and thorn, the treasure and dragon, joy and sorrow, all mingle into one.
+ - Two orders of mankind are the enemies of church and state; the king without clemency, and the holy man without learning.
+ - The best loved by God are those that are rich, yet have the humility of the poor, and those that are poor and have the magnanimity of the rich.
+ - Avoid that which an enemy tells you to do; for if you follow his advice, you will smite your, knees with the hand of sorrow. If he shows you a road straight as an arrow, turn from it and go the other way.
+ - The true disciple should aim to live for the gospel, rather than to die for it.
+ - Virtue is in the mind, not in the appearance.
+ - To pardon the oppressor is to deal harshly with the oppressed.
+ - That sorrow which is the harbinger of joy is preferable to the joy which is followed by sorrow.
+ - The whelp of a wolf must prove a wolf at last, notwithstanding he may be brought up by a man.
+ - Do good even to the wicked; it is as well to shut a dog’s mouth with a crumb.
+ - O wise man, wash your hands of that friend who associates with your enemies.
+ - Kings stand more in need of the company of the intelligent than the intelligent do of the society of kings.
+ - Whatever is produced in haste goes hastily to waste.
+ - Obedience insures greatness, whilst disobedience leads to a repulse. Whosoever possesseth the qualities of righteousness placeth his head on the threshold of obedience.
+ - A peace-mingling falsehood is preferable to a mischief-stirring truth.
+ - Be thou good thyself, and let people speak evil of thee; it is better than to be wicked, and that they should consider thee as good.
+ - Wherever the tree of beneficence takes root, it sends forth branches beyond the sky!
+ - If thou tellest the sorrows of thy heart, let it be to him in whose countenance thou mayst be assured of prompt consolation.
+ - Take care how you listen to the voice of the flatterer, who, in return for his little stock, expects to derive from you considerable advantage. If one day you do not comply with his wishes, be imputes to you two hundred defects instead of perfections.
+ - Great God, have pity on the wicked, for thou didst everything for the good, when thou madest them good!
+ - In the faculty of speech man excels the brute; but if thou utterest what is improper, the brute is they superior.
+ - He taught people with his best way. He showed his beauty. He was all good so peace be on him and his family.
+ - The wise man tells not what he knows. It is not prudent to sport with one’s head by revealing the king’s secrets.
+ - To the eye of enmity virtue appears the ugliest blemish.
+ - The severity of the master is more useful than the indulgence of the father.
+ - He who is indifferent to the suffering of others is a traitor to that which is truly human.
+ - Anger that has no limit causes terror, and unseasonable kindness does away with respect. Be not so severe as to cause disgust, nor so lenient as to make people presume.
+ - Do to me, O Allah, what is worthy of Thee; And not what is worthy of me.
+ - Riches are intended for the comfort of life, and not life for the purpose of hoarding riches.
+ - Court the society of a superior, and make much of the opportunity; for in the company of an equal thy good fortune must decline.
+ - People are crying up the rich and variegated plumage of the peacock, and he is himself blushing at the sight of his ugly feet.
+ - The bad fortune of the good turns their faces up to heaven; the good fortune of the bad bows their heads down to the earth.
+ - Be not so severe as to cause shyness, nor so clement as to encourage boldness.
+ - He who is intoxicated with wine will be sober again in the course of the night, but he who is intoxicated by the cupbearer will not recover his senses until the day of judgement.
+ - The covetous map explores the whole world in pursuit of a subsistence, and fate is close at his heels.
+ - God gives sleep to the bad, in order that the good may be undisturbed.
+ - A dog will never forget the crumb thou gavest him, though thou mayst afterwards throw a hundred stones at his head.
+ - Take care what you say before a wall, as you cannot tell who may be behind it.
+ - I have never seen a man lost who was on a straight path.
+ - The bird alighteth not on the spread net when it beholds another bird in the snare. Take warning by the misfortunes of others, that others may not take example from you.
+ - Holiness comes by holy deeds. Not starving flesh of daily needs.
+ - Roam abroad in the world, and take thy fill of its enjoyments before the day shall come when thou must quit it for good.
+ - That which is not allotted the hand cannot reach; what is allotted you will find wherever you may be.
+ - A little and a little, collected together, becomes a great deal; the heap in the barn consists of single grains, and drop and drop make the inundation.
+ - When thou seest thine enemy in trouble, curl not thy whiskers in contempt; for in every bone there is marrow, and within every jacket there is a man.
+ - Oh God, I say not hear my prayers! I say: Blot with forgiving pen my sins away!
+ - When a man appreciates only eating and sleeping, what excellence has he over the reptiles?
+ - Pride thyself on what virtue thou hast, and not on thy parentage.
+ - But for the cravings of the belly not a bird would have fallen into the snare; nay, nay, the fowler would not have spread his net. The belly is chains to the hands and fetters to the feet. He who is a slave to his belly seldom worships God.
+ - When the ruler is obedient to God, God is his protector and friend.
+ - God preserve us! If men knew what is done in secret, no one would be free from the interference of others.
+ - Whenever you argue with another wiser than yourself in order that others may admire your wisdom, they will discover your ignorance.
+ - A little beauty is preferable to much wealth.
+ - To be over much facetious is the accomplishment of courtiers and blemish of the wise.
+ - Expose not the secret failings of mankind, otherwise you must verily bring scandal upon them and distrust upon yourself.
+ - However much you study, you cannot know without action. A donkey laden with books is neither an intellectual nor a wise man. Empty of essence, what learning has he whether upon him is firewood or book?
+ - When the belly is empty, the body becomes spirit; and when it is full, the spirit becomes body.
+ - To tell a falsehood is like the cut of a saber: for though the wound may heal, the scar of it will remain.
+ - So long as money can answer, it were wrong in any business to put the life in danger.
+ - Now that another is suffering pain at thy hand, trust not that thy heart shall be exempt from affliction.
+ - The sea does not contain all the pearls, the earth does not enclose all the treasures, and the flint-stone does not inclose all the diamonds, since the head of man encloses wisdom.
+ - If a piece of worthless stone can bruise a cup of gold, its worth is not increased, nor that of the gold diminished.
+ - Nothing is so good for an ignorant man as silence; and if he was sensible of this he would not be ignorant.
+ - Poverty snatches the reins out of the hand of piety.
+ - Whenever thy hand can reach it, tear out the foe’s brain, for such an opportunity washes anger from the mind.
+ - Obedience is not truly performed by the body of him whose heart is dissatisfied. The shell without a kernel is not fit for store.
+ - He who is a slave to his stomach seldom worships God.
+ - Much contention and strife will arise in that house where the wife shall get up dissatisfied with her husband.
+ - It is wrong to follow the advice of an adversary; nevertheless it is right to hear it, that you may do the contrary; and this is the essence of good policy.
+ - It is safer to be silent than to reveal one’s secret to any one, and telling him not to mention it.
+ - If wisdom was to cease throughout the world, no one would suspect himself of ignorance.
+ - It is better to break off a thousand friendships, than to endure the sight of a single enemy.
+ - He who, when he hath the power, doeth not good, when he loses the means will suffer distress. There is not a more unfortunate wretch than the oppressor; for in the day of adversity nobody is his friend.
+ - The greedy man is incontent with a whole world set before him.
+ - Liberty is of more value than any gifts; and to receive gifts is to lose it. Be assured that men most commonly seek to oblige thee only that they may engage thee to serve them.
+ - The hand of liberality is stronger than the arm of power.
+ - Where the hand of tyranny is long we do not see the lips of men open with laughter.
+ - None can be so true to your secret as yourself.
+ - Oman overall has great animal and plant biodiversity because it has mountains, desert, coastal areas and rich coral reefs.
+ - If thou covetest riches, ask not but for contentment, which is an immense treasure.
+ - Be generous, and pleasant-tempered, and forgiving; even as God scatter favors over thee, do thou scatter over the people.
+ - When you see contention amongst your enemies, go and sit at ease with your friends; but when you see them of one mind, string your bow, and place stones upon the ramparts.
+ - Inflict not on an enemy every injury in your power, for he may afterwards become your friend.
+ - A tree, freshly rooted, may be pulled up by one man on his own. Give it time, and it will not be moved, even with a crane.
+ - If thou art of elephant-strength or of lion-claw, still peace is, in my opinion, better than strife.
+ - There is a difference between him who claspeth his mistress in his arms, and him whose eyes are fixed on the door expecting her.
+ - Capacity without education is deplorable, and education without capacity is thrown away.
+ - Whoever has his foe at his mercy, and does not kill him, is his own enemy.
+ - If thou art wise, incline to truth; for truth, not the semblance, remains in its place.
+ - Man is, beyond dispute, the most excellent of created beings, and the vilest animal is a dog; but the sages agree that a grateful dog is better than an ungrateful man.
+ - The stranger has no friend, unless it be a stranger.
+ - A lovely face is the solace of wounded hearts and the key of locked-up gates.
+ - No reliance can be placed on the friendship of kings, nor vain hope put in the melodious voice of boys; for that passes away like a vision, and this vanishes like a dream.
+ - He who lives upon the fruit of his own labor, escapes the contempt of haughty benefactors.
+ - A friend whom you have been gaining during your whole life, you ought not to be displeased with in a moment. A stone is many years becoming a ruby – take care that you do not destroy it in an instant against another stone.
+ - Most of the birds of the Old World can be found here, as Oman is on a strategic route for migrating birds.
+ - To him who is stinted of food a boiled turnip will relish like a roast fowl.
+ - Be sure, either that thou art stronger than thine enemy, or that thou hast a swifter pair of heels.
+ - Fear not the proud and the haughty; fear rather him who fears God.
+ - Better hold the hand for coin, though small, Than lose, for one half a dang, it all.
+ - Though someday we may become as eloquent as Sahban, but we might also miss the essence of the Forgiving One.
+ - He will deal harshly by a stranger who has not been himself often a traveller or stranger.
+ - To use the hands in making quicklime into mortar is better than to cross them on the breast in attendance on a prince.
+ - Independence is of more value than any gifts; and to receive gifts is to lose it.
+ - The rich man is everywhere expected and at home.
+ - Whoever recounts to you the faults of your neighbour will doubtless expose your defects to others.
+ - He who learns the rules of wisdom, without conforming to them in his life, is like a man who labored in his fields, but did not sow.
+ - That knave preserves the pearl in his purse who considers all people purse-cuts.
+ - When a mean wretch cannot vie with another in virtue, out of his wickedness he begins to slander. The abject envious wretch will slander the virtuous man when absent, but when brought face to face his loquacious tongue becomes dumb.
+ - All is going well so far. There are some remarks here and there and there are some complaints here and there but we expect to resolve those questions or complaints Sunday and the next day.
+ - Every person thinks his own intellect perfect, and his own child handsome.
+ - I have often found a small stream at its fountain-head, that, when followed up, carried away the camel with his load.
+
+156 quotes

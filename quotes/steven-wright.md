@@ -1,0 +1,425 @@
+ - If at first you don’t succeed, destroy all evidence that you tried.
+ - I’d kill for a Nobel Peace Prize.
+ - Monday is an awful way to spend 1/7 of your life.
+ - If at first you don't succeed then skydiving definitely isn’t for you.
+ - The early bird gets the worm, but the second mouse gets the cheese.
+ - Support bacteria – they’re the only culture some people have.
+ - I’m writing a book. I’ve got the page numbers done.
+ - It’s like the Wild West, the Internet. There are no rules.
+ - To steal ideas from one person is plagiarism; to steal from many is research.
+ - You can’t have everything. Where would you put it?
+ - If toast always lands butter-side down, and cats always land on their feet, what happens if you strap toast on the back of a cat and drop it?
+ - If everything seems to be going well, you have obviously overlooked something.
+ - Everywhere is walking distance if you have the time.
+ - I intend to live forever. So far, so good.
+ - 43.7 per cent of all statistics are made up on the spot.
+ - I couldn’t repair your brakes, so I made your horn louder.
+ - When everything’s coming your way, you’re in the wrong lane.
+ - Depression is merely anger without enthusiasm.
+ - Experience is something you don’t get until just after you need it.
+ - Whenever I think of the past, it brings back so many memories.
+ - Five out of four people have trouble with fractions.
+ - I have a paper cut from writing my suicide note. It’s a start...
+ - If you must choose between two evils, pick the one you’ve never tried before.
+ - I have a large sea shell collection which I keep scattered on beaches all over the world. Maybe you’ve seen it.
+ - If you saw a heat wave, would you wave back?
+ - If a man says something in the woods and there are no women there, is he still wrong?
+ - The speed of time is one second per second.
+ - Eagles may soar, but weasels don’t get sucked into jet engines.
+ - You know when you’re sitting on a chair and you lean back so you’re just on two legs and you lean too far so you almost fall over but at the last second you catch yourself? I feel like that all the time...
+ - I have an inferiority complex, but it’s not a very good one.
+ - I busted a mirror and got seven years bad luck, but my lawyer thinks he can get me five.
+ - Light travels faster than sound. Isn’t that why people appear bright before you hear them speak?
+ - I heard that in relativity theory, space and time are the same thing. Einstein discovered this when he kept showing up three miles late for his meetings.
+ - I can picture in my mind a world without war, a world without hate. And I can picture us attacking that world, because they’d never expect it.
+ - OK, so what’s the speed of dark?
+ - The sun never sets on the British Empire. But it rises every morning. The sky must get awfully crowded.
+ - What’s another word for Thesaurus?
+ - Why doesn’t Tarzan have a beard? Why doesn’t glue stick to the inside of the bottle?
+ - On the other hand, you have different fingers.
+ - I went to a general store but they wouldn’t let me buy anything specific.
+ - If it’s zero degrees outside today and it’s supposed to be twice as cold tomorrow, how cold is it going to be?
+ - How come abbreviated is such a long word?
+ - Why do scientists call it research when looking for something new?
+ - The best kind of friend is the kind you sit with, never say a word and walk away feeling like it was the best conversation you ever had.
+ - I just got lost in thought. It was unfamiliar territory.
+ - When I turned two I was really anxious, because I’d doubled my age in a year. I thought, if this keeps up, by the time I’m six I’ll be ninety.
+ - If it’s a penny for your thoughts and you put in your two cents worth, then someone, somewhere is making a penny.
+ - My theory of evolution is that Darwin was adopted.
+ - I wish the first word I ever said was the word quote, so right before I die I could say unquote.
+ - I Xeroxed a mirror. Now I have an extra Xerox machine.
+ - No one is listening until you make a mistake.
+ - I saw a subliminal advertising executive, but only for a second.
+ - Do Lipton employees take coffee breaks?
+ - Does fuzzy logic tickle?
+ - It’s a small world, but I wouldn’t want to have to paint it.
+ - What a nice night for an evening.
+ - I have an existential map. It has ‘You are here’ written all over it.
+ - There’s a fine line between fishing and just standing on the shore like an idiot.
+ - I just have a relationship with my imagination. It’s like my friend, almost.
+ - I almost had a psychic girlfriend but she left me before we met.
+ - Why are there interstate highways in Hawaii?
+ - Why is it, when a door is open it’s ajar, but when a jar is open, it’s not a door?
+ - It is like putting a dehumidifier and a humidifier in the same room and letting them fight it out.
+ - Last night I stayed up late playing poker with Tarot cards. I got a full house and four people died.
+ - I think it’s wrong that only one company makes the game Monopoly.
+ - Half the people you know are below average.
+ - The other night I came home late, and tried to unlock my house with my car keys. I started the house up. So, I drove it around for a while. I was speeding, and a cop pulled me over. He asked where I lived. I said, “Right here, officer.”
+ - If you tell a joke in the forest, but nobody laughs, was it a joke?
+ - A fool and his money are soon partying.
+ - Tell a man that there are 400 billion stars and he’ll believe you. Tell him a bench has wet paint and he has to touch it.
+ - Consciousness: That annoying time between naps.
+ - Smoking cures weight problems, eventually.
+ - I play the harmonica. The only way I can play is if I get my car going really fast, and stick it out the window.
+ - Plan to be spontaneous tomorrow.
+ - Everyone has a photographic Memory, some just don’t have film.
+ - My dental hygienist is cute. Every time I visit, I eat a whole package of Oreo cookies while waiting in the lobby. Sometimes she has to cancel the rest of the afternoon’s appointments.
+ - 99% of lawyers give the rest a bad name.
+ - I went to San Francisco. I found someone’s heart.
+ - I bought a house on a one-way dead-end road. I don’t know how I got there.
+ - If heat rises, then heaven must be hotter than hell.
+ - I washed a sock. Then I put it in the dryer. When I took it out, it was gone.
+ - I took a lie detector test the other day. No, I didn’t.
+ - Why are there five syllables in the word “monosyllabic”?
+ - Why isn’t the word “phonetically” spelled with an “f”?
+ - I just got this new camera. It’s very advanced – you don’t even need it.
+ - My nephew has HDADHD. High Definition Attention Deficit Disorder. He can barely pay attention, but when he does it’s unbelievably clear.
+ - In a lot of ways, success is much harder than I thought it would be. I figured that you’d get here and then everything would be happily ever after. But, it’s hard work, almost harder once you’re successful because you’ve got to maintain it.
+ - When I was in boy scouts, I slipped on the ice and hurt my ankle. A little old lady had to help me across the street.
+ - I hooked up my accelerator pedal in my car to my brake lights. I hit the gas, people behind me stop, and I’m gone.
+ - In school, every period ends with a bell. Every sentence ends with a period. Every crime ends with a sentence.
+ - I went to the hardware store to buy some batteries, but they weren’t included, so I had to buy them again.
+ - I planted some bird seed. A bird came up. Now I don’t know what to feed it.
+ - I was reading the dictionary. I thought it was a poem about everything.
+ - Do you have any toy train schedules?
+ - I tried to hang myself with a bungee cord. I kept almost dying.
+ - Winny and I lived in a house that ran on static electricity. If you wanted to run the blender, you had to rub balloons on your head. If you wanted to cook, you had to pull off a sweater real quick.
+ - I met this wonderful girl at Macy’s. She was buying clothes and I was putting Slinkies on the escalator.
+ - I washed mud off of mud.
+ - If a tree falls in the forest and no one is around to see it, do the other trees make fun of it?
+ - My friend Sally is a nudist. I went to her house. The closets have no doors. The walls are covered with see-through wallpaper.
+ - Black holes result from God dividing the universe by zero.
+ - I went to the museum where they had all the heads and arms from the statues that are in all the other museums.
+ - I’m a peripheral visionary.
+ - Why don’t they make the whole plane out of that black box stuff.
+ - I drive way too fast to worry about cholesterol.
+ - If man evolved from monkeys and apes, why do we still have monkeys and apes?
+ - They say the universe is expanding. That should help with the traffic.
+ - I put a new engine in my car, but forgot to take the old one out. Now my car goes 500 miles per hour. The harmonica sounds amazing.
+ - Cross country skiing is great if you live in a small country.
+ - If lawyers are disbarred and clergymen defrocked, doesn’t it follow that electricians can be delighted, musicians denoted, cowboys deranged, models deposed, tree surgeons debarked, and dry cleaners depressed?
+ - It was the first time I was ever in love, and I learned a lot. Before that I’d never even thought about killing myself.
+ - Yesterday, my eyeglass prescription ran out.
+ - I rented a lottery ticket. I won a million dollars. But I had to give it back.
+ - If I melt dry ice, can I swim without getting wet?
+ - Sometimes I wish my first word was ‘quote,’ so that on my death bed, my last words could be ‘end quote.’
+ - I was once walking through the forest alone. A tree fell right in front of me – and I didn’t hear it.
+ - I was trying to daydream, but my mind kept wandering.
+ - What would a chair look like if your knees bent the other way?
+ - Why isn’t the number 11 pronounced onety one?
+ - Some friends of mine got me a sweater for my birthday. I’d have preferred a moaner or a screamer, but the sweater was OK.
+ - I love eating chocolate cake and ice cream after a show. I almost justify it in my mind as, ‘You were a good boy onstage and you did your show, so now you can have some cake and ice cream.’
+ - The hardness of the butter is proportional to the softness of the bread.
+ - Why doesn’t the fattest man in the world become a hockey goalie?
+ - I went to a bookstore and asked the saleswoman, ‘Where’s the self-help section?’ She said if she told me, it would defeat the purpose.
+ - I bought my brother some gift-wrap for Christmas. I took it to the gift wrap department and told them to wrap it, but in a different print so he would know when to stop unwrapping.
+ - I used to have an open mind but my brains kept falling out.
+ - When I die, I’m leaving my body to science fiction.
+ - My house is made out of balsa wood, so when I want to scare the neighborhood kids I lift it over my head and tell them to get out of my yard or I’ll throw it at them.
+ - I put instant coffee in a microwave oven and almost went back in time.
+ - My socks DO match. They’re the same thickness.
+ - Last night I played a blank tape at full blast. The mime next door went nuts.
+ - For my sister’s 50th birthday, I sent her a singing mammogram.
+ - Always try to be modest, and be proud of it!
+ - People may think I’m trying something new by telling stories, but they’re just jokes connected to give the illusion of stories. But really, I just continue using my imagination and creating. That’s what I do.
+ - The sky is falling. No, I’m tipping over backwards.
+ - I’m moving to Mars next week, so if you have any boxes...
+ - If a cow laughed, would milk come out her nose?
+ - You know how it is when you’re walking up the stairs, and you get to the top, and you think there’s one more step? I’m like that all the time.
+ - It doesn’t matter what temperature the room is, it’s always room temperature.
+ - I’m a psychic amnesiac. I know in advance what I’ll forget.
+ - I’m addicted to placebos. I could quit, but it wouldn’t matter.
+ - I feel very lucky to make a living from my imagination; I’m very grateful for that. I like that what I do is create. I’m feeling very lucky to have had the career I had. It’s gone much longer and bigger than I ever thought it would be.
+ - I have a fax machine with “fax waiting”.
+ - Sponges grow in the ocean. That just kills me. I wonder how much deeper the ocean would be if that didn’t happen.
+ - I don’t like politicians, and I don’t like politics. I definitely don’t want to be associated with any of them.
+ - All those who believe in psychokinesis – raise my hand.
+ - If you were going to shoot a mime, would you use a silencer?
+ - I was arrested for lip-syncing karaoke.
+ - When I was in school the teachers told me practice makes perfect; then they told me nobody’s perfect so I stopped practicing.
+ - I replaced the headlights in my car with strobe lights, so it looks like I’m the only one moving.
+ - How can there be self-help groups?
+ - I got this powdered water – now I don’t know what to add.
+ - When I was crossing the border into Canada, they asked if I had any firearms with me. I said, ‘Well, what do you need?’
+ - Last night I fell asleep in a satellite dish. My dreams were broadcast all over the world.
+ - If people from Poland are called Poles, why aren’t people from Holland called Holes?
+ - I was thinking that women should put pictures of missing husbands on beer cans.
+ - Why do we wash bath towels? Aren’t we clean when we use them?
+ - I went to the hardware store and bought some used paint. It was in the shape of a house.
+ - If one synchronised swimmer drowns, do all the rest have to drown too?
+ - I have not lost my mind – it’s backed up on disk somewhere.
+ - I Xeroxed my watch. Now I have time to spare.
+ - My doctor told me I shouldn’t work out until I’m in better shape. I told him, ‘All right; don’t send me a bill until I pay you.’
+ - If its tourist season, why cant we shoot them.
+ - Do Roman paramedics refer to IV’s as ’4’s??
+ - Shin: a device for finding furniture in the dark.
+ - I went to a garage sale. ‘How much for the garage’ ‘It’s not for sale.’
+ - If you take an Oriental person and spin him around several times, does he become disoriented?
+ - I bought some batteries, but they weren’t included.
+ - I just got out of the hospital. I was in a speed-reading accident. I hit a bookmark.
+ - I have two pairs of reading glasses. One pair is for reading fiction, the other for non-fiction. I’ve read the Bible twice wearing each pair, and it’s the same.
+ - If you can’t hear me, it’s because I’m in parentheses.
+ - Do married people live longer than single people or does it just SEEM longer?
+ - Snakes have no arms. That’s why they don’t wear vests.
+ - The Bermuda Triangle got tired of warm weather. It moved to Alaska. Now Santa Claus is missing.
+ - What happens if you get scared half to death twice?
+ - The Stones, I love the Stones. I watch them whenever I can. Fred, Barney...
+ - I look like a casual, laid-back guy, but it’s like a circus in my head.
+ - I saw a man with a wooden leg and a real foot.
+ - My grandfather gave me a watch. It doesn’t have any hands or numbers. He says it’s very accurate. I asked him what time it was. You can guess what he told me.
+ - Having sex with her is incredible. It’s just like a concert. We throw Frisbees around the room. And when she wants more she lights a match.
+ - I’m seeing the world partially through the eyes of a kid. Not all the time. There’s no black and white to it. But sometimes I’m seeing it like I’m 4.
+ - Imagine if birds were tickled by feathers. You’d see a flock of birds come by, laughing hysterically!
+ - My friend Sam has one leg. I went to his house. I couldn’t go up the stairs.
+ - You never really learn to swear until you learn to drive.
+ - The sun got confused about daylight savings time. It rose twice. Everything had two shadows.
+ - The colder the X-ray table, the more of your body is required to be on it.
+ - I saw a sign: “Rest Area 25 Miles”. That’s pretty big. Some people must be really tired.
+ - Should you trust a stockbroker who’s married to a travel agent?
+ - I had my coat hangers spayed.
+ - I bought a self learning record to learn Spanish. I turned it on and went to sleep; the record got stuck. The next day I could only stutter in Spanish.
+ - Why is a person who plays the piano called a pianist but a person who drives a racing car not called a racist?
+ - I’m standing behind a wall of jokes. You don’t know about my personal life, my girlfriends, or what I do when I’m not on the road. There’s this guy, this comedian, and this is how he thinks, but people really don’t know anything about me.
+ - I have all the emotions that everyone has; it just appears that I don’t.
+ - Isn’t Disney World a people trap operated by a mouse?
+ - In my house there’s this light switch that doesn’t do anything. Every so often, I would flick it on and off just to check. Yesterday, I got a call from a woman in Germany. She said ‘cut it out’
+ - Be nice to your children. After all, they are going to choose your nursing home.
+ - I made a chocolate cake with white chocolate. Then I took it to a potluck. I stood in line for some cake. They said, “Do you want white cake or chocolate cake?” I said, “yes.”
+ - Curiosity killed the cat, but for a while I was a suspect.
+ - I kept a diary right after I was born. Day 1: Tired from the move. Day 2: Everyone thinks I’m an idiot.
+ - I went to a restaurant that serves “breakfast at any time” so I ordered French toast during the Renaissance.
+ - If Barbie is so popular, why do you have to buy her friends?
+ - Yesterday I told a chicken to cross the road. It said, “What for?”
+ - One time the power went out in my house and I had to use the flash on my camera to see my way around. I made a sandwich and took fifty pictures of my face. The neighbors thought there was lightning in my house.
+ - Why is the third hand on a watch called a second hand?
+ - A metaphor is like a simile.
+ - Whatever happened to preparations A through G?
+ - My father was a small claims court jester.
+ - My aunt gave me a walkie-talkie for my birthday. She says if I’m good, she’ll give me the other one next year.
+ - The older you get, the more you learn to see what you’ve been taught to see. When you’re a kid, you see what’s there.
+ - I got a new dog. He’s a paranoid retriever. He brings back everything because he’s not sure what I threw him.
+ - If Dracula can’t see his reflection in a mirror, how come his hair is always so neatly combed?
+ - Babies don’t need a vacation. But I still see them at the beach. It pisses me off.
+ - Doing stand-up is like running across a frozen pond with the ice breaking behind you. I love it because it’s dangerous.
+ - Imagine how weird phones would look if your mouth was nowhere near your ears.
+ - I wear my heart on my sleeve. I wear my liver on my pant leg.
+ - Last year I went fishing with Salvador Dali. He was using a dotted line. He caught every other fish.
+ - Even snakes are afraid of snakes.
+ - I went camping and borrowed a circus tent by mistake. I didn’t notice until I got it set up. People complained because they couldn’t see the lake.
+ - I have a quantum car. Every time I look at the speedometer I get lost.
+ - Why do we put suits in a garment bag and put garments in a suitcase?
+ - Hermits have no peer pressure.
+ - I had a friend who was a clown. When he died, all his friends went to the funeral in one car.
+ - Why is it lemon juice contains mostly artificial ingredients but dishwashing liquid contains real lemons?
+ - I couldn’t find the remote control to the remote control.
+ - I went to the fights, and a hockey game broke out.
+ - I finally got around to reading the dictionary. Turns out the Zebra did it.
+ - Why do we wait until a pig is dead to “cure” it?
+ - I turned my air conditioner the other way around and it got cold out. The weatherman said ‘I don’t understand it. It was supposed to be 80 degrees out today.’ I said, oops.
+ - I parked in the tow-away zone, and when I got back, the entire neighborhood was gone.
+ - Drugs may lead to nowhere, but at least it’s the scenic route.
+ - My girlfriend does her nails with white-out. When she’s asleep, I go over there and write misspelled words on them.
+ - Day 1 – Still tired from the move. Day 2 – Everybody talks to me like I’m an idiot.
+ - I broke my arm trying to fold a bed. It wasn’t the kind that folds.
+ - I was in the supermarket the other day, and I met a lady in the aisle where they keep the generic brands. Her name was ’woman.
+ - I invented the cordless extension cord.
+ - I like to reminisce with people I don’t know.
+ - What I like about the jokes, to me it’s a lot of logic, no matter how crazy they are. It has to make absolute sense, or it won’t be funny.
+ - I have an answering machine in my car. It says, I’m home now. But leave a message and I’ll call when I’m out.
+ - I like to skate on the other side of the ice.
+ - When I was a fetus, I used to sneak out at night when my mother was sleeping. I figured I should start stealing stuff while I still had no fingerprints.
+ - Is it true that cannibals don’t eat clowns because they taste funny?
+ - I was in the first submarine. Instead of a periscope, they had a kaleidoscope. “We’re surrounded.”
+ - If the universe is everything, and scientists say that the universe is expanding, what is it expanding into?
+ - Why, in a country of free speech, are there phone bills?
+ - I eat swiss cheese. But I only nibble on it. I make the holes bigger.
+ - I put contact lenses in my dog’s eyes. They had little pictures of cats on them. Then I took one out and he ran around in circles.
+ - I don’t have to walk my dog anymore. I walked him all at once.
+ - I used to work in a fire hydrant factory. You couldn’t park anywhere near the place.
+ - Whose cruel idea was it for the word “lisp” to have an “s” in it?
+ - I saw a want ad. “light housekeeping.” They said “Here, change this bulb.” I said “I’ll need some friends.”
+ - Day One: Still tired from the move.
+ - I used to be an airline pilot. I got fired because I kept locking the keys in the plane. They caught me on an 80 foot stepladder with a coat hanger.
+ - Why do banks charge you a “non-sufficient funds fee” on money they already know you don’t have?
+ - One time a cop pulled me over for running a stop sign. He said, “Didn’t you see the stop sign?” I said, “Yeah, but I don’t believe everything I read”
+ - Do fish get cramps after eating?
+ - If you are sending someone some Styrofoam, what do you pack it in?
+ - To me, comedy is just twisting reality. It’s commenting or observing or twisting life.
+ - A conscience is what hurts when all your other parts feel so good.
+ - They say you’re not supposed to put metal in a microwave oven. They’re right.
+ - Why is the alphabet in that order? Is it because of that song?
+ - How young can you die of old age?
+ - I watched the Indy 500, and I was thinking that if they left earlier they wouldn’t have to go so fast.
+ - I remember when the candle shop burned down. Everyone stood around singing ‘Happy Birthday.’
+ - At one point he decided enough was enough.
+ - What do batteries run on?
+ - Like other kids wanted to become firemen or astronauts, I wanted to make people laugh.
+ - I don’t get up, get dressed, go out, and think, ‘Okay, I gotta find eight jokes.’
+ - Why don’t they just make mouse-flavored cat food?
+ - How much deeper would the ocean be if sponges didn’t live there?
+ - When I was a kid, I never did funny things to get attention. I was never a funny person. I was never, like, ‘Oh, wow. I could say this some day on stage.’
+ - Can you buy an entire chess set in a pawn shop?
+ - Comedians are sociologists. We’re pointing out stuff that the general public doesn’t even stop to think about, looking at life in slow-motion and questioning everything we see.
+ - In Vegas, I got into a long argument with the man at the roulette wheel over what I considered to be an odd number.
+ - I need one of those baby monitors from my subconscious to my consciousness so I can know what the hell I’m really thinking about.
+ - My roommate got a pet elephant. Then it got lost. It’s in the apartment somewhere.
+ - If God dropped acid, would he see people?
+ - I saw a bank that said ‘24 Hour Banking,’ but I don’t have that much time.
+ - Why do they put pictures of criminals up in the Post Office? What are we supposed to do, write to them? Why don’t they just put their pictures on the postage stamps so the postmen can look for them while they deliver the mail?
+ - Clones are people two.
+ - If vegetarians eat vegetables, what do humanitarians eat.
+ - While I was gone, somebody rearranged on the furniture in my bedroom. They put it in exactly the same place it was. When I told my roommate, he said: “Do I know you?”
+ - How do you get off a non-stop flight?
+ - I put tape on the mirrors in my house so I don’t accidentally walk through into another dimension.
+ - I was skydiving horizontally.
+ - All the plants in my house are dead – I shot them last night. I was teasing them by watering them with ice cubes.
+ - If a mute kid swears, should his mother wash his hands with soap?
+ - If all those psychics know the winning lottery numbers, why are they all still working?
+ - I once locked my keys out of my car. I had to break out of my car with a coat hanger.
+ - If you got into a taxi and the driver started driving backward, would the taxi driver end up owing you money?
+ - I didn’t want to be selling insurance at 40, wondering what would it have been like to do stand-up.
+ - I had some eyeglasses. I was walking down the street when suddenly the prescription ran out.
+ - Why do they sterilize needles for lethal injections?
+ - Do you think that when they asked George Washington for ID that he just whipped out a quarter?
+ - I got food poisoning today. I don’t know when I’ll use it.
+ - I got a garage door opener. It can’t close. Just open.
+ - Is boneless chicken considered to be an invertebrate?
+ - When I was five years old I was on a merry go round. There was a gunshot nearby. The horses stampeded. There I was running down the street on a purple wooden horse.
+ - I took a course in speed waiting. Now I can wait an hour in only ten minutes.
+ - I don’t go off and sit down and try to write material, because then it’s contrived and forced. I just live my life, and I see things in a word or a situation or a concept, and it will create a joke for me.
+ - I wear a hat on stage so that people won’t be blinded by the reflection from my head. Also, if I don’t wear a hat, there’s no way that the hat can be at that level by itself on the stage.
+ - My friend Winnie is a procrastinator. He didn’t get his birth mark til he was eight years old.
+ - If a word in the dictionary were misspelled, how would we know?
+ - I like to fill my tub up with water, then turn the shower on and act like I’m in a submarine that’s been hit .
+ - I’m not naked, I’m in the band.
+ - I had a dream that all the babies prevented by the pill showed up. They were mad.
+ - There’s a pizza place near where I live that sells only slices. In the back, you can see a guy tossing a triangle in the air.
+ - I bought an ant farm. I don’t know where I am going to get a tractor that small!
+ - Real life? Well, I just hope mine isn’t investigated. They might find that I don’t really exist – that I’m just a hologram.
+ - I didn’t tell any of my friends that I wanted to be a comedian, because I was superstitious. I thought if I told people, it wouldn’t happen. So I kept it all in my head for years and years.
+ - Imagine Oshkosh straitjackets for little insane children.
+ - Why are they called buildings when they’re already finished? Shouldn’t they be called builts?
+ - I just lost a buttonhole.
+ - Good jokes are gems. A good idea is hard to come by. I couldn’t give them to someone else, even for money. It just wouldn’t seem right.
+ - When I woke up this morning my girlfriend asked me, ‘Did you sleep good?’ I said ‘No, I made a few mistakes.’
+ - Don’t you hate when your hand falls asleep and you know it will be up all night.
+ - I think God’s going to come down and pull civilization over for speeding.
+ - I was a peripheral visionary. I could see the future, but only way off to the side.
+ - I eat Swiss cheese from the inside out.
+ - I had amnesia once or twice.
+ - I’m kinda tired. I was up all night trying to round off infinity. Then I got bored and went out and painted passing lines on curved roads.
+ - I saw a tree fall in the woods, and I didn’t hear it.
+ - Last week I forgot how to ride a bicycle.
+ - I paint; I draw and paint – I’ve been doing that since I was in third grade, drawing realistically and then changing to abstract art. That was my first creative thing before guitar or comedy.
+ - There was a power outage at a department store yesterday. Twenty people were trapped on the escalators.
+ - How many people does it take to change a searchlight bulb?
+ - How come you don’t ever hear about gruntled employees? And who has been dis-ing them anyhow?
+ - I went to this restaurant last night that was set up like a big buffet in the shape of an Ouija board. You’d think about what kind of food you want, and the table would move across the floor to it.
+ - I stayed in a really old hotel last night. They sent me a wakeup letter.
+ - A lot of people are afraid of heights. Not me, I’m afraid of widths.
+ - I used to work at a health food store. I got fired for drinking straight Bosco on the job.
+ - I went down the street to the 24-hour grocery. When I got there, the guy was locking the front door. I said, ‘Hey, the sign says you’re open 24 hours.’ He said, ‘Yes, but not in a row.’
+ - If a person with multiple personalities threatens suicide, is that considered a hostage situation?
+ - I’m used to seeing it, but it’s weird having an Academy Award. You usually only see one of them on the TV show when they give them out, so it’s kind of surreal to have one in your house.
+ - Why do psychics have to ask you for your name?
+ - If you are in a spaceship that is traveling at the speed of light, and you turn on the headlights, does anything happen?
+ - How come Superman could stop bullets with his chest, but always ducked when someone threw a gun at him?
+ - It’s a good thing we have gravity or else when birds died they’d just stay right up there. Hunters would be all confused.
+ - I used to own an ant farm but had to give it up. I couldn’t find tractors small enough to fit it.
+ - I’ve never seen electricity, that’s why I don’t pay for it.
+ - Isn’t the best way to save face to keep the lower part shut?
+ - Nobody can really compare a relationship in which the victim is 15 years old to one where she’s 6. While both criminal, they’re very different circumstances.
+ - Why buy a product that it takes 2000 flushes to get rid of?
+ - I forgot and left the lighthouse on all night. Next day the sun wouldn’t rise.
+ - I used to be a narrator for bad mimes.
+ - I spent all my money on a FAX machine. Now I can only FAX collect.
+ - One day a guy tried to rob me on the street, and I had no money. So I charged him.
+ - You know what scares me? When you have to be nice to some paranoid schizophrenic, just because she lives in your head.
+ - I changed my headlights the other day. I put in strobe lights instead! Now when I drive at night, it looks like everyone else is standing still...
+ - My friend has a baby. I’m recording all the noises he makes so later I can ask him what he meant.
+ - When I was ten, my pa told me never to talk to strangers. We haven’t spoken since.
+ - After eating, do amphibians need to wait an hour before getting out of the water?
+ - Do radioactive cats have eighteen half-lives?
+ - When I get real bored, I like to drive downtown and get a great parking spot, then sit in my car and count how many people ask if I’m leaving.
+ - I got a chain letter by fax. It’s very simple. You just fax a dollar bill to everybody on the list.
+ - I moved into an all-electric house. I forgot and left the porch light on all day. When I got home the front door wouldn’t open.
+ - When I have a kid, I want to buy one of those strollers for twins. Then put the kid in and run around, looking frantic. When he gets older, I’d tell him he used to have a brother, but he didn’t obey.
+ - I laugh all the time – at things, people, stuff, whatever. But, I don’t laugh onstage because then it’s serious business.
+ - I like to talk about lint and coasters, the expansion of the universe and maybe McDonald’s. I’m completely turned off by the idea of politics.
+ - My act is an exaggeration of a part of me. I’m much more expressive off stage.
+ - I went to the bank and asked to borrow a cup of money. They said, ‘What for?’ I said, ‘I’m going to buy some sugar.’
+ - Is it possible to be totally partial?
+ - My favorite book is anything by Kurt Vonnegut – he’s my literary hero. I got to meet him several times, which was a great thrill for me. I don’t really remember what we talked about.
+ - What do little birdies see when they get knocked unconscious?
+ - I was always making my friends laugh, but I never wanted the attention of the whole classroom.
+ - I saw a vegetarian wearing a furry coat. so I looked closer. it was made of grass.
+ - I was going to tape some records onto a cassette, but I got the wires backwards. I erased the all of the records. When I returned them to my friend, he said, “Hey, these records are all blank.”
+ - I poured spot remover on my dog. Now he’s gone.
+ - I wrote a song, but I can’t read music so I don’t know what it is. Every once in a while I’ll be listening to the radio and I say, “I think I might have written that.”
+ - I bought a million lottery tickets. I won a dollar.
+ - Imagine Pulitzer prizefighting.
+ - You know those things that you throw the twigs into and it spits them out? That’s what I do. The branches are like life, and I throw them into my head and some of it comes out as humor.
+ - I’m writing an unauthorized autobiography.
+ - I saw a small bottle of cologne and asked if it was for sale. She said, “It’s free with purchase.” I asked her if anyone bought anything toda.
+ - I like George Carlin’s jokes. I like his humor. He’s one of my heroes, and I like what he did with talking about everyday things.
+ - I told her I knew when I was going to die because my birth certificate had an expiration date on it.
+ - To the audience, it’s like I’m changing the subject every five seconds, but to me, my show’s almost like a 90-minute song that I know exactly. I wrote every note, and I know exactly where everything is.
+ - When I was a kid, I went to the store and asked the guy, Do you have any toy train schedules?
+ - I took a course in speed reading. Then I got Reader’s Digest on microfilm. By the time I got the machine set up, I was done.
+ - Ever wonder what the speed of lightning would be if it didn’t zigzag?
+ - I can’t stop thinking like this.
+ - How do you tell when you’re out of invisible ink?
+ - I was born. When I was 23 I started telling jokes. Then I started going on television and doing films. That’s still what I am doing. The end.
+ - Winny would spend all of his time practicing limbo. He got pretty good. He could go under a rug.
+ - The other day when I was walking through the woods, I saw a rabbit standing in front of a candle making shadows of people on a tree.
+ - Only one in four jokes ever works, and I still can’t predict what people will laugh at.
+ - I was watching the Superbowl with my 92 year old grandfather. The team scored a touchdown. They showed the instant replay. He thought they scored another one. I was gonna tell him, but I figured the game HE was watching was better.
+ - I’m addicted to placebos.
+ - Because I don’t believe everything I read.
+ - I always thought Johnny Carson was just brilliant, and I used to watch him and all the comics that would be on the show every night – and I’d dream about it being me.
+ - If you are killing time, are you damaging eternity?
+ - If you had a million Shakespeares, could they write like a monkey?
+ - I was an only child, eventually.
+ - The doctor says he has to amputate all of me.
+ - When I erase a word with a pencil, where does it go?
+ - I thought I would be a guy on the radio.
+ - Is it weird in here, or is it just me?
+ - When I was a kid I had a friend who worked in a radio station. Whenever we walked under a bridge, you couldn’t hear what he said.
+ - You know, the New Testament is pretty old. I think they should call them the Old Testament and the Most Recent Testament.
+ - In hindsight, I realized I could see into the future. Which is kind of like having premonitions of flashbacks.
+ - Why is a carrot more orange than an orange?
+ - I put hardwood floors on top of wall-to-wall carpet.
+ - Yesterday I saw a chicken crossing the road. I asked it why. It told me it was none of my business.
+ - It seems like we wake up and it’s a race until you get to bed. It gets to you after a while and you think, ‘What the hell am I doing?’
+ - If I ever had twins, I’d use one for parts.
+ - Why do you press harder on a remote-control when you know the battery’s dead?
+ - All of the people in my building are insane. The guy above me designs synthetic herbals for ceramic cats.
+ - Laughing stock: cattle with a sense of humor.
+ - Very rarely do I talk off the top of my head on stage. I’m not an improv guy. I’m a writer-guy who presents what he’s written.
+ - The sky already fell. Now what?
+ - It usually helps me write by reading – somehow the reading gear in your head turns the writing gear.
+ - Why do they call it the Department of Interior when they are in charge of everything outdoors?
+ - The sign said “eight items or less”. So I changed my name to Les.
+ - I’ve been doing comedy longer than I haven’t been doing comedy, as I was performing for three years before I even got on ‘The Tonight Show.’ There’s truly nothing like it; it’s intense and exhilarating, even though it looks so casual.
+ - I feel lucky that I can have people laugh solidly for a whole hour by just saying what I think and getting paid for it.
+ - I took a baby shower.
+ - Why are they called a-part-ments, when they’re all stuck together?
+ - Officer, I know I was going faster than 55MPH, but I wasn’t going to be on the road an hour.
+ - Your honor, why would anyone in their right mind park in the passing lane?
+ - I got a new shadow. I had to get rid of the other one – it wasn’t doing what I was doing.
+ - I haven’t changed at all. I’m the same as when I was 11.
+ - Ever notice how irons have a setting for permanent press? I don’t get it.
+ - What do you do when you see an endangered animal that eats only endangered plants?
+ - They say we’re 98% water. We’re that close to drowning. I like to live on the edge.
+
+423 quotes

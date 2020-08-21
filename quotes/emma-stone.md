@@ -1,0 +1,94 @@
+ - Sometimes the smallest step in the right direction ends up being the biggest step of your life.
+ - You’re only human. You live once and life is wonderful, so eat the damned red velvet cupcake.
+ - I can’t think of any better representation of beauty than someone who is unafraid to be herself.
+ - If you knew everyone’s story, you would love them. You can’t really hate anyone if you know everything that happened to them between their birth and now; why they became the way they became; why they have walls up or down. If you truly know someone, you’d get it.
+ - I know that when you’re a teenager – sometimes when you’re an adult – what sets you apart can sometimes feel like a burden and it’s not. A lot of the time, it’s what makes you great.
+ - My absolute favorite kind of people in the world are people that are passionate about something.
+ - What sets you apart can feel like a burden, but it’s not.
+ - Comedy’s my first love. I love that so much. You play comedy in drama, too. The difference between genres doesn’t really change the method of acting.
+ - What makes life valuable is that it doesn’t last forever.
+ - Anyone who’s making a huge impact or speaking out about what they believe in or who’s brave enough to be themselves is a superhero to me.
+ - Improv is what helped me overcome the anxiety that I was feeling sometimes. It’s the thing that pushes me to be present, and to keep moving through all of the what-ifs that go through my mind.
+ - I have a checkered past. I’ll take any eyeliner that comes my way.
+ - I’m not very computer savvy.
+ - If I feel strongly about anything, I get overwhelmed with emotion.
+ - The idea that you can’t be attractive and funny at the same time is something that I hate.
+ - As an actor, you have to just think about the truth of your character. You have to think about how to play the character in the way that you know it needs to be played in your heart and why you were hired.
+ - Not to be confused with Spider-Man’s other girlfriend Mary Jane Watson, who is a skank and doesn’t love him like I do.
+ - I don’t believe that everyone else really cares what I do all the time. I think in general you have to follow your own path and your own heart and not worry about what everybody else wants you to do. They should be worried about what they’re going to do.
+ - I’m just trying to keep my head above water as I learn how to act. I feel like I have so much to learn, it’s insane. The only thing I know is that I don’t know or have a grasp on anything other than this one thing that’s within me, whatever that is, so I’m just trying to trust that.
+ - We’re always too skinny, or too fat. Too tall, or too short. We’re shaming each other, and we’re shaming ourselves, and it sucks.
+ - When I feel something in my gut, I can feel it physically. But my instincts seem to come from a different place – they feel headier to me, and I get the wrong scent, and go off on these whims where I think that something is happening when it’s not.
+ - You know how sports teach kids teamwork and how to be strong and brave and confident? Improv was my sport. I learned how to not waffle and how to hold a conversation, how to take risks and actually be excited to fail.
+ - I try not to look at stories on the Internet because I don’t want to psych myself out. I kinda half to stay off the Internet. I’m not thick-skinned enough. I get too sensitive. I don’t want it to effect what I’m doing.
+ - I had massive anxiety as a child. I was in therapy. From 8 to 10, I was borderline agora-phobic. I could not leave my mom’s side. There was a lot of fear, but it was also very exciting.
+ - On the first day of middle school I wore high-heeled shoes that you weren’t allowed to wear. I remember being so embarrassed because in every class I went to they kept pointing out that I couldn’t wear these shoes. I wanted to call my mom and have her bring me new shoes!
+ - I’m into grilled cheese. Grilled cheese makes me feel beautiful!
+ - I think women should wear whatever makeup they want for themselves. Makeup should be fun.
+ - Just because I don’t have a college degree doesn’t mean I am not smart!
+ - I always thought it’s way more important to be funny or to be honest than to look any certain way.
+ - My mother has always been my emotional barometer and my guidance. I was lucky enough to get to have one woman who truly helped me through everything.
+ - In Hollywood – and indeed, the world – a lot of women only think about themselves in the context of men. It’s truly sad.
+ - I really like grammar. And spelling. I was a spelling-bee kid. I’m hard-core about grammar.
+ - So anyway, I’ve learned a lot about myself just in terms of acting but just work ethic and interesting things like full-page monologues or talking straight into camera, which I had never gotten to do before.
+ - I’ve got a great family and great people around me that would be able to kick me in the shins if I ever for one minute got lost up in the clouds. I’ve been really lucky in that sense.
+ - I can’t help moving my face – reacting – when I watch a movie, because I’m really inhabiting a character. I know this is weird, but it demonstrates what I love about cinema: it allows you to live a different life, to have a different experience, to disappear for two hours. I think it’s wonderful.
+ - There’s this Ryan Gosling quote that I steal all the time – I watched an interview with him in Cannes – and he said picking roles is like listening to songs on the radio: There can be a lot of really great songs in a row, but then one comes on that just makes you want to dance.
+ - I’m not there to be the token sexy girl. I don’t know that I would ever be able to pull that off. It’s nice that those characters I’ve played feel uncomfortable as well because it’s so much more realistic.
+ - Sometimes I definitely shut people out. I can be that sort of girlfriend who crosses her arms, shakes her head and says, “Nope, I’m not telling you what’s wrong. I’m fine.”
+ - This is life. Our bodies change. Our minds change. Our hearts change. Things are always evolving. I hope we can be supportive of each other and try to really have each other’s backs, especially when we don’t know the whole story.
+ - My life is PG-13 sometimes, and I really want Josh Grogan to propose to me, and he just won’t do it.
+ - It’s definitely a shock to go from being 15 in high school to working. There’s no real cushion there. There’s no preparation at all. You learn by doing.
+ - I was raised in Arizona, and I went to public school, and the extent of my knowledge of the civil-rights movement was the story of Rosa Parks and Martin Luther King, Jr. I wonder how much my generation knows.
+ - Sometimes you’re not like the person you’d want to hang out with. Would I really want to hang out with me full time? No, you’ve gotta find people who balance you out.
+ - People aren’t stupid. People wanna see good movies, especially comedies. Those by the books comedies, I don’t get it. Who likes those? Nobody likes those.
+ - You won’t hear me saying I have no body issues because I wouldn’t be human if I didn’t.
+ - I like to look like a person. It drives me crazy when you see women in movies playing teachers, and they have biceps. It totally takes me out of the movie. I start thinking, Wow, that actress playing this part really looks great!
+ - I’ve been looking at that in myself lately. Often, joking for me is a way of diffusing the awkwardness of a situation, so it’s kind of exhilarating to be a part of projects where there’s nothing funny or lighthearted.
+ - I have dreams of being a producer, being behind a camera, eating seven tacos for every meal, and making movies that affect people the way they affect me. I don’t even need to be in them.
+ - I’m not a brain surgeon, I’m not saving anyone from any life-threatening illnesses. But I get to tell stories, and that’s a pretty important task.
+ - I think the number one thing that I find important is the importance of honesty with your friends and your parents, if you can be. But I think that telling people how you really feel, being who you truly are, being safe and taking care of yourself is the most important thing.
+ - I challenge myself to take at least one fashion risk a day, otherwise I get stuck.
+ - The things that make you most mad about the world tend to be the things that you hate in yourself.
+ - You have to play the character in the best way you know how and do what you need to do in order to bring that character to life and not worry about the millions of people that you may be disappointing!
+ - The last thing in the world my parents would want to do is get on a stage or do a movie. They would probably rather die. But they let me be who I was, and they supported me.
+ - I won’t make a bucket list because I’m so afraid that I’ll die and then people will find my bucket list and be, like, ‘Oh, she didn’t get to do that.’
+ - I think there are plenty of soulmates out there. That’s what I choose to believe.
+ - My parents always put more of an emphasis on who I was as opposed to what I achieved. They were never like, “You won that! You did this!” It was all about, “You’ve got a good heart. You’re a good friend. You’re a good daughter.” So that other stuff in no way defines my sense of self.
+ - I’m just learning every day and I hope to continue that until the day I die. I’m just trying to learn and experience as much as I possibly can. I look at acting, at how I look at being involved in a job and living my life and prioritising.
+ - Censorship makes me really angry. I even hate it when people censor themselves.
+ - He’s my favorite! He wrote and produced, and starred in and cast all of his movies! Can you imagine? I get really excited when I talk about Charlie Chaplin.
+ - I’m never saying never – I’m saying I’m not about to.
+ - Running is bad for your knees, and I like to do things I actually enjoy, like going for a swim.
+ - Blondes do have more fun. But sometimes I look in the mirror and still feel like I’m wearing a wig.
+ - My stylist has really great taste – Petra Flannery has really great taste. I mean, I am opinionated, and as time goes on, as I’ve gotten to see more dresses or more clothes, it’s easier to say, ‘I like that’ or ‘I don’t like that,’ but it’s nothing I would ever, you know, design.
+ - I used to do Facebook but you get a little too wrapped up in that stuff. Its more distracting than anything so I don’t any more. I left it behind. I detoxed!
+ - Chemistry is like an indefinable thing. When it comes to people playing your best friend or your parents or anything like that, there’s always different kind of element to chemistry.
+ - I think a lot of people compare their insides to other people’s outsides.
+ - For me, the political part of being an actor is very tough. To sit somewhere and tell somebody why you should feel this way or that way about my character does not feel like my responsibility. It feels like the responsibility of the writer and the person who created it.
+ - When I did TV, I only did little guest parts, and it hasn’t been that long. There is a kind of pressure in this job that comes from your work every day being there forever. But this is all part of the brand-new world that I’m discovering.
+ - Taylor is a musician who does things under her own name and tells her own stories-her songs and her albums are her.
+ - So one day, in a fit of trying to do something different, I just dyed my hair dark brown and got my first role a week later, after which I thought: ‘People are closed-minded, man! Like a different hair colour changes everything!’
+ - I had a trainer during ‘Spiderman,’ and I discovered I have deep-seated rage when I’m holding heavy weights over my head. Whatever dormant anger I have in me, that’s where it comes out. That’s not the kind of working out I want to do.
+ - That old question about whether, as a woman, you can be funny and attractive at the same time. Argh! I hate that question. Of course you can.
+ - My great goal in life is to try to remember that everything is of equal value.
+ - Drama is hard for me. Crying is much harder for me than laughter.
+ - I guess every musician looks forward to a point where they can just kind of make an album that truly is like a nice art album.
+ - I’m a big music fan, an admirer. But I mean by no means am I about to release an album or anything.
+ - The people I look up to the most – politicians, actors, artists – are the people who manage to do a high-powered job while staying themselves. They aren’t afraid to be nice.
+ - My favorite thing about movies is the ending, and so all my favorite movies have really great endings.
+ - I do put on a little make-up every day because it helps me feel put together. Mascara is essential.
+ - I’m shockingly terrible at action movies.
+ - I just told the whole truth and that felt really incredible and really scary.
+ - My hair is a battle. It’s an uphill, fine, baby-haired battle.
+ - I get a lot of questions about hair color. People are very into talking about hair.
+ - I just like to keep working and being able to pay my bills.
+ - I was a good-looking kid. I never felt, like, dorky. I was just like, ‘Yup, these are my braces. I’ve had them forever.’
+ - The only time I flip out is when I’m not prepared. If I’m caught off guard, I can’t help it; I start gasping for air.
+ - I’m actually the last person to ask about school. I kinda ducked out at 12, before all that stuff might have happened. I left school after sixth grade and was basically home-schooled after that.
+ - I always loved acting and improv and sketch comedy and theater, which I did at a local youth theater.
+ - I’ve never played someone where I felt it was beneficial to build from the outside in.
+ - A lot of times I feel like people come up to me because they think I’m like my character in Easy A, or because they’ve seen me in interviews, but really what they’re a fan of is a movie or a character.
+ - I didn’t read comics, growing up. I watched a lot of movies, and those were my comic books. And then, my exposure really increased by becoming affiliated with Spider-Man.
+
+92 quotes

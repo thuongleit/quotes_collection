@@ -1,0 +1,45 @@
+ - You can’t please everyone, especially if you’re doing very radical things at the vanguard of cooking. That’s life; it’s a polemic I’ve lived with since I started cooking.
+ - Risk is to do something that 99 percent of the time would be a failure.
+ - Food is about being happy – at a table, thats probably where we spend most of our happiest hours...
+ - If you think well, you cook well.
+ - I don’t worry about the things I can’t change.
+ - When I go to a fine dining restaurant, I’m excited and I do expect to find proposals to wake my senses.
+ - Innovation, being avant garde, is always polemic.
+ - The menu de degustation is the finest expression of avant-garde cooking.
+ - Salt is the only product that changes cuisine. There’s a big difference between food that has salt and food without it. If you don’t believe that, ask people who can’t eat salt.
+ - I’m not a materialist, I don’t care for things. I don’t like cars, I hate things that can be exploited. I live a simple life. The only luxuries I have in my life are travel and food.
+ - Creativity means not copying.
+ - You cannot get an influence from the cuisine of a country if you don’t understand it. You’ve got to study it.
+ - When you talk about avant-garde cuisine, the surprise factor is really important. For example, I love looking at blogs and the photos, but I’m not that keen on other people taking photos of my dishes.
+ - Remember that a very good sardine is always preferable to a not that good lobster.
+ - We opened El Bulli; there were no secrets there. The recipes were not secret. Anybody who came, the recipes were there for them. This was unthinkable then.
+ - Could you imagine people eating a painting – if they could introduce a painting into their bodies? It’s probably the artist’s dream, and we have the opportunity to do so.
+ - I had a very normal childhood, and my mother cooked very normal food.
+ - Throughout the history of el Bulli, there have been many changes in its organisation or philosophy. This is another one of those moments. There will be risk, and freedom, and creativity. But there won’t be opening hours, or reservations, or routines.
+ - There’s a little treat I like a lot called Bollycao. It’s like a brioche with chocolate inside, but industrial.
+ - Our kitchen is a kitchen that makes food designed to be tasted with the five senses and it requires concentration to appreciate all that we want to express.
+ - There is not a good or a bad cuisine, just the one you like the best.
+ - I use the kitchen as a pathway to achieve this happiness.
+ - People wouldn’t think of making avant-garde cuisine at home. When people play basketball at home, they can’t play like Michael Jordan.
+ - I have a drivers licence, but the truth is that I hardly ever drive. I prefer to get around by taxi.
+ - You need an entire life just to know about tomatoes.
+ - In my early days, I copied the great French chefs, like most chefs do. Copying is not bad. Copying and not recognizing that you are copying is bad. For me, when I go to a restaurant and am served a dish influenced by something we created at elBulli, if it’s well done, it makes me extremely happy.
+ - We’ll work with any designer producing something linked to gastronomy. So a chair for the dining area, a van to move food around. Anything that’s connected to the gastronomic process.
+ - What’s wrong with transforming food?
+ - I don’t do my mother’s cooking. Because I am a professional and she isn’t. Even if she is a better cook.
+ - There’s so much information that there is disinformation.
+ - It’s very hard to be an innovator at the highest level in any discipline. For some chefs it’s merely about combining ingredients, but that’s something you can do with your eyes closed.
+ - I cant live without activity; I cant be sedentary.
+ - We didnt create dishes. We create preparations to create many dishes.
+ - You may say, “Oh, no. You can’t touch a traditional recipe.” But we ask: why can’t you? Back in 1350, a vinaigrette was a stew, so we ask, why not? This can be applied to any kind of cooking, and that’s the shocking part of it. It kind of bends all the traditions. It’s a good thing.
+ - Friends are really important, especially when you’ve had the successes that I’ve had. I’ve gone really far in my career, so they’re the ones that keep you humble, keep your feet on the ground.
+ - What you feel like eating at any given moment is what you should have.
+ - I never cook at home. After 15 hours at work, I don’t have much of a desire to cook at home. I do eat at home, but it’s always something simple. Raw nuts. Almonds, hazelnuts, pine nuts – these are marvelous products. I am, however, the type that likes to go out to eat a lot. I never tire of it.
+ - When a customer receives a dish, they get food and design at the same time.
+ - You can see it on the Internet now. New society demands that people share their knowledge. It’s asking multimillionaires to share their money and creative people to share their creativity. Whoever doesn’t share their wealth, be it knowledge, money, or creativity, will be dead.
+ - In an avant-garde cooking restaurant, it’s the experience that’s the difference.
+ - Everywhere the sky is blue. There are a multitude of cuisines and dishes. I think of them as the languages and dialects of food.
+ - For me to go to a restaurant and eat something that is not only good, but totally new, is a double thrill. Double the enjoyment.
+ - If I don’t have pressure, I don’t function.
+
+43 quotes

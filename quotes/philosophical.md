@@ -1,0 +1,42 @@
+ - No price is too high to pay for the privilege of owning yourself. ~~Friedrich Nietzsche
+ - To live alone is the fate of all great souls. ~~Arthur Schopenhauer
+ - No great thing is created suddenly. ~~Epictetus
+ - Thoughts without content are empty, intuitions without concepts are blind. ~~Immanuel Kant
+ - To the wise, life is a problem; to the fool, a solution. ~~Marcus Aurelius
+ - The worst form of inequality is to try to make unequal things equal. ~~Aristotle
+ - If you wish to be a writer, write. ~~Epictetus
+ - The world turns aside to let any man pass who knows where he is going. ~~Epictetus
+ - He who lives in harmony with himself lives in harmony with the universe. ~~Marcus Aurelius
+ - Confine yourself to the present. ~~Marcus Aurelius
+ - Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. ~~Sigmund Freud
+ - Man is condemned to be free. ~~Jean-Paul Sartre
+ - Two things awe me most, the starry sky above me and the moral law within me. ~~Immanuel Kant
+ - The art of living is more like wrestling than dancing. ~~Marcus Aurelius
+ - Great men are like eagles, and build their nest on some lofty solitude. ~~Arthur Schopenhauer
+ - Do you wish to rise? Begin by descending. You plan a tower that will pierce the clouds? Lay first the foundation of humility. ~~Saint Augustine
+ - If you remember me, then I don’t care if everyone else forgets. ~~Haruki Murakami
+ - Life is life – whether in a cat, or dog or man. There is no difference there between a cat or a man. The idea of difference is a human conception for man’s own advantage. ~~Sri Aurobindo
+ - The thinking person must oppose all cruel customs, no matter how deeply rooted in tradition and surrounded by a halo. When we have a choice, we must avoid bringing torment and injury into the life of another. ~~Albert Schweitzer
+ - The assumption that animals are without rights, and the illusion that our treatment of them has no moral significance, is a positively outrageous example of Western crudity and barbarity. Universal compassion is the only guarantee of morality. ~~Arthur Schopenhauer
+ - Experience without theory is blind, but theory without experience is mere intellectual play. ~~Immanuel Kant
+ - The world of reality has its limits; the world of imagination is boundless. ~~Jean-Jacques Rousseau
+ - The superior man understands what is right; the inferior man understands what will sell. ~~Confucius
+ - Love is the only sane and satisfactory answer to the problem of human existence. ~~Erich Fromm
+ - Each day provides its own gifts. ~~Marcus Aurelius
+ - The limits of my language means the limits of my world. ~~Ludwig Wittgenstein
+ - Well begun is half done. ~~Aristotle
+ - Alice came to a fork in the road. ‘Which road do I take?’ she asked. ‘Where do you want to go?’ responded the Cheshire Cat. ‘I don’t know,’ Alice answered. ‘Then,’ said the Cat, ’it doesn’t matter. ~~Lewis Carroll
+ - There is always some madness in love. But there is also always some reason in madness. ~~Friedrich Nietzsche
+ - Philosophy is a battle against the bewitchment of our intelligence by means of language. ~~Ludwig Wittgenstein
+ - The best things in life make you sweaty. ~~Edgar Allan Poe
+ - The past is past, and the future is yet to come. That means the future is in your hands – the future entirely depends on the present. That realization gives you a great responsibility. ~~Dalai Lama XIV
+ - No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution. ~~Niccolò Machiavelli
+ - There is but one truly serious philosophical problem and that is suicide. ~~Albert Camus
+ - Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness. ~~Eckhart Tolle
+ - Punishment is justice for the unjust. ~~Saint Augustine
+ - Forgiveness is the final form of love. ~~Reinhold Niebuhr
+ - If you fall behind, run faster. Never give up, never surrender, and rise up against the odds. ~~Jesse Jackson
+ - Faith means belief in something concerning which doubt is theoretically possible. ~~William James
+ - I will honour Christmas in my heart, and try to keep it all the year. I will live in the Past, the Present, and the Future. The Spirits of all Three shall strive within me. I will not shut out the lessons that they teach! ~~Charles Dickens
+
+40 quotes

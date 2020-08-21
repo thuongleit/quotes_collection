@@ -1,0 +1,22 @@
+ - My life is very simple. I like simplicity and for my time to be my own, so that I have the freedom to devote the majority of it to Islam.
+ - In many ways, my job in soccer was like my job in basketball now. I had to protect the goal. That was the name of the game, not letting the other team score.
+ - Being from Africa is the best thing that could have ever, ever happened to me. I cannot see it any other way. All of my fundamental principles that were instilled in me in my home, from my childhood, are still with me.
+ - Basketball is in my blood. It is my obligation to try.
+ - I’m the kind of person who always wants more.
+ - God comes first. Paradise is not cheap.
+ - I love fashion as much as I love basketball! It is a great joy for me to express myself through designing my own collection.
+ - The most important thing in a person’s life is his faith and how he translates his faith into practical deeds.
+ - I was successful materially, but I know life is much more than worldly success. I saw all these blessings God had given me. The way to give thanks is obedience to God.
+ - When I look at the system here and look at my position – not just as a basketball player, but when I look around me at the values of the people and the culture and compare them with the values of where I came from – I feel so blessed to be from Africa.
+ - It’s not up to anyone else to make me give my best.
+ - When you get to that level, it’s not a matter of talent anymore – because all the players are so talented – it’s about preparation, about playing smart and making good decisions.
+ - I always keep a ball in the car. You never know.
+ - All these boundaries – Africa, Asia, Malaysia, America – are set by men. But you don’t have to look at boundaries when you are looking at a man – at the character of a man. The question is: What do you stand for? Are you a follower, or are you a leader?
+ - I remember at the 1996 Olympics in Atlanta, Shaq always wanted me to show him steps over and over.
+ - I don’t think Michael had to retire for us to get the spotlight, because when you win, it commands attention.
+ - I’ve now been in this country for thirteen years, since I was seventeen. So this is my second home.
+ - My background playing soccer gave me a natural advantage over many of the American-born players.
+ - The key to fashion is, you don’t want to look like you’re trying. You’ve gotta be natural.
+ - My type of basketball is about how to create space, how to maneuver, how to get your shot off.
+
+20 quotes

@@ -1,0 +1,60 @@
+ - Global warming is no longer a philosophical threat, no longer a future threat, no longer a threat at all. It’s our reality.
+ - Climate change is the single biggest thing that humans have ever done on this planet. The one thing that needs to be bigger is our movement to stop it.
+ - If it’s wrong to wreck the planet, it’s wrong to profit from the wreckage.
+ - The world hasn’t ended, but the world as we know it has-even if we don’t quite know it yet.
+ - We’ve built a new Earth. It’s not as nice as the old one; it’s the greatest mistake humans have ever made, one that we will pay for literally forever.
+ - In reality, climate change is actually the biggest thing thats going on every single day.
+ - There is no ideal Christmas; only the one Christmas you decide to make as a reflection of your values, desires, affections, traditions.
+ - The technology we need most badly is the technology of community, the knowledge about how to cooperate to get things done.
+ - There is a tendency at every important but difficult crossroad to pretend that it’s not really there.
+ - Very few people on earth ever get to say: ‘I am doing, right now, the most important thing I could possibly be doing.’ If you’ll join this fight that’s what you’ll get to say.
+ - The end of nature sours all my material pleasures. The prospect of living in a genetically engineered world sickens me. And yet it is toward such a world that our belief in endless material advancement hurries us. As long as that desire drives us, here is no way to set limits.
+ - TV makes it so easy to postpone living for another half hour.
+ - Our weird problem is an abundance of resources and a shortage of hard economic reasons not to use them.
+ - Because the financial power of the fossil-fuel industry is so great it can, and has, delayed any real action of the climate issues almost everywhere.
+ - We have built a greenhouse, a human greenhouse, where once there bloomed a sweet and wild garden.
+ - When you are in a hole, stop digging!
+ - There is an urgent need to stop subsidizing the fossil fuel industry, dramatically reduce wasted energy, and significantly shift our power supplies from oil, coal, and natural gas to wind, solar, geothermal, and other renewable energy sources.
+ - The movers and shakers on our planet, aren’t the billionaires and generals, they are the incredible numbers of people around the world filled with love for neighbor and for the earth who are resisting, remaking, restoring, renewing and revitalising.
+ - We’ve been given a warning by science, and a wake-up call by nature; it is up to us now to heed them.
+ - I’ve always been opposed to population control. In climate terms, population is not the biggest problem going forward.
+ - Irene’s got a middle name, and it’s Global Warming.
+ - If there’s horrible flooding in Pakistan or a horrible heat wave in Texas, we’re no longer able to call it an act of God, or a natural disaster, or something like that, the way we could have through all of human history until 35 or 40 years ago.
+ - We’re not at the point of trying to stop global warming; it’s too late for that. We’re trying to keep it from becoming a complete and utter calamity.
+ - There’s no happy ending where we prevent climate change any more. Now the question is, is it going to be a miserable century or an impossible one, and what comes after that.
+ - A third of summer sea ice in the Arctic is gone, the oceans are 30 percent more acidic, and since warm air holds more water vapor than cold, the atmosphere over the oceans is a shocking five percent wetter, loading the dice for devastating floods.
+ - The real negotiation is between humans on the one hand and chemistry and physics on the other. And chemistry and physics, unfortunately, don’t bargain.
+ - What we’re talking about is the endless, gullible elevation of necessary levels of comfort and status and everything else at the complete expense of all around us. It’s going to take us a long time to learn how to climb down a little bit from the heights on which we have put ourselves.
+ - These new technologies are not yet inevitable. But if they blossom fully into being, freedom may irrevocably perish. This is a fight not only for the meaning of our individual lives, but for the meaning of our life together.
+ - The Arctic and the Antarctic are melting quickly. We may have waited too long to get started. But this is a day for optimism because the battle is fully joined, and the idea that big oil is unbeatable is no longer true.
+ - If we all used clotheslines, we could save 30 million tons of coal a year, or shut down 15 nuclear power plants. And you don’t have to wait to start. Yours could be up by this afternoon. To be specific, buy 50 feet of clothesline and a $3 bag of clothespins and become a solar energy pioneer.
+ - The roof of my house is covered in solar panels. When Im home, Im a pretty green fellow.
+ - We have assumed control where once we worked with what we were given.
+ - The laws of Congress and the laws of physics have grown increasingly divergent, and the laws of physics are not likely to yield.
+ - Most of the men and women who vote in Congress each year to continue subsidies have taken campaign donations from big energy companies.
+ - The earth is a museum of divine intent.
+ - Alone among businesses, the fossil-fuel industry is allowed to dump its main waste, carbon dioxide, for free.
+ - Spend 70% of your spare time doing things close to home and the other 30% doing work at the global and national level.
+ - The ability to write compelling emails may be the single most useful talent an organizer can possess.
+ - You can have a healthy fossil-fuel balance sheet, or a relatively healthy planet.
+ - A spiritual voice is urgently needed to underline the fact that global warming is already causing human anguish and mortality in our nation and abroad, and much more will occur in the future without rapid action.
+ - Until it’s understood to involve justice for those in poverty, a future for generations yet unborn, and a commitment to the rest of creation, it’s unlikely we’ll be able to overcome the status quo.
+ - But tolerance by itself can be a cover for moral laziness.
+ - With each month that passes, a solar panel gets 2 or 3 percent cheaper. So while we’re holding the fossil fuel industry in check, the engineers in the renewable energy world are undercutting them from the other side.
+ - At the moment, the 4 percent of us in this country produce a quarter of the world’s carbon dioxide – once you look at maps of rising sea levels and spreading mosquitoes, you realize that we’ve probably never figured out a way to hate our neighbors around the world much more effectively.
+ - According to new research emerging from many quarters that our continued devotion to growth above all is, on balance, making our lives worse, both collectively and individually.
+ - When we think about global warming at all, the arguments tend to be ideological, theological and economic.
+ - A world where one tenth of the population gets to be extremely wealthy, and six tenths very poor, is not, in the long run, a stable place.
+ - We’ll look for almost any reason not to change our attitudes; the inertia of the established order is powerful. If we can think of a plausible, or even implausible, reason to discount environmental warnings, we will.
+ - Without a movement pressing for change, there’s little hope. We’ve got to work the political system to make this happen fast. The physics and chemistry are daunting. The resources on the other side are very large.
+ - After a lifetime of nature shows and magazine photos, we arrive at the woods conditioned to expect splendor – surprised when the parking lot does not contain a snarl of animals attractively mating and killing each other.
+ - A voluntary simplification of life-styles is not beyond our abilities, but it is probably outside our desires.
+ - We can no longer imagine that we are part of something larger than ourselves – that is what all this boils down to.
+ - What makes us different? We’re the creature that can decide not to do something that we are capable of doing.
+ - Community is as endangered by surplus as it is by deficit. If there is too much money floating around it enables people to have no need of each other.
+ - TV is sometimes accused of encouraging fantasies. Its real problem, though, is that it encourages-enforces, almost-a brute realism. It is anti-Utopian in the extreme. We’re discouraged from thinking that, except for a few new products, there might be a better way of doing things.
+ - My goal was to have as many of the primary sources as I could made available for people to look at and understand. Climate change is probably the most important thing that’s ever happened, and yet people’s understanding of it and its history remains a little fuzzy.
+ - If we continue to think of ourselves mostly as consumers, it’s going to be very hard to bring our environmental troubles under control. But it’s also going to be very hard to live the rounded and joyful lives that could be ours. This is a subversive volume in all the best ways!
+ - In 50 years, no one will care about the fiscal cliff or the Euro crisis. They’ll just ask, “So the Arctic melted, and then what did you do?”
+
+58 quotes

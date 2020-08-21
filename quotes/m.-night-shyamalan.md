@@ -1,0 +1,52 @@
+ - Always in life bad times will lead to great times.
+ - My biggest fear in life is to be average.
+ - The beauty of the world of Unbreakable is that you’re playing it for reality. It should never feel like a comic book movie. It feels like a straight-up drama. It’s real. You’re confronting the possibility that comic book characters were based on people that were real.
+ - When you say fear of the unknown, that is the definition of fear; fear is the unknown, fear is what you do not know, and its genetically within us so that we feel safe. We feel scared of the woods because were not familiar with it, and that keeps you safe.
+ - Is it possible that there are no coincidences?
+ - See what you have to ask yourself is what kind of person are you? Are you the kind that sees signs, sees miracles? Or do you believe that people just get lucky?
+ - I find it very eerie when somebody is being really polite.
+ - Sometimes we do not do things that we wish to do, so others will not know that we wish to do them.
+ - You don’t get to celebrate yourself unless you risk being mocked or rejected. As an artist, you cannot play it safe. You just can’t.
+ - People break down into two groups when the experience something lucky. Group number one sees it as more than luck, more than coincidence. They see it as a sign, evidence, that there is someone up there, watching out for them. Group number two sees it as just pure luck. Just a happy turn of chance.
+ - I storyboard every shot of my thrillers in general. I draw them out and do them.
+ - For instance, The Sixth Sense had mediocre to bad reviews. Slowly, the audience pushed it and it received critical attention.
+ - When you find your voice, your life takes on grace.
+ - I love The Killing, I love Homeland and Mad Men, all those shows that lean into the tone of things.
+ - The beauty is that we can blur film and TV a little bit more.
+ - I wouldn’t describe myself as a do-gooder. That’s really more my wife. I’m kind of just the obsessed guy who’s been writing and making movies since I was a little kid, just in a room and make it.
+ - There is no one looking out for us. We are all alone.
+ - Movies will end up being this esoteric art form, where only singular people will put films out in a small group of theaters.
+ - I’m super confident about creative stuff, and I’m really not confident about human interactions stuff.
+ - Anime is intended to have ambiguous features. That’s part of the art form.
+ - You’re never the same. You’re degrading, or you’re getting better. You don’t stay the same.
+ - The whole world makes comic book movies now.
+ - Basically, when I’m writing something, I think about what is the subject of the piece. The subject of the piece is our fear of getting old, which is a variation on our fear of dying.
+ - Sometimes people can write really great scenes and even a great episode, but they can’t see the bigger picture.
+ - Each of the actors need to have their justification for saying something awful. You want everyone to have a positive and negative thing. Even a positive thing needs to have darkness in it. It needs to have depth.
+ - My philosophy is to make movies with the biggest possible budget that will allow it to be made in an independent fashion.
+ - I try to take B genre movies and treat them as if they’re A dramas. Get the cinematographers, get the actors to do an A drama, but it just happens to be about aliens or ghosts or crazy people, or killers, or whatever it is.
+ - I like to write in a shroud of secrecy because I have to keep finding ways to scare myself.
+ - One of the reasons I really love low budget filmmaking is you don’t have to think about that as much. You can have more fun and be more playful and be freer creatively.
+ - I think I take what you might call a B-movie story, deal with B-movie subjects, and I treat it as if it’s an A-movie in terms of my approach, my crew, my actors, my ethics and so on. I guess that’s my trademark or one of them anyway!
+ - My directing style is long takes. The longer take I can do, the more I can think of not doing it in cuts, the better.
+ - You don’t want to watch classics with me ’cause I’m constantly writing notes.
+ - I’m so consistent that my director’s cuts are usually 20-25 minutes longer than the released version of the movies.
+ - Most of the time, I don’t watch classics with anybody. I have to be by myself. That’s my classroom.
+ - Giving should be a part of your routine, just like working out, eating, and sleeping.
+ - There’s no staying where you were. If you’re not doing anything, your skills and point of view are atrophying.
+ - I’ve been asked to direct pilots for a lot of shows.
+ - You’re saying, “I’m gonna do this thing,” and you have to be aware, as a rational human being, that you may not be allowed back in.
+ - If I’m hesitant at all about an idea, then that’s not the right idea.
+ - I knew the moment it happened, it was a miracle. I could have been kissing her when she threw up. It would have scarred me for life. I may never have recovered.
+ - I always thought I was going to be the film guy until I died.
+ - There are scenes that were right on the edge, but I always try to err on non-indulgence. It’s something that I’m very careful about, that I’m just leaning too hard into something.
+ - You don’t have your film finished when you have your director’s cut finished. It’s just a bunch of green screen.
+ - When I was a kid, I had two great guilty pleasures. One was horror movies and the other was martial arts movies.
+ - I had a desire to do TV and wanted to get in, in the right way, knowing that I was going to learn a lot, along the way.
+ - I’m from that world where I feel so comfortable making small independent movies.
+ - There are a lot of things I can take, and a few that I can’t. What I can’t take is when my older brother, who’s everything that I want to be, starts losing faith in things. I saw that look in your eyes last night. I don’t ever want to see that look in your eyes again.
+ - I want to make a bunch of small movies. I’m really interested in that for me in the future.
+ - Great actors come with depth about how their character sees the world, and they completely defend it. They could defend it in a court of law, down to the reason the patient deserved this.
+ - I consider myself an independent filmmaker.
+
+50 quotes

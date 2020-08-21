@@ -1,0 +1,30 @@
+ - Whoever said that money can’t buy happiness, simply didn’t know where to go shopping.
+ - It’s so easy to conform and to follow. It’s very difficult to be rebellious and live by what you believe is right. And to make decisions and to take the consequences. Very few people do.
+ - You could be as vulgar as you want, as long as three tiny spots were covered.
+ - He’s just fun, so much fun. I’m very happy now.
+ - I think a high school girl hitchhiking is stupid. It was dangerous then and it’s dangerous now.
+ - Life has played some funny tricks on me and taken me on a wild ride. How did I ever get into this wonderful mess that is my life?
+ - We were on the island of Hawaii. I think I was there three months. It was fantastic. It is not much different than films. It depends on the television show but much of television today is as good or better than most films.
+ - When you look at women who have had plastic surgery, they have lost something – usually an expression, something unique to their face.
+ - I found my love when I was 17-years-old and my love is one hundred percent honest. We’ve never had any ugly, rocky things to overcome.
+ - I’m getting to the place where I can sort of go through airports now and there’s no hysteria. I can go places alone even. But at the same time, if you get in trouble, you can find somebody in your age group who might recognize you.
+ - I love horses. I spent seven years as a racing commissioner on a horse-racing board.
+ - I grew up on the beaches, and I always found it kind of funny that it’s considered decent if you cover three tiny spots with pieces of fabric.
+ - My mother was working a lot, so she was gone often. I would leave school and hitchhike to the beach. I can’t believe I hitchhiked now. It scares me to death now.
+ - In California, I guess you belong to the state; you don’t even belong to your parents. It’s an old Spanish law. It doesn’t require your parents to swear out a complaint; anybody can.
+ - I played a definite part in it. I guess the things that I played in films and the way the nudity and the love scenes were handled were really different.
+ - I travel a lot. A lot, a lot. I don’t have a single passport that doesn’t have extra pages on it.
+ - I love Spain. I go back two or three times a year usually to visit friends and ride horses.
+ - I feel so fortunate. I was brought up along the beaches in Southern California, and then got to have horses.
+ - It is inconceivable that, in the richest nation in the world, we have 30 million people at risk of hunger. I believe that, if we truly make a commitment as a nation, we can defeat hunger.
+ - Probably some of the projects I chose to do after that had more to do with what people thought of me. The industry was very open and probably hoping that I could do anything.
+ - I think a lot of my girlfriends growing up gave themselves up to any boy who paid attention to them. I think young women now are a lot more particular. They pick and choose.
+ - I grew up on the beaches of Southern California surfing and sailing and I’ve always loved horses so it was part of my dream that I was able to fulfill to have horses.
+ - It’s been very nice. I haven’t gotten out too much because we’ve been working a lot but other wise the people have been very nice and I’ve had a good time.
+ - I was alone for five years. Having a love is a gigantic bonus in life, but I wasn’t unhappy when I was single, either.
+ - I hate to run. I never, ever run.
+ - When you trust your director completely, then you can relax, be spontaneous, be malleable.
+ - There’s an incredible fascination for that and that goes with violence and everything else in pictures.
+ - I found that whatever interested me in life, I could pretty much pick up the phone, call somebody, and all of a sudden be in the middle of it.
+
+28 quotes

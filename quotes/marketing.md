@@ -1,0 +1,42 @@
+ - Those who stop marketing to save money are like those who stop a clock to save time. ~~Henry Ford
+ - The best marketing strategy ever: CARE. ~~Gary Vaynerchuk
+ - Business only has two functions – innovation and marketing. ~~Milan Kundera
+ - You can’t sell anything if you can’t tell anything. ~~Beth Comstock
+ - There are only two things in a business that make money – innovation and marketing, everything else is cost. ~~Peter F. Drucker
+ - What helps people, helps business. ~~Leo Burnett
+ - Your culture is your brand. ~~Tony Hsieh
+ - Everyone lives by selling something. ~~Robert Louis Stevenson
+ - The aim of marketing is to know and understand the customer so well the product or service fits him and sells itself. ~~Peter F. Drucker
+ - Marketing is about innovation. ~~Beth Comstock
+ - Connect, create meaning, make a difference, matter, be missed. ~~Seth Godin
+ - Marketing strategy is a series of integrated actions leading to a sustainable competitive advantage. ~~John Sculley
+ - Network marketing is the fastest growing business model in the world today. ~~Robert T. Kiyosaki
+ - I’m working full time on my job and part time on my fortune. ~~Jim Rohn
+ - Everyone sees what you appear to be, few experience what you really are. ~~Niccolò Machiavelli
+ - If i will start all over again I would chose network marketing. ~~Bill Gates
+ - Many companies forget what it means to make great products. After initial success, sales and marketing people take over and the product people eventually make their way out. ~~Steve Jobs
+ - Because its purpose is to create a customer, the business has two and only two functions: Marketing and Innovation. Marketing and Innovation produce results. All the rest are costs. ~~Peter F. Drucker
+ - If I was down to the last dollar of my marketing budget I’d spend it on PR! ~~Bill Gates
+ - Network marketing is the big wave of the future. It’s taking the place of franchising, which now requires too much capital for the average person. ~~Jim Rohn
+ - The best marketing is education. ~~Regis McKenna
+ - Content-based marketing gets repeated in social media and increases word-of-mouth mentions; it’s the best way to gather buzz about a product. ~~Marsha Collier
+ - The future of marketing is leadership. ~~Seth Godin
+ - The network marketing industry offers many unique benefits to those who want more out of life. ~~Robert T. Kiyosaki
+ - Stories are how we learn best. We absorb numbers and facts and details, but we keep them all glued into our heads with stories. ~~Chris Brogan
+ - To me, we’re marketing hope. ~~Joel Osteen
+ - B2B does not mean boring marketing. ~~Beth Comstock
+ - By its very nature and design, Network Marketing is a strikingly Fair, Democratic, Socially Responsible system of generating wealth. ~~Robert T. Kiyosaki
+ - The aim of marketing is to make selling superfluous. ~~Peter F. Drucker
+ - The first rule of any technology used in a business is that automation applied to an efficient operation will magnify the efficiency. The second is that automation applied to an inefficient operation will magnify the inefficiency. ~~Bill Gates
+ - Marketing is the distinguishing, unique function of the business. ~~Peter F. Drucker
+ - Marketing is about values. It’s a complicated and noisy world, and we’re not going to get a chance to get people to remember much about us. No company is. So we have to be really clear about what we want them to know about us. ~~Steve Jobs
+ - Know thyself. Know the customer. Innovate. ~~Beth Comstock
+ - Distinguishing the signal from the noise requires both scientific knowledge and self-knowledge. ~~Nate Silver
+ - Anticipated, personal, and relevant advertising always does better than unsolicited junk. ~~Seth Godin
+ - Great wisdom not applied to action and behavior is meaningless data. ~~Peter F. Drucker
+ - The sole purpose of marketing is to sell more to more people, more often and at higher prices. There is no other reason to do it. ~~Sergio Zyman
+ - Network marketing has come of age. It’s undeniable that it has become a way to entrepreneurship and independence for millions of people. ~~Stephen R. Covey
+ - All the papers that matter live off their advertisements, and the advertisers exercise an indirect censorship over news. ~~George Orwell
+ - Advertising is the rattling of a stick inside a swill bucket. ~~George Orwell
+
+40 quotes

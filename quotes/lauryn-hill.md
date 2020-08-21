@@ -1,0 +1,154 @@
+ - I believe God will make a way.
+ - The only way to know is to Live, Learn, and Grow.
+ - I play my enemies like a game of chess.
+ - Miscommunication leads to complication.
+ - This life is a process of learning.
+ - It’s funny how money change a situation.
+ - Consequence is no coincidence.
+ - Love is an incredible thing but we don’t know love like we should. Unconditional love we don’t know it because if a person stops stimulating us, we stop loving them.
+ - See fantasy is what people want, but reality is what they need. And I just retired from the fantasy part.
+ - Anything that is not growing is dead.
+ - Loving you is like a Song I replay every 3 Minutes and 30 Seconds of every Day...
+ - Hypocrites always wanna play innocent.
+ - Wisdom is better than silver and gold.
+ - I have inner peace. It’s a different person.
+ - It’s more important to be righteous than to be right.
+ - I think everything happens in time. There’s a time for everything. There’s a time to be in a group, and there’s a time to be solo.
+ - I am up there onstage alone with that guitar. I don’t have to consider no one else and whether they are comfortable. I need very little.
+ - Be honest, brutally honest. That is what’s going to maintain relationships.
+ - Every time truth comes we hate it, because it’s coming against our ego. Are you going to let the ego come between you and this person you love?
+ - Let me be patient, let me be kind, make me unselfish, without being blind.
+ - I don’t know anybody that’s not emotionally unstable or schizophrenic.
+ - And deep in my heart. The answer, it was in me. And I made up my mind. To define my own destiny.
+ - You might win some, but you just lost one.
+ - My concept of successful living is escaping the matrix, as we’ve talked about. It has very little to do with what people think success is. I actually feel successful right now, even though I don’t have an album out, or a video or a song on the radio, because I’m trying to be obedient to His will.
+ - Tomorrow is always another day to make things right.
+ - Everything we do should be a result of our gratitude for what God has done for us.
+ - Everyone is in the same situation, at different levels and in different places.
+ - Reality is easy. It’s deception that’s the hard work.
+ - I was hopeless, now I’m on Hope Road.
+ - We should always be aspiring to know more, and to better ourselves, and to improve ourselves. To improve ourselves, because that’s how we improve the world around us, by working within us.
+ - Life is continued work. It’s constant learning. The whole concept of retirement I don’t even buy into. We should constantly be working. Maybe not physically working, but we could be spiritually, emotionally working toward bettering ourselves and bettering the lives of others around us.
+ - Never underestimate those who you scar.
+ - Let optimists rule the world.
+ - I get out, I get out of all your boxes.
+ - I was very active. I was always all over the place trying to do a million things, just into this activity. If you asked me when I was 14 what I wanted to be: “Activist, first, is my occupation. I am an activist.”
+ - I don’t want to be religious, I want to be spiritual. Anybody can be religious. Some people jog religiously. You don’t want to be that, you want to be spiritual. You want to have a relationship with God as opposed to doing what everyone else does.
+ - I find, even though it’s raining, I just go outside. I look outside and I’m just so blessed to see it and to experience it, because for such a long time I was just indoors.
+ - Whenever we submit our will to someone else’s opinion, a part of us dies.
+ - We can’t plan life. All we can do is be available for it.
+ - Tomorrow, our seeds will grow. All we need is dedication.
+ - You could get the money, you can get the power, but keep your eyes on the final hour.
+ - We have to make sure the music and the message and the words and all the elements come through in our songs and every time we appear in public.
+ - I don’t buy into that whole concept of success that I have this mountain with this moat around it and then I get into my big car and drive to my destination and never see people. That’s not my concept of success.
+ - I have hour spurts when I feel fine and I can walk normal and stuff, other hours, I’m wobbling. I feel like there’s somebody behind me kicking my legs out from underneath me. The whole tumor symptom thing is crazy. It’s unpredictable. It really messes with your life.
+ - Everybody has a choice. I am not here to shove my light down everybody’s throat. For those who don’t want it, I have nothing to defend.
+ - My concept of successful living is escaping the matrix...
+ - Tell me who I’ve got to be, to get some reciprocity.
+ - When I have a creative insight, there is a high. I think back in the day, I made music as much as I did because it made me feel so good. I think you could argue that there is a creative addiction – but, you know, the healthy kind.
+ - What was freely given to me, I freely give.
+ - It’s silly when girls sell their souls because it’s in.
+ - Nobody’s going to force me to do something against my will. What do I owe anybody that I should submit my will to them?
+ - That strong mother doesn’t tell her cub, Son, stay weak so the wolves can get you. She says, Toughen up, this is reality we are living in.
+ - If I’d known white people were going to buy my last album, I never would have recorded it.
+ - You improve yourself and light up the corner that you live on. You may not touch a gazillion lives, but you can light up your own space, light up your home.
+ - I don’t need anybody to market or promote me. If people don’t want to hear this music, then it’s not for them. You cannot please everybody.
+ - Whether Jew or Gentile, I rank top percentile.
+ - I keep letting you back in. How can I explain myself? As painful as this thing has been, I just can’t be with no one else.
+ - Love and this close-knit family structure really helped to give me the confidence. To know that you have family to go back to is a help. It doesn’t always happen biologically. Sometimes God gives you family in other forms, but I was very blessed. I have a very strong biological family.
+ - Once you compromise yourself in one way, you compromise yourself in another way. And you’ve just opened the door to compromise, mediocrity, settling.
+ - The sweetest thing I’ve ever known was like the kiss on the collarbone, the soft caress of happiness, the way you walk, your style of dress, I wish I didn’t get so weak, oh baby just to hear you speak, makes me argue just to see how much your in love with me.
+ - The sweetest thing I’ve ever known was like the kiss on the collarbone.
+ - I think the work ethic that was established in my family was something very important. If you plant the seed, if you sow sparingly and reap sparingly. If you sow in abundance you’ll reap in abundance.
+ - You don’t know how much artists go through to make it look so easy. It’s all in the practice.
+ - In my travels all over the world, I have come to realize that what distinguishes one child from another is not ability, but access. Access to education, access to opportunity, access to love.
+ - I had to confront my fears and master my every demonic thought about inferiority, insecurity, or the fear of being black, young, and gifted in this Western culture.
+ - I got moxie, I’m so damn cocky. Industry tried to block me like cops and paparazzi.
+ - Hip-Hop started out in the heart.
+ - Being young and female in America, you watch a lot of TV and you grow up on false images of what love truly is.
+ - To me that’s a reflection of love, when someone can see you enjoying yourself, and want to participate, or want to encourage, or want to help you to do something that you enjoy.
+ - Think black love, think universal love. Just think love.
+ - I was very confused. I didn’t understand the difference between rebellion against God and rebellion against the system that’s not God.
+ - The work is constant. There’s a time for rest, but I don’t believe in getting comfortable just because everyone says you’ve arrived.
+ - It’s emotional warfare telling the people we love, the most, the truth about ourselves.
+ - Place your attention 6 inches above your crown. God is breathing in and out there.
+ - Who you going to tell when the repercussions spin, showing off your ass because you think it’s a trend.
+ - My parents had a love for music. There were so many records, so much music constantly being played. My mother played piano, my father sang, and we were always surrounded in music.
+ - I’m trying to be a loving and caring mother, a loving and caring wife-to-be, a loving and caring daughter, a loving and caring friend, a responsible person. And every day is another opportunity for me to be successful at that.
+ - I tried to manipulate and control people, and I harbored resentment. I wanted to be forgiven, but I wouldn’t forgive others.
+ - Hip-Hop isn’t just music, it is also a spiritual movement of the blacks! You can’t just call Hip-Hop a trend!
+ - Every time that God navigates my ship, there’s nothing cerebral going on. There’s very little thought. It’s almost as if I have the directions. Every time I try to do it myself, I’m conjuring up my own concoction and trying.
+ - As long as I remember that the glory is His and not my own. When I confuse that, I get in trouble. We think that we glorify ourselves, and the object is to glorify God first, and in doing that you become glorified, you get glorified.
+ - We were all crazy about music and almost all the money we had, we spent for equipment.
+ - There are a lot of young black girls who I meet in my travels who don’t have a lot of self-esteem. So if I communicate to them that they’re beautiful, no white person should find fault in that. It doesn’t mean that young white girls aren’t beautiful, because they are just as beautiful.
+ - Never be afraid of not knowing. Find out.
+ - Sometimes we all need to take time and give thanks.
+ - In my family, there was not an abundance of wealth, but there was an abundance of love. So there was always humor, and there was joy and there was comfort and there was this environment just to have a good time.
+ - As artists, we have an opportunity to help the public evolve, raise consciousness and awareness, teach, heal, enlighten and inspire in ways the democratic process may not be able to touch. So we keep it moving.
+ - From the time that you are a child, you grow up repressing yourself.
+ - I wouldn’t try to put myself in a box or put God in a box.
+ - In my life the most influential people are people who are sort of brought to me, as opposed to people I seek out.
+ - And what you need ironically. Will turn out what you want to be. If you just let it.
+ - God surrounded me with the right team, with the team that I needed to help me exercise all of my ideas. You need that. You need that army, you need that force.
+ - It’s funny – more people talk about my ‘babe-dom’ now than they did before I had a child. Whatever. I guess I’m a role model in hot pants now. That’s cool!
+ - I’m making music for other people to listen to for pleasure. And hopefully, later on maybe they’ll listen to it and go, “That bass line, boy, did you hear the way those drums interacted with that?”
+ - When I was working, and when I was making substantial amounts of money, I always filed and paid my taxes. This only stopped, when it was necessary to withdraw from society, in order to guarantee the safety and well-being of myself and my family.
+ - Everything takes place in a season. There was a season when that’s all I did was listen to the music. Now I’m just in a place where I don’t listen, I create. And if I do listen there are specific things that I listen to, and for specific reasons.
+ - Just because I have a guitar, it doesn’t mean that changes me. I still rhyme, I still sing.
+ - I can give away everything I posses, but am without love, and I have no happiness.
+ - I had an economic system imposed on me.
+ - I try not to have a day pass where I don’t read something from the Bible. It’s like my sustenance to me.
+ - We have these images, these icons before us that are not reality.
+ - I was unhappy with my life. I had acquired everything I thought I wanted, only to find out, This is it?
+ - From the first time someone says, Who do you think you are? we learn how to repress.
+ - I rarely listen to the music for the sheer pleasure. I’m listening for the tool, I’m listening for the instrument, I’m listening for the art.
+ - We think the man with the best rap will protect and save us, but it’s not usually that way. Love is something deeper and purer.
+ - Every day is a lesson in focus for me, and not buying into the world’s concept of what you have to be. I really try every day to be individual and not just in my style or my look or my music, but in my approach to life.
+ - I hope that by people seeing the result of freedom that they’ll want some, too.
+ - We’ve got to protect the music and make sure it never gets exploited.
+ - We call ourselves creators and we just copy.
+ - To those supporters who were told that I abandoned them, that is untrue. I abandoned greed, corruption, and compromise, never you, and never the artistic gifts and abilities that sustained me.
+ - I have a problem with procrastination. I have a great deal of difficulty deciding what to wear. It’s a woman thing.
+ - Over-commercialization and its resulting restrictions and limitations can be very damaging and distorting to the inherent nature of the individual. I did not deliberately abandon my fans, nor did I deliberately abandon any responsibilities.
+ - I got into direct confrontation with everybody I love.
+ - I went to Jamaica for six months, and in Jamaica there was a lot of stillness.
+ - Real religion is no religion at all.
+ - I know there are certain gifts that each of us have. The gifts you don’t have to worry about so much, because God gave them to us. It’s the living, it’s the life, it’s the now.
+ - Our podium is the music. It’s really important that we stay focused, because things become misconstrued in the media.
+ - Now you are meeting another Lauryn, so it’s good to be reintroduced.
+ - If the entire week is a battlefield, reading the Bible is sort of like that parachute with the box of reserves that come in the middle of the war: food and water and the toothbrush and toilet paper.
+ - The less I have, the freer I am to do whatever I want to do.
+ - I am just beginning to be more comfortable with my identity.
+ - I need to be surrounded by people as passionate and as dedicated as I am.
+ - I don’t listen to a lot of music at all. I think that’s very bizarre too, because it was such a comfort zone for me. But I don’t know if I had my fill, but I don’t listen to a lot of music, because I’m creating it.
+ - I think what people are attracted to about me, if anything, is my passion. People got exposed to my passion through music and song first.
+ - I get really afraid of those little comforts, those things that make us feel like we did something great, because I’ve done nothing. I’ve done nothing. I mean that sincerely.
+ - The danger I faced was not accepted as reasonable grounds for deferring my tax payments, as authorities, who despite being told all of this, still chose to pursue action against me, as opposed to finding an alternative solution.
+ - If you love something and if you’re committed and diligent – the things happen!
+ - God teaches me about reality, so when he tells me to do something, I do, because I’m led to.
+ - The honor to me has less to do with the award. To me that translates in the relationship that I have with the audience, and if my music is helpful to them, that’s the award.
+ - My mother has all my awards, because if I walked downstairs every day and saw all my achievements it would be so easy to become complacent.
+ - If I never won a Grammy, I would be satisfied, if in fact I could help people. I don’t say that because it sounds like something cool to say.
+ - A lot of us are too busy focusing on what we think people want to hear, as opposed to just saying what’s in our hearts.
+ - When you’re young and everything dramatic is exciting, you start to believe that hype that, in order to be an artist, you have to suffer. I’ve graduated from that school.
+ - God said, All right, I’m gonna show you. I made you what you are. God takes care of me. I’m just the one who delivers the message.
+ - I started to see that my concept of spirituality was totally wrong.
+ - I sit here before you trying to figure out how to pay a tax debt? If that’s not like enough to slavery, I don’t know.
+ - I didn’t have that intense ambition to be a musician or an actress. I just enjoyed it. And by enjoying it, because I loved it, it enabled me to get better at what I was doing, because there was a love behind it.
+ - Don’t be a hard rock when you really are a gem!
+ - I ran very fast in the wrong direction.
+ - Our first album was a stupid mistake by the record company. They tried to sell us as an alternative act. A big mistake!
+ - We should constantly be aspiring to reach higher and higher and higher. We should never be comfortable where we are.
+ - It could all be so simple, but you’d rather make it hard, loving you is like a battle, and we both end up with scars.
+ - The only help I need to live, is unprofessional. The only wealth I have to give, is not material. And if you need much more than that, I’m not available.
+ - I never did anything I’m really ashamed of.
+ - I like a brother that cuts to the chase.
+ - I’ve leaned on God for so long. “Hey, God, you just gave me this gift, and I’m just going to go out there and sing.” But I’m realizing how much larger and how expansive my gift becomes when I actually pay attention to it and try to practice and try to perfect it.
+ - I am no longer going to become a fictional character to please people. That’s too much work.
+ - I wouldn’t even hold my kids sometimes because I didn’t want them to spit up on me when I was dressed for an awards show.
+ - Heart, Desire, and Intensity and those have been the three words I kind of latched onto.
+ - With the things that I love, I tried to put a couple seeds, a bunch of seeds in the ground and see what sprung up. Sometimes it was acting and sometimes it was music. But whatever it was I continued to plant.
+ - We don’t want people to have expectations of us, but then we have expectations of everybody else.
+ - You say, Wait a minute, God, you spared me from a slave job in an office, and now I have a slave job onstage. I am not on that clock no more.
+
+152 quotes

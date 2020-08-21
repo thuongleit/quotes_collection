@@ -1,0 +1,25 @@
+ - Human capital will go where it is wanted, and it will stay where it is well treated. It cannot be driven; it can only be attracted.
+ - Information about money has become almost as important as money itself.
+ - Failure is not a crime. Failure to learn from failure is.
+ - Capital goes where it is welcome and stays where it is well treated.
+ - All of life is the management of risk, not its elimination.
+ - The information revolution has changed wealth. Intellectual capital is far more important than money.
+ - The guy with the competitive advantage is the one with the best technology.
+ - Risk is not a dirty word.
+ - The person who figures out how to harness the collective genius of his or her organization is going to blow the competition away.
+ - If we had a truth-in Government act comparable to the truth-in-advertising law, every note issued by the Treasury would be obliged to include a sentence stating: This note will be redeemed with the proceeds from an identical note which will be sold to the public when this one comes due.
+ - It is a maxim of cryptology that what one man can devise, another can unravel. This principle keeps armies of tax lawyers and accountants employed, but adds nothing to our national productivity.
+ - A country does not go bankrupt.
+ - Rising prices or wages do not cause inflation; they only report it. They represent an essential form of economic speech, sincemoney isjust another form of information.
+ - The Doomsayers have always had their uses, since they trigger the coping mechanism that often prevents the events they forecast.
+ - When you retire you go from Who’s Who to Who’s That?
+ - Banking is a branch of the information business.
+ - As long as capital-both human and money-can move toward opportunity, trade will not balance.
+ - All the Congress, all the accountants and tax lawyers, all the judges, and a convention of wizards all cannot tell for sure what the income tax law says.
+ - Every line in the government’s budget has its own constituency.
+ - The greatest testimony to the human spirit that I’m witnessing now is the fact that people still come back to work, after all that has been done to them. They are still willing to participate for a more positive future if they would be sincerely invited.
+ - One man saying that everything is wrong can command coast-to-coast attention in living color, a power not given to an absolute monarch a century ago.
+ - Capital goes to where it can escape taxation and be used to pay employees in sacks of rice.
+ - There’ll be a growing disparity between economics and politics. An economy that grows so rapidly is intractably global. On the other hand, the current political system is intractably national. So there is a growing dichotomy between a global economy and locally based politics.
+
+23 quotes

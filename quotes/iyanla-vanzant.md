@@ -1,0 +1,302 @@
+ - The way we do one thing is the way we do everything.
+ - Gratitude is like a magnet; the more grateful you are, the more you will receive to be grateful for.
+ - Everything happens when it needs to happen; everyone is always where they need to be. You will never miss out on what is meant for you, even if it has to come to you in a roundabout way.
+ - When you stand and share your story in an empowering way, your story will heal you and your story will heal somebody else.
+ - When the time comes for you to make a change or to grow, the universe will make you so uncomfortable you will eventually have no choice.
+ - Feminine power is silent, dark, mysterious, healing, nurturing. A woman can walk into a room and control it. She doesn’t even have to open her mouth if she knows where her power is.
+ - Life will let you get away with something for a while, but sooner or later, you will pay the price. Everything you do in life causes the effects that you experience. When you get the bill, be prepared to pay.
+ - Family is supposed to be our safe haven. Very often, it’s the place where we find the deepest heartache.
+ - When you don’t show up as who you are, people fall in love with who you’re not. Then when they find out who you are, that’s when they leave.
+ - If you don’t have a vision you’re going to be stuck in what you know. And the only thing you know is what you’ve already seen.
+ - I’m okay, you’re okay. Now let’s go to work.
+ - No storm can last forever. It will never rain 365 days consecutively. Keep in mind that trouble comes to pass, not to stay. Don’t worry! No storm, not even the one in your life, can last forever.
+ - Comparison is an act of violence against the self.
+ - Everything that happens to you is a reflection of what you believe about yourself. We cannot outperform our level of self-esteem. We cannot draw to ourselves more than we think we are worth.
+ - I am just an ordinary person committed to doing extraordinary things.
+ - Stay in your car in your lane on your road in your world. Stay in your own lane. Don’t be minding other people’s spiritual business. Stay in your car. In your lane. On your road. In your world.
+ - Use your time, energy and talents to do the best you can right now. Spend no time wishing it were better.
+ - The way to achieve your own success is to be willing to help somebody else get it first.
+ - If it’s not your story to tell, you don’t tell it.
+ - Be patient with yourself. Be gentle with yourself. Know that all things are working in your favor. If you take one step toward the light of Spirit, Spirit will take five steps on your behalf.
+ - People you don’t love can’t hurt you.
+ - We set the standard of how we want to be treated. Our relationships are reflections of the relationships we have with ourselves.
+ - Do what brings you joy, and your purpose will unfold.
+ - Your willingness to look at your darkness is what empowers you to change.
+ - You have to meet people where they are, and sometimes you have to leave them there.
+ - I now know that nothing in my life will change until I change the way I see my life and myself.
+ - You are the light of the world. You are an instrument of the Divine. You are the greatest miracle in the world. Life is graced by your presence.
+ - If you don’t enjoy your life, sorrow, sadness, suffering, fear, shame and guilt will.
+ - The best students get the hardest lessons.
+ - Know thyself. Accept thyself. Love thyself. No matter what you have done, where you have been, know, accept, and love who you are.
+ - Do not be afraid to experience your emotions; they are the path to your soul. Emotions erupt to remind us we are alive, that we are human. And to let us know we are growing. Trust yourself enough to feel what you feel.
+ - It’s important that we share our experiences with other people. Your story will heal you and your story will heal somebody else. When you tell your story, you free yourself and give other people permission to acknowledge their own story.
+ - It’s time for you to move, realizing that the thing you are seeking is also seeking you.
+ - You’ve got to be willing to lose everything to gain yourself.
+ - Love people enough to tell them the truth and respect them enough to trust that they can handle it.
+ - Loving yourself has nothing to do with being selfish, self-centered or self-engrossed. It means that you accept yourself for what you are. Loving yourself means that you accept responsibility for your own development, growth and happiness.
+ - I am not my sister’s keeper. I am my sister.
+ - Just for today, allow yourself to embrace all that you are every moment. Know that you are a vessel of light. Allow yourself to release all doubts about your ability, the mistakes of the past, the fear of the future.
+ - The only way to get what you really want is to let go of what you don’t want.
+ - If you are afraid to take a chance, take one anyway. What you don’t do can create the same regrets as the mistakes you make.
+ - I have a body, but I am not my body. I have a face, but I am not my face.
+ - Accept and acknowledge your own brilliance. Stop waiting for others to tell you how great you are! Believe it for yourself and about yourself.
+ - To honor life, we must be willing to grow through what we don’t know yet, and outgrow what we know no longer fits us. We must be willing to give in to the process, moment by moment, realizing a new plot may be unfolding.
+ - Criticism does not make you smarter or better than the one you are criticizing. In fact, the stuff you are critical of in others is the same stuff you don’t like about yourself.
+ - A man who is not accountable to anyone is a danger to himself.
+ - Until you heal the wounds of your past, you will continue to bleed.
+ - If you see crazy coming, cross the street!
+ - Planning is the only way to keep yourself on track. Plan your moments to be joyous. Plan your days to be filled with peace. Plan your life to be an experience of growth. When you know where you are going, the universe will clear a path for you.
+ - When you are in alignment with the desires of your heart, things have a way of working out.
+ - Your divine mate already exists. When you get to the place in yourself that is peaceful divine love, your true mate will be revealed.
+ - You work for God Incorporated.
+ - Today, I choose awareness. I choose to be aware of the beauty of life and living. I choose to be aware of the simple pleasures in life. I choose awareness of joy, awareness of peace, and awareness of love.
+ - When you can tell the story and it doesn’t bring up any pain, you know it is healed.
+ - Trying to prove something to someone is never a valid reason for doing anything.
+ - Right where you are is where you need to be. Don’t fight it! Don’t run away from it! Stand firm! Take a deep breath. And another. And another. Now, ask yourself: Why is this in my world? What do I need to see?
+ - You set the standards for how you will be treated. People will treat you the exact way you treat yourself. So be good to you. Take time for yourself. Rest. Play. Shower yourself with affection, support, and gifts.
+ - Always remember who you are. Know that you are never required to apologize to anyone for being yourself.
+ - Challenges come so we can grow and be prepared for things we are not equipped to handle now. When we face our challenges with faith, prepared to learn, willing to make changes, and if necessary, to let go, we are demanding our power be turned on.
+ - When your way doesn’t work, don’t be disheartened. You must be willing to try another way. A closed door doesn’t mean you have been cut off permanently. It is a challenge, an obstacle, a tool to be used.
+ - Don’t get hung up on the hard times, the challenges. Tell your story by highlighting the victories. Because it’s your victories that will inspire, motivate, encourage other people to live their stories in grander ways.
+ - Everyone has a purpose because God is a purposeful God.
+ - You will stumble at time, forget what you want, fall headfirst into your old habits and beliefs. Fear not! Always remember to be patient and loving with yourself and others because that is what God does all the time.
+ - You are the only one who can do it like you do it. You are the best. You have what it takes. You have the power. When you put your mind to something, you get it done. So what are you waiting for?
+ - We can think, speak, and bring the best possible outcome into existence by focusing on where we are going, not on where we think we are.
+ - Parents are teachers, guides, leaders, protectors and providers for their children.
+ - You have a right to your thoughts and feelings. Your feelings are always valid.
+ - All things are lessons that God would have us learn.
+ - The remedy for life’s broken pieces is not classes, workshops or books. Don’t try to heal the broken pieces. Just forgive.
+ - You can accept or reject the way you are treated by other people. But until you heal the wounds of your past, you are going to bleed.
+ - We have a tendency to always test people’s love. ‘I want to see how badly I have to behave before you’ll leave me. Because I don’t really think you want me anyhow.’
+ - Black Girls rock because we have no other choice.
+ - You cannot experience the fullness of your authentic self or life when you live to avoid hurt. You will never know the joy of love or the peaceful satisfaction of being loved if you hide from hurt.
+ - Education does not take place when you learn something you did not know before. Education is your ability to use what you have learned to be better today than you were yesterday.
+ - Have the courage to be exactly who you are without apology. Admit your mistakes without beating yourself up. Release all shame! Release all guilt! You cannot live if you are hiding behind what was. Focus on what is, right now, and that is you!
+ - I am the one I have been looking for.
+ - In my mind, marriage is a spiritual partnership and union in which we willingly give and receive love, create and share intimacy, and open ourselves to be available and accessible to another human being in order to heal, learn and grow.
+ - In speaking the truth of your experience to another, it will serve you well to realize that how they choose to respond is not your responsibility.
+ - Once you get clear on who you are, what you do, and what you have been CALLED to do, you become powerful.
+ - The goal isn’t to be perfect, but to be authentic!
+ - When you’re the strong one, people don’t give you permission to hurt.
+ - Tell the truth about who you are, what you feel, what you want, what you’re up to. Tell the truth about that first to yourself and then to anybody else that’ll listen.
+ - You must find the strength to open the wounds, stick your hands inside, pull out the core of the pain that is holding you in your past, the memories, and make peace with them.
+ - No matter how painful your past has been, you have made it through.
+ - Sitting alone, listening to the sound of your breath, the beating of your heart is a reminder that you are sacred and blessed.
+ - Love is not all that is required in a relationship. It needs understanding, openness, kidness, patience, long-suffering.
+ - When you give to others to the degree that you sacrifice yourself, you make the other person a thief.
+ - Religion is the rules, regulations, ceremonies and rituals developed by man to create conformity and uniformity in the approach to God. Spirituality is God’s call in your soul.
+ - Every day is your day if you claim it.
+ - Authenticity means that you must do what you do the way you do it and allow everyone else the same courtesy.
+ - It is important to acknowledge all your feelings and not beat yourself up for having them. Your feelings are not good or bad, they just are.
+ - My vision is to elevate the consciousness of humanity one mind, one heart, one life, one spirit at a time. They are married.
+ - Anger simply means that your personal power – your personal space, your personal sense of being – has been violated.
+ - If someone has offended you, insulted you, or disappointed you, let it go! If you are remembering all the ways you have been hurt or forgotten, let it go! Ask yourself, what good does it do for me to hold on to this?
+ - What will support any relationship is clear, complete and conscious conversations when upsets or breakdowns occur.
+ - When two broken people bring their broken pieces together, chances are they will never become a whole anything.
+ - Lives fall apart when they need to be rebuilt.
+ - You can direct the outcome of any situation you face through the power of thought. Keep your thoughts focused on the best possible outcome for everyone involved and never allow yourself to be pushed where you don’t choose to be.
+ - Love is the voice of God whispering to you from within yourself.
+ - Dear God, Please untie the nots. All of the can nots, should nots, may nots and have nots. Please erase from my mind the thoughts that I am not good enough.
+ - I’m focusing on healing lives and teaching people that they can heal – giving them tools to heal.
+ - The thing I always tell my audiences all the time is that I’m just two steps ahead of you on a good day. And I might be two steps behind you on a bad day.
+ - When we pray, it opens our minds to the divine consciousness of God. Prayer opens your mind to answers that have always been present.
+ - No whining, no complaining about anyone. Everybody in your life has come to teach you lessons.
+ - People may not like what you do, people may not like how you do it, but these people are not living your life. You are!
+ - The voice I had accepted as Divine Guidance was actually the voice of my ego leading me right into destruction.
+ - I let go of the past and choose to accept every situation as being for me and not against me.
+ - If you don’t have a test, you won’t be able to have a testimony.
+ - Each of us was born to fulfill a divine purpose. As we open our hearts and minds to a new way of being, the purpose of our lives unfolds organically.
+ - If you want peace, be peace. If you want wealth, be wealth. Think it. Talk it. Prepare yourself to have it. Have faith enough to seek guidance and authority from within.
+ - Be aware that who you are and what you have to offer can be a beacon to some lost soul.
+ - One thing that prevents a man from being a good father is he hasn’t completed being a boy.
+ - To me, freedom means having the power, the inherent right, the capacity and the ability to make choices that honour who I am.
+ - Change doesn’t have to be hard, and healing doesn’t have to hurt. Surely by now you know that every thing happens for a reason! There is something better awaiting you on the other side of this.
+ - You know why the road curves as you’re driving along? It curves because if God showed us the distance from where we are to where we’re going, we’d think it was too far.
+ - In all relationships, regardless of their nature, there comes that moment when you understand that there are some things you will never understand. When you are standing in that moment, just be right with it.
+ - There are two emotions: love and fear.
+ - When you find yourself in a new situation, everything that requires healing is going to rush to the surface.
+ - Learning to trust yourself and what you know takes time and work. You cannot expect to eradicate a lifetime of misguided information overnight. You must make a continuous, conscious effort to get on good terms with you.
+ - What looks like a failure teaches us what not to do, what does not work. We have lessons to learn from our experiences.
+ - Stuff your feelings because feelings buried alive don’t die. And that fear or that upset or that anger or that whatever it is, it’ll turn into something inside of you. So you want to get it out.
+ - Pain is pain, hurt is hurt, fear is fear, anger is anger, and it has no color.
+ - You must be willing to give total unconditional love to everyone, under all circumstances. That means being willing to be totally responsible for what you do and how you do it.
+ - Who you are is strong enough to bare your pain.
+ - Our beliefs are what create our experiences. As we change our beliefs, we alter our perception, our version of reality.
+ - Listen for the instruction, instead of begging for the direction.
+ - Choice is our point of power.
+ - If you want a real experience of serenity, look for the good. Affirm the good. Acknowledge the good.
+ - You are always being prepared for something better or protected from something worse.
+ - Transformation doesn’t have to be deep, dark and mysterious. If you screw up, fine – laugh at yourself, learn and move on.
+ - When you make a decision and a commitment to do something good for yourself, it is like dropping a pebble in a pond. It has a rippling effect. The firmer the decision, the stronger the frequency and wider the range of things that will be reached.
+ - We must each learn to feel comfortable in our own uniqueness by rising above the fear of being wrong and the aversion to being different.
+ - Everything God does is purposeful. And since God is in each of us, each of us has a purpose.
+ - When you refuse to pay attention to what life is saying to you, life will make its point very clear. Life wants us to be aware of ourselves so we can make the necessary adjustments in order to live more harmoniously.
+ - Everybody does not have to like you. That is not their job. Liking you is not anyone’s purpose in life except yours.
+ - One of the ways that people avoid taking responsibility for their role in their own pain is what I call the BPs – blame and projection.
+ - I’ve seen the good, the bad, and the ugly. Lived it and I’m still here to talk about it and help someone else if I can.
+ - Some of us pray demands. Some of us pray complaints. Some of us pray knowing, and some of us pray not knowing. But prayer is the attitude that you hold in your heart.
+ - You are not being tested! You are being fortified! Remember, you cannot fail!
+ - The only thing that goes on in your life is what your allow to go on in your life.
+ - Breathing deeply and releasing fear will help you get to where you want to be.
+ - Wherever your gift is, that’s where it’s going to be your greatest challenge.
+ - Be willing to share all of who you are. So many of us want a partner, but we’re not willing to show all of us.
+ - Yesterday, I cried. I came home, went straight to my room, sat on the edge of my bed, kicked off my shoes, unhooked my bra, and I had myself a good cry.
+ - Sometimes on the journey, you step in dog poop. But you don’t let the whole journey be about the fact that your shoe got poop on it.
+ - If you don’t like your sister or don’t get along with your father, let’s find out if you like yourself. Let’s not sugarcoat anything about it.
+ - Beloveds, you are fine, just the way you are! Perfect in your imperfection! You are divine! Growing brighter and more brilliant each day, you can accept the truth of who you are.
+ - Never underestimate the ruthlessness of the ego to keep you in a state of suffering in which you voluntarily participate.
+ - The show is ‘Fix My Life!’ Get it? Life. I do not fix people.
+ - You are never angry for the reason you think you are. There’s an older hurt under that.
+ - You can never love anyone to your own detriment. That is not love, that is possession, control, fear, or a combination of them all.
+ - I must have decided wrongly, because I am not at peace.
+ - Life gives you an endless supply of do-overs.
+ - When we have peace in our hearts and minds, we draw peace into our lives.
+ - You are demonstrating to men that they can come back and get their kids. All of those fatherless sons and daddy-less daughters and the men who didn’t know how to go back, you are demonstrating to the world that they can.
+ - Forgive yourself for believing that youre anything less than beautiful.
+ - You know that you’ve healed an issue when you can talk about it and you’re not weeping, when you can speak to it and identify the lesson. You know that you’ve healed an issue when, having gone through that, has a benefit that you live today.
+ - Never judge your clarity based on someone else’s response.
+ - When someone entrusts their heart to you they are giving you a piece of their soul. You cannot treat the soul casually. You must protect, nurture and handle it with care.
+ - Choice is a divine teacher, for when we choose we learn that nothing is ever put in our path without a reason.
+ - Your eyes will adjust to the level of deficiency.
+ - Talk about your negative experiences with the father, with your girlfriends. Not with your children. And bite your tongue when it comes to diminishing, denying, dismissing, name-calling.
+ - When you can look a thing dead in the eye, acknowledge that it exists, call it exactly what it is, and decide what role it will take in your life then, my Beloved, you have taken the first step toward your freedom.
+ - If you should encounter angry or unkind actions today, take a deep breath, reach deep within and greet the lack of love with love.
+ - All relationships have the same basic components: people, needs, and expectations.
+ - You’re never healing the level you’re on. You’re always healing the level you came from. For example, you know things today that you didn’t know in your first marriage.
+ - Until you are willing to accept total and complete responsibility for every aspect of your life, your life will keep sending you experiences designed to get your attention.
+ - We must learn not to give up when requirements are not met or when commitments are broken. To do so is a refusal to allow mistakes to be corrected and a demonstration of an unwillingness to forgive yourself or anyone else who needs forgiveness.
+ - What is it that would make a creature as fierce, majestic and powerful as a lion is, subject itself to the intimidation of a man a whip and a chair? The lion has been taught to forget what it is.
+ - We cannot outperform our level of self-esteem.
+ - I came from nothing. I came from the projects and welfare and ended up a millionaire with no frame of reference. I was bound to hit a wall sooner or later.
+ - Gossip is when you have a malice of intent or mindless, third-party conversation to someone about someone, something you haven’t said to that someone.
+ - The beloved is one who nurtures you, trusts you, supports you, encourages you, loves you without conditions. That’s you.
+ - Sooner or later, we must all accept the fact that in a relationship, the only person you are dealing with is yourself.
+ - Why can’t women get along? Because we’re afraid. We’re afraid to be vulnerable. We’re afraid to be soft. We’re afraid to be hurt. But most of all, we’re afraid of our power. So we become controlling and aggressive and vicious.
+ - You do not have to love what is going on in your life, but you must accept that it, whatever it is, is going on. As long as you do not accept reality, you are powerless to define the role you will play.
+ - Give yourself permission to smile a lot today. In fact, why not make it a habit!
+ - When you gossip, it’s self-hexing. Because when you do it, it comes back to you. Everything starts with the word. The word is demonstrating a condition of the mind. If it’s in your mind and comes out of your mouth, it will be created.
+ - We think we have to do something to be grateful or something has to be done in order for us to be grateful, when gratitude is a state of being.
+ - Our minds work like a garden. It is fertile ground that accepts any and everything we plant. Good or evil, constructive or destructive, our lives will bear the fruit of the seeds we plant in our minds.
+ - When we want to move beyond the pain, when we want to feel better, when we are ready to move beyond where we are, emotionally and spiritually, we must forgive.
+ - Everything you have done and been through is valuable and important. In order to be who you are, to know what you know, to be where you are in this moment, you needed to go through what you went through.
+ - Until you make peace with your difficult memories, that pain will continue to bleed into your current and future experiences.
+ - You must be willing to examine and explore your dark side. You must acknowledge how bad you can be and how horribly unloving you can behave. When you know how deep and dark your dark side is, it helps you stand a little taller in the light.
+ - I gave myself permission to feel and experience all of my emotions. In order to do that, I had to stop being afraid to feel. In order to do that, I taught myself to believe that no matter what I felt or what happened when I felt it, I would be okay.
+ - Why do we hold onto negativity? For some reason, we believe that others are affected by our experience of remaining upset, hurt or angry. Holding on to pain, anger, guilt or shame is the glue that binds us to the situation we want to escape.
+ - Life doesn’t actually knock you down. It does, however, provide you with many opportunities to evaluate your standing in life: what you stand on, what you stand for, how you stand within yourself and for yourself.
+ - I see a couple of things missing. Any society, any community, even in the family, when the elders don’t do their jobs, the youth suffer. We have no done our job. I’m saying anybody 55 and up. We didn’t teach people the basic things.
+ - One way to eliminate self negating thoughts and behavior is by gaining more understanding through realizing that you cannot force others to see that what you feel is real.
+ - Remain open. There is something bigger than you know going on here.
+ - Forgiveness is not about the other person or what they did. Forgiveness is for YOU and about YOU.
+ - Challenges come so we can grow and be prepared for things we are not equipped to handle now.
+ - It’s about your heart and about your consciousness. It’s not about length of time you pray. Some of the most powerful prayers I’ve ever heard come from children, who can barely speak.
+ - Acceptance means that you know, regardless of what happened, that there is something bigger than you at work. It also means you know that you are okay and that you will continue to be okay.
+ - Some children do what they’re told to do; some children do what they’re told not to do; all children do what they’re parents have done.
+ - Everyone is always looking for their beloved. Well, why can’t you be your own beloved? Fall in love with yourself.
+ - A man can’t be in the space where there is feminine rage and bitterness. He doesn’t know how to navigate it.
+ - When you continue to give without receiving, the only thing you are proving is that you know how to be taken advantage of.
+ - I think most people think that a spiritual path or growing spiritually means that all of a sudden you’ll be able to forecast the six lotto numbers and all your bills will be paid.
+ - Your interests will guide you. Give no concern to what they say you cannot do. Be willing to accept the challenge. Take time to retreat to that quiet place within the pit of your soul and unleash your right to decide what is best for you.
+ - Respect you love one enough to know thay can handle your truth.
+ - The only energy that has any power in your life is the gift of breath from God.
+ - My father never kissed me, hugged me or told me that he loved me. As my only living parent, he became the filter through which I saw myself, the possibilities for my life, the world and all men. He was a conflicted and dark filter.
+ - Regardless of how hard, challenging, frightening, or difficult an experience may seem, everything is just as it needs to be in order for us to heal, grow, and learn.
+ - So many of us invest a fortune making ourselves look good to the world, yet inside we are falling apart. It’s time to invest on the inside.
+ - Instead of running from what you don’t want, walk with commitment toward what you desire. Focus on where you are going rather than being obsessed with where you have been.
+ - It is not your duty or responsibility to change the minds of other people. The nature of their thinking is advanced or limited by their experience. In your presence, they have an opportunity to learn about you and, perhaps, to grow.
+ - When was the last time you thanked you for always being there for you? Self appreciation soothes an aching soul.
+ - Till your mental soil with determination. Fertilize your emotional soil with positive words. And plant the seed of your heart’s desire with your disciplined efforts.
+ - Abundance is a direct reflection of your preparation to live abundantly. People who are ready for abundance keep their heads up, their eyes open and give thanks for everything they get.
+ - If you heart had a voice, Beloved, what would it say?
+ - Spirituality is not about what you know. It is about growing, deepening, evolving and becoming a living reflection of your spiritual identity.
+ - This is probably one of the most difficult challenges any parent could face – learning to love the other parent enough to make the children first.
+ - From speaking with my mother I learned that forgiveness is a process that begins with the choice to end your own suffering.
+ - I believe that the only thing that will dispel the darkness is for the light to come on. And the lights are coming on. Here, there. People are eating more vegetables, living green, taking in and saving animals. All of that is the light coming on.
+ - We’re all in prison. All of us are in prison, but some of us have a key.
+ - Fear wears so many clever disguises it is virtually impossible to always recognize it. Fear disguises itself as the need to be somewhere else, doing something else, not knowing how to do something or not needing to do something.
+ - It is not what you hear, it is where you listen from within yourself that gives meaning to the message.
+ - Anything that threatens, hinders, obstructs, denies, delays your capacity to stand fully up for yourself, within yourself, take it down.
+ - Before you find out who you are, you have to figure out who you aren’t...
+ - You’re making it about them. This has got about you, because you don’t have peace.
+ - When your life is working there will be an absence of drama.
+ - I surround people in unconditional acceptance and love to such a degree that everything that is unloving about them rises to the surface.
+ - Just give yourself permission to tell the truth to yourself.
+ - Everything we experience-no matter how unpleasant-comes into our lives to teach us something.
+ - Faith without challenge is nothing.
+ - I was sitting on the bus, and the sign said if you’re ready to better your life, come to Medgar Evers College, and I got off the bus and went to Medgar Evers College.
+ - I have a daily message, ‘Stimumail,’ which I use to stimulate the mind and heart. I have the opportunity to touch over 60,000 people I have never met. I also use Twitter and Facebook.
+ - Truth is love’s mother, and we all know it is not wise to lie to anyone’s mother.
+ - Forgiveness leads to a shift in perception. It transforms the hurt into healing.
+ - Every choice you make supersedes and overrides every other choice you make.
+ - I really don’t have any weaknesses. I do have areas of my life that I am working on to grow, heal and evolve. Giving myself permission to rest is an area I am working on. Not rescuing my children and grandchildren is another area.
+ - The life you want is on the other side of the labor pains it takes to birth it.
+ - In 2002, my daughter was diagnosed with a rare form of colon cancer. And it was such a shock, a surprise to us.
+ - The ego does not want to be wrong, ever.
+ - We voluntary participate in things that we know are causing us harm because we believe we’re powerless to do anything about it.
+ - At birth, we are like cartilage – soft, flexible tissue. By the same natural process by which cartilage becomes hard bone, the soft, tender heart of an innocent child can become hardened by the circumstances into which she is born.
+ - I now realize that just because you can take a punch does not mean you must stand in front of a fist, particularly not when the fist is your own.
+ - If you’re not willing to let your partner see your cellulite or know your biggest fears, then you aren’t really ready to share yourself.
+ - You really have to learn what you’re good at and what you’re not good at, what you can handle and what you can’t handle. We have a tendency to forget it.
+ - I’ve always told the truth. I think that’s been part of the foundation of my career. I don’t put myself above people. I don’t put myself different than people. And I, for one, know that none of us is immune.
+ - What keeps us from achieving our heart’s desires is not anything outside of us, it’s the conflict inside.
+ - Every day is your day if you claim it. If you wait for somebody else to make it for you, you’re going to be disappointed.
+ - Many of us have a need to be right. We then set out to make ourselves right by making someone else wrong. We must get right with ourselves. Once we do, we will have so much to do, we will not have time to keep track of who is wrong.
+ - People are hurting. People are suffering. But you can not get everywhere.
+ - When anyone makes comments that are offensive to you, would you be willing to do the teaching?
+ - The key to success is not what you do, it is how you feel about what you are doing.
+ - Without the a test you don’t have a testimony.
+ - When you believe, or are led to believe, you are unable to act upon the greatest desires of the soul, the result is mental and spiritual enslavement.
+ - You can’t just cry about the pain. You can’t just pray about the pain. You must eliminate the pain.
+ - Spiritual consciousness does not make your problems go away; it does, however, help you view them from a different vantage point.
+ - You’re demonstrating a courage that most people can’t even fathom: giving it all away in order to have yourself.
+ - What would it take for you to forget all your troubles? Are you willing to simply forget all your troubles today? When you remove your attention from a problem, it gets bored and moves away!
+ - Embrace the truth. Speak the truth. Be the truth. When we welcome the truth, we live our lives like it’s golden.
+ - Why are you measuring? This is how you block, delay, hinder, obstruct and deny his place in the life as a father.
+ - There is a lot of healing going on. Really! More people are vegetarians, more are in the green movement, more of us are tearing down the old paradigms and embracing same-sex marriage, single motherhood, men raising babies.
+ - We make our days pleasant or miserable. If we insist on being miserable, irritable and nasty, more than likely the day will give us exactly what we give it. A day is too valuable to waste on misery and unhappiness.
+ - Most of us know exactly what it is that creates the pain, confusion, stagnation and disruption in our lives. When we find something or someone creating in our lives that which we do not want, we must muster the courage and strength to stop it.
+ - With all things in life, we do not get what we ask for, we get what we expect.
+ - I don’t think there’s such a thing as a selfish prayer. Prayer puts you in communication so you can talk about whatever you want to talk about.
+ - Had I not spent so much time doing something that made me so miserable, I would have never learned how to appreciate doing what brings me joy.
+ - You never put her in your heart.
+ - When do you feel most loved? Are you willing to be loved today? Self-love is the magnet that attracts deep and profound expressions of love from others.
+ - As we learn to see each other through our spiritual eyes, the physical differences will cease to matter.
+ - Everybody’s got a ‘thing.’ Some ‘things’ are nice and quiet. Some ‘things’ have fangs and claws. Some ‘things’ stink and have slobber everywhere.
+ - From where you sit, it may seem that certain people should know better. People are who they are and do what they do whether or not you like it or agree with them. We each have different lessons to learn. We each take a different path to our lessons.
+ - There are going to be moments today you don’t like me. You’ll get over it.
+ - The way you get more is by having a daily spiritual practice.
+ - Life doesn’t have to be hard, life is on your side.
+ - Spirit is the key to everything we desire. It is our weather-proofing, our Teflon, our line of credit that assures if we just keep putting one foot in front of the other, one day; there will be a miraculous payoff.
+ - You have set standards for how you want to be treated and what you expect from yourself and for yourself.
+ - I don’t think anybody can be held accountable or responsible for anyone’s behaviors expect the individual. This goes beyond that particular situation.
+ - Everything is just as it needs to be. And if we would forgive, our minds and hearts would open and we could see another possibility.
+ - I took my kids everywhere. I didn’t have money for child care, so I took them to college with me and they sat in the hallway.
+ - We all want to be liked, loved, or needed. That is fine. What is not fine is what we are willing to do to make sure we are liked, or loved or needed. When we make the needs and wants of others a priority in our lives, we devalue ourselves.
+ - After being on ‘Oprah’ for a couple of months, I got my first royalty check for $1,478,392.17. I will never forget it. At the height of my career, I made $3.3 million. Unbelievable. From welfare in the projects to $3.3 million.
+ - Thinking is the problem. Thinking is hazardous to your progress in life. Don’t think – feel.
+ - I learned that telling the truth was a big part of loving yourself.
+ - Once we become aware of our issues and challenges, we become accountable to do something about it.
+ - All of us have ways in which we mask and cover our pain.
+ - What I am doing; how I am being as I am doing it; and does it bring honor to my community? What is the lesson in what I am doing? And most importantly, am I having fun?
+ - If you want to be at peace, you have to be clear about your intetion and – moment by moment – in alignment with your intention.
+ - Most of us have just learned to exercise our survival muscle. It’s time to build our victory muscle.
+ - When you have something to do life will not allow you to ove foward until you do it.
+ - If you don’t ask for what you need, the need will keep getting bigger.
+ - Healing is the application of love.
+ - Begin within. If it shows up in your life, it’s coming to tell you something about you that you’re acting like you don’t know. Something about yourself, or your relationship with God.
+ - Their issues are not your issues.
+ - Love is what you are, not what you give or get!
+ - Acknowledgemen t of what you feel, what you know, what you need is the first step toward healing.
+ - I’m really not that fierce.
+ - Act the way you want to be and soon you will be the way you act.
+ - I had no preconceived idea what fame would be like, because I never thought I would be famous. I just wanted to do my work. Hell, I just wanted to pay my rent on time.
+ - I had to stop traveling alone because I missed so many planes. When somebody runs up to you in the airport and begins to tell you their life story, you can’t say, ‘Excuse me, boo,’ as they’re weeping on your bosom.
+ - In the process of planning and having a wedding, I forgot there would actually be a marriage, a union of minds, bodies, souls, and issues that would come together as soon as the ceremony was over.
+ - You cannot get to where you are going until you have learned all there is to learn about where you are.
+ - When Oprah Winfrey tells you that you need to have your own show, you feel compelled to do it. Especially if she’s gonna pay for it!
+ - Ytalding is not always pretty or easy. And it doesn’t came quick.
+ - Everyone has something that blocks us from the full experience and expression of our nobility.
+ - Any time in America when the military has to stand in opposition of their own citizenry, something is wrong.
+ - Oprah Winfrey gives you the stage? Shut your mouth. I said, ‘I’m sorry for taking over your show.’ She said, ‘No, that’s why we have you here.’
+
+300 quotes

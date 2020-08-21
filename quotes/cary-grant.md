@@ -1,0 +1,49 @@
+ - I pretended to be somebody I wanted to be until finally I became that person. Or he became me.
+ - There must be something between us, even if it’s only an ocean.
+ - It takes 500 small details to add up to one favorable impression.
+ - Nature eventually has her own way, so perhaps the best procedure is to accept what old Mother Nature or God, if you will, dictates. Accept it and you’ll get along better.
+ - My father used to say, ‘Let them see you and not the suit. That should be secondary.’
+ - Probably no greater honor can come to any man than the respect of his colleagues.
+ - My formula for life is very simple: in the morning, wake up; at night, go to sleep. In between I try and occupy myself as best I can.
+ - Ah, beware of snobbery; it is the unwelcome recognition of one’s own past failings.
+ - I began by acting like the person I wanted to be, and eventually I became that person.
+ - There’s no point in being unhappy about growing older. Just think of the millions who have been denied the privilege.
+ - When I’m married I want to be single, and when I’m single I want to be married.
+ - A shot of brandy can save your life, but a bottle of brandy can kill you.
+ - It is the law of life that if you are kind to someone you feel happy. If you arecruel you are unhappy. And if you hurt someone, you will be hurt back.
+ - All it takes are a few simple outfits. And there’s one secret – The Simpler The Better.
+ - I’ve often been accused by critics of being myself on-screen. But being oneself is more difficult than you’d suppose.
+ - Simplicity, to me, has always been the essence of good taste.
+ - We should all just smell well and enjoy ourselves more.
+ - Destiny is not necessarily what we get out of life, but rather, what we give.
+ - It’s better to buy one good pair of shoes than four cheap ones.
+ - There are only seven movie stars in the world whose name alone will induce American bankers to lend money for movie productions, and the only woman on the list is Ingrid Bergman.
+ - I think that making love is the best form of exercise.
+ - Sometimes angels rush in where fools fear to tread.
+ - One pretends to do something, or copy someone or some teacher, until it can be done confidently and easily in what becomes one’s own style.
+ - To write an autobiography, you’ve got to expose other people. I hope to get out of this world as gracefully as possible, without embarrassing anyone.
+ - I suppose you might call me the sophisticated type. I like to act with dialogue. Not with grunts.
+ - It’s important to know where you’ve come from so that you can know where you’re going. I probably chose my profession because I was seeking approval, adulation, admiration and affection.
+ - I can’t bear to hear a woman talk baby talk.
+ - Everyone wants to be Cary Grant. Even I want to be Cary Grant. Let me expand a bit. I sense that you may feel that I am free of problems. Let me assure you that I have the same anxieties and insecurities as anyone in this auditorium – maybe more.
+ - I’m a fatheaded guy, full of pain. It tore me up not having you.
+ - When people tell you how young you look, they are also telling you how old you are.
+ - Divorce is a game played by lawyers.
+ - I really am a happy, amusing fellow at heart. Trouble is I seem the only one left.
+ - We have our factory, which is called a stage. We make a product, we color it, we title it and we ship it out in cans.
+ - Do your job and demand your compensation – but in that order.
+ - I’d like to have made one of those big splashy Technicolor musicals with Rita Hayworth.
+ - Comedy holds the greatest risk for an actor, and laughter is the reward.
+ - Insanity runs in my family. It practically gallops.
+ - I’m prepared. I have a gun and I know how to shoot, and whoever comes calling without an invitation will get it in the rear end.
+ - Who is omnipotent or wise enough to decide each new standard of good taste? Or sensitivity?
+ - Dying’s tough – but not as tough as comedy.
+ - I improve on misquotation.
+ - I may not have married for very sound reasons, but money was the least of them.
+ - If you want to be an actor, my advice is to learn your lines and don’t bump into the other actors.
+ - The only really good thing about acting in movies is that there’s no heavy lifting.
+ - I acted like Cary Grant for so long that I became Cary Grant.
+ - Everyone tells me I’ve had such an interesting life, but sometimes I think it’s been nothing but stomach disturbances and self-concern.
+ - Everyone wants to be Cary Grant. Even I want to be Cary Grant.
+
+47 quotes

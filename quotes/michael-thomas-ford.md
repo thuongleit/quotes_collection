@@ -1,0 +1,22 @@
+ - I keep feeling like everyone wants me to apologize for something.
+ - Let me tell something, seeing your name and psychiatric ward on the same piece of paper isn’t the best way to start your day.
+ - That sounds so weird: “kill yourself.” It makes it sound like you tried to murder someone, only that someone is you. But killing someone is wrong, and I don’t think suicide is. It’s my life, right? I should be able to end it if I want to. I don’t think it’s a sin.
+ - So now I’m thinking about it. I’m imagining sitting down with my parents and actually saying, “I’m gay.” And you know what? It makes me a little mad. I mean, straight guys don’t have to sit their parents down and tell them they like girls.
+ - That sounds weird: “kill yourself.” It makes it sound like you tried to murder someone, only that someone is you.
+ - No one in France cares if you tried to kill yourself. In fact, I think they like you better because you’re all tragic.
+ - I’m tired of people thinking they’re doing me favours.
+ - That’s what people do. Kill the things they’re afraid of.
+ - And it’s not like I’ve never jacked off. I’m fifteen years old. Of course I do it. Any guy who says he doesn’t is lying. That would be like having the coolest video game ever and never playing it. No one’s that stupid.
+ - If you ever manage to become perfect, you have to die instantly before you ruin things for everyone else.
+ - It’s like whoever sits up ther in Heaven had this big bag of really crappy stuff, and once or twice a day she or he reaches in and sprinkles a little bit of it over the world and it makes everything go crazy, like fairy dust that’s past its expiration date.
+ - When people hurt us, the best thing to do isn’t to ask why they did it but to remind ourselves that it wasn’t our fault.
+ - I knew people were talking, but I wasn’t listening. I wasn’t interested in anything anyone had to say.
+ - Anyone can be crazy. That’s usually just because there’s something screwed up in your wiring, you know? But suicide is a whole different thing. I mean, how much do you have to hate yourself to want to just wipe yourself out?
+ - Personally, I think they killed the bear because they were afraid of it. That s what people do, kill the things they re afraid of.
+ - Here’s what I think. One, people should figure out that if they go around bothering bears, chances are they’re going to end up bear snacks. Second, people suck.
+ - Why is it that you have to warn people about who you are?
+ - Once you realise there’s nothing to be afraid of when you die, there’s nothing else to worry about.
+ - I know all about dreams that make you want to scream.
+ - I swear, sometimes it feels like there’s this monkey in my head who runs around turning the dials and changing channels on me. One minute I’m sitting around eating chocolate chip cookies and then all of a sudden I’m thinking about bears.
+
+20 quotes

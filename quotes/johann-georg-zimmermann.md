@@ -1,0 +1,64 @@
+ - Take care to be an economist in prosperity. There is no fear of your being one in adversity.
+ - Thought and action are the redeeming features of our lives.
+ - Who conquers indolence conquers all other hereditary sins.
+ - In the sallies of badinage a polite fool shines; but in gravity he is as awkward as an elephant disporting.
+ - Family pride entertains many unsocial opinions.
+ - Indolent people, whatever taste they may have for society, seek eagerly for pleasure, and find nothing. They have an empty head and seared hearts.
+ - One ought to love society, if he wishes to enjoy solitude. It is a social nature that solitude works upon with the most various power. If one is misanthropic, and betakes himself to loneliness that he may get away from hateful things, solitude is a silent emptiness to him.
+ - Silence is the safest response for all the contradiction that arises from impertinence, vulgarity, or envy.
+ - Fools with bookish knowledge art children with edged weapons; they hurt themselves, and put others in pain.
+ - Be not so bigoted to any custom as to worship it at the expense of truth.
+ - A good name will wear out; a bad one may be turned; a nickname lasts forever.
+ - Never suffer the prejudice of the eye to determine the heart.
+ - Sloth is the torpidity of the mental faculties; the sluggard is a living insensible.
+ - Nobility should be elective, not hereditary.
+ - Hunger is the mother of impatience and anger.
+ - In fame’s temple there is always a niche to be found for rich dunces, importunate scoundrels, or successful butchers of the human race.
+ - Truth lies in a small compass! The Aristotelians say, all truth is contained in Aristotle, in one place or another. Galileo makes Simplicius say so, but shows the absurdity of that speech by answering all truth is contained in a lesser compass, namely, in the alphabet.
+ - The sluggard is a living insensible.
+ - Never lose sight of this important truth, that no one can be truly great until he has gained a knowledge of himself, a knowledge which can only be acquired by occasional retirement.
+ - News-hunters have great leisure, with little thought; much petty ambition to be considered intelligent, without any other pretension than being able to communicate what they have just learned.
+ - A moral lesson is better expressed in short sayings than in long discourse.
+ - The more you speak of yourself, the more you are likely to lie.
+ - When we meet with better fare than was expected, the disappointment is overlooked even by the unscrupulous. When we meet with worse than was expected, philosophers alone know how to make it better.
+ - By fools, knaves fatten; by bigots, priests are well clothed; every knave finds a gull.
+ - Though fancy may be the patient’s complaint, necessity is often the doctor’s.
+ - Surmise is the gossamer that malice blows on fair reputations, the corroding dew that destroys the choice blossom. Surmise is primarily the squint of suspicion, and suspicion is established before it is confirmed.
+ - Many good qualities are not sufficient to balance a single want – the want of money.
+ - Liberal of cruelty are those who pamper with promises; promisers destroy while they deceive, and the hope they raise is dearly purchased by the dependence that is sequent to disappointment.
+ - There appears to exist a greater desire to live long than to live well! Measure by man’s desires, he cannot live long enough; measure by his good deeds, and he has not lived long enough; measure by his evil deeds, and he has lived too long.
+ - The weak may be joked out of anything but their weakness.
+ - When soured by disappointment we must endeavor to pursue some fixed and pleasing course of study, that there may be no blank leaf in our book of life. Painful and disagreeable ideas vanish from the mind that can fix its attention upon any subject.
+ - Novels do not force their fair readers to sin, they only instruct them how to sin; the consequences of which are fully detailed, and not in a way calculated to seduce any but weak but weak minds; few of their heroines are happily disposed of.
+ - Unless the habit leads to happiness the best habit is to contract none.
+ - Silence is a trick when it imposes. Pedants and scholars, churchmen and physicians, abound in silent pride.
+ - Laugh as loud as you please at your companion’s wit; do not even smile at his folly.
+ - Many species of wit are quite mechanical; these are the favorites of witlings, whose fame in words scarce outlives the remembrance of their funeral ceremonies.
+ - Troops of furies march in the drunkard’s triumph.
+ - When ill news comes too late to be serviceable to your neighbor, keep it to yourself.
+ - Idlers cannot even find time to be idle, or the industrious to be at leisure. We must always be doing or suffering.
+ - That happy state of mind, so rarely possessed, in which we can say, “I have enough,” is the highest attainment of philosophy.
+ - An everlasting tranquility is, in my imagination, the highest possible felicity, because I know of no felicity on earth higher than that which a peaceful mind and contented heart afford.
+ - Age is suspicious but is not itself often suspected.
+ - It would be a considerable consolation to the poor and discontented could they but see the means whereby the wealth they covet has been acquired, or the misery that it entails.
+ - The human mind, in proportion as it is deprived of external resources, sedulously labors to find within itself the means of happiness, learns to rely with confidence on its own exertions, and gains with greater certainty the power of being happy.
+ - Wit, to be well defined, must be defined by wit itself; then it will be worth listening to.
+ - Economy is an excellent lure to betray people into expense.
+ - Contempt is frequently regulated by fashion.
+ - The necessities that exist are in general created by the superfluities that are enjoyed.
+ - The quarter of an hour before dinner is the worst that suitors can choose.
+ - Comedians are not usually actors, but imitations of actors.
+ - Suicides pay the world a bad compliment. Indeed, it may so happen that the world has been beforehand with them in incivility. Granted. Even then the retaliation is at their own expense.
+ - There are few mortals so insensible that their affections cannot he gained by mildness, their confidence by sincerity, their hatred by scorn or neglect.
+ - Books afford the surest relief in the most melancholy moments.
+ - Those beings only are fit for solitude who are like nobody, and are liked by nobody.
+ - Many have been ruined by their fortunes, and many have escaped ruin by the want of fortune. To obtain it the great have become little, and the little great.
+ - The lust of dominion innovates so imperceptibly that we become complete despots before our wanton abuse of power is perceived; the tyranny first exercised in the nursery is exhibited in various shapes and degrees in every stage of our existence.
+ - Egotism is more like an offense, than a crime; though it is allowable to speak of yourself, provided nothing is advanced in favor; but I cannot help suspecting that those who abuse themselves are, in reality, angling for approbation.
+ - We never read without profit if with the pen or pencil in our hand we mark such ideas as strike us by their novelty, or correct those we already possess.
+ - All our distinctions ire accidental; beauty and deformity, though personal qualities, are neither entitled to praise nor censure; yet it so happens that they color our opinion of those qualities to which mankind have attached responsibility.
+ - The purse of the patient often protracts his case.
+ - Gambling houses are temples where the most sordid and turbulent passions contend; there no spectator can be indifferent. A card or a small square of ivory interests more than the loss of an empire, or the ruin of an unoffending group of infants, and their nearest relatives.
+ - The ill usage of every minute is a new record against us in heaven.
+
+62 quotes

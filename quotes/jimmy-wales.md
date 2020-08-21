@@ -1,0 +1,88 @@
+ - If it isn’t on Google, it doesn’t exist.
+ - Imagine a world in which every single person on the planet is given free access to the sum of all human knowledge. That’s what we’re doing.
+ - We are still in the very beggining of the Internet. Let’s use it wisely.
+ - We have to come together, worldwide, and ‘think.’ We have a tool – the internet – to let us do that. Let’s use it wisely.
+ - I can’t do anything quietly anymore.
+ - Things work well when a group of people know each other, and things break down when it’s a bunch of random people interacting.
+ - My view is that good community management is like having good municipal government: You should be able to have dissenting opinions and so on, freedom of speech, but your grandmother should also be able to walk down the street at night without having to worry about getting mugged.
+ - Given enough time humans will screw up Wikipedia just as they have screwed up everything else, but so far it’s not too bad.
+ - We don’t stoop to the level of our worst critics, no matter how much we may find them to be annoying.
+ - It just didn’t occur to me, sitting at my computer, that I would end up travelling all over the world.
+ - I have my team focused on the front end, working on the user experience, and making sure we have all the wiki-like tools people need to work on the site. We’re just cranking away.
+ - Wikipedia is a non-profit. It was either the dumbest thing I ever did or the smartest thing I ever did.
+ - I have said this many times in the past and will say it many times in the future I am sure: some people need to find a different hobby...
+ - People take issue with individual aspects of Wikipedia all the time. But it’s kind of hard to hate the general idea of a free encyclopedia. It’s like hating kittens.
+ - I frequently counsel people who are getting frustrated about an edit war to think about someone who lives without clean drinking water, without any proper means of education, and how our work might someday help that person. It puts flamewars into some perspective, I think.
+ - Freely licensed textbooks are the next big thing in education.
+ - I don’t worry. It’s just not in my nature, really.
+ - Everybody tells jokes, but we still need comedians.
+ - When I opened Wikipedia, it had three articles, yet it was called an encyclopedia.
+ - We are growing from a cheerful small town where everyone waves off their front porch to the subway of New York City where everyone rushes by. How do you preserve the culture that has worked so well?
+ - A huge amount of what goes on in the Middle East has to do with people being fed really bad information.
+ - We’ve seen how grassroots journalism by blogs has had an impact at various points politically, as ordinary people have amplified stories that were being ignored by the traditional press.
+ - Frankly, and let me be blunt, Wikipedia as a readable product is not for us. It’s for them. It’s for that girl in Africa who can save the lives of hundreds of thousands of people around her, but only if she’s empowered with the knowledge to do so.
+ - There’s plenty of rude stuff online. People say things online that they would be ashamed to say face to face. If people could treat others as though they were speaking face to face, that would be huge.
+ - Freedom, liberty, individual rights, that idea of dealing with other people in a matter that is not initiating force against them, is critical to me.
+ - I’m a very friendly person, and I think that’s had a big impact on my work because I tend to be pretty good with not trying to always win every argument and things like that. I just sort of try to bring a lot of people together to talk.
+ - I’m a big advocate of freedom: freedom of speech, freedom of expression, freedom of thought.
+ - What we won’t do is pretend that the work of lunatic charlatans is the equivalent of “true scientific discourse.” It isn’t.
+ - Ideally, our rules should be formed in such a fashion that an ordinary helpful kind thoughtful person doesn’t really even need to know the rules. You just get to work, do something fun, and nobody hassles you as long as you are being thoughtful and kind.
+ - When I was growing up in Huntsville, Alabama, this is where the space and rocket center was. This is where all of the German rocket scientists came after war and started designing rockets for NASA, for the moon landing and all that.
+ - I tend to eat things in fours. I’ll eat four nuts, four grapes, four chips at a time. I don’t know why. It’s not really a superstition. I don’t think anything bad will happen if I don’t, but three potato chips doesn’t seem right.
+ - Wikipedia is a non-profit. It was either the dumbest thing I ever did or the smartest thing I ever did. Communities can build amazing things, but you have to be part of that community and you can’t abuse them. You have to be very respectful of what their needs are.
+ - The Supreme Court has held that code is speech. And it doesn’t matter that it’s done on a computer or done face to face or done in a newspaper, reporting the facts of the world is protected speech.
+ - I spent lots of time reading the encyclopedia and really kind of an eclectic approach to learning things – not very structured.
+ - The goal is to give people a free encyclopedia to every person in the world, in their own language. Not just in a ‘free beer’ kind of way, but also in the free speech kind of way.
+ - The more time I spent on the site the more I came to think of Wales as some kind of Queen Ant, letting the vast colony go about its work, at the centre of a system where the knowledge of the community is infinitely larger than the sum of experience of all its individuals.
+ - Free speech includes the right to not speak.
+ - There’s kind of this real social pressure to not argue about things.
+ - People do fun and interesting things because they’re fun and interesting.
+ - Most people are good. They may not be saints, but they are good.
+ - Massive numbers of people are going to come online from cultures we don’t normally interact with.
+ - The real struggle is not between the right and the left but between the party of the thoughtful and the party of the jerks.
+ - Greatest misconception about We aren’t democratic. Our readers edit the entries, but we’re actually quite snobby. The core community appreciates when someone is knowledgeable, and thinks some people are idiots and shouldn’t be writing.
+ - My original concept was to provide a free encyclopedia for every single person in the world.
+ - Wikis and social networking are just tools.
+ - It turns out a lot of people don’t get it. Wikipedia is like rock’n’roll; it’s a cultural shift.
+ - One of the ways that Microsoft beat Apple way back in the day was that they were a lot more open; today, in the world I come from, the free software and open-source world, Microsoft is not generally viewed as open; they’re viewed as proprietary.
+ - I have zero interest in sports of any kind – professional, college or international.
+ - Dialing down is not an option for me.
+ - Our growth rate continues to be staggering.
+ - I’m not real good at the administrative part of running a company.
+ - There’s a big tendency to gravitate toward a closed and proprietary approach too easily.
+ - My being some kind of celebrity – not a real celebrity, isn’t a welcome part of the job.
+ - I worry about censorship in many parts of the world.
+ - What can we put into the hands of people under oppressive regimes to help them? For me, a big part of it is information, knowledge – the ability to defeat propaganda by understanding it.
+ - You know, when I think about what I’m doing, what I’m doing and the way I’m doing it is more important to me than any amount of money or anything like that because it’s my artistic work.
+ - IAR is policy, always has been.
+ - I don’t come down on any simple place as a deletionist or a completionist.
+ - Simply having rules does not change the things that people want to do. You have to change incentives.
+ - People who have achieved a public voice find it a mixed bag.
+ - A lot of people who work on open-source software don’t mind making money elsewhere. They aren’t anticommercial.
+ - Most people assume the fights are going to be the left versus the right, but it always is the reasonable versus the jerks.
+ - I think it’s a mistake to treat different realms of knowledge as if they are some how fundamentally the same.
+ - To me the key thing is getting it right. And if a person’s really smart and they’re doing fantastic work, I don’t care if they’re a high school kid or a Harvard professor; it’s the work that matters.
+ - I think that reality exists and that it’s knowable.
+ - We don’t need secrecy.
+ - EssJay was appointed at the request of and unanimous support of the ArbCom.
+ - I think people have to recognise that the traditional modes of authority weren’t that great.
+ - While I’m optimistic about the direction the world is headed, generally, I think there is a need for constant vigilance and pressure on repressive governments.
+ - I have always viewed the mission of Wikipedia to be much bigger than just creating a killer website. We’re doing that of course, and having a lot of fun doing it, but a big part of what motivates us is our larger mission to affect the world in a positive way.
+ - What you don’t get in the mainstream media is so much of the background material.
+ - I still believe there is a need to open up search and it will come eventually. It is very important to challenge the current models.
+ - Almost anything is better than three network TV outlets completely controlling the national discourse with their nightly broadcasts. We’ve moved a long way from that, and that’s important.
+ - I have always liked the idea of going to print because a big part of what we are about is to disseminate knowledge throughout the world and not just to people who have broadband.
+ - To create and distribute a free encyclopedia of the highest possible quality to every single person on the planet in their own language – That’s who I am. That’s what I am doing. That’s my life goal.
+ - If you see a blatant error or misconception about yourself, you really want to set it straight.
+ - I’m very much an Enlightenment kind of guy.
+ - The core of Wikipedia is something people really believe in. That is too valuable for the world to screw it up.
+ - Myspace hurts my eyes.
+ - I am really accessible.
+ - I have no regular schedule. I get up whenever I can.
+ - You shouldn’t use anything as the sole source for anything, in my view.
+ - I just get up every day and do what seems like the most interesting, fun thing to do.
+ - Mostly, I try to take a rational approach to life.
+ - It’s kind of surprising that you could just open up a site and let people work.
+ - If I had some information, the last thing I would ever do with it is send it to Wikileaks.
+
+86 quotes

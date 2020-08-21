@@ -1,0 +1,33 @@
+ - The best of life is life lived quietly, where nothing happens but our calm journey through the day, where change is imperceptible and the precious life is everything.
+ - Anything that is given can be at once taken away. We have to learn never to expect anything, and when it comes it’s no more than a gift on loan.
+ - My father was very outwardly religious.
+ - The imagination demands that life be told slant because of its need of distance.
+ - Everything that we inherit, the rain, the skies, the speech, and anybody who works in the English language in Ireland knows that there’s the dead ghost of Gaelic in the language we use and listen to and that those things will reflect our Irish identity.
+ - When I start to write, words have become physical presence. It was to see if I could bring that private world to life that found its first expression through reading. I really dislike the romantic notion of the artist.
+ - As a writer, I write to see. If I knew how it would end, I wouldn’t write. It’s a process of discovery.
+ - I think that each of us inhabits a private world that others cannot see. The only difference between the writer and the reader is that the writer is able to dramatise that private world.
+ - I think fiction is a very serious thing, that while it is fiction, it is also a revelation of truth, or facts.
+ - When you’re in danger of losing a thing it becomes precious and when it’s around us, it’s in tedious abundance and we take it for granted as if we’re going to live forever, which we’re not.
+ - Amongst Women concentrated on the family, and the new book concentrates on a small community. The dominant units in Irish society are the family and the locality. The idea was that the whole world would grow out from that small space.
+ - I read all the time. I was reading a book I admire very much by Alice McDermot called Charming Billy.
+ - Yes, though I have nothing but gratitude for my upbringing in the church.
+ - I think there’s a great difference in consciousness in that same way in that when we’re young we read books for the story, for the excitement of the story – and there comes a time when you realise that all stories are more or less the same story.
+ - I used to take five or six books away and bring five or six books back. Nobody gave me direction or advice and I read much in the way that a boy might watch television.
+ - Yes, but also one of the problems for a novelist in Ireland is the fact that there are no formal manners. I mean some people have beautiful manners but there’s no kind of agreed form of manners.
+ - I love the description of Gothic churches before the printed word, that they were the bibles of the poor.
+ - I think my mother was very spiritual.
+ - We absolutely believed in Heaven and Hell, Purgatory, and even Limbo. I mean, they were actually closer to us than Australia or Canada, that they were real places.
+ - I’ve never written anything that hasn’t been in my mind for a long time – seven or eight years.
+ - I mean I think that’s a fact and I think that we had a very peculiar type of Catholic Church here in that it was a fortress Church.
+ - I’d much prefer to write more quickly.
+ - When I was in my 20s it did occur to me that there was something perverted about an attitude that thought that killing somebody was a minor offence compared to kissing somebody.
+ - I belong to the middle class that grew up very influenced by the Catholic church. The people of the novel are from a more pagan and practical world in which the Christianity is just a veneer.
+ - I think technique can be taught but I think the only way to learn to write is to read, and I see writing and reading as completely related. One almost couldn’t exist without the other.
+ - Nothing ever holds together unless it is mixed with some of one’s own blood.
+ - Ireland is a peculiar society in the sense that it was a nineteenth century society up to about 1970 and then it almost bypassed the twentieth century.
+ - My favorite optimist was an American who jumped off the Empire State Building, and as he passed the 42nd floor, the window washers heard him say, ‘So Far, so good.’
+ - Among its many other obligations, fiction always has to be believable. Life does not have to suffer such constraint, and much of what takes place is believable only because it happens.
+ - The rosary was said every evening. I always liked that sentence about the medieval Churches, that they were the Bibles of the poor. The Church was my first book and I would think it is still my most important book.
+ - I feel I grew up in a different century than I live in. I think most of them are changes for the good.
+
+31 quotes

@@ -1,0 +1,53 @@
+ - Prayer is the risen Jesus coming in with His resurrection power, given free rein in our lives, and then using His authority to enter any situation and change things.
+ - Prayer is the conduit through which power from heaven is brought to earth.
+ - Only he who is helpless can truly pray.
+ - Prayer and helplessness are inseparable. Only he who is helpless can truly pray. Your helplessness is your best. prayer.
+ - When prayer is a struggle, do not worry about the prayers that you cannot pray. You yourself are a prayer to God at that moment. All that is within you cries out to Him, and He hears all the pleas that your suffering soul and body are making to Him with groanings which cannot be uttered.
+ - My helpless friend, your helplessness is the most powerful plea which rises up to the tender father-heart of God. You think that everything is closed to you because you cannot pray. My friend, your helplessness is the very essence of prayer.
+ - If we will make use of prayer to call down upon ourselves and others those things which will glorify the name of God, then we shall see the strongest and boldest promises of the Bible about prayer fulfilled. Then we shall see such answers to prayer as we had never thought were possible.
+ - Prayer brings a good spirit in our homes. For God hears prayer. Heaven itself would come down to our homes. And even though we who constitute the home all have our imperfections and our failings, our home would, through God’s answer to prayer, become a little paradise.
+ - There come times when I have nothing more to tell God. If I were to continue to pray in words, I would have to repeat what I have already said. At such times it is wonderful to say to God, “May I be in Thy presence, Lord? I have nothing more to say to Thee, but I do love to be in Thy presence.”
+ - The purpose of fasting is to loosen to some degree the ties which bind us to the world of material things and our surroundings as a whole, in order that we may concentrate all our spiritual powers upon the unseen and eternal things.
+ - Nothing means so much to our daily prayer life as to pray in the name of Jesus. If we fail to do this, our prayer life will either die from discouragement and despair or become simply a duty which we feel we must perform.
+ - If God does not give you something you ask for, wait on Him. He will speak with you tenderly and sympathetically about the matter until you yourself understand that He cannot grant your prayer.
+ - Praise lies upon a higher plain than thanksgiving. When I give thanks, my thoughts still circle around myself to some extent. But in praise my soul ascends to self-forgetting adoration, seeing and praising only the majesty and power of God, His grace and redemption.
+ - To pray is to let God into our lives. He knocks and seeks admittance, not only in the solemn hours of secret prayer. He knocks in the midst of your daily work, your daily struggles, your daily grind. That is when you need Him most.
+ - When it becomes clear to us that prayer is a part of our daily program of work, it will also become clear to us that we must arrange our daily program in such a way that there is time also for this work, just as we set aside time for other necessary things, such as eating and dressing.
+ - To pray is to let Jesus come into our hearts. It is not our prayer which moves the Lord Jesus. It is Jesus who moves us to pray.
+ - The secret prayer chamber is a bloody battleground. Here violent and decisive battles are fought out. Here the fate of souls for time and eternity is determined, in quietude and solitude.
+ - Helplessness is the real secret and the impelling power of prayer.
+ - It is God’s will not only to hear our prayer, but to give us the best and the richest answer which He, the almighty and omniscient God, can devise. He will send us the answer when it will benefit us and His cause the most.
+ - Prayer is a fine, delicate instrument. To use it right is a great art, a holy art. There is perhaps no greater art than the art of prayer. Yet the least gifted, the uneducated and the poor can cultivate the holy art of prayer.
+ - Be sure to remember that nothing in your daily life is so insignificant and so inconsequential that the Lord will not help you by answering your prayer.
+ - A humble and contrite heart knows that it can merit nothing before God, and that all that is necessary is to be reconciled to one’s helplessness and let our holy and almighty God care for us, just as an infant surrenders himself to his mother’s care.
+ - Helplessness is your best prayer. It calls from your heart to the heart of God with greater effect than all your uttered pleas.
+ - To pray is to let Jesus come into our hearts.
+ - As white snowflakes fall quietly and thickly on a winter day, answers to prayer will settle down upon you at every step you take, even to your dying day. The story of your life will be the story of prayer and answers to prayer.
+ - Jesus is moved to happiness every time He sees that you appreciate what He has done for you. Grip His pierced hand and say to Him, ‘I thank Thee, Saviour, because Thou has died for me.’ Thank Him likewise for all the other blessings He has showered upon you from day to day. It brings joy to Jesus.
+ - We need to learn to know Him so well that we feel safe when we have left our difficulties with Him. To know in that way is a prerequisite of all true prayer.
+ - By prayer we couple the powers of Heaven to ou helplessness, the powers which can capture strongholds and make the impossible, possible.
+ - Prayer is a condition of mind, an attitude of heart, which God recognizes as prayer whether it manifests itself in quiet thinking, in sighing or in audible words.
+ - When we in prayer seek only the glorification of the name of God, then we are in complete harmony with the Spirit of prayer. Then our hearts are at rest both while we pray and after we have prayed. Then we can wait for the Lord.
+ - Our prayer life will become restful when it really dawns upon us that we have done all we are supposed to do when we have spoken to Him about it. From the moment we have left it with Him, it is His responsi-bility.
+ - Prayer is such a great effort to most of us because we do not pray right.
+ - It is not necessary to maintain a conversation when we are in the presence of God. We can come into His presence and rest our weary souls in quiet contemplation of Him. Our groanings, which cannot be uttered, rise to Him and tell Him better than words how dependent we are upon Him.
+ - Begin to realize more and more that prayer is the most important thing you do. You can use your time to no better advantage than to pray whenever you have an opportunity to do so, either alone or with others; while at work, while at rest, or while walking down the street. Anywhere!
+ - We should not be afraid, when praying to God, to give expression to a definite desire, even though we are in doubt at the time we are praying whether it is really the right thing to pray for or not.
+ - To pray is to open the door unto Jesus and admit Him into your distress. Your helplessness is the very thing which opens wide the door unto Him and gives Him access to all your needs.
+ - Pray for whatsoever you will. In the name of Jesus you have permission, not only to stand in the presence of God, but also to pray for everything you need.
+ - Pray a little each day in a childlike way for the Spirit of prayer. If you feel that you know, as yet, very little concerning the deep things of prayer and what prayer really is, then pray for the Spirit of prayer. There is nothing He would rather do than unveil to you the grace of prayer.
+ - Helplessness united with faith produces prayer, for without faith there can be no prayer.
+ - As impossible as it is for us to take a breath in the morning large enough to last us until noon, so impossible is it to pray in the morning in such a way as to last us until noon. Let your prayers ascend to Him constantly, audibly or silently, as circumstances throughout the day permit.
+ - Helplessness becomes prayer the moment that you go to Jesus and speak candidly and confidently with him about your needs. This is to believe.
+ - The Spirit of prayer makes us so intimate with God that we scarcely pass through an experience before we speak to Him about it, either in supplication, in sighing, in pouring out our woes before Him, in fervent requests, or in thanksgiving and adoration.
+ - It is not only blessed to give thanks; it is also of vital importance to our prayer life in general. If we have noted the Lord’s answers to our prayers and thanked Him for what we have received of Him, then it becomes easier for us, and we get more courage, to pray for more.
+ - When we go to our meeting with God, we should go like a patient to his doctor, first to be thoroughly examined and afterwards to be treated for our ailment. Then something will happen when you pray.
+ - It is the will of our heavenly Father that we should come to Him freely and confidently and make known our desires to Him, just as we would have our children come freely and of their own accord and speak to us about the things they would like to have.
+ - To pray is nothing more involved than to open the door, giving Jesus access to our needs and permitting Him to exercise His own power in dealing with them.
+ - Prayer is something deeper than words. It is present in the soul before it has been formulated in words. And it abides in the soul after the last words of prayer have passed over our lips.
+ - Prayer can assume very different forms, from quiet, blessed contemplation of God, in which eye meets eye in restful meditation, to deep sighs or sudden exclamations of wonder, joy, gratitude or adoration.
+ - The quiet hour of prayer is one of the most favorable opportunities.
+ - The more helpless you are, the better you are fitted to pray, and the more answers to prayer you will experience.
+ - It is only when we pray for something according to the will of God that we have the promise of being heard and answered.
+
+51 quotes

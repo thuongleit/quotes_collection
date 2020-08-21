@@ -1,0 +1,37 @@
+ - Cinema should make you forget you are sitting in a theater.
+ - Whenever I get happy, I always have a terrible feeling.
+ - I don’t know anyone who is not using drugs for the reason that they’re illegal.
+ - When I really love a movie, I don’t want to spoil it by too frequent visits. But I like to come back to certain films, which I admire.
+ - I consider myself more a craftsman than an artist.
+ - Some experience is helpful. “The Pianist” was a film that I could make with my eyes closed because I had lived it and everything was still alive in me.
+ - If I had killed somebody, it wouldn’t have had so much appeal to the press, you see? But f-ing, you see, and the young girls. Judges want to f- young girls. Juries want to f- young girls. Everyone wants to f- young girls!
+ - Normal love isn’t interesting. I assure you that it’s incredibly boring.
+ - I like skiing, among other things, because I have moments when I am alone in the mountains. That’s fantastic, when there’s nobody around you. You see miles around you, and the sun is almost down .
+ - I would love to make a film about aging that would take place before the war. It would follow the stages in the life of a woman who would not have at her disposal the resources of today like cosmetic surgery, creams and pills.
+ - Every failure made me more confident. Because I wanted even more to achieve as revenge, to show that I could.
+ - I don’t rehash the past. It’s my baggage. That’s all. I accept things as they are.
+ - I simply think there’s life after movies. I have to adhere to this philosophy, and therefore I like other things, and I have other passions. None are as big as movie-making, but they exist.
+ - I see Macbeth as a young, open-faced warrior, who is gradually sucked into a whirpool of events because of his ambition. When he meets the weird sisters and hears their prophecy, he’s like the man who hopes to win a million – a gamble for high stakes.
+ - You have to show violence the way it is. If you don’t show it realistically, then that’s immoral and harmful. If you don’t upset people, then that’s obscenity.
+ - The torches ran off, and I found myself in a forest, at night, without any light, on skis, and that was not fun – particularly because I was drunk. Luckily at some point I started to see the light of the ski lift. To be in the forest in the middle of the night, it’s terrible.
+ - I admire actors for their infinite patience. That’s why they need all those trailers and all their crowd of people who pamper them. But it is a drag to get up sometimes at 4:30 in the morning and get into makeup, and wait forever until they call you onto the set.
+ - If you have a great passion it seems that the logical thing is to see the fruit of it, and the fruit are children.
+ - Happy endings make me puke.
+ - I know that atmosphere of the Parisian apartment building, with the twin menaces of the concierge on the ground floor and the landlord upstairs.
+ - The whole showmanship is NOT to answer every question.
+ - It’s easy to direct while acting; there’s one less person to argue with.
+ - I can only say that whatever my life and work have been, I’m not envious of anyone-and this is my biggest satisfaction.
+ - My films are the expression of momentary desires. I follow my instincts, but in a disciplined way.
+ - I don’t really know what is shocking. When you tell the story of a man who is beheaded, you have to show how they cut off his head. If you don’t, it’s like telling a dirty joke and leaving out the punch line.
+ - It’s very important to set your place in a concrete environment. I think Chekhov said that the important thing when you have a play or any kind of novel is to set the roots in a concrete place.
+ - With each film, i need an artistic challenge so I don’t get bored! I like to tackle challenges.
+ - I want people to go to the movies. I am the man of the spectacle. I’m playing.
+ - I sometimes cry in the moments that are not necessarily dramatic or tragic in the films, often because of the music. I wonder whether it’s the music that has that effect on you in this film.
+ - I don’t think that there would be more users if drugs were legalized.
+ - I never made a film which fully satisfied me.
+ - In Paris, one is always reminded of being a foreigner. If you park your car wrong, it is not the fact that it’s on the sidewalk that matters, but the fact that you speak with an accent.
+ - To the audience it doesn’t really matter how much the director struggled with an actor. It’s the result that counts.
+ - The best films are because of nobody but the director.
+ - I did not have a reputation to defend.
+
+35 quotes

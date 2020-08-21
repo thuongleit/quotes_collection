@@ -1,0 +1,59 @@
+ - This is the real secret of life – to be completely engaged with what you are doing in the here and now. And instead of calling it work, realize it is play.
+ - You are the universe experiencing itself.
+ - Don’t hurry anything. Don’t worry about the future. Don’t worry about what progress you’re making. Just be entirely content to be aware of what is.
+ - No amount of anxiety makes any difference to anything that is going to happen.
+ - Better to have a short life that is full of what you like doing than a long life spent in a miserable way.
+ - The meaning of life is just to be alive. It is so plain and so obvious and so simple. And yet, everybody rushes around in a great panic as if it were necessary to achieve something beyond themselves.
+ - Waking up to who you are requires letting go of who you imagine yourself to be.
+ - When a man no longer confuses himself with the definition of himself that others have given him, he is at once universal and unique.
+ - Muddy water is best cleared by leaving it alone.
+ - All that you see out in front of you is how you feel inside your head.
+ - A person who thinks all the time has nothing to think about except thoughts. So he loses touch with Reality, and lives in a world of illusion.
+ - Man suffers only because he takes seriously what the gods made for fun.
+ - Stop measuring days by degree of productivity and start experiencing them by degree of presence.
+ - The only way to make sense out of change is to plunge into it, move with it, and join the dance.
+ - The future is a concept, it doesn’t exist. There is no such thing as tomorrow. There never will be, because time is always now. That’s one of the things we discover when we stop talking to ourselves and stop thinking. We find there is only present, only an eternal now.
+ - To have faith is to trust yourself to the water. When you swim you don’t grab hold of the water, because if you do you will sink and drown. Instead you relax, and float.
+ - Through our eyes, the universe is perceiving itself. Through our ears, the universe is listening to its harmonies. We are the witnesses through which the universe becomes conscious of its glory, of its magnificence.
+ - So many people of wealth understand much more about making and saving money than about using and enjoying it. They fail to live because they are always preparing to live.
+ - Hurrying and delaying are alike ways of trying to resist the present.
+ - Paradoxical as it may seem, the purposeful life has no content, no point. It hurries on and on, and misses everything. Not hurrying, the purposeless life misses nothing, for it is only when there is no goal and no rush that the human senses are fully open to receive the world.
+ - You can’t live at all unless you can live fully now.
+ - Real religion is the transformation of anxiety into laughter.
+ - To go out of your mind at least once a day is tremendously important. By going out of your mind, you come to your senses.
+ - For there is never anything but the present, and if one cannot live there, one cannot live anywhere.
+ - That’s a waste of time. If you really understand Zen. You can use any book. You could use the Bible. You could use Alice in Wonderland. You could use the dictionary, because... the sound of the rain needs no translation.
+ - When you get free from certain fixed concepts of the way the world is, you find it is far more subtle, and far more miraculous, than you thought it was.
+ - You and I are all as much continuous with the physical universe as a wave is continuous with the ocean.
+ - You are an aperture through which the universe is looking at and exploring itself.
+ - Zen is a way of liberation, concerned not with discovering what is good or bad or advantageous, but what is.
+ - You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing.
+ - Things are as they are. Looking out into it the universe at night, we make no comparisons between right and wrong stars, nor between well and badly arranged constellations.
+ - I have realized that the past and future are real illusions, that they exist in the present, which is what there is and all there is.
+ - Try to imagine what it will be like to go to sleep and never wake up. Now try to imagine what it was like to wake up having never gone to sleep.
+ - The ego is nothing other than the focus of conscious attention.
+ - Nirvana is where you are, provided you don’t object to it.
+ - Meditation is the discovery that the point of life is always arrived at in the immediate moment.
+ - The truth is revealed by removing things that stand in its light, an art not unlike sculpture, in which the artist creates, not by building, but by hacking away.
+ - We cannot be more sensitive to pleasure without being more sensitive to pain.
+ - Never pretend to a love which you do not actually feel, for love is not ours to command.
+ - We get such a kick out of looking forward to pleasures and rushing ahead to meet them that we can’t slow down enough to enjoy them when they come.
+ - We know that from time to time there arise among human beings people who seem to exude love as naturally as the sun gives out heat.
+ - Trying to define yourself is like trying to bite your own teeth.
+ - The more a thing tends to be permanent, the more it tends to be lifeless.
+ - When we attempt to exercise power or control over someone else, we cannot avoid giving that person the very same power or control over us.
+ - Problems that remain persistently insoluble should always be suspected as questions asked in the wrong way.
+ - We usually don’t look. We overlook.
+ - Stay in the center, and you will be ready to move in any direction.
+ - You are the big bang, the original force of the universe, coming on as whoever you are.
+ - If you can’t meditate in a boiler room, you can’t meditate.
+ - It’s time to question a job or career move when it seems like most energy is devoted to making things appear other than what they really are.
+ - The soul is something which contains the body. The body doesn’t contain the soul. The soul, if we put it into modern language, is the entire complex of relationships in whose context this organism exists.
+ - Imagine a multidimensional spider’s web in the early morning covered with dew drops. And every dew drop contains the reflection of all the other dew drops. And, in each reflected dew drop, the reflections of all the other dew drops in that reflection. And so ad infinitum. That is the Buddhist conception of the universe in an image.
+ - How is it possible that a being with such sensitive jewels as the eyes, such enchanted musical instruments as the ears, and such fabulous arabesque of nerves as the brain can experience itself anything less than a god.
+ - You are that vast thing that you see far, far off with great telescopes.
+ - But at any rate, the point is that God is what nobody admits to being, and everybody really is.
+ - Nothing satisfies an individual incapable of enjoyment.
+ - But to me nothing – the negative, the empty – is exceedingly powerful.
+
+57 quotes

@@ -1,0 +1,103 @@
+ - But like Elle Woods, I do not like to be underestimated.
+ - Everybody needs love. Everyone deserves it.
+ - One honest voice is louder than a crowd.
+ - I believe ambition is not a dirty word. It’s just believing in yourself and your abilities. Imagine this: What would happen if we were all brave enough to believe in our own ability? To be a little bit more ambitious? I think the world would change.
+ - If you’re not yelling at your kids, you’re not spending enough time with them.
+ - I don’t know what I would have done so many times in my life if I hadn’t had my girlfriends.
+ - My rule is, if it’s not moving-monogram it!
+ - It’s important to do things that scare you to death!
+ - Your body is just a vessel for who you are as a person. And until you work on what you give back to the world, it doesn’t matter what you look like on the outside.
+ - Every day you have to choose and cultivate your own happiness.
+ - Never drink to feel better, only drink to feel even better.
+ - There are things in my life that are hard to reconcile, like divorce. Sometimes it is very difficult to make sense of how it could possibly happen. Laying blame is so easy. I don’t have time for hate or negativity in my life. There’s no room for it.
+ - Confidence is everything in this business.
+ - Lord knows, everyday is not a success, every year is not a success. You have to celebrate the good.
+ - When you finally accept that you’re a complete dork, your life gets easier. No sense in trying to be cool.
+ - I don’t believe in perfection. I don’t think there is such a thing. But the energy of wanting things to be great is a perfectionist energy.
+ - I’m just trying to matter and live a good life and make work that means something to somebody.
+ - Sexuality and femininity is an accumulation of age and wisdom and comfort in your own skin.
+ - Is it more fascinating, perplexing, unbelievable that women are entrepreneurs?
+ - Everything I sang sounded awful. So I went outside and I screamed. Everyone pretty much agreed it was awful.
+ - My husband is my biggest supporter on earth. He encourages me to put myself out in the world in ways that feel scary, and he’s like, “I’m always gonna catch you. I’m always gonna be there for you.” My supportive mother and family. Honey, it’s such a village.
+ - But with the right kind of coaching and determination you can accomplish anything and the biggest accomplishment that I feel I got from the film was overcoming that fear.
+ - I’d always ask my grandma, who was so, so smart, why she didn’t work, and she would explain that her parents didn’t approve of her working after she had children. She didn’t feel like she had choices.
+ - I’m lucky to find a person to share my life, and the best friend I’ll ever have.
+ - My sheets are monogrammed, so is my silverware and pretty much everything else I own. My rule is, if it’s not moving – monogram it!
+ - If you took naked pictures of yourself on your cell phone, you hide your face, people! Hide your face!
+ - And I want to say that my grandmother was one of the biggest inspirations in my life. She taught me how to be a real woman, to have strength and self-respect, and to never give those things away.
+ - Men rise through the ranks because of potential, but women have to prove themselves – while trying to have children and having no family leave.
+ - My kids make me laugh every day. And they’re so supportive. As I get older, they understand those things I worried about – the guilt of being gone – in a way that’s so healing for me, when they say, “Mom, we know you love what you do. We love to watch you do what you do.”
+ - There’s something timeless and important about making people laugh, about being the right spot in their day.
+ - I get crazy in a bookstore. It makes my heart beat hard because I want to buy everything.
+ - That said, my kids are at home right now with my husband and I’m missing something important at my daughter’s school which makes me feel sick inside. It’s a lot of balance and a lot of really hard decision making.
+ - There’s no bad consequence to loving fully, comma with all your heart. You always gain by giving love.
+ - Obviously, this isn’t the time in my life that I would have chosen to do this, but I feel like life gives you these challenges for a reason. I feel so happy and glad to be in the place that I am. I really feel blessed. This is something I need to face and take control of.
+ - It was definitely a scary situation and I was frightened for my husband, but that is no excuse. I was disrespectful to the officer who was just doing his job. I have nothing but respect for the police and I’m very sorry for my behavior.
+ - I got a role in this movie called Freeway playing this really angry, aggressive, violent young woman who believed wholeheartedly in the truth. I had such satisfaction afterward, and I thought, That’s what I want to do.
+ - I played a lawyer in a movie so many times I think I am a lawyer. And clearly I’m not a lawyer, because I got arrested.
+ - I always say that it’s very important not to blame one person. You have to own whatever part of it you’re responsible for. It takes a lot of soul-searching. It’s important to go through that, because hopefully you won’t repeat yourself.
+ - I mean, really: He called me 33 percent lesbian, which was a gross underestimation of my lesbian-ness.
+ - Many people worry so much about managing their careers, but rarely spend half that much energy managing their LIVES. I want to make my life, not just my job, the best it can be. The rest will work itself out.
+ - I’m at a point in my life where I could make 20 more movies, but I want to make 20 more movies that matter to me.
+ - Never miss an opportunity to just shut up.
+ - I like Yoga. I run. I go hiking. I’m very active. I like being outside.
+ - I like my body so much better after I had kids. Is that a crazy thing to say? I’m more womanly. I feel sexier.
+ - More people telling stories leads to more interesting perspectives in this world. I often think we wouldn’t get to these political impasses if we had balance in storytelling.
+ - It’s funny that it all becomes about clothes. It’s bizarre. You work your butt off and then you win an award and it’s all about your dress. You can’t get away from it.
+ - I’m just chatty. But I do express my opinion.
+ - Well I always wanted to be Dolly Parton when I was a little girl. I was obsessed with her.
+ - I have a history, a long history of being stereotyped as a five-foot-two woman, which is very limiting. I’ve worked so hard to create characters that have dignity. And I think everybody knows that I have a very pro-woman message in my work – and in my life.
+ - We each own one car, and we have a reasonable house. It’s a lovely place to be, but it’s not extravagant.
+ - I feel very blessed to have two wonderful, healthy children who keep me completely grounded, sane and throw up on my shoes just before I go to an awards show just so I know to keep it real.
+ - Doing begets more doing. It sounds simple, but I’m a firm believer that action can solve so many worries, and just powering through, no matter what, can give you the confidence you need when you feel like you’ve got nothing to offer.
+ - Whether it was making my bed or making a movie, my mother and father never hesitated to say how proud they were of me, and that means so very much to a child.
+ - It really bothers me when people don’t use coasters. Particularly on my table.
+ - I think women are natural caretakers. They take care of everybody. They take care of their husbands and their kids and their dogs, and don’t spend a lot of time just getting back and taking time out.
+ - Do I need men? I don’t think it’s about needing men. It’s about love.
+ - I had someone correct my grammar once on a blind date, and within the first 10 minutes the date was over. You just don’t correct somebody’s grammar. That’s just not okay. I’m from Tennessee, so I probably say everything wrong. I might have said ‘ain’t,’ or something like that.
+ - If more men would see a story of what it was like to be pregnant, and how it felt to be in a place where you had to make a decision about whether to keep a pregnancy, maybe they would feel differently about women’s health care.
+ - I have a good memory for certain things. And a very short memory for painful things – that’s my favorite Martha Stewart quote, by the way.
+ - For our first date, I made Ryan Hamburger Helper, which is basically what I grew up on. I make my own version of it now, with macaroni and cheese and hamburger meat. And the kids – it’s their favorite dinner.
+ - I love to cook comfort food. I’ll make fish and vegetables or meat and vegetables and potatoes or rice. The ritual of it is fun for me, and the creativity of it.
+ - I always let my husband read the script so he knows what’s about to happen to his wife. When I played Cheryl Strayed in Wild, I’d get really mad about certain things, I’d say really profound things, and I’d curse out of nowhere. He’d say, “Are you you, or are you Cheryl?”
+ - When a police officer tells you to stay in the car, you stay in the car.
+ - Women want to see the truth. They don’t want to see some perfect girl.
+ - It’s fun chasing boys, especially when you’re young, but I think it takes time and life experience to notice the other boys.
+ - I have achieved a certain amount of success, and I felt a responsibility to my daughter and to women in this world to create more opportunities for women.
+ - People seem to really enjoy laughing at me.
+ - I don’t think I realised how stressed I was, being a single parent. It was really, really stressful. It’s not easy on anybody.
+ - I thought I was going to go back to Stanford, and then I got Election. I loved being an actor.
+ - To play June, I had an immediate connect with her background and culture. We grew up with the same religion and shared a lot of the same values of family and spirituality. But I was really so inspired by what a modern woman she was.
+ - You know, I used to not understand fashion, a lot of it, but I completely understood being a playwright or a screenwriter and suddenly having an actor say your words and making them come to life. That I can understand. Finally, I’m starting to understand this.
+ - I was always, as a younger actress, very conscious of not wanting to act sexy. I didn’t see myself like that. But I think as a woman, you get older, you feel more confident in your sexuality. You’re not as intimidated by it, not as embarrassed by it.
+ - I was talking to my friend who’s a psychologist, who says a woman’s frontal cortex isn’t fully developed till 25 and a man’s till 28. I was almost 34 when we met; he was 39. So I wouldn’t say either of us has wildly changed; I just love him more and more.
+ - I grew up in Tennessee. We didn’t know what Louis Vuitton was. I had to order all my prom outfits out of catalogs.
+ - I’m definitely happy with the way my career has gone, the success; but I even feel glad that I’ve experienced some failure in my life. That gives you perspective and humility about this business; it’s good to realize that you’re always just one movie away from not being in Vogue anymore.
+ - I started working on trying to sound like June from the very beginning.
+ - I’m trying to make it cool to be a good girl.
+ - I don’t want to discount the beautiful work that the fashion houses do, but somehow, just focusing on what you’re wearing feels reductive.
+ - I’m encouraging these women, like Cheryl Strayed, to take the jump to writing for the screen. She is adapting her book Tiny Beautiful Things for us. They’re infinitely capable of tackling the format.
+ - I read while the kids play. I can see them from the kitchen window. And I’m a fast reader.
+ - No one can sing like June Carter so I just tried to sing my very best.
+ - If something seems frightening or horrible, I should probably do it.
+ - Even people that know Johnny Cash’s music really well and know that he was married don’t really know that much about June Carter. So finding out about her really helped to inform my performance and to bring her to the front in a way that she has never been before.
+ - The joy we get as actors is out of transforming ourselves into something that’s not necessarily anything true to ourselves. And it’s a power – not being yourself, and being in the role; it’s just like another prop.
+ - You can learn a lot about yourself with what youre doing and who youre with on a sunday.
+ - No woman’s getting hired because of her potential. I hope that we can invest more in female potential.
+ - You hope you’re saying the right things – but also, as a kid becomes a teenager, you feel like there’s a ticking clock for you to tell them everything they need to know.
+ - Being a Southern person and a blonde, it’s not a good combination. Immediately, when people meet you, they think of you as not being smart.
+ - I think movies are great and I have a great time making them but they’re not what keeps you warm at night, or what’s ultimately the most important thing in anyone’s life journey.
+ - Kids are the best part of my day. I don’t wake up to make movies. I wake up to hang out with my family.
+ - I don’t have a lot of physical comedy instincts. I’m more verbal.
+ - That said, I’d love to do a musical, either in film or on stage.
+ - I was surprised when the ultrasound revealed that I was having a girl. I was convinced I was having a boy. And I was completely confounded by the fact that I wasn’t in control of the situation; that I was being introduced to a different individual coming into my life.
+ - Realizing you’re not anything special to the kids is always a great sort of reminder that you’re just a regular person. A regular, embarrassing old mom.
+ - I’ve been through really trying experiences personally, and your family is who you turn to.
+ - I traveled all over the South looking for factories – to keep production in the South. I wanted to give back to the place and people that raised me.
+ - We’re more than just our dresses.
+ - To be courageous, you have to have an army of people holding you.
+ - The more respect I had for myself, and the more I took care of myself, the more I understood what I needed out of a partner.
+ - I take the kids to church and Sunday school. They love it. I really think it’s important for a child to feel that there are things that are bigger than your life out there.
+ - One hundred percent my mother, who would always say, “If you want something done, do it yourself.” She must have said that 100 times to me – as a child, as a young woman, yesterday on the phone.
+
+101 quotes

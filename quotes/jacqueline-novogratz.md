@@ -1,0 +1,74 @@
+ - The time for change is now.
+ - Just start Don’t wait for perfection. Just start and let the work teach you.
+ - We are connected to each other not only as humans, but to every living thing on the planet.
+ - We need moral leadership and courage in our world.
+ - My dream is to find individuals who take financial resources and convert them into changing the world in the most positive ways.
+ - Dignity is more important to the human spirit than wealth.
+ - May each of you live lives of immersion. They won’t necessarily be easy lives. But in the end, it is all that will sustain us.
+ - The only way we really create change is to enter any situation with the humility to listen and to recognize the world as it is, and then the audacity to dream what it could be.
+ - What is the cost of not daring? What is the cost of not trying?
+ - We don’t see profit as a blind instrument.
+ - Our lives are so short. And our time on this planet is so precious. All we have is each other.
+ - What would the world look like if we asked ourselves the following more often; are our actions helping others find a way to feel more freer, more dignified and more beautiful?
+ - Our actions- and inaction- touch people every day, people we may never know and never meet.
+ - People need to believe that they can participate fully in the decisions that affect their lives and have a stake in the societies in which they live.
+ - Nothing important happens in life without a cost.
+ - I think I still have a great sense of adventure and trust, and am surprisingly idealistic given all the horrible things I’ve seen since I was 25. I think how I have changed is that I have a much deeper understanding of the dark forces in the world, of power.
+ - Listening is not only about waiting, but it’s also learning how better to ask questions.
+ - For too much of history, we’ve viewed the world’s precious resources – both environmental and human – as things to extract, to make the most of in order to maximize their potential.
+ - Monsters will always exist. There’s one inside each of us. But an angel lives there, too. There is no more important agenda than figuring out how to slay one and nurture the other.
+ - Being poor doesn’t mean being ordinary.
+ - When we deny the poor and the vulnerable their own human dignity and capacity for freedom and choice, it becomes self-denial. It becomes a denial of both our collective and individual dignity, at all levels of society.
+ - Honour what is most beautiful about the past and build it into the promise of the future.
+ - Philanthropy is no longer about writing a check for $10,000 to the opera.
+ - Failure can be an incredibly motivating force.
+ - I wrote ‘The Blue Sweater’ to inspire more people to become engaged in working to solve the problems of global poverty.
+ - You should focus on being more interested than interesting.
+ - Africa can stun you in an instant. It can throw floods and drought and disease at you, sometimes all at the same time. In the next moment, it will tease you with its magnificent beauty, so even if you don’t forget, you can find a way to forgive. Ultimately, it keeps you coming back for more.
+ - The time for us to begin innovating and looking for new solutions is now.
+ - The only way to end poverty, to make it history, is to build viable systems on the ground that deliver critical and affordable goods and services to the poor, in ways that are financially sustainable and scaleable. If we do that, we really can make poverty history.
+ - Why do some people stop growing at age 30, just going from work to the couch and television, when others stay vibrant, curious, almost childlike into their nineties?
+ - I’ve heard it said that the most dangerous animal on the planet is the adolescent male.
+ - Freedom is what beauty feels like when it can most express itself.
+ - To be part of building a movement, you have to keep moving.
+ - Things are always harder than you think they’re going to be.
+ - Acumen Fund’s patient capital investment in Western Seed is intended to enhance the food security and economic independence of Kenya’s smallholder farmers.
+ - Sometimes the most important things that we do are things we cannot measure.
+ - Africans didn’t want saving, thank you very much, least of all not by me.
+ - I was going to save the world, and I thought I would start with the African continent.
+ - People really don’t want handouts, that they want to make their own decisions.
+ - We need leaders, we ourselves need to lead from a place that has the audacity to believe that we ourselves can extend the fundamental assumption that all men are created equal to every, man woman and child on this planet. And we need the humility to recognize that we cannot do it alone.
+ - There are cases where government-to-government aid actually has worked. Look at the eradication of smallpox and the near eradication of polio. But these are really top down solutions that require government-to-government support and aid.
+ - Poverty is not only about income levels, but for lack of freedom that comes from physical insecurity.
+ - Girls and women are most victimised in societies where boys and men are disempowered.
+ - As a young woman, I dreamed of changing the world. In my twenties, I went to Africa to try and save the continent, only to learn that Africans neither wanted nor needed saving. Indeed, when I was there, I saw some of the worst that good intentions, traditional charity, and aid can produce...
+ - I have also been touched by the dark side of power and leadership.
+ - The poor also are willing to make, and do make, smart decisions, if you give them that opportunity.
+ - So many low income people have seen so many failed promises broken and seen so many quacks and sporadic medicines offered to them that building trust takes a lot of time, takes a lot of patience.
+ - There are probably no more market-oriented individuals on the planet, than low income people.
+ - Each of us can work to change a small portion of events. And it’s in the total of all those acts that the history of this generation will be written.
+ - I believe the government should ensure all children are provided with a good education.
+ - When systems are broken, it’s an opportunity for invention and innovation.
+ - Freedom ultimately is dignity. And dignity, not income, is the opposite of poverty.
+ - What we really yearn for as human beings is to be visible.
+ - People have to understand that unless social enterprise is experimental, it will not succeed in making a difference.
+ - How you see where you are always depends on where you’ve been.
+ - What we call people so often distances us from them, and makes them little.
+ - There is power in creating a small model, and then you can create an alliance of other small models.
+ - I have seen that traditional approaches to charity and aid don’t solve problems of poverty. In fact, too often they create dependence.
+ - Human beings want to see each other. We want to be heard by each other.
+ - We have to remember that the girls and the women are most isolated and violated and victimized and made invisible in those very societies where our men and our boys feel disempowered, unable to provide.
+ - Four billion people on Earth make less than four dollars a day.
+ - Human beings tend not to spend money on health preventionally. We tend to spend it on top treatment.
+ - I think we so often equate leadership with being experts – the leader is supposed to come in and fix things. But in this interconnected world we live in now, it’s almost impossible for just one person to do that.
+ - It’s about all of us, and the kind of world that we, together, want to live in and share.
+ - After all this atrocity, this is how human beings really pray.
+ - Poverty is too complex to be answered with a one-size-fits-all approach, and if there is any place that illustrates that complexity, as well as a better way forward, it is Rwanda.
+ - Your job is not to be perfect, your job is only to be human.
+ - When people gain income, they gain choice, and that is fundamental to dignity.
+ - All people deserve access to health at prices they can afford.
+ - Very small investments can release the infinite potential that lies in all of us.
+ - Traditional charity and aid are never going to solve the problems of poverty.
+ - Don’t let people tell you to do it this way. You are on the verge of figuring out hybrid models – with companies and nonprofits, markets, government, crowd-sourced philanthropy. The capitalist system as we know it is not working.
+
+72 quotes

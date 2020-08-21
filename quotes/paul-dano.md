@@ -1,0 +1,36 @@
+ - I like purple too. I looked up color psychology before doing any house painting, because I was curious what the colors I like mean. And purple is very royal and creative.
+ - It’s a constant learning process – not just what you need to learn for the character or as far as good actors – but as an actor, there’s no limit. Every time now, you’re learning so, I think that’s a good thing though.
+ - This is so lame to say in a magazine, but I just grabbed some pink wallpaper. I find it to be a very relaxing color.
+ - My favorite color is blue, and my secret favorite color is pink.
+ - In tragedy, it’s hard to find a good resolution; it’s not black and white: it’s a big fog of gray.
+ - I feel like rumors get crazy and people blow up the whole internet with news. I feel like, once you’re doing a job, you shouldn’t talk about it.
+ - I went to tranny bars and kind of got used to being around that and then getting dressed up.
+ - For me, playing a really bad character is about figuring out what brought the person to where we need him.
+ - The only exercise I get is playing sports because I hate the gym. I try to learn to love it.
+ - I try to leave my work at the door when I leave the set. It’s almost like summer camp. You go in hard, then you leave, and it’s done.
+ - You try to get to know your character as best as you can before you start filming – whats written and not written.
+ - I love cereal. I eat several bowls a day, mostly a few late at night.
+ - I always have an adjustment period where I’m so happy to be home, but then my sense of purpose is totally gone.
+ - Sometimes it’s summer camp on location. So it’s nice to have a little New York community of people you love.
+ - The less acting you have to do, the better, I think.
+ - Being actors is a strange job. To try to go live that out, it’s a very strange thing to want to do when you step back and think about it.
+ - I remember going to the theatre when I was little and the lights going down and just getting really scared about what was going to happen up there.
+ - Everything you do, every experience that you have, enlightens you a little bit or worsens you.
+ - I feel like having something that you’re passionate about helps to keep you young.
+ - It just so happens that when I was, like, 19 or 20, I got a couple of auditions and got a couple parts with good people. Of the thousands of auditions where you don’t get the part, I’ve done a couple of jobs where you do it and you’re like, “Okay, this is good.”
+ - As your career progresses, you hope that you get some more opportunity, or some more choice.
+ - Michael Caine is so happy. Happy and healthy. I think he enjoys life. I think he’s 82 now, and I have no clue if I’ll be working at that age.
+ - The only constant I can find is hard work.
+ - I think I was almost 12, so I knew who George C. Scott was, but if I could work with George C. Scott now, I’d be so pumped.
+ - On set, the playground for the character, how much it takes varies. Is it like ballet, is it like jazz? The content always lends itself to the form, and it’s really not mathematics.
+ - I approach every role from scratch.
+ - When somebody mentions that I did a play with George C. Scott, I’m like, it can’t have happened. What was I doing on a Broadway stage at 11 years old? It’s so far in the distance now.
+ - I think it’s more important to try and make a good film than give a good performance.
+ - I think carrying your gut, or your instincts, through all the learning, is one of the most important things. You learn to prepare for a part in different ways, you learn to experiment, what you do for the character – you try working in different ways.
+ - I started acting pretty young, so I haven’t had too many odd jobs. But I used to sell candy out of my locker in middle school.
+ - My first thought about acting, growing up here in New York, was theater, and I feel like I need to force myself to go get my ass kicked in a rehearsal room and do one of those plays at some point.
+ - One of my favorite films is ‘Dumb and Dumber.’ I’d love to do some really silly comedy someday.
+ - I would like to do something really big and then something really small, and see what it’s like to work in that way, but in front of a live audience.
+ - I think that one of the strangest things about being an actor is, it’s almost freelance work.
+
+34 quotes

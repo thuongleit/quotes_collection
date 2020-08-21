@@ -1,0 +1,53 @@
+ - Do not go with the flow. Be the flow.
+ - Stop running after the waves. Let the sea come to you.
+ - Every true love and friendship is a story of unexpected transformation. If we are the same person before and after we loved, that means we haven’t loved enough.
+ - Love cannot be explained, yet it explains all.
+ - Either grant me the bliss of the ignorant or give me the strength to bear the knowledge.
+ - I hunt everywhere for a life worth living and a knowledge worth knowing. Having roots nowhere, I have everywhere to go.
+ - How we see God is a direct reflection of how we see ourselves. If God brings to mind mostly fear and blame, it means there is too much fear and blame welled inside us. If we see God as full of love and compassion, so are we.
+ - How can you blame others for disrespecting you when you think of yourself as unworthy of respect?
+ - Whatever happens in your life, no matter how troubling things might seem, do not enter the neighborhood of despair. Even when all doors remain closed, God will open up a new path only for you. Be thankful!
+ - What is the point of roaming the world when it’s the same misery everywhere?
+ - Where there is love, there is bound to be heartache.
+ - Believers are each other’s mirrors.
+ - Knowledge that takes you, not beyond yourself is far worse than ignorance.
+ - Even a speck of love should not go unappreciated, because, as Rumi said, love is the water of life.
+ - The words that come out of our mouths do not vanish but are perpetually stored in infinite space, and they will come back to us in due time.
+ - Eternity does not mean infinite time, but simply timelessness.
+ - If you want to destroy something in this life, be it acne, a blemish or the human soul, all you need to do is to surround it with thick walls. It will dry up inside.
+ - The past lives within the present, and our ancestors breathe through our children.
+ - A saint belongs to all humanity.
+ - The digital world is developing with such force and such a pace that you simply can’t ban or control it. People want to be globally connected.
+ - Stories cannot demolish frontiers, but they can punch holes in our mental walls, and through those holes we can get a glimpse of the other and sometimes even like what we see.
+ - Isn’t connecting people to distant lands and culture one of the strengths of good literature?
+ - When I am writing political op-eds, I do think carefully about the impact of my words. When I am writing fiction, it’s a different story. In my fiction I am more reckless. I don’t care about the real world until I am done with the book.
+ - Time is just an illusion. What you need is to live this very moment. That is all that matters.
+ - Cities are erected on spiritual columns. Like giant mirrors, they reflect the hearts of their residents. If those hearts darken and lose faith, cities will lose their glamour.
+ - Identity politics divides us; fiction connects. One is interested in sweeping generalizations, the other in nuances. One draws boundaries, the other recognizes no frontiers. Identity politics is made of solid bricks; fiction is flowing water.
+ - If you want to experience eternal illumination, put the past and the future out of your mind and remain within the present moment.
+ - Perhaps this is why lunatics have a harder time dating, not because they are off the wall but because it is hard to find soemone who is willing to date so many people in one person.
+ - To each his own way and his own prayer. God does not take us at our word. He looks deep into our hearts. It is not the ceremonies or rituals that make a difference, but whether our hearts are sufficiently pure or not.
+ - I believe in optimism of the will, pessimism of the intellect. But my hope is the people, the society, which is ahead of the government.
+ - Turkey in general became too involved with what is happening in Egypt and in Syria. Some politicians with neo-Ottoman dreams developed this idea of being a major player in the Middle East, which hasn’t gone as expected.
+ - Love exists within each of us from the moment we are born and waits to be discovered from then on.
+ - Moments are born and moments die. For new experiences to come to life, old ones need to wither away.
+ - Because time is a drop in the ocean, and you cannot measure off one drop against another to see which one is bigger, which one is smaller.
+ - The world does not move through time as if it were a straight line, proceeding from the past to the future. Instead time moves through and within us, in endless spirals. Eternity does not mean infinite time, but simply timelessness.
+ - Article Five: If you have no reason or ability to accomplish anything, then just practice the art of becoming.
+ - In a normal democracy, you protect the individual from the excessive power of the state. In Turkey, power elites try to protect the state – as if this state were fragile and needed protection – when in fact, it’s too powerful already.
+ - But let us not forget that cities are like human beings. They are born, they go through childhood and adolescence, they grow old, and eventually they die.
+ - I see two opposite tendencies in Turkish society: people feel demoralized, they lose the interest in politics and retreat to their private lives; or they become very angry and even more politicized, and radicalized. Both trends are troublesome.
+ - You see, unlike in the movies, there is no THE END sign flashing at the end of books. When I’ve read a book, I don’t feel like I’ve finished anything. So I start a new one.
+ - I remember a time when it was ok to make fun of politicians and powerful people. Now, it’s not ok anymore. We’ve forgotten how to laugh.
+ - After the Ankara bombings on October 10, people were asked to hold a minute of silence, but many refused. Our society can’t even unite in grief to honor the victims. We’ve lost our empathy. That’s maybe the worst.
+ - Personally, I didn’t think there was anything wrong with sadness. Just the opposite – hypocrisy made people happy and truth made them sad.
+ - Our politics is very masculine, very aggressive, and it’s very polarizing. And the pace of this development has increased in recent years. Erdogan is, in my eyes, the most polarizing politician in recent Turkish political history.
+ - I would like the refugee crisis to become a new beginning in the Turkish-European relationship. But it would be very problematic if, during this process, human rights were forgotten. Democracy needs to be the priority.
+ - We cannot abandon this rabbit hole for fear of a traumatic encounter with our own culture.
+ - Feminists are now being vilified in politics, erdogan used to speak more embracingly, saying he was the leader of everyone, whether they voted for him or not. He sounds as if he puts a distance between himself and half the nation.
+ - Turkey has a very young, dynamic, curious population. In Europe, Facebook and Twitter are mostly about sharing daily experiences while for Turkish people, social networks are political platforms.
+ - Sometimes I feel I have more faith in European ideals than some of my British or French friends. For them, it’s a financial burden. For me, Europe is primarily about values, about fundamental rights, freedom, women’s rights.
+ - Almost half of the Turkish population believes it is not legitimate to criticize the government. Interestingly, this correlates with the number of supporters of Erdogan’s government.
+ - Many analysts compare Turkey with countries in the Middle East, but I think we need to compare it with Russia. Both countries come from a tradition of empire, and also from a tradition of the strong state.
+
+51 quotes

@@ -1,0 +1,23 @@
+ - Two little mice fell in a bucket of cream. The first mouse quickly gave up and drowned. The second mouse, wouldn’t quit. He struggled so hard that eventually he churned that cream into butter and crawled out. Gentlemen, as of this moment, I am that second mouse.
+ - If you believe you have a foolproof system, you’ve failed to take into consideration the creativity of fools.
+ - Dear dad, you always told me that an honest man has nothing to fear, so I’m trying my best not to be afraid.
+ - I was always in the right place at the right time, always willing to take advantage of an opportunity.
+ - Why do the Yankees always win? The other team can’t stop looking at the pinstripes.
+ - Most people are fascinated by what I did as a teenager, but when I look back at my life, I don’t think very much about those years. I was an opportunist and got away with things because I was very young, but I went to prison and came out and remade my life.
+ - The front of a cheque alone gives someone enough information to steal your identity.
+ - I don’t use a debit card. The safest thing is a credit card because you’re using the bank’s money. If someone accesses your information, they are stealing the bank’s money, not yours.
+ - In the old days, a con man would be good looking, suave, well dressed, well spoken and presented themselves real well. Those days are gone because it’s not necessary. The people committing these crimes are doing them from hundreds of miles away.
+ - What bothered me most was their lack of style. I learned early that class is universally admired. Almost any fault, sin or crime is considered more leniently if there’s a touch of class involved.
+ - The police can’t protect consumers. People need to be more aware and educated about identity theft. You need to be a little bit wiser, a little bit smarter and there’s nothing wrong with being skeptical. We live in a time when if you make it easy for someone to steal from you, someone will.
+ - I stole every nickel and blew it on fine threads, luxurious lodgings, fantastic foxes, and other sensual goodies. I partied in every capital in Europe and basked on all the world’s most famous beaches.
+ - Remember what being an adult is: It has nothing to do with money or awards.
+ - What I did in my youth is hundreds of times easier today. Technology breeds crime.
+ - I made a lot of exits through side doors, down fire escapes or over rooftops. I abandoned more wardrobes in the course of five years than most men acquire in a lifetime. I was slipperier than a buttered escargot.
+ - Im a true believer that you have a moral obligation to keep your employees honest, and that is why you have controls, so Im never tempted or put in a position where I could do something to defraud my employer.
+ - It’s not what a man has but what a man is that’s important.
+ - If you happen to tell me where you were born, your date of birth and that kind of information, then I’m 98 percent of the way to stealing your identity.
+ - Whether you’re earning $7 an hour or $700,000 a year, it’s very important to protect your credit rating.
+ - My proudest moment was probably when my oldest boy finished law school and went on to become an FBI agent. It was just beyond my imagination that – with my background – my own son would become an FBI agent.
+ - Banks are so protected from liability they would have to really do something that was their mistake in order for them to be liable for it. Banks don’t look at signatures. They’re processing millions of checks and they have very little liability.
+
+21 quotes

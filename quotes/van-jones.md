@@ -1,0 +1,53 @@
+ - When it gets harder to love, love harder.
+ - It’s in that convergence of spiritual people becoming active and active people becoming spiritual that the hope of humanity now rests.
+ - Come, then, let us go forward together with our united strength – and win a better future for generations to come.
+ - No one is above the law, and no one is beneath the law.
+ - Environmental justice is the movement to ensure that no community suffers disproportionate environmental burdens or goes without enjoying fair environmental benefits.
+ - If the road to social transformation can be paved only by saints who never make mistakes, the road will NEVER be built.
+ - I am sharing my faith with my sons. I pray, meditate and read devotionally. But let me be clear: I am a “person of faith” not because I am a saint, but because I am a sinner.
+ - We should use the transition to a better energy strategy as an opportunity to create a better economy and a better country all around.
+ - Will the new environmental leaders fight for eco-equity in this new “green economy” they are birthing?
+ - The surest path to safe streets and peaceful communities is not more police and prisons, but ecologically sounds economic development. And that same path can lift us to a new, green economy – one with the power to lift people out of poverty while respecting and repairing the environment.
+ - In a democracy, you won’t always get to have your way. But you should always get to have your say.
+ - Clean energy is hippy power. But its also cowboy power, it’s rancher power, it’s Appalachian power.
+ - I’m willing to forgo the cheap satisfaction of the radical pose for the deep satisfaction of radical ends.
+ - I don’t put myself above anyone, and I have as many shortcomings as any non-believer. I just choose to turn to a higher power to help me gain wisdom and, I hope, improve over time.
+ - If we keep pulling death from the ground, we will reap death from the skies.
+ - We pull out of the ground death, we burn death in our power plants, and then we act shocked when we get death in the form of oil spills and global warming.
+ - The human family has invaluable friends and irreplaceable allies in the plant and animal worlds. We cannot continue to tug at the web of life without tearing a hole in the very fabric of our earthly existence-and eventually falling through that hole ourselves.
+ - Each and every one of us should stop playing small and license ourselves to become one of the giants of the new century. We will need champions by the truckload.
+ - The green economy should not just be about reclaiming throw-away stuff. It should be about reclaiming thrown-away communities. It should not just be about recycling things to give them a second life. We should also be gathering up people and giving them a second chance.
+ - The time has come for a public-private community partnership to fix this country and put it back to work.
+ - Even if we can solve the carbon problem for coal, it is still a non-renewable resource. At some point, coal supplies will drop.
+ - Clean coal represents a breakthrough in the marketing of coal, but not in the science of burning coal.
+ - The main piece of technology in the green economy is a caulk gun.
+ - We just want government to be a smart, supportive, reliable partner to the forces that are working for good in this country.
+ - Well, we in America are about to break up with oil. Why not break up with poverty and discrimination too?
+ - Most green-collar jobs are middle-skill jobs. That means they require more education that a high-school diploma, but less than a four-year degree.
+ - We have the chance to build this new energy economy in ways that reflect our deepest values of inclusion, diversity, and equal opportunity for everyone.
+ - Dr. King didn’t get famous giving a speech that said,“I have a complaint.”
+ - If we stand for change, we can spark a popular movement with power, influence, magic and genius.
+ - I cannot in good conscience ask my colleagues to expend precious time and energy defending or explaining my past. We need all hands on deck, fighting for the future.
+ - Now we stand at our own crossroads, looking out upon two futures: one with rising temperatures, rising oceans, and rising violence on a hot and strip-mined planet and another with expanding organic harvests, growing solar arrays, and deepening global partnerships on a green and thriving Earth.
+ - Any successful long-term strategy will require that the green wave fully and passionately embrace the principles of eco-equity.
+ - The time has come to move beyond eco-elitism to eco-populism.
+ - When you take the people who most need work and connect them with the work that most needs doing, you save. You save that young person’s life, you save a whole bunch of money, and you save the soul of this country when you invest and give people a chance, give people hope, give people opportunity.
+ - To change our laws and culture, the green movement must attract and include the majority of all people, not just the majority of affluent people.
+ - Stop using your phones and laptops as toys and use them to start a revolution.
+ - Let’s stop wasting billions of dollars on prisons, which send people home who are too often less capable and more damaged than when they went in. We would have safer neighborhoods if we spent the same money on true rehabilitation, job training, employment and entrepreneurship.
+ - Americans need to see people who are honestly trying to learn from each other, even as we make our own points powerfully and fight for our own values and policies.
+ - A green economy begins to replace some of the clunking and chugging of ugly machines with the wise effort of beautiful, skilled people. That means more jobs.
+ - By kicking its carbon addiction, America will increase its national wealth and generate millions of jobs that can’t be outsourced.
+ - Reversing global warming will take a World War II level of mobilization. It is the work of tens of millions, not hundreds of thousands.
+ - Ocean’s remarkable stories, depth of commitment, and eloquent communication make him a fantastic resource for conferences, universities, and indeed everyone who wants a potent dose of grounded inspiration.
+ - We need a much deeper understanding of exactly what it is our industrial society, in its present creation, is jeopardizing. We need a more profound perception of what is at stake.
+ - Government-mandated and -subsidized ethanol from corn will go down in history as the “Iraq War” of environmental solutions: ill-considered, costly, and disastrous.
+ - A family-friendly “eco-populism” can mobilize and unite millions who, at this point, would be turned off by a more extreme set of demands. The momentum will build, through these early efforts, for more comprehensive solutions.
+ - Barack Obama volunteered to be the Captain of the Titanic AFTER it hit the iceberg.
+ - That’s one component: rather than creating job-training pipelines that put these kids at the back of the line for the last century’s pollution-based jobs, we need to be creating opportunities for them to be at the front of the line for the new clean and green jobs.
+ - Apparently, the fossil-fuel industry’s strategy is to convince the American people that we should just burn all the way through the last of our oil and coal reserves.
+ - Rather than continuing to base our economy on a finite supply of dead things, we can base it on sources that are practically infinite and eternal: the sun, the moon, and the Earth’s inner fire.
+ - The Whitehouse is talking different because we are walking different.
+ - The bombs the government drops in Iraq are the bombs that blew up in New York City.
+
+51 quotes

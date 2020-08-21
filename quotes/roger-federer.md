@@ -1,0 +1,94 @@
+ - There is no way around the hard work. Embrace it.
+ - I fear no one, but respect everyone.
+ - A man who wins, is a man who thinks he can.
+ - When you’re good at something, make that everything.
+ - You have to believe in the long term plan you have but you need the short term goals to motivate and inspire you.
+ - I always believe if you’re stuck in a hole and maybe things aren’t going well you will come out stronger. Everything in life is this way.
+ - I am a very positive thinker, and I think that is what helps me the most in difficult moments.
+ - The more I lose, the more they believe they can beat me. But believing is not enough, you still have to beat me.
+ - Once you find that peace, that place of peace and quiet, harmony and confidence, that’s when you start playing your best.
+ - My game is a lot about footwork. If I move well, I play well.
+ - The one thing you can do for sure is push the luck on your side.
+ - One should just be able to play a perfect game.
+ - I have learnt to be even more patient.
+ - I definitely feel there’s room for improvement.
+ - I love tennis! I’ve always felt like this because it is such a classy sport with a great, competitive flair to it.
+ - It is always in my mind still that I can crush anybody. That’s not an issue. But I think that is the same for most athletes. If you don’t believe you can win tournaments anymore, then you can’t do it.
+ - Mentally, I’m not ever going to go away.
+ - What I think I’ve been able to do well over the years is play with pain, play with problems, play in all sorts of conditions.
+ - Clearly, when you win everything, it’s fun. That doesn’t necessarily mean you love the game more.
+ - My wife doesn’t like Football but she watches it just for Messi.
+ - It’s just unreal, I’m shocked myself. I’ve played good matches here, but never really almost destroyed somebody.
+ - You can be stubborn and successful or you can give it up a bit and change things around. For me it’s important to have a bit of both.
+ - You always want to win. That is why you play tennis, because you love the sport and try to be the best you can at it.
+ - Success is a nice thing because it always means you’ve taken a step forward and it gives you a sense of pride, which in turn gives you confidence and experience-a positive circle, so to speak.
+ - Being a husband is for me as big a priority as being a father.
+ - My family is the thing I miss most on the tour.
+ - I went to Phuket already, but would love to go to Chiang Mai one day.
+ - Early in my career, I struggled with consistency, but I couldn’t get more consistent than this year.
+ - I always knew I had something special.
+ - I definitely need to use my chances when they come because definitely there wont be many.
+ - You know, I don’t only play for the record books.
+ - One or two years ago, I didn’t know who I was on court and I used to swear a lot. But now I’ve learned how to cope and can therefore win 10 matches in a row. I want to be remembered as a good player rather than an idiot on court.
+ - You live during the match, and you have strong emotions, but you don’t want to get too overexcited. My body’s totally flat now. I cannot move anymore. I’m totally exhausted, just because of the tension out there.
+ - With all the injury problems we have in men’s tennis at the moment, I’m happy to still be standing.
+ - Confidence? Are you kidding me? I mean, please. Look, some players grow up and play like that. I remember losing junior matches. Just being down 5-2 in the third, and they all just start slapping shots.
+ - When I won in 2003, never in my wildest dreams did I ever think I would win Wimbledon and have my kids seeing me lift the trophy, so this is pretty surreal. And yeah, I was almost shocked in the moment that it all came together so nicely.
+ - Sometimes you have to accept that a guy played better on the day than you.
+ - For me, I’m in the driver’s seat; I’m No. 1 in the world. I’ve won the last couple of meetings, and I’ve won the big tournaments lately. Whoever comes, I’ll try to beat him. But it’s almost up to me to decide who’s my rival, isn’t it?
+ - I had a nice dinner. I let the evening unfold, flow. I like to sit in a chair with a wine glass. When I woke up, I thought, ‘Why didn’t I go to bed at 11?’ I came back at 3 and went to bed at 5.
+ - When you do something best in life, you don’t really want to give that up – and for me it’s tennis.
+ - I always had the dream that, once I became No 1 in the world, that if I had a child I hoped I would have it early enough so the child can see me playing.
+ - I had set a goal with my team to try and get back to the top of the rankings, but I never thought with the depth in the game this year that I would have been able to get it back so quickly.
+ - Once you reach a good level in tennis it fills you with a lot of motivation. I hope I can do it for a long time.
+ - Watching a movie a couple of weeks ago. An American movie. I can’t remember the name, but it wasn’t even a sad movie. It caught me off guard. I was on an airplane.
+ - It’s not so simple to just stay in the moment and trust your game and your strength that you can turn it around.
+ - My favorite shot is always gonna be the forehand. It used to always be my favorite shot when I was young, so it’s the one I’ve won all the points with.
+ - I don’t mind fans coming up in a friendly, respectful way. That’s all part of the fun of being a top tennis player. But if people take pictures without permission, particularly if my children are in the shot, I feel uncomfortable.
+ - I am thinking more and more about what I want to and can do after my days as an active athlete. Thoughts like family and marriage also cross my mind more and more often.
+ - Sometimes I am a different character in different languages. I have different enjoyment from them. Sometimes different answers come out of me. Like, I didnt even know that about me. I get to know myself through different languages, actually.
+ - Hopefully I can just have another terrible year with only the one Grand Slam and that will be just fine.
+ - For me, it’s important that a fan can buy something that is related to me. Like in soccer, you buy a shirt and it’s got somebody’s name on the back. That’s kind of a cool thing.
+ - Being down match point, it’s just not fun.
+ - I feel a bit awkward playing in a red shirt out at Wimbledon. But I don’t dislike it.
+ - But so far I have the feeling that the chances are there to repeat last year’s season.
+ - When I think of the Olympics I only think of good things. I think of what a great event it is and what it has done for me and my career, and changed my personal life, too.
+ - I did all the right things in so many tournaments. But like I said, sometimes in sports it just goes the other way. Maybe you’ve already won so much that it evens it out a bit sometimes. I don’t know.
+ - I think it’s very hard for coaches to work with me. They’ll no doubt have a good CV afterwards, but at the same time they’re under a lot of pressure.
+ - Before, I guess, mum and dad were everything, but now, in my case, I had two new girls and all of a sudden they’re completely dependent on you and there’s a third generation. It’s a funny shift all of a sudden. You have the babies, you have yourself and then you have your parents.
+ - The serve, I think, is the most difficult, you know, in terms of coordination, because you got the two arms going, and you got to toss it up at the right time so.
+ - I would so like to be Lenny Kravitz.
+ - I am a sucker for those old traditional places, and Rome is as good as it gets, particularly when you throw in Italian food.
+ - Having twin girls is a life changer – that’s for sure. But I like getting up and changing diapers. It’s the things you do.
+ - I used to do a lot of video analysis early on, but more for pleasure and looking at my own technique.
+ - I’m shocked every time that I’ve reached so many finals or won against so many players or whatever record it is. It strikes me and makes me obviously very happy and very proud that I’ve been able to do it for so many years at the highest of levels.
+ - In the locker room I was getting impatient to get on the court, I had to warm up several times.
+ - I have to fit holidays around tournaments, particularly the grand slams, in Melbourne, Paris, London and New York.
+ - I have two lives, and all the problems I might have, I feel like I drop them once I step on to the match court.
+ - Maybe further down the road in my career, in a couple of years when I’m maybe not that fast any more around the court, then maybe it would be good to come to the net a little bit more often.
+ - Every match I go into, I’m the huge favorite. I lose a set and it’s, like, crazy.
+ - I’m not the kind of guy who wakes up angry.
+ - You’ve never seen me dance, have you?
+ - I enjoyed the position I was in as a tennis player. I was to blame when I lost. I was to blame when I won. And I really like that, because I played soccer a lot too, and I couldn’t stand it when I had to blame it on the goalkeeper.
+ - I have a very strong opinion. I’m absolutely against it. I’m against the challenge system. I’m for the way it is right now. Don’t change that.
+ - My dad said if you become a tennis professional just make sure you get into the top hundred, because you have to make a little bit of money. You make a living so you can pay your coaching and, you know, your travels.
+ - The nicer the point, the more – the better I feel, the more excited I get. But I never play that my opponent looks stupid. I think that is wrong. I have too much respect for every opponent I play.
+ - I’m playing great tennis. I’m enjoying the tour, having fun with the fans off the court. I’m loving it now.
+ - I am very blessed to be able to play tennis, the sport that I love and very grateful for the opportunities to play in the finals of big events, when the season starts you are on the roll constantly and obliged to be committed to daily routines on and off the court.
+ - The crowds are very important for tennis. It makes you play better, but it can also make you nervous and that’s the beauty of it.
+ - One of my big, big strengths I think early on in my career was that I could learn very quickly. You wouldn’t have to tell me the things 10 times or 50 times until I would understand them. You would only have to tell me two or three times.
+ - Simple version for me is, umm, started bad and finished bad basically...
+ - I’ve done so many interviews over the years in so many different languages. Radios. Papers. Magazines. There’s always another interview to do. It’s quite something, I have to say.
+ - I’ve always been aware that the image you patiently construct for an entire career can be ruined in a minute. It scares you a bit, but that’s the way things are.
+ - Oh, my God, I don’t think any player can look forward to or expect to a career of so many Grand Slam wins or title wins or being so long at the top of the game.
+ - I’m as patient a father as I am on the tennis court. It takes a lot for me to get really upset, but sometimes kids can get you really cross if they really keep bugging you.
+ - I was aware of how incredible the match was. Unfortunately there had to be a winner. From my point of view many left feeling sorry for me instead of being happy for Rafa. Which hurts.
+ - I’m proud to be a symbol like the army knife or the mountains.
+ - My aim over the next few months is that I have a lot of points to defend in Miami and Hamburg, after that I can set my sights on No. 1.
+ - I let the evening unfold. I’m the sort of guy who likes to sit in the chair and look at the wine glass.
+ - You can’t expect yourself to be already peaking like crazy in an exhibition tournament.
+ - I don’t know how you can go through a four-hour match with Rafa and he never gets a time violation.
+ - Obviously, matches and all that stuff takes its toll on your body and so forth. But as you get sort of a bit older, a bit wiser, and a bit more experienced, you know also how to handle it.
+ - My heart is in South Africa, through my mum. My mum being from here, me spending a lot of time here as well, I feel most connected to this part of the world.
+
+92 quotes

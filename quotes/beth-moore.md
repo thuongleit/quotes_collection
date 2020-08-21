@@ -1,0 +1,213 @@
+ - True intimacy with God always brings humility.
+ - We can do all things through Christ who strengthens us, but frankly we won’t if we’re too afraid to try.
+ - You cannot keep doing the same thing, the same way, and keep expecting something different to happen.
+ - A broken heart heals when we allow the healing to go as deep as the wound went.
+ - Believe that God has heard you.
+ - We want Christ to hurry and calm the storm. He wants us to find him in the midst of it first.
+ - Trust God to take care of you in all circumstances. Do you realize what the enemy will lose if you surrender and trust God?
+ - Faith is not believing in my own unshakable belief. Faith is believing an unshakable God when everything in me trembles and quakes.
+ - God is just waiting for you to turn your face back toward Him. You’ve not gone too far!
+ - If you’re still drawing breath, God’s not done with you yet. Don’t quit. Be brave and believe God is for you.
+ - When you walk with Jesus, defeat turns into victory.
+ - The giant step in the walk of faith is the one we take when we decide God no longer is a part of our lives. He IS our life.
+ - To God, our journey is JUST as important as our destination!
+ - Let your light shine today, and let your personality blossom, too. You don’t have to be a people-pleaser, just a people-lover.
+ - A head full of biblical knowledge without a heart passionately in love with Christ is terribly dangerous – a stronghold waiting to happen. The head is full, but the heart and soul are still unsatisfied.
+ - Insecurity’s best cover is perfectionism. That’s where it becomes an art form.
+ - The purpose exceeds the pain.
+ - As a mother you are only as happy as your saddest child.
+ - When God says go forward, don’t even think about standing still.
+ - He is not only a God of perfect time, but of perfect timing.
+ - For by your words you will be acquitted, and by your words you will be condemned. Matthew 12:37.
+ - God doesn’t work for us; we work for God.
+ - Being yielded to God’s authority keeps us pliable and open-minded to a possible change of plans.
+ - What a beautiful name. I love to watch how it falls off the lips of those who love Him. I shudder as it falls off the lips of those who don’t. Jesus.
+ - We have a very real God with a very real presence.
+ - You cannot amputate your history from your destiny, because that is redemption.
+ - Never will He hold your hand more tightly than when He is leading you through the dark.
+ - When the stakes are high, bow down low.
+ - Courage comes from a heart that is CONVINCED it is loved.
+ - Whether we like it or not, life has a lot of drama and pain. But God is writing a great story. Are we going to let Him? Are we going to trust Him?
+ - I don’t want any of the things that I fear to happen, but this I know, if they do, my God will take care of me.
+ - Sometimes we stand to learn the most about God from the situations we understand the least.
+ - When we live to the glory of God, we show His goodness living through us instead of just ourselves.
+ - Trust God for your current life circumstances and believe that He has called you this day to be courageous.
+ - Authentic faith cannot help but act.
+ - Wisdom is knowledge applied. Head knowledge is useless on the battlefield. Knowledge stamped on the heartmmakes one wise.
+ - Prayer guards hearts and minds and causes God to bring peace out of chaos.
+ - Christ sets us free by the power of His Spirit; then He maintains our freedom as we learn to live from day to day in the power of that Spirit.
+ - If we are leading but not closely following Christ, we are misleading.
+ - When we resist God, we draw near to Satan.
+ - No matter whose fault, God sends us through storms so we can land in a place we never would have otherwise.
+ - We’re stronger and braver TOGETHER. Do not let this world and this narcissistic culture make competitors out of the very people who are meant to be your comrades in arms.
+ - Jealousy takes root in the soil of insecurity.
+ - God honors a beautiful blend of gift and grit! He gives the gift, and He expects us to have the grit to practice and learn how to use it effectively.
+ - God desires to change us from the inside out. Renewing our minds, starving our self-destructive tendencies, and teaching us to form new habits.
+ - I believe that children are, by nature, very forgiving. I don’t think children expect their parents to be perfect. I think they demand that their parents be real.
+ - Let’s pursue a walk with God so close that the spotlights of this world-be they for us or against us-are eclipsed by His enormous shadow cast on our path.
+ - We’re going to have to let truth scream louder to our souls than the lies that have infected us.
+ - God longs for us to freely pour out every single emotion, no matter how toxic, right before Him.
+ - God uses change to change us. He doesn’t use it to destroy us or to distract us, but to coax us to the next level of character, experience, compassion and destiny!
+ - Ultimately, our relationship with Christ is the one thing we cannot do without.
+ - The Son of Man has authority over whatever has you paralyzed. Get up and walk.
+ - God doesn’t work on sense; He works on grace. God called you, and God called me. He knew what He was doing.
+ - We can grow so accustomed to being spoon-fed the Word of God that we sometimes forget how to examine the Scriptures for ourselves.
+ - We might not be able to change our circumstances, but we CAN change our attitude.
+ - God is not harsh; He is holy. He is not selfish; He is sovereign. He is not unfeeling; He is all-knowing. Like David, we need to come to know Him, and respect Him; and, like David, we will love Him more.
+ - Forgiveness doesn’t make the situation OK, it makes you OK.
+ - As God took me through the journey that became the Bible study Breaking Free, He taught me to look for a common denominator among the things that triggered my destructive habits.
+ - We must be careful to avoid spiritual elitism. Everything we are and anything we possess as believers in Christ is a gift of grace. Pure hearts before God must be cleansed from any hint of spiritual pride.
+ - When we end up in a situation where we have been rejected, there is an acceptance in Christ of a new place He is going to take us. It is like nothing we have ever experienced. You are accepted in Christ, never rejected by Him.
+ - Christ honors our submission even when our only motivation is obedience.
+ - Whatever God is urging you to clear away cannot begin to be compared to what He ultimately wants to bring you.
+ - Our victory rests not on faith in our spirituality. Our victory rests on faith in our God.
+ - Satan never wastes a fiery dart by aiming at a spot covered by armor. The bull’s eye is located dead center in our inconsistency. That’s where the enemy plans to bring us down.
+ - Let’s all wise up. Some of us aren’t fighting the fire; we’re playing with fire. Flirting with the devil. Stop it! Stop it now before all hell literally breaks loose.
+ - How often we expect big things from God without preparing for big things from him.
+ - Humility takes a supply of supernatural strength that comes only to those strong enough to admit weakness.
+ - There is not a single soul that jealousy looks good on. Nobody! It looks ugly on everybody and it makes us act ugly – it makes us act out of character.
+ - We live by faith. We love by faith.
+ - We know we’re coming full circle with God when we stand at a very similar crossroad where we made such a mess of life before, but this time we take a different road.
+ - The only reason I can hold up my head is because when He set me free He gave me my dignity back.
+ - Sometimes God allows storms to come together in such a way that they ultimately fulfill something that would never have happened otherwise.
+ - People don’t need Christians to act like we always have it together. People need us to be real! What kind of healing would come if we all just got real before God and others?
+ - A person full of the Holy Spirit cannot be full of self. Pride never accompanies power in the fully yielded life.
+ - I don’t just commit sin. Apart from God, I am sinful. My problem is not just what I do; it’s who I am without His nature.
+ - It’s a strange thought that sometimes God trusts us more than we trust Him. God trusts you – can you trust Him?
+ - Insecurity is miserable. That’s the bottom line. We don’t need it. We don’t want it. And we really can live without it. So what would happen if we quite being accomplices in our own misery?
+ - Dirt is dirt, and we’ve all got it no matter where we come from. I’m not sure Christ sees one kind of dirt as dirtier than another. One thing is for sure: His blood is able to bleach any stain left by any kind of dirt.
+ - Your wealth of experience makes you rich. Spend it on hurt people. They need it so badly.
+ - Sometimes you have to hold tight to what God has already said because you can get so clouded over emotionally that you can no longer rely on what feels right or wrong.
+ - The Bible teaches that there are no lost causes. No permanent pit-dwellers except those who refuse to leave.
+ - Be careful not to give too much credence to the old adage that time heals. Mark my word. It’s God that heals. Time only tells.
+ - Spiritual maturity does not mean that we will never make wrong plans. In fact, spiritual maturity often means having the courage to admit we’ve made the wrong plans.
+ - When we detach the Word of God from the heart of God, we miss the point of God.
+ - People need to know there is life after salvation! Salvation is not only about eternity. Salvation is the open door to an abundant earthly life in which we enjoy the love and direction of an active God!
+ - If a person fears God, she has no reason to fear anything else.
+ - Cynicism is carnality that thinks its smart.
+ - A powerful motivation for believing God in our present is intentionally remembering how He’s worked in our past.
+ - When you accept the fact that God is determined about you and you add to it your determination about Him, I am telling you there’ll be no stopping you from fulfilling the absolutely God-ordained destiny He has for you.
+ - The power of the resurrection means that nothing but the tomb is meant to be empty.
+ - A bruised heart that chooses to beat with a passion for God amid pulsing pain and confusion may just be the most expensive offering placed on the divine altar.
+ - It is not about never doubting, it is about coming out on the other side with twice the faith you had going into your doubt.
+ - Live by faith. Live out loud. And never stop believing God-day by day.
+ - What I thought as a young adult is you act like you have it together whether or not you do because that is what church people do. That is not what God has called us to do.
+ - Trust reverses the detours of adversity into highways of destiny.
+ - When the Spirit of God moves within us, we must move with Him or be miserable.
+ - No sin, no matter how momentarily pleasurable, comforting, or habitual, is worth missing what God has for us.
+ - I have picked up on the terminology of Brother Lawrence, who called praying unceasingly practicing God’s presence. In fact, practicing God’s presence has been my number one goal for the last year.
+ - My very addictive personality and all sorts of strongholds are a thing of the past for me. Yet at the root of every single one of those issues was insecurity, something I had battled since childhood.
+ - What does the enemy have to gain by convincing you to never deal with your past because your mind will never make it all the way through? It is a lie from the pit of hell. Today, claim your healing in Christ. It is your right as His child.
+ - Satan never wastes a fiery dart on an area covered in armor.
+ - God’s idea of guarding his heart is to guard himself against diminishing love. He guards his love. Now if that doesn’t become revolutionary I am not saying it right.
+ - When we don’t take God too seriously, others don’t take our leadership too seriously!
+ - Regardless of who has betrayed you and what promises they didn’t keep- God is firm in His commitment to you.
+ - Nothing is of greater threat to the enemy than a believer with the Word of God living and active upon her tongue, readily applied to any situation.
+ - The true determining factor of our belief system is not what we’re saying, but how we are living.
+ - God is busy making you someone no one else has ever been.
+ - We were created for the purpose of giving God’s invisible character a glimpse of visibility.
+ - Think how our lives might be different if we became people with whom Christ could share the deep things of God.
+ - You don’t have to say everything to say something.
+ - God has promised to every single one of us that even in our hardest times, if we would just hang on long enough, the blessing will come.
+ - Anxiety is our agitated soul scrambling for control.
+ - Setbacks, on the other hand, just make us feel weak and stupid: I should have conquered this by now. I happened on a question not long ago that oerfectly expresses this mentality: How many times must I prove myself an idiot?
+ - God surpasses our dreams when we reach past our personal plans and agenda to grab the hand of Christ and walk the path he chose for us. He is obligated to keep us dissatisfied until we come to him and his plan for complete satisfaction.
+ - A pair of hands clasped in earnest prayer is the best means we have this side of heaven to hang onto Jesus for dear life.
+ - Life works most perfectly when a reciprocal love relationship is in place between man and God.
+ - Peace is one of the most obvious earmarks of the authority of Christ. A sense of peace will virtually always accompany His will and direction, even when the direction might not have been our personal preference.
+ - If we belong to Christ, Satan has no right to exercise authority over us, but he hopes we’re too ignorant regarding Scripture to know it.
+ - If we wait for the needy to walk through our church doors, we may wait a long time. God doesn’t wait for people to come to Him. He goes to them.
+ - We will never be more ourselves, with the fullness of our personality and the uniqueness of our gifting, than when we just wholly give ourselves over to our very faithful, faithful God.
+ - Insecurity is at the heart of every rivalry.
+ - If you are still alive, then God is NOT finished with you!
+ - Trying to obey and serve God before we’ve come to love Him can be exhausting.
+ - FAITH receives more than it asks. DOUBT loses more than it disbelieved.
+ - Nothing on earth compares to the strength God is willing to interject into lives caught in the act of believing.
+ - Picture God nudging you and me awake before dawn because He can hardly wait to be with us.
+ - May God remind us daily-no matter what kind of obstacles we face-that we are loved and empowered by the One who brought the universe into existence with the mere sound of His voice. Nothing is impossible for Him.
+ - Anything God does, the enemy tries to counterfeit. We have to be on guard against the enemy!
+ - If we remain compelled by comfort, we will miss the greatest adventures of our calling.
+ - Ministry to an individual is as mighty an act of God as is ministry to the masses.
+ - You are Gods chief creation, and you are here for His pleasure and His glory.
+ - I don’t know what kind of courage it took thousands of years ago, but I know how courageous women need to be today.
+ - Differences will always exist, but division doesn’t always have to result.
+ - There is something very healthy about finding support from others during difficult times. I needed it for my own healing.
+ - When Eve dropped her shield of faith, every other piece of her spiritual armor became vulnerable.
+ - Some things don’t need to be cut back. They need to be cut off.
+ - I don’t know how, but I know Who.
+ - Satan knows that the nature of humankind is to act out of how we feel rather than what we know. One of our most important defenses against satanic influence will be learning how to behave out of what we know is truth rather than what we feel.
+ - The moment we decide to throw more energy into fighting for our mate than with him, the crack of a fist on the enemy’s jaw splits the ears of angels.
+ - Whether we get to avoid pain and suffering or we must persevere in the midst of it, our deliverance comes when we’re dragged from the enemy of our souls to the heart of God.
+ - God is the only one who truly gets it because He knows the intimate ways of our minds and hearts.
+ - God is the Deliverer, but we never know how He might deliver us.
+ - Nobody appreciates deliverance like those who’ve nearly been destroyed.
+ - Intimacy with God is that I can come in with the honesty of my heart, tell Him how much I’m hurting.
+ - Nothing will kill what you’ve been called to do more than comparing yourself to someone else.
+ - The enemy’s plan is to take away God’s glory. God’s plan is to have as much glory shown through your life.
+ - Sometimes God allows us to explore the ‘whys’ of His instructions. Other times He wants us to obey ‘because He said so.’ Has God asked you to obey in a specific matter that still awaits your obedient response?
+ - God made our souls to long for Him, and we are not fully satisfied without His presence in our lives.
+ - To possess dignity is to be worthy of respect. Worthy of high esteem. Absorb this: you are worthy of respect.
+ - Anyone who truly walks with God, walks humbly. The closer we draw near to Him, the more we behold His majesty!
+ - I have to have a daily, vibrant relationship with Jesus in order to survive that process toward healing.
+ - Even if the steering wheel fits, you don’t have to keep gripping it.
+ - When God’s Word is deliberately internalized, it will be authentically externalized because it’s no longer what we do – it’s part of who we are.
+ - We need to learn how to give a defense for our belief in Christ without getting defensive.
+ - Kindness is willing to look in the face of the hurting.
+ - Good humor and laughter are far too wonderful not to come straight from the heart of God.
+ - Christian hedonists don’t discount suffering, they just don’t give up until they find the gain in loss.
+ - If you are not royalty, He is not King.
+ - God wants to wipe away your past and lift your burdens. Do you let Him?
+ - The question is whether or not our insecurities are substantial enough to hurt, limit, or even distract us from profound effectiveness or fulfillment of purpose.
+ - Knowing we’re saved by grace but still living under the law makes for a spiritually neurotic person.
+ - A big difference exists between trying to manipulate God to give us what we want and cooperating with God so He can give us what He wants.
+ - Anyone with the maturity to surrender entirely to God is mature enough for God to use.
+ - If Jesus gives us a task or assigns us to a difficult season, every ounce of our experience is meant for our instruction and completion if only we’ll let Him finish the work. I fear, however, that we are so attention-deficit that we settle for bearable when beauty is just around the corner.
+ - Christ sometimes provokes a question so that He can be the answer.
+ - Oddly, the most freeing thing we can ever do is to abdicate the throne of our own miniature kingdoms.
+ - God’s approval is a whole lot easier to get than man’s.
+ - Every inch of ground we refuse to take with God, we surrender to the enemy.
+ - When we think we’re at the mercy of our circumstances and past, we discount the power that is ours through the Holy Spirit.
+ - God’s desire is not for us to turn our churches and Christian gatherings into hideouts from the world. Rather, they’re meant to be places where we become equipped and fortified to minister out in the world.
+ - Faith is the only thing that will ever close the gap between our theology and our reality.
+ - God is always better than he has to be. You can count on that.
+ - A prisoner unaware is the kind of prisoner most vulnerable to her captors, the easiest prey there is.
+ - I’m a common woman sharing common problems seeking common solutions on a journey with an uncommon Savior.
+ - May our memories of kindness be long and of offenses be short.
+ - Peace comes in situations completely surrendered to the sovereign authority of Christ.
+ - For the most part I write very stream of consciousness. I basically need to be recording an entire writing session because it’s almost like I black out and just start singing whatever is on my mind and forget it as soon as I stop.
+ - Soothing words can become just another drug we swallow to dull our pain.
+ - Whatever crisis you are going through, fruit will come from it. Allow the crisis to bring fruit.
+ - Sometimes in the contrast of the night, we can best see the glory of God.
+ - A high regard for the things of this world always signals a lowering regard for God.
+ - We must settle in our hearts that no matter what, God is sovereign.
+ - All that will matter forever and ever in our heavenly state is the glory that came to God through our lives.
+ - Sometimes you have to shove all the surface stuff to the side in order to see whats underneath.
+ - When we’ve ceased hearing or changing, we need a new environment.
+ - I assure you that some of the most awesome things God has ever done for me have come out of the most awful things I’d done to myself.
+ - No matter what authority Satan and his subjects have temporarily been allowed in this world system, Christ can pull rank anytime He wants to.
+ - Better to admit where you’re not and ask God’s help to get you where you need to be.
+ - There is not a single darkness if you life that God cannot bring His light upon.
+ - Much guilt arises in the life of the believer from practicing the chameleon life of environmental adaptation.
+ - Writing songs always trumps whatever else was on the schedule, it really is the most important and can be so fickle, you have to grab it when it’s there.
+ - Men are not our problem; it’s what we are trying to get from them that messes us up. We use guys like mirrors to see if we’re valuable.
+ - It’s never fun when we’re in the midst of the storm. But when we land someplace we know we never could have found on our own, it is a beautiful thing.
+ - You must go to God’s Word to know what is true about yourself.
+ - One of our greatest challenges as Christians is to be driven by the love of Christ rather than constantly seeking after God’s comfort.
+ - Sometimes truth is costly but not nearly as costly as deception.
+ - You haven’t been through one thing that God cannot heal you from.
+ - If we only understood that when we devote our lives to the glory of God, our existence on planet earth will leave marks – eternal marks.
+ - God often proves Himself when we feel we have the least to offer.
+ - God desires that we become spiritually healthy enough through faith to have a conscience that rightly interprets the work of the Holy Spirit.
+ - I don’t know a single person who truly seems to bear the mark of God’s presence and power in his or her life who hasn’t been asked by God to be obedient in a way that was dramatically painful.
+ - One person can bring favor to many during the storm.
+ - God wants to bring victory to a people who recognize who brought it.
+ - We long to find someone who has been where we’ve been, who shares our fragile places, who sees our sunsets with the same shades of blue. Soul mates. They somehow validate the depth of our experiences.
+ - Somethings wrong with us for us to value ourselves so little.
+ - An ongoing relationship with God through His Word is essential to the Christian’s consistent victory!
+ - One of the most critical reasons believers experience defeat is because we categorize only a few areas of our lives as Christ’s arena.
+ - Sometimes, God may prioritize performing a miracle on our hearts and minds over a miracle concerning our circumstances.
+ - God holds his people responsible for righteousness, not for results.
+ - Every single thing you’ve been through in your life has had a purpose.
+ - I say this as a big sister in the faith hoping someone might learn an easier way. Arrogance does not bode well. It attracts the rod of God.
+
+211 quotes

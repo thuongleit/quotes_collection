@@ -1,0 +1,37 @@
+ - You don’t have to act as if you care; you just have to care enough to act.
+ - Wake up and live. It’s a fast world out there.
+ - I’m nothing if not honest.
+ - It is an obvious and blatant stupidity beyond my ability to articulate how dumb it is for us not to teach our children how to run the government.
+ - People who commit adultery must die. Everyone knows that. Any movie tells you that!
+ - There is one solution to all of our problems: Teaching our kids clarity of thought and political representation in democracy. That’s it.
+ - Part of me is still waiting to grow up, to be an adult, and the other part knows there is no such thing.
+ - She did the best that we could be; she was perfectly charming and perfectly loving. She was a dream. And she was the kind of dream that you remember when you wake up smiling.
+ - When you Google me, you’ll find a lot of people don’t like Richard Dreyfuss. Because I’m cocky and I present a cocky attitude. But no one has ever disagreed with the notion I represent, that we need more civic education. So far there’s 100 percent support for that.
+ - I believe that a nation that allows music to be expendable is in danger of becoming expendable itself.
+ - The bad guy always gets the best scene and the best lines in the film, and they usually get the most days off.
+ - My worst fear is that I’ll end up living in some run-down duplex on Wilshire wearing pants hiked up to my nipples and muttering under my breath.
+ - The happiest I ever been was when I was a struggling actor. I’ve had big houses and small houses. I always had work available for most of my career. When I actually had to find jobs to make money, that’s when I was happy.
+ - By telling my own story, I hope to help remove the stigma. It never should be something to hide.
+ - Civility is not not saying negative or harsh things. It is not the absence of critical analysis. It is the manner in which we are sharing this territorial freedom of political discussion. If our discourse is yelled and screamed and interrupted and patronized, that’s uncivil.
+ - If I wasn’t an actor, I’d be a teacher, a history teacher. After all, teaching is very much like performing. A teacher is an actor, in a way. It takes a great deal to get, and hold, a class.
+ - It must be remembered that the Bush White House has a separate talent for character assassination that must not be confused with a talent for governance.
+ - Happiness has a bad rap. People say it shouldn’t be your goal in life. Oh, yes it should.
+ - I said to my doctor, ‘You gotta testme, there’s something wrong with me that I would be behaving this way.’
+ - Let’s give some substance to patriotism. It may take a generation.
+ - I didn’t understand 3-D in the fifties and I can’t say I get it now either. I just don’t see what the big deal is.
+ - I never had a role that I set out for. I always wanted to have a body of work that I’m proud of. Save for two projects, which will never pass my lips, I’m happy with what I’ve done.
+ - Power never turns power down, ever, unless institutionally demanded.
+ - It’s fun to see the light in someone’s eyes. It’s fun to give your own eccentric experience and have it land. That’s fun.
+ - The rules are all wrong today. The mandate of the media really does pre-date the founding of the United States.
+ - In my experience, it’s usually up to the actor how a character is portrayed.
+ - I really think that living is the process of going from complete certainty to complete ignorance.
+ - When you work in front of the people, either in a film or in television, the people who are in the room with you are not watching you work, they’re working so you’d have to light a fire to get them to watch what you were doing.
+ - I have more fun and more grand and glorious moments of my life than anyone I’ve never known. I know that some people call that manic-depress, and that other people call that being touched by God. I just call myself lucky.
+ - I don’t know what its like for most actors, but really clearly for myself acting has always been the fulfillment of personal fantasies. It isn’t just art, its about being a person I’ve always wanted to be, or being in a situation, or being a hero.
+ - I decided at age 9, but I was reinforced at age 13 when a teacher told me I had talent. I can’t say she really motivated me because I already knew. I knew I had talent. I went to the Jewish community theater and got in plays there. Then I went for the movies.
+ - Theater is completely different from film or television. It has a beginning and a middle and an end and it’s different every night. And it’s far preferable to any other except in the sense of not getting paid, people who want to eat should do film and television.
+ - Tabouli is the best salad, but still, you don’t win friends with salad.
+ - We mistake politics for legislative debate. You can be passionate without being personal.
+ - John Kennedy really did extend the reach of the American people and said, like Lincoln said in a way, that our reach is farther than our grasp – and we should aim high.
+
+35 quotes

@@ -1,0 +1,22 @@
+ - Only stupid people don’t change their minds.
+ - The next war in the Middle East will be fought over water, not politics.
+ - I believe it will take time to find a solution to the problem. Thus we must have patience.
+ - We must rid the world of the scourge of these agents of death and destruction.
+ - Water will be more important than oil this century.
+ - Democracy is an objective. Democratization is a process. Democratization serves the cause of peace because it offers the possibility of justice and of progressive change without force.
+ - For us, genocide was the gas chamber – what happened in Germany. We were not able to realize that with the machete you can create a genocide.
+ - It has long been recognized that an essential element in protecting human rights was a widespread knowledge among the population of what their rights are and how they can be defended.
+ - It would be some time before I fully realized that the United States sees little need for diplomacy. Power is enough. Only the weak rely on diplomacy The Roman Empire had no need for diplomacy. Nor does the United States.
+ - The lesson I learned in Cairo still applies. The only way to deal with bureaucrats is with stealth and sudden violence.
+ - The failure of the United Nations – My failure is maybe, in retrospective, that I was not enough aggressive with the members of the Security Council.
+ - The problem is when you are writing something in retrospective, it needs a lot of courage not to change, or you will forget a certain reality, and you will just take in consideration your view today.
+ - A genocide in Africa has not received the same attention that genocide in Europe or genocide in Turkey or genocide in other part of the world. There is still this kind of basic discrimination against the African people and the African problems.
+ - Rwanda was considered a second-class operation because it was a small country, we had been able to maintain a kind of status quo. They were negotiating, they’d accepted the new peace project, so we were under the impression that everything would be solved easily.
+ - But at the beginning, our definition of the genocide was what happened to Armenia in 1917 or 1919, it’s happened to the Jew in Europe, and we were not realizing – In our point of view, they have not the tools to do a genocide.
+ - Co-operative enterprises provide the organisational means whereby a significant proportion of humanity is able to take into its own hands the tasks of creating productive employment, overcoming poverty and achieving social integration.
+ - There is a greater fatigue concerning the African problem today than five or 10 years ago. The situation now in Africa is worse today than it was 10 years ago.
+ - We were not realizing that, with just a machete, you can do a genocide.
+ - So this is why I’m always say happy that somebody mentions Rwanda, because behind Rwanda, we have Africa.
+ - I used to say I never talk about my successor, neither about my predecessor.
+
+20 quotes

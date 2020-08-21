@@ -1,0 +1,43 @@
+ - Information wants to be free.
+ - Redefine the possible.
+ - We are as gods and might as well get good at it.
+ - Once a new technology rolls over you, if you’re not part of the steamroller, you’re part of the road.
+ - We can influence the future but not see it.
+ - The urgent finds you; you have to find the important. Importance is not fast. It is slow. It is not superficial. It is deep. And as a result, it’s extremely powerful. When important matters go wrong, they undermine everything. When they go right, they sustain everything.
+ - If you don’t like bacteria, you’re on the wrong planet.
+ - A building is not something you finish. A building is something you start.
+ - A library doesn’t need windows. A library is a window.
+ - Information wants to be free. Information also wants to be expensive.
+ - Many of my contemporaries in the developed world see subsistence farming as soulful and organic, but it is a poverty trap and an environmental disaster.
+ - Carbon tax has the advantage of basically being able to subsidize one set of activities that you want with another set of activities that you don’t want. It’s like a cigarette tax.
+ - Whenever I hear the word “share” I would reach for a gun if I had one. “Share” is frequently followed by the word “feelings”, and I have enough of my own thank you; please do us both a favor and repress yours.
+ - When a fantasy turns you on, you’re obligated to God and nature to start doing it right away.
+ - The point is to explore whatever may be helpful for thinking, understanding, and acting responsibly over long periods of time.
+ - Over the next ten years, I predict, the mainstream of the environmental movement will reverse its opinion and activism in four major areas: population growth, urbaninzation, genetically engineered organisms, and nuclear power.
+ - The technology of synthetic biology is currently accelerating at four times the rate of Moore’s Law. It’s been doing that since 2005, and it’s likely to continue.
+ - All buildings are predictions. All predictions are wrong.
+ - Style is time’s fool. Form is time’s student.
+ - There’s no unemployment in squatter cities. Everyone works. One-sixth of humanity is there. It’s soon going to be more than that.
+ - The great problem with the future is that we die there. This is why it is so hard to take the future personally, especially the longer future, because that world is suffused with our absence.
+ - Likewise, with solar, especially here in California, we’re discovering that the 80 solar farm schemes that are going forward want to basically bulldoze 1,000 sq. mi. of southern California desert. Well, as an environmentalist, we would rather that didn’t happen.
+ - When the government tries to run innovation, sometimes it does it well and sometimes it doesn’t. So setting up a situation where the market runs innovation, which is a cap-and-trade idea, may well have more flexibility.
+ - Historians will consider this a dark age. Science historians can read Galileos technical correspondence from the 1590s but not Marvin Minskys from the 1960s.
+ - Art flouts convention. Convention became convention because it works.
+ - Civilization’s shortening attention span is mismatched with the pace of environmental problems.
+ - We have wished, we eco-freaks, for a disaster or for a social change to come and bomb us into Stone Age, where we might live like Indians in our valley, with our localism, our appropriate technology, our gardens, our homemade religion-guilt-free at last!
+ - You own your own words, unless they contain information. In which case they belong to no one.
+ - In our researches on the likely economic apocalypse it’s become clear what is the prime survival tool for hard times: friends. Good friends. Lots of them.
+ - How can I throw my life away in the least unhappy way?
+ - The main problem with solar on the Earth’s surface is that it is so intermittent, and we don’t have decent storage yet.
+ - Do what’s good for humans, modeled on how humans already do things; ignore what’s convenient for computers.
+ - For artists diving into a new technology, it is a triple short-cut to mastery: you get a free ride on the novelty of the medium; there are no previous masters to surpass; and after a few weeks, you are the master. Try that with the violin.
+ - Want to know where the action in a culture is? Watch where new language is turning up and where the lawyers collect, usually in that sequence.
+ - One advantage of a solar collector in space: It would be some kind of origami thing that would unfold and be relatively light because it doesn’t have gravity to deal with.
+ - Tool – something with a use on one end and a grasp on the other end.
+ - When a generation talks just to itself, it becomes more filled with folly than it might have otherwise.
+ - There should always be in sight the draw – a kind of a beacon that draws you on through the labyrinth.
+ - Every interview with a public figure should include the question “What have you been wrong about, and how did that change your views?” The answer will tell us if the person is intellectually honest or a tale spinner with delusions of infallibility.
+ - This is pretty much the infrastructural stuff that comes along with large quantities of energy. Whichever technology we are looking at has serious hazardous issues.
+ - The amusements of broadcast consist mainly of songs, stories, and games, just as in tribal life. The songs and stories are mostly about courtship, the games mostly played by men, just as in tribal life.
+
+41 quotes

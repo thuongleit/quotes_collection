@@ -1,0 +1,26 @@
+ - You don’t raise heroes, you raise sons. And if you treat them like sons, they’ll turn out to be heroes, even if it’s just in your own eyes.
+ - A little levity is appropriate in a dangerous trade.
+ - Kids today don’t want to get married. Too many of their friends have been married and divorced already. They just don’t believe in it.
+ - I left Earth three times and found no other place to go. Please take care of Spaceship Earth.
+ - When people have asked if I’d like to go in the Shuttle, I said you don’t get to fly it, except for landing, which I’d love to do. I wouldn’t go unless I could command it.
+ - He who commands an Apollo flight will not command a second one.
+ - I don’t go along with going to Moon first to build a launch pad to go to Mars. We should go to Mars from Earth orbit. We have already been to the Moon; we’ve already practiced.
+ - When a test pilot comes off a flight, there is typically another pilot who is going to take it up, and he believes in the debriefing. You don’t keep something to yourself.
+ - Levity is the lubricant of a crisis. We resort to jokes, pranks and good natured kidding to relieve tension, stress and boredom.
+ - Dad went to Canada to learn how to fly with the Royal Canadian Air Force. He took me on my first airplane ride, where I could have a hand on the stick.
+ - When a man looks across a street, sees a pretty girl, and waves at her, that’s not a rendezvous, that’s a passing acquaintance. When he walks across the street and nibbles on her ear, that’s a rendezvous!
+ - As a child I went to a circus. They had a man shot out of a cannon into a net. I became intrigued with what was going on.
+ - Apollo was a big, unwieldy vehicle. I had a problem with the flight controllers over that. It would try to fare its way like an airplane.
+ - I remember seeing war hero Jimmy Doolittle fly a Gee Bee racer there. He was my childhood hero. Many years later, I was lucky enough to go hunting with him.
+ - Another real problem was over putting our helmets on for re-entry, because we all had severe head colds. They couldn’t come up there and make us. Houston, you have a problem!
+ - I played English football – soccer – instead of American football, because we couldn’t afford the equipment.
+ - I was told having a website would help me. I have yet to figure out why my life story needs to be on the web.
+ - I’ve always thought space station is a great name. It should be like a gas station where we go for service and supplies before heading further out.
+ - I don’t think the space station will ever do anything for exploration. Putting people up there for a year or more is the only way you will get anywhere near the exploration concept.
+ - I had always wanted to go to the Navy. As a young kid, I was intrigued by a Naval Officer with the beautiful brown shoes and sharp gold wings.
+ - Each test pilot I know considers him, or herself, now that there are women, to be the very best. It’s very demeaning to step down the ladder once in a while.
+ - John Glenn craved the publicity. I think even John would admit that. When he went into politics, that became pretty obvious! He knew how to do public relations.
+ - We spent a lot of time in simulators. We were going to do it right.
+ - Some of the wives didn’t keep up with the program. It started breaking apart during the Apollo days.
+
+24 quotes

@@ -1,0 +1,44 @@
+ - Advertising is the art of persuasion.
+ - It’s not just what you say that stirs people. It’s the way that you say it.
+ - It may well be that creativity is the last unfair advantage we’re legally allowed to take over our competitors.
+ - Those who are going to be in business tomorrow are those who understand that the future, as always, belongs to the brave.
+ - An idea can turn to dust or magic, depending on the talent that rubs against it.
+ - Adapt your techniques to an idea, not an idea to your techniques.
+ - Properly practiced creativity can make one ad do the work of ten.
+ - If you stand for something, you will always find some people for you and some people against you. If you stand for nothing, you will find nobody against you, and nobody for you.
+ - Good advertising does not just circulate information. It penetrates the public mind with desires and belief.
+ - All of us who professionally use the mass media are the shapers of society. We can vulgarise that society. We can brutalise it. Or we can help lift it onto a higher level.
+ - Advertising doesn’t create a product advantage. It can only convey it.
+ - Find the simple story in the product, and present it in an articulate and intelligent, persuasive way.
+ - Persuasion is not a science but an art.
+ - The heart of creativity is discipline.
+ - Rules are what the artist breaks; the memorable never emerged from a formula.
+ - A great ad campaign will make a bad product fail faster. It will get more people to know it’s bad.
+ - You can say the right thing about a product and nobody will listen. You’ve got to say it in such a way that people will feel it in their gut. Because if they don’t feel it, nothing will happen.
+ - Logic and over-analysis can immobilise and sterilize an idea. It’s like love. The more you analyse it, the more it disappears.
+ - The real giants have always been poets, men who jumped from facts into the realm of imagination and ideas.
+ - Creativity is the most practical thing a businessman can employ.
+ - For the Flower to blossom, you need the right soil as well as the right seed. The same is true to cultivate good thinking.
+ - Our job is to bring the dead facts to life.
+ - Never do anything yourself that you can hire someone else to do, especially if they can do it better.
+ - A principle isn’t a principle until it costs you something.
+ - If your advertising goes unnoticed, everything else is academic!
+ - We are so busy measuring public opinion that we forget we can mold it. We are so busy listening to statistics we forget we can create them.
+ - You cannot sell a man who isn’t listening; word of mouth is the best medium of all; and dullness won’t sell your product, but neither will irrelevant brilliance.
+ - In advertising, not to be different is virtually suicidal.
+ - Imitation can be commercial suicide.
+ - The difference between the forgettable and the enduring is artistry.
+ - Today’s smartest advertising style is tomorrow’s corn.
+ - The creative man with an insight into human nature, with the artistry to touch and move people, will succeed. Without them he will fail.
+ - Research can trap you into the past.
+ - Let us prove to the world that good taste, good art, and good writing can be good selling.
+ - Don’t confuse good taste with the absence of taste.
+ - You have to live with your product, you have to know it through and through, you have to look at it, understand it, love it then, and only then, you can crystallize in one clear thought, one single theme, what must be conveyed about the product to the consumer.
+ - I warn you against believing that advertising is a science.
+ - No matter how skillful you are, you can’t invent a product advantage that doesn’t exist. And if you do, and it’s just a gimmick, it’s going to fall apart anyway.
+ - There is no such thing as a good or bad ad in isolation. What is good at one moment is bad at another. Research can trap you into the past.
+ - Because an appeal makes logical sense is no guarantee that it will work.
+ - Word of mouth is the best medium of all.
+ - Properly practiced creativity MUST result in greater sales more economically achieved. Properly practiced creativity can lift your claims out of the swamp of sameness and make them accepted, believed, persuasive, urgent.
+
+42 quotes

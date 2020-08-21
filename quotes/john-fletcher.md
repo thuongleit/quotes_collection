@@ -1,0 +1,28 @@
+ - Deeds, not words shall speak me.
+ - A man of words and not of deeds Is like a garden full of weeds And when the weeds begin to grow It’s like a garden full of snow...
+ - Charity and treating begin at home.
+ - Man is his own star, and the soul that can Render an honest and a perfect man, Commands all light.
+ - Only look to Jesus. He died for you, died in your place, died under the frowns of heaven, that we might die under its smile.
+ - Of all the forms of wisdom, hindsight is by general consent the least merciful, the most unforgiving.
+ - Drink today, and drown all sorrow; you shall perhaps not do tomorrow.
+ - Come, sing now, sing; for I know you sing well; I see you have a singing face.
+ - The coward’s weapon, poison.
+ - It’s impossible to ravish me, I’m so willing.
+ - Speak boldly and speak truly, shame the devil.
+ - Hence, all you vain delights, As short as are the nights Wherein you spend your folly! There’s naught in this life sweet But only melancholy; O sweetest melancholy!
+ - Ask how to live? Write, write, write, anything; The world’s a fine believing world, write news.
+ - O woman, perfect woman! what distraction Was meant to mankind when thou wast made a devil!
+ - A woman friend! He that believes that weakness, Steers in a stormy night without a compass.
+ - Tyranny is yielding to the lust of the governing.
+ - Great actions speak great minds.
+ - The greatest attribute of heaven is mercy; And ’tis the crown of justice, and the glory.
+ - Corruption is a tree, whose branches are Of an immeasurable length: they spread Ev’rywhere; and the dew that drops from thence Hath infected some chairs and stools of authority.
+ - Go far – too far you cannot, still the farther. The more experience finds you: and go sparing. One meal a week will serve you, and one suit, through all your travels; for you’ll find it certain.
+ - Death hath so many doors to let out life.
+ - Our acts our angels are, for good or ill, our fatal shadows that walk by us still.
+ - We must not be content to be cleansed from sin; we must be filled with the Spirit.
+ - Care-charming Sleep, thou easer of all woes, brother to Death, sweetly thyself dispose.
+ - I find the medicine worse than the malady.
+ - That soul that can Be honest is the only perfect man.
+
+26 quotes

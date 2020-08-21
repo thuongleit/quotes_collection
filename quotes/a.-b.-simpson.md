@@ -1,0 +1,67 @@
+ - Our God has boundless resources. The only limit is in us. Our asking, our thinking, our praying are too small. Our expectations are too limited.
+ - A divided heart loses both worlds.
+ - When you cannot rejoice in feelings, circumstances or conditions, rejoice in the Lord.
+ - Difficulties and obstacles are God’s challenges to faith. When hindrances confront us in the path of duty, we are to recognize them as vessels for faith to fill with the fullness and all-sufficiency of Jesus.
+ - God is preparing his heroes; and when the opportunity comes, he can fit them into their places in a moment, and the world will wonder where they came from.
+ - The human body has been called the microcosm of the universe, a little world of wonders and a monument of divine wisdom and power, sufficient to convince the most incredulous mind of the existence of the Great Designer.
+ - Forget yourself and live for others, for It is more blessed to give than to receive.
+ - When I cannot understand my Father’s leading, And it seems to be but hard and cruel fate, Still I hear that gentle whisper ever pleading, God is working, God is faithful-Only wait.
+ - The Christian that is bound by his own horizon, the church that lives simply for itself, is bound to die a spiritual death and sink into stagnancy and corruption. We never can thank God enough for giving us not only a whole Gospel to believe, but a whole world to give it to.
+ - Have you ever learned the beautiful art of letting God take care of you and giving all your thought and strength to pray for others and for the kingdom of God? It will relieve you of a thousand cares.
+ - The Holy Spirit is just as truly in us when He makes no sign as when the fountains of joy are overflowing, or the waters of peace are softly refreshing our weary and troubled heart.
+ - Prayer is the mighty engine that is to move the missionary work.
+ - The safe place lies in obedience to God’s Word, singleness of heart and holy vigilance.
+ - This is our high calling, to represent Christ, and act in His behalf, and in His character and spirit, under all circumstances and toward all men.
+ - God never can use any man very much till he has grace enough to forget himself entirely while doing God’s work; for He will not give His glory to another nor share with the most valued instrument the praise that belongs to Jesus Christ alone.
+ - Before we can speak God’s message, we must learn to listen. The opened ear comes before the opened mouth.
+ - You must have faith in God.
+ - Prayer is the link that connects us with God.
+ - One touch of Christ is worth a lifetime of struggling.
+ - I want the love that cannot help but love; Loving, like God, for very sake of love.
+ - One of the special marks of the Holy Ghost in the Apostolic Church was the spirit of boldness.
+ - May God so fill us today with the heart of Christ that we may glow with the divine fire of holy desire.
+ - As long as you want anything very much, especially more than you want God, it is an idol.
+ - All earth-born hopes with time must pass away; prayer grasps eternal things; pray, always pray.
+ - The difference between human heroes and sacred characters lies just in this: the man is just a man, but behind the man of God, God Himself is ever standing greater than the man and overshadowing him by His infinite and glorious presence.
+ - One of the first signs of a Spirit-filled life is enthusiasm!
+ - Holiness of heart and life. This is not the perfection of the human nature, but the holiness of the divine nature dwelling within.
+ - When God wants to bring more power into our lives., He brings more pressure. He is generating spiritual force by friction.
+ - Warning: we may become so enamored with God’s good gifts that we fail to worship the Giver.
+ - All that God requires of us is an opportunity to show what He can do.
+ - We cannot ask in behalf of Christ what Christ would not ask Himself if He were praying.
+ - Aggressive Christianity is the world’s greatest need.
+ - The Christian is not obedient unless he is doing all in his power to send the Gospel to the heathen world.
+ - Once a leader delegates, he should show utmost confidence in the people he has entrusted.
+ - You will have no test of faith that will not fit you to be a blessing if you are obedient to the Lord. I never had a trial but when I got out of the deep river I found some poor pilgrim on the bank that I was able to help by that very experience.
+ - Temptation exercises our faith and teaches us to pray.
+ - We must learn to live on the heavenly side and look at things from above. To contemplate all things as God sees them, as Christ beholds them, overcomes sin, defies Satan, dissolves perplexities, lifts us above trials, separates us from the world and conquers fear of death.
+ - Beloved, have you ever thought that someday you will not have anything to try you, or anyone to vex you again? There will be no opportunity in heaven to learn or to show the spirit of patience, forbearance, and longsuffering. If you are to practice these things, it must be now.
+ - I would rather play with forked lightning, or take in my hand living wires with their fiery current, than to speak a reckless word against any servant of Christ, or idly repeat the slanderous darts which thousands of Christians are hurling on others, to the hurt of their own souls and bodies.
+ - The sanctified body is one whose hands are clean. The stain of dishonesty is not on them, the withering blight of ill-gotten gain has not blistered them, the mark of violence is not found upon them. They have been separated from every occupation that could displease God or injure a fellow-man.
+ - Be brave. Cowards always get hurt. Brave men generally come out unharmed.
+ - Begin to rejoice in the Lord, and your bones will flourish like an herb, and your cheeks will glow with the bloom of health and freshness. Worry, fear, distrust, care-all are poisonous! Joy is balm and healing, and if you will but rejoice, God will give power.
+ - Christ rises above all things.
+ - Perils as well as privileges attend the higher Christian life. The nearer we come to God, the thicker the hosts of darkness in heavenly places. Aggressive Christianity is the world’s greatest need.
+ - It is all right when God sends us the approval of our fellow men; however, we must never make that approval a motive in our life.
+ - We must never forget that Christ did not suffer just during His three years of public ministry or the last few days of His life when He was crucified. No, He suffered throughout His life on earth. He who was without sin lived daily with the corruption and sinfulness of lost humanity.
+ - God is not looking for extraordinary characters as His instruments, but He is looking for humble instruments through whom He can be honored throughout the ages.
+ - One bright and thankful look at the cross is worth a thousand morbid, self-condemning reflections.
+ - Fear is born of Satan, and if we would only take time to think a moment we would see that everything Satan says is founded upon a falsehood.
+ - If God’s Word is not absolutely and completely true, it is too weak a cable to fix our anchorage and guarantee our eternal peace.
+ - Have we forgotten that there is a Holy Ghost, that we must insist upon walking on crutches when we might fly?
+ - It is not enough to wear an ornamental cross as a pretty decoration.
+ - The greatest need of our age and of every age, the greatest need of every human heart, is to know the resources and sufficiency of God.
+ - Let us honor the Holy Ghost.
+ - We must surrender ourselves so utterly that we can never own ourselves again. We must hand over self and all its rights in an eternal covenant, and give God the absolute right to own us, control us and possess us forever.
+ - The religion of the Bible is wholly supernatural.
+ - God does not so much want us to do things as to let people see what He can do.
+ - I cannot understand how any man or woman can believe in the Lord’s coming and not be a missionary, or at least committed to the work of missions with every power of his being.
+ - Often we want people to pray for us and help us, but we always defeat our object when we look too much to them and lean upon them. The true secret of union is for both to look upon God, and in the act of looking past themselves to Him they are unconsciously united.
+ - There is not a command God gives to His children for which He does not provide the enablement for obedience.
+ - Unless I am sure I am doing more at home to send the gospel abroad than I can do abroad, I am bound to go.
+ - Once I tried to use Him, now He uses me.
+ - Your words and wishes are cheap if they do not find expression in your actual gifts.
+ - I like to interpose in all of my appointments, if the Lord wills.
+ - It is not the part of faith to question, but to obey.
+
+65 quotes

@@ -1,0 +1,99 @@
+ - Honesty is more than not lying. It is truth telling, truth speaking, truth living, and truth loving.
+ - Faith is the power, obedience is the price, love is the motive, the Spirit is the key and Christ is the reason.
+ - Adversity is the refiner’s fire that bends iron but tempers steel.
+ - The thankful heart opens our eyes to a multitude of blessings that continually surround us.
+ - If you take each challenge one step at a time, with faith in every footstep, your strength and understanding will increase.
+ - Self-mastery is a challenge for every individual. Only we can control our appetites and passions. Self-mastery cannot be bought by money or fame. It is the ultimate test of our character. It requires climbing out of the deep valleys of our lives and scaling our own Mount Everests.
+ - A grateful heart is a beginning of greatness. It is an expression of humility.
+ - A grateful heart is a beginning of greatness. It is an expression of humility. It is a foundation for the development of such virtues as prayer, faith, courage, contentment, happiness, love, and well-being.
+ - The depth of the love of parents for their children cannot be measured. It is like no other relationship. It exceeds concern for life itself. The love of a parent for a child is continuous, and transcends heartbreak and disappointment.
+ - Obedience leads to true freedom. The more we obey revealed truth, the more we become liberated.
+ - Cheating in school is a form of self-deception. We go to school to learn. We cheat ourselves when we coast on the efforts and scholarship of someone else.
+ - Some, like Ebenezer Scrooge in Dickens’s A Christmas Carol, have a hard time loving anyone, even themselves, because of their selfishness. Love seeks to give rather than to get. Charity towards and compassion for others is a way to overcome too much self-love.
+ - In my opinion, the teaching, rearing, and training of children requires more intelligence, intuitive understanding, humility, strength, wisdom, spirituality, perseverance, and hard work than any other challenge we might have in life.
+ - There is no greater good in all the world than motherhood. The influence of a mother in the lives of her children is beyond calculation.
+ - Integrity is the light that shines from a disciplined conscience.
+ - To be a good father and mother requires that the parents defer many of their own needs and desires in favor of the needs of their children. As a consequence of this sacrifice, conscientious parents develop a nobility of character.
+ - Believing requires action.
+ - It is a denial of the divinity within us to doubt our potential and our possibilities.
+ - Perseverance is demonstrated by those who keep going when the going gets tough, who don’t give up even when others say, It can’t be done.
+ - Some of our important choices have a time line. If we delay a decision, the opportunity is gone forever. Sometimes our doubts keep us from making a choice that involves change. Thus an opportunity may be missed.
+ - Noble fatherhood gives us a glimpse of the divine attributes of our Father in Heaven.
+ - Integrity is the value we set on ourselves.
+ - Integrity is the value we set on ourselves. It is a fulfillment of the duty we owe ourselves. An honorable man or woman will personally commit to live up to certain self-imposed expectations. They need no outside check or control. They are honorable in their inner core.
+ - We should not allow our personal values to erode, even if others think we are peculiar.
+ - Success is usually earned by persevering and not becoming discouraged when we encounter challenges.
+ - Obedience is the path to freedom...
+ - Your criticism may be worse than the conduct you are trying to correct.
+ - Our natural gifts and abilities are limited, but when augmented by inspiration and guidance of the Holy Ghost, our potential increases many fold.
+ - There is only one Church, and the responsibility for missionary work is universal. ‘Every member a missionary.’
+ - Leadership is about three-fourths show-the-way and about one-fourth follow-up.
+ - The dignity of self is greatly enhanced by looking upward in the search for holiness. Like the giant trees, we should reach up for the light. The most important source of light we can come to know is the gift of the Holy Ghost. It is the source of inner strength and peace.
+ - In addition to temples, surely another holy place on earth ought to be our homes. The feelings of holiness in my home prepared me for feelings of holiness in the temple.
+ - What are most people hungry for? I believe it is spiritual and moral leadership. Increases in technology, scientific inventions, and medical miracles have been marvelous and incredible. But we must use them properly to bring us joy, and that requires spiritual and moral leadership.
+ - We frequently find that the influence of good women is underrated. It is an influence that is often subtle but yet has tremendous consequences. One woman can make a great difference for a whole nation.
+ - The Holy Ghost is the greatest guarantor of inward peace in our unstable world.
+ - We learn about tithing by paying it.
+ - We perhaps need to snatch happiness in little pieces, learning to recognize the elements of happiness and then treasuring them while they last.
+ - May we all be faithful in doing the day-to-day, ordinary things that prove our worthiness, for they will lead us to and qualify us for great things.
+ - A husband should always try to treat his wife with the greatest courtesy and respect, holding her in the highest esteem. He should speak to her in a kind and a soft manner, showing his love by word and deed. As she feels this love and tenderness she will mirror it and return it tenfold.
+ - Look at everything through the lens of eternity. If you will do this, life will take on a different perspective.
+ - As a young man, I lived through the Great Depression, when banks failed and so many lost their jobs and homes and went hungry. I was fortunate to have a job at a canning factory that paid 25 cents an hour.
+ - A rebirth out of spiritual adversity causes us to become new creatures.
+ - Meetings don’t have to be endless to be eternal.
+ - The only way to acquire spiritual knowledge and keep It burning brightly is to be humble, prayerful, and to strive diligently to keep all of the commandments.
+ - You must have the strength to discipline yourselves so that you can accomplish your goals and enhance your natural strengths. Habits of self-discipline formed while you are young will become part of the makeup of your character for the rest of your lives.
+ - There is a divine purpose in the adversities we encounter every day. They prepare, they purge, the purify, and thus they bless.
+ - We all enjoy giving and receiving presents. But there is a difference between presents and gifts. The true gifts may be part of ourselves-givin g of the riches of the heart and mind-and therefore more enduring and of far greater worth than presents bought at the store.
+ - True charity ought to begin in marriage, for it is a relationship that must be rebuilt every day.
+ - Femininity is not just lipstick, stylish hairdos, and trendy clothes. It is the divine adornment of humanity. It finds expression in your qualities of your capacity to love, your spirituality, delicacy, radiance, sensitivity, creativity, charm, graciousness, gentleness, dignity, and quiet strength.
+ - You cannot convert people beyond your own conversion.
+ - I hope we can all overcome any differences of culture, race, and language.
+ - Don’t take too much council from your fears.
+ - Leaders receive and give assignments. This is an important part of the necessary principle of delegating. No one appreciates a willing volunteer more than I, but the total work cannot be done as the Lord wants it done merely by those doing the work who may be present at meetings.
+ - Everybody in this life has their challenges and difficulties. That is part of our mortal test. The reason for some of these trials cannot be readily understood except on the basis of faith and hope because there is often a larger purpose which we do not always understand. Peace comes through hope.
+ - True disciples are those who go beyond simply believing. They act out their belief.
+ - Listen to your parents. Be obedient to them whether you agree with them or not. They love you more than anyone else and have your best interests at heart.
+ - Those who enter into marriage, must be fully prepared to establish their marriage, as the first priority in their lives.
+ - If we can find forgiveness in our hearts for those who have caused us hurt and injury, we will rise to a higher level of self-esteem and well-being.
+ - Each of us is a unique creation of our Heavenly Father. No two of us are completely alike. No one else has exactly the same gifts and talents that we have been given. We should increase those talents and gifts and use them to leverage our uniqueness.
+ - As children of the Lord we should strive every day to rise to a higher level of personal righteousness in all of our actions.
+ - I encourage our Saints all over the world, wherever possible, to strive to stand more often in holy places.
+ - Another false philosophy that appeals to the Mr. Hyde side of our natures is that peeking into pornography is harmless. This is a terrible deception. Pornography is as addictive as cocaine or any illegal drug.
+ - I would hope that we can load our moral computers with three elements of integrity: 1. Dealing justly with oneself. 2. Dealing justly with others. 3. Recognizing the law of the harvest.
+ - The principle of work is part of self-discipline. Now, my dear young sisters, I have lived a good many years longer than you, but even back in Grandpa’s time there was something to make you want to lie down and go to sleep-they called it work.
+ - You cannot become great women if you are not also good women. Great women respond generously to their instincts to do good.
+ - Happiness in marriage and parenthood can exceed a thousand times any other happiness.
+ - We acquire a testimony of the principles of the gospel by obediently trying to live them.
+ - May we dedicate our lives to serving the Lord and not worry about offending the devil.
+ - Almost every day brings opportunities to perform unselfish acts for others. Such acts are unlimited and can be as simple as a kind word, a helping hand, or a gracious smile.
+ - I hope that each of you girls will become an individual of significant worth and a person of virtue so that your contributions are maintained in both human and eternal terms.
+ - The priesthood of God has become the eminent power for good in the world. We are no longer a handful of people on the fringes of society. This great power for good has been entrusted to us, and we must not weaken it by failing in our responsibilities.
+ - We must at times search our own souls and discover what we really are. Our real character, much as we would wish, cannot be hidden.
+ - Each temple building is an inspiration, magnificent and beautiful in every way, but the temple building alone does not bless. The endowed blessings and divine functions – come through obedience and faithfulness to priesthood authority and covenants made.
+ - I urge all who have not yet received these greatest of all blessings within the walls of the temple to do whatever may be necessary to qualify to receive them.
+ - The gap between what is popular and what is righteous is widening.
+ - In recent years, many seem to have spent their lives protesting. Perhaps they have felt to do this because they have felt repressed or wished to bring about change or have acted out of selfish reasons, thinking that if they tore the house down they might end up with a shingle.
+ - I acknowledge with great gratitude the peace and contentment we can find for ourselves in the spiritual cocoons of our homes, our sacrament meetings, and our holy temples.
+ - You want to make your own decisions, but you ought to make those decisions with an eternal perspective.
+ - Just as order gave life and beauty to the earth when it was dark and void, so it does to us. Obedience helps us develop the full potential Heavenly Father desires for us in becoming celestial beings worthy some day to live in His presence.
+ - I believe our differences are the little pinches of salt that can make the marriage seem more flavorful.
+ - There is no greater good in all the world than motherhood.
+ - The depth of our belief in the Resurrection and the Atonement of the Savior will, I believe, determine the measure of courage and purpose with which we meet life’s challenges.
+ - What are we doing to keep the light shining in our own eyes and countenances; Much of that light comes from our discipline dedication and consecration.
+ - Most of us cannot afford to store a year’s supply of luxury items, but find it more practical to store staples that might keep us from starving in case of emergency.
+ - One of the advantages of having lived a long time is that you can often remember when you had it worse. I am grateful to have lived long enough to have known some of the blessings of adversity.
+ - We should ask ourselves; What are the Brethren saying? The living prophets can open the visions of eternity; they give counsel on how to overcome the world. We cannot know that counsel if we do not listen. We cannot receive the blessings we are promised if we do not follow the counsel given.
+ - There need to be some absolutes in life.
+ - The temple was a place of learning for the Savior when He was on the earth; it was very much a part of His life. Temple blessings are available once again in our day.
+ - I urge the husbands and fathers of this church to be the kind of a man your wife would not want to be without.
+ - President Hinckley’s strong, continuing challenge to us is retention, which requires full cooperation between the missionary, the leaders and members.
+ - Many years spent listening to the tribulations of man have persuaded me that the satisfaction of all desires is completely counterproductive to happiness. Instant and unrestrained gratification is the shortest and most direct route to unhappiness.
+ - This Christmas and every Christmas will be richer by sharing and enjoying gifts that cannot be held but only felt.
+ - None of us knows the wisdom of the Lord. We do not know in advance exactly how He would get us from where we are to where we need to be, but He does offer us broad outlines in our patriarchal blessings. We encounter many bumps, bends, and forks in the road of life that leads to the eternities.
+ - In order to do well, missionary work has to be totally positive.
+ - I believe that God has opened up these treasures on intelligence to enhance His purposes on the earth.
+ - The saving principles and doctrines of the Church are established, fixed, and unchangeable.
+ - Into every life there come the painful, despairing days of adversity.
+
+97 quotes

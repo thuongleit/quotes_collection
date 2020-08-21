@@ -1,0 +1,22 @@
+ - Trying to find a heart that’s not walking away.
+ - Life’s too short to stay where we are.
+ - As my uncle always says, ‘If your vibe outweighs your substance, you’re destined to be a novelty.’ I think that is true in all art.
+ - I guess we’re all one phone call from our knees.
+ - I love being vulnerable. It’s scary. I feel like the best stuff that I have ever written can come from real vulnerable places.
+ - Don’t apologize for all the tears you’ve cried, you’ve been way too strong now for all your life.
+ - It’s not the circumstances that determine who you’re gonna be but how you deal with these problems and pains that come your way.
+ - I love creating moments that feel bigger than just like an artist on stage.
+ - If you make people think they’re thinking they’ll like you, but if you make people actually think, then watch out, you’re not going to be popular.
+ - I enjoy changing; I think it’s more fun to try something different than to just do what you did last time.
+ - I think one of the things that I carry, and just my goals in life, is just encourage people and make them feel joy and celebrated and they leave feeling like maybe there was stuff talked about that was difficult, but then there was a voice of redemption and grace in the middle of that.
+ - Getting married and really digging in with another human being can point out your greatest strengths and your greatest weaknesses.
+ - As an artist, you just want to keep creating, keep finding a place that really inspires you that feels fresh and new and keep it exciting.
+ - There’s a truth to the fact that it’s hard to be real. It’s easy to be indulgent. It’s easy to be bubble gum, but it’s hard to find a real thing that really makes your soul tick. It’s painful and honest. It can be more challenging than just a sad song.
+ - I never play all new stuff, because you got to “dance with the girl that brought you” what is that saying? You got to play the songs that got you there, so I love playing the songs from my very first record.
+ - Just because you’ve written a song doesn’t mean that you have pulled through. There are definitely songs where I embodied someone else’s pain and that was purely to serve the listener because I knew they needed to hear something. But most of the good stuff comes from my life.
+ - The stories that are too personally vulnerable to write are the ones that must be told.
+ - When I set out to write, I want to write something that will rip your heart out.
+ - The songs that you start to write that you are a little scared of can be the ones that you have to tell.
+ - Songs really tend to connect.
+
+20 quotes

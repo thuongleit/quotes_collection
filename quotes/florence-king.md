@@ -1,0 +1,78 @@
+ - If you ever meet someone who cannot understand why solitary confinement is considered punishment, you have met a misanthrope.
+ - True nostalgia is an ephemeral composition of disjointed memories.
+ - If we define a misanthrope as ‘someone who does not suffer fools and likes to see fools suffer,’ we have described a person with something to look forward to.
+ - I don’t suffer fools, and I like to see fools suffer.
+ - America is the only country in the world where you can suffer culture shock without leaving home.
+ - I do believe in reincarnation, but I do not believe there is life before noon.
+ - Democracy is the fig leaf of elitism.
+ - Insecurity breeds treachery: if you are kind to people who hate themselves, they will hate you as well.
+ - A home without a grandmother is like an egg without salt.
+ - American couples have gone to such lengths to avoid the interference of in-laws that they have to pay marriage counselors to interfere between them.
+ - We worship education but hate learning. We worship success but hate the successful. We worship fame but hate the famous.
+ - Men are not very good at loving, but they are experts at admiring and respecting; the woman who goes after their admiration and respect will often come out better than she who goes out after their love.
+ - I simply like guns because you can’t shoot people without them.
+ - Showing up at school already able to read is like showing up at the undertaker’s already embalmed: people start worrying about being put out of their jobs.
+ - We worship education but hate learning.
+ - Writers who have nothing to say always strain for metaphors to say it in.
+ - Familiarity doesn’t breed contempt, it is contempt.
+ - Chinks in America’s egalitarian armor are not hard to find. Democracy is the fig leaf of elitism.
+ - It takes only one child to raze a village.
+ - Judge not, lest ye be judged judgmental.
+ - People are so busy dreaming the American Dream, fantasizing about what they could be or have a right to be, that they’re all asleep at the switch. Consequently we are living in the Age of Human Error.
+ - I don’t mind being regarded as perverted and unnatural, but I would die if people thought I was a Democrat.
+ - Never look on the bright side. The glare is blinding.
+ - Real feminism is spinsterhood. It’s time America admitted that old maids give all women a good name.
+ - Americans are so emotionally fragile that soon we will have to be carried around in plastic bubbles and fed with an eye-dropper.
+ - Golf is an exercise in Scottish pointlessness for people who are no longer able to throw telephone poles at each other.
+ - Owning your own home is America’s unique recipe for avoiding revolution and promoting pseudo-equality at the same time.
+ - Time has lost all meaning in that nightmare alley of the Western world known as the American mind.
+ - Of all the old maid’s blessing, the greatest is carte blanche. Spinsterhood is powerful; once a woman is called “that crazy old maid” she can get away with anything.
+ - In Mississippi the important thing is hooch, not bar equipment.
+ - There’s something unrefined about a reading woman, they always reek of the lamp. How can she grow up to be a lady if she’s always got her nose in a book? Granny Rudin.
+ - If whisky or salt won’t cure it, then to hell with it. I worry about important things.
+ - The joker in the deck of lesbian fidelity is female vanity: no woman of fifty is going to undress in front of a woman of twenty no matter how much she might lust for her.
+ - There’s no national glue holding us together because somebody put too much pluribus in the unum.
+ - In social matters, pointless conventions are not merely the bee sting of etiquette, but the snake bite of moral order.
+ - I wasn’t used to children and they were getting on my nerves. Worse, it appeared that I was a child, too. I hadn’t known that before; I thought I was just short.
+ - Episcopalians have always preferred the flying buttress to the pillar of the church.
+ - To me, elitism means a love of excellence and superiority, but America has declared war on both and developed a sick love of the lowest common denominator to make sure no-one becomes too fine for our touted democracy. We are almost at the point of regarding every virtue as elitist.
+ - Oppressed people are treacherous for the simple reason that treachery is both a means of survival and a way to curry favor with one’s oppressor.
+ - The copyeditor I drew was a brachycephalic, web-footed cretin who should have been in an institution learning how to make brooms.
+ - Why do I hate people? Who else is there to hate?
+ - The proliferation of support groups suggests to me that too many Americans are growing up in homes that do not contain a grandmoth...
+ - Let’s bring back grandmothers! A real family consists of three generations. It’s time Americans stopped worrying about interference and being a burden on the children and regrouped under one roof.
+ - Nothing is more likely to start me screaming like a madwoman than New York in February with its piles of blackened snow full of yellow holes drilled by dogs.
+ - I cherish the review-as-literature; as lapidary journalism in the eighteenth-century mode, the last hard sparkling diamond in theessayists’s tarnished crown. To me, writing a good review is not just a way to make extra money, but a sacred duty.
+ - He travels fastest who travels alone, and that goes double for she. Real feminism is spinsterhood.
+ - Wit goes for the jugular, not the jocular, and it’s the opposite of football; instead of building character, it tears it down.
+ - Gradually my whole concept of time changed until I thought of a month as having twenty-five days of humanness and five others when I might just as well have been an animal in a steel trap.
+ - The Apologizer Bunny keeps going and going and going.
+ - Families composed of rugged individualists have to do things obliquely.
+ - I’m for prayer in the schools because ritual and ceremony are calming and civilizing, and the little fartlings should be tamped down whenever possible.
+ - There is more sexism in a year’s worth of movies than actually exists in a woman’s entire lifetime.
+ - God may have loved the common people, but a trip to any shopping mall suggests that He made far too many of them.
+ - The witty woman is a tragic figure in American life. Wit destroys eroticism and eroticism destroys wit, so women must choose between taking lovers and taking no prisoners.
+ - In other countries, congenital introverts simply remain introverts all their lives, neither advancing nor retreating, but America’s commitment to extroversion as a national art form can abrade some naturally aloof personalities until they flower into deadly nightshade.
+ - There is nothing wrong with “women’s studies” that studying the right women can’t cure, but feminist literary scholars have a penchant for dragging the rivers of deserved obscurity for third-rate neurotics.
+ - Real feminism is spinsterhood.
+ - The nice thing about Southerners is the way we enjoy our neuroses.
+ - During the feminist seventies men were caught between a rock and a hard-on; in the fathering eighties they are caught between good hugs and bad hugs.
+ - Self-help books are making life downright unsafe. Women desperate to catch a man practice all the ploys recommended by these authors. Bump into him, trip over him, knock him down, spill something on him, scald him, but meet him.
+ - Kings and queens might do wicked things, but they don’t nag. One thing I like about Bloody Mary: she never said a word about lung cancer.
+ - Spinsterhood is Nature’s Own Feminism.
+ - The more immoral we become in big ways, the more puritanical we become in little ways.
+ - Familiarity breeds democracry.
+ - In the last few years, race relations in America have entered upon a period of intensified craziness wherein fear of being called a racist has so thoroughly overwhelmed fear of being a racist that we are in danger of losing sight of the distinction.
+ - It’s the Government’s job to print the money, deliver the mail and declare war. Now give me my cigarettes.
+ - Updike’s style is an exquisite blend of Melville and Austen: reading him is like cutting through whale blubber with embroidery scissors.
+ - I’ve always said that next to Imperial China, the South is the best place in the world to be an old lady.
+ - Southerners are so devoted to genealogy that we see a family tree under every bush.
+ - Resistance to team play seemed to pour like wet cement through my bones, displacing supple marrow, until I was ballasted with my own contempt.
+ - Americans worship creativity the way they worship physical beauty – as a way of enjoying elitism without guilt: God did it.
+ - Randian heroes come off as metaphors for Jews because they are beset by irrational forces that try to bar them from the professions and use their virtues against them to bring about their destruction.
+ - Animal rights activists gives disillusioned feminists an excuse to go back to being women protecting wee creatures without compromising their radical credentials.
+ - Keep dating and you will become so sick, so badly crippled, so deformed, so emotionally warped and mentally defective that you will marry anybody.
+ - I have a professional acquaintance whose recent eyelid job has left her with a permanent expression of such poleaxed astonishment that she looks at all times as if she had just read one of my books.
+ - My object is to live in a place that does not call itself ‘the community with a heart.’ I want one of those godforsaken towns where all the young people leave and the rest sit on the porch with a rifle across their knees.
+
+76 quotes

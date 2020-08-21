@@ -1,0 +1,265 @@
+ - Study hard what interests you the most in the most undisciplined, irreverent and original manner possible.
+ - The first principle is that you must not fool yourself and you are the easiest person to fool.
+ - What I cannot create, I do not understand.
+ - I, a universe of atoms, an atom in the universe.
+ - You have no responsibility to live up to what other people think you ought to accomplish. I have no responsibility to be like they expect me to be. It’s their mistake, not my failing.
+ - Nobody ever figures out what life is all about, and it doesn’t matter. Explore the world. Nearly everything is really interesting if you go into it deeply enough.
+ - Teach principles not formulas.
+ - I would rather have questions that can’t be answered than answers that can’t be questioned.
+ - I learned very early the difference between knowing the name of something and knowing something.
+ - Scientists are explorers. Philosophers are tourists.
+ - Physics is like sex: sure, it may give some practical results, but that’s not why we do it.
+ - To not know math is a severe limitation to understanding the world.
+ - The only way to deep happiness is to do something you love to the best of your ability.
+ - Religion is a culture of faith; science is a culture of doubt.
+ - I think it’s much more interesting to live not knowing than to have answers which might be wrong.
+ - Physics isn’t the most important thing. Love is.
+ - If you thought that science was certain – well, that is just an error on your part.
+ - I wonder why. I wonder why. I wonder why I wonder.
+ - The first principle is that you must not fool yourself – and you are the easiest person to fool. So you have to be very careful about that. After you’ve not fooled yourself, it’s easy not to fool other scientists. You just have to be honest in a conventional way after that.
+ - I love only nature, and I hate mathematicians.
+ - Fall in love with some activity, and do it! Nobody ever figures out what life is all about, and it doesn’t matter.
+ - I was born not knowing and have had only a little time to change that here and there.
+ - There is no learning without having to pose a question. And a question requires doubt.
+ - I don’t feel frightened by not knowing things, by being lost in a mysterious universe without any purpose, which is the way it really is, as far as I can tell. Possibly. It doesn’t frighten me.
+ - We need to teach how doubt is not to be feared but welcomed. It’s OK to say, “I don’t know.”
+ - If all of mathematics disappeared, physics would be set back by exactly one week.
+ - Nature has a great simplicity and therefore a great beauty.
+ - Mathematics is a language plus reasoning; it is like a language plus logic. Mathematics is a tool for reasoning.
+ - Know how to solve every problem that has been solved.
+ - I think I can safely say that nobody understands Quantum Mechanics.
+ - People who wish to analyze nature without using mathematics must settle for a reduced understanding.
+ - The world is a dynamic mess of jiggling things.
+ - The highest forms of understanding we can achieve are laughter and human compassion.
+ - Everything we know is only some kind of approximation, because we know that we do not know all the laws yet. Therefore, things must be learned only to be unlearned again or, more likely, to be corrected.
+ - Some people say, “How can you live without knowing?” I do not know what they mean. I always live without knowing. That is easy. How you get to know is what I want to know.
+ - Tell your son to stop trying to fill your head with science – for to fill your heart with love is enough.
+ - Do not read so much, look about you and think of what you see there.
+ - Experiment is the sole judge of the validity of any idea.
+ - Science is what we have learned about how to keep from fooling ourselves.
+ - Einstein was a giant. His head was in the clouds, but his feet were on the ground. But those of us who are not that tall have to choose!
+ - The exception tests the rule.
+ - The electron is a theory we use; it is so useful in understanding the way nature works that we can almost call it real.
+ - You see, the chemists have a complicated way of counting: instead of saying “one, two, three, four, five protons”, they say, “hydrogen, helium, lithium, beryllium, boron.”
+ - Outside of their particular area of expertise scientists are just as dumb as the next person.
+ - To every man is given the key to the gates of heaven. The same key opens the gates of hell. And so it is with science.
+ - My rule is, when you are unhappy, think about it. But when you’re happy, don’t. Why spoil it? You’re probably happy for some ridiculous reason and you’d just spoil it to know it.
+ - There is enough energy in a single cubic meter of space to boil all the oceans in the world.
+ - Our imagination is stretched to the utmost, not, as in fiction, to imagine things which are not really there, but just to comprehend those things which are there.
+ - It’s amazing how many people even today use a computer to do something you can do with a pencil and paper in less time.
+ - But see that the imagination of nature is far, far greater than the imagination of man.
+ - Computer science is not as old as physics; it lags by a couple of hundred years. However, this does not mean that there is significantly less on the computer scientist’s plate than on the physicist’s: younger it may be, but it has had a far more intense upbringing!
+ - For a successful technology, reality must take precedence over public relations, for Nature cannot be fooled.
+ - We are at the very beginning of time for the human race. It is not unreasonable that we grapple with problems. But there are tens of thousands of years in the future. Our responsibility is to do what we can, learn what we can, improve the solutions, and pass them on.
+ - I don’t know what’s the matter with people: they don’t learn by understanding, they learn by some other way – by rote or something. Their knowledge is so fragile!
+ - All theoretical chemistry is really physics; and all theoretical chemists know it.
+ - It does not matter who you are, or how smart you are, or what title you have, or how many of you there are, and certainly not how many papers your side has published, if your prediction is wrong then your hypothesis is wrong. Period.
+ - Thank you very Much, I enjoyed myself.
+ - Of course, you only live one life, and you make all your mistakes, and learn what not to do, and that’s the end of you.
+ - Turbulence is the most important unsolved problem of classical physics.
+ - You can always recognize truth by its beauty and simplicity.
+ - Precise language is not the problem. Clear language is the problem.
+ - Since then I never pay attention to anything by “experts”. I calculate everything myself.
+ - Know your place in the world and evaluate yourself fairly, not in terms of the naive ideals of your own youth, nor in terms of what you erroneously imagine your teacher’s ideals are.
+ - We have found it of paramount importance that in order to progress, we must recognize our ignorance and leave room for doubt.
+ - If you think you understand quantum mechanics, you don’t understand quantum mechanics.
+ - I think nature’s imagination Is so much greater than man’s, she’s never going to let us relax.
+ - All mass is interaction.
+ - For far more marvelous is the truth than any artists of the past imagined it. Why do the poets of the present not speak of it? What men are poets who can speak of Jupiter if he were a man, but if he is an immense spinning sphere of methane and ammonia must be silent?
+ - The easiest person to fool is yourself.
+ - But logic is not all, one needs one’s heart to follow an idea.
+ - That is the logical tight-rope on which we have to walk if we wish to interpret nature.
+ - There are all kinds of interesting questions that come from a knowledge of science, which only adds to the excitement and mystery and awe of a flower.
+ - I love to think. I once considered taking drugs as an attempt to better understand an altered state of mind; however, I decided not to. I didn’t want to chance ruining the machine.
+ - It turns out that all life is interconnected with all other life.
+ - There is nothing in biology yet found that indicates the inevitability of death. This suggests to me that it is not at all inevitable and that it is only a matter of time before biologists discover what it is that is causing us the trouble.
+ - Today’s brains are yesterday’s mashed potatoes.
+ - No man is rich who is unsatisfied, but who wants nothing possess his heart’s desire.
+ - Science alone of all the subjects contains within itself the lesson of the danger of belief in the infallibility of the greatest teachers of the preceding generation.
+ - I have the advantage of having found out how hard it is to get to really know something. How careful you have to be about checking your experiments. How easy it is to make mistakes and fool yourself. I know what it means to know something.
+ - Victory usually goes to those green enough to underestimate the monumental hurdles they are facing.
+ - You see, I get so much fun out of thinking that I don’t want to destroy this pleasant machine that makes life such a big kick.
+ - Energy is a very subtle concept. It is very, very difficult to get right.
+ - The electron is a theory. But the theory is so good we can almost consider them real.
+ - A person talks in such generalities that everyone can understand him and it’s considered to be some deep philosophy. However, I would like to be very rather more special and I would like to be understood in an honest way, rather than in a vague way.
+ - A philosopher once said, ‘It is necessary for the very existence of science that the same conditions always produce the same results.’ Well, they don’t!
+ - We scientists are clever – too clever – are you not satisfied? Is four square miles in one bomb not enough? Men are still thinking. Just tell us how big you want it!
+ - For those who want some proof that physicists are human, the proof is in the idiocy of all the different units which they use for measuring energy.
+ - It is scientific only to say what is more likely and what less likely, and not to be proving all the time the possible and impossible.
+ - Some people think Wheeler’s gotten crazy in his later years, but he’s always been crazy.
+ - By honest I don’t mean that you only tell what’s true. But you make clear the entire situation. You make clear all the information that is required for somebody else who is intelligent to make up their mind.
+ - But the real glory of science is that we can find a way of thinking such that the law is evident.
+ - It is impossible, by the way, when picking one example of anything, to avoid picking one which is atypical in some sense.
+ - Light is something like raindrops each little lump of light is called a photon and if the light is all one color, all the “raindrops” are the same.
+ - I couldn’t claim that I was smarter than sixty-five other guys – but the average of sixty-five other guys, certainly!
+ - This is the key of modern science and is the beginning of the true understanding of nature. This idea. That to look at the things, to record the details, and to hope that in the information thus obtained, may lie a clue to one or another of a possible theoretical interpretation.
+ - What would happen if we could arrange the atoms one by one the way we want them?
+ - There are thousands of years in the past, and there is an unknown amount of time in the future. There are all kinds of opportunities, and there are all kinds of dangers.
+ - There’s plenty of room at the bottom.
+ - The inside of a computer is as dumb as hell but it goes like mad!
+ - As you know, a theory in physics is not useful unless it is able to predict underlined effects which we would otherwise expect.
+ - People may come along and argue philosophically that they like one better than another; but we have learned from much experience that all philosophical intuitions about what nature is going to do fail.
+ - It appears that there are enormous differences of opinion as to the probability of a failure with loss of vehicle and of human life. The estimates range from roughly 1 in 100 to 1 in 100,000. The higher figures come from the working engineers, and the very low figures from management.
+ - I’m smart enough to know that I’m dumb.
+ - Have no respect whatsoever for authority; forget who said it and instead look what he starts with, where he ends up, and ask yourself, “Is it reasonable?”
+ - The test of all knowledge is experiment. Experiment is the sole judge of scientific truth.
+ - Science is the belief in the ignorance of experts.
+ - Everything is made of atoms.
+ - Winning a Nobel Prize is no big deal, but winning it with an IQ of 124 is really something.
+ - A poet once said, “The whole universe is in a glass of wine.” We will probably never know in what sense he meant that, for poets do not write to be understood. But it is true that if we look at a glass of wine closely enough we see the entire universe.
+ - To develop working ideas efficiently, I try to fail as fast as I can.
+ - We are trying to prove ourselves wrong as quickly as possible, because only in that way can we find progress.
+ - Nature uses only the longest threads to weave her patterns, so that each small piece of her fabric reveals the organization of the entire tapestry.
+ - Poets say science takes away from the beauty of the stars – mere globs of gas atoms. I, too, can see the stars on a desert night, and feel them. But do I see less or more?
+ - It is in the admission of ignorance and the admission of uncertainty that there is a hope for the continuous motion of human beings in some direction that doesn’t get confined, permanently blocked, as it has so many times before in various periods in the history of man.
+ - Nature isn’t classical, dammit, and if you want to make a simulation of nature, you’d better make it quantum mechanical, and by golly it’s a wonderful problem, because it doesn’t look so easy.
+ - I am not interested in what today’s mathematicians find interesting.
+ - If you keep proving stuff that others have done, getting confidence, increasing the complexities of your solutions – for the fun of it – then one day you’ll turn around and discover that nobody actually did that one! And that’s the way to become a computer scientist.
+ - If it disagrees with experiment, it’s wrong.
+ - Progress in science comes when experiments contradict theory.
+ - If you don’t like it, go somewhere else, to another universe where the rules are simpler.
+ - Observation, reason, and experiment make up what we call the scientific method.
+ - The ‘paradox’ is only a conflict between reality and your feeling of what reality ’ought to be.
+ - Doubt is clearly a value in science. It is important to doubt and that the doubt is not a fearful thing, but a thing of great value.
+ - Work as hard and as much as you want to on the things you like to do the best.
+ - You do not know anything until you have practiced.
+ - Our responsibility is to do what we can, learn what we can, improve the solutions, and pass them on.
+ - The present situation in physics is as if we know chess, but we don’t know one or two rules.
+ - The same equations have the same solutions.
+ - What is not surrounded by uncertainty cannot be the truth.
+ - What we need is imagination, but imagination in a terrible strait-jacket.
+ - What did you ASK at school today?
+ - Science is a process for learning about nature in which competing ideas about how the world works are measured against observations.
+ - If I could explain it to the average person, I wouldn’t have been worth the Nobel Prize.
+ - I’d hate to die twice. It’s so boring.
+ - Learn what the rest of the world is like. The variety is worthwhile.
+ - What Do You Care What Other People Think?
+ - Science is uncertain.
+ - People often think I’m a faker, but I’m usually honest, in a certain way – in such a way that often nobody believes me!
+ - If a guy tells me the probability of failure is 1 in 100,000, I know he’s full of crap.
+ - If an apple was magnified to the size of the Earth, then the atoms in the apple would be approximately the size of the original apple.
+ - One does not, by knowing all the physical laws as we know them today, immediately obtain an understanding of anything much. I love only nature, and I hate mathematicians.
+ - It does not make any difference how beautiful your guess is. It does not make any difference how smart you are, who made the guess, or what his name is if it disagrees with experiment it is wrong. That is all there is to it.
+ - We find that the statements of science are not of what is true and what is not true, but statements of what is known with different degrees of certainty: “It is very much more likely that so and so is true than that it is not true”.
+ - When I found out that Santa Claus wasn’t real, I wasn’t upset; rather, I was relieved that there was a much simpler phenomenon to explain how so many children all over the world got presents on the same night! The story had been getting pretty complicated – it was getting out of hand.
+ - There in wine is found the great generalization: all life is fermentation.
+ - If there is something very slightly wrong in our definition of the theories, then the full mathematical rigor may convert these errors into ridiculous conclusions.
+ - If you have any talent, or any occupation that delights you, do it, and do it to the hilt. Don’t ask why, or what difficulties you may get into.
+ - Nature does not care what we call it, she just keeps on doing it.
+ - People are always asking for the latest developments in the unification of this theory with that theory, and they don’t give us a chance to tell them anything about what we know pretty well. They always want to know the things we don’t know.
+ - If you can’t explain something to a first year student, then you haven’t really understood .
+ - Don’t pay attention to “authorities,” think for yourself.
+ - Another thing I must point out is that you cannot prove a vague theory wrong.
+ - The game I play is a very interesting one. It’s imagination, in a tight straightjacket.
+ - To decide upon the answer is not scientific. In order to make progress, one must leave the door to the unknown ajar ajar only.
+ - There is no authority who decides what is a good idea.
+ - An ordinary fool isn’t a faker; an honest fool is all right. But a dishonest fool is terrible!
+ - It is simple, therefore it is beautiful.
+ - When a photon comes down, it interacts with electrons throughout the glass, not just on the surface. The photon and electrons do some kind of dance, the net result of which is the same as if the photon hit only on the surface.
+ - The thing that doesn’t fit is the thing that is most interesting.
+ - I have a limited intelligence and I’ve used it in a particular direction.
+ - It is not unscientific to make a guess, although many people who are not in science think it is.
+ - We have this terrible struggle to try to explain things to people who have no reason to want to know.
+ - This attitude of mind – this attitude of uncertainty – is vital to the scientist, and it is this attitude of mind which the student must first acquire. It becomes a habit of thought. Once acquired, we cannot retreat from it anymore.
+ - I learned from her that every woman is worried about her looks, no matter how beautiful she is.
+ - As revealed by physics, the truth is so remarkable, so amazing!
+ - We are not to tell nature what she’s gotta be. She’s always got better imagination than we have.
+ - Unless a thing can be defined by measurement, it has no place in a theory. And since an accurate value of the momentum of a localized particle cannot be defined by measurement it therefore has no place in the theory.
+ - Work hard to find something that fascinates you.
+ - The idea is to try to give all the information to help others to judge the value of your contribution; not just the information that leads to judgment in one particular direction or another.
+ - While I am describing to you how Nature works, you won’t understand why Nature works that way. But you see, nobody understands that.
+ - In its efforts to learn as much as possible about nature, modern physics has found that certain things can never be “known” with certainty. Much of our knowledge must always remain uncertain. The most we can know is in terms of probabilities.
+ - Nature’s imagination far surpasses our own.
+ - The scale of light can be described by numbers called the frequency and as the numbers get higher, the light goes from red to blue to ultraviolet. We can’t see ultraviolet light, but it can affect photographic plates. It’s still light only the number is different.
+ - When a Caltech student asked the eminent cosmologist Michael Turner what his “bias” was in favoring one or another particle as a likely candidate to compromise dark matter in the universe, Feynmann snapped, “Why do you want to know his bias? Form your own bias!”
+ - It is the fact that the electrons cannot all get on top of each other that makes tables and everything else solid.
+ - Scientific knowledge is an enabling power to do either good or bad – but it does not carry instructions on how to use it.
+ - I believe that a scientist looking at nonscientific problems is just as dumb as the next guy.
+ - As usual, nature’s imagination far surpasses our own, as we have seen from the other theories which are subtle and deep.
+ - The truth always turns out to be simpler than you thought.
+ - I don’t believe I can really do without teaching. The reason is, I have to have something so that when I don’t have any ideas and I’m not getting anywhere, I can say to myself, “At least I’m living; at least I’m doing something. I’m making some contribution.” It’s just psychological.
+ - I always do that, get into something and see how far I can go.
+ - Our freedom to doubt was born out of a struggle against authority in the early days of science. It was a very deep and strong struggle: permit us to question – to doubt – to not be sure. I think that it is important that we do not forget this struggle and thus perhaps lose what we have gained.
+ - Listen, I mean that from my knowledge of the world that I see around me, I think that it is much more likely that the reports of flying saucers are the results of the known irrational characteristics of terrestrial intelligence than of the unknown rational efforts of extra-terrestrial intelligence.
+ - Words can be meaningless. If they are used in such a way that no sharp conclusions can be drawn.
+ - Don’t think about what you want to be, but what you want to do. Keep up some kind of a minimum with other things so that society doesn’t stop you from doing anything at all.
+ - If the professors of English will complain to me that the students who come to the universities, after all those years of study, still cannot spell ‘friend,’ I say to them that something’s the matter with the way you spell friend.
+ - But there is nothing in biology yet found that indicates the inevitability of death.
+ - There is nothing that living things do that cannot be understood from the point of view that they are made of atoms acting according to the laws of physics.
+ - Maybe that is why young people make success. They don’t know enough.
+ - So far as we know, all the fundamental laws of physics, like Newton’s equations, are reversible.
+ - I think a power to do something is of value. Whether the result is a good thing or a bad thing depends on how it is used, but the power is a value.
+ - Although it is uncertain, it is necessary to make science useful. Science is only useful if it tells you about some experiment that has not been done; it is not good if it only tells you what just went on.
+ - If we will only allow that, as we progress, we remain unsure, we will leave opportunities for alternatives.
+ - In physics the truth is rarely perfectly clear, and that is certainly universally the case in human affairs. Hence, what is not surrounded by uncertainty cannot be the truth.
+ - Scientific knowledge is a body of statements of varying degrees of certainty – some most unsure, some nearly sure, none absolutely certain.
+ - There is a computer disease that anybody who works with computers knows about. It’s a very serious disease and it interferes completely with the work. The trouble with computers is that you ‘play’ with them!
+ - I have to disregard everybody else, and then I can do my own work.
+ - It is necessary for the very existence of science that minds exist which do not allow that nature must satisfy some preconceived conditions.
+ - If science is to progress, what we need is the ability to experiment, honesty in reporting results – the results must be reported without somebody saying what they would like the results to have been – and finally – an important thing – the intelligence to interpret the results.
+ - If you can find any other view of the world which agrees over the entire range where things have already been observed, but disagrees somewhere else, you have made a great discovery.
+ - Agnostic for me would be trying to weasel out and sound a little nicer than I am about this.
+ - When you get as old as I am, you start to realize that you’ve told most of the good stuff you know to other people anyway.
+ - In a way, the Nobel Prize has been something of a pain in the neck, though there was at least one time that I got some fun out of it, Shortly after I won the Prize, Gweneth and I received an invitation from the Brazilian government to be the guests of honor at the Carnaval celebrations in Rio.
+ - There’s so much distance between the fundamental rules and the final phenomenon, that it’s almost unbelievable that the final variety of phenomenon can come from such a steady operation of such simple rules.
+ - Once we were driving in the midwest and we pulled into a McDonald’s. Someone came up to me and asked me why I have Feynman diagrams all over my van. I replied, “Because I am Feynman!” The young man went, “Ahhhhh!”
+ - I don’t feel frightened by not knowing things.
+ - All we know so far is what doesn’t work.
+ - If all of this, all the life of a stream of water, can be nothing but a pile of atoms, how much more is possible?
+ - Physicists like to think that all you have to do is say, these are the conditions, now what happens next?
+ - I don’t believe I can really do without teaching.
+ - Only realistic flight schedules should be proposed, schedules that have a reasonable chance of being met. If in this way the government would not support them, then so be it. NASA owes it to the citizens from whom it asks support to be frank, honest, and informative.
+ - The theoretical broadening which comes from having many humanities subjects on the campus is offset by the general dopiness of the people who study these things...
+ - It’s because somebody knows something about it that we can’t talk about physics. It’s the things that nobody knows anything about we can discuss.
+ - Just as a poet often has license from the rules of grammar and pronunciation, we should like to ask for ‘physicists’ license from the rules of mathematics in order to express what we wish to say in as simple a manner as possible.
+ - A great deal more is known than has been proved.
+ - We can deduce, often, from one part of physics like the law of gravitation, a principle which turns out to be much more valid than the derivation.
+ - You can’t say A is made of B or vice versa. All mass is interaction.
+ - No one really understands quantum mechanics.
+ - We are never right, we can only be sure we are wrong.
+ - I’m trying to find out NOT how Nature could be, but how Nature IS.
+ - Strange! I don’t understand how it is that we can write mathematical expressions and calculate what the thing is going to do without being able to picture it.
+ - I don’t have to be good because they think I’m going to be good.
+ - Whenever you see a sweeping statement that a tremendous amount can come from a very small number of assumptions, you always find that it is false. There are usually a large number of implied assumptions that are far from obvious if you think about them sufficiently carefully.
+ - Every instrument that has been designed to be sensitive enough to detect weak light has always ended up discovering that the same thing: light is made of particles.
+ - We are lucky to live in an age in which we are still making discoveries.
+ - This is not yet a scientific age.
+ - It is odd, but on the infrequent occasions when I have been called upon in a formal place to play the bongo drums, the introducer never seems to find it necessary to mention that I also do theoretical physics.
+ - It is important to realize that in physics today, we have no knowledge of what energy is.
+ - Science is of value because it can produce something.
+ - The problem of creating something new, but which is consistent with everything which has been seen before, is one of extreme difficulty.
+ - I have to keep going to find out ultimately what is the matter with it in the end.
+ - Therefore psychologically we must keep all the theories in our heads, and every theoretical physicist who is any good knows six or seven different theoretical representations for exactly the same physics.
+ - We’ve learned from experience that the truth will come out.
+ - I find that teaching and the students keep life going, and I would never accept any position in which somebody has invented a happy situation for me where I don’t have to teach. Never.
+ - There are theoretical physicists who imagine, deduce, and guess at new laws, but do not experiment; and then there are experimental physicists who experiment, imagine, deduce, and guess.
+ - To test whether you have learned an idea or a definition, rephrase what you just learned without using the new word.
+ - In fact the total amount that a physicist knows is very little. He has only to remember the rules to get him from one place to another and he is all right...
+ - If we want to solve a problem that we have never solved before, we must leave the door to the unknown ajar.
+ - To guess what to keep and what to throw away takes considerable skill. Actually it is probably merely a matter of luck, but it looks as if it takes considerable skill.
+ - There is no harm in doubt and skepticism, for it is through these that new discoveries are made.
+ - We absolutely must leave room for doubt or there is no progress and no learning. There is no learning without having to pose a question. And a question requires doubt. People search for certainty. But there is no certainty.
+ - Few people realize the number of things that are possible.
+ - The fact that you are not sure means that it is possible that there is another way someday.
+ - For a successful technology, reality must take precedence over public relations, for nature cannot be fooled. Upon identifying the reason for the explosion of the space shuttle Challenger and his demonstration using immersion in iced water to show that O-rings grow brittle when cold.
+ - Scientific views end in awe and mystery, lost at the edge in uncertainty, but they appear to be so deep and so impressive that the theory that it is all arranged as a stage for God to watch man’s struggle for good and evil seems inadequate.
+ - Science is a way of trying not to fool yourself.
+ - You can recognize truth by its beauty and simplicity. When you get it right, it is obvious that it is right – at least if you have any experience – because usually what happens is that more comes out than goes in.
+ - This is not very important what I’m doing. I’m just proving something.
+ - No problem is too small or too trivial if we can really do something about it.
+ - Some things that satisfy the rules of algebra can be interesting to mathematicians even though they don’t always represent a real situation.
+ - Philosophy of science is about as useful to scientists as ornithology is to birds.
+ - I have argued flying saucers with lots of people. I was interested in possible. They do not appreciate that the problem is not to demonstrate whether it’s possible or not but whether it’s going on or not.
+ - The Quantum Universe has a quotation from me in every chapter – but it’s a damn good book anyway.
+ - Philosophers say a great deal about what is absolutely necessary for science, and it is always, so far as one can see, rather naive, and probably wrong.
+ - You know how it always is, every new idea, it takes a generation or two until it becomes obvious that there’s no real problem. I cannot define the real problem, therefore I suspect there’s no real problem, but I’m not sure there’s no real problem.
+ - If you know that you are not sure, you have a chance to improve the situation. I want to demand this freedom for future generations.
+ - I don’t think that the laws can be considered to be like God because they have been figured out.
+ - All the time you’re saying to yourself, ‘I could do that, but I won’t,’ – which is just another way of saying that you can’t.
+ - So this piece of dirt waits four and a half billion years and evolves and changes, and now a strange creature stands here with instruments and talks to the strange creatures in the audience. What a wonderful world!
+ - It is our responsibility to leave the people of the future a free hand.
+ - I’m going to play with physics, whenever I want to, without worrying about any importance whatsoever.
+ - Mathematics is not just a language. Mathematics is a language plus reasoning.
+ - From a long view of the history of mankind the most significant event of the nineteenth century will be judged as Maxwell’s discovery of the laws of electrodynamics.
+
+263 quotes

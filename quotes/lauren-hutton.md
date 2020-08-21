@@ -1,0 +1,36 @@
+ - We have to be able to grow up. Our wrinkles are our medals of the passage of life. They are what we have been through and who we want to be.
+ - Most authors have one idea per book. Shakespeare had two per sentence.
+ - We need a new religion.
+ - We can be beautiful at all ages. Feminine beauty comes in all shapes, sizes, colors, ways.
+ - Fashion is what others give you, style is what you give yourself.
+ - No one’s raising children any more. To love a child, you’ve got to work for it. You have to change its diapers and feed it at night!
+ - When I went back to modeling, nobody knew how to deal with a 46-year-old model!
+ - I know some good old gals in their 50s and 60s. All these women tell me, ‘Forty to 50. Those are the hot times.’ So far, you couldn’t prove it by me. But hell, I’m only two years in.
+ - Without travel I would have wound up a little ignorant white Southern female, which was not my idea of a good life.
+ - I became a specialist at comedic one-liners.
+ - I’m not part of the cultural elite. I’m a down-home girl. Always have been, always will be.
+ - Lord knows, I never want to waste any more of my time in mirrors.
+ - Fashion is what you’re offered four times a year by designers. And style is what you choose.
+ - I was making $50 a week as a house model at Christian Dior for nine months before I learned that photographic models made $50 an hour!
+ - I’d like to be the first model who becomes a woman.
+ - If the accident of genes has put you in a place where you can be a role model, then be somebody!
+ - Eileen Ford wanted me to fix my nose and my teeth. I said, Sure, great, but I really had no intention to.
+ - I don’t spend much money on clothes; I never did.
+ - To be told we are loved is not enough. We must feel loved.
+ - The last thing we need is yet another makeup company. Even I have a nervous breakdown when I go through the department store makeup floor.
+ - The doctors told me I’d be fine if I play only golf and tennis doubles for the rest of my life. But I dive. I dogsled. I trek. I guess I’ll have surgery.
+ - In 1974, the modeling world changed. Jerry Ford and my lawyer negotiated the deal for the first exclusive contract in modeling history.
+ - There are plenty of beautiful girls who don’t photograph well.
+ - That’s the mistake women make – you shouldn’t see your makeup. We don’t want to look like we’ve made an effort.
+ - I’m the oldest pretty face around.
+ - Whatever tension is on set can end up on your face.
+ - Avedon wouldn’t let me put wax between my teeth like I usually did.
+ - People say you’re flirting with death but really you’re flirting with life.
+ - I had always broken the rules.
+ - Finding your look isn’t complicated if you go in without being frightened. Notice what people are complimenting you on. Experiment with new things once in a while, but have your tried-and-true pieces that work.
+ - A lot of modeling is how much crap you can take.
+ - If you don’t have passion, change.
+ - I look at my first appointment book from 1965 and I get dizzy. I was constantly in a phone booth calling photographers.
+ - Life is what we do when we’re on the way to live it.
+
+34 quotes

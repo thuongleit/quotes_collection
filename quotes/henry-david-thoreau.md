@@ -1,0 +1,502 @@
+ - All good things are wild and free.
+ - Go confidently in the direction of your dreams. Live the life you’ve imagined.
+ - It’s not what you look at that matters, it’s what you see.
+ - Success usually comes to those who are too busy to be looking for it.
+ - Life isn’t about finding yourself; it’s about creating yourself. So live the life you imagined.
+ - Never look back unless you are planning to go that way.
+ - Our life is frittered away by detail. Simplify, simplify.
+ - This world is but a canvas for our imagination.
+ - Rather than love, than money, than fame, give me truth.
+ - You must live in the present, launch yourself on every wave, find your eternity in each moment. Fools stand on their island of opportunities and look toward another land. There is no other land; there is no other life but this.
+ - As a single footstep will not make a path on the earth, so a single thought will not make a pathway in the mind. To make a deep physical path, we walk again and again. To make a deep mental path, we must think over and over the kind of thoughts we wish to dominate our lives.
+ - You cannot dream yourself into a character: you must hammer and forge yourself into one.
+ - If you have built castles in the air, your work need not be lost; that is where they should be. Now put the foundations under them.
+ - I learned this, at least, by my experiment: that if one advances confidently in the direction of his dreams, and endeavors to live the life which he has imagined, he will meet with a success unexpected in common hours.
+ - How vain it is to sit down to write when you have not stood up to live.
+ - What lies behind us and what lies ahead of us are tiny matters compared to what lives within us.
+ - We are constantly invited to be who we are.
+ - A truly good book teaches me better than to read it. I must soon lay it down, and commence living on its hint. What I began by reading, I must finish by acting.
+ - We are born as innocents. We are polluted by advice.
+ - Not till we are lost, in other words not till we have lost the world, do we begin to find ourselves, and realize where we are and the infinite extent of our relations.
+ - The price of anything is the amount of life you exchange for it.
+ - I went to the woods because I wished to live deliberately, to front only the essential facts of life, and see if I could not learn what it had to teach, and not, when I came to die, discover that I had not lived.
+ - Goodness is the only investment that never fails.
+ - The path of least resistance leads to crooked rivers and crooked men.
+ - Most men lead lives of quiet desperation and go to the grave with the song still in them.
+ - That man is the richest whose pleasures are the cheapest. 
+ - Enthusiasm is a supernatural serenity.
+ - An early-morning walk is a blessing for the whole day.
+ - I find it wholesome to be alone the greater part of the time. To be in company, even with the best, is soon wearisome and dissipating. I love to be alone. I never found the companion that was so companionable as solitude.
+ - A lake is a landscape's most beautiful and expressive feature. It is Earth's eye; looking into which the beholder measures the depth of his own nature.
+ - In the long run, men hit only what they aim at. Therefore, they had better aim at something high.
+ - There is no remedy for love, but to love more.
+ - Thought is the sculptor who can create the person you want to be.
+ - My greatest skill in life has been to want but little.
+ - Not until we are lost do we begin to understand ourselves.
+ - Read the best books first, or you may not have a chance to read them at all.
+ - Write while the heat is in you. The writer who postpones the recording of his thoughts uses an iron which has cooled to burn a hole with. He cannot inflame the minds of his audience.
+ - The heart is forever inexperienced.
+ - Our truest life is when we are in dreams awake.
+ - What's the use of a fine house if you haven't got a tolerable planet to put it on?
+ - A man is rich in proportion to the number of things which he can afford to let alone.
+ - Dreams are the touchstones of our characters.
+ - The mass of men lead lives of quiet desperation. What is called resignation is confirmed desperation.
+ - The cost of a thing is the amount of what I will call life which is required to be exchanged for it, immediately or in the long run.
+ - If a man does not keep pace with his companions, perhaps it is because he hears a different drummer. Let him step to the music which he hears, however measured or far away.
+ - It is not enough to be busy. So are the ants. The question is: What are we busy about?
+ - I make myself rich by making my wants few.
+ - The most I can do for my friend is simply to be his friend.
+ - When we are unhurried and wise, we perceive that only great and worthy things have any permanent and absolute existence, that petty fears and petty pleasures are but the shadow of the reality.
+ - Do not hire a man who does your work for money, but him who does it for love of it.
+ - What sort of philosophers are we, who know absolutely nothing of the origin and destiny of cats?
+ - All men want, not something to do with, but something to do, or rather something to be.
+ - I know of no more encouraging fact than the unquestionable ability of man to elevate his life by conscious endeavor.
+ - As if you could kill time without injuring eternity.
+ - When I hear music, I fear no danger. I am invulnerable. I see no foe. I am related to the earliest times, and to the latest.
+ - It is never too late to give up our prejudices.
+ - Could a greater miracle take place than for us to look through each other’s eyes for an instant?
+ - I took a walk in the woods and came out taller than the trees.
+ - Books are the treasured wealth of the world and the fit inheritance of generations and nations.
+ - How many a man has dated a new era in his life from the reading of a book.
+ - Heaven is under our feet as well as over our heads.
+ - The rule is to carry as little as possible.
+ - I have no doubt that it is part of the destiny of the human race in it’s gradual improvement, to leave off eating animals.
+ - As you simplify your life, the laws of the universe will be simpler; solitude will not be solitude, poverty will not be poverty, nor weakness weakness.
+ - Every morning was a cheerful invitation to make my life of equal simplicity, and I may say innocence, with Nature herself.
+ - The man who goes alone can start today; but he who travels with another must wait till that other is ready.
+ - There are a thousand hacking at the branches of evil to one who is striking at the root.
+ - I believe that water is the only drink for a wise man.
+ - Only that day dawns to which we are awake.
+ - Blessed are they who never read a newspaper, for they shall see Nature, and through her, God.
+ - That government is best which governs least.
+ - Oh to reach the point of death and realize one has not lived at all.
+ - The light which puts out our eyes is darkness to us. Only that day dawns to which we are awake. There is more day to dawn. The sun is but a morning star.
+ - Nothing makes the earth seem so spacious as to have friends at a distance; they make the latitudes and longitudes.
+ - I was not designed to be forced. I will breathe after my own fashion. Let us see who is the strongest.
+ - The greatest tragedy in life is to spend your whole life fishing only to discover it was never fish that you were after.
+ - The biggest happiness is when at the end of the year you feel better than at the beginning.
+ - In a world of peace and love, music would be the universal language.
+ - Methinks that the moment my legs began to move, my thoughts began to flow.
+ - Do what you love. Know your own bone; gnaw at it, bury it, unearth it, and gnaw it still.
+ - Do not despair of life. Think of the fox, prowling in a winter night to satisfy his hunger. His race survives; I do not believe any of them ever committed suicide.
+ - Of what significance are the things you can forget.
+ - Unjust laws exist: shall we be content to obey them, or shall we endeavor to amend them, and obey them until we have succeeded, or shall we transgress them at once?
+ - Do not suffer your life to be taken by newspapers.
+ - Our inventions are wont to be pretty toys, which distract our attention from serious things. They are but improved means to an unimproved end.
+ - There are moments when all anxiety and stated toil are becalmed in the infinite leisure and repose of nature.
+ - The sun is but a morning star.
+ - To him whose elastic and vigorous thought keeps pace with the sun, the day is a perpetual morning.
+ - It often happens that a man develops a deeper love and friendship with his pet cat or dog than he does with most of the other humans in his life.
+ - When you knock, ask to see God – none of the servants.
+ - I do not judge men by anything they can do. Their greatest deed is the impression they make on me.
+ - Simplify, simplify, simplify.
+ - On the death of a friend, we should consider that the fates through confidence have devolved on us the task of a double living, that we have henceforth to fulfill the promise of our friend’s life also, in our own, to the world.
+ - A man had better starve at once than lose his innocence in the process of getting his bread.
+ - That government is best which governs not at all; and when men are prepared for it, that will be the kind of government which they will have.
+ - Many men go fishing all of their lives without knowing that it is not fish they are after.
+ - Every child begins the world again.
+ - There is no history of how bad became better.
+ - Morning glory is the best name, it always refreshes me to see it.
+ - Cultivate poverty like a garden herb, like sage.
+ - A man may acquire a taste for wine or brandy, and so lose his love for water, but should we not pity him.
+ - Be true to your work, your word, and your friend.
+ - To inherit property is not to be born – it is to be still-born, rather.
+ - Disobedience is the true foundation of liberty. The obedient must be slaves.
+ - I am grateful for what I have. My thanksgiving is perpetual.
+ - Rise free from care before the dawn and seek adventure. Let the noon find you by other lakes, and the night overtake thee everywhere at home. There are no larger fields than these, no worthier games than may here be played.
+ - Wealth is the ability to fully experience life.
+ - It’s the beauty within us that makes it possible for us to recognize the beauty around us. The question is not what you look at but what you see.
+ - The soul grows by subtraction, not addition.
+ - The way you spend Christmas is far more important than how much.
+ - Let your capital be simplicity and contentment.
+ - Do not lose hold of your dreams or aspirations. For if you do, you may still exist but you have ceased to live.
+ - How can we remember our ignorance, which our growth requires, when we are using our knowledge all the time?
+ - When it’s time to die, let us not discover that we have never lived.
+ - Things do not change; we change.
+ - I would rather sit on a pumpkin and have it all to myself, than be crowded on a velvet cushion.
+ - One is not born into the world to do everything but to do something.
+ - I never found a companion that was so companionable as solitude.
+ - To be awake is to be alive.
+ - The devil finds work for idle hands.
+ - All endeavour calls for the ability to tramp the last mile, shape the last plan, endure the last hours toil.
+ - Rise free from care before the dawn, and seek adventures.
+ - Pursue some path, however narrow and crooked, in which you can walk with love and reverence.
+ - Live your life, do your work, then take your hat.
+ - There is no value in life except what you choose to place upon it and no happiness in any place except what you bring to it yourself.
+ - In wildness is the preservation of the world.
+ - Haste makes waste, no less in life than in housekeeping.
+ - The fault finder will find faults even in paradise and thereby miss the joys that recognition of the positives bring.
+ - We must walk consciously only part way toward our goal, and then leap in the dark to our success.
+ - Do not be too moral. You may cheat yourself out of much life so. Aim above morality. Be not simply good; be good for something.
+ - Only he is successful in his business who makes that pursuit which affords him the highest pleasure sustain him.
+ - To affect the quality of the day, that is the highest of arts.
+ - He who owns little is little owned.
+ - The question is not what you look at – but how you look, and whether you see.
+ - Behave so the aroma of your actions may enhance the general sweetness of the atmosphere.
+ - There is one consolation in being sick; and that is the possibility that you may recover to a better state than you were ever in before.
+ - I went to the woods because I wished to live deliberately...
+ - I love nature, I love the landscape, because it is so sincere. It never cheats me. It never jests. It is cheerfully, musically earnest. I lie and relie on the earth.
+ - I have never found a companion that was so companionable as solitude. We are for the most part more lonely when we go abroad among men than when we stay in our chambers. A man thinking or working is always alone, let him be where he will.
+ - Anyone in a free society where the laws are unjust has an obligation to break the law.
+ - Steady labor with the hands, which engrosses the attention also, is unquestionably the best method of removing palaver and sentimentality out of one’s style, both of speaking and writing.
+ - Nature is slow, but sure; she works no faster than need be; she is the tortoise that wins the race by her perseverance.
+ - True friendship can afford true knowledge. It does not depend on darkness and ignorance.
+ - The bluebird carries the sky on his back.
+ - I would remind my countrymen that they are to be men first, and Americans only at a late and convenient hour.
+ - Winter is the time for study, you know, and the colder it is the more studious we are.
+ - You must live in the present, launch yourself on every wave, find your eternity in each moment.
+ - Think for yourself, or others will think for you without thinking of you.
+ - I am struck by the simplicity of light in the atmosphere in the autumn, as if the earth absorbed none, and out of this profusion of dazzling light came the autumnal tints.
+ - I am struck by the fact that the more slowly trees grow at first, the sounder they are at the core, and I think that the same is true of human beings.
+ - Men must speak English who can write Sanskrit; they must speak a modern language who write, perchance, an ancient and universal one.
+ - A man’s wealth is measured by what he doesn’t need.
+ - Love must be as much a light as it is a flame.
+ - Live in each season as it passes: breathe the air, drink the drink, taste the fruit.
+ - Men spend the best parts of their lives earning money in order to enjoy a questionable liberty during the least valuable part of it.
+ - In human intercourse the tragedy begins, not when there is misunderstanding about words, but when silence is not understood.
+ - Let your life be a counter friction to stop the machine.
+ - Every blade in the field – Every leaf in the forest – lays down its life in its season as beautifully as it was taken up.
+ - Those who work much do not work hard.
+ - Every man looks at his wood-pile with a kind of affection.
+ - The language of friendship is not words but meanings.
+ - Men have become the tools of their tools.
+ - The future is too soon the past. So make perseverance your excellence and go confidently in the direction of your dreams.
+ - What is called genius is the abundance of life and health.
+ - Any fool can make a rule, and any fool will mind it.
+ - By my intimacy with nature I find myself withdrawn from man. My interest in the sun and the moon, in the morning and the evening, compels me to solitude.
+ - The universe is wider than our views of it.
+ - Everyone must believe in something. I believe I’ll go canoeing.
+ - When I consider how, after sunset, the stars come out gradually in troops from behind the hills and woods, I confess that I could not have contrived a more curious and inspiring sight.
+ - Morning is when I am awake and there is a dawn in me.
+ - Not only must we be good, but we must also be good for something.
+ - You must not only aim right, but draw the bow with all your might.
+ - If you can’t explain it to a six year old, you don’t understand it yourself. Rather than love, than money, than fame, give me truth.
+ - The greatest compliment that was ever paid me was when one asked me what I thought, and attended to my answer.
+ - Let your life be a counter-friction to stop the machine. What I have to do is to see, at any rate, that I do not lend myself to the wrong which I condemn.
+ - We can never have enough of nature. We must be refreshed by the sight of inexhaustible vigor.
+ - Let go of the past and go for the future.
+ - I left the woods for as good a reason as I went there. Perhaps it seemed to me that I had several more lives to live, and could not spare any more time for that one.
+ - The most difficult thing to understand during conversation is silence.
+ - Live your beliefs and you can turn the world around.
+ - Most of the luxuries and many of the so-called comforts of life are not only not indispensable, but positive hindrances to the elevation of mankind.
+ - Read not the Times, read the Eternities.
+ - What is once well done is done forever.
+ - In the long run, we only hit what we aim at.
+ - I have no time to be in a hurry.
+ - If a plant cannot live according to its nature, it dies; and so a man.
+ - Maturity is when all of your mirrors turn into windows.
+ - Wherever you may seek solitude, men will ferret you out and compel you to belong to their desperate company of oddfellows.
+ - In the morning I bathe my intellect in the stupendous and cosmogonal philosophy of the Bhagavad-Gita, in comparison with which our modern world and its literature seems puny and trivial.
+ - Time is but the stream I go a-fishing in. I drink at it; but while I drink I see the sandy bottom and detect how shallow it is. Its thin current slides away, but eternity remains.
+ - Do not despair of your life. You have force enough to overcome your obstacles.
+ - Since most of us spend our lives doing ordinary tasks, the most important thing is to carry them out extraordinarily well.
+ - If we will be quiet and ready enough, we shall find compensation in every disappointment.
+ - The kind uncles and aunts of the race are more esteemed than its true spiritual fathers and mothers.
+ - I found that they knew but little of the history of their race, and could be entertained by stories about their ancestors as readily as any way .
+ - City life is millions of people being lonesome together.
+ - Nature is doing her best each moment to make us well. Why, nature is but another name for health.
+ - Health requires this relaxation, this aimless life. This life in the present.
+ - I sat at a table where were rich food and wine in abundance, and obsequious attendance, but sincerity and truth were not; and I went away hungry from the inhospitable board.
+ - If misery loves company, misery has company enough.
+ - I believe that there is a subtle magnetism in Nature, which, if we unconsciously yield to it, will direct us aright.
+ - Nature is full of genius, full of the divinity; so that not a snowflake escapes its fashioning hand.
+ - Why should we live with such hurry and waste of life? We are determined to be starved before we are hungry.
+ - The world is a strange place for a playhouse to stand within it.
+ - The gods cannot misunderstand, man cannot explain.
+ - The violence of love is as much to be dreaded as that of hate.
+ - In the winter, warmth stands for all virtue.
+ - With all your science can you tell me how it is, and when it is, that light comes into the soul?
+ - Every oak tree started out as a couple of nuts who stood their ground.
+ - The chimney is to some extent an independent structure, standing on the ground, and rising through the house to the heavens; evenafter the house is burned it still stands sometimes, and its importance and independence are apparent.
+ - None are so old as those who have outlived enthusiasm.
+ - Books are the carriers of civilization. Without books, history is silent.
+ - Renew thyself completely each day.
+ - I had three chairs in my house; one for solitude, two for friendship, three for society.
+ - Every creature is better alive than dead, men and moose and pine trees, and he who understands it aright will rather preserve its life than destroy it.
+ - We are always paid for our suspicion by finding what we suspect.
+ - To have done anything just for money is to have been truly idle.
+ - All change is a miracle to contemplate, but it is a miracle which is taking place every instant.
+ - O how I laugh when I think of my vague indefinite riches. No run on my bank can drain it, for my wealth is not possession but enjoyment.
+ - Though I do not believe that a plant will spring up where no seed has been, I have great faith in a seed. Convince me that you have a seed there, and I am prepared to expect wonders.
+ - The finest qualities of our nature, like the bloom on fruits, can be preserved only by the most delicate handling. Yet we do not treat ourselves nor one another thus tenderly.
+ - I live in the present. I only remember the past, and anticipate the future.
+ - What is chastity? How shall a man know if he is chaste? He shall not know it. We have heard of this virtue, but we know not what it is.
+ - The faultfinder will find faults even in paradise.
+ - However mean your life is, meet it and live it; do not shun it and call it hard names. It is not so bad as you are.
+ - Not that the story need be long, but it will take a long while to make it short.
+ - Kindness to children, love for children, goodness to children – these are the only investments that never fail.
+ - My profession is to always find God in nature.
+ - Sincerity is a great but rare virtue, and we pardon to it much complaining, and the betrayal of many weaknesses.
+ - Humility like darkness reveals the heavenly lights.
+ - Such is beauty ever,-neither here nor there, now nor then,-neither in Rome nor in Athens, but wherever there is a soul to admire.
+ - One generation abandons the enterprises of another like stranded vessels.
+ - It is the marriage of the soul with nature that makes the intellect fruitful, and gives birth to imagination.
+ - I stand in awe of my body.
+ - A man sits as many risks as he runs.
+ - The secret of achievement is to hold a picture of a successful outcome in mind.
+ - That aim in life is highest which requires the highest and finest discipline.
+ - As if there were safety in stupidity alone.
+ - Music is the sound of the universal laws promulgated. It is the only assured tone. There are in it such strains as far surpass anyman’s faith in the loftiness of his destiny. Things are to be learned which it will be worth the while to learn.
+ - The stars are the apexes of what wonderful triangles! What distant and different beings in the various mansions of the universe are contemplating the same one at the same moment!
+ - When a dog runs at you, whistle for him.
+ - Let nothing come between you and the light.
+ - Every man has to learn the points of the compass again as often as he awakes, whether from sleep or any abstraction.
+ - Simplicity, simplicity, simplicity! I say, let your affairs be as two or three, and not a hundred or a thousand; instead of a million count half a dozen, and keep your accounts on your thumb nail.
+ - Art is not tame, and Nature is not wild, in the ordinary sense. A perfect work of man’s art would also be wild or natural in a good sense.
+ - Simplicity is the law of nature for men as well as for flowers.
+ - There are nowadays professors of philosophy, but not philosophers.
+ - Truths and roses have thorns about them.
+ - This curious world we inhabit is more wonderful than convenient; more beautiful than it is useful; it is more to be admired and enjoyed than used.
+ - Oh, one world at a time!
+ - As a single footstep will not make a path on the earth, so a single thought will not make a pathway in the mind.
+ - Perfect sincerity and transparency make a great part of beauty, as in dewdrops, lakes, and diamonds.
+ - You think that I am impoverishing myself withdrawing from men, but in my solitude I have woven for myself a silken web or chrysalis, and, nymph-like, shall ere long burst forth a more perfect creature, fitted for a higher society.
+ - The only sin in the world is ignorance.
+ - The keeping of bees is like the direction of sunbeams.
+ - Make the most of your regrets; never smother your sorrow, but tend and cherish it till it comes to have a separate and integral interest. To regret deeply is to live afresh.
+ - I have an immense appetite for solitude, like an infant for sleep, and if I don’t get enough for this year, I shall cry all the next.
+ - I also have in mind that seemingly wealthy, but most terribly impoverished class of all, who have accumulated dross, but know not how to use it, or get rid of it, and thus have forged their own golden or silver fetters.
+ - Don’t be afraid that your life will end, be afraid that it will never begin!
+ - All perception of truth is the detection of an analogy.
+ - Every path but your own is the path of fate. Keep on your own track, then.
+ - Wherever there is a channel for water, there is a road for the canoe.
+ - I was determined to know beans.
+ - He enjoys true leisure who has time to improve his soul’s estate.
+ - I am resolved that I will not through humility become the devil’s attorney. I will endeavor to speak a good word for the truth.
+ - If the machine of government is of such a nature that it requires you to be the agent of injustice to another, then, I say, break the law.
+ - If the day and night are such that you greet them with joy, and life emits a fragrance like flowers and sweet-scented herbs, is more elastic, more starry, more immortal – that is your success.
+ - Friends are made for caring and sharing. Friends do not live in harmony merely, as some say, but in melody.
+ - Nothing can be more useful to you than a determination not to be hurried.
+ - Measure your health by your sympathy with morning and Spring.
+ - The best thing a man can do for his culture when he is rich is to endeavor to carry out those schemes which he entertained when he was poor.
+ - In what concerns you much, do not think that you have companions: know that you are alone in the world.
+ - No man loses ever on a lower level by magnanimity on a higher.
+ - He who hears the rippling of rivers in these degenerate days will not utterly despair.
+ - To a philosopher all news, as it is called, is gossip, and they who edit and read it are old women over their tea.
+ - Thaw with her gentle persuasion is more powerful than Thor with his hammer. The one melts, the other breaks into pieces.
+ - Birds never sing in caves.
+ - Every man is the builder of a temple called his body.
+ - I have no designs on society, or nature, or God. I am simply what I am, or I begin to be that. I live in the present. I only remember the past, and anticipate the future. I love to live.
+ - Eastward I go only by force; but westward I go free.
+ - I say beware of all enterprises that require new clothes, and not rather a new wearer of clothes.
+ - We must learn to reawaken and keep ourselves awake, not by mechanical aid, but by an infinite expectation of the dawn.
+ - It is only when we forget all our learning that we begin to know.
+ - Nature abhors a vacuum, and if I can only walk with sufficient carelessness I am sure to be filled.
+ - There were times when I could not afford to sacrifice the bloom of the present moment to any work, whether of the head or hand. I love a broad margin to my life.
+ - I had but three chairs in my house; one for solitude, two for friendship; three for society. When visitors came in larger and unexpected numbers there was but the third chair for them all, but they generally economized the room by standing up.
+ - The tree of Knowledge is a Tree of Knowledge of good and evil.
+ - Of what significance the light of day, if it is not the reflection of an inward dawn? – to what purpose is the veil of night withdrawn, if the morning reveals nothing to the soul? It is merely garish and glaring.
+ - Nay, be a Columbus to whole new continents and worlds within you, opening new channels, not of trade, but of thought.
+ - The cart before the horse is neither beautiful nor useful.
+ - Writing your name can lead to writing sentences. And the next thing you’ll be doing is writing paragraphs, and then books. And then you’ll be in as much trouble as I am!
+ - In any weather, at any hour of the day or night, I have been anxious to improve the nick of time, and notch it on my stick too; to stand on the meeting of two eternities, the past and future, which is precisely the present moment; to toe that line.
+ - We are all sculptors and painters, and our material is our own flesh and blood and bone.
+ - The Library is a wilderness of books.
+ - Men are born to succeed, not to fail.
+ - Must the citizen ever for a moment, or in the least degree, resigns his conscience to the legislator? Why has every man a conscience then? I think that we should be men first, and subjects afterward.
+ - Concord River is remarkable for the gentleness of its current, which is scarcely perceptible, and some have referred to its influence the proverbial moderation of the inhabitants of Concord, as exhibited in the Revolution, and on later occasions.
+ - I found in myself, and still find, an instinct toward a higher, or, as it is named, spiritual life, as do most men, and another toward a primitive rank and savage one, and I reverence them both. I love the wild not less than the good.
+ - To enjoy a thing exclusively is commonly to exclude yourself from the true enjoyment of it.
+ - Roads are made for horses and men of business. I do not travel in them much.
+ - No man who acts from a sense of duty ever puts the lesser duty above the greater. No man has the desire and the ability to work onhigh things, but he has also the ability to build himself a high staging.
+ - To be awake is to be completely alive. I have never yet met a man who was quite awake.
+ - Public opinion is a weak tyrant compared with our own private opinion.
+ - Under a government which imprisons any unjustly, the true place for a just man is also a prison.
+ - In my short experience of human life, the outward obstacles, if there were any such, have not been living men, but the institutions of the dead.
+ - I am sure that I never read any memorable news in a newspaper.
+ - It is not part of a true culture to tame tigers, any more than it is to make sheep ferocious.
+ - Man flows at once to God when the channel of purity is open.
+ - Most men, it seems to me, do not care for Nature and would sell their share in all her beauty, as long as they may live, for a stated sum – many for a glass of rum. Thank God, men cannot as yet fly, and lay waste the sky as well as the earth!
+ - The morning wind forever blows, the poem of creation is uninterrupted; but few are the ears to hear it.
+ - Great men, unknown to their generation, have their fame among the great who have preceded them, and all true worldly fame subsides from their high estimate beyond the stars.
+ - The highest that we can attain to is not Knowledge, but Sympathy with Intelligence.
+ - On tops of mountains, as everywhere to hopeful souls, it is always morning.
+ - For an impenetrable shield, stand inside yourself.
+ - Where the most beautiful wild flowers grow, there mans spirit is fed and poets grow.
+ - When I think of the gold-diggers and the Mormons, the slaves and the slave-holders and the flibustiers, I naturally dream of a glorious private life. No, I am not patriotic.
+ - Birds do not sing in caves, nor do doves cherish their innocence in dovecots.
+ - Time is like a handful of sand – the tighter you grasp it, the faster it runs through your fingers.
+ - Men go back to the mountains, as they go back to sailing ships at sea, because in the mountains and on the sea they must face up.
+ - There is only one path to Heaven. On Earth, we call it Love.
+ - The change from storm and winter to serene and mild weather, from dark and sluggish hours to bright and elastic ones, is a memorable crisis which all things proclaim. It is seemingly instantaneous at last.
+ - Every sunset I witness inspires me with the desire to go to West as distant and as fair as that which the sun goes down. Eastward I go only by force; but westward I go free.
+ - Cast your whole vote, not a strip of paper merely, but your whole influence.
+ - Sell your clothes and keep your thoughts. God will see that you do not want society.
+ - Trees indeed have hearts.
+ - I suspect that, if you should go to the end of the world, you would find somebody there going farther, as if just starting for home at sundown, and having a last word before he drove off.
+ - Summer passes into autumn in some unimaginable point of time, like the turning of a leaf.
+ - One must maintain a little bittle of summer, even in the middle of winter.
+ - Nature will bear the closest inspection. She invites us to lay our eye level with her smallest leaf, and take an insect view of its plain.
+ - A name pronounced is the recognition of the individual to whom it belongs. He who can pronounce my name aright, he can call me, and is entitled to my love and service.
+ - Surely joy is the condition of life.
+ - One should be always on the trail of one’s own deepest nature. For it is the fearless living out of your own essential nature that connects you to the Divine.
+ - Begin where you are and such as you are, without aiming mainly to become of more worth, and with kindness aforethought, go about doing good.
+ - It is what a man thinks of himself that really determines his fate.
+ - Be wary of technology; it is often merely an improved means to an unimproved end.
+ - Open all your pores and bathe in all the tides of nature, in all her streams and oceans, at all seasons.
+ - The only people who ever get anyplace interesting are the people who get lost.
+ - Wherever men have lived, there is a story to be told.
+ - It is as hard to see one’s self as to look backwards without turning around.
+ - I will come to you, my friend, when I no longer need you. Then you will find a palace, not an almshouse.
+ - Fire is the most tolerable third party.
+ - It is hard to have a Southern overseer; it is worse to have a Northern one; but worst of all when you are yourself the slave-driver.
+ - When a man truly commits, the universe will conspire to assure his success.
+ - One is wise to cultivate the tree that bears fruit in our soul.
+ - A healthy man, indeed, is the complement of the seasons, and in winter, summer is in his heart.
+ - I can alter my life by altering my attitude. He who would have nothing to do with thorns must never attempt to gather flowers.
+ - Tom Hyde, the tinker, standing on the gallows, was asked if he had anything to say. “Tell the tailors,” said he, “to remember to make a knot in their thread before they take the first stitch.” His companion’s prayer is forgotten.
+ - You must ascend a mountain to learn your relation to matter, and so to your own body, for it is at home there, though you are not.
+ - I love a broad margin to my life. Sometimes, in a summer morning, having taken my accustomed bath, I sat in my sunny doorway from sunrise til noon, rapt in a revery.
+ - Being a teacher is like being in jail; once it’s on your record, you can never get rid of it.
+ - I come to my solitary woodland walk as the homesick go home. I thus dispose of the superfluous and see things as they are, grand and beautiful.
+ - The stars are the jewels of the night, and perchance surpass anything which day has to show.
+ - Silence is the universal refuge, the sequel to all dull discourses and all foolish acts, a balm to our every chagrin, as welcome after satiety as after disappointment.
+ - Unto a life which I call natural I would gladly follow even a will-o’-the-wisp through bogs and sloughs unimaginable, but no moonnor firefly has shown me the causeway to it.
+ - The only wealth is life.
+ - What wealth is it to have such friends that we cannot think of them without elevation!
+ - I should not talk so much about myself if there were anybody else whom I knew as well.
+ - There is no snooze button on a cat who wants breakfast.
+ - However mean your life is, meet it and live it.
+ - Everything counts for gain when we are cosmically awake. Nothing counts, unless we are awake. No enjoyments last, no successes satisfy, no gains have meaning unless accomplished in a state of wakefulness.
+ - Every man must walk to the beat of his own drummer.
+ - Life consists with wildness. The most alive is the wildest. Not yet subdued to man, its presence refreshes him.
+ - Men talk about Bible miracles because there is no miracle in their lives. Cease to gnaw that crust. There is ripe fruit over your head.
+ - The indescribable innocence of and beneficence of Nature,-of sun and wind and rain, of summer and winter,-such health, such cheer, they afford forever!
+ - Resign yourself to the influence of the earth.
+ - God is alone,-but the devil, he is far from being alone; he sees a great deal of company; he is legion.
+ - If words were invented to conceal thought, newspapers are a great improvement of a bad invention.
+ - At death our friends and relatives either draw nearer to us and are found out, or depart farther from us and are forgotten. Friends are as often brought nearer together as separated by death.
+ - There is more religion in men’s science, than there is science in their religion.
+ - I have found that no exertion of the legs can bring two minds much nearer to one another.
+ - Only the traveling is good which reveals to me the value of home and enables me to enjoy it better.
+ - It would be no reproach to a philosopher, that he knew the future better than the past, or even than the present. It is better worth knowing.
+ - Nothing is so much to be feared as fear.
+ - Live free, child of the mist,- and with respect to knowledge we are allchildren of the mist.
+ - We do not ride on the railroad; it rides upon us.
+ - It takes two to speak the truth: one to speak, and another to hear.
+ - Life in us is like the water in a river.
+ - The American has dwindled into an Odd Fellow,-one who may be known by the development of his organ of gregariousness.
+ - We cannot but pity the boy who has never fired a gun; he is no more humane, while his education has been sadly neglected.
+ - Explore thyself. Herein are demanded the eye and the nerve.
+ - Man is an animal who more than any other can adapt himself to all climates and circumstances.
+ - You cannot hear music and noise at the same time.
+ - As every season seems best to us in its turn, so the coming in of spring is like the creation of Cosmos out of Chaos and the realization of the Golden Age.
+ - By a conscious effort of the mind we can stand aloof from actions and their consequences; and all things, good and bad, go by us like a torrent.
+ - Let us spend one day as deliberately as Nature, and not be thrown off the track by every nutshell and mosquito’s wing that falls on the rails.
+ - Talk of mysteries! – Think of our life in nature, – daily to be shown matter, to come in contact with it, – rocks, trees, wind on our cheeks! The solid earth! The actual world! The common sense! Contact! Contact! Who are we? Where are we?
+ - We should come home from adventures, and perils, and discoveries every day with new experience and character.
+ - The law will never make a man free; it is men who have got to make the law free.
+ - Distrust any enterprise that requires new clothes.
+ - The divinity in man is the true vestal fire of the temple which is never permitted to go out, but burns as steadily and with as pure a flame on the obscure provincial altar as in Numa’s temple at Rome.
+ - We should never stand upon ceremony with sincerity. We should never cheat and insult and banish one another by our meanness, if there were present the kernel of worth and friendliness. We should not meet thus in haste.
+ - In accumulating property for ourselves or our posterity, in founding a family or a state, or acquiring fame even, we are mortal; but in dealing with truth we are immortal, and need fear no change nor accident.
+ - I begin to see an object when I cease to understand it.
+ - It is not desirable to cultivate a respect for the law, so much as for the right.
+ - I wish to speak a word for Nature, for absolute Freedom and Wildness, as contrasted with a Freedom and Culture merely civil, – to regard man as an inhabitant, or a part and parcel of Nature, rather than a member of society.
+ - Men and boys are learning all kinds of trades but how to make men of themselves. They learn to make houses; but they are not so well housed, they are not so contented in their houses, as the woodchucks in their holes.
+ - The constant abrasion and decay of our lives makes the soil of our future growth.
+ - I have always been regretting that I was not as wise as the day I was born.
+ - Follow your genius closely enough, and it will not fail to show you a fresh prospect every hour.
+ - Dwell as near as possible to the channel in which your life flows.
+ - Any man more right than his neighbors constitutes a majority of one already.
+ - Is a democracy, such as we know it, the last improvement possible in government? Is it not possible to take a step further towardsrecognizing and organizing the rights of man?
+ - We can never have enough of Nature.
+ - Commonly men will only be brave as their fathers were brave, or timid.
+ - Be resolutely and faithfully what you are; be humbly what you aspire to be.
+ - The silence sings. It is musical. I remember a night when it was audible. I heard the unspeakable.
+ - Genius is a light which makes the darkness visible, like the lightning’s flash, which perchance shatters the temple of knowledge itself.
+ - There can be no very black melancholy to him who lives in the midst of Nature and has his senses still.
+ - Thank God men cannot fly, and lay waste the sky as well as the earth.
+ - Sweep away the clutter of things that complicate our lives.
+ - Nature spontaneously keeps us well. Do not resist her!
+ - Some circumstantial evidence is very strong, as when you find a trout in the milk.
+ - I have a room all to myself; it is nature.
+ - The flowers of the apple are perhaps the most beautiful of any tree’s, so copious and so delicious to both sight and scent.
+ - What is sour in the house a bracing walk in the woods makes sweet.
+ - You never gain something but that you lose something.
+ - The rich man is always sold to the institution which makes him rich. Absolutely speaking, the more money, the less virtue.
+ - Who hears the fishes when they cry?
+ - The true harvest of my daily life is somewhat as intangible and indescribable as the tints of morning or evening.
+ - The cart before the horse is neither beautiful nor useful. Before we can adorn our houses with beautiful objects the walls must bestripped, and our lives must be stripped, and beautiful housekeeping and beautiful living laid for a foundation.
+ - If you are chosen town clerk, forsooth, you cannot go to Tierra del Fuego this summer; but you may go to the land of infernal fire nevertheless.
+ - Who looks in the sun will see no light else; but also he will see no shadow. Our life revolves unceasingly, but the centre is ever the same, and the wise will regard only the seasons of the soul.
+ - We worship not the Graces, nor the Parcae, but Fashion. She spins and weaves and cuts with full authority. The head monkey at Paris puts on a traveler’s cap, and all the monkeys in America do the same.
+ - Simplicity is the peak of civilization.
+ - Great God, I ask thee for no meaner pelf Than that I may not disappoint myself, That in my action I may soar as high As I can now discern with this clear eye.
+ - The smallest seed of faith is better than the largest fruit of happiness.
+ - Give me the poverty that enjoys true wealth.
+ - The little things in life are as interesting as the big ones.
+ - Children, who play life, discern its true law and relations more clearly than men, who fail to live it worthily, but who think that they are wiser by experience, that is, by failure.
+ - I have made a short excursion into the new world which the Indian dwells in, or is. He begins where we leave off.
+ - I believe that the mind can be permanently profaned by the habit of attending to trivial things, so that all our thoughts shall be tinged with triviality.
+ - If you would convince a man that he does wrong, do right. Men will believe what they see.
+ - It is a great art to saunter !
+ - For it matters not how small the beginning may seem to be: what is once done well is done forever.
+ - Solitude is not measured by the miles of space that intervene between a man and his fellows.
+ - The thoughtful man becomes a hermit in the thoroughfares of the marketplace.
+ - The only obligation which I have a right to assume is to do at any time what I think right.
+ - Nature confounds her summer distinctions at this season. The heavens seem to be nearer the earth. The elements are less reserved and distinct. Water turns to ice, rain to snow. The day is but a Scandinavian night. The winter is an arctic summer.
+ - As naturally as the oak bears an acorn and the vine a gourd, man bears a poem, either spoken or done.
+ - Events, circumstances, etc., have their origin in ourselves. They spring from seeds which we have sown.
+ - If we cannot sing of faith and triumph, we will sing our despair. We will be that kind of bird. There are day owls, and there arenight owls, and each is beautiful and even musical while about its business.
+ - We communicate like the burrows of foxes, in silence and darkness, under ground. We are undermined by faith and love.
+ - If we were left solely to the wordy wit of legislators in Congress for our guidance, uncorrected by the seasonal experience and the effectual complaints of the people, America would not long retain her rank among the nations.
+ - I put a piece of paper under my pillow, and when I could not sleep I wrote in the dark.
+ - The voice of nature is always encouraging.
+ - If the condition of things which we were made for is not yet, what were any reality which we can substitute? We will not be shipwrecked on a vain reality.
+ - Objects of charity are not guests.
+ - The millions are awake enough for physical labor; but only one in a million is awake enough for effective intellectual exertion, only one in a hundred millions to a poetic or divine life. To be awake is to be alive.
+ - Wherever you have planted a seed, I am prepared to expect wonders.
+ - A truly good book is something as wildly natural and primitive, mysterious and marvelous, ambrosial and fertile as a fungus or a lichen.
+ - It is in vain to dream of a wildness distant from ourselves. There is none such.
+ - This life we live is a strange dream, and I don’t believe at all any account men give of it.
+ - When I hear a grown man or woman say, “Once I had faith in men, now I have not,” I am inclined to ask, “Who are you whom the world has disappointed? Have not you rather disappointed the world?”
+ - True kindness is a pure divine affinity, Not founded upon human consanguinity. It is a spirit, not a blood relation, Superior to family and station.
+ - Hope and the future for me are not in lawns and cultivated fields, not in towns and cities, but in the impervious and quaking swamps.
+ - Nearest to all things is that power which fashions their being. Next to us the grandest laws are constantly being executed. Next to us is not the workman whom we have hired, with whom we love so well to talk, but the workman whose work we are.
+ - As the stars looked to me when I was a shepherd in Assyria, they look to me now as a New-Englander.
+ - No man ever stood the lower in my estimation for having a patch in his clothes: yet I am sure that there is greater anxiety, commonly, to have fashionable, or at least clean and unpatched clothes, than to have a sound conscience.
+ - Life is grand, and so are its environments of Past and Future. Would the face of nature be so serene and beautiful if man’s destiny were not equally so?
+ - The traveler must be born again on the road, and earn a passport from the elements.
+ - Men talk of freedom! How many are free to think? Free from fear, from perturbation, from prejudice? Nine hundred and ninety-nine in a thousand are perfect slaves.
+ - I was not born to be forced.
+ - We cannot well do without our sins; they are the highway of our virtue.
+ - Our molting season, like that of the fouls, must be a crisis in our lives.
+ - What sort of space is that which separates a man from his fellows and makes him solitary?
+ - A gun will give you the body, not the bird.
+ - Cowards suffer, heroes enjoy.
+ - If I knew for a certainty that a man was coming to my house with the conscious design of doing me good, I should run for my life.
+ - Every tree sends its fibres forth in search of the Wild. The cities import it at any price. Men plow and sail for it. From the forest and wilderness come the tonics and barks which brace mankind.
+ - Endeavor to live the life you have imagined.
+ - The most I can do for my friend is simply to be his friend. I have no wealth to bestow on him. If he knows that I am happy in loving him, he will want no other reward. Is not friendship divine in this?
+ - There is a chasm between knowledge and ignorance which the arches of science can never span.
+ - The best way to correct a mistake is to make it right.
+ - Then at night the general stillness is more impressive than any sound, but occasionally you hear the note of an owl farther or nearer in the woods, and if near a lake, the semihuman cry of the loons at their unearthly revels.
+ - It’s only by forgetting yourself that you draw near to God.
+ - I am sorry to think that you do not get a man’s most effective criticism until you provoke him. Severe truth is expressed with some bitterness.
+ - Let your walks now be a little more adventurous.
+ - The only danger in Friendship is that it will end.
+ - Politics is the gizzard of society, full of gut and gravel.
+ - He who cannot read is worse than deaf and blind, is yet but half alive, is still-born.
+ - Knowledge is to be acquired only by a corresponding experience. How can we know what we are told merely? Each man can interpret another’s experience only by his own.
+ - Take long walks in stormy weather or through deep snows in the fields and woods, if you would keep your spirits up. Deal with brute nature. Be cold and hungry and weary.
+ - A single gentle rain makes the grass many shades greener. So our prospects brighten on the influx of better thoughts. We should be blessed if we lived in the present always, and took advantage of every accident that befell us.
+ - I never dreamed of any enormity greater than I have committed. I never knew, and never shall know, a worse man than myself.
+ - A little thought is sexton to all the world.
+ - In Adam’s fall We sinned all. In the new Adam’s rise, We shall all reach the skies.
+ - Give me the old familiar world, post-office and all, with this ever new self, with this infinite expectation and faith, which does not know when it is beaten.
+ - Poetry is nothing but healthy speech.
+ - When one man has reduced a fact of the imagination to be a fact to his understanding, I foresee that all men will at length establish their lives on that basis.
+ - Faint heart never won true friend. O my friend, may it come to pass, once, that when you are my friend I may be yours.
+ - I believe that men are generally still a little afraid of the dark, though the witches are all hung.
+ - Most men would feel insulted if it were proposed to employ them in throwing stones over a wall, and then in throwing them back, merely that they might earn their wages. But many are no more worthily employed now.
+ - Where there is not discernment, the behavior even of the purest soul may in effect amount to coarseness.
+ - Man’s moral nature is a riddle which only eternity can solve.
+ - When some of my friends have asked me anxiously about their boys, whether they should let them hunt, I have answered yes – remembering that it was one of the best parts of my education – make them hunters.
+ - To the virtuous man, the universe is the only sanctum sanctorum, and the penetralia of the temple are the broad noon of his existence.
+ - It is reasonable that a man should be something worthier at the end of the year than he was at the beginning.
+ - When the true criminals are running around free, the only honorable place for a decent human being is in prisons.
+ - I have traveled a good deal in Concord; and everywhere, in shops, and offices, and fields, the inhabitants have appeared to me to be doing penance in a thousand remarkable ways.
+ - If you will not try, you will go to your grave with your song still inside you.
+
+500 quotes

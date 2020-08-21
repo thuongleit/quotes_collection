@@ -1,0 +1,42 @@
+ - You will come to know that what appears today to be a sacrifice will prove instead to be the greatest investment that you will ever make. ~~Gordon B. Hinckley
+ - True success requires sacrifice. ~~Rick Riordan
+ - The greatest things in life all require commitment, sacrifice, some struggle and hardship. It’s not easy. But absolutely worth it. ~~Robin S. Sharma
+ - There can be no progress, no achievement without sacrifice. ~~James Allen
+ - Sacrifice today for tomorrows betterment, you are willing to pay those payments with pain, because pain is just a message when you are fixing something that’s insufficient in your life. ~~Greg Plitt
+ - Success takes an investment in time, dedication, and sacrifice. This is true education. It is a process. ~~Robert T. Kiyosaki
+ - To be able, at any moment, to sacrifice what you are, for what you will become. ~~Eric Thomas
+ - Never let someone’s opinion become your reality. Never sacrifice who you are because someone else has a problem with it. Love who you are inside and out. ~~Les Brown
+ - You sacrifice the few to save the many. ~~Joel Osteen
+ - The cause of most of man’s unhappiness is sacrificing what he wants most for what he wants now. ~~Gordon B. Hinckley
+ - The world breaks everyone, and afterward, some are strong at the broken places. If you cannot do great things, do small things in a great way. Great achievement is usually born of great sacrifice, and is never the result of selfishness. ~~Napoleon Hill
+ - What are you doing this weekend to improve your financial situation? Sacrifice made today goes a long way for a better tomorrow. ~~Robert T. Kiyosaki
+ - True love requires sacrifice. ~~Francis Chan
+ - An individualist is a man who says: ‘I will not run anyone’s life – nor let anyone run mine. I will not rule or be ruled. I will not be a master nor a slave. I will not sacrifice myself to anyone – nor sacrifice anyone to myself.’ ~~Ayn Rand
+ - Small sacrifices must be made. ~~Otto Lilienthal
+ - My belief is firm in a law of compensation. The true rewards are ever in proportion to the labour and sacrifices made. ~~Nikola Tesla
+ - Not all of us are called to die a martyr’s death, but all of us are called to have the same spirit of self-sacrifice and love to the very end as these martyrs had. ~~Richard Wurmbrand
+ - To be hopeful in bad times is not just foolishly romantic. It is based on the fact that human history is a history not only of cruelty but also of compassion, sacrifice, courage, kindness. ~~Howard Zinn
+ - A Mother’s love is something that no one can explain, It is made of deep devotion and of sacrifice and pain, It is endless and unselfish and enduring come what may For nothing can destroy it or take that love away. ~~Helen Steiner Rice
+ - Love is not self-sacrifice, but the most profound assertion of your own needs and values. It is for your own happiness that you need the person you love, and that is the greatest compliment, the greatest tribute you can pay to that person. ~~Ayn Rand
+ - Hard work, sacrifice and focus will never show up in tests. ~~Lance Armstrong
+ - Great achievement always requires great sacrifice. ~~Robin S. Sharma
+ - People ask me about what sacrifices I’ve made. I always answer: I’ve made no sacrifices, I’ve made choices. ~~Aung San Suu Kyi
+ - In this world it is not what we take up, but what we give up, that makes us rich. ~~Henry Ward Beecher
+ - Doing less is not being lazy. Don’t give in to a culture that values personal sacrifice over personal productivity. ~~Tim Ferriss
+ - When you see corruption being rewarded and honesty becoming a self-sacrifice, you may know that your society is doomed. ~~Ayn Rand
+ - Mental toughness is Spartanism, with all its qualities of self-denial, sacrifice, dedication, fearlessness, and love. ~~Vince Lombardi
+ - If you begin by sacrificing yourself to those you love, you will end by hating those to whom you have sacrificed yourself. ~~George Bernard Shaw
+ - You can’t achieve anything in life without a small amount of sacrifice. ~~Shakira
+ - The really important kind of freedom involves attention, and awareness, and discipline, and effort, and being able truly to care about other people and to sacrifice for them, over and over, in myriad petty little unsexy ways, every day. ~~David Foster Wallace
+ - Without pain, without sacrifice we would have nothing. Like the first monkey shot into space. ~~Chuck Palahniuk
+ - Truth is, no two people are completely compatible. We have to learn to become one. That means we may have to make sacrifices; we may have to overlook some things. We must be willing to compromise for the good of the relationship. ~~Joel Osteen
+ - The creed of sacrifice is a morality for the immoral. ~~Ayn Rand
+ - For the born traveller, travelling is a besetting vice. Like other vices, it is imperious, demanding its victim’s time, money, energy and the sacrifice of comfort. ~~Aldous Huxley
+ - Life does not require you to sacrifice or compromise your joy to get what you want. Joy is what you want, so when you choose in harmony with it, you are fulfilling your purpose in living. ~~Alan Cohen
+ - If you sacrifice liberty for security, you will lose both. ~~Ron Paul
+ - Democracy, like liberty, justice and other social and political rights, is not “given”, it is earned through courage, resolution and sacrifice. ~~Aung San Suu Kyi
+ - Wherever there is animal worship, there is human sacrifice. ~~Gilbert K. Chesterton
+ - It’s no laughing matter being a Republican in these perilous times. Anyone can be a Republican when the stock market is up, but when stocks are selling for no more than they’re worth, I tell you, being a Republican – it’s a sacrifice. ~~Will Rogers
+ - Whoever renders service to many puts himself in line for greatness – great wealth, great return, great satisfaction, great reputation, and great joy. ~~Jim Rohn
+
+40 quotes

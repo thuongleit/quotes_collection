@@ -1,0 +1,22 @@
+ - Regret of neglected opportunity is the worst hell that a living soul can inhabit.
+ - He was born with a gift of laughter and a sense that the world was mad.
+ - Only those become weary of angling who bring nothing to it but the idea of catching fish.
+ - But they were fated to misunderstand each other.
+ - An intelligent observation of the facts of human existence will reveal to shallow-minded folk who sneer at the use of coincidence in the arts of fiction and drama that life itself is little more than a series of coincidences.
+ - To do what you imply would require nothing short of divine intervention. You must change man, not systems.
+ - Truth is so often disconcerting.
+ - There remained the sea, which is free to all, and particularly alluring to those who feel themselves at war with humanity.
+ - Open the history of the past at whatsoever page you will and there you shall find coincidence at work bringing about events that the merest chance might have averted. Indeed, coincidence may be defined as the tool used by Fate to shape the destinies of men and nations.
+ - In life we pay for the evil that in life we do.
+ - I am very poor – for a know nothing, understand nothing. It is not a calamitous condition until it is realized.
+ - Only he who is without anything is without enemies.
+ - It came to Mr. Blood, as he trudged forward under the laden apple-trees on that fragrant, delicious July morning, that man – as he had long suspected – was the vilest work of God, and that only a fool would set himself up as a healer of a species that was best exterminated.
+ - The love that is never to be realized will often remain a man’s guiding ideal.
+ - A man must sometimes laugh at himself or go mad,’ said he. ‘Few realize it. That is why there are so many madmen in the world.
+ - They opposed brute force to reason and philosophy, and battalions of foreign mercenaries to ideas. As if ideas were to be impaled on bayonets!
+ - Thirstily he set it to his lips, and as its cool refreshment began to soothe his throat, he thanked Heaven that in a world of much evil there was still so good a thing as ale.
+ - Gold has at all times been considered the best of testimonies of good faith...
+ - When all is said, a man’s final judgment of his fellows must be based upon his knowledge of himself.
+ - He was suffering from the loss of an illusion.
+
+20 quotes

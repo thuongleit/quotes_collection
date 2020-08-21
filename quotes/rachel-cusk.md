@@ -1,0 +1,61 @@
+ - Leaving things behind and starting again is a way of coping with difficulties. I learnt very early in my life that I was able to leave a place and still remain myself.
+ - It is interesting how keen people are for you to do something they would never dream of doing themselves, how enthusiasticall y they drive you to your own destruction.
+ - Reality might be described as the eternal equipoise of positive and negative.
+ - The woman who thinks she can choose femininity, can toy with it like the social drinker toys with wine – well, she’s asking for it, asking to be undone, devoured, asking to spend her life perpetrating a new fraud, manufacturing a new fake identity, only this time it’s her equality that’s fake.
+ - That’s writing for you: when you make space for passion, it doesn’t turn up.
+ - For me, a novel is always the result of my attempt to impose myself on raw circumstances. It is a concrete form of lived experience.
+ - Having your second child, in case you were wondering, is a lot harder than having your first, except for those people who find it easier. I’m afraid I don’t have the latest figures to confirm this.
+ - As it stands, motherhood is a sort of wilderness through which each woman hacks her way, part martyr, part pioneer; a turn of events from which some women derive feelings of heroism, while others experience a sense of exile from the world they knew.
+ - Shame is something you’ll find a lot of – particularly Catholic – girls feel about their bodies, about their sexuality, about their diet, about anything you like. Shame is the way you keep them down. That’s the way to crush a girl.
+ - I’m waiting for the day when my children cease to find my domestic propriety reassuring and actually find it annoying.
+ - Like the child, the creative writing student is posited as a centre of vulnerable creativity, needful of attention and authority.
+ - Childhood, after all, is not an ending, but rather a state full of potent curiosity.
+ - The true self seeks release, not constraint. It doesnt want to be corseted in a sonnet or made to learn a system of musical notations. It wants liberation, which is why very often it fastens on the novel, for the novel seems spacious, undefined, free.
+ - A sentence is born into this world neither good nor bad, and that to establish its character is a question of the subtlest possible adjustments, a process of intuition to which exaggeration and force are fatal.
+ - If love is what is held to make us immortal, hatred is the reverse.
+ - The distinctive feature of my family was intolerance of sensitivity and emotion – ‘Everything’s great, it all has to be great all the time and why do you have to spoil it?’ Whereas probably the most fundamental and important thing to me has been defending my right to tell the truth about how I feel.
+ - How can there be so many mothers in the world but so little sense of what it might be to become one?
+ - To become a mother is to learn a whole language – to relearn it, perhaps, as it was the tongue to which we were born – and hence gain entrance to a forgotten world of comprehension.
+ - Even if they knew the truth of their own feelings, most mothers would be socially and emotionally incapable of revealing it.
+ - I remain fascinated by where you go as a woman once you are a mother, and if you ever come back.
+ - Parenthood, like death, is an event for which it is nearly impossible to be prepared. It brings you into a new relationship with the fact of your own existence, a relationship in which one may be rendered helpless.
+ - People are least aware of others when demonstrating their own power over them.
+ - Hope is like one of those orchids that grows around toxic waste: lovely in itself – and an assertion, if you like, of indefatigable good – but a sure sign that something nasty lies underneath.
+ - Modern morality is all about perception.
+ - A feminist man is a bit like a vegetarian: it’s the humanitarian principle he’s defending, I suppose.
+ - An eating disorder epidemic suggests that love and disgust are being jointly marketed, as it were; that wherever the proposition might first have come from, the unacceptability of the female body has been disseminated culturally.
+ - The ‘good’ mother, with her fixed smile, her rigidity, her goody-goody outlook, her obsession with unnecessary hygiene, is in fact a fool. It is the ‘bad’ mother, unafraid of a joke and a glass of wine, richly self-expressive, scornful of suburban values, who is, in reality, good.
+ - The British have always made terrible parents.
+ - I suppose, I said, it is one definition of love, the belief in something that only the two of you can see.
+ - I have no sense of a model or predecessor when I write a memoir: For me, the form exists as a method of processing material that retains too many connections to life to be approached strictly and aesthetically. A memoir is a risk, a one-off, a bastard child.
+ - Writing, more than any other art, is indexed to the worthiness of the self because it is identified in peoples minds with emotion.
+ - I’m a novelist, not a social scientist or a commentator.
+ - Society in the English countryside is still strangely, quaintly divided. If black comedy and a certain type of social commentary are what you want, I think English rural communities offer quite a lot of material.
+ - It’s a pretty brutal process, having a baby.
+ - A creative writing workshop will contain students whose ambitions and abilities, whose conceptions of literature itself, are so diverse that what they have in common – the desire to write – could almost be considered meaningless.
+ - I have absolutely no concept of work, except for university. But I like to talk to people a lot about their jobs.
+ - As writers go, I have a skin of average thickness. I am pleased by a good review, disappointed by a bad. None of it penetrates far enough to influence the thing I write next.
+ - A neighbor is something that belongs to the stable world of home life, the thing that lives next door to you.
+ - It is living, not thinking, as a feminist that has become the challenge.
+ - Hope is one of those no-win-no-fee things, and although it needs some encouragement to survive, its existence doesn’t necessarily prove anything.
+ - I don’t really believe in stories, only in the people who tell them.
+ - Feminism remains something that needs to be explained to people.
+ - I don’t go to church any more, but I think that Catholicism is rather like the brand they use on cattle: I feel so formed in that Catholic mould that I don’t think I could adopt any other form of spirituality. I still get feelings of consolation about churches.
+ - I think a lot of artists no longer want to participate in or be associated with narrative because of its corruptedness in contemporary culture.
+ - Divorce also entails the beginning of a supposition that that familial reality might have obstructed one’s ability to perceive others.
+ - There are certain types of slightly hysterical human characters who, rather than creating, walk around with a sense of their own potential – it’s as if they themselves were art objects. They feel as if their lives are written narratives, or pieces of music.
+ - We who were born were not witnesses to our birth: like death, it is something we are forever after trying to catch sight of.
+ - I am a good and interested mother – which has surprised me.
+ - Every time I write a book, I’ve probably taken five years off my life.
+ - Human beings have a need, generally, to destroy things. The Freudian principle of civilisation is correct. There’s always, always a difference between the family image and the reality.
+ - Christianity has kept itself going for centuries on hope alone, and has perpetrated all manner of naughtiness in the meantime.
+ - Honest criticism, I suppose, has its place. But honest writing is infinitely more valuable.
+ - The writing you allude to is a form of dissent, but it’s also expressive of the need to evolve beyond what is turgid and stale in contemporary fiction.
+ - The creativity of childhood was often surrendered amid feelings of unworthiness. So the idea that others are demanding to be given it back – to be ‘taught’ – is disturbing.
+ - What other grown-up gets told how to do their job so often as a writer?
+ - I absolutely don’t dislike children – I would choose their company over adult company any time.
+ - My children are living, thinking human beings. It isn’t in my power to regret them, for they belong to themselves.
+ - Help is dangerous because it exists outside the human economy: the only payment for help is gratitude.
+ - What I increasingly felt, in marriage and in motherhood, was that to live as a woman and to live as a feminist were two different and possibly irreconcilable things.
+
+59 quotes

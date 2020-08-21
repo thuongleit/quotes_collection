@@ -1,0 +1,36 @@
+ - Food is everything. Food, friends, family: Those are the most important things in life.
+ - It’s a new era in fashion – there are no rules.
+ - Listen, I’m not a rich kid. I’m a cultured kid; I’m very rich in culture.
+ - Love advice is like life advice, so there are so many elements of that. I think humor, patience, admiration are really important love elements. Love and respect. You have to respect the person that you’re going to love, and you have to be confident in yourself and love yourself.
+ - I love creative people.
+ - Elegance is timeless. It withstands trend; It withstands the commercialization of what fashion and style have become.
+ - Taking sartorial risks and not following other people is what makes you stand out.
+ - The media is constantly redefining what luxury is. Luxury can be a dirty sock if dressed up in the right way.
+ - I started cooking out of middle school depression.
+ - Fashion is killing women’s body image of themselves.
+ - I don’t believe in one ideal beauty.
+ - We are living in the time of self-creation and you can become your own star and this is the essential set that it needs to take that selfie that’s going to take you to that next place.
+ - I think that paying your bills every month, that’s not so glamorous or fun, having a job, or when your child gets sick. That’s why when there are those special things, they are even more important and you want them to have a purpose.
+ - Everybody wants to be a star right now, to be heard, to have a voice, so you have to give the confidence for people to have that ability – and give them the wardrobe to become a star.
+ - I am a huge believer in social media.
+ - I am a compulsive and concise shopper.
+ - Glamour can be something very simple. Glamour can be how you wash your face, how you make your breakfast.
+ - I am totally unattached to material items.
+ - Everybody needs a killer LBD. If you’re a woman, you should find that LBD that gives you that extra pep and confidence.
+ - My muses were all the incredible, iconic women of glamour in Hollywood that I have worked with over 15 years. Anjelica Huston, Michelle Pfeiffer, Gwyneth Paltrow, Lena Dunham, Viola Davis, Rihanna, Demi Moore...
+ - New York ladies all look immaculate.
+ - For everyday you just need one makeup element. People dress so casual today and we’re living in a time where almost anything goes.
+ - Glamour to the outside world is taking some sense of care in your appearance and should give you inner confidence. You can do a full on look or you can do a ‘less is more’ look but you want to have those components, those little things that are special to you.
+ - There’s not one major greatest influence on my career. It would be film and great artists and great imagineers – Jim Henson, Walt Disney, Charlie Chaplin, people who understand the joy of the imagination.
+ - I want to be a major force.
+ - There is no reason for me to show my collection in New York, because it’s not about craft and technique there.
+ - For the red carpet, I think dress first and the makeup to follow.
+ - The biggest thing politically within fashion is that the clothing should be displayed on different body shapes.
+ - I have a garden, and I collect different heirloom seeds from different neighbors.
+ - I have so many fashion mistakes, but that’s part of being in fashion. I think the people that you see make the most mistakes are usually the best dressers.
+ - Be non-trend-driven, and explore, be creative and take risks as an artist and as a cultural communicator.
+ - So many people are following fashion now. It’s become fashion-tainment.
+ - I’m quite a tuxedo junkie, I collect them all year round.
+ - People who devote themselves to a life of style are admirable.
+
+34 quotes

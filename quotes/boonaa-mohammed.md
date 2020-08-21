@@ -1,0 +1,38 @@
+ - Know that whoever is trying to bring you down, is already below you.
+ - You will never find true love until you first learn to love Allah.
+ - Some sins may help you to remember Allah while some blessings may cause you to forget Him.
+ - A strong man can handle a strong woman. A weak man will say she has an attitude problem.
+ - You have to hurt in order to know. Fall in order to grow. Lose in order to gain. Because most of life’s lessons are learned through pain.
+ - A righteous wife can make a poor man feel like a king.
+ - Without Allah on your side, you can do nothing. With Allah on your side, there is nothing you cannot do.
+ - Let go of your past, but never forget what it has taught you.
+ - Don’t wait for people to be kind, show them how.
+ - If you want a Khadija, you gotta be a Muhammed.
+ - Positive things happen when you distance yourself from negative people.
+ - How you make others feel about themselves, says a lot about you.
+ - The cemetery is full of people who thought they could change themselves tomorrow.
+ - Never underestimate your potential for Jannah.
+ - Sometimes Allah withholds something from you, not because you don’t deserve it, but because you deserve better!
+ - Let Allah will deal with the people who wronged you in this life, because too much hate will eventually consume you to.
+ - At the extremity of hardship comes relief and at the tightening of the chains of trials and tribulations comes ease.
+ - Jan’nah and Jahannum will both contain sinners, but Jan’nah will have sinners who repented.
+ - A bad habit is only a habit until you can observe it, then it’s a choice you make.
+ - What is beauty? Is it the way her body’s shaped, or the way she’s dressed? But if the whole world was blind, how many people would you impress?
+ - If you have time to worry, you have time to make du’a.
+ - If you’re looking for faults use a mirror, not a telescope.
+ - Whatever your past may have been, your future is still spotless.
+ - She is Islam, and I am in Love...
+ - If your heart has grown distant from Allah, the real question is who moved?
+ - Women want a man who can say I love you every night and prove it every day.
+ - What is beauty, but an extension of modesty?
+ - A good way to forget your troubles is to help others out of theirs.
+ - Just because you forgot about your sins, doesn’t mean they have been forgiven.
+ - Cherish the people you love, because you never know when Allah will take them back.
+ - Get rich if you’re looking for a woman, Get pious if you’re looking for a wife.
+ - Being rejected from something good just means that Allah is pointing you to something better.
+ - Practice random acts of kindness, the world needs it more than you think.
+ - You will not be asked about your culture in your grave. And you will not be judged based on your Father’s last name. When the trumpet blares, there will be no more kings, only slaves. And your family traditions will not be able to keep you safe.
+ - Superheroes allow their capes to hang off their backs; but our Superwomen choose to wrap them around their heads.
+ - A person worth envying is a person who doesn’t envy.
+
+36 quotes

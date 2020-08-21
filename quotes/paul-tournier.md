@@ -1,0 +1,34 @@
+ - Sooner or later, those who win are those who think they can.
+ - No one can develop freely in this world and find a full life without feeling understood by at least one person.
+ - Everything that is worthwhile in life is scary. Choosing a school, choosing a career, getting married, having kids – all those things are scary. If it is not fearful, it is not worthwhile.
+ - There are two things we cannot do alone. One is to be married and the other is to be a Christian.
+ - Life can become once more a grand adventure if we will surrender it to god. He brings one adventure to an end, only to open another to us. With him we must be ready for anything.
+ - That is what marriage really means; helping one another to reach the full status of being persons, responsible and autonomous beings who do not run away from life.
+ - The adventurous life is not one exempt from fear, but on the contrary, one that is lived in full knowledge of fears of all kinds, one in which we go forward in spite of our fears.
+ - The worst thing is not being wrong, but being sure one is not wrong.
+ - Acceptance of one’s life has nothing to do with resignation; it does not mean running away from the struggle. On the contrary, it means accepting it as it comes, with all the handicaps of heredity, of suffering, of psychological complexes and injustices.
+ - Nothing makes us so lonely as our secrets.
+ - Marriage teaches you loyalty, forbearance, self-restraint, meekness, and a great many other things you wouldn’t need if you had stayed single.
+ - Where there is no longer any opportunity for doubt, there is no longer any opportunity for faith either.
+ - If there had been no fear of failure, neither would there be any joy in success.
+ - The more refined and subtle our minds, the more vulnerable they are.
+ - At the heart of personality is the need to feel a sense of being lovable without having to qualify for that acceptance.
+ - In order to really understand, we need to listen, not reply. We need to listen long and attentively. In order to help anybody to open his heart we have to give him time, asking only a few questions, as carefully as possible in order to help him better explain his experience.
+ - The real meaning of travel, like that of a conversation by the fireside, is the discovery of oneself through contact with other people, and its condition is self-commitment in the dialogue.
+ - The most tragic consequence of our criticism of a man is to block his way to humiliation and grace, precisely to drive him into the mechanisms of self justification and into his faults instead of freeing him from them. For him, our voice drowns the voice of God.
+ - People are reluctant to talk about old age and death because they are afraid of emotion, and they willingly avoid the things they feel most emotional about, though these are the very things they most need to talk about.
+ - Your manner of life now is already determining your life in those years of old age and retirement, without your realizing it even, and perhaps without your giving enough thought to it. One must therefore prepare oneself for retirement.
+ - Woe to the man who tries to remain objective and to maintain a wide perspective: every one will label him as an enemy.
+ - Let us not seek to bring religion to others, but let us endeavor to live it ourselves.
+ - Listen to all the conversations of our world, between nations as well as between individuals. They are, for the most part, dialogues of the deaf.
+ - Recounting of a life story, a mind thinking aloud leads one inevitably to the consideration of problems which are no longer psychological but spiritual.
+ - Sickness may be the solemn occasion of God’s intervention in a person’s life.
+ - Our task is to live our personal communion with Christ with such intensity as to make it contagious.
+ - The really important thing in life is not the avoidance of mistakes, but the obedience of faith. By obedience, the man is led step by step to correct his errors, whereas nothing will ever happen to him if he doesn’t get going.
+ - Most illnesses do not, as is generally thought, come like a bolt out of the blue. The ground is prepared for years through faulty diet, intemperance, overwork, and moral conflicts, slowly eroding the subject’s vitality.
+ - To be right is dangerous, it has ever been the source of all intolerance.
+ - Many ordinary illnesses are nothing but the expression of a serious dissatisfaction with life.
+ - We do not posses God. We find him periodically.
+ - We are always looking for a grand program of action full of great ideas, when the thing is to begin by obeying the little ideas.
+
+32 quotes

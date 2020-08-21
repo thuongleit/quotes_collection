@@ -1,0 +1,22 @@
+ - Listen and understand. That Terminator is out there. It can’t be bargained with. It can’t be reasoned with. It doesn’t feel pity, or remorse, or fear. And it absolutely will not stop, ever, until you are dead.
+ - Johnny Ringo to me was just the best antagonist that I’ve ever played, because I played him as a guy who has a death wish and had done everything that he wanted in life. As far as he was concerned, a gun fight was about as exciting as it was going to get.
+ - I think I’m prouder of ‘The Victim’ than anything else, just because, if nothing else, it doesn’t look silly, it doesn’t look stupid. It holds up. It’s fun. A lot of people have enjoyed it, and I’m real happy about it.
+ - I don’t have a computer. I don’t know anything about that. I don’t even know what a website is.
+ - As I’ve always said, ‘I’m a lover, not a fighter.’ I’m much better with women than I am being tough in a bar!
+ - The thing about the movie ‘Navy SEALs’ is that it was just such a waste. The script could’ve been shaped to be much better, and you just hate to see all that talent and passion go to waste.
+ - And it absolutely will not stop, ever, until you are dead!
+ - I don’t like gratuitous violence. I don’t like the ‘Saw’ movies. I don’t like the ‘Hostel’ movies. I don’t like anything that is violence for violence’s sake.
+ - Unforgiven, I think, is the best Western ever.
+ - To be perfectly honest with you, I was partying a lot in school. I didn’t have any good study habits from high school because I just kind of got by on being a jock.
+ - I think every director’s different. Every director’s got his own style. I mean, when I directed, I basically just screamed for eight hours a day, twelve hours a day.
+ - I am much more involved in the filmmaking experience on Mag Seven. I’m much more involved in story elements, casting decisions, the writing of the show, the blocking of the scenes.
+ - When I was a kid I used to go to the movies, double features in outdoor theaters, and my parents used to take us to see like, ‘Cat On a Hot Tin Roof’ or something like that, with Elizabeth Taylor.
+ - I thought if I could be a model, or even do commercials and stuff like that for the rest of my life, I’d be happy.
+ - Right before Mag Seven I did a movie called The Bull Rider.
+ - They gave me the chaps and hat and everything. I looked like a real cowboy. I walked around the rodeo and thought, I am a real cowboy and thought everyone thought I was a real cowboy.
+ - I grew up in Arizona and have a lot of buddies that are cowpokes.
+ - I had a weird situation were someone used my name to extort money from a woman. He took her for 60 or 80 thousand dollars. He is in prison now. It was on Sally.
+ - When I was a kid everyone used to call me pork ’n.
+ - I’d rather have a small part in a good film with good people than play the lead in something I don’t really care for.
+
+20 quotes

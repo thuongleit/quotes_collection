@@ -1,0 +1,456 @@
+ - The worst enemy to creativity is self-doubt.
+ - Is there no way out of the mind?
+ - If you expect nothing from anybody, you’re never disappointed.
+ - And by the way, everything in life is writable about if you have the outgoing guts to do it, and the imagination to improvise. The worst enemy to creativity is self-doubt.
+ - Perhaps when we find ourselves wanting everything, it is because we are dangerously close to wanting nothing.
+ - I took a deep breath and listened to the old brag of my heart. I am, I am, I am.
+ - I desire the things that will destroy me in the end.
+ - I have the choice of being constantly active and happy or introspectively passive and sad. Or I can go mad by ricocheting in between.
+ - Kiss me, and you will see how important I am.
+ - What horrifies me most is the idea of being useless: well-educated, brilliantly promising, and fading out into an indifferent middle age.
+ - Please don’t expect me to always be good and kind and loving. There are times when I will be cold and thoughtless and hard to understand.
+ - How we need another soul to cling to.
+ - So much working, reading, thinking, living to do! A lifetime is not long enough.
+ - I dream too much, work too little.
+ - I think I made you up inside my head.
+ - It is awful to want to go away and to want to go nowhere.
+ - I shut my eyes and all the world drops dead; I lift my eyes and all is born again.
+ - I don’t care about anyone, and the feeling is quite obviously mutual.
+ - I felt wise and cynical as all hell.
+ - After all, we are nothing more or less than we choose to reveal.
+ - And when at last you find someone to whom you feel you can pour out your soul, you stop in shock at the words you utter – they are so rusty, so ugly, so meaningless and feeble from being kept in the small cramped dark inside you so long.
+ - August rain: the best of the summer gone, and the new fall not yet born. The odd uneven time.
+ - The trouble was, I had been inadequate all along, I simply hadn’t thought about it.
+ - I am terrified by this dark thing that sleeps in me.
+ - I think I am mad sometimes.
+ - I love my rejection slips. They show me I try.
+ - You are a dream; I hope I never meet you.
+ - Intoxicated with madness, I’m in love with my sadness.
+ - I’d say go to hell, but I never want to see you again.
+ - Let me live, love and say it well in good sentences.
+ - Go out and do something. It isn’t your room that’s a prison, it’s yourself.
+ - I talk to God but the sky is empty.
+ - Girls are not machines that you put kindness coins into until sex falls out.
+ - I write only because There is a voice within me That will not be still.
+ - Out of the ash I rise with my red hair and I eat men like air.
+ - I know pretty much what I like and dislike; but please, don’t ask me who I am.
+ - I must get my soul back from you; I am killing my flesh without it.
+ - All I want is blackness. Blackness and silence.
+ - To the person in the bell jar, blank and stopped as a dead baby, the world itself is a bad dream.
+ - Hurl yourself at goals above your head and bear the lacerations that come when you slip and make a fool of yourself. Try always, as long as you have breath in your body, to take the hard way–and work, work, work to build yourself into a rich, continually evolving entity.
+ - If I didn’t think, I’d be much happier.
+ - The blood jet is poetry and there is no stopping it.
+ - We should meet in another life, we should meet in air, me and you.
+ - Remember, remember, this is now, and now, and now. Live it, feel it, cling to it. I want to become acutely aware of all I’ve taken for granted.
+ - I woke to the sound of rain.
+ - I didn’t know why I was going to cry, but I knew that if anybody spoke to me or looked at me too closely the tears would fly out of my eyes and the sobs would fly out of the throat and I’d cry for a week.
+ - The floor seemed wonderfully solid. It was comforting to know I had fallen and could fall no farther.
+ - If neurotic is wanting two mutually exclusive things at one and the same time, then I’m neurotic as hell. I’ll be flying back and forth between one mutually exclusive thing and another for the rest of my days.
+ - Perhaps some day I’ll crawl back home, beaten, defeated. But not as long as I can make stories out of my heartbreak, beauty out of sorrow.
+ - Wear your heart on your skin in this life.
+ - I have stitched life into me like a rare organ.
+ - Ready for a new life.
+ - Not being perfect hurts.
+ - The abstract kills, the concrete saves.
+ - That’s one of the reasons I never wanted to get married. The last thing I wanted was infinite security and to be the place an arrow shoots off from. I wanted change and excitement and to shoot off in all directions myself, like the colored arrows from a Fourth of July rocket.
+ - Every woman adores a Fascist, The boot in the face, the brute Brute heart of a brute like you.
+ - What have I eaten? Lies and smiles.
+ - I felt my lungs inflate with the onrush of scenery – air, mountains, trees, people. I thought, “This is what it is to be happy.”
+ - Slowly, slowly, catch the monkey.
+ - So many people are shut up tight inside themselves like boxes, yet they would open up, unfolding quite wonderfully, if only you were interested in them.
+ - Mother of otherness, Eat me.
+ - I like people too much or not at all.
+ - I couldn’t see the point of getting up. I had nothing to look forward to.
+ - I am I-I am powerful, but to what extent? I am I.
+ - I didn’t want any flowers, I only wanted to lie with my hands turned up and be utterly empty. How free it is, you have no idea how free.
+ - Dying is an art. Like everything else, I do it exceptionally well. I do it so it feels like hell. I do it so it feels real. I guess you could say I have a call.
+ - I must bridge the gap between adolescent glitter and mature glow.
+ - If the moon smiled, she would resemble you. You leave the same impression Of something beautiful, but annihilating.
+ - Dying Is an art, like everything else. I do it exceptionally well.
+ - I am not cruel, only truthful.
+ - It is so much safer not to feel, not to let the world touch me.
+ - The silence drew off, baring the pebbles and shells and all the tatty wreckage of my life.
+ - Yes, I was infatuated with you: I am still. No one has ever heightened such a keen capacity of physical sensation in me. I cut you out because I couldn’t stand being a passing fancy. Before I give my body, I must give my thoughts, my mind, my dreams. And you weren’t having any of those.
+ - Your body Hurts me as the world hurts God.
+ - How we need another soul to cling to, another body to keep us warm. To rest and trust; to give your soul in confidence: I need this, I need someone to pour myself into.
+ - I wish to cry. Yet, I laugh, and my lipstick leaves a red stain like a bloody crescent moon on top of the beer can.
+ - I like people too much or not at all. I’ve got to go down deep, to fall into people, to really know them.
+ - I am myself. That is not enough.
+ - I wanted to be where nobody I knew could ever come.
+ - And the danger is that in this move toward new horizons and far directions, that I may lose what I have now, and not find anything except loneliness.
+ - Maybe forgetfulness, like a kind snow, should numb and cover them. But they were a part of me. They were my landscape.
+ - There is nothing like puking with somebody to make you into old friends.
+ - What did my arms do before they held you?
+ - Like a cat I have nine times to die.
+ - And I am aware of my heart: it opens and closes Its bowl of red blooms out of sheer love of me.
+ - The silence depressed me. It wasn’t the silence of silence. It was my own silence.
+ - It is a terrible thing to be so open: it is as if my heart put on a face and walked into the world.
+ - There is a certain clinical satisfaction in seeing just how bad things can get.
+ - I felt very still and empty, the way the eye of a tornado must feel, moving dully along in the middle of the surrounding hullabaloo.
+ - There was a beautiful time...
+ - If the body is a temple, then tattoos are its stained glass windows.
+ - I may never be happy, but tonight I am content.
+ - Now I am silent, hate Up to my neck, Thick, thick. I do not speak.
+ - The hardest thing is to live richly in the present without letting it be tainted out of fear for the future or regret for the past.
+ - I hurl my heart to halt his pace.
+ - I need some older, wiser being to cry to. I talk to God, but the sky is empty, and Orion walks by and doesn’t speak.
+ - And I a smiling woman. I am only thirty. And like the cat I have nine times to die.
+ - Clouds pass and disperse. Are those the faces of love, those pale irretrievables? Is it for such I agitate my heart?
+ - Everything people did seemed so silly, because they only died in the end.
+ - I am gone quite mad with the knowledge of accepting the overwhelming number of things I can never know, places I can never go, and people I can never be.
+ - I love him to hell and back and heaven and back, and have and do and will.
+ - God, how I ricochet between certainties and doubts.
+ - I have no preconceptions. Whatever I see, I swallow immediately. Just as it is, unmisted by love or dislike. I am not cruel, only truthful.
+ - Is it the sea you hear in me? Its dissatisfactions? Or the voice of nothing, that was your madness? Love is a shadow. How you lie and cry after it.
+ - I want to kill myself, to escape from responsiblity, to crawl abjectly back into the womb.
+ - I wonder why I don’t go to bed and go to sleep. But then it would be tomorrow, so I decide that no matter how tired, no matter how incoherent I am, I can skip on hour more of sleep and live.
+ - When you give someone your whole heart and he doesn’t want it, you cannot take it back. It’s gone forever.
+ - I want to be important. By being different. And these girls are all the same.
+ - Cheers for spring; for life; for a growing soul.
+ - Here I am, a bundle of past recollections and future dreams, knotted up in a reasonably attractive bundle of flesh. I remember what this flesh has gone through; I dream of what it may go through.
+ - At twenty I tried to die And get back, back, back to you. I thought even the bones would do.
+ - I felt dumb and subdued. Every time I tried to concentrate, my mind glided off, like a skater, into a large empty space, and pirouetted there, absently.
+ - If I didn’t think, I’d be much happier; if I didn’t have any sex organs, I wouldn’t waver on the brink of nervous emotion and tears all the time.
+ - I told him I believed in hell, and that certain people, like me, had to live in hell before they died, to make up for missing out on it after death, since they didn’t believe in life after death, and what each person believed happened to him when he died.
+ - Widow. The word consumes itself.
+ - If they substituted the word ‘Lust’ for ‘Love’ in the popular songs it would come nearer the truth.
+ - This is the light of the mind, cold and planetary. The trees of the mind are black. The light is blue.
+ - Eternity bores me, I never wanted it.
+ - They had to call and call And pick the worms off me like sticky pearls.
+ - What is my life for and what am I going to do with it? I don’t know and I’m afraid. I can never read all the books I want; I can never be all the people I want and live all the lives I want.
+ - The truth comes to me. The truth loves me.
+ - Can you understand? Someone, somewhere, can you understand me a little, love me a little? For all my despair, for all my ideals, for all that – I love life. But it is hard, and I have so much – so very much to learn.
+ - The frost makes a flower, the dew makes a star.
+ - There is a certain unique and strange delight about walking down an empty street alone.
+ - Sometimes I feel so stupid and dull and uncreative that I am amazed when people tell me differently.
+ - See, the darkness is leaking from the cracks. I cannot contain it. I cannot contain my life.
+ - How frail the human heart must be – a mirrored pool of thought.
+ - I lean to you, numb as a fossil. Tell me I’m here.
+ - I am what I feel and think and do.
+ - Aloneness and selfness are too important to betray for company.
+ - Life has been some combination of fairy-tale coincidence and joie de vivre and shocks of beauty together with some hurtful self-questioning.
+ - I am learning peacefulness, lying by myself quietly, as the light lies on these white walls, this bed, these hands. I am nobody; I have nothing to do with explosions.
+ - The thought that I might kill myself formed in my mind coolly as a tree or a flower.
+ - Love life day by day, color by color, touch by touch.
+ - And I sit here without identity: faceless. My head aches.
+ - I, love, I am the pure acetylene virgin attended by roses.
+ - What did my fingers do before they held him? What did my heart do, with its love?
+ - There is more than one good way to drown.
+ - There must be quite a few things that a hot bath won’t cure, but I don’t know many of them.
+ - Character is fate.
+ - Perfection is terrible, it cannot have children.
+ - Every day one has to earn the name of ‘writer’ over again, with much wrestling.
+ - Backward we traveled to reclaim the day Before we fell, like Icarus, undone; All we find are altars in decay And profane words scrawled black across the sun. – From the poem “Doom of the Exiles”, written 16 April 1954.
+ - Before I give my body, I must give my thoughts, my mind, my dreams.
+ - Winning or losing an argument, receiving an acceptance or rejection, is no proof of the validity or value of personal identity. One may be wrong, mistaken, or a poor craftsman, or just ignorant – but this is no indication of the true worth of one’s total human identity: past, present and future!
+ - The thing about writing is not to talk, but to do it; no matter how bad or even mediocre it is, the process and production is the thing, not the sitting and theorizing about how one should write ideally, or how well one could write if one really wanted to or had the time.
+ - I wondered why I couldn’t go the whole way doing what I should any more. This made me sad and tired. Then I wondered why I couldn’t go the whole way doing what I shouldn’t, the way Doreen did, and this made me even sadder and more tired.
+ - I am dead to them, even though I once flowered.
+ - I guess they call it suicide, but I’m to full to swallow my pride I can’t stand losing you The Police Dying is an art, like everything else. I do it exceptionally well.
+ - My life is a discipline, a prison: I live for my own work, without which I am nothing.
+ - Spiderlike, I spin mirrors, Loyal to my image.
+ - And I, stepping from this skin Of old bandages, boredoms, old faces Step to you from the black car of Lethe, Pure as a baby.
+ - I could feel the winter shaking my bones and banging my teeth together.
+ - The body is amazingly stubborn when it comes to sacrificing itself to the annihilating directions of the mind.
+ - I have suffered the atrocity of sunsets.
+ - I want to write because I have the urge to excel in one medium of translation and expression of life. I can’t be satisfied with the colossal job of merely living. Oh, no, I must order life in sonnets and sestinas and provide a verbal reflector for my 60-watt lighted head.
+ - You cannot regard your own life with objective curiosity all the time...
+ - The man creates a pseudonym and hides behind it like a worm.
+ - You know what lies are for.
+ - I collect men with interesting names.
+ - Why the hell are we conditioned into the smooth strawberry-and-cream Mother-Goose-world, Alice-in-Wonderland fable, only to be broken on the wheel as we grow older and become aware of ourselves as individuals with a dull responsibility in life?
+ - I opened the door and blinked out into the bright hall. I had the impression it wasn’t night and it wasn’t day, but some lurid third interval that had suddenly slipped between them and would never end.
+ - If only I knew what I wanted I could try to see about getting it.
+ - Sometimes I feel like I’m not solid. I’m hollow. There’s nothing behind my eyes. I’m a negative of a person. All I want is blackness, blackness and silence.
+ - I ride earth’s burning carousel. Day in, day out.
+ - Not easy to state the change you made. If I’m alive now, I was dead, Though, like a stone, unbothered by it.
+ - So learn about life. Cut yourself a big slice with the silver server, a big slice of pie. Open your eyes. Let life happen.
+ - I felt myself melting into the shadows like the negative of a person I’d never seen before in my life.
+ - I must not be selfless: develop a sense of self. A solidness that can’t be attacked.
+ - The claw of the magnolia, drunk on its own scents, asks nothing of life.
+ - What a man wants is a mate and what a woman wants is infinite security,’ and, ‘What a man is is an arrow into the future and a what a woman is is the place the arrow shoots off from.
+ - I thought the most beautiful thing in the world must be shadow.
+ - Very depressed today. Unable to write a thing. Menacing gods. I feel outcast on a cold star, unable to feel anything but an awful helpless numbness.
+ - Winter is for women The woman still at her knitting, At the cradle of Spanish walnut, Her body a bulb in the cold and too dumb to think.
+ - The more hopeless you were, the further away they hid you.
+ - How can you be so many women to so many strange people, oh you strange girl?
+ - Well, I know now. I know a little more how much a simple thing like a snowfall can mean to a person.
+ - I do not fear it: I have been there.
+ - Let me sit in a flowerpot, The spiders won’t notice. My heart is a stopped geranium.
+ - Cold glass, how you insert yourself Between myself and myself. I scratch like a cat. The blood that runs is dark fruit- An effect, a cosmetic. You smile. No, it is not fatal.
+ - I deserve that, don’t I, some sort of blazing love that I can live with.
+ - I want to live and feel all the shades, tones and variations of mental and physical experience possible in life.
+ - I am jealous of those who think more deeply, who write better, who draw better, who ski better, who look better, who live better, who love better than I.
+ - I am solitary as grass. What is it I miss? Shall I ever find it, whatever it is?
+ - A fierce brief fusion which dreamers call real, and realists, an illusion; an insight like the flight of birds...
+ - And so I rehabilitate myself – staying up late this Friday night in spite of vowing to go to bed early, because it is more important to capture moments like this, keen shifts in mood, sudden veering of direction – than to lose it in slumber.
+ - I inhabit the wax image of myself, a doll’s body. Sickness begins here; I am a dartboard for witches.
+ - I am flushed and warm. I think I may be enormous, I am so stupidly happy, My wellingtons Squelching and squelching through the beautiful red.
+ - Doing all the little tricky things it takes to grow up, step by step, into an anxious and unsettling world.
+ - Over coffee and orange juice the embryonic suicide brightens visibly.
+ - It is best to meet in a cul-de-sac, A palace of velvet With windows of mirrors. There one is safe, There are no family photographs, No rings through the nose, no cries.
+ - Good to know that if I ever need attention all I have to do is die.
+ - I, to you, am lost in the gorgeous errors of flesh.
+ - Doreen had intuition. Everything she said was like a secret voice speaking straight out of my own bones.
+ - A man’s world is different from a woman’s world and a man’s emotions are different from a woman’s emotions and only marriage can bring the two different sets of emotions together properly.
+ - I wanted to crawl in between those black lines of print, the way you crawl through a fence, and go to sleep under that beautiful big green fig-tree.
+ - Oh, something is there, waiting for me. Perhaps someday the revelation will burst in upon me and I will see the other side of this monumental grotesque joke. And then I’ll laugh. And then I’ll know what life is.
+ - Love is a shadow. How you lie and cry after it.
+ - What I fear most, I think, is the death of the imagination.
+ - If Doctor Nolan asked me for the matches, I would say that I’d thought they were made of candy and had eaten them.
+ - And there’s the fallacy of existence: the idea that one could be happy forever and age with a given situation or series of accomplishments.
+ - Can a selfish egocentric jealous and unimaginative female write a damn thing worthwhile?
+ - The sheets grow heavy as a lecher’s kiss.
+ - It’s a hell of a responsibility to be yourself. It’s much easier to be somebody else or nobody at all.
+ - No, I won’t try to escape myself by losing myself in artificial chatter ‘Did you have a nice vacation?’ ‘Oh, yes, and you?’ I’ll stay here and try to pin that loneliness down.
+ - That afternoon my mother had brought me the roses. “Save them for my funeral,” I’d said.
+ - Some things are hard to write about. After something happens to you, you go to write it down, and either you over dramatize it, or underplay it, exaggerate the wrong parts or ignore the important ones. At any rate, you never write it quite the way you want to.
+ - People or stars Regard me sadly, I disappoint them. From the poem “Sheep in Fog”, 2 December 1962, 28 January 1963.
+ - I love people. Everybody. I love them, I think, as a stamp collector loves his collection. Every story, every incident, every bit of conversation is raw material for me.
+ - Your room is not your prison. You are.
+ - I can’t be satisfied with the colossal job of merely living.
+ - It is as if my life were magically run by two electric currents: joyous positive and despairing negative – which ever is running at the moment dominates my life, floods it.
+ - I’ll never speak to God again.
+ - There is no life higher than the grasstops.
+ - I wish you’d find the exit out of my head.
+ - When they asked me what I wanted to be I said I didn’t know.
+ - The slime of all my yesterdays rots in the hollow of my skull.
+ - The silence between us was so profound I thought part of it must be my fault.
+ - So I began to think maybe it was true that when you were married and had children it was like being brainwashed, and afterward you went about as numb as a slave in a totalitarian state.
+ - It was my first big chance, but here I was, sitting back and letting it run through my fingers like so much water.
+ - Love, love, I have hung our cave with roses.
+ - The night sky is only a sort of carbon paper, Blueblack, with the much-poked periods of stars Letting in the light, peephole after peephole – A bonewhite light, like death, behind all things.
+ - I had imagined a kind, ugly, intuitive man looking up and say, ‘Ah!’ in an encouraging way, as if he could see something I couldn’t, and then I would find words to tell him how I was so scared, as if I were being stuffed farther and farther into a black, airless sack with no way out.
+ - A little thing, like children putting flowers in my hair, can fill up the widening cracks in my self-assurance like soothing lanolin.
+ - There is a charge For the eyeing of my scars, there is a charge For the hearing of my heart – It really goes. And there is a charge, a very large charge, For a word or a touch Or a bit of blood Or a piece of my hair or my clothes.
+ - Do we always grind through the present, doomed to throw a gold haze of fond retrospect over the past?
+ - I am so hungry for a big smashing creative burgeoning burdened love.
+ - I’m sarcastic, skeptical, and sometimes callous because I’m still afraid, deep down, of letting myself be hurt.
+ - Please, I want so badly for the good things to happen.
+ - I want to force myself again and again to leave the warmth and security of static situations and move into the world of growth and suffering where the real books are people’s minds and souls.
+ - Then I decided I would spend the summer writing a novel. That would fix a lot of people.
+ - I have this demon who wants me to run away screaming if I am going to be flawed, fallible. It wants me to think I’m so good I must be perfect. Or nothing. I am, on the contrary, something: a being who gets tired, has shyness to fight, has more trouble than most facing people easily.
+ - I want so obviously, so desperately to be loved, and to be capable of love.
+ - You have to be able to make a real creative life for Yourself, before you can expect anyone Else to provide one ready-made for you.
+ - Beached under the spumy blooms, we lie Sea-sick and fever-dry.
+ - Can you understand? Someone, somewhere, can you understand me a little, love me a little?
+ - Ever since I was small I loved feeling somebody comb my hair. It made me go all sleepy and peaceful.
+ - I am still raw. I say I may be back. You know what lies are for. Even in your Zen heaven we shan’t meet.
+ - A ring of gold with the sun in it? Lies. Lies and a grief.
+ - God, it was good to let go, let the tight mask fall off, and the bewildered, chaotic fragments pour out. It was the purge, the catharsis.
+ - But I wasn’t sure. I wasn’t sure at all. How did I know that someday – at college, in Europe, somewhere, anywhere – the bell jar, with its stifling distortions, wouldn’t descend again?
+ - The moon, too, abases her subjects, but in the daytime she is ridiculous. Your dissatisfactions, on the other hand, arrive through the mailslot with loving regularity, white and blank, expansive as carbon monoxide. No day is safe from news of you, walking about in Africa maybe, but thinking of me.
+ - To annihilate the world by annihilation of oneself is the deluded height of desperate egoism.
+ - I want, I think, to be omniscient. I think I would like to call myself “the girl who wanted to be God.” Yet if I were not in this body where would I be-perhaps I am destined to be classified and qualified. But, oh, I cry out against it.
+ - Jealousy can open the blood, it can make black roses.
+ - Tomorrow I will curse the dawn, but there will be other, earlier nights, and the dawns will be no longer hell laid out in alarms and raw bells and sirens.
+ - I know the bottom, she says. I know it with my great tap root: It is what you fear. I do not fear it: I have been there.
+ - Now I know what loneliness is, I think. Momentary loneliness, anyway. It comes from a vague core of the self – - like a disease of the blood, dispersed throughout the body so that one cannot locate the matrix, the spot of contagion.
+ - My mother said the cure for thinking too much about yourself was helping somebody who was worse off than you.
+ - I have a violence in me that is hot as death-blood.
+ - We know a thing by its opposite corollary; hot by having experienced cold; good by having decided what is bad; love by hate.
+ - I would catch sight of some flawless man off in the distance, but as soon as he moved closer I immediately saw he wouldn’t do at all.
+ - The blood of love welled up in my heart with a slow pain.
+ - A dispassionate white sun shone at the summit of the sky. I wanted to hone myself on it till I grew saintly and thin and essential as the blade of a knife.
+ - I am made, crudely, for success.
+ - I’ve eaten a bag of Green apples. Boarded the train, there’s no getting off.
+ - If you pluck out my heart To find what makes it move, You’ll halt the clock That syncopates our love.
+ - As from a star I saw, coldly and soberly, the separateness of everything. I felt the wall of my skin; I am I. That stone is a stone. My beautiful fusion with the things of this world was over.
+ - I wanted to tell her that if only something were wrong with my body it would be fine, I would rather have anything wrong with my body than something wrong with my head, but the idea seemed so involved and wearisome that I didn’t say anything. I only burrowed down further in the bed.
+ - The sky leans on me, me, the one upright among all horizontals.
+ - Piece by piece, I fed my wardrobe to the night wind, and flutteringly, like a loved one’s ashes, the gray scraps were ferried off, to settle here, there, exactly where I would never know, in the dark heart of New York.
+ - I am but one more drop in the great sea of matter, defined, with the ability to realize my existence.
+ - A skeptic, I would ask for consistency first of all.
+ - I am afraid. I am not solid, but hollow. I feel behind my eyes a numb, paralyzed cavern, a pit of hell, a mimicking nothingness.
+ - The day I went into physics class it was death.
+ - Stars open among the lilies. Are you not blinded by such expressionless sirens? This is the silence of astounded souls.
+ - Don’t talk to me about the world needing cheerful stuff! What the person out of Belsen physical or psychological wants is nobody saying the birdies still go tweet-tweet, but the full knowledge that somebody else has been there and knows the worst, just what it is like.
+ - There is so much hurt in this game of searching for a mate, of testing, trying. And you realize suddenly that you forgot it was a game, and turn away in tears.
+ - I felt like a racehorse in a world without racetracks.
+ - Sometimes I nursed starfish alive in jam jars of seawater and watched them grow back lost arms. On this day, this awful birthday of otherness, my rival, somebody else, I flung the starfish against a stone. Let it perish.
+ - I have never found anybody who could stand to accept the daily demonstrative love I feel in me, and give back as good as I give.
+ - Don’t let the wicked city get you down.
+ - My flesh winced, in cowardice, from such a death.
+ - No day is safe from news of you.
+ - Let me not be weak and tell others how bleeding I am internally; how day by day it drips, and gathers, and congeals.
+ - You are the one. Solid the spaces lean on, envious. You are the baby in the barn.
+ - Nothing stinks like a pile of unpublished writing.
+ - I am too pure for you or anyone.
+ - Apparently, the most difficult feat for a Cambridge male is to accept a woman not merely as feeling, not merely as thinking, but as managing a complex, vital interweaving of both.
+ - But when it came right down to it, the skin of my wrist looked so white and defenseless that I couldn’t do it.
+ - For me, poetry is an evasion of the real job of writing prose.
+ - Once one has seen God, what is the remedy?
+ - I tried to speak in a cool, calm way, but the zombie rose up in my throat and choked me off.
+ - If I rest, if I think inward, I go mad.
+ - The trouble about jumping was that if you didn’t pick the right number of stories, you might still be alive when you hit bottom.
+ - Bright beads of red are rising through the ink, Hearts-blood bubbles smearing out into the black stream.
+ - That is salvation. To give of love inside. To keep love of life, no matter what, and give to others. Generously.
+ - I felt dull and flat and full of shattered visions.
+ - Love set you going like a fat gold watch. The midwife slapped your footsoles, and your bald cry Took its place among the elements.
+ - I hate handing over money to people for doing what I could just as easily do myself, it makes me nervous.
+ - Compared with me, a tree is immortal.
+ - I thought how strange it had never occurred to me before that I was only purely happy until I was nine years old.
+ - We must be moving, working, making dreams to run toward; the poverty of life without dreams is too horrible to imagine.
+ - The box is only temporary.
+ - I laid my face to the smooth face of the marble and howled my loss into the cold salt rain.
+ - I must learn more about these people – try to understand them, put myself in their place. No, instead I am so busy keeping my head above water that I scarcely know who I am, much less who anyone else is.
+ - But when it came right down to it, the skin of my wrist looked so white and defensless that I couldn’t do it. It was as if what I wanted to kill wasn’t in that skin or the thin blue pulse that jumped under my thumb, but somewhere else, deeper, more secret, and a whole lot harder to get.
+ - Love is the bone and sinew of my curse.
+ - There is something demoralizing about watching two people get more and more crazy about each other, especially when you are the only extra person in the room.
+ - What a man wants is a mate and what a woman wants is infinite security.
+ - I think writers are the most narcissistic people. Well, I musn’t say this, I like many of them, a great many of my friends are writers.
+ - Worse even than your maddening song, your silence.
+ - Although, I admit, I desire, Occasionally, some backtalk From the mute sky, I can’t honestly complain: A certain minor light may still Lean incandescent Out of kitchen table or chair As if a celestial burning took Possession of the most obtuse objects now and then –.
+ - I hadn’t, at the last moment, felt like washing off the two diagonal lines of dried blood that marked my cheeks. They seemed touching, and rather spectacular, and I thought I would carry them around with me, like the relic of a dead lover, till they wore off of their own accord.
+ - Some pale, hueless flicker of sensitivity is in me. God, must I lose it in cooking scrambled eggs for a man...
+ - Hour by hour, day by day, life becomes possible.
+ - She stared at her reflection in the glossed shop windows as if to make sure, moment by moment, that she continued to exist.
+ - You smile. No, it is not fatal.
+ - I had removed my patent leather shoes after a while, for they foundered badly in the sand. It pleased me to think they would be perched there on the silver log, pointing out to sea, like a sort of soul-compass, after I was dead.
+ - What I want back is what I was Before the bed, before the knife, Before the brooch-pin and the salve Fixed me in this parenthesis; Horses fluent in the wind, A place, a time gone out of mind.
+ - As I lay on my back in bed staring up at the blank, white ceiling the stillness seemed to grow bigger and bigger until I felt my eardrums would burst with it.
+ - I sank back in the gray, plush seat and closed my eyes. The air of the bell jar wadded round me and I couldn’t stir.
+ - Pretty soon, the only doubt in my mind was the precise time and method of committing suicide. The only alternative I could see was an eternity of hell for the rest of my life in a mental hospital, and I was going to use my last ounce of free choice and choose a quick clean ending.
+ - Life was not to be sitting in hot amorphic leisure in my backyard idly writing or not writing, as the spirit moved me. It was, instead, running madly, in a crowded schedule, in a squirrel cage of busy people. Working, living, dancing, dreaming, talking, kissing- singing, laughing, learning.
+ - I think I am worthwhile just because I have optical nerves and can try to put down what they perceive. What a fool!
+ - The one man in the room who was as big as his poems, huge, with hulk and dynamic chunks of words.
+ - I need more than anything right now what is, of course, most impossible, someone to love me, to be with me at night when I wake up in shuddering horror and fear of the cement tunnels leading down to the shock room, to comfort me with an assurance that no psychiatrist can quite manage to convey.
+ - But life is long. And it is the long run that balances the short flare of interest and passion.
+ - I have the one person I could ever love in this world. Now I must work to be a person worthy of that.
+ - To learn and think; to think and live; to live and learn: this always, with new insight, new understanding, and new love.
+ - The woman is perfected. Her dead Body wears the smile of accomplishment.
+ - The only reason I remembered this play was because it had a mad person in it, and everything I had ever read about mad people stuck in my mind, while everything else flew out.
+ - So I kiss him, and there is the great dark sea ahead...
+ - Yes, there is joy, fulfillment and companionship but the loneliness of the soul in its appalling self-consciousness is horrible and overpowering.
+ - The only thing I could think of was turkey neck and turkey gizzards and I felt very depressed.
+ - All the heat and fear had purged itself. I felt surprisingly at peace. The bell jar hung suspended a few feet above my head. I was open to the circulating air.
+ - Is anyone anywhere happy?
+ - When I fell out of the light, I entered The stomach of indifference, the wordless cupboard.
+ - O heart, such disorganization!
+ - We stayed at home to write, to consolidate our outstretched selves.
+ - I need the reality of other people, work, to fulfill myself. Must never become a mere mother and housewife.
+ - I may have made a straight A in physics, but I was panic-struck. Physics made me sick the whole time I learned it.
+ - I am disabused of all faith, and see too clearly.
+ - I felt the mask crumple, the great poisonous store of corrosive ashes begin to spew out of my mouth.
+ - I collected men with interesting names. I already knew a Socrates. He was tall and ugly and intellectual and the son of some big Greek movie producer in Hollywood, but also a Catholic, which ruined it for both of us.
+ - A million years of evolution, Eric said bitterly, and what are we? Animals.
+ - I can’t think logically about who I am or where I am going. I have been very ecstatic, horribly depressed, shocked, elated, enlightened, and enervated.
+ - I smile, now, thinking: we all like to think we are important enough to need psychiatrists.
+ - I began to see why woman-haters could make such fools of women. Woman-haters were like gods: invulnerable and chock full of power. They descended, and then they disappeared. You could never catch one.
+ - Ash, ash – – You poke and stir. Flesh, bone, there is nothing there – – A cake of soap, A wedding ring, A gold filling. Herr God, Herr Lucifer Beware Beware. Out of the ash I rise with my red hair And I eat men like air.
+ - A black-sharded lady keeps me in a parrot cage.
+ - Miracles occur, If you dare to call those spasmodic Tricks of radiance miracles. The wait’s begun again, The long wait for the angel, For that rare, random descent.
+ - Dancing is the normal prelude to intercourse.
+ - Tomorrow is another day toward death.
+ - The lawn was white with doctors.
+ - Everything in life is writable...
+ - I wanted to do everything once and for all and be through with it.
+ - And what is happy? It is a going always on. There is something better to be done than I have done, and spurred by the fair delusion of progress, I will seek to progress, to whip myself on, to more and more- to learning. Always.
+ - I started adding up all the things I couldn’t do.
+ - What I didn’t say was that each time I picked up a German dictionary or a German book, the very sight of those dense, black, barbed-wire letters made my mind shut like a clam.
+ - For the few little successes I may seem to have, there are acres of misgivings and self-doubt.
+ - I felt like a racehorse in a world without racetracks or a champion college footballer suddenly confronted by Wall Street and a business suit, his days of glory shrunk to a little gold cup on his mantel with a date engraved on it like the date on a tombstone.
+ - I’m doped and thick from my last sleeping pill.
+ - I had been alone more than I could have been had I gone by myself.
+ - I knew chemistry would be worse, because I’d seen a big card of the ninety-odd elements hung up in the chemistry lab, and all the perfectly good words like gold and silver and cobalt and aluminum were shortened to ugly abbreviations with different decimal numbers after them.
+ - The future is what matters – because one never reaches it, but always stays in the present – like the White Queen who had to run like the wind to remain in the same spot.
+ - Sunday-the doctor’s paradise! Doctors at country clubs, doctors at the seaside, doctors with mistresses, doctors with wives, doctors in church, doctors in yachts, doctors everywhere resolutely being people, not doctors.
+ - What is so real as the cry of a child? A rabbit’s cry may be wilder But it has no soul.
+ - I said: I must remember this, being small.
+ - I do not know who I am, where I am going – and I am the one who has to decide the answers to these hideous questions.
+ - I was my own woman. The next step was to find the proper sort of man.
+ - With that strange knowing that comes over me, like a clairvoyance, I know that I am sure of myself and my enormous and alarmingly timeless love for you; which will always be.
+ - God, is this all it is, the ricocheting down the corridor of laughter and tears? Of self-worship and self-loathing? Of glory and disgust?
+ - They would grow old. They would forget me.
+ - There I went again, building up a glamorous picture of a man who would love me passionately the minute he met me, and all out of a few prosy nothings.
+ - Living with him is like being told a perpetual story: his mind is the biggest, most imaginative I have ever met. I could live in its growing countries forever.
+ - It seemed silly to wash one day when I would only have to wash again the next. It made me tired just to think of it.
+ - I suppose I’ll always be over-vulnerable, slightly paranoid.
+ - The artist’s life nourishes itself on the particular, the concrete.
+ - I had decided I would put off the novel until I had gone to Europe and had a lover.
+ - I hate Technicolor. Everybody in a Technicolor movie seems to feel obliged to wear a lurid costume in each new scene and to stand around like a clotheshorse with a lot of very green trees or very yellow wheat or very blue ocean rolling away for miles and miles in every direction.
+ - I never feel so much myself as when I’m in a hot bath.
+ - Feel oddly barren. My sickness is when words draw in their horns and the physical world refuses to be ordered, recreated, arranged and selected. I am a victim of it then, not a master.
+ - I had hoped, at my departure, I would feel sure and knowledgeable about everything that lay ahead – after all, I had been “analyzed.” Instead, all I could see were question marks.
+ - I am afraid of getting married. Spare me from cooking three meals a dayspare me from the relentless cage of routine and rote.
+ - I felt overstuffed and dull and disappointed, the way I always do the day after Christmas, as if whatever it was the pine boughs and the candles and the silver and gilt-ribboned presents and the birch-log fires and the Christmas turkey and the carols at the piano promised never came to pass.
+ - The moon is no door. It is a face in its own right, White as a knuckle and terribly upset. It drags the sea after it like a dark crime; it is quiet With the O-gape of complete despair. I live here.
+ - It never occurred to me to say no.
+ - I want to be silverly beautiful.
+ - I was supposed to be having the time of my life.
+ - In spite of everything, I still have my good old sense of humor.
+ - O love, how did you get here? – Nick and the Candlestick.
+ - But writing poems and letters doesn’t seem to do much good.
+ - I cut you out because I couldn’t stand being a passing fancy.
+ - I am sending back the key that let me into bluebeard’s study; because he would make love to me I am sending back the key; in his eye’s darkroom I can see my X-rayed heart, dissected body: I am sending back the key that let me into bluebeard s study.
+ - I have done, this year, what I said I would: overcome my fear of facing a blank page day after day, acknowledging myself, in my deepest emotions, a writer, come what may.
+ - I feel, am mad as any writer must in one way be; why not make it real? I am too close to the bourgeois society of suburbia: too close to people I know I must sever my self from them, or be a part of their world: this half and half compromise is intolerable.
+ - I’ve got to have something. I want to stop it all, the whole monumental grotesque joke, before it’s too late. But writing poems and letters doesn’t seem to do much good.
+ - Talking about my fears to others feeds it.
+ - If I was going to fall, I would hang on to my small comforts, at least, for as long as I possibly could.
+ - I think I may well be a Jew.
+ - Antoine St. Exupery once mourned the loss of a man and the secret treasures that he held inside him. I loved Exupery; I will read him again, and he will talk to me, not being dead, or gone. Is that life after death – mind living on paper and flesh living in offspring? Maybe. I do not know.
+ - I like you, but not too much. I don’t want to like anybody too much.
+ - It was sometime in October; she had long ago lost track of all the days and it really didn’t matter because one was like another and there were no nights to separate them because she never slept any more.
+ - I felt overstuffed and dull and disappointed, the way I always do the day after Christmas.
+ - Secretly, in studies and attics and schoolrooms all over America, people must be writing.
+ - I used to pray to recover you.
+ - As a poet I would say everything should be able to come into a poem but I can’t put toothbrushes in a poem. I really can’t.
+ - How many different deaths I can die?
+ - I am sure there are things that can’t be cured by a good bath but I can’t think of one.
+ - Oh what a poet I will flay myself into.
+ - I am inhabited by a cry. Nightly it flaps out Looking, with its hooks, for something to love.
+ - The one thing I was good at was winning scholarships and prizes, and that era was coming to an end.
+ - England offers new comforts. I could write a novel there.
+ - But when I took up my pen, my hand made big, jerky letters like those of a child, and the lines sloped down the page from left to right horizontally, as if they were loops of string lying on the paper, and someone had come along and blown them askew.
+ - I love life. But it is hard and I have so much, so very much to learn.
+ - I felt the first man I slept with must be intelligent, so I could respect him.
+ - One thing, I try to be honest. And what is revealed is often rather hideously unflattering.
+ - Poetry, I feel, is a tyrannical discipline. You’ve got to go so far, so fast, in such a small space, that you’ve got to burn away all the peripherals.
+ - What is so real as the cry of a child?
+ - I get into a rut, unable to yank my mind out of it.
+ - And you grit your teeth, despising yourself for your tremulous sensitivity, and wondering how human beings can suffer their individualities to be mercilessly crushed under a machinelike dictatorship, be it of industry, state or organization, all their lives long.
+ - Only I wasn’t steering anything, not even myself.
+ - A psychiatrist is the god of our age. But they cost money.
+ - I knew you’d decide to be all right again.
+ - Perhaps, perhaps this would be the one to pull me out of my plunge.
+ - I decided I would put off the novel until I had gone to Europe and had a lover, and that I would never learn a word of shorthand. If I never learned shorthand I would never have to use it.
+ - Happy! That is indefinable as far as states of being go.
+ - To look at her, you might not guess that inside she is laughing and crying, at her own stupidities and luckiness, and at the strange enigmatic ways of the world which she will spend lifetime trying to learn and understand.
+ - The constant struggle in mature life, I think, is to accept the necessity of tragedy and conflict, and not to try to escape to some falsely simple solution which does not include these more somber complexities.
+ - I suppose if I gave myself the chance I could be an alcoholic.
+ - It won’t happen yet, Ellen mused, mashing cooked carrots for Jill’s lunch. Breakups seldom do. It will unfold slowly, one little tell-tale symptom after another like some awful, hellish flower.
+ - A terrible depression yesterday. Visions of my life petering out into a kind of soft-brained stupor from lack of use.
+ - I have taken a pill to kill The thin Papery feeling.
+ - How can I tell Bob that my happiness streams from having wrenched a piece out of my life, a piece of hurt and beauty, and transformed it to typewritten words on paper? How can he know I am justifying my life, my keen emotions, my feeling, by turning it into print?
+ - I wondered what I thought I was burying.
+ - The journey over the bridge had unnerved me. The river water passed me by like an untouched drink. I suspected that even if my mother and brother had not been there I would have made no move to jump.
+ - I do not love; I do not love anybody except myself. That is a rather shocking thing to admit.
+ - I want to be able to sleep in an open field, to travel west, to walk freely at night.
+ - If there’s anything I look down on, it’s a man in a blue outfit.
+ - The reason I haven’t been writing in this book for so long is partly that I haven’t had one decent coherent thought to put down.
+ - There ought, I thought, to be a ritual for being born twice – patched, retreaded and approved for the road.
+ - Do I like to write? Why? About what? Will I give up and say, “Living and feeding a man’s insatiable guts and begetting children occupies my whole life. Don’t have time to write”?
+ - Why can’t I try on different lives, like dresses, to see which fits best and is more becoming?
+ - Perhaps you considered yourself an oracle, Mouthpiece of the dead, or of some god or other. Thirty years now I have labored To dredge the silt from your throat. I am none the wiser.
+ - My wanting to write books annihilates the original root impulse that would have me bravely and blunderingly working on them.
+ - I do not know who I am tonight.
+ - The door of the novel, like the door of the poem, also shuts. But not so fast, nor with such manic, unanswerable finality.
+ - You’ve only got so long to live.
+ - She looks like a woman who has found it ridiculous to commit herself to a single emotional stance in anything, but must always ride high heavy irony.
+ - I could never be a complete scholar or a complete housewife ora completewriter: Imustcombinea little of all, and thereby be imperfect in all.
+ - Why am I obsessed with the idea I can justify myself by getting manuscripts published? Is it an escape-an excuse for any social failure-so I can say “No, I don’t go out for many extracurricular activities, but I spend a lot of time writing.”
+ - And I identify too closely with my reading, with my writing.
+ - God has to remind us this isn’t heaven by a long shot, so he increases the radios and lethal flies.
+ - God, who am I?
+ - Every day is precious and I feel infinitely sad at this time melting away from me.
+ - I have been holding a dialogue with myself and girding myself to stand fast without running.
+ - I have to live my life, and it is the only one I’ll ever have.
+ - I am accused. I dream of massacres. I am a garden of black and red agonies. I drink them, Hating myself, hating and fearing. And now the world conceives Its end and runs toward it, arms held out in love.
+ - It is a feeling that no matter what the ideas or conduct of others, there is a unique rightness and beauty to life which can be shared in openness, in wind and sunlight, with a fellow human being who believes in the same basic principles.
+ - I didn’t know what I was doing in New York.
+ - I like people, but to learn about one individual always appeals to me more than anything.
+ - If only a group of people were more important to me than the idea of a Novel, I might begin a novel.
+ - Death may whiten in sun or out of it.
+
+454 quotes

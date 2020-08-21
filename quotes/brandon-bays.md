@@ -1,0 +1,24 @@
+ - Honour, cherish and nourish yourself.
+ - Know that whatever is happening in your life right now, it’s there for a reason. Just accept the things the way they are. Just relax and let go of all the mental constructs that your mind is creating. Acceptance leads to wholesome right action.
+ - No matter how deep the issue is and no matter how long you have struggled with it, the possibility exists for you to become absolutely free, whole, and healed.
+ - Once you learn what the disease or physical block has to teach you and finally let go of the emotional issues stored in the cells, then, and only then, can real healing begin on all levels – emotional, spiritual and physical.
+ - Everyone longs to be free. Freedom is our essential nature, so my ultimate prayer is that the world is set free to experience the truth and the beauty of our own being.
+ - You have to love with an open hand. The heart is like a bird and you have to let this bird fly freely, you cannot possess it.
+ - Forgiveness begins the healing process – when you forgive God, life, yourself and other people – magic happens within. That’s why every religion talks about forgiveness.
+ - Know whatever comes to you unexpected to be a gift from God, which will surely serve you if you use it to the fullest. It is only that which you strive for out of your own imagination, that gives you trouble.
+ - Recognize how truly blessed you are. Take time to count your blessings and write them down. To make your dreams come true you must already be soaking in the very presence you wish to create.
+ - If emotional issues remain unaddressed over long periods of time, sometimes they can manifest as physical blocks or disease.
+ - Meditation takes place when you bring all your awareness to this moment.
+ - Deep inside all of us a huge potential beckons, waiting to open us to the joy, genius, freedom and Love within.
+ - You are that which you are seeking.
+ - True courage is the willingness to fully experience whatever you are feeling at the moment. You can attempt to run from your emotions, but eventually they will catch up with you. They will chase you, haunt you, until finally you give up the chase.
+ - The song of your soul is longing to be sung. Let your own essence express itself freely.
+ - True forgiveness is one of the most healing releasing, and freeing gifts we give to ourselves.
+ - I do believe that, in time, doctors – both alternative and orthodox – will begin using whatever is the highest best treatment for their patients, regardless of the modality.
+ - Have the willingness to go into the roots of your worst fear until you feel the essence of what you are, your pure potential, the foundation of what you really are.
+ - Relaxing, embracing, surrendering, trusting – these are the only tools of a lover of truth. So, turn from warrior into a lover.
+ - I ended up spending years on a spiritual quest – diving into the world’s great spiritual traditions.
+ - After about ten years of study I ended up feeling so full and blessed that I wanted to give some of what was given to me back to humanity.
+ - I’d overlooked the obvious because my focus had always been elsewhere! All along, this that I had been seeking was already here.
+
+22 quotes

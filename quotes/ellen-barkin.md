@@ -1,0 +1,33 @@
+ - Acting is a matter of giving away secrets.
+ - You can’t go back again, even if you wanted to. But you can own your own life, mistakes and all.
+ - I am to a fault an introspective person. But I am not a reflective person – except for a big mistake, and then I really think about it.
+ - No more bare bodies in film scenes for me. For my children’s sake, I must stop. The other kids at school keep throwing it up to my children, and they are not kind.
+ - You’ve got a movie where the pro-choice family gives their daughter no choice. The pro-life family murders. What seems to be the good mother, the kind of hippie painter, sweet and cute mother has no love for her daughter really.
+ - I’d never say I’ll never have a facelift, but I’m way too scared of looking like a different person. I have no philosophical or political position on plastic surgery; I just don’t want to look crazy. And I don’t like not being able to tell how old someone is: It’s creepy.
+ - I eat cheese and salami and a lot of fried chicken. I eat a big bag of oatmeal-raisin cookies every night and I don’t gain weight. I still look OK as long as I’m dressed.
+ - When a 12-year-old, a 13-year-old, so desperately wants a baby what she’s looking for is the kind of unconditional love a child gives a mother and a mother gives a child.
+ - There’s no slow build anymore where you get a little part, then you get a little better part, then a better part, until one day your agent calls you us and says, ‘guess what, you’re a movie star,’ and you say, ‘Thank you!’
+ - I have no problem being 53. Why would I want to be 35 again? I want to discover who I am in my 50s. And if I tried too hard to look younger, it would seem that I was uncomfortable with who I am, wouldn’t it?
+ - A successful marriage isn’t necessarily one that lasts until you’re dead.
+ - My husband thinks he’s compromising if we have one cook instead of three.
+ - My first movie was ‘Diner.’ My second movie was ‘Tender Mercies.’ I did really good work.
+ - The more powerful you become, some people especially don’t like it that you’re a woman. I stick up for myself.
+ - When I played Leonardo DiCaprio’s mother, they liked that Leo had very hooded eyes and a rounded nose with a ball. They said, They look like they could be mother and son.
+ - The way Hollywood portrays mothers – you’re either all good and saint-like, or you’re all bad. And I think the real honesty of motherhood is not given a voice in movies. I miss that as an audience member.
+ - I’m a little more extreme than a homebody. Unless there’s some event I really have to go to, I don’t like to leave my house.
+ - It’s no stretch to picture me standing next to Al Pacino or Robert De Niro. Those are ethnic New York men. I’m an ethnic New York girl. Everybody has their limitations. I mean, I should never be cast as Queen Elizabeth.
+ - I don’t want to be a mentor in my bedroom...
+ - Gabriel Byrne is an extraordinary human being. We have two extraordinary kids and we work at it. We were always friends. He stuck by me through very hard times, and I hope he’d say the same about me.
+ - I was trained by Method acting teachers and we were taught that aside from whatever gift you may or may not have or the level of that gift, that you were obliged to know how to build a table. It’s a craft. It’s like being a ballerina or a violinist.
+ - Skinniness is not your friend when you’re over 40. I’d like to gain a good 10 pounds, but I did always have a fat, round face that plagued me when I was young. When I started to make movies, I couldn’t look at myself.
+ - I have skinny genes. My mother weighs 90 pounds.
+ - I like being married. I like taking care of people, having someone to make dinner for.
+ - But one of the hardest things for me to do was to access anger. I could do it on stage. But when I did it on film it was hard for me. That probably has to do with the intimacy of film. And my own personal issues with expressing anger. So I had to learn how to do that.
+ - I wish I had a little more ambition. But then what would I do? Turn down more roles with more vehemence? Me no likey worky.
+ - I guess if you’re lucky enough not to have to pay your rent, then you or I take much more seriously the kind of work that I do, what it takes for me to leave two teenagers of my own and six stepchildren and a husband and four grandchildren.
+ - I studied acting for 10 years before I went for an audition. I studied with Lee Strasberg and Actors Studio teachers, and went to the High School of Performing Arts.
+ - People tend to remember my performances, not me.
+ - There is a certain androgyny to my appeal.
+ - My nickname was Skinabo – skin and bones.
+
+31 quotes

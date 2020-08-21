@@ -1,0 +1,120 @@
+ - Whatever happens tomorrow, we had today; and I’ll always remember it.
+ - This is where it all begins. Everything starts here, today.
+ - Time to tidy up your life. Time to start again.
+ - Welcome to the graveyard of ambition.
+ - Dexter, I love you so much. So, so much, and I probably always will. I just don’t like you anymore. I’m sorry.
+ - Who do you think you are, Jane Eyre? Grow up. Be sensible. Don’t get carried away.
+ - You’re gorgeous, you old hag, and if I could give you just one gift ever for the rest of your life it would be this. Confidence. It would be the gift of confidence. Either that or a scented candle.
+ - Don’t keep fighting battles that are already lost.
+ - Cherish your friends, stay true to your principles, live passionately and fully and well. Experience new things. Love and be loved, if you ever get the chance.
+ - Today. This bright new day that awaits us.
+ - Screenwriting is always about what people say or do, whereas good writing is about a thought process or an abstract image or an internal monologue, none of which works on screen.
+ - Find the thing you love, and do it with all your heart, to the absolute best of your ability, no matter what people say.
+ - Of course you should study whatever you want. The written appreciation and understanding of literature, or any kind of artistic endeavour, is absolutely central to a decent society. Why d’you think books are the first things that the fascists burn?
+ - Be good. Do something good.
+ - Envy was just the tax you paid on success.
+ - These days grief seems like walking on a frozen river; most of the time he feels safe enough, but there is always that danger that he will plunge through.
+ - These days the nights and mornings have a tendency to bleed into one another.
+ - Why can’t you just love me? Why can’t you just be in love with me?
+ - I’m not the consolation prize, Dex. I’m not something you resort to. I happen to think I’m worth more than that.
+ - She made you decent, and in return you made her so happy.
+ - And then some days you wake up and everything’s perfect.
+ - If you’re my friend I should be able to talk to you but I can’t, and if I can’t talk to you, well, what is the point of you? Of us?
+ - You can’t throw away years of your life because it makes a funny anecdote.
+ - I am not up to this. I am not capable. I thought I would be, but I’m not. Some part of me is missing, and I cannot do this.
+ - And of course there is always joy in witnessing the joy of others.
+ - I love him, she thought. I’m just not in love with him and also I don’t love him. I’ve tried, I’ve strained to love him but I can’t. I am building a life with a man I don’t love, and I don’t know what to do about it.
+ - I applied for the University of Life. Didn’t get the grades.
+ - But how can you not like music? That’s the same as not liking food! Or sex!
+ - Oh you know me. I have no emotions. I’m a robot. Or a nun. A robot nun.
+ - Better by far to be good and courageous and bold and to make difference. Not change the world exactly, but the bit around you.
+ - He wanted to live life in such a way that if a photograph were taken at random, it would be a cool photograph.
+ - She wondered if she was doomed to be one of those people who spend their lives trying things.
+ - You can live your whole life not realizing that what you’re looking for is right in front of you.
+ - If you have to keep a secret it’s because you shouldn’t be doing it in the first place.
+ - Call me sentimental, but there’s no-one in the world that I’d like to see get dysentery more than you.
+ - We’re not ourselves, are we? I’m certainly not myself, not anymore. And you’re not either. You don’t seem yourself. Not as I remember you.
+ - People change, no use getting sentimental about it. Move on, find someone else.
+ - Most of the books and films I love walk a knife edge between romance and cynicism, and I wanted ‘One Day’ to stay on that line. I wanted it to be moving, but without being manipulative.
+ - Imagine staying awake all night not because you’re worried about the future but because it’s FUN.
+ - At some point you’ll have to get serious about life.
+ - I would never complain about ‘One Day’ taking off, but it made me painfully self-conscious for a long time.
+ - In eight years not a day has gone by when she hasn’t thought of him. She misses him and she wants him back. I want my best friend back, she thinks, because without him nothing is good and nothing is right.
+ - I think I became a writer because I used to write letters to my friends, and I used to love writing them. I loved the idea that you can put marks on a page and send it off, and two days later, someone laughs somewhere else in the world.
+ - Their friendship was like a wilted bunch of flowers that she insisted on topping up with water. Why not let it die instead?
+ - You’ve got to stop letting women slip drugs into your mouth, Dex, it’s unhygienic. And dangerous. One day it’ll be a cyanide capsule.
+ - And you stupid, stupid woman, stupid for caring, stupid for thinking that he cared.
+ - I identified with Pip from ‘Great Expectations,’ especially when I was younger; I had the same kind of gaucheness and uncertainty.
+ - The problem with all these fiercely individualistic girls was that they were all exactly the same.
+ - She used to pride herself on her refusal to see two sides of an argument, but increasingly she accepts that issues are more ambiguous and complicated than she once thought.
+ - Once you decide not to worry about that stuff anymore, dating and relationships and love and all that, it’s like you’re free to get on with real life.
+ - Cuddling was for great aunts and teddy bears. Cuddling gave him cramp.
+ - I think probably I’m quite sentimental; I like big emotional stories, I like being moved by things, but I think I’m very embarrassed by sentiment. I’m very embarrassed by corniness.
+ - But at the best of times she feels like a character in a Muriel Spark novel – independent, bookish, sharp-minded, secretly romantic.
+ - The attraction of a life devoted to sensation, pleasure and self would probably wear thin one day, but there was still plenty of time for that yet.
+ - The true writer, the born writer, will scribble words on scraps of litter, the back of a bus tickets, on the wall of a cell.
+ - Fear and anxiety are great motivators for me.
+ - Salmon. Salmon, salmon, salmon, salmon. I eat so much salmon at these weddings, twice a year I get this urge to swim upstream.
+ - She made a firm resolution, one of the resolutions she was making almost daily these days. No more sleepovers, no more writing poetry, no more wasting time. Time to tidy up your life. Time to start again.
+ - As new dawns go, this one is depressingly like the old dawn.
+ - Maybe we’ve grown out of each other.
+ - I’m trying to be inspiring! I’m trying to lift your grubby soul for the great adventure that lies ahead of you!
+ - Sometimes, when it is going badly, she wonders if what she believes to be a love of the written word is really just a fetish for stationary.
+ - She shouldn’t speak her thoughts; nothing good ever came of speaking your thoughts.
+ - Failure and unhappiness is easier because you can make a joke out of it.
+ - I read a lot of F. Scott Fitzgerald. I love ‘Tender is the Night,’ and its atmosphere of doomed romance. He was one of the greatest prose stylists, with a wonderfully clear but lyrical quality.
+ - As the possibility of a relationship had faded, Emma had endeavored to harden herself to Dexter’s indifference and these days a remark like this caused no more pain than, say, a tennis ball thrown sharply at the back of her head.
+ - This isn’t a letter, it’s a gift.
+ - At university, I used to write silly little sketches and monologues, but never fiction.
+ - As a novelist, I’m incredibly lucky to make a living, but that doesn’t mean that I don’t lie awake at four o’clock in the morning, worrying.
+ - It’s the face itself that I love, not that face at twenty-eight or thirty-four or forty-three. It’s that face.
+ - Read a book at the right age and it will stay with you for life.
+ - No matter how predictable, banal and listless the rest of my life might be, you can guarantee that there’ll always be something interesting going on with my skin.
+ - In the future, I’ll be braver, she told herself. In the future, I will always speak my mind, eloquently, passionately.
+ - There’s no shortage of orphans in 19th-century literature, but it’s hard to find a single happy, communicative, functional parental relationship in the whole of ‘Great Expectations,’ even among the minor characters.
+ - I love Billy Wilder, and I love the way that his films can be very touching and very moving and very romantic, and at the same time there’s always a little cynical undertone, there’s always something that undercuts things.
+ - I had always been led to believe that ageing was a slow and gradual process, the creep of a glacier. Now I realise that it happens in a rush, like snow falling off a roof.
+ - As soon as she’d met him at the arrivals gate on his return from Thailand, lithe and brown and shaven-headed, she knew that there was no chance of a relationship between them. Too much had happened to him, too little had happened to her.
+ - You start out wanting to change the world through language, and end up thinking it’s enough to tell a few good jokes.
+ - An adaptation leads the cinema-goer to the original to find out what they’re missing and if they already know the book, it can still illuminate a theme, a character, an idea.
+ - She glanced at the other diners, all of them going into their act, and thought is this what it all boils down to? Romantic love, is this all it is, a talent show?
+ - To have had fame, even very minor fame, and to have lost it, got older and maybe put on a little weight is a kind of living death.
+ - Everything was fine, and she had the rare, new sensation of being exactly where she wanted to be.
+ - I think you actually get a kick out of being disappointed and under-achieving, because it’s easier, isn’t it? Failure and unhappiness is easier because you can make a joke out of it.
+ - This might sound really foolish, but when I came to Edinburgh in 1988 I had spent nearly all my life living south of Bristol, and I was just amazed that a city like Edinburgh was actually in the British isles.
+ - David Holdaway was my stage name. I was an actor for about eight years in the ’90s. I had to change my name because there was another David Nicholls, and I thought if I changed it to my mother’s name, she’d be touched.
+ - I really was a terrible actor. I did it for years in my twenties because it was like being at university again.
+ - All young people worry about things, it’s a natural and inevitable part of growing up, and at the age of sixteen my greatest anxiety in life was that I’d never again achieve anything as good, or pure, or noble, or true, as my O-level results.
+ - You must do what you enjoy.
+ - Well, it’s so hard for books to take off. You give years of your life to something that probably won’t happen, so when it does, it feels a little unjust.
+ - And it was at moments like this that she had to remind herself that she was in love with him, or had once been in love with him, a long time ago.
+ - The fact was I loved my wife to a degree that I found impossible to express, and so rarely did.
+ - When I was an actor, I worked with lots of men who had a bit of success early on, who were very good looking, who suddenly made a bit of money and who felt no embarrassment – and nor should they have done – about having a good time.
+ - What must that be like? To be admired before you’ve even said a word, to be desired two or three hundred times a day by people who have absolutely no idea what you’re like?
+ - She had reached a turning point. She no longer believed that a situation could be made better by writing a poem about it.
+ - The future rose up ahead of her, a succession of empty days, each more daunting and unknowable than the one before her.
+ - Afterward, there was some debate as to whether we’d actually “done it properly,” which gives you some idea of the awesome skill and artful dexterity of my lovemaking technique.
+ - Were helping build capability and capacity in the new Iraqi Navy.
+ - She realises that if she is to save the show she is going to have to improvise a rousing speech, one of the many Henry V moments that make up her working life.
+ - I think reality is over-rated.
+ - If there’s anything I’m keen to get better at in my writing, then it’s the writing of prose as opposed to the writing of dialogue.
+ - I still find it absurdly difficult to concentrate on a novel if there’s a phone or computer to hand; I have taken to locking them outside the room like noisy pets.
+ - I suppose the important thing is to make some sort of difference.
+ - I’ve only ever been recognised in the street once. In Sweden, strangely.
+ - When you’re reading a book, you’re always looking for the natural place to stop. With a movie, you can’t really have that sense of it coming momentarily to a halt; there’s pressure to keep the momentum up.
+ - He could feel her laughter against his chest, and at that moment he thought that there was no better feeling than making Emma Morley laugh.
+ - The city had defeated her, just like they said it would. Like some overcrowded party, no one had noticed her arrival, and would notice if she left.
+ - A joke was not a single-use item but something you brought out again and again until it fell apart in your hand like a cheap umbrella.
+ - He’s a better person when she’s around, and isn’t that what friends are for, to raise you up and keep you at your best?
+ - I usually write on a computer – unless I get stuck, at which point I switch to write by hand. I think that’s common among writers if they get cornered on something.
+ - A moment passed, perhaps half a second when their faces said what they felt, and then Emma was smiling, laughing, her arms around his neck.
+ - I work three days at home, and two days in the British Library or the London Library, just to get out of the house and hide from the children.
+ - No, friends were like clothes: fine while they lasted but eventually they wore thin or you grew out of them.
+ - If she does have a failing, and it’s obviously only a tiny one, it’s that she doesn’t seem particularly curious about other people, or me, anyway.
+ - Well, I don’t think Hollywood’s a dirty word at all, I love a lot of Hollywood films.
+ - Letters, like compilation tapes, were really vehicles for unexpressed emotions and she was clearly putting far too much time and energy into them.
+ - I’ve been a compulsive reader for as long as I can remember.
+ - She was reaching the limits of how much its possible to change a man.
+ - He has found himself more and more reliant on her at exactly the point that she has become less available to him.
+
+118 quotes

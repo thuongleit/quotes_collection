@@ -1,0 +1,265 @@
+ - I wish I could tell you it gets better. It doesn’t get better. YOU get better.
+ - Life goes by fast. Enjoy it. Calm down. It’s all funny.
+ - Any form of complacency is the kiss of death for any professional.
+ - If you can’t make fun of yourself, you don’t have any right to make fun of others.
+ - The first rule of survival is: Make your own rules. The hell anyone thinks about the way you’re acting; listen only to yourself.
+ - My body is a temple, and my temple needs redecorating.
+ - Money can’t buy you happiness but it can pay for the plastic surgery.
+ - Don’t worry about the money. Love the process.
+ - If God wanted us to bend over he’d put diamonds on the floor.
+ - I’m in nobody’s circle, I’ve always been an outsider.
+ - When you can laugh at yourself no one can ever make a fool of you.
+ - Life is a movie, and you’re the star. Give it a happy ending.
+ - Life is very tough. If you don’t laugh, it’s tough.
+ - Looking 50 is great, if you’re 60.
+ - A German sense of humor is an oxymoron.
+ - Don’t cook. Don’t clean. No man will ever make love to a woman because she waxed the linoleum.
+ - You know you’re getting old when work is a lot less fun and fun is a lot more work.
+ - Comedy is truth. We should not apologize for it.
+ - I hate reality shows that are not reality.
+ - One of the most rebellious things a woman can do is allow people to think she’s mean.
+ - I enjoy life when things are happening. I don’t care if it’s good things or bad things. That means you’re alive.
+ - She’s so fat, she’s my two best friends.
+ - Women should look good. Work on yourselves. Education? I spit on education. No man is ever going to put his hand up your dress looking for a library card.
+ - My husband wanted to be cremated. I told him I’d scatter his ashes at Neiman Marcus – that way, I’d visit him every day.
+ - A Mafia guy in Vegas gave me this advice: ‘Run your own race, put on your blinders.’
+ - In life the only thing that you can expect is the unexpected; the only surprise is a day that has none.
+ - Anger is a symptom, a way of cloaking and expressing feelings too awful to experience directly – hurt, bitterness, grief and, most of all, fear.
+ - Something terrific will come no matter how dark the present.
+ - I don’t mind aging, I just don’t want to be a day older.
+ - My mother could make anybody feel guilty – she used to get letters of apology from people she didn’t even know.
+ - You’re college graduates now, so use your education. Remember: It’s not who you know, it’s whom.
+ - If you laugh at it, you can deal with it.
+ - I have no methods; all I do is accept people as they are.
+ - In every human endeavor, persistence is everything.
+ - Girls just want to have fun. Well, so do old ladies!
+ - I finally found out how priests get holy water. They boil the hell out of it.
+ - Your anger can be 49 percent and your comedy 51 percent, and you’re okay. If the anger is 51 percent, the comedy is gone.
+ - Last night I asked my husband, ‘What’s your favorite sexual position?’ and he said, ‘Next door.’
+ - I wish I had a twin, so I could know what I’d look like without plastic surgery.
+ - The psychic scars caused by believing that you are ugly leave a permanent mark on your personality.
+ - I am furious about everything.
+ - I have a wonderful psychiatrist that I see maybe once a year, because I don’t need it. It all comes out onstage.
+ - If you don’t think you’re funny, no one else will.
+ - Elizabeth Taylor has more chins than the Chinese telephone directory.
+ - Happiness, at my age, is breathing.
+ - You’re going to get what I think is the truth, and it’s going to be raw.
+ - I hate Billings, Montana. They have a fashion show at Sears Roebuck.
+ - You don’t marry for love. What does love got to do with marriage? I spit on love and marriage. You marry for money.
+ - Nothing is yours permanently so you better enjoy it while it’s happening.
+ - I can’t wear yellow anymore. It’s too matchy-matchy with my catheter.
+ - I’m so fat and I’m so depressed; last night I tried to hang myself – but the rope broke.
+ - My sex life is so bad, my G-spot has been declared a historical landmark.
+ - I said to my husband, ‘my boobs have gone, my stomach’s gone, say something nice about my legs.’ He said, ‘Blue goes with everything.’
+ - Why should I cook for my husband? So he can tell a hooker I make a delicious cake?
+ - Now, I’m not against sex before marriage, but two minutes before? When the organist played “Here Comes the Bride”...
+ - I have no sex appeal and it has screwed me up for life; my gynecologist examines me by telephone.
+ - My sex life has gone from bad to pathetic. My G spot stands for godforsaken.
+ - Mick Jagger could French-kiss a moose. He has child-bearing lips.
+ - I told my mother-in-law that my house was her house, and she said, ‘Get the hell off my property.’
+ - Forty for you, sixty for me. And equal partners we will be.
+ - The nice thing about Viagra is that they are proving men can go blind on it, so you can gain weight and have a great sex life.
+ - I am a dyke! And I’m damn proud of it!
+ - My boobs are so low I had to put curb feelers on my nipples!
+ - I’m a double bagger. Not only does my husband put a bag over my face when we’re making love, but he also puts a bag over his head in case mine falls off.
+ - I don’t think I’m good in bed. My husband never said anything, but after we made love he’d take a piece of chalk and outline my body.
+ - I could stop and live carefully but that’s ridiculous. I don’t want to live carefully.
+ - Elizabeth Taylor’s so fat she puts mayonnaise on aspirin.
+ - But you do have to learn, if you want to be a satirist, you can’t be part of the party. Meaning, you can’t go horseback riding with Jackie O in Central Park if you’re going to make a joke about her that night.
+ - I hate housework! You make the beds, you do the dishes and six months later you have to start all over again.
+ - My love life is like a piece of Swiss cheese; most of it’s missing, and what’s there stinks.
+ - I must admit I am nervous about getting Alzheimer’s. Once it hits, I might tell my best joke and never know it.
+ - I once dated a guy so dumb he could not count to 21 unless he was naked.
+ - To the pessimist the light at the end of the tunnel is another train.
+ - I have to tell you that it’s not going to be easy. Take every chance and every opportunity that you can. Don’t say ‘I can’t’ or ‘I shouldn’t’ or ‘I’m too tired.’
+ - Dogs are easier to love than people; they’re certainly more dependable. Once they love you, that’s it. A true friend in life is a dog.
+ - I knew I was an unwanted baby when I saw that my bath toys were a toaster and a radio.
+ - Here’s a Thanksgiving tip. Generally, your turkey is not cooked enough if it passes you the cranberry sauce.
+ - A man can sleep around, no questions asked, but if a woman makes nineteen or twenty mistakes she’s a tramp.
+ - My earliest childhood memory was watching my parents loosen the wheels on my stroller.
+ - Life is so tough. I don’t know how old you are, but I’ve seen so much in a wink. One phone call and your life is changed forever. We all know that. You better laugh at everything.
+ - Just remember: Surviving is the best revenge, no matter what the disaster has been.
+ - I love Israel for its blue and white flag as it matches my legs.
+ - When my husband Edgar and I were courting, he said he couldn’t wait to have a baby. It was only after we were married that he changed his mind and decided that I should have the baby.
+ - People are arguing whether Mel Gibson’s “Passion of the Christ” is anti-semitic. Well, whether it is or it isn’t, it doesn’t matter, because I’ve been in touch with his accounting firm, Rosencrantz, Levy and Stern, and they’re screwing him out of his profits.
+ - I said Justin Bieber looked like a little lesbian – and I stand by it: He’s the daughter Cher wishes she’d had.
+ - I said to my husband, ‘Why don’t you call out my name when we’re making love?’ He said, ‘I don’t want to wake you up.’
+ - Grandchildren can be annoying – how many times can you go: “And the cow goes moo and the pig goes oink”? It’s like talking to a supermodel.
+ - Half of all marriages end in divorce- and then there are the really unhappy ones.
+ - The first time I see a jogger smiling, I’ll consider it.
+ - A female salmon lays three thousand eggs a year – and has yet to receive a Mother’s Day card from one of them.
+ - A study says owning a dog makes you 10 years younger. My first thought was to rescue two more, but I don’t want to go through menopause again.
+ - My perfect last meal would be: shrimp cocktail, lasagna, steak, creamed spinach, salad with bleu cheese dressing, onion rings, garlic bread, and a dessert of strawberry shortcake.
+ - It’s so long since I’ve had sex I’ve forgotten who ties up who.
+ - I have no sex appeal, which kills me. The only way I can ever hear heavy breathing from my husband’s side of the bed is when he’s having an asthma attack.
+ - You know you’re getting old when you buy a sexy sheer nightgown and don’t know anyone who can see through it.
+ - My body is dropping so fast, my gynecologist wears a hard hat.
+ - I was dating a transvestite, and my mother said, ‘Marry him. You’ll double your wardrobe.’
+ - Trust your husband, adore your husband, and get as much as you can in your own name.
+ - The fun of working on the road means stealing from hotels. I’ve been doing it for so long, I have a set of towels from the Ark.
+ - People say that money is not the key to happiness, but I always figured if you have enough money, you can have a key made.
+ - Everyone thinks Angelina Jolie was the first celebrity baby hoarder, but she wasn’t. Before Angelina there was Mia Farrow. Mia had an entire farm full of children. I think she got them at Costco.
+ - I am not lucky. I am the type who would go to Lourdes and drown in the waters.
+ - Two is company; three is fifty bucks.
+ - Before we make love my husband takes a pain killer.
+ - I was so ugly that my parents sent my picture to ‘ripley’s believe it or not’ – they sent it back and said, “we don’t believe it.”
+ - I could never be in a cult. For starters, they never accessorize properly. David Koresh had no fashion sense, Jim Jones wore leisure suits, and I don’t care how charismatic Osama bin Laden was, an AK-47 and an insulin drip do not take the place of drop earrings or a well-placed brooch.
+ - Age – it’s the one mountain you can’t overcome.
+ - Oprah Winfrey is so powerful that she had the Rapture postponed until after her final show airs.
+ - And since we’re all adults here, let’s be brutally honest-most babies are not actually attractive. In fact, they’re weird and freakish looking. A large percentage of them are squinty-eyed and bald and their faces are all mushed toegther, kind of like Renee Zellweger pushed up against a glass window.
+ - The ideal beauty is a fugitive which is never found.
+ - I hate McDonald’s. I don’t want to order my dinner by yelling into a clown’s mouth. If I want my face in a clown’s mouth, I’ll tongue kiss Glenn Beck.
+ - I succeeded by saying what everyone else is thinking.
+ - I was born in 1962 and the room next to me was 1963.
+ - My father was a doctor so I was around death all my life. So, I was very used to it because he was a f-king doctor.
+ - My grandson is mad at me. He’s mad at me because I squandered his college fund on Spanx. It’s a lot, but there’s a lot going on here.
+ - I think I’ve lost 3lbs – I’m very, very happy. I thought of it as work and a spa.
+ - On the Vanna White diet, you only eat what you can spell.
+ - All my friends are dying. That’s why I always wear black.
+ - Your proudest moment is to watch your egg not just function, but to achieve on her own.
+ - My parents hated me. All I ever heard was, “Why can’t you be like your cousin Shelia? Why can’t you be like your cousin Shelia?” Shelia had died at birth.
+ - A woman went to a plastic surgeon and asked him to make her like Bo Derek. He gave her a lobotomy.
+ - I think Hillary Clinton’s style is perfect. Perfect. You don’t notice what she’s wearing, you notice the woman.
+ - The thing is, I’m happiest when I’m on stage.
+ - I caused my husband’s heart attack. In the middle of lovemaking I took the paper bag off my head. He dropped the Polaroid and keeled over and so did the hooker. It would have taken me half an hour to untie myself and call the paramedics, but fortunately the Great Dane could dial.
+ - She’s so pure, Moses couldn’t even part her knees.
+ - I was just reading about the new Lindsay Lohan diet, which is all liquid. 80 proof.
+ - If two people want to get married, get married! The Victorians had a great saying: As long as it doesn’t scare the horses, do what you want. And I absolutely believe that.
+ - Don’t follow any advice, no matter how good, until you feel as deeply in your spirit as you think in your mind that the counsel is wise.
+ - As a wedding gift, Ray J gave Kim Kardashian his profits from their sex tape. It’s ‘Something Old’ as well as ‘Something Blew.’
+ - I now consider it a good day when I don’t step on my boobs.
+ - I love the way my life has fallen into place.
+ - All Angelina Jolie wants to do is do good for people. And she was saying to me: If I could just make one person happy, Joan, I’ll die satisfied. I said: Easy! Just give Jennifer Aniston back her husband.
+ - She’s so hairy – when she lifted up her arm I thought it was Tina Turner in her armpit.
+ - Having a baby is definitely a labor of love.
+ - Life is hard. And we better laugh at everything, otherwise we’re going down the tube.
+ - My breasts are so low now I can have a mammogram and a pedicure at the same time.
+ - Since I met him ten years ago there hasn’t been a day that I didn’t think of George Burns. And I didn’t think of him again today.
+ - I was the last girl in Larchmont, NY to get married. My mother had a sign up: “Last Girl Before Freeway.”
+ - No more Botox for me. Betty White’s bowels move more than my face.
+ - We don’t apologize for a joke. We are comics. We are here to make you laugh. If you don’t get it, then don’t watch us.
+ - I want to be buried in a Valentino gown and I want Harry Winston to make me a toe tag.
+ - Is Elizabeth Taylor fat? Her favorite food is seconds.
+ - Both of my parents got to see me host Carson, thank God. That’s all anyone wants: to have their parents see they’re going to be all right in life.
+ - When a man has a birthday, he takes a day off. When a woman has a birthday, she takes at least three years off.
+ - Sold my house in LA, packed myself up and moved to New York, not knowing anybody. Friends are very hard to make after a certain age.
+ - Having a baby can be a scream.
+ - I adore my apartment in New York. It was a ballroom that I remade, so it’s like a loft but done by Louis the Fifteenth.
+ - My personal style is over-the-top dowager. The old days they said get dressed and take one thing off, I say get dressed and put one thing on.
+ - A child can be taught not to do certain things, such as touch a hot stove, pull lamps off of tables, and wake Mommy before noon.
+ - Tom Cruise and Katie Holmes had the baby. He was there for the birth. It would’ve been nice if he was there for the conception.
+ - The only way I can get a man to touch me at this age is plastic surgery.
+ - I was absorbing a sorry truth of show business – rejection is the norm and acceptance the oddity. I was learning to cut the tops off my highs and stay with the lows where the rejections and letdowns would be shallow.
+ - Don’t talk to me about gravity. When I get out of bed in the morning, I have to be careful not to step on my breasts.
+ - Some women take up the law and become lawyers. Other women lay down the law and become wives.
+ - Elizabeth Taylor was so fat that whenever she went to London in a red dress, 30 passengers would try to board her.
+ - I’m racist? How can that even be possible? I was a friend of Michael Jackson’s back when he was black.
+ - Russell Brand has announced that he plans to write a series of children’s books. First up: ‘Horton Hears a Heroin Dealer.’
+ - Boy George is all England needs – another queen who can’t dress.
+ - I think anyone who’s perfectly happy isn’t particularly funny.
+ - Never buy a fur from a vegetarian.
+ - Anyone that says looks don’t count is lying.
+ - The fashion magazines are suggesting that women wear clothes that are ‘age appropriate.’ For me that would be a shroud.
+ - After we made love he took a piece of chalk and made an outline of my body.
+ - I’ve learned to have absolutely no regrets about any jokes I’ve ever done You can tune me out, you can click me off, it’s OK. I am not going to bow to political correctness. But you do have to learn, if you want to be a satirist, you can’t be part of the party.
+ - The people voting for the Oscars are so old. I haven’t seen one Academy Award voter with a tampon in her purse.
+ - I always like a charity with people who don’t speak English because I get them to do all kinds of things around my house.
+ - God always comes up with a third act twist – and we won’t know until we die whether the play was a comedy or a tragedy.
+ - Tonight I’ll be interviewing Ken Watanabe, Keisha Castle Hughes, Benecio Del Toro and Djimon Honsou – and yes, those are actors, not caterers.
+ - My routines come out of total unhappiness. My audiences are my group therapy.
+ - Edgar had a heart attack, and I’m to blame. We were making love, and I took the bag off my head.
+ - If I found her floating in my pool, I’d punish my dog.
+ - There’s always an adjective before my name, and it’s never a nice one.
+ - I got a waterbed, but my husband stocked it with trout.
+ - Thank God we’re living in a country where the sky’s the limit, the stores are open late and you can shop in bed thanks to television.
+ - If you’re saying the same line 10 times and making it look like you just came up with it, that’s acting.
+ - I can’t like watching Project Runway with Heidi Klum. There’s just something wrong about a German woman saying who goes and who stays.
+ - I was smart enough to go through any door that opened.
+ - On her daughter Melissa: The only time she really cried is when I sat her down and told her that she was not adopted.
+ - I know now that everybody in the arts is forever a beginner. Experience counts for a great deal and very little. Every night onstage I feel I am starting from scratch, still not quite sure what I am doing and where I am going, thrown by the simplest thing that goes wrong.
+ - Does fashion matter? Always – though not quite as much after death.
+ - Omaha is a little like Newark, without Newark’s glamour.
+ - There is nothing funny about aging: It is rotten and depressing. Anyone who tells you otherwise just hasn’t been paying attention.
+ - She doesn’t understand the concept of Roman numerals. She thought we just fought in world war eleven.
+ - I am so out of the loop. I am never honored. My career is hilarious to me. I am either under the radar or over the radar.
+ - Emotional troubles are like landfill. Get them outside, and the air disintegrates them.
+ - Never floss with a stranger.
+ - What are people going to do? Fire me? I’ve been fired before. Not book me? I’ve been out of work before. I don’t care.
+ - I was my own buddy in camp.
+ - I think anyone who’s perfectly happy isn’t particularly funny. And when you’re very, very happy, you’re not very funny. You’re just happy. I’d rather be damaged and funny.
+ - Florida wants to change the state’s motto to attract younger people. They’re thinking about: More than just a great place to die.
+ - Yeah, I read history. But it doesn’t make you nice. Hitler read history, too.
+ - They almost had to cancel the Oscars tonight because all of the designers and stylists are still in line in San Francisco trying to marry one another.
+ - Comediennes are the lucky ones, because if you’re funny, you can be 125 years old and they will still accept you.
+ - Our natures are a lot like oil, mix us with anything else, and we strive to swim on top.
+ - I started my career in a town so small the local clinic was called Fred’s Hospital and Grill.
+ - I’ve learned from doing my own show with Fox that people are not your partners if they’re signing the checks. Whoever signs your paycheck is the boss – no matter what they tell you.
+ - Everyone takes fashion so seriously! It’s fashion – enjoy it!
+ - Travel is the excitement of life! Everything is an adventure, and if you look at it like that, even at the worst moment you can say: ‘We will laugh tomorrow about this.’ And you do.
+ - I’ve learned from my dealings with Johnny Carson that no matter what kind of friendship you think you have with people you’re working with, when the chips are down, it’s all about business.
+ - I’m sure some of you are wondering whether my breasts are real. Let me just explain to you. This one is, this one isn’t.
+ - I’m never without a bandage.
+ - That girl had a great way of making friends, and strangers, and anyone else who was around.
+ - I’ve learned to have absolutely no regrets about any jokes I’ve ever done.
+ - I’ve had so much plastic surgery, when I die they will donate my body to Tupperware.
+ - I was not an attractive child.
+ - The worst thing that ever happened to me on stage is someone ran forward to tell me they loved me and projectile vomited all over the stage. It was horrible.
+ - My best birth control now is just to leave the lights on.
+ - Comedy – and I say this with humility – comedy needs me.
+ - My obstetrician was so dumb that when I gave birth he forgot to cut the cord. For a year that kid followed me everywhere. It was like having a dog on a leash.
+ - With age comes wisdom. You don’t need big boobs to be feminine. Look at Liberace.
+ - Mel Gibson’s father doesn’t think there was a Holocaust? Great. I don’t think there’s a movie. We’re even.
+ - My daughter and I are very close, we speak every single day and I call her every day and I say the same thing, “pick up, I know you’re there.”
+ - I could be the Greta Garbo of comedy, very secluded, but Garbo had a man who was beyond rich to support her.
+ - I saw what’s going on under my chin. I don’t want to be the one the President has to pardon on Thanksgiving.
+ - With this face, I need all the deals I can get.
+ - I felt a comedy ego beginning to grow, which gave me the courage to begin tentatively looking into myself for material.
+ - Comedy exists to laugh at things that aren’t laughable. But isn’t it? That’s what separates us from the animals. We laugh.
+ - You know why I feel older? I went to buy sexy underwear and they automatically gift wrapped it.
+ - You know it’s time to start using mouthwash when your dentist leaves the room and sends in a canary.
+ - Valentine’s Day is different for old people. At this age I receive chocolates in boxes shaped like artificial hearts.
+ - Acting is my true love. I would like to have been a serious actor, and I plan to in the next life. I’m gonna be Meryl Streep Rivers.
+ - I think I’m in a business where you have to look good, and it’s totally youth-oriented.
+ - I was getting dressed and a peeping tom looked in the window, took a look and pulled down the shade.
+ - How to fool yourself into feeling younger: When you go to restaurants, always check a coat and a skateboard.
+ - At my funeral, I want Meryl Streep crying in five different accents.
+ - I like my politicians and my judges and my lawyers to be simple. I think if you worry about where your hemline is you’re really not concentrating on the world crisis.
+ - I think it was Cosby who also said to me, ‘If only 2 percent of the world thinks you’re funny, you’ll still fill stadiums for the rest of your life.’
+ - I use a smoke alarm as a timer.
+ - I was not an attractive child. When I didn’t use my Girl Scouts uniform as a uniform, I used it as a tent.
+ - Everyone needs a facelift, except if you are from Brooklyn then you need a nose job !!!
+ - You know you’ve reached middle age when you’re cautioned to slow down by your doctor, instead of by the police.
+ - My daughter refuses to call me mother in public; my little grandson calls me Spongeslob Squarebottom, and nobody else ever calls me at all.
+ - I’m no cook. When I want lemon on chicken, I spray it with Pledge.
+ - I will only praise someone who can’t take anything away from me.
+ - Every television show you go on is a choice.
+ - I have no sex appeal; if my husband didn’t toss and turn, we’d never have had the kid.
+ - I don’t think there’d be a Tina Fey now if I hadn’t tried to look good in the beginning.
+ - My face has been tucked in more times than a bedsheet at the Holiday Inn.
+ - We all mourn in our own way. I mourn with a great steak.
+ - I was so flat I used to put Xs on my chest and write: “You are here”. I wore angora sweaters just so the guys would have something to pet.
+ - I wear the midi because I feel if you’re going to look ugly, you may as well look this year’s ugly.
+ - I think any celebrity that adopts a child from a third world country is a fool.
+ - I think it’s time they knew the truth about Beethoven.
+ - Comedy is a very rough beat. It’s no holds barred, as it should be.
+ - If you’re not a wreck in this business, you’re not around.
+ - There is not one female comic who was beautiful as a little girl.
+ - The Palestinians cannot throw rockets and expect people not to defend themselves.
+ - I’m telling you that at eight she knew more about reproduction than Xerox.
+ - At my age an affair of the heart is a bypass!
+ - I lived to be on stage, and I’m terrified. Terrified before every show.
+ - Anyone that says looks don’t count is lying. Of course they do. Even babies go to the attractive face. It’s the way humans work.
+ - Never admit that your back goes out more than you do.
+ - Better laid than never.
+ - Diets, like clothes, should be tailored to you.
+ - Every time I get on an airplane I figure it’s gonna get blown up. You live on the edge.
+ - Put me up against Sarah Silverman and I could take her.
+ - I have flabby thighs, but fortunately my stomach covers them.
+ - Having my daughter I screamed for twenty-three hours straight. And that was just during conception.
+ - My mother was a very elegant woman. When a flying saucer landed on the lawn, she turned it over to see if it was Wedgwood.
+ - I hate thin people; ‘Oh, does the tampon make me look fat?’
+ - It’s been so long since I made love I can’t even remember who gets tied up.
+ - I am definitely going to watch the Emmys this year! My makeup team is nominated for “Best Special Effects.”
+ - I’ll lie still for a lot of things – but sex isn’t one of them.
+
+263 quotes

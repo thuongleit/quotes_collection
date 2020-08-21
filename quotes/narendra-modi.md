@@ -1,0 +1,475 @@
+ - Mind is never a problem. Mindset is.
+ - Hard work never brings fatigue. It brings satisfaction.
+ - Unity in diversity is India’s strength. There is simplicity in every Indian. There is unity in every corner of India. This is our strength.
+ - People’s participation is the essence of good governance.
+ - I dream of a Digital India where cyber security becomes an integral part of our National Security.
+ - Mahatma Gandhi never compromised on cleanliness. He gave us freedom. We should give him a clean India.
+ - India has seen a dream of Digital India. From latest science to latest technology, everything should be available at the tip of one’s finger.
+ - Good governance depends on ability to take responsibility by both administration as well as people.
+ - Dignity of labour has to be our national duty; it has to be a part of our nature.
+ - If you are determined nothing can stop you from determining your dreams.
+ - Individual efforts can bring excellence but only collective efforts can deliver effectively.
+ - Our Matru Shakti is our pride. Women empowerment is very crucial to our development.
+ - Don’t dream to be something but rather dream to do something great.
+ - I dream of a Digital India where quality education reaches the most inaccessible corners driven by Digital Learning.
+ - Our quest for a Digital India is all encompassing. It is going to touch your lives in several ways, making it easier.
+ - Atal Bihari Vajpayee ji gave the mantra- Insaniyat, Jamhooriyat, Kashmiriyat. He based Jammu and Kashmir’s development on this, and we need to take it ahead.
+ - We need to give importance to skill development because this way we can end unemployment.
+ - Kids are the biggest brand ambassadors of Swachh Bharat initiative.
+ - We do not need ACTS but Action.
+ - Let us buy atleast one product of Khadi fabric and help light a lamp of Diwali in the homes of the poor.
+ - I will make such a wonderful India that all Americans will stand in line to get a visa for India.
+ - Ethics and Equity are at the core of debate of climate change. Debate has to move from Climate Change to Climate Justice.
+ - Less land, less time, more crop.
+ - India’s openness to new ideas is manifest in the Rig Veda: Let noble thoughts come to us from all sides.
+ - E-governance easy governance, E-governance is economical governance.
+ - The 21st century is the century of knowledge. Knowledge, science and education will have the power and strength to embrace the entire universe.
+ - Cleanliness and sanitation were closest to Gandhiji’s heart. We will launch a ‘Clean India’ campaign and by Gandhiji’s 150th birth anniversary, all schools in the country should have toilets with separate toilets for girls.
+ - Skill development, speed and scale are the 3 important aspects that are relevant to the present-day growth and development module.
+ - Our identity in the world must change from Scam India to Skill India.
+ - I don’t look at sports as something which merely tones up the body. I look at it as a tool of education that stimulates the mind and brings in a culture of discipline.
+ - Celebrate the birth of a girl child by planting 5 trees in your village.
+ - Our mission is skill development. There can be no development with a satiated system.
+ - Our ancestors used to play with snakes, we play with mouse.
+ - My focus is not merely a beautiful city, but a city that’s made beautiful on the parameters of good health and cleanliness.
+ - We are proud of 3 things: Democracy, Demographic dividend and Demand.
+ - We led the industrial revolution, the White revolution, now its time for a cultural revolution.
+ - We should remain students for lifetime. You should be ready and yearn to learn from every moment of life. The basic elements of life need to be associated with learning. The learning process should be a part of your DNA.
+ - Vote bank politics has put the future of our youth in darkness.
+ - Design in India is as important as Make in India.
+ - People of Bihar are the most intelligent people on earth.
+ - Economic freedom is very important for women empowerment. They must be partners in economic development also. I have seen that women are very good at adapting to latest technology. We should link women and technology up-gradation.
+ - If 125 crore people work together; India will move forward 125 crore steps.
+ - Let us build a SAARC satellite which we can dedicate to our neighbourhood, as a gift from India.
+ - Our culture is our strength be it music, dance, poetry or anything, and these are very precious.
+ - If sports do not hold significance in our life, we cannot nurture sportsman spirit as a “Sanskar” in our society and without such “Sanskars”, the society cannot flourish!
+ - Religion to me is devotion to work and devotedly working is being religious.
+ - I dream of a Digital India where mobile and e-Banking ensures Financial Inclusion.
+ - Mere good governance is not enough; it has to be pro-people and pro-active. Good governance is putting people at the center of development process.
+ - However advanced the technology may become, life is impossible without humanity, and that’s why we need a combination of science of thinking and art of living!
+ - The basis of democracy is tolerance to criticism. If you can’t face criticism, if you can’t accept it, then you cannot guard democracy, you are not eligible for it.
+ - When we talk about Skill India Mission, we do not merely talk about filling the pockets of people. We want to instil a sense of self-confidence among the poor.
+ - I invite you all to participate in Make in India.
+ - The way to end corruption is a progressive, policy driven state with proper implementation.
+ - We want to enable Start-Ups and make India no 1 in this field. Start-Up India and Stand-Up India!
+ - Be it caste or communal violence, they stall the growth of the nation. Let us affirm that we will be free from these tensions.
+ - Jan Bhagidari is the biggest asset of a democracy. We are increasing it through MyGov, letters from citizens, Mann Ki Baat and other initiatives.
+ - Reading becomes the fuel for development.
+ - India is a youthful country. A country with such a major percentage of youth has the capability to change not only its own, but the fate of the entire world.
+ - Once we decide we have to do something, we can go miles ahead.
+ - School can become a temple of learning only when the student, the guardian, and the society, in harmony, endeavor to make it a place of pursuit for education, a sadhana; where the spring of punctuality, sanctity and thirst for knowledge flows.
+ - An opportunity to work is good luck for me. I put my soul into it. Each such opportunity opens the gates for the next one.
+ - Innovation no longer remains a choice but has become an imperative.
+ - Cleanliness drive is something that has touched every Indian.
+ - Holistic Healthcare remains a very big attraction. Best of the doctors are moving towards homeopathy. There’s a mood for Holistic Healthcare. There’s a mood to go toward stress free life from a stressful life.
+ - Importance of technology is increasing every day, we must not deprive our children of technology, if we do then it’s a social crime.
+ - India is the land of Buddha and Gandhi. Equal respect for all religions must be in the DNA of every Indian.
+ - I am a small man who wants to do big things for small people.
+ - Yoga is a philosophy of discipline and meditation that transforms the spirit and makes the individual a better person in thought, action, knowledge and devotion.
+ - Urbanisation is not a crisis but an opportunity, seeing it as a crisis is wrong. And not just villages, we want everyone to get opportunities wherever they are staying. Aatma gaav ki ho aur suvidha sheher ki ho, this is what we believe.
+ - Cleaning up the country cannot be the sole responsibility of sweepers. Do citizens have no role in this? We have to change this mindset.
+ - Nation is one. We will not work for Hindus or Muslims, we will work for the people of India.
+ - A society that does not give importance to education cannot progress. Let there be any Government, it must have a vision to make India shine in the field of education.
+ - Bharat for Bhutan and Bhutan for Bharat. The colour of our passports may be different but our thinking is the same. India stands committed to Bhutan’s happiness and progress.
+ - Both teachers and students must move ahead together for the nation to progress.
+ - There is no reason to be disappointed. India will progress very fast and the skills of our youth will take India ahead.
+ - I am seeing that Gandhi is looking through these specs that whether we have made India clean or not, what we have done and what we have done.
+ - Technology has a critical role in realizing the vision of a Digital India – the power of 125 crore connected Indians.
+ - What is Maximum Governance, Minimum Government? It means government has no business to be in business.
+ - We believe in Sarva Pantha Sambhav. We believe ’the truth is one, there are ways to reach it.
+ - We should walk together, work together and progress together. We should move ahead with this mantra.
+ - Good Governance cannot remain merely a philosophy. Concrete steps have to be taken for realizing its goals.
+ - BJP is committed to transform the agriculture sector. We want to increase farmer income and the purchasing power of villages.
+ - By saying Make in India, we are not only inviting companies for cost-effective manufacturing, but also giving them an opportunity of a large market for their products.
+ - I dream of a Digital India where knowledge is strength – and empowers the People.
+ - We belong to a tradition where we treat the entire universe as our family. For me, globalisation is the manifestation of nationalisation. There is no contradiction between the two.
+ - The mantra of independence was Satyagraha. And the warriors were Satyagrahis. The mantra of New Age India must be Swachhagrah. And the warriors will be Swachhagrahis.
+ - My ‘Idea of India’ calls not just for tolerance, but a celebration of all points of view. Where the sensibilities of every individual are respected.
+ - The ‘Idea of India’ is an India of opportunity and aspiration. An India where: all are prosperous and happy, all are free from illness.
+ - 21st century is the century of knowledge and the world has always looked at India whenever knowledge finds prominence. Emergence of knowledge society is no more a slogan but has become a reality. Knowledge will be the fountainhead of all the activities that happen in human development.
+ - While transparency reduces corruption, good governance goes beyond transparency in achieving openness. Openness means involving the stakeholders in decision-making process. Transparency is the right to information while openness is the right to participation.
+ - The beauty of e-governance is that a few keystrokes can bring smiles on a million faces.
+ - Secularism for the Congress is merely a slogan while for the BJP it is an article of faith. Secularism is about votebank politics for the Congress, while it is about ‘India first’ for the BJP.
+ - Good governance needs self-discipline. Only discipline within can ensure discipline without.
+ - We want to make nation-building a people’s movement.
+ - NDA not only stands for National Democratic Alliance but is also the National Development Alliance.
+ - Our demographic dividend is our strength. The youth have what it takes to engage with the latest technology.
+ - From snake – charmers, we are now a nation of mouse- charmers. Our youngsters are shaping the world with the click of a mouse with their feats in the IT sector.
+ - India is the world’s most youthful nation. A nation with such youth power cannot dream small. We cannot commit this crime. We should dream big, we should enable the youth to dream big and we should give them an opportunity to realize their dreams.
+ - The image of a country is not just about economic and military strength. The soft face of a country also makes a difference. Sports are one such soft power which can capture the world’s attention to India.
+ - It means food on every table, every child in school, a job for everybody and a house with toilet and electricity for every family. This can be achieved through unity. Unity strengthens us. Division weakens us.
+ - Indian economy is suffering from policy paralysis and lack of optimism. I am confident that with right kind of decisions, we can once again generate hope and confidence and turnaround our economy.
+ - The choices we make now will shape the future of not just our countries, but the world at large. We should intensify our cooperation in confronting global challenges like Terrorism, Cyber Security and Climate Change.
+ - Lab to land – how to get what is done in the lab to the land, to the farmer.
+ - Secularism is not only in our constitution but also in our veins. We worship Mother Nature too. We believe that the world is our family.
+ - People say I am lucky. I am lucky indeed because what can be better luck than to have the blessings of 125 crore Indians...
+ - If your education is not enough, experience will teach you lessons.
+ - Skill development remains our priority. We are blessed with a demographic dividend that can take us to great heights.
+ - Congress Mukt Bharat BJP ka naara nahi hai, jan jan ka sankalp hai. Be it dynasty politics, nepotism, corruption, communalism, divisions in society or poverty, getting freedom from all this is what I mean by a Congress Mukt Bharat.
+ - Convergence of technology is important. One people, one mission, one nation, this will be possible then.
+ - Religion and faith are very personal matters. So far as the government is concerned, there is only one holy book, which is the Constitution of India.
+ - Let work itself be the ambition.
+ - It is our social responsibility as citizens of India to help fulfil Gandhiji’s vision of Clean India, by his 150th birth anniversary in 2019.
+ - A strong government is where the will of the people matters, where the voice of the people is heard and where the dreams of the people are fulfilled.
+ - Nobody wants to remain poor. Those who are poor want to move away from poverty. That is why, all our programmes must be for the poor. All our schemes must serve the poor.
+ - Domains like Trade, Technology, Tourism, Talent and Tradition have the power to redefine existing paradigms.
+ - It is my conviction that highways and I-ways have similar importance these days. My effort is to connect all 600,000 villages with optical fiber networks in the next five years.
+ - I have come from outside Delhi, but I give you an assurance that the people in the Government are very capable. I want to awaken and unite that power for the welfare of nation.
+ - Coming age is the age of knowledge. However rich, poor or powerful a country be, if they want to move ahead, only knowledge can lead them to that path.
+ - We dream of an India that is self-sufficient in producing defence equipment using the latest technology.
+ - I haven’t done anything wrong that I need to make up for. I am what I am in front of the world.
+ - Social media changed my thought process and connected me to the rest of the world. And as I started connecting, the world started accepting me as I was. Nothing could be more satisfying.
+ - A son of a poor man is standing in front of you today. This is the strength of a democracy.
+ - Hindu philosophy was one of the greatest beneficiaries of the advent and the teachings of the Lord Buddha. I revere Buddha as a reformer of not only Hinduism but also the world, who has given all of us a new world view and vision which is critical for the survival of all of us and the entire world.
+ - Sab kaa saath, sab kaa vikas. This is our mantra.
+ - Every voter is a Bharat Bhagya Vidhata.
+ - I think toilets are more important than temples.
+ - The closeness of the India-Afghanistan relationship is not a new phenomenon. It has existed since time immemorial. And as a close friend, ever since India’s Independence, we have done and will continue to do whatever is required to be done to see Afghanistan grow and progress as a close friend.
+ - Whatever education a university or institutes of higher education imparts, it must achieve the global level of benchmarking given the vastness and diversity of global village we live in today.
+ - Each one of us has both; good and evil virtues. Those who decide to focus on the good ones succeed in life.
+ - It takes Rs. 10 per kms in Ahmedabad by auto- rickshaw, but it took us only Rs. 7 per kms to reach Mars.
+ - We, the present generation, have the responsibility to act as a trustee of the rich natural wealth for the future generations. The issue is not merely about climate change; it is about climate justice.
+ - It is a tribute to Indian democracy that a person from a poor family, an ordinary family, is today addressing the nation from the Red Fort.
+ - Cyber-related risks are a global threat of bloodless war. India can work towards giving world a shield from the threat of cyber warfare.
+ - I too belong to an OBC caste but I have never used my community to get power.
+ - The work to eradicate corruption must begin from the top. It is spread like termite in our country. We have to work at all levels to eradicate corruption.
+ - Urban development initiatives must match the aspirations of the middle class and the neo middle class.
+ - Gujarat is all about Trade with Tradition, Commerce with Culture, Enterprise with Entertainment and Development with Disaster management.
+ - Good governance is treating development as a mass movement in order to see that fruits of development reach the poor and the downtrodden.
+ - World talks GDP but in Bhutan its about National Happiness. Am sure having India as a neighbour would be 1 of the reasons for the happiness.
+ - A crime is a crime irrespective of the birth marks of the criminal.
+ - I dream of making India a $20 trillion economy. For that, I am pushing for agriculture, manufacturing and service sectors.
+ - The young generation of today is globally connected. They want to live in an equitable and efficient India. We have to be ready for this, and work for this.
+ - Can we not wage a war and emerge victorious against poverty. Let us defeat poverty.
+ - Our diversity is not something that is on paper. It is the manifestation of our strength. It is not only our identity but also our tradition.
+ - Economic development cannot take a nation forward on its own. We need a society and economy which complement each other. We need to take care of the poor, deprived and left behind sections of society.
+ - We fought for freedom together. We had no government, no weapons to help us. We defeated such a big empire without any government, without any arms.
+ - Children who can barely say maa, pappa, are saying Ab ki baar Modi sarkar. This is the power of democracy.
+ - Team Work is the essence of good governance. It is necessary to form a team within the party and also within the administrative system.
+ - Technology transforms people’s lives. From mitigating poverty to simplifying processes, ending corruption to providing better services, Technology is omnipresent. It has become the single-most important instrument of human progress.
+ - Even if one child falls in a borewell, the entire country gets worried; we must generate more awareness about hundreds of children who are unable to survive due to lack of primary healthcare facilities.
+ - Infrastructure should not only be about Highways but also about Information Highways! The way ahead lies in creating optical fibre networks.
+ - Yoga has spread harmony between man and nature. It is a holistic approach to health and wellbeing.
+ - We seek your blessings and we seek your support. On one side there is the Shahzada and on the other side there is a tea seller. There is Namdaar and there is a Kamdaar. But we assure that after assuming responsibility we will not rest for a minute. All the time will be for the people.
+ - People must understand the Clean Ganga program, as an economic activity also. The Gangetic plains account for 40% of our population. They have over one hundred towns, and thousands of villages.
+ - The ultimate objective of subsidies should be to empower the poor, to break the cycle of poverty, and become foot-soldiers in our war on poverty.
+ - E governance can bring minimum government and maximum governance. It is easy, effective and economic governance. It brings empowerment, equity and efficiency of the economy. It is a very useful field that can be the greatest problem solver of the people.
+ - It is our dream that by the time we celebrate the 75th year of independent India, all the slums are replaced by cemented houses.
+ - I am a very optimistic man and only an optimistic man can bring optimism in the country.
+ - BRICS must provide a united and clear voice in shaping a peaceful, balanced and stable world. We must harness each other’s strengths, in knowledge, skills and resources.
+ - We must enable farmers to feed India and the world; and earn a good livelihood.
+ - The root of democracy is in mass education. This foundation becomes stronger, when the citizens of tomorrow, our children are also educated about the electoral process.
+ - We want a good government that works. Let us rise above caste divisions and nepotism and pledge to elect a government that is development oriented. Delhi needs a stable government and a strong government.
+ - It is India’s responsibility to display its strength to the World through knowledge and innovations.
+ - Understanding strengths and weaknesses is very essential in setting forth a clean administration and for sustainable and lasting solutions.
+ - Mother India has 250 crore arms, majority of which are of the youth, who have the capacity to fulfil India’s dreams!
+ - In a democracy, dynasty politics is wrong. We need to free the state and nation from it.
+ - The ‘Krishi Mantralaya’ will now be known as ‘Krishi Kalyan Mantralaya’
+ - Let us come together and think of ways India does not have to import but we export to the world.
+ - A nation with a strong defence industry will not only be more secure. It will also reap rich economic benefits – it can boost investment, expand manufacturing, support enterprise, raise the technology level and increase economic growth in the country.
+ - I dream of a Digital India where quality healthcare percolates right up to the remotest regions powered by e-Healthcare.
+ - India has now graduated from megawatts to gigawatts in terms of renewable energy production.
+ - Prime Minister Jan Dhan Yojana is a reflection of how rich India’s poor are at heart. Without any obligation to put any money in the 0 balance accounts, they didn’t open an empty account.
+ - Lokmanya Tilak said “Swaraj is my birthright” but now the people of India must say, “Surajya is my birthright”.
+ - The world does not run on the number of certificates one has, but on the skills our hands have. Let the youth dream big and aim for the sky. The work of a government should be to open doors.
+ - The nation should move towards one target, one direction, one intention and one decision.
+ - Startups are the engines of exponential growth, manifesting the power of innovation. Several big companies today are startups of yesterday. They were born with a spirit of enterprise and adventure kept alive due to hardwork and perseverance and today have become shining beacons of innovation.
+ - Sports must become an indispensable and inseparable part of our social life. Competitiveness is just a by-product.
+ - We don’t only want to make robots in universities; we want to create good humans. We can’t shape a world only with the help of robots made out of technical know-how. We can’t be useful to humankind if there are no sentiments in life.
+ - Self-certification may look like a small vision but there cannot be a greater decision for a Government to trust the honesty of the 1.25 billion people of the country.
+ - Secularism is a term interpreted in many different ways by different people. For me, it has always been something very simple – putting India First.
+ - Can’t India dream of exporting teachers of high calibre? Can’t we instil the desire in children to become great teachers?
+ - No form, no manifestation of knowledge, is senseless.
+ - E-Governance to me is easy, effective and efficient governance.
+ - Real time functioning should have the PM and the CMs of the states working in tandem. The Federal structure is important in letter and spirit, it is our strength.
+ - A democracy can’t succeed without people’s participation. ‘MyGov’ empowers the people of India to contribute towards Surajya.
+ - During freedom struggle, It were authors and artists who made the Nation stand with their pen, and now their pen can create an environment of renaissance when Independent India is on the path of Good Governance.
+ - What we teach our children is that earth is your mother that provides; she’s a giver. So, please first ask forgiveness from the mother earth before you step on to it and cause it pain.
+ - Dr Sarvapalli Radhakrishnan served this country well, he did not celebrate his birthday, he celebrated it for teachers.
+ - If we decide, we can change the pitiable condition of Indian economy. We have to take up the responsibility and show commitment.
+ - Respecting religions is not simply a question of universal tolerance; it is a question of believing that all religions are true.
+ - We did not organize press conferences and talk about fighting against corruption, we acted on the ground and brought changes in the schemes to fight corruption.
+ - The Congress’ name of ‘INC’ must be changed to ‘Institutions Neglecting Congress’. Their habit is to misuse, abuse and reduce institutions.
+ - About 800 million people in India are below the age of 35 years. Their aspirations, energy, enterprise and skills will be the force for India’s economic transformation.
+ - Our ancestors had displayed great strengths in space science. What people like Aryabhata had said centuries ago are being recognised by science today. We are a country which had these capabilities. We need to regain them.
+ - The respect that I have got is not for Narendra Modi or the PM of India. It is respect for the people of India.
+ - Railway stations can become growth points for the nearby villages.
+ - I assure the ex servicemen that One Rank One Pension has been accepted in principle but it is in talks. We want to get a solution which is acceptable to all. Discussions have come to the final leg, we hope for a positive result.
+ - Devote 100 hours every year towards the cause of cleanliness.
+ - Power is not just for TV sets and charging mobile phones. This electricity is critical to the industrial development of this area. If there is electricity, small scale industry will grow.
+ - Education makes life self-reliant. It inspires man to live with dignity in the society. It is the foremost requisite of a teacher to identify his own virtues. He needs to live supported by his inherent virtues-and must continue to uphold them.
+ - The government is committed towards helping the poor and neo- middle class with the success mantra of Sabka Saath, Sabka Vikas. It is in line with government’s vision to create a skilled and digital India.
+ - India is a civilization where the principle and philosophy of sacrifice is ingrained as part of our upbringing.
+ - India and Fiji have many shared values, and it is the responsibility of both the countries to strengthen those values.
+ - BRICS should be driven by ‘People to People’ contact. It should explore developing innovative mechanisms of Youth engagement.
+ - By getting an opportunity to serve society, we get a chance to repay our debt.
+ - A new institution with new design, structure, body, soul, new thinking, and direction will replace the Planning Commission. It will be one that caters to the aspirations of 21st century India.
+ - Salary is not life- be it fifty-hundred-thousand or five thousand rupees. Every great man gives the credit of his development to his teacher. What else can bring more happiness for a teacher?
+ - Many celebrations are set to take place in Swarnim Gujarat. However, if one asks me, “As the Chief Minister, which is your favourite programme?” Then friends, I would like to say that ‘Vanche Gujarat’ is the closest to my heart.
+ - Yog is not only about Rog Mukti but also Bhog Mukti. Yoga can be our cultural ambassador. We can reach out to the world through this medium.
+ - We have successfully achieved the target of building toilets in schools.
+ - Good days are upon us.
+ - The life of Gautama Buddha illustrates the power of service, compassion and, most importantly, renunciation. He was convinced that material wealth is not the sole goal.
+ - Each of has a natural instinct to rise like a flame. Lets nurture that instinct.
+ - Even small efforts to bring about a change in the social fabric eventually reap large fruits.
+ - I am proud to be from an ideology. Our ideology is that the Nation is bigger than party. We will live and die for the nation. Our ideology is not about aspiring for posts, it’s based of sacrifice.
+ - We will form an army of poor, where every poor will be a soldier and we will win the war against poverty on behalf of their strength.
+ - I have not come to Kashi to seek votes but to connect with the people and understand their problems.
+ - We do not run government on whims of an individual, our progress is reforms driven, our reforms are policy driven and our policies are people driven.
+ - The strength of the saviour is much more than the strength of the person who kills.
+ - After the hockey stick, Sardara Singh scores with the broom! A great effort by him towards a Swachh Bharat.
+ - The government would devote all its effort to empower the poor and give them strength to fight poverty. Skill development would be accompanied by the spirit of Shrameva Jayate.
+ - Parents give birth; the Guru gives life. These life-givers are the soul of the magnificent building. The school building which the government can construct is like the body, but the teachers are the soul.
+ - We have set out to bring a difference in your lives, to bring smiles back on your face, to fulfil your dreams. We want to make such an India.
+ - A tourist will come drawn to its beautiful past but we need to put efforts for creating systems to make them stay here.
+ - Development should be a mass movement. We need to integrate the people and make it a mass movement.
+ - Good roads, good houses, adequate electricity, good schools or good hospitals in the village are indeed, the parameters of progress. However, in my view, 100 percent literate village is the true symbol of real progress.
+ - PIO card holders- they have lot of visa issues. We decided they will get lifelong visa.
+ - BJP is doing “gathbandhan”. Congress is doing “brashtbandhan” and the criminals are doing “lathbandhan”. Our politics is about coalitions. Every coalition where the BJP is part of as leaders, has been successful.
+ - Saansad Adarsh Gram Yojana is not a scheme that can be run by money. This scheme has to run with people’s participation under the guidance of the MPs.
+ - The development of a child is guaranteed in his curiosity to discover the cause behind each and every incident.
+ - We must question why the smartest students don’t choose to become teachers.
+ - In democracy, people’s verdict is always final and we all have to accept it with humility.
+ - So, this is my government’s agenda: educate your daughter and save your daughter.
+ - For the poor, for those who want to serve, the only place left for such people is BJP. When someone joins the BJP family, it is not only about membership, we strengthen relationships.
+ - One should play and sweat. Life shouldn’t be bogged down by books.
+ - India is a 2 trillion dollar economy today. Can we not dream of an India with a 20 trillion dollar economy?
+ - I am not doing any favour, only performing a duty; this victory is a result of struggle of five generations.
+ - From my experience of having served for 3000 days, I can say that anything can be achieved.
+ - If there is education, there will be everything in life. Government can make roads, hospitals and also construct school buildings. But your homes can brighten up only if your children are educated. I am confident that if we focus on education, our society will certainly develop.
+ - Pro-active good governance aims beyond short-term requirement keeping in mind the long-term needs such as the use of clean technology and in preparedness and mitigating climate change fallout etc.
+ - Federal system is at the heart of Indian democracy but UPA is adamant to break the nation by breaking the federal structure for their vested interests. It’s a conspiracy to grab power through the backdoor...
+ - Politics for me is not Ambition but a Mission.
+ - Modern science is a catalyst agent to fulfil the needs of humankind. We must ensure that it reaches to poorest of the poor.
+ - My experience in Gujarat shows that howsoever big a problem might be, it is not insurmountable if we have the will to act.
+ - Our space programme has overcome many hurdles. At the same time it is one of the most cost effective programmes. This should make us proud.
+ - I dream of a Digital India where farmers are empowered with real-time information to be connected with Global Markets.
+ - Through Saansad Adarsh Gram Yojana, we want to give impetus to Demand driven development model instead of Supply driven development model. Let the villages say what has to be done, and what not.
+ - This election result has increased people’s faith in democracy.
+ - For 60 years you gave chance to Shasaks, now I request you to give a Sevak 60 months. I say give me 60 months and we will give you a life of peace and happiness.
+ - We need to make India capable, prosperous.
+ - For you I am neither the PM or CM. Our bond is a bond of affection and I am your sevak.
+ - We need to embrace the change that digital connectivity can bring. Now, towns will come alongside places where optical fibre network is present.
+ - There is no question in the fact that India has a global responsibility, and the coming “Gyan Yug” would see India play a pivotal role, using the strengths of its democracy and demographic dividend.
+ - We dream of an India where development is the result of all Chief Ministers, the Prime Minister, state Ministers, Union Ministers working together with even Local Body Authorities as one team, a strong and united Team India.
+ - I see Lord Buddha doing to our collective spiritual well-being what global trade did to our collective economic well-being and the digital internet did to our collective intellectual well-being.
+ - The importance of a journey is not measured by the distance covered, but by the destination reached.
+ - There should be momentum created for achievement of goals by 2022. When we celebrate the 75th anniversary of freedom we should achieve targets.
+ - This is an election of hope. It is bringing a new trust. These elections will give new strength to the nation.
+ - The launch of PSLV-C23 fills every Indian’s heart with pride and I can see the joy and satisfaction on your faces. Feel privileged to watch this in person.
+ - When people have a sense of our military capability, nobody will ever dare to cast an evil eye on our nation.
+ - For nearly three decades there has been, by and large, peace and tranquility on the India-China border. Not a single bullet has been fired for over a quarter-century. Both countries are showing great maturity and a commitment to economic cooperation.
+ - This century is going to be linked with the virtual world. Maybe in the days to come we will have virtual malls and digital manufacturing. Change is coming fast and we need our urban areas to keep pace with these changes.
+ - Almost 4.25 lakh toilets were built in 2.62 schools nationwide in one year; this gives self-confidence that we can do what we want.
+ - We need to cut subsidy leakages, not subsidies themselves.
+ - We need a Skilled India but Congress has created a Scam India in the last 10 years.
+ - The entire Nation has joined hands to make the dream of a Digital India into a reality. Youngsters are enthusiastic, industry is supportive and the government is proactive. India is yearning for a digital revolution.
+ - This country has not been made by politicians, kings or governments. It has been made by farmers, labourers, our mothers and sisters and youth.
+ - As students I am sure you have several dreams. If you are determined to move ahead nothing can stop you. Our youth are talented.
+ - The spread of yoga is the symbol of a changing world. It represents a world where knowledge flows, without restriction of country, creed or class. It represents a world where people come together across boundaries, for causes and concerns that unite the planet.
+ - No one can question the talent of India’s youth after the success of the Mars Mission. Everything indigenous!
+ - Technology enables last mile delivery. Blending it with the will and determination to deliver, Gujarat has experienced the true power of e-governance.
+ - I see the role of IT as a change agent. It empowers, connects and can bind isolated parts of India and create harmony. IT can join people with governments, bridge the gap between demand and supply, and can bring us closer to knowledge.
+ - Today, India’s cooking gas subsidy is the world’s largest Cash Transfer Programme.
+ - A good government is one with many information channels, those that give real-time information.
+ - I have reached here by selling tea.
+ - My definition of secularism is very clear. The sole religion of the Government is Nation First, the holy book is the Constitution.
+ - Our education apparatus can’t be one that produces robots. That can happen in laboratory. There has to be overall personality development.
+ - I dream of a Digital India where Government services are easily and efficiently available to citizens on Mobile devices.
+ - The youth of India has the strength to move the entire World with a click of a mouse, we have generated that ability!
+ - If the 21st Century is the era of knowledge and of knowledgeable human-force, then, to extol this force, Gujarat must form a strong bond with books.
+ - Whatever Language Pakistan understands India should teach in that language.
+ - If I talk about coal, people will start equating my statements with a political angle. This is not a platform for politics, I’m not making any allegations on anyone.
+ - Our demographic dividend must get the digital strength.
+ - I know the youth of India. They are not merely asking for things. The youth wants to stand of their own feet and live a life of pride and dignity.
+ - Every voter became Narendra Modi.
+ - We weren’t lucky enough to sacrifice our lives for our country, but at least we can live for our country!
+ - I feel blessed I can address students who are the future of India.
+ - I dedicate the love, enthusiasm, welcome and respect given to me to the feet of 125 crore children of Mother India.
+ - If we want the world to be a better place to live, we have to treat it as one unit. If we want economic growth to be pervasive, we have to make people its partners. If we want the process of development to be sustainable, we have to work with the environment.
+ - It is not easy to fight elections with a development motto and I am glad people of Gujarat rose above personal and emotional tangles and prioritized development over everything else.
+ - Contrary to the prevailing notion that good governance is bad politics, in reality good governance is good politics. A government should work keeping in mind the welfare of future generations, not the next election.
+ - We always remember the courage of the people of Kargil! We want to make Kargil among India’s most developed districts.
+ - We must acknowledge the importance of teachers to the society.
+ - A government is one that thinks and hears the voice of the poor. A government must live for the poor.
+ - Do you share my belief in Swami Vivekananda’s dream that India will be a Jagad Guru once again? I see no reason for India to be left behind.
+ - Only If there is devotion to knowledge, the 21st century will become India’s century and the foundation of that will be laid by the ‘Vanche Gujarat’ movement.
+ - I dream of a Digital India where Government proactively engages with the people through Social Media.
+ - Our country talks a lot on corruption. Everyone advices each other over how to stay away from it. Even those people who are corrupt tend to give advice to others on how to deal with corruption.
+ - Hung verdict would have meant anger against previous govt; Clear verdict to BJP shows people voted for hope and aspiration.
+ - We want to change the identity of Delhi from Generator Capital to Power Generation Capital.
+ - It is impossible for the nation to develop unless states develop, the process of policy planning also has to change from ‘top to bottom’ to ’bottom to top.
+ - Our focus should be on developmental dimensions of atomic science with a special outreach to India’s youth.
+ - I want to do small things, for small people, and to make the small people big...
+ - Development must be such that it positively transforms the lives of the common people.
+ - I salute the poor of our country who have deposited more than Rs 20,000 crore in Jan Dhan Bank Accounts.
+ - I intend to launch a massive National Program for PDS Computerisation.
+ - I have requested the corporates to evolve plans under corporate social responsibility to build clean toilets specially for girl students in schools. India should learn from foreign countries, where people are disciplined and do not litter in public places.
+ - Development seems to have become the agenda only of government. It is seen as a scheme. That should not be the case. Development should be everyone’s agenda. It should be a people’s movement.
+ - Our nation is rich and our people can be rich. 2014 elections is a fight against poverty.
+ - For achieving good governance political will is necessary. Good governance is a political process. Though role of civil society is critical, without political will and political process, sustainable good governance cannot be achieved.
+ - Youth are active partners in Gujarat’s development! Gujarat’s approach towards skill development has been flexible, broad based, inclusive and with a long-term vision...
+ - Let each one of us not waste electricity at home. By doing this, we will also light a lamp in the home of a poor.
+ - Society and Government should together give priority to the poorest of poor and make efforts to provide affordable health services.
+ - When I speak of Team India I believe that the foundation for India’s development will not be the single pillar of the Central Government, but 30 pillars comprising the Central Government and all our States.
+ - India will be successful when UP, Bihar, West Bengal, Assam and other parts of North East India are strengthened. India cannot develop till the eastern part of the country develops.
+ - Until teachers get their due it is difficult to bring about a change.
+ - India is developing because of 125 crore strong Team India. We have to end the curse of casteism, communalism with the sweetness of development.
+ - We are not here for any positions but for a responsiblity.
+ - It has become a fashion to declare a package after every crisis. The time has come to pack those who keep giving these packages that don’t reach the farmers.
+ - What is Gujarat? You and I are Gujarat, friends! If we read, Gujarat will read. Let us all read. Where there are 5.5 crore Gujaratis, that is my Gujarat and where each Gujarati reads, that is my Vanche Gujarat. Let us move forward with this fervour.
+ - We teach in our cultural history that the entire universe is a family. So our association with Nature is much deeper and of a very different kind.
+ - In order to make India prosperous, all sections and regions of the society needed to be prosperous.
+ - Want to assure people there is no need for pessimism going by the past bad experience; country has huge potential.
+ - Elections should be about making the people a part of the development journey. That is when India will move ahead.
+ - We have now reached a level where we should be even more ambitious. We should focus on more tangible mechanisms and outcomes. Make BRICS a platform of Impact.
+ - These elections won’t be about the manifesto of parties, but about manifesto of the people and their dreams who want peace and prosperity.
+ - We shall together open the doors of good politics and will work without indulging in political untouchability.
+ - I recently assured Public Sector Banks they will have total autonomy in taking business decisions.
+ - As the Indian economy adds strength to our region and the world, it will also benefit Mongolia.
+ - In China, the social network is a bit different. But I am active there too.
+ - There is no red tapism in my state, only red carpet.
+ - Fighting Climate Change calls for innovation, cooperation and will power to make the changes that the world needs.
+ - A youthful nation like ours must leave an impact in the entire world.
+ - If I look at the definition of Hinduism, the Supreme Court of India has given a beautiful definition; it says that Hinduism is not a religion, it is actually a way of life.
+ - Development has to result in jobs. What we need is not just more production, but mass production and production by masses.
+ - India is once again ready to play the role of ‘Vishvaguru’ and work towards the benefit of mankind.
+ - When approached right, citizens never fail to shoulder their responsibilities.
+ - BJP is not going to the people only to form a government. We have come to the people to give stability and a development oriented government.
+ - It is not that the people want a BJP government or Modi as PM. The Nation wants to teach a lesson to those who have ruined the nation.
+ - I might live miles away from you, but I do understand you issues.
+ - Technology empowers the less empowered. If there is a strong force that bring a change in the lives of those on the margins it is technology. It serves as a leveler and a springboard.
+ - If you have compassion for society, only then will the events of your life, sow seeds of revolution in it...
+ - I didn’t become CM on 07-10-2001. I have always been CM, I am CM today and shall be CM forever. For me CM means not Chief Minister but Common Man.
+ - Our nation is filled with tremendous energy of the youth. Whatever future we desire of, we must keep the youth at the centre. If we do this, we can surge ahead at an unmatchable pace!
+ - I did not get an opportunity to die for the country, but I have got an opportunity to live for the country.
+ - Politics is not a profession, it is a service. I want to keep working more for the Nation not because of the designation, but because people of India are my family.
+ - I dream of a Digital India where technology ensures the Citizen-Government interface is incorruptible.
+ - Many governments have faced the proposal of One Rank One Pension but no solution has been found yet.
+ - It is easy to turn a scooter, but not a train with 40 bogeys. This is such a big country, changes are constant and widespread.
+ - Last year I spoke about Clean India and open defecation, it was criticised then but that has been the main point with which the government has touched the lives of the people.
+ - Bodh Gaya is a land of enlightenment. Years ago, what Bodh Gaya got was Siddhartha but what Bodh Gaya gave to the world was Lord Buddha, the epitome of knowledge, peace and compassion.
+ - People to people contact is essential for Nations to come closer.
+ - We must build an agenda for speedy yet sustainable economic growth that is inclusive of all, is respectful of individuals, responsive to innovation and responsible towards the future generations.
+ - Forget if you are rich or poor. All you need is faith in yourself. If you have the passion to work then just get up and set forth and you will find the way!
+ - Development is the solution to all problems. All other types of caste, communal and dynasty politics will not do good.
+ - I am not asking for 60 months to sit and enjoy power, but to be the Chowkidaar of the country.
+ - Can someone tell me, whatever we are doing, have we asked ourselves if our work has helped the poor or come to benefit the nation in any way? We should come out of the ‘Why should I care’ attitude and dedicate ourselves to the nation’s progress.
+ - The spirit of sacrifice and selflessness of the defence forces is an inspiration for all Indians. Strong armed forces are necessary for an atmosphere of peace, amity, harmony and brotherhood in the country.
+ - We can see how the role of mobile has changed in past 20 years. It is a perfect example of how one innovation can change an entire era.
+ - We have to fight terror in one voice, rising above politics. That is when the common people will feel secure.
+ - If our country has to reach its economic goals, it cannot happen with half its population shut behind doors.
+ - Gujarat, with its all inclusive, sustainable and rapid growth, is emerging as a globally preferred place to live in and to do business.
+ - At G-20 summit, I worked with US and other countries to bring black money back.
+ - According to the World Health Organization, an average of Rs. 6500 per person was lost in India due to lack of cleanliness and hygiene. Swachh Bharat would make a significant impact on public health and in safeguarding income of the poor, ultimately contributing to the national economy.
+ - Let us together serve the Nation. If each citizen takes one step forward, the country takes 125 crore steps forward.
+ - If we want to move forward, not just the Government but 125 crore Indians will have to do something.
+ - We need efforts to integrate the nation, not divide it. The 2014 elections is about voting for India. It is to decide what kind of India we want to create. So Vote for India. Neither for a person, nor for a party, let us Vote for India.
+ - India’s role is not to interfere in what Nepal does but to support Nepal in their development. Nepal should scale new heights of progress.
+ - Allocating budgets will not suffice. We need to make focused efforts at developing the tribal belt of Gujarat.
+ - Democracy is such a framework that everyone has the right to live their lives, fix their goals, their aims, their dreams and the ways to achieve them according to their own choice.
+ - India is a youthful nation. Can’t we think of exporting good teachers?
+ - Government systems suffer from two weaknesses. They are complex. And they are slow. We need to change this. Our systems need to be made sharp, effective, fast and flexible. This requires simplification of processes and having trust in citizens. This needs a Policy Driven State.
+ - I did not make any big speeches but acted upon working against corruption.
+ - The consensus we arrived with States for amending the Constitution to implement GST is a major breakthrough. This alone has the potential to make India competitive and attractive for investment.
+ - When I went to a school in Japan, they told me that both the teachers and students perform cleaning tasks here to keep the schools clean. I wondered why can’t we do it in India.
+ - It used to hurt me in the past years to hear people say they want to leave India. But with the experience of past few months, I can say that we have removed that gloom from the minds of the people.
+ - The MPs are not adopting villages; it’s the villages that are adopting the MPs.
+ - This is an election where there is a tea seller from the Opposition, and to defeat him, everyone has come together. They say Modi should not come. This is because those who looted the nation know that after 16th May what is going to happen.
+ - With the gun you can make the earth red but if you have a plough you can make the earth green.
+ - Not only the people of Nepal but also those who believe in the power of democracy are looking at Nepal and this assembly.
+ - The future belongs to social media. It is egalitarian and inclusive. Social media is not about any country, any language, any colour, any community but it is about human values and that is the underlying link binding humanity.
+ - The Ayodhya judgment will work as a catalyst to maintain peace and unity in the country. This judgment has given a respect to belief and self esteem of the people of India, and it should be linked to self esteem of the country.
+ - The media wanted me to speak since morning. But I wanted to speak to Vadodara first Vadodara has first right on me.
+ - I think it is a very natural tendency for the nations to increase their influence in the international space, as they pursue their international relations with different countries.
+ - I dream of a Digital India where 1.2 billion Connected Indians drive Innovation.
+ - It is a matter of immense pride that never in history has there been a complaint against the Indian community from any society in the World. These values aren’t small!
+ - Reforms are not an end in itself. Reforms must have a concrete objective.
+ - There can be no better place than India to manufacture, expand, and grow.
+ - Why should it be mandatory for people to give interviews. I request state governments to remove the process of interviews for minor jobs to end corruption in getting jobs.
+ - We are bringing technology into governance in a very big way. This is making governance easy, effective, economic and transparent.
+ - Bringing 17 crore people to the doors of the bank is a huge task and I commend all the bank officials for the same. It is not difficult to open a bank branch, it is difficult to get 17 crore people to open bank accounts.
+ - They say that this century is going to be an Asian Century. I am very clear that without embracing the path and ideals shown by Gautam Buddha this century cannot be an Asian century!
+ - The greatest quality that a person can possess is the quality of self-belief. If you believe you can, you can. If you believe you won’t, you most certainly won’t.
+ - Good governance is not fire-fighting or crisis-management. Instead of opting for ad-hoc solutions the need of the hour is to tackle the root cause of the problems.
+ - I will try to live up to expectations of people; will present report card to people in 2019.
+ - If you read the biography of any great man, you will always notice two things: His mother’s contribution in his progress and his teacher’s contribution in his growth and development.
+ - We must together build an economic agenda for the India of our dreams that translates into improved standards of living, increased human well-being and assured social justice.
+ - The previous Governments took pride in making laws, but I am happier removing laws. Let’s open the windows, let some fresh air come in.
+ - I have always believed in development over votebank politics.
+ - Coming out of indecisiveness and being determined is the pre condition for being called young.
+ - Laws are the DNA of government. They must evolve with time.
+ - We are today a nearly 100% banked country.
+ - Yoga should not be just an exercise, but a means to connect with the world and with nature. It should bring a change in our lifestyle and create awareness within us.
+ - I have a vision of a Modern India. I have embarked on a huge mission to convert that vision into reality. My mantra is Development.
+ - Access to governance has to be guaranteed with transparent systems that deliver responses and outcomes. The strengthening of democratic governance empowers the population to become active partners in the growth process.
+ - Elections are a festival of democracy. Everyone must join this festival of democracy and strengthen it.
+ - The world used to think we are a land of snake charmers and black magic. But our youth has surprised the world with its IT skills. I dream of a digital India.
+ - The India-Nepal border should not be a barrier but a bridge which helps bring prosperity to both sides.
+ - I started reading the works of Swami Vivekananda. That gave me courage and a vision, it sharpened and deepened my sensitivities and gave me a new perspective and a direction in life. I decided to dedicate myself to others and till date I am continuing to follow that decision.
+ - Leave at night and you reach Australia next morning. But it took 28 years for an Indian PM to come to Australia!
+ - Since Day 1, we have maintained that ours is a Government dedicated to the poor and will continue to work dedicatedly for the welfare of the poor.
+ - We are committed to achieving the fiscal deficit target announced in the budget.
+ - We need to assume that aspirations of people in villages are nothing less than the aspirations of people in the cities. They need a change in their lifestyle.
+ - People power must be combined with good governance to bring about real, deep and lasting change. This combination can achieve almost everything from eliminating corruption to ending malnutrition and illiteracy.
+ - To me technology used wisely is a catalyst to magically transforming the way we live.
+ - The coming decade belongs to the right of the poor and the marginalised. The BJP is very clear on that.
+ - It is important how we view the youth of our nation. To simply consider them as new age voters will be a big mistake. They are the new age power.
+ - We are not only celebrating International Yoga day, we are training the human mind to begin a new era of peace, Sadbhavana.
+ - A major institutional reform is the move away from merely planning, to transforming India. The setting up of NITI Aayog, is a step in this direction.
+ - When I came here in 1999, all one could hear was the sound of the guns as guns were booming all around. Today I am only hearing clapping of hands.
+ - Through a policy driven approach we have wage a war against poverty and we are confident we will win this war.
+ - If people of India can reach Mars with minimal expenditure, why can they not keep their streets and colonies clean.
+ - Even after so many decades of Independence there are 18,500 villages in India which do not have electricity. We affirm our commitment to provide electricity to all those villages that do not have electricity.
+ - I’m confident that it is with the strength of the poor that India will move forward.
+ - All of us have to ensure that our future generations lead a life of peace, dignity and mutual respect. We need to sow the seeds of a conflict-free world, and in this endeavour, Buddhism and Hinduism have a great contribution.
+ - For an economy to prosper, trust between the states must be established, and their individual strengths be appreciated.
+ - My stand has always been clear that I am from Gujarat and will keep working for the state.
+ - When we say Bharat Vijay Rally, we intend to focus on making India emerge victorious over price rise, corruption, unemployment and mis-governance.
+ - A state in India will have more traders than perhaps a European nation. Trade is a great way to integrate people.
+ - I am confident that Saansad Adarsh Gram Yojana will open the doors of good politics.
+ - A youth is capable of bringing things together and changing the direction too. They can come together and bring changes. There is no need of breaking anything, but need is to bring changes.
+ - I dream of an India that is a hub of opportunities. We can’t restrict ourselves to skills only, we need to encourage entrepreneurship.
+ - Technology is central to Development. It touches one and all, and is an important instrument of our national progress.
+ - I am happy to note that the BJP as an organization is looking to creatively harness Power of Social Media. We have to ensure our Youth stays engaged in our Democratic process. We have to make our Democratic process accessible to them. Social media is an important tool for this.
+ - Despite deficit rains, we have been successful in bringing down the inflation down from double digits to 3-4%.
+ - Based on my experience, I can say that India country can be freed of corruption.
+ - It is a golden chapter in the history of India’s maritime security. May INS Vikramaditya, imbibe the radiance of the sun and confidence of victory in each one of us.
+ - They are fighting for the chair while I am fighting for your happiness.
+ - There is new hope among people that this dispensation can fulfill their aspirations.
+ - Gujarat is the first state in the country where not even a single student is devoid of insurance cover.
+ - We want to invite the world to Make in India, make India as the base for manufacturing electronic goods.
+ - The world has changed. India cannot sit isolated in one corner and determine its future.
+ - Seven years is a short time in the history of a country’s democracy. But in this short time, people of Bhutan have developed faith in the institutions of democracy.
+ - The BJP is an optimistic party. Our strength and our democratic values are such that even a poor person from a backward section – like me – has been nominated as a Prime Ministerial candidate.
+ - Whatever position we may rise to, be it of MP, CM or PM, nothing can teach us the way villages can...
+ - Space may seem distant, but is an integral part of our daily life. It drives our modern communication and connects even the remotest family to the ordinary. India’s space programme is a perfect example of our vision of Scale, Speed and Skill.
+ - We will link farmers to global markets. We will give the world the Taste of India.
+ - Firmly believe that terrorism, in any shape or form, is against humanity. There should be zero tolerance towards terrorism.
+ - The path of violence has not yielded anything. Shed guns and adopt the path of peace, unity, goodwill and brotherhood.
+ - Earlier we used to play with snakes, but now we play with mouse. Through IT, India’s youth has surprised the entire World!
+ - You will see India as a country of opportunities, unmatched across the world. India can be a role model of growth and cohesiveness for the rest of the world.
+ - Divide and rule is the way Congress does their politics while we say let’s unite and do development.
+ - Entire world comes to us, but Indians live in entire world.
+ - We do not need men and women from other planets to develop India. Our people, our youth are skilled.
+ - Government not just for a few, it belongs to the common people.
+ - India is a democracy; it is in our DNA. As far as the different political parties are concerned, I firmly believe that they have the maturity and wisdom to make decisions that are in the best interests of the nation.
+ - Those who think only for a year, they sow food grains; those who think for a decade, they plant fruits; But those who think for generations, they prepare humans.
+ - It is my firm belief that the solution to all problems lies in dialogue. Earlier, it was believed that force indicates power. Now, power must come through the strength of ideas and the effective dialogue.
+ - First, we need to focus government on the things that are required of the State. Second, we need to achieve competence in government so that the State delivers on the things it sets out to do.
+ - We are not here to give challenges to anyone, but we will also not take challenges casually. Our defence mechanisms would be the best in the world. A secure India is the first requirement for the country to progress and achieve new heights.
+ - Convergence of technology and the judicial system is the need-of-the-hour. We need to go digital and adopt online analysis of legal cases. Dissemination of legal knowledge to the common man will also a go a long way in improving the law and order situation in the country.
+ - We are changing the way we govern ourselves – not just in the way we work in New Delhi, but also in the way we work together with state governments, districts and cities. Because we know, as you do, that our vision may be formed in Delhi, but our success will be determined by state capitals.
+ - It fulfils the purpose of Universities if they can find out ways of achieving those feats which haven’t been achieved till now.
+ - I see Lord Buddha in the 21st Century across national borders, across faith systems, across political ideologies, playing the role of a bridge to promote understanding to counsel patience and to enlighten us with tolerance and empathy.
+ - It has been Gujarat’s strength to do development with Jan Bhagidari.
+ - We do not need committees but we need commitment. The nation is already reeling under the burden of several committees formed in the last decade.
+ - I dream of a society that is continuously creating knowledge, where each individual is a part of this creation, where youngsters can pursue courses with freedom of choice, where technology is used for universal access of education and yet the importance of the Guru is retained.
+ - I don’t believe UPA government did nothing; they did whatever they could and they deserve appreciation for whatever good they did.
+ - 2014 Lok Sabha Elections is a battle between good governance agenda of the NDA versus the misgovernance and corruption of the UPA.
+ - A teacher says “I am sowing the seeds of revolution.” At that time we cannot imagine how powerful the teacher is, but he certainly derives joy by fulfilling his duty.
+ - I have toured around for 45 years and have experience of night halt at more than 400 districts. And that’s why I know the reality of this earth.
+ - There are 18,500 villages in the country where electricity is yet to reach. We want to ensure these villages are electrified within the next 1000 days.
+ - The wealth that increases by giving, That wealth is knowledge and is supreme of all possessions.
+
+473 quotes

@@ -1,0 +1,29 @@
+ - I guess I’m about ready to promote myself in a more human way. I don’t feel quite so insecure.
+ - But Sneaky Pete was great. I didn’t bug him about Gram. Not too much, anyway.
+ - I’ve got time, I hope, to make lots of quiet records. So quiet you won’t be able to hear them.
+ - For me, it’s all about The Dubliners by James Joyce. I love The Dead.
+ - I was hanging out with Jonathan Richman last night.
+ - When I write a song, it’s all about the riff – the riff first, then the words come later.
+ - I don’t write down my experiences, but I have a very decent memory. I have tons of books in which I write down phrases as they occur to me. That’s how I write songs. I’ll need a line and I’ll go through the books and find it, the right rhyme and everything.
+ - I used to have a sort of spiky haircut and it just feels better to have short hair again.
+ - The best songs I write in 20 minutes.
+ - I need the money. People don’t understand how little money you make in a band.
+ - I don’t like alcohol, but I still like to mess around with other stuff occasionally. I think it’s important I take mushrooms and acid. They’re certainly not addictive, so I can’t rule that out.
+ - CDs, too. Totally corporate. They look real cheap and soulless and they don’t smell of anything.
+ - Since Elizabeth, I certainly live a healthier lifestyle.
+ - My high-school dream was to be in a band, pay my rent and eat – and I’ve been able to do that for 20 years. So I’m completely content.
+ - You know more about me than I do about myself, that’s probably true.
+ - Even the bands I dig don’t have a history of attaining mass consumption.
+ - Rock stars wanting to write is even worse than wanting to act in movies, right?
+ - It is hard, though, ’cos record labels love to boss you around. I won’t let them do that anymore.
+ - When I was 14 years old, I was a huge fan of the Velvets, the Stooges and the Modern Lovers. They are my three favourite bands. I never get sick of ’em.
+ - I lie around and play guitar, that’s something I do for sure. In fact that’s all I do, I think.
+ - I’d forgotten what it was like to play music and have it be fun so I decided to stop. I wasn’t even sure if I was going to make a new record, I was just kinda quitting.
+ - See, to me, rock’n’roll doesn’t have any point. It’s just fun. It has a million different angles and they’re all valid. But I think rock might be a world issue.
+ - I have to make rock records occasionally.
+ - Basically, between 1989 and 1994, I hadn’t taken a vacation.
+ - When there are no women on the tour it can get awful and ugly – constant horrible jokes and gross behaviour. It needs to be leavened with a feminine presence.
+ - It’s better when you have your wife with you, more fun.
+ - Some of our stuff ends up looking too corporate. I’m going to be a lot stricter from now on.
+
+27 quotes

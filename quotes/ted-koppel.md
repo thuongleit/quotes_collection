@@ -1,0 +1,30 @@
+ - There’s harmony and inner peace to be found in following a moral compass that points in the same direction regardless of fashion or trend.
+ - Well, Keith Alexander, the former director of the NSA wants to say every company in the United States falls under one of two categories, those that have been hacked and those that don’t yet know it.
+ - Pessimists calculate the odds. Optimists believe they can overcome them.
+ - Set your sights beyond what you can see. There is true majesty in the concept of an unseen power which can neither be measured nor weighed.
+ - To face despair and not give in to it, that’s courage.
+ - It becomes increasingly easy, as you get older, to drown in nostalgia.
+ - Our society finds truth too strong a medicine to digest undiluted. In its purest form, truth is not a polite tap on the shoulder. It is a howling reproach.
+ - The responsibility that I feel is to do as good a job as a journalist as I can possibly do.
+ - Going after ISIS, it’s beautiful, I like it.
+ - In the days of Caesar, kings had fools and jesters. Now network presidents have anchormen.
+ - Every single of us is going to be saying, “Thank God, finally, an interesting convention.” But you’re right about all those people out there. All the people who have been energized by the Trump campaign are going to be very, very angry folk if they think that Trump is not well treated.
+ - What Moses brought down from Mt. Sinai were not the Ten Suggestions, they are Commandments. Are, not were.
+ - I have the necessary lack of tact.
+ - Would anyone else like to say anything nice about women?
+ - Journalism has become a sort of competitive screeching: what is trivial but noisy and immediate takes precedence over important matters that develop over time.
+ - People shouldn’t expect the mass media to do investigative stories. That job belongs to the ‘fringe’ media.
+ - You can almost measure where you are in life by the degree to which you have begun looking back rather than ahead.
+ - If we’re able to identify our own ignorance, we can identify someone else’s expertise. We learn how to listen to each other. And that is the foundation of human understanding.
+ - Terrorism is simply the weapon by which the weak engage the strong.
+ - There is no more respected or influential forum in the field of journalism than the New York Times. I look forward, with great anticipation, to contributing to its op-ed page.
+ - My function is, as objectively and accurately as I can, to present reality to people out there, and doing that as quickly as we do is quite difficult enough, thank you.
+ - But the irony is they think they’re being tough on ISIS and Trump thinks he’s being tough on ISIS. Senator Rubio in his interview with you touched on it very, very lightly.
+ - I have been an unabashed fan of NPR for many years, and have stolen untold excellent ideas from its programming.
+ - Emotions get in the way but they don’t pay me to start crying at the loss of 269 lives. They pay me to put some perspective on the situation.
+ - They don’t want to get dirty and they know that Trump loves this kind of thing. And your polls, and yours are what’s giving them the material that they need, it’s the oxygen that the Trump campaign requires, a poll every three or four days showing him where he is.
+ - And there will continue to be a specific threat, and there will continue to be terrorism, as there has been for as long as human history exists.
+ - History is a tool used by politicians to justify their intentions.
+ - There is something very very special, universal and easily identifiable among all Jews; it is beyond territory, it is something we all have in common.
+
+28 quotes

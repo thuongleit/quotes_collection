@@ -1,0 +1,35 @@
+ - God grants victory to perseverance.
+ - The art of victory is learned in defeat.
+ - When tyranny becomes law, rebellion is a right.
+ - An ignorant people is the blind instrument of its own destruction.
+ - To do something right it must be done twice. The first time instructs the second.
+ - Slavery is the offspring of darkness.
+ - A people that loves freedom will in the end be free.
+ - Flee the country where a lone man holds all power: It is a nation of slaves.
+ - Nations will march towards the apex of their greatness at the same pace as their education. Nations will soar if their education soars; they will regress if it regresses. Nations will fall and sink in darkness if education is corrupted or completely abandoned.
+ - The United States appear to be destined by Providence to plague America with misery in the name of liberty.
+ - It is harder to release a nation from servitude than to enslave a free nation.
+ - Damn it, how will I ever get out of this labyrinth.
+ - Our hatred knows no bounds, and the war shall be to the death.
+ - The freedom of the New World is the hope of the Universe.
+ - The first duty of a government is to give education to the people.
+ - If Nature is against us, we shall fight Nature and make it obey.
+ - He who serves a revolution ploughs a sea.
+ - Do not compare your material forces with those of the enemy. Spirit cannot be compared with matter. You are human beings, they are beasts. You are free, they are slaves.
+ - The Ignorance the people live in leads them to commit mistakes against their own happiness.
+ - War lives on despotism and is not waged with God’s love.
+ - Morals and lights are our first necessities.
+ - Do not adopt the best system of government, but the one most likely to succeed.
+ - In the unity of our nations rests the glorious future of our peoples.
+ - Colombians! My last wish is for the happiness of the patria. If my death contributes to the end of partisanship and the consolidation of the union, I shall be lowered in peace into my grave.
+ - A state too expensive in itself, or by virtue of its dependencies, ultimately falls into decay.
+ - Republican democracy is overperfect and demands political virtues and talents far superior to our own.
+ - When mankind was in its infancy, steeped in uncertainty, ignorance, and error, was it possible to foresee what system it would adopt for preservation.
+ - Out of the most secure things, the most secure is to doubt.
+ - It is harder to maintain the balance of freedom than it is to endure the weight of tyranny.
+ - Among the popular and representative systems of government I do not approve of the federal system: it is too perfect; and it requires virtues and political talents much superior to our own.
+ - Legislators could certainly do with a school of morals.
+ - Is it conceivable that a newly emancipated people can soar to the heights of liberty, and, unlike Icarus, neither have its wings melt nor fall into an abyss? Such a marvel is inconceivable and without precedent. There is no reasonable probability to bolster our hopes.
+ - Let the entire system of government be strengthened, and let the balance of power be drawn up in such a manner that it will be permanent and incapable of decay because of its own tenuity.
+
+33 quotes

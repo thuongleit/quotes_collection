@@ -1,0 +1,60 @@
+ - The old Chinese proverb springs to mind – No pain, no gain.
+ - Relationship gurus always said that an attraction based on friendship and mutual respect was far more likely to stay the course – and the bastards were right.
+ - You will go on and meet someone else and I’ll just be a chapter in your tale, but for me, you were, you are and you always will be, the whole story.
+ - Love and kindness go hand in hand.
+ - I’m quite introverted but I’m not shy.
+ - Love is blind, there was no doubt about it. In Tara’s case it was also deaf, dumb, dyslexic, had a bad hip and the beginnings of Alzheimer’s.
+ - I loved being in my own head so much, it was getting harder and harder being with other people.
+ - When God closes one door, He slams another in your face.
+ - My truth is that what doesn’t kill you makes you weaker rather than stronger, although it makes you wiser.
+ - I’ve kind of realized life is meant to be tough and everybody is in psychic and spiritual discomfort of some sort and has a burden to carry. I’ve realized I’m not special.
+ - I knew it, I just knew it! The person who had the job of writing my life’s dialogue used to work on a very low budget soap opera.
+ - Medically speaking, there is no such thing as a nervous breakdown. Which is very annoying to discover when you’re right in the middle of one.
+ - No more humiliation for me, thanks very much. No more swallowing my anger. Honestly, I couldn’t manage another mouthful. But it was delicious. Did you make it yourself?
+ - I had spent my whole life feeling homesick. The only difference between the two of us was that I didn’t know what or where home was.
+ - Baking makes me focus. On weighing the sugar. On sieving the flour. I find it calming and rewarding because, in fairness, it is sort of magic – you start off with all this disparate stuff, such as butter and eggs, and what you end up with is so totally different. And also delicious.
+ - I know of people who don’t believe it, but depression is an illness, but unlike, say, a broken leg, you don’t know when it’ll get better.
+ - They say the path of true love never runs smooth. Well, Luke and my true love’s path didn’t run at all, it limped along in new boots that were chafing its heels. Blistered and cut, red and raw, every hopping, lopsided step, a little slice of agony.
+ - I’d rather dig a ditch than go to a dinner party with people I don’t know.
+ - I haven’t had Botox because my face is a bit lopsided and I depend on keeping everything animated so that people don’t notice.
+ - As you know, I don’t believe in fear, just an invention by men so they get all the money and good jobs.
+ - I like hoodies. They just make me feel safe.
+ - Although will never love anyone again, don’t want to become bitter. Or creative.
+ - I’ve always been melancholic. At a party, everyone would be looking at the glittering chandeliers and I’d be looking at the waitress’s cracked shoes.
+ - Failed relationships can be described as so much wasted make-up.
+ - What doesn’t kill us makes us funnier.
+ - I am different when my nails are done. I am more dynamic. I gesticulate more, I am better at scaring my staff. I can indicate impatience by drumming on tabletops and I can wrap up a meeting with a few choice clatters.
+ - So I’m back again to the eternal question, the one that has plagued me all my life: How Do Other People Do It? How come they were given life’s rule book and I missed out? Where was I when God was dispensing capability and cop on? Looking at shoes, probably.
+ - How to make God laugh? Tell Him your plans.
+ - Every day I wake up afraid that I won’t be able to write, that today is the day it has left me.
+ - I’ve been so showered in life, beyond my wildest dreams, such as having a loving partner I never thought I’d have.
+ - For all of my life it was the size of my rear that caused me the most hand-wringing, but in this nearly-50 zone it is my stomach that is the problem. It seems to have broken free from its moorings and there is no knowing how far it will roam.
+ - Political correctness is a minefield.
+ - Optimism can be relearnt.
+ - Do I mind being called a chick-lit writer? Well, it’s not the worst thing that could happen.
+ - I’ve never made a secret of the fact that I’d have loved to have children.
+ - I suppose I wanted to have my cake and eat it. But then again, what were you going to do with your cake if not eat it? Frame it? Use it as a sachet in your underwear drawer?
+ - It was only when the salt water of my tears ran into my cuts and made them sting that I discovered I was crying.
+ - Her world had shrunk – no matter who she was with, she’d prefer to be with him. That’s what happened when you fell in love – you only want to see them.
+ - I still get awful depression. It’s who I am.
+ - Love is an emotion. It can’t be seen or touched, and it is experienced differently by everyone, therefore it is difficult to measure.
+ - Chick Lit uses humor to reflect life back to us. It’s a very comforting genre, and it’s the first time our generation has had a voice. It’s a very important genre for all of those reasons.
+ - I don’t like this idea of division: that if you’re a clever woman then you’ve got to be a particular way. Because men don’t. Men please themselves.
+ - I think denial’s fascinating. It’s a jokey word, but it really happens, and sometimes in enormous ways.
+ - I used to write in bed, starting when I woke up. I believe that creative work comes from our subconscious mind, so I try to keep the gap between sleep and writing as minimal as possible.
+ - I am prone to despair. We are all born with a particular personality. I get afraid and then I don’t want to leave the house.
+ - For feel-good fiction to work, there has to be an element of darkness.
+ - He seemed wild and dangerous and carefree – well, he would, would’nt he? What were motorcycles and black leather pants if not the uniform of a wild, dangerous and carefree man?
+ - In an unpredictable and unpleasant world it was both unusual and very pleasant to hear what I wanted to hear.
+ - I’m proud of what I write and feel endorsed by my readers.
+ - My mother is the best storyteller. And her mother was too.
+ - Waiting to be ‘better’ is the wrong approach. It’s learning to live with it.
+ - Why do we have such a finite capacity for pleasure but an infinite one for pain?
+ - You’ve recognised a fundamental feature of an addict’s life. Maintaining your habit is so important you’ve no real interest in anything else.
+ - I’d rather eat nothing than eat a carrot.
+ - I went grey at 12, my eyesight went at 17. I’ve been a crock from very early on.
+ - There’s no doubt that relationships do suffer when circumstances change profoundly.
+ - Here’s how it is: I feel guilty about every single bite of food that goes into my mouth.
+ - Nothing sinister. Just getting exercise. Although some might consider that sinister.
+
+58 quotes

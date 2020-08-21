@@ -1,0 +1,61 @@
+ - You are what you repeatedly do when things get hard.
+ - We can’t retract the decisions we’ve made, we can only affect the decisions we’re going to make from here.
+ - If you look at how long the Earth has been here, we’re living in the blink of an eye. So, whatever it is you want to do, you go out and do it.
+ - I would say my grandmother would be like my personal god.
+ - My Grandmother would say, ‘Make sure you look good. Make sure you speak well. Make sure you remain that Southern gentleman that I’ve taught you to be.’
+ - My homies that are around me never give me that ‘star pass.’ I’ve hung out with some stars who are playing basketball and everyone let’s them score all the baskets. Shooting pool, they let them make all the shots. My homies don’t let me get away with that.
+ - Being just an actor, sometimes people are like, “Hey, man, we don’t wanna see you no more, in front of the camera,” and I don’t want that.
+ - I wish I could take what I’m feeling right now and put it in the water system so everybody could drink it and we would all love each other.
+ - I never planned to win an Oscar. When I auditioned for ‘Ray,’ I was just thinking about what a great project it would be.
+ - Now ballads, I can mess around and get up on somebody on a ballad. People ain’t seen it yet, but I can mess around and get up in there. I’ve had Ruben Studdard up in my house, Brian McKnight, Tank. Every once in a while I throw down with them.
+ - I am a comedian and you guys know whatever I say, I don’t mean any of it.
+ - Connecting with my daughter is the most important thing in my life – the priority. I want to be a man who shows up for her. I want to have such a big influence on her, so that she knows she can call me about anything, which she does.
+ - You have a responsibility to your work, to your choices. Once you get to a certain level of quality and commitment, you don’t want to go back and make Booty Call 7.
+ - She still talks to me now, only now she talks to me in my dreams. And I can’t wait to go to sleep tonight because we have a lot to talk about. I love you.
+ - If I were an animal, I would be an eagle.
+ - I’m a southern gentleman.
+ - Give it up for Ray Charles and his beautiful legacy. And thank you, Ray Charles, for living.
+ - Having a stage name is like having a Superman complex. I go into the telephone booth as Eric Bishop and come out as Jamie Foxx.
+ - I play a slave. How black is that? I have to wear chains. How whack is that? But don’t worry. I get free. I save my wife and I kill all the white people in the movie. How great is that?
+ - We can’t wave a magic wand and get rid of any of these people’s problems, but what they want is they want to be heard.
+ - You guys have so much energy. I threw a party in Toronto and there were, like, 4,000 people who couldn’t get in.
+ - What we do in New Orleans, man – we party!
+ - Guys don’t adapt as well as women do to getting their heart broken for the first time. It’s tragic. I really wanted to be in love, get married, have kids and buy a wood-paneled station wagon for the family. But it didn’t work out, and, boy, it wrecked it!
+ - With ‘Django Unchained,’ when you’re dealing with slavery, it’s like a gymnastics routine with the highest amount of difficulty. Quentin Tarantino is not going to do a movie that’s just going to lay there and be safe. There’s going to be twists and flips.
+ - Guys don’t adapt as well as women do to getting their heart broken for the first time. It’s tragic.
+ - I’m a real person, and I’m angry. I’m trying to use this celebrity thing to get people some help. AIDS, poverty, racism – I want to be one of the hands that helps stop all that. I’ll put it on my shoulders. I’ll charge it to my account.
+ - In our music, in our everyday life, there are so many negative things. Why not have something positive and stamp it with blackness?
+ - When I was growing up in Terrell, Texas, I felt that it was not where I was supposed to be. I knew that I was meant for a different destination. I think that the minute I was born, there was something inside telling me where I would go, it’s like energy – an intangible destiny.
+ - My worst hair experience was when I was trying to relax my hair and my grandmother did it. It went all straight and I looked like a black Bee Gee.
+ - I’m bad on Valentine’s Day, but even worse on Christmas. I go shopping at nine o’clock on December 24th every year. Nobody else is there. I’m in Toys’R’Us all by myself. I get there five minutes before closing.
+ - To be the leading man it’s about the celebrity and the looks, and it’s tough to do that. People who do it great are people like Tom Cruise and Will Smith – they’re built for that. I ain’t. I’m more of a character guy.
+ - A woman’s posterior is the key to my heart.
+ - I’ve been a sports fan all my life, and like most other actors, I’m convinced I could have been a pro athlete if Hollywood hadn’t come calling.
+ - I think Prince should open up a little more to other artists. Just because we love Prince. Especially the old stuff – we love him to death. But if he opened up he would be something to deal with. Imagine Kanye West producing a Prince track? It would be banoodles!
+ - We cannot turn our back and say that violence in films or anything that we do doesn’t have a sort of influence. It does.
+ - Every single thing in my life is built around race.
+ - I want to be the person who eventually doesn’t have to be in front of the camera. I can be behind the camera and really change things cinematically, and this is giving me an opportunity to do something behind the camera, which I really want to maximize.
+ - Actually, music gave me the support when I needed it. I would never have gone to college unless I’d gotten a piano scholarship. And now I’m so glad I got to learn to play the cello, which is a different experience, you’re flexing a different muscle, but it’s beautiful because it is music.
+ - When you’re an actor or actress in this business, usually the natural progression is to direct, but a lot of times, we don’t get a chance to get to it. Myself, I really want to get into it. I want to be the person who eventually doesn’t have to be in front of the camera.
+ - I had that upbringing. Of watching ‘Bonanza,’ watching ‘Hee Haw,’ which both black and white would watch. I rode horses. I did gun spinning as a kid. I do these things.
+ - Lil Wayne is a music god!!!!
+ - A lot of people may not know how competitive it is to play classical music, because when you think about it, the music that you’re playing is music that’s been here for years. And all you’re trying to do is improve upon it when you play.
+ - In looking at Hollywood and its structure, the director controls the medium, and I want to be in control of certain things. I want to be able to get my own ideas and my own feelings out there, and the only way to do that is to be behind the camera.
+ - I think girls have to play a little hard to get because we come with so much bravado.
+ - I really wanted to just be a musician. I didn’t want to be anything else, but I was funny and all that.
+ - You know what? I never really factor Hollywood into anything. I’m a black actor, so I can’t really control what Hollywood thinks. I gotta go do my thing, and my jokes have got to be funny. Whatever I do has got to be great.
+ - That’s what’s great about the arts. Everything inspires you, and you get a chance to grow from watching other people and how they do their work.
+ - When your movie is hot, your options are crazy.
+ - Man, after all my grandma put into me learning the piano, that was a hard day, telling her I was telling jokes for a living.
+ - But don’t get caught out there looking goofy. It’s weird. When you do something that stinks, it’s going to last forever on the Internet. There’s always someone in the audience with a camera phone and if you’re not 100%, you’re going to be watching yourself on YouTube.
+ - I try to be as honest and open as I am with everything that I do because it’s just, um, It helps me, you know, like whether it’s stand up or singing or act. I just try to stay true.
+ - I love music. I’ve always wanted to do music, even when I started out as a comedian.
+ - The most interesting thing about acting is when you go to the dark places, that’s a lot of energy. When you go to the happiest places, it’s also a lot of energy.
+ - Doc Rivers been hoarse since birth.
+ - As black folks we’re always sensitive. As a black person it’s always racial.
+ - Every two, three years there is a movie about the Holocaust because they want you to remember and they want you to be reminded of what it was. When was the last time you seen a movie about slavery?
+ - I don’t know if I’m built for marriage.
+ - I’ve had to be a man since I was 12 or 13. I had a job. And I was playing the piano for people twice my age. Handling responsibility is what makes a man a man.
+ - Then I was playing the piano at eight, and that helps you learn about women because most of the people I was playing for were women.
+
+59 quotes

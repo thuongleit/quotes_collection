@@ -1,0 +1,139 @@
+ - When you get into a tight place and everything goes against you, till it seems as though you could not hang on a minute longer, never give up then, for that is just the place and time that the tide will turn.
+ - Never give up, for that is just the place and time that the tide will turn.
+ - The bitterest tears shed over graves are for words left unsaid and deeds left undone.
+ - The longest day must have its close – the gloomiest night will wear on to a morning. An eternal, inexorable lapse of moments is ever hurrying the day of the evil to an eternal night, and the night of the just to an eternal day.
+ - The truth is the kindest thing we can give folks in the end.
+ - Prayer is a long rope with a strong hold.
+ - Human nature is above all things lazy.
+ - At last I have come into a dreamland...
+ - Gems, in fact, are a species of mineral flowers; they are the blossoms of the dark, hard mine; and what they want in perfume, they make up in durability.
+ - God washes the eyes by tears unil they can behold the invisible land where tears shall come no more.
+ - Women’s Day Women are the real architects of society.
+ - It’s a matter of taking the side of the weak against the strong, something the best people have always done.
+ - The longest way must have its close – the gloomiest night will wear on to a morning.
+ - All men are free and equal in the grave, if it comes to that.
+ - Praise is sunshine; it warms, it inspires, it promotes growth; blame and rebuke are rain and hail; they beat down and bedraggle, even though they may at times be necessary.
+ - True love ennobles and dignifies the material labors of life; and homely services rendered for love’s sake have in them a poetry that is immortal.
+ - For, so inconsistent is human nature, especially in the ideal, that not to undertake a thing at all seems better than to undertake and come short.
+ - It is no merit in the sorrowful that they weep, or to the oppressed and smothering that they gasp and struggle, not to me, that I must speak for the oppressed – who cannot speak for themselves.
+ - A woman’s health is her capital.
+ - I wrote what I did because as a woman, as a mother, I was oppressed and broken-hearted with the sorrows and injustice I saw, because as a Christian I felt the dishonor to Christianity – because as a lover of my county, I trembled at the coming day of wrath.
+ - I long to put the experience of fifty years at once into your young lives, to give you at once the key of that treasure chamber every gem of which has cost me tears and struggles and prayers, but you must work for these inward treasures yourself.
+ - To be really great in little things, to be truly noble and heroic in the insipid details of everyday life, is a virtue so rare as to be worthy of canonization.
+ - If women want any rights they had better take them, and say nothing about it.
+ - God has always been to me not so much like a father as like a dear and tender mother.
+ - Once in an age God sends to some of us a friend who loves in us, not a false-imagining, an unreal character, but looking through the rubbish of our imperfections, loves in us the divine ideal of our nature, – loves, not the man that we are, but the angel that we may be.
+ - The literature of a people must so ring from the sense of its nationality; and nationality is impossible without self-respect, and self-respect is impossible without liberty.
+ - Self respect is impossible without liberty...
+ - There is no phase of the Italian mind that has not found expression in its music.
+ - The power of fictitious writing, for good as well as evil is a thing which ought most seriously to be reflected on. No one can fail to see that in our day it is becoming a very great agency.
+ - Common sense is seeing things as they are; and doing things as they ought to be.
+ - Talk of the abuses of slavery! Humbug! The thing itself is the essence of all abuse!
+ - There is more done with pens than with swords.
+ - Midnight, – strange mystic hour, – when the veil between the frail present and the eternal future grows thin.
+ - Many a humble soul will be amazed to find that the seed it sowed in weakness, in the dust of daily life, has blossomed into immortal flowers under the eye of the Lord.
+ - There are in this world blessed souls, whose sorrows all spring up into joys for others; whose earthly hopes, laid in the grave with many tears, are the seed from which spring healing flowers and balm for the desolate and the distressed.
+ - Witness, eternal God! Oh, witness that, from this hour, I will do what one man can to drive out this curse of slavery from my land!
+ - Sweet souls around us watch us still, press nearer to our side; Into our thoughts, into our prayers, with gentle helpings glide.
+ - It takes years and maturity to make the discovery that the power of faith is nobler than the power of doubt; and that there is a celestial wisdom in the ingenuous propensity to trust, which belongs to honest and noble natures.
+ - Behold! thou hast one more chance! Strive for immortal glory!
+ - If we let our friend become cold and selfish and exacting without a remonstrance, we are no true lover, no true friend.
+ - All places where women are excluded tend downward to barbarism; but the moment she is introduced, there come in with her courtesy, cleanliness, sobriety, and order.
+ - No one is so thoroughly superstitious as the godless man.
+ - The pain of discipline is short, but the glory of the fruition is eternal.
+ - The past, the present and the future are really one: they are today.
+ - We should remember in our dealings with animals that they are a sacred trust to us from our Heavenly Father. They are dumb and cannot speak for themselves.
+ - Get your evidences of grace by pressing forward to the mark, and not by groping with a lantern after the boundary lines.
+ - My vocation to preach on paper.
+ - General rules will bear hard on particular cases.
+ - I am one of the sort that lives by throwing stones at other people’s glass houses, but I never mean to put up one for them to stone.
+ - I ’spect I growed. Don’t think nobody never made me.
+ - No one is so thoroughly superstitious as the godless man. Life and death to him are haunted grounds, filled with goblin forms of vague and shadowy dread.
+ - Love is very beautiful, but very, very sad.
+ - Dogs can bear more cold than human beings, but they do not like cold any better than we do; and when a dog has his choice, he will very gladly stretch himself on a rug before the fire for his afternoon nap.
+ - A ship is a beauty and a mystery wherever we see it...
+ - Your little child is the only true democrat.
+ - In the gates of eternity the black hand and the white hand hold each other with equal clasp...
+ - The beautiful must ever rest in the arms of the sublime. The gentle needs the strong to sustain it, as much as the rock-flowers need rocks to grow on, or the ivy the rugged wall which it embraces.
+ - Sensitive people never like the fatigue of justifying their instincts.
+ - Friends are discovered rather than made; there are people who are in their own nature friends, only they don’t know each other; but certain things, like poetry, music, and paintings are like the Freemason’s sign, they reveal the initiated to each other.
+ - Religion! Is what you hear at church religion? Is that which can bend and turn, and descend and ascend, to fit every crooked phase of selfish, worldly society, religion?
+ - Mothers are the most instinctive philosophers.
+ - Home is a place not only of strong affections, but of entire unreserve; it is life’s undress rehearsal, its backroom, its dressing room.
+ - I never thought my book would turn so many people against slavery.
+ - To do common things perfectly is far better worth our endeavor than to do uncommon things respectably.
+ - Half the misery in the world comes of want of courage to speak and to hear the truth plainly and in a spirit of love.
+ - O, ye who visit the distressed, do ye know that everything your money can buy, given with a cold, averted face, is not worth one honest tear shed in real sympathy?
+ - Friendships are discovered rather than made.
+ - The number of those men who know how to use wholly irresponsible power humanely and generously is small. Everybody knows this, and the slave knows it best of all.
+ - The hand of benevolence is everywhere stretched out, searching into abuses, righting wrongs, alleviating distresses, and bringing to the knowledge and sympathies of the world the lowly, the oppressed, and the forgotten.
+ - Rome is an astonishment!
+ - In all ranks of life the human heart yearns for the beautiful; and the beautiful things that God makes are his gift to all alike.
+ - A little reflection will enable any person to detect in himself that setness in trifles which is the result of the unwatched instinct of self-will and to establish over himself a jealous guardianship.
+ - Death! Strange that there should be such a word, and such a thing, and we ever forget it; that one should be living, warm and beautiful, full of hopes, desires and wants, one day, and the next be gone, utterly gone, and forever!
+ - The world has been busy for some centuries in shutting and locking every door through which a woman could step into wealth, except the door of marriage.
+ - Strange, what brings these past things so vividly back to us, sometimes!
+ - I would not attack the faith of a heathen without being sure I had a better one to put in its place.
+ - By what strange law of mind is it that an idea long overlooked, and trodden under foot as a useless stone, suddenly sparkles out in new light, as a discovered diamond?
+ - What makes saintliness in my view, as distinguished from ordinary goodness, is a certain quality of magnanimity and greatness of soul that brings life within the circle of the heroic.
+ - Let us never doubt everything that ought to happen is going to happen.
+ - People will accept your ideas much more readily if you tell them that Benjamin Franklin said it first. Perhaps it is impossible for a person who does no good to do no harm.
+ - There are two classes of human beings in this world: one class seem made to give love, and the other to take it.
+ - Cause I’s wicked, – I is. I’s mighty wicked, anyhow, I can’t help it.
+ - What a fool is he who locks his door to keep out spirits, who has in his own bosom a spirit he dares not meet alone; whose voice, smothered far down, and piled over with mountains of earthliness, is yet like the forewarning trumpet of doom!
+ - There is a great life-giving, warming power called Love, which exists in human hearts dumb and unseen, but which has no real life, no warming power, till set free by expression.
+ - It is one mark of a superior mind to understand and be influenced by the superiority of others.
+ - If you were not already my dearly loved husband I should certainly fall in love with you.
+ - A man builds a house in England with the expectation of living in it and leaving it to his children; we shed our houses in America as easily as a snail does his shell.
+ - It is generally understood that men don’t aspire after the absolute right, but only to do about as well as the rest of the world.
+ - There are griefs which grow with years.
+ - Can anybody tell what sorrows are locked up with our best affections, or what pain may be associated with every pleasure?
+ - Whatever offices of life are performed by women of culture and refinement are thenceforth elevated; they cease to be mere servile toils, and become expressions of the ideas of superior beings.
+ - Sublime is the dominion of the mind over the body, that, for a time, can make flesh and nerve impregnable, and string the sinews like steel, so that the weak become so mighty!
+ - Come down here once, and use your eyes, and you will know more than we can teach you.
+ - I b’lieve in religion, and one of these days, when I’ve got matters tight and snug, I calculates to tend to my soul...
+ - If you destroy delicacy and a sense of shame in a young girl, you deprave her very fast.
+ - The same quickness which makes a mind buoyant in gladness often makes it gentlest and most sympathetic in sorrow.
+ - Women are the true modelers of social order.
+ - One would like to be grand and heroic, if one could; but if not, why try at all? One wants to be very something, very great, very heroic; or if not that, then at least very stylish and very fashionable. It is this everlasting mediocrity that bores me.
+ - The greater the interest involved in a truth the more careful, self-distrustful, and patient should be the inquiry.
+ - It is always our treasure that the lightning strikes.
+ - It would be an incalculable gain to domestic happiness, if people would begin the concert of life with their instruments tuned to a very low pitch: they who receive the most happiness are generally they who demand and expect the least.
+ - Cathedrals do not seem to me to have been built. They seem, rather, stupendous growths of nature, like crystals, or cliffs of basalt.
+ - The person who decides what shall be the food and drink of a family, and the modes of its preparation, is the one who decides, to a greater or less extent, what shall be the health of that family.
+ - That ignorant confidence in one’s self and one’s future, which comes in life’s first dawn, has a sort of mournful charm in experienced eyes, who know how much it all amounts to.
+ - Money is a great help everywhere; – can’t have too much, if you get it honestly.
+ - Scenes of blood and cruelty are shocking to our ear and heart. What man has nerve to do, man has not nerve to hear.
+ - O, because I have had only that kind of benevolence which consists in lying on a sofa, and cursing the church and clergy for not being martyrs and confessors. One can see, you know, very easily, how others ought to be martyrs.
+ - Just so sure as one puts on any old rag, and thinks nobody will come, company is sure to call.
+ - There are in this world two kinds of natures, – those that have wings, and those that have feet, – the winged and the walking spirits. The walking are the logicians; the winged are the instinctive and poetic.
+ - So subtle is the atmosphere of opinion that it will make itself felt without words.
+ - Fanaticism is governed by imagination rather than judgment.
+ - Eyes that have never wept cannot comprehend sorrow.
+ - As oil will find its way into crevices where water cannot penetrate, so song will find its way where speech can no longer enter.
+ - In the old times, women did not get their lives written, though I don’t doubt many of them were much better worth writing than the men’s.
+ - It lies around us like a cloud- A world we do not see; Yet the sweet closing of an eye May bring us there to be.
+ - Everyone confesses in the abstract that exertion which brings out all the powers of body and mind is the best thing for us all; but practically most people do all they can to get rid of it, and as a general rule nobody does much more than circumstances drive them to do.
+ - The ship, built on one element, but designed to have its life in another, seemed an image of the soul, formed and fashioned with many a weary hammer-stroke in this life, but finding its true element only when it sails out into the ocean of eternity.
+ - Nobody had ever instructed him that a slave-ship, with a procession of expectant sharks in its wake, is a missionary institution, by which closely-packed heathen are brought over to enjoy the light of the Gospel.
+ - Whipping and abuse are like laudanum: you have to double the dose as the sensibilities decline.
+ - Children will grow up substantially what they are by nature – and only that.
+ - Where painting is weakest, namely, in the expression of the highest moral and spiritual ideas, there music is sublimely strong.
+ - The obstinacy of cleverness and reason is nothing to the obstinacy of folly and inanity.
+ - Let my soul calm itself, O Christ, in Thee. This is true.
+ - I no more thought of style or literary excellence than the mother who rushes into the street and cries for help to save her children from a burning house, thinks of the teachings of the rhetorician or the elocutionist.
+ - So much has been said and sung of beautiful young girls, why doesn’t somebody wake up to the beauty of old women.
+ - Any mind that is capable of real sorrow is capable of good.
+ - Greek is the morning land of languages, and has the freshness of early dew in it which will never exhale.
+ - One part of the science of living is to learn just what our own responsibility is, and to let other people’s alone.
+ - Great as the planning were for the dinner, the lot was so contrived that not a soul in the house be supposed to be kept from the break of day ceremony of Blessing in the church.
+ - Perhaps it is impossible for a person who does no good to do no harm.
+ - It has always been a favorite idea of mine, that there is so much of the human in every man, that the life of any one individual, however obscure, if really and vividly perceived in all its aspirations, struggles, failures, and successes, would command the interest of all others.
+ - If I am to write, I must have a room to myself, which shall be my room.
+ - No ornament of a house can compare with books; they are constant company in a room, even when you are not reading them.
+ - Of course, in a novel, people’s hearts break, and they die and that is the end of it; and in a story this is very convenient. But in real life we do not die when all that makes life bright dies to us.
+ - O, what an untold world there is in one human heart!
+ - People who hate trouble generally get a good deal of it.
+ - Let us resolve: First, to attain the grace of silence; second, to deem all fault finding that does no good a sin; third, to practice the grade and virtue of praise.
+
+137 quotes

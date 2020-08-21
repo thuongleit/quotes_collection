@@ -1,0 +1,37 @@
+ - Just leave me alone. I’m not myself. I’m falling apart, and I don’t want you here.
+ - I don’t know what’s worse: to not know what you are and be happy, or to become what you’ve always wanted to be, and feel alone.
+ - A child may not know how to feed itself, or what to eat, yet it knows hunger.
+ - I am afraid. Not of life, or death, or nothingness, but of wasting it as if I had never been.
+ - That’s the thing about human life – there is no control group, no way to ever know how any of us would have turned out if any variables had been changed.
+ - Intelligence and education that hasn’t been tempered by human affection isn’t worth a damn.
+ - How strange it is that people of honest feelings and sensibilty, who would not take advantage of a man born without arms or legs or eyes – how such people think nothing of abusing a man with low intelligence.
+ - The answer can’t be found in books – or be solved by bringing it to other people. Not unless you want to remain a child all your life. You’ve got to find the answer inside you – feel the right thing to do. Charlie, you’ve got to learn to trust yourself.
+ - The path I choose through the maze makes me what I am. I am not only a thing, but also a way of being – one of many ways – and knowing the paths I have followed and the ones left to take will help me understand what I am becoming.
+ - Even in the world of make-believe there have to be rules. The parts have to be consistent and belong together.
+ - I can’t afford to spend my time with anyone – there’s only enough left for myself.
+ - Its easy to make frends if you let pepul laff at you.
+ - Who’s to say that my light is better than your darkness? Who’s to say death is better than your darkness? Who am I to say?
+ - Why am I always looking at life through a window?
+ - Strange about learning; the farther I go the more I see that I never knew even existed.
+ - Even in the world of make-believe there have to be rules. The parts have to be consistent and belong together. This kind of picture is a lie. Things are forced to fit because the writer or the director or somebody wanted something in that didn’t belong. And it doesn’t feel right.
+ - So this is how a person can come to despise himself-knowing he’s doing the wrong thing and not being able to stop.
+ - Punctuation, is? fun!
+ - I put Algernon’s body in a cheese box and buried him in the backyard. I cried.
+ - Only a short time ago, I learned that people laughed at me. Now I can see that unknowingly I joined them in laughing at myself. That hurts the most.
+ - The universe was exploding, each particle away from the next, hurtling us into dark and lonely space, eternally tearing us away from each other – child out of the womb, friend away from friend, moving from each other, each through his own pathway towards the goal-box of solitary death.
+ - No one really starts anything new, Mrs. Nemur. Everyone builds on other men’s failures. There is nothing really original in science. What each man contributes to the sum of knowledge is what counts.
+ - How can I make him understand that he did not create me? He makes the same mistake as the others when they look at a feeble-minded person and laugh because they don’t understand there are human feelings involved.
+ - Now I understand that one of the important reasons for going to college and getting an education is to learn that the things you’ve believed in all your life aren’t true, and that nothing is what it appears to be.
+ - People think it’s funny when a dumb person can’t do things the same way they can.
+ - There are a lot of people who will give money or materials, but very few who will give time and affection.
+ - I may not have all the time I thought I had...
+ - Strange about learning; the farther I go the more I see that I never knew even existed. A short while ago I foolishly thought I could learn everything – all the knowledge in the world. Now I hope only to be able to know of its existence, and to understand one grain of it. Is there time?
+ - What an incredible thing! How much less they had than other human beings. Mentally retarded, deaf, mute – and still eagerly sanding benches.
+ - Life and work are the most wonderful things a man can have.
+ - If your smart you can have lots of frends to talk to and you never get lonley by yourself all the time.
+ - Because I want to see. I’ve got to know what’s going to happen while I’m still enough in control to be able to do something about it.
+ - The only question now is: How much can I hang on to?
+ - I was her bestist pupil in the Beckman School for retarted adults and I tryed the hardist becus I reely wantd to lern I wantid it more even then pepul who are smarter even then me.
+ - When he admitted this to me, I found myself almost annoyed. It was as if he’d hidden this part of himself in order to deceive me, pretending – as do many people I’ve discovered – to be what he is not. No one I’ve ever known is what he appears to be on the surface.
+
+35 quotes

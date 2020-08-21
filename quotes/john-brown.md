@@ -1,0 +1,26 @@
+ - The same eye cannot both look up to heaven and down to earth.
+ - Here, before God, in the presence of these witnesses, from this time, I consecrate my life to the destruction of slavery!
+ - Caution, Sir! I am eternally tired of hearing that word caution. It is nothing but the word of cowardice!
+ - I never wanted to fight against the Union, but could not turn my back on Virginia.
+ - Be mild with the mild, shrewd with the crafty, confiding to the honest, rough to the ruffian, and a thunderbolt to the liar. But in all this, never be unmindful of your own dignity.
+ - Holiness does not consist in mystic speculations, enthusiastic fervours, or uncommanded austerities; it consists in thinking as God thinks, and willing as God wills.
+ - I have been whipped, as the saying is, but I am sure I can recover all the lost capital occasioned by that disaster; by only hanging a few moments by the neck; and I feel quite determined to make the utmost possible out of a defeat.
+ - I am worth inconceivably more to hang than for any other purpose.
+ - I am quite certain that the crimes of this guilty land will never be purged away but with blood. I had, as I now think vainly, flattered myself that without very much bloodshed it might be done.
+ - I don’t think the people of the slave states will ever consider the subject of slavery in its true light till some other argument is resorted to other than moral persuasion.
+ - Symptoms are the body’s mother tongue; signs are in a foreign language.
+ - I cannot remember a night so dark as to have hindered the coming day.
+ - I think every family should have a dog; it is like having a perpetual baby; it is the plaything and crony of the whole house. It keeps them all young.
+ - These men are all talk; What is needed is action – action!
+ - The angels are ministering spirits; they are not governing spirits.
+ - The act of focusing our mightiest intellectual resources on the elusive goal of goto-less programs has helped us get our minds off all those really tough and possibly unresolvable problems and issues with which today’s professional programmer would otherwise have to grapple.
+ - No man, with a man’s heart in him, gets far on his way without some bitter, soul-searching disappointment. – Happy he who is brave enough to push on another stage of the journey, and rest where there are “living springs of water, and three-score and ten palms.”
+ - So far as I ever observed God’s dealings with my soul, the flights of preachers sometimes entertained me, but it was Scripture expressions which did penetrate my heart, and in a way peculiar to themselves.
+ - I am gaining in health slowly, and am quite cheerful in view of my approaching end, – being fully persuaded that I am worth inconceivably more to hang than any other purpose.
+ - It is not a case we are treating; it is a living, palpitating, alas, too often suffering fellow creature.
+ - I was shot down by a fifth ball, which struck me squarely in the face, and passed out.
+ - I will answer anything I can with honor, but not about others.
+ - There is a shrine in the temple of age, where lie forever embalmed the memories of such as have deserved well of their country and their race.
+ - The United States is a place where the men govern, but the women rule.
+
+24 quotes

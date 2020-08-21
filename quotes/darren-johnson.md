@@ -1,0 +1,36 @@
+ - Your destiny is in your hands. Creating the life you want is only, and always, up to you.
+ - Whatever you do, never stop dreaming.
+ - If you want to grow, you must learn to let go.
+ - We all talk to ourselves. A major key to success exists in what we say to ourselves, which helps to shape our attitude and mindset.
+ - The ego constantly competes with the spirit for control over your inner voice.
+ - Your behavior is based on your beliefs, and what you do and say, over and over again, helps develop your habits.
+ - In order to grow, you must learn to let go and strive toward something greater.
+ - I believe it is important for people to create a healthy mental environment in which to accomplish daily tasks.
+ - Forgiveness leads to love, and love leads to forgiveness.
+ - We all must learn to dig down deep inside, trust that inner voice, and not be afraid to face and forgive ourselves.
+ - Your spirit is the universal voice of love – in you.
+ - Giving up represents a choice you make when you decide not to take action on something over which you actually do have control.
+ - Anytime there is a struggle between doing what is actually right and doing what seems right, then your ego is interfering with your decision.
+ - Acknowledging and accepting whatever stuff you may have to let go comes easier when you love yourself.
+ - How you manage yourself as you deal with stuff in your life largely determines the quality of your life.
+ - Be who you want to be, do what it takes to be that way, and in time, you will have what you want in life.
+ - Change is wonderful, and necessary.
+ - Long-lasting change that will help you create new habits and actions requires an inside-out approach, as well as two very important tools: the mirror and time.
+ - A big part of letting go is recognizing when it is time to stay in a situation and when it is time to move on.
+ - Don’t get too caught up in making money or having a job, get excited about the fact that you can design your life.
+ - When you do not know how to focus your thoughts effectively, they can become scattered, miscellaneous, and fixated on “stuff negative notions, toxic relationships, and situations from the past.”
+ - Love is the foundation from which your decisions about your life should be made.
+ - Ultimately, your state of mind determines your circumstances. To realize the outcomes you want, it is critical to recognize and experience the transition from our present thoughts, habits, and actions to new thoughts, habits, and actions.
+ - When you accept the fact you have no control and choose not to take any action, you are letting go.
+ - Do not lose hope in what the universe has placed you here to do.
+ - I finally learned to live in the present and focus only on what I want rather than what I don’t want.
+ - The process of letting go is like taking a journey to the center of your being.
+ - Choosing to be miserable is an option, but not one I recommend.
+ - If our core belief is based on what other people think, then we eventually will allow their opinions to become our reality.
+ - Believing in who you are is a major part of a powerful combination for success.
+ - Although most of us realize what we control and do not control, we live as though we do not really know, and in some cases we spend years focusing on things we cannot control.
+ - If we need to be reminded to love one another, then we have already lost sight of the very essence of our existence.
+ - In order to change unwanted habits and actions, it is important to take the time to get to know yourself.
+ - Fear stimulates us to take action and can be our friend, but if you act as though fear is not there-if you deny it-it will build and create barriers.
+
+34 quotes

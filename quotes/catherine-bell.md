@@ -1,0 +1,31 @@
+ - I love to go bungee jumping, jump out of planes, ride motorbikes, do kickboxing. I love all that stuff.
+ - I love England though; I’ve been back a few times and just love it. My favorite thing to do there is going to museums and all the castles. Oh, and my husband and I went mountain biking across England on our honeymoon!
+ - I’m a firm believer in doing things that scare you.
+ - JAG is an acronym for the Judge Advocate General, which is the judicial system of the military.
+ - I think it’s great that she’s not perfect and wasn’t perfect. I think that’s maybe why so many young girls and different people look up to Mac and respect her even more.
+ - Probably right at the end of JAG, I would love to have a child or two. I ultimately want to have two kids.
+ - I’ve always been like that. I was a tomboy when I was a kid, so I was always playing baseball and basketball and football and stuff as a kid with the boys.
+ - I think my uncle was probably the biggest influence in my life. We grew up in the same house, and he was just a really great, hard-working, honest, ethical person.
+ - I’ve always wanted to produce. I’ve had my production company name for years, even though I didn’t really do anything with it right away.
+ - The main prank that we play with props is for people’s birthdays. The special effects people will put a little explosive in the cake so it blows up in their face – that’s always fun to play on a guest star, or one of the trainees or someone who’s new.
+ - People are always surprised that I have a funny side because I’m usually so intense, strong and dramatic. But, I’d love to do something really, really silly and funny.
+ - Producing is very much like running a business, where you find the project, you find the different people involved, you put the elements together, and you make sure they all work together well.
+ - When I do get time, I like to hike and I take lots of vitamins and powders to keep healthy.
+ - I understand men much better than most women I know.
+ - We’re just into toys, whether it’s motorcycles or race cars or computers. I’ve got the Palm Pilot right here with me, I’ve got the world’s smallest phone. Maybe it’s just because I’m still a big little kid and I just love toys, you know?
+ - Sometimes you work all the way through to 5am, then get a few hours and you’re back on set again.
+ - I didn’t figure out the makeup or cute hair or clothes until oh, maybe my junior year of high school.
+ - I’ve been playing a lot of really strong, able woman, but I think it would be really fun to play a crazy drug addict, or something.
+ - But, people are recognizing me more. Sometimes fans just approach me on the street and say how much they love the show. It’s great to get that kind of feedback.
+ - When all the girls were getting all made up and getting into all that girl stuff in junior high I was out playing softball or touch football with the guys.
+ - I’ve always thought of myself as a businesswoman. I have the creative side, but I also have this business sense.
+ - I started when I was in college because I was shy and thought it would be a good way to break out of that.
+ - Not as much as I used to, but I use the Internet for everything. I use it for information. Like if I’m planning a trip or something, I’ll check out the place I’m going to.
+ - I like all the adventure sports but I like to do them in a safe way.
+ - It’s changing a bit, but the thing in LA is everyone is either in the industry, or knows someone who is in the industry. So, they don’t let on that they recognize you, that’s what I’ve found out.
+ - I started acting when I was about 18. I was a model for a couple of years before that.
+ - The best part? Probably being able to portray such a respectable, ethical, intelligent, strong woman. That’s still pretty rare in our business, unfortunately.
+ - Almost every Marine I’ve met says I portray a Marine dead-on, which is really, really flattering.
+ - I’m still one of the guys and I always will be.
+
+29 quotes

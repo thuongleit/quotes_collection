@@ -1,0 +1,84 @@
+ - I am learning all the time. The tombstone will be my diploma.
+ - It’s all about falling in love with yourself and sharing that love with someone who appreciates you, rather than looking for love to compensate for a self love deficit.
+ - I fall in love with myself, and I want someone to share it with me. And I want someone to share me, with me.
+ - I’m a dirt person. I trust the dirt. I don’t trust diamonds and gold.
+ - Greed is so destructive. It destroys everything.
+ - I’ve never felt that fear is my enemy. Fear is my friend. It offers me a chance to stay alert, keep growing, continue creating something new. If you don’t take that sort of risk, you learn nothing.
+ - Truth is a theory that is constantly being disproved. Only lies, it seems, go on forever.
+ - I have to keep testing myself.
+ - The price we pay for being ourselves is worth it.
+ - I stayed on my own path and did not follow the herd. I made a way for myself.
+ - A man has always wanted to lay me down but he never wanted to pick me up.
+ - People these days are thinking less and drinking more.
+ - My recipe for life is not being afraid of myself, afraid of what I think or of my opinions.
+ - This is where you see the truth of entertainment, because it is not edited. You see it on stage as it is happening. Even if we fall down or forget our words, it’s a part of live entertainment.
+ - Sometimes it’s good to fall down to see who will pick you up.
+ - You don’t move just because you want to go from this point to that point – the body has to be using the words as well as you vocally use the words.
+ - I punish myself more than anybody else does if I am stupid about my actions, and I suffer, really suffer.
+ - I am the last of the Mohicans, the creme de la creme of cabaret.
+ - Greed can be very dangerous because you sacrifice your soul for the sake of something material, and then you start sacrificing people in order to keep that which is material.
+ - When we want to have our own style of living, it is nobody’s business but ours. What we do in private is our private business.
+ - Thank God I got the rejects. These animals are very, very affectionate.
+ - The river is constantly turning and bending and you never know where it’s going to go and where you’ll wind up. Following the bend in the river and staying on your own path means that you are on the right track. Don’t let anyone deter you from that.
+ - If you’re looking for immediate rewards, you’re only looking for the money.
+ - People in general are used to seeing me as the naughty girl because that’s what they’ve always cast me as.
+ - Don’t depend on other people to be responsible for you. Don’t make yourself stressed out over nonsensical things like material things.
+ - I love men and I like to get their attention.
+ - I’m still with that feeling that I am afraid of doing the wrong thing, because somebody is going to punish me.
+ - The stage floor was a stage of thin ice for me to tread. To hold my own or to sink through and die, never to be remembered.
+ - I have used all the manure that has been thrown on me as fertilizer to make me stronger.
+ - Young ghetto boys thought that in this society, the good guys lost and the bad guys won.
+ - I love to tease men with my legs.
+ - I said to the president’s wife, Vietnam is the main reason we are having trouble with the youth of America. It is a war without explanation or reason.
+ - I love being in America. I used to love traveling and I am glad that I was able to go around the world. I still love to go to Europe, but I always want to come home.
+ - Everything should be done with moderation and using common sense.
+ - I sent my daughter 40 roses last November because I thought she was 40. And she laughed her head off. She is not going to be 40 until this year!
+ - The boys that were running away from America because they didn’t want to get involved with the Vietnam War had come to me. They would tell me how they felt.
+ - I’ve always said to my men friends, If you really care for me, darling, you will give me territory. Give me land, give me land.
+ - I was given away. If your mother gives you away, you think everybody who comes into your life is going to give you away.
+ - Aging has a wonderful beauty and we should have respect for that.
+ - Orson Welles was one of these people who was defying everything the doctors told him he wasn’t supposed to be doing. He was really enjoying himself when he was eating what he wanted to eat.
+ - When the Batman TV series was taken to the silver screen, one of America’s favourite sweethearts would don the mask and claws of Catwoman.
+ - Thank God you’ve got a sense of humor, or you’d be in trouble.
+ - Just because you are different does not mean that you have to be rejected.
+ - Having my animals or my children with me exorcises that feeling of not being wanted.
+ - Jewelry, to me, is a pain in the derriere, because you have to be watching it all the time.
+ - I still can’t go over a subway grating without looking down to see if there is some money there.
+ - I am the original Material Girl.
+ - I never take anything for granted. I may slip any minute.
+ - You send the best of this country off to be shot and maimed. No wonder the kids rebel and take pot.
+ - I was trying to find out who my father was. They say that at that time, that if you are illegitimate, the father doesn’t have to put his name down on the certificate.
+ - In essence, I’m a sophisticated cotton picker.
+ - I used to love it when I walked down the street and construction workers would whistle.
+ - It’s best if you can do things with a sense of humor and finesse.
+ - Innocence is one of the most exciting things in the world.
+ - I don’t believe in bringing children into the world out of wedlock.
+ - Dr. Einstein was not successful in school, but he found something in the air from his own imagination and his own brain power, and look what he did.
+ - The biggest family in the world is my fans.
+ - I am a mother and I know the feeling of having a baby come out of my gut.
+ - I fight for other people better than I fight for myself.
+ - My house was bugged. They couldn’t find any information on me being a subversive because I happen to love America; I just don’t like some of the things the government is doing.
+ - The thing that hurts, that became anger, was when I realized that if you tell the truth, in a country that says you’re entitled to tell the truth, you get your face slapped and you get put out of work.
+ - Dallas is where Kennedy was shot, and that’s where I was put in jail.
+ - A cat is a cat. She has no race creed or collar.
+ - Live theater to me is much more free than the movies or television.
+ - I am still confused because I still don’t know who my father is. And so who is my mother? The feeling is still there.
+ - When I played Lady Day, I took Aba onstage with me as a joke. He started singing-in tune!-and the audience loved it.
+ - I am always trying to eat the right kind of foods that are going to keep me healthy.
+ - I would like to be writing more because people are constantly asking me questions, and I write down what they are asking me.
+ - I am supposed to be, according to what I am told, one of the children of the cotton plantation owner’s sons. If I could prove that, I’d own the whole goddamn everything.
+ - Even as a child, I found a way to survive.
+ - Generally the whole entertainment business now is bland.
+ - I always believe in living in the country, because that’s where what I eat is what I can put back in the dirt.
+ - In 1992, fans of our feline temptress got another chance to sink their claws into the new and exciting tales of Catwoman in Batman: The Animated Series.
+ - I have been nominated three times. I have the little pieces of paper to prove it.
+ - I don’t wear my political feelings on my sleeve. However, if I’m asked, I will answer honestly.
+ - I don’t think I ever really got interested in theater.
+ - When my baby was born I had to know how to save her in case she fell in the pool or something like that. I went to one of these nursing places to learn how to take care of the child.
+ - When the people who are responsible for our country ask you a direct question, I expect them to accept a direct answer, not to be blackballed because you are telling the truth.
+ - I was invited to a luncheon with 49 other women to give my opinions about the problematic situation among young people. They wanted me to talk about why is there so much juvenile delinquency in the streets of America.
+ - Let’s take care of the necessities first: give people jobs, and find a way to get us out of poverty.
+ - The public has become my fairy godmother.
+ - I used to teach dance lessons.
+
+82 quotes

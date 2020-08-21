@@ -1,0 +1,26 @@
+ - People aren’t rational. We’re not thinking machines, we’re – we’re feeling machines that happen to think.
+ - I am the bridge between the bleeding edge and the dead center. I stand between the Wizard of Oz and the man behind the curtain. I am the curtain.
+ - Science is so powerful that it drags us kicking and screaming towards the truth despite our best efforts to avoid it.
+ - Brains are survival engines, not truth detectors.
+ - How do you say ‘We come in peace’ when the very words are an act of war?
+ - Not even the most heavily-armed police state can exert brute force to all of its citizens all of the time. Meme management is so much subtler; the rose-tinted refraction of perceived reality, the contagious fear of threatening alternatives.
+ - This is how you communicate with a fellow intelligence: You hurt it, you keep on hurting it, until you can distinguish the speech from the screams.
+ - You are. I’m just fatalistically cheerful. We all come into the story halfway through, we all catch up as best we can, and we’re all gonna die before it ends.
+ - Stars, everywhere. So many stars that I could not for the life me understand how the sky could contain them all yet be so black.
+ - But when the flash flood crosses your path, when the lion leaps at you from the grasses, advanced self-awareness is an unaffordable indulgence. The brain stem does its best.
+ - It’s not in the nature of the lamb to mourn the lion.
+ - There’s no such things as survival of the fittest. Survival of the most adequate, maybe. It doesn’t matter whether a solution’s optimal. All that matters is whether it beats the alternative.
+ - I really wanted to talk to her. I just couldn’t find an algorithm that fit.
+ - The most altruistic and sustainable philosophies fail before the brute brain stem imperative of self-interest.
+ - What’s the difference between being dead, and just not knowing you’re alive?
+ - Radar is too long in the tooth for fine detail.
+ - Are you kidding? That’s the music of the spheres, commissar. It’s beautiful. Like old jazz.
+ - If believing absurd falsehoods increase the odds of getting laid or avoiding predators, your brain will believe those falsehoods with all its metaphorical little heart.
+ - What’s the survival value of obsessing on a sunset?
+ - But pattern-matching doesn’t equal comprehension.
+ - If the rest of your brain were conscious, it would probably regard you as the pointy-haired boss from Dilbert.
+ - Humans didn’t really fight over skin tone or ideology; those were just handy cues for kin-selection purposes. Ultimately it always came down to bloodlines and limited resources.
+ - We are not thinking machines...
+ - Property damage is so much easier to live with than murder.
+
+24 quotes

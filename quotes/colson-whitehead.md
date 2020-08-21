@@ -1,0 +1,30 @@
+ - It is failure that guides evolution; perfection provides no incentive for improvement, and nothing is perfect.
+ - A monster is a person who has stopped pretending.
+ - Sanctimony and self-regard are as American as smallpox blankets and supersize meals.
+ - What isn’t said is as important as what is said.
+ - Growing up devouring horror comics and novels, and being inspired to become a writer because of horror novels, movies, and comic books, I always knew I was going to write a horror novel.
+ - A society manufactures the heroes it requires.
+ - We never see other people anyway, only the monsters we make of them.
+ - In terms of why everything is different, each book is different than the one before because I’m so bored of what I just finished I want to work on something different. The next book becomes an antidote to what I did before.
+ - New York City does not hold our former selves against us. Perhaps we can extend the same courtesy.
+ - The only time “early bloomer” has ever been applied to me is vis-a-vis my premature apprehension of the deep dread-of-existence thing. In all other cases, I plod and tromp along. My knuckles? Well dragged.
+ - Pain could be killed. Sadness could not, but the drugs did shut its mouth for a time.
+ - Most people say, “Show, don’t tell,” but I stand by Show and Tell, because when writers put their work out into the world, they’re like kids bringing their broken unicorns and chewed-up teddy bears into class in the sad hope that someone else will love them as much as they do.
+ - Memory is the most malicious cutter of all, preserving, recasting, panning in slow motion across the awful bits so that we retain every detail.
+ - New York City in life was much like New York City in death. It was still hard to get a cab, for example.
+ - I can’t blame modern technology for my predilection for distraction, not after all the hours I’ve spent watching lost balloons disappear into the clouds. I did it before the Internet, and I’ll do it after the apocalypse, assuming we still have helium and weak-gripped children.
+ - I write books and either people read them or they don’t read them. The rise of Facebook or e-books doesn’t change the difficulty level of writing sentences and thinking up new ideas.
+ - I write the books that I’m compelled to and I definitely learn things about the world when I write them, and I hope that other people get something out of them, enjoy them, see the world differently when they’re done.
+ - You are a New Yorker when what was there before is more real and solid than what is here now.
+ - I think being a writer was a crappy job when you just had typewriters. It was crappy when we just had ink and paper. And it’s sort of crappy now. It’s always just you and the page. That doesn’t change.
+ - His legs remembered the correct position for squatting down with toys. He played. He fit the round male studs into the round female grooves. He got some thinking done as he hunkered down on his fallen-sleep legs.
+ - There will be no redemption because the men who run this place do not want redemption. They want to be as near to hell as they can.
+ - It had been a humdrum couple of days, reaffirming his belief in reincarnation: everything was so boring that this could not be the first time he’d experienced it.
+ - If I have three ideas and I’m working on one more than the others, that sort of tells me that I should work on that one.
+ - In other words, fiction is payback for those who have wronged you.
+ - Google “brooklyn writer” and you’ll get, Did you mean: the future of literature as we know it?
+ - Early on my career, I figured out that I just have to write the book I have to write at that moment. Whatever else is going on in the culture is just not that important. If you could get the culture to write your book, that would be great. But the culture can’t write your book.
+ - Talking about New York is a way of talking about the world.
+ - I like movies. I’ve written screenplays as a sort of procrastination thing for me. Like I’ll work for a couple months on this idea that’s been kicking around and then like 30 pages in I’ll just go try a novel because it’s a lot easier. That’s what I know. So why am I killing myself?
+
+28 quotes

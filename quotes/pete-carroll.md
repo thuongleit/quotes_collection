@@ -1,0 +1,40 @@
+ - It’s about being the very best you can be. Nothing else matters as long as you’re working and striving to be your best. Always compete. It’s truly that simple. Find the way to do your best. Compete in everything you do.
+ - If you create a vision for yourself, and stick with it, you can make amazing things happen in your life.
+ - Stay hungry, remain humble and get better today.
+ - The only competition that matters is the one that takes place within yourself.
+ - If you want to win forever, you’ve got to ALWAYS COMPETE.
+ - Relentless pursuit to find a competitive edge.
+ - Each person holds so much power within themselves that needs to be let out. Sometimes they just need a little nudge, a little direction, a little support, a little coaching, and the greatest things can happen.
+ - Winning Forever is not about the final score; it’s about competing and striving to be the best. If you are in this pursuit, then you’re already winning.
+ - If you want to be great, do it. There’s nothing holding you back. It’s all in your control.
+ - People make mistakes all the time. We learn and grow. If theres patience and love, and you care for people, you can work them through it, and they can find their greatest heights.
+ - It isn’t about the words you say. It’s about the energetic message you send.
+ - It’s simple, really: Be great right now so that you can be great later on.
+ - I’m talking about: Are we competing today, every minute, in everything we do in practice. Are we letting loose and daring to be great here and now? And can we sustain that? And repeat it. Trophies are great, but we’re trying to win forever.
+ - The thing that always strikes me is how much power one person has. Everybody has so much power to help and to change if they just exercise it and get after it.
+ - It comes down to taking care of the people in your program and making them the best they can be-not giving up on them and never failing to be there for them.
+ - Each nanosecond of history branches off into an infinite amount of parallel universes.
+ - The open side Defensive End has to be one of your best football players. Size does not matter as much. We want an athletic player who can move around.
+ - Of course we want to win every game, but winning forever is more about realizing your potential and making yourself as good as you can be. Realizing that is a tremendous accomplishment, whether it’s in football or in life.
+ - Think of your favorite teacher you ever had in school: the one who made it the most fun to go to class. They surprise you. They keep you guessing. They keep you coming back, wanting to know whats going to happen next.
+ - You’re either competing or you’re not.
+ - It’s about us getting ready to play. It’s not about the other team. We’ll beat ourselves before they beat us. That’s always our approach.
+ - That’s the interesting thing about the philosophy – to accomplish the grand, you have to focus on the small. To exist in the eternal perspective, you have to live in the moment.
+ - Once you’re a football player, you’re a football player for life. You always think of yourself in terms of that. We all do. It’s hard to get rid of when you can’t play anymore.
+ - I can’t ask the offense to score slower.
+ - I am an example of a person who got zeroed into a philosophy early.
+ - At the highest level in the NFL, the pass game is as complex as you can imagine.
+ - We live in a world that needs entertainment. And that entertainment has to be provided by men who sweat and bleed.
+ - We’re not going to do anything different for this game since we’re not treating this game any different than another game. Every game is a championship game for us, so we’ll treat this one, the last one and the next one exactly the same. And that goes for our practices leading up to it as well.
+ - I will always be interested in the truth, yeah.
+ - Congrats to Clare Farnsworth on a legendary career! One of the all-time great Seahawks! We will miss you Clare!
+ - Russell Wilson has got a tremendous competitive mindset and it stems from the confidence that he feels based on the preparation that he puts in.
+ - And sure, there’s a universe where I made a bonehead call that blew the Super Bowl. But that’s not my universe.
+ - I would say that we have to explore and find ways to make our game a better game and take care of our players in whatever way possible. Regardless of what other stigmas might be involved, we have to do this because the world of medicine is doing this.
+ - I just don’t feel like you can have enough speed pass rushers on your club.
+ - So, regardless of what they do, we have to play like we’re capable of playing. That’s a greater challenge in itself, but that’s really what we’re after.
+ - Regardless of what other stigmas may be involved, I think we have to do this because the world of medicine is trying to do the exact same thing and figure it out and they’re coming to some conclusions.
+ - He has to be a great teacher. You have to have the right stuff and in the right proportions, and you have to convey that to the coaches, and then to the players.
+ - I wanted to find out if we went to the NFL and really took care of guys, really cared about each and every individual, what would happen?
+
+38 quotes

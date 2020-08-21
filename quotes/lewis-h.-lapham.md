@@ -1,0 +1,64 @@
+ - Dissent is what rescues democracy from a quiet death behind closed doors.
+ - The future is an empty canvas or a blank sheet of paper, and if you have the courage of your own thought and your own observation you can make of it what you will.
+ - In the garden of tabloid delight, there is always a clean towel and another song.
+ - I never can pass by the Metropolitan Museum of Art in New York without thinking of it not as a gallery of living portraits but as a cemetery of tax-deductible wealth.
+ - Leadership consists not in degrees of technique but in traits of character; it requires moral rather than athletic or intellectual effort, and it imposes on both leader and follower alike the burdens of self-restraint.
+ - The practice of our democracy depends on a sense of, and knowledge of, history in the same way that playing in the World Series requires a bat and a ball.
+ - Seeking the invisible through the imagery of the visible, the Americans never can get quite all the way to the end of the American dream.
+ - Power broken into a thousand pieces can be hidden and disowned. If no individual or institution possesses the authority to act without of everybody else in the room, then nobody is at fault if anything goes wrong.
+ - The world goes on as before, and it turns out that nobody else seems to to notice the unbearable lightness of being.
+ - History is not what happened 200 or 2,000 years ago; it’s a story about what happened 200 or 2,000 years ago.
+ - Leadership consists not in degrees of technique but in traits of character.
+ - The leading cause of death is birth.
+ - People may expect too much of journalism. Not only do they expect it to be entertaining, they expect it to be true.
+ - The national distrust of the contemplative temperament arises less from an innate Philistinism than from a suspicion of anything that cannot be counted, stuffed, framed or mounted over the fireplace in the den.
+ - But the line of thought that I’d been chasing for several days was implicit in the ruins of the old Roman Empire, which gradually destroyed itself by substituting the faith in a legion of miraculous words for the strength of armies and the weight of walls.
+ - The American oligarchy increasingly has less in common with the American people than it does with the equivalent oligarchies in Germany or Mexico or Japan.
+ - More than illness or death, the American journalist fears standing alone against the whim of his owners or the prejudices of his audience. Deprive William Safire of the insignia of the New York Times, and he would have a hard time selling his truths to a weekly broadsheet in suburban Duluth.
+ - The pose of innocence is as mandatory as the ability to eat banquet food and endure the scourging of the press.
+ - If you wear a suit, you can talk to anybody.
+ - Power broken into a thousand pieces can be hidden and disowned.
+ - Youth as glimpsed by its elders is a story that comes from afar, showing itself as either lovely to look at or a torment to endure.
+ - When we talk about the foreign, the question becomes one of us versus them. But in the end, is one just the opposite side of the other?
+ - As many as six out of ten American adults have never read a book of any kind, and the bulletins from the nation’s educational frontiers read like the casualty reports from a lost war.
+ - Democracy is a difficult art of government, demanding of its citizens high ratios of courage and literacy, and at the moment we lack both the necessary habits of mind and a sphere of common reference.
+ - The rich, like well brought up children, are meant to be seen, not heard.
+ - Label celebrity a consumer society’s most precious consumer product, and eventually it becomes the hero with a thousand faces, the packaging of the society’s art and politics, the framework of its commerce, and the stuff of its religion.
+ - At this late stage in the history of American capitalism I’m not sure I know how much testimony still needs to be presented to establish the relation between profit and theft.
+ - The days of my youth I remember as nearly always in need of explanation, and not as much fun as advertised in the promotions for board games and breakfast cereal.
+ - Love of country follows from the exercise of its freedoms, not from pride in its fleets or its armies.
+ - Unlike any other business in the United States, sports must preserve an illusion of perfect innocence.
+ - Construed as a means instead of an end, history is the weapon with which we defend the future against the past.
+ - The supply of government exceeds demand.
+ - It isn’t money itself that causes the trouble, but the use of money as votive offering and pagan ornament.
+ - The state of perpetual emptiness is, of course, very good for business.
+ - As a child growing up in the precincts of wealth, and later as a college student, newspaper reporter and resident of New York’s Upper East Side, I got used to listening to the talk of financial killings and sexual misalliance that animates the conversation of the rich and the familiars of the rich.
+ - Under the rules of a society that cannot distinguish between profit and profiteering, between money defined as necessity and money defined as luxury, murder is occasionally obligatory and always permissible.
+ - We are a people captivated by the power and romance of metaphor, forever seeking the invisible through the image of the visible.
+ - Nobody suffers the pain of birth or the anguish of loving a child in order for presidents to make wars, for governments to feed on the substance of their people, for insurance companies to cheat the young and rob the old.
+ - Seeing is believing, and if an American success is to count for anything in the world it must be clothed in the raiment of property. As often as not it isn’t the money itself that means anything; it is the use of money as the currency of the soul.
+ - Of what does politics consist except the making of imperfect decisions, many of them unjust and quite a few of them deadly?
+ - Democracy is born in dirt, nourished by the digging up and turning over as much of it as can be brought within reach of a television camera or subpoena.
+ - I sometimes think that the American story is the one about the reading of the will.
+ - The American press is, and always has been, a booster press, its editorial pages characteristically advancing the same arguments as the paid advertising copy.
+ - The gentlemen who wrote the Constitution were as suspicious of efficient government as they were wary of democracy, a “turbulence and a folly” that was associated with the unruly ignorance of an urban mob.
+ - Given lesser opportunities, Kissinger would have done very well as a talk show host. Fortunately for him, although not so fortunately for the United States, he found his patron in Nelson Rockefeller instead of William Paley.
+ - I know no other way out of what is both the maze of the eternal present and the prison of the self except with a string of words.
+ - We need not seek our own best selves, and in the meantime we inoculate ourselves against the viruses of age and idealism, which, as the advertising agencies well know, depress sales and sour the feasts of consumption.
+ - If in the well and truly made martini DeVoto finds “water of life” and the blessing to the spirit, so also DeVoto’s The Hour brings to its readers the breath of life and a vision of themselves made generous, indomitable and wise.
+ - The figure of the enthusiast who has just discovered jogging or a new way to fix tofu can be said to stand or, more accurately, to tremble on the threshold of conversion, as the representative American.
+ - The substitution of meaning accounts for the grasping of misers as well as the extravagance of spendthrifts. Karl Marx well understood this peculiar transformation of flesh into coin.
+ - Unlike every other nation in the world, the United States defines itself as a hypothesis and constitutes itself as an argument.
+ - Most American cities shop to their best advantage when seen from a height or from a distance, at a point where the ugliness of the buildings dissolves into the beauty of an abstraction.
+ - Now that Mr. Carter has made a book of his diary, an adoring memoir entitled Keeping Faith, the notes read like a collection of letters sent from scout camp.
+ - Never in the history of the world have so many people been so rich; never in the history of the world have so many of those same people felt themselves so poor.
+ - Wars might come and go, but the seven o’clock news lives forever.
+ - The playing field is more sacred than the stock exchange, more blessed than Capital Hill or the vaults of Fort Knox. The diamond and the gridiron – and, to a lesser degree, the court, the rink, the track, and the ring – embody the American dream of Eden.
+ - The more prosperous and settled a nation, the more readily it tends to think of war as a regrettable accident; to nations less fortunate the chance of war presents itself as a possible bountiful friend.
+ - If we could let go of our faith in money, who knows what we might put in its place?
+ - Let the corporations do as they please – pillage the environment, falsify their advertising, rig the securities markets – and it is none of the federal government’s business to interfere with the will of heaven.
+ - What kind of people do we wish to become, and how do we know an American when we see one? Is it possible to pursue a common purpose without a common history or a standard text?
+ - Since the eighteenth century the immense expansion of the worlds wealth has come about as a result of a correspondingly immense expansion of credit, which in turn has demanded increasingly stupendous suspensions of disbelief.
+ - A society that presumes a norm of violence and celebrates aggression, whether in the subway, on the football field, or in the conduct of its business, cannot help making celebrities of the people who would destroy it.
+
+62 quotes

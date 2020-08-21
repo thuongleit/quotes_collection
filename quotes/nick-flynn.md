@@ -1,0 +1,31 @@
+ - Perhaps everyone has a story that could break your heart...
+ - That soldiers do terrible things during wartime should not surprise us.
+ - I believe poetry has very little to do with memory.
+ - Alcohol is the river we sit on the banks of, contemplating. Sometimes we watch ourselves float past, sometimes we watch ourselves sink.
+ - Who doesn’t want to just disappear, at some point in the day, in a year, to just step off the map and float?
+ - Some part of me knew he would show up, that if I stood in one place long enough he would find me, like you’re taught to do when you’re lost. But they never taught us what to do if both of you are lost, and you both end up in the same place, waiting.
+ - There are many ways to drown, only the most obvious wave their arms as they’re going under.
+ - What you fear your whole life comes to pass. You end up living toward it, you spend your life running from it but your foot is nailed to the sidewalk. You circle around it until you wear yourself own.
+ - If you’re going to write about someone’s life, you don’t just use them for wallpaper. You have to honor and respect that life.
+ - I can weep pretty easily. I can get tears in my eyes from a beautiful work of art.
+ - When I was a child, writing was the worst possible choice of a career in my family.
+ - Memoir is actually the most egoless genre, even though it might seem ostensibly so much ego-driven. In order for it to succeed, you have to dissolve the self into these larger universal truths, and explore these deeper mysteries. If it’s purely autobiographical and ego-driven, it’s going to fail.
+ - Certain stories we carry with us, events in our life, they define who we are. It’s not a matter of getting over anything; we have to make the best of it.
+ - Change is one of the only constants in Buddhism; as meditation became the way I breathed in the days, this became apparent.
+ - I get inspired by my friends, and if a friend is a writer, that is even deeper.
+ - We got him to talk to a psych doctor once, the doctor asked if he heard things other people don’t. Sure, Paul answered, I hear birds in the morning when everyone’s sleeping, I hear trees rustling when no one’s around.
+ - Water can be a symbol of purification, to stand naked before someone a sign of truth, of nothing to hide. – Nick Flynn.
+ - In life you get one take, and it’s perfect. It’s strange, afterwards you might think I shouldn’t have reacted that way, but that’s the way you reacted. That’s your take; that’s all you get.
+ - Read as much as you can. Write only when you feel the inner need to do so. And don’t ever rush into print.
+ - The attention one gets from being a poet isnt great.
+ - Perhaps it is our fear, that in the silence between stories, in the moment of falling, the fear that we will never find the one story which will save us, and so we lunge for another, and we feel safe again, if only for as long as we are telling it.
+ - Writers, especially poets, are particularly prone to madness.
+ - I became an electrician after high school. But I always had this thing in me to write. But it was always a little shameful. To say you were a poet was saying you were kind of crazy, and I carried that around for a long time. I still kind of carry that. And I think it might be true, actually.
+ - The first book I could call mine, my first book, was a picture book, The Magic Monkey – it was adapted from an old Chinese legend by a thirteen-year-old prodigy named Plato Chan with the help of his sister.
+ - On a good day I write, all day.
+ - There is a physics to the world, which non-fiction has a contract to stand in awe of, otherwise it becomes completely self-centered and ego-driven, which is the death of a memoir.
+ - Trinity Park lies directly across from the library, Trinity Church rising like a midieval thought amidst the glass and steel towers.
+ - Everything we do, I’d imagine, influences everything we will do.
+ - By the time I’m nine I know the world is a dangerous place. I’ve heard whispers about razorblades in apples, about Charlie Manson and his family. But no one is offering any clear information.
+
+29 quotes

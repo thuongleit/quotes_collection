@@ -1,0 +1,34 @@
+ - Eventually, all things merge into one, and a river runs through it.
+ - The world is full of bastards, the number increasing rapidly the further one gets from Missoula, Montana.
+ - Eventually, all things merge into one, and a river runs through it. The river was cut by the world’s great flood and runs over rocks from the basement of time. On some of the rocks are timeless raindrops. Under the rocks are the words, and some of the words are theirs. I am haunted by waters.
+ - Poets talk about “spots of time”, but it is really the fishermen who experience eternity compressed into a moment. No one can tell what a spot of time is until suddenly the whole world is a fish and the fish is gone.
+ - One great thing about fly fishing is that after a while nothing exists of the world but thoughts about fly fishing.
+ - We can love completely what we cannot completely understand.
+ - It is those we live with and love and should know who elude us.
+ - I am haunted by waters.
+ - One of life’s quiet excitements is to stand somewhat apart from yourself and watch yourself softly becoming the author of something beautiful even if it is only a floating ash.
+ - At sunrise everything is luminous but not clear.
+ - So it is that we can seldom help anybody. Either we don’t know what part to give or maybe we don’t like to give any part of ourselves. Then, more often than not, the part that is needed is not wanted. And even more often, we do not have the part that is needed.
+ - When exhausted and feeling sorry for yourself, at least change your socks.
+ - Help is giving part of yourself to somebody who comes to accept it willingly and needs it badly.
+ - My father was very sure about certain matters pertaining to the universe. To him all good things-trout as well as eternal salvation-come by grace and grace comes by art and art does not come easy.
+ - Now nearly all those I loved and did not understand when I was young are dead, but I still reach out to them.
+ - All good things come by grace, and grace comes by art, and art does not come easy.
+ - Slowly we became silent, and silence itself if an enemy to friendship.
+ - When I was young, a teacher had forbidden me to say “more perfect” because she said if a thing is perfect it can’t be more so. But by now I had seen enough of life to have regained my confidence in it.
+ - At sunrise everything is luminous but not clear. It is those we live with and love and should know who elude us. You can love completely without complete understanding.
+ - Ahead and to the west was our ranger station – and the mountains of Idaho, poems of geology stretching beyond any boundaries and seemingly even beyond the world.
+ - The nearest anyone can come to finding himself at any given age is to find a story that somehow tells him about himself.
+ - If our father had had his way, nobody who did not know how to fish would be allowed to disgrace a fish by catching him.
+ - At the time I did not know that stories of life are often more like rivers than books.
+ - In our family, there was no clear line between religion and fly fishing.
+ - The hardest thing usually to leave behind, as was the case now, can loosely be called the conscience.
+ - Many of us would probably be better fishermen if we did not spend so much time watching and waiting for the world to become perfect.
+ - Unless we are willing to escape into sentimentality or fantasy, often the best we can do with catastrophes, even our own, is to find out exactly what happened and restore some of the missing parts.
+ - A river, though, has so many things to say that it is hard to know what it says to each of us.
+ - We sat on the bank and the river went by. As always, it was making sounds to itself, and now it made sounds to us. It would be hard to find three men sitting side by side who knew better what a river was saying.
+ - I knew that, when needed, mountains would move for me.
+ - How can a question be answered that asks a lifetime of questions.
+ - A mystery of the universe is how it has managed to survive with so much volunteer help.
+
+32 quotes

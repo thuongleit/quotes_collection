@@ -1,0 +1,24 @@
+ - Whether you have a great game or a terrible game, tomorrow’s another day and you’ve got to come out here and compete.
+ - I’m always looking to improve. And every year I want to do better than the year before.
+ - As soon as baseball becomes a job, as soon as I stop caring, as soon as the smile goes away, I’ll hang up my spikes and do something else.
+ - I take great pride in going out there and playing through pain.
+ - When you don’t win I think you have to evaluate everybody.
+ - I take positives out of negatives all the time.
+ - Baseball caps never go out of style and are easy to wear. Beyond baseball, beyond sports, I really do think a baseball cap is for everyone.
+ - I don’t care how much I’m talked about or hyped. It’s still up to me to go out and perform.
+ - I love being a Met. It was my favorite team growing up, so to be a Met to me is very special.
+ - Baseball is the reason I have my apartment, baseball is the reason I’m on the cover of video game. Baseball is what I do.
+ - Sure, finishing last has negative connotations. But finishing second-to-last or last is still losing.
+ - I’m very confident in what I do, but I’d like to think I don’t ever show any kind of cockiness or overconfidence.
+ - I want to win a World Series. I couldn’t care less about MVP.
+ - People only rooted for the underdog in movies, not in middle school.
+ - Most of my friends are people I’ve known since I was a kid. I don’t have an entourage or anything.
+ - When I first got to the majors in 2004, female fans held up signs asking me to marry them. Those girls today were what, 13, 14? I’m 23, but that’s a little young even for me.
+ - I’m very modest. I know that baseball is a very humbling game.
+ - I just want to taste what it’s like to win in New York.
+ - To me, the fun part of hitting is the thinking part. It’s the game within the game.
+ - I do like to wear the same hat on game days, but I consider that more of a routine thing than a superstition.
+ - It’s so unique. Wilson Park is just such a gem. It’s in a convenient location.
+ - There’s a lot more to playing in the big leagues in New York than just the baseball part.
+
+22 quotes

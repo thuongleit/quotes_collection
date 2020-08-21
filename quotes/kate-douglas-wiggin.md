@@ -1,0 +1,23 @@
+ - There is a kind of magicness about going far away and then coming back all changed.
+ - Most of all the other beautiful things in life come by twos and threes, by dozens and hundreds. Plenty of roses, stars, sunsets, rainbows, brothers, and sisters, aunts and cousins, but only one mother in the whole world.
+ - If you make children happy now, you will make them happy twenty years hence by the memory of it.
+ - Maternal love, like an orange tree, buds and blossoms and bears at once. When a woman puts her finger for the first time into the tiny hand of her baby and feels that helpless clutch which tightens her very heartstrings, she is born again with her newborn child.
+ - Every child born into the world is a new thought of God, an ever-fresh and radiant possibility.
+ - If I haven’t anything to write, I am just as anxious to ‘take my pen in hand’ as though I had a message to deliver, a cause to plead, or a problem to unfold. Nothing but writing rests me; only then do I seem completely myself!
+ - A real Christmas baby was not to be lightly named.
+ - Miranda Sawyer had a heart, of course, but she had never used it for any other purpose than the pumping and circulating of blood.
+ - The world is always a new plaything to children, while to the old it seems falling to pieces from sheer dryness. Everything loses its value with time, but it is not the fault of the fruit, but of the mouth and the tongue.
+ - Bear figs for a season or two, and the world outside the orchard is very unwilling you should bear thistles.
+ - It was not long after sunrise, and Stephen Waterman, fresh from his dip in the river, had scrambled up the hillside from the hut in the alder-bushes where he had made his morning toilet.
+ - To let blessed babies go dangling and dawdling without names, for months and months, was enough to ruin them for life.
+ - There are certain narrow, umimaginative, and autocratic old people who seem to call out the most mischievous and sometimes the worst traits in children.
+ - When, all at once, you find you have something precious you only dimly suspected was to be yours, you almost wish it hadn’t come so soon.
+ - It is very funny, but you do not always have to see people to love them. Just think about it, and see if it isn’t so.
+ - Lord, I do not ask that Thou shouldst give me wealth; only show me where it is, and I will attend to the rest.
+ - Why is it that the people with whom one loves to be silent are also the very ones with whom one loves to talk?
+ - Some folks mistakes all they see for all there is.
+ - Father doesn’t think very sudden, but he thinks awful strong.
+ - One cannot see callers, answer the telephone, go to luncheons or dinners, visit the dentist or shoemaker, address charitable organizations in or from a bed; therefore a bed, in my experience, is simply bristling with ideas.
+ - You may have noted the fact that it is a person’s virtues as often as his vices that make him difficult to live with.
+
+21 quotes

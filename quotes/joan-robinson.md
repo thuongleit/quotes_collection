@@ -1,0 +1,37 @@
+ - The purpose of studying economics is not to acquire a set of ready-made answers to economic questions, but to learn how to avoid being deceived by economists.
+ - Whatever you can rightly say about India, the opposite is also true.
+ - Marxism is the opium of the Marxists.
+ - The only thing worse than being exploited by capitalism is not being exploited by capitalism.
+ - Ideology is like breath: you never smell your own.
+ - I came away from the talk with the perception that the risk of adverse side effects is so much greater than the risk of cervical cancer, I couldn’t help but question why we need the vaccine at all.
+ - There is no such thing as a normal period of history. Normality is a fiction of economic textbooks.
+ - The point of studying economics is so as not to be fooled by economists.
+ - Economic theorists should not make such a production about taking a rabbit out of a hat after having put the rabbit into the hat in full view of the audience.
+ - A sure sign of a crisis is the prevalence of cranks. It is characteristic of a crisis in theory that cranks get a hearing from the public which orthodoxy is failing to satisfy.
+ - Income from property is not the reward of waiting, it is the reward of employing a good stockbroker.
+ - It’s a terrible thing to be a worker exploited in the capitalist system. The only worse thing is to be a worker unable to find anyone to exploit you.
+ - Utility is a metaphysical concept of impregnable circularity; utility is the quality in commodities that makes individuals want to buy them, and the fact that individuals want to buy commodities shows that they have utility.
+ - Even if the crises that are looming up are overcome and a new run of prosperity lies ahead, deeper problems will still remain. Modern capitalism has no purpose except to keep the show going.
+ - But, as soon as speculators become an important influence in the market, their business is to speculate on each others behaviour.
+ - It is the business of economists, not to tell us what to do, but show why what we are doing anyway is in accord with proper principles.
+ - The orthodox doctrines of economics which were dominant in the last quarter of the nineteenth century had a clear message. They supported laisser faire, free trade, the gold standard, and the universally advantageous effects of the pursuit of profit by competitive private enterprise.
+ - A depression is a situation of self-fulfilling pessimism.
+ - Unemployment is a reproach to a democratic government.
+ - Reality is never a golden age.
+ - If there is any law governing the distribution of income between classes, it still remains to be discovered.
+ - If a rise in wages does not raise prices, a fall will not reduce them.
+ - It is the rate of investment which governs the rate of saving, and not vice versa.
+ - The nature of technology depends very much upon what the public can be induced to put up with.
+ - New ideas are difficult just because they are new. Repetition has somehow plastered over the gaps and inconsistencies in the old ones, and the new cannot penetrate.
+ - Where is the pricing system that offers the consumer a fair choice between air to breathe and motor cars to drive about in?
+ - Marx, however imperfectly he worked out the details, set himself the task of discovering the law of motion of capitalism, and if there is any hope of progress in economics at all, it must be in using academic methods to solve the problems posed by Marx.
+ - There is an unearthly, mystical element in Friedman’s thought. The mere existence of a stock of money somehow promotes expenditure. But insofar as he offers an intelligible theory, it is made up of elements borrowed from Keynes.
+ - It is impossible to add the stock of money to the flow of saving.
+ - Unequal distribution of income is an excessively uneconomic method of getting the necessary saving done.
+ - An economy may be in equilibrium from a short-period point of view and yet contain within itself incompatibilities that are soon going to knock it out of equilibrium.
+ - It is much easier to organize control over one industry serving many markets than over one market served by the products of several industries.
+ - At any moment there is certainly not balanced trade between the various areas of the habitable globe that happens to be under separate national governments – there is an ever-changing pattern of deficits and surpluses.
+ - I do not regard the Keynesian revolution as a great intellectual triumph. On the contrary, it was a tragedy because it came so late. Hitler had already found out how to cure unemployment before Keynes had finished explaining why it occured.
+ - It seems that neither the Keynesian nor the Marxian prognosis of the future of capitalism is being fulfilled and we are left without any particular theory as to what will happen next.
+
+35 quotes

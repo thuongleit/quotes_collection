@@ -1,0 +1,87 @@
+ - Why am i here? What’s my purpose?
+ - Stop trying to save me. You couldn’t then; you can’t now.
+ - There’s always a way out. All you have to do is take it.
+ - Don’t choose me. I’m not worth your time.
+ - I have no intent. I have no reason to live, that’s all. When I’m gone, I don’t want to be remembered.
+ - What’s the point of living if you don’t belong anywhere?
+ - No one else knows I’m alive, which means they won’t notice when I’m gone.
+ - I hear you. I just don’t believe a word you say.
+ - Miracles don’t happen. You make them happen. They’re not wishes or dreams or candles on a cake. They’re not impossible. Reality is real. It’s totally and completely under my control.
+ - Me? I had no dreams. No longings. Dreams only set you up for disappointment. Plus, you had to have a life to have dreams of a better life.
+ - I shouldn’t have been there. I should never have been born.
+ - What you see, isn’t always what you get.
+ - My parents will be sad for a while, and they may even blame themselves, the way they do now. Eventually they’ll come to peace with my decision. I hope they’ll realize I’m finally at peace.
+ - I hated him. I hated them all. They made me hate myself even more than I already did.
+ - No one ever found out what was happening inside me. How the pain was eating me away. No one ever came to my rescue, or stood up for me.
+ - Why are people so cruel? What did I ever do to them?
+ - There’s no reason to speak. I have nothing to say.
+ - I just want the pain to end.
+ - But I’m no hero. I had to keep my dirty little secret. The worst sin I committed was holding it in; letting the secret blacken me.
+ - How will you be remembered? As a loner and a loser.
+ - Trust. That was what this was all about. If you can’t trust the one you love, you don’t have anything.
+ - I throw him two bones: a smile and a nod. Both lies.
+ - Sometimes I felt as if there were no tomorrows, that everything, my whole life, was crammed into one long day. A continuous stretch of meaningless time. Sometimes I even wished there was no tomorrow, if this was all I had to look forward to.
+ - Cut the ending. Revise the script. The man of her dreams is a girl.
+ - I’m sorry you don’t get it, Mom. Sometimes I don’t get why I do the things I do. I just know I wake up every morning and wish I was dead.
+ - Everyone’s a liar. Everyone I’ve ever known.
+ - I may be fat and ugly, but I’m not stupid. If anyone had ever gotten past my looks, they might’ve noticed I have a brain.
+ - That same piercing screech in her voice every time at the hospital. “Do something!” When I slit my wrists. “Help her!” The last time too. “Somebody help her. Help us!” You’re helpless, both of you. All of us.
+ - Our eyes met across the crowded room, like in the movies, except we didn’t share a knowing smile and race into each other’s arms. Instead I fell into the trash can.
+ - You won’t know until it’s over. You won’t find me in time.
+ - I’m scared. What will tomorrow bring? It has to be better than today. It has to.
+ - How does he do it? Live. With the fear of death every day. I don’t fear death as much as I fear the thought of living.
+ - Who becomes you? No one. No one should become me. When I die, I don’t want my body or soul inhabited. I wouldn’t wish me on anyone.
+ - I don’t have alot of people to talk to. Not alot of people are worth my time.
+ - But you’d sell your soul for it, wouldn’t you? For one day of feeling beautiful.
+ - What I know is you can’t go back. You can’t press delete and re-key your life.
+ - Because no one can be trusted.
+ - I got singled out. I don’t know why. Why do people always target me? Is it because I’m short and they figure I can’t fight back? They’re right, I can’t, but it’s not because I’m vertically challenged.
+ - I didn’t tell him. And I never told her the whole truth. What would it matter? There was nothing she could do; nothing anyone can do or will do.
+ - My room is cleared. My head is cleared. Earlier, around dawn, I took out the last load of trash. I look around and see what’s left. Nothing. There is no more Daelyn Rice. As I was. As I am. Or will become. I’m a blank slate.
+ - Really? It seems too good to be true. I don’t trust it. I don’t trust anyone.
+ - She’s still doing it, pushing me into situations I can’t handle, making me cope. She knows I can’t cope.
+ - I won’t be alive so I won’t care who finds me.
+ - I wish I was invisible to him, to everyone.
+ - I’m going to die a virgin. I like the thought if it. So pure.
+ - People don’t change. There are two kinds of people in the world: winners and losers. Black and white. I don’t know where gray fits in, or if you can even live in that shade.
+ - Girls scare me more than boys. Boys are cruel. Girls are mean.
+ - I never defended myself. Not once. I never said, “Excuse me? What gives you the right to insult and demean me?” I let them steal my dignity.
+ - The sad truth is, they should never trust me.
+ - She responds by kissing me harder and longer and deeper. She loves me too. She’s just afraid.
+ - I’d decided to write him and tell him to leave me alone. Please, in a nice way, go away, I really can’t deal with you.
+ - I hope they remember the good stuff, when I was a baby, a toddler, when they still had hopes and dreams for their little girl, their miracle child. In truth they were good to me. They were only doing what they knew how to do; what they thought was best.
+ - Never question the sanity of a woman who can render you defenseless with a look.
+ - This is my vision-what I imagine I’ll pass through on my way to the light. The blue sky, the clouds, the rays of light.
+ - Yeah, I loved her. I couldn’t help it. She was my brother.
+ - You would never understand, Kim. You think I’m normal; you wish I was.
+ - Sometimes I’d catch myself looking at my reflection in windows and wonder who I was. Where I was going. Then the image would change and it wouldn’t be me, just some nebulous shadow person.
+ - What can happen in a few minutes changes you forever.
+ - I had to fight so hard not to cry.
+ - The truth remains. I was, and am, disgusted with myself.
+ - I knew right then and there nothing was ever going to change. It wouldn’t matter if I was tall or short or fat or thin or absent every day. I was a loser from birth.
+ - You can’t trust machines. You can’t trust people.
+ - It was all about hate. There should be laws. We’re there laws? Can you legislate against hatred?
+ - His eyes are like a telescope. I look into them and I’m transported across the universe to a world I’ve never been.
+ - At times like this, I’m thankful I don’t feel love.
+ - I suppose I’ll be remembered as dull. Timid. No one ever knew me. People came. They went. I was kind, I think. Not sympathetic, but considerate of others. I always gave up my place in line. I loaned out pencils and paper, or let people take them from me. I never reported a sexual assault.
+ - This is my fault. Mine. Making her think I’d be here for her.
+ - Yeah, I hear the truth. But this is my truth.
+ - As they were carting him off on a gurney, all I could think was, I wish that was me.
+ - Do what, Kim? Lead a normal life? Too late. Way too late.
+ - And it’s more. It’s about getting past that question of whats wrong with me, to knowing there’s nothing wrong, that you were born this way. You’re a normal person and a beautiful person and you should be proud of who you are. You deserve to live and live with dignity and show people your pride.
+ - Take it as a token. Because tomorrow when I go, I want you to believe friends are possible.
+ - Why couldn’t I have a fatal disease? It’d be so much easier.
+ - I close my eyes and black out the day. The exhaustion of living through it, surviving.
+ - They didn’t guarantee you’d come out a whole person.
+ - With determination and purpose, I head into the light.
+ - Like anyone cared where I was, or who I was.
+ - What did she see in me? What does she see that I don’t?
+ - She’ll go to hell. They all will. If hell will even have them.
+ - But its not funny. Not to people who’ve been told they’re losers their whole lives and believe they will never be anything else.
+ - His invitation lingers. So does my question. Why me? I don’t know the answer. When I look at myself in the mirror, all I see is a starving, stunted bird who never grew wings and lost all reason to sing.
+ - Oh sure. Because we always talk about deep down stuff.
+ - I don’t have to answer. Until you know the question.
+ - But she never just accepted me for the way I was.
+ - Your failures and your faults, they stick with you. They glob into ugly, cancerous growths inside you and make you want to die.
+
+85 quotes

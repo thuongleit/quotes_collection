@@ -1,0 +1,131 @@
+ - Dare to love yourself as if you were a rainbow with gold at both ends.
+ - A bridge of silver wings stretches from the dead ashes of an unforgiving nightmare to the jeweled vision of a life started anew.
+ - Each star is a mirror reflecting the truth inside you.
+ - In your hands winter is a book with cloud pages that snow pearls of love.
+ - Nation-building is never a ‘done deal’ confined to history already established.
+ - Love is our most unifying and empowering common spiritual denominator. The more we ignore its potential to bring greater balance and deeper meaning to human existence, the more likely we are to continue to define history as one long inglorious record of man’s inhumanity to man.
+ - Then came the healing time, hearts started to shine, soul felt so fine, oh what a freeing time it was.
+ - Oh what a wonderful soul so bright inside you. Got power to heal the sun’s broken heart, power to restore the moon’s vision too.
+ - Where humanity sowed faith, hope, and unity, joy’s garden blossomed.
+ - With my ninth mind I resurrect my first and dance slow to the music of my soul made new.
+ - The ecstatic beauty and soulful grace of Rumi’s poetry inspires human hearts to believe in possibilities beyond the predictably fatal.
+ - Dr. Martin Luther King Jr.’s dream was a manifestation of hope that humanity might one day get out of its own way by finding the courage to realize that love and nonviolence are not indicators of weakness but gifts of significant strength.
+ - In a world gushing blood day and night, you never stop mopping up pain.
+ - The same hot lightning that burns your blood with passion–– cools your fears with peace.
+ - Poetry, like jazz, is one of those dazzling diamonds of creative industry that help human beings make sense out of the comedies and tragedies that contextualize our lives.
+ - First steps are always the hardest but until they are taken the notion of progress remains only a notion and not an achievement.
+ - A poet is a verb that blossoms light in gardens of dawn, or sometimes midnight.
+ - Many may very well continue to ask why more value is placed on technicalities of a law than on a man’s flesh and blood life, especially when there is any amount of “doubt” at all regarding his guilt or innocence.
+ - Passion presented with a greater challenge achieves a greater goal.
+ - The passage of the Civil Rights Act of 1964 represented precisely such a hope – that America had learned from its past and acted to secure a better tomorrow.
+ - The literary artist lends verbal depth to the visual. The visual artist provides visible articulation for the literary.
+ - We are living in an era in which billions of people are grappling to promote communication, tolerance, and understanding over the more destructive forces of war, terrorism, and political chaos that have characterized the beginning of the 21st Century.
+ - If life is a birthday cake let my face be smeared with its icing of cognac and kindness.
+ - At the edge of madness you howl diamonds and pearls.
+ - You were born a child of light’s wonderful secret – you return to the beauty you have always been.
+ - This world’s anguish is no different from the love we insist on holding back.
+ - Shine your soul with the same egoless humility as the rainbow and no matter where you go in this world or the next, love will find you, attend you, and bless you.
+ - Un-winged and naked, sorrow surrenders its crown to a throne called grace.
+ - This fire that we call Loving is too strong for human minds. But just right for human souls.
+ - The words ‘I Love You’ kill, and resurrect millions, in less than a second.
+ - Love, Mercy, and Grace, sisters all, attend your wounds of silence and hope.
+ - Millions of tears have fallen for black sons, brothers, lovers, and friends whose assailants took or maimed their lives and then simply went on their way.
+ - What a lover’s heart knows let no man’s brain dispute.
+ - The best of humanity’s recorded history is a creative balance between horrors endured and victories achieved, and so it was during the Harlem Renaissance.
+ - Life possesses an amazing array of profoundly sad faces.
+ - A world without poetry and art would be too much like one without birds or flowers: bearable but a lot less enjoyable.
+ - You are the hybrids of golden worlds and ages splendidly conceived.
+ - Michael Jackson National African American Art Examiner Series.
+ - Hearts rebuilt from hope resurrect dreams killed by hate.
+ - This is what our love is––a sacred pattern of unbroken unity sewn flawlessly invisible inside all other images, thoughts, smells, and sounds.
+ - Even when muddy your wings sparkle bright wonders that heal broken worlds.
+ - History dressed up in the glow of love’s kiss turned grief into beauty.
+ - Poetry looking in the mirror sees art, and art looking in a mirror sings poetry.
+ - Most people are slow to champion love because they fear the transformation it brings into their lives. And make no mistake about it: love does take over and transform the schemes and operations of our egos in a very mighty way.
+ - An outrageous instinct to love and be loved blinded your arms to lines of propriety––Women and Men, Christians and Jews, Muslims and Buddhists, white, black, red, brown. An outrageous instinct to love and be loved executed your brain every hour on the hour.
+ - This rose of pearl-coated infinity transforms the diseased slums of a broken heart into a palace made of psalms and gold.
+ - The study of history empowers nations and individuals with an ability to avoid errors of the past and lay foundations for victories in the future.
+ - In a rich moonlit garden, flowers open beneath the eyes of entire nations terrified to acknowledge the simplicity of the beauty of peace.
+ - Compassion crowns the soul with its truest victory.
+ - Classic romantic love is an emotional attraction between two individuals in which they may share a heightened awareness of mutual adoration. Erotic love, traditionally, has been described as shared sexual attraction.
+ - Ours is an age in which thousands are driven daily from their homelands by the unforgiving brutalities of war, terrorism, political oppression, starvation, disease, economic piracy, and the relentless suffocation of that singular breath which makes human beings individuals.
+ - On faith’s battered back calm eyes etch prayers that cool a nation’s hot rage.
+ - Poetry and art nourish the soul of the world with the flavor-filled substances of beauty, wisdom and truth.
+ - Souls reconstructed with faith transform agony into peace.
+ - Quote words that affirm all men and women are your brothers and sisters.
+ - Love taught me to die with dignity that I might come forth anew in splendor. Born once of flesh, then again of fire, I was reborn a third time to the sound of my name humming haikus in heaven’s mouth.
+ - The whole purpose of the construction of The Bridge of Silver Wings was to provide a path leading to The River of Winged Dreams, or to serve as a resting place until the river’s deeper and truer nature revealed itself.
+ - Trayvon Martin, at the most, seems only to have been guilty of being himself.
+ - How many fears came between us? Earthquakes, diseases, wars where hell rained smoldering pus from skies made of winged death. Horror tore this world asunder. While inside the bleeding smoke and beyond the shredded weeping flesh we memorized tales of infinite good. -from The History Lesson.
+ - Searching for a mind long lost I found it shaping colors and history near the cliffs of your heart.
+ - Now come the whispers bearing bouquets of moonbeams and sunlight tremblings.
+ - Love as a concrete foundation for an authentically functional civilization requires the around-the-clock labors of forgiveness. Without it, Love fails, Friendship fails, Intelligence fails, Humanity: fails.
+ - Your pain is a school unto itself–– and your joy a lovely temple.
+ - A man sitting monkey-like on the rooftop of his brain is due the applause such feats earn him.
+ - At its most dynamic, faith evolves into powerful applicable knowledge.
+ - Beauty from another world gave birth to your voice – sent to rescue scorned hearts from traumatized nights.
+ - Many people can rightfully claim, as much as anyone can rightfully claim anything, that much of their lives have been spent stumbling through a cloud of cluelessness.
+ - To create art with all the passion in one’s soul is to live art with all the beauty in one’s heart.
+ - The Civil Rights Act of 1964 laid the foundation for the Voting Rights Act of 1965, but it also addressed nearly every other aspect of daily life in a would-be free democratic society.
+ - A horn of plenty spills from your hands into the starved lives of millions.
+ - Stars wishing upon the potential of humans shine faithfully on.
+ - In honor of Oprah Winfrey: Even greater than the ability to inspire others with hope is the power to motivate them to give as much to the lives of others as they would give to their own; and to empower them to confront the worst in themselves in order to discover and claim the best in themselves.
+ - The political, social, and spiritual impact of the life example set by Nelson Rolihlahla Mandela might be measured in part by the profound and unique gestures made by people in different countries to honor his life upon learning of his death.
+ - Dare to love yourself.
+ - Upon the lips of babes asleep I saw light embracing light and so allowed my syllables to rest there as a prayer they might sing in their dreams...
+ - Feet sandaled with dreams tread paths of vision leading to wisdom’s sharp peaks.
+ - The more sincere the soul, the heavier the cross endured.
+ - When a reader enters the pages of a book of poetry, he or she enters a world where dreams transform the past into knowledge made applicable to the present, and where visions shape the present into extraordinary possibilities for the future.
+ - Although himself frequently a target of guerrilla decontextualization, a major part of the meaning of Michael Jackson’s life was to help balance the accumulation of horrors with something closer to love in its most empowering and healing sense.
+ - Creative visualization may be described as an extended meditation session that reaches beyond passive contemplation and achieves transformative action. The uses to which it may be applied are limited only by an individual’s imagination.
+ - At some point, a flash of sustained clarity reveals the difference between what someone would have you believe is true, and what you know from the depths of your own heart to the peaks of your soul to be true. What happens after that is up to you.
+ - Just above our terror, the stars painted this story in perfect silver calligraphy. And our souls, too often abused by ignorance, covered our eyes with mercy.
+ - Literary genres and techniques tend to take form in one’s mind somewhat the way computer templates provide form for different computer tasks.
+ - Before the thunderous clamor of political debate or war set loose in the world, love insisted on its promise for the possibility of human unity: between men and women, between blacks and whites, northerners and southerners, haves and have-have-nots, self and self.
+ - By consciously meditating upon spiritual truths and cultivating personal integrity, one need never fear negative circumstances.
+ - When we vote we participate in the construction of a context...
+ - Got just enough room to be a friend of yours. Oh I hope you got room to be a friend of mine.
+ - Learning to cultivate an awareness of the known and unknown within one’s being often leads to a healthier and more realistic sense of self.
+ - I called it a baptism in flaming ink that forced me to shed my shyness about recognizing myself as a poet and to accept the fact that life had never given me any choice in the matter. And then I had to discover exactly what that meant.
+ - Whereas the insufficiency of a love neither sustained nor supreme cannot be ignored, the same should not be taken as cause to avoid one’s total spiritual contractual engagement to this world.
+ - With its leaves so rich and heavy with elation and its crimson face made brighter with visions of divinity the shadow of a certain rose looks just like an angel eating light.
+ - Art gives its vision to beauty not always recognized. And it surrenders freely – whatever power it possesses to every sincere soul that seeks it. But above all else – it presents us with the gift of ourselves.
+ - Most of the more celebrated names among African-American authors, poets, and artists are known to the world because of their association with specific cultural arts movements.
+ - That good gardener, who wept thorns plowing his fields – harvests grace with joy.
+ - Humanity is not without answers or solutions regarding how to liberate itself from scenarios that invariably end with mass exterminations. Tools such as compassion, trust, empathy, love, and ethical discernment are already in our possession. The next sensible step would be to use them.
+ - Hope drowned in shadows emerges fiercely splendid–– boldly angelic.
+ - It becomes more and more difficult to avoid the idea of black men as subjects of not just racial profiling but of an insidious form of racial obliteration sanctioned by silence.
+ - Writing for me is a form of spiritual discipline and creative vision, a means of being in the world and giving one’s love to it without compromise or dilution.
+ - Dreams dress us carefully in the colors of power and faith.
+ - I place my fingers upon these keys typing 2,000 dreams per minute and naked of spirit dance forth my cosmic vortex upon this crucifix called language.
+ - Varieties of angels, like varieties of love, are many.
+ - As goes love so goes life.
+ - The music of revelation announces itself to the reader in somber brooding tones or in melodies light as air and one is invited to dance with the most captivating of partners: poetry.
+ - Such are these places where lovers of bliss behold the angel of peace.
+ - An author accepting language’s invitation to dance steps onto the floor of his her sensibility-charged consciousness and begins to move instinctively – even if with much dread – in ways that synchronize images, ideas, emotions, sounds, smells, ignorance, and knowledge.
+ - Valentines Day itself, like most holidays in the modern era, has been heavily influenced by commercialism that focuses on the appeal of romantic fantasies.
+ - What can bombs know of the illuminated fields so golden with heaven in your heart’s sacred lands?
+ - As history has demonstrated many times over, change may arrive slowly or quickly but it is the one constant, in one form or another, on which we can all count.
+ - At one end of the continuum known as history are first-time events that have generated notable measures of public recognition due to either a positive or negative impact...
+ - Mainstream medias representation, or its guerrilla decontextualization, of black mens lives in particular can set the stage for erroneous assumptions capable of damaging an individual or a nation.
+ - We can cry for years but sometimes gotta smile too.
+ - Change is one of the scariest things in the world and yet it is also one of those variables of human existence that no one can avoid.
+ - President Obama appears to me to have elevated and implemented the artist-activist concept to the role of empowered servant-leader...
+ - When the will to learn from the ordinary is present, a seeker may indeed gain entrance into levels of awareness that are extraordinary.
+ - The dancing vortex of a sacred metaphor clashes horns and halos to make wounded music set to the tempo of a new era in brilliant labor.
+ - Death wins nothing here, gnawing wings that amputate–– then spread, lift up, fly.
+ - All the world loves a ghost. The evidence of that simple statement can be found by looking in nearly every direction.
+ - The thorn is a bridge spanning the muddy depths of agony and sorrow so that one may on the other side dance to the drums of the rose of joy.
+ - What hell condemned, let heaven now heal.
+ - Because Mr. Mandelas early opponents invested so many resources into distorting the true nature of his advocacy, the singular historic moment millions now celebrate could have been tragically lost to guerrilla decontextualization.
+ - Here are lips of flame eager to be extinguished by love’s liquid sigh.
+ - The fate that condemns or saves one sooner or later often condemns or saves another.
+ - True lovers earn their genius in schools of blood, prophecy and dust.
+ - Someone had to embrace positive beginnings before anyone could celebrate successful conclusions or continuations.
+ - Movies can provide tear-inducing or comically-entertaining representations of love, but many agree that its deeper conflicting complexities often seem unfathomable.
+ - Like a Passover Poet gliding from house to house and from trembling soul to trembling soul the wind scribbled sonnets of first time love and weeping haikus of last hours on earth.
+ - In your hands winter...
+ - And now we step to the rhythm of miracles. – from The Light, That Never Dies.
+ - Christmas When Music Almost Killed the World.
+
+129 quotes

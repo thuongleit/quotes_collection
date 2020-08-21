@@ -1,0 +1,24 @@
+ - The plural of anecdotes is not data.
+ - I think you’ll find it’s a bit more complicated than that.
+ - Teaching needs an ecosystem that supports evidence-based practice. It will need better systems to disseminate the results of research more widely, but also a better understanding of research, so that teachers can be critical consumers of evidence.
+ - The placebo effect is one of the most fascinating things in the whole of medicine. It’s not just about taking a pill, and your performance and your pain getting better. It’s about our beliefs and expectations. It’s about the cultural meaning of a treatment.
+ - Real science is all about critically appraising the evidence for somebody else’s position.
+ - Positive findings are around twice as likely to be published as negative findings. This is a cancer at the core of evidence-based medicine.
+ - You cannot reason people out of a position that they did not reason themselves into.
+ - Just just because there are flaws in aircraft design that doesn’t mean flying carpets exist.
+ - I’d like to submit to Bad Science my teacher who gave us a handout which says that ‘Water is best absorbed by the body when provided in frequent small amounts.’ What I want to know is this. If I drink too much in one go, will it leak out off my arsehole instead? Thank you. Anton.
+ - Yes. I’m a doctor, an epidemiologist, and lots of my professional colleagues flip back and forth between industry and medical roles. I know them; they are not bad people. But it is possible for good people in bad systems to do things that inflict enormous harm.
+ - If you put me in charge of the medical research budget, I would cancel all primary research, I would cancel all new trials, for just one year, and I would spend the money exclusively on making sure that we make the best possible use of the clinical evidence that we already have.
+ - Transparency and detail are everything in science.
+ - Science has authority not because of white coats or titles, but because of precision and transparency: you explain your theory, set out your evidence, and reference the studies that support your case.
+ - You are a placebo responder. Your body plays tricks on your mind. You cannot be trusted.
+ - Children can be disgusting, and often they can develop extraordinary talents, but I’m yet to meet any child who can stimulate his carotid arteries inside his ribcage.
+ - Doctors and patients need as much data as possible to make an informed decision about what treatment is best.
+ - Amazing things happen when you pull individual pieces of information together into larger linked datasets: meaning emerges, as you produce facts from figures.
+ - I agree, the world would be a better place if doctors were less enthusiastic about adopting very new drugs.
+ - Data is the fabric of the modern world: just like we walk down pavements, so we trace routes through data, and build knowledge and products out of it.
+ - As it is a major component of blood, water is vital for transporting oxygen to the brain. Heaven forbid that your blood should dry out.
+ - I hope that you will be asked to participate in a trial at some stage in your disease.
+ - There are many differences between medicine and teaching, but they have much in common. Both involve craft and personal expertise, learned through experience; but both can be informed by the experience of others.
+
+22 quotes

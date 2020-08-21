@@ -1,0 +1,26 @@
+ - A company’s culture is the foundation for future innovation. An entrepreneurs job is to build the foundation.
+ - Build something 100 people love, not something 1 million people kind of like.
+ - Our “overnight” success took 1,000 days.
+ - Don’t listen to your parents.
+ - We start with the perfect experience and then work backward. That’s how we’re going to continue to be successful.
+ - Culture is simply a shared way of doing something with passion.
+ - It’s better to have 100 people love you than to have 1,000,000 people like you.
+ - If you want to create a great product, just focus on one person. Make that one person have the most amazing experience ever.
+ - Do things that won’t scale; it will teach you.
+ - I’m not saying the whole world will work this way, but with Airbnb, people are sleeping in other people’s homes and other people’s beds. So there’s a level of trust necessary to participate that’s different from an eBay or Facebook.
+ - The stuff that matters in life is no longer stuff. It’s other people. It’s relationships. It’s experience.
+ - The office is the laboratory and meeting your users is like going into the field. You can’t just stay in the lab. And it’s not just asking users what they want, it’s about seeing what they’re doing.
+ - Having a clear mission and making sure you know that mission and making sure that mission comes through the company is probably the most important thing you can do for both culture and values.
+ - Whatever career you’re in, assume it’s going to be a massive failure. That way, you’re not making decisions based on success, money and career. You’re only making it based on doing what you love.
+ - The stronger the culture, the less corporate process a company needs. When the culture is strong, you can trust everyone to do the right thing. People can be independent and autonomous. They can be entrepreneurial.
+ - Everyone’s got a moment or two in their life where something happens and you make a decision and then your entire life changes.
+ - Every day I would wake up and think, ‘Today is another missed opportunity to do something important.’ After enough days like this, you start feeling like you are getting old, even when you are relatively young. We are all natural entrepreneurs, and being manacled to a desk job is not for us.
+ - Customers are willing to try new things, and if you can survive, you will have fewer competitors. It’s like entering the eye of the storm. As long as you are strong enough to survive, you can end up in still water by yourself.
+ - There’s no such thing as a good or bad culture, it’s either a strong or weak culture. And a good culture for somebody else may not be a good culture for you.
+ - Brand is really the connection between you and your customersif you have a very strong culture, then the brand will come through.
+ - I had to learn to get comfortable in a role of ambiguity where I had to seek out advisers and learn quickly.
+ - The American dream, what we were taught was, grow up, own a car, own a house. I think that dream’s completely changing. We were taught to keep up with the Joneses. Now we’re sharing with the Joneses.
+ - In June 2010, I moved out of my apartment and I have been mostly homeless ever since, off and on. I just live in Airbnb apartments and I check in every week in different homes in San Francisco.
+ - What I’ve been surprised by is not how different people are, but how similar they are. There are certain types of Airbnb people, and they are in every city in the world – it’s just that in some cultures, there is more of a generational divide.
+
+24 quotes

@@ -1,0 +1,67 @@
+ - The truth is libraries are raucous clubhouses for free speech, controversy and community.
+ - Adults are always asking little kids what they want to be when they grow up because they’re looking for ideas.
+ - I have terrible short-term memory loss, which I like to think of as Presidential eligibility.
+ - I happen to be a devout atheist. I don’t believe in God. I still go to church – I’m not a heathen. I go to an atheist church. We have crippled guys who stand up and testify that they were crippled, and they still are.
+ - I don’t need a holiday or a feast to feel grateful for my children, the sun, the moon, the roof over my head, music, and laughter, but I like to take this time to take the path of thanks less traveled.
+ - The wages of sin are death, but by the time taxes are taken out, it’s just sort of a tired feeling.
+ - What moron said that knowledge is power? Knowledge is power only if it doesn’t depress you so much that it leaves you in an immobile heap at the end of your bed.
+ - I love key lime pie, although it’s never made the proper way.
+ - I made mistakes and I broke the law and I’m more than willing to pay a price for that. But there’s a price beyond that that my children have paid, and that’s not what was supposed to happen.
+ - Can you remember when you didn’t want to sleep? Isn’t it inconceivable? I guess the definition of adulthood is that you want to sleep.
+ - I think we need a 12-step group for non-stop talkers. We’re going to call it On and On Anon.
+ - I’ve decided that perhaps I’m bulimic and just keep forgetting to purge.
+ - The problem with cats is that they get the same exact look whether they see a moth or an ax-murderer.
+ - I was diagnosed a number of years ago with obsessive-compulsive disorder – which everyone has, to some degree – and I have this really annoying trait where in conversation, I always steer it back to something that happened to me.
+ - My mom is one of those really angry moms who gets mad at absolutely everything. Once when I was a little kid, I accidentally knocked a Flintstones glass off the kitchen table. She said, ‘Well, dammit, we can’t have nice things.’
+ - When we save the rain forest, the polar bear, and Al Gore, we should party so hard that Canada calls the cops on us for noise.
+ - I talk to a lot of librarians, and there’s always a steady drumbeat of how libraries are places of community. But a lot of them have also recently – and just in the nick of time – refurbished, because during this economic downturn, people have a tendency to borrow instead of buy.
+ - I only do two things in my life, and that’s take care of my kids and work. Fortunately, these are my favorite things to do, so it works out.
+ - I confess that when I first read that smog is particularly hazardous to children, senior citizens, and physically active people, for a brief moment I thought, I’m in the clear for at least ten years.
+ - Speaking of happy successes, after years of struggling to lose those few extra pounds every mother puts on during adoption, particularly when the doctor orders bed rest, in 2004 I sent my assistant to the Gap in dark glasses with a fake ID to purchase my first pair of Easy Fit jeans.
+ - I don’t have a bank account because I don’t know my mother’s maiden name.
+ - I used to watch ‘The Waltons’ and sob because my family was nothing like that. We had a cruel sense of humor in my family.
+ - I like to work on New Year’s Eve. It has a nice spirit; a nice feel about it. If you are all about the ‘year-end’ thing at all, then laughing with fellow human beings is a great way to start the new year.
+ - When we live up to our Constitution, let’s form a Conga line around the Capitol and bungee jump off the dome.
+ - The definition of adulthood is that you want to sleep.
+ - I have a very silly sense of humor. I’ve never laughed harder in my entire life than seeing someone with toilet paper stuck on the bottom of their shoe.
+ - I don’t believe for a second that weightlifting is a sport. They pick up a heavy thing and put it down again. To me, that’s indecision.
+ - My parents got carried away with the letter P when they were naming the kids in our family. There’s me, Paula, my sisters Peggy and Patty, and my brother Pjimmy, spelled with a silent P.
+ - I was the youngest in my family. When the other kids went to school, my mother would make them breakfast and then she would go back to bed for an hour, so I was sort of babysat by television.
+ - When every high school graduate can spell the word, ‘inauguration,’ let’s put lampshades on our heads and listen to his speeches until Obama’s voice gives out.
+ - It is my wish to die of unique causes, perhaps in a high-speed tricycle crash, a bizarre stapling incient, or as a result of inadvertently sucking my brains out through my ear while trying to untwist the vacuum hose.
+ - The mistakes that I made I made because I drank too much. I don’t think that’s going to happen any more. Am I going to make mistakes as a parent? Sadly, every day. I’m looking around for the perfect parent and I haven’t seen one yet.
+ - I was court-ordered to Alcoholics Anonymous on television. Pretty much blows the hell out of the second A, wouldn’t you say?
+ - I did auditions at a club called the Comedy Connection. They wanted nothing to do with me. But one night they were doing a night of all women comics, and they invited me to do that.
+ - The pleasure of the mulch pile is incomprehensible. I wouldn’t care if they just hauled the mulch to the landfill somewhere. Obviously, grass clippings are biodegradable, but when they’re bunched together at the landfill, they become badly influenced by other garbage.
+ - My Mom said she learned how to swim when someone took her out in the lake and threw her off the boat. I said, ‘Mom, they weren’t trying to teach you how to swim.’
+ - I hate it when my hair is engaged in unauthorized activities.
+ - I get the first flight out from anywhere I am because I have to come home to my kids.
+ - I also like a great Caesar salad with anchovies, although I don’t know why some places say ‘with anchovies.’ If you’re making a proper Caesar salad, it’s going to have anchovies.
+ - President Obama could keep a big map with push pins on it to keep track of how many countries hate us, and when we get down to only half, let’s have a ball. I’ll blow up the balloons myself.
+ - I was born in Alabama, but I only lived there for a month before I’d done everything there was to do.
+ - I can make things, but I don’t cook them, exactly. Like salmon, I can stick that in a pan. Or the other day I made noodles, but they were hard. It never occurred to me to check them; I just stopped cooking them when I felt they were ready. Really, I’m too absentminded.
+ - I got my dog three years ago because I was drunk in a pet store. We had nine cats at the time. The cats started hiding the alcohol after that.
+ - It is the best part of the night. The classic interactive lines are ‘Where are you from? What do you do for a living?’ I almost always get something interesting.
+ - I’m thankful for the three ounce Ziploc bag, so that I have somewhere to put my savings.
+ - You know, in politics when you come in third, it’s a win.
+ - I’m the only person I know of who’s ever been pulled over for attempted speeding.
+ - The position of First Lady has no rules, just precedent, so its evolution has been at a virtual standstill for years. If Martha Washington didn’t do it, then no one is sure it should be done.
+ - I’m thankful that my memory is good because my vision is going.
+ - I’m really more prolific than most stand-ups. My act changes. I do fold in new experiences, new observations, whatever you want to call it.
+ - I have a horrible memory and I used to consider that a liability, but I’ve learned along the way that talking to people is really a beautiful thing.
+ - Remember when you were considered an environmentalist when you didn’t throw junk out the car window? I sure do miss that simpler, happier time.
+ - Once I was gone for a month and I was just miserable, so I flew back from Florida for two hours just to be home and see my cats.
+ - If only someone would do for cows what Bambi did for deer. Cows have been in films, but they haven’t starred. I’m still willing to eat a species that is only a supporting player.
+ - I used to work at The International House of Pancakes. It was a dream, and I made it happen.
+ - I know a little bit about handicapping. If the horse has an IV, you want to stay – away from it.
+ - There are really only so many foods and so many ways you can prepare them.
+ - I have jokes I’ve told before and will tell again, but my favorite part of the night is talking to the crowd.
+ - I’ll probably never have children because I don’t believe in touching people for any reason.
+ - I love talking to the audience, and I must be the luckiest performer in the world. I always land something or somebody that just takes off.
+ - I’m thankful for Sarah Palin’s vice presidential bid, which taught us that Alaska is not in a box off the coast of California.
+ - I mean, I do love clever and witty, but I think that the ‘Three Stooges’ were geniuses. They’d have to be for their appeal to have lasted this long.
+ - My act is sort of improvisational. I have a skeleton in my head, but no fat or skin on it.
+ - I get in fewer arguments when I’m alone.
+ - I’ve always thought that if my death was imminent, I would read. When I can’t focus on a book, I tend to keep reading the same page. My guess is, I would’ve read, like the first page of Nicholas Nickleby over and over again.
+
+65 quotes

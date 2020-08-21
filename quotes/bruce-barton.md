@@ -1,0 +1,37 @@
+ - Nothing splendid has ever been achieved except by those who dared believe that something inside of them was superior to circumstance.
+ - If you can give your child only one gift, let it be enthusiasm.
+ - The most important thing about getting somewhere is starting right where we are.
+ - Great men suffer hours of depression through introspection and self-doubt. That is why they are great. That is why you will find modesty and humility the characteristics of such men.
+ - Every time you open your mouth you let men look into your mind.
+ - It is said that great leaders are born, not made. The saying is true to this degree, that no man can persuade people to do what he wants them to do, unless he genuinely likes people, and believes that what he wants them to do is to their own advantage.
+ - When you are through changing, you are through.
+ - There are no little things.
+ - A man may be down, but he is never out.
+ - If you expect perfection from people your whole life is a series of disappointments, grumblings, and complaints.
+ - If advertising encourages people to live beyond their means, so does matrimony.
+ - We pay just as dearly for our triumphs as we do for our defeats. Go ahead and fail. But fail with wit, fail with grace, fail with style. A mediocre failure is as insufferable as a mediocre success.
+ - Voltaire spoke of the Bible as a short-lived book. He said that within a hundred years it would pass from common use. Not many people read Voltaire today, but his house has been packed with Bibles as a depot of a Bible society.
+ - A daughter is the happy memories of the past, the joyful moments of the present, and the hope and promise of the future.
+ - Talkers have always ruled. They will continue to rule. The smart thing is to join them.
+ - If you are going to do anything, you must expect criticism. But it’s better to be a doer than a critic. The doer moves; the critic stands still, and is passed by.
+ - I do not like the phrase: Never cross a bridge till you come to it. The world is owned by men who cross bridges on their imaginations miles and miles in advance of the procession.
+ - I had never thought of advertising as a life work, though I had on the side, written some very successful copy.
+ - As a profession advertising is young; as a force it is as old as the world.
+ - Conceit is God’s gift to little men.
+ - The essential element in personal magnetism is a consuming sincerity – an overwhelming faith in the importance of the work one has to do.
+ - Get money – but stop once in a while to figure what it is costing you to get it. No man gets it without giving something in return. The wise man gives his labor and ability. The fool gives his life.
+ - If you want to know if your brain is flabby, feel your legs.
+ - Before you give up hope, turn back and read the attacks that were made on Lincoln.
+ - Much brass has been sounded and many cymbals tinkled in the name of advertising; but the advertisements which persuade people to act are written by men who have an abiding respect for the intelligence of their readers, and a deep sincerity regarding the merits of the goods they have to sell.
+ - The Bible rose to the place it now occupies because it deserved to rise to that place, and not because God sent anybody with a box of tricks to prove its divine authority.
+ - As a profession advertising is young; as a force it is as old as the world. The first four words ever uttered, Let there be light, constitute its charter. All nature is vibrant with its impulse.
+ - If there is no intelligence in the universe, then the universe has created something greater than itself-for it has created you and me.
+ - An election goes on every minute of the business day across the counters of hundreds of thousands of stores and shops where the customers state their preferences and determine which company and which product shall be the leader today and which shall lead tomorrow.
+ - Jesus picked up twelve men from the bottom ranks of business and forged them into an organisation that conquered the world.
+ - Jesus brought forth men’s greatest efforts by the promise of obstacles not rewards.
+ - In the long run no individual prospers beyond the measure of his faith.
+ - The American conception of advertising is to arouse desires and stimulate wants, to make people dissatisfied with the old and out-of-date and by constant iteration to send them out to work harder to get the latest model-whether that model be an icebox or a rug or a new home.
+ - The ablest men in all walks of modern life are men of faith. Most of them have much more faith than they themselves realize.
+ - My program is to leave the fools to nature. She has diseases with which to deal with them.
+
+35 quotes

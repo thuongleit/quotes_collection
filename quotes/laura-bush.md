@@ -1,0 +1,72 @@
+ - I have found the most valuable thing in my wallet is my library card.
+ - Libraries are community treasure chests, loaded with a wealth of information available to everyone equally, and the key to that treasure chest is the library card. I have found the most valuable thing in my wallet is my library card.
+ - When you reach out to others in need, when you reach out to the world, you really do have a satisfying life by helping others.
+ - When you read with your child, you show them that reading is important, but you also show them they’re important – that they are so important to you that you will spend 20 minutes a day with your arm around them.
+ - Education is the key. With a really good education, you have a much broader view of the world. Well-educated people can seek help for themselves. They can help others.
+ - Leadership is not about popularity, it is about doing what is right.
+ - The power of a book lies in its power to turn a solitary act into a shared vision. As long as we have books, we are not alone.
+ - Women have a better chance to secure freedom and protect themselves from violence, from abuse, from injustice, if they are well-educated and know their rights.
+ - The fight against terrorism is also a fight for the rights and dignity of women.
+ - Nothing attracts attention like a red dress.
+ - Giving homeless children the chance to be educated, giving them this ticket to their futures, is so wonderful. They will have the chance to not repeat the suffering of their childhoods in their own families. They can build secure and safe lives for themselves and their children.
+ - Children who are read to learn two things: First, that reading is worthwhile, and second, that they are worthwhile.
+ - There is nothing political about American literature.
+ - Because women don’t expect to have heart disease, a lot of times they don’t seek help if they have the early symptoms of a heart attack.
+ - We can overcome evil with greater good.
+ - My mother was my Girl Scout leader, and George’s mother was his Cub Scout leader. In fact, that’s when some say her hair turned white.
+ - A love of books, of holding a book, turning its pages, looking at its pictures, and living its fascinating stories goes hand-in-hand with a love of learning.
+ - My husband and I have always incorporated things into our life that reduce stress. We’re very careful with our health. We go to bed early. In this job, fatigue would be very detrimental! We’ve always eaten very healthily; now it’s really particularly easy because we have a chef.
+ - I like this idea of generation after generation helping children on the streets, kids who have run away fleeing violence. I like the whole idea of opening arms for children who have nowhere else to go, sleeping by dumpsters.
+ - No one likes to be criticized.
+ - Diseases don’t respect borders. You know, just at the edge of the American border, that isn’t the edge of diseases. We need to be sure that we’re looking worldwide. And it is in our security interest, as well as our moral interest, to pay attention to the rest of the world.
+ - As long as we have books, we are not alone.
+ - Well, we’ve faced very difficult decisions and challenges in our country, every one of us have, as we – since September 11th, as we fought the war on terror, all of those decisions that the President had to make to put young men and women in harm’s way.
+ - Girls learn how to relate to men from the way their fathers love them. And if their fathers really love them and want the very best for them, then they’ve seen that kind of good behavior that they’d want in a husband.
+ - We see all around the world where women’s rights are denied, where governments don’t believe in educating their girls. There are 800 million people in the world who are illiterate and 75 percent of them are women and girls.
+ - I’ve always loved children. When I was working with children as a librarian, I loved being with them and working around them.
+ - All people need to know how AIDS is transmitted, and every country has an obligation to educate its citizens. This is why every country must also improve literacy, especially for women and girls, so that they can make wise choices that will keep them healthy and safe.
+ - Time spent in nature decreases stress and anxiety and improves focus for adults as well as children.
+ - Though my plans at the moment are vague, I can assure you that I’ll never run for the Senate in New York.
+ - We know how unhealthy it is. I know what happens, though – young women start smoking because they don’t think they’re really going to keep smoking.
+ - Reading will give you lasting pleasure.
+ - It’s a huge advantage to have parents who read to you. And it’s an advantage that lasts a lifetime.
+ - Libraries offer, for free, the wisdom of the ages – and sages – and, simply put, there’s something for everyone inside.
+ - What I want for children in our country and around the world is safe, stable and loving homes.
+ - I think there are a lot of reasons to be critical of the media in America.
+ - Research shows us that children who are read to from a very early age are more likely to begin reading themselves at an early age. They’re more likely to excell in school. They’re more likely to graduate secondary school and go to college.
+ - Books are important. They help you sleep at night.
+ - I would never do anything to undermine my husband’s point of view.
+ - It’s not easy to have the job of president. It’s not easy to run for it. And it’s not a job for the feint of heart.
+ - Educated people can make their own choices about their governments. And certainly for women, an education allows you to understand your rights.
+ - There’s a very close tie between good health and good education.
+ - The National Federation of Republican Women has a long history of helping bring women into the political process while promoting the Republican cause.
+ - I was the same way after graduating with a degree in education. I started to teach and I was wondering: do I really know how to teach?
+ - It’s really important for people who are HIV positive to reach out to let other people know that they can be tested, they can find out they can still live a life – a positive life, a happy life.
+ - But we talk about issues, we talk about people, we talk about personalities. George is a very good reader of people, and he’s very perceptive about people, and you know, that’s fine.
+ - It’s really important for boys to have a father around, or a grandfather, or an uncle – a man they can really relate to who loves them, and who they know loves them.
+ - I’m not wild about the term first lady. I’d just like to be called Laura Bush.
+ - I also know that there are a lot of people around the United States who want my husband to win and who are for him and who support our troops in Iraq and Afghanistan. And I feel good about those people, too.
+ - Jenna’s traveled with me; they’ve both traveled with their dad. This is the only time they’ve been old enough in all of their dad’s campaigns to really be involved in.
+ - In almost every single way, George and I share the same values. And if we differ on some issues, it’s very, very minor.
+ - There are gender health differences, and we need to know what they are.
+ - Politics is a people business. I like people.
+ - I don’t really feel like I have to have a debate with my husband over issues.
+ - I see that one part of the education of women is health education. We know that women who are educated have much healthier families...
+ - I have always admired organizations that help children grow and learn, and organizations that protect and shelter children when no one else does. And I wanted to draw attention to these organizations and recognize the contributions they were making to the country and to our children in particular.
+ - I said, ‘George, if you really want to end tyranny in this world, you’re going to have to stay up later.’ Nine o’clock and Mr. Excitement here is sound asleep...
+ - A good book is like an unreachable itch. You just can’t leave it alone.
+ - We need to alert women everywhere about the seriousness of heart disease.
+ - Bluffton is growing. But we must hold on to that small-town character.
+ - For countries to succeed, for democracies to succeed, the women and men in those countries need to be free. Women and men need to know their rights.
+ - If I’m just at the White House, I have meetings in my office, I sign letters, I plan different things. Late in the afternoon, I’ll quit working and wait for my husband to get home.
+ - There are a lot of women that I think are very powerful and would be great presidents.
+ - I’m inspired by my faith and all the different people around me.
+ - Any criticism of someone you love is hard to take...
+ - In contrast to my husband, I can pronounce the word nuclear.
+ - I also want to encourage anybody who was affected by Hurricane Corina to make sure their children are in school.
+ - When I was in my 20s, I was a bookworm – spent 12 hours of the day in the library. How I met George, I’ll never know.
+ - You know, there are a lot of would-be governors of Texas sitting around today who never took the opportunity to get into a race when the time was right. If George is good at anything, it’s timing.
+ - We seldom give each other advice-I think that’s the success of 25 years of marriage.
+ - I like politics. I like traveling in the United States.
+
+70 quotes

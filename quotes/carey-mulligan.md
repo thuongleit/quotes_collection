@@ -1,0 +1,54 @@
+ - Those with dementia are still people and they still have stories and they still have character and they’re all individuals and they’re all unique. And they just need to be interacted with on a human level.
+ - When you idolise someone, or you hold someone in such high regard, you just want them to be everything that you think there are – and when they are it’s just lovely.
+ - It doesn’t matter what you feel – ultimately, it’s what the audience feels. You can finish a scene and think to yourself, ‘Oh, God. I was so deep in that moment,’ and find it just didn’t play. I don’t know if I have very good radar about that or not.
+ - I am committed to helping Alzheimer’s Society in any way I can. My family and I rely on the help of organisations like Alzheimer’s Society to help us understand the disease and guide us in the care of my grandmother. It’s been a privilege to meet so many people with dementia.
+ - I’m not going to work for the sake of working. I’ll work, if I’m extraordinarily lucky enough to continue having the same opportunities, but it will be based on whatever is there. If there’s nothing around, then I’ll go home and make carrot cake for awhile.
+ - I wanted to be a musical theatre actress – I wanted to play Sally Bowles, forever and ever always.
+ - I can change my appearance quite easily just by changing my hair. So I can adapt quite well.
+ - I don’t wear a bikini on the beach. I walk around my house in pyjamas. I haven’t seen myself naked in the mirror for probably a decade. I’m very prudish.
+ - It’s funny that you can murder someone horribly and graphically and disturbingly in a horror film, and it’s not an NC-17, but if you put a naked man on screen, everyone freaks out.
+ - Am I reserved? I think I agree with that. I don’t think I’m particularly original. I am quite homey, though. But then I’m also quite transient. I quite like being nomadic.
+ - I grew up with an older brother, so I’m pretty good at being bashed around.
+ - When you do bigger jobs there’s more attention and when you film in New York you get loads of paparazzi everywhere. It affects your work because you’re trying to think about the person you’re acting with and you’ve got 20 other lenses taking pictures of you at the same time, and it throws you.
+ - I love New York – maybe more than Los Angeles or London. I think I’m happiest in New York.
+ - My character in ‘Shame’ is an outrageous person. Loud and uncompromising and I begged Steve McQueen to give me the job.
+ - On film sets I can see everyone, and I really still find that so difficult.
+ - Posing on the red carpet feels like you’re selling something that has nothing to do with you. If you do it with someone else, it’s like we’re saying, ‘Oh! We come as a pair! Would you like to buy both of us? We’re available for weddings and Bar Mitzvahs!’
+ - I’m more the sort of person who doesn’t like hugging strangers because we don’t know each other, so we shouldn’t.
+ - I want to play the fake child on ‘To Catch A Predator.’ No, wait! I want to play the Leaf Man!
+ - I wanted to be in a Baz Luhrmann film. It’s just extraordinary. He’s so amazing at what he does. He makes the most incredible films.
+ - I’m not great at having my picture taken and I don’t enjoy that side of it very much but I enjoy being with my friends and it’s nice to have a reunion.
+ - There’s always the things that you think are going to be tough. I’ve been nude once, and I was like, “Oh, that’s going to be a nightmare,” and actually that was fine.
+ - The toughest part of acting is never a single thing. It’s more like a whole character. I find film really difficult – trying to make it feel like a consistent character when you’re filming everything out of order.
+ - It’s actually easier to play a leading role than it is to play a supporting role.
+ - I was trying to find ways of not being pigeon-holed like that. I didn’t want to be tied down by my accent. I wanted to play Americans. I don’t want to ever be doing the same thing twice, and I just didn’t want to repeat myself.
+ - Remakes are a difficult thing ’cause some people feel very protective of the original.
+ - I can actually cook one meal now, as opposed to before, when I could cook nothing. My family are very excited.
+ - I’ve always said I prefer theater, but there’s only ever been one play that I really loved doing, and that was The Seagull.
+ - I don’t really think about roles – “dream roles.” It’s always about who’s gonna be the person on the screen or who’s gonna be the person on the stage and who’s gonna direct it and put it all together.
+ - I’d like to do a play, but I can’t find the right thing. I don’t want it to be a starring role. I just want to play a really interesting character.
+ - I don’t know why people are so down on the Best Western. They have the best sweet potato fries I’ve ever had.
+ - It’s tricky playing people that you don’t like and finding a way to empathise with them. It’s challenging and very exciting for an actor.
+ - I never had posters on my wall and when I meet actors that I really admire, it’s exciting because I get to work with them.
+ - I have always hated nightclubs, and don’t like loud music.
+ - It’s always harder to maintain raw enthusiasm or joy than to go into a really dark place.
+ - With theatre especially, you don’t want to do it unless you love it – there’s no way you can pull it off, making people happy, making yourself happy for 12 weeks or whatever.
+ - I don’t think you should ever damage other people for your art.
+ - I want to be in ‘Glee,’ but I’m told I’m not famous enough to be a cameo yet.
+ - I did Wall Street, and then everything that happened with An Education took me up until March. I didn’t want to work during that because there was just so much stuff. I didn’t realize you had to go to so many parties. It was a nightmare! I had to go to all these parties! The glamour!
+ - The minute I get into a hotel room, I scatter my stuff everywhere. It’s like a bomb site within a minute. So I suppose that means I’m trying to nest.
+ - I didn’t work for a year after Wall Street. I finished that in November, and then it was the following October that I did Drive, so I took a year off. I didn’t do anything at all, really. I just hung around.
+ - People get married when they’re 18 and spend their whole lives together. I think their greatest fear is that someone will see it as a fling because they were young and it didn’t mean anything.
+ - There was an article in the New York Times that said that young men can’t maintain healthy relationships because they’re so influenced by pornography and what they see on the screen. It’s something to be talked about.
+ - When you start playing a character every day for seven weeks, it suddenly starts becoming easier.
+ - I kind of had an idea that New York would be like Fashion Week, where everyone always looks incredibly chic and cool, and I wouldn’t fit in.
+ - What doesn’t draw you into a Coen Bros. movie. It’s amazing. I can’t believe it! They’re the Coen Bros. It’s ridiculous.
+ - I’ve never done coke or anything, and I’ve never played a character who has, so I don’t know whether I would actually try coke if I had to play a character who took coke.
+ - I’ve always played characters that were younger than myself.
+ - People in New York just seem a lot more open than I thought they would be.
+ - I never get recognised here in London, which I like. Once a year, someone comes up to me and asks if I am ‘so-and-so’s niece’ because they think they recognise me from somewhere. I like that.
+ - I never sit in a cinema and go, “Ah! I want to be in that film!”
+ - From Wall Street to Drive was almost a year, when I didn’t do anything ’cause there was just nothing that was significantly different from the things I’d done before. There was just nothing to explore.
+ - I remember in ‘Pride and Prejudice’ I had to do a scene where I broke down. And before we filmed I spent like three hours imagining my mum’s funeral. Actually, she’s very much alive, happy and healthy. It was really horrible.
+
+52 quotes

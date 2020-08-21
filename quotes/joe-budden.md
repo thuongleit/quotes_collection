@@ -1,0 +1,42 @@
+ - You’ll never progress if you never try.
+ - Why try to fit in when you a stand out?
+ - Sometimes you gotta stand by your failures to recognize your success.
+ - I’m a firm believer in everything going digital, in a matter of years. I wanted to kind of be one of the pioneers, one of the people that jump on that bandwagon early.
+ - Like I said, as long as I’m consistent and I try to put my best foot forward, and work as hard as I possibly can, everything else will fall into place – God’ll take care of everything.
+ - Where I’m at physically, mentally, emotionally, spiritually usually dictates where my music goes.
+ - Take away what we love, wed all be Joe Paterno.
+ - Maybe I’m regular and the world needs to adjust?
+ - I read every fan forum and every blog, and every message board, and every chat room. I read it all. There’s nothing online that I’m not aware of.
+ - If I’m trading bars with somebody, it certainly is not because I have a release coming. Joe Budden prides himself on the music and not the sales aspect.
+ - Destiny made a mistake and gave my fate to someone else.
+ - Life is like a beach chair when you can afford one.
+ - Look, sometimes the truth could hurt you so I blow my cig smoke right at the truth commercial.
+ - Joe Budden TV is life through the eyes of Joe Budden. You’ve gotta go check it out – it’s pretty fun.
+ - Project X now, but it started as a Hunger Game.
+ - Music kept me sane. I love music too much. I’m too passionate about music to let anything or anyone come in between me and my love.
+ - Mixtapes are extremely important, especially for New York or North East artists. They allow you to be creative, to get feedback and criticism, but most of all, it gets your name out there. I would say about 90-100% of my success was down to the mixtapes.
+ - I tried to make the best music that I could possibly make, and then nothing was ever good enough.
+ - Even at my lowest I was sittin on my high stool.
+ - It sometimes becomes difficult to tell when you’re even creating a buzz. You know, everything in this game, it so relies on timing that that part is really important, and it’s something that everyone tries to pay a lot of attention to.
+ - You take music out of life and love. I don’t want to be on a planet without music.
+ - I would have had a clause in my contract; I would’ve definitely put some fine print in my contract that said, “If the president leaves, I’m leaving.” That’d be the bottom line.
+ - God I hear you giving me an earfull but I’m gonna cruise in 5th gear until I’m near you.
+ - A few more albums, a few more years, I’ll be like Peter Petrelli in Heroes. I’ll be some type of rap super-monster or something.
+ - In this day and age, you gotta be a profiler to really know who people are, which most of us are not. So, we need time and life to start happening for people to really show their trust colors.
+ - Up late talking to the fans on a website, That’s the only thing that send ya man off to bed right.
+ - Most important to me is being able to release music and have an astounding relationship with whoever would be distributing the music.
+ - It is a different world, the underground. When you hit mainstream, you hit a saturation level and that turns some people off. When you are on more low-key stuff, it works to your advantage and it creates a buzz on the streets. At that point, the sky is the limit.
+ - I remember a day and time when the streets indicated what was hot online, and now I think it’s starting to reverse a little bit.
+ - I get a lot of support from the West Coast. But I think that’s beginning to change. I think, as the awareness goes up, and as I continue to be consistent, more people from my area come around, and they’re converted into Joe Budden fans.
+ - It’s hard – it’s difficult to tell when your buzz is at its peak.
+ - I don’t wanna join the Hair Club For Men or anything.
+ - I think, it’s so difficult to create a buzz anywhere, whether it be online, the streets, radio, anywhere, that if you are able to create a buzz somewhere, it definitely means something.
+ - I think Def Jam happened to be one of the labels that really didn’t have a good grip on things that were going on. I’ll say that – that’s my political answer.
+ - I was fortunate enough to have gone through the major label process and kind of have the inside scoop on some things, some information I wouldn’t have normally had. To go from a major to an independent, I don’t think it’s an easy transition.
+ - It’s one of my short-term goals, to be able to actually record music and release it simultaneously and not just hold on to it.
+ - I know that I’m kind of a big deal online, but I think that some of that is starting to seep into the streets, and you want to kind of continue to make sure it does that.
+ - I think the time in between albums, as much as it was not anticipated, it was much-needed, and very helpful, very useful. I’ve done nothing but hone my craft, and get better, and learn, and gather information in the process. So I’m grateful for it in retrospect.
+ - Technology being the way it is, and record sales being the way it is, there are not too many things that you need to depend on a label for that you can’t go out and do yourself.
+ - I came up in battling and just wanting to compete. Even if you had no real problem with someone, you just wanted to compete.
+
+40 quotes

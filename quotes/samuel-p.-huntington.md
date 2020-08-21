@@ -1,0 +1,26 @@
+ - Many more people in the world are concerned about sports than human rights.
+ - Critics say that America is a lie because its reality falls so far short of its ideals. They are wrong. America is not a lie; it is a disappointment. But it can be a disappointment only because it is also a hope.
+ - Civilizations evolve over time, and most scholars of civilization, including people like Carol Quigley, argue that they go through periods of warring states, and eventually evolve into a universal state.
+ - Power remains strong when it remains in the dark; exposed to the sunlight it begins to evaporate.
+ - Expectations should not always be taken as reality; because you never know when you will be disappointed.
+ - It was one thing to contain the Soviet Union in Europe because Britain, France, and Germany were all willing to join in. But will Japan and other Asian countries be willing to join in the containment of China?
+ - Every civilization sees itself as the center of the world and writes its history as the central drama of human history.
+ - Collective will supplants individual whim.
+ - Democracy is premised, in some measure, on majority rule, and democracy is difficult in a situation of concentrated inequalities in which a large, impoverished majority confronts a small, wealthy oligarchy.
+ - Islam’s borders are bloody and so are its innards. The fundamental problem for the West is not Islamic fundamentalism. It is Islam, a different civilisation whose people are convinced of the superiority of their culture and are obsessed with the inferiority of their power.
+ - Partial truths or half-truths are often more insidious than total falsehoods.
+ - Cultural America is under siege. And as the Soviet experience illustrates, ideology is a weak glue to hold together people otherwise lacking racial, ethnic, and cultural sources of community.
+ - In the emerging world of ethnic conflict and civilizational clash, Western belief in the universality of Western culture suffers three problems: it is false; it is immoral; and it is dangerous.
+ - I think clearly the United States, as well as other western nations, should stand by their commitments to human rights and democracy and should try to influence other countries to move in that direction.
+ - Thus, biologically speaking the American people are literally only half an immigrant people.
+ - And the big question for the West, of course, and to the Europeans is, what other countries, which were formerly part of the Soviet bloc, should be incorporated into western institutions?
+ - It will take a long time, and certainly the West will remain the dominant civilization well into the next century, but the decline is occurring.
+ - These transnationalists have little need for national loyalty, view national boundaries as obstacles that thankfully are vanishing, and see national governments as residues from the past whose only useful function is to facilitate the elite’s global operations.
+ - But then I came to the conclusion that no, while there may be an immigration problem, it isn’t really a serious problem. The really serious problem is assimilation.
+ - In 1920, the West ruled huge amounts of the world.
+ - We really only came around to accepting and integrating the propositional dimension of identity into a concept of ourselves at the time of the American Revolution.
+ - Also, of course, for most of this time most Americans thought of America as a white country with, at best, only a very segregated and subordinate role for blacks.
+ - Religiosity distinguishes America from most other Western societies. Americans are also overwhelmingly Christian, which distinguishes them from many non-Western peoples. Their religiosity leads Americans to see the world in terms of good and evil to a much greater extent than most other peoples.
+ - Well, I think the United States first of all has to recognize the world for what it is.
+
+24 quotes

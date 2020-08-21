@@ -1,0 +1,25 @@
+ - We can only be what we give ourselves the power to be.
+ - Desperate times call for desperate measures. That’s a saying, or a bit of advice, or a catchprase, or a string of words used to confuse people less intelligent than you. In any case, it means: Life is tough, so you’d better fight hard-or something like that.
+ - There is nothing quite as painful as a truly awkward silence.
+ - There is no dignity in a crying toothpick.
+ - What-ifs are for fools. We are here because are meant to be.
+ - Don’t predict disappointment while hope is an option.
+ - There is no moment more precious than the exact moment they are living. And that exact moment has a lot to do with how future moments play out.
+ - Cats learned how to fly that evening,...
+ - Not likely. Dreams are pretty and usually involve horses or rainbows or castles, or big-.
+ - There is no relationship in life that comes with the promise of zero pain.
+ - Perhaps nothing is more magical then the book. Paper, glue and some words and you are taken away from where you sit, stand, dance, or lean.
+ - I am what I am because I have made myself so.
+ - Believe, it is our best defense.
+ - I vowed to never, ever talk or reason like an adult.
+ - There are some things your mind has been hiding from you.
+ - What-ifs are for fools.
+ - That said, I, Beck Phillips, take full responsibility for being stuck in m y school’s pitch-black venting system with my friend Jason, behind me and a garbage bag full of angry bees in front of me.
+ - Thrust the sword into the dark.
+ - Terry was beside himself. Not literally. This story would be that much more painful if there were two Terrys, able to stand next to each other and simultaneously curse Leven.
+ - He came into the world like a delivery that no one knew what to do with, and nobody wanted to sign for.
+ - I’m man enough to know when to scream.
+ - Apparently I wasn’t in the mood to listen to myself.
+ - The car emitted on last gasp and rolled to a stop, in the middle of the Altlantic Ocean. “We’re here,” Leven tried to joke.
+
+23 quotes

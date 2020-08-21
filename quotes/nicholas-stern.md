@@ -1,0 +1,36 @@
+ - The scientific evidence is now overwhelming: climate change presents very serious global risks, and it demands an urgent global response.
+ - Climate change represents the greatest and widest-ranging market failure ever seen.
+ - There is still time to avoid the worst impacts of climate change, if we take strong action now.
+ - The basic scientific conclusions on climate change are very robust and for good reason. The greenhouse effect is simple science: greenhouse gases trap heat, and humans are emitting ever more greenhouse gases.
+ - Climate change and global poverty are two sides of the same coin. Both challenges must be addressed together. If we fail on one, we will also fail on the other.
+ - Looking back, I underestimated the risks. The planet and the atmosphere seem to be absorbing less carbon than we expected, and emissions are rising pretty strongly. Some of the effects are coming through more quickly than we thought then.
+ - Climate change will affect the basic elements of life for people around the world – access to water, food production, health, and the environment. Hundreds of millions of people could suffer hunger, water shortages and coastal flooding as the world warms.
+ - We will not overcome world poverty unless we manage climate change successfully. I’ve spent my life as a development economist, and it’s crystal clear that we succeed or fail on winning the battle against world poverty and managing climate change together. If we fail on one, we fail on the other.
+ - Science and policy-making thrive on challenge and questioning; they are vital to the health of inquiry and democracy.
+ - Failing to curb the impact of climate change could damage the global economy on the scale of the Great Depression or the world wars by spawning environmental devastation that could cost 5 to 20 percent of the world’s annual gross domestic product.
+ - The greenhouse effect is something you can observe experimentally – and most people have observed the greenhouse effect themselves, in greenhouses. Yes?
+ - The US will increasingly see the risks of being left behind, and ten years from now they would have to start worrying about being shut out of markets because their production is dirty.
+ - Give up meat to save the planet.
+ - A diet that relies heavily on meat production results in higher emissions than a typical vegetarian diet. Different individuals will make different choices. However, the debate about climate change should not be dumbed down to a single slogan, such as ’give up meat to save the planet.
+ - My father’s generation’s crisis was fighting fascism. Ours is fighting climate change. It is much harder because you can’t see it, it is not an obvious threat. But the solution is in our hands.
+ - Unfortunately, the current pace of progress is not nearly rapid enough, with many rich industrialised countries being slow to make the transition to cleaner and more efficient forms of economic growth.
+ - Meat is a wasteful use of water and creates a lot of greenhouse gases. It puts enormous pressure on the world’s resources. A vegetarian diet is better.
+ - Greenhouse gas emissions: Ultimately, stabilisation – at whatever level – requires that annual emissions be brought down to more than 80% below current levels.
+ - Adaptation can efficiently reduce the costs of climate change while atmospheric concentrations of greenhouse gases are being stabilised.
+ - Do politicians understand just how difficult it could be, just how devastating rises of 4C, 5C or 6C could be? I think, not yet.
+ - You’d see more floods like you’ve seen in Mozambique in 2000, you’d see more droughts like you saw in Kenya in the late 1990s, there would be a serious threat to the water flow down the Nile on which 10 countries depend.
+ - Adaptation is a vital part of a response to the challenge of climate change.
+ - If coal is going to be used, the only response – because it is the dirtiest of all fuels – is that we have to learn how to do carbon capture and storage and we have to learn how to do it quickly on a commercial scale.
+ - It’s very important that there should be cross-fertilisation between government and academia. Both parties can benefit from having a better understanding of how the other works.
+ - I’ve never really had much of a career plan, and interesting opportunities kept cropping up.
+ - We run enormous risks and we know what kind of reductions of greenhouse gases are necessary to drastically reduce risks. Reducing emissions by half by 2050 is roughly in the right ballpark. It would bring us below 550 ppm.
+ - The record rainfall and storm surges that have brought flooding across the UK are a clear sign that we are already experiencing the impacts of climate change.
+ - Those who say that climate change doesn’t exist are being understood as the flat-earthers that they are, as the people who deny the link between smoking and cancer, as the people who denied the link between HIV and AIDS.
+ - Enlightened self-interest from those involved in hydrocarbons should lead to the support of technologies enabling the clean use of hydrocarbons, such as carbon capture and storage, and not to the defence of deniers and cranks.
+ - Adaptation is the only means to reduce the now-unavoidable costs of climate change over the next few decades.
+ - Fortunately poorer countries, such as China, are showing leadership and beginning to demonstrate to the world how to invest in low-carbon growth.
+ - As an undergraduate, I did maths and physics. That doesn’t make me a scientist. So I try to read and understand and talk to scientists.
+ - A rise of 5C would be a temperature the world has not seen for 30 to 50 million years. We’ve been around only 100,000 years as human beings. We don’t know what that’s like.
+ - The one way of guaranteeing to fail is to assume that we will.
+
+34 quotes

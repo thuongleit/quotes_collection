@@ -1,0 +1,124 @@
+ - We need to remind ourselves of the beauty of human connection and of nature and pull ourselves out of devices for a moment and appreciate what it is just to be human beings.
+ - In a thousand years, archeologists will dig up tanning beds and think we fried people as punishment.
+ - I trust work, directors – I don’t live in fear. All good experiences have come from trusting the universe. There is no other way to live or love. Otherwise, you create your own prison.
+ - Inspiration is the key to everything.
+ - Music plays a big part in my life. I am a big music nerd.
+ - I don’t think anyone should apologize for being sexy if it comes from a genuine place, if they’re not being forced into an objectifying situation.
+ - We fall in love with one version of someone and we expect them to stay that way, but they never do.
+ - I had imaginary friends and even they were mean to me.
+ - My parents said marrying was an optimistic thing to do in pessimistic times.
+ - If you fall off a horse, you get back up. I am not a quitter.
+ - Documentaries are a powerful and effective way of bridging the gap between worlds, breaking through to new audiences that wouldn’t otherwise be engaged – in essence, not preaching to the choir.
+ - Only the really young are fearless, have the optimism, the romanticism to take unimaginable risks.
+ - But even if I’m left high and dry at the end of this wild journey, just taking it is a great feeling.
+ - I have very high standards for every part of life – my work, my relationships, food, love. I can’t just pretend.
+ - At one point I thought changing my name might help with privacy, but that was before the Internet.
+ - I think what ruins relationships and causes most fights is insecurity.
+ - I got an internship with the casting director of The Girl Next Door. I would hold the clipboard and help them in their casting sessions and get them lunch.
+ - I’m a natural blonde, but I feel like a brunette.
+ - I’ve learned that it’s important to spend some time in a relationship with yourself and not being defined by your partner.
+ - Anything that becomes an obstacle in life is only an opportunity to learn and it’s the same in any profession I think.
+ - Friends, haters, it’s Twitter poll time. What do you think most holds back justice and equality for women? All thoughts welcome!
+ - In Alien, Sigourney Weaver’s role was written for a man. In Salt, Angelina Jolie’s role was written for Tom Cruise. These things, when reversed, do prove to be just as exciting and entertaining with women in leading roles.
+ - I love yoga and hiking – I think that’s the perfect combo.
+ - I could find David Beckham naked in a cardboard box on my doorstep and I would drop him off at the pound.
+ - The amazing thing about becoming a parent is that you will never again be your own first priority.
+ - I’ve thought for a long time that my body type would have worked well in the ’70s. The idea that you could be a broad-shouldered, small-breasted woman and still wear really great outfits.
+ - Oh God, to think that you only fall in love once in your entire life is such a depressing thought.
+ - My dad is Irish. I spent my childhood going back and forth between Ireland and America.
+ - I was much more into romance as a teenager and it’s been a kind of new discovery for me to learn about sci-fi adventure. I think it’s a really interesting genre and it’s all about imagination. It’s boundless what you can do in these stories.
+ - I’m now convinced that I’m a doctor. I mean, if someone says they have a pain, I’m like, ‘Well, that’s your spleen.’
+ - When you a darker brunette and have pale skin like I do, it can wash you out a bit, so learning to contour is really helpful. I think you can be a bit more bold with eye makeup to define your eyes, and the same with lip colors – you can go for dark wine colors, which I love.
+ - I also discovered Pilates when I got pregnant, as people kept saying it’s a great way to stay in shape, and now I can’t get enough – it’s amazing. It helps with aches and pain and, even for non-pregnant people, it’s a great way of getting those lean muscles.
+ - So are all the kids on the East Coast repeating school next year? Get ready to see a lot of hairy eighth graders. Storm brain drain.
+ - Once, in Australia, I ate 33 pancakes in 20 minutes, and I only did it because they said a girl could never enter the competition.
+ - I love the writing process. It’s something that I’m interested in personally and something I always do on every movie.
+ - Enjoy the pregnancy, not racing ahead and relishing the moment. I think people see pregnancy as something to get over with, but every stage of becoming a mother is really special.
+ - I’m pretty low-key; you’ll often find me in jeans, a T-shirt and sweatshirt.
+ - I am a big music nerd.
+ - Being vegan is not always easy and accessible. But it’s a way of life and makes me as a person feel really good and physically look better.
+ - I shaved the back of my head once and did the asymmetrical hair.
+ - I was a tomboy and I didn’t have a bunch of brothers but I always wanted them and so I sort of adopted a few of my great friends to be my brother.
+ - I have to say that I approach every project with the same energy. I also think that, since I started producing, I see the process from a different perspective, which affects the way I jump on board immediately.
+ - As you get older, you start to really ask questions like, ‘Is this the road I should be walking down?,’ because every decision seems more final, as you get older.
+ - I love the eyebrow pencils. I do my brows every day. I won’t leave my house without my brows! My beauty disaster from childhood was trying to look like Kate Moss and plucking all my brows off.
+ - A good litmus test is that you should be comfortable with your significant other being present when you hang out with your friend.
+ - I know, I’ve never had boobs before!
+ - I do not tweeze my eyebrows. I’ve been letting them grow out for years. I try to fill them in wherever nature has abandoned me.
+ - I actually think the subject of young divorce is pretty funny; I’d like to write a movie about it.
+ - The mark of a good marriage is partnership and continuing to feel inspired by your spouse. I had that with Tao. But the end is not necessarily the tragedy. Staying in a relationship that is no longer working is the tragedy. Living unhappily – that’s the tragedy.
+ - Many casting directors won’t hire aspiring actors because you might be burning some chick’s headshot under the table so she doesn’t get the part.
+ - I loved being pregnant. I felt unapologetically curvy, sexy, and intensely feminine. After giving birth I joined the ranks of millions of new mothers when I moaned, ‘Why do I still look pregnant?’
+ - Writers get to know me very well. It always serves me in the end because I feel I have a deeper understanding of the character and sometimes they really like my ideas and they use them.
+ - I can never describe myself as a movie star. I don’t know when that happens but it’s certainly not me.
+ - I don’t own a scale, and Tao banned the word ‘fat’ from our house. If we eat too much, we say, ‘I feel clogged up.’
+ - I was a handful growing up.
+ - In human years I am 29. In actress years I’m the ripe, promising age of 18 to 35. That’s how it works here in Hollyweird.
+ - In a relationship I’m a very loving person, emotional and sensitive.
+ - I think it’s very healthy to spend time alone. You need to know how to be alone and not be defined by another person.
+ - As a woman who works in a male-dominated business – Hollywood, definitely, being one of them – I instinctually knew what that is like. You have to be strong and take care of yourself.
+ - Seeing the energy of ‘SNL’ made me want to be a part of it. If that was a job, I thought, that was the job I wanted. That was my plan. Comedy.
+ - I admire women who can be feminists and fight for women’s rights, who believe in our powers as individuals and yet not apologize for beauty.
+ - My life is about politics, a lot of about music, and a lot about things other than acting. I like traveling the world. But, what makes me want to stay in this business and keep doing this are movies when it’s a true labor of love.
+ - If a woman feels anchored to a man’s plans, she may start to resent him for the fun she’s worried she’s missing.
+ - It’s boring to play the girl role!
+ - From a very early age, I made my decisions based on careers that I admire. The one thing that all the actresses I love have in common is that they have diversity in their careers.
+ - I used to experiment all the time with my hair color.
+ - I’m still a student of fashion, but I like hooking up with the people that really know how to make cool clothes.
+ - Believe it or not, I’m a big fan of patchouli oil. I know it’s not a universally liked fragrance. I usually combine it with other essential oils – I have many mixtures I like.
+ - Fear of carbs, of gluten, of everything – we’ve distanced ourselves from the beauty of food, the art of it. It makes me sad when people say, ‘Oh, I don’t eat gluten. I don’t eat cheese. I don’t eat this. So I eat cardboard.’
+ - A lot of people assume that women of a certain age who are not unattractive have no excuse for not having a perfect life. But you can have emotional baggage that is dragging you down like cement blocks tied to your feet.
+ - All actors should experience public failure.
+ - I have a lot of friends who I really feel like I can kick back with and let all pretense go and be very comfortable with.
+ - I tend to go with a daytime look, pretty natural, but I always fill in my eyebrows – I hate if I leave the gym and my eyebrows aren’t done; I’m just very uncomfortable with myself.
+ - I remember walking into drugstores when I was younger and seeing all the hair color boxes on the shelves and just being so in awe. Having the control to dye your hair and change your look is such a part of self-expression.
+ - It was helpful to have the confidence of youth that came from a lack of desperation. I thought, ‘If I don’t succeed, I’ll go back to school and study.’
+ - People think that young people don’t care about things, but I think they do care; they just aren’t super interested in conforming to what older people think are the right way to do things.
+ - When you’re in a romantic relationship, of course, there is a lot more compromise and you have to be a lot more unselfish.
+ - Now I’m doing a film festival for kids and writing a script about a kidnapped journalist in Afghanistan.
+ - I’m a natural blonde, but I feel like a brunette. I feel like people treat me now how I should be treated. People used to be shocked, when I was blond, that I wasn’t stupid.
+ - I enjoy getting gussied up for an event or date night.
+ - I’ve always been a fan of science fiction. My family, we all used to watch ‘Star Trek’ together, which is kind of a nerdy family activity.
+ - I consider my education to be the first 10 years of my career.
+ - In my work in Haiti, I’ve seen the hugely positive effects that happen when people come together to build something in the middle of the most desperate situations.
+ - It seems like a dangerous concept to have someone who’s just your drinking buddy. Someone you have nothing in common with, if you’re sober, is probably not a good, healthy friendship.
+ - Cleanses and products don’t make you look more beautiful. They certainly help, but if you reach contentment, you’re set. My makeup artist, Melanie Iglesias, couldn’t figure out why my skin looks so good. I think it’s because I’m happy!
+ - It’s really hard to get stories made that are about women. Not just women being obsessed with men, or supporting men. And it’s really hard to get men to be a part of films that are about women in a leading role. I’m really interested in how we can adjust that.
+ - Let’s redefine scandal. Scandal is not who’s dating who. Scandal is 1.2 million people living in tents in Haiti.
+ - In 2012, I see the potential for people to come together, huge moments of political and social engagement where elections are part of the strategy for change, but not the end goal and not the only thing that matters.
+ - I love eye makeup. I really like doing a cat eye, playing with liquid liners and different colors of liners, like emerald and deep blues, combining them with black.
+ - Once I took a bus from my home in Maryland to Philadelphia to live on the streets with some musicians for a few weeks, and then my parents sent me to boarding school at Andover to shape me up.
+ - I fell in love with theater there, and after graduation I moved to Los Angeles to pursue acting.
+ - I think that you sign a sort of unwritten contract when you become a public figure, when you become an actor, that you’re sacrificing a certain amount of privacy and parts of your life change.
+ - I am so saddened and grossed out by young women who look like creepy, old aliens because of their new Barbie noses and lips. Is that a smile or a grimace?
+ - People assume actresses are afraid to get older; the truth is the roles get a whole lot more compelling once you’re too old to play dumb.
+ - Weakness is something we don’t like to admit we have. We hold it against people, until we experience it, and then we feel more compassion for it.
+ - I have a great pack of female friends, but I also have a lot of guy friends. I believe that platonic relationship is entirely possible.
+ - When you choose to be an actor, you are going against the odds.
+ - The mark of a good marriage is partnership and continuing to feel inspired by your spouse.
+ - Mick Jagger has produced some great films and brought us stories about the music industry that have changed the way we think about how music is made.
+ - If I could play drums like Patrick Carney or Taylor Hawkins, I’d be a really happy person.
+ - I feel like the luckiest person on the planet. ‘Tron’ was such a departure for me.
+ - When I first did theatre, I was always doing comedies; it was always my first love. But it wasn’t what I was picked for at first, for films and TV.
+ - I love kids with a passion I usually reserve for hot cheese, miniature chairs, and Prince concerts, but I feel no stress to reproduce simply because of a fear of withering eggs.
+ - I feel like fashion should not happen in the morning.
+ - Looking natural takes so long! If you look at the runways, the look for models is predominantly natural, isn’t it?
+ - I think there was no other profession for me. I was either going into an insane asylum or to be an actor.
+ - Do some yoga. I never feel more beautiful than after I’ve really spent some time breathing.
+ - People have nervous tics they don’t know about, and I would advise asking around. Ask the casting director, ‘Is there something I’m doing?’ I would see people unconsciously rocking back and forth. I roll my lips. I bite my lips and roll them.
+ - In the next election, can we vote to ban those ribbon things that kind of keep clothing on hangers but really just hang out of your armpits?
+ - It’s so important to have that independence. You know it yourself: Everyone needs evenings of their own.
+ - What happens so often as an actor is that you retain the information about the scenes that you yourself shot and you obsess over certain scenes that you found the most challenging or interesting. The rest of the film kind of falls away in your memory or it fades a little bit.
+ - I think that women are more sensitive to emotional infidelity than men. I think men are more scared of physical infidelity.
+ - I wanted to be on ‘Saturday Night Live’ since I was ten.
+ - I guess for my skin, I clean it and moisturize and try to drink water. How boring is this though? I’m convinced that it comes from within. If you’re happy and healthy, it shows.
+ - I feel like the luckiest child in the world because I got to grow up in Ireland. In summer is when you really grow up. During the year, I would go back to the States, and all year long really couldn’t wait to get back to Ardmore.
+ - You really just have to love the process. I can’t tell you the amount of film sets I’ve been on where people are talking about Oscars in the middle of the production. It happens all the time.
+ - It would be so depressing to be a model and not get to say a word. There’s no personality involved.
+ - So many people have said that to me, that what they really like about Alex is what she brings out in Marissa, and what this situation brings out in her, a hint of happiness and another side to her character.
+ - If I have to draw attention away from some hormone-induced acne on my chin, I put on a lot of mascara.
+ - Early on, I knew I had ideas, but I wasn’t sure when it was appropriate to bring them to the table and I was so intimidated by these titans that I was working for.
+ - I use the PhotoReady Foundation almost every day, and their lip glosses are fantastic.
+ - The opportunity to be able to tell stories to a massive audience is really incredible and this job couldn’t be more satisfying. So, any drawbacks I think are worth it if you really enjoy the work. I hope to be doing this until I die.
+
+122 quotes

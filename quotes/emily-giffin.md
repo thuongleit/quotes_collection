@@ -1,0 +1,131 @@
+ - He who fails to plan, plans to fail.
+ - You can run but you can’t hide.
+ - I think of how each person in a marriage owes it to the other to find individual happiness, even in a shared life. That this is the only way to grow together, instead of apart.
+ - You can only control your own actions. Not other people’s reactions.
+ - You’ll never regret being a good friend.
+ - I miss him in so many ways, but right now I miss him in the way you always miss someone when you’re single among a room full of couples.
+ - A son is a son ’til he gets a wife, but a daughter is a daughter all her life.
+ - Nothing is ever perfect. It is what you make of it.
+ - But I am learning that perfection isn’t what matters. In fact, it’s the very thing that can destroy you if you let it.
+ - It’s like when someone dies, the initial stages of grief seem to be the worst. But in some ways, it’s sadder as time goes by and you consider how much they’ve missed in your life. In the world.
+ - It always takes two. For relationships to work, for them to break apart, for them to be fixed.
+ - I think of how life takes unexpected twists and turns, sometimes through sheer happenstance, sometimes through calculated decisions. In the end, it can all be called fate, but to me, it is more a matter of faith.
+ - I miss us, too. I always have, and probably always will.
+ - This is why you should never, ever get your hopes up. This is why you should see the glass as half empty. So when the whole thing spills, you aren’t as devastated.
+ - Maybe the thing to do after you roll the dice-and lose-is simply pick them up and roll them again.
+ - Change can be good but its always tough to let go of the past.
+ - Guilt is a supreme waste of time and energy.
+ - People generally didn’t cheat in good relationships.
+ - But I have learned that you make your own happiness, that part of going for what you want means losing something else. And when the stakes are high, the losses can be that much greater.
+ - Songs and smells will bring you back to a moment in time more than anything else. It’s amazing how much can be conjured with a few notes of a song or a solitary whiff of a room. A song you didn’t even pay attention to at the time, a place that you didn’t even know had a particular smell.
+ - The best reason to pray is that God is really there. In praying our unbelief starts to melt. God moves smack into the middle of even an ordinary day.
+ - Whenever you make a big decision in life, at least any decision where you have a viable alternative, there is an inevitable uneasy aftermath. Anxiety is merely a sign that you’re taking something seriously.
+ - When you’re in love, sometimes you have to swallow your pride, and sometimes you have to keep your pride. It’s a balance. But when the relationship is right, you find the balance.
+ - Life’s not black-and-white. Sometimes the ends justifies the means.
+ - And then there is our personal history. Memories only we share. Things not another living soul would understand.
+ - Anything worthwhile is tough.
+ - I’ve always been intrigued by the power of secrets. When is it justifiable to keep them from the ones we love? And does keeping them irrevocably change who we are?
+ - He was uncomplicated and upbeat and easy. At one point, I might have thought these traits made him a simpleton, but now I think they just translate to happiness.
+ - There is no grief like heartbreak.
+ - He nods, as if to acknowledge that endings are almost always a little sad, even when there is something to look forward to on the other side.
+ - How different this moment feels, for so many reasons. I tell myself that no two loves are identical – but that I don’t have to compare anymore.
+ - It’s the worst thing to fall in love with someone who will never stop disappointing you...
+ - Where we belong is often where we least expect to find ourselves – a place that we may have willed ourselves to forget, but that the heart remembers forever.
+ - What every girl dreams of when she’s dumped is – that the guy will someday feel regrest and come back and tell her all about it. And the beauty of it is you have no regrets whatsoever.
+ - Really-nothing is unforgivable if you truly love someone.
+ - I remember that my mother once told me that the opposite of love isn’t hate, it’s indifference.
+ - His loyalty, so fierce and unwavering, makes my eyes water and heart ache.
+ - Everyone wants to belong, or be a part of something bigger than themselves, but it’s important to follow your heart and be true to yourself in the process.
+ - Whats not to love is hardly a reason to love. And the catch of your life is not the same thing as the love of your life. Be careful of that subtle but rather crucial distinction.
+ - Life is about the gray areas. Things are seldom black and white, even when we wish they were and think they should be, and I like exploring this nuanced terrain.
+ - Love is seldom – almost never – an even proposition. Someone always loves more.
+ - Throw in the intensity of emotions that come with that bittersweet summer sandwiched between high school graduation and the rest of your life...
+ - Things are what they are and there’s no point dwelling in the past or wondering what could have been.
+ - I love him wholly and unconditionally and without reservation. I love him enough to sacrifice a friendship. I love him enough to accept my own happiness and use it, in turn, to make him happy back.
+ - I don’t break up, I trade up.
+ - You don’t have to talk to someone to think about them and check up on them now and again.
+ - No, scratch the word “career.” Careers are for people who wish to advance. I only want to survive, draw a paycheck.
+ - The whole “misery loves company” thing never applies more than when you’re breaking up. The thought that the other person is doing fine is simply too much to bear.
+ - Happiness is the best revenge, you know? Just be happy. It’s a choice.
+ - But one thing I have to say about Darcy and dating is this: she never blew us off for a guy. She always put her friends first- which is an amazing thing for a high school girl to do.
+ - And although one broken heart doesn’t make me an expert in the subject, I believe you need both things – time and an emotional replacement – to fully mend one.
+ - In days that follow, I discover that anger is easier to handle than grief.
+ - You can’t quantify love, and if you try, you can wind up focusing on misleading factors.
+ - Blurring the line between friendship and attraction was a surefire to lose a friend.
+ - I still think I love him more. It’s one of those things you never know for certain because there’s no way to enter all the relationship data in a computer and have it spit out a definitive answer. You can’t quantify love, and if you try, you wind up focusing on misleading factors.
+ - I learned that getting mad was easier than being sad.
+ - Sure, we were friends who exchanged soulful glances, friends who slept in a bed filled with sexual tension, friends who found any excuse to touch, but I worried that we’d never take that perilous leap of faith toward becoming a real couple, a permanent team.
+ - There are no absolutes in relationships. You can’t take anything for granted. You can count on absolutely nothing but the unexpected. You only get in trouble when you start thinking that you’re some kind of exception to the rule.
+ - It was the same night I gave myself to him completely, knowing that I would belong to him for as long as he wanted to keep me. And, as it turned out, even longer than that.
+ - There are people and places and events you’d prefer to forget or at least gloss over. In the end, you can slap a pretty label on it – like serendipity or fate. Or you can believe that it’s just the random way life unfolds.
+ - Sorrow comes with so many defense mechanisms. You have your shock, your denial, your getting wasted, your cracking jokes, and your religion. You also have the old standby catchall – the blind belief in fate, the whole “things happening for a reason” drill.
+ - It’s a funny thing – when I’m crazed with work, spending time with my children relaxes me. Yet, at the end of a long weekend with them, the very thing I need to relax is a little work and time away from them!
+ - The person who wants out of the relationship always gets her way.
+ - In the final seconds before sleep, I wish I could go back and undo everything, give those little girls another chance.
+ - You can love someone you mistrust.
+ - Surely he knows we are all watching. That I am watching. It is always that way when you are in a group and someone decides to go for a swim or walk to the water. The ocean is a giant stage. It is natural that the others watch, if only for a moment.
+ - No matter what the circumstances. I am more like most men in this regard. No second chances. It’s not so much about morality, but about my inability to forgive. I’m a champion grudge holder, and I don’t think I could change this about myself even if I wanted to.
+ - Well, because sometimes you love someone but they might not be the right person for you. That takes some time to figure out.
+ - He threw in the towel before we were tested. Maybe because he didn’t want to be tested. Maybe because he assumed we would fail. Maybe because, at the time, he just didn’t love me enough.
+ - And without Dex in my life, I like to think I could have somehow found contentment. But the truth is, I feel freer with Dex than I ever did when I was single. I feel more myself with him than without. Maybe true love does that.
+ - My name is Kirby Rose, and I’m adopted. I don’t mean to make it sound like an AA confession, although sometimes that’s how people take it, like it’s something they should be supportive about. I just mean that they are two basic facts about me.
+ - The worst is when someone in your past trumps the person in your present, and you think to yourself: if I’d known this, then maybe I wouldn’t have let him go.
+ - My wants are simple: a job that I like and a guy whom I love.
+ - We are in love and meant to be together.
+ - Instead of relief or gratitude, more guilt washes over me. Andy’s certainly not faultless – no one ever is in a marriage.
+ - My head spins as I glance away, refusing to get sucked back into his gaze when so much is at risk.
+ - Although I’m sure there are plenty of tall, gorgeous, life-of-the-party guys who are also true to their wives, I happen to believe that a disproportionate number of them are cheaters.
+ - I try to write about real women, real people – in other words flawed characters.
+ - I try to recognize that there is no such thing as having it all – and it’s impossible to be perfect. You just have to let certain things go.
+ - I wondered why I was so startled by the encounter when there was something that seemed utterly inevitable about the moment. Not in any grand, destined sense; just in the quiet, stubborn way that unfinished business has of imposing its will on the unwilling.
+ - Love as a verb. Love as a commitment.
+ - I really try to focus on my books and readers.
+ - One way isn’t better than the other; they’re just different.
+ - Often I feel that projects overwhelm us when we look at how many hours are involved until completion. But just getting started is usually not that difficult.
+ - What appeals to you the most is the very thing that will drive you crazy.
+ - Things certainly aren’t the way you imagine them when you’re a kid and dreaming big dreams about what your life as a grown-up will look like.
+ - I like to match what I wear to my book jacket – it’s a little bit cheesy, but it’s my thing.
+ - Writing a teen character is something I wanted to try again for a long time!
+ - I find my voice and manage to say those three one-syllable words back to him. Words I haven’t uttered in a very, very long time. Words that meant nothing before now.
+ - We are one of those couples i used to watch, thinking to myself that I’d never be on the inside of something so special. I remember reassuring myself that it probably looked nicer than it actually was, I am happy to be wrong about that.
+ - Every couple has two stories – the edited one to be shared from the couch and the unabridged version best left alone.
+ - After all, I think, isn’t it always about a boy?
+ - And like a favorite old movie, sometimes the sameness in a friend is what you like the most about her.
+ - I will find the good in this loss. I will make something happen that wouldn’t have happened otherwise.
+ - But now we have time. Endless time stretches before us.
+ - But I have learned that you can’t just create your own timetable and will it to come true.
+ - Well, shoes, bags and clutches are usually my big weaknesses – my husband always laughs when I call them ’investment pieces.
+ - For true downtime, I enjoy going for light runs, having drinks with friends and going to the movies with my husband.
+ - Even if we no longer have much in common, we would have always had the past, which, in some ways, is just as important as the present or future. It is where we come from, what makes us who we are.
+ - Evident in every small act of kindness, it was love as a verb. Love that made me feel more complete than I had ever felt in my glamorous, Jimmy Choo filled past.
+ - True love is supposed to make you into a better person-uplift you.
+ - Throughout the ordeal, I learned that getting mad was easier than being sad. Anger was something I could control. I could settle into an easy rhythm of blame and hate. Focus my energy on something than the ache in my heart.
+ - I spend the rest of the afternoon trying to explain to Zoe one of the very saddest notions in love and life: sometimes the timing is wrong – and sometimes you realize the heart of the matter way to late in the game.
+ - Love and friendship. They are what make us who we are, and what can change us, if we let them.
+ - I don’t know. She was a sweet girl. As sweet as they come. I don’t know why I didn’t love her. It’s something you can’t really control.
+ - There are two kinds of women – those who eat in a crisis and those who lose their appetite in a crisis.
+ - When I meet someone I like being with more than I like being alone, I’ll marry her.
+ - Luck is buying a lottery ticket along with your Yoo-hoo and striking it rich. Nothing about my life is lucky- it is all about hard work, it is all uphill struggle.
+ - I do not expect to get what I want, so I don’t. And I don’t even try.
+ - I had never understood what people meant when they said they’d rather be alone if they couldn’t be in the right relationship. Now I got it.
+ - Buried beneath disappointment and fear, anger and pride, I just might find it in my heart to forgive.
+ - It’s like Brad Pitt for us. You might not like blond men with pretty features, but c’mon, it’s Brad. You’re not going to kick him out of bed for eating crackers.
+ - Did she ever regret her choices? Were her decisions more clear-cut than mine – or are there always shades of gray whe it comes to matters of the heart?
+ - The world is not that black and white, Rachel. There are no moral absolutes. It is complex.
+ - Inevitably I draw on my own relationships when I write, so if I’m writing about a fight between a husband and his wife, of course I’m going to think about a recent fight with my husband. Or if I’m writing about sisters, of course I’m going to think about my sister.
+ - Then he asks if he can kiss me. It is a question I don’t usually like. Just do it, I always think.
+ - It’s simply human nature to have an occasional, fleeting interest in someone whom you once loved.
+ - I think it’s important to try to be present with whatever it is you’re doing. And if you can’t be present, take a break.
+ - But certainly not everyday you can find someone who wants to have a monogamous relationship.
+ - But now I can see that there is redemption and beauty in an accident emanating from love.
+ - Which always raises the interesting question of whether redheads pursue other redheads in a narcissistic way, or simply, because they have no other choice, as nonredheads aren’t interested.
+ - There is no better audience for someone in love than someone in love.
+ - I have always been drawn to coming-of-age stories and books and movies featuring compelling young characters.
+ - She wonders what fool ever said that it’s better to have loved and lost than to have never loved at all – she has never disagreed with something so much.
+ - A theme in a lot of my books – and in my own life – is making choices that you feel you should make, or what society wants you to make, as opposed to what is truly right for you.
+ - There are two kinds of sorry. There is the sorry imbued with regret. And a pure sorry. The kind that is merely asking for forgiveness, nothing more.
+ - What if two people want to be your partner, then what?
+ - I don’t really know why I went to law school.
+ - Sweetened ice tea is one of the things I love about the South, right up there with homemade biscuits and cheese grits.
+
+129 quotes

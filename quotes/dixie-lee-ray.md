@@ -1,0 +1,21 @@
+ - Beware of averages. The average person has one breast and one testicle.
+ - A nuclear power plant is infinently safer than eating, because 300 people choke to death on food every year.
+ - Well tended garden is better than a neglected wood lot.
+ - It is not classified as a pagan religion. The so-called New Age activities and this are not called religions and therefore don’t come under the prohibition of mingling church and state that we have in this country.
+ - The organic material, as the laws of chemistry state, can neither be created nor destroyed.
+ - I think people are going to return to sanity when they see how ridiculous many of these charges are, and how the predictions are not borne out.
+ - I do not believe that the government is in any position to say exactly how every single business and every single activity shall reach those performances.
+ - The government should set a goal for a clean environment but not mandate how that goal should be implemented.
+ - Anything that the private sector can do, the government can do it worse.
+ - Everybody is exposed to radiation. A little bit more or a little bit less is of no consequence...
+ - We need to ask our policy makers and those we elect to office who are supposed to make decisions to give us the evidence of the facts that are behind the decisions that we make. We should be skeptical.
+ - There is a deliberate and quite outspoken attack on the whole idea of people owning private property.
+ - The reality is that zero defects in products plus zero pollution plus zero risk on the job is equivalent to maximum growth of government plus zero economic growth plus runaway inflation.
+ - We shouldn’t accept things just because somebody says so.
+ - They fail to recognize the broad biological principle that organic material is constantly being recycled. Everything has a time of being – a birth, a life span, and a death.
+ - Nature did not make me willowy.
+ - Reporters no longer ask for verification, thus they print charges no matter how outlandish they may seem, and once having done that, when the truth comes out, it’s buried in the back page or never makes it on the air at all.
+ - No question about that, the radicals are in charge.
+ - I have confidence in people’s basic common sense.
+
+19 quotes

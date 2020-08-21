@@ -1,0 +1,42 @@
+ - In the age of information, ignorance is a choice. ~~Donald Miller
+ - War is peace. Freedom is slavery. Ignorance is strength. ~~George Orwell
+ - They say a little knowledge is a dangerous thing, but it’s not one half so bad as a lot of ignorance. ~~Terry Pratchett
+ - Don’t ever mistake my silence for ignorance, my calmness for acceptance or my kindness for weakness. Compassion and tolerance are not a sign of weakness, but a sign of strength. ~~Dalai Lama XIV
+ - The highest form of ignorance is when you reject something you don’t know anything about. ~~Wayne W. Dyer
+ - If someone can prove me wrong and show me my mistake in any thought or action, I shall gladly change. I seek the truth, which never harmed anyone: the harm is to persist in one’s own self-deception and ignorance. ~~Marcus Aurelius
+ - Ignorance is a virus. Once it starts spreading, it can only be cured by reason. For the sake of humanity, we must be that cure. ~~Neil deGrasse Tyson
+ - Science is the father of knowledge, but opinion breeds ignorance. ~~Hippocrates
+ - The angel is free because of his knowledge, the beast because of his ignorance. Between the two remains the son of man to struggle. ~~Rumi
+ - Ignorance more frequently begets confidence than does knowledge. ~~Charles Darwin
+ - Of all the frictional resistances, the one that most retards human movement is ignorance. ~~Nikola Tesla
+ - Intelligent design is a philosophy of ignorance. ~~Neil deGrasse Tyson
+ - Once a person stops searching for information and self-knowledge, ignorance sets in. ~~Robert T. Kiyosaki
+ - Beware of false knowledge; it is more dangerous than ignorance. ~~George Bernard Shaw
+ - You have been a prisoner of a little pond I am the ocean and its turbulent flood Come merge with me leave this world of ignorance. ~~Rumi
+ - Our trouble is not ignorance, but inaction. ~~Dale Carnegie
+ - Either America will destroy ignorance or ignorance will destroy the United States. ~~W. E. B. Du Bois
+ - Sometimes I’ve believed as many as six impossible things before breakfast. ~~Lewis Carroll
+ - Trust that little voice in your head that says ‘Wouldn’t it be interesting if...’; And then do it. ~~Duane Michals
+ - If any man can convince me and bring home to me that which I do not think or act aright, gladly will I change; for I search after truth, by which man never yet was harmed. But he is harmed who abideth on still in his deception and ignorance. ~~Marcus Aurelius
+ - Science literacy is a vaccine against the charlatans of the world that would exploit your ignorance. ~~Neil deGrasse Tyson
+ - The most merciful thing in the world, I think, is the inability of the human mind to correlate all its contents. We live on a placid island of ignorance in the midst of black seas of the infinity, and it was not meant that we should voyage far. ~~H.P. Lovecraft
+ - Until one is committed, there is hesitancy, the chance to draw back, always ineffectiveness. Concerning all acts of initiation – creation – there is one elementary truth, the ignorance of which kills countless ideas and splendid plans... ~~Johann Wolfgang von Goethe
+ - It takes considerable knowledge just to realize the extent of your own ignorance. ~~Thomas Sowell
+ - Man’s basic vice, the source of all his evils, is the act of unfocusing his mind, the suspension of his consciousness, which is not blindness, but the refusal to see, not ignorance, but the refusal to know. ~~Ayn Rand
+ - Be careful, you are not in Wonderland. I’ve heard the strange madness long growing in your soul. But you are fortunate in your ignorance, in your isolation. You who have suffered, find where love hides. Give, share, lose – lest we die, unbloomed. ~~Allen Ginsberg
+ - Science is a philosophy of discovery. Intelligent design is a philosophy of ignorance. You cannot build a program of discovery on the assumption that nobody is smart enough to figure out the answer to a problem. ~~Neil deGrasse Tyson
+ - Ignorance is not bliss. Ignorance is poverty. Ignorance is devastation. Ignorance is tragedy. And ignorance is illness. It all stems from ignorance. ~~Jim Rohn
+ - Democracy is a pathetic belief in the collective wisdom of individual ignorance. ~~H. L. Mencken
+ - The worst kind of arrogance is arrogance from ignorance. ~~Jim Rohn
+ - Make war not on terrorism but on ignorance, on sickness and on environmental degradation. ~~Kurt Vonnegut
+ - In a spiral galaxy, the ratio of dark-to-light matter is about a factor of ten. That’s probably a good number for the ratio of our ignorance-to-knowledge. We’re out of kindergarten, but only in about third grade. ~~Vera Rubin
+ - When you combine ignorance and leverage, you get some pretty interesting results. ~~Warren Buffett
+ - Beware of the man who works hard to learn something, learns it, and finds himself no wiser than before. He is full of murderous resentment of people who are ignorant without having come by their ignorance the hard way. ~~Kurt Vonnegut
+ - Being ignorant is not so much a shame, as being unwilling to learn. ~~Benjamin Franklin
+ - Ignorance, the root and the stem of every evil. ~~Plato
+ - Men are anxious to improve their circumstances, but are unwilling to improve themselves; they therefore remain bound. ~~James Allen
+ - No matter how busy you may think you are, you must find time for reading, or surrender yourself to self-chosen ignorance. ~~Confucius
+ - Stupidity is a talent for misconception. ~~Edgar Allan Poe
+ - Opinion is the medium between knowledge and ignorance. ~~Plato
+
+40 quotes

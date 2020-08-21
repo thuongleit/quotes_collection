@@ -1,0 +1,21 @@
+ - Killing a cop just because he’s a cop, that’ll happen. And that should happen. And there’s nothing inhuman about it at all. It’s survival. It’s the most human thing in the world.
+ - There are plenty of mothers who should not be allowed to raise their children.
+ - Freaks are revolutionaries, and revolutionaries are freaks.
+ - I was shocked at the anger toward me.
+ - Even in my most inflamed moment I never supported a racist mass murderer.
+ - The real terrorist is the American government, state terrorism unleashed against the world.
+ - You’re always trying to balance your understanding of who you are and what you need, and your longing and imaginings of freedom.
+ - I’m so unhappy with electoral politics that I switched to sports radio.
+ - I wish that I had bridged the feminist movement and the anti-war movement better than I did.
+ - I felt grand juries were illegal and coercive.
+ - I don’t come from a privileged background.
+ - Over all, many of society’s values are a cesspool.
+ - I think there’s a mystery about what a social movement is.
+ - I just feel that I don’t agree with sensationalized versions of history or me. Any version that’s sensationalized.
+ - The ’60s are presented to kids today as a commodity.
+ - Americans love to read about violence.
+ - I think that there is a lot going on with young people today.
+ - I guess I feel very strongly that I disagree with the notion of personalizing history and movements and big events.
+ - I think the Sixties in some ways is a barrier to young people today. They think of it, you know, what we’re doing is not that. But it’s partly the myth of the Sixties. It always felt embattled and small. It always, almost always, was a small group of people relative to the opposition around.
+
+19 quotes

@@ -1,0 +1,56 @@
+ - Pain is such an important thing in life. I think that as an artist you have to experience suffering.
+ - I meditate. I do transcendental meditation and I have been doing that for a long time and that does just clear the mind. I am not religious at all.
+ - I like complicated women. I like women with strength and contradictions...
+ - I go to a dance class myself called BBS – Body By Simone – its little mini dance routines and I am often the oldest person in the room although I forget that. I’m fairly fit.
+ - I find myself gravitating towards drama. It interests me. In the books I read, the paintings I like, it’s always the darker stuff.
+ - I think film is a director’s medium and the good filmmakers that I like tell the darker stories. Therefore, I’m always inclined to follow people like David Cronenberg.
+ - You have to make peace with yourself. The key is to find the harmony in what you have.
+ - There’s a lot of skeletons in my closet, but I know what they’re wearing. I’m not gonna act all ashamed of it.
+ - My spirit had been broken a bit over the years by my having to work on films I didn’t love. Hollywood’s a surreal place, and it really is an assault on your spirit.
+ - You won’t find me in a romantic comedy. Those movies don’t speak to me. People don’t come to talk to me about those scripts, because they probably think I’m this dark, twisted, miserable person.
+ - I love being outside with trees and water, lying down somewhere or walking. I do transcendental meditation, which keeps me calm and steady.
+ - I’m not this dark, twisted person. Yes, I have my demons and this is my way of exorcising them. It gets them out – and better out than in.
+ - Oh, I’m definitely a wild child.
+ - I don’t know that any woman could ever not think about that at some point – even making the choice not to do it and getting to the place of peace of choosing not to be a parent, there would have still been some struggle in between. I’m not a man but I don’t think it would occupy their minds as much.
+ - The thing that I love about acting is the fact that I can help people feel things, know themselves or feel less alone. It’s my form of expression, in the same way that someone might paint a picture or sing a song in that you’re hoping that it moves somebody outside of their own way of thinking.
+ - I was going on years and years of auditions and being told I was too this, too that, not enough of this, not enough of that, to the point where I was so afraid and diluting myself into absolutely nothing.
+ - I always love being in the company of women. It’s all about good conversation and great wine.
+ - When I had dark hair I definitely felt that I was more anonymous.
+ - We’re so afraid of death in our culture, but I think if we understand it better, then we’ll appreciate the life we have more.
+ - I’m not happy unless I’ve got a little bit of fear going.
+ - In your 20s – and these are generalizations of course – I feel like I didn’t care about as many things or as many people, or even myself, as much. There’s more recklessness and more ruthlessness; you’re not as considerate of how things land with other people I think.
+ - I was never completely destitute. I think I borrowed money once off a friend, but I’ve always been quite careful with my money, having come from not much of it.
+ - I think in my 20s I was just all about having fun.
+ - I consider myself British and have very happy memories of the UK. I spent the first 14 years of my life in England and never wanted to leave. When I was in Australia I went back to England a lot.
+ - Liev cares about a lot things. Israel is one of them. We had the good fortune of going there a couple of years ago. To share that experience with him was a great pleasure.
+ - Nicole was always there with her door open, her arms open, her ears open – just what you need.
+ - I have a bit of a frustrated dancer in me.
+ - Who are we when we leave our families? Who do we become? What are we capable of? That’s something that never leaves us. It begins at that point in your life when you leave the nest, and I don’t think we stop wanting to explore that question.
+ - I don’t think of myself as a terribly confident person. But I have a survival mechanism that was instilled in me by my mother.
+ - Sometimes you arrive late in the process of filming, which makes it a little scary because they’ve already got this well-established technique going on, and all of the relationships are comfy and cozy. You have to figure out how to fit in, which can always be a scary first day.
+ - We’re all the same, we all think its better somewhere else; its better being older if you’re younger – or its better being younger when we’re older.
+ - What you want, as an actor, is a great leader. I can’t bear it when I work with a director who is wishy-washy and says, “What did you think?”
+ - My mum put me in drama classes when I was about 14. I’d been going on about it for some time, so maybe it was a way to shut me up.
+ - Directors are our teachers, and I’m always craving to work with a great director. They’re pretty much the first thing that interests me about a project.
+ - If we could just trust the moment that we’re in and live it in the way that you best can embrace it, it would be much better for all of us.
+ - I felt I grew up when I was about 28. I feel pretty much the same. I get reminded when I look in mirrors that I am not. Hopefully, you keep growing and keep planning things as you go along.
+ - It’ll take me a lot longer to read a script if there’s no director attached.
+ - Female roles in comedies are usually quite silly, I think.
+ - The use of violence in movies is a subject that’s worth addressing. I’m not standing on a soapbox or wagging a finger, but I’m interested in those subjects for sure.
+ - I think whether you’ve got children or not you’re just more aware of others as you get out of your 20s.
+ - I feel like personally I have more drive now than I did then probably because I care more and also because I’ve reached the mid-life point.
+ - You’re always nervous about how a film lands with an audience.
+ - Sometimes they come to you and it’s a small role, so it’s about the experience and the journey and mixing with people you know you will learn from. Or sometimes it’s a scene in a movie that you think, ‘I just have to play this person.’
+ - On set is where I feel comfortable. The red carpet stuff, talking about the film, explaining your own life, it doesn’t come naturally. It’s all necessary stuff I suppose but it’s not my strength.
+ - It seems like a lot when you have three movies back to back but that’s not really how it is.
+ - Noah Baumbach writing is really wonderful. I think the way he plays out each character with a unique voice is really impressive, and rhythmically his dialogue works.
+ - If I have to produce movies, direct movies, whatever to change the way Hollywood treats older women, I’ll do it. If I have to bend the rules, I will. If I have to break them, I will.
+ - There’s a set of rules out there somewhere that says it all ends by 40. I hope to be able to defy that because I truly love my work.
+ - I think I have better taste now than I did then.
+ - Some movies are the kind you take home with you at the end of the day, and some, you can let go.
+ - Whatever is said about roles drying up, I intend to keep working. Certainly now the roles couldn’t be more interesting – playing mothers, divorcees. I think it’s going to be exciting to play a mother of teenagers. The longer your life, the deeper it gets.
+ - I’m a tomboy now. I always wanted to fit in with my brother’s group, so I climbed trees and played with lead soldiers. But I’m a woman’s woman. I never understood women who don’t have woman friends.
+ - Hotels are temporary people storage, no matter how big the boxes are. Remember that.
+ - I want collaboration, but if they don’t have a plan or their vision isn’t clear, it’s nerve-wracking. So, someone that’s very sure of the vision is what you want, most of all.
+
+54 quotes

@@ -1,0 +1,269 @@
+ - It is easy to love people in memory; the hard thing is to love them when they are there in front of you.
+ - Rain is grace; rain is the sky descending to the earth; without rain, there would be no life.
+ - Any activity becomes creative when the doer cares about doing it right or better.
+ - Perfectionism is the enemy of creation, as extreme self- solitude is the enemy of well- being.
+ - Each day, we wake slightly altered, and the person we were yesterday is dead. So why, one could say, be afraid of death, when death comes all the time?
+ - Human was the music, natural was the static.
+ - Sun and moon, sun and moon, time goes.
+ - Dreams come true; without that possibility, nature would not incite us to have them.
+ - Life is a roller coaster, you have your ups and downs unless you fall off.
+ - Life is a nacho. It can be yummy-crunchy or squishy-yucky. It just depends on how long it takes for you to start eating it.
+ - Dost thou love life? Then do not squander time, for that’s the stuff life is made of. Suspect each moment, for it is a thief, tiptoeing away with more than it brings.
+ - But it seems to me that once you begin a gesture it’s fatal not to go through with it.
+ - I want to write books that unlock the traffic jam in everybody’s head.
+ - Life is a video game. No matter how good you get, you are always zapped in the end.
+ - If you have the guts to be yourself, other people’ll pay your price.
+ - Sex is like money; only too much is enough.
+ - The days are short, The sun a spark Hung thin between The dark and dark.
+ - My only duty was to describe reality as it had come to me-to give the mundane its beautiful due.
+ - The essential self is innocent, and when it tastes its own innocence knows that it lives for ever.
+ - Golf camaraderie, like that of astronauts and Antarctic explorers, is based on a common experience of transcendence; fat or thin, scratch or duffer, we have been somerwhere together where non-golfers never go.
+ - Do what the heart commands. The heart is our only guide.
+ - It’s a man’s world, they say; but in its daily textures it is a world created by and for women.
+ - All blessings are mixed blessings.
+ - Appealingness is inversely proportional to attainability.
+ - In all the green world nothing feels as good as a woman’s good nature.
+ - You cannot help but learn more as take the world into your hands. Take it up reverently, for it is and old piece of clay, with millions of thumbprints on it.
+ - The Founding Fathers in their wisdom decided that children were an unnatural strain on parents. So they provided jails called schools, equipped with tortures called an education.
+ - A narrative is like a room on whose walls a number of false doors have been painted; while within the narrative, we have many apparent choices of exit, but when the author leads us to one particular door, we know it is the right one because it opens.
+ - I would rather be seated between any two women than any two men at a dinner party.
+ - A cynic is a kind of romantic who has aged.
+ - But it is just two lovers, holding hands and in a hurry to reach their car, their locked hands a starfish leaping through the dark.
+ - Money is like water in a leaky bucket: no sooner there, it begins to drip.
+ - What we need is progress with an escape hatch.
+ - Every marriage tends to consist of an aristocrat and a peasant. Of a teacher and a learner.
+ - It’s spring! Farewell To chills and colds! The blushing, girlish World unfolds Each flower, leaf And blade of sod – Small letters sent To her from God.
+ - We are fated to love one another; we hardly exist outside our love, we are just animals without it, with a birth and a death and constant fear between. Our love has lifted us up, out of the dreadfulness of merely living.
+ - School is where you go between when your parents can’t take you and industry can’t take you.
+ - The stripped and shapely Maple grieves The ghosts of her Departed leaves. The ground is hard, As hard as stone. The year is old, The birds are flown.
+ - If you’re telling me I’m not mature, that’s one thing I don’t cry over since as far as I can make out it’s the same thing as being dead.
+ - Women, fire in their crotch, won’t burn out, begin by fighting off pricks, end by going wild hunting for one that still works.
+ - Natural beauty is essentially temporary and sad, hence the impression of obscene mockery which artificial flowers give us.
+ - Fiction is nothing less than the subtlest instrument for self-examination and self-display that Mankind has invented yet.
+ - Chaos is God’s body. Order is the Devil’s chains.
+ - Art imitates Nature in this; not to dare is to dwindle.
+ - Suddenly summoned to witness something great and horrendous, we keep fighting not to reduce it to our own smallness.
+ - Celebrity is a mask that eats into the face. As soon as one is aware of being somebody, to be watched and listened to with extra interest, input ceases, and the performer goes blind and deaf in his over-animation. One can either see or be seen.
+ - As souls must cry when they awaken in tiny babies and find themselves far from heaven.
+ - The world keeps ending but new people too dumb to know it keep showing up as if the fun’s just started.
+ - Fenway Park, in Boston, is a lyric little bandbox of a ballpark. Everything is painted green and seems in curiously sharp focus, like the inside of an old-fashioned peeping-type Easter egg.
+ - Without rain, there would be no life.
+ - We do survive every moment, after all, except the last one.
+ - We are cruel enough without meaning to be.
+ - Being naked approaches being revolutionary; going barefoot is mere populism.
+ - A computer and a cat are somewhat alike – they both purr, and like to be stroked, and spend a lot of the day motionless. They also have secrets they don’t necessarily share.
+ - God is in the tiger as well as in the lamb.
+ - The worst thing in the world is a bitter woman. That’s one thing about your mother, she’s never been bitter.
+ - Writing and rewriting are a constant search for what it is one is saying.
+ - New York is of course many cities, and an exile does not return to the one he left.
+ - In memory’s telephoto lens, far objects are magnified.
+ - We are most alive when we’re in love.
+ - The refusal to rest content, the willingness to risk excess on behalf of one’s obsessions, is what distinguishes artists from entertainers, and what makes some artists adventurers on behalf of us all.
+ - Movies took you right up to the edge but kept you safe.
+ - Let us not mock God with metaphor, Analogy, sidestepping, transcendence; Making of the event a parable, a sign painted in the Faded credulity of earlier ages: Let us walk through the door.
+ - That a marriage ends is less than ideal; but all things end under heaven, and if temporality is held to be invalidating, then nothing real succeeds.
+ - The literary scene is a kind of Medusa’s raft, small and sinking, and one’s instinct when a newcomer tries to clamber aboard is to step on his fingers.
+ - A writer’s self-consciousness, for which he is much scorned, is really a mode of interestedness, that inevitably turns outward.
+ - The essential support and encouragement comes from within, arising out of the mad notion that your society needs to know what only you can tell it.
+ - Each morning my characters greet me with misty faces willing, though chilled, to muster for another day’s progress through the dazzling quicksand the marsh of blank paper.
+ - You can never get the smell of smoke out. Like the smell of failure in life.
+ - Hope bases vast premises upon foolish accidents and reads a word where, in fact, only a scribble exists.
+ - It is in middles that extremes clash, where ambiguity restlessly rules.
+ - Life is like an overlong drama through which we sit being nagged by the vague memories of having read the reviews.
+ - Life, too much of it, and not enough. The fear that it will end some day, and the fear that tomorrow will be the same as yesterday.
+ - What would men be without women? Scarce, sir, mighty scarce. Mark Twain Women are an alien race set down among us.
+ - Critics are like pigs at the pastry cart.
+ - We were all brought up to want things and maybe the world isn’t big enough for all that wanting. I don’t know. I don’t know anything.
+ - Men emerge pale from the little printing plant at four sharp, ghosts for an instant, blinking, until the outdoor light overcomes the look of constant indoor light clinging to them.
+ - A leader is one who, out of madness or goodness, volunteers to take upon himself the woe of the people. There are few men so foolish, hence the erratic quality of leadership in the world.
+ - The scissors cut the long-grown hair; The razor scrapes the remnant fuzz. Small-jawed, weak-chinned, big-eyed, I stare At the forgotten boy I was.
+ - The Florida sun seems not much a single thing overhead but a set of klieg lights that pursue you everywhere with an even white illumination.
+ - There is no pleasing New Englanders, my dear, their soil is all rocks and their hearts are bloodless absolutes.
+ - The fact that we still live well cannot ease the feeling that we no longer live nobly.
+ - The golf swing is like a suitcase into which we are trying to pack one too many things.
+ - We are each of us like our little blue planet, hung in black space, upheld by nothing but our mutual reassurances, our loving lies.
+ - Women are an alien race set down among us.
+ - The first breath of adultery is the freest; after it, constraints aping marriage develop.
+ - You know how it is with fathers, you never escape the idea that maybe after all they’re right.
+ - Vagueness and procrastination are ever a comfort to the frail in spirit.
+ - What is the past, after all, but a vast sheet of darkness in which a few moments, pricked apparently at random, shine?
+ - Museums and bookstores should feel, I think, like vacant lots – places where the demands on us are our own demands, where the spirit can find exercise in unsupervised play.
+ - It is not difficult to deceive the first time, for the deceived possesses no antibodies; unvaccinated by suspicion, she overlooks lateness, accepts absurd excuses, permits the flimsiest patching to repair great rents in the quotidian.
+ - An affair wants to spill, to share its glory with the world. No act is so private it does not seek applause.
+ - There is this quality, in things, of the right way seeming wrong at first.
+ - The New England spirit does not seek solutions in a crowd; raw light and solitariness are less dreaded than welcomed as enhancers of our essential selves.
+ - I will try not to panic, to keep my standard of living modest and to work steadily, even shyly, in the spirit of those medieval carvers who so fondly sculpted the undersides of choir seats.
+ - Of nothing but me I sing, lacking another song.
+ - Inspiration arrives as a packet of material to be delivered.
+ - The measure of artistic merit is the length to which a writer is willing to go in following his own compulsions.
+ - We all begin life as parasites within the mother, and writers begin their existence imitatively, within the body of letters.
+ - It’s not up to us what we learn, but merely whether we learn through joy or through pain.
+ - A healthy male adult bore consumes each year one and a half times his own weight in other people’s patience.
+ - Of plants tomatoes seemed the most human, eager and fragile and prone to rot.
+ - Celebrity is a mask that eats into the face.
+ - Green grass, green grandstands, green concession stalls, green paper cups, green folding chairs and visors for sale, green and white ropes, green-topped Georgia pines. If justice were poetic, Hubert Green would win it every year.
+ - Hemingway describes literary New York as a bottle full of tapeworms trying to feed on each other.
+ - Hoping to fashion a mirror, the lover doth polish the face of his beloved until he produces a skull.
+ - Cities aren’t like people; they live on and on, even though their reason for being where they are has gone downriver and out to sea.
+ - But for a few phrases from his letters and an odd line or two of his verse, the poet walks gagged through his own biography.
+ - Being a famous writer is a little like being a tall dwarf. You’re on the edge of normality.
+ - In the vacuum of the heart love falls forever.
+ - When I write, I aim in my mind not toward New York but toward a vague spot a little to the east of Kansas.
+ - The scrape and snap of Keds on loose alley pebbles seems to catapult their voices high into the moist March air blue above the wires.
+ - Fraud makes the world go round.
+ - For male and female alike, the bodies of the other sex are messages signaling what we must do, they are glowing signifiers of our own necessities.
+ - Looking foolish does the spirit good.
+ - The – writing is a kind of act of aggression, and a person who is not aggressive in his normal, may I say, intercourse with humanity might well be an aggressive writer.
+ - There is no doubt that I have lots of words inside me; but at moments, like rush-hour traffic at the mouth of a tunnel, they jam.
+ - Now that I am sixty, I see why the idea of elder wisdom has passed from currency.
+ - Why does life feel, to us as we experience it, so desperately urgent and so utterly pointless at the same time?
+ - Writers may be disreputable, incorrigible, early to decay or late to bloom but they dare to go it alone.
+ - Most of American life consists of driving somewhere and then returning home, wondering why the hell you went.
+ - One does not go to Moscow to get fat.
+ - Life is a razor, you are always in hot water or a scrape.
+ - Writing criticism is to writing fiction and poetry as hugging the shore is to sailing in the open sea.
+ - How circumstantial reality is! Facts are like individual letters, with their spikes and loops and thorns, that make up words: eventually they hurt our eyes, and we long to take a bath, to rake the lawn, to look at the sea.
+ - One of the nice things about having a lover, it makes you think about everything anew. The rest of your life becomes a kind of movie, flat and even rather funny.
+ - Try to develop actual work habits, and even though you have a busy life, try to reserve an hour, say – or more – a day to write. Some very good things have been written on an hour a day.
+ - The difference between a childhood and a boyhood must be this: our childhood is what we alone have had; our boyhood is what any boy in our environment would have had.
+ - So much love, too much love, it is our madness, it is rotting us out, exploding us like dandelion polls.
+ - Writing doesn’t require drive. It’s like saying a chicken has to have drive to lay an egg.
+ - We take our bearings, daily, from others. To be sane is, to a great extent, to be sociable.
+ - Children are not a zoo of entertainingly exotic creatures, but an array of mirrors in which the human predicament leaps out at us.
+ - America is a vast conspiracy to make you happy.
+ - Laws aren’t ghosts in this country, they walk around with the smell of earth on them.
+ - Sex ages us. Priests are boyish, spinsters stay black-haired until after fifty. We others, the demon rots us out.
+ - Four years was enough of Harvard. I still had a lot to learn, but had been given the liberating notion that now I could teach myself.
+ - The yearning for an afterlife is the opposite of selfish: it is love and praise for the world that we are privileged, in this complex interval of light, to witness and experience.
+ - Religion enables us to ignore nothingness and get on with the jobs of life.
+ - What seems to sell books is good word-of-mouth, not promotion tours. I’m too old to believe that media promotion of a book really matters. What matters is how it will look 100 years from now, not how many copies are sold.
+ - I know how to choke. Given even a splinter-thin opportunity to let my side down and destroy my own score, I will seize it. Not only does ice water not run through my veins, but what runs there has a boiling point lower than body temperature.
+ - Everybody who tells you how to act has whiskey on their breath.
+ - Customs and convictions change; respectable people are the last to know, or to admit, the change, and the ones most offended by fresh reflections of the facts in the mirror of art.
+ - People go around mourning the death of God; it’s the death of sssin that bothers me. Without ssin, people aren’t people any more, they’re just ssoul-less sheep.
+ - Is not the decisive difference between comedy and tragedy that tragedy denies us another chance?
+ - Being a divorcee in a small town is a little like playing Monopoly; eventually you land on all the properties.
+ - At last, small witches, goblins, hags, And pirates armed with paper bags Their costumes hinged on safety pins, Go haunt a night of pumpkin grins.
+ - I’m not against TV; I don’t go on the morning talk shows because I’m not invited. If I was, I might go.
+ - The artist brings something into the world that didn’t exist before, and he does it without destroying something else.
+ - Not judginess, but openness and curiosity are our proper business. I’m still trying to educate myself. I don’t think you need to keep rehearsing your instincts. Far better to seek out models of what you can’t do.
+ - Days, pale slices between nights, they blend, not exactly alike, transparencies so lightly tinted that only stacked all together do they darken to a fatal shade.
+ - Our lives fade behind us before we die.
+ - So, you know, I think any life has in it enough material, enough points of departure, to fuel a writer’s career and that we shouldn’t worry about what we’re not but to try to focus on what we are and what we do know.
+ - Smaller than a breadbox, bigger than a TV remote, the average book fits into the human hand with a seductive nestling, a kiss of texture, whether of cover cloth, glazed jacket, or flexible paperback.
+ - I really don’t want to encourage young writers. Keep them down and out and silent is my motto.
+ - I secretly understood: the primitive appeal of the hearth. Television is – its irresistible charm – a fire.
+ - Musicians are very mysterious and wonderful people to me; I don’t know how they do it.
+ - Truth should not be forced; it should simply manifest itself, like a woman who has in her privacy reflected and coolly decided to bestow herself upon a certain man.
+ - There’s a crystallization that goes on in a poem which the young man can bring off, but which the middle-aged man can’t.
+ - Photography is the first art wherein the tool does most of the work.
+ - Many men are more faithful to their golf partners than to their wives and have stuck with them longer.
+ - Looking foolish does the spirit good. The need not to look foolish is one of youth’s many burdens; as we get older we are exempted from more and more.
+ - All love is betrayal, in that it flatters life. The loveless man is best armed.
+ - Prose should have a flow, the forward momentum of a certain energized weight; it should feel like a voice tumbling in your ear.
+ - Revolution is just one crowd taking power from another.
+ - The creative writer uses his life as well as being its victim; he can control, in his work, the self-presentation that in actuality is at the mercy of a thousand accidents.
+ - Existence itself does not feel horrible; it feels like an ecstasy, rather, which we have only to be still to experience.
+ - There is no such thing as static happiness. Happiness is a mixed thing, a thing compounded of sacrifices, and losses, and betrayals.
+ - To be a human being is to be in a state of tension between your appetites and your dreams, and the social realities around you and your obligations to your fellow man.
+ - Writers take words seriously-perha ps the last professional class that does-and they struggle to steer their own through the crosswinds of meddling editors and careless typesetters and obtuse and malevolent reviewers into the lap of the ideal reader.
+ - Families, doing everything for each other out of imagined obligation and always getting in each other’s way, what a tangle.
+ - The Englishman is under no constitutional obligation to believe that all men are created equal. The American agony is therefore scarcely intelligible, like a saint’s self-flagellation viewed by an atheist.
+ - What art offers is space – a certain breathing room for the spirit.
+ - Time is our element, not a mistaken invader.
+ - Accent the ugly until it becomes gorgeous.
+ - I have never believed that one should wait until one is inspired because I think the pleasures of not writing are so great that if you ever start indulging them you will never write again.
+ - Don’t you see, if when we die there’s nothing, all your sun and fields and what not are all, ah, horror? It’s just an ocean of horror.
+ - There is the fear that you somehow neglected to say what was really yours to say.
+ - It is not enough for a story to flow. It has to kind of trickle and glint as it crosses over the stones of the bare facts.
+ - The essence of government is concern for the widest possible public interest; the essence of the humanities, it seems to me, is private study, thought, and passion. Publicity is a essential to the one as privacy is to the other.
+ - There’s always something new by looking at the same thing over and over.
+ - I can’t bear to finish things, beyond a certain point they get heavy. There’s something so dead about a finished painting.
+ - Pressed, I would define spirituality as the shadow of light humanity casts as it moves through the darkness of everything that can be explained.
+ - The physicists are getting down to the nitty-gritty, they’ve really just about pared things down to the ultimate details, and the last thing they ever expected to happen is happening. God is showing through.
+ - I must go to Nature disarmed of perspective and stretch myself like a large transparent canvas upon her in the hope that, my submission being perfect, the imprint of a beautiful and useful truth would be taken.
+ - Being able to write becomes a kind of shield, a way of hiding, a way of too instantly transforming pain into honey.
+ - That’s the trouble with caring about anybody, you begin to feel overprotective. Then you begin to feel crowded.
+ - The other sad truth about golf spectatorship is that for today’s pros it all comes down to the putting, and that the difference between a putt that drops and one that rims the cup, though teleologically enormous, is intellectually negligeable.
+ - Love makes the air light.
+ - To say that war is madness is like saying that sex is madness: true enough, from the standpoint of a stateless eunuch, but merely a provocative epigram for those who must make their arrangements in the world as given.
+ - It’s been the same story ever since I can remember, ever since Wilson – the Republicans don’t do a thing for the little man.
+ - Americans have been conditioned to respect newness, whatever it costs them.
+ - Why does one never hear of government funding for the preservation and encouragement of comic strips, girlie magazines and TV soap operas? Because these genres still hold the audience they were created to amuse and instruct.
+ - The heart prefers to move against the grain of circumstance; perversity is the souls very life.
+ - Being on TV is like being alive, only more so.
+ - Wickedness was like food: once you got started it was hard to stop; the gut expanded to take in more and more.
+ - The muttered hint, “Remember, you have a stroke here,” freezes my joints like a blast from Siberia.
+ - To be President of the United States, sir, is to act as advocate for a blind, venomous, and ungrateful client.
+ - Figure out where you’re going before you go there: he was told that a long time ago.
+ - How sad, how strange, we make companions out of air and hurt them, so they will defy us, completing creation.
+ - What you haven’t done by thirty you’re not likely to do. What you have done you’ll do lots more.
+ - As I get older, my childhood self becomes more accessible to me, but selectively, in images as stylized and suspect as moments remembered from a novel read years ago.
+ - I think it’s the sentence-to-sentence pleasures, the little surprises of a surprising style of an acute style, and also the way things happen one after the other, that makes a book interesting to read page to page.
+ - In no other sport must the spectator move.
+ - There is always a chance of failure, of producing something totally unnecessary. But I guess that chance of failure is what makes tightrope walking, race-car driving...
+ - Golf appeals to the idiot in us and the child. Just how childlike golf players become is proven by their frequent inability to count past five.
+ - Adversity in immunological doses has its uses; more than that crushes.
+ - Atrocity is truly emperor; All things that thrive are slaves of cruel Creation.
+ - Unlike the older, more humanly shaped arts, which begin with a seed and accumulate their form organically, photography clips its substance out of an actual continuum.
+ - Movies are, like sharp sunlight, merciless; we do not imagine, we view.
+ - I am sometimes visited by the heretical thought that there is no such thing as good and bad architecture, any more than there is good and bad nature. It is all in where you stand at the time.
+ - How can you respect the world when you see it’s being run by a bunch of kids turned old?
+ - Man is a means for turning things into spirit and turning spirit into things.
+ - All dancing is now is standing in place and letting the devil of the music enter you.
+ - My mother didn’t raise me to be a critic, but I seem to have become one anyway.
+ - I would especially like to re-court the Muse of poetry, who ran off with the mailman four years ago, and drops me only a scribbled postcard from time to time.
+ - A few places are especially conducive to inspiration – automobiles, church – public places. I plotted Couples almost entirely in church – little shivers and urgencies I would note down on the program, and carry down to the office Monday.
+ - One of the cool, chaste countries – Canada or Sweden.
+ - If she’d been born at the right time they would have burned her over in Salem.
+ - The throat: how strange, that there is not more erotic emphasis upon it. For here, through this compound pulsing pillar, our life makes its leap into spirit, and in the other direction gulps down what it needs of the material world.
+ - I never made a decision in my life that wasn’t one hundred per cent selfish.
+ - The inner spaces that a good story lets us enter are the old apartments of religion.
+ - By the time a partnership dissolves, it has dissolved.
+ - A photograph offers us a glimpse into the abyss of time.
+ - What you lose as you age is witnesses, the ones that watched from early on and cared, like your own little grandstand.
+ - Art is like baby shoes. When you coat them with gold, they can no longer be worn.
+ - History. The more of it you have the more you have to live it. After a little while there gets to be too much of it to memorize and maybe that’s when empires start to decline.
+ - If men do not keep on speaking terms with children, they cease to be men, and become merely machines for eating and for earning money.
+ - From infancy on, we are all spies; the shame is not this but that the secrets to be discovered are so paltry and few.
+ - Nothing feels worse than other people’s good times.
+ - The crooked little tomato branches, pulpy and pale as if made of cheap green paper, broke under the weight of so much fruit; there was something frantic in such fertility, a crying-out like that of children frantic to please.
+ - Faith is not so much a binary pole as a quantum state, which tends to indeterminacy when closely examined.
+ - Living is a compromise, between doing what you want and doing what other people want.
+ - The difficulty with humorists is that they will mix what they believe with what they don’t; whichever seems likelier to win an effect.
+ - Having children is something we think we ought to do because our parents did it, but when it is over the children are just other members of the human race, rather disappointingly.
+ - There was clearly great charm and worth in a sport so quaintly perverse in its basic instructions. Hit down to make the ball rise. Swing easy to make it go far. Finish high to make it go straight.
+ - I imagine most of that stuff on the information highway is roadkill anyway.
+ - The United States, democratic and various though it is, is not an easy country for a fiction-writer to enter: the slot between the fantastic and the drab seems too narrow.
+ - It’s great to have an enemy. Sharpens your senses.
+ - I love my government not least for the extent to which it leaves me alone.
+ - Among the repulsions of atheism for me has been its drastic uninterestingness as an intellectual position.
+ - I like old men. They can be wonderful bastards because they have nothing to lose. The only people who can be themselves are babies and old bastards.
+ - You cannot but learn more of the world’s heft, as you take it now into your hands.
+ - Russia is the only country of the world you can be homesick for while you’re still in it.
+ - Our tears fatten upon our memories of joy.
+ - I think books should have secrets, like people do.
+ - All men are mortal, and therefore all men are losers; our profoundest loyalty goes out to the failed.
+ - Life, just as we first thought, is playing grownup.
+ - There are some women that don’t do it for some men. That’s why they turn out so many models.
+ - Let us not seek to make it less monstrous, for our own convenience, our own sense of beauty, lest, awakened in one unthinkable hour, we are embarrassed by the miracle, and crushed by remonstrance.
+ - Bankruptcy is a sacred state, a condition beyond conditions, as theologians might say, and attempts to investigate it are necessarily obscene, like spiritualism. One knows only that he has passed into it and lives beyond us, in a condition not ours.
+ - Among the repulsions of atheism for me has been its drastic un-interestingness as an intellectual position. Where was the ingenuity, the ambiguity, the humanity of saying that the universe just happened to happen and that when we’re dead we’re dead?
+ - I was made to feel I could do things. If you get this feeling early and can hold it until you’re 15, you tend to never lose it.
+ - Yes, there is a ton of information on the Web, but much of it is egregiously inaccurate, unedited, unattributed and juvenile.
+ - You do things and do things and nobody really has a clue.
+ - I’m always looking for insights into the real Doris Day because I’m stuck with this infatuation and need to explain it to myself.
+ - I’m somewhat shy about the brutal facts of being a carnivore. I don’t like meat to look like animals. I prefer it in the form of sausages, hamburger and meat loaf, far removed from the living thing.
+ - Mozart’s music gives us permission to live.
+ - Government is either organized benevolence or organized madness; its peculiar magnitude permits no shading.
+ - The great thing about the dead, they make space.
+ - How can the planet keep turning and turning and not get so bored it explodes?
+ - The guarantee that our self enjoys an intended relation to the outer world is most, if not all, we ask from religion. God is the self projected onto reality by our natural and necessary optimism. He is the not-me personified.
+ - All those little congruences and arabesques you prepared with such delicate anticipatory pleasure are gobbled up as if by pigs at a pastry cart.
+ - I once did something right. I played first-rate basketball. I really did. And after you’re first-rate at something, no matter what, it kind of takes the kick out of being second-rate.
+ - Until the 20th century it was generally assumed that a writer had said what he had to say in his works.
+ - You always find things you didn’t know you were going to say, and that is the adventure...
+ - Government money in the arts, I fear, can only deflect artists from their responsibility to find an authentic market for their products.
+ - The true New Yorker secretly believes that people living anywhere else have to be, in some sense, kidding.
+
+267 quotes

@@ -1,0 +1,36 @@
+ - The substance of faith is a hope in the unseen.
+ - Choose your words meticulously and then let them rumble up from some deep furnace of conviction.
+ - If you happened to be born on third base, you didn’t rub it in the face of the guy who wasn’t even born in the stadium. Self-interest was generally checked at the door with your coat and hat.
+ - It is one thing to rouse the passion of a people, and quite another to lead them.
+ - Every person has their pantheon – the Bible, Hollywood, Shakespeare – their way of understanding the world.
+ - Al-Qaeda has a kind of loose, almost entrepreneurial structure with lots of cells in various countries that are semi-independent.
+ - Civilizations rise and fall on confidence. America had figured out a way to borrow money to manufacture it.
+ - Many years later, a psychiatrist friend of mine said something to us. He said, “Respect denial.” It’s a powerful force.
+ - It’s exciting to work with the kids so devoid of irony, so unguarded. And also terrifying.
+ - Rapid change, accommodating it can be one of the great human capacities. But living through it can be the stuff of stress and often suffering.
+ - I think that there’s a lot of anxiety out there in people wanting their children to be part of the mainstream, to achieve based on the well-worn yardsticks.
+ - Reaching out to any fellow ghetto kids is an act he puts in the same category as doing drugs: the initial rush of warmth and euphoria puts you on a path to ruin.
+ - Who besides guys like me are part of the reality-based community?
+ - All of the leading terrorism experts are clear on one thing: that in terms of protecting America, we are almost never going to know a place or a time of an attack.
+ - The idea that our son would be like Raymond Babbitt was a shocking reordering of everything. And something we couldn’t quite fathom, really.
+ - The informed, unmanaged question. That’s the most dangerous thing at a press conference anywhere.
+ - By virtue of some of the ways the game is played, in terms of message discipline, in terms of access for reporters, and especially in the way that sources and subjects, especially famous subjects, treat the media, almost by default there’s more news that’s falling into books.
+ - The fact is, most journalists I know are not particularly political. They move around a lot.
+ - A little known area often defines the fortunes of leaders – management skills.
+ - I absolutely reject that idea that the press is liberal and what it does is liberal. In my view, it’s like accusing a doctor of malpractice or a lawyer of malfeasance.
+ - The fact is, I can vote for anybody; independents, Republicans, Democrats. But I’m a registered Democrat in the District of Columbia.
+ - The fact is that in a way, journalists become a kind of default in the system when you don’t have substantive two-party back-and-forth inside of the government.
+ - Confidence is the immaterial residue of material actions. Confidence is the public face of competence.
+ - To try to be authentic these days, to ask questions of the people in power – it’s difficult. This administration has evolved new techniques to handle people like me. Their strategy, in a word, is simple: ignore them.
+ - Younger colleagues tended to draw untested self-confidence from their bonuses and prestigious degrees.
+ - Message matters. Message matters almost as much as actions.
+ - The key is to put your outrage in a place where you can get it when you need to, but not have it bubble up so much, especially when you’re asked to explain new ideas or explain what you observed two people who share none of your experiences.
+ - When you get people standing up saying, ‘I’m going to just tell the truth; what do we have to fear?,’ it encourages others, and it creates a counterresponse.
+ - Wars tend to be very public things, they are visible. There are correspondents traveling with the troops and you get daily dispatches.
+ - I’ve been a reporter for 20 years, and I don’t ever get things wrong. That’s important in terms of my professional status.
+ - The media has become more forceful, has begun to recognize its traditional historic role and act on it, and truth is infectious.
+ - You try to hold on to some notions you might have had before, that this will somehow work out, this is a spell that will lift or be broken.
+ - I don’t have to deal with the issues of the daily news cycle.
+ - These were lobbyists – many of them compensated quite handsomely not to react as human beings.
+
+34 quotes

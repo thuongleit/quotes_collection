@@ -1,0 +1,32 @@
+ - The world is a complex, interconnected, finite, ecological-social-psychological-economic system. We treat it as if it were not, as if it were divisible, separable, simple, and infinite. Our persistent, intractable global problems arise directly from this mismatch.
+ - There are no separate systems. The world is a continuum. Where to draw a boundary around a system depends on the purpose of the discussion.
+ - There is too much bad news to justify complacency. There is too much good news to justify despair.
+ - You may be able to fool the voters, but not the atmosphere.
+ - We can’t control systems or figure them out. But we can dance with them!
+ - No one can define or measure justice, democracy, security, freedom, truth, or love. No one can define or measure any value. But if no one speaks up for them, if systems aren’t designed to produce them, if we don’t speak about them and point toward their presence or absence, they will cease to exist.
+ - The scarcest resource is not oil, metals, clean air, capital, labour, or technology. It is our willingness to listen to each other and learn from each other and to seek the truth rather than seek to be right.
+ - A good leader sets the right goals, gets things moving, and helps us to discover that we already know what to do.
+ - The actions of my government are not bearable. They devastate our natural resources and deprive our people. The politicians speak piously while practicing greed and divisiveness; they care nothing for the nation. I want to do more than withdraw my support. I want to tar and feather them.
+ - The climate continues to deteriorate.
+ - Models can easily become so complex that they are impenetrable, unexaminable, and virtually unalterable.
+ - It is in this space of mastery over paradigms that people throw off addictions, live in constant joy, bring down empires, get locked up or burned at the stake or crucified or shot, and have impacts that last for millennia.
+ - Glaciers are almost gone from Glacier National Park.
+ - Since the Earth is finite, and we will have to stop expanding sometime, should we do it before or after nature’s diversity is gone?
+ - You should issue demerits for tree cutting or the destruction of humus.
+ - How do we appreciate the good without letting it be the enemy of the perfect? How do we keep a step in the right direction from becoming a stopping point? How do we get beyond shades of insipid light green?
+ - Any system, biological, economic, or social, that gets so encrusted that it cannot self-evolve, a system that systematically scorns experimentation and wipes out the raw material of innovation, is doomed over the long term on this highly variable planet.
+ - A grand jury hears only one side – that of the prosecutor.
+ - There have been high crimes and misdemeanors, but they have been committed by the special prosecutor and the Congress, not the president.
+ - Everyone except the far right wing of the Republican Party realizes that oil, gas and coal burning are the main activities that have sent the climate into bigger floods, droughts, hurricanes, and El Ninos.
+ - The sustainability revolution will be organic. It will arise from the visions, insights, experiments and actions of billions of people. The burden of making it happen is not on the shoulders of any one person or group. No one will get the credit, but everyone can contribute.
+ - The grand jury’s job is not to weigh the evidence from both sides; it is only to decide whether there is enough evidence on one side to bring a person to trial.
+ - I spent my time trying to understand grand jury procedure – a topic about which I never before had the slightest interest.
+ - The European nations take climate change very seriously.
+ - Denmark, the Netherlands and Germany have detailed plans to cut their greenhouse emissions by 20 to 50 percent.
+ - George W. cares as much about climate change as you would expect from a Texas oilman.
+ - Eleventh Commandment: Thou shalt not distort, delay, or sequester information.
+ - What Clinton did with Lewinsky was despicable but was no threat to the nation. That he lied about it repeatedly and to the public is a reason for us to cease to trust him and for him to resign.
+ - Calculating how much carbon is absorbed by which forests and farms is a tricky task, especially when politicians do it.
+ - Scientists worldwide agree that the reduction needed to stabilize the climate is actually more like 80 percent.
+
+30 quotes

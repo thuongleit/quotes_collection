@@ -1,0 +1,22 @@
+ - Good manners and soft words have brought many a difficult thing to pass.
+ - He laughs best who laughs last.
+ - Virtue is its own reward. There’s a pleasure in doing good which sufficiently pays itself.
+ - A slighted woman knows no bounds.
+ - Custom is the law of fools.
+ - Tho marriage be a lottery in which there are a wondrous many blanks, yet there is one inestimable lot in which the only heaven on earth is written.
+ - Love’s like virtue, its own reward.
+ - You may build castles in the air, and fume, and fret, and grow thin and lean, and pale and ugly, if you please. But I tell you, no man worth having is true to his wife, or can be true to his wife, or ever was, or will be so.
+ - Once a woman has given you her heart, you can never get rid of the rest of her.
+ - Custom, madam, is the law of fools, but it shall never govern me.
+ - No man is worth having is true to his wife, or can be true to his wife, or ever was, or ever will be so.
+ - If women were humbler, men would be more honest.
+ - Repentance for past crimes is just and easy; but sin-no-more’s a task too hard for mortals.
+ - We gentlemen, whose chariot’s roll only upon the four aces, are apt to have a wheel out of order.
+ - Friendship’s said to be a plant of tedious growth, its root composed of tender fibers, nice in their taste, cautious in spreading.
+ - True virtue, wheresoever it moves, still carries an intrinsic worth about it.
+ - As if a woman of education bought things because she wanted ’em.
+ - The want of a thing is perplexing enough, but the possession of it, is intolerable.
+ - Thinking is to me the greatest fatigue in the world.
+ - Let our weakness be what it will, mankind will still be weaker; and whilst there is a world, ’tis woman that will govern it.
+
+20 quotes

@@ -1,0 +1,65 @@
+ - The middle of every successful project looks like a disaster.
+ - A vision is not just a picture of what could be; it is an appeal to our better selves, a call to become something more.
+ - It takes courage to speak up against complacency and injustice while others remain silent. But that’s what leadership is.
+ - I’ve found that small wins, small projects, small differences often make huge differences.
+ - Change demands new learning.
+ - Leaders are more powerful role models when they learn than when they teach.
+ - Change is like putting lipstick on a bulldog. The bulldog’s appearance hasn’t improved, but now it’s really angry.
+ - Our future will be shaped by the assumptions we make about who we are and what we can be.
+ - To stay ahead, you must have your next idea waiting in the wings.
+ - Leaders must wake people out of inertia. They must get people excited about something they’ve never seen before, something that does not yet exist.
+ - Everything looks like a failure in the middle.
+ - A self-reinforcing upward spiral: performance stimulating pride stimulating performance.
+ - It is crucial to recognize, reward, and celebrate accomplishments.
+ - Thinkers, makers and traders are the DNA of the world class company.
+ - Confidence is the sweet spot between arrogance and despair-consisting of positive expectations for favorable outcomes.
+ - The best way for business to move out of the Hall of Shame is to demonstrate a commitment to social causes. This also makes business sense. A focus on solving social problems has motivational benefits in lean economic times.
+ - Money should never be separated from values. Detached from values it may indeed be the root of all evil. Linked effectively to social purpose it can be the root of opportunity.
+ - If world problems feel too big to tackle, think small. Step by step. Small wins build confidence, lead the way to change.
+ - Confidence makes you willing to try harder and attracts the kind of support from others that makes “winning” possible.
+ - Change is a threat when done to me, but an opportunity when done by me.
+ - The architecture of change involves the design and construction of new patterns, or the reconceptualization of old ones, to make new, and hopefully more productive, actions possible.
+ - Everything looks like a failure in the middle. In neary every change project, doubt is cast on the original vision because problems are mounting and the end is nowhere in sight.
+ - Confidence isn’t optimism or pessimism, and it’s not a character attribute. It’s the expectation of a positive outcome.
+ - The most radical thing we can do is connect people to one another. That starts conversations toward a vision for change.
+ - People often resist change for reasons that make good sense to them, even if those reasons don’t correspond to organizational goals. So it is crucial to recognize, reward, and celebrate accomplishments.
+ - After years of telling corporate citizens to ‘trust the system,’ many companies must relearn instead to trust their people – and encourage their people to use neglected creative capacities in order to tap the most potent economic stimulus of all: idea power.
+ - You can always buy something in English, you can’t always sell something in English.
+ - A basic truth of management – if not of life – is that nearly everything looks like a failure in the middle.
+ - In the most innovative companies there is a significantly higher volume of thank yous than in companies of low innovation.
+ - Confidence is the bridge connecting expectations and performance, investment and results.
+ - Pessimists see problems as stemming from stable and universal causes, thus making them less susceptible to corrective action. Optimists, in contrast, view problems as temporary and resulting from specific factors that will either change or be changed.
+ - Powerlessness corrupts: absolute powerlessness corrupts absolutely.
+ - Mindless habitual behavior is the enemy of innovation.
+ - Friendly people are caring people, eager to provide encouragement and support when needed most.
+ - Power is the ability to get things done.
+ - Creativity is a lot like looking at the world through a kaleidoscope. You look at a set of elements, the same ones everyone else sees, but then reassemble those floating bits and pieces into an enticing new possibility.
+ - Corporate men and women, once divided by striking differences in opportunity for career growth, have come to share career chaos.
+ - The importance of discretion increases with closeness to the top of a hierarchical organization.
+ - Nations need to understand their own strengths and weaknesses, and India’s tradition of dissent and democratic debate is a positive aspect.
+ - Leadership is one of the most enduring, universal human responsibilities.
+ - Leaders must pick causes they won’t abandon easily, remain committed despite setbacks, and communicate their big ideas over and over again in every encounter.
+ - People who are making decisions about the future often don’t have access to some of the best ideas in the company, which may be at the periphery or at lower levels.
+ - A great idea is not enough.
+ - The more closed the circle, the more difficult it is for ‘outsiders’ to break in. Their very difficulty in entering may be taken as a sign of incompetence, a sign that the insiders were right to close their ranks.
+ - Too many people let others stand in their way and don’t go back for one more try.
+ - Passion for a goal doesn’t guarantee success, but without it, you can’t even begin.
+ - The degree to which the opportunity to use power effectively is granted to or withheld from individuals is one operative difference between those companies which stagnate and those which innovate.
+ - One of the symptoms of a losing streak is a turnover of top executives. It’s a revolving door.
+ - Innovative organizations provide the freedom to act which arouses the desire to act.
+ - Creativity does not derive from order but from the attempt to impose order where it does not exist, to make new connections.
+ - To take full advantage of the potential in e-business, leaders must lead differently, and people must work together differently. Let’s call this new way of working e-culture-the human side of the global information era, the heart and soul of the new economy.
+ - I was determined to achieve the total freedom that our history lessons taught us we were entitled to, no matter what the sacrifice.
+ - Companies used to be able to function with autocratic bosses. We don’t live in that world anymore.
+ - Power stems from ‘rainmaking,’ as law firms put it: the ability to bring resources into the company.
+ - I’ve been looking at companies that are on a positive path vs. a negative path and I’ve come to use the language of sports, winning streaks and losing streaks.
+ - Winning becomes easier over time as the cornerstones of confidence become habits.
+ - The commune movement is part of a reawakening of belief in the possibilities for utopia that existed in the nineteenth century and exist again today, a belief that by creating the right social institution, human satisfaction and growth can be achieved.
+ - The goal of winning is not losing two times in a row.
+ - Perpetuating success or sliding into decline is the result of many intersecting forces that reinforce one another directly and indirectly. They are both cause and effect of winning or losing. Winning generates positive forces, losing generates negative forces.
+ - You’ve no future unless you add value, create projects.
+ - The very lack of opportunity the group faces creates a self-defeating cycle and puts pressure on members to limit their aspirations.
+ - The Martha Stewart trial makes clear how far women have risen in the business world. America can be proud of our equal-opportunity prosecution and conviction.
+ - The way innovating companies are designed leaves ambiguities, overlaps, decision conflicts or decision vacuums in some parts of the organisation. People rail at this, curse it-and invent innovative ways to overcome it.
+
+63 quotes

@@ -1,0 +1,36 @@
+ - It’s okay to make mistakes. Mistakes are our teachers – they help us to learn.
+ - We cannot heal what we cannot feel.
+ - Arrogance is a way for a person to cover up shame. After years of arrogance, the arrogant person is so out of touch, she truly doesn’t know who she is. This is one of the greatest tragedies of shame cover-ups: not only does the person hide from others, she also hides from herself.
+ - I believe that this neglected, wounded, inner child of the past is the major source of human misery.
+ - Evil is a source of moral intelligence in the sense that we need to learn from our shadow, from our dark side, in order to be good.
+ - Hell, in my opinion, is never finding your true self and never living your own life or knowing who you are.
+ - Our beliefs create the kind of world we believe in. We project our feelings, thoughts and attitudes onto the world. I can create a different world by changing my belief about the world. Our inner state creates the outer and not vice versa.
+ - Children are curious and are risk takers. They have lots of courage. They venture out into a world that is immense and dangerous. A child initially trusts life and the processes of life.
+ - Condemning others as bad or sinful is a way to feel righteous. Such a feeling is a powerful mood alteration and can become highly addictive.
+ - Growing up means leaving home and becoming a self supporting adult. I think this the hardest task any human being hast to face.
+ - Recovery begins with embracing our pain and taking the risk to share it with others. We do this by joining a group and talking about our pain.
+ - We move from the illusion of certainty, to the certainty of illusion.
+ - Healthy shame is an emotion that teaches us about our limits. Like all emotions, shame moves us to get our basic needs met.
+ - To truly be committed to a life of honesty, love and discipline, we must be willing to commit ourselves to reality.
+ - To be shame-bound means that whenever you feel any feeling, need or drive, you immediately feel ashamed. The dynamic core of your human life is grounded in your feelings, needs and drives. When these are bound by shame, you are shamed to the core.
+ - The most paradoxical aspect of neurotic shame is that it is the core motivator of the superachieved and the underachieved, the star and the scapegoat, the righteous and the wretched, the powerful and the pathetic.
+ - Since the earliest period of our life was preverbal, everything depended on emotional interaction. Without someone to reflect our emotions, we had no way of knowing who we were.
+ - Virtue is an inner strength. It expands your nature.
+ - The foundation for our self-image is grounded in the first three years of life. It comes from our major caretaker’s mirroring.
+ - Children need parents who model self-discipline rather than preach it. They learn from what their parents are actually willing to do; not from what they say they do.
+ - True love heals and affects spiritual growth. If we do not grow because of someone else’s love, it’s generally because it is a counterfeit form of love.
+ - The spiritual quest is not some added benefit to our life, something you embark on if you have the time and inclination. We are spiritual beings on an earthly journey. Our spirituality makes up our beingness.
+ - Shame is the root of all addictions.
+ - All these feelings need to be felt. We need to stomp and storm; to sob and cry; to perspire and tremble.
+ - I know from my own clinical work that when people are beaten and hurt, they numb out so that they cant feel anymore.
+ - The more we know about how we lost our spontaneous wonder and creativity, the more we can find ways to get them back.
+ - It is a mark of soulfulness to be present in the here and now. When we are present, we are not fabricating inner movies. We are seeing what is before us.
+ - Chronically dysfunctioning families are also delusional. Delusion is sincere denial.
+ - Children aren’t fooled. They know we give time to the things we love.
+ - The capacity for love that makes dogs such rewarding companions has a flip-side: They find it difficult to cope without us. Since we humans programmed this vulnerability, it’s our responsibility to ensure that our dogs do not suffer as a result.
+ - Most people who have survived abuse have great strength.
+ - I have never met an aggressive person who wasn’t a fearful person.
+ - Science has so far been unable to tell us how self-aware dogs are, much less whether they have anything like our conscious thoughts. This is not surprising, since neither scientists nor philosophers can agree about what the consciousness of humans consists of, let alone that of animals.
+ - You can find more traditional Shakespeare than we do. But what we want to bring to these works is energy, passion, freshness.
+
+34 quotes

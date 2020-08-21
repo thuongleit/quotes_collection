@@ -1,0 +1,21 @@
+ - There’s a time when a man needs to fight, and a time when he needs to accept that his destiny is lost, that the ship has sailed, and that only a fool would continue. The truth is, I’ve always been a fool.
+ - Youll come to see that a man learns nothing from winning. The act of losing, however, can elicit great wisdom. Not least of which is how much more enjoyable it is to win. Its inevitable to lose now and again. The trick is not to make a habit of it.
+ - You’re exactly as big as I let you be.
+ - To be a character who feels a deep emotion, one must go into the memory’s vault and mix in a sad memory from one’s own life.
+ - I was in London. It’s a long way to go for a very long party, sitting there for six hours not having a cigarette or a drink. It’s a waste of time.
+ - We’re given the springboard of the text, a plane ticket, told to report to Alabama, and there’s a group of people all ready to make a film and it’s a marvelous life.
+ - It’s true that old actors don’t die, their parts get smaller. You’re less likely to get the part, many parts, if you’re playing people your age as opposed to people who are younger. There are fewer parts around.
+ - Maybe don’t make it so.
+ - I don’t enter, I’m entered. It’s up to someone else. It’s up to them.
+ - I’m doing another Churchill. I did a Churchill for HBO and that was up to 1939 and there’s talk of the war years. They were going to do it this fall, but the script wasn’t going to be ready.
+ - I like playing accents, and doing things like that, it was fun. It was fun.
+ - I don’t think that we necessarily lie. I mean, we make our living by pretending that we’re someone else. I don’t tell tall tales. I always tell the truth.
+ - My dad was great. He was very droll, very dry.
+ - When I read the script, I liked the script very much and I thought it was a marvelous part for her, because I think it is a change of pace. I mean, we know how wonderful she is in romantic comedy.
+ - There might’ve been wires, but I have this ability to make myself light. Well you know what, in ballet, when you kind of lift yourself here, it’s all up in the head.
+ - That is one of the reasons one enjoys acting. Now and again, you get scenes where you work with somebody really good and you have a good time trying to make it really work and really work well.
+ - Well, I’ve always thought that my career was in England, really. I used to do more in the theatre, and I felt that I should be there. It’s not far is it? It’s amazing the way that special FX have taken a quantum leap in what they’re capable of doing.
+ - I’m not bothered by the paparazzi and I don’t feel hemmed in, I’ve never felt that. My youth, mind you, there wasn’t quite the same attention to celebrities as there is now, but I’ve never felt that.
+ - My girlfriend and I rented a nice house on the river and I was there for about two and a half months, and we were just out of Alabama. I hardly got to see Alabama.
+
+19 quotes

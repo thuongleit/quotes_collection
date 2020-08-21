@@ -1,0 +1,161 @@
+ - Research is formalized curiosity. It is poking and prying with a purpose.
+ - If you are silent about your pain, they’ll kill you and say you enjoyed it.
+ - All my skinfolk ain’t kinfolk.
+ - There are years that ask questions and years that answer.
+ - They seemed to be staring at the dark, but their eyes were watching God.
+ - Research is formalized curiosity. It is poking and prying with a purpose. It is a seeking that he who wishes may know the cosmic secrets of the world and they that dwell therein.
+ - Love is like the sea. It’s a moving thing, but still and all, it takes its shape from the shore it meets, and it’s different with every shore.
+ - I love myself when I am laughing.
+ - I have been in Sorrow’s kitchen and licked out all the pots. Then I have stood on the peaky mountain wrapped in rainbows, with a harp and sword in my hands.
+ - I have the nerve to walk my own way, however hard, in my search for reality, rather than climb upon the rattling wagon of wishful illusions.
+ - A thing is mighty big when time and distance cannot shrink it.
+ - She didn’t read books so she didn’t know that she was the world and the heavens boiled down to a drop.
+ - Sometimes, I feel discriminated against, but it does not make me angry. It merely astonishes me. How can any deny themselves the pleasure of my company? It’s beyond me.
+ - There is a basin in the mind where words float around on thought and thought on sound and sight. Then there is a depth of thought untouched by words, and deeper still a gulf of formless feelings untouched by thought.
+ - I want a busy life, a just mind, and a timely death.
+ - Such as I am, I am a precious gift.
+ - No matter how far a person can go the horizon is still way beyond you.
+ - Ships at a distance have every man’s wish on board.
+ - Janie looked down on him and felt a self-crushing love. So her soul crawled out from its hiding place.
+ - Silence is all the genius a fool has.
+ - Some people could look at a mud puddle and see an ocean with ships.
+ - Justice, like beauty, is in the eye of the beholder.
+ - Grab the broom of anger and drive off the beast of fear.
+ - Sweat, sweat, sweat! Work and sweat, cry and sweat, pray and sweat!
+ - People can be slave-ships in shoes.
+ - Distance is the only cure for certain diseases.
+ - She had waited all her life for something, and it had killed her when it found her.
+ - Here was peace. She pulled in her horizon like a great fish-net. Pulled it from around the waist of the world and draped it over her shoulder. So much of life in its meshes! She called in her soul to come and see.
+ - Through indiscriminate suffering men know fear, and fear is the most divine emotion. It is the stones for altars and the beginning of wisdom.
+ - Tea Cake, the son of the Evening Sun, had to die for loving her.
+ - Taint no law on earth dat kin make a man be decent if it aint in ’im.
+ - You heard me. You ain’t blind.
+ - You’se something tuh make uh man forgit to git old and forgit tuh die.
+ - I do not weep at the world I am too busy sharpening my oyster knife.
+ - The sun, the hero of every day, the impersonal old man that beams as brightly on death as on birth, came up every morning.
+ - Gods always behave like the people who make them.
+ - It’s no use of talking unless people understand what you say.
+ - Slogans can be worse than swords if they are only put in the right mouths.
+ - It seems like the first law of Nature is that everybody likes to receive things, but nobody likes to feel grateful.
+ - Perhaps love is a compelling necessity imposed on man by God that has something to do with suffering.
+ - She stood there until something fell off the shelf inside her.
+ - Her old thoughts were going to come in handy now, but new words would have to be made and said to fit them.
+ - An envious heart makes a treacherous ear.
+ - I made up my mind to keep my feelings to myself since they did not seem to matter to anyone else but me.
+ - Love, I find, is like singing. Everybody can do enough to satisfy themselves, though it may not impress the neighbors as being very much.
+ - Faith hasn’t got no eyes, but she’s long-legged.
+ - She knew now that marriage did not make love. Janie’s first dream was dead, so she became a woman.
+ - Everybody is two beings: one lives and flourishes in the daylight and stands guard. The other being walks and howls at night.
+ - Nothing that God ever made is the same thing to more than one person.
+ - It seems that fighting is a game where everybody is the loser.
+ - Every tub sits on its bottom.
+ - If you want that good feeling that comes from doing things for other folks then you have to pay for it in abuse and misunderstanding.
+ - I have known the joy and pain of friendship. I have served and been served. I have made some good enemies for which I am not a bit sorry. I have loved unselfishly, and I have fondled hatred with the red-hot tongs of Hell. That’s living.
+ - Someone is always at my elbow reminding me that I am the granddaughter of slaves. It fails to register depression with me.
+ - Once you wake up thought in a man, you can never put it to sleep again.
+ - God took pattern after a pine tree and built you noble.
+ - I am colored but I offer nothing in the way of extenuating circumstances except the fact that I am the only Negro in the United States whose grandfather on the mother’s side was not an Indian chief.
+ - Janie saw her life like a great tree in leaf with the things suffered, things enjoyed, things done and undone. Dawn and doom was in the branches.
+ - Learning without wisdom is a load of books on a donkey’s back.
+ - I will fight for my country, but I will not lie for her.
+ - Among the thousand white persons, I am a dark rock surged upon, and overswept.
+ - Folklore is the boiled-down juice, or pot-likker, of human living.
+ - She had an inside and an outside now and suddenly she knew how not to mix them.
+ - I belong to no race nor time. I am the eternal feminine with its string of beads.
+ - Happiness is nothing but everyday living seen through a veil.
+ - Bitterness is the coward’s revenge on the world for having been hurt.
+ - When I pitched headforemost into the world I landed in the crib of Negroism.
+ - Magic is older than writing. So nobody knows how it started.
+ - Oh to be a pear tree – any tree in bloom! With kissing bees singing of the beginning of the world!
+ - The game of keeping what one has is never so exciting as the game of getting.
+ - Tell me, and then again show me, so I can know.
+ - Mama exhorted her children at every opportunity to ‘jump at the sun.’ We might not land on the sun, but at least we would get off the ground.
+ - If it was so honorable and glorious to be black, why was it the yellow-skinned people among us had so much prestige?
+ - I wish I could buy you for what you are really worth and sell you for what you think you’re worth. I sure would make money on the deal.
+ - So Janie waited a bloom time, and a green time and an orange time.
+ - Mystery is the essence of divinity.
+ - The sun had become a light yellow yolk and was walking with red legs across the sky.
+ - Night came walking through Egypt swishing her black dress.
+ - It was the meanest moment of eternity.
+ - Lack of power and opportunity passes off too often for virtue.
+ - My head was full of misty fumes of doubt.
+ - If you kin see de light at daybreak, you don’t keer if you die at dusk. It’s so many people never seen de light at all.
+ - It is a curious thing to be a woman in the Caribbean after you have been a woman in these United States.
+ - If you haven’t got it, you can’t show it. If you have got it, you can’t hide it.
+ - No hour is ever eternity, but it has its right to weep.
+ - To a haughty belly, kindness is hard to swallow and harder to digest.
+ - To me, bitterness is the under-arm odor of wishful weakness. It is the graceless acknowledgment of defeat.
+ - Anybody depending on somebody else’s gods is depending on a fox not to eat chickens.
+ - When a man keeps beating me to the draw mentally, he begins to get glamorous.
+ - It’s a funny thing, the less people have to live for, the less nerve they have to risk losing nothing.
+ - But for the national welfare, it is urgent to realize that the minorities do think, and think about something other than the race problem.
+ - Women forget all the things they don’t want to remember, and remember everything they don’t want to forget.
+ - Like the dead-seeming, cold rocks, I have memories within that came out of the material that went to make me. Time and place have had their say.
+ - A great state is a well-blended mash of something of all the people and all of none of the people. The liquor of statecraft is distilled from the mash you got.
+ - So she sat on the porch and watched the moon rise. Soon its amber fluid was drenching the earth, and quenching the thirst of the day.
+ - Everybody has some special road of thought along which they travel when they are alone to themselves. And his road of thought is what makes every man what he is.
+ - You have no idea, sir, how difficult it is to be the victim of benevolence.
+ - Ethical and cultural desegregation. It is a contradiction in terms to scream race pride and equality while at the same time spurning Negro teachers and self-association.
+ - We must learn to be honest with ourselves, and know our shortcomings. We will acquire cohesion but we will pay dearly for being a slow pupil.
+ - I regret all of my books.
+ - So the brother in black offers to these United States the source of courage that endures, and laughter.
+ - I note that the Africa loves to depict the grace of reptiles.
+ - The spirit of the marriage left the bedroom and took to living in the parlor.
+ - When one is too old for love, one finds great comfort in good dinners.
+ - Most things are born in the mothering darkness and most things die. Darkness is the womb of creation, my boy. But the sun with his seven horns of flame is the father of life.
+ - I feel most colored when I am thrown against a sharp white background.
+ - I did not just fall in love. I made a parachute jump.
+ - She was saving up feelings for some man she had never seen.
+ - It is easy to be hopeful in the day when you can see the things you wish on.
+ - The North has no interest in the particular Negro, but talks of justice for the whole. The South has not interest, and pretends none, in the mass of Negroes but is very much concerned about the individual.
+ - Grown people know that they do not always know the way of things, and even if they think they know, they do not know where and how they got the proof.
+ - Love makes your soul crawl out from its hiding place.
+ - Every morning the world flung itself over and exposed the town to the sun.
+ - It was not death she feared. It was misunderstanding.
+ - It costs you something to do good!
+ - But any man who walks in the way of power and property is bound to meet hate.
+ - I have a strong suspicion. that much that passes for constant love is a golded- up moment walking in its sleep.
+ - Trees and plants always look like the people they live with, somehow.
+ - Don’t you realize that the sea is the home of water? All water is off on a journey unless it’s in the sea, and it’s homesick, and bound to make its way home someday.
+ - The present was an egg laid by the past that had the future inside its shell.
+ - I am not tragically colored. There is no great sorrow dammed up in my soul, nor lurking behind my eyes. I do not mind at all.
+ - The liquor of statecraft is distilled from the mash you got.
+ - My sense of humor will always stand in the way of my seeing myself, my family, my race or my nation as the whole intent of the universe.
+ - The whole matter revolves around the self-respect of my people. How much satisfaction can I get from a court order for somebody toassociate with me who does not wish me near them?
+ - If science ever gets to the bottom of Voodoo in Haiti and Africa, it will be found that some important medical secrets, still unknown to medical science, give it its power, rather than the gestures of ceremony.
+ - And I can’t die easy thinking maybe the menfolks white or black is making a spit cup out of you. Have some sympathy for me. Put me down easy, Janie, I’m a cracked plate.
+ - He was the average mortal. It troubled him to get used to the world one way and then suddenly have it turn different.
+ - I been through living for years. I just ain’t dead yet.
+ - You got to go there to know there.
+ - He looked like the love thoughts of women.
+ - I know that nothing is destructible; things merely change forms.
+ - I am her friend, and her tongue is in my mouth. I can speak her sentiments for her, though Ethel Waters can do very well indeed in speaking for herself.
+ - When the people sat around on the porch and passed around the pictures of their thoughts for the others to look at and see, it was nice. The fact that the thought pictures were always crayon enlargements of life made it even nicer to listen to.
+ - It would be against all nature for all the Negroes to be either at the bottom, top, or in between. We will go where the internal drive carries us like everybody else. It is up to the individual.
+ - It is one of the blessings of this world that few people see visions and dream dreams.
+ - There is something about poverty that smells like death.
+ - Please God, please suh, don’t let him love nobody else but me. Maybe Ah’m is uh fool, Lawd, lak dey say, but Lawd, Ah been so lonesome, and Ah been waitin’, Jesus. Ah done waited uh long time.
+ - It was a weak spot in any nation to have a large body of disaffected people within its confusion.
+ - There is no single face in nature, because every eye that looks upon it, sees it from its own angle. So every man’s spice-box seasons his own food.
+ - Perhaps I am just a coward who loves to laugh at life better than I do cry with it. But when I do get to crying, boy, I can roll a mean tear.
+ - The Haitian people are gentle and lovable except for their enormous and unconscious cruelty.
+ - Africa has her mouth on Moses.
+ - They bowed down to him rather, because he was all of these things, and then again he was all of these things because the town bowed down.
+ - I have been amazed by the Anglo-Saxon’s lack of curiosity about the internal lives and emotions of the Negroes, and for that matter, any non-Anglo-Saxon peoples within our borders, above the class of unskilled labor.
+ - No man may make another free.
+ - There is nothing to make you like other human beings so much as doing things for them.
+ - To avoid the consequences of posterity the mulattos give the blacks a first class letting alone. There is a frantic stampede white-ward to escape from Jamaica’s black mass.
+ - Work is the nearest thing to happiness that I can find.
+ - The man who interprets Nature is always held in great honor.
+ - I thought that when they said Atlantic Charter, that meant me and everybody in Africa and Asia and everywhere. But it seems like the Atlantic is an ocean that does not touch anywhere but North America and Europe.
+ - Love, I find, is like singing.
+ - It is hard to apply oneself to study when there is no money to pay for food and lodging. I almost never explain these things when folks are asking me why I don’t do this or that.
+ - Friendship is a mysterious and ocean-bottom thing. Who can know the outer ranges of it? Perhaps no human being has ever explored its limits.
+ - I hold that any religion that satisfies the individual urge is valid for that person.
+ - It seems to me that trying to live without friends is like milking a bear to get cream for your morning coffee. It is a whole lot of trouble, and then not worth much after you get it.
+ - Light came to me when I realized that I did not have to consider any racial group as a whole. God made them duck by duck and that was the only way I could see them.
+ - Now they got to look into me loving Tea Cake and see whether it was done right or not! They don’t know if life is a mess of corn-meal dumplings, and if love is a bed-quilt!
+ - I am the kind of a woman that likes to move on mentally from point to point, and I like for my man to be there way ahead of me. Then if he is strong and honest, it goes on from there. Good looks are not essential, just extra added attraction.
+ - I was born in a Negro town.
+
+159 quotes

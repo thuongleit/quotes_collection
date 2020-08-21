@@ -1,0 +1,30 @@
+ - I’m never sure what’s coming next, but I’m an open minded person and I welcome any challenge.
+ - It’s hard to give up that amount of control. It’s scary to make yourself that vulnerable. Because you might do all kinds of things that are unplanned or are unexpected that maybe don’t work, and you have to trust the director to see that and work around those things. I find it really scary.
+ - My mom died of cancer when I was really young. I’m not someone who tries to work out their own stuff with a role, but I think that happened despite my best efforts to keep myself separate from it.
+ - It’s amazing how the world does actually go on in the middle of things that should stop it for us.
+ - It’s not that I don’t want to become famous or that I’m obsessed by my work as an actress, but it’s all about not limiting myself, such as putting myself in a little jail that I can escape from.
+ - I want my world to get bigger and not end up in a small corner.
+ - AIDS is a global problem and there should be a global solution found by the entire international community. It is really scary to see and imagine our world fall into pieces because we refuse to share and put in the common vestiges of our civilizations.
+ - Lately I did a film called All I Want for Christmas and it was well received. This gave me a new point of view and a new respect for my work as an actress.
+ - I think that we need to get along together if we want to survive in the twenty-first century.
+ - In fact, there’s an entire universe out there that’s pretty much indifferent to struggles that big, no matter how serious they’ve been in your life.
+ - I do tend to take time off. A year and a half ago I went to film school, and before that I had taken years off at a time to be involved politically or this or that.
+ - I enjoy doing my more intimate and less commercial pictures and also I enjoy directing.
+ - Being a human being is all about experiencing all of the wonders of the world and therefore as an actress, I’m open to any opportunity that may enrich my horizon.
+ - Well, because Dawn of the Dead can take place anywhere and it shows that actually the entire planet is contaminated, I would say that it shows the new face of our world – one person, one race, united against the invisible destructive force.
+ - I think that cynicism can often be mistaken for wisdom.
+ - There is no point trying to figure out who is guilty or not at un-balancing the planet. I think we need to figure out and solve the problems together and not isolate from each other.
+ - So I decided to make a film about our need to tell stories, to own our stories, to understand them, and to have them heard.
+ - Plus, doing a zombie movie is quite liberating. It’s fun not to take myself seriously all the time.
+ - I still feel that a movie has to attempt to say something – even if it fails miserably. But I’ve sort of given up on believing that I’m going to change the world with every film I choose to act in.
+ - It’s been really important to me to create moments where there’s a breath or moments where there’s a laugh or moments where there’s real life that’s allowed to seep in through the cracks of whatever melodrama is happening, because that’s what does happen in life.
+ - With being a mother, I feel like you choose how you spend your time so much more carefully – which is a good thing.
+ - I was concerned about that, because I’ve always been so specific about doing independent films, but I’ve never done anything that’s so genuinely and ridiculously fun. And that’s a great thing, for me to discover that that’s possible.
+ - Acting is something that I’ve done since I was so young. I always felt – certainly as a teenager – really cynical about acting. I definitely didn’t feel like it was something I wanted to do, and so I really took it for granted.
+ - I’m a control freak and I like to be overprepared, and I’m overly organized and I’m not in the moment a lot of the time.
+ - Playing roles that are intense and damaged has always come more easily to me than doing comedies or lighter stuff – that would be taking a huge risk for me.
+ - I think that the idea of family is a very powerful and influential and disjointed thing that will always captivate me.
+ - I always look for an intense experience, an intense ride. There is nothing better than a good zombie movie where you run crazy and blow at monsters! It was a physical shoot and I enjoyed it.
+ - Some of the funniest moments I’ve ever experienced have been in the midst of tragic situations in my life.
+
+28 quotes

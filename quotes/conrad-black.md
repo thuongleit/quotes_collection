@@ -1,0 +1,25 @@
+ - Like all fads, corporate governance has its zealots.
+ - I never ask for mercy and seek no one’s sympathy.
+ - An overgenerous reinsurance policy for an underachieving people.
+ - A quest for knowledge is not a war with faith; spirituality is not usually an infelicitous amalgam of superstition and philistinism; and moral relativism, taken outside midfield, leads inexorably both to heresy and to secular wickedness, which are often identical.
+ - The bedraggled warhorse of American blowhardism.
+ - While few judges or prosecutors would be afraid to exercise their perfectly legitimate discretion in favour of an ordinary man, not to mention a minority group member, most would be terrified to exercise the same discretion for someone politically, financially or socially powerful.
+ - Greed has been severely underestimated and denigrated – unfairly so, in my opinion.
+ - The balance between faith and reason is for the determination of each individual, and of the people as a whole, not of unauthorized government officials uttering impious humbug as they arbitrarily try to define that balance.
+ - I don’t have any shame.
+ - Guerrilla wars, and even more so terrorist assaults, are conducted only by forces with insufficient strength to carry out a real war.
+ - I always keep a firewall between my own travails and my perception of public-policy issues; otherwise I would retain no credibility as a commentator.
+ - The facts of Watergate have been wildly exaggerated.
+ - Although his personality is generally quite agreeable, Mr Murdoch has no loyalty to anyone or anything except his company.
+ - I don’t go around trying to stir up foreign wars.
+ - For decades, I have been a militant anti-declinist in terms of America’s place in the world.
+ - It is galling to see such mendacious hypocrites as Kennedy and Biden at the Senate Judiciary Committee sitting in judgment on distinguished jurists.
+ - Perhaps the gravest under-publicized atrocity in the world is the persecution of Christians.
+ - Since biblical times, and probably before, the wealthy have been envied and condemned.
+ - Terrorists cannot threaten the survival of a great nation.
+ - Maximising my wealth was never my chief thing.
+ - We’re going to try and recruit the very best people we can and produce the best papers we can, and publish them to the highest standards we can .
+ - Rupert Murdoch is probably the most successful media proprietor and operator in history.
+ - For all history up to the end of the Cold War, summit meetings were historic and dramatic occasions, when leaders who controlled the destiny of much of the world met to change the world.
+
+23 quotes

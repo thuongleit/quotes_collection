@@ -1,0 +1,22 @@
+ - People don’t forget. Nothing gets forgiven.
+ - Some trees flourish, others die. Some cattle grow strong, others are taken by wolves. Some men are born rich enough and dumb enough to enjoy their lives. Ain’t nothing fair. You know that.
+ - I rode in a gang. We robbed trains, banks, held people ransom. We killed people we didn’t like. Bill Williamson was in that gang. If I don’t capture my former brother-in-arms, great harm will befall my family.
+ - Don’t be too eager to grow up. It ain’t as much fun as it looks.
+ - Every man has a right to change, a chance of forgiveness.
+ - You couldn’t shoot a fart out of your own ass!
+ - My side ain’t chosen. My side was given.
+ - We die alone, but we live among men.
+ - If you win power, remember why you wanted it.
+ - We all have problems, and we must solve them together or we die alone.
+ - I just know that there are two theories when arguing with women. And neither one works.
+ - Through danger safety comes – through trouble rest.
+ - Looks like the good Lord got your ass and face mixed up.
+ - It’s wanting that gets so many folks in trouble.
+ - I’m many things, most of ’em bad. But a man of political principles? No.
+ - Wink and shut their apprehensions up.
+ - Sing of the nature of women, and then the song shall be surely full of variety; old crotchets and most sweet closes. It shall be humorous, grave, fantastic, amorous, melancholy, sprightly, one in all, and all in one.
+ - Men are born, and then they’re formed.
+ - I’m a semi-literate farmer and hired killer. I ain’t in the power game.
+ - All the fatt’s in the fire.
+
+20 quotes

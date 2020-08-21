@@ -1,0 +1,51 @@
+ - If boys don’t learn, men won’t know.
+ - Immodest and attractive is easy. Modest and repulsive is easy too. But modest and attractive is an art form.
+ - I write in order to make the little voices in my head go away. Thus far it hasn’t worked.
+ - Education is the process of selling someone on books.
+ - I see the same coffee table everywhere. It’s mass marketing.
+ - As you read, allow your reading to cluster around your interests.
+ - Beware of anyone who claims to be neutral, for they always have an agenda.
+ - There is no such thing as a guilty pleasure.
+ - God picks us up where we are, not where we should have been.
+ - Liars are experts in chopping logic and missing the truth slightly – ‘Did God say not to eat from any tree?’ In order to pin a liar down, words must be defined in the most careful manner available.
+ - We cannot pursue a classical and Christian education as a fad. We are not purchasing intellectual hula hoops for the kids.
+ - Masculinity is the glad assumption of sacrificial responsibility.
+ - A man penetrates, conquers, colonizes, plants. A woman receives, surrenders, accepts.
+ - Ripping up carpet is easy, tiling is the issue.
+ - Wealth is a gift from God, and pride is bequeathed to us from the devil.
+ - For the people of God, the Word of God leaves pleasant bruises.
+ - A great reformation and revival-it will happen the same way the early Christians conquered Rome. Their program of conquest consisted largely of two elements: gospel preaching and being eaten by lions, a strategy that has not yet captured the imagination of the the contemporary church.
+ - I’m opinionated. I always stick to my design plan. I don’t waver.
+ - Become the kind of person the kind of person you would like to marry would like to marry.
+ - Confession of sins is not meritorious: to confess sins as a way of placing God in your debt is not dealing with sin; it is committing another sin. The context of all confession must be the free grace of justification.
+ - I want to get the point across that you may not have money to give to a charity, whether that is Ronald McDonald House or Broadway Cares or DIFFA, but you can help RAISE money or give your time and talents.
+ - I’m having the time of my life and I’m glad people are enjoy it.
+ - Use plants to bring life.
+ - I gave the couple a hint of a design that would work great with the bones of their home. They weren’t ready for it, and they embarrassed themselves and that’s too bad.
+ - How is it possible to live like a machine and bear fruit like a tree?
+ - Whether it was working on theatre sets or stage lighting, I didn’t realize most all of the skills I was exposed to were going to come in handy later on when I became a designer.
+ - But for you to make this move would reveal the two fundamental tenets of true atheism. One: There is no God. Two: I hate Him.
+ - Being in the design industry, I’ve tended to meet more people who are affected by HIV and AIDS.
+ - Designing is a lot like a high-wire act – if the tightrope walker is only six inches off the ground, where’s the excitement?
+ - We’re able to influence younger generations on design and art. They might not have realized they were an artist.
+ - To say that someone is a conservative does not tell us what he is interested in conserving.
+ - If no God, mankind is a set of bi-pedal carbon units of mostly water. And nothing else.
+ - The medievalist has the capacity, and the desire, to harmonize. He believes the planets sing in harmony; why cannot technology also sing?
+ - Whether the Bible is Law or Gospel depends on the spiritual condition of the one hearing it. If someone is regenerate and loves God, then the whole Bible is Gospel to him. If someone is unregenerate and hates God, the whole Bible is Law to him, the whole thing condemns him.
+ - The TSA must think we’re mushrooms. You know, the way they are trying to keep us in the dark, and the way they keep feeding us a fertilizing agent that comes from the south end of a north-bound cow.
+ - Honor must start in the heart, but if it ends there, it isn’t honor. Honor must be expressed through words, symbols, actions, or gestures. Honor is among the most incarnational of the virtues. It must have feet and hands.
+ - Yeah, I spent about 20 years in a dorm room. It took me a while to graduate.
+ - Your deep interests should always have a dog-eared place on your nightstand.
+ - What people respond to in my room makeovers is the daring design – fearless colors, bold fabrics and occasionally outlandish decor.
+ - I’ve had rooms that didn’t come out to my liking.
+ - Stories in themselves are not automatically good; it has to be the right kind of story told by the right kind of person.
+ - I enjoy talking to fans.
+ - If it does not come at the last to gladness, then to hell with it.
+ - Fatherlessness is a rot that is eating away at the modern soul.
+ - I believe firmly in plodding. Productivity is more a matter of diligent, long-distance hiking than it is one-hundred-yard dashing. Doing a little bit now is far better than hoping to do a lot on the morrow. So redeem the fifteen minute spaces. Chip away at it.
+ - It’s a character I’ve created. Actually, that’s pretty much the opposite of me, off a farm in the Midwest.
+ - I’ve made an incredible amount of money stealing fans from homeowners.
+ - I’m very flattered, but I don’t think I’m the sexiest man on the planet.
+ - I am the young, edgy New Yorker.
+
+49 quotes

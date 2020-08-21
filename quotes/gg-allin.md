@@ -1,0 +1,29 @@
+ - If I wasn’t a musician, I would be a serial killer.
+ - My mind’s a machine gun, my body’s the bullets and the audience is the target.
+ - Death is a very important part of life.
+ - When you reach your peak its time to die.
+ - I am in control at all times.
+ - I’m trying to bring danger back in to rock ‘n’ roll and there are no limits and no laws and I break down every barrier put in front of me till the day I die.
+ - I don’t wanna get old and stagnant and hang around.
+ - I think what I do is positive, in its own way.
+ - My body is the rock and roll temple and my flesh, blood and body fluids are a communion to the people whether they like it or not.
+ - My demons, inner strengths and physical battles have guided me through life.
+ - I’m not a performance artist or any of that, I’m not out to please anyone. Just me.
+ - Everything I own can fit in two suitcases and a foot locker.
+ - Rock ‘n’ roll has to be destroyed and rebuilt in my name if it’s ever gonna accomplish anything.
+ - There’s such a fierce intense fire burning inside of me, so much that it just wants to explode.
+ - With GG, you don’t get what you expect. You get what you deserve.
+ - Your soul should be as strong as possible when it leaves here for whatever comes next.
+ - Every show could be the last one.
+ - I don’t want people to think that I can’t make fun of myself.
+ - My principal once told me that I was a penny waiting for change. But I suspect that I irritated him probably because I was making more money than he was.
+ - Everybody picks up on the sensational things, but no one really gets it.
+ - It’s not so much wanting to die, but controlling that moment, choosing your own way.
+ - You are what you are.
+ - I believe you can make forces of good and evil work for you, to get what you want.
+ - I’d like to see anyone do what I do for one week.
+ - I’ve sold my records outta shopping carts on the street.
+ - I believe I am the highest power, absolutely.
+ - No one comes to my shows so they’ll feel safe and comfortable.
+
+27 quotes

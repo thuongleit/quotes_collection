@@ -1,0 +1,155 @@
+ - You know that place between sleep and awake, the place where you can still remember dreaming? That’s where I’ll always love you. That’s where I’ll be waiting.
+ - The secret of happiness is not in doing what one likes, but in liking what one does.
+ - Shall we make a new rule of life from tonight: always to try to be a little kinder than is necessary?
+ - Never say goodbye because goodbye means going away and going away means forgetting.
+ - The reason birds can fly and we can’t is simply because they have perfect faith, for to have faith is to have wings.
+ - Every time you say you don’t believe in fairies, a fairy dies.
+ - So come with me, where dreams are born, and time is never planned. Just think of happy things, and your heart will fly on wings, forever, in Never Never Land!
+ - Would you like an adventure now, or would like to have your tea first?
+ - All the world is made of faith, and trust, and pixie dust.
+ - All of this has happened before, and it will all happen again.
+ - Anything is possible if you wish hard enough.
+ - Death is but the next great adventure.
+ - Oh, the cleverness of me!
+ - He who distributes the milk of human kindness cannot help but spill a little on himself.
+ - One girl is worth more use than 20 boys.
+ - You must have been warned against letting the golden hours slip by; but some of them are golden only because we let them slip by.
+ - Wendy, Wendy, when you are sleeping in your silly bed you might be flying about with me saying funny things to the stars.
+ - Those who are prepared to die are most prepared to live.
+ - All children, except one, grow up.
+ - Make your feet your friend.
+ - Just always be waiting for me.
+ - Life is a cup of tea; the more heartily we drink the sooner we reach the dregs.
+ - I’m youth, I’m joy, I’m a little bird that has broken out of the egg.
+ - When the first baby laughed for the first time, the laugh broke into a thousand pieces and they all went skipping about, and that was the beginning of fairies.
+ - Off we skip like the most heartless things in the world, which is what children are, but so attractive; and we have an entirely selfish time, and then when we have need of special attention we nobly return for it, confident that we shall be rewarded instead of smacked.
+ - The gates of heaven are so easily found when we are little, and they are always standing open to let children wander in.
+ - The life of every man is a diary in which he means to write one story, and writes another; and his humblest hour is when he compares the volume as it is with what he vowed to make it.
+ - The moment you doubt whether you can fly, you cease for ever to be able to do it.
+ - If you shut your eyes and are a lucky one, you may see at times a shapeless pool of lovely pale colours suspended in the darkness; then if you squeeze your eyes tighter, the pool begins to take shape, and the colours become so vivid that with another squeeze they must go on fire.
+ - As soon as you can say what you think and not what some other person has thought for you, you are on the way to being a remarkable man.
+ - Fairies have to be one thing or the other, because being so small they unfortunately have room for one feeling only at a time.
+ - Second star to the right and straight on ’til morning.
+ - If growing up means it would be beneath my dignity to climb a tree, I’ll never grow up, never grow up, never grow up! Not me!
+ - Forever is a very long time Peter.
+ - Ghosts were created when the first man awoke in the night.
+ - You find a glimmer of happiness in this world, there’s always someone who wants to destroy it.
+ - Girls are much too clever to fall out of their prams.
+ - I’ll teach you how to jump on the wind’s back, and then away we go.
+ - All great writers begin with a good leather binding and a respectable title.
+ - On these magic shores children at play are for ever beaching their coracles. We too have been there; we can still hear the sound of the surf, though we shall land no more.
+ - It may have been quixotic, but it was magnificent.
+ - You canna expect to be baith grand and comfortable.
+ - Nothing is really work unless you would rather be doing something else.
+ - Forget them, Wendy. Forget them all. Come with me where you’ll never, never have to worry about grown up things again. Never is an awfully long time.
+ - This meal happened to be a make-believe tea, and they sat round the board guzzling in their greed; and really, what with their chatter and recriminations, the noise, as Wendy said, was positively deafening.
+ - A loving wife is better than making 50 in cricket, or even 99, beyond that I will not go.
+ - Take care, lest an adventure is now offered you, which, if accepted, will plunge you in deepest woe.
+ - You were hidden behind walls of ice; no man had passed them; I broke them down and love leapt to love, and you lie here, my beautiful, love in the arms of its lover.
+ - I do believe in fairies! I do! I do!
+ - Boy, why are you crying?
+ - Stars are beautiful, but they must not take an active part in anything, they must just look on forever. It is a punishment put on them for something they did so long ago that no star now knows what it was.
+ - Love is not blind; it is an extra eye, which shows us what is most worthy of regard.
+ - For when you looked into my mother’s eyes you knew, as if He had told you, why God sent her into the world – it was to open then minds of all who looked to beautiful thoughts. And that is the beginning and end of literature.
+ - Oh the gladness of their gladness when they’re glad, And the sadness of their sadness when they’re sad; But the gladness of their gladness, and the sadness of their sadness, Are as nothing to their badness when they’re bad.
+ - What a polite game tennis is. The chief word in it seems to be “sorry” and admiration of each other’s play crosses the net as frequently as the ball.
+ - Some of my plays peter out and some pan out.
+ - The Elizabethan age might be better named the beginning of the smoking era...
+ - Wendy: Sir, you are both ungallant and deficient! Peter: How am I deficient? Wendy: You’re just a boy.
+ - When a new baby laughs for the first time a new fairy is born, and as there are always new babies there are always new fairies.
+ - I don’t want to go to school and learn solemn things. I don’t want to be a man.
+ - Odd things happen to all of us on our way through life without our noticing for a time that they have happened.
+ - Has it ever struck you that trout bite best on the Sabbath? God’s critters tempting decent men.
+ - Young boys should never be sent to bed. They always wake up a day older.
+ - He was a little boy, and she was grown up. She huddled by the fire not daring to move, helpless and guilty, a big woman.
+ - Always be a littler kinder than necessary.
+ - It’s a sort of bloom on a woman. If you have it, you don’t need to have anything else, and if you don’t have it, it doesn’t much matter what else you have. Some women, the few, have charm for all; and most have charm for one. But some have charm for none.
+ - Our heroine knew that the mother would always leave the window open for her children to fly back by; so they stayed away for years and had a lovely time...
+ - She also said she would give him a kiss if he liked, but Peter did not know what she meant, and he held out his hand expectantly.
+ - Love, it is said, is blind, but love is not blind. It is an extra eye, which shows us what is most worthy of regard. To see the best is to see most clearly, and it is the lover’s privilege.
+ - I am the best there ever was!
+ - There are, I dare say, many lovers who would never have been drawn to each other had they met for the first time, as, say, they met the second time.
+ - Years rolled on again, and Wendy had a daughter. This ought not to be written in ink but in a golden splash.
+ - I like well to be in the company of explorers.
+ - I think it’s perfectly lovely the way you talk about girls...
+ - Those who aim low usually hit their targets.
+ - Most disquieting reflection of all, was it not bad form to think about good form?
+ - In love-making, as in other arts, those who do it best cannot tell how it is done.
+ - He was never more sinister than when he was most polite...
+ - Peter invented, with Wendy’s help, a new game that fascinated him enormously, until he suddenly had no more interest in it, which, as you have been told, was what always happened with his games. It consisted in pretending not to have adventures...
+ - Wise children always choose a mother who was a shocking flirt in her maiden days, and so had several offers before she accepted their fortunate papa.
+ - Strength instead of being the lusty child of passion, grows by grappling with and subduing them.
+ - I think one remains the same person throughout, merely passing, as it were, i these lapses of time from one room to another, but all in the same house.
+ - If I were younger, I’d know more.
+ - I have always found that the man whose second thoughts are good is worth watching.
+ - She liked his tears so much that she put out her beautiful finger and let them run over it. Her voice was so low that at first he could not make out what she said. Then he made it out. She was saying that she thought she could get well again if children believed in fairies.
+ - They have long lost count of the days, but always if they want to do anything special they say this is saturday night, and then they do it.
+ - I am aware that those hateful persons called Original Researchers now maintain that Raleigh was not the man; but to them I turn a deaf ear.
+ - They took it for granted that if they went he would go also, but really they scarcely cared. Thus children are ever so ready, when novelty knocks, to desert their dearest ones.
+ - A moment after the fairy’s entrance the window was blown open by the breathing of the little stars, and Peter dropped in.
+ - What is genius? It is the power to be a boy again at will.
+ - When ladies used to come to me in dreams, I said, ‘Pretty mother, pretty mother.’ But when at last she really came, I shot her.
+ - You see, dear, it is not true that woman was made from man’s rib; she was made from his funny bone.
+ - Children have the strangest adventures without being troubled by them. For instance, they may remember to mention, a week after the event happened, that when they were in the wood they had met their dead father and had a game with him.
+ - The best place a person can die, is where they die for others.
+ - All you need is trust and a little bit of pixie dust!
+ - It is frightfully difficult to know much about the fairies, and almost the only thing for certain is that there are fairies wherever there are children.
+ - All are keeping a sharp look-out in front, but none suspects that the danger may be creeping up from behind.
+ - One’s religion is whatever he is most interested in.
+ - It was dreadful the way all the three were looking at him, just as if they did not admire him.
+ - I do loathe explanations.
+ - What is algebra exactly; is it those three-cornered things?
+ - Feeling that Peter was on his way back, the Neverland had again woke into life. We ought to use the pluperfect and say wakened, but woke is better and was always used by Peter.
+ - But the years came and went without bringing the careless boy; and when they met again Wendy was a married woman, and Peter was no more to her than a little dust in the box in which she had kept her toys.
+ - How shall we ever know if it’s morning if there’s no servant to pull up the blinds?
+ - The difference between him and the other boys at such a time was that they knew it was make-believe, while to hime make-believe and true were exactly the same thing. This sometimes troubled them, as when they had to make-believe that they had had their dinners.
+ - If he thought at all, but I don’t believe he ever thought, it was that he and his shadow, when brought near each other, would join like drops of water...
+ - We have a right to know the truth; no right to ask anything else from God, but the right to know that.
+ - In time they could not even fly after their hats. Want of practice, they called it; but what it really meant was that they no longer believed.
+ - She was a large woman who seemed not so much dressed as upholstered.
+ - I taught you to fight and to fly. What more could there be?
+ - Men’s second childhood begins when a woman gets a hold of him.
+ - Thus did the terrified three learn the difference between an island of make-believe and the same island come true.
+ - The door’, replied Maimie, ’will always, always be open, and mother will always be waiting at it for me.
+ - A house is never still in darkness to those who listen intently; there is a whispering in distant chambers, an unearthly hand presses the snib of the window, the latch rises. Ghosts were created when the first man awoke in the night.
+ - He was a poet; and they are never exactly grown-up.
+ - You won’t forget me, Peter, will you, before spring-cleaning time comes? Of course Peter promised, and then he flew away. He took Mrs. Darling’s kiss with him. The kiss that had been for no one else Peter took quite easily. Funny. But she seemd satisfied.
+ - The man of science appears to be the only man who has something to say just now, and the only man who does not know how to say it.
+ - After a time he fell asleep, and some unsteady fairies had to climb over him on their way home from an orgy.
+ - Yet if he upbraided her in his hurry, it was to repent bitterly his temper the next, and to feel its effects more than she, temper being a weapon that we hold by the blade.
+ - Them that has china plates themsel’s is the maist careful not to break the china plates of others.
+ - Our life is a book to which we add daily, until suddenly we are finished, and then the manuscript is burned.
+ - He looked at her uncomfortably; blinking, you know, like one not sure whether he was awake or asleep.
+ - The praise that comes of love does not make us vain, but humble rather. Knowing what we are, the pride that shines in our mother’s eyes as she looks at us is about the most pathetic thing a man has to face, but he would be a devil altogether if it did not burn some of the sin out of him.
+ - Life is a long lesson in humility.
+ - They knew in what they called their hearts that one can get on quite well without a mother, and that it is only the mothers who think you can’t.
+ - Courage: The lovely virtue-the rib of Himself that God sent down to His children.
+ - I bowl so slowly that if I don’t like a ball I can run after it and bring it back.
+ - Every man who is high up likes to think he has done it all himself; and the wife smiles, and lets it go at that. It’s our only joke. Every woman knows that.
+ - Heaven for climate, Hell for company.
+ - I suppose it’s like the ticking crocodile, isn’t it? Time is chasing after all of us.
+ - Dreams do come true, if we only wish hard enough.
+ - Fairies don’t live long, but they are so little that a short time seems a good while to them.
+ - Mr. and Mrs. Darling and Nana rushed into the nursery too late. The birds were flown.
+ - We should be slower to think that the man at his worst is the real man, and certain that the better we are ourselves the less likely is he to be at his worst in our company. Every time he talks away his own character before us he is signifying contempt for ours.
+ - Facts were never pleasing to him. He acquired them with reluctance and got rid of them with relief. He was never on terms with them until he had stood them on their heads.
+ - After you have been unfair to him he will love you again, but he will never afterwards be quite the same boy. No one ever gets over the first unfairness; no one except Peter.
+ - I sometimes think, Mary, that it is a mistake to have a dog for a nurse.
+ - Nobody really wants us. So let us watch and say jaggy things, in the hope that some of them will hurt.
+ - If you cannot teach me to fly, teach me to sing.
+ - They were going round and round the island, but they did not meet because all were going at the same rate.
+ - You need not be sorry for her. She was one of the kind that likes to grow up. In the end she grew up of her own free will a day quicker than the other girls.
+ - There could not have been a lovelier sight; but there was none to see it except a little boy who was staring in at the window. He had ecstasies innumerable that other children can never know; but he was looking through the window at the one joy from which he must be for ever barred.
+ - The fairies, as their custom, clapped their hands with delight over their cleverness, and they were so madly in love with the little house that they could not bear to think they had finished it.
+ - May God blast anyone who writes a biography of me.
+ - Forget not your past, for in the future it may help you grow.
+ - The man who is in real danger is the man who thinks he is perfectly safe.
+ - Fame is rot; daughters are the thing.
+ - Oh, God, if I were sure I were to die tonight I would repent at once. It is the commonest prayer in all languages.
+ - There are few more impressive sights in the world than a Scotsman on the make.
+ - You always know after you are two. Two is the beginning of the end.
+ - It is very well to be able to write a book, but can you waggle your ears?
+ - Will they reach the nursery in time? If so, how delightful for them, and we shall all breathe a sigh of relief, but there will be no story. On the other hand, if they are not in time, I solemnly promise that it will all come right in the end.
+ - One could mention many lovable traits in Smee. For instance, after killing, it was his spectacles he wiped instead of his weapon.
+
+153 quotes

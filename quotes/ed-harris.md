@@ -1,0 +1,31 @@
+ - We accept the reality of the world with which we are presented.
+ - You can’t betray yourself too often, or you become somebody else.
+ - I have a tight family group that’s really important to me. I don’t want to work all the time.
+ - For The Truman Show, I worked for a few weeks, do my gig, then I was done.
+ - I’m not an activist per se, but I have strong feelings about things. People can jump on celebrities for being ill-informed or naive, but I’ve got a right to say what I believe.
+ - You can mostly forget ethnic or religious differences. The competition for a bigger share of the oil proceeds is behind much of the fighting.
+ - One of the first things I learned about acting was, the only person you compete against is yourself.
+ - I listen to National Public Radio, which, to me at least, presents the most rounded view of things.
+ - I can make a damn pork chop. My best dish is actually lasagna, which I do a couple times a year. My wife wishes I cooked a little bit more often, but I can put a frozen pizza in the oven and I make a good salad.
+ - Hippy, you think everything is a conspiracy. Everything is!
+ - I hope to direct a few more films before I leave the planet, so I hope I can find the material.
+ - When Bush first got elected, the very first time there was talk of going to war with Iraq, the mainstream media gave his position total credibility. I didn’t get it then, and I don’t get it now.
+ - I feel like my place in this industry is still progressing.
+ - I was concerned about filling my life up with something important to me. To me, it was just necessary.
+ - If I started worrying about how my constituents are going to react to every move I make, I wouldn’t be able to do my job here. I’ll do what I think is right and explain it later.
+ - I had some really dear friends who died from AIDS-one in particular. His family wasn’t around and he didn’t have many friends. I spent a lot of time with him in his later days.
+ - There’s always a reaction based on fear. People assume if you’re criticizing a decision to go to war, then you’re saying something against the soldiers-which is not the case.
+ - I am not one of these guys who works job after job after job.
+ - Seeing what happens when you rip yourself open is what your job is all about.
+ - A lot of films come out before they’re finished.
+ - When I decided to direct, never having done that before, is something I’m very proud of.
+ - I think most people that are looked upon as doing something daring don’t necessarily think of it that way-they do what they have to do.
+ - I chose films made by people I wanted to work with, about subject matter I thought was intriguing.
+ - You look at a guy like Lance Armstrong, and you have to be inspired. I sat next to Kirk Douglas the other day, and he’s inspiring for fighting through his stroke.
+ - It’s hard to see a film that’s been made from a book that you really loved because it’s such a different experience.
+ - You have to be willing to expose yourself, at least to yourself, to get to some kind of truth about a character.
+ - I like to act with people that know what they’re doing.
+ - I’ve always wanted to work with Paul Newman. I had a couple opportunities in the past, and I didn’t take advantage of it, so it was really fun to be working with him.
+ - I made career decisions that came from the part of me who wanted to shun the limelight.
+
+29 quotes

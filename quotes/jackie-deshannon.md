@@ -1,0 +1,27 @@
+ - Put a little love in your heart, and the world will be a better place.
+ - What the world needs now is love, sweet love.
+ - Ignorance is kind of bliss.
+ - I think to just single out a highlight of Elvis’s career is pretty much impossible. As far as being a fan of his, a lifetime fan, there were just too many highlights.
+ - Lord, we don’t need another mountain.
+ - The happy story right now is the full page in Vanity Fair, which gives me a great deal of exposure.
+ - And unless you have that sense of being creative, people think you’re just working all the time.
+ - I’ve always been careful to put out the very best work I can. One of the things I value the most is the love and faith that people have given me over the years, so I try to live up to their expectations and my own standards of what I’m capable of.
+ - I was lucky enough to first meet Elvis at his house in Bel Air and he used to invite different artists, singers and musicians, to come and jam with him at his house.
+ - I think, describing Elvis for me would be a very generous king. He was the king of rock and roll, will always be. He’s whats made it possible for everyone to be performers and to do the things they do now.
+ - And I just remember, you know, breaking into tears and feeling so empty because, as long as Elvis was in the world, you always knew something was going and he always had something that kept everybody mesmerized.
+ - I’m very interested to see how this new painting will go – I know I want it big and stark, and as I said, I follow the muse, and that’s when it always works perfectly for me.
+ - Well, as an artist, I think that Elvis’s generosity to me he always talked very highly about me, he always spoke very highly about my work and singing and my writing.
+ - We have to set our own agenda, we have to set our own standards, we have to be very strong about what we want, we have to be very strong about our passion and if it’s not right for you, you shouldn’t do it just because you’re advised by so-called geniuses.
+ - I went to art school, I think it helped me a great deal because it taught me who I am.
+ - I would think, to me, growing up in the south, growing up with all the gospel music, singing in the church and having that rhythm and blues – the blues background was my big inspiration.
+ - I always went with my agenda, I just couldn’t execute it.
+ - I think Ingmar Bergman, Francoise Truffaut – all these people created images in my mind, beautiful pictures, I loved what was known at that time as the foreign film.
+ - There are some good songs, but not the kind of song-writing that I remember, that I like. Springsteen still does it. Paul Simon, and there are also good writers, but that doesn’t dominate the charts.
+ - When I used to go to Elvis’s house was always a nightmare trying to get into the house because of so many fans outside the gate and he really couldn’t go anywhere without sneaking in or doing something because people just wanted to be around him and to be with him.
+ - When I was writing songs or performing or producing or dabbling in movies or even putting my career on hold to go to art school, I was just following my muse. A woman who did that then was criticized for having no direction. Today they call it versatility.
+ - When Elvis was performing, you just tried to figure out a way to get there. I think he set all the records and anyone that has ever had the good fortune to see him, you know what it’s like to try to get in to see Elvis. It was impossible, practically.
+ - And being away and not performing for a long time and really connecting with my audience for a long time, I have a great responsibility to myself and to them to do it exactly the way the process was when I was young.
+ - Elvis was, at least the times I was around him, Elvis was a practical joker. He was always, had some little mischievous something going.
+ - No, I got my web site going and said I have the record out. People were just falling on the floor – they couldn’t believe it – after all that time. You know, it wasn’t a compilation, it was new songs.
+
+25 quotes

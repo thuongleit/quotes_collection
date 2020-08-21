@@ -1,0 +1,75 @@
+ - Work faster, smarter and harder.
+ - What you think of me is none of my business.
+ - Work hard on your job and work harder on yourself.
+ - Everything has a price, including both success and failure. Choose either one and be prepared to pay the price.
+ - People hate the truth. Luckily, the truth does not care.
+ - You are not paid to work hard. In fact, you are not paid for effort at all. You are paid for results. It’s not what you do; it’s what you get done.
+ - Reward the behavior you want repeated.
+ - You can’t step up to the next level as long as you keep one foot on the lower level.
+ - Do what you say you are going to do, when you say you are going to do it, in the way you said you were going to do it.
+ - Dreams don’t come true. Plans come true!
+ - Stress comes from knowing what is right and doing what is wrong.
+ - A disorganized workspace means disorganized work habits. A sloppy work environment equals sloppy results.
+ - Success comes from what you do, not from what you say you are going to do.
+ - Discover your uniqueness and learn to exploit it in the service of others, and you are guaranteed success, happiness, and prosperity.
+ - Be the person others can count on to get things done.
+ - Your thoughts, your words, and your actions created the life you are living. You create your results – no one else.
+ - Clean up your own backyard. Change by example. Just be the way you want others to be and hope they pay attention.
+ - Don’t measure busywork. Don’t measure activity. Measure accomplishment. It doesn’t matter what people do as much as it matters what they get done.
+ - I have done the merry-go-round and I have ridden the roller-coaster. I have made my choice. I choose the roller-coaster. There is more risk when you choose the roller-coaster, but at least you will know you have lived.
+ - Be confident. There is no one who is not attracted to confidence. Women dig it. Men love it. Confidence adds hair, drops ten pounds, and takes off ten years.
+ - Few people will turn to themselves to take responsibility for their results until they have exhausted all opportunities to blame someone else.
+ - Be the kind of person others admire, can count on, trust, and enjoy spending time with. After you have developed that reputation, people will start to ask you what you do and you will be amazed at how many people will want to work with you. You will attract others based on your character.
+ - If it’s a good idea, do it today. Not tomorrow. A good idea rarely gets better over time.
+ - Everything in your life gets better when you get better, and nothing is ever going to get better until you get better.
+ - I think everything in your life’s your own damn fault and that’s my simple philosophy in that, and I think you’re broke because you want to be just like you’re fat because you want to be or stupid because you want to be or unemployed, it must be because you want to be. Otherwise, it’d be different.
+ - All talk is just that: talk. All the words written on these pages are just that: words. If you want things to get better, take action. Don’t just talk about it. Don’t just read and think about it. Do it.
+ - The world, and therefore the workplace, is full of idiots. And the reality of life is that when you get rid of one idiot, another will show up to take his place. It’s the curse of humanity.
+ - Never build yourself up by tearing another down.
+ - Every single person on the planet is rewarded for one thing and one thing only, and that is for serving other people. The more you serve others, the higher your reward.
+ - What you think about, talk about, and get off your ass and do something about, comes about.
+ - Make yourself happy and surround yourself with people who are cool with that.
+ - It is a solid business principle that people who enjoy what they do are better at what they do.
+ - There are two things you will never be without: One is your reputation and the other is your credit rating.
+ - People don’t give a damn about you and they don’t give a damn about your story and they don’t give a damn about your content. They only give a damn that you, your content, your story can bring value to them.
+ - If you don’t have much going wrong in your life, then you don’t have much going on in your life.
+ - I think it’s more helpful to keep your books sort of a singular focus. Get it said, get it said well, fascinate people with your words and then write another book.
+ - Age-old question: Is the glass half empty or half full? Answer: Who cares? Does it really matter whether the glass is half full or half empty? The issue is whether it quenches your thirst.
+ - Don’t be different. Different scares people. People won’t spend their money on different. They will, however, pay a premium for unique.
+ - As your employer, if I see that you have to work hard to get your results, yet your coworkers achieve their results with little effort, don’t be surprised if I’m not all that impressed with your hard work.
+ - And most importantly, ask more from yourself! This is the real key. Ask what you can do to help. Ask what you have to offer. Ask what you can contribute. Ask how you can serve. Ask yourself how you can do more. Ask your spouse how you could be more helpful, loving or kind.
+ - I’ve been very fortunate at having good titles but I just think in terms of titles. I’m doing a workshop now where people write books and they come and I name their books for them. I’m good with titles.
+ - There are four basic emotions – mad, sad, glad and scared. And if you touch those emotions then you can grab your audience, your reader.
+ - I’ve been very, very successful at building probably the most recognizable, physically recognizable brand in personal development.
+ - When I’m writing a book – say I’m going to write a parenting book. I’ll go out and buy the 100 top parenting books and I will read those, not so I can copy them for sure.
+ - I looked at the fact that people were in such financial trouble I said well people are broke because they want to be.
+ - When you miss the target, never in history has it been the target’s fault. Ya gotta take responsibility!
+ - The right thing to do usually comes straight from your gut. When you work fast, you tend to work more from the gut, because your mind simply doesn’t have as much time to justify an easier way to do things.
+ - Don’t educate people; touch them emotionally. Remember that people want to be scared or they want to be made happy or they want to be made sad.
+ - It seems to me most people make the mistake of never building a following where they are considered a resource to their fan base so when they do release the book there will be somebody there to buy it.
+ - Go to your checkbook and see what you spend money on. In an instant, you will know what is important to you because your money goes toward it.
+ - I have people who buy my books just so they can sit them around and show them off because of the titles, especially the Shut Up, Stop Whining and the Grow a Pair. So the title is very, very important.
+ - I have discovered that enemies will buy your books as much as your fans buy your books because they’re looking for something new to hate you for.
+ - The title’s more important than the book.
+ - Branding is nothing but knowing who you are and what you do that makes you stand out from everyone else, then communicating that through your marketing efforts. Branding is discovering your uniqueness and learning to exploit it.
+ - If you’re selling information – and I have a lot of friends who write a lot of bestselling books and they’re selling information. They don’t need to have a picture on the cover at all because they are not important. They’re secondary to their information. To me, the information is secondary to me.
+ - Learn what you are good at and exploit it in service to others.
+ - Success is not a secret – it never has been. There are only a few really good ideas and not one of them is a secret.
+ - You can’t have a bully without a victim.
+ - You can’t write a book and just expect it to sell itself, you know. We’re not building that better mousetrap and waiting for the world to beat a path to our dear. You’ve got to build a market for your book.
+ - My brand was always going to be based on my personality. I didn’t want people hiring me for what I said. I wanted them hiring me for who I am.
+ - I write titles that are confrontational. I write titles that make people want to pick up a book and find out more about it. I write good books; I write great titles though.
+ - I understand what my brand is. My brand is not my information. My brand is me and what I say is secondary to who I am.
+ - If you’re not booked, you’re not any good!
+ - The premise, to me, is the most important thing that you have to know going in. It’s the problem as you see it. So I write down the problem as I see it. That is the premise for my book.
+ - Find a problem that you can provide a solution to.
+ - No matter what I’m talking about, I can involve you into the story where you think it’s you doing it. You’re living it. I can remind you of things that went on in your life so you go, man I had that happen to me. I’ve been there. I’ve done that.
+ - I think shorter books are going to become more and more of the trend. So I don’t think you have to write big, big, long books.
+ - Most of the stats say that 90% of people who buy a book or check one out of a library would never get past the first chapter. To me, the title better say everything there is to say about the book.
+ - I think you have to read a lot. I think if you’re going to write about something you better have read at least 100 books on that topic.
+ - Businesses get better only when the people in the business get better.
+ - I think it’s easy to get a book in a bookstore. I think it’s just damn near impossible to get a book out of a bookstore.
+ - You have to move beyond that vision of the way your life has always looked and begin to picture your life as you want it to look.
+ - I think one of the mistakes typically with authors is they have written more books than they’ve read.
+
+73 quotes

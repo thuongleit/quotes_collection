@@ -1,0 +1,28 @@
+ - The power of social media is it forces necessary change.
+ - We don’t have a choice on whether we DO social media, the question is how well we do it.
+ - History repeats itself because nobody listens the first time.
+ - The ROI of social media is that your business will still exist in 5 years.
+ - Social Media isn’t a fad, it’s a fundamental shift in the way we communicate.
+ - It’s about listening first, then selling.
+ - Successful companies in social media function more like entertainment companies, publishers, or party planners than as traditional advertisers.
+ - Integrity is what you do behind closed doors or when you think nobody is watching. Integrity is the true essence of who you are, your beliefs and your values. Reputation is the public perception of who you are. It is how others view your integrity or strong moral principles.
+ - Privacy is dead. Reputations are dying.
+ - Consumers are taking ownership of brands, and their referral power is priceless.
+ - The beauty of social media is that it will point out your company’s flaws; the key questions is how quickly you address these flaws.
+ - As social media is less about technology and more about relationship building, we are starting to see more women have a heavy influence if not dominant role in the social media space. It’s no wonder that Facebook is being run in part by chief operating officer Sheryl Sandberg.
+ - Pushing a company agenda on social media is like throwing water balloons at a porcupine.
+ - You’re talking about a younger generation, Generation Y, whose interpersonal communication skills are different from Generation X. The younger generation is more comfortable saying something through a digital mechanism than even face to face.
+ - With the growing reliance on social media, we no longer search for news, or the products and services we wish to buy. Instead they are being pushed to us by friends, acquaintances and business colleagues.
+ - Twenty-five percent of search results for the world’s top 20 largest brands are links to user generated content and thirty-four percent of bloggers post opinions about products and brands.
+ - It had not yet been named Silicon Valley, but you had the defense industry, you had Hewlett-Packard. But you also had the counter-culture, the Bay Area. That entire brew came together in Steve Jobs.
+ - With the advent of radical and accessible technology, each one of us, for the first time in history, is creating an influential mark forever – we are all mini-digital celebrities and heroes to someone.
+ - Why are we trying to measure social media like a traditional channel anyway? Social media touches every facet of business and is more an extension of good business ethics.
+ - Increasingly, consumers don’t search for products and services. Rather, services come to their attention via social media.
+ - Social media has made the web all about me, me, me.
+ - At a minimum the majority of search dollars will flow to a social media model because people care most about what their peers think and the technology is there for that information to be quickly shared on products and services.
+ - Folks want to be listened to, they want to be heard.
+ - The easier things are to buy, the more we consume.
+ - To effectively leverage the social graph, every company needs to understand that they need to make their information easily transferable.
+ - That’s the power behind a tool like Facebook Connect. It is making a Web without walls. Facebook allows you to go to other sites to comment, rate, etc., without having to set up a new profile for that site.
+
+26 quotes

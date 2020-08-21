@@ -1,0 +1,43 @@
+ - Action will destroy your procrastination. ~~Og Mandino
+ - My advice is to never do tomorrow what you can do today. Procrastination is the thief of time. ~~Charles Dickens
+ - Do not act as if you had a thousand years to live. ~~Marcus Aurelius
+ - Procrastination makes easy things hard, hard things harder. ~~Mason Cooley
+ - Don’t let your want for perfection become procrastination. ~~Danielle LaPorte
+ - The only difference between success and failure is the ability to take action. ~~Alexander Graham Bell
+ - Procrastination is a lazy man’s apology. ~~Chinua Achebe
+ - The problem with tomorrow is that I have never seen a tomorrow. Tomorrow does not exist. Tomorrow only exist in the mind of dreamers and losers. ~~Robert T. Kiyosaki
+ - The momentum of continuous action fuels motivation, while procrastination kills motivation. ~~Steve Pavlina
+ - Pay now, play later; play now, pay later. ~~John C. Maxwell
+ - The really happy people are those who have broken the chains of procrastination, those who find satisfaction in doing the job at hand. They’re full of eagerness, zest, productivity. You can be, too. ~~Norman Vincent Peale
+ - Procrastination is opportunity’s assassin. ~~Victor Kiam
+ - The best cure for procrastination is to have so much on your plate that procrastination is no longer an option. ~~Tavi Gevinson
+ - Procrastination is attitude’s natural assassin. There’s nothing so fatiguing as an uncompleted task. ~~William James
+ - Addiction, self-sabotage, procrastination, laziness, rage, chronic fatigue, and depression are all ways that we withhold our full participation in the program of life we are offered. When the conscious mind cannot find a reason to say no, the unconscious says no in its own way. ~~Charles Eisenstein
+ - Clear, written goals have a wonderful effect on your thinking. They motivate you and galvanize you into action. They stimulate your creativity, release your energy, and help you to overcome procrastination as much as any other factor. ~~Brian Tracy
+ - After all, tomorrow is another day. ~~Margaret Mitchell
+ - Perception is strong and sight weak. In strategy it is important to see distant things as if they were close and to take a distanced view of close things. ~~Miyamoto Musashi
+ - The scholar’s greatest weakness: calling procrastination research. ~~Stephen King
+ - Procrastinate now, don’t put it off. ~~Ellen DeGeneres
+ - The greatest amount of wasted time is the time not getting started. ~~Dawson Trotman
+ - Do not call procrastination laziness. Call it fear. ~~Julia Cameron
+ - Procrastination is the thief of time: Year after year it steals, till all are fled. ~~Edward Young
+ - He who puts off nothing till tomorrow has done a great deal. ~~Baltasar Gracián
+ - The best way to make your dreams come true is to wake up. ~~Muhammad Ali
+ - Yes, you can be a dreamer and a doer too, if you will remove one word from your vocabulary: impossible. ~~Robert H. Schuller
+ - So what do we do? Anything. Something. So long as we just don’t sit there. If we screw it up, start over. Try something else. If we wait until we’ve satisfied all the uncertainties, it may be too late. ~~Lee Iacocca
+ - If we wait until we’ve satisfied all the uncertainties, it may be too late. ~~Lee Iacocca
+ - If you ask me, reincarnation is just another way to procrastinate. ~~Chuck Palahniuk
+ - The assumption of time is one of humanity’s greatest follies. We tell ourselves that there’s always tomorrow, when we can no more predict tomorrow than we can the weather. Procrastination is the thief of dreams. ~~Richard Paul Evans
+ - God has promised forgiveness to your repentance, but He has not promised tomorrow to your procrastination. ~~Saint Augustine
+ - Procrastination is another form of resistance. ~~Louise Hay
+ - Procrastination is not the problem. It is the solution. Procrastinate now, don’t put it off. ~~Ellen DeGeneres
+ - The mind of a writer can be a truly terrifying thing. Isolated, neurotic, caffeine-addled, crippled by procrastination, consumed by feelings of panic, self-loathing, and soul-crushing inadequacy. And that’s on a good day. ~~Robert De Niro
+ - Procrastination is hardly more evil than grasping impatience. ~~Immanuel Kant
+ - Procrastination is a sign of a perfectionist. ~~Patrick J. Kennedy
+ - If only I could master that demon of procrastination that goes about like a roaring lion and devours all my good intentions, I should become the most punctual man in the world. ~~Henrik Ibsen
+ - At thirty, man suspects himself a fool; Knows it at forty, and reforms his plan. ~~Edward Young
+ - The old saying that “success breeds success” has something to it. It’s that feeling of confidence that can banish negativity and procrastination and get you going the right way. ~~Donald Trump
+ - One of the great challenges of our age, in which the tools of our productivity are also the tools of our leisure, is to figure out how to make more useful those moments of procrastination when we’re idling in front of our computer screens. ~~Joshua Foer
+ - Procrastination is the longest word in the language, but there’s only one letter between its ends when they occupy their proper places in the alphabet. ~~George Horace Lorimer
+
+41 quotes

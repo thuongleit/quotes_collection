@@ -1,0 +1,51 @@
+ - Success is not the key to happiness, happiness is the key to success.
+ - I believe these words came from the Pokemon movie. ‘Life can be a challenge. Life can seem impossible. It’s never easy when there’s so much on the line. But you and I can make a difference. There’s a mission just for you and me.’
+ - There are generally three kinds of people in the world. People who make things happen, people who watch things happen, and people who say, what in the heck happened.
+ - It is wise to keep in mind that no success or failure is necessarily final. Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.
+ - The more toppings a man has on his pizza, I believe the more manly he is. A manly man don’t want it piled high with vegetables! He would call that a sissy pizza.
+ - Stupid people are ruining America.
+ - I’m not a professional politician. I’m a professional problem solver...
+ - A gold standard is to the moochers and looters in government what sunlight and garlic are to vampires.
+ - The American dream is under attack because our government has been hijacked by the Liberals in Washington DC.
+ - If you touch the hearts of people you can get people’s minds to change, but you have to show them the beauty of not aborting a life.
+ - Republicans have been losing the war of words for years now. Now they are just caving because they don’t even want to try. I don’t agree with that approach.
+ - When all else fails the liberals call you names or attack your personality.
+ - In the vernacular of my grandfather, ‘I does not care.’
+ - I’m ready for the ‘gotcha’ questions and they’re already starting to come...
+ - America has got to learn to take a joke.
+ - It’s not about me, it’s about the grandkids. That’s what a lot of people don’t understand about what Herman is up to.
+ - We need a leader, not a reader.
+ - I think ‘Hail to the Chief’ needs a little bit fresher sound. I might put some gospel beats in ‘Hail to the Chief.’
+ - I know I’m going to get in trouble!
+ - And I’m here to tell you, the reaction that I’m getting around the country, people are sick and tired of this word in Washington, compromise. This is why nothing ever gets done.
+ - If ObamaCare had been fully implemented when I caught cancer, I’d be dead.
+ - Prime Minister Benjamin Netyanahu made it real clear. They’re willing to be generous on some other concessions but not on the border issue. And I don’t blame him.
+ - How do you say ‘delicious’ in Cuban?
+ - Just look inside and you will find just what you can do.
+ - I can connect with peoples’ pain because I was ‘po’ before I was ‘poor’.
+ - When they ask me who’s the president of Ubeki-beki-beki-beki-stan-stan I’m going to say, you know, I don’t know. Do you know? And then I’m going to say how’s that going to create one job?
+ - There’s no hidden secrets going on in the Federal Reserve.
+ - The thing that differs me from a lot of other people running for the President of the United States is that I focus on the problem first. Then I focus on what the solution is.
+ - It’s not Planned Parenthood. No, it’s planned genocide. You can quote me on that.
+ - Democrats are losing loyal voters, but the Republicans aren’t picking them up. Democrats are ideologically bankrupt. Republicans have a major brand-identity problem.
+ - How do you beat Obama? Beat him with a Cain!
+ - I’m not supposed to know anything about foreign policy. Just thought I’d throw that out.
+ - The past several months I have been able to meet with people across this country. One thing is clear: America craves for real solutions to the problems we face. That’s why I’m running for President of the United States.
+ - The one thing that the President can do is to establish a real energy independence plan. We have all the resources we need right here in this country to establish energy independence if we had the leadership.
+ - The real problem is clean up the bureaucracy that people have to deal with to become a citizen the right way. And we must truly secure the border. We can’t leave it porous.
+ - I am suspending my presidential campaign.
+ - Well, I’m just about at the elevator up to the family quarters. But bear with me for just a minute more as I confirm who I am. It’s obvious: I’m the president of the United States of America!
+ - The endorsement process is an evolution. What you try to do is you endorse someone that you believe in and their ideas and their solutions align with yours.
+ - If the tea party is so racist, how come when they have straw polls the black guy keeps winning?
+ - I think that taxes would be fair if we first get rid of the tax code.
+ - One right decision doth not a great president make.
+ - Just call me Mr. Cain. And in 2013, they can call me Mr. President.
+ - I believe in traditional marriage and I believe in the Defense of Marriage Act.
+ - They say African Americans. I say black people. I’ve only been to Africa once. I’ve been in America all my life!
+ - The objective of the liberals is to destroy this country.
+ - The lesson that I’m learning is that I’ve got to be careful of being pigeonholed because people can take a piece of tape and edit out the first half and only pull out one snippet that could start a firestorm.
+ - Americans need accurate information in order to consider Social Security reform. Too bad the media can’t be counted upon to provide it.
+ - I could eat black walnut all the time, it’s not a flavor of the week!
+ - No Blitz, that’s oversimplifying it!
+
+49 quotes

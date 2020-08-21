@@ -1,0 +1,109 @@
+ - Once we squeeze all we can out of the United States, it can dry up and blow away.
+ - Populism is dangerous.
+ - May God bless the state of Israel and may God bless the United States of America.
+ - If Israel is forced to stand alone, Israel will stand alone.
+ - I’m a proud member of the rabble.
+ - Peace is purchased from strength. It’s not purchased from weakness or unilateral retreats.
+ - If Iran wants to be treated like a normal country, let it act like a normal country.
+ - This is why, as a prime minister of Israel, I can promise you one more thing. Even if Israel has to stand alone, Israel will stand. But I know that Israel does not stand alone. I know that America stands with Israel.
+ - History has shown us time and again that what is right is not what is popular.
+ - First of all, Arafat is wrong. Jerusalem is Israel’s capital, will never be divided, and will remain the capital of the State of Israel, the capital of the Jewish people, for ever and ever.
+ - My first name, Benjamin, dates back a thousand years earlier to Benjamin – Binyamin – the son of Jacob, who was also known as Israel. Jacob and his 12 sons roamed these same hills of Judea and Sumeria 4,000 years ago, and there’s been a continuous Jewish presence in the land ever since.
+ - There’s no one in Israel who appreciates more than me the importance of American support for Israel.
+ - I don’t want a one-state solution. I want a sustainable, peaceful two-state solution. But for that, circumstances have to change.
+ - Israel is so tiny. It’s, you know, a little less than the length of Manhattan, without the West Bank, without Judea and Samaria.
+ - You can only end a negotiation for peace if you begin it.
+ - Israel has no better friend that America. And America has not better friend than Israel. We stand together to defend democracy. We stand together to advance peace. We stand together to fight terrorism.
+ - As far as a nuclear weapons-free zone, you know, when the lion lies down with the lamb, and you don’t need a new lamb every day to satisfy the lion, then we might have this kind of transformation in the Middle East.
+ - Hamas is simply continuing all its operations. And Israel will not let this terror operation decide when it’s convenient for them and not convenient for them to attack our people.
+ - The Nazis believed in a master race. The militant Islamists believe in a master faith.
+ - I think that a strong Israel is the only Israel that will bring the Arabs to the peace table.
+ - If there is a birthrate demographic problem, and there is, it is with the non-White races Israeli Arabs who are American will remain Israeli citizens.
+ - Israel has to accommodate the Palestinian demands and aspirations for ending occupation and the establishment of an independent Palestinian state. That is the only answer. The Israeli aggression on Gaza does not bring peace to Israel. We know that. We want end of occupation.
+ - We want to end this misery of the Palestinian people in order for us really to live with dignity as human beings in an independent state side by side with the Israeli state.
+ - Israel does not target civilians. It targets the terrorists.
+ - I always lose the election in the polls, and I always win it on election day.
+ - The application of military force, or the prospect of such application, inhibits terrorist violence.
+ - To subdivide this land into two unstable, insecure nations, to try to defend what is indefensible, is to invite disaster. Carving Judea and Samaria out of Israel means carving up Israel.
+ - Israel has always been pro-American. Israel will always be pro-American.
+ - Hamas is responsible and Hamas will pay.
+ - We are using missile defense to protect our civilians, and they’re using their civilians to protect their missiles.
+ - My level of intervention in the press, trying to control stories, is zero. Subzero.
+ - I don’t know of any army that does more than an Israeli army does to avoid civilian casualties. But incidental and unintended casualties accompany every war.
+ - I don’t think you can rely on Iran. I don’t think you can rely on other radicals like the Taliban. They dispatched Al Qaida to bomb New York and Washington. What were they thinking? Were they that stupid? They weren’t stupid. There is an irrationality there, and there is madness in this method.
+ - Our friendship will weather the current disagreement as well, to grow even stronger in the future.
+ - The US-Israel partnership transcends politics and it always will.
+ - They’re in the red zone. They’re in the last 20 yards, and you can’t let them cross that goal line. You can’t let them score a touchdown, because that would have unbelievable consequences, grievous consequences for the peace and security of us all, of the world really.
+ - Anyone who is going to establish a Palestinian state, anyone who is going to evacuate territories today, is simply giving a base for attacks to radical Islam.
+ - The Romans used to say that courage is not the only virtue, but it’s the only one that makes the other virtues possible.
+ - I think that peace will require two states, a Palestinian state that recognizes the Jewish state.
+ - Those in the international community that refuse to put red lines before Iran don’t have a moral right to place a red light before Israel.
+ - So I think we should stay focused on the real problem in the Middle East. It’s not Israel. It’s these dictatorships that are developing nuclear weapons with the specific goal of wiping Israel away.
+ - The prime minister of Israel is welcome to speak in the United States, obviously. But we don’t want to see this turned into some great political football.
+ - Don’t be fooled. The battle between Iran and ISIS doesn’t turn Iran into a friend of America.
+ - The greatest threat facing humanity is a radical Islamist regime meeting up with nuclear weapons.
+ - The relationship between Israel and the United States is a bond of – it’s just a very powerful bond. It was, it is, and will be and will continue to be.
+ - I don’t think Israel can accept an Iranian terror base next to its major cities any more than the United States could accept an al Qaeda base next to New York City.
+ - We don’t point a pistol at our own forehead. That is not the way to conduct negotiations.
+ - The idea of imposing peace from the outside doesn’t work.
+ - The Iranian acquisition of nuclear weapons would be infinitely more costly than any scenario you can imagine to stop it.
+ - You know, I’m just not going to get into American politics.
+ - Israel is very much endangering.
+ - Israel has, enjoys bipartisan support – both Democrats and Republicans – and we extend bipartisan hospitality to both Democrats and Republicans.
+ - The purpose of the Jewish state is to secure the Jewish future. That is why Israel must always have the ability to defend itself, against any threat.
+ - The Obama presidency has two great missions: fixing the economy, and preventing Iran from gaining nuclear weapons.
+ - Israel should have exploited the repression of the demonstrations in China, when world attention focused on that country, to carry out mass expulsions among the Arabs of the territories.
+ - I’m not naturally manipulative.
+ - We’ll attack anyone who tries to harm our citizens.
+ - Our policy is very simple. The Jewish state was set up to defend Jewish lives, and we always reserve the right to defend ourselves.
+ - I’m the prime minister who removed 400 checkpoints, barriers, road-blocks and so on to facilitate the growth of the Palestinian economy.
+ - You can make peace with an enemy, if the enemy abandons the idea of destroying you. That is the critical test. Democracies fail to understand that.
+ - Israel produces more conceptual products than any other country.
+ - I’ve been right more than I’ve been wrong.
+ - The instability in the region is not a result of Israel and the Palestinians. That was never the cause of this instability. Instead, the disfunctionality of many of these societies that have failed to modernize.
+ - We will respond with a heavy hand to the brutal murder of Jews who came to pray and were killed by lowly murderers.
+ - I’m very proud to be the prime minister of all of Israel’s citizens, Arabs and Jews alike.
+ - The right combination is between a free economy and social policy that addresses the needs of society and creates equal opportunity.
+ - I am certain that I speak on behalf of my entire nation when I say: September 11th we are all Americans – in grief, as in defiance.
+ - Israel can make peace with an organization that seeks its destruction. That’s Hamas. But Israel can make peace with the Palestinian Authority. It requires a lot of courage from both sides including President Mahmoud Abbas, the president of the Palestinian Authority.
+ - The Palestinians want a state, but they have to give peace in return. What they’re trying to do in the United Nations is to get a state without giving Israel peace or giving Israel peace and security. And I think that’s, that’s wrong. That should not succeed. That should, that should fail.
+ - American leaders worry about the security of their country. Israeli leaders worry about the survival of their country.
+ - I think the Israeli people understand now what I always say: that there cannot be a situation, under any agreement, in which we relinquish security control of the territory west of the River Jordan.
+ - Hamas is firing at our cities, at our people, firing from these areas, from these homes, from these schools, from mosques, from hospitals. They are actually using them as weapon storage, as command posts and as firing positions, or right next to them.
+ - You don’t have people chanting ‘Death to America’ in Israel.
+ - If diplomacy has any chance to work, it must be coupled with a credible military threat.
+ - I will say that I think Israel enjoys strong bipartisan support in the United States. It’s really above and beyond American politics.
+ - I don’t want to govern the Palestinians. I don’t want them as subjects of Israel or as citizens of Israel. I want them to have their own independent state but a demilitarized state.
+ - A legitimate democracy cannot act against a terror organization because it is using civilians as a human shield, and therefore it should absorb attacks on its own civilians.
+ - Well, this is an unfortunate part of the UN institution. It’s the – the theater of the absurd. It doesn’t only cast Israel as the villain; it often casts real villains in leading roles: Gadhafi’s Libya chaired the UN Commission on Human Rights; Saddam’s Iraq headed the UN Committee on Disarmament.
+ - I can tell you one thing, Iran is closer to developing nuclear weapons today than it was a week ago, or a month ago or a year ago. It’s just moving on with its efforts.
+ - I will go to the UN General Assembly and, in a clear voice, tell the nations of the world the truth about Iran’s terrorist regime, which constitutes the greatest threat to world peace.
+ - I’m not consumed with political machinations.
+ - Leaders must see reality as it is, not as it ought to be.
+ - While Israel is prepared to make generous compromises for peace, it cannot go back to the 1967 lines.
+ - Why are we talking about talking? Why negotiating about negotiating? It’s very simple. If you want to get to peace, put all your preconditions on the side, sit down opposite a table, not in a studio, by the way.
+ - We wanted peace and we wanted to come to terms with the Israelis.
+ - The Israeli government has proved over the past year its commitment to peace, both in words and deeds. By contrast, the Palestinians are posing preconditions for renewing the diplomatic process in a way they have not done over the course of 16 years.
+ - If the Palestinians do their part, we shall do our part and we shall have an agreement.
+ - Hezbollah-controlled Lebanon now presides over the UN Security Council. This means, in effect, that a terror organization presides over the body entrusted with guaranteeing the world’s security. You couldn’t make this thing up.
+ - I don’t think that anyone should doubt Israel’s determination to defend itself against terror and destruction.
+ - If we accept the notion that terrorists will have immunity because as they fire on civilians they hide behind civilians, then this tactic will be legitimized and the terrorists will have their greatest victory.
+ - But so far, you know who’s been violating the nuclear nonproliferation pact day and night? Those who signed it. Iran, Iraq, Libya and Iran violates it while calling for Israel’s destruction and racing to develop atomic weapons to that end.
+ - The Israelis wanted to sabotage the Palestinian – Palestinian reconciliation.
+ - Most of the approaches to peace between Israel and the Palestinians, have been directed at trying to resolve the most complex problems, like refugees and Jerusalem, which is akin to building the pyramid from the top down.
+ - If there is willingness on the Palestinian side to reach an agreement, it is possible. We are conducting the negotiations with goodwill.
+ - History of warfare has not yet enabled any army, any civilized army, the army of a democracy like Israel, to be able to deal with a ruthless terrorist enemy that uses civilians as a human shield without having some incidental civilian casualties.
+ - Certainly the international community is putting a lot of pressure on Iran and making clear that its nuclear program must stop. If it stops with the sanctions, the combinations of sanctions, diplomacy, other pressures, I, as the prime minister of Israel, will be the happiest person in the world.
+ - If the world powers are not prepared to insist that Iran change its behavior before a deal is signed, they should at the very least be prepared to insist that Iran changes its behavior before the deal expires.
+ - The rules of engagement have become so rigid that governments often straightjacket themselves in the face of unambiguous aggression.
+ - The enemy of your enemy is your enemy!
+ - No one yet knows what awaits the Jews in the twenty-first century, but we must make every effort to ensure that it is better than what befell them in the twentieth, the century of the Holocaust.
+ - I say that to my colleagues, by the way, in the internal Cabinet meetings, I say, ‘Look, I want to be very clear about what I want.’ I just – I don’t want a peace process, I want a peace result.
+ - Everything should be done to prevent Iran, the world’s most dangerous regime, from developing the world’s most dangerous weapons.
+ - I would say we want to stop the firing of rockets, for sure. But we also want to dismantle the terror – the tunnel – the terror tunnel networks that we have uncovered.
+ - Some will criticize me no matter what I do.
+ - There is a fundamental situation in which the country has reached rock bottom, that a mother can’t send her children out of the house in the morning. The country has reached rock bottom and this needs to be changed.
+ - The truth is that if Israel were to put down its arms there would be no more Israel. If the Arabs were to put down their arms there would be no more war.
+ - Every time an Arab leader truly wanted peace, they got it. If the Palestinians truly want peace, we will make peace.
+
+107 quotes

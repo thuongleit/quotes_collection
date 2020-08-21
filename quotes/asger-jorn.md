@@ -1,0 +1,31 @@
+ - Form and substance are one and the same. Form is the life expression and substance the living painting.
+ - In the beginning was the image.
+ - I act with full responsibility and after extensive reflection.
+ - We have defined art as the life form and aesthetic art as the life renewal: the stimulating, animating, agitating, inspiring, inspirational, fermenting, fascinating fanaticising, explosive and outrageous: the renewal of the unknown.
+ - A creative train of thought is set off by: the unexpected, the unknown, the accidental, the disorderly, the absurd, the impossible.
+ - To understand the magic way of thinking you have to know non-magic thinking. If you see that clearly, you will see how many magic thoughts are necessary elements even of natural science today.
+ - To break and be able to grow together again in a better way: that is the difficult art.
+ - Only my current situation has enabled me to accomplish the expensive task of demonstrating that the preferred sustenance of painting is painting.
+ - We like to learn all we need from earlier generations, but we have to find out for ourselves what we need; nobody else can do that for us.
+ - We are sparks that must glow as brightly as possible.
+ - The artist’s interest cannot be restricted to a single field; he must seek the highest perception of everything, of the whole and its details.
+ - This is what aesthetics, development and progress depend upon: that we go out on thin ice.
+ - During every really creative act, the artist finds himself homeless. To overcome this state he has to call up his last reserves of strength.
+ - The reverse process is extremely important to me – that artistic images can inspire to words and different myths, and that in certain cultures this process has been the normal relation between images and words.
+ - We are not talking about a new cognition in relation to abstract art, rather a new area of cognition...
+ - If you add something to a painting, never let it be for aesthetic reasons. Only let it be for reasons of expression.
+ - It is said that my art has some typically Nordic features: the curving lines, the convolutions, the magical masks and staring eyes that appear in myths and folk art. This may be. My interest in the dynamics of Jugend style probably also comes into it.
+ - The great work of art is the complete banality, and the fault with most banalities is that they are not banal enough. Banality here is not infinite in its depth and consequence, but rests on a foundation of spirituality and aesthetics.
+ - True realism lies in the search for the expression of forms faithful to their content. But there is no content detached from human interest.
+ - The significance of something lies in its presence here and now. I don’t care what it has been or what it will become. It is the experience of things that matters, the confrontation with things.
+ - We cannot inherit a fixed, unmoving view of life and of art from the past generation.
+ - To get anywhere, one must choose one’s mistakes. I chose experimental acts.
+ - Being an artist is being an isolated individual.
+ - You can often give a better description of the fight between people, the essentials of it, by means of fantastic animals, the simple, primitive, naked instincts, than by depicting a specific situation. It is not the human animal we should describe, but ourselves as human animals.
+ - The act of expressing oneself is a physical one. It materializes the thought.
+ - The artistic formulae wear thin quickly and yet daily the artist – when developing his own foundation – must enter his own time and the problems of other contemporary artists. Paths cross and the soil of time is starting to be turned.
+ - The goal changes from the general to the individual from need to wish, from ethics to aesthetics.
+ - Anything really new is repulsive, because it is abnormal and unreasonable.
+ - To make the material speak to man in the name of man, this is the aim and reality of art.
+
+29 quotes

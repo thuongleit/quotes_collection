@@ -1,0 +1,31 @@
+ - Productivity is less about what you do with your time. And more about how you run your mind. ~~Robin S. Sharma
+ - Activity leads to productivity. ~~Jim Rohn
+ - I cannot make my days longer so I strive to make them better. ~~Paul Theroux
+ - Improve quality, you automatically improve productivity. ~~W. Edwards Deming
+ - Efficiency, which is doing things right, is irrelevant until you work on the right things. ~~Peter F. Drucker
+ - If you don’t have daily objectives, you qualify as a dreamer. ~~Zig Ziglar
+ - The most effective way to improve productivity is to eliminate work. ~~William E. Conway, Jr.
+ - Happiness inspires productivity. ~~Shawn Achor
+ - Never confuse activity with productivity. ~~Rick Warren
+ - Creativity produces productivity. ~~Mike Vance
+ - The checklist is one of the most high powered productivity tool ever discovered. ~~Brian Tracy
+ - Knowledge applied is productivity. ~~Peter F. Drucker
+ - Consider everything an experiment. ~~Corita Kent
+ - Stop measuring days by degree of productivity and start experiencing them by degree of presence. ~~Alan Watts
+ - You can fool everyone else, but you can’t fool your own mind. ~~David Allen
+ - To be disciplined is to follow in a good way. To be self disciplined is to follow in a better way. ~~Corita Kent
+ - Why do anything unless it is going to be great? ~~Peter Block
+ - The sofa is the enemy of productivity. ~~Demetri Martin
+ - Profitability comes from loyalty, productivity, and having a character base from which to work. ~~Zig Ziglar
+ - Productivity is notoriously difficult to predict. ~~Alan Greenspan
+ - The key to productivity is to rotate your avoidance techniques. ~~Shannon Wheeler
+ - Presence is far more intricate and rewarding an art than productivity. ~~Maria Popova
+ - The more you eliminate the inefficient use of information, the better it is for productivity. ~~Mitchell Kapor
+ - Paying good wages is not in opposition to good productivity. ~~James Sinegal
+ - It’s been proven that of all the interventions to reduce poverty, improving agricultural productivity is the best. ~~Bill Gates
+ - Nowadays, business is all about productivity – and our folks produce. ~~John Hoeven
+ - Enough work to do, and strength enough to do the work. ~~Rudyard Kipling
+ - Government can and must provide opportunity, not smother it; foster productivity; not stifle it. ~~Ronald Reagan
+ - In the decade ahead I can predict that we will provide over twice the productivity improvement that we provided in the ’90s. ~~Bill Gates
+
+29 quotes

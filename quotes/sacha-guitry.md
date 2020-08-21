@@ -1,0 +1,24 @@
+ - I would gladly admit women are superior to men if only they would stop trying to be the same as us.
+ - Being a Parisian is not about being born in Paris, it is about being reborn there.
+ - One says that money doesn’t buy happiness. Without a doubt, one was speaking of the money of others.
+ - When a man steals your wife, there is no better revenge than to let him keep her.
+ - Why is it better to love than be loved? It is surer.
+ - Look after your wife; never mind yourself – she’ll look after you.
+ - Two things make the women unforgettable, their tears and their perfume.
+ - The best way to turn a woman’s head is to tell her she has a beautiful profile.
+ - The secret of a good marriage is forgiving your partner for marrying you in the first place.
+ - I am in favor of preserving the French habit of kissing the hands of ladies. After all one must start somewhere.
+ - If a playwright is funny, the English look for a serious message, and if he’s serious, they look for a joke.
+ - What probably distorts everything in life is that one is convinced that one is speaking the truth because one says what one thinks.
+ - There are women whose infidelities are the only link they still have with their husbands.
+ - An ideal wife is one who remains faithful to you but tries to be just as charming as if she weren’t.
+ - If the birth of a genius resembles that of an idiot, the end of a Havana Corona resembles that of a 5-cent cigar.
+ - The others were only my wives. But you, my dear, will be my widow.
+ - Our wisdom comes from our experience, and our experience comes from our foolishness.
+ - I have my ignorance to thank for the few things I know.
+ - Faults of ignorance are excusable only where the ignorance itself is so.
+ - Even the most respectable woman has a complete set of clothes in her wardrobe ready for a possible abduction.
+ - A man must marry only a very pretty woman in case he should ever want some other man to take her off his hands.
+ - You can pretend to be serious; you can’t pretend to be witty.
+
+22 quotes

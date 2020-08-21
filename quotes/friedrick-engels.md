@@ -1,0 +1,48 @@
+ - An ounce of action is worth a ton of theory.
+ - Freedom is the recognition of necessity.
+ - No nation can be free if it oppresses other nations.
+ - And what is impossible to science?
+ - Look at the Paris Commune. That was the Dictatorship of the Proletariat.
+ - Terror consists mostly of useless cruelties perpetrated by frightened people in order to reassure themselves.
+ - Only sound common sense, respectable fellow that he is, in the homely realm of his own four walls, has very wonderful adventures directly he ventures out into the wide world of research.
+ - Ideas often kindle each other, like electrical sparks.
+ - From the first day to this, sheer greed was the driving spirit of civilization.
+ - Don’t forget any affront done to you and to all our people, the time of revenge will come and must be put to good use.
+ - Three hundred years after its appearance Christianity was the recognized state religion in the Roman World Empire, and in barely sixty years socialism has won itself a position which makes its victory absolutely certain.
+ - We find two great gangs of political speculators, who alternately take possession of the state power and exploit it by the most corrupt ends – the nation is powerless against these two great cartels of politicians who are ostensibly its servants, but in reality dominate and plunder it.
+ - All history has been a history of class struggles between dominated classes at various stages of social development.
+ - How do you think the transition from the present situation to community of Property is to be effected? The first, fundamental condition for the introduction of community of property is the political liberation of the proletariat through a democratic constitution.
+ - The free development of each is the condition for the free development of all.
+ - Freedom does not consist in any dreamt-of independence from natural laws, but in the knowledge of these laws, and in the possibility this gives of systematically making them work towards definite ends.
+ - By bourgeoisie is meant the class of modern capitalists, owners of the means of social production and employers of wage labor. By proletariat, the class of modern wage laborers who, having no means of production of their own, are reduced to selling their labor power in order to live.
+ - What each individual wills is obstructed by everyone else, and what emerges is something that no one willed.
+ - Without analysis, no synthesis.
+ - In science, each new point of view calls forth a revolution in nomenclature.
+ - Everything must justify its existence before the judgment seat of Reason, or give up existence.
+ - The proletarians, driven to despair, will seize the torch which Stephens has preached to them; the vengeance of the people will come down with a wrath of which the rage of 1795 gives no true idea. The war of the poor against the rich will be the bloodiest ever waged.
+ - Life is the mode of action of proteins.
+ - Bare-faced covetousness was the moving spirit of civilization from its first dawn to the present day; wealth, and again wealth, and for the third time wealth; wealth, not of society, but of the puny individual, was its only and final aim.
+ - If there were no Frenchwomen, life wouldn’t be worth living.
+ - The way in which the vast mass of the poor are treated by modern society is truly scandalous. They are herded into great cities where they breathe a fouler air than in the countryside which they have left.
+ - Firstly, the farmers, the most stupid set of people in existence, who, clinging to feudal prejudices, burst forth in masses, ready to die rather than cease to obey those whom they, their fathers and grandfathers, had called their masters; and submitted to be trampled on and horse-whipped by.
+ - Hegel was the first to state correctly the relation between freedom and necessity. To him, freedom is the insight into necessity.
+ - In a political struggle of class against class, organization of trade unions is the most important weapon.
+ - Some laws of state aimed at curbing crime are even more criminal.
+ - The society that will organize production on the basis of a free and equal association of the producers will put the whole machinery of the state where it will then belong: into the museum of antiquities, by the side of the spinning wheel and the bronze axe.
+ - Just as Marx used to say about the French Marxists of the late ’seventies: All I know is that I am not a Marxist.
+ - If in all ideology men and their circumstances appear upside-down as in a camera obscura, this phenomenon arises just as much from their historical life-process as the inversion of objects on the retina does from the physical life-process.
+ - All that is real in human history becomes irrational in the process of time.
+ - The slave frees himself when, of all the relations of private property, he abolishes only the relation of slavery and thereby becomes a proletarian; the proletarian can free himself only by abolishing private property in general.
+ - One day we shall certainly ‘reduce’ thought experimentally to molecular and chemical motions in the brain; but does that exhaust the essence of thought?
+ - It is no longer a question anywhere of inventing interconnections from out of our brains, but of discovering them in the facts.
+ - Political economy came into being as a natural result of the expansion of trade, and with its appearance elementary, unscientific huckstering was replaced by a developed system of licensed fraud, an entire science of enrichment.
+ - It is a curious fact that with every great revolutionary movement the question of ‘free love’ comes into the foreground.
+ - The state is not abolished, it withers away.
+ - The emancipation of woman will only be possible when woman can take part in production on a large, social scale, and domestic work no longer claims anything but an insignificant amount of her time.
+ - It would appear that the natural frontier of Russia runs from Dantzic or perhaps Stettin to Trieste.
+ - The state is nothing but an instrument of opression of one class by another – no less so in a democratic republic than in a monarchy.
+ - The proletariat uses the State not in the interests of freedom but in order to hold down its adversaries, and as soon as it becomes possible to speak of freedom the State as such ceases to exist.
+ - In 10 years, this sleepy Canada will be ripe for annexation – the farmers in Manitoba, etc., will demand it themselves. Besides, the country is half annexed already socially – hotels, newspapers, advertising, etc., all on the American pattern.
+ - The British Labour movement is today, and for many years has been, working in a narrow circle of strikes that are looked upon, not as an expedient, and not as a means of propaganda, but as an ultimate aim.
+
+46 quotes

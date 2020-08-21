@@ -1,0 +1,44 @@
+ - Your perspective is always limited by how much you know. Expand your knowledge and you will transform your mind.
+ - The moment you change your perception is the moment you rewrite the chemistry of your body.
+ - What quantum physics teaches us is that everything we thought was physical is not physical.
+ - Beliefs and thoughts alter cells in your body.
+ - I am the master of my genes, not the victim of them.
+ - Our problems are not with the data, itself, but arise from our interpretation of the data.
+ - When we truly recognize that our beliefs are that powerful-we hold the key to freedom.
+ - We are conscious co-creators in the evolution of life. We have free will. And we have choices. Consequently our success is based on our choices, which are, in turn, totally dependent on our awareness.
+ - Your children’s genes reflect only their potential, not their destiny. It is up to you to provide the environment that allows them to develop to their highest potential.
+ - Life has everything in it. But you only see what your perception allow you to see.
+ - Human beings are not meant to live alone. There is a fundamental biological imperative that propels you and every organism on this planet to be in a community, to be in relationship with other organisms.
+ - Nature is based on harmony. So it says if we want to survive and become more like nature, then we actually have to understand that it’s cooperation versus competition.
+ - The new physics provides a modern version of ancient spirituality. In a universe made out of energy, everything is entangled; everything is one.
+ - You may consider yourself an individual, but as a cell biologist, I can tell you that you are in truth a cooperative community of approximately fifty trillion single-celled citizens.
+ - Our thoughts are mainly controlled by our subconscious, which is largely formed before the age of 6, and you cannot change the subconscious mind by just thinking about it.
+ - As soon as you start to tell yourself in your perception that you can’t do something anymore, then your biological system will adjust to prove you right. You will not do what you think you can’t do.
+ - We are today beginning to see work by very reputable scientists that says the universe is created by our observations. It is not a coincidence; we are actively involved in physically shaping the world that we experience.
+ - Your own beliefs are selecting your genes, and if you don’t have the right genes to handle the stress that your in, your belief will rewrite your genes in an effort to do so.
+ - People need to realize that their thoughts are more primary than their genes, because the environment, which is influenced by our thoughts, controls the genes.
+ - The ‘secret of life’ is BELIEF. Rather than genes, it is our beliefs that control our lives. PSYCH-K is a set of simple, self-empowering techniques to change your beliefs and perceptions that impact your life at a cellular level.
+ - We are living in a world that is in the late stage of a Caterpillar. It is very important to let go of the old and start to gravitate to the new because we are leaving behind a world that is no longer sustainable and moving into a world in which we can thrive.
+ - A miraculous healing awaits this planet once we accept our new responsibility to collectively tend the Garden, rather than fight over the turf.
+ - Most illness is just stress from not living in harmony.
+ - Deism is the belief that nature and God are one and the same thing. If you study nature, you’re getting insights about God.
+ - In reality, a cell is a biological mini-me compared to the human body. A cell has every biological system that you have.
+ - Drugging out symptoms does not solve the problem, it helps us ignore it – until the vehicle breaks down.
+ - The Universe is one indivisible, dynamic whole in which energy and matter are so deeply entangled it is impossible to consider them as independent elements.
+ - I learned again and again in my life, until you get your own act together, you’re not ready for Big Love. What you’re ready for is one of those codependent relationships where you desperately need a partner.
+ - Through consciousness, our minds have the power to change our planet and ourselves. It is time we heed the wisdom of the ancient indigenous people and channel our consciousness and spirit to tend the garden and not destroy it.
+ - Just like a single cell, the character of our lives is determined not by our genes but by our responses to the environmental signals that.
+ - To fully thrive, we must not only eliminate the stressors but also actively seek joyful, loving, fulfilling lives that stimulate growth processes.
+ - The planet’s hope and salvation lies in the adoption of revolutionary new knowledge being revealed at the frontiers of science.
+ - If humans were to model the lifestyle displayed by healthy community of cells, our societies and our planet would be more peaceful and vital.
+ - The human being is a skin-covered petrie dish.
+ - We can control our lives by controling our perceptions.
+ - E-Motion will have a very positive impact on the evolution of human consciousness.
+ - One of the first papers I wrote at the University of Wisconsin, in 1977, was on stem cells. I realized that if I changed the environment that these cells were in, I could turn the cells into bone, and if I changed the environment a bit more, they would form fat cells.
+ - You are personally responsible for everything in your life, once you become aware that you are personally responsible for everything in your life.
+ - Only when Spirit and Science are reunited will we be afforded the means to a better world.
+ - I watch Jon Stewart because I need to laugh. Otherwise, life gets too serious. Besides that, I don’t watch any news.
+ - It is far easier to be entertained by a reality TV than to participate in our own reality.
+ - Modern science is predicated on ‘truths’ verified through accurate observation and measurements of physical world phenomena.
+
+42 quotes

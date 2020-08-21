@@ -1,0 +1,50 @@
+ - To be a friend of the earth, you have to be an enemy of man.
+ - But then, that’s the beauty of writing stories-each one is an exploratory journey in search of a reason and a shape. And when you find that reason and that shape, there’s no feeling like it.
+ - The hardest part is always the middle of anything because at that point, on some unconscious level, you have to figure out what it’s about and why you’re doing it and what it means. You don’t know that in the beginning.
+ - The reason we love nature is because it’s fascinating and we love all the creatures, but if you watch any nature film, there’s always a lesson: “the creatures are all dying and life sucks.” The same is true of literature.
+ - Alcohol had a lot to do with it, too, and mental instability. All writers are narcissistic, manic-depressive drug addicts and alcoholics, and I am no exception.
+ - I’m sad that there no more mysterious places in the world.
+ - Some writers just write about their own lives. Well, I don’t want to do that. I want to have a really boring life. A quiet, boring life so no one wants to write a biography. I’m the only writer in history only to have one wife, for instance.
+ - If you focus on literature through only one small element of it, like the more scientific element of linguistics, then where is the joy that brought us literature in the first place, which is to have a story?
+ - First you have nothing, and then, astonishingly, after ripping out your brain and your heart and betraying your friends and ex-lovers and dreaming like a zombie over the page till you can’t see or hear or smell or taste, you have something.
+ - Pleasure, I remind myself, is inseparable from its lawfully wedded mate, pain.
+ - The professorial dictum has always been to write what you know, but I say write what you don’t know and find something out. And it works.
+ - Work ethic and this determination is all part of escaping the depressive side. Of course I’m manic depressive, maybe not to the degree that Exley was, but I think all writers are. There are highs and lows. Look at David Foster Wallace.
+ - Everything we do is escapism, because we’ll all be dead and everything we do is completely meaningless. Why brush your teeth? Why not be in the park with the bums passing a short dog? Why pay taxes, why get educated? Of course literature is an escape. You have to fill the hours.
+ - I’ve been in perfect health and perfectly happy all my life. I don’t take any pills; I just get up, clean up after my wife, and start typing every day.
+ - Especially students. I love to turn them on to a story. Some of them have to go see me as an assignment, like kids from the schools in New York will go to the Y. I want them to know why I love this and why they should too.
+ - I always dread the process of writing because I’m not a writer. I’m an audible guy, I’m a verbal guy. I love to talk. I write a book every couple years, but it just takes everything out of me to get a book out.
+ - There are always surprises. Life may be inveterately grim and the surprises disproportionately unpleasant, but it would be hardly worth living if there were no exceptions, no sunny days, no acts of random kindness.
+ - I’m always trying to do something different and trying to keep myself amused.
+ - Writing is a channeling of an individual experience; so is reading. That’s what’s so exciting about this art form – it’s interactive.
+ - The very genetic determinism I posited in World’s End as a way of shaking off my inherited demons is being proven in fact as we map out the human genome.
+ - I love satire. Evelyn Waugh is one of my favorite writers of all time. He’s hilarious. He’s so wicked. He’s so great. On the other hand, pure satire is an imitation. It doesn’t really have any heart. It only holds things up to ridicule.
+ - Work saved me. Literature saved me. It sounds corny but it’s absolutely true. I was going in the wrong direction, but after the 9,000th night at the bar doing dope with a bunch of Dead Heads, I began to think there was something more.
+ - If I’m doing my job correctly, I’m presenting a scenario for you as the reader to engage with on your own. I mean that’s what the best art is supposed to do.
+ - Sometimes, when she’s out here alone, she can feel the pulse of something bigger, as if all things animate were beating in unison, a glory and a connection that sweeps her out of herself, out of her consciousness, so that nothing has a name, not in Latin, not in English, not in any known language.
+ - I was joking earlier when I said that all writers are manic depressives, but it’s a joke with a lot of truth behind it. For fiction writers and poets, too, there’s something wrong with you and you do this art as a way of correcting it or addressing it in some way.
+ - You don’t write the kitchen scene just because you’re eager to do it that day and you’re avoiding something else. I think it has to move slowly, step by step. I pride myself on the construction of my stories but it’s not something I impose on them.
+ - Basically for me a story can be anything. Anything you tell me, anything I read in the newspaper, in any mode. I don’t have any restrictions.
+ - There’s a kind of mystery to our being and from my point of view, regarding my own parents and their parents, I’d as soon let it lie than find out who my mother’s father was.
+ - At best, I consider flying an unavoidable necessity, a time to resurrect forgotten prayers and contemplate the end of all joy in a twisted howling heap of machinery; at worst, I rank it right up there with psychotic episodes and torture at the hands of malevolent strangers.
+ - Nothing moves around, it just goes straight from the start to the end. The final draft on the final day, that’s it, same for the novels. What I turn in is what you see. There are some exceptions, but almost always I can see exactly what it’s going to be.
+ - I always listen to music while I’m working and I always read aloud to my wife. I love to read aloud to an audience because there’s a cadence and a beat. There’s a music to the language that’s very important to me.
+ - All writers are egomaniacal, manic-depressive, drug-addicted alcoholics. You want to have that fix again.
+ - Criticism can be wonderful, especially in making connections in an interpretive way. But by applying theories randomly, it’s an interesting exercise, but I don’t think it illuminates the literature.
+ - I’ve had many students over the years, sometimes even very sophisticated students, who will be writing and will hit a wall. Often I find it’s because they’re working out of sequence. Maybe some people can do that, but I don’t think that’s how fiction works. It’s a discovery.
+ - We are animals and we are made in this way and this is how we behave. I’m just kind of fascinated by how we can deny that we are animals and what our impact on the other animals is like, and how quixotic we can be in trying to assess what we’ve done in trying to correct it.
+ - I’d read somewhere that nine out of ten adults in Alaska had a drinking problem. I could believe it. Snow, ice, sleet, wind, the dark night of the soul: what else were you supposed to do?
+ - I think if you read all my books you know where I stand, pretty much. You could probably give the reader a questionnaire and they could figure out what I’m about. But I don’t think my job is to tell you that.
+ - One of the problems I have with many writers is their stories are all somewhat similar. They might be very good, but they’re always on the same turf. I don’t have those limitations.
+ - I’m pretty hardcore. I stick exactly to what I’m doing. So I write a novel in one period, and then I’ll write stories in another period. I only work on one thing at once, because I’m afraid that I wouldn’t finish what I’d started.
+ - I’ve always been a huge fan of theatre and performance. The idea of just the human voice and just this night. Live music is the same. They’re doing it for you right now. It’s an amazing thing. And if you perform a story properly, it can be a transporting, too.
+ - A glad zest and hopefulness might be inspired even in the most jaded and ennui-cursed, were there in our homes such simple, truthful natures as that of my heroine, and it is in the sphere of quiet homes-not elsewhere-I believe that a woman can best rule and save the world.
+ - I go around with my books so much and I love to perform on stage, to remind everybody that the lights are off, the phones are off, and for this hour, it’s going to be like your mother reading to you. We’re going to remember why we love stories. I think that gets lost in over-intellectualizing.
+ - A richly detailed, poignant, and utterly fascinating look into another culture and how it is cross-pollinated by our own. It brings to mind the work of Ha Jin in its power and revelation of the new.
+ - I’m just having fun making jokes and writing books. But you see me once a year, I come on when I have a new book out, but basically, I’ve got my nose to the grindstone and I’m doing what I’m supposed to do in life, which is make stories.
+ - What I’m doing is exploring things. This is why I’m a fiction writer rather than an essayist or a politician or whatever. I just gather material and find a scenario, and see where it takes me. I don’t have a plan.
+ - You’re not getting the joy out of literature that it gave you. This is the danger of what we do. Look at Hemingway and so many others. You devote your life to one thing, that is what you are. It’s artificial but it’s all you have. If you lose it, then you’re nothing and there’s no point in going on.
+ - I’m extremely worried. I’m worried about the survival of our species, worried about what we’re doing, worried about being Americans, worried about depletion of resources. On the other hand, we are trying. We are trying to understand our impact on the environment.
+ - I like to joke that you usually write more books before death than after death, so that’s why I’m doing it. But really, I remain engaged with ideas. There are so many things happening that turn me on and I just want to examine them.
+
+48 quotes

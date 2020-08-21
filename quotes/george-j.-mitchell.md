@@ -1,0 +1,23 @@
+ - I really owe everything to my parents and their devotion and drive to see to it that their children had the education which led to the opportunities that they never were able to have.
+ - My mother was an immigrant from Lebanon to the United States. She came when she was 18 years old in 1920.
+ - I got a job with a law firm in Portland after a couple of years with Senator Muskie. But by then, my interest in politics had been sparked, through meeting Senator Muskie, through seeing what he did.
+ - So my father grew up in an orphanage in Boston. He was then adopted by an elderly childless couple from Maine, who gave him the name of Mitchell. He moved to Maine, and there he met my mother and was married.
+ - I believe there’s no such thing as a conflict that can’t be ended. They’re created and sustained by human beings. They can be ended by human beings. No matter how ancient the conflict, no matter how hateful, no matter how hurtful, peace can prevail.
+ - From my parents, I learned a very strong work ethic, and all of my brothers and sisters all worked from the earliest days of life right through to the present time.
+ - I had a great interest in sports. I had three older brothers who were great athletes. I was not.
+ - First, the American legislative process isn’t well suited to large and complex measures.
+ - My parents were very poor, but we never felt any sense of need or want. It was a very close, loving, tightly-knit family growing up, and I never felt any sense of deprivation or anything like that.
+ - My father was the orphaned son of immigrants to the United States from Ireland. My father never knew his parents. His mother died – we’re not sure – either at or shortly after his birth, and he and all of his siblings were placed in orphanages in the Boston area.
+ - So I developed very early a massive inferiority complex, and I’ve told the story often about how that inspired me later in life to get involved in other things, because I couldn’t out-do my brothers in sports, and it’s a very competitive relationship.
+ - In every society in human history, including the United States, those in power seek to imbue themselves with the attributes of religion and patriotism as a way of getting greater support for their policy and insulating themselves from any criticism.
+ - Our firm view is that the president has no legal authority, none whatsoever, to commit American troops to war in the Persian Gulf or anywhere else without congressional authorization.
+ - I’m glad I made the decision, although the practice of law – and particularly serving as a federal judge – was a part of my life that I really enjoyed and treasured and look back on it with fondness.
+ - In the spring of 1994 I decided not to seek reelection to the Senate. I had made the decision 12 years earlier, Christmas Day of 1982, just after I had been first elected to a full term, that I would do the best I could for a limited time.
+ - I was the United States Attorney for Maine for three years, and then was appointed a federal judge.
+ - I spent two years in the Army. And my older brother, who was also a great positive influence on me, encouraged me to think about law school, and I said – well, I didn’t have any money.
+ - I didn’t want to make it a lifetime thing. I don’t believe in statutory term limits, but people can limit themselves if they want to, and that’s what I decided to do.
+ - When I went to college, my goal was to be a college history teacher. I majored in history.
+ - And I spent that time working as an insurance adjuster and going to law school in the evening, and then when I left law school, I joined the Department of Justice in Washington.
+ - As they say, one thing led to another, and, ultimately, the British and Irish governments asked me to serve as chairman of the peace negotiations, which ironically began six years ago this week.
+
+21 quotes

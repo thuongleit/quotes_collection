@@ -1,0 +1,37 @@
+ - A small step in a good direction.
+ - Marriage takes your whole heart; selfish people can’t pull it off.
+ - I think I’m a weird combination of deeply introverted and very daring. I can feel both those things working.
+ - You either have a baby, want a baby, or don’t want a baby, but you don’t nothing a baby if you’re in your 30s or 40s.
+ - If there’s a message, it’s that the unlovable and unattractive parts of ourselves should be embraced. The only real currency between people is what happens when they’re not cool. And I hope people feel OK about not being cool.
+ - I know you’re always supposed to want more of everything. But in truth, I’m having a nice ebb and flow of being in my daughter’s life every day and getting to keep my work life alive. I’m not nominated for ten thousand everythings every minute, but I am acting and telling stories I love.
+ - It’s getting too late in my life to care about the small things. It’s getting too late to not be brave, to not live my life fully, to not try to be an artist. Trivial things like how nice your hotel room is, or if you have to be naked for a while, they fade away.
+ - Oh, write of me, not Died in bitter pains, but Emigrated to another star!
+ - The lands are lit with all the autumn blaze of golden-rod, and everywhere the purple asters nod and bend and wave and flit.
+ - I do eat well. I try to love my body. That is what I tell my daughter. I say, ‘Love every bite of food. Love your body. We’re all going to be dead soon.’ Actually I don’t say that last thing to her.
+ - Movie acting is a great job for your twenties: You travel all over, you have affairs with people, and you throw yourself into one part and then another. It gets more challenging as you get older, and it’s not just having a daughter, it’s wanting to have your own life and be yourself.
+ - The best movies have one sentence that they’re exploring, a thesis, something that people can argue about over dinner afterward.
+ - O suns and skies and clouds of June, and flowers of June together. Ye cannot rival for one hour October’s bright blue weather.
+ - I think that all of us are 5-year-olds and we don’t want to be embarrassed in the schoolyard. I’ve gone through things in my life. People say it must be so hard to do it in the public eye, but the truth is, when you go through hard things, it’s just hard.
+ - I loved Julia Louis-Dreyfus’s show ‘The New Adventures of Old Christine.’ That made me laugh out loud. She’s like Lucille Ball. She’s brilliant.
+ - I’ve always had to force myself to make friends and speak to people. My parents were quiet, and it took me a while to get used to the fact that people talk about their feelings, their problems.
+ - Now and then one sees a face which has kept its smile pure and undefiled. It is a woman’s face usually; often a face which has trace of great sorrow all over it, till the smile breaks. Such a smile transfigures: such a smile, if the artful but knew it, is the greatest weapon a face can have.
+ - The tongue is more easily controlled than the features of the face; and though the heart may be secret, the face is transparent.
+ - The Oscar sits on some shelf above my desk. If there was an earthquake, I could actually be killed by my own Academy Award.
+ - We can live a life full and complete, thinking with our heads but living from our hearts.
+ - I haven’t watched anything I’ve been in since I’ve done it. I have never put in a movie at home that I’ve been in. Why? I don’t know. I would feel like Norma Desmond. And I have a kid, so time is at a premium.
+ - Art is a place where you can be wild. Kids-all of us-need that.
+ - We all feel disabled in some way. We all feel imperfect. It’s hard to be looked at for various reasons.
+ - As soon as I began, it seemed impossible to write fast enough – I wrote faster than I would write a letter – two thousand to three thousand words in a morning, and I cannot help it.
+ - I usually don’t read things written about me and I certainly don’t read things if they are inappropriate.
+ - All nights are sacred nights to make confession and resolve and prayer; all days are sacred days to wake new gladness in the sunny air.
+ - I actually have a life I said I wanted to have. I wanted to tell stories I want and be with my family. I’m whispering it, because I’m a quarter Jewish and afraid it’s all going to be taken away.
+ - I think I have more of a director’s brain than an actor’s brain, in a way.
+ - But the truth is I wanted to have my daughter for so long. It’s not the kind of thing you can visit, motherhood. Especially in the early years. Now she’s eight, and I’m still not going to go anywhere.
+ - I know for me the subject of how to be in a relationship is precious and complicated and challenging.
+ - You have five seconds to enjoy it and then you remember who you didn’t thank.
+ - Pity and friendship seek different habitations.
+ - I worked before I had my daughter, enough for three actresses.
+ - I think that all of us are 5-year-olds and we don’t want to be embarrassed in the schoolyard.
+ - Words are less needful to sorrow than to joy.
+
+35 quotes

@@ -1,0 +1,22 @@
+ - Faith changes hope into reality.
+ - Our confession will either imprison us or set us free. Our confession is the result of our believing, and our believing is the result of our right or wrong thinking.
+ - Believe it in your heart; say it with your mouth. That is the principle of faith. You can have what you say.
+ - Jesus, in His earth walk, was the will of God in action. If you want to know what God thinks about sickness – look at Jesus! He went about healing the sick!
+ - Central Truth: Prayer is successful only when it is based on the promises in God’s Word!
+ - Success is always the result of following the leading of the Holy Spirit.
+ - Stay put in the hard places, and you’ll eventually rest upon the mountaintop.
+ - God is glorified through healing and deliverance, not through sickness and suffering.
+ - Thinking faith thoughts, and speaking faith words, will lead the heart out of defeat and into victory.
+ - Feeling is the voice of the body; reasoning is the voice of the mind; conscience is the voice of the spirit.
+ - If what you hear preached doesn’t cause faith to come and build faith in your spirit, then it either isn’t the Word of God or else you’re not hearing it.
+ - Praying in tongues charges your spirit like a battery charger charges a battery.
+ - How little wives may realize that a biting, stinging word in the morning will rob a husband of efficiency the whole day long. But a loving, tender, beautiful word – a little prayer word – will fill him with music and will lead him into victory.
+ - Believer’s should never deal with doubts and fears because they are the devil’s narcotics.
+ - Yes, sin, sickness and disease, spiritual death, poverty and everything else that’s of the devil once ruled us. But now, bless God, we rule them – for this is the Day of Dominion!
+ - The Bible, from Genesis to Revelation, is God’s “I Will” to every seeker for full salvation of spirit, soul and body.
+ - When God moves, everybody will be blessed. If something is of the flesh, everybody will have a sick feeling. And if something is of the devil, it seems like the hair will stand up on your neck. That’s a simple way everyone can judge, whether they’ve got any spiritual discernment or not.
+ - Thoughts may come and persist in staying. But thoughts that are not put into word or action die unborn!
+ - Do not have any anxiety about anything.
+ - God wants us to prosper. Our need, however, is to evaluate things as they should be evaluated – to esteem earthly things lightly – to put first things first.
+
+20 quotes

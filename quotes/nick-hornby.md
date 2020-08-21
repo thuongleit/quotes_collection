@@ -1,0 +1,142 @@
+ - Everyone knows how to talk, and no one knows what to say.
+ - Sentimental music has this great way of taking you back somewhere at the same time that it takes you forward, so you feel nostagic and hopeful all at the same time.
+ - Hard is trying to rebuild yourself, piece by piece, with no instruction book, and no clue as to where all the important bits are supposed to go.
+ - Sarcasm and compassion are two of the qualities that make life on Earth tolerable.
+ - No man is an island...
+ - I'm very good at the past. It's the present I can't understand.
+ - The plain state of being human is dramatic enough for anyone; you don't need to be a heroin addict or a performance poet to experience extremity. You just have to love someone.
+ - What went wrong? Nothing and everything.
+ - It's no good pretending that any relationship has a future if your record collections disagree violently or if your favorite films wouldn't even speak to each other if they met at a party.
+ - I’m a good person. In most ways. But I’m beginning to think that being a good person in most ways doesn’t count for anything very much, if you’re a bad person in one way.
+ - Even bad times have good things in them to make you feel alive.
+ - I lost the plot for a while then. And I lost the subplot, the script, the soundtrack, the intermission, my popcorn, the credits, and the exit sign.
+ - It’s brilliant, being depressed; you can behave as badly as you like.
+ - I fell in love with football as I was later to fall in love with women: suddenly, inexplicably, uncritically, giving no thought to the pain or disruption it would bring with it.
+ - So now what? What happens when words fail us?
+ - You know that things aren’t going well for you when you can’t even tell people the simplest fact about your life, just because they’ll presume you’re asking them to feel sorry for you.
+ - You’ll remember someone who broke your heart, and you’ll think to yourself, ‘Oh yes, I remember how that feels.’ But you can’t.
+ - When you get older, it feels like happy memories and sad memories are pretty much the same thing. It is all just emotion in the end. And any of it can make you weep.
+ - Record stores can’t save your life. But they can give you a better one.
+ - What came first – the music or the misery? Did I listen to the music because I was miserable? Or was I miserable because I listened to the music? Do all those records turn you into a melancholy person?
+ - It’s a mystery of human chemistry and I don’t understand it, some people, as far as their senses are concerned, just feel like home.
+ - The truth will set you free. Either that or it’ll get you a punch in the nose.
+ - You have to work at relationships. You can’t just walk out on them every time something goes wrong.
+ - You don’t ask people with knives in their stomachs what would make them happy; happiness is no longer the point. It’s all about survival; it’s all about whether you pull the knife out and bleed to death or keep it in...
+ - He’s at the chocolate teapot end of the competency scale.
+ - You had to live in your own bubble. You couldn’t force your way into someone else’s, because then it wouldn’t be a bubble any more.
+ - Everything’s complicated, even those things that seem flat in their bleakness or sadness.
+ - One thing about great art: it made you love people more, forgive them their petty transgressions. It worked in the way that religion was supposed to, if you thought about it.
+ - Radio football is football reduced to its lowest common denominator.
+ - The natural state of the football fan is bitter disappointment, no matter what the score.
+ - Complaining about boring football is a little like complaining about the sad ending of King Lear: it misses the point somehow.
+ - Life isn’t, and has never been, a 2-0 home victory after a fish and chip lunch.
+ - I suddenly had a little epiphany: all the books we own, both read and unread, are the fullest expression of self we have at our disposal.
+ - Self-pity is an ignoble emotion, but we all feel it, and the orthodox critical line that it represents some kind of artistic flaw is dubious, a form of emotional correctness.
+ - For alarmingly large chunks of an average day, I am a moron.
+ - You wouldn’t believe that so much could change just because a relationship ended.
+ - I couldn’t bear to think about the proper future, so I just tried to make things better for the next twenty minutes or so, over and over again.
+ - We are never allowed to forget that some books are badly written; we should remember that sometimes they’re badly read, too.
+ - That’s why; he’s worried about how his life is turning out, and he’s lonely, and lonely people are the bitterest of them all.
+ - The truth about life was that nothing ever ended until you died, and even then you just left a whole bunch of unresolved narratives behind you.
+ - Yes, yes, I know all the jokes. What else could I have expected at Highbury? But I went to Chelsea and to Tottenham and to Rangers, and saw the same thing: that the natural state of a football fan is bitter disappointment, no matter what the score.
+ - Love, it turns out, is as undemocratic as money, so it accumulates around people who have plenty of it already: the sane, the healthy, the lovable.
+ - It was hopeless, life, really. It was set up all wrong.
+ - When your sad – like really sad – you only want to be with other people who are sad.
+ - I’m not telling you that suicidal people aren’t so far away from people who can get by; I’m telling you that people who can get by aren’t so far away from being suicidal.
+ - I can see that now. I can see everything once it’s already happened – I’m very good at the past. It’s the present I can’t understand.
+ - On New Year’s Eve he ould make a resolution to recover some his previous scepticism, but until then he would do as the Romans do, and smile at people even if he disapproved of them.
+ - Sometimes you know you’ve got a chance with a girl because she wants to fight with you. If the world wasn’t so messed up, it wouldn’t be like that. If the world was normal, a girl being nice to you would be a good sign, but in the real world, it isn’t.
+ - As I get older, the tyranny that football exerts over my life, and therefore over the lives of the people around me, is less reasonable and less attractive.
+ - I have always been accused of taking the things I love – football, of course, but also books and records – much too seriously, and I do feel a kind of anger when I hear a bad record, or when someone is lukewarm about a book that means a lot to me.
+ - I never mind the accusations of domesticity, as long as people recognise that all of us, even the luckiest, will live lives in which we have our hearts broken, suffer the loss of loved ones, worry ourselves half to death about our kids.
+ - When it came down to it, he just wasn’t that engaged. You had to be engaged to be a vegetarian; you had to be engaged to sing “Both Sides Now” with your eyes closed; when it came down to it, you had to be engaged to be a mother.
+ - I would like my personal reading map to resemble a map of the British Empire circa 1900.
+ - I had forgotten that Jess felt about long words the way that racists feel about black people: she hated them, and wanted to send them back from where they came from.
+ - Sometimes we have to be judged by our one-offs.
+ - I’d thought I’d live with my wife, but I couldn’t find one.
+ - I don’t want my books to exclude anyone, but if they have to, then I would rather they excluded the people who feel they are too smart for them!
+ - There had been times when he knew, somewhere in him, that he would get used to it, whatever it was, because he had learnt that some hard things became softer after a very little while.
+ - Maybe we all live life at too high a pitch, those of us who absorb emotional things all day, and as mere consequence we can never feel merely content: we have to be unhappy, or ecstatically, head-over-heels happy, and those states are difficult to achieve within a stable, solid relationship.
+ - The point is you keep going. You want to. So all the things that make you want to are the point.
+ - What good were real feelings anyway?
+ - It’s love this and love that but of couse it’s so easy to love someone you don’t know, whether it’s George Clooney or Monkey. Staying civil to someone with whom you’ve ever shared Christmas turkey- now there’s a miracle.
+ - When you’re unhappy, I guess everything in the world – reading, eating, sleeping – has something buried somewhere inside it that just makes you unhappier.
+ - Books are, let’s face it, better than everything else. If we played Cultural Fantasy Boxing League, and made books go fifteen rounds in the ring against the best that any other art form had to offer, then books would win pretty much every time.
+ - Women who disapprove of men – and there’s plenty to disapprove of – should remember how we started out, and how far we had to travel.
+ - I burst into tears and I cry and cry until it feels as though it is not salt and water being squeezed from my eyes, but blood.
+ - I guess I should have forgotten about it ages ago, but forgetting isn’t something I’m very good at.
+ - There isn’t so much to be afraid of, out there. I can remember thinking it was funny to find that out, on the last night of my life; I’d spent the rest of it being afraid of everything.
+ - For the best part of 40 years she had genuinely believed that not doing things would somehow prevent regret, when, of course, the exact opposite was true.
+ - Barry, you’re over thirty years old. You owe it to your mum and dad not to sing in a group called Sonic Death Monkey.
+ - I’m coming to London next week, by the way, in unhappy circumstances. Are we getting on fine as we are? Or would you like a drink?
+ - By the early seventies I had become an Englishman – that is to say, I hated England just as much as half my compatriots seemed to do.
+ - Reading begets reading.
+ - I miss him like one might miss a scar, or wooden leg, something disfiguring but characteristic.
+ - I’m simply pointing out that what happens to us isn’t the whole story. That I continue to exist even when we’re not together.
+ - What you don’t catch a glimpse of on your wedding day- because how could you?- is that some days you will hate your spouse, that you will look at him and regret ever exhchanging a word with him, let alone a ring and bodily fluids.
+ - Unhappiness really meant something back then. Now it’s just a drag, like a cold or having no money.
+ - Every time people force themselves to carry on with a book they’re not enjoying, they reinforce the idea that reading is a duty.
+ - You can wait forever for the muse to sit on your shoulder, but most of the time you know what has to be done and inspiration is not going to help you.
+ - I have a really low boredom threshold.
+ - Reciprocation was a pretty powerful stimulant to the imagination.
+ - He has the personality of a child prodigy, but no discernable talent.
+ - The plain state of being human is dramatic enough for anyone.
+ - He’d told her it was just a scratch and got cross when she hadn’t offered morphine.
+ - Phone calls like ours only happen when you’ve spent several years hurting and being hurt, until every work you utter or hear becomes coded and loaded, as complicated and full of subtext as a bleak and brilliant play.
+ - Where’s the superficial? I was, and therefore am, dim, gloomy, a drag, unfashionable, unfanciable, and awkward. This doesn’t seem like superficial to me. These aren’t flesh wounds. These are life-threatening thrusts into the internal organs.
+ - Asking the head I have now to explain its own thinking is as pointless as dialing your own telephone number on your own telephone: Either way, you get an engaged signal. Or your own answer message, if you have that kind of phone system.
+ - You just have to smile and take it, otherwise it would drive you mad.
+ - And mostly all I have to say about these songs is that I love them, and want to sing along to them, and force other people to listen to them, and get cross when these other people don’t like them as much as I do.
+ - You’re not allowed to say anything about books because they’re books, and books are, you know, God.
+ - I had to nurture those doubts as if they were tiny, sickly kittens, until eventually they became sturdy, healthy grievances, with their own cat doors, which allowed them to wander in and out of our conversation at will.
+ - The outward manifestations of an inner combustion are never very directed.
+ - Not for the first time in my life, and certainly not for the last, a self-righteous gloom had edged out all semblance of logic.
+ - I really don’t want to be boring, and so many books are so boring!
+ - It’s no good looking to writers for definitions of what constitutes proper writing, because you will drive yourself crazy, and you won’t find anything that you can build into a coherent whole.
+ - It’s not what you like but what you are like that’s important.
+ - Maybe the best thing to do with favorite books is to leave them be: to achieve such exalted position means that they entered your life at exactly the right time, in precisely the right place, and those conditions can never be recreated.
+ - It’s often the way that people who take their work seriously laugh at stupid jokes; it’s as if they are under-humored and, as a consequence, suffer from premature laugh-ejaculation.
+ - But then, that was the trouble with relationships generally. They had their own temperature and there was no thermostat.
+ - It’s just that romance, with its dips and turns and glooms and highs, its swoops and swoons and blues, is a natural metaphor for music itself.
+ - I’m still not a very good white wine, but I’m drinkable – you could put me in a punch, anyway.
+ - We were little animals, which is not to imply that by the end of the week we were tearing our tank tops off; just that, metaphorically speaking, we had begun to sniff each other’s bottoms, and we did not find the odor entirely repellent.
+ - Like all books that have that kind of momentum, it starts from word of mouth.
+ - If you really wanted to mess me up, you should have got to me earlier.
+ - Books are, let’s face it, better than everything else.
+ - I don’t even feel as if I’m the center of my own world, so how am I supposed to feel as though I’m the center of anyone else’s?
+ - That was his mother. When she wasn’t crying over the breakfast cereal, she was laughing about killing herself.
+ - I don’t believe in Heaven or anything. But I want to be the kind of person that qualifies for entry anyway.
+ - So it’s not about what you do. It can’t be, can it? It has to be about how you are, how you love, how you treat yourself and those around you, and that’s where I get eaten up.
+ - We can’t be as good as we’d want to, so the question then becomes, how do we cope with our own badness?
+ - It’s music rage, which is like road rage, only more righteous. When you get road rage, a tiny part of you knows you’re being a jerk, but when you get music rage, you’re carrying out the will of God, and God wants these people dead.
+ - I’d stay there, or not, and I’d eat, or not, and I’d drink, or not, and go home, or not, and what I did or didn’t do wouldn’t matter to anyone at all. And I walked for most of the day. Do people get sad on holiday sometimes? I can imagine they do, having all that time to think.
+ - There were about seventy-nine squillion people in the world, and if you were very lucky, you would end up being loved by fifteen or twenty of them.
+ - It takes a child to say the unsayable.
+ - We’re here for such a short amount of time. Why do we spend any of it building sandcastles?
+ - But the internet had changed everything: nobody was forgotten anymore.
+ - It’s no wonder we’re all such a mess, is it? We’re like Tom Hanks in Big. Little boys and girls trapped in adult bodies and forced to get on with it.
+ - I don’t think you can call it stalking when it’s just phone calls and letters and emails and knocking on the door.
+ - I hate time. It never does what you want it to.
+ - We have one of those conversations where every thing clicks, meshes, corresponds, locks, where even our pauses, even our punctuation marks, seem to be nodding in agreement.
+ - And what would happen if we never read the classics? There comes a point in life, it seems to me, where you have to decide whether you’re a Person of Letters or merely someone who loves books, and I’m beginning to see that the book lovers have more fun.
+ - To me, making a tape is like writing a letter – there’s a lot of erasing and rethinking and starting again, and I wanted it to be a good one.
+ - It struck him that how you spent Christmas was a message to the world about where you were in life, some indication of how deep a hole you had managed to burrow for yourself.
+ - We spent all those years talking about stuff we had in common, and the last few months noticing all the ways we were different and it broke both of our hearts.
+ - But I suspect that all writers come up with premises of some kind, fragments of narrative or scenarios, in the course of a working week.
+ - Linda seemed to recognize loneliness. Possibly she could see it sitting opposite her, sipping lager and trying not to lose its temper. It was an illness, loneliness-it made you weak, gullible, feebleminded.
+ - Telling me I can do anything I want is like pulling the plug out of the bath and then telling the water it can go anywhere it wants. Try it, and see what happens.
+ - Cynicism is our shared common language, the Esperanto that actually caught on, and though I’m not fluent in it – I like too many things, and I’m not envious of enough people – I know enough to get by.
+ - It is the act of reading itself that I miss, the opportunity to retreat further and further from the world until I have found some space, some air that isn’t stale, that hasn’t been breathed by my family a thousand times already.
+ - The trouble with history is that there are too many people involved.
+ - One has so many more opinions about what has gone wrong than about what is perfect.
+ - One could argue that most of the trouble in the world is caused by introspection.
+ - We get together with people because they’re the same or because they’re different, and in the end we split with them for exactly the same reasons.
+ - It’s just that none of us had the wit or talent to make them into songs. We made them into life, which much messier, and more time consuming, and leaves nothing for anybody to whistle.
+ - When even the scrupulously detached BBC is exhorting us to talk to God, you know something is going on.
+ - The non-fiction bestseller lists frequently prove that we all want to know more about everything, even if we didn’t know that we wanted to know – we’re just waiting for the right person to come along and tell us about it.
+ - There are many differences between a baby and an I-Pod. And one of the biggest is, no ones going to mug you for your baby.
+ - Human beings are millions of things in one day.
+ - Sequels are very rarely a good idea, and in any case, the success of the book changed my relationship with the club in some ways.
+ - The artistic temperament is particularly unhelpful if it is just that, with no end product.
+
+140 quotes

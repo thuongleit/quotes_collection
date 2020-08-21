@@ -1,0 +1,36 @@
+ - At the end of the day, you’re responsible for yourself and your actions and that’s all you can control. So rather than be frustrated with what you can’t control, try to fix the things you can.
+ - We have to do the impossible, but it is possible.
+ - I want to be known as the best teammate ever.
+ - There are a lot of things that frustrate me. I get frustrated when I have to wait at a red light.
+ - The beautiful thing about when you go through a slide is that you learn from it. Not just saying that you learn from it, but applying the things that you have learned.
+ - Too much coffee. Too much coffee and Gatorade. It’s a hell of a mix. If you’re ever tired in the morning, just try that mix, and tell me what you think.
+ - Playing video games is something I enjoy in my spare time. I’m a gamer, always have been.
+ - Performance is something we all strive to be better at. I’m no different than that. Who wants to look bad?
+ - Coaching takes patience.
+ - I don’t think anything less than perfect, even though I’m a human being. The way I work and go at things is to better myself in perfect terms.
+ - This ain’t the Girl Scouts. This ain’t the Boy Scouts. This is the NBA.
+ - I don’t play to sweat, I play to win.
+ - I learned one thing – never hate a positive option.
+ - I’m not the type of person to give up just because something gets rough. That’s a coward. That’s not me.
+ - The competition, the naysayers, the owners who talk too much. The people who don’t think a 36-year-old can do what I do. I take a lot of pride in my craft, I work really hard at my craft everyday, and I’m a true professional.
+ - Some of my friends snowmobile. I’m a little scared of it.
+ - I’ve never been an individual guy. I never cared about the accolades. I’ve always been driven by the competition and the learning process.
+ - It’s scary when one day the city is there and the next day it’s gone. To see the water actual kill people, I couldn’t believe it. I never fathomed it could bury a city.
+ - The last couple of practices, all we’ve been doing is a lot of defensive things. We’ve been going over some drills that make all of us have to communicate.
+ - I’m from the bottom, I understand what it’s like to have and to not have. My perception on giving is to put yourself in those people’s shoes and go from there. So that’s what I did.
+ - I’m like Rudolph the Red-Nosed Reindeer. If I’m not ready, the sled isn’t going to go.
+ - This is it. It’s for all the marbles. I’m sitting in the house loading up the pump, I’m loading up the Uzis, I’ve got a couple of M-16s, couple of nines, couple of joints with some silencers on them, couple of grenades, got a missile launcher. I’m ready for war.
+ - Coaching takes patience. I’m more enthused when teaching players who want it versus when I have to.
+ - I’m very simple. I’m not for the flashes, I’m not for glitz and glamour, you know.
+ - So we take a lot of pride in that. It’s really on us to turn this thing around. I think this last month we’ve done just that. We’ve pointed ourself in the direction that we want to be, and I think we’re starting to head towards that. Right now we’re in a nice rhythm.
+ - I can’t control if people like me; I can’t control if people like my game.
+ - I’m not a star, man. If a guy came in here and shot you and shot me, we’d both be two dead people. You understand?
+ - They’re really aggressive. They’re like roaches on bread – you drop some on the floor and, boom, they’re on it.
+ - I would love to see Flip get back into the league. I think he can definitely still coach in this league. I think he will be in this league quicker than sooner.
+ - Going from Flip to Kev, obviously you don’t want to see someone ever lose their job. For me it’s probably a little more difficult, because other than Bill Blair, Flip is all I knew.
+ - I have a problem sometimes with being too hyper.
+ - Kev has these old Boston drills, where you all have to talk to each other, and interact, and it’s helped us.
+ - So you’re dealing with a coach, and you’re dealing with a guy who’s actually experienced NBA basketball from a player’s perspective and actually goes about it that way.
+ - We know that in order for us to turn this around, it doesn’t matter how many coaches they bring in here, assistants, weight trainers, whoever, we’re the ones that are going to have turn it around. And I think just took that responsibility on ourselves.
+
+34 quotes

@@ -1,0 +1,87 @@
+ - Be the one who nurtures and builds. Be the one who has an understanding and a forgiving heart one who looks for the best in people. Leave people better than you found them.
+ - If we could look into each other’s hearts and understand the unique challenges each of us faces, I think we would treat each other much more gently, with more love, patience, tolerance, and care.
+ - Being on time to appointments and meetings is a phase of self-discipline and an evidence of self-respect. Punctuality is a courteous compliment the intelligent person pays to his associates.
+ - Leave people better than you found them.
+ - True happiness is not made in getting something. True happiness is becoming something. This can be done by being committed to lofty goals. We cannot become something without commitment.
+ - Greatness is best measured by how well an individual responds to the happenings in life that appear to be totally unfair, unreasonable, and undeserved.
+ - Punctuality or the lack thereof oftentimes is the only introduction one will ever have to new groups and friends. Serenity and poise are not the companions of those who lack the courtesy and judgment to be on time.
+ - Satan is ever present, trying to destroy our glory and remove our crown. One of his most powerful tools is discouragement. Don’t let your discouragement make Satan rejoice.
+ - The best and most clear indicator that we are progressing spiritually and coming unto Christ is the way we treat other people.
+ - Victories in life come through our ability to work around and over the obstacles that cross our path. We grow stronger as we climb our own mountains.
+ - In times of hurt and discouragement, it may be consoling for all of us to recall that no one can do anything permanently to us that will last for eternity. Only we ourselves can affect our eternal progression.
+ - God’s love for us is constant and will not diminish, but he cannot rescue us from the painful results that are caused by wrong choices.
+ - Do not doubt your abilities. Do not delay your worthy impressions. With God’s help, you cannot fail. He will give you the courage to participate in meaningful change and purposeful living.
+ - Sometimes when family members least deserve love, they need it most. Love is not appropriately expressed in threats, accusations, expressions of disappointment, or retaliation. Real love takes time, patience, help, and continuing performances.
+ - One little lie or dishonest act leads to another until the perpetrator is caught in the web of deceit.
+ - Adversity will surface in some form in every life. How we prepare for it, how we meet it, makes the difference. We can be broken by adversity, or we can become stronger. The final result is up to the individual’.
+ - Striving can be more important than arriving.
+ - Proper communication will always be a main ingredient for building family solidarity and permanence.
+ - A friend is a possession we earn, not a gift.
+ - Set your goals-without goals you cannot measure your progress. But don’t become frustrated because there are no obvious victories. Remind yourself that striving can be more important than arriving.
+ - Resentment and anger are not good for the soul. They are foul things.
+ - Often parents communicate most effectively with their children by the way they listen to and address each other. Their conversations showing gentleness and love are heard by our ever-alert, impressionable children.
+ - Where you have been is not nearly as important as where you are and where you’re going.
+ - Someone has said, “A friend is a person who is willing to take me the way I am.” Accepting this as one definition of the word, may I quickly suggest that we are something less than a real friend if we leave a person the same way we find him.
+ - How damaging is a habit that permits faultfinding, character assassination, and the sharing of malicious rumors! Gossip and caustic comments often create chains of contention.
+ - If you have self-respect, you will take satisfaction in being well groomed and will not allow yourself to perform shabbily. You will continue to work toward high standards and goals to serve others, to continue and to practice self-discipline. You will not compromise your standards or beliefs.
+ - Day-to-day acts of service, whether for good or evil, may not seem important, but they are building cords of love that become so strong they can seldom be broken. Ours is to place our areas of love in proper perspective. Meaningful love always works for our eternal progress and not against it.
+ - Worthiness is a process, and perfection is an eternal trek. We can be worthy to enjoy certain privileges without being perfect.
+ - Peace is a blessing that comes to those who trust in God. It is established through individual righteousness. True personal peace comes about through eternal vigilance and constant righteous efforts.
+ - Everything is given by God. All talent, creativity, ability, insight, and strength comes from him. In our own strength we can do nothing.
+ - Financial peace of mind is not determined by how much we make, but is dependent upon how much we spend!
+ - If we would know true love and understanding one for another, we must realize that communication is more than a sharing of words. It is the wise sharing of emotions, feelings, and concerns. It is the sharing of oneself totally.
+ - God knows the feelings in every human heart. He can soften sorrow and lead when there seems to be no light. Prayer can give guidance and confidence. It reminds us that no one need be alone in this world. If all else fails, remember, God and one other person can be a family.
+ - Shaking off restrictive chains requires action. They cannot be wished away. A declaration will never break chains. It requires commitment, self-discipline, and work.
+ - The world is filled with too many of us who are inclined to indicate our love with an announcement or declaration. True love is a process. True love requires personal action. Love must be continuing to be real. Love takes time.
+ - A truly wise person will constantly move forward, striving for self-improvement, knowing that daily repentance is needed for progress. He will realize the good life is simply conforming to a standard of right and justice. The joys of happiness can only be realized by living lofty principles.
+ - Progression and achievement belong to those who have learned to use the opportunity of now. Our strides of today will determine our locations tomorrow.
+ - When a mother asked her small child how he fell out of bed, he answered, “Because I wasn’t in far enough.” Let me just say in passing that it has been my experience that most people who fall out of the Church do so because they were not in far enough.
+ - True love is a process. True love requires personal action.
+ - Blessed is he or she who avoids being offended.
+ - It is up to each of us to search for and build upon the gifts which God has given. We must remember that each of us is made in the image of God, that there are no unimportant persons. Everyone matters to God and to his fellowmen.
+ - A quality person is someone with integrity. To be worthy of the highest trust is a noble attribute and compliment. You will need to maintain confidences. Certainly it is greater to be trusted than loved. Truly happy persons will always be totally honest in their dealings with their fellowman.
+ - A willingness to practice patience. Patience in communication is that certain ingredient of conduct we hope others will exhibit toward us when we fail to measure up. Our own patience is developed when we are patient with others.
+ - God grant to all of us the power and strength to be people of integrity, and the insight and wisdom to avoid being led into the snares of the dishonest.
+ - There is a great need today for all mankind to heed the plea to cease to find fault one with another. Some of us are so accustomed to wearing faultfinding spectacles that we cannot see past them. We need to open our eyes and ears and look for the good and the blessings around us.
+ - Sometimes when family members least deserve love, they need it the most.
+ - How comfortable some of us become as we nestle in the web of procrastination. It is a false haven of rest for those who are content to live without purpose, commitment, or self-discipline.
+ - Some think the only way to get even, to get attention or advantage, or to win is to bash people. This kind of behavior is never appropriate. Oftentimes character and reputation and almost always self-esteem are destroyed under the hammer of this vicious practice.
+ - Some of us are inclined to look to the weaknesses and shortcomings of others in order to expand our own comfort zone.
+ - A friend in the true sense is not a person who passively nods approval of our conduct or ignores improper behavior. A friend is a person who cares.
+ - Constant criticism can wear one down and weaken knees.
+ - As children of God we are somebody. He will build us, mold us, and magnify us if we will but hold our heads up, our arms out, and walk with him.
+ - The family as an institution today is beset on all sides. Conflicts within the family are critical and often damaging. Contention puts heavy strain on stability, strength, peace, and unity in the home. There is certainly not time for contention in building a strong family.
+ - The gospel is one of harmony, unity, and agreement. It must be presented in love, and with glad tidings, by those who are calm.
+ - Procrastination is a deadly weapon of human progress.
+ - Through microscopic examination one can find in almost every life incidents or traits that can be destructive when they are magnified.
+ - Adversity will surface in every life. How we meet it makes the difference.
+ - The direction in which we are moving is more important than where we are at the moment. Goal setting should cause us to stretch as we make our way.
+ - Once upon hearing a friend’s bashing comment I said, “Did you reach that conclusion on your own, or did it come through prayer?”
+ - Adaptability cushions the impact of change or disappointment.
+ - Do not allow yourselves to be made to feel inadequate or frustrated because you cannot do everything others seem to be accomplishing. Only you and your Father in Heaven know your needs, strengths, and desires. Around this knowledge your personal course must be charted and your choices made.
+ - You owe it to yourself to keep fit. No matter how busy or how involved you are, you should have some type of physical program to keep the body in tune.
+ - A man must rise by his own efforts and walk by faith.
+ - We need to remove unworthy from our vocabulary and replace it with hope and work.
+ - Enduring, or carrying on, is not just a matter of tolerating circumstances and hanging in there, but of pressing forward.
+ - We invite all to serve the Savior and walk in His paths straightway. There is an urgency for all of us who have this knowledge of His divinity to act upon it without hesitation or delay. The time is now.
+ - Wise is the man who says what needs to be said, but not all that could be said.
+ - What we are is more important than what we have or what is said of us.
+ - Being of good cheer makes it possible for us to turn all of our sunsets into sunrises.
+ - Lying damages others. Lying subtly permits us to destroy ourselves as we are caught in the snare and shatter our own self-image and credibility. Freedom from deceit and lying improves self and gives all of us peace of mind.
+ - Leaders on every level should be primarily interested in rendering compassionate caring for others.
+ - All of us need to be constantly reminded it takes a heap of living and loving to make a house a home.
+ - We should teach, particularly ourselves, that nobody is a nobody. We are someone, and with God’s help we can accomplish all things.
+ - Many marriage tragedies are caused, not by lack of money, but rather by the mismanagement of it.
+ - Peace-not passion, not personal possessions, not personal accomplishments nor happiness-is one of the greatest blessings a man can receive.
+ - The difference between those who are committed and those who are not is the difference between the words want and will.
+ - It is not so important whether a young man has been through the experience of a mission as it is whether the mission experience has been through him.
+ - Pleasure usually takes the form of me and now; joy is us and always.
+ - Ugly reports and conversations are always available to those who would promote the sordid and sensational. None of us are yet perfect. We each have failings that aren’t terribly difficult to detect especially if that is the aim.
+ - We are poor in character when we think getting by is a substitute for doing our best.
+ - Difficulties can be a valuable tool in our pursuit of perfection. Adversity need have no necessary connection with failure.
+ - Often our self-esteem is bruised by criticism.
+ - One who practices pure religion soon discovers it is more rewarding to lift a man up than to hold him down.
+ - It is a happy day when we come to know that with God’s help, nothing is impossible for us.
+ - Tact is rubbing out another’s mistakes, not rubbing them in.
+
+85 quotes

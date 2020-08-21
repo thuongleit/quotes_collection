@@ -1,0 +1,171 @@
+ - You might as well aim high. Why shoot yourself in the foot when you can shoot yourself in the head?
+ - If saving money is wrong, I don’t want to be right!
+ - We meet aliens every day who have something to give us. They come in the form of people with different opinions.
+ - So bitcoin is cyber snob currency...
+ - I’ve got rock ‘n’ roll in my blood.
+ - I never watched ‘Star Trek.’
+ - We’re all embers from the same fire. Our ember winks out, we’re ashes, we go back to the fire.
+ - I did a movie in Esperanto.
+ - You have to create your life. You have to carve it, like a sculpture.
+ - Energy is the key to creativity. Energy is the key to life.
+ - A tree you pass by every day is just a tree. If you are to closely examine what a tree has and the life a tree has, even the smallest thing can withstand a curiosity, and you can examine whole worlds.
+ - Your cadence is your music.
+ - The conundrum of free will and destiny has always kept me dangling.
+ - Has it ever occurred to you that how we deal with death is at least as important as how we deal with life?
+ - I love the musicality of words.
+ - Conquest is easy. Control is not.
+ - Success should always be just beyond your grasp.
+ - If we can clean up our world, I’ll bet you we can achieve warp drive.
+ - The truth can’t be hidden for long.
+ - Never buy anything that eats while you sleep.
+ - Divorce is probably as painful as death.
+ - Pain and guilt can’t be taken away with the wave of a magic wand. They’re the things that we carry with us, they’re the things that make us what we are. If we lose them, we lose ourselves. I don’t want my pain taken away, I need my pain!
+ - I’m so not ready to die. It petrifies me. I go alone. I go to a place I don’t know. It might be painful. It might be the end. My thought is that it is the end. I become nameless, and I spent a lifetime being known.
+ - A true pilot must of necessity pay attention to the seasons, the heavens, the stars, the winds, and everything proper to the craft if he is really to rule a ship.
+ - The mysteriousness and mystique of space is such, that science fiction attempts to tantalize you by telling you a story that could possibly be out there and that’s the appeal of science fiction.
+ - Stop and smell the garlic! That’s all you have to do.
+ - I’m surfing the giant life wave.
+ - I was built for the long run, not for the short dash, I guess.
+ - I am curious about many things, and find the world around me, and the people and objects and things in it, equally fascinating. There is a great deal of that awe and wonder in me.
+ - I hate flying, flat out hate its guts.
+ - Everyone knows everything about all of us. That’s too much knowledge!
+ - How do I stay so healthy and boyishly handsome? It’s simple. I drink the blood of young runaways.
+ - I love cameras but I find myself reluctantly taking pictures because what’s past is past.
+ - There were many times when I kept silent about being Jewish as I got older, when Jewish jokes were told.
+ - My kids say if there’s any family dinner that doesn’t result in somebody crying, it’s not a good dinner. They cry because it helps relieve them of a guilt or some onerous emotional burden. It’s like a family tradition.
+ - Remember – you can’t beam through a force field. So, don’t try it.
+ - My wife and my three kids and my grandchildren are my life, but my horses and my dogs are everything else.
+ - I think you die the way you live.
+ - Marriage is a reflection of your life in general: how you treat people, how you argue, how secure you are in your own thoughts. How vehemently do you argue your point of view? With what disdain do you view the other’s point of view?
+ - A sense of the unknown has always lured mankind and the greatest of the unknowns of today is outer space. The terrors, the joys and the sense of accomplishment are epitomized in the space program.
+ - This is my saddest story: In grade school, they would have us open our Valentine’s cards and read them out loud. I always sent cards to myself because nobody else did.
+ - Being an icon is overrated, remember an icon can be moved by a mouse.
+ - My dad was good with actions.
+ - Why does the lizard stick his tongue out? The lizard sticks its tongue out because that’s the way its listening and looking and tasting its environment. It’s its means of appreciating what’s in front of it.
+ - The name Shatner is Austrian and partly Germanic, and there’s Germanic reticence and silence perhaps, but there is passion underneath.
+ - There was nothing lonelier than a man with a million friends.
+ - Memories were the markers of the journey through life. It was necessary to know where you had come from. Only then could you know where you were going.
+ - I slept for four days when I turned 40.
+ - The ability to breathe the air and drink the water will be what the wars will be about from here on in. And it’s coming with alarming rapidity.
+ - You know, the process of making a documentary is one of discovery, and like writing a story, you follow a lead and that leads you to something else and then by the time you finish, the story is nothing like you expected.
+ - Most people, including myself, keep repeating the same mistakes.
+ - I love the concept of togetherness and the entwinement of marriage.
+ - I love living in Los Angeles.
+ - What does God need with a starship?
+ - Exercise? A Jew doesn’t exercise.
+ - I’m looking for the perfect paintball movie.
+ - The possibilities that are suggested in quantum physics tell us that everything that we’re looking at may not be in fact there, so the underlying nature of being is weird.
+ - Let women figure out why they won’t sleep with you. Don’t do their work for them.
+ - My mother was an exuberant, silly lady.
+ - The good life is one that’s artistically made.
+ - My dad died of a stroke.
+ - The idea of being a professional actor never occurred to anybody, including myself, for a long time.
+ - These people who come to Comic-Con and dress up – all across the country, the rest of the population who doesn’t understand are scoffing at them.
+ - I got on a horse when I was about 12 years of age, and started galloping around. my mother came up said “where did you learn to ride a horse?” I said “this is the first time I’ve ever been on a horse” I just knew, I just felt the horse.
+ - When I was out for the Christmas Holidays in school, I would go skiing up to the mountains and there they had Santa on a sled. Pulled by horses and other reindeer, it was a very, very picturesque time and that struck me very emphatically then and has remained with me all this time.
+ - I want to discover a truth for myself that is really true. Whether it’s a piece of scientific knowledge, or a philosophical truth.
+ - I had a major in business, and I graduated with a business degree, but I was perhaps the worst student to graduate from that program.
+ - No, I don’t regret anything at this point. That may change on the next phone call, but at the moment I don’t regret anything.
+ - I love to evoke the bones and meat and thoughts of characters.
+ - I have had mystical experiences with horses. I felt they were communicating with me in horse communication.
+ - If there’s anything I’m not pompous about, it’s myself or my work. But I seem to be able to play it.
+ - When I’m interviewing somebody I don’t work from prepared questions.
+ - It was the early 1970s and I was recently divorced. I had three kids and was totally broke. I managed to find work back east on the straw-hat circuit – summer stock – but couldn’t afford hotels, so I lived out of the back of my truck, under a hard shell.
+ - If you make a fool of yourself, you can do it with dignity, without taking your pants down. And if you do take your pants down, you can still do it with dignity.
+ - I love to go to a movie, get a Diet Coke and a barrel of popcorn, and sit there with my kids and watch a film.
+ - My boy, that was a TV show. I used a stunt double. I always use a stunt double. Except in love scenes. I insist on doing those myself.
+ - I sometimes find that in interviews you learn more about yourself than the person learned about you.
+ - When there are tiers of meaning in an ad it intrigues the audience and they look for it again and again.
+ - Sci-fi films are the epic films of the day because we can no longer put 10,000 extras in the scene – but we can draw thousands of aliens with computers.
+ - You have to continuously fail. You fail at something, then you get over it, then you fail some more. And after you fail, there’s always something new there. And that something new can be really interesting.
+ - What part of me was born with the courage to stand in front of strangers and risk rejection?
+ - Writing is truly a creative art – putting word to a blank piece of paper and ending up with a full-fledged story rife with character and plot.
+ - I believe that when things happen, they happen with a purpose.
+ - I’ve come to the conclusion that athletes, when they say they miss the crowd, are not missing the sound of the crowd. What they’re missing is the feeling inside that makes the crowd roar. It’s not the roar of the crowd, it’s the silence inside.
+ - Avatar is a watershed movie. We’ll always refer to Lawrence of Arabia in the same way. We’ll always look at Avatar and say, “That’s about as good as it gets.” It’s an enormous advance, in every way, shape and form, of movie making.
+ - Yeah, I do stand-up, my own type of stand-up.
+ - Don’t waste your time trying to get into my head. There’s nothing there.
+ - I’m interested in man’s march into the unknown but to vomit in space is not my idea of a good time. Neither is a fiery crash with the vomit hovering over me.
+ - Careers are here and they’re gone. No matter how great we think we are, we’re nothing but the temples of Ozymandias-we’re ruins in the making.
+ - Things people say strike me as amusing, and I am prone to saying out loud what everybody’s thinking.
+ - Spencer Tracy was a man who did very much what I do on a set, and that is, he comes down and he does his job, and then he goes back to his dressing room.
+ - I’ve never been without a dog. I’ve made trips across the country with a dog. I’ve been in that angst of loneliness, where you’re really alone in the universe, except for the dog.
+ - My site has the whole thing – blogs, information, video interviews.
+ - The essence of paint ball is the fact that when you get hit by a ball full of paint, it hurts just enough to say, ‘Ow, I gotta get out of the way,’ but not enough to say, ‘I quit.’
+ - Is there a God? There is, but we don’t know where. Or who. And, indeed, why.
+ - I envy the people who say, ‘oh, well, I’ve got my name in the golden book and I’m going to be entered into the pearly gates.’
+ - Youth is the ultimate limited resource.
+ - When I did the film Generations, in which the character died, I felt like a guest for the first time. That made me very sad.
+ - A director is a choreographer, both politically and creatively.
+ - I’m always open to the possibility that somebody’s got a better idea than I have. It happens with some frequency.
+ - Mythology needs heroes and it needs villains, it needs heroes to fail, it needs heroes to struggle.
+ - I enjoyed reading all the classic authors like Isaac Asimov and Bradbury.
+ - One of the advantages of being a captain is being able to ask for advice without necessarily having to take it.
+ - I had been in a Shakespeare company for three years and done a lot of Shakespeare. That was fun. That was interesting.
+ - Somewhere in university, I realized that I hadn’t been to classes in months, and I’d get tired to the point of narcolepsy doing anything other than some form of performing, directing, writing, or acting.
+ - I often conduct interviews in my truck.
+ - Getting that audience approval is always a question mark, and it’s always that flag that flutters in front of you.
+ - Nobody could have imagined the phenomenon that ‘Star Trek’ became. It’s still almost impossible to imagine.
+ - I know very little about the viral, electronic world, but I use Twitter to communicate not only information that I think some of the fans want to hear about but also ideas.
+ - It’s I who have to talk fast. It’s you who have to think fast.
+ - You and I and everybody in show business and the entertainment industry fly by the seat of our pants. We don’t know quite what is going to happen.
+ - The basic quality that any great story must have is a story that illustrates the human condition.
+ - I’ve never not appeared in front of a live audience for any longer period than a month or two.
+ - All in all, Kirk’s character is something I am very proud of.
+ - I believe in taking what happens as inevitable.
+ - Montreal is a very cosmopolitan, sophisticated, erudite, educated, glorious city today. But it wasn’t quite that way when I was growing up there. There was a lot of anti-Semitism. And I had to deal with that in an area of the city that had very few Jews.
+ - Don’t be afraid of making an ass of yourself. I do it all the time and look what I got.
+ - I played comedies and dramas.
+ - You need to be silly to be funny.
+ - There’s too many people in the world.
+ - I’m a performer, comedian, entertainer, writer and director.
+ - I see people putting text messages on the phone or computer and I think, ‘Why don’t you just call?’
+ - The political scene is already so turgid, it doesn’t need more of that from me.
+ - Writing an acceptance speech gives you the expectation of winning, and you are therefore devastated or hurt if you didn’t win.
+ - But if you want to know the truth, the weirdest thing that has happened has been my discovery that people who attend the conventions are filled with love.
+ - I think the supernatural is a catch-all for everything we don’t understand about the vast other parts of life that we cannot perceive.
+ - A pretty girl is certainly comparable to a good horse.
+ - The great mystery of our consciousness is beyond our grasp.
+ - And I enjoyed the celebrity and the creativity that was involved in Star Trek.
+ - My name is William Shatner, and I am Canadian!
+ - I have been accused of never saying no.
+ - If you read my books, especially the Star Trek books and the Quest for Tomorrow books, you’ll see in them the core theme of the basic humanistic questions that Star Trek asked.
+ - I don’t want people to know me. I want them to believe my version.
+ - It’s very easy to say no to leaving the house.
+ - I’m not out to convince anybody of anything.
+ - Christmas is fun anyway. It’s a myth organized over the years and gained different mythological qualities as the years go by.
+ - I think the acting satisfies the need and desire for approval.
+ - My life is my statement and I try to be true to myself and thusly to other people. Whatever my failings are, they are human and I try to perfect it each day.
+ - I didn’t want to do the sitcom thing, but I didn’t know what else to do.
+ - I think making a good film shot is joyful.
+ - All I know is that I am constantly intrigued by something I’m doing.
+ - When I direct and have to look at filmed scenes of myself, I suck.
+ - Acting is easier – writing is more creative. The lazy man vies with the industrious.
+ - My beautiful wife is dead. She meant everything to me. Her laughter, her tears and her joy will remain with me the rest of my life.
+ - Every piece of entertainment is made with the idea that ‘This is going to be terrific’ and ‘This is the best thing I’ve ever done’ and then it hits the public and then the public tells you whether it’s good or bad.
+ - I’ve discovered that the more freedom I have to be creative, the more creative I become.
+ - I’m anxious to make another film.
+ - My understanding is, the fans are so ravenous in Canada, they gnaw on the stars.
+ - My plan has always been to return to Broadway every 50 years.
+ - What is down will go up. At the same time, you have to be prepared for what is up to go down.
+ - In my proudest moments, I think I had a real hand in the creative force of making ‘Star Trek.’ But most of the time, I don’t think about it.
+ - I don’t think of myself as being tied.
+ - I’m not going to have a tombstone. I’m going to be tossed in the air. Ashes, tossed like a salad.
+ - Babies have big heads and big eyes, and tiny little bodies with tiny little arms and legs. So did the aliens at Roswell! I rest my case.
+ - I think of doing a series as very hard work. But then I’ve talked to coal miners, and that’s really hard work.
+ - Everybody has their 15 minutes, and those 15 minutes should be spent in a private limo and a private plane. It’s the ultimate.
+ - A stage actor has to be 10% aware of the audience as he’s performing.
+ - Ads need to be little pieces of entertainment.
+ - We’re all embers from the same fire. Our ember winks out, we’re ashes, we go back to the fire. I like that image. There has to be a unifying theory. I think there is a continuity of some kind, that my love for my wife will go on past the death of my body. Nature is perfect.
+ - I always thought that the spine of a character was awe and wonder.
+ - There’s a joy and a pain about directing where the dreams you have are becoming concrete but the attention to detail, the need for time is such that it’s overwhelming at times, and the stream of responsibility.
+ - Captain Kirk has been a source of pleasure and income for a long time.
+ - A series is filled with compromises.
+ - I’ve been approached to do some things with astronauts and the preparation that astronauts go through.
+ - Death is an absolute marvel.
+ - Here’s something pompous – you take your day and artistically create it, so every moment has an artistic flavor.
+ - Fate gives you the finger and you accept.
+ - We live in grief for having left the womb, for having left the teat, then school, then home. In my case, it was leaving marriages, and the death of my wife.
+ - So many dot-com companies were formulated on air.
+
+169 quotes

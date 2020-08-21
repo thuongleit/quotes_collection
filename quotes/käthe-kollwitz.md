@@ -1,0 +1,30 @@
+ - Look at life with the eyes of a child.
+ - Old ideas die hard. We’ve had thousands of years of women having almost no rights. Parts of the world are in a struggle toward very basic human rights for women, and most of the world isn’t even there yet. And it’s going to take a long time to change these attitudes.
+ - I can always paint very well with my eyes, but with my hands it doesn’t always work out.
+ - Pacifism simply is not a matter of calm looking on; it is work, hard work.
+ - I am afraid of dying-but being dead, oh yes, that to me is often an appealing prospect.
+ - Growing old is partly an inescapable process of accommodation and adjustment.
+ - It is my duty to voice the sufferings of humankind, the never-ending sufferings heaped mountain high. This is my task, but it is not an easy one to fulfill.
+ - There are moments on most days when I feel a deep and sincere gratitude, when I sit at the open window, and there is a blue sky or moving clouds.
+ - Bisexuality is almost a necessary factor in artistic production; at any rate, the tinge of masculinity within me helped me in my work.
+ - Where do all the women who have watched so carefully over the lives of their beloved ones get the heroism to send them to face the cannon?
+ - While I drew, and wept along with the terrified children I was drawing, I really felt the burden I am bearing. I felt that I have no right to withdraw from the responsibility of being an advocate.
+ - For me the Koenigsberg longshoremen had beauty; the Polish jimkes on their grain ships had beauty; the broad freedom of movement in the gestures of the common people had beauty. Middle-class people held no appeal for me at all.
+ - No longer diverted by other emotions, I work the way a cow grazes.
+ - One day, a new ideal will arise, and there will be an end to all wars. I die convinced of this. It will need much hard work, but it will be achieved? The important thing, until that happens, is to hold one’s banner high and to struggle? Without struggle there is no life.
+ - There must be understanding between the artist and the people. In the best ages of art that has always been the case. Genius can probably run on ahead and seek out new ways. But the good artists who follow after genius – and I count myself among these – have to restore the lost connection once more.
+ - How long were the stretches of toilsome tacking back and forth, of being blocked, of being thrown back again and again. But all that was annulled by the periods when I had my technique in hand and succeeded in doing what I wanted.
+ - If all the people who have been hurt by the war were to exclude joy from their lives, it would almost be as if they had died.
+ - Every war carries within it the war which will answer it. Every war is answered by a new war, until everything, everything is smashed.
+ - As in everything else, I find that age is not good for much, that one becomes deafer and less sensitive. Also, the higher up the mountain you climb, the less of a view you get. A mist closes in and cheats you of the hoped-for and expected opportunity to see far and wide...
+ - The development of the national spirit in its present form leads into blind alleys. Some condition must be found which preserves the life of the nation, but rules out the fatal rivalry among nations.
+ - Culture arises only when the individual fulfills his cycle of obligations. If everyone recognizes and fulfills his cycle of obligations, genuineness emerges. The culture of a whole nation can in the final analysis be built upon nothing else.
+ - Men without joy seem like corpses.
+ - When Michelangelo was an old man, he drew himself sitting in a child’s pushcart.
+ - I thought I was a revolutionary and was only an evolutionary.
+ - I was put in this world to change it.
+ - To this day I do not know whether the power which has inspired my works is something related to religion, or is indeed religion itself.
+ - I have never been able to carry out any work coolly. On the contrary it is done, so to speak, with my own blood. Anyone who looks at my works must be able to sense that.
+ - It seems to me nowadays that the most important task for someone who is aging is to spread love and warmth whenever possible.
+
+28 quotes

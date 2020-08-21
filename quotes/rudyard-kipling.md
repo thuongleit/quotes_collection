@@ -1,0 +1,228 @@
+ - If you can meet with Triumph and Disaster And treat those two impostors just the same.
+ - For the strength of the Pack is the Wolf, and the strength of the Wolf is the Pack.
+ - If you can keep your head when all about you Are losing theirs and blaming it on you, If you can trust yourself when all men doubt you, But make allowance for their doubting too;!
+ - If you can dream – and not make dreams your master.
+ - No printed word, nor spoken plea can teach young minds what they should be. Not all the books on all the shelves – but what the teachers are themselves.
+ - Fill the unforgiving minute with sixty seconds worth of distance run.
+ - If you can force your heart and nerve and sinew to serve your turn long after they are gone, and so hold on when there is nothing in you except the will which says to them: ‘Hold on!’
+ - If you want something and don’t get it, there are only two reasons. You either really didn’t want it, or you tried to bargain over the price.
+ - If you can meet success and failure and treat them both as impostors, then you are a balanced man, my son.
+ - If you can wait and not be tired of waiting, or being lied about, don’t deal in lies. Or being hated, don’t give way to hating, and yet don’t look too good, nor talk too wise.
+ - If history were taught in the form of stories, it would never be forgotten.
+ - If you can keep your wits about you while all others are losing theirs, and blaming you. The world will be yours and everything in it, what’s more, you’ll be a man, my son.
+ - Words are, of course, the most powerful drug used by mankind.
+ - A man can never have too much red wine, too many books, or too much ammunition.
+ - We are the opening verse of the opening page of the chapter of endless possibilities.
+ - Of all the liars in the world, sometimes the worst are our own fears.
+ - I am by nature a dealer in words, and words are the most powerful drug known to humanity.
+ - We’re all islands shouting lies to each other across seas of misunderstanding.
+ - He travels the fastest who travels alone.
+ - God could not be everywhere, and therefore he made mothers.
+ - Let each man be judged by his deeds, I have paid my price to live with myself on the terms that I willed.
+ - My heart is so tired.
+ - Never look backwards or you’ll fall down the stairs.
+ - A Time For Prayer “In times of war and not before, God and the soldier we adore. But in times of peace and all things righted, God is forgotten and the soldier slighted.” -Rudyard Kipling.
+ - Oh East is East and West is West and never the twain shall meet.
+ - All things considered, there are only two kinds of men in the world: those that stay at home and those that do not.
+ - Keep your head when all about you are losing theirs and blaming it on you.
+ - I keep six honest serving men.
+ - Both triumph and disaster are impostors.
+ - Delight in the little things.
+ - Payday came and with it beer.
+ - Gardens are not made by singing ‘Oh, how beautiful,’ and sitting in the shade.
+ - Humble because of knowledge; mighty by sacrifice.
+ - This is a brief life, but in its brevity it offers us some splendid moments, some meaningful adventures.
+ - All the money in the world is no use to a man or his country if he spends it as fast as he makes it. All he has left is his bills and the reputation for being a fool.
+ - Beware of overconcern for money, or position, or glory. Someday you will meet a man who cares for none of these things. Then you will know how poor you are.
+ - What is the Law of the Jungle? Strike first and then give tongue.
+ - In the jungle, life and food depend on keeping your temper.
+ - Believe the best of everybody.
+ - Borrow trouble for yourself, if that’s your nature, but don’t lend it to your neighbours.
+ - An ounce of mother is worth a pound of clergy.
+ - However the world pretends to divide itself, there are only two divisions in the world today – human beings and Germans.
+ - Cat said, ‘I am not a friend, and I am not a Servant. I am the Cat who walks by himself, and I wish to come into your Cave.’
+ - The motto of all the mongoose family is, “Run and find out,” and Rikki-tikki was a true mongoose.
+ - Funny how the new things are the old things.
+ - A woman’s guess is much more accurate than a man’s certainty.
+ - And what should they know of England who only England know?
+ - I’ve just read that I am dead. Don’t forget to delete me from your list of subscribers.
+ - When the Man waked up he said, ‘What is Wild Dog doing here?’ And the Woman said, ‘His name is not Wild Dog any more, but the First Friend, because he will be our friend for always and always and always.’
+ - Each dog barks in his own yard!
+ - I am the Cat who walks by himself, and all places are alike to me.
+ - Come you back, you British soldier; come you back to Mandalay!
+ - They will come back, come back again, As long as the red earth rolls. He never wasted a leaf or a tree. Do you think he would squander souls?
+ - War is an ill thing, as I surely know. But ’twould be an ill world for weaponless dreamers if evil men were not now and then slain.
+ - I always prefer to believe the best of everybody, it saves so much trouble.
+ - There’s no jealousy in the grave.
+ - Who has smelled the woodsmoke at twilight, who has seen the campfire burning, who is quick to read the noises of the night?
+ - He who can reach a child’s heart can reach the worlds heart.
+ - The Guns, Thank God, The Guns...
+ - This is Burma and it is unlike any land you know about.
+ - Be slow to judge for we know little of what has been done and nothing of what has been resisted.
+ - Nations have passed away and left no traces, And history gives the naked cause of it – One single simple reason in all cases; They fell because their peoples were not fit.
+ - A brave heart and a courteous tongue. They shall carry thee far through the jungle, Manling.
+ - One man in a thousand, Solomon says. Will stick more close than a brother. And it’s worth while seeking him half your days If you find him before the other. – The Thousandth Man.
+ - There is no sin greater than ignorance.
+ - Four things greater than all things are Women and horses and power and War.
+ - Bite on the bullet, old man, and don’t let them think you’re afraid.
+ - When a crew and a captain understand each other to the core, it takes a gale, and more than a gale, to put their ship ashore.
+ - Take up the White Man’s burden – send forth the best ye breed – go, bind your sons to exile to serve your captives need.
+ - Take everything you like seriously, except yourselves.
+ - The wild hawk to the wind-swept sky The deer to the wholesome wold; And the heart of a man to the heart of a maid, As it was in the days of old.
+ - What stands if freedom fall?
+ - He wrapped himself in quotations – as a beggar would enfold himself in the purple of Emperors.
+ - If you do not get what you want, it is a sure sign that you did not seriously want it.
+ - We have forty million reasons for failure, but not a single excuse.
+ - No one thinks of winter when the grass is green.
+ - There aren’t twelve-hundred people in the world who understand pictures. The others pretend and don’t care.
+ - Too much work and too much energy kill a man just as effectively as too much assorted vice or too much drink.
+ - A tale from which pieces have been raked out is like a fire that has been poked. One does not know the operation has been performed, but everyone feels the effect.
+ - When you’re wounded and left on Afghanistan’s plains, and the women come out to cut up what remains, jest roll to your rifle and blow out your brains and go to your gawd like a soldier.
+ - And the end of the fight is tombstone white with the name of the late deceased, and the epitaph drear, “A Fool lies here who tried to hustle the East.”
+ - Now, don’t be angry after you’ve been afraid. That’s the worst kind of cowardice.
+ - Now India is a place beyond all others where one must not take things too seriously – the midday sun always excepted.
+ - We be of one blood, ye and I.
+ - Smells are surer than sounds and sights to make the heartstrings crack.
+ - Enough work to do, and strength enough to do the work.
+ - A thin grey fog hung over the city, and the streets were very cold; for summer was in England.
+ - Politicians. Little Tin Gods on Wheels.
+ - When the Hymalayan peasant meets the he-bear in his pride, He shouts to scare the monster, who will often turn aside. But the she-bear thus accosted, rends the peasant tooth and nail, For the female of the species is more deadly than the male.
+ - You must learn to forgive a man when he’s in love. He’s always a nuisance.
+ - Being kissed by a man who didn’t wax his moustache was-like eating an egg without salt.
+ - If the aunt of the vicar has never touched liquor, watch out when she finds the Champagne.
+ - More men are killed by overwork than the importance of the world justifies.
+ - We never pay anyone Dane-geld, No matter how trifling the cost; For the end of that game is oppression and shame, And the nation that plays it is lost!
+ - What is a woman that you forsake her, And the hearth-fire and the home-acre, To go with the old grey Widow-maker?
+ - None of the Jungle People like being disturbed.
+ - I’ve a neater, sweeter maiden in a cleaner, greener land!
+ - The first condition of understanding a foreign country is to smell it.
+ - The tumalt and shouting dies, The captains and the kings depart. Still stands thine ancient sacrifice, An humble and a contrite heat. Lord God of Hosts, be with us yet, Lest we forget, lest we forget.
+ - The silliest woman can manage a clever man; but it needs a very clever woman to manage a fool.
+ - And the first rude sketch that the world had seen was joy to his mighty heart, till the Devil whispered behind the leaves ‘It’s pretty, but is it Art?’
+ - Any fool can waste, any fool can muddle, but it takes something of a man to save, and the more he saves the more of a man does it make of him.
+ - No doubt but ye are the People – absolute, strong and wise; Whatever your hear has desired ye have not withheld from your eyes. On your own heads, in your own hands, the sin and the saving lies!
+ - There are nine-and-sixty ways of constructing tribal lays, And every single one of them is right.
+ - And when your back stops aching and your hands begin to harden, You will find yourself a partner in the Glory of the Garden.
+ - Often and often afterwards, the beloved Aunt would ask me why I had never told anyone how I was being treated. Children tell little more than animals, for what comes to them they accept as eternally established.
+ - These are the four that are never content: that have never been filled since the dew began- Jacala’s mouth, and the glut of the kite, and the hands of the ape, and the eyes of Man.
+ - Ye may kill for yourselves, and your mates, and your cubs as they need, and ye can; But kill not for pleasure of killing, and seven times never kill Man!
+ - Well, if I am a man, a man I must become.
+ - As surely as Water will wet us, as surely as Fire will burn, The Gods of the Copybook Headings with terror and slaughter return!
+ - Of all the trees that grow so fair Old England to adorn, Greater are none beneath the Sun Than Oak, and Ash and Thorn.
+ - Tis beauty, so to speak, nor good talk necessarily. It’s just IT. Some women will stay in a man’s memory if they once walked down a street.
+ - Teach us delight in simple things, and mirth that has no bitter springs.
+ - One cannot resist the lure of Africa.
+ - Oh, Adam was a gardener, and God who made him sees That half a proper gardener’s work is done upon his knees, So when your work is finished, you can wash your hands and pray For the Glory of the Garden, that it may not pass away!
+ - Though our smoke may hide the Heavens from your eyes, It will vanish and the stars will shine again, Because, for all our power and weight and size, We are nothing more than children of your brain!
+ - All the people like us are we, and everyone else is They.
+ - Shere Khan, the Big One, has shifted his hunting grounds. He will hunt among these hills for the next moon, so he has told me.
+ - All we have of freedom All we use or know This our fathers bought for us Long and long ago.
+ - Lord God of Hosts, be with us yet, Lest we forget – lest we forget!
+ - Never was isle so little, never was sea so lone, But over the scud and the palm-trees an English flag was flown.
+ - Not getting what you want either means you don’t want it enough, or you have been dealing too long with the price you have to pay.
+ - They shut the road through the woods Seventy years ago. Weather and rain have undone it again, And now you would never know There was once a road through the woods.
+ - As the dawn comes up like thunder.
+ - And the talk slid north, and the talk slid south With the sliding puffs from the hookah-mouth; Four things greater than all things are Women and Horses and Power and War.
+ - Daughter am I in my mother’s house, but mistress in my own.
+ - If any Question why We Died Tell them because our Father’s Lied.
+ - The glory of the garden lies in more than meets the eye.
+ - Follow the dream, and always the dream, and only the dream.
+ - Hear and attend and listen; for this befell and behappened and became and was: O my Best Beloved, when the tame animals were wild.
+ - The white moth to the closing vine, The bee to the open clover, And the Gypsy blood to the Gypsy blood Ever the wide world over.
+ - Never praise a sister to a sister, in the hope of your compliments reaching the proper ears, and so preparing the way for you later on. Sisters are women first, and sisters afterwards; and you will find that you do yourself harm.
+ - Something I owe to the soil that grew-More to the life that fed-But most to Allah who gave me two Separate sides of my head. I would go without shirt or shoes, Friends, tobacco, or bread Sooner than for an instant lose Either side of my head.
+ - It takes a great deal of Christianity to wipe out uncivilized Eastern instincts, such as falling in love at first sight.
+ - Good luck go with you, O Chief of the Wolves. And good luck and strong white teeth go with noble children that they may never forget the hungry in this world.
+ - Brothers and Sisters, I bid you beware Of giving your heart to a dog to tear.
+ - And some can pot begonias and some can bud a rose, And some are hardly fit to trust with anything that grows...
+ - I worked like a horse and I ate like a hog and I slept like a dead man.
+ - Cities and Thrones and Powers Stand in Time’s eye, Almost as long as flowers, Which daily die.
+ - Adam was a gardener, and God, who made him, sees that half of all good gardening is done upon the knees.
+ - Never praise a sister to a sister, in the hope of your compliments reaching the proper ears.
+ - At two o’clock in the morning, if you open your window and listen, You will hear the feet of the Wind that is going to call the sun. And the trees in the Shadow rustle and the trees in the moonlight glisten, And though it is deep, dark night, you feel that the night is done.
+ - Heaven grant us patience with a man in love.
+ - San Francisco is a mad city – inhabited for the most part by perfectly insane people whose women are of a remarkable beauty.
+ - Fiction is Truth’s elder sister. Obviously. No one in the world knew what truth was till some one had told a story.
+ - And that is called paying the Dane-geld; but we’ve proved it again and again, that if once you have paid him the Dane-geld you never get rid of the Dane.
+ - It is always a temptation to a rich and lazy nation, To puff and look important and to say:- ‘Though we know we should defeat you, we have not the time to meet you, We will therefore pay you cash to go away.’
+ - What is the moral? Who rides may read.
+ - But remember please, the Law by which we live, we are not built to comprehend a lie, we can neither love nor pity nor forgive. If you make a slip in handling us you die.
+ - Englishmen are not usually softened by appeals to the memory of their mothers.
+ - Favouritism governed kissage, Even as it does in this age.
+ - And no one shall work for money, and no one shall work for fame, But each for the joy of the working, and each, in his separate star, Shall draw the Thing as he sees It for the God of Things as They are!
+ - The toad beneath the harrow knows Exactly where each tooth point goes.
+ - Still stands thine ancient sacrifice – An humble and a contrite heart.
+ - A woman is only a woman, but a good cigar is a smoke.
+ - At twenty the things for which one does not care a damn should, properly, be many.
+ - I have eaten your bread and salt. I have drunk your water and wine. The deaths ye died I have watched beside And the lives ye led were mine.
+ - I never made a mistake in my life; at least, never one that I couldn’t explain away afterwards.
+ - Yet there be certain times in a young man’s life, when, through great sorrow or sin, all the boy in him is burnt and seared away so that he passes at one step to the more sorrowful state of manhood.
+ - A man’s mind is wont to tell him more than seven watchmen sitting in a tower.
+ - Single men in barricks don’t grow into plaster saints.
+ - Our loves are not given, but only lent, At compound interest of cent per cent.
+ - Satan himself can’t save a woman who wears thirty-shilling corsets under a thirty-guinea costume.
+ - Meddling with another man’s folly is always thankless work.
+ - She is intensely human, and lives to look upon life.
+ - I have my own matches and sulphur, and I’ll make my own hell.
+ - The world is very lovely, and it’s very horrible – and it doesn’t care about your life or mine or anything else.
+ - When man has come to the Turnstiles of Night, all the creeds in the world seem to him wonderfully alike and colorless.
+ - Gentleman-rankers out on the spree, damned from here to Eternity.
+ - I wasted my substance, I know I did, on riotous living, so I did, but there’s nothing on record to show I did more than my betters have done.
+ - If you hit a pony over the nose at the outset of your acquaintance, he may not love you but he will take a deep interest in your movements ever afterwards.
+ - All sensible men are of the same religion, but no sensible man ever tells.
+ - Ah! What avails the classic bent And what the cultured word, Against the undoctored incident That actually occurred? And what is Art whereto we press Through paint and prose and rhyme- When Nature in her nakedness Defeats us every time?
+ - Those who only know England know not England.
+ - Asia is not going to be civilized after the methods of the West. There is too much Asia and she is too old.
+ - But till we are built like angels, with hammer and chisel and pen, we will work for ourself and a woman, forever and ever, Amen.
+ - One half of my head, from the top of my skull to the cleft of my jaw, hammers, bangs, sizzles while the other half, serene and content, looks on at the agony next door.
+ - For all we take we must pay, but the price is cruel high.
+ - The Three in One, the One in Three? Not so! To my own Gods I go. It may be they shall give me greater ease than your cold Christ and tangled Trinities.
+ - Literature is a splendid mistress, but a bad wife.
+ - When young lips have drunk deep of the bitter waters of hate, suspicion and despair, all the love in the world will not wholly take away that knowledge. Though it may turn darkened eyes for a while to the light, and teach faith where no faith was.
+ - One learns more from a good scholar in a rage than from a score of lucid and laborious drudges.
+ - We have done with Hope and Honour. we are lost to Love and Truth, We are dropping down the ladder rung by rung; And the measure of our torment is the measure of our youth. God help us, for we knew the worst too young!
+ - And that after this is accomplished, and the brave new world begins, when all men are paid for existing and no man must pay for his sins.
+ - Every woman knows all about everything.
+ - The heart of a man to the heart of a maid- Light of my tents, be fleet- Morning awaits at the end of the world, And the world is all at our feet.
+ - Many religious people are deeply suspicious. They seem, for purely religious purposes, of course, to know more about iniquity than the unregenerate.
+ - I have no gift of words, but I speak the truth.
+ - TWENTY bridges from Tower to Kew – Wanted to know what the River knew, Twenty Bridges or twenty-two, For they were young, and the Thames was old And this is the tale that River told:.
+ - But he couldn’t lie if you paid him and he’d starve before he stole.
+ - The Navy is very old and very wise.
+ - It was the forty-fathom slumber that clears the soul and eye and heart, and sends you to breakfast ravening.
+ - A people always ends by resembling its shadow.
+ - Youth had been a habit of hers for so long that she could not part with it.
+ - If you give someone more than they can do, they will do it. If you give them only what they can do, they will do nothing.
+ - You perceive, do you not, that our national fairy tales reflect the inmost desires of the Briton and the Gaul?
+ - Till the master of all good workmen shall set us to work anew.
+ - Go softly by that river side Or when you would depart, You’ll find its every winding tied; And knotted round your heart.
+ - Buy a pup and your money will buy Love unflinching that cannot lie.
+ - The jungle speaks to me because I know how to listen.
+ - Brother, thy tail hangs down behind.
+ - All gods have good points, just as have all priests. Personally, I attach much importance to Hanuman, and am kind to his people the great gray apes of the hills. One never knows when one may want a friend.
+ - He who faces no calamity gains no courage.
+ - Everyone is more or less mad on one point.
+ - It’s clever, but is it Art?
+ - The American has no language, he has a dialect, slang, provincialism, accent and so forth.
+ - Good Lord! who can account for the fathomless folly of the public?
+ - The American does not drink at meals as a sensible man should. Indeed, he has no meals. He stuffs for ten minutes thrice a day.
+ - You sometimes see a woman who would have made a Joan of Arc in another century and climate, threshing herself to pieces over all the mean worry of housekeeping.
+ - Let all who build beware The load, the shock, the pressure Material can bear. So, when the buckled girder Lets down the grinding span, The blame of loss, or murder, Is laid upon the man. Not on the Stuff – the Man!
+ - Like the destroyer, the submarine has created its own type of officer and man with language and traditions apart from the rest of the service, and yet at the heart unchangingly of the Service.
+ - For undemocratic reasons and for motives not of State, they arrive at their conclusions, largely inarticulate. Being void of self-expression they confide their views to none; but sometimes in a smoking room, one learns why things were done.
+ - After violent emotion most people and all boys demand food.
+ - Once there was The People – Terror gave it birth.
+ - There’s a Legion that never was ’listed, That carries no colours or crest, But, split in a thousand detachments, Is breaking the road for the rest.
+ - God help us for we knew the worst too young.
+ - An angry skipper makes an unhappy crew.
+ - It thrilled through him when he first felt the keel answer to his hand on the spokes and slide over the long hollows as the foresail scythed back and forth against the blue sky.
+ - One can’t prescribe books, even the best books, to people unless one knows a good deal about each individual person.
+ - I’ve taken my fun where I’ve found it.
+ - For the sin they do by two and two they must pay for one by one.
+ - Men, not children or servants, tempered and taught to the end; Cleansed of servile panic, slow to dread or despise, Humble because of knowledge, mighty by sacrifice.
+ - A boy of to-day is affected by every change of tone and gust of opinion, so that he lies even when he desires to speak the truth.
+ - Most amusements only mean trying to win another person’s money.
+ - When your Daemon is in charge, do not try to think consciously. Drift, wait, and obey.
+ - Our England is a garden, and such gardens are not made By singing ‘Oh how wonderful’ and sitting in the shade, While better men than we go out, and start their working lives By grubbing weeds from garden paths with broken dinner knives.
+
+226 quotes

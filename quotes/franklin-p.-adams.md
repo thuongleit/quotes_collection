@@ -1,0 +1,39 @@
+ - Nothing is more responsible for the good old days than a bad memory.
+ - Christmas is over and Business is Business.
+ - Remember how excited you were when you turned five years old. Today, you should be 10 times that excited. Happy 50th birthday!
+ - Money isn’t everything, but lack of money isn’t anything.
+ - The best part of the fiction in many novels is the notice that the characters are purely imaginary.
+ - When a man you like switches from what he said a year ago, or 4 years ago, he is a broad-minded person who has courage enough to change his mind with changing conditions. When a man you don’t like does it, he is a liar who has broken his promises.
+ - Chaos breeds life, while order breeds success.
+ - Drinking is bad taste but tastes good.
+ - While the work or play is on, it is a lot of fun if while you are doing one you don’t constantly feel that you ought to be doing the other.
+ - You can learn many things from children. How much patience you have, for instance.
+ - And of all glad words of prose or rhyme, The gladdest are Act while there yet is time.
+ - Seeing ourselves as others see us would probably confirm our worst suspicions about them.
+ - Nobody can write such ironic things unless he has a deep sense of injustice-injustice to those members of the race who are victims of the stupid, the pretentious and the hypocritical.
+ - Prohibition is an awful flop. We like it. It can’t stop what it’s meant to stop. We like it. It’s left a trail of graft and slime It don’t prohibit worth a dime It’s filled our land with vice and crime, Nevertheless, we’re for it.
+ - Accustomed as I am to public speaking, I know the futility of it.
+ - I hate the pollyanna pest who says that all is for the best.
+ - Too much truth is uncouth.
+ - One man’s pointlessness is another’s barbed satire.
+ - You do not know what you can miss before you try.
+ - The best bet you get is an even break.
+ - Having imagination, it takes you an hour to write a paragraph that, if you were unimaginative, would take you only a minute. Or you might not write the paragraph at all.
+ - Day after day, night after night, my life at home is far from bright, but even home has more variety, than I can find in cafe society.
+ - When the political columnists say ‘Every thinking man’ they mean themselves, and when candidates appeal to ‘Every intelligent voter’ they mean everybody who is going to vote for them.
+ - Every time we tell anybody to cheer up, things might be worse, we run away for fear we might be asked to specify how.
+ - Ninety-two percent of the stuff told you in confidence you couldn’t get anyone else to listen to.
+ - There is no accounting for tastes, as the woman said when someone told her her son was wanted by the police.
+ - Life, lift the full goblet – away with all sorrow – The circle of friendship what freedom would sever? To-day is our own, and a fig for to-morrow – Here’s to the Fourth and our country forever.
+ - Our notion of an optimist is a man who knowing that each year was worse than the preceding, thinks next year will be better. And a pessimist is a man who knows the next year can’t be worse than the last one.
+ - We deny that it is fun to be saving. It is fun to be prodigal. Go to the butterfly, thou parsimonious sluggard; consider her ways and get wise.
+ - There are hundreds who can stand failure to one who can stand success; the good loser is far more common than the good winner.
+ - Conscience: A small, still voice that makes minority reports.
+ - Count the day won, when the earth, turning on its axis, imposes no additional taxes.
+ - In the order named, these are the hardest to control: Wine, Women, and Song.
+ - I am easily influenced. Compared with me a weather vane is Gibraltar.
+ - If a man keeps his trap shut, the world will beat a path to his door.
+ - An extravagance is something you buy which is no earthly use to your wife.
+ - To err is human; to forgive, infrequent.
+
+37 quotes

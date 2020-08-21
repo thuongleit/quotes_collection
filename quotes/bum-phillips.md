@@ -1,0 +1,32 @@
+ - Respect all. Fear none.
+ - The only discipline that lasts is self-discipline.
+ - Winning is only half of it. Having fun is the other half.
+ - You fail all the time, but you aren’t a failure until you start blaming someone else.
+ - I’d rather have preparation than motivation. Everyone likes to play, but no one likes to practice.
+ - I don’t mind people thinking I’m stupid, but I don’t want to give them any proof.
+ - The trouble with most coaches is that they start with the assumption that everybody is a turd. And that ain’t right.
+ - Because she is too ugly to kiss goodbye.
+ - There’s two kinds of coaches, them that’s fired and them that’s gonna be fired.
+ - I done drew the line. Just like the Alamo. You’re either on one side of the line or the other. I don’t want to ever leave Texas again.
+ - Nothing. And, I don’t start before noon.
+ - Loyalty, up and down the line. That’s one quality an organization must have to be successful.
+ - Hear about the Californian terrorist that tried to blow up a bus? Burned his lips on the exhaust pipe. He can take his’n and beat your’n, then he can take your’n and beat his’n.
+ - Mama always said that if it can’t rain on you, you’re indoors.
+ - Coaching is not how much you know. It’s how much you can get players to do.
+ - When it’s first and a mile, I won’t give it to him.
+ - If I drop dead tomorrow, at least I’ll know I died in good health.
+ - You don’t know a ladder has splinters until you slide down it.
+ - The harder we played, the behinder we got.
+ - Yeah, that test says he’s dumb as a fence post, but when he hits he looks like Einstein to me.
+ - Rogers sees daylight. Campbell makes daylight.
+ - I always thought I could coach. I just thought people were poor judges of good coaches.
+ - How do you win? By getting average players to play good and good players to play great. That’s how you win.
+ - I know why we lost the Civil War. We must have had the same officials.
+ - He may not be in a class all by himself, but it don’t take long to call the roll.
+ - You don’t win by making sensational plays; you win by not making mistakes.
+ - Yep. And I noticed how slowly he went down each time, too.
+ - The film looks suspiciously like the game itself!
+ - I don’t need the news. If they have a war, I figure someone will tell me.
+ - An expert is an ordinary fella away from home.
+
+30 quotes

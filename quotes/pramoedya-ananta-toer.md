@@ -1,0 +1,43 @@
+ - Kau terpelajar, cobalah bersetia pada kata hati.
+ - Orang boleh pandai setinggi langit, tapi selama ia tidak menulis, ia akan hilang di dalam masyarakat dan dari sejarah. Menulis adalah bekerja untuk keabadian.
+ - Menulis adalah sebuah keberanian...
+ - Seorang terpelajar harus juga belajar berlaku adil sudah sejak dalam pikiran, apalagi perbuatan.
+ - Berterimakasihlah pada segala yang memberi kehidupan.
+ - Dan alangkah indah kehidupan tanpa merangkak-rangkak di hadapan orang lain.
+ - Masa terbaik dalam hidup seseorang adalah masa ia dapat menggunakan kebebasan yang telah direbutnya sendiri.
+ - Kalau kemanusiaan tersinggung, semua orang yang berperasaan dan berfikiran waras ikut tersinggung, kecuali orang gila dan orang yang berjiwa kriminal, biarpun dia sarjana.
+ - Kalian boleh maju dalam pelajaran, mungkin mencapai deretan gelar kesarjanaan apa saja, tapi tanpa mencintai sastra, kalian tinggal hanya hewan yang pandai.
+ - Tak ada satu hal pun tanpa bayang-bayang, kecuali terang itu sendiri.
+ - Kau akan berhasil dalam setiap pelajaran, dan kau harus percaya akan berhasil, dan berhasillah kau; anggap semua pelajaran mudah, dan semua akan jadi mudah; jangan takut pada pelajaran apa pun, karena ketakutan itu sendiri kebodohan awal yang akan membodohkan semua.
+ - Hidup tanpa harapan adalah hidup yang kosong.
+ - Painting is literature in colors. Literature is painting in language.
+ - Kalau mati, dengan berani; kalau hidup, dengan berani. Kalau keberanian tidak ada, itulah sebabnya setiap bangsa asing bisa jajah kita.
+ - Kau Pribumi terpelajar! Kalau mereka itu, Pribumi itu, tidak terpelajar, kau harus bikin mereka jadi terpelajar. Kau harus, harus, harus, harus bicara pada mereka, dengan bahasa yang mereka tahu.
+ - The love I knew was from books...
+ - Every book that is banned is a badge of honor.
+ - I don’t write to give joy to readers but to give them a conscience.
+ - An educated person must learn to act justly, beginning, first of all, with his thoughts, then later in his deeds. That is what it means to be educated.
+ - Aku bangga menjadi seorang liberal, Tuan, liberal konsekwen. Memang orang lain menamainya liberal keterlaluan. Bukan hanya tidak suka ditindas, tidak suka menindas, lebih dari itu: tidak suka adanya penindasan...
+ - Jarang orang mau mengakui, kesederhanaan adalah kekayaan yang terbesar di dunia ini: suatu karunia alam. Dan yang terpenting diatas segala-galanya ialah keberaniannya. Kesederhaan adalah kejujuran, dan keberanian adalah ketulusan.
+ - Saya selalu percaya – dan ini lebih merupakan sesuatu yang mistis – bahwa hari esok akan lebih baik dari hari sekarang.
+ - Indonesia adalah negeri budak. Budak di antara bangsa dan budak bagi bangsa-bangsa lain.
+ - Life can give everything to whoever tries to understand and is willing to receive new knowledge.
+ - You must first of all think justly. Don’t sit in judgment over others when you don’t know the truth of the matter.
+ - Tanpa mempelajari bahasa sendiri pun orang takkan mengenal bangsanya sendiri.
+ - I’ll do as I please. My mind is not to be imprisoned.
+ - A mother knows what her child’s gone through, even if she didn’t see it herself.
+ - I happen to be pretty productive when I am in jail. When you are in jail, you have to spend more time with yourself.
+ - Menulislah sedari SD, apa pun yang ditulis sedari SD pasti jadi.
+ - Capital dictates the fate of humanity.
+ - It is proper for people to have friends, friendships without self-interest. Without friends, life is too lonely.
+ - Let us see whether it is the New Order or me who will be the loser before Indonesian history. I have won. The New Order has fallen and my writings have been translated into 40 languages.
+ - Pity is the feeling of well-intentioned people who are unable to act.
+ - At the beginning of all growth, everything imitates.
+ - The fracture of pencil still useful, but the fracture of soul, we couldn’t use it, Mister.
+ - Even though no one admits it, writers are leaders in their communities.
+ - I did not succeed in everything I did. And even where it did seem I was succeeding it was not always the case. The human heart has a million facets.
+ - Every good teaching may still end up producing evil bandits who have no principles whatsoever, an outcome even more likely when the teacher is also a bandit.
+ - I don’t follow any kind of ‘isms.’ If there is one, it will be Pram-ism.
+ - Every award for me is important because it means a slap against militarism and fascism in Indonesia.
+
+41 quotes

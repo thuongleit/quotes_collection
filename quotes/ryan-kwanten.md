@@ -1,0 +1,40 @@
+ - I have very high standards for myself and my career.
+ - I’m glad acting sunk its teeth into me, because now I can’t imagine doing anything else.
+ - In order to be able to give a girlfriend the amount of time she deserves, you would need time, and I just can’t give her that. So, rather than being selfish or stupid enough to go into a relationship, it’s just been easier to be single.
+ - I really do feel like Los Angeles is my home now and, as cliche as this sounds, I felt like I found myself here and I really know who I am now. There was a long period like I was drifting or floating through life, and now I feel like I have a definitive target – and future.
+ - Im not a big fan of the gym, I do lots of outdoor aerobics – yoga, swimming, running – but I kinda hate talking about it. We have a term in Australia, it makes you sound like a wanker.
+ - I used to get a sort of sociophobia, and I still get it sometimes these days when I’m in a confined space with too many people. It’s not like I freak out or anything, it’s just that I’m far more comfortable in my own company sometimes than being surrounded by one thousand strangers.
+ - I like to have a hectic schedule.
+ - Sleep has never been a priority in my life.
+ - I’m not one of those actors who asks for too many favours. So when I do, people tend to listen.
+ - Everyone in life knows what it’s like to be picked on and to feel like an outsider.
+ - My life is very much consumed with work.
+ - I’m very rarely in the gym. My workouts are predominantly outside, in nature.
+ - Even on a $100 million film, people will complain that they haven’t got enough money and enough time, so that’s always going to be an element in filmmaking.
+ - That’s something lacking in a lot of modern-day families – just talking. It’s almost a lost art form.
+ - Don’t feel like you’re alone because you’re not.
+ - My mum is about five foot with her hair done. Without it she’s about four foot 10.
+ - I’ve been acting for a long time now, but as narcissistic as this sounds – and I don’t mean it to sound – every time I see my name up there, there is real sense of pride.
+ - I’m not the kind of guy that inspires madness in people.
+ - I don’t necessarily find superheroes in general, for me, that appealing. I’d much prefer to play, if I was to be cast in a superhero film, I’d prefer to play the villain because there’s a reason, there’s a motive behind their madness.
+ - As actors, we deal with rejection so much more than any other business. So I don’t care how much of a genius you are, if you don’t have the propensity to be able to get back up every time you get knocked down, then you’re not going to survive.
+ - I’m more of a heat-of-the-moment type of guy. A friend will tell me about something coming up, maybe that weekend, and usually not an abundance of thought goes into my doing it.
+ - As my I guess, career’s advancing, for lack of a better word, I’m becoming a lot more passionate for the jobs that I do. So, it becomes easier when you like what you do.
+ - I never want to be that guy at a dinner table saying, ‘I wish I could have dessert.’ I actually went through a stage when I would order dessert first.
+ - Money has never been a huge inspiration for me.
+ - I’m drawn to a good story, really, as I hope most people are. For me, it’s the story that’s going to stay with you eventually, not necessarily the genre. I go to watch a film because of the story, not because it was a Western or a comedy.
+ - I’m not one of those actors who gets physically fit for a role and then loses it all again.
+ - It’s easier to promote things, if you have fans.
+ - I make about two movies a year outside the ‘True Blood’ schedule. I work on a great show six months a year, then outside that I get to satisfy whatever creative urges I have. It’s a great position, especially for a single guy like me.
+ - The fact that ‘True Blood’ affects people in this way is incredible to me – the fact we have to go to such great lengths to hide storylines just proves the cache our show has.
+ - I’m fortunate enough with the surfing to be very much at home at the water – my pulse and heart rate are slower in the water than they are on land.
+ - One of my favorite actors is Paul Newman. He could tell so much with a single look, whereas some actors would need an entire five page monologue to give off the feeling of what he could say with just a single look.
+ - I pride myself on breaking any box that anyone wants to put me in.
+ - I’m definitely an elbow-room guy.
+ - I love acting, so it’s easy when you have a passion for it. I’ve always found the harder you work, the luckier you get.
+ - I’m not really comfortable with who I am to be honest. I feel more free to step into the shoes of somebody else. There’s always an element of me in there but, you know, if you give me a script and some clothes I can do anything. But, as Ryan, I’m a bit of a recluse.
+ - I’ve always been relatively reserved with my social encounters.
+ - Going out there and promoting myself socially doesn’t really intrigue me. I’d much rather have my work do it for me.
+ - Fortunately, now I’ve got myself in a position where things are about story and not money. In my earlier career, it was more about getting my foot in the door and to get enough money to live, to be perfectly honest.
+
+38 quotes

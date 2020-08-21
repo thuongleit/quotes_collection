@@ -1,0 +1,29 @@
+ - You are a child of the universe, no less than the trees and the stars; you have a right to be here. And whether or not it is clear to you, no doubt the universe is unfolding as it should.
+ - With all its sham, drudgery, and broken dreams, it is still a beautiful world. Be cheerful. Strive to be happy.
+ - In the noisy confusion of life, keep peace in your soul.
+ - Avoid loud and aggressive persons, they are vexations to the spirit.
+ - If you compare yourself to others, you may become vain and bitter; for always there will be greater and lesser persons than yourself.
+ - Be cheerful. Strive to be happy.
+ - Keep interested in your own career, however humble; it is a real possession in the changing fortunes of time.
+ - Nurture strength of spirit to shield you in sudden misfortune. But do not distress yourself with imaginings. Many fears are born of fatigue and loneliness.
+ - As far as possible, without surrender, be on good terms with all persons.
+ - Whether of not it is clear to you, no doubt the universe is unfolding as it should...
+ - Lift up my eyes from the earth and let me not forget the uses of the stars.
+ - Therefore be at peace with God, whatever you conceive Him to be.
+ - Enjoy your achievements as well as your plans.
+ - Take kindly the counsel of the years, gracefully surrendering the things of youth.
+ - Beyond a wholesome discipline, be gentle with yourself.
+ - May I not forget that poverty and riches are of the spirit. Though the world knows me not, may my thoughts and actions be such as will keep me friendly with myself.
+ - You are a child of the universe...
+ - And though behind you lies a road of dust and heat and discouragement, and before you the challenge and uncertainty of untried paths, in this brief hour you are master of all highways, and the universe nestles in your soul.
+ - Nurture strength of spirit to shield you in sudden misfortune.
+ - I contracted a disease which I have never shaken off. The disease was idealism. Because of it, I did the thing in life I wanted to do – Writing.
+ - Let me not follow in the clamor of the world, but walk calmly in my path...
+ - Forbid that I should judge others, lest I condemn myself.
+ - And though age and infirmity overtake me, and I come not within sight of the castle of my dreams, teach me still to be thankful for life, and for time’s olden memories that are good and sweet; and may the evening’s twilight find me gentle still.
+ - Many fears are born of fatigue and loneliness.
+ - Let me do my work each day, and if the darkened hours of despair overcome me, may I not forget the strength that comforted me in the desolation of other times...
+ - For the entire Desiderata go to Inspirational Poems page.
+ - I should like, if I could, to leave a humble gift – a bit of chaste prose that had caught up some noble moods.
+
+27 quotes

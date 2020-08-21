@@ -1,0 +1,24 @@
+ - Too hot to handle, too cold to hold!
+ - I’m the tower of power, too sweet to be sour. I’m funky like a monkey. Sky’s the limit and space is the place!
+ - Hulkamania is like a single grain of sand in the Sahara desert that is Macho Madness.
+ - I’ve been in the danger zone.
+ - We’re in space and space is the place!
+ - Expect the unexpected in the kingdom of madness!
+ - I’ve been loving music all my life.
+ - Let me tell you now a man of my position can afford to look ridiculous at any time.
+ - Snap into a Slim Jim!
+ - What can I say about this move? Nothing so I won’t.
+ - You will eat my rear rockets and like it! Ohhhh yeahhh!
+ - There are no tough guys in wrestling.
+ - What a great way to see all of our legacies live on, through the video games.
+ - The tower of power, too sweet to be sour, ohhhh yeahh!
+ - Wrestling is a fraternity, and the boys will work their butts off for you as long as you respect them and don’t lie. You can’t anyone walk all over you or everybody will walk all over you.
+ - Being a wrestler is like walking on the treadmill of life. You get off it and it just keeps going.
+ - Ten thousand years as Intercontinental Champion, Oooooh yeeeah!
+ - From wrestling to my hip-hop thing, I’ve just been able to do so much and meet so many crazy characters.
+ - I used to hate old-timers who didn’t praise the younger wrestlers, but you’ve got to pass the torch sometime. If you’re old, that torch gets too heavy for you and you can’t carry it, so it won’t do you any good.
+ - Just because someone acts a certain way on TV, that doesn’t mean he’s like that in real life.
+ - Every sport has its own cast of characters.
+ - Yeah what were you doing at Wrestlemania? Ohhhh yeeeeah I’d like to know. You weren’t there to gloat were you? No I guess you weren’t.
+
+22 quotes

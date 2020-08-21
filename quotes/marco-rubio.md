@@ -1,0 +1,286 @@
+ - I’m not poor, but I’m not rich, either.
+ - Do not be afraid to offer ideas that draw opposition. Remember, if no one is against your idea, then your idea probably doesn’t do anything.
+ - Humans are not responsible for climate change in the way some of people are trying to make us believe, for the following reason: I believe the climate is changing because there’s never been a moment where the climate is not changing.
+ - Hope and Change has become Divide and Conquer.
+ - We don’t need new taxes. We need new taxpayers, people that are gainfully employed, making money and paying into the tax system. And then we need a government that has the discipline to take that additional revenue and use it to pay down the debt and never grow it again.
+ - Welders make more money than philosophers. We need more welders and less philosophers.
+ - Leadership can not be measured in a poll or even in the result of an election. It can only be truly seen with the benefit of time. From the perspective of 20 years, not 20 days.
+ - No matter where you’re born in life or what the circumstances are when you’re born, like your parents being poor or not connected to power, you have a chance in this country to go as far as your talent and your work will take you.
+ - We’re special because dreams that are impossible anywhere else, come true here. That’s not just my story. That’s your story. That’s our story.
+ - The way to turn our economy around is not by making rich people poorer, it’s by making poor people richer.
+ - Nothing matters if we aren’t safe.
+ - This is the only country in the world where today’s employee, is tomorrow’s employer.
+ - A sense that with the blessings that God bestowed upon this land, came the responsibility to make the world a better place.
+ - The problem is, if El Chapo builds a tunnel under the fence, we need to deal with that too.
+ - If you raise the minimum wage, you’re going to make people more expensive than a machine.
+ - Our national motto is ‘In God we Trust,’ reminding us that faith in our Creator is the most important American value of all.
+ - I would love nothing more than compromise. But I would say to you that compromise that’s not a solution is a waste of time.
+ - Raising the minimum wage may poll well, but having a job that pays $10 an hour is not the American Dream. And our current government programs, offer at best only a partial solution. They help people deal with poverty, but they do not help them escape it.
+ - We live in a society obsessed with public opinion. But leadership has never been about popularity.
+ - The only people benefiting from the status quo in immigration in the USA are the people trafficking human beings across the border, and the people who are hiring illegal labor for cheap purposes.
+ - Faith greatly shaped America’s role in the world. We are a country that embodies the Bible verse from Luke chapter 12, verse 48 “From everyone who has been given much, much will be demanded.”
+ - America is not perfect. It took a bloody civil war to free over 4 million African Americans who lived enslaved. It took another hundred years after that before they achieved full equality under the law.
+ - If my house was on fire, I can’t compromise about which part of the house I’m going to save. You save the whole house or it will all burn down. We either save this country or we do not.
+ - Our status as a land of equal opportunity has made us a rich and powerful nation, but it has also transformed lives. It has given people like me the chance to grow up knowing that no dream was too big and no goal out of reach.
+ - Today you have millions of Americans that feel left out and out of place in their own country, struggling to live paycheck to paycheck, called bigots because they hold on to traditional values.
+ - You cannot give up on the American dream. We cannot allow our fears and our disappointments to lead us into silence and into inaction.
+ - America is still the land of opportunity for most, but it is not a land of opportunity for all. If we are to remain an exceptional nation, we must close this gap in opportunity.
+ - Let’s stop talking about new taxes and start talking about creating new taxpayers, which basically means jobs.
+ - 70% of children born into poverty will never make it to the middle class. The uncomfortable truth is that there are now a number of other countries with as much or more opportunity than ours. In fact, more people in Canada go on to surpass the income of their parents than in the United States.
+ - If you’re an American citizen and you decide to join up with ISIS, we’re not going to read you your rights. You’re going to be treated as an enemy combatant, a member of an army attacking this country.
+ - Donald Trump is not a Republican. Donald Trump is not a conservative. Donald Trump is trying to pull off the biggest scam in American political history, basically a con job, where he’s trying to take over the Republican Party by telling people he’s someone who he is not.
+ - If you elect me president, we will have a president that believes America is the greatest country in the world and we will have a president that acts like it.
+ - The truth is, the greatest tool to lift children and families from poverty is one that decreases the probability of child poverty by 82%. But it isn’t a government spending program. It’s called marriage.
+ - I believe that there are barriers, educational barriers, cultural barriers, societal barriers, that are keeping people from accessing the promise of a vibrant free enterprise economy.
+ - But those who believe that what our people desire is big government are living in a state of delusion.
+ - You know that big government doesn’t hurt big corporations. They’ve got the best lawyers and accountants in the world. You know who gets destroyed by big government? It’s the little guys.
+ - I believe God has blessed our country. This country has been extraordinarily blessed.
+ - Americans chose a free enterprise system designed to provide a quality of opportunity, not compel a quality of results. And that is why this is only place in the world where you can open up a business in the spare bedroom of your home.
+ - This is the most generous country in the world when it comes to immigration. There are a million people a year who legally immigrate to the United States, and people feel like we’re being taken advantage of.
+ - You can’t carpet bomb ISIS if you don’t have planes and bombs to attack them with. And if we continue those cuts that we’re doing, not to mention additional cuts, we are going to be left with the oldest and the smallest Air Force this country has ever had, and that leaves us less safe.
+ - I don’t care how much you may think they’re funny or how interesting they may sound. If we nominate someone that 40 to 50 percent of our party doesn’t – can’t stand, we are going to lose.
+ - We focus so much on how immigrants can change America that we forget that America has always changed immigrants even more.
+ - We must change the decisions we are making by changing the people who are making them.
+ - Our brave men and women have made many sacrifices in just wars to defeat the forces of evil. We have exported our greatest values: freedom and opportunity, which have lifted millions out of poverty. At home, these values allow Americans to use their God-given potential and make their dreams reality.
+ - I challenge the Republican nominees and all Republicans to not just be the anti-illegal immigration party. That’s not who we are and that’s not who we should be we should be the pro-legal immigration party.
+ - The world is a better place because Saddam Hussein does not in Iraq.
+ - We’ve never been people that go around and confront people that have been financially successful and say, ‘We hate you. We envy you because of how well you’re doing.’
+ - Every nation on the Earth that embraces market economics and the free enterprise system is pulling millions of its people out of poverty. The free enterprise system creates prosperity, not denies it.
+ - The children of the Reagan Revolution are ready to assume the mantle of leadership.
+ - If we capture any of these ISIS killers alive, they are going to Guantanamo Bay, Cuba, and we’re going to find out everything they know, because when I’m president, unlike Barack Obama, we will keep this country safe.
+ - I think it’s a mistake to view North Korea as a government. It really is more like a criminal syndicate.
+ - The truth is every problem can’t be solved by government. Many are caused by the moral breakdown in our society. And the answers to those challenges lie primarily in our families and our faiths, not our politicians.
+ - Here in America, those who once had no hope will give their kids the chance at a life they always wanted for themselves. Here in America, generations of unfulfilled dreams will finally come to pass.
+ - We should be the pro-legal immigration party. A party that has a positive platform and agenda on how we can create a legal immigration system that works for immigrants and works for America.
+ - From tea parties to the election in Massachusetts, we are witnessing the single greatest political pushback in American history.
+ - It is hard for me to imagine retiring at 65 and spending the next quarter century not working. I expect to be working, doing something productive and fulfilling.
+ - I have been an underdog my whole life, both in life and in politics. We’re going to do well. We’re going to pick up a lot of delegates on Super Tuesday.
+ - The problem is that when government controls the economy, those who can influence government keep winning, and everybody else just stays the same.
+ - Conservatives aren’t anti-immigrant – conservatives are pro-legal immigration.
+ - If there’s somebody that I love that’s in my life, I don’t necessarily have to agree with their decisions or the decisions they’ve made to continue to love them and participate in important events.
+ - ISIS is winning the propaganda war. They are recruiting people, including Americans, to join them, with the promise that they are joining this great apocalyptic movement that is going to defeat the West.
+ - Donald Trump twitts “Lightweight Marco Rubio was working hard last night.” This is true. “The problem is he’s chalker and once a chalker, always a choker”, I guess that’s what he meant to say. He spelled choker, c-h-o-k-e-r.
+ - I owe a debt to America that I will never be able to repay.
+ - Under this president, we have a government that has grown too big, too costly and now even more overbearing by forcing religious entities to abandon their beliefs.
+ - I don’t ever remember them telling us or teaching us that the only way we could be more successful is if other people were less successful. They never inculcated the belief that somehow, in order for us to climb the ladder, other people have to come down from the ladder.
+ - We have to show what life is really like in ISIS territory, and we have to show them why ISIS is not invincible, by going out and conducting these attacks and publicizing them to those who they recruit.
+ - My dad was a bartender. My mom was a cashier, a maid and a stock clerk at K-Mart. They never made it big. They were never rich. And yet they were successful. Because just a few decades removed from hopelessness, they made possible for us all the things that had been impossible for them.
+ - I am but a generation removed from poverty and despair. Where would I be today if there had never been an America? What kind of lives or future would my children have if this was not a land of opportunity?
+ - What is the conservative movement? It’s pretty straightforward. We believe that the way prosperity is created is when people have the freedom and the opportunity to pursue their dreams.
+ - If someone knows of a job creator anywhere in the world that’s looking for a high, complex tax environment or looking for a high regulatory environment, I would like to meet them because I have yet to meet a job creator that’s looking for that, and that’s what we have.
+ - I would say we must win the information war against ISIS. Every war we have ever been involved in has had a propaganda informational aspect to it.
+ - Big government helps the people who have made it. It doesn’t help the people who are trying to make it; it crushes the people who are trying to make it.
+ - Despite our differences, I know that both Republicans and Democrats love America.
+ - I think future generations will look back at this history of our country and call us barbarians for murdering millions of babies who we never gave a chance to live.
+ - Florida is not going to vote for a con artist like Donald Trump.
+ - Barack Obama doesn’t believe in free enterprise. He’s never going to admit it. For instance, he’s never going to come straight out and say, ‘If you own a business you didn’t build it.’ Alright, maybe he will.
+ - Bashar Assad is one of the main reasons why ISIS even exists to begin with. Assad is a puppet of Iran.
+ - I want immigration reform to pass, I want people to be able to come out of the shadows.
+ - These terrorists aren’t trying to kill us because we offended them. They attack us because they want to impose their view of the world on as many people as they can, and America is standing in their way.
+ - That thought process that somehow other people have to be worse off in order for you to be better off does not work. People get on boats people jump fences to get away from that kind of thought process.
+ - Unlike any other leader in modern American history, we are led today by a president that has decided to pit Americans against each other.
+ - The erosion of equal opportunity is among the greatest threats to our exceptionalism as a nation. But it also provides us with an exciting and historic opportunity: to help more people than ever achieve the American Dream.
+ - No matter where I go or what title I may achieve, I will always be the son of exiles.
+ - Americans believe with all their heart, the vast majority of them, and the vast majority of Floridians, that the United States of America is simply the single greatest nation in all of human history.
+ - Bashar Assad has been so brutal toward the Sunni within Syria that he created the space that led to the people of Syria themselves to stand up and try to overthrow him. That led to the chaos which allowed ISIS to come in and take advantage of that situation and grow more powerful.
+ - It’s not in our nature. Americans have never been a people that drive through a nice neighborhood and say, ‘Oh, I hate the people who live in these nice houses.’
+ - America is the story of everyday people who did extraordinary things. A story woven deep into the fabric of our society.
+ - I am privileged to be a citizen of the single greatest society in all of human history.
+ - But let me tell you what happens when regulations go too far, when they seem to exist only for the purpose of justifying the existence of a regulator. It kills the people trying to start a business.
+ - For many of us who were born and raised in this country, including me, it’s sometimes easy to forget how special America really is.
+ - Even if we didn’t have a single person in the USA in violation of immigration laws, we’d still have to do immigration reform, because our legal immigration system is broken. It’s not good for anybody.
+ - The evidence is now clear that the majority of people coming across the border are not from Mexico. They’re coming from Guatemala, El Salvador, Honduras. Those countries are the source of the people that are now coming in its majority.
+ - When you say I want to talk about racial justice, that’s not the same as saying I want to do something about racial justice.
+ - There’s never going to be a time where the Republican Party rallies around and says you have to get out or anyone has to get out for purposes of rallying around Donald Trump.
+ - The American people don’t trust the Federal Government to enforce our immigration laws, and we will not be able to do anything on immigration until we first prove to the American people that illegal immigration is under control. And we can do that. We know what it takes to do that.
+ - Once again, America finds itself with some leaders who believe we can ignore the world without consequences here at home. Apparently they’re oblivious to the reality that we are less insulated from global events than ever before.
+ - No economic system is perfect. But the American Free Enterprise system has empowered millions of people in the past. I know, because I saw it with my own eyes.
+ - All of these things we’re talking about now, it will take time to sink in. But when voters begin to realize what we’re really up against here, and what he’s trying to do, I think you’re going to see a sea shift here pretty quickly.
+ - There is not a single person in the national defense apparatus of this country that can guarantee you are going to be 100 percent right. And that’s why as president, I’ll take this very seriously.
+ - No community values entrepreneurship and small business more than the Hispanic community.
+ - I tell people all the time that I was born and raised in Ronald Reagan’s America.
+ - American Dream Is Under Assault. People that haven’t been able to find a job in months and this growing sense in this country that this is the new normal, well we can’t accept that.
+ - Let us agree here today to adopt among ourselves a simple and unwritten rule. We will not rise to criticize someone else’s idea unless we are prepared to offer an alternative idea of our own.
+ - Donald Trump pulling off a world-class scam here. I mean, he’s telling people he’s all these things that he’s never been his entire life. He says he’s fighting for the little guy, the working class. He has spent his entire business career sticking it to working people.
+ - The war on poverty programs help address the pain of poverty.
+ - I run for president because I believe that we can’t just save the American dream; we can expand it to reach more people and change more lives than ever before.
+ - When was the last time you heard news accounts of a boatload of American refugees arrive on the shores of another country?
+ - And that sort of victimization narrative is something we shouldn’t contribute to. On the other hand, we have to acknowledge that there is a radical element in Islam, jihadism, that needs to be called by name and needs to be confronted.
+ - After a migratory crisis on the border with minors coming over that you’re seeing start up again now, after all these executive orders the President has issued. More than ever we need to prove to people that illegal immigration is under control.
+ - To tackle the big and relevant issues of the day with bold and innovative ideas is without question the most rewarding way to serve.
+ - I am not now, nor will I ever be, a candidate for offensive coordinator of Iowa.
+ - The most important thing of all is my parents were able to leave all four of their children better off than themselves. That story has a name, it’s called the American dream.
+ - If you’re running to be president of the United States, you can’t just tell people you’re going to make America great again. I think you need to begin to explain exactly how you’re going to do it policy-wise. We’re not going to win a general election with a candidate that refuses to detail policy.
+ - Let’s be honest – Bill Murray was onto something when he laughed at Andie MacDowell’s degree in 19th century French poetry in ‘Groundhog Day’
+ - We are special because we’ve been united not by a common race or ethnicity. We’re bound together by common values. That family is the most important institution in society. That almighty God is the source of all we have.
+ - If Cuba wants normal relations, there’s certain things they need to do like become a normal country that respects the rights of their citizens.
+ - A president cannot make decision on what someone might know in the future.
+ - Conservatism has always been about reforming government and solving problems, and that’s why the conservative movement should lead on immigration reform.
+ - When you talk about entitlement programs, it’s not just about – it’s not about cutting those programs. It is about saving those programs. Those programs are on a path of fiscal unsustainability.
+ - Free enterprise makes people prosperous, all people prosperous, and big government makes people poorer.
+ - I believe in freedom of speech. And I believe that spending on political campaigns is a form of political speech that is protected under the constitution.
+ - What I’m not – I can’t control other people’s campaigns. If they decide that’s what they want to do with their time and money, they certainly have a right to do it.
+ - Never has the political class or the mainstream media that covers them been more out of touch with the American people than they are today.
+ - It’s easy to stand up and say I will destroy ISIS; I will make the sands in the Middle East glow in the dark. Well, that’s fine, but you have to have something to do that with.
+ - America is greatest country; but not our government.
+ - The government can’t change the weather.
+ - Leaders at the highest levels of our government are undertaking a deliberate and systematic effort to redefine our government, our economy and our country.
+ - 2010 is not just a choice between Republicans and Democrats. 2010 is not just a choice between liberals and conservatives. 2010 is a referendum on the very identity of our nation.
+ - Increasing access to federal student loans has been a bipartisan effort in Washington, one that I have supported. But it has created what many experts believe is a bubble in higher education, not unlike the housing bubble that preceded the financial crisis.
+ - We need transparency in government spending. We need to put each government expenditure online so every Floridian can see where their tax money is being spent.
+ - I’m very realistic about the challenges we face. OK? I have seen it up close in 2010. It’s why I ran for the Senate five years ago. I have only been there five years, but it’s been enough time to know the damage Barack Obama has done to this country.
+ - Government should allow people to go out and do the things Americans have always done, create jobs and prosperity. And America’s role in the world – the world is a safer and better place when America is the strongest country in the world.
+ - Ted Cruz supported a 500-percent increase in the number of H-1 visas, the guest workers that are allowed into this country, and Ted supports doubling the number of green cards.
+ - Well, who’s going to be fired when Ted Cruz is president? Because this campaign now has repeatedly done things that they have to apologize for and no one’s ever held accountable.
+ - Donald Trump is never going to be the nominee. So, I’m not worried about a hypothetical that’s never going to happen.
+ - The terrorists that attacked us in San Bernardino was an American citizen, born and raised in this country. And I bet you we wish we would have had access to five years of his records so we could see who he was working with.
+ - You know, now that I come to think of it, the blizzard may be the best thing to happen to the American economy in 12 months.
+ - I can tell you what I believe, particularly about Mexican-Americans: they are a community that has contributed greatly to this country, they work extremely hard, they’ve been very productive citizens of our country, and I think that’s true of many ethnic groups in this country.
+ - I mean, on virtually every major issue before this country that is the natural purview of the federal government, it’s important to have some specificity about what you’re going to do if you want to be the president. And so I agree that, up until this point, it hasn’t been a huge factor.
+ - I do think we lost some of the focus on the attacks in San Bernardino and focused on a plan that isn’t really a plan and is never going to happen.
+ - It wouldn’t be bad to have the Secret Service keeping an eye on my teenage daughter. I personally am not troubled by the fact that there would be a couple of big guys with earpieces beside her, just in case.
+ - As Pope Francis visits the United States for the very first time, it is our privilege as Catholics and Americans to welcome His Holiness to our country. Here, he will find people who are uniquely free.
+ - Well, the most important thing a president will be is commander-in-chief. And that requires having an understanding of the complex issues on foreign policy. Foreign policy presents us often with hard choices, not black or white choices.
+ - We need to put people on the bench that understand the Constitution is not a living and breathing document. It is to be interpreted as originally meant.
+ - Of course there are critics who believe that no matter what we do, the Florida dream is over. They claim that we must accept the idea that inevitably our future is one of high taxes and big government.
+ - Even today with the problems that we face, who would you rather be? Which country would you trade places with?
+ - Here’s the bigger problem with all this, we’re not interrogating anybody right now. Guantanamo’s being emptied by this president. We should be putting people into Guantanamo, not emptying it out, and we shouldn’t be releasing these killers who are rejoining the battlefield against the United States.
+ - I think Republicans need to do a better job of reaching out to everyone in the United States. Politics is always about getting the support of the majority of our people.
+ - My dad was a bartender that worked banquets.
+ - National security – the military is the first thing we should spend money on. You have to fully fund that first. And then you should be paying for everything else.
+ - I don’t really like labels in politics, but I will gladly accept the label of conservatism.
+ - For those who aspire to live in a high cost, high tax, big government place, our nation and the world offers plenty of options. Vermont, Canada and Venezuela all offer you the opportunity to live in the socialist, big government paradise you long for.
+ - It is true, we should not be discussing in a wide spread way the exact tactics that we’re going to use because that allows terrorist to know to practice how to evade us.
+ - And I think for some – not all – but for some Democrats, the issue of immigration is better politically if they just leave it the way it is now because they can use it against Republicans.
+ - The president we have today is a typical Washington politician that’s prone to hyperbole and decisiveness and false outrage. And I think it’s very sad – very sad to watch.
+ - The Second Amendment is a constitutional right. I didn’t make it up, the Republican Party didn’t make it up. It’s in the Constitution. I think it’s just as important as any of the other rights in our constitution.
+ - Immigration is not an issue that I read about in the newspaper or watch a documentary on PBS or CNN. It’s an issues I’ve lived around my whole life. My family are immigrants. My wife’s family are immigrants. All of my neighbors are immigrants.
+ - In order to have middle-income, middle-paying jobs, the kinds of jobs that allow people to get ahead, you have to have higher level of training and skill acquisition and education than ever before.
+ - I want people to make a lot more than $9 – $9 is not enough. The problem is you can’t do that by mandating it in the minimum wage laws. Minimum wage laws have never worked in terms of having the middle class attain more prosperity.
+ - Foreign aid is important. If it’s done right, it spreads America’s influence around the world in a positive way.
+ - We have a government that borrows $4 billion a day. We have a government that owes trillions of dollars in debt, half of that to foreigners, most of that to Chinese investors. I don’t – that is extreme. Not only is it extreme. It’s insane and it’s unsustainable.
+ - It’s impossible to walk a block in Miami, in Los Angeles, San Antonio without running into someone who is being deeply impacted by a broken legal immigration system.
+ - Tourist trips to Cuba are being abused. They are tourist trips that are providing hard currency for a dictatorial, tyrannical regime to get hard currency that it uses to oppress its people. And that’s why these trips need to be carefully scrutinized.
+ - We need 21st century programs. We have to change the dynamic because the world – we’re not in the Industrial Revolution anymore, where you could leave high school, go work at the town factory for 50 years, and retire with a pension.
+ - I think, in the long term it’s in the goal of everyone to see a unified Korea that actually provides for the people of North Korea the kind of life that they need.
+ - What’s important to do is we must deal frontally with this threat of radical Islamists, especially from ISIS. This is the most sophisticated terror group that has ever threatened the world or the United States of America.
+ - When I’m president of the United States, we’re going to have a VA that cares more about our veterans than about the bureaucrats who work at the VA.
+ - To help people emerge from the poverty, you have to understand, what are the structural causes of it. And the structural causes are partially cultural.
+ - I think we need to simplify our tax code, but not as a way of generating revenue, as a way of making our tax code more growth- friendly.
+ - The idea that more taxes and more government spending is the best way to help hardworking middle class taxpayers – that’s an old idea that’s failed every time it’s been tried.
+ - So the majority of Americans are conservatives. They believe in things like the Constitution. I know that’s weird to some people but they believe in it.
+ - Let’s stop big government energy mandates like cap-and-trade, and instead trust the American innovator to make us energy independent.
+ - Mitt Romney will stop the attacks on job creators, encourage entrepreneurs to chase their dreams, and bring good jobs and a better future to all Americans.
+ - I’m running for president because there’s no way we can elect Hillary Clinton to continue the policies.
+ - The media coverage for Donald Trump has been almost cheerleading. I’m convinced it’s because many in the press want him to be the nominee.
+ - Cuban agents are assigned to a Catholic Church where their instructions are to beat, jail and intimidate the Ladies In White that attend Mass and who afterwards peacefully take to the streets calling for the release of their husbands, sons and fathers who are political prisoners.
+ - When I got to the Senate, one of the things that most bothered me is this lack of urgency about the major issues.
+ - They made it to the middle class, my dad working as a bartender and my mother as a cashier and a maid. I didn’t inherit any money from them. But I inherited something far better – the real opportunity to accomplish my dreams.
+ - I don’t buy into the dystopian scenarios of self-aware robots enslaving mankind, but you don’t have to be a sci-fi conspiracy theorist to acknowledge that plenty of good, well-paying jobs are being taken over by machines.
+ - We will either bring on another American century, or we are doomed to witness America’s decline.
+ - Every generation in America has faced the same question, do we we want America to be special? Or do we just want America to be another country? The time has come again.
+ - If I were running to be somebody, there are a lot of easier sombodies to be. After all, running against the incumbent governor of your own party in your home state is not the next logical step in a political life.
+ - And I can tell you that history will back up what I’m about to say and that is that there is no government run by conservatives, Republicans, put whoever you want there, if you give government the opportunity to spend more money than it has, it will do it. It will do it every time.
+ - The Obama Administration’s obsession with forcing mandates on the American people has now reached a new low by violating the conscience rights and religious liberties of our people.
+ - Barack Obama’s a terrible commander-in-chief. He is gutting our military. It’s not an exaggeration.
+ - I’ve got a record in Florida. I’m proud of my dad, and I’m certainly proud of my brother. In Florida, they called me Jeb, because I earned it.
+ - I think God has blessed us. He has blessed the Republican Party with some very good candidates. The Democrats can’t even find one.
+ - American nation was not founded on political principles. This nation was founded on spiritual principles.
+ - Unfortunately, President Obama’s failed policies of new regulations, higher taxes, and Obamacare and his anti-business rhetoric have hit Hispanics especially hard. Big government really hurts those who are trying to make it.
+ - I would vote against anything that grants amnesty because I think it destroys your ability to enforce the existing law.
+ - In 2013 we had never faced a crisis like the Syrian refugee crisis now. Up until that point, a refugee meant someone fleeing oppression, fleeing Communism like it is in my community.
+ - The vast majority of the American people are hard-working taxpayers who take responsibility for their families, go to work every day, they pay their mortgage on time, they volunteer in their community.
+ - We chose more freedom instead of more government. We chose the principles of our founding to solve the challenges of our time. We chose a special man to lead us in a special time. We chose Mitt Romney to lead our nation.
+ - And here’s the fact: the fact is it doesn’t solve the problem. First of all, if you taxed these people at 100 percent, basically next year you said, ‘Look, every penny you make next year the government’s going to take it from you,’ it still doesn’t solve the debt.
+ - There are a lot of other people out there that some of us wish had run for President, but they didn’t. I think Mitt Romney would be a fine President, and he’d be way better than the guy who’s there right now.
+ - But also, the practical reality that in order for us to identify homegrown violent extremism and prevent it or root it out before it takes action, we are going to need the cooperation of Muslim communities in this country.
+ - ISIS is the most sophisticated terror threat we have ever faced. We are now at a time when we need more tools, not less tools. And that took we lost, the metadata program, was a valuable tool that we no longer have at our disposal.
+ - Presidents don’t have the benefit of hindsight. You have to make difficult decisions based on the information that’s before you at that moment.
+ - Americans chose a limited government that exists to protect our rights, not to grant them.
+ - The most important institution in society is the family. If the family breaks down, society breaks down.
+ - How come liberals never admit that they’re liberal? They’ve now come up with a new word called ‘progressive,’ which I thought was an insurance company but apparently it’s a label.
+ - We need to have a regulatory budget in America that limits the amount of regulations on our economy. We need to repeal and replace Obamacare and we need to improve higher education so that people can have access to the skills they need for 21st century jobs.
+ - I’ve seen how the left has used it to accuse opponents of their version of reform of being bigots and racists.
+ - You know who a complicated tax code kills? The guy or gal trying to start a business out of the spare bedroom of their home. So we’ve got to simplify our tax code.
+ - I’m not looking to be anyone’s vice president. I looking to be the president of the United States. Or, I’ll be a private citizen, there’s nothing wrong with being a private citizen.
+ - It’s important to be qualified, but if election 2016 is a resume competition, then Hillary Clinton’s gonna be the next president, because she’s been in office and in government longer than anybody else.
+ - If Donald Trump is our nominee, it could be the end of the Republican Party. It will split us and splinter us in a way that we may never be able to recover. And the Democrats will be joyful about it. It’s not going to happen.
+ - People have a right to be a Democrat. People have a right to be wrong. I know they’re the same thing.
+ - I would say to you that Americans of Hispanic descent want desperately to give their children the chances they never had.
+ - I pray the Pope Francis can use his moral authority to inspire true religious freedom, and bring us closer to the day when freedom can finally take root on the island country; because only then will the people of Cuba prosper and have the opportunity to live out God’s plan.
+ - We will be in this race as long as it takes. We’re going to be in as many states as it takes to ensure that I’m the nominee and that Donald Trump never gets to 1,236 delegates, which is what he needs to be the nominee.
+ - Most countries choose to have government run the economy.
+ - I think there are many in the Democratic Party that want immigration to be unsolved issue at least for the time being, because it’s more useful as a campaign issue than it is as a solved issue.
+ - Everybody spies on everybody, I mean, that’s just a fact.
+ - You know what the fastest growing religion in America is? Statism. The growing reliance on government.
+ - If you vote against act in the Senate, you would also veto it as president.
+ - I’m not interested in being Donald Trump or anybody else’s vice president, that’s not what I’m aiming at...
+ - That may not be a majority position in my party, but that’s down the road. You can’t even begin that process until you prove to people – not just pass a law that says you’re gonna bring illegal immigration under control. You’re gonna have to do it and prove to people that it’s working.
+ - My parents were workers.
+ - Presidents in both parties – from John F. Kennedy to Ronald Reagan – have known that our free-enterprise economy is the source of our middle-class prosperity.
+ - I love the people of Venezuela. I want that country to have freedom. I want it to have human rights and to be banned by a dictator like Nicolas Maduro is, to me, a badge of honor.
+ - Mitt Romney understands free enterprise, he has worked in it. He has seen companies succeed and he has seen them fail, too. He knows what people think about when they invest their money.
+ - Americans believe in the value of immigration. We are the most generous nation on earth to immigrants, allowing over one million people a year to come here legally.
+ - At a time when the American family is threatened as never before, redefining it away from the union of one man and one woman only promises to weaken it as a child-rearing, values-conveying institution.
+ - Big government doesn’t help the middle class, it buries it.
+ - People are really angry at Washington. And they have a right to be. It’s why I ran in 2010, by the way.
+ - Oftentimes, your choices are down to two less than ideal outcomes, but you have to choose which one is the best one for the country. I personally believe he continues to struggle to articulate that.
+ - If a regular law enforcement agency wants your phone records, all they have to do is issue a subpoena. But now the intelligence agency is not able to quickly gather records and look at them to see who these terrorists are calling.
+ - You can’t have a strong nation without strong values, and no one is born with strong values. They have to be taught to you in strong families and reinforced in you in strong communities.
+ - For over 200 years this has been a special country. A unique place where anyone from anywhere can achieve anything. But now millions of Americans feel like they’re being left behind. Insecure in their future and unsafe in the face of terrorism.
+ - We need American foreign policy that tells the world very clearly that it is bad to be our enemy and good to be our friend.
+ - When you’re the commander in chief, you’re the commander in chief on day one. You don’t get like a six-month grace period. The world doesn’t just stop and say, well, let’s wait until the president catches up before we start challenging America.
+ - My hope is that the Pope Francis visit to Cuba will remind all the Cuban citizens that they possess dignity and fundamental rights that come from God and that the Castro regime has no claim on changing what is 100% God-given.
+ - Any time you can degrade or take away the top leadership of an organization, it’s a positive step forward.
+ - You know those movies where the people in the audience are screaming, ‘Don’t go in that door!’ because you know the killer is there? Well, it is the same thing with this debt. We know how this ends.
+ - Government doesn’t have to be the enemy, but too much government has produced a new kind of inequality in America: opportunity inequality.
+ - I’m proud of the fact that the Republican Party is the pro-life party on the issue of life.
+ - When we are deeply divided over important issues facing our country and the world, “In God We Trust” for the guidance and wisdom to do what’s both right and necessary for our Republic.
+ - I’ve had over $20 million spent attacking me. That’s not grassroots money. That’s money from the establishment. We have always had to take on the establishment. We’ll do it again, because the Republican Party needs to turn the page and move forward. And we will.
+ - I’m not new to the political process; I was making a contribution as the speaker of the third largest and most diverse state in the country well before I even got into the Senate.
+ - The greatest thing that we can do for the world is be America.
+ - The Democrats never fight about who is more like Jimmy Carter.
+ - I’m not running for Vice President, I’m not looking to be anyone’s vice president, I want to be the president...
+ - Around the world, America’s influence has declined while president Barack Obama has destroyed our military, our allies no longer trust us, and our adversaries no longer respect us.
+ - I could be anything I wanted because I was an American. And I hope that that’s really what’s propelled me into public service.
+ - I was a member of the Florida legislature for nine years, the speaker of the house, majority leader, majority whip.
+ - We can not continue to allow this over reliance on government to replace the cornerstone institution that has made the American experience possible.
+ - But since her earliest days, America has inspired people from all over the world. Inspired them with the hope that one day their own countries would be one like this one.
+ - Another Clinton presidency would be a death blow to the American Dream.
+ - When I’m president, the Senate bill is not going to be what we’re operating off of. It’s going to begin by focusing on securing our border first and foremost. And until you do that, you’re not going to be able to do anything else.
+ - You have to deal with the reality that in the political process, people are going to vote based on what they’re hearing from their constituents and others.
+ - I’m really focused on, is making sure that, for the broadest number of Americans possible, limited government and free enterprise, the principles that have truly helped build our country into an exceptional one, is one that is being sold to and appeals to the broadest number of Americans.
+ - Certainly being governor is an important job.
+ - Our problem with President Obama isn’t that he’s a bad person. By all accounts, he too is a good husband, and a good father – and thanks to lots of practice, a pretty good golfer.
+ - My mother was one of seven girls whose parents went to bed hungry so their children wouldn’t. My father lost his mother when he was nine. He left school and went to work for the next 70 years. They emigrated to America with little more than the hope of a better life.
+ - For fifty years now, we have tried big government. Yet too many people remain trapped in despair. Now, we must try a new way.
+ - There is nothing that we are allowed to do under USA Freedom Act that we could not do before.
+ - ISIS have to be defeated. They have to be defeated militarily. How are we going to do that if we continue to weaken our military?
+ - Let me start by saying that I do not enjoy nor relish the partisan role of attack dog. I never found any fun in that. I don’t think it’s constructive. I don’t intend to become that here in the Senate.
+ - This opportunity – to make it to the middle class or beyond no matter where you start out in life – it isn’t bestowed on us from Washington. It comes from a vibrant free economy where people can risk their own money to open a business.
+ - Ultimately, my proposal isn’t intended to increase or decrease the amount of federal spending spent on antipoverty programs.
+ - And yet, there are still people in American politics who, for some reason, cling to this belief that America is better off adopting the economic policies of nations whose people who immigrate here from there.
+ - There have always been people in American politics that wanted America to be more like the rest of the world. And In 2008, one of them was elected president of this country and the result has been a disaster.
+ - I do think the most important thing we need in leadership in our country, not just in the presidency but in the United States Senate, are people that have a clear vision of what the role of government should be in our lives and what the role of America should be in the world.
+ - Hillary Clinton and Barack Obama’s strategy is to lead from behind. It sounds like what he is outlining is not to lead at all. We cannot continue to outsource foreign policy. We must lead. We are the most powerful nation in the world. We need to begin to act like it, again.
+ - Republican Party is the party that stands for the people who are trying to start a business out of the spare bedroom of their home, who are trying to give their kids a better life. And the only way that’s possible is through the America free enterprise system.
+ - Everything that I will ever accomplish, I owe to God, to my parent’s sacrifices, and to the United States of America.
+ - I am personally open – after all that has happened and after ten years in that probationary status where all they have is a permit, I personally am open to allowing people to apply for a green card.
+ - The world is a better place when America is willing to lead.
+ - Here we will solve with laws and dollars, problems that too many people around the world still must solve with violence and civil war.
+ - But while I’m realistic about our challenges, I’m optimistic about our future. There are a few things, and if we do them, we’re going to have the greatest era in our history. And I have detailed what those things are specifically.
+ - I don’t want there to be millions of people that are permanently barred from every becoming Americans.
+ - I think what’s important for us to understand and there is a way forward on this issue that we an bring our country together on. And while I’m president I will do it. And it will begin by bringing illegal immigration under control and proving to the American people.
+ - There’s never been a nation like the United States, ever. It begins with the principles of our founding documents, principles that recognize that our rights come from God, not from our government.
+ - How is Hillary Clinton going to lecture me about living paycheck to paycheck? I was raised paycheck to paycheck.
+ - I feel bad for the kids that are in school right now and the young people all across America who don’t realize that the grownups who are supposed to be running this country are the verge of leaving them as the first generation of Americans worse off than the generation before.
+ - Every single one of us is the descendant of a go-getter. Of dreamers and of believers.
+ - USA Freedom Actdid, however, take away a valuable tool that allowed the National Security Agency and other law – and other intelligence agencies to quickly and rapidly access phone records and match them up with other phone records to see who terrorists have been calling.
+ - People end up fleeing countries who adopt economic policies based on these flawed principles. And more often than not, they come here.
+ - And so, whether they came here on the Mayflower, on a slave ship, or on an airplane from Havana, we are all descendants of the men and women who built here the nation that saved the world.
+ - I always tell people I’m running against two Democrats, one that admits it and one that does not.
+ - Here’s a guy that inherited $200 million. If he hadn’t inherited $200 million, you know where Donald Trump would be right now?
+ - There are people that borrow $36,000 to go to Trump University, and they are suing him now. Thirty-six thousand dollars to go a university, that’s a fake school.
+ - I think immigration system that we have is terrible for the United States of America. We have a legal immigration system that does not work. It does not reflect the economic needs of this country in the 21st century. It needs to be modernized.
+
+284 quotes

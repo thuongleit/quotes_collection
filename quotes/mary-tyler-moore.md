@@ -1,0 +1,37 @@
+ - Take chances, make mistakes. That’s how you grow. Pain nourishes your courage. You have to fail in order to practice being brave.
+ - Having a dream is what keeps you alive. Overcoming the challenges makes life worth living.
+ - You can’t be brave if you’ve only had wonderful things happen to you.
+ - Take chances, make mistakes. That’s how you grow.
+ - Sometimes you have to get to know someone really well to realize you’re really strangers.
+ - There is a dark side. I tend not to be as optimistic as Mary Richards. I have an anger in me that I carry from my childhood experiences – I expect a lot of myself and I’m not too kind to myself.
+ - I’m not an actress who can create a character. I play me.
+ - Diets are for those who are thick and tired of it.
+ - Chronic disease like a troublesome relative is something you can learn to manage but never quite escape.
+ - Three things have helped me successfully go through the ordeals of life – an understanding husband, a good analyst and millions of dollars.
+ - No candy bars unless I’ve had a low blood sugar where I’m shaky.
+ - Worrying is a necessary part of life.
+ - Diabetes is an all-too-personal time bomb which can go off today, tomorrow, next year, or 10 years from now – a time bomb affecting millions like me and the children here today.
+ - Maybe mom is my alter ego and the woman I’m able to be when I’m working.
+ - There are two kinds of cloning right now. One is therapeutic cloning which is for coming up with cures for life threatening, really, really awful diseases. Then there is reproductive cloning, which is to make a human being out of your DNA and a donor egg.
+ - A human being has been given an intellect to make choices, and we know there are other food sources that do not require the killing of a creature that would protest being killed.
+ - When the doctor said I had diabetes, I conjured images of languishing on a chaise longue nibbling chocolates. I have no idea why I thought this.
+ - I’ve always had courage. But I didn’t always own my diabetes.
+ - I live in a kind of controlled awareness. I wouldn’t call it fear, but it’s an awareness. I know I have a responsibility to behave in a certain way. I’m able to do that.
+ - Well, there are certain foods that I prefer not to eat because they’re just such a jolt to the system.
+ - Behind every beautiful fur, there is a story. It is a bloody, barbaric story.
+ - I don’t know how to do the other, so I won’t even consider television until the audience’s taste changes.
+ - And I came close to losing a part of my foot on two occasions. I hope I’m consistently lucky and that the next time I develop a blister or step on something sharp, that I don’t go as far as I did on those two times.
+ - I feel about my dogs now, and all the dogs I had prior to this, the way I feel about children – they are that important to me. When I have lost a dog I have gone into a mourning period that lasted for months.
+ - But I’m very happy with my life the way it has been turning out. A little time in the country, a little time with the animals and working on behalf of them.
+ - There’s one beneficial effect of going to Moscow. You come home waving the American flag with all your might.
+ - The kinds of shows that seem to work now, the comedy shows, are those which require very little attention. They’re superficial and I like articulate comedy.
+ - The only leading man I ever had a crush on was James Garner.
+ - I still feel as if I weren’t a good enough mother. I didn’t break any rules.
+ - I’ve had the fame and the joy of getting laughter – those are gifts.
+ - I do watch a lot of Fox News. I like Charles Krauthammer and Bill OReilly.
+ - And the sculptor woman was so clever in the way she did it. She had the beret just about to leave my hand. So it’s attached to this finger and that’s what will keep it there. And I’m looking up at it, so there’s no question but that that beret is going to fly.
+ - Lou Grant was pretty much always Lou Grant.
+ - I loved working with Valerie. That was the most wonderful revelation to find that when we are on a set and we’re playing our roles, we’re like separated twins. We can almost finish each other’s dialogue.
+ - I just like the continue doing what I’ve been doing. A melange of funny, straight drama, television, movies, a little theater here and there wouldn’t hurt. So if I can keep doing that, I’ll be a very happy person.
+
+35 quotes

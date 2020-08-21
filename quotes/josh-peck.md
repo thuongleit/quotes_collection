@@ -1,0 +1,41 @@
+ - I know about hip-hop culture, whether it’s graffiti writing or DJ-ing or being an MC.
+ - There is a challenge of doing something new. Sometimes you have to suspend whether you believe in yourself doing it and just give yourself over to the idea that they believe in you.
+ - When your body is your instrument, it needs maintenance and it needs to be held in a certain way. That’s a universal thread, whether you’re an athlete, a dancer, an actor or a singer. It’s all about maintaining your body because that allows you to do what you do.
+ - I grew up as a really sick kid; I had really bad childhood asthma and was at home all the time in New York.
+ - Real artists take the misery and sadness of life and translate it into art.
+ - I think whether you’re a movie critic and have seen a million movies, or you’re just a normal popcorn movie watcher, you can tell the difference when someone is just laying it on too thick.
+ - All the things you can do to prepare for a role that free you, in the moment, are great. You have this muscle memory for things. You don’t have to act it as much, once you’ve done it enough.
+ - I’m forever in debt to Nickelodeon. It made me who I am today.
+ - It doesn’t matter what you look like really though, it is who you are that matters of course.
+ - Method Man, for him to offer me the spot as the first Jewish member of the Wu Tang Clan, you know, was an honor.
+ - If you include quotes with your Instagram photos, you need to look at your life.
+ - I don’t know, being able to work with Meth was pretty damn cool, but even that day, John, the director, gave me one of the best notes I’ve ever had. I walked into the scene just completely excited. I just couldn’t believe I was going to work with Meth.
+ - I was raised by a single mother.
+ - Sometimes I don’t want to go out and socialize; I just want to watch my favorite shows and comedians. But then I have to remember that it is important to participate in life if you want to portray real life on screen.
+ - I am happiest when I am working though, when I am being creative. I realized at a very young age what I loved doing. I think it is so important for people to pursue the things that they love and not give up on their dreams.
+ - I do hang out with girls, I do relax. But I am a hermit sometimes and get a bit too introverted, too ‘Jean-Paul Sartre’ and intellectual in my head. And it’s like a Kafka novel in there, things get nuts. Then I have to remind myself to get out and I will go and play ice hockey with my friends.
+ - Gratuitous fat jokes always hurt, no matter what.
+ - I may be Jewish, but my religion is hip-hop.
+ - Not getting girls is the story of my life. I have always had a bit of a tough time with the ladies. I don’t know whether it’s that I don’t have game or just don’t feel comfortable in my own skin, but females pick up on that.
+ - Every time you sort of let go of the bar, you knew someone was there to catch you, and vice versa. And, I mean, come on. It’s Method Man. It’s been a dream to meet him forever.
+ - Acting’s not therapy, but it can be therapeutic.
+ - I think as working actors, it’s like sales. You’re only as good as your last sale, so you put your all into something and you just hope that from that you can get your next job.
+ - With drama, you need to be laughing, in between takes, ’cause you’re going to those recesses of your soul and those dangerous parts. Normally, if you’re not an actor or some crazy artist, you don’t feel the need to run around in those areas. You keep them separate because it’s painful.
+ - I always had a weight issue since I was a young kid.
+ - I don’t really understand why I should be a role model but I know that children do look up to me, so it is my responsibility to motivate people and be inspiring. I hope that I can do that for kids.
+ - Just to be part of a process where you hit no professional speed bumps and you’re just sort of going on and on. I’m surrounded by these people that are all so collaborative and all bring things of their own to the process. For them to be alive in the scenes so you don’t have to worry.
+ - I love the phrase, ‘Somebody’s going to have a good day today, so it might as well be me.’ I feel like you bring everything to the character, I hope.
+ - I need to gain a lot more experience. I think so much of being a director, other than the technical aspect and the artistry of it, is the confidence that you are, I think in many ways, you’re the captain of the ship.
+ - To me, there’s nothing greater than making people laugh.
+ - I mean, the great thing about being an actor is you can investigate parts of your brain that might have otherwise gone dormant.
+ - When you’re an actor or any kind of artist, you use your life as something to draw from in every experience.
+ - I play a lot of basketball.
+ - I would love to start directing. I just hope to find the right thing and, if I was afforded the opportunity, I think it would be something great. It would be really hard, but I think it would be a great privilege.
+ - Anytime where you’re challenged, physically or mentally, you rise to the occasion in different ways.
+ - Inherently, making a movie is tough because there’s so much anticipation when it happens – even if everything goes well.
+ - My favorite actor is Sir Ben Kingsley – nobody is as good as him, in my opinion. I think he’s so good as an artist.
+ - The best notes are action-based and less, I don’t know, heady, theoretical, because, as actors, we’re too much in our heads anyway.
+ - In life, I’d much rather have people laughing at me than booing me.
+ - You can bring truth to anything, whether it’s a dance movie or an incredibly poignant indie drama or a really broad comedy. As long as you show up to play, I don’t think you can go wrong.
+
+39 quotes

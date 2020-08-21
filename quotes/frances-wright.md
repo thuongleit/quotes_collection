@@ -1,0 +1,43 @@
+ - Equality is the soul of liberty; there is, in fact, no liberty without it.
+ - Equality! Where is it, if not in education? Equal rights! They cannot exist without equality of instruction.
+ - The condition of women affords in all countries the best criterion by which to judge the character of men.
+ - The knowledge of one generation is the ignorance of the next.
+ - Trust me, there are as many ways of living as there are men, and one is no more fit to lead another, than a bird to lead a fish, or a fish a quadruped.
+ - The world is full of religion, and full of misery and crime.
+ - The best road to correct reasoning is by physical science; the way to trace effects to causes is through physical science; the only corrective, therefore, of superstition is physical science.
+ - Truth is but approved facts.
+ - Pets, like their owners, tend to expand a little over the Christmas period.
+ - However novel it may appear, I shall venture the assertion, that, until women assume the place in society which good sense and good feeling alike assign to them, human improvement must advance but feebly.
+ - Credulity is always a ridiculous, often a dangerous failing: it has made of many a clever man, a fool; and of many a good man, a knave.
+ - There is but one honest limit to the rights of a sentient being; it is where they touch the rights of another sentient being.
+ - I feel virtuous because my soul is at ease.
+ - I am neither Jew nor Gentile, Mahomedan nor Theist; I am but a member of the human family...
+ - The simplest principles become difficult of practice, when habits, formed in error, have been fixed by time, and the simplest truths hard to receive when prejudice has warped the mind.
+ - Fathers and husbands! do ye not also understand this fact? Do ye not see how, in the mental bondage of your wives and fair companions, ye yourselves are bound?
+ - Of the thousands who have paid homage to virtue, barely one has thought to inspect the pedestal on which it stands.
+ - An opinion, right or wrong, can never constitute a moral offense, nor be in itself a moral obligation. It may be mistaken; it may involve an absurdity, or a contradiction. It is a truth; or it is an error: it can never be a crime or a virtue.
+ - Persecution for opinion is the master vice of society.
+ - If we bring not the good courage of minds covetous of truth, and truth only, prepared to hear all things, and decide upon all things, according to evidence, we should do more wisely to sit down contented in ignorance, than to bestir ourselves only to reap disappointment.
+ - What were the glories of the sun, if we knew not the gloom of darkness?
+ - All that I say is, examine, inquire. Look into the nature of things. Search out the grounds of your opinions, the for and against. Know why you believe, understand what you believe, and possess a reason for the faith that is in you.
+ - Moral truth, resting entirely upon the ascertained consequences of actions, supposes a process of observation and reasoning.
+ - Turn your churches into halls of science, and devote your leisure day to the study of your own bodies, the analysis of your own minds, and the examination of the fair material world which extends around you!
+ - The existing principle of selfish interest and competition has been carried to its extreme point; and, in its progress, has isolated the heart of man, blunted the edge of his finest sensibilities, and annihilated all his most generous impulses and sympathies.
+ - You have heard of, and studied various systems of philosophy; but real philosophy is opposed to all systems.
+ - It is in vain that we would circumscribe the power of one half of our race, and that half by far the most important and influential.
+ - Be not afraid! In admitting a creator, refuse not to examine his creation; and take not the assertions of creatures like yourselves, in place of the evidence of your senses and the conviction of your understanding.
+ - The sciences have ever been the surest guides to virtue.
+ - No man can see his own prejudices...
+ - These will vary in every human being; but knowledge is the same for every mind, and every mind may and ought to be trained to receive it.
+ - Instead of establishing facts, we have to overthrow errors; instead of ascertaining what is, we have to chase from our imaginations what is not.
+ - Do not confound noise with fame. The man who is remembered, is not always honored.
+ - I never walked through the streets of any city with as much satisfaction as those of Philadelphia. The neatness and cleanliness of all animate and inanimate things, houses, pavements, and citizens, is not to be surpassed.
+ - He who lives in the single exercise of his mental faculties, however usefully or curiously directed, is equally an imperfect animal with the man who knows only the exercise of muscles.
+ - Credulity is always ridiculous.
+ - How are men to be secured in any rights without instruction; how to be secured in the equal exercise of those rights without equality of instruction? By instruction understand me to mean knowledge – just knowledge; not talent, not genius, not inventive mental powers.
+ - Many are called impious, not for having a worse, but a different religion from their neighbors; and many atheistical, not for the denying of God, but for thinking somewhat peculiarly concerning him.
+ - Do we exert our own liberties without injury to others – we exert them justly; do we exert them at the expense of others – unjustly. And, in thus doing, we step from the sure platform of liberty upon the uncertain threshold of tyranny.
+ - To give liberty to a slave before he understands its value is, perhaps, rather to impose a penalty than to bestow a blessing...
+ - Religion may be defined thus: a belief in, and homage rendered to, existences unseen and causes unknown.
+
+41 quotes

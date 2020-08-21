@@ -1,0 +1,27 @@
+ - Canada, or as i call them, America Light.
+ - People might say, What’s so great about the Arctic Monkeys? I’ve never even seen them. Well, you’ve never seen God either. You’re gonna tell me he’s not awesome?
+ - I’m not an alcoholic. I just drink that way.
+ - Do me a favor, guys. Don’t drink so much that you become the guy that goes into the bathroom and moans while taking a leak. See, the women in the room, they might not know what we’re talking about; every dude knows.
+ - The thing is – I’m not an idiot. I’m rather intelligent, as proven by the fact that I just used the word ‘rather’ in a sentence.
+ - America may be entering it’s Michael Jordan on the Wizards period.
+ - Jesus is a powerful guy in Hollywood. Not quite as powerful as Vin Diesel, but powerful.
+ - You know what I’m great at? Trivial Pursuit. What good is that gonna do you in life? It has the word ‘trivial’ in the name. The game is basically telling you that you pursue trivial things. Trivial – as in not important. Trivial – as in maybe you should’ve gone to grad school.
+ - Michael Jackson’s charity efforts? Mmm. I’m sure they have nothing to do with his molestation charges.
+ - Relationships are a lot like yard sales. They look really fun from a couple hundred feet away, but eventually you realize it’s just a bunch of crap you don’t need.
+ - I was told by a physician to avoid any line of work where people need to, um, depend on me for anything.
+ - If you refuse to see Superman Returns this summer, what you’re saying about yourself is: I heart Al Qaeda.
+ - If I could go back and talk to the me who was just starting to do comedy, I would have told myself to relax and not worry about things happening right away. That’s a mistake a lot of people make – they think a year is a long time and it’s really not.
+ - I joined a gym recently. I don’t have the best history in the world of sticking with my fitness regimens, but I feel like this time’s gonna be different. I figure one of two things is gonna happen: either I’ll get into shape, or I’ll just resign myself to paying an $85 a month fat tax.
+ - There comes a point where the disappointments in your life accrue faster than you can find external forces to blame them on.
+ - Some of you guys must have real jobs – office jobs. Anybody? By a show of broken spirits.
+ - I really respect peple who try. People who say, No, I’m actually going to do the best I can. That said, you want to do the best you can while remaining who you are.
+ - If think the pig was terrified because he was fully aware that after segment he was going to be fed to Al Roker.
+ - I haven’t had a drink in twelve days and I’ve gotta say, I’m pretty shocked at how boring people are.
+ - You rarely hear anyone use the word pancreas in a not-horrible context.
+ - The thing is, I hate political comedy. I personally loathe it.
+ - If you purchased the latest Joss Stone CD, what you’re saying is that you’re an employee of VH1.
+ - Basically, I got into stand-up because I’m too egocentric to be an actor and not disciplined enough to be a writer.
+ - I think I speak for America when I say, nothing says NASCAR like Whoopi Goldberg.
+ - The Smurf village was destroyed weeks ago and Bush has still not made an appearance. George Bush doesn’t care about tiny blue people.
+
+25 quotes

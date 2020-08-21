@@ -1,0 +1,69 @@
+ - Legacy is not what’s left tomorrow when you’re gone. It’s what you give, create, impact and contribute today while you’re here that then happens to live on.
+ - The head thinks. The heart knows.
+ - In life, one has a choice to take one of two paths: to wait for some special day-or to celebrate each special day.
+ - Until you understand your customers – deeply and genuinely – you cannot truly serve them.
+ - Tomorrow’s leaders will not lead dictating from the front, nor pushing from the back. They will lead from the centre – from the heart.
+ - Be genuinely interested in everyone you meet and everyone you meet will be genuinely interested in you.
+ - How you look at it is pretty much how you’ll see it.
+ - Finding oneself and one’s path is like waking up on a foggy day. Be patient, and presently the fog will clear and that which has always been there can be seen. The path is already there to follow.
+ - Thoughts will lead you in circles. Silence will bring you back to your centre.
+ - There are ultimately two choices in life: to fight it or to embrace it. If you fight it you will lose – if you embrace it you become one with it and you’ll be lived.
+ - Take a walk outside – it will serve you far more than pacing around in your mind.
+ - There are essentially two questions in life – a spiritual question and a material question. The spiritual question is ‘Who am I?’ The material question is ‘What am I to do with my life?’ One leads to the other.
+ - You will rarely make wise decisions if you surround yourself with fools.
+ - There is no question- love is the answer.
+ - Know your magic, trust your magic, use your magic and know that you are a manifestation of life’s magic.
+ - Love is the only answer to every question. It is the only thing that will serve you in every situation. It is the route and the destination. It is medication, liberation and should be at the heart of and expression of your vocation.
+ - Live your life, sing your song. Not full of expectations. Not for the ovations. But for the joy of it.
+ - If you listen quietly enough life will whisper its secrets to you.
+ - Some strive to make themselves great. Others help others see and find their own greatness. It’s the latter who really enrich the world we live in.
+ - The world is already yours – why try to conquer it?
+ - The moment that you accept life and your life as it is, is the moment that you will start to change your life and this magical life itself.
+ - Intelligence is just one dimension of ability. Don’t limit yourself to it. Open up to instinct, intuition, creativity and thus possibility.
+ - Peace of mind arrives the moment you come to peace with the contents of your mind.
+ - My advice for life: dance and sing your song while the party is still on.
+ - Sometimes in life there’s no problem and sometimes in there is no solution. In this space – between these apparent poles – life flows.
+ - Customer conversion is dependent on the right customer conversation.
+ - If you are not yourself people will look right through you and see the pale shadow of someone else.
+ - While being you and truly sharing what you do will bring happiness to others, you won’t find contentment merely trying to keep others happy.
+ - It’s not the depth of your intellect that will comfort you or transform your world. Only the richness of your heart and your generosity of spirit can do that.
+ - People will ask you the question ‘how is life treating you?’ But my question is ‘how are you treating life?’ On that your happiness rests.
+ - Wisdom is merely the movement from fighting life to embracing it.
+ - A touch less ego and dash more humility will improve the quality of anything you turn your hand to.
+ - We’re merely one tree with various types, shapes and sizes of leaves that all wave differently in the breeze.
+ - Success is meaningless without fulfilment – both begin within.
+ - While you’ll feel compelled to charge forward it’s often a gentle step back that will reveal to you where you and what you truly seek.
+ - Compassion is even more powerful than courage. Sure, with courage you can conquer a world – but only with compassion can you heal and build it.
+ - It’s not the world that needs to change – it’s our consciousness we must raise.
+ - Be a star not a diva!
+ - Happiness is not some ‘thing’ to be pursued it is a way of being born from appreciating.
+ - Don’t be so obsessed with stardom that you miss out on success.
+ - There’s no alternative to being yourself. Accept it, honour it, value it – and get on with it.
+ - Your job is to do your job with all your heart to the best of your ability. Life will go it’s own merry way at it’s own pace. But if you do then you – and life – will be the richer for you being here.
+ - Role models are only of limited use. For no-one is as important, potentially powerful and as key in your life and world as you.
+ - The mind defines, decides, doubts and divides – only the heart truly binds.
+ - By simple mathematics giving is key to the world you seek to live in. If I take I alone gain. If I give or share then two at least are enriched.
+ - Love is the only path to anything worth doing, creating or pursuing.
+ - I’ve no interest in being thought provoking. Who needs more thoughts. I’d rather go down as one who is thought disposing.
+ - Those who say life is knocking them down and giving them a tough time are usually the first to beat themselves up. Be on your own side.
+ - The moment that you give gratitude is the moment that you find happiness. The moment that you lose gratitude your happiness will vanish and slip through your fingers.
+ - Our life stories are at one and the same time reality, fallacy and fantasy...
+ - First one must understand conditioning – only then can we speak of choice.
+ - If four of you are playing hide and seek you’ll only ever find the other three. For you are already right here. So what on earth is it that you’re looking for? You are the very thing that you seek.
+ - The best way to get something good out of what you’re doing is to put something good into it.
+ - Our life stories are largely constructed and without mindfulness can prove destructive.
+ - Too much time is wasted fighting one self and life itself. Peace and fulfilment emerge the moment you embrace both.
+ - It’s not just a question of doing what you love for a living. It’s about doing what you love with love. Then your life and all be transformed.
+ - Rest and peace should not be left until you’re deceased. They are two vital life incredients everybody needs and seeks.
+ - Life is the best and only timekeeper.
+ - On any day – in any given event – you have to believe in yourself and back yourself 100%.
+ - What people say and feel about you when you’ve left a room is precisely your job while you are in it.
+ - The reason that so many fail to find happiness is that they fail to find gratitude.
+ - All pursuits are pointless and fruitless unless and until love and compassion are found and then are the foundation and destination of all you do.
+ - You cannot pour more water into a full cup without causing a spillage.
+ - In our evolution language has been the greatest single contribution to our understanding and misunderstanding.
+ - You can not hope to arrive at harmony in your life while stirring up disturbances in anothers...
+ - The land of possibility is a better place to make your home than the realm of expectation will ever be.
+ - You won’t ever build your confidence from a perception of lack. For it grows and evolves from realising who you are and what you already have.
+
+67 quotes

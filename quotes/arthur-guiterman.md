@@ -1,0 +1,22 @@
+ - God, give me hills to climb, And strength for climbing!
+ - In life as in football, fall forward when you fall.
+ - So once in every year we throng Upon a day apart, to praise the Lord with feast and song in thankfulness of heart.
+ - It takes a bee to get the honey out.
+ - Until the Donkey tried to clear The Fence, he thought himself a Deer.
+ - God’s Road is all uphill, but do not tire; Rejoice that we may still keep climbing higher.
+ - Oh the saddest of sights in a world of sin Is the little lost pup with his tail tucked in.
+ - What one approves, another scorns, And thus his nature each discloses: You find the rosebush full of thorns, I find the thornbush full of roses.
+ - Active minds that think and study, like swift brooks are seldom muddy.
+ - Don’t tell your friends about your indigestion. “How are you” is a greeting, not a question.
+ - A Man consumes the Time you make him Wait In thinking of your Faults-so don’t be late!
+ - The stones that critics hurl with harsh intent, a man may use to build his monument.
+ - I hope the Vandals had thorns in their sandals.
+ - The porcupine, which one must handle gloved, may be respected, but is never loved.
+ - The carpenter is not the best who makes more chips than all the rest.
+ - He who knows what he is told must know a lot of things that are not so.
+ - No true reform has ever come to pass Unchallenged by a liar and an ass.
+ - Admitting errors clears the score and proves you wiser than before.
+ - The Cat on your hearthstone to this day presages, By solemnly sneezing, the coming of rain!
+ - Scheme not to make what’s Another’s your own; Be not a Dog for the sake of a Bone.
+
+20 quotes

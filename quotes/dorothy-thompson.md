@@ -1,0 +1,28 @@
+ - Only when we are no longer afraid do we begin to live.
+ - Peace is not the absence of conflict but the presence of creative alternatives for responding to conflict – alternatives to passive or aggressive responses, alternatives to violence.
+ - To have felt too much is to end in feeling nothing...
+ - After the earthquake and the fire comes the still, small voice.
+ - Only when we are no longer afraid do we begin to live in every experience, painful or joyous, to live in gratitude for every moment, to live abundantly.
+ - A little more matriarchy is what the world needs, and I know it. Period. Paragraph.
+ - Courage, it would seem, is nothing less than the power to overcome danger, misfortune, fear, injustice, while continuing to affirm inwardly that life with all its sorrows is good; that everything is meaningful even if in a sense beyond our understanding; and that there is always tomorrow.
+ - Hate smolders and eventually destroys, not the hated but the hater.
+ - Passitivity and quietism are invitations to war.
+ - Peace has to be created, in order to be maintained. It is the product of Faith, Strength, Energy, Will, Sympathy, Justice, Imagination, and the triumph of principle. It will never be achieved by passivity and quietism.
+ - The most destructive element in the human mind is fear. Fear creates aggressiveness; aggressiveness engenders hostility; hostility engenders fear, a disastrous circle.
+ - When liberty is taken away by force it can be restored by force. When it is relinquished voluntarily by default it can never be recovered.
+ - The instinct to worship is hardly less strong than the instinct to eat.
+ - There is nothing to fear except the persistent refusal to find out the truth.
+ - Of all forms of government and society, those of free men and women are in many respects the most brittle. They give the fullest freedom for activities of private persons and groups who often identify their own interests, essentially selfish, with the general welfare.
+ - Can one preach at home inequality of races and nations and advocate abroad good-will towards all men?
+ - Inventive man has invented nothing – nothing from scratch. If he has produced a machine that in motion overcomes the law of gravity, he learned the essentials from the observation of birds.
+ - Whatever the human law may be, neither an individual nor a nation can commit the least act of injustice against the obscurest individual without having to pay the penalty for it.
+ - The only force that can overcome an idea and a faith is another and better idea and faith, positively and fearlessly upheld.
+ - Recreation is nothing but a change of work-an occupation for the hands by those who live by their brains, or for the brains by those who live by their hands.
+ - Women have had the vote for over forty years and their organizations lobby in Washington for all sorts of causes; why, why, why don’t they take up their own causes and obvious needs?
+ - The kind of intelligence a genius has is a different sort of intelligence. The thinking of a genius does not proceed logically. It leaps with great ellipses. It pulls knowledge from God knows where.
+ - Lawlessness is a self-perpetuating, ever-expanding habit.
+ - It is not the fact of liberty but the way in which liberty is exercised that ultimately determines whether liberty itself survives.
+ - The United States is not a nation of people which in the long run allows itself to be pushed around.
+ - Age is not measured by years. Nature does not equally distribute energy. Some people are born old and tired while others are going strong at seventy.
+
+26 quotes

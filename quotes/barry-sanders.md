@@ -1,0 +1,38 @@
+ - I really love peace and quiet.
+ - See God gave us the talent, but the devil make us famous.
+ - Let’s just win it and go home.
+ - It’s hard to win in the NFL. You have to maintain a very delicate balance putting together the right team to be able to win and have any amount of success.
+ - Maybe a good rule in life is never become too important to do your own laundry.
+ - I don’t dream football. I dream the American Dream – two cars in a garage, be a happy father.
+ - I’m not better than anyone else. I’m not supposed to be on a pedestal. I’ve always stayed away from that.
+ - I just felt like I had run out of steam. I just felt like it was my time.
+ - Happiness does not come from football awards. It’s terrible to correlate happiness with football. Happiness comes from a good job, being able to feed your wife and kids. I don’t dream football, I dream the American dream – two cars in a garage, be a happy father.
+ - I quit because I didnt feel like the Detroit Lions had a chance to win. It just killed my enjoyment of the game.
+ - I don’t know the right way to retire.
+ - If I could start with anybody, I would initially draft Tom Brady. Then I would go get Ray Lewis, and then maybe an offensive lineman, or somebody like Adrian Peterson.
+ - Nothing ever turns out the way people expect it to.
+ - I’m a Jewish boy from Jersey. I was born with a strong sense of right and wrong, and a strong sense that the world can be a ludicrous, unfair, inhumane place.
+ - Running back was always my favorite position.
+ - You know, I’m fairly intelligent, but I don’t think my grades reflected that.
+ - I don’t want to get too detailed into it, but when you’re a good high school running back, you can almost be whatever type of runner you want to be. If you’re a good size and a good athlete, you can be whatever type of runner you want.
+ - You can look at everything from pre-Heisman to post-Heisman, and I think that’s why it ranks up at the top, because before then, I didn’t even think I was good enough to be a professional ballplayer.
+ - I sat behind Thurman Thomas for my first couple of years, then my first year starting I won the Heisman. After I won the Heisman, that’s when things changed as far as going to the NFL.
+ - A lot of times I did lose yards on a run, but it wasn’t for lack of trying.
+ - My mother was a huge influence on me. She was a living example of what a Christian should be. Her conviction, her discipline. She would rather see other people happy than herself.
+ - Shortly after the end of last season, I felt that I probably would not return for the 1999-2000 season. I also felt that I should take as much time as possible to sort through my feelings and make sure that my feelings were backed with conviction.
+ - Christianity affects your whole life. I feel I’m more competitive, a better player, but off the field is where there is always a battle.
+ - My desire to exit the game is greater than my desire to remain in it. I have searched my heart through and through and feel comfortable with this decision.
+ - I didn’t know exactly what I wanted to do in school, but I definitely didn’t have adequate time to reach my full potential as a student.
+ - The reason of football is not to be the best but to be the best team.
+ - The game is the ultimate significance to me because it is so important to a lot of people. It has left a mark on our culture to be voted as one of the best to ever play.
+ - Individual goals never meant that much to me. The Heisman is no exception.
+ - The Heisman is the biggest award I’ve ever won.
+ - As a kid, I played my share of football in the street or in a vacant lot. When we were playing in the street, it was more touch football, so we didn’t hit each other into cars.
+ - I wish my teammates, coaches and the entire Lions organization all the best.
+ - I want to thank all of the fans and media who made playing in the NFL such a wonderful experience. I have had the pleasure of meeting many of them.
+ - It’s probably similar to being in New York City and having a cab driver behind you and you’re driving too slow. It’s not the most pleasant thing.
+ - I’m from Kansas, so there were a lot of vacant lots and open fields to tackle each other in so we could avoid tackling each other on the street. But running on the street and trying not to get taken down on the concrete, that will make you fast, that’s for sure.
+ - As a kid, I played my share of football in the street or in a vacant lot.
+ - In all the time that people have known me, has anyone ever heard me talk about the importance of rushing records or finishing with the most touchdowns? So if that’s never been important to me, then why would that be a motivation to keep playing?
+
+36 quotes

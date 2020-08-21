@@ -1,0 +1,23 @@
+ - Our own genomes carry the story of evolution, written in DNA, the language of molecular genetics, and the narrative is unmistakable.
+ - Biology is far from understanding exactly how a single cell develops into a baby, but research suggests that human development can ultimately be explained in terms of biochemistry and molecular biology. Most scientists would make a similar statement about evolution.
+ - The piano is able to communicate the subtlest universal truths by means of wood, metal and vibrating air.
+ - Once upon a time, growing up male gave little boys a sense of certainty about the natural order of things. We had short hair, wore pants, and played baseball. Girls had long hair, wore skirts, and, no matter how hard they tried, always threw a baseball just like a girl.
+ - From Roger Bacon, the 13th century Franciscan who pioneered the scientific method, to George Lemaitre, the 20th century Belgian priest who first developed a mathematical foundation for the ‘Big Bang,’ people of faith have played a key role in advancing scientific understanding.
+ - A true conservative is on the side of science.
+ - Evolution isn’t just a take-it-or-leave-it story about where we came from. It’s an epic at the centre of life itself. It tells us we are part of nature in every respect.
+ - The scientific argument advanced for intelligent design at the Dover trial, those arguments collapsed, scientifically and intellectually.
+ - We don’t regard any scientific theory as the absolute truth.
+ - Science is about nature. And God, if he exists, transcends nature.
+ - Any suggestion that science and religion are incompatible flies in the face of history, logic, and common sense.
+ - We believe the ice sheet was not around all the time. It was only around during cool snaps of the climate.
+ - America’s got a Darwin problem – and it matters. According to a 2009 Gallup poll taken on the 200th anniversary of Charles Darwin’s birth, fewer than 40% of Americans are willing to say that they ‘believe in evolution.’
+ - I am always struck by the fact that human awareness of our place in nature, like so much of modern science, began with the Industrial Revolution.
+ - There is no controversy within science over the core proposition of evolutionary theory.
+ - Being a Christian, I’m eager to introduce people to Jesus. I just don’t think I should do it in the science classroom.
+ - The anti-evolution forces have been searching for a new strategy that would accomplish the same end. That purpose is, if not to get evolution out of the schools altogether, then at least undermine it as much as possible in the minds of students.
+ - The piano’s world encompasses glass-nerved virtuos and stomping barrel-housers in fedoras; it is a world of pasture and storm, of perfumed smoke, of liquid mathematics.
+ - Whether conservative or liberal, fundamentalist or agnostic, the more students learn of biology, the more they accept evolution.
+ - No other acoustic instrument can match the piano’s expressive range, and no electric instrument can match its mystery.
+ - I wouldn’t want the federal government dictating how I use my cameras, every community has their own issues and their own dynamics.
+
+21 quotes

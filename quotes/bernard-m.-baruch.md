@@ -1,0 +1,76 @@
+ - Be who you are and say what you feel, because those who mind don't matter, and those who matter don't mind.
+ - Whatever you do, do it with all your heart and soul.
+ - Millions saw the apple fall, Newton was the only one who asked why?
+ - If all you have is a hammer, everything looks like a nail.
+ - You don’t have to blow out the other person’s light to let your own shine.
+ - If you have made a mistake cut your losses as quickly as possible.
+ - Most of the successful people I’ve known are the ones who do more listening than talking.
+ - The art of living lies less in eliminating our troubles than in growing with them.
+ - The ability to express an idea is well nigh as important as the idea itself.
+ - Nobody ever lost money taking a profit.
+ - Become more humble as the market goes your way.
+ - We did not all come over on the same ship, but we are all in the same boat.
+ - The stock market is people.
+ - When good news about the market hits the front page of the New York Times, sell.
+ - Agriculture is the greatest and fundamentally the most important of our industries. The cities are but the branches of the tree of national life, the roots of which go deeply into the land. We all flourish or decline with the farmer.
+ - We can’t cross that bridge until we come to it, but I always like to lay down a pontoon ahead of time.
+ - Never follow the crowd.
+ - Making a success of the job at hand is the best step toward the kind you want.
+ - Vote for the man who promises least; he’ll be the least disappointing.
+ - No man can humiliate me or disturb me. I won’t let him.
+ - I’ll give you the bottom 10% and the top 10% of any move if I get to keep the middle 80%.
+ - Financial storm definitely passed.
+ - Whatever task you undertake, do it with all your heart and soul. Always be courteous, never be discouraged. Beware of him who promises something for nothing. Do not blame anybody for your mistakes and failures. Do not look for approval except the consciousness of doing your best.
+ - When beggars and shoeshine boys, barbers and beauticians can tell you how to get rich it is time to remind yourself that there is no more dangerous illusion than the belief that one can get something for nothing.
+ - Buy straw hats in the wintertime. Summer will surely come.
+ - Creativity: Take the obvious, add a cupful of brains, a generous pinch of imagination, a bucketful of courage and daring, stir well and bring to a boil.
+ - No man should think himself a zero, and think he can do nothing about the state of the world.
+ - Only liars manage to always be out during bad times and in during good times.
+ - When the outlook is steeped in pessimism, I remind myself, “Two and two still make four, and you can’t keep humankind down for long.”
+ - Bears don’t live on Park Avenue.
+ - Don’t speculate unless you can make it a full time job.
+ - Now is always the hardest time to invest.
+ - Always do one thing less than you think you can do.
+ - We are here today to make a choice between the quick and the dead.
+ - We grow neither better or worse as we get old, but more like ourselves.
+ - You can overcome anything if you don’t bellyache.
+ - Everyone is entitled to be wrong about their opinions, but no one has the right to be wrong about their facts.
+ - I have known men who could see through the motivations of others with the skill of a clairvoyant; only to prove blind to their own mistakes. I have been one of those men.
+ - All economic movements, by their very nature, are motivated by crowd psychology.
+ - Never play tips from “insiders.” They can’t see the forest for the trees.
+ - You can’t repeal human nature by an Act of Congress.
+ - Never answer a critic, unless he’s right.
+ - Don’t try to be a jack of all investments. Stick to the field you know best.
+ - There are no such things as incurables. There are only things for which man has not found a cure.
+ - Let us not be deceived we are today in the midst of a cold war.
+ - Our problem in money-making or government affairs is how to remain properly venturesome and experimental without making fools of ourselves.
+ - Never pay the slightest attention to what a company president ever says about his stock.
+ - Chance sometimes opens the door, but luck belongs to the good players.
+ - There is something about inside information which seems to paralyse a man’s reasoning powers.
+ - I have learned the truth of the observation that the more one approaches great men the more one finds that they are men.
+ - I get the facts, I study them patiently, I apply imagination.
+ - I am interested in physical medicine because my father was. I am interested in medical research because I believe in it. I am interested in arthritis because I have it.
+ - We are living in a highly organized state of socialism. The state is all; the individual is of importance only as he contributes to the welfare of the state. His property is only his as the state does not need it. He must hold his life and his possessions at the call of the state.
+ - Even when we know what is right, too often we fail to act. More often we grab greedily for the day, letting tomorrow bring what it will, putting off the unpleasant and unpopular.
+ - Increased wages, higher pensions, more unemployment insurance, all are of no avail if the purchasing power of money falls faster.
+ - Science has taught us how to put the atom to work. But to make it work for good instead of for evil lies in the domain dealing with the principles of human duty. We are now facing a problem more of ethics than physics.
+ - To me old age is always fifteen years older than I am.
+ - Although the shooting war is over, we are in the midst of a cold war which is getting warmer.
+ - The essence of any plan for financing old age is saving-to put aside some part of today’s earnings for the future. Anything that saps the value of savings-and inflation is the worst single threat-is the enemy of the aged and of those who expect to grow old.
+ - So efficient are the available instruments of slavery; fingerprints, lie detectors, brain washings, gas chambers; that we shiver at the thought of political change which might put these instruments in the hands of men of hate.
+ - A political leader must keep looking over his shoulder all the time to see if the boys are still there. If they arent still there, hes no longer a political leader.
+ - Government is not a substitute for people, but simply the instrument through which they act. And if the individual fails to do his duty as a citizen, government becomes a very deadly instrument indeed.
+ - America has never forgotten – and never will forget – the nobler things that brought her into being and that light her path.
+ - Colleges don’t teach economics properly. Unfortunately we learn little from the experience of the past. An economist must know, besides his subject, ethics, logic, philosophy, the humanities and sociology, in fact everything that is part of how we live and react to one another.
+ - A man can’t retire his experience.
+ - Whatever men attempt, they seem driven to overdo. When hopes are soaring, I always repeat to myself that two and two still make four.
+ - Be quick to praise people. People like to praise those who praise them.
+ - Approach each new problem not with a view of finding what you hope will be there, but to get the truth.
+ - You can talk about capitalism and communism and all that sort of thing, but the important thing is the struggle everybody is engaged in to get better living conditions, and they are not interested too much in government.
+ - The longer I operated on Wall Street the more distrustful I became of tips and inside information of every kind. Given time, I believe that inside information can break the Bank of England.
+ - The terror created by weaponry has never stopped men from employing them.
+ - Unless each man produces more than he receives, increases his output, there will be less for him than all the others.
+ - Information cannot serve as an effective substitute for thinking.
+ - Society can progress if men’s labors show a profit – if they yield more than is put in. To produce at a loss must leave less for all to share.
+
+74 quotes

@@ -1,0 +1,27 @@
+ - I can be a bit of a science geek. I tend more towards reading about brain science, neuroscience.
+ - I remember when I was working on Mission: Impossible 2, John Woo said, “In Hong Kong, there’s not much money and a lot of time. In Hollywood, a lot of money, not much time.” Personally I’d prefer not much money, a lot of time.
+ - I was an English major, so I love discussing possibilities and alternate theories.
+ - So I’m here, and not being one for missed opportunities, I made a list of the casting directors in New York and mark off the ones I’ve already met over the years. The few remaining I asked my agent and manager, “See if you can set up some meetings while I’m here.”
+ - One of the great things about having been on Lost is people coming up and feeling so enthusiastic about the show and saying, “Oh it provided us so much entertainment,” or “It inspired conversations.”
+ - I can be a bit of a science geek. I tend more towards reading about brain science, neuroscience. I was an English major, so I love discussing possibilities and alternate theories. Aside from the science aspect of it, the philosophical possibilities are so interesting.
+ - I love classical music and often listen to symphonies or opera in the morning.
+ - I would not call myself Catholic anymore, but I went to 16 years of Catholic school: grade school, high school and college.
+ - Generally a wise actor will be very careful about the person to whom he gives that power.
+ - Well, you’re in a theater and it’s 24 shots a second, your face, your body, your voice, and it’s your craft, the way you earn your living, and it’s indelible. It’s not like writing a script – I write as well – I can’t do another draft, it’s done.
+ - I feel honored to be a part of something that provided people with entertainment and that inspired conversations. I feel very, very fortunate.
+ - This is a horrid generalization, so I’ll probably get hate mail from stockbrokers. I would have been forced to get back to work, and would have been less accustomed to being in touch with my feelings and allowing my feelings to drive my decisions and behavior.
+ - I love sci-fi, especially when it thrives on a thought-provoking story, rather than explosions.
+ - I worked in script development, many years ago, and read a lot of scripts. Between that and the scripts I’ve read as an actor, and I’m a writer as well, I think I have a pretty good sense about whether the bones of a story are there and whether the structure is intact.
+ - I don’t think that necessarily I was encouraged by the nuns and the priest to consider alternate possibilities to the universe.
+ - In the summer of 2009, I was at the Shakespeare lab at the public theater in New York.
+ - One of the advantages of shooting digitally was that we had a lot of time. When you shoot, even if you do a good performance, it may get lost in the editing room. It’s just one more way that a potentially good film might go astray.
+ - I guess every actor has certain emotions they can access easier than others.
+ - If you’re going to do a guest spot on television, they need bodies on those procedural TV shows. You’ve got to keep working, and that’s where a lot of the work is.
+ - Every actor has their own method, so I’m not suggesting what works for me will work for everybody else.
+ - One of the great things about film is that, typically anything that’s introduced in the first five minutes, the audiences will by into.
+ - If you think about filmmaking as an entire spectrum, starting with the writer and ending with maybe the marketing department, the actor’s contribution is a rather slender band.
+ - Look, we all know how hard it is for us to – I’m going to speak for myself – find a still photo of yourself that you like. Like how many times do people send photos and you’re like, “Oh burn it.”
+ - I went to Notre Dame. I don’t know if that has any relevance, but maybe we all had a little too much philosophy and theology.
+ - I’ve made a number of independent films that didn’t receive theatrical distribution, that a lot of people haven’t heard of, and as a result, I’ve conditioned myself to go into small independent films with the expectation that they will not, and therefore, I have to find my reward elsewhere.
+
+25 quotes

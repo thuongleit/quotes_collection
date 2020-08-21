@@ -1,0 +1,22 @@
+ - Attempting to get at truth means rejecting stereotypes and cliches.
+ - The camera cannot lie, but it can be an accessory to untruth.
+ - In journalism it is simpler to sound off than it is to find out. It is more elegant to pontificate than it is to sweat.
+ - If Rupert Murdoch wants to charge for content online, he will succeed in so far, but no further than what he provides that is unique and can’t be found anywhere. It doesn’t seem to me that if he wants to charge it will be a blow to universal freedom and liberty of mankind.
+ - I love craftsmanship of any kind, a job well done either by my chiropractor or carpenter, and I am addicted to print, the type, the ink. But my basic passion is journalism and I can’t live without being online.
+ - Propaganda is persuading people to make up their minds while withholding some of the facts from them.
+ - Journalism is not easy. It’s the first rough draft. I don’t think you need to wait around until you have the definitive thing. You record what’s there; don’t delude yourself that this is the ultimate historical view.
+ - Some blogs have become the best check on monopoly mainstream journalism, and they provide a surprisingly frequent source of initiative reporting.
+ - We always talk about how everyone is unifocal. You can’t possibly be interested in jazz and Beethoven. Of course you can. You can’t both be reading a newspaper and be online. Of course you can. We shouldn’t be obsessed with a gun to your head, ‘You either read a newspaper or die!’
+ - I think America has a brilliant future.
+ - When I first came to the United States in 1956 I fell in love with things – mainly the vitality and the freedoms.
+ - When I was studying at Chicago and at Stanford University, where many many cases of two people observing the same event have a different take on what happened.
+ - Throughout America’s young history there has been a necessary tension between the individual and the group.
+ - What I’m driving at is let’s not lose sight in our excitement of the democratization of the media that some things are bad, false and ugly – and no amount of electronic gloss will make them true, beautiful and accurate.
+ - Internet news cycles are by the minute, and any fool can take a headline from the Associated Press and send it out as news.
+ - For 50 years my father worked for the railroad.
+ - The democratization of news is fine and splendid, but it’s not reporting. It’s based on a fragment of information picked up from television or the web, and people are sounding off about something that’s not necessarily true.
+ - Actions are always more complex and nuanced than they seem. We have to be willing to wrestle with paradox in pursuing understanding.
+ - I think a lot of newspapers have lost touch with that sense of community, which so impressed me as a teenager when I had to knock on people’s doors.
+ - Transmitting information is easier than creating understanding.
+
+20 quotes

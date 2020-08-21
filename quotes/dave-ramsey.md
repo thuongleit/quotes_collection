@@ -1,0 +1,143 @@
+ - If you will live like no one else, later you can live like no one else.
+ - We buy things we don’t need with money we don’t have to impress people we don’t like.
+ - Nothing happens without focus. Don’t try to do everything at once. Take it one step at a time.
+ - Debt is normal. Be weird.
+ - A budget is telling your money where to go instead of wondering where it went.
+ - Debt is dumb. Cash is king.
+ - Adults devise a plan and follow it, children do what feels good.
+ - Pray like it all depends on God, but work like it all depends on you.
+ - Being willing to delay pleasure for a greater result is a sign of maturity.
+ - Those who don’t manage their money will always work for those who do.
+ - It’s never too late to turn things around. You are the only obstacle.
+ - Remember, there’s ultimately only one way to financial peace, and that’s to walk daily with the Prince of Peace, Christ Jesus.
+ - Bosses push, Leaders pull. Real leadership is servant leadership.
+ - Winning at money is 80 percent behavior and 20 percent head knowledge. What to do isn’t the problem; doing it is. Most of us know what to do, but we just don’t do it. If I can control the guy in the mirror, I can be skinny and rich.
+ - You must gain control over your money or the lack of it will forever control you.
+ - Act your wage.
+ - Work is doing it. Discipline is doing it every day. Diligence is doing it well every day.
+ - True leadership is servanthood. Put the interests of others at the center of your decisions.
+ - There’s a great place to go when you’re broke – to work!
+ - Every person falls down at some point. Successful people choose to get back up!
+ - Success is a pile of failure that you are standing on.
+ - Fear is the enemy of hope.
+ - If hard work, integrity, thrift, and perseverance have caused you to succeed, then you don’t owe anyone an apology for winning.
+ - Delegation requires the willingness to pay for short term failures in order to gain long term competency.
+ - Investing is important, but get debt-free first. That’s what frees up your income so you can win.
+ - The paid-off home mortgage has taken the place of the BMW as the status symbol of choice.
+ - You will only sacrifice when you passionately believe in the outcome.
+ - Where you are today is the sum of every choice you’ve ever made. If you don’t like where you are, start making different choices!
+ - Just keep taking the next step and keep having excellence in the ordinary.
+ - Broke is normal. Why be normal?
+ - Change is painful. Few people have the courage to seek out change. Most people won’t change until the pain of where they are exceeds the pain of change.
+ - When getting help with money, whether it is insurance, real estate or investments you should always look for a person with the heart of a teacher, not the heart of a salesman.
+ - There are no shortcuts when it comes to getting out of debt.
+ - Earning a lot of money is not the key to prosperity. How you handle it is.
+ - We live in a culture full of hares; but the tortoise always wins.
+ - The first step in taking control of your money is to stop borrowing money. Start using cash today.
+ - Financial peace isn’t the acquisition of stuff. It’s learning to live on less than you make, so you can give money back and have money to invest. You can’t win until you do this.
+ - As you will it, so shall it be.
+ - Doing a budget means learning an ancient and powerful word: NO.
+ - One definition of maturity is learning to delay pleasure.
+ - You can’t be in debt and win. It doesn’t work.
+ - Contentment may be the most powerful Financial Principle. You can give more, avoid debt, and live better.
+ - At the end of the day we are not selling, we are serving.
+ - You don’t build wealth with credit card rewards and airline miles. You can’t beat the credit card companies at their own game.
+ - If you will make the sacrifices now that most people aren’t willing to make, later on you will be able to live as those folks will never be able to live.
+ - You can’t work three hours a week and make $100,000. Get rich quick doesn’t work. Crock pot mentality always defeats microwave mentality!
+ - Without a mission statement, you may get to the top of the ladder and then realize it was leaning against the wrong building!
+ - Credit is an ‘I love debt’ score.
+ - Broke people giving financial advice is like a shop teacher with missing fingers.
+ - Poor is a state of mind. Broke is, ‘I’m just passing through.’
+ - You can get anywhere if you simply go one step at a time.
+ - That stupid saying “What you don’t know can’t hurt you” is ridiculous. What you don’t know can kill you. If you don’t know that tractor trailer trucks hurt when hitting you, then you can play in the middle of the interstate with no fear – but that doesn’t mean you won’t get killed.
+ - Goals convert vision into ENERGY.
+ - Stupid is not illegal.
+ - Gratitude is really, really attractive. A child who is genuinely grateful makes you want to do anything for her, and that is true of adults as well.
+ - Thinking about starting a small business? Assume everything will cost twice as much and take twice as long as you think it will.
+ - I believe that through knowledge and discipline, financial peace is possible for all of us.
+ - Outrageous generosity is a character quality of people who win with money.
+ - Your greatest asset is your paycheck. Disability insurance protects you and your family if you are unable to work by providing income which will help pay your bills and take care of your family. It’s just as important as life insurance.
+ - You must walk to the beat of a different drummer. The same beat that the wealthy hear. If the beat sounds normal, evacuate the dance floor immediately! The goal is to not be normal, because as my radio listeners know, normal is broke.
+ - Wealth comes from hard work but not because of hard work. Wealth comes because of God. Everything is His.
+ - Knock out a small debt first so you get a quick win. Momentum is key.
+ - Don’t medicate dysfunction with spending. No amount of stuff will get rid of guilt.
+ - You have the clean canvas of a whole week before you. Paint well.
+ - We learned early on that if we help enough people, the money will come.
+ - Study the habits of the people you want to be like and then imitate them. If they are succeeding, they must be doing something right.
+ - Wealth gained by dishonesty will be diminished, but he who gathers by labor will increase.
+ - Financial Security is not enough money to buy toys. That is to learn to live with less money than you earn. So, you can help other individuals or investors. You are not a winner until done it.
+ - You wanna blow money? Put it in a ‘blow’ category in your budget. But at least admit it on paper!
+ - If your life is bad because of an elected official, then you don’t have a life.
+ - Hitting bottom and hitting it hard was the worst thing that ever happened to me and the best thing that ever happened to me.
+ - I came to realize that my money problems, worries, and shortages largely began and ended with the person in my mirror. I realized also that if I could learn to manage the character I shaved with every morning, I would win with money.
+ - No one got rich on a government program. Do not choose to be a common man. You can be uncommon.
+ - Work-get paid; don’t work-don’t get paid. Everybody is on commission.
+ - Leading a family is the hardest job a man can ever have.
+ - Too many people try to do the new job, new spouse, new house, new car thing in 18 months. That’s a good way to end up broke. We’ve got to resist the temptation to catch up with our parents in 18 months. Slow down. You have the rest of your life to play catch up. After all, it’s just stuff.
+ - Teaching kids about money is never just about money.
+ - Higher calling matters. When you care so deeply about the why-why you’re doing what you’re doing-then and only then are you operating in a way that allows you to overcome the obstacles.
+ - Be an evangelist with your excellence.
+ - I would not pre-pay. I would invest instead and let the investments cover it.
+ - When leadership set the goals by themselves, they are not goals, they are quotas.
+ - A good financial planner is going to do more than pick your funds.
+ - You’re not exempt from math if you’re a Republican, and you’re not exempt from math if you’re a Democrat. You’re not exempt from math if you’re a liberal, and you’re not exempt from math if you’re a conservative. You still have to do math.
+ - Opening your hands will set you free...
+ - There’s not a party, a congressman, a senator, etc. elected that will fix your life. YOU have to fix YOUR life.
+ - Term Life Insurance is the only insurance I recommend. It’s the least expensive way to get the coverage your family needs and allows you to lock in rates for 15, 20 or 30 years. Zander’s online quoting system will help you find the most competitive options. It’s more affordable than you think!
+ - We are all in the business of sales. Teachers sell students on learning, parents sell their children on making good grades and behaving, and traditional salesmen sell their products.
+ - Children who reach the age of eighteen with their entire skills set composed on Nintendo and eating Doritos have been neglected. Their parents neglected to give them the character traits necessary to live successfully.
+ - I’m a Christian. Years ago, I went broke, so I decided to run every part of my life according to the Bible. It sounds hokey, but it works. You run your marriage that way, and it works. It will work with business, too, and finances. Treat people like you want to be treated.
+ - Good things that cannot be calculated or quantified are set in motion in your life and in your finances when you give.
+ - We’ve really got to stop looking to Washington to fix our problems. It obviously doesn’t have the ability to do that. People who are successful are not successful because of the president.
+ - If people in America would get their finances together and start taking care of each other, we could put the government out of business.
+ - You cannot lead without passion. Passion causes things to move, and passion creates a force multiplier. Passion actually covers a multitude of sins. Real EntreLeaders care deeply, and that is basically what passion is. Passion is not yelling or being wild; it is simply caring deeply.
+ - People are in such a hurry to launch their product or business that they seldom look at marketing from a bird’s eye view and they don’t create a systematic plan.
+ - Instead of just purchasing an ad campaign, target test and measure. Give an ad a small try. If the response is enough to pay for the ad, make it larger. With a franchise, ask the most successful franchisees what they did. Ask the bottom five guys what they did and avoid it.
+ - Debt has become a part of who we are.
+ - The creature comforts we tend to rationalize as “business expenses I can write off.”
+ - I can’t tell you how many home businesses are almost in bankruptcy court over a Yellow Pages ad only to find out that the Yellow Pages ad isn’t where their market will look for them, and it cost more than they thought.
+ - I have to live my books before I write them.
+ - In order to be a great marketer, you have to be focused and intense and look at scarcity, urgency, activity and passion in the marketplace.
+ - Surround yourself with people who add the fuel of advice and encouragement to your fire.
+ - Goals are visions and dreams with work clothes on.
+ - Ideas are a dime a dozen. People who execute them are not.
+ - Rich isn’t an amount of money, it’s a mindset about how you live. If you believe you can win, you can.
+ - Money is 80% behavior, 20% head knowledge. It’s what you do, not what you know.
+ - Work is a surefire money-making scheme.
+ - The thing I have discovered about working with personal finance is that the good news is that it is not rocket science. Personal finance is about 80 percent behavior. It is only about 20 percent head knowledge.
+ - Be very proud of what you do, and if you aren’t then change it.
+ - Your priorities, passions, goals, and fears are shown clearly in the flow of your money.
+ - The world will try to tell you that you need stuff to be somebody. Don’t listen.
+ - You have to teach children about money intentionally – create teachable moments.
+ - More wealth doesn’t fix your life. More wealth makes you more of what you already are.
+ - Money is not good or evil. It has no morals or intentions on its own. Money reflects the character of the user.
+ - Be intense, passionate, and fired up, but about things that matter, things that change your life and your legacy.
+ - When you’re trying to achieve a goal, negative people will just bring you down. Surround yourself with the positive.
+ - After losing everything, I went on a quest to find out how money really works, how I could get control of it, and how I could have confidence in handling it.
+ - Great talent stands in line to join your team because the culture becomes the stuff of legend.
+ - Financial winners don’t run sprints, they run marathons. They don’t rush. They do it step by step over time.
+ - A lower interest rate doesn’t make a debt go away.
+ - You’ve got to tell your money what to do or it will leave.
+ - When people get scared, they quit giving.
+ - Contentment is both the fruit and the tree.
+ - The only reason to go into business is to make money. You have to work hard at it. If you’re not passionate about it, you’ll burn out so fast that it is incredible.
+ - Anytime you open a business, you have to be effective in promoting whether it’s a franchise or not. You’ll need to learn to be a Web marketer extraordinaire. There’s plenty of material out there.
+ - Making mistakes and learning from them is crucial to winning.
+ - My children were taught at an early age how money works and that it comes from hard work. They’ve been on a commission – not an allowance – since they were little. They learned that if they worked around the house, they got paid. If they didn’t work, they didn’t get paid.
+ - I’m not against people having new cars. I’m against them having you. We spend a tremendous amount impressing somebody at the stoplight who we’ll never meet. It makes you broke and keeps you broke.
+ - A big part of being strong financially is that you know where you are weak and take action to make sure you don’t fall prey to the weakness. And we ALL are weak.
+ - If you come with mercy but not justice; that’s called enabling.
+ - Do not let your life, ministry or organization go faster than your resources.
+ - Debt gives you the ability to look like you’re winning when you’re not.
+ - When you create a basic budget and stick to it, it will suddenly seem like you have more money.
+ - Feeling lost? Take a dream and convert it into small goals, then start taking the steps to hit those goals.
+ - The decision to go into debt alters the course and condition of your life. You no longer own it. You are owned.
+ - Leadership responsibility: If you own a biz, you’re the head of the org. Good or bad, your company will LOOK and ACT like you do.
+ - If you buy a $28,000 car, in four years it will be worth about 11,000 bucks.
+ - The average millionaire can’t tell you who got thrown off the island last night.
+ - When we’re dealing with money in relationships, when we’re dealing with money in our personal lives, when we’re dealing with money in our families, the flow of money in a family represents the value system under which that family operates.
+ - If you help enough people, you don’t have to worry about money.
+ - What I have done is packaged the time-honored information into a process that is doable and has inspired millions to act on it.
+ - Save 3-6 months of expenses in a Rainy Day fund. Know why? Cause it is going to rain, and you aren’t the exception.
+
+141 quotes

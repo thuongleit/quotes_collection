@@ -1,0 +1,22 @@
+ - Essentially, we humans live well enough and long enough, and are smart enough, to generate all sorts of stressful events purely in our heads.
+ - An open mind is a prerequisite to an open heart.
+ - The purpose of science is not to cure us of our sense of mystery and wonder, but to constantly reinvent and reinvigorate it.
+ - Genes are rarely about inevitability, especially when it comes to humans, the brain, or behavior. They’re about vulnerability, propensities, tendencies.
+ - I love science, and it pains me to think that so many are terrified of the subject or feel that choosing science means you cannot also choose compassion, or the arts, or be awed by nature. Science is not meant to cure us of mystery, but to reinvent and reinvigorate it.
+ - But if you get chronically, psychosocially stressed, you’re going to compromise your health. So, essentially, we’ve evolved to be smart enough to make ourselves sick.
+ - How much you groom somebody else is more important than who grooms you.
+ - The less it is possible that something can be, the more it must be.
+ - Get it wrong, and we call it a cult. Get it right, in the right time and the right place, and maybe, for the next few millennia, people won’t have to go to work on your birthday.
+ - Perhaps most excitingly, we are uncovering the brain basis of our behaviors – normal, abnormal and in-between. We are mapping a neurobiology of what makes us us.
+ - We’ve evolved to be smart enough to make ourselves sick.
+ - On an incredibly simplistic level, you can think of depression as occurring when your cortex thinks an abstract thought and manages to convince the rest of the brain that this is as real as a physical stressor.
+ - I had never planned to become a savanna baboon when I grew up; instead, I had always assumed I would become a mountain gorilla.
+ - Depression is not generalized pessimism, but pessimism specific to the effects of one’s own skilled action.
+ - We live well enough to have the luxury to get ourselves sick with purely social, psychological stress.
+ - If a rat is a good model for your emotional life, you’re in big trouble.
+ - Most of us don’t collapse into puddles of stress-related disease.
+ - Finish this lecture, go outside, and unexpectedly get gored by an elephant, and you are going to secrete glucocorticoids. There’s no way out of it. You cannot psychologically reframe your experience and decide you did not like the shirt, here’s an excuse to throw it out – that sort of thing.
+ - Some Poor grad student pressing on the flanks of a hamster and out comes a doctorate on the other side.
+ - We’re getting along so well; I trust you so much for this one second that I’m going to let you yank on me.
+
+20 quotes

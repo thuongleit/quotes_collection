@@ -1,0 +1,67 @@
+ - Those who are animated by hope can perform what would seem impossibilities to those who are under the depressing influence of fear.
+ - We may make our future by the best use of the present. There is no moment like the present.
+ - Health can make money, but money cannot make health.
+ - Nature’s hasty conscience.
+ - It sometimes requires courage to fly from danger.
+ - Beauty is a great gift of heaven; not for the purpose of female vanity, but a great gift for one who loves, and wishes to be beloved.
+ - The everlasting quotation-lover dotes on the husks of learning.
+ - Confidence is the best proof of love.
+ - Nature knows best, and she says, roar!
+ - Man is to be held only by the slightest chains; with the idea that he can break them at pleasure, he submits to them in sport.
+ - Persons not habituated to reason often argue absurdly, because, from particular instances, they deduce general conclusions, and extend the result of their limited experience of individuals indiscriminately to whole classes.
+ - No man ever distinguished himself who could not bear to be laughed at.
+ - There is no moment like the present. The man who will not execute his resolutions when they are fresh upon him can have no hope from them afterwards: they will be dissipated, lost, and perish in the hurry and scurry of the world, or sunk in the slough of indolence.
+ - The unaffected language of real feeling and benevolence is easily understood, and is never ridiculous.
+ - A man who sells his conscience for his interest will sell it for his pleasure. A man who will betray his country will betray his friend.
+ - Our pleasures in literature do not, I think, decline with age; last 1st of January was my eighty-second birthday, and I think that I had as much enjoyment from books as I ever had in my life.
+ - Love occupies a vast space in a woman’s thoughts, but fills a small portion in a man’s life.
+ - Nor elves, nor fays, nor magic charm, Have pow’r, or will, to work us harm; For those who dare the truth to tell, Fays, elves, and fairies, wish them well.
+ - I’ve a great fancy to see my own funeral afore I die.
+ - Let the sexes mutually forgive each other their follies; or, what is much better, let them combine their talents for their general advantage.
+ - According to the Asiatics, Cupid’s bow is strung with bees which are apt to sting, sometimes fatally, those who meddle with it.
+ - The human heart, at whatever age, opens to the heart that opens in return.
+ - Idleness, ennui, noise, mischief, riot, and a nameless train of mistaken notions of pleasure, are often classed, in a young man’s mind, under the general head of liberty.
+ - What a misfortune it isto be bornawoman!? Why seek for knowledge, which can prove only that our wretchedness is irremediable? If a ray of light break in upon us, it is but to make darkness more visible; to show usthenew limits, the Gothic structure, theimpenetrable barriers of our prison.
+ - How success changes the opinion of men!
+ - In real friendship the judgment, the genius, the prudence of each party become the common property of both.
+ - In marrying, a man does not, to be sure, marry his wife’s mother; and yet a prudent man, when he begins to think of the daughter, would look sharp at the mother; ay, and back to the grandmother too, and along the whole female line of ancestry.
+ - Fortune’s wheel never stands still the highest point is therefore the most perilous.
+ - Did the Warwickshire militia, who were chiefly artisans, teach the Irish to drink beer, or did they learn from the Irish how to drink whiskey?
+ - Hope can produce the finest and most permanent springs of action.
+ - Surely it is much more generous to forgive and remember, than to forgive and forget.
+ - Illness was a sort of occupation to me, and I was always sorry to get well.
+ - Business was his aversion; Pleasure was his business.
+ - If young women were not deceived into a belief that affectation pleases, they would scarcely trouble themselves to practise it so much.
+ - The bore is good for promoting sleep; but though he causeth sleep in others, it is uncertain whether he ever sleeps himself; as few can keep awake in his company long enough to see. It is supposed that when he sleeps it is with his mouth open.
+ - When one illusion vanishes, another shall appear, and, still leading me forward towards an horizon that retreats as I advance, the happy prospect of futurity shall vanish only with my existence.
+ - An orator is the worse person to tell a plain fact.
+ - We perfectly agreed in our ideas of traveling; we hurried from place to place as fast as horses and wheels, and curses and guineas, could carry us.
+ - Now flattery can never do good; twice cursed in the giving and the receiving, it ought to be.
+ - Young ladies who think of nothing but dress, public amusements, and forming what they call high connexions, are undoubtedly most easily managed, by the fear of what the world will say of them.
+ - Those who have lived in a house with spoiled children must have a lively recollection of the degree of torment they can inflict upon all who are within sight or hearing.
+ - It is unjust and absurd of those advancing in years, to expect of the young that confidence should come all and only on their side: the human heart, at whatever age, opens only to the heart that opens in return.
+ - How is it that hope so powerfully excites, and fear so absolutely depresses all our faculties?
+ - Home! With what different sensations different people pronounce and hear that word pronounced!
+ - Bishop Wilkins prophesied that the time would come when gentlemen, when they were to go on a journey, would call for their wings as regularly as they call for their boots.
+ - Beauties are always curious about beauties, and wits about wits.
+ - It is not so easy to do good as those who have never attempted it may imagine.
+ - Come when you’re called; And do as you’re bid; Shut the door after you; And you’ll never be chid.
+ - Artificial manners vanish the moment the natural passions are touched.
+ - Promises are dangerous things to ask or to give.
+ - The bore is usually considered a harmless creature, or of that class of irrationa bipeds who hurt only themselves.
+ - Remember, we can judge better by the conduct of people towards others than by their manner towards ourselves.
+ - Let menot, even inmyownmind, committheinjustice of taking a speck for the whole.
+ - Books only spoil the originality of genius. Very well for those who can’t think for themselves – But when one has made up one’s opinions, there is no use in reading.
+ - Obtain power, then, by all means; power is the law of man; make it yours.
+ - Habit is, to weak minds, a species of moral predestination, from which they have no power to escape.
+ - First loves are not necessarily more foolish than others; but the chances are certainly against them. Proximity of time or place, a variety of accidental circumstances more than the essential merits of the object, often produce what is called first love.
+ - Some people talk of morality, and some of religion, but give me a little snug property.
+ - We are all apt to think that an opinion that differs from our own is a prejudice...
+ - Sir Patrick Rackrent lived and died a monument of old Irish hospitality.
+ - A love-match was the only thing for happiness, where the parties could any way afford it.
+ - The Irish sometimes make and keep a vow against whiskey; these vows are usually limited to a short time.
+ - There are two sorts of content; one is connected with exertion, the other with habits of indolence. The first is a virtue; the other, a vice.
+ - The labor of thinking was so great to me, that having once come to a conclusion upon any subject, I would rather persist in it, right or wrong, than be at the trouble of going over the process again to revise and rectify my judgment.
+ - Justice satisfies everybody.
+
+65 quotes

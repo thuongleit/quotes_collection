@@ -1,0 +1,25 @@
+ - I’m a great coder. But I am not pushing that so much anymore because there are thousands of great coders.
+ - A quiet personality sure isn’t what you need to attract attention.
+ - It always helps to be a good programmer. It is important to like computers and to be able to think of things people would want to do with their computers.
+ - I can do whatever I want. They will tell me if what I am doing is stupid or a total waste of time. I may tell them that they are wrong, and we will come to an agreement.
+ - Even though Raster Blaster was only a video game, I was learning about designing stuff. I got good at drawing.
+ - I think a craft becomes an art form when the space of possible solutions becomes so huge that engineering can’t carry you through.
+ - You must know in your heart before anyone else does what is going to be good and then follow through.
+ - I know when something is kind of half-baked.
+ - Video games are engineered now, but the step I am trying to take, no one can engineer.
+ - I have a really powerful urge to see things work.
+ - I write my programs primarily for myself.
+ - On the robot kit, I can choose very boring parts or I can choose exciting and interesting parts. That is a reflection of my personality and the kinds of things I am interested in.
+ - You will be able to program a robot to follow a track on the ground and manipulate a hand. You can also write little programs that will give the robots goals.
+ - All of the good stuff is going to be done in the future. The stuff we are doing now is crummy compared with what will finally mature.
+ - To be honest, I look at my Pinball program and feel that it is old stuff. I could do much better.
+ - The power of the computer is starting to spread.
+ - When I am starting a new game, I have to program it for the Apple, because I want to get all of the markets.
+ - Any artist always has misgivings about calling himself an artist.
+ - The Apple has the fewest bells and whistles. It has simple sound and few graphics special effects. In a way, that is a weakness because markets for the other machines are getting bigger.
+ - I really think it is amazing that people actually buy software.
+ - I started on an Apple II, which I had bought at the very end of 1978 for half of my annual income. I made $4,500 a year, and I spent half of it on the computer.
+ - The program should know if someone is at the keyboard or joystick or if it is just sitting there idle. It should know if someone is proficient in its use or a novice.
+ - Everything is getting bigger. The way to go now is to program in a little more sophistication.
+
+23 quotes

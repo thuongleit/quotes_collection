@@ -1,0 +1,23 @@
+ - Man the lifeboats. The idiots are winning.
+ - Whenever I tell people I’m a misanthrope they react as though that’s a bad thing, the idiots. I live in London, for God’s sake. Have you walked down Oxford Street recently? Misanthropy’s the only thing that gets you through it. It’s not a personality flaw, it’s a skill.
+ - If technology is a drug – and it does feel like a drug – then what, precisely, are the side-effects?
+ - Your grades are not your destiny: they’re just letters and numbers which rate how well you performed in one artificial arena, once.
+ - Technology is a global thing and wherever you go, people are prodding the same devices and worrying in the same way and have had their lives slightly altered in the same way.
+ - Hi-def is merely the latest in a string of evolutional leaps that have transformed the way we sit slumped in front of a box wishing we were dead.
+ - When you’re being earnest, people think you’re being sarcastic and when you’re being sarcastic, they think you’re being earnest. The moral in all this, of course, is that people should never attempt to communicate.
+ - Many people find bald, unvarnished truths so disturbing, they prefer to ram their heads in the sand and start dreaming at the first sign of scientific reality.
+ - The iPad falls between two stools – not quite a laptop, not quite a smartphone. In other words, it’s the spork of the electronic consumer goods world.
+ - Being slagged off is good for you. It thickens the skin and strengthens the backbone.
+ - Society? Can we trust us? Doubt it. We’re probably not even real, as was revealed in the popular documentary The Matrix. That bloke next door? Made of pixels. Your co-workers? Pixels. You? One pixel. One measly pixel. You haven’t even got shoes, for Christ’s sake.
+ - In summary, our world is doomed.
+ - Everyone had clearly spent far too long perfecting their appearance. I used to feel intimidated by people like this; now I see them as walking insecurity beacons, slaves to the perceived judgment of others, trapped within a self- perpetuating circle of crushing status anxiety.
+ - Beauty is in the eye of the beholder, which is a pity because this week the National Association of Beholders wrote to tell me that I’ve got a face like a rucksack full of dented bells.
+ - Whenever anything nice happens in the world I always expect something appalling to happen immediately afterwards.
+ - One of the benefits of aligning yourself with an indistinct cluster of people is that claiming to feel their pain is often enough.
+ - I’ve instinctively hated the Tories since birth.
+ - If love were a product, the queue at the faulty goods desk would stretch right round the universe and back. It doesn’t work properly. The seams come apart and it’s full of powdered glass.
+ - In many ways, Big Brother is the present day equivalent of a 1980s Club 18-30 Holiday – flirting, sunbathing, silly little organised games, and lots of people you’d like to remove from the genepool with a cricket bat.
+ - The biggest teenage taboo is being strait-laced. It’s easy to tell a researcher you went to a house party that turned into an orgy. It’s less easy to say you like eating toast and watching QI.
+ - At the other end of the spectrum, George Gideon Oliver King Rameses Osborne, the fourteen-year-old novelty Chancellor and future baronet of Ballentaylor and Ballylemon – a man so posh he probably weeps champagne.
+
+21 quotes

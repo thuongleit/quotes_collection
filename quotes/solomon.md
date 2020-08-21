@@ -1,0 +1,75 @@
+ - The fear of the Lord is the beginning of wisdom.
+ - Above all else, guard your heart, for everything you do flows from it.
+ - As iron sharpens iron, so a friend sharpens a friend.
+ - Money is the answer for everything.
+ - The tongue has the power of life and death.
+ - In much wisdom is much grief: and he that increaseth knowledge increaseth sorrow.
+ - He who walks with the wise grows wise, but a companion of fools suffers harm.
+ - Give me the gift of a listening heart.
+ - Words kill, words give life; they’re either poison or fruit – YOU choose.
+ - What has been will be again, what has been done will be done again; there is nothing new under the sun.
+ - Knowledge is of more value than gold.
+ - Do not let kindness and truth leave you; Bind them around your neck, Write them on the tablet of your heart.
+ - For as he thinketh in his heart, so is he.
+ - There is a time to weep and a time to laugh; a time to mourn and a time to dance.
+ - Fools despise wisdom and instruction.
+ - Under the Sun the race is not to the swift, nor the battle to the strong, nor bread to the wise, nor wealth to the intelligent, nor success to the skillful, but time and chance govern all. For man does not know his time.
+ - My beloved is mine and I am his.
+ - Lazy hands make a man poor, but diligent hands bring wealth.
+ - Keep thy heart with all diligence; for out of it are the issues of life.
+ - Of making many books there is no end; and much study is a weariness of the flesh.
+ - A gentle answer turns away wrath, but a harsh word stirs up anger.
+ - Love is as strong as death; its jealousy as unyielding as the grave. It burns like a blazing fire; like a mighty flame. Many waters cannot quench love, rivers cannot wash it away.
+ - Let us hear the conclusion of the whole matter: Fear God, and keep his commandments: for this is the whole duty of man. For God shall bring every work into judgment, with every secret thing, whether it be good, or whether it be evil.
+ - One man pretends to be rich, yet has nothing; another pretends to be poor, yet has great wealth.
+ - Sorrow is better than laughter: for by the sadness of the countenance the heart is made better.
+ - The discretion of a man makes him slow to anger. It is his glory to overlook an offense.
+ - A good name is rather to be chosen than riches.
+ - It is the glory of God to conceal a thing: but the honour of kings is to search out a matter.
+ - Your own soul is nourished when you are kind; it is destroyed when you are cruel.
+ - A fool is wise in his own eyes.
+ - The righteous man walks in his integrity; His children are blessed after him.
+ - Anxiety in a man’s heart weighs him down, but a good word makes him glad.
+ - Start with God – the first step in learning is bowing down to God; only fools thumb their noses at such wisdom and learning.
+ - All the rivers run into the sea; yet the sea is not full.
+ - To gain riches is wise; to pay for riches with happiness is foolish.
+ - The sleep of a laboring man is sweet.
+ - Who is the wise man? He who sees what’s going to be born.
+ - Being cheerful keeps you healthy.
+ - If you desire wisdom like money and buried treasures, then you’ll find it!
+ - The lesser of two evils is still evil.
+ - The desire accomplished is sweet to the soul...
+ - A wise person will listen and take in more instruction.
+ - Kindness and faithfulness keep a king safe, through kindness his throne is made secure.
+ - Riches are a stronghold in the imagination of a rich man.
+ - I saw under the sun the place of judgment, that wickedness was there; and the place of righteousness, that iniquity was there.
+ - The slacker does not plow during planting season; at harvest time he looks, and there is nothing.
+ - A wise son makes a glad father, But a foolish son is the grief of his mother.
+ - Comfort me with apples, for I am sick of love.
+ - Then the dust will return to the earth as it was, and the spirit will return to God who gave it.
+ - One who is slow to anger is better than the mighty; one who rules his spirit, than he who takes a city.
+ - Listen to your father who begot you, And do not despise your mother when she is old.
+ - He that walketh with wise men shall be wise.
+ - Better is the man of humble standing that works for himself than one who plays the great man but lacks bread.
+ - Better is a dinner of herbs where love is than a fattened ox and hatred with it.
+ - If you see oppression of the poor, and justice and righteousness trampled in a country, do not be astounded.
+ - A righteous man hates lying, But a wicked man is loathsome and comes to shame.
+ - I set my mind to seek and explore by wisdom concerning all that has been done under heaven. It is a grievous task which God has given to the sons of men to be afflicted with.
+ - From the fruit of his lips a man enjoys good things.
+ - Whoever stubbornly refuses to accept criticism will suddenly be broken beyond repair.
+ - Have you beheld a man skillful in his work? Before kings is where he will station himself; he will not station himself before commonplace men.
+ - The rich is the one that rules over those of little means, and the borrower is servant to the man doing the lending.
+ - Better the anger of a friend than the kiss of an enemy.
+ - He mocks proud mockers but gives grace to the humble. from the Book of Proverbs.
+ - If you are honest, you will live life safely. But if you are dishonest, you will get hurt.
+ - A wise man’s heart directs him toward the right, but a foolish man’s heart directs him toward the left.
+ - In the day of prosperity be joyful, but in the day of adversity consider.
+ - All problems are people problems. And most people problems are people refusing to act like people.
+ - Jealousy is cruel as a tomb, its embers are embers of fire.
+ - A soft answer breaks the rage, a tough answer encourage the fury.
+ - Without vision a people perishes.
+ - Love is strong as the Death; jealousies are as cruel as the tomb...
+ - That, who keeps his mouth, keeps his Soul.
+ - For 365 days I went in between the legs of many women.
+
+73 quotes

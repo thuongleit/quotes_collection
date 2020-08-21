@@ -1,0 +1,166 @@
+ - Once we realize that imperfect understanding is the human condition there is no shame in being wrong, only in failing to correct our mistakes.
+ - If investing is entertaining, if you’re having fun, you’re probably not making any money. Good investing is boring.
+ - Short term volatility is greatest at turning points and diminishes as a trend becomes established.
+ - When a long-term trend loses it’s momentum, short-term volatility tends to rise. It is easy to see why that should be so: the trend-following crowd is disoriented.
+ - I’m only rich because I know when I’m wrong.
+ - If I had to sum up my practical skills, I would use one word: survival. And operating a hedge fund utilized my training in survival to the fullest.
+ - The hardest thing to judge is what level of risk is safe.
+ - Economic history is a never-ending series of episodes based on falsehoods and lies, not truths. It represents the path to big money. The object is to recognize the trend whose premise is false, ride that trend and step off before it is discredited.
+ - Stock market bubbles don’t grow out of thin air. They have a solid basis in reality, but reality as distorted by a misconception.
+ - Destroying America will be the culmination of my life’s work.
+ - There is always a divergence between our perception and what actually exists.
+ - The prevailing wisdom is that markets are always right. I take the opposite position. I assume that markets are always wrong.
+ - Outperforming the market with low volatility on a consistent basis is an impossibility. I outperformed the market for 30-odd years, but not with low volatility.
+ - There is no point in being confident and having a small position.
+ - The worse a situation becomes the less it takes to turn it around, the bigger the upside.
+ - The main enemy of the open society, I believe, is no longer the communist but the capitalist threat.
+ - The strength of this country lies in the Declaration of Independence and the Bill of Rights and the freedom of speech and thought.
+ - I fancied myself as some kind of god or an economic reformer like Keynes.
+ - If the bubbles contain a misconception, as they always do, then it can’t be maintained forever.
+ - Market prices are always wrong.
+ - Making an investment decision is like formulating a scientific hypothesis and submitting it to a practical test.
+ - Taking this view, it is possible to see financial markets as a laboratory for testing hypotheses, albeit not strictly scientific ones. The truth is, successful investing is a kind of alchemy.
+ - There is very little difference between speculation and investment. The only difference is basically that investments are successful speculations because if you successfully anticipate the future you make a speculative profit.
+ - My sense of insecurity keeps me alert, always ready to correct my errors.
+ - Whenever there is a conflict between universal principles and self-interest, self-interest is likely to prevail.
+ - However, even a strong government can’t perform miracles. It needs money from the taxpayers.
+ - Markets are designed to allow individuals to look after their private needs and to pursue profit. It’s really a great invention, and I wouldn’t underestimate the value of that. But they’re not designed to take care of social needs.
+ - Of course, speculation will always make a crisis worse. If there is a weak point, it will expose it.
+ - Making an investment decision is like formulating a scientific hypothesis and submitting it to a practical test. The main difference is that the hypothesis that underlies an investment decision is intended to make money and not to establish a universally valid generalization.
+ - The main obstacle to a stable and just world order is the United States.
+ - A global economy is characterized not only by the free movement of goods and services but, more important, by the free movement of ideas and of capital.
+ - I rely a great deal on animal instincts.
+ - Every bubble has two components: something – some real trend, and a misconception about that trend.
+ - Start by assuming the market is always wrong, so if you copy everybody else on Wall Street, you’re doomed to do poorly.
+ - Economics seeks to be a science. Science is supposed to be objective and it is difficult to be scientific when the subject matter, the participant in the economic process, lacks objectivity.
+ - I don’t panic. The same thing applies to me as to everybody else, so I’m given to euphoria and despair. And I would say that I basically have survived by recognizing my mistakes.
+ - Now that I have called you on your false accusation, you are using additional smear tactics.
+ - Markets can influence the events that they anticipate.
+ - My approach works not by making valid predictions but by allowing me to correct false ones.
+ - The scope for improvement is infinite, precisely because perfection is unattainable.
+ - Studying economics is not a good preparation for dealing with it.
+ - It is much easier to put existing resources to better use, than to develop resources where they do not exist.
+ - When you sell options, you get paid for assuming risk. That can be a profitable business, but it does not mix well with the risks inherent in a leveraged portfolio.
+ - Every bubble consists of a trend that can be observed in the real world and a misconception relating to that trend. The two elements interact with each other in a reflexive manner.
+ - No individual anonymous participant can influence the prices and therefore you really can speculate in the market without paying attention to morality. That’s one of the positive features of markets. That’s why they function.
+ - I put forward a pretty general theory that financial markets are intrinsically unstable. That we really have a false picture when we think about markets tending towards equilibrium.
+ - As a society we can’t live without moral considerations. We do have to protect the public good. And markets are not designed to do that, so we need a political process.
+ - My original intention was to spend the money in my lifetime.
+ - I am for maximum supervision and minimum regulation.
+ - Discount the obvious, bet on the unexpected.
+ - To be successful, you need leisure. You need time hanging heavily on your hands.
+ - Unfortunately, the more complex the system, the greater the room for error.
+ - Market prices are always wrong in the sense that they present a biased view of the future.
+ - If truth be known, I carried some rather potent messianic fantasies with me from childhood which I felt I had to control, otherwise I might end up in the loony bin. But when I made my way in the world I wanted to indulge myself in my fantasies to the extent that I could afford.
+ - My conceptual framework, which basically emphasizes the importance of misconceptions, makes me extremely critical of my own decisions. I know that I am bound to be wrong, and therefore am more likely to correct my own mistakes.
+ - The more comprehensive and convincing a debt reduction program is, the less likely it is to fail. And remember, just as Germany is grateful to America for the Marshall Plan, Italy would be grateful to Germany for helping it lower its refinancing costs.
+ - The eurozone status quo is neither tolerable nor stable. Mainstream economists would call it an inferior equilibrium; I call it a nightmare – one that is inflicting tremendous pain and suffering that could be easily avoided if the misconceptions and taboos that sustain it were dispelled.
+ - Sometimes time actually works against you if you refuse to face the relevant issues and explain to the public what is at stake.
+ - When I had made more money than I needed for myself and my family, I set up a foundation to promote the values and principles of a free and open society.
+ - Globalization has rendered the world increasingly interdependent, but international politics is still based on the sovereignty of states.
+ - Find the trend whose premise is false, and bet against it.
+ - The sovereignty of states must be subordinated to international law and international institutions.
+ - Law has become a business. Health care has become a business. Unfortunately, politics has also become a business. That really undermines society.
+ - The trouble with institutional investors is that their performance is usually measured relative to their peer group and not by an absolute yardstick. This makes them trend followers by definition.
+ - The global crisis is caused by pathologies inherent in the global financial system itself.
+ - The financial markets play an active role in determining what’s going to happen, how the economy is going to function.
+ - Democracy, by its very nature, can’t be imposed on people. Democracy has to be the people deciding for themselves.
+ - I contend that financial markets never reflect the underlying reality accurately; they always distort it in some way or another and the distortions find expression in market prices. Those distortions can, occasionally, find ways to affect the fundamentals that market prices are supposed to reflect.
+ - I think that my foundation uses the money better than the government does. In any event, I do pay taxes.
+ - China could easily emerge as the great winner if the Chinese leaders handle the situation well. On the other hand, they could also turn out to be the biggest losers if they handle it poorly. If the management turns out be wrong, this could lead to a political crisis in China.
+ - The world order needs a major overhaul.
+ - We must recognize that as the dominant power in the world we have a special responsibility. In addition to protecting our national interests, we must take the leadership in protecting the common interests of humanity.
+ - American supremacy is the greatest threat to the world today.
+ - Playing by the rules, one does the best he can, irrespective of the social consequences. Whereas in making the rules, people ought to be concerned with the social consequences and not with their personal interests.
+ - An open society calls itself open to improvement. It is based on the recognition that people have divergent views and interests, and that nobody is in possession of the ultimate truth.
+ - Political debate is more interested in manipulating the truth, than finding the truth.
+ - Mankind’s ability to understand and control the forces of nature greatly exceeds our ability to govern ourselves.
+ - These public-private partnerships are very, very dangerous. The most rotten part of the financial system in the US consisted of the government sponsored entities. They really kicked off this crisis. The state should set the rules and enforce them but not become involved as a market player.
+ - The key problem is the debt restructuring in the euro zone. As long as the debt burden is not reduced, there is no chance of the weaker EU countries regaining competitiveness.
+ - Hedge funds are a very efficient way of managing money. But there are clearly some risks. Hedge funds use credit and credit is a source of instability. Transactions involving credit should be regulated.
+ - The bureaucratic method of building an integrated Europe has exhausted its potential.
+ - What works for Germany can’t work for the rest of Europe: No country can run a chronic surplus without others running deficits.
+ - There is no doubt that the countries that now have a very large debt have not introduced the kind of structural reforms that Germany did and are therefore at a disadvantage. But the problem is that this disadvantage is becoming even more pronounced through the punitive policies in place.
+ - In the case of a meltdown, the regulatory authorities may find themselves obliged to step in to preserve the integrity of the system. It is in that light that the authorities have both a right and an obligation to supervise and regulate derivative instruments.
+ - Merkel has realized that the euro is not working, but she cannot change the narrative she has created because that narrative has caught the imagination of the German public, and the German public has accepted it.
+ - Giving government aid to a bank basically transforms it into a utility. The huge salaries in this sector are only a symptom of a more profound misalignment. The profitability of the finance industry has been excessive. That is absurd.
+ - I’m not doing my philanthropic work, out of any kind of guilt, or any need to create good public relations. I’m doing it because I can afford to do it, and I believe in it.
+ - We must not forget; but we must forgive. Suffering often such compassion from the Jewish community. It was Jewish groups in the US who were in the forefront in opposing the ethnic cleansing of Muslim in Bosnia.
+ - One of the myths propagated by the enemies of Israel is that there is an all-powerful Zionist conspiracy. That is a false accusation. Nevertheless, that AIPAC has been so successful in suppressing criticism has lent some credence to such false beliefs.
+ - Who most benefits from keeping marijuana illegal? The greatest beneficiaries are the major criminal organizations in Mexico and elsewhere that earn billions of dollars annually from this illicit trade – and who would rapidly lose their competitive advantage if marijuana were a legal commodity.
+ - Proposition 19 already is a winner no matter what happens on election day. The mere fact of its being on the ballot has elevated and legitimized public discourse about marijuana and marijuana policy in ways I could not have imagined a year ago.
+ - We can speak of the triumph of capitalism in the world, but we cannot yet speak about the triumph of democracy. There is a serious mismatch between the political and the economic conditions that prevail in the world today.
+ - I think it is natural that every country has to take care of its interests, but there are some interests that are common to all countries. There are some human interests, or we need also international cooperation. We’ve sometimes confused it with dictation.
+ - If the terrorists have the sympathy of people, it’s much harder to find them. So we need people on our side, and that leads us to be responsible leaders of the world, show some concern with the problems.
+ - We in the United States are very often – since we are a democracy and we have national interests, we’ve often made the mistake that a democracy has to adopt America’s interests, and that is a contradiction because a democracy basically is people deciding what their interests are.
+ - America needs to follow the policies it has introduced in Germany. We have to go through a certain de-Nazification process.
+ - The criminalization of marijuana did not prevent marijuana from becoming the most widely used illegal substance in the United States and many other countries. But it did result in extensive costs and negative consequences.
+ - The pro-Israel lobby has been remarkably successful in suppressing criticism. Politicians challenge it at their peril because of the lobby’s ability to influence political contributions.
+ - I commissioned two political experts to advise me about what I could do to oppose the re-election of President Bush.
+ - President Bush is endangering our safety, hurting our vital interests, and undermining American values.
+ - Fundamental analysis seeks to establish how underlying values are reflected in stock prices, whereas the theory of reflexivity shows how stock prices can influence underlying values.
+ - When money is free, the rational lender will keep on lending until there is no one else to lend to.
+ - To my mind, there is a solution which has to do with democracy, because democratic governments are subject to the will of the people. So, if the people will it, you can actually create international institutions through the democratic states.
+ - We are the most powerful nation on earth. No external power, no terrorist organization can defeat us. But we can defeat ourselves by getting caught in a quagmire.
+ - The dark comes before dawn. The financial markets are under great pressure because of the lack of leadership during the transition period.
+ - I called gold the ultimate bubble, which means it may go higher. But it’s certainly not safe and it’s not going to last forever.
+ - Bush’s war in Iraq has done untold damage to the United States. It has impaired our military power and undermined the morale of our armed forces. Our troops were trained to project overwhelming power. They were not trained for occupation duties.
+ - Regulating and taxing marijuana would simultaneously save taxpayers billions of dollars in enforcement and incarceration costs, while providing many billions of dollars in revenue annually.
+ - The only thing that could hurt me is if my success encouraged me to return to my childhood fantasies of omnipotence – but that is not likely to happen as long as I remain engaged in the financial markets, because they constantly remind me of my limitations.
+ - The US needs a cap and trade system with auctioning of licenses for emissions rights. The revenues from these auctions can be used to launch a new, environmentally friendly energy policy. That would be yet another federal program that could help us to overcome the stagnation.
+ - Markets are constantly in a state of uncertainty and flux and money is made by discounting the obvious and betting on the unexpected.
+ - I don’t use my money to gain political influence for my private interests, which is what many rich people do, and what, in a sense, market fundamentalism does, because it is in the interests of people who have a lot of money to have as little taxes as possible.
+ - I give away something up to $500 million a year throughout the world promoting Open Society. My foundations support people in the country who care about an open society. It’s their work that I’m supporting. So it’s not me doing it.
+ - At times of recession, running a budget deficit is highly desirable. Once the economy begins to recover, you have to balance the budget. But it will also need additional revenues. Should the government not receive them, we will all get punished with higher interest rates.
+ - The ultimate asset bubble is gold.
+ - Esperanto was a very useful language, because wherever you went, you found someone to speak with.
+ - Germans tend to forget now that the euro was largely a Franco-German creation. No country has benefited more from the euro than Germany, both politically and economically. Therefore what has happened as a result of the introduction of the euro is largely Germany’s its responsibility.
+ - Any central bank should only be in charge of liquidity. Solvency is a matter for the treasury.
+ - You could adjust the punishment to fit the infraction. Even a small fine would be enough to bring an errant government to heel.
+ - Most of the poverty and misery in the world is due to bad government, lack of democracy, weak states, internal strife, and so on.
+ - We are trying to make the world a better place, but that is not necessarily what we accomplish. Many of the problems which preoccupy us are basically insoluble.
+ - A full and fair discussion is essential to democracy.
+ - By creating the European Central Bank, the member states exposed their own government bonds to the risk of default. Developed countries that issue bonds in their own currency never default, because they can always print money. Their currency may depreciate, but the risk of default is absent.
+ - The people currently in charge have forgotten the first principle of an open society, namely that we may be wrong and that there has to be free discussion. That it’s possible to be opposed to the policies without being unpatriotic.
+ - Markets are imperfect. So you do need regulation, knowing that the regulators are also human.
+ - An open society is a society which allows its members the greatest possible degree of freedom in pursuing their interests compatible with the interests of others.
+ - If the choice is between cooking alive and wasting money unnecessarily I would rather waste some money, because long before we cook we are going to kill each other if we don’t deal with climate change.
+ - If every rich person gave 50 percent of their wealth to charity, I would not say they should pay more taxes.
+ - The collapse of the global marketplace would be a traumatic event with unimaginable consequences. Yet I find it easier to imagine than the continuation of the present regime.
+ - If we care about universal principles such as freedom, democracy and the rule of law, we cannot leave them to the care of market forces; we must establish some other institutions to safeguard them.
+ - Just as the process of repealing national alcohol prohibition began with individual states repealing their own prohibition laws, so individual states must now take the initiative with respect to repealing marijuana prohibition laws.
+ - A lot of the evil in the world is actually not intentional. A lot of people in the financial system did a lot of damage without intending to.
+ - To others, being wrong is a source of shame; to me, recognizing my mistakes is a source of pride.
+ - Well, you know, I was a human being before I became a businessman.
+ - Revolutions usually start with enthusiasm and end in tears.
+ - When interest rates are low we have conditions for asset bubbles to develop, and they are developing at the moment. The ultimate asset bubble is gold.
+ - If we carry this line of argument to its logical conclusion, the meaning of life consists of the flaws in one’s conceptions and what one does about them. Life can be seen as a fertile fallacy.
+ - There is a resurgence of anti-Semitism in Europe. The policies of the Bush administration and the Sharon administration contribute to that. It’s not specifically anti-Semitism, but it does manifest itself in anti-Semitism as well.
+ - The main difference between me and other people who have amassed this kind of money is that I am primarily interested in ideas, and I don’t have much personal use for money.
+ - It’s not whether you’re right or wrong that’s important, but how much money you make when you’re right and how much you lose when you’re wrong.
+ - I’m not better than the next trader, just quicker at admitting my mistakes and moving on to the next opportunity.
+ - Investors operate with limited funds and intelligence, they do not need to know everything. As long as they understand something better than others, they have an edge...
+ - The laissez-faire argument relies on the same tacit appeal to perfection as does communism.
+ - I think there’s a lot of merit in an international economy and global markets, but they’re not sufficient because markets don’t look after social needs.
+ - When it comes to social consequences, they’ve got all different people acting in different ways, very difficult to even have a proper criterion of success. So, it’s a difficult task.
+ - This crisis has the potential to be a lot worse than Lehman Brothers.
+ - You need a government that believes in government. It also believes in markets and wants to give markets the best, the greatest opportunity, but is trying to govern well.
+ - The integration of Europe was very much led by a Germany that was always willing to pay a little bit extra to reach a compromise that everybody accepted, because Germany was so eager to get European support for reunification. That was called the “farsighted vision,” which created the European Union.
+ - Changeless society is characterized by the absense of alternatives.
+ - I am not well qualified to criticize the theory of rational expectations and the efficient market hypothesis because as a market participant I considered them so unrealistic that I never bothered to study them.
+ - Once a trend is established it tends to persist and to run it’s full course.
+ - The world is looking to us for leadership. We have provided it in the past; the main reason why anti-American feelings are so strong in the world today is that we are not providing it in the present.
+ - I have made it a principle to give advice that does not serve my personal interest but rather the common interests.
+ - There is a well-established conviction that the central banks always do what is necessary to keep the system going and then afterwards you then take care of the legal aspects. In a crisis, you simply do not have time to think about such concerns for too long.
+ - I am against market fundamentalism. I think this propaganda that government involvement is always bad has been very successful – but also very harmful to our society.
+ - As I discovered, there is a great deal of similarity between a boom-bust process in the financial markets and the rise and fall of the Soviet system.
+ - Misconceptions play a prominent role in my view of the world.
+ - I admire Chancellor Merkel for her leadership qualities, but she is leading Europe in the wrong direction.
+ - I am not a Zionist, nor am I am a practicing Jew, but I have a great deal of sympathy for my fellow Jews and a deep concern for the survival of Israel.
+ - I chose America as my home because I value freedom and democracy, civil liberties and an open society.
+ - Increase your bets when you are confident and scale down your positions when you don’t have conviction.
+ - The reality is that financial markets are self-destabilizing; occasionally they tend toward disequilibrium, not equilibrium.
+ - In politics, manipulating reality can take presidence over finding reality.
+ - My main concern is with the world order.
+
+164 quotes

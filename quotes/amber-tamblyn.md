@@ -1,0 +1,45 @@
+ - After I saw my first poem published, I became interested in the immortalization of words and the fact that you could put something out there that you felt and that meant something to you, and that it could be interpreted by many different people to mean many different things.
+ - Aubrey obviously plays Karen’s, Sarah Michelle Gellar’s, younger sister. And, um, she’s sort of always been the underdog in the family and somebody who is not as ambitious or driven as her sister, as Karen’s character, so she’s sort of always felt like she’s had to follow in her sister’s footsteps.
+ - And a lot of times in slam poetry I feel like people are so worried about the performance that the words might not be as strong.
+ - Other people like Neil Young and Dennis Hopper, those are just really close knit family friends.
+ - For most women, whether you’re an actress or whatever you do, there is this pressure in society and within the world to look a certain way, dress a certain way, act a certain way, say certain things, and be this idea as opposed to being a person.
+ - I have never reached certain levels of fame, like Lindsay Lohan did, or even Brittany Murphy. My career has always been this sort of even-keeled, steady existence. I was also raised by poets, and I’ve been doing poetry as long as I’ve been acting.
+ - If it comes back, I think that Friday night is not a good night to be on.
+ - Feminism? The word itself means exactly the same thing to me as the word God does – it’s a spirituality that is deeply personal, deeply subjective, and deeply no one else’s business. You can identify the word however you want, it’s just the non-exploration of it that is unacceptable to me.
+ - As someone who was born and raised in Los Angeles, I was really interested in the idea of people who move here to get into the business, and some of them do become famous and then oftentimes they fall out of that fame in very terrible ways.
+ - People in real life cuss God out when they’re angry. That’s all real.
+ - My father comes from a generation of film that actors my age don’t even know about, which is really sad.
+ - I could never say that one religion is wrong. I could never say that this person’s God is wrong, I could never say that someone is wrong because they don’t believe in God.
+ - Right afterward I read Fast Food Nation. That book changed my life: It made me a vegetarian.
+ - If you believe that God put you here to act, then you have to be different. Go into casting offices, with something other girls don’t have.
+ - One of my good friends is Christian, goes to church every Sunday, very religious. I’m fine with that and I will never judge her.
+ - Just because you grow up in the public eye doesn’t mean that you’re immune to the same sort of issues and feelings that any other woman would go through.
+ - My parents are artists, so I grew up with my mom having bonfires, seven guitars, and talented musicians and artists around like Jack Hirschman.
+ - I remember when I first started in the business, I lost a lot of friends. Some were jealous, some were annoyed at the fact that I was an actress.
+ - I think at the end of the day this movie is respecting what we as women go through as we grow up. The experiences, what we deal with, other women, things about images, things that we deal with as women. This movie addresses that in a very appropriate and sincere way.
+ - I tried not to make God this big deal in Joan’s life. She treats God like a friend: she’s nice to him some days, and other days mean, and then cries when she needs help.
+ - The part of acting business is the struggle to do what you love and to maintain body image and to maintain this sort of false stature of who you’re supposed to be as a role model and also who you are supposed to be to yourself personally and privately.
+ - Because the role-model pressure becomes so insane, the personal and private takes a backseat to whatever it takes to maintain that fame and to maintain that lifestyle, and before you know it you’re not a human being anymore.
+ - When people ask me what I do for a living, I always say, “I get rejected for a living.” And that’s true.
+ - A lot of people think I’m cynical when I talk about acting. The truth of the matter is, I just don’t want someone to get some lame advice that will send them in the wrong direction.
+ - A business like acting is 90% luck. You can be a star one minute and out of work the next.
+ - My parents cultured me a lot and they introduced me to a lot of artists, a lot of their friends.
+ - A lot of young poets today, from what I’ve heard and experienced, can’t get their heads past George W. Bush, and I’ve heard so many poems about this democracy and this era of politics that I’m kind of bored by it.
+ - Honestly, I am not trying to discourage anyone from becoming an actress, but if you want to become one be prepared to face everything that comes – along with it.
+ - I liked the humor of it, I’ve always enjoyed a sense of humor in God and in religion and in spirituality.
+ - But I didn’t even see God in the show as being very spiritual, I see him or her, it, as being something that is just relevant and very important in her life.
+ - And one of my other friends could not believe in God if he came down and tapped her on the shoulder. She’s a biologist – a student at UCLA – and I don’t judge her either, because I really believe that God is a personal opinion, and only that.
+ - I don’t think it’s always good to read lots of poetry.
+ - The poetry when I was a kid felt like something that I could control, and whether it failed or not, whether it was good or not, was totally on me and I could accept that. It was entirely mine.
+ - I’ve been kind of submerged in my own little geographic location for a really long time in Venice Beach.
+ - People who have seen me read usually come up afterwards and invite me to be a part of something.
+ - I haven’t had a lot of celebrities around me growing up.
+ - My advice is to make acting your second career choice.
+ - I think it’s hard to be taken seriously as a poet, period.
+ - My own personal connection with God was not in a religious sense, so I wasn’t really thinking in that way when I got the role and when I started doing it.
+ - I think any time you have too much education in one certain field, that can sometimes play against you.
+ - This will be the fourth time I’ve seen this film. I’m very proud of it and I think it’s a great movie for women of any age. And almost every single man I’ve talked to has admitted to crying.
+ - Our show is less about a girl who is doing miracles and more about the domino effect of this girl’s life, and how everyone else is affected. Our show seems to be a questioning show as opposed to an action sort of fairy tale.
+ - I think I relate to all the characters in one way or another. I’m a chameleon like that.
+
+43 quotes

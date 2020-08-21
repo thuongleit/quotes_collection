@@ -1,0 +1,24 @@
+ - Walls have ears. Doors have eyes. Trees have voices. Beasts tell lies. Beware the rain. Beware the snow. Beware the man You think you know. -Songs of Sapphique.
+ - I have walked a stair of swords, I have worn a coat of scars. I have vowed with hollow words, I have lied my way to the stars -Songs of Sapphique.
+ - If it means my death, I don’t care, because even death will be a sort of freedom.
+ - Freedom is a small price to pay for survival.
+ - All my life I have dreamed of you.
+ - It’s safe to tell a secret to one. Risky to tell it to two. To tell it to three is thoughtless folly, everyone else will know.
+ - Despair is deep. An abyss that swallows dreams. A wall at the world’s end. Behind it I await death. Because all our work has come to this.
+ - He sang his last song. And the words of that have never been written down. But it was sweet and of great beauty, and those that heard it were changed utterly. Some say it was the song that moves the stars.
+ - I remember a story of a girl in Paradise who ate an apple once. Some wise Sapient gave it to her. Because of it she saw things differently. What had seemed gold coins were dead leaves. Rich clothes were rags of cobweb. And she saw there was a wall around the world, with a locked gate.
+ - All my years to this moment All my roads to this wall. All my words to this silence All my pride to this fall. -Songs of Sapphique.
+ - Only the man who has known freedom Can define his prison.
+ - Even across the dark, even across the loss, even across the emptiness, soul will speak to soul.
+ - Nothing has changed, or will change. So we must change it.
+ - Because I have dreams and in those dreams I see the stars.
+ - And what would they be scared of? There’s nothing to fear in a perfect world, is there?
+ - The world is a chessboard, Madam, on which we play out our ploys and follies. You are the Queen, of course. Your moves are the strongest. For myself, I claim only to be a knight, advancing in a crooked progress. Do we move ourselves, do you think, or does a great gloved hand place on our squares.
+ - He worked night and day. He made a coat that would transform him; he would be more than a man; a winged creature, beautiful as light. All the birds brought him feathers. Even the eagle. Even the swan.
+ - Underground, the stars are legend.
+ - None of us have much idea where we are. Perhaps all our lives are too concerned with where, and not enough with who.
+ - He had wanted so hard to Escape, to find the stars. And all he had found was a new prison.
+ - He was her enemy, and she hated him because she could not hate him enough.
+ - I always was going to be a writer. The other jobs were just to keep me in food. Though I enjoyed the archaeology.
+
+22 quotes

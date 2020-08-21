@@ -1,0 +1,72 @@
+ - Not everyone can become a great artist, but a great artist can come from anywhere.
+ - I will not be an ordinary man, because I have a right to be extraordinary.
+ - There may be honor among thieves, but there’s none in politicians.
+ - And maddest of all, to see life as it is and not as it should be.
+ - When did I realize I was God? Well, I was praying and I suddenly realized I was talking to myself.
+ - Everyone praises Sachin Tendulkar. He may be a genius in his own right but in my book, Rahul Dravid is the artist. Dravid’s defence tactics, his strokes, his cuts, his grace are truly amazing. I’d like to meet the chap sometime and take my hat off to him.
+ - I wish to hazard my soul to opportunity.
+ - There’s a remedy for everything except death.
+ - If you cannot say what you mean, your majesty, you will never mean what you say and a gentleman should always mean what he says.
+ - I am human, all too bloody human.
+ - It’s my job, it’s what I do, it’s what I’m on earth to do and it’s who I am.
+ - Being sober for so many years is getting interesting.
+ - The only exercise I take is walking behind the coffins of friends who took exercise.
+ - If you can’t do something willingly and joyfully, then don’t do it. If you give up drinking, don’t go moaning about it; go back on the bottle. Do. As. Thou. Wilt.
+ - A victory? What have we won? We’ve won a rock in the middle of a wasteland, on the shores of a poisoned sea.
+ - Actors have to stay optimistic. The moment we start thinking otherwise, we’re dead.
+ - I’m not an actor, I’m a movie star!!!
+ - I loved doing My Favorite Year, which was great fun, and The Ruling Class, which I made with all my chums.
+ - It distresses us to return work which is not perfect.
+ - Always a bridesmaid never a bride my foot!
+ - I have no intention of uttering my last words on the stage. Room service and a couple of depraved young women will do me quite nicely for an exit.
+ - Pope Paul III was the greatest thief in the history of the church.
+ - I will not be a common man. I will stir the smooth sands of monotony.
+ - I can’t stand light. I hate weather. My idea of heaven is moving from one smoke-filled room to another.
+ - Question: How do you know you’re God? Answer: Simple. When I pray to him, I find I’m talking to myself.
+ - Marriage is forever. It’s like cement.
+ - I became a professional cricket teacher about 20 years ago. I had a son born to me when I was 50, and I thought, he needs someone to bowl to him.
+ - I did quite enjoy the days when one went for a beer at one’s local in Paris and woke up in Corsica.
+ - I woke up one morning to find I was famous. I bought a white Rolls-Royce and drove down Sunset Boulevard, wearing dark specs and a white suit, waving like the Queen Mum.
+ - Irish women are always carrying water on their heads, and always carrying their husbands home from pubs. Such things are the greatest posture-builders in the world.
+ - George Eliot is my only steady girlfriend. We go to bed together every night.
+ - I can make the best French toast.
+ - For me, life has either been a wake or a wedding.
+ - Life turned out much better than I thought. I knew after a little while that I could act.
+ - When I work with young people, I grab energy from them by the handsful.
+ - Acting has been described as farting about in disguise.
+ - My dear sir, it haunted me for the rest of my life.
+ - Booze is the most outrageous of drugs which is why I chose it.
+ - I’m a working stiff, baby, just like everybody else.
+ - My professional acting life, stage and screen, has brought me public support, emotional fulfillment and material comfort. It has brought me together with fine people, good companions with whom I’ve shared the inevitable lot of all actors: flops and hits.
+ - If you do not surrender, I shall be forced to shoot you through the head with a rather large bullet.
+ - It’s very inconvenient because every time I finish, let’s say, a chapter of a book, I think I’m going to ring Richard and then realize: Oh, Christ, I’ve buried him. I buried him last year.
+ - I don’t go for this auto-cannibalism. Very damaging.
+ - I’m not working-class: I come from the criminal classes.
+ - I tell my children to avoid theatre and go into cinema and TV.
+ - My own favorite is something called Rogue Male.
+ - The common denominator of all my friends is that they’re dead.
+ - I can’t stand light. I hate weather.
+ - We were doing it under the most extraordinary circumstances, but the first out of the tent in the morning would be David Lean. He said to me on the very first day of shooting, Pete, this is the beginning of a great adventure.
+ - One time in the late ’50s, when Peter Finch, Laurence Harvey, and I were all offered the same movie role – the assumption being that we weren’t friends – we marched up to producer Dino De Laurentiis’s door and declared in unison, ‘We don’t think we’re suitable for the part.’
+ - He’s a scoundrel, young Brad Pitt, who led me, his elderly colleague, astray more than once.
+ - The good parts are the people who don’t make do. They’re the interesting people. Lear doesn’t make do.
+ - Do you not know that King Kong the first was just three foot six inches tall? He only came up to Faye Wray’s belly button! If God could do the tricks that we can do he’d be a happy man!
+ - It is time for me to chuck in the sponge. To retire from films and stage. The heart for it has gone out of me: it won’t come back.
+ - The only thing I’ve ever been interested in teaching anyone in life is cricket.
+ - I’m a professional and I’ll do anything – a poetry reading, television, cinema, anything that allows me to act.
+ - What I like is bottomless flattery.
+ - Writing is a kind of performing art, and I can’t sit down to write unless I’m dressed. I don’t mean dressed in a suit, but dressed well and comfortably and I have to be shaved and bathed.
+ - I have no memories I’m prepared to share with you.
+ - I love working with young people, which is to me a big kick.
+ - I’m a very physical actor. I use everything – toes, teeth, ears, everything. I don’t simply mean physical in the sense of movement and vigour. I find myself remembering the shape of a scene by how I’m standing, what I’m doing.
+ - Films were never in my budget. Didn’t occur to me till much later. I hoped for a long, good life, which I’ve had and I’m having as an actor. I didn’t expect the rest.
+ - Where do I begin? I loved working with Kate Hepburn, which was one of the highlights of my life; Working with Richard Burton in Beckett was another great joy.
+ - There is a legend. And to protest is daft.
+ - I wouldn’t mind being a lord.
+ - I put steam on the table by being an actor. That is how I live. The longer I live, the more expensive it becomes. So I do my work. And I can’t be immensely picky. How many beautiful scripts come in one’s lifetime? I have had more than anybody, practically.
+ - We were in the Arabian Desert for nine months. And I was having the time of my life. It could have been an archeological expedition, a military expedition.
+ - It was around 1985 before I heard the news of President Kennedy’s assassination.
+ - If I’m not at my study by 10:00, 10:30, forget it, I can’t write a word.
+ - I’m the most gregarious of men and love good company, but never less alone when alone.
+
+70 quotes

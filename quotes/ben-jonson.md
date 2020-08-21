@@ -1,0 +1,178 @@
+ - To speak and to speak well are two things. A fool may talk, but a wise man speaks.
+ - That old bald cheater, Time.
+ - Drink today, and drown all sorrow; You shall perhaps not do it tomorrow; Best, while you have it, use your breath; There is no drinking after death.
+ - He that is respectless in his courses oft sells his reputation at cheap market.
+ - Language most shows a man; speak that I may see thee; it springs out of the most retired and inmost parts of us, and is the image of the parent of it, the mind. No glass renders a man’s form or likeness so true as his speech.
+ - He was not of an age, but for all time!
+ - Calumnies are answered best with silence.
+ - Hang sorrow, care’ll kill a cat.
+ - Our whole life is like a play.
+ - He that departs with his own honesty For Vulgar, doth it too dearly buy.
+ - Weigh the meaning and look not at the words.
+ - Now we are all fallen, youth from their fear, And age from that which bred it, good example.
+ - The dignity of truth is lost with much protesting.
+ - Well, as he brews, so shall he drink.
+ - Ambition, like a torrent, never looks back.
+ - In the hope to meet. Shortly again, and make our absence sweet.
+ - To struggle when hope is banished! To live when life’s salt is gone! To dwell in a dream that’s vanished- To endure, and go calmly on!
+ - Custom is the most certain mistress of language, as the public stamp makes the current money.
+ - Sweet meat must have sour sauce.
+ - Soul of the age! The applause! delight! The wonder of our stage!
+ - I know no disease of the soul but ignorance, a pernicious evil, the darkener of man’s life, the disturber of his reason, and common confounder of truth.
+ - Give me a look, give me a face, That makes simplicity a grace Robes loosely flowing, hair as free Such sweet neglect more taketh me Than all the adulteries of art: They strike mine eyes, but not my heart.
+ - All concord’s born of contraries.
+ - A thankful man owes a courtesy ever; the unthankful but when he needs it.
+ - When a virtuous man is raised, it brings gladness to his friends, grief to his enemies, and glory to his posterity.
+ - A good dog deserves a good bone.
+ - There is no greater hell than to be a prisoner of fear.
+ - True happiness Consists not in the multitude of friends, But in the worth and choice.
+ - Tis no sin love’s fruits to steal; But the sweet thefts to reveal; To be taken, to be seen, These have crimes accounted been.
+ - He who is taught only by himself has a fool for a master.
+ - The voice so sweet, the words so fair, As some soft chime had stroked the air; And though the sound had parted thence, Still left an echo in the sense.
+ - Drink to me only with thine eyes, And I will pledge with mine; Or leave a kiss but in the cup And I’ll not look for wine.
+ - I now think, Love is rather deaf, than blind, For else it could not be, That she, Whom I adore so much, should so slight me, And cast my love behind.
+ - For a man to write well, there are required three necessaries: to read the best authors, observe the best speakers, and much exercise of his own style.
+ - In small proportions we just beauties see; And in short measures, life may perfect be.
+ - Money never made any man rich, but his mind. He that can order himself to the law of nature, is not only without the sense, but the fear of poverty.
+ - Woman, the more careful she is about her face, the more careless about her house.
+ - They that know no evil will suspect none.
+ - It strikes! one, two, Three, four, five, six. Enough, enough, dear watch, Thy pulse hath beat enough. Now sleep and rest; Would thou could’st make the time to do so too; I’ll wind thee up no more.
+ - The soul of man is infinite in what it covets.
+ - A good life is a main argument.
+ - You learn nothing about someone by the way they win the fight, you learn everything about the way they lose and keep coming back.
+ - Great honours are great burdens, but on whom They are cast with envy, he doth bear two loads.
+ - Ambition, like a torrent, ne’er looks back; And is a swelling, and the last affection A high mind can put off; being both a rebel Unto the soul and reason, and enforceth All laws, all conscience, treads upon religion, and offereth violence to nature’s self.
+ - Success produces confidence; confidence relaxes industry, and negligence ruins the reputation which accuracy had raised.
+ - Ambition makes more trusty slaves than need.
+ - Aristotle was the first accurate critic and truest judge nay, the greatest philosopher the world ever had; for he noted the vices of all knowledges, in all creatures, and out of many men’s perfections in a science he formed still one Art.
+ - Ods me I marle what pleasure or felicity they have in taking their roguish tobacco. It is good for nothing but to choke a man, and fill him full of smoke and embers.
+ - I glory, more in the cunning purchase of my wealth than in the glad possession.
+ - Who falls for love of God, shall rise a star.
+ - For whose sake, henceforth, all his vows be such, As what he loves may never like too much.
+ - Indeed there’s a woundy luck in names.
+ - Good men but see death, the wicked taste it.
+ - A good man should and must Sit rather down with loss than rise unjust.
+ - The pipe marks the point at which the orangutan ends and man begins.
+ - To the old, long life and treasure; To the young, all health and pleasure.
+ - Success hath made me wanton.
+ - Nor for my peace will I go far, As wanderers do, that still do roam, But make my strengths, such as they are, Here in my bosom, and at home.
+ - Let those that merely talk and never think, That live in the wild anarchy of drink.
+ - I perceive affection makes a fool Of any man too much the father.
+ - Thy praise or dispraise is to me alike; One doth not stroke me, nor the other strike.
+ - I do honor the very flea of his dog.
+ - Passions are spiritual rebels and raise sedition against the understanding.
+ - He threatens many that hath injured one.
+ - Greatness of name, in the father, ofttimes helps not forth, but overwhelms the son: They stand too near one another. The shadow kills the growth.
+ - Blueness doth express trueness.
+ - Tis the common disease of all your musicians that they know no mean, to be entreated, either to begin or end.
+ - The covetous man never has money. The prodigal will have none shortly.
+ - Fortune, that favors fools.
+ - What excellent fools religion makes of men.
+ - Man and wife make one fool.
+ - The burnt child dreads the fire.
+ - Force works on servile natures, not the free.
+ - A new disease? I know not, new or old, but it may well be called poor mortals plague for, like a pestilence, it doth infect the houses of the brain till not a thought, or motion, in the mind, be free from the black poison of suspect.
+ - Memory, of all the powers of the mind, is the most delicate and frail.
+ - Neither do thou lust after that tawny weed tobacco.
+ - Let them call it mischief; when it is past and prospered, it will be virtue.
+ - Men that talk of their own benefits are not believed to talk of them because they have done them, but to have done them because they might talk of them.
+ - It is as great a spite to be praised in the wrong place, and by a wrong person, as can be done to a noble nature.
+ - If all you boast of your great art be true; Sure, willing poverty lives most in you.
+ - Popular men, They must create strange monsters, and then quell them, To make their arts seem something.
+ - I would rather have a plain down-right wisdom than a foolish and affected eloquence.
+ - God wisheth none should wreck on a strange shelf: To him man’s dearer than to himself.
+ - How near to good is what is fair!
+ - True melancholy breeds your perfect fine wit.
+ - All the wise world is little else, in nature, But parasites or subparasites.
+ - Of all wild beasts preserve me from a tyrant; and of all tame a flatterer.
+ - Your highest female grace is silence.
+ - Where guilty is, rage and courage doth abound.
+ - Guilt’s a terrible thing.
+ - For he that once is good, is ever great.
+ - How ready is heaven to those that pray!
+ - A prince without letters is a Pilot without eyes. All his government is groping.
+ - Hell itself must yield to industry.
+ - Prevent your day at morning.
+ - A good man will avoid the spot of any sin. The very aspersion is grievous, which makes him choose his way in his life, as he would in his journey.
+ - There is no doctrine will do good where nature is wanting.
+ - All discourses but my own afflict me; they seem harsh, impertinent, and irksome.
+ - Ready writing makes not good writing, but good writing brings on ready writing.
+ - Reader look, not on his picture but his book.
+ - Out of clothes out of countenance, out of countenance out of wit.
+ - As it is a great point of art, when our matter requires it, to enlarge and veer out all sail, so to take it in and contract it is of no less praise when the argument doth ask it.
+ - I am beholden to calumny, that she hath so endeavored to belie me.-It shall make me set a surer guard on myself, and keep a better watch upon my actions.
+ - Good men are the stars, the planets of the ages wherein they live, and illustrate the times.
+ - I am now past the craggy paths of study, and come to the flowery plains of honor and reputation.
+ - Whom hatred frights, let him not dream of sovereignty.
+ - Cut Men’s throats with whisperings.
+ - My thoughts and I were of another world.
+ - Art hath an enemy call’d ignorance .
+ - The two chief things that give a man reputation in counsel, are the opinion of his honesty, and the opinion of his wisdom; the authority of those two will persuade.
+ - Cares that have entered once in the breast, will have whole possession of the rest.
+ - Very few men are wise by their own council, or learned by their own teaching. For he that was only taught by himself, had a fool for a master.
+ - It is an art to have so much judgment as to apparel a lie well, to give it a good dressing.
+ - It is virtue that gives glory; that will endenizen a man everywhere.
+ - O! How vain and vile a passion is this fear! What base uncomely things it makes men do.
+ - Nothing is more short-lived than pride.
+ - I have discovered that a famed familiarity in great ones is a note of certain usurpation on the less; for great and popular men feign themselves to be servants to others to make those slaves to them.
+ - And where she went, the flowers took thickest root, As she had sow’d them with her odorous foot.
+ - Opinion is a light, vain, crude, and imperfect thing.
+ - The poet is the nearest borderer upon the orator.
+ - Wine it is the milk of Venus, And the poet’s horse accounted: Ply it and you all are mounted.
+ - Spread yourself upon his bosom publicly, whose heart you would eat in private.
+ - The day For whose returns, and many, all these pray; And so do I.
+ - Queen and huntress, chaste and fair Now the sun is laid to sleep, Seated in thy silver chair, State in wonted manner keep: Hesperus entreats thy light Goddess, excellently bright.
+ - Well, I will scourge those apes, And to these courteous eyes oppose a mirror, As large as is the stage whereon we act; Where they shall see the time’s deformity Anatomised in every nerve, and sinew, With constant courage, and contempt of fear.
+ - We are persons of quality, I assure you, and women of fashion, and come to see and to be seen.
+ - Let argument bear no unmusical sound.
+ - Heaven prepares good men with crosses; but no ill can happen to a good man.
+ - Tell troth and shame the devil.
+ - Language most shows a man, speak that I may see thee.
+ - Poets are far rarer birds than kings.
+ - No man so wise that he may not easily err if he takes no other counsel than his own. He that is taught only by himself has a fool for a master.
+ - Court a mistress, she denies you; let her alone, she will court you.
+ - If you be sick, your own thoughts make you sick.
+ - It is less dishonor to hear imperfectly than to speak imperfectly. The ears are excused; the understanding is not.
+ - He that would have his virtue published, is not the servant of virtue, but glory.
+ - Vice Is like a fury to the vicious mind, And turns delight itself to punishment.
+ - The man that is once hated, both his good and his evil deeds oppress him.
+ - Love that is ignorant and hatred have almost the same ends.
+ - Many punishments sometimes, and in some cases, as much discredit a prince as many funerals a physician.
+ - Silence in woman is like speech in man.
+ - Many might go to heaven with half the labour they go to hell, if they would venture their industry the right way.
+ - If you succeed not, cast not away the quills yet, nor scratch the wainscot, beat not the poor desk, but bring all to the forge and file again; turn it new.
+ - True gladness doth not always speak; joy, bred and born but in the tongue, is weak.
+ - Fortune, thou hadst no deity, if men Had wisdom.
+ - Truth is man’s proper good, and the only immortal thing was given to our mortality to use.
+ - One woman reads another’s character Without the tedious trouble of deciphering.
+ - I’ll give anything for a good copy now, be it true or false, so it be news.
+ - O, for an engine, to keep back all clocks, or make the sun forget his motion!
+ - Who casts to write a living line, must sweat.
+ - Whosoever loves not picture is injurious to truth, and all the wisdom of poetry. Picture is the invention of heaven, the most ancient and most akin to nature. It is itself a silent work, and always one and the same habit.
+ - It holds for good polity ever, to have that outwardly in vilest estimation, which inwardly is most dear to us.
+ - Follow a shadow, it still flies you, Seem to fly, it will pursue: So court a mistress, she denies you; Let her alone, she will court you. Say are not women truly, then, Styled but the shadows of us men?
+ - Folly often goes beyond her bounds, but impudence knows none.
+ - How Fortune piles her sports when she begins to practise them!
+ - To men pressed by their wants all change is ever welcome.
+ - Books are faithful repositories, which may be awhile neglected or forgotten, but when they are opened again, will again impart their instruction.
+ - Who will not judge him worthy to be robbed That sets his doors wide open to a thief, And shows the felon where his treasure lies?
+ - If men will impartially, and not asquint, look toward the offices and function of a poet, they will easily conclude to themselves the impossibility of any man’s being a good poet without first being a good man.
+ - Peace is never more than one thought away.
+ - Whom the disease of talking still once posses-seth, he can never hold his peace.
+ - It is the highest of earthly honors to be descended from the great and good. They alone cry out against a noble ancestry who have none of their own.
+ - A good poet’s made as well as born.
+ - Doing, a filthy pleasure is, and short; And done, we straight repent us of the sport: Let us not rush blindly on unto it, Like lustful beasts, that only know to do it: For lust will languish, and that heat decay, But thus, thus, keeping endless Holy-.
+ - Where dost thou careless lie, Buried in ease and sloth? Knowledge that sleeps, doth die; And this security, It is the common moth, That eats on wits and arts, and oft destroys them both.
+ - Rich apparel has strange virtues; it makes him that hath it without means esteemed for an excellent wit; he that enjoys it with means puts the world in remembrance of his means.
+ - Get money, still get money, boy, no matter by what means.
+ - The Devil is an Ass, I do acknowledge it.
+ - I see compassion may become a justice, though it be a weakness, I confess, and nearer a vice than a virtue.
+ - Honor’s a good brooch to wear in a man’s hat at all times.
+ - No glass renders a man’s form or likeness so true as his speech.
+ - Where it concerns himself, Who’s angry at a slander, makes it true.
+ - The way to rise is to obey and please.
+ - Freedom doth with degree dispense.
+ - I feel my griefs too, and there scarce is ground Upon my flesh t’inflict another wound. Yet dare I not complain, or wish for death With holy Paul; lest it be thought the breath Of discontent; or that these prayers be For weariness of life, not love of thee.
+ - Affliction teacheth a wicked person sometime to pray; prosperity never.
+
+176 quotes

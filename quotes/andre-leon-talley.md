@@ -1,0 +1,45 @@
+ - Beauty is health. Health is beauty.
+ - I’m so sick of mermaid dresses, trains, borrowed bling-bling, and a pose.
+ - I’m usually at home and in bed by 10 o’clock. I do not want to be out at anybody’s New Year’s Eve party.
+ - I love Russian culture. I don’t know the young Russia, I’m not at all familiar with young Russia, but the old school Russia is good enough for me for the moment.
+ - I just need green. I need to wake up and see grass and squirrels. I don’t want to see skyscrapers.
+ - Some days are good; some days are not so good. Some days are really exciting. Some days are just tedious. You just have to get up out of bed.
+ - The late Estee Lauder says you can never wear white shoes after Labor Day. But of course, in today’s world, that does not exist.
+ - Drekitude is the lowest point in the lowest ebb. It could be your look. It could be your shoes. It could be that you’re standing wrong. Drek is a total, total, total hot mess.
+ - I don’t tear down. I prefer to build up.
+ - I have 4 bedrooms in my house. 1 is for guests, the other 3 are for closets.
+ - When I have interns, I always say, ‘Handwritten thank-you notes can make a difference.’ People remember that – not an e-mail, a handwritten note in an envelope.
+ - People love fashion exhibits because they can fantasize. They can respond to a dress even if they can never wear a dress like that.
+ - The most luxurious item is a beautiful bed and beautiful, simple sheets.
+ - I know what it is like to be brought up with unconditional love. In my life that came from my grandmother.
+ - Money isn’t everything, but it is when you start thinking about putting money away for your retirement days.
+ - I only watch MSNBC for the news.
+ - I personally go to the airport looking like a homeless person, because I think people will leave me alone. But I dress myself with my luggage – all my luggage matches.
+ - One my favorite things is to go to the provinces of Russia and see the 18th century wood churches with the onion dome architecture. These humble wonders of incredible imagination of architects that were obviously not living in places like Paris or London, but they’ve created these amazing churches.
+ - I think people look great in black. I love that what stands out is the person, especially. Black just conveys a kind of drama, even if it can be quiet drama. It does lend to the wearer a sense of confidence.
+ - People need to be edited; life needs to be edited. I need to be edited.
+ - The zenith of elegance in any woman’s wardrobe is the little black dress, the power of which suggests dash and refinement.
+ - Uggs can be as chic as heels for women.
+ - Waiting in line for something mundane is very boring. Waiting for my doctor to see me and waiting for my dentist to see me, yes, that is boring.
+ - It’s incorrect to assume you can be a fashion editor because you blog, if you don’t have experience to look at fashion in a professional way.
+ - It’s always great to have things from France at a wedding. It’s symbolic of style, of culture, of taste.
+ - There is room in today’s world for men to wear dresses.
+ - Look at ‘American Idol,’ which I don’t look at. Those winners haven’t become household names except for Jennifer Hudson, and she was a reject. You can’t aim to be a household name. You just have to be successful.
+ - In my day you didn’t speak until spoken to.
+ - Mrs. Obama has a hug – a sincere and friendly embrace – that has become familiar to countless supporters from coast to coast. And when she talks to you, she focuses all her calm attention on your face.
+ - You come to Paris, you get true originality, and it’s wonderful.
+ - Wearing clothes should be a personal narrative of emotion. I always respond to fashion in an emotional way.
+ - Fashion illustrator Antonio Lopez was a major part of my early career.
+ - I think it’s important that models be healthy.
+ - First Ladies have always been held like specimens under a media microscope.
+ - At an early age I discovered the beauty in pictures in ‘Vogue’ magazine and Ebony magazine, and I would read ‘The New York Times.’ I had to make my own world within my world because I was an only child.
+ - You cannot live your life in the elitist world of fashion and not step out or you’re disconnected. You have to realize that fashion is not the endgame.
+ - I suppose the most daring thing I’ve ever done is try to water ski. And that was not successful.
+ - I always feel comfortable, basically in any situation except perhaps airports.
+ - Like Hillary Clinton before her, Mrs. Obama has always been a working woman. She is a lawyer turned hospital administrator turned political right hand. It is a unique resume.
+ - I only take risks in couture, but I don’t take risks in athleticism.
+ - I do believe there’s a heaven. I do believe that God has given me the resilience and the survival skills to withstand the chiffon trenches.
+ - Reality TV, although I’m a part of it, I think reality TV is a terrible thing.
+ - I love people – it is not the fashion, it is the people in fashion I love.
+
+43 quotes

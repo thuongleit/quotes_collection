@@ -1,0 +1,23 @@
+ - I don’t expect anyone to give me anything.
+ - Physical therapy is part of my offseason routine. That has helped me greatly.
+ - Your body is not made to throw like we throw. That’s why you see softball pitchers pitching two or three games a day. It’s a natural movement in softball. In baseball it’s not a natural movement.
+ - Everyone is entitled to their own opinions, which people don’t seem to be shy about expressing.
+ - I was raised in a very blue-collar family.
+ - I probably didn’t put forth the effort I should have put forth, didn’t realize the value of education until I went to college.
+ - I’ve kind of looked at my whole career as a spring training invite.
+ - It was a dream come true to be drafted by a pro team and have the opportunity to play.
+ - If you’re a doctor or a lawyer or teacher, if you only get three things right out of 10, you’re considered a failure.
+ - If you talk to any pitcher, consistency is the most important thing.
+ - Rest is obviously a key in the offseason.
+ - Learning how to work and learning how to fail is important.
+ - I came to realize in my late 20s that my velocity is not going to grow so I had to learn to utilize what I had.
+ - Souderton was a good town to grow up in. Everybody knew each other.
+ - I’m not the No. 1 starter. I’m not the guy that’s going to carry the staff for four months out of the season, but I can contribute in a lot of ways. And to me I’m very proud of that.
+ - I’ve pitched too many innings and pitched too many years – one game doesn’t make or break my career.
+ - Work ethic has always been stressed in my family. My dad is going to be 80 years old and he still works part time. My mom just retired a couple years ago and she’s in her mid- to late 70s.
+ - I’ve always approached spring training as I have something to prove.
+ - I’m not a big believer in vitamins and all that stuff.
+ - I think it’s all a coincidence. I’ve pitched some poor games here and got a no-decision. But just give me the ball. I don’t care where I pitch.
+ - I’ve had some great examples in my career of how to do things the right way.
+
+21 quotes

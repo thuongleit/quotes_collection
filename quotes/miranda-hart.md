@@ -1,0 +1,35 @@
+ - Very important to celebrate victories, however tiny, I always say.
+ - Life is a series of embarrassing moments which leave you feeling alone in your confusion and shame.
+ - Live in hope. Because things do happen. Things do change. Worry really is futile. Don’t fear the future. Dreams do come true.
+ - I think it’s sad when people stop dreaming, or start losing hope. Because holding onto the bonkers dream might just turn out to be the most marvellous thing you ever did.
+ - I own nothing of value at all. I spend money on experiences.
+ - I only really and truly fully relax on my own. Give me a sun lounger, a pool and a sea view, and I’m happy.
+ - No blessing goes uncontested. It will take a long time to get your dream.
+ - There are some wonderful aspects to Christmas. It’s magical. And each year, from at least November, well, September, well, if I’m honest, May, I look forward to it hugely.
+ - I want to be more physical and theatrical within the stand-up. There might be dance moments, and people better watch out – I will gallop.
+ - I never admitted what I wanted to do for a career to anyone until I was 26. I wish I’d piped up at 18.
+ - The embarrassment of a situation can, once you are over it, be the funniest time in your life. And I suppose a lot of my comedy comes from painful moments or experiences in life, and you just flip them on their head.
+ - My greatest fear is fear. Ooh, meta.
+ - You need to know that even as life develops in superficially disappointing ways, there is still fun to be had.
+ - We all have our worries about our bodies and our looks. We just need to make the best of our lovely, wonky selves. The key is never to compare and try to be something you’re not.
+ - I’ll always have to force myself to see the positive, because I’m wired badly, I’d say. I’m just naturally a bit under, a bit depressed.
+ - It’s on the bucket list for sure to do a comedy film, even if it was just one line on the lot.
+ - No one likes a show-off, but if parallel parking was an Olympic sport, I would get gold, no probs.
+ - It’s a real man who can go out with a woman who’s taller than he is. That’s an alpha male right there.
+ - I don’t know who St. Valentine was, but I hope he died alone, surrounded by couples.
+ - I am not married, no. I wasn’t really into the notion when I was younger, but now I think a proposal is the ultimate romantic gesture.
+ - Pessimism is my default setting.
+ - Get me a skinny frappuccino. I have no idea what that is – I would like to think you would be presented with a tiny Italian man.
+ - My Dear Reader Chum, a very hearty hello to you. What an honour and privilege it is to have you perusing my written word.
+ - I have a fantastic method for anti-ageing. It’s eating. Plumps out your skin beautifully.
+ - I’m very much in denial that I can’t dance. I really go for it, which is almost more embarrassing.
+ - Also, in your 20s, if you are beautiful, everything comes to you, so you never need to develop a personality. I never had that problem.
+ - We are all unique, which makes us beautiful; so never despair, and just chill the hell out about it all.
+ - I’ve never felt like a woman fighting in a male world; I’ve never felt penalised.
+ - I’m such a comedy fan that I just love laughing and so admire comedians who have brought me joy.
+ - Everyone – particularly my female friends I speak to – all say ‘I wouldn’t be in my twenties again if I was paid.’ It’s a difficult time.
+ - Manicures: Which are basically just holding hands with a stranger for forty-five minutes whilst listening to Enya.
+ - I started watching some ‘Doctor Who’ recently on my own and got too scared. I had to watch it in the daytime – I’m pathetic.
+ - I see myself as a comedian rather than a female comedian. I happen to be a woman, but I am a comedian by trade.
+
+33 quotes

@@ -1,0 +1,37 @@
+ - I’m living my dream now.
+ - I’m looking to see what the bigger picture is.
+ - You have to think there’s a reason for everything. When a door closes another door opens.
+ - What I do doesn’t sit well in the world of hipsterville. I don’t have a cool card, but I also don’t have thin skin.
+ - If people say something rude or off-color, you have to take it with a grain of salt, because they don’t know you.
+ - I will continue to pursue my music and live my life with my family.
+ - I do belong on stage.
+ - For me, I want my kids to find their way. If they’re interested in something, I want them to try it out.
+ - I just like music. If it’s hookey and good, I dig it.
+ - For me, something will come in my head and I’ll either end up calling my cell phone to record it, or I’ll just pick my guitar up and see what comes out. Sometimes it sucks, sometimes it doesn’t. So there’s really no set method behind it.
+ - I don’t want to say I can’t wait to get back to normal life, because I don’t. I don’t want to get back to normal life.
+ - Maybe some people thought I was ‘safe’ so they didn’t really bothered to vote for me at all.
+ - My son’s taking drum lessons, and my daughter’s taking piano lessons. One day they’re going to start a band.
+ - It doesn’t matter how good you are as a band or how good your music may be; if the fans aren’t supporting it and buying your music, it’s hard to make it.
+ - My kids are now the most popular kids in their school.
+ - The hits always wind up being the songs with big, high choruses. They’re the ones too high to sing every night – not that you’ll ever, ever hear me complain about having to try.
+ - As a kid, I was heavily into martial arts and wanted to be the next Jean-Claude Van Damme.
+ - Ed Kowalczyk is my favorite singer.
+ - Believe half of what you see and only some of what you hear, unless you hear it from me.
+ - I wanted to be a martial arts film star when I was a teenager.
+ - When I got into music, I wanted to learn guitar just enough to be able to write songs. I wanted to be able to express myself.
+ - I was always in bands before, but on ‘American Idol,’ it was about getting my voice out there. It was always my goal, though, to get a band together again.
+ - In the ’90s, guitar solos were dead.
+ - For me, you have to not have a formula. You have to not even sit down and say, ‘I want to write right now.’ It has to just kind of come out. It’s not something you can plan.
+ - Some goals you just never really think about trying to achieve because they just seem so out of reach.
+ - I think if I try to develop a formula, it ends up not working.
+ - I did exactly what I wanted to do. It was always my intention to put a band together and be a band and not be about the solo pop guy. That was never me. All of the musicians that made me do what I wanted to do were bands. I didn’t see it any other way.
+ - My wife, if she wants it, she will just go out and buy it.
+ - I’m not ashamed of selling millions of records. I’m very fortunate to be in that position.
+ - I think I definitely enjoy recording, but I think it’s more fun to go out and perform live, because it’s like instant gratification, you know? You feel the response immediately.
+ - You marry somebody; you love everything about them. You grow to learn about them. You never learn everything.
+ - I don’t want to be that parent that puts my kids into what I think they should be in, you know what I mean?
+ - I’d like to be a piano player.
+ - If I win, I’ll take my wife and buy her a whole new wardrobe. If she’s happy then I’ll be happy.
+ - There’s going to be a flood of opportunities right now but I don’t think I could really talk about them.
+
+35 quotes

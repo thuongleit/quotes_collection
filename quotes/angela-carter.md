@@ -1,0 +1,100 @@
+ - Hope for the best, expect the worst.
+ - Language is power, life and the instrument of culture, the instrument of domination and liberation.
+ - Reading a book is like re-writing it for yourself. You bring to a novel, anything you read, all your experience of the world. You bring your history and you read it in your own terms.
+ - Anticipation is the greater part of pleasure.
+ - Reading a book is like re-writing it for yourself.
+ - Aeneas carried his aged father on his back from the ruins of Troy and so do we all, whether we like it or not, perhaps even if we have never known them.
+ - I am entirely alone. I and my shadow fill the universe.
+ - Nostalgia, the vice of the aged. We watch so many old movies our memories come in monochrome.
+ - Out of the frying pan into the fire! What is marriage but prostitution to one man instead of many? No different!
+ - A broken heart is never a tragedy. Only untimely death is a tragedy.
+ - Those are the voices of my brothers, darling; I love the company of wolves.
+ - It is far easier for a woman to lead a blameless life than it is for a man; all she has to do is to avoid sexual intercourse like the plague.
+ - Is not this world an illusion? And yet it fools everybody.
+ - Proposition one: time is a man, space is a woman.
+ - A book is simply the container of an idea-like a bottle; what is inside the book is what matters.
+ - A day without an argument is like an egg without salt.
+ - His wedding gift, clasped round my throat. A choker of rubies, two inches wide, like an extraordinarily precious slit throat.
+ - A fairy tale is the kind of story in which one king goes to another king to borrow a cup of sugar.
+ - Cities have sexes: London is a man, Paris a woman, and New York a well-adjusted transsexual.
+ - One beast and only one howls in the woods by night.
+ - The clown may be the source of mirth, but – who shall make the clown laugh?
+ - What a joy it is to dance and sing!
+ - I will tell you what Jeanne was like. She was like a piano in a country where everyone has had their hands cut off.
+ - The tiger will never lie down with the lamb; he acknowledges no pact that is not reciprocal. The lamb must learn to run with the tigers.
+ - There are lots of things that you can brush under the carpet about yourself until you’re faced with somebody whose needs won’t be put off.
+ - The child’s laughter is pure until he first laughs at a clown.
+ - Pornography is a satire on human pretensions.
+ - It’s every woman’s tragedy, that, after a certain age, she looks like a female impersonator. Mind you, we’ve known some lovely female impersonators, in our time.
+ - The kind of power mothers have is enormous. Take the skyline of Istanbul – enormous breasts, pathetic little willies, a final revenge on Islam. I was so scared I had to crouch in the bottom of the boat when I saw it.
+ - A young girl would go into the wood as trustingly as Red Riding Hood to her granny’s house but this light admits no ambiguities and, here, she will be trapped in her own illusion because everything in the woods is exactly as it seems.
+ - Among the monsters, I am well hidden; who looks for a leaf in a forest?
+ - The invisible is only another unexplored country, a brave new world.
+ - I desire therefore I exist.
+ - Love is desire sustained by unfulfilment.
+ - We must all make do with the rags of love we find flapping on the scarecrow of humanity.
+ - In a world where women are commodities, a woman who refuses to sell herself will have the thing she refuses to sell taken away from her by force.
+ - Before he can become a wolf, the lycanthrope strips naked. If you spy a naked man among the pines, you must run as if the Devil were after you.
+ - Vengeful as nature herself, she loves her children only in order to devour them better and if she herself rips her own veils of self-deceit, Mother perceives in herself untold abysses of cruelty as subtle as it is refined.
+ - Anxiety is the beginning of conscience, which is the parent of the soul but is not compatible with innocence.
+ - Moonlight, white satin, roses. A bride.
+ - Sad; so sad, those smoky-rose, smoky-mauve evenings of late Autumn, sad enough to pierce the heart.
+ - Midnight, and the clock strikes. It is Christmas Day, the werewolves birthday, the door of the solstice still wide enough open to let them all slink through.
+ - How far does a pretence of feeling, maintained with absolute conviction, become authentic?
+ - She said to the Daisy girl with her big brown eyes: ‘I will not have it plain. No. Fancy. It must be fancy!’ She meant her future. A moon-daisy dropped to the floor, down from her hair, like a faintly derisive sign from heaven.
+ - She herself is a haunted house. She does not possess herself; her ancestors sometimes come and peer out of the windows of her eyes and that is very frightening.
+ - If Miss means respectably unmarried, and Mrs. respectably married, then Ms. means nudge, nudge, wink, wink.
+ - There is a striking resemblance between the act of love and the ministrations of a torturer.
+ - Just because we’re sisters under the skin doesn’t mean we’ve got much in common.
+ - Nothing is a matter of life and death except life and death.
+ - Nostalgia, the vice of the aged.
+ - The wolf is carnivore incarnate and he’s as cunning as he is ferocious; once he’s had a taste of flesh then nothing else will do.
+ - To pin your hopes upon the future is to consign those hopes to a hypothesis, which is to say, a nothingness. Here and now is what we must contend with.
+ - What would the daughters of the rich do with themselves if the poor ceased to exist?
+ - Strangers used to gather together at the cinema and sit together in the dark, like Ancient Greeks participating in the mysteries, dreaming the same dream in unison.
+ - In a secular age, an authentic miracle must purport to be a hoax, in order to gain credit in the world.
+ - I drew the curtains to conceal the sight of my father’s farewell; my spite was sharp as broken glass.
+ - At the best of times, spring hurts depressives.
+ - I see her as a series of marvellous shapes formed at random in the kaleidoscope of desire.
+ - Stars on our door, stars in our eyes, stars exploding in the bits of our brains where the common sense should have been.
+ - My mother learned that she was carrying me at about the same time the Second World War was declared; with the family talent for magic realism, she once told me she had been to the doctor’s on the very day.
+ - I haven’t changed much, over the years. I use less adjectives, now, and have a kinder heart, perhaps.
+ - Home is where the heart is and hence a movable feast.
+ - Some cities are women and must be loved; others are men and can only be admired or bargained with.
+ - The lovely Hazard girls’, they used to call them. Huh. Lovely is as lovely does; if they looked like what they behave like, they’d frighten little children.
+ - There was a house we all had in common and it was called the past, even though we’d lived in different rooms.
+ - Not many people can boast a photo of their grandmother posing for kiddiporn.
+ - I think I want to be in love with you but I don’t know how.
+ - Women’s sexy underwear is a minor but significant growth industry of late-twentieth-century Britain in the twilight of capitalism.
+ - I should have liked to have had him beside me in a glass coffin, so that I could watch him all the time and he would not have been able to get away from me.
+ - In the mythic schema of all relations between men and women, man proposes, and woman is disposed of.
+ - His main principles were indeed as follows: everything it is possible to imagine can also exist.
+ - Cats of all kinds weave in and out of the text; Burroughs has clearly taken to them in a big way in his old age and seems torn between a fear they will betray him into sentimentality and a resigned acceptance that a man can’t be ironic all the time.
+ - I think the adjective post-modernist really means mannerist. Books about books is fun but frivolous.
+ - He was a lovely man in many ways. But he kept on insisting on forgiving me when there was nothing to forgive.
+ - Drosselmeier had unwittingly exposed himself to an overdose of reality, and it had destroyed his reason.
+ - That is what I’m looking forward to the most, practical learning. I want to be a registered nurse so getting to talk to people who already work in those jobs can really teach me what to expect when I get out in the real world.
+ - They were connoisseurs of boredom. They savoured the various bouquets of the subtly differentiated boredoms which rose from the long, wasted hours at the dead end of night.
+ - The kind of power mothers have is enormous.
+ - You were the living image of the entire Platonic shadow show, an illusion that could fill my emptiness with marvellous, imaginary things as long as, just as long as, the movie lasted, and then all would all vanish.
+ - Art need no longer be an account of past sensations.
+ - It is, perhaps, better to be valued as an object of passion than never to be valued at all.
+ - I had the brief notion that his heart, pressed flat as a flower, crimson and thin as tissue paper, lay in this file. It was a very thin one.
+ - He is, I think, already pondering a magisterial project: that of buggering the English language, the ultimate revenge of the colonialised.
+ - The end of exile is the end of being.
+ - A mother is always a mother, since a mother is a biological fact, whilst a father is a movable feast.
+ - It shone on everyone, whether they had a contract or not. The most democratic thing I’d ever seen, that California sunshine.
+ - The bed is now as public as the dinner table and governed by the same rules of formal confrontation.
+ - For hours, for days, for years, she had wandered endlessly within herself but never met anybody, nobody.
+ - The notion of a universality of human experience is a confidence trick and the notion of a universality of female experience is a clever confidence trick.
+ - Comedy is tragedy that happens to other people.
+ - This lack of imagination gives his heroism to the hero.
+ - I think it’s one of the scars in our culture that we have too high an opinion of ourselves. We align ourselves with the angels instead of the higher primates.
+ - It may be the first in what I trust will be a rapidly growing and influential genre – the novel designed on purpose to be excludedfrom the Booker short-list.
+ - Reciprocity of sensation is not possible because to share is to be robbed.
+ - Losing their names, these things underwent a process of uncreation.
+ - If the Barbarians are destroyed, who will we then be able to blame for the bad things?
+ - I know that whenever a group of women are gathered together, the grandmother always makes a phantom appearance, hovering above them.
+ - Irish was a man of parts even if some of them didn’t work too well.
+
+98 quotes

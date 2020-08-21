@@ -1,0 +1,73 @@
+ - Bass is for people who can’t play guitar.
+ - To hell with the rules. If it sounds right, then it is.
+ - I just consider myself slightly left-of-center. I’m not your average bear. I – what’s the word? I’m not – normal.
+ - You only have 12 notes. Do what you want with them.
+ - If you want to be a rock star or just be famous, then run down the street naked, you’ll make the news or something. But if you want music to be your livelihood, then play, play, play and play! And eventually you’ll get to where you want to be.
+ - Music kept me off the streets and out of trouble and gave me something that was mine that no one could take away from me.
+ - Some people think a song without words isn’t a real song. Tell that to Beethoven and he’ll kick your ass!
+ - It’s all about sound. It’s that simple. Wireless is wireless, and it’s digital. Hopefully somewhere along the line somebody will add more ones to the zeros. When digital first started, I swear I could hear the gap between the ones and the zeros.
+ - Nirvana was huge, but it didn’t appeal to everyone.
+ - The one thing I do have is good ears. I don’t mean perfect pitch, but ears for picking things up. I developed my ear through piano theory, but I never had a guitar lesson in my life, except from Eric Clapton off of records.
+ - Best believe that needle hurt you Best to see these true colors Than follow one of your false virtues A little secret to make you think: Why is the crazy stuff we never say, poetry in ink?
+ - Practice. I used to sit on the edge of my bed with a six-pack of Tuborg. My brother would go out to party and get laid, come home at 3am., and I would still be playing with myself.
+ - It’s always a Catch-22 situation. They hate you if you’re the same, and they hate you if you’re different.
+ - Before the operation on my left hand I wasn’t able to stretch my fingers open all the way. I’ve never had very big hands, but I could do the splits with them. Eventually I couldn’t any more. I had a twisted tendon in my little finger that prevented me from being able to stretch.
+ - Cancer is like a cockroach. It just comes back stronger. I’m tearing apart the immune system of the cockroach and seeing how it ticks. I’ve opened up my own pathology center.
+ - A guitar is a very personal extension of the person playing it. You have to be emotionally and spiritually connected to your instrument. I’m very brutal on my instruments, but not all the time.
+ - I can’t read music. Instead, I’d do stuff inside the piano, do harmonics and all kinds of crazy things. They used to put me in these annual piano contests down at Long Beach City College, and two years in a row, I won first prize – out of like 5,000 kids!
+ - I’ve had a hip replacement, I’ve beaten cancer, I had my hand operation, and I stopped drinking. Something inside of me just went, ‘I’m done.’
+ - Obviously you have to have rhythm. If you have rhythm, then you can play anything you need. If you have rhythm and you love music, then play and play and play until you get to where you want to get. If you can pay the rent, great. If you can’t, then you’d better be having fun.
+ - The name Van Halen, the family legacy, is going to go on long after I’m gone.
+ - Rock stars come and go. Musicians play until they die.
+ - I mean it’s funny, playing music, how of course you want it to do well, you want them to like it, but it’s not competitive like an election, it’s the Olympics, it’s not a Formula 1 race. The Billboard charts are just to show you what people like.
+ - Every song is like a kid. How can you have that many kids and have a favorite? Which one do I like to hang most with?
+ - I don’t really know what inspires me to write the music I do, but usually, the music will set the tone for the lyrics.
+ - Imagine if Beethoven had a tape recorder. Then you’d know exactly what he meant. Maybe he meant ‘Da da da da’ instead of ‘Boom boom boom boom!’ Who knows?
+ - A guitar is just theoretically built wrong. Each string is an interval of fourths, and then the B string is off. Theoretically, that’s not right, all the strings should be off.
+ - The piano is a universal instrument. If you start there, learn your theory and how to read, you can go on to any other instrument.
+ - I was so used to doing old blues licks with the first three fingers. When I started using my pinky and finding more spread things, that’s when I started getting my own style.
+ - On ‘Honeybabysweetiedoll’ I used a Whammy, a Boss OC-3 octave box, a Sustainer and a Line 6 DL4 Delay Modeler. That’s only on the intro, where all those weird noises are happening.
+ - On ‘Van Halen,’ I was a young punk, and everything revolved around the fastest kid in town, gunslinger attitude. But I’d say that at the time of ‘Fair Warning,’ I started concentrating more on songwriting. But I guess in most people’s minds I’m just a gunslinger.
+ - Music is for people. The word ‘pop’ is simply short for popular. It means that people like it. I’m just a normal jerk who happens to make music. As long as my brain and fingers work, I’m cool.
+ - The only band I was really over-into was Cream. And the only thing I really liked about them was their live stuff ’cause they played two verses, then go off and jam for 20 minutes, come back and do a chorus and end. And I love the live jam stuff, the improvisation.
+ - There are really three parts to the creative process. First there is inspiration, then there is the execution, and finally there is the release.
+ - I’m not a drunk anymore, but since they cut out my tongue, I sound drunk.
+ - We’re musicians. We make music for a living. It’s that simple. Nothing else matters.
+ - You’ve only got 12 notes and however you mix them up is your thing.
+ - I started doing all kinds of weird stuff on the guitar, which became part of my playing. I started doing harmonics and tapping on the guitar and pulling off strings and doing all this weird stuff that no one had ever done before.
+ - I destroyed a lot of guitars trying to get them to do what I wanted, but I learned something from every guitar I tore apart, and discovered even more things. Things like if the string is not straight from the bridge saddle to the nut, you’re going to have friction.
+ - Sometimes I just want to lick David Lee Roth in the nuts.
+ - I’m just a normal schmo like anyone else.
+ - Eventually you’ll take the phrases and rhythm patterns you’ve copped and begin to put your own mark on them.
+ - I have selective hearing.
+ - I’m just a guitarist in a kick-ass rock and roll band. What more could I ask for?
+ - There’s a plaque on our wall that says we’ve sold over 65 million albums, and I don’t feel I’ve accomplished anything. I feel like I’m just getting started.
+ - I grew up on a lot of early Beatles, DC5, Cream, Clapton, Page, Beck and Hendrix.
+ - It makes me feel kind of weird, but obviously the Man Upstairs gave me something and it touches people, and I’m just so blessed.
+ - It comes back to the same old question people are always asking me: ‘When are you going to do a solo record?’ Well, if I did, it would probably be similar to ‘Baluchitherium,’ meaning it would be Van Halen music – which I write anyway – but without singing.
+ - I applied to Uncyclopedia Bassists, and was accepted!!
+ - I never took guitar lessons. I took classical piano lessons from the age of six when we lived in Holland.
+ - The stainless-steel frets were a major breakthrough, because of the amount of playing and bending that I do. I have to get my guitars refretted every couple of months.
+ - We make music for a living. Like I’ve always said, if you like what you’re doing, you’re halfway there; if someone else likes it, that’s even better. If they don’t like it, at least you like it. Not to be selfish, but you kind of have to be.
+ - I’ll be making music ’til the day I die. I’ve done all kinds of stuff, and more is coming.
+ - I’m blessed with a good pair of ears. That’s how I fooled my piano teacher. I’d watch his fingers and I’d listen to it, and I just kind of basically learned it by myself.
+ - I boil the strings so they stretch.
+ - I never dreamt of being a musician for my livelihood. I certainly never would have wanted to be in the business that I’m in, meaning the fame and the glory, the glitter, the rock star, the famous part.
+ - I was trying to take the band in a direction that I thought was appropriate, and Roth was trying to take the band in more of a Las Vegas direction. And there he is.
+ - When Van Halen started out, there was no path to fame. We just played what we liked. Even today it always comes down to the simplicity of rock and roll.
+ - Actually, if I could deliberately sit down and write a pop hit, all my songs would be pop hits! Let’s put it this way. I play what I like to hear. And sometimes I like to hear something poppy, and sometimes I don’t.
+ - When I was growing up and listening to bands like the Dave Clark Five, the groove was what initially got me going. I really like that funky, heavy groove.
+ - If I can help a kid discover a liking, or even a passion for music in their life, then that’s a wonderful thing.
+ - If you have a great-sounding guitar that’s a quality instrument and a good amp, and you know how to make the guitar talk, that’s the key. It starts with the guitar and knowing what it should sound and feel like.
+ - You know, most people, they want to go to Hollywood. They want to be a star. They want to be a rock star. That thought never entered any of our minds, the Van Halen family.
+ - I’m the one in the band that said I’m not going on tour unless we do a record.
+ - Major third complications can be overcome by lots of alcohol.
+ - I’ll always leave the same set of strings on my guitars when I’m recording. If I break one I’ll just replace it instead of putting on a whole new set of strings.
+ - I think Clapton is brilliant. He’s the only one who moved me. The only one who made me want to play the guitar.
+ - I’m writing, and just doing the same thing I always do.
+ - My son, Wolfgang, plays drums, guitars and bass.
+ - It’s Always about the music, never about anything else.
+ - I’m not a rock star. Sure I am, to a certain extent because of the situation, but when kids ask me how it feels to be a rock star, I say leave me alone, I’m not a rock star. I’m not in it for the fame, I’m in it because I like to play.
+ - Everything comes to me while I’m sitting on the pot.
+
+71 quotes

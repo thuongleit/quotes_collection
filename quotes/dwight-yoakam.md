@@ -1,0 +1,44 @@
+ - I like order. It allows me to have chaos in my head.
+ - Buddy, you might think that I’ve lost my mind. But mister, I’d pay twice to do it one more time.
+ - I embrace country music because of love, a love of what I came from.
+ - In the dark morning silence, I placed a gun to her head. She wore red dresses, but now she lay dead.
+ - To me, the hook of the riff is what makes a great guitar recording. It’s the backbone of the whole song. When you have a strong riff, it’s the rocket fuel for the track.
+ - I quit eating red meat a long time ago. I’m a vegetarian, but not by a moral issue or any kind of stand. I still eat dairy. And I quit eating sugar about the same time I quit eating red meat, but I eat fruit.
+ - Another lesson about a naive fool who came to Babylon, and found out that the pie don’t taste so sweet.
+ - Quality is timeless: It will clearly define itself. And so I make reference to and acknowledge things that I feel have been dismissed, trying to restate those musical and cultural elements clearly and vehemently.
+ - My guitars, Cadillacs, and hillbilly music Is the only thing that keeps me hanging on.
+ - I’m a thousand miles from nowhere, time don’t matter to me. I’m a thousand miles from nowhere and there’s not place that I want to be.
+ - My parents were not affluent people and were not – didn’t come from the extremities of education. My mother had a high school diploma. I often think I so wish she’d come out of the hills in Appalachia and been able to go on to college. I think she would have made a wonderful teacher.
+ - Music’s the one thing I try not to analyze. I don’t want to destroy the magic that has always been there for me.
+ - I can’t escape being born in Pike County, Kentucky, grandson of a miner, Luther Tibbs, and his wife, Earlene, and traveling as a child up and down Route 23 between Kentucky and Columbus, Ohio, where I was raised, experiencing life via working-class people. Nor do I want to escape.
+ - In the past 3-4 years I’ve developed a habit of keeping numerous small cassette recorders in my house and in a bag with me so that I’m able to commit to tape memory song ideas on a constant basis.
+ - My music is very personal. I’ve created it in solitude. I face a white wall and beller. I like that sound – the expression of loneliness. That’s what it’s all about.
+ - As a writer, I always tend to take the liberty and the great artistic luxury of a composite form of writing.
+ - However you arrive at the ability to ignore self-doubt – if you can acquire it or possess it or find it or discover it – move beyond self-doubt.
+ - I don’t regret any of the musical decisions I have made.
+ - Country music originates with the colloquial, rural aspects of white America. It’s really, truly, rural white America’s blues.
+ - It’s meant to reaffirm the validity of that music – clean, minimalist, honest, classic music.
+ - We share something in common with the fabric of the whole universe that connects us.
+ - I live out of cans a lot. But I try to indulge only in healthy canned food.
+ - I’ll never quit playing country music, or at least acknowledging it, always, as the cornerstone of what I am.
+ - As an artist, you have to maintain focus and eliminate the distraction of second-guessing yourself based on the opinions of others.
+ - Quality is timeless: It will clearly define itself.
+ - I am probably the last of a generation able to gain an education in country music by osmosis, by sitting in a ’64 Ford banging the buttons on the radio.
+ - No compression or as little as possible – that’s how you get a good recording.
+ - But that is a valid, continuing service that that music – which is, in some cases, 80 or 90 years old – is rendering. And proving its own timelessness.
+ - I think that we come to a greater understanding of the world we live in and ourselves through reading.
+ - Ironically, the success I’ve experienced at country radio has left me ostracized from pop and other formats of radio.
+ - I was very fortunate in having David Fincher, the director come to me. Now I’ve seen the finished product, I feel that every bit of the nine months we spent on the film was worth it.
+ - We started shooting, and then Jodie found out she was pregnant. Forest broke it to me – he’d gone to work and heard it on the radio! It seemed like the movie was doomed. But, like these characters, there was a disregard for all the signs along the way.
+ - I’ve always been just kind of consumed by my own thoughts.
+ - I needed to get into a nightclub and stand up and present the material that way. I needed to present it live.
+ - Film acting has been a very pure experience, because you have to give the purest form of yourself as an artist.
+ - Musicians exist independent of any of the marketing terms or the categorization.
+ - I’m really proud of it. To me, it’s a movie about character behavior and the pecking order of the pack, as well as the central character’s massive survival guilt.
+ - The actual work of recording a record or making a film just requires that you consciously block the time out to do that and nothing else. That’s what I do.
+ - The future has a lot to do with the past.
+ - Control success before it controls you.
+ - I hope that books don’t go the way of albums and CD, large format albums, and physical product.
+ - I think actors are at the mercy of the opportunities presented to them. So you kind of have to wait for them to choose you. My music is insular – I can choose that.
+
+42 quotes

@@ -1,0 +1,41 @@
+ - Law never is, but is always about to be.
+ - The heroic hours of life do not announce their presence by drum and trumpet.
+ - Fraud includes the pretense of knowledge when knowledge there is none.
+ - The repetition of a catchword can hold analysis in fetters for fifty years or more.
+ - Not honesty alone, but the punctilio of an honor the most sensitive, is then the standard of behavior.
+ - The Constitution was framed upon the theory that the peoples of the several states must sink or swim together, and that in the long run prosperity and salvation are in union and not division.
+ - I take judge-made law as one of the existing realities of life.
+ - Due process is a growth too sturdy to succumb to the infection of the least ingredient of error.
+ - Rest and motion, unrelieved and unchecked, are equally destructive.
+ - The validity of a tax depends upon its nature, and not upon its name.
+ - The great tides and currents which engulf the rest of men do not turn aside in their course and pass the judges by.
+ - The judge is not the knight-errant, roaming at will in pursuit of his own ideal of beauty or of goodness.
+ - History, in illuminating the past, illuminates the present, and in illuminating the present, illuminates the future.
+ - Justice, though due to the accused, is due the accuser also. The concept of fairness cannot be strained till it is narrowed to a filament. We are to keep our balance true.
+ - Membership in the bar is a privilege burdened with conditions.
+ - The final cause of law is the welfare of society.
+ - The great ideals of liberty and equality are preserved against the assaults of opportunism, the expediency of the passing hour, the erosion of small encroachments, the scorn and derision of those who have no patience with general principles.
+ - In truth, I am nothing but a plodding mediocrity – please observe, a plodding mediocrity – for a mere mediocrity does not go very far, but a plodding one gets quite a distance. There is joy in that success, and a distinction can come from courage, fidelity and industry.
+ - Inaction without more is not tantamount to choice.
+ - Justice is not to be taken by storm. She is to be wooed by slow advances. Substitute statute for decision, and you shift the center of authority, but add no quota of inspired wisdom.
+ - Prophecy, however honest, is generally a poor substitute for experience.
+ - Justice is not to be taken by storm. She is to be wooed by slow advances.
+ - The prophet and the martyr do not see the hooting throng. Their eyes are fixed on the eternities.
+ - Opinion has a significance proportioned to the sources that sustain it.
+ - History or custom or social utility or some compelling sense of justice or sometimes perhaps a semi-intuitive apprehension of the pervading spirit of our law must come to the rescue of the anxious judge and tell him where to go.
+ - Consequences cannot alter statutes, but may help to fix their meaning.
+ - With traps and obstacles and hazards confronting us on every hand, only blindness or indifference will fail to turn in all humility, for guidance or for warning, to the study of examples.
+ - The constant assumption runs throughout the law that the natural and spontaneous evolutions of habit fix the limits of right and wrong.
+ - There are vogues and fashions in jurisprudence as in literature and art and dress.
+ - We seek to find peace of mind in the word, the formula, the ritual. The hope is illusion.
+ - Code is followed by commentary, and commentary by revision, and thus the task is never done.
+ - The great generalities of the constitution have a content and a significance that vary from age to age.
+ - Method is much, technique is much, but inspiration is even more.
+ - The risk to be percieved defines the duty to be obeyed.
+ - What has once been settled by a precedent will not be unsettled overnight, for certainty and uniformity are gains not lightly sacrificed. Above all is this true when honest men have shaped their conduct on the faith of the pronouncement.
+ - There is in each of us a stream of tendency, whether you choose to call it philosophy or not, which gives coherence and direction to thought and action. Judges cannot escape that current any more than other mortals.
+ - Expediency may tip the scales when arguments are nicely balanced.
+ - The difference is no less real because it is of degree.
+ - It is for ordinary minds, not for psychoanalysts, that our rules of evidence are framed. They have their source very often in considerations of administrative convenience, or practical expediency, and not in rules of logic.
+
+39 quotes

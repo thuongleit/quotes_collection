@@ -1,0 +1,43 @@
+ - I’m a really good hacker, but I’m not a sensible person.
+ - I’d like to have a dog with me.
+ - There’s a lot of melancholy in my tracks.
+ - You change all the time. Everything changes you.
+ - You’re brainwashed in the West with equal temperament, so it’s quite hard for people who like following rules to get outside of that and see what you can do. But for me it’s easy because I don’t work like that. I work intuitively.
+ - It sounds really arrogant, but my music’s my favourite music ever. I prefer it to anyone else’s.
+ - I used to love jungle. I still think it’s the ultimate genre, really, because the people making it weren’t musicians.
+ - It’s not about what equipment you have, it’s what you do with it.
+ - If you’re making things at home, there is no structure – no end, no beginning. So releasing stuff is a really nice way to have dividers in between what you do, and giving yourself a kick up the ass and saying, “OK, that’s the end of that period.”
+ - It’s really funny, because if you make up words, then people project their own meanings onto it, which I find interesting.
+ - The best musicians or sound-artists are people who never considered themselves to be artists or musicians.
+ - I’m just some irritating, lying, ginger kid from Cornwall who should have been locked up in some youth detention centre. I just managed to escape and blag it into music.
+ - The best artists are people who don’t consider themselves artists, and the people who do are usually the most pretentious and annoying. They’ve got their priorities wrong. They’re just doing it to be artists rather than because they want to do it.
+ - It always sounds more right to me when it’s detuned. When it’s right in tune, it’s like there’s something slightly off. But at the end of the day, it’s all about frequencies and what they do to you. That’s the real core.
+ - You can’t rely on the fact that people know you. At Glastonbury, when they all knew I was DJing, everyone was cheering even though they’d never heard some of the tracks I was playing before.
+ - I’ve always got to change something. All the tracks I’ve done in the last five years were made in like six different studios. It gets a bit complicated.
+ - Forget all the equipment, forget the music, at the end of the day it’s just literally frequencies and their effects on your brain. That’s what’s everyone’s essentially after.
+ - When you get new rules that work, you’re changing the physiology of your brain. And then your brain has to reconfigure itself in order to deal with it.
+ - Because I’ve been making music and releasing it for so long, I’ve got that production-line thing in my brain: I can’t do anything new until the last one’s out.
+ - If you hear a C-major chord with an equal temperament, you’ve heard it a million times before and your brain accepts it. But if you hear a chord that you’ve never heard before, you’re like, “huh.”
+ - Well, I just bought a massive bank and I’ve moved into it on my own.
+ - I’m trying to work out more ways to involve my children, because the way I do stuff is so anti-kid, it’s really boring. It’s not fun. It is to me, but not to them, because they don’t even know what I’m doing.
+ - When I look at commercial studios, I think, “Oh, they’re all so nice and tidy,” but it’s because they don’t actually write music in them.
+ - A lot of composers before me have been on this mission to change the world by getting off equal temperament, and I’m definitely one of those.
+ - It’s quite similar to guitar solos, only with programming you have to use your brain. The most important thing is that it should have some emotional effect on me, rather than just, ‘Oh, that’s really clever.’
+ - If it takes you three years to set up a studio, and you’ve made one track with that setup, then the logical thing to do is not change anything and just do another one using the same set of sounds.
+ - Sometimes I just hit the keyboard in a way I’d like the rhythm of the tracks to sound.
+ - My filing system’s really crap because I can never decide whether to sort things by studio, or year, or where I lived.
+ - I’ve got a weird balance problem as a human being, like I’m dizzy, and it’s something to do with that.
+ - If you’ve got a stick hitting a drum and you’re programming it on a computer, it’s more interesting than a sample playing back – it’s something in the air, that’s the magical ingredient.
+ - The holy grail for a music fan, I think, is to hear music from another planet, which has not been influenced by us whatsoever.
+ - I’m a quite erratic person: From setups to actually when I’m doing a track, it’s just turning and switching and changing all the time.
+ - It’s only interesting when you’re from somewhere else, like America or Japan. The further away the more interesting it is.
+ - I got a feeling I had loads when I was in primary school, ’cause I had red hair; you know, like Duracell.
+ - That’s just globalization. It’s got good sides as well. But scenes aren’t allowed to develop on their own anymore. Everyone knows about everything.
+ - There’s something wrong with my brain, it doesn’t work properly! I can hear the same pitch in both ears, whereas for most people, if you listen to one pitch in one ear, it’s slightly different in the other. That’s how your brain works out direction.
+ - Can’t really despise people you don’t know.
+ - In America, it’s quite admirable if someone’s done well or been successful at whatever it is. Whereas in Britain, they’re not. They only like it when you’re the underdog.
+ - I used to make up names when I used to catalog my stuff.
+ - In Britain, it’s good for me to be anonymous, because they just think it’s a nobody. “Who is this guy?”
+ - It’s more interesting for me to stick things out anonymously – you get more of an honest reaction to what you’ve done.
+
+41 quotes

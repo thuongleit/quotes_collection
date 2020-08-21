@@ -1,0 +1,25 @@
+ - When people know I wrote ‘Thelma and Louise,’ they don’t want to mess with me.
+ - The world will provide you with every imaginable obstacle, but the one most difficult to overcome will be the lack of faith in yourself. Leave it to others to have doubts about you.
+ - I think this happens to a lot of people, men and women, where you reach a point in your life and all of a sudden realize that things have changed. You suddenly realize that people are coming up behind you, that maybe somebody might want to replace you for less money.
+ - Would you have a friend who talks to you the way you talk to yourself?
+ - We have a lot of women on the staff, obviously. It’s a predominantly female writing staff and we hire the best people. It’s not like we go we need more women or we need four women directing.
+ - I like writing flawed women, and being one, its something I feel I can write with some veracity and authority.
+ - Nashville is the place where I first realized how impossible it is to look at someone and know what is inside them, what special something they possess.
+ - We get the best people we can get and it turns out a lot of them are women. I’ve said this before If you hire people solely on their merit you wind up hiring a lot of women. I wonder how many other shows even come close to our numbers.
+ - Chick flick is not a term used to praise a movie. Nobody says ‘it’s a great chick flick.’ It’s a way of being derisive. I’m not clear why it’s ok to do it.
+ - If the same energy went into marketing movies to women as they do on the other demographics we might see more of a spike.
+ - Always, in all circumstances, wear comfortable shoes. You never know when you may have to run for your life.
+ - I call myself a feminist, not a feminist filmmaker. If somebody asked me if I had a feminist sensibility it would be pretty hard to deny, but is it the theme of my work? Not necessarily. I’m interested in a lot of things.
+ - I don’t think any studio – it was a long shot at the time – but I don’t think any studio in a million years would make ‘Thelma and Louise’ right now. But there’s so many other kinds of movies they won’t make right now.
+ - One of the magical things about Nashville is just how many incredibly talented people are here and the way they support each other.
+ - I love to start characters in a place where you think you know them. We can make all kinds of assumptions about them and think they have no redeeming qualities, but like everyone, they’re complex.
+ - I think of feminism as more of a political ideology.
+ - By luck I mean, when opportunity meets preparation.
+ - For me, the movies I like are all independent. And getting an independent feature made, it’s like you get down to the selling organs part, and it just loses some of its luster.
+ - Kelly Clarkson is the most adorable person on the planet. She is just so nice.
+ - One of the reasons I wanted to do a show about Nashville in Nashville was because when I lived here, the hardest thing to go out and hear was country music. Country was taking place inside the studio and it was an export.
+ - I don’t see the country audience looking forward to an out male singer. There are rumors about people but no one ever confirms because there is a tremendous amount of money at stake.
+ - I tried to get a baseball movie made a couple of years ago and I don’t think it didn’t happen because I was a woman, but because sports movie don’t sell internationally.
+ - I remember when I used to have actual time to write and now you don’t have time and you just do it. I think it explains a lot about television.
+
+23 quotes

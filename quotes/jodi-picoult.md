@@ -1,0 +1,502 @@
+ - There are two ways to be happy: improve your reality, or lower your expectations.
+ - You don't love someone because they're perfect, you love them in spite of the fact that they're not.
+ - You might not write well every day, but you can always edit a bad page. You can’t edit a blank page.
+ - Let me tell you this: if you meet a loner, no matter what they tell you, it’s not because they enjoy solitude. It’s because they have tried to blend into the world before, and people continue to disappoint them.
+ - Everyone deserves a happy ending.
+ - You can’t look back – you just have to put the past behind you, and find something better in your future.
+ - You can’t edit a blank page.
+ - This is what I like about photographs. They’re proof that once, even if just for a heartbeat, everything was perfect.
+ - When you’re different, sometimes you don’t see the millions of people who accept you for what you are. All you notice is the person who doesn’t.
+ - Home is not a place, but rather, the people you love.
+ - It’s crazy, right? To love someone who’s hurt you? It’s even crazier to think that someone who hurts you loves you.
+ - Some lessons can’t be taught, they simply have to be learned.
+ - It was like trying to bail out an ocean of water with a teaspoon.
+ - In the English language there are orphans and widows, but there is no word for the parents who loses a child.
+ - Sometimes to get what you want the most, you have to do what you want the least.
+ - Love meant jumping off a cliff and trusting that a certain person would be there to catch you at the bottom.
+ - Life can change in an instant; don’t be so worried about the future that you forget to celebrate what you have right now.
+ - Researching ‘Lone Wolf,’ I was amazed at how thoughtful and intelligent these animals are. There has never been a documented attack against a human by a wolf that wasn’t provoked by the human.
+ - Maybe you had to leave in order to really miss a place; maybe you had to travel to figure out how beloved your starting point was.
+ - Sometimes you can see things happen right in front of your eyes and still jump to the wrong conclusions.
+ - I only just found you, I can’t lose you now.
+ - Be kind to others before you take care of yourself; make whoever you’re with feel like they matter.
+ - In the space between yes and no, there’s a lifetime. It’s the difference between the path you walk and the one you leave behind; it’s the gap between who you thought you could be and who you really are; its the legroom for the lies you’ll tell yourself in the future.
+ - I think her flaws make me love her even more. She’s not perfect, but she’s perfect to me.
+ - They say that there are moments that open up your life like a walnut cracked, that change your point of view so that you never look at things the same way again.
+ - Love is not an equation, it is not a contract, and it is not a happy ending. Love is the slate under the chalk, the ground that buildings rise, and the oxygen in the air. It is the place you come back to, no matter where your headed.
+ - It takes two people to make a friendship work.
+ - Some people, they get down in a hole so deep they can’t figure out what to hold on to.
+ - Inside each of us is a monster; inside each of us is a saint. The real question is which one we nurture the most, which one will smite the other.
+ - We believe what we want to, what we need to. The corollary is that we choose not to see what we’d rather pretend doesn’t exist.
+ - Just ’cause you can’t see me don’t mean I gone away.
+ - Everyone has a story; everyone hides his past as a means of self-preservation. Some just do it better, and more thoroughly, than others.
+ - I personally subscribe to the belief that normal is just a setting on the dryer.
+ - Scars are just a treasure map for pain you’ve buried too deep to remember.
+ - Every life has a soundtrack.
+ - Life is not a plot; it’s in the details.
+ - Love is not a because, it’s a no matter what.
+ - The human capacity for burden is like bamboo- far more flexible than you’d ever believe at first glance.
+ - Things don’t always look as they seem.
+ - Like a missing tooth, sometimes an absence is more noticeable than a presence.
+ - If you want to see God laugh, make a plan.
+ - Anxiety’s like a rocking chair. It gives you something to do, but it doesn’t get you very far.
+ - You can tell yourself that you would be willing to lose everything you have in order to get something you want. But it’s a catch-22: all of those things you’re willing to lose are what make you recognizable. Lose them, and you’ve lost yourself.
+ - Hope and reality lie in inverse proportions.
+ - On the other hand, I think cats have Asperger’s. Like me, they’re very smart. And like me, sometimes they simply need to be left alone.
+ - He smiles at me, and I am suddenly seventeen again – the year I realize that love doesn’t follow the rules, the year I understood that nothing is worth having so much as something unattainable.
+ - The act of reading is a partnership. The author builds a house, but the reader makes it a home.
+ - Knowledge was power, but a good librarian did not hoard the gift. She taught others how to find, where to look, how to see.
+ - You can’t undo something that’s happened; you can’t take back a word that’s already been said out loud.
+ - What is right, in the end, is not always what it seems to be, and some rules are better broken.
+ - There’s always going to be bad stuff out there. But here’s the amazing thing – light trumps darkness, every time. You stick a candle into the dark, but you can’t stick the dark into the light.
+ - Some women are meant to change the world, while others are meant to hold it together. And then there are those of us who simply don’t want to be in it, because we know no matter how much we struggle, we can’t comfortably fit.
+ - My grandmother told me that her father used to ask her a riddle: What must you break apart in order to bring a family close together? Bread, of course.
+ - Words are like eggs dropped from great heights; you can no more call them back than ignore the mess they leave when they fall.
+ - To say there had been a loss was ludicrous; one lost a shoe or a set of keys. You did not suffer the death of a child and say there was a loss. There was a catastrophe. A devastation. A hell.
+ - Superheroes were born in the minds of people desperate to be rescued.
+ - When you begin a journey of revenge, start by digging two graves: one for your enemy, and one for yourself.
+ - A world that was crowded with people could still be a very lonely place.
+ - True love can break the most powerful curse.
+ - Lie to yourself until it’s true.
+ - If we don’t change the direction we are headed, we will end up where we are going.
+ - The best place to cry is on a mother’s arms.
+ - Power isn’t about doing something terrible to someone who’s weaker than you, Reiner. It’s having the strength to do something terrible, and choosing not to.
+ - Suddenly this is all too hard. I am tired of putting up walls. I want someone with the strength – and the honesty – to break them down.
+ - Where you come from does matter – but not nearly as much as where you are headed.
+ - Part of growing up was learning not to be quite that honest – learning when it was better to lie, rather than to hurt someone with the truth.
+ - Is Fate getting what you deserve, or deserving what you get?
+ - If his voice hasn’t been the melody of my life, it’s been the bass line, so subtle you don’t notice it until it’s missing.
+ - Don’t pay back in kind, pay back in kindness. If someone does wrong by you, do right by them.
+ - Things that break – be they bones, hearts, or promises – can be put back together but will never really be whole.
+ - The weapons an author has at her disposal are flawed. There are words that feel shapeless and overused. Love, for example. I could write the word love a thousand times and it would mean a thousand different things to different readers.
+ - Envy, after all, comes from wanting something that isn’t yours. But grief comes from losing something you’ve already had.
+ - Remember when you were a little kid and you’d fall asleep in the car? And someone would carry you out and put you into bed, so that when you woke up in the morning, you knew automatically you were home again? That’s what I think it’s like to die.
+ - The real power of a wolf isn’t in its fearsome jaws, which can clench with fifteen hundred pounds of pressure per square inch. The real power of a wolf is having that strength, and knowing when not to use it.
+ - What if it turns out that a life isn’t defined by who you belong to or where you came from, by what you wished for or whom you’ve lost, but instead by the moments you spend getting from each of these places to the next?
+ - Raw love, like raw heartache, could blindside you.
+ - The desperate usually succeed because they have nothing to lose.
+ - The saddest day in the world will be the one when she stops pretending.
+ - I imagine having that sixth sense, the certainty that what I’m looking for is within reach, even if it’s still hidden.
+ - Everyone has a book inside of them – but it doesn’t do any good until you pry it out.
+ - After a certain point, a heart with so many stress fractures can never be anything but broken.
+ - If you gave someone your heart and they died, did they take it with them? Did you spend the rest of forever with a hole inside you that couldn’t be filled?
+ - I knew what it was like to lose someone you loved. You didn’t get past something like that, you got through it.
+ - I adore the way he looks at me sometimes, as if love is a quantity he cannot measure scientifically, because it multiplies too quickly.
+ - Can you hate someone for what they have done, but still love them for whom they had been?
+ - But once you throw a stone, there are ripples in the pond, even if you remove the rock.
+ - My dad used to say that living with regrets was like driving a car that only moved in reverse.
+ - It seems to me that no matter what religion you subscribe to, acts of kindness are the stepping-stones to making the world a better place – because we become better people in it.
+ - I don’t want to make the same mistake twice. I don’t want to tell myself it’s over when it’s not.
+ - Rest easy, real mothers. The very fact that you worry about being a good mom means that you already are one.
+ - When a freedom is taken away from you, I suppose, you recognize it as a privilege, not a right.
+ - In reality, you don’t ever change the hurricane. You just learn how to stay out of its path.
+ - If you focus on sandbagging the beachhead, you can ignore the tsunami that’s approaching. Try it any other way and you’ll go crazy.
+ - People work too hard to figure out the meaning of their lives. Why me, why now. The truth is, sometimes things don’t happen to you for a reason. Sometimes it’s just about being in the right place at the right time for someone else.
+ - Even the most beautiful things can be toxic.
+ - There are millions of people in the world, and the spirits will see that most of them you never have to meet. But there are one or two you are tied to, and the spirits will cross you back and forth, threading so many knots until they catch and you finally get it right.
+ - I wonder if, as you get older, you stop missing people so fiercely. Maybe growing up is just focusing on what you’ve got, instead of what you don’t.
+ - Sometimes, when you don’t ask questions, it’s not because you are afraid that someone will lie to your face. It’s because you’re afraid they’ll tell you the truth.
+ - Who I am, and what I am capable of doing has always managed to surprise me.
+ - The truth doesn’t always set you free; people prefer to believe prettier, neatley wrapped lies.
+ - Happiness is what you choose to remember.
+ - Shooting stars are not stars at all. They re just rocks that enter the atmosphere and catch fire under friction. What we wish on when we see one is only a trail of debris.
+ - We Pisces, we’re a special breed.
+ - There is a reason the word belonging has a synonym for want at its center; it is the human condition.
+ - The wolves knew when it was time to stop looking for what they’d lost, to focus instead on what was yet to come.
+ - I wonder if what makes a family a family isn’t doing everything right all the time but, instead, giving a second chance to the people you love who do things wrong.
+ - Believe me, being gay is not a choice. No one would choose to make life harder than it has to be.
+ - History isn’t about dates and places and wars. It’s about the people who fill the spaces between them.
+ - The first person you fell in love with stole your heart. The first person you made love with stole your soul. And if these were one and the same, you were doomed.
+ - Why are you doing this to yourself? When something bad happens, why do you have to pick at it until it bleeds all over again?
+ - When you are attracted to people, it’s because of the details. Their kindness. Their eyes. The fact that they can get you to laugh when you need it the most.
+ - When you love someone you let them take care of you.
+ - We all have things that come back to haunt us. Some of us just see them more clearly than others.
+ - Doing the right thing for someone else occasionally means doing something that feels wrong to you.
+ - Extraordinary things are always hiding in places people never think to look.
+ - Religion isn’t in your DNA. you don’t believe just because your parents believe.
+ - I close my eyes, thinking that there is nothing like an embrace after an absence, nothing like fitting my face into the curve of his shoulder and filling my lungs with the scent of him.
+ - It takes two people to make a lie work: the person who tells it, and the one who believes it.
+ - We are all, I suppose, beholden to our parents – the question is, how much?
+ - She was all the things I wasn’t. And i was all the things she wasn’t. she could paint circles around anyone; I couldn’t even draw a straight line. She was never into sports; I’ve always been. Her hand, it fit mine.
+ - People always say that, when you love someone, nothing in the world matters. But that’s not true, is it? You know, and I know, that when you love someone, everything in the world matters a little bit more.
+ - When you don’t know where you’re headed, you find places no one else would ever explore.
+ - If you ask me, music is the language of memory.
+ - There is no one truth. There’s only what happened, based on how you perceive it.
+ - If history has a habit of repeating itself, doesn’t someone have to stay behind to shout out a warning?
+ - Everyone thinks you make mistakes when you’re young. But I don’t think we make any fewer when we’re grown up.
+ - The hardest thing in the world is believing someone can change. It’s always easier to go along with the way things are than to admit that you might have been wrong in the first place.
+ - You know it’s never fifty-fifty in a marriage. It’s always seventy-thirty, or sixty-forty. Someone falls in love first. Someone puts someone else up on a pedestal. Someone works very hard to keep things rolling smoothly; someone else sails along for the ride.
+ - I truly believed that the cost of success for us shouldn’t be the cost of failure for a good friend.
+ - It was no coincidence, that fear could move a person to extremes, just as seamlessly as love. They were the conjoined twins of emotion: If you didn’t know what was at stake to lose, you had nothing to fight for.
+ - If he says jump, she doesn’t even ask “How high?” She goes out and buys a pogo stick.
+ - The best relationships were the ones where both sides went out of their way to make sure the other wasn’t disappointed.
+ - Since it had gotten so quiet in the room that you could hear the sound of your own doubts...
+ - Did you ever think that maybe what you see isn’t really what’s true?
+ - When it’s all over, you’re remembered for what you did, not what you said you were going to do.
+ - The only difference between a wish and a prayer is that you’re at the mercy of the universe for the first, and you’ve got some help with the second.
+ - Sometimes knowing what’s right isn’t a rational decision, or even what works on paper. Sometimes leaving is the best course of action after all.
+ - It’s never the differences between people that suprise us. It’s the things that, against all odds, we have in common.
+ - A sacrament – like marriage – means living a life better than your natural instincts, so that you’re modeling God. And God never gives up.
+ - May be you had to come close to losing something before you could remember its value.
+ - Life isn’t nearly as stable as we want it to be.
+ - Just because you didn’t speak the facts out loud didn’t erase their existence. Silence was just a quieter way to lie.
+ - He rises over me, a second sun, and fills me with light and heat.
+ - I used to think I’d be just like them when I grew up, but I am not. And the thing is, somewhere along the way, I stopped wanting to be like them, anyway.
+ - Q: How would you like your eggs in the morning? A: Unfertilized.
+ - You might have to lose control before you could find out what you’d been missing.
+ - She’s not classically beautiful, but somehow that only makes her more interesting.
+ - You get through it, you just never get over it.
+ - You don’t need water to feel like you’re drowning, do you?
+ - One person’s trauma is another’s loss of innocence.
+ - The Inuit say that the stars are holes in heaven. And every time we see the people we loved shining through, we know they’re happy.
+ - Would you give up your vengeance against someone you hate if it meant saving someone you love? Would you want your dreams to come true if it meant granting your enemy’s dying wish?
+ - Saying goodbye to the people you love isn’t easy.
+ - I remember for that one moment, I believe I was hitch hiking on one of those comets, falling so fast that I’d surely burn away before I ever hit the ground.
+ - When you love someone – when you create a child with him – you don’t just suddenly lose that bond. Like any other energy, it can’t be destroyed, just channeled into something else.
+ - It took me a lifetime to realizethings don’t get lost if they don’t have value- you don’t miss what you don’t care about.
+ - It is the things you cannot see coming that are strong enough to kill you.
+ - Suddenly, I don’t want to be this person anymore. I don’t want to pretend I’m fooling the world when I’m not. I want someone else to have a plan for me, because I’m not doing a very good job myself.
+ - People changed. Even the people you thought you knew as well as you knew yourself.
+ - I’m too much of a coward to kill myself. And too much of a coward to live.
+ - I’m grateful for my children, who are slowly emerging to become their own wonderful, interesting, compassionate young adults – which makes me believe that along the way I must have done something right.
+ - She thought of death like the seam of a hem: each time you lose someone close, it unraveled a little. You could still go along with your life, but you’d be forever tripping over something you previously took for granted.
+ - People don’t just disappear. There’s always a reason, or an enemy with a grudge. There’s always a loose thread that starts to unravel.
+ - I’m not saying you did the wrong thing. I’m not even saying it wasn’t something I’d thought of doing, myself. But even if it was the just thing to do, or the fitting thing, it still wasn’t the right thing.
+ - I would have given anything to keep her little. They outgrow us so much faster than we outgrow them. Brian Fitzgerald, talking about his children.
+ - Things break all the time. Day breaks, waves break, voices break. Promises break. Hearts break.
+ - There are so many ways a family can unravel. All it takes is a tiny slash of selfishness, a rip of greed, a puncture of bad luck. And yet, woven tightly, family can be the strongest bond imaginable.
+ - Someone once told me that when you give birth to a daughter, you’ve just met the person whose hand you’ll be holding the day you die.
+ - Mistakes are like the memories you hide in an attic: old love letters from relationships that tanked, photos of dead relatives, toys from a childhood you miss. Out of sight is out of mind, but somewhere deep inside you know they still exist. And you also know that you’re avoiding them.
+ - Sometimes I think the human heart is just a simple shelf. There is only so much you can pile onto it before something falls off an edge and you are left to pick up the pieces.
+ - I used to believe everything my brother told me, because he was older and I figured he knew more about the world. But as it turns out, being a grown-up doesn’t mean you’re fearless. It just means you fear different things.
+ - Is it a crime when you love someone so much that you can’t stand the thought of them changing? Is it a crime when you love someone so much that you can’t see clearly?
+ - Sometimes we find ourselves walking through life blindfolded, and we try to deny that we’re the ones who securely tied the knot.
+ - Seeing her sitting there unresponsive makes me realize that silence has a sound.
+ - Being a teenager isn’t all that different from being part of someone else’s story. There’s always someone who thinks they know better than you do.
+ - But there’s a part of me that wonders what it would be like to be the most important person to someone else, to always feel like you were missing a piece of yourself when he wasn’t near you.
+ - That’s the paradox of loss: How can something that’s gone weigh us down so much?
+ - I think you’re the only person who gets me. When I’m with you, the world doesn’t feel like a problem I can’t figure out. Please come to the dance, because you’re my music.
+ - A real friend isn’t capable of feeling sorry for you.
+ - I think grief is like a really ugly couch. It never goes away. You can decorate around it; you can slap a doily on top of it; you can push it to the corner of the room-but eventually, you learn to live with it.
+ - Until this moment, I had not realized that someone could break your heart twice, along the very same fault lines.
+ - Sometimes there aren’t words. The silence between us is flung wide as an ocean. But I manage to reach across it, to wrap my arms around him.
+ - You make yourself strong because it’s expected of you. You become confident because someone beside you is unsure. You turn into the person others need you to be.
+ - But will you miss me? More importantly – will I miss you? Does either one of us really want to hear the answer to that question?
+ - How do you tell someone that you weren’t the person he thought you were? And more importantly, how did you tell him that you’d meant the things you’d said, when everything else about you turned out to be a lie.
+ - I’m weird. Everyone says so.
+ - There was no black or white. Someone who had been good her entire life could, in fact, do something evil. People were just as capable of committing murder, under the right circumstances, as any monster.
+ - Maybe knowing where you belong is not equal to knowing who you are.
+ - If you never go out on that limb, you’re missing a hell of a view.
+ - Your hand fits mine like the last piece of a jigsaw puzzle.
+ - There is nothing worse than silence, strung like heavy beads on too delicate a conversation.
+ - He’s not your typical prince, more like a square peg in a round hole, kind of like me. He’s the sort of guy who wouldn’t mind reading side by side on a date.
+ - Something still exists as long as there’s someone around to remember it.
+ - Kids think with their brains cracked wide open; becoming an adult, I’ve decided, is only a slow sewing shut.
+ - Infatuation’s just another word for not seeing clearly. When you start to love a person- that’s when they become real.
+ - Once you had put the pieces back together, even though you may look intact, you were never quite the same as you’d been before the fall.
+ - But then again, maybe bad things happen because it’s the only way we can keep remembering what good is supposed to look like.
+ - Clearly God was in some kind of mood on my birthday.
+ - It was a catch-22: If you didn’t put the trauma behind you, you couldn’t move on. But if you did put the trauma behind you, you willingly gave up your claim to the person you were before it happened.
+ - He insisted that stars were people so well loved, they were traced in constellations, to live forever.
+ - A fire can’t burn forever. Eventually, it consumes itself.
+ - Loneliness is a mirror, and recognizes itself.
+ - I became a firefighter because I wanted to save people. But I should have been more specific. I should have named names.
+ - Everyone knew that if you divided reality by expectation, you got a happiness quotient. But when you invert the equation – expectation divided by reality – you didn’t get the opposite of happiness. What you got, Lewis realized, was hope.
+ - There are always sides. There is always a winner and a loser. For every person who gets, there’s someone who must give.
+ - Things had a way of working out for the best when you let them run their course.
+ - Torn between fear and something that resembled love, she wrestled with questions she never dreamed she would face: How could she leave? Then again, how could she stay?
+ - If you have a sister and she dies, do you stop saying you have one? Or are you always a sister, even when the other half of the equation is gone?
+ - I know you love me. The question is, how much?
+ - I imagine the touch of someone who loves you so much, he cannot bear to watch you sleep; and so you wake up with his hand on your heart.
+ - I don’t believe in writer’s block. Most of writer’s block is having too much time on your hands. My mantra is that you can always edit a bad page; you can’t edit a blank page.
+ - Normal, in our house, is like a blanket too short for a bed – sometimes it covers you just fine, and other times it leaves you cold and shaking; and worst of all, you never know which of the two it’s going to be.
+ - God doesn’t give people burdens they can’t handle.
+ - Grief is a curious thing, when it happens unexpectedly. It is a Band-aid being ripped away, taking the top layer off a family. And the underbelly of a household is never pretty, ours no exception.
+ - It’s the child who’s supposed to cry, and the mom who makes it all better, not the other way around, which is why mothers will move heaven and earth to hold it together in front of their own kids.
+ - Did you ever walk through a room that’s packed with people, and feel so lonely you can hardly take the next step?
+ - Sometimes when you find something you didn’t really realize you were looking for, you just don’t know how to react.
+ - Sometimes all you need to live one more day is a good reason to stick around.
+ - If you spent your life concentrating on what everyone else thought of you, would you forget who you really were?
+ - Maybe Fate isn’t the pond you swim in but the fisherman floating on top of it, letting you run the line wild until you are weary enough to be reeled back in.
+ - Sometimes we don’t know we’re dreaming; we can’t even fathom that we’re asleep.
+ - You can stay up all night and still not count all the ways to lose the people you love.
+ - You can’t exist in this world without leaving a piece of yourself behind.
+ - I believe in love. I think it just hits you and pulls the rug out from underneath you and, like a baby, demands your attention every minute of the day.
+ - What is the point of trying to put down on paper emotions that are too complex, too huge, too overwhelming to be confined by an alphabet? Love isn’t the only word that fails. Hate does, too.
+ - Relationships always sounded so physically painful: you fell in love, you broke a heart, you lost your head. Was it any wonder that people came through the experience with battle scars?
+ - No one ever asks a kid for her opinion, but it seems to me that growing up means you stop hoping for the best, and start expecting the worst.
+ - If you want something to be true badly enough, you can rewrite it that way, in your head. You can even start to believe it.
+ - It doesn’t take a whole long life to realize that what we deserve to have, we rarely get.
+ - Parents aren’t the people you come from. They’re the people you want to be, when you grow up.
+ - Do you know how there are moments when the world moves so slowly you can feel your bones shifting, your mind tumbling? When you think that no matter what happens to you for the rest of your life, you will remember every last detail of that one minute forever?
+ - Beliefs are the roads we take to our dreams. Believe you can do something-or believe you can’t-and you’ll be right everytime.
+ - I would prove to you that being different isn’t a death sentence but a call to arms.
+ - There’s some illogical part of me that still believes if you want Superman to show up, first there’s got to be someone worth saving.
+ - I found plain truth very interesting.
+ - It turns out that sharing the past with someone is different from reliving it when you’re alone. It feels less like a wound, more like a poultice.
+ - I realize then that we never have children, we receive them. And sometimes it’s not for quite as long as we would have expected or hoped. But it is still far better than never having had those children at all.
+ - Logical thinking keeps you from wasting time worrying, or hoping. It prevents disappointment. Imagination, on the other hand, only gets you hyped up over things that will never realistically happen.
+ - You can’t keep yourself from falling in love, but you can steer yourself away from the wrong people.
+ - Some women are meant to change the world while others are meant to hold it together.
+ - What makes you walk past thirty-thousand people without a second glance, and then you look at the thirty-thousandth-and-first person and know you’ll never take your eyes off her again?
+ - All it takes is a second and your whole life can get turned upside down.
+ - You couldn’t have strength without weakness, you couldn’t have light without dark, you couldn’t have love without loss.
+ - I woke up one morning thinking about wolves and realized that wolf packs function as families. Everyone has a role, and if you act within the parameters of your role, the whole pack succeeds, and when that falls apart, so does the pack.
+ - For better or for worse, music is the language of memory. It is also the language of love.
+ - What we all want, really, is to be loved. That craving drives our worst behavior.
+ - You’d think someone who’d been to medical school would be able to hear through a stethoscope that somebody was empty inside.
+ - There are two reasons not to tell the truth – becuase lying will get you what you want, and because lying will keep someone from getting hurt.
+ - Whether or not you believe in Fate comes down to one thing: who do you blame when something goes wrong.
+ - A photo says, you were happy, and I wanted to catch that. A photo says, you were so important to me that I put down everything else to come watch.
+ - Asking me to describe my son is like asking me to hold the ocean in a paper cup.
+ - We all know that a sky with clouds in it is much more interesting than one that doesn’t have any.
+ - The scariest thing in the world is thinking someone you love is going to die.
+ - Close a door, and you’d still feel a breeze through the window.
+ - What I want, more than anything, is to turn back time a little. To become the kid I used to be, who believed whatever my mother said was one hundred percent true and right without looking hard enough to see the hairline crack.
+ - The doctors may be mapping out the war games, but it is the nurses who make the conflict bearable.
+ - Three months ago, if you asked me, I would have told you that if you really loved someone, you’d let them go. But now I look at you, and I dreamed about Maggie, and I see that I’ve been wrong. If you really love someone, Allie, I think you have to take them back.
+ - Life could take on any number of shapes while you were busy fighting your own demons. But if you were changing at the same rate as the person beside you, nothing else really mattered. You became each other’s constant.
+ - That’s why we read fiction, isn’t it? To remind us that whatever we suffer, we’re not the only ones?
+ - It was one thing to sacrifice your own life for someone else’s. It was another thing entirely to bring into the mix a third party – a third party who knew you, who trusted you implicitly.
+ - If you want to love a parent you have to understand the incredible investment he or she has in you. If you are a parent, and you want to be loved, you have to deserve it.
+ - You didn’t get past something like that, you go through it – and for that reason alone, I understood more about her than she ever would have guessed.
+ - You signed no contract to become a parent, but the responsibilities were written in invisible ink. There was a point when you had to support your child, even if no one else would. It was your job to rebuild the bridge, even if your child was the one who burned it in the first place.
+ - The more you get past pain, the more it goes from coal to diamond.
+ - It’s hard to be the one always waiting. I mean, there’s something to be said for the hero who charges off to battle, but when you get right down to it there’s a whole story in who’s left behind.
+ - When your mother is made out of your dreams, anything real is bound to disappoint you.
+ - I don’t know why it’s called “getting lost.” Even when you turn down the wrong street, when you find yourself at the dead end of a chain-link fence or a road that turnd to sand, you are somewhere. It just isn’t where you expected to be.
+ - You know, the mind is a remarkable thing. Just because you can’t see the wound doesn’t mean it isn’t hurting. It scars all the time, but it heals.
+ - There were lies we told to save ourselves, and then there were lies we told to rescue others. What counted more, the mistruth, or the greater good?
+ - It feels like a punch. Tears fill my eyes, and I wonder how I could be upset over losing something I never had.
+ - I believe that having something to hope for – even if it’s just a better tomorrow- is the most powerful drug on this planet.
+ - She felt a cage coming down around her; too late she realized that he had her trapped by the heart. And like any unwilling animal that was well and truly caught, she could escape only by leaving a piece of herself behind.
+ - How could you not want to draw breath one more day? How could your own life be such a cheap commodity? But then I started to understand: when your existence is hell, death must be heaven.
+ - Mistakes are something that happen by accident. You didn’t walk out the door one morning and fall into some guy’s bed. You thought about it, for a while. You made that choice.
+ - You can make it dark, but I can’t make it light.
+ - It doesn’t matter what it is that leaves a hole inside you. It just matters that it’s there.
+ - There is a fine line between seeing something that’s lost as missing, and seeing it as something that might be found.
+ - I know how difficult it can be when the image you’ve had of something doesn’t match its reality; when the friend beside you turns into a monster.
+ - Here’s what I hadn’t realized: the mother you haven’t seen for almost thirty-six years isn’t your mother, she’s a stranger. Sharing DNA doesn’t make you fast friends. This wasn’t a joyous reunion. It was just awkward.
+ - That’s the strange thing about being a mother: until you have a baby, you don’t even realize how much you were missing one.
+ - On a really dark night, you can see between 1,000 and 1,500 stars, and there are millions more that haven’t been discovered. It is so easy to think that the world revolves around you, but all you have to do is stare up at the sky to realize it isn’t that way at all. -Brian Fitzgerald.
+ - All I know is that I carried you for nine months. I fed you, I clothed you, I paid for your college education. Friending me on Facebook seems like a small thing to ask in return.
+ - She was forced to consider the startling fact that the love of her life might not actually be someone with whom she could spend a lifetime.
+ - You know how every now and then, you have a moment where your whole life stretches out ahead of you like a forked road, and even as you choose one gritty path you’ve got your eyes on the other the whole time, certain that you’re making a mistake.
+ - Talking out loud to fictional characters is just the tip of the iceberg.
+ - Is it really worth dying for the person you love?
+ - If words had flavors, hers would be bitter almonds and coffee grounds.
+ - I don’t know whether you can look at your past and find, woven like the hidden symbols on a treasure map, the path that will point to your final destination.
+ - You know someone’s right for you when the things they don’t have to say are even more important than the things they do.
+ - The thinnest slice would be teeming with memories of a love so strong it turned you inside out and left you gasping, and would be an identical match to a slice stored in the heart of a soul mate.
+ - If you had to pack your whole life into a suitcase-not just the practical things, like clothing, but the memories of the people you had lost and the girl you had once been-what would you take?
+ - I always hated when my scars started to fade, because as long as I could still see them, I knew why I was hurting.
+ - When it comes to memories, the good and the bad never balance.
+ - It never failed to amaze me how the most ordinary day could be catapulted into the extraordinary in the blink of an eye.
+ - In fairytales, when the mask came off, the handsome prince still loved the girl, no matter what -and that alone would turn her into a princess.
+ - The right idea is the one you can’t stop thinking about; the one that’s in your head first thing in the morning.
+ - I was starting to see that what looks like garbage from one angle might be art from another. Maybe it did take a crisis to get to know yourself; maybe you needed to get whacked hard by life before you understood what you wanted out of it.
+ - I realize how quickly lies compound. They cover like a coat of paint, one on top of the other, until you cannot remember what color you started with.
+ - She stares at me for a moment, and then she bursts out laughing. “You haven’t seen his perfect little wife and his perfect little girls. Believe me, Oliver, I’m not the great love of his life, the one he’ll never forget.” “You are to me,” I say.
+ - Isn’t it amazing how, when you strip away everything, people are so much alike?
+ - My mother moves so fast I do not even see it coming. But she slaps my face hard enough to make my head snap backward. She leaves a print that stains me long after it’s faded. Just so you know: shame is five-fingered.
+ - I realized it was like looking into the sun – you shouldn’t do it, because you’d turn your face away and be blind to everything else.
+ - There is no cosmic scale on which you can weigh your actions; you learn too late what choices ruin the fragile balance.
+ - There were some people who hit your life so hard, they left a stain on your future.
+ - She wanted him to tell her that when you love someone so hard and so fierce, it was all right to do things that you knew were wrong.
+ - The answer is that there is no good answer. So as parents, as doctors, as judges, and as a society, we fumble through and make decisions that allow us to sleep at night – because morals are more important than ethics, and love is more important than law.
+ - It was possible that a miracle was not something that happened to you, but rather something that didn’t.
+ - My mother used to tell me that when push comes to shove, you always know who to turn to. That being a family isn’t a social construct but an instinct.
+ - You would be surprised at the lengths you will go to believe the best about someone if you truly love him.
+ - There are some dreams that get stuck between your teeth when you sleep, so that when you open your mouth to yawn awake they fly right out of you.
+ - I look for places like me: big, hollow, forgotten by most everyone.
+ - But that’s what love is, isn’t it? When it hurts you more to see someone suffer than it does to take the pain away?
+ - I felt a splinter of guilt wedge into my heart. Charlotte had hurt me; in return, I’d hurt Rob. Maybe that’s what we do to the people we love: take shots in the dark and realize too late we’ve wounded the people we’re trying to protect.
+ - Once the world was pulled out from beneath your feet, did you ever get to stand on firm ground again?
+ - In nineteen minutes, you can mow the front lawn; color your hair; watch a third of a hockey game. In nineteen minutes, you can bake scones or get a tooth filled by a dentist; you can fold laundry for a family of five. In nineteen minutes, you can stop the world; or you can just jump off it.
+ - I will say overwhelmingly what means so much more to me than the opinion of one reviewer are the letters I get from fans who tell me how a particular book has changed their life.
+ - If you read the first page of one of my novels, I can guarantee that you will read the last one. This isn’t just social commentary. This is also about writing good page-turners. I want people to keep reading.
+ - What if love wasn’t the act of finding what you were missing but the give-and-take that made you both match?
+ - I understand better than she’d imagine that history is indelible. You can mask it; you can patch it smooth and clear; but you always know what’s hidden underneath.
+ - As for his name, well, what attorney wouldn’t want to be able put a Judge in a crate every now and then?
+ - I can give or take elephants; I never can find the cheetah-but the zebras captivate me. They’d be one of the few things that would fit if we were lucky enough to live in a world that’s black or white.
+ - Does fate ever play by the rules?
+ - But if you seek forgiveness, doesn’t that automatically mean you cannot be a monster? By definition, doesn’t that desperation make you human again?
+ - But there’s an enormous difference between an audience that’s watching you because they can’t wait to see what comes next and an audience that’s watching you because they’re waiting for you to fail.
+ - There are some weapons you can’t protect yourself against.
+ - Not everyone understands how you can spin two lassos at the same time, one of hope and one of grief.
+ - You know how I get angry sometimes? That’s because it’s the only way I can still feel. And I need to test myself, to make sure I’m really here.
+ - Traveling is all very well and good as long as you knew there is a place or person you can call home.
+ - You can believe something really hard,? Faith says, ’and still be wrong.
+ - I have never understood why it is called losing a child. No parent is that careless. We all know exactly where our sons and daughters are; we just don’t necessarily want them to be there.
+ - The bottom line is that we never fall for the people we’re supposed to.
+ - I once heard someone on a bus say that this guy had gotten under her skin. And it struck me as a remarkable thought – that someone would affect you so deeply they’d always be a part of you.
+ - The world just feels different for those of us who come alive after dark. It’s more fragile and unreal, a replica of the one everyone else inhabits.
+ - Sometimes I think there’s a beast that lives inside me, in the cavern that’s where my heart should be, and every now and then it fills every last inch of my skin, so that I can’t help but do something inappropriate. Its breath is full of lies; it smells of spite.
+ - By definition, love made you better than good enough; it redefined perfection to include your traits, instead of excluding them.
+ - I have only known her for two years. But if you took every memory, every moment, if you stretched them end to end-they’d reach forever.
+ - Why are terms of endearment always food? Honey, cookie, sugar, pumpkin. Its not like caring about someone is enough to actually sustain you.
+ - What was the point of being able to forgive, when deep down, you both had to admit you’d never forget?
+ - No matter what Joe Hoffman and Wade Preston say, it’s not gender that makes a family; it’s love. You don’t need a mother and a father; you don’t necessarily even need two parents. You just need someone who’s got your back.
+ - It’s certainly my honor to be able to, hopefully, change the world a tiny bit, one mind at a time.
+ - I think there are two different oceans – the one that plays with you in the summer, and the one that gets so mad in the winter.
+ - But what if your obsession has nothing to do with drugs or thrills or money? What if what you want most in the world is to recapture the way life was a week, a month, a year ago-and you are willing to do whatever it takes?
+ - I didn’t want to see her because it would make me feel better. I came because without her, it’s hard to remember who I am...
+ - When I was little, the great mystery to me was not how babies were made, but why?
+ - Hunger, she often tells me, has nothing to do with the belly and everything to do with the mind. What Mary really runs isn’t a bakery, but a community.
+ - I started writing when I had three kids under the age of 4. I used to write every ten minutes I got to sit in front of a computer. Now, when I have more time, I function the same way: if it’s writing time, I write.
+ - If you live in each other’s pockets long enough, you’re related.
+ - Lies were only as strong as the suckers that believed them.
+ - When I was little I bragged about my firefighting father: my father would go to heaven, because if he went to hell he would put out all the fires.
+ - Being a good mother, it seemed to me, meant you ran the risk of losing your child.
+ - And the very act of living is a tide; at first it seems to make no difference at all, and then one day you look down and see how much pain has eroded.
+ - You know how sometimes, your life is so perfect you’re afraid for the next moment, because it couldn’t possibly be quite as good? That’s what it felt like.
+ - The only person who suffers, when you squirrel alway all that hate, is you.
+ - Safety is relative. You can be so close to shore that you can practically feel it under your feet, when you suddenly find yourself breaking apart on the rocks.
+ - Lately, I have been having nightmares, where I’m cut into so many pieces that there isn’t enough of me to be put back together.
+ - All any of us wanted, really, was to know that we counted. That someone else’s life would not have been as rich without us here.
+ - The person may have a scar, but it also means they have a story.
+ - And that was the greatest heartbreak of all- no matter how spectacular we want our children to be, no matter how perfect we pretend they are, they are bound to disappoint. As it turns out, kids are more like us than we think: damaged, through and through.
+ - In my family, we seem to have a tortured history of not saying what we ought to and not meaning what we do.
+ - I loved Alex so much that it was easier to let him hurt me than to watch him hurt himself.
+ - My brother believed in all sorts of mythical creatures: pixies, dragons, werewolves, honest men.
+ - Dante believed God punished suicides by trapping the person’s spirit in a tree trunk. On Judgment Day, they were the only sinners who didn’t get their souls back, because they tried to get rid of them once before.
+ - They’re fake bullets, so why do I feel like Im bleeding out?
+ - From that point of view, I realized that my hole was not miles deep after all. My father, in fact, could stand on the bottom and it only reached up to his chest. Darkness, you know, is relative.
+ - Imagine a world that seemed so much bigger than you. Imagine waking up one morning and finding a piece of yourself you didn’t even know existed.
+ - Maybe if you spend your life pretending you’re on a movie set, you don’t ever have to admit that the walls are made out of paper and the food is plastic and the words in your mouth aren’t really yours.
+ - I am not keeping my distance because it is uncomfortable for me, but because it is uncomfortable for them.
+ - You can fool yourself, you know. You’d think it’s impossible, but it turns out it’s the easiest thing of all.
+ - What could it be like to find out, in a matter of minutes, that the person you believed the sun rose and set on was not the person you’d thought?
+ - The process of growing up was nothing more than figuring out what doors hadn’t yet been slammed in your face.
+ - This is love, I think. A place where people who have been alone may lock together like hawks and spin in the air, dizzy with surprise at the connection. A place you go willingly, and with wonder.
+ - Houses are cellular walls; they keep our problems from bleeding into everyone else’s.
+ - Love is the most dangerous craving of all, if you ask me. It turns us into people we aren’t. It makes us feel like hell, and makes us walk on water. It ruins us for anything else.
+ - I don’t believe in writer’s block. Think about it – when you were blocked in college and had to write a paper, didn’t it always manage to fix itself the night before the paper was due? Writer’s block is having too much time on your hands.
+ - When she wanted to escape her life, she read books.
+ - You would wind up as a cat, I told her. They don’t need anyone else. I need you, she replied. Well, I said. Maybe I’ll come back as catnip.
+ - People ask all the time how I’m doing, but the truth is, they don’t really want to know.
+ - No one gets to start where they left off; it just doesn’t work that way.
+ - I may not have a degree, but I certainly got an education.
+ - I wondered what happened when you offered yourself to someone, and they opened you, only to discover you were not the gift they expected and they had to smile and nod and say thank you all the same.
+ - A heroin-thin boy with enough rings in his eyebrows to resemble a shower curtain rod...
+ - The music we listen to may not define who we are. But it’s a damn good start.
+ - Leave it to a man to mess things up.
+ - It felt like I’d been living underground, and for a moment, I’d been given this glimpse of the sky. Once you’ve seen that, how can you go back where you came from?
+ - Frankly, I wonder who Frank was, and why he has an adverb all to himself.
+ - The world is a place where the extraordinary can sit just beside the ordinary with the thinnest of boundaries; that even in environments inhospitable to man, all sort of entities might thrive.
+ - When someone loves you up one side and down the other like that, you make every effort to stick around.
+ - That’s what love is. It’s some power greater than you and me, that draws us to one special person.
+ - I closed my eyes and curled my fists around the things I knew for sure: That a scallop has thirty-five eyes, all blue. That a tuna will suffocate if it ever stops swimming. That I was loved. That this time, it was not me who broke.
+ - His hand is cool on my cheek as he paints a tear beneath my left eye, dark blue and swollen with sorrow.
+ - She had loved him. He knew this; he had never doubted it. But she had also asked him to kill her. If you love someone that much, you did not lay that sort of burden on him for the rest of his life.
+ - It’s disappointing to know that someone can see right through you.
+ - There is a place in you that you don’t even know exists, where you can simply stand back and watch without feeling any pain.
+ - Sometimes, all it takes to become human again is someone who can see you that way, no matter how you present on the surface.
+ - When heaven breaks, who fixes it?
+ - I am an activist. I have a really big pulpit with my fiction and I love knowing that I can make people think.
+ - Maybe you expected marriage to be perfect – I guess that’s where you and I are different. See, I thought it would be all about making mistakes, but doing it with someone who’s there to remind you what you learned along the way.
+ - I have come to believe that this life I’m wearing will never really fit.
+ - The cost of growth is always a small act of violence.
+ - I know what it’s like when the things you believe make you feel like you’re on the outside looking in.
+ - Your problem is that you have been too honest for too long. Once you start doing it, lying is simpler than breathing.
+ - Good people are good people; religion has nothing to do with it.
+ - Why do some memories bleed out of nowhere and others stay locked behind doors?
+ - Bleeding heart, he’d called her. Well. He should know. He’d been the first to rip it to pieces.
+ - I have several writer friends, but I don’t involve them in my work process. I’m more likely to talk about the business of publishing with them.
+ - Just because you keep something a secret doesn’t mean it never happened, no matter how much you want that to be true.
+ - I wonder if other mothers feel a tug at their insides, watching their children grow up into the people they themselves wanted so badly to be.
+ - No child really chooses his religion; it is just the luck of the draw which blanket of beliefs you are wrapped in.
+ - When you want something bad, you’ll tell yourself a thousand lies.
+ - How do you walk into someone’s life again after twenty-eight years? How do you pick up, when you were too young to know where you left off.
+ - Dark matter has a gravitation effect on other objects. You can’t see it, you can’t feel it, but you can watch something being pulled in its direction.
+ - We all want to know what went wrong, even when there isn’t really an answer to that question.
+ - Just because fate had thrown another obstacle in my way didn’t mean I had to give up my dreams.
+ - Life was all about being in a certain place, at a certain time.
+ - Energy can’t be destroyed, only converted into something different. So when a person dies, where does that energy go?
+ - Anger, though, is too fierce a flame to last for long, and when it burned out, I was left numb and wondering.
+ - They don’t like the thought of someone else making demands on the person whom they see as belonging entirely to them.
+ - People are always afraid of the unknown – and banding together against the Thing That Is Different From Us is a time-honoured tradition for rallying the masses.
+ - I knew her well enough to understand that when Delia pushed you away, it was her way of making sure she didn’t get shoved first.
+ - Like Connor, Alex protected me -and he was the only person I let close enough to do it. Like Connor, Alex could finish my sentences before I did. But unlike Connor, for whom I had ultimately come too late, I was just in time to take care of Alex.
+ - If she spoke, she would tell him the truth: she was not okay at all, but horribly empty, now that she knew what it was like to be filled.
+ - I could not remember my first kiss, but I could have told you Charlotte would be my last.
+ - Everytime I look at a zebra, I can’t figure out whether it’s black with white stripes or white with black stripes, and that frustrates me.
+ - There are some things we do because we convince ourselves it would be better for everyone involved. We tell ourselves that it’s the right thing to do, the altruistic thing to do. It’s far easier than telling ourselves the truth.
+ - I can see myself now, she said. And I can see what I want to be, ten years from now. But I don’t understand how I’m going to get from here to there.
+ - I don’t think anyone who falls in love has a choice. You’re just pulled to that person like true north, whether it’s good for you or bound to break your heart.
+ - See, as much as you want to hold on to the bitter sore memory that someone has left this world, you are still in it.
+ - I know what it’s like to start something and have it suddenly grow out of control. And you want to get rid of it, because it’s hurting you and everyone else around you, but every time you try to do that, it consumes you again.
+ - Jacob’s room is the place entropy goes to die.
+ - You can’t hate someone until you know what it might be like to love them.
+ - Do you know how, when you are on the verge of a breakdown, the world pounds in your ears; a rush of blood, of consequence? Do you now how it feels when the truth cuts your tongue to ribbons, and still you have to speak it?
+ - Listen, I would say, this is not how I thought our lives would go; and may be we cannot find our way out of this alley. But there is no one I’d rather be lost with.
+ - As it turns out, you can function while your heart is being torn to shreds.
+ - This was the reason there was music, he realized. There were some feelings that didn’t have words big enough to describe them.
+ - You may be real, but you’re still stuck in a book.
+ - Life was what happened when all the what-ifs didn’t.
+ - But sometimes, in order to win, you have to make sacrifices.
+ - They ask, how could this happen here? Well. How could it not happen here?
+ - When you’re hurting deeply, you go inward.
+ - It’s a fallacy that writers have to shut themselves up in their ivory towers to write. I have all these interruptions, three of which I gave birth to. If I was thrown for a loop every time I was distracted I could never get anything done.
+ - What you notice is the loneliness. Daniel started to isolate himself, because it hurt less than being pushed away.
+ - If you didn’t remember something happening, was it because it never had happened? Or because you wished it hadn’t?
+ - It’s just like nurses in a hospital tend to know more than the doctors most of the time; if you really want to get the answers to a question about court, you should spend more time buttering up the clerks than the judges.
+ - Although you hadn’t asked why, it had less to do with you not noticing than with you not wanting to hear the answer.
+ - Doctors put a wall up between themselves and their patients; nurses broke it down.
+ - I learn from my own daughter that you don’t have to be awake to cry.
+ - Tutoring a four year old to get into an exclusive preschool made as much sense as hiring a swim coach for a guppy.
+ - And he made love to her, offering his body in both tenderness and anger, unsure which was the best way to pass her bits of his soul so that she could patch her own with it.
+ - When you’re a parent you find yourself looking at the unknown that is your child, trying to find a piece of yourself inside her, because sometimes that is what it takes to claim.
+ - The reason I am still sitting at Josef’s kitchen table is the same reason traffic slows after a car wreck- you want to see the damage; you can’t let yourself pass without that mental snapshot. We are drawn to horror even as we recoil from it.
+ - Just because it’s fiction doesn’t mean it’s any less true.
+ - The truth was, history repeated itself on a daily basis; mistakes were made over and over. People were haunted by what they had done, and by what they hadn’t had time to do.
+ - Time is an optical illusion- never quite as soild or strong as we think it is.
+ - Since I was five, I’ve known that I was adopted, which is a politically correct term for being clueless about one’s own origins.
+ - I know that the first person I kissed won’t be nearly as important as the last person I kiss.
+ - This is when I realize that Anna has already left the table, and more importantly, that nobody noticed.
+ - Take it from me: love has all the lasting permanence of a rainbow- beautiful while it’s there, and just as likely to have disappeared by the time you blink.
+ - I think people do things all the time in the name of love that they shouldn’t be doing – such is the nature of us.
+ - Add love, and all the lines between right and wrong were bound to disappear.
+ - There’s no way to convince her that just because you put half. planet between you and someone else, you can’t drive that person out of your thoughts. Believe me. I’ve tried.
+ - Sometimes it made her want to put her fist through glass; other times, it made her cry a river.
+ - There was, really, nothing you could use as a blueprint for your life, except your past. There was no starting over. There was only picking up the pieces someone had left behind.
+ - I was one of the first authors to have an active website. I’m totally obsessed with technology. I’m always looking for ways to connect with my readers. I answer all my fan mail.
+ - I don’t know the first thing about holding together a family, especially one that resembles an heirloom vase, shattered but glued back together for its beauty, and no one mentions that you can see the cracks as plain as day.
+ - And I think, not for the first time, that what is immoral is not always wrong.
+ - Prayer is like water – something you can’t imagine has the strength or power to do any good, and yet give it time and it can change the lay of the land.
+ - The bigger the hole inside you, the more desperate you became to fill it.
+ - But there is a different between mending someone who’s broken and finding someone who makes you complete.
+ - Maybe honesty is overvalued. What’s truly priceless is picking out from a stream of falsehoods the ones you most need to hear.
+ - It is strange to think that we might have crossed paths, and still not have known what we were missing.
+ - Things that look impossible suddenly seem a lot better, once you get God on board.
+ - I’d much rather pretend I’m somewhere else, and any time I open the pages of a book, that happens.
+ - When your existence is hell, death must be heaven.
+ - You are only as invincible as your smallest weakness, and those are tiny indeed – the length of a sleeping baby’s eyelash, the span of a child’s hand. Life turns on a dime, and – it turns out – so does one’s conscience.
+ - As Lacy waited for her turn to speak on Peter’s behalf, she thought back to the first time she realized she could hate her own child.
+ - I told myself that if I didn’t care, this wouldn’t have hurt so much – surely that proved I was alive and human and all those touchy-feely things, for once and for all. But that wasn’t a relief, not when I felt like a skyscraper with dynamite on every floor.
+ - You need to learn to write on demand, and to get critiqued without flinching. When someone can rip your work to shreds without it feeling as though your arm has been hacked off, you’re ready to send your novel off to an agent.
+ - The damage was permanent; there would always be scars. But even the angriest scars faded over time until it was difficult to see them written on the skin at all, and the only thing that remained was the memory of how painful it had been.
+ - She had never been a pretty crier. She sobbed the way she did everything else – with passion and excess.
+ - So much of marriage was implicit and nonverbal. Had I gotten so complacent I’d forgotten to communicate?
+ - The Lord turned water into wine. All I’m suggesting is a trip to the grocery store.
+ - I would rather be in minority and be right, than in the majority and wrong.
+ - Life, it turns out, goes on. There is no cosmic rule that grants you immunity from the details just because you have come face-to-face with a catastrophe. The garbage can still overflow, the bills arrive in the mail, telemarketers, interrupt dinner.
+ - If you were drifting with a thousand other people, could you really still say you were lost?
+ - Maybe if God gives you a handicap, he makes sure you’ve got a few extra doses of humor to take the edge off.
+ - Or. I hate that word. It’s two letters long and stuffed to the gills with reasonable doubt.
+ - If you’ve lived through it, you already know there are no words that will ever come close to describing it, and if you didn’t – you will never understand.
+ - I wish I could tell him I understand: the higher you raise your hopes, the farther you have to fall.
+ - If you want to know someone’s story, they have to tell it aloud. But every time, the telling is a little but different. It’s new, even to me.
+ - Writing is total grunt work. A lot of people think it’s all about sitting and waiting for the muse. I don’t buy that. It’s a job. There are days when I really want to write, days when I don’t. Every day I sit down and write.
+ - My mother walks forward. She’s crying, but there’s a smile on her face. For God’s sake, is it any wonder I can’t ever understand what you people are feeling?
+ - The problem isn’t with rock lyrics, it’s with the fabric of this society itself.
+ - Well I talk a little about that, but I don’t admit that from the beginning I knew we were not meant to be together.
+ - Embarrassment isn’t a just cause of action.
+ - Just because you didn’t put a name to something did not mean it wasn’t there.
+ - You can be strapped to the most stable chair and still feel the world give way beneath you.
+ - The jury is supposed to be twelve peers, but technically that would mean every single person on the jury should have Asperger’s syndrome, because then they’d really understand me.
+ - I had absolutely no trauma in my childhood. If anyone ever assumed that my books were autobiographical, they’d be sorely disappointed, because none of these things happened to me.
+ - You can’t pay a landlord in dogma.
+ - You live and let live, eventually that becomes enough.
+
+500 quotes

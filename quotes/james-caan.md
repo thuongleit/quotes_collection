@@ -1,0 +1,30 @@
+ - Observe the masses and do the opposite.
+ - Success is the result of clear goal, unshakable confidence, proper planning, enthusiastic ACTION and consistent persistence.
+ - I lost my passion for work. No, that’s a negative statement. I just had a bigger passion for something else, for my son, and growing up with him.
+ - It is that, but really, it’s about how we don’t recognise the little things in life, or appreciate the little things in life like belonging. A sense of belonging is a big thing today.
+ - Never stop asking yourself whether you can do things better. Keep testing every aspect of your business to the nth degree, and challenge every one of your assumptions. The tougher you are on yourself now, the tougher your business will be out there in the real world.
+ - Obstacles are only opportunities to succeed or fail; how we handle them determines what will happen.
+ - There’s a big difference between wanting to work and having to work. And I had to learn that the hard way. Now money is very important to me, because I ain’t got it.
+ - Anyone of my generation who tells you he hasn’t ‘done Brando’ is lying.
+ - Sure, I want to be the best actor in the world. But my life is my family, my son, my friends. I don’t know how anyone can find fault with that.
+ - I never saw my dad cry. My son saw me cry. My dad never told me he loved me, and consequently I told Scott I loved him every other minute. The point is, I’ll make less mistakes than my dad, my sons hopefully will make less mistakes than me, and their sons will make less mistakes than their dads.
+ - People say, ‘Gee, you do a lot of mafia movies.’ I think I’ve done two, out of 60.
+ - I’ve never been difficult to anybody or with anybody on a picture. Especially when you’re in that nice status of hierarchy of actors and actresses who get to approve directors. Because once you make that choice, it’s my belief that the director’s boss.
+ - Sometimes it seems like this is the choice – either kick ass or kiss ass.
+ - There’s nothing more boring than actors talking about acting.
+ - Saving a letter from an old friend doesn’t exist anymore. Everything is texted or emailed.
+ - What I do quite honestly and seriously and not in any way being humble is not as important as what the garbage collector does. People make actors important.
+ - The most talented people are always the nicest.
+ - I’m here instead of having shoulder surgery. But I’m not sure which is more painful.
+ - I don’t think silicone makes a girl good or bad.
+ - You have to be very careful when you let someone win.
+ - Someone’s always saying, “It’s not whether you win or lose,” but if you feel that way, you’re as good as dead.
+ - I’ve been lucky. The critics never went out of their way to single me out for doing bad work.
+ - Unless I love something or hate it, I don’t want to deal with it.
+ - There are a lot of guys in Hollywood who clap you on the back just a little too hard.
+ - I never rode a bull – I’m not that stupid.
+ - People are always backing up when I’m just going to shake their hands.
+ - I won’t mention names, but in my career, the most talented people invariably are the easiest and nicest to get along with.
+ - Actors have bodyguards and entourages not because anybody wants to hurt them – who would want to hurt an actor? – but because they want to get recognized. God forbid someone doesn’t recognize them.
+
+28 quotes

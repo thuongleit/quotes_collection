@@ -1,0 +1,61 @@
+ - The tallest building in the world is now in Dubai, the biggest factory in the world is in China, the largest oil refinery is in India, the largest investment fund in the world is in Abu Dhabi, the largest Ferris wheel in the world is in Singapore.
+ - Thanks to the Communist Party of China, we now know the path to poverty alleviation is Capitalism.
+ - The tallest building in the world is now in Dubai...
+ - Iran is a country of 80 million people, educated and dynamic. It sits astride a crucial part of the world. It cannot be sanctioned and pressed down forever. It is the last great civilization to sit outside the global order.
+ - I’d be kidding if I said that I predicted the financial collapse.
+ - The Berlin Wall wasn’t the only barrier to fall after the collapse of the Soviet Union and the end of the Cold War. Traditional barriers to the flow of money, trade, people and ideas also fell.
+ - Legitimacy is the elixir of political power.
+ - Alaska itself is an unusual state.
+ - I think it is quite untrue that it is standard journalistic practice to name the interviewer when quoting from an interview.
+ - If you listen to the political discourse in America today, you would think that all our problems have been caused by the Mexicans of the Chinese or the Muslims. The reality is that we have caused our own problems. Whatever has happened has been caused by isolating ourselves or blaming others.
+ - The people who watch Fox are not going to watch CNN. You know, lets be honest.
+ - You know, when the cost of capital goes down, when credit becomes cheap, people start taking greater and greater risks.
+ - No successful political transition can take place without leaders and movements that demand and press for freedom.
+ - It’s really difficult to have your voice heard and feared when you both speak softly and carry a twig.
+ - I am an American, not by accident of birth but by choice. I voted with my feet and became an American because I love this country and think it is exceptional.
+ - Things happening around the world are affecting you and me.
+ - If we didn’t have the rest of the world growing, the United States economy would be in much worse shape than it is today.
+ - It all looks American because America, the country that invented mass capitalism and consumerism, got there first. the impact of mass capitalism is now universal.
+ - Culture follows power.
+ - Intelligence is called the world’s second oldest profession for a reason. Everyone does it.
+ - I think that liberals need to grow up.
+ - I enjoy writing but I much prefer the experience of having written.
+ - Americans have so far put up with inequality because they felt they could change their status. They didn’t mind others being rich, as long as they had a path to move up as well. The American Dream is all about social mobility in a sense – the idea that anyone can make it.
+ - In the 1990s, we were certain that Saddam Hussein had a nuclear arsenal. In fact, his factories could barely make soap.
+ - The situation in Syria is quite different from Libya.
+ - Whenever someone says the word community, I want to reach for an oxygen mask.
+ - Generations from now, when historians write about these times, they might note that, in the early decades of the twenty-first century, the United States succeeded in its great and historic mission – it globalized the world. But along the way, they might write, it forgot to globalize itself.
+ - It hasn’t been easy to find American citizens who are willing to pick fruit in 110 degree weather.
+ - Democracy is also a single ideology, and, like all such templates, it has its limits. what works in a legislature might not work in a corporation.
+ - America’s growth historically has been fueled mostly by investment, education, productivity, innovation and immigration. The one thing that doesn’t seem to have anything to do with America’s growth rate is a brutal work schedule.
+ - America washes its dirty linen in public. When scandals such as this one hit, they do sully America’s image in the world. But what usually also gets broadcast around the world is the vivid reality that the United States forces accountability and punishes wrongdoing, even at the highest levels.
+ - Street protests in Saudi Arabia might warm our hearts, but they could easily lead to $250 a barrel oil and a global recession.
+ - I grew up in this world where everything seemed possible.
+ - But as the arms-control scholar Thomas Schelling once noted, two things are very expensive in international life: promises when they succeed and threats when they fail.
+ - American influence is not what it used to be.
+ - I should not be judged by a standard that’s not applied to everyone else.
+ - There is very strong historical data that suggest the way societies grow is by making large, long-term investments.
+ - The great drama of Russian history has been between its state and society. Put simply, Russia has always had too much state and not enough society.
+ - But now, we are becoming suspicious of the very things we have long celebrated – free markets, trade, immigration, and technological change. And all this is happening when the tide is going our way. Just as the world is opening up, America is closing down.
+ - It’s not possible for two countries to be the leading dominant political power at the same time.
+ - The markets are much more interested in America’s long-term trajectory than they are in feeling that there is an acute short-term crisis.
+ - There is a huge crisis of employment in America, in the Western world in general.
+ - The American consumer, even today, the weight of the American consumer in the global economy is China plus India doubled. So, it’s tough to replace that.
+ - I’m largely in favor of financial reform.
+ - What we see today is an American economy that has boomed because of policies and developments of the 1950s and ’60s: the interstate-highway system, massive funding for science and technology, a public-education system that was the envy of the world and generous immigration policies.
+ - I very much want to be in the business of creating content, of doing stories all over the world rather than figuring out what the business model is for ‘Newsweek’ on the iPad, although that’s very important work as well.
+ - Conservatives used to believe in confronting hard truths, not succumbing to comforting fairy tales. Some still do.
+ - I don’t want to paint a picture of total gloom and doom.
+ - CNN is getting smarter, and you can feel it in the stories, you can feel it in the depth with which they’re covered, the kinds of people in terms of guests who are brought on air, the way in which issues are discussed.
+ - One of the things that has been very difficult in Libya is the sense of uncertainty – the sense that they haven’t actually finished the revolution, that there was still a great deal of uncertainty. That uncertainty has made Libya harder for business in terms of oil and other things as well.
+ - Some have said that the clash between Catholicism and Protestantism illustrates the old maxim that religious freedom is the product of two equally pernicious fanaticisms, each cancelling the other out.
+ - Having your fiscal house in order and having a more manageable macro-economic future is going to be very useful in creating growth.
+ - If a senator calls me up and asks me what should we do in Iraq, I’m happy to talk to him.
+ - In a very weak economy, when you say ‘cut government spending,’ what you mean is you’re laying off school teachers and you’re de-funding various programs that put money into the economy. This means you have more unemployed people that then draw unemployment benefits and don’t pay taxes.
+ - Strip away the usual hot air, and bin Laden’s audiotape is the sign of a seriously weakened man.
+ - It is absolutely clear that government plays a key role, as a catalyst, in promoting long-run growth.
+ - In a world awash in debt, power shifts to creditors.
+ - The twentieth century was marked by two broad trends: the regulation of capitalism and the deregulation of democracy. Both experiments overreached.
+ - There is no way to turn off this global economy, nor should one try. Every previous expansion of global capitalism has led to greater prosperity across the world.
+
+59 quotes

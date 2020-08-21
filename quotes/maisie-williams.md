@@ -1,0 +1,31 @@
+ - People don’t always do what they say they’re going to do.
+ - I get a lot of fan mail and stuff, and usually it’s for me to sign stuff.
+ - It’s never black and white on ‘Game of Thrones.’ If you think it’s black and white, you’re watching it wrong.
+ - When I’m dancing, I don’t know where the confidence comes from, but I just pretend I’m someone else, I think, and then I go out and dance.
+ - People go down bad paths and they make bad decisions, but it’s always justified in their head.
+ - I watch vlogs on YouTube. I watch Jenna Marbles a lot – I think she’s really funny – and a lady called Daily Grace.
+ - When I was in primary school, my best friend was a boy and we always goofed around, climbed trees, got holes in my trousers and muddied all my tops and things like that; a complete nightmare for the washing, but great fun.
+ - They’re always like, ‘That’s not what happened in the books, so the show’s really bad now.’ But really, they just feel insecure because they’re used to knowing what’s coming next.
+ - I once had someone say to me in an interview, ‘You are more ugly on the screen than in real life.’
+ - I’m sorry; I ruin people’s interviews because I just talk about rubbish.
+ - You know sometimes when you’re in a really bad mood and you’re not sure why? That’s how I get sometimes.
+ - I stress out so much about the red carpet and interviews and pictures, and, you know, not getting my skirt tucked in my knickers.
+ - People are like, ‘What’s Game of Thrones about?’ I’m like, ‘It’s in the title.’ For real, this is a game for the Iron Throne. No matter what character you are, you’re sucked into that at some point.
+ - If you’ve got cool nails, you wake up and you’re like, ‘Oh, I’m happy now.’
+ - I’m a little bit awkward on Twitter; like, I’m never really sure what to say.
+ - I think people think I’m a lot younger than I am because of how I look on screen.
+ - There’s some people that obviously abuse social networking or whatever, but I think it’s a fantastic idea. I’ve never had any bad encounters with any of it.
+ - People really want to see what I’m up to, and that’s crazy. It’s a really lovely feeling. It’s kind of scary, but a good scary. It’s a lovely position to be in.
+ - I’ve never really done acting before, ’cause dancing was my first love. And then, I sort of fell into it from a talent competition and never really looked back.
+ - I do ballet and pointe work. I also do tap, commercial jazz and technical jazz, freestyle street dancing.
+ - I have this really bad habit of doing things on the Internet and forgetting that the whole world is going to see it.
+ - Basically, me and Ed Sheeran are kind of Twitter friends – well, I say that. He probably just thinks I’m weird.
+ - I’m so excited to be working on Doctor Who as it’s such a big and important part of British Culture. I can’t wait to meet the cast and crew and start filming, especially as we’ll be shooting not too far from my home town.
+ - Not a lot of people have jobs that they’re really comfortable with, but I’m one of those people. I feel like I’m the luckiest girl on earth, and that’s such a lovely feeling.
+ - When I come home, I’m just Maisie, and everywhere I go, I’m just Maisie!
+ - It’s not like I’ve ever been the popular pretty girl at school or anything. I was always such a weirdo.
+ - I have a Facebook page for me and my friends and a Twitter page.
+ - I use Twitter a lot. That’s how I communicate with international fans. Everyone’s always really, really nice.
+ - I struggle to come up to people and say what I think.
+
+29 quotes

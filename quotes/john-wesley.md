@@ -1,0 +1,150 @@
+ - Do all the good you can, by all the means you can, in all the ways you can, in all the places you can, at all the times you can, to all the people you can, as long as ever you can.
+ - Do no harm. Do good. Stay in love with God.
+ - Cleanliness is indeed next to godliness.
+ - The church changes the world not by making converts but by making disciples.
+ - God does nothing but by prayer, and everything with it.
+ - I look upon all the world as my parish.
+ - I felt my heart strangely warmed. I felt I did trust in Christ, Christ alone for salvation.
+ - We should be rigorous in judging ourselves and gracious in judging others.
+ - Nothing short of God can satisfy your soul.
+ - Humility and patience are the surest proofs of the increase of love.
+ - What one generation tolerates, the next generation will embrace.
+ - Not, how much of my money will I give to God, but, how much of God’s money will I keep for myself?
+ - Give me one hundred preachers who fear nothing but sin and desire nothing but God, and I care not whether they be clergymen or laymen, they alone will shake the gates of Hell and set up the kingdom of Heaven upon Earth.
+ - Earn all you can, give all you can, save all you can.
+ - Let your words be the genuine picture of your heart.
+ - Reading Christians are growing Christians. When Christians cease to read, they cease to grow.
+ - I want the whole Christ for my Savior, the whole Bible for my book, the whole Church for my fellowship, and the whole world for my mission field.
+ - My fear is not that our great movement, known as the Methodists, will eventually cease to exist or one day die from the earth. My fear is that our people will become content to live without the fire, the power, the excitement, the supernatural element that makes us great.
+ - God grant that I may never live to be useless!
+ - Bring me a worm that can comprehend a man, and then I will show you a man that can comprehend the Triune God.
+ - Untold millions are still untold.
+ - Before I can preach love, mercy, and grace, I must preach sin, Law, and judgment. Preach 90% Law and 10% grace.
+ - I have never known more than fifteen minutes of anxiety or fear. Whenever I feel fearful emotions overtaking me, I just close my eyes and thank God that He is still on the throne reigning over everything and I take comfort in His control over the affairs of my life.
+ - Singing is as much the language of holy joy as praying is of holy desire.
+ - Prayer is where the action is.
+ - You have one business on earth – to save souls.
+ - Always remember the essence of Christian holiness is simplicity and purity: one design, one desire: entire devotion to God.
+ - My one aim in life is to secure personal holiness, for without being holy myself I cannot promote real holiness in others.
+ - When you set yourself on fire, people love to come and see you burn.
+ - People who wish to be offended will always find some occasion for taking offense.
+ - If we cannot think alike, at least we may love alike; and can anything but love beget love?
+ - The neglect of prayer is a grand hindrance to holiness.
+ - Catch on fire and people will come for miles to see you burn.
+ - God’s command to “pray without ceasing” is founded on the necessity we have of His grace to preserve the life of God in the soul, which can no more subsist one moment without it, than the body can without air.
+ - Bear up the hands that hang down, by faith and prayer; support the tottering knees. Have you any days of fasting and prayer? Storm the throne of grace and persevere therein, and mercy will come down.
+ - The Church recruited people who had been starched and ironed before they were washed.
+ - The first priority of my life is to be holy, and the second goal of my life is to be a scholar.
+ - If doing a good act in public will excite others to do more good, then ‘Let your light shine to all.’ Miss no opportunity to do good.
+ - Give me one hundred men who love only God with all their heart and hate only sin with all their heart and we will shake the gates of hell and bring in the kingdom of God in one generation.
+ - It is no marvel that the devil does not love field preaching! Neither do I; I love a commodious room, a soft cushion, a handsome pulpit. But where is my zeal if I do not trample all these underfoot in order to save one more soul?
+ - Sing lustily and with a good courage. Beware of singing as if you were half dead, or half asleep; but lift up your voice with strength.
+ - Preach faith till you have it; and then, because you have it, you will preach faith.
+ - Though we cannot think alike, may we not love alike? May we not be of one heart, though we are not of one opinion? Without all doubt, we may. Herein all the children of God may unite, notwithstanding these smaller differences.
+ - Let me do all the good I can, to all the people I can, as often as I can, for I shall not pass this way again.
+ - One of the principal rules of religion is, to lose no occasion of serving God. And, since he is invisible to our eyes, we are to serve him in our neighbour; which he receives as if done to himself in person, standing visibly before us.
+ - All worldly joys are less than that one joy of doing kindnesses.
+ - Suffer all, and conquer all.
+ - If I had 300 men who feared nothing but God, hated nothing but sin, and were determined to know nothing among men but Jesus Christ and Him crucified, I would set the world on fire.
+ - Read the most useful books, and that regularly and constantly.
+ - Justifying faith implies, not only a divine evidence or conviction that God was in Christ, reconciling the world unto Himself, but a sure trust and confidence that Christ died for my sins, that He loved me and gave Himself for me.
+ - The best of it is, God is with us.
+ - Proceed with much prayer, and your way will be made plain.
+ - I continue to dream and pray about a revival of holiness in our day that moves forth in mission and creates authentic community in which each person can be unleashed through the empowerment of the Spirit to fulfill God’s creational intentions.
+ - Whosoever will reign with Christ in heaven, must have Christ reigning in him on earth.
+ - I want to know one thing: The way to Heaven. How to land safe on that happy shore.
+ - I look on all the world as my parish; thus far I mean, that, in whatever part of it I am, I judge it meet, right, and my bounden duty, to declare unto all that are willing to hear, the glad tidings of salvation.
+ - Vice does not lose its character by becoming fashionable.
+ - Wine, one of the noblest cordials in nature.
+ - The longer I live, the larger allowances I make for human infirmities. I exact more from myself and less from others.
+ - It is good to renew ourselves, from time to time, by closely examining the state of our souls, as if we had never done it before; for nothing tends more to the full assurance of faith, than to keep ourselves by this means in humility, and the exercise of all good works.
+ - Give me 100 men that hate nothing but sin, and love Jesus Christ, and we’ll shake England for God.
+ - I judge all things only by the price they shall gain in eternity.
+ - My ground is the Bible. Yea, I am a Bible-bigot. I follow it in all things, both great and small.
+ - There is no love of God without patience, and no patience without lowliness and sweetness of spirit.
+ - One of the greatest evidences of God’s love to those that love him is, to send them afflictions, with grace to bear them.
+ - Anything that cools my love for Christ is the world.
+ - A sour religion is the devil’s religion.
+ - Money never stays with me. It would burn me if it did. I throw it out of my hands as soon as possible, lest it should find its way into my heart.
+ - I see the necessity of preaching a full and present salvation from all sin.
+ - When a man becomes a Christian, he becomes industrious, trustworthy and prosperous. Now, if that man, when he gets all he can and saves all he can, does not give all he can, I have more hope for Judas Iscariot than for that man!
+ - Unless God has raised you up for this very thing, you will be worn out by the opposition of men and devils. But if God be for you, who can be against you? Are all of them together stronger than God? O be not weary of well doing!
+ - The readiest way to escape from our sufferings is, to be willing they should endure as long as God pleases.
+ - For as long as love takes up the whole heart, what room is there for sin therein?
+ - Preach 90% Law and 10% grace.
+ - Wherever riches have increased, the essence of religion has decreased in the same proportion.
+ - Get all you can without hunting your soul, your body, or your neighbor. Save all you can, cutting off every needless expense. Give all you can. Be glad to give, and ready to distribute; laying up in store for yourselves a good foundation against the time to come, that you may attain eternal life.
+ - My talent is to speak my mind. God won’t object if you bury that talent.
+ - Employ whatever God has entrusted you with, in doing good, all possible good, in every possible kind and degree...
+ - Making an open stand against all the ungodliness and unrighteousness which overspreads our land as a flood is one of the noblest ways of confessing Christ in the face of His enemies.
+ - It cannot be that the people should grow in grace unless they give themselves to reading. A reading people will always be a knowing people.
+ - God would first, by this inspiration of his Spirit, have wrought in our hearts that holy love without which none can enter into glory.
+ - I am never in a hurry, because I never undertake more work than I can go through with perfect calmness of spirit.
+ - All outward means of grace, if separate from the spirit of God, cannot profit, or conduce, in any degree, either to the knowledge or love of God. All outward things, unless he work in them and by them, are in vain.
+ - I felt I did trust in Christ, Christ alone for salvation, and an assurance was given me that he had taken away my sins, even mine, and saved me from the law of sin and death.
+ - Though I am always in haste, I am never in a hurry.
+ - Fierce and poisonous animals were created for terrifying man, in order that he might be made aware of the final judgment in hell.
+ - This earthly body is slow and heavy in all its motions, listless and soon tired with action. But our heavenly bodies shall be as fire; as active and as nimble as our thoughts are.
+ - Prayer continues in the desire of the heart, though the understanding be employed on outward things.
+ - He who governed the world before I was born shall take care of it likewise when I am dead. My part is to improve the present moment.
+ - Once in seven years I burn all my sermons; for it is a shame, if I cannot write better sermons now than I did seven years ago.
+ - Faith is the divine evidence whereby the spiritual man discerneth God, and the things of God.
+ - They say I killed six or seven men for snoring. Well, it ain’t true. I only killed one man for snoring.
+ - We should constantly use the most common, little, easy words which our language affords.
+ - Let it be observed, that slovenliness is no part of religion; that neither this, nor any text of Scripture, condemns neatness of apparel. Certainly this is a duty, not a sin. Cleanliness is indeed next to godliness.
+ - I learned more about Christianity from my mother than from all the theologians in England.
+ - Giving up witchcraft is, in effect, giving up the Bible.
+ - Nay, if there be any mistakes in the Bible, there may as well be a thousand. If there be one falsehood in that book, it did not come from the God of truth.
+ - The wicked will gnaw their tongues for anguish and pain; they will curse God and look upwards. There the dogs of hell, pride, malice, revenge, rage, horror, despair, continually devout them.
+ - If we suffer persecution and affliction in a right manner, we attain a larger measure of conformity to Christ, by a due improvement of one of these occasions, than we could have done merely by imitating his mercy, in abundance of good works.
+ - The bible knows nothing of solitary religion.
+ - All that a Christian does, even in eating and sleeping, is prayer, when it is done in simplicity, according to the order of God, without either adding to or diminishing from it by his own choice.
+ - At four in the afternoon, I submitted to be more vile and proclaimed in the highways the glad tidings of salvation.
+ - In souls filled with love, the desire to please God is continual prayer.
+ - As to matters of dress, I would recommend one never to be first in the fashion nor the last out of it.
+ - Passion and prejudice govern the world; only under the name of reason.
+ - Riches naturally beget pride, love of the world, and every temper that is destructive of Christianity.
+ - Thou hidden love of God, whose height, Whose depth unfathomed no man knows, I see from far thy beauteous light, Only I sigh for thy repose.
+ - The man who never fasts is no more in the way to heaven than the man who never prays.
+ - I desired as many as could to join together in fasting and prayer, that God would restore the spirit of love and of a sound mind to the poor deluded rebels in America.
+ - My mother was the source from which I derived the guiding principles of my life.
+ - He’s got everything – good vision, his speed, his shot, all those intangibles that you need to be a superstar in this league. He has it all.
+ - The best helps to growth in grace are the ill usage, the affronts, and the losses which befall us. We should receive them with all thankfulness, as preferable to all others, were it only on this account, that our will has no part therein.
+ - As long as you feel your own weakness and helplessness, you will find help from above.
+ - Whatever the natural cause, sin is the true cause of all earthquakes.
+ - Any ‘Christians’ who take for themselves any more than the plain necessaries of life, live in an open habitual denial of the Lord. They have gained riches and hell-fire.
+ - The glories and the beauties of form, color and sound unite in the Grand Canyon – forms unrivaled even by the mountains, colors that vie with sunsets, and sounds that span the diapason from tempest to tinkling raindrop; from cataract to bubbling fountain.
+ - God is so great that He communicates greatness to the least thing that is done for His service.
+ - When I was young I was sure of everything; in a few years, having been mistaken a thousand times, I was not half so sure of most things as I was before; at present, I am hardly sure of anything but what God has revealed to me.
+ - When Poetry thus keeps its place as the handmaiden of piety, it shall attain not a poor perishable wreath, but a crown that fadeth not away.
+ - The bottom of the soul may be in repose, even while we are in many outward troubles; just as the bottom of the sea is calm, while the surface is strongly agitated.
+ - But as sickness and diseases have created the necessity of medicines and physicians, so the disorders of our rational nature have introduced the necessity of education and tutors.
+ - In returning I read a very different book, published by an honest Quaker, on that execrable sum of all villanies, commonly called the Slave-trade.
+ - As the more holy we are upon earth the more happy we must be.
+ - To slay the sinner is then the first use of the Law, to destroy the life and strength wherein he trusts and convince him that he is dead while he lives; not only under the sentence of death, but actually dead to God, void of all spiritual life, dead in trespasses and sins.
+ - I have so much to do that I spend several hours in prayer before I am able to do it.
+ - I cannot help leaving my books behind me whenever God calls me hence; but in every other respect, my own hands will be my executors.
+ - In all cases, the Church is to be judged by the Scripture, not the Scripture by the Church.
+ - I want to know one thing, the way to heaven; how to land safe on that happy shore. God Himself has condescended to teach the way; for this end He came from heaven. He hath written it down in a book. Give me that book! At any price give me the Book of God!
+ - Beware, lastly, of imagining you shall obtain the end without using the means conducive to it.
+ - I’d had the quintessential liberal arts experience, and I came out of college not having a clue of what to do.
+ - You have nothing to do but to save souls; therefore spend and be spent in this work.
+ - A constant attention to the work which God entrusts us with is a mark of solid piety.
+ - Every one, though born of God in an instant, yet undoubtedly grows by slow degrees.
+ - No circumstances can make it necessary for a man to burst in sunder all the ties of humanity.
+ - I believe that He was made man, joining the human nature with the divine in one person; being conceived by the singular operation of the Holy Ghost, and born of the blessed Virgin Mary, who, as well after as before she brought Him forth, continued a pure and unspotted virgin.
+ - I believe in my heart that faith in Jesus Christ can and will lead us beyond an exclusive concern for the well-being of other human beings to the broader concern for the well-being of the birds in our backyards, the fish in our rivers, and every living creature on the face of the earth.
+ - Beware you be not swallowed up in books! An ounce of love is worth a pound of knowledge.
+ - The greater the share the people have in government, the less liberty, civil or religious, does a nation enjoy.
+ - It is the work of God alone to justify, to sanctify, and to glorify.
+ - Think not the bigotry of another is any excuse for your own.
+ - And now run the race which is set before thee, in the royal way of universal love.
+ - Even in the greatest afflictions, we ought to testify to God, that, in receiving them from his hand, we feel pleasure in the midst of the pain, from being afflicted by Him who loves us, and whom we love.
+ - The wearing of costly array is directly opposite to being adorned with good works. Nothing can be more evident than this; for the more you lay out on your own apparel, the less you have left to clothe the naked, to feed the hungry, to lodge the stranger, to relieve those that are sick and in prison.
+ - We are always open to instruction, willing to be wiser every day than we were before, and to change whatever we can change for the better.
+ - A meek spirit gives no trouble willingly to any: a quiet spirit bears all wrongs without being troubled.
+ - Whether we think of, or speak to, God, whether we act or suffer for him, all is prayer, when we have no other object than his love, and the desire of pleasing him.
+ - God does nothing except in response to believing prayer.
+ - Lord, is it not Thy word, if any man lack wisdom, let him ask of God? Thou givest liberally, and upbraidest not. Thou hast said, if any be willing to do Thy will, he shall know. I am willing to do, let me know Thy will.
+
+148 quotes

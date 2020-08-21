@@ -1,0 +1,22 @@
+ - Time and space are only forms of thought.
+ - There are brown eyes in the world, after all, as well as blue, and one pair of brown that meant heaven to me as the blue had never done.
+ - There is no bond like having read and liked the same books.
+ - The chestnut’s proud, and the lilac’s pretty, The poplar’s gentle and tall, But the plane tree’s kind to the poor dull city – I love him best of all.
+ - A red, red rose, all wet with dew, With leaves of green by red shot through.
+ - Also she had the power of silent sympathy. That sounds rather dull, I know, but it’s not so dull as it sounds. It just means that a person is able to know that you are unhappy, and to love you extra on that account, without bothering you by telling you all the time how sorry she is for you.
+ - There is nothing more luxurious than eating while you read – unless it be reading while you eat. Amabel did both: they are not the same thing, as you will see if you think the matter over.
+ - I’ll plant and water, sow and weed, Till not an inch of earth shows brown, And take a vow of each small seed To grow to greenness and renown: And then some day you’ll pass my way, See gold and crimson, bell and star, And catch my garden’s soul, and say: “How sweet these cottage gardens are!”
+ - Then suddenly Jack was a changed boy. Something wonderful had happened to him, and it had made him different. It sometimes happened to people that they see or hear something quite wonderful and then they are never altogether the same again.
+ - There is a curtain, thin as gossamer, clear as glass, strong as iron, that hangs forever between the world of magic and the world that seems to us to be real.
+ - I think everyone in the world is friends if you can only get them to see you don’t want to be un-friends.
+ - It is wonderful how quickly you get used to things, even the most astonishing.
+ - It is not, Dear, because I am alone, For I am lonelier when the rest are near, But that my place against your heart has grown Too dear to dream of when you are not here.
+ - It is curious that nearly all the great fortunes are made by turning beautiful things into ugly ones. Making beauty out of ugliness is very ill-paid work.
+ - Life will give you what you ask of here if only you ask long enough and plainly enough.
+ - Ladylike is the beastliest word there is, I think. If a girl isn’t a lady, it isn’t worth while to be only like one, she’d better let it alone and be a free and happy bounder.
+ - It is a curious thing that people only ask if you are enjoying yourself when you aren’t.
+ - I never read prefaces, and it is not much good writing things just for people to skip. I wonder other authors have never thought of this.
+ - It is all very wonderful and mysterious, as all life is apt to be if you go a little below the crust, and are not content just to read newspapers and go by the Tube Railway, and buy your clothes ready-made, and think nothing can be true unless it is uninteresting.
+ - Time is, as you are probably aware, merely a convenient fiction. There is no such thing as time.
+
+20 quotes

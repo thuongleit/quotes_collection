@@ -1,0 +1,21 @@
+ - I believe that every person has uniqueness – something that nobody else has.
+ - In order to get somewhere in life, you need to have a vision. The vision brings you to the table. Without a vision, you just do what everybody else does and you are just there.
+ - If everyone would look for that uniqueness then we would have a very colorful world.
+ - The music is a personal expression, like art. It is something that you like doing that comes from within, and is an expression that comes from God. That is why artists are beautiful and why people who copy are not really artistic.
+ - If you are in a band like my brother, Rudolf, who is in the Scorpions, then you have a kind of umbrella and you cover each other. You have five people to discuss things with and you are all in the same boat, and therefore make much wiser choices.
+ - If you copy then it is not self-expression.
+ - I view life as a learning experience. It is not so much all about music; it is about what happens when you are doing the music.
+ - Phil has always been a fighter. He was getting in fights all the time. I told him that if he ever hit me then I would leave the band. He wanted to find out if I was telling him the truth. He hit me so I left and that is how UFO split up.
+ - It would be a dream come true if I could just go from studio to studio and play solos.
+ - I love to be creative.
+ - I have always known that it comes from deep within myself. I always knew what sound I wanted, and how I wanted to play. I knew everything, it just had to be developed.
+ - Depression is something that makes you lose your sight.
+ - I prefer playing in the studio because you have much more control over things.
+ - If you don’t get on the field and play then you will be missing out.
+ - Even when I was very depressed, I could hold on to something. It seems that I have always had that streak of gold that I could hold on to.
+ - The other thing that has made playing live for me more enjoyable is the audience. I never knew I had such heartfelt, loving fans.
+ - I practiced for at least two hours every day for twenty years, before then I practiced maybe four to five hours a day, and before then 14 hours a day. It was all I had ever done.
+ - I have made stage adjustments which allow me to hear myself better onstage so that has made playing live much more enjoyable.
+ - When you are live you never know what is going to happen.
+
+19 quotes

@@ -1,0 +1,35 @@
+ - Don’t become a mere recorder of facts, but try to penetrate the mystery of their origin.
+ - Learn, compare, collect the facts!
+ - Learn the ABC of science before you try to ascend to its summit.
+ - The Sun-Paul must consider only one thing: what is the relation of this or that external reaction of the animal to the phenomena of the external world?
+ - Never think that you already know all. However highly you are appraised, always have the courage to say to yourself-I am ignorant.
+ - While you are experimenting, do not remain content with the surface of things.
+ - Do not become archivists of facts. Try to penetrate to the secret of their occurrence, persistently search for the laws which govern them.
+ - It is not accidental that all phenomena of human life are dominated by the search for daily bread – the oldest link connecting all living things, man included, with the surrounding nature.
+ - Finally, as the digestive canal is a complex system, a series of separate chemical laboratories, I cut the connections between them in order to investigate the course of phenomena in each particular laboratory; thus I resolved the digestive canal into several separate parts.
+ - It is clear to all that the animal organism is a highly complex system consisting of an almost infinite series of parts connected both with one another and, as a total complex, with the surrounding world, with which it is in a state of equilibrium.
+ - It is still open to question whether psychology is a natural science, or whether it can be regarded as a science at all.
+ - School yourself to demureness and patience. Learn to inure yourself to drudgery in science. Learn, compare, collect the facts.
+ - Science demands from a man all his life. If you had two lives that would not be enough for you. Be passionate in your work and in your searching.
+ - Gradualness, gradualness, and gradualness. From the very beginning of your work, school yourself to severe gradualness in the accumulation of knowledge.
+ - Perfect as the wing of a bird may be, it will never enable the bird to fly if unsupported by the air. Facts are the air of science. Without them a man of science can never rise.
+ - The gastric laboratory uses its protein ferment under an acid reaction.
+ - Appetite, craving for food, is a constant and powerful stimulator of the gastric glands.
+ - But man has still another powerful resource: natural science with its strictly objective methods.
+ - Thanks to our present surgical methods in physiology we can demonstrate at any time almost all phenomena of digestion without the loss of even a single drop of blood, without a single scream from the animal undergoing the experiment.
+ - Perfect as the wing of a bird may be, it will never enable the bird to fly.
+ - When the dog is repeatedly teased with the sight of objects inducing salivary secretion from a distance, the reaction of the salivary glands grows weaker and weaker and finally drops to zero.
+ - It goes without saying that the desire to accomplish the task with more confidence, to avoid wasting time and labour, and to spare our experimental animals as much as possible, made us strictly observe all the precautions taken by surgeons in respect to their patients.
+ - From the described experiment it is clear that the mere act of eating, the food even not reaching the stomach, determines the stimulation of the gastric glands.
+ - Physiology has, at last, gained control over the nerves which stimulate the gastric glands and the pancreas.
+ - Men are apt to be much more influenced by words than by the actual facts of the surrounding reality.
+ - It has long been known for sure that the sight of tasty food makes a hungry man’s mouth water; also lack of appetite has always been regarded as an undesirable phenomenon, from which one might conclude that appetite is essentially linked with the process of digestion.
+ - As was to be expected, the discovery of the nervous apparatus of the salivary glands immediately impelled physiologists to seek a similar apparatus in other glands lying deeper in the digestive canal.
+ - Our success was mainly due to the fact that we stimulated the nerves of animals that easily stood on their own feet and were not subjected to any painful stimulus either during or immediately before stimulation of their nerves.
+ - Possibilities are like the wings of birds; they allow man to soar and to climb to the heavens. And facts are like the atmosphere against which those wings must beat, and without which the soaring bird will surely plummet back to earth.
+ - As we have seen, bread, and especially dry bread, evokes secretion of considerably larger quantities of saliva than meat.
+ - In the case of the stomach, however, the nerves of the glandular cells were always severed when constructing an artificially isolated pouch and this, naturally, affected the normal work of the stomach.
+ - The physiologist who succeeds in penetrating deeper and deeper into the digestive canal becomes convinced that it consists of a number of chemical laboratories equipped with various mechanical devices.
+ - Edible substances evoke the secretion of thick, concentrated saliva. Why? The answer, obviously, is that this enables the mass of food to pass smoothly through the tube leading from the mouth into the stomach.
+
+33 quotes

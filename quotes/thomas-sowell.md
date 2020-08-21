@@ -1,0 +1,440 @@
+ - It is hard to imagine a more stupid or more dangerous way of making decisions than by putting those decisions in the hands of people who pay no price for being wrong.
+ - It takes considerable knowledge just to realize the extent of your own ignorance.
+ - When you want to help people, you tell them the truth. When you want to help yourself, you tell them what they want to hear.
+ - Nobody is equal to anybody. Even the same man is not equal to himself on different days.
+ - There are no solutions; there are only trade-offs.
+ - Social Engineering – The art of replacing what works with what sounds good.
+ - Racism is not dead, but it is on life support – kept alive by politicians, race hustlers and people who get a sense of superiority by denouncing others as ‘racists’
+ - The first lesson of economics is scarcity: there is never enough of anything to fully satisfy all those who want it. The first lesson of politics is to disregard the first lesson of economics.
+ - When people get used to preferential treatment, equal treatment seems like discrimination.
+ - People who enjoy meetings should not be in charge of anything.
+ - I have never understood why it is “greed” to want to keep the money you have earned but not greed to want to take somebody else’s money.
+ - Politics is the art of making your selfish desires seem like the national interest.
+ - Ideas are everywhere, but knowledge is rare.
+ - One of the common failings among honorable people is a failure to appreciate how thoroughly dishonorable some other people can be, and how dangerous it is to trust them.
+ - It’s amazing how much panic one honest man can spread among a multitude of hypocrites.
+ - The same set of statistics can produce opposite conclusions at different levels of aggregation.
+ - If you are not prepared to use force to defend civilization, then be prepared to accept barbarism.
+ - Deception is one of the quickest ways to gain little things and lose big things.
+ - Of all ignorance, the ignorance of the educated is the most dangerous. Not only are educated people likely to have more influence, they are the last people to suspect that they don’t know what they are talking about when they go outside their narrow fields.
+ - Each new generation born is in effect an invasion of civilization by little barbarians, who must be civilized before it is too late.
+ - What exactly is your ‘fair share’ of what ‘someone else’ has worked for?
+ - Economics is a study of cause-and-effect relationships in an economy. It’s purpose is to discern the consequences of various ways of allocating resources which have alternative uses. It has nothing to say about philosophy or values, anymore than it has to say about music or literature.
+ - Talkers are usually more articulate than doers, since talk is their specialty.
+ - One of the consequences of such notions as ‘entitlements’ is that people who have contributed nothing to society feel that society owes them something, apparently just for being nice enough to grace us with their presence.
+ - People who pride themselves on their “complexity” and deride others for being “simplistic” should realize that the truth is often not very complicated. What gets complex is evading the truth.
+ - It doesn’t matter how smart you are unless you stop and think.
+ - In this era of political correctness, some people seem unaware that being squeamish about words can mean being blind to realities.
+ - Sometimes it seems as if there are more solutions than problems. On closer scrutiny, it turns out that many of today’s problems are a result of yesterday’s solutions.
+ - The word ‘racism’ is like ketchup. It can be put on practically anything – and demanding evidence makes you a ‘racist.’
+ - The least productive people are usually the ones who are most in favor of holding meetings.
+ - Too much of what is called ‘education’ is little more than an expensive isolation from reality.
+ - In the long run, the greatest weapon of mass destruction is stupidity.
+ - The welfare state is not really about the welfare of the masses. It is about the egos of the elites.
+ - Intellect is not wisdom.
+ - Liberalism is totalitarianism with a human face.
+ - The next time some academics tell you how important diversity is, ask how many Republicans there are in their sociology department.
+ - The law of diminishing returns means that even the most beneficial prinicple will become harmful if carried far enough.
+ - What ‘multiculturalism’ boils down to is that you can praise any culture in the world except Western culture – and you cannot blame any culture in the world except Western culture.
+ - ANYONE who studies the history of ideas should notice how much more often people on the political left, more so than others, denigrate and demonize those who disagree with them – instead of answering their arguments.
+ - It is so easy to be wrong-and to persist in being wrong-when the costs of being wrong are paid by others.
+ - You will never understand bureaucracies until you understand that for bureaucrats procedure is everything and outcomes are nothing.
+ - The freedom of America is the freedom to live your own life and take your own chances.
+ - In liberal logic, if life is unfair then the answer is to turn more tax money over to politicians, to spend in ways that will increase their chances of getting reelected.
+ - Politeness and consideration for others is like investing pennies and getting dollars back.
+ - People who have time on their hands will inevitably waste the time of people who have work to do.
+ - What is history but the story of how politicians have squandered the blood and treasure of the human race?
+ - The most fundamental fact about the ideas of the political left is that they do not work. Therefore we should not be surprised to find the left concentrated in institutions where ideas do not have to work in order to survive.
+ - The most basic question is not what is best, but who shall decide what is best.
+ - One of the most important reasons for studying history is that virtually every stupid idea that is in vogue today has been tried before and proved disastrous before, time and again.
+ - Ours may become the first civilization destroyed, not by the power of our enemies, but by the ignorance of our teachers and the dangerous nonsense they are teaching our children. In an age of artificial intelligence, they are creating artificial stupidity.
+ - People who talk incessantly about “change” are often dogmatically set in their ways. They want to change other people.
+ - It is amazing how many of the intelligentsia call it “greed” to want to keep what you have earned, but not greed to want to take away what somebody else has earned, and let politicians use it to buy votes.
+ - Women can say anything they want to men, or blacks to whites, with impunity. But strong words in the other direction can bring down on students the wrath of the campus thought police – as well as punishments that can extend to suspension or expulsion.
+ - The idealism of the left is a very selfish idealism. In their war against ‘the rich’ and big business, they don’t care how much collateral damage there is to workers who end up end up unemployed.
+ - Neither the depth of despondency nor the height of euphoria tells you how long either will last.
+ - The welfare state is the oldest con game in the world. First you take people’s money away quietly, and then you give some of it back to them flamboyantly.
+ - The strongest argument for socialism is that it sounds good. The strongest argument against socialism is that it doesn’t work. But those who live by words will always have a soft spot in their hearts for socialism because it sounds so good.
+ - Some of the most vocal critics of the way things are being done are people who have done nothing themselves, and whose only contributions to society are their complaints and moral exhibitionism.
+ - Life has many good things. The problem is that most of these good things can be gotten only by sacrificing other good things. We all recognize this in our daily lives. It is only in politics that this simple, common sense fact is routinely ignored.
+ - Competition does a much more effective job than government at protecting consumers.
+ - Eternal vigilance is only part of the price of freedom. The maturity to live with imperfections is another crucial part of the price of freedom.
+ - One of the many disservices done to young people by our schools and colleges is giving them the puffed up notion that they are in a position to pass sweeping judgments on a world that they have barely begun to experience.
+ - Intellectuals may like to think of themselves as people who “speak truth to power” but too often they are people who speak lies to gain power.
+ - If sanity ever returns to our society and we stop taking pretentious elites seriously, one of the signs will be that the public will force the removal of those ugly pieces of twisted metal that are called ‘art’ in front of government buildings.
+ - Think about it: What the busybodies are saying is that third parties like themselves – who are paying nothing to anybody – should be determining how much somebody else should be paying those who work for them.
+ - Too many people – some of them judges – seem to think that freedom of speech means freedom from consequences for what you have said. If you believe that, try insulting your boss when you go to work tomorrow. Better yet, try insulting your spouse before going to bed tonight.
+ - What the political left, even in democratic countries, share is the notion that knowledgeable and virtuous people like themselves have both a right and a duty to use the power of government to impose their superior knowledge and virtue on others.
+ - Relevance is not something you can predict. It is something you discover after the fact.
+ - Doing the right thing is fun. If nothing else, it surprises people.
+ - There is no bigger waste of time than doing 90% of what is necessary.
+ - The grand delusion of contemporary liberals is that they have both the right and the ability to move their fellow creatures around like blocks of wood – and that the end results will be no different than if people had voluntarily chosen the same action.
+ - If we spend our time with regrets over yesterday, and worries over what might happen tomorrow, we have no today in which to live.
+ - Brainy folks were also present in Lyndon Johnson’s administration, especially in the Pentagon, where Secretary of Defense Robert McNamara’s brilliant ‘whiz kids’ tried to micro-manage the Vietnam war, with disastrous results.
+ - A friend from India told me that a countryman of his said: “I want to go to America. I want to see a country where poor people are fat.”
+ - The big problem in the long process of dumbing down the schools is that you can reach a point of no return. How are parents who never received a decent education themselves to recognize that their children are not getting a decent education?
+ - Capitalism knows only one color: that color is green; all else is necessarily subservient to it, hence, race, gender and ethnicity cannot be considered within it.
+ - The biggest myth about labor unions is that unions are for the workers. Unions are for unions, just as corporations are for corporations and politicians are for politicians.
+ - The difference between a policy and a crusade is that a policy is judged by its results, while a crusade is judged by how good it makes its crusaders feel.
+ - Sometimes it seems as if I have spent the first half of my life refusing to let white people define me and the second half refusing to let black people define me.
+ - The only thing better than “hands-on” experience is hands-off experience – enough experience to understand that some things will turn out better if left alone.
+ - Before the Iraq war I was quite disturbed by some of the neoconservatives, who were saying things like, “What is the point of being a superpower if you can’t do such-and-such, take on these responsibilities?” The point of being a superpower is that people will leave you alone.
+ - A moral monopoly is the antithesis of a marketplace of ideas.
+ - American prosperity and American free enterprise are both highly unusual in the world, and we should not overlook the possibility that the two are connected.
+ - Not since the days of slavery have there been so many people who feel entitled to what other people have produced as there are in the modern welfare state, whether in Western Europe or on this side of the Atlantic.
+ - People who refuse to accept unpleasant truths have no right to complain about politicians who lie to them. What other kind of candidates would such people elect?
+ - The people made worse off by slavery were those who were enslaved. Their descendants would have been worse off today if born in Africa instead of America. Put differently, the terrible fate of their ancestors benefitted them.
+ - If we become a people who are willing to give up our money and our freedom in exchange for rhetoric and promises, then nothing can save us.
+ - If a word means everything, then in means nothing.
+ - The desire of businessmen for profits is what drives prices down unless forcibly prevented from engaging in price competition, usually by governmental activity.
+ - Although the big word on the left is ‘compassion,’ the big agenda on the left is dependency.
+ - Lunches don’t get free just because you don’t see the prices on the menu. And economists don’t get popular by reminding people of that.
+ - Do countries with strong gun control laws have lower murder rates? Only if you cherry-pick the data.
+ - Tariffs that save jobs in the steel industry mean higher steel prices, which in turn means fewer sales of American steel products around the world and losses of far more jobs than are saved.
+ - It is hard to read a newspaper or watch a television newscast without encountering someone who has come up with a new ‘solution’ to society’s ‘problems.’
+ - In politics, the truth is strictly optional and that also seems to be true in parts of the media.
+ - When a highly successful leader retires after a long career, it is very unlikely that his successor will be of comparable caliber. Anyone of similar ability and drive would have gone somewhere else, instead of waiting in the wings for years for a chance to show his own leadership.
+ - Few of the great tragedies of history were created by the village idiot, and many by the village genius.
+ - People who think that they are being exploited should ask themselves whether they would be missed if they left, or whether people would say: Good riddance?
+ - Subsidies are a shell game, not a net addition to national wealth.
+ - Even if the government spends itself into bankruptcy and the economy still does not recover, Keynesians can always say that it would have worked if only the government had spent more.
+ - Someone once said that many bad policies are just good policies that have been carried too far. For example, we have taken tolerance to such an extreme that we tolerate the immigration into our country of millions of intolerant people who hate millions of Americans who are already here.
+ - The Constitution cannot protect us unless we protect the Constitution.
+ - The fact that so many successful politicians are such shameless liars is not only a reflection on them, it is also a reflection on us. When the people want the impossible, only liars can satisfy.
+ - The great escape of our times is escape from personal responsibility for the consequences of one’s own behavior.
+ - No one will really understand politics until they understand that politicians are not trying to solve our problems. They are trying to solve their own problems – of which getting elected and re-elected are number one and number two. Whatever is number three is far behind.
+ - Civil rights used to be about treating everyone the same. But today some people are so used to special treatment that equal treatment is considered to be discrimination.
+ - Someone once defined a social problem as a situation in which the real world differs from the theories of intellectuals. To the intelligentsia, it follows, as the night follows the day, that it is the real world that is wrong and which needs to change.
+ - To say that being non-judgmental is better than being judgmental is itself a judgment, and therefore a violation of principle.
+ - Envy is always referred to by its political alias, ’social justice.
+ - One of the painful signs of years of dumbed-down education is how many people are unable to make a coherent argument. They can vent their emotions, question other people’s motives, make bold assertions, repeat slogans – anything except reason.
+ - For every expert there is an equal and opposite expert, but for every fact there is not necessarily an equal and opposite fact.
+ - Activism is a way for useless people to feel important, even if the consequences of their activism are counterproductive for those they claim to be helping and damaging to the fabric of society as a whole.
+ - Everyone may be called “comrade,” but some comrades have the power of life and death over other comrades.
+ - It is bad enough that so many people believe things without any evidence. What is worse is that some people have no conception of evidence and regard facts as just someone else’s opinion.
+ - You do not need proof for what people want to believe.
+ - We enjoy freedom and the rule of law on which it depends, not because we deserve it, but because others before us put their lives on the line to defend it.
+ - Asking liberals where wages and prices come from is like asking six-year-olds where babies come from.
+ - Liberals seem to assume that, if you don’t believe in their particular political solutions, then you don’t really care about the people that they claim to want to help.
+ - If you have always believed that everyone should play by the same rules and be judged by the same standards, that would have gotten you labeled a radical 60 years ago, a liberal 30 years ago and a racist today.
+ - The reason so many problems do not get solved in Washington is that solving those problems is not the No. 1 priority: Re-election is.
+ - As an economist, whenever I hear the word shortage I wait for the other shoe to drop. That other shoe is usually price control.
+ - Rhetoric is no substitute for reality.
+ - There is no question that liberals do an impressive job of expressing concern for blacks. But do the intentions expressed in their words match the actual consequences of their deeds?
+ - Don’t you get tired of seeing so many “non-conformists” with the same non-conformist look?
+ - Freedom is unlikely to be lost all at once and openly. It is far more likely to be eroded away, bit by bit, amid glittering promises and expressions of noble ideals.
+ - After the risky mortgage-lending practices fostered by government intervention led to massive defaults and foreclosures that caused financial institutions to collapse or be bailed out, Congressman Frank changed his tune completely.
+ - If you can’t beat them or join them, then do something weird. No matter how much the passengers eat, the weight of the plane stays the same. Do you sometimes feel that you are necessary but not sufficient?
+ - A passionate commitment to social justice is no substitute for knowing what the hell you’re talking about.
+ - It is amazing how many people act as if the right to free speech includes the right to be free of criticism for what you say – which means that other people should not have the same right to free speech that they claim for themselves.
+ - Reality is not optional.
+ - The Massachusetts Institute of Technology accepts blacks in the top ten percent of students, but at MIT this puts them in the bottom ten percent of the class.
+ - The problem isn’t that Johnny can’t read. The problem isn’t even that Johnny can’t think. The problem is that Johnny doesn’t know what thinking is; he confuses it with feeling.
+ - An e-mail from a reader says that liberals like to take the moral high ground, even though their own moral relativism means that there is no moral high ground.
+ - Freedom has cost too much blood and agony to be relinquished at the cheap price of rhetoric.
+ - Organizational progress parallels that in science and technology, permitting ultimate simplicity through intermediate complexity.
+ - The real problem, both in discussions of mass shootings and in discussions of gun control, is that too many people are too committed to a vision to allow mere facts to interfere with their beliefs, and the sense of superiority that those beliefs give them.
+ - The more people who are dependent on government handouts, the more votes the left can depend on for an ever-expanding welfare state.
+ - There are 3 questions that would destroy most of the arguments of the Left. The first is – compared to what? The second is – at what cost? And the third is – what hard evidence do you have?
+ - When I see the worsening degeneracy in our politicians, our media, our educators, and our intelligentsia, I can’t help wondering if the day may yet come when the only thing that can save this country is a military coup.
+ - What is called ‘capitalism’ might more accurately be called consumerism. It is the consumers who call the tune, and those capitalists who want to remain capitalists have to learn to dance to it.
+ - If you don’t control the borders, it doesn’t matter what immigration laws you have.
+ - Too often the past has been twisted to fit the visions and agendas of the present.
+ - One of the sad signs of our times is that we have demonized those who produce, subsidized those who refuse to produce, and canonized those who complain.
+ - I wish that some way could be found to add up all the staggering costs imposed on millions of ordinary people, just so a relative handful of self-righteous environmental cultists can go around feeling puffed up with themselves.
+ - Someone once said that taxes are the price we pay for civilization. That may have been true when he said it, but today taxes are mostly the price we pay so that politicians can play Santa Claus and get reelected.
+ - What does ‘economic justice’ mean, except that you want something that someone else produced, without having to produce anything yourself in return?
+ - You cannot take any people, of any color, and exempt them from the requirements of civilization – including work, behavioral standards, personal responsibility, and all the other basic things that the clever intelligentsia disdain – without ruinous consequences to them and to society at large.
+ - Study after study, not only here but in other countries, show that the most affordable housing is where there has been the least government interference with the market – contrary to rhetoric.
+ - Balanced budget requirements seem more likely to produce accounting ingenuity than genuinely balanced budgets.
+ - Why is history important? Without history, many people have no idea how many of today’s half-baked ideas have been tried, again and again – and have repeatedly led to disaster. Most of these ideas are not new. They are just being recycled with re-treaded rhetoric.
+ - There is nothing so bad that politics cannot make it worse.
+ - If you have been voting for politicians who promise to give you goodies at someone else’s expense, then you have no right to complain when they take your money and give it to someone else, including themselves.
+ - In medicine, it has long been recognized that even a quack remedy that is harmless in itself can be fatal when it substitutes for an effective medication or treatment. The time is overdue for that same recognition to apply to politics.
+ - Social values in general are incrementally variable: neither safety, diversity, rational articulation, nor morality is categorically a good thing to have more of, without limits. All are subject to diminishing returns, and ultimately negative returns.
+ - What all these lofty and vague phrases boil down to is that the court can impose things that the voters don’t want and the Constitution does not require, but which are in vogue in circles to which the court responds.
+ - Virtually no idea is too ridiculous to be accepted, even by very intelligent and highly educated people, if it provides a way for them to feel special and important. Some confuse that feeling with idealism.
+ - One of the big differences between Democrats and Republicans is that we at least know what the Democrats stand for, whether we agree with it or not. But, for Republicans, we have to guess.
+ - Hyperinflation can take virtually your entire life’s savings, without the government having to bother raising the official tax rate at all.
+ - Young people in general – and young women in particular – need to understand that they cannot retrieve in their forties the opportunities they threw away in their twenties.
+ - How long do politicians have to keep on promising heaven and delivering hell before people catch on and stop getting swept away by rhetoric?
+ - Like so many before him who have ruined countries around the world, Obama has a greatly inflated idea of his own capabilities and the capabilities off what can be accomplished by rhetoric or even by political power.
+ - Politics is largely the process of taking credit and putting the blame on others – regardless of what the facts may be.
+ - The political left has been weak on protecting society from criminals for more than two centuries.
+ - Stupid people can cause problems, but it usually takes brilliant people to create a real catastrophe.
+ - Whenever people talk glibly of a need to achieve educational “excellence,” I think of what an improvement it would be if our public schools could just achieve mediocrity.
+ - One of the most fashionable notions of our times is that social problems like poverty and oppression breed wars. Most wars, however, are started by well-fed people with the time on their hands to dream up half-baked ideologies or grandiose ambitions, and to nurse real or imagined grievances.
+ - All statements are true, if you are free to redefine their terms.
+ - Many bad policies are simply good policies taken too far.
+ - We’re not a socialist country, because the socialists believe in government ownership in the means of production, but the fascists believe that the government should have private ownership and the politicians should tell people how to run the businesses. So that’s the route we seem to be going.
+ - Nothing as mundane as mere evidence can be allowed to threaten a vision so deeply satisfying.
+ - The biggest difference between people is between those who are trying to do the right thing – whether or not they succeed – and those for whom the only question is how much they can get away with.
+ - What makes it possible for politicians to do so many things that are economically counterproductive is that neither the public nor the media know enough of the basics to understand what’s wrong with what they’re saying.
+ - Like a baseball game, wars are not over till they are over. Wars don’t run on a clock like football. No previous generation was so hopelessly unrealistic that this had to be explained to them.
+ - Any statistics can be extrapolated to the point where they show disaster.
+ - The great allure of government programs in general for many people is that these programs allow decisions to be made without having to worry about the constraints of prices, which confront people at every turn in a free market.
+ - Tolerating imperfections is the price of freedom.
+ - Government central planning means over-riding other people’s plans.
+ - No society ever thrived because it had a large and growing class of parasites living off those who produce.
+ - It is amazing how many people think that they can answer an argument by attributing bad motives to those who disagree with them. Using this kind of reasoning, you can believe or not believe anything about anything, without having to bother to deal with facts or logic.
+ - The welfare state has always been judged by its good intentions, rather than its bad results.
+ - Love is a four-letter word, but you don’t hear in nearly as often as you hear some other four-letter words. It may be a sign of our times that everyone talks openly about sex, but we seem to be embarrassed to talk about love.
+ - What ‘eminent domain’ laws mean in practice is that politicians have a right to seize your property and turn it over to someone else, in order to gain campaign contributions and win votes.
+ - Capitalism is not an ‘ism.’ It is closer to being the opposite of an ‘ism,’ because it is simply the freedom of ordinary people to make whatever economic transactions they can mutually agree to.
+ - An independent judiciary does not mean judges independent of the Constitution from which they derive their power or independent of the laws that they are sworn to uphold.
+ - What is especially disturbing about the political left is that they seem to have no sense of the tragedy of the human condition. Instead, they tend to see the problems of the world as due to other people not being as wise or as noble as themselves.
+ - I’m so old that I can remember when most of the people promoting race hate were white.
+ - If you want to get each individual’s honest opinion, you don’t want that opinion to be influenced by others who are present, much less allow a group to coordinate what they are going to say.
+ - Those who want to “spread the wealth” almost invariably seek to concentrate the power. It happens too often, and in too many different countries around the world, to be a coincidence. Which is more dangerous, inequalities of wealth or concentrations of power?
+ - When your response to everything that is wrong with the world is to say, ‘there ought to be a law,’ you are saying that you hold freedom very cheap.
+ - Lofty talk about ‘social justice’ or ‘fairness’ boils down to greatly expanded powers for politicians, since those pretty words have no concrete definition. They are a blank check for creating disparities in power that dwarf disparities in income – and are far more dangerous.
+ - Right after liberal Democrats, the most dangerous politicians are country club Republicans.
+ - The vision of the left, full of envy and resentment, takes its worst toll on those at the bottom – whether black or white – who find in that paranoid vision an excuse for counterproductive and ultimately self-destructive attitudes and behavior.
+ - Many Americans who supported the initial thrust of civil rights, as represented by the Brown v. Board of Education decision and the Civil Rights Act of 1964, later felt betrayed as the original concept of equal individual opportunity evolved toward the concept of equal group results.
+ - Stopping illegal immigration would mean that wages would have to rise to a level where Americans would want the jobs currently taken by illegal aliens.
+ - You cannot subsidize irresponsibility and expect people to become more responsible.
+ - Senator John McCain could never convince me to vote for him. Only Hillary Clinton or Barack Obama can cause me to vote for McCain.
+ - Central planning, judicial activism, and the nanny state all presume vastly more knowledge than any elite have ever possessed.
+ - History is the memory of a nation.
+ - If politics were like sports, we could ask Israel to trade us Benjamin Netanyahu for Barack Obama. Of course, we would have to throw in trillions of dollars to get Israel to agree to the deal, but it would be money well spent.
+ - Since this is an era when many people are concerned about ‘fairness’ and ‘social justice,’ what is your ‘fair share’ of what someone else has worked for?
+ - People who believe in evolution in biology often believe in creationism in government. In other words, they believe that the universe and all the creatures in it could have evolved spontaneously, but that the economy is too complicated to operate without being directed by politicians.
+ - Morality, like other inputs into the social process, follows the law of diminishing returns- meaning ultimately, negative returns. People can be too moral.
+ - There are only two ways of telling the complete truth – anonymously and posthumously.
+ - The curse of the intelligentsia is their ability to rationalize and re-define. Ordinary people, lacking that gift, are forced to face reality.
+ - Bailing out people who made ill-advised mortgages makes no more sense that bailing out people who lost their life savings in Las Vegas casinos.
+ - Some of the biggest cases of mistaken identity are among intellectuals who have trouble remembering that they are not God.
+ - The key fallacy of so called gun control laws is that such laws do not in fact control guns. They simply disarm law abiding citizens, while people bent on violence find firearms readily available.
+ - The demands of unbounded individualism need to be weighed in the light of inherent social constraints which can only change their form but cannot be eliminated without eliminating civilization.
+ - When you start off by telling those who disagree with you that they are not merely in error but in sin, how much of a dialogue do you expect?
+ - People used to say, “Ignorance is no excuse.” Today, ignorance is no problem. After all, you have “a right to your own opinion” – and self-esteem to boot.
+ - You may have the right to live anyway you like, but you don’t have a right to have other people like it. Respect it or pay for it.
+ - All things are the same except for the differences, and different except for the similarities.
+ - Most people who read “The Communist Manifesto” probably have no idea that it was written by a couple of young men who had never worked a day in their lives, and who nevertheless spoke boldly in the name of “the workers”. Thomas Sowell .
+ - The promotion of “self-esteem” in our schools has been so successful that people feel free to spout off about all sorts of things – and see no reason why their opinions should not be taken as seriously as the views of people who actually know what they are talking about.
+ - Mistakes can be corrected by those who pay attention to facts but dogmatism will not be corrected by those who are wedded to a vision.
+ - The whole idea of equal justice under law is completely incompatible with the idea of judges deciding cases according to “empathy”.
+ - There is usually only a limited amount of damage that can be done by dull or stupid people. For creating a truly monumental disaster, you need people with high IQs.
+ - Education is not merely neglected in many of our schools today, but is replaced to a great extent by ideological indoctrination.
+ - The old adage about giving a man a fish versus teaching him how to fish has been updated by a reader: Give a man a fish and he will ask for tartar sauce and French fries! Moreover, some politician who wants his vote will declare all these things to be among his ‘basic rights.’
+ - The sad and tragic fact is that the civil rights movement, despite its honorable and courageous past, has over the years degenerated into a demagogic hustle, promoting the mindless racism they once fought against.
+ - People who identify themselves as conservatives donate money to charity more often than people who identify themselves as liberals. They donate more money and a higher percentage of their incomes.
+ - Barack Obama’s vision of America is one in which a President of the United States can fire the head of General Motors, tell banks how to bank, control the medical system and take charge of all sorts of other activities for which neither he nor other politicians have any expertise or experience.
+ - If you start from a belief that the most knowledgeable person on earth does not have even one percent of the total knowledge on earth, that shoots down social engineering, economic central planning, judicial activism and innumerable other ambitious notions favored by the political left.
+ - What then is the intellectual advantage of civilization over primitive savagery? It is not necessarily that each civilized man has more knowledge but that he requires far less.
+ - Even if her children or grandchildren are willing to spend their own money to keep grandma alive, when bureaucrats control the necessary technology or medication they may decide that it is not for sale.
+ - Wal-Mart has done more for poor people then any ten liberals, at least nine of whom are almost guaranteed to hate Wal-Mart.
+ - Compassion is the use of public funds to buy votes.
+ - Because many of us make mistakes that can have bad consequences, some intellectuals believe that it is the role of government to intervene and make some of our decisions for us. From what galaxy government is going to hire creatures who do not make mistakes is a question they leave unanswered.
+ - Just as a poetic discussion of the weather is not meteorology, so an issuance of moral pronouncements or political creeds about the economy is not economics. Economics is a study of cause-and-effect relationships in an economy.
+ - There are few things more dishonorable than misleading the young.
+ - The murder of a dozen innocent people is unquestionably a human tragedy. But that is no excuse for reacting blindly by preventing hundreds of thousands of other people from defending themselves against meeting the same fate.
+ - Life does not ask what we want. It presents us with options.
+ - If facts, logic, and scientific procedures are all just arbitrarily “socially constructed” notions, then all that is left is consensus – more specifically peer consensus, the kind of consensus that matters to adolescents or to many among the intelligentsia.
+ - I am so old that I can remember when liberals were liberal – instead of being intolerant of anything and anybody that is not politically correct.
+ - It is truly a triumph of rhetoric over reality when people can believe that going into politics is ‘public service,’ but that producing food, shelter, transportation, or medical care is not.
+ - Apparently the only people who are supposed to be responsible are the taxpayers – and they are increasingly made responsible for other people’s irresponsibility.
+ - You need to be empathetic in your own personal life and we help our neighbors and our friends out who are struggling in our neighborhoods. But we don’t make bad decisions based on empathy.
+ - All the political angst and moral melodrama about getting ‘the rich’ to pay ‘their fair share’ is part of a big charade. This is not about economics, it is about politics.
+ - If the battle for civilization comes down to the wimps versus the barbarians, the barbarians are going to win.
+ - Wishful thinking is not idealism. It is self-indulgence at best and self-exaltation at worst. In either case, it is usually at the expense of others. In other words, it is the opposite of idealism.
+ - In various countries and times, leaders of groups that lagged behind, economically and educationally, have taught their followers to blame all their problems on other people – and to hate those other people.
+ - Without a moral framework, there is nothing left but immediate self-indulgence by some and the path of least resistance by others. Neither can sustain a free society.
+ - Groups that rose from poverty to prosperity seldom did so by having their own racial or ethnic leaders to follow.
+ - There are few talents so richly rewarded – especially in politics and the media – as the ability to portray parasites as victims, and portray demands for preferential treatment as struggles for equal rights.
+ - Unbounded morality ultimately becomes counterproductive even in terms of the same moral principles being sought. The law of diminishing returns applies to morality.
+ - There is no talent so ardently supported, nor generously rewarded, as the ability to convince parasites they are victims.
+ - Credentialed ignorance is still ignorance.
+ - If politicians were serious about day care for children, instead of just sloganizing about it, nothing they could do would improve the quality of child care more than by lifting the heavy burden of taxation that forces so many families to have both parents working.
+ - Much of the social history of the Western world, over the past three decades, has been a history of replacing what worked with what sounded good.
+ - Policies are judged by their consequences but crusades are judged by how good they make the crusaders feel.
+ - Extrapolations are the last refuge of a groundless argument.
+ - Contrary to the vision of the left, it was the free market which produced affordable housing – before government intervention made housing unaffordable.
+ - Both free speech rights and property rights belong legally to individuals, but their real function is social, to benefit vast numbers of people who do not themselves exercise these rights.
+ - How you treat the helpless is the real test of morality. Lots of people are flunking that test big time.
+ - If increased government spending with borrowed or newly created money is a ‘stimulus,’ then the Weimar Republic should have been stimulated to unprecedented prosperity, instead of runaway inflation and widespread economic desperation that ultimately brought Adolf Hitler to power.
+ - Despite a voluminous and often fervent literature on “income distribution,” the cold fact is that most income is not distributed: It is earned.
+ - Liberals are very broadminded: they are always willing to give careful consideration to both sides of the same side.
+ - As long as human beings are imperfect, there will always be arguments for extending the power of government to deal with these imperfections. The only logical stopping place is totalitarianism – unless we realize that tolerating imperfections is the price of freedom.
+ - The more adaptability exists for a given kind of decision, the less risky it is to make plans for the future, and therefore the more likely it is that more people will make more plans in such areas.
+ - All that makes earlier times seem simpler is our ignorance of their complexities.
+ - One of the most ridiculous defenses of foreign aid is that it is a very small part of our national income. If the average American set fire to a five-dollar bill, it would be an even smaller percentage of his annual income. But everyone would consider him foolish for doing it.
+ - No matter how disastrously some policy has turned out, anyone who criticizes it can expect to hear: ‘But what would you replace it with?’ When you put out a fire, what do you replace it with?
+ - You can only confiscate the wealth that exists at a given moment. You cannot confiscate future wealth – and that future wealth is less likely to be produced when people see that it is going to be confiscated.
+ - The way to get people’s votes is to say that all their problems are caused by other people, and that you will stop those other people from giving them trouble. But if you really want to help, then you can tell them the truth and risk losing their votes.
+ - People who decry the fact that businesses are in business “just to make money” seldom understand the implications of what they are saying. You make money by doing what other people want, not what you want.
+ - You may scoff at the Tooth Fairy if you like. But the Tooth Fairy’s approach has gotten more politicians elected than any economist’s analysis.
+ - Whether Barack Obama is simply incompetent as president or has some hidden agenda to undermine this country, at home and abroad, he has nearly everything he needs to ruin America, including a fool for a vice president.
+ - When all is said and done, the Constitution of the United States is a set of words on a piece of paper. The only way that the Constitution can protect us is if we protect the Constitution.
+ - To say the Constitution is living is to say that it’s dead.
+ - All too often, we do smart things only after exhausting every conceivable dumb thing we could have done.
+ - You have to have a sense of humor if you follow politics. Otherwise, the sheer fraudulence of it all will get you down.
+ - Some people say that taxes are the price we pay for civilization. But the runaway taxes of our time are the price we pay for being gullible.
+ - Our fate is matched by the total freedom we have to react to our fate. It is as if we were dealt a hand of card. Once we have them, we are free to play them as we choose.
+ - The inefficiency of political control of an economy has been demonstrated more often, in more places, and under more varied conditions, than almost anything outside the realm of pure science.
+ - An inmate in a Florida prison wrote to agree with me on the availability of guns, saying that a ‘criminal can and will get a stolen gun faster than you can get your car washed.’ He also points out that many criminals prefer guns gotten illegally, since they will be harder to trace.
+ - Any politician who can be elected only by turning Americans against other Americans is too dangerous to be elected.
+ - Socialism in general has a record of failure so blatant that only an intellectual could ignore or evade it.
+ - What is ominous is the ease with which some people go from saying that they don’t like something to saying that the government should forbid it. When you go down that road, don’t expect freedom to survive very long.
+ - Government’s power to bully people who have broken no law is dangerous to all of us.
+ - Would you bet your paycheck on a weather forecast for tomorrow? If not, then why should this country bet billions on global warming predictions that have even less foundation?
+ - By the end of the 20th century, “liberals” had again discredited themselves, to the point where they went back to calling themselves “progressives” to escape their past, much as people do when they declare bankruptcy.
+ - In a democracy, we have always had to worry about the ignorance of the uneducated. Today we have to worry about the ignorance of people with college degrees.
+ - The desire to order other people around and make them conform to one own’s vision takes many forms.
+ - Why the transfer of decisions from those with personal experience and a stake in the outcome to those with neither can be expected to lead to better decisions is a question seldom asked, much less answered.
+ - The simplest and most psychologically satisfying explanation of any observed phenomenon is that it happened that way because someone wanted it to happen that way.
+ - The fashionable idiocy that haters must have justifications is one of those ideas that George Orwell said only an intellectual could believe – because no one else could be such a fool.
+ - I’m always embarrassed when people say that I’m courageous. Soldiers are courageous. Policemen are courageous. Firemen are courageous. I just have a thick hide and disregard what silly people say.
+ - Prices are important not because money is considered paramount but because prices are a fast and effective conveyor of information through a vast society in which fragmented knowledge must be coordinated.
+ - Any policy is a success by sufficiently low standards and a failure by sufficiently high standards.
+ - Too many people in Washington are full of themselves, among other things that they are full of.
+ - Government cannot solve all our problems, even in normal times, much less during a catastrophe of nature that reminds man how little he is, despite all his big talk.
+ - Someone once said that the most important knowledge is knowledge of our own ignorance. Our schools are depriving millions of students of that kind of knowledge by promoting “self-esteem” and encouraging them to have opinions on things of which they are grossly ignorant, if not misinformed.
+ - Weighing benefits against costs is the way most people make decisions – and the way most businesses make decisions, if they want to stay in business. Only in government is any benefit, however small, considered to be worth any cost, however large.
+ - Sports are the reason I am out of shape. I watch them all on TV.
+ - Helping those who have been struck by unforeseeable misfortunes is fundamentally different from making dependency a way of life.
+ - Force is the antithesis of freedom, but force must be used, if only to defend against other force.
+ - When government takes away options, it is bound to make some people worse off, even with intrinsicallly good intentions behind that government intervention.
+ - Anyone who does not understand the utter cynicism of politics does not understand politics.
+ - France has never gotten over the fact that it was once a great power and is now just a great nuisance.
+ - I hate to make predictions, but I think the economy is going to be permanently changed for the worse. I think our foreign policy is going to lead to changes that will be definitely for the worse, particularly if we drift into a nuclear Iran, which I gather that’s what the administration is doing.
+ - I hate to think that someday Americans will be looking at the ruins of their cities and saying that this happened because their leaders were afraid of the word unilateral.
+ - The fatal attraction of government is that it allows busybodies to impose decisions on others without paying any price themselves. That enables them to act as if there were no price, even when there are ruinous prices – paid by others.
+ - Economic policies need to be analyzed in terms of the incentives they create, rather than the hopes that inspired them.
+ - You need only visit campuses where whole departments feature soft courses preaching a sense of victimhood and resentment, and see the consequences in racial and ethnic polarization on campus.
+ - The left takes its vision seriously – more seriously than it takes the rights of other people. They want to be our shepherds. But that requires us to be sheep.
+ - Trade-offs have been with us ever since the late unpleasantness in the Garden of Eden.
+ - Whatever we wish to achieve in the future, it must begin by knowing where we are in the present- not where we wish we were, or whee we wish others to think we are, but where we are in fact.
+ - You can always create a fraction by putting one variable upstairs and another variable downstairs, but that soes not establish any causal relationship between them, nor does the resulting quotient have any necessary relationship to anything in the real world.
+ - Where intellectuals have played a role in history, it has not been so much by whispering words of advice into the ears of political overlords as by contributing to the vast and powerful currents of conceptions and misconceptions that sweep human action along.
+ - Money goes out first to pay expenses and then comes back as profits later – if at all. The high rate of failure of new businesses makes painfully clear that there is nothing inevitable about the money coming back.
+ - Let’s face it, most of us are not half as smart as we may sometimes think we are – and for intellectuals, not one-tenth as smart.
+ - Even when black youth gangs target white strangers on the streets and spew out racial hatred as they batter them and rob them, mayors, police chiefs and the media tiptoe around their racism and many in the media either don’t cover these stories or leave out the race and racism involved.
+ - Much of the world today, including the United States, is still living in the social, cultural, and political aftermath of Britain’s cultural achievements, its industrial revolution, its government of checks and balances, and its conquests around the world.
+ - People in the political world have every incentive to say things that lead voters away from a clear economic understanding of issues. What has happened more and more is that organized groups have more and more reasons to say things that don’t make any economic sense.
+ - It is amazing how many people think they are doing blacks a favor by exempting them from standards that others are expected to meet.
+ - Some of the people on death row today might not be there if the courts had not been so lenient on them when they were first offenders.
+ - Racism does not have a good track record. It’s been tried out for a long time and you’d think by now we’d want to put an end to it instead of putting it under new management.
+ - Time was when people used to brag about how old they were – and I am old enough to remember it.
+ - The talkers and writers resent being left on the sidelines by the doers.
+ - Economics is concerned with what emerges, not what anyone intended.
+ - Experience trumps brilliance.
+ - It is amazing how many people seem to think that the government exists to turn their prejudices into law.
+ - How a man who holds the entire population of a country as his prisoners, and punishes the families of those who escape, can be admired by people who call themselves liberals is one of the many wonders of the human mind’s ability to rationalize. Yet such is the case with Fidel Castro.
+ - Military pay has been allowed to lag behind to the point where career enlisted men with families to feed have been forced to resort to food stamps.
+ - Ideological bigotry has become the norm on even our most prestigious campuses, where students can go for years without reading or hearing anything that challenges the left vision.
+ - Barack Obama has not only said that he is out to ‘change the United States of America,’ the people he has been associated with for years have expressed in words and deeds their hostility to the values, the principles and the people of this country.
+ - People who know nothing about advertising, nothing about pharmaceuticals, and nothing about economics have been loudly proclaiming that the drug companies spend too much on advertising – and demanding that the government pass laws based on their ignorance.
+ - It is a way to take people’s wealth from them without having to openly raise taxes. Inflation is the most universal tax of all.
+ - The economic disasters of socialism and communism come from assuming a blanket superiority of those who want to run a whole economy.
+ - The government does not have some magic wand that can ‘bring down the cost of health care.’ It can buy a smaller quantity or lower quality of medical care, as other countries with government-run medical care do.
+ - Government restrictions are attractive to people who want to impose their pet notions without having to count the costs.
+ - Perhaps people who are gushing over the Obama Cult today might do well to stop and think about what it would mean for their granddaughters to live under Sharia law.
+ - While rationalism at the individual level is a plea for more personal autonomy from cultural norms, at the social level it is often a claim- or arrogation- of power to stifle the autonomy of others.
+ - Cheap medical care is one of the most expensive things there is. So long as politicians can create the illusion of something for nothing, that gets them votes, which is what it is all about, as far as they are concerned.
+ - We might have been better off if the question of Obama’s patriotism had been raised before he was first elected. Never should we ignore so many red flag warnings again.
+ - Facts do not speak for themselves. They speak for or against competing theories. Facts divorced from theories or visions are mere isolated curiosities.
+ - Life in general has never been even close to fair, so the pretense that the government can make it fair is a valuable and inexhaustible asset to politicians who want to expand government.
+ - However widespread the desire to be free, that is wholly different from a desire to live in a society where others are free.
+ - So many idealistic political movements for a better world have ended in mass-murdering dictatorships. Giving leaders enough power to create ‘social justice’ is giving them enough power to destroy all justice, all freedom, and all human dignity.
+ - We need laws written by people who have confronted life in the real world, not in the sheltered world of trust fund recipients of the insulated cocoon of academia.
+ - We seem to be getting closer and closer to a situation where nobody is responsible for what they did but we are all responsible for what somebody else did.
+ - The Congressional Budget Office has been embarrassed repeatedly by making projections based on the assumption that tax revenues and tax rates move in the same direction.
+ - People who have never run even a modest little business assert with great certainty and indignation that heads of multinational corporations are paid much more than they are worth. People who know nothing about medicine and nothing about economics unhesi.
+ - Students are often in no position to judge ‘relevance’ until long after the fact.
+ - How much more of an injustice is it that people who work get more money than people who don’t work?
+ - The cavemen had the same natural resources at their disposal as we have today, and the difference between their standard of living and ours is a difference between the knowledge they could bring to bear on those resources and the knowledge used today.
+ - In the wake of the housing debacle in California, more people are buying less expensive homes, making bigger down payments, and staying away from ‘creative’ and risky financing. It is amazing how fast people learn when they are not insulated from the consequences of their decisions.
+ - Any politician who starts shouting election-year demagoguery about the rich and the poor should be asked, “What about the other 90 percent of the people?”
+ - Elections should be held on April 16th- the day after we pay our income taxes. That is one of the few things that might discourage politicians from being big spenders.
+ - As for gun control advocates, I have no hope whatever that any facts whatever will make the slightest dent in their thinking – or lack of thinking.
+ - You don’t send people to prison on the basis of what other people imagine, or on the basis of media sound bites like ‘shooting an unarmed child,’ when that ‘child’ was beating him bloody.
+ - A shortage is a sign that somebody is keeping the price artificially lower than it would be if supply and demand were allowed to operate freely.
+ - The minimum wage law very cleverly is misnamed. The real minimum wage is zero. That is what many inexperienced and low skilled people receive as a result of legislation that makes it illegal to pay them what they are currently worth to an employer.
+ - If people in the media cannot decide whether they are in the business of reporting news or manufacturing propaganda, it is all the more important that the public understand that difference, and choose their news sources accordingly.
+ - The political mirage of something for nothing, from leaders who ‘care,’ has ruined many a nation.
+ - Civilization is an enormous device for economizing knowledge,.
+ - What is politically defined as economic planning is the forcible superseding of other people’s plans by Government officials.
+ - One of the most pervasive political visions of our time is the vision of liberals as compassionate and conservatives as less caring.
+ - The big divide in this country is not between Democrats and Republicans, or women and men, but between talkers and doers.
+ - The real culprits are those who created a system that makes it dangerous to work and safe to loaf.
+ - We know – or should know – what lies at the end of the road of racial polarization. A ‘race card’ is not something to play, because race is a very dangerous political plaything.
+ - Our national problems usually do not cause nearly as much harm as the solutions.
+ - Each day, as I take various pills, I realize that without those pills I might not be alive – and, if I were, life would not be worth living. Yet those who produce these medications are under constant attack from people who produce nothing.
+ - The march of science and technology does not imply growing intellectual complexity in the lives of most people. It often means the opposite.
+ - Compassion is good but politicians have turned compassion into the welfare state.
+ - If you have a right to respect, that means other people don’t have a right to their own opinions.
+ - If politicians stopped meddling with things they don’t understand, there would be a more drastic reduction in the size of government than anyone in either party advocates.
+ - Although much of the media have their antennae out to pick up anything that might be construed as racism against blacks, they resolutely ignore even the most blatant racism by blacks against others.
+ - Wise men wrote the Constitution, but clever judges have been destroying it, bit by bit, turning it into an instrument of arbitrary judicial power, instead of a limitation on all government power.
+ - All of us should be on guard against beliefs that flatter ourselves. At the very least, we should check such beliefs against facts.
+ - The fact that the market is not doing what we wish it would do is no reason to automatically assume that the government would do better.
+ - Ego trips by coteries of self-exalting people are treated in the media as idealism, rather than the petty tyranny it is.
+ - A recent poll shows that a majority of blacks, whites, Asians and Hispanics do not think the Census should be classifying people as black, white, Asian and Hispanic.
+ - Any judicial nominee who has said that the Constitution means what it says, not what judges would like it to mean, is going to be called an ‘extremist.’ That person will be said to be ‘out of the mainstream.’ But the mainstream is itself the problem.
+ - The principles applied in economic processes are general social principles.
+ - The real goal should be reduced government spending, rather than balanced budgets achieved by ever rising tax rates to cover ever rising spending.
+ - We never really know and the very fact that there are such words in the language as disappointment, regret, etc., is testimony to the pervasiveness and persistence of this feature of the human condition.
+ - Few professors would dare to publish research or teach a course debunking the claims made in various ethnic, gender, or other ‘studies’ courses.
+ - The idea that money is corrupting innocent politicians would be laughable if it did not lead to such dangerous legislation...
+ - Imagine a political system so radical as to promise to move more of the poorest 20% of the population into the richest 20% than remain in the poorest bracket within the decade? You don’t need to imagine it. It’s called the United States of America.
+ - The most politically painless way to hand out goodies, without taking responsibility for their costs, is to pass a law saying that somebody else must provide those goodies at their expense, while the politicians take credit for generosity and compassion.
+ - Our schools and colleges are turning out people who cannot feel fulfilled unless they are telling other people what to do.
+ - If you have ever seen a four-year-old trying to lord it over a two-year-old, then you know what the basic problem of human nature is – and why government keeps growing larger and ever more intrusive.
+ - Although I am ready to defend what I have said, many people expect me to defend what others have attributed to me.
+ - There is nothing that politicians like better than handing out benefits to be paid for by someone else.
+ - One of the painfully sobering realizations that come from reading history is the utter incompetence that is possible among leaders of whole nations and empires – and the blind faith that such leaders can nevertheless inspire among the people who are enthralled by their words or their posturing.
+ - If you don’t believe in the innate unreasonableness of human beings, just try raising children.
+ - Our economic problems worry me much less than our political solutions, which have a far worse track record.
+ - If you truly believe in the brotherhood of man, then you must believe that blacks are just as capable of being racists as whites are.
+ - Pedestrians never seem to realize that they are a threat to the safety of cars.
+ - Just as any moron can destroy a priceless Ming vase, so the shallow and ill-educated people who run our schools can undermine and destroy from within a great civilization that took centuries of dedicated effort to create and maintain.
+ - Progress in general seems to hold little interest for people who call themselves ‘progressives.’ What arouses them are denunciations of social failures and accusations of wrong-doing.
+ - The America that has flourished for more than two centuries is being quietly but steadily dismantled by the Obama administration.
+ - There are only two economists in Congress and hundreds of lawyers. Does that explain why the government is in such a mess?
+ - Too often what are called “educated” people are simply people who have been sheltered from reality for years in ivy-covered buildings. Those whose whole careers have been spent in ivy-covered buildings, insulated by tenure, can remain adolescents on into their golden retirement years.
+ - Most variables can show either an upward or downward trend, depending on the base year chosen.
+ - For the anointed, traditions are likely to be seen as the dead hand of the past, relics of a less enlightened age, and not as the distilled experience of millions who faced similar human vicissitudes before.
+ - The left’s obsession with the high incomes of corporate executives never seems to extend to equally high – or higher – incomes of professional athletes, entertainers, or best-selling authors like Danielle Steel.
+ - We cannot allow the defense of American lives to be held hostage by the United Nations – which has already given Saddam Hussein a final warning, and now wants to give him another final warning. And, if he doesn’t heed that, they will threaten him with yet another warning.
+ - Over the generations, black leaders have ranged from noble souls to shameless charlatans.
+ - Those who cry out that the government should ‘do something’ never even ask for data on what has actually happened when the government did something, compared to what actually happened when the government did nothing.
+ - It is precisely those members of Congress who have had the most to do with creating the risks that led to the current economic crisis who are making the most noise against others, and summoning people before their committee to be browbeaten and humiliated on nationwide television.
+ - American society in recent years has been imitating behavior patterns that have produced negative – and sometimes catastrophic – consequences in many other countries around the world.
+ - The welfare state shields people from the consequences of their own mistakes, allowing irresponsibility to continue and to flourish among ever wider circles of people.
+ - Nobody would put as little thought and effort into buying an automobile as they put into deciding who to elect as President of the United States.
+ - Too many policies, programs and institutions are judged by what they are supposed to do, rather than by what they actually do and the consequences of their actions.
+ - Many people, including some conservatives, have been very impressed with how brainy the president and his advisers are. But that is not quite as reassuring as it might seem.
+ - Whenever someone refers to me as someone “who happens to be black,” I wonder if they realize that both my parents are black. If I had turned out to be Scandinavian or Chinese, people would have wondered what was going on.
+ - Both history and contemporary data show that countries prosper more when there are stable and dependable rules, under which people can make investments without having to fear unpredictable new government interventions before these investments can pay off.
+ - Politicians are forever coming up with ‘solutions’ to virtually every imaginable imperfection in life. But, if we give them more power and more of our money, we are very unlikely to end up better off on net balance.
+ - The time is long overdue to stop looking for progress through racial or ethnic leaders. Such leaders have too many incentives to promote polarizing attitudes and actions that are counterproductive for minorities and disastrous for the country.
+ - Actually lowering the cost of insurance would be accomplished by such things as making it harder for lawyers to win frivolous lawsuits against insurance companies.
+ - Knowledge can be enormously costly, and is often scattered in widely uneven fragments, too small to be individually usable in decision making. The communication and coordination of these scattered fragments of knowledge is one of the basic problems- perhaps the basic problem- of any society.
+ - Mystical references to society and its programs to help may warm the hearts of the gullible but what it really means is putting more power in the hands of bureaucrats.
+ - One of the beauties of an economy coordinated by price movements is that nobody has to understand it in order for it to work.
+ - One of the reasons for conspiracy theories is an assumption that people in high places always know what they are doing. When they do something that makes no sense, devious reasons are imagined by conspiracy theorists, when in fact it may be due to plain old ignorance and incompetence.
+ - Riskier mortgage lending practices, imposed by government, were what set the stage for many mortgage payments to stop and thus for the financial disasters that followed. Political rhetoric, echoed in the media, seeks to obscure that painfully plain fact.
+ - As a rule of thumb. Congressional legislation that is bipartisan is usually twice as bad as legislation that is partisan.
+ - Creating whole departments of ethnic, gender, and other ‘studies’ was part of the price of academic peace. All too often, these ‘studies’ are about propaganda rather than serious education.
+ - Just what is it that academics have to fear if they stand up for common decency, instead of letting campus barbarians run amok?
+ - People have a vested interest in promoting one set of polices rather than finding out what the truth is.
+ - Clearly, only very unequal intellectual and moral standing could justify having equality imposed, whether the people want it or not, as Dworkin suggests, and only very unequal power would make it possible.
+ - To say that ‘wealth in America is so unfairly distributed in America,’ as Ronald Dworkin does, is grossly misleading when most wealth in the United States is not distributed: at all. People create it, earn it, save it, and spend it.
+ - There are no dead-end jobs. There are no dead-end jobs. There are only dead-end people. Our current social philosophy, and the welfare state apparatus based on it, are creating more dead-end people.
+ - High tax rates that people don’t actually pay do not bring the government as much revenue as lower tax rates that they do pay.
+ - The stricter standards and independent, often conclusive, evidence in the physical sciences cannot be generalized to intellectual activity as a whole, even though the aura of scientific processes and results is often appropriated by other intellectuals.
+ - Even the Soviet Union, with its huge nuclear arsenal, was a threat that could be deterred by the prospect of retaliation. But suicide bombers cannot be deterred. They can only be annihilated – preemptively and unilaterally, if necessary.
+ - How are children supposed to learn to act like adults, when so much of what they see on television shows adults acting like children?
+ - The real minimum wage is zero.
+ - Virtually everything that the government does costs more than when the same thing is done in private industry – whether it is building housing, running prisons, collecting garbage, or innumerable other things. Why in the world would we imagine that health care would be the exception?
+ - Those government officials who want more power are not going to stop unless they get stopped.
+ - The government is indeed an institution, but “the market” is nothing more than an option for each individual to chose among numerous existing institutions, or to fashion new arrangements suited to his own situation and taste.
+ - One of the most important skills for political success is the ability to make confident assertions of absurdities or lies.
+ - The biggest and most deadly ‘tax’ rate on the poor comes from a loss of various welfare state benefits – food stamps, housing subsidies and the like – if their income goes up.
+ - Some full professors could more accurately be described as empty professors.
+ - All justice is inherently social. Can someone on a desert island be either just or unjust?
+ - Child poverty in the United States declined after the work requirement was put in there. People realized that they had to work and people went out and worked and they got off welfare.
+ - One of the bitter ironies of the 20th century was that communism, which began as an egalitarian doctrine accusing capitalism of selfishness and calloused sacrifices of others, became in power a system whose selfishness and callousness toward others made the sins of capitalism pale.
+
+438 quotes

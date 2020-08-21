@@ -1,0 +1,69 @@
+ - Think before you speak. Think before you judge. Think before you think you have a person all figured out...
+ - Life works in mysterious ways but when you find your inner glow is back and shining brighter, you know it’s right.
+ - I really think everything happens for a reason.
+ - In the end when you accept yourself for who you are and you work with what you’ve got, you couldn’t be more beautiful because you’re confident and everyone notices.
+ - I do believe in listening to your mind as well that that you need to be smart about certain things, to protect yourself. You need a healthy mix of both really, but it’s important not to think so much that you’re not able to follow your heart.
+ - Everything happens for a reason and, of course at times it’s very discouraging, but at the end of the day you can’t take it personally and move onward because if you let it sit with you, then it starts to eat away at you and you’re allowing someone else to steal your excitement. No one wants that.
+ - I’ve realized the quirky things that make you different are what make you beautiful.
+ - To look into that persons eyes and find yourself so completely lost in another world, a world full of absolute comfort and happiness.
+ - It’s really important to stand up for yourself and not always agree with what people say if indeed you don’t feel that that’s true.
+ - I love watching old movies anyway – I grew up with my mom watching old movies and being immersed in the history of old Hollywood.
+ - People are quick to jump to conclusions.
+ - Great movie stars like Audrey Hepburn and Elizabeth Taylor who were capable of saying so much without saying anything at all merely by carrying themselves in a classic fashion that’s timeless yet relatable.
+ - Wearing a corset, a ball gown, heels and a swan hat with wings to fight in the forest gave me a whole new appreciation for everyday clothes, because you really become that alter ego while wearing those costumes in those environments on the set. They just influenced everything you tried to do.
+ - I’m a huge fan of the series of books by Cassandra Clare, The Mortal Instruments. I’m a fan myself, so to be cast as the lead heroine is completely incredible.
+ - No, I like to wear as least amount of makeup as I can during my everyday life because I’m just all about keeping my skin healthy and hydrated and I love to laugh and have a great time and smile – that’s when I feel the most pretty so I just want to make sure that I stay happy.
+ - I’m a huge fan of the books myself, so to know that I got to play Clary – who’s a literary heroine to me – was a huge honour.
+ - When your whole being is attracted to someone else’s whole being, then I think that is someone you were meant to be connected with at some point.
+ - I think it’s important to relate to one another about issues that you’re having, because the second you open up and someone else says, ‘Oh, me too. I feel the same way,’ then all of a sudden, you feel more at peace with yourself and you can feel more confident with who you are.
+ - I think the big thing is the fairy tale. It’s taking old folk fairy tales and retelling them in modern day. I think it’s just taking you out of everyday life, and everyone loves a good fairy tale.
+ - Everything for me has happened so quickly. I finished shooting ‘The Blind Side’ not this past June, but the June before, and all of sudden up to now, it seems like it’s gone from zero to 60 for me. I feel so fortunate to be able to say that.
+ - I think it’s just important to not judge people based on their physicality because it’s really about personality and people’s hearts and souls. That’s what drew me to Audrey Hepburn who is kind of like my icon.
+ - How women dressed every single day back in those days is seen as kind of incredible – it must have taken so much time. But there’s something so romantic about that because it’s so different to how we dress. That aesthetic is so appealing, it’s not what we’re used to nowadays.
+ - My mother used to take me to flea markets in my stroller, and I would just rummage through the piles. You’ve got to dig through the overstuffed racks that everyone else just walks by. It’s the only way to find the cool stuff.
+ - I don’t like reading things that people say on the Internet because I know so much of it is not true. I don’t want to waste my time worrying about what other people are thinking. I just want to focus on being able to do cool projects.
+ - Decisions are the endless uncertainties of life that we’ll not know if they’re right until the very end, so do the best you can and hope its right.
+ - My last name may have opened doors, but I have to keep them open.
+ - Snow White has always been one of my favorite fairy tales growing up. To be able to say, “I’m going to be Snow White” – it’s crazy. It’s an honor.
+ - I used to be a big planner and had to have things figured out ahead of time, but I’m learning to love living in the moment. Last night, I called my friend up randomly and said, ‘Where are you? I want to come see you!’ It’s not a new version of me. I’m just embracing it more.
+ - I was never afraid of going after what I wanted, and making that known, and being vocal about it.
+ - I love hats, I’m such a fan of hats. You don’t wear a fascinator everywhere you go, but there are ways to incorporate old Hollywood nuances into your looks today but also edge it up.
+ - I sing some songs but don’t expect me to release an album anytime soon.
+ - I don’t know if this is too weird to say, but this is completely surreal for me. Bizarre. The cover of ‘Teen Vogue’ has been on my bucket list forever.
+ - My advice for girls who are waiting for their Prince Charming is to be open for anything. Be open to new experiences, be open to the idea that it may take longer than you want, but if you’re open to meeting new people and new adventures, then love will come along.
+ - I’m drawn to roles that have real substance, that aren’t just the victim or the teenage girl or the girlfriend.
+ - I don’t wear dresses all the time – it’s nice to save those moments for certain occasions and to make it feel extra special.
+ - A lot of my friends aren’t working, especially since fewer films are being made now and there’s more competition.
+ - I was actually the one who decided to move to LA. Mom and I were driving on Sunset Boulevard during one of our trips back to see her family, and I said, ‘Can we just stay?’ So we did.
+ - I don’t really have a favorite song. Music is such a big part of who I am, and speaks to so many different emotions inside me, that I don’t have an all-time favorite.
+ - Never once does ‘Snow White’ herself look in the mirror so she isn’t aware of her beauty or what apparently that does to people. It’s really just the queen and the prince that talk about it.
+ - I’m not against Twitter or Facebook. I’m not against anything. Never say never.
+ - It truly is the power that you have deep within yourself that gives you the strength to pursue your dreams.
+ - There’s this common perception that having a famous last name is all you need. A surname may get you a meeting, but if there’s no talent you won’t get the part.
+ - At a party recently I was introduced to Meryl Streep, and it took me a second to get my head around it. You know, that I’m meeting these people now. I’m doing it.
+ - Definitely with the fit of clothing – how it really depends on mere centimeters and millimeters of difference in terms of how lengths can make such a big impact on your shape. I learned how to incorporate a cute peter pan collar on a dress and not make it look juvenile.
+ - I grew up understanding the pros and cons of what you’re getting into and knowing what comes with your job. I like to keep my private life private, and then work is work. I feel so far I’ve had a really good balance with that.
+ - I had some difficult times when I first moved to Los Angeles when people would tell me I was saying things wrong. I felt different although my mum kept reminding me it was OK to be different.
+ - I used to go into rooms of older executives and try to pitch talk show ideas and when I was writing as a journalist I would pitch ideas for my articles and I definitely understand that excitement of a pitch and what that is to be young and a woman and trying to make your voice heard.
+ - It used to bother me – having bigger, fuller brows. I even plucked them once so I’d fit in, but I hated them and couldn’t wait for them to grow back. Now I embrace them. I realized the quirky things that make you different are what make you beautiful.
+ - I like to think of myself as a very passionate person, and as very determined.
+ - But the thing is, I was never looking at a strategic way of gaining fame. That’s not why I’m doing this.
+ - When it comes to the work, I’m excited to see what people think. When it comes to the private life, that’s when I don’t pay attention.
+ - In the ’30s, every day was an event. And, as much as I love that idea, I think nowadays it’s nice to have the differentiation of when you dress up and when you don’t.
+ - I’ve grown up knowing that you put as much of your private life out there as you feel comfortable with.
+ - I think I’ve been brought up very well by both my parents. I am very cautious and I think I’m now fit for the world I’m in. They’re very much behind my modelling and very supportive.
+ - I like to be comfortable but I also like to look put together all the time.
+ - Starting at 16 years old I was in boardrooms of older executives pitching talk shows. I wanted to be the youngest talk show host for a really long time.
+ - To play someone I loved in my favourite fairytale as a kid is a total honour.
+ - I felt different although my mum kept reminding me it was OK to be different.
+ - No matter what, I need to maintain my sense of self and always be true to who I am. And that while there are always going to be roadblocks along the way, you’re going to be just fine, as long as you learn from each setback.
+ - I love clothes, but I don’t have a specific favorite, because I’m very much a fashionista.
+ - I’ve only ever known growing up across different countries – to me it’s just fun.
+ - The greenhouse scene! It was just so fun to have the romance and the action.
+ - My dad knows how to tell a story. He’d make me laugh by doing all the different voices.
+ - I like to think of myself as a very passionate person, and as very determined. So, if I set my mind on something, I definitely stop at no end to find within myself the power to keep going, whether that involves thinking of a new approach to a problem, or physically challenging myself.
+ - No matter what, I need to maintain my sense of self and always be true to who I am.
+ - I never go with something in mind. I like having an array of generations in my outfits!
+ - The idea that I get to travel and do what I love and call it a job is just a blessing.
+
+67 quotes

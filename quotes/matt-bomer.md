@@ -1,0 +1,48 @@
+ - Kids aren’t born to be bullies, they’re taught to be bullies.
+ - You can’t please everybody. There’s that old saying that there’s no sure formula for success, but the only sure fire formula for failure is to try to please everyone. You’re not going to do that.
+ - Never forget your manners. They go a long way in both your business and personal life. If you look and act like you are making an effort, it will be appreciated.
+ - When you really put your heart and soul into something, the temptation is to try to be in control of circumstances, however you can, and looking and seeing how people are responding.
+ - It’s better to be in love than watch it.
+ - If you gave your best to what you were given, at the time, it’s going to play out how it’s going to play out.
+ - I’m completely happy and fulfilled in my personal life.
+ - My parents raised me right, so I always open doors for people and try to have good manners.
+ - I’m a pretty chill person. I’m kind of a homebody and I like to just hang out with friends and have dinner. I’m not, you know – I’m definitely not Neal Caffrey in the sense that I’m not, you know, drinking a $500 bottle of wine at a nightclub. I’m just – I’m pretty chill.
+ - Everybody thinks that equality comes from identifying people, and that’s not where equality comes from.
+ - Anybody who is rude to anyone in the service industry is automatically out.
+ - My personal life is a source of incredible happiness for me, but it’s personal and it’s not for me to hock, or shop around to the highest bidder. Plus, it could never live up to the amazing mythology that everyone online has created for me, so I’ll keep mum about it.
+ - Human beings are good, they have shadow, every single one of us has redeeming qualities and every single one of us has qualities that people can hold against us. That’s what makes us human.
+ - I see myself working, making a living and doing projects that I’m passionate about, regardless of the medium.
+ - I never feel more confident and comfortable than when I’m wearing a Tom Ford suit.
+ - I like to sing and leave songs on voicemail. It comes from the heart.
+ - I took movement classes that I wore my double-breasted suits to. I worked on my elocution because people spoke differently then. I was really trying to toe the line. I think that if I had spoken exactly the way that people spoke back then, it probably would have alienated people.
+ - If youre wearing suits and you want to create your own sense of style, get to the tailor.
+ - I’ve been a con artist since I was 16 and trying to get my dad to buy me a car. I never succeeded, but I learnt a lot of tactics.
+ - Don’t worry if people think you’re good. Make this your experience. And find out what makes you unique as an artist. You don’t get the opportunity to do that as much in the real world.
+ - In that Freak Show environment, I got to spend time with so many of the actors who were part of that world. I just had the best time ever.
+ - I love that Amazon has this incredibly unique, diplomatic process where people’s voices are heard, and we’re using this great interconnectedness we have, via the internet, to weigh in and to have a say in what we want to see and what we don’t.
+ - I like strong opinions – I’ll take that any day over someone who agrees with everything.
+ - I think when you play a role, you always have to be a defense attorney for that character.
+ - I think Billy Ray has a lot of great stories up his sleeve. I’ve heard a lot of his plans for the show, should it go forward, and I think there’s a lot in store for people, if it’s given a chance.
+ - Having done television for almost 20 years now, a pilot is kind of like a rough draft. It’s like bringing people into your ultrasound and hooking up to the monitor and going, “Isn’t my baby beautiful?” “Yeah. I can only see the outline of it, but it looks like it might be.”
+ - For every role, I brought certain elements of the character. Even on White Collar over six years, I tried to keep the set fun and breezy and Howard Hawks-y and very of the tone of the show.
+ - If you don’t like Superman, something’s wrong with you!
+ - I like characters with flaws, who have shadow.
+ - I’ve never cared about how successful or how big I was going to be. I just wanted to be part of a story that affected people, made them laugh or cry. To me, that was more important than having my face on some billboard.
+ - Forget horror icon, Kety Bates is an icon. She’s an acting icon. I was raised on so many of her films, everything from Misery to Fried Green Tomatoes to Delores Claiborne, all films that I’ve watched multiple times and been inspired by.
+ - My standard uniform is a T-shirt and jeans.
+ - Theres always a need for new superheroes. As society changes, the types of superheroes will probably change as well.
+ - To me, when you’re at a hotel and your home environment is ultimately dictated by somebody else, I always find that a little bit oppressive and scary in a way.
+ - The best experience for me at CMU was being on stage so much, getting that comfort ability and learning that technique you can use with any type of work because you’re comfortable with it and know your skill as an actor.
+ - What is ultimately motivating the character?
+ - I lived in several hotels, yeah. You have to try to make it home.
+ - I think every guy and girl would love to get to play Superman, at some point in their life.
+ - Without a safe haven, one of the most authentic parts of who you are, who you love, felt invisible to the world.
+ - I can safely say that I had an incredibly difficult and trying past growing up and trying to be an artist and standing up as who I am in this world.
+ - It’s so rare, especially as a younger actor, to find a role where it’s not just one-dimensional and it’s not just a stock leading man.
+ - Look, none of the artists who I admire or respect have ever shied away from a role because it might make them unpopular with somebody.
+ - I pretty much got busted for everything, but I definitely stretched out my boundaries as a kid, as well.
+ - As actors you’re always going to take certain roles that are in your comfort zone and take ones that aren’t.
+ - I like not to know, unless it’s something that I need to know, specifically, for how I color a performance.
+ - Certainly when you’re dealing with more deep emotional work and sensory work, for me it helps me to just stay in it.
+
+46 quotes

@@ -1,0 +1,35 @@
+ - Agitate! Agitate! Ought to be the motto of every reformer. Agitation is the opposite of stagnation – the one is life, the other death.
+ - Slavery and freedom cannot exist together.
+ - The few bright meteors in man’s intellectual horizon could well be matched by women, were she allowed to occupy the same elevated position.
+ - Ignorance is the evil – knowledge will be the remedy. Knowledge not of what sort of beings we shall be hereafter, or what is beyond the skies, but a knowledge pertaining to terra firma, and we may have all the power, goodness and love that we have been taught belongs to God himself.
+ - We have hardly an adequate idea how all-powerful law is in forming public opinion, in giving tone and character to the mass of society.
+ - Books and opinions, no matter from whom they came, if they are in opposition to human rights, are nothing but dead letters.
+ - If God is pleased in making you sick and unhappy, I hate God.
+ - If they are unsuccessful in married life, who suffers more the bitter consequences of poverty than the wife? But if successful, she has not a dollar to call her own.
+ - Much is said about the burdens and responsibilities of married men. Responsibilities indeed there are, if they but felt them: but as to burdens what are they?
+ - What is life without liberty; and what is liberty without equality of rights?
+ - But it will be said that the husband provides for the wife, or in other words, he feeds, clothes and shelters her! I wish I had the power to make every one before me fully realize the degradation contained in that idea.
+ - All that I can tell you is, that I used my humble powers to the uttermost, and raised my voice in behalf of Human Rights in general, and the elevation and Rights of Woman in particular, nearly all my life.
+ - But say some, would you expose woman to the contact of rough, rude, drinking, swearing, fighting men at the ballot box? What a humiliating confession lies in this plea for keeping woman in the background!
+ - The main cause is a pernicious falsehood propagated against her being, namely that she is inferior by her nature. Inferior in what? What has man ever done that woman, under the same advantages could not do?
+ - When a man comes to me and tries to convince me that he is not a thief, then I take care of my coppers.
+ - It is high time to compel man by the might of right to give woman her political, legal and social rights. She will find her own sphere in accordance with her capacities, powers and tastes; and yet she will be woman still.
+ - Carry out the republican principle of universal suffrage, or strike it from your banners and substitute ‘Freedom and Power to one half of society, and Submission and Slavery to the other.’
+ - There is no reason against woman’s elevation, but prejudices.
+ - Away with that folly that her rights would be detrimental to her character – that if she were recognized as the equal to a man she would cease to be a woman!
+ - In case of separation, why should the children be taken from the protecting care of the mother? Who has a better right to them than she? How much do fathers generally do toward bringing them up?
+ - If any difference should be made by law between husband and wife, reason, justice and humanity, if their voices were heard, would dictate that it should be in her favor.
+ - From the cradle to the grave she is subject to the power and control of man. Father, guardian, or husband, one conveys her like some piece of merchandise over to the other.
+ - Blind submission in women is considered a virtue, while submission to wrong is itself wrong, and resistance to wrong is virtue alike in women as in man.
+ - It is an interesting and demonstrable fact that all children are atheists and were not religion inculcated in their minds, they would remain so.
+ - Again, I shall be told that the law presumes the husband to be kind, affectionate, and ready to provide for and protect his wife. But what right, I ask, has the law to presume at all on the subject?
+ - I know that some endeavor to throw the mantle of romance over the subject and treat woman like some ideal existence, not liable to the ills of life. Let those deal in fancy who have nothing better to deal in; we have to do with sober, sad realities, with stubborn facts.
+ - Whatever good you would do out of fear of punishment, or hope of reward hereafter, the Atheist would do simply because it is good; and being so, he would receive the far surer and more certain reward, springing from well-doing, which would constitute his pleasure, and promote his happiness.
+ - The mass of the people commence life with no other capital than the union of head, hearts and hands. To the benefit of this best of capital the wife has no right.
+ - No! on Human Rights and Freedom, on a subject that is as self-evident as that two and two make four, there is no need of any written authority.
+ - Fathers like to have children good-natured, well-behaved, and comfortable, but how to put them in that desirable condition is out of their philosophy.
+ - Do you not yet understand what has made woman what she is? Then see what the sickly taste and perverted judgment of man now admires in woman.
+ - I asked God if it was a sin and He didn’t say anything.
+ - Why should women not be a martyr for her cause?
+
+33 quotes

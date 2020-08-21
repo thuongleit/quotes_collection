@@ -1,0 +1,73 @@
+ - I am a big believer that eventually everything comes back to you. You get back what you give out.
+ - Drugs take away the dream from every child’s heart and replace it with a nightmare, and it’s time we in America stand up and replace those dreams.
+ - A woman is like a tea bag. She only knows her strength when put in hot water.
+ - I think more people would be alive today if there were a death penalty.
+ - Presidents don’t get vacations – they just get a change of scenery. The job goes with you.
+ - What can you say about a man, who on Mother’s Day sends flowers to his mother-in-law, with a note thanking her for making him the happiest man on Earth?
+ - My life really began when I married my husband.
+ - Just say no to drugs!
+ - You just get up each day and put one foot in front of the other and go. You know, each day is different.
+ - They were very short, the golden years. The golden years are when you can sit back, hopefully, and exchange memories. And that’s the worst part about this disease. There’s nobody to exchange memories with.
+ - You learn something out of everything, and you come to realize more than ever that we’re all here for a certain space of time, and, and then it’s going to be over, and you better make this count.
+ - People aren’t really poor until they start using water on their corn flakes.
+ - Everything just fell into place with Ronnie and me. We completed each other.
+ - Every woman is entitled to an opinion and the right to express that opinion-especially to the man she’s married to.
+ - The movies were custard compared to politics...
+ - I always liked red. It’s a picker-upper.
+ - There’s a big, wonderful world out there for you. It belongs to you. It’s exciting and stimulating and rewarding. Don’t cheat yourself out of this promise.
+ - Pornography is pornography, what is there to see? Movies are attempting to destroy something that’s supposed to be the most beautiful thing a man and a woman can have by making it cheap and common. It’s what you don’t see that’s attractive.
+ - When people say, ‘You have Alzheimer’s,’ you have no idea what Alzheimer’s is. You know it’s not good. You know there’s no light at the end of the tunnel. That’s the only way you can go. But you really don’t know anything about it. And you don’t know what to expect.
+ - I said from the very beginning, I don’t want a big house, I don’t want big grounds, I don’t want the trouble with the maintenance and all of that.
+ - Embryonic stem cell research has the potential to alleviate so much suffering. Surely, by working together we can harness its life-giving potential.
+ - To my young friends out there: Life can be great, but not when you can’t see it. So, open your eyes to life: to see it in the vivid colors that God gave us as a precious gift to His children, to enjoy life to the fullest, and to make it count. Say yes to your life.
+ - As I’ve said before, time is short, and life is precious.
+ - I’m doing what I want to do.
+ - It’s always written that my father was a rich, conservative John Bircher. That is untrue. He was not rich. He was not a John Bircher.
+ - I favor capital punishment. It saves lives.
+ - Feminism is the ability to choose what you want to do.
+ - It is true that when you’re in the White House alone, it is a lonely place. Big and lonely.
+ - I’ve had quite a life, when you stop and think about it.
+ - For eight years, I was sleeping with the president, and if that doesn’t give you special access, I don’t know what does!
+ - What it boils down to is that each person has his own ways of coping with trauma and grief, with the pain of life, and astrology was one of mine. Don’t criticize me, I wanted to say, until you have stood in my place. This helped me. Nobody was hurt by it.
+ - I don’t intend for this to take on a political tone. I’m just here for the drugs.
+ - My life didn’t really begin until I met Ronnie.
+ - Now science has presented us with a hope called stem cell research, which may provide our scientists with many answers that have for so long been beyond our grasp.
+ - I thought Obama ran the best campaign I have ever known – disciplined, well organised, very, very good. I was very impressed.
+ - I have been criticized and ridiculed for turning to astrology, but after a while, I reached the point where I didn’t care.
+ - The White House belongs to all Americans. It’s supposed to be something we’re proud of.
+ - I’m very grateful that President Obama has lifted the restrictions on federal funding for embryonic stem cell research.
+ - I must say that acting was good training for the political life that lay ahead of us.
+ - It’s one of the best programs I’ve ever seen because it benefits both sides: children, who need love, and grandparents, elderly people, who need to feel wanted.
+ - People should be afraid of the cancer, not the mammogram.
+ - Remember, I’m a doctor’s daughter. So obviously I’m interested in all medical things.
+ - My mother was a Democrat – southern Democrat, y’all.
+ - With Alzheimer’s patients, you have to be very careful what you say when you’re looking at them over their bed. Because once in a while, they understand it.
+ - Why take chances? It may be nonsense, but does anybody really know? And people have certainly been fascinated by astrology for thousands of years.
+ - I don’t think most people associate me with leeches or how to get them off. But I know how to get them off. I’m an expert at it.
+ - The Sixties, of course, was the worst time in the world to try and bring up a child. They were exposed to all these crazy things going on.
+ - I was doing everything I could think of to protect my husband and keep him alive.
+ - Throughout Ronnie’s presidency, there was an ongoing public discussion as to how much influence the first lady should have on the president. It’s hardly a new problem. As long as mankind has lived in groups, there’s always been a question of how to handle the boss’s wife.
+ - People don’t understand that all presidents, the minute they become president, get a knock at the door. And there’s a man there saying, ‘Let’s talk about your funeral.’ At the time I thought, God, that’s a terrible thing. Later on, I thought it was pretty wise.
+ - From the moment I walked into the White House, it was as if I had no privacy at all.
+ - I don’t talk about political matters. That’s not my department.
+ - I see the first lady as another means to keep a president from becoming isolated.
+ - You know, the polls show that 70 percent of the people are for stem-cell research.
+ - Upon hearing the results of her breast examination, the First Lady said – “I guess it’s my turn.”
+ - It is well known that my husband and Lady Thatcher enjoyed a very special relationship as leaders of their respective countries during one of the most difficult and pivotal periods in modern history. Ronnie and Margaret were political soul mates, committed to freedom and resolved to end Communism.
+ - A lot of what acting is paying attention.
+ - I don’t know when I’m going to have time to be politically active.
+ - I rarely think about myself that much. I really don’t.
+ - I think a woman gets more if she acts feminine.
+ - I have been very happy with my homes, but homes really are no more than the people who live in them.
+ - I don’t like a lot of frills and fusses.
+ - There is no job description for the first lady and she’s only there because her husband got elected president.
+ - I couldn’t possibly lead the kind of life I lead, and keep the schedule that I do, having radiation or chemotherapy.
+ - I don’t really yell at people.
+ - My job is being ‘Mrs. Ronald Reagan.’
+ - A lot of business can be accomplished in the state dinners.
+ - Countless people, suffering from many different diseases, stand to benefit from the answers stem cell research can provide. We owe it to ourselves and to our children to do everything in our power to find cures for these diseases – and soon. As I’ve said before, time is short, and life is precious.
+ - I’ve always gone for the more understated look.
+ - I chose to have a career, and I enjoyed it while I had it.
+ - I urge researchers to make use of the opportunities that are available to them and to do all they can to fulfill the promise that stem cell research offers.
+
+71 quotes

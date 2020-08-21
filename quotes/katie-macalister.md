@@ -1,0 +1,26 @@
+ - Those who play with fire should expect to be consumed by it.
+ - You are mine, Aisling. You are mine today, tomorrow and five hundred years from now. You will always be mine. I do not give up my treasures, kincsem. You would do well to remember that.
+ - My heart sobbed a lament that was hard to ignore.
+ - Yes, he is a man, so genetically he’s engineered to be dense about many things, but he’s not stupid.
+ - You are too arrogant for your own good. I officially de-mate you. Go away. I never want to see you again. Except maybe tonight. Naked. Your place. But after that, no more.
+ - Do you want me to ride you like a rented mule, or do you prefer to be Mr. Missionary Position? I’m fine with wither, so it doesn’t matter to me.
+ - I’ve wanted you since the moment you tried to run me over. You are unlike any woman I have met before. You are strong, and courageous, and you do not suffer fools...
+ - His laughter echoed through my mind. I have a beautiful woman in my arms, and am taking her back to my home, where she and I will be alone and able to indulge whatever fantasies we choose. What is there not to enjoy?
+ - I’m your Beloved, dammit! You’re going to let me save your soul, and like it!
+ - Hoo! You’re like a giant mood ring! I wonder if I can make different colors show up depending on where i touch you – Nell Harris.
+ - You think I’m deranged! How refreshing. Everyone here takes me so seriously, it’s a wonderful change to be thought mentally deficient.
+ - Just because I’m flaunting it doesn’t mean you can stare for hours on end. A polite ogle is appreciated and suitable for a flaunt. Slobbering is not.
+ - Maybe I could just James Bond my way down the cable if I draped the scarf over it, clinging to the ends as my body careened down it to safety – Careened. What an ugly word that was.
+ - Yeah. I know. How stupid is it to French kiss a vampire and not expect sharp teeth?
+ - A compliment would be the last thing out of my mouth to a man who was so pigheaded that he could be served at a luau.
+ - You should just dump the whole saving the world plan and go with global domination. It’s probably be more fun.
+ - I tried to avoid looking at the dress full on, lest it burn out my retinas with its glittering hideousness.
+ - Do blood clots get stuck in your teeth? What if someone’s anemic; are you hungry again an hour later? Has anyone ever bitten you? If you run out of blood, do you shrivel up like a really old orange?
+ - Dammit, Jim. I’m a Guardian, not a doctor.
+ - What’s a friend for if not to face almost certain death with, eh?
+ - I was born. It was easy. My mother did all the hard work.
+ - Carrie Fay always says that nothing is really horrible unless it eats away your face.
+ - He does not see as i have that you have given him your heart, but he is male. We will cut him some slack for that handicap, yes?
+ - You do not interrupt a man when he is explaining his master plan after having been soundly defeated. Don’t you watch any James Bond Movies?
+
+24 quotes

@@ -1,0 +1,31 @@
+ - Man is a genius when he is dreaming.
+ - In a mad world, only the mad are sane.
+ - I can’t afford to hate anyone. I don’t have that kind of time.
+ - If you want to be a great director, be a great screenwriter.
+ - Man is a genius when he dreams. Dream what you are capable of. The harder you dream it, the sooner it will come true.
+ - It is the power of memory that gives rise to the power of imagination.
+ - The great appeal of film is its relatability.
+ - Take me, subtract movies, and you get zero.
+ - The characters in my films try to live honestly and make the most of the lives they’ve been given. I believe you must live honestly and develop your abilities to the full. People who do this are the real heroes.
+ - The truth is in the mystery.
+ - I am not a special person, I am not especially strong; I am not especially gifted. I simply do not like to show my weakness, and I hate to lose, so I am a person who tries hard. That’s all there is to me.
+ - To be an artist means never to avert one’s eyes.
+ - If you look at everything straight on, there is nothing to be afraid of.
+ - To be an artist means to search, to find and look at these realities. To be an artist means to never look away.
+ - I suppose all of my films have a common theme. If I think about it, though, the only theme I can think of is really a question: Why can’t people be happier together?
+ - Human beings are unable to be honest with themselves about themselves. They cannot talk about themselves without embellishing.
+ - A truly good movie is enjoyable too. There’s nothing complicated about it.
+ - The root of any film project for me is this inner need to express something. What nurtures this root and makes it grow into a tree is the script. What makes the tree bear flowers and fruit is the directing.
+ - If I were to write anything at all, it would turn out to be nothing but talk about movies. In other words, take ‘myself,’ subtract ‘movies,’ and the result is ‘zero.’
+ - I have no idea who the characters are, later, their personalities take over anything I might want to do. I end up writing not from my own will, but from theirs-they come alive as I write and make me do things that I couldn’t have planned.
+ - The role of the artist is to not look away.
+ - The Japanese see self-assertion as immoral and self- sacrifice as the sensible course to take in life.
+ - Human beings share the same common problems. A film can only be understood if it depicts these properly.
+ - I like unformed characters. This may be because, no matter how old I get, I am still unformed myself.
+ - Page 61: No matter where I go in the world, although I can’t speak any foreign language, I don’t feel out of place. I think of earth as my home. If everyone thought this way, people might notice just how foolish international friction is and the would be put an end to it.
+ - In order to find reality, each must search for his own universe, look for the details that contribute to this reality7 that one feels under the surface of things. To be an artist means to search, to find and look at these realities. To be an artist means never to look away.
+ - For me, filmmaking combines everything. That’s the reason I’ve made cinema my life’s work. In films, painting and literature, theatre and music come together. But a film is still a film.
+ - There is nothing that says more about its creator than the work itself.
+ - The films an audience really enjoys are the ones that were enjoyable in the making. Yet pleasure in the work can’t be achieved unless you know you have put all of your strength into it and have done your best to make it come alive. A film made in this spirit reveals the hearts of the crew.
+
+29 quotes

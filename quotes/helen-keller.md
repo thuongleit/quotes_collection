@@ -1,0 +1,337 @@
+ - Life is either a daring adventure or nothing at all.
+ - Alone we can do so little; together we can do so much.
+ - Keep your face to the sun and you will never see the shadows.
+ - There are no shortcuts to any place worth going.
+ - The best and most beautiful things in the world cannot be seen or even touched. They must be felt with the heart.
+ - Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved.
+ - The only thing worse than being blind is having sight but no vision.
+ - I would rather walk with a friend in the dark, than alone in the light.
+ - The highest result of education is tolerance.
+ - Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.
+ - What we once enjoyed and deeply loved we can never lose, for all that we love deeply becomes a part of us.
+ - Never bend your head. Hold it high. Look the world straight in the eye.
+ - When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.
+ - Hope sees the invisible, feels the intangible, and achieves the impossible.
+ - Ideas without action are useless.
+ - True friends never apart maybe in distance but never in heart.
+ - We can do anything we want as long as we stick to it long enough.
+ - We could never learn to be brave and patient if there were only joy in the world.
+ - Security is mostly a superstition. It does not exist in nature, nor do the children of men as a whole experience it. Avoiding danger is no safer in the long run than outright exposure. Life is either a daring adventure, or nothing.
+ - No pessimist ever discovered the secret of the stars or sailed an uncharted land, or opened a new doorway for the human spirit.
+ - Life is short and unpredictable. Eat the dessert first!
+ - The place between your comfort zone and your dream is where life takes place.
+ - Happiness does not come from without, it comes from within.
+ - Your success and happiness lies in you. Resolve to keep happy, and your joy and you shall form an invincible host against difficulties.
+ - The struggle of life is one of our greatest blessings. It makes us patient, sensitive, and Godlike. It teaches us that although the world is full of suffering, it is also full of the overcoming of it.
+ - Life is a succesion of lessons which must be lived to be understood.
+ - A well-educated mind will always have more questions than answers.
+ - There is beauty in everything, even in silence and darkness.
+ - Happiness is a state of mind, and depends very little on outward circumstances.
+ - What I am looking for is not out there, it is in me.
+ - Faith is the strength by which a shattered world shall emerge into the light.
+ - Security is mostly a superstition. It does not exist in nature.
+ - My friends have made the story of my life.
+ - I believe there are angels among us, sent down to us from somewhere up above. They come to you and me in our darkest hours, to show us how to live, to teach us how to give, to guide us with a light of love.
+ - A happy life consists not in the absence, but in the mastery of hardships.
+ - So long as you can sweeten another's pain, life is not in vain.
+ - You will succeed if you persevere; and you will find joy in overcoming obstacles.
+ - We should respect all people.
+ - Making a mistake is falling down; failure is not getting up again.
+ - The best things in life are unseen, thats why we close our eyes when we kiss, cry, and dream.
+ - A good education is a stepping-stone to wealth.
+ - Blindness separates us from things but deafness separates us from people.
+ - All the world is full of suffering. It is also full of overcoming.
+ - Science may have found a cure for most evils; but it has found no remedy for the worst of them all – the apathy of human beings.
+ - So long as the memory of certain beloved friends lives in my heart, I shall say that life is good.
+ - I long to accomplish a great and noble task, but it is my chief duty to accomplish small tasks as if they were great and noble.
+ - I can not do everything, but I can do something. I must not fail to do the something that I can do.
+ - Better to be blind and see with your heart, than to have two good eyes and see nothing.
+ - Oh, you think the darkness is your ally, but you merely adopted the dark. I was born in it. Molded by it.
+ - People do not like to think. If one thinks, one must reach conclusions. Conclusions are not always pleasant.
+ - Everybody talks, nobody listens. Good listeners are as rare as white crows.
+ - Believe, when you are most unhappy, that there is something for you to do in the world. So long as you can sweeten another’s pain, life is not in vain.
+ - The highest result of education is tolerance. Long ago men fought and died for their faith; but it took ages to teach them the other kind of courage, – the courage to recognize the faiths of their brethren and their rights of conscience.
+ - My friends have made the story of my life. In a thousand ways they have turned my limitations into beautiful privileges.
+ - Everything has its wonders, even darkness and silence, and I learn, whatever state I may be in, therein to be content.
+ - Knowledge is love and light and vision.
+ - To me a lush carpet of pine needles or spongy grass is more welcome than the most luxurious Persian rug.
+ - Fear: the best way out is through.
+ - Doubts and mistrust are the mere panic of timid imagination, which the steadfast heart will conquer, and the large mind transcend.
+ - One can never consent to creep when one feels an impulse to soar.
+ - There is no better way to thank God for your sight than by giving a helping hand to someone in the dark.
+ - Smell is a potent wizard that transports you across thousands of miles and all the years you have lived.
+ - Literature is my Utopia.
+ - The most pathetic person in the world is someone who has sight, but has no vision.
+ - I believe that God is in me as the sun is in the colour and fragrance of a flower – the Light in my darkness, the Voice in my silence.
+ - It is a terrible thing to see and have no vision.
+ - The marvelous richness of human experience would lose something of rewarding joy if there were no limitations to overcome. The hilltop hour would not be half so wonderful if there were no dark valleys to traverse.
+ - What really counts in life is the quiet meeting of every difficulty with the determination to get out of it all the good there is.
+ - If I am happy in spite of my deprivations, if my happiness is so deep that it is a faith, so thoughtful that it becomes a philosophy of life. If, in short, I am an optimist, my testimony to the creed of optimism is worth hearing.
+ - Until the great mass of the people shall be filled with the sense of responsibility for each other’s welfare, social justice can never be attained.
+ - Happiness is like the mountain summit. It is sometimes hidden by clouds, but we know it is there.
+ - When you lose your vision, you lose contact with things. When you lose your hearing, you lose contact with people.
+ - I have made my limitations tools of learning and true joy.
+ - Many persons have a wrong idea of what constitutes true happiness. It is not attained through self-gratification but through fidelity to a worthy purpose.
+ - So much has been given to me I have not time to ponder over that which has been denied.
+ - I do not want the peace which passeth understanding, I want the understanding which bringeth peace.
+ - True teaching cannot be learned from text-books any more than a surgeon can acquire his skill by reading about surgery.
+ - While they were saying among themselves it cannot be done, it was done.
+ - Silver is purified in fire and so are we. It is in the most trying times that our real character is shaped and revealed.
+ - The true test of a character is to face hard conditions with the determination to make them better.
+ - Tolerance is the first principle of community; it is the spirit which conserves the best that all men think.
+ - Be happy, talk happiness. Happiness calls out responsive gladness in others. There is enough sadness in the world without yours.
+ - We are never really happy until we try to brighten the lives of others.
+ - One should never count the years – one should instead count one’s interests. I have kept young trying never to lose my childhood sense of wonderment. I’m glad I still have a vivid curiosity about the world I live in.
+ - The unselfish effort to bring cheer to others will be the beginning of a happier life for ourselves.
+ - To keep on trying in spite of disappointment and failure is the only way to keep young and brave. Failures become victories if they make us wise-hearted.
+ - I thank God for my handicaps. For through them, I have found myself, my work and my God.
+ - Face your deficiencies and acknowledge them; but do not let them master you. Let them teach you patience, sweetness, insight.
+ - Self-pity is our worst enemy and if we yield to it, we can never do anything wise in this world.
+ - Happiness cannot come from without. It must come from within. It is not what we see and touch or that which others do for us which makes us happy; it is that which we think and feel and do, first for the other fellow and then for ourselves.
+ - The test of a democracy is not the magnificence of buildings or the speed of automobiles or the efficiency of air transportation, but rather the care given to the welfare of all the people.
+ - Knowledge is happiness, because to have knowledge – broad, deep knowledge – is to know true ends from false, and lofty things from low.
+ - How spiritually blind are men that they fail to see that we are bound together. We rise or fall together; we are dwarfed or godlike, free or chained, together.
+ - What do I consider a teacher should be? One who breathes life into knowledge so that it takes new form in progress and civilization.
+ - Every one of us is blind and deaf until our eyes are opened to our fellowmen, until our ears hear the voice of humanity.
+ - No loss by flood and lightning, no destruction of cities and temples by the hostile forces of nature, has deprived man of so many noble lives and impulses as those which his intolerance has destroyed.
+ - If it is true that the violin is the most perfect of musical instruments, then Greek is the violin of human thought.
+ - The inferiority of women is man-made.
+ - I wonder what becomes of lost opportunities? Perhaps our guardian angel gathers them up as we drop them, and will give them back to us in the beautiful sometime when we have grown wiser, and learned how to use them rightly.
+ - What induces a child to learn but his delight in knowing?
+ - It is with a kind of fear that I begin to write the history of my life.
+ - The way forward is simple – just follow Christ!
+ - I am only one but still i am one.
+ - Use your eyes as if tomorrow you would become blind.
+ - Joy is the holy fire that keeps our purpose warm and our intelligence aglow.
+ - Remember, no effort that we make to attain something beautiful is ever lost.
+ - Ignorance, poverty, and greed must disappear so that light can prevail in all places.
+ - I could never stay long enough on the shore; the tang of the untainted, fresh, and free sea air was like a cool, quieting thought.
+ - There is no king who has not had a slave among his ancestors, and no slave who has not had a king among his.
+ - Be not dismayed; in the future lies the Promised Land.
+ - History is a record of the incessant struggle of humanity against ignorance and oppression.
+ - Each day comes to me with both hands full of possibilities.
+ - There is plenty of courage among us for the abstract, but not for the concrete.
+ - I will not just live my life. I will not just spend my life. I will invest my life.
+ - The simplest way to be happy is to do good.
+ - If I, deaf, blind, find life rich and interesting, how much more can you gain by the use of your five senses!
+ - Of all the senses, sight must be the most delightful.
+ - Your success and happiness lie within you. External conditions are the accidents of life, its outer trappings.
+ - Life is an exciting business, and most exciting when it is lived for others.
+ - We the living, should not think of the dead as lonely because if they could speak to us, they would say: “Do not weep for me, earth was not my true country, I was an alien there: I am at Home where everyone comes.”
+ - Do not think of todays failures, but of the success that may come tomorrow.
+ - Our beloved ones have not ‘gone to a far country.’ It is only the veil of sense that separates them from us, and even that veil grows thin when our thoughts reach out to them.
+ - Speech is the birthright of every child. It is the deaf child’s one fair chance to keep in touch with his fellows.
+ - To be blind is bad, but worse is to have eyes and not see.
+ - Defeat is simply a signal to press onward.
+ - A smile goes a long way, but you must first start it on its journey.
+ - Even more amazing than the wonders of Nature are the powers of the spirit.
+ - I, who have never heard a sound, tell you there is no silence, and I, who have never seen a ray of light, tell you there is no darkness.
+ - When it seems that our sorrow is too great to be borne, let us think of the great family of the heavy-hearted into which our grief has given us entrance. And inevitably, we will feel about us their arms, their sympathy and their understanding.
+ - World peace will never come until the passion of supremacy is combated.
+ - The living word awakened my soul, gave it light, hope, joy, set it free!
+ - Avoiding danger is no safer in the long run than exposure.
+ - This world is so full of care and sorrow that it is a gracious debt we owe to one another to discover the bright crystals of delight hidden in somber circumstances and irksome tasks.
+ - I take happiness very seriously. It is a creed, a philosophy and an objective.
+ - It is hard to interest those who have everything in those who have nothing.
+ - I never fight, except against difficulties.
+ - Burn brightly without burning out. Throw your heart over the fense and the rest will follow. Keep your face to the sunshine and you wont see the shadows.
+ - I believe in the immortality of the soul because I have within me immortal longings.
+ - No one has a right to consume happiness without producing it.
+ - THE most important day I remember in all my life is the one on which my teacher, Anne Mansfield Sullivan, came to me.
+ - I have often thought it would be a blessing if each human being were stricken blind and deaf for a few days during their early adult life. Darkness would make them more appreciative of sight; silence would teach them the joys of sound.
+ - There is a dangerous optimism of ignorance and indifference.
+ - Some people are foolish enough to imagine that wealth and power and fame satisfy our hearts: but they never do, unless they are used to create and distribute happiness in the world.
+ - The most beautiful world is always entered through imagination.
+ - Love is like a beautiful flower which I may not touch, but whose fragrance makes the garden a place of delight just the same.
+ - If the blind put their hands in God’s, they find their way more surely than those who see but have not faith or purpose.
+ - The bulk of the world’s knowledge is an imaginary construction.
+ - Happiness is the final and perfect fruit of obedience to the laws of life.
+ - If I could have only one of my senses then I would choose hearing, Then I wouldn’t feel so all alone.
+ - The hilltop hour would not be half so wonderful if there were no dark valleys to traverse.
+ - I feel the flame of eternity in my soul.
+ - The woman who works for a dollar a day has as much right as any other human being to say what the conditions of her work should be.
+ - Death is no more than passing from one room into another. But there’s a difference for me, you know. Because in that other room I shall be able to see.
+ - God himself is not secure, having given man dominion over his work.
+ - If we believe that the sun and moon hang in the sky for our delight, there will be joy upon the hills and gladness in the fields.
+ - There’s only one story, the story of your life.
+ - What a blind person needs is not a teacher but another self.
+ - I can see, and that is why I can be happy, in what you call the dark, but which to me is golden. I can see a God-made world, not a manmade world.
+ - No smile is as beautiful as the one that struggles through tears.
+ - The test of all beliefs is their practical effect in life. If it be true that optimism compels the world forward, and pessimism retards it, then it is dangerous to propagate a pessimistic philosophy.
+ - The million little things that drop into your hands, The small opportunities each day brings, He leaves us free to use or abuse, And goes unchanging along His silent way.
+ - Is love the sweetness of flowers?
+ - When we do the best that we can, we never know what miracle is wrought in our life, or in the life of another.
+ - Your success and happiness lie in you.
+ - If I write what my soul thinks it will be visible, and the words will be its body.
+ - Not the senses I have but what I do with them is my kingdom.
+ - Education should train the child to use his brains, to make for himself a place in the world and maintain his rights even when it seems that society would shove him into the scrap-heap.
+ - It is not possible for civilization to flow backwards while there is youth in the world. Youth may be headstrong, but it will advance it allotted length.
+ - I have found life so beautiful.
+ - A man can’t make a place for himself in the sun if he keeps taking refuge under the family tree.
+ - The chief handicap of the blind is not blindness, but the attitude of seeing people towards them.
+ - Our democracy is but a name. We vote? What does that mean? It means that we choose between two bodies of real, though not avowed, autocrats. We choose between Tweedledum and Tweedledee.
+ - Happiness rarely keeps company with an empty stomach.
+ - It gives me a deep comforting sense that Things seen are temporal and things unseen are eternal.
+ - It was my teacher’s genius, her quick sympathy, her loving tact which made the first years of my education so beautiful. It was because she seized the right moment to impart knowledge that made it so pleasant and acceptable to me.
+ - Reality even when it is sad is better than illusions. Illusions are at the mercy of any winds that blow. Real happiness must come from within, from a fixed purpose and faith in one’s fellow men.
+ - When all you can feel are the shadows, turn your face towards the sun.
+ - Poverty is the fundamental cause of most of the physical, moral and economic ills of humanity.
+ - The wise fools who sit in the high places of justice fail to see that in revolutionary times vital issues are settled not by statutes, decrees and authorities, but in spite if them.
+ - What a strange life I lead- a kind of Cinderella-life-half glitter in crystal shoes, half mice and cinders! But it is a wonderful life all the same.
+ - The welfare of each is bound up in the welfare of all.
+ - Poetry is the gate through which I enter the land of enchantment. Once inside the flaming wall, my limitations fall from me, and my spirit is free.
+ - Strike against war, for without you no battles can be fought!
+ - That the sky is brighter than the earth means little unless the earth itself is appreciated and enjoyed. Its beauty loved gives the right to aspire to the radiance of the sunrise and sunset.
+ - A simple, childlike faith in a Divine Friend solves all the problems that come to us by land or sea.
+ - We cannot freely and wisely choose the right way for ourselves unless we know both good and evil.
+ - Every child has a right to be well-born, well-nurtured and well-taught, and only the freedom of woman can guarantee him this right.
+ - The mystery of language was revealed to me. I knew then that ‘W-A-T-E-R’ meant the wonderful cool something that was flowing over my hand. That living word awakened my soul, gave it light, joy, set it free.
+ - It is for us to pray not for tasks equal to our powers, but for powers equal to our tasks, to go forward with a great desire forever beating at the door of our hearts as we travel toward our distant goal.
+ - With every friend I love who has been taken into the brown bosom of the earth a part of me has been buried there; but their contribution to my being of happiness, strength and understanding remains to sustain me in an altered world.
+ - It is wonderful how much time good people spend fighting the devil. If they would only expend the same amount of energy loving their fellow men, the devil would die in his own tracks of ennui.
+ - We bereaved are not alone. We belong to the largest company in all the world – the company of those who have known suffering.
+ - I found that of the senses, the eye is the most superficial, the ear the most arrogant, smell the most voluptuous, taste the most superstitious and fickle, touch the most profound and the most philosophical.
+ - Literature is my Utopia. Here I am not disenfranchised. No barrier of the senses shuts me out from the sweet, gracious discourses of my book friends. They talk to me without embarrassment or awkwardness.
+ - I am conscious of a soul-sense that lifts me above the narrow, cramping circumstances of my life. My physical limitations are forgotten- my world lies upward, the length and the breadth and the sweep of the heavens are mine!
+ - The greatest tragedy to befall a person is to have sight but lack vision.
+ - Toleration is the greatest gift of the mind; it requires the same effort of the brain that it takes to balance oneself on a bicycle.
+ - A child must feel the flush of victory and the heart-sinking of disappointment before he takes with a will to the tasks distasteful to him and resolves to dance his way through a dull routine of textbooks.
+ - Blindness is an unfortunate handicap but true vision does not require the eyes.
+ - Words are the mind’s wings, are they not?
+ - College isn’t the place to go for ideas.
+ - Faith is a mockery if it does not teach us that we can build a more complete and beautiful world.
+ - Toleration is the greatest gift of the mind.
+ - What could be worse than being born without sight? Being born with sight and no vision.
+ - I do not mean to object to a thorough knowledge of the famous works we read. I object only to the interminable comments and bewildering criticisms that teach but one thing: there are as many opinions as there are men.
+ - As selfishness and complaint pervert the mind, so love with its joy clears and sharpens the vision.
+ - I believe humility is a virtue, but I prefer not to use it unless it is absolutely necessary.
+ - A person who is severely impaired never knows his hidden sources of strength until he is treated like a normal human being and encouraged to shape his own life.
+ - The fearful are caught as often as the bold.
+ - If we do not like our work, and do not try to get happiness out of it, we are a menace to our profession as well as to ourselves.
+ - I, for one, love strength, daring, fortitude. I do not want people to kill the fight in them; I want them to fight for right things.
+ - Only in quietness do we possess our own minds and discover the resources of the Inner Life.
+ - Optimism, then, is a fact within my own heart. But as I look out upon life, my heart meets no contradiction. The outward world justifies my inward universe of good.
+ - I have never believed that my limitations were in any sense punishments or accidents. If I had held such a view, I could never have expected the strength to overcome them.
+ - Christmas Day is the festival of optimism.
+ - We must not creep along when our souls cry out for us to soar!
+ - The heresy of one age becomes the orthodoxy of the next.
+ - The country is governed for the richest, for the corporations, the bankers, the land speculators, and for the exploiters of labor.
+ - We still have it in our power to rise above the fears, imagined and real, and to shoulder the great burdens which destiny has placed upon us, not for our country alone, but for the benefit of all the world. That is the only destiny worthy of America.
+ - My darkness has been filled with the light of intelligence, and behold, the outer day-lit world was stumbling and groping in social blindness.
+ - I feel the delightful, velvety texture of a flower, and discover its remarkable convolutions; and something of the miracle of Nature is revealed to me.
+ - Be not dumb, obedient slaves in an army of destruction! Be heroes in an army of construction!
+ - When one comes to think of it, there are no such things as divine, immutable, or inalienable rights. Rights are things we get when we are strong enough to make good our claim on them.
+ - The best educated human being is the one who understands most about the life in which he is placed.
+ - The beginning of my life was simple and much like every other little life. I came, I saw, I conquered, as the first baby in the family always does.
+ - When one doors closes, another door opens.
+ - I hung about the dangerous frontier of “guess,” avoiding with infinite trouble to myself and others the broad valley of reason.
+ - For three things I thank God every day of my life: thanks that he has vouchsafed me knowledge of his works; deep thanks that he has set in my darkness the lamp of faith; deep, deepest thanks that I have another life to look forward to – a life joyous with light and flowers and heavenly song.
+ - I think the degree of a nation’s civilisation may be measured by the degree of enlightenment of its women.
+ - Every modern war has had its roots in exploitation.
+ - I find that fact and fancy look alike across the years that link the past with the present.
+ - We differ, blind and seeing, one from another, not in our senses, but in the use we make of them, in the imagination and courage with which we seek wisdom beyond all senses.
+ - This great republic is a mockery of freedom as long as you are doomed to dig and sweat to earn a miserable living while the masters enjoy the fruit of your toil.
+ - Once I knew the depth where no hope was and darkness lay on the face of all things. Then love came and set my soul free.
+ - For my part, I wish, with Mr. Howells, that the literature of the past might be purged of all that is ugly and barbarous in it, although I should object as much as any one to having these great works weakened or falsified.
+ - One painful duty fulfilled makes the next plainer and easier.
+ - Trying to write is very much like trying to put a Chinese puzzle together. We have a pattern in mind which we wish to work out in words; but the words will not fit the spaces, or, if they do, they will not match the design.
+ - It’s wonderful to climb the liquid mountains of the sky. Behind me and before me is God and I have no fears.
+ - Long before I learned to do a sum in arithmetic or describe the shape of the earth, Miss Sullivan had taught me to find beauty in the fragrant woods, in every blade of grass, and in the curves and dimples of my baby sister’s hand.
+ - The only moral virtue of war is that it compels the capitalist system to look itself in the face and admit it is a fraud. It compels the present society to admit that it has no morals it will not sacrifice for gain.
+ - I look upon the whole world as my fatherland, and every war has to me the horror of a family feud.
+ - Four things to learn in life: To think clearly without hurry or confusion; To love everybody sincerely; To act in everything with the highest motives; To trust God unhesitatingly.
+ - The idea of brotherhood re-dawns upon the world with a broader significance than the narrow association of members in a sect or creed.
+ - Unless we form the habit of going to the Bible in bright moments as well as in trouble, we cannot fully respond to its consolations because we lack equilibrium between light and darkness.
+ - What is worse than having no sight is being able to see but having no vision.
+ - Let pessimism once take hold of the mind, and life is all topsy-turvy, all vanity and vexation of spirit. There is no cure for individual or social disorder, except in forgetfulness and annihilation.
+ - The only real blind person at Christmas time is he who has not Christmas in his heart.
+ - My optimism is grounded in two worlds, myself and what is about me. I demand that the world be good, and lo, it obeys. I proclaim the world good, and facts range themselves to prove my proclamation overwhelmingly true.
+ - I cannot remember how I felt when the light went out of my eyes. I suppose I felt it was always night and perhaps I wondered why the day did not come.
+ - I have depended on books not only for pleasure and for the wisdom they bring to all who read, but also for that knowledge which comes to others through their eyes and their ears.
+ - Even if you have a problem, you don’t need to be one.
+ - The human being is born with an incurable capacity for making the best of things.
+ - Hold out your hands to feel the luxury of the sunbeams.
+ - I am thankful that in a troubled world no calamity can prevent the return of spring.
+ - More than at any other time, when I hold a beloved book in my hand my limitations fall from me, my spirit is free.
+ - To keep our faces toward chance and behave like free spirits in the presence of fate is strength undefeatable.
+ - As the eagle was killed by the arrow winged with his own feather, so the hand of the world is wounded by its own skill.
+ - The infinite wonders of the universe are revealed to us in exact measure as we are capable of receiving them. The keenness of our vision depends not on how much we can see, but on how much we feel.
+ - I cannot but say a word and look my disapproval when I hear that my country is spending millions for war and war engines-more, I have heard, than twice as much as the entire public school system costs the nation.
+ - The danger of having the Constitution twisted and misconstrued to support vested interests and prejudices must be guarded against if American democracy is to maintain a progressive character.
+ - The joy of surmounting obstacles that once seemed unremovable and pushing the frontier of accomplishment further-what other joy is there like it?
+ - While the right friends are near us, we feel that all is well. Our everyday life blossoms suddenly into bright possibilities.
+ - No pessimist ever discovered the secrets of the stars.
+ - Tyranny cannot defeat the power of ideas.
+ - The things you do today that you don’t have to do will determine who, what, and where you will be when it is too late to do anything about the things you should have done.
+ - Always make the most of every sense; glory in all the pleasure and beauty which the world reveals to you.
+ - We can decide to let our trials crush us, or we can convert them to new forces of good.
+ - The continued lynchings and other crimes against negroes, whether in New England or the South, and unspeakable political exponents of white supremacy, according to all recorded history, augur ill for America’s future.
+ - Smell is a fallen angel.
+ - Death is no more than passing from one room into another.
+ - The hands of those I meet are dumbly eloquent to me. The touch of some hands is an impertinence. I have met people so empty of joy, that when I clasped their frosty finger-tips, it seemed as if I were shaking hands with a northeast storm.
+ - Joy is a spiritual element that gives vicissitudes unity and significance.
+ - One must envision the higher life and behave as if it were a fact before it can unfold.
+ - The heresy of one age becomes the orthodoxy of the next. Mere tolerance has given place to a sentiment of brotherhood between sincere men of all denominations.
+ - He who marries the spirit of the age soon becomes a widower.
+ - I seldom think about my limitations, and they never make me sad. Perhaps there is just a touch of yearning at times; but it is vague, like a breeze among flowers.
+ - When indeed shall we learn that we are all related one to the other, that we are all members of one body?
+ - Many people know so little about what is beyond their short range of experience. They look within themselves – and find nothing! Therefore they conclude that there is nothing outside themselves either.
+ - When one reads hurriedly and nervously, having in mind written tests and examinations, one’s brain becomes encumbered with a lot of bric-a-brac for which there seems to be little use.
+ - Gullibility is the key to all adventures. The greenhorn is the ultimate victor in everything; it is he who gets the most out of life.
+ - I learned that it is possible for us to create light, sound and order within us no matter what calamity befall us in the outer world.
+ - Instead of being satisfied to alleviate suffering, we shall labor hard and continually to prevent it.
+ - Be heroes in an army of construction.
+ - Once it was necessary that the people should multiply and be fruitful if the race was to survive. But now to preserve the race it is necessary that people hold back the power of propagation.
+ - Truly I have looked in the very heart of darkness and refused to yield to its paralyzing influence, but in spirit I am one of those who walk the morning.
+ - Now, however, I see the folly of attempting to hitch one’s wagon to a star with a harness that does not belong to it.
+ - The world is sown with good; but unless I turn my glad thoughts into practical living and till my own field. I cannot reap a kernel of the good.
+ - Instead of comparing our lot with that of those who are more fortunate than we are, we should compare it with the lot of the great majority of our fellow men. It then appears that we are among the privileged.
+ - He who is content with what has been done is an obstacle in the path of progress.
+ - Rebuffed, but always persevering; self-reproached, but ever regaining faith; undaunted, tenacious, the heart of man labors toward immeasurably distant goals.
+ - Commercial concerns have expanded from family business to corporate wealth which is self-perpetuating and which enlightened statesmen and economists now dread as the most potent oligarchy yet produced.
+ - The power of effecting changes for the better is within ourselves, not in the favorableness of circumstances.
+ - The worst calamity: ‘To have eyes and fail to see.’
+ - The heart of a friend gives out sufficient light for us in the dark to rise by.
+ - The highest thinkers of the ages, the seers of the tribes and the nations, have been optimists.
+ - People are too prone to think that the actual is the limit of possibility. They believe that all that has been done is all that can be done.
+ - The tragic side of many architectural enterprises is that they destroy natural beauties which are a priceless possession and cannot be replaced.
+ - Great poetry needs no interpreter other than a responsive heart.
+ - Things must be felt with the heart.
+ - How futile are words in the ears of those who mourn.
+ - It is so pleasant to learn about new things. Every day I find how little I know, but I do not feel discouraged since God has given me an eternity in which to learn more.
+ - My share of the work may be limited, but the fact that it is work makes it precious.
+ - We should not think of conversion as the acceptance of a particular creed, but as a change of heart.
+ - What is the use of such terrible diligence as many tire themselves out with, if they always postpone their exchange of smiles with Beauty and Joy to cling to irksome duties and relations?
+ - The few who profit from the labor of the masses want to organize the workers into an army which will protect the interests of the capitalists.
+ - Personally I do not believe in a national agency devoted only to the negro blind because in spirit and principle I am against all segregation, and the blind already have difficulties enough without being cramped and harassed by social barriers.
+ - The best preparedness is the one that disarms the hostility of other nations and makes friends of them.
+ - There is in the blind as in the seeing an Absolute which gives truth to what we know to be true, order to what is orderly, beauty to the beautiful, touchableness to what is tangible.
+ - I rejoice to live in such a splendidly disturbing time!
+ - Good friends walk in when the old ones walk out.
+ - I will eat grandfather for dinner.
+ - Serious harm, I am afraid, has been wrought to our generation by fostering the idea that they would live secure in a permanent order of things.
+ - We betray ourselves into smallness when we think the little choices of each day are trivial.
+ - I have an unshakable belief that mankind’s higher nature is on the whole still dormant. The greatest souls reveal excellencies of mind and heart which their lesser fellows possess-hidden, it is true, but there all the same.
+ - I grow more and more suspicious of the political powers that take men away from their work and set them shooting one another.
+ - The civilization of a state should be measured by the amount of suffering it prevents and the degree of happiness it makes possible for its citizens.
+ - Be happy. Talk happiness.
+ - Surely there is no road of effort so steep but a loving deed may soften its hardshness.
+ - Certainly it is one of our sweetest experiences that when we are touched by some noble affection or pure joy, we remember the dead most tenderly, and feel more powerfully drawn to them.
+ - No matter how dull, or how mean, or how wise a man is, he feels that happiness is his indisputable right.
+ - I do not like the world as it is; so I am trying to make it a little more as I want it.
+ - Character cannot be developed in ease and quiet.
+ - Happiness is attained through fidelity to a worthy purpose.
+ - I have found out that though the ways in which I can make myself useful are few, yet the work open to me is endless.
+ - I do not remember a time since I have been capable of loving books that I have not loved Shakespeare.
+ - To get Congress to do anything.
+ - It is certain that I cannot always distinguish my own thoughts from those I read, because what I read becomes the very substance and text of my mind.
+ - No nation is wise enough to rule another.
+ - I prefer to stroll which has a buddy at nighttime, than by itself inside the light.
+ - Touch each object as if tomorrow you would never be able to feel anything again.
+ - It is not possible to refer a complex difficulty to a single cause.
+ - Few pleasures there are indeed without an aftertouch of pain, but that is the preservation which keeps them sweet.
+ - The attempt to suppress an idea has always and everywhere proved a failure.
+ - I don’t give a damn about semi-radicals!
+ - Faith reinvigorates the will, enriches the affections, and awakens a sense of creativeness. Active faith knows no fear, and it is a safeguard to me against cynicism and despair.
+
+335 quotes

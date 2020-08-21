@@ -1,0 +1,103 @@
+ - Listen, smile, agree, then do whatever you were going to do anyway.
+ - Remember that just because you hit bottom doesn’t mean you have to stay there.
+ - Worrying is like praying for something you don’t want to happen.
+ - I don’t need an Iron Man suit. I’m already a weapon of mass seduction.
+ - I think that we all do heroic things, but hero is not a noun, it’s a verb.
+ - I just think it’s good to be confident. If I’m not on my team why should anybody else be?
+ - Mediocrity is my biggest fear. I’m not afraid of total failure because I don’t think that will happen. I’m not afraid of success because that beats the hell out of failure. It’s being in the middle that scares me.
+ - I don’t think I’m in any position to give anybody advice about anything.
+ - I used to be so convinced that happiness was the goal, yet all those years I was chasing after it I was unhappy in the pursuit. Maybe the goal really should be a life that values honor, duty, good work, friends and family.
+ - To me, friendship means loving tolerance.
+ - The lesson is that you can still make mistakes and be forgiven.
+ - Discipline for me is about respect. It’s not even about self-respect; it’s about respect for life and all it offers.
+ - Wing Chun teaches you what to concentrate on, whether you’re here or out in the world dealing with problems. It’s second nature for me now. I don’t even get to the point where there’s a problem.
+ - I think life changes every year. This is just a little more comfortable.
+ - The higher the stakes, the happier I am, the better I will be.
+ - I think you end up doing the stuff you were supposed to do at the time you were supposed to do it.
+ - I’ve always felt that if you’re not on your side, why should anyone else be. So I always encourage people to be confident, and sometime even a little falsely so, just so you can give yourself an opportunity.
+ - I think it’s miraculous that anybody survives themselves.
+ - Look, even bad years are pretty good years I think.
+ - I know very little about acting. I’m just an incredibly gifted faker.
+ - And last but not the least.
+ - Peace means having a bigger stick than the other guy.
+ - I think that the power is the principle. The principle of moving forward, as though you have the confidence to move forward, eventually gives you confidence when you look back and see what you’ve done.
+ - It’s hard to get out of the barrel. It’s slippery around the edges and people are happy to see you fall back in.
+ - It’s like I have a loaded gun in my mouth and I like the taste of metal.
+ - The old saying is true, behind every good man theres an incredible woman.
+ - Give me a scotch, I’m starving.
+ - People never change because they are under threat or under duress. Never. They change because they see something that makes their life seem valuable enough to start moving toward a life worth living.
+ - If you’re anything like me there are days when you’re convinced you know more than everyone around you. Which is often confirmed by your interactions with people.
+ - There is unpanned gold in every soul you run into, no matter what walk of life they are from.
+ - Sometimes you just gotta be drop-kicked out of the nest.
+ - Worrying is like praying for something you don’t want to happen. I have such an overwhelming sense that if you’re in the right state of heart, the next right thing appears to you.
+ - If I was a lawyer, I’d be my own best client.
+ - I’m an actor, a husband, a father of two, and a full-time Avenger.
+ - At the end of the day, anything I think I’m sacrificing I’m just giving up because it makes me feel better.
+ - I don’t drink these days. I am allergic to alcohol and narcotics. I break out in handcuffs.
+ - Everyone has a story, and the story changes, and the more I can root into the truth of things – it’s so hard – I don’t think anyone ever really puts it all together. But somewhere along the way it all became fused.
+ - You have to let go of the things that are darling to you. You have to take the focus off yourself and put it on the shape of the scene and the intention of what everyone else needs.
+ - Do I want to be a hero to my son? No. I would like to be a very real human being. That’s hard enough.
+ - There’s somewhere you’re supposed to go, and if you get quiet enough, you’ll make it.
+ - I’m not used to feeling like I belong where I am.
+ - I don’t want to be so confident in myself.
+ - I thought that the grounded-ish nature of the first Iron Man and where I think the success of it was based was I think people got excited that this was a technologically possible occurrence; and didn’t Obama order an Iron Man?
+ - McDonald’s being the official restaurant of the Olympics is like smoking being the official medicine of cancer.
+ - I am in the continual process of transcending fear-based rituals.
+ - Im thinking of buying a monkey. Then I think, Why stop at one? I don’t like being limited in that way. Therefore, I’m considering a platton of monkeys, so that people will look at me and see how mellow and well-adjusted I am compared to these monkeys throwing feces around.
+ - Nothing’s a break for me. Not even the breaks are breaks.
+ - Sometimes everything you need to know to be an actor in your mid-forties, you learn before you were 15 years old.
+ - I guess the main thing is, you unconsciously take things for granted, and you think the audience is with you, because you’re with yourself.
+ - Violent ground-acquisition games such as football are in fact a crypto-fascist metaphor for nuclear war.
+ - I have a sense of destiny that you are led to the things you are supposed to do.
+ - Does any new parent, even if you’re not a first-time parent, ever really know what to do?
+ - A lot of my peer group think I’m an eccentric bisexual, like I may even have an ammonia-filled tentacle somewhere on my body. That’s okay.
+ - I make faces for cash and chicken.
+ - I never know when the seeds are being laid, I’m just like, “Wow, that’s a pretty cool scene. Is that? Are we laying seeds here?”
+ - Whenever I watch someone doing something, even if it doesn’t turn out so great, I at least admire their intentions and stuff.
+ - But I will agree that I think that things happen with people in relationships, that you might have been able to enjoy Morocco, say, if you weren’t getting out of a bad marriage. You know what I mean?
+ - I’m not a poster boy for good behavior and recovery in Hollywood, I’m just a guy who knows he has a lot to be grateful for.
+ - I’m a soldier who didn’t know how nasty the battle was going to be, and now, I’ve got a purple heart and I’m back.
+ - I wouldn’t want to see anything irreparable happen, but I also like it when seemingly irreparable thing occur and men and women find a way to move past it.
+ - I know if you talk faster and use more ten-dollar words than everyone around you, you convince half of them that they should shut up because you know what you’re talking about.
+ - It’s a very smart and heartfelt movie and that’s why, I think, we’re all drawn to it. We really showed up for this with this collective idea that it was really ambitious, but we felt we all really had something to gain from it.
+ - I’m coming from a place of total strength and humility now.
+ - I guess the issue for me is to keep things dynamic.
+ - I think paranoia goes from generation to generation. It’s convenient to imagine that there’s a few people controlling everything, that way it’s manageable and small. But that’s not life, life is messy.
+ - I’m not a method guy. I can’t be bothered to have a method. I just want to be a part of a good movie and I can’t stand to be surrounded by morons.
+ - If you’re doing a drama that has some comedic elements you can’t forget that it’s primarily a very serious film that has some light relief.
+ - You can’t go from a $2,000-a-night suite at La Mirage to a penitentiary, and really understand it, and come out a liberal.
+ - I’ve always just shown up and tried to figure out what’s for lunch and am I going to get to play some racquetball that night.
+ - You know, when you’re part of a comedic duo, you can take breaks. It’s kind of like having a partner that is good with a kid.
+ - Smoking dope and smoking coke, you are rendered defenseless. The only way out of that hopeless state is intervention.
+ - I’ve always been a fella who put most of my eggs in one basket and then take a dump in the basket but I really don’t know.
+ - But I think Kiss Kiss, Bang Bang really got that thing where, if a movie reads really funny and then has some dramatic or violent or sinister stuff in it, you can’t forget that primarily it has to be even funnier than you read it or that other stuff doesn’t work.
+ - If I was a Pokemon, I’ll either be a Psyduck or a Jigglypuff.
+ - I’ve always felt like such an outsider in this industry. Because I’m so insane I guess.
+ - I had this bad-boy-from-New York vibe going, dressed like a punk rocker with spiky hair.
+ - I really don’t want to thank my wife because I could be bussing tables at the Daily Grill right now if not for her. Jesus, what a gig that’d be.
+ - I was kind of like chasing my tail and trying to do the right thing, and was a little bit stupid. Or irresponsible, which is the same thing I guess. It’s just been really busy and I had a lot of great opportunities.
+ - I’m not 40 yet. I wouldn’t even bother comparing myself to Chaplin.
+ - I felt like a fighter who was training for a title bout that had not been booked yet.
+ - Acting is always a challenge.
+ - You have to give people something to actually write music so that you’re not just running your mouth all the time.
+ - Every time I feel that I really hit critical mass and I’m in the right place is when I feel like the director and I become a third thing, and that’s the character.
+ - I remember when people said, “Man, that’s a powerful scene in the movie!” and I was like, “We just shot this thing before lunch, I don’t know, he tears a log apart, I said some words”.
+ - When you have a good script you’re almost in more trouble than when you have a terrible script.
+ - With a terrible script you hustle and try to make it better. But with a good script it can be trouble because you rest on your laurels, so to speak, you think it’s going to translate easily.
+ - Tofu is the root of all evil, and there’s only one thing that can change a man’s mind, and that’s a modified Uzi with an extra-long clip.
+ - Pick a dysfunction and it’s a family problem.
+ - And I think for a man whose native tongue is Spanish to be able to put together a phrase like ‘cultural genocide’ just speaks to how bright he is.
+ - I didn’t have an identity. It was manufactured. My identity now? It was written on the wall by ancient forces.
+ - It’s become this really odd thing where even some of the folks who build the things that we wear for entertainment are contacted by DARPA-esque companies who are saying, “Yeah, we’re really doing that, and we want to talk to you.”
+ - Nobody learns a German aria overnight, except Jared Harris.
+ - It was a democracy in the truest and most frustrating and most rewarding sense of the word. Anybody could come in and say, “You know, I’m just not cool with that.” We’d be like, “Who’s that?” “Oh, I was just cleaning the trailers.” It was nuts.
+ - I think a hero is someone who, if abroad or traveling, they go to the GOOP website to see what shops to go to, what restaurants to eat at, what clothes to buy, and they do that not fearlessly but in spite of their fear.
+ - I’m not used to studios being ecstatic about we did and saying, “Please go do that again.”
+ - It’s weird when one movie that’s connected to another doesn’t reference that movie at all.
+ - I loved it, it’s such fun. I like that people are seeing it and then talking about it. Like when I took my son and his friends to see Napoleon Dynamite last year, we spent the next six weeks trying to explain it.
+ - The audience can feel the subtleties of the characters.
+ - I walk by studio heads and they actually look and put their hand out now, like maybe I should be on their radar.
+ - I think I’ve been lucky, being my frequent appearances on Court TV have brought to me another level than just the actor guy.
+ - I just don’t like big guys who speak cryptically and act like they understand the language better than me.
+
+101 quotes

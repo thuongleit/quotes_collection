@@ -1,0 +1,32 @@
+ - Move every day. Like taking a shower and brushing your teeth. Make it a part of your everyday life.
+ - You never know what the future brings.
+ - I chalk up the fact that I got diabetes to my body saying, ‘Dude, you have been doing wrong for way too long!’
+ - I love people who break boundaries and always create something new and fresh.
+ - It’s smarter to look at portions than to count calories.
+ - The pop-star thing bores me because it’s somebody programming someone else. Stand over here, sing that, no, sing it like this, talk like that, when they ask you this, don’t say that, say this, hold that, drive this, stay here, live there – you’re not even a human being. You’re a puppet.
+ - My ego is really good. I don’t need to watch myself on TV, like some others.
+ - Accept who you are and try and make the best of that.
+ - I believe that you should move and eat right.
+ - If you can turn your wants into your needs, you can do anything.
+ - I’ve sung background for a couple of bands.
+ - I was having serious issues with becoming a diabetic.
+ - I feel it’s my responsibility to turn people on to great music.
+ - I’m still true to my Southern roots.
+ - You can only be free as an artist if you’re free as a person.
+ - Figure out who you are.
+ - I used to think I was a singer; I had my own delusions about it.
+ - I think any show after the Super Bowl will have huge numbers.
+ - The public always picks quality.
+ - There is a lot of territory out there still to explore TV-wise, show-wise, movie-wise, everything.
+ - If it’s music, I love it.
+ - If I’m paying money to come to see you, you shouldn’t look like everybody else in the crowd.
+ - I’m a much healthier eater and I’ve lost quite a bit of weight over the years.
+ - If you look at the charts every year, there may be five or ten memorable songs from each year.
+ - You can never go more than three or four hours without having something to nibble on or eat – you have to graze all day long.
+ - You know, I’m kind of a wild crazy workaholic guy.
+ - I’m actually a pretty good tennis player!
+ - I think there’s an abundance of talent in America and there will never be not a lot of talent out there.
+ - When you’re used to being in the public eye, if you’ve got a disease, you’ve got to own up to it. It’s about being about it, not running from it.
+ - I always wanted to be a leading man!
+
+30 quotes

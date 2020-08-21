@@ -1,0 +1,68 @@
+ - Within our dreams and aspirations we find our opportunities.
+ - Success is attaining your dream while helping others to benefit from that dream materializing.
+ - I want to be great, something special.
+ - Everything you want to know about a fighter is in his eyes. The look in his eyes tells the truth.
+ - You have to know you can win. You have to think you can win. You have to feel you can win.
+ - Boxing’s a poor man’s sport. We can’t afford to play golf or tennis. It is what it is. It’s kept so many kids off the street. It kept me off the street.
+ - It’s hard to talk about yourself.
+ - I always expect unexpected challenges.
+ - Aaron Pryor wants to get into the ring with me. He wants to be able to retire, and he will. For health reasons.
+ - I’ve always believed that you can be whatever you want to be if you are willing to sacrifice and dedicate yourself.
+ - The only way for a fighter to get back in shape is to fight his way back.
+ - People can do more than they ever believe they can do. Physically, mentally, academically. You have to be pushed. It hurts. But it’s worth it, and it’s a great thing.
+ - I fought tall fighters, short fighters, strong fighters, slow fighters, sluggers and boxers. It was either learn or get knocked off.
+ - It’s different when you become a professional, because you also have to become a businessman, and that takes something away from it.
+ - I remember all the important fights. Vividly. In detail.
+ - I think an athlete should be honest. I know it’s difficult, but if a guy knocked me on my can, I couldn’t very well say, I slipped.
+ - Someone once said there was a comparison between Sugar Ray Leonard and Sugar Ray Robinson. Believe me, there’s no comparison. Sugar Ray Robinson was the greatest.
+ - Boxing brings out my aggressive instinct, not necessarily a killer instinct.
+ - My toughest fight was myself. For me to disclose and let things out was not easy because we don’t want to seem weak or like we are different, but I learned that it’s okay.
+ - I found boxing when I was 14 years old. I went down to the gym because my brother, who used to beat me up all the time, introduced me to boxing. I found boxing to be a sport that I felt safe in because I controlled what was in those four squares.
+ - A fighter never knows when it’s the last bell. He doesn’t want to face that.
+ - I consider myself blessed. I consider you blessed. We’ve all been blessed with God-given talents. Mine just happens to be beating people up.
+ - They say that I’m stubborn, and my wife says that, too, but it’s paid off so far.
+ - Spread your love and fly.
+ - I wouldnt change anything because the mistakes and the hurt are as important as all the great fights. They made me who I am today.
+ - I’m a free agent. I haven’t allowed any promoters to have exclusive options on my fight. I don’t need a promoter.
+ - I’m so opposite of my profession. No one – particularly my mother and father – ever thought I was going to be a boxer because I always felt that football and baseball were too dangerous. I was just such a quiet kid.
+ - Inactivity is the biggest sin in boxing.
+ - While each of us faces enormous challenges every day, it’s not the sins we commit that will define us, its how we respond to them.
+ - To be the best, you need to spend hours and hours and hours running, hitting the speed bag, lifting weights and focusing on training.
+ - I lay around and wonder why you were always there for me.
+ - Holyfield is nothing but class, and I think he’s a breath of fresh air for the sport.
+ - I had a drug problem. I’d go to parties, take a leak, and there was cocaine right there. I was 25 when it started, rich, famous, and retired.
+ - I was painfully initiated into boxing, because the guys I fought were a lot bigger than me.
+ - You just don’t heal that easy unless you’re young.
+ - Duran always disturbs me. The guy is just weird. Before our first fight, both Duran and his wife gave my wife the finger.
+ - Tommy Hearns seemed like an indestructible machine, so to beat him, I think that was my defining moment, the pinnacle.
+ - Boxing is the ultimate challenge. There’s nothing that can compare to testing yourself the way you do every time you step in the ring.
+ - It is wonderful. It truly is. It is the only thing that is real! It’s you against me, it’s challenging another guy’s manhood. With gloves. Words cannot describe that feeling of being a man, of being a gladiator, of being a warrior. It’s irreplaceable.
+ - When I turned pro, Muhammad Ali was laying back, and I was able to fill up an area that was empty.
+ - My very best memory of Montreal was the moment inside the Olympic arena when I was waiting under the stadium and those majestic gates opened up. It was a whole other world.
+ - Before I fight, I always pray that no one gets hurt.
+ - I think I’ve become one of the best finishers in boxing; if I hurt a guy, I normally take him out.
+ - I wanted to be like Bruce Jenner.
+ - Although it was a great accomplishment to win a gold medal, as soon as they put it on you, that’s it; your career is over.
+ - When I’m not in training. I’ll walk around the streets at 153, but it’s not solid; it’s my socializing weight.
+ - If I hadn’t had the talent, the networks wouldn’t have televised my fights. No one has made me; I made myself. I paid my dues.
+ - Sugar Ray Robinson was probably the greatest pound-for-pound fighter of all time.
+ - I’m a competitor and a very proud man. If a guy beats me once, he’ll have to do it again to make me believe him.
+ - Before the start of the ’76 Olympics, I’d had 160 amateur fights. I won 155 and lost five.
+ - Boxing was not something I truly enjoyed. Like a lot of things in life, when you put the gloves on, it’s better to give than to receive.
+ - Boxing was the only career where I wouldn’t have to start out at the bottom. I had a good resume.
+ - The Ricky Hatton that beat Kostya Tszyu in 2005 can beat Floyd Mayweather, he was so focused and in such amazing physical shape that he would have given anybody at that level a tough time.
+ - I’ve always been quiet and kind of shy. I’m sociable, but I would probably migrate to a corner.
+ - Ali’s belief in himself was something I picked up on, and it’s become my own philosophy.
+ - I’ve never believed in tying myself up in a long-range contract, and I’ve been very outspoken on that subject.
+ - Bruce Lee was an artist and, like him, I try to go beyond the fundamentals of my sport. I want the public to see a knockout in the making.
+ - Except for Ali, fighters had never been marketable.
+ - I’m not religious, but I believe that what I have is a gift, and I respect it and live up to it.
+ - I tried the gloves on, and it just felt so natural. From that moment I became so embedded in boxing. I found a friend in boxing.
+ - I want my fights to be seen as plays that have a beginning, a middle and an end.
+ - In Italy, I had an Afro, and a lot of the kids came up and felt my hair. It really was funny. I wish I had understood Italian.
+ - I’ll think, If this is his first punch, how are the others gonna feel? That’s the only fear I have for myself.
+ - Generally, the more weight you put on, the less effective you are.
+ - Were all given some sort of skill in life. Mine just happens to be beating up on people.
+ - No one but myself thought I could beat guys like Tommy Hearns or Roberto Duran.
+
+66 quotes

@@ -1,0 +1,42 @@
+ - Creo que todos tenemos un poco de esa bella locura que nos mantiene andando cuando todo alrededor es tan insanamente cuerdo.
+ - Si te caes te levanto y sino me acuesto contigo.
+ - Creo que no te quiero, que solamente quiero la imposibilidad tan obvia de quererte. Como el guante izquierdo enamorado de la mano derecha.
+ - A short story relies on those values that make poetry and jazz what they are: tension, rhythms, inner beat, into unforeseen within foreseen parameters.
+ - I think we all have a little bit of that beautiful madness that keeps us walking when everything around us is so insanely sane.
+ - In quoting others, we cite ourselves.
+ - All profound distraction opens certain doors. You have to allow yourself to be distracted when you are unable to concentrate.
+ - The novel wins by points, the short story by knockout.
+ - Of all our feelings the only one which really doesn’t belong to us is hope. Hope belongs to life, it’s life itself defending itself. Etcetera.
+ - Only in dreams, in poetry, in play do we sometimes arrive at what we were before we were this thing that, who knows, we are.
+ - I sometimes longed for someone who, like me, had not adjusted perfectly with his age, and such a person was hard to find; but I soon discovered cats, in which I could imagine a condition like mine, and books, where I found it quite often.
+ - She would smile and show no surprise, convinced as she was, the same as I, that casual meetings are apt to be just the opposite, and that people who make dates are the same kind who need lines on their writing paper, or who always squeeze up from the bottom on a tube of toothpaste.
+ - The evolution from happiness to habit is one of death’s best weapons.
+ - Everything can be killed except nostalgia for the kingdom, we carry it in the color of our eyes, in every love affair, in everything that deeply torments and unties and tricks.
+ - Memory is a mirror that scandalously lies.
+ - When one wants to write, one writes. If one is condemned to write, one writes.
+ - Only by living absurdly is it possible to break out of this infinite absurdity.
+ - There was a time when I thought a great deal about the axolotls. I went to see them at the aquarium at the Jardin des Plantes and stayed for hours watching them, observing their immobility; their faint movements. Now I am an axolotl.
+ - Where are the beginnings, the endings, and most important, the middles?
+ - Human history is the sad result of each one looking out for himself.
+ - I think it is vanity to want to put into a story anything but the story itself.
+ - Why have we had to invent Eden, to live submerged in the nostalgia of a lost paradise, to make up utopias, propose a future for ourselves?
+ - The modern story begun, one might say, with Edgar Allan Poe, which proceeds inexorably, like a machine destined to accomplish its mission with the maximum economy of means.
+ - For me the thing that signals a great story is what we might call its autonomy, the fact that it detaches itself from its author like a soap bubble blown from a clay pipe.
+ - I realized that searching was my symbol, the emblem of those who go out at night with nothing in mind, the motives of a destroyer of compasses.
+ - The mysterious does not spell itself out in capital letters, as many writers believe, but is always between, an interstice.
+ - The unusual is only found in a very small percentage, except in literary creations, and that is exactly what makes literature.
+ - The short-story writer knows that he can’t proceed cumulatively, that time is not his ally. His only solution is to work vertically, heading up or down in literary space.
+ - Wordplay hides a key to reality that the dictionary tries in vain to lock inside every free word.
+ - After the age of 50 we begin to die little by little in the deaths of others.
+ - Time is born in the eyes, everybody knows that.
+ - The more a book is like an opium pipe, the more the Chinaman reader is satisfied with it and tends to discuss the quality of the drug rather than its lethargic effects.
+ - I can’t think of another writer who can move me as surreptitiously as Vian does.
+ - Now that I think about it, it seems to me that’s what Idiocy is: the ability to be enthusiastic all the time about anything you like, so that a drawing on the wall does not have to be diminished by the memory of the frescoes of Giotto in Padua.
+ - La Maga did not know that my kisses were like eyes which began to open up beyond her, and that I went along outside as if I saw a different concept of the world, the dizzy pilot of a black prow which cut the water of time and negated it.
+ - We no longer believe because it is absurd: it is absurd because we must believe.
+ - Nothing is more comical than seriousness understood as a virtue that has to precede all important literature.
+ - I have never described this to you before, not so much, I don’t think, from lack of truthfulness as that, just naturally, one is not going to explain to people at large that from time to time one vomits up a small rabbit.
+ - Salt and the center of the world have to be there, in that spot on the tablecloth.
+ - Happy was she who could believe without seeing, who was at one with the duration and continuity of life.
+
+40 quotes

@@ -1,0 +1,61 @@
+ - You are personally responsible for becoming more ethical than the society you grew up in.
+ - World domination is such an ugly phrase. I prefer to call it world optimisation.
+ - By far the greatest danger of Artificial Intelligence is that people conclude too early that they understand it.
+ - The AI does not hate you, nor does it love you, but you are made out of atoms which it can use for something else.
+ - Not every change is an improvement but every improvement is a change; you can’t do anything BETTER unless you can manage to do it DIFFERENTLY, you’ve got to let yourself do better than other people!
+ - There is no justice in the laws of nature, no term for fairness in the equations of motion. The Universe is neither evil, nor good, it simply does not care. The stars don’t care, or the Sun, or the sky. But they don’t have to! WE care! There IS light in the world, and it is US!
+ - Rationality is the master lifehack which distinguishes which other lifehacks to use.
+ - If you don’t sign up your kids for cryonics then you are a lousy parent.
+ - I’m lazy! I hate work! Hate hard work in all its forms! Clever shortcuts, that’s all I’m about!
+ - Moore’s Law of Mad Science: Every eighteen months, the minimum IQ necessary to destroy the world drops by one point.
+ - Remember, if you succeed in everything you try in life, you’re living below your full potential and you should take up more difficult or daring things.
+ - Through rationality we shall become awesome, and invent and test systematic methods for making people awesome, and plot to optimize everything in sight, and the more fun we have the more people will want to join us.
+ - After all, if you had the complete decision process, you could run it as an AI, and I’d be coding it up right now.
+ - Your strength as a rationalist is your ability to be more confused by fiction than by reality. If you are equally good at explaining any outcome, you have zero knowledge.
+ - Existential depression has always annoyed me; it is one of the world’s most pointless forms of suffering.
+ - Science has heroes, but no gods. The great Names are not our superiors, or even our rivals, they are passed milestones on our road; and the most important milestone is the hero yet to come.
+ - If you want to maximize your expected utility, you try to save the world and the future of intergalactic civilization instead of donating your money to the society for curing rare diseases and cute puppies.
+ - Intelligence is the source of technology. If we can use technology to improve intelligence, that closes the loop and potentially creates a positive feedback cycle.
+ - If people got hit on the head by a baseball bat every week, pretty soon they would invent reasons why getting hit on the head with a baseball bat was a good thing.
+ - The police officer who puts their life on the line with no superpowers, no X-Ray vision, no super-strength, no ability to fly, and above all no invulnerability to bullets, reveals far greater virtue than Superman – who is only a mere superhero.
+ - Every mystery ever solved had been a puzzle from the dawn of the human species right up until someone solved it.
+ - Lonely dissent doesn’t feel like going to school dressed in black. It feels like going to school wearing a clown suit.
+ - There are no surprising facts, only models that are surprised by facts; and if a model is surprised by the facts, it is no credit to that model.
+ - I see little hope for democracy as an effective form of government, but I admire the poetry of how it makes its victims complicit in their own destruction.
+ - Many have stood their ground and faced the darkness when it comes for them. Fewer come for the darkness and force it to face them.
+ - I ask the fundamental question of rationality: Why do you believe what you believe? What do you think you know and how do you think you know it?
+ - Why does any kind of cynicism appeal to people? Because it seems like a mark of maturity, of sophistication, like you’ve seen everything and know better. Or because putting something down feels like pushing yourself up.
+ - If the iron is hot, I desire to believe it is hot, and if it is cool, I desire to believe it is cool.
+ - What people really believe doesn’t feel like a BELIEF, it feels like the way the world IS.
+ - There were mysterious questions, but a mysterious answer was a contradiction in terms.
+ - We tend to see individual differences instead of human universals. Thus, when someone says the word ‘intelligence,’ we think of Einstein instead of humans.
+ - If you want to build a recursively self-improving AI, have it go through a billion sequential self-modifications, become vastly smarter than you, and not die, you’ve got to work to a pretty precise standard.
+ - The purpose of a moral philosophy is not to look delightfully strange and counterintuitive or to provide employment to bioethicists. The purpose is to guide our choices toward life, health, beauty, happiness, fun, laughter, challenge, and learning.
+ - There is light in the world, and it is us!
+ - And someday when the descendants of humanity have spread from star to star they won’t tell the children about the history of Ancient Earth until they’re old enough to bear it and when they learn they’ll weep to hear that such a thing as Death had ever once existed.
+ - To worship a sacred mystery was just to worship your own ignorance.
+ - I’m wondering if there’s a spell to make lightning flash in the background whenever I make an ominous resolution.
+ - If cryonics were a scam it would have far better marketing and be far more popular.
+ - There’s a popular concept of ‘intelligence’ as book smarts, like calculus or chess, as opposed to, say, social skills. So people say that ‘it takes more than intelligence to succeed in human society.’ But social skills reside in the brain, not the kidneys.
+ - That which the truth nourishes should thrive.
+ - It is triple ultra forbidden to respond to criticism with violence. There are a very few injunctions in the human art of rationality that have no ifs, ands, buts, or escape clauses. This is one of them. Bad argument gets counterargument. Does not get bullet. Never. Never ever never for ever.
+ - We underestimate the distance between ourselves and others. Not just inferential distance, but distances of temperament and ability, distances of situation and resource, distances of unspoken knowledge and unnoticed skills and luck, distances of interior landscape.
+ - A burning itch to know is higher than a solemn vow to pursue truth. To feel the burning itch of curiosity requires both that you be ignorant, and that you desire to relinquish your ignorance.
+ - Singularitarians are the munchkins of the real world. We just ignore all the usual dungeons and head straight for the cycle of infinite wish spells.
+ - Since the rise of Homo sapiens, human beings have been the smartest minds around. But very shortly – on a historical scale, that is – we can expect technology to break the upper bound on intelligence that has held for the last few tens of thousands of years.
+ - You cannot rationalize what is not rational to begin with – as if lying were called truthization. There is no way to obtain more truth for a proposition by bribery, flattery, or the most passionate argument – you can make more people believe the proposition, but you cannot make it more true.
+ - I keep trying to explain to people that the archetype of intelligence is not Dustin Hoffman in ‘The Rain Man;’ it is a human being, period. It is squishy things that explode in a vacuum, leaving footprints on their moon.
+ - The strength of a theory is not what it allows, but what it prohibits; if you can invent an equally persuasive explanation for any outcome, you have zero knowledge.
+ - I only want power so I can get books.
+ - Let the winds of evidence blow you about as though you are a leaf, with no direction of your own. Beware lest you fight a rearguard retreat against the evidence, grudgingly conceding each foot of ground only when forced, feeling cheated. Surrender to the truth as quickly as you can.
+ - I don’t want to rule the universe. I just think it could be more sensibly organised.
+ - Maybe you just can’t protect people from certain specialized types of folly with any sane amount of regulation, and the correct response is to give up on the high social costs of inadequately protecting people from themselves under certain circumstances.
+ - The people I know who seem to make unusual efforts at rationality, are unusually honest, or, failing that, at least have unusually bad social skills.
+ - This is one of theprimary mechanisms whereby, if a fool says the sun is shining, we do notcorrectly discard this as irrelevant nonevidence, but rather find ourselvesimpelled to say that it must be dark outside.
+ - To confess your fallibility and then do nothing about it is not humble; it is boasting of your modesty.
+ - I am tempted to say that a doctorate in AI would be negatively useful, but I am not one to hold someone’s reckless youth against them – just because you acquired a doctorate in AI doesn’t mean you should be permanently disqualified.
+ - When you think of intelligence, don’t think of a college professor; think of human beings as opposed to chimpanzees. If you don’t have human intelligence, you’re not even in the game.
+ - By and large, the answer to the question “How do large institutions survive?” is “They don’t!” The vast majority of large modern-day institutions some of them extremely vital to the functioning of our complex civilization simply fail to exist in the first place.
+ - When you are older, you will learn that the first and foremost thing which any ordinary person does is nothing.
+
+59 quotes

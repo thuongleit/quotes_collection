@@ -1,0 +1,36 @@
+ - Lessons not learned in blood are soon forgotten.
+ - I had to prove myself to a lot of different people.
+ - The thing about courage is it’s something that we have to learn and relearn our whole lives. It’s not just in you, it’s in every choice we make every day.
+ - The fact that you touched somebody’s soul or made them laugh-that’s a wonderful thing.
+ - Sometimes along the way in my life I don’t want a smart woman right now, I want a dumb woman. But then you think, ‘That doesn’t work, now I want a smart woman.’ Then you get a smart woman and you go, ‘No, that doesn’t work.’ So it’s just killing me right now.
+ - I appreciate and love women for many reasons, tall and small, plump and skinny, and crazy and demure. I see beauty in all of them.
+ - Iceland is 50 percent Celtic blood, from the females that they stole from us, which is why our country has only got dogs left. It was a joke! I’ll never be let back in Scotland again!
+ - My Range Rover is great for LA. You can take surfboards on it and stick some bikes in the back. And if you kidnap people you could tie them up in the back, there’s space for your chloroform...
+ - I think I get laid less now than I used to, because I’m way more paranoid now.
+ - I have a level of fear going into every project, and that’s what keeps me going.
+ - I love to do films of all shapes and sizes and feelings and genres. So for me to go from Tomb Raider straight into Dear Frankie, there’s nothing that excites me more than to keep mixing it up.
+ - I love a girl with a good sense of humour, who is confident but who has a sweetness to her – that melts my heart.
+ - Up in the north of Scotland, a lot of the villages are completely Viking names. A lot of Vikings came down and settled in Scotland and in Ireland. And a lot of them didn’t, but they took plenty of us with them – mostly the chicks.
+ - When I went to Scotland to do another movie, I would sing with a coach up there and then when I went to New York I sang with a coach over there-I mean I’ve now sung with coaches in LA, New York, London, Glasgow, St Louis and Rio de Janeiro!
+ - In Scotland I’m just like a lot of other guys, but in America I’m seen as a very strong, masculine guy.
+ - I sang in a rock band when I was training as a lawyer. You know, not professional, we just did it for fun. We just did gigs all over Edinburgh and some in Glasgow and some at festivals.
+ - I had to get used to wearing a mask and wearing a prosthetic and performing with those things while singing and expressing myself through stylized movement, while keeping it as human as possible so the audience could be closer to the horror of the Phantom.
+ - I went from somebody who didn’t sing to somebody who didn’t speak.
+ - The Phantom, as well as being backed up by that music, it just so was a role that I identified with so powerfully. From the first second that I walked on to perform.
+ - I had to go and sing with the musical director of the film, Simon Lee, who is just incredible, and it went great. I sang with him about five things, things we’d worked on. And then I went to sing for Andrew Lloyd Weber.
+ - When I was 12, I was in Oliver! at a theater in Glasgow.
+ - If you just tell the story of what the storys about, then it sparks curiosity, but I think it also arouses suspicion, as you say, that it could be overly sentimental. But it so isnt. And I think it was all about doing the inner work and then underplaying everything.
+ - I mean, I made The Phantom, although The Phantom was, believe it or not, an independent film. It was just a very large, expensive independent film.
+ - Wilbur brought the vision and Rodney executed it.
+ - Theres a great sense of achievement, testosterone, fun, being able to live out your masculinity when you play an action role or an action-adventure or a real tough-guy role.
+ - The truth is never pretty.
+ - Generally I don’t like doing remakes, but I think that’s more in the cynical world of Hollywood where normally remakes are purely for commercial reasons.
+ - When I’m making a movie, it’s making use of my creative juices, and it fills me up with what really is – I think my purpose here is to tell stories.
+ - I was born in Glasgow. But my family is pretty much from a little town called Paisley, famous for its cotton mills and paisley pattern.
+ - I started singing for The Phantom in January, and we started filming in October and I sang all the way through to the next June. In fact, I was singing for about two months before I even knew I had the role.
+ - Funnily enough, when I originally went in for my screen test, that set was already built.
+ - The Scots will do anything to beat the English or just to see them lose, but I’ve never bought into that really.
+ - My manager and my agents, they go over my contracts.
+ - I always find stuff in my characters to relate to.
+
+34 quotes

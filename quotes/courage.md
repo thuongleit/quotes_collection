@@ -1,0 +1,102 @@
+ - It’s better to be a lion for a day than a sheep all your life. ~~Elizabeth Kenny
+ - Believe you can and you’re halfway there. ~~Theodore Roosevelt
+ - Be brave. Take risks. Nothing can substitute experience. ~~Paulo Coelho
+ - A ship is safe in harbor, but that’s not what ships are for. ~~William G.T. Shedd
+ - Anyone can give up; it is the easiest thing in the world to do. But to hold it together when everyone would expect you to fall apart, now that is true strength. ~~Chris Bradford
+ - Don’t be afraid of your fears. They’re not there to scare you. They’re there to let you know that something is worth it. ~~C. JoyBell C.
+ - Believe and act as if it were impossible to fail. ~~Charles F. Kettering
+ - Courage is not the absence of fear, but rather the assessment that something else is more important than fear. ~~Franklin D. Roosevelt
+ - You cannot swim for new horizons until you have courage to lose sight of the shore. ~~William Faulkner
+ - The secret of happiness is freedom, the secret of freedom is courage. ~~Carrie Jones
+ - Clear thinking requires courage rather than intelligence. ~~Thomas Stephen Szasz
+ - Courage isn’t having the strength to go on - it is going on when you don’t have strength. ~~Napoleon
+ - Everyone has talent. What is rare is the courage to follow the talent to the dark place where it leads. ~~Erica Jong
+ - Those who dare to fail miserably can achieve greatly. ~~John F. Kennedy
+ - Take chances, make mistakes. That’s how you grow. Pain nourishes your courage. You have to fail in order to practice being brave. ~~Mary Tyler Moore
+ - Extraordinary people survive under the most terrible circumstances and they become more extraordinary because of it. ~~Robertson Davies
+ - Creativity requires the courage to let go of certainties. ~~Erich Fromm
+ - Courage doesn’t always roar. Sometimes courage is the little voice at the end of the day that says I’ll try again tomorrow. ~~Mary Anne Radmacher
+ - I don’t focus on what I’m up against. I focus on my goals and I try to ignore the rest. ~~Venus Williams
+ - Live out of your imagination, not your history. ~~Stephen R. Covey
+ - Doubt kills more dreams than failure ever will. ~~Suzy Kassem
+ - Scared is what you’re feeling. Brave is what you’re doing. ~~Emma Donoghue
+ - It takes a lot of courage to show your dreams to someone else. ~~Erma Bombeck
+ - Without fear there cannot be courage. ~~Christopher Paolini
+ - Develop an attitude of gratitude, and give thanks for everything that happens to you, knowing that every step forward is a step toward achieving something bigger and better than your current situation. ~~Brian Tracy
+ - Shallow men believe in luck or in circumstance. Strong men believe in cause and effect. ~~Ralph Waldo Emerson
+ - Freedom lies in being bold. ~~Robert Frost
+ - Courage is grace under pressure. ~~Ernest Hemingway
+ - The key to success is for you to make a habit throughout your life of doing the things you fear. ~~Brian Tracy
+ - Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen. ~~Winston Churchill
+ - He who is not courageous enough to take risks will accomplish nothing in life. ~~Muhammad Ali
+ - When I'm old and dying, I plan to look back on my life and say, ‘Wow, that was an adventure,’ not, ‘Wow, I sure felt safe.’ ~~Tom Preston-Werner
+ - Being deeply loved by someone gives you strength, while loving someone deeply gives you courage. ~~Lao Tzu
+ - Accept the challenges so that you can feel the exhilaration of victory. ~~George S. Patton Jr.
+ - A man with outward courage dares to die; a man with inner courage dares to live. ~~Lao Tzu
+ - Courage is resistance to fear, mastery of fear, not absence of fear. ~~Mark Twain
+ - Courage is never to let your actions be influenced by your fears. ~~Arthur Koestler
+ - The most courageous act is still to think for yourself. Aloud. ~~Coco Chanel
+ - If you could get up the courage to begin, you have the courage to succeed. ~~David Viscott
+ - You’ve got to follow your passion. You’ve got to figure out what it is you love – who you really are. And have the courage to do that. I believe that the only courage anybody ever needs is the courage to follow your own dreams. ~~Oprah Winfrey
+ - Success is not final, failure is not fatal: it is the courage to continue that counts. ~~Winston Churchill
+ - I learned that courage was not the absence of fear, but the triumph over it. The brave man is not he who does not feel afraid, but he who conquers that fear. ~~Nelson Mandela
+ - With enough courage, you can do without a reputation. ~~Margaret Mitchell
+ - Life shrinks or expands in proportion to one’s courage. ~~Anaïs Nin
+ - Courage is found in unlikely places. ~~J. R. R. Tolkien
+ - Do not fear mistakes. You will know failure. Continue to reach out. ~~Benjamin Franklin
+ - It takes a great deal of bravery to stand up to our enemies, but just as much to stand up to our friends. ~~J.K. Rowling
+ - Fearlessness is like a muscle. I know from my own life that the more I exercise it the more natural it becomes to not let my fears run me. ~~Arianna Huffington
+ - The man who goes farthest is generally the one who is willing to do and dare. The sure-thing boat never gets far from shore. ~~Dale Carnegie
+ - The bravest are surely those who have the clearest vision of what is before them, glory and danger alike, and yet notwithstanding go out to meet it. ~~Thucydides
+ - It takes as much courage to have tried and failed as it does to have tried and succeeded. ~~Anne Morrow Lindbergh
+ - How few there are who have courage enough to own their faults, or resolution enough to mend them. ~~Benjamin Franklin
+ - Have courage for the great sorrows of life and patience for the small ones; and when you have laboriously accomplished your daily task, go to sleep in peace. ~~Victor Hugo
+ - Courage – a perfect sensibility of the measure of danger, and a mental willingness to endure it. ~~William T. Sherman
+ - Courage is like love, it must have hope for nourishment. ~~Napoleon
+ - Above all, we must realize that no arsenal, or no weapon in the arsenals of the world, is so formidable as the will and moral courage of free men and women. It is a weapon our adversaries in today's world do not have. ~~Ronald Reagan
+ - If it scares you, it might be a good thing to try. ~~Seth Godin
+ - Fear doesn’t exist anywhere except in the mind. ~~Dale Carnegie
+ - Good timber does not grow with ease; the stronger the wind, the stronger the trees. ~~J. Willard Marriott
+ - Fortune favours the brave. ~~Latin proverb
+ - Have the courage to act instead of react. ~~Oliver Wendell Holmes
+ - Be courageous. It’s one of the only places left uncrowded. ~~Anita Roddick
+ - One must from time to time attempt things that are beyond one’s capacity. ~~Pierre-Auguste Renoir
+ - Be larger than your task. ~~Orison Swett Marden
+ - All you need is the plan, the road map, and the courage to press on to your destination. ~~Earl Nightingale
+ - Discipline is built by consistently performing small acts of courage. ~~Robin S. Sharma
+ - He who moves not forward, goes backward. ~~Johann Wolfgang von Goethe
+ - Courage means going against majority opinion in the name of the truth. ~~Václav Havel
+ - There’s plenty of intelligence in the world, but the courage to do things differently is in short supply. ~~Marilyn Vos Savant
+ - It is never safe to look into the future with eyes of fear. ~~E. H. Harriman
+ - If you’re willing to put yourself and your dreams on the line, at the very least you’ll discover an inner strength you may not have known existed. ~~Kurt Warner
+ - Even in a world that’s being shipwrecked, remain brave and strong. ~~Hildegard of Bingen
+ - Optimism is the foundation of courage. ~~Nicholas Murray Butler
+ - The difference between getting somewhere and nowhere is the courage to make an early start. The fellow who sits still and does just what he is told will never be told to do big things. ~~Charles M. Schwab
+ - Bravery is the solution to regret. ~~Robin S. Sharma
+ - Those who lack the courage will always find a philosophy to justify it. ~~Albert Camus
+ - Leaps of innovation require a bravery that borders on absurdity. ~~Astro Teller
+ - I’ve seen extreme bravery from the least likely of people. Life is about the moments when it’s all gone wrong. That’s when we define ourselves. ~~Bear Grylls
+ - In life you can either follow your fears or be led by your values, by your passions. ~~William Sloane Coffin, Jr.
+ - You can’t catch the big fish by skimming the surface. ~~Andy Gilbert
+ - It is only when we are no longer fearful that we begin to create. ~~J. M. W. Turner
+ - Vulnerability is our most accurate measurement of courage. ~~Brené Brown
+ - Part of courage is simple consistency. ~~Peggy Noonan
+ - Either life entails courage, or it ceases to be life. ~~E. M. Forster
+ - It’s when you run away that you’re most liable to stumble. ~~Casey Robinson
+ - Sometimes it takes courage to give into temptation. ~~Oscar Wilde
+ - The block of granite which was an obstacle in the pathway of the weak, became a stepping-stone in the pathway of the strong. ~~Thomas Carlyle
+ - It takes courage to be creative. Just as soon as you have a new idea, you are in a minority of one. ~~Ellis Paul Torrance
+ - The world is in a constant conspiracy against the brave. It’s the age-old struggle: the roar of the crowd on the one side, and the voice of your conscience on the other. ~~Douglas MacArthur
+ - The world is in a constant conspiracy against the brave. ~~Douglas MacArthur
+ - Courage isn’t absenct of fear, it is the awareness that something else is important. ~~Stephen R. Covey
+ - It takes someone with a vision of the possibilities to attain new levels of experience. Someone with the courage to live his dreams. ~~Les Brown
+ - You can’t test courage cautiously. ~~Annie Dillard
+ - Courage is fear holding on a minute longer. ~~George S. Patton Jr.
+ - Make voyages. Attempt them. There’s nothing else. ~~Tennessee Williams
+ - Courage is rightly considered the foremost of the virtues, for upon it all others depend. ~~Winston Churchill
+ - It is from numberless diverse acts of courage and belief that human history is shaped. ~~Robert F. Kennedy
+ - A great deal of talent is lost to the world for want of a little courage. ~~Sydney Smith
+ - It takes a lot of courage to face up to things you can’t do because we feed ourselves so much denial. ~~Zoe Saldana
+ - It is in the small things we see it. The child’s first step, as awesome as an earthquake. The first time you rode a bike, wallowing up the sidewalk. ~~Anne Sexton
+
+100 quotes

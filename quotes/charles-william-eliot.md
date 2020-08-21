@@ -1,0 +1,24 @@
+ - Books are the quietest and most constant of friends; they are the most accessible and wisest of counselors, and the most patient of teachers.
+ - The Library is the heart of the University.
+ - One could get a first-class education from a shelf of books five feet long.
+ - Books are the quietest and most constant of friends.
+ - The best way to secure future happiness is to be as happy as is rightfully possible to-day.
+ - Philosophy is the thoughts of men about human thinking, reasoning and imagining, and the real values in human existence.
+ - Be unselfish. That is the first and final commandment for those who would be useful and happy in their usefulness. If you think of yourself only, you cannot develop because you are choking the source of development, which is spiritual expansion through thought for others.
+ - All business proceeds on beliefs, or judgements of probabilities, and not on certainties.
+ - The most satisfactory thing in all this earthly life is to be able to serve our fellow-beings-first, those who are bound to us by ties of love, then the wider circle of fellow-townsmen, fellow-countrymen, or fellow-men. To be of service is a solid foundation for contentment in this world.
+ - You know that it is only through work that you can achieve anything, either in college or in the world.
+ - The efficient man is the man who thinks for himself.
+ - I have a conviction that a few weeks spent in a well organized summer camp may be of more value educationally than a whole year of formal school work.
+ - Messenger of sympathy and love, Servant of parted friends, Consoler of the lonely, Bond of the scattered family, Enlarger of the common life.
+ - Nobody has any right to find life uninteresting or unrewarding who sees within the sphere of his own activity a wrong he can help to remedy, or within himself an evil he can hope to overcome.
+ - The fruit of liberal education is not learning, but the capacity and desire to learn, not knowledge, but power.
+ - I recognize but one mental acquisition as a necessary part of the education of a lady or gentlemen, namely, an accurate and refined use of the mother tongue.
+ - Truth and right are above utility in all realms of thought and action.
+ - Let us remember that the times which future generations delight to recall are not those of ease and prosperity, but those of adversity bravely borne.
+ - When blocked or defeated in an enterprise I had much at heart, I always turned immediately to another field of work where progress looked possible, biding my time for a chance to resume the obstructed road.
+ - Liberal education develops a sense of right, duty and honor; and more and more in the modern world, large business rests on rectitude and honor as well as on good judgment.
+ - In the modern world the intelligence of public opinion is the one indispensable condition for social progress.
+ - In some small field each child should attain, within the limited range of its experience and observation, the power to draw a justly limited inference from observed facts.
+
+22 quotes

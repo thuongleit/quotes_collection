@@ -1,0 +1,73 @@
+ - Filmmaking is a miracle of collaboration.
+ - I take a lot of pride in being myself. I’m comfortable with who I am.
+ - The world seemed less scary and I started to like myself a little bit more.
+ - Distance is a bad excuse for not having a good relationship with somebody. It’s the determination to keep it going or let it fall by the wayside; that’s the real reason that the relationships continue.
+ - A story about my life would be utterly dull.
+ - Passing my motorcycle theory test gave me a disproportionate feeling of greatness.
+ - That singular uncompromising nature I think is always quite attractive, not just for an actor to play, we’re attracted to uncompromising people whether they’re nice or not, because they’re 3D, they’re solid, you can define them, it’s not wishy washy.
+ - If a scene is three pages long, quite often people break it up and do a page, say ‘cut’ then move on to the next bit, they do it in cuts. I don’t really like doing that; I like to go through it all in one organic run, then give notes afterward. A little bit more like theater.
+ - I’m probably more dangerous in a car than I am on a motorbike; on a bike I’m very mindful of the fact that if you make a mistake you’re dead.
+ - I love going to art galleries. The Tate Modern is one of my favourite things to do. But I don’t invest in the history of it and I don’t read up on it. I am a guy who would buy a print rather than buy an original.
+ - I look at the Christian Bale movies, the ‘Batman’ films, and that shows you that superhero movies don’t just have to be about men in tights.
+ - People come up to me and they’re usually nice, but as it goes on you realise that some people aren’t nice. Some people are not nice at all.
+ - I think the most romantic thing you can do is just turn up. Turn up when its difficult for you. Travel halfway around the world or just up the road. Whatever it is, just be there.
+ - I judge people very quickly.
+ - Basically, every character I’ve ever played, I’ve based entirely on internal conflict. And I love doing that, because I think it’s very human.
+ - The funny thing is, I’ve never really hurt myself in an action movie. I’ve done ‘Wanted,’ ‘X-Men,’ ‘Welcome To The Punch,’ even ‘Trance’ to a certain extent has little bits of action and stuff, but I’ve never really hurt myself at all – not even like a sprained ankle.
+ - I wanted to be a missionary and work abroad, but girls started to become a bigger part of my life around the time I lost interest in the priesthood.
+ - Our intellect, our awareness, and our consciousness is the most powerful form of life on this planet.
+ - I’ve been in a few fights and I know what it’s like to get punched in the face.
+ - Next year, if no one gives me any work, that’s fine. I’m not going to do well anyway. I’m not an actor, I’m just exploiting this industry.
+ - I love Christmas. I never used to. I didn’t hate it, but I could take it or leave it. But, as I got to the age of 25 or 26, Christmas became quite a big deal, and I love it now. I love the food, and I love sharing time with people.
+ - I try to keep my life low key, and I don’t like going to parties unless they’re thrown by a friend of mine, or they’re to do with a project I’m in, or it’s because I’ve been nominated for an award.
+ - No movie has ever got enough time. It doesn’t matter how much money you’ve got, and it doesn’t matter how much money you’ve not got. You never finish on time. You’re always up against it and you’re always working up until the end.
+ - I considered becoming a priest very seriously. I wanted to travel the world. By the time I turned 16, I realized I was only in it for selfish reasons. And, more importantly, I didn’t want to sacrifice the ladies!
+ - I’m 5 foot 7, and I’ve got pasty white skin. I don’t think I’m ugly, don’t get me wrong, but I’m not your classic lead man, Brad Pitt guy.
+ - I’ve done enough for a while and people get fed up of seeing you, but apart from that, although I’m young, I need a bit of rest. You could say I have become a house husband. It’s not a new man thing, it’s just largely a boring man who doesn’t mind staying in the house thing.
+ - Marriage is an ongoing thing, man. You continue to work at it. But it’s joyful. And joyous. I don’t care if people are living without a marriage certificate. It’s just about people, in some way, saying to each other, ‘I commit to you. I will help you in this life.’
+ - I’m taking probably the biggest risk of my career in playing the part in Filth. If you stop taking risks, then you get bored, or you just keep playing the same part, over and over again. Eventually audiences get bored of that, as well.
+ - Playing somebody who’s obsessed. Playing somebody who is transgressing, and who is really crossing moral lines and ethical lines. That’s always interesting.
+ - The minute you start to strategize too much, the more you start to think you’re in control of your own fate. And you’re not, really.
+ - It’s weird when you’re watching yourself in a film – you can’t really detach yourself from the experiences you’ve had that day. You’re never watching the film as a proper punter.
+ - Film sets are a strange place, but an exciting place. I do love my work; I really enjoy going to work. But if you just spend all your time on film sets or even on stage, you can become a Michael Jackson figure, living in your own little universe.
+ - I want to be like Matt Damon and do a hugely successful thinking-man’s action franchise like ‘Bourne.’
+ - I don’t think I’m ever going to get to the point where people run across a freeway to take a picture of me. I really don’t see it getting to that level of hysteria unless I have an affair with the Queen of Sweden or something like that.
+ - I wanted to be a doctor at one point and I also wanted to be a pilot. I think if you grow up in a dodgy area, reality often beats down those ambitions as you get older. But with me that never really happened.
+ - That’s the main thing that attracts me – characters who have big journeys. I like playing those people.
+ - I really liked ‘Starter For Ten’ because I grew up watching 1980s teen films like ‘St. Elmo’s Fire’ and ‘The Breakfast Club’ and I’ve always wanted to play the underdog lead hero in a 1980s-inspired film.
+ - I do find it strange, doing magazine shoots. Photographers always go, ‘Why don’t you like to have your picture taken? That’s what you do for a living anyway. Just pretend you’re acting. It’s the same thing!’
+ - I kind of embarked on a fruitless search to find information about my character, Frederick Aiken. And it was fruitless, unfortunately, because there’s so little about him.
+ - I play football once or twice a week. I eat pretty healthy. I’m in fairly good shape most of the time.
+ - Every time I do a movie, especially an animated movie, I just seem to scream and shout and hyperventilate for money.
+ - I did undergo hypnotherapy, and it didn’t work! The guy couldn’t put me under. I was very disappointed. I was very keen to be suggested, to have somebody tell me to run naked or cluck like a chicken or whatever, but it didn’t work for me, I’m afraid.
+ - Because technically actors are just public servants really. They just tell stories because people need to be told stories. That’s all it is. And yet we get treated as though we’re important.
+ - It’s nice to be in a movie that hasn’t been absolutely slaughtered by the press.
+ - I am a nerd, but I don’t dive head-first into any fiefdom of nerdiness, except for maybe ‘Star Trek.’
+ - Fear is really powerful; it’s really useful to me.
+ - We’re in a horrible, repugnant place now where kids are told it’s their right and due to be hugely famous. Not good at their job, not good at anything, just hugely famous. This is not sane. Little girls think they’ll be famous if they have vast breast implants and might as well die if they don’t.
+ - Shakespeare’s stories are still very strong. He structured fantastic stories about things that were fundamental to the human being and psyche.
+ - Kids audience is a brilliant audience. If you’ve got an audience of adults standing up and clapping, or you’ve got an audience of kids standing up and clapping, I know which one I’d choose.
+ - I think I’m losing my hair finally. And, yeah, that’s kind of all I know.
+ - I don’t mind playing somebody who’s not likable, or makes the audience feel slightly conflicted.
+ - I always believed that I never wanted to be an actor. I only did it because I was allowed to do it and I had to do something.
+ - I was talking to one of my aunties at Christmas and she said she didn’t think it was ever in my nature to go against the grain, that I was always a good boy. I think she was right – I did always want to be good.
+ - I’ve never worked as hard as when I was at drama school. It’s the most professional environment I’ve ever been in.
+ - I don’t want to be all worthy about it, but I don’t do red carpets, I don’t do events and I don’t accept freebies that much.
+ - As I get older, I want to do more films for kids because they’re the best audience around. Just putting a smile on a kid’s face is the best thing.
+ - I’d like to have stayed in the Scouts beyond the age of 12.
+ - Leading man seems to quite often be an idealized figure.
+ - I don’t know if anybody’s ever ready for another award season. It’s kind of like Christmas.
+ - I don’t know why I get cast in a lot of period pieces. Stephen Fry told me that I had a face for period, that I look like someone from 1920.
+ - I’ve seen beautiful actresses get spat at or just someone trying to get a rise out of them so they can get an extra hundred bucks for a photo. It’s really rough.
+ - I was brought up by my grandparents. So people go, ‘Oh, what was that like? That must have been hard.’ And you go: ‘No, it wasn’t.’ It was just completely actually normal because the new norm seems to be whatever you make of it, doesn’t it?
+ - As an actor sometimes you can be a bit emotional and forceful, and that’s not always the way to be.
+ - There’s something about Michael J. Fox that I loved when he did all the ’80s stuff. His way of performing all the physicality, which is why it’s so tragic now, but the way he used his body so much as well, I loved.
+ - I think fear is one of the natural states of most actors, to be honest.
+ - I generally get challenged; I haven’t been typecast, which is really, really, nice. It’s not something that every actor gets, really. It’s luxury. Most actors are capable of it, but they aren’t afforded the opportunity to express their variety.
+ - When I was 15 or 16 – I slept really well then. Now I sleep on a bed of anxiety-tipped nails.
+ - For me, Charles Xavier is a monk. He’s like a selfless, egoless almost sexless force for the betterment of humanity and mortality.
+ - I did ‘Narnia’ because it was a good opportunity and all that, but really? I wanted to play Mr. Tumnus because he’s my favourite children’s character. That was awesome.
+ - I always have a beard between jobs. I just let it grow until they pay me to shave it. People are quite surprised it’s ginger. Sometimes they ask me if dye my hair and I always say ‘Wow, no!’ I’m ‘trans-ginger.’
+ - I wanted to join the navy to get some perspective on the world and explore.
+
+71 quotes

@@ -1,0 +1,22 @@
+ - Home is not where you live but where they understand you.
+ - In every work of art, the artist himself is present.
+ - There are often some hundred times, a thousand times, before you can really see it for the first time.
+ - Enthusiasm is the most beautiful word on earth.
+ - To me, the term ‘middle-class’ connotes a safe, comfortable, middle-of-the road policy. Above all, our language is ‘middle-class’ in the middle of our road. To drive it to one side or the other or even off the road, is the noblest task of the future.
+ - A true artist never portrays to please, but to show.
+ - My method is to find a word with a gesture.
+ - Woe to humanity, should only a single animal have a seat in the Last Judgement.
+ - Humor is the contemplation of the finite from the point of view of the infinite.
+ - If I did not love what is present, if I could not cling to this enormous, safe parachute, I would long since have fallen into the abyss.
+ - The hidden child wants to be able to participate and to co-create in art, rather than being simply an admiring viewer.
+ - If modern civilization man had to kill the animals he eats, the number of vegetarians would rise astronomically.
+ - For me, there is only one means of ensuring that I do not lose respect for myself: constant criticism.
+ - The first principle of child-rearing is to choose a good mother.
+ - Aviation will give new nourishment to the religious sprit of mankind. It will add airspace to those other great heighteners of the cosmic mood: the wood, the sea, the desert.
+ - It is one of the oddest things in the world that you can read a page or more and think of something utterly different.
+ - A poet must have died as a man before he is worth anything as a poet.
+ - Often I am struck in amazement about a word: I suddenly realize that the complete arbitrariness of our language is but a part of the arbitrariness of our own world in general.
+ - Chess truly uncovers whether or not someone has imagination and takes initiative.
+ - There is a ghost That eats hankerchiefs; It keeps you company On all your travels.
+
+20 quotes

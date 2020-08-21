@@ -1,0 +1,85 @@
+ - Dreams are only dreams until you wake up and make them real.
+ - I didn’t want to wake up. I was having a much better time asleep. And that’s really sad. It was almost like a reverse nightmare, like when you wake up from a nightmare you’re so relieved. I woke up into a nightmare.
+ - I don’t know how I can be so ambitious and so lazy at the same time.
+ - I can’t eat and I can’t sleep. I’m not doing well in terms of being a functional human, you know?
+ - So why am I depressed? That’s the million-dollar question, baby, the Tootsie Roll question; not even the owl knows the answer to that one. I don’t know either. All I know is the chronology.
+ - I feel dead, wasted, awful, broken and useless. It’s not the kind of feeling you forget.
+ - I’m not afraid of dying, I’m afraid of living.
+ - Life’s not about feeling better, it’s about getting the job done.
+ - I wanted to tell people, “My depression is acting up today” as an excuse for not seeing them, but I never managed to pull it off.
+ - Sometimes I just think depression’s one way of coping with the world. Like, some people get drunk, some people do drugs, some people get depressed. Because there’s so much stuff out there that you have to do something to deal with it.
+ - It’s tough to get out of bed; I know that myself. You can lie there for an hour and a half without thinking anything, just worrying about what the day holds and knowing that you won’t be able to deal with it.
+ - I don’t owe people anything, and I don’t have to talk to them any more than I feel I need to.
+ - People are screwed up in this world. I’d rather be with someone screwed up and open about it than somebody perfect and ready to explode.
+ - Depression starts slow.
+ - I work. And I think about work, and I freak out about work, and I think about how much I think about work, and I freak out about how much I think about how much I think about work, and I think about how freaked out I get about how much I think about how much I think about work.
+ - And when you say the truth you get stronger.
+ - I like how you don’t hide your problems like everyone else, and I don’t have to hide mine when I’m around you.
+ - We’re all animals, high school is animals, but some of us are more animal than others. Like in ‘Animal Farm,’ which I read, all animals are created equal, but some are more equal than others? Here in the real world, all equals are created animal, but some are more animal than others.
+ - I had fooled myself into thinking that I was something important to the rest of the world.
+ - We look into each other’s eyes as we shake. His are still full of death and horror, but in them I see my face reflected, and inside my tiny eyes inside his, I think I see some hope.
+ - If there is a next life, I hope it’s in the past; I don’t think the future will be any more handleable. I think it’s a little harsh how the END button is red.
+ - I’m smart but not enough – just smart enough to have problems.
+ - Some of the most profound truths about us are things that we stop saying in the middle.
+ - That made me happy. That was my Anchor.
+ - I wasn’t gifted. Mom was wrong. I was just smart and I worked hard. I had fooled myself into thinking that was something important to the rest of the world. Other people were complicit in this ruse. Nobody had told me I was common.
+ - I waste at least an hour every day lying in bed. Then I waste time pacing. I waste time thinking. I waste time being quiet and not saying anything because I’m afraid I’ll stutter.
+ - Sometimes when you open a book, time stops.
+ - Putting lessons in young adult books is very dangerous.
+ - I owe her everything and I love her and I tell her these days, although every time I say it, it gets a little diluted. I think you run out of I love yous.
+ - That’s all I can do. I’ll keep at it and hope it gets better.
+ - I’m done with those; regrets are an excuse for people who have failed.
+ - My family shouldn’t have to put up with me. They’re good people, solid, happy. Sometimes when I’m with them I think I’m on television.
+ - Life is a nightmare.
+ - Of course I wasn’t abused. If I were; things would be so simple. I’d have a reason to for being in a shrinks office. I’d have a justification and something to work on. The world wasn’t going to give me something that tidy.
+ - See, when you mess something up, you learn for the next time. It’s when people compliment you that you’re in trouble. That means they expect you to keep it up.
+ - The Shift hasn’t happened yet, maybe it never will, but sometimes-just enough times to give me hope-my brain jars back into where it’s supposed to be.
+ - The Shift is coming. The Shift has to be coming. Because if you keep living like this you’ll die.
+ - I just want to not be me.
+ - I didn’t want to wake up. I was having a much better time asleep. And that’s really sad.
+ - I’m jealous of her. Can you be jealous of your mom for being able to handle things? I couldn’t take a day off, take a dog to the vet, and cook dinner. That’s like three times too much stuff for me to get done in one day. How am I ever going to have my own house?
+ - Some days I woke up and got out of bed and brushed my teeth like any normal human being; some days I woke up and laid in bed and looked at the ceiling and wondered what the hell the point was of getting out of bed and brushing my teeth like any normal human being.
+ - That’s what gets me through the day. Knowing that I could do it. That I’m strong enough to do it and I can get it done.
+ - I’m still a nobody, when am I not going to be a nobody?
+ - So now live for real, Craig. Live. Live. Live. Live.
+ - It’s such a silly little thing, the heart.
+ - Time is a person-made concept.
+ - I have a system with bathrooms. I spend a lot of time in them. They are sanctuaries, public places of peace spaced throughout the world for people like me.
+ - A person’s relationship with food is one of their most important relationships.
+ - But some people have to get lucky just to live. And I never knew I could make anybody lucky.
+ - They’ve spent alot of money on me. I’m ashamed.
+ - One thing I’ve learnt recently: how to think nothing. Here’s the trick: don’t have any interest in the world around you, don’t have any hope for the future, and be warm.
+ - I had hurt her feelings, I found out later; I didn’t know I had that power.
+ - And I could have died right then. And considering how things went, I really should have.
+ - Relationships change even more than people. It’s like two people changing. It’s exponentially more volatile. Especially two teenagers.
+ - Life can’t be cured, but it can be managed.
+ - My brain was all right back then; it didn’t get stuck in ruts.
+ - Yes, Doctor. I’ll do what you say. I’ll do what you all say.
+ - Misfortune is no excuse for cruelty.
+ - A working brain is probably a lot like a map, where anybody can get from one place to another on the freeways. It’s the nonworking brains that get blocked, that have dead ends, that are under construction like mine.
+ - I found myself jealous of the people who wrote the books. They were dead and they were still taking up my time. Who did they think they were?
+ - She doesn’t want to end up like me. At least I’m giving someone an example not to follow.
+ - I want my brain to slide back into the slot it was meant to be in, rest there the way it did before the fall of last year, back when I was young, witty, and my teachers said I had incredible promise.
+ - Nobody had told me I was common.
+ - If you can’t get out of bed for long enough, people come and take your bed away.
+ - And that was the closest I’ve ever come to an epiphany.
+ - I’ve started to think it must just be chemistry, in which case we’re looking for the Shift and we haven’t found it yet.
+ - They’re sort of ancillary anyway, friends. I mean, they’re important – everybody knows that; the TV tells you so – but they come and go. You lose one friend, you pick up another.
+ - Dad nods, looks me dead in the eyes; slowly and regretfully, he banishes all the smiling and joking from his face, and for once he’s just my dad, watching his son who has fallen so low.
+ - People don’t make good Anchors, though, Craig. They change.
+ - I should be a success and I’m not and other people- younger people- are. Younger people than me are on TV and getting their lives in order. I’m still a nobody. When am I going to not be a nobody?
+ - Dr. Barney stared at me, his lips puckered. What was he so serious about? Who hasn’t thought about killing themselves, as a kid? How can you grow up in this world and not think about it?
+ - They always said on TV you could do anything you wanted, but here I was trying to do something and it wasn’t working. I would never be able to do it.
+ - A lot of the books that I grew up reading were pretty brutal, like the Redwall books.
+ - I want to live but I want to die. What do I do?
+ - Every tounge bit had another word to say.
+ - The stuff adults tell you not to do is the easiest.
+ - I’ve had good moments scattered since then, times when I thought I was better, but that was the last day I felt triumphant.
+ - We wear our problems diffrently.
+ - That’s the number one thing I hear about humans. You have all these choices, so you’re confused all the time, and you think so much that you’re never happy.
+ - That’s worst than gonerreha, man!
+ - It’s a huge thing, this Shift, just as big as I imagined. My brain doesn’t want to think anymore; all of a sudden it wants to do.
+ - Sometimes I wish I had an easy answer for why I’m depressed.
+ - You shouldn’t be able to be alive and you are. You want to trade?
+
+83 quotes

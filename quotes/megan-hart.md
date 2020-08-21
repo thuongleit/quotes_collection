@@ -1,0 +1,53 @@
+ - Scars are proof we can can survive.
+ - It is such a secret place, the land of tears. That is what the narrator ofThe Little Prince says after the little prince argues with him the first time about matters of consequence. And he was right. My land of tears had been a secret for a very long time.
+ - I might be alone, but i’m never lonely.
+ - Tears disturb and confuse men, but women know the relief they can bring. I didn’t cry because I couldn’t deal with my life, but because I could.
+ - I didn’t fall in love with James. Falling sounds like an accident. Falling hurts. I’d fallen in love with Michael, fallen hard like slipping off a cliff and hitting the rocks below. Falling in love was something I’d vowed never to do again. I chose to love James.
+ - Can I tell you honestly that I’d rather be in your life as your friend than nothing at all?
+ - I looked at the cards in my hand, the queen of hearts nestled between the king of clubs and the king of spades. No wonder she was smiling.
+ - There seemed to be so much to say, but no words adequate to say it.
+ - It’s okay to struggle to find our place in this world and the person who will take us for who and what we are. Sometimes we dress ourselves in layers that only get peeled away in the end, to leave us as we should be.
+ - We were broken, brittle and fragile. The question was, were we still precious to each other? Or, instead of everything falling into place, had it fallen into pieces?
+ - You can’t hurt someone who doesn’t care about you.
+ - The hardest lies to detect are the ones surrounded by truth.
+ - Choices. We all make them, sometimes more than once. Sometimes it’s the choices we make over and over that define us, but more often it’s the choices we don’t make.
+ - One must have sorrow to truly appreciate joy.
+ - All men have the stars, but they are not the same things for different people.
+ - Sometimes, you turn back. Sometimes, you walk away. And sometimes, you find the place you’re meant to be, and you stay there. You find a way to make it work. Whatever it takes.
+ - Jealousy smells like the water in the bottom of a flower vase after the flowers have died.
+ - Bess had become the ocean, always breaking against the rocks but never staying broken. Her love was the ocean, too, endless and always changing, yet forever the same.
+ - Does madness bring creativity? Or does creativity cause madness? Can an artist create without the ups so high and the downs so low?
+ - If you want to know how someone really feels, you almost never have to ask.
+ - You don’t have to be sad to miss someone and wish they were still in your life.
+ - Foolish. Stupid. I knew it. I knew my reaction was unreasonable, bu the heart has its reasons of which reason knows nothing. Blaise Pascal said that, and I’ve always found it to be true.
+ - This is the truth. I have been in love. I have been in lust. I’ve made good choices and bad ones, I have been smart and I’ve been stupid. But I have never in my life felt the way I do now, here, with Will.
+ - If you’re lucky, the friends you make when you’re sixteen stay with you for the rest of your life. If you’re smart, you know when it’s time to let them go.
+ - Love is always real, even when it doesn’t last.
+ - He was quiet. I said nothing, hoping that maybe, for once, he’d stop pretenting he was okay. Then I could, too. That we could both forget the roles that had so long bound us.
+ - Sometimes the picture someone else paints of us is a more accurate portrayal than a reflection. What we see in the mirror is always reversed. A portrait not only allows us to see our own faces, but how it looks to others.
+ - I knew him, but I don’t understand him.
+ - But the problem with looking back when you should be walking ahead is that you usually end up walking into something that hurts.
+ - What are you, Elle? Are you a ghost? Are you an angel or a demon? Because you can’t be real.
+ - You know what they say. Best revenge is looking good, right?
+ - I could say his body was perfect and every part of it beautiful, because it was. Not because he had no flaws, but because I wanted him so desperately I couldn’t see any.
+ - But sometimes it’s the sunshine that frightens us more than the big black shadows.
+ - Abandoning a task that is futile and pointless is not giving up.
+ - I know everything and nothing about him all at the same time.
+ - We labored under the pretense that nothing had changed when everything had, and I understood him, but i no longer knew him.
+ - When everything changes we learn who we really are. What’s really important. What we want most. We discover the truth in moments of disarray.
+ - Good things, by their nature, are fleeting. It’s those that bring us grief that linger.
+ - I had no words to give him. No explanation. I didn’t understand it, myself. It scared me, but then so do roller coasters, and I ride them anyway, too.
+ - It was not a happy ending of the sort in fairy tales, but it was the only one we had.
+ - I waited for a long time and there was nothing but the pain of wanting something I couldn’t seem to find.
+ - I’ve been hit on plenty of times, mostly by men with little finesse who thought what was between their legs made up for what they lacked between their ears.
+ - I was trying to replace something I’d come to care about very much with something pretending to be as important.
+ - There is so much freedom in not having to choose.
+ - If I’d known it was going to be the last time he’d ever hold me, I’d have paid better attention.
+ - A good sister is one who won’t be embarrassed when you burst into tears in public. A better one will hand you tissues until you stop. The best is the one who will go get you another latte to go with the ginormous chocolate orgy she’s already laid in front of you.
+ - I do not like that I allowed my past to close me off. I do not like that I let circumstances rob me of the ability to have a normal relationship with a man, to have friends, to be happy. I do not like it, but I had felt myself powerless against it.
+ - My head’s filled up with all the reasons it won’t work. And I keep running the figures, over and over, but I can’t seem to come up with an answer.
+ - They were all you, to me. All of them were you.
+ - He put my fingertips to his mouth and kissed them. Licked the trace of blood away. Made them clean. Then I knew the truth I had been denying. He made me clean. Dan made me clean and shining and bright. He made me beautiful, and I did not want to lose him.
+ - Sometimes grief is a comfort we grant ourselves because it’s less terrifying than trying for joy.
+
+51 quotes

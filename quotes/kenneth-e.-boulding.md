@@ -1,0 +1,62 @@
+ - Anyone who believes exponential growth can go on forever in a finite world is either a madman or an economist.
+ - There is no such thing as economics, only social science applied to economic problems.
+ - The economy of the future might be called the “spaceman economy,” in which the earth has become a single spaceship, without unlimited reservoirs of anything.
+ - DNA was the first three-dimensional Xerox machine.
+ - Canada has no cultural unity, no linguistic unity, no religious unity, no economic unity, no geographic unity. All it has is unity.
+ - The most fundamental form of integrative power is the power of love.
+ - Equilibrium is a figment of the human imagination.
+ - We should always bear in mind that numbers represent a simplification of reality.
+ - Mathematics brought rigor to Economics. Unfortunately, it also brought mortis.
+ - Accounting for the most part, remains a legalistic and traditional practice, almost immune to self-criticism by scientific methods.
+ - All knowledge is gained through an orderly loss of information.
+ - A world of unseen dictatorship is conceivable, still using the forms of democratic government.
+ - Theories without facts may be barren, but facts without theories are meaningless.
+ - Nothing fails like success because we don’t learn from it. We learn only from failure.
+ - The only religion that still demands human sacrifice is nationalism.
+ - Knowledge exists in minds, not in books. Before what has been found can be used by practitioners, someone must organize it, integrate it, extract the message.
+ - Deciding under uncertainty is bad enough, but deciding under an illusion of certainty is catastrophic.
+ - Know this: though love is weak and hate is strong, Yet hate is short, and love is very long.
+ - Don’t go to great trouble to optimize something that never should be done at all. Aim to enhance total systems properties, such as creativity, stability, diversity, resilience, and sustainability-whether they are easily measured or not.
+ - Every culture, or subculture, is defined by a set of common values, that is, generally agreed upon preferences. Without a core of common values a culture cannot exist, and we classify society into cultures and subcultures precisely because it is possible to identify groups who have common values.
+ - The concept of a value-free science is absurd.
+ - Perhaps the most difficult ethical problem of the scientific community arises not so much from conflict with other subcultures as from its own success. Nothing fails like success because we don’t learn from it. We learn only from failure.
+ - If we saw tomorrow’s newspaper today, tomorrow would never happen.
+ - The world moves into the future as a result of decisions, not as a result of plans. Plans are significant only insofar as they affect decisions.
+ - There is a quiet, open place in the depths of the mind, to which we can go many times in the day and lift up our soul in praise, thankfulness and conscious unity. With practise this God-ward turn of the mind becomes an almost constant direction, underlying all our other activities.
+ - Economics, we learn in the history of thought, only became a science by escaping from the casuistry and moralizing of medieval thought.
+ - The future is bound to surprise us, but we don’t have to be dumbfounded.
+ - The World is a very complex system. It is easy to have too simple a view of it, and it is easy to do harm and to make things worse under the impulse to do good and make things better.
+ - Humble, honest, ignorance is one of the finest flowers of the human spirit.
+ - Economics has been incurably growth-oriented and addicted to everybody growing richer, even at the cost of exhaustion of resources and pollution of the environment.
+ - The image of the frontier is probably one of the oldest images of mankind, and it is not surprising that we should find it hard to get rid of.
+ - Because of his capacity for abstract communications and language and his ability to enter in imagination into the lives of others, man is able to build organizations of a size and complexity far beyond those of the lower animals.
+ - With laissez-faire and price atomic, Ecology’s Uneconomic, But with another kind of logic Economy’s Unecologic.
+ - Conflict may be defined as a situation of competition in which the parties are aware of the incompatibility of potential future positions, and in which each party wishes to occupy a position that is incompatible with the wishes of the other.
+ - Economic problems have no sharp edges. They shade off imperceptibly into politics, sociology, and ethics. Indeed, it is hardly an exaggeration to say that the ultimate answer to every economic problem lies in some other field.
+ - Political conflict rests to a very large extent on a universal ignorance of consequences, as the people who are benefited by any particular act or policy are rarely those who struggled for it, and the people who are injured are rarely those who opposed it.
+ - Economists are like computers. They need to have facts punched into them.
+ - One reason why the progressive state is ‘cheerful’ is that social conflict is diminished by it.
+ - Consumption is the death of capital, and the only valid arguments in favor of consumption are arguments in favor of death itself.
+ - The controversy as to whether socialism is possible has been settled by the fact that it exists, and it is a fundamental axiom of my philosophy, at any rate, that anything that exists, is possible.
+ - Are we to regard the world of nature simply as a storehouse to be robbed for the immediate benefit of man?
+ - The evolutionary vision is agnostic in regard to systems in the universe of greater complexity than those of which human beings have clear knowledge.
+ - What exists, is possible.
+ - The ability to work with systems of general equilibrium is perhaps one of the most important skills of the economist a skill which he shares with many other scientists, but in which he has perhaps a certain comparative advantage.
+ - Justification, in terms of the broadening of freedom, for any particular form of institution of property must be argued in terms of whether the losses caused by the restrictions imposed are greater or less than the gains derived from the elimination of costly conflict.
+ - The use of isoquants to describe the production function did not develop to any great extent until the thirties.
+ - Private property is a means, and neither its abolition nor its unrestricted right should be an end in itself.
+ - Any attempt to reduce the complex properties of biological organisms or of nervous systems or of human brains to simple physical and chemical systems is foolish.
+ - In any evolutionary process, even in the arts, the search for novelty becomes corrupting.
+ - We are born to love, as we are born to breathe and eat and drink.
+ - The right to have children should be a marketable commodity, bought and traded by individuals but absolutely limited by the state.
+ - Mathematicians themselves set up standards of generality and elegance in their exposition which are a bar to understand.
+ - The organization of science into disciplines sets up a series of ghettos with remarkable distances of artificial social space between them.
+ - It is absurd to suppose we can think of nature as a system apart from knowledge, for it is knowledge that is increasingly determining the course of nature.
+ - We never like to admit to ourselves that we have made a mistake. Organizational structures tend to accentuate this source of failure of information.
+ - The tourist business is a trap, it is a tained honey; Man clearly should have stayed in bed, and not invented money.
+ - There is something, however humble, which can properly be called skill among those who recognise themselves as economists.
+ - Communication can only take place among equals.
+ - The discounting presumably is to be done for each period of time at that rate of interest which represents the alternative cost of employing capital in the occupation in question; that is, at the rate which the entrepreneur could obtain in other investments.
+ - If a totally new image is to come into being however, there must be sensitivity to internal messages, the image itself must be sensitive to change, must be unstable, and it must include a value image which places high value on trials, experiments, and the trying of new things.
+
+60 quotes

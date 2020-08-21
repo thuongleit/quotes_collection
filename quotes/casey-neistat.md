@@ -1,0 +1,33 @@
+ - The most dangerous thing you can do in life is play it safe.
+ - Free time is the enemy of progress.
+ - Without a goal, you can’t score.
+ - Work hard, be brave.
+ - Some day I won’t be able to do this. The right time is now.
+ - If you’re doing what everyone else is doing, you’re doing it wrong.
+ - Ideas are cheap. Ideas are easy. Ideas are common. Everybody has ideas. Ideas are highly, highly overvalued. Execution is all that matters.
+ - Look back at your life. It's always the hardest times that made you who you are.
+ - Overthinking the process will kill any career in the creative space. You just have to do, not think.
+ - The only way you can have a job and sleep at work whenever you want is when you own the company.
+ - Story is king. Everything else is slave to story.
+ - Being nice takes work. That’s why I really like people who are nice.
+ - Sunday is my favorite work day.
+ - The only time I get depressed is when I am not being productive, it’s when I am not accomplishing or doing or contributing in any way. Nothing makes me less happy than relaxation and sitting around with nothing to do.
+ - As a guiding principle, life shrinks and life expands in direct proportion to your willingness to assume risk.
+ - DO WHAT YOU CAN’T
+ - Truth is so much more interesting than the fiction we’re used to.
+ - I never want money that I didn’t earn.
+ - It’s a lot easier to be mean than to be nice. So mean people, on top of being jerks, are also lazy and univentive.
+ - If the reason why you’re doing anything creative is to make a living, then you’re doing it wrong.
+ - I am too busy for insecurities, it’s just a distraction. If I have any, I have ignored them for so long they have gone away.
+ - Every time I took these bigger risks, the opportunity for a bigger payout was always there.
+ - You either act on ideas or set them free. You don’t dwell on them.
+ - A shared life is a great life.
+ - You know those days when you catch yourself walking around smiling and you stop and wonder ‘why am I smiling today?’ Those days are the best days.
+ - Every major decision I’ve made in the last eight years has been prefaced by a run. Where else do you get those uninterrupted hours to do nothing but think?
+ - More often than not I find myself in situations where I have no idea what I’m doing and I feel no shame in revealing that.
+ - I run 50-70 miles a week and lift five or six days. It’s my time. 
+ - For all the marathons I’ve run, including the Ironmans that I’ve run, immediately after the race, I clean myself up, do whatever I need to do to make sure I’m okay, and I get right back out there, and I cheer people on. Because it’s the people who come in late in the race I find most inspiring.
+ - Phone calls, that is actually interrupting someone’s life to have them talk on the phone, should be reserved for emergencies only.
+ - It’s both scary and flattering that my vlog style has become film-making curriculum.
+
+31 quotes

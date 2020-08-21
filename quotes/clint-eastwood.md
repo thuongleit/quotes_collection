@@ -1,0 +1,227 @@
+ - Improvise, Adapt and Overcome!
+ - Self-respect leads to self-discipline.
+ - Respect your efforts, respect yourself. Self-respect leads to self-discipline. When you have both firmly under your belt, that’s real power.
+ - They say all marriages are made in heaven, but so are thunder and lightning.
+ - Go ahead, make my day.
+ - Tomorrow is promised to no one.
+ - If you want a guarantee, buy a toaster.
+ - A good man always knows his limitations.
+ - Always keep your ego in check and not be afraid to listen. Listening is a great art form.
+ - You see, in this world, there’s two kinds of people, my friend – those with loaded guns, and those who dig. You dig.
+ - There’s a rebel lying deep in my soul. Anytime anybody tells me the trend is such and such, I go the opposite direction. I hate the idea of trends. I hate imitation; I have a reverence for individuality.
+ - Keep your eyes on the horizon and your nose to the wind.
+ - You should never give up your inner self.
+ - Libertarian: everyone leaves everyone else alone.
+ - It’s always fun to talk about jazz.
+ - The reason I still work at this stage of life is because I enjoy learning something new each day.
+ - It’s not about you. It’s about them.
+ - What I think the mentor gets is the great satisfaction of helping somebody along, helping somebody take advantage of an opportunity that maybe he or she did not have.
+ - I have a very strict gun control policy: if there’s a gun around, I want to be in control of it.
+ - There’s a rebel lying deep in my soul.
+ - If you think it’s going to rain, it will.
+ - You have to feel confident. If you don’t, then you’re going to be hesitant and defensive, and there’ll be a lot of things working against you.
+ - Sometimes if you want to see a change for the better, you have to take things into your own hands.
+ - I tried being reasonable, I didn’t like it.
+ - Fate pulls you in different directions.
+ - I don’t wanna need you because I can’t have you.
+ - My whole life has been one big improvisation.
+ - I mean, I’ve always been a libertarian. Leave everybody alone. Let everybody else do what they want. Just stay out of everybody else’s hair.
+ - You change as the years go by. The more knowledge you get, the more things change in your life and circumstances change.
+ - It’s what people know about themselves inside that makes them afraid.
+ - If a person is confident enough in the way they feel, whether it’s an art form or whether it’s just in life, it comes off – you don’t have anything to prove; you can just be who you are.
+ - Participating in a gun buy-back program because you think that criminals have too many guns is like having yourself castrated because you think your neighbors have too many kids.
+ - A lot of people are bored of all the political correctness.
+ - When a naked man is chasing a woman through an alley with a butcher knife and a hard-on, I figure he isn’t out collecting for the Red Cross.
+ - I was drafted during the Korean War.
+ - My wife and I are both Libertarian; she was a Democrat and I was a Republican, and we both met in the middle somewhere.
+ - You always want to quit while you are ahead. You don’t want to be like a fighter who stays too long in the ring until you’re not performing at your best.
+ - Ever notice how you come across somebody once in a while you shouldn’t have messed with? That’s me.
+ - I keep working because I learn something new all the time.
+ - Dying ain’t much of a living, boy.
+ - You have to teach yourself to act but Michael Chekhov will give you the necessary tools – and for me, Psychological Gesture and Centers are extremely valuable They work like a charm. I’ve used them all along and still do.
+ - It’s a hell of a thing, killing a man. You take away all he’s got and all he’s ever gonna have.
+ - Nobody, I mean nobody, puts ketchup on a hot dog.
+ - I don’t believe in pessimism. If something doesn’t come up the way you want, forge ahead. If you think it’s going to rain, it will.
+ - A Love like this happens but once in a lifetime.
+ - Crimes against children are the most heinous crime. That, for me, would be a reason for capital punishment because children are innocent and need the guidance of an adult society.
+ - The more time you have to think things through, the more you have to screw it up.
+ - When I was young there was no respect for the young, and now that I am old there is no respect for the old.
+ - One day we will look back and realize that the Barack Obama Presidency was the biggest fraud ever perpetrated on the American people.
+ - I never expect anything. I am always amazed at why anybody goes to any movie or why anybody doesn’t go to any movie. Any movie you make, you make it because you’re hoping somebody wants to see it, but you never know.
+ - Aging can be fun if you lay back and enjoy it.
+ - I would just like to say something, ladies and gentlemen. Something that I think is very important. It is that, you, we – we own this country. We – we own it. It is not you owning it, and not politicians owning it. Politicians are employees of ours.
+ - There’s really no way to teach you how to act, but there is a way to teach you how to teach yourself to act. That’s kind of what it is; once you learn the little tricks that work for you, pretty soon you find yourself doing that.
+ - Once a man has some money, peace begins to sound good to him.
+ - Extremism is so easy. You’ve got your position, and that’s it. It doesn’t take much thought. And when you go far enough to the right you meet the same idiots coming around from the left.
+ - The most gentle people in the world are macho males, people who are confident in their masculinity and have a feeling of well-being in themselves. They don’t have to kick in doors, mistreat women, or make fun of gays.
+ - I pay tribute to the writing always. The writer is a creative artist and the director is an interpretive artist and the actors are interpretive. You take zero and make it into something, that’s always amazing to me.
+ - Abuse of power isn’t limited to bad guys in other nations. It happens in our own country if we’re not vigilant.
+ - I like the inspiration of the first take.
+ - I try to stick to a vegan diet heavy on fruit and vegetables.
+ - To me, life is like the back nine in golf. Sometimes you play better on the back nine. You may not be stronger, but hopefully you’re wiser. And if you keep most of your marbles intact, you can add a note of wisdom to the coming generation.
+ - Let’s not go and ruin it by thinking too much.
+ - I am sort of anti-hunting. I don’t put down what anyone wants to do, but it seems to me that killing a creature for fun is not a progressive idea.
+ - If a person doesn’t change, there’s something really wrong with him.
+ - Let’s take the work seriously, and not ourselves seriously.
+ - The prospect of dating someone in her twenties becomes less appealing as you get older. At some point in your fife, your tolerance level goes down and you realize that, with someone much younger, there’s nothing really to talk about.
+ - I’ve never met a genius. A genius to me is someone who does well at something he hates. Anybody can do well at something he loves – it’s just a question of finding the subject.
+ - As you get older, you’re not afraid of doubt. Doubt isn’t running the show. You take out all the self-agonizing.
+ - I love every aspect of the creation of motion pictures and I guess I am committed to it for life.
+ - I don’t see myself as conservative, but I’m not ultra-leftist. You build a philosophy of your own. I like the libertarian view, which is to leave everyone alone. Even as a kid, I was annoyed by people who wanted to tell everyone how to live.
+ - You have to be realistic about where you are in life and enjoy it.
+ - I’d like to be a bigger and more knowledgeable person ten years from now than I am today. I think that for all of us as we grow older, we must discipline ourselves to continue expanding, broadening, learning, keeping our minds active and open.
+ - Whether you like it or not, you’re forced to come to the realisation that death is out there. But I don’t fear death, I’m a fatalist. I believe when it’s your time, that’s it. It’s the hand you’re dealt.
+ - I’m a firm believer in research, but I’m also a firm believer in utilizing the instincts that are within your soul or in your body or in your stomach, wherever they reside.
+ - An awful lot of good movies have gone unrecognized, and an awful lot of bad movies have had tremendous recognition. As long as you keep that in mind, you are never really disappointed.
+ - When I look back on my life, I don’t have regrets about what I didn’t do. If I’d become a musician, it could have ruined my life.
+ - You take the work seriously, you don’t take yourself seriously. You keep that straight and you’ll do well the rest of your life.
+ - People have lost their sense of humor. In former times, we constantly made jokes about different races.
+ - When you’re an actor, you’re so busy: people are always coming up to you and pulling your collar, making sure that things fit, brushing your hair and you’re always being yanked up, so finally when you’re behind a camera, you’re just a slob.
+ - Politicians have to make unpopular decisions. Schwarzenegger is going to understand the nature of his job. I wish him good luck, he’s going to need it. It’s going to be difficult for him.
+ - I’m always trying to tackle subjects that tax me and make me think. That’s the key to staying young at heart. The brain has to be exercised the same as the rest of the body.
+ - Winning the election is a good-news, bad-news kind of thing. Okay, now you’re the mayor. The bad news is, now you’re the mayor.
+ - I never look back and think too much about my films. I’ve done some work I’ve been proud of over the years but which of them is my favourite I really don’t know. I could say the last one. I’ve had little jumps in my career like Unforgiven possibly.
+ - Nobody wants to make something that displeases people, but once you make a film, that’s out of your control and you can’t think about that. You just have to follow your head and make sure that you’re satisfied by putting down what you intended.
+ - The country has come a long way in race relations, but the pendulum swings so far back. Everyone wants to be so sensitive.
+ - The innocence of childhood is like the innocence of a lot of animals.
+ - What do you want me to tell Romney? I can’t tell him to do that. I can’t tell him to do that to himself. You’re crazy. You’re absolutely crazy. You’re getting as bad as Biden.
+ - I think being able to age gracefully is a very important talent. It is too late for me.
+ - Kids piercing themselves, piercing their tongues, what kind of masochism is that? Is it to show you can just take it?
+ - Once you finish a film, it doesn’t belong to you anymore – it belongs to the audience to interpret it the way they feel like interpreting.
+ - Buzzards got to eat, same as the worms.
+ - I don’t mind telling a dark side.
+ - When you’re making a movie, you can’t think anybody will ever see it. You’ve just got to make a movie for the values it has. The greatest films were made because someone really wanted to make them. And, hopefully, the audience will show up, too.
+ - I was always respectful of people who were deeply religious because I always felt that if they gave themselves to it, then it had to be important to them. But if you can go through life without it, that’s OK, too. It’s whatever suits you.
+ - My wife is my closest friend. Sure, I’m attracted to her in every way possible, but that’s not the answer. Because I’ve been attracted to other people, and I couldn’t stand ’em after a while.
+ - Plagiarism is always the biggest thing in Hollywood.
+ - Casting a film is to me one of the most important things next to the writing. If you cast it properly everything takes place very easily. If you cast it improperly you’re fighting an uphill battle.
+ - That’s why I don’t rehearse a lot and why I shoot a lot immediately. I have ideas of where I’d like to take the character, but we both end up going together.
+ - I’m past doing one chin-up more than I did the day before. I just kind of do what I feel like.
+ - Of course we all know Biden is the intellect of the Democratic Party. Kind of a grin with a body behind it.
+ - There’s only one way to have a happy marriage and as soon as I learn what it is I’ll get married again.
+ - I haven’t been very active in politics.
+ - Most people are afraid of change. But if you look at it as something you can always count on, then it can be a comfort.
+ - You have to trust your instincts. There is a moment when an actor has it, and he knows it.
+ - With people in high office, the old – you go into the extreme, which is absolute power and absolute power corrupts.
+ - When you hang a man, you better look at him.
+ - Things always look different from higher up.
+ - Are you going to pull those pistols or whistle Dixie?
+ - The reason I don’t retire is that I learn something new every day. The brain has to be exercised the same as the rest of the body. It’s about expanding, constantly pushing yourself.
+ - The guys who won World War II and that whole generation have disappeared, and now we have a bunch of teenage twits.
+ - There are two kinds of people in this world. ‘I’ people and ‘we’ people. I’ve always tried to be a ‘we’ person.
+ - Everybody always feels that they’re right even if they’re wrong and that’s what a whole actor’s career is built around rationalizing your way into whatever character you’re playing.
+ - Don’t look at me like I’ve gotten old or something like that.
+ - Writing is a creative art form and the acting and directing is more of an interpretive art form.
+ - Overnight stardom can be harmful to your mental health. Yeah. It has ruined a lot of people.
+ - It takes tremendous discipline to control the influence, the power you have over other people’s lives.
+ - I’m just a kid – I’ve got a lot of stuff to do yet.
+ - We are like boxers, one never knows how much longer one has.
+ - In America, instead of making the audience come to the film, the idea seems to be for you to go to the audience. They come up with the demographics for the film and then the film is made and sold strictly to that audience.
+ - If you’ve done what you intended and if nobody tampered with it, then it’s yours. And if people don’t like it, then they just don’t agree with you on that subject matter, and that’s life.
+ - I always like to try different things, different genres; stories that have a dramatic element and can generate conflict which I find appealing; where the characters have to overcome obstacles. That kind of thing is challenging.
+ - A lot of people regret, because we live in a society that reveres being at the prime of life and everything, but you have certain primes at certain times, and mine happens to be...
+ - I take vitamins daily, but just the bare essentials not what you’d call supplements. I try to stick to a vegan diet heavy on fruit, vegetables, tofu, and other soy products.
+ - My uncle played rugby, and my dad played football, and they used to argue which game was the roughest – and everybody agreed rugby was. It’s a great team sport, and to be successful, every person has to play in the same level.
+ - When you’re young, you’re very reckless. Then you get conservative. Then you get reckless again.
+ - The thing that haunts a man the most is what he isn’t ordered to do.
+ - I don’t write. I usually look for material by other people. Sometimes I change things or adapt things but I don’t write from scratch. I wish I had that ability.
+ - There are a lot of conservative people, a lot of moderate people, Republicans, Democrats, in Hollywood. It is just that the conservative people by the nature of the word itself play closer to the vest. They do not go around hot dogging it.
+ - Pose? I don’t pose. What am I? Paris Hilton or something?
+ - I’m suffering from oxygen deprivation. It’s overwhelming watching your career go by.
+ - I’ve done a few special effects movies in my life, so I’ve gotten that out of my system.
+ - Even people on the liberal side are starting to worry about going off a fiscal cliff.
+ - I never considered myself a cowboy, because I wasn’t. But I guess when I got into cowboy gear I looked enough like one to convince people that I was.
+ - I would like to be interpreted as a liberal libertarian, like leave everybody alone and let them do their own thing.
+ - I’ve had moments when I’ve thought about somebody, picked up the phone to call them and they are on the line already, and I think that maybe there’s some vibration, some connection.
+ - Our modern society – especially in the West, and especially now – reveres youth.
+ - In school, I could hear the leaves rustle and go on a journey.
+ - I haven’t killed anybody all day. Help me keep it that way.
+ - People love westerns worldwide. There’s something fantasy-like about an individual fighting the elements. Or even bad guys and the elements. It’s a simpler time. There’s no organized laws and stuff.
+ - Acting gets into your blood, after so many years, and I just always like revisiting it. It’s fun to meet new people and watch them coming along, at different stages of their careers.
+ - The best part of aging in this business is losing that obsession about work and being able to spend a little more time with family.
+ - I’m a movie maker, but I have the same feelings as the average guy out there.
+ - In recent times it just seems that women have been relegated to either romantic roles or fluff pieces. So the appeal, for me, is to make a picture about a real woman.
+ - You know when you’re young and you see a play in high school, and the guys all have gray in their hair and they’re trying to be old men and they have no idea what that’s like? It’s just that stupid the other way around.
+ - A man’s just gotta know his limits.
+ - Nowadays, politically, everybody is promising everything. That’s the only way you can get elected.
+ - I’ve lived through the shooting of movie, the editing and every other process along the way, so it’s not for me to really judge it. I’ll probably look at it again five years from now to get a fresh feel for it.
+ - You spend your life training to be an actor, observing people’s characteristics so that you can design characters around what you’ve seen.
+ - My old drama coach used to say, ‘Don’t just do something, stand there.’ Gary Cooper wasn’t afraid to do nothing.
+ - My father had a couple of kids at the beginning of the Depression. There was not much employment. Not much welfare. People barely got by. People were tougher then.
+ - When you’re making a film you start living with it, and I find myself sitting down and figuring out a sound or melody that would go with a film, or a particular period. It’s not brain surgery, you just kind of feel it along.
+ - I’m not really conservative. I’m conservative on certain things. I believe in less government. I believe in fiscal responsibility and all those things that maybe Republicans used to believe in but don’t any more.
+ - There’s a lot of young guys coming along, but I’d like to say to the various financiers, don’t forget the senior guys. The senior guys and gals are there, willing to do their best work for you.
+ - This film cost $31 million. With that kind of money I could have invaded some country.
+ - I’m not a chick-flick enthusiast.
+ - Every story has its demands.
+ - I can’t do that to myself!
+ - I like a drama. And I think that’s the basis of good films, or good plays, is to have a nice drama.
+ - At certain points if your life, you like doing more. I’m not sure what causes it or for what reasons; you just do it.
+ - Romney and Ryan would do a much better job running the country, and that’s what everybody needs to know.
+ - It’s a very confusing era that we’re in.
+ - Whatever the drama of the story is, you have to be true to it.
+ - No, I don’t have to practice that grunt. You just do it. Once you’re in character, you’re in character. You don’t sit there purposely thinking, Well, I’ll grunt here, or I’ll groan there.
+ - I’ve got to learn French because I’ve been going there for years and still, the only words I know are the swear words.
+ - I just don’t want to copy the current trends or do movies for teenagers. I want people to get more out of movies.
+ - Hitchcock used to believe that if there were three or four memorable scenes in a film that would be enough to drive it, but I don’t know if that’s true or not.
+ - If you get a certain amount of notoriety for doing something, and you can stick to that type of project for the rest of your life and make a decent living, I think you still have a responsibility to stretch. Flexibility is what keeps you alive.
+ - Over the years, I realized there was a Republican philosophy that I liked. And then they lost it. And LIBERTARIANS had more of it. Because what I really believe is, let’s spend a little more time leaving everybody alone.
+ - Directing is more like you’re being a psychologist and you’re kind of analyzing the situation and evaluating each person for their idiosyncrasies.
+ - If you cast a film incorrectly, then you’re going to be fighting an uphill battle.
+ - Actors know what actors are insecure about – and they’re all insecure.
+ - I’m more focused on making a scene seem real as opposed to perfect.
+ - There’s a lot of great movies that have won the Academy Award, and a lot of great movies that haven’t. You just do the best you can.
+ - You are always hoping that movie audiences are interested in characters and interested in story values rather than just mindless special effects. But you never know.
+ - Twenty-some states in the United States have statutes that say showing the nipples to children is oscene. That’s the first thing we come into contact with when we arrive on this palnet: a woman’s breasts!
+ - You get to a certain age and you’re just glad to be there. I don’t know what to add to that. It’s fun. You have to be a realist, so you try to look for roles that are within the age you are.
+ - Michael Moore and I actually have a lot in common. We both appreciate living in a country where there’s free expression. But Michael, if you ever show up at my front door with a camera, I’ll kill you. I mean it.
+ - If you’re afraid to take risks in anything in life, it’s just boredom.
+ - Everything that you do is a challenge. And acting is just building up your concentration and being able to listen and to do the ridiculous.
+ - You can’t stop everything from happening. But we’ve gotten to a point where we’re certainly trying. If a car doesn’t have four hundred air bags in it, then it’s no good.
+ - That’s the secret to a movie career – just keeping an open mind.
+ - Every movie I make teaches me something. That’s why I keep making them.
+ - Great stories teach you something. That’s one reason I haven’t slipped into some sort of retirement: I always feel like I’m learning something new.
+ - If you read any of the biographies on J. Edgar Hoover, you find that they contradict each other more than they agree. Often times, they’re often told from a political perspective.
+ - If I’d had good discipline, I might have gone into music.
+ - If you’re doing a biography, you try to stay as accurate as possible to reality. But you really don’t know what was going on in the person’s mind. You just know what was going on in the minds of people around him.
+ - The craving for information is so huge now, and it can be marketed at such a rapid rate.
+ - I do believe in self-help.
+ - I don’t necessarily look for dark themes; they just seem to appear.
+ - Drama usually has some sort of intense conflict.
+ - Nobody looks like they did when they were 20, so why not take advantage of the fact that you’re changing, emotionally as well as physically?
+ - I still work out on a daily basis.
+ - The only reason I ever thought about retiring from the front part of the camera as opposed to the back is sometimes you think, “How many roles are there for someone my age?”
+ - The main thing is, you just want to have your place in history. You hope that people will look back on it in 15, 20, 30 and beyond years, and say, “That was an exciting film.”
+ - I’d been trying to retire to the back of the camera for quite a few years. And then, in 1970, when I first started directing, I if I could pull this off, I can some day just move in back of the camera and stay there.
+ - We don’t even know who’s in the Academy.
+ - I just make the pictures and where they fall is where they fall. If somebody likes them, that’s always nice. And if they don’t like them, then too bad.
+ - Everybody thinks making films back to back is a big deal but they did it all the time in the old days.
+ - Society is at odds with itself.
+ - I couldn’t tell you exactly what I like about golf. Just when you think you’ve got it mastered it lets you know you haven’t. I’m just crazy enough to do it.
+ - I always liked characters that were more grounded in reality.
+ - When I see a story, I ask: is this something I’d like to be in? Is this something I’d like to see? And if I’d like to see it, would I like to tell it?
+ - I guess a great movie would be one that has the most great moments in it.
+ - I’m trying to preach the idea that if we don’t pay attention to history we’re destined to repeat it.
+ - I like to direct the same way that I like to be directed.
+ - As a movie actor, once you’ve become known, you’re observed all the time so you don’t get the chance to observe anymore. You still get a taste of life but it’s not quite the same and there’s something to be said for a more anonymous life.
+ - I don’t really get into a big intellectual analysis of why I am going to do a certain script or not.
+ - Being comfortable is over-rated.
+ - I think great movies have to have some great moments in them to bring them up to that level.
+ - To me cinema can be a much more friendly world if there’s a lot of things to choose from.
+ - My mother knew how to read music and everything. But I just kinda learned off of records. And so, I was listening to records and I’d play ’em over and over.
+ - When you think of a particular director, you think you would have liked to be with them on one particular film and not necessarily on some other one.
+ - I guess any movie actor can become a role model for audiences out there who enjoy him.
+ - You definitely do not do films for that particular reason. You do them for yourself, for your satisfaction of creating this thing with characters and watching these characters take on real life – that’s all you care about.
+ - You should just evaluate the work and make your judgments accordingly. That’s the way you do it in life and every other subject.
+ - Am I aging? The pros and the cons? Well, you know a lot more, at least until the time you start forgetting it all. Actually, aging can be a fun process, to some degree.
+ - I became a Republican in 1951, the first year I could vote.
+ - If somebody’s dumb enough to ask me to go to a political convention and say something, they’re gonna have to take what they get.
+ - I don’t watch a lot of films. I’m usually involved in making them.
+ - I’m interested in the fact that the less secure a man is, the more likely he is to have extreme prejudice.
+ - I’ve taken advantage of a few breaks that came along and moved along with them.
+ - They’ve got this crazy actor who’s 82 years old up there in a suit. I was a mayor, and they’re probably thinking I know how to give a speech, but even when I was mayor I never gave speeches. I gave talks.
+ - If you feel like you’ve got something to offer you should do it while the iron’s hot.
+ - A lot of people are realizing they had the wool pulled over their eyes by Obama.
+ - You have to steal a lot. You have to have a criminal mentality to be a film director.
+
+225 quotes

@@ -1,0 +1,54 @@
+ - I do what I do because it is the right thing to do. I am a warrior, and it is the way of the warrior to fight superior odds.
+ - My position is this. If we can’t protect sanctuaries, if we can’t save the whales, the sharks, the fish, our oceans will die.
+ - Follow your dreams and use your natural-born talents and skills to make this a better world for tomorrow.
+ - There is a lack of economic and political motivation to defend life in the oceans. The profit is made by companies exploiting the oceans and they have the money to buy the politicians who make the laws.
+ - We are literally eating the oceans alive and there are simply not enough fish to continue to feed an ever expanding population of humanity.
+ - If you want to know where you would have stood on slavery before the Civil War, don’t look at where you stand on slavery today. Look at where you stand on animal rights.
+ - We don’t give a damn what you or anybody else on this planet thinks. We didn’t sink those ships for you. We did it for the whales.
+ - It is true that many of the Sea Shepherd crewmembers are inexperienced, but the fact is that these volunteers bring a passion to the project that cannot be found in a hired crew.
+ - Pigs eat more tuna than all the planet’s sharks combined.
+ - All of the great whales are endangered.
+ - We’re just a conceited naked ape, but in our minds we’re some ‘divine legend’ and we see ourselves as some sort of god, thinking we can decide what will live and what will die, what will be saved and what will be destroyed, but honestly we’re just a bunch of primates out of control.
+ - Social change comes through people.
+ - We live in a media culture and whoever controls and influences and uses media the best has the power for change.
+ - The tragedy is that there is so much more incentive – money – to destroy the ecology than there is to preserve it.
+ - Unless we stop the degradation of our oceans, marine ecological systems will begin collapsing and when enough of them fail, the oceans will die. And if the oceans die, then civilization collapses and we all die.
+ - That fact is that we live in an extremely violent culture, and we all justify violence if it’s for what we believe in .
+ - In the great scheme of things, what matters is not how long you live but why you live, what you stand for and what you are willing to die for.
+ - It doesn’t matter what is true, it only matters what people believe is true.
+ - The shark is the apex predator in the sea. Sharks have molded evolution for 450 million years. All fish species that are prey to the sharks have had their behavior, their speed, their camouflage, their defense mechanisms molded by the shark.
+ - Everybody is a hypocrite. You can’t live on this planet without being a hypocrite.
+ - Nazi propaganda Minister Joseph Goebbels once remarked that if a lie is told often enough people will begin to see the lie as truth.
+ - A vegan riding a hummer contributes less to greenhouse gas emissions than a meat eater riding a bicycle.
+ - Intelligence is the ability of a species to live in harmony with its environment.
+ - I got the impression that instead of going out to shoot birds, I should go out and shoot the kids who shoot birds.
+ - Musicians have made incredible contributions to the conservation and environmental movement and continue to do so, more than ever.
+ - We have intelligent species on our planet that we are not even trying to communicate with.
+ - I’ve had a lot of disappointments. I think my biggest disappointment is the failure of elected officials to make good on their promises in regards to the environment or anything else, really. I have very little faith in politicians.
+ - There’s nothing wrong with being a terrorist, as long as you win. Then you write history.
+ - It’s funny but when young people say to me “what can I study to be a force for change, should I study law or biology or business?” My answer is music, drama, journalism, communications.
+ - What we need now is heroes – millions of them. Sentiment without action is the ruin of the soul.
+ - Immigration is one of the leading contributors to population growth.
+ - There is no sustainable future for fisheries as long as human populations continue to increase.
+ - I have hope that humanity will be cured of our collective ecological insanity and that we adapt to living within the boundaries of the laws of ecology.
+ - Musicians have the power to influence people and along with movie makers, they can reach and influence more people than any group of people, more than scientists and certainly more than politicians.
+ - We go after unlawful activities.
+ - You can’t love nature with a gun.
+ - Be a voice for the future and a voice for the planet.
+ - Once we get three more directors elected, the Sierra Club will no longer be pro-hunting and pro-trapping and we can use the resources of the $95-million-a-year budget to address some of these issues.
+ - Earthworms are far more valuable than people.
+ - If you don’t know an answer, a fact, a statistic – make it up on the spot.
+ - North American cats eat more fish than all the world’s seals put together, yet we lay the blame on the seals for the declining fish stocks.
+ - Unlike aboriginal hunters, commercial seal hunters leave the carcasses on the ice to rot.
+ - I’ve got no criminal record.
+ - Atlantic puffins starve to death so that Danish chickens can feast on their fish.
+ - If you do not intend to kill anybody, if you make every effort to not kill and injure anybody, that’s all you really can do. You can’t stop somebody from walking into a situation, and we really can’t be too overly preoccupied with this.
+ - Almost all theological thought is anthropocentric and I just cannot buy into the anthropocentric ideology. Basically we’re a bunch of conceited apes.
+ - This isn’t a hunt that’s going to kill just four or five gray whales. The repercussions of this will have an effect on tens of thousands of whales that will be killed by the Japanese and Norwegians.
+ - To slaughter grand and beautiful creatures like these tuskers, whether terrestrial or marine, solely to obtain a few teeth indicates that we have not evolved very much since the days our forebears lived in caves and saught to prove their superiority by adorning themselves with teeth and claws.
+ - The Polynesians used to have a system where they proclaimed a fishing area as ‘taboo.’ If any fisherman was caught fishing in a taboo area, they would be killed. The Polynesians understood that the fish had to be given a chance to recover.
+ - The fact is I have never been convicted of a crime.
+ - Back in 1980, whale watching surpassed whaling as an industry. Now it’s worth about four times as much. Whale watching provides far, far more jobs to people than whaling ever did. Whale watching has become an ally in the fight to end whaling.
+ - I can assure you no whales are going to be killed today.
+
+52 quotes

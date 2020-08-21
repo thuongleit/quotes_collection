@@ -1,0 +1,24 @@
+ - People have the inner resources to become anything they want to be. Challenge just becomes the vehicle for tapping into those inner resources.
+ - Success is not just the crowning moment, the spiking of the ball in the end zone or the raising of the flag on the summit. It is the whole process of reaching for a goal and, sometimes, it begins with failure.
+ - I think that it is everyone’s obligation they owe to themselves and to their lives to figure out their own way up their own mountain.
+ - People get trapped into thinking about just one way of doing things.
+ - Confidence without skill is just emptiness.
+ - I’ve been lucky to have lots and lots of mentors. I think that is incredibly important in anyone’s life to encourage and inspire them, let them understand that their own potential is a reality that they can strive for.
+ - You don’t just deal with adversity. You use it to propel you forward.
+ - The truth is that adversity is a part of most days. Whether you are ultimately weakened or strengthened by each event, or the accumulation of events, will depend on you first mastering the ability to Take It On!
+ - The key is to really have tremendously high expectations and to teach kids how to be self sufficient and confident and give them the skills that they need to succeed.
+ - I have a variety of friends I climb with. But the common thing is I trust all of them. They’re solid climbers, the sort of people I trust to know what they’re doing.
+ - There is a very blurry line between the things we can’t do and the things that we can.
+ - When I went blind at 13, I realized that I wasn’t going to be a good baseball or basketball player like I enjoyed before. It forced me to look beyond the obvious, to things that I could still do well.
+ - What a thrill to be able to say that you had a contribution in the life of someone – a young person, perhaps, who is trying to take a look at the possibility of their own lives and find out what they are good at and you can help steer their career.
+ - When I’m following someone, I’m listening to a bear bell strapped to their packs. When I’m leading on a climb, like on a rock, I like to feel my way through it on my own, so I know the tricky moves and where to place gear.
+ - I like to skin up ski resorts and, for me, being blind, that’s nice because it’s wide open, with no avalanche danger.
+ - It’s kind of too movie-like to say, “When I started climbing, I knew I wanted to climb Everest some day.” Instead, I just started rock climbing as a kid, when I was 16, and then I started teaching and a buddy of mine started taking me out.
+ - You can’t have self confidence without some real skills that enable you to be successful.
+ - Climbing is actually a great sport for blind people and that carried me on to climbing bigger and bigger mountains, snowy mountains, ice faces, and developing different techniques to be able to do that.
+ - You can’t always get out on the mountain, so I’ll put rubber on the end of my ice tools and climb the tread wall, a rotating rock wall I have in my backyard.
+ - It is exciting to kind of figure things out in yourself and then use other people to help you figure things out so you can really reach your potential.
+ - Maybe people, maybe the world writes things off as impossible a little too quickly, when they really aren’t – when they just haven’t reached out and figured out how to utilize their resources to the fullest degree or created pioneering systems in their lives.
+ - I found climbing to be a very tactile sport. There’s no ball that is zipping through the air ready to crack you in the head. It is just you and the rock base.
+
+22 quotes

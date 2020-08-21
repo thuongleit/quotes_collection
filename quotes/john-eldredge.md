@@ -1,0 +1,67 @@
+ - Deep in his heart, every man longs for a battle to fight, an adventure to live, and a beauty to rescue.
+ - Every man is a warrior inside. But the choice to fight is his own.
+ - The most dangerous man on earth is the man who has reckoned with his own death. All men die; few men ever really live.
+ - You can’t fight a battle you don’t think exists.
+ - The story of your life is the story of the long and brutal assault on your heart by the one who knows what you could be and fears it.
+ - Without the anticipation of better things ahead, we will have no heart for the journey.
+ - Desire reveals design, and design reveals destiny.
+ - We are created for adventure, and if we cannot find one, we start blowing things out of proportion so it feels like we have one.
+ - Worship is the act of the abandoned heart adoring its God.
+ - Security is not found in the absence of danger, but in the presence of Jesus.
+ - A wound that goes unacknowledged and unwept is a wound that cannot heal.
+ - Truth be told, most of us are faking our way through life. We pick only those battles we are sure to win, only those adventures we are sure to handle, only those beauties we are sure to rescue.
+ - The point is the love story. We live in a love story in the midst of war.
+ - Adventure, with all its requisite danger and wildness, is a deeply spiritual longing written into the soul of man.
+ - A man needs a much bigger orbit than a woman. He needs a mission, a life purpose, and he needs to know his name. Only then is he fit for a woman, for only then does he have something to invite her into.
+ - Faith looks back and draws courage; hope looks ahead, and keeps desire alive.
+ - Desire, both the whispers and the shouts, is the map we have been given to find the only life worth living.
+ - In the end, it doesn’t matter how well we have performed or what we have accomplished – a life without heart is not worth living.
+ - We think you’ll find that every woman in her heart of hearts longs for three things: to be romanced, to play an irreplaceable role in a great adventure, and to unveil beauty. That’s what makes a woman come alive.
+ - Every boy, in his journey to become a man, takes an arrow in the center of his heart, in the place of his strength. Because the wound is rarely discussed and even more rarely healed, every man carries a wound. And the wound is nearly always given by his father.
+ - She is the crescendo, the final, astonishing work of God. Woman. In one last flourish creation comes to a finish with Eve. She is the Master’s finishing touch.
+ - An intimate encounter with Jesus is the most transforming experience of human existence. To know him as he is, is to come home. To have his life, joy, love, and presence cannot be compared. A true knowledge of Jesus is our greatest need and our greatest happiness.
+ - You would not ask someone with a broken arm to swim the English Channel, so you cannot demand that the broken to live as if they were whole.
+ - We are made in the image of God; we carry within us the desire for our true life of intimacy and adventure. To say we want less than that is to lie.
+ - You live in a world at war. Spiritual attack must be a category you think in or you will misunderstand more than half of what happens in your marriage.
+ - I wasn’t mean; I wasn’t evil. I was nice. And let me tell you, a hesitant man is the last thing in the world a woman needs. She needs a lover and a warrior, not a Really Nice Guy.
+ - But a wound unfelt is a wound unhealed.
+ - Story is the language of the heart.
+ - Falling in love with God is the most important thing a person can do.
+ - The true story of every person in this world is not the story you see, the external story. The true story of each person is the journey of his or her heart.
+ - There is something about human nature that just doesn’t want to face the reality that we live in two worlds. We live in the physical, material world where we have jobs, read books, and go about our business. And we live in a spiritual world – and that is a world at war.
+ - My heart matters to God. My heart has always mattered to him...
+ - A true knowledge of Jesus is our greatest need and our greatest happiness.
+ - I don’t write anything that I haven’t lived. In terms of integrity, you have to write what you live. And if you write beyond what you live, it is theory. And theory is not helpful. It is just not.
+ - The real you is on the side of God against the false self.
+ - It is the thoughts and intents of the heart that shape a person’s life.
+ - We are not inviting – we are guarded. Most of our energy is spent trying to hide our true selves, and control our worlds to have some sense of security.
+ - Most of what you encounter when you meet a man is a facade, an elaborate fig leaf, a brilliant disguise.
+ - Every man carries a wound. I have never met a man without one. No matter how good your life may have seemed to you, you live in a broken world full of broken people.
+ - Eve is a life giver; she is Adam’s ally. It is to both of them that the charter for adventure is given. It will take both of them to sustain life. And they will both need to fight together.
+ - It takes great courage to be vulnerable. It takes enormous strength to be a real woman.
+ - Mary had Joseph. Esther had Mordecai. Ruth had Boaz. We will not become the women God intends us to be without the guidance, counsel, wisdom, strength, and love of good men in our lives.
+ - The meaning of our lives is revealed through experiences that at first seem at odds with each other – moments we wish would never end and moments we wish had never begun.
+ - Henri Nouwen once asked Mother Teresa for spiritual direction. Spend one hour each day in adoration of your Lord, she said, and never do anything you know is wrong. Follow this and you’ll be fine.
+ - Most of us live in a fog. It’s like life is a movie we arrived to 20 minutes late. You know something important seems to be going on. But we can’t figure out the story. We don’t know what part we’re supposed to play or what the plot is.
+ - Christianity has basically communicated to men that the reason God put you on this Earth is to be a good boy. Mind your manners, be a nice guy. That’s soul killing!
+ - If we can reawaken that fierce quality in a man, hook it up to a higher purpose, release the warrior within, then the boy can grow up and become truly masculine.
+ - Most Christians are still living with an Old Testament view of their heart. Jeremiah 17:9 says, ‘My heart is deceitfully wicked.’ No, it’s not. Not after the work of Christ, because the promise of the new covenant is a new heart.
+ - We don’t see clearly because we don’t see with the eyes of our heart.
+ - It was men who stopped slavery. It was men who ran up the stairs in the Twin Towers to rescue people. It was men who gave up their seats on the lifeboats of the Titanic. Men are made to take risks and live passionately on behalf of others.
+ - Caring for our own hearts isn’t selfishness; it’s how we begin to love.
+ - A man does not go to a woman to get his strength; he goes to her to offer it.
+ - He is the playfulness of creation, scandal and utter goodness, the generosity of the ocean and the ferocity of a thunderstorm; he is cunning as a snake and gentle as a whisper; the gladness of sunshine and the humility of a thirty-mile walk by foot on a dirt road.
+ - God endowed you with a glory when he created you, a glory so deep and mythic that all creation pales in comparison.
+ - Contentment can only happen as we increase desire, let it run itself out towar its fulfilment, and carry us along with it.
+ - What strikes me about Jesus is that he is a remarkably true person; he never changes his personality to fit in with whatever crowd he finds himself. He is simply himself, and he never plays to his audience.
+ - A man’s calling is written on his true heart, and he discovers it when he enters the frontier of his deep desires.
+ - If a man is ever to find out who he is and what he is here for, he has got to take that journey for himself. He has got to get his heart back.
+ - When a woman forsakes her vulnerability because she’s been hurt or because she lives in a dangerous world or doesn’t want to be used, she loses something essential about being a woman.
+ - I’m married. I have three children. I have a mortgage to pay. The plumbing breaks and the yard needs trimming. However, what my wife and children need most from me is my passion for them.
+ - Don’t climb on that, don’t break anything, don’t be so aggressive, don’t be so noisy, don’t be so messy, don’t make such crazy risks. But God’s design – which He placed in boys as the picture of Himself – is a resounding yes. Be fierce, be wild, be passionate.
+ - Am I really a man? Have I got what it takeswhen it counts?
+ - To be in theater you have to be a kind of psychologist, for you’re always trying to understand character and motives.
+ - They ignore what is deep and true to a man’s heart, his real passions, and simply try to shape him up through various forms of pressure.
+ - We don’t live in the Garden. We live far from Eden. Every life is full of heartaches. Every life, frankly, is unspeakably sad.
+
+65 quotes

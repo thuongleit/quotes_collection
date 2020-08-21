@@ -1,0 +1,23 @@
+ - Free your mind and your ass will follow.
+ - Think! It ain’t illegal ‘yet.’
+ - Look both ways before you cross my mind.
+ - Funk ’em, just to see the look on their face.
+ - Style is whatever you want to do, if you can do it with confidence.
+ - Whoever controls the flow of information dictates our perceptions and perspectives; whoever controls the news shapes our destiny.
+ - Why must I feel like that? Why must I chase the cat?
+ - The words I use too often are X-rated, something an old man like me shouldn’t be talking about anyway.
+ - The desired effect is what you get when you improve your interplanetary funksmanship.
+ - If you got a booty, you’re going to dance to disco, funk, you know, whatever’s going on. Funk is going to be involved in it.
+ - When I hear music that parents hate, or older musicians hate, I know that’s the new music. When I hear older people saying, ‘I hate Rap or Techno’ I rush to it.
+ - I’m always surprised that I’m still around funk and that people are still into it.
+ - Hip-hop is getting to the point now where they are going to start sounding like Al Jarreau or Bobby McFerrin or some of the other poets. Some of the better rappers can rap real fast without even melodies. It’ll get to that same point.
+ - I pick up on styles, way before they get popular, pretty much before young kids do. I see ’em coming.
+ - I think a lot of people really have religious overtones of having come from somewhere. I mean, even the whole concept of religion is kind of alien.
+ - You can rebel against everything adults say. When I want to find out what the new music is, I find out what parents hate.
+ - Record companies would rather you stay dumb, not even think of it as a business, so they can either rip you off or get you out of the way in five years to make way for the new groups.
+ - I was at the Apollo Theater all the time, skipping school, and I worked in a barbershop. That’s how I started with doo-wop. Now I’ve come full circle. I did all kinds of music. I used to work on Broadway and Tin Pan Alley.
+ - Absorb youth and you will be absorbed by youth. Take on new influences without fear and you need not fear what is new. Change the people around you by changing the people around you.
+ - I worked in a barbershop. I used to make the waves in the brother’s hair, you know? Like, Nat King Cole, Sugar Ray Robinson.
+ - The bigger the headache, the bigger the pill.
+
+21 quotes

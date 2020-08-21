@@ -1,0 +1,35 @@
+ - If one looks at a thing with the intention of trying to discover what it means, one ends up no longer seeing the thing itself, but of thinking of the question that is raised.
+ - Nothing is confused except the mind.
+ - People who look for symbolic meaning fail to grasp the inherent poetry and mystery of the images.
+ - If the dream is a translation of waking life, waking life is also a translation of the dream.
+ - To be a surrealist means barring from your mind all remembrance of what you have seen, and being always on the lookout for what has never been.
+ - We are surrounded by curtains. We only perceive the world behind a curtain of semblance. At the same time, an object needs to be covered in order to be recognized at all.
+ - Visible things can be invisible. However, our powers of thought grasp both the visible and the invisible – and I make use of painting to render thoughts visible.
+ - Everything that is visible hides something that is invisible.
+ - I like subversive humor, freckles, women’s knees and long hair, the laughter of playing children, and a girl running down the street.
+ - The feeling we experience while we look at a picture is not to be distinguished from the picture or from ourselves. the feeling, picture, and ourselves are united in one mystery.
+ - The famous pipe. How people reproached me for it! And yet, could you stuff my pipe? No, it’s just a representation, is it not? So if I had written on my picture “This is a pipe”, I’d have been lying!
+ - We must not fear daylight just because it almost always illuminates a miserable world.
+ - Do not accept any explanation of the world either through chance or determinism. You are not responsible for your belief. It is not even you who decides that you are not responsible – and so on to infinity. You are not obliged to believe. There is no point of departure.
+ - Everything we see hides another thing, we always want to see what is hidden by what we see, but it is impossible. Humans hide their secrets too well...
+ - Painting bores me like everything else. Unfortunately, painting is one of the activities – it is bound up in the series of activities – that seems to change almost nothing in life, the same habits are always recurring.
+ - A thing which is present can be invisible, hidden by what it shows.
+ - A truly poetic canvas is an awakened dream.
+ - The mind loves the unknown. It loves images whose meaning is unknown, since the meaning of the mind itself is unknown.
+ - Art evokes the mystery without which the world would not exist.
+ - The present reeks of mediocrity and the atom bomb.
+ - I need to see the original paintings just as little as I have to read the original manuscripts of books.
+ - Too often we tend to reduce what is strange to what is familiar. I intend to restore the familiar to the strange.
+ - I have few illusions: the cause is lost in advance. As for me, I do my part, which is to drag a fairly drab existence to its conclusion.
+ - The purpose of art is mystery.
+ - No object is stuck with its name so irrevocably that one cannot find another which suits it better.
+ - Life obliges me to do something, so I paint.
+ - Each thing we see hides something else we want to see.
+ - Only thought can resemble. It resembles by being what it sees, hears, or knows; it becomes what the world offers it.
+ - I want nevertheless to add that for me the world is a defiance of common sense.
+ - An object never serves the same function as its image – or its name.
+ - My investigations resembled the pursuit of the solution to a problem for which I had three data: the object, the thing connected with it in the shadow of my consciousness, and the light wherein that thing would become apparent.
+ - Those who become entangled in these false ideas are prevented from perceiving the Integral Oneness.
+ - I think we are responsible for the universe, but that doesn’t mean we decide anything.
+
+33 quotes

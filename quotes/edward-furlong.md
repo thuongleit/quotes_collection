@@ -1,0 +1,29 @@
+ - Basically, man, I just love myself.
+ - People aren’t born racist.
+ - The first willing concert I went to was Aerosmith when I was like 14.
+ - I’d be a liar if I said I had a normal family.
+ - But I’m not like sad, depressed miserable person. I guess sometimes I give off that impression.
+ - We’re not gonna make it, are we? People, I mean.
+ - It is in your nature to destroy yourselves.
+ - I was scared I was going to have some weird shape to my head and I was pleased that I didn’t.
+ - By the time I’m old, I’m sure I’ll have lived a full enough life. I think we’re mortal for a reason. Life gets tiring, man!
+ - I am very, very competitive and ambitious. I would definitely fight hard for a role I believed in.
+ - You just can’t go around killing people!
+ - I don’t think anyone has a normal family.
+ - I’ve always liked women. But I don’t want somebody who likes me because I’m famous. I like girls who are intelligent and who are kind of quiet like me.
+ - It hasn’t been a totally smooth road, but in the whole span of things I feel like a very lucky person.
+ - Little Odessa. Of all my movies, it’s the one that I still really love when I watch it and I’m pretty happy with what I didn in that.
+ - I had a hard time going back to school after T2. I really didnt want to go to private school.
+ - I have a little brother. He’s actually living at my house right now. He’s going to be 18.
+ - It’s really hard to find good movies, and that’s pretty much what I try to find, good movies.
+ - Jim Cameron used to call me ‘Special Ed.’
+ - A lot of people my age are so hyper. I like hyper people.
+ - But i think it would drive me more crazy to just go do a movie that I didn’t believe in, you know?
+ - Who wants to go to school and be asked for, like, 20 autographs?
+ - Detroit was kind of a random thing where it was like a chance to be in a rock ‘n’ roll movie.
+ - Im not this tortured soul or anything.
+ - When I was a kid, the idea of why I wanted acting to be the thing I do for the rest of my life was different. It was, Oh yeah, I’ll get girls and be famous.
+ - I enjoy playing people that are totally different than me.
+ - If I was in a room with a bunch of skinheads talking about racism, then I would be disturbed, but after we finished a take, we were normal people again.
+
+27 quotes

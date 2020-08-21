@@ -1,0 +1,93 @@
+ - Every day on Earth is another chance to get it right.
+ - The revolution starts now.
+ - I have a low tolerance for mediocrity in music and life. I’m into pain and joy and the in-between doesn’t interest me.
+ - I ain’t ever satisfied...
+ - Townes Van Zandt is the best songwriter in the whole world, and I’ll stand on Bob Dylan’s coffee table in my cowboy boots and say that.
+ - To me, religion is an agreement between a group of people about what God is. Spirituality is a one-on-one relationship.
+ - New Orleans is a unique environment.
+ - Every country that’s ever been the most powerful country in the world ceases to be the most powerful country in the world at some point.
+ - I don’t separate writing songs from poetry and short fiction. In the area where I work in my house, there’s a word processor and a guitar.
+ - I was born on this mountain, this mountains my home, she holds me and keeps me from worry and woe.
+ - America’s criminal justice system isn’t known for rehabilitation. I’m not sure that, as a society, we are even interested in that concept anymore.
+ - What songwriting does better than almost anything is empathy – it’s incredibly empathetic. The reason people sat around in bars when they were bummed out and listened to country songs is because it made them feel better in the long run.
+ - The singer-songwriter has always played music that was stylistically rooted in the ’30s and the Great Depression and the Dust Bowl. But the fact of the matter is that none of us remember the Depression firsthand.
+ - I had everything I need to get me killed.
+ - My objection to the death penalty is based on the idea that this is a democracy, and in a democracy the government is me, and if the government kills somebody then I’m killing somebody.
+ - Maybe I’m not as big a star as Bruce Springsteen because I’m not as good. I don’t know. It doesn’t matter. I still have an audience of a certain size. I think it’s one of the things I’m luckiest.
+ - I’m not going to waste a second feeling sorry for myself because I’m not a bigger star than I am. I can walk down the street in most places in the world and I still drive really nice cars.
+ - I wish I was as sure about things as Bill Monroe was sure about things.
+ - Funerals are a pagan rite. There’s not any doubt about it.
+ - I’m trying to make records where people don’t feel cheated. Nashville has been guilty of insulting the Country Music audience for years and years.
+ - Politics has always been in my music. Anybody who doesn’t understand how political “Copperhead Road” is isn’t listening very well.
+ - Becoming interested in poetics got me interested in theater. Theater is supposed to be poetry, you know, before it’s anything else. It just doesn’t fly if it isn’t musical.
+ - I’m a very disciplined person when it comes to my work, but discipline can’t save m from being a drug addict.
+ - My son was diagnosed with autism. He’s OK, he makes eye contact, but he doesn’t talk. He needs eight hours a day of very intensive school, and you wouldn’t even believe me if I told you how much it costs.
+ - Me, I’m spiritually retarded, I need to be knee deep in water with a fly rod in my hands, that’s about as close to God as I get.
+ - Or you can be like the Soviet Union, start out with ideals, and end up ceasing to exist.
+ - I have no doubt in mind that I justify the space I take up in the world.
+ - I’m from Texas. I hitchhiked to Tennessee when I was 19 years old, and it is really beautiful in Tennessee.
+ - My dad was in a wheelchair and on oxygen for the last few years of his life.
+ - I do not believe Tony Blair was a fundamentally good man who went bad. I believe he was evil in the first place.
+ - Every leap forward that I make is by reaching back and firmly getting a footing in the past, and pushing forward as hard as I can.
+ - At home, I’m lucky if I can write three or four hours before the phone starts ringing and the kids want to go to soccer.
+ - You know I ain’t never prayed before ‘Cause it always seemed to me That prayin’s the same as beggin’ Lord, I don’t take no charity.
+ - People hate good books to be over. I wish I could write a 700-page book.
+ - I’ve never known of Wal-Mart to be a good neighbor in any town it’s ever moved into.
+ - You know, I’m not comfortable with people whose politics are static in a democracy.
+ - I still write more songs about girls than anything else.
+ - Like most kids, I grew up singing ‘This Land Is Your Land’ in grammar school, but with the most radical verses neatly removed. This was before I knew it was a Woody Guthrie song.
+ - What’s important is you wake up in the morning and something doesn’t exist, and when you finish you day’s work something is in the world that wasn’t there before.
+ - My audience doesn’t agree with me on everything, but I love my audience, because they’re totally okay with us having a dialogue.
+ - Fundamentalism, as practiced by the Taliban, is the enemy of real thought, and religion too.
+ - Actually, in its purest form, Islam is incredibly tolerant. That makes what’s going on in the world really bizarre.
+ - The creative core of New York has never been native New Yorkers; it’s people from all over the world.
+ - I grew up counterculture. I’m essentially a hippie, and I’m essentially a folkie.
+ - The reason music became so powerful to our generation is that it’s art you can consume in your car, and we were driving around a lot.
+ - I just had a child on purpose at age 56, I’m pretty f – ing optimistic.
+ - My main area of activism is the death penalty, and it will continue to be once this crisis is over with.
+ - I don’t type fast. I type with three fingers – two on one hand, and I only get one going on the other. I think my thumb’s in there, but I’m not sure. I may be no better than an orangutan when it comes to that.
+ - Politics and music don’t necessarily go hand in hand. They just do for me...
+ - I make an embarrassing amount of money for a borderline Marxist, just by selling 100,000 records. I don’t sell millions of records, and I don’t need to.
+ - I love baseball. I’ll probably end up one of those old farts who go to spring training in Florida every year and drive from game to game all day.
+ - Sympathetic characters usually have a voice. They usually don’t have any trouble being heard.
+ - I’ve been on every interstate highway in the lower forty-eight states by now, and I never get tired of the view.
+ - Greg Trooper writes great songs, including one of my very favorite songs in the world, Little Sister. On top of all that, there’s his voice – an instrument I have coveted for 15 years.
+ - Sonnets are guys writing in English, imitating an Italian song form. It was a form definitely sung as often as it was recited.
+ - He’s the real deal. Eric Taylor was one of my heroes and teachers when I started playing around Houston in the early 1970s.
+ - San Antonio is like a military town. It’s like literally – when I was growing up there, there were five Air Force bases, plus Fort Sam Houston. I was always sort of near the military.
+ - Poetry is the hardest thing that there is. It fascinates me, so I want to write more of it.
+ - I don’t think I’m a political songwriter as much as I am just a political person. I think it’s in my fabric.
+ - Records are only one-dimensional. Even film is only one-dimensional. That’s why music and live theatre is so important, because it’s not the same thing. A recording is just a record of part of the experience, but it’s not the whole experience.
+ - You see things differently at 40 than you do at 31. Especially if you got to 40 the way I did.
+ - I think the music business is changing. Artists that don’t want to tour and just want to collect royalty checks and stay home are not going to be able to do that.
+ - I love theater. I go all the time. It’s one of the reasons I moved to New York. But I understand that I have limited range as an actor. I can only play people who talk like me.
+ - I’m constantly warning people that are involved in my life that I can go busk and make a living. I can make my rent in New York City in the subway, I promise, if I’m forced to.
+ - Woody Guthrie was what folks who don’t believe in anything would call an anomaly.
+ - I’m used to writing stories with a beginning a middle and an end in four minutes.
+ - I don’t really think in terms of obstacles. My biggest obstacle is always myself.
+ - The stupidest thing that a writer can do is write a memoir I think, unless it’s right before you die – maybe.
+ - I’m supposed to make people cry, but not by manipulating.
+ - I’m not a Democrat; I’m something well to the left of a Democrat, but I’m just realistic about the system.
+ - I have a theory that the people who cook in jails are British chefs.
+ - I don’t usually read reviews.
+ - I’m one of the few people that I know that sings better than they did 20 years ago.
+ - I’ve been a serial husband, and I’ve done it badly every time.
+ - I think the criticism that I take to heart is from other writers that I respect.
+ - All we do as songwriters is rewrite the songs that have impressed us till we find our own voice. It’s part of learning the craft.
+ - I wasn’t raised to not write about issues, and I’m just living in really politically charged times. You know, I’d rather write songs about girls, but it’s just hard to do.
+ - If I can get Me out of the way, I can do anything.
+ - If there is such a thing as a workaholic, I’m it, and that’s what passes for leisure.
+ - I really believe that if I make records that are indispensable to my audience, they’ll go out and spend money to buy them, even if they’ve already downloaded them. If they can afford it. If they can’t, I’d rather they be able to download it than not get it at all.
+ - I can deal with conservatives in a democracy. With real conservatives, I don’t agree with them, but I understand why they believe what they believe and I believe they’re being honest with me about it.
+ - I don’t care what’s happening in the mainstream of country music. I haven’t in a long time.
+ - I mainly read non-fiction, and that’s probably because I have a huge amount of insecurity about my lack of education and the things I don’t know.
+ - I don’t believe that songwriting has to be profound, but I truly believe that it’s a crime for you to go outta your way for it not to be.
+ - My politics were really radical when I was younger, and then I moderated like everyone else does when they start having kids.
+ - I think it’s obvious that democracy is something that is contagious, and it always has been.
+ - There’s a long tradition of people from the South living in New York City.
+ - What saves me from being a drug addict is sort of the opposite. It’s me realizing that I don’t really control anything.
+ - I feel like I owe my audience something. They feed my kids. And I really like my job, a lot.
+ - Songwriters are expanding time rather than compressing time. My short stories tend to be old fashioned, with a beginning, middle and end.
+ - Part of it is, I think, just to let people know you’ve got a record out there and that you’re still alive requires more work than it used to, because the traditional radio, bug chains of record stores, all of that, that doesn’t exist anymore.
+
+91 quotes

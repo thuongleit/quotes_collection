@@ -1,0 +1,336 @@
+ - Fear is the mind-killer.
+ - There is no real ending. It’s just the place where you stop the story.
+ - Seek freedom and become captive of your desires. Seek discipline and find your liberty.
+ - Without change, something sleeps inside us, and seldom awakens. The sleeper must awaken.
+ - The mystery of life isn’t a problem to solve, but a reality to experience.
+ - Ideas are a dime a dozen. It’s execution that counts.
+ - I have no fear, for fear is the little death that kills me over and over. Without fear, I die but once.
+ - Deep in the human unconscious is a pervasive need for a logical universe that makes sense. But the real universe is always one step beyond logic.
+ - The mind commands the body and it obeys. The mind orders itself and meets resistance.
+ - Emotions are the curse of logic.
+ - Technology is both a tool for helping humans and for destroying them. This is the paradox of our times which we’re compelled to face.
+ - To stand alone against all adversity is the most sacred moment of existence.
+ - We Bene Gesserit sift people to find the humans.
+ - The best contribution one can make to humanity is to improve oneself.
+ - It is impossible to live in the past, difficult to live in the present and a waste to live in the future.
+ - The power to destroy a thing is the absolute control over it.
+ - To stay awake all night adds a day to your life.
+ - The beginning of knowledge is the discovery of something we do not understand.
+ - Power attracts the corruptible. Suspect any who seek it.
+ - A person needs new experiences. They jar something deep inside, allowing you to grow. Without them, it sleeps- seldom to awaken. The sleeper must awaken.
+ - He who controls the spice controls the universe.
+ - Hope clouds observation.
+ - We can say that Maud’Dib learned rapidly because his first training was in how to learn. And the first lesson of all was the basic trust that he could learn.
+ - The ferocity we show our foes must be tempered by the lesson we hope to teach.
+ - Bless the Maker and His water. Bless the coming and going of Him. May His passage cleanse the world. May He keep the world for His people.
+ - The successful writer listens to himself.
+ - Whether a thought is spoken or not it is a real thing and has powers of reality.
+ - Try looking into that place where you dare not look! You’ll find me there, staring out at you!
+ - Do actions agree with words? There’s your measure of reliability. Never confine yourself to the words.
+ - What do you despise? By this are you truly known.
+ - The Fremen were supreme in that quality the ancients called “spannungsbogen” – which is the self-imposed delay between desire for a thing and the act of reaching out to grasp that thing.
+ - A beginning is the time for taking the most delicate care that the balances are correct.
+ - Something cannot emerge from nothing.
+ - Once men turned their thinking over to machines in the hope that this would set them free. But that only permitted other men with machines to enslave them.
+ - Here lies a toppled god. His fall was not a small one. We did but build his pedestal, A narrow and a tall one.
+ - The highest function of ecology is the understanding of consequences.
+ - When I am weaker than you, I ask you for freedom because that is according to your principles; when I am stronger than you, I take away your freedom because that is according to my principles.
+ - When politics and religion are intermingled, a people is suffused with a sense of invulnerability, and gathering speed in their forward charge, they fail to see the cliff ahead of them.
+ - Producing perfection from imperfection is, after all, the highest of art forms.
+ - This wise man observed that wealth is a tool of freedom. But the pursuit of wealth is the way to slavery.
+ - You don’t write for success. That takes part of your attention away from the writing. If you’re really doing it, that’s all you’re doing: writing.
+ - Kindness is the beginning of cruelty.
+ - Belief can be manipulated. Only knowledge is dangerous.
+ - Survival is the ability to swim in strange water.
+ - Any road followed precisely to its end leads precisely nowhere. Climb the mountain just a little bit to test it’s a mountain. From the top of the mountain, you cannot see the mountain.
+ - Truth suffers from too much analysis.
+ - The real universe is always one step beyond logic.
+ - To suspect your own mortality is to know the beginning of terror, to learn irrefutably that you are mortal is to know the end of terror.
+ - What has mood to do with it? You fight when the necessity arises – no matter the mood! Mood’s a thing for cattle or making love or playing the baliset. It’s not for fighting.
+ - Justice belongs to those who claim it, but let the claimant beware lest he create new injustice by his claim and thus set the bloody pendulum of revenge into its inexorable motion.
+ - A world is supported by four things: the learning of wise, the justice of great, the prayers of the righteous and the valor of the brave. But all of these are as nothing without a ruler who knows the art of ruling.
+ - Thou shalt not make a machine in the likeness of a human mind.
+ - A process cannot be understood by stopping it. Understanding must move with the flow of the process, must join it and flow with it.
+ - Highly organized research is guaranteed to produce nothing new.
+ - A storm is coming; our storm. Emperor – we come for you!
+ - You aren’t thinking or really existing unless you’re willing to risk even your own sanity in the judgement of your existence.
+ - The most terrifying things in the universe came from human minds.
+ - Face your fears or they will climb over your back.
+ - It is not the present which unfluences the future, thou fool, but the future which forms the present. You have it all backward. Since the future is set, an unfolding of events which will assure that future is fixed and inevitable.
+ - Religions often partake of the myth of progress that shields us from the terrors of an uncertain future.
+ - Law is the ultimate science.
+ - The mind can go either direction under stress – toward positive or toward negative: on or off. Think of it as a spectrum whose extremes are unconsciousness at the negative end and hyperconsciousness at the positive end. The way the mind will lean under stress is strongly influenced by training.
+ - We faced it and did not resist. The storm passed through us and around us. It’s gone, but we remain.
+ - Any man who retreats into a cave which has only one opening deserves to die.
+ - Madness in method, that’s genius.
+ - Grief is the price of victory.
+ - Show me a completely smooth operation and I’ll show you someone who’s covering mistakes. Real boats rock.
+ - The only past which endures lies wordlessly within you.
+ - Polish comes from the cities; wisdom from the desert.
+ - If wishes were fishes, we’d all cast nets.
+ - Absolute power does not corrupt absolutely, absolute power attracts the corruptible.
+ - Justice required resort to law and that could be a fickle mistress, subject always to the whims and prejudices of those who administered the laws.
+ - Parting with friends is a sadness. A place is only a place.
+ - Blood is thicker than water, but politics are thicker than blood.
+ - Reason is the first victim of strong emotion.
+ - Peace for any prolonged period of time is impossible. Humans have a natural thirst for chaos and war is the most readily available form of chaos.
+ - I’m going to rub your faces in things you try to avoid. I don’t find it strange that all you want to believe is only that which comforts you. How else do humans invent the traps which betray us into mediocrity? How else do we define cowardice?
+ - You’ve heard of animals chewing off a leg to escape a trap? There’s an animal kind of trick. A human would remain in the trap, endure the pain, feigning death that he might kill the trapper and remove a threat to his kind.
+ - I give you the chameleon, whose ability to blend itself into the background tells you all you need to know about the roots of ecology and the foundations of a personal identity.
+ - To know a thing well, know it’s limits; Only when pushed beyond it’s tolerance will it’s true nature be seen. -The Amtal Rule.
+ - The function of science fiction is not always to predict the future but sometimes to prevent it.
+ - My father once told me that respect for truth comes close to being the basis for all morality. ‘Something cannot emerge from nothing,’ he said. This is profound thinking if you understand how unstable ‘the truth’ can be.
+ - Growth is limited by that necessity which is present in the least amount.
+ - You can’t build politics on love. People aren’t concerned with love; it’s too disordered. They prefer despotism. Too much freedom breeds chaos.
+ - The most persistent principles in the universe are accident and error.
+ - The purpose of argument is to change the nature of truth.
+ - It is not that power corrupts but that power is a magnet to the corruptible.
+ - To determine if you’re human. Be silent.
+ - Order generally was a product of human activity. Chaos existed as a raw material from which to create order.
+ - Control the coinage and the courts – let the rabble have the rest.
+ - If you rely only on your eyes, your other senses weaken.
+ - Sympathy for the enemy – a weakness of police and armies alike. Most perilous are the unconscious sympathies directing you to preserve your enemy intact because the enemy is your justification for existence.
+ - The undeserving maintain power by promoting hysteria.
+ - Every civilization depends upon the quality of the individuals it produces.
+ - Small souls who seek power over others first destroy the faith those others might have in themselves.
+ - Memory never recaptures reality. Memory reconstructs. All reconstructions change the original, becoming external frames of reference that inevitably fall short.
+ - If you need something to worship, then worship life – all life, every last crawling bit of it! We’re all in this beauty together!
+ - Radicals are only to be feared when you try to suppress them. You must demonstrate that you will use the best of what they offer.
+ - Many things we do naturally become difficult only when we try to make them intellectual subjects. It is possible to know so much about a subject that you become totally ignorant.
+ - If we define Futurism as an exploration beyond accepted limits, then the nature of limiting systems becomes the first object of exploration.
+ - If there is a difference between what is said and what is done, only a fool believes what was said.
+ - When you think to take determination of your fate into your own hands, that is the moment you can be crushed. Be cautious.
+ - The willow submits to the wind and prospers until one day it is many willows – a wall against the wind.
+ - When I need to identify rebels, I look for men with principles.
+ - Revenge is for children and the emotionally retarded.
+ - The convoluted wording of legalisms grew up around the necessity to hide from ourselves the violence we do to each other.
+ - Think on it, Chani: the princess will have the name, yet she’ll live as less than a concubine – never to know a moment of tenderness from the man to whom she’s bound. While we, Chani, we who carry the name of concubine – history will call us wives.
+ - Intelligence takes chances with limited data in an arena where mistakes are not only possible but also necessary.
+ - Then, as his planet killed him, it occurred to Kynes that his father and all the other scientists were wrong, that the most persistent principles of the universe were accident and error.
+ - When you imagine mistakes, there can be no self-defense.
+ - What senses do we lack that we cannot see or hear another world all around us?
+ - If you want immortality, then deny form. Whatever has form has mortality. Beyond form is the formless, the immortal.
+ - Who are the rabble and who are the ruled?
+ - Education is no substitute for intelligence.
+ - Governments can be useful to the governed only so long as inherent tendencies toward tyranny are restrained.
+ - Think you of the fact that a deaf person cannot hear. Then, what deafness may we not all possess? What senses do we lack that we cannot see and cannot hear another world all around us?
+ - Any road followed precisely to its end leads precisely nowhere.
+ - Each life creates endless ripples.
+ - If you think of yourselves as helpless and ineffectual, it is certain that you will create a despotic government to be your master. The wise despot, therefore, maintains among his subjects a popular sense that they are helpless and ineffectual.
+ - Ambitions tend to remain undisturbed by realities.
+ - People don’t vote. Instinct tells them it’s useless.
+ - The writing of history is largely a process of diversion. Most historical accounts distract attention from the secret influences behind great events.
+ - To endure oneself may be the hardest task in the universe.
+ - Ecology is often confused with environmentalism, while in fact, environmentalism often leaves out the fact that people, too, can be a legitimate part of an ecosystem.
+ - The joy of living, its beauty, is all bound up in the fact that life can surprise you.
+ - All governments suffer a recurring problem: Power attracts pathological personalities.
+ - Prisons are needed only to provide the illusion that courts and police are effective. They’re a kind of job insurance.
+ - Anything less than abject submission has to have some attack in it.
+ - Balance is what distinguishs a people from a mob.
+ - Beware! The mind of the believer stagnates. It fails to grow outward into an unlimited, infinite universe.
+ - Humans are almost always lonely.
+ - Scientists seek the lawfulness of events. It is the task of Religion to fit man into this lawfulness.
+ - When you think you know something: that is a most perfect barrier against learning.
+ - If you live in bad faith, lies will appear to you like the truth.
+ - Proper teaching is recognized with ease. You can know it without fail because it awakens within you that sensation which tells you this is something you have always known.
+ - If enough of us believe, a new thing can be made to exist. Belief structure creates a filter through which chaos is sifted into order.
+ - To come under siege was the inevitable fate of power.
+ - In politics, the tripod is he most unstable of all structures. It’s be bad enough without the complication of a feudal trade culture which turns its back on most science.
+ - Money to a writer is time to write.
+ - The most important survival ability for any life form is the ability to change.
+ - One learns from books and example only that certain things can be done. Actual learning requires that you do those things.
+ - The dice cannot read their own spots.
+ - When he wanted, he could radiate charm and sincerity, but I often wonder in these later days if anything about him was as it seemed. I think now he was a man fighting constantly to escape the bars of an invisible cage.
+ - One must cast off old agonies as a snake casts off its skin – only to grow a new set and accept all of their limitations.
+ - Question: Who governs the governors? Answer: Entropy.
+ - Logic is good for playing chess but is often too slow for the needs of survival.
+ - One uses power by grasping it lightly. To grasp too strongly is to be taken over by power, and thus to become its victim.
+ - When religion and politics ride in the same cart, the whirlwind follows.
+ - Enemies make you stronger, allies make you weaker.
+ - The truth always carries the ambiguity of the words used to express it.
+ - Words are such gross machinery, so primitive and ambiguous.
+ - There’s hope left in these dusty chords. There’s a song left in our rusty hearts. We are torn and frayed but love remains.
+ - There should be a science of discontent. People need hard times to develop psychic muscles. – Muad’Dib.
+ - No matter how much we ask after the truth, self-awareness is often unpleasant. We do not feel kindly toward the Truthsayer.
+ - The unclouded eye was better, no matter what it saw.
+ - What is the son but an extension of the father?
+ - Democracy is susceptible to being led astray by having scapegoats paraded in front of the electorate.
+ - Nature does not make mistakes. Right and wrong are human categories.
+ - You know it’s love when you want to give joy and damn the consequences.
+ - Killing with the point lacks artistry, but don’t let that hold your hand when the opening presents itself.
+ - Most men go through life unchallenged, except at the final moment.
+ - Good governance never depends upon laws, but upon the personal qualities of those who govern. The machinery of government is always subordinate to the will of those who administer that machinery. The most important element of government, therefore, is the method of choosing leaders.
+ - To the soul’s desires The body listens What the flesh requires Keeps the heart imprisoned.
+ - No more terrible disaster could befall your people than for them to fall into the hands of a Hero.
+ - Silence is often the best thing to say.
+ - The hearts of all men dwell in the same wilderness.
+ - Most believe that a satisfactory future requires a return to an idealized past, a past which never in fact existed.
+ - Providence and Manifest Destiny are synonyms often invoked to support arguments based on wishful thinking.
+ - Does a population have informed consent when that population is not taught the inner workings of its monetary system, and then is drawn, all unknowing, into economic adventures?
+ - A man’s flesh is his own; the water belongs to the tribe.
+ - The oppressed always learned from and copied the oppressor. When the tables were turned, the stage was set for another round of revenge and violence – roles reversed. And reversed and reversed ad nauseam.
+ - Journalism is the entertainment business.
+ - The scarce water of Dune is an exact analog of oil scarcity. CHOAM is OPEC.
+ - Caution is the path to mediocrity. Gliding, passionless mediocrity is all that most people think they can achieve.
+ - Paired opposites define your longings and those longings imprison you.
+ - A creature who has spent his life creating one particular representation of his selfdom will die rather than become the antithesis of that representation.
+ - When strangers meet, great allowance should be made for differences of custom and training.
+ - But it’s well known that repression makes a religion flourish.
+ - A killer with the manners of a rabbit – this is the most dangerous kind.
+ - The gift of words is the gift of deception and illusion.
+ - There is not secret to balance. You just have to feel the waves.
+ - Guilt starts as a feeling of failure.
+ - If we deny emotion, we lose all touch with our internal universe.
+ - We are generalists. You can’t draw neat lines around planet-wide problems. Planetology is a cut-and-fit science.
+ - Irreverence is a most necessary ingredient of religion. Not to speak of its importance in philosophy. Irreverence is the only way left to us for testing our universe.
+ - It is so shocking to find out how many people do not believe that they can learn, and how many more believe learning to be difficult.
+ - Never attempt to reason with people who know they are right!
+ - Education is no substitute for intelligence. That elusive quality is defined only in part by puzzle-solving ability. It is in the creation of new puzzles reflecting what your senses report that you round out the definitions.
+ - Too much knowledge never makes for simple decisions.
+ - War is behavior with roots in the single cell of the primeval seas. Eat whatever you touch or it will eat you.
+ - Love is not a mood, but a dynamic way of being.
+ - Unused power was like a marionette with visible strings, nobody holding them. A compelling attraction: I could make it dance.
+ - For now is my grief heavier than the sands of the seas, she thought. This world has emptied me of all but the oldest purpose: tomorrow’s life.
+ - The day hums sweetly when you have enough bees working for you.
+ - There are problems in this universe for which there are no answers. Nothing. Nothing can be done.
+ - Machine makers always run the risk of becoming totally machine.
+ - Major flaw in government arise from a fear of making radical internal changes even though a need is clearly seen.
+ - That path leads ever down into stagnation.
+ - There has never been a truly selfless rebel, just hypocrites – conscious hypocrites or unconscious hypocrites, it’s all the same.
+ - It is a wise man that does know the contented man is never poor, whilst the discontented man is never rich.
+ - What does a mirror look at?
+ - Religion, too, is a weapon. What manner of weapon is religion when it becomes the government?
+ - His voice was low, charged with unspeakable adjectives.
+ - When a wise man does not understand, he says: “I do not understand.” The fool and the uncultured are ashamed of their ignorance. They remain silent when a question could bring them wisdom.
+ - Good subjects must feel guilty. The guilt begins as a feeling of failure. The good autocrat provides many opportunities for failure in the populace.
+ - Learning a language represents training in the delusions of that language.
+ - To know the future absolutely it to be trapped into that future absolutely. It collapses time. Present becomes future.
+ - What do such machines really do? They increase the number of things we can do without thinking. Things we do without thinking-there’s the real danger.
+ - You should never be in the company of anyone with whom you would not want to die.
+ - The person who takes the banal and ordinary and illuminates it in a new way can terrify. We do not want our ideas changed.
+ - Most deadly errors arise from obsolete assumptions.
+ - A ruler must learn to persuade and not to compel.
+ - When we try to conceal our innermost drives, the entire being screams betrayal.
+ - To see eternity was to be exposed to eternity’s whims, oppressed by endless dimensions.
+ - In my estimation, more misery has been created by reformers than by any other force in human history.
+ - Every judgment teeters on the brink of error. To claim absolute knowledge is to become monstrous. Knowledge is an unending adventure at the edge of uncertainty.
+ - The proximity of a desirable thing tempts one to overindulgence. On that path lies danger.
+ - Since every individual is accountable ultimately to the self, the formation of that self demands our utmost care and attention.
+ - Give me the judgment of balanced minds in preference to laws every time. Codes and manuals create patterned behavior. All patterned behavior tends to go unquestioned, gathering destructive momentum.
+ - Infinity? It attracts us like a floodlight in the night.
+ - There is no escape – we pay for the violence of our ancestors.
+ - Life is a mask through which the universe expresses itself.
+ - When a creature has developed into one thing, he will choose death rather than change into his opposite.
+ - A man is a fool not to put everything he has, at any given moment, into what he is creating.
+ - We are questioning more than the philosophy behind our dependence upon limited and limiting systems. We question the power structures that have grown up around such systems.
+ - The young reed dies so easily. Beginnings are times of great peril.
+ - The singular multiplicity of this universe draws my deepest attention. It is a thing of ultimate beauty. Leto II.
+ - Answers are a perilous grip on the universe. They can appear sensible yet explain nothing.
+ - The act of saying that things exist that cannot be described in words shakes a universe where words are the supreme belief.
+ - Thinking you know something is a sure way to blind yourself.
+ - There exists no separation between gods and men; one blends softly casual into the other.
+ - There are limits to power, as those who put their hopes in a constitution always discover.
+ - Words can carry any burden we wish. All that’s required is agreement and a tradition upon which to build.
+ - You see, gentlemen, they have something to die for. They’ve discovered they’re a people. They’re awakening.
+ - Time is a measure of space, just as a range-finder is a measure of space, but measuring locks us into the place we measure.
+ - Try to hold on to youth and it mocks you while it sprints away.
+ - History is a constant race between invention and catastrophe.
+ - What you cannot control, you must accept.
+ - Confine yourself to observing and you always miss the point of your own life.
+ - How often it is that the angry man rages denial of what his inner self is telling him.
+ - There exists a limit to the force even the most powerful may apply without destroying themselves. Judging this limit is the true artistry of government. Misuse of power is the fatal sin.
+ - Words themselves were the ultimate barrier to revelation.
+ - Experts and specialists lead you quickly into chaos. They are a source of useless nit-picking, the ferocious quibble over a comma.
+ - There is probably no more terrible instant of enlightenment than the one in which you discover your father is a man – with human flesh.
+ - It’s easier to be terrified by an enemy you admire.
+ - Unfortunately most criticism is by poseurs. They use their comments about someone else’s work as a platform on which to strike poses. What they’re really saying is: “Look at me! Look at me!”
+ - A leader is one of the things that distinguishes a mob from a people. He maintains the level of individuals. Too few individuals and a people reverts to a mob.
+ - All men seek to be enlightened. Religion is but the most ancient and honorable way in which men have striven to make sense out of God’s universe. Scientists seek the lawfulness of events. It is the task of Religion to fit man into this lawfulness.
+ - Those who would repeat the past must control the teaching of history.
+ - I have come to believe that holy boredom is good and sufficient reason for the invention of free will.
+ - The stakes in conflict do not change. Battle determines who will control the wealth or its equivalent.
+ - Can you collect chaos? Not collecting, that is the ultimate gathering. What can you gather without gathering yourself.
+ - I’m the well-trained fruit tree. Full of well-trained feelings and abilities and all of them grafted onto me.
+ - All proofs inevitably lead to propositions which have no proof! All things are known because we want to believe in them.
+ - What are you, child, that you need time to learn about yourself?
+ - If I’d been born in my grandfather’s time, I’d have made my grandfather’s mistakes. Theres no doubt of it. I just don’t want to make my grandfather’s mistakes today.
+ - The whole universe sat there, open to the man who could make the right decisions.
+ - We never get far from wealth and all of its masks when we deal with power.
+ - Caution is the path to mediocrity.
+ - There is only one true wealth in all the universe – living time.
+ - The person who experiences greatness must have a feeling for the myth he is in.
+ - If you ask “Should we be in space?” you ask a nonsense question. We are in space. We will be in space.
+ - Law always chooses sides on the basis of enforcement power. Morality and legal niceties have little to do with it when the real question is: Who has the clout?
+ - Historians exercise great power and some of them know it. They recreate the past, changing it to fit their own interpretations. Thus, they change the future as well.
+ - You do not take from this universe. It grants you what it will.
+ - Politics: the art of appearing candid and completely open while concealing as much as possible.
+ - Every civilization must contend with an unconscious force which can block, betray, or countermand almost any conscious intention of the collectivity.
+ - We accept too damned many things on the explanations of people who could have good reasons for lying.
+ - If you focus your awareness only upon your own rightness, then you invite the forces of opposition to overwhelm you.
+ - I don’t worry about inspiration, or anything like that. It’s a matter of just sitting down and working.
+ - To endure oneself may be the hardest task in the universe. You cannot hire a wise man or any other intellect to solve it for you. There’s no writ of inquest or calling of witness to provide answers.
+ - Often I must Speak otherwise than I Think. This is Called Diplomacy.
+ - Fear is the penalty of consciousness forced to stare at itself.
+ - The universe does not work by our rules.
+ - The past is no farther away than your pillow.
+ - The greatest and most important problems of life cannot be solved. They can only be outgrown.
+ - Governments do not know what they cannot do until after they cease to be governments. Each government carries the seeds of its own destruction.
+ - I am not the kind of person I want to be.
+ - We tend to become like the worst in those we oppose.
+ - A stone is heavy and the sand is weighty; but a fool’s wrath is heavier than them both.
+ - A requirement of creativity is that it contributes to change. Creativity keeps the creator alive.
+ - Laws to suppress tend to strengthen what they would prohibit.
+ - I cry for those not yet dead.
+ - A human being can stand any amount of pain.
+ - The surest way to keep a secret is to make someone think they already know the answer.
+ - It must certainly be more dangerous to live in ignorance than to live with knowledge.
+ - Give me a lamp so I can find the day.
+ - The vision of time is broad, but when you pass through it, time becomes a narrow door.
+ - Knowing where the trap is – that’s the first step in evading it.
+ - Atrocity never balances or rectifies the past. Atrocity merely arms the future for more atrocity.
+ - The basic lesson of our relativistic universe is that things change. Any power must always meet a greater power.
+ - Membership in a conspiracy, as in an army, frees people from the sense of personal responsibility.
+ - Ask what Infinity might produce and the only answer possible was, “Anything.” Any good, any evil; any god, any devil.
+ - It is said that there is a principle of conflict which originated with the single cell and has never deteriorated.
+ - The mind goes on working no matter how we try to hold it back.
+ - Educational bureaucracies dull a child’s questing sensitivity.
+ - What greater gift is there than to demonstrate you need not fear death?
+ - Always prepare secondary ways of dealing with problems.
+ - That is one of the Law’s purposes, of course: to test the qualities of those who choose to employ it.
+ - Ultimately, all things are known because you want to believe you know.
+ - Dangers lurk in all systems. Systems incorporate the unexamined beliefs of their creators. Adopt a system, accept its beliefs, and you help strengthen the resistance to change.
+ - There’s a lesson in every temptation.
+ - Every civilization depends on the quality of the individuals it produces. If you over-organize humans, over-legalize them, suppress their urge to greatness-they cannot work and their civilization collapses.
+ - Beaurocracy destroys initiative.
+ - They say they seek security and quiet, the condition they call peace. Even as they speak they create the seeds of turmoil and violence.
+ - A leader, you see, is one of the things that distinguishes a mob from a people.
+ - If all those around you believe some particular thing, you will soon be tempted to share in that belief.
+ - Death makes a prophet’s voice louder.
+ - What is important for a leader is that which makes him a leader. It is the needs of his people.
+ - Life cannot find reasons to sustain it, cannot be a source of decent natural regard, unless each of us resolves to breathe such qualities into it.
+ - War is the most readily available form of chaos.
+ - She looked at patches of blackness. Black is a blind remembering, she thought.
+ - We never completely escape the teachers of our childhood nor any of the patterns that formed us.
+ - Argument closes off the doors of the senses. It always masks violence. Continued too long, argument always leads to violence.
+ - Empires do not suffer emptiness of purpose at the time of their creation. It is when they have become established that aims are lost and replaced by vague ritual.
+ - The best prophets lead you up to the curtain and let you peer through for yourself.
+ - What I’m saying in my books boils down to this: Mine religion for what is good and avoid what is deleterious. Don’t condemn people who need it. Be very careful when that need becomes fanatical.
+ - Governments always commit their entire populations when the demands grow heavy enough. By their passive acceptance, these populations become accessories to whatever is done in their name.
+ - Is evolution just another name for God?
+ - The people I distrust most are those who want to improve our lives but have only one course of action.
+ - When law and duty are one, united by religion, you never become fully conscious, fully aware of yourself. You are always a little less than an individual.
+ - Once human beings realize something can be done, they’re not satisfied until they’ve done it.
+ - A good companion is one you wouldn’t mind dying with.
+ - To be a god can ultimately become boring and degrading. There’d be reason enough for the invention of free will! A god might wish to escape into sleep and be alive only in the unconscious projections of his dream-creatures.
+ - Humans live best when each has his place, when each knows where he belongs in the scheme of things. Destroy the place and destroy the person.
+ - Prophets have a way of dying by violence.
+ - Why is it that foolishness repeats itself with such monotonous precision?
+ - Enemies strengthn you. Allies weaken you.
+ - Men always fear things which move by themselves.
+ - I live in an apocalyptic dream. My steps fit into it so precisely that I fear most of all I will grow bored reliving the thing so exactly.
+ - Most of us choose our companions and surroundings to reflect ourselves.
+ - One of the best things to come out of the home computer revolution could be the general and widespread understanding of how severely limited logic really is.
+ - A voice hissed: “He sheds tears!” It was taken around the ring “Usal gives moisture to the dead!” He felt fingers touch his damp cheek, heard the awed whispers.
+ - In 1054, the patriarch of Constantinople and the pope excommunicated each other. That was the end of holiness for both churches.
+
+334 quotes

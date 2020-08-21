@@ -1,0 +1,127 @@
+ - Problems can become opportunities when the right people come together.
+ - I have no regrets, because I’ve done everything I could to the best of my ability.
+ - The way I deal with arthritis is to keep moving. As long as I can play hard tennis, as long as I can ski or ride a horse – all kinds of things can come your way. As long as you can, do it. People who retire die. My dad retired and died shortly after. Just keep moving.
+ - Be careful of success; it has a dark side.
+ - When did Noah build the boat? – Before the rain.
+ - People are becoming more and more aware of how the dominance of development and business is altering their lives and, in particular, their own heritage.
+ - Ambiguity is something that I really respond to. I like the complexity of it.
+ - The measure of our success will be the condition on which we leave the world for the next generation.
+ - Never revisit the past, that’s dangerous. You know, move on.
+ - I think the environment should be put in the category of our national security. Defense of our resources is just as important as defense abroad. Otherwise what is there to defend?
+ - Filmgoers are starved for new ideas, voices and visions.
+ - Other people have analysis. I have Utah.
+ - I’m not a facelift person. I am what I am.
+ - I guess some mistakes you never stop paying for.
+ - Water is the sleeping giant issue of the 21st century and we all need to wake up about it.
+ - I don’t see myself as beautiful. I was a kid who was freckle-faced, and they used to call me ‘hay head.’
+ - I believe in mythology. I guess I share Joseph Campbell’s notion that a culture or society without mythology would die, and we’re close to that.
+ - The world around us is in a sea change, and I think the glory of art is that it cannot only survive change, it can lead it.
+ - I used to feel competitive about a career, but now the only things I’m really passionate about are my family, the environment and Indians.
+ - Whereas money is a means to an end for a filmmaker, to the corporate mind money is the end. Right now, I think independent film is very confused, because there’s excess pressure in the marketplace for entertainment to pay off.
+ - You’re never going to be the same person you are right now.
+ - The art of making a film and its content are far more interesting to me than the result or impact.
+ - When I was a kid I was not a good student. I went to the University of Colarado, my grades were poor. I was asked to leave after a year. What I really wanted to do was to be an artist.
+ - As a director, I wouldn’t like me as an actor. As an actor, I wouldn’t like me as a director.
+ - He has the attention span of a lightning bolt.
+ - If you stay in Beverly Hills too long, you become a Mercedes.
+ - All my life I’ve been dogged by guilt because I feel there is this difference between the way I look and the way I feel inside.
+ - God, I just love baseball.
+ - I’m interested in that thing that happens where there’s a breaking point for some people and not for others. You go through such hardship, things that are almost impossibly difficult, and there’s no sign that it’s going to get any better, and that’s the point when people quit. But some don’t.
+ - Health food may be good for the conscience but Oreos taste a hell of a lot better.
+ - The country is so wounded, bleeding, and hurt right now. The country needs to be healed-it’s not going to be healed from the top, politically. How are we going to heal? Art is the healing force.
+ - Sport is a wonderful metaphor for life. Of all the sports that I played – skiing, baseball, fishing – there is no greater example than golf, because you’re playing against yourself and nature.
+ - Whenever there’s chaos, there’s ambiguity, and where there’s ambiguity, there’s fear. And fear gets manipulated.
+ - What we are living with is the result of human choices and it can be changed by making better, wiser choices.
+ - Because, you know, you’re in Utah. And because of its political conservatism, if you can make it there, you can make it anywhere.
+ - For me, personally, skiing holds everything. I used to race cars, but skiing is a step beyond that. It removes the machinery and puts you one step closer to the elements. And it’s a complete physical expression of freedom.
+ - It’s a creative enterprise, just like art, just like painting, music. Creating something can be done in different categories, so to do it in film is just another expression, which is great. Because it translates so well because so many people see the work, if you’re lucky.
+ - A lot of what acting is is paying attention.
+ - Storytelling is important. Part of human continuity.
+ - We’ve poisoned the air, the water, and the land. In our passion to control nature, things have gone out of control. Progress from now on has to mean something different. We’re running out of resources and we are running out of time.
+ - What is it with you people? You think not getting caught in a lie is the same thing as telling the truth?
+ - It’s an honor putting art above politics. Politics can be seductive in terms of things reductive to the soul.
+ - I did not, like my children and people today, grow up with television as part of my life.
+ - People have been so busy relating to how I look, it’s a miracle I didn’t become a self-conscious blob of protoplasm.
+ - I don’t know what your childhood was like, but we didn’t have much money. We’d go to a movie on a Saturday night, then on Wednesday night my parents would walk us over to the library. It was such a big deal, to go in and get my own book.
+ - You work like hell to get yourself ahead in the business. You could go anywhere before, and suddenly you can’t go anywhere. It’s like being a cartoon character.
+ - What I would do is when I was younger I would draw in a sketch book something that happened in my life and then write a little something on the side about what happened or what the story.
+ - I have the freedom to take chances, to say no. I have the freedom to be who I really want to be, rather than have to conform to this or that just to stay alive.
+ - People are finally able to look around and say, ‘I can see the drought, I can see the rising sea levels, I can see the crops dying. Okay, now I get it.’ It is finally beginning to sink in that there has been a lot of damage.
+ - The important thing about a sport is the people who devote their lives to it.
+ - Generally speaking, I went through that. I came to a place where I realised what true value was. It wasn’t money. Money is a means to achieving an end, but it’s not the end.
+ - Not taking a risk is a risk. That’s how I see it.
+ - The tough thing about adulthood is it starts before you even know it starts.
+ - Part of me is drawn to the nature of sadness because I think life is sad, and sadness is not something that should be avoided or denied. It’s a fact of life, like contradictions are.
+ - I was never a good student. I had to be dragged into kindergarten. It was hard to sit and listen to somebody talk. I wanted to be out, educated by experience and adventure, and I didn’t know how to express that.
+ - I don’t think about when it’s going to stop and what you do before it stops. You just keep moving.
+ - It’s good to say, ‘Look, I can’t always be right, but my gut tells me this’ – and then you confirm with your gut.
+ - Lastly get emotionally connected to your story so you can deliver it, you know, if you can’t deliver the emotions to your script there’s no point to your story. Story is the key.
+ - I’ve been able to carve out spaces for myself. At Sundance, I’m in the mountains – my property is private. I get on a horse and ride for three, four hours. Sometimes five. I get lost. But when I’m in, I’m in.
+ - Sometimes the failures can be exciting and fun. It’s just a step on the road, it’s not the end of something.
+ - I didn’t want the attacks to affect me. I don’t believe you should be led by fear.
+ - When I grew up, shame was used as a tool for check and balance. If you stood a chance of hearing someone say, “Shame on you,” or “You should be ashamed of yourself,” you thought twice. It doesn’t seem to be a factor today.
+ - He’s meant to be that classic Homer, Ulysses, Hercules – a character who goes out or has some gift of some kind. He goes on a journey of discovery and part of that is falling into darkness – the temptations of life.
+ - Golf has become so manicured, so perfect. The greens, the fairways. I don’t like golf carts. I like walking. Some clubs won’t let you in unless you have a caddy and a cart.
+ - It’s hard to pay attention these days because of multiple affects of the information technology nowadays. You tend to develop a faster, speedier mind, but I don’t think it’s necessarily broader or smarter.
+ - Success is a tricky mistress. It’s nice to have but it’s a tricky thing to embrace.
+ - Curiously, directing my own films have made me more tolerant and patient. I’ve always been an extremely impatient actor. Waiting around drove me nuts. But now I’m much more sympathetic to a director’s struggle.
+ - Storytellers broaden our minds: engage, provoke, inspire, and ultimately, connect us.
+ - I was blessed to look well and retain a youthful look but that was just genes. I was disappointed when critics started pointing out my wrinkles. I thought, you mean this is what it’s gonna be about now? I’m not going to be permitted to be human?
+ - I love making films more than anything, but it’s tough.
+ - Once you leave Sundance suddenly you run into bulldozers and concrete and cranes, and all that heritage that the Mormon culture used to be so proud of is turned into out of control develpoment.
+ - It seems everyone in Hollywood is getting pinched, lifted and pulled. I’m looking weird because I’m not.
+ - Let’s get something straight – I don’t see myself as beautiful.
+ - Ideas aren’t real estate, they grow collectively and that knocks out the egotistical loneliness that generally infects art.
+ - When I became successful, I put up a caution. I didn’t think it was fair to have the shadow of that kind of success thrown on my family. And I was cautious about being taken by things that could destroy you.
+ - I never had to worry about divestment because I never invested.
+ - I was producing things I was acting in, but I had never directed and I felt it was time. I was looking for a piece of material that was about behavior and feelings. When I read Judith Guest’s book, I thought, This is it.
+ - I remember my dad came from Ireland and Scotland, and so he carried with him the fear of poverty. So when I wanted to break loose, it kind of made him very nervous.
+ - I’m not much interested in sport just as sport. I wouldn’t be interested in making a golf film or baseball or fishing film.
+ - In fact you’ve got your hands tied behind your back when somebody chooses to take a low road in to you, there is nothing you can do about it, and so you just live with it and move on.
+ - The way you really find out about the performer’s seriousness about the cause is how long they stay with it when the spotlight gets turned off. You see a lot of celebrities switch gears. They go from the environment to animal rights to obesity or whatever. That I don’t have a lot of respect for.
+ - There’s a lot of money to be made by strip-mining and drilling the dirtiest oil on the planet. But why should the rest of us pay the price?
+ - Usually I like to improvise. Sometimes, depending on the nature of the piece, I like to improvise because I think it brings certain freshness and a reality to it, as long as it doesn’t go too far out of the box.
+ - San Franciscans are very proud of their city, and they should be. It’s the most beautiful place in the world.
+ - I think documentary filmmakers need as much protection as possible under journalist’s privilege. How else is the public to know what is going on?
+ - Criticism challenges current findings. The effort to defend one’s position can lead to deeper insights or consideration of options previously not considered.
+ - I started as an actor in the theater playing a lot of character parts, and suddenly, I found myself in this place where it felt like I was getting locked into a kind of a stereotype, and it did bother me.
+ - It’s all about greed and money and it’s the driving force in Hollywood.
+ - Television tells us only the things it wants to. It still feeds us heroes, it still offers villains. And even though we know better than to always trust it, we still watch.
+ - When people start thinking of you more as a persona, they are less inclined to allow you to move into different areas. Sometimes they’re wrong. Sometimes they’re just very stereotypical or restricted in their own thinking of what they’ll allow you to do.
+ - I think independent filmmakers, documentary filmmakers – they are journalists.
+ - Like all actors, I was open to taking on new challenges, including those outside my comfort zone.
+ - From my experience in my country, America over and over again takes itself right to the brink, it puts one foot over but it never goes over. It wakes up at the last minute and says woah, and then pulls back.
+ - Once the festival achieved a certain level of notoriety, then people began to come here with agendas that were not the same as ours. We can’t do anything about that. We can’t control that.
+ - The technology available for film-making now is incredible, but I am a big believer that it’s all in the story.
+ - When I was a kid, nobody told me I was good-looking. I wish they had. I would’ve had a better time.
+ - I’m not interested in a film about golf but I am interested in golf as a metaphor.
+ - You should prepare when you go to a public event to be public. That’s when I will sign autographs. But not when you’re going about your normal business.
+ - I am passionate. I am political about my country, about what it is, how strong it is, how strong it remains.
+ - I am a cynical optimist. Big opening weekends are like cotton candy. The films you will remember over time are the films that stick in the consciousness of the audience in a good way.
+ - I’m gonna die but I haven’t thought about retiring.
+ - You can’t completely control the sport – Tiger Woods comes close. The test is against yourself and nature’s own way. I find golf a particularly good metaphor for this story.
+ - I had just arrived in New York from California. I was nineteen years old and excited beyond belief. I was an art student and an acting student and behaved as most young actors did – meaning that there was no such thing as a good actor, ’cause you yourself hadn’t shown up yet.
+ - Sundance started with two acres back in 1963 that I bought from a sheepherder for $500. What has happened, I could see development starting to descend on the state of Utah. I thought I had better acquire more land to protect it. I thought that would probably be my legacy, to protect land.
+ - I guess the optimistic thing is that those people in Congress who are climate deniers, I think their time has run out.
+ - Hollywood was not a place I dreamed of getting to. I never could take seriously the obsession people have about being a celebrity or getting to Hollywood – I was born next door.
+ - We program the festival, after 20 years, exactly the way we did on the first day.
+ - As an artist I just can’t think of a better life than the one I’ve been blessed with. It’s just a great ride.
+ - I think “quiet” sometime is a greater power than noise. It can harbor and reveal feelings that can’t be expressed.
+ - Radio, newspapers, they were normal parts of my life. In those days, you had to go somewhere to watch television and leave something to see it.
+ - I can’t watch completed films – my wife makes fun of me.
+ - So what if my face is falling apart? I don’t give a damn. Anyway, it gives me character. Everyone thinks that they can stay pretty forever but some come out of Beverly Hills surgeries looking scary to me.
+ - Any time I saw people treated unfairly because of race, creed, whatever – it struck a nerve.
+ - If you want to slice into America, it’s pretty red, white, and blue in terms of how it goes about things, but there’s a gray area there, and I’ve always been interested in where things are complicated.
+ - I look at going to Hollywood as going behind enemy lines. You parachute in, set up the explosion, then fly out before it goes off.
+ - Sundance was started as a mechanism for the discovery of new voices and new talent.
+ - Utah is changing. There are good people in Utah. More people want to change the discriminatory laws than want to keep them. People should be able to marry whomever they love.
+ - In fact, I think more broadly about what an audience requires, but I want an audience to be fascinated by the process of finding an answer, or finding out there isn’t one.
+ - Have a strong vision about the story you want to tell and how you want to tell it.
+ - I don’t remember spending any time with anybody on set. I don’t spend a lot of time with people.
+ - If you can do more, you should.
+ - As an actor and as a person you come together with being in familiar territory although that has not been my whole life. That’s been a part of it. I think a lot of people associate me with the west because of Sundance.
+ - I was seen in earlier years by family members and people of authority as somebody wasting his time. I had trouble with the restrictions of conformity. It made me edgy.
+ - I have a very low regard for cynics. I think it’s the beginning of dying.
+ - Journalism has changed tremendously because of the democratization of information. Anybody can put something up on the Internet. It’s harder and harder to find what the truth is.
+
+125 quotes

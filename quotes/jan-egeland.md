@@ -1,0 +1,24 @@
+ - Increasingly gang violence and organized crime, together with climate change-driven natural disasters, are displacing more people as wars are fewer on the continent and political violence has decreased considerably, the NRC has decided to treat this as a humanitarian crisis.
+ - First there is the search and rescue phase that is now ending. It is a cruel reality.
+ - In a world full of competing emergencies and disasters, it really helps if there is an international locomotive that can help us bring attention – help us bring resources.
+ - Somaliland and Somalia at large have been receiving now hundreds of thousands of returnees that they had to accommodate with very small resources.
+ - It’s a cruel reality. But after a week, very few people survive.
+ - Climate change disasters will displace more and more. Those who are most exposed are the poorest.
+ - I think the biggest challenge for Somalia has been the sense that it is a hopeless case of incomprehensible internal conflicts and there is nothing we can do.
+ - No amount of humanitarian assistance can protect people from being attacked.
+ - I have been working, as emergency relief coordinator, on an international scale, very hard to build a wider alliance of partners in assistance efforts.
+ - Hezbollah must stop this cowardly blending in among women and children. I heard they were making statements that they were proud of losing fewer armed men than civilians. It’s hard to see how they could be proud of such a situation.
+ - We need better coordination on the international side, just as they need better and more effective efforts on the Somali side. We have too many reconstruction and development assistance plans.
+ - I think now, we in the international community are belatedly wanting to show our solidarity with the Somali peoples and also do our best to help them move to better times.
+ - We estimate that humanitarian agencies have access to about 350,000 vulnerable people in Darfur – only about one third of the estimated total population in need.
+ - Many access roads are too dangerous for relief workers, preventing them from carrying out assessments or reaching people in need.
+ - We receive reports now on a daily basis from our own people on the ground in Darfur on widespread atrocities and grave violations of human rights against the civilian population.
+ - Finally, I also come in recognition of the great work that has been undertaken by the NGOs and UN agencies that have been active for many years here, especially through the local staff and international staff here in Somaliland and in Somalia at large.
+ - Finally, I am encouraged to note that the Security Council issued a statement today expressing its concern about the massive humanitarian crisis in Darfur and calling on all parties to the conflict to protect civilians and reach a ceasefire.
+ - It is only the Somalis themselves – and I don’t hide that fact when I meet the political leaders here – they themselves have to stop their old practices of fighting each other every time they have a problem. They have to learn how to do peaceful conflict resolution.
+ - In the Horn of Africa now, there are tens of thousands dying from the extreme vulnerability they are living in.
+ - Although we have do not have adequate access to all parts of Darfur we do fortunately have humanitarian personnel, including staff from my own office, in each of the three provincial capitals of Darfur.
+ - Secondly, the Government of Sudan should commit to the disarmament and control of the Janjaweed militia and ensure that the targeting of civilians ceases immediately.
+ - I think now Somalia is turning a corner and we can, with the new political development, build on momentum – really build a peaceful future.
+
+22 quotes

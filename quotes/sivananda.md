@@ -1,0 +1,104 @@
+ - Put your heart, mind, and soul into even your smallest acts. This is the secret of success.
+ - Serve, Love, Give, Purify, Meditate, Realize.
+ - Don’t fear the darkness if you carry the light within.
+ - The harder the struggle, the more glorious the triumph. Self-realization demands very great struggle.
+ - Silence is the language of God; it is also the language of the heart.
+ - Live in the present, forget the past. Give up hopes of future.
+ - Conquer your thoughts and you will conquer the world.
+ - You should always keep your word. All the setbacks in life come only because you don’t keep your word.
+ - Cultivate peace first in the garden of your heart by removing the weeds of lust, hatred, greed, selfishness, and jealousy. Then only you can manifest it externally. Then only, those who come in contact with you, will be benefited by your vibrations of peace and harmony.
+ - Rise above the deceptions and temptations of the mind. This is your duty. You are born for this only; all other duties are self-created and self-imposed owing to ignorance.
+ - Giving is the secret of abundance.
+ - Crave for a thing, you will get it. Renounce the craving, the object will follow you by itself.
+ - Bear insult, bear injury.
+ - Today is your own. Tomorrow perchance may never come.
+ - Meditation is the royal road to the attainment of freedom, a mysterious ladder that reaches from earth to heaven, darkness to light, mortality to Immortality.
+ - The goal of life is god realisation.
+ - A mountain is composed of tiny grains of earth. The ocean is made up of tiny drops of water. Even so, life is but an endless series of little details, actions, speeches, and thoughts. And the consequences whether good or bad of even the least of them are far-reaching.
+ - Fear is only in duality. Fear is Mind. When you are your Self, there is no fear.
+ - Eating, drinking. sleeping, pro-creating. A little laughter, a lot of tears. Is this all there is to life? Don’t die like a worm on the surface of the planet. WAKE UP and be all that you can be, you are so much more than that.
+ - Life is short. Time is fleeting. Realize the Self. Purity of the heart is the gateway to God. Aspire. Renounce. Meditate. Be good; do good. Be kind; be compassionate. Inquire, know Thyself.
+ - To make the mind obey you is a spiritual discipline.
+ - If you do not know the laws of right conduct, you cannot form your character.
+ - Desire nothing, give up all desires and be happy.
+ - Your duty is to treat everybody with love as a manifestation of the Lord.
+ - Practice meditation regularly. Meditation leads to eternal bliss. Therefore meditate, meditate.
+ - Faith is a belief in the unknown. Faith heals, faith creates, faith works wonders, faith moves mountains. Faith is the searchlight for God-finding.
+ - Individual Peace paves the way for world peace. The attainment of inner calm is the greatest work you can do for humanity.
+ - Love expects no reward. Love knows no fear. Love Divine gives – does not demand. Love thinks no evil; imputes no motive. To Love is to share and serve.
+ - Humility is not cowardice. Meekness is not weakness. Humility and meekness are indeed spiritual powers.
+ - When all desires of heart die, mortal man becomes Immortal.
+ - Pain, sorrow, ignorance are all illusory; they cannot live. Bliss, joy, knowledge are true; they cannot die.
+ - Never worry about what other people say or think. Do the right. Have a clear conscience and roam about happily.
+ - The practice of ‘asanas’ and ‘pranayama’ wards off disease and helps to maintain alertness.
+ - Man is a bridge between the two worlds – the visible and the invisible.
+ - Sow love, reap peace. Sow meditation, reap wisdom.
+ - This world is your body. This world is a great school, This world is your silent teacher.
+ - Tolerance is a sign of growth on the spiritual path.
+ - Meditation is the dissolution of thoughts in eternal awareness or pure consciousness.
+ - Learn to give, give in plenty, give with love, give without any expectation, one does not lose anything by giving, on the other hand you get back a thousand fold.
+ - Love beautifies the giver and elevates the receiver.
+ - Always do good to others. Be selfless. Mentally remove everything and be free. This is divine life. This is the direct way to Moksha or salvation.
+ - The secret of life is in love the love of God and the service of humanity.
+ - It is divinity that shapes, not only your ends, but also your acts, your words and thoughts.
+ - Moral values, and a culture and a religion, maintaining these values are far better than laws and regulations.
+ - If you do not find peace within, you will not find it anywhere else. The Goal of Life is the attainment of Peace and not the achievement of power, name, fame and wealth.
+ - Arrogance is a mixture of impertinence, disobedience, indiscipline, rudeness, harshness, and a self-assertive nature.
+ - Your sole purpose in life is to attain God-realization. All else is useless and worthless.
+ - There is no end of craving. Hence contentment alone is the best way to happiness. Therefore, acquire contentment.
+ - Do not store in your brain useless information. Learn to unmind the mind. Unlearn whatever has been of no use to you. Then only can you fill your mind with divine thoughts.
+ - Desire is poverty. Desire is the greatest impurity of the mind. Desire is the motive force for action. Desire in the mind is the real impurity. Even a spark of desire is a very great evil.
+ - Never worry. Be ever cheerful. Always laugh and smile. You can use the following powerful autosuggestion: “Mr. Worry, goodbye to you. I am a different person now. I am made of sterner stuff.” Worry will now be afraid to show his face to you. You can then remove the worries of many of your friends.
+ - The mental ability to concentrate is inherent to all; it is not extraordinary or mysterious. Meditation is not something that a Yogi has to teach you; you already have the ability to shut out thoughts.
+ - Rise above the deceptions and temptations of the mind. This is your duty. Learn to become wise. Desire nothing, give up all desires and be happy. The real spiritual progress of the meditator is measured by the extent to which they achieve inner tranquility and freedom from desire.
+ - Adhere To – Faith, Unity, Sacrifice. Avoid – Back-biting, Falsehood and Crookedness. Admire – Frankness, Honesty, and Large-heartedness. Control – Tongue, Temper, and Tossing of the mind. Cultivate – Cosmic Love, Forgiveness and Patience. Hate – Lust, Anger, and Pride.
+ - One can realize God through kirtan alone.
+ - A desire arises in the mind. It is satisfied immediately another comes. In the interval which separates two desires a perfect calm reigns in the mind. It is at this moment freed from all thought, love or hate. Complete peace equally reigns between two mental waves.
+ - The real spiritual progress of the aspirant is measured by the extent to which he achieves inner tranquility.
+ - Your thoughts should agree with your words, and the words should agree with your actions. In this world people think one thing, say another thing, and do something else. This is horrible. This is crookedness.
+ - Go beyond science, into the region of metaphysics. Real religion is beyond argument. It can only be lived both inwardly and outwardly.
+ - God is all-full. He is self-contained. He is eternal satisfaction.
+ - Common sense is the fundamental factor in all spiritual disciplines. No rule is an eternal rule. Rules change from place to place, time to time and from one condition to another condition.
+ - The secret of life is not enjoyment but education through experience.
+ - If you focus the rays of the sun through a lens, they can burn cotton or a piece of paper; but, the scattered rays cannot do this act. If you collect the dissipated rays of the mind and focus them at a point, you will have wonderful concentration.
+ - Meditation is painful in the beginning but it bestows immortal Bliss and supreme joy in the end.
+ - Change the mind, and you can change the body.
+ - Truth is complete in itself. Truth has a strong foundation in itself. It is bold, it has no fears. It has no limit of space or time. It is a fearless, free bird in the sky. It does not care for status. It is wealth in itself. Truth stands even when there is no public support.
+ - Be humble as the blade of grass that is being trodden underneath the feet. The little ant tastes joyously the sweetness of honey and sugar. The mighty elephant trembles in pain under the agony of sharp goad.
+ - Make others truly happy as you strive to make yourself happy. Speak a helpful word. Give a cheering smile. Do a kind act. Serve a little. Wipe the tears of one who is in distress. Render smooth a rough place in another’s path. You will feel great joy.
+ - You can have calmness of mind at all times by the practice of yoga. You can have restful sleep. You can have increased energy, vigour, vitality, longevity, and a high standard of health. You can turn out efficient work within a short space of time. You can have success in every walk of life.
+ - Complete peace equally reigns between two mental waves.
+ - Patient and regular practice is the whole secret of spiritual realization. Do not be in a hurry in spiritual life. Do your utmost, and leave the rest to God.
+ - Why do you read many books? The great book is within your heart. Open the pages of this inexhaustible book, the source of all knowledge. You will know everything.
+ - Beauty is essentially spiritual. The authentic beauty lies in the heart.
+ - To achieve that state of lasting happiness and absolute peace, we must first know how to calm the mind, to concentrate and go beyond the mind. By turning the mind’s concentration inward, upon the self, we can deepen that experience of perfect concentration. This is the state of Meditation.
+ - The glorious Vishnu is the sole refuge of mortals. He is Infinite Light, Love and Wisdom. He resides in the hearts of all beings. His Grace is invincible. He is in all. He is the Highest Truth. He is Infinite Bliss. He is the Protector. He is the Preserver. He is the Saviour.
+ - Life is a series of awakenings.
+ - Terrible is the fight put up by the senses. Fight bravely! Conquer them you must.
+ - The inward battle – against our mind, our wounds, and the residues of the past – is more terrible than outward battle.
+ - An evil man is a saint of the future. See good in everything. Destroy the evil-finding quality. Develop the good-finding quality. Rise above good and evil.
+ - You are not bound. You have got free will. You cannot change the experiences, the results of Prarabdha but you can change your future by right thinking and right action and thus make your will pure and irresistible. You can attain Self-realisatio n with the help of a dynamic will.
+ - Music is the medium for expressing emotion. Music kindles love and infuses hope. It has countless voices and instruments. Music is in the hearts of all men and women.
+ - Forget like a child any injury done by somebody immediately. Never keep it in the heart. It kindles hatred.
+ - Still the bubbling mind; herein lies freedom and bliss eternal.
+ - Do not brood over your past mistakes and failures as this will only fill your mind with grief, regret and depression. Do not repeat them in the future.
+ - The mind is a product of experience. It is the result of past thinking and is modified by present thinking.
+ - Fame is the penalty of success. Jealousy is the penalty of fame.
+ - The mind is responsible for the feelings of pleasure and pain. Control of the mind is the highest Yoga.
+ - Life is a pilgrimage. The wise man does not rest by the roadside inns. He marches direct to the illimitable domain of eternal bliss, his ultimate destination.
+ - Be tolerant. Behold the unity of all faiths, cults, creeds and religions. Respect the views, opinions and sentiments of all.
+ - Do not love leisure. Waste not a minute. Be bold. Realize the Truth, here and now!
+ - Intuition transcends reason, but does not contradict it.
+ - When you have succeeded in enshrining God within your heart, you will see Him everywhere.
+ - Modern civilisation is complicated and artificial. Simple folk live in a world of love and peace. Let no one hate another or harm another.
+ - A purified mind can grasp anything. It can dive deep into the subtlest subject and understand even transcendental things.
+ - The human intellect has not been able to conceive of anything more noble and sublime in the history of the world than the teachings of the Upanishads.
+ - You are already free. You only have to know and realize this truth.
+ - Life is the unfolding of the latent capacities of the soul.
+ - Let each man take the path according to his capacity, understanding and temperament. His true guru will meet him along that path.
+ - Be for ever a student. He and he alone is an old man who feels that he has learnt enough and has need for no more knowledge.
+ - There is a tricycle in man. He knows, he feels and acts. He has emotion, intellect and will. He must develop head, heart and hand.
+ - There is some truth in everything. Views and opinions are different aspects. Do not quarrel with others.
+ - There is something good in all seeming failures. You are not to see that now. Time will reveal it. Be patient.
+
+102 quotes

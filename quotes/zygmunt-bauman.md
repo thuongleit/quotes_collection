@@ -1,0 +1,33 @@
+ - In a liquid modern life there are no permanent bonds, and any that we take up for a time must be tied loosely so that they can be untied again, as quickly and as effortlessly as possible, when circumstances change – as they surely will in our liquid modern society, over and over again.
+ - For one to be free there must be at least two.
+ - As far as love is concerned, possession, power, fusion and disenchantment are the Four Horsemen of the Apocalypse.
+ - Madness is no madness when shared.
+ - Avoid the crowd, avoid mass audiences, keep your own counsel, which is the counsel of philosophy of wisdom you can acquire and make your own.
+ - We live in a globalising world. That means that all of us, consciously or not, depend on each other. Whatever we do or refrain from doing affects the lives of people who live in places we’ll never visit.
+ - The task for sociology is to come to the help of the individual. We have to be in service of freedom. It is something we have lost sight of.
+ - Happiness needs one-upmanship.
+ - In a consumer society, people wallow in things, fascinating, enjoyable things. If you define your value by the things you acquire and surround yourself with, being excluded is humiliating.
+ - In our world of rampant individualisation, relationships are mixed blessings. They vacillate between a sweet dream and a nightmare, and there is no telling when one turns into the other.
+ - The risk of the Holocaust is not that it will be forgotten, but that it will be embalmed and surrounded by monuments and used to absolve all future sins.
+ - Why do I write books? Why do I think? Why should I be passionate? Because things could be different, they could be made better.
+ - This awful concept of underclass is really horrifying. You’re not lower class, you are excluded – outside.
+ - You judge a society by the decency of living of the weakest.
+ - Human attention tends to be focused on the satisfactions relationships are hoped to bring, precisely because somehow they have not been truly satisfactory. And if they do satisfy, the price of this satisfaction has often been found to be unacceptable.
+ - Relationships, like cars, should undergo regular services to make sure they are still roadworthy.
+ - Man is in his short sojourn on earth equal to God in His eternity.
+ - What has been cut apart cannot be glued back together. Abandon all hope of totality, future as well as past, you who enter the world of fluid modernity.
+ - Marcus Aurelius appoints personal character and conscience the ultimate refuge of happiness-seekers: the only place where dreams of happiness, doomed to die childless and intestate anywhere else, are not bound to be frustrated.
+ - We already have – thanks to technology, development, skills, the efficiency of our work – enough resources to satisfy all human needs. But we don’t have enough resources, and we are unlikely ever to have, to satisfy human greed.
+ - For intellectual authority, the appropriate version of Descartes ’s cogito would be today: I am talked about, therefore I am.
+ - The rationality of the ruled is always the weapon of the rulers.
+ - Civilisation, the orderly world in which we live, is frail. We are skating on thin ice. There is a fear of a collective disaster. Terrorism, genocide, flu, tsunamis.
+ - Like the phoenix, socialism is reborn from every pile of ashes left day in, day out, by burnt-out human dreams and charred hopes.
+ - The carrying power of a bridge is not the average strength of the pillars, but the strength of the weakest pillar. I have always believed that you do not measure the health of a society by GNP but by the condition of its worst off.
+ - Questioning the ostensibly unquestionable premises of our way of life is arguably the most urgent of services we owe our fellow humans and ourselves.
+ - What is assumed to be the materialisation of the inner truth of the self is in fact an idealisation of the material – objectified – traces of consumer choices.
+ - I suspect that one of capitalism’s crucial assets derives from the fact that the imagination of economists, including its critics, lags well behind its own inventiveness, the arbitrariness of its undertaking and the ruthlessness of the way in which it proceeds.
+ - In a world of global dependencies with no corresponding global polity and few tools of global justice, the rich of the world are free to pursue their own interests while paying no attention to the rest.
+ - Power, in a nutshell, is the ability to get things done, and politics is the ability to decide which things need to be done.
+ - I was leftwing, I am leftwing, and I will die leftwing.
+
+31 quotes

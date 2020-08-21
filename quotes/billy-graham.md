@@ -1,0 +1,502 @@
+ - My home is in Heaven. I’m just traveling through this world.
+ - When wealth is lost, nothing is lost; when health is lost, something is lost; when character is lost, all is lost.
+ - God proved His love on the Cross. When Christ hung, and bled, and died, it was God saying to the world, ‘I love you.’
+ - It is the Holy Spirit’s job to convict, God’s job to judge and my job to love.
+ - Read the Bible. Work hard and honestly. And don’t complain.
+ - Salvation is free, but discipleship costs everything we have.
+ - I’ve read the last page of the Bible. It’s all going to turn out all right.
+ - A coach will impact more people in one year than the average person will in an entire lifetime.
+ - The will of God will not take us where the grace of God cannot sustain us.
+ - The greatest legacy one can pass on to one’s children and grandchildren is not money or other material things accumulated in one’s life, but rather a legacy of character and faith.
+ - God has given us two hands, one to receive with and the other to give with.
+ - Mountaintops are for views and inspiration, but fruit is grown in the valleys.
+ - The Christian life is not a constant high. I have my moments of deep discouragement. I have to go to God in prayer with tears in my eyes, and say, ‘O God, forgive me,’ or ‘Help me.’
+ - The highest form of worship is the worship of unselfish Christian service. The greatest form of praise is the sound of consecrated feet seeking out the lost and helpless.
+ - Courage is contagious. When a brave man takes a stand, the spines of others are often stiffened.
+ - God never takes away something from your life without replacing it with something better.
+ - God is unchanging in His love. He loves you. He has a plan for your life. Don’t let the newspaper headlines frighten you. God is still sovereign; He’s still on the throne.
+ - Don’t wavier. Make a decision. Do it now.
+ - Tears shed for self are tears of weakness, but tears shed for others are a sign of strength.
+ - A child who is allowed to be disrespectful to his parents will not have true respect for anyone.
+ - If you are ignorant of God’s Word, you will always be ignorant of God’s will.
+ - I never saw a U-Haul behind a hearse.
+ - We hurt people by being too busy. Too busy to notice their needs. Too busy to drop that note of comfort or encouragement or assurance of love. Too busy to listen when someone needs to talk. Too busy to care.
+ - Heaven is real and hell is real, and eternity is but a breath away.
+ - We are the Bibles the world is reading; We are the creeds the world is needing; We are the sermons the world is heeding.
+ - Being a Christian is more than just an instantaneous conversion – it is a daily process whereby you grow to be more and more like Christ.
+ - True prayer is a way of life, not just for use in cases of emergency.
+ - Be sure that your motive in praying is to glorify God.
+ - God doesn’t owe us anything yet in His grace, He still gives us good things.
+ - One with God is a majority.
+ - Grumbling and gratitude are, for the child of God, in conflict. Be grateful and you won’t grumble. Grumble and you won’t be grateful.
+ - No matter how dark and hopeless a situation might seem, never stop praying.
+ - You can’t control the length of your life. You can control the depth.
+ - Becoming a Christian is the work of a moment; being a Christian is the work of a lifetime.
+ - Each life is made up of mistakes and learning, waiting and growing, practicing patience and being persistent.
+ - The most devastating effect of sin is that by it, we are blinded to it.
+ - Life is a glorious opportunity.
+ - The moment we take our last breath on earth, we take our first in heaven.
+ - God has a plan for your retirement.
+ - To get nations back on their feet, we must first get down on our knees.
+ - Evil is real – but so is God’s power and love.
+ - Don’t be a half-Christian. There are too many of such in the world. The world has a profound respect for people who are sincere in their faith.
+ - God’s path always delivers what He promises.
+ - Fear can paralyze us and keep us from believing God and stepping out in faith. The devil loves a fearful Christian!
+ - There is more evidence that Jesus rose from the dead than there is that Julius Caesar ever lived or that Alexander the Great died at the age of thirty-three.
+ - Robots do not love. God created us with the capacity to love. Love is based upon one’s right to choose to love. We cannot force others to love us. We can make them serve us or obey us. But true love is founded upon one’s freedom to choose to respond.
+ - I know God is in charge. Not me, I’m nothing. I wouldn’t be anything except for the power of the spirit of God.
+ - Happy is the person who has learned the secret of being content with whatever life brings him, and has learned to rejoice in the simple and beautiful things around him.
+ - Faith grows when it is planted in the fertile soil of God’s Word.
+ - Hot heads and cold hearts never solved anything.
+ - If you don’t make a decision then time will make it for you and time will always side against you!
+ - Prayer is crucial in evangelism: Only God can change the heart of someone who is in rebellion against Him. No matter how logical our arguments or how fervent our appeals, our words will accomplish nothing unless God’s Spirit prepares the way.
+ - Integrity is the glue that holds our way of life together.
+ - You cannot serve god and mammon. You have to make a choice.
+ - A prayerless Christian is a powerless Christian.
+ - There is nothing wrong with men possessing riches. The wrong comes when riches possess men.
+ - Any other foundation will fail, but Christ is a sure and steady rock to build your life on.
+ - No matter what trials we face, Christ never leaves us. He is with us every step of the way!
+ - Confidentiality is the essence of being trusted.
+ - When granted many years of life, growing old in age is natural, but growing old with grace is a choice. Growing older with grace is possible for all who will set their hearts and minds on the Giver of grace, the Lord Jesus Christ.
+ - Jesus had a humble heart. If He abides in us, pride will never dominate our lives.
+ - Out of pain and problems have come the sweetest songs, the most poignant poems, the most gripping stories.
+ - God has given us two hands – one to receive with and the other to give with. We are cisterns made for hoarding; we are channels made for sharing. If we fail to fulfill this divine duty and privilege we have missed the meaning of Christianity.
+ - Forgiveness does not come easily to us, especially when someone we have trusted betrays our trust. And yet if we do not learn to forgive, we will discover that we can never really rebuild trust.
+ - Those outside the church expect followers of Christ to live differently, yet today many in church are chasing after the world – not to win them, but to be like them.
+ - Perhaps the greatest psychological, spiritual, and medical need that all people have is the need for hope.
+ - The cross shows us the seriousness of our sin-but it also shows us the immeasurable love of God.
+ - Heaven is a wonderful place and the benefits for the believer are out of this world!
+ - I am never lonely when I am reading the Bible. Nothing dissolves loneliness like a session with God’s Word.
+ - A double minded man is unstable in all his ways. Are you unstable about your relationship to Christ?
+ - As this New Year begins, ask God to help you tune your life every day to His Word, so you can bring harmony and joy to those around you.
+ - Sin is the second most powerful force in the universe, for it sent Jesus to the cross. Only one force is greater-the love of God.
+ - God’s grace, quite simply, is God’s mercy and goodness toward us.
+ - The Christian is an idol breaker.
+ - Every successful work of God must have opposition.
+ - Nothing can bring a real sense of security into the home except true love.
+ - May the Lord bless you real good.
+ - God will prepare everything for our perfect happiness in heaven, and if it takes my dog being there, I believe he’ll be there.
+ - Be to the world a sign that while we as Christians do not have all the answers, we do know and care about the questions.
+ - Christmas is not a myth, not a tradition, not a dream. It is a glorious reality.
+ - To be peacemaker, you must know the peace giver.
+ - You not only choose between two ways of life but you choose between two masters.
+ - The Bible stresses that a marriage ideally should be a picture or a reflection of Christ’s love for His people.
+ - It is a great privilege, as well as our responsibility, to pray for our government leaders.
+ - What a moment to take the newspaper in one hand and the Bible in the other and watch the unfolding of the great drama of the ages. This is an exciting and thrilling time to be alive. I would not want to live in any other period.
+ - I believe one of the next great moves of God is going to be through the believers in the workplace.
+ - You’re born. You suffer. You die. Fortunately, there’s a loophole.
+ - Believers, look up – take courage. The angels are nearer than you think.
+ - The same sun that melts the butter hardens the clay.
+ - Only when we understand the holiness of God will we understand the depth of our sin.
+ - The greatest need in the world is the transformation of human nature. We need a new heart that will not have lust and greed and hate in it. We need a heart filled with love and peace and joy, and that is why Jesus came into the world.
+ - Our faith becomes stronger as we express it; a growing faith is a sharing faith.
+ - Jesus Christ is the greatest man in the history of the world. And to me, he’s the greatest person in the history of mankind and the universe. We can’t prove it, I can’t put it in a test tube or in an astronomical formula, but by faith I believe it because the Bible teaches it.
+ - Although we may trust God’s promises for life after death and the certainty of a heavenly home, we must still face the reality of death.
+ - You can’t change your past but you can change you destiny but deciding for Christ.
+ - Even when life may be difficult, we should thank God for all He does for us-which we do not deserve.
+ - Many invest wisely in business matters, but fail to invest time and interest in their most valued possessions: their spouses and children.
+ - Communism has decided against God, against Christ, against the Bible, and against all religion.
+ - Anxiety is the natural result when our hopes are centered in anything short of God and His will.
+ - God can use a sensitive Christian to be a rich blessing in the life of one who knows pain and sorrow.
+ - Truly, God works in mysterious ways. The wheels of His mercy and justice move quietly, but they do move.
+ - The motive of grace is the infinite, compassionate love of a merciful God, but the work of grace was the death of Christ on the cross.
+ - Life without God is like an unsharpened pencil – it has no point.
+ - The seed of sin is in us when we are born.
+ - The very purpose of Christ’s coming into the world was that He might offer up His life as a sacrifice for the sins of men. He came to die. This is the heart of Christmas.
+ - Auschwitz stands as a tragic reminder of the terrible potential man has for violence and inhumanity.
+ - The greatest surprise in life to me is the brevity of life.
+ - When life is hard it’s easy to focus only on the bad things and forget all about the good things God has given us. But God has blessed every one of us in ways we often overlook.
+ - May you also remember this Thanksgiving not only the obvious gifts that God has given you, but His spiritual blessings, as well. The greatest gift of all is Jesus Christ, and the salvation God offers us in Him.
+ - I don’t need a successor, only willing hands to accept the torch for a new generation.
+ - The word of God hidden in the heart is a stubborn voice to suppress.
+ - All mankind is crying out for guidance, for comfort, for peace.
+ - We should ask ourselves three questions before we speak: Is it true? Is it kind? Does it glorify Christ?
+ - Prayer is more than a wish; it is the voice of faith directed to God.
+ - We can be certain that God will give us the strength and resources we need to live through any situation in life that he ordains. The will of God will never take us where the grace of God cannot sustain us.
+ - Two conflicting forces cannot exist in one human heart. When doubt reigns, faith cannot abide. Where hatred rules, love is crowded out. Where selfishness rules, there love cannot dwell. When worry is present, trust cannot crowd its way in.
+ - If you find a perfect church don’t join it: You’d spoil it.
+ - We’re all sinners. Everybody you meet all over the world is a sinner.
+ - I’m going to Heaven just like the thief on the cross who said in that last moment: ‘Lord, remember me.’
+ - You will never understand who you are until you understand who God is.
+ - Jesus Christ opened heaven’s door for us by His death on the cross.
+ - Why should we give God thanks? Because everything we have comes from God.
+ - We should not pray for God to be on our side, but pray that we may be on God’s side.
+ - Knowing we will be with Christ forever far outweighs our burdens today! Keep your eyes on eternity!
+ - Please join me in praying for America, that we will turn our hearts back toward God.
+ - The Bible is not an option, it is a necessity. You cannot grow spiritually strong without it.
+ - Every year during their High Holy Days, the Jewish community reminds us all of our need for repentance and forgiveness.
+ - Like a spring of pure water, God’s peace in our hearts brings cleansing and refreshment to our minds and bodies.
+ - A good father is one of the most unsung, unpraised, unnoticed, and yet one of the most valuable assets in our society.
+ - Integrity means that if our private life were suddenly exposed, we’d have no reason to be ashamed or embarrassed. Integrity means that our outward life is consistent with our inner convictions.
+ - No matter how hard we try words simply cannot express the horror, the shock, and the revulsion we all feel over what took place in this nation on Tuesday morning. September 11 will go down in our history as a day to remember.
+ - Without the resurrection, the cross is meaningless.
+ - Old age may have its limitations and challenges, but in spite of them, our latter years can be some of the most rewarding and fulfilling of our lives.
+ - Only as we bow in contrition, confession, and repentance at the foot of the cross, can we find forgiveness. There is the grace of God.
+ - When we grieve over someone who has died in Christ, we are sorrowing not for them, but for ourselves. Our grief isn’t a sign of weak faith, but of great love.
+ - No matter how prepared you think you are for the death of a loved one, it still comes as a shock, and it still hurts very deeply.
+ - The most thrilling thing about heaven is that Jesus Christ will be there. I will see Him face to face. Jesus Christ will meet us at the end of life’s journey.
+ - Don’t let failure or disappointment cut you off from God or make you think that the future is hopeless. When God closes one door, He often opens another door – if we seek it.
+ - Learn to keep close to Jesus, to listen to His voice, and follow Him.
+ - Suffering is part of the human condition, and it comes to us all. The key is how we react to it, either turning away from God in anger and bitterness or growing closer to Him in trust and confidence.
+ - Our world today so desperately hungers for hope, yet uncounted people have almost given up. There is despair and hopelessness on every hand. Let us be faithful in proclaiming the hope that is in Jesus.
+ - Suppose you could gain everything in the whole world, and lost your soul. Was it worth it?
+ - Prayer is simply a two-way conversation between you and God.
+ - Only those who want everything done for them are bored.
+ - Being judgmental and condemning is not one of the gifts of the Spirit.
+ - The angels minister to God’s servants in time of hardship and danger.
+ - Prayer is spiritual communication between man and God, a two-way relationship in which man should not only talk to God but also listen to Him. Prayer to God is like a child’s conversation with his father. It is natural for a child to ask his father for the things he needs.
+ - The family should be a closely knit group. The home should be a self-contained shelter of security; a kind of school where life’s basic lessons are taught; and a kind of church where God is honored; a place where wholesome recreation and simple pleasures are enjoyed.
+ - Kindness is an essential part of Gods work and ours here on earth.
+ - Christ did not suffer and die to offer cheap grace. Jesus did not go willingly to the cross so we could have an easy life or offer a faith built on easy-believism. As someone once said, ‘Salvation is free, but not cheap.’ It cost Jesus His life.
+ - I am convinced the greatest act of love we can ever perform for people is to tell them about God’s love for them in Christ.
+ - We cannot ask forgiveness over and over again for our sins, and then return to our sins, expecting God to forgive us. We must turn from our practice of sin as best we know how, and turn to Christ by faith as our Lord and Savior.
+ - God’s holiness demands that sin be punished – but God’s love has provided the way of redemption through Christ.
+ - God’s mercy and grace give me hope – for myself, and for our world.
+ - I don’t want to see religious bigotry in any form. It would disturb me if there was a wedding between the religious fundamentalists and the political right. The hard right has no interest in religion except to manipulate it.
+ - Live each day as if it were your last for some day it will be.
+ - A spirit of thankfulness is one of the most distinctive marks of a Christian whose heart is attuned to the Lord. Thank God in the midst of trials and every persecution.
+ - To the Christian death is the exchanging of a tent for a building.
+ - Love is to the heart what the summer is to the farmer’s year. It brings to harvest all the loveliest flowers of the soul.
+ - Grief’s darkness fades in the sunlight of thanksgiving.
+ - My hope does not rest in the affairs of this world. It rests in Christ who is coming again.
+ - It could be that one of the greatest hindrances to evangelism is the poverty of our own experience.
+ - Some of us want the crown before the cross.
+ - The entire plan for the future has its key in the resurrection.
+ - The great comfort in knowing that angels minister to believers in Christ is that God Himself sends them to us.
+ - Faith implies four things: self-renunciation, reliance with utter confidence on Christ, obedience, and a changed life.
+ - My prayer today is that we will feel the loving arms of God wrapped around us, and will know in our hearts that He will never forsake us as we trust in Him.
+ - Guy Lafleur said “Each of us has only one past but there are many futures”.
+ - Joy cannot be pursued. It comes from within. It is a state of being. It does not depend on circumstances, but triumphs over circumstances. It produces a gentleness of spirit and a magnetic personality.
+ - Death is robbed of much of its terror for the true believer.
+ - Without dark clouds in our lives, we would never know the joy of sunshine. We can become callous and unteachable if we do not learn from pain.
+ - Embracing conflict can be a joy when we know that irritation and frustration can lead to growth and the re-engergizing of ourselves and others. Hot heads and cold hearts never solved anything.
+ - When tragedy strikes, no one is fully prepared to deal effectively with all the responsibilitie s, emotional trauma, and grief that begin to impact people. Our Rapid Response Team exists so that people can find the care and comfort of Jesus Christ in the midst of tragedy.
+ - Jesus was not a white man; He was not a black man. He came from that part of the world that touches Africa and Asia and Europe. Christianity is not a white man’s religion and don’t let anybody ever tell you that it’s white or black. Christ belongs to all people; He belongs to the whole world.
+ - Our society strives to avoid any possibility of offending anyone – except God.
+ - If you could work your way to heaven, you would said look what I did, I got myself here by my good works. The only way you are going to make it is to come to that Cross.
+ - A checkbook is a theological document, it will tell you who and what you worship.
+ - Learn to commit every situation to God, and trust Him for the outcome. God’s love for you never changes, no matter what problems you face or how unsettled life becomes.
+ - The Holy Spirit illuminates the minds of people, makes us yearn for God, and takes spiritual truth and makes it understandable to us.
+ - Christ alone can bring lasting peace – peace with God – peace among men and nations – and peace within our hearts.
+ - Even if we may not always understand why God allows certain things to happen to us, we can know He is able to bring good out of evil, and triumph out of suffering.
+ - I want people to remember me that I was faithful, faithful to the gospel, faithful to the call that God gave me. And when I get to heaven, I’m going to ask him why he called me, because I was much used to milking cows and working on the farm than I was preaching.
+ - Jesus used the carefree attitude of the birds to underscore the fact that worrying is unnatural. I am learning in my own life, day by day, to keep my mind centered on Christ.
+ - Avail yourself of the greatest privilege this side of heaven. Jesus Christ died to make this communion and communication with the Father possible.
+ - Men change, fashions change, conditions and circumstances change, but God never changes.
+ - The resurrection blasts apart the finality of death, providing an alternative to the stifling, settling dust of death and opens the way to new life.
+ - I have never known anyone to accept Christ’s redemption and later regret it.
+ - Envy and greed starve on a steady diet of thanksgiving.
+ - God knows what we are going through when we grieve, and He wants to assure us of His love and concern. He also wants us to turn to Him and bring our heartaches and burdens to Him.
+ - Yes, Satan is real, but so is Christ, and someday Satan will be defeated and Christ will rule forever. Don’t be deceived, but open your heart and mind to Jesus Christ, and put your life into His hands.
+ - There is no joy in life like the joy of sharing.
+ - Either communism must die or Christianity must die because it’s actually a battle between Christ and Anti-Christ.
+ - Give your life to Christ, he’ll challenge you.
+ - The Bible is clear – God’s definition of marriage is between a man and a woman.
+ - The hope we have in Christ is an absolute certainty. We can be sure that the place Christ is preparing for us will be ready when we arrive, because with Him nothing is left to chance. Everything He promised He will deliver.
+ - Christianity is not a spectator sport. It’s something in which we become totally involved.
+ - The happiness for which our souls ache is one undisturbed by success or failure, one which will root deeply inside us and give inward relaxation, peace, and contentment, no matter what the surface problems may be. That kind of happiness stands in need on no outward stimulus.
+ - Most of us know about God, but that is quite different from knowing God.
+ - The greatest need in the world at this moment is the transformation of human nature.
+ - Prayer is the rope that pulls God and man together. But, it doesn’t pull God down to us: It pulls us up to Him.
+ - Most of us follow our conscience as we follow a wheelbarrow. We push it in front of us in the direction we want to go.
+ - I trust Jesus with all my tomorrows, knowing that He will solve the mystery of life beyond the grave.
+ - Salvation is an act of God. It is initiated by God, wrought by God, and sustained by God.
+ - We are not cistern made for hoarding, we are channels made for sharing.
+ - Even our pets can become idols.
+ - Prayer should not be merely an act, but an attitude of life.
+ - Right is right, and wrong is wrong, in small things as well as in big things.
+ - The happiness which brings enduring worth to life is not the superficial happiness that is dependent on circumstances. It is the happiness and contentment that fills the soul even in the midst of the most distressing of circumstances and most bitter environment.
+ - Life is a glorious opportunity, if it is used to condition us for eternity. If we fail in this, though we succeed in everything else, our life will have been a failure.
+ - True greatness is not measured by the headlines a person commands or the wealth he or she accumulates. The inner character of a person-the undergirding moral and spiritual values and commitments-is the true measure of lasting greatness.
+ - There comes a moment when we all must realize that life is short, and in the end the only thing that really counts is not how others see us, but how God sees us.
+ - Life itself, every bit of health that we enjoy, every hour of liberty and free enjoyment, the ability to see, to hear, to speak, to think, and to imagine- all this comes from the hand of God. We show our gratitude by giving back to Him a part of that which He has given to us.
+ - I never pray on a golf course. Actually, the Lord answers my prayers everywhere except on the course.
+ - I used to read five psalms every day – that teaches me how to get along with God. Then I read a chapter of Proverbs every day and that teaches me how to get along with my fellow man.
+ - Our world is constantly changing but the needs of our hearts remain the same, and so does God’s power to transform our lives and give us hope for the future.
+ - A real Christian is a person who can give his pet parrot to the town gossip.
+ - Having knowledge of the Bible is essential to a rich and meaningful life.
+ - If God eliminated evil by programming us to perform only good acts, we would lose this distinguishing mark – the ability to make choices. We would no longer be free moral agents. We would be reduced to the status of robots.
+ - Man has no ability to repair this damaged planet. The flaw in human nature is too great. God is our only hope!
+ - I think we are trying to run the space age with horse and buggy moral and spiritual equipment. Technology you see has no morals; and with no moral restraints man will destroy himself ecologically, militarily, or in some other way. Only God can give a person moral restraints and spiritual strength.
+ - Prayers have no boundaries. They can leap miles and continents and be translated instantly into any language.
+ - The born-again Christian sees life not as a blurred, confused, meaningless mass, but as something planned and purposeful.
+ - Sin was conquered on the cross. Christ’s death is the foundation of our hope, the promise of our triumph.
+ - Christ not only died for all: He died for each.
+ - Truly a legend in our time, John Templeton understands that the real measure of a person’s success in life is not financial accomplishment but moral integrity and inner character.
+ - One of the greatest priorities of the church today is to mobilize the laity to do the work of evangelism.
+ - God is concerned about everything that concerns us – without exception.
+ - When Satan knocks, I just send Christ to the door.
+ - When we come to Christ, we’re no longer the most important person in the world to us; Christ is. Instead of living only for ourselves, we have a higher goal: to live for Jesus.
+ - If we fail to solve this moral and spiritual crisis we may be doomed like the great nations of the past.
+ - At the foot of the cross, there are no racial barriers.
+ - I can barely walk, but it’s a privilege to be able to move at all.
+ - In some ways, Christians are homeless. Our true home is waiting for us, prepared by the Lord Jesus Christ.
+ - Every day without exception – is a gift from God, entrusted to us to use for His glory.
+ - I am just one of many thousands called to be an evangelist.
+ - Think of working forever at something you love to do, for one you love with all your heart, and never getting tired! We will never know weariness in heaven.
+ - The basic unit of any society is the home. When the home begins to break, the society is on the way to disintegration.
+ - You have to decide to servant the gods of materialism all around us or the true and the living God.
+ - All too often we are more afraid of physical pain than of moral wrong. The cross is the standing evidence of the fact that holiness is a principle for which God would die.
+ - You choose sin. You practice sin.
+ - If people are kicking you in the behind, at least you’re in front of them.
+ - The Bible does not teach that sin is completely eradicated from the Christian in this life, but it does teach that sin shall no longer reign over you.
+ - Not to decide is to decide not to, nowhere in the bible does it promise tomorrow.
+ - There is no scriptural basis for segregation. The ground at the foot of the cross is level, and it touches my heart when I see whites standing shoulder to shoulder with blacks at the cross.
+ - A keen sense of humor helps us to overlook the unbecoming, understand the unconventional, tolerated the unpleasant, overcome the unexpected, and outlast the unbearable.
+ - There are nine orders of angels, to wit, angels, archangels, virtues, powers, principalities, dominations, thrones, cherubim, and seraphim.
+ - The cross is offensive because it directly confronts the evils which dominate so much of this world.
+ - Give me five minutes with a person’s checkbook, and I will tell you where their heart is.
+ - All the masterpieces of art contain both light and shadow. A happy life is not one filled with only sunshine, but one which uses both light and shadow to produce beauty.
+ - Whatever you love most, be it sports, pleasure, business or God, that is your god!
+ - The Bible says that as long as we are here on earth, we are strangers in a foreign land. There are enemies to be conquered before we return home. This world is not our home; our citizenship is in heaven.
+ - Man has always been dexterous at confusing evil with good. That was Adam’s and Eve’s problem, and it is our problem today. If evil were not made to appear attractive, there would be no such thing as temptation.
+ - Pope John Paul II was unquestionably the most influential voice for morality and peace in the world during the last 100 years.
+ - Tim Keller’s ministry in New York City is leading a generation of seekers and skeptics toward belief in God. I thank God for him.
+ - Every human being is under construction from conception to death.
+ - I look forward to seeing Christ and bowing down before Him in praise and gratitude for all He has done for us, and for using me on this earth by His grace-just as I am.
+ - For me, the best time to pray is the very moment a tense situation or an unspiritual attitude overtakes me. God the Holy Spirit is always there, ready to help me gain victory in the spiritual battles I face-big or small.
+ - The Beatles are a passing phase, symptoms of the confusion about us.
+ - We do not understand the intricate pattern of the stars in their courses, but we know that He who created them does, and that just as surely as He guides them, He is charting a safe course for us.
+ - Alexander the great was ask how he conquered the world he said, “by not waivering”.
+ - When thanksgiving is filled with true meaning and is not just the formality of a polite ‘thank you,’ it is the recognition of dependence.
+ - Suffering can give us opportunities to witness. The world is a gigantic hospital; nowhere is there a greater chance to see the peace and joy of the Lord than when the journey though the valley is the darkest.
+ - In my travels I have found that those who keep Heaven in view remain serene and cheerful in the darkest day. If the glories of Heaven were more real to us, if we lived less for material things and more for things eternal and spiritual, we would be less easily disturbed by this present life.
+ - Ruth and I are happily incompatible.
+ - We have been proud and thought we were better than any other race, any other people. Ladies and gentlemen, we are going to stumble into hell because of our pride.
+ - I have a certainty about eternity that is a wonderful thing, and I thank God for giving me that certainty. I do not fear death. I may fear a little bit about the process, but not death itself, because I think the moment that my spirit leaves this body, I will be in the presence of the Lord.
+ - Our valleys may be filled with foes and tears; but we can lift our eyes to the hills to see God and the angels, heaven’s spectators, who support us according to God’s infinite wisdom as they prepare our welcome home.
+ - You cannot build a superstructure on a cracked foundation.
+ - Living for Christ is a day-to-day going on with Him. It is a continuous dependence upon the Spirit of God. It is believing in His faithfulness.
+ - God made us for one reason: so He could have fellowship with us. It wasn’t that He was lonely or needed us but He made us in His image so He could shower His love upon us.
+ - My one purpose in life is to help people find a personal relationship with God, which, I believe, comes through knowing Christ.
+ - When the family is destroyed, society eventually disintegrates.
+ - In one bold stroke, forgiveness obliterates the past and permits us to enter the land of new beginnings.
+ - Jesus made everything so simple and we have made it so complicated. He spoke to the people in short sentences and everyday words, illustrating His messages with never-to-be forgotten stories.
+ - Churchgoers are like coals in a fire. When they cling together, they keep the flame aglow; when they separate, they die out.
+ - Someday your life will be over, no matter how much attention you give to your health. Will you look back with regret, because you nourished your body but starved your soul?
+ - When my time to die comes an angel will be there to comfort me. He will give me peace and joy even at that most critical hour, and usher me into the presence of God, and I will dwell with the Lord forever. Thank God for the ministry of His blessed angels.
+ - Ask God to show you His plans, not bless your dreams.
+ - No parent is perfect; we all can look back and think of things we could’ve done to help our children be better prepared for adulthood. And sometimes it’s best to admit it to them and encourage them to learn from our mistakes.
+ - I have many friends that don’t claim to be followers of Christ. As far as day-to-day friendship and being together at various functions, I don’t think that there should be any difference at all.
+ - The thought of the future life with its prerogatives and joys helps to make the trials of the present seem light and transient.
+ - On our knees we are the most powerful force on earth.
+ - Don’t let circumstances distress you. Rather, look for the will of God for your life to be revealed in and through those circumstances.
+ - There are two great forces, God’s force of good and the devil’s force of evil, and I believe Satan is alive and he is working, and he is working harder than ever, and we have many mysteries that we don’t understand.
+ - The secret of a happy home is that members of the family learn to give and receive love.
+ - Be careful before leaving someone in a sorrowing situation. Say a word of prayer with them and share even a brief word of encouragement from the Scriptures.
+ - The word ‘romance,’ according to the dictionary, means excitement, adventure, and something extremely real. Romance should last a lifetime.
+ - If God can be fully proved by the human mind, then He is no greater than the mind that proves Him.
+ - Before prayer changes others, it first changes us.
+ - Self-centered indulgence, pride and a lack of shame over sin are now emblems of the American lifestyle.
+ - The most eloquent prayer is the prayer through hands that heal and bless.
+ - I can tell you that God is alive because I talked to him this morning.
+ - If you know Christ, you don’t need to beg for the Holy Spirit to come into your life; He is already there- whether you “feel” His presence or not. Don’t confuse the Holy Spirit with an emotional feeling or a particular type of spiritual experience.
+ - God does not discipline us to subdue us, but to condition us for a life of usefulness and blessedness.
+ - Think about the holes children make when they dig in the sand on the seashore. When the waves come in, the holes are swallowed up by the ocean. Similarly, when we know Christ, our physical death is overwhelmed by the love and grace of God. Death is swallowed up in the victory of Christ.
+ - The greatest miracle of the Bible is that the prophets of Israel could keep a religion as clean as a hounds tooth amid all the corruption and idolatry of the nations surrounding them.
+ - If ever there was a time this country needed the intervention of God, it is now. We can and should pray for America as a whole, but remember that when God sets out to change a nation, He begins by changing people. It starts with individuals.
+ - Remember that you can pray any time, anywhere. Washing dishes, digging ditches, working in the office, in the shop, on the athletic field, even in prison – you can pray and know God hears!
+ - Worship leader George Beverly Shea kidded Billy Graham that the latter would be unemployed in Heaven – while Shea would still have a job leading worship.
+ - If it weren’t for God’s grace, you and I wouldn’t be able to live for even one more minute.
+ - If a person gets his attitude toward money straight, it will help straighten out almost every other area in his life.
+ - God can take anything that happens to us-even bad things-and use it to shape us and make us into a better, more Christlike person-if we let Him.
+ - I don’t have many sad days.
+ - No nation is ever taller than when on its knees...
+ - God undertook the most dramatic rescue operation in cosmic history. He determined to save the human race from self-destruction, and He sent His Son Jesus Christ to salvage and redeem them. The work of man’s redemption was accomplished at the cross.
+ - God knows what is best for you, and He wants to reveal it to you and show you what you ought to do.
+ - Only when Christ comes again will the little white children of Alabama walk hand in hand with little black children.
+ - We have found that marriage should be made up of two forgivers. We need to learn to say, “I was wrong, I’m sorry.” And we also need to say, “That’s all right, I love you.”
+ - The framers of our Constitution meant we were to have freedom of religion, not freedom from religion.
+ - God is more interested in your future and your relationships than you are.
+ - It is not the body’s posture, but the heart’s attitude that counts when we pray.
+ - We can change the course of events if we go to our knees in believing prayer.
+ - Heaven is full of answers for which nobody ever bothered to ask.
+ - Heavenly rest will be so refreshing that we will never feel that exhaustion of mind and body we so frequently experience now. I’m really looking forward to that.
+ - A lot of Jews are great friends of mine.
+ - The most prominent place in hell is reserved for those who are neutral on the great issues of life.
+ - Our World has becoime a neighbourhood without becoming a brotherhood.
+ - The Bay Area is so beautiful, I hesitate to preach about heaven while I’m here.
+ - Like Joseph storing up grain during the years of plenty to be used during the years of famine that lay ahead, may we store up the truths of God’s Word in our hearts as much as possible, so that we are prepared for whatever suffering we are called upon to endure.
+ - The Bible teaches that history began in the Middle East, and someday history will end in the Middle East.
+ - Freedom of speech means nothing to a people who are too weak in their convictions to speak out against the evil that is eating at the heart of the nation like a cancer.
+ - Man has two great spiritual needs. One is for forgiveness. The other is for goodness.
+ - It was not the people or the Roman soldiers who put Jesus on the cross – it was your sins and my sins that made it necessary for Him to volunteer His death.
+ - Don’t let past mistakes keep you from seeking God.
+ - The growing possibility of our destroying ourselves and the world with our own neglect and excess is tragic and very real.
+ - Heaven will be the perfection we’ve always longed for. All the things that made Earth unlovely and tragic will be absent in heaven.
+ - The word of God teaches that Christians suffer in order that they might glorify God in their lives.
+ - We cannot truly face life until we face the fact that it will be taken away from us.
+ - I am convinced that these heavenly beings exist and that they provide unseen aid on our behalf.
+ - The Bible says we must choose two ways of life.
+ - God will never send anybody to hell. If man goes to hell, he goes by his own free choice.
+ - Far too many young people today have no spiritual roots. The’ve been deprived of values by an agnostic, contemporary culture.
+ - I think that if I would talk on a political subject, if I talk about it, it would divide the audience on that issue. That’s not my issue.
+ - But those who chose to reject God during their lifetime on earth will be separated from him for eternity. This is not God’s desire, but man’s own choice. God holds every man accountable for his rejection of Christ.
+ - When Christ’s love fills our hearts, it puts selfishness on the run.
+ - Those are decisions only the Lord will make. I believe the love of God is absolute. He said he gave his son for the whole world, and I think he loves everybody regardless of what label they have.
+ - Everybody has a little bit of Watergate in him.
+ - Just because the truth is unpopular doesn’t mean that it should not be proclaimed.
+ - World travel and getting to know clergy of all denominations has helped mold me into an ecumenical being. We’re separated by theology and, in some instances, culture and race, but all that means nothing to me any more.
+ - There is not a flower that opens, not a seed that falls into the ground, and not an ear of wheat that nods on the end of its stalk in the wind that does not preach and proclaim the greatness and the mercy of God to the whole world.
+ - I have never targeted Muslims. I have never targeted Jews. I believe that we should declare the fact that God loves you, God’s willing to forgive you, God can change you, and Christ and his kingdom is open to anybody who repents and by faith receives him as lord and savior.
+ - Those who have a true love of freedom will do everything in their power to keep the freedom that they have.
+ - God’s hand never slips. He never makes a mistake. His every move is for our own good and for our ultimate good.
+ - On a specific day marked on the earth’s calendar, and in a specific place on the earth’s map, the Son of God came to the planet. It was love.
+ - It takes suffering to widen the soul.
+ - The only time my prayers are never answered is on the golf course.
+ - I have the problems of, I must confess, old age.
+ - Each generation faces different issues and challenges, but our standard must always be measured by God’s Word.
+ - No man ever loved like Jesus. He taught the blind to see and the dumb to speak. He died on the cross to save us. He bore our sins. And now God says, Because He did, I can forgive you.
+ - The thing that I remember the most in my childhood was the love of family and the discipline in the family. My father and mother both were disciplinarians, and they didn’t mind using the rod. Maybe because I was the oldest child I always felt I got much more of it than anybody else.
+ - I think we should love sinners, and welcome them, and open our arms to them, and then we don’t totally accept them into our fellowship as believers and as Christians until they have repented their sins and changed their way of living.
+ - For the Christian, all is not hopeless unless his affections are centered on the things of this world.
+ - In heaven I’ll wish with all my heart that I could reclaim a thousandth part of the time I’ve let slip through my fingers, that I could call back those countless conversations which could have glorified my Lord-but didn’t.
+ - I have never been quite sure who controls the weather. Although we always prayed for clear skies, I have had to preach in all kinds of storms.
+ - While our world is shaking and crumbling, we need to realize that one thing will never change, and that is God. He is the same today as he was ten million years ago, and will be the same ten million years from today.
+ - Don’t apologize for who you are and what you’ve done in the past. Be who you are and do what you do.
+ - There is a vast difference between intellectual belief and the total conversion that saves the soul.
+ - If we had more hell in the pulpit, we would have less hell in the pew.
+ - The men who followed Him were unique in their generation. They turned the world upside down because their hearts had been turned right side up. The world has never been the same.
+ - Prayer is speaking to God – but sometimes He uses our times of prayerful silence to speak to us in return.
+ - If your faith isn’t rooted in the Bible, it will wither like a plant pulled out of the soil.
+ - Over the years I’ve seen people lose a spouse and then withdraw and lose interest in life, and I believe we need to resist that.
+ - Christ demands first place. There’s no room on the throne of your heart for two gods.
+ - All my life I’ve been taught how to die, but no one ever taught me how to grow old.
+ - Some of the greatest spiritual revivals in the past occurred just when the situation seemed to be the darkest. In the history of our own nation, for example, countless thousands turned to Christ during the darkest days of the Civil War, setting the stage for national reconciliation later on.
+ - Our certainty that angels right now witness how we are walking through life should mightily influence the decisions we make. God is watching, and His angels are interested spectators too.
+ - I’m glad to know that we do have political leaders that believe in God, and that has been true from the days of George Washington.
+ - Wherever the Gospel is preached, no matter how crudely, there are bound to be results.
+ - We’re a diverse society, and I think the TV is doing a great job in showing that we’re all human beings, that we can all get along, that we can all be together, and I think that’s a marvelous thing.
+ - The time has come for all evangelists to practice full financial disclosure. The world is watching how we walk and how we talk. We must have the highest standards of morality, ethics and integrity if we are to continue to have influence.
+ - I received Christ into my heart and my life began to change. But it was a gradual change. And I didn’t see any flashing bulbs. I didn’t hear any thunder. There was no great emotional experience. It was just saying: Yes, Lord Jesus, I want you to be the lord of my life.
+ - I only know that when Jesus is with a person, that one can endure the deepest suffering and somehow emerge a better and stronger Christian because of it.
+ - Our way lies not in human ingenuity, but in a return to God.
+ - I’d grown up in a Presbyterian church, but I really didn’t know Christ personally in my heart. I knew him, but I didn’t know him. And there’s a difference between an intellectual faith and a personal, heart faith in which I opened my heart to him and let him rule my life.
+ - Even when we allow our imaginations to run wild on the joys of heaven, we find that our minds are incapable of conceiving what it will be like.
+ - All around you are people whose lives are filled with trouble and sorrow, and they need your compassion and encouragement.
+ - Don’t miss what the Lord has in store for those who love Him and are willing to let Him be the Master of their lives.
+ - Most of all, God has blessed us by giving us the privilege of knowing Him and walking with Him every day. He did this by sending His Son into the world to die for our sins.
+ - I remember the first sermon I ever preached. I had four sermons. I preached them, all four in ten minutes. And that was the beginning, in a place called Bostwick, Florida, in northern Florida, in a little tiny church, and on a cold night, about 40 people. And I was so nervous.
+ - I feel sorry for the man who has never known the bracing thrill of taking a stand and sticking to it fearlessly. Moral courage has rewards that timidity can never imagine. Like a shot of adrenaline, it floods the spirit with vitality.
+ - No matter who you are or what your life has been like so far, the rest of your life’s journey can be different. With God’s help you can begin again.
+ - It may be difficult to understand why a test comes our way, but we must never forget that the test is accomplishing refining and purification.
+ - Some believe strongly that each Christian may have his own guardian angel assigned to watch over him or her.
+ - Often the only thing a child can remember about an adult in later years, when he or she is grown, is whether or not that person was kind to him or her.
+ - The Bible teaches that faith is the only approach that we have to God. No man has sins forgiven, no man goes to heaven, no man has assurance of peace and happiness, until he has faith in Jesus Christ.
+ - What makes us Christians shrug our shoulders when we ought to be flexing our muscles? What makes us apathetic in a day when there are loads to lift, a world to be won and captives to be set free? Why are so many bored when the times demand action?
+ - I believe the home and marriage is the foundation of our society and must be protected.
+ - At great cost to Himself, God has made it possible for each of us to live with Him eternally. Those who reject God’s offer of a heavenly home will be assigned to hell.
+ - Anyone who makes a decision at our meetings is seen later and referred to a local clergyman, Protestant, Catholic, or Jewish.
+ - I realize that my ministry would someday come to an end. I am only one in a glorious chain of men and women God has raised up through the centuries to build Christ’s church and take the Gospel everywhere.
+ - For a married couple to expect perfection for each other is unrealistic.
+ - Many people have just enough natural religion to make them immune to the real thing.
+ - I’m the man of the hour, the man with the power, too sweet to be sour.
+ - Prayer never works for me on the golf course. That may have something to do with my being a terrible putter.
+ - I’m thankful for the incredible advances in medicine that have taken place during my lifetime. I almost certainly wouldn’t still be here if it weren’t for them.
+ - People have a negative impression of New York that I don’t think is quite fair.
+ - We can receive Jesus Christ when we believe in His message and trust in Him alone to save us.
+ - I still enjoy watching a batter successfully cross home plate, but nothing thrills me more than seeing the Holy Spirit at work in hearts as the Gospel is carried into stadiums, across the airwaves, and around the world.
+ - Be assured that there is no sin you have ever committed that the blood of Jesus Christ cannot cleanse.
+ - It’s a paradise that we are going to go into, because to be in the presence of God itself will be a paradise.
+ - Serve God and live; serve these other gods and died.
+ - A calling is you feel – you look out and see the need – maybe it’s the need for the poor, to help poor people. Maybe it’s the need to get involved in the race problem, as Martin Luther King was – felt called.
+ - In a very real sense, the suffering of this world was created by man himself.
+ - You can receive Christ into your heart, and he can bring joy, and a thrill, and glory such as you have never known – if you will give your life to him.
+ - No matter what you might be going through right now, God has blessed you far more than you probably imagine-not just with material goods, but with family, with freedom and with the ability to enjoy His gifts.
+ - Faith that saves has one distinguishing quality: saving faith is a faith that produces obedience; it is a faith that brings about a way of life.
+ - While we do not place our faith directly in angels, we should place it in the God who rules the angels; then we can have peace.
+ - A life touched by the Holy Spirit will tolerate sin no longer.
+ - We need to be reminded that there is nothing morbid about honestly confronting the fact of life’s end, and preparing for it so that we may go gracefully and peacefully.
+ - Scripture tells us that there will be signs pointing toward the return of the Lord. I believe all these signs are evident today.
+ - God will not force himself upon us against our will. If we want his love, we need to believe in him. We need to make a definite, positive act of commitment and surrender to the love of God. No one can do it for us.
+ - God never tempts any man. That is Satan’s business.
+ - First of all, you have to meet God with light! I do not believe that any man, that any man can solve the problems of life without Jesus Christ.
+ - Today, we come together to confess our need of God. Those perpetrators who took us on to tear us apart, it has worked the other way. It has backfired; it has brought us together.
+ - God has not promised to bless my thoughts, but He has promised to bless His Word.
+ - When anyone has the power to destroy the whole human race in a matter of hours, it becomes a moral issue. The church must speak out.
+ - The only place we can find a clear, unmistakable message is in the Word of God, which we call the Bible.
+ - There are a lot of groups that feel a little bit strange around me, because I am inclusive.
+ - The end of the world begins the moment you die.
+ - It is not the temptations you have, but the decision you make about them that counts.
+ - In the founding era of our country, it was not organized religion but personal faith that brought focus and unified the early leadership-maybe an unspoken faith in God, and certain values that came with that faith. So in that sense, we cannot discount, in my judgment, religious faith in politics.
+ - We have perfected our weapons but failed to perfect the men who use them.
+ - The key word of the dedicated Christian should be ‘give.’ Charitable contributions speak eloquently of your unselfish Christian generosity.
+ - The reason we have this inner conviction that death is not the end – and that Heaven exists – is because we were created in the image of God.
+ - I haven’t been faithful to my own advice in the past. I will in the future.
+ - Don’t be swayed by the false values and goals of this world, but put Christ and his will first in everything you do.
+ - The most remarkable thing about suffering is that God can use it for our good.
+ - Any preacher who preaches beyond that which he has experienced is incapable of preaching with conviction.
+ - I’ve spent too much time giving speeches, traveling the world.
+ - We have to have armies! We have to have military power! We have to have police forces, whether it’s police in a great city or police in an international scale to keep those madmen from taking over the world and robbing the world of its liberties.
+ - The philosopher says think your way out. The sensualist says play your way out but none of it works.
+ - Some of the greatest values that have influenced me through the years are those that I learned as a boy growing up on the farm. I remember mostly the love in our family, but I also remember the discipline. Then there was the work; we all had to work.
+ - Homes that are built on anything other than love are bound to crumble.
+ - Hundreds of passages point to a time of judgment for every person who has ever lived-none will escape. If you took all the references to judgment out of the Bible, you would have little Bible left.
+ - I don’t think I get angry.
+ - God’s hand never slips.
+ - I am convinced that when a man sincerely searches for God with all his heart, God will reveal Himself in some way.
+ - The problems of peace are greater than the problems of war.
+ - The Bible’s emphasis is on the good treatment of animals, and not just the forbidding of cruel treatment.
+ - The way we live often speaks far louder than our words.
+ - What we think of Christ influences our thinking and controls our actions.
+ - Chose you this day whom, not tomorrow, whom you’ll serve?
+ - When our faith becomes nothing more than a series of rules and regulations, joy flees and our love for Christ grows cold.
+ - If America is to survive, we must elect more God-centered men and women to public office; individuals who will seek Divine guidance in the affairs of state.
+ - Psychaiatrist realize that there are curative powers in confession.
+ - God’s angels often protect his servants from potential enemies.
+ - I am convinced that only when a man is prepared to die is he also prepared to live.
+ - Those who have suffered make the best comforters.
+ - We in America should be grateful to God for the blessing he has given us.
+ - Commitment to great causes makes great men.
+ - There are many things that I don’t understand.
+ - I am not a televangelist.
+ - In some Churches today and on some religious television programs, we see the attempt to make Christianity popular and pleasant. We have taken the cross away and substituted cushions.
+ - Faith is loved and honored by God more than any other single thing.
+ - Millions of angels are at God’s command.
+ - When God forgives us and purifies us of our sin, He also forgets it. Forgiveness results in God dropping the charges against us.
+ - Many people have come to Christ as a result of my participation in presenting the Gospel to them. It’s all the work of the Holy Spirit.
+ - Only God who made us can touch us and change us and save us from ourselves.
+ - Remember: the Bible is our only authoritative source of information about Heaven.
+ - The Christian should stand out like a sparkling diamond.
+ - If ever there was a time this country needed the intervention of God, it is now.
+ - Heaven doesn’t make this life less important; it makes it more important.
+ - Talk about God can become dreary and lackluster if God isn’t in you.
+ - The Bible is the Constitution of Christianity.
+ - Much of the philosophy of religious education has been based upon a false premise, and perhaps many have missed the essence of Christian experience, having had religious training take its place.
+ - I look forward to death with great anticipation, to meeting God face to face.
+ - It’s sometimes comical to hear the younger generation ask their peers to repeat themselves.
+ - Whatever affliction comes in our life, our Lord goes into the valley with us, leading us by the hand, even carrying us when it is necessary.
+ - There are three of you. There is the person you think you are. There is the person others think you are. There is the person God knows you are and can be through Christ.
+ - If there are any tears shed in heaven, it will be because we prayed so little.
+ - Its either Christ or the other god.
+ - I just want to lobby for God.
+ - I wish I’d watched less TV.
+ - We are more united than ever before. I think this was exemplified in a very moving way when the members of our Congress stood shoulder to shoulder the other day and sang God Bless America.
+ - God measures people by the small dimensions of humility and not by the bigness of their achievements or the size of their capabilities.
+ - The farther we get from God, the more the world spirals out of control.
+ - Few people realize the profound part angelic forces play in human events.
+ - The Lord blesses people who bless others, and He gives grace to those who focus on the things that please Him.
+ - Many of you wavier by the way you live.
+ - There’s a way of life, there’s a way of death. Which way are you on?
+ - I never imagined anybody would ever come out to hear me preach. I’m just a country dairy farmer from North Carolina.
+ - Salvation is free! God puts no price tag on the Gift of gifts.
+ - The Bible teaches that all sin begins with sinful thinking.
+ - I’m not an analyzer. I’ve got a son that analyzes everything and everybody. But I don’t analyze people.
+ - I will never do anything in my entire life except preach the Gospel.
+ - Love your children-and let them know you love them. Children who experience love find it far easier to believe God loves them.
+ - God can use the fear that grips the hearts of men today to point them to eternal truths- the truth of God’s eternal judgment, and the truth of His eternal love.
+ - I believe that I have received Jesus Christ into my heart. I believe that he has covered all of my sins.
+ - If we have no mercy toward others, that is one proof that we have never experienced God’s mercy.
+ - A true Christian, living an obedient life, is a constant rebuke to those who accept the moral standards of this world.
+ - My calling is to preach the love of God and the forgiveness of God and the fact that he does forgive us.
+ - When you follow Christ, it must be a total burning of all your bridges behind you.
+ - I can’t prove it scientifically, that there’s a God, but I believe.
+ - I don’t think there is a single social issue I haven’t spoken on.
+ - The Holy Spirit gives liberty to the Christian, direction to the worker, discernment to the teacher, power to the Word, and fruit to faithful service. He reveals the things of Christ.
+ - The older I get, the more important the eternal becomes to me personally.
+ - The only thing He forgets is our sins.
+ - God does not call us to be successful, but to be obedient.
+ - 3 is prime, 5 is prime, 7 is prime, 9 is an unfortunate mistake of the devil. But if it repents, it will be saved!
+ - It’s no secret that in New York during the last 30 years there has been a tragic exodus from the churches into materialism, secularism and humanism.
+
+500 quotes

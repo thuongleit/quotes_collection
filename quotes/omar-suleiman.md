@@ -1,0 +1,29 @@
+ - The sign of a beautiful person is that they always see beauty in others.
+ - When Allah loves you, He places the love of you in the hearts of the people whose love is worth having.
+ - What you see in other people is a reflection of yourself. A person of goodness sees goodness in others and a person of evil sees evil in others.
+ - Wake up knowing that Allah is greater than any obstacle you may face today.
+ - If you complain that Allah is testing you too much, you’re failing the test.
+ - In trusting Allah, remember that what’s best for you might be what’s most painful.
+ - When you forget that you need Allah, He puts you in a situation that causes you to call upon him. And that’s for your own good...
+ - Kind words cost you nothing but are sometimes worth more than a million dollars.
+ - When you treat people well, those same people might not treat you the same way. But if you pay attention, you’ll notice that Allah has sent OTHER people who treat you even better.
+ - Allah will never disappoint the sincere caller. Even when you think He hasn’t answered you, He plans in your favor.
+ - When you give, expect nothing from people and everything from Allah.
+ - When people wear you out, spend some time in isolation with Allah and your relationship with Him will improve as well as with the people.
+ - Positive thinking isn’t ignoring life’s problems, it’s understanding that Allah can make a way out for you if you sincerely try.
+ - Allah is Most Merciful even when He sends us trials, for even His punishment is for our own good.
+ - Your success does not depend on the failure of others.
+ - If you’re not doing it for Allah, then don’t expect any help from Allah.
+ - Sometimes Allah gives you bitterness in this life so that you can further enjoy the sweetness of the hereafter.
+ - Being unashamedly Muslim while excelling in whatever you do is of the greatest forms of Dawah.
+ - Talk to Allah in your own language with your heart fully present. Allah doesn’t need you to rhyme or speak arabic.
+ - Sometimes you wish you never met certain people, then you grow and realize that they were a gift in disguise and contributed to making you the person you are.
+ - Never forget the favors done for you. Always forget the favors you’ve done for others.
+ - In order to bring out the best in people, you need to give them your best.
+ - Good friends are hard to find so when you find one, hold on tight!
+ - Sometimes you don’t realize how special something is until you lose it. Thats how I feel about Ramadan every year.
+ - Many sisters complain that people don’t want to marry them unless they stop wearing hijab. No man is worth your hijab, and a real man wouldn’t request you to take it off in the first place.
+ - Love the people you think you’d want to be with in the hereafter.
+ - Imagine if your kids had to carry a ladder to climb an apartheid wall to get to school everyday.
+
+27 quotes

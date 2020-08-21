@@ -1,0 +1,36 @@
+ - Peace on earth will come to stay, when we live Christmas every day.
+ - A Mother’s love is something that no one can explain, It is made of deep devotion and of sacrifice and pain, It is endless and unselfish and enduring come what may For nothing can destroy it or take that love away.
+ - Never borrow sorrow from tomorrow.
+ - A mother’s love is patient and forgiving when all others are forsaking, it never fails or falters, even though the heart is breaking.
+ - So every year when Christmas comes, I realize a new, the best gift life can offer is having friends like you.
+ - There’s always a tomorrow and the hope of something new.
+ - God, teach me to be patient, teach me to go slow.
+ - God grant me courage and hope for everyday, faith to guide me along my way, understanding and wisdom, too, and grace to accept what life gives me to do.
+ - After the clouds, the sunshine; after the winter, the spring; after the shower, the rainbow; for life is a changeable thing. After the night, the morning, bidding all darkness cease, after life’s cares and sorrows, the comfort and sweetness of peace.
+ - You cannot change reality, but you can control the manner in which you look at things. Your attitude is under your own control. Weed out the negative and focus on the positive!
+ - When you are in troubled and worried and sick at heart And your plans are upset and your world falls apart, Remember God’s ready and waiting to share The burden you find much to heavy to bear – So with faith, “Let Go and Let GOD” lead your way Into a brighter and less troubled day.
+ - The comfort and sweetness of peace.
+ - No matter how steep the mountain – the Lord is going to climb it with you.
+ - A wee bit of heaven drifted down from above, a handful of happiness, a heart full of love.
+ - It takes a Mother’s Love to make a house a home, a place to be remembered, no matter where we roam.
+ - For each time you smile you will find it’s true somebody, somewhere, will smile back at you.
+ - When you ask God for a gift, Be thankful if he sends, Not diamonds, pearls or riches, but the love of real true friends.
+ - For a mother’s love is fashioned, After God’s enduring love, It is endless and unfailing, Like the love of Him above.
+ - And when the home is filled with love you’ll always find God spoken of.
+ - A mother’s love is like an island, In life’s ocean vast and wide, A peaceful, quiet shelter, From the restless, rising tide.
+ - Once I’ve met someone, the years cannot erase, the memory of a pleasant word or a friendly face.
+ - Comfort comes from knowing that people have made the same journey. And solace comes from understanding how others have learned to sing again.
+ - The way to real growth is not to become more powerful or more famous, but to become more human and more tolerant.
+ - Bless us Lord, this Christmas, with quietness of mind; Teach us to be patient and always to be kind.
+ - A mother’s love is like a fortress, And we seek protection there, When the waves of tribulation, Seem to drown us in despair.
+ - Precious and priceless, so lovable, too; The world’s sweetest miracle, baby, is you.
+ - It takes a Mother’s Patience, to bring a child up right, And her Courage and her Cheerfulness to make a dark day bright.
+ - A mother’s love is a sanctuary, Where our soul can find sweet rest, From the struggle and the tension, Of life’s fast and futile quest.
+ - Stop wishing for things you complain you have not, and start making the best of all that you’ve got.
+ - Love changes darkness into light and makes the heart take a wingless flight.
+ - A mother’s love is like a tower, Rising far above the crowd, And her smile is like the sunshine, Breaking through a threatening cloud.
+ - In everything both great and small, We see the Hand of God in all.
+ - This great God loves us still, He loved us since the world began and what’s more, He always will.
+ - Today be happy with what you have – not discontent with what you don’t have.
+
+34 quotes

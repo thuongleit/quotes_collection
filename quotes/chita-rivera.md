@@ -1,0 +1,37 @@
+ - I love to laugh, I love the joy of life, and I love sharing it.
+ - I have a blessed life. I really do. I have a great family, a great daughter, I love life, I love living, I love people. I love all the blessings that God’s given me.
+ - You know I’ve got a generator that’s still popping.
+ - The spirit of dance is an amazing thing. When the body and the spirit meet, it’s a good thing.
+ - It’s communication – that’s what theatre is all about.
+ - I am young in my energy because I really still believe that we can share who we are, and we can wipe off on each other. I see this huge tapestry when we’re born, and this red blob that’s your soul or your heart.
+ - I’m bugged because I can’t believe I can’t speak every language there is. But I feel I can when I sit and am with somebody, and I can dance for them. Because dance is dialogue without language.
+ - Beauty is not everything!
+ - I’ve played American, Italian, Greek, French. I’ve been really lucky that way.
+ - It’s important that the kids stay busy. It’s important that they have something to focus on, and something that they feel good about.
+ - I never feel as though I’m ever, ever alone.
+ - I was busy welcoming a new experience. I had never done a movie before.
+ - Theatre is immediate gratification.
+ - I love life. I love the live theater.
+ - Somebody told me once I wasn’t Latin enough, and that made me laugh.
+ - A lot of Americans like happy endings, but life does not necessarily have a happy ending.
+ - I love the theater because the theater is alive. The audience is right there.
+ - Many of the shows I danced in don’t exist on film, but they do exist in the memories of those who were in the theater for that single moment in time. And nothing can replace that.
+ - We were taking collections for people with AIDS in New York around Easter.
+ - Looking back doesn’t have to be painful.
+ - I have to make this love affair believable enough. It’s very European.
+ - American audiences are affected by what the English people think.
+ - I never like the way I look. I don’t. I never look at myself.
+ - I can tell you where my Tonys are. They’re in a beautiful place in my living room, in a glass cabinet.
+ - My neighborhood was a great neighborhood; it was filled with all sorts of ethnic groups and things. So I grew up thinking I was a human being.
+ - After about 15 minutes, you feel that you’re winning them over.
+ - I really never felt any tremendous aggravation or separation.
+ - I do believe that separation can be a bit damaging at times. To be happy about yourself and your culture and all of that is necessary and fulfilling, but the whole tapestry is what’s important.
+ - You take a plug and put it in a socket, and that’s what the theatre is-it lights up right away. You speak, and they respond immediately.
+ - My hairdresser and I found ourselves shopping at Bloomingdale’s with nothing to do for days.
+ - You can feel whether an audience is tightened up and pulled back. Of course the opposite is an audience like we’ve been having in LA, which is fabulous.
+ - I have always loved a challenge.
+ - I have been very lucky, I have only had one bad experience.
+ - I’m not comfortable with just me, me, me. That’s boring.
+ - San Francisco has just blown us all away. I also understand Angels in America didn’t do well there.
+
+35 quotes

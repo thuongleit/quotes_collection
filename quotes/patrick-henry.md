@@ -1,0 +1,72 @@
+ - United we stand, divided we fall. Let us not split into factions which must destroy that union upon which our existence hangs.
+ - Give me liberty or give me death.
+ - Is life so dear, or peace so sweet, as to be purchased at the price of chains and slavery? Forbid it, Almighty God! I know not what course others may take; but as for me, give me liberty or give me death!
+ - The Constitution is not an instrument for the government to restrain the people, it is an instrument for the people to restrain the government – lest it come to dominate our lives and interests.
+ - We have not yet begun to fight.
+ - It can not be emphasized too strongly or too often that this great nation was founded, not by religionists, but by Christians, not on religions, but on the gospel of Jesus Christ.
+ - The battle, sir, is not to the strong alone; it is to the vigilant, the active, the brave.
+ - If this be treason, make the most of it!
+ - I am not a Virginian, I am an American.
+ - The battle is not to the strong alone. It is to the vigilant, the active, and the brave. A small, disciplined militia can not only hold out against a larger force, but drive it back, because what they’re fighting for rightfully belongs to them.
+ - My most cherished possession I wish I could leave you is my faith in Jesus Christ, for with Him and nothing else you can be happy, but without Him and with all else you’ll never be happy.
+ - Perfect freedom is as necessary to the health and vigor of commerce as it is to the health and vigor of citizenship.
+ - The distinctions between Virginians, Pennsylvanians, New Yorkers, and New Englanders are no more. I Am Not A Virginian, But An American!
+ - The liberties of a people never were, nor ever will be, secure, when the transactions of their rulers may be concealed from them.
+ - This is all the inheritance I give to my dear family. The religion of Christ will give them one which will make them rich indeed.
+ - We should not forget that the spark which ignited the American Revolution was caused by the British attempt to confiscate the firearms of the colonists.
+ - The eternal difference between right and wrong does not fluctuate, it is immutable.
+ - Should I keep back my opinions at such a time, through fear of giving offense, I should consider myself as guilty of treason towards my country, and of an act of disloyalty toward the Majesty of Heaven, which I revere above all earthly kings.
+ - Gentlemen may cry, Peace, Peace! – but there is no peace.
+ - Fear is the passion of slaves.
+ - I know not what others may choose but, as for me, give me liberty or give me death.
+ - Be of good courage, my son, and remember that the best men always make themselves.
+ - This house protected by an armed citizen. There is absolutely nothing here worth dying for.
+ - The Bible is worth all the other books which have ever been printed.
+ - It is when a people forget God, that tyrants forge their chains.
+ - If you have given up your militia, and Congress shall refuse to arm them, you have lost every thing. Your existence will be precarious, because you depend on others, whose interests are not affected by your infelicity.
+ - There is a just God who presides over the destinies of nations, and who will raise up friends to fight our battles for us.
+ - Righteousness alone can exalt America as a nation. Whoever thou art, remember this; and in thy sphere practice virtue thyself, and encourage it in others.
+ - Give me liberty, or give me death! While we’re at it, I would also like a fourth Pirates of the Caribbean movie.
+ - Shall we acquire the means of effectual resistance by lying supinely on our backs and hugging the delusive phantom of hope, until our enemies shall have bound us hand and foot?
+ - Adversity toughens manhood, and the characteristic of the good or the great man is not that he has been exempt from the evils of life, but that he has surmounted them.
+ - Human nature will never part with power. Look for an example of a voluntary relinquishment of power from one end of the globe to another – you will find none.
+ - My great objection to this government is, that it does not leave us the means of defending our rights, or of waging war against tyrants.
+ - Jealousy is the only vice that gives no pleasure.
+ - Shall we gather strength by irresolution and inaction?
+ - When the American spirit was in its youth, the language of America was different: Liberty, sir, was the primary object.
+ - Bad men cannot make good citizens. A vitiated state of morals, a corrupted public conscience are incompatible with freedom.
+ - Bad men cannot make good citizens.
+ - You are not to inquire how your trade may be increased, nor how you are to become a great and powerful people, but how your liberties can be secured; for liberty ought to be the direct end of your government.
+ - Hospitality invites to prayer before it checks credentials, welcomes to the table before administering the entrance exam.
+ - It is natural to man to indulge in the illusion of hope. We are apt to shut our eyes against a painful truth, till she transforms us into beasts.
+ - Were my soul trembling on the wing of eternity, were this hand freezing to death, were my voice choking with the last struggle, I would still, with the last gasp of that voice, implore you to remember the truth: God has given America to be free.
+ - Implements of war and subjugation are the last arguments to which kings resort.
+ - The great object is that every man be armed.
+ - The militia is our ultimate safety. We can have no security without it. The great object is that every man be armed.
+ - Liberty ought to be the direct end of your government.
+ - The whole economy of this lower world proves that it is by labor and perseverance only that good is obtained and evil is avoided.
+ - Are we at last brought to such humiliating and debasing degradation, that we cannot be trusted with arms for our defense?
+ - For my part, whatever anguish of spirit it may cost, I am willing to know the whole truth; to know the worst and provide for it.
+ - I have now disposed of all my property to my family. There is one thing more I wish I could give them, and that is the Christian religion.
+ - I have but one lamp by which my feet are guided, and that is the lamp of experience.
+ - Suspicion is a Virtue, if in the interests of the good of the people.
+ - The question before the House is one of awful moment to this country. For my own part, I consider it as nothing less than a question of freedom or slavery.
+ - Have we the means of resisting disciplined armies, when our only defence, the militia, is put in the hands of Congress?
+ - The American Revolution was the grand operation, which seemed to be assigned by the Deity to the men of this age in our country, over and above the common duties of life.
+ - He that hath a blind conscience which sees nothing, a dead conscience which feels nothing, and a dumb conscience which says nothing, is in as miserable a condition as a man can be on this side of hell.
+ - It is the business of a virtuous clergy to censure vice in every appearance of it.
+ - The first thing I have at heart is American liberty; the second thing is American union.
+ - Give me liberty or give me gout?! Ok, who’s been messing with this?
+ - I shall act as I think my duty requires.
+ - We should transmit to posterity our abhorrence of slavery.
+ - I’m sick of all you ammo-phobes being intolerant of my gun.
+ - Oh, how wretched should I be at this moment, if I had not made my peace with God.
+ - If our government servants had to comply with the Sarbanes-Oxley Act as they have forced all of American business to do, they would be in jail.
+ - The people have a right to keep and bear arms.
+ - I believe a time will come when an opportunity will be offered to abolish this lamentable evil. Everything we do is to improve it, if it happens in our day; if not, let us transmit to our descendants, together with our slaves, a pity for their unhappy lot and an abhorrence of slavery.
+ - What right do they have to say “we the people” rather than we the States?
+ - Show me that age and country where the rights and liberties of the people were placed on the sole chance of their rulers being good men, without a consequent loss of liberty?
+ - I know of no way of judging the future but by the past.
+ - I believe a time will come when an opportunity will be offered to abolish this lamentable evil.
+
+70 quotes

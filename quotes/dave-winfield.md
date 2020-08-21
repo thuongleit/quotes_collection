@@ -1,0 +1,27 @@
+ - You know, heroes are ordinary people that have achieved extraordinary things in life.
+ - These days baseball is different. You come to Spring Training, you get your legs ready, you arms loose, your agents ready your lawyer lined up.
+ - Everyone has a breaking point, turning point, stress point, the game is permeated with it. The fans don’t see it because we make it look so efficient. But internally, for a guy to be successful, you have to be like a clock spring, wound but not loose at the same time.
+ - All though I didn’t meet him. His legend and his saga and his story is just that. Jackie Robinson, we all have to tip our hat to him. Because he made the game available to guys like me.
+ - You have to be like a clock spring, wound but not loose at the same time.
+ - Tom Cruise only makes one or two film appearances a year. A baseball player can be the hero or the goat one-hundred and sixty-two times a year.
+ - Good hitters don’t just go up and swing. They always have a plan. Call it an educated deduction. You visualize. You’re like a good negotiator. You know what you have, you know what he has, then you try to work it out.
+ - I went to jail. I looked like one of those savings-and-loan guys leaving the jail house.
+ - To the people out there, baseball is a simple sport. But it is complex. It is never easy.
+ - The sooner I get into the Hall of Fame the better.
+ - Made it through high school, went to the University of Minnesota.
+ - Everybody faces obstacles. And I looked to people who had been through many to succeed in life. Abraham Lincoln, born to a poor family, faced defeat through most of his life. Lost eight elections, failed two businesses, had a nervous breakdown, and still became president.
+ - And I found out, the other part of it is that I found out and in my desire to life successfully, that baseball fit very well into my life. It’s been a great teacher, trainer, mentor and you’ll see what I mean in the next few minutes that I have to speak.
+ - And then 45 years later, as I finished my career in the great city of Cleveland, that was another great way to end my career, going to the World Series.
+ - All good balls to hit are strikes, though not all strikes are good balls to hit.
+ - People I look to: again, Hank Aaron, man you challenged the status quo and the records of the game. Monumental feats in an era where people didn’t like that.
+ - I chose baseball because to me baseball is the best game of all.
+ - I’ve experienced a lot of things in baseball, but I’ve never been traded during a strike. At least I know I’ll be in a new uniform the next time I put one on.
+ - There is no way, believe me, despite my name being Winfield, and loving the game dearly. It wasn’t in the cards. I didn’t know what it was going to take to get here.
+ - You know, many of you kids can’t relate to what it takes to get to the top rung, the top of the heap, to have success. We’re looking for things that come in a minute. It just doesn’t happen.
+ - You have to go understand that life and baseball is littered with all kinds of obstacles and problems along the way. You have to learn how to overcome them to be successful in life.
+ - The Yankees won the pennant, we went on to the World Series, 41 years after that in the city of Toronto. The great city of Toronto, and all the provinces in Canada, everybody reached out and they were excited because we won the first World Series ever, across the border.
+ - The people like the American Legion Post that gave us a chance to play. A place to play and a chance to play.
+ - I never had to cheat, I get them with what I got.
+ - The only players that are having fun are those having a good year, feasting on pitching or blowing down hitters and garnering all the adulation that goes with it. But, if you’re not hitting or not throwing well, or are injured, you better look for fun someplace else.
+
+25 quotes

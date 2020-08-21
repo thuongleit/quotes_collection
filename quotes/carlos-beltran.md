@@ -1,0 +1,23 @@
+ - My mom and dad gave me everything they could have given me.
+ - I’m a family man. I just love being around my family.
+ - I like people talking about me, about my defense or what I’m doing. I like to see that, and that makes me work hard.
+ - I learned that I have to work hard every day, that I can’t get down if I get in a slump.
+ - Major League Baseball should retire Roberto Clemente’s number, just like they did Jackie Robinson’s.
+ - I don’t want to be hiding from people. It would be difficult to be recognized everywhere, so that I couldn’t do things ordinary people do.
+ - I just need to come to the park every day thinking something good is going to happen to me and hoping today is going to be the day.
+ - I like to be aggressive. I like to swing the bat.
+ - My goal is to win. It doesn’t matter how I do. I want to do well, but I just want the team to win.
+ - Now that I feel 100 percent, I’m looking forward to playing my game the way I want to-getting on base, stealing bases and trying to help the team any way I can.
+ - When you’re close to your family, you want to be close to them.
+ - It’s going to be crazy. I’m guessing when we play against the Dominicans, half the field will be Dominican fans and half will be Puerto Rican fans. With all the big-time players in the World Classic, it’s going to be huge.
+ - Running after balls, diving, taking a home run away, it gives me such a good feeling. I am happy to do it.
+ - I can’t change something that I’ve been all my life. But I can work to express myself and talk more.
+ - I have more confidence than I ever have before.
+ - I play because I know I can play the game, so it’s their decision whether or not they want to keep me or they wanna trade me. Whatever decision they make, I will understand it.
+ - I was always thinking, ‘One day I want to be like Bernie Williams.’
+ - I used to think it would be neat to play my whole career with one team. But as a baseball player you want to come to the ballpark every day knowing you have a chance to win and that the games mean something.
+ - I think I can play in the big leagues 10 or 15 years. But more important to me is winning-win, make the playoffs.
+ - I pray to God to be a great player, but I want to keep my life.
+ - I know there are a lot of expectations of me, and I will do the best I can.
+
+21 quotes

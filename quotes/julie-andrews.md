@@ -1,0 +1,68 @@
+ - Perseverance is failing 19 times and succeeding the 20th.
+ - Feed the body food and drink, it will survive today. Feed the soul art and music, it will live forever.
+ - In every job that must be done, there is an element of fun. You find the fun and – SNAP – the job’s a game!
+ - Use your knowledge, and your heart, to stand up for those who can’t stand, speak for those who can’t speak, be a beacon of light for those whose lives have become dark.
+ - It is not enough to reach for the brass ring. You must also enjoy the merry go round.
+ - Beginnings are always hard.
+ - Where the Lord closes a door, somewhere He opens a window.
+ - Leave everything you do, every place you go, everything you touch a little better for your having been there.
+ - Sometimes opportunities float right past your nose. Work hard, apply yourself, and be ready. When an opportunity comes you can grab it.
+ - I’ve never minded being disciplined. I’d always rather have a quiet evening in than go to a wild party. Discipline for me has always been the foundation which leaves me free to fly.
+ - If you remain calm in the midst of great chaos, it is the surest guarantee the it will eventually subside.
+ - If you’re passionate about what you do, then go for it wholeheartedly. Be prepared that if anytime, you may be surprised by a phenomenal opportunity that may come your way, and that’s when I say, do your homework. Be ready.
+ - After all, children are children no matter their background.
+ - Some people regard discipline as a chore. For me, it is a kind of order that sets me free to fly.
+ - The anateur works until they get something right. The professional works until they can’t go wrong.
+ - I’m never lonely when I’m writing, because you live with the characters that are so alive in your mind. And you really see them and know them and get to be friends with them.
+ - Have you noticed how nobody ever looks up? Nobody looks at chimneys, or trees against the sky, or the tops of buildings. Everybody just looks down at the pavement or their shoes. The whole world could pass them by and most people wouldn’t notice.
+ - I’m more contented and at peace with myself now than I was as a box-office queen. I’m less uptight. I’ve even reached a stage where it doesn’t shatter me if somebody prints something bad about me.
+ - Miracles, contrary to popular belief, do not just happen. A miracle is the achievement of the impossible, and it is only when we put aside out greed, anger, pride and prejudice so that our minds are open and ready to accept it, that a miracle can occur.
+ - The world is full of magical places, and the library has always been one of them for me. A library can be that special place for our children.
+ - As my mother said, I never sprang out of bed with a glad shout! My voice needed oiling and then it took off.
+ - A library takes the gift of reading one step further by offering personalized learning opportunities second to none, a powerful antidote to the isolation of the Web.
+ - Singing has never been particularly easy for me.
+ - Miracles are happening every day. I do think that’s true. If you can take the time to look. It took me a while to learn that, though some children know it instinctively and they do have wonder when they are kids. But the trouble is, as we grow older, we lose it.
+ - When adversity hits, go out and learn something.
+ - I miss singing very, very much, but the best thing is I have never been busier.
+ - All careers go up and down like friendships, like marriages, like anything else, and you can’t bat a thousand all the time.
+ - I play with my grandchildren. I tend to my garden, which I love. Of course, I love to read, and family is really what it’s all about.
+ - Of course, you can say it backwards, which is dociousaliexpilisticfragicalirupus, but that’s going a bit too far, don’t you think?
+ - I’ve got a good right hook.
+ - Once upon a time, there was a Magic Kingdom made of hopes and childhood fantasies. A timeless place where every land was filled with wonder. A place where everyone who entered its gates would be given the gift of the young at heart.
+ - Richard Burton rang me up once and said, Do you know you’re my only leading lady I’ve never slept with? I said, Well, please don’t tell everybody, it’s the worst image.
+ - Words are what make the song. I get a personal vision about what the lyrics are about.
+ - I can’t believe 50 years have gone by since that film was released. I blinked and suddenly here I am. We all really felt blessed and as for me; how lucky can a girl get. Great music does more than enhance a film, it cements our memories in the film going experience.
+ - Hopefully, I brought people a certain joy. That will be a wonderful legacy.
+ - Well it’s all right to cry. It helps a great deal sometimes...
+ - Success is terrifying. Like happiness, it is often appreciated in retrospect. It’s only later that you place it in perspective. Years from now, I’ll look back and say, ‘God, wasn’t it wonderful.’
+ - I do ask myself sometimes, what am I doing writing about animals that talk like we do? But I guess it’s okay if it brings across a point.
+ - On the whole, I think women wear too much and are to fussy. You can’t see the person for all the clutter.
+ - I don’t want to be thought of as wholesome.
+ - I was raised never to carp about things and never to moan, because in vaudeville, which is my background, you just got on with it through all kinds of adversities.
+ - All love shifts and changes...
+ - I’d like to be an original, to be myself and not a pale copy of anyone else.
+ - Once in a while I experience an emotion onstage that is so gut-wrenching, so heart-stopping, that I could weep with gratitude and joy. The feeling catches and magnifies so rapidly that it threatens to engulf me.
+ - I think it’s the essence of any film and any stage production – any work where you do work with other people – of course collaboration is hugely important. One does for awhile become family.
+ - The old fairy tales are very, very violent, and these days I think we could do with a little less of it.
+ - I adored my birth father and constantly worried that I was being disloyal to him and his schoolteacher roots if I spent too much time performing and enjoying it.
+ - I am an optimistic lady.
+ - As you become older, you become less judgmental and take offense less. But marriage is hard work; the illusion that you get married and live happily ever after is absolute rubbish.
+ - If you’re lucky enough to be able to have therapy – because I know it’s very privileged – it gets rid of so much garbage and enables you to focus on what’s important. When I first went into analysis, my mother was absolutely horrified. She thought I’d be a loony!
+ - I work out as little as I can for as much gain as I can. Yoga and a little bit of ballet – only 30 or 40 minutes every other day. I keep supple for myself more than for roles.
+ - For the last time, you cannot wear that cropped fleece vest.
+ - The librarians that I’ve spoken to, the teachers and the librarians who really care and do advise parents and children of what’s good and what’s out there, they are very special. They have a kind of wisdom that a lot of people don’t have.
+ - Unfortunately something always has to go by the wayside.
+ - For me, singing was always about the lyrics. I’m hopeless at singing songs that don’t have a core.
+ - Dear Lady Gaga, thank you for the wonderful tribute. Oh my god, it really warmed my heart!
+ - You know, making an animated movie is such a lonesome thing. You mostly don’t see your fellow actors or anything. You go into your booth, you record all your dialogue. It’s very much an issue of trust. You leave it all up to the director.
+ - I think of part of myself as a very passionate person, but I don’t think that comes across. I don’t know where it comes from, that reserve or veneer of British niceness. But it doesn’t bother me if other people don’t spot the passion. I know it’s there.
+ - My sense of the family history is somewhat sketchy, because my mother kept a great deal to herself.
+ - I suppose partially because of the success of the early movies and things like that, I began to realize, that children do look up to you in some way, and there is a responsibility for how you behave with them. I know that it’s important to make them feel very valuable, not to talk down to them.
+ - Can I give them what they think they’re going to get from me? That’s always the big question.
+ - Books make great gifts because they’re everybody’s favorite things.
+ - I am told that the first comprehensible word I uttered as a child was ’home.
+ - Mary Poppins is magical and fun.
+ - I don’t sing the way I used to, so I’m doing everything I can to put the word out that they shouldn’t expect that.
+ - Because of the Thames I have always loved inland waterways – water in general, water sounds – there’s music in water. Brooks babbling, fountains splashing. Weirs, waterfalls; tumbling, gushing.
+
+66 quotes

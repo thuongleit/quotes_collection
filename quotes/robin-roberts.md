@@ -1,0 +1,36 @@
+ - When fear knocks, let faith answer the door.
+ - It takes courage to believe the best is yet to come!
+ - Optimism is a muscle that gets stronger with use.
+ - Being optimistic is like a muscle that gets stronger with use. Makes it easier when the tough times arrive. You have to change the way you think in order to change the way you feel.
+ - Venture outside your comfort zone. To stop growing is to stop living.
+ - Life provides losses and heartbreak for all of us-but the greatest tragedy is to have the experience and miss the meaning.
+ - Dreams are vague and far away. Goals are tangible and achievable.
+ - At one point, we were all fearful. But as you get older, it’s the things you don’t do that you regret, more so than the things you do. When fear knocks, answer.
+ - I love a doctor who can respect that somebody else is on your team, and that’s God.
+ - Find the meaning behind whatever it is you’re going through because everybody’s got something.
+ - I feel it’s okay to get angry with God. He can take it. Just don’t stay angry. It takes courage to believe that the best is yet to come. I hold steadfast to that belief, especially when I come face-to-face with adversity.
+ - As I like to say, take the shot, even if your knees are shaking.
+ - I want people to know there are infinite possibilities in life to be grateful for. I love that people feel comfortable coming up to me and telling me stories about things they have gone through.
+ - My mama told me in college, ‘I love you, and you’re God’s child, but natural beauty will only take you so far.’
+ - It’s about focusing on the fight and not the fright.
+ - We are all a little bit stronger than we think we are.
+ - Things happen along the way in our path. Instead of looking at it as a wall that’s being put up in front of us, look at it as as opportunity to scale new heights and to climb that wall – to see and do things you didn’t think you were capable of.
+ - I am stronger than I thought I was. My favorite phrase has been ‘This too shall pass.’ I now understand it really well.
+ - Everything’s the same; I’m living with cancer and it’s not going to stop me. But until you really test yourself and challenge yourself, I don’t think you quite know.
+ - Oh well, the truth hurts, doesn’t it?
+ - I have never been happier, or healthier, than I am right now.
+ - I was brought up with the 3 Ds: Determination, Discipline and Da Lord.
+ - The combination of landing the biggest interview of my career and having a drill in my back reminds me that God only gives us what we can handle and that it helps to have a good sense of humor when we run smack into the absurdity of life.
+ - The tragedy is not so much the experience that you’re having. The tragedy is that we don’t take the time to understand the meaning and purpose behind what we’re going through.
+ - Life is not so much what you accomplish as what you overcome.
+ - Generally in the Little League you’re up against a good pitcher who throws like hell. What does the coach say? Get a walk. Isn’t that beautiful way to learn to hit? For four years you stand up there looking for a walk.
+ - I think there’s a myth that people feel, that people of success are never fearful, that we’re never challenged, that we have some supernova – no, we’re like everybody else.
+ - When my mother makes out her income tax return every year, under occupation she writes, eroding my daughter’s self-esteem.
+ - Before, I would play a little hoops, a little tennis. Now it’s more yoga, Pilates, stretching, some light weight work, push-ups, sit-ups, resistance things. When I used to live on the eleventh floor, I would take the steps. I don’t do that so much now. I’m taking the elevator a bit more these days.
+ - I cannot believe how fine I am with being bald.
+ - I’ve taken my cue from people here and from viewers, especially survivors-who said, ‘When it’s time to literally flip your wig, you’ll know.’
+ - You have to be willing to put yourself in position for good things to happen.
+ - It was part of the reason I almost didn’t go public with my diagnosis – I was embarrassed. I felt, ‘Oh, I’ve always talked about exercising. And I got cancer.’ And then I realized it’s a great example of showing that cancer can hit anyone at any time.
+ - There is no magical reason why I am where I am. And there is absolutely no reason why you can’t be where you want to be. If it can happen for me, it can happen for you, too. And it would be a privilege for me to help you get there.
+
+34 quotes

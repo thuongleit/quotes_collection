@@ -1,0 +1,38 @@
+ - If you could say it in words, there would be no reason to paint.
+ - My aim in painting has always been the most exact transcription possible of my most intimate impression of nature.
+ - Well, I have a very simple method of painting.
+ - So much of every art is an expression of the subconscious that it seems to me most of all the important qualities are put there unconsciously, and little of importance by the conscious intellect. But these are things for the psychologist to untangle.
+ - I think that zinc white has a property of scaling and cracking.
+ - Great art is the outward expression of an inner life in the artist, and this inner life will result in his personal vision of the world.
+ - Well, I’ve always been interested in approaching a big city in a train, and I can’t exactly describe the sensations, but they’re entirely human and perhaps have nothing to do with aesthetics.
+ - No amount of skillful invention can replace the essential element of imagination.
+ - What I wanted to do was to paint sunlight on the side of a house.
+ - In general it can be said that a nation’s art is greatest when it most reflects the character of its people.
+ - To me the most important thing is the sense of going on. You know how beautiful things are when you’re traveling.
+ - So many people say painting is fun. I don’t find it fun at all. It’s hard work for me.
+ - I use a retouching varnish which is made in France, Libert, and that’s all the varnish I use.
+ - There is a sort of elation about sunlight on the upper part of a house.
+ - Yes, linseed oil. I used to use poppy oil, but I have heard that poppy oil is given to cracking pigment too, so I use it no longer.
+ - When I don’t feel in the mood for painting I go to the movies for a week or more. I go on a regular movie binge!
+ - More of me comes out when I improvise.
+ - I find linseed oil and white lead the most satisfactory mediums.
+ - Methods are transient: personality is enduring.
+ - The only quality that endures in art is a personal vision of the world. Methods are transient: personality is enduring.
+ - I once got a little camera to use for details of architecture and so forth but the photo was always so different from the perspective the eye gives, I gave it up.
+ - I trust Winsor and Newton and I paint directly upon it.
+ - After all, we are not French and never can be, and any attempt to be so is to deny our inheritance and to try to impose upon ourselves a character that can be nothing but a veneer upon the surface.
+ - It’s to paint directly on the canvas without any funny business, as it were, and I use almost pure turpentine to start with, adding oil as I go along until the medium becomes pure oil. I use as little oil as I can possibly help, and that’s my method.
+ - There will be, I think, an attempt to grasp again the surprise and accidents of nature and a more intimate and sympathetic study of its moods, together with a renewed wonder and humility on the part of such as are still capable of these basic reactions.
+ - The question of the value of nationality in art is perhaps unsolvable.
+ - The trend in some of the contemporary movements in art, but by no means all, seems to deny this ideal and to me appears to lead to a purely decorative conception of painting.
+ - The only real influence I’ve ever had was myself.
+ - If the technical innovations of the Impressionists led merely to a more accurate representation of nature, it was perhaps of not much value in enlarging their powers of expression.
+ - I have tried to present my sensations in what is the most congenial and impressive form possible to me.
+ - I find in working always the disturbing intrusion of elements not a part of my most interested vision, and the inevitable obliteration and replacement of this vision by the work itself as it proceeds.
+ - I believe that the great painters with their intellect as master have attempted to force this unwilling medium of paint and canvas into a record of their emotions.
+ - In its most limited sense, modern, art would seem to concern itself only with the technical innovations of the period.
+ - Painting will have to deal more fully and less obliquely with life and nature’s phenomena before it can again become great.
+ - If the picture needs varnishing later, I allow a restorer to do that, if there’s any restoring necessary.
+ - If I had the energy, I would have done it all over the county.
+
+36 quotes

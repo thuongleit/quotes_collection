@@ -1,0 +1,27 @@
+ - We live on an island surrounded by a sea of ignorance. As our island of knowledge grows, so does the shore of our ignorance.
+ - Spacetime tells matter how to move; matter tells spacetime how to curve.
+ - Time is what prevents everything from happening at once.
+ - The universe gives birth to consciousness, and consciousness gives meaning to the universe.
+ - The job of a theoretical physicist is to make mistakes as fast as possible .
+ - The observer cannot be left out of the description of the observation.
+ - I like to think that someone will trace how the deepest thinking of India made its way to Greece and from there to the philosophy of our times.
+ - No phenomenon is a real phenomenon until it is an observed phenomenon.
+ - If you haven’t found something strange during the day, it hasn’t been much of a day.
+ - In any field, find the strangest thing and then explore it.
+ - No space, no time, no gravity, no electromagnetism, no particles. Nothing. We are back where Plato, Aristotle and Parmenides struggled with the great questions: How Come the Universe, How Come Us, How Come Anything? But happily also we have around the answer to these questions. That’s us.
+ - Surely where there’s smoke there’s fire? No, where there’s so much smoke there’s smoke.
+ - In order to more fully understand this reality, we must take into account other dimensions of a broader reality.
+ - Behind it all is surely an idea so simple, so beautiful, that when we grasp it – in a decade, a century, or a millennium – we will all say to each other, how could it have been otherwise? How could we have been so stupid?
+ - It is my opinion that everything must be based on a simple idea. And it is my opinion that this idea, once we have finally discovered it, will be so compelling, so beautiful, that we will say to one another, yes, how could it have been any different.
+ - One can only learn by teaching.
+ - We all know that the real reason universities have students is in order to educate the professors.
+ - To hate is to study, to study is to understand, to understand is to appreciate, to appreciate is to love. So maybe I’ll end up loving your theory.
+ - We will first understand how simple the universe is when we recognize how strange it is.
+ - There are many modes of thinking about the world around us and our place in it. I like to consider all the angles from which we might gain perspective on our amazing universe and the nature of existence.
+ - Of all heroes, Spinoza was Einstein ’s greatest. No one expressed more strongly then he a belief in the harmony, the beauty, and most of all the ultimate comprehensibility of nature .
+ - I like to say, when asked why I pursue science, that it is to satisfy my curiosity, that I am by nature a searcher trying to understand. If you haven’t found something strange during the day, it hasn’t been much of a day.
+ - Now is the time for everyone who believes in the rule of reason to speak up against pathological science and its purveyors.
+ - It was the defining event and remains a thousand degrees hot.
+ - We are not only observers. We are participators. In some strange sense this is aparticipatory universe.
+
+25 quotes

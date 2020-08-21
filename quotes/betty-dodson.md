@@ -1,0 +1,25 @@
+ - I consider myself a lesbian, but I’m a bisexual lesbian.
+ - The real power is not corporate; it is private. They choose not to have a name. It is a dynasty of banking families – Rothschild and Rockefeller being two – that operate chiefly out of London, in the boardrooms out of the city of London and the Bank of England, which they own.
+ - We are constantly protecting the male ego, and it’s a disservice to men. If a man has any sensitivity or intelligence, he wants to get the straight scoop from his girlfriend.
+ - Art is all about becoming a name, a brand; it isn’t based on talent or creativity.
+ - Sacrifice, sacrifice, sacrifice! That’s the condition of the female. Women have been conditioned to sacrifice for centuries.
+ - Women don’t run around saying, “Oh, I took a Bodysex workshop, and I had so much fun, and Betty Dodson taught us how to blah blah.” They come, they go, and I rarely hear from them again.
+ - The galleries are simply corporations in the art world – “Here’s a million dollars for this latest piece of crap” – but I’m not about to go along with the gallery system.
+ - A monogamous marriage and family is what some women want – but not all of us. We are mostly doing serial monogamy anyway.
+ - It was easy to leave the art world after I found out that it was just another corporation. When they told me I had to create the same thing, I rebelled.
+ - Men are hung up on breasts. They’re looking at the titty dinner. It’s pathetic.
+ - I’m fully aware had I stayed with my art, I would be well known, respected and most likely rich.
+ - The powers that be understand that sexual freedom or liberation with any kind of joy means they are losing control.
+ - If you tell a child “Don’t touch yourself there,” they will deal with some kind of sexual problem from then on, to one degree or other.
+ - The first thing the male establishment wants to control is uterus and birth. You might call it womb envy. But even worse is the fact we are still using the male model of sexual response for women.
+ - It’s just blind luck when a woman is born into a wealthy family and attends the best colleges and joins top sororities.
+ - We are at war with men, and most women don’t even know it.
+ - I consider the 70s to be the youth of old age. So all you women out there who are afraid of getting older, just keep your orgasms in place, eat a lot of vegetables, take exercise, and you’ll be fine.
+ - The person whose face is between your legs is gonna get lockjaw.
+ - I had very little support from any feminist organization. But fortunately my post-marital lover, who had bailed out of academia over political in-fighting, was a one-man support team. He was the one who pushed me to write.
+ - Although my Dad was a talented calligrapher and both of my younger brothers were successful, I was the first one in my family to graduate from high school.
+ - When I do documentaries, my best information ends up on the cutting-room floor. People have trouble dealing with sexual honesty.
+ - I think I should get the Nobel Peace Prize before I die for ending the war between the sexes.
+ - The media only wants to get the view of the flaming radicals because they make better copy than those of us who are more sensible. I’m a feminist and I think I’ve done a lot of good.
+
+23 quotes

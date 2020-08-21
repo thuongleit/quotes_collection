@@ -1,0 +1,70 @@
+ - Whatever it takes to win.
+ - Excellence is the gradual result of always striving to do better.
+ - Complacency is the last hurdle standing between any team and its potential greatness.
+ - Excellence happens when you try each day to both do and be, a little better than you were yesterday!
+ - If you have a positive attitude and constantly strive to give your best effort, eventually you will overcome your immediate problems and find you are ready for greater challenges.
+ - There’s always the motivation of wanting to win. Everybody has that. But a champion needs, in his attitude, a motivation above and beyond winning.
+ - The key to success is to learn to do something right and then do it right every time.
+ - Great teamwork is the only way we create the breakthroughs that define our careers.
+ - Anytime you stop striving to get better, you’re bound to get worse.
+ - When you leave it to chance, then all of a sudden you don’t have any more luck.
+ - In every contest, there comes a moment that separates winning from losing. The true warrior understands and seizes that moment.
+ - Great effort springs naturally from great attitude.
+ - There are only two options regarding commitment; you’re either in or you’re out.
+ - There can only be one state of mind as you approach any profound test; total concentration, a spirit of togetherness, and strength.
+ - Great players crave instruction on their weaknesses.
+ - To have long term success as a coach or in any position of leadership, you have to be obsessed in some way.
+ - Teamwork requires that everyone’s efforts flow in a single direction. Feelings of significance happen when a team’s energy takes on a life of its own.
+ - Commitment to the team – there is no such thing as in-between, you are either in our out.
+ - If you get tough mentally, you can get tough physically and overcome fatigue.
+ - The true warrior understands and seizes that moment by giving an effort so intense and so intuitive that it could only be called one from the heart.
+ - When you’re playing against a stacked deck, compete even harder.
+ - The key to teamwork is to learn a role, accept a role, and strive to become excellent playing it.
+ - From nobody to upstart. From upstart to contender. From contender to winner. From winner to champion. From champion to Dynasty.
+ - Never be ready to play yesterday. Being ready to play today is what’s important.
+ - The Ten Commandments were not a suggestion.
+ - Basketball is a business. Pure and simple. If you want to have fun, go to the YMCA.
+ - In every adversity, there is a seed of equivalent benefit.
+ - No rebounds – no rings.
+ - You have no choices about how you lose, but you do have a choice about how you come back and prepare to win again.
+ - A champion needs a motivation above and beyond winning.
+ - Great players and great teams want to be driven. They want to be pushed to the edge. They don’t want to be cheated. Ordinary players and average teams want it to be easy.
+ - The most DIFFICULT thing for individuals to do when they become part of a team is to sacrifice, it is much EASIER to be selfish.
+ - There’s no such thing as coulda, shoulda, or woulda. If you shoulda and coulda, you woulda done it.
+ - Look for your choices, pick the best one, then go with it.
+ - Don’t let other people tell you what you want.
+ - All of us have at least one great voice deep inside.
+ - Shoulda, coulda, and woulda won’t get it done. In attacking adversity, only a positive attitude, alertness, and regrouping to basics can launch a comeback.
+ - Each Warrior wants to leave the mark of his will, his signature, on important acts he touches. This is not the voice of ego but of the human spirit, rising up and declaring that it has something to contribute to the solution of the hardest problems, no matter how vexing!
+ - Coaches who let a championship team back off from becoming a dynasty are cowards.
+ - Management must speak with one voice. When it doesn’t management itself becomes a peripheral opponent to the team’s mission.
+ - Being a part of success is more important than being personally indispensable.
+ - You have to defeat a great players aura more than his game.
+ - Your either in or out. There’s no in between.
+ - When a gifted team dedicates itself to unselfish trust and combines instinct with boldness and effort, its ready to climb.
+ - When a great team loses through complacency, it will constantly search for new and more intricate explanations to explain away defeat.
+ - When you face a fork in the road, step on the exhilarator!
+ - Giving yourself permission to lose guarantees a loss.
+ - Am I a control freak? No. Do I believe in organization? You bet. In discipline? In being on time and making sure everything at the hotel is ready and right? Definitely. I don’t control players. I try to control the environment around the players so they can flourish.
+ - When you’re playing against a stacked deck, compete even harder. Show the world how much you’ll fight for the winners circle. If you do, someday the cellophane will crackle off a fresh pack, one that belongs to you, and the cards will be stacked in your favor.
+ - We sometimes need adversity to fathom our true depths.
+ - Show the world how much you’ll fight for the winners circle.
+ - Basketball is a game of conditioning and fatigue. That’s why I believe in practicing a team to train when it’s exhausted.
+ - People who create 20% of the results will begin believing they deserve 80% of the rewards.
+ - Any team can be a miracle team. The catch is that you have got to go out and work for your miracles. Effort is what ultimately separates great teams from ordinary teams.
+ - Discipline is not a nasty word.
+ - He’s the greatest clutch player I’ve ever seen. The hell with Jerry West!
+ - Public life is regarded as the crown of a career, and to young men it is the worthiest ambition. Politics is still the greatest and the most honorable adventure.
+ - When a milestone is conquered, the subtle erosion called entitlement begins its consuming grind. The team regards its greatness as a trait and a right. Half hearted effort becomes habit and saps a champion.
+ - A particular shot or way of moving the ball can be a player’s personal signature, but efficiency of performance is what wins the game for the team.
+ - The changes in your life aren’t always what you hoped for. But they usually help you grow.
+ - There is no such thing as life in-between.
+ - It’s what you get from games you lose that is extremely important.
+ - I’d like my reputation to stay as it is and to be remembered for a wonderful decade.
+ - Being ready isn’t enough; you have to be prepared for a promotion or any other significant change.
+ - In all the research you do as a coach, studying other coaches and championship-type situations, you find that all those teams combined talent with great defense. You’ve got to stop other teams to win.
+ - You can never have enough talent.
+ - All I did from day-to-day is coach. That’s what my job was, that’s what my passion was, and the fact that now it’s something I’m being considered for is just mind-blowing to me, that I would ever be in that kind of company.
+ - You can only receive what you’re willing to give.
+
+68 quotes

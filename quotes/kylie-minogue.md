@@ -1,0 +1,49 @@
+ - I’m just a natural flirt, but I don’t see it in a sexual way. A lot of the time I’m like an overexcited puppy.
+ - Normally my problem is that I’m too inquisitive and want to do everything.
+ - I think I’m being friendly with someone and I’ll sit in their lap. They think I’m flirting with them.
+ - Part of me is a sexual exhibitionist.
+ - I love to have a bath with beautiful, relaxing music on and have no rush to do anything. It’s a wonderful indulgence, and it helps me to calm down and stop my mind running overtime.
+ - You need a lot of luck to find people with whom you want to spend the rest of your life. Some people manage to find their soul mate. Others don’t. I think love is like a lottery.
+ - I do quite naughty things now. I do like to be a bit sexy.
+ - I’ve had a lot of tragic hairdos and outfits.
+ - I wrote lyrics that were intensely personal to me a few years ago. Maybe people know me better now.
+ - I’m like an eight year old with the dressing-up box. I have the luxury of being able to change on a whim.
+ - The Sun in London ran a front page declaring my bum a national treasure. I really did laugh at that. Its not like it can actually do anything, except wiggle.
+ - I could see myself as a glitter-hippie.
+ - I maintain that the best song is the one that ends up on the album. So whether I’ve written it or I haven’t, I’m very comfortable with both.
+ - I never say never about a lot of things. Whatever you want, then more power to you. If someone feels they have to live up to a certain image, then I can kind of understand that pressure because I’m considered to be one of those images, and I know how unreal they are.
+ - One important thing to know is you’re still the same person during it. I’m more eager than ever to do what I did. I want to do everything.
+ - Gay icons usually have some tragedy in their lives, but I’ve only had tragic haircuts and outfits.
+ - I have had a holiday, and I’d like to take it up professionally.
+ - I just can’t help but see things differently.
+ - I walk into the studio and we’re all so happy to see each other.
+ - I’m a very proud Australian, always bragging about our country wherever I am in the world.
+ - I’ve been accustomed to being famous and having a certain level of attention for 14 years, but in the last few months, it’s changed. It’s like on the arcade game, I’ve gone up to the next level.
+ - I am in love with my La Cornue custom-made stove – it’s a dream to use and my favourite part of the kitchen.
+ - You know, songs often have a very coloured past. They might have something about them but it still doesn’t work, so someone else adds a bit, and someone else adds a bit so perhaps one day I’ll know its full history.
+ - I used to be able to do the Chinese splits, where you open your legs sideways.
+ - The moment my doctor told me, I went silent. My mum and dad were with me, then we all went to pieces. I was saying, No, I’ve got my flight to Sydney in two hours. I’m getting on a plane.
+ - I do dance music, and I can be pretty camp myself from time to time.
+ - Everyone knows how much Australia means to me. I try to get back here as much as I can, but normally it’s for work, so I’m in and out and jetlagged and stressed.
+ - I have never been unfaithful to a partner and would find it immoral to be involved with a married man.
+ - When you work in TV, it’s such a group effort, it’s not about you.
+ - What I normally do with recording, performing, and touring is my name. It’s all on my shoulders. If it’s a great show, I’m great. If it’s not a great show, I’m not great.
+ - Having had cancer, one important thing to know is you’re still the same person at the end. You’re stripped down to near zero. But most people come out the other end feeling more like themselves than ever before.
+ - I can understand why people would want to stay on the road because you create your own bubble. You almost don’t live in the real world. Just to have the things that are with you is fine.
+ - With one man, there was a freedom and liberation. That was with Michael Hutchence, my partner in life.
+ - This is such a special summer holiday for me. I haven’t known myself so relaxed in years.
+ - The reason that gets me is, and the greatest part of my job and what I do, is the humanity of it and there’s certain moments where that really cuts through.
+ - I’ve always been a little shy about taking my clothes off, but I don’t worry about it any more.
+ - I know there will be X amount of women being diagnosed. I love to say, You can get through it. You can.
+ - I get the lyrics of a tune and interpret them my way.
+ - If you’re part of a record company, you’re a manufactured product. It doesn’t mean that you’re not talented.
+ - A few years ago my goal was to try and get the goddamned album made, which put me in a real bad frame of mind.
+ - If I stopped making records or performing, I’d probably still be famous for a while being me. But I’d rather have something to show for myself.
+ - I’m not sure that I’ll be able to do everything that I did before.
+ - I feel more inspired than ever, and think that I will finally achieve what I have long been wishing for: a balance of work and privacy – a harmony.
+ - I did very much enjoy being part of an independent film. It was just the energy.
+ - You get such a kick and then it’s all over. That’s good ground for uncertainty and depression. I usually burst into tears.
+ - I’ve fancied other women, but I haven’t done anything about it.
+ - I just want to do everything. I don’t want to sound soppy or too cliched, but that’s the way it is.
+
+47 quotes

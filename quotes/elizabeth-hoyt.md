@@ -1,0 +1,23 @@
+ - It was a strange thing, this feeling of empathy. He’d never experienced it before. He realized that what hurt this woman hurt him as well, that what made her bleed caused a hemorrhage of pain within his soul.
+ - All her life she’d been warned that men were slaves to their desires, that they held their impulses in barely controlled check. A woman – a lady – must be very, very careful of her actions so she did not put spark to the gunpowder that was a man’s libido.
+ - Just because I don’t deserve her doesn’t mean I won’t fight to keep her.
+ - Your cousin might be a pretty face, but you, my darling, courageous, maddening, seductive, mysterious, wonderful Diana, you are the Duchess of Wakefield. My duchess.
+ - There are no heroes on the battlefield, my lady; there are only survivors.
+ - You say my name like a lover, so soft, so sweet. I want to lick the word from your lips, sip the exhaled breath from your mouth. I want to possess you utterly. Right now. Right here.
+ - He treasured her, treasured her tears, treasured her love for others. Her heart might even be big enough to fill that empty space in his own chest. Perhaps she could be his heart as well.
+ - Every word you have ever uttered, is engraved upon my heart. -Lazarus to his mother.
+ - I think I do pretty well with child characters. It’s hard to write kids that are realistic, not annoying, and bring something to the story.
+ - But like the legless man, I’m unaccountably fascinated by those who can dance.
+ - But I intend to make you respectable.
+ - Weep for me. Bear my pain. Take my come. For I can give you nothing else.
+ - I decided long ago that my family absolutely comes first, and I don’t regret that. I do, however, sometimes wish I had an extra five hours or so in the day!
+ - I write both at home and at coffee shops, and I have a terrible work ethic – I have a tendency to write most of my books right before the deadline. I’m trying to work on that, but so far, I’m not getting any more organized.
+ - A garden always has a point.
+ - Dear God. She ached, wanting something that she knew was a sin. Wanting a man who was sin itself.
+ - Each time it was like a stray bit of glass pressed into the softness of her heart, grinding, grinding, oh so silently until she no longer noticed when she bled.
+ - Much of life is a game. If played skillfully, with an intelligent and fascinating opponent, it can become almost a dance. One challenges and moves, the other teases and skips away, only to dart forward later and strike a telling blow.
+ - If I’m good enough to bed, surely I’m good enough to wed.
+ - As for inspiration, I find stark fear of missing the deadline very inspiring.
+ - You have to be very clear with yourself about how you’re going to spend your time. When a child is at school or napping, you need to realize that this is your writing time and you don’t spend it surfing the Internet or reading.
+
+21 quotes

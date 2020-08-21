@@ -1,0 +1,39 @@
+ - When I hosted the dinner I served fast food hamburgers. It had nothing to do with black, white, purple, yellow, green race. it had nothing to do with Tiger or his family or his golf game.
+ - When things are going good they just keep going good.
+ - Life is not a bowl full of cherries, there’s good and bad stuff.
+ - A million thoughts went through my mind. What little mind I have.
+ - I’m glad I don’t have to make a living farming. Too much hard work. Too many variables you don’t have control over, like, is it going to rain? All I can say is, god bless the real farmers out there.
+ - I hate golf to be tricked up. To me it’s a fun game.
+ - Golf isn’t first on my list anymore. There are a lot of things ahead of golf and I have to go ahead and do those things so I can play golf. I’m tired of hurting. Tired of fighting pain.
+ - I hope everybody’s had fun, because I’ve enjoyed my ride. I can tell you that. Now it’s time to step aside and let some other young kid come in and win. Hopefully, they will, too.
+ - Arnie, you’re going to have to buy a bigger jet.
+ - I’ve never been to heaven and, thinking back on my life, I probably won’t get a chance to go. I guess the Masters is as close as I’m going to get.
+ - Everybody saying you can’t do this, you can’t do that. I don’t know why. Guess if you listen to it, you can convince yourself of it.
+ - If the pressure is getting to you, whistle. In a barely audible way. It’s the best way I know of to let go of tension. Music gets your mind off the situation, and the act of whistling melts the tension out of your body.
+ - It’s fun when the ball is going in the hole and things are going right, but it’s a miserable game when things aren’t going well.
+ - Because you pray after you play.
+ - Every shot makes someone happy.
+ - I accept the fact that I’m going to miss it sometimes. I just hope I miss it where I can find it.
+ - I realize I’m not a machine. I’m going to make mistakes.
+ - They talk about Amen Corner but there’s so much more to it than what meets the eye on this golf course.
+ - There is something magical about that green coat. I mean that sincerely. It’s a very special week, and being able to wear that green jacket. It’s made my whole career. It’s special.
+ - I’m not a great player, but I’m a damn good one.
+ - It’s nice to walk into a club and see your picture. Then you know you’ve done something good.
+ - Newspapers do a good job telling me what happened yesterday, but they’d be a lot more impressive if they could tell me what’s going to happen tomorrow.
+ - You’ve got to have the guts to not be afraid to screw up. The guys who win are the ones who are not afraid to mess up. And that comes right from the heart.
+ - You would think that Freddy Couples-Nick Price would be the team to beat, but I’ll tell you in skins, it’s a matter of just hitting it at the right time.
+ - There are days when I can hear men tying their shoe laces in the gallery.
+ - I think I can be competitive. Heck, anybody who can walk to the first tee here has a chance.
+ - There’s a lot of great people out here, I just appreciate it and hope everybody has had fun because I’ve enjoyed my ride.
+ - At the British Open, I had my opportunities, but the ball just didn’t want to go in the hole on the back nine.
+ - I might not come home with hardware, but I’m winning.
+ - You’ve got to gamble every once in a while in a round of golf. I’m not afraid to screw up.
+ - I’ve been on the tour for 23 years and anybody who knows me knows that I am a jokester.
+ - I wasn’t sure I’d ever win again. Every time I got close, somebody seemed to play a little better.
+ - What the hell, I paid my dues.
+ - Every golfer has a little monster in him. It’s just that type of sport.
+ - If I hadn’t become a golfer, I doubt I’d be wealthy, because I don’t have the sort of ego that drives a person all day long. I might have wound up driving a tractor.
+ - A lot of amateurs are terrified of going up against a player who is clearly better than they are. They never play their best, because they aren’t comfortable. There’s one surefire way to get over that, and it’s to ask yourself, ‘What if I beat him?’ Imagine the possibility.
+ - The greatest thing about golf, there’s no end to it unless you’re dead. You just go from here to the Senior Tour.
+
+37 quotes

@@ -1,0 +1,32 @@
+ - This is ten percent luck, Twenty percent skill, Fifteen percent power of will, Five percent pleasure, Fifty percent pain, and a hundred percent reason to remember the name.
+ - Go find something that you haven’t done before. Don’t do the same thing over and over again.
+ - I’m going to sprout wings out of my ass one day and fly around the world.
+ - Who can’t relate to the idea of leaving one chapter behind and moving on to the next?
+ - I have a toothbrush, my toothbrush is sexy.
+ - As a creative person you just get an idea in your head, and sometimes you just can’t shake it off.
+ - I am Opposite of weak Opposite of slack Synonym of heat Synonym of crack Closest to the peak Far from a punk Y’all ought to stop talking And start trying to catch up.
+ - Id rather get up early and go out and do something than stay up late and screw up my body.
+ - I loved Transformers when I was a kid.
+ - I was a producer and rapper before Linkin Park. Once the band took off, it was the center of my focus. A couple of years ago, I started missing doing straight-up hip hop, and that’s when Fort Minor began.
+ - My parents still treat Christmas like I’m thirteen years old.
+ - When I was in high school, if my favorite band got too popular, I’d watch carefully.
+ - When we started the band, it was because we were waiting for a sound that never happened. We got tired of waiting, and we decided to just do it ourselves.
+ - I usually like to make really dramatic songs that are dynamic from part to part – a lot of jumping from really quiet to really loud.
+ - If I weren’t making music, I’d be the kid who writes into the magazines and says, “why don’t you guys ever cover anything that’s different? Hip hop is so much of the same thing over and over again.” I love hip hop, so I wanted to make an album from that standpoint, ’cause that’s who I am.
+ - A decade is a long time to be doing anything, much less to be with the same guys, chasing after the same goals.
+ - Right now, when it comes to making an album, we really want to give our fans just Linkin Park. We don’t want to water it down with anything else or confuse it with anything else. Meteora is just us and that’s where our focus has been. So hopefully the fans can enjoy that.
+ - I like sneakers. I guess I could call myself a collector.
+ - My dad remembers being in school with my uncle, and the teacher would say outright to the class that the Japanese were second-class citizens and shouldn’t be trusted.
+ - I really enjoy it – it’s like a videogame on wheels. The GPS touch screen is one of the most entertaining things I’ve ever seen in a car. I still have a Range Rover that I don’t drive much anymore, because I started feeling bad about it.
+ - I know at one point I had bright red hair and I had bracelets from my wrist up to my elbow and I was wearing size 50 pants. I wouldn’t wear that today, but I’m not embarrassed about wearing it back then any more.
+ - I grew up painting and playing piano so when I was a little kid I thought I was going to be an artist or a painter but my mom had me taking piano lessons for about 10-12 years as a young kid.
+ - For me, I feel like, if the right movie comes along, I’d do it again. It’s not about the budget. It’s about whether it’s something that I’m excited to work on.
+ - The casual listener won’t be around forever.
+ - I liked the piano. I always liked playing. I just hated homework.
+ - I’m excited to doing more scoring work in the future.
+ - I’ve been really excited about some new cutting edge electronic music and technology.
+ - I spent ten years playing classical piano, and that was what led to keyboards and eventually to production and to Linkin Park.
+ - I feel really lucky to be in a band where the guys, for all the opportunities to do things that potentially would be good for them but detrimental to the group, that everybody stayed loyal to the whole.
+ - I find that the things that really, you know, get us fired up, tend to be things that, for example, things that you talk about tonight, what we see in the news.
+
+30 quotes

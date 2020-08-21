@@ -1,0 +1,29 @@
+ - I feel really lucky that I love my job. I really do.
+ - I think recharging is important, absolutely. Every now and then, you need maybe a couple of weeks to just chill out and let your emotions balance themselves out a little bit.
+ - Unfortunately, I like to feel a little stubble when I kiss. Women are too soft.
+ - Who doesnt love a funny girl who can look sexy at the same time?
+ - We all in real life put on these masks – we don’t swear when we’re around certain people When we come home, when you’re on your own I’m sure you’re really different than when you’re with your boss.
+ - I love a good Slash guitar riff. It’s sexy!
+ - The nature of the business is that, once you start proving yourself and the more roles you get, the more exciting the roles that you’re able to go out and do auditions for, or that you’re being offered, get. You have more choices.
+ - Nutella. I dig my spoon in and eat it straight out of the jar. I can easily go through one a week.
+ - I came out here to do the acting, and then after a year of auditions and not getting anything, I met these Italian guys and they asked me to write lyrics for them. Then they said, “Why don’t you just front the band?” I said, “Well, maybe because I can’t sing. I’ve never sang before in my life.”
+ - The excitement about independent filmmaking is that they’re a little more open to taking chances. The studios are a little more careful, as far as who they choose for their film and what they’re known for and staying in the genre because they know what works.
+ - Those are my favorite kind of parts to do, just being a goofball and seeing how far you can go with something until you’re just way out of line.
+ - How can you not love a man banging on the drums? He knows how to keep a rhythm.
+ - I do love doing films; I love going out and creating different characters for each film, and not having to be stuck with one role for many, many years. It’s a creative liberty that I love.
+ - People are all vulnerable in so many different ways. We go into survival mode a lot of times.
+ - That’s when you’re laughing the hardest because you’re not really in character. You’re just trying to learn the moves, but once they call action, you’re in it and it’s like you transport yourself to a different place.
+ - I think we can leave mullets back in the ’80’s. Don’t you? I’m really not a big fan of them. I did like the permed hair that I had in it. That was great, and I think that we should always have ’80’s music, forever and ever and ever. I’m a big fan.
+ - As a girl I wanted the Cyndi Lauper hairstyle, with the shaved side of the head, or the Sharon Stone perm from ‘Total Recall.’
+ - I wouldn’t have made it past the first round of American Idol auditions. It was months before our first song was recorded. The guys were like, ‘Just seeng!’ And I was like, ‘I don’t know how to seeng! Can’t I just play the triangle?’
+ - My only requirement for life is that I don’t get stuck in a rut.
+ - It’s so funny because you think you’re attracted to this bad boy. They do whatever they want, but you don’t really want that. You don’t want someone who’s out on a tour bus, sleeping around with different people and getting wasted.
+ - I don’t have a problem with being a woman. Women’s bodies are so beautiful.
+ - Turns out, I couldn’t catch them – or even get close to them. I realized that sharks are amazing, beautiful animals who have absolutely no interest in checking me out.
+ - I always did TV commercials and made great money to put myself through school. That became guest starring roles on TV shows.
+ - A perfect schedule is to be able to do something dark and then go into something lighter to ease up a little bit.
+ - Women have a way of contorting things sometimes. We all have our moods, ups and downs.
+ - I have been a goof my whole life. I wasn’t really the popular girl in school and didn’t have any boyfriends in high school because I was a nerd. I was a geek.
+ - I love women like Cate Blanchett and Tilda Swinton, who kind of go out on a limb and do their own thing. I find it very inspiring and it allows you to do what you want to do.
+
+27 quotes

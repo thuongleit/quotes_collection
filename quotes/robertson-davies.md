@@ -1,0 +1,182 @@
+ - Extraordinary people survive under the most terrible circumstances and they become more extraordinary because of it.
+ - The eye sees only what the mind is prepared to comprehend.
+ - The great charm of cats is their rampant egotism, their devil-may-care attitude toward responsibility, their disinclination to earn an honest dollar...
+ - Everything matters. The Universe is approximately fifteen billion years old, and I swear that in all that time, nothing has ever happened that has not mattered, has not contributed in some way to the totality.
+ - A Library goes on as far as thought can reach.
+ - I don’t suppose God laughs at the people who think He doesn’t exist. He’s above jokes. But the devil isn’t. That’s one of his most endearing qualities.
+ - Oh hearts! Nobody gets through life without a broken heart. The important thing is to break the heart so that when it mends it will be stronger than before.
+ - It seemed to me as if the stones sang, in the strangest voices, in the language of Ultima Thule.
+ - A truly great book should be read in youth, again in maturity and once more in old age, as a fine building should be seen by morning light, at noon and by moonlight.
+ - After all, we are human beings, and not creatures of infinite possibilities.
+ - Some countries you love. Some countries you hate. Canada is a country you worry about.
+ - There is absolutely no point in sitting down to write a book unless you feel that you must write that book, or else go mad, or die.
+ - This is the Great Theatre of Life. Admission is free, but the taxation is mortal. You come when you can, and leave when you must. The show is continuous. Goodnight.
+ - Too much traffic with a quotation book begets a conviction of ignorance in a sensitive reader. Not only is there a mass of quotable stuff he never quotes, but an even vaster realm of which he has never heard.
+ - A big man is always accused of gluttony, whereas a wizened or osseous man can eat like a refugee at every meal, and no one ever notices his greed.
+ - Every man is wise when attacked by a mad dog; fewer when pursued by a mad woman; only the wisest survive when attacked by a mad notion.
+ - The most original thing a writer can do is write like himself. It is also his most difficult task.
+ - Few people can see genius in someone who has offended them...
+ - I think we’re living in an age which despises humanity and despises bravery and doesn’t need bravery because modern warfare has rather gone beyond bravery. It is a kind of warfare where people are fighting enemies they never see, killing people of whom they know nothing.
+ - One can always tell it’s summer when one sees school teachers hanging about the streets idly, looking like cannibals during a shortage of missionaries.
+ - All art is holy. Not that it is all long-faced and miserable; it can be wild and wooly. But if it transforms you, it is art. And it is holy.
+ - The love that dare not speak its name has become the love that won’t shut up.
+ - Marriage is a framework to preserve friendship. It is valuable because it gives much more room to develop than just living together. It provides a base from which a person can work at understanding himself and another person.
+ - If you don’t hurry up and let life know what you want, life will damned soon show you what you’ll get.
+ - No people in the world can make you feel so small as the English.
+ - Love affairs are for emotional sprinters; the pleasures of love are for the emotional marathoners.
+ - Conversation in its true meaning isn’t all wagging the tongue; sometimes it is a deeply shared silence.
+ - There is no nonsense so gross that society will not, at some time, make a doctrine of it and defend it with every weapon of communal stupidity.
+ - Art is wine and experience is the brandy we distill from it.
+ - The people who fear humor – and they are many – are suspicious of its power to present things in unexpected lights, to question received opinions and to suggest unforeseen possibilities.
+ - When irony first makes itself known in a young man’s life, it can be like his first experience of getting drunk; he has met with a powerful thing which he does not know how to handle.
+ - I was afraid and did not know what I feared, which is the worst kind of fear.
+ - On the whole, we treat the Devil shamefully, and the worse we treat Him the more He laughs at us.
+ - If you are not happy you had better stop worrying about it and see what treasures you can pluck from your own brand of unhappiness.
+ - Every man makes his own summer. The season has no character of its own, unless one is a farmer with a professional concern for the weather.
+ - One learns one’s mystery at the price of one’s innocence.
+ - The world is full of people whose notion of a satisfactory future is, in fact, a return to the idealized past.
+ - Money, it is often said, does not bring happiness; it must be added, however, that it makes it possible to support unhappiness with exemplary fortitude.
+ - It is lost, lovely child, somewhere in the ragbag that I laughingly refer to as my memory.
+ - It was as though she was an exile from a world that saw things her way.
+ - Many a promising career has been wrecked by marrying the wrong sort of woman.
+ - The drama may be called that part of theatrical art which lends itself most readily to intellectual discussion: what is left is theater.
+ - There is more to marriage than four bare legs under a blanket.
+ - The dog is a yes-animal. Very popular with people who can’t afford a yes man.
+ - The division between art and deviousness and crime is sometimes as thin as a cigarette paper.
+ - Clarity is not a characteristic of the human spirit.
+ - Boredom and stupidity and patriotism, especially when combined, are three of the greatest evils of the world we live in.
+ - May I make a suggestion, hoping it is not an impertinence? Write it down: write down what you feel. It is sometimes a wonderful help in misery.
+ - A happy childhood has spoiled many a promising life.
+ - No one needs a word processor if he has an efficient secretary.
+ - When one is traveling, one must expect to spend a certain amount of money foolishly.
+ - Let people alone. Let them find their way. Let them find their level and you may sometimes be delighted and astonished at the extraordinary high level to which they’ll rise if they’re let alone.
+ - The best among our writers are doing their accustomed work of mirroring what is deep in the spirit of our time; if chaos appears in those mirrors, we must have faith that in the future, as always in the past, that chaos will slowly reveal itself as a new aspect of order.
+ - Canada was settled, in the main, by people with a lower middle-class outlook, and a respect, rather than an affectionate familiarity, for the things of the mind.
+ - Pornography is rather like trying to find out about a Beethoven symphony by having somebody tell you about it and perhaps hum a few bars.
+ - There can be no doubt that Samuel Marchbanks is one of the choice and master spirits of this age. If there were such a volume as Who Really Ought To Be Who his entry would require several pages.
+ - We live in a world where bulk is equated with quality.
+ - In my experience tact is usually worse than the brutalities of truth.
+ - If you’re going to do something that looks evil, don’t smear it with icing and pretend it’s good; just bloody well do it and keep your eyes peeled.
+ - The egotist is all surface; underneath is a pulpy mess and a lot of self-doubt. But the egoist may be yielding and even deferential in things he doesn’t consider important; in anything that touches his core he is remorseless.
+ - Civilization rests on two things: the discovery that fermentation produces alcohol, and the voluntary ability to inhibit defecation. And I put it to you, where would this splendid civilization be without both?
+ - The pleasures of love are for those who are hopelessly addicted to another living creature.
+ - All real fantasy is serious. Only faked fantasy is not serious. That is why it is so wrong to impose faked fantasy on children...
+ - Several children present me with scraps of paper for autographs: obviously don’t know who I am and don’t care. I sign “Jackie Collins” and they go away quite content.
+ - Authors like cats because they are such quiet, lovable, wise creatures, and cats like authors for the same reasons.
+ - In a government like ours, the Crown is the abiding and unshakable element in government; politicians may come and go, but the Crown remains and certain aspects of our system pertain to it which are not dependent on any political party. In this sense, the Crown is the consecrated spirit of Canada.
+ - Curiosity is part of the cement that holds society together.
+ - If we seek the pleasures of love, passion should be occasional, and common sense continual.
+ - He was a genius – that is to say, a man who does superlatively and without obvious effort something that most people cannot do by the uttermost exertion of their abilities.
+ - Women tell men things that men are not very likely to find out for themselves.
+ - I still have trouble identifying grammatical structures by name, though I know them as matters of usage.
+ - You’re all mad for words. Words are just farts from a lot of fools who have swallowed too many books. Give me things!
+ - The young are often accused of exaggerating their troubles; they do so, very often, in the hope of making some impression upon the inertia and the immovability of the selfish old.
+ - But as a skeptic I am dubious about science as about everything else, unless the scientist is himself a skeptic, and few of them are. The stench of formaldehyde may be as potent as the whiff of incense in stimulating a naturally idolatrous understanding.
+ - The nature of happiness is such that happiness retreats the more intensely you pursue it.
+ - If a man wants to be of the greatest possible value to his fellow-creature s let him begin the long, solitary task of perfecting himself.
+ - Canada has one of the highest rates of insanity in any civilized country and one reason might be that life in many places is so desperately dull.
+ - I was not sure I wanted to issue orders to life; I rather liked the Greek notion of allowing Chance to take a formative hand in my affairs.
+ - Art is always at peril in universities, where there are so many people, young and old, who love art less than argument, and dote upon a text that provides the nutritious pemmican on which scholars love to chew.
+ - Fiction is not photography, it’s oil painting.
+ - It is a waste of time to dissipate one’s moral zeal in disapproving of royal persons who have mistresses.
+ - Whoever declares a child to be “delicate” thereby crowns and anoints a tyrant.
+ - If you attack Stupidity you attack an entrenched interest with friends in government and every walk of public life.
+ - No, it’s the musicians and I must say they are an accomplished bunch, but odd, as musicians tend to be. Is it the vibration from their instruments, do you suppose, working on the brain? All that fraught buzzing?
+ - People are not saints just because they haven’t got much money or education.
+ - A man must be obedient to the promptings of his innermost heart.
+ - Like it or not, to reach middle age with less money or less prestige than our father had is somewhat to lose face. Stupid of course, when put like that, but who is prepared to argue that we are not stupid in several important ways?
+ - She has been kissed as often as a police-court Bible, and by much the same class of people.
+ - We tend to think human knowledge as progressive; because we know more and more, our parents and grandparents are back numbers. But a contrary theory is possible – that we simply recognize different things at different times and in different ways.
+ - A man who recognizes no God is probably placing an inordinate value on himself.
+ - In the end, it is upon the quality and commitment of individuals that all group movements depend.
+ - My dear fellow, my whole life is moved by the principle that the one thing which is more important than peace is music. It is because I believe that I am poor.
+ - A Librettist is a mere drudge in the world of opera.
+ - I never heard of anyone who was really literate or who ever really loved books who wanted to suppress any of them. Censors only read a book with great difficulty, moving their lips as they puzzle out each syllable, when someone tells them that the book is unfit to read.
+ - And why should it not be terrifying? A little terror, in my view, is good for the soul, when it is terror in the face of a noble object.
+ - To be a book-collector is to combine the worst characteristics of a dope fiend with those of a miser.
+ - The quality of what is said inevitably influences the way in which it is said, however inexperienced the writer.
+ - Comparatively few people know what a million dollars actually is. To the majority it is a gaseous concept, swelling or decreasing as the occasion suggests.
+ - Are you going to be just kind of a walking monument to a job, or are you going to have some kind of really significant inner life of your own? Because the external things the job, the house, the this, the that do not really fill the place inside.
+ - The greatest gift that Oxford gives her sons is, I truly believe, a genial irreverence toward learning, and from that irreverence love may spring.
+ - I just am a Canadian. It is not a thing which you can escape from. It is like having blue eyes.
+ - What we call luck is the inner man externalized. We make things happen to us.
+ - Secrets are the blood of life. Every big thing is a secret, even when you know it, because you never know all of it. If you can know everything about anything, it is not worth knowing.
+ - When a man is down on his luck he seems to consume all he can get of coffee and doughnuts.
+ - You never see what you want to see, forever playing to the gallery.
+ - It is those pent-up, craving children who make all the wars and all the horrors and all the art and all the beauty and discovery in life, because they are trying to achieve what lay beyond their grasp before they were five years old.
+ - As the tragic writer rids us of what is petty and ignoble in our nature, so also the humorist rids us of what is cautious, calculating, and priggish – about half of our social conscience, indeed. Both of them permit us, in blessed moments of revelation, to soar above the common level of our lives.
+ - The critic is the duenna in the passionate affair between playwrights, actors and audiences – a figure dreaded, and occasionally comic, but never welcome, never loved.
+ - A great many complimentary things have been said about the faculty of memory, and if you look in a good quotation book you will find them neatly arranged.
+ - I never heard of anyone who was really literate or who ever really loved books who wanted to suppress any of them.
+ - It is odd how all men develop the notion, as they grow older, that their mothers were wonderful cooks. I have yet to meet a man who will admit that his mother was a kitchen assassin and nearly poisoned him.
+ - Imagination is a good horse to carry you over the ground – not a flying carpet to set you free from probability.
+ - Aristocrats need not be rich, but they must be free, and in the modern world freedom grows rarer the more we prate about it.
+ - Be sure to choose what you believe and why you believe it, because if you don’t choose your beliefs, you may be certain that some belief, and probably not a very credible one, will choose you.
+ - He types his labored column – weary drudge! Senile fudge and solemn: spare, editor, to condemn these dry leaves of his autumn.
+ - This is one of the cruelties of the theatre of life; we all think of ourselves as stars and rarely recognize it when we are indeed mere supporting characters or even supernumeraries.
+ - Celtic civilization was tribal, but by no means savage or uncultivated. People who regarded the theft of a harp from a bard as a crime second only to an attack on the tribal chieftain cannot be regarded as wanting in cultivated feeling.
+ - Although I am almost illiterate mathematically, I grasped very early in life that any one who can count to ten can count upward indefinitely if he is fool enough to do so.
+ - Never harbor grudges; they sour your stomach and do no harm to anyone else.
+ - Female beauty in an important Minor Sacrament which cannot be received too often; I am no sure at all that the neglect of it does not constitute a sin of some kind.
+ - Nothing grows old-fashioned so fast as modernity.
+ - I think we should see whether we are wise trying to educate everybody to a high standard the way we are trying to do now. There has to be a high level of education so everybody is literate, but whether university education is necessary for everyone is open to question.
+ - I have no skills with machines. I fear them, and because I cannot help attributing human qualities to them, I suspect that they hate me and will kill me if they can.
+ - In India it is regarded as a good idea to dart in front of an oncoming car, for the car is sure to kill the evil spirits who are pursuing you, and all the rest of your life you will have good luck.
+ - The average politician goes through a sentence like a man exploring a disused mine shaft-blind, groping, timorous and in imminent danger of cracking his shins on a subordinate clause or a nasty bit of subjunctive.
+ - Of course, fairies are all imported in North America. We have no native fairies. The Little People do not long survive importation unless they go to California and grow large and beautiful, but haven’t much flavour, like the fruit and the film stars.
+ - Fanaticism is overcompensation for doubt.
+ - Women always think that if they tell a man not to be pompous that will shut him up, but I am an old hand at that game. I know that if a man bides his time his moment will come.
+ - Only a fool expects to be happy all the time.
+ - Although there may be nothing new under the sun, what is old is new to us and so rich and astonishing that we never tire of it. If we do tire of it, if we lose our curiosity, we have lost something of infinite value, because to a high degree it is curiosity that gives meaning and savour to life.
+ - The clerisy are those who seek, and find, delight and enlargement of life in books. The clerisy are those for whom reading is a personal art.
+ - Moderation, the Golden Mean, the Aristonmetron, is the secret of wisdom and of happiness. But it does not mean embracing an unadventurous mediocrity; rather it is an elaborate balancing act, a feat of intellectual skill demanding constant vigilance. Its aim is a reconciliation of opposites.
+ - In too many modern churches there is no emphasis on theology at all. There is a kind of justification by works or by keeping up with modern trends anything that will drag in a few more people.
+ - The problem for a Paracelsian physician like me is that I see diseases as disguises in which people present me with their wretchedness.
+ - To ask an author who hopes to be a serious writer if his work is autobiographical is like asking a spider where he buys his thread. The spider gets his thread right out of his own guts, and that is where the author gets his writing.
+ - I saw corpses, and grew used to their unimportant look, for a dead man without any of the panoply of death is a desperately insignificant object.
+ - The result of a single action may spread like the circles that expand when a stone is thrown into a pond, until they touch places and people unguessed at by the person who threw the stone...
+ - Happiness is always a by-product. It is probably a matter of temperament, and for anything I know it may be glandular.
+ - In my collection, to me at least, the theatre of the past lives again and those long-dead playwrights and actors have in me an enthralled audience of one, and I applaud them across the centuries.
+ - Happiness is a by-product. It is not a primary product of life. It is a thing which you suddenly realize you have because you’re so delighted to be doing something which perhaps has nothing whatever to do with happiness.
+ - The Alexander Technique keeps the body alive, at ages when many people have resigned themselves to irreversible decline.
+ - Energy and curiosity are the lifeblood of universities; the desire to find out, to uncover, to dig deeper, to puzzle out obscurities, is the spirit of the university, and it is a channelling of that unresting curiosity that holds mankind together.
+ - I cannot imagine any boy of spirit who would not be delighted to play a drunkard even to vomiting in front of his Sunday school. Indeed, the vomiting might be the chief attraction of the role.
+ - The inert mind is a greater danger than the inert body, for it overlays and stifles the desire to live.
+ - To this day I am indulgent toward orchestras that are trying to lift themselves in the world, while critics are busy assuring them that they are not the Vienna Philharmonic and never will be.
+ - All mothers think their children are oaks, but the world never lacks for cabbages.
+ - Do not suppose, however, that I intend to urge a diet of classics on anybody. I have seen such diets at work. I have known people who have actually read all, or almost all, the guaranteed Hundred Best Books. God save us from reading nothing but the best.
+ - The clerisy are those who read for pleasure, but not for idleness; who read for pastime but not to kill time; who love books, but do not live by books.
+ - Nobody who looks as though he enjoyed life is ever called distinguished, though he is a man in a million.
+ - I do not ‘get’ ideas; ideas get me.
+ - It is in this matter that I fall foul of so many American writers on writing; they seem to think that writing is a confidence game by means of which the author cajoles a restless, dull-witted, shallow audience into hearing his point of view. Such an attitude is base, and can only beget base prose.
+ - You would not serve junk food at a banquet, and your book must be a banquet. Get your language from Swift, not from Shopsy’s.
+ - The ideal companion in bed is a good book.
+ - Computers will have to learn that when I quote from some old author who spelled differently from the machine, the wishes of the long-dead author will have to be respected, and the machine will have to mind its manners.
+ - The book forces itself into my mind when I am lugging furniture, or pulling weeds.
+ - Anybody who has had experience of poetesses knows that they may forgive a punch on the jaw, but never a suggestion that they would be wiser to give up versifying.
+ - The art of the quoter is to know when to stop.
+ - Humour very often consists of shrewd perceptions about people. It’s usually fun at someone’s expense. Nowadays if you’re funny at anybody’s expense they run to the UN and say, “I must have an ombudsman to protect me.” You hardly dare have a shrewd perception about anybody.
+ - I think of an author as somebody who goes into the marketplace and puts down his rug and says, “I will tell you a story,” and then he passes the hat.
+ - Very often when I am introduced to women, I think, What is she really like behind the disguise which she wears? And very often I discover that she is pleasant enough, and probably would expand and glow if she received enough affection.
+ - The great book for you is the book that has the most to say to you at the moment when you are reading. I do not mean the book that is most instructive, but the book that feeds your spirit. And that depends on your age, your experience, your psychological and spiritual need.
+ - We mistrust anything that too strongly challenges our ideal of mediocrity.
+ - Whether you are really right or not doesn’t matter; it’s the belief that counts.
+ - I see Canada as a country torn between a very northern, rather extraordinary, mystical spirit which it fears and its desire to present itself to the world as a Scotch banker.
+ - Childhood may have periods of great happiness, but it also has times that must simply be endured. Childhood at its best is a form of slavery tempered by affection.
+ - Literary critics, however, frequently suffer from a curious belief that every author longs to extend the boundaries of literary art, wants to explore new dimensions of the human spirit, and if he doesn’t, he should be ashamed of himself.
+ - The love of truth lies at the root of much humor.
+ - It used to be fashionable for authors to have their pictures taken with dogs, but the dogs always looked like models hired from an advertising agency, and probably were.
+ - I am quite a wise old bird, but I am no desert hermit who can only prophesy when his guts are knotted with hunger. I am deep in the old man’s puzzle, trying to link the wisdom of the body with the wisdom of the spirit until the two are one.
+ - Inactivity and deprivation of all accustomed stimulus is not rest; it is a preparation for the tomb.
+ - Students today are a pretty solemn lot. One of the really notable achievements of the twentieth century has been to make the young old before their time.
+ - I came at last to a recognition of myself as, in part, a Tom Sawyer who wanted everything done according to the rules of romantic fiction, and complicated simple solutions with his absurd adolescent, book-born nonsense.
+ - A boy is a man in miniature, and though he may sometimes exhibit notable virtue, as well as characteristics that seem to be charming because they are childlike, he is also a schemer, self-seeker, traitor, Judas, crook, and villain – in short, a man.
+ - And I say to you that if you bring curiosity to your work it will cease to be merely a job and become a door through which you enter the best that life has to give you.
+ - Did you know that Puritanism went hand in hand with dirt, that Oliver Cromwell put a 100 per cent tax on soap and that the repeal of the soap tax was one of the most popular acts of Charles II at his Restoration?
+ - Their very conservatism is secondhand, and they don’t know what they are conserving.
+ - Canada is not really a place where you are encouraged to have large spiritual adventures.
+ - The Bible takes much of its color from whoever is reading it, and it provides a text to support almost every shade of opinion, however preposterous.
+ - Tristan and Isolde were lucky to die when they did. They’d have been sick of all that rubbish in a year.
+ - Not enough attention is paid to the negative side of fashion. Great effort is exerted to make people look smart, but somebody should face the fact that a lot of people never will be smart, and that they should be given some assistance in maintaining their fascinating dowdiness.
+
+180 quotes

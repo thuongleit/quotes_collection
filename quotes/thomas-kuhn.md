@@ -1,0 +1,27 @@
+ - The answers you get depend upon the questions you ask.
+ - All significant breakthroughs are break -“withs” old ways of thinking.
+ - We see the world in terms of our theories.
+ - Almost always the men who achieve these fundamental inventions of a new paradigm have been either very young or very new to the field whose paradigm they change.
+ - Research under a paradigm must be a particularly effective way of inducing paradigm change.
+ - What a man sees depends both upon what he looks at and also upon what his previous visual-conceptual experience has taught him to see.
+ - No part of the aim of normal science is to call forth new sorts of phenomena; indeed those that will not fit the box are often not seen at all. Nor do scientists normally aim to invent new theories, and they are often intolerant of those invented by others.
+ - Philosophers of science have repeatedly demonstrated that more than one theoretical construction can always be placed upon a given collection of data.
+ - The historian of science may be tempted to exclaim that when paradigms change, the world itself changes with them.
+ - Far from being magisterial in its objectivity, science was conditioned by history, society, and the prejudices of scientists.
+ - Each paradigm will be shown to satisfy more or less the criteria that it dictates for itself and to fall short of a few of those dictated by its opponent.
+ - Political revolutions aim to change political institutions in ways that those institutions themselves prohibit. Their success therefore necessitates the partial relinquishment of one set of institutions in favor of another, and in the interim, society is not fully governed by institutions at all.
+ - It is, I think, particularly in periods of acknowledged crisis that scientists have turned to philosophical analysis as a device for unlocking the riddles of their field. Scientists have not generally needed or wanted to be philosophers.
+ - The crises of our time, it becomes increasingly clear, are the necessary impetus for the revolution now under way. And once we understand nature’s transformative powers, we see that it is our powerful ally, not a force to feared our subdued.
+ - Normal science does not aim at novelties of fact or theory and, when successful, finds none.
+ - To reject one paradigm without simultaneously substituting another is to reject science itself.
+ - In science novelty emerges only with difficulty, manifested by resistance, against a background provided by expectation.
+ - Probably, the single most prevalent claim advanced by the proponents of a new paradigm is that they can solve the problems that led the old one to a crisis...
+ - Communication across the revolutionary divide is inevitably partial.
+ - Under normal conditions the research scientist is not an innovator but a solver of puzzles, and the puzzles upon which he concentrates are just those which he believes can be both stated and solved within the existing scientific tradition.
+ - History, if viewed as a repository for more than anecdote or chronology, could produce a decisive transformation in the image of science by which we are now possessed.
+ - Rather than being an interpreter, the scientist who embraces a new paradigm is like the man wearing inverting lenses.
+ - Literally as well as metaphorically, the man accustomed to inverting lenses has undergone a revolutionary transformation of vision.
+ - Later scientific theories are better than earlier ones for solving puzzles in the often quite different environments to which they are applied. That is not a relativist’s position, and it displays the sense in which I am a convinced believer in scientific progress.
+ - Its assimilation requires the reconstruction of prior theory and re-evaluation of prior fact, an intrinsically revolutionary process that is seldom completed a single man and never overnight.
+
+25 quotes

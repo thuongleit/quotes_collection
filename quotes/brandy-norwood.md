@@ -1,0 +1,67 @@
+ - I’m always smiling and happy.
+ - Nothing can stop me from loving my brother.
+ - I don’t know how I feel right now.
+ - Just staying true to yourself and staying true to your passion. Following your gut.
+ - My daughter, I can’t give up because she’s watching and she’s here and she’s waiting for me to be an example. So, between her, myself, and my will, and me pushing myself, that’s my inspiration.
+ - In my life right now, in my music, and just overall I feel like I’m winning. It doesn’t matter what this person is saying or what the charts are saying or what award shows are saying, the public opinion doesn’t matter. I feel like I’m winning in my spirit.
+ - It just feels like I’m on the right path musically and I’m in the right mindset to continue out my mission in music because I’m not putting myself in a box.
+ - There’s a lot of people out there who go through hard times, and they feel alone. They feel like nobody is there. But I’m in the same boat.
+ - Your children can be around you all day, but if you don’t spend quality time with them and you don’t pay attention to them and talk to them and listen to them, it doesn’t matter that they’re just around you.
+ - I go to McDonald’s every day. But I don’t eat much.
+ - I love music. That’s my first love. I’m actually going to start working on that full-time very soon, but I love acting as well. It satisfies a different part of who I am. I love to pretend, to imagine, try new things, work with different people, and just see how far I can go.
+ - I wash my face every night with Ivory soap, and I don’t wear much makeup.
+ - I just feel my sexuality is private. I’m very shy about being sexy. That part of me has been so closed to the public eye. I’ve sold millions of records with my clothes on.
+ - Whitney Houston is my idol and my mentor and my dream forever, like she will always be my favorite artist, ever, on the planet. Like I don’t think I’ll ever feel that way about another artist.
+ - So when you get a chance to look at things and chill and relax, it makes you want it more, and that’s why I’m so happy to be back!
+ - I feel like I needed a balance. I don’t want to forget about my personal life and spending time with myself.
+ - Stay true to yourself because it goes a long way. If you don’t know who you are, who are you really?
+ - My daughter hasn’t seen me with anybody in five years. I’m very, very selective when it comes to that because I want to make sure that it’s real. I don’t want her to see me with just anybody because she means everything to me.
+ - I’m my biggest inspiration. And I say this in the most humble way. I’ve been through so much, just in my life.
+ - One day it just hit me. This is it. You are not in love. So either stay in it because you have a child or be brave and find the man of your dreams and marry him for real.
+ - I wanna sing about something that’s sexy and edgy.
+ - Even though designing your own show, that’s great, I am nothing without the support around me.
+ - Mom would kill me if I showed my navel.
+ - The idea of kids helping other kids is such a great way to introduce children to being involved in charitable causes and volunteer work, setting them on the path to doing good for others throughout their lives.
+ - I’m just going with the flow. I’m in the process, I’m on the path. I’m really working towards all of my goals and music is definitely on the way.
+ - To be on this set today, I feel very blessed for the second chance and for the opportunity, my record company believing in me and everybody here just showing me so much love and support.
+ - My daughter is in love with Adele. She listens to her every day. To see someone with that much passion and soul move a 9-year-old is amazing and it’s magical.
+ - I don’t know where to find a good guy. I just think that they’re around and I think you have to be good and at some point you’ll attract that. I really believe that. First, people should stop looking. The looking thing does not work. Just let love find you.
+ - All my favorite stars, my family and my friends are here. I’m having the happiest birthday that an 18-year-old girl could ever have.
+ - Now that the baby is coming, I will do a lot more balancing. I’m going to be a real mommy.
+ - When you fall in love, you wanna share it with people but you know there are some things that you need to keep to yourself, ’cause privacy makes things last longer, I feel.
+ - I’ll be a nun, raise my daughter, and make albums.
+ - I definitely felt like I needed a break, because when you do so much, you’re not able to appreciate the things that you accomplish.
+ - I’ve had to come through a lot and I’ve made a lot of different mistakes, but I realized that I never gave up. I wanted to so badly.
+ - It’s VH1, it’s everywhere, and you know music is just the world right now. People love music.
+ - I take conscious breaks for myself ’cause I like to rejuvenate and get my creative juices flowing. I also like to take my time with my creativity; I think it’s important.
+ - I was rapping as a hobby. It was something I did for my friends and just played around on ideas and stuff like that.
+ - I knew I had to make a sacrifice to do what I’ve always wanted to do.
+ - I needed to explore my talent and versatility and see if I had another side to me, another sound.
+ - When you get a chance to step back, you notice all these great things you’ve done and all these great people that you’ve worked with.
+ - This is truly a blessing. Breyon Prescott, Peter Edge and Tom Corson believe in me and have introduced me to a home that also believes and knows exactly what to do with the type of music I’m doing.
+ - I went through a struggle, and I really needed to get myself together and connect with my purpose, which is music.
+ - I think creativity becomes really beautiful and magical when you allow it to do what it’s needing you to do.
+ - All I could think about was, ‘I just wanna blow him away. I wanna make him proud, because I really wanna sign with Timbaland and spend the rest of my career making music with Tim.’
+ - It’s easy to just give everything up, but it takes a lot of strength and a lot of willpower to just make yourself stay on it and get up and do something different. And I had to do that.
+ - The more natural, the better.
+ - I have so much to talk about. I have so much to share. There are so many different emotions going on inside of me right now.
+ - I’m going to let people know that it’s cool to have a child and be young and still be a good mom. It’s really tough, but I’m doing it.
+ - I think the Grammy is like the award, you know.
+ - That’s the beautiful part about acting – you get to play somebody other than yourself. So, I’m open to people who can’t sing, people who can, people that sing a little bit, or people that sing a lot.
+ - I have so much more to go through as a young lady. But oh my God. I feel like I can do anything.
+ - It feels so great to be back on the scene.
+ - The hardest part has been maintaining a small head and remaining down to earth. So many people try to make you more than you are.
+ - I’ve been gone for a long time. I really want to give the fans something that they deserve to have. So, I’m working really hard on this. I really want to make it the best work I’ve done so far.
+ - It feels amazing to be back on set. It feels like home, even though the territory is a little bit unfamiliar because it’s a new show, it’s a new character, but once you get in the groove and you start to settle in and trust the moment, you start to really feel at home.
+ - I wrote my own verses. Anything I did, I wrote myself.
+ - I think it’s really finding that belief in yourself, where you just have it no matter what’s going on, no matter what anyone else says. I think that’s the challenge, is to really have that belief in yourself.
+ - I’m open to different parts. I would love to do something where I can sing and act at the same time.
+ - I certainly didn’t want to date. I was through with guys.
+ - I cried, I was so overwhelmed to meet Michael Jackson.
+ - When I was a little girl, I remember carrying my orange UNICEF carton with me as I went Trick-or-Treating.
+ - I just want to continue to do comedy. Comedy, I’m discovering, is my niche. It’s what I’m born to do, so I would love to have my own sitcom one day in the future.
+ - The extra opinions and the extra praise is just a bonus, it’s not the main thing. The main thing is how I feel about myself. And I feel really good about myself.
+ - I don’t get into the favorite songs thing, because so many speak to different parts of my life, but the music in the ’90s is just unbeatable.
+ - I’m very proud of myself because I have come so close to just giving up and I haven’t done that.
+
+65 quotes

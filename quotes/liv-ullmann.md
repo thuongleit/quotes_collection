@@ -1,0 +1,27 @@
+ - It’s better to wake up alone knowing that you’re alone, than waking up with someone and still be lonely.
+ - Soon I will be an old, white-haired lady, into whose lap someone places a baby, saying, “Smile, Grandma!” – I, who myself so recently was photographed on my grandmother’s lap.
+ - I just think that sometimes it is less hard to wake up feeling lonely when you are alone than to wake up feeling lonely when you are with someone else. Some people would be better off alone, but they feel they’ve got to get hold of someone to prove they’re worthwhile.
+ - I believe we come to earth with sealed orders. I believe that only those who lack passion look down on purpose.
+ - Hollywood is loneliness beside the swimming pool.
+ - I do not want to arrive at the end of life and then be asked what I made of it and have to answer: ‘I acted.’ I want to be able to say: ‘I loved and I was mystified. It was a joy sometimes, and I knew grief. And I would like to do it all again.’
+ - We who are alive at this moment are only an infinitesimal part of something that has existed for eternity and will continue when there is no longer anything to show that earth existed. Still, we must feel and believe that we are all.
+ - I looked into the mirror and saw this middle-aged woman who keeps invading my face.
+ - The void Papa’s death left in me became a kind of cavity, into which later experiences were to be laid.
+ - One of the things I like about my profession, and that I find healthy, is that one constantly has to break oneself to pieces.
+ - I think of all the choices I never knew. And those I let be made for me – to please, from fear, for love. Where did they disappear to, those choices that I never made? They are all part of who I am. They are the legacy I leave behind, they are the finished portrait of myself I cannot change.
+ - If a person is found dead here, a postmorten will always reveal whether he has spent less than three weeks in the city. That is the length of time it takes this pollution to invade the body, after which it is there forever.
+ - Sometimes I get a little tired of it. But you know, what a privilege, to get tired of working with Ingmar Bergman.
+ - Nothing ever comes to an end. Wherever one has sunk roots that emanate from one’s best or truest self, one will always find a home.
+ - The best thing that can come with success is the knowledge that it is nothing to long for.
+ - Choice is the essence of what I believe it is to be human.
+ - The Summer Book is beautiful and warm, with the kind of wisdom we can adapt to our everyday lives.
+ - Oh, those wonder-filled evenings when acting enables me for a short moment to have more life.
+ - I believe that it is sometimes less difficult to wake up and feel that I am alone when I really am, than to wake up with someone else and be lonely.
+ - Since suffering confers no rights on its victims, we who witness are the ones responsible for restoring these lost rights.
+ - Ibsen was Norwegian by birth, but universal in spirit.
+ - The fear inside of loneliness: That only what others have is real.
+ - I am learning that if I just go on accepting the framework for life that others have given me, if I fail to make my own choices, the reason for my life will be missing. I will be unable to recognize that which I have the power to change.
+ - Life experiences become acting experiences, which in turn become life experiences.
+ - It is only the untalented director who imagines him or herself in every part, wants his or her own thoughts and emotions portrayed; it is only the untalented who make their own limitations those of the actors as well.
+
+25 quotes

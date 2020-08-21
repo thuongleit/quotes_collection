@@ -1,0 +1,24 @@
+ - When you’re young, you get blamed for crimes that you didn’t commit. When you are old, you get credit for virtues that you never had. I guess it all evens out in the end.
+ - If you expect to see the final results of your work, you simply have not asked a big enough question.
+ - All governments lie, but disaster lies in wait for countries whose officials smoke the same hashish they give out.
+ - The only kinds of fights worth fighting are those you’re going to lose, because somebody has to fight them and lose and lose and lose until someday, somebody who believes as you do wins.
+ - The only social justice movements worth fighting for are the struggles for justice where you lose, you lose, you lose- until you win.
+ - Rich people march on Washington every day.
+ - If God, as some now say, is dead, He no doubt died of trying to find an equitable solution to the Arab-Jewish problem.
+ - If you live long enough, you get accused of things you never did and praised for virtues you never had.
+ - If you want to know about governments, all you need to know is two words: Governments lie.
+ - History is a tragedy, not a morality tale.
+ - A certain moral imbecility marks all ethnocentric movements.
+ - The arms race is based on an optimistic view of technology and a pessimistic view of man. It assumes there is no limit to the ingenuity of science and no limit to the deviltry of human beings.
+ - Every emancipation has in it the seeds of a new slavery, and every truth easily becomes a lie.
+ - When war comes, reason is regarded as treason.
+ - All governments are run by liars and nothing they say should be believed.
+ - I thought I might teach philosophy but the atmosphere of a college faculty repelled me; the few islands of greatness seemed to be washed by seas of pettiness and mediocrity.
+ - Every man is his own Pygmalion, and spends his life fashioning himself. And in fashioning himself, for good or ill, he fashions the human race and its future.
+ - I sought in political reporting what Galsworthy in another context had called “the significant trifle” – the bit of dialogue, the overlooked fact, the buried observation which illuminated the realities of the situation.
+ - The fault I find with most American newspapers is not the absence of dissent. it is the absence of news. With a dozen or so honorable exceptions, most American newspapers carry very little news. Their main concern is advertising.
+ - The difference between burlesque and the newspapers is that the former never pretended to be performing a public service by exposure.
+ - Every time we are confronted with a new revolution we take to the opium pipes of our own propaganda.
+ - The only thing God didn’t do to Job was give him a computer.
+
+22 quotes

@@ -1,0 +1,82 @@
+ - Darling, the world doesn’t owe you anything.
+ - Things end. People leave. And you know what? Life goes on. Besides, if bad things didn’t happen, how would you be able to feel the good ones?
+ - I love books. I like that the moment you open one and sink into it you can escape from the world, into a story that’s way more interesting that yours will ever be.
+ - The truth is, I feel beyond sad. I feel empty. Numb.
+ - Things change. Stuff happens. Life goes on.
+ - School is just like having a job. You have to show up, you have to do your work, and you have to be around tons of idiots or mean people. Now that I think about it, it’s worse than having a job. At least there you get paid.
+ - The sun will rise tomorrow. It always does, and all the wishing in the world for the way things were, or for what they could have been, won’t change that. It won’t change how things are.
+ - I liked him first, but it doesn’t matter. I still like him. That doesn’t matter either. Or at least, it’s not supposed to.
+ - The thing is, that world doesn’t exist. All growing up means is that your realize no one will come along to fix things. No one will come along to save you.
+ - I see what grief does, how it strips you bare, shows you all the things you don’t want to know. That loss doesn’t end, that there isn’t a moment where you are done, when you can neatly put it away and move on.
+ - Sometimes being me is very confusing.
+ - I do not fall. I fell so hard so long ago there is nothing left for me to land on. I just keep falling and falling and falling.
+ - I’ve been taught that love is beautiful and kind, but it isn’t like that at all. It is beautiful, but it’s a terrible beauty, a ruthless one, and you fall-you fall, and the thing is- The thing is you want to. You don’t care what’s coming you just want who your heart beats for.
+ - There are a million rules for being a girl. There are a million things you have to do to get through each day. High school has things that can trip you up, ruin you, people say one thing and mean another, and you have to know all the rules, you have to know what you can and can’t do.
+ - Grace is my favourite church word. A state of being. Something you can pray for. Something God can grant. Something you can obtain. Perfection is out of reach. But grace – grace you can reach for.
+ - But the past couple of days I’ve missed you so much it’s felt like missing you is all I am.
+ - And yet here I am. Broken and bleeding on the inside, heartsick, I am here.
+ - I didn’t want to see it. I didn’t think he’d ever really notice me, and in the end, he didn’t.
+ - I wish it had never happened because then I wouldn’t think about it as I’m falling asleep.
+ - I’m broken, I have cut myself wide open. I can see my heart and it is not what I believed it was, it is not good and kind and all the things I have always thought I am.
+ - Whatever happened to me just now has gotten to me, broken past the fragile shell I’ve built. More than my memory is gone. My soul has wings that beat to a heart I don’t understand and I see things, feel things that I know aren’t from here, but that are so real.
+ - I thought living dead girls couldn’t feel pain, thought I was emptied out but I’m not, I’m not.
+ - I have been smashed and put back together so many times nothing works right. Nothing is where it should be, heavy thumping in my shoulder where my heart now beats.
+ - And what if – what are you if the people who are supposed to love you can leave you like you’re nothing?
+ - I want to care, but I don’t. I look at you and all I feel is tired.
+ - Hope was supposed to be a good thing, but it was starting to feel like every other four-letter word you’re not supposed to say.
+ - I heard how people sounded when their dreams were shattered, when their lives were turned into a waking nightmare.
+ - The thing about hearts is that they always want to keep beating.
+ - Something in me, in my bruised heart, wakes up, and even though I’m terrified, I don’t push the feeling away.
+ - The heart is a place with worm holes made by feelings you aren’t supposed to have but do.
+ - I’d forgotten how much feelings hurt.
+ - Like a heart, and I wish mine wasn’t beating.
+ - Anger can try to break your heart, but sorrow is what will. What can. What does.
+ - I felt nothing all the time, and it had started to feel normal. It should have scared me, but it didn’t.
+ - I didn’t want it to be one good memory that led to a lot of bad ones. I wanted it to stay what it was, one amazing moment, something that was strong and sweet enough to stand on its own. Something I could remember without any pain. – Kate.
+ - Talking about someone who makes you happy actually makes you happy.
+ - You tell yourself that you aren’t something or that you can’t be something, and you know what? It will become true. You have to decide who you are and what you can do and then go after what you want. Because believe me, no one is going to give it to you.
+ - Talking about someone who makes you happy actually makes you happy. Being happy makes you want to talk, to go over everything, to share it so you can remember it all over again.
+ - Imagine a guy. He’s a little taller than you, with perfect skin, skin that just screams “touch me!” and dark hair and gorgeous blue eyes and he looks so sweet and he is sweet. And then have him blush a little.
+ - I want to care, but I don’t. I look at you and all I feel is tired. I walk through school and all I want to do is leave. I wake up in the morning and don’t know why I’m here. I feel like I’m not real.
+ - I don’t know how I know that, but I do. I can feel the beat of that truth inside me. Taste it bitter on my tongue. Sometimes, like now, I didn’t think I want to know who I really am.
+ - The world will knock you down plenty. You don’t need to be doing it to yourself.
+ - He is nothing to look at, and yet I can’t stop looking at him. There is something beautiful in how his face is made, how all the tiny flaws blend together into something more perfect than perfection could ever be.
+ - My full name is Lauren Lee Smith. Of all the names I could have been given, that’s the one I got. Lauren Lee Smith. It has all the personality of a toaster.
+ - Little Alice, all hollowed out, so easy to smash into a million little pieces.
+ - I want to lie down on the bench then, or better yet, on the grass, rest on something living and see if I can hear the dead underneath.
+ - But I know a lie when I hear one.
+ - I-I don’t usually go around throwing rocks at people’s windows. Or saying that I’ve wanted to kiss you since your first day at work, when you wanted to know why we had three codes for fish sandwiches when we only sold one kind.
+ - I didn’t feel anything watching him go. I didn’t even wish I did.
+ - I’m always the one who doesn’t have a date, the one guys walk up to and say, “So, is your friend, you know, with someone?” and I may not be the only girl without someone, but it feels like it sometimes. A lot of the time.
+ - Then I heard someone laugh. I wished I didn’t know whose laugh it was, but I knew Will’s laugh just like I knew he had a small scar right above his left elbow. You couldn’t be reluctantly lust-ridden for someone without noticing stuff about them.
+ - He looks trapped, helpless and furious, and that’s a feeling I know too well. Know how much it hurts. Know how it holds you down, how every day there are a thousand little ways to see there is nothing you can do to change who or what you are.
+ - All the things I’ve thought about love are true. It’s beautiful and terrible and it doesn’t make things perfect. It ends things, and it brings beginnings. This is mine.
+ - She looked at me for real and saw I was serious. She saw I knew she was for me like you know that tomorrow morning the sun will rise.
+ - This is what happiness is, past the rubbish of its overuse as a word, past the cracked gloss of the letters that mean nothing when strung together. They mean something now, and I know what it’s like when you and someone else are right together. How simple is is, and how amazing.
+ - I think you’re the saddest person I’ve ever met. It’s like you’re drowning in it.
+ - I deserved the shaking and the headaches and the fact that every single time I took a breath I felt a squeezing in my chest, my heart beating even though I wished it wasn’t.
+ - I knew I was having a panic attack. I hadn’t had one in a while, though, and I’d forgotton how they made everything like it- and I- was going to fall apart. How they reminded me of how trapped I was.
+ - Too late, too late, juice pouring does not a kind soul make, and I killed you.
+ - She became a story, one I have mostly forgotten. One I can’t end because she died a long time ago.
+ - I never went for the talkers.
+ - I suppose he’s making a real fashion statement, but this is high school. You’re not supposed to be real. You’re supposed to be enough like everyone else to get through and out into the waiting world.
+ - I think love is huge, overwhelming. I think it’s terrible and beautiful.
+ - I AM FREE.
+ - It was like we were all so busy trying to be happy or saying we were happy, but underneath there was nothing but bitterness, the kind that could only be bled out in ink, in unspoken word.
+ - Just once, I wanted to lose something without the whole world watching.
+ - My name is Danielle. I’m eighteen. I’ve been stealing things for as long as I can remember.
+ - And now I see what has been there all along, what I’ve noticed but never truly understood until now. Eli is as uncertain as I am, as we all are. Life has surprised him like it has me. Has hurt him like it has me.
+ - I wants us to be real. I want to be just you and me. – Ryan.
+ - I’d dressed up and hoped and I was so tired of doing that, so tired of dreaming and being unable to stop it despite the fact that I’d seen, maybe better than anyone here, what dreams could do to you.
+ - It could be enough, maybe, or at least a start, but the problem is that at night I tumble into dreams that aren’t dreams at all. I tumble into memories and wake up aching for a dying world and a quiet, cold life that offered me nothing but sitting in a still room.
+ - The story of my life can be told in silver: in chocolate mills, serving spoons, and services for twelve. The story of my life has nothing to do with me. The story of my life is things. Things that aren’t mine, that won’t ever be mine. It’s all I’ve ever known. I wish it wasn’t.
+ - Why do people think being with someone is the answer to everything?
+ - What had been became what was and a story only works when you know the ending. When the people in it don’t seem like pretend. When you can think about that girl and how she was once upon a time, and see her. When you don’t already know the story is a lie.
+ - Once upon a time, I did not live in Shady Pines. Once upon a time, my name was not Alice. Once upon a time, I didn’t know how lucky I was.
+ - My mother taught me to believe in silver, to believe in things, but I think it’s more important to believe in me.
+ - I don’t think I could have picked a worse guy to be my soul mate.
+ - You know who you are you just have to believe it.
+ - I don’t know, shifted a little or something, smoothed down–people would think of me the way they think of Dave, and everything would always be perfect. I would be perfect.
+ - I’ll always remember taking your hand and telling you that everything would be okay.
+
+80 quotes

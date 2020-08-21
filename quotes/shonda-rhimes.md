@@ -1,0 +1,36 @@
+ - Ditch the dream and be a doer.
+ - The only limit to success is your own imagination.
+ - You can waste your lives drawing lines. Or you can live your life crossing them.
+ - Dreams are lovely. But they are just dreams. Fleeting, ephemeral, pretty. But dreams do not come true just because you dream them. It’s hard work that makes things happen. It’s hard work that creates change.
+ - You are not alone. You are seen. I am with you. You are not alone.
+ - At some point, you have to make a decision. Boundaries don’t keep other people out. They fence you in. Life is messy. That’s how we’re made. So, you can waste your lives drawing lines. Or you can live your life crossing them.
+ - I think a lot of people dream. And while they are busy dreaming, the really happy people, the really successful people, the really interesting, engaged, powerful people, are busy doing.
+ - Nobody got anything great by playing it safe.
+ - Mother is a verb, not a noun.
+ - The expected is what keeps us steady. It’s the unexpected that changes our lives forever.
+ - Boundaries don’t keep other people out, they fence you in.
+ - Whenever you see me somewhere succeeding in one area of my life, that almost certainly means I am failing in another area of my life.
+ - When people show you who they are, believe them. I carry that with me a lot. It has served me well.
+ - I happen to like debating, and I like to debate like a lawyer, and I can argue any points to death, and I will.
+ - Mother is not a title. Mother is a verb. It is not who you are. It’s what you do.
+ - I remember saying, very almost jokingly, I’m going to take over the world through television, that’s my plan. And I said it to my agent, and I said it to my friends, and I said it to myself.
+ - Perfect is boring and dreams are not real. Just do. So you think, “I wish I could travel.” Great. Sell your crappy car, buy a ticket to Bangkok, and go. Right now. I’m serious.
+ - Cynicism is a choice. Optimism is a better choice.
+ - You want to be a writer? A writer is someone who writes every day, so start writing. You don’t have a job? Get one. Any job. Don’t sit at home waiting for the magical opportunity. Who are you? Prince William? No. Get a job. Go to work. Do something until you can do something else.
+ - Making it through the ceiling to the other side was simply a matter of running on a path created by every other woman’s footprints.
+ - I am terrible with examples. I can never think of them when anybody asks for an example.
+ - A hashtag is not helping. A hashtag is not a movement. A hashtag does not make you Dr King. A hashtag does not change anything. It’s a hashtag.
+ - Everyone always says to me, ‘Why aren’t there more people of color on television?’ I’m like, ‘Why don’t you ask a bunch of people who aren’t putting people of color on television why there aren’t more people of color on television?’
+ - Nobody ever asks a man how he gets stuff done. Nobody asks a man how he finds balance.
+ - I was 4 and dictating stories into a tape recorder, and my mom typed them up.
+ - You can’t tell stories and really walk in someone’s shoes and not have a love for them, even if they’re doing horrible things.
+ - I never, ever pay attention to the ratings. I stopped paying attention to the ratings somewhere around season two or three of Grey’s. It’s something I have no control over, so I don’t even pay attention.
+ - Most of the women I saw on TV didn’t seem like people I actually knew. They felt like ideas of what women are.
+ - I don’t understand why people don’t understand that the world of TV should look like the world outside of TV.
+ - I really don’t think there’s a world in which you can do anything with anybody. Because we’re in the world of the White House, I think there are certain things you can do, and larger things that can happen, but I don’t think you can do anything.
+ - I’m a black woman every day, and I’m not confused about that. I’m not worried about that. I don’t need to have a discussion with you about how I feel as a black woman, because I don’t feel disempowered as a black woman.
+ - I actually like being alone. I spend most evenings reading and taking long baths.
+ - Ive learned this is a very long marriage doing a television show. I like the people that I work with to be people I enjoy, so you want to cast people who are as excited and enthusiastic as you are.
+ - Calling a show a ‘guilty pleasure’ is like saying ‘I’m embarrassed to say I watch it but I can’t stop.’ That’s not a compliment.
+
+34 quotes

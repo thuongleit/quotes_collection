@@ -1,0 +1,152 @@
+ - Fasting of the body is food for the soul.
+ - The rich man is not one who is in possession of much, but one who gives much.
+ - We must not mind insulting men, if by respecting them we offend God.
+ - Not to share our own wealth with the poor is theft from the poor and deprivation of their means of life; we do not possess our own wealth, but theirs.
+ - The road to Hell is paved with the bones of priests and monks, and the skulls of bishops are the lamp posts that light the path.
+ - Prayer is the place of refuge for every worry, a foundation for cheerfulness, a source of constant happiness, a protection against sadness.
+ - Woman is a necessary evil, a natural temptation, a desirable calamity, a domestic peril, a deadly fascination, and a painted ill.
+ - No matter how just your words may be, you ruin everything when you speak with anger.
+ - Glory be to God for all things!
+ - Let no one mourn that he has fallen again and again; for forgiveness has risen from the grave.
+ - If you cannot find Christ in the beggar at the church door, you will not find Him in the chalice.
+ - It is impossible to be saved without the help of the Most Blessed Virgin, because those who are not saved by the justice of God are saved by the intercession of Mary.
+ - Prayer is the root, the fountain, the mother of a thousand blessings.
+ - Faithfulness in little things is a big thing.
+ - God loves us more than a father, mother, friend, or any else could love, and even more than we are able to love ourselves.
+ - The Jews were God’s chosen people.
+ - The primary goal in the education of children is to teach, and to give the example of, a virtuous life.
+ - When you are weary of praying, and do not receive, consider how often you have heard a poor man calling, and have not listened to him.
+ - Every man is the painter and the sculptor of his own life.
+ - Thus abide constantly with the name of our Lord Jesus Christ, so that the heart swallows the Lord and the Lord the heart, and the two become one.
+ - Laughter has been implanted in our soul, that the soul may sometime be refreshed.
+ - Riches are not forbidden, but the pride of them is.
+ - An insult is either sustained or destroyed, not by the disposition of those who insult, but by the disposition of those who bear it.
+ - A comprehended god is no god.
+ - How many of you say: I should like to see His face, His garments, His shoes. You do see Him, you touch Him, you eat Him. He gives Himself to you, not only that you may see Him, but also to be your food and nourishment.
+ - It is folly to abstain all day long from food, but fail to abstain from sin and selfishness.
+ - Whether or not our prayer is heard depends not on the number of our words, but on the fervor of our souls.
+ - Whether, therefore, we receive what we ask for, or do not receive it, let us still continue steadfast in prayer. For to fail in obtaining the desires of our heart, when God so wills it, is not worse than to receive it; for we know not as He does, what is profitable to us.
+ - It is certainly a greater and more wonderful work to change the minds of enemies, bringing about a change of soul, than to kill them.
+ - Men have the power of thinking that they may avoid sin.
+ - The bee is more honored than other animals, not because she labors, but because she labors for others.
+ - The Eucharist is a fire that inflames us, that, like lions breathing fire, we may retire from the altar being made terrible to the devil.
+ - Prayer is an all-efficient panoply, a treasure undiminished, a mine which is never exhausted, a sky unobscured by clouds, a heaven unruffled by the storm. It is the root, the fountain, the mother of a thousand blessings.
+ - Be ashamed when you sin, not when you repent.
+ - Sin makes man a coward; but a life in the Truth of Christ makes Him bold.
+ - Nothing is more powerful than meekness. For as fire is extinguished by water, so a mind inflated by anger is subdued by meekness. By meekness we practice and make known our virtue, and also cause the indignation of our brother to cease, and deliver his mind from perturbation.
+ - Is it not excessively ridiculous to seek the good opinion of those whom you would never wish to be like?
+ - Mercy imitates God and disappoints Satan.
+ - When the Mass is being celebrated, the sanctuary is filled with countless angels, who adore the Divine Victim immolated on the altar.
+ - Nothing causes us to so nearly resemble God as the forgiveness of injuries.
+ - The drunken man is a living corpse.
+ - It is simply impossible to lead, without the aid of prayer, a virtuous life.
+ - Charity is indeed, a great thing, and a gift of God, and when it is rightly ordered likens us unto God himself, as far as that is possible; for it is charity which makes the man.
+ - When we once begin to form good resolutions, God gives us every opportunity of carrying them out.
+ - The love of husband and wife is the force that welds society together.
+ - If you would rise, shun luxury, for luxury lowers and degrades.
+ - The Holy Scriptures lead us to God and open the path to the knowledge of God.
+ - Only those who do not fight are never wounded.
+ - What gnats are compared with humans, so is the whole creation compared with God.
+ - Mary was made Mother of God to obtain salvation for many who, on account of their wicked lives, could not be saved according to the rigor of Divine justice, but might be saved with the help of her sweet mercy and powerful intercession.
+ - Feeding the hungry is a greater work than raising the dead.
+ - Endurance is the queen of all virtues.
+ - From the creation learn to admire thy Lord! And if any of the things thou see exceed thy comprehension, and thou are not able to find the reason thereof, yet for this glorify the Creator, that the wisdom of these works surpass thine understanding.
+ - If you wish to leave much wealth to your children, leave them in God’s care. Do not leave them riches, but virtue and skill. For if they learn to expect riches, they will not mind anything besides, and their abundant riches shall give them the means of screening the wickedness of their ways.
+ - If there were no tribulation, there would be no rest; if there were no winter, there would be no summer.
+ - Woman -a foe of friendship, an inescapable punishment, a necessary evil.
+ - Let us always guard our tongue; not that it should always be silent, but that it should speak at the proper time.
+ - Almsgiving above all else requires money, but even this shines with a brighter luster when the alms are given from our poverty. The widow who paid in the two mites was poorer than any human, but she outdid them all.
+ - The test of sincerity of one’s prayer is the willingness to labor on its behalf.
+ - You carry your snare everywhere and spread your nets in all places. You allege that you never invited others to sin. You did not indeed, by your words, but you have done so by your dress and your deportment.
+ - We are commanded to have only one enemy, the devil. With him never be reconciled! But with a brother, never be at enmity in thy heart.
+ - Every trace of the old philosophy and literatureof the ancient world has vanished from the face of the earth.
+ - Slander is worse than cannibalism.
+ - Where dance is, there is the devil.
+ - Yet, when we must put aside our wrath, quench our envy, soften our anger, offer our prayers, and show a disposition which is reasonable, mild, kindly, and loving, how could poverty stand in our way? For we accomplish these things not by spending money but by making the correct choice.
+ - In the matter of piety, poverty serves us better than wealth, and work better than idleness, especially since wealth becomes an obstacle even for those who do not devote themselves to it.
+ - God asks little, but He gives much.
+ - What is dying? Just what it is to put off a garment. For the body is about the soul as a garment; and after laying this aside for a short time by means of death, we shall resume it again with more splendor.
+ - The slave should be resigned to his lot, in obeying his master he is obeying God.
+ - Why do you beat the air and run in vain? Every occupation has a purpose, obviously. Tell me then, what is the purpose of all the activity of the world? Answer, I challenge you! It is vanity of vanity: all is vanity.
+ - Let the mouth also fast from disgraceful speeches and railings. For what does it profit if we abstain from fish and fowl and yet bite and devour our brothers and sisters? The evil speaker eats the flesh of his brother and bites the body of his neighbor.
+ - Poor human reason, when it trusts in itself, substitutes the strangest absurdities for the highest divine concepts.
+ - We should not bear it with bad grace if the answer to our prayer is long delayed. Rather, let us, because of this, show great patience and resignation. For He delays for this reason: that we may offer Him a fitting occasion of honoring us through His divine providence.
+ - In the Christian combat, not the striker, as in the Olympic contests, but he who is struck, wins the crown. This is the law in the celestial theatre, where the Angels are the spectators.
+ - What greater work is there than training the mind and forming the habits of the young?
+ - Are you angry? Be angry at your sins, beat your soul, afflict your conscience, but strict in judgement and a terrible punisher of your own sins. This is the benefit of anger, wherefore God placed it in us.
+ - There is nothing colder than a Christian who does not seek to save others.
+ - I am a Christian. He who answers thus has declared everything at once-his country, profession, family; the believer belongs to no city on earth but to the heavenly Jerusalem.
+ - Imagine your anger to be a kind of wild beast, because it has ferocious teeth and claws, and if you don’t tame it, it will devastate all things even corrupting the soul.
+ - One who strictly prosecutes the misdemeanors of others will find not condescension towards his own.
+ - A man’s readiness and commitment are not enough if he does not enjoy help from above as well; equally help from above is no benefit to us unless there is also commitment and readiness on our part.
+ - To destroy the fetus ‘is something worse than murder.’ The one who does this ‘does not take away life that has already been born, but prevents it from being born.’
+ - As a moth gnaws a garment, so doth envy consume a man.
+ - Let us return from that Table like lions breathing out fire, terrifying to the devil!
+ - There are many poor men and poor women: set apart some one constantly to remain there: let the poor man be though but as a guard to thy house: let him be to thee wall and fence, shield and spear. Where alms are, the devil dares not approach, nor any other evil thing.
+ - Laughter does not seem to be a sin, but it leads to sin.
+ - Things themselves do not remain, but their effects do. Therefore we should not be mean and calculating with what we have but give with a generous hand. Look at how much people give to players and dancers-why not give just as much to Christ?
+ - O most grateful burden, which comforts them that carry it! The burdens of earthly masters gradually wear out the strength of those who carry them; but the burden of Christ assists the bearers of it, because we carry not grace, but grace us.
+ - Even if we stand at the very summit of virtue, it is by mercy that we shall be saved.
+ - Words cannot express the joy which a friend imparts.
+ - Good men do not always have grace and favor, lest they should be puffed up, and grow insolent and proud.
+ - Make account that thou hast done nothing, and then thou hast done all. For if, being sinners, when we account ourselves to be what we are, we become righteous, as indeed the Publican did; how much more, when being righteous we account ourselves to be sinners.
+ - Even if we have thousands of acts of great virtue to our credit, our confidence in being heard must be based on God’s mercy and His love for men. Even if we stand at the very summit of virtue, it is by mercy that we shall be saved.
+ - Of all the afflictions that burden the human race, there is not one, whether spiritual or bodily, that cannot be healed by the Holy Scriptures.
+ - There is harm not only in trying to gain wealth but also in excessive concern with even the most necessary things. It is not enough to despise wealth, but you must also feed the poor and, more importantly, you must follow Christ.
+ - To love Christ -means not to be a hireling, not to look upon a noble life as an enterprise or trade, but to be a true benefactor and to do everything only for the sake of love for God.
+ - Nothing will divide the church so much as the love of power.
+ - Feet were made, not given for dancing, but to walk modestly, not to leap impudently like camels.
+ - For nothing so much disturbs the mind, though it be done for some beneficial purpose, as to innovate and introduce strange things, and most of all when this is done in matters relating to divine worship and the glory of God.
+ - Whatever you may do for your brother, being hungry, and a stranger, and naked, not even the devil will be able to despoil, but it will be laid up in an inviolabe treasure.
+ - Do you think that the man-loving God has given you much so that you could use it only for your own benefit? No, but so that your abundance might supply the lack of others.
+ - No one has ever been accused for not providing ornaments, but for those who neglect their neighbour a hell awaits with an inextinguishable fire and torment in the company of the demons. Do not, therefore, adorn the church and ignore your afflicted brother, for he is the most precious temple of all.
+ - The desire to rule is the mother of heresies.
+ - Words would be superfluous if we had deeds to show for Them.
+ - A man does not possess all the gifts, lest he think that grace is nature.
+ - I exhort and entreat you all, disregard what this man and that man thinks about such things, and inquire from the Holy Scriptures all these things.
+ - Every time that we sin, we are born of the devil. But every time that we do good, we are born of God.
+ - The Holy Scriptures do not know any distinctions. They enjoin that all lead the life of monks.
+ - Fasting is a medicine.
+ - We pray not to inform God or instruct Him but to beseech Him closely, to be made intimate with Him, by continuance in supplication; to be humbled; to be reminded of our sins.
+ - Memory of our good works makes us negligent and leads to arrogance. Do not think of your good deeds, so that God may remember them.
+ - He that enjoys naught without thanksgiving is as though he robbed God.
+ - What good is it if the Eucharistic table is overloaded with golden chalices when your brother is dying of hunger. Start by satisfying his hunger and then with what is left you may adorn the altar as well.
+ - No one can harm the man who does himself no wrong.
+ - You cannot pray at home, like you can at church, where there is a great multitude; where exclamations are cried out to God as from one great heart, and where there is something more: the unions of minds, the accord of souls, the bond of charity, the prayers of priests.
+ - I hear no one boast, that he hath a knowledge of the Scriptures, but that he owneth a Bible written in golden characters. And tell me then, what profiteth this? The Holy Scriptures were not given to us that we should enclose them in books, but that we should engrave them upon our hearts.
+ - Depart from the highway, and transplant thyself in some enclosed ground; for it is hard for a tree that stands by the wayside to keep her fruit till it be ripe.
+ - What shepherd feeds his sheep with his own blood? But Christ feeds us with His own Blood and in all things unites us to Himself.
+ - Him who is dead and gone honor with remembrance, not with tears.
+ - Let us not overlook so great a gain.
+ - If repentance is neglected for an instant, one can lose the power of the Resurrection as he lives with the weakness of tepidity and the potential of his fall.
+ - Why not learn to enjoy the little things-there are so many of them.
+ - Prayer should be the means by which I, at all times, receive all that I need, and, for this reason, be my daily refuge, my daily consolation, my daily joy, my source of rich and inexhaustible joy in life.
+ - That is true plenty, not to have, but not to want riches.
+ - Musicke doth withdraw our mindes from earthly cogitations, lifteth up our spirits into heaven, maketh them light and celestial.
+ - What prayer could be more true before God the Father than that which the Son, who is Truth, uttered with His own lips?
+ - Labor: a powerful medicine.
+ - Intemperance is a hydra with a hundred heads. She never stalks abroad unaccompanied with impurity, anger, and the most infamous profligacies.
+ - You can set up an altar to God in your minds by means of prayer. And so it is fitting to pray at your trade, on a journey, standing at a counter or sitting at your handicraft.
+ - We ought not, as soon as we leave church, to plunge into business unsuited to church, but as soon as we get home, we should take the Scriptures into our hands, and call our wife and children to join us in putting together what we have heard in church.
+ - What the soul is in the body, let Christians be in the world.
+ - God does not forsake you. It is because he wishes to increase your glory that oftentimes he permits you to fall sick. Keep up your courage so that you may also hear him say: Do you think I have dealt with you otherwise than that you may be shown to be just?
+ - If we were not passionately inclined to money or to vainglory, then we would not fear death or poverty. We would not know enmity or hatred, and we would not suffer from the sorrows of ourselves or others.
+ - Nothing is more fallacious than wealth. It is a hostile comrade, a domestic enemy.
+ - Every family should have a room where Christ is welcome in the person of the hungry and thirsty stranger.
+ - I do not think there are many among Bishops that will be saved, but many more that perish.
+ - What is it to be a fool for Christ? It is to control one’s thoughts when they stray out of line. It is to make the mind empty and free...
+ - If then we have Angels, let us be sober, as though we were in the presence of tutors; for there is a demon present also.
+ - It is a shame for a man to desire honor because of his noble progenitors, and not to deserve it by his own virtue.
+ - A friend is more to be longed for than the light; I speak of a genuine one. And wonder not: for it were better for us that the sun should be extinguished, than that we should be deprived of friends; better to live in darkness, than to be without friends.
+ - The pains of hell are not the greatest part of hell; the loss of heaven is the weightiest woe of hell.
+ - It brings comfort to have companions in whatever happens.
+ - Many can give money to those in need, but to personally serve the needy readily, out of love, and in a fraternal spirit, requires a truly great soul.
+ - Wine was given us by God, not that we might be drunken, but that we might be sober. It is the best medicine when it has the best moderation to direct it. Wine was given to restore the body’s weakness, not to overturn the soul’s strength.
+ - God measures out affliction to our need.
+ - Shall I tell you of their plundering, their covetousness, their abandonment of the poor, their thefts, their cheating in trade?
+ - Do not the angels differs from us in this respect, that they do not want so many things as we do? Therefore the less we need, the more we are on our way to them; the more we need, the more we sink down to this perishable life.
+ - Dost thou wish to receive mercy? Show mercy to thy neighbor.
+ - And all men are ready to pass judgement on the priest as if he was not a being clothed with flesh, or one who inherited a human nature.
+ - Just as those who are deprived of light cannot walk straight, so also those who do not behold the ray of the Holy Scriptures must necessarily sin, since they walk in the deepest darkness.
+
+150 quotes

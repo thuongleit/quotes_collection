@@ -1,0 +1,42 @@
+ - Curiosity keeps leading us down new paths. ~~Walt Disney
+ - Don’t follow the path. Blaze the trail. ~~Jordan Belfort
+ - The obstacle in the path becomes the path. Never forget, within every obstacle is an opportunity to improve our condition. ~~Ryan Holiday
+ - The path of least resistance will never make you proud. ~~Tony Robbins
+ - The path that leads to truth is littered with the bodies of the ignorant. ~~Miyamoto Musashi
+ - There are no short and easy paths to a long and lasting happiness. ~~Nick Vujicic
+ - Don’t compare your path with anybody else’s. Your path is unique to you. ~~Ram Dass
+ - I am even grateful to Einstein and others because through their erroneous theories they lead mankind away from that dangerous path I followed. ~~Nikola Tesla
+ - Whatever purifies you is the right path, I will not try to define it. ~~Rumi
+ - To me defeat in anything is merely temporary. Defeat simply tells me that something is wrong in my doing; it is a path leading to success and truth. ~~Bruce Lee
+ - Life is not a problem to be solved but a mystery to be lived. Follow the path that is no path, follow your bliss. ~~Joseph Campbell
+ - Suffering only shows where you are attached. That is why, to those on the path, suffering is grace. ~~Ram Dass
+ - The path to paradise begins in hell. ~~Dante Alighieri
+ - Say not, I have found the path of the soul Say rather, I have met the soul walking upon my path. ~~Khalil Gibran
+ - The path of awakening is not about becoming who you are. Rather it is about unbecoming who you are not. ~~Albert Schweitzer
+ - I am suddenly left alone again on the sunny path, with a memory of the rain. ~~Azar Nafisi
+ - He is short-sighted who looks only on the path he treads and the wall on which he leans. ~~Khalil Gibran
+ - Any path is only a path, and there is no affront to oneself or to others, in dropping it if that is what your heart tells you. ~~Carlos Castaneda
+ - To convince someone of the truth, it is not enough to state it, but rather one must find the path from error to truth. ~~Ludwig Wittgenstein
+ - Embrace the unpredictable and unexpected. It is the path to the infinitely creative in you. ~~Deepak Chopra
+ - Most safely shall you tread the middle path. ~~Ovid
+ - Don’t torment yourself with jealousy. It’s a silly illusion that someone’s life is better than yours when the truth is that each one of us is on a different path. ~~Demi Lovato
+ - Beaten paths are for beaten men. ~~Eric Johnston
+ - On the straight and narrow path, there are simply no corners to be cut. ~~Neal A. Maxwell
+ - God has strewn our paths with wonders and we certainly should not go through life with our eyes shut. ~~Alexander Graham Bell
+ - Wherever I have knocked, a door has opened. Wherever I have wandered, a path has appeared. ~~Alice Walker
+ - At every crossroads on the path that leads to the future, tradition has placed 10,000 men to guard the past. ~~Maurice Maeterlinck
+ - Exclusion is never the way forward on our shared paths to freedom and justice. ~~Desmond Tutu
+ - One of the ego’s favorite paths of resistance is to fill you with doubt. ~~Ram Dass
+ - To follow the path look to the master follow the master walk with the master see through the master become the master. ~~Sengcan
+ - Today’s ‘best practices’ lead to dead ends; the best paths are new and untried. ~~Peter Thiel
+ - Time, of course, topples everyone in its path equally- the way that driver beats his old horse until it dies. But the thrashing we receive is one of frightful gentleness. Few of us even realize that we are being beaten. ~~Haruki Murakami
+ - Look up, look up, and let your faith continually increase. Let this faith guide you along the narrow path that leads through the gates of the city into the great beyond, the wide, unbounded future of glory that is for the redeemed. ~~Ellen G. White
+ - When I reach to the edge of the universe, I do so knowing that along some paths of cosmic discovery, there are times when, at least for now, one must be content to love the questions themselves. ~~Neil deGrasse Tyson
+ - In their seeking, wisdom and madness are one and the same. On the path of love, friend and stranger are one and the same. ~~Rumi
+ - The spiritual path is not one of attainment, but of return. ~~Alan Cohen
+ - Every living organism is fulfilled when it follows the right path for its own nature. ~~Marcus Aurelius
+ - This transmissibility of taboo is a reflection of the tendency, on which we have already remarked, for the unconscious instinct in the neurosis to shift constantly along associative paths on to new objects. ~~Sigmund Freud
+ - All paths lead to the same goal: to convey to others what we are. ~~Pablo Neruda
+ - This is the pathless path. Where the journey leads is to the deepest truth in you. It is really just returning to where you were initially before you got lost. ~~Ram Dass
+
+40 quotes

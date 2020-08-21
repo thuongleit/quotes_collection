@@ -1,0 +1,80 @@
+ - Just when I think I have learned the way to live, life changes.
+ - There is a time to let things happen and a time to make things happen.
+ - It’s not that “today is the first day of the rest of my life,” but that now is all there is of my life.
+ - It’s this simple: If I never try anything, I never learn anything. If I never take a risk, I stay where I am.
+ - Don’t strive for love, be it.
+ - Support your friends – even in their mistakes. But be clear, however, that it is the friend and not the mistake you are supporting.
+ - A messy mortal is my friend. Come walk with me in the mud.
+ - We are all saying the same thing in different words.
+ - When I have listened to my mistakes, I have grown.
+ - Love, the magician, knows this little trick whereby two people walk in different directions yet always remain side by side...
+ - Stands must be taken. If I am to respect myself I have to search myself for what I believe is right and take a stand on what I find. Otherwise, I have not gathered together what I have been given; I have not embraced what I have learned; I lack my own conviction.
+ - All my life, I have made it complicated, but it is so simple. I love when I love. And when I love, I am myself.
+ - Perfectionism is slow death.
+ - A whole mind cannot create chaos. A conflicted mind can create nothing else.
+ - Happiness is a present attitude and not a future condition.
+ - There are only three things you need to let go of judging, controlling, and being right. Release these three and you will have the whole mind and twinkly heart of a child.
+ - Live as if everything you do will eventually be known.
+ - Why choose to be right instead of happy when there is no way to be right?
+ - No matter what we talk about, we are talking about ourselves.
+ - Most words evolved as a description of the outside world, hence their inadequacy to describe what is going on inside me.
+ - An argument is always about what has been made more important than the relationship.
+ - One element of maturity is the realization that we don’t get away with anything. Any advantage gained or convenience taken, any private procrastination or insincerity, no matter how subtle or quick in passing, is paid for.
+ - Life is also a mixture of unsolved problems, ambiguous victories and vague defeats-with very few moments of clear peace.
+ - If a man takes off his sunglasses I can hear him better.
+ - But it’s morning. Within my hands is another day. Another day to listen and love and walk and glory. I am here for another day.
+ - I live now and only now, and I will do what I want to do this moment and not what I decided was best for me yesterday.
+ - When I get to where I can enjoy just lying on the rug picking up lint balls, I will no longer be too ambitious.
+ - Letting people in is largely a matter of not expending the energy to keep them out.
+ - The fatal mistake is waiting for life’s circumstances to be right before we begin. Simply begin with your heart, look deeply into it and trust what you feel. Practice knowing and you will know.
+ - Letting go is freedom. When you find yourself in a useless battle, you merely walk off the battlefield.
+ - Almost any difficulty will move in the face of honesty. When I am honest I never feel stupid. And when I am honest I am automatically humble.
+ - Unless I accept my faults, I will most certainly doubt my virtues.
+ - To live for results would be to sentence myself to continuous frustration. My only sure reward is in my actions and not from them.
+ - If your reaction to your partner’s fear-or any other form of distress- is disdain or irritation, you do not want oneness or even friendship with your partner at that moment.
+ - The components of happiness are quite simple. Happiness is gentleness, peace, concentration, simplicity, forgiveness, humor, fearlessness, trust, and now. In its true form each quality includes all the rest, for happiness is whole, and one feels whole when genuinely happy.
+ - Before, I thought I was actually fighting for my own self-worth; that is why I so desperately wanted people to like me. I thought their liking me was a comment on me, but it was a comment on them.
+ - We feel understood by people who like us; misunderstood by people who don’t – and those feelings are probably realistic.
+ - Problems assault us to the degree they preoccupy us. The key to release, rest, and inner freedom is not the elimination of all external difficulties. It is letting go of our pattern of reactions to those difficulties.
+ - Every moment that I am centered in the future I suffer a temporary loss of this life.
+ - Just when I think I have learned the way to live, life changes and I am left the same. The more things change the more I am the same. I am what I started with, and when it is all over I will be all that is left of me.
+ - Whenever we condemn, we cloak the world in pain.
+ - Some people will like me and some won’t. So I might as well be myself, and then at least I’ll know that the people who like me, like me.
+ - True humor is fun – it does not put down, kid, or mock. It makes people feel wonderful, not separate, different, and cut off. True humor has beneath it the understanding that we are all in this together.
+ - Now that I know that I am no wiser than anyone else, does this wisdom make me wiser?
+ - Don’t fight a fact, deal with it.
+ - Love itself is not an act of will, but sometimes I need the force of my volition to break with my habitual responses and pass along the love already here.
+ - I like a man with faults, especially when he knows it. To err is human.
+ - We become what we look at most.
+ - Happiness is gentleness, peace, concentration, simplicity, forgiveness, humor, fearlessness, trust, and now.
+ - To avail yourself of His certain wisdom, ask of Him whatever questions you have. But do not entreat Him, for that will never be necessary.
+ - My prayer is: I will be what I will be, I will do what I will do.
+ - Because the results are unpredictable, no effort of mine is doomed to failure.
+ - If I work toward an end, meantime I am confined to a process.
+ - When we recognize that nothing has to go right for us to be happy, that people do not have to behave for us to love them, our walk home can be surprisingly simple. We have enormous power not to manipulate the world, but to be happy and to know peace.
+ - Sometimes I doubt and sometimes I believe. And I like not making myself believe when I am doubting, and not making myself doubt when I am believing. Surely neither God nor Accident need my consistency.
+ - There were seventy-five people in the lobby and only a seven-year-old girl was finding out what it felt like to sit on the Marble Floor.
+ - To sing with the voice of angels as we do the work of angels. To laugh with the laugh of Buddha as we go to our awakening. To extend the arms of Jesus to welcome the presence of children and let them climb into our hearts.
+ - Negative feedback is better that none. I would rather have a man hate me than overlook me. As long as he hates me I make a difference.
+ - The first step of letting go: To remove what obstructs your experience of wholeness and peace, you must first look at the obstruction.
+ - By approaching my problems with “What might make things a little better?” rather than “What is the solution?” I avoid setting myself up for certain frustration. My experience has shown me that I am not going to solve anything in one stroke; at best I am only going to chip away at it.
+ - It’s not that we fear the place of darkness, but that we don’t think we are worth the effort to find the place of light.
+ - Today I don’t want to live for, I want to live.
+ - My trouble is I analyze life instead of live it.
+ - I don’t need a “reason” to be happy. I don’t have to consult the future to know how happy I feel now.
+ - If the desire to write is not accompanied by actual writing, then the desire must be not to write.
+ - I talk because I feel, and I talk to you because I want you to know how I feel.
+ - There is no place love is not.
+ - Moods should be heard but never danced to.
+ - I can’t be found in myself; I discover myself in others. That much is clear. And I suspect that I also love and care for myself in others.
+ - If my attention is wandering, there is somewhere it wants to go, so obviously it does not want to be where I am holding it in the name of some self-styled obligation.
+ - Whenever I find myself arguing for something with great passion, I can be certain I’m not convinced.
+ - There is nothing more painful than walking around with bitterness in your heart.
+ - It is enough that I am of value to somebody today.
+ - It seems that the truth is needed today is always a lie by tomorrow.
+ - When we persist in looking for and finding what there is to value within our self, we discover a pure and loving being.
+ - It is your right to be happy. This is what you were made for. And if you will not resist, happiness will find a way to pour from your heart and fill your days.
+ - Our job this day is to become part of the answer to the world’s immense and protracted suffering rather than continuing our ancient task of being part of the difficulty.
+ - Books seek us out. They slip themselves into our hands just at the time we are ready for a new self-concept.
+
+78 quotes

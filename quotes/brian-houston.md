@@ -1,0 +1,29 @@
+ - You’ll never come second by putting God first.
+ - Anything can happen and it probably will.
+ - Be outrageous enough to trust God. Don’t be adjusting your vision downward. Keep believing for radical things in Christ.
+ - Great churches aren’t built on the gifts or talents of a few, but on the sacrifice of many.
+ - The devil doesn’t care how big your church is – he cares how influential it is.
+ - Don’t be fooled into thinking that you have the capacity to achieve your best on your own. A training partner in the gym is a great asset because when you think you have reached your limit, there is someone who can push you to go further.
+ - Simply put, if you want Bible results, you have to live by Bible principles.
+ - Living life with a clear conscience is the fruit of a repentant heart and new life through Jesus Christ.
+ - When ordinary people pray, extraordinary things can happen.
+ - Though there are times when it may seem like God is silent, he is never absent.
+ - The starting point for building great relationships is making wise decisions about who we allow close to us. We need people who will build us up and take us forward, and good friends will do just that.
+ - The way to get the mind of God, is seek to know the heart of God!
+ - Within the soil of a discouraging season can often be the seeds of incredible blessing, miracles and breakthrough!
+ - To choose life with God is to choose a blessed life.
+ - It isn’t about singing a particular hymn or reciting a prayer – it’s about a relationship with your Heavenly Father who loves and cares for you.
+ - Love God. Live Called. It’s not just devotional, it’s vocational!
+ - Leaders goal: Avoid building around only ONE person’s ministry gifting. Longevity is in a team, not an individual!
+ - You don’t change the world out of obligation, but you will out of glorious obsession.
+ - Church should be enjoyed, not endured.
+ - The Church is not an enforcer of rules, but an outpost of grace.
+ - The strength of a good friendship that goes the distance will be unconditional love.
+ - Leaders goal: Understand the power of serving a leader further down the road than you because leadership is contagious.
+ - A blessed life is one that understands that when God saves you, He has others in mind. I believe every Christian needs to know that they are not only saved, but are also called to live a life of purpose.
+ - Every season is filled with lessons.
+ - Love is a very compelling argument.
+ - Authenticity is essential to the soul!
+ - Praise works best at the start, before the miracle, before the breakthrough, before the restoration.
+
+27 quotes

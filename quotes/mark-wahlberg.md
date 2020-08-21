@@ -1,0 +1,91 @@
+ - You can’t have a conscience in the pimp game.
+ - I pray to be a good servant to God, a father, a husband, a son, a friend, a brother, an uncle, a good neighbor, a good leader to those who look up to me, a good follower to those who are serving God and doing the right thing.
+ - I work as hard as anybody will ever work and I like that. That’s why I’ve been successful and that is when I feel good about myself. If I do my damnedest and don’t succeed, I feel good about the effort.
+ - For me, family always comes first I would do anything to protect them.
+ - If I succeed in business but fail as a father, then I’ve failed.
+ - I have more money now than I know what to do with.
+ - This is my most important role. If I fail at this, I fail at everything.
+ - Well every moment, every project is different. I took a very slow approach to acting, trying to really work with people I could learn from. And I got something different out of each experience.
+ - If I can start my day out by saying my prayers and getting myself focused, then I know I’m doing the right thing. That 10 minutes helps me in every way throughout the day.
+ - You have to take everything I say with a grain of salt.
+ - I stopped smoking weed for my kids. One day, we were driving and you could smell it from somewhere. My daughter asked what the smell was so I told her it was a skunk. Then she said, ‘Sometimes Daddy smells like that!’ to me and my wife. So I knew I had to quit.
+ - Music is my life. The last job I had, I was a bricklayer’s apprentice. And I was happy with that job, too, because it was something that made me feel good. To build a wall for the side of a building felt really good to me.
+ - I always root for the bad guy and I don’t think you have a great movie without a great villain.
+ - It’s all about love and how we are all connected.
+ - Being a Catholic is the most important aspect of my life.
+ - I attribute all of my success to my Catholic faith. My faith has given me the ability to be a good father, a good husband and most importantly a good person.
+ - But no, I’m not political. My obligation is to pull the lever and elect somebody who’s going to make life a little better for everybody, especially those who don’t have as much good fortune as others.
+ - I want to give my kids the world, but I also want them to appreciate everything, to succeed, to be good people, to enjoy life. This is my most important role. If I fail at this, I fail at everything.
+ - I can always see something of myself in the characters I play.
+ - There aren’t really many compliments flying around with me and my friends. It’s a lot of tough love. But you know, that love is there, and if you need to have a serious conversation, you just gotta wait for the right time to do it.
+ - I’m much more concerned with being a good dad than a good actor, being there for my children, educating them and hopefully helping them avoid some of the mistakes that I’ve made.
+ - When I was a rapper, the groupies didn’t have to try too hard with me. Just show up at the hotel.
+ - The environment I was raised in, you had to, to survive.
+ - I don’t think God’s going to judge me based on my film work – although I hope he has a sense of humour and I hope he’s a fan of movies because I’ve done some things that may be questionable in his eyes as an actor!
+ - I prepare mentally and physically for everything I do. I like having to do both, because you submerge yourself into the character and the world and you live it until it’s over.
+ - Tiger Woods is the only sports star who’s worth every penny he makes.
+ - I’m always friendly and encouraging on set. I want people to be at their best creatively.
+ - I’ve always wanted to be in the health and wellness business. I try to encourage people to live a healthy lifestyle.
+ - I don’t intend to be insensitive to the victims and their families but, at the same time, as an actor, it’s our job, and we are obligated to portray the characters in the most realistic way possible.
+ - As far as I’m concerned, there’s no job more important on the planet than being a mom.
+ - I grew up in predominantly black neighborhoods and went to predominantly black schools. And hip-hop is what I grew up listening to in my teenage years. Basically I’m just being myself.
+ - James Cagney, Steve McQueen, I loved all those guys. I grew up loving the movies but had no desire to be in them.
+ - Clooney is just a pretty boy, man, and that’s it, OK? I carried him on my back long enough. I’m on my own.
+ - I have a lot of real life experience with hustling and doing stupid stuff.
+ - I like to talk to people. I’ve got one assistant, one Blackberry. That’s my overhead. I don’t text that much or email. I like to sit down face-to-face and have a conversation with you. I’m old-fashioned.
+ - I’m fortunate that my job gives me the motivation to be as fit as possible. I wound up in a profession that requires physical and mental preparation, so I get to prepare like an athlete for everything I do. I’m living the dream, man.
+ - A lot of people tend to chew up the scenery. I’m a firm believer in less is more, especially on the big screen.
+ - Women don’t get the credit they deserve.
+ - He’s a legend and I respect his work, so I went down and paid my respects when Charlton was on the set. He was nice but I think he lied a little. He said it was an honour to be in a movie with me, but I don’t believe it.
+ - I don’t enjoy doing nothing or sitting in my trailer watching ESPN.
+ - I was excited about getting my first tattoo, but I was only twelve, so I had to hide it from my mother.
+ - The first thing I do when I start my day is, I get down on my hands and knees and give thanks to God. Whenever I go outside of my house, the first thing I do is stop at the church.
+ - The best part of a great movie is a great villain and I usually have a tendency to root for the bad guy.
+ - I approach a comedy the same way I do a drama. I try to make it as real as possible.
+ - I miss being able to wake up when I want and go on stage when I want and pull down my pants when I want.
+ - Justin Bieber is like the white Tupac. Compared to a lot of people.
+ - I’ve got a pretty wide range of stuff that I’m interested in in life. But producing it gives me a lot more time at home to spend with my family as opposed to being away on location shooting nights for months at a time.
+ - I always tend to like the characters that I play. I’m convinced that I am this person and I’m OK with whatever they do.
+ - I never lie. I believe everything I say, so its not a lie.
+ - It’s funny, because when you’re younger you’re in a rush to be 18 or 21 or whatever. But then you hit 30. And now, the days go by like hours. You think, 40, man, this could be the halfway point. It could be the three-quarters point, you know? Who knows?
+ - I love being on sets with very seasoned directors as well as very new directors. Every time is a discovery process. You learn something new every time.
+ - Most of the humor comes from how outrageous the situations and circumstances are.
+ - I never got on the course with my dad, but to be playing golf with my kids – that’s a dream.
+ - Having two daughters changed my perspective on a lot of things, and I definitely have a newfound respect for women. And I think I finally became a good and real man when I had a daughter.
+ - I’ve always been into working out and eating healthy. That’s just who I am.
+ - Any time someone says you have an opportunity to work with Martin Scorsese you jump at the chance.
+ - My sons and I thoroughly enjoy Legos. We go to the toy store every week for more. I never want to take what we build apart; I want to put it on a shelf. My wife is starting to get a little annoyed with the Legos lying around.
+ - I just want to do the best possible job with everything that I do. But I’m far more concerned with being a good father as opposed to being a good actor because that’s what’s really going to matter.
+ - I embrace old age. Look, I’m never going to dunk on LeBron James, and I’ve learned to accept that. I got a pretty good life, and I’m very fortunate, and I have my blessings.
+ - If you’re producing a movie you’re involved in every aspect of the movie and that can be daunting and then going and doing a movie where you’re just an actor for hire, and you can kind of sit back and giggle where you can see somebody sitting over there wasting time and wasting money.
+ - I would definitely like to direct at some point. I’ve been very fortunate to work with some amazing talent and study them. But when the right time and the right story arrives, and I feel like I’m compelled to tell it, then I’ll do that.
+ - I don’t go to Mass every day. But I go to church every day. Just sitting there, thinking – it’s a great way to start the morning, you know? You feel so good coming out, and your approach to everything is suddenly really clear.
+ - The success of ‘The Fighter’ made it a lot easier to get ‘Broken City’ green-lit. And the buzz about ‘The Fighter’ also made it a lot easier to get ‘Contraband’ green-lit.
+ - It’s always been a dream of mine, and a childhood fantasy, to play a great champion. I would much rather haven been an athlete than an actor. This is like some second place consolation prize.
+ - I’m the father of two boys and two girls, so I’m more an emotional wreck than a mushball.
+ - I always say one of my favorite things about making movies is finishing on that last day because I get to have my life back and let that go, and hopefully have a real sense of accomplishment at the end of it.
+ - OK, we’re going to land somewhere safely, don’t worry.
+ - I’ve always looked at my career as an athlete would look at his: I won’t play forever. Some don’t know when to walk away, but the smart ones do.
+ - Look, if you’re driving down the highway at 120 miles an hour, I’d rather be behind the wheel than in the backseat.
+ - The world is very different today than it was in 1968.
+ - The only thing I don’t like about acting is that it takes so much time away from my family. Otherwise, I don’t have any complaints.
+ - All that running around in my underwear put money in my pockets. I can focus on working in interesting movies without having to worry about supporting myself.
+ - I don’t wanna hear nobody complain that they’re getting paid all this money and people won’t leave them alone. It’s part of it.
+ - I love movies that are challenging to me both physically and emotionally and that I have to take a lot of time leading up to it to get into that headspace and live in that headspace throughout the course of the production.
+ - Hockey is probably one of the most expensive sports. You have to have a place to play. You have to have the proper equipment. You have to have the transportation to get there.
+ - If I don’t go to mass, necessarily, every day, but I definitely go to the church every day. That’s how I start my day. I like to get in there for about 15 to 20 minutes and say my prayers.
+ - I’ve been in enough movies to know that when you’re on the set and you start shooting, you’re looking at playback and you get a sense of what it’s going to be like.
+ - Movies have kind of become a tad bit uninspired, in that the big studio movies are spending more money to chase the big money with all these franchises and superhero movies. Some of them have been great, but some of them are a little tiresome.
+ - I love roles where I am required to prepare physically. And it’s fun putting on weight and eating.
+ - A lot of talented actors still have to pay their bills.
+ - I want people to come see my films and enjoy them but at the end of the day you can’t control what people think.
+ - There are guys who want to look good, and there are guys who want to perform at their best. Being fit is about being able to perform at your best, not necessarily just looking your best.
+ - I’ve always wanted to do right in life. But the wanting and the doing aren’t quite the same thing.
+ - As soon as I ended up being incarcerated, I said, you know, this is not the life for me.
+ - I don’t like to eat in movies. I don’t like props. Some people have always got to have a thing and they’re doing this or doing that. I hate it. I just want to talk or fight. Or both!
+ - When you go into a starring position and you’re carrying a movie, it’s important that people like it. So I only do things that I can connect with in some sort of way, or that I can identify with.
+ - That whole world, the world of bodybuilding to me is fascinating. It’s such a unique and interesting culture, and everything about it appeals to me.
+ - I like to do projects I feel some connection to.
+ - I approach everything the same. I try to make it as real as possible, whether you gotta make people laugh or make people cry, it’s always the same approach for me. But if I start doing pratfalls, somebody please pull the plug on me.
+
+89 quotes

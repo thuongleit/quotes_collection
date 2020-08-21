@@ -1,0 +1,21 @@
+ - We move through time like a man in a rowboat, looking back even as we move forward.
+ - Predisposition is not predestination.
+ - Probably careful plotting reflects my personality. I am meticulous by nature. I can’t imagine speed-writing anything that happens to pop into my head.
+ - Genes are not simple triggers. No one is hardwired to commit murder or any other crime. Our actions are always the result of stupendously complex gene-environment interactions, and environment is likely to remain the more important influence by far.
+ - I’m a bit of a tech geek myself.
+ - An emotion is a thought, yes, an idea, but it is also a sensation, an ache in your body. Desire, love, hate, fear, repulsion – you feel these things in your muscle and bones, not just in your mind.
+ - The interior of a teenager’s mind is an endless war between Stupid and Clever.
+ - Good stories are driven by conflict, tension, and high stakes.
+ - Damage hardens us all. It will harden you too, when it finds you – and it will find you.
+ - I love sports, as all Bostonians seem to. I love books and movies, as all writers seem to.
+ - You know, being confident isn’t the same as being right.
+ - Well, I outline fanatically. I am a long thinker and a slow writer, though I am trying to get faster.
+ - There is no absolute beginning to any story, after all. There is only the moment you begin watching.
+ - You can write a great book and be ignored. Literary history is full of classics that were under-appreciated in their own time.
+ - I don’t ever write with a particular audience in mind. I just write books that please me.
+ - I can’t say that I ever actually decided to become a writer. It kind of snuck up on me.
+ - I am interested in computers and technology, and art, photography, and design.
+ - There are many more ways to be attractive than to be beautiful.
+ - Crime and legal stories, broadly speaking, are just where my interest happens to lie.
+
+19 quotes

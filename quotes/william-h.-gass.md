@@ -1,0 +1,44 @@
+ - The true alchemists do not change lead into gold; they change the world into words.
+ - Philosophy has a great sort of appeal in terms of an artistic or aesthetic organization of concepts. It’s a conceptual art.
+ - For me, the short story is not a character sketch, a mouse trap, an epiphany, a slice of suburban life. It is the flowering of a symbol center. It is a poem grafted onto sturdier stock.
+ - Some people say their life is full of darkness and I wonder why they don’t just try and switch the lights on.
+ - Blue is therefore most suitable as the color of interior life.
+ - It’s not the word made flesh we want in writing, in poetry and fiction, but the flesh made word.
+ - I write because I hate. A lot. Hard.
+ - Words are the supreme objects. They are minded things.
+ - Freud thought that a psychosis was a waking dream, and that poets were daydreamers too, but I wonder if the reverse is not as often true, and that madness is a fiction lived in like a rented house.
+ - Sports, politics, and religion are the three passions of the badly educated.
+ - Surely it’s better to live in the country, to live on a prairie by a drawing of rivers, in Iowa or Illinois or Indiana, say, than in any city, in any stinking fog of human beings, in any blooming orchard of machines. It ought to be.
+ - What else is soul but a listener?
+ - I publish a piece in order to kill it, so that I won’t have to fool around with it any longer.
+ - The alcoholic trance is not just a haze, as though the eyes were also unshaven. It is not a mere buzzing in the ears, a dizzinessor disturbance of balance. One arrives in the garden again, at nursery time, when the gentle animals are fed and in all the world there are only toys.
+ - And I am in retirement from love.
+ - I do think of my reader, or listener, really, more often, if I give a lecture, for example, and I know that I’m talking to these people; I enjoy sort of preening them a bit. But it’s a matter of decorum, basically.
+ - We converse as we live by repeating, by combining and recombining a few elements over and over again just as nature does when of elementary particles it builds a world.
+ - As Rilke observed, love requires a progressive shortening of the senses: I can see you for miles; I can hear you for blocks, I can smell you, maybe, for a few feet, but I can only touch on contact, taste as I devour.
+ - If death itself were to die, would it have a ghost, and would the ghost of death visit the dead in the guise of someone alive, if only to fright them from any temptation to return?
+ - Of course there is enough to stir our wonder anywhere; there’s enough to love, anywhere, if one is strong enough, if one is diligent enough, if one is perceptive, patient, kind enough – whatever it takes.
+ - I am unlikely to trust a sentence that comes easily.
+ - The body of Our Saviour shat but Our Saviour shat not.
+ - If you were a fully realized person-whatever the hell that would be-you wouldn’t fool around writing books.
+ - Works of art are meant to be lived with and loved, and if we try to understand them, we should try to understand them as we try to understand anyone – in order to know them better, not in order to know something else.
+ - The world of conceptualized ideas is quite wonderful, even when it’s – like Aristotle’s Physics – an outmoded book. The physics is not true. But the reasoning is dazzling.
+ - The speeding reader guts a book the way the skillful clean fish. The gills are gone, the tail, the scales, the fins; then the fillet slides away swifly as though fed to a seal.
+ - The things that stayed were things that didn’t matter except they stayed, night and day, all seasons the same, and were peaceful to a fault and boded no ill but thought well enough of themselves to repeat their presences.
+ - Fiction becomes visual by becoming verbal.
+ - If there were genders to genres, fiction would be unquestionably feminine.
+ - I was struck by the way in which meanings are historically attached to words: it is so accidental, so remote, so twisted. A word is like a schoolgirl’s room – a complete mess – so the great thing is to make out a way of seeing it all as ordered, as right, as inferred and following.
+ - When book and reader’s furrowed brow meet, it isn’t always the book that’s stupid.
+ - My face is muffled in my mother’s clothing. Her rhinestones injure me. See: my feet are going. Fish flee the forefinger of my aunt. The sun streams over the geraniums. What has this to do with what I feel, with what I am.
+ - What one wants to do with stories is screw them up.
+ - It art can only succeed through the cooperating imagination and intelligence of its consumers, who fill out, for themselves, the artist’s world and make it round, and whose own special genius partly determine the ultimate glory of it.
+ - As a teacher, it’s a great help to be teaching philosophical systems you don’t believe. You can actually do a better job of presenting them if you leave your beliefs at the door.
+ - Only the slow reader will notice the odd crowd of images-flier, butcher, seal-which have gathered to comment on the aims and activities of the speeding reader, perhaps like gossips at a wedding.
+ - The expression to write something down suggests a descent of thought to the fingers whose movements immediately falsify it.
+ - I cannot walk under the wires. The sparrows scatter like handfuls of gravel. Really, wires are voices in thin strips. They are words wound in cables. Bars of connection.
+ - I should like to suggest that at least on the face of it a stroke by stroke story of a copulation is exactly as absurd as a chew by chew account of the consumption of a chicken’s wing.
+ - I usually have poor to absent relations with editors because they have a habit of desiring changes and I resist changes.
+ - Getting even is one reason for writing.
+ - Literature is composed of quarter truths, and the quarters are often spent on penny candy.
+
+42 quotes

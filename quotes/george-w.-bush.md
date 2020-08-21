@@ -1,0 +1,502 @@
+ - There’s an old saying in Tennessee – I know it’s in Texas, probably in Tennessee – that says, fool me once, shame on – shame on you. Fool me – you can’t get fooled again.
+ - They misunderestimated me.
+ - I’m the decider, and I decide what is best.
+ - My answer is bring ’em on.
+ - We will not waver; we will not tire; we will not falter, and we will not fail. Peace and Freedom will prevail.
+ - What our enemies have begun, we will finish.
+ - One of the great things about books is sometimes there are some fantastic pictures.
+ - I know the human being and fish can co-exist peacefully.
+ - The thing that’s wrong with the French is that they don’t have a word for entrepreneur.
+ - I know how hard it is for you to put food on your family.
+ - International law? I better call my lawyer; he didn’t bring that up to me.
+ - Whether we bring our enemies to justice or bring justice to our enemies, justice will be done.
+ - When I was young and irresponsible, I was young and irresponsible.
+ - Hindsight alone is not wisdom. And second-guessing is not a strategy.
+ - I think we agree, the past is over.
+ - This business about graceful exit just simply has no realism to it at all.
+ - I don’t worry about long-term history. I won’t be around to read it.
+ - After all, this is a guy that tried to kill my dad at one time.
+ - I have spoken of a thousand points of light, of all the community organizations that are spread like stars throughout the Nation, doing good.
+ - The bond between mothers and their children is one defined by love. As a mother’s prayers for her children are unending, so are the wisdom, grace, and strength they provide to their children.
+ - Civility is not a tactic or a sentiment. It is the determined choice of trust over cynicism, of community over chaos.
+ - Our enemies have made the mistake that America’s enemies always make. They saw liberty and thought they saw weakness. And now, they see defeat.
+ - History is moving, and it will tend toward hope, or tend toward tragedy.
+ - I think – tide turning – see, as I remember – I was raised in the desert, but tides kind of – it’s easy to see a tide turn – did I say those words?
+ - The greatest gift a parent can give a child is unconditional love. As a child wanders and strays, finding his bearings, he needs a sense of absolute love from a parent. There’s nothing wrong with tough love, as long as the love is unconditional.
+ - And I encourage you all to go shopping more.
+ - I don’t particularly like it when people put words in my mouth, either, by the way, unless I say it.
+ - I can hear you, the rest of the world can hear you and the people who knocked these buildings down will hear all of us soon.
+ - Use power to help people. For we are given power not to advance our own purposes nor to make a great show in the world, nor a name. There is but one just use of power and it is to serve people.
+ - Evil knows no holiday.
+ - It’s time to restore honor and dignity to the White House.
+ - God told me to smite Osama bin Laden, so I invaded Afghanistan. Then He told me to smite Saddam Hussein, so I invaded Iraq. Now He wants me to work on the Middle East problem...
+ - It’s your money. You paid for it.
+ - Time is passing. Yet, for the United States of America, there will be no forgetting September the 11th. We will remember every rescuer who died in honor. We will remember every family that lives in grief. We will remember the fire and ash, the last phone calls, the funerals of the children.
+ - I believe that freedom is the deepest need of every human soul.
+ - When I say drop your pants and show me the moon, I’m not just whistling Dixie!
+ - There ought to be limits to freedom. We’re aware of the site, and this guy is just a garbage man.
+ - They have miscalculated me as a leader.
+ - Let us never tolerate outrageous conspiracy theories.
+ - It will take time to restore chaos.
+ - America is successful because of the hard work and creativity and enterprise of our people.
+ - In the corporate world, sometimes things aren’t exactly black and white when it comes to accounting procedures.
+ - There is a natural greenhouse effect that contributes to warming. Greenhouse gases trap heat and thus warm the Earth because they prevent a significant proportion of infrared radiation from escaping into space.
+ - God speaks through me.
+ - Islam brings hope and comfort to millions of people in my country, and to more than a billion people worldwide. Ramadan is also an occasion to remember that Islam gave birth to a rich civilization of learning that has benefited mankind.
+ - The vast majority of our imports come from outside the country.
+ - The war on terror involves Saddam Hussein because of the nature of Saddam Hussein, the history of Saddam Hussein, and his willingness to terrorize himself.
+ - There is no doubt in my mind when history was written, the final page will say: Victory was achieved by the United States of America for the good of the world.
+ - History will prove me right. This is an exercise in folly.
+ - I couldn’t imagine somebody like Osama bin Laden understanding the joy of Chanukah.
+ - I’m a war president. I make decisions here in the Oval Office and foreign policy matters with war on my mind.
+ - I reads every chance I can gets.
+ - Our enemies are innovative and resourceful, and so are we. They never stop thinking about new ways to harm our country and our people, and neither do we.
+ - We ought to make the pie higher.
+ - I inherited half my father’s friends and all his enemies.
+ - Conspiracy theories abound in American politics. I don’t think we need to be subliminable about the differences between our views on prescription drugs.
+ - You cannot lead America to a positive tomorrow with revenge on one’s mind. Revenge is so incredibly negative.
+ - There may be some tough times here in America. But this country has gone through tough times before, and we’re going to do it again.
+ - My administration has a job to do and we’re going to do it. We will rid the world of the evil-doers.
+ - As Governor of Texas, I have set high standards for our public schools, and I have met those standards.
+ - I mean, if you’ve ever been a governor of a state, you understand the vast potential of broadband technology, you understand how hard it is to make sure that physics, for example, is taught in every classroom in the state. It’s difficult to do. It’s, like, cost-prohibitive.
+ - You can’t put democracy and freedom back into a box.
+ - There’s a lot of things that there’s misconceptions. Evidently it’s a misconceptions that Americans believe that Muslims are terrorists.
+ - We will stay the course until the job is done, Steve. And the temptation is to try to get the President or somebody to put a timetable on the definition of getting the job done. We’re just going to stay the course.
+ - Families is where our nation finds hope, where wings take dream.
+ - The nature of the presidency is that sometimes you don’t choose which challenges come to your desk. You do decide how to respond.
+ - All across America, we gather this week with the people we love to give thanks to God for the blessings in our lives.
+ - The face of terror is not the true faith of Islam. That’s not what Islam is all about. Islam is peace. These terrorists don’t represent peace. They represent evil and war.
+ - I can’t wait to join you in the joy of welcoming neighbors back into neighborhoods, and small businesses up and running, and cutting those ribbons that somebody is creating new jobs.
+ - Some folks look at me and see a certain swagger, which in Texas is called ‘walking.’
+ - Outwit, outlast, outplay. It’s the tagline for the television show Survivor and it’s damn near what presidenting is like, too.
+ - These demands are not open to negotiation or discussion.
+ - The best thing about my family is my wife. She is a great first lady. I know that sounds not very objective, but that’s how I feel. And she’s also patient. Putting up with me requires a lot of patience.
+ - Embryonic stem-cell research requires the destruction of life to create a stem cell. That’s why I think we’ve got to be very careful in balancing the ethics and the science.
+ - Our aim is a democratic peace.
+ - There ought to be limits to freedom.
+ - No insignificant person was ever born.
+ - Removing Saddam Hussein was the right decision early in my presidency, it is the right decision now, and it will be the right decision ever.
+ - If you don’t feel something strongly you’re not going to achieve.
+ - This crusade, this war on terrorism is going to take a while.
+ - We cannot let terrorists hold this nation hostile or hold our allies hostile.
+ - Doing nothing in the face of a grave threat to the world is not an option.
+ - To those of you who received honours, awards and distinctions, I say well done. And to the C students, I say you, too, can be president of the United States.
+ - There’s only one person who hugs the mothers and the widows, the wives and the kids upon the death of their loved one. Others hug but having committed the troops, I’ve got an additional responsibility to hug and that’s me and I know what it’s like.
+ - I’m the master of low expectations.
+ - No President has ever done more for human rights than I have.
+ - It’s important for us to explain to our nation that life is important. It’s not only life of babies, but it’s life of children living in, you know, the dark dungeons of the Internet.
+ - More than two decades later, it is hard to imagine the Revolutionary War coming out any other way.
+ - If the Iranians were to have a nuclear weapon they could proliferate.
+ - I pray daily, and I pray in all kinds of places. I mean, I pray in bed, I pray in the Oval Office. I pray a lot. And just different as the spirit moves me. And faith is an integral part of my life.
+ - We’re supposed to have guns. It says so in the Bible; and the second greatest book ever written, the Texas State Constitution.
+ - If you don’t succeed, you run the risk of failure.
+ - Laura and I really don’t realize how bright our children is sometimes until we get an objective analysis.
+ - I come from a different generation from my Dad.
+ - The enemy understands a free Iraq will be a major defeat in their ideology of hatred. That’s why they’re fighting so vociferously.
+ - This storm is dangerous.
+ - Freedom of action in space is as important to the United States as air power and sea power.
+ - I don’t remember debates. I don’t think we spent a lot of time debating it. Maybe we did, but I don’t remember.
+ - We’re still being challenged in Iraq and the reason why is a free Iraq will be a major defeat in the cause of freedom.
+ - Oftentimes people ask me, ‘Why is it that you’re so focused on helping the hungry and diseased in strange parts of the world?’
+ - Saddam Hussein is a homicidal dictator who is addicted to weapons of mass destruction.
+ - What people can dream, people can do.
+ - I believe in grace because I’ve seen it and peace because I’ve felt it and forgiveness because I’ve needed it.
+ - Mankind is drawn to the heavens for the same reason we were once drawn into unknown lands and across the open sea. We choose to explore space because doing so improves our lives, and lifts our national spirit. So let us continue the journey.
+ - Stop throwing the Constitution in my face. It’s just a goddamned piece of paper!
+ - I understand small business growth. I was one.
+ - America is addicted to oil and increasing amounts of this oil comes from abroad. Some of the nations we depend on for oil have unstable governments or are hostile towards the United States.
+ - Rarely is the question asked: Is our children learning?
+ - In the long run, the right answer to unemployment is to create more jobs.
+ - Thanksgiving is a time for families and friends to gather together and express gratitude for all that we have been given, the freedoms we enjoy, and the loved ones who enrich our lives. We recognize that all of these blessings, and life itself, come not from the hand of man but from Almighty God.
+ - Their sacrifice was great, but not in vain. All Americans and every free nation on earth can trace their liberty to the white markers of places like Arlington National Cemetery. And may God keep us ever grateful.
+ - One of my proudest moments is I didn’t sell my soul for the sake of popularity.
+ - Men are like bank accounts. Without a lot of money they don’t generate a lot of interest.
+ - America stands for liberty, for the pursuit of happiness and for the unalienable right for life. This right to life cannot be granted or denied by government because it does not come from government, it comes from the creator of life.
+ - So long as I’m the president, my measure of success is victory – and success.
+ - The United States is a Christian nation founded upon Christian principles and beliefs.
+ - This will not be a campaign of half measures, and we will accept no outcome except victory.
+ - The only thing I know about Slovakia is what I learned first-hand from your foreign minister, who came to Texas.
+ - There is only one course of action against terrorists: to defeat them abroad before they attack us at home.
+ - Values matters well in a race.
+ - Like other forms of stealing, identity theft leaves the victim poor and feeling terribly violated.
+ - He’s my man, he was great.
+ - Our intelligence officials estimate that Saddam Hussein had the materials to produce as much as 500 tons of sarin, mustard and VX nerve agent.
+ - I vowed to our countrymen that I would do everything I could to protect the American people. That’s why I said to Afghanistan: If you harbor a terrorist, you’re just as guilty as the terrorist.
+ - It is clear our nation is reliant upon big foreign oil. More and more of our imports come from overseas.
+ - We have every reason to assume the worst.
+ - My God, the man is a fascist – a fascist, I tell you.
+ - The best way to fight evil is to do some good. Let me qualify that – the best way to fight evil at home is to do some good. The best way to fight them abroad is to unleash the military.
+ - I think that if you don’t think we’re in a war that you can’t win the war.
+ - Only a liberal senator from Massachusetts would say that a 49 percent increase in funding for education was not enough.
+ - Give me a chance to be your president and America will be safer and stronger and better.
+ - The same folks that are bombing innocent people in Iraq were the ones who attacked us in America on September the 11th.
+ - If you raise taxes during a recession, you head to depression.
+ - I fully understand some people don’t believe it’s possible for freedom and democracy to overcome this ideology of hatred. I understand that. I just happen to believe it is possible. And I believe it will happen.
+ - I don’t think you should support the death penalty to seek revenge. I don’t think that’s right. I think the reason to support the death penalty is because it saves other people’s lives.
+ - I support the death penalty because I believe, if administered swiftly and justly, capital punishment is a deterrent against future violence and will save other innocent lives.
+ - We’ve climbed the mighty mountain. I see the valley below, and it’s a valley of peace.
+ - We will export death and violence to the four corners of the earth in defense of our great nation.
+ - We need an energy bill that encourages consumption.
+ - Now, we have inscribed a new memory alongside those others. It’s a memory of tragedy and shock, of loss and mourning. But not only of loss and mourning. It’s also a memory of bravery and self-sacrifice, and the love that lays down its life for a friend-even a friend whose name it never knew.
+ - Wine is like beer except different.
+ - Please don’t kill me!
+ - If you’re a single mother with two children, which is the toughest job in America as far as I’m concerned, and you’re working hard to put food on your family...
+ - I want to thank you for taking time out of your day to come and witness my hanging.
+ - Today the Justice Department did issue a blanket alert. It was in recognition of a general threat we received. This is not the first time the Justice Department have acted like this. I hope it is the last. But given the attitude of the evildoers, it may not be.
+ - We are getting more and more imports from abroad.
+ - I call my philosophy and approach compassionate conservatism. It is compassionate to actively help our fellow citizens in need. It is conservative to insist on responsibility and results. And with this hopeful approach, we will make a real difference in people’s lives.
+ - Border relations between Canada and Mexico have never been better.
+ - America is the land of the second chance – and when the gates of the prison open, the path ahead should lead to a better life.
+ - I am here to make an announcement that this Thursday, ticket counters and airplanes will fly out of Ronald Reagan Airport.
+ - Freedom itself was attacked this morning by a faceless coward, and freedom will be defended.
+ - They call our language the mother tongue because the father seldom gets to speak.
+ - These stories about my intellectual capacity really get under my skin. You know, for a while I even thought my staff believed it. There on my schedule first thing every morning it said, ‘Intelligence Briefing.’
+ - Keep good relations with the Grecians.
+ - You have the freedomness to celebrationalise your birthday according to your own preferentation.
+ - I want to help people help themselves, not have government tell people what to do. I just don’t think it’s the role of the United States to walk into a country and say, we do it this way, so should you.
+ - America needs a military where our breast and brightest are proud to serve.
+ - For decades, the public school system failed too many children, so we passed the No Child Left Behind Act and demanded schools show results in return for money.
+ - These acts shattered steel, but they cannot dent the steel of America’s resolve.
+ - I call upon all nations to do everything they can to stop these terrorist killers. Thank you. Now watch this drive.
+ - We’re not into nation-building. We’re into justice.
+ - There are prayers that help us last through the day, or endure the night. There are prayers of friends and strangers, that give us strength for the journey. And there are prayers that yield our will to a will greater than our own...
+ - For too long our culture has said, “If it feels good, do it.” Now America is embracing a new ethic and a new creed: “Let’s roll”.
+ - Leadership to me means duty, honor, country. It means character, and it means listening from time to time.
+ - Sometimes, words have consequences you don’t intend them to mean.
+ - If we’re an arrogant nation, they’ll resent us; if we’re a humble nation, but strong, they’ll welcome us. And our nation stands alone right now in the world in terms of power, and that’s why we’ve got to be humble, and yet project strength in a way that promotes freedom.
+ - North Korea is a regime arming with missiles and weapons of mass destruction, while starving its citizens.
+ - May He guide us now. And may God continue to bless the United States of America.
+ - Free market capitalism is far more than economic theory. It is the engine of social mobility-the highway to the American Dream.
+ - Grief and tragedy and hatred are only for a time. Goodness, remembrance and love have no end, and the Lord of life holds all who die and all who mourn.
+ - Everywhere that freedom stirs, let tyrants fear.
+ - Islam is a faith that brings comfort to people. It inspires them to lead lives based on honesty, and justice, and compassion.
+ - It’s amazing I won. I was running against peace, prosperity, and incumbency.
+ - Always chew on your pretzels before you swallow.
+ - In my sentences I go where no man has gone before.
+ - I’m honored to shake the hand of a brave Iraqi citizen who had his hand cut off by Saddam Hussein.
+ - Our nation must come together to unite.
+ - More and more of our imports are coming from overseas.
+ - Are the peoples of the Middle East somehow beyond the reach of liberty? Are millions of men and women and children condemned by history or culture to live in despotism? Are they alone never to know freedom and never even to have a choice in the matter?
+ - Let me put it to you this way, I am not a revengeful person.
+ - I didn’t grow up in the ocean – as a matter of fact – near the ocean – I grew up in the desert. Therefore, it was a pleasant contrast to see the ocean. And I particularly like it when I’m fishing.
+ - Well, I think if you say you’re going to do something and don’t do it, that’s trustworthiness.
+ - I remember meeting a mother of a child who was abducted by the North Koreans right here in the Oval Office.
+ - We are a people united by our love for freedom, even when we differ in our personal beliefs. In America, we are free to profess any faith we choose, or no faith at all.
+ - During my senior year I joined Skull and Bones, a secret society, so secret I can’t say anything more.
+ - This thaw – took a while to thaw, it’s going to take a while to unthaw.
+ - If the terriers and bariffs are torn down, this economy will grow.
+ - The German asparagus are fabulous.
+ - There are cameras nowadays that have been developed to tell the difference between a squirrel and a bomb.
+ - Russia is no longer our enemy and therefore we shouldn’t be locked into a Cold War mentality that says we keep the peace by blowing each other up. In my attitude, that’s old, that’s tired, that’s stale.
+ - Let us never tolerate outrageous conspiracy theories concerning the attacks of September the 11th; malicious lies that attempt to shift the blame away from the terrorists, themselves, away from the guilty.
+ - This is a war between good and evil. And we have made it clear to the world that we will stand strong on the side of good, and we expect other nations to join us. This is not a war between our world and their world. It is a war to save the world.
+ - Im a strong proponent of the restoration of the wetlands, for a lot of reasons. Theres a practical reason, though, when it comes to hurricanes: The stronger the wetlands, the more likely the damage of the hurricane.
+ - It is written that adversity introduces us to ourselves.
+ - I heard there’s rumors on the Internets that we’re going to have a draft.
+ - That road to V-E Day was hard and long, and traveled by weary and valiant men. And history will always record where that road began. It began here, with the first footprints on the beaches of Normandy.
+ - I’m a patient man. And when I say I’m a patient man, I mean I’m a patient man.
+ - We can’t allow the world’s worst leaders to blackmail, threaten, hold freedom-loving nations hostage with the world’s worst weapons.
+ - Redefining the role of the United States from enablers to keep the peace to enablers to keep the peace from peacekeepers is going to be an assignment.
+ - Fathers have a unique and irreplaceable role in the lives of children.
+ - I want you to know that farmers are not going to be secondary thoughts to a Bush administration. They will be in the forethought of our thinking.
+ - America will never seek a permission slip to defend the security of our people.
+ - The course of this conflict is not known, yet its outcome is certain. Freedom and fear, justice and cruelty, have always been at war, and we know that God is not neutral between them.
+ - The United States and Israel have enjoyed a friendship built on mutual respect and commitment to democratic principles. Our continuing search for peace in the Middle East begins with a recognition that the ties uniting our two countries can never be broken.
+ - I fully understand it’s important to maintain the separation of church and state. We don’t want the state to become the church, nor do we want the church to become the state.
+ - Mathematics are one of the fundamentaries of educationalizing our youth.
+ - My job is a decision-making job, and as a result, I make a lot of decisions.
+ - Compassionate conservative soft bigotry of low expectations.
+ - Evil men, obsessed with ambition and unburdened by conscience, must be taken very seriously-and we must stop them before their crimes can multiply.
+ - I trust God speaks through me. Without that, I couldn’t do my job.
+ - I will always stand firm to protect the sanctity of marriage. I believe it is important to work with people to find common ground on difficult issues.
+ - I’m also not very analytical. You know I don’t spend a lot of time thinking about myself, about why I do things.
+ - We will build our defenses beyond challenge, lest weakness invite challenge. We will confront weapons of mass destruction, so that a new century is spared new horrors.
+ - Murdering the innocent to advance an ideology is wrong every time everywhere.
+ - There’s no bigger task than protecting the homeland of our country.
+ - Some of the scientists, I believe, haven’t they been changing their opinion a little bit on global warming? There’s a lot of differing opinions and before we react I think it’s best to have the full accounting, full understanding of what’s taking place.
+ - People have access to health care in America. After all, you just go to an emergency room.
+ - Too many of our children cannot read. Reading is the building block, and it must be the foundation for education reform.
+ - I respect every soldier, from every country, who serves beside us in the hard work of history. America is grateful, and America will not forget.
+ - A dictatorship would be a heck of a lot easier, there’s no question about it.
+ - Islam is a vibrant faith. Millions of our fellow citizens are Muslim. We respect the faith. We honor its traditions. Our enemy does not. Our enemy doesn’t follow the great traditions of Islam. They’ve hijacked a great religion.
+ - God’s signs are not always the ones we look for. We learn in tragedy that his purposes are not always our own. Yet the prayers of private suffering, whether in our homes or in this great cathedral, are known and heard, and understood.
+ - When I take action, I’m not going to fire a $2 million missile at a $10 empty tent and hit a camel in the butt. It’s going to be decisive.
+ - Verbosity leads to unclear, inarticulate things.
+ - I think war is a dangerous place.
+ - I think it was in the Rose Garden where I issued this brilliant statement: If I had a magic wand – but the president doesn’t have a magic wand. You just can’t say, ‘low gas.’
+ - We ought to be using nuclear power. It’s a renewable source of energy.
+ - It has come to my attention, that air pollution is polluting the air!
+ - The fundamental question is: ‘Will I be a successful president when it comes to foreign policy?’ I will be, but until I’m the president, it’s going to be hard for me to verify that I think I’ll be more effective.
+ - I will never relent in defending America – whatever it takes.
+ - Suiciders are willing to kill innocent life in order to send the projection that this is an impossible mission.
+ - All of us in America want there to be fairness when it comes to justice.
+ - Hundreds of thousands of American servicemen and women are deployed across the world in the war on terror. By bringing hope to the oppressed, and delivering justice to the violent, they are making America more secure.
+ - There’s no question that the minute I got elected, the storm clouds on the horizon were getting nearly directly overhead.
+ - Quotas are bad for America. It’s not the way America is all about.
+ - The only way we can win is to leave before the job is done.
+ - America has never been united by blood or birth or soil. We are bound by ideals that move us beyond our backgrounds, lift us above our interests and teach us what it means to be citizens.
+ - You cannot lead an alliance if you say you’re going alone.
+ - No matter what your politics is, we ought to be thanking people for volunteering.
+ - We will build new ships to carry man forward into the universe, to gain a new foothold on the moon and to prepare for new journeys to the worlds beyond our own.
+ - I would still invade Iraq even if Iraq never existed.
+ - Put the ‘off’ button on.
+ - We have now reached a turning point in the struggle between freedom and terror.
+ - I aim to be a competitive nation.
+ - It’s a time of sorrow and sadness when we lose a loss of life.
+ - Renewing the promise of America begins with upholding the dignity of human life.
+ - I believe the role of government is to stand side by side with our citizens to help them realize their dreams, not tell citizens how to live their lives.
+ - Concentration of greenhouse gases, especially CO2, have increased substantially since the beginning of the industrial revolution. And the National Academy of Sciences indicates that the increase is due in large part to human activity.
+ - The war in Iraq is a rare opportunity to move toward an historic period of cooperation. Out of these troubled times a new world order can emerge.
+ - And this is an administration – we’re not into nation-building, we’re focused on justice. And we’re going to get justice. It’s going to take a while, probably. But I’m a patient man. Nothing will diminish my will and my determination – nothing.
+ - The United States of America is engaged in a war against an extremist group of folks.
+ - People should be allowed to express their opinion. But, Americans need to know I’ll be making up my mind based upon the latest intelligence and how best to protect our own country, plus our friends and allies.
+ - American nation will not wait to be attacked again. We will defend our freedom and we will take the fight to the enemy.
+ - I’ve made it clear, Madam President, that the war against terrorism is not a war against Muslims, nor is it a war against Arabs. It’s a war against evil people who conduct crimes against innocent people.
+ - Over time it’s going to be important for nations to know they will be held accountable for inactivity. You’re either with us or against us in the fight against terror.
+ - Liberty is the right and hope of all humanity.
+ - I don’t think our troops ought to be used for what’s called nation building.
+ - The Patriot Act closed dangerous gaps in America’s law enforcement and intelligence capabilities, gaps that terrorists exploited when they attacked us.
+ - This is an impressive crowd: the Have’s and Have-more’s. Some people call you the elites. I call you my base.
+ - I haven’t had a chance to talk, but I’m confident we’ll get a bill that I can live with if we don’t.
+ - The agenda of the roadblock is the philosophy of the stop sign.
+ - I understand I’m running against a person who is so anxious to become president, he will do whatever it takes.
+ - It’s the Afghan national army that went into Najaf and did the work there.
+ - I’ve coined new words, like, misunderstanding and Hispanically.
+ - It is one of the great goals of my administration to invigorate the spirit of involvement and citizenship. We will encourage faith-based and community programs without changing their mission.
+ - The momentum of freedom in our world is unmistakable – and it is not carried forward by our power alone. We can trust in that greater power Who guides the unfolding of the years. And in all that is to come, we can know that His purposes are just and true.
+ - Thank you, your Holiness. Awesome speech.
+ - Libraries promote the sharing of knowledge, connecting people of all ages with valuable information resources. These dynamic and modern institutions, and the librarians who staff them, add immeasurably to our quality of life.
+ - Hezbollah is not a state. They’re a, you know, supposed political party that happens to be armed.
+ - The way I see it is, I am a boon to the English language.
+ - I can press when there needs to be pressed; I can hold hands when there needs to be – hold hands.
+ - And this is my solemn pledge: I will work to build a single nation of justice and opportunity. I know this is in our reach because we are guided by a power larger than ourselves who creates us equal in His image.
+ - I just remember, all I’m doing is remembering when I was a kid I remember that they used to put out there in the old west, a wanted poster. It said: “Wanted, Dead or Alive.” All I want and America wants him brought to justice. That’s what we want.
+ - The law I sign today directs new funds and new focus to the task of collecting vital intelligence on terrorist threats and on weapons of mass production.
+ - Each day millions of our citizens approach our Maker on bended knee, seeking His grace and giving thanks for the many blessings He bestows upon us.
+ - I am a person who recognizes the fallacy of humans.
+ - I worry about a culture that devalues life and believe as your president I have an important obligation to foster and encourage respect for life in America and throughout the world.
+ - You cannot solve a problem unless you diagnose the problem.
+ - The terrorists are traitors to their own faith, trying, in effect, to hijack Islam itself. The enemy of America is not our many Muslim friends; it is not our many Arab friends. Our enemy is a radical network of terrorists, and every government that supports them.
+ - People love America. Sometimes they don’t like the decisions made by America, but I don’t think you want a president who tries to become popular and does the wrong thing.
+ - You know, if you find a person that you’ve never seen before getting in a crop-duster that doesn’t belong to you, report it.
+ - It was just inebriating what Midland was all about then.
+ - Natural gas is hemispheric. I like to call it hemispheric in nature because it is a product that we can find in our neighborhoods.
+ - Security is the essential roadblock to achieving the road map to peace.
+ - We must all hear the universal call to like your neighbor just like you like to be liked yourself.
+ - Americans should not expect one battle, but a lengthy campaign, unlike any other we have ever seen. It may include dramatic strikes, visible on TV, and covert operations, secret even in success.
+ - The legislature’s job is to write law. It’s the executive branch’s job to interpret law.
+ - We see in Islam a religion that traces its origins back to God’s call on Abraham. We share your belief in God’s justice, and your insistence on man’s moral responsibility. We thank the many Muslim nations who stand with us against terror. Nations that are often victims of terror, themselves.
+ - We say to seniors, we understand how important prescription drug coverage, so prescription drugs will be an ingrinable part of the Medicare plan.
+ - Prayer has comforted us in sorrow and will help strengthen us for the journey ahead.
+ - We’re fighting people that hates our values. They can’t stand what America stands for.
+ - I have faith, as I did when I announced my stem-cell decision in 2001, that science and ethics can coexist.
+ - The do-not-call registry is still being challenged in court. Yet, the conclusions of the American people, the legislative branch, and the executive branch are beyond question.
+ - I do not think witchcraft is a religion, and I do not think it is in any way appropriate for the US military to promote it.
+ - All Americans must recognize that the face of terror is not the true faith – face of Islam. Islam is a faith that brings comfort to a billion people around the world. It’s a faith that has made brothers and sisters of every race. It’s a faith based upon love, not hate.
+ - As Americans, we want peace – we work and sacrifice for peace. But there can be no peace if our security depends on the will and whims of a ruthless and aggressive dictator. I’m not willing to stake one American life on trusting Saddam Hussein.
+ - People shouldn’t read into venue locations someone’s heart.
+ - I want to thank you for coming to the White House to give me an opportunity to urge you to work with these five senators and three congressmen, to work hard to get this trade promotion authority moving. The power that be, well most of the power that be, sits right here.
+ - A good run adds a little bounce to my step. I get a certain amount of self-esteem from it.
+ - I’ve been in the Bible every day since I’ve been the president.
+ - The problem with golf is I have to deal with a humiliation factor.
+ - What’s all this whining about the environment? They’re always talking about ‘stop the clearcuts.’ I mean do the math people. If we were out of trees then we wouldn’t have any clearcuts to be complaining about now would we?
+ - The rich hire lawyers and accountants for a reason – to pass the tax bill on to you.
+ - I think the fundamentals of the economy are finally in the electronic economy and they are strong are we have reason for great optimism.
+ - But oftentimes I’m asked: Why? Why do you care what happens outside of America?
+ - Either well succeed, or we wont succeed. And the definition of success as I described is sectarian violence down. Success is not no violence.
+ - You’ll hear people say it’s racist to test. Folks, it’s racist not to test. Because guess who gets shuffled through the system oftentimes? Children whose parents don’t speak English as a first language, inner-city kids. It’s so much easier to quit on somebody than to remediate.
+ - It’s important to reach out to moderate Arab nations, like Jordan and Egypt, Saudi Arabia and Kuwait.
+ - I’m telling America we need to not discriminate against faith-based programs. We need to welcome them so our society is more wholesome, more welcoming, and more hopeful for every single citizen.
+ - How great the lie right to the top: We don’t torture people in America and people who say we do simply know nothing about our country.
+ - The illiteracy level of our children are appalling.
+ - The future success of our nation depends on our ability to understand the difference between right and wrong and to have the strength of character to make the right choices.
+ - You’ve just got to do what you think is right, and just make the decisions based upon noble causes. And a noble cause is peace and security and freedom.
+ - There’s not going to be enough people in the system to take advantage of people like me.
+ - Americans to bow our heads in humility before our Heavenly Father, a God who calls us not to judge our neighbors, but to love them, to ask His guidance upon our nation and its leaders in every level of government.
+ - Our Founding Fathers understood that our country would survive and flourish if our Nation was committed to good character and an unyielding dedication to liberty and justice for all.
+ - The CIA laid out several scenarios and said life could be lousy, life could be OK, life could be better, and they were just guessing as to what the conditions might be like.
+ - If most of the breaks go to wealthy people it’s because most of the people who pay taxes are wealthy.
+ - Americans are a free people, who know that freedom is the right of every person and the future of every nation. The liberty we prize is not America’s gift to the world; it is God’s gift to humanity.
+ - We go forward with complete confidence in the eventual triumph of freedom. Not because history runs on the wheels of inevitability; it is human choices that move events. Not because we consider ourselves a chosen nation; God moves and chooses as He wills.
+ - I’ve directed the full resources of our intelligence and law enforcement communities to find those responsible and bring them to justice. We will make no distinction between the terrorists who committed these acts and those who harbor them.
+ - The Patriot Act has increased the flow of information within our government and it has helped break up terrorist cells in the United States of America. And the United States Congress was right to renew the terrorist act – the Patriot Act.
+ - If affirmative action means what I just described, what I’m for, then I’m for it.
+ - We’re spending money on clean coal technology. Do you realize we’ve got 250 million years of coal?
+ - America is a nation of prayer. It’s impossible to tell the story of our nation without telling the story of people who pray.
+ - This is still a dangerous world. It’s a world of madmen and uncertainty and potential mental losses.
+ - Never paint your wife or your mother.
+ - I’m asking Congress to pass my Zero Down Payment Initiative. We should remove the 3 percent down payment rule for first time home buyers with FHA-insured mortgages.
+ - America must not ignore the threat gathering against us. Facing clear evidence of peril, we cannot wait for the final proof, the smoking gun that could come in the form of a mushroom cloud.
+ - If there is a leak out of my administration, I want to know who it is. And if the person has violated the law, the person will be taken care of.
+ - It has sustained me in moments of success and in moments of disappointment. Without it, I’d be a different person. And without it, I doubt I’d be here today.
+ - The best way to defeat the totalitarian of hate is with an ideology of hope – an ideology of hate – excuse me – with an ideology of hope.
+ - I mean, there needs to be a wholesale effort against racial profiling, which is illiterate children.
+ - We’ll let our friends be the peacekeepers and the great country called America will be the pacemakers.
+ - America’s highest economic need is higher ethical standards – enforced by strict laws and upheld by responsible business leaders.
+ - On the issue of evolution, the verdict is still out on how God created the Earth.
+ - Listen, Al Gore is a very tough opponent. He is the incumbent. He represents the incumbency. And a challenger is somebody who generally comes from the pack and wins, if you’re going to win. And that’s where I’m coming from.
+ - Initiative and referendum make government more responsive to its citizens, neutralize the power of the special interests and stimulate public involvement in state issues.
+ - I think we’re making progress. We understand where the power of this country lay. It lies in the hearts and souls of Americans. It must lay in our pocketbooks. It lies in the willingness for people to work hard.
+ - Anyone engaging in illegal financial transactions will be caught and persecuted.
+ - One of the common denominators I have found is that expectations rise above that which is expected.
+ - Thousands of lives were suddenly ended by evil, despicable acts of terror. The pictures of airplanes flying into buildings, fires burning, huge structures collapsing, have filled us with disbelief, terrible sadness and a quiet, unyielding anger.
+ - I love freedom of speech.
+ - Our plan will not favor religious institutions over nonreligious institutions. As president, I’m interested in what is constitutional and I’m interested in what works.
+ - It’s important for young men and women who look at the Nebraska champs to understand that quality of life is more than just blocking shots.
+ - So, I’m lying on the couch and Laura walks in and I say, ‘Free at last,’ and she says ‘You’re free all right, you’re free to do the dishes.’ So I say, ‘You’re talking to the former president, baby,’ and she said, ‘consider this your new domestic policy agenda.’
+ - I don’t make any apologies for what I do on the campaign trail.
+ - As a president, my job is not to promote a religion, my job is to call people to serve our country.
+ - The tyrant has fallen, and Iraq is free.
+ - Throughout our history, the words of the Declaration have inspired immigrants from around the world to set sail to our shores. These immigrants have helped transform 13 small colonies into a great and growing nation of more than 300 people.
+ - I gave them a fair warning.
+ - Not over my dead body will they raise your taxes!
+ - I really appreciate leaders from around the globe who have come to share in prayer with us today. It reminds me that the Almighty God is a God to everybody, every person.
+ - We really don’t need the United Nations approval to act. When it comes to our security, we do not need anyones permission.
+ - I have a duty to protect the executive branch from legislative encroachment.
+ - Any outlaw regime that has ties to terrorist groups or seeks to possess weapons of mass destruction is a grave danger to the civilised world and will be confronted.
+ - Our nation must defend the sanctity of marriage. The outcome of this debate is important-and so is the way we conduct it. The same moral tradition that defines marriage also teaches that each individual has dignity and value in God’s sight.
+ - Freedom is not our gift to the world it is God’s gift to humanity.
+ - We’ve got a cultural issue in America. We’ve got to change the whole way the issue is looked at. That’s the mission. Some in the political process don’t have enough patience for that, and I probably don’t either.
+ - Our democratic faith is more than the creed of our country, it is the inborn hope of our humanity, an ideal we carry but do not own, a trust we bear and pass along. And even after nearly 225 years, we have a long way yet to travel.
+ - For decades, free nations tolerated oppression in the Middle East for the sake of stability. In practice, this approach brought little stability and much oppression, so I have changed this policy.
+ - We live in freedom because every generation has produced patriots willing to serve a cause greater than themselves. Those who serve nowadays are taking their rightful place among the greatest generations that have worn our nation’s uniform.
+ - They want the federal government controlling Social Security like it’s some kind of federal program.
+ - I am a war president.
+ - We must show new energy in fighting back an old evil. Nearly two centuries after the abolition of the transatlantic slave trade, and more than a century after slavery was officially ended in its last strongholds, the trade in human beings for any purpose must not be allowed to thrive in our time.
+ - I can look you in the eye and tell you I feel I’ve tried to solve the problem diplomatically to the max, and would have committed troops both in Afghanistan and Iraq knowing what I know today.
+ - The Islam that we know is a faith devoted to the worship of one God, as revealed through The Holy Qur’an. It teaches the value and the importance of charity, mercy, and peace.
+ - I make decisions based on what I think is best for the country.
+ - See, one of the interesting things in the Oval Office – I love to bring people into the Oval Office – right around the corner from here – and say, this is where I office, but I want you to know the office is always bigger than the person.
+ - Our law enforcement must have every tool necessary to find and disrupt terrorists at home and abroad. That’s the task of the 21st century.
+ - If you don’t stand for anything, you don’t stand for anything!
+ - Our enemies send other people’s children on missions of suicide and murder. They embrace tyranny and death as a cause and a creed. We stand for a different choice – made long ago, on the day of our founding. We affirm it again today. We choose freedom and the dignity of every life.
+ - It’s important that the United States not forget the lessons of September the 11th, 2001. I assure you, I’m not going to forget them.
+ - We got a leader in Iran who has announced that he wants to destroy Israel. So I’ve told people that if you’re interested in avoiding World War III, it seems like you ought to be interested in preventing them from have the knowledge necessary to make a nuclear weapon.
+ - That’s important when you are running an organization so that the people who work with you know what you believe in and know those beliefs won’t change.
+ - I appreciate people’s opinions, but I’m more interested in news. And the best way to get the news is from objective sources. And the most objective sources I have are people on my staff who tell me what’s happening in the world.
+ - Saddam Hussein was a unique threat. And the world is better off without him in power.
+ - Just remember it’s the birds that’s supposed to suffer, not the hunter.
+ - It’s exciting; I don’t know whether I’m going to win or not. I think I am. I do know I’m ready for the job. And, if not, that’s just the way it goes.
+ - Nothing can be further than the truth.
+ - Americans spend 6 billion hours a year filling out their tax reforms.
+ - One has a stronger hand when there’s more people playing your same cards.
+ - Every nation in every region now has a decision to make. Either you are with us, or you are with the terrorists.
+ - Think about that. Two hundred and eighty-five new or expanded programs, $2 trillion more in new spending, and not one new bureaucrat to file out the forms or answer the phones?
+ - I think it’s important to bring somebody from outside the system, the judicial system, somebody that hasn’t been on the bench and, therefore, there’s not a lot of opinions for people to look at.
+ - Our Nation’s founding commitment is still our deepest commitment: In our world, and here at home, we will extend the frontiers of freedom.
+ - We are seeing some challenges and some changes in American business, American enterprise, but the Malcolm Baldrige National Quality Award is a reminder of things that must never change: the passion for excellence, the drive to innovate, the hard work that goes with any successful enterprise.
+ - Before history is written down in books, it is written in courage.
+ - If you’re sick and tired of the politics of cynicism and polls and principles, come and join this campaign.
+ - The terrorists and their supporters declared war on the United States – and war is what they got.
+ - I’m telling you there’s an enemy that would like to attack America, Americans, again. There just is. That’s the reality of the world. And I wish him all the very best.
+ - The biggest threat facing America is terrorists with weapons of mass destruction.
+ - We run a danger of trying to say the casualties are less than other wars or more than expected. It’s just everybody matters, every person matters, and what really matters is having the strategy and the will to make sure any death is honored by achieving an objective.
+ - I thought how proud I am to be standing up beside my dad. Never did it occur to me that he would become the gist for cartoonists.
+ - I confirmed to the prime minister that we appreciate our friendship.
+ - I simply said that I would do everything to help Taiwan to defend itself.
+ - I’ve set a clear doctrine: America makes no distinction between the terrorists and the countries that harbor them. If you harbor a terrorist, you’re just as guilty as the terrorists, and you’re an enemy of the United States of America.
+ - I am mindful that we’re all sinners...
+ - And some needs and hurts are so deep they will only respond to a mentor’s touch or a pastor’s prayer. Church and charity, synagogue and mosque, lend our communities their humanity, and they will have an honored place in our plans and laws.
+ - Forms of government matter, in my opinion. It matters how – the nature of the government in which people live.
+ - The course of this nation does not depend on the decisions of others.
+ - We’re coming with a mighty force to end the reign of your oppressors. We are coming to bring you food and medicine and a better life. And we are coming and we will not stop, we will not relent until your country is free.
+ - Sometimes in this world you make unpopular decisions because you think they’re right.
+ - If the East Timorians decide to revolt, Im sure Ill have a statement.
+ - I wish I wasn’t the war president. Who in the heck wants to be a war president? I don’t.
+ - In terms of the economy, look, I inherited a recession, I am ending on a recession.
+ - We’ve got a lot of relations with countries in our neighborhood.
+ - Mr. Vice President, in all due respect, it is-I’m not sure 80 percent of the people get the death tax. I know this: 100 percent will get it if I’m the president.
+ - For states that support terror, it is not enough that the consequences be costly-they must be devastating.
+ - The wisest use of American strength is to advance freedom.
+ - I would say the best moment of all was when I caught a 7.5 pound largemouth bass in my lake.
+ - Right now, Iraq is expanding and improving facilities that were used for the production of biological weapons.
+ - We do not know how much our climate could or will change in the future. We do not know how fast change will occur or even how some of our actions could impact it.
+ - The best diplomacy starts with getting to know each other.
+ - Listen, I know of nobody – I don’t know of anybody in my administration who leaked classified information. If somebody did leak classified information, I’d like to know it, and we’ll take the appropriate action. And this investigation is a good thing.
+ - In the long run, stability cannot be purchased at the expense of liberty.
+ - The terrorists can kill the innocent, but they cannot stop the advance of freedom.
+ - On September 11 2001, America felt its vulnerability even to threats that gather on the other side of the Earth. We resolved then, and we are resolved today, to confront every threat from any source that could bring sudden terror and suffering to America.
+ - I frankly felt like the reception we received on the way in from the airport was very warm and hospitable. And I want to thank the Canadian people who came out to wave – with all five fingers – for their hospitality.
+ - I equate freedom and peace. And I believe America, given its position in the world, must use our power to promote freedom.
+ - As hope kindles hope, millions more will find it. By our efforts, we have lit a fire as well – a fire in the minds of men. It warms those who feel its power, it burns those who fight its progress, and one day this untamed fire of freedom will reach the darkest corners of our world.
+ - Thousands of trained killers are plotting to attack us, and this terrible knowledge requires us to act differently.
+ - For diplomacy to be effective, words must be credible – and no one can now doubt the word of America.
+ - Some of you in this room support higher taxes. I welcome your enthusiasm and am glad to report that the IRS takes both money orders and checks.
+ - The person who runs FEMA is someone who must have the trust of the president. Because the person who runs FEMA is the first voice, often times, of someone whose life has been turned upside down hears from.
+ - I repeat to you-my own view is, is that if a State-if people decide to-what they do in the privacy of their house, consenting adults should be able to do. This is America. It’s a free society, but it doesn’t mean we have to redefine traditional marriage.
+ - This way of life is worth defending.
+ - I’m the commander – see, I don’t need to explain – I do not need to explain why I say things. That’s the interesting thing about being president.
+ - It’s been a hard lesson for me, but contrary quite frankly to what is a common practice in politics, I can tell from my own experience, it is better to stay away from personalities.
+ - It is time to set aside the old partisan bickering and finger-pointing and name-calling that comes from freeing parents to make different choices for their children.
+ - I do not agree with this notion that somehow if I go to try to attract votes and to lead people toward a better tomorrow somehow I get subscribed to some-some doctrine gets subscribed to me.
+ - I believe a marriage is between a man and a woman.
+ - The advance of freedom is the great story of our time.
+ - The worst of Nature brings out the best in our fellow human beings.
+ - The United States of America will never be intimidated by thugs and assassins. The killers will fail, and the Iraqi people will live in freedom.
+ - We’re concerned about AIDS inside our White House – make no mistake about it.
+ - I believe that God has planted in every heart the desire to live in freedom.
+ - It is important that social, political, and religious freedoms grow in China. A society which recognizes religious freedom is a society which will recognize political freedom as well.
+ - I don’t know, maybe I made it up. Anyway, it’s an arbo-tree-ist, somebody who knows about trees.
+ - Through much of the last century, America’s faith in freedom and democracy was a rock in a raging sea. Now it is a seed upon the wind, taking root in many nations.
+ - Wars are fought on objectives, not on timetable, and that’s why I’ve been so insistent upon not allowing ourselves to have policy driven by time table, but by objective.
+ - One reason I like to highlight reading is, reading is the beginnings of the ability to be a good student. And if you cant read, its going to be hard to realize dreams; its going to be hard to go to college. So when your teachers say, read-you ought to listen to her.
+ - Victory means exit strategy, and it’s important for the president to explain to us what the exit strategy is.
+ - Our enemies believed America was weak and materialistic, that we would splinter in fear and selfishness. They were as wrong as they are evil.
+ - The solution to Iraq – an Iraq that can govern itself, sustain itself and defend itself – is more than a military mission. Precisely the reason why I sent more troops into Baghdad.
+ - The business pages of American newspapers should not read like a scandal sheet.
+ - I don’t want some mom whose son may have recently died to see the commander in chief playing golf. I feel I owe it to the families to be in solidarity as best as I can with them. And I think playing golf during a war just sends the wrong signal.
+ - I was not elected to serve one party.
+ - To give law enforcement the additional tools it needs to track down terror here at home.
+ - Thirdly, the explorationists are willing to only move equipment during the winter, which means they’ll be on ice roads, and remove the equipment as the ice begins to melt, so that the fragile tundra is protected.
+ - I don’t read books, but I have friends who do.
+ - Our Nation must defend the sanctity of marriage.
+ - For every fatal shooting, there are about 3 non-fatal shootings. Folks, this is unacceptable in America.
+ - The crew of the shuttle Columbia did not return safely to Earth; yet we can pray that all are safely home.
+ - The survival of liberty in our land increasingly depends on the success of liberty in other lands.
+ - Our enemies are a radical network of terrorists – and every government that supports them.
+ - But we cannot allow weapons of mass destruction to fall into the hands of terrorists. I will not allow that to happen.
+ - I believe the most solemn duty of the American president is to protect the American people. If America shows uncertainty and weakness in this decade, the world will drift toward tragedy. This will not happen on my watch.
+ - Not far from here where we gather today is a symbol of freedom familiar to all Americans – the Liberty Bell. When the Declaration of Independence was first read in public, the Liberty Bell was sounded in celebration, and a witness said: “It rang as if it meant something.”
+ - A lot of times in the rhetoric, people forget the facts. And the facts are that thousands of small businesses-Hispanically owned or otherwise-pay taxes at the highest marginal rate.
+ - Our new faith-based laws have removed government as a roadblock to people of faith who hear the call.
+ - Freeing people from oppression and despair is eternally right.
+ - I’m going to put people in my place, so when the history of this administration is written at least there’s an authoritarian voice saying exactly what happened.
+ - The reason we start a war is to fight a war, win a war, thereby causing no more war!
+ - I have said that the sanction regime is like Swiss cheese – that meant that they weren’t very effective.
+ - We must help the reformers of the Middle East as they work for freedom, and strive to build a community of peaceful, democratic nations.
+ - It helps me sleep at night.
+ - My attitude is that when we put a youngster in harm’s way, somebody who wears our nation’s uniform in harm’s way, he or she deserves the absolute best.
+ - The United States of America stands for the ability for people to worship freely, the ability for people to vote and to express their opinion freely is something we hold dear.
+ - I don’t see how we can allow public dollars to fund programs where spite and hate is the core of the message. Louis Farrakhan preaches hate.
+ - My administration has been calling upon all the leaders in the – in the Middle East to do everything they can to stop the violence, to tell the different parties involved that peace will never happen.
+ - I believe that people whose skins aren’t necessarily – are a different color than white can self-govern.
+ - This young century will be liberty’s century.
+ - There is only one force of history that can break the reign of hatred and resentment and expose the pretensions of tyrants and reward the hopes of the decent and tolerant. And that is the force of human freedom.
+ - The people in Louisiana must know that all across our country there’s a lot of prayer – prayer for those whose lives have been turned upside down. And I’m one of them.
+ - We know the surface temperature of the Earth is warming. It has risen by .6 degrees Celsius over the past 100 years. There was a warming trend from the 1890s to the 1940s, cooling from the 1940s to the 1970s, and then sharply rising temperatures from the 1970s to today.
+ - Most people in America understand that the rich people hire good accountants and figure out how not to necessarily pay all the taxes that they should be paying.
+ - It’s not the governor’s role to decide who goes to heaven. I believe that God decides who goes to heaven, not George W. Bush.
+ - I suspected there would be a good-size crowd once the word got out about my hanging.
+ - Kosovians can move back in.
+ - Those who feel like they can intimidate our fellow citizens to take out their anger don’t represent the best of America, they represent the worst of humankind, and they should be ashamed of that kind of behavior.
+ - In the future history will be made only by us.
+ - Some have argued that confronting the threat from Iraq could detract from the war against terror. To the contrary, confronting the threat posed by Iraq is crucial to winning the war on terror.
+ - We reflect on what has been lost and comfort those enduring a profound grief. And somehow we know that a brighter morning will come.
+ - I glance at the headlines just to kind of get a flavor for what’s moving. I rarely read the stories, and get briefed by people who are probably read the news themselves.
+ - Information is moving – you know, nightly news is one way, of course, but it’s also moving through the blogosphere and through the Internets.
+ - Reading is the basics for all learning.
+ - The great tradition of America is one where people can worship the way they want to worship. And if they choose not to worship, they’re just as patriotic as your neighbor. That is an essential part of why we are a great nation. If you’re a Jew or a Christian or a Muslim, you’re equally American.
+ - Look at other countries that have tried to have federally controlled health care. They have poor-quality health care. Our health-care system is the envy of the world because we believe in making sure that the decisions are made by doctors and patients, not by officials in the nation’s capital.
+ - I believe that marriage has served society well, and I believe it is important to affirm that, that marriage between a man and a woman is the ideal. And the job of the President is to drive policy toward the ideal.
+ - When our children and grandchildren look back on this period, one question will overwhelm all the rest: Did we do everything in our power to fight and to win the war on terror? That’s the fundamental question this generation faces.
+ - It is a ridiculous notion to assert that because the United States is on the offense, more people want to hurt us. We are on the offense because people do want to hurt us.
+ - One of the very difficult parts of the decision I made on the financial crisis was to use hardworking people’s money to help prevent there to be a crisis.
+ - That’s a chapter, the last chapter of the 20th, 20th, the 21st century that most of us would rather forget. The last chapter of the 20th century. This is the first chapter of the 21st century.
+ - In the end, leaders are defined by the convictions they hold.
+ - I would never use God to promote foreign policy decisions. I recognize that in the eyes of an almighty, I am a lowly sinner, and I ask for strength and wisdom and I pray for calmness when the seas are storming, and I pray for others.
+ - I’ve watched politics for years. Republicans rarely get credit for the good things that happen in the economy during their watch. Democrats always get more credit than they deserve. They are just better at political discourse that we are.
+ - History will look back, and I’m fully prepared to accept any mistakes that history judges to my administration, because the president makes the decisions, the president has to take the responsibility.
+ - We need to have our medical records put on the IT.
+ - When an 18-year-old Palestinian girl is persuaded to blow herself up, and in doing so she kills a 17-year-old Israeli girl, we are watching the future itself die!
+
+500 quotes

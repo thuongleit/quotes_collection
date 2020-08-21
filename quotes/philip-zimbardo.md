@@ -1,0 +1,59 @@
+ - The greatest gift that you can give to others and to yourself is time. Embrace the gift of time whether you give it or receive it.
+ - If you want to change a person, you’ve got to change the situation.
+ - Academic success depends on research and publications.
+ - If you put good apples into a bad situation, you’ll get bad apples.
+ - To be a hero you have to learn to be a deviant – because you’re always going against the conformity of the group.
+ - Evil is knowing better, but willingly doing worse.
+ - Time matters because we are finite, because time is the medium in which we live our lives.
+ - Human behavior is incredibly pliable, plastic.
+ - Time perspective is one of the most powerful influences on all of human behavior. We’re trying to show how people become biased to being exclusively past-, present- or future-oriented.
+ - Our time is brief, and it will pass no matter what we do. So let us have purpose in spending it. Let us spend it so that our time matters to each of us, and matters to all those whose lives we touch.
+ - Heroism is the antidote to evil.
+ - The line between good and evil is movable and it’s permeable.
+ - That human behavior is more influenced by things outside of us than inside. The situation is the external environment. The inner environment is genes, moral history, religious training.
+ - Bullies may be the perpetrators of evil, but it is the evil of passivity of all those who know what is happening and never intervene that perpetuates such abuse.
+ - The line between good and evil is permeable and almost anyone can be induced to cross it when pressured by situational forces.
+ - Bullying is an evil because it not only destroys the life of the kid who’s bullied, but also makes everyone in the class who knows this is going on feel guilty for not doing anything.
+ - I’ve always been curious about the psychology of the person behind the mask...
+ - Boys are 30 percent more likely than girls to drop out of school. In Canada, five boys drop out for every three girls. Girls outperform boys now at every level, from elementary school to graduate school.
+ - When I look back on it, I think, “Why didn’t you stop the cruelty earlier?” To stand back was contrary to my upbringing and nature. When I stood back as a noninterfering experimental scientist, I was, in a sense, as drawn into the power of the situation as any prisoners and guards.
+ - Ideas for my first experiments in human aggression came from discussions we had in a research seminar about William Golding’s ‘Lord of the Flies.’
+ - After doing psychology for half a century, my passion for all of it is greater than ever.
+ - Bullies are often people who are shy and can’t make friends easily, so, as the theme of the movie ‘A Bronx Tale’ tells us, it is better to be feared if you can’t be loved.
+ - Fear is the State’s psychological weapon of choice to frighten citizens into sacrificing their basic freedoms and rule-of-law protections in exchange for the security promised by their all-powerful government.
+ - The Stanford prison experiment came out of class exercises in which I encouraged students to understand the dynamics of prison life.
+ - What happens when good people are put into an evil place? Do they triumph or does the situation dominate their past history and morality?
+ - Situational variables can exert powerful influences over human behavior, more so that we recognize or acknowledge.
+ - Prejudice and discrimination have always been a big part of my life. When I was 6, I got beat up and called dirty Jew boy because they thought I looked Jewish.
+ - While no one can change events that occurred in the past, everyone can change attitudes and beliefs about them.
+ - Being hurt personally triggered a curiosity about how such beliefs are formed.
+ - The world is, was, will always be filled with good and evil, because good and evil is the yin and yang of the human condition.
+ - My early childhood prepared me to be a social psychologist. I grew up in a South Bronx ghetto in a very poor family. From Sicilian origin, I was the first person in my family to complete high school, let alone go to college.
+ - At North Hollywood High School, I was shunned by everyone. I would sit down in the cafeteria, and students would get up from the table and walk away. They thought I was from the Mafia.
+ - Depending on whom you ask, time is money, time is love, time is work, time is play, time is enjoying friends, time is raising children, and time is much more. Time is what you make of it.
+ - Many cults start off with high ideals that get corrupted by leaders or their board of advisors who become power-hungry and dominate and control members lives. No group with high ideals starts off as a cult; they become one when their errant ways are exposed.
+ - Coming from New York, I know that if you go by a delicatessen, and you put a sweet cucumber in the vinegar barrel, the cucumber might say, “No, I want to retain my sweetness.” But it’s hopeless. The barrel will turn the sweet cucumber into a pickle. You can’t be a sweet cucumber in a vinegar barrel.
+ - I started studying shyness in adults in 1972. Shyness operates at so many different levels. Out of that research came the Stanford shyness clinic in 1977.
+ - What troubles me is the Internet and the electronic technology revolution. Shyness is fueled in part by so many people spending huge amounts of time alone, isolated on e-mail, in chat rooms, which reduces their face-to-face contact with other people.
+ - Societal expectations matter little; personal expectations matter tremendously.
+ - Time is the backdrop of our lives and the very fabric of the cosmos.
+ - Heroes are those who can somehow resist the power of the situation and act out of noble motives, or behave in ways that do not demean others when they easily can.
+ - I was discriminated against because I was Jewish, Italian, black and Puerto Rican. But maybe the worst prejudice I experienced was against the poor. I grew up on welfare and often had to move in the middle of the night because we couldn’t pay the rent.
+ - Where can you find purpose? Like success and happiness, our purpose exists in the present, and we constantly strive toward the future to maintain it. What it is for which we strive is up to each of us. The important thing is that we strive toward something.
+ - Mama, humanity is my business.
+ - You are not the same person working alone as you are in a group; in a romantic setting versus an educational one; when you are with close friends or in an anonymous crowd; or when you are traveling abroad as when at home base.
+ - The level of shyness has gone up dramatically in the last decade. I think shyness is an index of social pathology rather than a pathology of the individual.
+ - Sticks and stones can break your bones, but names can kill you.
+ - As a result of the prison study, I really became more aware of the central role of power in our lives. I became more aware of the power I have as a teacher. I started consciously doing things to minimize the negative use of power in the classroom. I encouraged students to challenge me.
+ - I have been primarily interested in how and why ordinary people do unusual things, things that seem alien to their natures. Why do good people sometimes act evil? Why do smart people sometimes do dumb or irrational things?
+ - I’ve always been curious about the psychology of the person behind the mask. When someone is anonymous, it opens the door to all kinds of antisocial behavior, as seen by the Ku Klux Klan.
+ - One can’t live mindfully without being enmeshed in psychological processes that are around us.
+ - It was God who created hell as a place to store evil. He didn’t do a good job of keeping it there though.
+ - The Devil’s strategy for our times is to trivialize human existence and isolate us from one another while creating the delusion that the reasons are time pressures, work demands or economic anxieties.
+ - Companies that model best practices, that model the most upstanding principles, end up as the most profitable. It’s not a trade of profits versus principles.
+ - Research shows that the deciscions of a group as a whole are more thoughtful and creative when there is minority dissent than when it is absent.
+ - Careers in virtually all academic disciplines are fostered by being a superstar who knows more about one subject than anyone else in the world.
+ - There are no limits to what I would do to make my classes exciting, interesting, unpredictable.
+ - Most of us fail to appreciate the extent to which our behavior is under situational control, because we prefer to believe that is all is internally generated. We wander around cloaked in an illusion of vulnerability, mis-armed with an arrogance of free will and rationality.
+
+57 quotes

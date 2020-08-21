@@ -1,0 +1,28 @@
+ - When you’re comfortable in your own skin, you look beautiful, regardless of any flaws.
+ - I think that when somebody, when people really have a connection with each other, they change each other. You become a different person, hopefully a better person, because of it.
+ - It makes a big difference to recycle. It makes a big difference to use recycled products. It makes a big difference to reuse things, to not use the paper cup – and each time you do, that’s a victory.
+ - Farm animals are just as interesting and intelligent as the dogs and cats who we know a bit betterYet they are treated by the meat industry as though they are inanimate objects with no feelings or personalities.
+ - I’m definitely a people person. I love socializing and being around people and having a good conversation.
+ - My whole family is very sarcastic and constantly making jokes.
+ - I think it’s important to remember that to exercise you don’t have to run a sprint.
+ - In school math and science were my favorite subjects, but I probably in my true self I’m more of a people person. At the same time, I don’t think that’s how I recharge.
+ - For me, it always has to be about health. That’s why I’m a vegan. Well, I don’t even do that for my health entirely, I do it for animals.
+ - The minute you become a parent, you’re always going to wonder if you’re doing something wrong, and I certainly experience that on a daily basis. It’s a big challenge, and you can’t help wondering if you’re doing anything wrong. You have to trust your instincts and do what feels right for you.
+ - I really like being pregnant. Not that there aren’t things I don’t love, but when I think about what my body is doing – creating a child – it just blows my mind. I’m in awe of the process and science.
+ - David Boreanaz is pretty funny. He’s probably the one that cracks everybody up the most on set. He can be very serious as well, but when he’s silly he’s pretty silly.
+ - The real challenge for a vegan is getting vitamin B and omega-3s, but you can get those in a vegetarian supplement.
+ - I’ve been a vegan for about 15 years.
+ - I was a hostess in a restaurant in New York when I was 21, and I was too good of an employee. I was putting most of my energy into that instead of acting. But my father told my sister and me to look at whatever needed to be done and do that job well, no matter what it was.
+ - I’m a vegan, but you can be really unhealthy as a vegan, too.
+ - Everything I know about makeup, I’ve learned from my sister.
+ - I’m a vegan, but you can be really unhealthy as a vegan, too. Vegan just means that you don’t use animal products, so you don’t wear leather, you don’t wear wool, and you don’t eat animal products. But you can eat French fries and stuff like that all day long.
+ - It’s very nice to work with my father as a peer in a lot of ways. You know, he asked me advice about certain things about the show and I’d ask him and sometimes I’d listen to his direction and sometimes I wouldn’t.
+ - We can’t spend all day trying to get the performance exactly right and you just have to accept that and move on and accept the medium that you’re working in and you know, there’s a beauty in working under constraints and limitations. I think a lot of great things can come out of that.
+ - When you have a child yourself, you go back and think about how you were parented, how you were mothered and what your parents did for you, and you just want to be able to call and ask them.
+ - My mom breastfed me for more than a year, and I can’t imagine doing it any other way. It’s cheap and much better for the environment, and you don’t have to lug all that stuff around.
+ - I think when you go through something that changes you, it is profound in a way and if somebody is helping you, it brings you closer together.
+ - I think he gets a lot of respect just because he’s my dad, too. Even if he hadn’t had any experience. But I think he comes with a lot of experience and all of that as well, so I think people enjoyed working with him and had fun and also respected him, which was nice.
+ - I have a treadmill, and I work out with my trainer, Julie Diamond, as often as possible. She’s so positive.
+ - I like doing the comedic episodes because it’s refreshing. I enjoy doing comedic things and physical comedy. It’s fun.
+
+26 quotes

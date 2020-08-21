@@ -1,0 +1,25 @@
+ - All great power has to do to destroy itself is persist in trying to do the impossible.
+ - When you close your eyes to tragedy, you close your eyes to greatness.
+ - Whenever you hear the word “inevitable”, watch out! An enemy of humanity has identified himself.
+ - Consistency is a virtue for trains.
+ - The war against Vietnam is only the ghastliest manifestation of what I’d call imperial provincialism, which afflicts America’s whole culture-aware only of its own history, insensible to everything which isn’t part of the local atmosphere.
+ - Most bad books get that way because their authors are engaged in trying to justify themselves. If a vain author is an alcoholic, then the most sympathetically portrayed character in his book will be an alcoholic. This sort of thing is very boring for outsiders.
+ - Thou shalt not let a day pass without rereading something great.
+ - To state a lie firmly, categorically and with great authority, undeterred by the fact that all concerned know it to be a lie, is one of the principal activities defined by the term practising law.
+ - Strange as it may seem, no amount of learning can cure stupidity, and formal education positively fortifies it.
+ - You tell me your favorite novelists and I’ll tell you whom you vote for, or whether you vote at all.
+ - We now have a whole culture based on the assumption that people know nothing and so anything can be said to them.
+ - The only virtue a character needs to possess between hardcovers, even if he bears a real person’s name, is vitality: if he comes to life in our imaginations, he passes the test.
+ - Is it possible that I am not alone in believing that in the dispute between Galileo and the Church, the Church was right and the centre of man’s universe is the earth?
+ - Consistency is a virtue for trains: what we want from a philosopher is insights, whether he comes by them consistently or not.
+ - Dictatorship is a constant lecture instructing you that your feelings, your thoughts and desires are of no account, that you are a nobody and must live as you are told by other people who desire and think for you.
+ - Like all wage slaves, he had two crosses to bear: the people he worked for and the people he worked with.
+ - Great writers are not those who tell us we shouldn’t play with fire, but those who make our fingers burn.
+ - Perhaps in a book review it is not out of place to note that the safety of the state depends on cultivating the imagination.
+ - Powerful men in particular suffer from the delusion that human beings have no memories. I would go so far as to say that the distinguishing trait of powerful men is the psychotic certainty that people forget acts of infamy as easily as their parents birth.
+ - The truth is that our race survived ignorance; it is our scientific genius that will do us in.
+ - To be great is to assume great concerns.
+ - Art experts are unfailingly opposed to Art for the simple reason that they are interested in Art – but Art is not interested in Art. Art is interested in life.
+ - As a rule, the most dangerous ideas are not the ones that divide people but those on which they agree.
+
+23 quotes

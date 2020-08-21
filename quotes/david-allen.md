@@ -1,0 +1,71 @@
+ - You can do anything, but not everything.
+ - If you don’t pay appropriate attention to what has your attention, it will take more of your attention than it deserves.
+ - Your mind is for having ideas, not holding them.
+ - The hardest thing about being productive is not the work, but the split second it takes to decide to take control.
+ - Much of the stress that people feel doesn’t come from having too much to do. It comes from not finishing what they’ve started.
+ - Your ability to generate power is directly proportional to your ability to relax.
+ - Small things done consistently, in strategic places, create major impact.
+ - The sense of anxiety and guilt doesn’t come from having too much to do; it’s the automatic result of breaking agreements with yourself.
+ - There is no reason ever to have the same thought twice, unless you like having that thought.
+ - You can’t manage time, you actually only manage what you do during time. So the management issue is not so much about time, it’s more about how do you manage your focus, how do you manage your actions and your activities in terms of what you do.
+ - There are no interruptions, only mismanaged inputs.
+ - If you’re at zero backlog, it’s a whole lot easier to change priorities.
+ - It’s hard to be fully creative without structure and constraint. Try to paint without a canvas. Creativity and freedom are two sides of the same coin. I like the best of both worlds. Want freedom? Get organized. Want to get organized? Get creative.
+ - If you don’t fall off the wagon regularly, you’re not playing a big enough game.
+ - Use your mind to think about things, rather than think of them. You want to be adding value as you think about projects and people, not simply reminding yourself they exist.
+ - First of all, if it’s on your mind, your mind isn’t clear. Anything you consider unfinished in any way must be captured in a trusted system outside your mind, or what I call a collection bucket, that you know you’ll come back to regularly and sort through.
+ - You can fool everyone else, but you can’t fool your own mind.
+ - There is a light at the end of the tunnel, but the way out is through.
+ - Creativity and freedom are two sides of the same coin. I like the best of both worlds.
+ - I think positive stress is actually a good thing. It’s sort of the stretch goal “Wow, let me see how much faster I can run” or “Let me see how many more ideas I can generate in five minutes.”
+ - The ancestor of every action is a thought. – Ralph Waldo Emerson.
+ - The better you get, the better you better get.
+ - You don’t actually do a project; you can only do action steps related to it.
+ - In Ireland we have a very old saying, When you can see the mountains it’s going to rain and when you can’t see the mountains it’s raining.
+ - Decide the outcome and the action step, put reminders of those somewhere your brain trusts youll see them at the right time, and listen to your brain breathe easier.
+ - The reason that deadline actually can work very well for you is what it forces you to do is make decisions.
+ - The great secret about goals and visions is not the future they describe but the change in the present they engender.
+ - The right amount of complexity is what creates the optimal simplicity.
+ - Once a week, do a thorough review of all your projects in as much detail as you need to. If you do, your systems will work. If you don’t, no system will work.
+ - At at any point in time, knowing what has to get done, and when, creates a terrain for maneuvering.
+ - The balance you have between drive and patience may be your master key to success.
+ - Things rarely get stuck because of lack of time. They get stuck because the doing of them has not been defined.
+ - When we truly need to do is often what we most feel like avoiding.
+ - What you’ll tend to avoid doing is probably the most important thing you need to do because it’ll probably be the most daunting and the most potentially successful thing you could be doing and that’s usually out of people’s comfort zone.
+ - People allow themselves to get distracted; I think ultimately, probably the biggest thing that gets in the way of people doing what they ought to be doing at any point in time is distraction.
+ - Sometimes the biggest gain in productive energy will come from cleaning the cobwebs, dealing with old business, and clearing the desks – cutting loose debris that’s impeding forward motion.
+ - Anything that does not belong where it is, is an “open loop” pulling on your attention.
+ - Your brain has an in-built mechanism for finding patterns you’ve programmed because of where you’ve put your attention. Solutions, innovations, and success come not from greater intelligence or creativity but from what we notice because of where we point those attributes.
+ - There’s a lot of reasons why deadline-driven may actually – it’s not necessarily a bad thing, it just all it does is it speeds up and makes you a little proactive about decision making.
+ - Most people move actually into high performance in a crisis because that creates the kind of focus that creates high performance.
+ - Change – even change meant to improve our lives – creates stress. We can get comfortable with our problems.
+ - Every decision to act is an intuitive one. The challenge is to migrate from hoping it’s the right choice to trusting it’s the right choice.
+ - My opinion is that anybody offended by breastfeeding is staring too hard.
+ - If the only tool you have is a hammer, it’s hard to eat spaghetti.
+ - Anything that causes you to overreact or underreact can control you, and often does.
+ - Why do people complain that there’s no time to get their work done? Because there is more work to do than the work they think they have to do.
+ - Decision-making when things show up instead of when they blow up is actually a habit that can be developed and enhanced. The trick is to get used the clean feeling of having decided, instead of sitting on a fence.
+ - The problem is, is when your focus is created by a crisis, then the frontal lobe shuts down essentially, the frontal cortex which is your intuitive intelligence. So you get very clever and very stupid in a crisis. Also, you pump adrenalin into your body from what you – physiologically you’ll crash.
+ - Trust yourself to do what you really feel like doing, and what you feel like doing will change. Don’t, and it will plague you.
+ - Isn’t it interesting that people feel best about themselves right before they go on vacation? They’ve cleared up all of their to-do piles, closed up transactions, renewed old promises with themselves. My most basic suggestion is that people should do that more than just once a year.
+ - You don’t manage priorities, you have them.
+ - Focusing on values does not simplify your life. It gives meaning and direction-and a lot more complexity.
+ - You won’t see how to do it until you see yourself doing it.
+ - Distracting reactions about anything undermine a clear mind about anything else.
+ - It’s easier to change directions if you are in motion.
+ - Review your list as often as you need to get them off your mind.
+ - The real issue is how to make appropriate choices about what to do at any point in time. The real issue is how we manage actions.
+ - Some people have to move, physically, to “get” something. But if you’re stuck in a chair, that’s not your limitation – it’s simply not an optimal condition for you.
+ - Virtually every problem that would show up in your business can be traced back to communications; somebody didn’t talk to somebody about something.
+ - Most of the stress people experience comes from inappropriately managed commitments they make or accept.
+ - Stress such as you experience in exercise is what creates builds focus, strength, and the capability for expanded expression; and the same is true for any kind of performance.
+ - Mosquitos ruin the safari.
+ - A lot of people have nothing very well organized, and a lot of people have nothing, very well organized.
+ - A Keyring? Achievements? These are not WoW-specific things. They are common sense. They exist in the real world.
+ - Focusing on your values may provide you with meaning, but it won’t simplify things.
+ - If we didn’t have any stress, we’d never grow and you’d probably wouldn’t test your mettle and you’d probably wouldn’t come up with a lot of creative stuff that people come up with by being somewhat on the edge.
+ - Want freedom? Get organized. Want to get organized? Get creative.
+ - Procastination is not about not doing is about not doing and feeling crappy.
+ - Without a gut-level sense that you are ultimately in control of what’s happening to you, you won’t even consider the option that you could manage it better.
+
+69 quotes

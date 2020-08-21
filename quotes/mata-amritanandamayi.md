@@ -1,0 +1,240 @@
+ - Love is the only medicine that can heal the wounds of the world.
+ - Thankfulness is a humble, open and prayerful attitude that helps you receive more of God’s grace.
+ - Chant your mantra while engaged in work. This way, the mind will be continuously focused on Him.
+ - While carrying responsibilities, never forget to smile.
+ - Be like the honeybee who gathers only nectar wherever it goes. Seek the goodness that is found in everyone.
+ - The only way we can feel free is by feeling the pure love within.
+ - Keep a constant awareness and a conscious effort to say good words, perform good actions, and to practice patience and compassion.
+ - Look carefully at what is of value in others and respect that.
+ - Purify the mind through selfless service.
+ - Don’t be discouraged by your incapacity to dispel darkness from the world. Light your little candle and step forward.
+ - Develop the ability to stand back as a witness to your thoughts. This will make your mind strong.
+ - Where there is love, distance doesn’t matter.
+ - Don’t get angry. Try not to speak roughly or use harsh words.
+ - Education for livelihood alone will never make our life full and complete.
+ - When humanity serves Nature, Nature serves humanity. When we serve animals and plants, they too serve us in return.
+ - Keep the child within alive. A child never tires of hearing the birds sing, never gets bored looking at flowers.
+ - Look upon others as being part of yourself.
+ - Intellectual prowess has its limitations. Thus, do not limit the scope of your learning to the realm of the intellect.
+ - True happiness is when the love that is within us finds expression in external activities.
+ - Too much concern about physical security and too little concern about spirituality is the hallmark of today’s world.
+ - Nowadays everybody wants to become a leader. No one wants to become a servant. In reality, the world is badly in need of servants, not leaders. A real servant is a real leader.
+ - Smiling is one of the highest forms of meditation.
+ - The language of love is the language of humility or humbleness.
+ - Our educational system needs to give equal importance to the intellect and the heart.
+ - By living in harmony with Nature one gains a healthy mind and body.
+ - Make a firm decision: ‘Whatever happens, I will be happy. I will be strong. God is always with me.’
+ - God realization and self-realization are one and the same. God-realization is nothing but the ability and expansiveness of heart to love everything equally.
+ - Spiritual love is without limits or boundaries. Worldly love is superficial and fluctuating.
+ - There is the path of karma, selfless action, the path of love and devotion, the path of training the mind and the path of Yoga, mantra and tantra this is what the various saints advocated.
+ - Group chanting and prayer is very powerful. It can bring important changes.
+ - If we keep holding on to God, there is nothing to fear.
+ - A person’s destiny can be changed through the power of a saint.
+ - Those that have an attitude of service towards others are the beauty of society.
+ - When people live in accordance with Nature, the song of life becomes sweet.
+ - When someone is full of Love and Compassion, he cannot draw a line between two countries, two faiths or two religions.
+ - If we have love and compassion in our hearts, then we will wholeheartedly serve those who suffer from lack of food, clothing and shelter.
+ - Love one another without any expectations. Then, there is no need to go anywhere in search of heaven.
+ - Talking high philosophy often confuses people, but a look from an egoless person can lift the clouds of pain and despair.
+ - Human beings are born to experience pure love, and they never get it. They are searching to experience it from birth until death.
+ - Just as armor protects the soldier, spiritual knowledge protects us from the difficulties of life.
+ - Lessen the quantity of unnecessary thoughts and allow more space for the energy of love to flow within you.
+ - Progress is not possible without discipline. A nation, institution, family or individual can advance only by heeding the words of those who deserve respect and by obeying the appropriate rules and regulations. Children, obedience is not weakness. Obedience with humility leads to discipline.
+ - Today, society is sacrificing love, values and dharma in its pursuit of materialistic gains.
+ - It is my children who have made all this possible. My children are my wealth; they are my strength.
+ - Grace is openness. By remaining open, you let go of your ego and narrow-minded views, and allow divine grace to express itself through you.
+ - A seed has to get buried in the soil for its real form as a plant to emerge. Only through modesty and humility can we grow. Pride and conceit will only destroy us. Live with the firm attitude, ‘I am everyone’s servant.’ Then the whole universe will bow down to us.
+ - Transcending the cycle of death and rebirth is the real purpose of this life in human form.
+ - Loving words and deeds are the best alms.
+ - Make use of all free time at the office and elsewhere for chanting your mantra or reading spiritual books. Avoid indulging in unnecessary gossip and try to talk about spiritual subjects with others.
+ - Once you learn the art of relaxation, everything happens spontaneously and effortlessly.
+ - Children, in the present dark age of materialism, chanting the mantra is the easiest way for us to obtain inner purification and concentration. Japa can be done at any time, anywhere, without observing any rule regarding the purity of mind and body. Japa can be done while engaged in any task.
+ - Pray to God: It’s all right if you don’t love me, but please let me love you!
+ - It is not good to give money to everyone who begs; give food or clothing instead. They may misuse the money we give for drinks and drugs. We should not give them a chance to err. Try not to see them as beggars, but as God himself.
+ - Pure love makes you feel as light as a flower. You won’t feel any heaviness or burden. Ego creates the burden.
+ - Learn to be thankful to everyone, to the entire creation, even to your enemy and also to those who insult, because they all help you to grow.
+ - If japa is maintained, no useless talk during work will be possible. The mind will always remain peaceful. Modern day diseases are mostly psychosomatic. Japa will bestow good health to both mind and body.
+ - Remember to set apart at least one hour every day to do some service for others. While the food we eat nurtures our bodies, it is what we give in charity that nurtures our souls. If time is not available daily, reserve at least a few hours every week for some worthwhile act of charity.
+ - Have the conviction that God is your only real relative and friend.
+ - The ashram is Mother’s body. Mother’s soul is in Her children. Children, all the service done for the ashram, is done for Mother. The ashram is not anyone’s private property. It is the means to provide peace and quietude for the entire world.
+ - In today’s world, both men and woman need motherhood, the nurturing motherly feeling, the feminine energy. By receiving this energy, it will make them independent and free.
+ - Love and spiritual values received from parents are the strongest assets for a child to face the various trials of adulthood.
+ - Faith in a higher power helps us to control our mind and thoughts.
+ - Too much reasoning has spoiled the contemporary mind. People have lost their hearts and faith.
+ - We must remember that man is not an island, totally isolated and disconnected from others. We are all part of a universal chain, or the universal consciousness. What happens to one happens to all.
+ - Do your actions in the world, without forgetting that your find goal in life is to break free from all bondage and limitations. Always ’remember that you have a higher goal to attain.
+ - Look at Nature. Nature is a book from which we must learn. Each object in it is a page of that book.
+ - Our ultimate dharma is self-realization. Thoughts and actions that support our spiritual evolution are real dharma.
+ - Every night, contemplate: What good did I do today? How can I do better tomorrow?
+ - The factor stringing together individuals, society and nature is missing from today’s educational system. That factor is spiritual values.
+ - The impermanent, which is the body, is given too much importance. The permanent, which is the Atman, is completely forgotten. This should change.
+ - Try to make others happy, and don’t despair over all the evil in the world. Instead of cursing the dark, let us each light one small lamp.
+ - Let our lives be firmly rooted in Truth. Abstain from lies. In this dark age of materialism, adherence to truth is the greatest austerity. We might have to tell lies now and then to protect somebody or to sustain dharma, but we must be careful not to speak lies for our own selfish purposes.
+ - Our efforts to remove hatred and indifference from the world begin by trying to remove them from our own mind.
+ - Real happiness in life comes from the mental capacity to adapt to any situation.
+ - If we let go of our likes and dislikes, we will become fit vessels to receive the God’s ever flowing grace.
+ - In today’s world, human beings are dying and human machines are taking birth.
+ - No one becomes pure and selfless overnight; it involves time and concentrated effort, coupled with tremendous patience and love.
+ - Real life is developed from within. Real living means that the soul expresses itself through all one’s thoughts, words and actions. A person becomes fearless once he understands the nature of the imperishable soul.
+ - The person who constantly studies without doing spiritual practice is like the fool who attempts to live in the blueprint of a house.
+ - Look at the optimism of Nature. Nothing can stop it. Only the ego makes humans pessimistic, and this causes suffering.
+ - We should try our best to relieve the suffering of others in whatever way we can.
+ - Peace is not a product of an intellectual exercise. It is an inner blossoming that occurs with meditation.
+ - Death is not complete annihilation. It is a pause. It is like pressing the pause button on a tape recorder.
+ - Surrender and living in the present are one and the same.
+ - Any pleasure gained by means other than mental control weakens the body.
+ - Amidst sorrows, the only thing that enlivens us is optimistic faith. Never lose that faith.
+ - Consider any work you do, as work coming from God’s will.
+ - If chanting is not possible during a certain task, then pray before starting it: ‘Lord, give Your blessing so that I may do this work in a manner that pleases You!’ At the end, pray again to the Lord for forgiving any mistakes we may have committed during the task consciously or otherwise.
+ - Whatever work we do, our mind should be centered on God.
+ - A true spiritual seeker should exercise control all the time, throughout the day and night.
+ - When one has truly imbibed spiritual qualities, they will spontaneously be reflected in one’s thoughts and actions.
+ - If you see deficiencies in others, your duty is to forgive instead of pointing at it.
+ - The real mistake humans have committed lays in the inability to differentiate between requirements and luxuries.
+ - Only when human beings are able to perceive and acknowledge the Self in each other can there be real peace.
+ - Controlling the mind is the way to attain internal harmony.
+ - Love is our true essence. Love has no limitations of caste, religion, race, or nationality. We are all beads strung together on the same thread of love. To awaken this unity-and to spread to others the love that is our inherent nature-is the true goal of human life.
+ - As you help those in need, selfishness will fall away. And, without even noticing you will find your own fulfillment.
+ - What makes Amma happy, is to see her children helping others to feel happy.
+ - Fill your hearts with love and gratitude. Life gives us what we need and not necessarily what we want. It follows its own wisdom, which is often incomprehensible to our gross minds. We should learn to accept situations in life. This attitude of acceptance is the secret to happiness.
+ - The sun shines down, and its image reflects in a thousand different pots filled with water. The reflections are many, but they are each reflecting the same sun. Similarly, when we come to know who we truly are, we will see ourselves in all people.
+ - In times of tragedies, our duty is to lend a helping hand to those in grief and thus light lamps of kindness and compassion.
+ - Meditation increases our vitality and strengthens our intelligence. Our beauty is enhanced and our mental accuracy and health are improved. We gain the mental fortitude and patience to face life’s problems. Meditate! Only through meditation can we find the treasure we’re looking for.
+ - To awaken spiritual unity, and to spread to others the love that is our inherent nature, is the true goal of human life.
+ - The change will only happen outside once we change within ourselves.
+ - If we approach Nature with, it will serve us as our best friend, a friend that won’t let us down.
+ - Whatever binds us most, whatever is dearest to us, that is what we should offer the Lord. Doesn’t a mother give her child whatever she thinks is the best?
+ - Children, we should simplify our life’s needs and use the resulting savings for charity.
+ - The first step in spiritual life is to have compassion. A person who is kind and loving never needs to go searching for God. God rushes toward any heart that beats with compassion-it is God’s favorite place.
+ - After praying, and before eating anything, it is a good custom for everyone to feed one another a small portion of the food. This will help to cultivate mutual love and affection among the family members.
+ - Children should observe a regular schedule for sleeping and waking up.
+ - Most human beings know only the language of exploitation. Due to their selfishness, they are unable to consider others.
+ - If we have been able to give happiness to a soul-even for a minute-it makes our life blessed.
+ - Our highest, most important duty in this world is to help our fellow beings.
+ - We give physical exercise to the body, but neglect the heart. The exercise for the heart is uplifting the destitute and the suffering.
+ - When love and compassion fills your heart, you find newness in every moment, and life becomes a celebration.
+ - The intellect always cuts and divides like a pair of scissors. The heart sews things together and unites like a needle. The tailor uses both.
+ - Love is the very foundation, beauty and fulfillment of life. If we dive deep enough into ourselves, we will find that the one thread of universal love ties all beings together. As this awareness dawns within us, peace alone will reign.
+ - Today, our air, food, water-all are polluted. If we do not stop exploiting nature for our temporary selfish gains, we will destroy the world.
+ - Consoling a miserable soul, wiping the tears of a crying person is greater than any worldly achievement.
+ - When we raise one hand to say “bye-bye” we are gesturing that we are going apart from each other, whereas when we join our palms and bow our head, our hearts become closer.
+ - Our attitude should be: Whatever happens I will remain strong, courageous and happy.
+ - Crying to God for five minutes is equal to one hour of meditation.
+ - Finding fault in others, just for the sake of finding fault, we will pollute our own minds.
+ - Progress can be slow and gradual. Continue putting in effort with patience, enthusiasm and faith.
+ - Pure love transcends the body. It is between hearts. It has nothing to do with bodies.
+ - As long as her hands can move a little bit and reach out to those who come to Her, Amma will continue giving darshan.
+ - We have nothing to lose by trusting the infinite power of the Self, except the bondage of our own ignorance.
+ - Many people talk a lot about environmental preservation, but true greatness lies in putting these principles into practice and actually doing something about it.
+ - When the storm brews and the waves swell, only an experienced captain can control the ship and save it.
+ - Everything is God, there is nothing else but God.
+ - People think that God wants our offerings. God does not need anything from us. He is the giver. He is like the sun – the giver of light.
+ - If you have patience, then you’ll also have love. Patience leads to love.
+ - Don’t go empty handed when going to a temple or to see a spiritual master. Offer something as a symbol of surrender, even if it be a mere flower.
+ - What we need is peace of mind. We can gain that only through the control of our mind.
+ - Children, do not listen to those who malign masters and sages. Never listen to or indulge in derogatory talk about anyone. When we harbor negative thoughts about others, our minds become impure.
+ - Just as food and sleep are necessary for the body, spiritual understanding is needed for a healthy mind.
+ - Pray: O Lord, make my eyes see only the good in everyone.
+ - If we have some pet animals, we should feed them also before taking our food. Perceive God in every living being and feed them with that attitude.
+ - The extra luggage of indiscriminate dreams, desires and attachments will make your life’s journey miserable.
+ - Due to our preconceptions regarding education, we fail to inquire into the most obvious and wondrous field of study – ourselves.
+ - As you perform good actions selflessly, true love will blossom, which will purify our emotional mind.
+ - Money is not a problem, but unintelligent attachment to it is.
+ - Unfortunately, the only meaning that society attributes to life today is an opportunity to make money.
+ - Love sustains everything.
+ - Most people are concerned only with what they can get from the world, but it is what we are able to give to others that determines the quality of our life.
+ - If we lose our money while traveling, think how frantically we search for it! In the same way, if we are unable to do japa even for a brief moment, we should grieve: ‘Alas, Lord, I have lost so much time!’ If there is such anguish, even the time we spend sleeping will not be wasted.
+ - Traveling by bus, we see many things on the way and just let them pass by. Watch the thoughts of your minds in the same way.
+ - Our circumstances will continually change. It is out of our control. It is more important to change our attitude, which we have control of.
+ - God is standing at the door of every heart. Call Him. He is waiting to come in.
+ - Happiness depends on how you accept, understand and surrender to situations.
+ - Real love is the complete absence of any negative feelings towards anyone.
+ - Do no talk while eating.
+ - We should serve others without any expectations whatsoever. When others throw thorns at us, we should be able to throw flowers back at them.
+ - Let us take from Nature only what we really need, and try to give back to some extent.
+ - There are thousands ready to die for their religion, but only are few willing to live by its principles. Because of their narrow vision and envy, they have missed the true essence and message of religion which is love and compassion.
+ - Try to gather the strength to live as brother and sister after one or two children are born. This is essential for reaping the full benefit of spiritual practice and to make spiritual progress through mental restraint.
+ - You cannot predict when grace takes place; you can only wait. Relax.
+ - Each and every living being in nature is part of God’s body.
+ - Before death overpowers us, we have great things to accomplish by performing right actions.
+ - Just as our bodies need proper food to live and develop, our souls need love to blossom. The strength and nourishment that love can give our souls is even more potent than the nourishing power of a mother’s milk for a baby.
+ - The indicator of true knowledge is the ability to differentiate what uplifts us from what pulls us down.
+ - Spirituality, as expounded by the great saints and sages of the past, is a very broad path. It accommodates all types of belief systems. You need to satisfy everyone.
+ - Understand this great truth: The happiness that comes from the pleasures of the world is but a minute reflection of the infinite bliss that comes from within your own Self.
+ - Compassion can shoulder the suffering of the entire world without feeling the slightest bit of pain.
+ - Whether we laugh or cry, the days are going to pass by. So why not choose to laugh?
+ - We live in a calculative world and have a calculative mind, and in such a world, ego dominates.
+ - It is man who, through his thoughts and actions, creates turmoil and disintegration in the natural, harmonious unity of the world.
+ - The more intellectual you are, the more egoistic you are, and surrendering becomes more difficult.
+ - At the end of the archana, prostrate, then get up and, remaining on the same spot, turn around clockwise 3 times just as if circling a temple, then bow to the Lord.
+ - In God’s vision, no inside or outside exists. Still, in the beginning, Mother is asking all to meditate on Him in the heart, in order to achieve concentration.
+ - Take a vow for a life of service to others.
+ - Our hearts are the shrine; that is where God should be installed. Our good thoughts are the flowers to worship Him. Good deeds form the worship, good words form the hymns and love forms the offering.
+ - As far as possible, everyone in the family should eat together.
+ - Thinking that God wants something from us is like showing a candle to the sun.
+ - Animals too experience sorrow, love, anger and other emotions.
+ - The more you give, the more your heart is filled. Love is a never ending stream.
+ - Children, we must cultivate reverence towards all great masters, monks and gurus.
+ - If we are not able to fix the Lord firmly in our hearts, even a lifetime of temple-going does not do us any good.
+ - While eating, our attention should not be focused just on the taste. Imagine our chosen deity or guru is present within us and that we are feeding Him. This will turn eating into a spiritual practice.
+ - Any action done with the right attitude, understanding and discrimination will take you closer to liberation. If however, the same action is done without the right attitude, it will bind you.
+ - Children, temples are places where, at least for a short while, the remembrance of God is kindled in our hearts which otherwise are totally immersed in worldly transactions.
+ - Pray May all reach the shore of peace, spreading the sweet holy fragrance of Love and vibrations of unity and harmony.
+ - In this age of selfishness, selfless service is the only soap that truly purifies.
+ - Happiness is within everyone, but we are not able to experience it because of our ego’s likes and dislikes.
+ - Children, everyone should try to wake up before five in the morning. The ideal time for spiritual practices like meditation and chanting is Brahma Muhurta. During this period, sattvic qualities are predominant in nature. Moreover, the mind will be clear and body energetic.
+ - The guru is not someone who is confined to the body. When there is selfless love for the guru, we will be able to see him not only in his body but in every living and nonliving thing in this world. Learn to see everything as the guru’s body and to serve them accordingly.
+ - First, the human mind should be harmonized, then the harmony of Nature will spontaneously take place.
+ - In most cases, worldly love ends in hatred and deep sorrow.
+ - Try not to have any break in chanting the mantra even for a moment. Continue repeating the mantra while engaged in any task. Chanting in the mind may not always be possible at first, so in the beginning, practice japa by moving the lips incessantly-like a fish drinking water.
+ - Just beneath the surface of all experiences in life is God’s, or the Guru’s, compassionate face.
+ - Real success is gaining the ability to face situations in life with maturity.
+ - You can only feel love by expressing it.
+ - For a true disciple, the repetition of the mantra is like food.
+ - Problems arise when you identify with your thoughts and emotions. Try to be a witness to the thoughts instead of being totally identified with them.
+ - Food should be consumed while chanting your mantra inwardly. This will purify the food and the mind at the same time.
+ - Each and every object in Nature teaches us something. Renunciation and selflessness are the greatest lessons to learn from Nature.
+ - Just as the right hand comes to dress the wound on the left hand, we should see another person’s sorrows as our own and come to his or her aid.
+ - There are millions and millions of people who are thrown in the midst of poverty and starvation. Animals don’t die of starvation, only human beings.
+ - Couples should abstain from sexual relations at least 2 or 3 days a week. Gradually try to reach a stage of celibacy most days.
+ - If you are unable to meditate, chant your mantra or sing bhajans.
+ - When you get up in the morning, let your first thought be directed towards God.
+ - Children, we should always eat our food sitting down. Do not eat standing or walking around.
+ - Whatever you see, hear or experience in the world is ephemeral. Get in touch with the eternal substratum of everything.
+ - Children, even if we lose a million dollars, we can recover it. If we lose one second, we cannot get it back. Every moment that we are not remembering God is lost to us.
+ - We human beings are born in ego, live in ego, are brought up in ego and will die in ego. We need a certain degree 0f vision when we live in this world for achieving and attaining our goals in life.
+ - Children, we cannot control our mind without controlling our desire for taste. The health aspect, not the taste, should be the prime criteria in choosing the food. We cannot relish the blossoming of the heart without foregoing the taste of the tongue.
+ - Feel your prayers, feel your mantra and you will feel God.
+ - Married life, if lived with the proper love and understanding, helps awaken the feminine within a man, and the masculine within a woman.
+ - Parents need to nourish spiritual values in their children from a very young age.
+ - If you perform your work viewing it as your dharma, your actions become sacred.
+ - We should fill the syllabuses of schools with lessons about love and compassion.
+ - Love is our true essence.
+ - Our compassion and acts of selflessness take us to the deeper truths.
+ - If the desires are not controlled now, later they will control you.
+ - We should learn to love everyone equally, because in essence we are all one, one Atman, one soul.
+ - May your thoughts, words and actions arise from love.
+ - We should never forget that after every night, there is a dawn. We should never lose our optimistic faith.
+ - A musk deer searches for the source of the fragrance of musk, but it won’t find it because the fragrance comes from within itself. Bliss is not to be found outside of us; it exists within us.
+ - The mental disposition of the one who prepares the food is transmitted to all those who consume it. Therefore, as far as possible the mothers should do the cooking for the entire family. If it is done while chanting the mantra, the food will benefit everyone in a spiritual way.
+ - Go out and serve the suffering. Learn to place others in front of yourself.
+ - Happiness comes from the dissolution of the mind, not from external objects. Through meditation we can achieve everything including bliss, health, strength, intelligence and vitality. But it should be practiced properly in solitude and with care.
+ - We are all beads strung together on the same thread of love.
+ - Contribute to charitable projects like the printing of spiritual books so that they can be sold at a lower price. Poor people will then be able to buy and read them. In this way we can help to cultivate spiritual culture in them also.
+ - Fighting the wounds of the past will only deepen those wounds. Relaxation is the method that heals the wounds of the mind, not reaction.
+ - Be content and happy with whatever comes to you.
+ - The greatest tragedy in life is not death; the greatest tragedy takes place when our talents and capabilities are underutilized and allowed to rust while we are living.
+ - Pray for a peaceful and contented mind in all circumstances.
+ - Children, if we can do archana of the 1000 Names of the Divine Mother daily with devotion, we will grow spiritually. There will never be lack of life’s essentials, food and clothing, in a family that chants the 1000 Names with devotion.
+ - When we come to know who we truly are, we will see ourselves in all people.
+ - Being aware of the bondage is enough to free you from its clutches.
+ - One who goes after the taste of the tongue does not get to know the taste of the heart.
+ - The beauty and charm of selfless love and service should not die away from the face of this earth. The world should know that a life of dedication is possible, that a life inspired by love and service to humanity is possible.
+ - Whatever is associated with the mind is bound to change. The truth is that which is changeless. It is the Self.
+ - Fundamentally, what everyone needs is mental strength and confidence, to manage the mind, just as we manage the outside world.
+ - If you have patience, then you’ll also have love. Patience leads to love. If you forcefully open the petals of a bud, you won’t be able to enjoy its beauty and fragrance. Only when it blossoms by following its natural course, will the beauty and fragrance of a flower unfold.
+ - The relation between husband and wife should turn into a love of the heart untouched by desire.
+ - Children, meditation is not just sitting with our eyes closed. We should take every action as worship. We should be able to experience His presence everywhere.
+ - Try to spend at least 2 or 3 days every month in an ashram. Just breathing the pure air there will purify and strengthen our bodies and minds. Like recharging the batteries, even after returning home we will be able to continue our meditation and japa.
+
+238 quotes

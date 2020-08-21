@@ -1,0 +1,23 @@
+ - A lot of children grow up in poverty with flawed parents, but their inner world is still as inherently filled with wonder and innocence as children who are kept away from the city’s underbelly.
+ - Lonely children probably wrote the Bible.
+ - I have an artistic temperament, which is a really tragic thing.
+ - Love is a big and wonderful idea, but life is made up of small things. As a kid, you have nothing to do with the way the world is run; you just have to hurry to catch up with it.
+ - All writers have the idea that they are famous.
+ - You see only the beautiful things when you stand still. You only see things that you don’t ordinarily notice. The birds are the prettiest things, I imagine.
+ - In Lullabies, I wanted to capture what I remembered of the drunken babbling of unfortunate twelve-year-olds: their illusions, their ludicrously bad choices, their lack of morality and utter disbelief in cause and effect.
+ - Your superhuman power was to be able not to feel. Is it there inside everybody, this self that comes out while you are in captivity? You become the closest approximation of yourself that can tolerate living there.
+ - Adolescents are attracted to tragic heroes. That’s why rock stars dress like homeless people. Adolescence is a fall. It’s when every child becomes an orphan.
+ - It never occurs to you when you are very young to need something other than what your parents have to offer you.
+ - Becoming a child again is what is impossible. That’s what you have a legitimate reason to be upset over. Childhood is the most valuable thing that’s taken away from you in life, if you think about it.
+ - If you want to get a child to love you, then you should just go hide in the closet for three or for hours. They get down on their knees and pray for you to return. That child will turn you into God. Lonely children probably wrote the Bible.
+ - From the way that people have always talked about your heart being broken, it sort of seemed to be a one-time thing. Mine seemed to break all the time.
+ - My breath in the cold air was bleach that accidentally spilled on a black t-shirt.
+ - The real first kiss is the one that tells you what it feels like to be an adult and doesn’t let you be a child anymore. The first kiss is the one that you suffer the consequences of. It was as if I had been playing Russian roulette and finally got the cylinder with the bullet in it.
+ - The ground was silvery, as if some stars had fallen there.
+ - I had a ludicrous childhood, but I feel that I was able to profit from a lot of the idiotic and unfortunate things that happened to me by turning them into fiction.
+ - Somewhere, a sparrow is singing in B minor.
+ - When you’re a kid, if you watch ‘The Jeffersons’ with your family at seven o’clock, it seems like a natural phenomenon, like the sun setting. The universe is a strange, strange place when all of a sudden you can’t use your glass with the Bionic Woman on it any more.
+ - In the temporary illumination of the headlights, the insects were scribbling out messages from God that we couldn’t get.
+ - Adolescents are still children in that they can’t yet tell the difference between make believe and fiction.
+
+21 quotes

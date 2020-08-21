@@ -1,0 +1,65 @@
+ - I’m not anti-Jewish; I’m anti-Zionist.
+ - Get the hell out of Palestine.
+ - I’m of Arab background.
+ - You’re only as good as your last story.
+ - I’ll tell you how I handle stress. I say-This too shall pass. You’ve got to try to stay cool and admit when you’re wrong, and tell them when you’re right.
+ - I love my work, and I think that I was so lucky to pick a profession where it’s a joy to go to work every day.
+ - We are the only institution in our society that can question a president on a regular basis and make him accountable. Otherwise, he could be king.
+ - Life is too short to drink the house wine.
+ - We don’t go into journalism to be popular. It is our job to seek the truth and put constant pressure on our leaders until we get answers.
+ - I censored myself for 50 years when I was a reporter. Now I wake up and ask myself, ‘Who do I hate today?’
+ - Everyone with a cell phone thinks they’re a photographer. Everyone with a laptop thinks they’re a journalist. But they have no training, and they have no idea of what we keep to in terms of standards, as in what’s far out and what’s reality. And they have no dedication to truth.
+ - You didn’t tell a lie, you just left a big hole in the truth.
+ - Try to reject war and give peace a chance. Question the powers that be and find out why they make the dubious decisions they do that send young people to war.
+ - I think that presidents deserve to be questioned. Maybe irreverently, most of the time. Bring ’em down a size. You see a president, ask a question. You have one chance in the barrel. Don’t blow it.
+ - You don’t spread democracy through the barrel of a gun.
+ - I never thought about heaven per se. I think when you’re dead, you’re dead. If anything happens after that, you just hope you don’t go to hell.
+ - I think I’ll work all my life. When you’re having fun, why stop having fun?
+ - Don’t let the politicians chip away at the New Deal and the Great Society programs like Social Security and Medicare, that puts a floor beyond which the elderly, the sick, the powerless do not starve or lack for medicine or shelter.
+ - American journalism’s crazy old aunt in the attic.
+ - It’s time for women to make their voices heard. Their silence on the subject of war and peace is deafening.
+ - People will never know how hard it is to get information, especially if it’s locked up behind official doors where, if politicians had their way, they’d stamp ‘top secret’ on the color of the walls.
+ - Congress, the White House, and Hollywood, Wall Street, are owned by the Zionists.
+ - We’ve got to break through the wall of secrecy. It’s America’s fate.
+ - I got into the Kennedy White House because at the time I was president of the Women’s National Press Club, and they assigned me to cover the early days of the Kennedy campaign. Jackie especially. Everyone was interested in the family.
+ - I wrote that President Bush is passing on to President-elect Obama two wars and an economic debacle. I call it a depression. And he is arming Israel against the Palestinians in every way in Gaza.
+ - Anybody who runs for public office today has got to know his life or her life will be an open book. I’ve decided that if you want to run for public office you have to decide at the age of 5 and live accordingly.
+ - As a reporter having covered him for eight years in the White House, I am sure the press could have done a better job if we had known the real Ronald Reagan.
+ - The presidential news conference is indispensable because it is the only forum in our society where you can be questioned on a regular basis and held accountable.
+ - This is the worst President ever. He George W. Bush is the worst President in all of American history.
+ - I covered two presidents, LBJ and Nixon, who could no longer convince, persuade, or govern, once people had decided they had no credibility, but we seem to be more tolerant now of what I think we should not tolerate.
+ - If we care about the children, the grandchildren, the future generations, we need to make sure that they do not become the cannon fodder of the future.
+ - I deeply regret my comments I made last week regarding the Israelis and the Palestinians. They do not reflect my heart-felt belief that peace will come to the Middle East only when all parties recognize the need for mutual respect and tolerance. May that day come soon.
+ - Truman fired the popular Gen. Douglas MacArthur because he disobeyed orders in the Korean War. Johnson knew that he had reached the endgame in Vietnam when Gen. William Westmoreland, the top commander in Vietnam, requested 240,000 more troops in 1968 for the prolonged war that also could not be won.
+ - We began to see the renovation of our offices as a subtle part of the Nixon war against the press.
+ - I hit the third rail. You cannot criticize Israel in this country and survive.
+ - There are better ways we can transform this virulent hatred – by living our ideals, the Peace Corps, exchange students, teachers, exporting our music, poetry, blue jeans.
+ - All presidents rail against the press. It goes with the turf.
+ - Everybody is in the pocket of the Israeli lobbies.
+ - Q: What do Jesus and Nicole Brown Simpson have in common? A: They were both killed by the Joooooooose.
+ - I’m a liberal, I was born a liberal, and I will be a liberal ’til the day I die.
+ - I’m a liberal, I was born a liberal, I’ll be one till I die. What else should a reporter be when you see so much and when we have such great privilege and access to the truth?
+ - If we lose our title of “land of the free,” what have we got?
+ - I was in Independence, Missouri when Johnson signed the Medicare bill, with Truman standing there. Truman had first proposed Medicare, but couldn’t get it through.
+ - I don’t think a tough question is disrespectful.
+ - The United States has tried for years to live down President Franklin D. Roosevelt’s order during World War II to move Japanese-Americans on the West Coast to inland detention camps on grounds that they might be disloyal.
+ - We got the vote, which we should’ve been born with, in 1920. Everything we’ve had to struggle for it’s ridiculous.
+ - I’m decrepit but I don’t want to give up, and I love my work.
+ - I’ve always felt privileged to cover the White House and to have that ringside seat to history.
+ - You cannot have a democracy without an informed people.
+ - Presidential power was overruled by the high bench in July 1974, when President Nixon was ordered to turn over some audio tapes of his White House conversations, including the ‘smoking gun’ tape of June 23, 1972, that revealing the Watergate cover up.
+ - I covered Kennedy when she was three years old and the darling daughter of President Kennedy who doted on her and whose mother did everything to protect her from the prying press.
+ - Every President hates the Press.
+ - President Bush has asserted the right to wiretap and eavesdrop on any American without a warrant in the name of fighting terrorism. He has asserted presidential power beyond stated constitutional rights, and there is no Republican gutsy enough to call his hand.
+ - Every president thinks that all information that comes to the White House is their private preserve after they all promise an open administration on the campaign trail, but some are more secretive than others. Some want to lock down everything.
+ - The White House used to belong to the American people. At least that’s what I learned from history books and from covering every president starting with John F. Kennedy.
+ - We in the press have a special role since there is no other institution in our society that can hold the President accountable. I do believe that our democracy can endure and prevail only if the American people are informed.
+ - If you want to be President, decide it at the age of five, and then live accordingly.
+ - Maybe the Jefferson case will give members of Congress second thoughts the next time they get ready to legislate away the rights of ordinary Americans.
+ - I have a background and an understanding of what’s happened in the Middle East that a lot of people don’t have, because there’s been no interest.
+ - I had a lot of fun bantering back and forth with Kennedy. But for ease and comfort, it would be Gerald Ford. He was a down-home type. I came from the Midwest and he came from the Midwest. He was nonaggressive and kindly.
+ - But when will our leaders learn – war is not the answer.
+ - I think Obama is handling his image very well, but I think he lacks boldness.
+ - When you’re in the news business, you always expect the unexpected.
+
+63 quotes

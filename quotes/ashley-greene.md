@@ -1,0 +1,59 @@
+ - I can still love an ex as a person, regardless if the breakup was bad. I would never wish anything negative on them. It takes more energy to hate them than to wish them well.
+ - I’ve just decided that I have to continue to live my life and do what I do. Hopefully, people love me because of who I am, not who I pretend to be.
+ - I have a martial arts background and I’m very athletic. So I think if I can find a film where a female is a badass in it – that would just be amazing. They are sometimes hard to find, but I definitely want to do something like that.
+ - Why do people care what I’m wearing or what I’m eating, and why are people looking down on me because I’m not wearing high heels? That’s the downside to being in the public eye.
+ - I feel most beautiful at night, when I take my makeup off and it’s just me.
+ - Growing up my whole life, my mom was telling me how incredible and special I was and that I was going to change the world. I think it’s important for girls to know that they can change the world, that they do have an impact.
+ - I’m independent. If a guy is too clingy or needy, I actually get afraid of hurting him – and I can’t deal with that.
+ - I’m always changing. I still have the same morals and values and foundation of who I was, growing up in Jacksonville, FL, but I’m such a different person from who I was when I was 17. You live and you learn and you grow.
+ - A lot of people like to be supertiny, but I don’t want a child’s body – I want a woman’s body that is extremely fit. It’s so much sexier.
+ - When girls come up and say, “You’re my role model,” it’s really flattering, but it’s also really scary because I’m not perfect and I’m going to make mistakes.
+ - I’m a bit of a workaholic. When I feel like I’m not doing something, it drives me insane.
+ - In California, I do like to just chill out and go to the beach, but I love the energy here. I feel very productive when I’m in New York.
+ - Don’t throw petals on the floor if they have no meaning. I would rather have a fun, casual relationship than have someone pretending they’re completely in love with me.
+ - I hate jealous guys! Everyone can be jealous. We all have that in us. Push the demon down or it’s going to drive the other person away.
+ - I wanted to be a lawyer. I realized I don’t really want to be a lawyer. I want to play a lawyer. Thank God I figured that out.
+ - I’m lucky because my dad taught me to be frugal and save. And that’s important because I want to know that I don’t have to take an acting job for two or three years if I don’t want to and that I’ll still be able to make my house and car payments and buy food for my dogs.
+ - I am certainly not perfect. I don’t think you should try to be perfect for anyone. When you come to terms with that, then you’re OK.
+ - You need someone who is going to help you make that better version of yourself.
+ - I live a dual life. On the red carpet, it’s complete glam. But at home, I’m a jeans and T-shirt kind of girl. Simple can be beautiful.
+ - I honestly don’t have a lot of friends that are actors. Most of my friends I’ve known since sixth grade and are out of the industry. It gives me a sense of reality rather than surrounding myself with a bunch of actors.
+ - You know, my brother won’t walk out of a restaurant with me anymore because he doesn’t want to be linked to me as my new ‘mystery man.’ Same with my close guy friends.
+ - I focus on having a feminine body, a dancer’s body. I do resistance and dance and cardio. I like hiking, swimming, being active. It clears your mind and it’s a good way to decompress.
+ - I want to play a role of a 24-year-old woman, not 17-year-old girls. So I have picked a couple of films like ‘Butter’ to show that. And it’s perfectly fine not to do anything for a year if I don’t find the right thing.
+ - You can’t control the paparazzi. But if you go to Coachella you’re going to get photographed. Whereas if you’re at home, walking down the street you probably won’t. It’s something I’ve learnt to navigate my way around but I try to keep my private life private.
+ - I love Cate Blanchett. She’s extremely classy and has this knack for taking on roles and being very, very strong, but also embedding vulnerability. She has this relatable quality. I like the path she chose.
+ - I think it’s better that life is kind of like a mystery, I think that’s what drives us.
+ - In my second year in Los Angeles, when I was eighteen, I wasn’t getting any bookings, so I stopped going out, stopped partying. It was a matter of getting to the work. I had to focus.
+ - Skinny jeans are usually my go to jean. I do bootleg every once in a while, boyfriend jeans I feel like are so hard to pull off! Skinny jeans are very easy and you can kind of pair anything with them and it will work: heels and boots or nice top or flouncy top.
+ - You never know, when you’re going in to work with people if they’re gonna be friendly or judgmental, or what have you. There’s a ton of insecurities that go into my head, before I start working with someone.
+ - I have a certain way of thinking where I see something, and I know that I want it and I make up my mind – and that’s pretty much all there is to it. It was like, This is what I want to do, and I’m going, and everything’s going to work out. I’m going to be an actress. There was no way around it.
+ - I think with vampires, you can’t really go wrong. For generations, vampires have been a hit because they’re unobtainable, mysterious, sensual, dangerous, kind of sexy.
+ - Acting is a smaller piece in a big puzzle. There are charity things I want to immerse myself in and want to have the time to go and give back to people who don’t have the opportunities I have. It’s a very important thing to me.
+ - I did side planks for my obliques, which are one of my trouble areas. And traditional planks tone your back so you don’t have that little bit of fat hanging over your bra. Ugh!
+ - I work with a charity called Donate My Dress. It’s got chapters all over the country where you can donate special-occasion dresses. Prom is a big deal when you’re 15 years old, and it enables girls who don’t have the money to come in and choose something special.
+ - I’m not going to get drunk at a bar. There are younger girls who look up to me. So I do my best not to stray too far.
+ - I’m an actor, so sometimes there are moments where I think about everything that’s happening and I want to cry. I’m doing what I love and I will be doing it for a very, very long time – and it’s amazing. A lot of people don’t get to do that.
+ - I think that I’m very old fashioned in terms of my film references and what appeals to me, in a way with camera moves and a depth of color to bring things to it.
+ - You do a movie and, even if it’s not a comedy or it’s not an action film, you get a little taste of it, and then I want to do it full force.
+ - If you are going to be with someone all the time, they need to be your best friend.
+ - When I was 15, I worked at a dry cleaner because I wanted Abercrombie Fitch jeans. My mom told me I could have $20 jeans, not $70 jeans, unless I was willing to work for them. So I did!
+ - I go through stages. Randomly, I’ll be attracted to a crazy rocker with tattoos. And I find that I’m extremely attracted to ambition and wit.
+ - I really would love to do a piece like Julia Roberts or Charlize Theron in ‘Erin Brockovich’ or ‘North Country.’ They were both so amazing and so inspiring. I would love to touch someone in the way their performances touched me.
+ - I always liked performing. I always liked being in front of people. That’s one of the things I loved about law; we had mock trials, and I got to go up and state my case. But I took an acting class, and after my first class, I was hooked.
+ - I would spar with the boys at school. This guy I had a crush on, we called him Spitfire – I gave him a bloody nose and lip, so needless to say the romance did not work out!
+ - I did four independent films during the break between ‘Twilight’ and ‘New Moon.’ I haven’t even really had time to sit back and process it all. But when you do finally sit back and think about it, it’s incredible.
+ - What ‘Twilight’ gave me was years to consider how I wanted to work otherwise.
+ - But I don’t do the diet thing anymore. I’m a big believer in feeding your body what it needs. Deny yourself something and you’re going to end up shoving your face full of it.
+ - I’ve gotten very good at detaching whenever I have to go away for three months, which I realize is hard on friends and kind of selfish.
+ - I have a very classic take on fashion. I like my accessories to pop, but in general, my style is pretty classic.
+ - I’ve definitely been in relationships where I’ve given too much, and I’ve been in relationships where I haven’t given enough. I think it’s a work in progress. I have to find that person where it clicks.
+ - I’m very much a girl that likes to have options. That’s the way I am with fashion, and that’s the way I am with my life.
+ - As an actor you want people to know you and there are times you want your pictures taken, but it’s unnerving to walk out of a venue with friends and there are 20 people flashing lights in your face. Do you know how bright those lights are?
+ - The past is the past. As long as it’s not a mass-murderer past! You’re with the person who you’re with as they are now.
+ - I don’t have anything saying, ‘I’m going to do this many new films, and this many comedies.’ But, it’s always exciting for me, whenever it is a new character and something I haven’t done before, and that’s part of what draws me to it.
+ - Comedy is something that I’m definitely looking to get into. I had a little taste of it and I do intend on going to classes for it because I think it’s a different muscle, and it’s hard to find female comedians.
+ - Yeah, I get to fight in ‘Eclipse.’ My trainer is teaching me MMA right now. So. Cool.
+ - I don’t like watching myself. That’s kind of weird but you know it’s not me really, it’s this character, which I think might make it a little easier.
+
+57 quotes

@@ -1,0 +1,28 @@
+ - I am rarely bored alone; I am often bored in groups and crowds.
+ - Quiet is might. Solitude is strength. Introversion is power.
+ - Let’s clear one thing up: Introverts do not hate small talk because we dislike people. We hate small talk because we hate the barrier it creates between people.
+ - When an introvert is quiet, don’t assume he is depressed, snobbish or socially deficient.
+ - Whatever kind of introvert you are, some people will find you ‘too much’ in some ways and ‘not enough’ in others.
+ - For the introvert, conversation can be a very limited forum for self expression. When a song moves you, a writer gets you or a theory enlightens you, you and its creator are connecting in a realm beyond sight or speech.
+ - A good rule of thumb is that any environment that consistently leaves you feeling bad about who you are is the wrong environment.
+ - Introverts are collectors of thoughts, and solitude is where the collection is curated and rearranged to make sense of the present and future.
+ - As an introvert, you can be your own best friend or your worst enemy. The good news is we generally like our own company, a quality that extroverts often envy. We find comfort in solitude and know how to soothe ourselves.
+ - Introverts keep their best stuff inside – that is, until it is ready. And this drives extroverts crazy! The explanation for the introvert’s behavior – and there must be an explanation for this behavior, say the extroverts – is that he or she is antisocial, out of touch, or simply a snob.
+ - When an introvert cares about someone, she also wants contact, not so much to keep up with the events of the other person’s life, but to keep up with what’s inside: the evolution of ideas, values, thoughts, and feelings.
+ - An introvert may feel asocial when pressured to go to a party that doesn’t interest her. But for her, the event does not promise meaningful interaction. In fact, she knows that the party will leave her feeling more alone and alienated.
+ - Introvert conversations are like jazz. Each player gets to solo for a nice stretch before the other player comes in and does his solo.
+ - Introverts are more effective leaders of proactive employees. When you have a creative, energetic work force, an introvert is going to draw out that energy better.
+ - If you ask an introvert a question, wait until she thinks about it. Introverts think before speaking, not through speaking. If you want to get to the good stuff, you need to slow down.
+ - Though introverts are drained by interaction, we can take immense pleasure in watching the scene around us.
+ - Reading is like travel, allowing you to exit your own life for a bit, and to come back with a renewed, even inspired, perspective.
+ - Introverts like being introverts. We are drawn to ideas, we are passionate observers, and for us, solitude is rich and generative.
+ - Introvert, her brain responds with a high level of activity, it is as if several lights start flashing on a control panel.
+ - Your nature is not the problem. The problem is that you have become alienated from your nature – from your power source.
+ - Introverts paradoxically pull away from culture and create culture.
+ - Isn’t it refreshing to know that what comes perfectly natural for you is your greatest strength? Your power is in your nature. You may not think it’s a big deal that you can spend hours immersed in something that interests you-alone-but the extrovert next door has no idea how you do it.
+ - What we share as introverts is the love of ideas and the desire to explore them with minimal interruption. We want and need input, but we’d rather get it through reading, research, and rich conversation than through unfiltered talk.
+ - This is why it is sometimes hard for introverts to find words: we really hate to compromise, and words are always a compromise.
+ - One of the best places for a shy person to meet people is in a coffee shop. If you are a reader, bring a book and read it there – that gives a guy something to ask you about. Same goes for sketching, writing, or any hobby you can take with you.
+ - A shy kid might look longingly at other kids playing in the schoolyard, afraid and unsure about how to approach them, but an introvert is perfectly content on her own.
+
+26 quotes

@@ -1,0 +1,23 @@
+ - Every man if he so desires becomes sculptor of his own brain.
+ - As long as our brain is a mystery, the universe, the reflection of the structure of the brain will also be a mystery.
+ - Intellectual work is an act of creation. It is as if the mental image that is studied over a period of time were to sprout appendages like an ameba – outgrowths that extend in all directions while avoiding one obstacle after another – before interdigitating with related ideas.
+ - In summary, all great work is the fruit of patience and perseverance, combined with tenacious concentration on a subject over a period of months or years.
+ - Physical pain is easily forgotten, but a moral chagrin lasts indefinitely.
+ - In adult centers the nerve paths are something fixed, ended, immutable. Everything may die, nothing may be regenerated.
+ - Unfortunately, nature seems unaware of our intellectual need for convenience and unity, and very often takes delight in complication and diversity.
+ - The worst part is not in making a mistake but in trying to justify it, instead of using it as a heaven-sent warning of our mindlessness or our ignorance.
+ - There are no small problems. Problems that appear small are large problems that are not understood.
+ - Nothing inspires more reverence and awe in me than an old man who knows how to change his mind.
+ - To solicit the aid of luck is like stirring muddy water to bring objects submerged at the bottom to the top where they can be seen. Every worker would to well to tempt their good luck. Nevertheless, we should not depend on it too much.
+ - It is idle to dispute with old men. Their opinions, like their cranial sutures, are ossified.
+ - The brain is a world consisting of a number of unexplored continents and great stretches of unknown territory.
+ - Like the enotmologist in search of colorful butterflies, my attention has chased in the gardens of the grey matter cells with delicate and elegant shapes, the mysterious butterflies of the soul, whose beating of wings may one day reveal to us the secrets of the mind.
+ - Our novice runs the risk of failure without additional traits: a strong inclination toward originality, a taste for research, and a desire to experience the incomparable gratification associated with the act of discovery itself.
+ - Buffon said unreservedly, “Genius is simply patience carried to the extreme.” To those who asked how he achieved fame he replied: “By spending forty years of my life bent over my writing desk.”
+ - Even granting that the genius subjected to the test of critical inspection emerges free from all error, we should consider that everything he has discovered in a given domain is almost nothing in comparison with what is left to be discovered.
+ - That which enters the mind through reason can be corrected. That which is admitted through faith, hardly ever.
+ - It is notorious that the desire to live increases as life itself shortens.
+ - Intellectual beauty is sufficient unto itself, and only for it rather than for the future good of humanity does the scholar condemn himself to arduous and painful labors.
+ - What a cruel irony of fate, to pair together, like Siamese twins united by the shoulders, scientific adversaries of such contrasting character!
+
+21 quotes

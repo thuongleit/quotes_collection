@@ -1,0 +1,47 @@
+ - Without love we are not truly living.
+ - Year by year I learn more about myself, and I think that confidence and honesty and just really being true to yourself is probably the most beautiful thing that you can do for yourself and the people around you.
+ - Every day is an opportunity to fall or hurt yourself.
+ - I’m a very understanding person. That’s something I was raised to be aware of – not everybody has the same shoes to fill or walks the same way or is on the same path.
+ - You just realize at the end of the day, everyone is going to have their opinion on your life, more and more so as you go along. As long as you’re getting to work and be a part of it – still having fun, learn to just not sweat it so much and keep doing the things you love.
+ - My father was a general manager with Hyatt, so we lived in the hotel so he would be close by if there were any problems. My mum was always adamant about us not abusing it. So I still had to clean my room. Housekeeping would never come and do it.
+ - When you’re sad, you’re not sad. You are merely oblivious to the good things in your life. There is always a crack of light in the darkness. Find it.
+ - Stress is the worst thing. That’s the ultimate demise of any good thing.
+ - Maybe I was a pirate in my past life. I didn’t kill people, though. I was just a badass.
+ - Life isn’t always smooth sailing and sometimes you’re afraid of hurting somebody’s feelings, or anything, but I think that the truer you can be to yourself the more you’re going to kind of open your horizons to a really beautiful relationship.
+ - Kindness moves mountains. Acceptance opens doors, makes room for change, diffuses misunderstandin g.
+ - Look, we are human, we make mistakes. I will gladly shout from the rooftops that I am not perfect. Nor will I ever be.
+ - I feel as if I go to Africa, I may never come back. I’m just going to live with the animals and adopt an elephant, and it’s going to be my friend.
+ - I think that people vibe off your energy and I’m a pretty mellow person.
+ - My back-up plan is always to take a trip. That’s never a bad option. That’s always a good option.
+ - Beautiful. True. Words to remind yourself, words to live by.
+ - I am not a sports girl.
+ - There are two types of paparazzi. The ones who hide who get you with your mouth hanging wide open or jumping up and down like an idiot on the street. I much prefer them to the ones who come out and follow you.
+ - I’ve kissed girls before, it’s fun!
+ - Keep going on hikes, keep having your friends in your life, keep that downtime sacred as well because as hard as you work in any job, it’s really nice to have the relaxing de-stressors. Stress is the worst thing. That’s the ultimate demise of any good thing.
+ - I think that as an artist, the more that you can do to diversify, and kind of challenge yourself, the more you grow.
+ - My goal has always been not to look forward to the next thing, but to relish and celebrate the successes I have at the moment. Whether it’s landing a part in a student film or having a good day in acting class, I never discredit anything.
+ - Painting, drawing – I’m really into photography, I’ve done it since high school.
+ - You have to protect the integrity of the show, your health, the character, all those things. So it’s just about finding the right moments for everything. And if you’re too stressed or tired, you to just back off for a little bit.
+ - I must say, I am trying to live my life with a sharpie marker approach. You can’t erase the strokes you’ve made, but each step is much bolder and more deliberate.
+ - I sold my first screenplay six months before ‘Glee,’ but they had the option for a year and now it’s back with me.
+ - Sometimes you can incorporate things that you’ve experienced in your life and use that. And other times you know what that feeling is of hurt, of love, of anger, of depression, and you do whatever it takes to get there in your mind and use it to your advantage, whichever way it works best.
+ - What’s great is that starting a blog can get you lot of attention for your writing. But it doesn’t have to be for anybody other than yourself.
+ - We are all the best versions of ourselves when we have love and acceptance in our lives.
+ - Dancing is why I love music as much as I do and vice-versa, and there aren’t many things better than those two combined.
+ - It’s really sad looking at people like Lindsay Lohan. She’s an amazing actress, but you see what happens when people know too much about your personal life. They start not being able to look at you the same way professionally. I don’t want that to happen to me.
+ - I guess my voice kind of changed in middle school. It was what it is now. I remember there was this boy who used to walk behind me and sing that song that goes, “Walk like a man, talk like a man” and I was devastated. So I learned that I can pick up my voice if I want to.
+ - I used to wear more makeup, but I’ve learned to enjoy being natural.
+ - What a world we live in. I want to be incredibly close to the heart of it all. To live honestly, truthfully and to be completely present is the ultimate enterprise. And right now, I couldn’t possibly ask for anything more. I am a very lucky girl.
+ - I’ve been lucky to travel through quite a bit of Europe and Australia, but I would love to do Asia and South America and South Africa.
+ - Having a dance background, I became used to rejection at an early age. Dance is very competitive, especially for a sensitive person like me. But I realized it’s better not to take it so seriously. If you beat yourself up, it’s hard to keep going.
+ - I definitely wasn’t cool in high school. I really wasn’t. I did belong to many of the clubs and was in leadership on yearbook and did the musical theater route, so I had friends in all areas, but I certainly did not know what to wear, did not know how to do my hair, all those things.
+ - When you work really hard, and it’s organic and together, you can have more fun.
+ - I think if I hadn’t had the dance background, it would have been much harder as a kid to be like, ‘I’m going to be an actress.’ But you’re involved with one area of the arts and other things interest you. It feels like an easier move.
+ - Once a month, try something you don’t think you’d be good at. You can find such happy surprises.
+ - There was this project I really wanted before ‘Glee’ and I didn’t get cast – I went in about 13 times and I was so bummed when I didn’t get it. But then a month later I got cast on ‘Glee,’ and I felt like it was meant to happen.
+ - I have equal parts film and digital cameras in my collection. I think that there are ways to Photoshop photos so that they look like you shot them on film, but is that as rewarding? It just depends on the person.
+ - Photography has definitely been my favorite way to remember things. At least for me that’s how my brain processes things, of memories or moments.
+ - Growing up I wanted to be a mixture of Audrey Hepburn and Lucille Ball. Apparently I told my mum when I was eight that I wanted to be an actor.
+ - Well I’ve also kind of noticed that, whatever energy that you put out, is kind of the energy that you receive. And so people are just really lovely and kind and soft spoken with me.
+
+45 quotes

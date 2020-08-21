@@ -1,0 +1,60 @@
+ - Sometimes you have to, as I say, build bridges where you can – but draw lines where you must.
+ - This business will get out of control. It will get out of control and we’ll be lucky to live through it.
+ - Russians don’t take a dump, son, without a plan.
+ - This country has shed more blood for the freedom of other people than all the other nations in the history of the world combined, and I’m tired of people feeling like they’ve got to apologize for America.
+ - That is, while we believe that cost-benefit analysis is an important tool to inform agency decision making, the results of the cost-benefit analysis do not trump existing law.
+ - And when we draw lines in the sand with regard to certain basic things that are vital to our interest and to the interest of democracy and our friends around the world, we have to be willing to back that up.
+ - We’re hoping for the best, but we need to prepare for the worst.
+ - The Air Force is pulling nine cargo aircraft from military operations to support President Obama’s stepped-up visits to campaign events. Good, now he can carry his entire ego with him on the trail.
+ - We also have to ask if we focusing on the most important priorities.
+ - Now, being a POW certainly doesn’t qualify anyone to be President. But it does reveal character. This is the kind of character that civilizations from the beginning of history have sought in their leaders.
+ - The University of North Carolina-Greensboro has ordered a Christian club to allow non-Christians as leaders. While we’re at it, let’s put high school dropouts in charge of the University.
+ - We, as a nation, cannot wait for the Pearl Harbor of the information age. We must increase our vigilance to tackle this problem before we are hit with a surprise attack.
+ - The average 20-year-old serving us in Iraq knows more about their country’s national security than the average 20-year political veteran serving in the Congress today.
+ - For example, lead paint in old houses can be a greater threat to children’s health than lead that may be under some industrial site where there are no children.
+ - Every foreign policy of every major nation involves reason, common sense, carrots and sticks. You can’t have all carrots and no sticks.
+ - Being a POW certainly doesn’t qualify anyone to be president.
+ - Hopefully, we can build bridges, but we also have to draw lines.
+ - You can’t buy peace by just wishing it and avoiding the challenges that other nations present to you.
+ - Waterboarding ok if national security were at stake.
+ - Global warming experts are saying that sea levels could rise 20 feet. Apparently their strategy for surviving this is to stand on top of a pile of government research grant money.
+ - There’s a lot more to competence than a law degree and a modicum of courtroom skill.
+ - Nobody wants to open a business near a Superfund site and risk being sued.
+ - I’m not above acting like a seal every once in a while and waiting for the next fish, I just don’t want to do it all the time.
+ - You can’t substitute promise after promise with known violators of prior promises at the expense of protecting ourselves or setting an example.
+ - We have some real political differences among us, but we all share the same goals: clean air and water, injury free workplaces, safe transportation systems, to name a few of the good things that can come from regulation.
+ - Clearly, the Chinese know that we want a good relationship with them.
+ - I’d just say the flies get bigger in the summertime. I guess the flies are buzzing.
+ - If we do not design policies to halt, and then reverse population growth, Nature by default will soon exact a most punishing solution.
+ - A lot of people out there working hard and finally building up to getting a pretty good income. Higher tax rates on them, you know, the income rates going up, the dividend rates are going up, the capital gains rates all going up before health care kicks in.
+ - The problem is that agencies sometimes lose sight of common sense as they create regulations.
+ - After two years in Washington, I often long for the realism and sincerity of Hollywood.
+ - Play hardball with Musharraf, but don’t cut off US aid.
+ - A new report shows that medicare and Medicaid made more than $50 Billion in bad payments during fiscal year 2011. Under Obamacare, that’ll become known as ‘Tuesday.’
+ - Because John McCain stood up our country is better off. The respect he is given around the world is not because of a teleprompter speech designed to appeal to American critics abroad, but because of decades of clearly demonstrated character and statesmanship.
+ - Superfund was passed with the good intention of cleaning up America’s toxic waste sites.
+ - So China will be having to make some choices as to whose side it wants to be on. Hopefully, this will be the beginning of a major improvement in our relationship with them, if they choose correctly.
+ - There’s nothing hard about acting except the long hours.
+ - Let’s not overlook, though, what we do know about the campaign finance scandal, and the fact the Chinese were involved in our presidential campaign and our congressional campaigns.
+ - For a long time in American history, people didn’t even come up before the Senate. They didn’t come before the Judiciary Committee, and up until about 1923, something like that.
+ - And it’s difficult for the average American to understand why something like that could be so important and why a little small place like Taiwan would be so important to the PRC.
+ - In the end, we may be hurting the very people we should be concerned about – the inner-city poor, those who already have to live with many risks in their daily lives, those who do not have clout here in Washington.
+ - We are always just one successful terrorist attack away from a nuclear disaster.
+ - America needs a president who understands the nature of the world we live in.
+ - While we believe there are fruitful opportunities to update and improve old rules, we do not want to set up a review process that could create a litigation morass.
+ - I think that there is a relatively small number of people who are pushing for independence in Taiwan.
+ - Today I have withdrawn my candidacy for President of the United States. I hope that my country and my party have benefited from our having made this effort. Jeri and I will always be grateful for the encouragement and friendship of so many wonderful people.
+ - John McCain was a prisoner of war.
+ - China is one of the world’s greatest proliferators of weapons of mass destruction to these rogue nations.
+ - But obviously, we can’t afford to make some bad long-term decisions with regard to basic commitments our country has – trade those away for some short-term assistance that may or may not be there a month from now.
+ - We just ask the agency to make reasonable and honest decisions, and the public deserves no less.
+ - But if the Chinese mainland, the PRC, attacked Taiwan, we’d be obligated to come to their aid.
+ - A new survey shows that the American public is more conservative now than at any point since 1952. The bad news is that all the liberals that died since then are still voting.
+ - Jay Carney told the reporters at his morning briefing that he hoped they would watch the new movie about Obama’s first term ‘many times.’ They might. Look how well ‘Titanic’ did at the box office.
+ - A new report shows that, in Virginia, gun violence has fallen as the sale of firearms has soared to a new record. In other news, a recent study shows that most criminals don’t like getting shot at.
+ - Supports pre-emption policy to prevent nuclear proliferation.
+ - I think that the justices were totally answering the way that they should. I think that the senators, as best I could tell, for the most part, Democrat and Republican, respected that.
+ - Study: 60% of young Americans plan to buy firearms. The other 40% were confused, saying they thought they were free under Obamacare.
+ - And I believe in the 13 years Judge Roberts was there, he never turned down a request to give some assistance on a pro-bono case, and this was no different.
+
+58 quotes

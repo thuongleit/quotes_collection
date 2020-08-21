@@ -1,0 +1,64 @@
+ - Mama, you know you raised me with no father figure. I wanna take this time to thank you, even though I’m doing life.
+ - You get quick money, it’s beautiful, there’s sunshine, but at the end of the day, you find out it’s all a masquerade, baby. It’s not what it seems.
+ - I lived in the projects and the ghetto, and turned the negative into a positive.
+ - I don’t see no more Billie Holidays, no more Marvin Gayes, no more Smokey Robinsons. I don’t even see no more Nirvanas.
+ - My daddy was a minister, my grandfather was a voodoo priest, my uncle was a mason; I was raised with a lot of studies.
+ - America is a melting pot of immigrants. So actually, if you took all of the immigrants outside of America, you’d be missing a lot of flavor, starting with the food, with the culture, with the dance, with everything.
+ - At the end of the day, just know that God made you, so you can be your own individual, and don’t let people give you that peer pressure.
+ - When I rap, I get to express myself in a way where putting words together is like poetry, and sometimes it’s better to talk in certain expressions than sing, you know? So I love, I love to rhyme when I want to express certain things.
+ - I know that the nice shines I have on is going to pass. The nice cars will pass. All that will stay is the music and the work. That’s where I get the inspiration to help people out and work.
+ - If I can’t take five years out to serve my country as president, then everything I’ve been singing about, like equal rights, doesn’t mean anything.
+ - I grew up in a Caribbean family household, so the parents are always right. My father smacked me up til I was 20. It was a strict household.
+ - Michael Jackson was my musical God. He made me believe that all things are possible, and through real and positive music. He can live forever! I love Michael Jackson. God Bless him.
+ - I’m not going away fast; I’ve been around for a while, and plan to be around for a while more.
+ - I think it’s cool to do stuff in a different language. Basically, I learned English through listening to rap. A lot of people think it’s funny. But it’s true; I used to try to get the accents.
+ - The reason why we love America so much is America is the only place you can actually come in and wave your flag.
+ - Haiti is my country. The same way the Beatles are received in England – that’s how Wyclef Jean is received in Haiti, do you know what I mean?
+ - I’m 27 years old. I’m going to go into Hollywood really arrogant. I’ll be breaking a lot of rules. It’s going to be hot.
+ - I’m like Cab Calloway: I love the entertainment, and I’ve loved entertaining people ever since I was little.
+ - People often associate raves with drugs, but for me raves are more associated with self-expression.
+ - I come from a hut, from a hut I went to the projects, from the projects I went to a mansion so you out there you have ABSOLUTLY NO EXCUSE!
+ - When the Fugees were big, we made a whole lot of money, and what happened was that I saved my money and never spent it.
+ - I do music for the love of it, and I’ve been doing it from a very young age: about 11.
+ - Coming from Haiti and growing up in Brooklyn, there’s a lot of European influence when I get dressed up. I wear a lot of fitted suits, elegant cuts; I think it’s cool to mash up a lot of different looks.
+ - I think the greatest thing about America is the American Dream.
+ - I’m from the church, my dad was a pastor’s kid.
+ - Every generation is gonna keep changing, and you just have to embrace the change.
+ - My grandfather was a voodoo priest. A lot of my life dealt with spirituality. I can close my eyes and remember where I come from.
+ - Bob Marley stood for universal peace and love. He tried to break racial barriers.
+ - When you enter the realm of politics, you don’t enter it because you want to be popular. When I want to be popular, I pull on a guitar and sing a song.
+ - I feel that life is short, so we should be disciplined, but at the same time we should have a good time.
+ - I’m hands-on with everything, always trying to reach the real people.
+ - The thing which America allows you to be is it’s the country of opportunities.
+ - When I lose touch with the audience and the reality of what life really is, I’ll be Vanilla Ice or something.
+ - A lot of my music is very reggae- driven. Half of my life Bob Marley was all I listened to.
+ - I always want to know what’s wrong with you, why you ain’t smiling. That’s just my character; I just love people and want to see people having a good time.
+ - It was important that I became successful. People say they do it for the love, and yes, you do it for the love, but you want to be successful.
+ - The Wyclef Jean music is eclectic music. Wyclef represents music -eclectic music. I’ve been doing this music since I was a child, and I said I will refuse for anyone to put me into a box.
+ - I like Bergen County because it’s nice and quiet. It’s beautiful, and I can get to the city way quick.
+ - Me and my father went through a war period where we wasn’t talking. He wanted me to go to theology school – I didn’t want to go. I wanted to do music. I told him I was a minister through music.
+ - I’ve known Clinton for probably the last year that he was in office and stuff. The vibe that I always got from Clinton was, you-know, he never gave me a president-vibe.
+ - My parents were Christian.
+ - That’s the best way to feed the human mind. That’s how Bob Marley did it. He never put it in your face. After you got the groove, you were just singing the hooks, because you thought it was cool.
+ - I lived in a hut with no roof, and I rode to school on a donkey. I used to shoot birds with a slingshot to cook for dinner. Now I prefer to get my food from KFC.
+ - I want people to experience what it’s like being from Haiti, coming to America, being Wyclef – multicultural, multilingual.
+ - For everybody who lost somebody out there and stuff, when you need therapy, music is the best way.
+ - My accomplishment has helped millions of kids see that they can come from a poor family and go somewhere, make something out of themselves. Ive been doing it for seven years professionally.
+ - I want to be part of a different kind of celebrity, one that thinks not just about charity but policy.
+ - Rap records don’t make you feel good no more. Six months after release, it can’t come back as a classic.
+ - I like to go against the grain, against what’s out there. Every day is like a challenge.
+ - Ever since I was a little kid, there used to be the Carnival that used to pass.
+ - I was a jazz major in high school, in an all-jazz band. No matter what I do, it features my musical influences.
+ - What I’m trying to do is break the genre from what is rap and what is music.
+ - My first record wasn’t even with the Fugees. I was signed to Big Beat Records, so I was signed back in 1989 to the label that the Knocks are on now. You can always tell which generation had the pulse based on how they see things.
+ - My songs are really never titled. Sometimes I call it one thing. then I change it.
+ - I’ve been communicating with the Fugees, and it feels a lot better now than it did three or four years ago.
+ - For me, before I go on stage, it all depends. Might be a girl, might be an edible, might be a verse, might be somebody mixing something in my drink without me knowing – hopefully that won’t happen tonight.
+ - I’m the hip-hop Quincy Jones of today.
+ - All that violence in the world, we need to stop that.
+ - When you find the talent, it’s always raw, and when you put the talent in the formula, you get the Knocks.
+ - There’s not a hip-hop artist that didn’t snatch of piece of Bob Marley. It’s totally impossible.
+ - I hear them playing Elvis, they on they way to Graceland. But they don’t scare me, I’m in the trunk.
+ - I’m cheap, and I’m proud of it!
+
+62 quotes

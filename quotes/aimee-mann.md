@@ -1,0 +1,46 @@
+ - Telling what you feel, trying to talk about what’s important to you, does not make you weaker.
+ - The knock-out punch is always the one you never see coming.
+ - It’s not easy in this phosphorescent gloom telling waking dreams apart anyhow.
+ - If your standards are low, you’re going to stop pretty early on in the process.
+ - The king of the jailhouse and the queen of the road think sharing the burden will lighten the load.
+ - In the ’70s, everybody thought drugs were just good times. People didn’t really know about drug addiction, or that such a thing existed. When I grew up in the ’70s I thought you had to take drugs. It was almost like I didn’t think you had a choice.
+ - Save me from the ranks of the freaks who suspect they can never love anyone.
+ - Everyone’s just extracting meaning and feeling and emotion from almost every aspect of music, and I think that for me, it’s a huge antidote to that to have a concept album.
+ - It really doesn’t matter to me what people say about me anymore.
+ - Nightly you retrace your steps again to return to the scene of the crime. It’s uncanny how you hover in the air of the wreckage that you left behind.
+ - I thought everything was interesting. I wanted to go scuba diving and I wanted to learn how to surf. Because I grew up in the 60s girls were not allowed to do anything. As I’ve gotten older and realized that women can do things like that I thought, ‘Why not? Now’s the time.’
+ - But I can’t confront the doubts I have. I can’t admit that maybe the past was bad, and so, for the sake of momentum I’m condemning the future to death so it can match the past.
+ - Life is a series of problems to figure out how to solve gracefully and with dignity. That is what life is and I can’t see it any other way.
+ - I’m selling more records on my own than I did on major labels.
+ - I might be stupid to think love is love, but I do.
+ - What’s interesting to me is drama and conflict. Things aren’t interesting without conflict and resolution of conflict – or striving towards a resolutions of conflict.
+ - Better take the keys and drive forever. Staying won’t put these futures back together. All the perfect drugs and superheroes wouldn’t be enough to bring me back to zero.
+ - For me, there’s a fine line between telling a story that’s fictional with lots of details and then removing yourself too much from it, so it’s bloodless, a little too fictional.
+ - Everybody kind of understands, Oh yeah you take drugs and it does something to your brain and then you can’t stop. It’s easier to describe that shame, that horrible feeling of not being able to control your own life.
+ - People don’t buy records anymore. I don’t know how people can support themselves.
+ - If you’re an artist trying to put out your own record on your own label, it’s hard to get a distribution deal because no one wants to sign a deal with one entity. They want to sign distribution deals with labels, who have lots of product, lots of artists.
+ - Something gets lost when you translate. It’s hard to keep straight. Perspective is every thing.
+ - When things are really great, it just means everything’s in it’s place.
+ - All that I need now is someone with the brains and the know-how to tell me what I want.
+ - I don’t envy anybody trying to start a career right. There really is no music business left, in a lot of ways.
+ - I suppose I should be happy to be misread; better be that than some of the other things I have become.
+ - You drew a bird that was here, a kind of sweet chanticleer. But with a terrible fear that the cage couldn’t tame.
+ - I don’t believe in asking people to spend $15 on something they’ve never heard before. That’s just unreasonable.
+ - There’s a lot of music that sounds like it’s literally computer-generated, totally divorced from a guy sitting down at an instrument.
+ - One of the things I’ve really gotten past in the last couple of years is the idea of being made uncomfortable by the way things appear, rather than how things are. Clearly in this business you have to contend with a lot of that.
+ - It’s in the dictionary. And when I find what it is, I’ll write it down in case it comes up again, I’ll be certain to avoid it.
+ - I certainly understand that we’re all trying to make a living, but I’m not thinking about that when I’m making it. And if that’s your sole motivation, it’s going to reflect that narcissistic greed and you’re going to hear it in the music.
+ - You know what, the drummer is my manager. He’s busy. And I’m busy. I don’t need the dough, though. But having said that, there’s a limit to how much bad music I wanna play. I did it when I was young, and some of the music was OK, but it wasn’t great.
+ - I have a 6-year-old, and his thing is to turn on Radio Disney in the car, and I get such an allergic reaction to listening to that music and the context into which it falls. I’m really working on him about that.
+ - I wanted to try to write songs on the piano to get a different flavor.
+ - I’m really into boxing. I go to a gym and I’m friends with a trainer who’s a pretty famous boxing trainer and I train with him.
+ - I think, to be happy is to be interested and engaged.
+ - I probably would’ve kept slogging on that same chord change, because there’s a tendency to have that happen. You get into the cadence in your mind, and it’s hard to make the kind of left turn that you probably need to keep it really interesting.
+ - At a major label you can start to feel that you’re working for them, and that any work you do, you’re never going to see any benefit.
+ - Knowing record labels and knowing the kinds of things they would object to-they just object to everything that’s interesting.
+ - Anybody who cares less about wanting to be cool, I think, is more interesting.
+ - It’s funny, because my last record was a lot about isolation and people living in separate worlds that other people can’t even understand, which drug addiction is the perfect negative example of.
+ - It’s more important for me to have a good record with good music and be part of a movie that’s good and where the music is used in a really great way. That’s the important thing. The other stuff you want to say about it, I don’t care.
+ - I don’t consider myself a great writer, but I would like to think that I can at least proof- read.
+
+44 quotes

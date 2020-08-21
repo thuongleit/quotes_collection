@@ -1,0 +1,59 @@
+ - I want a woman who can arouse my intellect as well as my loins.
+ - The welfare of our children is our main concern and their best interests are our first priority.
+ - I spent my 30s fixing everything I broke in my 20s.
+ - Flowers are the fastest way to a woman’s heart. Well, actually, the fastest way is through her rib cage, but flowers are a lot less messy.
+ - I started out as an impressionist and that’s all about observing, how people move, their voice quality, their attitudes and quirks.
+ - Anything you have to acquire a taste for was not meant to be eaten.
+ - The best way you hurt rich people is by turning them into poor people.
+ - All men are sculptors, constantly chipping away the unwanted parts of their lives, trying to create their idea of a masterpiece.
+ - Stevie Wonder is a musical genius !
+ - I will blow your face clean off your face!
+ - I just voted for Jesse Jackson !
+ - I leave my house all the time! But I’m not at all the Hollywood parties. I’m grown, and where else am I supposed to be? I’m supposed to be home.
+ - The economy in Ireland has been rampaging ahead for the last 15 years. Barring an international, political or natural catastrophe, things can only get better for the Irish.
+ - Every bad decision I’ve made has been based on money. I grew up in the projects and you don’t turn down money there. You take it, because you never know when it’s all going to end. I made Cop III because they offered me $15 million. That $15 million was worth having Roger Ebert’s thumb up my ass.
+ - After all these years, I’ve done well and I’m cool. I feel comfortable in my skin, I’ve saved some paper, everybody’s healthy, my kids are beautiful and smart, doing different things, it’s all good.
+ - All inspiration comes from a higher power. The body is a shell. The creative spot is from God – You hear voices, everybody does. When you get older, you refer to it as intuition.
+ - If I don’t die in a plane crash or something, this country has a rare opportunity to watch a great talent grow.
+ - My wife ain’t gonna make love to me if I got no money!
+ - The advice I would give to someone is to not take anyone’s advice.
+ - The other day I got out the shower and I bend down to reach for a towel, and I felt a sharp pain in my chest. Shot through my chest and up around my shoulder and down my spine. I thought ‘Oh, Lord.’ I thought I was dying. I bent over and looked, and I was standing on my own titty.
+ - Every bad decision I’ve made has been based on money.
+ - How can music without any words make you think? I listen to jazz when I’m doing something else. I use it for background music, I don’t just sit down and concentrate on it. Lyrics, words – that’s what makes me think.
+ - I’m relaxed about my career. I’ve been making movies for over 20 years, so I’ve earned at least the right to relax.
+ - I can figure out which Spice Girl I wanna impregnate.
+ - The only reason I did Showtime was Robert De Niro. I definitely consider him to be in the top 5 all time actors.
+ - We want the same effect as if someone’s house burned here. We want to give them a normal life as soon as possible.
+ - Over the past 50 years Bob Hope employed 88 joke writers who supplied him with more than one million gags, and he still couldn’t make me laugh.
+ - I’m just a man. I think people are reacting to something else when they see me. They’re not reacting to me, Eddie Murphy. They don’t even know me. It’s just luck and the God in me they’re reacting to.
+ - I’m 42 and the age of a guy who has kids, so I guess I’m playing right where I’m supposed to be. I’m comfortable with that, but in the same breath I’d do something edgy. If someone came to me and offered me an edgy and funny story, then I’d do it.
+ - I took my portrait that Kaufman did of me home from the Saturday Night Live TV set.
+ - In the original script, my character was a basketball player rather than a boxer. I didn’t think I could pull that off. I’m a little short to be a basketball player!
+ - From the very beginning, I always tried to make dialogue flow comfortably; I always did that to make it seem more authentic.
+ - If you’re an artist like a really, really long time, it stops being a performance. I’m not performing anymore. I reveal myself to the audience. I show you some of me. It’s not a show no more.
+ - Making a movie is a collaborative effort and sometimes all the ingredients don’t work out. I know that every now and again I am going to make a movie that won’t work.
+ - The white man gets all the best catchphrases!
+ - I haven’t read a newspaper in 20 years. I don’t look at the computer or anything. You have to have a filter on what you let in.
+ - This is how you answer a door in my neighborhood. WHO IS IT?
+ - When I’m doing stand-up, it’s just me depending on me. I know how to go out there and make people laugh. I’ve been doing it since I was a teenager. I trust my instincts. I just go out and talk. A lot of the time I let the material come from the top of my head.
+ - I’m in a whole different part of show business. I’m not even part of Shakespeare in Love.
+ - There’s always been a lot of negative stuff written about me. That’s why I don’t pay any attention to the critics. They’ve never liked anything I’ve done. What do critics know? It’s the way the audience reacts that matters.
+ - I only want to do what I really want to do; otherwise, I’m content to sit here and play my guitar all day.
+ - I don’t think more concentration is required for Robert De Niro to do what he does as for Jim Carrey to do what he does.
+ - I trip off it. You know what’s interesting about the makeup is when you get up close and you know he’s been working on your face, and you see where the makeup starts and it stops, and how seamless it is. You could look at it for hours.
+ - I am a man who has never tied his own shoes before!
+ - I’ve always had confidence. It came because I have lots of initiative. I wanted to make something of myself.
+ - Whenever I am on camera or doing anything on mic, I don’t have any process at all. I just do it and, when I’m finished, it goes away. There is no process. I wish there were some techniques to it. I just turn it on and off, and then I go home.
+ - I started out as a stand-up comedian. And that’s what I’m most comfortable doing.
+ - I’d like to produce, direct, write, score, and star in a film in exactly the way Chaplin did. I’ll do that before I’m thirty.
+ - Apparently every man was told to bring three women with them. Sounds like a ho-down.
+ - I have enough of a sense to know what works for me and what doesn’t, without going into some big thing and analyzing what I do. I’m in a position that allows me to do what I want to do, and I do it.
+ - I’ve made 30 movies and for the most part my movies work. In a business where success is an exception and not the rule, I’ve mostly been successful.
+ - I’m in a position that allows me to do what I want to do, and I do it.
+ - The competitions are as much a part of the tradition as the actual dances.
+ - When I go back to the stage, I want to be able to do everything. I want to be able to do music and comedy and all that stuff and have a show like nobody ever had before.
+ - I’m a comedian who got into movies, so I don’t really think of myself as an actor.
+ - My first concert makes me sound like a real old man. My very first concert was Jackie Wilson.
+ - You can’t let the good things people say make you feel too good, because you’re going to let the bad things make you feel bad.
+
+57 quotes

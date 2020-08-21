@@ -1,0 +1,33 @@
+ - Anything can happen. Anything happens all the time.
+ - I often do very serious roles, but really I am a big clown.
+ - I’m generally a people-pleaser so I get high anxiety from any sort of confrontation.
+ - I used to go to rave parties, too, but I was never savvy with techno.
+ - I see myself more as a character actress than a celebrity.
+ - I think its important to keep an element of fear about yourself because it makes you appreciate the jobs.
+ - They think I’m depressed because I look serious in photos. It’s usually because I’m just nervous. But I’ve stopped dressing for other people. If I think I look good, that’s the most important thing.
+ - As you get older, you just lose that confidence and narcissism you have in your twenties. You realize you have less time on the planet, and you become cynical and less confident.
+ - You see someone on the street wearing an outfit and then it’s on the cover of a magazine. I love. But, you know, I’m Australian, so I’m not too flashy or glitzy.
+ - I loved performing; I was always trying to impress my siblings by being a clown. I think that came from being the runt of the litter.
+ - It’s important to have female solidarity and support each other and other actresses.
+ - Where I am now, you’re very much at everybody else’s mercy. You have no control over your career in a lot of ways. It’s just important to know what your own goals are, because that’s empowering.
+ - Being an actor is mostly about rejection and being out of work. It was a fast lesson in all of that stuff.
+ - I tend to spiral out of control if I’m not working. I get panicked and don’t know what to do with myself.
+ - I have to rein myself in sometimes.
+ - TV is a completely different discipline, which I think I am still learning about. You just have to learn how to work fast and pace yourself.
+ - I was very, very shy when I was little. Acting lets you access all those different parts of yourself to make the character authentic.
+ - The British are so funny.
+ - I’m in love with the city. You can impress an Australian with a city, but you can’t impress them with a beach.
+ - There’s a lot of intensity when you’re on a set. And then it just goes away and no one’s giving you attention or flooding you with compliments.
+ - I see some of the clothes from the ’90s is back in fashion. That really freaks me out because that’s when I grew up.
+ - I’ve always thought of myself as more of a character actress. I’ve tried to do different things, but I’ve always been under the radar and that’s how I like it. I’ve been really blessed to work this long and I just hope I continue to get better and better and better and better.
+ - I’ve already started saying that I’m 30 when I’m still 29. That way, I’m already there.
+ - I think diversity for most actors is such a blessing. It’s something definitely I’ve strived for.
+ - I liked the Beastie Boys and A Tribe Called Quest and Cypress Hill.
+ - Comedy has to have momentum in order for it to keep moving along.
+ - Australians, we’ve got a very healthy sense of humor in us. God forbid we take ourselves too seriously so it’s kind of a cultural trait.
+ - Making a film is an incredibly technical undertaking.
+ - TV is very much a producer and writer or creator-driven machine in the States. And I’m the kind of actor that needs to be pushed and have someone on my case a little bit, so I suffer from that.
+ - As an artist I just think comedic actors are really underrated.
+ - My parents were so relaxed by the time I was growing up that I got away with a lot more.
+
+31 quotes

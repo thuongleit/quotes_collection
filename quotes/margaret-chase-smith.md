@@ -1,0 +1,29 @@
+ - Public service must be more than doing a job efficiently and honestly. It must be a complete dedication to the people and to the nation.
+ - The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character.
+ - The key to security is public information.
+ - I believe that in our constant search for security we can never gain any peace of mind until we secure our own soul.
+ - As an American, I want to see our nation recapture the strength and unity it once had when we fought the enemy instead of ourselves.
+ - Freedom unexercised may become freedom forfeited.
+ - The American people are sick and tired of being afraid to speak their minds lest they be politically smeared as ‘Communists’ or ‘Fascists’ by their opponents. Freedom of speech is not what it used to be in America. It has been so abused by some that it is not exercised by others.
+ - One of the basic causes for all the trouble in the world today is that people talk too much and think too little. They act impulsively without thinking. I always try to think before I talk.
+ - I always try to think before I talk.
+ - Smears are not only to be expected but fought. Honor is to be earned, not bought.
+ - It is time that the great center of our people, who reject the violence and unreasonableness of both the extreme right and the extreme left, searched their consciences, mustered their moral and physical courage, shed their intimidated silence, and declare their consciences.
+ - When people keep telling you that you can’t do a thing, you kind of like to try it.
+ - Freedom unexercised may be freedom forfeited. The preservation of freedom is in the hands of the people themselves – not of the government.
+ - My basic rule is to speak slowly and simply so that my audience has an opportunity to follow and think about what I am saying.
+ - I do not want to see the Republican party ride to political victory on the Four Horsemen of Calumny-fear, ignorance, bigotry and smear.
+ - Every human being is entitled to courtesy and consideration. Constructive criticism is not only to be expected but sought.
+ - Moral cowardice that keeps us from speaking our minds is as dangerous to this country as irresponsible talk.
+ - We are Republicans. But we are Americans first. It is as Americans that we express our concern with the growing confusion that threatens the security and stability of our country.
+ - We should not permit tolerance to degenerate into indifference.
+ - Women administer the home. They set the rules, enforce them, mete out justice for violations. Thus, like Congress, they legislate; like the Executive, they administer; like the courts, they interpret the rules. It is an ideal experience for politics.
+ - The Senate has been debased to the level of a forum of hate and character assassination sheltered by the shield of congressional immunity.
+ - Surely the United States Senate is big enough to take self-criticism and self-appraisal. Surely we should be able to take the same kind of character attacks that we “dish out” to outsiders.
+ - I don’t believe the American people will uphold any political party that puts political exploitation above national interest. Surely we Republicans aren’t that desperate for victory.
+ - And this I do believe above all, especially in times of greater discouragement, that I must BELIEVE-that I must believe in my fellow people-that I must believe in myself-that I must believe in God-if life is to have any meaning.
+ - As long as there are big corporations, there will be big unions. The economic power of big business will be matched by the economic power of the big unions.
+ - Greatness is not manifested by unlimited pragmatism, which places such a high premium on the end justifying any means and any methods.
+ - I think that it is high time that we remembered that we have sworn to uphold and defend the Constitution. I think that it is high time that we remembered that the Constitution, as amended, speaks not only of the freedom of speech but also of trial by jury instead of trial by accusation.
+
+27 quotes

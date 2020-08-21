@@ -1,0 +1,42 @@
+ - The meaning of life is that it is to be lived. ~~Bruce Lee
+ - The more we live by our intellect, the less we understand the meaning of life. ~~Leo Tolstoy
+ - For man to be able to live he must either not see the infinite, or have such an explanation of the meaning of life as will connect the finite with the infinite. ~~Leo Tolstoy
+ - We decided that it was no good asking what is the meaning of life, because life isn’t an answer, life is the question, and you, yourself, are the answer. ~~Ursula K. Le Guin
+ - To give life a meaning, one must have a purpose larger than self. ~~Will Durant
+ - The one who plants trees, knowing that he will never sit in their shade, has at least started to understand the meaning of life. ~~Rabindranath Tagore
+ - The sole meaning of life is to serve humanity by contributing to the establishment of the kingdom of God, which can only be done by the recognition and profession of the truth by every man. ~~Leo Tolstoy
+ - If you do not know your place in the world and the meaning of your life, you should know there is something to blame; and it is not the social system, or your intellect, but the way in which you have directed your intellect. ~~Leo Tolstoy
+ - There are essentially two questions in life – a spiritual question and a material question. The spiritual question is ‘Who am I?’ The material question is ‘What am I to do with my life?’ One leads to the other. ~~Rasheed Ogunlaru
+ - If there is meaning in life at all, then there must be a meaning in suffering. Suffering is an ineradicable part of life, even as fate and death. Without suffering and death human life cannot be complete. ~~Viktor E. Frankl
+ - The meaning of life is to see. ~~Huineng
+ - Pursue some path, however narrow and crooked, in which you can walk with love and reverence. ~~Henry David Thoreau
+ - I’m twelve years old. I run into a synagogue. I ask the rabbi the meaning of life. He tells me the meaning of life but he tells it to me in Hebrew. I don’t understand Hebrew. Then he wants to charge me $600 for Hebrew lessons. ~~Woody Allen
+ - Live is meaningful only if you gave it a meaning. ~~T. Harv Eker
+ - Grow spiritually and help others to do so. It is the meaning of life. ~~Leo Tolstoy
+ - People and stars are made of the same stuff. ~~Bill Nye
+ - When I was younger I was looking for this magic meaning of life. It’s very simple now. Making the lives of others better, doing something of lasting value. That’s the meaning of life, it’s that simple. ~~Temple Grandin
+ - This is it. There are no hidden meanings. All that mystical stuff is just what’s so. ~~Werner Erhard
+ - So when I think of, what is the meaning of life, to me, that’s not an eternal unanswerable question. To me it is in arms reach of me every day. ~~Neil deGrasse Tyson
+ - We die. That may be the meaning of life. But we do language. That may be the measure of our lives. ~~Toni Morrison
+ - It’s precisely the disappointing stories, which have no proper ending and therefore no proper meaning, that sound true to life. ~~Max Frisch
+ - What is the meaning of life? To be happy and useful. ~~Dalai Lama XIV
+ - The meaning of life is to live a meaningful life. ~~Bill Phillips
+ - You just decide what your values are in life and what you are going to do, and then you feel like you count, and that makes life worth living. It makes my life meaningful. ~~Annie Lennox
+ - To the contrary: His life hummed with meaning and purpose. But the meaning he wrestled from existence lay beyond the comfortable path: McCandless distrusted the value of things than came easily. ~~Jon Krakauer
+ - Plato says that the unexamined life is not worth living. But what if the examined life turns out to be a clunker as well? ~~Kurt Vonnegut
+ - Only an artist can interpret the meaning of life. ~~Novalis
+ - We are here for no purpose, unless we can invent one. ~~Kurt Vonnegut
+ - If nothing had any meaning, you would be right. But there is something that still has a meaning. ~~Albert Camus
+ - Life has meaning only if one barters it day by day for something other than itself. ~~Antoine de Saint-Exupéry
+ - My cat knows the meaning of life, but has no interest in sharing the secret. ~~Ashleigh Brilliant
+ - Whatever we are, whatever we make of ourselves, is all we will ever have – and that, in its profound simplicity, is the meaning of life. ~~Philip Appleman
+ - The meaning of life consists in the fact that it makes no sense to say that life has no meaning. ~~Niels Bohr
+ - Philosophers can debate the meaning of life, but you need a Lord who can declare the meaning of life. ~~Max Lucado
+ - The meaning of life is that nobody knows the meaning of life. ~~Woody Allen
+ - Everywhere one seeks to produce meaning, to make the world signify, to render it visible. We are not, however, in danger of lacking meaning; quite the contrary, we are gorged with meaning and it is killing us. ~~Jean Baudrillard
+ - Let no one be like another, yet everyone like the highest. How is this done? Be each one perfect in himself. ~~Johann Wolfgang von Goethe
+ - These tasks, and therefore the meaning of life, differ from man to man, and from moment to moment. Thus it is impossible to define the meaning in life in a general way. ~~Viktor E. Frankl
+ - Religion reveals the meaning of life, and science only applies this meaning to the course of circumstances. ~~Leo Tolstoy
+ - Our obligation is to give meaning to life and in doing so to overcome the passive, indifferent life. ~~Elie Wiesel
+
+40 quotes

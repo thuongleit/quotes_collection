@@ -1,0 +1,22 @@
+ - Keep trying until you have no more chances left.
+ - Being brave doesn’t mean never being afraid, you know. It means going for it anyway because you know it’s the right thing to do.
+ - Whatever obstacles you face, remember you can get through anything if you want to badly enough.
+ - You can say you love me all you want, but if you only ever act like the opposite’s true, then I can’t trust your words anymore.
+ - Sadness doesn’t equal weakness, sweetheart. If anything, it shows the love you have inside of you, and nothing stronger in this world exists.
+ - Finally he closed the distance between us and kissed me – a sweet, gentle kiss that held within it every single one of the thousand days I’d loved him as my everything, long after I’d begun to love him as a friend.
+ - Love is the way I feel for you, the way you fill something inside me whenever you so much as walk into the same room. Sometimes love is quite, lingering in the background until you least expect it. But love it always there for you.
+ - The afterlife is whatever a soul wishes or believes it to be.
+ - It hurts being the one who loves more.
+ - I was falling for him, a little more everyday, even though a very large part of me knew that this was a bad idea.
+ - Harry Potter changed my life in more ways than one, and it helped me get through my mothers death.
+ - But the world is out there, and it understands that the illusion of knowledge and freedom is not the same as the real thing. Eventually it will fade, and there are those who will do whatever it takes to make that happen sooner rather than later.
+ - But if this works-if I pass, I need to know that when you look at me, you’re going to see me, not just her replacement. That there is more in this future for me than standing in the shadows while you wallow the rest of your existence away.
+ - I don’t need to be ancient to be worth something.
+ - Sometimes we misjudge what is possible and what is not.
+ - It’s frightening how much things change in seventy-one years.
+ - You never had to fight for me to begin with. I am yours and have been from the moment I saw you.
+ - In her he saw possibility. In her he saw the future. And when she was ready for it, he would be, too.
+ - It has been a very long time since I’ve received a gift as extraordinary as you.
+ - It takes loneliness in oneself to recognize it in another.
+
+20 quotes

@@ -1,0 +1,50 @@
+ - Be more than you seem to be.
+ - Many battles have been fought and won by soldiers nourished on beer, and the King does not believe that coffee-drinking soldiers can be relied upon to endure hardships in case of another war.
+ - Artillery adds dignity, to what would otherwise be an ugly brawl.
+ - The more I see of men, the better I like my dog.
+ - My people must drink beer.
+ - The greatest and noblest pleasure which we have in this world is to discover new truths, and the next is to shake off old prejudices.
+ - Little minds try to defend everything at once, but sensible people look at the main point only; they parry the worst blows and stand a little hurt if thereby they avoid a greater one. If you try to hold everything, you hold nothing.
+ - God is always with the strongest battalions.
+ - A king is the first servant and first magistrate of the state.
+ - If I wished to punish a province, I would have it governed by philosophers.
+ - Christianity – An old metaphysical romance, filled with marvels, contradictions, and absurdity, born in the ardent imagination of Orientals, has spread into our Europe. Enthusiasts have purveyed it, careerists have pretended to accept it, imbeciles have believed it.
+ - A crown is merely a hat that lets the rain in.
+ - I am up and about when I am ill, and in the most appalling weather. I am on horseback when other men would be flat out on their beds, complaining. We are made for action, and activity is the sovereign remedy for all physical ills.
+ - Every man must get to Heaven his own way.
+ - A man with his heart in his profession imagines and finds resources where the worthless and lazy despair.
+ - Man is made for error; it enters his mind naturally, and he discovers a few truths only with the greatest effort.
+ - Every man has a wild beast within him.
+ - In trying to defend everything he defended nothing.
+ - Great things are achieved only when we take great risks.
+ - Theologians are all alike, of whatever religion or country they may be; their aim is always to wield despotic authority over men’s consciences; they therefore persecute all of us who have the temerity to tell the truth.
+ - Pleasure is the most real good in this life.
+ - Books make up no small part of human happiness.
+ - A man, who can, in cold blood, hunt and torture a poor, innocent animal, cannot feel much compassion for the distress of his own species.
+ - One should never despair too soon.
+ - Our work is to present things that are as they are.
+ - As to your Newton, I confess I do not understand his void and his gravity; I admit he has demonstrated the movement of the heavenly bodies with more exactitude than his forerunners; but you will admit it is an absurdity to to maintain the existence of Nothing.
+ - Always presume that the enemy has dangerous designs and always be forehanded with the remedy. But do not let these calculations make your timid.
+ - A German singer! I should as soon expect to get pleasure from the neighing of my horse.
+ - It is pardonable to be defeated, but never to be surprised.
+ - Though I may not be a king in my future life, so much the better: I shall nevertheless live an active life and, on top of it, earn less ingratitude.
+ - Being goal directed is not enough to conquer your enemy. To achieve your goal you need to know and be able to utilize all the resources available to you. This includes the knowledge of all those available to you as well as using the physical resources and those who control them.
+ - You will certainly grant me that neither antiquity nor whatever nation has devised a more repulsive and blasphemous absurdity than that of eating your God. This is the most disgusting dogma of Christian religion, the greatest insult to the Highest Being, the climax of madness and insanity.
+ - I think it better to keep a profound silence with regard to the Christian fables, which are canonized by their antiquity and the credulity of absurd and insipid people.
+ - It is impossible to imitate Voltaire without being Voltaire.
+ - I love opposition that has convictions.
+ - Many battles have been fought and won by soldiers nourished on beer.
+ - It has been said by a certain general, that the first object in the establishment of an army ought to be making provision for the belly, that being the basis and foundation of all operations.
+ - It is disgusting to note the increase in the quantity of coffee used by my subjects and the amount of money that goes out of the country in consequence. Everybody is using coffee. If possible, this must be prevented. My people must drink beer.
+ - Diplomacy without arms is like a concert without a score.
+ - Do not neglect the principles of foresight and know that often, puffed up with success, armies have lost the fruit of their heroism through a feeling of false security.
+ - Great advantage is drawn from knowledge of your adversary, and when you know the measure of his intelligence and character, you can use it to play on his weakness.
+ - To your care and recommendation am I indebted for having replaced a half-blind mathematician with a mathematician with both eyes, which will especially please the anatomical members of my Academy.
+ - I have no fault to find with those who teach geometry. That science is the only one which has not produced sects; it is founded on analysis and on synthesis and on the calculus; it does not occupy itself with the probable truth; moreover it has the same method in every country.
+ - The people say what they like and then I do what I like.
+ - My people and I have come to an agreement which satisfies us both. They are to do what they please, and I am to do what I please.
+ - An educated people can be easily governed.
+ - No government can exist without taxation. The money must necessarily be levied on the people; and the grand art consists of levying so as not to oppress.
+ - It is the fashion these days to make war, and presumably it will last a while yet.
+
+48 quotes

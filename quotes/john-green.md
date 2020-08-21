@@ -1,0 +1,502 @@
+ - What is the point of being alive if you don’t at least try to do something remarkable?
+ - Some infinities are bigger than other infinities.
+ - My thoughts are stars I cannot fathom into constellations.
+ - You spend your whole life stuck in the labyrinth, thinking about how you’ll escape it one day, and how awesome it will be, and imagining that future keeps you going, but you never do it. You just use the future to escape the present.
+ - The darkest nights produce the brightest stars.
+ - Maybe our favorite quotations say more about us than about the stories and people we're quoting.
+ - The world is not a wish-granting factory.
+ - What a slut time is. She screws everybody.
+ - As he read, I fell in love the way you fall asleep: slowly, and then all at once.
+ - Some people have lives; some people have music.
+ - The marks humans leave are too often scars.
+ - Books are the ultimate Dumpees: put them down and they’ll wait for you forever; pay attention to them and they always love you back.
+ - The only way out of the labyrinth of suffering is to forgive.
+ - Sometimes, you read a book and it fills you with this weird evangelical zeal, and you become convinced that the shattered world will never be put back together unless and until all living humans read the book.
+ - What a treacherous thing to believe that a person is more than a person.
+ - That’s the thing about pain, it demands to be felt.
+ - One day, you’re 17 and you’re planning for someday. And then quietly, without you ever really noticing, someday is today. And then someday is yesterday. And this is your life.
+ - You gave me a forever within the numbered days, and I’m grateful.
+ - You can love someone so much... But you can never love people as much as you can miss them.
+ - Imagine others complexly.
+ - That’s always seemed so ridiculous to me, that people want to be around someone because they’re pretty. It’s like picking your breakfast cereals based on color instead of taste.
+ - A paper town for a paper girl.
+ - I don’t know a perfect person. I only know flawed people who are still worth loving.
+ - I’m on a roller coaster that only goes up, my friend.
+ - You don’t get to choose if you get hurt in this world, old man, but you do have some say in who hurts you.
+ - Entropy increases. Things fall apart.
+ - She loved mysteries so much that she became one.
+ - As long as we don’t die, this is gonna be one hell of a story.
+ - Every year, many, many stupid people graduate from college. And if they can do it, so can you.
+ - Francois Rabelais. He was a poet. And his last words were “I go to seek a Great Perhaps.” That’s why I’m going. So I don’t have to wait until I die to start seeking a Great Perhaps.
+ - Whatever. Great day. Today. Best day of my life.
+ - The world may be broken, but hope is not crazy.
+ - What’s the point in being alive if you don’t at least try to do something remarkable? How very odd, to believe God gave you life, and yet not think that life asks more of you than watching TV.
+ - Do you ever wonder whether people would like you more or less if they could see inside you? But I always wonder about that. If people could see me the way I see myself – if they could live in my memories – would anyone, anyone, love me?
+ - Just remember that sometimes, the way you think about a person isn’t the way they actually are.
+ - Some tourists think Amsterdam is a city of sin, but in truth it is a city of freedom. And in freedom, most people find sin.
+ - It’s a metaphor, see: You put the killing thing right between your teeth, but you don’t give it the power to do its killing.
+ - Sometimes people don’t understand the promises they’re making when they make them.
+ - That smile could end wars and cure cancer.
+ - I’m so proud of you that it makes me proud of me. I hope you know that.
+ - You will go to the paper towns and never come back.
+ - Use your words.
+ - Books so special and rare and yours that advertising your affection feels like a betrayal.
+ - I fear oblivion. I fear it like the proverbial blind man who’s afraid of the dark.
+ - You are helpful, and you are loved, and you are forgiven, and you are not alone.
+ - The rules of capitalization are so unfair to words in the middle of a sentence.
+ - Because you’re only thinking they-might-not-like-me-they-might-not-like-me, and guess what? When you act like that, no one likes you.
+ - Truth resists simplicity.
+ - We are as indestructible as we believe ourselves to be.
+ - At some point, you just pull off the Band-Aid, and it hurts, but then it’s over and you’re relieved.
+ - We are greater than the sum of our parts.
+ - You don’t remember what happened. What you remember becomes what happened.
+ - I get it now. I get it. The things you hope for the most are the things that destroy you in the end.
+ - If you don’t imagine, nothing ever happens at all.
+ - Here’s to all the places we went. And all the places we’ll go. And here’s to me, whispering again and again and again and again: iloveyou.
+ - It always shocked me when I realized that I wasn’t the only person in the world who thought and felt such strange and awful things.
+ - Last words are always harder to remember when no one knows that someone’s about to die.
+ - If only we could see the endless string of consequences that result from our smallest actions. But we can’t know better until knowing better is useless.
+ - I don’t know how I look, but I know how I feel: Young. Goofy. Infinite.
+ - So I walked back to my room and collapsed on the bottom bunk, thinking that if people were rain, I was drizzle and she was a hurricane.
+ - Love is keeping the promise anyway.
+ - The funny thing about writing is that whether you’re doing well or doing it poorly, it looks the exact same. That’s actually one of the main ways that writing is different from ballet dancing.
+ - I didn’t need you, you idiot. I picked you. And then you picked me back.
+ - We all use the future to escape the present.
+ - That didn’t happen, of course. Things never happened the way I imagined them.
+ - When things break, it’s not the actual breaking that prevents them from getting back together again. It’s because a little piece gets lost – the two remaining ends couldn’t fit together even if they wanted to. The whole shape has changed.
+ - Isn’t it also that on some fundamental level we find it difficult to understand that other people are human beings in the same way that we are? We idealize them as gods or dismiss them as animals.
+ - People, I thought, wanted security. They couldn’t bear the idea of death being a big black nothing, couldn’t bear the thought of their loved ones not existing, and couldn’t even imagine themselves not existing. I finally decided that people believed in an afterlife because they couldn’t bear not to.
+ - You like someone who can’t like you back because unrequited love can be survived in a way that once-requited love cannot.
+ - As much as life can suck, it always beats the alternative.
+ - How strange and how lovely it is to be anything at all.
+ - Girls think they’re only allowed to wear dresses on formal occasions, but I like a woman who says, you know, I’m going over to see a boy who is having a nervous breakdown, a boy whose connection to the sense of sight itself is tenuous, and gosh dang it, I am going to wear a dress for him.
+ - I am going to take this bucket of water and pour it on the flames of hell, and then I am going to use this torch to burn down the gates of paradise so that people will not love God for want of heaven or fear of hell, but because He is God.
+ - Maybe all the strings inside him broke.
+ - Nothing ever happens like you imagine it will.
+ - Not that smart. Not that hot. Not that nice. Not that funny. That’s me: I’m not that.
+ - I don’t think you can ever fill the empty space with the thing you lost.
+ - I figured something out. The future is unpredictable.
+ - Do you know what your problem is? You can’t live with the idea that someone might leave.
+ - Before I got here, I thought for a long time that the way out of the labyrinth was to pretend that it did not exist, to build a small, self-sufficient world in the back corner of the endless maze and to pretend that I was not lost, but home.
+ - What matters to you defines your mattering.
+ - All sorts of yayness floods my brain. Love is such a drug.
+ - People will say it’s sad that she leaves a lesser scar, that fewer remember her, that she was loved deeply but not widely. But it’s not sad, Van Houten. It’s triumphant. It’s heroic. Isn’t that the real heroism? Like the doctors say: First, do no harm.
+ - We didn’t talk much. But we didn’t need to.
+ - You’re arguing that the fragile, rare thing is beautiful simply because it is fragile and rare. But that’s a lie, and you know it.
+ - Suffering is universal. it’s the one thing Buddhists, Christians, and Muslims are all worried about.
+ - It seemed like forever ago, like we’ve had this brief but still infinite forever. Some infinities are bigger than other infinities.
+ - I’m really not up for answering any questions that start with how, when, where, why or what.
+ - When it works, anticipation is far more fulfilling than surprise, because we are reminded that a sunrise is precisely as magnificent as it is inevitable.
+ - Whenever you read a cancer booklet or website or whatever, they always list depression among the side effects of cancer. But, in fact, depression is not a side effect of cancer. Depression is a side effect of dying.
+ - Stupid human voices always ruining everything.
+ - It’s not life or death, the labyrinth. Suffering. Doing wrong and having wrong things happen to you. That’s the problem. Bolivar was talking about the pain, not about the living or dying. How do you get out of the labyrinth of suffering?
+ - Caring doesn’t sometimes lead to misery. It always does.
+ - I liked being a person. I wanted to keep at it.
+ - The pure and simple truth Is rarely pure and never simple. What’s a boy to do When lies and truth are both sinful?
+ - The fundamental mistake I had always made – and that she had, in fairness, always led me to make – was this: Margo was not a miracle. She was not an adventure. She was not a fine and precious thing. She was a girl.
+ - He really was beautiful. I know boys aren’t supposed to be, but he was.
+ - If people were like rain, I was like drizzle and she was a hurricane.
+ - I mean, it’s stupid to miss someone you didn’t even get along with. But I don’t know, it was nice, you know, having someone you could always fight with.
+ - Why don’t we break up? I guess I stay with her because she stays with me. And that’s not an easy thing to do.
+ - Maybe ‘okay’ will be our ’always.
+ - Maybe there’s something you’re afraid to say, or someone you’re afraid to love, or somewhere you’re afraid to go. It’s gonna hurt. It’s gonna hurt because it matters.
+ - March 4th, the only day that is also a sentence.
+ - I’m not saying that everything is survivable. Just that everything except the last thing is.
+ - I’m in love with you, and I know that love is just a shout into the void, and that oblivion is inevitable, and that we’re all doomed and that there will come a day when all our labor has been returned to dust, and I know the sun will swallow the only earth we’ll ever have, and I am in love with you.
+ - There’s some people in this world who you can just love and love and love no matter what.
+ - Reading forces you to be quiet in a world that no longer makes place for that.
+ - I thought you hung the moon.
+ - There are infinite numbers between 0 and 1.
+ - You realize that trying to keep your distance from me will not lessen my affection for you. All efforts to save me from you will fail.
+ - Writing is something you do alone. It’s a profession for introverts who wanna tell you a story but don’t wanna make eye contact while telling it.
+ - The way I figure it, everyone gets a miracle.
+ - We need never be hopeless because we can never be irreperably broken.
+ - We were very different, and we disagreed about a lot of things, but he was always so interesting, you know?
+ - The Buddha said that suffering was caused by desire, we’d learned, and that the cessation of desire meant the cessation of suffering. When you stopped wishing things wouldn’t fall apart, you’d stop suffering when they did.
+ - A desert blessing, an ocean curse.
+ - It is very sad to me that some people are so intent on leaving their mark on the world that they don’t care if that mark is a scar.
+ - Sometimes you lose a battle. But mischief always wins the war.
+ - It is so hard to leave – until you leave. And then it is the easiest goddamned thing in the world.
+ - Margo always loved mysteries. And in everything that came afterward, I could never stop thinking that maybe she loved mysteries so much that she became one.
+ - I cannot tell you how thankful I am for our little infinity.
+ - Study broadly and without fear.
+ - I may die young, but at least I’ll die smart.
+ - I hated talking, and I hated listening to everyone else stumble on their words and try to phrase things in the vaguest possible way so they wouldn’t sound dumb.
+ - So keeping the box closed just keeps you in the dark, not the universe.
+ - I’m not sure if I’m depressed. I mean, I’m not exactly sad. But I’m not exactly happy either. I can laugh and joke and smile during the day, But sometimes when I’m alone at night I forget how to feel.
+ - The truth hurts because it’s real. It hurts because it mattered. And that’s an important thing to acknowledge to yourself.
+ - Oh, I wouldn’t mind, Hazel Grace. It would be a privilege to have my heart broken by you.
+ - I spy with my little eye a great story.
+ - What you must understand about me is that I’m a deeply unhappy person.
+ - Suffering is universal.
+ - You are so busy being YOU that you have no idea how utterly unprecedented you are.
+ - Grief does not change you, Hazel. It reveals you.
+ - You should see it. V for Vendetta I mean. “I’ll look it up.” No. With Me. At my house. Now.
+ - Books belong to their readers.
+ - After all this time, it seems to me like straight and fast is the only way out- but I choose the labyrinth. The labyrinth blows, but I choose it.
+ - Love is the most common miracle.
+ - But I believe in true love, you know? I don’t believe that everybody gets to keep their eyes or not get sick or whatever, but everybody should have true love, and it should last at least as long as your life does.
+ - It’s bad for your brain not to unplug.
+ - True love will triumph in the end – which may or may not be a lie, but if it is a lie, it’s the most beautiful lie we have.
+ - Tonight, darling, we are going to right a lot of wrongs. And we are going to wrong some rights. The first shall be last; the last shall be first; the meek shall do some earth-inheriting. But before we can radically reshape the world, we need to shop.
+ - You do not immortalize the lost by writing about them. Language buries, but does not resurrect.
+ - I still think that maybe the “afterlife” is just something we made up to ease the pain of loss, to make our time in the labyrinth bearable. Maybe we are just matter, and matter gets recycled.
+ - I love making YouTube videos. I love Tumblr, I love Twitter. I love talking with people I find interesting about stuff I find interesting, and the Internet is a great way to do that.
+ - You can’t just make me different and then leave. You can’t. You can’t change me and make my whole life centered around you, then leave.
+ - It hurts because it mattered.
+ - So I let her go, too. And I’m sorry.
+ - Light, the visible reminder of Invisible Light.
+ - I hate the idea that, when it comes to books and learning, hard is often seen as the opposite of fun. It’s strange to me that we should be so quick to give up on a book or a math problem when we are so willing to grapple, for centuries if necessary, with a single level of Angry Birds.
+ - I’ll fight it. I’ll fight it for you. Don’t you worry about me, Hazel Grace. I’m okay. I’ll find a way to hang around and annoy you for a long time.
+ - Everything that comes together falls apart. When you stopped wishing things wouldn’t fall apart, you stopped suffering when they did.
+ - Without Pain, How Could We Know Joy?
+ - You know what I hate? The outdoors. I mean, generally. I don’t like outside. I’m an inside person. I’m all about refrigeration and indoor plumbing and Judge Judy.
+ - That’s who you really like. The people you can think out loud in front of.
+ - I try to live life so that I can live with myself.
+ - You say you’re not special because the world doesn’t know about you, but that’s an insult to me. I know about you.
+ - YOU are valuable and rare and worthy of love.
+ - And then something invisible snapped insider her, and that which had come together commenced to fall apart.
+ - Even then, it hurt. The pain was always there, pulling me inside of myself, demanding to be felt. It always felt like I was waking up from the pain when something in the world outside of me suddenly required my comment or attention.
+ - I know so many last words. But I will never know hers.
+ - We acknowledge that being the person God made you cannot separate you from God’s love.
+ - What the hell is instant? Nothing is instant.
+ - My head was level with hers as we stared at each other from opposite sides of the glass. I don’t remember how it ended – if I went to bed or she did. In my memory, it doesn’t end. We just stay there, looking at each other, forever.
+ - Nerd life is just so much better than regular life.
+ - I’m a grenade, I just want to stay away from people and read books, and think...
+ - But a lot of times, people die how they live. And so last words tell me a lot about who people were, and why they became the sort of people biographies get written about.
+ - Nerd girls are the world’s most underutilized romantic resource. And guys, do not tell me that nerd girls are not hot because that shows a Paris Hilton-esque failure to understand hotness.
+ - The town was paper, but the memories were not.
+ - How do you just stop being terrified of getting left behind and ending up by yourself forever and not meaning anything to the world?
+ - That’s part of what I like about the book in some ways. It portrays death truthfully. You die in the middle of your life, in the middle of a sentence.
+ - We all want to do something to mitigate the pain of loss or to turn grief into something positive, to find a silver lining in the clouds. But I believe there is real value in just standing there, being still, being sad.
+ - I liked that he was a tenured professor in the Department of Slightly Crooked Smiles with a dual appointments in the Department of Having a Voice that Made My Skin Feel More Like Skin.
+ - Writing does not resurrect. It buries.
+ - I wanted to be one of those people who have streaks to maintain, who scorch the ground with their intensity. But for now, at least I knew such people, and they needed me, just like comets need tails.
+ - You can pick your friends, and you can pick your nose, but you can’t pick your friend’s nose.
+ - I believe in that line from An Imperial Affliction. ‘The risen sun too bright in her losing eyes.’ That’s God, I think, the rising sun, and the light is too bright and her eyes are losing but they aren’t lost.
+ - Our fearlessness shall be our secret weapon.
+ - Nostalgia is inevitably a yearning for a past that never existed and when I’m writing, there are no bees to sting me out of my sentimentality. For me at least, fiction is the only way I can even begin to twist my lying memories into something true.
+ - And I will forget her, yes. That which came together will fall apart slowly, but she will forgive my forgetting, just as I forgive her for forgetting me and the Colonel and nothing but herself and her mom in those last moments as she spent as a person.
+ - There will come a time, when all of us are dead. All of us. There will come a time when there are no human beings remaining to remember that anyone ever existed or that our species ever did anything.
+ - No matter how hard you kick, no matter how high you get, you can’t go all the way around.
+ - We Play the broken string of our instruments one last time.
+ - Leaving feels good and pure only when you leave something important, something that mattered to you. Pulling life out by the roots. But you can’t do that until your life has grown roots.
+ - If drunk were cookies, I’d be Famous Amos.
+ - Scared isn’t a good excuse. Scared is the excuse everyone has always used.
+ - We’re as likely to hurt the universe as we are to help it, and we’re not likely to do either.
+ - I’m not asexual. I’m arelationshipal.
+ - All those paper people living in their paper houses, burning the future to stay warm.
+ - For me, the hero’s journey is not the voyage from weakness to strength. The true hero’s journey is the voyage from strength to weakness.
+ - When we think of death, we often imagine it as happening in degrees: We think of a sick person becoming less and less alive until finally they are gone.
+ - And people are moody, dude. You gotta get used to living with people.
+ - At some point, you gotta stop looking up at the sky, or one of these days you’ll look back down and see that you floated away, too.
+ - Amsterdam is like the rings of a tree: It gets older as you get closer to the center.
+ - I’m a grenade and at some point I’m going to blow up and I would like to minimize the casualties, okay?
+ - There was time before organisms experienced consciousness, and there will be time after. And if the inevitability of human oblivion worries you, I encourage you to ignore it.
+ - Without pain, how could we know joy?? This is an old argument in the field of thinking about suffering and its stupidity and lack of sophistication could be plumbed for centuries but suffice it to say that the existence of broccoli does not, in any way, affect the taste of chocolate.
+ - The urge to make art or contemplate philosophy does not go away when you are sick. Those urges just become transfigured by illness.
+ - I can almost imagine a happiness without her, the ability to let her go, to feel our roots are connected even if I never see that leaf of grass again.?.
+ - Love is just a shout in the void.
+ - The only person I really wanted to talk to about Augustus Water’s death with was Augustus Waters.
+ - People talk about the courage of cancer patients, and I do not deny that courage. I had been poked and stabbed and poisoned for years, and still I trod on. But make no mistake: In that moment, I would have been very, very happy to die.
+ - And so much depends, I told Augustus, upon a blue sky cut open by the branches of the trees above. So much depends upon the transparent G-tube erupting from the gut of the blue-lipped boy. So much depends upon the observer of the universe.
+ - There is no Them. There are only facets of Us.
+ - Whether you’re studying electrical engineering or poetry, college is not about maximizing income, it’s about becoming a better and more informed observer of the universe. And for me, at least, that what’s leads to a more fulfilling life.
+ - She was not an adventure, she was not a fine and precious thing. She was a girl.
+ - I’m in love with you, and I’m not in the business of denying myself the simple pleasure of saying true things.
+ - At least I carpe’d that one diem.
+ - The nature of impending fatherhood is that you are doing something that you’re unqualified to do, and then you become qualified while doing it.
+ - Pain is like fabric: The stronger it is, the more it’s worth.
+ - This is so much fun, but I’m so sleepy. To be continued?
+ - Y’all smoke to enjoy it. I smoke to die.
+ - I think about how much depends upon a best friend. Then you wake up in the morning you swing your legs out of bed and you put your feet on the ground and you stand up. You don’t scoot to the edge of the bed and look down to make sure the floor is there. The floor is always there. Until it’s not.
+ - Because memories fall apart, too. And you’re left with nothing.
+ - I leave, and the leaving is so exhilarating I know I can never go back. But then what? Do I just keep leaving places, and leaving them, and leaving them, tramping a perpetual journey?
+ - When did we see each other face-to-face? Not until you saw into my cracks and I saw into yours. Before that, we were just looking at ideas of each other, like looking at your window shade but never seeing inside. But once the vessel cracks, the light can get in. The light can get out.
+ - Don’t swear in the Literal Heart of Jesus.
+ - Because there is no glory in illness. There is no meaning to it. There is no honor in dying of.
+ - I just want to do something that matters. Or be something that matters. I just want to matter.
+ - If you act out of a paranoid fear of something happening, you will always make that thing happen.
+ - Indiana,’ he said. ‘They steal the land from the Indians and leave the name, yes?
+ - Everybody should have true love, and it should last at least as long as your life does.
+ - I leaned in toward her, suddenly overwhelmed with the feeling that we must kiss.
+ - There’s a stark difference between the words ‘prodigy’ and ‘genius.’ Prodigies can very quickly learn what other people have already figured out; geniuses discover that which no one has ever previously discovered. Prodigies learn; geniuses do.
+ - You never know. It’s just. It’s like. POOF. And you’re gone.
+ - I wanted to know that he would be okay if I died. I wanted to not be a grenade, to not be a malevolent force in the lives of people I loved.
+ - And I wrote my way out of the labyrinth.
+ - I am a giant squid of anger.
+ - One of the things I like about making stuff in the age of the Internet, is that people make stuff in response to it. You can see people respond to your work visually or musically or with writing.
+ - The pleasure of remembering had been taken from me, because there was no longer anyone to remember with. It felt like losing your co-rememberer meant losing the memory itself, as if the things we’d done were less real and important than they had been hours before.
+ - Eternity bids thee to forget.
+ - Once you think a thought, it is extremely difficult to unthink it.
+ - I just want to fly under the radar, because when you start to make yourself into a big deal, that’s when you get shot down.
+ - Mental health days only exist for people who have the luxury of saying ‘I don’t want to deal with things today’ and then can take the whole day off, while the rest of us are stuck fighting the fights we always fight, with no one really caring one way or another, unless...
+ - If by that you mean that I dislike celebrity magazines, prefer food to anorexia, refuse to watch TV shows about models, and hate the color pink, then yes. I am proud to be not really a girl.
+ - Bro, it’s dark. You can’t go to a strange building with a mysterious address in the dark. Haven’t you ever seen a horror movie?
+ - The real heroes anyway aren’t the people doing things; the real heroes are the people NOTICING things, paying attention.
+ - The weird thing about houses is that they almost always look like nothing is happening inside of them, even though they contain most of our lives. I wondered if that was sort of the point of architecture.
+ - She was loved deeply, but not widely.
+ - I know it’s impossible for you to see your peers this way, but when you’re older, you start to see them – the bad kids and the good kids and all kids – as people. They’re just people, who deserve to be cared for.
+ - There are always answers. We just have to be smart enough.
+ - Night falls fast. Today is the past.
+ - When people call people nerds, mostly what they’re saying is, ‘you like stuff.’ Which is not a good insult at all, like, ’you are too enthusiastic about the miracle of human conscience.
+ - There is only one things in this world shittier than biting it from cancer when you’re sixteen, and that’s having a kid who bites it from cancer.
+ - Crying is you, plus tears.
+ - The miracle and hope of human consciousness is that we can still conceive of boundlessness.
+ - Maybe we’re grass – our roots so interdependent that no one is dead as long as someone is still alive.
+ - I don’t think we should see the world of books as fundamentally separate from the world of the Internet. Yes, the Internet contains a lot of videos of squirrels riding skateboards, but it can also be a place that facilitates big conversations about books.
+ - My inner goddess is doing the merengue with some salsa moves.
+ - To be abandoned like that! Shut out when you most need to be loved.
+ - Finally, I decided that the proper strategy was to stare back. Boys do not have a monopoly on the Staring Business.
+ - All good American literature is always interested in people who are ambiguously heroic, like Gatsby.
+ - And I wanted to tell her that the pleasure for me wasn’t planning or doing or leaving; the pleasure was in seeing our strings cross and separate and then come back together.
+ - We look back to the most important moment in our history, and that becomes the dividing line between what we were and what we are now.
+ - Tiny Cooper is not the world’s gayest person, and he is not the world’s largest person, but I believe he may be the world’s largest person who is really, really gay, and also the world’s gayest person who is really, really large.
+ - God will punish the wicked. And before He does, we will.
+ - You don’t want romantic advice from me, you want romantic advice from Edward Cullen. I completely understand but he is completely unavailable right now and I’ll tell you why. He doesn’t exist.
+ - I do not say goodbye. I believe that’s one of the bullshitiest words ever invented. It’s not like you’re given the choice to say bad-bye, or awful-bye, or couldn’t-care-less-about-you-bye. Everytime you leave, it’s supposed to be a good one.
+ - The past feels distant, even when it’s near. The future feels assured, even when it isn’t.
+ - It’s hard to believe in coincidence, but it’s even harder to believe in anything else.
+ - She had the kind of eyes that predisposed you to supporting her every endeavor.
+ - Osteosarcoma sometimes takes a limb to check you out. The, if it like you, it takes the rest.
+ - This star won’t go out. And it won’t. we won’t let it.
+ - He responded a few minutes later. Okay. I wrote back. Okay. He responded: Oh, my God, stop flirting with me!
+ - We think that we are invincible because we are.
+ - 10-5 space 16-5-14-19-5 space 17-21-5 space 10-5 space 20-1-9-13-5.
+ - The Romans knew it: quod me alit me extinguit, they said: That which nourishes me, extinguishes me.
+ - Like the way the sun is right now, with the long shadows, and that kind of bright, soft light you get when the sun isn’t quite setting? That’s the light that makes everything better, everything prettier, and today, everything just seemed to be in that light.
+ - I didn’t know what to say to her – I was caught in a love triangle with one dead side.
+ - Meriwether Lewis’s last words were, ‘I am not a coward, but I am so strong. So hard to die.’ I don’t doubt that it is, but it cannot be much harder than being left behind.
+ - People believed in an afterlife because they couldn’t bear not to.
+ - Augustus Waters died eight days after his prefuneral, at Memorial, in the ICU, when the cancer, which was made of him, finally stopped his heart, which was also made of him.
+ - If I ever end up being the kind of person who has one kid and seven bedrooms. Do me a favor and shoot me.
+ - We all miss you so much. It just never ends. It feels like we were all wounded in your battle, Caroline. I miss you. I love you.
+ - Because you are beautiful. I enjoy looking at beautiful people, and I decided a while ago not to deny myself the simpler pleasures of existence.
+ - You may be smart, but I’ve been smart longer.
+ - Nothing is as boring as other people’s dreams.
+ - The labyrinth blows, but I choose it.
+ - And on the last day, the bad days become so difficult to recall, because one way or another, she had made a life here, just as I had. The town was paper, but the memories were not. All the things I’d done here, all the love and pity and compassion and violence and spite, kept welling up inside me.
+ - Life has become the future.
+ - To be human is to catch the falling person.
+ - They love their hair because they’re not smart enough to love something more interesting.
+ - We all romanticize the people we adore.
+ - Dear Teens at Starbucks wearing ‘Abstain from Sex 2 Attain Ur Goals’ t-shirts: Doesn’t it depend on what my goals are?
+ - I feel like crying, so I must be crying, but it’s impossible to tell because I’m underwater.
+ - The French verb aimer has two meanings. And that’s why he liked her, and loved her. She spoke to him in a language that, no matter how hard you studied it, could not be completely understood.
+ - I think forever is an incorrect concept.
+ - I’m a bad boyfriend. She’s a bad girlfriend. We deserve each other.
+ - She was up and down – from fire and brimstone to smoke and ashes.
+ - We have bottled all the stars this evening, my young friend.
+ - I got my wish, I suppose. I left my scar.
+ - I liked Augustus Waters. I really, really really liked him. I liked the way his story ended with someone else. I liked his voice. I liked that he took existentially-fraught free throws.
+ - Home is Where the Heart Is, Good Friends Are Hard to Find and Impossible to Forget. True Love is Born from Hard Times.
+ - I hadn’t been in proper school in three years. My parents were my two best friends. My third best friend was an author who did not know I existed.
+ - The sky is like a monochromatic contemporay painting, drawing me in its illusion of depth, pulling me up.
+ - I just want you to be happy. If that’s with me or with someone else or with nobody. I just want you to be happy.
+ - I’m interested in Internet cultures. I’m interested in what the teenagers who drive the Internet culture are passionate about. I follow their lead – they go to tumblr, I go to tumblr.
+ - It’s just that I learned a while ago that the best way to get people to like you is not to like them too much.
+ - Colin thought about the dork mantra: sticks and stones may break my bones, but words will never hurt me. What a dirty lie.
+ - Funerals, I had decided, are for the living.
+ - Language buries, but does not resurrect.
+ - For a moment, she was quiet. Then she grabbed my hand, whispered, “Run run run run run,” and took off, pulling me behind her.
+ - The sun was a toddler insistently refusing to go to bed: It was past eight thirty and still light.
+ - I want to see you again tonight. But I’m willing to wait all night and much of tomorrow.
+ - I came here looking for a Great Perhaps, for real friends and a more-than-minor life...
+ - Thank you for explaining that my eye cancer isn’t going to make me deaf. I feel so fortunate that an intellectual giant like yourself would deign to operate on me.
+ - Shouldn’t letting go be painless if you’ve never learned how to hold on?
+ - Dutch is not so much a language as an ailment of the throat.
+ - You see how fake it all is. It’s not even hard enough to be made out of plastic. It’s a paper town.
+ - In the end, what makes a book valuable is not the paper it’s printed on, but the thousands of hours of work by dozens of people who are dedicated to creating the best possible reading experience for you.
+ - I kept waiting for that loneliness and nervousness to make me want to go back. But it never did.
+ - History doesn’t have a curfew.
+ - Traveling, I am finding, teaches you a lot of things about yourself. For instance, I never thought myself to be the kind of person who pees into a mostly empty bottle of Bluefin energy drink while driving through South Carolina at seventy-seven miles per hour – but in face I am that kind of person.
+ - It’s hard as hell to hold on to your dignity when the risen sun is too bright in your losing eyes, and that’s what I was thinking about as we hunted for bad guys through the ruins of a city that didn’t exist.
+ - That’s why I like you. Do you realize how rare it is to come across a hot girl who creates a adjectival version of the word pedophile? You are so busy being you that you have no idea how utterly unprecedented you are.
+ - That was the worst part about having cancer, sometimes: The physical evidence of disease separates you from other people.
+ - If people could see me the way I see myself – if they could live in my memories – would anyone love me?
+ - Dear Jane, Just so you know: e. e. cummings cheated on both of his wives. With prostitutes. Yours, Will Grayson.
+ - Pudge, my friend, we are indefuckingstructible.
+ - You can’t just make yourself matter and then die, Alaska, because now I am irretrievably different...
+ - That is the fear: I have lost something important, and I cannot find it, and I need it. It is fear like if someone lost his glasses and went to the glasses store and they told him that the world had run out of glasses and he would just have to do without.
+ - Only now that I loved a grenade did I understand the foolishness of trying to save others from my own impending fragmentation: I couldn’t unlove Augustus Waters. And I didn’t want to.
+ - Barnacles on the container ship of consciousness.
+ - When you say nasty things about people, you should never say the true ones, because you can’t really fully and honestly take those back...
+ - Come over here so I can examine your face with my hands and see deeper into your soul than a sighted person ever could.
+ - She taught me everything I knew about crawfish and kissing and pink wine and poetry. She made me different.
+ - When surprised and excited and innocent Gus emerged from Grand Gesture Metaphorically Inclined Augustus, I literally could not resist.
+ - The human tongue is like wasabi: it’s very powerful, and should be used sparingly.
+ - It was psychological trick called empathic listening. You say what the person is feeling so they feel understood.
+ - Support Group featured a rotating cast of characters in various states of tumor-driven unwellness. Why did the cast rotate? A side effect of dying.
+ - He flipped himself onto his side and kissed me. “You’re so hot,” I said, my hand still on his leg. “I’m starting to think you have an amputee fetish,” he answered, still kissing me. I laughed. “I have an Augustus Waters fetish,” I explained.
+ - I want more numbers than I’m likely to get, and God, I want more numbers for Augustus Waters than he got. But, Gus, my love, I cannot tell you how thankful I am for our little infinity. I wouldn’t trade it for the world. You gave me a forever within the numbered days, and I’m grateful.
+ - It is easy to forget how full the world is of people, full to bursting, and each of them imaginable and consistently misimagined.
+ - Nothing’s wrong. Everything’s right. Things couldn’t be righter. Things could be less tired. They could be less busy. They could be less caffeinated. But they couldn’t be righter.
+ - You can say a lot of bad things about Alabama, but you can’t say that Alabamans as a people are duly afraid of deep fryers.
+ - She spoke quietly then, the tiniest crack in her voice, and all at once Lacey Pemerton was not Lacey Pemberton. She was just – like, a person.
+ - And then it was the kind of dark your eyes never adjust to.
+ - Just a word of advice. Whenever you’re furious with your parents or you think they’re terrible, just remember, you vomited on them and they kept you.
+ - Late in the winter of my seventeenth year, my mother decided I was depressed, presumably because I rarely left the house, spent quite a lot of time in bed, read the same book over and over, ate infrequently, and devoted quite a bit of my abundant free time to thinking about death.
+ - Every second of your definitionally temporary consciousness, you are choosing how you spend something that will not last forever.
+ - But I will say this: When the scientists of the future show up at my house with robot eyes and they tell me to try them on, I will tell the scientists to screw off, because I do not want to see a world without him.
+ - So why don’t you go home for vacations?? I asked her. I’m just scared of ghosts, Pudge. And home is full of them.
+ - I was a bit of a Victorian Lady, fainting-wise.
+ - Almost everyone is obsessed with leaving a mark upon the world. Bequeathing a legacy. Outlasting death. We all want to be remembered. I do, too. That’s what bothers me most, is being another unremembered casualty in the ancient and inglorious war against disease.
+ - And it was just the three of us – three bodies and two people – the three who knew what had happened and too many layers between all of us too much keeping us from one another.
+ - Gratitude is the proper response for the absolute astonishment of getting to be alive, and aware, and an essential part of this crazy, sprawling story.
+ - Our role as humans is to recognize the complexity of others.
+ - You could hold me and I could hold you. And it would be so peaceful. Completely peaceful. Like the feeling of sleep, but awake in it together.
+ - They like their coffee like they like their ex-boyfriends: bitter.
+ - When you acknowledge that there is nothing repulsive or unforgivable or shameful about yourself, it becomes easier to be that authentic person and feel like you’re living a less performed life.
+ - The worse the haircut, the better the man.
+ - In those fifty, the Old Man made me take religion seriously. I’d never been religious, but he told us that religion is important whether or not we believed in one, the same way that historical events are important whether or not you personally lived through them.
+ - In my opinion, actual heroism, like actual love, is a messy, painful, vulnerable business – and I wanted to try to reflect that.
+ - If you don’t know about Tumblr then you are not supposed to know about Tumblr. It’s like fight club.
+ - Agustus asked if I wanted to go with him to Support Group, but I was really tired from my busy day of Having Cancer, so I passed.
+ - I smiled. She smiled. I believed the smile.
+ - I didn’t tell him that the diagnosis came three months after I got my first period. Like: Congratulations! You’re a woman. Now die.
+ - The phrase booze and mischief left me worrying I’d stumbled into what my mother referred to as “the wrong crowd,” but for the wrong crowd, they both seemed awfully smart.
+ - At some point we all look up and realize we are lost in a maze.
+ - I’ll give you my strength if I can have your remission.
+ - The easiest way to solve a mystery is to decide that there is no mystery to solve.
+ - I am still bowled over by this great young adult novel by David Levithan called ‘Every Day,’ which is about a character with no gender or body who wakes up every day in the body of a different person. It’s a really impressive execution of a really great premise.
+ - Something invisible snapped inside her.
+ - There comes a time when we realize that our parents cannot save themselves or save us, that everyone who wades through time eventually gets dragged out to sea by the undertow- that, in short, we are all going.
+ - So she became impulsive, scared by her inaction into perpetual action.
+ - Of course I tensed up when he touched me. To be with him was to hurt him-inevitably. And that’s what I’d felt as he reached for me: I’d felt as though I were committing an act of violence against him, because I was.
+ - Keys show up when you reconcile yourself to the bus...
+ - What’s the meaning of life? Other people.
+ - That’s what I realized: if I did get her back somehow, she wouldn’t fill the hole that losing her created.
+ - The important thing is not whatever nonsense the voices are saying, but what the voices are feeling.
+ - Mom sobbed something into Dad’s chest that I wish I hadn’t heard, and that I hope she never finds out that I did hear. She said, “I won’t be a mom anymore.” It gutted me pretty badly.
+ - I’d rather wonder than get answers I couldn’t live with.
+ - What do you mean by meant? Given the final futility of our struggle, is the fleeting jolt of meaning that art gives us valuable? Or is it the only value passing time as comfortably as possible?
+ - But that part of us greater than the sum of our parts cannot begin and cannot end, and so it cannot fail.
+ - Waffles are just awesome bread.
+ - I don’t think your missing pieces ever fit inside you again once they go missing.
+ - Nothing really mattered that much, not the good things and not the bad ones. We were in the business of mutual amusement, and we were reasonably prosperous.
+ - I tried – I swear I tried. But you didn’t want to hear what I was saying, and I used that as an excuse to let it go on.
+ - Cold one day, sweet the next; irresistibly flirty one moment, resistibly obnoxious the next.
+ - I hate the rich snots here with a fervent passion I usually reserve only for dental work and my father.
+ - More than anything, I felt the unfairness of it, the inarguable injustice of loving someone who might have loved you back but can’t due to deadness, and then I leaned forward, my forehead against the back of Takumi’s headrest, and I cried, whimpering, and I didn’t even feel sadness so much as pain.
+ - I tried to tell myself that it could be worse, that the world was not a wish-granting factory, that I was living with cancer not dying of it, that I mustn’t let it kill me before it kills me,...
+ - I wish I knew how to quit you, Tumblr.
+ - You get all these friends just when you don’t need friends anymore.
+ - You’re amazing, and I so want to be your boyfriend, because of what you just said, and also because that shirt makes me want to take you home and do unspeakable things while we watch live-action Sailor Moon videos.
+ - In the contemporary world where things fall apart, and the centre cannot hold, you have to imagine a community where there is no centre. Hank, at the end of this year I started thinking that a lot of life is about doing things that don’t suck with people who don’t suck.
+ - The voracious ambition of humans is never sated by dreams coming true, because there is always the thought that everything might be done better and again.
+ - Do not worry too much about your lawn. You will soon find if you haven’t already that almost every adult American devotes tremendous time and money to the maintenance of an invasive plant species called turf grass that we can’t eat. I encourage you to choose better obsessions.
+ - I felt the unfairness of it, the inarguable injustice of loving someone who might have loved you back but can’t due to deadness.
+ - He called out to his fellow monks,’Come quickly I am tasting stars.
+ - Caroline was always moody and miserable, but I liked it. I liked feeling as if she had chosen me as the only person in the world not to hate, and so we spent all this time together just ragging on everyone, you know?
+ - I told myself – as I’ve told myself before – that the body shuts down when the pain gets too bad, that consciousness is temporary, that this will pass. But just like always, I didn’t slip away. I was left on the shore with the waves washing over me, unable to drown.
+ - She waited for me to play out the string, to find the place where she had stopped and was waiting for me, to follow the breadcrumb tail until it dead-ended into her.
+ - This was the first time in my life that so many things would never happen again.
+ - The snow may be falling in the winter of my discontent, but at least I’ve got sarcastic company.
+ - Youth is counted sweetest by those who are no longer young.
+ - I find it really offensive when people say that the emotional experiences of teenagers are less real or less important than those of adults. I am an adult, and I used to be a teenager, and so I can tell you with some authority that my feelings then were as real as my feelings are now.
+ - People always get used to beauty though.
+ - Dumpers may not always be the heartbreakers, and the Dumpees may not always be the heartbroken. But everyone has a tendency.
+ - He liked the mere act of reading, the magic of turning scratches on a page into words inside his head.
+ - It was kind of a beautiful day, finally real summer in Indianapolis, warm and humid – the kind of weather that reminds you after a long winter that while the world wasn’t built for humans, we were built for the world.
+ - If I had a nervous breakdown every time something awful happened in the world, I’d be crazier than a shithouse rat.
+ - I always had this idea that you should never give up a happy middle in the hopes of a happy ending, because there is no such thing as a happy ending. Do you know what I mean? There is so much to lose.
+ - I can’t imagine us saying these things to each other out loud. But even if I can’t imagine hearing these words, I can imagine living them. I don’t even picture it. Instead I’m in it. How I feel with him here. That peace. It would be so happy, and it makes me sad because it only exists in words.
+ - But mothers lie. It’s in the job description.
+ - The future will erase everything – there’s no level of fame or genius that allows you to transcend oblivion. The infinite future makes that kind of mattering impossible.
+ - And okay, fair enough, but there is this unwritten contract between author and reader and I think not ending your book kind of violates that contract.
+ - Congratulations! You’re a woman. Now die.
+ - You matter as much as the things that matter to you do.
+ - Did I help you toward a fate you didn’t want, Alaska, or did I just assist in your willful self-destruction?
+ - Abligurition: an actual, if very obscure, English word, which means the spending of too much money on food.
+ - She’s just playing a trick on us. This is just an Alaska Young Prank Extraordinaire. It’s Alaska being Alaska, funny and playful and not knowing when or how to put on the brakes.
+ - No woman should ever lie about another woman. You’ve violated the sacred covenant between women! How will stabbing one another in the back help women to rise above patriarchal oppression?
+ - High school is neither a democracy nor a dictatorship – nor, contrary to popular belief, an anarchic state. High school is a divine-right monarchy. And when the queen goes on vacation, things change.
+ - It looked like an old painting, but real – everything achingly idyllic in the morning light – and I thought about how wonderfully strange it would be to live in a place where almost everything had been built by the dead.
+ - You can’t dingleberry that! That’s a flagrant misuse of the dingleberry!
+ - We did a few things worth remembering, and I wish for someone to remember them.
+ - Principled hate is a hell of a lot stronger than “Boy, I wish you hadn’t mummified me and thrown me into the lake” hate.
+ - He wanted to draw out the moment before the moment- because as good as kissing feels, nothing feels as good as the anticipation of it.
+ - Being in a relationship, that’s something you choose. Being friends, that’s something you just are.
+ - The missing piece in his stomach hurt so much-and eventually he stopped thinking about the Theorem and wondered only how something that isn’t there can hurt you.
+ - For she had embodied the Great Perhaps – she had proved to me that it was worth it to leave behind my minor life for grander maybes, and now she was gone and with her my faith in perhaps.
+ - The future lay before him, inevitable but invisible.
+ - At some point, I realized I was Kaitlyning the encounter, so I decided to text Kaitlyn and ask for some advice.
+ - Tiny, the next time that you try to set me up with a girl with a secret boyfriend can you at least INFORM me that she has a secret boyfriend? Also, if you don’t call me back within five minutes, I’m going to assume you found a way back to Evanston. Furthermore, you are an asshat. That is all.
+ - You could hear the wind in the leaves, and on that wind traveled the screams of the kids on the playground in the distance, little kids figuring out how to be alive, how to navigate a world that wasn’t made for them by navigating a playground that was.
+ - The thought of you being removed from the rotation is not funny to me.
+ - I wouldn’t have cared if my girlfriend was a Jaguar-driving Cyclops with a beard – I’d have been grateful just to have someone to make out with.
+ - We’re invisible. I’ve never been here with someone else. It’s different being invisible with someone.
+ - I like this world. I like drinking champagne. I like not smoking. I like Dutch people speaking Dutch.
+ - You can’t just make me different, and then leave. Because I was fine before, Alaska. I was just fine with me and last words and school friends, and you can’t just make me different and then die.
+ - Just spend a few more months playing video games. That hand-eye coordination will come in handy when you get to third base.
+ - The light filtered throught the leaves and pine needles above as if through lace, the ground spotted in shadow.
+ - She’s cute, I thought, but you don’t need to like a girl who treats you like you’re ten: You’ve already got a mom.
+ - A Margo for each of us – and each more mirror than window.
+ - He lit a cigarette and handed it to me. I inhaled. Coughed. Wheezed. Gasped for breath. Coughed again. Considered vomiting. Grabbed the swinging bench, head spinning, and threw the cigarette to the ground and stomped on it, convinced my Great Perhaps did not involve cigarettes.
+ - I know that books seem like the ultimate thing that’s made by one person, but that’s not true. Every reading of a book is a collaboration between the reader and the writer who are making the story up together.
+ - Peeing is like a good book in that it is very, very hard to stop once you start.
+ - It has been my experience that maximizing income is a helluva lot less important than maximizing passion and fulfillment in your both professionally and personally.
+ - The five of us walking confidently in a row, I’d never felt cooler. The Great Perhaps was upon us, and we were invincible. The plan may have had faults, but we did not.
+ - I’ve lived here for eighteen years and I have never once in my life come across anyone who cares about anything that matters.
+ - Our lives are composed of a finite set of moments that we choose how to spend.
+ - Imagining the future is a kind of nostalgia.
+ - She raised one leg and gave me all her weight as a I dipped her. She either trusted me or wanted to fall.
+ - I will play out the string. I will not betray your trust. I will find you.
+ - You will not kill my girlfriend today, International Terrorists of Ambiguous Nationality!
+ - This squirrel is inadequately afraid of humans! Squirrel, I am a threat to you! We are enemies! Please get off my bench! Oh, god! Oh, god! Don’t touch me – oh, god!
+ - It is so hard to leave-until you leave.
+ - She has enough black eyeliner on to outline a corpse, and her skin’s so pale she looks like she’s just broken dawn.
+ - Getting you a date to prom is so hard that the hypothetical idea itself is used to cut diamonds.
+ - In our hyper-secular world, worship is still inevitable. But it is vital to remember that our gods don’t choose us, we choose them.
+ - Everything that comes together falls apart.
+ - Easy comfort isn’t comforting.
+ - Crying adds something: crying is you, plus tears. But the feeling Colin had was some horrible opposite of crying. It was you, minus something. He kept thinking about one word – forever – and felt the burning ache just beneath his rib cage.
+ - People are different when you can smell them and look up close, you know?
+ - She smiled with all the delight of a kid on Christmas morning and said, “Y’all smoke to enjoy it. I smoke to die.” – Alaska.
+ - We left. We did not say: Don’t drive, You’re drunk. We did not say: We aren’t letting you in that car when you are upset. We did not say: We insist on going with you. We did not say: This can wait until tomorrow. Anything-everything-can wait.
+ - I thought being an adult meant knowing what you believe, but that has not been my experience.
+ - You’re awfully philosophical for a girl that just got busted.
+ - The venn diagram of boys who don’t like smart girls and boys you don’t wanna date is a circle.
+ - It just goes to show, if you try to ruin someone’s life, it only gets better. You just don’t get to be a part of it.
+ - Sunlight feels warm and rough against your skin like a kiss on the cheek from your dad.
+ - Nerd girls are the world’s greatest under-utilized romantic resource.
+ - I believe humans have souls, and I believe in the conservation of souls.
+ - A small olive-skinned creature who had hit puberty but never hit it very hard, Ben had been my best friend since fifth grade, when we both finally owned up to the fact that neither of us was likely to attract anyone else as a best friend.
+ - I wasn’t disappointed. My expectations had been met.
+ - C’mon Pudge. I’m teasing. You have to be tough. I didn’t know how bad it was – and I’m sorry, and they’ll regret it – but you have to be tough.
+ - The pleasure of remembering had been taken from me, there was no longer anyone to remember with.
+ - The way we still essentializ, we’re constantly essentializing people as merely poor, or merely other, and in the end you can’t have a relationship with people. I think the biggest job of adulthood is to learn to imagine other people complexly.
+ - Hank, when people call people nerds mostly what they’re saying is,‘You like stuff’.
+ - Just move to the Internet, its great here. We get to live inside where the weather is always awesome.
+ - But you know what they say about Gutshot: the population never goes up and never goes down, because every time a woman gets pregnant, a man leaves town.
+ - I don’t really want to be the costar of anyone’s life.
+ - We only have so long to play in the dirt and ask questions of rivers.
+ - And then I was asleep. That deep, can-still-taste-her-in-my-mouth sleep, that sleep that is not particularly restful but difficult to wake up from all the same.
+ - Ben Starling, you better not have bought your token black friend a racist shirt.
+ - Stop thinking about the landing, because it’s all about falling.
+ - I have to tell you man, that my stalker meter is kind of registering in the red zone right now.
+ - We cannot be born, and we cannot die. Like all energy, we can only change shapes and sizes and manifestations.
+ - We have this weird thing in the world where you don’t get insulted for what you do, you get insulted for who you are.
+ - It seems to me that all the things we keep in sealed boxes are both alive and dead until we open the box, that the unobserved is both there and not.
+ - I don’t want to hear another negative word about cheerleaders. If it weren’t for cheerleaders, who would tell us when and how to be happy during athletic events? If it weren’t for cheerleaders, how would America’s prettiest girls get the exercise that’s so vital to a healthy life?
+ - My third best friend was an author who did not know I existed.
+ - The abbreviated exam week meant that Wednesday was the last day of school for us. And all day long, it was hard not to walk around, thinking about the lastness of it all.
+ - The thing about chameleoning your way through life is that it gets to where nothing is real.
+ - The true ninja doesn’t make a splash at all.
+ - What happens in the band room stays in the band room.
+ - You live for pretentious metaphors.
+ - You have a choice in this world, I believe, about how to tell sad stories, and we made the funny choice.
+ - Her primary reason for living and my primary reason for living were awfully entangled.
+ - There is a part of her greater than the sum of her knowable parts. And that part has to go somewhere, because it cannot be destroyed.
+ - I stand in this parking lot, realizing that I’ve never been this far from home, and here is this girl I love and cannot follow. I hope this is the hero’s errand, because not following her is the hardest thing I’ve ever done.
+ - Margo’s beauty was a kind of sealed vessel of perfection – uncracked and uncrackable.
+ - My responsibility is to try to tell true stories. To me a true story is always hopeful, but never simply, uncomplicatedly happy.
+ - The act of leaning in to kiss someone, or asking them, is fraught with the possibility of rejection, so the person least likely to get rejected should do the leaning in or the asking.
+ - Don’t worry. Worry is useless. I worried anyway.
+ - If I could just stay alive for a week, I’d know the unwritten secrets of Anna’s mom and the Dutch Tulip Guy.
+ - We can’t love our neighbors till we know how crooked their hearts are.
+ - You shall love your neighbour With your crooked heart, It says so much about love and brokenness – it’s perfect.
+ - My cancer is me. The tumors are made of me. They’re made of me as surely as my brain and my heart are made of me. It is a civil war with a predetermined winner.
+ - At the end, we brought her to New York, where I was living, for a series of experimental tortures that increased the misery of her days without increasing the number of them.
+
+500 quotes

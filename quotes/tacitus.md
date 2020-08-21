@@ -1,0 +1,162 @@
+ - In valor there is hope.
+ - Men are more ready to repay an injury than a benefit, because gratitude is a burden and revenge a pleasure.
+ - They make a desert and call it peace.
+ - The more corrupt the state, the more numerous the laws.
+ - Crime, once exposed, has no refuge but in audacity.
+ - Corruptissima re publica plurimae leges.
+ - A bad peace is even worse than war.
+ - The desire for safety stands against every great and noble enterprise.
+ - Great empires are not maintained by timidity.
+ - The Romans brought devestation, but they called it peace.
+ - Valor is the contempt of death and pain.
+ - In the struggle between those seeking power there is no middle course.
+ - Victor and vanquished never unite in substantial agreement.
+ - They terrify lest they should fear.
+ - The most seditious is the most cowardly.
+ - In seasons of tumult and discord bad men have most power; mental and moral excellence require peace and quietness.
+ - In all things there is a law of cycles.
+ - The love of dominion is the most engrossing passion.
+ - The lust for power, for dominating others, inflames the heart more than any other passion.
+ - Miseram pacem vel bello bene mutari. Even war is preferable to a shameful peace.
+ - Truth is confirmed by inspection and delay; falsehood by haste and uncertainty.
+ - So as you go into battle, remember your ancestors and remember your descendants.
+ - Fear is not in the habit of speaking truth.
+ - No one would have doubted his ability to reign had he never been emperor.
+ - To plunder, to slaughter, to steal, these things they misname empire; and where they make a wilderness, they call it peace.
+ - By general consent, he would have been capable of ruling, had he not ruled.
+ - The wicked find it easier to coalesce for seditious purposes than for concord in peace.
+ - Those in supreme power always suspect and hate their next heir.
+ - Even the bravest men are frightened by sudden terrors.
+ - If you would know who controls you see who you may not criticise.
+ - Keen at the start, but careless at the end.
+ - When a woman has lost her chastity she will shrink from nothing.
+ - Things forbidden have a secret charm.
+ - The worst crimes were dared by a few, willed by more and tolerated by all.
+ - Deos fortioribus adesse. The gods support those who are stronger.
+ - The unknown always passes for the marvellous.
+ - Viewed from a distance, everything is beautiful.
+ - To show resentment at a reproach is to acknowledge that one may have deserved it.
+ - A man in power, once becoming obnoxious, his acts, good or bad, will work out his ruin.
+ - The lust of fame is the last that a wise man shakes off.
+ - Perdomita Britannia et statim omissa. Britain was conquered and immediately lost.
+ - Old things are always in good repute, present things in disfavor.
+ - Reason and calm judgment, the qualities specially belonging to a leader.
+ - The brave and bold persist even against fortune; the timid and cowardly rush to despair though fear alone.
+ - Secure against the designs of men, secure against the malignity of the Gods, they have accomplished a thing of infinite difficulty; that to them nothing remains even to be wished.
+ - Solitudinem faciunt pacem appellant. They make a wilderness and they call it peace.
+ - A desire to resist oppression is implanted in the nature of man.
+ - Lust of power is the most flagrant of all the passions.
+ - A bitter jest, when it comes too near the truth, leaves a sharp sting behind it.
+ - Who the first inhabitants of Britain were, whether natives or immigrants, remains obscure; one must remember we are dealing with barbarians.
+ - Valor is of no service, chance rules all, and the bravest often fall by the hands of cowards.
+ - Greater things are believed of those who are absent.
+ - All bodies are slow in growth but rapid in decay.
+ - Reckless adventure is the fool’s hazard.
+ - Every recreant who proved his timidity in the hour of danger, was afterwards boldest in words and tongue.
+ - A woman once fallen will shrink from no impropriety.
+ - Christianity is a pestilent superstition.
+ - By punishing men of talent we confirm their authority.
+ - The principal office of history I take to be this: to prevent virtuous actions from being forgotten, and that evil words and deeds should fear an infamous reputation with posterity.
+ - No one in Germany laughs at vice, nor do they call it the fashion to corrupt and to be corrupted.
+ - Power won by crime no one ever yet turned to a good purpose.
+ - Style, like the human body, is specially beautiful when the veins are not prominent and the bones cannot be counted.
+ - All things atrocious and shameless flock from all parts to Rome.
+ - If we must fall, we should boldly meet our fate.
+ - This I hold to be the chief office of history, to rescue virtuous actions from the oblivion to which a want of records would consign them, and that men should feel a dread of being considered infamous in the opinions of posterity, from their depraved expressions and base actions.
+ - This I regard as history’s highest function, to let no worthy action be uncommemorated, and to hold out the reprobation of posterity as a terror to evil words and deeds.
+ - One who is allowed to sin, sins less.
+ - Crime succeeds by sudden despatch; honest counsels gain vigor by delay.
+ - In private enterprises men may advance or recede, whereas they who aim at empire have no alternative between the highest success and utter downfall.
+ - So obscure are the greatest events, as some take for granted any hearsay, whatever its source, others turn truth into falsehood, and both errors find encouragement with posterity.
+ - Such being the happiness of the times, that you may think as you wish, and speak as you think.
+ - All ancient history was written with a moral object; the ethical interest predominates almost to the exclusion of all others.
+ - So true is it that all transactions of preeminent importance are wrapt in doubt and obscurity; while some hold for certain facts the most precarious hearsays, others turn facts into falsehood; and both are exaggerated by posterity.
+ - Rumor is not always wrong.
+ - It belongs to human nature to hate those you have injured.
+ - The repose of nations cannot be secure without arms, armies cannot be maintained without pay, nor can the pay be produced without taxes.
+ - People flatter us because they can depend upon our credulity.
+ - Nature gives liberty even to dumb animals.
+ - Many who seem to be struggling with adversity are happy; many, amid great affluence, are utterly miserable.
+ - No hatred is so bitter as that of near relations.
+ - The love of fame is a love that even the wisest of men are reluctant to forgo.
+ - It is the rare fortune of these days that one may think what one likes and say what one thinks.
+ - Bottling up his malice to be suppressed and brought out with increased violence.
+ - The hatred of those who are near to us is most violent.
+ - Posterity gives every man his true value.
+ - Kindness, so far as we can return it, is agreeable.
+ - The desire of glory is the last infirmity cast off even by the wise.
+ - All enterprises that are entered into with indiscreet zeal may be pursued with great vigor at first, but are sure to collapse in the end.
+ - Then there is the usual scene when lovers are excited with each other, quarrels, entreaties, reproaches, and then fondling reconcilement.
+ - The word liberty has been falsely used by persons who, being degenerately profligate in private life, and mischievous in public, had no hope left but in fomenting discord.
+ - Nothing mortal is so unstable and subject to change as power which has no foundation.
+ - An eminent reputation is as dangerous as a bad one.
+ - In a state where corruption abounds, laws must be very numerous.
+ - Conspicuous by his absence.
+ - The most detestable race of enemies are flatterers.
+ - Tacitus has written an entire work on the manners of the Germans. This work is short, but it comes from the pen of Tacitus, who was always concise, because he saw everything at a glance.
+ - Noble character is best appreciated in those ages in which it can most readily develop.
+ - Neglected, calumny soon expires, show that you are hurt, and you give it the appearance of truth.
+ - Even for learned men, love of fame is the last thing to be given up.
+ - Legions and fleets are not such sure bulwarks of imperial power as a numerous family.
+ - Indeed, the crowning proof of their valour and their strength is that they keep up their superiority without harm to others.
+ - The task of history is to hold out for reprobation every evil word and deed, and to hold out for praise every great and noble word and deed.
+ - When men are full of envy they disparage everything, whether it be good or bad.
+ - Other men have acquired fame by industry, but this man by indolence.
+ - You might believe a good man easily, a great man with pleasure. -Bonum virum facile crederes, magnum libenter.
+ - It is more reverent to believe in the works of the Deity than to comprehend them.
+ - War will of itself discover and lay open the hidden and rankling wounds of the victorious party.
+ - None make a greater show of sorrow than those who are most delighted.
+ - Falsehood avails itself of haste and uncertainty.
+ - Remedies are slower in their operation than diseases.
+ - We see many who are struggling against adversity who are happy, and more although abounding in wealth, who are wretched.
+ - It is a part of the nature of man to resist compulsion.
+ - It is less difficult to bear misfortunes than to remain uncorrupted by pleasure.
+ - Things are not to be judged good or bad merely because the public think so.
+ - Candor and generosity, unless tempered by due moderation, leads to ruin.
+ - Flattery labors under the odious charge of servility.
+ - Abuse if you slight it, will gradually die away; but if you show yourself irritated, you will be thought to have deserved it.
+ - It is not becoming to grieve immoderately for the dead.
+ - Necessity reforms the poor, and satiety reforms the rich.
+ - It is found by experience that admirable laws and right precedents among the good have their origin in the misdeeds of others.
+ - Seek to make a person blush for their guilt rather than shed their blood.
+ - Every great example of punishment has in it some injustice, but the suffering individual is compensated by the public good.
+ - What is today supported by precedents will hereafter become a precedent.
+ - They even say that an altar dedicated to Ulysses, with the addition of the name of his father, Laertes, was formerly discovered on the same spot, and that certain monuments and tombs with Greek inscriptions, still exist on the borders of Germany and Rhaetia .
+ - More faults are often committed while we are trying to oblige than while we are giving offense.
+ - All those things that are now field to be of the greatest antiquity were at one time new; what we to-day hold up by example will rank hereafter as precedent.
+ - The lust of dominion burns with a flame so fierce as to overpower all other affections of the human breast.
+ - Rumor does not always err; it sometimes even elects a man.
+ - Fear is not in the habit of speaking truth; when perfect sincerity is expected, perfect freedom must be allowed; nor has anyone who is apt to be angry when he hears the truth any cause to wonder that he does not hear it.
+ - Custom adapts itself to expediency.
+ - Be assured those will be thy worst enemies, not to whom thou hast done evil, but who have done evil to thee. And those will be thy best friends, not to whom thou hast done good, but who have done good to thee.
+ - Cruelty is fed, not weakened, by tears.
+ - Benefits received are a delight to us as long as we think we can requite them; when that possibility is far exceeded, they are repaid with hatred instead of gratitude.
+ - Adversity deprives us of our judgment.
+ - That cannot be safe which is not honourable.
+ - Eloquence wins its great and enduring fame quite as much from the benches of our opponents as from those of our friends.
+ - The persecution of genius fosters its influence.
+ - Even honor and virtue make enemies, condemning, as they do, their opposites by too close a contrast.
+ - When the State is corrupt, then the laws are most multiplied.
+ - There can never be a complete confidence in a power which is excessive.
+ - A shocking crime was committed on the unscrupulous initiative of few individuals, with the blessing of more, and amid the passive acquiescence of all.
+ - There are odious virtues; such as inflexible severity, and an integrity that accepts of no favor.
+ - Posterity will pay everyone their due.
+ - The sciences throw an inexpressible grace over our compositions, even where they are not immediately concerned; as their effects are discernible where we least expect to find them.
+ - Liberty is given by nature even to mute animals.
+ - In stirring up tumult and strife, the worst men can do the most, but peace and quiet cannot be established without virtue.
+ - The grove is the centre of their whole religion. It is regarded as the cradle of the race and the dwelling-place of the supreme god to whom all things are subject and obedient.
+ - Whatever is unknown is magnified.
+ - Traitors are hated even by those whom they prefer.
+ - The gods are on the side of the stronger.
+ - He that fights and runs away, May turn and fight another day; But he that is in battle slain, Will never rise to fight again.
+ - Formerly we suffered from crimes; now we suffer from laws.
+ - It is of eloquence as of a flame; it requires matter to feed it, and motion to excite it; and it brightens as it burns.
+ - To abandon your shield is the basest of crimes; nor may a man thus disgraced be present at the sacred rites, or enter their council; many, indeed, after escaping from battle, have ended their infamy with the halter.
+ - I am my nearest neighbour.
+ - Once killing starts, it is difficult to draw the line.
+ - The injustice of a government is proportional to the number of its laws.
+ - Laws were most numerous when the commonwealth was most corrupt.
+ - It is common, to esteem most what is most unknown.
+ - Modern houses are so small we’ve had to train our dog to wag its tail up and down and not sideways.
+
+160 quotes

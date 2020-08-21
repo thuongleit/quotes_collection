@@ -1,0 +1,30 @@
+ - If it was easy, everyone would be doing it, and you wouldn’t have an opportunity.
+ - The temptation to quit will be greatest just before you are about to succeed.
+ - Anything that is measured and watched, improves.
+ - When you’re ready to quit, you are closer than you think.
+ - Never stop investing. Never stop improving. Never stop doing something new.
+ - Never stop investing. Never stop improving. Never stop doing something new. Make it your goal to be better each and every day, in some small way. Remember the Japanese concept of Kaizen. Small daily improvements eventually result in huge advantages.
+ - You got to go down a lot of wrong roads to find the right one.
+ - There’s an old Chinese saying that I just love, and I believe it is so true. It goes like this: ‘The temptation to quit will be greatest just before you are about to succeed.’
+ - Almost nothing works the first time it’s attempted. Just because what you’re doing does not seem to be working, doesn’t mean it won’t work. It just means that it might not work the way you’re doing it.
+ - The Internet has changed everything. We expect to know everything instantly. If you don’t understand digital communication, you’re at a disadvantage.
+ - We are imperfect beings in a very imperfect world, and the one thing we can count on is that things will go wrong, and that each and every one of us will have problems.
+ - Go Daddy is not just a job; it’s a way of life. Our employees work hard, and offering great incentives is fun and productive for the company.
+ - Parents will purchase the dot-com name for their baby. We have been aware of some instances where somebody didn’t name their child a particular name because the dot-com wasn’t available.
+ - No matter how difficult your situation is, you can get through it if you don’t look too far into the future, and focus on the present moment. You can get through anything one day at a time.
+ - Let’s be honest. There’s not a business anywhere that is without problems. Business is complicated and imperfect. Every business everywhere is staffed with imperfect human beings and exists by providing a product or service to other imperfect human beings.
+ - I would say everything in our life in the next 25 years is going to be tied into the Internet, and it’s going to be the place for communications, for education, for conducting business and everything.
+ - I’ve never worked to make money. I understand we’ve got to eat and all that, but I never said I want to be a multimillionaire or a billionaire. To me, that’s of no significance. I work to have the accomplishment.
+ - A domain name is your address, your address on the Internet. We all have a physical address; we’re all going to need an address in cyberspace. They’re becoming increasingly important. I believe we’ll get to the point where when you’re born, you’ll be issued a domain name.
+ - Any company has got to reinvent itself again and again.
+ - I believe that not much happens of any significance when we’re in our comfort zone.
+ - I now know that I learn by solving problems as they arise. Rarely do we learn significant lessons, or significantly improve, any other way.
+ - You need to know exactly where you stand in a business at all times. Measure everything, because everything that is measured and watched improves.
+ - You put a tuxedo on me, it’s like putting a saddle on a hog.
+ - When it comes to the Internet, people like dealing with people.
+ - If you want to uncover problems you don’t know about, take a few moments and look closely at the areas you haven’t examined for a while. I guarantee you problems will be there.
+ - When I started Go Daddy, I tried many things – like building networks and selling education – and none of it panned out. I lost millions of dollars the first couple of years. I made a lot of wrong turns, but that’s the process of being successful in business.
+ - I learned at that young age that sometimes a really big chance pays off.
+ - Like most business people, I want every aspect of my business to be perfect. I know that this goal is unachievable, but it is nevertheless what I strive to achieve .
+
+28 quotes

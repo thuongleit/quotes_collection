@@ -1,0 +1,234 @@
+ - Literature exists because the world isn’t enough.
+ - I am nothing. I’ll never be anything. I couldn’t want to be something. Apart from that, I have in me all the dreams in the world.
+ - Stones in the road? I save every single one, and one day I’ll build a castle.
+ - In order to understand, I destroyed myself.
+ - Life is good, but Wine is better.
+ - Literature is the most agreeable way of ignoring life.
+ - The value of things is not the time they last, but the intensity with which they occur. That is why there are unforgettable moments and unique people!
+ - If you cannot live alone, you were born a slave.
+ - We never love anyone. What we love is the idea we have of someone. It’s our own concept – our own selves – that we love.
+ - To be great, be whole; Exclude nothing, exaggerate nothing that is not you. Be whole in everything. Put all you are Into the smallest thing you do. So, in each lake, the moon shines with splendor Because it blooms up above.
+ - I wasn’t meant for reality, but life came and found me.
+ - I’m beginning to know myself. I don’t exist. I’m the space between what I’d like to be and what others made of me. Just let me be at ease and all by myself in my room.
+ - Everything is worthwhile if the soul is not small.
+ - And, like the great damned souls, I shall always feel that thinking is worth more than living.
+ - I don’t know what I feel or what I want to feel. I don’t know what to think or what I am.
+ - It’s been a long time since I’ve been me.
+ - I always live in the present. The future I can’t know. The past I no longer have.
+ - Strength without agility is a mere mass.
+ - I’d woken up early, and I took a long time getting ready to exist.
+ - Life is what we make of it. Travel is the traveler. What we see isn’t what we see but what we are.
+ - I’m sick of everything, and of the everythingness of everything.
+ - I bear the wounds of all the battles I avoided.
+ - My past is everything I failed to be.
+ - I know not what tomorrow will bring.
+ - My homeland is the portuguese language.
+ - The sea with an end can be Greek or Roman: the endless sea is Portuguese.
+ - Ah, who will save me from existing? It’s neither death nor life that I want.
+ - To kill our dream life would be to kill ourselves, to mutilate our soul. Dreaming is the one thing we have that’s really ours, invulnerably and inalterably ours.
+ - God wills, man dreams, the work is born.
+ - Multipliquei-me para me sentir.
+ - I look at myself but I’m missing. I know myself: it’s not me.
+ - Sometimes, when I wake up at night, I feel invisible hands weaving my destiny.
+ - Why is art beautiful? Because it’s useless. Why is life ugly? Because it’s all ends and purposes and intentions.
+ - The inventor of the mirror poisoned the human heart.
+ - There are no norms. All people are exceptions to a rule that doesn’t exist.
+ - My soul is a hidden orchestra; I know not what instruments, what fiddlestrings and harps, drums and tamboura I sound and clash inside myself. All I hear is the symphony.
+ - I want to be a work of art, at least in my soul, since I can’t be one in my body.
+ - I’ve always rejected being understood. To be understood is to prostitute oneself. I prefer to be taken seriously for what I’m not, remaining humanly unknown, with naturalness and all due respect.
+ - To create, I destroyed myself; I made myself external to such a degree within myself that within myself I do not exist except in an external fashion. I am the living setting in which several actors make entrances, putting on several different plays.
+ - Everything is theater.
+ - I suffer from life and from other people. I can’t look at reality face to face. Even the sun discourages and depresses me. Only at night and all alone, withdrawn, forgotten and lost, with no connection to anything real or useful – only then do I find myself and feel comforted.
+ - Wise is he who enjoys the show offered by the world.
+ - I am tired of myself in every way. All things, deep down to the secret of their roots, are stained by the color of my weariness.
+ - God gave the sea the danger and the abyss, but it was in it that He mirrored the sky.
+ - I never was but an isolated bon vivant, which is absurd; or a mystic bon vivant, which is an impossible thing.
+ - Who am I to myself? Just a feeling of mine.
+ - Life is full of paradoxes, as roses are of thorns.
+ - No intelligent idea can gain general acceptance unless some stupidity is mixed in with it.
+ - I carry my awareness of defeat like a banner of victory.
+ - Destiny gave me only two things: a few accounting books and the gift of dreaming.
+ - In this metallic age of barbarians, only a relentless cultivation of our ability to dream, to analyse and to captivate can prevent our personality from degenerating into nothing or else into a personality like all the rest.
+ - My soul is impatient with itself, as with a bothersome child; its restlessness keeps growing and is forever the same. Everything interests me, but nothing holds me.
+ - I am the escaped one, After I was born They locked me up inside me But I left. My soul seeks me, Through hills and valley, I hope my soul Never finds me.
+ - But I am not perfect in my way of putting things Because I lack the divine simplicity Of being only what I appear to be.
+ - I’ve dreamed a lot. I’m tired now from dreaming but not tired of dreaming. No one tires of dreaming, because to dream is to forget, and forgetting does not weigh on us, it is a dreamless sleep throughout which we remain awake. In dreams I have achieved everything.
+ - Let us sculpt in hopeless silence all our dreams of speaking.
+ - There are ships sailing to many ports, but not a single one goes where life is not painful.
+ - I know nothing and my heart aches.
+ - What is a disease is wishing with an equal intensity what is needed and what is desirable, and suffer for not being perfect as you would suffer for not having bread. The romantic error is this wanting the moon as if there was a way to get it.
+ - To be great, be whole; Exclude nothing. Be whole in everything.
+ - I always live in the present. I don’t know the future and no longer have the past. The former oppresses me as the possibility of everything, the latter as the reality of nothing.
+ - We all have two lives: The true, the one we dreamed of in childhood And go on dreaming of as adults in a substratum of mist; the false, the one we love when we live with others, the practical, the useful, the one we end up by being put in a coffin.
+ - I’ve never done anything but dream. This, and this alone, has been the meaning of my life. My only real concern has been my inner life.
+ - The human soul is an abyss.
+ - My dreams are a stupid refuge, like an umbrella against a thunderbolt.
+ - The end of lower art is to please, the end of average art is to raise the top, the end of superior art is to free.
+ - Lord, may the pain be ours, And the weakness that it brings, But at least give us the strength, Of not showing it to anyone!
+ - Solitude desolates me; company oppresses me.
+ - To think is to destroy.
+ - You breathe better when you’re rich.
+ - Oh salty sea, how much of your salt Is tears from Portugal?
+ - If after I die, people want to write my biography, there is nothing simpler. They only need two dates: the date of my birth and the date of my death. Between one and another, every day is mine.
+ - Could it think, the heart would stop beating.
+ - There’s no regret more painful than the regret of things that never were.
+ - Every gesture is a revolutionary act.
+ - If I write what I feel, it’s to reduce the fever of feeling. What I confess is unimportant, because everything is unimportant.
+ - I’m upset by the happiness of all these men who don’t know they’re unhappy. Because of that, though, I love them all. Dear vegetables!
+ - The beauty of a naked body is felt only by the dressed races.
+ - As we wash our body so we should wash destiny, change life as we change clothes.
+ - Contradiction is the essence of the universe.
+ - There are metaphors more real than the people who walk in the street.
+ - My soul’s the present shadow of a presence gone.
+ - Your poems are of interest to mankind; your liver isn’t. Drink till you write well and feel sick. Bless your poems and be damned to you.
+ - Success consists in being successful, not in having potential for success. Any wide piece of ground is the potential site of a palace, but there’s no palace till it’s built.
+ - To be understood is to prostitute oneself.
+ - Today I suddenly experienced an absurd but quite valid sensation. I realized, in an intimate lightning flash, that I am no one. No one, absolutely no one.
+ - For who expects nothing, all that comes is grateful.
+ - Better to dream than to be.
+ - Attention to detail and a perfectionist instinct, far from stimulating action, are character qualities that lead to renunciation. Better to dream than to be.
+ - Every spoken word double-crosses us. The only tolerable form of communication is the written word, since it isn’t a stone in a bridge between souls but a ray of light between stars.
+ - Myth is the nothing that is all.
+ - This world is for those who are born to conquer it, Not for those who dream that are able to conquer it, even if they’re right.
+ - I’m a man for whom the outside world is an inner Reality.
+ - I enjoy wording. Words for me are tangible bodies, visible sirens, incarnate sensualities.
+ - I think of life as an inn where I have to stay until the abyss coach arrives. I don’t know where it will take me, for I know nothing.
+ - To know nothing about yourself is to live. To know yourself badly is to think.
+ - These pages are not my confession; they’re my definition. And I feel, as I begin to write it, that I can write it with some semblance of truth.
+ - When I write, I solemnly visit myself.
+ - I was a poet animated by philosophy, not a philosopher with poetic faculties.
+ - I Know, I Alone I know, I alone How much it hurts, this heart With no faith nor law Nor melody nor thought. Only I, only I And none of this can I say Because feeling is like the sky – Seen, nothing in it to see.
+ - Sailing is necessary, living is not necessary.
+ - I’ve reached the point where tedium is a person, the incarnate fiction of my own company.
+ - I search and can’t find myself. I belong in chrysanthemum time, sharp in calla lily elongations. God made my soul into an ornamental thing.
+ - The slope takes you to the windmill, but effort takes you nowhere.
+ - Ah, it’s my longing for whom I might have been that distracts and torments me!
+ - We worship perfection because we can’t have it; if we had it, we would reject it. Perfection is inhuman, because humanity is imperfect.
+ - Should you ask me if I’m happy, I’ll answer that I’m not.
+ - To need to dominate others is to need others. The commander is dependent.
+ - We, all who live, have A life that is lived And another life that is thought, And the only life we have It’s the one that is divided In right or wrong.
+ - Look, there’s no metaphysics on earth like chocolates.
+ - I’m losing my taste for everything, including even my taste for finding everything tasteless.
+ - Decadence is the total loss of unconsciousness, which is the very basis of life. Could it think, the heart would stop beating.
+ - Friends: not one. Just a few acquaintances who imagine they feel something for me and who might be sorry if a train ran over me and the funeral was on a rainy day.
+ - Let’s absurdify life, from east to west. Let us play hide-and-seek with our consciousness of living.
+ - To think is to destroy. The very process of thought indicates it for the same thought, as thinking is decomposing.
+ - In the very corner of my soul there is an altar to a different god.
+ - We live by action – by acting on desire. Those of us who don’t know how to want – whether geniuses or beggars – are related by impotence.
+ - Talking to people makes me feel like sleeping. Only my ghostly and imaginary friends, only the conversations I have in my dreams, are genuinely real and substantial.
+ - I never had anyone I could call “Master”. No Christ died for me. No Buddha showed me the right path. In the depths of my dreams no Apollo or Athena appeared to me to enlighten my soul.
+ - Without madness what is man But a wholesome beast, Postponed corpse that begets?
+ - To live is to be someone else. Feeling is impossible if we feel today as we felt yesterday: to feel today the same thing we felt yesterday is not to feel at all – it’s merely to remember today what we felt yesterday, since today we are the living cadaver of yesterday’s lost life.
+ - Man shouldn’t be able to see his own face. That’s what’s most terrible. Nature gave him the possibility of not seeing it, as well as the incapacity of not seeing his own eyes.
+ - We are two abysses – a well staring at the sky.
+ - The unnatural and the strange have a perfume of their own.
+ - It is noble to be shy, illustrious not to know how to act, great not to have a gift for living.
+ - Nature is the difference between the soul and God.
+ - I seek and don’t find myself. I belong to chrysanthemum hours, neatly lined up in flowerpots.
+ - To narrate is to create, for living is just being lived.
+ - Between me and life is a faint glass. No matter how sharply I see and understand life, I cannot touch it.
+ - But my sadness is comforting Because it’s right and natural And because it’s what the soul should feel When it already thinks it exists And the hand pick flowers And the soul takes no notice.
+ - All pleasure is a vice, for seeking pleasure is what everybody does in life, and the only dark vice is doing what everybody does.
+ - I pass times, I pass silences, formless worlds pass me by.
+ - It’s in an inland sea that the river of my life ended.
+ - The essence of what I desire is simply this: to sleep away life.
+ - The startling reality of things is my discovery every single day.
+ - The chill of what I won’t feel gnaws at my present heart.
+ - Humanitarianism is rude.
+ - Direct experience is the evasion, or hiding place of those devoid of imagination.
+ - Being tired of all illusions and of everything about illusions – the loss of illusions, the uselessness of having them, the prefatigue of having to have them in order to lose them, the sadness of having had them, the intellectual shame of having had them knowing that they would have to end this way.
+ - The world belongs to who doesn’t feel. The primary condition to be a practical man is the absence of sensitivity.
+ - I’m the empty stage where various actors act out various plays.
+ - Give to each emotion a personality, to each state of mind a soul.
+ - I’m something that I used to be. I’m never where I feel I am, and if I seek myself, I don’t know who’s seeking me. My boredom with everything has numbed me. I feel banished from my soul.
+ - Let’s buy books so as not to read them; let’s go to concerts without caring to hear the music or see who’s there; let’s take long walks because we’re sick of walking; and let’s spend whole days in the country, just because it bores us.
+ - There’s enough metaphysics in not thinking about anything.
+ - And I have the others in me. Even when I’m far away from them, I am forced to live with them. Even when I’m all alone, crowds surround me. I have no place to flee to, unless I were to flee from myself.
+ - I realize that, while often happy and often cheerful, I am always sad.
+ - Life is whatever we conceive it to be.
+ - I feel as if I’m always on the verge of waking up.
+ - If life has given us no more than a prison cell, let’s at least decorate it as best we can-with the shadows of our dreams, their colourful patterns engraving our oblivion on the static surface of the walls.
+ - I belong to a generation – assuming that this generation includes others besides me – that lost its faith in the gods of the old religions as well as in the gods of modern nonreligions. I reject Jehova as I reject humanity.
+ - At first I felt dizzy – not with the kind of dizziness that makes the body reel but the kind that’s like a dead emptiness in the brain, an instinctive awareness of the void.
+ - The superiority of the dreamer is that dreaming is much more practical than living, and that the dreamer extracts from life a much vaster and varied pleasure than the action man. In better and more direct words, the dreamer is the real action man.
+ - Against destiny I fulfilled my duty. Uselessly? No, for I fulfilled it.
+ - What Hells and Purgatories and Heavens I have inside of me! But who sees me do anything that disagrees with life – me, so calm and peaceful?
+ - Art consists in making others feel what we feel.
+ - Smell is a strange sight. It evokes sentimental landscapes through a sudden sketching of the subconscious.
+ - Yes, talking to people makes me sleepy.
+ - There’s a non-existent peace in the uncertain quietness.
+ - My joy is as painful as my pain.
+ - Action men are the unvoluntary slaves of wise men.
+ - I will be what I want. But I will have to want what I’ll be. Success is in having success, not conditions for success.
+ - I realize that I was all error and deviation, that I never lived, that I existed only in so far as I filled time with consciousness and thought.
+ - The supreme empire is that of the Emperor who renounces all normal life, that of other men, and in who the care of supremacy doesn’t weigh like a load of jewels.
+ - Whether or not they exist we are slaves to our gods.
+ - I never meant to be but a dreamer.
+ - I don’t write in Portuguese. I write myself.
+ - I crave time in all its duration, and I want to be myself unconditionally.
+ - Wasting time has an esthetics to it.
+ - Art gives us the illusion of liberation from the sordid business of being.
+ - On the road halfway between faith and criticism stands the inn of reason. Reason is faith in what can be understood without faith, but it’s still a faith, since to understand presupposes that there’s something understandable.
+ - Never read a book to the end, nor even in sequence and without skipping.
+ - Having never discovered qualities in myself that might attract someone else, I could never believe that anyone felt attracted to me.
+ - I don’t believe in the landscape.
+ - Whenever someone tells me he dreamed, I wonder if he realizes that he has never done anything but dream.
+ - Life is a thread that someone entangled.
+ - Inch by inch I conquered the inner terrain I was born with. Bit by bit I reclaimed the swamp in which I’d languished. I gave birth to my infinite being, but I had to wrench myself out of me with forceps.
+ - I never cared about whatever tragic event happened in China. It’s faraway decoration, even if in blood and plague.
+ - Changing from the ghosts of faith to the spectres of reason is just changing cells.
+ - To feel today what one felt yesterday isn’t to feel – it’s to remember today what was felt yesterday, to be today’s living corpse of what yesterday was lived and lost.
+ - The Gods sell when they give. Glory is paid for with disgrace. Poor are the happy, for they are Just what passes.
+ - Liberty is the possibility of isolation.
+ - There are those that even God exploits, and they are prophets and saints in the vacuousness of the world.
+ - All beginnings are involuntary.
+ - Be what I think? But I think of being so many things!
+ - Only sterility is noble and dignified. Only killing what never was is elevated and perverse and absurd.
+ - I look for myself but find no one. I belong to the chrysanthemum hour of bright flowers placed in tall vases. I should make an ornament of my soul.
+ - I sometimes think that I enjoy suffering. But the truth is I would prefer something else.
+ - Isn’t joyful or painful this pain in which I rejoice.
+ - Fraternity has subtleties.
+ - There is no safe standard to tell man from animals.
+ - It’s been months since I last wrote. I’ve lived in a state of mental slumber, leading the life of someone else. I’ve felt, very often, a vicarious happiness. I haven’t existed. I’ve been someone else. I’ve lived without thinking.
+ - To have opinions is to sell out to youself. To have no opinions is to exist. To have every opinion is to be a poet.
+ - Blessed are those who entrust their lives to no one.
+ - One never lives so intensely as when one has been thinking hard.
+ - Everything I sought in life I abandoned for the sake of the search. I’m like one who absentmindedly looks for he doesn’t know what, having forgotten it in his dreaming as the search got under way.
+ - To choose ways of not acting was ever the concern and scruple of my life.
+ - What’s most worthless about dreams is that everybody has them.
+ - Faithful to the word given and the idea had.
+ - We almost always live outside ourselves, and life itself is a continual dispersion. But it’s towards ourselves that we tend, as towards a centre around which, like planets, we trace absurd and distant ellipses.
+ - I come closer to my desk as to a bulwark against life.
+ - For valuing your own suffering sets on it the gold of a sun of pride. Suffering a lot can originate the illusion of being the Chosen of Pain.
+ - Everyone has his vanity, and each one’s vanity is his forgetting that there are others with an equal soul.
+ - We’ve been devastated by the severest and deadliest drought in history – that of our profound awareness of the futility of all effort and the vanity of all plans.
+ - I asked for very little from life, and even this little was denied me.
+ - Every man who deserves to be famous knows it is not worth the trouble.
+ - If this be to have sense, if to be awake Be but to see this bright, great sleep of things, For the rarer potion mine own dreams I’ll take And for truth commune with imaginings.
+ - Since I wasn’t able to leave a succession of beautiful lies, I want to leave the smidgen of truth that the falsehood of everything lets us suppose we can tell.
+ - To live strikes me as a metaphysical mistake of matter, a dereliction of inaction.
+ - To have defined and sure opinions, fixed and known instincts, passions and character – all that is the horror of turning our soul into a fact, materialize it and make it external.
+ - And let our despite go to those who work and fight and our hate to those who hope and trust.
+ - The house clock, place certain there at the bottom of things, strikes the half hour dry and null. All is so much, all is so deep, all is so dark and cold!
+ - And as well as I dream, I reason if I want, for that’s just another kind of dream.
+ - I take with me the conscience of defeat as a victory banner.
+ - But do we really live? To live without knowing what life is – is that living?
+ - My curiosity sister of larks.
+ - Being a retired major looks like an ideal thing to me. What a pity you couldn’t eternally have been just a retired major.
+ - I believe that saying a thing is to keep its virtues and take away its terror.
+ - Art lies because it’s social.
+ - I’d like to be in the country so that I’d could like being in the city.
+ - The end is low, like all quantitative ends, personal or not, and it can be attained and verified.
+ - If we knew the truth, we’d see it; all else is system and outskirts.
+ - Everything stated or expressed by man is a note in the margin of a completely erased text. From what’s in the note we can extract the gist of what must have been in the text, but there’s always a doubt, and the possible meanings are many.
+ - In any spirit that isn’t deformed there is the belief in God. In any spirit that is not deformed there isn’t the belief in a particular God.
+ - Given that we cannot know all the elements in a problem, we never can solve it.
+ - Having touched Christ’s feet is not an excuse for punctuation mistakes.
+ - I never go to where’s a risk. I’m frightened of dangers down to boredom.
+ - My boredom with everything has numbed me.
+ - What is art but the denial of life?
+ - All that I’ve lived I’ve forgotten, as if I’d vaguely heard it. All that I’ll be reminds me of nothing, as if I’d lived and forgotten it.
+ - Time, which grays hair and wrinkles faces, also withers violent affections, and much more quickly.
+ - Property isn’t theft: it’s nothing.
+
+232 quotes

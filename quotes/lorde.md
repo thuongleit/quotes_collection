@@ -1,0 +1,27 @@
+ - Two things to remember in life: take care of your thoughts when you are alone, and take are of your words when you are with people.
+ - Like wildflowers you must allow yourself to grow in all the places people thought you never would.
+ - It’s a new art form, showing people how little we care.
+ - Glory and gore go hand in hand.
+ - Everyone’s competing for a love they won’t receive.
+ - Does anything really matter? We all end up in the same place. All that’s left is our Wikipedia entry.
+ - I do not need someone to complete me, but if you wanted to, we could walk next to each other into whatever is coming next.
+ - We’re bigger than we ever dreamed, and I’m in love with being queen.
+ - The smarter the person, the more boring the instagram account.
+ - Not in the swing of things but what I really mean is not in the swing of things yet.
+ - I find this curious – two photos from today, one edited so my skin is perfect and one real. remember flaws are ok.
+ - Taylor Swift is so flawless, and so unattainable, and I don’t think it’s breeding anything good in young girls.
+ - Don’t be afraid. Be the kind of person your mother warned you about.
+ - I’ll let you in on something big: I’m not a white-teeth teen.
+ - The way I dress and carry myself, a lot of people find it intimidating. I think my whole career can be boiled down to the one word I always say in meetings: strength.
+ - What I do is so important to me. It’s like being a parent, in some ways, of a super-demanding, high-achieving child, with a cry that sounds really cool on the radio.
+ - People have told me that Ive helped them feel confident, like they can say things they want to say. They can talk about feminism in class without people calling them a lesbian. Thats so amazing that I can make someone feel like that.
+ - The phrase ‘teen hottie’ literally makes me want to throw up. I’m a pop princess at heart. Pop is about distilling what you want to say and making it easy. And the way I write isn’t about making things easy. It’s a weird juxtaposition.
+ - I think I’m speaking for a bunch of girls when I say that the idea that feminism is completely natural and shouldn’t even be something that people find mildly surprising. It’s just a part of being a girl in 2013.
+ - I’m terrified of growing up. Once you become an adult, how to you step back from that? It’s something that wakes me up at night.
+ - Don’t let some random comment that you wouldn’t have even thought about overshadow something important that you were actually trying to say.
+ - With pop music and pop musicians, you know everything about everyone all the time, particularly their physical appearance. With female musicians, that’s made a big thing of, and I think people, certainly with me, have appreciated a bit of mystery.
+ - I love thrift shopping. You can get ten things because everything costs, like, three dollars.
+ - David Bowie told me my music sounds like tomorrow.
+ - I know when I’m onstage, I don’t think about how it looks, I just concentrate on really feeling what I hear. But I totally know I look like Gollum when I perform, so it’s cool.
+
+25 quotes

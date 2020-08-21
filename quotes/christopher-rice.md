@@ -1,0 +1,22 @@
+ - Everyday is a bank account, and time is our currency. No one is rich, no one is poor, we’ve got 24 hours each.
+ - I think we need to always mimic reality in our fiction. I think that we can stir things up and reveal a truth beneath the surface in that way as well.
+ - What’s become more important to me over time is to not try to sell myself as someone that I’m not, and that begins with coming out of the closet and gradually it’s a challenge to expand that into other areas of my life.
+ - Make a beautiful mess and clean it up later.
+ - Usually when I put my focus on the pacing, the plot, the specific characterizations, – it’s ironic – but then I actually increase my chances of writing something that moves people because I haven’t become too self-conscious of the goal.
+ - I do believe in the Kinsey scale, I think many of us fall in different places on the scale and I think it’s for each one of us to decide where we are on the scale, it’s not for someone else to decide for us.
+ - I think that the most important reason to come out is your own sanity; that’s above everything else. I think that applies whether you’re a public figure or not. The closet is a terrible place to be for the person who’s in it.
+ - The good thing about New Orleans is that, overall, it’s an accepting place. It’s accepting of eccentricity, it’s accepting of excess, it’s accepting of color, in the sense of culture, not necessarily in the sense of race.
+ - If you’re doing something, if you’re following something that is directly at odds with who you are, you’ve got to slow down and ask yourself why you’re following that dream.
+ - If you aren’t following your bliss, there is a discrepancy in your psychology that needs to be healed, it needs to be mended.
+ - Look at any city through the right memories and it could become a graveyard as haunted as a former battlefield.
+ - I think outsiders sometimes produce the best fictional perspectives on reality because they’re set apart from it, so they have a unique view from the border.
+ - I encourage young people to refrain from putting themselves in dangerous situations in the name of validating themselves sexually.
+ - I am comfortable calling myself a writer of suspense, or a writer of thrillers; both terms are sort of interchangeable to me. I think that came from a sense of being at conflict with my true nature throughout my youth, and being afraid of discovery, and feeling as if I didn’t belong.
+ - I am one of those people, and I may be personally biased, who wishes that I had some place to come out of the closet besides a bar.
+ - I’m not a literary writer who is wedded to notions of realism and fiction. I believe that you can write anything if you can feel it convincingly.
+ - I think what has been the ultimate challenge for me is being willing to be honest with myself about what works for me in terms of relationships and sexual relations. In that sense, I was pretty traditional and pretty buttoned down.
+ - This is not an international thriller so much as a fiercely literate attempt to subvert the thriller genre itself.
+ - I think that I am profoundly influenced by writers who have explored loss, and longing, and fear. Those influences have turned me into a thriller writer, essentially.
+ - Honestly, in retrospect, I would wish for future generations to have the ability to have a coming out process that was less alcohol-soaked than mine was.
+
+20 quotes

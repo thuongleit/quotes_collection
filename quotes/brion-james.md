@@ -1,0 +1,27 @@
+ - Wake up – time to die.
+ - The bad guys are the best parts.
+ - I could talk about Blade Runner forever.
+ - I play out negative fantasies for people. I’m the guy people love to hate. And they always remember the bad guy.
+ - You know, stand-up comedy is where I pretty much started out.
+ - I couldn’t say no to jobs and I couldn’t say no to drugs. I’d get high from a movie, I’d be somebody else because I didn’t particularly like me, so long as I had a script in my hand, I was okay. As soon as the movie was over, I didn’t know what to do.
+ - Westerns was why I got into the business. I grew up on a small farm in California and all I ever wanted to do was to play gangsters and cowboys in movies.
+ - In the ’70s, everybody was doing drugs, so long as you showed up and did your work, they’d use you until you died.
+ - I was a different kind of kid, oversensitive and all that.
+ - I still do television. I don’t care. I just want to work. I love to work. I want to do 500 movies.
+ - I liked the drama of getting stoned.
+ - I prayed to God for help and I put myself in a recovery house called Studio 12. It was for people in the business and you didn’t have to have any money to go, which was good because I was broke.
+ - You never know what show is going to change your life.
+ - I never play a villain that I don’t have something I can either do or say so the audience sees there is something redeemable about them. In other words, I don’t want to do evil for evil’s sake. I don’t want to do Jason slasher movies. There’s no point in that.
+ - My whole deal when I do accents or dialects is I gotta fool the locals. If I fool the locals then I’ve done my job.
+ - I’m a character actor, so I don’t take the hit if the movie’s bad, the lead does. So, I don’t want to be the lead. He takes the hit, I don’t.
+ - The best thing about Sci-Fi, which is my favorite genre, is that there are no rules for behavior. So you can do anything you want.
+ - Since very early in my career, I have always did my own stunt fighting.
+ - I’m big and a lot of the stars are smaller so if you’re big and mean looking, you play bad guys. After Blade Runner, I was the meanest guy in Hollywood.
+ - I’ve never considered myself a leading man, don’t look like one, don’t want to be one.
+ - I did 125 films, and over 100 television shows, and you’ve never seen the same character twice.
+ - Producing is nothing more than bringing all the elements together, konnecting people.
+ - Larry Kasdan is a great director.
+ - I’m a parrot. I can pick up an accent and just do it.
+ - My dad had a movie theater so I was there every night.
+
+25 quotes

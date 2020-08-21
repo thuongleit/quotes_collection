@@ -1,0 +1,25 @@
+ - Doors music is not a simple kind of music. It’s like the Bauhaus. It’s clean and pure. Morrison’s lyrics are psychologically deep. So for people to understand Doors music is certainly a testament to their intellects.
+ - Time is just a moment that we occupy in this brief spin around the planet.
+ - The ancient Egyptians used to say: if you say a man’s name, he is alive. I take this opportunity to say, Jim Morrison.
+ - You have to be open to the energy. If you can open your heart to the energy, that great love energy, of this entire universe, good things will happen to you. BUT, you’ve gotta believe. You’ve gotta believe in the goodness.
+ - The Doors really were a band of potheads.
+ - The Doors movie is a pack of lies. It did not make money. You want to make money in America? Tell the truth.
+ - To deny the darkness of the soul is to be but half a human being. But we had both sides.
+ - Through all of history mankind has ingested psychedelic substances. Those substances exist to put you in touch with spirits beyond yourself, with the creator, with the creative impulse of the planet.
+ - I thought we were gonna open up the world of poetry and music to all kinds of things, and yet, I can’t really think of anyone who’s done anything like it since.
+ - I think I’m a very poor piano player.
+ - The Doors were successful. It was Jim Morrison as the centre and the figure and the spokesman, the figurehead, but we were all into the same thing. That’s why we were a band.
+ - You want a showman, go see rock ‘n’ roll bands today. You want to have a shamanistic experience, get psychedelic, then you watch The Doors.
+ - One of the great gifts of being a human being is that you can get rid of yourself and enter into the oneness of music.
+ - Drugs shouldn’t be used for recreation although they can be, but ultimately the point of psychedelics is to put you in touch with the powers of the universe.
+ - The only thing that ultimately matters is to eat an ice-cream cone, play a slide trombone, plant a small tree, good God, now you’re free.
+ - When you’re glad to be alive, good ideas come. The reason good ideas don’t come today is because we’re all bottled up with greed and anger. We’re mad.
+ - I played music practically my entire life. But the first time I ever really played music was with John and Robby and Jim That’s where it happened. it was an epiphany, a moment of profound clarity.
+ - Rock ‘n’ roll is like a circus today.
+ - We went on stage with the Jefferson Airplane, Jim started singing with Grace Slick and hugging her. Then he danced off the stage, went back into the dressing room and passed out cold.
+ - If there was no black man there would be no Rock’n’Roll. The beat, the rhythms of Africa are what created Rock’n’Roll and Jazz.
+ - I’m basically a cocktail jazz kind of pianist. I’ll be the first to admit that I’m not a very good keyboard player. People think I think I’m good. I think I’m a very poor piano player.
+ - I need three million dollars to make a low-budget, intellectual, artistic, exciting, erotic movie with a great soundtrack.
+ - Alan Ginsberg was fabulous. The man is so filled with energy. He’s 65 years old and he’s just loaded with energy and charm and wit and his mind is constantly racing.
+
+23 quotes

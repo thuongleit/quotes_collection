@@ -1,0 +1,70 @@
+ - Power to the peaceful!
+ - When we all see justice, then we’ll all see peace!
+ - It’s never too late to start the day over.
+ - When many little people in many little places do many little things, then the whole world changes.
+ - Sometimes the hardest thing to do is just to stay human.
+ - I think of love as an action. Finding something that’s outside of yourself, to serve someone else’s soul, helping to ignite someone else’s spirit, to bring about ease of heart and joy, serenity in somebody else.
+ - We can bomb the world to pieces, but we can’t bomb it into peace.
+ - The more I see, the less I know.
+ - Life is too short to make just one decision, music is too loud for just one station, love is too big for just one nation, and God is too big for just one religion!
+ - It ain’t about who ya love, it’s all about do ya love.
+ - Television, the drug of the nation, breeding ignorance and feeding radiation...
+ - Those who start wars never fight them, and those who fight wars never like them.
+ - I don’t know if music can change the world overnight but I know that music can help someone make it through a difficult night.
+ - Every single soul is a poem.
+ - No life’s worth more than any other, no sister worth less than any brother.
+ - Love is the action of soul satisfaction.
+ - God is too big for just one religion.
+ - Music is sunshine. Like sunshine, music is a powerful force that can instantly and almost chemically change your entire mood. Music gives us new energy and a stronger sense of purpose.
+ - Only a rat can win a rat race.
+ - The main thing is to be myself. What I mean by that is, to be honest when called upon to express your feelings. The other thing is – maybe this should come first – to be a good listener. To close your mouth and to listen, and to be able to echo back what your partner says to you.
+ - Can’t keep Love like money in the bank.
+ - We only have X amount of days and time on this planet – how am I going to spend that time? The way that I want to spend it is caring about the people that I love the most, and fighting to make the world a more livable place for everybody.
+ - The music industry has been hijacked by corporate interests, but the way music affects people and resonates with them hasn’t changed.
+ - All the freaky people make the beauty of the world.
+ - You learn a lot when you’re barefoot. The first thing is every step you take is different.
+ - Star Wars is mythology. Its like Greek mythology or Shakespeare. Its the story of good versus evil over a very long span of time. The storytelling is universal and timeless.
+ - A lot of times we look at the whole world and think, ‘it’s so daunting, how can we change the whole world?’ and you don’t need to do that, what you need to do is change your world a little bit, and see if you can, through example, inspire others to do the same thing.
+ - The times when I feel not alive is when I feel stifled, when I feel like the emotion that’s in me is not coming out. I’m too busy, too hectic. I’m serving my iPhone more than my spirit. Those are the times I feel bad.
+ - Every bit of land is a Holy land, and every drop of water is Holy water, and every single child is a son or a daughter of the one Earth mama, and the one Earth papa.
+ - I think the main thing I would say is, don’t settle. Don’t settle for something that’s not great.
+ - I’m a news junkie who’s constantly reading newspapers and magazines. I look around and see what’s happening in the world.
+ - Everyone deserves music.
+ - Music has the power to bring people together like no other art form.
+ - When you’re in Jamaica, unless you’re in a tourist spot, you don’t hear Bob Marley; you mostly hear dance hall music.
+ - It shouldn’t be a Republican or Democratic issue whether we take care of the environment. That should be a human issue.
+ - I’ve always found that the poorer the places that I go, the more smiles I see, and the more happiness I see.
+ - If you love the planet or the neighborhood – you’re finding ways to satisfy the soul of the planet or satisfy the soul of the neighborhood.
+ - My goal has not ever been to change minds, my goal is to open minds.
+ - Investing now in safe-guarding people by helping them to adapt to climate change, will help save money and lives while building resilience.
+ - Be as radiant as the sun, as healing as the rain, as generous as a tree.
+ - My parents said sticks and stones will break your bones but names will never hurt you. But I always felt a sense of exhilaration after a fight; it was the names that really hurt me.
+ - I was adopted when I was a baby. My mother carried me for nine months and she held me for one hour, and didn’t see me again.
+ - I could be really sad and I start to cry; I feel alive then. I could be at a concert and I throw my hands up in the air and I feel elation; I feel alive then.
+ - Through music I either tame my demons or unleash them and allow them to be what they are. I don’t want the music to be about provocation, I want the music to bring you to a place where you feel at home.
+ - The personal revolution is far more difficult, and is the first step in any revolution.
+ - Sometimes, I feel like I can do anything, and, sometimes, I’m so alive, sometimes, I feel like I could zoom across the sky and, sometimes, I wanna cry.
+ - You say you’re a Christian, cause God made you, you say you’re a Muslim cause God made you, you say you’re a Hindu and the next man a Jew, but then we all kill each other cause God told us to? Naw!
+ - If we do not change our negative habits toward climate change, we can count on worldwide disruptions in food production, resulting in mass migration, refugee crises and increased conflict over scarce natural resources like water and farm land. This is a recipe for major security problems.
+ - Don’t fear the nighttime, cause the monsters know that you’re divine. Don’t fear the sunshine, cause everything’s better in the summertime.
+ - I feel alive when I feel ease of heart.
+ - Today we are in a war against war – music is our power.
+ - Don’t settle for something that’s not great. Don’t feel like having a relationship that is not serving your needs is more important than having a relationship with yourself.
+ - Bonnaroo has kind of become the granddaddy of all American festivals. The thing I love about it most is that it wasn’t born out of picking the top ten bands off the Billboard chart and creating a festival around it.
+ - I went to the University of San Francisco on an athletic scholarship. I didn’t study in high school. I was just there to get by and to play basketball. But a funny thing happened to me when I got to college. I got challenged by the work and the professors.
+ - Playing on the streets of Iraq, or in Israel or the Gaza strip, I’d sing angry protest songs against war. People would say, ‘Make us clap, make us dance, and laugh and sing.’ It really made me think about the importance of happy music.
+ - I think my soul is intact, but my methods of reaching people are completely different.
+ - The human interest, and the natural interest, and the spiritual interest of this planet need to begin to take a priority over the corporate interest, the military interest, and the materialistic interests.
+ - My mother and father took me in and provided everything for me – the love, nurturing, basic necessities – to give me the space to grow wings, so that when I went out into the world, I could fly.
+ - When I first started out, I thought it was enough to make an angry song that pointed out the problems of the world.
+ - Whenever people go out of their way to help other people – there’s power and beauty in our diversity.
+ - San Francisco has always been a haven for misfits and weirdos. I’m both of those, which is why I came here.
+ - It was hard for me, as a father, to imagine going through what my birth mom went through, to raise a child inside of her for nine months, and then have to say goodbye. And so it’s hard for me to understand that pain and that process.
+ - The corporate media is there to push the agenda of the sponsors, and many of those sponsors are weapons manufacturers. So it stands to reason that you won’t get a diversity of opinions on television.
+ - Johnny Cash was a rebel, not only just in the musical sense, but he was somebody who was for the people, and an advocate for labor, for workers, for prisoners, people who have been trapped by the criminal justice system.
+ - Many kids in foster homes have a lot of emotions that are hard to get out. It’s important to let them know they can make a difference in the community.
+ - There are so many things to be worried about, and I wanted to make a record that people could put on, and it would lift them up the way the sun did for me each day.
+ - I went to Iraq because I wanted to see what one year of occupation had done to Iraqi society, and I went to the West Bank and Gaza Strip because I wanted to see what three generations of occupation had done to Palestinian society. I found a lot more hopelessness and despair in Palestine.
+ - I drive a hybrid. It’s a Ford Escape. That’s my only car.
+
+68 quotes

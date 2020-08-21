@@ -1,0 +1,50 @@
+ - Hard work spotlights the character of people: some turn up their sleeves, some turn up their noses, and some don’t turn up at all.
+ - It’s not the hours you put in your work that counts, it’s the work you put in the hours.
+ - Nothing is so embarrassing as watching someone do something that you said couldn’t be done.
+ - Computers are like bikinis. They save people a lot of guesswork.
+ - Life begins as a quest of the child for the man, and ends as a journey by the man to rediscover the child.
+ - Don’t drive as if you own the road; drive as if you own the car.
+ - Some people are much like blisters-they don’t show up until the work is done.
+ - Inflation is when you pay fifteen dollars for the ten-dollar haircut you used to get for five dollars when you had hair.
+ - The average tourist wants to go to places where there are no tourists.
+ - An expert is someone called in at the last minute to share the blame.
+ - If you lend someone 20 dollars and never see that person again, it’s probably worth it.
+ - When you feel neglected, think of the female salmon, who lays 3,000,000 eggs but no one remembers her on Mother’s Day.
+ - Success has a simple formula: do your best, and people may like it.
+ - There’s no thief like a bad movie.
+ - When you finally go back to your old home, you find it wasn’t the old home you missed but your childhood.
+ - If we are what we eat, why aren’t we new, improved, fat-free, and light.
+ - Computers will never take the place of books. You can’t stand on a floppy disk to reach a high shelf.
+ - A man can please his wife with a box of candy, surprise her with a bouquet of flowers, and make her suspicious with a gold bracelet.
+ - The reason that so many of us cannot save money is because of our friends. They’re always buying something we can’t afford.
+ - A man commented to his lunch companion: My wife had a funny dream last night. She dreamed she’d married a millionaire. You’re lucky, sighed the companion. My wife dreams that in the daytime.
+ - We are all born into the world with nothing. Everything we acquire after that is profit.
+ - Vacation: Two weeks on the sunny sands – and the rest of the year on the financial rocks.
+ - Two things help to keep one’s job. First, let the boss think he’s having his own way. Second, let him have it.
+ - Nothing in the world can replace the modern swimsuit, and it practically has.
+ - Nobody ever asks a father how he manages to combine marriage and a career.
+ - On every commercial flight, the traveler is told, “Your seat cushion can be used as a flotation device”. The question is, why doesn’t the plane just become a boat?
+ - Parents who wonder where the younger generation is going should remember where it came from.
+ - The government deficit is the difference between the amount of money the government spends and the amount it has the nerve to collect.
+ - Success is when your name is in everything but the telephone directory.
+ - Nothing is as frustrating as arguing with someone who knows what he’s talking about.
+ - I try to figure my adjusted gross income, but no matter how I figure it, it’s still gross.
+ - As a child, a library card takes you to exotic, faraway places. When you’re grown up, a credit card does it.
+ - Nobody’s too fat – they’re just too short.
+ - The trouble with giving advice is that others want to return the favor.
+ - The brain is like a TV set; when it goes blank, it’s a good idea to turn off the sound.
+ - Half of all home accidents happen in the kitchen, and the family has to eat them.
+ - President Herbert Hoover returned his salary to the government. His idea caught on, and now we’re all doing it.
+ - Fashions come and fashions go, but pockets are usually the same. There’s little change in them.
+ - Highways are full of careless drivers who are always too close in front of you.
+ - Crime in the cities is very discouraging. Apartment house dwellers have locks, bolts, chains and bars on their doors. It takes a tenant longer to get out than a burglar to get in.
+ - If you believe the past can’t be changed, you haven’t read a celebrity’s autobiography.
+ - A neighbor will stand at your door talking for 20 minutes because she doesn’t have time to come in.
+ - When a husband says, “I run things in my home” he may mean the washing machine, the dishwasher and the vacuum cleaner.
+ - Many trees could be saved if the government stopped printing tax forms.
+ - Wouldn’t you like to weigh what it says on your driver’s license?
+ - Youth is when you think you’ll live forever. Old age is when you wonder how you’ve lived so long.
+ - Ever notice that nothing changes the color of paint like putting it on a wall?
+ - The sight of home looks best after you’ve traveled hundreds of miles to get away from it.
+
+48 quotes

@@ -1,0 +1,31 @@
+ - Nobody cares. You shouldn’t either.
+ - Don’t need a degree in rocket science to do this job.
+ - This place is full of unwritten rules.
+ - One last breath. We all have to take one eventually. It was over.
+ - Don’t make the mistake of bringing your heart down here with you, there is no place for it in Furnace.
+ - The human mind is a powerful thing in many ways, but in others it’s endlessly fragile – it takes only a single moment of pure terror to tear a hole in it, like a finger through a cobweb, leaving you forever just a shadow, a half-person.
+ - You don’t have friends in here, you’ll soon come to understand that. You get attached to someone, then you’ll just lose them. They’ll get shanked or they’ll jump or they’ll be taken one night.
+ - Knackered inmates are easier to control than pumped-up ones. And dead inmates are even easier to control, if you follow me.
+ - Hope. It is the most important thing in the world. I believe that now more than ever. Hope is what saved my life, hope is what gave me the courage and the strength to carry on. Hope – that unshakeable, golden belief that things can get better.
+ - The world is an inferno. It will burn until every nation has fallen, until all who oppose us are dead, until people see the true light.
+ - No, every person on this planet has darkness inside them. Buried so deep that only you know it’s there when your world is coming to an end. Oh, but it’s there. It’s always there.
+ - Let me know if you’re going to do something stupid, kid, ’cause I’ll ditch you like that.
+ - As soon as reality breaks, as soon as we’re separated from the phsical world, the cracks begin to appear in our minds. And through them seeps the madness that has always been there, flowing into your skull like a liquid nightmare...
+ - It’s incredible how much stamina you can find when you’re fighting and enemy in battle, even if that enemy is just in your imagination.
+ - Trust me-that toilet and me were best friends for the first few days I was here.
+ - Only another twenty thousand or so days of this to go.
+ - Like I’ve said before, so many times before, I’m not a good person, I’m not a hero. I’m a criminal, a liar, a cheat, a killer. It was them or me and I wanted to live.
+ - You don’t see heroism, humanity and hope like you do in a horror story. Horror celebrates the kind of friendship that keeps you standing shoulder to shoulder with someone even when the world is falling apart around you.
+ - When you’re locked up in here for life, you learn to welcome the little freedoms.
+ - There always has to be someone to take the punches. That’s how it works. It isn’t fair, it isn’t right, but that kid licking slop off the floor over there means that we get to eat in peace.
+ - But nobody can run from their own demons.
+ - I’d been so set on an escape that was now impossible, and the only form of freedom left to me was death. It was a terrible kind of freedom – one from misery and pain, yes, but also one from lightness and laughter and life. It was an absence of everything.
+ - That mush plays havoc downstairs, you know?
+ - Let’s make like a hockey player and get the puck out of here.
+ - And when reality goes, sanity has no reason.
+ - Better to be a spirit with the earth beneath you than a corpse pinned tight by the weight of the world.
+ - And when reality denies you the tools you need for survival you grab them from wherever you can.
+ - I helped you because you’re new, and because when there’s two people in a cell then there’s only a fifty percent chance they’ll take you.
+ - It’s one of the things I love most about being an author – seeing the different covers from each country.
+
+29 quotes

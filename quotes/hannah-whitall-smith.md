@@ -1,0 +1,61 @@
+ - Be not afraid of rowing slowly. Be afraid of standing still.
+ - Keep your mind on the things you want and off the things you don’t want.
+ - For the mother is and must be, whether she knows it or not, the greatest, strongest and most lasting teacher her children have.
+ - Unless you’re lead dog, the scenery never changes.
+ - There is no happiness in the world equal to the happiness of being good.
+ - If we will only surrender ourselves utterly to the Lord, and will trust Him perfectly, we shall find our souls “mounting up with wings as eagles” to the “heavenly places” in Christ Jesus, where earthly annoyances or sorrows have no power to disturb us.
+ - Once I knew what it was to rest upon the rock of God’s promises, and it was indeed a precious resting place, but now I rest in His grace. He is teaching me that the bosom of His love is a far sweeter resting-place than even the rock of His promises.
+ - By faith the walls of Jericho fell down, after they were compassed about seven days.
+ - God loves us, and the will of love is always blessing for its loved ones.
+ - Thanks be unto God which always causeth us to triumph in Christ!
+ - God’s care for us is more watchful and more tender than the care of any human father could possibly be.
+ - Put together all the tenderest love you know of, multiply it by infinity, and you will begin to see glimpses of the love and grace of God.
+ - It is wonderful what miracles God works in wills that are utterly surrendered to Him.
+ - When all else is gone, God is left, and nothing changes Him.
+ - No soul can be really at rest until it has given up all dependence on everything else and has been forced to depend on the Lord alone. As long as our expectation is from other things, nothing but disappointment awaits us.
+ - Keep your face upturned to Christ as the flowers do to the sun. Look, and your soul shall live and grow.
+ - I shall be glad to see thee back, daughter, for I miss thee dreadfully. I wish I did not! I was taking a nap in my chair today, and I thought I heard thee rustling thy papers, and I looked over at thy table expecting to see thee, and alas! thee was not there, and it was dreadful.
+ - Those who are God’s without reserve are, in every sense, content.
+ - An idea is a curious thing. It will not work unless you do.
+ - If we want to be comforted, we must make up our minds to believe every single solitary word of comfort God has ever spoken.
+ - Look upon your chastening as God’s chariots sent to carry your soul into the high places of spiritual achievement.
+ - Before the acorn can bring forth the oak, it must become itself a wreck. No plant ever came from any but a wrecked seed.
+ - Sight is not faith, and hearing is not faith, neither is feeling faith; but believing when we neither see, hear, nor feel is faith; and everywhere the Bible tells us our salvation is to be by faith. Therefore we must believe before we feel, and often against our feelings, if we would honor faith.
+ - Our God is so wonderfully good, and lovely, and blessed in every way that the mere fact of belonging to Him is enough for an untellable fullness of joy!
+ - God will help us become the people we are meant to be, if only we will ask Him.
+ - The mother eagle teachers her little ones to fly by making their nest so uncomfortable that they are forced to leave it and commit themselves to the unknown world of air outside. An just so does our God to us.
+ - Where the soul is full of peace and joy, outward surrounding and circumstances are of comparatively little account.
+ - Nothing can separate you from God’s love, absolutely nothing. God is enough for time, God is enough for eternity. God is enough!
+ - My soul was always so full of aspirations, that a God was a necessity to me. I was like a bird with an instinct of migration upon me, and a country to migrate to was as essential as it is to the bird.
+ - You have trusted Him as your dying Savior; now trust Him as your living Savior. Just as much as He came to deliver you from future punishment did He also come to deliver you from present bondage. Just as truly as He came to bear your stripes for you has He come to live your life for you.
+ - Faith, like sight is nothing apart from God. You might as well shut your eyes and look inside, and see whether you have sight as to look inside to discover whether you have faith.
+ - I find that every soul that has travelled on this highway of holiness for any length of time, has invariably cut loose from its old moorings.
+ - You find no difficulty in trusting the Lord with the management of the universe and all the outward creation, and can your case be any more complex or difficult than these, that you need to be anxious or troubled about His management of it?
+ - God is enough! All religion is enfolded for me now in these three words.
+ - You must hand yourself and all your inward experiences, your temptations, your temperament, your frames and feelings, all over into the care of your God, and leave them there. He made you and therefore He understands you, and knows how to manage you, and you must trust Him to do it.
+ - We must take our troubles to the Lord, but we must do more than that, we must leave them there.
+ - Thee may tell Aunt Janet from me that she might as well try to stop the stars in their courses as to try to stop a love affair.
+ - If you were to write down all the possible ways to motivate people to do better work, friendly praise would have to come near the head of your list.
+ - If the Lord sets you to guard a lonely post in perfect stillness from all active work, you ought to be just as content as to be in the midst of the active warfare. It is no virtue to love the Master’s work better than the Master’s will.
+ - For the decisions of our will are often so directly opposed to the decisions of our emotions, that, if we are in the habit of considering our emotions as the test, we shall be very apt to feel like hypocrites in declaring those things to be real which our will alone has decided.
+ - If our hearts are full of our own wretched “I ams” we will have no ears to hear His glorious, soul-satisfying “I Am.”
+ - If becoming a grandmother was only a matter of choice, I should advise every one of you straight away to become one. There is no fun for old people like it!
+ - You must remember that our God has all knowledge and all wisdom, and that therefore it is very possible He may guide you into paths wherein He knows great blessings are awaiting you, but which, to the shortsighted human eyes around you, seem sure to result in confusion and loss.
+ - Nothing else is needed to quiet all your fears, but just this, that GOD IS.
+ - Follow the crowd and you will never be followed by a crowd.
+ - Christians, who have given themselves into the care and keeping of the Lord Jesus, still continue to bend beneath the weight of their burden, and often go weary and heavy-laden throughout the whole length of their journey.
+ - The time for universal praise is sure to come some day. Let us begin to do our part now.
+ - Foundations to be reliable must always be unshakable.
+ - Let me advise thee not to talk of thyself as being old. There is something in Mind Cure, after all, and if thee continually talks of thyself as being old, thee may perhaps bring on some of the infirmities of age. At least I would not risk it if I were thee.
+ - God’s slavation is not a purchase to be made, nor wages to be earned, nor a summit to be climbed, nor a task to be accomplished; but it is simply and only a gift to be accepted, and can only be accepted by faith.
+ - Somehow even tragedies seem less tragical, when you are the actors in them, than they look to outsiders.
+ - That cross inmate of your household, who has hitherto made life a burden to you, and who has been the Juggernaut car to crush your soul into the dust, may henceforth be a glorious chariot to carry you to the heights of heavenly patience and long-suffering.
+ - We were made to be human beings here, and when people try to be anything else, they generally get into some sort of scrapes.
+ - Better and sweeter than health, or friends, or money, or fame, or ease, or prosperity, is the adorable will of our God.
+ - It is a fact beyond question that there are two kinds of Christian experience, one of which is an experience of bondage, and the other an experience of liberty.
+ - Of all hateful occupations, housekeeping is to my mind the most hateful.
+ - You can’t get to second base keeping one foot on first.
+ - It is hard for me to believe that any husband and wife are really happy together. And to have thee say you are is an unspeakable comfort.
+ - A feeling of real need is always a good enough reason to pray.
+
+59 quotes

@@ -1,0 +1,25 @@
+ - I’m not suspicious, I’m just careful.
+ - I never understood what rules I was supposed to learn, and what rules I was supposed to break.
+ - Do we have anything in music that really wipes everything out? That just cleans everything away?
+ - For years I said if I could only find a comfortable chair I would rival Mozart.
+ - The composer makes plans, music laughs.
+ - I never feel that my music is sparse or minimalist; the way fat people never really think they’re fat. I certainly don’t consider myself minimalist at all.
+ - After all, Jews invented psychiatry to help other Jews become Gentiles.
+ - The tragedy of music is that it begins with perfection.
+ - What was great about the 50s is that for one brief moment – maybe, say, six weeks – nobody understood art.
+ - I was once married to a woman who could eat anything and tell you what was in it: the most complicated recipes. Her memory of taste – now that’s what I call memory!
+ - Music is essentially built upon primitive memory structures.
+ - Art in relation to life is nothing more than a glove turned inside out. It seems to have the same shapes and contours, but it can never be used for the same purpose. Art teaches nothing about life, just as life teaches us nothing about art.
+ - No one has the Houdini school of composition.
+ - For me it’s the instrument. If I want to think of a flute and the state of the arts I hear a vibrato; I don’t know what a flute is unless the person plays it for me.
+ - Most music is metaphor, but Wolff is not. I am not metaphor either. Parable, maybe. Cage is sermon.
+ - The most interesting aspect for me, composing exclusively with patterns, is that there is not one organizational procedure more advantageous than another, perhaps because no one pattern ever takes precedence over the others.
+ - Any professional knows that the flute and the piano is a boring combination. All you’ve got to arrive at is a kind of typical gestural crap, right? You might agree, though you wouldn’t call it gestural crap.
+ - To understand what music has to be, you have to live for music. Who’s ready to do that?
+ - If you think you might have secret information listening to me, you’re lost.
+ - Since music has never had a Rembrandt, we have remained nothing more than musicians.
+ - Compositionally I always wanted to be like Fred Astaire.
+ - Music can imply the infinite if enough things depart from the norm far enough. Strange “abnormal” events can lead to the feeling that anything can happen, and you have a music with no boundaries.
+ - I want to give my compliments to Australia. Ever since your government paid a few million dollars for a Jackson Pollack painting, I figure that it must be a marvellous country.
+
+23 quotes

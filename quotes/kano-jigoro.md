@@ -1,0 +1,25 @@
+ - It is not important to be better than someone else, but to be better than yesterday.
+ - Face your fear, empty yourself, trust your own voice, let go of control, have faith in outcomes, connect with a larger purpose, derive meaning from the struggle.
+ - If there is effort, there is always accomplishment.
+ - Judo helps us to understand that worry is a waste of energy.
+ - The purpose of the study of judo is to perfect yourself and to contribute to society.
+ - Before and after practicing Judo or engaging in a match, opponents bow to each other. Bowing is an expression of gratitude and respect. In effect, you are thanking your opponent for giving you the opportunity to improve your technique.
+ - Walk a single path, becoming neither cocky with victory nor broken with defeat, without forgetting caution when all is quiet or becoming frightened when danger threatens.
+ - Nothing under the sun is greater than education. By educating one person and sending him into the society of his generation, we make a contribution extending a hundred generations to come.
+ - Carefully observe oneself and one’s situation, carefully observe others, and carefully observe one’s environment. Consider fully, act decisively.
+ - Consider fully, act decisively.
+ - To ask may be but a moment’s shame, not to ask and remain ignorant is a lifelong shame.
+ - The pine fought the storm and broke. The willow yielded to the wind and snow and did not break. Practice Jiu-Jitsu in just this way.
+ - The teaching of one virtuous person can influence many; that which has been learned well by one generation can be passed on to a hundred.
+ - Judo is a study of techniques with which you may kill if you wish to kill, injure if you wish to injure, subdue if you wish to subdue, and, when attacked, defend yourself.
+ - For one thing, Judo in reality is not a mere sport or game. I regard it as a principle of life, art and science. In fact, it is a means for personal cultural attainment.
+ - Apply just the right amount of force – never too much, never too little.
+ - Judo is the way to the most effective use of both physical and spiritual strength.
+ - Paradoxically, the man who has failed and one who is at the peak of success are in exactly the same position. Each must decide what he will do next, choose the course that will lead him to the future.
+ - Judo teaches us to look for the best possible course of action, whatever the individual circumstances.
+ - Judo should be free as art and science from any external influences, political, national, racial, and financial or any other organized interest. And all things connected with it should be directed to its ultimate object, the benefit of Humanity.
+ - In randori, one must search out the opponent’s weaknesses and be ready to attack with all the resources at his disposal the moment the opportunity presents itself, without violating the rules of judo.
+ - There are people who are excitable by nature and allow themselves to become angry for the most trivial of reasons. Judo can help such people learn to control themselves. Through training, they quickly realize that anger is a waste of energy, that it has only negative effects on the self and others.
+ - In randori we learn employ the principle of maximum efficiency even when we could easily overpower an opponent.
+
+23 quotes

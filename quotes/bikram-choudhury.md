@@ -1,0 +1,32 @@
+ - Never too old, never too bad, never too late, never too sick to start from scratch once again.
+ - The right way is the hard way.
+ - The meaning of yoga is connection of mind, body and spirit. If you have a bad telecommunication system, your body gets sick. Yoga helps fix that.
+ - Cheer up, things will get worse.
+ - Let no one steal your peace.
+ - When you practice yoga, first your personality changes, the faith increases, then confidence improves.
+ - I have both English bulldog determination and Bengal tiger strength.
+ - If you don’t suffer, you don’t get anything. Nothing easy in life.
+ - Negative attitude is nine times more powerful than positive attitude.
+ - Nothing can steal happiness, peace, away from you: if anyone does make you angry, you are the loser; if someone can allow you to lose peace, you are the loser.
+ - Yoga is the perfect vehicle for change of yourself. First by creating a strong and powerful body and mind. It is a starting point from which you can begin to realize your human spirit.
+ - Regardless of your age or current physical condition you’ll laugh, cry, moan, groan, sweat and experience the most exciting, hard working and effective therapeutic yoga routine in the world.
+ - Bikram Yoga will give you ‘The Key to the Kingdom of Health’
+ - I am tough, and sometimes I tell it like it is. Tough love can work wonders.
+ - Give me 30 days, I’ll change your body. Give me 60 days, I’ll change your life.
+ - Falling out of a posture means you are human; getting back into the posture means you are a yogi.
+ - In life you only have to travel 6 inches. That is the distance from your mind to your heart.
+ - If you have a good spine, the gods will chase you. Nobody has psychological or emotional problems, everyone has a bad spine.
+ - Would you rather suffer 90 minutes or 90 years?
+ - Yoga is the only exercise in the world you can do at any age. There is always some posture that will improve your health, mind and soul.
+ - I guarantee you, yoga will compete with computers, music, sports, automobiles, the drug industry. Yoga will take over the world!
+ - No matter how old or sick or out of shape, you can still stretch and have a new beginning with yoga.
+ - All you need are the words I give you here and your own honest efforts.
+ - Yoga is the only exercise on this planet from which you gain energy instead of burning energy.
+ - Maintaining spirituality and humanism are the keys to success. Its a balance.
+ - You have nothing to lose. You had nothing to begin with.
+ - Lady Gaga listens to me. Her mantra is only one word – ‘Bikram’ – because Bikram makes her what she is today. It works.
+ - Any kind of problem you have in your life, you come to Bikram. Your life becomes the best in the world.
+ - Women like me. Women love me, so if I really wanted to involve the women, I don’t have to assault the women.
+ - I like money. You like money. We need the money. But, money is not going to bring humanity and spiritualism into your life.
+
+30 quotes

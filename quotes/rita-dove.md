@@ -1,0 +1,85 @@
+ - The library is an arena of possibility, opening both a window into the soul and a door onto the world.
+ - Libraries are where it all begins.
+ - Poetry is language at its most distilled and most powerful.
+ - We should always do something that makes us feel like a child again. Keep learning, no matter what it is.
+ - Courage has nothing to do with our determination to be great. It has to do with what we decide in that moment when we are called upon to be more.
+ - Everybody who’s anybody longs to be a tree.
+ - If only the sun-drenched celebrities are being noticed and worshiped, then our children are going to have a tough time seeing the value in the shadows, where the thinkers, probers and scientists are keeping society together.
+ - There are times in life when, instead of complaining, you do something about your complaints.
+ - If you can’t be free, be a mystery.
+ - Creative writing and literacy go hand and hand.
+ - I have a high guilt quotient. A poem can go through as many as 50 or 60 drafts. It can take from a day to two years-or longer.
+ - I prefer to explore the most intimate moments, the smaller, crystallized details we all hinge our lives on.
+ - Poetry connects you to yourself, to the self that doesn’t know how to talk or negotiate.
+ - By making us stop for a moment, poetry gives us an opportunity to think about ourselves as human beings on this planet and what we mean to each other.
+ - You have to imagine it possible before you can see something. You can have the evidence right in front of you, but if you can’t imagine something that has never existed before, it’s impossible.
+ - The American Dream is a phrase we’ll have to wrestle with all of our lives. It means a lot of things to different people. I think we’re redefining it now.
+ - The sound of the mandolin is a very curious sound because it’s cheerful and melancholy at the same time, and I think it comes from that shadow string, the double strings.
+ - I wish someone had told me that my stories are really mine to tell. In other words, anything that I think is important or that has moved me has the ability to move somebody else.
+ - In working on a poem, I love to revise. Lots of younger poets don’t enjoy this, but in the process of revision I discover things.
+ - Can it be that even as one grows to fit the space one lives in, one cannot grow until there’s space to grow?
+ - I think reading Shakespeare’s plays when I was young was extremely important. He had the ability to make utter strangers come alive.
+ - I think children have talent and insight, but it gets beaten out of them.
+ - Listen how they say your name. If they can’t say that right, there’s no way they’re going to know how to treat you proper, neither.
+ - Under adversity, under oppression, the words begin to fail, the easy words begin to fail. In order to convey things accurately, the human being is almost forced to find the most precise words possible, which is a precondition for literature.
+ - I’m never quite sure how the poem is going to resolve itself and that I’m always in some way surprised. I make a discovery in a poem as I write it.
+ - I’ve always been intrigued by the way history works, the way we decide what is mentioned.
+ - If I begin writing a poem that means I’m intrigued in some way by whatever it’s about and that if I’m not trying to find something new and pushing the envelope in the poem I can’t expect my reader to be particularly excited about it either.
+ - What writing does is to reveal.
+ - I’ve always felt that the poems I’ve written which have historical context are hopefully not just simply plucking something out of history and saying great, let’s write about that. In every case what has happened is that I’ve become fascinated or haunted by something and couldn’t shake it.
+ - I write short stories, and I wrote a play.
+ - To practice your scales, so to speak, in order play the symphony, is what you have to do as a young poet.
+ - All of us have moments in our childhood where we come alive for the first time. And we go back to those moments and think, This is when I became myself.
+ - What’s a word, a talisman, to hold against the world?
+ - Equality and self-determination should never be divided in the name of religious or ideological fervor.
+ - Without imagination we can go nowhere. And imagination is not restricted to the arts. Every scientist I have met who has been a success has had to imagine.
+ - It makes me furious to hear haters of all skin colors – especially Christian, Jewish, and Muslim fundamentalists – deride other people because of their different beliefs and lifestyles.
+ - What is ironic is that Allen Ginsberg’s importance was in its twilight for so many years that it took his death to bring it to the front page. He electrified an entire world!
+ - My childhood library was small enough not to be intimidating. And yet I felt the whole world was contained in those two rooms. I could walk any aisle and smell wisdom.
+ - Nothing is too small. Nothing is too, quote-unquote, ordinary or insignificant. Those are the things that make up the measure of our days, and they’re the things that sustain us. And they’re the things that certainly can become worthy of poetry.
+ - Being true to yourself really means being true to all the complexities of the human spirit.
+ - A good poem is like a bouillon cube. It’s concentrated and it nourishes you when you need it.
+ - I was pirouette and flourish, I was filigree and flame. How could I count my blessings when I didn’t know their names?
+ - If we’re going to solve the problems of the world, we have to learn how to talk to one another. Poetry is the language at its essence. It’s the bones and the skeleton of the language. It teaches you, if nothing else, how to choose your words.
+ - There are distinct duties of a poet laureate. I plan a reading series at the Library of Congress and advise the librarian. The rest is how I want to promote poetry.
+ - The poetry that sustains me is when I feel that, for a minute, the clouds have parted and I’ve seen ecstasy or something.
+ - My favorite poets may not be your bread and butter. I have more favorite poems than favorite poets.
+ - When I was young, I was older than I am today.
+ - When we are touched by something it’s as if we’re being brushed by an angel’s wings.
+ - I keep the drafts of each poem in color-coded folders. I pick up the folders according to how I feel about that color that day.
+ - Don’t be so fast, you’re all you’ve got.
+ - My father is a chemist, my mother was a homemaker. My parents instilled in us the feeling that learning was the most exciting thing that could happen to you, and it never ends.
+ - I think if you put something in a file that says “war poems” or “love poems” that you already restrict the way in which the poem might move.
+ - I thought, after the Pulitzer, at least nothing will surprise me quite that much in my life. And another one happened. It was quite amazing.
+ - Crassly put: When I write, I am trying not to bore myself and my readers.
+ - I loved to write when I was a child. I wrote, but I always thought it was something that you did as a child, then you put away childish things.
+ - I loved to read, but I always thought that the dream was too far away. The person who had written the book was a god, it wasn’t a person.
+ - I grew up in Ohio, where civil-rights accomplishments had already begun to accelerate before Martin Luther King appeared. In hindsight, we know that many people, black and white, were instrumental in changing the Jim Crow status quo on all levels.
+ - In fact, sometimes traveling the world is a way of not writing a poem, but it’s the quality of experience. It’s being able to experience something and when you begin to write about it be able to apply the tools that you need for writing.
+ - I see a resurgence of interest in poetry. I am less optimistic about the prospects for the arts when it comes to federal funding.
+ - I believe people may have a predisposition for artistic creativity. It doesn’t mean they’re going to make it.
+ - At the very beginning when I begin writing a poem I try not to think of the audience or anyone at all except for trying to get at the very center of what is driving that poem. In a way it’s like analyzing myself.
+ - I carry a notebook with me everywhere. But that’s only the first step.
+ - Rap is only one end of a whole spectrum of verbal play and virtuosity. Rap is geared for aural pleasure.
+ - Instead of trying to come up and pontificate on what literature is, you need to talk with children, to teachers, and make sure they get poetry in the curriculum early.
+ - I didn’t know writers could be real live people, because I never knew any writers.
+ - The joy of working at something to find out what it means to me is what I grew up with.
+ - Have you ever heard a good joke? If you’ve ever heard someone just right, with the right pacing, then you’re already on the way to poetry. It’s about using words in very precise ways and using gesture.
+ - Going to the library was the one place we got to go without asking for permission. And they let us choose what we wanted to read. It was a feeling of having a book be mine entirely.
+ - If they don’t read, if they don’t love reading; if they don’t find themselves compulsively reading, I don’t think they’re really a writer.
+ - I think that when a poem can move readers across generations and across its specific class or race then it becomes truly classic.
+ - It’s the combination of the intimate and the public that I find so exciting about being poet laureate.
+ - I always loved science. And in fact, I got a science award in high school. I mean, I loved science, but I think I loved literature more.
+ - People write me from all over the country, asking me, and sometimes even telling me, what they think a poet laureate should do. I found that immensely valuable.
+ - Being Poet Laureate made me realize I was capable of a larger voice. There is a more public utterance I can make as a poet.
+ - To write for PC reasons, because you think you ought to be dealing with this subject, is never going to yield anything that is really going to matter to anyone else. It has to matter to you.
+ - It’s unfortunate that sometimes in schools, there’s this need to have things quantified and graded.
+ - I try to show what it is about language and music that enthralls, because I think those are the two elements of poetry.
+ - For many years, I thought a poem was a whisper overheard, not an aria heard.
+ - If we really want to be full and generous in spirit, we have no choice but to trust at some level.
+ - I was appointed Poet Laureate. It came totally out of the blue because most Poet Laureates had been considerably older than I. It was not something that I even had begun to dream about!
+ - One definition of eternity is that we are not alone on this planet, that there are those who’ve gone before and those who will come, and that there is a community of spirits.
+ - It really wasn’t until I was in college when I began to write more and more, and I realized I was scheduling my entire life around my writing.
+ - I think that you certainly don’t have to be aged and travel the world to write a poem.
+
+83 quotes

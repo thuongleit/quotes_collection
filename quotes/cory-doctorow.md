@@ -1,0 +1,67 @@
+ - When in trouble or in doubt, run in circles, scream and shout.
+ - Conversation is king. Content is just something to talk about.
+ - Never underestimate the determination of a kid who is time-rich and cash-poor.
+ - The important thing about security systems isn’t how they work, it’s how they fail.
+ - Content isn’t king. If I sent you to a desert island and gave you the choice of taking your friends or your movies, you’d choose your friends – if you chose the movies, we’d call you a sociopath. Conversation is king. Content is just something to talk about.
+ - All secrets become deep. All secrets become dark. That’s in the nature of secrets.
+ - It may be hard to monetize fame, but it is impossible to monetize obscurity.
+ - Like all security, privacy is hard.
+ - The first casualty of any battle is the plan of attack.
+ - Once you get to naming your laptop, you know that you’re really having a deep relationship with it.
+ - Write even when the world is chaotic. You don’t need a cigarette, silence, music, a comfortable chair, or inner peace to write. You just need ten minutes and a writing implement.
+ - Abnormal is so common, it’s practically normal.
+ - I can’t go underground for a year, ten years, my whole life, waiting for freedom to be handed to me. Freedom is something you have to take for yourself.
+ - Stories are propaganda, virii that slide past your critical immune system and insert themselves directly into your emotions.
+ - If surgeons don’t get surgeon’s block, then why are you allowed to get writer’s block?
+ - It’s the stupid questions that have some of the most surprising and interesting answers. Most people never think to ask the stupid questions.
+ - I think that Utopia is a theory of human action...
+ - Technology giveth and technology taketh away.
+ - Skipping school isn’t a crime. It’s an infraction. They’re totally different.
+ - Stop in the middle of a sentence, leaving a rough edge for you to start from the nest day – that way, you can write three or five words without being “creative” and before you know it, you’re writing.
+ - This is why I loved technology: if you used it right, it could give you power and privacy.
+ - If you stare at someone long enough, they’ll eventually look back at you.
+ - It is not gender, nor age, nor race, but your ability to work hard at what you love.
+ - Any time someone puts a lock on something you own against your wishes, and doesn’t give you the key, they’re not doing it for your benefit.
+ - I’d never been a tall guy, and the girls I’d dated had all been my height – teenaged girls grow faster than guys, which is a cruel trick of nature.
+ - What if I got hit by lightning while walking with an umbrella? Ban umbrellas! Fight the menace of lightning!
+ - Universal access to human knowledge is in our grasp, for the first time in the history of the world. This is not a bad thing.
+ - We don’t care about what you did yesterday – we care about what you’re going to do tomorrow.
+ - Take it from someone who’s read the Wikipedia entry: this is how the Ottoman Empire was won: madden horsemen fueled by lethal jet-black coffee-mud.
+ - He had them as spellbound as a room full of Ewoks listening to C-3PO.
+ - We have a name for things that don’t copy themselves: dead.
+ - The other one I did was ‘I, Robot.’ I take apart Isaac Asimov’s Robots world.
+ - Every time I go past a cinema and see a queue out the door, I think, look at those fools, every penny they spend is turned into profits that are used to pass laws imprisoning their own children. Can’t they see?
+ - Terrorism is about magnifying one mediagenic act of violence into one hundred billion acts of terrorized authoritarian idiocy.
+ - I choose YouTube over telly.
+ - Where there’s life, there’s hope. Living people can change things, dead people cannot.
+ - For decades, computers have been helping us to remember, but now it’s time for them to help us to ignore.
+ - The right to freedom of association is fine, but why shouldn’t the cops be allowed to mine your social network to figure out if you’re hanging out with gangbangers and terrorists?
+ - The companies are multinational – why should labor still stick to borders?
+ - My feelings towards Scott Card are pretty mixed. Politically, he and I are pretty far apart.
+ - The accolade of your peers is very exciting, always. There’s lots of good stuff on the ballot.
+ - Write even when the world is chaotic.
+ - The big problem isn’t piracy, it’s obscurity.
+ - It’s part of a cycle of stories I’m writing where I deconstruct classic science fiction.
+ - It’s a story of little girls who are pressed into working in sweat shops in games, who spend all day doing repetitive grinding tasks like making shirts, which are then converted into gold and sold on eBay.
+ - Engineers are all basically high-functioning autistics who have no idea how normal people do stuff.
+ - The fact is, almost everything you do is collaborative. Somewhere out there, someone else had a hand it it.
+ - Carlton Mellick III is one of bizarro fiction’s most talented practitioners, a virtuoso of the surreal, science fictional tale.
+ - Digital Distribution and the Whip Hand: Don’t Get iTunesed with your eBooks.
+ - If this prinicpal thinks blogging isn’t educational, he needs his head examined: he should be seeking out every student blogger in the school and giving them special time to blog more – and giving them extra credit besides.
+ - Novels for me are how I find out what’s going on in my own head. And so that’s a really useful and indeed critical thing to do when you do as many of these other things as I do.
+ - We roared. We were one big animal throat, roaring.
+ - Any outfit that can’t figure out clean toilets and decent theming on its own can’t benefit from my advice.
+ - Put simply, I want to treat my readers as partners and not crooks. There is no future in calling your most active promoters crooks.
+ - The idea that bigger haystacks have more needles in them is dumb on its face.
+ - When you teach your students that it’s “economically rational” to commit crimes where the fines for misconduct are lower than the expected return on the crime, you instill a professional ethic that has no room for morals.
+ - He hated it when adults told him he only felt the way he did because he was young. As if being young was like being insane or drunk, like the convictions he held were hallucinations caused by a mental illness that could only be cured by waiting five years.
+ - It’s hard not to like Asimov; he’s a really likable guy.
+ - The future’s a weirder place than we thought it would be when we were little kids.
+ - It’s not necessarily about what career you pick. It’s about how you do what you do.
+ - I just sit down and the page just comes out and I look at it and the elements that appear on that page have a lot to do with what’s going on in my life.
+ - These days, tales of what Facebook did with its users during the singularity are commonly used to scare naughty children in Wales.
+ - It is a mistake to let aesthetics drive your rational decision making.
+ - No one should do a job he can do in his sleep.
+ - Freedom is something you have to take for yourself.
+
+65 quotes

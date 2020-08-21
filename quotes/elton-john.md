@@ -1,0 +1,224 @@
+ - Music has healing power. It has the ability to take people out of themselves for a few hours.
+ - Don’t let the sun go down on me.
+ - You should never take more than you give.
+ - How wonderful life is while you’re in the world.
+ - It’s the circle of life, and it moves us all, through despair and hope, through faith and love, ’till we find our place, on the path unwinding.
+ - There’s a time for everyone, If they only learn, that the twisting kaleidoscope moves us all in turn.
+ - Rocket Man, burning out his fuse up here alone.
+ - Live for each second without hesitation.
+ - Sweet freedom whispered in my ear, you’re a butterfly, and butterflies are free to fly, fly away, high-away, bye-bye.
+ - Don’t shoot me, I’m just the piano player!
+ - Hold me closer tiny dancer, count the headlights on the highway. Lay me down in sheets of linen, you had a busy day today.
+ - It seems to me, sorry seems to be the hardest word.
+ - Don’t be afraid to let her into your heart and when your down, don’t try to carry the whole world on your shoulders.
+ - Blue jean baby, LA lady, seamstress for the band. Pretty eyed, pirate smile, you’ll marry a music man. Ballerina, you must have seen her dancing in the sand.
+ - When a rumor doesn’t go away it’s not a rumor.
+ - I guess that’s why they call it the blues, time on my hands could be time spent with you.
+ - Sometimes you can’t see the wood for the trees as an artist.
+ - Sometimes when I’m flying over the Alps I think, ‘That’s like all the cocaine I sniffed.’
+ - You can cage the songbird, but you can’t make her sing. And you can trap the free bird, but you’ll have to clip her wings.
+ - I get high in the evening sniffing pots of glue.
+ - Don’t judge the picture by the frame, every man is not the same.
+ - Laughing like children, living like lovers, rolling like thunder, under the covers, and I guess that’s why they call it the blues.
+ - Holy Moses, let us live in peace. Let us strive to find a way to make all hatred cease. There’s a man over there, what’s his colour I don’t care, he’s my brother, let us live in peace.
+ - I love places that have an incredible history. I love the Italian way of life. I love the food. I love the people. I love the attitudes of Italians.
+ - Loneliness was tough, the toughest role you ever played. Hollywood created a superstar, and pain was the price you paid.
+ - The less I say the more my work gets done.
+ - I’ve got that resilient thing inside me. But I wasn’t a happy bunny.
+ - If you write great songs with meaning and emotion, they will last for ever because songs are the key to everything.
+ - I tried to commit suicide one day. It was a very Woody Allen-type suicide. I turned on the gas and left all the windows open.
+ - Take me to the pilot of your soul.
+ - It’s very important to have two tiaras when you’re on the road; you never know when you’ll be invited to something really formal.
+ - I think performers are all show-offs anyway, especially musicians. Unless you show off, you’re not going to get noticed.
+ - Johnny, can’t you come out to play in your empty garden?
+ - I do like my rock stars to be a little larger than life. I don’t mind the earnest ones at all, but I do like a bit of individuality.
+ - I’m a juvenile product of the working class, who’s best friend floats in the bottom of a glass.
+ - A couple of sounds that I really like are the sounds of a switchblade and a motor bike.
+ - The Backstreet Boys can sing their asses off. I’m not so sure about those other boy bands. But Backstreet Boys have my ultimate respect.
+ - I’m not bored with my life. I’m not just making the records and touring, I would find that boring.
+ - No tears to damn you when jealousy burns.
+ - Bands today have to learn their craft by putting the hard work in that we did when we were young performers.
+ - It’s much too late to save myself from falling.
+ - I just think you shouldn’t expect people to pay money to see someone sing live and then lip-synch.
+ - Everything I thought I’d hate about having children – the crying, the screaming – nothing fazes me. I love it all, and it’s relaxed me.
+ - My old man is drunker than a barrel full of monkeys, but my old lady she don’t care.
+ - There ain’t been no angels in heaven around since God invented girls.
+ - I’ve always wanted to smash a guitar over someone’s head. You just can’t do that with a piano.
+ - She’s got electric boots, a mohair suit, you know I read it in a magazine.
+ - Someone saved my life tonight, sugar bear, you almost had your hooks in me, didn’t you dear?
+ - On a street of right and wrong in every inch of sadness, rocks and tanks go hand in hand with madness.
+ - I can’t think of anything until I’ve got printed words in front of me. I never wake up in the middle of the night with a song in my head.
+ - I’ve watched other people singing, I’ve become a much better singer. I’ve become a singer that plays the piano instead of a piano player that sings.
+ - I’d walk a million miles to give her what she needs. But she would walk a million more to do what she believes.
+ - On Keith Richards: He’s like a monkey with arthritis.
+ - Shock waves to a tired brain, sends that hungry lady to my door again. She’s my shelter from the storm when I feel the rain, entertaining white powder.
+ - It’s so easy to write songs about misery and hard times and sadness. It’s much more difficult to write songs about happy and chirpy stuff.
+ - I love football, but I’m sick of the World Cup. I don’t even care about England.
+ - Some kneel and lie to God.
+ - I’m very relaxed. I have a family, I have a partner of 20 years, I have a wonderful life; nothing could be better.
+ - I love people who expect me to wear great, feathery costumes- and I do it. It’s like an actor getting into his costume for his part. I don’t really feel that part until I’m into whatever I’m going to wear.
+ - I love drag queens and I love going to see them perform because those people have got so much character and bravery. Such balls! I love people with balls.
+ - I wasn’t involved in anything. I wasn’t out – you know, I know I wasn’t in ACT UP. I wasn’t with Larry Kramer. I wasn’t by his side. I wasn’t saying what I should do, because, by all accounts, I was a drug addict and an alcoholic. And I was living in a complete bubble of self-absorption.
+ - Lawdy Mama, those Friday nights when Suzy wore her dresses down tight.
+ - I’m addicted to working. I mean, I have a list of 100 countries I want to play in. I’m basically killing myself by travelling so much, for no reason whatsoever.
+ - I want a love that don’t mean a thing.
+ - Tina Turner gave me the highway blues.
+ - To forgive and be forgiven, if it’s the last thing I do, then in death’s release I may find the peace that in life I never knew.
+ - I’ve been following him since Space Oddity. And I’ve followed him from all those albums that didn’t sell, like The Man Who Sold The World and things like that. Above all, apart from all the glamorous rubbish, the music’s there. Ziggy Stardust is a classic album.
+ - If there is a better singer in England than Craig David, then I am Margaret Thatcher.
+ - I had a little Richard and that black piano, oh that sweet Georgia Peach, and the boy form Tupelo.
+ - I mean, Sting is one of my great buddies and I love him to death.
+ - I like Stevie Wonder. I usually wind up playing the same old tapes in the car.
+ - Jesus wanted us to be loving and forgiving.
+ - Ask anyone. If it hadn’t been for Elvis, I don’t know where popular music would be. He was the one that started it all off, and he was definitely the start of it for me.
+ - I hate to say this, but I always listen to the music and the instrumentation first, and then grab on to the lyrics later.
+ - I spent the last week of Ryan’s life in Indiana, Indianapolis, with Jeanne and Andrea, Jeanne, his mother, Andrea, his sister, and some other beautiful people who came. And it taught me a lesson.
+ - Top dog, top hat, move that muscle, move that fat.
+ - I’ve always enjoyed and loved playing live. I relish and cherish it more than anything else because you never know what the performance is going to be.
+ - I don’t want a Jennifer Lopez wedding or anything like that. A commitment ceremony would be a nice thing to do.
+ - I cannot bear successful people who are miserable.
+ - I’ve always been dead set against festivals – really suspicious and wary.
+ - I’m glad I’ve given up drugs and alcohol. It would be awful to be like Keith Richards. He’s pathetic. It’s like a monkey with arthritis, trying to go onstage and look young.
+ - Drunk all the time, feeling fine on elderberry wine.
+ - We were both very much the same. We were both very impulsive. We both loved life. We both loved shopping. We both had a love of clothes, obviously, because he was the designer that I kind of wore forever and ever.
+ - After claws and feathers, he took skin and bone, shaped it like an hour glass and made the angels moan.
+ - This is a tremendous assest for the club, a tremendous headache lifted from our shoulders, really.
+ - He’d been drinking in a bar downtown, when he thought he heard a choir of angels singing in the Tiki Lounge. And that’s when he got religion.
+ - People in England are so bloody nosy.
+ - You don’t know being a performer what kind of performance you’re going to give. You know you can give a certain quality of performance, but as I grow older I’m much more content in my own skin because when I come offstage, I have a balance in my life.
+ - My mum always used to buy a record every Friday.
+ - But actually, my drug addiction thing, I was so stubborn.
+ - I’m lucky enough and wealthy enough to be able to buy photographs and buy art that inspires me from day to day. I don’t want a Picasso on my wall; it’s great art, but it’s dead art to me. I’d rather have a photograph by someone I’ve never heard of that really inspires me.
+ - And I agreed with that, and I couldn’t wait to change my name anyway, because I’m not too fond of the name of Reginald. It’s a very kind of ’50s English name.
+ - I am such a Luddite when it comes to making music. All I can do is write at the piano.
+ - I’m the ultimate record fan. I still go out and buy records.
+ - There is such a thing as good interference from your record label. I don’t think I get enough interference from my record label.
+ - And I talked to my doctor, and I must admit, you know, I’m sometimes quite renowned for my outbursts and I was just very frustrated, maybe a little frightened.
+ - I really appreciate my performing so much better, as I get older. I don’t take it for granted anymore. I really relish it and love it.
+ - I’m so proud to be on a Kate Bush record; she’s always marched to the beat of her own drum.
+ - I’ll even pay sometimes for a woman that’s ugly.
+ - It was also great to have the Backstreet Boys appear on stage with me because I have gotten to know them all a little bit just recently, and not only are they great performers, but they also very hard working professionals and really nice guys.
+ - To fight the violence we must be brave, hold on strong to the love God gave.
+ - An agent is a person who is sore because an actor gets 90% of what they make.
+ - Nothing should be an issue when it comes to sexuality in the first place. Music is the one artform where people feel comfortable coming out.
+ - I don’t have to compete in the charts. I can just be myself as a musician, a songwriter and play with the musicians that I really love.
+ - I’ll not complain about your boring life, if you just leave me to mine.
+ - I never thought of myself as being handsome or good-looking or whatever.
+ - Better to build a bridge than a wall.
+ - Talk to each other. Never go to bed when you’re angry with each other. Lady Antonia Frasier who was married to Harold Pinter said they never went to bed on an argument.
+ - We live in an age, in an era where there is so much negativity, there is so much violence in the world, there is so much unrest and people are at war, that I wanted to promote the word love and red signifies love.
+ - You can call me a fat, balding, talentless old queen who can’t sing, but you can’t tell lies about me.
+ - I’m going to fight for human rights, whether I do it silently behind the scenes or vocally so that I get locked up. I can’t just sit back; it’s not in my nature. I can’t sit back and blindly ignore it, and I won’t.
+ - Getting paid for being laid, guess that’s the name of the game.
+ - It’s like trying to drink whisky from a bottle of wine.
+ - I have no one to leave the money to. I’m a single man. I like spending my money.
+ - I knew about AIDS. My friends were dying right, left, and center. I did a record with Dionne Warwick, Stevie Wonder, and Gladys Knight. I did a couple of benefits.
+ - Well, I’m a huge fan of Ryan Adams, who’s from North Carolina. And he’s beginning to break really quite big.
+ - I’m not everybody’s cup of tea. But sometimes criticism can be hurtful. Be respectful. I’m a good piano player, I can sing well, I write good songs. If you don’t like it, fair enough. But give me a break.
+ - He’s been dead for so many years, but I’m still trying to impress him. That’s what gave me my drive. ‘Look at me, Dad, I’ve succeeded.’
+ - I loathe gardening, but I love gardens, and I have two beautiful gardens. I can not bear gardening, but I love gardens.
+ - I’m the Connie Francis of rock ‘n’ roll.
+ - I think people should be free to engage in any sexual practices they choose; they should draw the line at goats though.
+ - Simon Cowell and I are great friends, and we wind each other up. Rod Stewart and I do the same thing.
+ - I love every minute of fatherhood, staying up all night, changing nappies, kids crying, I find it really funny and inspiring. It connects you to the world in a new way.
+ - This overload is edging me further out to sea, I need to put some distances between overkill and me.
+ - Well, I’ve had my fair share in Britain of battling the tabloids.
+ - I think that’s the graveyard of musicians, playing cabaret. I think I’d rather be dead than work in cabaret. It’s just so depressing.
+ - The ugliest woman you’ll ever meet, but she’s mine and she’s ugly.
+ - We are all God’s people; we have to get along and the religious leaders have to lead the way. If they don’t do it, who else is going to do it? They’re not going to do it and it’s left to musicians or to someone else to deal with it.
+ - The work became like the drug addiction, the clothes, anything in my life. It became – it’s become an addiction. I’m addicted to working.
+ - What we should be doing as musicians is trying to bring people together.
+ - I don’t whistle at you down the street. I would if I could, but I can’t whistle you see.
+ - Ever since I had that interview in which I said I was bisexual it seems twice as many people wave at me in the streets.
+ - You get the same equal rights that we do when we have a civil partnership. Heterosexual people get married. We can have civil partnerships.
+ - People with HIV are still stigmatized. The infection rates are going up. People are dying. The political response is appalling. The sadness of it, the waste.
+ - I never really made a full album in Los Angeles before.
+ - I’ve always been a fan, so my enthusiasm has always been great, but it’s never going to be the same as it was from 1970 to 1975. You cannot repeat that, but you can get inspired by searching, by being mystified.
+ - I just go into the studio, look at the lyrics for the first time when I put them on the piano, and go. If I haven’t got it within 40 minutes, I give up. It’s never changed, the thrill has never gone, because I don’t know what I’m going to get next.
+ - The worst thing you can do to a child, and I’ve seen it happen so many times, is the silver spoon.
+ - I went to a mixed school and I can’t remember being bullied at school, ever. I was quite large, in those days. Usually, if you’re going to be a bully, you’ll pick on someone who is small. I didn’t bully anybody, and I don’t remember being bullied.
+ - Love’s like a junkie, addiction’s a fact. Passion’s a monkey, you can’t keep off your back.
+ - I’m a very wealthy man.
+ - Once I’d heard ‘Modern Times’ by Bob Dylan, it really changed the way I wanted to make records.
+ - I don’t have a computer. I am the Luddite of rock’n’roll, I don’t have a portable phone. I write things down.
+ - I grew up conservative because my mum was a conservative, and when I finally realized what conservatives were, I changed my mind immediately.
+ - Fame attracts lunatics.
+ - People say, “You should write lyrics” and I say I’m quite happy not to, because I like being part of that process where you write your version of what someone else’s lyrics are saying to you, and that enjoyment has never changed.
+ - I rarely wear tennis shoes. I’m 5? 8?, I hate being short.
+ - Your eyes have died, but you see more than I.
+ - And it’s one more beer and I don’t hear you any more.
+ - But you know, I have a pretty good relationship with the press and the paparazzi. It’s just when they step over the line that, you know, enough’s enough.
+ - The whole point of being in this business and being blessed and being successful is that you’re able to do things for your friends or your family, which means that they can have something special in their lives, too.
+ - Well, I quit those days and my redneck ways.
+ - I was sitting in the classroom trying to look intelligent in case the teacher looked at me.
+ - I do like Britney Spears. I think she’s cute. I think she’s fun. And I like her records. You know, I’m not a pop snob whatsoever. I think she makes great pop records.
+ - Some men kneel and pray, I like women and I like wine.
+ - Chefs aren’t celebrities: they’re chefs.
+ - I was ready to approach her with my English charm, when her brass knuckled boyfriend grabbed me by the arm.
+ - I have an optimistic view of everything. You have to, otherwise you’d go nuts.
+ - And I trusted someone to look after me on the business side of life.
+ - The great thing about rock and roll is that someone like me can be a star.
+ - I’ve only been interested in the artistic side of life.
+ - Poor cow, you’ll get your dumb man. You’ll see your whole life coming at you in the back of his hand.
+ - It was Elvis that got me interested in music. I’ve been an Elvis fan since I was a kid.
+ - Make this man a saint now, OK?
+ - Love is the key we must turn, truth is the flame we must burn.
+ - Instead of more violence why isn’t there a meeting of religious leaders. It’s all got to be dialogue – that’s the only way. Get everybody from each religion together and say ‘Listen, this can’t go on. Why do we have all this hatred?’
+ - Once you have people around you who don’t question you, you’re in a dangerous place.
+ - Don’t show up around here until your social worker’s helped.
+ - Who really needs a new album from me?
+ - If there’s a God in heaven, what’s he waiting for? If He can’t hear the children, then he must see the war.
+ - I became successful and within five years conquered the world and had the most amazing run. I had so much momentum and adrenaline going, but then it ends and you have to find what level you’re going to be on, how enthusiastic you’re going to be.
+ - And I’m afraid, in this day and age, trust, which I count so, you know, I love loyalty. I love trust.
+ - I loathe celebrity. I can’t stand it.
+ - You can beat her, but don’t mistreat her. Oh, don’t believe that woman please.
+ - As Elton John, my days on pop radio are over, and I know that and I accept it and I’m not unhappy about it.
+ - And we have come so far like that. I mean, the advances on the medication side have been enormous, and the advances on the human side have been enormous. But we still have this stigma to get rid of, and then we really will be able to see the light at the end of the tunnel.
+ - I used to take hostages in my relationships and not let people be independent. It always ended in disaster, because you take away people’s identity and they end up full of resentment.
+ - I was more ashamed that I couldn’t work the washing machine than the fact that I was taking drugs.
+ - Because, I figured that, because I was a successful man, I was wealthy, I was, you know, seemingly intelligent – even that I am not intelligent enough to ask for help.
+ - Children are extremely important. They are the future of the world.
+ - I used to get my money at the end of the week, buy my mum something, or buy a record, and that was it.
+ - As a child, as a teenager, I was kind of not allowed to wear fashionable clothes.
+ - What a scandal, if I die. Yeah, I’m gonna kill myself, get a little headline news.
+ - I have a lot of money stashed away, but I do live my life from day to day.
+ - I don’t think you can recreate anything from the past. You can not do it. If you’re going to go out and imitate a Motown sound, you can’t do it, it’s impossible because of the studios and players involved and the atmosphere.
+ - Anyone who lip-synchs in public on stage when you pay 75 pounds to see them should be shot.
+ - Goodbye Norma Jean From the young man in the 22nd row Who sees you as something more than sexual More than just our Marilyn Monroe.
+ - I heard Little Richard and Jerry Lee Lewis, and that was it. I didn’t ever want to be anything else. I just started banging away and semi-studied classical music at the Royal Academy of Music but sort of half-heartedly.
+ - It was Saturday late, have you seen my mates, can you tell me when the boys get here? Well, it’s seven o’clock and I want to rock and get a belly full of beer.
+ - Mars ain’t the kind of place to raise your kids, in fact it’s cold as hell.
+ - I was just genuinely shy. I’d always been a shy kid.
+ - And there’s no guarantee that if you get HIV and you take these triple therapies, or whatever comes along next, that they’re going to be successful for you.
+ - I have a much better relationship with the press than I did, I think because I stood my ground.
+ - And there are men behind bars who pray for the light and there are men in the suburbs who pray for the night.
+ - I get bombed for breakfast in the morning, I get bombed for dinner.
+ - The thing about Vegas is, I don’t have to fly anywhere, and that really helps. It means I stay in one place for three weeks at a time instead of flying backwards and forwards.
+ - I’ve got to do something to make up for all those self-absorbed and selfish years when I just, you know, was taking drugs, sitting in my room, doing bad things, whatever.
+ - All this science I don’t understand, it’s just my job five days a week.
+ - Yeah. I have been with David Furnish for eight years, now.
+ - I’m 57, I can’t look like a 30-year-old. You try to hold age at bay, but there comes a point when you just have to give up gracefully.
+ - I’m cold as a razor blade, inches from madness.
+ - When I say I don’t have to write pop songs anymore, there’s no way I’m going to get on the radio at 60 years of age unless I’m doing a duet with Gaga or I was on ‘All of the Lights,’ which was a Kanye West record that managed to get on the radio.
+ - I do work a lot. I mean, most of my income, I would say, comes from live performances. And then you’ve got publishing, you’ve got record royalties.
+ - I’ve had an amazing professional life, personal life, but at 64 to have a son who gives us that much love and enjoyment is, wow!
+ - The only thing the record companies put out now is ‘Best of,’
+ - I still want to play music but I don’t want to look like Donald Duck while I’m doing it.
+ - I want to do a musical movie. Like Evita, but with good music.
+ - We have come so far. It’s become a real bipartisan cause, which I’m very happy to see. And in the case of America, and it’s – certainly, without America, we’d be facing catastrophe.
+ - Like a candle in the wind, never knowing who to cling to until the rain set it.
+ - I grew up at my grandmother’s house, and she had a beautiful garden. I used to hate mowing the lawn and weeding, which is what you do when you’re a kid. I loathe gardening, but I love gardens, and I have two beautiful gardens.
+ - I mean, in some cases with libel laws, you know, they can write things about people who have no course of action, because they can’t afford to take legal action against them.
+ - The world is near escalating to World War Three and where are the leaders of each religion? Why aren’t they having a conclave; why aren’t they coming together?
+ - I’ve got a great collection of photography.
+ - At heart I’ve always been a music fan. That part of me has never changed since I was a little kid, sitting in a room watching a record go round, looking at the colour of the labels.
+ - I tour as many countries as possible, and I’ve toured every state in America, plus every province in Canada.
+ - I love the way the American trade magazines never give anybody a bad review because they’re afraid the advertising will be taken out. It’s so hysterical.
+ - There’s a lot of hate in the world.
+ - Oh teacher, I need you like a little child, you got something in you to drive a school boy wild.
+ - I’ve never had a writer’s block, but still I think: Is it going to happen this time? You never know what you’re going to get; you just put your fingers on the keys and hope.
+ - Until I can visualise what the lyrics are about and see the story or whatever, I can’t hear the melody.
+ - If I was to say what I am, I’d be a Labour man. I like Tony Blair a lot, I think he’s a good man. And in America I’d definitely be a Democrat; I’d never be a Republican.
+ - I’ve had my fills of cocaine and pills.
+
+222 quotes

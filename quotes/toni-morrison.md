@@ -1,0 +1,262 @@
+ - If there’s a book that you want to read, but it hasn’t been written yet, then you must write it.
+ - If you want to fly, you have to give up the things that weigh you down.
+ - There is no time for despair, no place for self-pity, no need for silence, no room for fear. We speak, we write, we do language. That is how civilizations heal.
+ - When a child walks in the room, your child or anybody else’s child, do your eyes light up? That’s what they’re looking for.
+ - Don’t beg anybody for anything, especially love.
+ - I wrote my first novel because I wanted to read it.
+ - The function of freedom is to free someone else.
+ - Oppressive language does more than represent violence; it is violence; does more than represent the limits of knowledge; it limits knowledge.
+ - At some point in life the world’s beauty becomes enough. You don’t need to photograph, paint or even remember it. It is enough.
+ - Freeing yourself was one thing; claiming ownership of that freed self was another.
+ - Definitions belong to the definers, not the defined.
+ - You are your best thing.
+ - Your life is already artful-waiting, just waiting, for you to make it art.
+ - Beloved, you are my sister, you are my daughter, you are my face; you are me.
+ - Make a difference about something other than yourselves.
+ - All important things are hard.
+ - The peace I am thinking of is the dance of an open mind when it engages another equally open one.
+ - We die. That may be the meaning of life. But we do language. That may be the measure of our lives.
+ - In times of dread, artists must never choose to remain silent.
+ - It was a fine cry – loud and long – but it had no bottom and it had no top, just circles and circles of sorrow.
+ - If you surrendered to the air, you could ride it.
+ - If writing is thinking and discovery and selection and order and meaning, it is also awe and reverence and mystery and magic.
+ - Long before I was a success, my parents made me feel like I could be one.
+ - Something that is loved is never lost.
+ - Don’t ever think I fell for you, or fell over you. I didn’t fall in love, I rose in it.
+ - Can’t nothing heal without pain, you know.
+ - All art is knowing when to stop.
+ - Language alone protects us from the scariness of things with no names. Language alone is meditation.
+ - As you enter positions of trust and power, dream a little before you think.
+ - Grown don’t mean nothing to a mother. A child is a child. They get bigger, older, but grown. In my heart it don’t mean a thing.
+ - When they fall in love with a city, it is for forever and it is like forever.
+ - If you can only be tall because someone else is on their knees, then you have a serious problem. And white people have a very, very serious problem.
+ - I always know the ending; that’s where I start.
+ - Women’s rights is not only an abstraction, a cause; it is also a personal affair. It is not only about us; it is also about me and you. Just the two of us.
+ - You rely on a sentence to say more than the denotation and the connotation; you revel in the smoke that the words send up.
+ - The pieces I am, she gather them and gave them back to me in all the right order.
+ - Sexist language, racist language, theistic language – all are typical of the policing languages of mastery, and cannot, do not, permit new knowledge or encourage the mutual exchange of ideas.
+ - I didn’t fall in love, I rose in it.
+ - Let your face speak what’s in your heart.
+ - The theme you choose may change or simply elude you, but being your own story means you can always choose the tone. It also means that you can invent the language to say who are you and what you mean.
+ - A dream is just a nightmare with lipstick.
+ - She was the third beer. Not the first one, which the throat receives with almost tearful gratitude; nor the second, that confirms and extends the pleasure of the first. But the third, the one you drink because it’s there, because it can’t hurt, and because what difference does it make?
+ - I dream a dream that dreams back at me.
+ - Love is divine only and difficult always. If you think it is easy you are a fool. If you think it is natural you are blind. It is a learned application without reason or motive except that it is God.
+ - Clever, but schoolteacher beat him anyway to show him that definitions belonged to the definers – not the defined.
+ - I know the world is bruised and bleeding, and though it is important not to ignore its pain, it is also critical to refuse to succumb to its malevolence. Like failure, chaos contains information that can lead to knowledge-even wisdom. Like art.
+ - I’m interested in the way in which the past affects the present and I think that if we understand a good deal more about history, we automatically understand a great more about contemporary life.
+ - Shallow believers prefer a shallow God.
+ - When there is pain, there are no words. All pain is the same.
+ - Narrative is radical, creating us at the very moment it is being created.
+ - From my point of view, which is that of a storyteller, I see your life as something artful, waiting, just waiting and ready for you to make it art.
+ - The best art is political and you ought to be able to make it unquestionably political and irrevocably beautiful at the same time.
+ - For lo, the winter is past, the rain is over and gone; the flowers appear on the earth; the time of the singing of birds is come, and the voice of the turtledove is heard in our land.
+ - There in the center of that silence was not eternity but the death of time and a loneliness so profound the word itself had no meaning.
+ - Racism will disappear when it’s no longer profitable, and no longer psychologically useful. And when that happens, it’ll be gone. But at the moment, people make a lot of money off of it, pro and con.
+ - If you can’t count, they can cheat you. If you can’t read, they can beat you.
+ - In this country American means white. Everybody else has to hyphenate.
+ - Love is never any better than the lover.
+ - If you take racism away from certain people – I mean vitriolic racism as well as the sort of social racist – if you take that away, they may have to face something really terrible – misery, self-misery, and deep pain about who they are.
+ - Black literature is taught as sociology, as tolerance, not as a serious, rigorous art form.
+ - Anger is better. There is a sense of being in anger. A reality and presence. An awareness of worth. It is a lovely surging.
+ - Along with the idea of romantic love, she was introduced to another – physical beauty. Probably the most destructive ideas in the history of human thought. Both originated in envy, thrived in insecurity, and ended in disillusion.
+ - Don’t tell us what to believe, what to fear. Show us belief’s wide skirt and the stitch that unravels fear’s caul.
+ - Language can never ‘pin down’ slavery, genocide, war. Nor should it yearn for the arrogance to be able to do so. Its force, its felicity, is in its reach toward the ineffable.
+ - A bestseller is a book that non-book buyers buy.
+ - I always start out with an idea, even a boring idea, that becomes a question I don’t have answers to.
+ - Art invites us to know beauty and to solicit it, summon it, from even the most tragic of circumstances.
+ - You free. Nothing and nobody is obliged to save you but you.
+ - I don’t think one parent can raise a child. I don’t think two parents can raise a child. You really need the whole village.
+ - People say to write about what you know. I’m here to tell you, no one wants to read that, cos you don’t know anything. So write about something you don’t know. And don’t be scared, ever.
+ - Passion is never enough; neither is skill.
+ - It is sheer good fortune to miss somebody long before they leave you.
+ - Sweet, crazy conversations full of half sentences, daydreams and misunderstandings more thrilling than understanding could ever be.
+ - The ability of writers to imagine what is not the self, to familiarize the strange and mystify the familiar, is the test of their power.
+ - Beauty was not simply something to behold; it was something one could do.
+ - All water has a perfect memory and is forever trying to get back to where it was.
+ - Like any artist without an art form, she became dangerous.
+ - Freedom is choosing your responsibility. It’s not having no responsibilitie s; it’s choosing the ones you want.
+ - How exquisitely human was the wish for permanent happiness, and how thin human imagination became trying to achieve it.
+ - What I think the political correctness debate is really about is the power to be able to define. The definers want the power to name. And the defined are now taking that power away from them.
+ - Which was what love was: unmotivated respect.
+ - Love is divine only and difficult always.
+ - Movements toward freedom and the self-respect that comes from something other than what people think is their most important feature.
+ - I can’t explain inspiration. A writer is either compelled to write or not. And if I waited for inspiration I wouldn’t really be a writer.
+ - Black people are victims of an enormous amount of violence. None of those things can take place without the complicity of the people who run the schools and the city.
+ - A coward with a gun is the most dangerous person in the world.
+ - I want to discourage you from choosing anything or making any decision simply because it is safe. Things of value seldom are.
+ - I tell my students there is such a thing as ‘writer’s block,’ and they should respect it. You shouldn’t write through it. It’s blocked because it ought to be blocked, because you haven’t got it right now.
+ - If happiness is anticipation with certainty, we were happy.
+ - Love is or it ain’t. Thin love ain’t love at all.
+ - A little black girl yearns for the blue eyes of a little white girl, and the horror at the heart of her yearning is exceeded only by the evil of fulfillment.
+ - All paradises, all utopias are designed by who is not there, by the people who are not allowed in.
+ - Me and you, we got more yesterday than anybody. We need some kind of tomorrow.
+ - Being able to laugh got me through.
+ - Unless carefree, mother love was a killer.
+ - Birth, life, and death – each took place on the hidden side of a leaf.
+ - I get angry about things, then go on and work.
+ - The enemy is not men. The enemy is the concept of patriarchy, the concept of patriarchy as the way to run the world or do things.
+ - The vitality of language lies in its ability to limn the actual, imagined and possible lives of its speakers, readers, writers.
+ - She is a friend of mind. She gather me, man. The pieces I am, she gather them and give them back to me in all the right order. It’s good, you know, when you got a woman who is a friend of your mind.
+ - A dead hydrangea is as intricate and lovely as one in bloom. Bleak sky is as seductive as sunshine, miniature orange trees without blossom or fruit are not defective; they are that.
+ - Somebody has to take responsibility for being a leader.
+ - When a man angers you, he conquers you.
+ - Black women are the touchstone by which all that is human can be measured.
+ - There is no civilization that did not begin with art, Whether it was drawing a line in the sand, painting a cave or dancing.
+ - Liberation means you don’t have to be silenced.
+ - My world did not shrink because I was a black female writer. It just got bigger.
+ - I don’t believe any real artists have ever been non-political. They may have been insensitive to this particular plight or insensitive to that, but they were political, because that’s what an artist is-a politician.
+ - Unpersecuted, unjailed, unharrassed writers are trouble for the ignorant bully, the sly racist, and the predators feeding off the world’s resources.
+ - I like marriage. The idea.
+ - I thought the whole world was like Lorain.
+ - And I am all the things I have ever loved: scuppernong wine, cool baptisms in silent water, dream books and number playing.
+ - Race is the least reliable information you can have about someone. It’s real information, but it tells you next to nothing.
+ - From my point of view, your life is already a miracle of chance waiting for you to shape its destiny.
+ - A sister can be seen as someone who is both ourselves and very much not ourselves – a special kind of double.
+ - The concept of physical beauty as a virtue is one of the dumbest, most pernicious and destructive ideas of the Western world, and we should have nothing to do with it.
+ - Lonely was much better than alone.
+ - We mistook violence for passion, indolence for leisure, and thought recklessness was freedom.
+ - Lay my head on the railroad line. Train come along; pacify my mind.
+ - When you know your name, you should hang on to it, for unless it is noted down and remembered, it will die when you do.
+ - Anything dead coming back to life hurts.
+ - Who’s Got Game? The Ant or the Grasshopper? The Lion or the Mouse? Poppy or the Snake?
+ - Sweet, she thought. He must think I can’t bear to hear him say it. That after all I have told him and after telling me how many feet I have, “goodbye” would break me to pieces. Ain’t that sweet. “So long,” she murmured from the far side of the trees.
+ - You looked at me then like you knew me, and I thought it really was Eden, and I couldn’t take your eyes in because I was loving the hoof marks on your cheeks.
+ - I want to feel what I feel. What’s mine. Even if it’s not happiness, whatever that means. Because you’re all you’ve got.
+ - You been gone too long, Sula. Not too long, but maybe too far.
+ - I don’t know whether the bird you are holding is dead or alive, but what I do know is that it is in your hands. It is in your hands.
+ - I don’t work. I keep telling people I’m unemployed. And I don’t wash dishes, and I don’t wash clothes, and I don’t clean my house. Somebody else does that.
+ - Our ancestors are an ever widening circle of hope.
+ - An innocent man is a sin before God. Inhuman and therefore untrustworthy. No man should live without absorbing the sins of his kind, the foul air of his innocence, even if it did wilt rows of angel trumpets and cause them to fall from their vines.
+ - If a Negro got legs he ought to use them. Sit down too long, somebody will figure out a way to tie them up.
+ - Sifting daylight dissolves the memory, turns it into dust motes floating in light.
+ - My home is such a powerfully imaginative place that the space is almost irrelevant. I think the house I live at on the Hudson is where I belong because it’s the only place where I am that I never think about when I’m leaving.
+ - If you’re going to hold someone down you’re going to have to hold on by the other end of the chain. You are confined by your own repression.
+ - Love just seems to make life not just livable, but a gallant, gallant event.
+ - But to find out the truth about how dreams die, one should never take the word of the dreamer.
+ - No gasp at a miracle that is truly miraculous because the magic lies in the fact that you knew it was there for you all along.
+ - Lonely, ain’t it? Yes, but my lonely is mine. Now your lonely is somebody else’s. Made by somebody else and handed to you. Ain’t that something? A secondhand lonely.
+ - She learned the intricacy of loneliness: the horror of color, the roar of soundlessness and the menace of familiar objects lying still.
+ - Let your face speak what’s in your heart. When my kids walk in the room my face says I’m glad to see them.
+ - The seeds of destruction lie in the definition of “chosen-ness” and can easily blossom into bigotry. It’s not inevitable but it needs constant care to avoid.
+ - I have only to break into the tightness of a strawberry, and I see summer – its dust and lowering skies.
+ - You need a whole community to raise a child. I have raised two children, alone.
+ - Misery colored by the greens and blues in my mother’s voice took away all the grief out of the words and left me with a conviction that pain was not only endurable, it was sweet.
+ - Being good to somebody is just like being mean to somebody. Risky. You don’t get nothing for it.
+ - Beginning Beloved with numerals rather than spelled out numbers, it was my intention to give the house an identity separate from the street or even the city.
+ - No one ever talks about the moment you found that you were white. Or the moment you found out you were black. That’s a profound revelation. The minute you find that out, something happens. You have to renegotiate everything.
+ - More than fear of loving bears or birds bigger than cows, I fear pathless nights. How, I wonder, can I find you in the dark?
+ - I’m always annoyed about why black people have to bear the brunt of everybody else’s contempt. If we are not totally understanding and smiling, suddenly we’re demons.
+ - There is an incredible amount of magic and feistiness in black men that nobody has been able to wipe out. But everybody has tried.
+ - What’s the world for you if you can’t make it up the way you want it?
+ - Home is memory, home is your history, home is where you work. Some people want to abandon it and become truly local. But the questions are all there.
+ - As a writer reading, I came to realize the obvious: the subject of the dream is the dreamer.
+ - Pain. I seem to have an affection, a kind of sweettooth for it. Bolts of lightning, little rivulets of thunder. And I the eye of the storm.
+ - Writing is really a way of thinking – not just feeling but thinking about things that are disparate, unresolved, mysterious, problematic or just sweet.
+ - Like friendship, hatred needed more than physical intimacy; it wanted creativity and hard work to sustain itself.
+ - Nobody loved her and she wouldn’t have liked it if they had, she considered love a serious disability.
+ - Everybody gets everything handed to them. The rich inherit it. I don’t mean just inheritance of money. I mean what people take for granted among the middle and upper classes, which is nepotism, the old-boy network.
+ - A man ain’t nothing but a man. But a son? Well, now, that’s somebody.
+ - Every now and then she looked around for tangible evidence of his having ever been there. Where were the butterflies? the blueberries? the whistling reed? She could find nothing, for he had left nothing but his stunning absence.
+ - I wish I’d a knowed more people. I would of loved ’em all. If I’d a knowed more, I would a loved more.
+ - Everywhere, everywhere, children are the scorned people of the earth.
+ - My father saw two black men lynched on his street in Cartersville, as a child. And I think seeing two black businessmen – not vagrants – hanging from trees as a child was traumatic for him.
+ - I feel like today we always glorify the young, just-plucked-from-college writer. But it’s much harder to start writing later, in middle age, struggling on a book around a full-time job and family.
+ - I’m not entangled in shaping my work according to other people’s views of how I should have done it.
+ - I write the way women have babies. You don’t know it’s going to be like that. If you did, there’s no way you would go through with it.
+ - Laughter is more serious than tears.
+ - Whatever happens, whether you get rich or stay poor, ruin your health or live to old age, you always end up back where you started: hungry for the one thing everybody loses – young loving.
+ - The language must be careful and must appear effortless. It must not sweat. It must suggest and be provocative at the same time.
+ - My children are delightful people, whom I would love even if they weren’t my children.
+ - The best part of all, the absolutely most delicious part, is finishing it and then doing it over I rewrite a lot, over and over again, so that it looks like I never did.
+ - Black boys became criminalized. I was in constant dread for their lives, because they were targets everywhere. They still are.
+ - Sunk in the grass of an empty lot on a spring Saturday, I split the stems of milkweed and thought about ants and peach pits and death and where the world went when I closed my eyes.
+ - No matter what all your teeth and wet fingers anticipated, there was no accounting for the way that simple joy could shake you.
+ - Listen up. Let me tell you something. A man ain’t a goddamn ax. Chopping, hacking, busting every goddamn minute of the day. Things get to him. Things he can’t chop down because they’re inside.
+ - I have the wonderful pleasure of finishing the book and closing it. And I don’t read them later.
+ - I couldn’t bear to have people mispronounce my name. But the person I was was this person who was called Chloe.
+ - I don’t think anybody cares about unwed mothers unless they’re black or poor. The question is not morality, the question is money. That’s what we’re upset about.
+ - Black women have always been friends. I mean, if you didn’t have each other you had nothing.
+ - Black people have always been used as a buffer in this country between powers to prevent class war.
+ - To be given dominion over another is a hard thing; to wrest dominion over another is a wrong thing; to give dominion of yourself to another is a wicked thing.
+ - Some Native American writers enjoy being called Native American writers.
+ - The presence of evil was something to be first recognized, then dealt with, survived, outwitted, triumphed over.
+ - The isolation, the separateness, is always a part of any utopia.
+ - I don’t wait to be struck by lightning and I don’t need certain slants of light in order to be able to write.
+ - Like Guitar in Son of Solomon, and Son in Tar Baby, he believed that harmony could never exist between the races.
+ - There is really nothing more to say-except why. But since why is difficult to handle, one must take refuge in how.
+ - I merged those two words, black and feminist, because I was surrounded by black women who were very tough and and who always assumed they had to work and rear children and manage homes.
+ - It had been the longest time since she had had a rib-scraping laugh. She had forgotten how deep and down it could be. So different from the miscellaneous giggles and smiles she had learned to be content with these past few years.
+ - He wants to put his story next to hers.
+ - Not knowing it was hard; knowing it was harder.
+ - I had only one desire: to dismember it. To see of what it was made, to discover the dearness, to find the beauty, the desirability that had escaped me, but apparently only me.
+ - It would be ten years before they saw each other again, and their meeting would be thick with birds.
+ - What difference do it make if the thing you scared of is real or not?
+ - In Ohio seasons are theatrical. Each one enters like a prima donna, convinced its performance is the reason the world has people in it.
+ - It was my father who could do no wrong. So I didn’t think of it as, oh, look, my father’s a violent man.
+ - There is nothing of any consequence in education, in the economy, in city planning, in social policy that does not concern black people.
+ - I wanted to separate color from race. Distinguishing color – light, black, in-between – as the marker for race is really an error.
+ - Deep, deep trouble. Can’t rival the dead for love. Lose every time.
+ - I don’t think a female running a house is a problem, a broken family. It’s perceived as one because of the notion that a head is a man.
+ - I sang “O Holy Night” in a school choir. My mother came and listened to me and complimented me. So that was the high point. I cannot sing a note.
+ - They had stared at her with great uncomprehending eyes. Eyes that questioned nothing and asked everything. Unblinking and unabashed, they stared up at her. The end of the world lay in their eyes, and the beginning, and all the waste in bewteen.
+ - I guess I’m depressed. I don’t know. I can’t explain it. Part of it is the irritability of being 84, and part of it is being not as physically strong as I once was. And part of it is my misunderstanding, I think, of what’s going on in the world.
+ - Sometimes the names were humiliating, deliberately so. Somebody would pick out your flaw. If you were little, they would call you Shorty. And if you were angry, they would call you the Devil.
+ - They encouraged you to put some of your weight in their hands and soon as you felt how light and lovely it was, they studied your scars and tribulations...
+ - The screams of a hurt woman were indistinguishable from everyday traffic.
+ - I always looked upon the acts of racist exclusion, or insult, as pitiable, from the other person. I never absorbed that. I always thought that there was something deficient about such people.
+ - Misery don’t call ahead. That’s why you have to stay awake – otherwise it just walks on in your door.
+ - You marvel at the economy and this choice of words. How many ways can you describe the sky and the moon? After Sylvia Plath, what can you say?
+ - What I’m doing ain’t about hating White people. It’s about loving us.
+ - The body is ready to have babies. Nature wants it done then, when the body can handle it, not after 40, when the income can handle it.
+ - A son ain’t what a woman say. A son is what a man do.
+ - Say make me, remake me. You are free to do it and I am free to let you because look, look. Look where your hands are. Now.
+ - And wouldn’t you know he’d be a singing man.
+ - American means white, and Africanist people struggle to make the term applicable to themselves with ethnicity and hyphen after hyphen after hyphen.
+ - When I’m not creating or focusing on something I can imagine or invent, I think I go back over my life – I don’t recommend this by the way – and you pick up, oh, what’d you do that for? Why didn’t you understand this?
+ - A lot of black people believe that Jews in this country have become white. They behave like white people rather than Jewish people.
+ - So this is what insanity is. Not goofy behavior, but watching a sudden change in the world you used to know.
+ - Schools must stop being holding pens to keep energetic young people off the job market and off the streets. We stretch puberty out a long, long time.
+ - I would solve a lot of literary problems just thinking about a character in the subway, where you can’t do anything anyway.
+ - I began to realize that this idea of the lighter the better and the darker the worse was really – had an impact on sororities, on friendships, on all sorts of things, and it was stunning to me.
+ - Would it be all right? Would it be all right to go ahead and feel? Go ahead and count on something?
+ - What’s interesting about writing is the invention, the creative thing. Writing about myself is a yawn.
+ - I’m just trying to look at something without blinking, to see what it is like, or it could have been like, and how that had something to do with the way we live now. Novels are always inquiries for me.
+ - The difference between that which is humane and that which is patriotic is a vital difference.
+ - It’s been mentioned or suggested that Paradise will not be well studied, because it’s about this unimportant intellectual topic, which is religion.
+ - Access to knowledge is the superb, the supreme act of truly great civilizations. Of all the institutions that purport to do this, free libraries stand virtually alone in accomplishing this mission.
+ - Intimacy is extremely important to me and I want it to be extremely important to the readers.
+ - For a long time I was convinced that the conflict between Jewish people and black people in this country was a media event.
+ - Nelson Mandela is, for me, the single statesman in the world. The single statesman, in that literal sense, who is not solving all his problems with guns. It’s truly unbelievable.
+ - One has to work very carefully with what is in between the words. What is not said. Which is measure, which is rhythm and so on. So, it is what you don’t write that frequently gives what you do write its power.
+ - I sometimes lose interest in the characters and get much more interested in the trees and animals.
+ - New York is the last true city.
+ - We read about how Ajax and Achilles will die for each other, but very little about the friendship of women.
+ - But her brain was not interested in the future. Loaded with the past and hungry for more, it left her no room to imagine, let alone plan for, the next day.
+ - The habit of getting up early, which I had formed when the children were young, now became my choice. I am not very bright or very witty or very inventive after the sun goes down.
+ - In becoming an American, from Europe, what one has in common with that other immigrant is contempt for me-it’s nothing else but color.
+ - For me, Art is the restoration of order. It may discuss all sort of terrible things, but there must be satisfaction at the end. A little bit of hunger, but also satisfaction.
+ - Usually I try to be there by six. Everything has been taken off the walls so that there’s nothing to arrest my sight. On the bed I have Roget’s Thesaurus, a dictionary, a Bible, and a deck of playing cards.
+ - Most of our lives are spent in little towns, little towns all throughout the country. That’s where we live. And that’s where the juices come from and that’s where we made it, not made it in terms of success but made who we are.
+ - I don’t do the things other people call “play.”
+ - When am I happy and when am I sad and what is the difference? What do I need to know to stay alive? What is true in the world?
+ - I don’t think I knew any of my father’s friends – male friends – by their real names. I remember them only by their nicknames.
+ - You need intelligence, and you need to look. You need a gaze, a wide gaze, penetrating and roving – thats what’s useful for art.
+ - Isolation, you know, carries the seeds of its own destruction because as times change, other things seep in.
+ - Everything I’ve ever done, in the writing world, has been to expand articulation, rather than to close it.
+ - Wait, wait, wait, wait. Don’t try to write through it, to force it. Many do, but that won’t work. Just wait, it will come.
+ - I type in one place, but I write all over the house.
+ - I think some aspects of writing can be taught. Obviously, you can’t teach vision or talent. But you can help with comfort.
+ - Make a difference, does it? You stay the night here snake get you.
+ - The unflattering reviews are painful for short periods of time; the badly written ones are deeply, deeply insulting. That reviewer took no time to really read the book.
+ - Certain seeds it will not nurture, certain fruit it will not bear and when the land kills of its own volition, we acquiesce and say the victim had no right to live.
+ - When I went into the publishing industry, many women talked about the difficulty they had in persuading their families to let them go to college. They educated the boys, and the girls had to struggle.
+ - Write about something you don’t know. And don’t be scared, ever.
+ - I think one of the reasons I’m so thrilled with writing is because it is an act of reading for me at the same time, which is why my revisions are so sustained.
+ - I know that my books are worthy, which is separate from me.
+ - If I’d a knowed more, I would a loved more.
+ - One of my kids was born in 1968. There were going to be political difficulties, but they were never going to have that level of hatred and contempt that my brothers and my sister and myself were exposed to.
+ - You have to be willing to think the unthinkable.
+ - When you stiffen, you know that whatever you stiffen about is very important. The stuff is important, the fear itself is information.
+
+260 quotes

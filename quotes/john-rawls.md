@@ -1,0 +1,48 @@
+ - The principles of justice are chosen behind a veil of ignorance.
+ - The natural distribution is neither just nor unjust; nor is it unjust that persons are born into society at some particular position. These are simply natural facts. What is just and unjust is the way that institutions deal with these facts.
+ - Justice as fairness provides what we want.
+ - Justice is the first virtue of social institutions, as truth is of systems of thought. A theory however elegant and economical must be rejected or revised if it is untrue; likewise laws and institutions no matter how efficient and well-arranged must be reformed or abolished if they are unjust.
+ - Justice is happiness according to virtue.
+ - A just society is a society that if you knew everything about it, you’d be willing to enter it in a random place.
+ - A society regulated by a public sense of justice is inherently stable.
+ - If A were not allowed his better position, B would be even worse off than he is.
+ - The fairest rules are those to which everyone would agree if they did not know how much power they would have.
+ - The fundamental criterion for judging any procedure is the justice of its likely results.
+ - The fault of the utilitarian doctrine is that it mistakes impersonality for impartiality.
+ - Many of our most serious conflicts are conflicts within ourselves. Those who suppose their judgements are always consistent are unreflective or dogmatic.
+ - An injustice is tolerable only when it is necessary to avoid an even greater injustice.
+ - Properly understood, then, the desire to act justly derives in part from the desire to express most fully what we are or can be, namely free and equal rational beings with the liberty to choose.
+ - The strength of the claims of formal justice, of obedience to system, clearly depend upon the substantive justice of institutions and the possibilities of their reform.
+ - Intuitionism is not constructive, perfectionism is unacceptable.
+ - The hazards of the generalized prisoner’s dilemma are removed by the match between the right and the good.
+ - In all sectors of society there should be roughly equal prospects of culture and achievement for everyone similarly motivated and endowed. The expectations of those with the same abilities and aspirations should not be affected by their social class.
+ - No one deserves his greater natural capacity nor merits a more favorable starting place in society.
+ - The concept of justice I take to be defined, then, by the role of its principles in assigning rights and duties and in defining the appropriate division of social advantages. A conception of justice is an interpretation of this role.
+ - The bad man desires arbitrary power. What moves the evil man is the love of injustice.
+ - The intolerant can be viewed as free-riders, as persons who seek the advantages of just institutions while not doing their share to uphold them.
+ - The sense of justice is continuous with the love of mankind.
+ - An intuitionist conception of justice is, one might say, but half a conception.
+ - Clearly when the liberties are left unrestricted they collide with one another.
+ - Ideal legislators do not vote their interests.
+ - I have tried to set forth a theory that enables us to understand and to assess these feelings about the primacy of justice. Justice as fairness is the outcome: it articulates these opinions and supports their general tendency.
+ - In constant pursuit of money to finance campaigns, the political system is simply unable to function. Its deliberative powers are paralyzed.
+ - The extreme nature of dominant-end views is often concealed by the vagueness and ambiguity of the end proposed.
+ - Certainly it is wrong to be cruel to animals and the destruction of a whole species can be a great evil. The capacity for feelings of pleasure and pain and for the form of life of which animals are capable clearly impose duties of compassion and humanity in their case.
+ - The naturally advantaged are not to gain merely because they are more gifted, but only to cover the costs of training and education and for using their endowments in ways that help the less fortunate as well.
+ - Ideally a just constitution would be a just procedure arranged to insure a just outcome.
+ - It is of first importance that the military be subordinate to civilian government.
+ - Thus I assume that to each according to his threat advantage is not a conception of justice.
+ - There are infinitely many variations of the initial situation and therefore no doubt indefinitely many theorems of moral geometry.
+ - The circumstances of justice may be described as the normal conditions under which human cooperation is both possible and necessary.
+ - A just system must generate its own support.
+ - There is a divergence between private and social accounting that the market fails to register. One essential task of law and government is to institute the necessary conditions.
+ - At best the principles that economists have supposed the choices of rational individuals to satisfy can be presented as guidelines for us to consider when we make our decisions.
+ - The claims of existing social arrangements and of self interest have been duly allowed for. We cannot at the end count them a second time because we do not like the result.
+ - First of all, principles should be general. That is, it must be possible to formulate them without use of what would be intuitively recognized as proper names, or rigged definite descriptions.
+ - A scheme is unjust when the higher expectations, one or more of them, are excessive. If these expectations were decreased, the situation of the less favored would be improved.
+ - Ideally citizens are to think of themselves as if they were legislators and ask themselves what statutes, supported by what reasons satisfying the criterion of reciprocity, they would think is most reasonable to enact.
+ - We must choose for others as we have reason to believe they would choose for themselves if they were at the age of reason and deciding rationally.
+ - When the basic structure of society is publicly known to satisfy its principles for an extended period of time, those subject to these arrangements tend to develop a desire to act in accordance with these principles and to do their part in institutions which exemplify them.
+ - We may suppose that everyone has in himself the whole form of a moral conception.
+
+46 quotes

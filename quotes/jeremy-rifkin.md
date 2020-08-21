@@ -1,0 +1,52 @@
+ - Deep play precedes deep work.
+ - Can we reach biosphere consciousness and global empathy in time to avert planetary collapse?
+ - Basic income is not a utopia, it’s a practical business plan for the next step of the human journey.
+ - Using less of the Earth’s resources more efficiently and productively in a circular economy and making the transition from carbon-based fuels to renewable energies are defining features of the emerging economic paradigm. In the new era, we each become a node in the nervous system of the biosphere.
+ - The Empathic Civilization is emerging. A younger generation is fast extending its empathic embrace beyond religious affiliations and national identification to include the whole of humanity and the vast project of life that envelops the Earth.
+ - What makes the IoT a disruptive technology in the way we organize economic life is that it helps humanity reintegrate itself into the complex choreography of the biosphere, and by doing so, dramatically increases productivity without compromising the ecological relationships that govern the planet.
+ - The hydrogen economy will make possible a vast redistribution of power, with far-reaching consequences for society. Today’s centralized, top-down flow of energy, controlled by global oil companies and utilities, could become obsolete.
+ - James Watt patented his steam engine on the eve of the American Revolution, consummating a relationship between coal and the new Promethean spirit of the age, and humanity made its first tentative steps into an industrial way of life that would, over the next two centuries, forever change the world.
+ - Starvation does not occur because of a world food shortage. If everyone ate a vegetarian, or better still, a vegan diet there would be enough food for everyone. The only sane way forward is to grow food for humans rather than to feed it to farmed animals...
+ - The prospect of cheap fusion energy is the worst thing that could happen to the planet.
+ - We are already producing enough food to feed the world. We already have technology in place that allows us to produce more than we can find a market for.
+ - If your corn has a herbicide-tolerant gene, it means you can pray your herbicides and kill the weeds; you won’t kill your corn.
+ - Many of the genetically modified foods will be safe, I’m sure. Will most of them be safe? Nobody knows.
+ - We have come to discover what we suspect is a new political mindset emerging among a younger generation of political leaders socialized on Internet communications. Their politics are less about right versus left and more about centralized and authoritarian versus distributed and collaborative.
+ - Turning points in human consciousness occur when new energy regimes converge with new communications revolutions, creating new economic eras.
+ - What the public needs to understand is that these new technologies, especially in recombinant DNA technology, allow scientists to bypass biological boundaries altogether.
+ - We’re finally going to get the bill for the Industrial Age. If the projections are right, it’s going to be a big one: the ecological collapse of the planet.
+ - What I’m suggesting to you is that this could be a renaissance. We may be on the cusp of a future which could provide a tremendous leap forward for humanity.
+ - We are learning that the earth functions like an invisible organism. We are the various cells of one living being. Those who work to save the earth are its antibodies.
+ - The electronic media introduced this idea to the larger audience very, very quickly. We spent years and years and years meeting with activists all over Europe to lay the groundwork for a political response, as we did here.
+ - Generations of human beings were transformed into machines in the relentless pursuit of material wealth: We lived to work.
+ - In this country, the health concerns and the environmental concerns are as deep as in Europe. All the surveys show that. But here, we didn’t have the cultural dimension. This is a fast-food culture.
+ - We now have an opportunity, though, to do something we didn’t do in the industrial age, and that is to get a leg up on this, to bring the public in quickly, to have an informed debate.
+ - We are hopeful that you will want to visit our planet in the near future. We are in the process of restoring our environment to its original grandeur, and hope to have completed the task before your RSVP.
+ - It may be that everything the life science companies are telling us will turn out to be right, and there’s no problem here whatsoever. That defies logic.
+ - We are entering a new phase in human history – one in which fewer and fewer workers will be needed to produce the goods and services for the global population.
+ - They’re now turning those seeds into intellectual property, so they have a virtual lock on the seeds upon which we all depend for our food and survival.
+ - The American public is not aware that there might be potential allergenic and toxic reactions. With regular food, at least people know which foods they have an allergy to.
+ - We’re creating multiple personas. We’re creating a thespian sense of personality where we see ourselves as works of art, and we see everything in our environment as a prop, as a set, as a stage, as a backdrop for filling ourselves in. We don’t see ourselves as ever completed. We are in-formation.
+ - Back in 1983, the United States government approved the release of the first genetically modified organism. In this case, it was a bacteria that prevents frost on food crops.
+ - When we seed millions of acres of land with these plants, what happens to foraging birds, to insects, to microbes, to the other animals, when they come in contact and digest plants that are producing materials ranging from plastics to vaccines to pharmaceutical products?
+ - Many of the mainstream agricultural scientists, especially at the agricultural schools, but at all of our major universities, are tied into all sorts of contractual relationships and consulting relationships with the life science companies.
+ - We were making the first step out of the age of chemistry and physics, and into the age of biology.
+ - Cosmologies are made up of small snippets of physical reality that have been remodeled by society into vast cosmic deceptions.
+ - One thing I’ve learned over these last 30 or 40 years is that people make history. There’s no fait accompli to any of this.
+ - A refuge is supposed to prevent what? The genes from flowing out of sight? This refuge idea won’t stop insects from moving across boundaries. That’s absurd.
+ - Back in the mid-1980s, congressional hearings were held after we brought this litigation, and held up the first experiment. At that time, I went in front of Congress, along with the major agencies involved with this.
+ - I wanted to make sure that this be the first scientific and technology revolution in history in which the public thoroughly discussed all the potential benefits and all the potential harms, in advance of the technology coming online and running its course.
+ - The world’s environment can no longer handle beef.
+ - Being both entrepreneurial and social is no longer an oxymoron, but rather a tautology.
+ - I know quite a few farmers all over the United States who have tried this and have said the opposite, that they have to use more herbicides, not less. The same holds true with BT.
+ - The interesting thing is, while we die of diseases of affluence from eating all these fatty meats, our poor brethren in the developing world die of diseases of poverty, because the land is not used now to grow food grain for their families.
+ - Today we are raised with the notion that to be secure is to be financially autonomous. Amassing wealth is viewed as the primary rite of passage to a secure, autonomous existence.
+ - Europe will not accept genetically modified foods. It doesn’t make any difference in the final analysis what Brussels does, what Washington does, or what the World Trade Organization does.
+ - The 10 largest antitrust law firms in the United States have gone into the federal courts charging Monsanto with creating a global conspiracy in violation of the antitrust laws, to control the global market in seeds.
+ - You can eliminate, for example, a Brazil nut gene if you know that it will create an allergenic effect.
+ - The position I took at the time was that we hadn’t really examined any of the potential environmental consequences of introducing genetically modified organisms.
+ - The industry’s not stupid. The industry knows that if those foods are labeled “genetically engineered,” the public will shy away and won’t take them.
+ - The public should know that the liability issues here have yet to be resolved, or even raised. If you’re a farmer and you’re growing a genetically engineering food crop, those genes are going to flow to the other farm.
+ - It is not uncommon to suppose that the free exchange of property in markets and capitalism are one and the same. They are not. While capitalism operates through the free market, free markets don’t require capitalism.
+
+50 quotes

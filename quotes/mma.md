@@ -1,0 +1,42 @@
+ - Excellence is not a skill, excellence is an attitude. ~~Conor McGregor
+ - You must improvise, adapt, and overcome. ~~Conor McGregor
+ - No Alarm Clock Needed. My Passion Wakes Me. ~~Eric Thomas
+ - Be passionate, be optimistic, be grateful. ~~Conor McGregor
+ - All that matters is how you see yourself. ~~Conor McGregor
+ - Keep positive and keep pushing on and things will turn good. ~~Conor McGregor
+ - Smart work pays best. Trust it. ~~Conor McGregor
+ - When you pay attention to detail, the big picture will take care of itself. ~~Georges St-Pierre
+ - You win battles by knowing the enemy’s timing, and using a timing which the enemy does not expect. ~~Miyamoto Musashi
+ - Know yourself, to know others. ~~Conor McGregor
+ - There’s people that focus on the game and forget about the art. There’s that specific special individual that can do both. ~~Conor McGregor
+ - There’s a Celtic saying, “Many a time a man’s mouth broke his nose.” ~~Conor McGregor
+ - An injury is not just a process of recovery it’s a process of discovery. ~~Conor McGregor
+ - Always be civil, but with a plan to neutralise everyone in the room. ~~Conor McGregor
+ - Face adversity head on in your training and you will conquer it smoothly in your fight. ~~Conor McGregor
+ - The support gets me to the gym but the doubt keeps me there. ~~Conor McGregor
+ - Real freedom is having nothing. I was freer when I didn’t have a cent. ~~Mike Tyson
+ - Good health is true wealth. ~~Urijah Faber
+ - Be spontaneous, be creative, go out and have fun, let things happen naturally. ~~Conor McGregor
+ - Appreciate your surroundings and be grateful for it and that’s when good things happen. ~~Conor McGregor
+ - I plot my ascent daily. ~~Conor McGregor
+ - At the end of the day you gotta feel some way. So why not feel unbeatable? Why not feel untouchable. ~~Conor McGregor
+ - Look out for those who look out for you. Loyalty is everything. ~~Conor McGregor
+ - I pursue this dream and carry on. I don’t dwell too much on the outside, I just focus on the inside. ~~Conor McGregor
+ - Movement for me is meditation. ~~Conor McGregor
+ - I don’t worry about my opponent or their game, I worry about my game. ~~Conor McGregor
+ - Don’t impersonate. Innovate. ~~Conor McGregor
+ - Pressure is an illusion, but I like that illusion of pressure. ~~Conor McGregor
+ - I’m just going to keep doing what I’m doing. Keep proving people wrong and proving myself right. ~~Conor McGregor
+ - I fear no man. If you breathe oxygen, I do not fear you. ~~Conor McGregor
+ - I don’t relax, I don’t celebrate. I sit and plot. ~~Conor McGregor
+ - Think street, train sport. ~~Conor McGregor
+ - It’s only pain, it will not hurt you. ~~Bas Rutten
+ - Every little thing you do leads up to a bigger thing. ~~Georges St-Pierre
+ - I have never encountered a winner that held hate towards something. ~~Conor McGregor
+ - I’m definitely on the pursuit of perfection. I will always be learning. ~~Conor McGregor
+ - I keep having vivid dreams of success. Then it’s time to sleep. ~~Conor McGregor
+ - I am comfortable in the uncomfortable. ~~Conor McGregor
+ - I stay ready so I don’t have to get ready. ~~Conor McGregor
+ - I work hard and fight easy. ~~Conor McGregor
+
+40 quotes

@@ -1,0 +1,502 @@
+ - Raise your words, not voice. It is rain that grows flowers, not thunder.
+ - Stop acting so small. You are the universe in ecstatic motion.
+ - Yesterday I was clever, so I wanted to change the world. Today I am wise, so I am changing myself.
+ - What you seek is seeking you.
+ - Forget safety. Live where you fear to live. Destroy your reputation. Be notorious.
+ - You were born with wings, why prefer to crawl through life?
+ - Everything in the universe is within you. Ask all from yourself.
+ - Set your life on fire. Seek those who fan your flames.
+ - Where there is ruin, there is hope for a treasure.
+ - Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it.
+ - Don’t be satisfied with stories, how things have gone with others. Unfold your own myth.
+ - Sell your cleverness and buy bewilderment.
+ - This is a subtle truth. Whatever you love, you are.
+ - There is a candle in your heart, ready to be kindled. There is a void in your soul, ready to be filled. You feel it, don't you?
+ - You’ve seen my descent, now watch my rising.
+ - Lovers don’t finally meet somewhere. They’re in each other all along.
+ - Don’t get lost in your pain, know that one day your pain will become your cure.
+ - Keep silent, because the world of silence is a vast fullness.
+ - When I am silent, I have thunder hidden inside.
+ - A thousand half-loves must be forsaken to take one whole heart home.
+ - Gratitude is the wine for the soul. Go on. Get drunk.
+ - When setting out on a journey do not seek advice from someone who never left home.
+ - I am not this hair. I am not this skin. I am the soul that lives within.
+ - The cure for pain is in the pain.
+ - I once had a thousand desires. But in my one desire to know you, all else melted away.
+ - Don’t be sad! Because God sends hope in the most desperate moments. Don’t forget, the heaviest rain comes out of the darkest clouds.
+ - I closed my mouth and spoke to you in a hundred silent ways.
+ - Look for the answer inside your question.
+ - Open your Eyes, for this World is only a Dream.
+ - The art of knowing is knowing what to ignore.
+ - To Love is to reach God.
+ - Tear off the mask. Your face is glorious.
+ - Speak a new language so that the world will be a new world.
+ - Move, but don’t move the way fear makes you move.
+ - I grow silent. Dear soul, you speak.
+ - In every religion there is love, yet love has no religion.
+ - Doing as others told me, I was Blind. Coming when others called me, I was Lost. Then I left everyone, myself as well. Then I found Everyone, Myself as well.
+ - Your light is more magnificent than sunrise or sunset.
+ - Whatever happens, just keep smiling and lose yourself in Love.
+ - In your light I learn how to love.
+ - The only lasting beauty is the beauty of the heart.
+ - All is known in the sacredness of silence.
+ - Your heart is the size of an ocean. Go find yourself in its hidden depths.
+ - What hurts you, blesses you. Darkness is your candle.
+ - Be a lamp, or a lifeboat, or a ladder. Help someone’s soul heal. Walk out of your house like a shepherd.
+ - As you start to walk on the way, the way appears.
+ - Not the ones speaking the same language, but the ones sharing the same feeling understand each other.
+ - Why are you so enchanted by this world, when a mine of gold lies within you?
+ - Out beyond ideas of wrongdoing and rightdoing there is a field. I’ll meet you there. When the soul lies down in that grass the world is too full to talk about.
+ - Be silent, Only the Hand of God Can remove The burdens of your heart.
+ - Wisdom is like the rain. Its source is limitless, but it comes down according to the season.
+ - The time has come to turn your heart into a temple of fire. Your essence is gold hidden in dust. To reveal its splendor you need to burn in the fire of love.
+ - Grief can be the garden of compassion. If you keep your heart open through everything, your pain can become your greatest ally in your life’s search for love and wisdom.
+ - At the end of my life, with just one breath left, if you come, I’ll sit up and sing.
+ - The angel is free because of his knowledge, the beast because of his ignorance. Between the two remains the son of man to struggle.
+ - If you love someone, you are always joined with them – in joy, in absence, in solitude, in strife.
+ - O Love, O pure deep Love, be here, be now, be all...
+ - Let go of your mind and then be mindful. Close your ears and listen!
+ - Words are a pretext. It is the inner bond that draws one person to another, not words.
+ - A heart filled with love is like a phoenix that no cage can imprison.
+ - The middle path is the way to wisdom.
+ - My place is placeless, a trace of the traceless.
+ - Your longing for ME is my message to you, All your attempts to reach ME, Are in reality MY attempts to reach you.
+ - The chess master says nothing, other than moving the silient chess piece.
+ - If Your Eyes Are Opened, You’ll See The Things Worth Seeing.
+ - Dance, when you’re broken open. Dance, if you’ve torn the bandage off. Dance in the middle of the fighting. Dance in your blood. Dance when you’re perfectly free.
+ - People of the world don’t look at themselves, and so they blame one another.
+ - Whatever purifies you is the right path, I will not try to define it.
+ - Once the seed of faith takes root, it cannot be blown away, even by the strongest wind – Now that’s a blessing.
+ - The minute I heard my first love story, I started looking for you.
+ - We are the mirror – As well as the face in it.
+ - My soul is my guide, for my soul is of that abode. I will not speak of the earthly. I am of the unknown.
+ - We are born of love. Love is our mother.
+ - There is no Love greater than Love with no object. For then you, yourself, have become love, itself.
+ - The minute I heard my first love story, I started looking for you, not knowing how blind that was. Lovers don’t finally meet somewhere. They’re in each other all along.
+ - There is a way between voice and presence, where information flows. In disciplined silence it opens; with wandering talk it closes.
+ - I died as a mineral and became a plant, I died as a plant and rose to animal, I died as an animal and I was Man. Why should I fear? When was I less by dying?
+ - Because I cannot sleep I make music in the night.
+ - Those doing soul work, who want the searing truth more than solace or applause, know each other right away. Those who want something else turn and take a seat in another room. Soul-makers find each other’s company.
+ - Nothing can nourish the SOUL but LIGHT.
+ - That’s how you came here, like a star without a name. Move across the night sky with those anonymous lights.
+ - Light up the fire of love inside and blaze the thoughts away.
+ - Inside the Great Mystery that is, we don’t really own anything. What is this competition we feel then, before we go, one at a time, through the same gate?
+ - I went inside my heart to see how it was. Something there makes me hear the whole world weeping.
+ - Give up to grace. The ocean takes care of each wave ’til it gets to shore. You need more help than you know.
+ - Purify your eyes, and see the pure world. Your life will fill with radiant forms.
+ - Heart be brave. If you cannot be brave, just go. Love’s glory is not a small thing.
+ - You have been a prisoner of a little pond I am the ocean and its turbulent flood Come merge with me leave this world of ignorance.
+ - Open your arms if you want the Beloved’s embrace.
+ - Whether you love God or you love a human being, if you love enough you will come into the presence of Love itself.
+ - You may learn to imitate a birdcall, but do you experience what the nightingale feels for the rose?
+ - Whatever pearl you seek, look for the pearl within the pearl!
+ - I Wish I Could Give You A Taste Of The Burning Fire Of Love. There Is A Fire Blazing Inside Of Me. If I Cry About It, Or If I Don’t, The Fire Is At Work, Night And Day.
+ - All loves are a bridge to Divine love. Yet, those who have not had a taste of it do not know!
+ - If you wish to be a mine of jewels, open the deep ocean within your heart.
+ - At night, I open the window and ask the moon to come and press its face against mine. Breathe into me. Close the language-door and open the love-window. The moon won’t use the door, only the window.
+ - There’s no one with intelligence in this town except that man over there playing with the children, the one riding the stick horse. He has keen, fiery insight and vast dignity like the night sky, but he conceals it in the madness of child’s play.
+ - I am so mad with love that mad men say to me – be still!
+ - Dance, and make joyous the love around you. Dance, and your veils which hide the Light shall swirl in a heap at your feet.
+ - Here is a relationship booster that is guaranteed to work: Every time your spouse or lover says something stupid make your eyes light up as if you just heard something brilliant.
+ - Silence gives answers.
+ - Fasting is the first principle of medicine; fast and see the strength of the spirit reveal itself.
+ - Goodbyes are only for those who love with their eyes. Because for those who love with heart and soul there is no such thing as separation.
+ - There is a voice that doesn’t use words. Listen.
+ - Life is balance of holding on and letting go.
+ - Burdens are the foundations of ease and bitter things the forerunners of pleasure.
+ - The wound is the place where the Light enters you.
+ - Come, come, whoever you are. Wanderer, worshiper, lover of leaving. It doesn’t matter. Ours is not a caravan of despair. come, even if you have broken your vows a thousand times. Come, yet again, come, come.
+ - You have to keep breaking your heart until it opens.
+ - Study me as much as you like, you will not know me, for I differ in a hundred ways from what you see me to be. Put yourself behind my eyes and see me as I see myself, for I have chosen to dwell in a place you cannot see.
+ - Always remember you are braver than you believe, stronger than you seem, smarter than you think and twice as beautiful as you’d ever imagined. Yesterday I was clever, so I wanted to change the world. Today I am wise, so I am changing myself.
+ - Try not to resist the changes that come your way. Instead let life live through you. And do not worry that your life is turning upside down. How do you know that the side you are used to is better than the one to come?
+ - Your heart knows the way. Run in that direction.
+ - Close your eyes, fall in Love, stay there.
+ - Silence is an ocean. Speech is a river. When the ocean is searching for you, don’t walk into the river. Listen to the ocean.
+ - There cannot be self-restraint in the absence of desire: when there is no adversary, what avails thy courage? Hark, do not castrate thyself, do not become a monk: chastity depends on the existence of lust.
+ - Wear gratitude like a cloak and it will feed every corner of your life.
+ - Love is the bridge between you and everything.
+ - I searched for God and found only myself. I searched for myself and found only God.
+ - The desire to know your own soul will end all other desires.
+ - And you? When will you begin that long journey into yourself?
+ - Listen with ears of tolerance! See through the eyes of compassion! Speak with the language of love.
+ - Let the beauty of what you love be what you do.
+ - Wherever you stand, be the soul of that place.
+ - You are not just the drop in the ocean. You are the mighty ocean in the drop.
+ - If you are irritated by every rub, how will your mirror be polished?
+ - I belong to no religion. My religion is love. Every heart is my temple.
+ - When you do things from your soul, you feel a river moving in you, a joy.
+ - The breezes at dawn have secrets to tell you Don’t go back to sleep! You must ask for what you really want. Don’t go back to sleep! People are going back and forth across the doorsill where the two worlds touch, The door is round and open Don’t go back to sleep!
+ - Respond to every call that excites your spirit.
+ - There is a field beyond all notions of right and wrong. Come, meet me there.
+ - In the silence of LOVE you will find the Spark of LIFE.
+ - Shine like the whole universe is yours.
+ - The breeze at dawn has secrets to tell you. Don’t go back to sleep.
+ - You were born with potential. You were born with goodness and trust. You were born with ideals and dreams. You were born with greatness. You were born with wings. You are not meant for crawling, so don’t. You have wings. Learn to use them and fly.
+ - Speak any language, Turkish, Greek, Persian, Arabic, but always speak with love.
+ - Let yourself be silently drawn by the stronger pull of what you really love. In the depths there is a spring with all the water your heart is thirsty for.
+ - I looked for God. I went to a temple and I didn’t find him there. Then I went to a church and I didn’t find him there. The I went to a mosque and I didn’t find him there. Then finally I looked in my heart and there he was.
+ - Travel brings power and love back into your life.
+ - This place is a dream. Only a sleeper considers it real. Then death comes like dawn, and you wake up laughing at what you thought was your grief.
+ - Try something different. Surrender.
+ - When I am silent, I fall into the place where everything is music.
+ - Sell your cleverness and buy bewilderment. Cleverness is mere opinion. Bewilderment brings intuitive knowledge.
+ - Bring the pure wine of love and freedom. But sir, a tornado is coming. More wine, we’ll teach this storm A thing or two about whirling.
+ - The truth was a mirror in the hands of God. It fell, and broke into pieces. Everybody took a piece of it, and they looked at it and thought they had the truth.
+ - I learned that every mortal will taste death. But only some will taste life.
+ - All your anxiety is because of your desire for harmony. Seek disharmony, then you will gain peace.
+ - Be empty of worrying. Think of who created thought! Why do you stay in prison When the door is so wide open?
+ - Live life as if its rigged in your favor.
+ - When we practice loving kindness and compassion we are the first ones to profit.
+ - Through love, all pain will turn to medicine.
+ - If you only say one prayer in a day make it Thank You.
+ - I have been a seeker and I still am, but I stopped asking the books and the stars. I started listening to the teaching of my Soul.
+ - Greed makes man blind and foolish, and makes him an easy prey for death.
+ - You are the soul of the soul of the universe, and your name is Love.
+ - If Light Is In Your Heart You Will Find Your Way Home.
+ - Everyone has been made for some particular work, and the desire for that work has been put in every heart.
+ - In your light I learn how to love. In your beauty, how to make poems. You dance inside my chest where no-one sees you, but sometimes I do, and that sight becomes this art.
+ - You have escaped the cage. Your wings are stretched out. Now fly.
+ - There is a King Who is aware of every Mask you put on.
+ - Your worst enemy is hiding within yourself, and that enemy is your nafs or false ego.
+ - When the world pushes you to your knees, you’re in the perfect position to pray.
+ - If all you can do is crawl, start crawling.
+ - Don’t sit and wait. Get out there, feel life. Touch the sun, and immerse in the sea.
+ - Only the soul knows what love is.
+ - My soul is from elsewhere, I’m sure of that, and I intend to end up there.
+ - The lamps are different, but the Light is the same. One matter, one energy, one Light, one Light-mind, endlessly emanating all things.
+ - Wherever you are, and whatever you do, be in love.
+ - Don’t grieve. Anything you lose comes round in another form.
+ - Our death is our wedding with eternity.
+ - This being human is a guest house. Every morning a new arrival. Welcome and entertain them all!
+ - You show your worth by what you seek.
+ - Let the beauty we love be what we do. There are hundreds of ways to kneel and kiss the ground.
+ - Knock, And He’ll open the door Vanish, And He’ll make you shine like the sun Fall, And He’ll raise you to the heavens Become nothing, And He’ll turn you into everything.
+ - With passion pray. With passion make love. With passion eat and drink and dance and play. Why look like a dead fish in this ocean of God?
+ - Be motivated like the falcon, hunt gloriously. Be magnificent as the leopard, fight to win. Spend less time with nightingales and peacocks. One is all talk, the other only color.
+ - I was dead, then alive. Weeping, then laughing. The power of love came into me, and I became fierce like a lion, then tender like the evening star.
+ - Don’t you know yet? It is your Light that lights the worlds.
+ - Giving thanks for abundance is sweeter than the abundance itself...
+ - What comes, will go. What is found, will be lost again. But what you are is beyond coming and going and beyond description.
+ - I looked in temples churches and mosques. But I found the Divine within my heart.
+ - I am the servant of the Qur’an as long as I have life. I am the dust on the path of Muhammad, the Chosen One.
+ - There is nothing outside of yourself, look within. Everything you want is there. You are That.
+ - Inside you there’s an artist you don’t know about.
+ - Seek the wisdom that will untie your knot. Seek the path that demands your whole being.
+ - The garden of the world has no limits, except in your mind.
+ - I know you’re tired but come, this is the way.
+ - I have lived on the lip of insanity, wanting to know reasons, knocking on a door. It opens. I’ve been knocking from the inside.
+ - Be melting snow. Wash yourself of yourself.
+ - There is hope after despair and many suns after darkness.
+ - There’s courage involved if you want to become Truth.
+ - Its good to leave each day behind, like flowing water, free of sadness. Yesterday is gone and its tale told. Today new seeds are growing.
+ - Never lose hope, my heart, miracles dwell in the invisible. If the whole world turns against you keep your eyes on the Friend.
+ - With life as short as a half-taken breath, don’t plant anything but love.
+ - There is a place where words are born of silence.
+ - I am yours. Don’t give myself back to me.
+ - The intelligent desire self-control; children want candy.
+ - Our greatest strength lies in the gentleness and tenderness of our heart.
+ - These pains you feel are messengers. Listen to them.
+ - Whenever we manage to love without expectations, calculations, negotiations, we are indeed in heaven.
+ - The Earth turns to Gold, in the hands of the wise.
+ - I want to sing like the birds sing, not worrying about who hears or what they think.
+ - There is one way of breathing that is shameful and constricted. Then, there’s another way: a breath of love that takes you all the way to infinity.
+ - In order to understand the dance one must be still. And in order to truly understand stillness one must dance.
+ - Your acts of kindness are iridescent wings of divine love, which linger and continue to uplift others long after your sharing.
+ - Your body is away from me, but there is a window open from my heart to yours.
+ - Gamble everything for love, if you are a true human being. If not, leave this gathering. Half-heartedness doesn’t reach into majesty.
+ - Appear as you are, Be as you appear.
+ - Why struggle to open a door between us when the whole wall is an illusion?
+ - Today, like every other day, we wake up empty and frightened. Don’t open the door to the study and begin reading. Take down the dulcimer. Let the beauty we love be what we do. There are hundreds of ways to kneel and kiss the ground.
+ - Stop learning. Start knowing.
+ - Both light and shadow are the dance of Love.
+ - Look past your thoughts, so you may drink the pure nectar of This Moment.
+ - Those who don’t want to change, let them sleep.
+ - Suffering is a gift; in its hidden mercy.
+ - Listen, O drop, give yourself up without regret, and in exchange gain the Ocean.
+ - Be patient where you sit in the dark. The dawn is coming.
+ - A strange passion is moving in my head My heart has become a bird which searches in the sky. Every part of me goes in different directions. Is it really so that the one I love is Everywhere?
+ - What strange beings we are! That sitting in hell at the bottom of the dark, we’re afraid of our own immortality.
+ - Remember, the entrance door to the sanctuary is inside you.
+ - I saw many humans on whom there were no clothes. I saw many clothes in which there were no humans.
+ - This is love: to fly toward a secret sky, to cause a hundred veils to fall each moment. First to let go of life. Finally, to take a step without feet.
+ - It is Love that holds everything together, and it is the everything also.
+ - We come spinning out of nothingness, scattering stars like dust.
+ - When you feel a peaceful joy, that’s when you are near truth.
+ - Work in the invisible world at least as hard as you do in the visible.
+ - Let silence take you to the core of life.
+ - Whatever you know, or don’t – only Love is real.
+ - We carry inside us the wonders we seek outside us.
+ - Be soulful. Be kind. Be in love.
+ - Every moment I shape my destiny with a chisel – I am the carpenter of my own soul.
+ - Only from the heart can you touch the sky.
+ - Everyone sees the unseen in proportion to the clarity of his heart, and that depends upon how much he has polished it. Whoever has polished it more sees more – more unseen forms become manifest to him.
+ - Is it really so that the one I love is everywhere?
+ - Birds make great sky-circles of their freedom. How do they learn it? They fall and falling, they’re given wings.
+ - Two there are who are never satisfied – the lover of the world and the lover of knowledge.
+ - Roar, lion of the heart, and tear me open!
+ - The very center of your heart is where life begins. The most beautiful place on earth.
+ - God turns you from one feeling to another and teaches by means of opposites so that you will have two wings to fly, not one.
+ - Love is the energizing elixir of the Universe, the cause and effect of all Harmony.
+ - For only when faithfulness turns to betrayal And betrayal into trust Can any human being become part of the truth.
+ - You are the root of heaven, the morning star, the bright moon, the house of endless Love.
+ - I want a trouble-maker for a lover, Blood spiller, blood drinker, a heart of flame, Who quarrels with the sky and fights with fate, Who burns like fire on the rushing sea.
+ - My dear heart, never think you are better than others. Listen to their sorrows with compassion. If you want peace, don’t harbor bad thoughts, do not gossip and don’t teach what you do not know.
+ - Very little grows on jagged rock. Be ground. Be crumbled, so wildflowers will come up where you are.
+ - I am so small I can hardly be seen. How can this great love be inside me? Look at your eyes. They are small, but they see enormous things.
+ - You have no need to travel anywhere – journey within yourself. Enter a mine of rubies and bathe in the splendor of your own light.
+ - Before death takes away what you are given, give away what there is to give.
+ - By God, when you see your beauty you will be the idol of yourself.
+ - Be drunk with Love, for Love is all that exists. Where is intimacy found if not in the give and take of Love.
+ - What a Joy, to travel the way of the heart.
+ - The soul has been given its own ears to hear things mind does not understand.
+ - Whenever you are alone, remind yourself that God has sent everyone else away so that there is only you and Him.
+ - You wander from room to room Hunting for the diamond necklace That is already around your neck!
+ - I come to YOU without ME, come to ME without YOU.
+ - Oh soul, you worry too much. You have seen your own strength. You have seen your own beauty. You have seen your golden wings. Of anything less, why do you worry? You are in truth the soul, of the soul, of the soul.
+ - Don’t turn away. Keep your gaze on the bandaged place. That’s where the light enters you.
+ - Everything that is made beautiful and fair and lovely is made for the eye of one who sees.
+ - Love is the whole thing. We are only pieces.
+ - Hardship may dishearten at first, but every hardship passes away. All despair is followed by hope; all darkness is followed by sunshine.
+ - You think you are alive because you breathe air? Shame on you, that you are alive in such a limited way. Don’t be without Love, so you won’t feel dead. Die in Love and stay alive forever.
+ - To love is human. To feel pain is human. Yet to still love despite the pain is pure angel.
+ - Fasting blinds the body in order to open the eyes of your soul.
+ - Keep walking, though there’s no place to get to. Don’t try to see through the distances. That’s not for human beings. Move within, But don’t move the way fear makes you move.
+ - To become spiritual, you must die to self, and come alive in the Lord. Only then will the mysteries of God fall from your lips. To die to self through self-discipline causes suffering but brings you everlasting life.
+ - When there’s no sign of hope in the desert, so much hope still lives inside despair. Heart, don’t kill that hope...
+ - I am so close, I may look distant. So completely mixed with you, I may look separate. So out in the open, I appear hidden. So silent, because I am constantly talking with you.
+ - If your knowledge of fire has been turned to certainty by words alone, then seek to be cooked by the fire itself. Don’t abide in borrowed certainty. There is no real certainty until you burn; if you wish for this, sit down in the fire.
+ - Longing is the core of mystery. Longing itself brings the cure. The only rule is, suffer the pain. Your desires must be disciplined And what you want to happen in time, sacrificed.
+ - Beyond the rightness or wrongness of things there is a field, I’ll meet you there.
+ - Woman is the light of God.
+ - All religions, all this singing, one song. The differences are just illusion and vanity. The sun’s light looks a little different on this wall than it does on that wall, and a lot different on this other one, but it’s still one light.
+ - All day I think about it, then at night I say it. Where did I come from, and what am I supposed to be doing? I have no idea. My soul is from elsewhere, I’m sure of that, and I intend to end up there.
+ - Whatever lifts the corners of your mouth, trust that.
+ - I lost everything i have, found myself.
+ - Lovely days don’t come to you, you should walk to them.
+ - Dance until you shatter yourself.
+ - They say there is a doorway from heart to heart, but what is the use of a door when there are no walls?
+ - Love is the water of life, jump into this water.
+ - A pure heart, open to the Light, will be filled with the elixir of Truth.
+ - Be grateful for whoever comes, because each has been sent as a guide from beyond.
+ - In their seeking, wisdom and madness are one and the same. On the path of love, friend and stranger are one and the same.
+ - The world is a mountain, in which your words are echoed back to you.
+ - Let the waters settle and you will see the moon and the stars mirrored in your own being.
+ - Heart is a sea, language is the shore. Whatever is in a sea hits the shore.
+ - I saw grief drinking a cup of sorrow and called out, ‘It tastes sweet, does it not?’ ‘You’ve caught me,’ grief answered, ’and you’ve ruined my business. How can I sell sorrow, when you know it’s a blessing?
+ - The whole universe is contained within a single human being – you.
+ - In the blackest of your moments, wait with no fear.
+ - The soul which cannot endure fire and smoke won’t find the Secret.
+ - But meditate now on steadfastness and clarity, and let those be the wings that lift and soar through the celestial spheres.
+ - If you are looking for a friend who is faultless, you will be friendless.
+ - Flow down and down in always widening rings of being.
+ - Put your thoughts to sleep, do not let them cast a shadow over the moon of your heart. Let go of thinking.
+ - Where the lips are silent the heart has a thousand tongues.
+ - To find the Beloved, you must become the Beloved.
+ - Happy is the moment we sit together, with two forms, with two faces, yet one soul. You and I.
+ - You are a volume in the divine book A mirror to the power that created the universe Whatever you want, ask it of yourself Whatever you’re looking for can only be found Inside of you.
+ - Love has come to rule and transform; Stay awake, my heart, stay awake.
+ - Close both eyes to see with the other eye.
+ - Practice patience; it is the essence of praise. Have patience, for that is true worship. No other worship is worth as much. Have patience; patience is the key to all relief.
+ - Remember God so much that you are forgotten. Let the caller and the called disappear; be lost in the Call.
+ - A Breath of love can take you all the way to infinity.
+ - Lamps are different, but light is the same.
+ - Whatever you lost through fate, be certain that it saved you from pain.
+ - You left ground and sky weeping, mind and soul full of grief. No one can take your place in existence or in absence.
+ - Believe in love’s infinite journey, for it is your own, for you are love. Love is life.
+ - Learn the alchemy true human beings know. The moment you accept what troubles you’ve been given the door with open.
+ - Remember. The way you make love is the way God will be with you.
+ - Don’t look for Love, look for the one looking for Love.
+ - Poetry can be dangerous, especially beautiful poetry, because it gives the illusion of having had the experience without actually going through it.
+ - The soul is here for its own joy.
+ - There is a loneliness more precious than life. There is a freedom more precious than the world. Infinitely more precious than life and the world is that moment when one is alone with God.
+ - Like a shadow, I am and I am not.
+ - Of all you see, only love is infinite.
+ - All my feelings have the color you desire to paint.
+ - You are not meant for crawling, so don’t. You have wings. Learn to use them and fly.
+ - Reason is powerless in the expression of Love. Love alone is capable of revealing the truth of Love and being a Lover. The way of our prophets is the way of Truth. If you want to live, die in Love; die in Love if you want to remain alive.
+ - Sit, be still, and listen, because you’re drunk and we’re at the edge of the roof.
+ - Why am I seeking? I am the same as he. His essence speaks through me. I have been looking for myself.
+ - I am a drunkard from another kind of tavern. I dance to a silent tune. I am the symphony of stars.
+ - And don’t think the garden loses its ecstasy in winter. It’s quiet, but the roots are down there riotous.
+ - If the house of the world is dark, Love will find a way to create windows.
+ - Be foolishly in love, because love is all there is.
+ - There is a morning inside you waiting to burst open into light.
+ - Now be silent. Let the One who creates the words speak. He made the door. He made the lock. He also made the key.
+ - If it is bread that you seek, you will have bread. If it is the soul you seek, you will find the soul. If you understand this secret, you know you are that which you seek.
+ - Those who don’t feel this love pulling them like a river, those who don’t drink dawn like a cup of springwater or take in sunset like a supper, those who don’t want to change, let them sleep.
+ - But listen to me. For one moment quit being sad. Hear blessings dropping their blossoms around you.
+ - Christian, Jew, Muslim, shaman, Zoroastrian, stone, ground, mountain, river, each has a secret way of being with the mystery, unique and not to be judged.
+ - My friend, the sufi is the friend of the present moment. To say tomorrow is not our way.
+ - Through Love all that is bitter will be sweet, Through Love all that is copper will be gold, Through Love all dregs will become wine, through Love all pain will turn to medicine.
+ - If only you knew what bliss I find in being nothing.
+ - I don’t want learning, or dignity, or respectability. I want this music, and this dawn, and the warmth of your cheek against mine.
+ - Be with those who help your being.
+ - Grace comes to forgive and then forgive again.
+ - Everyone is so afraid of death, but the real sufis just laugh: nothing tyrannizes their hearts. What strikes the oyster shell does not damage the pearl.
+ - We are pain and what cures pain, both. We are the sweet cold water and the jar that pours. I want to hold you close like a lute, so that we can cry out with loving. Would you rather throw stones at a mirror? I am your mirror and here are the stones.
+ - I smile like a flower not only with my lips but with my whole being.
+ - From the Distance You only See My Light; Come closer and You will Know that I Am You.
+ - Everything is emptiness. Everything else, accidental. Emptiness brings peace to your loving. Everything else, disease. In this world of trickery, emptiness is what your soul wants.
+ - I can heal a broken heart with a smile.
+ - As you live Deeper in the Heart, the Mirror gets clearer and cleaner.
+ - Today I am wise, so I am changing myself.
+ - What matters is how quickly you do what your soul directs.
+ - Be like a tree and let the dead leaves drop.
+ - Peaceful is the one who’s not concerned with having more or less. Unbound by name and fame, he is free from sorrow from the world and mostly from himself.
+ - Since in order to speak, one must first listen, learn to speak by listening.
+ - A warm, rainy day-this is how it feels when friends get together. Friend refreshes friend then, as flowers do each others, in a spring rain.
+ - My longing for you keeps me in this moment My passion gives me courage.
+ - Everyone sleeps, except lovers, who stay awake, telling stories to God.
+ - There are a thousand ways to kneel and kiss the ground; there are a thousand ways to go home again.
+ - Love said to me, there is nothing that is not me. Be silent.
+ - Look carefully around you and recognize the luminosity of souls. Sit beside those who draw you to that.
+ - I lost my hat while gazing at the moon, and then I lost my mind.
+ - Inside of us, there’s a continual autumn. Our leaves fall and are blown out over the water.
+ - I can sense your presence in my Heart although you belong to all the world.
+ - Reason is powerless in the expression of Love.
+ - Empathy is even better than talking in one language.
+ - In the sea of love, I melt like salt Faith, Doubt – they both dissolve. A star is opening in my heart. The worlds turn in it.
+ - Love calls – everywhere and always. We’re sky bound. Are you coming?
+ - Listen my love, illumination is eternal. Now is always evolving. As there are billions of stars, there are billions of steps. As there are billions of souls, there are billions of ways to grow.
+ - The garden of the world has no limits except in your mind. Its presence is more beautiful than the stars with more clarity than the polished mirror of your heart.
+ - One of the marvels of the world: The sight of a soul sitting in prison with the key in its hand.
+ - Lovers find secret places inside this violent world where they make transactions with beauty.
+ - Not only the thirsty seek the water, the water as well seeks the thirsty.
+ - Make peace with the universe. Take joy in it. It will turn to gold. Resurrection will be now. Every moment, a new beauty.
+ - Your breath touched my soul and I saw beyond all limits.
+ - Everything about yesterday has gone with yesterday. Today, it is needed to say new things.
+ - Behind every atom of this world hides an infinite Universe.
+ - I am pure light, not just a fistful of clay. The shell is not me, I came as the royal pearl within. Look at me not with outward eye but with inward vision of the heart; Follow me there and see how unencumbered we become.
+ - Stay in the spiritual fire. Let it cook you.
+ - I have come to drag you out of yourself and take you into my heart. I have come to bring out the beauty you never knew you had, and lift you like a prayer to the sky.
+ - Seek passion, seek passion, seek passion!
+ - Nothing is meaningful except surrendering to love. Do it.
+ - Be watchful – the grace of God appears suddenly. It comes without warning to an open heart.
+ - Your body is woven from the light of heaven. Are you aware that its purity and swiftness is the envy of angels and its courage keeps even devils away.
+ - The heart is cooking a pot of food for you. Be patient until it is cooked.
+ - A woman is a mystery to guide a wise and open man.
+ - Maybe you are searching among the branches, for what only appears in the roots.
+ - Come sit with me! Let us drink the holy wine of happiness.
+ - Love is the soul’s light, the taste of morning, no me, no we, no claim of being.
+ - If you become a helper of hearts, springs of wisdom will flow from your heart.
+ - To change, you must face the dragon of your appetites with another dragon: the life-energy of the soul.
+ - Do you hear what the music is saying? ‘Come follow me and you will find the way. Your mistakes can also lead you to the truth. When you ask, the answer will be given.’
+ - Sing to me in the silence of your heart and I will rise up to hear your triumphant song.
+ - Would you become a pilgrim on the road of love? The first condition is that you make yourself humble as dust and ashes.
+ - The lovers of God never run out of patience, for they know that time is needed for the crescent moon to become full.
+ - If you see Two in One – I only see One in Two.
+ - Submit to a daily practice. Your loyalty to that is a ring at the door. Keep knocking, and the joy inside will eventually open a window and look out to see who’s there.
+ - Lovers are patient and know that the moon needs time to become full.
+ - There are lovers content with longing. I’m not one of them.
+ - Love is an open secret, the most obvious thing in the world and the most hidden, with no why to how it keeps its mystery.
+ - To a frog that’s never left his pond, the ocean seems like a gamble. Look what he’s giving up: security, mastery of his world, recognition! The ocean frog just shakes his head. “I can’t explain where I live, but someday I’ll take you there.”
+ - Let the lover be disgraceful, crazy, absentminded. Someone sober will worry about things going badly. Let the lover be.
+ - All Religions. All This Singing. One Song. Peace Be With You.
+ - You have Within you more love than you could ever understand.
+ - You sit here for days saying, this is a strange business. You’re the strange business. You have the energy of the sun in you, but you keep knotting it up at the base of your spine.
+ - When you lose all sense of self the bonds of a thousands chains will vanish. Lose yourself completely, return to the root of the root of your own soul.
+ - The spiritual path wrecks the body And afterwards restores it to health. It destroys the house to unearth the treasure, And with that treasure builds it better than before.
+ - Remember God so much that you are forgotten.
+ - I am not from east or west not up from the ground or out of the ocean my place is placeless a trace of the traceless I belong to the beloved.
+ - Though we seem to be sleeping, there is an inner wakefulness that directs the dream, and will eventually startle us back to the truth of who we are.
+ - Keep digging your well. Water is there somewhere.
+ - You left and I cried tears of blood. My sorrow grows. Its not just that You left. But when You left my eyes went with You. Now, how will I cry?
+ - If you look too closely at the form, you miss the Essence.
+ - I am burning. If anyone lacks tinder, let him set his rubbish ablaze with my fire.
+ - When you are everywhere, you are nowhere. When you are somewhere, you are everywhere.
+ - People want you to be happy. Don’t keep serving them your pain! If you could untie your wings and free your soul of jealousy, you and everyone around you would fly up like doves.
+ - Woman is a ray of God. She is not that earthly beloved: she is creative, not created.
+ - Kill the cow of your ego as quickly as you can, so that your inner spirit can come to life and attain true awareness.
+ - Your depression is connected to your insolence and refusal to praise.
+ - Whoever brought me here will have to take me home.
+ - Friendship of the wise is good; a wise enemy is better than a foolish friend.
+ - The moon stays bright when it doesn’t avoid the night.
+ - I long to escape the prison of my ego and lose myself in You.
+ - Once we were particles of Light, now we are Beings of Light, radiating Love.
+ - Beyond ideas, there’s a field. Will you meet me there?
+ - This is how I would die into the love I have for you: As pieces of cloud dissolve in sunlight.
+ - I am in Love with Love and Love is in love with me.
+ - Be certain that in the religion of Love there are no believers and unbelievers. LOVE embraces all.
+ - I am merely a guest, born in this world to know the secrets that lie beyond it.
+ - With every breath, I plant the seeds of devotion, I am a farmer of the heart.
+ - I’ve brought you a mirror. Look at yourself and remember me.
+ - Let yourself become living poetry.
+ - On a day when the wind is perfect, the sail just needs to open and the world is full of beauty. Today is such a day.
+ - In things spiritual, there is no partition, no number, no individuals. How sweet is the oneness-unearth the treasure of Unity.
+ - Truth lifts the heart, like water refreshes thirst.
+ - Love is the cure, for your pain will keep giving birth to more pain until your eyes constantly exhale love as effortlessly as your body yields its scent.
+ - What a relief to be empty! Then God can live your life.
+ - Come into my eyes, and look at me through them, for I have chosen a home far beyond what eyes can see.
+ - The one who has a good friend doesn’t need any mirror.
+ - Every moment is made glorious by the light of love.
+ - A Candle never Loses any of its Light while Lighting up another candle.
+ - Set your sights on a place higher than your eyes can see.
+ - When the light returns to its source, it takes nothing of what it has illuminated.
+ - Seek the sound that never ceases. Seek the sun that never sets.
+ - Carry the burden smilingly and cheerfully, because patience is the key to victory.
+ - Fling me across the fabric of time and the seas of space. Make me nothing and from nothing-everything.
+ - When I am with you, we stay up all night. When you’re not here, I can’t go to sleep. Praise God for those two insomnias! And the difference between them.
+ - Ignore those that make you fearful and sad, that degrade you back towards disease and death.
+ - My souls sits in silence, and then asks again, where are you in all of this?
+ - Listen to the sound of waves within you.
+ - I came to this earth so that I could find my way back to my Beloved.
+ - To me nothing in the world is as precious as a genuine smile, especially from a child.
+ - Love rests on no foundation. It is an endless ocean, with no beginning or end.
+ - Say Bismillah, In the name of God, as the shaykh does with a knife when he offers an animal. Bismillah your old self to find your real name. – Jalaluddin al.
+ - Today, let us swim wildly, joyously in gratitude.
+ - Don’t wait any longer. Dive in the ocean, Leave and let the sea be you.
+ - The rewards of life and devotion to God are love and inner rapture, and the capacity to receive the light of God.
+ - Once you conquer your selfish self, all your darkness will change to light.
+ - If you want money more than anything, you’ll be bought and sold your whole life.
+ - Whoever travels without a guide, needs two hundred years for a two-day journey.
+ - A seeker of Truth looks beyond the apparent and contemplates the hidden.
+ - On the path of Love we are neither masters nor the owners of our lives. We are only a brush in the hand of the Master Painter.
+ - The lovers of God have no religion but God alone.
+ - The wealth within you, your essence, is your kingdom.
+ - Take sips of this pure wine being poured. Don’t mind that you’ve been given a dirty cup.
+ - How should Spring bring forth a garden on hard stone? Become earth, that you may grow flowers of many colors. For you have been heart-breaking rock. Once, for the sake of experiment, be earth!
+ - Love, the supreme musician, is always playing in our souls.
+ - The time has come to turn your heart into a temple of fire.
+ - Mount the stallion of love and do not fear the path, love’s stallion knows the way exactly. With one leap, Love’s horse will carry you home.
+ - Humble living does not diminish. It fills. Going back to a simpler self gives wisdom.
+ - Discard yourself and thereby regain yourself. Spread the trap of humility and ensnare love.
+ - O Love, O pure deep Love, be here, be now, Be all – worlds dissolve into your stainless endless radiance, Frail living leaves burn with your brighter than cold stares – Make me your servant, your breath, your core.
+ - Embark on the journey of LOVE. It takes you from yourself to yourself.
+ - Take someone who doesn’t keep score, who’s not looking to be richer, or afraid of losing, who has not the slightest interest even in his own personality: he’s free.
+ - If words come out of the heart, they will enter the heart.
+ - Angels dance only with You, Beloved and only before You do I bow in adoration. You may accept me or not but I will be at your feet forever.
+ - In real existence there is only unity.
+ - The result of my life is no more than three words: I was raw, I became cooked, I was burnt.
+ - Actually, your soul and mine are the same. We appear and disappear with each other.
+ - Lo, I am with you always means when you look for God, God is in the look of your eyes, in the thought of looking, nearer to you than your self, or things that have happened to you. There’s no need to go outside.
+ - A pearl goes up for auction. No one has enough, so the pearl buys itself.
+ - Water in the boat is the ruin of the boat, but water under the boat is its support.
+ - From understanding comes LOVE.
+ - A mountain keeps an echo deep inside. That’s how I hold your voice.
+ - In the silence between your heartbeat bides a summons. Do you hear it? Name it if you must, or leave it forever nameless, but why pretend it is not there?
+ - Be a lamp, or a lifeboat, or a ladder.
+ - Brother, stand the pain. Escape the poison of your impulses. The sky will bow to your beauty, if you do. Learn to light the candle. Rise with the sun. Turn away from the cave of your sleeping. That way a thorn expands to a rose.
+ - Let yourself be drawn by the stronger pull of that which you truly love.
+ - Oh, bird of my soul, fly away now, For I possess a hundred fortified towers.
+ - This world is in deep trouble, from top to bottom. But it can be swiftly healed by the balm of love.
+ - Sunlight fell upon the wall; the wall received a borrowed splendor. Why set your heart on a piece of earth, O simple one? Seek out the source which shines forever.
+ - Do you think I know what I’m doing? That for one breath or half-breath I belong to myself? As much as a pen knows what it’s writing, or the ball can guess where it’s going next.
+ - Travelers, it is late. Life’s sun is going to set. During these brief days that you have strength, be quick and spare no effort of your wings.
+ - How could you reach the pearl by only looking at the sea? If you seek the pearl, be a diver: the diver needs several qualities: he must trust his rope and his life to the Friend’s hand, he must stop breathing, and he must jump.
+ - The pure heart is a spotless mirror in which images of infinite beauty are reflected.
+ - Your grief for what you’ve lost lifts a mirror up to where you’re bravely working.
+ - Your thoughts are a veil on the face of the Moon. That Moon is your heart, and those thoughts cover your heart. So let them go, just let them fall into the water.
+ - Be with those who help your being. Don’t sit with indifferent people, whose breath comes cold out of their mouths.
+ - Observe the wonders as they occur around you. Don’t claim them. Feel the artistry moving through and be silent. Don’t grieve. Anything you lose comes round in another form.
+ - There is a sun within every person.
+ - Patience is the key to joy.
+ - In the slaughterhouse of love, they kill only the best, none of the weak or deformed. Don’t run away from this dying. Whoever’s not killed for love is dead meat.
+ - What? Are you still pretending you are separate from the Beloved?
+ - The cure for pain is in the pain. Good and bad are mixed. If you don’t have both, you don’t belong with us.
+ - If your guidance is your ego, don’t rely on luck for help. you sleep during the day and the nights are short. By the time you wake up your life may be over.
+ - The fault is in the one who blames. Spirit sees nothing to criticize.
+ - Within tears, find hidden laughter Seek treasures amid ruins, sincere one.
+ - Learn to speak by listening.
+
+500 quotes

@@ -1,0 +1,23 @@
+ - Separation is not the end of love; it creates love.
+ - Sexuality is the great field of battle between biology and society.
+ - The debt of gratitude we owe our mother and father goes forward, not backward. What we owe our parents is the bill presented to us by our children.
+ - If you believe in the maternal instinct and fail at mother love, you fail as a woman. It is a controlling idea that holds us in an iron grip.
+ - When I stopped seeing my mother with the eyes of a child, I saw the woman who helped me give birth to myself.
+ - To say something nice about themselves, this is the hardest thing in the world for people to do.
+ - If women really want equality, we have to wipe the slate clean. It no longer matters in the largest sense what men did to us for the last 200 or 300 years.
+ - Fantasy isn’t something you run out of.
+ - In a baby’s first months, the earliest patterns of intimacy or distrust are forever grooved into his soul.
+ - Blaming mother is just a negative way of clinging to her still.
+ - I like the company of men. I’ve never been welcome in those groups, but then I would no more go to a consciousness-raising group and talk about my intimate life with my husband than fly to the moon. I never understood all that.
+ - I’m sure it’s why I’m such an odd duck in my feminist generation, because I’ve always been equally fair to men.
+ - Because society would rather we always wore a pretty face, women have been trained to cut off anger.
+ - I think biologically we are attracted to more than one person, but given society and our needs, monogamy works better.
+ - All my writing has been an effort to sort out the paradoxes of my life.
+ - Spontaneous love admits errors, hesitations and human failings. It can be tested and repaired.
+ - Inside every adult male is a denied little boy.
+ - Dreams are the expression of the unconscious while we are asleep.
+ - When is enough enough? In envy’s eyes, enough never is. Somebody else always has something we want.
+ - Our culture raises us to seek success but we are not taught how to live with it.
+ - No man can be really free in bed with a woman who is not.
+
+21 quotes

@@ -1,0 +1,79 @@
+ - I’m not fake in any way.
+ - Happy Memorial Day! Thank you to all our service men and women past and present. You are not forgotten!
+ - You never have to guess where you stand with me.
+ - You know, my mother’s beautiful, my dad was a really handsome man, and there was a lot of talk about looks when I was growing up.
+ - One trick I swear by: I pour a little neroli or lavender oil onto a hot towel and use it to wipe off my makeup. It opens up my pores, and then my face cream sinks in better.
+ - What I wish for myself is that I could be the kind of person who just goes, ‘This is what I need,’ and doesn’t feel bad about it.
+ - Some things never change and the intriguing things you fall in love with will become the things you don’t like.
+ - I don’t have time for superficial friends. I suppose if you’re really lonely you can call a superficial friend, but otherwise, what’s the point?
+ - I’m the first girl to say the word ‘period’ on television.
+ - Everyone has problems. When you think you want to end your life, maybe you could be there for someone else and can learn something.
+ - Honesty is the key to a relationship. If you can fake that, you’re in.
+ - I’m a gemini, and I get so bored so easily. I mean, I have moved six times in the last eight years.
+ - I’m a big laser believer – I really think they are the wave of the future.
+ - I’m at peace with myself and where I am. In the past, I was always looking to see how everybody else was doing. I wasn’t competitive, I was comparative. I just wanted to be where everybody else was. Now I’ve gotten to an age when I am not comparing anymore.
+ - I don’t want to feel I’m responsible for anorexia across the country.
+ - I guess Pumas are in their 30s. Cougars in their 40s Jaguars are 50s, and Sabretooths go into the 60s, right?
+ - I’m not comfortable leaving my house. If someone invites me over, I would go but it’s not like I’m one to say, ‘Hey, let’s hang out at your house tonight.’
+ - I don’t use a lint brush or anything, and I don’t iron, but I could easily pick lint off of someone else.
+ - Cousins are people that are ready made friends, you have laughs with them and remember good times from a young age, you have fights with them but you always know you love each other, they are a better thing than brothers and sisters and friends cause there all pieced together as one.
+ - If I like myself at this weight, then this is what I’m going to be. I don’t have an eating disorder.
+ - When David Arquette and I got engaged we started therapy together. I’d heard that the first year of marriage is the hardest, so we decided to work through all that stuff early.
+ - I think every relationship has a point where you stop and reevaluate. Are you happy? Have you grown together or apart? What do you share interests in? I think that’s a normal thing to do, but it’s so much harder when it’s done publicly.
+ - Aging gracefully is one thing, but trying to slow it down is another.
+ - What makes things exciting in life is to overcome your challenges and get creative and think outside of the box.
+ - I love that you can be laughing one minute and crying the next, and then be shocked the next. I like things that provoke emotions to such extremes.
+ - I don’t think I’m too thin at all. I understand when people say, ‘Well your face gets gaunt,’ but to get your bottom half to be the right size, your face might have to be a little gaunt. You choose your battles.
+ - I want to change a lot.
+ - I’ve got some great guy friends. They can start out as crushes. But when you realize something isn’t going to happen, you make a choice whether or not the friendship is worth it. And it usually is. Then you can laugh about the fact that you used to have a crush on him or he had one on you.
+ - Always a godmother, never a mother. That sucks. I’ve got to get me one of those little accessories.
+ - I get pregnant pretty easily, but I have a hard time keeping them.
+ - I would probably say I identified more with drama. I’m a really emotional, sensitive person. I’m family-minded and I’m the youngest of four kids. I have nine stepbrothers and sisters. And I love drama. I really do.
+ - The questions I’m asking myself are, ‘What makes me happy? Where do I want to be? What will make me happy at 50, 60 and 70?’
+ - I feel weird if I can’t move my face, and that one time I overdid it, I felt trapped in my own skin.
+ - I don’t like venison or sushi – I don’t want to eat what some people think are ‘luxurious’ foods.
+ - It’s so easy to grow apart; marriage takes work.
+ - I’m a very open person. I know I open my mouth way too much, but I just do that.
+ - I’m not a passive person by any stretch of the imagination.
+ - I just am a snob when it comes to humor.
+ - Well, actually, plucking my eyebrows is more of a hobby than a grooming tip.
+ - I think I look very healthy. You’ve already seen what I’ve eaten, so I couldn’t be anorexic, and I wouldn’t throw up if you paid me $1,000, so I’m not bulimic. Okay, for $1,000 I would stick my finger down my throat, but throwing up is the worst thing in the world.
+ - I’m kind of all over the place, and I need grounding.
+ - I don’t find the whole ‘cougar’ word that offensive.
+ - I only have to do three things to look halfway decent. Curl my eyelashes, fill in my eyebrows and put some lipstick on.
+ - So many people have so much trouble having kids.
+ - When I was a kid I didn’t feel like I fit in because – this is really silly and I probably shouldn’t say it, but, I didn’t think anything was funny. So I used to go home and literally cry to my mom and my step-dad at the time and I didn’t think anything was funny. I couldn’t laugh.
+ - Some people were offended by a show about cougars.
+ - I’m not going to deny it. I’m a neat person, there’s no question. But I don’t become obsessed with it.
+ - There’s no doubt that motherhood is the best thing in my life. It’s all that really matters.
+ - I would not be good with someone who did drugs. As long as I know something, I can deal with anything. I’m really good. But what I’m not good with is inconsistency. And I’m not good with not knowing.
+ - A lot of my humor does come from anger. It’s like, you’re not gonna pull one over on me – which is pretty much my motto anyways.
+ - It seems like everything is so polarized. You get the caricatures of people, the caricatures of their beliefs. “I hate this kind of person” or “I love this kind of person.” But actually, there’s a lot of great things about them. There are things to like. There’s possibility of change.
+ - Coco is the greatest part of my life. I love everything about being a mom, but our talks and walks on the beach are my favorite moments.
+ - I’d like another child, and maybe if it doesn’t work out, I’ll adopt.
+ - It’s nice to be able to let the fans know that you’re around and say ‘Hi.’
+ - Is marriage for ever? I think you get married with the intention that it will be, but who knows?
+ - I understand how to read people, and nurture them and guide them, and let them be free to do what they want to do.
+ - Botox? I think it’s fantastic and also horrible.
+ - I have a lot of glass in my house, and I remember saying as a joke once that I clean my stuff with Windex while my friends are over, but then I found myself actually doing that the other day. It’s horrible.
+ - At one point my dad called me and said, ‘You have always been a great salesman. I think it’s time you come home and sell swimming pools.’
+ - You know that you’re going to invest so much of your time on a movie when you direct it that it’s something that just really has to jump out at you and pull at your heart, and nothing has.
+ - I’m not a long movie person. I have a very short attention span. If you give me a 90-minute movie, that’s perfect. When it gets to be two hours, that’s a little bit too long for me.
+ - As you get older, you find that everything looks better more natural!
+ - It’s funny, because I never think of myself as Little Miss All-Together.
+ - I’m a real people person and I’m very sensitive, and I’ve just noticed how other actors that I’ve worked with, as an actor, take direction from people.
+ - I’d feel better about myself if I did stomach crunches, but I don’t.
+ - I have a terrible attention span, so if something can keep my attention, I know that that’s at least a great start.
+ - Things that are really offensive make me laugh because I like things that push the envelope, go out on a limb, and are bold.
+ - Oh, I do get lonely, yes.
+ - A lot of times people say, ‘As soon as you relax you’ll have a kid.’
+ - I think it’s hard, the fact that there’s a certain age that we can’t have kids anymore.
+ - It’s not like I let people do things for me, so I guess you can call me a control freak, or you can call me passionate.
+ - I love working with actors, and it’s great that I’m an actor myself. I know how I like to be directed and how I like to be talked to.
+ - I would like to do a movie where the moments could be extended and you could have the freedom of that, but I’m not precious, if it moves the story and doesn’t take away from it.
+ - I don’t like to go out in general.
+ - I like TV. It all depends what it is.
+ - I’m much more of a realist. I’m really practical. I’m the kind of person that calls my business manager and says, OK, if it were all to end today, how many months do I have to live?
+ - I would like to do a part that would stretch me. In America it seems to me that you just take your clothes off and that helps, but I wouldn’t want to do that.
+
+77 quotes

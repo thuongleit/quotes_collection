@@ -1,0 +1,40 @@
+ - The function of music is to release us from the tyranny of conscious thought.
+ - Madam, you have between your legs an instrument capable of giving pleasure to thousands and all you can do is scratch it.
+ - I find brass bands have a melancholy sound. All right out of doors, of course – fifty miles away. Like bagpipes, they turn what had been a dream into a public nuisance.
+ - There are no woman composers, never have been and possibly never will be.
+ - I prefer Offenbach to Bach often.
+ - Elgar’s first symphony is the musical equivalent of St Pancras Railway Station.
+ - Magical music never leaves the memory.
+ - The sound of a harpsichord – two skeletons copulating on a tin roof in a thunderstorm.
+ - Too much counterpoint; what is worse, Protestant counterpoint.
+ - They are quite hopeless – drooling, driveling, doleful, depressing, dropsical drips.
+ - The sound of the harpsichord resembles that of a bird-cage played with toasting-forks.
+ - The bagpipes sound exactly the same when you have finished as when you started.
+ - All the arts in America are a gigantic racket run by unscrupulous men for unhealthy women.
+ - A musicologist is a man who can read music but cannot hear it.
+ - A soprano in Massenet’s Don Quixote complained that she had missed her entry in the aria, “because Mr. Challiapin always dies too soon.” “Madam, you must be profoundly in error,” said Sir Thomas, “No operatic star has yet died half soon enough for me.”
+ - Beethoven’s last quartets were written by a deaf man and should only be listened to by a deaf man.
+ - In the first movement alone, I took note of six pregnancies and at least four miscarriages.
+ - Composers should write tunes that chauffeurs and errand boys can whistle.
+ - We cannot expect you to be with us all the time, but perhaps you could be good enough to keep in touch now and again.
+ - It is quite untrue that British people don’t appreciate music. They may not understand it but they absolutely love the noise it makes.
+ - No woman is worth the loss of a night’s sleep.
+ - If an opera cannot be played by an organ grinder, it’s not going to achieve immortality.
+ - What can you do with it? It’s like a lot of yaks jumping about.
+ - I have just been all round the world and have formed a very poor opinion of it.
+ - No operatic star has yet died soon enough for me.
+ - If she is attractive, I can’t perform with her; if she is not, then I won’t.
+ - If I were a dictator I should make it compulsory for every member of the population between the ages of four and eighty to listen to Mozart for at least a quarter of an hour daily for the coming five years.
+ - Without question the most unpopular medium of musical sound in the world.
+ - At a rehearsal I let the orchestra play as they like. At the concert I make them play as I like.
+ - The trouble with women in an orchestra is that if they’re attractive it will upset my players and if they’re not it will upset me.
+ - Her singing reminds me of a cart coming downhill with the brake on.
+ - As you’ll never hear the thing again, my boy, why not throw in a couple of brass bands?
+ - Movie music is noise. It’s even more painful than my sciatica.
+ - The British like any kind of music so long as it is loud.
+ - The grand tune is the only thing in music that the great public really understands.
+ - When asked whether he minded if someone smoked in a non-smoking compartment. Certainly not if you don’t object if I’m sick.
+ - Music first and last should sound well, should allure and enchant the ear. Never mind the inner significance.
+ - Composers and musicians have always starved and, as this is a sentimental country, we think the tradition should be continued.
+
+38 quotes

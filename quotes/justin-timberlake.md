@@ -1,0 +1,96 @@
+ - Cry me a river, build a bridge, and get over it.
+ - The best part about being alone is that you really don’t have to answer to anybody. You do what you want.
+ - You’re not meant to do what’s easy, you’re meant to challenge yourself.
+ - The gray area, the place between black and white – that’s the place where life happens.
+ - It’s not a bad Thing to fall in Love...
+ - Your critics do not count. Their words will fade. You won’t.
+ - The most boring thing in the world? Silence.
+ - I’m a perfectionist. I can’t help it, I get really upset with myself if I fail in the least.
+ - Every time you do a project, you learn something new.
+ - The teachers that we actually learn more from are the ones that taught us life lessons more than trigonometry. And they have such a huge responsibility and they’re under-appreciated and underpaid. So that’s my opinion of teachers.
+ - You cannot make a difference unless you’re different.
+ - True leadership is when you are willing to risk your power and voice so that all of ours can be heard.
+ - The worst thing about being famous is the invasion of your privacy.
+ - I’m a very melody-driven writer and I have a rule that I don’t write anything down because if I can’t remember the melody than it wasn’t worth remembering. So it’s my way to test myself in the studio. When I was a kid I could sing pretty well so melody always made a lot of sense to me.
+ - As time goes by people will see who I am for who I am.
+ - True love, to me, is when she’s the first thought that goes through your head when you wake up, and the last thought that goes through your head before you go to sleep.
+ - I think the first half of my 20s I felt I had to achieve, achieve, achieve. A lot of men do this. I’m looking around now and I’m like, Where am I running?
+ - My step-dad is probably the greatest man I’ve ever known. The best advice I’ve ever been given was when he told me to enjoy my life because one day I’m not going to be as agile as I am now.
+ - Kate Moss. She looks good in anything. She would look good in one of your t-shirts, in her t-shirt, in a man’s suit, in a huge gown. She looks amazing naked. She even makes nude look stylish. That, to me, is a style icon. She could put a barrel on and it would be some sort of statement.
+ - I will always come with something that’s aesthetically pleasing.
+ - I’ll get you naked by the end of this song.
+ - If you’re a young person, like I used to be and you’re at home and you’re being called weird or different, I’m here to tell you your critics do not count. Their words will fade. You won’t.
+ - A gentleman can never have too many bow ties.
+ - In creating music you are the writer, the director, the producer, you create it from scratch. Obviously in playing a role in a film, you take guidance and put your trust into the director. You come into it and you really trust people.
+ - It’s nice to marry your best friend. It suits me.
+ - My teenage years were exactly what they were supposed to be. Everybody has their own path. It’s laid out for you. It’s just up to you to walk it.
+ - The many sounds of Memphis shaped my early musical career and continue to be an inspiration to this day.
+ - I pick my nose and I’m not ashamed to admit it. If there’s a bogey then just pick it, man.
+ - We gotta figure out a way to pay our teachers more. They’re like surrogate parents away from home. They have such a huge responsibility and they’re underappreciated and underpaid.
+ - When I’m in the studio, there are no boundaries.
+ - Sexy, to me, is the way you carry what you have. I have a big nose, but I rock it.
+ - Senorita was fun to sing, but I don’t really have a favorite. When you write a bunch of songs, they’re like your babies. You don’t pick favorites.
+ - I believe in things I can count on, like beer and ESPN and my grandmother’s pecan pie.
+ - We should all believe in something, and I believe it’s time for another shot of tequila.
+ - My idol when I was growing up was Michael Jordan the basketball player because of his work ethic rather than his talent and because of what he went through to be as good as he was.
+ - I used to think I actually was Batman.
+ - We have a couple of rules in our relationship. The first rule is that I make her feel like she’s getting everything. The second rule is that I actually do let her have her way in everything. And, so far, it’s working.
+ - I enjoy creating. And if you can do it in a cool way, do it. You can’t worry about disappointing people or what their expectations might be.
+ - I’m very thankful to be doing what I’m doing. I feel very blessed.
+ - I get way more nervous playing golf in front of 500 people than being on stage in front of 20,000 people.
+ - I’m not a comedian so I’ll probably get crucified for saying this, but I think with a lot of comedy the impetus behind it is: I’ve been rejected so many times and I’m bitter and now I’m going to talk about it.
+ - My hair is so unmanageable.
+ - I sang in church growing up. Memphis is the blues capital of the world, we like to say.
+ - I believe mustard to be one of the most amazing condiments.
+ - If you can answer the question of why you’re doing it, it’s the right thing to do.
+ - I’m a mutt as far as music is concerned, because I listen to everything.
+ - My favorite thing in the world was to make people sing – until I made people laugh. Then that became my favorite thing in the world.
+ - I have 20,000 girlfriends, all around the world.
+ - I think music will always be a big part of my life. I can’t go five minutes without singing, sometimes unconsciously. And people stare at me, and I’m wondering why they’re staring, and then I’m realizing that I’m belting out a tune.
+ - If you put out 150 percent, then you can always expect 100 percent back. That’s what I was always told as a kid, and It’s worked for me so far!
+ - Every relationship I’ve been in, I’ve overwhelmed the girl. They just can’t handle all the love.
+ - You can say things a million times, but if you can’t sing it, then it really isn’t much of a song.
+ - I believe people can move things with their minds.
+ - I can give you my personal opinion: love the music, hate the business. It’s a screwball business, and there are a lot of players who will straight-up lie to you.
+ - I like simple things. I like to sneak in the theatre and watch movies. I’m a movie buff.
+ - I feel very fortunate to be compared to somebody so incredible. Michael Jackson’s an icon.
+ - If entertainment years were dog years, man, Id be like Gandhi. Id be like 250 years old.
+ - I think people sometimes don’t pay enough attention to what they do. I’ve done well, but the reason is pretty simple: I’ve worked my ass off. The toughest thing a performer can do is make it look as if it comes easy.
+ - England is the first country that I’ve had a no. 1 album in, so it is now officially my home away from home.
+ - We’ve been in that situation where you’re just so happy to be doing what you love to do that you get taken advantage of.
+ - Gossip is called gossip because it’s not always the truth.
+ - I think it’s the first idea I ever got about doing something on my own, because it was the first time I’d ever really felt the confidence to do it.
+ - Obviously, with creating music you are solely responsible for the creation of it.
+ - Teen pop will never die as long as there are teens and popular music. It just takes a different head.
+ - The fans have been great to me. I don’t think it’s asking too much to have me sign something for them.
+ - I’m completely removed from any hype that comes my way.
+ - You mean, like a book?
+ - Practice ur craft and make it the best it can possibly be-Justin Timberlake.
+ - I needed freedom to really express myself. That’s really what Justified is about.
+ - The only thing pot does for me is it gets me to stop thinking. Sometimes I have a brain that needs to be turned off. Some people are just better high.
+ - If I did any movies I’d have to take a break from singing, because I’d want it to be really good.
+ - I like to play golf. I like to shoot hoops.
+ - Just writing and being in the studio was like therapy for me.
+ - The Grammys used me for ratings. And they were up 18 percent!
+ - I would never do anything just for spite.
+ - You have a lot of time on these tours. As Alice Cooper said, you can either drink all day or golf.
+ - The Internet is a really strange place to be.
+ - Even as a kid I would find the one person whose attention I didn’t have and I would zone in on that person. It became a challenge.
+ - If I’m not learning from something that I’m doing, then that means I’ve done it before. Do something different, even if it’s within the same medium.
+ - As far as the press is concerned, they’re going to say what they want to say. Probably about 10-15 percent of the time It’s accurate.
+ - Resolutions are just like rules. They’re just made to be broken.
+ - I have really great, great parents, and they were very supportive of me.
+ - I know what it takes to put on a good show for the fans.
+ - I really didn’t try to make an effort to make urban music, but I am a product of my inspirations.
+ - We want to evolve; like the Stones.
+ - I think with each generation comes more opportunity. At least that’s the way that I see it. I grew up in a generation that watched the birth of the internet. We all have. But I feel like I look around at the generation younger than me and it’s a very opportunistic mantra.
+ - The way I grew up, I was always taught that it’s uncouth to talk about money, and that’s not what should inspire you.
+ - I’m not trying to sound pretentious, but we did sell 12 million records on the first album, so we did get paid a little bit.
+ - I sort of dreamed about directing before my career as an actor took off. I’ve directed stage before in so many capacities on tours. I put that together. You have to. Otherwise, it’s your statement. It’s your voice, and that has to come through.
+ - I grew up in Tennessee where you either play football or you don’t do anything at all. So I was a bit of loner, being interested in music.
+ - I didn’t put out this album because I wanted everybody to know I was grown up. I’m 21 and that’s not grown up.
+ - I admire this town a lot. They take care of their own. There’s not a lot of places in the world, much less America, that do that. It’s just a great place.
+ - If you asked me what pop is right now. I’d say hip hop.
+ - As an actor, it’s your job to find the way to play a character. I think you can latch on to some things that might have happened.
+
+94 quotes

@@ -1,0 +1,23 @@
+ - We cannot tell what may happen to us in the strange medley of life. But we can decide what happens in us – how we can take it, what we do with it – and that is what really counts in the end.
+ - Belief is truth held in the mind; faith is a fire in the heart.
+ - A duty dodged is like a debt unpaid; it is only deferred, and we must come back and settle the account at last.
+ - Every person has a train of thought on which they travel when they are alone. The dignity and nobility of their life, as well as their happiness depend upon the direction in which that train is going, the baggage it carries and the scenery through which it travels.
+ - To be happy is easy enough if we give ourselves, forgive others, and live with thanksgiving, No self centered person, no ungrateful soul can ever be happy, much less make anyone else happy. Life is giving, not getting.
+ - London is like a dream come true. As I ramble through it I am haunted by the curious feeling of something half-forgotten, but still dimly remembered, like a reminiscence of some previous state of existence. It is at once familiar and strange.
+ - An egotist is not a man who thinks too much of himself; he is a man who thinks too little of other people.
+ - Every man has a train of thought on which he rides when he is alone.
+ - God works for man through man and seldom, if at all, in any other way. He asks for our voices to speak His truth, for our hands to do His work here below, sweet voices and clean hands to make liberty and love prevail over injustice and hate.
+ - Love is lost in immensities; it comes in simple, gentle ways.
+ - Masonry was not made to divide men, but to unite them, leaving each man free to think his own thoughts and fashion his own system of ultimate truth. All its emphasis rests upon two extremely simple and profound principles, love of God and love of man.
+ - London, with its monotonous and melancholy houses, seems like an inharmonious patchwork, as if pieced together without design. Yet it is lovable in its sprawling confusion.
+ - The discovery of the Square was a great event to the primitive mystics of the Nile. Very early it became an emblem of truth, justice, and righteousness, and it remains to this day through unaccountable ages have passed.
+ - Not what we have, but what we use, not what we see, but what we choose, these are the things that mar or bless the sum of human happiness.
+ - More than an institution, more than a tradition, more than a society, Masonry is one of the forms of Divine life upon earth.
+ - Instead of criticizing Masonry, let us than God for one alter where no man is asked to surrender his liberty of thought and become an indistinguishable atom on a mass of sectarian agglomeration.
+ - The real question, after all, is not the quantity of life, but its quality, its depth, its purity, its fortitude, its fineness of spirit and gesture of soul.
+ - So many of us know what we are against, but not what we are for-what we disbelieve, not what we believe. A negative life easily becomes neutral and futile.
+ - Each lodge is an oasis if equality and good will in a desert of strife, working to wield mankind into a great league of sympathy and services, which, by the terms of our definition, it seeks to exhibit now on a small scale.
+ - Masonry superadds to our other obligations the strongest ties of connection between it and the cultivation of virtue, and furnishes the most powerful incentives to goodness.
+ - Whether there were organized orders of builders in the early times no one can tell, through there may have been. No matter; man mixed thought and worship with his work, and as he cut his altar stones and fitted them together he thought out a faith by which to live.
+
+21 quotes

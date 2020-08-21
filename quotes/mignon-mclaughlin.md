@@ -1,0 +1,367 @@
+ - A successful marriage requires falling in love many times, always with the same person.
+ - Love unlocks doors and opens windows that weren’t even there before.
+ - Every day of our lives we are on the verge of making those slight changes that would make all the difference.
+ - Love is the silent saying and saying of a single name.
+ - The only courage that matters is the kind that gets you from one moment to the next.
+ - Don’t be yourself. Be someone a little nicer.
+ - Courage can’t see around corners but goes around them anyway.
+ - Only where children gather is there any real chance of fun.
+ - Don’t fool yourself that important things can be put off till tomorrow; they can be put off forever, or not at all.
+ - In the arithmetic of love, one plus one equals everything, and two minus one equals nothing.
+ - What you have become is the price you paid to get what you used to want.
+ - True remorse is never just a regret over consequences; it is a regret over motive.
+ - The marriage of convenience has this to recommend it: we are better judges of convenience than we are of love.
+ - Many beautiful women have been made happy by their own beauty, but no intelligent woman has ever been made happy by her own intelligence.
+ - Hope is the feeling we have that the feeling we have is not permanent.
+ - Anything you lose automatically doubles in value.
+ - There are so many things that we wish we had done yesterday, so few that we feel like doing today.
+ - Love is often gentle, desire always a rage.
+ - It’s impossible to be loyal to your family, your friends, your country, and your principles, all at the same time.
+ - Desire is in men a hunger, in women only an appetite.
+ - Always live up to your standards – by lowering them, if necessary.
+ - Spiritual sloth, or acedia, was known as The Sin of the Middle Ages. It’s the sin of my middle age, too.
+ - No one can understand love who has not experienced infatuation. And no one can understand infatuation, no matter how many times he has experienced it.
+ - I tell you this, and I tell you plain: What you have done, you will do again; You will bite your tongue, careful or not, Upon the already-bitten spot.
+ - My doctor is nice; every time I see him, I’m ashamed of what I think of doctors in general.
+ - Acedia is not in every dictionary; just in every heart.
+ - We come late, if at all, to wine and philosophy: whiskey and action are easier.
+ - Every now and then you run across radiantly attractive people and you’re delighted to find they adore you, till you realize that they adore just about everybody- and that’s what’s made them radiantly attractive.
+ - There’s an awful lot of blood around that water is thicker than.
+ - The head never rules the heart, but just becomes its partner in crime.
+ - Things are never so bad that they can’t get worse. But they’re sometimes so bad they can’t get better.
+ - The death of someone we know always reminds us that we are still alive – perhaps for some purpose which we ought to re-examine.
+ - It’s wonderful to watch a pretty woman with character grow beautiful.
+ - Tough and funny and a little bit kind: that is as near to perfection as a human being can be.
+ - Too much money is as demoralizing as too little, and there’s no such thing as exactly enough...
+ - Nostalgia for what we have lost is more bearable than nostalgia for what we have never had.
+ - Spite is never lonely; envy always tags along.
+ - Spring, summer, and fall fill us with hope; winter alone reminds us of the human condition.
+ - Every American child should grow up knowing a second language, preferably English.
+ - When threatened, the first thing a democracy gives up is democracy.
+ - Learning too soon our limitations, we never learn our powers.
+ - There’s nothing wrong with most men’s egos that the kowtowing of a headwaiter can’t cure.
+ - The fear of being laughed at makes cowards of us all.
+ - Puritans will never believe it, but life is full of disagreeable things that aren’t even good for you.
+ - There are a handful of people whom money won’t spoil, and we all count ourselves among them.
+ - When the pain is great enough, we will let anyone be doctor.
+ - It’s innocence when it charms us, ignorance when it doesn’t.
+ - It’s the most unhappy people who most fear change.
+ - You will turn over many a futile new leaf till you learn we must all write on scratched-out pages.
+ - Few of us write great novels; all of us live them.
+ - When “Why not do it?” barely outweighs “Why do it?” – don’t do it.
+ - Men gossip less than women, but mean it.
+ - Every group feels strong once it has found a scapegoat.
+ - Society honors its living conformists and its dead troublemakers.
+ - If you jot down every silly thought that pops into your mind, you will soon find out everything you most seriously believe.
+ - The neurotic thinks himself both Hamlet and Claudius, in a world that belongs to Polonius.
+ - Those who are brutally honest are seldom so with themselves.
+ - Fields can lie fallow but we can’t; we have less time.
+ - Happiness is like the penny candy of our youth: we got a lot more for our money back when we had no money.
+ - It’s terrifying to see someone inside of whom a vital spring seems to have been broken. It’s particularly terrifying to see him in your mirror.
+ - We semaphore from ship to ship, but they’re sinking, too.
+ - I’ve been hiding from God, and I’m appalled to find how easy it is.
+ - Loneliness, insomnia, and change: the fear of these is even worse than the reality.
+ - There are whole years for which I hope I’ll never be cross-examined, for I could not give an alibi.
+ - Life marks us all down, so it’s just as well that we start out by overpricing ourselves.
+ - Others follow patterns; we alone are unpredictable.
+ - Good-looking girls break hearts, and goodhearted girls mend them.
+ - No matter how many Christmas presents you give your child, there’s always that terrible moment when he’s opened the very last one. That’s when he expects you to say, ‘Oh yes, I almost forgot,’ and take him out and show him the pony.
+ - Whenever we safely land in a plane, we promise God a little something.
+ - The only mothers it is safe to forget on Mother’s Day are the good ones.
+ - The neurotic circles ceaselessly above a fogged-in airport.
+ - We sometimes feel that we have been really understood, but it was always long ago, by someone now dead.
+ - Women are good listeners, but it’s a waste of time telling your troubles to a man unless there’s something specific you want him to do.
+ - The neurotic lies awake at night, composing letters to those he hates. He seldom thinks of dropping a line to those he loves.
+ - God doesn’t measure His bounty, but oh how we do!
+ - A woman telling her true age is like a buyer confiding his final price to an Armenian rug dealer.
+ - Women who feel naked without their lipstick are well over thirty.
+ - Albert Einstein when asked what he considered to be the most powerful force in the universe answered: Compound interest! What you have become is the price you paid to get what you used to want.
+ - After the chills and fever of love, how nice is the 98.6 degrees of marriage.
+ - Beauty often fades, but seldom so swiftly as the joy it gives us.
+ - The two main hazards of psychoanalysis: that it might fail, and that if it succeeds, you’ll never be able to forgive yourself for all those wasted years.
+ - Everybody can write; writers can’t do anything else.
+ - A husband only worries about a particular Other Man; a wife distrusts her whole species.
+ - A hypochondriac is one who has a pill for everything except what ails him.
+ - To smoke or not to smoke: I can make of either a life-work.
+ - Luck: when your burst of energy doesn’t run afoul of someone else’s.
+ - How tired God must be of guilt and loneliness, for that is all we ever bring to Him.
+ - We’re seldom drawn to a character we admire; only to a personality we like.
+ - We’d all like a reputation for generosity, and we’d all like to buy it cheap.
+ - An artist usually has no friends except other artists, and usually they do not like his work.
+ - Learn a little of anything, and you’re ready to proselytize.
+ - Pity all newlyweds. She cooks something nice for him, and he brings her flowers, and they kiss and think: How easy marriage is.
+ - There are always a few people you do a lot for, and a few who do a lot for you, but they’re not the same people.
+ - All love is probationary, a fact which frightens women and exhilarates men.
+ - A woman will do anything to keep a pretty figure, but hardly anything to get one.
+ - In retrospect, our triumphs could as easily have happened to someone else; but our defeats are uniquely our own.
+ - Minor vices lead to major ones, but minor virtues stay put.
+ - Nobody knows the trouble we’ve seen-but we keep trying to tell them.
+ - A woman ought to look up to her husband, if only a half-inch.
+ - Hot dogs always seem better out than at home; so do French-fried potatoes; so do your children.
+ - Many of us go through life feeling as an actor might feel who does not like his part and does not believe in the play.
+ - Altruism is a hard master, but so is opportunism.
+ - Not for nothing does the neurotic suffer – but not for anything very much, either.
+ - The hardest learned lesson: that people have only their kind of love to give, not our kind.
+ - The proud man can learn humility, but he will be proud of it.
+ - If the second marriage really succeeds, the first one didn’t really fail.
+ - The young do not need God, and the old cannot find Him.
+ - Love looks forward, hate looks back, anxiety has eyes all over its head.
+ - Men enjoy being thought of as hunters, but are generally too lazy to hunt. Women, on the other hand, love to hunt, but would rather nobody knew it.
+ - Women go to beauty parlors for the unmussed look men hate.
+ - Some women love only what they can hold in their arms; others, only what they can’t.
+ - Throughout our lives, we see in the mirror the same innocent trusting face we have seen there since childhood.
+ - A woman asks little of love: only that she be able to feel like a heroine.
+ - Some marriages break up, and some do not, and in our world you can usually explain the former better than the latter.
+ - Comfort, or revelation: God owes us one of these, but surely not both.
+ - Women gather together to wear silly hats, eat dainty food, and forget how unresponsive their husbands are. Men gather to talk sports, eat heavy food, and forget how demanding their wives are. Only where children gather is there any real chance of fun.
+ - Many things can make you miserable for weeks; few can bring you a whole day of happiness.
+ - A sense of humor is a major defense against minor troubles.
+ - In the theater, as in life, we prefer a villain with a sense of humor to a hero without one.
+ - If you must reread old love letters, better pick a room without mirrors.
+ - To talk easily with people, you must firmly believe that either you or they are interesting. And even then it’s not easy.
+ - We can never understand other people’s motives, nor their furniture.
+ - Neurotics always feel as though they were going way up or way down, which is odd in people going sideways.
+ - You can’t truthfully explain your smallest action without fully revealing your character.
+ - I’m glad I don’t have to explain to a man from Mars why each day I set fire to dozens of little pieces of paper, and then put them in my mouth.
+ - Boredom is often the cause of promiscuity, and always its result.
+ - A parent who has never apologized to his children is a monster. If he’s always apologizing, his children are monsters.
+ - When hope is hungry, everything feeds it.
+ - At night, neurotics may toil not, but oh how they spin!
+ - I’m afraid to win, and afraid to lose; I hate a draw and can’t stop competing; otherwise I’m fine.
+ - When a man falls in love, he wants to go to bed. When a woman falls in love, she wants to talk about it.
+ - We waste a lot of time running after people we could have caught by just standing still.
+ - Few novels or plays could exist without at least one troublemaker in the group, and perhaps life couldn’t either.
+ - We welcome passion, for the mind is briefly let off duty.
+ - Most of us would rather risk catastrophe than read the directions...
+ - The neurotic believes that life has meaning, but that his life hasn’t.
+ - We always prefer war on our own terms to peace on someone else’s.
+ - Likely as not, the child you can do the least with will do the most to make you proud.
+ - Women are afraid of mice and of murder, and of very little in between.
+ - Many who would not take the last cookie would take the last lifeboat.
+ - We can never at any time absorb more love than we’re ready for.
+ - The neurotic doesn’t know how to cope with his emotional bills; some he keeps paying over and over, others he never pays at all.
+ - Life is a mixed blessing, which we vainly try to unmix.
+ - What we forgive too freely doesn’t stay forgiven.
+ - A car is useless in New York, essential everywhere else. The same with good manners.
+ - Be glad that you’re greedy; the national economy would collapse if you weren’t.
+ - The best work is done with the heart breaking, or overflowing.
+ - Neurotics make poor patriots; if you’re ashamed of something as big as yourself, it’s hard to be proud of something as small as your country.
+ - Even cowards can endure hardship; only the brave can endure suspense.
+ - The fault we admit to is seldom the fault we have, but it has a certain relationship to it, a somewhat similar shape, like that of a sleeve to an arm.
+ - God is less careful than General Motors, for He floods the world with factory rejects.
+ - Mumps, measles, and puppy love are terrible after twenty.
+ - If your husband expects you to laugh, do so; if he expects you to cry, don’t; if you don’t know what he expects, what are you doing married?
+ - We are all born brave, trusting and greedy, and most of us remain greedy.
+ - Surrounded by people who love life, you love it too; surrounded by people who don’t, you don’t.
+ - The three horrors of modern life – talk without meaning, desire without love, work without satisfaction.
+ - Being neurotic is like shooting fish in a barrel, and missing them.
+ - With each passing year, one has less to say, and knows better how to say it.
+ - Elegimos aquellos que nos gusta, con los que amamos, no tenemos voz en el asunto.
+ - If the pain wanders, do not waste your time with doctors.
+ - My religious position: I think that God could do a lot better, and I’m willing to give Him the chance.
+ - So long as God reveals Himself, or doesn’t, He is behaving like God.
+ - Once you become self-conscious, there is no end to it; once you start to doubt, there is no room for anything else.
+ - We work for praise, and dawdle once we have it.
+ - If you’re a gifted flirt, talking about the price of eggs will do as well as any other subject.
+ - Children lack morality, but they also lack fake morality.
+ - Humiliation is a vast country of imprecise boundaries. If you think you’re there, you are. The neurotic rule: when in doubt, go ahead and feel humiliated.
+ - Revenge leads to an empty fullness, like eating dirt.
+ - Men who don’t like girls with brains don’t like girls.
+ - Women usually love what they buy, yet hate two-thirds of what is in their closets.
+ - Vanity, revenge, loneliness, boredom, all apply: lust is one of the least of the reasons for promiscuity.
+ - A doctor recently described to me “benign positional vertigo”: it means you get dizzy in certain positions, but you can get over it without necessarily changing the position. Change “vertigo” to “anxiety,” and you’ve summed up the neurotic’s plight.
+ - It upsets women to be, or not to be, stared at hungrily.
+ - Neurotics have plenty of non-neurotic friends, but not for long.
+ - No good neurotic finds it difficult to be both opinionated and indecisive.
+ - Men never know how tired they are till their wives sit them down for a nice long talk.
+ - Despair is anger with no place to go.
+ - A woman’s mink coat represents the sacrifice of a lot of little animals, including her husband.
+ - I’m always there to tell people that their life is not that bad. I wish it was easy to follow that advice.
+ - A bore: one who knows as well as you do what he is going to say next.
+ - The ideal home: big enough for you to hear the children, but not very well.
+ - Goods are displayed by thousands of shopkeepers with a sense of beauty that finds no other outlet.
+ - The know-nothings are, unfortunately, seldom the do-nothings.
+ - The next voice you hear will undoubtedly be your own.
+ - We all become great explorers during our first few days in a new city, or a new love affair.
+ - Few of us could bear to have ourselves for neighbors.
+ - Anywhere you go liking everyone, everyone will be likeable.
+ - Naturally, the neurotic wants you to love him twice as much, for he’s going to cut it in half anyway.
+ - Love requires a willingness to die; marriage, a willingness to live.
+ - There are three iron links in the neurotic’s chain: unloving, unlovable, unloved.
+ - If there is something you must do and you cannot do it, you cannot do anything else.
+ - Most of us become parents long before we have stopped being children.
+ - Those who turn to God for comfort may find comfort but I do not think they will find God.
+ - We are irritated by rascals, intolerant of fools, and prepared to love the rest. But where are they?
+ - Nobody ever loved anybody like everybody wants to be loved.
+ - The trouble with women is men; the trouble with men, men.
+ - In life, as in restaurants, we swallow a lot of indigestible stuff just because it comes with the dinner.
+ - Neurotics expect you to remember all the things that they tell you, and many that they don’t.
+ - The poor have the same basic pleasures as the rich, and the rich will always resent it.
+ - The plague of government is senile delinquency.
+ - Even in the same family, one child will always instinctively know when to ask for things, and another won’t.
+ - Forget about calories – everything makes thin people thinner, and fat people fatter.
+ - Money: in its absence, we are coarse; in its presence, we are vulgar.
+ - In church, sacred music would make believers of us all – but preachers can be counted on to restore the balance.
+ - The total history of almost anyone would shock almost everyone.
+ - If your children spend most of their time in other people’s houses, you’re lucky; if they all congregate at your house, you’re blessed.
+ - I wish I’d said it first, and I don’t even know who did: The only problems that money can solve are money problems.
+ - It must infuriate our children to see us always so much more forbearing with everybody else’s.
+ - Ma-ma does everything for the baby, who responds by saying Da-da first.
+ - A perfect marriage is one in which “I’m sorry” is said just often enough.
+ - As we grow older, our capacity for enjoyment shrinks, but not our appetite for it.
+ - Neurotic: someone who can go from the bottom to the top, and back again, without ever once touching the middle.
+ - Confession is good for the conscience, but it usually bypasses the soul.
+ - Don’t ask others to forgive in you a sin they’re dying to commit themselves.
+ - Without enthusiasm, virtue functions not at all, and vice only poorly.
+ - Few women care what a man looks like, and a good thing too.
+ - People find it hard to be both comic and serious, though life manages it easily enough.
+ - Many are saved from sin by being so inept at it.
+ - We wake in the night, to stereophonic silence.
+ - What’s for dinner is the only question many husbands ask their wives, and the only one to which they care about the answer.
+ - All women are basically in competition with each other for a handful of eligible men.
+ - It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not.
+ - Grasp your opportunities, no matter how poor your health; nothing is worse for your health than boredom.
+ - I know which side my bread is buttered on: the side which falls on the carpet.
+ - The neurotic usually obeys his own Golden Rule: Hate thy neighbor as thyself.
+ - Suburb: a place that isn’t city, isn’t country, and isn’t tolerable.
+ - If an article is attractive, or useful, or inexpensive, they’ll stop making it tomorrow; if it’s all three, they stopped making it yesterday.
+ - Many marriages are simply working partnerships between businessmen and housekeepers.
+ - Philosophy teaches a man that he can’t take it with him; taxes teach him he can’t leave it behind either.
+ - We have to call it “freedom”: who’d want to die for “a lesser tyranny”
+ - How strange that the young should always think the world is against them – when in fact that is the only time it is for them.
+ - They threaten me with lung cancer, and still I smoke and smoke. If they’d only threaten me with hard work, I might stop.
+ - The past is strapped to our backs. We do not have to see it; we can always feel it.
+ - The excesses of love soon pass, but its insufficiencies torment us forever.
+ - In any family, measles are less contagious than bad habits.
+ - What you can’t get out of, get into wholeheartedly.
+ - The first-rate mind is always curious, compassionate, original, and pessimistic.
+ - Cash is the one gift everyone despises and no one turns down.
+ - With men, as with women, the main struggle is between vanity and comfort; but with men, comfort often wins.
+ - If you can tell anyone about it, it’s not the worst thing you ever did.
+ - In youth we are plagued by desire; in later years, by the desire to feel desire.
+ - What a shame that allowances have to stop with the teens: both those that are paid to us and those that are made for us.
+ - There’s only one person who needs a glass of water oftener than a small child tucked in for the night, and that’s a writer sitting down to write.
+ - Youth is not enough. And love is not enough. And success is not enough. And, if we could achieve it, enough would not be enough.
+ - Most of us can easily do two things at once; what’s all but impossible is to do one thing at once.
+ - We are like people with short-term leases on summer cottages; we can never seem to make our provisions come out even with our stay.
+ - If you are brave too often, people will come to expect it of you.
+ - Healthy parakeets have the nervous energy of tennis players.
+ - For the happiest life, days should be rigorously planned, nights left open to chance.
+ - Hate leaves ugly scars, love leaves beautiful ones.
+ - We are seldom happy with what we now have, but would go to pieces if we lost any part of it.
+ - If I knew what I was so anxious about, I wouldn’t be so anxious.
+ - The woman just ahead of you at the supermarket checkout has all the delectable groceries you didn’t even know they carried.
+ - Your children tell you casually years later what it would have killed you with worry to know at the time.
+ - The neurotic listens to weather reports about Small Craft Warnings, and he thinks: They’re talking about me.
+ - A love that lasts for twenty years may be better than love, but it isn’t love.
+ - We climb mountains because they are there, and worship God because He is not.
+ - We often pray to be better, when in truth we only want to feel better.
+ - It’s awesome to realize that if your greatest potential talent is for riding a bicycle upside down on a high wire, you will somehow discover it.
+ - Men feel that women somehow drag them down, and women feel that way about men. It’s possible that both are right.
+ - If you made a list of reasons why any couple got married, and another list of the reasons for their divorce, you’d have a hell of a lot of overlapping.
+ - The neurotic is always half-drowning in anxiety, and always being half-rescued.
+ - The neurotic longs to touch bottom, so at least he won’t have that to worry about anymore.
+ - One of life’s few really reliable pleasures: to have a family you love, and to leave them for a week.
+ - Every creatures stalks some other, and catches it, and is caught.
+ - Neurotics are always looking for something new to overdo.
+ - Neurotic quarrels always have the same theme-song: Hate me and get it over with.
+ - One day you are an apprentice, and everybody’s pet; the next, you are coldly expected to deliver. There is never sufficient warning that the second day is coming.
+ - When suffering comes, we yearn for some sign from God, forgetting we have just had one.
+ - Your money, or your life. We know what to do when a burglar makes this demand of us, but not when God does.
+ - Women are never landlocked: they’re always mere minutes away from the briny deep of tears.
+ - Others settle for small rewards; the neurotic must always go for broke.
+ - Creative work is one of life’s greatest pleasures, and the only one we will gladly interrupt.
+ - Men really prefer reasonably attractive women; they go after the sensational ones to impress other men.
+ - We lavish on animals the love we are afraid to show to people. They might not return it; or worse, they might.
+ - Most sermons sound to me like commercials – but I can’t make out whether God is the Sponsor or the Product.
+ - It does not undo harm to acknowledge that we have done it; but it undoes us not to acknowledge it.
+ - Your best work always seems to have been done by someone else.
+ - Women are the right age for just a few years; men, for most of their lives.
+ - Many of us are equal to life’s emergencies who cannot bear its day-after-dayness.
+ - Neurosis is no worse than a bad cold; you ache all over, and it’s made you a mess, but you won’t die from it.
+ - No matter how brilliantly an idea is stated, we will not really be moved unless we have already half thought of it ourselves.
+ - A critic can only review the book he has read, not the one which the writer wrote.
+ - Neurotics are anxiety prone, accident prone, and often just prone.
+ - Affairs are just as disillusioning as marriage, and much less restful.
+ - The first two days of a vacation are endless; then it flies.
+ - We are never more self-righteous than when giving up what we should have shunned all along.
+ - If it came true, it wasn’t much of a dream.
+ - People are like birds: on the wing, all beautiful; up close, all beady little eyes.
+ - The past is rich in lessons from which we would greatly profit except that the present is always so full of Special Circumstances.
+ - As we are human, we can’t do what we can’t do; as we’re neurotic, we can’t do what we can.
+ - Failure can get to be a rather comfortable old friend.
+ - People keep telling us about their love affairs, when what we really want to know is how much money they make and how they manage on it.
+ - Money is much more exciting than anything it buys.
+ - A new wound makes all the old ones ache again.
+ - When their children fail to charm others, few parents can stay neutral.
+ - Each day, the American housewife turns toward television as toward a lover. She feels guilty about it, and well she might, for he’s covered with warts and is only after her money.
+ - The neurotic would like to trust his analyst – if only because he’s paying him so much money. But he can’t – because if the analyst really cared, he’d be doing it for nothing.
+ - We catch frightful glimpses of ourselves in the hostile eyes of others.
+ - What we love about love is the fever, which marriage puts to bed and cures.
+ - Age is a slowing down of everything except fear.
+ - Flesh goes on pleasuring us, and humiliating us, right to the end.
+ - The neurotic has perfect vision in one eye, but he cannot remember which.
+ - Self-confidence grows on trees, in other people’s orchards.
+ - A first-rate marriage is like a first-rate hotel: expensive, but worth it.
+ - There’s something in every atheist, itching to believe, and something in every believer, itching to doubt.
+ - The chief reason for drinking is the desire to behave in a certain way, and to be able to blame it on alcohol.
+ - Of all second-class citizens, neurotics are the only ones who are so by choice.
+ - It’s easy enough to get along with a loved and loving child – at least till you try to get him to do something.
+ - When you let money speak for you, it drowns out anything else you meant to say.
+ - There are now electrical appliances with the main unit so sealed in that it cannot be got at for repair. There have always been human beings like that.
+ - Whether or not you love television, you’ve got to admit that it certainly loves itself.
+ - If you hate your lot but wouldn’t trade it, it’s not your lot you hate.
+ - We are keenly aware of the faults of our friends, but if they like us enough it doesn’t matter.
+ - The neurotic feels as though trapped in a gas-filled room where at any moment someone, probably himself, will strike a match.
+ - My thoughts, I guess, are bitter: who but the bitter have thoughts?
+ - When women feel they have learned to forgive their mothers – and men, their fathers – all it usually means is that they’ve decided to allow themselves the same kind of behavior.
+ - The neurotic always wishes people would let him alone – until they do.
+ - Neurotics think of the past with resentment, and the future with dread; the present just doesn’t exist.
+ - There’s no way to repay a mother’s love, or lack of it.
+ - After he has had his tantrum, the neurotic expects those around him to feel friendly and relaxed; after all, he does.
+ - No woman wants to see herself too clearly.
+ - It’s hard to feel middle-aged, because how can you tell how long you are going to live?
+ - People will disapprove of you if you’re unhappy, or if you’re happy in The Wrong Way.
+ - The young are generally full of revolt, and are often pretty revolting about it.
+ - When we discuss those we love with those who do not love them, the end of love is near.
+ - We cough because we can’t help it, but others do it on purpose.
+ - How can a man marry wisely in his twenties? The girl he’s going to wind up wanting hasn’t even been born.
+ - We are all such a waste of our potential, like three-way lamps using one-way bulbs.
+ - Men prefer brief praise, pitched high; women are satisfied with praise in a lower key, just so it goes on and on.
+ - The soul may sleep and the body still be happy, but only in youth.
+ - Tragedy isn’t getting something, or failing to get it; it’s losing something you already have.
+ - Desire creates havoc when it is the only thing between two people, or when it is what’s missing.
+ - The neurotic’s strongest fantasy is that he has no fantasies. The real is very real to him, the unreal even more so.
+ - If only we could be old and sick while we’re still young and healthy enough to put up with it!
+ - There are children born to be children, and others who must mark time till they can take their natural places as adults.
+ - Your children vividly remember every unkind thing you ever did to them, plus a few you really didn’t.
+ - Don’t look for God where He is needed most; if you didn’t bring Him there, He isn’t there.
+ - The way the neurotic sees it: bars on his door mean that he’s locked in; bars on your door mean that he’s locked out.
+ - God and the devil lose to a common enemy: inertia.
+ - Theatre audiences can’t be made to think and cry: at best, they can be made to think and laugh, or to feel and cry.
+ - It took man thousands of years to put words down on paper, and his lawyers still wish he wouldn’t.
+ - Anything you do from the heart enriches you, but sometimes not till years later.
+ - We choose those we like; with those we love, we have no say in the matter.
+ - If you have to do it every day, for God’s sake learn to do it well.
+ - No one really listens to anyone else, and if you try it for a while you’ll see why.
+ - Neurotics are sure that no one understands them, and they wouldn’t have it any other way.
+ - It is always safe to tell people that they’re looking wonderful.
+ - If you see in your children most of your own faults, you have failed as a parent, but succeeded as a neurotic.
+ - Women polish the silver and water the plants and wait to be really needed.
+ - When first we fall in love, we feel that we know all there is to know about life, and perhaps we are right.
+ - We have a terror of seeming to exert ourselves, lest it be noticed that we exerted ourselves and did not succeed.
+ - At the beginning of a love affair, not even the neurotic is neurotic.
+ - A good executive is one who makes people contentedly settle for less than they meant to get, in return for more than they meant to give.
+ - There is always some specific moment when we become aware that our youth is gone; but, years after, we know it was much later.
+ - The time to begin most things is ten years ago.
+ - Neurotics would like to sleep all the time, and to be awakened only when there is good news.
+ - Make a habit of telling the truth, or make a habit of lying: to decide each case on its own merits is exhausting, and hardly ever worth it.
+ - Neurotics dream of a good life, or a great suicide note.
+ - I often pray, though I’m not really sure Anyone’s listening; and I phrase it carefully, just in case He’s literary.
+ - Our strength is often composed of the weakness that we’re damned if we’re going to show.
+ - Most of our diversions do not so much delay death as accustom us to it.
+ - The neurotic keeps minute track of his enemies; it is only his friends he is careless about.
+ - When the pressures really mount, the neurotic must choose: Shall he have a good cry, or set fire to his neighbor’s house?
+ - Women flirt to keep their stock high, men to get somewhere.
+
+365 quotes

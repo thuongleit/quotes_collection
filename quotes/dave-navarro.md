@@ -1,0 +1,25 @@
+ - My skin is my canvas. The artwork on it represents something that is very powerful and meaningful in my life. I look at my skin as something of a living diary because all my tattoos represent a time in my life. And I never wish to shut the door on the past, so I carry it all with me.
+ - Jane’s Addiction has only put out new music when our hearts were in and when we had something to say creatively.
+ - So as long as I can do the music or create, I’ll feel fine.
+ - There is no love left in your eyes, there is no love between your thighs.
+ - My God! So sad to hear about Amy Winehouse! My deepest condolences to her friends and family and fans. You will be missed Amy xoxox.
+ - I have never been sexually aroused by a man. But I have yet to kiss Johnny Depp, so you never know.
+ - I grew up listening to albums by Pink Floyd, Led Zeppelin and Jimi Hendrix, and they all worked on that multi-layered level.
+ - For me, it doesn’t matter how difficult something is, it doesn’t matter how impressive it is, it’s what sounds best that really counts.
+ - I’m not the type of player to sit home and practice scales and work on runs.
+ - It’s impossible to compare two bands. It would be like comparing two lovers.
+ - I’m either shooting nine grams of coke a day or spending two hours at the gym. There’s no middle ground.
+ - I’m as obsessive with health as I was with destruction.
+ - I’ve done a lot of talk shows where you can tell that the host is just thinking about what he wants to say next while you’re answering him and that’s really uncomfortable.
+ - I wish I was a shredder that could play everything, but I don’t have the patience.
+ - There have been times when I felt suicidal and I would stop my head from going in that direction of negativity because I thought there’d be something I’d miss that was funny in the future. If there’s a chance I’m going to laugh tomorrow then want to live to experience that.
+ - Guitar playing is just something that came to me and is really second nature now.
+ - As a viewer of television if there’s something I don’t like or find offensive, I just don’t watch it.
+ - Men are much more agressive with their advances.
+ - I’m thrilled I have the opportunity to do the ‘Spread’ show and have the terrific sponsors that we work with like Nikon or Verizon.
+ - I’ve always recorded the same way. I put down as many ideas as I have, then strip them away at the mixdown. It’s better to have too much music than not enough.
+ - And I’ve also come to the conclusion that, as far as guitar solos and things like that are concerned, it’s more important to complement the music rather than take away from it.
+ - I’ve always been a fan of music where you can hear new things each time you listen.
+ - Yeah, I can read music and I know the names of chords.
+
+23 quotes

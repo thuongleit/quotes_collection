@@ -1,0 +1,32 @@
+ - Gotta kick at the darkness til it bleeds daylight.
+ - One day you’re waiting for the sky to fall, The next you’re dazzled by the beauty of it all.
+ - And I’m wondering where the lions are.
+ - In between effect and cause and just beyond the range of normal sight, this glittering joker was dancing in the dragon’s jaws.
+ - Lord, spit on our eyes that we may see, how to wake up from this tragedy.
+ - Everybody wants to see justice done, to somebody else.
+ - Though chains be of gold, they are chains all the same.
+ - Little round planet in a big universe, sometimes it looks blessed, sometimes it looks cursed. Depends what you look at obviously, but even more it depends on the way that you see.
+ - I wear my shadows where they’re harder to see, but they follow me everywhere. I guess that should tell me I’m traveling toward light.
+ - The trouble with normal is it only gets worse.
+ - Love the Lord and in him love me too. And in him, go your own way and I’ll be right here with you.
+ - Some people never see the light Till it shines thru bullet holes.
+ - I’d always loved poetry and I’d always loved writing music and composing music, but I hadn’t thought of putting the two together until around that time.
+ - I’m not a pacifist. I feel that there are situations where fighting is inescapable, but we don’t go looking for those things.
+ - A sane person doesn’t think war is a good idea.
+ - Male female slave or free; peaceful or disorderly; maybe you and he will not agree; but you need him to show you new ways to see.
+ - There are some decision-makers in the world whose version of sanity is a little different from what I consider the right one.
+ - I wanted to play rock and roll when I started playing. Nobody at that time ever thought about songwriting. You sang songs, that’s all. You sang other people’s songs. That’s all there were.
+ - I remember when the idea of living to be 40 seemed absurd.
+ - The second half of the ’60s really was a kind of learning period, in terms of writing, for me.
+ - Since the early ’80s, I’ve found myself in war zones in various parts of the world.
+ - All these years of thinking, ending up like this: In front of all this beauty, understanding nothing.
+ - I can’t imagine my life any other way than it’s been.
+ - I did a lot of writing for a lot of different kinds of bands that I was in and out of during those five years and that left me with a little body of songs that I liked better when I played alone, so I ended up going out solo and very soon made my first album.
+ - My models for graceful aging are guys like John Lee Hooker and Mississippi John Hurt, who never stopped working till they dropped, as I fully expect to be doing, and just getting better as musicians and as human beings.
+ - I watch the confusion of friends all numb with love moving like stray dogs to the anthem of night long conversations of pulsing rhythms and random voltage voices in spite of themselves graceful as these raindrops creeping spermlike across the car window.
+ - The invitation for artists to compete to see who can be the most charitable is a wonderful thing.
+ - If I try to understand what it means to be a Christian, I look at the two instructions that were given in the Bible that are paramount, and those are to love God with all your heart and mind, and to love your neighbor as yourself. That’s it.
+ - I like to think that if it hadn’t gone as well as it has, if I wasn’t able to make a living off of playing music, I would still be playing the music. But, of course, I wouldn’t likely have had the opportunity to travel, and a lot of the places have inspired songs.
+ - Beautiful rocks – beautiful grass Beautiful soil where they both combine Beautiful river – covering sky Never thought of possession, but all this was mine.
+
+30 quotes

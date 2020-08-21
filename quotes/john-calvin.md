@@ -1,0 +1,317 @@
+ - When the Bible speaks, God speaks.
+ - There is not one blade of grass, there is no color in this world that is not intended to make us rejoice.
+ - All truth is God’s truth.
+ - The Human heart is an idol factory.
+ - The Scriptures should be read with the aim of finding Christ in them. Whoever turns aside from this object, even though he wears himself out all his life in learning, he will never reach the knowledge of the truth.
+ - Faith alone saves, but the faith that saves is not alone.
+ - Joy and thanksgiving expressed in prayer and praise according to the Word of God are the heart of the Church’s worship.
+ - Prayer is the chief exercise of faith.
+ - Without the Gospel everything is useless and vain.
+ - There is no knowing that does not begin with knowing God.
+ - I gave up all for Christ, and what have I found? Everything in Christ.
+ - A dog barks when his master is attacked. I would be a coward if I saw that God’s truth is attacked and yet would remain silent.
+ - The whole gospel is contained in Christ.
+ - Prayer doesn’t change things – God changes things in answer to prayer.
+ - All the arts come from God and are to be respected as divine inventions.
+ - When God wants to judge a nation, He gives them wicked rulers.
+ - We should ask God to increase our hope when it is small, awaken it when it is dormant, confirm it when it is wavering, strengthen it when it is weak, and raise it up when it is overthrown.
+ - For what is idolatry if not this: to worship the gifts in place of the Giver himself?
+ - How do we know that God has elected us before the creation of the world? By believing in Jesus Christ.
+ - True wisdom consists in two things: Knowledge of God and Knowledge of Self.
+ - When I took the leap, I had faith I would find a net; Instead I learned I could fly.
+ - Human will does not by liberty obtain grace, but by grace obtains liberty.
+ - Humility is the beginning of true intelligence.
+ - Faith is not a distant view, but a warm embrace of Christ.
+ - We shall never be clothed with the righteousness of Christ except we first know assuredly that we have no righteousness of our own.
+ - If a preacher is not first preaching to himself, better that he falls on the steps of the pulpit and breaks his neck than preaches that sermon.
+ - Peace is not to be purchased by the sacrifice of truth.
+ - Christ is much more powerful to save, than Adam was to destroy.
+ - Without knowledge of self there is no knowledge of God.
+ - Whatever a person may be like, we must still love them because we love God.
+ - Scripture is like a pair of spectacles which dispels the darkness and gives us a clear view of God.
+ - The excellence of the Church does not consist in multitude but in purity.
+ - The church is the gathering of God’s children, where they can be helped and fed like babies and then guided by her motherly care, grow up to manhood in maturity of faith.
+ - If God were not to test us, there would be no patience.
+ - It is a most blessed thing to be subject to the sovereignty of God.
+ - When God designs to forgive us he changes our hearts and turns us to obedience by His Spirit.
+ - My heart I give you, Lord, eagerly and entirely.
+ - Faith is like an empty, open hand stretched out towards God, with nothing to offer and everything to recieve.
+ - The glory of God shines, indeed, in all creatures on high and below, but never more brightly than in the cross.
+ - To make intercession for men is the most powerful and practical way in which we can express our love for them.
+ - Wherever we see the Word of God purely preached and heard, there a church of God exists, even if it swarms with many faults.
+ - Where riches hold the dominion of the heart, God has lost His authority.
+ - We must resist wandering thoughts in prayer. Raising our hands reminds us that we need to raise up our minds to God, setting aside all irrelevant thoughts.
+ - The marks of Jesus are imprisonment, chains, scourgings, blows and stoning in bearing testimony to the Gospel. Galatians 6:17 – 17 Finally, let no one cause me trouble, for I bear on my body the marks of Jesus.
+ - You must submit to supreme suffering in order to discover the completion of joy.
+ - We must make the invisible kingdom visible in our midst.
+ - Our assurance, our glory, and the sole anchor of our salvation are that Christ the Son of God is ours, and we in turn are in him sons of God and heirs of the Kingdom of Heaven, called to the hope of eternal blessedness by God’s grace, not by our worth.
+ - Only those who have learned well to be earnestly dissatisfied with themselves, and to be confounded with shame at their wretchedness truly understand the Christian gospel.
+ - Christ is the most perfect image of God, into which we are so renewed as to bear the image of God, in knowledge, purity, righteousness, and true holiness.
+ - All the blessings we enjoy are Divine deposits, committed to our trust on this condition, that they should be dispensed for the benefit of our neighbors.
+ - True faith is ever connected with hope.
+ - There is nothing in afflictions which ought to disturb our joy.
+ - Lawful worship consists in obedience alone.
+ - Our hearts are enfeebled by PROSPERITY so that we cannot make an effort to pray.
+ - The evil in our desires typically does not lie in what we want, but that we want it too much.
+ - Justification by faith is the hinge on which all true religion turns.
+ - We are surrounded by God’s benefits. The best use of these benefits is an unceasing expression of gratitude.
+ - The surest source of destruction to men is to obey themselves.
+ - Free will is an empty term.
+ - If we are proud of our talents we betray our lack of gratitude to God.
+ - Faith does not proceed from ourselves, but is the fruit of spiritual regeneration.
+ - You cannot imagine a more certain rule or a more powerful suggestion than this, that all the blessings we enjoy are divine deposits which we have received on this condition that we distribute them to others.
+ - Those who fall away have never been thoroughly imbued with the knowledge of Christ but only had a slight and passing taste of it.
+ - If we believe heaven to be our country, it is better for us to transmit our wealth thither, than to retain it here, where we may lose it by a sudden removal.
+ - We may rest assured that God would never have suffered any infants to be slain except those who were already damned and predestined for eternal death.
+ - The word “hope” I take for faith; and indeed hope is nothing else but the constancy of faith.
+ - The world was no doubt made, that it might be a theatre of the divine glory.
+ - The human heart has so many crannies where vanity hides, so many holes where falsehood works, is so decked out with deceiving hypocrisy, that it often dupes itself.
+ - Faith and patience are exceptional virtues in those that suffer. Patience is the fruit and evidence of faith.
+ - There is no work, however vile or sordid, that does not glisten before God.
+ - This is what entertainment is all about- idiots, explosives and falling anvils.
+ - The Holy Spirit is the bond by which Christ efficaciously unites us to himself.
+ - There can be no courage in men unless God supports them by his Word.
+ - When a certain shameless fellow mockingly asked a pious old man what God had done before the creation of the world the latter aptly countered that he had been building hell for the curious.
+ - Holiness is not a merit by which we can attain communion with God, but a gift of Christ, which enables us to cling to him, and to follow him.
+ - We must observe that the knowledge of God which we are invited to cultivate is not that which, resting satisfied with empty speculation, only flutters in the brain, but a knowledge which will prove substantial and fruitful whenever it is duly perceived and rooted in the heart.
+ - Unless we fix certain hours in the day for prayer, it easily slips from our memory.
+ - The Bible is the sceptre by which the Heavenly King rules His Church.
+ - God does not bestow his spirit on his people in order to set aside the use of his word, but rather to render it fruitful.
+ - But, as sculpture and painting are gifts of God, what I insist on is, that both shall be used purely and lawfully, that gifts which the Lord has bestowed upon us, for His glory and our good, shall not be preposterously abused, nay, shall not be perverted to our destruction.
+ - Without the fear of God, men do not even observe justice and charity among themselves.
+ - Hypocrisy can plunge the mind of a man into a dark abyss, when he believes his own self-flattery instead of God’s verdict.
+ - God orders what we cannot do, that we may know what we ought to ask him.
+ - The grace of God has no charms for men till the Holy Spirit gives them a taste for it.
+ - Man’s nature, so to speak, is a perpetual factory of idols.
+ - Joy is a quiet gladness of heart as one contemplates the goodness of God’s saving grace in Christ Jesus.
+ - Peace and friendship are an amiable thing among men. They be so indeed, and we ought to seek them to the uttermost of our power. But yet for all that, we must set such store by God’s truth, that if all the world should be set on fire for the maintenance thereof, we should not stick at it.
+ - Man is never sufficiently touched and affected by the awareness of his lowly state until he has compared himself with God’s majesty.
+ - Free will does not enable any man to perform good works, unless he is assisted by grace; indeed, the special grace which the elect alone receive through regeneration. For I stay not to consider the extravagance of those who say that grace is offered equally and promiscuously to all.
+ - Man with all his shrewdness is as stupid about understanding by himself the mysteries of God, as an ass is incapable of understanding musical harmony.
+ - Now the great thing is this: we are consecrated and dedicated to God in order that we may thereafter think, speak, meditate, and do, nothing except to his glory. For a sacred thing may not be applied to profane uses without marked injury to him.
+ - The blood of Christ is necessary to purge the faults clinging to our best works.
+ - All the more vile is the stupidity of those persons who open heaven to all the impious and unbelieving without the grace of Him whom Scripture commonly teaches to be the only door whereby we enter into salvation.
+ - The poor yield to the rich, the common people to the upper ten, the servants to their masters, the ignorant to the scholars; but there is nobody who does not imagine that he is really better than others.
+ - But a most pernicious error widely prevails that Scripture has only so much weight as is conceded to it by the consent of the church. As if the eternal and inviolable truth of God depended upon the decision of men!
+ - A soul, therefore, when deprived of the Word of God, is given up unarmed to the devil for destruction.
+ - The gospel is not a doctrine of the tongue, but of life. It cannot be grasped by reason and memory only, but it is fully understood when it possesses the whole soul and penetrates to the inner recesses of the heart.
+ - I consider looseness with words no less of a defect than looseness of the bowels.
+ - The first part of a good work is the will, the second is vigorous effort in the doing of it. God is the author of both. It is, therefore, robbery from God to arrogate anything to ourselves, either in the will or the act.
+ - If grace acts in us, grace, and not we who do the work, but will be crowned.
+ - The subject then of these chapters may be stated thus, – man’s only righteousness is through the mercy of God in Christ, which being offered by the Gospel is apprehended by faith.
+ - By predestination we mean the eternal decree of God, by which He determined with Himself whatever He wished to happen with regard to every man.
+ - The blindness of unbelievers in no way detracts from the clarity of the gospel; the sun is no less bright because blind men do not perceive its light.
+ - All men were created to busy themselves with the labor for the common good.
+ - Seeing that a Pilot steers the ship in which we sail, who will never allow us to perish even in the midst of shipwrecks, there is no reason why our minds should be overwhelmed with fear and overcome with weariness.
+ - But as a heathen tells us, there is no nation so barbarous, no race so brutish as not to be imbued with the conviction that there is a God.
+ - In forming an estimate of sins, we are often imposed upon by imagining that the more hidden the less heinous they are.
+ - It is certain that man never achieves a clear knowledge of himself unless he has first looked upon God’s face, and then descends from contemplating him to scrutinize himself.
+ - For it is better, with closed eyes, to follow God as our guide, than, by relying on our own prudence, to wander through those circuitous paths which it devises for us.
+ - The Creation is quite like a spacious and splendid house, provided and filled with the most exquisite, and at the same time, the most abundant furnishings. Everything in it tells of God.
+ - No Task will be so sordid and base, provided you obey your calling in it, that it will not shine and be reckoned very precious in God’s sight.
+ - We cannot rely on God’s promises without obeying his commandments.
+ - Whoever is not satisfied with Christ alone, strives after something beyond absolute perfection.
+ - It is certain that not one drop of rain falls without God’s sure command.
+ - Let our chief goal, O God, be your glory, and to enjoy You forever.
+ - The Angels are the dispensers and administrators of the Divine beneficence toward us. They regard our safety, undertake our defense, direct our ways, and exercise a constant solicitude that no evil befall us.
+ - When pain and suffering strike, our faith is well founded if it is standing on the promises of God. For all of God’s promises have strong confirmation in Christ.
+ - For astronomy is not only pleasant, but also very useful to be known: it cannot be denied that this art unfolds the admirable wisdom of God.
+ - Satan is an astute theologian.
+ - The fire of affliction reveals the quality of our faith.
+ - Our true wisdom is to embrace with meek docility, and without reservation, whatever the holy scriptures have delivered.
+ - In knowing God, each of us also knows himself.
+ - There is no inconsistency in saying that God rewards good works, provided we understand that nevertheless men obtain eternal life gratuitously.
+ - In our good works nothing is our own.
+ - The Scriptures obtain full authority among believers only when men regard them as having sprung from heaven, as if there the living words of God were heard.
+ - It is entirely the work of grace and a benefit conferred by it that our heart is changed from a stony one to one of flesh, that our will is made new, and that we, created anew in heart and mind, at length will what we ought to will.
+ - Since we are all naturally prone to hypocrisy, any empty semblance of righteousness is quite enough to satisfy us instead of righteousness itself.
+ - Against the persecution of a tyrant the godly have no remedy but prayer.
+ - The invention of the arts, and other things which serve the common use and convenience of life, is a gift of God by no means to be despised, and a faculty worthy of commendation.
+ - But a faithful believer will in all circumstances mediate on the mercy and fatherly goodness of God.
+ - Those little children have not yet any understanding to desire His blessing; but when they are presented to Him, He gently and kindly receives them, and dedicates them to the Father by a solemn act of blessing.
+ - Sometimes it seems things go by too quickly. We are so busy watching out for what’s just ahead of us that we don’t take the time to enjoy where we are.
+ - The vices of which we are full we carefully hide from others, and we flatter ourselves with the notion that they are small and trivial; we sometimes even embrace them as virtues.
+ - Prayers belong strictly to the worship of God. Fasting is a subordinate aid, which is pleasing to God no farther than as it aids the earnestness and fervency of prayer.
+ - Can true repentance exist without faith? By no means. But although they cannot be separated, they ought to be distinguished.
+ - Let us not cease to do the utmost, that we may incessantly go forward in the way of the Lord; and let us not despair of the smallness of our accomplishments.
+ - There are babies a span long in hell.
+ - It is evident that man never attains to a true self-knowledge until he has previously contemplated the face of God, and come down after such contemplation to look into himself.
+ - Hence that dread and amazement with which as Scripture uniformly relates holy men were struck and overwhelmed whenever they beheld the presence of God. Men are never duly touched and impressed with a conviction of their insignificance until they have.
+ - It is a sign of a perverse and treacherous disposition to wound the good name of another, when he has no opportunity of defending himself.
+ - The unborn baby, though enclosed in the womb of its mother, is already a human being, and should not be robbed of the life which it has not yet begun to enjoy.
+ - We are nowhere forbidden to laugh.
+ - Because I know that I am not my own master, I offer my heart as a true sacrifice to the Lord.
+ - Whoever shall now contend that it is unjust to put heretics and blasphemers to death will knowingly and willingly incur their very guilt.
+ - The flesh is willing to flatter itself, and many who now give themselves every indulgence, promise to themselves an easy entrance into life. THus men practice mutual deception on each other and fall asleep in wicked indifference.
+ - The highest honor in the church is not government but service.
+ - All things being at God’s disposal, and the decision of salvation or death belonging to him, he orders all things by his counsel and decree in such a manner, that some men are born devoted from the womb to certain death, that his name may be glorified in their destruction.
+ - Our physical illnesses serve us for medicines to purge us from worldly affections and retrench what is superfluous in us, and since they are to us the messengers of death, we ought to learn to have one foot raised to take our departure when it shall please God.
+ - Nothing is more dangerous than to be blinded by prosperity.
+ - To be Christians under the law of grace does not mean to wander unbridled outside the law, but to be engrafted in Christ, by whose grace we are free from the curse of the law, and by whose Spirit we have the law engraved upon our hearts.
+ - The happiness promised us in Christ does not consist in outward advantages-such as leading a joyous and peaceful life, having rich possessions, being safe from all harm, and abounding with delights such as the flesh commonly longs after. No, our happiness belongs to the heavenly life!
+ - Tears that are shed in time of affliction are rarely tears of penitence, but more likely they are shed out of self pity and pain or sorrow.
+ - No man can survey himself without forthwith turning his thoughts towards the God in whom he lives and moves; because it is perfectly obvious, that the endowments which we possess cannot possibly be from ourselves; nay, that our very being is nothing else than subsistence in God alone.
+ - The Lord has given us a table at which to feast, not an altar on which a victim is to be offered; He has not consecrated priests to make sacrifice, but servants to distribute the sacred feast.
+ - The most accomplished in the Scripture are fools, unless they acknowledge that they have need of God for their schoolmaster all the days of their life.
+ - The sufferings of Christ are the means of forgiveness of sin and eternal glory.
+ - Faith is the evidence of divine adoption.
+ - Let this be our rule for goodwill and helpfulness, that whenever we are able to assist others we should behave as stewards who must someday give an account of ourselves.
+ - There is no golden mean between these two extremes; either this early life must become low in our estimation, or it will have our inordinate love.
+ - Satan, who is a wonderful contriver of delusions, is constantly laying snares to entrap ignorant and heedless people.
+ - Where God’s Spirit does not reign, there is no humility, and men ever swell with inward pride.
+ - Whenever the Lord holds us in suspense, and delays his aid, he is not therefore asleep, but, on the contrary, regulates all His works in such a manner that he does nothing but at the proper time.
+ - God tolerates even our stammering, and pardons our ignorance whenever something inadvertently escapes us – as, indeed, without this mercy there would be no freedom to pray.
+ - I have not so great a struggle with my vices, great and numerous as they are, as I have with my impatience. My efforts are not absolutely useless; yet I have never been able to conquer this ferocious wild beast.
+ - Repentance is the true turning of our life to God, a turning that arises from a pure and earnest fear of Him; and it consists in the mortification of the flesh and the renewing of the Spirit.
+ - The one condition for spiritual progress is that we remain sincere and humble.
+ - The door is closed to prayer unless it is opened with the key of trust.
+ - The real proof of spiritual poverty is to patiently endure the loss of worldly goods and without any regret when it pleases our heavenly Father that we should be despoiled of them.
+ - We explain justification simply as the acceptance with which God receives us into his favor as righteous men. And we say that it consists in the remission of sins and the imputation of Christ’s righteousness.
+ - If there had been any unbelief in Mary, that could not prevent God from accomplishing his work in any other way which he might choose. But she is called blessed, because she received by faith the blessing offered to her, and opened up the way to God for its accomplishment.
+ - A man that extols himself is a fool and an idiot.
+ - Hatred grows into insolence when we desire to excel the rest of mankind and imagine we do not belong to the common lot; we even severely and haughtily despise others as our inferiors.
+ - The only right stewardship is that which is tested by the rule of love.
+ - In vain people busy themselves with finding any good of man’s own in his will. For any mixture of the power of freewill that men strive to mingle with God’s grace is nothing but a corruption of grace. It is just as if one were to dilute wine with muddy, bitter water.
+ - There is no group or type of people anywhere in the world that is excluded from salvation, because God desires that the gospel be proclaimed to all without exception.
+ - We should never insult others on account of their faults, for it is our duty to show charity and respect to everyone.
+ - It is not lawful for you to make a compromise with God: to try to fulfill part of your duties and to omit others at your own pleasure.
+ - We are not to reflect on the wickedness of men but to look to the image of God in them, an image which, covering and obliterating their faults, an image which, by its beauty and dignity, should allure us to love and embrace them.
+ - In truth we know by experience that song has great force and vigour to move and inflame the hearts of men to invoke and praise God with a more vehement and ardent zeal.
+ - Unless men establish their complete happiness in God, they will never give themselves truly and sincerely to him.
+ - Doubtful prayer is no prayer at all.
+ - God works in his elect in two ways: inwardly, by his Spirit; outwardly, by his Word.
+ - The torture of a bad conscience is the hell of a living soul.
+ - We shall never be fit for the service of God, if we look not beyond this fleeting life.
+ - But those who wish to prove to unbelievers that Scripture is the Word of God are acting foolishly, for only by faith can this be known.
+ - Again I ask whence it happened that the fall of Adam involved, without remedy, in eternal death so many nations, together with their infant children, except because it so seemed good to God? A decree horrible, I confess, and yet true.
+ - We can experience joy in adverse circumstances by holding God’s benefits in such esteem that the recognition of them and meditation upon them shall overcome all sorrow.
+ - The pastor ought to have two voices: one, for gathering the sheep; and another, for warding off and driving away wolves and thieves. The Scripture supplies him with the means of doing both.
+ - For earthly princes lay aside their power when they rise up against God, and are unworthy to be reckoned among the number of mankind. We ought, rather, utterly to defy them.
+ - There is no wisdom but that which is focused on the fear of God.
+ - We have been adopted as sons by the Lord with this one condition; that our life expresses Christ, the bond of our adoption. Accordingly, unless we give and devote ourselves to righteousness, we not only revolt from our Creator with wicked perfidy, but we also abjure our Savior Himself.
+ - It is a very important consideration that we are consecrated and dedicated to God; it means that we may think, speak, meditate, or do anything only with a view to his glory.
+ - Angels are the dispensers and administrators of the divine beneficence toward us.
+ - If God contains the fullness of all good things in Himself like an inexhaustible fountain, nothing beyond Him is to be sought by those who strike after the highest good and all the elements of happiness.
+ - We are not to look to what men in themselves deserve but to attend to the image of God which exists in all and to which we owe all honor and love.
+ - The Lord has not redeemed you so you might enjoy pleasures and luxuries or so that you might abandon yourself to ease and indolence, but rather so you should be prepared to endure all sorts of evils.
+ - It is amazing how much our lack of trust provokes God if we request of him a boon that we do not expect.
+ - It is a promise which eminently deserves our observation that all who are united to Christ and acknowledge Him to be Christ and Mediator will remain to the end safe from all danger, for what is said of the body of the Church belongs to each of its members since they are one in Christ.
+ - The name of Christ excludes all merit of our own.
+ - Wherefore all theology, when separated from Christ, is not only vain and confused, but is also mad, deceitful, and spurious; for, though the philosophers sometimes utter excellent sayings, yet they have nothing but what is short-lived, and even mixed up with wicked and erroneous sentiments.
+ - Let us consider this settled, that no one has made progress in the school of Christ who does not joyfully await the day of death and final resurrection.
+ - When we hear any mention of our mystical union with Christ, we should remember that holiness is the channel to do it.
+ - This is plainly to ascribe divinity to ‘free will.’
+ - To be pure in heart is to take no delight in cunning, but converse sincerely with men, and express nothing, by word or look, which is not felt in the heart.
+ - To know God as the sovereign disposer of all good, inviting us to present our requests, and yet not to approach or ask of him, were so far from availing us, that it were just as if one told of a treasure were to allow it to remain buried in the ground.
+ - Indeed, a Christian ought to be disposed and prepared to keep in mind that he has to reckon with God every moment of his life.
+ - How can it be said that the weakness of the human will is aided so as to enable it to aspire effectually to the choice of good, when the fact is, that it must be wholly transformed and renewed?
+ - Moreover, a true Christian will not ascribe any prosperity to his own diligence, industry, or good fortune, but he will acknowledge that God is the author of it.
+ - Who will venture to place the authority of Copernicus above that of the Holy Spirit?
+ - Let that ethical philosophy therefore of free-will be far from a Christian mind.
+ - To search for wisdom apart from Christ means not simply foolhardiness but utter insanity.
+ - Concerning our Lord Jesus Christ, we must also be aware that he is our Advocate, and that without him we cannot approach God.
+ - There is no erratic power or action or motion in creatures but they are governed by God’s secret plan in such a way that nothing happens except what is knowingly and willingly decreed by Him.
+ - The only skills I have the patience to learn are those that have no real application in life.
+ - The cross of Christ only triumphs in the breast of believers over the devil and the flesh, sin and sinners, when their eyes are directed to the power of His Resurrection.
+ - Even if this earth is only a vestibule, we ought undoubtedly to make such a use of its blessing that we are assisted rather than delayed in our journey.
+ - So great and boundless is God’s wisdom that he knows right well how to use evil instruments to do good.
+ - Christ’s intercession is the continual application of his death to our salvation.
+ - There are people who are known to be very liberal, yet they never give without scolding or pride or even insolence.
+ - Because the will renewed is the Lord’s work, it is wrongly attributed to man that he obeys prevenient grace with his will as attendant.
+ - Involvement in public life provides the opportunity to shape our manners in accordance with civil justice.
+ - Where is our acknowledgement of God if our thoughts are fixed on the glamour of our garments?
+ - No one has rightly denied himself unless he has wholly resigned himself to the Lord and is willing to leave every detail to his good pleasure. If we put ourselves in such a frame of mind, then, whatever may happen to us, we shall never feel miserable or accuse God falsely because of our lot.
+ - While all men seek after happiness, scarcely one in a hundred looks for it from God.
+ - If people mean that man has in himself the power to work in partnership with God’s grace they are most wretchedly deluding themselves.
+ - Each eye can have its vision separately; but when we are looking at anything our vision, which in itself is divided, joins up and unites in order to give itself as a whole to the object that is put before it.
+ - We must always speak of the efficacy of the ministry in such a manner that the entire praise of the work may be reserved for God alone.
+ - Distinction between virtuous and vicious actions has been engraven by the Lord in the heart of every man.
+ - Original sin, therefore, appears to be a hereditary, depravity and corruption of our nature, diffused through all the parts of the soul, rendering us obnoxious to the divine wrath and producing in us those works which the scripture calls ’works of.
+ - Nearly all the wisdom we possess, that is to say, true and sound wisdom, consists of two parts: the knowledge of God and of ourselves.
+ - That man is truly humble who neither claims any personal merit in the sight of God, nor proudly despises brethren, or aims at being thought superior to them, but reckons it enough that he is one of the members of Christ, and desires nothing more than that the Head alone should be exalted.
+ - He who has learned to look to God in everything he does is at the same time diverted from all vain thoughts.
+ - I have never seen either a drop of piety or a grain of truth or ingenuousness – nay, I have never found common sense in any Jew.
+ - Whether each of the faithful has a particular angel assigned him for his defense, I cannot venture certainly to affirm; not one angel only has the care of every one of us, but that all the angels together with one consent watch over our salvation...
+ - The more closely we see ourselves being watched by our enemies, the more time intent we should be to avoid their slanders.
+ - But the present life should never be hated, except insofar as it subjects us to sin, although even that hatred should not properly be applied to life itself.
+ - Every person, on coming to the knowledge of himself, is not only urged to seek God, but is also led as by the hand to find Him.
+ - There cannot be a surer rule, nor a stronger exhortation to the observance of it, than when we are taught that all the endowments which we possess are divine deposits entrusted to us for the very purpose of being distributed for the good of our neighbour.
+ - When our faith is tested by suffering “as gold is tried in a furnace” and we depend with confidence on God and rely entirely on his help, we will be granted the most excellent gift of patience and through faith we may victoriously persevere to the end.
+ - Faith is tossed about by various doubts, so that the minds of the godly are rarely at peace.
+ - First of all, Scripture draws our attention to this, that if we want ease and tranquility in our lives, we should resign ourselves and all that we have to the will of God, and at the same time we should surrender our affections to him as our Conqueror and Overlord.
+ - All our words ought to be filled with true sweetness and grace; and this will be so if we mingle the useful with the sweet.
+ - For though we very truly hear that the kingdom of God will be filled with splendor, joy, happiness and glory, yet when these things are spoken of, they remain utterly remote from our perception, and as it were, wrapped in obscurities, until that day.
+ - If God does nothing random, there must always be something to learn.
+ - God preordained, for his own glory and the display of His attributes of mercy and justice, a part of the human race, without any merit of their own, to eternal salvation, and another part, in just punishment of their sin, to eternal damnation.
+ - He makes this favor common to all, because it is propounded to all, and not because it is in reality extended to all; for though Christ suffered for the sins of the whole world, and is offered through God’s benignity indiscriminately to all, yet all do not receive him.
+ - They babble and talk absurdly who, in the place of God’s providence, substitute bare permission – as if God sat in a watchtower awaiting chance events, and his judgments thus depended upon human will.
+ - Accursed is that peace of which revolt from God is the bond, and blessed are those contentions by which it is necessary to maintain the kingdom of Christ.
+ - It behooves us to accomplish what God requires of us, even when we are in the greatest despair respecting the results.
+ - There are sons of God who do not yet appear so to us, but now do so to God; and there are those who, on account of some arrogated or temporal grace, are called so by us, but are not so to God.
+ - Mingled vanity and pride appear in this, that when miserable men do seek after God, instead of ascending higher than themselves as they ought to do, they measure him by their own carnal stupidity, and neglecting solid inquiry, fly off to indulge their curiosity in vain speculation.
+ - No man can come to God but by an extraordinary revelation of the Spirit.
+ - If the gospel be not preached, Jesus Christ is, as it were, buried.
+ - Whomever the Lord has adopted and deemed worthy of His fellowship ought to prepare themselves for a hard, toilsome, and unquiet life, crammed with very many and various kinds of evil.
+ - As by the revolt of the first man, the image of God could be effaced from his mind and soul, so there is nothing strange in His shedding some rays of grace on the reprobate, and afterwards allowing these to be extinguished.
+ - It is only the goodness of God sensibly experienced by us which opens our mouth to celebrate His praise.
+ - If true religion is to beam upon us, our principle must be, that it is necessary to begin with heavenly teaching, and that it is impossible for any man to obtain even the minutest portion of right and sound doctrine without being a disciple of Scripture.
+ - Whenever our sins press hard against us, whenever Satan would drive us to despair, we must hold up this shield, that God does not want us to be overwhelmed in everlasting destruction, for He has ordained His Son to be the salvation of the world.
+ - Everyone flatters himself and carries a kingdom in his breast.
+ - Wherever we find the Word of God surely preached and heard, and the sacraments administered according to the institution of Christ, there, it is not to be doubted, is a church of God.
+ - Nobody seriously believes the universe was made by God without being persuaded that He takes care of His works.
+ - Doctrine is not an affair of the tongue but of the life.
+ - We are promised abundance of all good things – yet we are rich only in hunger and thirst. What would become of us if we did not take our stand on hope, and if our heart did not hasten beyond this world!
+ - Faith consists, not in ignorance, but in knowledge, and that, not only of God, but also of the divine will.
+ - To will is human, to will the bad is of fallen nature, but to will the good is of Grace.
+ - Unless we ardently and prayerfully devote ourselves to Christ’s righteousness we do not only faithlessly revolt from our Creator, but we also abjure him as our Savior.
+ - But we have nothing of the Spirit except through regeneration. Everything, therefore, which we have from nature is flesh.
+ - Now we shall possess a right definition of faith if we call it a firm and certain knowledge of God’s benevolence toward us, founded upon the truth of the freely given promise in Christ, both revealed to our minds and sealed upon our hearts through the Holy Spirit.
+ - The principle exercise which the children of god have is to pray. For in this way they give true proof of their faith.
+ - It is not after we were reconciled by the blood of his Son that God began to love us, but before the foundation of the world.
+ - The answer of our prayers is secured by the fact that in rejecting them God would in a certain sense deny His own nature.
+ - Now we must remark, that there are two parts in the Commandment-the first forbids the erection of a graven image, or any likeness; the second prohibits the transferring of the worship which God claims for Himself alone, to any of these phantoms or delusive shows.
+ - The very word baptize, however, signifies to immerse; and it is certain that immersion was the practice of the ancient church.
+ - Thus the woman, who had perversely exceeded her proper bounds, is forced back to her own position. She had, indeed, previously been subject to her husband, but that was a liberal and gentle subjection; now, however, she is cast into servitude.
+ - Free-will cannot will good and of necessity serves sin.
+ - If everything proceeded according to their wishes, they would not understand what it means to follow God.
+ - God is not limited to any person, but calls freely whomsoever He pleases, and bestows on those who are called whatever rewards He thinks fit.
+ - Things that are seen are temporal; things that are unseen are eternal.
+ - Men will never worship God with a sincere heart, or be roused to fear and obey Him with sufficient zeal, until they properly understand how much they are indebted to His mercy.
+ - Seeing God hath thus set us at liberty, what rashness it is for worms of the earth to make new laws; as though God had not been wise enough.
+ - Those who set up a fictitious worship, merely worship and adore their own delirious fancies; indeed, they would never dare so to trifle with God, had they not previously fashioned him after their own childish conceits.
+ - I don’t need to compromise my principles, because they don’t have the slightest bearing on what happens to me anyway.
+ - Scripture points out this difference between believers and unbelievers; the latter, as old slaves of their incurable perversity, cannot endure the rod; but the former, like children of noble birth, profit by repentance and correction.
+ - It is no small honour that God for our sake has so magnificently adorned the world, in order that we may not only be spectators of this beauteous theatre, but also enjoy the multiplied abundance and variety of good things which are presented to us in it.
+ - Scripture urges and warns us that whatever favors we may have obtained from the Lord, we have received them as a trust on condition that they should be applied to the common benefit of the church.
+ - Let us fall before the majesty of our great God, acknowledging our faults, and praying that he will make us ever more conscious of them.
+ - Prosperity inebriates men, so that they take delights in their own merits.
+ - Faith is a knowledge of the benevolence of God toward us, and a certain persuasion of His veracity.
+ - The Fanaticism which discards the Scripture, under the pretense of resorting to immediate revelations is subversive of every principle of Christianity. For when they boast extravagantly of the Spirit, the tendency is always to bury the Word of God so they may make room for their own falsehoods.
+ - Prayer unaccompanied by perseverance leads to no result.
+ - When we know God to be our Father, should we not desire that he be known as such by all? And if we do not have this passion, that all creatures do him homage, is it not a sign that his glory means little to us?
+ - God would remain absolutely hidden if we were not illuminated by the brightness of Christ.
+ - When we come to a comparison of heaven and earth, then we may indeed not only forget all about the present life, but even despise and scorn it.
+ - No one will calmly and quietly submit to bear the cross except those who have learned to seek their happiness beyond this world.
+ - In the maxims of the law, God is seen as the rewarder of perfect righteousness and the avenger of sin. But in Christ, His face shines out, full of grace and gentleness to poor, unworthy sinners.
+ - They who prematurely put themselves forward to root out whatever is displeasing to them overthrow the judgment of God and rashly intrude upon the office of angels.
+ - There is no place for faith if we expect God to fulfill immediately what he promises.
+ - There is also an old proverb, that they who pay much attention to the body generally neglect the soul.
+ - We unjustly defraud God of his right, unless each of us lives and dies in dependence on His sovereign pleasure.
+ - Life is not found in commandments or declarations of penalties, but in the promise of mercy and only in a gratuitous promise.
+ - A perfect faith is nowhere to be found, so it follows that all of us are partly unbelievers.
+ - When we see that the whole sum of our salvation, and every single part of it, are comprehended in Christ, we must beware of deriving even the minutest portion of it from any other quarter.
+ - Unless we endeavor to do good to our neighbor, through our cruelty we transgress this law.
+ - Whensoever God’s truth is defaced or when any man turns away from the pure simplicity of the Gospel, we must not in any wise spare him, but although the whole world should set itself against us, yet must we maintain the case with invincible constancy, without bending for any creature.
+ - Unless God’s Word illumine the way, the whole life of men is wrapped in darkness and mist, so that they cannot but miserably stray.
+ - All whom the Lord has chosen and received into the society of his saints ought to prepare themselves for a life that is hard, difficult, laborious and full of countless griefs.
+ - When we recognize the rod of a father, should we not show ourselves docile children rather than rebelliously desperate men who have been hardened in their evil doings?
+ - We ought always to beware of making the smallest claim for ourselves.
+ - God promised by the mouth of Isaiah that queens should be the nursing mothers of the church...
+ - It cannot be denied that God in choosing and destining Mary to be the Mother of his Son, granted her the highest honor.
+ - The whole comes to this, that Christ, when he produces faith in us by the agency of his Spirit, at the same time ingrafts us into his body, that we may become partakers of all spiritual blessings.
+ - I exhort all, who reverence the Word of the Lord, to read it, and diligently imprint it on their memory.
+ - Prayers will never reach God unless they are founded on free mercy.
+ - The denial of ourselves which Christ has so diligently commanded his disciples from the beginning will at last dominate all the desires of our heart.
+ - All true knowledge of God is born out of obedience.
+
+315 quotes

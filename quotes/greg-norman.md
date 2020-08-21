@@ -1,0 +1,44 @@
+ - I am a winner. I just didn’t win today.
+ - You only get out of it what you put into it. If you are a sheep in this world, you’re not going to get much out of it.
+ - Every time you lose, you think that life’s unfair. You think of the bad breaks. But when you’re winning and playing well, you still get those bad breaks, only you overcome them. It just depends on how strong your mind is.
+ - You create your own luck by the way you play. There is no such luck as bad luck. Fate has nothing to do with success or failure, because that is a negative philosophy that indicts one’s confidence, and I’ll have no part of it.
+ - You expect success, you respect failure.
+ - Know your strengths and take advantage of them...
+ - Happiness is a long walk with a putter.
+ - If you’re serious about improving your play, be brutally honest with yourself.
+ - Let’s do something to wake these people up.
+ - To me I’ve just really, really found a relaxed, peaceful side of my life and I’m enjoying it.
+ - I’m Allergic to grass. Hey, it could be worse. I could be allergic to beer.
+ - Sometimes things work out on the golf course and sometimes they don’t. Life will go on. You try to understand what happens, but maybe today I don’t want to know. I just screwed up so maybe I should just put it behind me.
+ - I’m a very intense person. When I go after something, I want to go after it with everything I have. I want to push myself to the edge.
+ - You don’t throw the baby out with the bathwater, but you want to get rid of the bathwater so the baby can swim the next couple of days and be OK.
+ - When I turned 50, I said to myself, well, if this is what it’s like turning 50, I can’t wait to turn 60 because I still felt very, very mentally and physically good, outside my back surgery.
+ - Setting goals for your game is an art. The trick is in setting them at the right level – neither too low nor too high. A good goal should be lofty enough to inspire hard work, yet realistic enough to provide solid hope of attainment.
+ - It’s not the victories that count to me. It’s the quality of how you deliver your losses and the quality of how you deliver your victories.
+ - I owe a lot to my parents, especially by mother and my father.
+ - Aptitude starts with attitude.
+ - Aggressive play is a vital asset of the world’s greatest golfers. However, it’s even more important to the average player. Attack this game in a bold, confident, and determined way, and you’ll make a giant leap toward realizing your full potential as a player.
+ - I mean, I can actually say goodbye to the game of golf, never hit another golf shot the rest of my life and I’d be happy because I can get back in life without any rotation.
+ - I wouldn’t call it bitter. I think it’s just sweet. I’ve always believed my life seems like it’s gotten better and better as each decade has gone by. So I don’t see any I don’t see any bitterness about it.
+ - When you’re playing poorly, you start thinking too much. That’s when you confuse yourself.
+ - I always wanted to be the best I could be at whatever I did. I didn’t want to be the number one golfer in the world. I just wanted to be as good as I could be.
+ - I would say that it’s quadruple what I’ve had when I’ve won major championships in the past. I’ve gotten faxes and phone calls from all over the world. It’s been overwhelming. It’s really changed my opinion of humanity.
+ - There is no room on the golf course for anger or self-pity.
+ - When you see that many people with a smile on their face, then you must be doing something right.
+ - I’ve always lived to seize the moment, to squeeze every drop of expectation out of myself for whatever that moment gives you.
+ - I can honestly say in my entire career, I’ve never gone around a golf course and not mis-hit a shot, but today I never missed a shot. I hit every driver perfect, every iron perfect. I’m in awe of myself.
+ - Obviously it’s my second senior event, and I’m tired obviously coming back from the British Open, from surgery, which was priority No. 1, did that successfully, and each week since the British Open I’ve felt in pretty good control of my golf game.
+ - So my game is solid. So that obviously makes me feel confident, that like anybody else in this field, you name them, I feel like I’ve got the ability to win the golf tournament just as much as they have, and that’s the way I’m going to take it.
+ - I don’t see myself playing or adjusting my schedule for senior tournament golf.
+ - The game of golf doesn’t come rushing back to you. Last week I made a couple of fundamental mistakes that I probably wouldn’t have made in the heat of the battle back when I was in my heyday, and those things have got to come back.
+ - What’s a good tournament for him? Winning it. He’s good enough.
+ - My doctor asked me how many golf balls I had hit in my career. I’m lying there in bed calculating somewhere between four and five million golf balls I had hit to do that on my body.
+ - Play the shot you’ve got the best chance of playing well.
+ - We’ve got to abide by the rules. We have to protect it. The game of golf at a professional level is so clean. We are our own judge, jury and executioner. If we don’t do what we think is right, the game might get away from us.
+ - Putting is a very personal affair.
+ - Being away for the weekends, and me being the international player that I have been for those 30 years, I’ve spent a lot more time flying around the world, playing different golf tournaments around the world.
+ - Our success is a direct result of knowing how to market a brand and having the right people representing the brand.
+ - Well, I think any national championship is an extremely important championship to play in.
+ - People in this room must have back problems, I’m sure some of us do, and it is really, really one of the worst pains and debilitating parts of your body that you can actually have because you really can’t do anything in your life when you have it.
+
+42 quotes

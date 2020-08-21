@@ -1,0 +1,32 @@
+ - I am an Iranian by birth and of my Islamic faith. I am also an American Citizen and I seek to help change America to be a more Islamic country. My faith guides me and I feel like it is going well in the transition of using freedom of religion in America against itself.
+ - A new era of responsibility is here.
+ - I think that in a country as successful as ours, we still have a long way to go in terms of parity for women, whether it’s equal pay in the workforce or a whole host of other issues.
+ - For those that are working part time, in small businesses, or who are unemployed and do not currently have health insurance, we want to make sure that you are covered.
+ - The last six months of the Bush administration lost four million jobs and the first six months of the Obama administration lost another four million before any initiatives of the president could take action.
+ - Instead of sitting on the sidelines, President Obama has made it clear that the US is ready to lead a global effort to combat climate change.
+ - The long term sustainable growth in job creation comes from the private sector. It is important that the Obama administration partner with the private sector and come up with the best possible ideas for creating jobs.
+ - One of the major goals of health insurance reform is to bring down the cost.
+ - Part of what makes America strong is our resilience, tenacity, innovation and our willingness to be optimistic about our future. I know that President Obama is absolutely the best president to lead our country in the right direction.
+ - The United States is a strong and ardent ally of Israel. The fact of the matter is that friends can disagree. I think what’s important is that world leaders are able to sit down with one another, have frank conversations and move forward.
+ - My goal in the new administration is to engage all of the stakeholders, everyone who can help us meet the challenges of the 21st century, and ensure that we work together.
+ - People are struggling. They’re trying to make ends meet, and they’re looking for Washington to deliver for them. And they don’t feel that that’s been happening as quickly as it should. We share that frustration. There’s no one more frustrated than President Obama.
+ - My daughter is, of course, perfect. Everyone’s child is, but mine really is perfect. But I could not have raised her without my parents. From the time she was seven months until now, I have been a single parent.
+ - The whole issue of healthcare is very complicated. There have been seven Presidents who’ve tried to get healthcare reform passed.
+ - American people aren’t interested in the procedural analysis. What they want is an up and down vote. They deserve an up and down vote on health care.
+ - The Recovery plan will put money in the pockets of the American worker, create and save millions of new jobs and invest in crucial areas such as health care, education, energy independence and a new infrastructure.
+ - The ADA was a landmark civil rights legislation. It was a bill of rights for persons with disabilities, a formal acknowledgement that Americans with disabilities are Americans first and that they’re entitled to the same rights and freedoms as everybody else.
+ - There are certain things that Americans expect their government to do. Our infrastructure is vitally important. Putting people back to work with construction is important. Our roads, our bridges, our sewers, our waterways, our dams – this is what makes our country so special.
+ - We talked about the resources that the justice department has available to help them – the technical assistance to ensure that we’re diffusing situations, not encouraging them to spiral out of control.
+ - Given the daunting challenges that we face, it’s important that president elect Obama is prepared to really take power and begin to rule day one.
+ - If left unchecked, global change will create violent conflict, torrential storms, shrinking coastlines, and irreversible catastrophe.
+ - Financial regulatory reform is one of the top legislative priorities of the Obama Administration.
+ - We know the threats – from global terrorist networks to the spread of deadly weapons. Yet we also know that embedded in this time of danger is the promise of a new day, if we have the courage and commitment to work together.
+ - Our whole philosophy is one of transparency.
+ - The President has been a big proponent of the public option since the campaign.
+ - As we try to compete in this global marketplace, we need to rebuild our infrastructure. We need to rebuild our schools. We need to make sure that teachers and first responders and veterans who are coming home from serving our country so proudly have jobs waiting for them.
+ - President Obama celebrates diversity, yet instinctively seeks common ground and builds on that common ground to make progress.
+ - Please be assured that as we move along through the implementation of health insurance reform, making sure that we find efficiencies within the existing system, is foremost on the President’s mind.
+ - No one will be forced to take the public option. The word option means choice.
+ - I care so passionately about improving the quality of life for women and girls, not just here in the United States, but internationally as well. I am a single mom and I raised a daughter who is now a young adult.
+
+30 quotes

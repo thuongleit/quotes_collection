@@ -1,0 +1,23 @@
+ - I’m a Scorpio, and who knows if there is any validity to it, but I’m very emotional. I have high highs and low lows.
+ - I’m not a Democrat, I’m not a Republican-I’m an American, I’m a human.
+ - Being born in Kansas City, Missouri and raised in the very rural parts of Kansas led me to believe that everything was simple, everything made sense and that anything was possible.
+ - I wish I had a great relationship with my mother.
+ - In the first decade of my life, I came to know and love God, as I was raised in a Christian home and community.
+ - I’ve saved every dime I’ve made in my life.
+ - Human beings are not designed to be alone. None of God’s creatures are.
+ - I felt like a sinful person when I dated men and allowed them to feel for me in a way I knew I could never naturally feel for them. That felt wrong and a lie.
+ - It’s a great feeling to be recognized by your peers. It’s an even better feeling to be welcomed and accepted by country radio and its listeners. If desire is any part of this equation, then I’m a contender!
+ - I’m very much a traditionalist, but I think it’s important to know about tradition so that you can evolve the music you are deciding to make.
+ - I think I’m no different from any artist in music. At least once, you want to see your name up on the top.
+ - I’ve learned a lot about my voice, and about things I can do with it. Maybe that’s why my sound has become a little more pop.
+ - All I ever wanted to do was write songs and get on a bus and go play them for people.
+ - I would like to say when I turn the project over to the label that I have been successful. And that’s truly the way I feel. But, in addition to the self-pride in ‘making’ a good album, to be honest, I’d love to have a hit record.
+ - If I have a hit, then I hope the people who like the hit song go out and buy my album so they can hear it all.
+ - I guess we guess our way through life. How many times do we really know for sure?
+ - If I wanted to be a pop singer, I would have done that 20 years ago. I love country music.
+ - I grew up in a very modest house. We were poor-we lived on the poverty level. We all got jobs as young kids.
+ - I recruited my dad to be my bass player and fired him on several occasions. He stayed on as a bus driver.
+ - I came along at a time when the industry was eating its young.
+ - I’d like my writing to be recognized with a Grammy.
+
+21 quotes

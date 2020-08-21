@@ -1,0 +1,25 @@
+ - I also believe that it’s almost impossible for people to change alone. We need to join with others who will push us in our thinking and challenge us to do things we didn’t believe ourselves capable of.
+ - Hope is a stance, not an assessment.
+ - Individuality doesn’t just mean individualism-standing alone. It means developing one’s unique gifts, and being able to share them for the enjoyment of oneself and others.
+ - For me hope isn’t wishful thinking or blind faith about the future. It’s a stance toward life – one of curiosity and humility.
+ - Every choice we make can be a celebration of the world we want.
+ - Every aspect of our lives is, in a sense, a vote for the kind of world we want to live in.
+ - Hope is not what we find in evidence, it’s what we become in action.
+ - I’m neither an optimist nor a pessimist. I am a dyed-in-the-woo l possibilist! By this, I mean with an eco-mind, we see that everything’s connected and change is the only constant.
+ - I’ve grown certain that the root of all fear is that we’ve been forced to deny who we are.
+ - My whole mission in life is to help us find the power we lack to create the world we want.
+ - The real cause of hunger is the powerlessness of the poor to gain access to the resources they need to feed themselves.
+ - Making conscious choices about what we eat, based on what the earth can sustain and what our bodies need, can help remind us that our whole society must begin to balance sustainable production with human need.
+ - Even the fear of death is nothing compared to the fear of not having lived authentically and fully.
+ - Honest hope has an edge. It’s messy. It requires that we let go of all pat answers, all preconceived formulas, all confidence that our sailing will be smooth. It’s not a resting point. Honest hope is movement.
+ - With an eco-mind, we get ready for surprises, for we realize it’s just not possible to know what’s possible.
+ - The act of putting into your mouth what the earth has grown is perhaps your most direct interaction with the earth.
+ - Democracy is not what we have. It is what we do.
+ - Each of us carries within us a worldview, a set of assumptions about how the world works – what some call a paradigm – that forms the very questions we allow ourselves to ask, and determines our view of future possibilities.
+ - Hunger is a people-made phenomenon, so the central issue is power: the power of those who make the decisions about what is grown and who, or what, it’s grown for.
+ - The notion that economic life is a distinct realm, governed by immutable laws of narrow self-interest, is giving way to a much older notion: economic life is only one strand in the rich web of human relationships.
+ - I believe it is possible that we can turn today’s breakdown into a planetary breakthrough on one condition. We can do it if we can break free of a set of dominant but misleading ideas that are taking us down.
+ - We got hooked on grain-fed meat just as we got hooked on gas guzzling automobiles. Big cars made sense only when oil was cheap; grain-fed meat makes sense only because the true costs of producing it are not counted.
+ - Freedom is not the capacity to do whatever we please; freedom is the capacity to make intelligent choices.
+
+23 quotes

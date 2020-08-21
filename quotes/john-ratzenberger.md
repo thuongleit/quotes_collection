@@ -1,0 +1,26 @@
+ - Find people who share your values, and you’ll conquer the world together.
+ - So many actors have sheer guts, will, and determination; they just need some preparation.
+ - Diabetes affects my family. One of my kids is affected by it.
+ - I’m concerned about the insidious influence of the media’s bad messages that undermine the lessons parents try to instill in their sons and daughters.
+ - A farce, or slapstick humor, does well universally.
+ - From what I can see, too many kids don’t learn pride in their country anymore.
+ - The last thing on my mind was to be an actor, but I had a crush on a cute girl in the drama department, so the best thing for me to do was audition, help out, do carpentry, whatever it took to get me on that project.
+ - I come from Bridgeport, Connecticut and have friends I grew up with there.
+ - You’ve got to write for your audience.
+ - When I go to the garage to pick up my clubs, I clean the spider webs off.
+ - Sure, the comedians who swear or use scatological humor can get laughs, but they’re uncomfortable laughs.
+ - So many people aren’t ready for Hollywood – professionally or practically.
+ - I’ve turned down projects based on raunchiness before.
+ - Hollywood has lost touch with their audience a long time ago.
+ - I always played a soldier, sailor, or policemen.
+ - You’ll be tested every single day.
+ - On my visits back home, if they saw that I was getting a big head, they’d let me know right away.
+ - Before 1972, no actors got residuals. They just got paid. No residuals.
+ - After all, at end of the day, when you’re breathing your last, it’s not your producer, director, or cast mates by your bedside; it’s your children. Keep that in mind.
+ - But from what I can see all around me today, that America is fading fast, if it’s not already gone.
+ - There are times over different projects when I’ve asked the writers why people are swearing for no good reason. I tell them that it would be funnier if there weren’t these swear words.
+ - I’d never been to acting school, so I never thought I’d get this far.
+ - I have been raising money for the past 14 years for diabetes research.
+ - It appalls me that the people who decide what Americans will be watching on the tube have never been to the United States. Not the real United States.
+
+24 quotes

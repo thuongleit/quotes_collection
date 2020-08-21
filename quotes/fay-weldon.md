@@ -1,0 +1,72 @@
+ - If you do nothing unexpected, nothing unexpected happens.
+ - Only one thing registers on the subconscious mind: repetitive application – practice. What you practice is what you manifest.
+ - Nothing happens, and nothing happens, and then everything happens.
+ - The prophets of doom, in my experience, are generally ignored and usually right.
+ - Sound waves do not die out. They travel forever and forever. All our sentences are immortal. Our useless bleatings circle the universe for all eternity.
+ - Marriage is a very difficult relationship for nearly everyone and I’m sure you shouldn’t do it if you want a quiet little easy life.
+ - Much sheer effort goes into avoiding the truth; left to itself, it sweeps in like the tide.
+ - Fiction stretches our sensibilities and our understanding, as mere information never can.
+ - Men are irrelevant. Women are happy or unhappy, fulfilled or unfulfilled, and it has nothing to do with men.
+ - I am an ordinary person, but carried to extremes.
+ - Ask any woman in an arranged marriage. Love is the least stressful way out.
+ - People fail you, children disappoint you, thieves break in, moths corrupt, but an Order of the British Empire goes on for ever.
+ - Be bold, but not too bold. Have courage, but not too much.
+ - Never defend yourself; agree with your critics, it takes the wind out of their sails.
+ - The desire for self-expression afflicts people when they feel there is something of themselves which is not getting through to the outside world.
+ - I was seduced by secrets, which are to true love as artificial sweetener is to sugar, calorie-free but in the long run carcinogenic, not the real thing, and only a peculiar aftertaste in the mouth to tell you so, to warn you.
+ - One must be careful with words. Words turn probabilities into facts and by sheer force of definition translate tendencies into habits.
+ - Words are not simple things: they take unto themselves, as they have through time, power and meaning...
+ - A woman has all too much substance in a man’s eyes at the best of times. That is why men like women to be slim. Her lack of flesh negates her. The less of her there is, the less notice he need take of her. The more like a male she appears to be, the safer he feels.
+ - Widows tend either to fade away when husbands die, committing emotional suttee, or else find that a new life burgeons. Here in Christchurch, a lot of burgeoning goes on.
+ - To the happy all things come: happiness can even bring the dead back to life. It is our resentments, our dreariness, our hate and envy, unrecognized by us, which keeps us miserable. Yet these things are in our heads, not out of our hands; we own them. We can throw them out if we choose.
+ - Fiction, on the whole, and if it is any good, tends to be a subversive element in society.
+ - We shelter children for a time; we live side by side with men; and that is all. We owe them nothing, and are owed nothing. I think we owe our friends more, especially our female friends.
+ - There is probably an innate masochism in a lot of women that ends up disappointed if men don’t ill-treat them.
+ - If infinity is as they describe it, all things are not just possible but in the end certain...
+ - One can learn, at least. One can go on learning until the day one is cut off.
+ - Poverty is a stubborn thing: you seldom escape it with one bound.
+ - Beauty is the first present nature gives to women and the first it takes away.
+ - If you put a woman in a man’s position, she will be more efficient, but no more kind.
+ - All mothers love their own children as best they can, according to their temperament and circumstances, and all mothers should have done better, in their children’s eyes, when the going gets tough for the children.
+ - Style is what’s there when you look at someone’s writing and you know that they wrote it and nobody else did.
+ - Writing is more than just the making of a series of comprehensible statements: it is the gathering in of connotations; the harvesting of them, like blackberries in a good season, ripe and heavy, snatched from among the thorns of logic.
+ - Writing is an act of generosity toward other people.
+ - I didn’t even know I was a feminist until I read it on the back of one of my own books.
+ - Pride is what you can afford or think you can afford.
+ - I like the dry-cleaners. I like the sense of refreshment and renewal. I like the way dirty old torn clothes are dumped, to be returned clean and wholesome in their slippery transparent cases. Better than confesssion any day. Here there is a true sense of rebirth, redemption, salvation.
+ - As it has turned out, the whole relationship between men, women and children has tilted, to the disadvantage of women.
+ - Of course you have to believe in destiny; that everything is sheer chance is an intolerable notion.
+ - If I am a prolific writer and turn my hand, with what seems to some as indecent haste, from novels to screenplays to stage and radio plays, it is because there is so much to be said, so few of us to say it, and time runs out.
+ - When today’s young woman says she isn’t a feminist what she means is she isn’t a lesbian and she doesn’t hate men, she likes to wear make-up and she enjoys a laugh. In which she is no different from many an early feminist.
+ - One friend dies and we remain indifferent; another dies, perhaps less intimate, and we see ourselves as dead, and weep, mourn, tear our hair or find ourselves caught up in the madness of the wake, competing with others as to who was closest, now suffers most.
+ - If you wake up in the morning with a great sense of the things that have to be done in the day in order to get through to the next day, you lose the sense of the day as any kind of end in itself.
+ - My experience of men in cars has always been that if you don’t want them to do something, they will. It is when they are behind a wheel that they most fear the control of women and children.
+ - The peculiar need to write is increased, it seems, rather than allayed with practice.
+ - Take me! Well, not quite take me, love me now, take me eventually.
+ - What makes women happy? Nothing, for more than ten minutes at a time, so stop worrying.
+ - Poetry, I thought then, and still do, is a matter of space on the page interrupted by a few well-chosen words, to give them importance. Prose is a less grand affair which has to stretch to the edges of the page to be convincing.
+ - You will find that women who are pregnant often don’t want to be and women who aren’t desperately envy those who are. Labour wards are always full of very punitive people.
+ - Writers are always a great nuisance to publishers. If they could do without them, they would.
+ - There was no such thing as defeat if you didn’t accept it.
+ - I know that I’m a real writer because sometimes I write a story just because I want to; not because someone’s told me to.
+ - Nowadays most people wear black most of the time anyway: go to a literary party and one would imagine everyone there was in perpetual mourning for their lives.
+ - For that is what a child should be, and seldom is, the product of man and woman, of opposing natures, unified, however temporarily, by the amazing, circling, weaving dance of love and lust and God’s involvement in it.
+ - Food is the supremest of pleasures.
+ - People hear what they want and expect to hear, not what is said.
+ - No one seemed able to look at themselves, coolly, from the outside. Their reality was all that could be seen in the light cast ahead by their own wishful thinking.
+ - How has anyone ever understood anyone, except through love, which is wordless?
+ - Prudence says one thing, desire says another, and I’d rather go with desire any time.
+ - No one should be allowed to give back the gift of life, unless they are very old and full of tears, when the body outlives the spirit, when they should be allowed to join the others who’ve already gone.
+ - Marriage is what happens when one at least of the partners doesn’t want the other to get away.
+ - Ambition will, and should, always outstrip achievement.
+ - I was always furious because you couldn’t take out more than three books in one day. You would go home with your three books and read them and it would still be only five o’clock. The library didn’t shut till half past, but you couldn’t change the books till the next day.
+ - I am not cynical. I am just old. I know what is going to happen next.
+ - Because one cause is bad does not make the opposing cause good.
+ - There is no real escape from autobiography into biography. The self has to be faced, or we die.
+ - Man seems not so much wicked as frail, unable to face pain, trouble and growing old. A good woman knows that nature is her enemy. Look at what it does to her.
+ - Writers were never meant to be professionals. Writing is not a profession, it is an activity, an essentially amateur occupation. It is what you do when you are not living.
+ - One sort of believes in recycling. But one believes in it as a kind of palliative to the gods.
+ - A ‘weakness,’ I now realize, is nothing but a strength not properly developed.
+ - Confidence is something one acquires. It can come early or late but it is impossible to write without it. Mine came late.
+
+70 quotes

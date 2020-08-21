@@ -1,0 +1,33 @@
+ - Canada is the homeland of equality, justice and tolerance.
+ - The election is not a time to discuss serious issues.
+ - If you never encounter anything in your community that offends you, then you are not living in a free society.
+ - I have always believed governments must adapt to the needs of the people, not the other way around.
+ - Since the end of the Second World War, our population has more than doubled to 27 million people.
+ - There are certain things in gun control that have a certain public appeal, but when you’re legislating you need to look at the research on what works, what doesn’t, and what really has an impact, recognizing you’re never going to do away entirely with gun violence.
+ - An increasing number of Canadians must juggle the demands of work with the need to care for children, or for family members who are ill or too frail to care for themselves. Our programs have simply not kept pace with these societal changes.
+ - We now know that unity, the cornerstone of Canada’s greatness and prosperity, is above all a matter of emotion and reason for every citizen.
+ - Canadians want to see real hope restored, not false hopes raised.
+ - We plan to lift the veil of secrecy surrounding the preparation of the budget. We also plan to open up the process of government appointments.
+ - For people on social assistance, the loss of free dental care, prescription drugs and subsidized housing can greatly outweigh additional income from working. We’ve all heard the stories.
+ - Religion gets in the way of morality.
+ - Canadians know that our difficulties will not be resolved overnight. They are tired of politicians who pretend they will be.
+ - Our first Prime Minister saw a country that would be known for its generosity of spirit. And so it is.
+ - I know Quebecers don’t want to relive old battles; they prefer to build for the future.
+ - For me, unemployment and poverty in the Greater Montreal area is not mainly a problem of structure, or design, or statistics. It is a profoundly human situation.
+ - To suggest that Quebecers willingly give up the chance to exercise fully their influence within the federal government would be to betray the historical role Quebec has always played in Confederation, and to undermine the legitimacy of their pride and ambitions.
+ - Quebecers have rarely in their history been better represented than they are right now-at the highest levels of the federal government.
+ - I’d be prouder still to say I was Canada’s 10th woman prime minister.
+ - Government cannot and must not replace private initiative.
+ - We Canadians are not given as a people to great patriotic displays.
+ - For too many, to work means having less income.
+ - I believe it is time for new leadership that is able to leave the ’70s behind.
+ - Progressive Conservative candidates from Quebec want to exert real power in Ottawa, not simply be content with playing a secondary role.
+ - It would be naive to imagine we have solved all our income security problems simply because the roles of the federal and provincial governments in the area of skills training have been clarified.
+ - In all modesty, we must admit that governments are not always the best doctors when it comes to diagnosing economic ailments and prescribing the right treatment.
+ - I believe that Canadians have the common sense to see that a better future cannot be built on fragmentation.
+ - On the same day I was sworn in as Prime Minister of Canada, I announced the most sweeping reform ever undertaken in the structure of our federal government.
+ - There is no greater honour than to serve Canadians.
+ - Governments allocate enormous resources for social programs. And it is true that for many years we have had one of the best social service systems in the world. Yet we are still incapable of meeting the needs of tens of thousands of Canadian families.
+ - For over 20 years, the federal and provincial governments have made enormous efforts employing a variety of approaches in an attempt to stimulate Montreal’s economy.
+
+31 quotes

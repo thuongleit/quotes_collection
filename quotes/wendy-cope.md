@@ -1,0 +1,22 @@
+ - There are so many kinds of awful men One can’t avoid them all. She often said She’d never make the same mistake again: She always made a new mistake instead.
+ - I used to think all poets were Byronic Mad, bad and dangerous to know. And then I met a few. See Lamb 486:25.
+ - Write to amuse? What an appalling suggestion! I write to make people anxious and miserable and to worsen their indigestion.
+ - I always tell students that writing a poem and publishing it are two quite separate things, and you should write what you have to write, and if you’re afraid it’s going to upset someone, don’t publish it.
+ - Bloody men are like bloody buses – you wait for about a year and as soon as one approaches your stop two or three others appear.
+ - Never trust a journalist.
+ - My heart has made its mind up And I’m afraid it’s you. Whatever you’ve got lined up, My heart has made its mind up And if you can’t be signed up This year, next year will do. My heart has made its mind up And I’m afraid it’s you.
+ - Some socks are loners They can’t live in pairs.
+ - Bloody Christmas, here again, let us raise a loving cup, peace on earth, goodwill to men, and make them do the washing up.
+ - The reason modern poetry is difficult is so that the poet’s wife cannot understand it.
+ - My heart has made its mind up And I’m afraid it’s you.
+ - I’ve said what I’m prepared to say in my poems, and then journalists think that you’re going to tell them a whole lot more.
+ - When a poem doesn’t work, the first question to ask yourself is, ‘Am I telling the truth?’
+ - Possibly I’ve become less funny as I’ve been happier.
+ - In my case, the long gaps between my books have got quite a lot to do with lack of confidence. A lot of the time when I’m not writing I start thinking I can’t do it.
+ - I think it’s a question which particularly arises over women writers: whether it’s better to have a happy life or a good supply of tragic plots.
+ - I like buying clothes, especially as I get a tax-deductible allowance.
+ - I’ve never been more famous than I was, suddenly, in 1986.
+ - I have a theory that if you’ve got the kind of parents who want to send you to boarding school, you’re probably better off at boarding school.
+ - The interesting thing is that you don’t often meet a poet who doesn’t have a sense of humour, and some of them do keep it out of their poems because they’re afraid of being seen as light versifiers.
+
+20 quotes

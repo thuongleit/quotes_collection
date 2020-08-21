@@ -1,0 +1,52 @@
+ - When you are hunting elephants, don’t get distracted chasing rabbits.
+ - A plan without action is not a plan. It’s a speech.
+ - A Fool with a Plan is better off than a Genius without a Plan!
+ - I know what people say, that water’s a lot like air. Do you charge for air? Well, of course not. Well, you shouldn’t charge for water. Okay, watch what happens you won’t have any water.
+ - Work hard. Come early, stay late. That’s the way leadership has to approach it.
+ - Predictability can lead to failure.
+ - Work eight hours and sleep eight hours, and make sure that they are not the same eight hours.
+ - When you blow away the foam, you get down to the real stuff.
+ - If you’re on the right side of the issue, just keep driving until you hear glass breaking. Don’t quit.
+ - Fundamentals make the market.
+ - The older I get, the more I see a straight path where I want to go. If you’re going to hunt elephants, don’t get off the trail for a rabbit.
+ - Natural gas is the best transportation fuel. It’s better than gasoline or diesel. It’s cleaner, it’s cheaper, and it’s domestic. Natural gas is 97 percent domestic fuel, North America.
+ - The first billion is a helluva lot harder.
+ - Never Googled myself. I use a computer for market quotes and news, but I’ve never Googled myself. But I have visited their headquarters.
+ - Money is to be respected one of the worst things you can do is handle another person’s money without respect for how hard it was to earn.
+ - A dollar is not worth as much as you think it is. Your honesty is worth much more.
+ - I fracked over 3,000 wells in my life and never had a problem with an aquifer.
+ - If somebody I don’t like gets in the crosshairs, I pull the trigger. But I don’t hunt for them.
+ - I’m a Republican. I don’t want to go to heaven and have to face my family up there and tell them I voted for a Democrat.
+ - In the history of America, we’ve never had an energy plan. We don’t even realize the resources that we have available to us.
+ - Far too many executives have become more concerned with the four P’s – pay, perks, power and prestige – rather than making profits for shareholders.
+ - If you don’t have a refinery operating, it’s hard to use oil that’s available.
+ - Keep things informal. Talking is the natural way to do business. Writing is great for keeping records and putting down details, but talk generates ideas. Great things come from out luncheon meetings which consist of a sandwich, a cup of soup, and a good idea or two. No martinis.
+ - Chief executives, who themselves own few shares of their companies, have no more feeling for the average stockholder than they do for baboons in Africa.
+ - It has become cheaper to look for oil on the floor of the New York Stock Exchange than in the ground.
+ - I think I have more patience now than I did in the past.
+ - To me, emails are a little bit frustrating. I think that the telephone is much preferred because you get the sound of the voice and the interest and everything else you can’t see in an email.
+ - When you look at a commodities market you need hedgers and speculators. If you don’t have one, you don’t have a market. That’s how it works.
+ - For decades, our dependence on OPEC oil has dictated our national security decisions and tied us up in the Middle East at an incredible price. We’ve spent more than $5 trillion and thousands of American soldiers have died securing Middle East oil.
+ - I don’t go looking for somewhere to spend my money. You can step on a tube of toothpaste for a week, if you have to. I spend what I need to and give it away.
+ - I’ve been married over 50 years of my life.
+ - I never did anything dishonest.
+ - I always saw myself as a large stockholder trying to make a difference. I wasn’t raiding anybody.
+ - You want to compete, and you want to compete at the highest level.
+ - I don’t like stock buybacks. I think if a company has the money to buy their stock back, then they should take that and increase the dividends. Send it back to the stockholder. Let them invest their money again from the dividends.
+ - If you can provide the funding and you get the leadership, you’ll have a competitive team.
+ - I’ve got an opinion on everything.
+ - I’m focused on energy only. And I know what I’m talking about. And I don’t want to be distracted on other things.
+ - Try everything. Do everything. Nuclear. Biomass. Coal. Solar. You name it. I support them all.
+ - I don’t go cheap on anything, but I’m not a shopper. If I want something, I look at it, decide what it is, but it will usually be the best product. I’ve got a pair of loafers that I still wear that I got in 1957.
+ - There is no free market for oil.
+ - I don’t need any more money.
+ - On a scale from 1-10, my ambition is probably 11 or 12.
+ - I’ve always believed that it’s important to show a new look periodically. Predictability can lead to failure.
+ - We’re going to have shortages and prices are going to go up. Gasoline is going to be extremely tight for us.
+ - I don’t think for a minute we went to Iraq for oil. It just so happened that it had oil. But I think we’ll come out of the Iraqi situation with a call on their oil at market price.
+ - I don’t believe in a price on carbon, because the government is going to control it and they’re going to fail.
+ - Don’t get the idea that I’ve turned green. My business is making money, and I think this is going to make a lot of money.
+ - You give the money where you want it.
+ - I was very fortunate in my gene mix. The gambling instincts I inherited from my father were matched by my mother’s gift for analysis.
+
+50 quotes

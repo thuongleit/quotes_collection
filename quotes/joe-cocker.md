@@ -1,0 +1,29 @@
+ - Love lift us up where we belong.
+ - You’re everything I hope for. You’re everything I need. You are so beautiful to me.
+ - Oooh I get by with a little help from my friends.
+ - I have one message for young musicians around the world. Stay true to your heart, believe in yourself, and work hard.
+ - It’s interesting, as I said on the last tour in America, the audience actually came out, they had to have been the kind of fans who listened to my music via their parents, you know what I mean?
+ - Making music, if youre a real musician, you carry on, regardless in this world.
+ - I had a job when I was 16 at a gas fitter, which was a bit like a pipe fitter.
+ - Well, over the years, I’ve developed a stable of songs of which I’m known for and never get tired of singing.
+ - Don’t go on American Idol, I think you’ll spend the rest of your life living it down and I think it’s getting kinda scary, isn’t it?
+ - God, I’m just a fat bald guy, 60 years old, singing the blues, you know?
+ - Well, we have this place in Telluride, Colorado. Its somewhere I can just get away and relax and think.
+ - I was in Germany when the wall came down.
+ - I love songs that have a rocking and grooving feeling.
+ - Once you get into entertaining a quarter of a million people, it’s a very weird place to be.
+ - I would like to be able to do a song with Ray Charles, before we both get too old.
+ - For me, the focus are songs, which really get the audience moving.
+ - I think to be a good songwriter, you have to be able to play an instrument.
+ - I only look at things in a short term of a few years, but admittedly, I reevaluate what I’m doing, and whether I want to continue touring or not.
+ - It’s all a matter of hearing what I like and seeing if I can make it fit into my style.
+ - Over the years, Ive worked with just about everybody.
+ - I have always been a sucker for ballads, but you have to be careful these days, you can’t overload people.
+ - The world is a tougher place to live in than it was back then, as we come into the computer age.
+ - It’s nice to get a response from the artists that I cover.
+ - I have sung to large crowds since then, and there is a feeling that once you get over 100,000 people, you kind of lose the control element, you don’t know if you are really getting through or not.
+ - Europe is usually where I am usually galloping around.
+ - Ive been touring now since about 68.
+ - Yeah, one of the main ways is for songs that make me want to move.
+
+27 quotes

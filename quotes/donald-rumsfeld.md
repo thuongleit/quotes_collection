@@ -1,0 +1,176 @@
+ - There are known knowns. These are things we know that we know. There are known unknowns. That is to say, there are things that we know we don’t know. But there are also unknown unknowns. There are things we don’t know we don’t know.
+ - You go to war with the army you have, not the army you might want or wish to have at a later time.
+ - Think ahead. Don’t let day-to-day operations drive out planning.
+ - Be precise. A lack of precision is dangerous when the margin of error is small.
+ - Remember where you came from.
+ - If you are not criticized, you may not be doing much.
+ - If you can’t solve a problem, make it bigger.
+ - Don’t blame the boss. He has enough problems.
+ - You might be a cunning linguist, but I am a master debater.
+ - The worst mistake is to have the best ladder and the wrong wall.
+ - No. That’s someone else’s business. Quagmire is – I don’t do quagmires.
+ - I would not say that the future is necessarily less predictable than the past. I think the past was not predictable when it started.
+ - The absence of evidence is not necessarily the evidence of absence.
+ - Strive to make proposed solutions as self-executing as possible. As the degree of discretion increases, so too does bureaucracy, delay, and expense.
+ - Sausage making and policy-making shouldn’t be seen close-up.
+ - Now, settle down, settle down. Hell, I’m an old man, it’s early in the morning and I’m gathering my thoughts here.
+ - When starting at the bottom, be willing to learn from those at the top.
+ - If you are working from your inbox, you are working on other people’s priorities.
+ - If in doubt, don’t. If still in doubt, do what’s right.
+ - Don’t divide the world into “them” and “us.”
+ - Be yourself. Follow your instincts. Success depends, at least in part, on the ability to ‘carry it off.’
+ - Success tends to go not to the person who is error-free, because he also tends to be risk-averse. Rather it goes to the person who recognizes that life is pretty much a percentage business. It isn’t making mistakes that’s critical; it’s correcting them and getting on with the principal task.
+ - You’re thinking of Eurpoe as Germany and France. I don’t. I think that’s old Europe.
+ - Death has a tendency to encourage a depressing view of war.
+ - In unanimity there may well be either cowardice or uncritical thinking.
+ - Prune – prune businesses, products, activities, people. Do it annually.
+ - What will follow will not be a repeat of any other conflict. It will be of a force and scope and scale that has been beyond what has been seen before.
+ - I believe what I said yesterday. I don’t know what I said, but I know what I think and I assume it’s what I said.
+ - I don’t do quagmires.
+ - If I know the answer I’ll tell you the answer, and if I don’t, I’ll just respond, cleverly.
+ - Don’t speak ill of your predecessors or successors. You didn’t walk in their shoes.
+ - There’s another way to phrase that and that is that the absence of evidence is not the evidence of absence. It is basically saying the same thing in a different way. Simply because you do not have evidence that something does exist does not mean that you have evidence that it doesn’t exist.
+ - Imagine, a September 11 with weapons of mass destruction. It’s not 3,000. It’s tens of thousands of innocent men, women and children.
+ - When you’re skiing, if you’re not falling you’re not trying.
+ - In our system leadership is by consent, not command. To lead a President must persuade. Personal contacts and experiences help shape his thinking. They can be critical to his persuasiveness and thus to his leadership.
+ - Don’t ‘over-control’ like a novice pilot. Stay loose enough from the flow that you can observe it, modify, and improve it.
+ - The country cannot afford amateur hour in the White House.
+ - Have a deputy and develop a successor. Don’t be consumed by the job or you’ll risk losing your balance. Keep your mooring lines to the outside world – family, friends, neighbors, people out of government, and people who may not agree with you.
+ - Arguments of convenience lack integrity and inevitably trip you up.
+ - Don’t necessarily avoid sharp edges. Occasionally they are necessary to leadership.
+ - Amidst all the clutter, beyond all the obstacles, aside from all the static, are the goals set. Put your head down, do the best job possible, let the flak pass, and work towards those goals.
+ - There are a lot of people who lie and get away with it, and that’s just a fact.
+ - Oh my goodness gracious, what you can buy off the Internet in terms of overhead photography. A trained ape can know an awful lot of what is going on in this world, just by punching on his mouse, for a relatively modest cost.
+ - The dead-enders are still with us, those remnants of the defeated regimes who’ll go on fighting long after their cause is lost.
+ - Reduce the number of lawyers. They are like beavers – they get in the middle of the stream and dam it up.
+ - If in doubt, move decisions up to the President.
+ - Simply stated, there is no doubt that Saddam Hussein now has weapons of mass destruction.
+ - When I served as US Ambassador to NATO in the 1970s, the center of gravity in Europe was France and Germany.
+ - Beware when any idea is promoted primarily because it is “bold, exciting, innovative, and new.” There are many ideas that are “bold, exciting, innovative and new,” but also foolish.
+ - We know where they are. They are in the area around Tikrit and Baghdad.
+ - Five days or five months, but it certainly isn’t going to last longer.
+ - If a person is determined to fight to the death, then they may very well have that opportunity.
+ - The purpose of terrorism is to terrorize. It’s to change the behavior of the people that are being terrorized.
+ - Enjoy your time in public service. It may well be one of the most interesting and challenging times of your life.
+ - Well, so be it. Nothing’s perfect in life, so you have an election that’s not quite perfect. Is it better than not having an election? You bet.
+ - Treat each federal dollar as if it was hard earned; it was – by a taxpayer.
+ - Any country on the face of the Earth with an active intelligence program knows that Iraq has weapons of mass destruction.
+ - The United States, as all you know, did not come to Iraq for oil, not to occupy. We came here only to help.
+ - I suppose the implication of that is the president and the vice president and myself and Colin Powell just fell off a turnip truck to take these jobs.
+ - Those who made the decisions with imperfect knowledge will be judged in hindsight by those with considerably more information at their disposal and time for reflection.
+ - We never believed that we’d just tumble over weapons of mass destruction in that country.
+ - From where you sit, the White House may look as untidy as the inside of a stomach. As is said of the legislative process, sausage-making and policy-making shouldn’t be seen close-up. Don’t let that panic you. Things may be going better than they look from the inside.
+ - I cannot give any assurances. I’m not in that business. I haven’t been, and I don’t intend to get into it. People who try to make predictions about things or assurances often find they’re wrong.
+ - The most underestimated risk for a politician is overexposure.
+ - Don’t divide the world into ‘them’ and ‘us.’ Avoid infatuation with or resentment of the press, the Congress, rivals, or opponents. Accept them as facts. They have their jobs and you have yours.
+ - Don’t be a bottleneck. If a matter is not a decision for the President or you, delegate it. Force responsibility down and out. Find problem areas, add structure and delegate. The pressure is to do the reverse. Resist it.
+ - It is easier to get into something than to get out of it.
+ - Secretary Powell and I agree on every single issue that has ever been before this administration except for those instances where Colin’s still learning.
+ - If there are people who yearn for the days when Saddam Hussein was in power, then I am not among them.
+ - Your performance depends on your people. Select the best, train them and back them. When errors occur, give sharper guidance. If errors persist or if the fit feels wrong, help them move on. The country cannot afford amateur hour in the White House.
+ - Watch the growth of middle level management. Don’t automatically fill vacant jobs. Leave some positions unfilled for 6-8 months to see what happens. You will find you won’t need to fill some of them.
+ - Test ideas in the marketplace. You learn from hearing a range of perspectives. Consultation helps engender the support decisions need to be successfully implemented.
+ - I am going to leave the future of Europe to the Europeans.
+ - The implication that there was something wrong with the war plan is amusing.
+ - If you try to please everybody, somebody’s not going to like it.
+ - Control your time. If you’re working off your in-box, you’re working off the priorities of others. Be sure the staff is working on what you move to them from the President, or the President will be reacting, not leading.
+ - First rule of politics: you can’t win unless you’re on the ballot. Second rule: If you run, you may lose. And, if you tie, you do not win.
+ - Be able to resign. It will improve your value to the President and do wonders for your performance.
+ - When someone with a rural accent says, “I don’t know much about politics,” zip up your pockets.
+ - If a prospective Presidential approach can’t be explained clearly enough to be understood well, it probably hasn’t been thought through well enough. If not well understood by the American people, it probably won’t ‘sail’ anyway. Send it back for further thought.
+ - When business accepts help from the government, it can be like going to bed with a hippopotamus. It’s nice and warm for the moment, but then your bedmate rolls over and crushes you.
+ - America is not what’s wrong with the world.
+ - When cutting staff at the Pentagon, don’t eliminate the thin layer that assures civilian control.
+ - Oh, Lord. I didn’t mean to say anything quotable.
+ - If you foul up, tell the President and correct it fast. Delay only compounds mistakes.
+ - After the German abstention at the UN, Foreign Minister Guido Westerwelle commented that Germany doesn’t always have to stand on the side of its traditional allies. Berlin can look for new partners all over the world.
+ - You can have a broad popular democracy movement and have it end being taken over by the most vicious people and the result is you don’t end up with free political systems or free economic systems, you end up with a handful of radicals controlling the country.
+ - NATO member states vary dramatically in their capability and in their political steadfastness.
+ - I tend over the years to have developed a certain hesitancy about believing that headlines tell the whole story.
+ - Every president when he is elected has to live with the pluses and minuses his predecessor leaves, which includes benefits as well as burdens.
+ - A large number of people to begin crawling through those tunnels and caves looking for the bad folks.
+ - When there happens to be a weapon of mass destruction suspect site in an area that we occupy and if people have time, they’ll look at it.
+ - Don’t say ‘the White House wants.’ Buildings can’t want.
+ - Most US presidents since World War II have led military actions without a declaration of war by Congress, though most, if not all, have properly consulted and sought support from Congress. That is the wise thing to do.
+ - It’s a difficult thing today to be informed about our government even without all the secrecy.
+ - And there is, I am certain, among the Iraqi people a respect for the care and the precision that went into the bombing campaign.
+ - Public servants are paid to serve the American people. Do it well.
+ - When you raise issues with the President, try to come away with both that decision and also a precedent. Pose issues so as to evoke broader policy guidance. This can help to answer a range of similar issues likely to arise later.
+ - Don’t automatically obey Presidential directives if you disagree or if you suspect he hasn’t considered key aspects of the issue.
+ - Walk around. If you are invisible, the mystique of the President’s office may perpetuate inaccurate impressions about you or the President, to his detriment. After all, you may not be as bad as they’re saying.
+ - Do I Have any Regrets? Of Course I Do.
+ - General Boykin has requested that an inspector general review this matter. And I have indicated that if that’s his request, I think it’s appropriate.
+ - If the staff lacks policy guidance against which to test decisions, their decisions will be random.
+ - Leave the President’s family business to him. You will have plenty to do without trying to manage the First Family. They are likely to do fine without your help.
+ - The press always wants to know how many people will be killed or how much it will cost, but the answers to those questions are not knowable.
+ - At 78 years old, I am not surprised at much anymore. Germany has taken divergent positions before, so has France, so has England, so has the US.
+ - Find ways to decentralize. Move decision making authority down and out. Encourage a more entrepreneurial approach.
+ - Look for what’s missing. Many advisors can tell a President how to improve what’s proposed or what’s gone amiss. Few are able to see what isn’t there.
+ - Certainty without power can be interesting, even amusing. Certainty with power can be dangerous.
+ - In the execution of Presidential decisions work to be true to his views, in fact and tone.
+ - I can’t tell you if the use of force in Iraq today will last five days, five weeks or five months, but it won’t last any longer than that.
+ - Then there are three or four countries that have said they won’t do anything. I believe Libya, Cuba and Germany are ones that have indicated they won’t help in any respect.
+ - Don’t do or say things you would not like to see on the front page of The Washington Post.
+ - Inspectors do not have the duty or the ability to uncover terrible weapons hidden in a vast country. The responsibility of inspectors is simply to confirm evidence of voluntary and total disarmament. Saddam Hussein has the responsibility to provide that evidence, as directed, and in full.
+ - If you develop rules, never have more than ten.
+ - I stand for 8-10 hours a day. Why is standing limited to four hours?
+ - The Cold War was a war, and we won it.
+ - I don’t believe anyone that I know in the administration ever said that Iraq had nuclear weapons.
+ - You will launch many projects, but have time to finish only a few. So think, plan, develop, launch and tap good people to be responsible. Give them authority and hold them accountable. Trying to do too much yourself creates a bottleneck.
+ - The price of being close to the President is delivering bad news. You fail him if you don’t tell him the truth. Others won’t do it.
+ - The success of an organization will depend on the people you surround yourself with.
+ - Look at me! I’m sweet and lovable!
+ - Learn to say ‘I don’t know.’ If used when appropriate, it will be often.
+ - Don’t accept the post or stay unless you have an understanding with the President that you’re free to tell him what you think “with the bark off” and you have the courage to do it.
+ - The Secretary of Defense is not a super General or Admiral. His task is to exercise civilian control over the Department for the Commander-in-Chief and the country.
+ - Let your family, staff, and friends know that you’re still the same person, despite all the publicity and notoriety that accompanies your position.
+ - Move decisions out to the Cabinet and agencies. Strengthen them by moving responsibility, authority, and accountability their direction.
+ - Every country should be tired of going to war. War is a terrible thing. If I had been in Congress, as much as I would be inclined naturally to be supportive of a president, any president, I would have voted no, had the issue come to a vote.
+ - Plan backwards as well as forward. Set objectives and trace back to see how to achieve them. You may find that no path can get you there. Plan forward to see where your steps will take you, which may not be clear or intuitive.
+ - There will be good moments, and there will be less good moments.
+ - Preserve the President’s options. He may need them.
+ - Congress, the press, and the bureaucracy too often focus on how much money or effort is spent, rather than whether the money or effort actually achieves the announced goal.
+ - There is no question but that when one is engaged militarily that there are going to be unintended loss of life.
+ - The Federal Government should be the last resort, not the first. Ask if a potential program is truly a federal responsibility or whether it can better be handled privately, by voluntary organizations, or by local or state governments.
+ - There are a lot of things that are said by people in the military, or civilian life, or in the Congress, or in the Executive Branch, that are their views. And that’s the way we live. We’re a free people. And that’s the wonderful thing about our country.
+ - One of your tasks is to separate the ‘personal’ from the ‘substantive.’ The two can become confused, especially if someone rubs the President wrong.
+ - See that the President, the Cabinet and staff are informed. If cut out of the information flow, their decisions may be poor, not made, or not confidently or persuasively implemented.
+ - They may have had time to destroy them, and I don’t know the answer.
+ - Being Vice President is difficult. Don’t make it tougher.
+ - When asked for your views, by the press or others, remember that what they really want to know is the President’s views.
+ - A president has to provide leadership to gain support.
+ - The natural state of man is to want to be free. To have opportunities. To have choices.
+ - Presidential leadership needn’t always cost money. Look for low- and no-cost options. They can be surprisingly effective.
+ - Listening to both sides does not necessarily bring about a correct judgment.
+ - There are things that we know, and there are things that we don’t know. Then there are the things that we don’t even know that we don’t know. Those are the things that are the hardest.
+ - Don’t think of yourself as indispensable or infallible. As Charles De Gaulle said, the cemeteries of the world are full of indispensable men.
+ - The problem is the people who tend to be the best organized are the most radical and the most vicious.
+ - Work continuously to trim the White House staff from your first day to your last. All the pressures are to the contrary.
+ - I think we ought to have a new rule: You can ask two questions, and then we can pick the one we want to answer.
+ - The worst thing you can do is allow a coalition to determine what your mission is.
+ - Politics is human beings; it’s addition rather than subtraction.
+ - Freedom’s untidy, and free people are free to make mistakes and commit crimes and do bad things.
+ - The way to do well is to do well.
+ - The United States isn’t going to do anything That it’s not capable of doing. And if we do something, We’ll be capable of doing it.
+ - It isn’t making mistakes that’s critical; it’s correcting them and getting on with the principal task.
+ - Make decisions about the President’s personal security. He can overrule you, but don’t ask him to be the one to counsel caution.
+ - A terrorist can attack any time, any place using any technique and you can’t defend everywhere against every technique at every moment.
+ - Control your own time. Don’t let it be done for you. If you are working off the in-box that is fed you, you are probably working on the priority of others.
+ - Is it likely that an aircraft carrier or a cruise missile is going to find a person?
+ - Within a week, or a month, Saddam could give his WMD to al-Qaeda.
+ - Many people around the President have sizeable egos before entering government, some with good reason. Their new positions will do little to moderate their egos.
+ - I’m glad you asked. It has nothing to do with oil, literally nothing to do with oil.
+ - Never assume the other fellow will not do something you wouldn’t do.
+ - In politics, every day is filled with numerous opportunities for serious error. Enjoy it.
+ - Most of the 50 or so invitations you receive each week come from people inviting the President’s Chief of Staff, not you. If you doubt that, ask your predecessor how many he received last week.
+ - When it comes to reconstruction, before we turn to the American taxpayer, we will turn first to the resources of the Iraqi government and the international community.
+ - If you look ahead 10 years, I wouldn’t be a bit surprised if the people of Russia had become fans of missile defence.
+ - No terror state poses a greater or more immediate threat to the security of our people and the stability of the world than the regime of Saddam Hussein in Iraq.
+ - Visit with your predecessors from previous Administrations. They know the ropes and can help you see around some corners. Try to make original mistakes, rather than needlessly repeating theirs.
+ - Know that the amount of criticism you receive may correlate somewhat to the amount of publicity you receive.
+ - One thing appears reasonably certain, and that’s that those who make allegations of a culture of deception, of intimidation or cover-up need to be extremely careful about such accusations.
+ - Reduce the layers of management. They put distance between the top of an organization and the customers.
+ - Know that the immediate staff and others in the Administration will assume that your manner, tone and tempo reflect the President’s.
+ - I am not going to give you a number for it because it’s not my business to do intelligent work.
+
+174 quotes

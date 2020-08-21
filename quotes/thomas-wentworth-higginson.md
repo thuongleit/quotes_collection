@@ -1,0 +1,31 @@
+ - How many lessons of faith and beauty we should lose, if there were no winter in our year!
+ - Originality is simply a pair of fresh eyes...
+ - Noble discontent is the path to heaven.
+ - Genius is lonely without the surrounding presence of a people to inspire it.
+ - Life is as inexorable as the sea.
+ - Do not waste a minute – not a second – in trying to demonstrate to others the merits of your performance. If your work does not vindicate itself, you cannot vindicate it.
+ - It is no discredit to Walt Whitman that he wrote Leaves of Grass, only that he did not burn it afterwards.
+ - The first wild-flower of the year is like land after sea.
+ - After all, when a thought takes one’s breath away, a lesson on grammar seems an impertinence.
+ - The most fertile soil does not necessarily produce the most abundant harvest. It is the use we make of our faculties which renders them valuable.
+ - Many persons sigh for death when it seems far off, but the inclination vanishes when the boat upsets, or the locomotive runs off the track, or the measles set it.
+ - What are Raphael’s Madonnas but the shadow of a mother’s love, fixed in permanent outline forever?
+ - Great men are rarely isolated mountain-peaks; they are the summits of ranges.
+ - An easy thing, O Power Divine, To thank thee for these gifts of Thine, For summer’s sunshine, winter’s snow, For hearts that kindle thoughts that glow...
+ - To be really cosmopolitan a man must be at home even in his own country.
+ - Travelers find virtue in a seeming minority in all other countries, and forget that they have left it in a minority at home.
+ - Character shows itself apart from genius as a special thing. The first point of measurement of any man is that of quality.
+ - Fields are won by those who believe in the winning.
+ - There is no defense against adverse fortune which is so effectual as an habitual sense of humor.
+ - If I were to choose among all gifts and qualities that which, on the whole, makes life pleasantest, I should select the love of children. No circumstance can render this world wholly a solitude to one who has this possession.
+ - Nothing can hide from me the conviction that an immortal soul needs for its sustenance something more than visiting, and gardening, and novel-reading, and crochet-needle, and the occasional manufacture of sponge cake.
+ - In an audience of rough people a generous sentiment always brings down the house. In the tumult of war both sides applaud a heroic deed.
+ - In ancient Boeotia brides were carried home in vehicles whose wheels were burned at the door, in token, that they would never again be needed.
+ - The coarsest father gains a new impulse to labor from the moment of his baby’s birth; he scarcely sees it when awake, and yet it is with him all the time. Every stroke he strikes is for his child. New social aims, new moral motives, come vaguely up to him.
+ - Lavish thousands of dollars on your baby clothes, and after all the child is prettiest when every garment is laid aside. That becoming nakedness, at least, may adorn the chubby darling of the poorest home.
+ - How much that the world calls selfishness is only generosity with narrow walls, – a too exclusive solicitude to maintain a wife in luxury, or make one’s children rich.
+ - That genius is feeble which cannot hold its own before the masterpieces of the world.
+ - What instruction the baby brings to the mother!
+ - The bee himself did not evade the schoolboy more than she evaded me, and even at this day I still stand somewhat bewildered, like the boy.
+
+29 quotes

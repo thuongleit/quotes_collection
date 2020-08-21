@@ -1,0 +1,25 @@
+ - Positive criticism is feedback given with the purpose of helping another person to grow and to develop. Negative criticism is intended to hurt and often to defame and to destroy.
+ - Life is not always easy to live, but the opportunity to do so is a blessing beyond comprehension. In the process of living, we will face struggles, many of which will cause us to suffer and to experience pain.
+ - I’m lost. I’m going to find myself. If I return before I get back, please ask me to wait.
+ - We cannot always control everything that happens to us in this life, but we can control how we respond.
+ - Integrity is the core of our character. Without integrity we have a weak foundation upon which to build other Christ-like characteristics.
+ - To properly prepare to receive personal revelation, we must repent, ask through prayer, be obedient, search the scriptures, fast, think pure thoughts, and develop a spirit of reverence.
+ - We are accountable for our actions as we exercise our moral agency. If we understand this principle and make righteous choices, our lives will be blessed.
+ - Receiving personal revelation is not a passive process. As we seek such revelations, we must prepare for these sacred experiences.
+ - To gain strength in our struggles, we must have a positive perspective of the principles in the plan of salvation. We must realize that we have a personal Savior whom we can trust and turn to in our times of need.
+ - People as well as nations perish without scriptures. The scriptures are spiritual food for our spirit, which is just as important as physical food for our body.
+ - The temple is a place of worship. Reverence is a supernal form of worship. It is the form of worship found in the celestial kingdom.
+ - Christlike communications will help us to develop righteous relationships and ultimately to return to our heavenly home safely. May we treasure the divine gift of communication, and may we use it wisely to build and to assist others on this marvelous journey through mortality.
+ - Anger causes anguish to the souls of all of those who experience the feeling as well as to those who are the recipients of this emotional explosion.
+ - It is inappropriate to discuss matters of business, pleasure or current events in the temple.
+ - To be reverent is not just to be quiet. It involves an awareness of what is taking place. It involves a divine desire to learn and to be receptive to the promptings of the Spirit. It involves a striving to seek added light and knowledge.
+ - Christlike communications are expressed in tones of love rather than loudness. They are intended to be helpful rather than hurtful. They tend to bind us together rather than to drive us apart. They tend to build rather than to belittle.
+ - The temple and the holy ordinances are indeed sacred, and we should be spiritually sensitive to them. It is a sacred blessing to attend the temple to worship the Lord.
+ - At times, our circumstances call for us to make critical choices to keep our covenants or to compromise them. Covenants should never be compromised, even when at the moment some circumstances might seem to justify it.
+ - There is a difference in just attending the temple and having a rich spiritual experience. The real blessings of the temple come as we enhance our temple experience. To do so, we must feel a spirit of reverence for the temple and a spirit of worship.
+ - Integrity is the core of our character.
+ - Our communications reflect in our countenance. Therefore, we must be careful not only what we communicate, but also how we do so. Souls can be strengthened or shattered by the message and the manner in which we communicate.
+ - Irreverence not only shows disrespect to Deity but also makes it hard for the Spirit to teach us the things we need to know.
+ - The temple is a place of holiness. It is the most sacred and holy place on earth and should be treated with the greatest degree of reverence and respect.
+
+23 quotes

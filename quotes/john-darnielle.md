@@ -1,0 +1,95 @@
+ - Good things never last, bad things never die.
+ - May we all emerge from winter with our strength renewed and any unwanted pieces left under the ice.
+ - Do every stupid thing that makes you feel alive.
+ - People say friends don’t destroy one another – what do they know about friends?
+ - When you punish a person for dreaming his dream, don’t expect him to thank or forgive you.
+ - It’s impossible to be content all the time – you have to learn to be content in places where you’re unhappy and owning your emotions, whatever they are.
+ - It’s hard to stay positive when there’s a lot of evil in the world.
+ - At 23, you can completely, literally reinvent yourself if you want to.
+ - Kayfabe is kind of a code. To break kayfabe is to let people know that the punch was not real and that the match was scripted.
+ - There are only two stories: either you go forward or you die.
+ - Anger is preverbal, so, by the time you’re using words to express an angry feeling, you’re already imposing loads of structure on that primal experience.
+ - I just started writing stuff to kill time on summer evenings. This is why I’m always telling people who ask me what they need to do to succeed to give up, do something else.
+ - There’s this idea that there was a point in our childhood when we were in some way better than we are now and we should try to hang on to that.
+ - You can get really good reads on your dreams if you think of every character in them as actually being you.
+ - Every place on earth has a frequency. It’s not good or bad, it’s just the way it is, and if you can attune yourself to that frequency, then you can find comfort in that.
+ - Human beings are selfish by nature. Everything that happens to a child, you immediately grab your own child and say, “I will never let that happen to you.”
+ - I’m sort of a cavedweller: I miss my house, my yard, my kitchen, my wife. The trees. When I get home, I like to get down into my office neighborhood as soon as I can.
+ - Life is hard, you’re tired, and there’s disease. The strategy that works for children is to be delighted by the things that delight you.
+ - Gender relations are a sad story of men talking trash about women all over the world.
+ - You should avoid seeing too much of yourself anywhere: in the outside world, in others, in the imagined worlds that give you shelter.
+ - People involved in my personal life make fun of me a lot for not being jaded.
+ - When I was kid, they always used to tell me to keep notebooks. I look at my shelves now and it’s just nothing but notebooks. And if I haven’t gotten an idea but I have time to work, I’ll pull one out and I bet there will be five or six sentences that will kick me off.
+ - I couldn’t name more than a couple of good drum’n’bass acts, and I have no idea what’s big in the dance world right now.
+ - I’m so disconnected from an indie-rock community that I am the hermit people used to guess I was.
+ - You always feel like your 18-year-old self in some sense. And that’s what walking through New York on a June evening feels like – you feel like it’s Friday and you’re 17 years old.
+ - I crave music that’ll sort of hurtle me into space and release me up there.
+ - I’m not really a goal-oriented guy. I started doing the Mountain Goats just for the sheer hell of it.
+ - If you get into a fight and somebody punches you, you get two feelings. One: That really hurts. Two: That relief in the realness of, like, Wow, this is what it is. It’s not an intellectual process.
+ - Back in the 90s, if you did mail order in music, you could make a good living doing it if you could hustle.
+ - For me, moving is always a big opportunity. Its just a enough of a shift in outlook that every time I move, it seems to open something up.
+ - I just started going to shows. I don’t know how submerged I am: I feel guilty that I don’t get out more, but I really like being inside the house.
+ - There are so many ways to respond to music besides feeling like someone’s communicating with you. It gives me a charge.
+ - I’m kind of a hermit. Left to my own devices, I won’t submerge myself in anything further afield than the driveway.
+ - Diagnoses exist to help get people services they need – but there’s no such thing as mental illness. We’re all mentally ill.
+ - I seem to get the best work when I’m angry and depressed and alienated.
+ - I usually kind of can’t wait until my records leak. Back in the day, you could give people tapes, but you can’t do that anymore, because it would be available to everyone on the planet within an hour.
+ - The reality of having a kid involves day-to-day practicality – not broader philosophical outlooks.
+ - It’s hard always to say what it is one likes about a place, for me. I feel it.
+ - Everybody experiences reality in a way that’s only true for them.
+ - The studio’s a collaborative environment. I just try to let people bring their own ideas to the songs and see what happens.
+ - I’ll keep making records until I don’t have more ideas for records.
+ - I always worry that I’m a dilettante: I know something about lots of things but don’t have exhaustive knowledge of much.
+ - I start writing, pull whatever images happen to occur to me and make up a story, instead of starting with details that are real and I know of and going from there.
+ - I still get really excited looking at stuff that I’ve seen every day for 20 years.
+ - People will complain that they don’t want to wait around for lightning to strike, but why not? If you invest yourself in chance, the potential for disappointment is pretty low.
+ - I am a person of high energy. That, and I sit down and I write when I get an idea – I put other things aside.
+ - One way you can get really close to God is to sin as hard as you can.
+ - From a very young age, I was the kind of kid you can just put anywhere and I’d still find stuff to be stoked about.
+ - I don’t like to say, “Oh, I don’t like this kind of music.” I like to listen to it and try to see what people who like it get out of it.
+ - In death metal, a lot of guys are Eddie Van Halen disciples, but they take his style to really expressionistic places. It’s a real pleasure for me to hear people pushing their craft.
+ - It makes me envious of anybody who can say truly that they don’t care what anybody thinks of what they do, because I care a lot about the people who like my stuff.
+ - Literature is a mystical place for me. It’s not dry. It’s where miracles happen.
+ - I grew up in Southern California, so the whole concept of a local music history is still kinda novel to me.
+ - Everybody is in various states of needing to transcend something. I believe in mental health care, but when we call people “crazy,” we exclude them from our circle.
+ - There is something fierce and starved about first ideas.
+ - It usually happens that I have multiple different projects going on at once, and one can be referencing the other.
+ - When all my friends insisted that they were feeling jaded, it struck me as an affected pose. To me, everything is always new.
+ - People want you to play the songs they know. I try not to reflect too much, and I don’t really like to focus too much on myself.
+ - Not everybody relates to pain, but if you can watch other people playacting it, you can absorb some of that vibe. It’s like watching horror movies – you want to have the experience, but in a safe environment.
+ - You can get into anything if you are determined. I always thought that with music, too.
+ - I grew up around some people whose parents toured a lot: tough on the marriage, tough on the kids.
+ - Books are like rocks. You hold one in your hand and look at it in various lights to get a sense of it, and then when you get a good angle, you throw it through a window to see what happens.
+ - I think The Sunset Tree is really the album on which I really learned to trust other musicians, which is so important.
+ - The process of touring is always so weird to me. Once you’ve made the album, that’s over, you move along.
+ - In wrestling, people just throw each other around, possibly actually bleed, and are still friends in the locker room afterwards. But there’s a real glee – a feeling goes up in the arena, especially on non-TV days. If it’s just people in a room and somebody starts to bleed, that’s very exciting.
+ - This is why people cry at the movies: because everybody’s doomed. No one in a movie can help themselves in any way. Their fate has already staked its claim on them from the moment they appear onscreen.
+ - I get nostalgic about having lived in Ames, Iowa, even though being a vegetarian in Iowa is not fun.
+ - I think taking too long to work on a record you sort of lose some of the feeling, so I write as fast as I can; it’s just this manic phase where I’m by myself and or on tour and I write and I write. And I send them to the guys, and we start planning our studio ventures.
+ - The moment where you know the thing you want is ridiculous and pompous and a terrible thing to want anyway. The direction in which you’re headed is not the direction you want to go, yet you’re going to head that way a while longer cause that’s just the kind of person you are.
+ - You learn to present dark things without including their ability to harm, treasuring them for what they are.
+ - Take dance music: I like enough of it and its history to be able to say a word or two about this or that record, but I’m nobody’s authority.
+ - I am at a place in my life where the more like a cave I can make my surroundings, the happier I am.
+ - Anything that is within you is a gift. To be able to take possession of that and say, “Whatever it is, I am bigger than it,” is to learn to cherish even the hard and painful things.
+ - I consider myself a lyricist first and foremost, but if you get something else out of what I do, that’s fine too. I’m not sitting back here telling people how they have to take my stuff. We just want to play music, and hope that people like it.
+ - I do have a romantic interest in outlasting everybody else. There’s a sort of sad machismo to singer-songwriters, I think.
+ - If you’re standing in the middle of a ring and you’re playing the villain, and everyone is booing and throwing things at you, that’s real.
+ - I always want to try and see what the appeal is in anything. It’s the healthiest and most honest approach.
+ - I think it’s a misconception that metal’s about anger, obviously.
+ - Music is a permanent art, it will always go through phases where you like it and are in tune with it, but saying that music “got bad” is infantile. The same is true with your life.
+ - The fact that somebody’s telling you a story about people who didn’t exist doesn’t make the experience of the story any less real in your heart and mind.
+ - I think listening to a lot of Lou Reed when I was a teenager is what encouraged me to just sing however felt good to me.
+ - I don’t write my own publicity materials, I just read ’em and give ’em the OK.
+ - I don’t celebrate milestones and I don’t do anniversary editions. It’s not my style to reflect on accomplishments.
+ - As an artist, you always have to be growing. You don’t just want to do what you already know people like.
+ - People talk about songwriting or comedy as creative expression, but life is creative expression. Table-making, even nursing, is extraordinarily creative.
+ - The more I learn about stuff the more conscious I become of grave gaps in my knowledge.
+ - A bands first albums usually not great. When you made the first album, you had a day job and you were still trying to be serious about it.
+ - I enjoy hearing people who are good at their instruments and who’ve found a distinctive voice.
+ - My work is more important than I am. I’m just some guy.
+ - My son, who sees me almost every day of his life, will look at me and go, “I know that dude! I like that dude!” It’s incredibly affirming.
+ - I think I read too much Arthur Conan Doyle when I was young, and got this idea that a gentleman should know a lot about one thing and plenty about most everything else.
+ - If my songs are being listened to between any other songs, that is awesome, and I’m glad people are getting something out of them.
+ - I really love Durham more than any place I’ve ever been; some small towns can be really provincial and strangling, but Durham is the best city in the world.
+
+93 quotes

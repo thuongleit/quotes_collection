@@ -1,0 +1,55 @@
+ - We breathe in our first language, and swim in our second.
+ - What drives innovation is abundance and ease, not the pressure of scarcity.
+ - Drawing need not be the bones of art, but skill must always be the skeleton of accomplishment.
+ - Music is a current of hard choices made to seem easy by the mind.
+ - The loneliness of the expatriate is of an odd and complicated kind, for it is inseparable from the feeling of being free, of having escaped.
+ - Dinner with water is dinner for prisoners.
+ - What we eat is the one simplest way to declare who we are – the table reflects our values with a clarity that few other theaters of human behaviour posses.
+ - Wit and puns aren’t just decor in the mind; they’re essential signs that the mind knows it’s on, recognizes its own software, can spot the bugs in its own program.
+ - For all the years I’d spent talking about pictures, the truth was that I had no idea how to draw or what it felt like to do it. I would mistrust a poetry critic who couldn’t produce a rhyming couplet. Could one write about art without knowing how to draw?
+ - Good editorial writing has less to do with winning an argument, since the other side is mostly not listening, than with telling the guys on your side how they ought to sound when they’re arguing.
+ - The World Series is played in my doubtless too-nostalgic imagination in some kind of autumn afternoon light, and seeing it exclusively in the bitter chill of midnight breaks the spell of even the best of games.
+ - You can’t have a decent food culture without a decent coffee culture: the two things grow up together.
+ - The coffee shop is a great New York institution, but it has terrible coffee. And the more traditional coffee shops are trying to catch up with more sophisticated coffee drinkers.
+ - After all, spinning is its own reward. There wouldn’t be carousels if it weren’t so.
+ - The scale and the brutality of our prisons are the moral scandal of American life.
+ - Writing is the process of finding something to distract you from writing, and of all the helpful distractions – adultery, alcohol and acedia, all of which aided our writing fathers – none can equal the Internet.
+ - Writing doesn’t come easily to anyone, I think, certainly not to me. But pressure and practice does lend a certain fluency, I think – the more sentences you write, the more sentences you have written, if that slightly Zen confection makes any sense.
+ - There are two kinds of travelers. There is the kind who goes to see what there is to see, and the kind who has an image in his head and goes out to accomplish it. The first visitor has an easier time, but I think the second visitor sees more.
+ - Lose your schematic conventions by finding some surprising symbol or shape in the welter of shades, and draw that.
+ - Big writers become a kind of shared climate.
+ - If you’re being attacked from all sides, it’s possible you’re doing something right; it’s also possible that you are doing everything wrong.
+ - Nothing in a graduate degree in art history prepares you for the eloquence of the eraser.
+ - The future will be like the past, in the sense that, no matter how amazing or technologically advanced a society becomes, the basic human rhythm of petty malevolence, sordid moneygrubbing, and official violence, illuminated by occasional bursts of loyalty or desire or tenderness, will go on.
+ - In the New Yorker library, I have long been shelved between Nadine Gordimer and Brendan Gill; an eerie little space nestled between high seriousness of purpose and legendary lightness of touch.
+ - Over all, there are now more people under “correctional supervision” in America-more than six million-than were in the Gulag Archipelago under Stalin at its height.
+ - I don’t miss the obligation to be opinionated, but I do regret the chance to share a joy.
+ - American long for a closed society in which everything can be bought, where laborers are either hidden away or dressed up as nonhumans, so as not to be disconcerting. This place is called Disney World.
+ - Daniel Levitin takes the most sophisticated ideas that exist about the brain and mind, applies them to the most emotionally direct art we have, our songs, and makes beautiful music of the two together.
+ - Frauds master our minds; magicians, like poets and lovers, engage them in a permanent maze of possibilities.
+ - All tastes have the quality of being in some way artificial and invented. The secret of life is to have enough detachment from your tastes and your values to see that they are a little bit absurd.
+ - Sometimes having a good time can be the outward evidence of a deep re-thinking.
+ - Americans also seem to believe that the monarchy is a kind of mediaeval hangover, encumbered by premodern notions of decorum; the reality is that the British monarchy, for good or ill, is a modern political institution perhaps the first modern political institution.
+ - Love, like light, is a thing that is enacted better than defined: we know it afterward by the traces it leaves on paper.
+ - I rush to add that I find the Web infinitely useful for rustling up information, settling arguments or locating the legends of rock stars.
+ - Cooking is the showy side of domesticity.
+ - Someone once said that the joy is not in writing but in having written. I can’t say I find that to be true, though I understand the sentiment.
+ - I try to turn a written thing, when I’m in trouble with it, into a spoken thing: I start imagining what I would say to someone if I were trying to tell the story or make the argument.
+ - I still think the best classic meal in New York is a coffee-shop breakfast – you sort of can’t skip it.
+ - There are as many attitudes to cooking as there are people cooking, of course, but I do think that cooking guys tend – I am a guilty party here – to take, or get, undue credit for domestic virtue, when in truth cooking is the most painless and, in its ways, ostentatious of the domestic chores.
+ - Drawing is one of those things which sit on the uneasy bending line between instinct and instruction, where seeming perversity eventually trumps pleasure as the card players and the kibitzers interact and new thrills are sought.
+ - I think that we’re always drawn – particularly sophisticated people – are always drawn to the idea of simplicity.
+ - In bookstores, my stuff is usually filed in the out-of-the-way, additional interest sections.
+ - Fanaticism comes in as many flavors as there are human beings.
+ - Of all the unexpected things in contemporary literature, this is among the oddest: that kids have an inordinate appetite for very long, very tricky, very strange books about places that don’t exist.
+ - Merely that you start off with ideas buzzing around in your head, and then you try to give them the simpler, more graceful shape, of a feeling that a reader might share. You learn to sing with, not argue at, your possible readers.
+ - The special virtue of freedom is not that it makes you richer and more powerful but that it gives you more time to understand what it means to be alive.
+ - I don’t think there’s any question journalists have become targets, but then I think that – that anyone who tries to practice liberty becomes a target of fanatics.
+ - Protein was the most valued ingredient 250 years ago: It was the rarest thing. Now the rarest thing we have is time: time to cook and time to eat.
+ - I think I’m more intensely opinionated when I speak; more agreeably balanced when I write.
+ - The French believe that all errors are distant, someone else’s fault. Americans believe that there is no distance, no difference, and therefore that there are no errors, that any troubles are simple misunderstandings, consequent on your not yet having spoken English loudly enough.
+ - Paris, on the other hand, looked exactly as it was supposed to look. It wore its heart on its sleeve, and the strange thing was that the heart it wore so openly was in other ways so closed-mysterious, uninviting.
+ - Art without accomplishment becomes a form of faith, sustained more by the intensity of its common practice than by the pleasure it gives to its adherents in private.
+ - Going to a restaurant is one of my keenest pleasures. Meeting someplace with old and new friends, ordering wine, eating food, surrounded by strangers, I think is the core of what it means to live a civilised life.
+
+53 quotes

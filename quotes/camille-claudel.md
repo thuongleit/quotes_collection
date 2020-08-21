@@ -1,0 +1,25 @@
+ - There is always something missing that torments me.
+ - I am scared; I don’t know what is going to happen to me. What was the point of working so hard and of being talented, to be rewarded like this? Never a penny, tormented all my life. It is horrible; one cannot imagine it.
+ - I have fallen into an abyss. I live in a world so curious, so strange. Of the dream that was my life, this is my nightmare.
+ - I am not feeling any better because I cannot stay in bed, having constant cause for walking. They say I leave at night by the window of my tower, hanging from a red umbrella with which I set fire to the forest!
+ - Don’t fear anything for your letters, they are burnt one by one and I hope you do the same with mine.
+ - Send me one hundred francs on our future deals, otherwise I will disappear in a cataclysm.
+ - I will never forget my beautiful days with you in Shanklin, they are certainly the most pleasant ones of my life. Look, I have tears in my eyes just to think about it. I am furious to be here, it is the end of happiness for a whole year.
+ - You know what black hatred women feel toward me as soon as they see me, until I return inside my shell, they use every possible weapon. As soon as a generous man tries to help me out, a woman is here to hold his arm and prevent him from acting.
+ - If you are nice, and keep your promise, we will be in paradise.
+ - I sleep completely naked to make me believe you are here, but when I wake up it is not the same thing. Most of all, don’t deceive me with other women any more.
+ - When you left on Saturday, I felt a horrible void, I saw you everywhere, on the beach, in your room, in the garden: impossible for me to get used to the idea that you had left.
+ - I don’t want to say anything because I know I am unable to protect you from the harm that I see.
+ - I would prefer to have a more appealing job. If I could still change careers, I would prefer it. This unfortunate art is made for long beards and ugly faces rather than for a relatively well-endowed woman.
+ - Last night, two men tried to force my shutters. I recognized them: they are two of Rodin’s Italian models. He told them to kill me. I am in his way; he wants to get rid of me.
+ - I thank you for your kind invitation to introduce me to the president of the Republic. Since I have not been out of my atelier for two months, I have no appropriate costume for this circumstance. Please excuse me.
+ - My countrymen have commissioned a bust of the Republic. It will be placed on the fountain of my native town.
+ - I have all sorts of problems and feel discouraged.
+ - It is in fact agreed that I am the plague, the cholera of the benevolent and generous men who are interested in art and that, when I show myself with my plasters, even the Emperor of the Sahara would flee.
+ - Sir Rodin convinced my parents to have me committed; they are all in Paris to arrange it.
+ - I took all my wax studies and threw them in the fire that’s the way it is when something unpleasant happens to me. I take my hammer and I squash a figure.
+ - I have been back in Paris for two weeks. Nothing new. Life is still bitter.
+ - I tolerate my faults but not at all other people’s.
+ - I am in no mood to be deceived any longer by the crafty devil and false character whose greatest pleasure is to take advantage of everyone.
+
+23 quotes

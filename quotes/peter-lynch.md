@@ -1,0 +1,115 @@
+ - All the math you need in the stock market you get in the fourth grade.
+ - Invest in what you know.
+ - You get recessions, you have stock market declines. If you don’t understand that’s going to happen, then you’re not ready, you won’t do well in the markets.
+ - An important key to investing is to remember that stocks are not lottery tickets.
+ - Know what you own, and know why you own it.
+ - Far more money has been lost by investors preparing for corrections, or trying to anticipate corrections, than has been lost in corrections themselves.
+ - In the long run, it’s not just how much money you make that will determine your future prosperity. It’s how much of that money you put to work by saving it and investing it.
+ - Just because you buy a stock and it goes up does not mean you are right. Just because you buy a stock and it goes down does not mean you are wrong.
+ - There is always something to worry about. Avoid weekend thinking and ignoring the latest dire predictions of the newscasters. Sell a stock because the company’s fundamentals deteriorate, not because the sky is falling.
+ - Nobody can predict interest rates, the future direction of the economy or the stock market. Dismiss all such forecasts and concentrate on what’s actually happening to the companies in which you’ve invested.
+ - Stocks are a safe bet, but only if you stay invested long enough to ride out the corrections.
+ - The person that turns over the most rocks wins the game. And that’s always been my philosophy.
+ - Equity mutual funds are the perfect solution for people who want to own stocks without doing their own research.
+ - When stocks are attractive, you buy them. Sure, they can go lower. I’ve bought stocks at $12 that went to $2, but then they later went to $30. You just don’t know when you can find the bottom.
+ - A stock market decline is as routine as a January blizzard in Colorado. If you’re prepared, it can’t hurt you. A decline is a great opportunity to pick up the bargains left behind by investors who are fleeing the storm in panic.
+ - Never invest in a company without understanding its finances. The biggest losses in stocks come from companies with poor balance sheets.
+ - When you sell in desperation, you always sell cheap.
+ - Charts are great for predicting the past.
+ - I deal in facts, not forecasting the future. That’s crystal ball stuff. That doesn’t work.
+ - Everyone has the brain power to make money in stocks. Not everyone has the stomach.
+ - Time is on your side when you own shares of superior companies.
+ - If you can’t find any companies that you think are attractive, put your money in the bank until you discover some.
+ - The stock market really isn’t a gamble, as long as you pick good companies that you think will do well, and not just because of the stock price.
+ - You can’t see the future through a rearview mirror.
+ - The typical big winner in the Lynch portfolio generally takes three to ten years to play out.
+ - The biggest winners are surprises to me, and takeovers are even more surprising. It takes years, not months, to produce big results.
+ - Your ultimate success or failure will depend on your ability to ignore the worries of the world long enough to allow your investments to succeed.
+ - I spend about fifteen minutes a year on economic analysis.
+ - Searching for companies is like looking for grubs under rocks: if you turn over 10 rocks you’ll likely find one grub; if you turn over 20 rocks you’ll find two.
+ - If you’re prepared to invest in a company, then you ought to be able to explain why in simple language that a fifth grader could understand, and quickly enough so the fifth grader won’t get bored.
+ - I think you have to learn that there’s a company behind every stock, and that there’s only one real reason why stocks go up. Companies go from doing poorly to doing well or small companies grow to large companies.
+ - Spend at least as much time researching a stock as you would choosing a refrigerator.
+ - As I look back on it now, it’s obvious that studying history and philosophy was much better preparation for the stock market than, say, studying statistics.
+ - The best stock to buy is the one you already own.
+ - I don’t know anyone who said on their deathbed: ‘Gee, I wish I’d spent more time at the office.’
+ - If you can follow only one bit of data, follow the earnings – assuming the company in question has earnings. I subscribe to the crusty notion that sooner or later earnings make or break an investment in equities. What the stock price does today, tomorrow, or next week is only a distraction.
+ - You should not buy a stock because it’s cheap but because you know a lot about it.
+ - The simpler it is, the better I like it.
+ - Avoid hot stocks in hot industries.
+ - When even the analysts are bored, it’s time to start buying.
+ - In business, competition is never as healthy as total domination.
+ - Invest in businesses any idiot could run, because someday one will.
+ - The natural-born investor is a myth.
+ - The Rule of 72 is useful in determining how fast money will grow. Take the annual return from any investment, expressed as a percentage, and divide it into 72. The result is the number of years it will take to double your money.
+ - What makes stocks valuable in the long run isn’t the market. It’s the profitability of the shares in the companies you own. As corporate profits increase, corporations become more valuable and sooner or later, their shares will sell for a higher price.
+ - Absent a lot of surprises, stocks are relatively predictable over twenty years. As to whether they’re going to be higher or lower in two to three years, you might as well flip a coin to decide.
+ - You only need a few good stocks in your lifetime. I mean how many times do you need a stock to go up ten-fold to make a lot of money? Not a lot.
+ - Hold no more stocks than you can remain informed on.
+ - Investing is fun and exciting, but dangerous if you don’t do any work.
+ - If a picture is worth a thousand words, in business, so is a number.
+ - Never invest in any idea you can’t illustrate with a crayon.
+ - Long shots almost always miss the mark.
+ - If you have the stomach for stocks, but neither the time nor the inclination to do the homework, invest in equity mutual funds.
+ - I’ve always said, the key organ here isn’t the brain, it’s the stomach. When things start to decline – there are bad headlines in the papers and on television – will you have the stomach for the market volatility and the broad-based pessimism that tends to come with it?
+ - I’m always fully invested. It’s a great feeling to be caught with your pants up.
+ - More money is lost anticipating the changes in the overall stock market than any other way of investing.
+ - It’s human nature to keep doing something as long as it’s pleasurable and you can succeed at it, which is why the world population continues to double every 40 years.
+ - When management owns stock, then rewarding the shareholders becomes a first priority, whereas when management simply collects a paycheck, then increasing salaries becomes a first priority.
+ - There are substantial rewards for adopting a regular routine of investing and following it no matter what, and additional rewards for buying more shares when most investors are scared into selling.
+ - My method for picking stocks has never changed. When businesses go from crappy to semicrappy, there’s money to be made.
+ - Gentlemen who prefer bonds don’t know what they’re missing.
+ - Long-term investing has gotten so popular, it’s easier to admit you’re a crack addict than to admit you’re a short-term investor.
+ - Owning stocks is like having children – don’t get involved with more than you can handle.
+ - If you hope to have more money tomorrow than you have today, you’ve got to put a chunk of your assets into stocks. Sooner or later, a portfolio of stocks or stock mutual funds will turn out to be a lot more valuable than a portfolio of bonds or CDs or money-market funds.
+ - You can find good reasons to scuttle your equities in every morning paper and on every broadcast of the nightly news.
+ - Visiting stores and testing products is one of the critical elements of the analyst’s job.
+ - Behind every stock is a company. Find out what it’s doing.
+ - If you go to Minnesota in January, you should know that it’s gonna be cold. You don’t panic when the thermometer falls below zero.
+ - The extravagance of any corporate office is directly proportional to management’s reluctance to reward the shareholders.
+ - Twenty years in this business convinces me that any normal person using the customary three percent of the brain can pick stocks just as well, if not better, than the average Wall Street expert.
+ - There’s lots of stocks out there and all you need is a few of ’em. That’s been my philosophy.
+ - If you’re lucky enough to have been rewarded in life to the degree that I have, there comes a point at which you have to decide whether to become a slave to your net worth by devoting the rest of your life to increasing it or to let what you’ve accumulated begin to serve you.
+ - I’ve found that when the market’s going down and you buy funds wisely, at some point in the future you will be happy. You won’t get there by reading ‘Now is the time to buy.’
+ - Your investor’s edge is not something you get from Wall Street experts. It’s something you already have. You can outperform the experts if you use your edge by investing in companies or industries you already understand.
+ - You have to keep your priorities straight if you plan to do well in stocks.
+ - In stocks as in romance, ease of divorce is not a sound basis for commitment.
+ - You just don’t know when you can find the bottom.
+ - You shouldn’t just pick a stock – you should do your homework.
+ - The basic story remains simple and never-ending. Stocks aren’t lottery tickets. There’s a company attached to every share.
+ - Everyone has the brainpower to follow the stock market. If you made it through fifth-grade math, you can do it.
+ - If all the economists in the world were laid end to end, it wouldn’t be a bad thing.
+ - I talk to hundreds of companies a year and spend hour after hour in heady pow-wows with CEOs, financial analysts and my colleagues in the mutual-fund business, but I stumble onto the big winners in extracurricular situations, the same way you do.
+ - Go for a business that any idiot can run – because sooner or later, any idiot probably is going to run it.
+ - All you need for a lifetime of successful investing is a few big winners, and the pluses from those will overwhelm the minuses from the stocks that don’t work out.
+ - It isn’t the head but the stomach that determines the fate of the stockpicker.
+ - That’s not to say there’s no such thing as an overvalued market, but there’s no point worrying about it.
+ - When you start to confuse Freddie Mac, Sallie Mae and Fannie Mae with members of your family, and you remember 2,000 stock symbols but forget the children’s birthdays, there’s a good chance you’ve become too wrapped up in your work.
+ - There’s a company behind every stock and a reason companies – and their stocks – perform the way they do.
+ - In our society, it’s been the men who’ve handled most of the finances, and the women who’ve stood by and watched men botch things up.
+ - Suicide is a permanent solution to a temporary problem. Suicide is a choice and I think if we work with that with kids, we’ll get somewhere.
+ - All the time and effort people devote to picking the right fund, the hot hand, the great manager have, in most cases, led to no advantage.
+ - I don’t go near the money and the money doesn’t go near me.
+ - Most investors would be better off in an index fund.
+ - Improved turnout will give parliament and government the appearance of being more legitimate.
+ - The junior high schools and high schools of America have forgotten to teach one of the most important courses of all. Investing.
+ - A lot of people got in at the wrong time. A lot of people did very well and some people said, “This is it. I’ll never get back in again.” And they maybe meant it, but they probably got back in again anyway.
+ - It would be wonderful if we could avoid the setbacks with timely exits, but nobody has figured out how to predict them.
+ - In the summer of 1990, I was buying stocks and I was probably three or four months early there. But we had a great rally in 1991.
+ - So while I was in college I did a little study on the freight industry, the air freight industry. And I looked at this company called Flying Tiger. And I actually put a thousand dollars in it and I remember I thought this air cargo was going to be a thing of the future.
+ - I’ve always been a great lover of baseball.
+ - The real key to making money in stocks is not to get scared out of them.
+ - Everyone has the brainpower to make money in stocks. Not everyone has the stomach. If you are susceptible to selling everything in a panic, you ought to avoid stocks and mutual funds altogether.
+ - Investing in stocks is an art, not a science, and people who’ve been trained to rigidly quantify everything have a big disadvantage.
+ - I like to buy a company any fool can manage because eventually one will.
+ - The most important organ in the body as far as the stock market is concerned is the guts, not the head. Anyone can acquire the know-how for analyzing stocks.
+ - There’s no shame in losing money on a stock. Everybody does it. What is shameful is to hold on to a stock, or worse, to buy more of it when the fundamentals are deteriorating.
+ - When people discover they are no good at baseball or hockey, they put away their bats and their skates and they take up amateur golf or stamp collecting or gardening. But when people discover they are no good at picking stocks, they are likely to continue to do it anyway.
+ - There seems to be an unwritten rule on Wall Street: If you don’t understand it, then put your life savings into it. Shun the enterprise around the corner, which can at least be observed, and seek out the one that manufactures an incomprehensible product.
+ - Average investors can become experts in their own field and can pick winning stocks as effectively as Wall Street professionals by doing just a little research.
+ - The worst thing you can do is invest in companies you know nothing about. Unfortunately, buying stocks on ignorance is still a popular American pastime.
+ - In this business if you’re good, you’re right six times out of ten. You’re never going to be right nine times out of ten.
+ - It only takes a handful of big winners to make a lifetime of investing worthwhile.
+ - Well, I think the secret is if you have a lot of stocks, some will do mediocre, some will do okay, and if one of two of ’em go up big time, you produce a fabulous result. And I think that’s the promise to some people.
+
+113 quotes

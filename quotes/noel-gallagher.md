@@ -1,0 +1,141 @@
+ - I don’t live to work; I work to live.
+ - You and I are gonna live forever.
+ - I’m equal part genius, equal part buffoon.
+ - You can have it all but how much do you want it?
+ - Some might say they don’t believe in heaven Go and tell it to the man who lives in hell.
+ - You’ve got to be strong enough for love. It’s very easy to be cool and cynical. It’s very difficult to just let yourself go and be in love. You’ve got to be strong enough for that.
+ - I wasn’t put on this earth to amass money or personal wealth. I was put on this earth to play guitar and write songs.
+ - You’ve just got to trust your instincts and realize that you can’t please all the people all the time. You’ve got to please yourself ultimately in the end.
+ - You can’t afford to think about what might have been. You just be aware of what is.
+ - I’m not interested in making money. It’s just that with my talent, I’m cursed with it.
+ - You’re asking if I’m happy? I’ve got 87 million in the bank, I’ve got a Rolls Royce, I’ve got 3 stalkers, I’m about to go on the board at Manchester City, I’m part of the greatest band in the world. Am I happy with that? No, I’m not! I want more!
+ - My favorite pastime is staring out the window. When I go on tour, I can spend hours and hours just staring out the window, thinking about nothing. I love all that.
+ - I hate Mourinho. He’s a fool.
+ - Those who don’t say what they mean will live and die by their own sword.
+ - Just because you sell lots of records it doesn’t mean to say you’re any good. Look at Phil Collins.
+ - We’re not arrogant, we just believe we’re the best band in the world.
+ - I have to be myself, I can’t be no one else...
+ - Is it worth the aggravation to find yourself a job when there’s nothing worth working for?
+ - Progression is going forwards. Going backwards is regression. Going sideways is just gression.
+ - I don’t much like ‘Wonderwall,’ but the effect that song has on people, I can’t deny it.
+ - I don’t have the genetic make-up of a frontman, but I’m learning how to do it.
+ - Oasis were the last great, traditional rock ‘n’ roll band. We came along before the Internet so, if you wanted to see us, you had to be there. It makes me feel like a righteous old man.
+ - There’s nothing good on the news. You’re not telling me CNN is all cats in trees, are you? Nothing can be that good if Piers Morgan is in it, you know what I mean?
+ - I’m a happy-go-lucky character. I’m not that miserable. But I can never let anyone into my world.
+ - I wouldn’t be here if it wasn’t for my Mum. I know I’ve got Irish blood because I wake up everyday with a hangover.
+ - I certainly don’t believe in religion, although I find it fascinating that it’s become so powerful in the world and it’s kind of dictated morals down through societies for thousands of years, but I don’t see the hand of God at work in the world anywhere.
+ - I love the Bee Gees, but only the pre-disco stuff. From ’64 to ’69, I’ve got all their albums.
+ - I’ll do one eventually as life’s too short and none of us is getting any younger. I’d like to make one while I still look good and before I look like Phil Collins, which, eventually, I will.
+ - Kids and family life are only as good as your wife, and she’s amazing.
+ - If I were in the Beatles, I’d be a good George Harrison.
+ - Under Thatcher, who ruled us with an iron rod, great art was made. Amazing designers and musicians. Acid house was born. Very colourful and progressive.
+ - My kids have got to work themselves around my life, not the other way. That’s how kids become brats, if you’re there staring at them all the time going, ‘Are you alright?’
+ - I love the satisfaction of living in a world on a Wednesday where a song didn’t exist that you’re going to create on a Thursday that’s going to change somebody’s life, possibly, you’re creating that from nothing.
+ - Next year I hope to get a stalker or two because I don’t believe you’ve arrived until you get a stalker.
+ - For the record, I Iike Jay-Z. That’s my opinion.
+ - I’m a massive fan of the Stones, and I don’t think anybody should deny them the right to carry on making music. I just wish they wouldn’t wear leggings.
+ - If I can give you any advice, it’s this: every hour that you spend sat on the couch doing nothing, put it to good use, because when you have kids, an hour is like a lifetime.
+ - It’s a sad state when more people retweet than buy records.
+ - There is a limited supply of excellent songs, but I am not the only one. Paul McCartney, one of the best songwriters of all time, has only produced manure for the past 25 years. Rock musicians over 30 only produce unimportant material.
+ - Oasis can’t be summed up in one word. I could do a sentence: Boys from council estate made it very, very big.
+ - I don’t dislike rappers or hip-hop or people who like it. I went to the Def Jam tour in Manchester in the ’80s when rap was inspirational. Public Enemy were awesome. But it’s all about status and bling now, and it doesn’t say anything to me.
+ - Traditionally speaking, the three biggest twats in any band are the singer, the keyboardist and the drummer. I don’t need to say anything else.
+ - Kylie Minogue is just a demonic little idiot as far as I’m concerned. She gets cool dance producers to work with her for some bizarre reason, I don’t know why. She doesn’t even have a good name. It’s a stupid name, Kylie, I just don’t get it.
+ - When you’re the cash cow that lays the golden goose egg, people are always going to cheer you on, whatever.
+ - To be quite honest, John Lennon had questionable politics. There was a flip side. He was all peace and love, but he was a very violent character.
+ - My son ain’t going to be miserable because he’s going to be the child of a rock star, the end.
+ - I have 3 kids and a cat and a busy, noisy house. I get more time to relax when I’m working.
+ - I don’t like being on television when I’m playing live. I don’t even like being on Jools Holland or any of them programs.
+ - You don’t have to be great to be successful. Look at Phil Collins.
+ - If you don’t want to be the biggest band in the world, you may as well pack it in.
+ - When I was 16 I’d watch ‘The Godfather,’ but I didn’t think, ‘Right, I’m going to go down the barber’s and get some protection money off him.’
+ - It’s the first time I’m going to be on my own this Christmas and I’m really looking forward to not having any cards or decorations up. So I’ll be in London, sit on my couch, arms folded, curtains drawn, having a drink.
+ - I don’t like John Terry and I never have. He’s got funny eyes and he’s a cry baby. He’s also a Cockney.
+ - Americans are crazy. They have this fascination with throwing their shoes on stage. I’ve been to a lot of shows in me life, some good and some bad. But I was never moved to take off me shoes and throw it at the lead singer.
+ - Gold and silver and sunshine is rising up.
+ - I don’t think people need to know what colour socks I’m wearing today; I don’t think people need to know what shower gel I’m using. There’s too much information in the world, and there’s no magic or mystery anymore.
+ - I don’t think we live in those times when great art comes out of great adversity.
+ - When we started off, we wanted the girls, the cocaine, the fur coats. It wasn’t like it was an act; it was almost like working-class people winning the pools. We went bananas.
+ - American sports are quite masculine. And football – although it’s still played by men all over the world – football compared to American football is quite feminine in its artistry. And there’s no padding. It’s America’s loss, though.
+ - In business, you can have one massive success that earns $50 million overnight, and that’s it. You’re successful. End of story. But in the music business, you have to keep on doing it.
+ - Gone are the days when Virgin Records was owned by Richard Branson, a fan of music. Now they’re all owned by some guy who bought it off some guy who bought it off some guy who wants a return on his investment.
+ - The fate of the African continent does not f-ing depend on a load of f-ing musicians in Hyde Park singing f-ing s-t songs to kids.
+ - I’ve never been asked to do a collaboration. I guess I just don’t give off that come-and-get-me vibe. I wouldn’t be adverse to doing one with Coldplay or U2 – anyone who sells 50 million albums.
+ - I absolutely loved being famous. It was all great, up until the point when it wasn’t.
+ - We shouldn’t need riot police at schools.
+ - I like Chris Martin. I think he’s a really great songwriter.
+ - You’ll find people who rib you about their age are petrified about getting old. It doesn’t bother me.
+ - I’ve never understood musicians who don’t enjoy doing promotional interviews. I just can’t believe it. I always think, ‘Your life must have been so brilliant before you were in a band.’
+ - People say I seem very negative about new music – well, if somebody asks me what I think of Keane, I’ll tell ’em. I don’t like ’em. I’ll obviously take it a step too far and grossly insult the keyboard player’s mam or summat, but I’m afraid that’s just me.
+ - There was a euphoria in the music and the way it was delivered, and as the crowds started to get bigger, it fed off itself until it became less about the band and more about being with all those people jumping up and down, drunk to the music.
+ - When I’m doing music and I’m on the road, I love it. But once I’m home, it’s very difficult to go back out on the road.
+ - You can’t be a mod and a rocker. You have to choose sides.
+ - Solo artists are generally totally insane. Elton John? Slightly eccentric. George Michael? He’s mad as custard.
+ - I was playing guitar before I heard The Beatles, but as I got older and listened to their tunes I realized they were amazing. They inspire me more now than they did when I was a kid and are still the greatest.
+ - I’m a little bit of a control freak when it comes to my music, unfortunately.
+ - I’m not technically proficient enough to attempt all kinds of music.
+ - I first came to London when I was 22 and working as a roadie. Having watched the ‘News At Ten’ all my life, I thought Big Ben was going to be massive, but I was underwhelmed.
+ - I’ve got my own style on the guitar, sure, and I play rhythm in a certain way, and I use certain inflections. People have said that to me, and I understand it.
+ - As I get older, I don’t aggressively pursue songs. All the great ones just appear.
+ - Why is the rest of the world so overcrowded? Nobody lives in America! We’re all squashed up on top of each other in London.
+ - America is incredibly professional and corporate.
+ - I’m embarrassed when I see Brits abroad; they have their tops off, wear flip flops, and shout at the top of their voices.
+ - Jack White has just done a song for Coca-Cola. End of. He ceases to be in the club. And he looks like Zorro on doughnuts.
+ - These fledgling democracies in the Middle East, they’re actually fighting for their freedom. And what are they rioting for in England? Leisurewear.
+ - Rock stardom will die because nobody will make enough money any more to be rock stars.
+ - Producers like to record all the drums first, then they do the bass, then all the guitars, so you’re constantly moving from one song to another.
+ - Anything that’s of any use, famous people get hold of it and take it for themselves and it gets a bad rap.
+ - I do all the work so it’s only right that I should get the most money. Plus I am the most handsome.
+ - College football today is one of the last great strongholds of genuine old-fashioned American hypocrisy.
+ - There’s no new direction. It’s not more poppy or more rocky. They’re just rock’n’roll tunes. I’ll never change the music I write.
+ - Women have nine months more experience than you do – nine months to prepare for being a parent.
+ - America is a really delicate flower that needs a lot of attention.
+ - The charts are only relevant when you’re top of them!
+ - Frontmen come alive when they come onstage.
+ - I started off as many fathers do. I enjoyed the good bits, but I was wary of the responsibility. But now I love being a dad.
+ - When you’re in a band and there’s five of you, you have to accommodate five people in every song.
+ - With every song that I write, I compare it to the Beatles. The thing is, they only got there before me. If I’d been born at the same time as John Lennon, I’d have been up there.
+ - I’m a great songwriter, but I’m not the most talented musician.
+ - I don’t mind One Direction. They’re harmless, aren’t they?
+ - We were able to provide housing to all who need it. We’ve had incredibly generous offers from alumni for housing.
+ - I did drugs for 18 years and I never got that bad as to say, ‘You know what? I think the Kaiser Chiefs are brilliant.’
+ - I’ve grown to love California: It’s the dream of every English musician to come here and work in the sunshine. To walk up Sunset Boulevard, knowing you’re going to make music – that’s it.
+ - I like being famous. It can be a bit of a pain but you get free food in restaurants and people send you clothes.
+ - You can’t put a load of rockstars up on a stage and expect to wipe out global poverty. That’s ludicrous.
+ - I don’t fall into the category of tortured artist. But it’s not made me more or less anything.
+ - I’ve never felt like I had anything important to say.
+ - It’s not about being upset about the things you might have said or done yesterday, which is quite appropriate at the moment. It’s about looking forward rather than looking back. I hate people who look back on the past or talk about what might have been.
+ - Tony Blair is a brilliant politician. Unfortunately, his legacy is entwined with George W. Bush because of Iraq.
+ - The most annoying person on the BBC is Russell Brand, I’ve actually been close up to that boy. He smells like when you mix garlic with coffee and alcohol. I’m just saying when you get close to him, he could do with a bit of Sure For Men, he stinks.
+ - You have to make the effort with children. You can’t have them thinking that I reckon I’m special, otherwise they’ll start thinking they’re special. I want them to feel normal for as long as possible because God knows they’ll reach an age when they’ll be told they’re not.
+ - We dragged English guitar music out of the gutter.
+ - I’ve got a fleet of cars and I’ve never had a driving license, ever.
+ - Twenty years from now, will we listen to Lady Gaga? No. She might think she is making a stand for the freaks and the weirdos. But they’re not going to have any decent music to play, are they?
+ - I think the fact that Sir Alex Ferguson rested Howard Webb had a lot to do with the result.
+ - Don’t lay a finger on me eyebrows or I’ll sue you f...
+ - I love the NFL. I don’t have a team per se, but I’m into it.
+ - If everyone in the music business were brutally honest about what their intentions were then you could sort things out, but it’s all smoke and mirrors.
+ - Fame is something that is bestowed upon you because of success. Success is something you have to chase.
+ - I’m against people downloading music.
+ - What’s problematic about playing stadiums and driving around in private jets and drinking champagne at 8 o’clock in the morning? What’s wrong with that? I haven’t got a problem with that. I can’t fathom why people would.
+ - Drugs is like getting up and having a cup of tea in the morning.
+ - It took me to about maybe 16, 17 or 18 or something to realise I was absolutely useless at everything else except for playing guitar and writing words.
+ - Every album I’ve ever been involved in, on the day that it came out I believed in it.
+ - Music is a thing that changes people’s lives. It has the capacity to make young people’s lives better.
+ - There’s not enough good things in the world.
+ - Look. I was a superhero in the ’90s. I said so at the time. McCartney, Weller, Townshend, Richards, my first album’s better than all their first albums. Even they’d admit that.
+ - It’ll be nice to know that every gallon of petrol a Manchester United fan buys is going into our kitty.
+ - I know there’s bands that might write something that sounds like The Smiths, and they’ll go, ‘Oh, it sounds like The Smiths, we’ve got to make it sound not like The Smiths.’
+ - There’s enough music in the world. There are enough rock stars.
+ - Rock ‘n’ roll is about music. Music. Music. Music. It’s not about you, it’s not about me, it’s not about Oasis. It’s about the tunes.
+ - Every song that I play I wrote by myself.
+ - I’m used to people being a mile away. That suits me. It’s more nerve-wracking playing in front of people who are two feet away from me.
+ - Phil Collins sold five times as many records as I did. Does that make him nearly as influential as I am? Nope.
+ - I can make going to the dry-cleaners last an entire day, and the dry cleaners might be 150 yards from my front door. You might find it hard to believe, but I am bone-idle lazy.
+ - The thing about us is we’re honest. If we’re asked whether we take drugs, we say yes. I was brought up by my mom not to be a liar.
+ - If I had a gun, I’d shoot a hole into the sun and love would burn this city down for you.
+ - Even in the nineties, when it was mad and there were photographers all around the house, it never occurred to me to send someone else out to get cigarettes. It took me five minutes – went for a walk, gave a wave, went back inside.
+ - When a lot of musicians change styles, their songwriting suffers because they want to be different.
+ - All i would like to say is that I’m rich and you’re not.
+
+139 quotes

@@ -1,0 +1,42 @@
+ - Lifestyle and livelihood are pivotal moral issues.
+ - I don’t drink, I don’t smoke and I don’t party.
+ - The sun is the only safe nuclear reactor, situated as it is some ninety-three million miles away.
+ - The impermanence of the universe is manifest, inescapable. I know that, yet I am immoderately attached to this life, these pleasures, this place.
+ - Friendships offer good practice in accepting the transience of experience and the persistence of feeling.
+ - Time clocks rob the world of wild possibility. That’s what they’re for.
+ - It’s the best thing ever – I love being a mom. This is my only child. My career was a priority earlier in my life, but now my son is definitely the priority.
+ - There is ugliness of mass production and consumerism, the banality of advertising. Although it claims to do just the opposite, it’s predicated on disempowering and effacing persons.
+ - Most women don’t like good men. They say they want a good buy, but most women always wind up with the bad boy.
+ - Wonder is our erotic affiliation with all of life. If we develop this, enjoy it, and follow its promptings, our wants will be fewer and our needs plainer.
+ - I’m 47 years old. I couldn’t compete with Beyonce. I’m not competing with anyone. I’ve already established myself as an artist. I’ve been in this business for 30 years. There’s no reason for me to compete with anyone.
+ - What little wilderness remains displays the patterns we must return to, if our species and as many others as now remain are to persist here a while. Ideally this would call for a broad cultural rapprochment with the wild, a long overdue armistice in civilization’s war upon it.
+ - Therapy can help you grow. Fears will just disappear.
+ - Seeing is a gift that comes with practice.
+ - Agrarian Anabaptists, Christian Scientists, and Samurai are among the rare examples of renunciation stemming from an unwillingness to sacrifice the spiritual qualities of community life. Evidently there is no separate salvation.
+ - We cannot learn freedom and responsibility within the confines of our own species. We cannot understand life and death and what they are for in exclusively human terms. Without that which is wild, the world becomes a cell block.
+ - Enjoying the least things – a chill glass of water, a moment of play with the cat, the sight of sunlight caught in the frost spangling the locust twigs – is a form of prayer.
+ - I enjoy being single, but I loved being married.
+ - A person with friends need never be bored. There is always more to fathom and enjoy in the complexity of others, and always the possibility of finding a way to delight them.
+ - A life alert to simple pleasures, with perception cultivated and attuned to beauty, and a large capacity for friendship can serve us well come what may...
+ - It’s the artist’s duty to have an artist’s life, somehow to obtain time and freedom and then to muster the desire and discipline to make good work out of the life, whether that goodness is in the world’s aesthetics, its radicalism, its candor, its singularity, or its universality.
+ - Respecting beings, places, and life ways would be a basis for a worthy systemic analysis. And such an analysis would be inherently conservative, assuming that technology – from the fire stick to the silicon chip – is apt to do more harm to the Whole than good.
+ - It would be more concerned with the Whole than the parts and has to proceed from the premise that death and pain, short life spans, and no bread without sweat must be accepted.
+ - Recent rampage is a function of the exponential growth of populations and economies. It has to do with globalization and the steady increase in computational power.
+ - Individuals can refuse to use a given technology, but unless they live in total isolation will have to engage with people whose psyches have been shaped by a multitude of technologies. And there is no escaping the pervasive ecological effects.
+ - Given the diverse raiment life sports, one never knows what the guises of the gods may be.
+ - Any prediction worth its weigh would consider the spiritual, material, and unintended consequences of introducing a new technology to the world. It would proceed from the kind of understanding Chellis articulated: Life is Whole.
+ - It’s far too easy to qualify as an eccentric nowadays.
+ - If a technology is elegant, biodegradable, made from renewable materials and employs a minimum of muscular, water or wind energy, is responsive, beautiful in its way, and challenging to the user in that it develops the user’s senses and strength – it may comport with nature.
+ - Given all that history has shown us of the consequences of technology – from the atlatl spear to the A-bomb – why have so few groups of human beings managed to resist the incursions of technology? Or be choosy about the extent to which they’ll employ a technological innovation?
+ - Millions have been taken from me. If you are not on top of it and you make a lot of money, and you trust business managers, then, yes, money will be taken from you.
+ - Jazz voices that unvanquishable, natural will toward creaativity and self-expression, depite everything, in the here and now.
+ - Everything that’s old is new, and everything that’s new is old.
+ - Solitude is rich but seldom hilarious.
+ - As the ongoing industrial crusade to turn all earthly life to commercial purpose relentlessly impoverishes the biosphere and human culture, our living images of graceful possibility dwindle.
+ - It is said that the American vocabulary has declined by half in the past few decades. It’s a tragic instance of desertification following upon monocultural commodity production, the clear-cutting of written and spoken English.
+ - I don’t know what it takes to make marriage work, but I’m going to keep trying until I get it right. I haven’t given up on love or marriage.
+ - This is something I love to do. I’ve never had any other job. I love singing and entertaining.
+ - I believe entertainers should know what’s going on and do their own banking.
+ - Despair is not a particularly respectable condition and yet despair and delight alternate like systole and diastole in my heart.
+
+40 quotes

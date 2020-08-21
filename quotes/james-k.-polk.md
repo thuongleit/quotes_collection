@@ -1,0 +1,25 @@
+ - I love you Sarah. For all eternity, I love you.
+ - We must ever mandate the principle that the people of this continent alone have the right to decide their own destiny.
+ - It is confidently believed that our system may be safely extended to the utmost bounds of our territorial limits...
+ - I cannot, whilst President of the United States, descend to enter into a newspaper controversy.
+ - Foreign powers do not seem to appreciate the true character of our government.
+ - No president who performs his duties faithfully and conscientiously can have any leisure.
+ - The Constitution itself, plainly written as it is, the safeguard of our federative compact, the offspring of concession and compromise, binding together in the bonds of peace and union this great and increasing family of free and independent States, will be the chart by which I shall be directed.
+ - I am heartily rejoiced that my term is so near its close. I will soon cease to be a servant and will become a sovereign.
+ - The passion for office among members of Congress is very great, if not absolutely disreputable, and greatly embarrasses the operations of the Government. They create offices by their own votes and then seek to fill them themselves.
+ - There are four great measures for my administration – a reduction of tariff, an independent treasury, settlement of the Oregon boundary and acquisition of California.
+ - The world has nothing to fear from military ambition in our Government.
+ - With me it is exceptionally true that the Presidency is no bed of roses.
+ - Thank God, under our Constitution there was no connection between church and state.
+ - Peace, plenty, and contentment reign throughout our borders, and our beloved country presents a sublime moral spectacle to the world.
+ - When I observed a strong man approaching I generally took advantage of him by being a little quicker than he was and seizing him by the tip of the fingers, giving him a hearty shake, and thus preventing him from getting a full grip upon me.
+ - All distinctions of birth or of rank have been abolished. All citizens, whether native or adopted, are placed upon terms of precise equality. All are entitled to equal rights and equal protection.
+ - Minorities have a right to appeal to the Constitution as a shield against such oppression.
+ - General Taylor is, I have no doubt, a well-meaning old man. He is, however, uneducated, exceedingly ignorant of public affairs, and I should judge, of very ordinary capacity.
+ - Under the benignant providence of Almighty God the representatives of the States and of the people are again brought together to deliberate for the public good.
+ - One great object of the Constitution was to restrain majorities from oppressing minorities or encroaching upon their just rights.
+ - Thank God, under our Constitution there was no connection between Church and State, and that in my action as President of the United States I recognized no distinction of creeds in my appointments office.
+ - No union exists between church and state, and perfect freedom of opinion is guaranteed to all sects and creeds.
+ - Public opinion: May it always perform one of its appropriate offices, by teaching the public functionaries of the State and of the Federal Government, that neither shall assume the exercise of powers entrusted by the Constitution to the other.
+
+23 quotes

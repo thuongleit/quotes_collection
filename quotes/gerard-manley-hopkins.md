@@ -1,0 +1,55 @@
+ - The world is charged with the grandeur of God.
+ - Your personal boundaries protect the inner core of your identity and your right to choices.
+ - Glory be to God for dappled things.
+ - Life death all does end and each day dies with sleep.
+ - To lift up the hands in prayer gives God glory, but a man with a dungfork in his hand, a woman with a slop pail, give Him glory, too. God is so great that all things give Him glory if you mean that they should.
+ - Searching nature I taste self but at one tankard, that of my own being.
+ - Because the Holy Ghost over the bent World broods with warm breast and with ah! bright wings.
+ - No wonder of it: sheer plod makes plough down sillion Shine, and blue-bleak embers, ah my dear, Fall, gall themselves, and gash gold-vermilion.
+ - What is all this juice and all this joy?
+ - What I do is me, for that I came.
+ - I do not think I have ever seen anything more beautiful than the bluebell I have been looking at. I know the beauty of our Lord by it.
+ - O the mind, mind has mountains; cliffs of fall Frightful, sheer, no-man-fathomed. Hold them cheap May who ne’er hung there. Nor does long our small Durance deal with that steep or deep...
+ - Look at the stars! Look, look up at the skies! Oh look at all the fire-folk sitting in the air! The bright boroughs, the circle-citadels there!
+ - I thought how sadly beauty of inscape was unknown and buried away from simple people and yet how near at hand it was if they had eyes to see it and it could be called out everywhere again.
+ - Natural heart’s ivy, Patience masks Our ruins of wrecked past purpose.
+ - Religion, you know, enters very deep; in reality it is the deepest impression I have in speaking to people, that they are or that they are not of my religion.
+ - The world is charged with the grandeur of God. It will flame out, like shining from shook foil; It gathers to a greatness, like the ooze of oil Crushed.
+ - What you look at hard seems to look at you.
+ - I say that we are wound With mercy round and round As if with air.
+ - Let Him easter in us, be a dayspring to the dimness of us, be a crimson-cresseted east.
+ - When I compare myself, my being-myself, with anything else whatever, all things alike, all in the same degree, rebuff me with blank unlikeness.
+ - And for all this, nature is never spent; There lives the dearest freshness deep down things; And though the last lights off the black West went Oh, morning, at the brown brink eastward, springs – Because the Holy Ghost over the bent World broods with warm breast and with ah! bright wings.
+ - The Indian gods are imposing, the Greek gods are not. Indeed they are not brave, not self-controlled, they have no manners, they are not gentlemen and ladies.
+ - The poetical language of an age should be the current language heightened.
+ - Give beauty back, beauty, beauty, beauty, back to God, beauty’s self and beauty’s giver.
+ - Beauty is a relation, and the apprehension of it a comparison.
+ - The world is charged with the grandeur of God. It will flame out like shining from shook foil? Generations have trod, have trod, have trod; And all is seared with trade; bleared, smeared with toil; And wearsman’ssmudgeand sharesman’ssmell: thesoil Is bare now, nor can foot feel, being shod.
+ - Any day, any minute we bless God for our being or for anything, for food, for sunlight, we do and are what we were meant for, madefor – things that give and mean to give God glory.
+ - For myself I make no secret, I look forward with eager desire to seeing the matchless beauty of Christ’s body in the heavenly light.
+ - I do not write for the public. You are my public and I hope to convert you.
+ - Our Lord Jesus Christ, my brethren, is our hero, a hero all the world wants.
+ - Summer ends now; now, barbarous in beauty, the Stooks arise Around; up above, what wind-walks! what lovely behavior Of silk-sack clouds! Has wilder, willful-waiver Meal-drift molded ever and melted across skies?
+ - Nothing is so beautiful as spring – when weeds, in wheels, shoot long and lovely and lush; Thrush’s eggs look little low heavens, and thrush through the echoing timber does so rinse and wring the ear, it strikes like lightning to hear him sing.
+ - I always knew in my heart Walt Whitman’s mind to be more like my own than any other man’s living.
+ - As kingfishers catch fire, dragonflies draw flame.
+ - The male quality is the creative gift.
+ - Horrible to say, in a manner I am a Communist.
+ - All the world is full of inscape and chance left free to act falls into an order as well as purpose.
+ - I am surprised you shd. say fancy and aesthetic tastes have led me to my present state of mind: these wd. be better satisfied in the Church of England, for bad taste is always meeting one in the accessories of Catholicism.
+ - The effect of studying masterpieces is to make me admire and do otherwise.
+ - It kills me to be time’s eunuch and never to beget.
+ - Crystal sincerity hath found no shelter but in a fool’s cap.
+ - I find myself both as man and as myself something more determined and distinctive, at pitch, more distinctive and higher pitched than anything else I see.
+ - The Best ideal is the true and other truth is none. All glory be ascribed to the holy Three in One.
+ - Time has three dimensions and one positive pitch or direction. It is therefore not so much like any river or any sea as like the Sea of Galilee, which has the Jordan running through it and giving a current to the whole.
+ - I think that the trivialness of life is, and personally to each one, ought to be seen to be, done away with by the Incarnation.
+ - All things therefore are charged with love, are charged with God and if we knew how to touch them give off sparks and take fire, yield drops and flow, ring and tell of him.
+ - Even with one companion ecstasy is almost banished.
+ - It is a happy thing that there is no royal road to poetry. The world should know by this time that one cannot reach Parnassus except by flying thither.
+ - I wake and feel the fell of dark, not day. What hours, O what black hours we have spent This night!
+ - By the by, if the English race had done nothing else, yet if they left the world the notion of a gentleman, they would have done a great service to mankind.
+ - Do you know, a horrible thing has happened to me. I have begun to doubt Tennyson.
+ - I hold with the old-fashioned criticism that Browning is not really a poet, that he has all the gifts but the one needful and the pearls without the string; rather one should say raw nuggets and rough diamonds.
+
+53 quotes

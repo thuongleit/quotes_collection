@@ -1,0 +1,71 @@
+ - All creative people want to do the unexpected.
+ - I know why most people never get rich. They put the money ahead of the job. If you just think of the job, the money will automatically follow. This never fails.
+ - Jack Kennedy always said to me, Hedy, get involved. That’s the secret of life. Try everything. Join everything. Meet everybody.
+ - Any girl can be glamorous. All you have to do is stand still and look stupid.
+ - Experts always know everything but the fine points. When I took my citizenship exams, no one there knew how the White House came to be called the White House.
+ - I would tell anyone who wants something from someone else to feign not wanting it. People are perverse. If you show great affection to them, they’ll run the other way.
+ - I have always felt that if a man gives you a solid gold key to his door he is entitled to the courtesy of a visit.
+ - I advise everybody not to save: spend your money. Most people save all their lives and leave it to somebody else. Money is to be enjoyed.
+ - It’s funny about men and women. Men pay in cash to get them and pay in cash to get rid of them. Women pay emotionally coming and going. Neither has it easy.
+ - Most children turn out badly because they have the wrong parental image. This doesn’t mean their parents are criminal. It means they are boring and cruel.
+ - Men are fine, love is fine, it’s marriage I’m a little disappointed in.
+ - I’ve been an important star and lived a full life, yet I only hve three close friends. I guess that’s all anyone can expect.
+ - I am not ashamed to say that no man I ever met was my father’s equal, and I never loved any other man as much.
+ - I’m a sworn enemy of convention. I despite the conventional in anything, even the arts. I paint canvasses on the floor and drove one art teacher out of his mind. But that’s just the way I paint best.
+ - Some men like a dull life – they like the routine of eating breakfast, going to work, coming home, petting the dog, watching TV, kissing the kids, and going to bed. Stay clear of it – it’s often catching.
+ - Men are most virile and most attractive between the ages of 35 and 55. Under 35 a man has too much to learn, and I don’t have time to teach him.
+ - I’ve met the most interesting people while flying or on a boat. These methods of travel seem to attract the kind of people I want to be with.
+ - I’m fifty-one years old, but I’m not through yet. I have lived a full life, and intend packing in quite a lot more.
+ - I win because I learned years ago that scared money always loses. I never care, so I win.
+ - Let any pretty girl announce a divorce in Hollywood and the wolves come running. Fresh meat for the beast, and they are always hungry.
+ - A good painting to me has always been like a friend. It keeps me company, comforts and inspires.
+ - To be a star is to own the world and all the people in it. After a taste of stardom, everything else is poverty.
+ - The ladder of success in Hollywood is usually a press agent, actor, director, producer, leading man; and you are a star if you sleep with each of them in that order. Crude, but true.
+ - Compromise and tolerance are magic words. It took me 40 years to become philosophical.
+ - I was madly in love with life.
+ - American men, as a group, seem to be interested in only two things, money and breasts. It seems a very narrow outlook.
+ - Because you don’t live near a bakery doesn’t mean you have to go without cheesecake.
+ - I still look good, though.
+ - Confidence is something you’re born with. I know I had loads of it even at the age of 15.
+ - All my six husbands married me for different reasons.
+ - I was born an only child in Vienna, Austria. My father found hours to sit by me by the library fire and tell fairy stories.
+ - My mother always called me an ugly weed, so I never was aware of anything until I was older. Plain girls should have someone telling them they are beautiful. Sometimes this works miracles.
+ - Every girl would like to marry a rich husband. I did twice. But what divides girls into two groups is this question – do you first think of money and then love, or vice versa?
+ - I have not been that wise. Health I have taken for granted. Love I have demanded, perhaps too much and too often. As for money, I have only realized its true worth when I didn’t have it.
+ - I don’t fear death because I don’t fear anything I don’t understand. When I start to think about it, I order a massage and it goes away.
+ - I find very often that very ugly women have really handsome men and vice versa because they don’t have any competition. Sometimes handsome men have avoided me.
+ - I can excuse everything but boredom. Boring people don’t have to stay that way.
+ - I don’t believe in life after death. But I do believe in some grinding destiny that watches over us on earth. If I didn’t, the safety valve would give and the boiler would explode.
+ - I enjoy countless hundreds pursuing me. I love those who love me the most. I am sort of flattered by men showing attention to me.
+ - Sophia Loren would be a glamour girl even if she were in rags selling fish. She has the look, the movement and the intellect.
+ - Analysis gave me great freedom of emotions and fantastic confidence. I felt I had served my time as a puppet.
+ - Dirt makes a man look masculine. Let your hair blow in the wind, and all that. It’s OK. All you have to do is look neat when you have to look neat.
+ - The ceremony took six minutes. The marriage lasted about the same amount of time though we didn’t get a divorce for almost a year.
+ - If I were to name my favorite pastime, I’d have to say talking about myself. I love it and I think most other people do too. We need, people like us, more listeners and less talkers.
+ - I was in constant demand, in my professional life and my personal life.
+ - All a woman needs is a good bath, clean clothes, and for her hair to be combed. These things she can do herself. I very seldom go to the hairdresser, but when I do, I just marvel.
+ - Perhaps my problem in marriage-and it is the problem of many women-was to want both intimacy and independence. It is a difficult line to walk, yet both needs are important to a marriage.
+ - I think women are concerned too much with their clothes. Men don’t really care that much about women’s clothes. If they like a girl, chances are they’ll like her clothes.
+ - I remember all too well the premiere of Ecstasy when I watched my bare bottom bounce across the screen and my mother and father sat there in shock.
+ - I appreciate subtlety. I have never enjoyed a kiss in front of the camera. There’s nothing to it except not getting your lipstick smeared.
+ - I often talked to Bing Crosby, and while I liked him, I never understood why he was so popular. To me his voice was just a gimmick.
+ - I have never seen a wrestling match or a prize fight, and I don’t want to. When I find out a man is interested in these sports, I drop him.
+ - I believe in sending a lot of letters and notes to friends.
+ - I must quit marrying men who feel inferior to me. Somewhere there must be a man who could be my husband and not feel inferior.
+ - I never go to funerals. To me a person is dead when he breathes for the last time. After that, your memories should be personal.
+ - Would you believe I was a famous star? It’s the truth.
+ - It is easier for women to succeed in business, the arts, and politics in America than in Europe.
+ - Making pictures, for an actress, is like betting, for a gambler. Each time you make a picture you try to analyze why you won or lost.
+ - Films have a certain place in a certain time period. Technology is forever.
+ - That’s how it always is in the entertainment industry, your feet are always treading Jello.
+ - The public pays and feels it is entitled to participate in the personal affairs of a performer.
+ - Dates with actors, finally, just seemed to me evenings of shop talk. I got sick of it after a hile. So the more famous I became, the more I narrowed down my choices.
+ - I am a very good shot. I have hunted for every kind of animal. But I would never kill an animal during mating season.
+ - I know when I’m working I seldom get into trouble. My educated guess is that boredom has caused most of the problems with Hollywood celebrities.
+ - If I had my way everyone would have a psychiatrist. When the brain is sick and you must throw up, you do it by being purged in a psychiatrist’s office.
+ - I don’t have any gnawing guilt over contributing to any unhappiness suffered by my husbands. They were as much to blame as I was.
+ - One of my favorite people is Gypsy Rose Lee. She bears out the Biblical promise that he who has, gets. And I hope she gets a lot more.
+ - Lawyers know how to take isolated complaints in a divorce case and build them into one big one.
+ - Many people are target people. Once when Louis B. Mayer insulted me I poured a glass of water over his head.
+
+69 quotes

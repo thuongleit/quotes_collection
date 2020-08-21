@@ -1,0 +1,25 @@
+ - Youth is the time to study wisdom; old age is the time to practice it.
+ - What man loses by the social contract is his natural liberty and an unlimited right to everything he tries to get and succeeds in getting; what he gains is civil liberty and the proprietorship of all he possesses.
+ - Coercion created slavery, the cowardice of the slaves perpetuated it.
+ - If you have but a single ruler, you lie at the discretion of a master who has no reason to love you: and if you have several, you must bear at once their tyranny and their divisions.
+ - As soon as public service ceases to be the chief business of the citizens, and they would rather serve with their money than with their persons, the State is not far from its fall.
+ - Truth is no road to fortune.
+ - Astronomy was born of superstition; eloquence of ambition, hatred, falsehood, and flattery; geometry of avarice; physics of an idle curiosity; and even moral philosophy of human pride. Thus the arts and sciences owe their birth to our vices.
+ - Men always love what is good or what they find good; it is in judging what is good that they go wrong.
+ - Every artist loves applause. The praise of his contemporaries is the most valuable part of his recompense.
+ - The Catholic must adopt the decision handed down to him; the Protestant must learn to decide for himself.
+ - Who does not sufficiently hate vice, does not sufficiently love virtue.
+ - It should be remembered that the foundation of the social contract is property; and its first condition, that every one should be maintained in the peaceful possession of what belongs to him.
+ - The man who has lived the longest is not he who has spent the greatest number of years, but he who has had the greatest sensibility of life.
+ - The right of conquest has no foundation other than the right of the strongest.
+ - Readiness of speech is often inability to hold the tongue.
+ - Old men grasp more at life than babies, and leave it with a much worse grace than young people. It is because all their labours having been for this life, they perceive at last their trouble lost.
+ - The vine that has been made to bear fruit in the spring, withers and dies before autumn.
+ - Were there a people of gods, their government would be democratic. So perfect a government is not for men.
+ - Each State can have for enemies only other States, and not men; for between things disparate in nature there can be no real relation.
+ - To reign by opinion, begin by trampling it under your feet.
+ - They must know but little of mankind who can imagine that, after they have been once seduced by luxury, they can ever renounce it.
+ - The less reasonable a cult is, the more men seek to establish it by force.
+ - Do we wish men to be virtuous? Then let us begin by making them love their country.
+
+23 quotes

@@ -1,0 +1,70 @@
+ - Passion is one great force that unleashes creativity, because if you’re passionate about something, then you’re more willing to take risks.
+ - I don’t always have a five-year plan. One thing you must do in life is keep your learning curve as high as possible.
+ - Good things happen when you meet strangers.
+ - Bach takes you to a very quiet place within yourself, to the inner core, a place where you are calm and at peace.
+ - When you learn something from people, or from a culture, you accept it as a gift, and it is your lifelong commitment to preserve it and build on it.
+ - Music is powered by ideas. If you don’t have clarity of ideas, you’re just communicating sheer sound.
+ - A Senegalese poet said ‘In the end we will conserve only what we love. We love only what we understand, and we will understand only what we are taught.’ We must learn about other cultures in order to understand, in order to love, and in order to preserve our common world heritage.
+ - I think one of the great things about being a musician is that you never stop learning.
+ - Our cultural strength has always been derived from our diversity of understanding and experience.
+ - Music enhances the education of our children by helping them to make connections and broadening the depth with which they think and feel. If we are to hope for a society of culturally literate people, music must be a vital part of our children’s education.
+ - Nobody else can make the sound you make.
+ - Sharing is a much better way to communicate than proving.
+ - It’s easy for me to care about Toronto, because Toronto is a community that cares about itself. It represents the world. It talks to itself, and because it does, it figures out that there must be a music garden as part of its existence.
+ - Each day I move toward that which I do not understand. The result is a continuous accidental learning which constantly shapes my life.
+ - When your heart and your mind are engaged, you cannot go wrong.
+ - Practicing is not only playing your instrument, either by yourself or rehearsing with others – it also includes imagining yourself practicing. Your brain forms the same neural connections and muscle memory whether you are imagining the task or actually doing it.
+ - I love grocery shopping when I’m home. That’s what makes me feel totally normal. I love both the idea of home as in being with my family and friends, and also the idea of exploration. I think those two are probably my great interests.
+ - As you begin to realize that every different type of music, everybody’s individual music, has its own rhythm, life, language and heritage, you realize how life changes, and you learn how to be more open and adaptive to what is around us.
+ - Culture opens our hearts to one another. And the currency in culture is not money, but trust.
+ - The worst thing you can do is say to yourself, “I want to be just like somebody else.” You have to absorb knowledge from someone else, but ultimately you have to find your own voice.
+ - I think anybody who goes away finds you appreciate home more when you return.
+ - Music is one of the ways we can achieve a kind of shorthand to understand each other.
+ - Jazz has been such a force in music, that any musician, including classical composers, have been influenced, and obviously performers, also.
+ - Perfection is not very communicative.
+ - I realized late in life that my twin passions are music and people.
+ - Things can fall apart, or threaten to, for many reasons, and then there’s got to be a leap of faith. Ultimately, when you’re at the edge, you have to go forward or backward; if you go forward, you have to jump together.
+ - Classical music is one of the best things that ever happened to mankind. If you get introduced to it in the right way, it becomes your friend for life.
+ - In performance, we have a greater purpose. The greater purpose is that we’re communing together, and we want this moment to be really special for all of us. Because otherwise, why bother to have come at all? It’s not about proving anything. It’s about sharing something.
+ - I want to investigate different cultures, to see how their identities and values affect their music. It’s one way I can get to know our world, at least to a certain depth.
+ - There’s a part of me that’s always charging ahead. I’m the curious kid, always going to the edge.
+ - I play an instrument that has four strings, and I’m still trying to get it right. What I’ve tried to do in the process of playing these four strings is to try and understand the people I meet, the stories they have to tell. And then become an advocate for them and their stories through music.
+ - There are limits to how much sound a cello can make. That’s part of the framing of acoustical instruments. Finding what those limits might be, and then trying to suggest perhaps even the illusion of going beyond is part of that kind of effort.
+ - One of the marks of a great teacher lies not only in an ability to impart knowledge but also in knowing when to encourage a student to go off on his own.
+ - I’ve been traveling all over the world for 25 years, performing, talking to people, studying their cultures and musical instruments, and I always come away with more questions in my head than can be answered.
+ - You must have a reason to be in the places to which you go, and you must do only things that you really care about.
+ - I remember when I was growing up. My great wish was to understand who I was and how I fit in the world.
+ - My teacher, my great cello teacher Leonard Rose, was such a great cellist, and nurturing man, very patient. But I grew up not only admiring him, but obviously Casals, Rostrotovich, Jacqueline du Pre, and many others, including many of my peers and contemporaries.
+ - Sound is ephemeral, fleeting, but some sort of a physical manifestation can help you hold on to it longer in time. I’m sure of this; I’ve always thought the sound that you make is just the tip of the iceberg, like the person that you see physically is just the tip of the iceberg as well.
+ - Music has always been transnational;.
+ - The role of the musician is to go from concept to full execution. Put another way, it’s to go from understanding the content of something to really learning how to communicate it and make sure it’s well-received and lives in somebody else.
+ - Children, in a way, are constant learners. Certainly sponge-like. Absorbing everything without careful analysis, even though, at the same time, they are certainly capable of incredible insights.
+ - When people ask me how they should approach performance, I always tell them the professional musician should aspire to the state of the beginner.
+ - This middle age thing is a little weird. Some friends and mentors are gone, and there’s a very forward-looking new generation coming up behind me. So it’s very much finding my own place.
+ - We may be coming to a new golden age of instrument making.
+ - Once something is memorable, it’s living and you’re using it. That to me is the foundation of a creative society.
+ - With every year of playing, you want to relax one more muscle. Why? Because the more tense you are, the less you can hear.
+ - After reaching 50, I began to wonder what the root of life is.
+ - People will ask, ‘Are you famous?’ And I always answer, ‘My mother thinks so.’
+ - You go through phases. You have to reinvent reasons for playing, and one year’s answer might not do for another.
+ - One of the things I love about music is live performance.
+ - The thing that I’ve always been slightly frustrated with, was that the idea of a CD is kind of confined to a material possession that you can put on a shelf. And the idea of music, for me, is always about both the communication and the sharing of content. And so the interactive part is missing.
+ - The tango is really a combination of many cultures, though it eventually became the national music of Argentina.
+ - I have yet to find something that beats the power of being in love, or the power of music at its most magical.
+ - As a child, you respond physically, tactically. You’re delighted by sound, you’re delighted by recognizing something. It’s like hide and seek. Is it there? Is it not there? Is it this note? Is it not this note? It’s one fantastic game.
+ - When we enlarge our view of the world, we deepen our understanding of our own lives.
+ - I really would like to be involved in things and to understand things, and in some ways you’ve got to be careful what you wish for because I feel very, very blessed to have such an interesting life and to be able to have little snapshots of lives of people from many different parts of the world.
+ - But an innovation, to grow organically from within, has to be based on an intact tradition, so our idea is to bring together musicians who represent all these traditions, in workshops, festivals, and concerts, to see how we can connect with each other in music.
+ - Music has always been transnational; people pick up whatever interests them, and certainly a lot of classical music has absorbed influences from all over the world.
+ - Many of the Central Asians know Russian, and Ted Levin speaks it fluently. I speak Chinese, but Mongolian is completely different, so we had to have translators.
+ - As a musician I’m kind of nomadic, Waldo-like. I show up in different places, and I’m witness to unbelievable things.
+ - I think of a piece of music as something that comes alive when it is being performed, and I feel that my role in the transmission of music is to be its best advocate at that moment.
+ - One is that you have to take time, lots of time, to let an idea grow from within. The second is that when you sign on to something, there will be issues of trust, deep trust, the way the members of a string quartet have to trust one another.
+ - One of the most interesting aspects of the film project was collaborating with so many people – directors, filmmakers, and writers – over a five-year period. I learned that there are two components to this.
+ - I think the purpose of a piece of music is significant when it actually lives in somebody else. A composer puts down a code, and a performer can activate the code in somebody else. Once it lives in somebody else, it can live in others as well.
+ - My involvement in the political arena is to make sure there’s a place for culture.
+ - The tradition of classical music and the opera is such that it used to be the place where social intercourse could take place between all parts of society: politicians, industrialists, artists, citizens, etc. That tradition, I think, still exists, but it’s much, much more diluted.
+ - I learn something not because I have to, but because I really want to. That’s the same view I have for performing. I’m performing because I really want to, not because I have to bring bread back home.
+ - I think that peace is, in many ways, a precondition of joy.
+
+68 quotes

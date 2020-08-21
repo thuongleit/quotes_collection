@@ -1,0 +1,99 @@
+ - The best revenge is massive success.
+ - Fly me to the moon, let me play among the stars.
+ - Take a deep breath, pick yourself up, dust yourself off, and start all over again.
+ - I’m gonna live till I die.
+ - The big lesson in life, baby, is never be scared of anyone or anything.
+ - You only go around once, but if you play your cards right, once is enough.
+ - A simple “I love you” means more than money.
+ - You may be a puzzle, but I like the way the parts fit.
+ - And now the end is near, and so I face the final curtain.
+ - If you can make it there, you’ll make it anywhere; it’s up to you, New York, New York.
+ - Don’t hide your scars. They make you who you are.
+ - Regrets, I’ve had a few but then again too few to mention. And more, much more than this, I did it my way.
+ - I would like to be remembered as a man who had a wonderful time living life, a man who had good friends, fine family – and I don’t think I could ask for anything more than that, actually.
+ - Alcohol may be man’s worst enemy, but the bible says love your enemy.
+ - Fear is the enemy of logic.
+ - For what is a man, what has he got. If not himself, then he has naught.
+ - Don’t get even, get mad.
+ - A man doesn’t know what happiness is until he’s married. By then it’s too late.
+ - The best is yet to come and won’t that be fine.
+ - Stay alive, stay active, and get as much practice as you can.
+ - You buy a Ferrari when you want to be somebody. You buy a Lamborghini when you are somebody.
+ - The record shows, I took the blows. And did it my way.
+ - Las Vegas is the only place I know where money really talks – it says, Goodbye.
+ - Don’t respond to negativity with more negativity. Just put your head down and prove your critics wrong.
+ - I think my greatest ambition in life is to pass on to others what I know.
+ - If you don’t know the guy on the other side of the world, love him anyway because he’s just like you. He has the same dreams, the same hopes and fears. It’s one world, pal. We’re all neighbors.
+ - You better get busy living, because dying’s a pain in the ass.
+ - Fear is the enemy of logic. There is no more debilitating, crushing, self-defeating, sickening thing in the world – to an individual or to a nation.
+ - Dare to wear the foolish clown face.
+ - There are moments when it’s too quiet. Particularly late at night or early in the mornings. That’s when you know there’s something lacking in your life. You just know.
+ - Critics don’t bother me because if I do badly, I know I’m bad before they even write it. And if I’m good, I know I’m good. I know best about myself, so a critic doesn’t anger me.
+ - The cigarettes you light one after another won’t help you forget her.
+ - What I do with my life is of my own doing. I live it the best way I can.
+ - Love and marriage, love and marriage, go together like a horse and carriage. This I tell ya, brother, you can’t have one without the other.
+ - I believe that God knows what each of us wants and needs. It’s not necessary for us to make it to church on Sunday to reach Him. You can find Him anyplace.
+ - You are the promised kiss of springtime that makes the lonely winter seem long. You are the breathless hush of evening that trembles on the brink of a lovely song.
+ - I’m for whatever gets you through the night.
+ - I want to wake up in a city that never sleeps.
+ - May you live to be 100 and may the last voice you hear be mine.
+ - Whatever you can do, or dream you can, begin it. Boldness has genius, power and magic in it. -Johann Wolfgang von Goethe31. The best revenge is massive success.
+ - Bad reviews I’ve gotten never diminished the number of people in my audience; good reviews have never added to the number of people in my audience; be your own critic.
+ - Cock your hat – angles are attitudes.
+ - A friend to me has no race, no class and belongs to no minority. My friendships were formed out of affection, mutual respect and a feeling of having something strong in common. These are eternal values that cannot be racially classified. This is the way I look at race.
+ - To do is to be. -Descartes To be is to do. – Voltaire Do be do be do.
+ - Hell hath no fury like a hustler with a literary agent.
+ - Never yawn in front of a lady.
+ - Orange is the happiest color.
+ - For nobody else, gave me thrill-with all your faults, I love you still. It had to be you, wonderful you, it had to be you.
+ - People who make a living off other people’s fortunes or misfortunes are parasites.
+ - Fresh air makes me throw up. I can’t handle it. I’d rather be around three Denobili cigars blowing in my face all night.
+ - People often remark that I’m pretty lucky. Luck is only important in so far as getting the chance to sell yourself at the right moment. After that, you’ve got to have talent and know how to use it.
+ - You’ve either got or you haven’t got style, and if you’ve got it you stand out a mile.
+ - I like intelligent women. When you go out, it shouldn’t be a staring contest.
+ - I think being jilted is one of life’s most painful experiences. It takes a long time to heal a broken heart. It’s happened to all of us and never gets any easier. I understand, however, that playing one of my albums can help.
+ - A friend is never an imposition.
+ - I am a thing of beauty.
+ - When I sing, I believe. I’m honest. If you want to get an audience with you, there’s only one way. You have to reach out to them with total honesty and humility.
+ - Card players have a saying: “It’s all right to play if you keep your eyes on the deck” – which is another way of saving, “Eternal vigilance is the price of liberty.”
+ - I get an audience personally involved in a song – because I’m involved myself. It’s not something I do deliberately: I can’t help myself. If the song is a lament at the loss of love, I get an ache in my gut. I feel the loss myself and I cry out the loneliness, the hurt and the pain that I feel.
+ - Whatever else has been said about me personally is unimportant. When I sing, I believe. I’m honest.
+ - Only sing – don’t do cheap songs, don’t do silly songs, just do, just do wonderful songs that are well-written.
+ - You can be the most artistically perfect performer in the world, but an audience is like a broad – if you’re indifferent, Endsville.
+ - To me religion is a deeply personal thing in which man and God go it alone together, without the witch doctor in the middle. The witch doctor tries to convince us that we have to ask God for help, to spell out to him what we need, even to bribe him with prayer or cash on the line.
+ - When I sing, I believe. I’m honest.
+ - You’ve got to be on the ball from the minute you step out into that spotlight. You gotta know exactly what you’re doing every second on that stage, otherwise the act goes right into the bathroom. It’s all over. Good night.
+ - When lip service to some mysterious deity permits bestiality on Wednesday and absolution on Sunday, cash me out.
+ - I firmly believe that nuclear war is absolutely impossible. I don’t think anyone in the world wants a nuclear war – not even the Russians.
+ - All day long, they lie in the sun, and when the sun goes down, they lie some more.
+ - As you may know, I have many good friends in the press who, unfortunately, have thus far refused to identify themselves and go public.
+ - The only male singer who I’ve seen besides myself and who’s better than me – that is Michael Jackson.
+ - Way down among Brazilians. Coffee beans grow by the billions. So they’ve got to find those extra cups to fill. They’ve got an awful lot of coffee in Brazil.
+ - Basically, I’m for anything that gets you through the night – be it prayer, tranquilizers or a bottle of Jack Daniels.
+ - Rock ’n Roll: The most brutal, ugly, desperate, vicious form of expression it has been my misfortune to hear.
+ - Oh, I just wish someone would try to hurt you so I could kill them for you.
+ - The thing that influenced me most was the way Tommy played his trombone. It was my idea to make my voice work in the same way as a trombone or violin-not sounding like them, but “playing” the voice like those instrumentalists.
+ - My greatest teacher was not a vocal coach, not the work of other singers, but the way Tommy Dorsey breathed and phrased on the trombone.
+ - The martial music of every sideburned delinquent on the face of the earth.
+ - It is Billie Holiday who was, and still remains, the greatest single musical influence on me.
+ - Nothing anybody’s said or written about me ever bothers me, except when it does.
+ - At heart, I guess I’m a saloon singer because there’s a greater intimacy between performer and audience in a nightclub. Then again, I love the excitement of appearing before a big concert audience. Let’s just say that the place isn’t important, as long as everybody has a good time.
+ - Most of what has been written about me is one big blur, but I do remember being described in one simple word that I agree with. It was in a piece that tore me apart for my personal behavior, but the writer said that when the music began and I started to sing, I was “honest.”
+ - I’m just a singer, Elvis was the embodiment of the whole American culture.
+ - If I had as many love affairs as I’ve been given credit for, I’d be in a jar at the Harvard Medical School.
+ - It was a staggering moment when I first heard the news. Lennon was a most talented man and above all, a gentle soul. John and his colleagues set a high standard by which contemporary music continues to be measured.
+ - Throughout my career, if I have done anything, I have paid attention to every note and every word I sing – if I respect the song. If I cannot project this to a listener, I fail.
+ - If power doesn’t mean that you have the opportunity to work with the people that you love, then you haven’t really got any.
+ - It took me a long, long time to learn what I now know, and I don’t want that to die with me.
+ - There are several things I think I would have done if I had the chance again. I would have been a little more patient about getting out into the world. I would have seen to it that I had a more formal education. I would have become an accomplished mu.
+ - Trouble just seems to come my way-unbidden, unwelcome, unneeded.
+ - If I had done everything I’m credited with, I’d be speaking to you from a laboratory jar at Harvard.
+ - Now there’s a grown-up swinging town.
+ - You treat a lady like a dame, and a dame like a lady.
+ - Here’s to the confusion of our enemies!
+ - I don’t know what other singers feel when they articulate lyrics, but being an 18-karat manic-depressive and having lived a life of violent emotional contradictions, I have an overacute capacity for sadness as well as elation.
+ - I would like to be remembered as a man who brought an innovation to popular singing.
+ - What is the point of singing wonderful lyrics if the audience can’t understand what is being said or heard?
+ - For my money Tony Bennett is the best singer in the business.
+
+97 quotes

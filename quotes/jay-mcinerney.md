@@ -1,0 +1,48 @@
+ - The capacity for friendship is God’s way of apologizing for our families.
+ - He insisted on a single trade secret: that you had to survive, find some quiet, and work hard every day.
+ - I think men talk to women so they can sleep with them and women sleep with men so they can talk to them.
+ - Everything becomes symbol and irony when you’ve been betrayed.
+ - If it’s red, French, costs too much, and tastes like the water that’s left in the vase after the flowers have died and rotted, it’s probably Burgundy.
+ - Your heartbreak is just another version of the same old story.
+ - I’d like to have the kind of house someday where a carousel horse wouldn’t be out of place in the living room.
+ - Something changed. Somewhere along the line you stopped accelerating.
+ - Sometimes I think the difference between what we want and what we’re afraid of is about the width of an eyelash.
+ - Love is the eternal quest: almost everyone wants to love and be loved.
+ - I remain a fan of my friend Bret Easton Ellis’s ‘American Psycho.’ I think as a book about New York in the ’80s it was pretty excellent.
+ - Bottles of wine aren’t like paintings. At some point you have to consume them. The object in life is to die with no bottles of wine in your cellar. To drink your last bottle of wine and go to sleep that night and not wake up.
+ - You have friends who actually care about you and speak the language of the inner self. You have avoided them of late. Your soul is as disheveled as your apartment, and until you can clean it up a little you don’t want to invite anyone inside.
+ - You keep thinking that with practice you will eventually get the knack of enjoying superficial encounters, that you will stop looking for the universal solvent, stop grieving. You will learn to compound happiness out of small increments of mindless pleasure.
+ - I don’t want to have my life fall apart for my work.
+ - You know, Im always surprised when I read profiles, and they make me sound so jaded. I am so not jaded.
+ - There is a shabby nobility in failing all by yourself.
+ - It’s the cynics who never get married.
+ - I love to imagine inside the head of a woman.
+ - A modest critique of an age in which an actor is the President, in which fashion models are asked for their opinions, in which getting into a nightclub is seen as a significant human achievement.
+ - Most of the people I write about have been ambitious outlanders who have been attracted to New York from other parts of the world.
+ - Eat, drink and remarry is my motto.
+ - Add anchovies to almost anything, in moderation, and it will taste better.
+ - We’ve been hearing about the death of the novel ever since the day after Don Quixote was published.
+ - Tim Thornton’s portrait of a pop culture obsession is so convincing that one can’t help wishing that his fictional alt rock band actually existed, or suspecting that they did. The Alternative Hero is a weirdly compelling portrait of fanatic fandom which reads like High Fidelity at high volume.
+ - There’s a socialist bias to the consensus of the literary world: a ’30s mentality that says factory workers are more worthy of our attention.
+ - A creative writing program is only as good as its teachers, and I was fortunate in having two great writers as mentors.
+ - The most interesting things that happen in my books are usually the things that arise spontaneously, the things that surprise me.
+ - There aren’t many shy writers left.
+ - Most novelists I know went through a period of intense self-examination and self-loathing after the terrorist attacks on the World Trade Center. I certainly did.
+ - I realized that I might not ever make it as a writer, that it might be because I wasn’t good enough, or that it might be because the odds were just too long.
+ - Delia’s arms were inscribed with a grid of self- inflicted wounds, an intricate text of self-loathing.
+ - My former wife is a very eccentric woman, which is why I still love her.
+ - Mine is not an autonomous imagination.
+ - Sometimes I think everything I touch turns into a Page Six item.
+ - When you catch yourself lying to your therapist, you know it’s a waste of money.
+ - The only sensible approach is not to take it too seriously. What counts is the writing.
+ - Your presence here is is only a matter of conducting an experiment in limits, reminding yourself of what you aren’t.
+ - Great minds sink alike, right?
+ - There is a type of writer that can happily bury themselves in the country and dig very deep, but I’m not like that.
+ - I’m a romantic; you have to be to marry four times.
+ - If being a spokesman for a generation is a fleeting occupation, being a symbol of an era is downright dangerous for anyone who has the bad luck to outlive it.
+ - I don’t think I’ve left a trail of weeping women in my wake. I mean, the number of serious relationships I’ve had has not been into double digits.
+ - Anybody who becomes a movie star becomes successful at projecting a certain image to the public.
+ - I like the fact that I’m living in the world rather than in a university.
+ - I envy those writers who outline their novels, who know where they’re going. But I find writing is a process of discovery.
+
+46 quotes

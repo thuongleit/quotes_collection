@@ -1,0 +1,31 @@
+ - Regular chiropractic adjustments go hand in hand with good health.
+ - The word courage – God, I love that word. Words are so important to me.
+ - Henry Fonda’s son: That’s how everybody identified me until Easy Rider came along. Good old Captain America.
+ - I truly miss the genius of the music of John Lennon, as I’m sure everybody does.
+ - I dig my father. I wish he could open his eyes and dig me.
+ - I don’t trust anybody who didn’t inhale.
+ - Civilization has always been a bust.
+ - If I have enough ego to say I’m a writer, a director, a producer, and an actor, I should have the energy and the knowledge to write a scene for this great actor named Henry Fonda and direct him in it and have it work.
+ - When Jane and I spoke out, people thought, What ungrateful children those two kids are to be that nasty about their father.
+ - I want to die in the saddle. I love writing, producing, acting, directing.
+ - I was named Beekeeper of the Year by the Florida State Beekeeping Association.
+ - I want to be on set and die hearing those words: Where’s Peter?
+ - I was famous from birth.
+ - Muslims want the whole world to be Muslim. Christians want the whole world to be Christian. Catholics, Protestants, Mormons. They’re all the same. Far out, right? Everyone wants the world to be like them.
+ - I’ve always internalized things.
+ - My actual intake of different substances was far below what people thought it was, no matter how weird or outrageous they think I am.
+ - Remember, Alan Greenspan was a member of Ayn Rand’s collective. To understand this is to understand why we are doomed with the Federal Reserve.
+ - I have always maintained that society has no business dictating morality.
+ - I love to direct my daughter, and act with her, and we both want to work with Jane again.
+ - Bob Dylan is out of the mentorship of Allen Ginsberg.
+ - Every director is so different from every other one.
+ - I wasn’t really aware that my father was working for quite a while. I thought it was my mother who had all the money!
+ - My sons named her Bridget because that way they always had their sister, Bridget, with them. People thought we were nuts because on the phone they’d hear us say, “Bridget, sit!”
+ - I know I’m responsible for not having got the kind of roles that I’d have liked to.
+ - My abilities grow with each job, whether it’s writing or directing. When I stop learing, I’ll stop working.
+ - Getting out from under the shadow of Henry Fonda was difficult.
+ - People ask me from time to time what it was like growing up with Henry Fonda as my father. I say, Ever see Fort Apache? He was like Colonel Thursday.
+ - You don’t become the character.
+ - It’s wonderful to me that bees have this simple, age-old thing going on.
+
+29 quotes

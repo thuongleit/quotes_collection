@@ -1,0 +1,58 @@
+ - Work isn’t to make money; you work to justify life.
+ - If all life moves inevitably towards its end, then we must, during our own, colour it with our colours of love and hope.
+ - If I create from the heart, nearly everything works; if from the head, almost nothing.
+ - Art must be an expression of love or it is nothing.
+ - Time is a river without banks.
+ - Art seems to me to be above all a state of soul.
+ - I adore the theater and I am a painter. I think the two are made for a marriage of love. I will give all my soul to prove this once more.
+ - All our interior world is reality, and that, perhaps, more so than our apparent world.
+ - Mozart never composed anything, ever! He copied what was written on his soul.
+ - In the arts, as in life, everything is possible provided it is based on love.
+ - The dignity of the artist lies in his duty of keeping awake the sense of wonder in the world. In this long vigil he often has to vary his methods of stimulation; but in this long vigil he is also himself striving against a continual tendency to sleep.
+ - If I weren’t a Jew then I wouldn’t be an artist, or at least not the one I am now.
+ - If I create with my heart almost all my intentions remain. If it is with the head – almost nothing. An artist must not fear to be himself, to express only himself. If he is absolutely and entirely sincere, what he says and does will be acceptable to others.
+ - On cannot be precise, and still be true.
+ - Only love interests me, and I am only in contact with things that revolve around love.
+ - Despite all the troubles of our world, in my heart I have never given up on the love in which I was brought up or on man’s hope in love. In life, just as on the artist’s palette, there is but one single colour that gives meaning to life and art–the colour of love.
+ - The habit of ignoring Nature is deeply implanted in our times. This attitude reminds me of people who never look you in the eye; I find them disturbing and always have to look away.
+ - I am a little Jew of Vitebsk. All that I paint, all that I do, all that I am, is just the little Jew of Vitebsk.
+ - I am a child who is getting on.
+ - The stars were my best friends. The air was full of legends and phantoms, full of mythical and fairy tale creatures, which suddenly flew away over the roof, so that one was at one with the firmament.
+ - Mine alone is the country of my soul.
+ - Art is foremost a state of mind, and only secondarily a problem of form.
+ - Everything in art must spring from the movement of our whole life-stream, of our whole being – including the unconscious.
+ - Great art picks up where nature ends.
+ - To call everything that appears illogical, fantasy, fairy tale, or chimera would be practically to admit not understanding nature.
+ - One must always be careful not to let one’s work be covered with moss.
+ - The fingers must be educated, the thumb is born knowing.
+ - For me a stained glass window is a transparent partition between my heart and the heart of the world.
+ - Will God or someone give me the power to breathe my sigh into my canvases, the sigh of prayer and sadness, the prayer of salvation, of rebirth?
+ - My name is Marc, my emotional life is sensitive and my purse is empty, but they say I have talent.
+ - What a genius, that Picasso. It is a pity he doesn’t paint.
+ - Art seems to me to be above all a state of soul. All souls are sacred, the soul of all the bipeds in every quarter of the globe.
+ - Neither Imperial Russia, nor the Russia of the Soviets needs me. They don’t understand me. I am a stranger to them. I’m certain Rembrandt loves me.
+ - When I am finishing a picture, I hold some God-made object up to it – a rock, a flower, the branch of a tree or my hand – as a final test. If the painting stands up beside a thing man cannot make, the painting is authentic. If there’s a clash between the two, it’s bad art.
+ - Love and fantasy, go hand in hand.
+ - If a symbol should be discovered in a painting of mine, it was not my intention. It is a result I did not seek. It is something that may be found afterwards, and which can be interpreted according to taste.
+ - What counts is art. painting, a kind of painting that is quite different from what everyone makes it out to be. But what kind? Will God or someone else give me the strength to breathe the breath of prayer and mourning into my paintings, the breath of prayer for redemption and resurrection?
+ - One fine day as my mother was putting the bread in the oven, I went up to her and taking her by her flour-smeared elbow I said to her, Mama I want to be a painter.
+ - You could wonder for hours what flowers mean, but for me, they’re life itself, in all its happy brilliance. We couldn’t do with out flowers. Flowers help you forget life’s tragedies.
+ - All colors are the friends of their neighbors and the lovers of their opposites.
+ - What I mean by ‘abstract’ is something which comes to life spontaneously through a gamut of contrasts, plastic at the same time as psychic, and pervades both the picture and the eye of the spectator with conceptions of new and unfamiliar elements.
+ - Color is all. When color is right, form is right. Color is everything, color is vibration like music; everything is vibration.
+ - In our life there is a single color, as on an artist’s palette, which provides the meaning of life and art. It is the color of love.
+ - Can my words distill for you a little sweetness, tender and caressing?
+ - But perhaps my art is the art of a lunatic, I thought, mere glittering quicksilver, a blue soul breaking in upon my pictures.
+ - You cannot explain me with “isms.” They are very bad for an artist. What one must believe in is color.
+ - I work in whatever medium likes me at the moment.
+ - For me Christ has always symbolized the true type of the Jewish martyr.
+ - The freer the soul, the more abstract painting becomes.
+ - Changes in societal structure and in art would possess more credibility if they had their origins in the soul and spirit. If people read the words of the prophets with closer attention, they would find the keys to life.
+ - When I am finishing a picture, I hold some God-made object up to it.
+ - In my youth, poverty enriched me, but now I can afford wealth.
+ - The most authentic Russian Impressionism leaves one perplexed if one compares it with Monet and Pissarro. Here, in the Louvre, before the canvases of Manet, Millet and others, I understood why my alliance with Russia and Russian art did not take root.
+ - Color is everything. When color is right, form is right.
+ - I’ve always painted pictures in which human love floods my colors.
+ - I am out to introduce a psychic shock into my painting, one that is always motivated by pictorial reasoning: that is to say, a fourth dimension.
+
+56 quotes

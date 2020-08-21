@@ -1,0 +1,44 @@
+ - Why? Why not? Why not you? Why not now?
+ - Things never happen the same way twice, dear one.
+ - Religion, it must be understood, is not faith. Religion is the story of faith.
+ - But there I have another name. You must learn to know me by that name. This was the very reason you were brought into Narnia, that by knowing me here for a little, you might know me better there.
+ - The Islamic Reformation is already here. We are all living in it.
+ - But every year you grow, you will find me bigger.
+ - Religion is, by definition, interpretation; and by definition, all interpretations are valid. However, some interpretations are more reasonable than others.
+ - The New Testament is not a historical document.
+ - You can be a follower of Jesus and not necessarily be a Christian.
+ - Islam doesn’t promote violence or peace. Islam is just a religion, and like every religion in the world, it depends on what you bring to it. If you’re a violent person, your Islam, your Judaism, your Christianity, your Hinduism, is going to be violent.
+ - No- one is ever told any story but their own.
+ - Paul’s lack of concern with the historical Jesus is not due, as some have argued, to his emphasis on Christological rather than historical concerns. It is due to the simple fact that Paul had no idea who the living Jesus was, nor did he care.
+ - Islam is more than a religion, it’s much more than a religion, it’s a way of life, it is a one party political system that has a very elaborate legal system that can put you to death if you leave it.
+ - Indonesia, women are absolutely 100 percent equal to men.
+ - When you’re a brown Muslim from Iran talking about Jesus on TV, you need to keep your cool at all times, OK? That’s not rocket science.
+ - Im a person of faith, and the language that I use to define my faith, the symbols and metaphors that I rely upon to express my faith, are those provided by Islam because they make the most sense to me.
+ - My biography of Jesus is probably the first popular biography that does not use the New Testament as its primary source material.
+ - The Revolutionary Guard controls almost everything in Iran, and this is hurting the people.
+ - Should I act violently in defense of my religion, absolutely.
+ - God doesn’t make you a bigot. You’re just a bigot.
+ - Over the last few years, the Islamic world has produced more female presidents and prime ministers than both Europe and North America combined.
+ - I really believe that to have a full impression of Jesus, both as Christ as a man, you must know about the world that gave shape to him – the world out of which he arose.
+ - A cosmic war is like a ritual drama in which participants act out on Earth a battle they believe is actually taking place in the heavens.
+ - It is no exaggeration to say that Syria holds the key for nearly all of Americas foreign policy goals in the Middle East. As Syria goes, so goes the region.
+ - Religion doesn’t make people bigots. People are bigots and they use religion to justify their ideology.
+ - It is the job of the historian to say what is likely, and of faith to say what is possible.
+ - When you forcefully suppress religious nationalism, you radicalize it.
+ - I think by all accounts in the same way we look back on the anti-Catholic and anti-Jewish sentiments of our history with shame and derision and with a healthy dose of mockery, that’s how we will very likely look back on this sort of anti-Muslim sentiment as well in the next generation.
+ - Islamophobia has become so mainstream in this country that Americans have been trained to expect violence against Muslims – not excuse it, but expect it. And that’s happened because you have an Islamophobia industry in this country devoted to making Americans think there’s an enemy within.
+ - The truth of the matter is that when you write about religion like I do, you’re writing about something that people take very seriously.
+ - The key to recognizing who Jesus was is to recognize this fundamental truth: He was a Jew.
+ - Religion is never going to go away, and anyone who thinks it will doesn’t understand what religion is. It is a language to describe the experience of human nature, so for as long as people struggle to describe what it means to be alive, it will be a ready-made language to express those feelings.
+ - A politician is a politician whether he’s wearing a suit or a funny hat.
+ - Is it possible that Jesus, unlike 98 percent of his fellow Jews, was literate and educated? Yes, it’s possible.
+ - The bad news is that Iran wants to talk about everything except their nuclear program. They want to talk about regional cooperation, they want to talk about the sanctions issues, and it seems like the western powers want to talk about nothing more than the nuclear issue.
+ - In the history of the prophetic biblical canon that starts with Genesis, the Koran is by far the most tolerant of the views of other religions.
+ - Obama has been the single worst president in modern American history in dealing with the Israeli-Palestinian conflict.
+ - The idea of literalism in the Bible is a very new phenomenon. In many ways, it’s a product of the scientific revolution.
+ - One-fifth of Americans, 20% believe that Barak Obama is, himself, a Muslim and in fact – amongst Republicans that number is almost 40%. Polls show in this country, that the more you disagree with Barak Obama’s domestic policies, the more likely you are to think that he is a Muslim.
+ - Anyone who says that Iran will commit suicide with its nuclear power is a moron and has no business in discussion.
+ - The idea that education will lead to a lessening of bigotry is just factually incorrect.
+ - I believe in God, which means I am open to some absurd possibilities. But I understand the power of that faith, and I understand the metaphor of that belief.
+
+42 quotes

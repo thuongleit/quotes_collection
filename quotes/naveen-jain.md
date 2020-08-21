@@ -1,0 +1,62 @@
+ - Stay focused on the mission.
+ - Success doesn’t necessarily come from breakthrough innovation but from flawless execution. A great strategy alone won’t win a game or a battle; the win comes from basic blocking and tackling.
+ - The day you become humble is the day you become successful.
+ - It’s really easy to create a $1 billion company – you just have to solve a $10 billion problem.
+ - Neuroplasticity research showed that the brain changes its very structure with each different activity it performs, perfecting its circuits so it is better suited to the task at hand.
+ - Think so big, so audacious that people will think you are crazy.
+ - Great entrepreneurs focus intensely on an opportunity where others see nothing.
+ - We owe it to our children to equip them with all the capabilities they’ll need to thrive in the limitless world beyond the classrooms.
+ - My parents didn’t believe in luck. They believed in hard work and in preparing me to take advantage of opportunity. Like many parents, they taught me to be generous but never to depend on the generosity of others.
+ - Education should not be about building more schools and maintaining a system that dates back to the Industrial Revolution. We can achieve so much more, at unmatched scale with software and interactive learning.
+ - My children have been learning lessons about entrepreneurship since they were in kindergarten, and these lessons are paying off: even though they are only 22, 18, and 15, they have already collectively launched three nonprofit organizations and several new businesses.
+ - Trust your gut instinct over spreadsheets. There are too many variables in the real world that you simply can’t put into a spreadsheet. Spreadsheets spit out results from your inexact assumptions and give you a false sense of security. In most cases, your heart and gut are still your best guide.
+ - There are as many ways to help another human being as there are people in need of help. For some, the urgent need is as basic as food and water. For others, it is an opportunity to develop a talent, realize an idea, and reach one’s full potential.
+ - We are now living in a fast paced technological era where every skill that we teach our children becomes obsolete in the 10 to 15 years due to exponentially growing technological advances.
+ - True philanthropy requires a disruptive mindset, innovative thinking and a philosophy driven by entrepreneurial insights and creative opportunities.
+ - Success is not how much money you have in a bank. Success is how many lives you have touched.
+ - Our education system was developed for an industrial era where we could teach certain skills to our children and they were able to use these skills for the rest of their lives working productively in an industry.
+ - We begin to change the world when we stimulate long-term prosperity using technology. There is not a problem that’s large enough that innovation and entrepreneurship can’t solve.
+ - I’ve been an entrepreneur all my life, and my recent focus is on finding entrepreneurial solutions to address global challenges in healthcare and education.
+ - When you experience a failure as a leader, don’t hide it – talk about it. Your missed opportunity will encourage others to take risks.
+ - Once humans traded their hunter-gatherer existences for more settled communities, we began a quest to make our lives better and more comfortable, but we’ve also been sucking precious finite resources from our environment ever since.
+ - If there is one thing I have learned on this incredible journey we call life, it is this: the sign of a truly successful individual is humility.
+ - Helping people boost themselves out of poverty is the best way to make a lasting positive difference in a person’s life.
+ - I believe our legacy will be defined by the accomplishments and fearless nature by which our daughters and sons take on the global challenges we face. I also wonder if perhaps the most lasting expression of one’s humility lies in our ability to foster and mentor our children.
+ - Early versions of Microsoft Word left a lot to be desired. However, to the company’s credit, it quickly learned where Word fell short, made the necessary changes, and repeatedly introduced new versions of the software.
+ - Philanthropy is not about giving money but about solving problems. While well-meaning, the idea of writing a check and calling it ‘philanthropy’ is extremely short-sighted and, unfortunately, extremely pervasive.
+ - Being a father has been, without a doubt, my greatest source of achievement, pride and inspiration. Fatherhood has taught me about unconditional love, reinforced the importance of giving back and taught me how to be a better person.
+ - All the conservation efforts in the world won’t be enough to make a dent in the oncoming sustainability crisis our planet faces.
+ - Call it the Tiger Mom effect: In the business world today, failure is apparently not an option.
+ - As a child I experienced firsthand the severe effects of poverty and illiteracy, especially upon women and children. My parents taught me the importance of education and that it was a key to improving an individual’s life.
+ - It’s a simple fact: no individual can be good at everything. Everyone needs people around them who have complimentary sets of skills.
+ - Every day you spend becoming an expert in a field, you become more useless in that field.
+ - Successful entrepreneurs find the balance between listening to their inner voice and staying persistent in driving for success – because sometimes success is waiting right across from the transitional bump that’s disguised as failure.
+ - How important is failure – yes, failure – to the health of a thriving, innovative business? So important that Ratan Tata, chairman of India’s largest corporation, gives an annual award to the employee who comes up with the best idea that failed.
+ - Growing up in India, I knew all I needed to change the world was one good opportunity, and I prepared myself for it. When that opportunity came – in the form of the chance to earn an engineering degree – I was ready.
+ - Go where your customers take you! For example, did you know that Sony’s first product was a rice cooker? Since abandoning the rice cooker, it has merely managed to become the world’s biggest consumer electronics company.
+ - Teaching children about entrepreneurship is much like imparting any other skill or piece of knowledge. You will provide them with ways to experience how entrepreneurship works, and you guide them toward the subjects or areas they seem to show an interest in.
+ - Just as physical exercise is a well-known and well-accepted means to improve health for anyone, regardless of age or background, so can the brain be put ‘into shape’ for optimal learning.
+ - In the business world today, failure is apparently not an option. We need to change this attitude toward failure – and celebrate the idea that only by falling on our collective business faces do we learn enough to succeed down the road.
+ - I came to the United States in the early ’80s and was welcomed with open arms and given the opportunity to pursue my dreams. God has been very kind to us. My family and I are fortunate enough to be successful and we feel a tremendous responsibility and obligation to give back to our great country.
+ - Humans have always used our intelligence and creativity to improve our existence. After all, we invented the wheel, discovered how to make fire, invented the printing press and found a vaccine for polio.
+ - Sometimes a faint voice based on instinct resonates far more strongly than overpowering logic.
+ - Why is it that our young kids all across America can solve the most complex problems in a video game involving executive decision making and analytical thinking, yet we accept the fact that they can’t add or read?
+ - I grew up poor in India, and there were days when we struggled to find food and other basic necessities. Our mother worked odds and ends jobs to keep the family together and educate us.
+ - Athletes at all ages are bigger and stronger than ever before. And they are being encouraged – sometimes even incentivized, as we recently learned was the case on at least one National Football League team – to play to injure.
+ - I believe that entrepreneurs play an unmatched role and the accelerating pace of innovation is transforming the face of global challenges. You must think about the solution differently when you’re trying to impact 1 billion people rather than affecting 1 million people.
+ - I worked for Microsoft until 1996, till I had a different angle to view life. I wanted to be an entrepreneur and control my own destiny.
+ - The most frequently asked question I hear first-time entrepreneurs ask is, ‘How do I know when to launch my product?’ The answer, more often than not, should be: ‘Now!’
+ - What separates sports from entrepreneurism, however, is that in business we constantly have to overcome undefined and unpredictable challenges. Athletes train for specific events and conditions, whereas entrepreneurs generally have little idea what they will encounter along the way.
+ - Governments take too long to get things done and there are far too many varied interests at stake. If you were starting a business today and needed a partner, you would never choose a large bureaucratic institution like the government.
+ - My father was a civil servant in northern India where I was born. As a boy I saw the dire effects of poverty and illiteracy, especially on women and children. It often seemed that the only thing separating me from them was luck.
+ - The real metric of success isn’t the size of your bank account. It’s the number of lives in whom you might be able to make a positive difference.
+ - My own philanthropic efforts have always included an educational element, whether it’s expanding opportunities to educate a promising mind or extending the brain’s ability to learn.
+ - Philanthropy without scale and sustainability is like any other bad business that will simply wither and die on the vine.
+ - I have seen humility in many of the finest leaders I have met the world over. And indeed, it is embodied in the warm, engaging and quintessentially successful spirit of Sir Richard Branson.
+ - The United States of America became the envy of the world because we welcomed the best and brightest minds from anywhere on the planet and gave them the opportunity to succeed.
+ - I understand human needs. I grew up where far too many people lived day to day without elemental needs like food and shelter.
+ - Because I was poor I had one special advantage. When you are poor, and basic survival is your concern, you have no alternative but to be an entrepreneur. You must take action to survive just as you must take action to seize an opportunity.
+ - Each one of us has the power to be the change we want to see in the world, making the world a better place.
+ - I believe that incentivized prizing is the best solution to help unlock the answers to the some of the profound problems that plague our planet.
+
+60 quotes

@@ -1,0 +1,23 @@
+ - We have this one life to offer; there is no second chance.
+ - There are only 24 hours in a day. We need to quit trying to be awesome and instead be wise.
+ - The gospel will die in the toxic soil of self.
+ - When the jars of clay remember they are jars of clay, the treasure within gets all the glory, which seems somehow more fitting.
+ - I see a strategy for fracturing humanity well in play: just keep people separated and let them reinforce invented boundaries in their imaginations. Because when people come together and really listen to each other, doing the hard work of human kindness, virtually every barrier is breached.
+ - God does not change, but He uses change – to change us. He sends us on journeys that bring us to the end of ourselves. We often feel out of control, yet if we embrace His leading, we may find ourselves on the ride of our lives.
+ - As Jesus explained, the right things have to die so the right things can live – we die to selfishness, greed, power, accumulation, prestige, and self-preservation, giving life to community, generosity, compassion, mercy, brotherhood, kindness, and love. The gospel will die in the toxic soil of self.
+ - I won’t defile my blessings by imagining that I deserve them. Until every human receives the dignity I casually enjoy, I pray my heart aches with tension and my belly rumbles for injustice.
+ - For whatever reason I was born into privilege; I’ve never known hunger, poverty, or despair. I have been blessed, blessed, blessed – relationally, emotionally, spiritually, and physically.
+ - We cannot carry the gospel to the poor and lowly while emulating the practices of the rich and powerful. We’ve been invited into a story that begins with humility and ends with glory; never the other way around.
+ - While the richest people on earth pray to get richer, the rest of the world begs for intervention with their faces pressed to the window, watching us drink our coffee, unruffled by their suffering.
+ - When we realize we can stop being Jesus defenders, we can start being Jesus representatives .
+ - Adoption is an answer to a tragedy that has already happened, but may it never be the impetus for one that hasn’t.
+ - Faith does not always demand that God explains Himself.
+ - Be patient. Do the best with what you know. When you know more, adjust the trajectory.
+ - Maybe we don’t recognize satisfaction because it is disguised as radical generosity, a strange misnomer in a consumer culture.
+ - Obedience isn’t a lack of fear. It’s just doing it scared.
+ - Usually the things we think we need become the very things we need a break from.
+ - A fast is not necessarily something we offer God, but it assists us in offering ourselves.
+ - Take something away, and your habits become clear.
+ - For Jesus, who lived so lightly on this earth, He didn’t even have a place to lay His head. I want so deeply to be like You.
+
+21 quotes

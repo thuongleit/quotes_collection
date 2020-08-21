@@ -1,0 +1,173 @@
+ - If you can’t change your fate, change your attitude.
+ - Don’t think too much. That makes you believe you have more choices than you do. Then you mind becomes confused.
+ - That was how dishonesty and betrayal started, not in big lies but in small secrets.
+ - I hid my deepest feelings so well I forgot where I placed them.
+ - I love my daughter. She and I have shared my body. There is a part of her mind that is a part of mine. But when she was born, she sprang from me like a slippery fish, and has been swimming away ever since.
+ - Language is the tool of my trade -and I use them all – all the Englishes I grew up with.
+ - Your only shame is to have shame.
+ - Now I was a tiger that neither pounced nor lay waiting between the trees. I became an unseen spirit.
+ - If I now recognize evil in other people, is it not because I have become evil too?
+ - You see what power is holding someone else’s fear in your hand and showing it to them.
+ - Words to me were magic. You could say a word and it could conjure up all kinds of images or feelings or a chilly sensation or whatever. It was amazing to me that words had this power.
+ - Only two kinds of daughters, she shouted in Chinese. Those who are obedient and those who follow their own mind!
+ - I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever.
+ - You have to be your own person. You can’t let people’s opinions determine how you think about yourself. There’s a difference between identity and self-identity.
+ - We are living in a world where everything is false. The society is like bright paint applied on top of rotten wood.
+ - But she never looked back with regret. There were so many ways for things to get better. -Jing-mei.
+ - You can’t have intentions without consequences. The question is, who pays for the consequences? Saving fish from drowning. Same thing. Who’s saved? Who’s not?
+ - Those who don’t heed the warnings don’t live to admit they were stupid not to do so.
+ - Why do some memories live only on your tongue or in your nose? Why do others always stay in your heart?
+ - There’s no hope. There’s no reason to keep trying. Because you must. This is not hope. Not reason. This is your fate. This is your life, what you must do.
+ - I love and am loved, fully and freely, nothing expected, more than enough received.
+ - I wanted to write stories for myself. At first it was purely an aesthetic thing about craft. I just wanted to become good at the art of something. And writing was very private.
+ - I think books were my salvation, they saved me from being miserable.
+ - Chance is the first step you take, luck is what comes afterward.
+ - I think we often write because we feel a loneliness, and people read for the same reason, and then they come away feeling a little less lonely.
+ - Memory feeds imagination.
+ - But I don’t have anything left inside of me to figure out where I fit in or what I want. If I want anything, it’s to know what’s possible to want.
+ - You remember only what you want to remember. You know only what your heart allows you to know.
+ - Fate is shaped half by expectation, half by inattention.
+ - Her education only made her unhappy thinking about it – that no matter how much she changed her life, she could not change the world that surrounded her.
+ - It’s a luxury being a writer, because all you ever think about is life.
+ - All objects exist in a moment of time.
+ - And now I have to stop. Because every time I remember this, I have to cry a little by myself. I don’t know why something that made me so happy then feels so sad now. Maybe that is the way it is with the best memories.
+ - You must think for yourself, what you must do. If someone tells you, then you are not trying. -An-mei.
+ - You write a book and you hope somebody will go out and pay $24.95 for what you’ve just said. I think books were my salvation. Books saved me from being miserable.
+ - Wise guy, he not go against wind. In Chinese we say, Come from South, blow with wind – poom! – North will follow. Strongest wind cannot be seen.
+ - Writing what you wished was the most dangerous form of wishful thinking.
+ - On the third day after someone dies, the soul comes back to settle scores. In my mother’s case, this would be the first day of the lunar new year. And because it is the new year, all debts must be paid, or disaster and misfortune will follow.
+ - Why do you think you are missing something you never had?
+ - A Mother is the one who fills your heart in the first place.
+ - Yesterday my daughter said to me, ‘My marriage is falling apart.’ And now all she can do is watch it falling.
+ - We all hate moral ambiguity in some sense, and yet it is also absolutely necessary. In writing a story, it is the place where I begin.
+ - How do I create something out of nothing? And how do I create my own life? I think it is by questioning, and saying to myself that there are no absolute truths.
+ - For woman is yin, the darkness within, where untempered passions lie. And man is yang, bright truth lighting our minds.
+ - I was intelligent enough to make up my own mind. I not only had freedom of choice, I had freedom of expression.
+ - I felt foolish and tired, as if I had been running to escape someone chasing me, only to look behind to discover there was no one there.
+ - Isn’t hate merely the result of wounded love?
+ - And I think now that fate is shaped half by expectation, half by inattention. But somehow, when you lose something you love, faith takes over. -Rose.
+ - With each passing day, I didn’t lose hope. I fought to have more.
+ - We dream to give ourselves hope. To stop dreaming – well, that’s like saying you can never change your fate.
+ - If you are greedy, what is inside you is what makes you always hungry.
+ - I discovered that maybe it was fate all along, that faith was just an illusion that somehow you’re in control.
+ - My parents told me I would become a doctor and then in my spare time I would become a concert pianist. So, both my day job and my spare time were sort of taken care of.
+ - All these years I kept my true nature hidden, running along like a small shadow so nobody could catch me. -Ying Ying.
+ - Ying-ying, you have tiger eyes. They gather fire in the day. At night they shine golden.
+ - I am fascinated by language in daily life: the way it can evoke an emotion, a visual image, a complex idea, or a simple truth.
+ - Who knows where inspiration comes from. Perhaps it arises from desperation. Perhaps it comes from the flukes of the universe, the kindness of the muses.
+ - So much of history is mystery. We don’t know what is lost forever, what will surface again. All objects exist in a moment of time. And that fragment of time is preserved or lost or found in mysterious ways. Mystery is a wonderful part of life.
+ - Too many good things all seem the same after a while.
+ - We all had our miseries. But to despair was to wish back for something already lost. Or to prolong what was already unbearable. -Suyuan.
+ - My mother had a look on her face that I’ll never forget. It was one of complete despair and horror, for losing Bing, for being so foolish as to think she could use faith to change fate.
+ - I like to go somewhere where I learn something I didn’t know before, like the Dry Tortugas between Florida and Cuba.
+ - Sure I loved him – too much. And he loved me, only not enough. I just want someone who thinks I’m number one in his life. I’m not willing to accept emotional scraps anymore.
+ - To save myself, I destroyed another, and in doing so, I destroyed myself.
+ - Only you pick that crab. Nobody else take it. I already know this. Everyone else want best quality. You thinking different.
+ - But I will win and give her my spirit, because this is the way a mother loves her daughter. -Ying Ying.
+ - When my daughter looks at me, she sees a small old lady. That is because she sees only with her outside eyes. She has no chuming, no inside knowing of things. If she had chuming she would see a tiger lady. And she would have careful fear.
+ - Whenever I’m with my mother, I feel as though I have to spend the whole time avoiding land mines.
+ - I wanted my children to have the best combination: American circumstances and Chinese character. How could I know these things do not mix?
+ - You can get sucked into the idea that, ‘Gosh, this is impressive. Maybe I should do this. It will look good.’ Or ‘I’ll write like this because it will impress that critic.’
+ - Then you must teach my daughter this same lesson. How to lose your innocence but not your hope. How to laugh forever.
+ - My parents had very high expectations. They expected me to get straight A’s from the time I was in kindergarten.
+ - And now I also see what part of me is Chinese. It is so obvious. It is my family. It is in our blood.
+ - So sad! This is the saddest part when you lose someone you love- that person keeps changing. And later you wonder, Is this the same person I lost?
+ - My sister Kwan believes she has yin eyes. She sees those who have died and now dwell in the world of Yin, ghosts who leave the mists just to visit her kitchen on Balboa Street in San Francisco.
+ - For unlike my mother, I did not believe I could be anything I wanted to be. I could only be me.
+ - Now you see,? said the turtle, drifting back into the pond, ’why it is useless to cry. Your tears do not wash away your sorrows. They feed someone else’s joy. And that is why you must learn to swallow your own tears.
+ - I was punched breathless by the strongest emotions I have ever felt and they are now stored in my intuition as a writer.
+ - Writing is an extreme privilege but it’s also a gift. It’s a gift to yourself and it’s a gift of giving a story to someone.
+ - With hope, a mind is always free.
+ - There are a lot of people who think that’s what’s needed to be successful is always being right, always being careful, always picking the right path.
+ - I used to think that my mother got into arguments with people because they didn’t understand her English, because she was Chinese.
+ - My mother had a very difficult childhood, having seen her own mother kill herself. So she didnt always know how to be the nurturing mother that we all expect we should have.
+ - I had on a beautiful red dress, but what I saw was even more valuable. I was strong. I was pure. I had genuine thoughts inside that no one could see, that no one could ever take away from me. I was like the wind. -Lindo.
+ - He asked if he could recite a poem he had written that morning: ‘You speak,’ he said, ’the language of shooting stars, more surprising than sunrise, more brilliant than the sun, as brief as sunset. I want to follow its trail to eternity.
+ - I don’t steer clear of genres. I simply haven’t steered myself toward some of them.
+ - And below the heimongmong, all along the ground, were weeds already spilling out over the edges, running wild in every direction.
+ - I felt stuck in the bottom of a wishing well. I was desperate to shout what I wanted, but I didn’t know what that was. I knew only what it wasn’t. The Hundred Secret Senses by Amy Tan.
+ - Chaos is the penance for leisure.
+ - After all, Bao Bomu says, what is the past but what we choose to remember?
+ - I feel I’ve always been writing about self-identity. How do we become who we are? So I’m just writing from experience what’s concerned me.
+ - How can you blame a person for his fears and weaknesses unless you have felt the same and done differently?
+ - I have survivor skills. Some of that is superficial – what I present to people outwardly – but what makes people resilient is the ability to find humour and irony in situations that would otherwise overpower you.
+ - Can you imagine how it is, to want to be neither inside nor outside, to want to be nowhere and disappear?
+ - People think it’s a terrible tragedy when somebody has Alzheimer’s. But in my mother’s case, it’s different. My mother has been unhappy all her life. For the first time in her life, she’s happy.
+ - People there only dream that it is China, because if you are Chinese you can never let go of China in your mind.
+ - I learned to forgive myself, and that enabled me to forgive my mother as a person.
+ - Shanghainese people are good negotiators, they’re very persistent, and you grow up in an atmosphere like that – very competitive. That becomes part of your personality, Shanghai personality becomes part of yours.
+ - If she doesn’t speak, she is making a choice. If she doesn’t try, she can lose her chance forever. -An-mei.
+ - Dementia was like a truth serum.
+ - That is the nature of endings, it seems. They never end. When all the missing pieces of your life are found, put together with glue of memory and reason, there are more pieces to be found.
+ - To come so far, to lose so much and to find nothing. -Jing-mei.
+ - I did not lose myself all at once. I rubbed out my face over the years washing away my pain, the same way carvings on stone are worn down by water.
+ - God, life changes faster than you think.
+ - That is the way it is with a wound. The wound begins to close in on itself, to protect what is hurting so much. And once it is closed, you no longer see what is underneath, what started the pain.
+ - Libraries are the pride of the city.
+ - Fate changes when you change your clothes.
+ - I think I’ve always been somebody, since the deaths of my father and brother, who was afraid to hope. So, I was more prepared for failure and for rejection than for success.
+ - Because sometimes that is the only way to remember what is in your bones. You must peel off your skin, and that of your mother, and her mother. Until there is nothing. No scar, no skin, no flesh. -An-mei.
+ - From what I have observed, when the anesthesia of love wears off, there is always the pain of consequences. You don’t have to be stupid to marry the wrong man.
+ - I’d like to be more forgiving. There are times when I’ve had a hard time forgiving people who have betrayed me.
+ - I can never remember things I didn’t understand in the first place.
+ - In America nobody says you have to keep the circumstances somebody else gives you.
+ - It is because I had so much joy that I came to have so much hate.
+ - Placing on writers the responsibility to represent a culture is an onerous burden.
+ - I didn’t fear failure. I expected failure.
+ - Secrets are kept from children, a lid on top of the soup kettle, so they do not boil over with too much truth.
+ - I would find myself laughing and wondering where these ideas came from. You can call it imagination, I suppose. But I was grateful for wherever they came from.
+ - Your life is what you see in front of you. -An-mei.
+ - Yet part of me also thinks the whole idea makes perfect sense. The three of us, leaving our differences behind, stepping on the plane together, sitting side by side, lifting off, moving West to reach the East.
+ - I did not lose myself all at once.
+ - My mother would say it is literally ghost writers who come to me.
+ - My favorite anything is always relative to the context of present time, place and mood. When I finish a book and want to immediately find another by the same author and no other, that author is elevated to my favorite.
+ - They know where happiness lies, not in a cave or a country, but in love and the freedom to give and take what has been there all along.
+ - Whenever my mother talks to me, she begins the conversation as if we were already in the middle of an argument.
+ - Even though I was young, I could see the pain of the flesh and the worth of the pain.
+ - No two languages are ever sufficiently similar to be considered as representing the same social reality. The worlds in which different societies live are distinct worlds, not merely the same world with different labels attached.
+ - I have a writer’s memory which makes everything worse than maybe it actually was.
+ - I saw what I had been fighting for: it was for me, a scared child...
+ - If I look upon my whole life, I cannot think of another time when I felt more comfortable: when I had no worries, fears, or desires, when my life seemed as soft and lovely as lying inside a cocoon of rose silk.
+ - I started a second novel seven times and I had to throw them away.
+ - I would still like to have that luxury, to be able to just sit and draw for hours and hours and hours. In a way, that’s what I do as a writer.
+ - But I was no longer sacared. I could see what was inside me. -Lindo.
+ - That was a wonderful period in my life. I mean, I didn’t become an artist, but somebody let me do something I loved. What a luxury, to do something you love to do.
+ - A psychiatrist does not want you to wake up. He tells you to dream some more, to find the pond and pour more tears into it. And really, he’s just another bird drinking from your misery.
+ - My mother said I was a clingy kid until I was about four. I also remember that from the age of eight she and I fought almost every day.
+ - I read a book a day when I was a kid. My family was not literary; we did not have any books in the house.
+ - While it is good to speak well, it is better to speak the truth.
+ - I felt like a rich vagabond who had passed through the world paving my way with gold fairy dust, then realizing too late that the path disintegrated as soon as I passed over it.
+ - When I returned home that day, I saw my life as if I already knew the happy ending of a story. I looked around the house and thought, soon I will no longer have to see these walls and all the unhappiness they keep inside.
+ - You can have pride in what you do each day, but not arrogance in what you were born with.
+ - It’s both rebellion and conformity that attack you with success.
+ - I’ve always been a magnet for guilt.
+ - Among writers, if you don’t have a therapist, it’s like saying you don’t keep a journal or use the thesaurus. It’s a natural accompaniment.
+ - No one in my family was a reader of literary fiction. So, I didn’t have encouragement, but I didn’t have discouragement, because I don’t think anybody knew what that meant.
+ - I have always known a thing before it happens.
+ - It means we’re looking one way, while following another. We’re for one side and also the other. We mean what we say, but our intentions are different.
+ - And I remember wondering why it was that eating something good could make me feel so terrible, while vomiting something terrible could make me feel so good.
+ - My mother didn’t teach me lessons about being Chinese as strongly as she did the notion of who I was as a female.
+ - And after I played them both a few times, I realized they were two halves of the same song.
+ - The life we receive is not always what we choose.
+ - A mother is always the beggining. She is how things begin.
+ - I began to look at all events and all things as relevant, an opportunity to take or avoid.
+ - I won’t be what I’m not. -Jing-mei.
+ - I always thought it mattered, to know what is the worst possible thing that can happen to you, to know how you can avoid it, to not be drawn by the magic of the unspeakable.
+ - Hope is the adrenalin of the soul.
+ - We are lost, she and I, unseen and not seeing, unheard and not hearing, unknown by others.
+ - Hardships can harden even the best person.
+ - It was a distorted form of inverse logic: If hopes never come true, then hope for what you don’t want.
+ - And then she had to fill out so many forms she forgot why she had come and what she had left behind.
+ - The forbidden things were a great influence on my life. I was forbidden from reading A Catcher in the Rye.
+ - I loved fairy tales when I was a kid. Grimm. The grimmer the better. I loved gruesome gothic tales and, in that respect, I liked Bible stories, because to me they were very gothic.
+ - You should think about your character. Know where you are changing, how you will be changed, what cannot be changed back again.
+ - Now they seemed to be in a contest over who could irritate her more, and she sometimes had to remind herself that teenagers had souls.
+ - I thought I was clever enough to write as well as these people and I didn’t realize that there is something called originality and your own voice.
+ - I have loved works of fiction precisely for their illusions, for the author’s sleight-of-hand in showing me the magic, what appeared in the right hand but not in the left...
+ - I also thought of playing improvisational jazz and I did take lessons for a while. At first I tried to write fiction by making up things that were completely alien to my life.
+ - Words are more ardent if a man must struggle to find them.
+ - Over time, passion wanes, differences don’t.
+ - When you already believe something, how can you suddenly stop? When you are a loyal friend, how can you no longer be one?
+ - I saw my mother in a different light. We all need to do that. You have to be displaced from what’s comfortable and routine, and then you get to see things with fresh eyes, with new eyes.
+
+171 quotes

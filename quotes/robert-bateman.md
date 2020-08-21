@@ -1,0 +1,21 @@
+ - Aesthetic pleasure is not to be taken lightly; it’s very important for the spirit and therefore the health.
+ - The most important question facing the planet is: Is it worth it?
+ - If I ever have a conflict between art and nature, I let art win.
+ - Children don’t play outside enough. For hundreds of thousands of years young people spent time outside – until 15 years ago.
+ - Art is challenging and frustrating but I don’t linger in it. I work on five paintings at a time so if I’m frustrated I put one down and begin another.
+ - A muse comes down from Mount Olympus and changes my attitude, cheering me up – it’s an inner intuition, suddenly giving a breakthrough to be able to move ahead.
+ - I never thought that I would support myself with art – everyone in the Group of Seven had day jobs. I became a geography teacher so that I could get free field trips into the wilderness to paint.
+ - Blackwater USA has already taken in more than $1 billion from the public coffers. All in all, that’s not a bad take for Erik Prince, the founder of Blackwater and a Naval Academy dropout who served less time under the colors of the nation, in uniform, than my most recent pair of boots.
+ - After being an Impressionist, Cubist, and an Abstract Expressionist, I was influenced by realistic artists, including Andrew Wyeth in the late ’50s, and I haven’t changed my style since.
+ - It doesn’t take more skill to paint hundreds of strokes rather than one right stroke but it takes more patience.
+ - I got serious about painting at 12, when most people give up.
+ - I’ve never thought sitting around worrying helps anything, except to help shorten your life.
+ - Nature is not a free lunch, but we treat it as a free lunch.
+ - My art collection is dominated by tribal art from Nigeria where I taught school, from New Guinea where we’ve travelled, and by Canadian Haida pieces. My own art is either on exhibition or owned by other people!
+ - To me the most important thing in a piece of art is the thought. Technique is totally secondary.
+ - When you get to be my age, you begin to count how many Mays you have left – the best time of year for flowers and birds in North America.
+ - I prefer to hike in nature, give lectures, or be with family when not working.
+ - In our instant pudding world, everything is sweet, smooth, very convenient and fast. There are lots of assorted flavors, but they’re all artificial.
+ - In art and science we are now in a delta, at the end of the long flow of progress. In a delta there is no clear direction but there may be many choices. The best we can do is to enjoy the choices that we have and to be genuinely and creatively eclectic.
+
+19 quotes

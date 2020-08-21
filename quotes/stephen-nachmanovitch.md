@@ -1,0 +1,53 @@
+ - Every moment of life is unique-a kiss, a sunset, a dance, a joke. None will ever recur in quite the same way. Each happens only once in the history of the universe.
+ - Improvisation is intuition in action, a way to discover the muse and learn to respond to her call.
+ - Mastery means responsibility, ability to respond in real time to the need of the moment. Intuitive or inspired living means not just passively hearing the voice, but acting on it.
+ - The most potent muse of all is our own inner child.
+ - You can’t express inspiration without skill.
+ - Fidgeting and boredom are the symptoms of fear of emptiness, which we try to fill up with whatever we can lay our hands on.
+ - Play, creativity, art, spontaneity, all these experiences are their own rewards and are blocked when we perform for reward or punishment, profit or loss.
+ - Creative living, or the life of a creator, seems like a leap into the unknown only because “normal life” is rigid and traumatized.
+ - Looking at the creative process is like looking into a crystal: no matter which facet we gaze into, we see all the others reflected.
+ - There are only people doing their imperfect best at doing their imperfect jobs.
+ - If we operate with a belief in long sweeps of time, we build cathedrals; if we operate from fiscal quarter to fiscal quarter, we build ugly shopping malls.
+ - Creativity exists more in the searching than in the finding.
+ - With too little judgement, we get trash. With too much judgement, we get blockage.
+ - To create, we need both technique and freedom of technique.
+ - The professionalism of technique and flash of dexterity are more comfortable to be around than raw creative power, hence our society generally rewards virtuoso performers more highly than it rewards original creators.
+ - The noun of self becomes a verb. This flashpoint of creation in the present moment is where work and play merge.
+ - Every conversation is a form of Jazz. The activity of instantaneous creation is as ordinary to us as breathing.
+ - We provide both irritation and inspiration for each other- the grist for each other’s pearl making.
+ - Technique itself springs from play, because we can acquire technique only by the practice of practice, by persistently experimenting and playing with our tools and testing their limits and resistances.
+ - Play enables us to rearrange our capacities and our very identity so that they can be used in unforeseen ways.
+ - Play cannot be defined, because in play all definitions slither, dance, combine, break apart, and recombine.
+ - If the art is created with the whole person, then the work will come out whole. Education must teach, reach, and vibrate the whole person rather than merely transfer knowledge.
+ - If a creative person has a sense of humor, a sense of style and a certain amount of stubbornness, he finds a way to do what he needs to in spite of the obstacles.
+ - Play is the taproot from which original art springs. It is the raw stuff that the artist channels with all his learning and technique.
+ - The easiest way to do art is to dispense with success and failure altogether and just get on with it.
+ - Practice is an ever-fresh, challenging flow of work and play in which we continually test and demolish our own delusions; therefore, it is sometimes painful.
+ - Creative work is play. It is free speculation using materials of ones chosen form.
+ - Whispered words can be devastatingly effective.
+ - Every attempt we make is imperfect; yet each one of those imperfect attempts is an occasion for a delight unlike anything else on earth.
+ - Surrender means cultivating a comfortable attitude toward not knowing, being nurtured by the mystery of moments that are dependably surprising, ever fresh.
+ - If I “try” to play, I fail; if I force the play, I crush it; if I race, I trip. Any time I stiffen or brace myself against some error or problem, the very act of bracing would cause the problem to occur. The only road to strength is vulnerability.
+ - Play, intrinsically rewarding, doesn’t cost anything; as soon as you put a price on it, it becomes, to some extent, not play.
+ - The beauty of playing together is meeting in the One.
+ - There is not ultimate breakthrough; what we find in the development of a creative life is an open-ended series of provisional breakthroughs. In this journey there is no endpoint, because it is the journey into the soul.
+ - Working within the limits of the medium forces us to change our own limits. Improvisation is not breaking with forms and limitations just to be ‘free,’ but using them as the very means of transcending ourselves.
+ - Artwork is not thought up in consciousness and then, as a separate phase, executed by the hand. The hand surprises us creates and solves problems on its own. Often, enigmas that baffle our brains are dealt with easily, unconsciously, by the hand.
+ - Memory and intention and intuition are fused. The iron is always hot.
+ - If we split practice from the real thing, neither one of them will be very real.
+ - Writing, playing, composing, painting, reading, listening, looking-all require that we submit to being swept away by Eros, to a transformation of self of the kind that happens when we fall in love.
+ - When we are totally faithful to our own individuality, we are actually following a very intricate design. This kind of freedom is the opposite of “just anything”.
+ - Faithfulness to the moment and to the present circumstance entails continuous surrender.
+ - We can depend on the world being a perpetual surprise in perpetual motion.
+ - Paradoxically, the more you are yourself, the more universal your message. As you develop and individuate more deeply, you break through into deeper layers of the collective consciousness and the collective unconsciousness.
+ - The conception, composition, practice, and performance of a piece of music can blossom in a single moment.
+ - Any action can be practiced as an art, as a craft, or as drudgery.
+ - If we are transparent, with nothing to hide, the gap between language and being disappears. Then the Muse can speak.
+ - Commitment to a set of rules frees your play to attain a profundity and vigor otherwise impossible.
+ - As an improvising musician, I am not in the music business, I am not in the creativity business; I am in the surrender business.
+ - To do anything artistically you have to acquire technique, but create through your technique and not with it.
+ - An improviser does not operate from a formless vacuum, but from three billion years of organic evolution.
+ - If form is mechanically applied, it may indeed result in work that is conventional, if not pedantic or stupid. But form used well can become the very vehicle of freedom, of discovering the creative surprises that liberate mind-at-play.
+
+51 quotes

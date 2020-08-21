@@ -1,0 +1,64 @@
+ - Before I can tell my life what I want to do with it, I must listen to my life telling me who I am.
+ - Whoever our students may be, whatever the subject we teach, ultimately we teach who we are.
+ - Self-care is never a selfish act – it is only good stewardship of the only gift I have, the gift I was put on earth to offer others.
+ - Some journeys are direct, and some are circuitous; some are heroic, and some are fearful and muddled. But every journey, honestly undertaken, stands a chance of taking us toward the place where our deep gladness meets the world’s deep need.
+ - Is the life I’m living the life that wants to live in me?
+ - Good teaching cannot be reduced to technique; good teaching comes from the identity and integrity of the teacher.
+ - Wholeness does not mean perfection: it means embracing brokenness as an integral part of life.
+ - The power for authentic leadership is found not in external arrangements, but in the human heart.
+ - Before you tell your life what you intend to do with it, listen for what it intends to do with you.
+ - Relational trust is built on movements of the human heart such as empathy, commitment, compassion, patience, and the capacity to forgive.
+ - As I teach, I project the condition of my soul onto my students, my subject, and our way of being together.
+ - Our deepest calling is to grow into our own authentic self-hood, whether or not it conforms to some image of who we ought to be. As we do so, we will not only find the joy that every human being seeks – we will also find our path of authentic service in the world.
+ - Good teachers join self and subject and students in the fabric of life.
+ - Before you tell your life what you intend to do with it, listen for what it intends to do with you. Before you tell your life what truths and values you have decided to live up to, let your life tell you what truths you embody, what values you represent.
+ - One of the hardest things we must do sometimes is to be present to another person’s pain without trying to “fix” it, to simply stand respectfully at the edge of that person’s mystery and misery.
+ - I now know myself to be a person of weakness and strength, liability and giftedness, darkness and light. I now know that to be whole means to reject none of it but to embrace all of it.
+ - Discovering vocation does not mean scrambling toward some prize just beyond my reach but accepting the treasure of true self I already posses.
+ - If we want to grow as teachers – we must do something alien to academic culture: we must talk to each other about our inner lives – risky stuff in a profession that fears the personal and seeks safety in the technical, the distant, the abstract.
+ - We are here not only to transform the world but also to be transformed.
+ - Mentoring is a mutuality that requires more than meeting the right teacher: the teacher must meet the right student.
+ - We are participants in a vast communion of being, and if we open ourselves to its guidance, we can learn anew how to live in this great and gracious community of truth.
+ - Teaching like any truly human activity emerges from one’s inwardness.
+ - In every story I have heard, good teachers share one trait: a strong sense of personal identity infuses their work.
+ - Wholeness does not mean perfection: it means embracing brokenness as an integral part of life. Knowing this gives me hope that human wholeness – mine, yours, ours – need not be a utopian dream, if we can use devastation as a seedbed for new life.
+ - Storytelling has always been at the heart of being human because it serves some of our most basic needs: passing along our traditions, confessing failings, healing wounds, engendering hope, strengthening our sense of community.
+ - Violence is what happens when we don’t know what else to do with our suffering.
+ - What do I want to let go of and what do I want to give myself to?
+ - It is because as we are, our hearts are closed, and we cannot place the holy words in our hearts. So we place them on top of our hearts. And there they stay until, one day, the heart breaks and the words fall in.
+ - The highest form of love is the love that allows for intimacy without the annihilation of difference.
+ - The spiritual life is about becoming more at home in your own skin.
+ - We listen for guidance everywhere except from within.
+ - Community doesn’t just create abundance – community is abundance. If we could learn that equation from the world of nature, the human world might be transformed.
+ - I will always have fears, but I need not be my fears, for I have other places within myself from which to speak and act.
+ - We are exploring together. We are cultivating a garden together, backs to the sun. The question is a hoe in our hands and we are digging beneath the hard and crusty surface to the rich humus of our lives.
+ - Why does a literary scholar study the world of “fiction”? To show us that the facts can never be understood except in communion with the imagination.
+ - Humility is the only lens though which great things can be seen – and once we have seen them, humility is the only posture possible.
+ - The ancient human question ‘Who am I?’ leads inevitably to the equally important question ‘Whose am I?’ – for there is no self outside of relationship.
+ - How easily we get trapped in that which is not essential – in looking good, winning at competition, gathering power and wealth – when simply being alive is the gift beyond measure.
+ - We need a coat with two pockets. In one pocket there is dust, and in the other pocket there is gold. We need a coat with two pockets to remind us who we are.
+ - We think it’s about little techniques and tricks, but techniques only take you so far. We need teachers who care about kids, who care about what they teach, and who can communicate with kids.
+ - Science requires an engagement with the world, a live encounter between the knower and the known.
+ - The inner life of any great thing will be incomprehensible to me until I develop and deepen an inner life of my own.
+ - Truth-telling by a leader can legitimate truth-telling at every level.
+ - Disabused of our illusions by much travel and travail, we awaken one day to find that the sacred center is here and now – in every moment of the journey, everywhere in the world around us, and deep within our own hearts.
+ - I am not sure that any sight or sound on earth is as exquisite as the hushed descent of a sky full of snow.
+ - Don’t let anyone or anything rob you of the beauty and meaning at the heart of life. It’s your birthright gift.
+ - A scholar is committed to building on knowledge that others have gathered, correcting it, confirming it, enlarging it.
+ - Community is a place where the connections felt in our hearts make themselves known in the bonds between people, and where the tuggings and pullings of those bonds keep opening our hearts.
+ - We must come together in ways that respect the solitude of the soul that avoid the unconscious violence we do when we try to save each other that evoke our capacity to hold another life without dishonoring its mystery never trying to coerce the other into meeting our own needs.
+ - Each time a door closes, the rest of the world opens up.
+ - The winters will drive you crazy until you learn to get out into them.
+ - I think the pursuit of happiness is the pursuit of reality because illusion never leaves us ultimately happy.
+ - It’s more important to be in right relationship than it is to be right.
+ - By choosing integrity, I become more whole, but wholeness does not mean perfection. It means becoming more real by acknowledging the whole of who I am.
+ - Good teaching comes from good people.
+ - Authority is granted to people who are perceived as authoring their own words, their own actions, their own lives, rather than playing a scripted role at great remove from their own hearts.
+ - Here, I think, is another clue to finding true self and vocation: we must withdraw the negative projections we make on people and situations – projections that serve mainly to mask our fears about ourselves- and acknowledge and embrace our own liabilities and limits.
+ - I want to learn how to hold the paradoxical poles of my identity together, to embrace the profoundly opposite truths that my sense of self is deeply dependent on others dancing with me and that I still have a sense of self when no one wants to dance.
+ - Death in various forms is sometimes comforting, while resurrection and new life can be demanding and threatening. If I lived as if resurrection were real, and allowed myself to die for the sake of a new life, what might I be called upon to do?
+ - I want my inner truth to be the plumb line for the choices I make about my life – about the work that I do and how I do it, about the relationships I enter into and how I conduct them.
+ - The past isn’t fixed and frozen in place. Instead, its meaning changes as life unfolds.
+ - What passes for political realism may make for lively academic debates. But it often functions, ironically, as a tool of social control, rendering us passive with an analysis that overwhelms and paralyzes us.
+
+62 quotes

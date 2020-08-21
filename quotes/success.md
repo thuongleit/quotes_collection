@@ -1,0 +1,102 @@
+ - If you focus on success, you’ll have stress. But if you pursue excellence, success will be guaranteed. ~~Deepak Chopra
+ - Success is nothing more than a few simple disciplines, practiced every day. ~~Jim Rohn
+ - Seven Steps to Success 1) Make a commitment to grow daily. 2) Value the process more than events. 3) Don't wait for inspiration. 4) Be willing to sacrifice pleasure for opportunity. 5) Dream big. 6) Plan your priorities. 7) Give up to go up. ~~John C. Maxwell
+ - In order to succeed, your desire for success should be greater than your fear of failure.  ~~Bill Cosby
+ - Successful people have libraries. The rest have big screen TVs. ~~Jim Rohn
+ - Action is the foundational key to all success.  ~~Pablo Picasso
+ - It is not where you start but how high you aim that matters for success. ~~Nelson Mandela
+ - The way of success is the way of continuous pursuit of knowledge. ~~Napoleon Hill
+ - Success is doing ordinary things extraordinarily well. ~~Jim Rohn
+ - Do not judge me by my successes, judge me by how many times I fell down and got back up again. ~~Nelson Mandela
+ - Successful people don’t have fewer problems. They have determined that nothing will stop them from going forward. ~~Ben Carson
+ - The difference between a successful person and others is not a lack of strength, not a lack of knowledge, but rather a lack in will. ~~Vince Lombardi
+ - If you start today to do the right thing, you are already a success even if it doesn’t show yet. ~~John C. Maxwell
+ - Success usually comes to those who are too busy to be looking for it. ~~Henry David Thoreau
+ - Many of life’s failures are people who did not realize how close they were to success when they gave up. ~~Thomas A. Edison
+ - I don’t know the key to success, but the key to failure is trying to please everyone. ~~Bill Cosby
+ - The successful warrior is the average man, with laser-like focus. ~~Bruce Lee
+ - There are no secrets to success: don’t waste time looking for them. Success is the result of perfection, hard work, learning from failure, loyalty to those for whom you work, and persistence. ~~Colin Powell
+ - Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it. ~~Bruce Lee
+ - Whenever you see a successful business, someone once made a courageous decision. ~~Peter F. Drucker
+ - If you have no critics you’ll likely have no success. ~~Malcolm X
+ - Success is knowing your purpose in life, growing to reach your maximum potential, and sowing seeds that benefit others. ~~John C. Maxwell
+ - Success is liking yourself, liking what you do, and liking how you do it. ~~Maya Angelou
+ - Success is not final, failure is not fatal: it is the courage to continue that counts. ~~Winston Churchill
+ - The road to success is dotted with many tempting parking spaces. ~~Will Rogers
+ - The road to success is always under construction. ~~Lily Tomlin
+ - Success is a little like wrestling a gorilla. You don't quit when you're tired. You quit when the gorilla is tired. ~~Robert Strauss
+ - You have to remember something: everybody pities the weak; jealousy you have to earn. ~~Arnold Schwarzenegger
+ - Try not to become a man of success. Rather become a man of value. ~~Albert Einstein
+ - The dictionary is the only place that success comes before work.  ~~Vince Lombardi
+ - Success does not consist in never making mistakes but in never making the same one a second time. ~~George Bernard Shaw
+ - Talent is cheaper than table salt. What separates the talented individual from the successful one is a lot of hard work. ~~Stephen King
+ - The distance between insanity and genius is measured only by success. ~~Bruce Feirstein
+ - Judge your success by what you had to give up in order to get it. ~~Dalai Lama XIV
+ - All successful people men and women are big dreamers. They imagine what their future could be, ideal in every respect, and then they work every day toward their distant vision, that goal or purpose. ~~Brian Tracy
+ - Don't be distracted by criticism. Remember: the only taste of success some people have is when they take a bite out of you. ~~Zig Ziglar
+ - I’m a success today because I had a friend who believed in me and I didn’t have the heart to let him down. ~~Abraham Lincoln
+ - The true measure of success is how many times you can bounce back from failure. ~~Stephen Richards
+ - Success will be within your reach only when you start reaching out for it. ~~Stephen Richards
+ - A man is a success if he gets up in the morning and gets to bed at night, and in between he does what he wants to do. ~~Bob Dylan
+ - The ability to discipline yourself to delay gratification in the short term in order to enjoy greater rewards in the long term, is the indispensable prerequisite for success. ~~Brian Tracy
+ - Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved. ~~Helen Keller
+ - Success is stumbling from failure to failure with no loss of enthusiasm. ~~Winston Churchill
+ - Success is a lousy teacher. It seduces smart people into thinking they can’t lose. ~~Bill Gates
+ - Sometimes success isn't about making the right decision, it's more about making some decision. ~~Robin S. Sharma
+ - Eighty percent of success is showing up. ~~Woody Allen
+ - Success is most often achieved by those who don't know that failure is inevitable. ~~Coco Chanel
+ - Success is determined not by whether or not you face obstacles, but by your reaction to them. And if you look at these obstacles as a containing fence, they become your excuse for failure. If you look at them as a hurdle, each one strengthens you for the next. ~~Ben Carson
+ - Failure is the condiment that gives success its flavor. ~~Truman Capote
+ - No one lives long enough to learn everything they need to learn starting from scratch. To be successful, we absolutely, positively have to find people who have already paid the price to learn the things that we need to learn to achieve our goals. ~~Brian Tracy
+ - I do not think there is any thrill that can go through the human heart like that felt by the inventor as he sees some creation of the brain unfolding to success. Such emotions make a man forget food, sleep, friends, love, everything. ~~Nikola Tesla
+ - The thing I remember best about successful people I've met all through the years is their obvious delight in what they're doing and it seems to have very little to do with worldly success. They just love what they're doing, and they love it in front of others. ~~Fred Rogers
+ - Make the work you are doing today better than the work you did yesterday. ~~Robin S. Sharma
+ - Don’t watch the clock; do what it does. Keep going. ~~Sam Levenson
+ - You will never change your life until you change something you do daily. The secret of your success is found in your daily routine. ~~John C. Maxwell
+ - Success isn’t overnight. It’s when everyday you get a little better than the day before. It all adds up. ~~Dwayne Johnson
+ - Work like there is someone working twenty-four hours a day to take it all away from you. ~~Mark Cuban
+ - Self-trust is the first secret of success. ~~Ralph Waldo Emerson
+ - Do what you have to do until you can do what you want to do. ~~Oprah Winfrey
+ - Do what makes you happy. Keep it simple. Do the research. Work hard. Look ahead. ~~Gary Vaynerchuk
+ - Success is the sum of small efforts, repeated day in and day out. ~~Robert Collier
+ - A man is but the product of his thoughts. What he thinks, he becomes. ~~Mahatma Gandhi
+ - You may be disappointed if you fail, but you are doomed if you don’t try. ~~Beverly Sills
+ - All great achievements require time. ~~Maya Angelou
+ - Patience, persistence and perspiration make an unbeatable combination for success. ~~Napoleon Hill
+ - Successful people ask better questions, and as a result, they get better answers. ~~Tony Robbins
+ - Don’t be afraid to give up the good to go for the great. ~~John D. Rockefeller
+ - Success is no accident. It is hard work, perseverance, learning, studying, sacrifice and most of all, love of what you are doing or learning to do. ~~Pelé
+ - Have fun, work hard and money will come. Don’t waste time – grab your chances. Have a positive outlook on life. When it’s not fun, move on. ~~Richard Branson
+ - You have within you right now, everything you need to deal with whatever the world can throw at you. ~~Brian Tracy
+ - Formal education will make you a living. Self-education will make you a fortune. ~~Jim Rohn
+ - Victory is sweetest when you’ve known defeat. ~~Malcolm S. Forbes
+ - Focus on the possibilities for success, not on the potential for failure. ~~Napoleon Hill
+ - Strength and growth come only through continuous effort and struggle. ~~Napoleon Hill
+ - A wise man will make more opportunities than he finds. ~~Francis Bacon
+ - I know the price of success: dedication, hard work, and an unremitting devotion to the things you want to see happen. ~~Frank Lloyd Wright
+ - Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway. ~~Earl Nightingale
+ - I attribute my success to this – I never gave or took any excuse. ~~Florence Nightingale
+ - The more you lose yourself in something bigger than yourself, the more energy you will have. ~~Norman Vincent Peale
+ - Expect the best. Prepare for the worst. Capitalize on what comes. ~~Zig Ziglar
+ - The path to success is to take massive, determined action. ~~Tony Robbins
+ - Without hard work, nothing grows but weeds. ~~Gordon B. Hinckley
+ - Motivation is a fire from within. If someone else tries to light that fire under you, chances are it will burn very briefly. ~~Stephen R. Covey
+ - Do the best you can until you know better. Then when you know better, do better. ~~Maya Angelou
+ - Success is neither magical nor mysterious. Success is the natural consequence of consistently applying basic fundamentals. ~~Jim Rohn
+ - If you really want to do something, you’ll find a way. If you don’t, you’ll find an excuse. ~~Jim Rohn
+ - Everyone has talent. What is rare is the courage to follow the talent to the dark place where it leads. ~~Erica Jong
+ - Don’t let yesterday use up too much of today. ~~Will Rogers
+ - It’s fine to celebrate success but it is more important to heed the lessons of failure. ~~Bill Gates
+ - Most great people have attained their greatest success just one step beyond their greatest failure. ~~Napoleon Hill
+ - The only limit to our realization of tomorrow will be our doubts of today. Let us move forward with strong and active faith. ~~Franklin D. Roosevelt
+ - I’d rather attempt to do something great and fail than to attempt to do nothing and succeed. ~~Robert H. Schuller
+ - Hard work spotlights the character of people: some turn up their sleeves, some turn up their noses, and some don’t turn up at all. ~~Sam Ewing
+ - Success is peace of mind which is a direct result of self-satisfaction in knowing you did your best to become the best you are capable of becoming. ~~John Wooden
+ - Success is the progressive realization of a worthy goal or ideal. ~~Earl Nightingale
+ - A mediocre idea that generates enthusiasm will go further than a great idea that inspires no one. ~~Mary Kay Ash
+ - One secret of success in life is for a man to be ready for his opportunity when it comes. ~~Benjamin Disraeli
+ - A great leader’s courage to fulfill his vision comes from passion, not position. ~~John C. Maxwell
+ - To know even one life has breathed easier because you have lived. This is to have succeeded. ~~Ralph Waldo Emerson
+ - You only have to do a very few things right in your life so long as you don’t do too many things wrong. ~~Warren Buffett
+
+100 quotes

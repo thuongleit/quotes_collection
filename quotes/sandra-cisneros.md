@@ -1,0 +1,70 @@
+ - You can’t erase what you know. You can’t forget who you are.
+ - You can never have too much sky.
+ - I am obsessed with becoming a woman comfortable in her skin.
+ - The more you speak more languages, the more you understand about yourself. It’s like being blind. You aren’t less of a person, but you’re missing out on wonderful things.
+ - The thoughts of letting go of everything I love overwhelms like a tsunami of sorrow.
+ - I am a woman, and I am a Latina. Those are the things that make my writing distinctive. Those are the things that give my writing power.
+ - I was silent as a child, and silenced as a young woman; I am taking my lumps and bumps for being a big mouth, now, but usually from those whose opinion I don’t respect.
+ - I don’t know what the definition of a short story is, and I don’t even care to answer that question. That’s something somebody in academia would think about. I just want to tell a story, and if people listen, and if it stays with you, it’s a story.
+ - The older I get, the more I’m conscious of ways very small things can make a change in the world. Tiny little things, but the world is made up of tiny matters, isn’t it?
+ - When your writing is unselfconscious, when it comes from your heart, that’s when it’s powerful.
+ - Generally if you’re a daughter in a Mexican family, no one wants to tell you anything; they tell you the healthy lies about your family.
+ - I’m filled with a new joy mixed with old grief.
+ - The world we live in is a house on fire and the people we love are burning.
+ - The devil knows more from experience than from being the devil.
+ - I’ve put up with too much, too long, and now I’m just too intelligent, too powerful, too beautiful, too sure of who I am finally to deserve anything less.
+ - I think diseases have no eyes. They pick with a dizzy finger anyone, just anyone.
+ - Bricks are crumbling in places, and the front door is so swollen you have to push hard to get in.
+ - My feminism is humanism, with the weakest being those who I represent, and that includes many beings and life forms, including some men.
+ - Write about what makes you different.
+ - I think my family and closest friends are learning about my need to withdraw, and I am learning how to restore and store my energy to both serve the community to the best of my ability and to serve my writer’s heart.
+ - Every writer I admire is my teacher. If you look at it, and if you care to read carefully enough and to read and reread a text, you teach yourself something about craft.
+ - I usually say Latina, Mexican-American or American Mexican, and in certain contexts, Chicana, depending on whether my audience understands the term or not.
+ - I am one who leaves the table like a man, without putting back the chair or picking up the plate.
+ - Even if we don’t know if God exists, we can be certain love exists, because its power transcends death.
+ - I try to be as honest about what I see and to speak rather than be silent, especially if it means I can save lives, or serve humanity.
+ - I wish somebody had told me love does not die, that we can continue to receive and give love after death.
+ - I realize that when I moved out of my father’s house I shocked and frightened him because I needed a room of my own, a space of my own to reinvent myself.
+ - But I deal with this by meditating and by understanding I’ve been put on the planet to serve humanity. I have to remind myself to live simply and not overindulge, which is a constant battle in a material world.
+ - And the nice thing about writing a novel is you take your time, you sit with the character sometimes nine years, you look very deeply at a situation, unlike in real life when we just kind of snap something out.
+ - Every book changes my writing because I’m always trying to do something I didn’t do before. I try to do what’s hard for me, what I haven’t done in the past.
+ - I didn’t marry. I didn’t have children. I followed the food supply for jobs. I kept writing at night. And that kept me moving. It kept my life disruptive. It broke up many relationships. Was it worth it? Yes.
+ - The house was immaculate, as always, not a stray hair anywhere, not a flake of dandruff or a crumpled towel. Even the roses on the dining-room table held their breath. A kind of airless cleanliness that always made me want to sneeze.
+ - Everything that is most mine belongs to everyone now.
+ - We can have our hearts broken over so much more. It is important to recognize the full spectrum of heartbreak. We can be heartbroken by lost and by disappointment. But heartbreak is not just this negative image we see, it’s not this terrible experience that brings no benefits.
+ - I don’t see any kind of mirror of power, male power, that is, as a form of liberation. I don’t believe in an eye for an eye. I don’t believe this is truly freedom.
+ - Like all guests, after a fortnight, grief is best beyond the door.
+ - The beauty of literature is you allow readers to see things through other peoples eyes. All good books do this.
+ - I believe love is always eternal. Even if eternity is only five minutes.
+ - My weapon has always been language, and I’ve always used it, but it has changed. Instead of shaping the words like knives now, I think they’re flowers, or bridges.
+ - You don’t want somebody who doesn’t know his own heart, do you? You’ll find someone who’s brave enough to love you. Someday. One day. Not today.
+ - The truth has a strange way of following you, of coming up to you and making you listen to what it has to say.
+ - Revenge only engenders violence, not clarity and true peace. I think liberation must come from within.
+ - I have to say that the traditional role is kind of a myth. I think the traditional Mexican woman is a fierce woman.
+ - I feel comfortable in Spanish, I chat like a parrot, but I don’t have the confidence in Spanish that I do in English.
+ - Heartbreak makes us stronger; it’s an opportunity for spiritual growth. How can you understand someone else’s pain if you have not yourself suffered?
+ - When you have your heart broken wide, you are also open to things of beauty as well as things of sadness. Once people are not here physically, the spiritual remains, we still connect, we can communicate, we can give and receive love and forgiveness. There is love after someone dies.
+ - For me, a story’s a story if people want to hear it; it’s very much based on oral storytelling. And for me, a story is a story when people give me the privilege of listening when I’m speaking it out loud.
+ - Mexico is only a memory of childhood safety.
+ - One press account said I was an overnight success. I thought that was the longest night I’ve ever spent.
+ - I think people should read fairy tales, because were hungry for a mythology that will speak to our fears.
+ - The older you get, the more power you have with language as a writer, which means that you have to be extra responsible for what you say, whether it’s in print or in front of a microphone, because those words can go out and kill or go out and plant seeds for peace.
+ - Perhaps the greatest challenge has been trying to keep my time to myself and my private life private in order to do my job. Everything that is most mine belongs to everyone now.
+ - How can art make a difference in the world?
+ - The stories are what no one wants to talk about. So you make up a story because no one is going to tell you the truth.
+ - Maybe all pain in the world requires poetry.
+ - I didn’t intend to be writing – the writer’s life. I was just writing what came to me at the time, but it is a map of how this writer had to break many barriers to find, not a room of her own, but a house of her own.
+ - I think I didn’t know what I was creating, as much as I knew what I didn’t want to do. And I didn’t want my mother’s life. She was an unhappy, frustrated artist who always dreamed of a life that was never going to be hers.
+ - I was raised in Chicago, so always used Latina. It’s what my Father and brothers called ourselves, when we meant the entire Spanish-speaking community of Chicago.
+ - The TSA tears through your bags at the airport and the NSA watches what books you buy and what you say over the telephone and online. It doesn’t feel like anything is private anymore.
+ - I’ve always read broadly: literary fiction, sci-fi, fantasy, chick lit, historical, dystopian, nonfiction, memoir. I’ve even read Westerns. I prefer female protagonists.
+ - You’ll change. You’ll see. Wait till you meet Mr. Right.
+ - I lose things. I write things and they disappear from my desk, my life. I move a lot. I wanted to gather them and put them under one roof, under one cover, so I could document my life in a series of snapshots.
+ - I always tell people that I became a writer not because I went to school but because my mother took me to the library. I wanted to become a writer so I could see my name in the card catalog.
+ - Sometimes I feel I can’t quite master my written and spoken Spanish, because I’m too much a student of English. I would need another lifetime to learn it.
+ - It’s difficult for me to have a large story, a very large story – a novel is a large story. I’m used to writing and doing these little miniature paintings.
+ - Writing poetry helps me to write my fiction; each thing helps the other.
+ - I have to understand what my strengths and limitations are, and work from a true place. I try to do this as best I can while still protecting my writer self, which more than ever needs privacy.
+ - There are many Latino writers as talented as I am, but because we are published through small presses, our books don’t count. We are still the illegal aliens of the literary world.
+
+68 quotes

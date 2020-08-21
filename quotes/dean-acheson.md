@@ -1,0 +1,30 @@
+ - Negotiation in the classic diplomatic sense assumes parties more anxious to agree than to disagree.
+ - Greatness is a quality of character and is not the result of circumstances.
+ - The trouble with a free market economy is that it requires so many policemen to make it work.
+ - Charm never made a rooster.
+ - Great Britain has lost an Empire and has not yet found a role.
+ - How could the USA champion individual freedom in the world generally while denying it to an important minority in its own country.
+ - Vietnam was worse than immoral – it was a mistake.
+ - Controversial proposals, once accepted, soon become hallowed.
+ - I have a curious and apprehensive feeling as I watch JFK that he is sort of an Indian snake charmer.
+ - Time spent in the advertising business seems to create a permanent deformity like the Chinese habit of foot-binding.
+ - No man comes out of his own memorandum of conversation looking second best.
+ - We have actively sought and are actively seeking to make the United Nations an effective instrument of international cooperation.
+ - I learned from the example of my father that the manner in which one endures what must be endured is more important than the thing that must be endured.
+ - To leave positions of great responsibility and authority is to die a little, but the time comes when that must be faced.
+ - The most important aspect of the relationship between the president and the secretary of state is that they both understand who is president.
+ - Americans assume Canada to be bestowed as a right and accept this bounty, as they do air, without thought or appreciation.
+ - The greatest mistake I made was not to die in office.
+ - The test for aid to poor nations is therefore whether it makes them capable of being productive. If it fails to do so, it is likely to make them even poorer in the – not so very – long run.
+ - Brains are no substitute for judgement.
+ - The first requirement of a statesman is that he be dull.
+ - The Iraqi is really not whacky toady, perhaps, even tacky. When they gave him the word, he gave us the bird and joined with the Arabs, by cracky!
+ - With a nation, as with a boxer, one of the greatest assurances of safety is to add reach to power.
+ - The best thing about the future is that it comes only one day at a time. The best thing about the future is that it comes only one day at a time.
+ - Between 9 and 10 AM the American radio is concerned almost exclusively with love. It seems a little like ending breakfast with a stiff bourbon.
+ - If we learn the art of yielding what must be yielded to the changing present, we can save the best of the past.
+ - I have almost invariably found that charm is used as a substitute for intelligence in persons of both sexes. Thus, I have always been and will remain wary of it.
+ - I doubt very much if a man whose main literary interests were in works by Mr. Zane Grey, admirable as they may be, is particularly equipped to be the chief executive of this country, particularly where Indian Affairs are concerned.
+ - The limitations imposed by democratic political practices makes it difficult to conduct our foreign affairs in the national interest.
+
+28 quotes

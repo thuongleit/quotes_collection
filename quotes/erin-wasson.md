@@ -1,0 +1,40 @@
+ - I love heights. I love speed. Im on the verge of being a pyromaniac. Maybe my phobia is boredom.
+ - I’m really not into that super-crazy-colour, smiley-faces-on-the-front-of-your-dress look. That’s not my thing. You’re not going to see me in pink. Or anything frilly. Or a tutu. Or bows.
+ - The people who really know me understand that I have a tough exterior, but I’m actually just a hippie at heart.
+ - I loathe hair salons. People have always told me I am in the wrong business because I can’t stand getting my hair cut or having it messed around with. Hairdressers feel as if they’ve got to be your shrinks. I just want them to do my hair so I can get out of there.
+ - I am rough around the edges, and I am not a polished girl.
+ - When I’m not working, I want to be the version of the person that I was born to be. I was born with curly hair. It fits my personality, and it’s totally who I am. I am rough around the edges, and I am not a polished girl.
+ - I’m passionate about being true to myself, sending good energy to the people around me, traveling, staying inspired, being a good friend, being a good daughter, being a good sister.
+ - I’ve never been a girly-girl, never drawn to things that are fussy.
+ - I think we are living in a world that is too perfect and things are too retouched. I want to scream at the top of my lungs ‘our imperfections are what make us special’
+ - My perspective is hard because I look at wardrobe from very much a guy’s perspective. You look at my closet and I have pairs of black jeans and five button-downs, but one’s silk, one’s cotton. They all are slightly different, so that’s my perspective.
+ - In the United States of America, we are so liberal-minded on so many different aspects, but for some reason there’s always going to be this weird connection with nudity being a bad thing. Americans can be so prude sometimes.
+ - I don’t have a background in design, so I think it’s always about what I see in the world and what inspires me. So yes, I am designing for myself. I’m going through this whole evolution, which is a process of growing up and going from modeling to styling to designing.
+ - I was a total jock growing up. I went to super-dorky basketball clinics and was handpicked to play on a state team called the Texas Heat.
+ - I think a lot of people know me for just wearing cut-off denim shorts, an oversized white T-shirt with a pair of high-heels. I usually do wear basic stuff. Jeans and a white T is my go-to look.
+ - I love being a gypsy. Home is between New York and California.
+ - I never expected to be a model. I never expected to be a stylist. Or a designer.
+ - I’m a huge Dallas Mavs fan. What I love about Dirk Nowitzki is he has just as much talent as everyone else, if not more, and he never toots his own horn. He’s this silent warrior.
+ - I was in a business for years where the stylist styled me, and I was wearing things from other designers. I was just there to be a conduit to those things. To be lucky enough to be embraced, having branched out from being a model, has been the greatest gift ever.
+ - I shop a lot more for furniture than I do for clothes. I much prefer going to an antique shop full of obscurities.
+ - When you aren’t working, you really want to emulate the real version of yourself.
+ - I really believe in keeping your canvas very basic and sort of adding the accouterments from there. I look at creating intrigue with outfits through accessories.
+ - I’ve always been a girl with a massive opinion.
+ - I’m a big believer in doing what you’ve got to do, but taking a breather when you can.
+ - The older I get, I’m definitely getting pulled towards the West Coast, because it’s a different quality of life. New York is great when you’re in your early 20s and you’re running around and it’s really fun, but it’s a place for me to get things done.
+ - I want to create a lifestyle niche for that cool girl who’s really into fashion but not too obsessed with it.
+ - I don’t think about fashion or trends – I’ve never really been that kind of person.
+ - I think people find it weird that I have a lot of long antique-lace dresses that I wear with boots.
+ - When you can take something that is a reject at the thrift store sitting on the bottom of a pile of junk and make it work, make it look interesting, that’s real style to me.
+ - I’m always “shopping,” because I think it’s important to know what’s out there.
+ - To be given the reins of creativity is a beautiful thing when you’re used to just showing up to a casting and standing there having clothes put on you.
+ - I like the idea of not looking at trends, not being driven by them. I like what I like and that’s it.
+ - I wouldn’t say I was really into fashion before modelling; I was into creation.
+ - I really like the idea of being utilitarian. My dream is to edit down my wardrobe and be very Japanese, where you have one rolling rack and it’s like your four T-shirts, your five dresses, your two pairs of jeans.
+ - I’m really a big believer in working with people. It’s challenging for me to come into already integrated brands and find a way where I can put my own flair on it.
+ - I’m really happy with everything that I’ve been fortunate enough to do and with the creative outlets I’ve been blessed to have.
+ - When you’re comfortable, you’re more confident – I really believe that. If you’re walking around in a dress or a pair of shoes that are uncomfortable, it reads all over you.
+ - My style has always been very free, easy, relaxed, and slightly androgynous.
+ - When I find something at a flea market or an antique store, it feels more special and I’m more inclined to want to wear it.
+
+38 quotes

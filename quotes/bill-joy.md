@@ -1,0 +1,44 @@
+ - Not all smart people work at Sun Microsystems.
+ - I think editors have to come out of a certain kind of community.
+ - There are always more smart people outside your company than within it.
+ - It is formatted, and I’m tired of using vi. I get really bored.
+ - I think it is no exaggeration to say we are on the cusp of the further perfection of extreme evil, an evil whose possibility spreads well beyond that which weapons of mass destruction bequeathed to the nation-states, on to a surprising and terrible empowerment of extreme individuals.
+ - Well, limbo is not a good place to be.
+ - The reason I use ed is that I don’t want to lose what’s on the screen.
+ - That lack of programmability is probably what ultimately will doom vi. It can’t extend its domain.
+ - We have to encourage the future we want rather than trying to prevent the future we fear.
+ - I got tired of people complaining that it was too hard to use UNIX because the editor was too complicated.
+ - I was surprised about vi going in, though, I didn’t know it was in System V.
+ - Most of the bright people don’t work for you – no matter who you are.
+ - I wish we hadn’t used all the keys on the keyboard.
+ - Operating systems are like underwear – nobody really wants to look at them.
+ - The standard definition of AI is that which we don’t understand.
+ - Just about every computer on the market today runs Unix, except the Mac and nobody cares about it.
+ - Given the incredible power of these new technologies, shouldn’t we be asking how we can best coexist with them? And if our own extinction is a likely, or even possible, outcome of our technological development, shouldn’t we proceed with great caution?
+ - You can’t solve a problem with the management of technology with more technology.
+ - You can drive a car by looking in the rear view mirror as long as nothing is ahead of you. Not enough software professionals are engaged in forward thinking.
+ - Sometimes the easiest way to get something done is to be a little naive about it.
+ - The next step after cheap is free, and after free is disposable.
+ - We can’t simply do our science and not worry about the ethical issues.
+ - I think Unix is a great system – especially for running data centers – because it is very mature, very reliable, very scalable. But when I want to go out and populate small devices, I think Java.
+ - I think the Macintosh proves that everyone can have a bitmapped display.
+ - The best way to do research is to make a radical assumption and then assume it’s true. For me, I use the assumption that object oriented programming is the way to go.
+ - Although humankind inherently “desires to know”, if open access to, and unlimited development of, knowledge henceforth puts us all in clear danger of extinction, then common sense demands that we re-examine our reverence for knowledge.
+ - A bomb is blown up only once – but one bot can become many, and quickly get out of control.
+ - But no, I don’t generally have trouble with spelling mistakes.
+ - Take responsibility for the things you build and invent.
+ - I had almost rewritten all of the display code for windows, and that was when I gave up.
+ - The point is that you want to have a system that is responsive.
+ - Document preparation systems will also require large screen displays.
+ - Bitmap display is media compatible with dot matrix or laser printers.
+ - I started to write a new editor not too long ago and had it about half done after two days.
+ - I think one of the interesting things is that vi is really a mode-based editor.
+ - What’s your personal computer, anyways? Your personal computer should be something that’s always on your person.
+ - Interleaf is very nice. I expect there to be a lot of competition for programs like that.
+ - Today scientists, technologists, businessmen, engineers don’t have any personal responsibility for the consequences of their actions.
+ - Interleaf is based on the formatting process.
+ - And once an intelligent robot exists, it is only a small step to a robot species – to an intelligent robot that can make evolved copies of itself.
+ - I think multiple levels of undo would be wonderful, too.
+ - Systems are going to get a lot more sophisticated.
+
+42 quotes

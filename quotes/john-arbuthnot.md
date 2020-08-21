@@ -1,0 +1,23 @@
+ - Law is a Bottomless-Pit, it is a Cormorant, a Harpy, that devours every thing.
+ - Mathematical Knowledge adds a manly Vigour to the Mind, frees it from Prejudice, Credulity, and Superstition.
+ - O truth divine! enlightened by thy ray, I grope and guess no more, but see my way.
+ - Unjust force can never give any just dominion.
+ - Hocus was an old cunning attorney. The words of consecration, “Hoc est corpus,” were travestied into a nickname for jugglery, as “Hocus-pocus.” – John Richard Green, A Short History of the English People, 1874. see Charles Macklin.
+ - Biography is one of the new terrors of death.
+ - To bliss unknown by lofty soul aspires, My lot unequal to my vast desires.
+ - Truth is the same thing to the understanding, as Music to the ear, and Beauty to the eye.
+ - The mathematics are the friends of religion, inasmuch as they charm the passions, restrain the impetuosity of the imagination, and purge the mind of error and prejudice.
+ - The dumpling-eaters are a race sprung partly from the old Epicurean and partly from the Peripatetic Sect; they were first brought into Britain by Julius Caesar; and finding it a Land of Plenty, they wisely resolved never to go home again.
+ - Mathematical studies may serve for a pleasant entertainment for those hours which young men are apt to throw away upon their vices.
+ - What I have said may serve to recommend mathematics for acquiring a vigorous constitution of mind; for which purpose they are as useful as exercise is for procuring health and strength to the body.
+ - John looked ruddy and plump, with a pair of cheeks like a trumpeter.
+ - Law is a bottomless pit.
+ - Truth can never be an enemy to true religion, which appears always to the best advantage when it is most examined.
+ - The dumpling is indeed of more ancient institution, and of foreign origin; but alas, what were those dumplings? Nothing but a few lentils sodden together, moisten’d and cemented with a little seeth’d fat.
+ - All the politics in the world are nothing else but a kind of analysis of the quantity of probability in casual events, and a good politician signifies no more but one who is dexterous at such calculations.
+ - He warns the heads of parties against believing their own lies.
+ - The first Care in building of Cities, is to make them airy and well perflated; infectious Distempers must necessarily be propagated amongst Mankind living close together.
+ - Almighty Power, by whose most wise command, helpless, forlorn, uncertain, here I stand, take this faint glimmer of thyself away, or break into my soul with perfect day!
+ - He that sows his grain upon marble will have many a hungry belly before his harvest.
+
+21 quotes

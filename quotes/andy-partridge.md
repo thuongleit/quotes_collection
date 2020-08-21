@@ -1,0 +1,42 @@
+ - You may leave school, but it never leaves you.
+ - Ballet for a rainy day Silent film of melting miracle play Dancing out there through my window To the backdrop of a slow descending grey.
+ - For a heart without love is a song with no words And a tune to which no one is listening So your heart must give love and you’ll find that You shine like rain on the leaves you’ll be glistening.
+ - I’m a big kid. I never lost my childlike appreciation of things. Too many people lock it out and throw their toys away and say, okay, I’m gonna grow up and be grumpy and miserable and not think about the magical side of things anymore – and I can’t seem to stop doing that.
+ - I believe the printed word is more than sacred Beyond the gauge of good or bad The human right to let your soul fly free and naked Above the violence of the fearful and sad.
+ - Brain gets bent, heart gets broken You can’t jump off once the pages turn School is out but never over That’s the only lesson you can learn.
+ - People will always be tempted to wipe their feet on anything with ‘welcome’ written on it.
+ - The man who sailed around his soul From East to West, from pole to pole With ego as his drunken captain Greed, the mutineer, had trapped all reason in the hold.
+ - Success is being nothing but a quote.
+ - Now I lay me down to sleep Knowing that your lenses peep Now I eat my daily bread And into the tape spool I’ll be fed.
+ - I met Jack Bruce, one of my heroes, in a studio while doing some recording. England had just beat Scotland in a big football match and I saw Jack trying to break into this refrigerator in the lounge, drunk out of his brain, and I didn’t know what to say.
+ - Anyway, I collapsed in France in the middle of a tour. I hadn’t been eating properly, I was getting very phobic about audiences, and I collapsed in pure fright.
+ - Well I don’t know how many pounds make up a ton, Of all the nobel prizes that I’ve never won, And I may be the mayor of simpleton, But I know one thing, And that’s I love you.
+ - I suppose my father was more influential in my starting to play the guitar.
+ - It was in San Diego and I was onstage and couldn’t remember how to play the guitar properly. I was in terrible pain and my nervous system was just going wild, like somebody had just run a car over me.
+ - You know, I was such a big Beatles fan, and when I’d buy a new album I’d invariably hate it the first time I heard it ’cause it was a mixture of absolute joy and absolute frustration. I couldn’t grasp what they’d done, and I’d hate myself for that.
+ - Reign of blows cascading down upon your shoulders Far too many men dressed up as soldiers The lamb is brought to the ground Under the weight of the Crown A crown of thorns and dark deeds The swastika and the hammer and sickle Are symbols that reap only weeds.
+ - It’s sort of what jazz would be if it stopped being snobby and what rock would be if it stopped being stupid.
+ - I don’t like touring and it seemed to be getting on top of me in a big way.
+ - I was getting Monkees Monthly and there was a competition to draw a Monkee. I did a caricature of Micky Dolenz and won 10 pounds-a fantastic sum of money for me then. I bought a secondhand tape recorder, which further launched me. They’ve been very responsible for me getting started.
+ - It’s very schizophrenic because I like a lot of very straight pop, like Small Faces, Stones, Kinks; and on the other hand, I like a lot of avant garde things.
+ - We stole their babes and mothers, chiefs and braves Although we held the whip, you knew we were The real slaves To alchemy, human alchemy.
+ - Now that I can see it’s the queen’s new clothes Now that I can hear all your poison prose Now that I can talk with my tongue unfroze I’m not so sure of Santa or the buck tooth fairy There are no words for me inside your dictionary.
+ - The early gigs were pretty panicky – and great, sweaty fun. We were brand new to most people, and they were willing to take anything brand new, for the first time in years.
+ - I’m really interested in bands that sound nothing like anything I do or can do. That’s what interests me.
+ - My parents, especially my mother, were no influence on me whatsoever.
+ - We did a gig at the Marquee and we were supposed to be paid five pounds but we never got it, and it cost us something like 10 pounds in petrol to get there to do it. So what we did was steal some equipment from The Marquee.
+ - Now that I’m out and I’m shouting in doorways Freed from a love more like murder I should be singing but in liberation Feel like a ship with no rudder.
+ - By the early ’70s I had gotten reasonable and I started to get in hundreds of groups that rehearsed and never played at all. I mean, the most important thing was to look good and have a great name.
+ - You watch the country-music awards that they show on the television, and you see country music has reached about 1985. It’s all huge processed drum sounds and chiming chorus guitars and programmed synths bobbling along in the background.
+ - I felt pressured by continuous touring.
+ - Where I’ve arrived now is the product of mixing the very straight with the very exploratory; there’s a fine line between the two, although it tends to be getting straighter and straighter because my songwriting is getting better.
+ - Will you tell them about that far off and mythical land And how a child to the virgin came? Will you tell them that the reason why we murdered Everything upon the surface of the world Is so we can stand right up and say we did it in his name?
+ - I actually got really petrified by the thought of people seeing me.
+ - If it’s a good LP, you’ll get that tingle that makes you put it on again no matter what your initial reaction was. On the other hand, if you don’t get that tingle, you’d better take it straight down to the record exchange.
+ - Other lands became a larder full of all the good things All we had to do was go and take Blood the colour of the rain that grew our wicked harvest Black the colour icing on our cake.
+ - I’ve always liked the idea of improvised music. Improvised anything. It’s what conversation is.
+ - I leaned right over to kiss your stoney book A little jealous of the ships with whom you flirt A billion lovers with their cameras Snap to look and in my fantasy I sail beneath your skirt.
+ - Come English Settlement, I had it in my head that I didn’t want to tour.
+ - We do this for the art, not the adulation. I’d rather our music get liked and we get ignored. I don’t want to be adored for anything other than the music.
+
+40 quotes

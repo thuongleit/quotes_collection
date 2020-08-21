@@ -1,0 +1,29 @@
+ - I like breaking the rules.
+ - Thank God my parents had an abundance of patience.
+ - I’m off to save the universe again. It’s a tough job but someone has to do it, and I’m glad it’s me.
+ - I did some artistic nudes when I was I 8 with a French-Canadian photographer while I was modeling. They were beautiful shots, and they were not about nudity.
+ - I quite enjoy science fiction.
+ - Seppuku is Japanese for ritual suicide. I thought, What a cute name for a coat.
+ - It doesn’t take much to make me happy.
+ - I’m totally on a mission to find my signature scent, but I’m too mercurial.
+ - I sit on my duff, smoke cigarettes and watch TV. I’m not exactly a poster girl for healthy living.
+ - Thongs don’t show. With jeans, you’re always going to get panty lines and I think that’s just a big mistake.
+ - The idea of running around and screaming about Jason Voorhees trying to kill you was fun.
+ - My parents used to take me to a lot of theatre when I was young.
+ - I’m determined to be a diva.
+ - My most recent purchase was a black lace corset.
+ - The idea of taking off my shoes and trying on all these clothes is so exhausting, I just leave.
+ - I thought I wanted to be a brain surgeon until I realized all the schooling it required. I didn’t like school very much so I had to come up with something else.
+ - The thing about Canada is, you’re not really considered a Canadian actor unless you do something with the CBC.
+ - I toyed with the idea of pursuing a career as a lawyer just because I like to argue.
+ - Men with style are great because they have a sense of self.
+ - For the past 10 years, people have been making fun of the eighties. Why are we bringing them back?
+ - I’m so much more of an East Coast girl than a West Coast girl.
+ - I’m very proud to be Canadian, but I would move to New York in a heartbeat.
+ - It doesn’t matter if you’re staying at a four-star hotel, you will never have your whole closet with you.
+ - I do see myself going to LA. Not anytime soon.
+ - Being stuck in airports, you always end up buying perfume and sunglasses.
+ - It’s a dream part, running around with guns, being an agent.
+ - My relationships with my loved ones always take precedence over work.
+
+27 quotes

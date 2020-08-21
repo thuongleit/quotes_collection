@@ -1,0 +1,47 @@
+ - If we don’t take care of our customers, someone else will.
+ - The universe is a self-organizing, intelligent, creative, trial-and-error learning, participatory, interactive, non-locally interconnected and evolving system.
+ - We need to make the world safe for creativity and intuition, for it’s creativity and intuition that will make the world safe for us.
+ - Transcendence gets you beyond ego. If you go beyond ego, you see all of this in a more decent perspective and you can start to put all the pieces together. We haven’t done that yet. Not as a civilization.
+ - When you transcend the transcendent states, you get past the ego structure, and at that point you don’t need laws, you have “morality!” You have inborn, natural ethics, because it is built on Love.
+ - You get out there in space and say to yourself: that’s home. That’s the only home we have, and the only one we’re going to have for a long time.
+ - I experienced an ecstasy of unity. I not only saw the connectedness, I felt it and experienced it sentiently. The restraints and boundaries of flesh and bone fell away.
+ - The ancients had a term in the mystical tradition called the Akashic Records, which was suggestive that nature didn’t lose it’s experience, that the information accumulated was available forever.
+ - Eventually we must leave Earth-at least a certain number of our progeny must as our sun approaches the end of its solar life cycle. But just as terrestrial explorers have always led the way for settlers, this will also happen extraterrestrially. Earth is our cradle, not our final destiny.
+ - Undoubtedly we will go on to Mars in due course, provided we don’t blow ourselves up with our stupidities in the short run. That’s a possibility, too.
+ - We went to the Moon as technicians; we returned as humanitarians.
+ - I call it “the big picture effect.” Getting to see earth as a small planet and to see it in that perspective, seeing it in the heavens as a planet as opposed to being down here among it, most of the people, in fact, I guess all of the people who have had that experience, shift their thinking.
+ - We are creating the future. It is not determined. If we get our act together and solve our current problems, we could have a sustainable, abundant future. If we don’t, we could wipe ourselves out. We are on the verge of doing it with our current politics. It is regressive, going back the other way.
+ - We are not alone in the universe. They have been coming here for a long time...
+ - On the return trip home, gazing through 240,000 miles of space toward the stars and the planet from which I had come, I suddenly experienced the universe as intelligent, loving, harmonious.
+ - When I went to the moon I was a pragmatic test pilot. But when I saw the planet Earth floating in the vastness of space the presence of divinity became almost palpable and I knew that life in the universe was not just an accident.
+ - My view of our planet was a glimpse of divinity.
+ - We all know that UFOs are real. All we need to ask is where do they come from, and what do they want?
+ - Science is methodology. As a belief system it’s disastrous.
+ - The transcendent experience is common to every culture in the world.
+ - I have been a strong proponent of helping people understand that during the last decade or so, as it lies at the very bottom of how we know anything. Let me give a couple examples to get that point across.
+ - Another way to think of this is there are now 6.8 billion people on this planet, and half of them weren’t even born when we went to the moon, and so they don’t have the perspective.
+ - The quantum fluctuations within a zero-point field can start the process that builds the process, which builds into matter, an irreversible process. We have some evidence that suggests that. We don’t have a Big Bang, but we have a lot of little pops! A continuous set of little pops!
+ - It was a beautiful, harmonious, peaceful-looking planet, blue with white clouds, and one that gave you a deep sense of home, of being, of identity. It is what I prefer to call instant global consciousness.
+ - The transcendent experience is brotherly love, nature, harmony and unity. Cultures, in trying to define it, try to define an external deity as opposed to the process.
+ - Well, in the sense of the traditional notion of God, coming out of Christianity and Islam and the Abrahamic religions, I do not hold with that concept of a God or deity. In that concept, I’m agnostic. Okay, I don’t know the answer, let’s find the answer.
+ - I have trust that we humans can resolve the problems that we have created. There is a Sanskrit saying that I subscribe to and I like very much, that “God sleeps in the minerals, awakens in plants, walks in the animals, and thinks in Man.”
+ - Our ignorance, and it is based on the egos we have. It is the unwillingness to go beyond ego.
+ - I am very, very incredulous about what I see. I can’t throw caveats in. I don’t make blanket statements.
+ - Our success and our understanding is that all beings are right inside, the deeper we go inside ourselves. There’s a saying that Unity uses that I have always liked: “Let there be peace on earth, and let it begin with me.” We all have to be a part of this. We have to be the initiator. We can’t wait.
+ - Unfortunately, religions have become a part of the problem instead of part of the solution. We have fought our wars in the name of God, questioning whose God is the best God and whose exploration of this deeper reality is the best explanation. That defies everything that this deeper reality teaches.
+ - We’re not on a sustainable path in civilization. We’re on an exponential growth curve, on which we perhaps always have been, but it has turned up sharply at the beginning of the 20th century.
+ - Dr. Lipsenthal is a profound explorer of our inner and outer worlds. Enjoy Every Sandwich will help you heal your fear of death and embrace the true joy of life’s extraordinary journey.
+ - It’s starting to catch hold, and in large measure it’s because we’re starting to understand that much of what we have talked about in ancient mythology and mystical experience and so forth can pretty well be modeled within the world of quantum physics. That’s a 20th century phenomenon also.
+ - To kill a citizen of our own country is evil, but to kill a citizen of another country is ‘good.’
+ - I think of the universe as the body of God, and the creative capability we see and can exhibit as the mind of God. I will use this phrase to describe our system, that it’s a creative, intelligent, self-organizing, learning trial-and-error, interactive, non-locally interconnected evolutionary system.
+ - It was a dogma throughout most of the 20th century that quantum science only applied to subatomic matter, and we now know that not to be true. One of the major discoveries was Quantum Holography.
+ - I think it laughable, frankly, that the physics community comes up with a theory for everything. There isn’t one theory for everything. There is not one explanation. We may eventually have several theories that can tie things together nicely but there is not a single theory of everything.
+ - We have what is happening as a result of the current administration in our country, which I think has taken us in a totally wrong direction, postulating totally wrong things.
+ - Understanding is becoming aware of the fact that civilization itself is in trouble and we have done it by overpopulating the planet, and by moving toward self-service and greed. These sort of things are directly the wrong approach.
+ - The ancient traditions, even Christianity, say God is Love. There is symmetry here. The fundamental step where you get into this transcendent state is this feeling of ebullience, love and caring and unity.
+ - The main problem is that we, as an Earth civilization, have not come to understand ourselves – see ourselves in a cosmic sense at all.
+ - In my opinion, fundamentalist Christians are just as bad as fundamentalist Islam and, at the very core, neither religion is like that.
+ - We’re at a point in history were we have to become a part of the neighborhood of inhabited planets, like a neighborhood of a community, which we have not even acknowledged that that community exists up until this point.
+ - I’d like to discover Truth – when I can latch on to something that I think is true.
+
+45 quotes

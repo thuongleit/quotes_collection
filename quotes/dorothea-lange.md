@@ -1,0 +1,33 @@
+ - The camera is an instrument that teaches people how to see without a camera.
+ - Photography takes an instant out of time, altering life by holding it still.
+ - The best way to go into an unknown territory is to go in ignorant, ignorant as possible, with your mind wide open, as wide open as possible and not having to meet anyone else’s requirement but your own.
+ - The good photograph is not the object, the consequences of the photograph are the objects.
+ - To know ahead of time what you’re looking for means you’re then only photographing your own preconceptions, which is very limiting, and often false.
+ - While there is perhaps a province in which the photograph can tell us nothing more than what we see with our own eyes, there is another in which it proves to us how little our eyes permit us to see.
+ - One should really use the camera as though tomorrow you’d be stricken blind.
+ - Life, for people, begins to crumble on the edges; they don’t realize it.
+ - You know there are moments such as these when time stands still and all you do is hold your breath and hope it will wait for you.
+ - It is no accident that the photographer becomes a photographer any more than the lion tamer becomes a lion tamer.
+ - It is not enough to photograph the obviously picturesque.
+ - I believe in living with the camera, and not using the camera.
+ - The visual life is an enormous undertaking, practically unattainable.
+ - You put your camera around your neck along with putting on your shoes, and there it is, an appendage of the body that shares your life with you. The camera is an instrument that teaches people how to see without a camera.
+ - That frame of mind that you need to make fine pictures of a very wonderful subject, you cannot do it by not being lost yourself.
+ - I realize more and more what it takes to be a really good photographer. You go in over your head, not just up to your neck.
+ - Bring the viewer to your side, include him in your thought. He is not a bystander. You have the power to increase his perceptions and conceptions.
+ - Photography is a lot like telling a large predatory cat what to do-while an audience of people you can’t see watches you.
+ - Photographers stop photographing a subject too soon before they have exhausted the possibilities.
+ - One should really use the camera as though tomorrow you’d be stricken blind. To live a visual life is an enormous undertaking, practically unattainable. I have only touched it, just touched it.
+ - Artists are controlled by the life that beats in them, like the ocean beats on the shore.
+ - Surefire things are deadening to the human spirit.
+ - I believe that what we call beautiful is generally a by-product.
+ - A documentary photograph is not a factual photograph.
+ - Ours is a time of the machine, and ours is a need to know that the machine can be put to creative human effort. If not, the machine can destroy us.
+ - We know by now how to photograph poor people. What we don’t know is how to photograph affluence – whose other face is poverty.
+ - I many times encountered courage, real courage. Undeniable courage. I’ve heard it said that that was the highest quality of the human animal. I encountered that many times, in unexpected places. And I have learned to recognize it when I see it.
+ - I’ve never not been sure that I was a photographer any more than you would not be sure you were yourself. I was a photographer, or wanting to be a photographer, or beginning – but some phase of photographer I’ve always been.
+ - No country has ever closely scrutinized itself visually.
+ - Being disabled gave me an immense advantage. People are kinder to you. It puts you on a different level than if you go into a situation whole and secure.
+ - I had to get my camera to register things that were more important than how poor they were – their pride, their strength, their spirit.
+
+31 quotes

@@ -1,0 +1,21 @@
+ - Stoicism is the wisdom of madness and cynicism the madness of wisdom.
+ - We may be through with the past, but the past is not through with us.
+ - Wisdom is meaningless until your own experience has given it meaning, and there is wisdom in the selection of wisdom.
+ - Words are one of our chief means of adjusting to all the situations of life. The better control we have over words, the more successful our adjustment is likely to be.
+ - Leadership is more likely to be assumed by the aggressive than by the able, and those who scramble to the top are more often motivated by their own inner torments.
+ - There is wisdom in the selection of wisdom...
+ - An honorable man will not be bullied by a hypothesis.
+ - The mere abhorrence of vice is not a virtue at all.
+ - Lying is an indispensable part of making life tolerable.
+ - That is the essence of a witch-hunt, that any questioning of the evidence or the procedures in itself constitutes proof of complicity.
+ - Speech is highly elliptical. It would scarcely be endurable otherwise. Ellipsis is indispensable to the writer or speaker who wants to be brief and pithy, but it can easily cause confusion and obscurity and must be used with skill.
+ - Authors are magpies, echoing each other’s words and seizing avidly on anything that glitters.
+ - Freedom of speech and freedom of action are meaningless without freedom to think. And there is no freedom of thought without doubt.
+ - Most civilized lives are measured out with coffee spoons.
+ - Many studies have established the fact that there is a high correlation between vocabulary and intelligence and that the ability to increase one’s vocabulary throughout life is a sure reflection of intellectual progress.
+ - The civilized man has a moral obligation to be skeptical, to demand the credentials of all statements that claim to be facts.
+ - For the most part our leaders are merely following out in front; they do but marshal us the way that we are going.
+ - There is no necessary connection between the desire to lead and the ability to lead, and even less the ability to lead somewhere that will be to the advantage of the led...
+ - We see what we want to see, and observation conforms to hypothesis.
+
+19 quotes

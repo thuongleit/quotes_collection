@@ -1,0 +1,392 @@
+ - We rise by lifting others.
+ - Courage without conscience is a wild beast.
+ - Commerce is the great civilizer. We exchange ideas when we exchange fabrics.
+ - In nature there are neither rewards nor punishments; there are consequences.
+ - This is my doctrine: Give every other human being every right you claim for yourself.
+ - The hands that help are better far than lips that pray.
+ - A good deed is the best prayer.
+ - Happiness is the only good. The time to be happy is now. The place to be happy is here. The way to be happy is to make others so.
+ - A believer is a bird in a cage, a freethinker is an eagle parting the clouds with tireless wing.
+ - He loves his country best who strives to make it best.
+ - As more people become more intelligent they care less for preachers and more for teachers.
+ - All religion is slavery.
+ - Blasphemy is what an old dogma screams at a new truth.
+ - The myth of hell represents all the meanness, all the revenge, all the selfishness, all the cruelty, all the hatred, all the infamy of which the heart of man is capable.
+ - I will not attack your doctrines nor your creeds if they accord liberty to me. If they hold thought to be dangerous – if they aver that doubt is a crime, then I attack them one and all, because they enslave the minds of men.
+ - Labor is the only prayer that Nature answers: It is the only prayer that deserves an answer – good, honest, noble work.
+ - Religion supports nobody. It has to be supported. It produces no wheat, no corn; it ploughs no land; it fells no forests. It is a perpetual mendicant. It lives on the labors of others, and then has the arrogance to pretend that it supports the giver.
+ - The way to be happy is to make others so.
+ - Meekness is the mask of malice.
+ - Infidels in all ages have battled for the rights of man, and have at all times been the fearless advocates of liberty and justice.
+ - Above all things, one should maintain his self-respect, and there is but one way to do that, and that is to live in accordance with your highest ideal.
+ - An infinite God ought to be able to protect Himself, without going in partnership with State Legislatures.
+ - Progress is born of doubt and inquiry. The Church never doubts, never inquires. To doubt is heresy, to inquire is to admit that you do not know – the Church does neither.
+ - All religious systems enslave the mind. Certain things are demanded-certain things must be believed-certain things must be done-and the man who becomes the subject or servant of this superstition must give up all idea of indivuality or hope of intellectual growth or progress.
+ - I would rather be a beggar and spend my money like a king, than be a king and spend money like a beggar.
+ - Character survives; goodness lives; love is immortal.
+ - The God of hell should be held in loathing, contempt and scorn. A god who threatens eternal pain should be hated, not loved; cursed, not worshipped. A heaven presided over by such a god must be below the meanest hell.
+ - In the night of death, hope sees a star, and listening love can hear the rustle of a wing.
+ - Blasphemy is an epithet bestowed by superstition upon common sense.
+ - Commerce is the great civilizer.
+ - Mental slavery is mental death, and every man who has given up his intellectual freedom is the living coffin of his dead soul.
+ - The greatest test of courage on earth is to bear defeat without losing heart.
+ - Too much doubt is better than too much credulity.
+ - With soap, baptism is a good thing.
+ - If a man wishes to have God recognized in the constitution of our country, let him read the history of the Inquisition, and let him remember that hundreds of millions of men, women, and children have been sacrificed to placate the wrath, or win the approbation of this god.
+ - The Church says the Earth is flat. But I know that it is round. For I have seen the shadow on the Moon. And I have more faith in a shadow than in the Church.
+ - The clergy know that I know that they know that they do not know.
+ - The more a man knows, the more willing he is to learn-the less a man knows, the more positive he is that he knows everything.
+ - Science built the Academy, superstition the Inquisition.
+ - Most people can bear adversity. But if you wish to know what a man really is, give him power.
+ - Colleges are places where pebbles are polished and diamonds are dimmed.
+ - Nothing discloses character like the use of power.
+ - Let us account for all we see by the facts we know. If there are things for which we cannot account, let us wait for light. To account for anything by supernatural agencies is, in fact to say that we do not know. Theology is not what we know about God, but what we do not know about Nature.
+ - To the wise man, to the wise nation, the mistakes of the past are the torches of the present.
+ - In the republic of mediocrity, genius is dangerous.
+ - Christianity did not come with tidings of great joy, but with a message of eternal grief. It came with the threat of everlasting torture on its lips. It meant war on earth and perdition hereafter.
+ - By nature all people are alike, but by education become different.
+ - I admit that reason is a small and feeble flame, a flickering torch by stumblers carried in the star-less night, – blown and flared by passion’s storm, – and yet, it is the only light. Extinguish that, and nought remains.
+ - Civilization has gotten further and further from the so-called ‘natural’ man, who uses all his faculties: perception, invention, improvisation.
+ - It is a thousand times better to have common sense without education than to have education without common sense.
+ - If I go to heaven I want to take my reason with me.
+ - But honest men do not pretend to know; they are candid and sincere; they love the truth; they admit their ignorance, and they say, We do not know.
+ - In all ages the people have honored those who dishonored them. They have worshiped their destroyers; they have canonized the most gigantic liars, and buried the great thieves in marble and gold. Under the loftiest monuments sleeps the dust of murder.
+ - In our era, the road to holiness necessarily passes through the world of action.
+ - Let us put theology out of religion. Theology has always sent the worst to heaven, the best to hell.
+ - Arguments cannot be answered by personal abuse; there is no logic in slander, and falsehood, in the long run, defeats itself.
+ - We can be as honest as we are ignorant. If we are, when asked what is beyond the horizon of the known, we must say that we do not know.
+ - The history of the world shows that when a mean thing was done, man did it; when a good thing was done, man did it.
+ - Intelligence is the only moral guide.
+ - Everyone should be taught the nobility of labor, the heroism and splendor of honest effort. As long as it is considered disgraceful to labor, or aristocratic not to labor, the world will be filled with idleness and crime, and with every possible moral deformity.
+ - It is hard for many people to give up the religion in which they were born; to admit that their fathers were utterly mistaken, and that the sacred records of their country are but collections of myths and fables.
+ - Every creed is a rock in running water: humanity sweeps by it. Every creed cries to the universe, “Halt!” A creed is the ignorant Past bulling the enlightened Present.
+ - Christianity has made more lunatics than it ever provided asylums for.
+ - Give me the storm and tempest of thought and action, rather than the dead calm of ignorance and faith! Banish me from Eden when you will; but first let me eat of the fruit of the tree of knowledge!
+ - Every man who expresses an honest thought is a soldier in the army of intellectual liberty.
+ - Hope is the only bee that makes honey without flowers.
+ - If a man would follow, today, the teachings of the Old Testament, he would be a criminal. If he would follow strictly the teachings of the New, he would be insane.
+ - This, in my judgment, is the highest philosophy: First, do not regret having lost yesterday; second, do not fear that you will lose tomorrow; third, enjoy today.
+ - Why should we postpone our joy to another world? Let us get all we can of the good between the cradle and the grave, all that we can of the truly dramatic. If, when death comes, that is the end, we have at least made the best of this life.
+ - And yet this same Deity says to me, resist not evil; pray for those that despitefully use you; love your enemies, but I will eternally damn mine. It seems to me that even gods should practice what they preach.
+ - Fear is religion, courage is science.
+ - The savage prays to a stone that he calls a god, while the Christian prays to a god he calls a spirit, and the prayers of both are equally useful.
+ - Anger is a wind which blows out the lamp of the mind.
+ - The superior man is the providence of the inferior. He is eyes for the blind, strength for the weak, and a shield for the defenseless. He stands erect by bending above the fallen. He rises by lifting others.
+ - The present is the necessary product of all the past, the necessary cause of all the future.
+ - Superstition is, always has been, and forever will be, the foe of progress, the enemy of education and the assassin of freedom.
+ - Insolence is not logic; epithets are the arguments of malice.
+ - As far as I am concerned I wish to be out on the high seas. I wish to take my chances with wind, and wave, and star. And I had rather go down in the glory and grandeur of the storm, than rot in any orthodox harbor.
+ - Every cradle asks us, Whence? and every coffin, Whither? The poor barbarian, weeping above his dead, can answer these questions as intelligently as the robed priest of the most authentic creed.
+ - Injustice upon earth renders the justice of of heaven impossible.
+ - The book, called the Bible, is filled with passages equally horrible, unjust and atrocious. This is the book to be read in schools in order to make our children loving, kind and gentle! This is the book they wish to be recognized in our Constitution as the source of all authority and justice!
+ - Hope is the only universal liar who never loses his reputation for veracity.
+ - Justice, poised and balanced in eternal calm, will shake from the golden scales in which are weighed the acts of men, the very dust of prejudice and caste: No race, no color, no previous condition, can change the rights of men.
+ - When the will defies fear, when duty throws the gauntlet down to fate, when honor scorns to compromise with death – that is heroism.
+ - There is no slavery but ignorance.
+ - Belief is not a matter of choice, but of conviction.
+ - Nothing is greater than to break the chains from the bodies of men – nothing nobler than to destroy the phantom of the soul.
+ - Every man is dishonest who lives upon the labor of others, no matter if he occupies a throne.
+ - A mortgage casts a shadow on the sunniest field.
+ - They knew that it was necessary to believe these things and to love God. They knew that there could be no salvation except by faith, and through the atoning blood of Jesus Christ.
+ - The Christians say, that among the ancient Jews, if you committed a crime you had to kill a sheep. Now they say ‘charge it.’ ‘Put it on the slate.’ The Savior will pay it. In this way, rascality is sold on credit, and the credit system in morals, as in business, breeds extravagance.
+ - God so loved the world that he made up his mind to damn a large majority of the human race.
+ - If the people were a little more ignorant, astrology would flourish – if a little more enlightened, religion would perish.
+ - If the property belongs to God he is able to pay the tax.
+ - There are treasures in books that all the money in the world cannot buy, but the poorest laborer can have for nothing.
+ - I am going to put the Bible out of business.
+ - This is my creed: Happiness is the only good; reason the only torch; justice the only worship, humanity the only religion, and love the only priest.
+ - Strange but true: those who have loved God most have loved men least.
+ - I will follow my logic, no matter where it goes, after it has consulted with my heart. If you ever come to a conclusion without calling the heart in, you will come to a bad conclusion.
+ - All religions are inconsistent with mental freedom. Shakespeare is my bible, Burns my hymn-book.
+ - The triumph of justice is the only peace.
+ - Every pulpit is a pillory, in which stands a hired culprit, defending the justice of his own imprisonment.
+ - In the presence of death I affirm and reaffirm the truth of all that I have said against the superstitions of the world. I would say that much on the subject with my last breath.
+ - There is something wrong in a government where they who do the most have the least. There is something wrong when honesty wears a rag, and rascality a robe; when the loving, the tender, east a crust, while the infamous sit at banquets.
+ - In all ages, hypocrites, called priests, have put crowns upon the heads of thieves, called kings.
+ - Great virtues may draw attention from defects, they cannot sanctify them. A pebble surrounded by diamonds remains a common stone, and a diamond surrounded by pebbles is still a gem.
+ - A fact never went into partnership with a miracle. Truth scorns the assistance of wonders. A fact will fit every other fact in the universe, and that is how you can tell whether it is or is not a fact. A lie will not fit anything except another lie.
+ - If we are immortal, it is a fact of nature, and that fact does not depend on bibles, on Christs, priest, or creeds.
+ - To hate man and worship God seems to be the sum of all the creeds.
+ - Fear paints pictures of ghosts and hangs them in the gallery of ignorance.
+ - On every hand there seems to be design to defeat design. If God created man – if he is the father of us all, why did he make the criminals, the insane, the deformed and idiotic? Should the mother, who clasps to her breast an idiot child, thank God?
+ - If there is one subject in this world worthy of being discussed, worthy of being understood, it is the question of intellectual liberty. Without that, we are simply painted clay.
+ - A false friend, an unjust judge, a braggart, hypocrite, and tyrant, sincere in hatred, jealous, vain and revengeful, false in promise, honest in curse, suspicious, ignorant, infamous and hideous-such is the God of the Pentateuch.
+ - I would rather live with the woman I love in a world full of trouble, than to live in heaven with nobody but men.
+ - Religion has not civilized man, man has civilized religion.
+ - If there be gods we cannot help them, but we can assist our fellow men. We cannot love the inconceivable, but we can love wife and child and friend.
+ - If we should put god in the Constitution there would be no room left for man.
+ - Diderot took the ground that, if orthodox religion be true Christ was guilty of suicide. Having the power to defend himself he should have used it.
+ - If I owe Smith ten dollars and God forgives me, that doesn’t pay Smith.
+ - The inspiration of the Bible depends upon the ignorance of the gentleman who reads it.
+ - If there is a God, there should be no slaves.
+ - There is no evidence that God ever interfered in the affairs of man. The hand of earth is stretched uselessly towards heaven. From the clouds there comes no help.
+ - To be like other people is to be unlike ourselves.
+ - Music expresses feeling and thought, without language; it was below and before speech, and it is above and beyond all words.
+ - If Jehovah cannot support his religion without going into partnership with a State Legislature, I think he ought to give it up.
+ - Life is a narrow vale between the cold and barren peaks of two eternities. We strive in vain to look beyond the heights. We cry aloud.
+ - A mule has neither pride of ancestry nor hope of posterity.
+ - One man in the right will finally get to be a majority.
+ - I would rather live and love where death is king than have eternal life where love is not.
+ - With their backs to the sunrise they worship the night.
+ - Justice should remove the bandage from her eyes long enough to distinguish between the vicious and the unfortunate.
+ - If the Bible and my brain are both the work of the same infinite God, whose fault is it that the book and my brain do not agree?
+ - I hate above all things a cross man. What right has he to murder the sunshine of a day? What right has he to assassinate the Joy of life? When you go home, you ought to go like a ray of light-so that it will, even in the night, burst out of the doors and windows and illuminate the darkness.
+ - All I have to say is, Love one another – that is the height of all philosophy. It is beyond all religions. It is the secret of joy – the fountain of Perpetual Youth – the only rainbow on life’s dark cloud.
+ - The man who does not do his own thinking is a slave, and is a traitor to himself and to his fellow-men.
+ - Like an armed warrior, like a plumed knight, James G. Blaine marched down the halls of the American Congress and threw his shining lance full and fair against the brazen foreheads of the defamers of his country, and the maligners of his honor.
+ - The ministers, who preached at these revivals, were in earnest. They were zealous and sincere. They were not philosophers. To them science was the name of a vague dread – a dangerous enemy. They did not know much, but they believed a great deal.
+ - My principal objections to orthodox religion are two: slavery here and hell hereafter.
+ - Nothing could add to the horror of hell, except the presence of its creator, God.
+ - Today the intelligence of the world denies the miraculous. Ignorance is the soil of the supernatural. The foundation of Christianity has crumbled, has disappeared, and the entire fabric must fall. The natural is true. The miraculous is false.
+ - In a world of cruelty, sympathy is a crime, and in a world of lies, truth is blasphemy.
+ - Every library is an arsenal.
+ - If I had my way I’d make health catching instead of disease.
+ - No man should kill himself as long as he can be of the least use to anybody, and if you cannot find some person that you are willing to do something for, find a good dog and take care of him. You have no idea how much better you will feel.
+ - Think of the egotism of a man who believes that an infinite being wants his praise!
+ - The falling leaf that tells of autumn’s death is, in a subtler sense, a prophecy of spring.
+ - One good schoolmaster is worth a thousand priests.
+ - It is a blessed thing that in every age some one has had the individuality enough and courage enough to stand by his own convictions.
+ - There is the same difference between talent and genius that there is between a stone mason and a sculptor.
+ - Love your friends and be just to your enemies.
+ - If we admit that some infinite being has controlled the destinies of persons and peoples, history becomes a most cruel and bloody farce.
+ - The undressed is vulgar; the nude is pure, and the well-dressed tainted.
+ - The most important thing in this world is liberty. More important than food or clothes – more important than gold or houses or lands – more important than art or science – more important than all religions, is the liberty of man.
+ - It may be that ministers really think that their prayers do good, and it may be that frogs imagine that their croaking brings spring.
+ - Take the word Liberty from human speech and all the other words become poor, withered, meaningless sounds – but with that word realized – with that word understood, the world becomes a paradise.
+ - The meanest hut with love in it is a palace fit for the gods, and a palace without love is a den only fit for wild beasts.
+ - Nothing but truth is immortal.
+ - Death is only perfect rest.
+ - Orthodoxy cannot afford to put out the fires of hell.
+ - Heresy is what the minority believe; it is the name given by the powerful to the doctrines of the weak.
+ - I have always noticed that the people who have the smallest souls make the most fuss about getting them saved.
+ - The destroyer of weeds, thistles, and thorns is a benefactor whether he soweth grain or not.
+ - The combined wisdom and genius of all mankind cannot possibly conceive of an argument against liberty of thought.
+ - In the presence of eternity, the mountains are as transient as the clouds.
+ - No one can control his own opinion or his own belief. My belief was forced upon me by my surroundings. I am the product of all circumstances that have in any way touched me.
+ - There can be but little liberty on earth while men worship a tyrant in heaven.
+ - Prayer is of no avail. The lightning falls on the just and the unjust in accordance with natural laws.
+ - Reason, observation, and experience; the holy trinity of science.
+ - It is told that the great Angelo, in decorating a church, painted some angels wearing sandals. A cardinal looking at the picture said to the artist: Whoever saw angels with sandals? Angelo answered with another question: Whoever saw an angel barefooted?
+ - Let every man teach his son, teach his daughter, that labor is honorable.
+ - If priests had not been fond of mutton, lambs never would have been sacrified to god. Nothing was ever carried to the temple that the priest could not use, and it always happened that god wanted what his agents liked.
+ - Shakespeare has done far more for the world than the Bible.
+ - If the world ever advances beyond what it is today, it must be led by men who express their real opinions.
+ - If nobody has too much, everybody will have enough.
+ - The only reason why we wish to exchange thoughts is that we are different. If we were all the same, we would die dumb. No thought would be expressed after we found that our thoughts were precisely alike. We differ-our thoughts are different. Therefore the commerse that we call conversation.
+ - Christianity has such a contemptible opinion of human nature that it does not believe a man can tell the truth unless frightened by a belief in god. No lower opinion of the human race has ever been expressed.
+ - For the most part we inherit our opinions. We are the heirs of habits and mental customs. Our beliefs, like the fashion of our garments, depend on where we were born. We are molded and fashioned by our surroundings.
+ - The notion that faith in Christ is to be rewarded by an eternity of bliss, while a dependence upon reason, observation, and experience merits everlasting pain, is too absurd for refutation, and can be believed only by that unhappy mixture of insanity and ignorance, called faith.
+ - Reason is the light, the sun of the brain. It is the compass of the mind, the ever-constant Northern Star, the mountain peak that lifts itself above all clouds.
+ - What light is to the eyes – what air is to the lungs – what love is to the heart, liberty is to the soul of man.
+ - Liberty cannot be sacrificed for the sake of temperance, for the sake of morality, or for the sake of anything. It is of more value than everything. Yet some people would destroy the sun to prevent the growth of weeds. Liberty sustains the same relation to all the virtues that the sun does to life.
+ - Intellectual liberty is the air of the soul, the sunshine of the mind, and without it, the world is a prison, the universe is a dungeon.
+ - The idea that there is a God who rewards and punishes, and who can reward, if he so wishes, the meanest and vilest of the human race, so that he will be eternally happy, and can punish the best of the human race, so that he will be eternally miserable, is subversive of all morality.
+ - The more false we destroy, the more room there will be for the true.
+ - It seems to me that if there is some infinite being who wants us to think alike he would have made us alike.
+ - Nothing could be more dangerous to the existence of this Republic than to introduce religion into politics.
+ - I admit that books were voted in and out, and that the Bible was finally formed in accordance with a vote.
+ - The old lady who said there must be a devil, else how could they make pictures that looked exactly like him, reasoned like a trained theologian – like a doctor of divinity.
+ - The Church has always been willing to swap off treasures in heaven for cash down.
+ - Age after age, the strong have trampled upon the weak; the crafty and heartless have ensnared and enslaved the simple and innocent, and nowhere, in all the annals of mankind, has any god succored the oppressed.
+ - There is only one way to be happy, and that is to make somebody else so, and you cannot be happy by going cross lots; you have got to go the regular turnpike road.
+ - The man who invented the telescope found out more about heaven than the closed eyes of prayer ever discovered.
+ - Language is not subtle enough, tender enough, to express all that we feel; and when language fails, the highest and deepest longings are translated into music. Music is the sunshine – the climate – of the soul, and it floods the heart with a perfect June.
+ - The glory of science is, that it is freeing the soul, breaking the mental manacles, getting the brain out of bondage, giving courage to thought, filling the world with mercy, justice, and joy.
+ - One laugh of a child will make the holiest day more sacred still.
+ - Either god should have written a book to fit my brain, or he should have made my brain to fit his book.
+ - Nothing could be more idiotic and absurd than the doctrine of the trinity.
+ - It is an old habit with theologians to beat the living with the bones of the dead.
+ - No man with a sense of humor ever founded a religion.
+ - I have had some trouble in regarding evil as having been intended by infinite Goodness.
+ - If, with all the time at my disposal, with all the wealth of the resources of this vast universe, to do with as I will, I could not produce a better scheme of life than now prevails, I would be ashamed of my efforts and consider my work a humiliating failure.
+ - I cannot see why we should expect an infinite God to do better in another world than he does in this.
+ - I know of no crime that has not been defended by the church, in one form or other. The church is not a pioneer; it accepts a new truth, last of all, and only when denial has become useless.
+ - If this religion is true, then there is only one Savior, only one narrow path to life. Christianity cannot live in peace with any other religion.
+ - This crime called blasphemy was invented by priests for the purpose of defending doctrines not able to take care of themselves.
+ - I have no confidence in any religion that can be demonstrated only to children.
+ - Joy is wealth and love is the legal tender of the soul.
+ - Jehovah was not a moral god. He had all the vices and he lacked all the virtues. He generally carried out all his threats, but he never faithfully kept a promise.
+ - I have little confidence in any enterprise or business or investment that promises dividends only after the death of the stockholders.
+ - I am anxious to give away information, for it is only by giving it away that you can keep it. When you have told it, you remember it. It is with information as it is with liberty, the only way to be dead sure of it is to give it to other people.
+ - We must remember that we have to make judges out of men, and that by being made judges their prejudices are not diminished and their intelligence is not increased.
+ - When one of your children tells a lie, be honest with him; tell him that you have told hundreds of them yourself. Tell him it is not the best way; that you have tried it. Tell him as the man did in Maine when his boy left home: “John, honesty is the best policy; I have tried both.”
+ - The good part of Christmas is not always Christian – it is generally Pagan; that is to say, human, natural.
+ - The man who finds a truth lights a torch.
+ - Secularism is a religion, a religion that is understood. It has no mysteries, no mumblings, no priests, no ceremonies, no falsehoods, no miracles, and no persecutions.
+ - An infinite personality is an infinite impossibility.
+ - God cannot send to eternal pain a man who has done something toward improving the condition of his fellow-man. If he can, I had rather go to hell than to heaven and keep company with such a god.
+ - Catholicism is contrary to human liberty. Catholicism bases salvation upon belief. Catholicism teaches man to trample his reason under foot. And for that reason it is wrong.
+ - Every flower about a house certifies to the refinement of somebody. Every vine climbing and blossoming tells of love and joy.
+ - I would rather that we all should go to eternal chaos, to black and starless night, than that just one soul should suffer eternal agony.
+ - The Declaration of Independence was a denial, and the first denial of a nation, of the infamous dogma that God confers the right upon one man to govern others.
+ - Good nature is the cheapest commodity in the world, and love is the only thing that will pay ten percent to both borrower and lender.
+ - Who can over estimate the progress of the world if all the money wasted in superstition could be used to enlighten, elevate and civilize mankind?
+ - Every sect is a certificate that God has not plainly revealed his will to man. To each reader the Bible conveys a different meaning.
+ - The credulity of the church is decreasing, and the most marvelous miracles are not either ‘explained,’ or allowed to take refuge behind the mistakes of the translators, or hide in the drapery of allegory.
+ - Do you not know that every religion in the world has declared every other religion a fraud? Yes, we all know it. That is the time all religions tell the truth – each of the other.
+ - If all the historic books of the Bible were blotted from the memory of mankind, nothing of value would be lost...
+ - Religion is one of the phases of thought through which the world is passing.
+ - An infinite God ought to be able to protect himself, without going in partnership with State Legislatures. Certainly he ought not so to act that laws become necessary to keep him from being laughed at. No one thinks of protecting Shakespeare from ridicule, by the threat of fine and imprisonment.
+ - There is in all artists a little of the vagabond.
+ - The hope of science is the perfection of the human race. The hope of theology is the salvation of a few, and the damnation of almost everybody.
+ - Now the struggle for life is so sharp, competition is so severe, that few men can succeed who carry a useless burden. The businessmen of our country are compelled to lead temperate lives, otherwise their credit is gone.
+ - The closer I’m bound in love to you, the closer I am to free.
+ - Liberty is the breath of progress.
+ - I am not so much for the freedom of religion as I am for the religion of freedom.
+ - Heresy is a cradle; orthodoxy a coffin.
+ - Custom meets us at the cradle and leaves us only at the tomb.
+ - I found that the clergy did not understand their own book.
+ - Twenty years after the death of Luther there were more Catholics than when he was born. And twenty years after the death of Voltaire there were millions less than when he was born.
+ - If you have ever clothed another with woe, as with a garment of pain, you will never be quite as happy as though you had not done that thing.
+ - There is no harmony between religion and science. When science was a child, religion sought to strangle it in the cradle. Now that science has attained its youth, and superstition is in its dotage, the trembling, palsied wreck says to the athlete: “Let us be friends.”
+ - If there be an infinite Being, he does not need our help – we need not waste our energies in his defense.
+ - Cruelty hardens and degrades, kindness reforms and ennobles.
+ - For thousands of years people have been trying to force other people to think their way. Did they succeed? No. Will they succeed? No. Why? Because brute force is not an argument.
+ - He raised his hands, not to strike, but in benediction. Lincoln was the grandest figure of the fiercest civil war. He is the gentlest memory of our world.
+ - The Old Testament filled this world with tyranny and injustice, and the New gives us a future filled with pain for nearly all of the sons of men. The Old Testament describes the hell of the past, and the New the hell of the future.
+ - As long as every question is answered by the word “God,” scientific inquiry is simply impossible.
+ - Whoever increases the sum of human joy, is a worshiper. He who adds to the sum of human misery, is a blasphemer.
+ - By physical liberty I mean the right to do anything which does not interfere with the happiness of another. By intellectual liberty I mean the right to think and the right to think wrong.
+ - I thank thee, Mother Nature, that thou hast put ingenuity enough in the brain of a child, when attacked by a brutal parent, to throw up a little breastwork in the shape of a lie.
+ - Memory is the miser of the mind; forgetfulness the spendthrift.
+ - Love is natural. Back of allceremony burns and will forever burn the sacred flame. There has been no time in the world’s history when that torch was extinguished. In all ages, in all climes, among all people, there has been true, pure, and unselfish love.
+ - Liberty is the condition of progress. Without Liberty, there remains only barbarism. Without Liberty, there can be no civilization.
+ - I read the other day an account of a meeting between John Knox and John Calvin. Imagine a dialogue between a pestilence and a famine!
+ - If we have the right to use our reason, we certainly have the right to act in accordance with it, and no god can have the right to punish us for such action.
+ - Martyrdom, as a rule, establishes the sincerity of the martyr, never the correctness of his thought. Things are true or false in themselves.
+ - Only those who live on the labor of the ignorant are the enemies of science. Real love and real religion are in no danger from science. The more we know the safer all good things are.
+ - All prayers die in the air which they uselessly agitate.
+ - They knew no better, but I do not propose to follow the example of a barbarian because he was honestly a barbarian.
+ - Nothing could add to the horror of hell, except the presence of its creator, God. While I have life, as long as I draw breath, I shall deny with all my strength, and hate with every drop of my blood, this infinite lie.
+ - Surely there is grandeur in knowing that in the realm of thought, at least, you are without a chain; that you have the right to explore all heights and depth; that there are no walls nor fences, nor prohibited places, nor sacred corners in all the vast expanse of thought.
+ - To me, the most obscene word in our language is celibacy.
+ - He who commends the brutalities of the past, sows the seeds of future crimes.
+ - The doctrine of eternal punishment is in perfect harmony with the savagery of the men who made the orthodox creeds. It is in harmony with torture, with flaying alive, and with burnings.
+ - Spirituality for the most part is a mask worn by idleness, arrogance and greed.
+ - In the search for truth – that everything in nature seems to hide – man needs the assistance of all his faculties. All the senses should be awake.
+ - Wait until the world is free before you write a creed. In this creed there will be but one word – Liberty.
+ - We are all children of the same mother, and the same fate awaits us all. We, too, have our religion, and it is this: Help for the living-Hope for the dead.
+ - The whip degrades; a severe father teaches his children to dissemble; their love is pretense, and their obedience a species of self-defense. Fear is the father of lies.
+ - The moment you introduce a despotism in the world of thought, you succeed in making hypocrites – and you get in such a position that you never know what your neighbor thinks.
+ - When struck on one cheek to turn the other, is really joining a conspiracy to secure the triumph of brutality. To agree not to resist evil is to become an accomplice of all injustice.
+ - The first step is for man to cease to be the slave of man. The second, is to cease to be the slave of the monsters of his own creation, the ghosts and phantoms of the air.
+ - Temptations are as thick as the leaves of the forest, and no one can be out of the reach of temptation unless he is dead. The great thing is to make people intelligent enough and strong enough, not to keep away from temptation, but to resist it.
+ - It has always seemed absurd to suppose that a god would choose for his companions, during all eternity, the dear souls whose highest and only ambition is to obey.
+ - Whoever saw an angel barefooted?
+ - When passions and appetites are stronger than the intellect, men are savages; when the intellect governs the passions, when the passions are servants, men are civilized. The people need education – facts – philosophy.
+ - He who treats his friends and enemies alike, has neither love nor justice.
+ - The church teaches us that we can make God happy by being miserable ourselves.
+ - I believe in the religion of reason – the gospel of this world; in the development of the mind, in the accumulation of intellectual wealth, to the end that man may free himself from superstitious fear, to the end that he may take advantage of the forces of nature to feed and clothe the world.
+ - Few rich men own their property; their property owns them.
+ - When a fact can be demonstrated, force is unnecessary; when it cannot be demonstrated, force is infamous.
+ - The man who accepts opinions because they have been entertained by distinguished people, is a mental snob.
+ - We have at last ascertained that miracles can be perfectly understood; that there is nothing mysterious about them; that they are simply transparent falsehoods.
+ - I do not believe in loving enemies; I have pretty hard work to love my friends. Neither do I believe in revenge. No man can afford to keep the viper of revenge in his heart. But I believe in justice, in self-defense.
+ - Theology is not what we know about God, but what we do not know about Nature.
+ - Liberty a word without which all other words are vain.
+ - An honest God is the noblest work of man.
+ - The first duty of man is to support himself – to see to it that he does not become a burden. His next duty is to help others if he has a surplus, and if he really believes they deserve to be helped.
+ - The church hates a thinker precisely for the same reason a robber dislikes a sheriff, or a thief despises the prosecuting witness.
+ - There will never be a generation of great men until there has been a generation of free women – of free mothers.
+ - Honest investigation is utterly impossible within the pale of any church, for the reason, that if you think the church is right you will not investigate, and if you think it wrong, the church will investigate you.
+ - If the Bible is true, it needs no inspiration, and – if not true, inspiration can do it no good.
+ - I do not believe in loving enemies; I have pretty hard work to love my friends.
+ - It is grander to think and investigate for yourself than to repeat a creed.
+ - Music was born of love. Had there never been any human affection, there never could have been uttered a strain of music.
+ - Our hope of immortality does not come from any religions, but nearly all religions come from that hope.
+ - Whoever imagines himself a favorite with God holds others in contempt.
+ - Any doctrine that will not bear investigation is not a fit tenant for the mind of an honest man.
+ - The record of a generous life runs like a vine around the memory of our dead, and every sweet unselfish act is now a perfumed flower.
+ - The ideas of right and wrong change with the experience of the race, and this change is wrought by the gradual ascertaining of consequences – of results.
+ - What has religion to do with facts? Nothing.
+ - Truth is the mother of joy. Truth civilizes, ennobles and purifies. The grandest ambition that can enter the soul is to know the truth.
+ - We need men with moral courage to speak and write their real thoughts, and to stand by their convictions, even to the very death.
+ - It is impossible for me to conceive of a character more utterly detestable than that of the Hebrew god.
+ - Only a few years ago there was no person too ignorant to successfully answer Charles Darwin; and the more ignorant he was the more cheerfully he undertook the task.
+ - My objection to Christianity is that it is infinitely cruel, infinitely selfish, and, I might add, infinitely absurd.
+ - It has always seemed to me that a being coming from another world, with a message of infinite importance to mankind, should at least have verified that message by his own signature. Is it not wonderful that not one word was written by Christ?
+ - It is hard to overstate the debt that we owe to men and women of genius.
+ - As long as a man lives he should study. Death alone has the right to dismiss the school.
+ - The intellectual advancement of man depends on how often he can exchange an old superstition for a new truth.
+ - They say: Belief is important. I say: No, actions are important. Judge by deed, not by creed.
+ - The priests of one religion never credit the miracles of another religion. Is this because priests instinctively know priests?
+ - It cannot be too often repeated, that truth scorns the assistance of miracle.
+ - The history of intellectual progress is written in the lives of infidels.
+ - Epithets are not arguments. Abuse does not persuade.
+ - To know that the Bible is the literature of a barbarous people, to know that it is uninspired, to be certain that the supernatural does not and cannot exist – all this is but the beginning of wisdom.
+ - I do not see how it is possible for an intelligent human being to conclude that the Song of Solomon is the work of God, and that the tragedy of Lear was the work of an uninspired man.
+ - Sacred are the lips from which has issued only truth.
+ - Lincoln was not a type. He stands alone – no ancestors, no fellows, no successors.
+ - Even in the business of corporations honesty is the best policy, and the companies that have acted in accordance with the highest standard, other things being equal, have reaped the richest harvest.
+ - Happiness is not a reward – it is a consequence. Suffering is not a punishment – it is a result.
+ - The true civilization is where every man gives to every other every right that he claims for himself.
+ - The more liberty you give away the more you will have.
+ - Commerce makes friends, religion makes enemies; the one enriches, and the other impoverishes; the one thrives best where the truth is told, the other where falsehoods are believed.
+ - Logic is not satisfied with assertion. It cares nothing for the opinions of the great; nothing for the prejudices of the many, and least of all for the superstitions of the dead.
+ - Liberty sustains the same relation to mind that space does to matter.
+ - Take from the church the miraculous, the supernatural, the incomprehensible, the unreasonable, the impossible, the unknowable, the absurd, and nothing but a vacuum remains.
+ - There is more real devotional feeling summoned from the temple of the mind by great music than by any sermon ever delivered.
+ - One thing I do know, and that is, that neither hope, nor fear, belief, nor denial, can change the fact. It is as it is, and it will be as it must be.
+ - Ignorance worships mystery; reason explains it; the one grovels, the other soars.
+ - Sometime, it will be found that people can be changed only by changing their surroundings. It is alleged that, at least ninety-five percent of the criminals transported from England to Australia and other penal colonies, became good and useful citizens in a new world.
+ - I would rather smoke one cigar than hear two sermons.
+ - Is there an intelligent man or woman now in the world who believes in the Garden of Eden story? If you find any man who believes it, strike his forehead and you will hear an echo. Something is for rent.
+ - It seems to me impossible for a civilized man to love or worship, or respect the God of the Old Testament. A really civilized man, a really civilized woman, must hold such a God in abhorrence and contempt.
+ - Fear is a dagger with which hypocrisy assassinates the soul.
+ - You cannot be so poor that you cannot help somebody.
+ - The churches have no confidence in each other. Why? Because they are acquainted with each other.
+ - The object of all education should be to increase the usefulness of man – usefulness to himself and others.
+ - Many people think they have religion when they are troubled with dyspepsia.
+ - Few nations have been so poor as to have but one god. Gods were made so easily, and the raw material cost so little, that generally the god market was fairly glutted and heaven crammed with these phantoms.
+ - Every church that has a standard higher than human welfare is dangerous.
+ - I am the inferior of any man whose rights I trample under foot. Men are not superior by reason of accidents of race or color. They are superior who have the best heart-the best brain.
+ - Laughing has always been considered by theologians as a crime.
+ - No God can put a man in hell in another world, who has made a little heaven in this. God cannot make a man miserable if that man has made somebody else happy.
+ - Darwin has done more to change human thought than all the priests who have existed.
+ - There are some truths, however, that we should never forget: Superstition has always been the relentless enemy of science; faith has been a hater of demonstration; hypocrisy has been sincere only in its dread of truth, and all religions are inconsistent with mental freedom.
+ - The greatest superstition now entertained by public men is that hypocrisy is the royal road to success.
+ - The rights of men and women should be equal and sacred-marriage should be a perfect partnership.
+ - To avoid pain we must know the conditions of health. For the accomplishment of this end we must rely upon investigation instead of faith, upon labor in place of prayer. Most misery is produced by ignorance. Passions sow the seeds of pain.
+ - Liberty cannot be sacrificed for the sake of anything.
+ - Do not trust those in whom the compulsion to punish is strong.
+ - Only the very ignorant are perfectly satisfied that they know. To the common man the great problems are easy. He has no trouble in accounting for the universe. He can tell you the origin and destiny of man and the why and wherefore of things.
+ - To give up your individuality is to annihilate yourself.
+ - Give any orthodox church the power, and to-day they would punish heresy with whip, and chain, and fire. As long as a church deems a certain belief essential to salvation, just so long it will kill and burn if it has the power.
+ - It is labor that has made the world a fit habitation for the human race.
+ - Not only are we here to protect the public from vicious criminals in the street but also to protect the public from harmful ideas.
+ - Do right, not to deny yourself but because you love yourself and because you love others.
+ - As a matter of fact, no one knows that God exists and no one knows that God does not exist. To my mind there is no evidence that God exists – that this world is governed by a being of infinite goodness, wisdom and power, but I do not pretend to know.
+ - Argument cannot be answered with insults. Kindness is strength; anger blows out the lamp of the mind.
+ - I believe in the gospel of cheerfulness, the gospel of Good Nature; the gospel of Good Health. Let us pay some attention to our bodies. Take care of our bodies, and our souls will take care of themselves.
+ - As long as woman regards the Bible as the charter of her rights, she will be the slave of man. The bible was not written by a woman. Within its leaves there is nothing but humiliation and shame for her.
+ - If we are immortal it is a fact in nature, and we are not indebted to priests for it, nor to bibles for it, and it cannot be destroyed by unbelief.
+ - Eternal punishment must be eternal cruelty, and I do not see how any man, unless he has the brain of an idiot, or the heart of a wild beast, can believe in eternal punishment.
+ - Let us agree not to step on each other’s feet.
+ - Is not the history of real civilization the slow and gradual emancipation of the intellect, of the judgment, from the mastery of passion? Is not that man civilized whose reason sits the crowned monarch of his brain – whose passions are his servants?
+ - The few have said, Think! The many have said, Believe! The first doubt was the womb and cradle of progress, and from the first doubt, man has continued to advance.
+ - Ignorance is the soil in which belief in miracles grows.
+ - We do not need the forgiveness of God, but of each other and of ourselves.
+ - It is with men as with other things. The mullein needs only a year, but the oak a century, and the greatest men are those who have continued to grow as long as they have lived.
+ - At thirty most men have prejudices rather than opinions-that is to say, rather than judgments-and few men have lived to be sixty without materially modifying the opinions they held at thirty.
+ - Good nature is the cheapest commodity in the world.
+ - Every child should be taught that useful work is worship and that intelligent labor is the highest form of prayer.
+ - And why does this same God tell me how to raise my children when he had to drown his?
+ - The only evidence, so far as I know, about another life is, first, that we have no evidence; and secondly, that we are rather sorry that we have not, and wish we had.
+ - I would have all the professors in colleges, all the teachers in schools of every kind, including those in Sunday schools, agree that they would teach only what they know, that they would not palm off guesses as demonstrated truths.
+ - Religion can never reform mankind because religion is slavery.
+ - I have not the slightest confidence in ‘spiritual manifestations.’
+ - All the professors in all the religious colleges in this country rolled into one, would not equal Charles Darwin.
+ - The careful reader of the New Testament will find three Christs described: – One who wished to preserve Judaism – one who wished to reform it, and one who built a system of his own.
+ - No one infers a god from the simple, from the known, from what is understood, but from the complex, from the unknown, and incomprehensible. Our ignorance is God; what we know is science.
+ - A man is not moral because he is obedient through fear or ignorance. Morality lives in the realm of perceived obligation...
+ - I belong to the Great Church which holds the world within its starlit aisles; that claims the great and good of every race and clime; that finds with joy the grain of gold in every creed, and floods with light and love the germs of good in every soul.
+ - It is incredible that only idiots are absolutely sure of salvation. It is incredible that the more brain you have the less your chance is. There can be no danger in honest thought, and if the world ever advances beyond what it is to-day, it must be led by men who express their real opinions.
+ - Creationists use facts the same way a drunk uses a lightpost: for support instead of illumination.
+ - The emblem of equal rights. It means free hands, free lips, self- government, and the sovereignty of the individual.
+ - As a man develops, he places a greater value upon his own rights. Liberty becomes a grander and diviner thing. As he values his own rights he begins to value the rights of others. And when all men give to all others all the rights they claim for themselves, this world will be civilized.
+ - If the reason I give is a good one, you will act upon it. If it is a bad one I cannot make it better by piling epithet upon epithet. There is no logic in abuse; there is no argument in an epithet.
+ - We are not accountable for the sins of “Adam”.
+ - I would not for my life destroy one star of human hope, but I want it so that when a poor woman rocks the cradle and sings a lullaby to the dimpled darling, she will not be compelled to believe that ninety-nine chances in a hundred she is raising kindling wood for hell.
+ - Hope is the consolation of the world.
+
+390 quotes

@@ -1,0 +1,36 @@
+ - Even a brick wants to be something.
+ - A room is not a room without natural light.
+ - You can never learn anything that is not a part of yourself.
+ - We are born of light. The seasons are felt through light. We only know the world as it is evoked by light.
+ - Architecture is the reaching out for the truth.
+ - I sense a Threshold: Light to Silence, Silence to Light – an ambiance of inspiration, in which the desire to be, to express, crosses with the possible Light to Silence, Silence to Light crosses in the sanctuary of art.
+ - Even a room which must be dark needs at least a crack of light to know how dark it is.
+ - How precious a book is in light of the offering, in the light of the one who has the privilege of this offering. The library tells you of this offering.
+ - I sense Light as the giver of all presences, and material as spent Light. What is made by Light casts a shadow, and the shadow belongs to Light.
+ - You say to a brick, ‘What do you want, brick?’ And brick says to you, ‘I like an arch.’ And you say to brick, ‘Look, I want one, too, but arches are expensive and I can use a concrete lintel.’ And then you say: ‘What do you think of that, brick?’ Brick says: ‘I like an arch.’
+ - Thoughts exchanged by one and another are not the same in one room as in another.
+ - The sun never knew how great it was until it hit the side of a building.
+ - The nature of space reflects what it wants to be.
+ - The creation of art is not the fulfillment of a need but the creation of a need. The world never needed Beethoven’s Fifth Symphony until he created it. Now we could not live without it.
+ - Consider the momentous event in architecture when the wall parted and the column became.
+ - The room is the beginning of architecture.
+ - Design is not making beauty, beauty emerges from selection, affinities, integration, love.
+ - I try to create homes, not houses.
+ - The first thing that an architect must do is to sense that every building you build is a world of its own, and that this world of its own serves an institution.
+ - The crocodile must want to be a crocodile for reasons of the crocodile.
+ - All material in nature, the mountains and the streams and the air and we, are made of Light which has been spent, and this crumpled mass called material casts a shadow, and the shadow belongs to Light.
+ - In a small room one does not say what one would in a large room.
+ - The Sun does not realise how wonderful it is until after a room is made.
+ - Architects in planning rooms today have forgotten their faith in natural light. Depending on the touch of a finger to a switch, they are satisfied with static light and forget the endlessly changing qualities of natural light, in which a room is a different room every second of the day.
+ - I just want to make my last demand in reverence to the work of what has been done by architects of the past. what was, has always been. what is, has always been. and what will be, has always been. such is the nature of beginning.
+ - A great building must begin with the unmeasurable, must go through measurable means when it is being designed and in the end must be unmeasurable.
+ - How accidental our existences are, really, and how full of influence by circumstance.
+ - The person of old had the same brilliance of mind that we assume we have now. But that which made a thing become manifest for the first time is our great moment of creative happening.
+ - A city is the place of availabilities. It is the place where a small boy, as he walks through it, may see something that will tell him what he wants to do his whole life.
+ - Just think, that man can claim a slice of the sun.
+ - Every time a student walks past a really urgent, expressive piece of architecture that belongs to his college, it can help reassure him that he does have that mind, does have that soul.
+ - I Use The Square To Begin My Solutions Because The Square Is A Non-choice, Really. In The Course Of Development, I Search For The Forces That Would Disprove The Square...
+ - Architecture struck me between the eye and the eyeball.
+ - If people want to see Beaux-Arts, it’s fine with me. I’m interested in good architecture as anybody else.
+
+34 quotes

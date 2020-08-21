@@ -1,0 +1,23 @@
+ - I play with a fear of letting my team down. That’s what motivates me.
+ - To say I have played through four World Cups, two Lions tours, 91 international games and a ridiculous number of injuries and other setbacks gives me an incredibly special feeling of fulfilment. I know myself well enough to know that I will never truly be satisfied.
+ - I only get the points because I have team-mates who do the work and put me in the position to get them.
+ - I’m pretty aware that the pursuit of perfection is, inherently, a flawed concept.
+ - For me now, I will continue to focus ever harder on my goal of being the very best I can be with Toulon Rugby Club and continue to embrace and enjoy wherever that path takes me.
+ - The problem with me is I always think I should’ve done better. I felt that after the World Cup final and through my whole career.
+ - Playing the game, representing the team, giving my all and never letting go has meant everything to me.
+ - I like to think I play rugby as it should be played – there are no yellow or red cards in my collection – but I cannot say I’m an angel.
+ - What I am proud of is I have searched for the best of me and I have been a team man without fail.
+ - Due to a life of training and playing, I seem to spend half my time in the shower.
+ - I’m very happy to be back playing rugby for England again – there were times when I questioned if this would happen.
+ - I do, have done and always will believe that I am very capable of performing and thriving at any level of the sport.
+ - I would like to wish the England squad every success. I would also very much like to extend those wishes to Martin Johnson, Brian Smith, Mike Ford, John Wells, Graham Rowntree and the rest of the England 2011 World Cup management team who have been fantastic and deserve people to know that.
+ - My own position is so far on the obsessive side of preparation and professionalism that I fear my point of view is not going to be shared by anyone.
+ - Those Aussie rugby fans are a bunch of sore losers. I hate ’em all.
+ - I’m not necessarily proud of the World Cups and the grand slams won or lost, the amount of points I scored, this record or that.
+ - Right through to the end of the last World Cup game, I still couldnt bear the thought of not being perfect or letting people down.
+ - I want to be more than just some guy who played in a World Cup final.
+ - I wouldn’t go in a fast food outlet even to use the toilet.
+ - I don’t like kicking the ball a lot.
+ - I refuse to go into a fast-food outlet – to use the toilet even – in case anyone got the wrong idea and thought I was sneaking in a quick burger.
+
+21 quotes

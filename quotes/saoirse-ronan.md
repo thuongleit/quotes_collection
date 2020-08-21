@@ -1,0 +1,66 @@
+ - The written word can be powerful and beautiful – but films transport us to another place in a way that even the most evocative words never can.
+ - We grew up with a camera in front of us.
+ - I love cleaning. I love mopping the floor. If you need your floor mopped, I’m there.
+ - I don’t feel isolated on a film set. In a way you do because you don’t really mix with the outside world; you’re just sort of working non-stop for a few months, but you’ve got so many people around you.
+ - Learning is the most important thing, no mater how you do it, or where you do it, or who you do it with.
+ - For me, clothes are about individuality. When I wear things that are different and it works, it makes me feel good.
+ - The 1916 uprising was kind of the most important rebellion in Ireland’s fight for independence that had been going on for 700 years. So it’s a very important moment in history for us.
+ - Once you move away from home, it’s never quite the same again. You expect everything to be just as you left it, and it never is. It’s almost the first step into adulthood, realizing you’ve got to make your own way.
+ - I certainly don’t feel like I am desperate to run away from a film set. I love the hustle and bustle. Everything is sort of mad right before a take, and then it just settles, and you’ve got these two minutes of a bit of magic. I just love that in film.
+ - I don’t look at rushes, or I don’t go to the dailies. I don’t even really look at playback unless it’s an action scene or a move that I need to do better, something like that.
+ - I listen to everything. I love The Chemical Brothers.
+ - When I can’t get the character out of my head, and I’m in my bedroom and I start to actually act out the scenes that I’ve read in a script, I think okay, I really want to do this.
+ - I wouldn’t go down the route of having an assistant. I don’t want to be like that. I want to be normal.
+ - If you don’t have eyebrows, you don’t really have a face.
+ - I don’t know what kind of swag I’d get if I were extra Irish. It would just be, like, extra potatoes. Or like a free pint of Guinness.
+ - I grew up my whole life in Ireland and obviously sound very, very Irish. I feel like it’s just one of those things that just charms the socks off of people.
+ - I’ve basically grown up with Harry Potter, as so many kids my age have. It’s kind of a part of my life.
+ - I think acting is something that is within you. It’s a very natural thing for me. It comes from myself, really.
+ - All teenagers want to rebel a little and break away. But I think you are always going to want to go back to your parents for that safety they provide.
+ - There are a lot of people who say, ‘Yeah yeah, I’m a feminist,’ and they’re not, actually. I wouldn’t want to throw that word around, because it’s a very strong thing.
+ - When I was younger and in primary school, I’d do maybe a film a year, and I had to adapt to being away from everyone for a couple of months.
+ - I’m all right, not as good as my mom is. Maybe because I don’t have kids.
+ - I saw ‘Clueless’ probably when I was about 8 or 9 years old. And, I had certain films that I would fall asleep so it was ‘Clueless’ for quite a long time, and I used to just watch it every single night and knew every single line, every single quote.
+ - What we do every St. Patty’s day, which is wear green and drink a lot of Guinness. And maybe cry a little bit and laugh, and everyone will have to sing a song. That’s how every funeral, christening, and wedding ends up in Ireland. Everyone ends up having to sing a song by the end of it.
+ - Acting is one of these things that I can’t really describe – it’s just like, why do you love your mum and dad? You know, you just do.
+ - I like films where there’s a relationship between two women. I always think that’s lovely to watch on the screen.
+ - There’s no one out there like Quentin Tarantino. His films have a signature look, and they never just stick to the same kind of story.
+ - I don’t mind doing the whole red carpet thing when I have to when it comes to publicizing a movie. But besides that, I don’t like those kinds of things at all. Celebrity status is not really something that appeals to me.
+ - Vampire teeth really aren’t very efficient, are they? It looks very messy. I’m not sure it’s the best way to get a pint off anyone.
+ - When I was younger, I was very athletic and I always loved sports and physical things.
+ - The majority of teenagers don’t even make eye contact with people, even people of the same age.
+ - Sometimes the director will want you to write about the character, sometimes he’ll want you to live in the location that the character is from or something like that, but I don’t usually make a lot of notes or anything like that.
+ - I remember being on Atonement and it felt very right to be there. There was so much excitement every day. I remember very vividly how it felt to be a child on a film set, and that is actually really important to hold on to for as long as you continue to make films.
+ - It’s too distracting to read about yourself. You want to be perfect and you want everyone to love you, and that’s never going to happen.
+ - I play basketball, I surf and swim and go to the cinema and listen to music and read. I like shopping.
+ - I was born in New York, so I’d love to study at New York University.
+ - Everyone thinks I’m ethereal. But I’m not like that, you know. I’m not ethereal. Well, I might have a little bit of that quality to me, that ‘old soul’ thing, but I’m not ethereal.
+ - I know most of the photographers in Ireland. And if I don’t want my photograph taken, they will leave me alone.
+ - I appreciate the written word and spoken word more, but Atonement sort of established so much of me. It was a character that didn’t really speak, and I found that a lot of the roles I was gravitating toward after that were kind of nonverbal.
+ - That’s what acting is. You’re pretending to be someone else.
+ - I think I do believe in the afterlife; I have heard stories from people who I can completely trust that have seen ghosts.
+ - I’m a huge Wes Anderson fan. I literally love every single film. He hasn’t made a bad film; I’ve seen every single one. They’ve all been brilliant, from ‘Bottle Rocket’ up to ‘Moonrise Kingdom,’ they’ve all been wonderful.
+ - I’ve never really felt like I was a child actor. Just an actor who happened to be quite young.
+ - There’s so many modern films where the fans take one side or the other. I’m hoping this isn’t going to be like that; I’m hoping it isn’t that kind of film at all. What I would love for the audience to take from it is to understand why she was so stuck in the middle and confused.
+ - I like my characters to be ones I think about long after I’ve finished reading the script.
+ - I’ve always wanted to act and I grew up a little on film sets when my dad was working as an actor.
+ - I’ve been dealing with so much press for Brooklyn, and now I am rehearsing for a play, and it is hard.
+ - I’m very much for strengthening our industry at home. It’s great now there’s a lot of work happening but I think with Irish film in particular, the views were starting to get a little stereotypical and we were pigeonholing ourselves a little bit. We needed to get out of that.
+ - I think when you get on with the actors that you’re working with, even if you do have really intimate scenes, as long as you get on well, and have a bit of a laugh while doing it, then it’s fine.
+ - I don’t think you could get anything worse than losing a child. I think if my child died, I would prefer it if I were dead.
+ - I like to get far away from myself when I’m acting.
+ - If I’m in the middle of a take and I start to think about what I’m doing, I just mess up and I have to stop and so I find that for me, you really need to trust your instinct.
+ - Lindsay Lohan was the ‘It’ girl from, like, 14. That’s a lot of pressure.
+ - I try as best as I can to have a normal life. People recognise you, of course, and that’s very strange. But I sort of leave my working life behind when I go home. That’s my other world.
+ - I’m Irish, so I’m messing all the time. Which means, I’m having a laugh. I’m always making jokes.
+ - When I am on set or rehearsing for the play, the only thing I can talk about is the work I’m doing. In that way, I home in on what I am doing at the time. So maybe I am a terrible multitasker.
+ - I like books that are exciting and that make you think about things, as well. I like things that have a twist – like ‘Atonement,’ which I haven’t read obviously, as I’m a bit young.
+ - I like books that are exciting and that make you think about things as well.
+ - My whole life I try to make into a comedy, so it would be nice to see that onscreen.
+ - I think ‘Twilight’ was such a phenomenon that it will be awhile before anything like that will happen again. Cause it really influenced pop culture, and the stars of it – well, the people who became stars out of it – their lives were completely changed.
+ - I love a lot of comedy actors and actresses like Kristen Wiig and Tina Fey and all those women who are really brilliant and funny.
+ - One of the things that would steer me away from a franchise is that I’m playing the same character all the time and I wouldn’t want to be known for that.
+ - I really want to go to college.
+ - I’ve found that I’d be the first one to cut lines.
+
+64 quotes

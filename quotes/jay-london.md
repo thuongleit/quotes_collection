@@ -1,0 +1,26 @@
+ - My girlfriend bought me a down jacket, she said it fit my personality.
+ - I wanted to take up music, so my father bought me a blunt instrument. He told me to knock myself out.
+ - My whole family is lactose intolerant and when we take pictures we can’t say cheese.
+ - I went to the doctor and he said I had acute appendicitis, and I said compared to who?
+ - A window of opportunity for me usually involves a rock.
+ - I was going to buy a book on hair loss, but the pages kept falling out.
+ - I’m on performance enhancing drugs, so I may cause drowsiness.
+ - I went to the store and bought lady fingers, when I got home I noticed one of the fingers was missing so I went back to the store and the manager was nice enough to give me the finger.
+ - They asked me what I thought about euthanasia. I said I’m more concerned about the adults.
+ - I told my therapist I was having nightmares about nuclear explosions. He said don’t worry it’s not the end of the world.
+ - My father would take me to the playground, and put me on mood swings.
+ - I was lonely driving here tonight so I hugged the road.
+ - I’m convinced my cockroaches have military training, I set off a roach bomb – they diffused it.
+ - Did you know that today will never be tomorrow.
+ - I don’t need to worry about identity theft because no one wants to be me.
+ - I went to a urologist – he told me I could go at any time.
+ - It all started when my dog began getting free roll over minutes.
+ - I went to an audition the other day, they were casting 13 people to be clouds, 14 people showed up, it was overcast.
+ - His puppyhood was a period of foolish rebellion. He was always worsted, but he fought back because it was his nature to fight back. And he was unconquerable.
+ - A guy gave me a job at an information booth – no questions asked.
+ - I model irregular clothing.
+ - I went out with a promiscuous impressionist. She did everybody.
+ - I recorded my hair this morning, tonight I’m watching the highlights.
+ - I once dated a weather girl, we talked up a storm.
+
+24 quotes

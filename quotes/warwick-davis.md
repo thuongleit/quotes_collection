@@ -1,0 +1,29 @@
+ - The world worries about disability more than disabled people do.
+ - My wife is short, and my two kids are also small.
+ - My parents are both average size. For them to have a child who was very, very different and very, very small must have been incredibly hard.
+ - In a costume, you need very exaggerated body language – as you say, sort of mime-type skills.
+ - I find vacuuming very therapeutic, but I hate ironing. I usually have no shirt on while ironing, because I’m ironing it, and I end up burning my chest.
+ - There’s nothing better than going to the movies and going into another world, and forgetting about everything that’s happening outside.
+ - It’s interesting to see what people are saying about me. I like keep up with the latest rumors! A while back there was a rumor that I was going to do a film with Demi Moore about the takeover of Commodore computers!
+ - I don’t crave fame. I mean, it’s nice to be recognized. It is useful.
+ - Very obsessed fans do ask actors to attend their weddings.
+ - I wouldn’t change a thing about my family.
+ - Nothing’s better than coming away from a film when people don’t even recognize you, because you’ve undergone a total transformation.
+ - You’ve got to love acting and that’s true for me. I love the idea of getting on stage and getting in front of a camera.
+ - My parents armed me with an amazing sense of humor, and it’s what you need when, well, it’s what anyone needs in this world.
+ - I do a lot of public speaking and presentations and I’ll always start with a self-deprecating joke to make everybody feel comfortable with my size because there can be hang-ups and anxieties.
+ - I’m an actor, and when I close the door at home I’m kind of off-duty.
+ - My life is quite physical anyway. When you are three-foot-six you kind of have to climb stuff now and again, and you find yourself in quite precarious situations just to manage in what is quite a big world.
+ - I would like to play an average guy. I would have loved to play opposite John Candy in a movie. That was my dream for a long time, and sadly, now I can never realize that. But I’d like to do comedy.
+ - So, I think I’d be grateful for the next job. I always am. And I always consider everything I do to be the last thing I do.
+ - My dad instilled in me a great sense of humor. I wasn’t bullied at school because my outward attitude was confident, and that helps.
+ - I run Willow Management, which is the biggest agency for other short actors. We look after performers who are either under five feet and over seven feet tall.
+ - When you do films that have multiple sequels, you develop a character for a film.
+ - I’ve found that it’s actually more of a disability to be tall than short. I have no problem fitting into plane toilets etc, and the adaptations made for wheelchair users – such as the lowering of bank machines – work for me as well.
+ - As you get older, you can suffer from painful hips, and our joints wear a lot quicker than for people of average height.
+ - I don’t want to be just somebody short who happens to act. I hope my legacy will be Warwick Davis, Actor.
+ - People who are short, they’re often portrayed as the victim.
+ - And I feel that filmmakers ought to be careful with the use of 3D. Because if you look back over the decades, you see that 3D has come and gone for I don’t know how many years now.
+ - As a film actor, you don’t often get that opportunity to meet with your audience and take your applause on stage.
+
+27 quotes

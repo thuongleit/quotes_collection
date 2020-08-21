@@ -1,0 +1,96 @@
+ - Where there is power, there is resistance.
+ - People know what they do; frequently they know why they do what they do; but what they don’t know is what what they do does.
+ - Visibility is a trap.
+ - I am hopelessly in love with a memory. An echo from another time, another place.
+ - Schools serve the same social functions as prisons and mental institutions- to define, classify, control, and regulate people.
+ - The soul is the prison of the body.
+ - I don’t feel that it is necessary to know exactly what I am. The main interest in life and work is to become someone else that you were not in the beginning.
+ - Maybe the target nowadays is not to discover what we are but to refuse what we are.
+ - What I seek is a permanent opening of possibilities.
+ - I’m no prophet. My job is making windows where there were once walls.
+ - Knowledge is not for knowing: knowledge is for cutting.
+ - The judges of normality are present everywhere. We are in the society of the teacher-judge, the doctor-judge, the educator-judge, the social worker -judge.
+ - There is no power relation without the correlative constitution of a field of knowledge, nor any knowledge that does not presuppose and constitute at the same time power relations.
+ - The best moment of love is when the lover leaves in the taxi.
+ - It is meaningless to speak in the name of – or against – Reason, Truth, or Knowledge.
+ - We are freer than we think.
+ - Truth is not by nature free-nor error servile-its production is thoroughly imbued with relations of power.
+ - Do not ask who I am and do not ask me to remain the same. More than one person, doubtless like me, writes in order to have no face.
+ - Is it surprising that prisons resemble factories, schools, barracks, hospitals, which all resemble prisons?
+ - As the archaeology of our thought easily shows, man is an invention of recent date. And one perhaps nearing its end.
+ - Power is not an institution, and not a structure; neither is it a certain strength we are endowed with; it is the name that one attributes to a complex strategical situation in a particular society.
+ - The gaze that sees is the gaze that dominates.
+ - Our society is not one of spectacle but of surveillance.
+ - The language of psychiatry is a monologue of reason about madness.
+ - There is no binary division to be made between what one says and what one does not say; we must try to determine the different ways of not saying things.
+ - Madness is the absolute break with the work of art; it forms the constitutive moment of abolition, which dissolves in time the truth of the work of art.
+ - The imaginary is not formed in opposition to reality as its denial or compensation; it grows among signs, from book to book, in the interstice of repetitions and commentaries; it is born and takes shape in the interval between books. It is the phenomena of the library.
+ - Truth is undoubtedly the sort of error that cannot be refuted because it was hardened into an unalterable form in the long baking process of history.
+ - Madness, in its wild, untamable words, proclaims its own meaning; in its chimeras, it utters its secret truth.
+ - I don’t feel that it is necessary to know exactly what I am.
+ - Do not ask who I am and do not ask me to remain the same: leave it to our bureaucrats and our police to see that our papers are in order. At least spare us their morality when we write.
+ - When man deploys the arbitrary nature of his madness, he confronts the dark necessity of the world; the animal that haunts his nightmares and his nights of privation is his own nature, which will lay bare hell’s pitiless truth.
+ - Life itself was only futility, vain words, a squabble of cap and bells.
+ - In civilizations without boats, dreams dry up, espionage takes the place of adventure and the police take the place of pirates.
+ - My point is not that everything is bad, but that everything is dangerous, which is not exactly the same as bad.
+ - But the guilty person is only one of the targets of punishment. For punishment is directed above all at others, at all the potentially guilty.
+ - Politics and the economy are not things that exist, or illusions, or ideologies. They are things that do not exist and yet which are inscribed in reality and fall under a regime of truth dividing the true and the false.
+ - The most defenseless tenderness and the bloodiest of powers have a similar need of confession. Western man has become a confessing animal.
+ - Freedom of conscience entails more dangers than authority and despotism.
+ - Power is tolerable only on condition that it mask a substantial part of itself. Its success is proportional to its ability to hide its own mechanisms.
+ - It might be said that all knowledge is linked to the essential forms of cruelty.
+ - You may have killed God beneath the weight of all that you have said; but don’t imagine that, with all that you are saying, you will make a man that will live longer than he.
+ - Believe what is productive is not sedentary but nomadic.
+ - At every moment, step by step, one must confront what one is thinking and saying with what one is doing, what one is.
+ - From the idea that the self is not given to us, I think there is only one practical consequence: we have to create ourselves as a work of art.
+ - In its function, the power to punish is not essentially different from that of curing or educating.
+ - I don’t write a book so that it will be the final word; I write a book so that other books are possible, not necessarily written by me.
+ - The lyricism of marginality may find inspiration in the image of the outlaw, the great social nomad, who prowls on the confines of a docile, frightened order.
+ - What desire can be contrary to nature since it was given to man by nature itself?
+ - Since the Fall, man had accepted labor as a penance and for its power to work redemption. It was not a law of nature which forced man to work, but the effect of a curse.
+ - There is not one but many silences, and they are an integral part of the strategies that underlie and permeate discourses.
+ - If I won a few billion in the lottery, I would create an institute where people who would like to die would come spend a weekend, a week, or a month in pleasure, under drugs perhaps, in order to disappear afterward, as if erased.
+ - Prison continues, on those who are entrusted to it, a work begun elsewhere, which the whole of society pursues on each individual through innumerable mechanisms of discipline.
+ - To punish is the most difficult thing there is. A society such as ours needs to question every aspect of punishment as it is practiced everywhere: in the army, the schools, the factories.
+ - Do not think that one has to be sad in order to be militant, even though the thing one is fighting is abominable.
+ - Unreason is in the same relation to reason as dazzlement to the brightness of daylight itself.
+ - The court is the bureaucracy of the law. If you bureaucratise popular justice then you give it the form of a court.
+ - I’m not making a problem out of a personal question; I make of a personal question an absence of a problem.
+ - Search for what is good and strong and beautiful in your society and elaborate from there. Push outward. Always create from what you already have. Then you will know what to do.
+ - It is over life, throughout its unfolding, that power establishes its dominion; death is power’s limit, the moment that escapes it; death becomes the most secret aspect of existence, the most private.
+ - The soul is the effect and instrument of a political anatomy; the soul is the prison of the body.
+ - Modern society is perverse, not in spite of its puritanism or as if from a backlash provoked by its hypocrisy; it is in actual fact, and directly, perverse.
+ - If repression has indeed been the fundamental link between power, knowledge, and sexuality since the classical age, it stands to reason that we will not be able to free ourselves from it except at a considerable cost.
+ - What strikes me is the fact that in our society, art has become something which is only related to objects, and not to individuals, or to life.
+ - Why should the lamp or the house be an art object but not our life?
+ - In writing, the point is not to manifest or exalt the act of writing, nor is it to pin a subject within language; it is, rather, a question of creating a space into which the writing subject constantly disappears.
+ - Madness designates the equinox between the vanity of night’s hallucinations and the non-being of light’s judgments.
+ - I’m very proud that some people think that I’m a danger for the intellectual health of students. When people start thinking of health in intellectual activities, I think there is something wrong. In their opinion I am a dangerous man, since I am a crypto-Marxist, an irrationalist, a nihilist.
+ - You know the difference between a real science and a pseudoscience? A real science recognizes and accepts its own history without feeling attacked. When you tell a psychiatrist his mental institution came from a lazar house, he becomes infuriated.
+ - Today, criminal justice functions and justifies itself only by this perpetual reference to something other than itself, by this unceasing reinscription in non-juridical systems.
+ - Psychoanalysis can unravel some of the forms of madness; it remains a stranger to the sovereign enterprise of unreason. It can neither limit nor transcribe, nor most certainly explain, what is essential in this enterprise.
+ - Nature, keeping only useless secrets, had placed within reach and in sight of human beings the things it was necessary for them to know.
+ - A critique is not a matter of saying that things are not right as they are. It is a matter of pointing out on what kinds of assumptions, what kinds of familiar, unchallenged, unconsidered modes of thought the practices that we accept rest.
+ - Penal law was not created by the common people, nor by the peasantry, nor by the proletariat, but entirely by the bourgeoisie as an important tactical weapon in this system of divisions which they wished to introduce.
+ - The intellectual was rejected and persecuted at the precise moment when the facts became incontrovertible, when it was forbidden to say that the emperor had no clothes.
+ - Domination is not that solid and global kind of domination that one person exercises over others, or one group over another, but the manifold forms of domination that can be exercised within society.
+ - Wars are no longer waged in the name of a sovereign who must be defended; they are waged on behalf of the existence of everyone; entire populations are mobilized for the purpose of wholesale slaughter in the name of life necessity: massacres have become vital.
+ - Chance does not speak essentially through words nor can it be seen in their convolution. It is the eruption of language, its sudden appearance. It’s not a night twinkle with stars, an illuminated sleep, nor a drowsy vigil. It is the very edge of consciousness.
+ - Resistances do not derive from a few heterogeneous principles; but neither are they a lure or a promise that is of necessity betrayed. They are the odd term in relations of power; they are inscribed in the latter as an irreducible opposite.
+ - To work is to undertake to think something other than what one has thought before.
+ - Politics is not what it pretends to be, the expression of a collective will. Politics breathes well only where this will is multiple, hesitant, confused, and obscure even to itself.
+ - Death left its old tragic heaven and became the lyrical core of man: his invisible truth, his visible secret.
+ - One cannot attend to oneself, take care of oneself, without a relationship to another person.
+ - One makes war to win, not because it’s just.
+ - I belong to that generation who, as students, had before their eyes, and were limited by, a horizon consisting of Marxism, phenomenology and existentialism. For me the break was first Beckett’s Waiting for Godot, a breathtaking performance.
+ - Do not use thought to ground a political practice in Truth; nor political action to discredit, as mere speculation, a line of thought. Use political practice as an intensifier of thought, and analysis as a multiplier of the forms and domains for the intervention of political action.
+ - What is constitutive is the action that divides madness, and not the science elaborated once this division is made.
+ - We have to be there at the birth of ideas, the bursting outward of their force: not in books expressing them, but in events manifesting this force, in struggles carried on around ideas, for or against them.
+ - One should try to locate power at the extreme of its exercise, where it is always less legal in character.
+ - For millenia, man remained what he was for Aristotle: a living animal with the additional capacity for a political existence; modern man is an animal whose politics places his exitence as a living being in question.
+ - One thing in any case is certain: man is neither the oldest nor the most constant problem that has been posed for human knowledge.
+ - Where can an interrogation lead us which does not follow reason in its horizontal course, but seeks to retrace in time that constant vertically which confronts European culture with what it is not?
+ - And now, if we try to assign a value, in and of itself, outside its relations to the dream and with error, to classical unreason, we must understand it not as reason diseased, or as reason lost or alienated, but quite simply as reason dazzled.
+ - Justice must always question itself, just as society can exist only by means of the work it does on itself and on its institutions.
+
+94 quotes

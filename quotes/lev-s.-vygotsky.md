@@ -1,0 +1,24 @@
+ - Through others we become ourselves.
+ - By giving our students practice in talking with others, we give them frames for thinking on their own.
+ - Language is the tool of the tools.
+ - The teacher must adopt the role of facilitator not content provider.
+ - What a child can do today with assistance, she will be able to do by herself tomorrow.
+ - A word devoid of thought is a dead thing, and a thought unembodied in words remains a shadow.
+ - Learning is more than the acquisition of the ability to think; it is the acquisition of many specialized abilities for thinking about a variety of things.
+ - Thought is not merely expressed in words, it comes into existence through them.
+ - Human learning presupposes a specific social nature and a process by which children grow into the intellectual life of those around them.
+ - The true direction of the development of thinking is not from the individual to the social, but from the social to the individual.
+ - Pedagogy must be oriented not to the yesterday, but to the tomorrow of the child’s development. Only then can it call to life in the process of education those processes of development which now lie in the zone of proximal development.
+ - Experience teaches us that thought does not express itself in words, but rather realizes itself in them.
+ - A child’s greatest achievements are possible in play, achievements that tomorrow will become her basic level of real action.
+ - The only ‘good’ learning is that which is in advance of development.
+ - The distance between the actual developmental level as determined by independent problem solving and the level of potential development as determined through problem solving under adult guidance or in collaboration with more capable peers.
+ - Any human act that gives rise to something new is referred to as a creative act, regardless of whether what is created is a physical object or some mental or emotional construct that lives within the person who created it and is known only to him.
+ - There is reason to believe that voluntary activity, more than highly developed intellect, distinguishes humans from the animals which stand closest to them.
+ - What children can do with the assistance of others might be in some sense even more indicative of their mental development than what they can do alone.
+ - It may be said that the basic characteristic of human behavior in general is that humans personally influence their relations with the environment and through that environment personally change their behavior, subjugating it to their control.
+ - Writing should be meaningful for children, Y an intrinsic need should be aroused in them, and Y writing should be incorporated into a task that is necessary and relevant.
+ - Psychology teaches us at every step that though two types of activity can have the same external manifestation, whether in origin or essence, their nature may differ most profoundly.
+ - The specifically human capacity for language enables children to provide for auxiliary tools in the solution of difficult tasks, to overcome impulsive action, to plan a solution to a problem prior to its execution, and to master their own behavior.
+
+22 quotes

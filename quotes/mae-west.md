@@ -1,0 +1,204 @@
+ - You only live once, but if you do it right, once is enough.
+ - It’s not what you say, but how you say it!
+ - Sex is emotion in motion.
+ - I never said it would be easy, I only said it would be worth it.
+ - When I’m good, I’m very good. But when I’m bad I’m better.
+ - I’m single because I was born that way.
+ - Positive thoughts generate positive feelings and attract positive life experiences. You only live once, but if you do it right, once is enough.
+ - There are no good girls gone wrong, just bad girls found out.
+ - I speak two languages, Body and English.
+ - Good girls go to heaven, bad girls go everywhere.
+ - Anything worth doing is worth doing slowly.
+ - Flattery will get you everywhere.
+ - An ounce of performance is worth pounds of promises.
+ - Sex with love is the greatest thing in life. But sex without love – that’s not so bad either.
+ - Everything’s in the mind. That’s where it all starts. Knowing what you want is the first step toward getting it.
+ - I generally avoid temptation unless I can’t resist it.
+ - I’ll try anything once, twice if I like it, three times to make sure.
+ - Women are like roads. The more curves they have, the more dangerous they are.
+ - Don’t cry for a man who’s left you – the next one may fall for your smile.
+ - Well behaved women do not make history.
+ - Too much of a good thing can be wonderful.
+ - A man’s kiss is his signature.
+ - How tall are you big boy? Six foot nine inches! Let’s go up to my place and talk about the nine inches!
+ - A hard man is good to find.
+ - To err is human, but it feels divine.
+ - I consider sex a misdemeanor, the more I miss, de meaner I get.
+ - Good sex is like good bridge. If you don’t have a good partner, you’d better have a good hand.
+ - Well, the end of another busy day. I can’t wait till I get back to bed. If that don’t work I’ll try to sleep.
+ - Love conquers all things except poverty and toothache.
+ - The best way to behave is to misbehave.
+ - The score never interested me, only the game.
+ - Personality is the glitter that sends your little gleam across the footlights and the orchestra pit into that big black space where the audience is.
+ - Never mind about the six feet. Let’s talk about the seven inches.
+ - I’m no angel, but I’ve spread my wings a bit.
+ - If I asked for a cup of coffee, someone would search for the double meaning.
+ - Don’t keep a man guessing too long – he’s sure to find the answer somewhere else.
+ - Ladies who play with fire must remember that smoke gets in their eyes.
+ - For a long time I was ashamed of the way I lived. Did I reform, you ask? No. I’m not ashamed anymore.
+ - Don’t ever make the same mistake twice unless it pays.
+ - Is that a gun in your pocket, or are you just happy to see me?
+ - It is better to be looked over than overlooked.
+ - Women are as old as they feel and men are old when they lose their feelings.
+ - Words should be used as tools of communication and not as a substitute for action.
+ - Look your best – who said love is blind?
+ - Don’t let a man put anything over on you except an umbrella.
+ - Let’s get out of these wet clothes and into a dry Martini...
+ - You gotta get up early in the morning to catch a fox and stay up late at night to get a mink.
+ - A good man is hard to find – but you’ll mostly find him asleep.
+ - A dame that knows the ropes isn’t likely to get tied up.
+ - Dating means two things; disillusionment or a racing heart.
+ - He who hesitates is a damned fool.
+ - A woman in love can’t be reasonable – or she probably wouldn’t be in love.
+ - Brains are an asset, if you hide them.
+ - Women want certain things in marriage – the right to a title and a front seat in the lap of luxury.
+ - I’m a woman of very few words, but lots of action.
+ - He’s the kind of man a woman would have to marry to get rid of.
+ - I always say, keep a diary and someday it’ll keep you.
+ - Those who are easily shocked should be shocked more often.
+ - Women like a man with a past, but they prefer a man with a present.
+ - Ten men waiting for me at the door? Send one of them home, I’m tired.
+ - Come up and see me sometime.
+ - Money is of value for what it buys, and in love it buys time, place, intimacy, comfort, and a private corner alone.
+ - No one can have everything, so you have to try for what you want most.
+ - If a little is great, and a lot is better, then way too much is just about right!
+ - Brains are an asset to the woman in love who’s smart enough to hide ’em.
+ - I have never loved a man as much as I have loved myself.
+ - His mother should have thrown him out and kept the stork.
+ - You are never too old to become younger!
+ - Beulah, peel me a grape.
+ - Life’s just a merry-go-round. Come on up. You might get a brass ring.
+ - I’m no model lady. A model’s just an imitation of the real thing.
+ - I wrote the story myself. It’s about a girl who lost her reputation and never missed it.
+ - You may think you’re in love when the passions of sex get hold of you, but if you didn’t love the man before, you won’t love him after. Like him, maybe, but not love him.
+ - When women go wrong, men go right after them.
+ - Love is what you make it and who you make it with.
+ - Love thy neighbor – and if he happens to be tall, debonair and devastating, it will be that much easier.
+ - A man has one hundred dollars and you leave him with two dollars, that’s subtraction.
+ - Give a man a free hand and he’ll run it all over you.
+ - It’s all right for a perfect stranger to kiss your hand as long as he’s perfect.
+ - A man has more character in his face at forty than at twenty – he has suffered longer.
+ - I freely chose the kind of life I led because I was convinced that a woman has as much right as a man to live the way she does if she does no actual harm to society.
+ - The best way to learn to be a lady is to see how other ladies do it.
+ - Never ask a man where he has been.
+ - I like a man who’s good, but not too good – for the good die young, and I hate a dead one.
+ - Goodness had nothing to do with it.
+ - Woman: You certainly know the way to a man’s heart. Mae West: Funny, too, ’cause I don’t know how to cook.
+ - Say what you want about long dresses, but they cover a multitude of shins.
+ - Love is the only industry which can’t operate on a five-day week.
+ - It’s hard to be funny when you have to be clean.
+ - It isn’t what I do, but how I do it. It isn’t what I say, but how I say it, and how I look when I do it and say it.
+ - I don’t like myself, I’m crazy about myself.
+ - I always did like a man in uniform. And that one fits you grand. Why don’t you come up sometime and see me?
+ - A girl in the convertible is worth five in the phone book.
+ - Everyone has the right to run his own life- even if you’re heading for a crash. What I’m against is blind flying.
+ - I’ve been things and seen places.
+ - I made myself platinum, but I was born a dirty blonde.
+ - Some of the wildest men make the best pets.
+ - When you get the personality, you don’t need the nudity.
+ - It ain’t no sin if you crack a few laws now and then, just so long as you don’t break any.
+ - Getting married is like trading in the adoration of many for the sarcasm of one.
+ - I like a man what takes his time.
+ - Men are my hobby, if I ever got married I’d have to give it up.
+ - Kiss and make up-but too much makeup has ruined many a kiss.
+ - Hollywood was like a mouse being followed by a cat called television.
+ - Save a boyfriend for a rainy day – and another, in case it doesn’t rain.
+ - Don’t marry a man to reform him – that’s what reform schools are for.
+ - I believe that one day the world will judge the witch hunt against homosexuals just as harshly as it judges the Spanish Inquisition and the Holocaust.
+ - We’re intellectual opposites. Well, I’m intellectual and you’re opposite.
+ - A man can be short and dumpy and getting bald but if he has fire, women will like him.
+ - It’s hard to find a good man, but it’s good to find a hard one.
+ - Men are like linoleum floors. Lay ’em right and you can walk all over them for years.
+ - I’m a good woman for a bad man.
+ - Right now I think censorship is necessary; the things they’re doing and saying in films right now just shouldn’t be allowed. There’s no dignity anymore and I think that’s very important.
+ - I’m the kinda girl who works for Paramount by day, and Fox all night.
+ - I have never been able to sleep with anyone. I require a full-size bed so that I can lie in the middle of it and extend my arms spreadeagle on both sides without being obstructed.
+ - Live close, visit often.
+ - Love is like a booger, you pick and pick at it. Then when you get it you wonder how to get rid of it.
+ - Virtue has its own reward, but no sale at the box office.
+ - Dates in Calendar are Closer Than They Appear! Time is what keeps everything from happening at once. Keep a diary, and someday it’ll keep you.
+ - March isn’t the only thing that’s in like a lion and out like a lamb.
+ - Every man I meet wants to protect me. I can’t figure out what from.
+ - I’d like to see Paris before I die.
+ - Curve: The loveliest distance between two points.
+ - I’ve no time for broads who want to rule the world alone. Without men, who’d do up the zipper on the back of your dress?
+ - I have found men who didn’t know how to kiss. I’ve always found time to teach them.
+ - Marriage is a great institution, but I’m not ready for an institution.
+ - Ice is nice at any price.
+ - Marriage? I ain’t got time for a husband or child. All my life I’ve looked after myself as if I was my own child.
+ - I like restraint, if it doesn’t go too far.
+ - Dennis Thatcher, husband of Margaret Thatcher, when asked who wore the pants in his house, said “I do, and I also wash and iron them.” I only like two kinds of men; domestic and foreign.
+ - She’s the kind of girl who climbed the ladder of success wrong by wrong.
+ - Men would wither and custom stale them, but diamonds! Ah, they were crystallized immortality!
+ - No gold-digging for me; I take diamonds! We may be off the gold standard someday.
+ - Your real security is yourself. You know you can do it, and they can’t ever take that away from you.
+ - My advice to those who think they have to take off their clothes to be a star is, once you’re boned, what’s left to create the illusion? Let em wonder. I never believed in giving them too much of me.
+ - Cultivate your curves – they may be dangerous but they won’t be avoided.
+ - The curve is more powerful than the sword.
+ - I like my clothes tight enough to show I’m a woman, but loose enough to show I’m a lady.
+ - I never worry about diets. The only carrots that interest me are the number you get in a diamond.
+ - I’ve been in ‘Who’s Who’ and I know what’s what, but it’ll be the first time I ever made the dictionary.
+ - When in doubt take a bath.
+ - I have always felt a gift diamond shines so much better than one you buy for yourself.
+ - I didn’t discover curves; I only uncovered them.
+ - I believe in censorship. I made a fortune out of it.
+ - Too many girls follow the line of least resistance, but a good line is hard to resist.
+ - Dress gives one the outward sign from which people in general can, and often do, judge upon the inward state of mind and feelings.
+ - Men? Sure, I’ve known lots of them. But I never found one I liked well enough to marry. Besides, I’ve always been busy with my work. Marriage is a career in itself and to make a success of it you’ve got to keep working at it. So until I can give the.
+ - All discarded lovers should be given a second chance, but with somebody else.
+ - Opportunity knocks for every man, but you have to give a woman a ring.
+ - You may admire a girl’s curves on the first introduction, but the second meeting shows up new angles.
+ - If you put your foot in it, be sure it’s your best foot.
+ - A man in love is like a clipped coupon – it’s time to cash in.
+ - Personality is the most important thing to an actress’s success.
+ - One more drink and I’ll be under the host.
+ - Just a little sheep dip. Panacea for all stomach ailments.
+ - I go for two kinds of men. The kind with muscles, and the kind without.
+ - The censors wouldn’t even let me sit on a guy’s lap, and I’ve been on more laps than a table-napkin.
+ - When you think about it, what other playwrights are there besides O’Neill, Tennessee and me?
+ - Ya know it was a toss-up whether I go in for diamonds or sing in the choir. The choir lost.
+ - I’ve always had a weakness for foreign affairs.
+ - It’s easy to get married, but hard to stay that way.
+ - Women with pasts interest men because they hope history will repeat itself.
+ - I never needed Panavision and stereophonic sound to woo the world. I did it in black and white on a screen the size of a postage stamp. Honey, that’s talent.
+ - Girls, give all your gentlemen friends an even break, even if you have to break them in the attempt.
+ - Marriage is like a book. The whole story takes place between the covers.
+ - It takes two to get one in trouble.
+ - I used to be Snow White, but I drifted.
+ - One and one is two, and two and two is four, and five will get you ten if you know how to work it.
+ - I only read biographies, metaphysics and psychology. I can dream up my own fiction.
+ - The finest woman that ever walked the streets.
+ - Men are all alike – except the one you’ve met who’s different.
+ - A real farmer. He spent his childhood in the wheat, and his marriage in the hay.
+ - Always remember honey. A good motto is: Take all you can get and give as little as possible.
+ - Reason was nowhere, time was an immovable object nailed high on the wall, except where the world kept shop.
+ - Sometimes it seems to me I’ve known so many men that the FBI ought to come to me first to compare fingerprints.
+ - Some women pick men to marry – and others pick them to pieces.
+ - Let men see what’s coming to them, and women will get what’s coming to them.
+ - Any time you got nothing to do – and lots of time to do it – come on up.
+ - Sometimes I don’t drink so the next day I can remember having fun.
+ - In my long and colorful career, one thing stands out: I have been misunderstood.
+ - I’ve always taken men just as I found ’em, and thank heavens I’ve been able to find ’em.
+ - I never set out to make men a career; it just happened that way.
+ - I don’t know a lot about politics, but I can recognise a good party man when I see one.
+ - Pour him out of here!
+ - Hiring someone to write your autobiography is like hiring someone to take a bath for you.
+ - I’ve been in more laps than a napkin.
+ - I enjoyed the courtroom as just another stage but not so amusing as Broadway.
+ - You can do what you want, but saving love doesn’t bring any interest.
+ - When it comes to finances, remember that there are no withholding taxes on the wages of sin.
+ - Good theater is not what is expected, but what surprises.
+ - He’s the kind of man who picks his friends – to pieces.
+ - I only like two kinds of men, domestic and imported.
+ - Poor Mary Ann! She gave the guy an inch and now he thinks he’s a ruler.
+ - Never ask a man where’s he’s been. If he’s out on legitimate business, he doesn’t need an alibi. And, girls, if he has been out on illegitimate business, it’s your own fault.
+ - Love isn’t an emotion or an instinct – it’s an art.
+ - I only have ‘yes’ men around me. Who needs ‘no’ men?
+ - The bite of existence did not cut into one in Hollywood...
+ - Men are my life, diamonds are my career.
+ - I know so much about men because I went to night school.
+ - I see you’re a man with ideals. I better be going before you’ve still got them.
+ - I believe in the single standard – for men and women.
+ - All the raves were just words. You don’t want to let words confuse you. Words come cheap.
+
+202 quotes

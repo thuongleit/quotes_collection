@@ -1,0 +1,21 @@
+ - In modern novels I try to not let myself get away and to be here, and that’s why I write about my life and myself. But even when I do that there’s an element of disappearing to a place that’s not me. It’s “the selflessness of writing”. It seldom happens, but when it does it’s worth quite a lot.
+ - Shame tells you when you’ve gone too far. Then you try if it’s okay to go too far. And it might be so that shame was right. You can never, never know that.
+ - If you are disappearing from yourself, but you’re still writing, then there is a kind of activity of thinking going on, which in my world is similar to what’s going on in music.
+ - We live in the best of worlds. But still, it’s like we’ve lost something on the way to here: a sense of life. I can’t know for sure, I might be the only one who’s lost it. Maybe everybody else is living the now, thinking they’re having it well. Anyhow, that motivated me to write the books.
+ - The strange thing about writing is that it’s so easy to write a novel. It is really easy. But it’s getting there to the point where it’s easy that’s hard. The hard part is to get there.
+ - I have a longing for fiction – to try to believe in it and to disappear into it.
+ - As your perspective of the world increases not only is the pain it inflicts on you less but also its meaning. Understanding the world requires you to take a certain distance from it.
+ - I’m not interested in the words or the meaning of the words. I’m interested in disappearing in it completely, to not be aware of yourself at all. That’s the way music works for me. It’s purely emotional. It goes straight to the heart. There are no explanations. That’s just it.
+ - When I look back at what I’ve written and try to explain it, it doesn’t help, but it helps to be in a process of writing. It’s the same thing with reading – you lose yourself when you read as well. When I was younger I used literature that way, it was just escapism, a tool to run away from things.
+ - You don’t think when you play music, you just try to play and be in it. It is the same for me when the writing is going really well. It’s the same kind of feeling. I’m just in it. It’s not the words, it’s not the sentences, I’m not aware of it. Then it’s good.
+ - Shameless actually good since it gives a kind of freedom. We consider the old, functionless shame destructive. Today, if you have a strong sense of shame you also have a strong desire to overcome it. And that’s when you can write.
+ - For me, personally, it is very important that the days are exactly the same, so I have routines. I do the same thing every day.
+ - National identity is a motion. It’s something you’re inside, you don’t get what’s happening, you can’t see it from above. And that’s where you have to write. You can’t see what’s happening now or what’s going to happen, so you just dive into it and write.
+ - Saying what you believe others want to hear is, of course, a form of lying.
+ - I try to write about small insignificant things. I try to find out if it’s possible to say anything about them. And I almost always do if I sit down and write about something. There is something in that thing that I can write about. It’s very much like a rehearsal. An exercise, in a way.
+ - I think that the best literature has a core that you can’t lock to a time or place but that can generate lots of meanings and translations.
+ - As a person, I’m polite – I want to please.
+ - I think there are a lot of similarities between writing and music. Music is much more direct and much more emotional and that’s the level I want to be at when I’m writing. Writing is much more intellectual and indirect and abstract, in a way.
+ - I never read the translation before publication. The most important things for me is that the emotion is captured in such a way that the feelings that are in the original are there, much more than the details, if they are right or wrong.
+
+19 quotes

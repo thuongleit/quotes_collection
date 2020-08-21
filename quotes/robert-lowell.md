@@ -1,0 +1,25 @@
+ - The light at the end of the tunnel is just the light of an oncoming train.
+ - In the end, there is no end.
+ - We feel the machine slipping from our hands As if someone else were steering; If we see light at the end of the tunnel, It’s the light of the oncoming train.
+ - Middle Age At forty-five, What next, what next? At every corner, I meet my Father, My age, still alive.
+ - We are all old-timers, each of us holds a locked razor.
+ - Everywhere, giant finned cars nose forward like fish; a savage servility slides by on grease.
+ - I was overcome with an attack of pathological enthusiasm.
+ - Pity the planet, all joy gone from this sweet volcanic cone; peace to our children when they fall in small war on the heel of small war – until the end of time to police the earth, a ghost orbiting forever lost in our monotonous sublime.
+ - September twenty-second, Sir, the bough cracks with unpicked apples, and at dawn the small-mouth bass breaks water, gorged with spawn.
+ - The Lord survives the rainbow of His will.
+ - Their monument sticks like a fishbone in the city’s throat.
+ - In the end, every hypochondriac is his own prophet.
+ - Most poetry is very formal, but when a modern poet is formal he gets more attention for it than old poets did.
+ - If youth is a defect, it is one we outgrow too soon.
+ - It’s the light of the oncoming train.
+ - And blue-lung’d combers lumbered to the kill.
+ - Poetry is not the record of an event: it is an event.
+ - It’s a completely powerful and serious book, as good as anything in prose or poetry written by a ‘beat’ writer, and one of the most alive books written by any American for years. I don’t see how it could be considered immoral.
+ - Sometimes nothing is so solid to me as writing – I suppose that’s what a vocation means – at times a torment, a bad conscience, but all in all, purpose and direction.
+ - The world is absolutely out of control now and is not going to be saved by any reason or unreason.
+ - I’m sure that writing isn’t a craft, that is, something for which you learn the skills and go on turning out. It must come from some deep impulse, deep inspiration. That can’t be taught, it can’t be what you use in teaching.
+ - I want to apologize for plaguing you with so many telephone calls last November and December. When the ‘enthusiasm’ is coming on me it is accompanied by a feverish reaching out to my friends. After its over I wince and wither.
+ - I saw the spiders marching through the air, Swimming from tree to tree that mildewed day In latter August when the hay Came creaking to the barn.
+
+23 quotes

@@ -1,0 +1,502 @@
+ - Speak when you are angry and you will make the best speech you will ever regret.
+ - There is nothing new under the sun but there are lots of old things we don’t know.
+ - All are lunatics, but he who can analyze his delusions is called a philosopher.
+ - Perseverance – a lowly virtue whereby mediocrity achieves an inglorious success.
+ - Friendship: A ship big enough for two in fair weather, but only one in foul.
+ - Lottery: A tax on people who are bad at math.
+ - Democracy is four wolves and a lamb voting on what to have for lunch.
+ - If you want to read a perfect book there is only one way: write it.
+ - PERIPATETIC, adj. Walking about. Relating to the philosophy of Aristotle, who, while expounding it, moved from place to place in order to avoid his pupil’s objections. A needless precaution – they knew no more of the matter than he.
+ - A nation that will not enforce its laws has no claim to the respect and allegiance of its people.
+ - NIRVANA- In the Buddhist religion, a state of pleasurable annihilation awarded to the wise, particularly to those wise enough to understand it.
+ - Logic: The art of thinking and reasoning in strict accordance with the limitations and incapacities of the human misunderstanding.
+ - Doubt is the father of invention.
+ - Meekness: Uncommon patience in planning a revenge that is worth while.
+ - Politeness, n: The most acceptable hypocrisy.
+ - What a woman most admires in a man is distinction among men. What a man most admires in a woman is devotion to himself.
+ - Finance is the art or science of managing revenues and resources for the best advantage of the manager.
+ - Congratulations is the civility of envy.
+ - NEPOTISM, n. Appointing your grandmother to office for the good of the party.
+ - Education, n.: That which discloses to the wise and disguises from the foolish their lack of understanding.
+ - A person who doubts himself is like a man who would enlist in the ranks of his enemies and bear arms agains himself. He makes his failure certain by himself being the first person to be convinced of it.
+ - A lottery is a tax on stupidity.
+ - Present, n. That part of eternity dividing the domain of disappointment from the realm of hope.
+ - HOMILETICS, n. The science of adapting sermons to the spiritual needs, capacities and conditions of the congregation.
+ - He who thinks with difficulty believes with alacrity.
+ - Self-restraint is indulgence of the propensity to forgo.
+ - ORATORY, n. A conspiracy between speech and action to cheat the understanding. A tyranny tempered by stenography.
+ - Pantheism, n. The doctrine that everything is God, in contradistinction to the doctrine that God is everything.
+ - Youth is Gilead, in which is balm for every wound.
+ - RETRIBUTION, n. A rain of fire-and-brimstone that falls alike upon the just and such of the unjust as have not procured shelter by evicting them.
+ - PYRRHONISM- An ancient philosophy, named for its inventor. It consisted of an absolute disbelief in everything but Pyrrhonism. Its modern professors have added that.
+ - Future. That period of time in which our affairs prosper, our friends are true and our happiness is assured.
+ - Think twice before you speak to a friend in need.
+ - When you doubt, abstain.
+ - War is God’s way of teaching Americans geography.
+ - At war with savages and idiots. To be a Frenchman abroad is to be miserable; to be an American abroad is to make others miserable.
+ - IMPENITENCE, n. A state of mind intermediate in point of time between sin and punishment.
+ - Witticism. A sharp and clever remark, usually quoted and seldom noted; what the Philistine is pleased to call a joke.
+ - Acquaintance. A person whom we know well enough to borrow from, but not well enough to lend to.
+ - Happiness: an agreeable sensation arising from contemplating the misery of another.
+ - A revolution is a violent change of mismanagement.
+ - The gambling known as business looks with austere disfavor upon the business known as gambling.
+ - PESSIMISM- philosophy forced upon the convictions of the observer by the disheartening prevalence of the optimist with his scarecrow hope and his unsightly smile.
+ - MESMERISM, n. Hypnotism before it wore good clothes, kept a carriage and asked Incredulity to dinner.
+ - Boundary, n. In political geography, an imaginary line between two nations, separating the imaginary rights of one from the imaginary rights of another.
+ - Impiety. Your irreverence toward my deity.
+ - Knowledge is the small part of ignorance that we arrange and classify.
+ - ZENITH, n. The point in the heavens directly overhead to a man standing or a growing cabbage. A man in bed or a cabbage in the pot is not considered as having a zenith, though Horizontalists hold that the posture of the body was immaterial.
+ - Death is a dignitary who when he comes announced is received with formal manifestations of respect, even by those most familiar with him. In the code of military etiquette silence and fixity are forms of deference.
+ - SYCOPHANT- One who approaches Greatness on his belly so that he may not be commanded to turn and be kicked. He is sometimes an editor.
+ - Belladonna, n.: In Italian a beautiful lady; in English a deadly poison. A striking example of the essential identity of the two tongues.
+ - UNITARIAN, n. One who denies the divinity of a Trinitarian.
+ - GEOGRAPHER, n. A chap who can tell you offhand the difference between the outside of the world and the inside.
+ - TARIFF, n. A scale of taxes on imports, designed to protect the domestic producer against the greed of his consumer.
+ - Adolescence: The stage between puberty and adultery.
+ - PLEONASM, n. An army of words escorting a corporal of thought.
+ - MOUTH, n. In man, the gateway to the soul; in woman, the outlet of the heart.
+ - Ocean: A body of water occupying about two-thirds of a world made for man – who has no gills.
+ - Edible, adj.: Good to eat, and wholesome to digest, as a worm to a toad, a toad to a snake, a snake to a pig, a pig to a man, and a man to a worm.
+ - Democracy is defended in 3 stages. Ballot Box, Jury Box, Cartridge Box.
+ - Feast, n. A festival. A religious celebration usually signalized by gluttony and drunkenness, frequently in honor of some holy person distinguished for abstemiousness.
+ - Patriotism is as fierce as a fever, pitiless as the grave, blind as a stone, and irrational as a headless hen.
+ - Abnormal, adj. Not conforming to standard. In matters of thought and conduct, to be independent is to be abnormal, to be abnormal is to be detested.
+ - Pray: To ask the laws of the universe to be annulled on behalf of a single petitioner confessedly unworthy.
+ - PHONOGRAPH, n. An irritating toy that restores life to dead noises.
+ - Corporation: An ingenious device for obtaining profit without individual responsibility.
+ - PLEBEIAN, n. An ancient Roman who in the blood of his country stained nothing but his hands. Distinguished from the Patrician, who was a saturated solution.
+ - Electricity is the power that causes all natural phenomena not known to be caused by something else.
+ - Beauty, n: the power by which a woman charms a lover and terrifies a husband.
+ - Faith: Belief without evidence in what is told by one who speaks without knowledge, of things without parallel.
+ - Custard: A detestable substance produced by a malevolent conspiracy of the hen, the cow, and the cook.
+ - LOVE, n. A temporary insanity curable by marriage or by removal of the patient from the influences under which he incurred the disorder.
+ - HOMOEOPATHY, n. A school of medicine midway between Allopathy and Christian Science. To the last both the others are distinctly inferior, for Christian Science will cure imaginary diseases, and they can not.
+ - Optimist – A proponent of the doctrine that black is white.
+ - LOGANIMITY, n. The disposition to endure injury with meek forbearance while maturing a plan of revenge.
+ - ROSTRUM, n. In Latin, the beak of a bird or the prow of a ship. In America, a place from which a candidate for office energetically expounds the wisdom, virtue and power of the rabble.
+ - MONUMENT, n. A structure intended to commemorate something which either needs no commemoration or cannot be commemorated.
+ - Theology is a thing of unreason altogether, an edifice of assumptions and dreams, a superstructure without a substructure.
+ - BRANDY, n. A cordial composed on one part thunder-and-lightning, one part remorse, two parts bloody murder, one part death-hell-and-the-grave and four parts clarified Satan.
+ - Immigrant: An unenlightened person who thinks one country better than another.
+ - PROJECTILE, n. The final arbiter in international disputes. With the growth of prudence in military affairs the projectile came more and more into favor, and is now held in high esteem by the most courageous.
+ - Cogito cogito ergo cogito sum – “I think that I think, therefore I think that I am;” as close an approach to certainty as any philosopher has yet made.
+ - Road, n. A strip of land along which one may pass from where it is too tiresome to be to where it is futile to go.
+ - LIAR, n. One who tells an unpleasant truth.
+ - DISOBEDIENCE, n. The silver lining to the cloud of servitude.
+ - Happiness is lost by criticizing it; sorrow by accepting it.
+ - RUBBISH, n. Worthless matter, such as the religions, philosophies, literatures, arts and sciences of the tribes infesting the regions lying due south from Boreaplas.
+ - Irreligion – the principal one of the great faiths of the world.
+ - REPUBLIC, n. A nation in which, the thing governing and the thing governed being the same, there is only a permitted authority to enforce an optional obedience.
+ - Immortality: A toy which people cry for, And on their knees apply for, Dispute, contend and lie for, And if allowed Would be right proud Eternally to die for.
+ - Monsieur Franqulin, inventor of electricity. This illustrious savant, after having made several voyages around the world, died on the Sandwich Islands and was devoured by savages, of whom not a single fragment was ever recovered.
+ - Prescription: A physician’s guess at what will best prolong the situation with least harm to the patient.
+ - REDRESS, n. Reparation without satisfaction.
+ - Woman absent is woman dead.
+ - Learning, n. The kind of ignorance distinguishing the studious.
+ - OUT-OF-DOORS, n. That part of one’s environment upon which no government has been able to collect taxes. Chiefly useful to inspire poets.
+ - The most intolerant advocate is he who is trying to convince himself.
+ - Bore, n. A person who talks when you wish him to listen.
+ - Spring beckons! All things to the call respond; the trees are leaving and cashiers abscond.
+ - One who, professing virtues that he does not respect, secures the advantage of seeming to be what he despises.
+ - Photograph: a picture painted by the sun without instruction in art.
+ - International arbitration may be defined as the substitution of many burning questions for a smoldering one.
+ - CERBERUS, n. The watch-dog of Hades, whose duty it was to guard the entrance – against whom or what does not clearly appear; everybody, sooner or later, had to go there, and nobody wanted to carry off the entrance.
+ - A malefactor who atones for making your writing nonsense by permitting the compositor to make it unintelligible.
+ - In each human heart are a tiger, a pig, an ass and a nightingale. Diversity of character is due to their unequal activity.
+ - POSITIVISM- A philosophy that denies our knowledge of the Real and affirms our ignorance of the Apparent. Its longest exponent is Comte, its broadest Mill and its thickest Spencer.
+ - Dentist: a prestidigitator who, putting metal into your mouth, pulls coin out of your pocket.
+ - When God makes a beautiful woman, the devil opens a new register.
+ - Revelation: a famous book in which St. John the Divine concealed all that he knew. The revealing is done by the commentators, who know nothing.
+ - The hardest tumble a man can make is to fall over his own bluff.
+ - God alone knows the future, but only an historian can alter the past.
+ - Pun: A form of wit, to which wise men stoop and fools aspire.
+ - Accordion, n. An instrument in harmony with the sentiments of an assassin.
+ - When you are ill make haste to forgive your enemies, for you may recover.
+ - PLATONIC, adj. Pertaining to the philosophy of Socrates. Platonic Love is a fool’s name for the affection between a disability and a frost.
+ - He who thinks with difficulty believes with alacrity. A fool is a natural proselyte, but he must be caught young, for his convictions, unlike those of the wise, harden with age.
+ - Women and foxes, being weak, are distinguished by superior tact.
+ - Definition: CONNOISSEUR, n. A specialist who knows everything about something and nothing about anything else.
+ - Clarinet n. An instrument of torture operated by a person with cotton in his ears. There are two instruments worse than a clarinet – two clarinets.
+ - CALAMITY, n. A more than commonly plain and unmistakable reminder that the affairs of this life are not of our own ordering. Calamities are of two kinds: misfortune to ourselves, and good fortune to others.
+ - Hash, x. There is no definition for this word – nobody knows what hash is. Famous, adj. Conspicuously miserable. Dictionary, n. A malevolent literary device for cramping the growth of a language and making it hard and inelastic. This dictionary, however, is a most useful work.
+ - A bad marriage is like an electrical thrilling machine: it makes you dance, but you can’t let go.
+ - A violin is the revenge exacted by the intestines of a dead cat.
+ - To apologize is to lay the foundation for a future offense.
+ - Money. A blessing that is of no advantage to us excepting when we part with it.
+ - MUMMY, n. – an ancient Egyptian handy, too, in museums in gratifying the vulgar curiosity that serves to distinguish man from the lower animals.
+ - A rabbit’s foot may bring good luck to you, but it brought none to the rabbit.
+ - HOSPITALITY, n. The virtue which induces us to feed and lodge certain persons who are not in need of food and lodging.
+ - TRICHINOSIS, n. The pig’s reply to proponents of porcophagy.
+ - Twice – Once too often.
+ - An absolute monarchy is one in which the sovereign does as he pleases so long as he pleases the assassins.
+ - Rhubarb: essence of stomach ache.
+ - Good-bye – if you hear of my being stood up against a stone wall and shot to rags please know that I think that a pretty good way to depart this life. It beats old age, disease or falling down the cellar stairs.
+ - Admiration, n. Our polite recognition of another’s resemblance to ourselves.
+ - Liberty: One of Imagination’s most precious possessions.
+ - MANICHEISM, n. The ancient Persian doctrine of an incessant warfare between Good and Evil. When Good gave up the fight the Persians joined the victorious Opposition.
+ - REALISM, n. The art of depicting nature as it is seem by toads. The charm suffusing a landscape painted by a mole, or a story written by a measuring-worm.
+ - Before undergoing a surgical operation, arrange your temporal affairs. You may live.
+ - Empty wine bottles have a bad opinion of women.
+ - UNIVERSALIST, n. One who forgoes the advantage of a Hell for persons of another faith.
+ - We must stop chasing dollars, stop lying, stop cheating, stop ignoring art, literature, and all the refining agencies and instrumentalities of civilization.
+ - SCARABAEUS, n. The sacred beetle of the ancient Egyptians, allied to our familiar “tumble-bug.” It was supposed to symbolize immortality, the fact that God knew why giving it its peculiar sanctity.
+ - Selfish, adj. Devoid of consideration for the selfishness of others.
+ - Abscond – to move in a mysterious way, commonly with the property of another.
+ - LOGOMACHY, n. A war in which the weapons are words and the wounds punctures in the swim-bladder of self-esteem – a kind of contest in which, the vanquished being unconscious of defeat, the victor is denied the reward of success.
+ - No country is so wild and difficult but men will make it a theater of war.
+ - Cat: a soft indestructible automaton provided by nature to be kicked when things go wrong in the domestic circle.
+ - You cannot adopt politics as a profession and remain honest.
+ - ADAGE, n. Boned wisdom for weak teeth.
+ - Responsibility, n. A detachable burden easily shifted to the shoulders of God, Fate, Fortune, Luck or one’s neighbor. In the days of astrology it was customary to unload it upon a star.
+ - Riven and torn with cannon-shot, the trunks of the trees protruded bunches of splinters like hands, the fingers above the wound interlacing with those below.
+ - To be positive is to be mistaken at the top of one’s voice.
+ - PRIVATE, n. A military gentleman with a field-marshal’s baton in his knapsack and an impediment in his hope.
+ - Hurry n: The dispatch of bunglers.
+ - POVERTY, n. A file provided for the teeth of the rats of reform. Its victims are distinguished by possession of all the virtues and by their faith in leaders seeking to conduct them into a prosperity where they believe these to be unknown.
+ - Divorce: a resumption of diplomatic relations and rectification of boundaries.
+ - Curiosity, n. An objectionable quality of the female mind. The desire to know whether or not a woman is cursed with curiosity is one of the most active and insatiable passions of the masculine soul.
+ - History is an account, mostly false, of events, mostly unimportant, which are brought about by rulers, mostly knaves, and soldiers, mostly fools.
+ - Christians and camels receive their burdens kneeling.
+ - DIAPHRAGM, n. A muscular partition separating disorders of the chest from disorders of the bowels.
+ - Saint: A dead sinner revised and edited.
+ - MANNA, n. A food miraculously given to the Israelites in the wilderness. When it was no longer supplied to them they settled down and tilled the soil, fertilizing it, as a rule, with the bodies of the original occupants.
+ - RIMER, n. A poet regarded with indifference or disesteem.
+ - Economy, n. Purchasing the barrel of whiskey that you do not need for the price of the cow that you cannot afford.
+ - MIND, n. A mysterious form of matter secreted by the brain. Its chief activity consists in the endeavour to ascertain its own nature, the futility of the attempt being due to the fact that it has nothing but itself to know itself with.
+ - Conversation, n.: A vocal competition in which the one who is catching his breath is called the listener.
+ - APHORISM, n. Predigested wisdom. The flabby wine-skin of his brain Yields to some pathologic strain, And voids from its unstored abysm The driblet of an aphorism. “The Mad Philosopher,” 1697.
+ - There was never a genius who was not thought a fool until he disclosed himself; whereas he is a fool then only.
+ - Death is not the end. There remains the litigation over the estate.
+ - A large stone presented by the archangel Gabriel to the patriarch Abraham, and preserved at Mecca. The patriarch had perhaps asked the archangel for bread.
+ - KISS, n. A word invented by the poets as a rhyme for “bliss.” It is supposed to signify, in a general way, some kind of rite or ceremony appertaining to a good understanding; but the manner of its performance is unknown to this lexicographer.
+ - DAY, n. A period of twenty-four hours, mostly misspent. This period is divided into two parts, the day proper and the night, or day improper – the former devoted to sins of business, the latter consecrated to the other sort.
+ - What is a democrat? One who believes that the republicans have ruined the country. What is a republican? One who believes that the democrats would ruin the country.
+ - INGRATE, n. One who receives a benefit from another, or is otherwise an object of charity.
+ - RICE-WATER, n. A mystic beverage secretly used by our most popular novelists and poets to regulate the imagination and narcotize the conscience.
+ - Cannon: An instrument used in the rectification of national boundaries.
+ - Women of genius commonly have masculine faces, figures and manners. In transplanting brains to an alien soil God leaves a little of the original earth clinging to the roots.
+ - Wine, madam, is God’s next best gift to man.
+ - RUSSIAN, n. A person with a Caucasian body and a Mongolian soul. A Tartar Emetic.
+ - That part of your friend which it is your privilege to contemplate in your adversity.
+ - MISCREANT, n. A person of the highest degree of unworth. Etymologically, the word means unbeliever, and its present signification may be regarded as theology’s noblest contribution to the development of our language.
+ - PHYSIOGNOMY, n. The art of determining the character of another by the resemblances and differences between his face and our own, which is the standard of excellence.
+ - CRAYFISH, n. A small crustacean very much resembling the lobster, but less indigestible.
+ - Fork: An instrument used chiefly for the purpose of putting dead animals into the mouth.
+ - GRAVE, n. A place in which the dead are laid to await the coming of the medical student.
+ - Achievement; the death of endeavor and the birth of disgust.
+ - Intolerance is natural and logical, for in every dissenting opinion lies an assumption of superior wisdom.
+ - CARTESIAN, adj. Relating to Descartes, author of ‘Cogito ergo sum’ to demonstrate the reality of human existence. The dictum might be improved ‘Cogito cogito ergo cogito sum’ ‘I think that I think, therefore I think that I am’ as close an approach.
+ - Doubt, indulged and cherished, is in danger of becoming denial; but if honest, and bent on thorough investigation, it may soon lead to full establishment of the truth.
+ - REALITY, n. The dream of a mad philosopher. That which would remain in the cupel if one should assay a phantom. The nucleus of a vacuum.
+ - Homo Creator’s testimony to the sound construction and fine finish of Deus Creatus. A popular form of abjection, having an element of pride.
+ - ORTHOGRAPHY, n. The science of spelling by the eye instead of the ear.
+ - Life – a spiritual pickle preserving the body from decay.
+ - Egotism, n: Doing the New York Times crossword puzzle with a pen.
+ - The circus a place where horses, ponies and elephants are permitted to see men, women and children acting the fool.
+ - Forgetfulness – a gift of God bestowed upon debtors in compensation for their destitution of conscience.
+ - PHRENOLOGY, n. The science of picking the pocket through the scalp. It consists in locating and exploiting the organ that one is a dupe with.
+ - PANTALOONS, n. A nether habiliment of the adult civilized male. The garment is tubular and unprovided with hinges at the points of flexion. Supposed to have been invented by a humorist. Called trousers by the enlightened and pants by the unworthy.
+ - RITE, n. A religious or semi-religious ceremony fixed by law, precept or custom, with the essential oil of sincerity carefully squeezed out of it.
+ - MEDICINE, n. A stone flung down the Bowery to kill a dog in Broadway.
+ - Advice: The suggestions you give someone else which you hope will work for your benefit.
+ - Prejudice – a vagrant opinion without visible means of support.
+ - There are four kinds of Homicide: felonious, excusable, justifiable, and praiseworthy.
+ - They say that hens do cackle loudest when there is nothing vital in the eggs they have laid.
+ - IMAGINATION, n. A warehouse of facts, with poet and liar in joint ownership.
+ - Historian – a broad-gauge gossip.
+ - NOTORIETY, n. The fame of one’s competitor for public honors. The kind of renown most accessible and acceptable to mediocrity. A Jacob’s-ladder leading to the vaudeville stage, with angels ascending and descending.
+ - Alliance – in international politics, the union of two thieves who have their hands so deeply inserted in each other’s pockets that they cannot separately plunder a third.
+ - SORCERY, n. The ancient prototype and forerunner of political influence. It was, however, deemed less respectable and sometimes was punished by torture and death.
+ - PERORATION, n. The explosion of an oratorical rocket. It dazzles, but to an observer having the wrong kind of nose its most conspicuous peculiarity is the smell of the several kinds of powder used in preparing it.
+ - Youth looks forward, for nothing is behind! Age backward, for nothing is before.
+ - The clarinet is a musical instrument the only thing worse than which is two.
+ - LUMINARY, One who throws light upon a subject; as an editor by not writing about it.
+ - Appetite, n. An instinct thoughtfully implanted by Providence as a solution to the labor question.
+ - A certain nervous disorder afflicting the young and inexperienced.
+ - Cribbage, n. A substitute for conversation among those to whom nature has denied ideas.
+ - CLOCK, n. A machine of great moral value to man, allaying his concern for the future by reminding him what a lot of time remains to him.
+ - NIHILIST, n. A Russian who denies the existence of anything but Tolstoi. The leader of the school is Tolstoi.
+ - UXORIOUSNESS, n. A perverted affection that has strayed to one’s own wife.
+ - BLANK-VERSE, n. Unrhymed iambic pentameters – the most difficult kind of English verse to write acceptably; a kind, therefore, much affected by those who cannot acceptably write any kind.
+ - Book – Learning : The dunce’s derisive term for all knowledge that transcends his own impertinent ignorance.
+ - CUNNING, n. The faculty that distinguishes a weak animal or person from a strong one. It brings its possessor much mental satisfaction and great material adversity. An Italian proverb says: “The furrier gets the skins of more foxes than asses.”
+ - WALL STREET, n. A symbol for sin for every devil to rebuke. That Wall Street is a den of thieves is a belief that serves every unsuccessful thief in place of a hope in Heaven.
+ - BAIT, n. A preparation that renders the hook more palatable. The best kind is beauty.
+ - MOUSE, n. An animal which strews its path with fainting women.
+ - WIDOW, n. A pathetic figure that the Christian world has agreed to take humorously, although Christ’s tenderness towards widows was one of the most marked features of his character.
+ - Cynic, n: a blackguard whose faulty vision sees things as they are, not as they ought to be.
+ - OBSTINATE, adj. Inaccessible to the truth as it is manifest in the splendor and stress of our advocacy.
+ - DIAGNOSIS, n. A physician’s forecast of disease by the patient’s pulse and purse.
+ - A wedding is a ceremony at which two persons undertake to become one, one undertakes to become nothing, and nothing undertakes to become supportable.
+ - Nothing is more logical than persecution. Religious tolerance is a kind of infidelity.
+ - The money-getter who pleads his love of work has a lame defense, for love of work at money-getting is a lower taste than love of money.
+ - DISCUSSION, n. A method of confirming others in their errors.
+ - Lawyer – One skilled in the circumvention of the law.
+ - MULTITUDE, n. A crowd; the source of political wisdom and virtue. In a republic, the object of the statesman’s adoration.
+ - ORTHODOX, n. An ox wearing the popular religious joke.
+ - Contempt; the feeling of a prudent man for an enemy who is too formidable safely to be opposed.
+ - The fact that boys are allowed to exist at all is evidence of a remarkable Christian forebearance among men.
+ - Appeal. In law, to put the dice into the box for another throw.
+ - HASH: There is no definition for this word – nobody knows what hash is.
+ - EXPOSTULATION, n. One of the many methods by which fools prefer to lose their friends.
+ - Debt, n. An ingenious substitute for the chain and whip of the slavedriver.
+ - RADIUM, n. A mineral that gives off heat and stimulates the organ that a scientist is a fool with.
+ - Brain: an apparatus with which we think we think.
+ - April fool, n. The March fool with another month added to his folly.
+ - POLICE, n. An armed force for protection and participation.
+ - Inventor: A person who makes an ingenious arrangement of wheels, levers and springs, and believes it civilization.
+ - BODY-SNATCHER, n. A robber of grave-worms. One who supplies the young physicians with that with which the old physicians have supplied the undertaker.
+ - Kindness n: A brief preface to ten volumes of exaction.
+ - Hypocrisy: prejudice with a halo.
+ - Religions are conclusions for which the facts of nature supply no major premises.
+ - MISERICORDE, n. A dagger which in mediaeval warfare was used by the foot soldier to remind an unhorsed knight that he was mortal.
+ - PROBOSCIS, n. The rudimentary organ of an elephant which serves him in place of the knife-and-fork that Evolution has as yet denied him. For purposes of humor it is popularly called a trunk.
+ - True, man does not know woman. But neither does woman.
+ - The Senate is a body of old men charged with high duties and misdemeanors.
+ - IDLENESS, n. A model farm where the devil experiments with seeds of new sins and promotes the growth of staple vices.
+ - Creditor. One of a tribe of savages dwelling beyond the Financial Straits and dreaded for their desolating incursions.
+ - HUSBAND, n. One who, having dined, is charged with the care of the plate.
+ - IGNORAMUS, n. A person unacquainted with certain kinds of knowledge familiar to yourself, and having certain other kinds that you know nothing about.
+ - Conservative, n: A statesman who is enamored of existing evils, as distinguished from the Liberal who wishes to replace them with others.
+ - Every heart is the lair of a ferocious animal. The greatest wrong that you can put upon a man is to provoke him to let out his beast.
+ - Heathen, n. A benighted creature who has the folly to worship something that he can see and feel.
+ - Hope is desire and expectation rolled into one.
+ - VANITY, n. The tribute of a fool to the worth of the nearest ass.
+ - FROG, n. A reptile with edible legs.
+ - While your friend holds you affectionately by both your hands, you are safe, for you can watch both his.
+ - Bride: A woman with a fine prospect of happiness behind her.
+ - To Dogmatism the Spirit of Inquiry is the same as the Spirit of Evil.
+ - Something that is supposed to typify or stand for something else. Many symbols are mere “survivals” – as funereal urns carved on memorial monuments. We cannot stop making them, but we can give them a name that conceals our helplessness.
+ - Eloquence, n. The art of orally persuading fools that white is the color that it appears to be. It includes the gift of making any color appear white.
+ - Year: A period of three hundred and sixty-five disappointments.
+ - ACCOUNTABILITY, n. The mother of caution.
+ - RIBALDRY, n. Censorious language by another concerning oneself.
+ - INK, n. A villainous compound of tannogallate of iron, gum-arabic, and water, chiefly used to facilitate the infection of idiocy and promote intellectual crime.
+ - ULTIMATUM, n. In diplomacy, a last demand before resorting to concessions.
+ - Advice, the smallest current coin.
+ - MONKEY, n. An arboreal animal which makes itself at home in genealogical trees.
+ - Fear has no brains; it is an idiot.
+ - THEOSOPHY, n. An ancient faith having all the certitude of religion and all the mystery of science.
+ - Infidel, n. In New York, one who does not believe in the Christian religion; in Constantinople, one who does.
+ - POCKET, n. The cradle of motive and the grave of conscience. In woman this organ is lacking; so she acts without motive, and her conscience, denied burial, remains ever alive, confessing the sins of others.
+ - Glutton- A person who escapes the evils of moderation by committing dyspepsia.
+ - Take not God’s name in vain; select a time when it will have effect.
+ - Turkey: A large bird whose flesh, when eaten on certain religious anniversaries has the peculiar property of attesting piety and gratitude.
+ - Revolution, n. In politics, an abrupt change in the form of misgovernment.
+ - RECREATION, n. A particular kind of dejection to relieve a general fatigue.
+ - KING, n. A male person commonly known in America as a “crowned head,” although he never wears a crown and has usually no head to speak of.
+ - READING, n. The general body of what one reads. In our country it consists, as a rule, of Indiana novels, short stories in “dialect” and humor in slang.
+ - If you would be accounted great by your contemporaries, be not too much greater than they.
+ - Admiral. That part of a warship which does the talking while the figurehead does the thinking.
+ - Consul – in American politics, a person who having failed to secure an office from the people is given one by the Administration on condition that he leave the country.
+ - TAIL, n. The part of an animal’s spine that has transcended its natural limitations to set up an independent existence in a world of its own.
+ - STORY, n. A narrative, commonly untrue. The truth of the stories here following has, however, not been successfully impeached.
+ - CLERGYMAN, n. A man who undertakes the management of our spiritual affairs as a method of better his temporal ones.
+ - RUIN, v. To destroy. Specifically, to destroy a maid’s belief in the virtue of maids.
+ - ETHNOLOGY, n. The science that treats of the various tribes of Man, as robbers, thieves, swindlers, dunces, lunatics, idiots and ethnologists.
+ - In this world one must have a name; it prevents confusion, even when it does not establish identity. Some, though, are known by numbers, which also seem inadequate distinctions.
+ - MAMMON, n. The god of the world’s leading religion. The chief temple is in the holy city of New York.
+ - LECTURER, n. One with his hand in your pocket, his tongue in your ear and his faith in your patience.
+ - PICKANINNY, n. The young of the “Procyanthropos”, or “Americanus dominans”. It is small, black and charged with political fatalities.
+ - Even the laws of justice themselves cannot subsist without mixture of injustice.
+ - IMBECILITY, n. A kind of divine inspiration, or sacred fire affecting censorious critics of this dictionary.
+ - Age – That period of life in which we compound for the vices that remain by reviling those we have no longer the vigor to commit.
+ - NOISE, n. A stench in the ear. Undomesticated music. The chief product and authenticating sign of civilization.
+ - PANDEMONIUM, n. Literally, the Place of All the Demons. Most of them have escaped into politics and finance, and the place is now used as a lecture hall by the Audible Reformer.
+ - An aged Burgundy runs with a beardless Port. I cherish the fancy that Port speaks sentences of wisdom, Burgundy sings the inspired Ode.
+ - Day, n. A period of twenty-four hours, mostly misspent.
+ - Fashion, n. A despot whom the wise ridicule and obey.
+ - TELESCOPE, n. A device having a relation to the eye similar to that of the telephone to the ear, enabling distant objects to plague us with a multitude of needless details. Luckily it is unprovided with a bell summoning us to the sacrifice.
+ - X, n. In our alphabet being a needless letter has an added invincibility to the attacks of the spelling reformers, and like them, will doubtless last as long as the language.
+ - INFALAPSARIAN, n. One who ventures to believe that Adam need not have sinned unless he had a mind to – in opposition to the Supralapsarians, who hold that that luckless person’s fall was decreed from the beginning.
+ - REPARTEE, n. Prudent insult in retort. Practiced by gentlemen with a constitutional aversion to violence, but a strong disposition to offend. In a war of words, the tactics of the North American Indian.
+ - NEWTONIAN, Pertaining to a philosophy of the universe invented by Newton, who discovered that an apple will fall to the ground, but was unable to say why. His successors and disciples have advanced so far as to be able to say when.
+ - Dawn: When men of reason go to bed.
+ - ELEGY, n. A composition in verse, in which, without employing any of the methods of humor, the writer aims to produce in the reader’s mind the dampest kind of dejection.
+ - OBLIVION, n. Cold storage for high hopes. A place where ambitious authors meet their works without pride and their betters without envy. A dormitory without an alarm clock.
+ - Calamities are of two kinds: misfortunes to ourselves, and good fortune to others.
+ - REFERENDUM, n. A law for submission of proposed legislation to a popular vote to learn the nonsensus of public opinion.
+ - An auctioneer is a man who proclaims with a hammer that he has picked a pocket with his tongue.
+ - PITY, n. A failing sense of exemption, inspired by contrast.
+ - Crowned with leaves of the laurel. In England the Poet Laureate is an officer of the sovereign’s court, acting as dancing skeleton at every royal feast and singing-mute at every royal funeral.
+ - A penny saved is a penny to squander.
+ - Nominee. A modest gentleman shrinking from the distinction of private life and diligently seeking the honorable obscurity of public office.
+ - TRUST, n. In American politics, a large corporation composed in greater part of thrifty working men, widows of small means, orphans in the care of guardians and the courts, with many similar malefactors and public enemies.
+ - A king’s staff of office, the sign and symbol of his authority. It was originally a mace with which the sovereign admonished his jester and vetoed ministerial measures by breaking the bones of their proponents.
+ - War: A by-product of the arts of peace.
+ - GOOD, adj. Sensible, madam, to the worth of this present writer. Alive, sir, to the advantages of letting him alone.
+ - OPIATE, n. An unlocked door in the prison of Identity. It leads into the jail yard.
+ - Insurance – an ingenious modern game of chance in which the player is permitted to enjoy the comfortable conviction that he is beating the man who keeps the table.
+ - Idiot, n. A member of a large and powerful tribe whose influence in human affairs has always been dominant and controlling.
+ - Optimism – the doctrine or belief that everything is beautiful, including what is ugly.
+ - Duck-bill, n. Your account at your restaurant during the canvas-back season.
+ - A cheap and easy cynicism rails at everything. The master of the art accomplishes the formidable task of discrimination.
+ - Coronation: The ceremony of investing a sovereign with the outward and visible signs of his divine right to be blown skyhigh with a dynamite bomb.
+ - PRICE, n. Value, plus a reasonable sum for the wear and tear of conscience in demanding it.
+ - A popular vote to ascertain the will of the sovereign.
+ - Deliberation, n.: The act of examining one’s bread to determine which side it is buttered on.
+ - MACE, n. A staff of office signifying authority. Its form, that of a heavy club, indicates its original purpose and use in dissuading from dissent.
+ - PREHISTORIC, adj. Belonging to an early period and a museum. Antedating the art and practice of perpetuating falsehood.
+ - TEETOTALER, n. One who abstains from strong drink, sometimes totally, sometimes tolerably totally.
+ - An army’s bravest men are its cowards. The death which they would not meet at the hands of the enemy they will meet at the hands of their officers, with never a flinching.
+ - Here’s to woman! Would that we could fold into her arms without falling into her hands.
+ - Politics: A strife of interests masquerading as a contest of principles. The conduct of public affairs for private advantage.
+ - A total abstainer is one who abstains from everything but abstention, and especially from inactivity in the affairs of others.
+ - OLD, adj. In that stage of usefulness which is not inconsistent with general inefficiency, as an “old man”. Discredited by lapse of time and offensive to the popular taste, as an “old” book.
+ - A statesman who shakes the fruit trees of his neighbors – to dislodge the worms.
+ - Genealogy, n. An account of one’s descent from a man who did not particularly care to trace his own.
+ - NECTAR, n. A drink served at banquets of the Olympian deities. The secret of its preparation is lost, but the modern Kentuckians believe that they come pretty near to a knowledge of its chief ingredient.
+ - PRISON, n. A place of punishments and rewards. The poet assures us that – stone walls do not a prison make.
+ - Cynicism is that blackguard defect of vision which compels us to see the world as it is, instead of as it should be.
+ - Success is the one unpardonable sin against our fellows.
+ - YANKEE, n. In Europe, an American. In the Northern States of our Union, a New Englander. In the Southern States the word is unknown.
+ - TABLE D’HOTE, n. A caterer’s thrifty concession to the universal passion for irresponsibility.
+ - A bird in the hand is worth what it will bring.
+ - ARSENIC, n. A kind of cosmetic greatly affected by the ladies, whom it greatly affects in turn.
+ - Insurrection. An unsuccessful revolution; disaffection’s failure to substitute misrule for bad government.
+ - An old wine-bibber having been smashed in a railway collision, some wine was poured on his lips to revive him.
+ - Women in love are less ashamed than men. They have less to be ashamed of.
+ - COMMENDATION n. The tribute that we pay to achievements that resembles but do not equal our own.
+ - An election is nothing more than the advanced auction of stolen goods.
+ - Ambition. An overmastering desire to be vilified by enemies while living and made ridiculous by friends when dead.
+ - MUSTANG, n. An indocile horse of the western plains. In English society, the American wife of an English nobleman.
+ - Condole – to show that bereavement is a smaller evil than sympathy.
+ - HATRED, n. A sentiment appropriate to the occasion of another’s superiority.
+ - Nature’s fortuitous manifestation of her purposeless objectionableness.
+ - DIARY, n. A daily record of that part of one’s life, which he can relate to himself without blushing.
+ - TRUCE, n. Friendship.
+ - CONGRESS, n. A body of men who meet to repeal laws.
+ - NEIGHBOR, n. One whom we are commanded to love as ourselves, and who does all he knows how to make us disobedient.
+ - Self-evident, adj. Evident to one’s self and to nobody else.
+ - PARDON, v. To remit a penalty and restore to the life of crime. To add to the lure of crime the temptation of ingratitude.
+ - Love: A temporary insanity curable by marriage.
+ - PLENIPOTENTIARY, adj. Having full power. A Minister Plenipotentiary is a diplomatist possessing absolute authority on condition that he never exert it.
+ - Erudition – dust shaken out of a book into an empty skull.
+ - When in Rome, do as Rome does.
+ - Marriage, n: the state or condition of a community consisting of a master, a mistress, and two slaves, making in all, two.
+ - The poor man’s price of admittance to the favor of the rich is his self-respect.
+ - Heaven: A place where the wicked cease from troubling you with talk of their personal affairs, and the good listen with attention while you expound on yours.
+ - MERCY, n. An attribute beloved of detected offenders.
+ - UNDERSTANDING, n. A cerebral secretion that enables one having it to know a house from a horse by the roof on the house. Its nature and laws have been exhaustively expounded by Locke, who rode a house, and Kant, who lived in a horse.
+ - Abstainer: a weak person who yields to the temptation of denying himself a pleasure.
+ - Painting, n.: The art of protecting flat surfaces from the weather, and exposing them to the critic.
+ - Who never doubted, never half believed. Where doubt is, there truth is – it is her shadow.
+ - Inhumanity, n. One of the signal and characteristic qualities of humanity.
+ - OPERA, n. A play representing life in another world, whose inhabitants have no speech but song, no motions but gestures and no postures but attitudes.
+ - MUGWUMP, n. In politics one afflicted with self-respect and addicted to the vice of independence. A term of contempt.
+ - NOUMENON, n. That which exists, as distinguished from that which merely seems to exist, the latter being a phenomenon. The noumenon is a bit difficult to locate; it can be apprehended only by a process of reasoning – which is a phenomenon.
+ - VITUPERATION, n. Saite, as understood by dunces and all such as suffer from an impediment in their wit.
+ - REVOLUTION, n. A bursting of the boilers which usually takes place when the safety valve of public discussion is closed.
+ - A miracle is an act or event out of the order of nature and unaccountable, as beating a normal hand of four kings and an ace with four aces and a king.
+ - Bigot: One who is obstinately and zealously attached to an opinion that you do not entertain.
+ - FREEBOOTER, n. A conqueror in a small way of business, whose annexations lack of the sanctifying merit of magnitude.
+ - LIFE, n. A spiritual pickle preserving the body from decay. We live in daily apprehension of its loss; yet when lost it is not missed.
+ - The partisan strife in which the people of the country are permitted to periodically engage does not tend to the development of ugly traits of character, but merely discloses those that preexist.
+ - POETRY, n. A form of expression peculiar to the Land beyond the Magazines.
+ - Alligator: The crocodile of America, superior in every detail to the crocodile of the effete monarchies of the Old World.
+ - Cabbage: a familiar kitchen-garden vegetable about as large and wise as a man’s head.
+ - OBLIVION, n. The state or condition in which the wicked cease from struggling and the dreary are at rest. Fame’s eternal dumping ground.
+ - WOMAN, n. An animal usually living in the vicinity of Man, and having a rudimentary susceptibility to domestication.
+ - Magpie, n.: A bird whose theivish disposition suggested to someone that it might be taught to talk.
+ - PIANO, n. A parlor utensil for subduing the impenitent visitor. It is operated by pressing the keys of the machine and the spirits of the audience.
+ - CENTAUR, n. One of a race of persons who lived before the division of labor had been carried to such a pitch of differentiation, and who followed the primitive economic maxim, “Every man his own horse.”
+ - Sweater, n.: garment worn by child when its mother is feeling chilly.
+ - Scriptures – The sacred books of our holy religion, as distinguished from the false and profane writings on which all other faiths are based.
+ - IMPOSTOR n. A rival aspirant to public honors.
+ - Distress: A disease incurred by exposure to the prosperity of a friend.
+ - SEINE, n. A kind of net for effecting an involuntary change of environment. For fish it is made strong and coarse, but women are more easily taken with a singularly delicate fabric weighted with small, cut stones.
+ - Peace in international affairs: a period of cheating between periods of fighting.
+ - AFFLICTION, n. An acclimatizing process preparing the soul for another and bitter world.
+ - Funeral: a pageant whereby we attest our respect for the dead by enriching the undertaker, and strengthen our grief by an expenditure that deepens our groans and doubles our tears.
+ - Justice is a commodity which in a more or less adulterated condition the State sells to the citizen as a reward for his allegiance, taxes and personal service.
+ - An egotist is a person of low taste – more interested in himself than in me.
+ - LEXICOGRAPHER, n. A pestilent fellow who, under the pretense of recording some particular stage in the development of a language, does what he can to arrest its growth, stiffen its flexibility and mechanize its methods.
+ - YOUTH, n. The Period of Possibility, when Archimedes finds a fulcrum, Cassandra has a following and seven cities compete for the honor of endowing a living Homer.
+ - The wife, or bitter half.
+ - An ingenious compound of desirability and appearance. Discovery of truth is the sole purpose of philosophy, which is the most ancient occupation of the human mind and has a fair prospect of existing with increasing activity to the end of time.
+ - KILT, n. A costume sometimes worn by Scotchmen in America and Americans in Scotland.
+ - Truth – An ingenious compound of desirability and appearance.
+ - Liar: A lawyer with a roving commission.
+ - DEJEUNER, n. The breakfast of an American who has been in Paris. Variously pronounced.
+ - In the algebra of psychology, X stands for a woman’s heart.
+ - REPORTER, n. A writer who guesses his way to the truth and dispels it with a tempest of words.
+ - FIDDLE, n. An instrument to tickle human ears by friction of a horse’s tail on the entrails of a cat.
+ - HUMORIST, n. A plague that would have softened down the hoar austerity of Pharaoh’s heart and persuaded him to dismiss Israel with his best wishes, cat-quick.
+ - COMFORT, n. A state of mind produced by contemplation of a neighbor’s uneasiness.
+ - FICKLENESS, n. The iterated satiety of an enterprising affection.
+ - LIVER, n. A large red organ thoughtfully provided by nature to be bilious with. The liver is heaven’s best gift to the goose; without it that bird would be unable to supply us with the Strasbourg “pate”.
+ - Scribbler, n. A professional writer whose views are antagonistic to one’s own.
+ - Academe, n.: An ancient school where morality and philosophy were taught. Academy, n.: A modern school where football is taught.
+ - A short story padded. A species of composition bearing the same relation to literature that the panorama bears to art. As it is too long to be read at a sitting the impressions made by its successive parts are successively effaced, as in the pa.
+ - IMPROVIDENCE, n. Provision for the needs of to-day from the revenues of to-morrow.
+ - SIREN, n. One of several musical prodigies famous for a vain attempt to dissuade Odysseus from a life on the ocean wave. Figuratively, any lady of splendid promise, dissembled purpose and disappointing performance.
+ - The most affectionate creature in the world is a wet dog.
+ - Noise: a stench in the ear.
+ - DECALOGUE, n. A series of commandments, ten in number – just enough to permit an intelligent selection for observance, but not enough to embarrass the choice.
+ - Income is the natural and rational gauge and measure of respectability.
+ - OBSERVATORY, n. A place where astronomers conjecture away the guesses of their predecessors.
+ - REPRESENTATIVE, n. In national politics, a member of the Lower House in this world, and without discernible hope of promotion in the next.
+ - Absence blots people out. We really have no absent friends.
+ - Inexpedient: Not calculated to advance one’s interests.
+ - LEAD, n. A heavy blue-gray metal much used in giving stability to light lovers – particularly to those who love not wisely but other men’s wives.
+ - Aristocrats: n. fellows that wear downy hats and clean shirts – guilty of education and suspected of bank accounts.
+ - RACK, n. An argumentative implement formerly much used in persuading devotees of a false faith to embrace the living truth. As a call to the unconverted the rack never had any particular efficacy, and is now held in light popular esteem.
+ - To be comic is merely to be playful, but wit is a serious matter. To laugh at it is to confess that you do not understand.
+ - Religion. A daughter of Hope and Fear, explaining to Ignorance the nature of the Unknowable.
+ - INCOMPOSSIBLE, adj. Unable to exist if something else exists. Two things are incompossible when the world of being has scope enough for one of them, but not enough for both – as Walt Whitman’s poetry and God’s mercy to man.
+ - When lost in a forest go always down hill. When lost in a philosophy or doctrine go upward.
+ - Children who have proven themselves to be incorrigible by the age of twelve should be quickly and quietly beheaded, lest they grow to maturity, marry, and perpetuate the likeness of their being.
+ - ADDER, n. A species of snake. So called from its habit of adding funeral outlays to the other expenses of living.
+ - NOMINATE, v. To designate for the heaviest political assessment. To put forward a suitable person to incur the mudgobbling and deadcatting of the opposition.
+ - EMOTION, n. A prostrating disease caused by a determination of the heart to the head. It is sometimes accompanied by a copious discharge of hydrated chloride of sodium from the eyes.
+ - PANTOMIME, n. A play in which the story is told without violence to the language. The least disagreeable form of dramatic action.
+ - UBIQUITY, n. The gift or power of being in all places at one time, but not in all places at all times, which is omnipresence, an attribute of God and the luminiferous ether only.
+ - Gout, a physician’s name for the rheumatism of a rich patient.
+ - Coward: One who, in a perilous emergency, thinks with his legs.
+ - Aborigines, n.: Persons of little worth found cumbering the soil of a newly discovered country. They soon cease to cumber; they fertilize.
+ - CARNIVOROUS, adj. Addicted to the cruelty of devouring the timorous vegetarian, his heirs and assigns.
+ - GENEROUS, adj. Originally this word meant noble by birth and was rightly applied to a great multitude of persons. It now means noble by nature and is taking a bit of a rest.
+ - Birth: The first and direst of all disasters.
+ - A person of greater enterprise than discretion, who in embracing an opportunity has formed an unfortunate attachment.
+ - Habit: A shackle for the free.
+ - INDISCRETION, n. The guilt of woman.
+ - An archbishop is an ecclesiastical dignitary one point holier than a bishop.
+ - Quill: An instrument of torture yielded by a goose and commonly weilded by as ass.
+ - When among the graves of thy fellows, walk with circumspection; thine own is open at thy feet.
+ - Kiss. n. A word invented by the poets as a rhyme for “bliss”.
+ - I keep a conscience uncorrupted by religion, a judgment undimmed by politics and patriotism, a heart untainted by friendships and sentiments unsoured by animosities.
+ - PREFERENCE, n. A sentiment, or frame of mind, induced by the erroneous belief that one thing is better than another.
+ - REVEILLE, n. A signal to sleeping soldiers to dream of battlefields no more, but get up and have their blue noses counted.
+ - Slang is the speech of him who robs the literary garbage carts on their way to the dumps.
+ - JOSS-STICKS- Small sticks burned by the Chinese in their pagan tomfoolery, in imitation of certain sacred rites of our holy religion.
+ - RICH, adj. Holding in trust and subject to an accounting the property of the indolent, the incompetent, the unthrifty, the envious and the luckless.
+ - Experience is a revelation in the light of which we renounce our errors of youth for those of age.
+ - PRESENTABLE, adj. Hideously appareled after the manner of the time and place.
+ - PHOTOGRAPH, n. A picture painted by the sun without instruction in art. It is a little better than the work of an Apache, but not quite so good as that of a Cheyenne.
+ - Distance, n. The only thing that the rich are willing for the poor to call theirs and keep.
+ - The best kind of onion soup is the simplest kind.
+ - OYSTER, n. A slimy, gobby shellfish which civilization gives men the hardihood to eat without removing its entrails! The shells are sometimes given to the poor.
+ - A man is the sum of his ancestors; to reform him you must begin with a dead ape and work downward through a million graves.
+ - TRUTHFUL, adj. Dumb and illiterate.
+ - A less popular name for the Second Person of that delectable newspaper Trinity, the Roomer, the Bedder, and the Mealer.
+ - Mad, adj. Affected with a high degree of intellectual independence.
+ - Litigation: A machine which you go into as a pig and come out of as a sausage.
+ - MINISTER, n. An agent of a higher power with a lower responsibility. In diplomacy, an officer sent into a foreign country as the visible embodiment of his sovereign’s hostility.
+ - PROPHECY, n. The art and practice of selling one’s credibility for future delivery.
+ - Rome has seven sacraments, but the Protestant churches, being less prosperous, feel that they can afford only two, and these of inferior sanctity.
+ - Example is better than following it.
+ - What is worth doing is worth the trouble of asking somebody to do it.
+ - Fear has no brains; it is an idiot. The dismal witness that it bears and the cowardly counsel that it whispers are unrelated.
+ - Amnesty, n. The state’s magnanimity to those offenders whom it would be too expensive to punish.
+ - San Francisco is the place where most people were last seen.
+ - FIB, n. A lie that has not cut its teeth. An habitual liar’s nearest approach to truth: the perigee of his eccentric orbit.
+ - SATIETY, n. The feeling that one has for the plate after he has eaten its contents, madam.
+ - I think love is the most unbelievable, and critical, thing in civilization. Everything else is very mechanical and predictable, but love, you can’t catch it.
+ - Along the road of life are many pleasure resorts, but think not that by tarrying in them you will take more days to the journey. The day of your arrival is already recorded.
+ - Dictionary: a malevolent literary device for cramping the growth of a language and making it hard and inelastic.
+ - Eulogy. Praise of a person who has either the advantages of wealth and power, or the consideration to be dead.
+ - The creator and arbiter of beauty is the heart; to the male rattlesnake the female rattlesnake is the loveliest thing in nature.
+ - When prosperous the fool trembles for the evil that is to come; in adversity the philosopher smiles for the good that he has had.
+ - SARCOPHAGUS, n. Among the Greeks a coffin which being made of a certain kind of carnivorous stone, had the peculiar property of devouring the body placed in it.
+
+500 quotes

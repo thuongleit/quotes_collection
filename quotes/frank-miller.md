@@ -1,0 +1,64 @@
+ - A man without hope is a man without fear.
+ - The noir hero is a knight in blood caked armor. He’s dirty and he does his best to deny the fact that he’s a hero the whole time.
+ - The world doesn’t make sense until you force it to.
+ - I’m the goddamn Batman.
+ - An old man dies, a little girl lives. Fair trade.
+ - Superman punched out Hitler. So did Captain America. That’s one of the things they’re there for.
+ - DWIGHT: Stay smart. Stay cool. It’s time to prove to you’re friends that you’re worth a damn. Sometimes that means dying. Sometimes it means killing a whole lot of people.
+ - I prefer to write and draw in the privacy of my home and with total freedom and then take it to the lion’s den.
+ - Of course we’re Criminals.
+ - The day you write to please everyone you no longer are in journalism. You are in show business.
+ - Sometimes the solitary voice can be the best one.
+ - My Sin City heroes are knights in dirty, blood-caked armor. They bring justice to a world that gives them no medals, no praise, no reward. That world, that city, often kills them for their brave service.
+ - Hell’s waking up every goddamn day and not even knowing why you’re here.
+ - I check the list. Rubber tubing, gas, saw, gloves, cuffs, razor wire, hatchet, Gladys, and my mitts.
+ - You can never escape me. Bullets don’t harm me. Nothing harms me. But I know pain. I KNOW pain. Sometimes I share it. With someone like you.
+ - The American conscience died with the Kennedys.
+ - Hello, I’m Shellie’s new boyfriend and I’m out of my mind. If you so much as talk to her or even think her name, I’ll cut you in ways that’ll make you useless to a woman.
+ - I’m a comic book artist. So I think to myself, what do I like to draw? I like to draw hot chicks, fast cars and cool guys in trench coats. So that’s what I write about.
+ - She doesn’t quite chop his head off. She makes a Pez dispenser out of him.
+ - Gotham City. Clean shafts of concrete and snowy rooftops. The work of men who died generations ago. From here, it looks like an achievement. From here, you can’t see the enemy.
+ - The rain on my chest is a baptism – I’m born again.
+ - The fundament of a superhero is the guy in tights saving innocent people from bad things. It’s amazing how infrequently that seems to happen in superhero comics these days.
+ - Deadly little Miho. She won’t let you feel a thing unless she wants you to. She twists the blade. He feels it.
+ - People are attempting to bring a superficial reality to superheroes which is rather stupid. They work best as the flamboyant fantasies they are. I mean, these are characters that are broad and big. I don’t need to see sweat patches under Superman’s arms. I want to see him fly.
+ - When you have a brush in your hand, inking a beautiful woman is a lot like running your hands over her.
+ - My feeling is that the hero has now been defined by phrases like the odious one that we were all raised with – crimes does not pay. Of course it pays, you schmuck. That’s not why we don’t do it. We don’t do it because it is wrong.
+ - Comic-book pages are vertical, and movie screens are relentlessly horizontal. But it’s all the same form. We use different tools, but we get the job done. I’m completely in love with CGI. It’s great for conveying a cartoonist’s sense of reality.
+ - Mighty cultures never – are almost never conquered. They crumble from within. And frankly, I think that a lot of Americans are acting like spoiled brats because everything isn’t working out perfectly every time.
+ - A gun is a liar’s weapon.
+ - Alfred: Hmf. I suppose you’ll take up flying next, like that fellow in Metropolis.
+ - I don’t own an ounce of the work I’ve ever done on ‘Batman,’ and I still work on ‘Batman.’ I love the character, I think it’s a lot of fun, and it’s kind of fun to be in that ballpark every once in a while, where you’re seeing a different crowd.
+ - Nancy’s got a guardian angel. Seven feet plus of muscle and mayhem that goes by the name of Marv.
+ - News objectivity is a twentieth-century myth. We only complain about propaganda when we don’t agree with it.
+ - I take his weapons away from him. Both of them.
+ - When you think of what Americans accomplished, building these amazing cities and all the good it’s done in the world, it’s kind of disheartening to hear so much hatred of America, not just from abroad, but internally.
+ - It’s not movies and it’s not “fine art.” The beauty of a comic is that it’s clear, direct communication. My work is getting simpler and more cartoony because I’m much more interested in communication now than in any illustrative value.
+ - I can tell you squat about Islamism. But I know a lot about Al Quaeda, and they need to burn in hell.
+ - I guess in my own egotistical way I like to create my own library of Batman books that doesn’t run contrary to a single thing that has been published before, but it also stands on its own.
+ - I’ll make it. I won’t die. I’ve got too much I have to do to let myself die.
+ - I’m not going to complain about the fact that people are paying attention to my work. I suppose that wouldn’t be fair.
+ - What’s happened with computer technology is perfectly timed for someone with my set of skills. I tell stories with pictures. What I love about CGI is that if I can think it, it can be put on the screen.
+ - When I’m writing a comic book, I’m thinking about a character that I’m going to be drawing on the page. I’ve never drawn a character to look like who I want to cast in a movie because I don’t think that way. I’m a real monomaniac. I do one thing at a time.
+ - I was always into noir. When I lived in Vermont I was drawing stuff that looked like an amateur doing Sin City. When I first got to New York I was swiftly informed that they only did guys in tights.
+ - In the world of comic books, “troublemaker” means someone who has some sense of dignity.
+ - Comics are so full of amazing work. And I can’t look at a drawing of a woman without thinking of, for instance, Wallace Wood and his amazing way of capturing beauty.
+ - As a cartoonist, I’m a caricaturist. First you find out what somebody really looks like, and then you find out what they ‘really’ look like.
+ - A screenwriter is much like being a fire hydrant with a bunch of dogs lined up around it.
+ - When you got a condition, it’s bad to forget your medicine.
+ - Hollywood is a town; it’s not a medium. And cinema is a medium you can practice anywhere.
+ - In the comic-book world, there tends to be an overblown sense of tradition. Bad habits die hard. There are ways I think the form could work more effectively if we lost the bad habits that were created before we were born.
+ - I think most things I read on the Internet and in newspapers are propaganda. Everyone from the ‘New York Times’ to Rupert Murdoch has a point of view and is putting forth their own propaganda. They’re stuck with the facts as they are, but the way they interpret and frame them is wildly different.
+ - I realized that I was about to turn 30, and Batman was permanently 29. And I was going to be damned if I was older than Batman.
+ - I grew up on the crime stuff. Spillane, Chandler, Jim Thompson, and noir movies like Fuller, Orson Welles, Fritz Lang. When I first showed up in New York to write comics back in the late 1970s, I came with a bunch of crime stories but everybody just wanted men in tights.
+ - I find that if somebody is writing and drawing a comic book, planning it to be a movie and a game at the same time tends to lead to a pretty lame job.
+ - The most questionable thing I did was make Superman a government agent. If this had been a Superman story, I’d never have done that – and I know that, because I have a Superman story I want to tell someday. In this story, Batman was the hero, so the world was built around him.
+ - Think of me as the weathered sheriff coming back into Dodge ’cause the youngsters are shooting up the church and scaring the horses and not doing right by the women.
+ - I don’t do a comic book thinking there is a movie. I just want it to be as good a comic book as it can be.
+ - What I want to bring back to superheroes with this project is a sense of play. Things have gotten so dreary. The heroes have gotten so ugly that even their muscles have muscles.
+ - I moved to New York and was told, “Go back home. We don’t need you. Go pump gas. You’re from Vermont. We’ve got no use for you. You’re not drawing guys in tights.” So, I learned how to draw guys in tights, and I put them in as many crime situations as I could.
+ - The larger-than-life thing is definitely what I’m after. I’ve always drawn dark stories. Occasionally, I’ll try a perfect hero, but it’s a real stretch for me. I like ’em warts and all, and obsessive and weird.
+ - But I’m not trying to convince anybody how to vote or how to live. Nobody’s ever successfully accused me of being realistic.
+ - The Dark Knight series is all from Batman’s point of view. But if you look at Dark Knight 2, you’ll see a Superman who’s much calmer than the one in the first Dark Knight. Batman and Superman are dead opposites. I love Superman. Do I love Batman more? They’re not people. They’re only lines on paper.
+
+62 quotes

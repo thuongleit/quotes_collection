@@ -1,0 +1,87 @@
+ - Love is like the rain. It comes in a drizzle sometimes. Then it starts pouring and if you’re not careful it will drown you.
+ - They say behind mountains are more mountains.
+ - You learned in school that you have pencils and paper only because the trees gave themselves in unconditional sacrifice.
+ - Anger is a wasted emotion.
+ - People are just too hopeful, and sometimes hope is the biggest weapon of all to use against us. People will believe anything.
+ - Being a shy child, I always longed for a mask. Even in my adult life, I have glasses, they are my mask.
+ - Art is a luxury but also a necessity.
+ - There is something human about the way people react to and identify with suffering. There’s a lot more empathy in the world than we perhaps realize.
+ - And the fact that Haiti was occupied for 19 years by the United States, from 1915 to 1934.
+ - It is the calm and silent waters that drown you.
+ - No one will love you more than you love your pain.
+ - I think we all wear some kind of mask. There are masks that shield us from others, but there are masks that embolden us, and you see that in carnival. The shiest child puts on a mask and can do anything and be anybody.
+ - I think novels just really show us the deepest parts of people’s hearts, and you cannot walk away anymore and say, “I don’t know.”
+ - When I meet people for the first time, I always put on my glasses because I feel like that’s a little something extra between me and them. It’s like the Laurence Dunbar poem “We Wear the Mask.”
+ - Vodou is one of the religions practiced in Haiti, a rich religion for the people.
+ - The people did not elect me. I speak with one voice that may echo other people, but I am part of a group of people. That’s not distancing yourself from a community, that’s also allowing the space for others to speak for themselves.
+ - Misery won’t touch you gentle. It always leaves its thumbprints on you; sometimes it leaves them for others to see, sometimes for nobody but you to know of.
+ - I come from a place where breath, eyes, and memory are one, a place from which you carry your past like a hair on your head. Where women return to their children as butterflies or as tears in the eyes of the statues that their daughters pray to.
+ - Life was neither something you defended by hiding nor surrendered calmly on other people’s terms, but something you lived bravely, out in the open, and that if you had to lose it, you should lose it on your own terms.
+ - I also know there are timeless waters, endless seas, and lots of people in this world whose names don’t matter to anyone but themselves. I look up at the sky and I see you there.
+ - All anyone can hope for is just a tiny bit of love, like a drop in a cup if you can get it, or a waterfall, a flood, if you can get that too.
+ - Pretend that this is a time of miracles and we believe in them.
+ - No, women like you don’t write. They carve onion sculptures and potato statues. They sit in dark corners and braid their hair in new shapes and twists in order to control the stiffness, the unruliness, the rebelliousness.
+ - These were our bedtime stories. Tales that haunted our parents and made them laugh at the same time. We never understood them until we were fully grown and they became our sole inheritance.
+ - The girl she said, I didn’t tell you this because it was a small thing, but little girls, they leave their hearts at home when they walk outside. Hearts are so precious. They don’t want to lose them.
+ - We need literature because we wouldn’t fully know ourselves without it. We need good literature to be fully human.
+ - We try to keep the beautiful memories, but other things from the past creep up on us.
+ - Napoleon had been fighting this army of slaves and free people in Haiti and it depleted his forces. And after the Revolution, when the French were driven out, they stopped and sold this big chunk of North America to the Americans for very little money.
+ - My models were oral, were storytellers. Like my grandmothers and my aunts. It’s true, a lot of people in my life were not literate in a formal sense, but they were storytellers. So I had this experience of just watching somebody spin a tale off the top of her head. I loved that.
+ - In Haiti you had the Duvaliers for 29 years and they were very well supported by the United States.
+ - Life’s hard in Haiti right now. And the hardest thing is that the future does not lie with one person.
+ - I very much love a physical book myself. I think people who have had this experience of also seeing a book come together, from sitting down and writing the first word, to holding the binding in your hand, we have a deeper sentimental attachment to it than others might.
+ - That has always been a strength of Haiti: Beyond crisis, it has beautiful art; it has beautiful music. But people have not heard about those as much as they heard about the coups and so forth. I always hope that the people who read me will want to learn more about Haiti.
+ - America’s relationship with Haiti has always been very complicated. I often say to people, “Before we came to America, America came to us in the form of the American occupation from 1915 to 1934.”
+ - We live now in a global culture where anything that happens in a place that’s 90 minutes from your shores really affects you.
+ - For the majority of the people it is a difficult place to live. That’s a reality that we can’t ignore. But there is also great beauty to it.
+ - I was neither doing these people nor myself a favor by showing up when my heart wasn’t in it. There were not getting the real me, the whole me, the true me.
+ - People who want alternative information have to try so hard to find it.
+ - The greatest gift anyone can give to a writer is time.
+ - People often think of Haiti as a place where you’re not supposed to have any joy. I wanted to show that this is a place with joy.
+ - People aren’t really aware of what’s happening in other places.
+ - The past is like the hair on our head. I moved to New York when I was twelve, but you always have this feeling that wherever you come from, you physically leave it, but it doesn’t leave you.
+ - Their Maker, she said, gives them the sky to carry because they are strong. These people do not know who they are, but if you see a lot of trouble in your life, it is because you were chosen to carry part of the sky on your head. -pg. 25.
+ - Especially moments when things are very difficult and complicated for me and I am still trying to grasp what is happening and I am still trying to understand and to reach family back home.
+ - I think Haiti is a place that suffers so much from neglect that people only want to hear about it when it’s at its extreme. And that’s what they end up knowing about it.
+ - After writing fiction for so long, I like the discovery element of nonfiction, in the sense that when you find the right information, it feels like gold.
+ - I would hate for people to generalize about every Haitian from something that one Haitian did, or a group of Haitians did.
+ - I see the sharp inequality between how Haitian and Cuban refugees are treated in Florida. Both groups come here because their lives are equally desperate. But on arrival, the Haitians are incarcerated, and some are immediately repatriated, whereas Cubans get to stay and are eligible for citizenship.
+ - Whole interaction between the storyteller and the listeners had a very powerful influence on me.
+ - I’m happy to be part of this chorus of people who are trying to tell more complex stories about Haiti.
+ - I’m just melancholy by nature, and a lot of that gets into my writing.
+ - There is a frustration too, that at moments when there’s not a coup, when there are not people in the streets, that the country disappears from people’s consciousness.
+ - I love the process of cracking the spine for the first time and slowly sinking into a book. That will soon seem old-fashioned, I’m sure, like the time of illuminated manuscripts.
+ - Creating these messes that go from administration to administration and then you swoop in and clean them up – with that heroic Delta force – people not realizing that they were always there but doing different things than what we see them doing at the moment.
+ - I remember reading an interview with a writer who said that in nonfiction if you have one lie it sort of messes it up. But in fiction the real details give you so much more credibility, because people do so much research just to write fiction. In fiction you’re trying to recreate something lifelike.
+ - When you are working on something, you have to believe that people will still be reading when you’re done!
+ - Wonderful thing about novels is that sometimes we read a novel and we know the person in the novel more than we know people in our own lives.
+ - Or even the state of Florida, where they are prepared to execute children. Umm, well, you hope that at least that there is something there to be claimed.
+ - I don’t know what will happen to the physical book and what it will mean for authors. I worry whether it will mean people can still make their careers this way. Will whatever comes next allow people to be able to own their ideas and be able to take time to develop them?
+ - It’s interesting to see people overcome things. Because if you didn’t overcome, you wouldn’t be writing it.
+ - I am very timid about speaking for the collective. I can say what I see, I can say what I’ve heard, I can say what I feel, but I can’t speak for – no one can speak for – 10 million people, and it takes away something from them if you make yourself their voice.
+ - The way the media cycle works, the way the news works, and the way people’s attention span works, is that we only learn that people exist when there is crisis.
+ - The more practice you have, the less stressful writing is.
+ - You have all these people in the city and everything has become centralized. If you live outside the city and you need a birth certificate or some official paper from the government, you have to travel to the city.
+ - I think it’s hard for an outsider to capture the flavor of a community and all its nuances, so ultimately Haitian-Americans need to start sharing intimate accounts of their stories.
+ - Even when I think of writing fiction, it’s being kind of a liar, a storyteller, a weaver, and there’s that sense of how much of this is your life. The story is a way you unravel your life from behind a mask.
+ - I was able to not fold and go in a corner because I had my writing as therapy, but also as my tool for struggle.
+ - People think that there is a country there that these people are only around when they are on CNN. I don’t think that’s limited to Haiti.
+ - To be able to create you have to have peace of mind on some level.
+ - I think it is important to reach people through arts and literature, because then you establish a connection that’s not an instant crisis.
+ - Once you’re involved in the work, it’s really just you and the characters and the words.
+ - Writing is the way I participate in the struggle.
+ - On some levels, you can also have this feeling that we are being duped, somehow. And that the world is at play for something you would understand more if it were pure ideology. It is a very strange time and also basic things are being taken away.
+ - We’ve had fiction from the time of cave drawings. I think fiction, storytelling, and narrative in general will always exist in some form.
+ - That’s whatever news topic, whatever political process any country is going through – whenever they are in the news, that’s when they exist. If you don’t see them they don’t exist.
+ - In terms of the idea of long-term occupation – I have been reading a little bit more about this period – and you can see in that occupation are many lessons for the current occupation of Iraq. So we have these connections that go way back that people aren’t aware of.
+ - Here, though, there is nothing. Nothing at all. The sky seems empty even when I am looking at the moon and stars.
+ - The Attorney General made another astonishing claim, that there were Pakistani terrorists possibly coming on these boats from Haiti. No one has ever seen a Pakistani coming on a boat from Haiti yet.
+ - I think all artists are looking for a subject or are sometimes unsure of their subject, but immigrant artists bring another culture to that and they bring also the place where the original culture meets the new culture.
+ - I think it’s hard to write a book about happiness because fiction requires tension and complication.
+ - To start with, for example this year, 2004, is the bicentennial of Haitian independence.
+ - More and more people are able to access information – thank goodness we have the Internet and if you are interested you can find things. Which is different than even 20 years ago.
+ - It’s hard to tell what people will do with the word and how they’ll be circulating it but I think the storytellers and the stories themselves will always be there.
+ - I hope to be a good role model for my daughters.
+ - I’m not saying Cubans don’t deserve asylum, but if it is a national security issue, there are people who are coming from Cuba on hijacked airplanes. Why isn’t that a national security issue?
+
+85 quotes

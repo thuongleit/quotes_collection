@@ -1,0 +1,29 @@
+ - Every experience makes you grow.
+ - It would be really wonderful if people connected to the loneliness of what it means to be a human being in the world today.
+ - As the only girl growing up among three brothers, I was always afraid of being excluded. If there was a game to be played, a sport to be learned, a competition to join, I was on my feet and ready. I didn’t spend much time alone for fear that I’d miss out.
+ - I don’t have high expectations anymore. Maybe they’ve just been beaten out of me.
+ - After Leaving Las Vegas I did assume that things would get a lot easier than they’ve been. But it’s just been a mirror of the way my career’s been from the beginning, so for it to have changed would have been strange. My career has never been perfect.
+ - I did ‘The Karate Kid,’ then I just went back to college. I didn’t know how much money it made and I didn’t have a publicist. I didn’t have any sense of the business part of it.
+ - Growing up with three boys in a heavily male-dominated world, I especially needed to express myself as a woman.
+ - I understand now that the vulnerability I’ve always felt is the greatest strength a person can have. You can’t experience life without feeling life. What I’ve learned is that being vulnerable to somebody you love is not a weakness, it’s a strength.
+ - I feel like my first conversation with someone, I really get a good feeling about who that person is and mainly about how open they are.
+ - I want to be involved with young people in some way. Teenagers. Because that’s the most vulnerable time. I have a fantasy of becoming a teacher one day.
+ - When you get into your 40s, it’s all about lighting. It’s hard. You have to face whether the way you look is your self-worth or not. Once you get beyond that, it’s all about what’s in your heart.
+ - I see myself at a certain age as not being able to play the kind of parts that would keep me stimulated, and I can’t imagine my life ending professionally the moment that I’ve got to go to the plastic surgeon and have my face rearranged.
+ - Almost six years ago, before I was given the incredible opportunity to be in ‘Leaving Las Vegas,’ I was going through a long period of artistic confusion. I’d spent years doing work that hadn’t pushed me enough, and I was beginning to wonder if I had any talent.
+ - I try really hard to give my kids as much independence as I can, caring mostly about their character: Are they kind? Generous? Do they work hard?
+ - People love to talk about how the ’70s are the only time they made movies about characters, and adult movies, and complicated people. But in the ’80s, they got away with some of those too.
+ - I became disconnected from the childlike play that art could be. I spent so much time fearing I wasn’t good enough that I lost the sense that my artistic expression was worthy.
+ - Robert Kennedy was such an inspiring figure. His interest in politics seemed to come not from a desire for power, but from a need to help our society live up to its ideals.
+ - I have worked with another first-time director who was not that open, and it was probably one of the worst experiences I ever had, so my antennas are really out.
+ - I spent my whole life trying to play the games males play.
+ - My mom had started to go to work when I was nine or ten, so I was aware of women trying to find their own identities by working. But I was still influenced by men to such an extreme. I wanted to play their games and wanted to compete in their world and be like them.
+ - Every film is a crapshoot. It’s a mystery when a movie comes together. I’ve never been able to figure it out. I don’t know how I make my choices. The only thing you can do is know there’s something about a character that you really want to experience.
+ - The darker, more complex and emotional the part is, the easier it is for me. But I don’t take any of that stuff home with me at the end of the day.
+ - Sometimes when I read about my rebellion in print it sounds a little overrated.
+ - It took a lot to get attention in my family. No wonder I’m an actress.
+ - For many years, I decided not to do television because I have three children, but now my youngest is finally old enough to be in kindergarten. So I’m not feeling that kind of tug of not being with her as much.
+ - After three major movies, I was like, ‘Oh, I guess you’re supposed to get a publicist?’ Girls that are in the business now that are successful are more savvy.
+ - I really love ‘Soapdish.’ I wish ‘Soapdish’ had more of a moment because I felt that that is a really strong, funny movie. Kevin Kline is hilarious in that movie.
+
+27 quotes

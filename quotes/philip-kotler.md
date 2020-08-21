@@ -1,0 +1,36 @@
+ - The best advertising is done by satisfied customers.
+ - Integrated marketing communications is a way of looking at the whole marketing process from the view point of the customer.
+ - Marketing takes a day to learn. Unfortunately, it takes a lifetime to master.
+ - Marketing is a race without a finishing line.
+ - The sales department isn’t the whole company, but the whole company better be the sales department.
+ - The art of marketing is the art of brand building. If you arenot a brand, you are a commodity. Then price is everything and the low-cost producer is the only winner.
+ - Today you have to run faster to stay in place.
+ - The successful salesperson cares first for the customer, second for the products.
+ - Every business is a service business. Does your service put a smile on the customer’s face?
+ - Authentic marketing is not the art of selling what you make but knowing what to make.
+ - Watch the product life cycle; but more important, watch the market life cycle.
+ - The most important thing is to forecast where customers are moving, and be in front of them.
+ - The theory of marketing is solid but the practice of marketing leaves much to be desired.
+ - It is no longer enough to satisfy your customers. You must delight them.
+ - Good companies will meet needs; great companies will create markets.
+ - Marketing is not the art of finding clever ways to dispose of what you make. It is the art of creating genuine customer value.
+ - Marketing is becoming a battle based on information than on sales power.
+ - There is only one winning strategy. It is to carefully define the target market and direct a superior offering to that target market.
+ - Authentic marketing is not the art of selling what you make but knowing what to make. It is the art of identifying and understanding customer needs and creating solutions that deliver satisfaction to the customers, profits to the producers and benefits for the stakeholders.
+ - Marketing is the set of human activities directed at facilitating and consummating exchanges.
+ - It is more important to do what is strategically right than what is immediately profitable.
+ - There is no such thing as a commodity. It is simply a product waiting to be differentiated.
+ - Poor firms ignore their competitors; average firms copy their competitors; winning firms lead their competitors.
+ - The best way to hold customers is to constantly figure out how to give them more for less.
+ - Today’s smart marketers don’t sell products; they sell benefit packages. They don’t sell purchase value only; they sell use value.
+ - The future isn’t ahead of us. It has already happened.
+ - Every company should work hard to obsolete its own product line – before its competitors do.
+ - Companies pay too much attention to the cost of doing something. They should worry more about the cost of not doing it.
+ - Competitive advantage is a companys ability to perform in one or more ways that competitors cannot or will not match.
+ - The key to branding, especially for smaller firms, is to focus on a limited number of issue areas and develop superb expertise in those areas.
+ - Don’t buy market share. Figure out how to earn it.
+ - Good customers are an asset which, when wellmanaged and served, will return a handsome lifetime income stream for the company.
+ - Your company does not belong inmarkets where it cannot be the best.
+ - The internet will create the winnerand bury the laggards.
+
+34 quotes

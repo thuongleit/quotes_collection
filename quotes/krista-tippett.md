@@ -1,0 +1,23 @@
+ - You can disagree with another person’s opinions. You can disagree with their doctrines. You can’t disagree with their experience.
+ - Fear usually looks like anger.
+ - Humanity needs this technology as much as it needs all other technologies that have now connected us and set before us the terrifying and wondrous possibility of actually becoming one human race.
+ - Intelligence alone does not get us where we need to go or even necessarily where we want to go. For that, the human creature must exercise harder-won capacities of wisdom, and wise action.
+ - Kindness is an everyday byproduct of all the great virtues.
+ - Compassion is a piece of vocabulary that could change us if we truly let it sink into the standards by which we hold ourselves and others.
+ - You are not going to be perfect every day. It’s about turning up the next day and doing it again.
+ - Compassion is a spiritual technology.
+ - How we carry what has gone wrong for us is essential to being at home in ourselves, and present to the world with all of its failings.
+ - The things that go wrong for you have a lot of potential to become part of your gift to the world.
+ - Buddhist mindfulness is about the present, but I also think its about being real. Being awake to everything. Feeling like nothing can hurt you if you can look it straight on.
+ - What a liberating thing to realize that our problems are probably our richest sources for rising to the ultimate virtue of compassion.
+ - Compassion also brings us into the territory of mystery – encouraging us not just to see beauty, but perhaps also to look for the face of God in the moment of suffering, in the face of a stranger, in the face of the vibrant religious other.
+ - In many ways, religion comes from the same place in us that art comes from. The language of the human heart if poetry.
+ - Einstein believed deeply that science should transcend national and ethnic divisions. But he watched physicists and chemists become the purveyors of weapons of mass destruction in the early 20th century.
+ - I had been a journalist in Europe and then went to divinity school in the early 1990s, and came out as somebody who had the perspective of a journalist and was now also theologically educated.
+ - If we cant face our losses, we cant be present either fully to everything that is. When people have cut off or not made peace with some part of themselves, they miss out on other aspects of life.
+ - If God is God, we cant be afraid of what we can learn.
+ - Tolerance is not really a lived virtue; it’s more of a cerebral ascent.
+ - For every shrill and violent voice that throws itself in front of microphones and cameras in the name of God, there are countless lives of gentleness and good works who will not. We need to see and hear them, as well, to understand the whole story of religion in our world.
+ - Structure is something that calms our nature; we know this of toddlers.
+
+21 quotes

@@ -1,0 +1,57 @@
+ - Truth does not change because it is, or is not, believed by a majority of the people.
+ - God is the universal substance in existing things. He comprises all things. He is the fountain of all being. In Him exists everything that is.
+ - I have declared infinite worlds to exist beside this our earth. It would not be worthy of God to manifest Himself in less than an infinite universe.
+ - I cleave the heavens and soar to the infinite. And while I rise from my own globe to others and penetrate ever further through the eternal field. That which others saw from afar, I leave far behind me.
+ - Maybe you who condemn me are in greater fear than I who am condemned.
+ - All things are in all.
+ - I beg you, reject antiquity, tradition, faith, and authority! Let us begin anew by doubting everything we assume has been proven!
+ - Perhaps your fear in passing judgement is greater than mine in receiving it.
+ - Time takes all and gives all.
+ - God is infinite, so His universe must be too. Thus is the excellence of God magnified and the greatness of His kingdom made manifest; He is glorified not in one, but in countless suns; not in a single earth, a single world, but in a thousand thousand, I say in an infinity of worlds.
+ - Nature is none other than God in all things.
+ - Time is the father of truth, its mother is our mind.
+ - Desire urges me on, while fear bridals me.
+ - Magicians can do more by means of faith than physicians by the truth.
+ - I await your sentence with less fear than you pass it. The time will come when all will see what I see.
+ - The Divine Light is always in man, presenting itself to the senses and to the comprehension, but man rejects it.
+ - I fought, and therefore, believed in my victory. There is more to the fact that I didn’t fear death and preferred a brave death instead of a life of an idiot.
+ - I who am in the night will move into the day.
+ - There is one basic cause of all effects.
+ - The wise soul feareth not death; rather she sometimes striveth for death, she goeth beyond to meet her. Yet eternity maintaineth her substance throughout time, immensity throughout space, universal form throughout motion.
+ - It may be you fear more to deliver judgment upon me than I fear judgment.
+ - I don’t care if 1 is prime or not, if 2 is prime or not, if 3 is prime or not. All I care is that there are more stars in the heavens than primes in the earth.
+ - When we consider the being and substance of that universe in which we are immutably set, we shall discover that neither we ourselves nor any substance doth suffer death. For nothing is in fact diminished in its substance, but all things, wandering through infinite space, undergo change of aspect.
+ - The infinity of All ever bringing forth anew, and even as infinite space is around us, so is infinite potentiality, capacity, reception, malleability, matter.
+ - All things are in the Universe, and the universe is in all things: we in it, and it in us; in this way everything concurs in a perfect unity.
+ - I understand Being in all and over all, as there is nothing without participation in Being, and there is no being without Essence. Thus nothing can be free of the Divine Presence.
+ - If the first button of one’s coat is wrongly buttoned, all the rest will be crooked.
+ - The fools of the world have been those who have established religions, ceremonies, laws, faith, rule of life.
+ - There is no absolute up or down, as Aristotle taught; no absolute position in space; but the position of a body is relative to that of other bodies. Everywhere there is incessant relative change in position throughout the universe, and the observer is always at the center of things.
+ - The hammers must be swung in cadence, when more than one is hammering the iron.
+ - The gems of philosophy are not less precious because they are not understood.
+ - There is a single general space, a single vast immensity which we may freely call void: in it are unnumerable globes like this on which we live and grow, this space we declare to be infinite, since neither reason, convenience, sense-perception nor nature assign to it a limit.
+ - Divine love does not weigh down, nor carry his servant captive and enslaved to the lowest depths, but raises him, supports him and magnifies him above all liberty whatsoever.
+ - There is in the universe neither center nor circumference.
+ - With luck on your side, you can do without brains.
+ - It is unity that doth enchant me. By her power I am free though thrall, happy in sorrow, rich in poverty, and quick even in death.
+ - Anything we take in the Universe, because it has in itself that which is All in All, includes in its own way, the entire soul of the world, which is entirely in any part of it.
+ - They dispute not in order to find or even to seek Truth, but for victory, and to appear the more learned and strenuous upholders of a contrary opinion. Such persons should be avoided by all who have not a good breastplate of patience.
+ - In space there are countless constellations, suns and planets; we see only the suns because they give light; the planets remain invisible, for they are small and dark. There are also numberless earths circling around their suns...
+ - The soul, in its power, is present in some way in the entire universe, because it apprehends substances which are not included in the body in which it lives, although they are related to it.
+ - Those wise men knew God to be in things, and Divinity to be latent in Nature, working and glowing differently in different subjects and succeeding through diverse physical forms, in certain arrangements, in making them participants in her, I say, in her being, in her life and intellect.
+ - The single spirit doth simultaneously temper the whole together; this is the single soul of all things; all are filled with God .
+ - What you receive from others is a testimony to their virtue; but all that you do for others is the sign and clear indication of your own.
+ - Of the eternal incorporeal substance nothing is changed, is formed or deformed, but there always remains only that thing which cannot be a subject of dissolution, since it is not possible that it be a subject of composition, and therefore, either of itself or by accident, it cannot be said to die .
+ - Our bodily eye findeth never an end, but is vanquished by the immensity of space.
+ - I pray you, magnificent Sir, do not trouble yourself to return to us, but await our coming to you.
+ - The one infinite is perfect, in simplicity, of itself, absolutely, nor can aught be greater or better, This is the one Whole, God, universal Nature, occupying all space, of whom naught but infinity can give the perfect image or semblance.
+ - Beautiful sights arouse feelings of love, and contrary sights bring feelings of disgrace and hate. And the emotions of the soul and spirit bring something additional to the body itself, which exists under the control of the soul and the direction of the spirit.
+ - I do not know when, but I know that many have come in this century to develop arts and sciences, sow the seeds of a new culture that will flourish, unexpected, sudden, just when the power is deluded into believing they have won.
+ - The soul is not the body and it may be in one body or in another, and pass from body to body.
+ - You explain right well, and you shew that you understand argument and are not a mere sophist since you accept that which cannot be denied.
+ - That which we have lived is nothing; that which we live is a point; that which we have to live is not yet a point, but may be a point which, together, shall be and shall have been.
+ - What can be more stupid than to be in pain about future things and absent ones which at present are not felt?
+ - The beginning, middle, and end of the birth, growth, and perfection of whatever we behold is from contraries, by contraries, and to contraries; and whatever contrariety is, there is action and reaction, there is motion, diversity, multitude, and order, there are degrees, succession and vicissitude.
+ - We delight in one knowable thing, which comprehends all that is knowable; in one apprehensible, which draws together all that can be apprehended; in a single being that includes all, above all in the one which is itself the all.
+
+55 quotes

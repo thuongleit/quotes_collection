@@ -1,0 +1,42 @@
+ - Children are the world’s most valuable resource and its best hope for the future. ~~John F. Kennedy
+ - The magic, the wonder, the mystery and the innocence of a child’s heart are the seeds of creativity that will heal the world. ~~Michael Jackson
+ - It is not attention that the child is seeking, but love. ~~Sigmund Freud
+ - Don’t educate your children to be rich. Educate them to be happy, so they know the value of things, not the price. ~~Victor Hugo
+ - Don’t worry that children never listen to you; worry that they are always watching you. ~~Robert Fulghum
+ - The goal of early childhood education should be to activate the child’s own natural desire to learn. ~~Maria Montessori
+ - Your children are not your children. They are the sons and daughters of Life’s longing for itself. They came through you but not from you and though they are with you yet they belong not to you. ~~Khalil Gibran
+ - I am just a child who has never grown up. I still keep asking these ‘how’ and ‘why’ questions. Occasionally, I find an answer. ~~Stephen Hawking
+ - In every adult there lurks a child – an eternal child, something that is always becoming, is never completed, and calls for unceasing care, attention, and education. That is the part of the personality which wants to develop and become whole. ~~C.G. Jung
+ - I am a glorious child of God. I am joyful, serene, positive, and loving. ~~Marianne Williamson
+ - Fairy tales do not tell children the dragons exist. Children already know that dragons exist. Fairy tales tell children the dragons can be killed. ~~Gilbert K. Chesterton
+ - To lack feeling is to be dead, but to act on every feeling is to be a child. ~~Brandon Sanderson
+ - There is nothing enlightened about shrinking so that other people won’t feel insecure around you. We are all meant to shine, as children do. ~~Marianne Williamson
+ - Too many people grow up. That’s the real trouble with the world, too many people grow up. They forget. They don’t remember what it’s like to be 12 years old. They patronize, they treat children as inferiors. Well I won’t do that. ~~Walt Disney
+ - We are the world, we are the children... ~~Michael Jackson
+ - It all begins with forgiveness, because to heal the world, we first have to heal ourselves. And to heal the kids, we first have to heal the child within, each and every one of us. ~~Michael Jackson
+ - My child, what I want is muscles of iron and nerves of steel, inside which dwells a mind of the same material as that of which the thunderbolt is made. ~~Swami Vivekananda
+ - People usually consider walking on water or in thin air a miracle. But I think the real miracle is not to walk either on water or in thin air, but to walk on earth. Every day we are engaged in a miracle which we don’t even recognize: a blue sky, white clouds, green leaves, the black, curious eyes of a child – our own two eyes. All is a miracle. ~~Nhat Hanh
+ - We ask ourselves, Who am I to be brilliant, gorgeous, talented, fabulous? Actually, who are you not to be? You are a child of God. Your playing small does not serve the world. ~~Marianne Williamson
+ - On this day long ago, a child was born who, by age 30, would transform the world. Happy Birthday Isaac Newton b. Dec 25, 1642. ~~Neil deGrasse Tyson
+ - Every child needs at least one adult who is irrationally crazy about him or her. ~~Urie Bronfenbrenner
+ - I think the best thing a parent can do, when raising a child, is simply get out of their way. ~~Neil deGrasse Tyson
+ - The greatest legacy we can leave our children is happy memories. ~~Og Mandino
+ - That’s the real trouble with the world. Too many people grow up. ~~Walt Disney
+ - I believe that children are our future. Teach them well and let them lead the way. Show them all the beauty they possess inside. ~~Whitney Houston
+ - A child who does not play is not a child, but the man who doesn’t play has lost forever the child who lived in him and who he will miss terribly. ~~Pablo Neruda
+ - I was a child and she was a child, In this kingdom by the sea; But we loved with a love that was more than love- I and my Annabel Lee; With a love that the winged seraphs of heaven Coveted her and me. ~~Edgar Allan Poe
+ - God is faithful even when his children are not. ~~Max Lucado
+ - Wisdom is justified of her children. ~~Matthew 11:19
+ - Christmas is for children. But it is for grownups too. Even if it is a headache, a chore, and nightmare, it is a period of necessary defrosting of chill and hide bound hearts. ~~Lenora Mattingly Weber
+ - A child who is allowed to be disrespectful to his parents will not have true respect for anyone. ~~Billy Graham
+ - There’s nothing sadder in this world than to awake Christmas morning and not be a child. ~~Erma Bombeck
+ - All my life through, the new sights of Nature made me rejoice like a child. ~~Marie Curie
+ - Happiness is an imaginary condition, formerly attributed by the living to the dead, now usually attributed by adults to children, and by children to adults. ~~Thomas Stephen Szasz
+ - Beauty is not caused. It is. ~~Emily Dickinson
+ - All of our dreams can come true. ~~Walt Disney
+ - I don’t think children’s inner feelings have changed. They still want a mother and father in the very same house; they want places to play. ~~Beverly Cleary
+ - Ever since I was a child I have had this instinctive urge for expansion and growth. To me, the function and duty of a quality human being is the sincere and honest development of one’s potential. ~~Bruce Lee
+ - Do not say, ‘It is morning,’ and dismiss it with a name of yesterday. See it for the first time as a newborn child that has no name. ~~Rabindranath Tagore
+ - Christmas, my child, is love in action. Every time we love, every time we give, it’s Christmas. ~~Dale Evans
+
+40 quotes

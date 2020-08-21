@@ -1,0 +1,199 @@
+ - You must plan to be spontaneous.
+ - Listening is a positive act: you have to put yourself out to do it.
+ - Laugh a lot. It clears the lungs.
+ - Enjoyment of the landscape is a thrill.
+ - I love California; everything is so artificial.
+ - My only worry is the painting I’m doing. Nothing else.
+ - I’ve finally figured out what’s wrong with photography. It’s a one-eyed man looking through a little ’ole. Now, how much reality can there be in that?
+ - On the iPhone I tended to draw with my thumb. Whereas the moment I got to the iPad, I found myself using every finger.
+ - I think I’m greedy, but I’m not greedy for money – I think that can be a burden – I’m greedy for an exciting life.
+ - There is nothing wrong with photography, if you don’t mind the perspective of a paralysed Cyclops.
+ - There would be no bohemia without smoking.
+ - I’m a very early riser, and I don’t like to miss that beautiful early morning light.
+ - Drawing makes you see things clearer, and clearer and clearer still, until your eyes ache.
+ - California is always in my mind.
+ - Anything simple always interests me.
+ - The photograph isn’t good enough. It’s not real enough.
+ - Photoshop came out of painting, and now it’s going back to painting.
+ - I can get excitement watching rain on a puddle. And then I paint it. Now, I admit, there are not too many people who would find that exciting. But I would. And I want life thrilling and rich. And it is. I make sure it is.
+ - If you are not playful you are not alive.
+ - Smoking calms me down. It’s enjoyable. I don’t want politicians deciding what is exciting in my life.
+ - I have always believed that art should be a deep pleasure. I think there is a contradiction in an art of total despair, because the very fact that the art is made seems to contradict despair.
+ - Faces are the most interesting things we see; other people fascinate me, and the most interesting aspect of other people – the point where we go inside them – is the face. It tells all.
+ - It takes a long time to make it simple.
+ - I see the iPad as a wonderful new drawing medium, but I am at a loss as to how to make it pay.
+ - The camera can’t see space. It sees surfaces. People see space, which is much more interesting.
+ - I’m coming ’round to the view that there’s only a personal view of the world.
+ - I did come from a pretty independent-minded family.
+ - I have got an iPad, what a joy! Van Gogh would have loved it, and he could have written his letters on it as well.
+ - I’m fed up with being bossed around.
+ - We all know a mirror reflects us, if you look in it. If you move, the reflection moves. If you project from a mirror, meaning it will project an image, it’s nothing to do with you. The world seen by nobody.
+ - The thing with high-tech is that you always end up using scissors.
+ - I am constantly preoccupied with how to remove distance so that we can all come closer together, so that we can all begin to sense we are the same, we are one.
+ - It’s all right if you don’t mind looking at the world from the point of view of a paralyzed Cyclops – for a split second.
+ - OH, I LIKE smoking, I do. I smoke for my health, my mental health. Tobacco gives you little pauses, a rest from life. I don’t suppose anyone smoking a pipe would have road rage, would they?
+ - People criticized me for my photography. They said it’s not art.
+ - I never work with music. I hate background music, always did. I only like music in the foreground, meaning, deliberately listen to it, actually.
+ - If you see the world as beautiful, thrilling and mysterious, as I think I do, then you feel quite alive.
+ - The urge to draw must be quite deep within us, because children love to do it.
+ - Just because I’m cheeky, doesn’t mean I’m not serious.
+ - Technology brought in the mass media and technology is now taking it away.
+ - I made a photograph of a garden in Kyoto, the Zen garden, which is a rectangle. But a photograph taken from any one point will not show, well it shows a rectangle, but not with ninety degree angles.
+ - Drawing is rather like playing chess: your mind races ahead of the moves that you eventually make.
+ - When you stop doing something, it doesn’t mean you are rejecting the previous work. That’s the mistake; it’s not rejecting it, it’s saying, ‘I have exploited it enough now and I wish to take a look at another corner.’
+ - The moment you cheat for the sake of beauty, you know you’re an artist.
+ - About shadows: do we see shadows? Loads of people don’t. A camera will notice a shadow, but how many people have got a shadow in front of them when they take a picture and don’t notice it, and then they see it in the photograph because the photograph will catch the shadow.
+ - Well, in Bradford I could say I was brought up in Bradford and Hollywood.
+ - Photography sees surfaces, it doesn’t see space. We see space but the camera doesn’t.
+ - I draw flowers every day and send them to my friends so they get fresh blooms every morning.
+ - In art, new ways of seeing mean new ways of feeling; you can’t divorce the two, as, we are now aware, you cannot have time without space and space without time.
+ - As for the world of fashion and celebrity, I have the usual interest in the human comedy, but the problems of depiction absorb me more.
+ - Until cubism, all art, all pictures, could be ‘read’ by anybody. If this hadn’t been so, the Christian message wouldn’t have been seen by peasants and its importance would have been diminished.
+ - There’s a Chinese proverb that says it all: Painting is an old man’s art.
+ - An artist might be attracted to hedonism, but of course an artist is not a hedonist. He’s a worker, always.
+ - The only people who need degrees are dentists and brain surgeons.
+ - Art has to move you and design does not, unless it’s a good design for a bus.
+ - It’s difficult to talk about colour, even remember colour actually.
+ - I’m always excited by the unlikely, never by ordinary things.
+ - Style is something you can use, and you can be like a magpie, just taking what you want.
+ - I think photography has made us see the landscape in a very dull way – that’s one of its effects. It’s not spatial.
+ - I was aware that the teaching of drawing was being stopped almost 30 years ago. And I always said, ‘The teaching of drawing is the teaching of looking.’ A lot of people don’t look very hard.
+ - I’m not going to stop painting just to take orders.
+ - I want life thrilling and rich. And it is. I make sure it is.
+ - Shadows sometimes people don’t see shadows. The Chinese of course never paint them in pictures, oriental art never deals with shadow. But I noticed these shadows and I knew it meant it was sunny.
+ - Loads of people, particularly artists, hate pretty pictures. Now I’ve never met anyone who didn’t like a pretty face.
+ - Cubism was an attack on the perspective that had been known and used for 500 years. It was the first big, big change. It confused people: they said, ‘Things don’t look like that!’
+ - What an artist is trying to do for people is bring them closer to something, because of course art is about sharing. You wouldn’t be an artist unless you wanted to share an experience, a thought.
+ - The video camera dominates art. It’s a bore, it makes everything look a bit the same. If you look at things with a pencil and paper in your hand, you are going to see far more.
+ - If you like music you like silence actually.
+ - Once my hand has drawn something my eye has observed, I know it by heart, and I can draw it again without a model.
+ - Water colours are wet colours in water.
+ - I was 18 when I first visited London, I’m very provincial like that, but I must confess the moment I got to America I thought: This is the place. It was more open, with 24-hour cities and pubs and restaurants that didn’t close.
+ - What I didn’t know was I was deeply attracted to the big space.
+ - It is very good advice to believe only what an artist does, rather than what he says about his work.
+ - The way we see things is constantly changing. At the moment the way we see things has been left a lot to the camera. That shouldn’t necessarily be.
+ - I do believe that painting can change the world.
+ - I worked in the NHS as a hospital orderly during my national service, and people thought it was a noble service. But over the years it’s lost its humanity.
+ - There are enough no smoking places now.
+ - You can’t name the inventor of the camera. The 19th-century invention was chemical: the fixative.
+ - Photography hankers after the condition of the neutral observer. But there can be no such things as a neutral observer. For something to be seen, it must be looked at by somebody, and any true and real depiction must be an account of the experience of that looking.
+ - I had always planned to make a large painting of the early spring, when the first leaves are at the bottom of the trees, and they seem to float in space in a wonderful way. But the arrival of spring can’t be done in one picture.
+ - I’ve always been a looker. Loads of people say, “I never saw that” – but that’s what artists do.
+ - I think we seem to remember things in still pictures. I never gave up on painting. When they said painting was dead, I just thought, Well, that’s all about photography, and photography’s not that interesting, and it’s changing anyway.
+ - Tobacco is America’s greatest gift to the world!
+ - Picasso is still influencing me. Of course, I haven’t got that kind of energy, or skill.
+ - I think we’re in a very exciting time – visually, I think we are. I’ve not got a crystal ball. I’m not saying I know what the future is at all. In some ways I’m getting quite pessimistic about the future, but in other ways I think it might get better. We are moving into very big changes.
+ - Most artists work all the time, they do actually, especially good artists, they work all the time, what else is there to do? I mean you do.
+ - We need all kinds of artists. We have no need to destroy drawing. We lose so much. This wouldn’t happen in music.
+ - Television is becoming a collage – there are so many channels that you move through them making a collage yourself. In that sense, everyone sees something a bit different.
+ - A lot of people, given the chance, would blow up everything, and you and me.
+ - But the moment you use an ordinary camera, you are not seeing the picture, remember, meaning, you had to remember what you’ve taken. Now you could see it of course, with a digital thing, but remember in 1982 you couldn’t.
+ - No one has ever asked to see my degree certificate.
+ - I’m really only interested in technology that is about pictures. I’m interested in anything that makes a picture.
+ - No matter what the illusion created, it is a flat canvas and it has to be organized into shapes...
+ - Yes, I did, I mean I painted er, in a kind of abstract expressionist way, because of course that was exciting.
+ - It’s all one to me: opera, painting, drawing, faxes.
+ - I believe that the problem of how you depict something is a formal problem. It’s an interesting one and it’s a permanent one; there’s no solution to it. There are a thousand and one ways you can go about it. There’s no set rule.
+ - People from the village come up and tease me: ‘We hear you’ve started drawing on your telephone.’ And I tell them, ‘Well, no, actually, it’s just that occasionally I speak on my sketch pad,’
+ - I’m a bit claustrophobic, I don’t like crowds, I live by the sea – that’s what I see when I come out of my house in Bridlington.
+ - I think Picasso was, without doubt, the greatest portraitist of the 20th century, if not any other century.
+ - We live in an age where the artist is forgotten. He is a researcher. I see myself that way.
+ - All art is contemporary, if it’s alive, and if it’s not alive, what’s the point of it?
+ - Tragedy is a literary concept.
+ - The history of photography needs clearing out. It needs something else now. Because photography always acknowledged there were cameras before photography.
+ - I actually think the deafness makes you see clearer. If you can’t hear, you somehow see.
+ - I never talk when I’m drawing a person, especially if I’m making line drawings. I prefer there to be no noise at all so I can concentrate more.
+ - I was always struck by how Picasso had no interest in music.
+ - All painting, no matter what you are painting, is abstract in that it’s got to be organized.
+ - In fact, I’m a bit of a slob, but I’ve always said my excuse, I have a higher sense of order, I can see it where others can’t. That’s my excuse for slobbery, I must admit, but I think it’s a good one.
+ - I’m interested in all kinds of pictures, however they are made, with cameras, with paint brushes, with computers, with anything.
+ - Painting and drawing has been here for 35,000 years.
+ - Teaching people to draw is teaching people to look.
+ - Once you start painting, you could of course get lost. I mean you get out of yourself, you don’t know whether you’re thinking, you just act actually sometimes.
+ - I stay up nights and fiddle with my opera designs. It’s a bit obsessive. That’s why I can’t do it all the time.
+ - Britain is a very small country with a very large press.
+ - I’m not really looking for theater work. But if somebody approaches me with enthusiasm, I might respond.
+ - The lens is a tyranny.
+ - I haven’t stopped painting or drawing – I’ve just added another medium.
+ - The ‘how’ has a great effect on what we see. To say that ‘what we see’ is more important than ‘how we see it’ is to think that ‘how’ has been settled and fixed. When you realize this is not the case, you realize that ‘how’ often affects ‘what’ we see.
+ - You had to be aware that I saw that photography was a mere episode in the history of the optical projection and when the chemicals ended, meaning the picture was fixed by chemicals, we were in a new era.
+ - I’m a bit claustrophobic, I know that now.
+ - Movie actors disappear – any young person wouldn’t know Cary Grant. They’re going to disappear. Fifty years ago, you thought film was here to stay. But nothing is here to stay, actually – except perhaps paintings and drawings.
+ - No theoretician, no writer on art, however interesting he or she might be, could be as interesting as Picasso. A good writer on art may give you an insight to Picasso, but, after all, Picasso was there first.
+ - I think the Enlightenment is leading us into a dark hole, really.
+ - People tell me they open my e-mails first, because they aren’t demands and you don’t need to reply. They’re simply for pleasure.
+ - The cameras are getting smaller, they’re getting more versatile, and eventually, I’m sure you’ll have a camera with lots and lots of things on it so you can alter the picture. You could alter perspective.
+ - If we are to change our world view, images have to change.
+ - The moment I got a very big studio, everything took off.
+ - It’s no good saying I wished I could go out more, because I can’t. But I don’t bother about it too much.
+ - All film directors, even the ones using 3-D today, want you to look at what they chose.
+ - But, I would always be thinking of how pictures are constructed and colour, how to use it, I mean you’re using it for constructing, makes you think about it, the place did as well.
+ - Future art that is based on appearances won’t look like the art that’s gone before. Even revivals of a period are not the same.
+ - It’s a myth that if you’re liked by only four people it must be good. It might also be very bad: they might be your mother, your brother, your uncle and your aunt.
+ - I’m very attracted to the great open spaces of the West.
+ - Of course you can still paint landscape – it’s not been worn out.
+ - You would think death was an optional extra nowadays. Nobody wants to tick that box.
+ - There’s no-one up there in Northern Norway, food’s terrible, but it’s very, very beautiful to look at, if you’ve got eyes, and enjoy looking.
+ - The editing of moving pictures is geared toward the single image. You’d have to edit things in new ways.
+ - I think probably something big can be done with cameras, I’m not saying, er, I’m saying chemical photography’s finished, that means you can’t have a Cartier Bresson again, you need never believe pictures.
+ - West Yorkshire is quite dramatic and beautiful, the crags and things.
+ - Drawing takes time. A line has time in it.
+ - I’m convinced that technology and art go together – and always have, for centuries.
+ - The high-definition picture is still a perspective picture. That’s the real problem, the perspective picture.
+ - The pictures on the walls aren’t like movies. They don’t move, they don’t talk, and they’ll last longer. They will last longer.
+ - Faces are the most interesting things we see.
+ - The picture itself is a document. How do you mean? We’re looking at a document. It gives you clues.
+ - I’ve never been interested in, much in the politics of the art world, it doesn’t interest me.
+ - There’s no need to believe what an artist says. Believe what he does; that’s what counts.
+ - How difficult it is to learn not to see like cameras, which has had such an effect on us. The camera sees everything at once. We don’t.
+ - It’s time to debate images, especially when someone’s going to prison for downloading them.
+ - In fact, most artists want to make things a bit more difficult for themselves as they go along, to challenge themselves.
+ - The vanishing point leads to the missiles of today, which can take us out of this world. It could be that the west’s greatest mistakes were the ‘invention’ of the external vanishing point and the internal combustion engine.
+ - The choice is not between drugs and no drugs, but between illegal drugs and legal drugs. Until the 1920s drugs were legal, why not now? Lots of people are on drugs anyway – it is called medication.
+ - I went to art school actually when I was sixteen years old.
+ - It sometimes takes a foreigner to come and see a place and paint it. I remember someone saying they had never really noticed the palm trees here until I painted them.
+ - Always live in the ugliest house on the street – then you don’t have to look at it.
+ - Anyway I feel myself a bit on the edge on the art world, but I don’t mind, I’m just pursuing my work in a very excited way. And there isn’t really a mainstream anymore, is there?
+ - I’ve always said that the only thing a photograph is good at capturing faithfully is another flat surface.
+ - Because I’m interested in depiction, representation, therefore you’re interested in photography. You don’t ignore it.
+ - When you are older, you realise that everything else is just nothing compared to painting and drawing.
+ - I can see that cinema seems to be finished. Everybody has a bigger screen at home. I’m assuming eventually you won’t need a screen at all – these iPhones will just project.
+ - And then I went round the corner and there’s a Van Gogh portrait, and you just think, well, this is another level. A higher level, actually. I love the Sargent, but it’s not the level of Van Gogh.
+ - But slowly I began to use cameras and then think about what it was that was going on. It took me a long time, I mean I actually played with cameras and photography for about 20 years.
+ - How can Blair fight a war on terror? Terror is not an ideology or an army; terror is a technique.
+ - As you get older, it gets a bit harder to keep the spontaneity in you, but I work at it.
+ - Well you can’t teach the poetry, but you can teach the craft.
+ - I think cubism has not fully been developed. It is treated like a style, pigeonholed and that’s it.
+ - I avoid the public because the English public is too aggressive these days for me.
+ - In one gallery they actually had a notice which said No Sketching. How obnoxious! I said, How do you think these things got on the walls if there was no sketching?
+ - I’ve always been interested in space in pictures. I think my going deaf increased my spatial sense, because I can’t get the direction of sound. I feel that I see space very clearly, and that’s because I can’t hear it. So it’s a compensatory thing.
+ - I was never that interested in movies. I was interested in them as a thing, but I didn’t want to make movies. I always wanted to draw and paint.
+ - I’m sure that the camera is part of European art.
+ - I believe that the very process of looking can make a thing beautiful.
+ - Time is the great mystery anyway. And it’s still the great mystery in the moving picture as well.
+ - Being able to draw means being able to put things in believable space. People who don’t draw very well can’t do that.
+ - I’m rather shocked by what I thought was simple mindedness actually. I thought they’re not looking, they’re not actually looking.
+ - I don’t value prizes of any sort.
+ - With watercolour, you can’t cover up the marks. There’s the story of the construction of the picture, and then the picture might tell another story as well.
+ - East Yorkshire, to the uninitiated, just looks like a lot of little hills. But it does have these marvelous valleys that were caused by glaciers, not rivers. So it is unusual.
+ - Paint something every day.
+ - I’ve realized that I can do performances.
+ - Every good artist I know, I always think works hard, we’re working all the time.
+ - The problem is, photographic dyes and printing inks aren’t as good as paint, actually.
+ - When you’re very young, you suddenly find this marvellous freedom. It’s quite exciting, and you’re prepared to do anything.
+ - I have never really done any teaching and maybe I should have done. I am not power-mad enough.
+ - It is difficult to say why I decided I wanted to be an artist. Obviously, I had some facility, more than other people, but sometimes facility comes because one is more interested in looking at things, examining them, more interested in the visual world than other people are.
+ - I’ve no doubt that those photographs i took will make people look at everything in a more interesting way – the little tear on one piece of paper, the shadow on another. But good painting has always done that – made you see things. And the most ordinary can be the most extraordinary.
+ - I can often tell when drawings are done from photographs, because you can tell what they miss out, what the camera misses out: usually weight and volume – there’s a flatness to them.
+ - What I always longed to do was to be able to paint like I can draw, most artists would tell you that, they would all like to paint like they can draw.
+ - Great claims are being made for the photograph as truth. We are showing you things, we show you the war. I say you can’t actually. The camera can’t.
+ - Any artist will tell you he’s really only interested in the stuff he’s doing now. He will, always. It’s true, and it should be like that.
+ - I do do a lot of talking, because it saves me listening.
+ - Photographs aren’t accounts of scrutiny. The shutter is open for a fraction of a second.
+ - It’s very British to go about to see something unusual and paint it.
+ - In the end nobody knows how it’s done – how art is made. It can’t be explained. Optical devices are just tools. Understanding a tool doesn’t explain the magic of creation. Nothing can.
+ - Who would have thought that the telephone would bring back drawing?
+ - I was always interested in photography because it makes a picture.
+ - I mean if you draw you like drawing, it’s er, an activity you do all the time actually.
+
+197 quotes

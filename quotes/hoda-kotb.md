@@ -1,0 +1,35 @@
+ - I love music. For me, music is morning coffee. It’s mood medicine. It’s pure magic. A good song is like a good meal-I just want to inhale it and then share a bite with someone else.
+ - Be crazy. Be stupid. Be silly. Be weird. Be whatever. Because life is too short to be anything but happy.
+ - Tone is often the most important part of a conversation – and listening is so much more important than what you say.
+ - If you have a friend or family member with breast cancer, try not to look at her with ‘sad eyes.’ Treat her like you always did; just show a little extra love.
+ - In New York City, you can walk down the street and see a girl in a trench who looks equally as cool as a girl wearing Lululemon. It’s like you’re watching models. You see a little of everything right by you.
+ - I try to live in a little bit of my own joy and not let people steal it or take it.
+ - When my shoes are killing me, I take a maxi pad and put it in the bottom of my shoe. It is better than any Dr. Scholl’s insert. That fashion tip has saved me through some long nights.
+ - It’s made me realize that imperfect is perfectly comfortable to me. Whether it’s a city or my apartment, I feel most at home when things are somewhat flawed.
+ - I think after overcoming breast cancer, you sort of become fearless and somehow going up to your boss to talk about a possible promotion doesn’t seem like such a daunting task anymore.
+ - Life’s not perfect. Some loose ends may never get trimmed up and tidied.
+ - The days, months, and years eventually reveal, like a Polaroid, a clear picture of how significant events and decisions ultimately shape our lives.
+ - When you’re a big girl like me, you want someone who makes you feel diminutive. I think fat guys are sexy.
+ - The biggest thing I’ve learned is to smash my own spiders and get on with my day. There will be another!
+ - I don’t cook, but I would love to learn.
+ - One day, right after my mastectomy, I went for a walk in Central Park, and there was this mob of people blocking the road. I thought, ‘Oh, great, now I’m stuck!’ but then I suddenly realized that it was a breast cancer walk.
+ - I’m an optimist, so I think everything can be worked out and fixed. But from having cancer I learned that even if you’re even an optimist, sometimes you just have to face the facts that certain things are broken.
+ - I’ve had weight issues all my life. I’ve been on all the diets: Atkins, liquid protein, Scarsdale diet. Now I go to the gym often. I’m always on the StairMaster, and I do weights.
+ - It’s gotten to the point where if I throw a cookie in the garbage, I have to douse it in Cascade. Otherwise, why wouldn’t I take it out and eat it?
+ - My style is streamlined, sophisticated and simple, so I usually go for a dress. No matching involved. I am bad at matching! I like easy and when you’re done, it looks like a second skin. I wear dresses every day for that reason. It’s easy!
+ - I’m a disorganized mess. My purse is gross: I once found a shoulder pad, string cheese, and a Christmas ornament in it!
+ - If we all helped one person, wouldn’t the world be an unbelievable place?
+ - I like the pace of my world. It’s busy, but for me, the less I do the lazier I get.
+ - I can’t remember a time when my mom didn’t work. She has forever been on the move: a go-getter. When my brother Adel and I had a paper route as kids, my mom would get up before us at the crack of dawn to drop off the Washington Post at different corners.
+ - If you fall-and trust me, you will- make sure you fall on your back. Because if you fall on your back, you can see up. And if you can see up, you can get up. And you can keep going and going and going.
+ - I run in Central Park as the sun comes up. Some may mistake it for walking, but I swear I am running. I could not do it without my iPod.
+ - Having cancer empowered me to take more risks. I knew beating cancer was going to shape me, but it wasnt going to be all of me.
+ - Sometimes you have to take the focus off of you and put it on someone else and it’s funny what you can accomplish and how much strength you really have.
+ - I’m good at picking friends.
+ - I’m a huge karaoke person even though I have the worst singing voice. When you love doing something, who cares?
+ - Weight is just not a hot button. In fact, during my life, it probably should have been on my radar screen a bit more. I look back at work photos and am shocked. Was I eating the people I was interviewing?! Good Lord, I was big.
+ - I love Jennifer Aniston’s style. She is streamlined and never overdone. And Demi Moore always looks classic, gorgeous and sophisticated.
+ - There are times when you just have to show people that you’re all in.
+ - If it weren’t for my breast cancer, I wouldn’t be a ‘Today’ host. After I got better, I talked to my boss about working on the show. Six months before, I’d have been terrified to go in there and ask for what I wanted. But after what I’d been through, how could I be scared of being told no?
+
+33 quotes

@@ -1,0 +1,81 @@
+ - When we work, we work. When we pray, God works.
+ - The Great Commission is not an option to be considered; it is a command to be obeyed.
+ - God’s work done in God’s way will never lack God’s supply.
+ - Christ is either Lord of all, or He is not Lord at all.
+ - God is not looking for men of great faith, He is looking for common men to trust His great faithfulness.
+ - All God’s giants have been weak men who did great things for God because they reackoned on God being with them.
+ - When the heart submits, then Jesus reigns. When Jesus reigns, there is rest.
+ - Learn to move man, through God, by prayer alone.
+ - Do not have your concert first, and then tune your instrument afterwards. Begin the day with the Word of God and prayer, and get first of all into harmony with Him.
+ - The real secret of an unsatisfied life lies too often in an unsurrendered will.
+ - I am no longer anxious about anything, as I realize that He is able to carry out His will for me. It does not matter where He places me, or how. That is for Him to consider, not me, for in the easiest positions He will give me grace, and in the most difficult ones His grace is sufficient.
+ - If I had 1,000 lives, I’d give them all for China.
+ - A little thing is a little thing, but faithfulness in little things is a great thing.
+ - It does not matter how great the pressure is. What really matters is where the pressure lies – whether it comes between you and God, or whether it presses you nearer His heart.
+ - I often think that God must have been looking for someone small enough and weak enough for Him to use, and that He found me.
+ - God isn’t looking for people of great faith, but for individuals ready to follow Him.
+ - If we are faithful to God in little things, we shall gain experience and strength that will be helpful to us in the more serious trials of life.
+ - Unless there is the element of extreme risk in our exploits for God, there is no need for faith.
+ - You do not need a great faith, but faith in a great God.
+ - Believing prayer will lead to whole-hearted action.
+ - God’s work is not man working for God; it is God’s own work, though often wrought through man’s hands.
+ - Many Christians estimate difficulties in the light of their own resources, and thus attempt little and often fail in the little they attempt. All God’s giants have been weak men who did great things for God because they reckoned on His power and presence with them.
+ - Dream a dream so big that unless God intervenes it will fail.
+ - Depend on it. God’s work done in God’s way will never lack God’s supply. He is too wise a God to frustrate His purposes for lack of funds, and He can just as easily supply them ahead of time as afterwards, and He much prefers doing so.
+ - I used to ask God to help me. Then I asked if I might help Him to do His work through me.
+ - The less I spent on myself and the more I gave to others, the fuller of happiness and blessing did my soul become.
+ - All our difficulties are only platforms for the manifestations of His grace, power and love.
+ - When I cannot read, when I cannot think, when I cannot even pray, I can trust.
+ - Brother, if you would enter that Province, you must go forward on your knees.
+ - Jesus is our strength, and what we cannot do or bear, He can both do and bear in us.
+ - It is not lost time to wait upon God!
+ - Would that God would make hell so real to us that we cannot rest; Heaven so real that we must have men there.
+ - Let us see that we keep God before our eyes; that we walk in His ways and seek to please and glorify Him in everything, great and small. Depend upon it, God’s work, done in God’s way, will never lack God’s supplies.
+ - Call unto me, and I will answer thee, and show thee great and might things which thou knowest not.
+ - Satan may build a hedge about us and fence us in and hinder our movements, but he cannot roof us in and prevent our looking up.
+ - All God’s giants have been weak men and women who have gotten hold of God’s faithfulness.
+ - Fruit-bearing involves cross-bearing. There are not two Christs – an easygoing one for easygoing Christians, and a suffering, toiling one for exceptional believers. There is only one Christ. Are you willing to abide in Him, and thus to bear much fruit?
+ - But how to get faith strengthened? Not by striving after faith, but by resting on the Faithful One.
+ - While unbelief sees the difficulties, faith sees God between itself and them.
+ - God means just what He says and He will do all that He has promised.
+ - There are three great truths, 1st, That there is a God; 2nd, That He has spoken to us in the Bible; 3rd, That He means what He says.
+ - There are three indispensable requirements for a missionary: 1. Patience 2. Patience 3. Patience.
+ - Let us give up our work, our thoughts, our plans, ourselves, our lives, our loved ones, our influence, our all, right into His hand, and then, when we have given all over to Him, there will be nothing left for us to trouble about, or to make trouble about.
+ - I have seen many men work without praying, though I have never seen any good come out of it; but I have never seen a man pray without working.
+ - God uses men who are weak and feeble enough to lean on him.
+ - When I get to China, I will have no claim on any one for anything. My claim will be alone in God and I must learn before I leave England to move men through God by prayer alone.
+ - We are not only to renounce evil, but to manifest the truth. We tell people the world is vain; let our lives manifest that it is so. We tell them that our home is above and that all these things are transitory. Does our dwelling look like it? O to live consistent lives!
+ - Were it not for the consciousness of Christ in my life, hour by hour, I could not go on. But He is teaching me the glorious lessons of His sufficiency, and each day I am carried onward with no feeling of strain or fear of collapse.
+ - I am so weak that I can hardly write, I cannot read my Bible, I cannot even pray, I can only lie still in God’s arms like a little child, and trust.
+ - If I had a thousand pounds China should have it- if I had a thousand lives, China should have them. No! Not China, but Christ. Can we do too much for Him? Can we do enough for such a precious Saviour?
+ - Are you in a hurry, flurried, distressed? Look up! See the Man in the Glory! Let the face of Jesus shine upon you – the face of the Lord Jesus Christ. Is He worried, troubled, distressed? There is no wrinkle on His brow, no least shade of anxiety. Yet the affairs are His as much as yours.
+ - Our joy in Him may be a fluctuating thing: His joy in us knows no change.
+ - We have heard of many people who trusted God too little, but have you ever heard of anyone who trusted Him too much?
+ - Wave after wave of trial rolled over us; but at the end of the year some of us were constrained to confess, that we had learned more of the loving-kindness of the Lord than in any previous year of our lives.
+ - Too often we attempt to work for God to the limit of our incompetency, rather than to the limit of God’s omnipotency.
+ - Truly Jesus is the great need of our souls.
+ - It matters not how great the pressure is, only where the pressure lies. As long as the pressure does not come between me and my Savior, but presses me to Him, then the greater the pressure, the greater my dependence upon Him.
+ - If in the sight of God you cannot say you are sure that you have a special call to stay at home, why are you disobeying the Saviour’s plain command to go?
+ - Let us never forget that what we are is more important than what we do.
+ - The harvest here is indeed great, and the laborers are few and imperfectly fitted, without much grace, for such a work. And yet grace can make a few feeble instruments the means of accomplishing great things – things greater even than we can conceive.
+ - One difficulty follows another very fast – but God reigns, not chance.
+ - If the Lord is coming soon, is this not a very practical motive for greater missionary effort? I know of no other motive that has been so stimulating to myself.
+ - If this is a real work for God it is a real conflict with Satan.
+ - In nothing do we fail more, as a Mission, than in lack of tact and politeness.
+ - As a rule, prayer is answered and funds come in, but if we are kept waiting, the spiritual blessing that is the outcome is far mar precious than exemption from the trial.
+ - Power with God will be the gauge of real power with men.
+ - Let but faithful labourers be found, who will prove faithful to God, and there is no reason to fear that God will not prove faithful to them.
+ - It is not so much the greatness of our troubles, as the littleness of our spirit, which makes us complain.
+ - Not infrequently our GOD brings His people into difficulties on purpose that they may come to know Him as they could not otherwise do.
+ - If it is true in anything, it is especially true of divine things, what costs little is worth little.
+ - Satan, the Hinderer, may build a barrier about us, but he can never roof us in, so that we cannot look up.
+ - Devotion to God is still a voluntary thing; hence the differences of attainment among Christians.
+ - The hardest part of a missionary career is to maintain regular, prayerful Bible study. Satan will always find you something to do, when you ought to be occupied about that – if it is only arranging a window blind!
+ - An easy, non-self-denying life will never be one of power.
+ - The missionary spirit is the spirit of Jesus, the spirit of the incarnation and the cross.
+ - There has never been a successful social movement for any minority without the support of the majority.
+ - Unless you intend your wife to be a true missionary, not merely a wife, home-maker, and friend, do not join us.
+ - Nothing can take the place of a real hunger for souls, or make up for the lack of it.
+ - Oh, for eloquence to plead the cause of China, for a pencil dipped in fire to paint the condition of this people.
+
+79 quotes

@@ -1,0 +1,42 @@
+ - Be like a flower that gives its fragrance even to the hand that crushed it. ~~Ali ibn Abi Talib
+ - If your heart is a volcano, how shall you expect flowers to bloom? ~~Khalil Gibran
+ - Love is like a flower, even the most beautiful kind dies. ~~Till Lindemann
+ - True love stories never have endings. ~~Richard Bach
+ - The fragrance of flowers spreads only in the direction of the wind. But the goodness of a person spreads in all direction. ~~Chanakya
+ - Words can travel thousands of miles. May my words create mutual understanding and love. May they be as beautiful as gems, as lovely as flowers. ~~Nhat Hanh
+ - I’m a decent man who exports flowers. ~~Pablo Escobar
+ - Oh heart, if one should say to you that the soul perishes like the body, answer that the flower withers, but the seed remains. ~~Khalil Gibran
+ - Wildflowers don’t care where they grow. ~~Dolly Parton
+ - Everyone wants to understand art. Why don’t we try to understand the song of a bird? Why do we love the night, the flowers, everything around us, without trying to understand them? But in the case of a painting, people think they have to understand. ~~Pablo Picasso
+ - Like a beautiful flower that is colorful but has no fragrance, even well spoken words bear no fruit in one who does not put them into practice. ~~Buddha
+ - The first flower that blossomed on this earth was an invitation to an unborn song. ~~Rabindranath Tagore
+ - I smile like a flower not only with my lips but with my whole being. ~~Rumi
+ - To make a perfume, take some rose water and wash your hands in it, then take a lavender flower and rub it with your palms, and you will achieve the desired effect. ~~Leonardo da Vinci
+ - My God, my aim and my fulfillment; I am thy yesterday and thou are my tomorrow. I am they root in the earth and thou art my flower in the sky, and together we grow before the face of the sun. ~~Khalil Gibran
+ - When we look deeply into the heart of a flower, we see clouds, sunshine, minerals, time, the earth, and everything else in the cosmos in it. Without clouds there could be no rain, and without rain there would be no flower. ~~Nhat Hanh
+ - In early June the world of leaf and blade and flowers explodes, and every sunset is different. ~~John Steinbeck
+ - I think flowers are very beautiful things. Very nice and innocent things. They don’t harm anybody. ~~Steven Morrissey
+ - Next time a sunrise steals your breath or a meadow of flowers leave you speechless, remain that way. Say nothing, and listen as Heaven whispers, “Do you like it? I did it just for you.” ~~Max Lucado
+ - There’s nothing to mourn about death any more than there is to mourn about the growing of a flower. What is terrible is not death but the lives people live or don’t live up until their death. ~~Charles Bukowski
+ - Live on coffee and flowers. Try not to worry what the weather will be. ~~Matt Berninger
+ - Politeness is the flower of humanity. ~~Joseph Joubert
+ - Beauty doesn’t have to be about anything. What’s a vase about? What’s a sunset or a flower about? What, for that matter, is Mozart’s Twenty-third Piano Concerto about? ~~Douglas Adams
+ - When you understand spiritual law, then you realize that everything you give, good or bad, will in fact come back to you tenfold and that’s just the way it is. You give someone flowers and the person you are ultimately giving to is yourself. ~~Marianne Williamson
+ - Because the world is so full of death and horror, I try again and again to console my heart and pick the flowers that grow in the midst of hell. ~~Hermann Hesse
+ - Full many a flower is born to blush unseen, And waste it’s fragrance on the desert air. ~~Jane Austen
+ - You are me, and I am you. Isn’t it obvious that we “inter-are”? You cultivate the flower in yourself, so that I will be beautiful. I transform the garbage in myself, so that you will not have to suffer. ~~Nhat Hanh
+ - Full many a flower is born to blush unseen. ~~James Joyce
+ - Humbly serving all with their beauty, flowers say more to us about God than anything else. Each one brings a message that the Heavenly Father is right here. ~~Paramahansa Yogananda
+ - Hours fly, Flowers die: New days, New ways: Pass by! Love stays. ~~Henry van Dyke
+ - Only God can shape a flower, but any foolish child can pull it to pieces. ~~Og Mandino
+ - I am your moon and your moonlight too I am your flower garden and your water too I have come all this way, eager for you Without shoes or shawl I want you to laugh To kill all your worries To love you To nourish you. ~~Rumi
+ - And when thou art weary I’ll find thee a bed, Of mosses and flowers to pillow thy head. ~~John Keats
+ - I notice that you use plain, simple language, short words and brief sentences. That is the way to write English – it is the modern way and the best way. Stick to it; don’t let fluff and flowers and verbosity creep in. ~~Mark Twain
+ - Love is a flower that grows in any soil, works its sweet miracles undaunted by autumn frost or winter snow, blooming fair and fragrant all the year, and blessing those who give and those who receive. ~~Louisa May Alcott
+ - The blooming of a flower is, in my mind, not a miracle. It’s something that we can understand on the basis of molecular biology these days. ~~Francis Collins
+ - I’ve had so many knives stuck into me, when they hand me a flower I can’t quite make out what it is. It takes time. ~~Charles Bukowski
+ - Daisies in water are the longest lasting flower you can give to someone. Fact. Buy daisies. Not roses. ~~Anne Sexton
+ - I paint flowers so they will not die. ~~Frida Kahlo
+ - When we see the Beloved in each person, it’s like walking through a garden, watching flowers bloom all around us. ~~Ram Dass
+
+40 quotes

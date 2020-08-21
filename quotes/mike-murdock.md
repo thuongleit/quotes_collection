@@ -1,0 +1,52 @@
+ - The secret of your future is hidden in your daily routine.
+ - Mentorship is the key to extraordinary success.
+ - You will never change your life until you change something you do daily.
+ - The only reason men fail is because of broken focus.
+ - What you do daily determines what you become permanently.
+ - Money is merely a reward for solving problems.
+ - You will never possess what you are unwilling to pursue.
+ - You will only be remembered for two things: the problems you solve or the ones you create.
+ - What you make happen for others, God will make happen for you.
+ - Pay any price to stay in the presence of extraordinary people.
+ - What you fail to destroy will eventually destroy you.
+ - Discontent is the catalyst for change.
+ - Never complain about what you permit.
+ - Giving is a proof that you have conquered greed.
+ - Popularity is when other people like you. Happiness is when you like yourself.
+ - A successful life is expensive; it will cost you something to become a champion.
+ - Don’t waste your time, it is too short, Valuable and irreplaceable.
+ - The day you make a decision about your life is the day your world will change.
+ - Leaders make decisions that create the future they desire.
+ - When you access and evaluate your goals, you will uncluttered your life of the unnecessary.
+ - Sometimes you have to do something you dislike to create something you desire.
+ - Habit is stronger than desire.
+ - Each relationship nurtures a strength or weakness within you.
+ - Immaturity is the inability to delay self gratification.
+ - Whatever you possess today is enough to create anything else you will ever want in your future.
+ - Intolerance of your present creates your future.
+ - Order – the accurate arrangement of things – increases productivity. Productivity decides rewards.
+ - When wrong people leave your life, wrong things stop happening.
+ - Those who unlock your compassion are those to whom you’ve been assigned.
+ - Your rewards in life are determined by the kinds of problems you are willing to solve for someone.
+ - Your schedule and your spending describe what you really love in life.
+ - Loneliness Is Not The Absence Of Affection, But The Absence Of Direction.
+ - You will always move toward anyone who increases you and away from anyone who makes you less.
+ - Depression will always follow any decision to avoid a priority.
+ - Your self-portait decides your conduct.
+ - A Every man has a king and a fool in him and the one you talk to reacts.
+ - Success will smile at the man who refuses to lie down at the corridor of failure.
+ - God loves you because of whom you are but he blesses you because of what you do.
+ - Tomorrow contains more joy than any yesterday you recall.
+ - My goal is for 300 people to hear the wisdom that God gives my heart for them to become millionaires for the sake of the Kingdom of God.
+ - Money’s an instrument. The Bible says money answereth all things.
+ - Men will spend their health getting wealth. Then, gladly pay all they have earned to get health back.
+ - Only fools make permanent decisions without knowledge.
+ - Truth is the most powerful force on earth because it cannot be changed.
+ - The treatment you permit reveals the portray you have of yourself.
+ - Attack is the proof that your enemy anticipates your success.
+ - The longevity of every relationship is decided by the willingness to forgive.
+ - Your significance is not in your similarity to another – it is in your point of difference.
+ - I, really sense the Lord saying to me that: “There are churches, there are ministers and there are business people that this $8,500 seed is going to connect you to a million dollar plus decision. A million dollar plus opportunity.”
+ - Ever heard the story about a cat that accidentally caught a mouse in his sleep? Me neither.
+
+50 quotes

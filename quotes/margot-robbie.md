@@ -1,0 +1,22 @@
+ - I became an actor so I can show you characters and never have to show you me.
+ - Everyone’s like, ‘overnight sensation.’ It’s not overnight. It’s years of hard work.
+ - When you look at movies, the lead girl is always gorgeous and thin. There is a stereotype that you need to look a certain way and when you get in the business you really feel the pressure.
+ - Playing a bad guy is always more fun than playing the good guy.
+ - Obviously social media has had a massive impact on the fame game, but not in a positive way. But it can be for some.
+ - I kind of left everyone behind in Australia – all my friends and my family and I had to break up with my boyfriend.
+ - The ’60s are my favorite decade – with the Cold War, the women’s movement. And then there’s the music, the fashion, the clothes, the hair.
+ - I love flying so much. I even airplane food. No one bothers you and your phone never goes off and you can’t have emails go through. It’s undisturbed.
+ - There is something about being people from your home country in a different country. It bonds you together.
+ - Every time I see a piano, I have this urge to play it.
+ - I try to remind myself that all of this could be over tomorrow, because I could wake up and magically be 35 feet tall and not be able to act in movies anymore.
+ - No one in my family had ever done anything acting-wise or entertainment industry-wise.
+ - I was always very dramatic – my family would probably use the word ‘dramatic’ – as a child; always putting on performances, making everyone come watch, and pay to watch. I was very business-savvy as a child.
+ - I just try to keep healthy more so than trying to be thin.
+ - Someone told me that you could learn to sing, and that there are muscles that if you build, you will sing.
+ - There are those who build careers and companies just out of being popular on Instagram, but theres nothing behind them.
+ - New York is the coolest city. The place just never sleeps. It’s amazing.
+ - I know that my look is more ‘toothpaste model’ as opposed to artsy, which sucks because I can play those roles.
+ - Once people see you pulling off one role, they think youre a safe bet to do a similar role.
+ - It’s fascinating to see how versatile New York City is. It lends itself to being so many different places!
+
+20 quotes

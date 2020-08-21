@@ -1,0 +1,60 @@
+ - You’ll never know what you’re capable of if you don’t try.
+ - The flashbacks are a great way to give answers to the story.
+ - I love Australia. My dream would be to have a place to live there and be able to commute back and forth.
+ - Buffys very similar to me to me when I was growing up. A child in an adult world, sort of trapped between the two. Does Buffy go to the prom or does she save the world from demons?
+ - I like food. I like eating. And I don’t want to deprive myself of good food.
+ - I don’t smoke, don’t drink much, and go to the gym five times a week. I live a healthy lifestyle and feel great. I can run a marathon, you know.
+ - There’s no such thing as a supermom. We just do the best we can.
+ - Being outspoken has always gotten me into trouble. I’m just this little thing and then all of a sudden it comes out.
+ - Normal is such a hard word to use, because everyone’s idea of normal is different. Real is what the word is. I think you either live a real life or you live a weird celebrity pseudolife. I think I lead a really real life.
+ - Creativity is one of the most important brain functions in developing youth. It is the ultimate road to invention. I believe it is really important to both nurture and encourage this in children – and adults, too!
+ - I was very burned out after Buffy. It was exhausting. It took me from essentially 18 on the pilot to being 24 and married when we finished. That show was my life. I was doing movies on the hiatuses and on weekends, but I needed to explore and live that gypsy lifestyle.
+ - I don’t get the whole getting drunk thing.
+ - I think it’s a mistake if people just fall in love and think that that’s the only thing you need to keep you happy. There’s a lot more to being with someone than just love.
+ - I don’t want to feel like a failure to my daughter. She’s the best thing I’ve ever done. Buffy – pretty great and all, but Charlotte’s way better.
+ - Everything I am is because of my mom.
+ - I clip coupons all the time. Why should you pay more for something that someone else is paying less for?
+ - I believe in myself, and I’ve always had people behind me who believed in me. With that, you can do anything.
+ - Being an actor gives you a chance to play all kinds of roles, very moving and dramatic on one project, silly and girlish on another. That’s the most interesting thing out this business, you get to keep reinventing yourself.
+ - My family comes first, and you have to be in charge to be able to protect that. You have to be the one who says no or you don’t have a life, which is what I found out the first time.
+ - I would dye my hair every week. I wanted to be a really goth teenager.
+ - Well, that’s the old story I heard about the Jackie Chan films. That, like, Jackie Chan will just keep going and when crew members drop he just replaces them. I don’t know if that’s true but after having worked in Japan I believe it might be true.
+ - I was young. I was newly married. And I had worked like a dog. I just wanted to live and travel.
+ - The nomadic lifestyle does work for a lot of working parents, but I’ve traveled and I’ve seen it, and I want to be able to go home at night and see my daughter. I want to be there for her first day of school and her school recital. Honestly, television is what offers me that.
+ - You’re forced to think about what your goals are and you clarify them because you’re taking this journey with another person and you need to be open with your partner.
+ - I’m fascinated by twins. It’s such an interesting thing. I’m an only child, so I don’t have a sibling. But, if you think about the bond that siblings have, that intensifies so much when you think about being in the womb together.
+ - I’m always the one who gets killed. And I want it to be really gory. Body parts all over the place. Mangled!
+ - There’s a part of me that will always believe that Angel is Buffy’s true love. That there will be a piece of her heart that will always be with him for the rest of her life.
+ - When I’m with my kids, I definitely try and be in the moment and wait till the end unless the mess poses a real danger, like slipping. But when I am cooking by myself, I definitely clean as I go to simplify.
+ - I think that’s what growing up is all about. It’s about taking on new responsibilities and learning what you can handle, and learning what you can’t.
+ - I think that this industry in particular is so fast-paced that you keep saying, ‘I’ll take vacation later.’ Sometimes later never comes. I’m definitely leading a much slower life now that I’m not working every single day on a television series.
+ - I think actually what I’m going to do when I’m done and take my next vacation, is I’m going to go over and start unions in Japan. I’m going to unionize Japan. Because the way they work those crews is so criminal. There’s no overtime, so they can just keep going.
+ - Ultimately, I want to have a good career and do interesting work.
+ - I don’t do a television show for awards. You make it so people will enjoy watching it.
+ - Really, how bad is eating a piece of cake? Being bad is murdering someone. That’s bad. Don’t do that.
+ - But there are still only certain film genres where a woman can stand out, be heroic, be the centerpiece.
+ - I got to see the first step, hear the first word. Most people – and certainly working moms – are not able to do that. I wanted to appreciate the fact that I had worked so hard all my life to be able to have those moments.
+ - I am definitely a Type-A, tidy, everything-has-a-place kind of person, so initially encouraging a mess was against my nature. But once you realize all the benefits, it’s pretty simple to let that go.
+ - People tell me not to do a soap, but it was a great learning experience because I became familiar with the technical aspects of the business. Besides, look who came out of soaps – Julianne Moore, Demi Moore, Tommy Lee Jones, Parker Posey, Kathleen Turner. All amazing people.
+ - In television, women can really run anything. It can be a comedy, it can be a drama, it can be genre, it can be anything. But in films, women are still getting to the top.
+ - It’s a terrible process, what you go through, during pilot season. All the shows turn themselves in and there is a good four to six weeks before you get phone call.
+ - There’s a lot more to being with someone than just love.
+ - I try never to say no when it comes to creativity, but I do try and lead down an “appropriate road” – like not on furniture or the walls.
+ - All joking aside, I’m a television watcher and I get frustrated with shows sometimes when they set up puzzles and then they don’t give answers. It’s just more questions and more questions.
+ - How can women be as thin as we are? We have personal trainers to work us out. We have specially prepared meals.
+ - I also want the chance to work with some of the best actors in the business, because that’s where you can learn so much by just being on a set and getting a feel for how they approach their role and how they work with you.
+ - I would tell any actress that the trick is to play all the female characters on your show, and then all the men are yours.
+ - When you’ve played Buffy – who’s such a strong female role model – it’s really hard for another female character to compare to her.
+ - I started to watch Damages and all of these amazing, female-driven shows, and it was something that was always in the back of my mind. Then, once I had my daughter, I realized that I was done living the romantic lifestyle, and nothing offers that more than television.
+ - Our bodies are machines and have to be functional, and to do that they have to be fed properly.
+ - A lot of times, when you start a show at a young age, you get stuck. You get six years of high school, but I didn’t have that.
+ - I’ve always been fascinated by Asian culture, and I love that women can play the lead in a horror film.
+ - I think Buffy was a grown-up. One of the amazing things about the show was that I was able to grow with her. Yes, she started in high school, and then she went to college, and then essentially she was a mother to all the other Slayers, so I always felt like Buffy was a grown-up.
+ - Being a teen idol is what I’ve waited for my whole life.
+ - I’m from New York, I make kind of somewhat maybe lewd, at times – maybe some would say dirty – jokes. But in jest.
+ - I also think it was important for me and Freddie to be able to have a lot of time to share our lives at the beginning of our marriage rather than my coming home at 9 or 10 at night from the set. Things have really worked out for the best for both of us.
+ - It used to be only on TV that women could lead, that a show could be based on a woman.
+ - When I got off the soap I got offered all these, you know, ‘women in jeopardy’ – I call them ‘disease of the week’ movies.
+ - I don’t understand why James Bond has to be a man all the time. When Pierce Brosnan retires, why not one of us?
+
+58 quotes

@@ -1,0 +1,26 @@
+ - It is not so much what we say or do that educates; what really educates is who we are.
+ - Effective learning means arriving at new power, and the consciousness of new power is one of the most stimulating things in life.
+ - Do not wait for ideal circumstances, nor the best opportunities; they will never come.
+ - To aim at the best and to remain essentially ourselves is one and the same thing.
+ - We must never try to escape the obligation of living at our best.
+ - Our spiritual life is a venture in the dark, between the soul and God, and no spiritual life is worth the name unless it is so.
+ - Simplicity of life is an essential for greatness of life.
+ - You must grow like a tree, not like a mushroom.
+ - I wish that Christmas may be happy and heavenly, and the holidays glow with the gifts of the inner life that God will give to each one.
+ - Egypt is full of dreams, mysteries, memories.
+ - Love gives a sense of rest.
+ - The way to do much in a short time is to love much. People will do great things if they are stirred with enthusiasm and love.
+ - Every friendship with God and every love between Him and a soul is the only one of its kind.
+ - It is better to begin a great work than to finish a small one.
+ - There ought to be so many who are excellent, there are so few.
+ - This world is not the sum total of God’s resources – on the contrary, it is only the ‘dream,’ the probation, the prelude of the true world, the true life.
+ - In no order of things is adolescence the time of the simple life.
+ - All sorts of spiritual gifts come through privations, if they are accepted.
+ - The less event and action there is in a scene the more I can enter into it.
+ - We know in whom we believe, and that, so long as we trust God utterly, all must come right.
+ - Are democracy and poetry exclusive of one another and, if so, why?
+ - What a misfortune it would be, religiously speaking and educationally speaking, if we could only work happily with those who saw things as we do.
+ - We can sanctify ourselves in common things. We must do so.
+ - The great thing and the hard thing is to stick to things when you have outlived the first interest, and not yet got the second, which comes with a sort of mastery.
+
+24 quotes

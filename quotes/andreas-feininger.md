@@ -1,0 +1,22 @@
+ - Light is the photographic medium par excellence; it is to the photographer what words are to the writer; color and paint to the painter; wood, metal, stone, or clay to the sculptor.
+ - A technically perfect photograph can be the world’s most boring picture.
+ - The photographer has almost as much control over his subject matter as a painter. He can control light and shade, form and space, pattern and texture, motion and mood, everything except composition.
+ - The difference in ‘seeing’ between the eye and the lens should make it obvious that a photographer who merely points his camera at an appealing subject and expects to get an appealing picture in return, may be headed for a disappointment.
+ - Human vision is untrustworthy, subjective and selective. Camera vision is total and non – objective.
+ - Before you shoot an irresistible subject, mute all your senses except sight to find out how much is left for the camera to record.
+ - What matters is not what you photograph, but why and how you photograph it. Even the most controversial subject, if depicted by a sensitive photographer with honesty, sympathy, and understanding, can be transformed into an emotionally rewarding experience.
+ - Know – how is worthless unless guided by know – why and know – when.
+ - Every successful photograph, except for lucky shots, begins with an idea and a plan. The more precisely a photographer knows what it is he wishes to do, the better the chances are that he will do it.
+ - The first impression of a new subject is not necessary the best. Seen from a different angle or under different condition it might look even better. Always study a three – dimensional subject with one eye closed.
+ - No one can do inspired work without genuine interest in his subject and understanding of its characteristics.
+ - With a short lens I can reveal the hidden things near at hand, with a long lens the hidden things far away. The telephoto lens provides a new visual sensation for people: it widens their horizons. And, conversely, the things under our nose invariably look good when blown up really big.
+ - Unless a subject interests me, I’ll pass it over and save my film for better things.
+ - Any good photograph is a successful synthesis of technique and art.
+ - Photographers – idiots, of which there are so many – say, “Oh, if only I had a Nikon or a Leica, I could make great photographs.” That’s the dumbest thing I ever heard in my life. It’s nothing but a matter of seeing, and thinking, and interest.
+ - Realism and superrealism are what I’m after. This world is full of things the eye doesn’t see. The camera can see more, and often 10 times better.
+ - It’s nothing but a matter of seeing, thinking, and interest. That’s what makes a good photograph. And then rejecting anything that would be bad for the picture. The wrong light, the wrong background, time and so on. Just don’t do it, not matter how beautiful the subject is.
+ - Two factors thus emerge as requisites of success in the field of creative photography. First, the subject must be photogenic. Second, its re-creation in a photograph must be based upon technical knowledge, guided and supported by artsitic inspiration.
+ - Experience has shown that the more fascinating the subject, the less observant the photographer.
+ - Don’t look for “depth” but instead search for subject aspects which prove the presence of depth.
+
+20 quotes

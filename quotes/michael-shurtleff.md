@@ -1,0 +1,24 @@
+ - Creating relationship is the heart of acting. It is basic. It is essential.
+ - Consistency is the death of good acting.
+ - The first step to a better audition is to give up character and use yourself.
+ - Conflict is what creates drama. The more conflict actors find, the more interesting the performance.
+ - To go into acting is like asking for admission to an insane asylum. Anyone may apply, but only the certifiably insane are admitted.
+ - Listening is not merely hearing. Listening is reacting. Listening is being affected by what you hear. Listening is active.
+ - Every scene you will ever act begins in the middle, and it is up to you, the actor, to provide what comes before.
+ - Take nothing for granted. Make an emotional discovery as often as you can find one in every scene. Ask yourself: What is new?
+ - The moral: Don’t settle for anything less than the biggest dream for your future Fight to make the dream come true.
+ - Humor is an attitude, a survivor’s way of looking at life. It’s not about telling jokes.
+ - If we lived for reality, we’d be dead, every last one of us. Only dreams keep us going.
+ - Everyone thinks romance is weak. Yet romance is everyone’s secret dream-it’s why we’re alive.
+ - Acting in theatre or television or screen is only for the irrecoverably diseased, those so smitten with the need that there is no choice.
+ - Actors, who should pride themselves on their singularity, are forever trying to be someone else. It isn’t necessary for you, the actor, to like yourself – self-love isn’t easy to come by for most of us – but you must learn to trust who you are. There is no one else like you.
+ - That’s why there’s so little romance in our world now: everyone thinks romance is weak.
+ - There’s only one reason why a character drinks: to seek confrontation. To fight for what they want in ways normally denied them.
+ - Every scene is a love scene. The actor should ask the question: ‘Where is the love?’
+ - Whatever you decide is your motivation in the scene, the opposite of that is also true and should be in it.
+ - Most actors make themselves unhappy by searching for their sanity, by insisting on their normalcy; it’s a grave mistake.
+ - The life of an actor is a bit easier to take if you admit you’re bonkers.
+ - The actor needs to find out what the basic fight is in every character in every scene.
+ - An expression of feeling isn’t worth anything unless it interferes with what the other actor in the scene wants.
+
+22 quotes

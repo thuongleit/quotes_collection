@@ -1,0 +1,25 @@
+ - And don’t tell me the end justifies the means because it doesn’t. We never reach the end. All we ever get is means. That’s what we live with.
+ - The tree of nonsense is watered with error, and from its branches swing the pumpkins of disaster.
+ - That’s what you get for ignoring the beauty of Tupperware.
+ - Photography is without mercy – though it’s nonsense to say it does not lie. Rather, it lies in a particular, capricious way which makes beggars of ministers and gods of cat’s meat men.
+ - Google says young people don’t care about privacy, but when asked if they’d let their parents see their phone bills and other stuff they say no.
+ - I love you forever. I am sorry I cannot love you now.
+ - No. The moral of the story in so far as it has one is that cannibals can study logic, and that if you are going to leave the path, you better have your wits about you and know better than to trust the first scary old lady who talks to you in public.
+ - In a lot of places, of course, the ’80s had never really come to an end.
+ - If we one day cease to exist, what will be remarkable is that we were ever here at all.
+ - Society is based on discontent: people wanting more and more and more, being continually dissatisfied with their homes, their bodies, their decor, their clothes, everything.
+ - Nowhere have I ever heard of Satan taking the form of an avuncular hippie. No doubt he could. It just seems inefficient.
+ - Ninjas are silly. They are the flower fairies of gong fu and karate.
+ - It’s usually best not to ask philosophers anything, precisely because they have the habit of what in the Persian language is called sanud: the profitless consideration of unsettling yet inconsequential things.
+ - It’s not that any sufficiently advanced technology is magic, it’s that any technology taking place beyond the threshold of our senses is.
+ - The trouble with shooting people, Edie Banister now remembers, is that it’s so hard to do just one.
+ - Never mind, never mind, let’s get to the part where we smite the unrighteous. I’ve brought my most alarming teeth!
+ - We need to create the institutions that will support the society we want to live in. The only answer is collective action.
+ - Law is error, you see. It’s an attempt to write down a lot of things everyone ought to know anyway.
+ - We should be worrying about if you live in the city you’re more likely to have anxiety or mood disorders and to be schizophrenic. More than the problems people have from social media.
+ - Children, bored and opinionated, are scholars of the most dogmatic stripe.
+ - I have wrangles with Facebook, entered fictitious trips because I can’t get the map to get off my page, don’t want people to know where I live. It is possible to carve out a space that’s your own.
+ - I have known heaven, and now I am in hell, and there are mimes.
+ - The Brit abroad is always the voice of caution. Persons of other cultures are known to be undisciplined, prone to leaning out of car windows and cooking with garlic.
+
+23 quotes

@@ -1,0 +1,35 @@
+ - Work hard! Just keep working hard until you can do something you want to do! We all progress at different speeds and in different ways, so be patient and keep working hard!
+ - Challenges are the key in life. You always have to challenge yourself and try to get to different states.
+ - Satisfying yourself requires challenges because when you come to a certain point, you’re not happy anymore. You don’t feel happy with the way you played one year ago, you have to always make progress. So that’s a challenge.
+ - I don’t really want to force anyone to feel a specific way, but if they can keep their body and mind “floating” with my music, that pleases me.
+ - Music taught me how to always be patient and focused, and to train the little concentration in myself.
+ - Music came first and I started to jam with people I couldn’t communicate in their language. Then, because I could make friends thanks to music, they started to talk to me. Then I started to learn English.
+ - I really think that martial arts and music are very close to each other and both require a lot of focus and improvisation because you don’t know where or when you’re going to get kicked!
+ - I have to be very original and have a strong musical voice. I don’t want to be a copycat of anybody.
+ - Travelling is very difficult, you have to go to places with different climates and time zones. Travelling like that every single day through the year is definitely not healthy, but that’s something I have to sacrifice if I want to play music.
+ - My music is very emotional. The reason why I want to play music is very emotional. I want to call out my emotions and package them into music.
+ - I started to listen to Japanese jazz musicians when I went to high school. Some people I listened to were Yosuke Yamashita, Toshiko Akiyoshi, Sadao Watanabe.
+ - The way to respect all the people I love is to eat the music, have it in my blood and bones, and try to explore it in as much different ways as possible to create my own identity.
+ - I’m always hungry to learn. I always look for something that I can study.
+ - Some artists just go and play, and I have no objections to that – but I don’t like to do that. People take their very precious time to come to my concert, and they give me the opportunity to share two hours of their lives. I want to do the best I can, for visuals, sound and everything!
+ - Art is not that much needed in life, we only need sleep and food. But why do people want art? Because they want to feel emotion! So emotionally moving things is great art to me!
+ - Individuality and originality is was separates good and great artists! How much they can move people with what they do! If they can shake the heart with what they do, is the key!
+ - When you play with someone you can feel the chemistry with, just the first show is already magic.
+ - Everybody improvises without noticing it. Life is about improvising. You can’t control what happens in your life, I mean, you don’t know what can happen in your life today. So you somehow improvise.
+ - The beautiful thing about music is that even so-called negative emotions like anger, sadness, frustration, when they come through the filter of music, they all become beautiful.
+ - I have always liked black and white! It is simple and the colour of the piano.
+ - For me I always need to have two sides to me when I play! I need to be a performer and at the same time the producer. So I need to be somewhere up in the air and producing my music. I can’t just be the performer; otherwise I can’t see the whole view. I need the big view!
+ - To be nice to people and make them happy – that’s my philosophy in life.
+ - Every day is different and improvised. Sometimes, a song can lead to a completely different adventure. You can’t control it.
+ - Nobody wants to experience sad events but people like to listen to sad songs. That’s the beauty of music.
+ - My biggest musical dream is to keep playing all my life. There’s nothing bigger than that and that’s very challenging because you have to satisfy yourself at every stage.
+ - I am playing the music I love and I really play it from my heart, and whatever the out form is – it doesn’t matter whether it’s art or music.
+ - Once I meet the piano, I have no other choice, because I need to have a good date right! So I am trying to please the piano to have the best outcome.
+ - Whenever I do a performance I always hope it is the best day of my life. Sometimes it happens and sometimes it doesn’t.
+ - For the piano and me it is always a blind date! I meet different pianos every single day. I can’t take my piano with me like a bassist can take his instrument. So whenever I arrive I am a bit nervous to see what kind of piano is waiting for me.
+ - The really strong key thing always comes direct to your heart. Even if it’s a visual thing it doesn’t come to your eyes! Even if it is a listening thing it doesn’t come to your ears, it goes directly to your spirit!
+ - I love performing so much! The joy is to have the opportunity to be able to perform all around the world.
+ - It was in Shizuoka, where my home was. I first attended this school when I was five years old. I also attended a regular elementary school, and I was taking piano lessons with a local teacher. I began to study composition at the Yamaha school. And I continued to study there until the age of 15.
+ - Everything is inspiring! It could be fine art or a conversation I have with somebody!
+
+33 quotes

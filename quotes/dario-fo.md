@@ -1,0 +1,26 @@
+ - Know how to live the time that is given you.
+ - A theatre, a literature, an artistic expression that does not speak for its own time has no relevance.
+ - Our homeland is the whole world. Our law is liberty. We have but one thought, revolution in our hearts.
+ - Even before Europe was united in an economic level or was conceived at the level of economic interests and trade, it was culture that united all the countries of Europe. The arts, literature, music are the connecting link of Europe.
+ - Comedy makes the subversion of the existing state of affairs possible.
+ - It is hard for power to enjoy or incorporate humour and satire in its system of control.
+ - Blush at your faults.
+ - When I was a boy, unconsciously, spontaneously I learned the art of telling ironic stories.
+ - With comedy I can search for the profound.
+ - Every artistic expression is either influenced by or adds something to politics.
+ - And he that will go to bed sober, Falls with the leaf still in October.
+ - Real socialism is inside man. It wasn’t born with Marx. It was in the communes of Italy in the Middle Ages. You can’t say it is finished.
+ - Nevertheless, the mode, the justification, and all the games involved in this war were dishonest.
+ - It is extremely dangerous to talk about limits or borders. It is vital, instead, that we remain completely open, that we are always involved, and that we aim to contribute personally in social events.
+ - Although, this is often used with negative connotations, I see ideology as an inherent part of culture.
+ - All forms of power – even based on the consensus of the democratic system – react when they are being attacked, or when those who exercise power become a target.
+ - Best while you have it use your breath, There is no drinking after death.
+ - For some time its been my habit to use images when preparing a speech: rather than write it down, I illustrate it.
+ - Tidy fees are the most effective remedy, both for the doctor and the patient.
+ - Nothing is thought rare Which is not new and follow’d, yet we know That what was worne some twenty yeare agoe, Comes into grace againe.
+ - We are stark naught all, bad’s the best of us.
+ - Scandals are the fertilizer of Western democracy.
+ - It is from him, from Beolco Ruzzante, that I’ve learned to free myself from conventional literary writing and to express myself with words that you can chew, with unusual sounds, with various techniques of rhythm and breathing, even with the rambling nonsense-speech of the ‘grammelot.’
+ - Every time you touch those who have power over the media, they seek to stop you.
+
+24 quotes

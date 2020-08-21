@@ -1,0 +1,45 @@
+ - Feed the world. Let them know it’s Christmas time again.
+ - Well, a sort of epiphany: I was in a great band. And it’s very cool to be at 53 and realise that when you were a kid you were in a great band.
+ - Human progress depends on unreasonable people. Reasonable people accept the world as they meet it; unreasonable people persist in trying to change it. Well, I’m Bob and I’m an unreasonable person. And if TED is anything, it is the olympics of unreasonable people.
+ - They thought they were Mick Jagger and Jerry Hall. In fact, they were more like Tom and Jerry.
+ - It strikes me as being morally repulsive and intellectually absurd that people die of want in a world of surplus.
+ - Music can’t change the world.
+ - When Michael Jackson sings it is with the voice of angels, and when his feet move, you can see God dancing.
+ - So when I got to 50 I just thought, Hold on: I’m thin. I’ve got my hair. I’m well off. I survived, you know.
+ - If you were a pretty boy pop singer, it would wreck you, growing older.
+ - I don’t think anyone sets out to malign poor people but certainly that’s what we do through organizations such as the World Trade Organization, the World Bank and the International Monetary Fund.
+ - It’s like you asked me about the depression thing: you grope towards an understanding of whatever it is your going through, and it’s not personal, there are forces in play around you, and you seek to understand them and that way you can go on.
+ - Find inner peace? I looked; it wasn’t there.
+ - You cannot even begin to understand contemporary African politics if you have not read this fascinating book.
+ - Mankind at its most desperate is often at its best.
+ - It’s really very simple, Governor. When people are hungry they die. So spare me your politics and tell me what you need and how you’re going to get it to these people.
+ - I’d always thought the Rats were good fun, but one of the very nice things about being of Saga age is that I can actually look back and think, When I was younger I was in a great band. It was always a collective thing.
+ - You’ll think I’m off my trolley when I say this, but the Bush administration is the most radical – in a positive sense – in its approach to Africa since Kennedy.
+ - There is not a single extant study that supports all the arguments against men being with their children. It’s absolute bollocks.
+ - Men who are not given any voice in this because of the secret nature of the courts, what they’re left with is dressing up ridiculously, but at least using humour to try and draw attention to their kids.
+ - But I think Prozac is a lethal drug, I’ve several friends just haven’t made it by taking Prozac.
+ - I’m sure I’m very difficult to live with because of my make-up and personality.
+ - Bono as we all know, is in love with the world, he’s enamoured by it. I’m enraged by it. He wants to give the world a great big hug, I want to punch its lights out.
+ - You can’t trust politicians. It doesn’t matter who makes a political speech. It’s all lies – and it applies to any rock star who wants to make a political speech as well.
+ - Certainly, I think being depressed is absolutely part of the human condition, it has to be, if there’s joy there’s its opposite, and it’s something you ride if you possibly can.
+ - Physically I’m tired at the end of the day and quite glad to be reading in bed by midnight.
+ - Music is what I must do, business is what I need to do and politics is what I have to do.
+ - 90% of the divorces are initiated by women. That is really odd. Why? What’s going on? What’s the great discontent at the heart of it?
+ - And part of that is, what is the point of having children if you don’t have the privilege of bringing them up?
+ - Most people get into bands for three very simple rock and roll reasons: to get laid, to get fame, and to get rich.
+ - Actually, today I had to defend the Bush Administration in France again. They refuse to accept, because of their political ideology, that he has actually done more than any American President for Africa. But it’s empirically so.
+ - And whereas women had to fight to find their way into the workforce, men are now fighting to reclaim their place in the family structure.
+ - Rock and Roll is instant coffee.
+ - I do think I feel it but you don’t think you are cause at a certain time you are no age but you don’t think you are anything. You feel the life you have lived. I feel that. It’s been a long fifty years.
+ - What’s the point in having a company of secretaries?
+ - Think. That’s what we need you to do. Think.
+ - Divorce is a by-product of the fact that maybe the nuclear unit is gone.
+ - Music is still above all else the thing that does it for me.
+ - Playing live if the thing I love doing best.
+ - Irish Americans are no more Irish than Black Americans are Africans.
+ - Everything that’s rock n roll is ever meant to be is happening now. I need to get over the shock that that thing is actually happening and that thousands of millions of people around the world are watching.
+ - When I hit 11 so did the careers of Dylan and the Stones. A year later it was the Who and the Kinks.
+ - I was really lucky that I came to puberty at a time when music and politics were completely intertwined.
+ - But if somebody dies, if something happens to you, there is a normal process of depression, it is part of being human, and some people view it as a learning experience etc.
+
+43 quotes

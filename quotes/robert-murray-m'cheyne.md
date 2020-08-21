@@ -1,0 +1,66 @@
+ - For every look at self, take 10 looks at Christ.
+ - My people’s greatest need is my personal holiness.
+ - A holy man is a mighty weapon in the hands of God.
+ - If I could hear Christ praying for me in the next room, I would not fear a million enemies.
+ - The seed of every sin known to man is in my heart.
+ - It is the mark of a hypocrite to be a Christian everywhere but home.
+ - When you are reading a book in a dark room, and come to a difficult part, you take it to a window to get more light. So take your Bibles to Christ.
+ - God will either give you what you ask, or something far better.
+ - Live near to God, and so all things will appear to you little In comparison to eternal realities.
+ - Lord make me as holy as a pardoned sinner can be.
+ - A dark hour makes Jesus bright.
+ - Unfathomable oceans of grace are in Christ for you. Dive and dive again, you will never come to the bottom of these depths. How many millions of dazzling pearls and gems are at this moment hid in the deep recesses of the ocean caves.
+ - A man who loves you the most is the man who tells you the most truth about yourself.
+ - A beam of God’s countenance is enough to fill the heart of a believer to overflowing. It is enough to light up the pale cheek of a dying saint with seraphic brightness, and make the heart of the lone widow sing for joy.
+ - Are we not all immortal till our work is done?
+ - It is not so much great talents that God blesses, as great likeness to Christ.
+ - There cannot be a secret Christian. Grace is like ointment hid in the hand; it betrayeth itself. If you truly feel the sweetness of the cross of Christ, you will be constrained to confess Christ before men.
+ - It is a sure mark of grace to desire more.
+ - Just as the roots of trees take firmer hold when they are contending with the wind; so faith takes firmer hold when it struggles with adverse appearances.
+ - Go on, dear brother; but an inch of time remains, and then eternal ages roll on for ever – but an inch on which we can stand and preach the way of salvation to a perishing world.
+ - It is not our comment on the Word that saves, but the Word itself.
+ - A man cannot be a faithful minister, until he preaches Christ for Christs sake – until he gives up striving to attract people to himself and seeks only to attract them to Christ.
+ - Give yourselves to prayer and the ministry of the Word. If you do not pray, God will probably lay you aside from your ministry, as He did me, to teach you to pray.
+ - God’s children should pray. They should cry day and night to Him. God hears every one of your cries in the busy hour of the daytime and in the lonely watches of the night.
+ - Remember also, the present is your only time to be saved. There is no believing, no repenting, no conversion in the grave – no minister will speak to you there. This is the time of conversion.
+ - The Christian is a person who makes it easy for others to believe in God.
+ - Remember, you are not a tree, that can live or stand alone. You are only a branch. And it is only while you abide in Christ, as the branch in the vine, that you will flourish or even live.
+ - O believing brethren! What an instrument is this which God hath put into your hands! Prayer moves Him that moves the universe.
+ - When the voice of Christ speaks through the Word, then you will arise, and leave all, and follow Him.
+ - Depend upon it, it is God’s Word, not our comment upon God’s Word, that saves souls.
+ - A man is what he is on his knees, and no more.
+ - Seek to be made holier every day; pray, strive, wrestle for the spirit, to make you like God. Be as much you can with God. I declare to you that I had rather be one hour with God than a thousand with the sweetest society on earth or in Heaven. All other joys are but streams; God is the fountain.
+ - I know well that when Christ is nearest, Satan also is busiest.
+ - If Christ justifies you, He will sanctify you! He will not save you and leave you in your sins.
+ - Never forget that the end of a sermon is the salvation of the people.
+ - I ought to spend the best hours of the day in communion with God. It is my noblest and most fruitful employment, and is not to be thrust into any corner.
+ - Rose early to seek God and found Him whom my soul loveth. Who would not rise early to meet such company?
+ - Even in the wildest storms the sky is not all dark; and so in the darkest dealings of God with His children, there are always some bright tokens for good.
+ - I ought to pray before seeing any one. Often when I sleep long, or meet with others early, it is eleven or twelve o’clock before I begin secret prayer. I feel it is far better to begin with God-to see His face first, to get my soul near Him before it is near another.
+ - You will never find Jesus so precious as when the world is one vast howling wilderness. Then he is like a rose blooming in the midst of the desolation, a rock rising above the storm.
+ - The Bible is an inexhaustible fountain of all truths. The existence of the Bible is the greatest blessing which humanity ever experienced. Few tremble at the Word of God, Few, in reading it, hear the voice of Jehovah, which is full of majesty.
+ - The sea ebbs and flows, but the rock remains unmoved.
+ - Most of God’s people are contented to be saved from the hell that is without; they are not so anxious to be saved from the hell that is within.
+ - Watch against lip religion. Above all abide in Christ and he will abide in you.
+ - Ah! believers, you are a tempted people. You are always poor and needy. And God intends it should be so, to give you constant errands to go to Jesus. Some may say, it is not good to be a believer; but ah! see to whom we can go.
+ - I tell you, brethren, if mercies and if judgments do not convert you, God has no other arrows in His quiver.
+ - One gem from that ocean is worth all the pebbles from earthly streams.
+ - Learn that urgency in prayer does not so much consist in vehement pleading, as in vehement believing. He that believes most the love and power of Jesus will obtain the most in prayer.
+ - In spiritual things, this world is all wintertime so long as the Saviour is away.
+ - Joy is increased by spreading it to others.
+ - A calm hour with God is worth a whole lifetime with man.
+ - The nearer you take anything to the light, the darker its spots will appear; and the nearer you live to God, the more you will see your own utter vileness.
+ - There is nothing a natural man hates more than prayer.
+ - Do not fear the face of man. Remember how small their anger will appear in eternity.
+ - There are many hearing me who now know well that they are not Christians because they do not love to give. To give largely and liberally, not grudging at all, requires a new heart.
+ - We must not close with Christ because we feel Him, but because God lias said it, and we must take God’s word even in the dark.
+ - I have a high priest in heaven.
+ - Study your prayers, a great part of my time is spent getting in tune for prayer.
+ - You will be incomplete Christians if you do not look for the coming again of the Lord Jesus.
+ - I never see a sign Licensed to sell spirits without thinking that it is a license to ruin souls.
+ - Affliction shows the power of Christ’s blood, when it gives peace in an hour of trouble, when it can make happy in sickness, poverty, persecution and death. Do not be surprised if you suffer, but glorify God.
+ - Let us see God before man every day.
+ - Every wise workman takes his tools away from the work from time to time that they may be ground and sharpened; so does the only-wise Jehovah take his ministers oftentimes away into darkness and loneliness and trouble, that he may sharpen and prepare them for harder work in his service.
+ - The unconverted do not like to hear much about the Holy Spirit.
+
+64 quotes

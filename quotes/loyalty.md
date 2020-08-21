@@ -1,0 +1,42 @@
+ - Loyalty is the first law of God. ~~Paramahansa Yogananda
+ - Trust is earned, respect is given, and loyalty is demonstrated. Betrayal of any one of those is to lose all three. ~~Ziad K. Abdelnour
+ - The strength of a family, like the strength of an army, lies in its loyalty to each other. ~~Mario Puzo
+ - Exceeding expectations is where satisfaction ends and loyalty begins. ~~Ron Kaufman
+ - The foundation stones for a balanced success are honesty, character, integrity, faith, love and loyalty. ~~Zig Ziglar
+ - Lack of loyalty is one of the major causes of failure in every walk of life. ~~Napoleon Hill
+ - You can easily judge the character of a man by how he treats those who can do nothing for him. ~~Johann Wolfgang von Goethe
+ - The aim of marketing is to know and understand the customer so well the product or service fits him and sells itself. ~~Peter F. Drucker
+ - Courage and kindness, loyalty, truth, and helpfulness are always the same and always needed. ~~Laura Ingalls Wilder
+ - It is not fair to ask of others what you are not willing to do yourself. ~~Eleanor Roosevelt
+ - You stand up for your teammates. Your loyalty is to them. You protect them through good and bad, because they’d do the same for you. ~~Yogi Berra
+ - Hustle, Loyalty, Respect. ~~John Cena
+ - Why is patriotism thought to be blind loyalty to the government and the politicians who run it, rather than loyalty to the principles of liberty and support for the people? Real patriotism is a willingness to challenge the government when it’s wrong. ~~Ron Paul
+ - A person who deserves my loyalty receives it. ~~Joyce Maynard
+ - When we are debating an issue, loyalty means giving me your honest opinion, whether you think I’ll like it or not. Disagreement, at this state, stimulates me. But once a decision is made, the debate ends. From that point on, loyalty means executing the decision as if it were your own. ~~Colin Powell
+ - Beware of anything that competes with your loyalty to Jesus Christ... ~~Oswald Chambers
+ - The difference between a republic and an empire is the loyalty of one’s army. ~~Julius Caesar
+ - I belong to the people I love, and they belong to me – they, and the love and loyaty I give them, form my identity far more than any word or group ever could. ~~Veronica Roth
+ - Loyalty is what we seek in friendship. ~~Marcus Tullius Cicero
+ - If having a soul means being able to feel love and loyalty and gratitude, then animals are better off than a lot of humans. ~~James Herriot
+ - Look out for those who look out for you. Loyalty is everything. ~~Conor McGregor
+ - He has all the characteristics of a dog – except loyalty. ~~Sam Houston
+ - I don’t necessarily have to like my players and associates but as their leader I must love them. Love is loyalty, love is teamwork, love respects the dignity of the individual. This is the strength of any organization. ~~Vince Lombardi
+ - Love grows from stable relationships, shared experience, loyalty, devotion, trust. ~~Richard Wright
+ - Employee loyalty begins with employer loyalty. Your employees should know that if they do the job they were hired to do with a reasonable amount of competence and efficiency, you will support them. ~~Harvey MacKay
+ - To you I’m an atheist; to God, I’m the Loyal Opposition. ~~Woody Allen
+ - Never esteem anything as of advantage to you that will make you break your word or lose your self-respect. ~~Marcus Aurelius
+ - A boy can learn a lot from a dog: obedience, loyalty, and the importance of turning around three times before lying down. ~~Robert Benchley
+ - Where the battle rages, there the loyalty of the soldier is proved; and to be steady on all the battlefield besides, is mere flight and disgrace if he flinches at that point. ~~Martin Luther
+ - Women’s loyalty has to be earned with trust and affection, rather than barbaric rituals. The time has come to leave the old ways of suffering behind. ~~Waris Dirie
+ - This lost world will never be reached and brought back to loyalty to God, until the children of God wake up to the fact that they have a mission in the world. If we are true Christians we should all be missionaries. ~~D.L. Moody
+ - It’s important to remember how our friends have such a powerful influence on us and vice versa. This can be a great thing as long as your friends surround you with love, loyalty, respect and positivity. ~~Demi Lovato
+ - Our loyalties are to the species and the planet. We speak for Earth. ~~Carl Sagan
+ - If one harbors anywhere in one’s mind a nationalistic loyalty or hatred, certain facts, though in a sense known to be true, are inadmissable. ~~George Orwell
+ - Our loyalties are to the species and the planet. We speak for Earth. Our obligation to survive is owed not just to ourselves but also to that Cosmos, ancient and vast, from which we spring. ~~Carl Sagan
+ - Whenever a people are bound together in loyalty to a story that includes something as strange as the Sermon on the Mount, we are put at odds with the world. ~~Stanley Hauerwas
+ - Our loyalty lies with little taxpayers, not big spenders. What our critics really believe is that those in Washington know better how to spend your money than you, the people, do. But we’re not going to let them do it, period. ~~Ronald Reagan
+ - Look for intelligence and judgment and, most critically, a capacity to anticipate, to see around corners. Also look for loyalty, integrity, a high energy drive, a balanced ego and the drive to get things done. ~~Colin Powell
+ - It is not the employer who pays the wages. Employers only handle the money. It is the customer who pays the wages. ~~Henry Ford
+ - Love is friendship that has caught fire. It is quiet understanding, mutual confidence, sharing and forgiving. It is loyalty through good and bad times. It settles for less than perfection and makes allowances for human weaknesses. ~~Ann Landers
+
+40 quotes

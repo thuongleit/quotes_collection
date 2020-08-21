@@ -1,0 +1,34 @@
+ - Photography helps people to see.
+ - Imagine a world without photography, one could only imagine.
+ - None. They should just go out and photograph and stop talking about it. That’s the only way they are going to find themselves. They can’t do it in their heads – they have to go out and do it in the camera and get it on film.
+ - I’m not a nice girl. I’m a photographer.
+ - There are many teachers who could ruin you. Before you know it you could be a pale copy of this teacher or that teacher. You have to evolve on your own.
+ - Photography was the medium preeminently qualified to unite art with science. Photography was born in the years which ushered in the scientific age, an offspring of both science and art.
+ - Actually, documentary pictures include every subject in the world – good, bad, indifferent. I have yet to see a fine photograph which is not a good document.
+ - I didn’t decide to be a photographer; I just happened to fall into it.
+ - What the human eye observes causally and incuriously, the eye of the camera notes with relentless fidelity.
+ - I am so fascinated with this century it will help keep me alive. I’ll be there until the last minute, fighting.
+ - To chart a course, one must have a direction. In reality, the eye is no better than the philosophy behind it. The photographer creates, evolves a better, a more selective, more acute seeing eye by looking ever more sharply at what is going on in the world.
+ - I think the important decision for a photographer is to choose a subject that intensely interests him or her.
+ - Some people are still unaware that reality contains unparalleled beauties. The fantastic and unexpected, the ever-changing and renewing is nowhere so exemplified as in real life itself.
+ - Photography doesn’t teach you to express your emotions; it teaches you how to see.
+ - The photographer is the contemporary being par excellence; through his eyes the now becomes the past.
+ - Abstraction in photography is ridiculous, and is only an imitation of painting. We stopped imitating painters a hundred years ago, so to imitate them in this day and age is laughable.
+ - Self-conscious artiness is fatal, but it certainly would not hurt to study composition in general. Having a basic understanding of composition would help construct a better organized image.
+ - The challenge for me has first been to see things as they are, whether a portrait, a city street, or a bouncing ball. In a word, I have tried to be objective.
+ - The more you do, the more you realize there is to do, what a vast object the metropolis is, and how the work of photographing could go on forever.
+ - Photography can never grow up if it imitates some other medium. It has to walk alone; it has to be itself.
+ - You scientists are the worst photographers in the world and you need the best photographers in the world and I’m the one to do it.
+ - If a medium is representational by nature of the realistic image formed by a lens, I see no reason why we should stand on our heads to distort that function. On the contrary, we should take hold of that very quality, make use of it, and explore it to the fullest.
+ - I haven’t seen too many images that have impressed me!
+ - I have yet to see a fine photograph which is not a good document.
+ - The photograph may be presented as finely and artistically as you will; but to merit serious consideration, must be directly connected with the world we live in.
+ - Does not the very word ‘creative’ mean to build, to initiate, to give out, to act – rather than to be acted upon, to be subjective? Living photography is positive in its approach, it sings a song of life – not death.
+ - I took to photography like a duck to water. I never wanted to do anything else. Excitement about the subject is the voltage which pushes me over the mountain of drudgery necessary to produce the final photograph.
+ - Like every other means of expression, photography, if it is to be utterly honest and direct, should be related to the life of the times – the pulse of today.
+ - The camera is no more an instrument of preservation, the image is.
+ - What we need of equipment is this: let it possess as good a structure as the real-life content that surrounds us. We need more simplifications to free us for seeing.
+ - Pictures are wasted unless the motive power which impelled you to action is strong and stirring.
+ - Today we are confronted with reality on the vastest scale mankind has known and this puts a greater responsibility on the photographer.
+
+32 quotes

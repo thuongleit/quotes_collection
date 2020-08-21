@@ -1,0 +1,54 @@
+ - It’s always about timing. If it’s too soon, no one understands. If it’s too late, everyone’s forgotten.
+ - Some people have the Bible. I have Vogue.
+ - I don’t really follow market research. In the end, I respond to my own instincts.
+ - Fashion goes in only one direction -forward- and I am a firm believer in thinking that way too.
+ - People respond well to those that are sure of what they want.
+ - Fashion is a reflection of our times. Fashion can tell you everything that’s going on in the world with a strong fashion image.
+ - I’m very driven by what I do. I am certainly very competitive. I like people who represent the best at what they do. If that turns you into a perfectionist then maybe I am.
+ - Everyone should be sacked at least once in their career because perfection doesn’t exist. It’s important to have setbacks, because that is the reality of life.
+ - One should look forward rather than backwards.
+ - One wants to be surprised.
+ - I don’t like people who are late.
+ - I’m an ice queen, I’m the Sun King, I’m an alien fleeing from District 9 and I’m a dominatrix. So I reckon that makes me a lukewarm royalty with a whip from outer space.
+ - I want ‘Vogue’ to be pacy, sharp, and sexy – I’m not interested in the super-rich or infinitely leisured. I want our readers to be energetic executive women, with money of their own and a wide range of interests. There is a new kind of woman out there. She’s interested in business and money.
+ - In today’s world you have to interact. You can’t be some difficult, shy person who is not able to look somebody in the face; you have to present yourself. You have to know how to talk about your vision, your focus and what you believe in.
+ - If one comes across sometimes as being cold or brusque its simply because I’m striving for the best.
+ - The notion that Anna would want something done “now” and not “shortly” is accurate.
+ - In the end I do respond to my own instincts. Sometimes they’re successful, and obviously sometimes they’re not. But you have to, I think, remain true to what you believe in.
+ - If you can’t be better than your competition, just dress better.
+ - Fashion’s not about looking back. It’s always about looking forward.
+ - It is a family; it’s a slightly dysfunctional family, but it’s also very close and warm and loving family.
+ - Go get a job. Whether it’s working as a designer or working in a restaurant and then doing your own thing in your own time, it’s a reality of life. In the end it’s going to be helpful to you and so many others.
+ - I’m interested in seeing just the girl on the street because she is unlike any other. I’m inspired by whatever it is she might be wearing.
+ - It’s not so much about powerful women. In some cases, there are stereotypes about women. I often don’t hear men talked about in the same way. It’s more a sexist stereotype than a powerful stereotype.
+ - The notion that a contemporary woman must look mannish in order to be taken seriously as a seeker of power is frankly dismaying. This is America, not Saudi Arabia.
+ - Gisele Bundchen, along w Kate Moss, is a phenomenon. I wish models knew they have to have a personality.
+ - Even if I’m completely unsure, I’ll pretend I know exactly what I’m talking about and make a decision.
+ - The gossip might make better reading, but the simple fact of the matter is that it isn’t true.
+ - I think possibly what people working for one hate the most is indecision. Even if I’m completely unsure, I’ll pretend I know exactly what I’m talking about and make a decision. The most important thing I can do is try and make myself very clearly understood.
+ - It’s the mishaps that make it fun, and brings you the surprise.
+ - Tears? Are you going for a Barbara Walters moment?
+ - Fashion is not beautiful, neither is it ugly. Why should it be either? Fashion is fashion.
+ - It’s possible in today’s world to be instantly famous, whether it’s through Instagram or whatever platform it may be, but it’s a very different matter to be successful financially and in the long-term.
+ - Part of the pleasure of editing ‘Vogue,’ one that lies in a long tradition of this magazine, is being able to feature those who define the culture at any given moment, who stir things up, whose presence in the world shapes the way it looks and influences the way we see it.
+ - I surround myself with a talented group of people that are opinionated and interesting. I try to remain very open to what others have to say.
+ - I worked for Harper’s Bazaar. They fired me. I recommend that you all get fired; it’s a great learning experience.
+ - You either know fashion or you don’t.
+ - When I hear a company is being run by a team, my heart sinks, because you need to have that leader with a vision and heart that can move things forward.
+ - People constantly make the mistake of comparing London with New York, Milan and Paris and that’s not what it’s about. London has its own fashion identity. You come here to find the next Alexander McQueen or John Galliano.
+ - There is something about fashion that can make people really nervous.
+ - I wasn’t academically successful. And maybe I’ve spent a lot of my career trying to make up for that.
+ - I’d just been on a trip to Minnesota, where I can only kindly describe most of the people I saw as little houses.
+ - I’m very good at delegating – people work much better when they have a real sense of responsibility. But at the same time, I don’t like surprises. I don’t pore over every shoot, but I do like to be aware at all times of what’s going on.
+ - The Trump Card is appealing, grounded, smart, and has a sense of humor. Ivanka Trump proves that believing in yourself and working hard never go out of style.
+ - Well it just looks so ugly. Is it a boy or is it a girl?
+ - To be in Vogue has to mean something.
+ - I look for strong people. I don’t like people who’ll say yes to everything I might bring up. I want people who can argue and disagree and have a point of view that’s reflected in the magazine. My dad believed in the cult of personality. He brought great writers and columnists to The Standard.
+ - It’s important for young women and men coming out of the fashion schools to think seriously before starting their own collections.
+ - I went to Wimbledon before I could walk. It’s just been a lifelong passion.
+ - Gisele Bundchen is a bit of a jock. 1 of my fave shoots is her playing football.
+ - Models today, she explained, don’t understand that to be successful you have to have a personality, intelligence, and issues that you support, and Gisele embodies these qualities.
+ - I’ve been very lucky to put women that I sincerely admire on the cover of ‘Vogue:’ the then First Lady and now Secretary of State Hillary Clinton and, more recently, First Lady Michelle Obama. Those were benchmarks for the magazine, and certainly covers that I’ve been very, very proud of.
+ - If you look at any great fashion photograph out of context, it will tell you just as much about what’s going on in the world as a headline in The New York Times.
+
+52 quotes

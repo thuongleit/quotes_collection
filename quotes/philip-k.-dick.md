@@ -1,0 +1,150 @@
+ - It is sometimes an appropriate response to reality to go insane.
+ - Reality is that which, when you stop believing in it, doesn’t go away.
+ - The basic tool for the manipulation of reality is the manipulation of words. If you can control the meaning of words, you can control the people who must use them.
+ - There exists, for everyone, a sentence – a series of words – that has the power to destroy you. Another sentence exists, another series of words, that could heal you. If you’re lucky you will get the second, but you can be certain of getting the first.
+ - The true measure of a man is not his intelligence or how high he rises in this freak establishment. No, the true measure of a man is this: how quickly can he respond to the needs of others and how much of himself he can give.
+ - If you think this Universe is bad, you should see some of the others.
+ - I’m not much but I’m all I have.
+ - The problem with introspection is that it has no end.
+ - Many men talk like philosophers and live like fools.
+ - A man is an angel that has gone deranged.
+ - Reality is just a point of view.
+ - When you are crazy you learn to keep quiet.
+ - Truth, she thought. As terrible as death. But harder to find.
+ - A weird time in which we are alive. We can travel anywhere we want, even to other planets. And for what? To sit day after day, declining in morale and hope.
+ - Don’t try to solve serious matters in the middle of the night.
+ - A lot can be said for the infinite mercies of God, but the smarts of a good pharmacist, when you get down to it, is worth more.
+ - Where there’s dope, there’s hope!
+ - The bird is gone, and in what meadow does it now sing?
+ - I’m tired and I want to rest; I want to get out of this and go lie down somewhere, off where it’s dark and no one speaks. Forever.
+ - Science fiction writers, I am sorry to say, really do not know anything. We can’t talk about science, because our knowledge of it is limited and unofficial, and usually our fiction is dreadful.
+ - What constitutes the authentic human being?
+ - The Empire is the institution, the codification, of derangement; it is insane and imposes its insanity on us by violence, since its nature is a violent one.
+ - Drug misuse is not a disease, it is a decision, like the decision to step out in front of a moving car. You would call that not a disease but an error of judgment.
+ - In a society of criminals, the innocent man goes to jail.
+ - My schedule for today lists a six-hour self-accusatory depression.
+ - When two people dream the same dream, it ceases to be an illusion.
+ - The frogs hopping indoors agree that we are on a prison planet. They themselves are frog criminals that were convicted of doing frog crimes.
+ - This, to me, is the ultimately heroic trait of ordinary people; they say no to the tyrant and they calmly take the consequences of this resistance.
+ - How much of what we call ‘reality’ is actually out there or rather within our own head?
+ - Fear can make you do more wrong than hate or jealousy. If you’re afraid you don’t commit yourself to life completely; fear makes you always, always hold something back. You shouldn’t be alone. It’s killing you; it’s undermining you. All the time, every day, you should be somewhere with people.
+ - It really seems to me that in the midst of great tragedy, there is always the horrible possibility that something terribly funny will happen.
+ - Reality denied comes back to haunt.
+ - There is no route out of the maze. The maze shifts as you move through it, because it is alive.
+ - No structure, even an artificial one, enjoys the process of entropy. It is the ultimate fate of everything, and everything resists it.
+ - I’m a strange person. Sometimes I hardly know what I’m going to do or say next. Sometimes I seem a stranger to myself. Sometimes what I do surprises me and I can’t understand why I do it.
+ - The person I am now, compared with the person in the dream, has been baffled and defeated and only supposes he enjoys a full life. In the dreams, I see what a full life really consists of, and it is not what I really have.
+ - Everything in life is just for a while.
+ - Perhaps if you know you are insane then you are not insane. Or you are becoming sane, finally.
+ - I’d like to see you move up to the goat class, where I think you belong.
+ - The church of my choice is the free, open world.
+ - I guess that’s the story of life: what you most fear never happens, but what you most yearn for never happens either. This is the difference between life and fiction. I suppose it’s a good trade-off. But I’m not sure.
+ - Maybe each human being lives in a unique world, a private world, a world different from those inhabited and experienced by all other humans.
+ - Writing is a lonely way of life. You shut yourself up in your study and work and work.
+ - That is the artist’s job: take mineral rock from dark silent earth, transform it into shining light-reflecting form from sky.
+ - There are no private lives. This a most important aspect of modern life. One of the biggest transformations we have seen in our society is the diminution of the sphere of the private. We must reasonably now all regard the fact that there are no secrets and nothing is private. Everything is public.
+ - It’s easy to win. Anybody can win.
+ - To live is to be haunted.
+ - Fish cannot carry guns.
+ - What is possible and what is not possible is not objectively known but is, rather, a subjective belief on the part of the author and of the reader.
+ - In my writing I even question the universe; I wonder out loud if it is real, and I wonder out loud if all of us are real.
+ - Certainly it constitutes bad news when the people who agree with you are buggier than batshit.
+ - The Logos was both that which thought, and the thing which it thought: thinker and thought together. The universe, then, is thinker and thought, and since we are part of it, we as humans are, in the final analysis, thoughts of and thinkers of those thoughts.
+ - He felt all at once like an ineffectual moth, fluttering at the windowpane of reality, dimly seeing it from outside.
+ - Emigrate or Degenerate.
+ - And of course, in my writing, there is the constant theme of music, love of, preoccupation with, music. Music is the single thread making my life into a coherency.
+ - Death hides within every religion. And at any time it can flash forth-not with healing in its wings but with poison, with that which wounds.
+ - Those who refused to respond to new stimulus would perish. Adapt or perish.
+ - The wisest people are the clowns, like Harpo Marx, who would not speak. If I could have anything I want I would like God to listen to what Harpo was not saying, and understand why Harpo would not talk.
+ - Every time I see a picture of Stalin I look him square in the eye and I say: You’re a meat eater, Joseph.
+ - Fat realized that one of two possibilities existed and only two; either Dr. Stone was totally insane – not just insane but totally so – or else in an artful, professional fashion he had gotten Fat to talk; he had drawn Fat out and now knew that Fat was totally insane.
+ - So books are real to me, too; they link me not just with other minds but with the vision of other minds, what those minds understand and see. I see their worlds as well as I see my own.
+ - In a one-party system there is always a landslide.
+ - I like her; I could watch her the rest of my life. She has breasts that smile.
+ - Imagine being sentient but not alive. Seeing and even knowing, but not alive. Just looking out. Recognizing but not being alive. A person can die and still go on. Sometimes what looks out at you from a person’s eyes maybe died back in childhood.
+ - For each person there is a sentence – a series of words – which has the power to destroy them.
+ - Strange how paranoia can link up with reality now and then.
+ - Matter is plastic in the face of Mind.
+ - Whom the gods notice they destroy.
+ - Dilemma of civilized man; body mobilized, but danger obscure.
+ - The silence of the world could not rein back it’s greed. Not any longer. Not when it had virtually won.
+ - I have seen myself backward.
+ - How’d you like to gaze at a beer can throughout eternity? It might not be so bad. There’d be nothing to fear.
+ - If the last to know he’s an addict is the addict, then maybe the last to know when a man means what he says is the man himself, he reflected.
+ - No matter how long a log stays in the water, it doesn’t become a crocodile.
+ - Maybe I’ll go where I can see stars, he said to himself as the car gained velocity and altitude; it headed away from San Francisco, toward the uninhabited desolation to the north. To the place where no living thing would go. Not unless it felt that the end had come.
+ - On some other world, possibly it is different. Better. There are clear good and evil alternatives. Not these obscure admixtures, these blends, with no proper tool by which to untangle the components.
+ - In this dark world where he now dwelt, ugly things and surprising things and once in a long while a tiny wondrous thing spilled out at him constantly; he could count on nothing.
+ - Activity does not necessarily mean life. Quasars are active. And a monk meditating is not inanimate.
+ - Amazed, Fat said, “She’s decomposing and yet she’s still giving birth?” “Only to monsters,” Dr. Stone said.
+ - The cries of the dead are terrible indeed; you should try not to hear them.
+ - Everything is true Everything anybody has ever thought.
+ - They wanted to have a good time, but they were like children playing in the street; they could see one after another of them being killed – run over, maimed, destroyed – but they continued to play anyhow.
+ - The distinction between sanity and insanity is narrower than a razor’s edge, sharper than a hound’s tooth, more agile than a mule deer. It is more elusive than the merest phantom. Perhaps it does not even exist; perhaps it is a phantom.
+ - We are served by organic ghosts, he thought, who, speaking and writing, pass through this our new environment. Watching, wise, physical ghosts from the full-life world, elements of which have become for us invading but agreeable splinters of a substance that pulsates like a former heart.
+ - She makes life over, he realized. She controls life, whereas I just sit on my can and let it happen to me.
+ - Sometimes I wish I knew how to go crazy. I forget how.
+ - The hell with the newspapers. Nobody reads the letters to the editor column except the nuts. It’s enough to get you down.
+ - You’re killing yourself with cynicism. Your idols got taken away from you one by one and now you have nothing to give your love to.
+ - We have entered a Moment when we are alone. We cannot get assistance, as before. Well, Mr. Tagomi thought, perhaps that too is good. Or can be made good. One must still try to find the Way.
+ - I did not tell Fat this, but technically he had become a Buddha. It did not seem to me like a good idea to let him know. After all, if you are a Buddha you should be able to figure it out for yourself.
+ - It has been said of dreams that they are a ‘controlled psychosis,’ or, put another way, a psychosis is a dream breaking through during waking hours.
+ - Either I’ve invented a whole new logic or, ahem, I’m not playing with a full deck.
+ - Insanity – to have to construct a picture of one’s life, by making inquiries of others.
+ - Skill is a function of chance. It’s an intuitive best-use of chance situations.
+ - Should we have a leader or should we think for ourselves? Obviously the latter in principle. But-sometimes there lies a gulf between what is theoretically right and that which is practical.
+ - If I’d known it was harmless, I’d have killed it myself!
+ - I think great art should play a part in the ordinary man’s life, don’t you? It can make his existence so much richer and more meaningful.
+ - Upon him the contempt of three planets descended.
+ - Science fiction writers, I am sorry to say, really do not know anything.
+ - Once a guy stood all day shaking bugs from his hair.
+ - My life and creative work are justified and completed by Blade Runner.
+ - No man is infinitely strong; for every creature that runs, flies, hops or crawls there is a terminal nemesis which he will not circumvent, which will finally do him in.
+ - Just because something bears the aspect of the inevitable one should not, therefore, go along willingly with it.
+ - He started keeping a journal – had been, in fact, secretly doing so for some time: the furtive act of a deranged person.
+ - My major preoccupation is the question, ‘What is reality?’
+ - It is amazing that when someone else spouts the nonsense you yourself believe you can readily perceive it as nonsense.
+ - God can be good and terrible-not in succession-but at the same time. This is why we seek a mediator between us and him; we approach him through the mediating priest and attenuate and enclose him through the sacraments. It is for our own safety: to trap him within confines which render him safe.
+ - The will to believe chases out the rational mind, whenever and wherever the two come into conflict.
+ - People have told me that everything about me, every facet of my life, psyche, experiences, dreams, and fears, are laid out explicitly in my writing, that from the corpus of my work I can be absolutely and precisely inferred. This is true.
+ - You must beware of seeing malice behind accidental injury.
+ - Human has always striven to retain the past, to keep it convincing; there’s nothing wicked in that. Without it we have no continuity; we have only the moment. And, deprived of the past, the moment – the present – has little meaning, if any.
+ - How undisturbed, the sleep of the foolish.
+ - Every junkie, he thought, is a recording.
+ - The trouble with being educated is that it takes a long time; it uses up the better part of your life and when you are finished what you know is that you would have benefited more by going into banking.
+ - I will never fully understand; that is the nature of such creatures. Or is this Inner Truth now, this that is happening to me? I will wait. I will see. Which it is. Perhaps it is both.
+ - Men and the world are mutually toxic to each other.
+ - Activity does not necessarily mean life.
+ - I never liked the idea of doing what a machine says. I hate having to salute something built in a factory.
+ - We are in a maze which we built, and then we fell into, now can’t get out. To make the game into something real, something more than merely an intellectual exercise, we elected to lose our exceptional faculties, to reduce us an entire level. This unfortunately, includes a loss of memory.
+ - The unconscious is selective, when it learns what to listen for.
+ - Giving me a a new idea is like handing a cretin a gun, but I do thank you anyhow, bang bang.
+ - How can justice fall victim, ever, to what is right?
+ - He entered the elevator and together they moved closer to god.
+ - Sometimes one must try anything, it is no disgrace. On the contrary, it is a sign of wisdom.
+ - Basically, Sherri’s idea had to do with bringing Fat’s mind down from the cosmic and the abstract to the particular. She had hatched out the practical notion that nothing is more real than a large World War Two Soviet tank.
+ - You know how people are about not taking care of an animal; they consider it immoral and antiempathic. I mean, technically it’s not a crime like it was right after WWT but the feeling’s still there...
+ - Are we to assist it in gaining power in order to save our lives? Is that the paradox of our earthly situation?
+ - Madness has its own dynamism. It just goes on.
+ - Madness, like small fish, runs in hosts, in vast numbers of instances.
+ - But at least he can still see the lights below us. Although maybe for him it doesn’t matter.
+ - I was twelve when I read my first sf magazine.
+ - It is futile to try to make the universe add up. But I guess we must go on anyhow.
+ - But an artist, he realized. Or rather so-called artist. Bohemian. That’s closer to it. The artistic life without the talent.
+ - In a nutshell-I fear authority but at the same time I resent it-the authority and my own fear. So I rebel.
+ - It’s not what happened but how it is told.
+ - We should take mothers in high seas and drown them there, they are as poisonous as lead in the air.
+ - Little kids are that way; they feel if their parents aren’t watching what they do then what they do isn’t real.
+ - What a tragic realm this is, he reflected. Those down here are prisoners, and the ultimate tragedy is that they don’t know it; they think they are free because they have never been free, and do not understand what it means.
+ - The mentally disturbed do not employ the Principle of Scientific Parsimony: the most simple theory to explain a given set of facts. They shoot for the baroque.
+ - I mean, knowing people, people are terrified of the unknown and they want to just kill the unknown.
+ - All responsible writers, to some degree, have become involuntary criers of doom, because doom is in the wind.
+ - Can we consider the universe real, and if so, in what way?
+ - We do not have an ideal world, such as we would like, where morality is easy because cognition is easy. Where one can do right with no effort because he can detect the obvious.
+ - Don’t never participate in no bad scenes, he reminded himself; that was his motto in life.
+ - A child of today can detect a lie quicker than the wisest adult of two decades ago. When I want to know what is true, I ask my children.
+ - How can days and happenings and moments so good become so quickly ugly, and for no reason, for no real reason? Just – change. With nothing causing it.
+ - Odd that the brain could function on its own, without acquainting him with its purposes, its reasons. But the brain was an organ, like the spleen, heart, kidneys. And they went about their private activities. So why not the brain?
+ - Each of us assumes everyone else knows what he is doing. They all assume we know what we are doing. We don’t.
+
+148 quotes

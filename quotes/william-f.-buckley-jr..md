@@ -1,0 +1,83 @@
+ - Self-control is one of the most exhilarating of pleasures.
+ - Conservatism is the politics of reality.
+ - I won’t insult your intelligence by suggesting that you really believe what you just said.
+ - I mean to live my life an obedient man, but obedient to God, subservient to the wisdom of my ancestors; never to the authority of political truths arrived at yesterday at the voting booth.
+ - Nobody who’s ever been to Gulag is a pacifist.
+ - All that is good is not embodied in the law; and all that is evil is not proscribed by the law. A well-disciplined society needs few laws; but it needs strong mores.
+ - Industry is the enemy of melancholy.
+ - I’ve always believed that conservatism is the politics of reality, and that reality ultimately asserts itself in a reasonably free society, in behalf of the conservative position.
+ - Decent people should ignore politics, if only they could be confident that politics would ignore them.
+ - Liberals claim to want to give a hearing to other views, but then are shocked and offended to discover that there are other views.
+ - Even if one takes every reefer madness allegation of the prohibitionists at face value, marijuana prohibition has done far more harm to far more people than marijuana ever could.
+ - People are beginning to wish that the voters had been given breathometer tests when they voted in the present government.
+ - You cannot paint the Mona Lisa by assigning one dab each to a thousand painters.
+ - I am, I fully grant, a phenomenon, but not because of any speed in composition. I asked myself the other day, “Who else, on so many issues, has been so right so much of the time?” I couldn’t think of anyone.
+ - Bobby Kennedy and Nelson Rockefeller are having a row, ostensibly over the plight of New York’s mentally retarded, a loose definition of which would include everyone in New York who voted for Bobby Kennedy or Nelson Rockefeller.
+ - I find it easier to believe in God than to believe Hamlet was deduced from the molecular structure of a mutton chop.
+ - History is but the polemics of the victor.
+ - If Bach is not in Heaven, I am not going!
+ - They told me if I voted for Goldwater, he would get us into a war in Vietnam. Well, I voted for Goldwater and that’s what happened.
+ - Scientists are people who build the Brooklyn Bridge and then buy it.
+ - Socialize the individual’s surplus and you socialize his spirit and creativeness...
+ - A society is not ‘free’ merely because the freedoms the people are doing away with are those they voted at the last election to do without.
+ - Before there was Ronald Reagan there was Barry Goldwater, and before there was Barry, there was National Review, and before there was National Review there was Bill Buckley with a spark in his mind.
+ - A capitalist is someone who derives a substantial share of his income from his equity in producing companies. On this scale the figures are discouraging. Approximately ninety percent of the capital of this country is owned by five or less percent of the American people.
+ - Mr. Rockefeller is due to entertain munificently at breakfast, and make his pitch. My advice to one invited guest was: Order caviar, and then say No.
+ - Why does baloney avoid the grinder?
+ - Conservatism is the tacit acknowledgement that all that is finally important in human experience is behind us; that the crucial explorations have been undertaken, and that it is given to man to know what are the great truths that emerged from them.
+ - The anti-marijuana campaign is a cancerous tissue of lies, undermining law enforcement, aggravating the drug problem, depriving the sick of needed help and suckering well-intentioned conservatives and countless frightened parents.
+ - You know, I’ve spent my entire life time separating the Right from the kooks.
+ - Presley brought an excitement to singing, in part because rock and roll was greeted as his invention, but for other reasons not so widely reflected on: Elvis Presley had the most beautiful singing voice of any human being on earth.
+ - One doesn’t read Jane Austen; one re-reads Jane Austen.
+ - A Conservative is a fellow who is standing athwart history yelling ‘Stop!’
+ - The duel between Christianity and atheism is the most important in the world, and the struggle between individualism and collectivism is the same struggle reproduced on another level.
+ - Norman Mailer decocts matters of the first philosophical magnitude from an examination of his own ordure, and I am not talking about his books.
+ - The Beatles are not merely awful. I would consider it sacrilegious to say anything less than that they are godawful.
+ - I’d rather entrust the government of the United States to the first 400 people listed in the Boston telephone directory than to the faculty of Harvard University.
+ - Enthusiasm for conservation can be fashioned into a nasty weapon for those who dislike business on general principles.
+ - A conservative is someone who stands athwart history, yelling Stop, at a time when no one is inclined to do so, or to have much patience with those who so urge it.
+ - We are, always, reminded of the old saw: What would happen if the Soviet Union took over the Sahara Desert? Answer: Nothing for 50 years. After that there would be a shortage of sand.
+ - Boredom is the deadliest poison.
+ - The New York Times, whose editorial department sounds like Cotton Mather rewriting Eleanor Roosevelt...
+ - I would like to electrocute everyone who uses the word ‘fair’ in connection with income tax policies.
+ - Marijuana is not much more difficult to obtain than beer. The reason for this is that a liquor store selling beer to a minor stands to lose its liquor license. Marijuana salesmen don’t have expensive overheads, and so are not easily punished.
+ - As a businessman, Frank Lorenzo gives capitalism a bad name.
+ - Louis Kelso of San Francisco, a lawyer-economist, has for years felt that he has a radical answer to the problem.
+ - The socialized state is to justice, order, and freedom what the Marquis de Sade is to love.
+ - The academic community has in it the biggest concentration of alarmists, cranks and extremists this side of the giggle house.
+ - Everything I do and say and the way I do and say it annoys me.
+ - The real threat, as seen by the ACLU, is that religious behavior might give secular behavior a bad name, and that is, surely, unconstitutional.
+ - Though liberals do a great deal of talking about hearing other points of view, it sometimes shocks them to learn that there are other points of view.
+ - No one since the Garden of Eden – which the serpent forsook in order to run for higher office – has imputed to politicians great purity of motive.
+ - What was wrong with communism wasn’t aberrant leadership, it was communism.
+ - I grew up, as reported, in a large family of Catholics without even a decent ration of tentativeness among the lot of us about our religious faith.
+ - We are so concerned to flatter the majority that we lose sight of how very often it is necessary, in order to preserve freedom for the minority, let alone for the individual, to face that majority down.
+ - Conservatives should be adamant about the need for the reappearance of Judeo-Christianity in the public square.
+ - We love your adherence to democratic principles.
+ - Did you know that forty percent of the words used by Shakespeare were used by him only once?
+ - Kennedy after all has lots of glamour – Gregory Peck with an atom bomb in his holster.
+ - The superstition that the hounds of truth will rout the vermin of error seems, like a fragment of Victorian lace, quaint, but too brittle to be lifted out of the showcase.
+ - Now it is one thing to say I say it that people shouldn’t consume psychoactive drugs. It is entirely something else to condone marijuana laws, the application of which resulted, in 1995, in the arrest of 588,963 Americans. Why are we so afraid to inform ourselves on the question?
+ - Why should any country continue, forever, to be “great”?
+ - Reagan is both too fatalistic and too modest to be a crudaser. He doesn’t have that darkness around the eyes of a George McGovern.
+ - We view our atomic arsenal as proudly and as devotedly as any pioneer ever viewed his flintlock hanging over the mantel as his children slept, and dreamed.
+ - Not everything that is legal is reputable.
+ - Knee-jerk liberals and all the certified saints of sanctified humanism are quick to condemn this great and much-maligned Transylvanian statesman.
+ - France believes in armed intervention by America only when the intervention is in France to rescue France from occupation by other powers.
+ - The Beatles are not merely awful. They are so unbelievably horrible, so appallingly unmusical, so dogmatically insensitive to the magic of the art, that they qualify as crowned heads of anti-music.
+ - A relatively small and eternally quarrelsome country in Western Europe, fountainhead of rationalist political manias, militarily impotent, historically inglorious during the past century, democratically bankrupt, Communist-infiltrated from top to bottom.
+ - The police can’t use clubs or gas or dogs. I suppose they will have to use poison ivy.
+ - When it is not possible to reason with holy warriors, it is necessary to immobilize them or crush them.
+ - If only the left hated crime as much as they hated hate.
+ - Government can’t do anything for you except in proportion as it can do something to you.
+ - Professor Galbraith is horrified by the number of Americans who have bought cars with tail fins on them, and I am horrified by the number of Americans who take seriously the proposals of Mr. Galbraith.
+ - One must bear in mind that the expansion of federal activity is a form of eating for politicians.
+ - Earlier this month the State Department gave the umpteenth performance of its popular play, Please Tread on Me, with Ceylon as guest star, and the usual cast.
+ - Back in the thirties we were told we must collectivize the nation because the people were so poor. Now we are told we must collectivize the nation because the people are so rich.
+ - I catch fire and find the reserves of courage and assertiveness to speak up. When that happens I get quite carried away. My blood gets hot my brow wet I become unbearably and unconscionably sarcastic and bellicose I am girded for a total showdown.
+ - He was a conservative all right, but invariably he gave the impression that he was a conservative because he was surrounded by liberals; that he had been a revolutionist if that had been required in order to be socially disruptive.
+ - Christianity finds all its doctrines stated in the Bible, and Christianity denies no part, nor attempts to add anything to the Word of God.
+ - Stick me in a confessional and ask the question: Sir, if you had the authority, would you forbid smoking in America? You’d get a solemn and contrite, Yes.
+ - Only government can cause inflation, preserve monopoly, and punish enterprise.
+
+81 quotes

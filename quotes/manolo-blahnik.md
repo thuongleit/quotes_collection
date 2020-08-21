@@ -1,0 +1,45 @@
+ - I do enjoy my own company. I cannot imagine anybody entertaining me more than I do. If it sounds selfish, I don’t care. I made it a religion almost.
+ - The greatest luxury is being free.
+ - I always love China, especially the old China.
+ - The secret of toe cleavage, a very important part of the sexuality of the shoe; you must only show the first two cracks.
+ - I don’t know why my shoes are so popular – I am always surprised and mystified by it.
+ - Remain dignified, dress well, be good to other people and you’ll be fine.
+ - Women are wearing tight and sexy clothes again. It is the body-conscious mentality, and women are revealing every bulge.
+ - I love exaggerated, and I love eccentric, but you must be comfortable. Otherwise it is nonsense. There is nothing charming about a woman who cannot walk in her shoes.
+ - Really, the ’70s and ’80s were a blur.
+ - I’m a great observer of delicate situations and women. I really like that bygone type of movement, and for a long time I had been looking for it.
+ - I am insecure. Everyone’s insecure.
+ - I’m an old bag – I like old thing.
+ - I saw these girls like Sherilyn Fenn and Lara Flynn Boyle that should be working now instead of these anonymous girls. They’re all the same.
+ - It’s the only thing I get inspired by! I get inspired by dreams. Who cares about the rest?
+ - I don’t like very young women very much. Never did.
+ - Trends don’t interest me.
+ - Shoes are the quickest way for women to achieve instant metamorphosis.
+ - I don’t even think about the word. But I do have certain things where I just go, “Aaaaahhh,” irritatingly boring and insistent because I want it to look that way and I can do it – I don’t even know if you’d call it passion or obsession. Obsession, possibly, but I really love what I do.
+ - I do think one should have clean feet.
+ - I’m relating to a period that doesn’t exist anymore.
+ - Alas, passion is conducive to certain other things because when you have too much passion and you have too much work, you possibly end up having black holes. The danger is too much passion.
+ - You get two weeks after you do a shoe where you can test whether it’s good or not – if you’re going to like it in 20 years. Then I know that it’s going to be my shoe for a long time. That doesn’t happen very often, but it happens.
+ - The imprint of Miss Hepburn is absolutely, totally present. Like it or not, she will be the most important look of the twentieth century.
+ - When I was a boy I remember the women, how they dressed, how they behaved, what was important to them at the time. Like Lee Marvin and Gloria Grahame in The Big Heat.
+ - The only way I can cope with me and my environment is to have this kind of wall around me. I’m exhausting myself.
+ - I couldn’t care less about business.
+ - There is nothing charming about a woman who cannot walk in her shoes.
+ - I adore Jean-Louis Trintignant – even at 100 years old he’s fabulous.
+ - I’m always kind of contradictory to what people want and what’s selling. But maybe I should care now because I have two or three more outlets. I have to be more adaptable color-wise to what people want. It’s usually just black and pink, and that’s it.
+ - It was so interesting that the girls were moving in such a different way.
+ - But it is hard to resist the feeling that 70th was some kind of golden age.
+ - I’m totally twisted. Instead of, “Oh god, I don’t have platforms – they won’t like me,” I was much more, “I’m doing what I’m doing, and if you don’t want to buy it, then don’t buy, but that’s just what I’m gonna do.” It gave me strength. It worked for me.
+ - These are very dainty and superrefined, but really vile.
+ - It’s the only thing I really enjoy – so fresh, even now that I’m doing the new sampling. I’m dying to go to the factory, which is like nobody’s idea of fun. But it’s mine.
+ - I don’t even know Amanda Seyfried or whatever – they’re all the same!
+ - When somebody wants to work and believes in something, it doesn’t matter if you’re well known or rich or whatever it is.
+ - I forget about the diseases that I have. I don’t want to know.
+ - I wish I was making shoes instead of reading or watching movies, which is what I do in my free time.
+ - I really connect with Victoria Beckham’s desire to do something that she wants to do. Of the girls we’ve been talking about, she’s one of the few that has this incredible sort of “I want to do it, and I want to do it well.”
+ - That kind of woman who used to be there at the time is not here any longer. In 10 years, people disappear. But I fantasize still about those kinds of women, and that kind of life that doesn’t really exist any longer.
+ - When I was out of favor and people didn’t want that type of boot, flats, or high heels with the elegant, dainty things, it gave me much more energy.
+ - I never wanted to be the most famous, the most beautiful, the most extravagant.
+ - I’m going to do what I do, even more exaggerated. This is my attitude always. I don’t betray myself at all.
+
+43 quotes

@@ -1,0 +1,26 @@
+ - To the mass of mankind religion of some kind is a necessity.
+ - There is a tendency in nature to the continued progression of certain classes of varieties further and further from the original type.
+ - What we need are not prohibitory marriage laws, but a reformed society, an educated public opinion which will teach individual duty in these matters.
+ - There is, I conceive, no contradiction in believing that mind is at once the cause of matter and of the development of individualised human minds through the agency of matter.
+ - Truth is born into this world only with pangs and tribulations, and every fresh truth is received unwillingly.
+ - On the spiritual theory, man consists essentially of a spiritual nature or mind intimately associated with a spiritual body or soul, both of which are developed in and by means of a material organism.
+ - Truth is born into this world only with pangs and tribulations, and every fresh truth is received unwillingly. To expect the world to receive a new truth, or even an old truth, without challenging it, is to look for one of those miracles which do not occur.
+ - To say that mind is a product or function of protoplasm, or of its molecular changes, is to use words to which we can attach no clear conception.
+ - I am thankful I can see much to admire in all religions.
+ - Modification of form is admitted to be a matter of time.
+ - I hold with Henry George, that at the back of every great social evil will be found a great political wrong.
+ - It has been generally the custom of writers on natural history to take the habits and instincts of animals as the fixed point, and to consider their structure and organization as specially adapted to be in accordance with them.
+ - Every species has come into existence coincident both in space and time with a pre-existing closely allied species.
+ - Mars, therefore, is not only uninhabited by intelligent beings such as Mr. Lowell postulates, but is absolutely uninhabitable.
+ - The white men in our colonies are too frequently the savages.
+ - In my solitude I have pondered much on the incomprehensible subjects of space, eternity, life and death.
+ - Civilisation has ever accompanied emigration and conquest – the conflict of opinion, of religion, or of race.
+ - In all works on Natural History, we constantly find details of the marvellous adaptation of animals to their food, their habits, and the localities in which they are found.
+ - As well might it be said that, because we are ignorant of the laws by which metals are produced and trees developed, we cannot know anything of the origin of steamships and railways.
+ - What birds can have their bills more peculiarly formed than the ibis, the spoonbill, and the heron?
+ - I spent, as you know, a year and a half in a clergyman’s family and heard almost every Tuesday the very best, most earnest and most impressive preacher it has ever been my fortune to meet with, but it produced no effect whatever on my mind.
+ - If this is not done, future ages will certainly look back upon us as a people so immersed in the pursuit of wealth as to be blind to higher considerations.
+ - But naturalists are now beginning to look beyond this, and to see that there must be some other principle regulating the infinitely varied forms of animal life.
+ - I am decidedly of the opinion that in very many instances we can trace such a necessary connexion, especially among birds, and often with more complete success than in the case which I have here attempted to explain.
+
+24 quotes

@@ -1,0 +1,116 @@
+ - Yes! I’m the slowest comic-book writer on Earth.
+ - Discomfort is very much part of my master plan.
+ - I’ve had the odd good luck of starting slowly and building gradually, something few writers are allowed anymore. As a result I’ve seen each of my books called the breakthrough. And each was, in its way.
+ - Listen to me. I’m shy. I’m not stupid. I can’t meet people’s eyes. I don’t know if you understand what that’s like. There’s a whole world going on around me, I’m aware of that. It’s not because I don’t want to look at you, Lucinda. It’s that I don’t want to be seen.
+ - When people call something “original,” 9 out of 10 times they just don’t know the references or original sources involved.
+ - Consensual reality is both fragile and elastic, and it heals like the skin of a bubble.
+ - I have no one to blame for the construction for myself, of course, but I’m always surprised and slightly sulky when I realize people are buying the whole thing.
+ - In the sea of words, the in print is foam, surf bubbles riding the top. And it’s a dark sea, and deep, where divers need lights on their helmets and would perish at the lower depths.
+ - Teenage life – possibly adult life too is all about what you want and can’t have. And then about what you receive and misuse.
+ - Once you fall into habits, I think, you’re dead as an artist. You have to challenge yourself and never rest on your laurels, never think about what you’ve done in the past.
+ - I don’t want to indulge myself in the luxury of writing beautiful paragraphs just for the sake of making beautiful writing. That doesn’t interest me. I want everything to be essential.
+ - I try not to become too regular an addict of any one subculture.
+ - You don’t have the slightest idea of what it means to write a scene and a character in the English language, with images and words chock full of received meaning.
+ - Every artist has limits. No one can do everything. It’s impossible.
+ - Some people have things written all over their faces; the big guy had a couple of words misspelled in crayon on his.
+ - I hate libraries for the way they put stickers on things. I don’t approve of folding over pages, or of writing in books. And scissors – that’s beyond the pale.
+ - I don’t know why the world has changed so much that writers are now expected to appear in public and talk about their work. It’s something I find very difficult. And yet, one does have some sense of responsibility towards one’s publishers, to the people trying to sell the book.
+ - Someday I would change my name to Shut Up and save everybody a lot of time.
+ - You could grow up in the city where history was made and still miss it all.
+ - The world’s large enough and interesting enough to take a different approach each time you sit down to write about it.
+ - What age is a black boy when he learns he’s scary?
+ - I’m not too embarrassed to say I’m the definition of the target audience. This is my generation, the one of exalting music in album form.
+ - I listen to music all the time. I write while listening to music. And I tell myself that the music nourishes the art forms that I do master and domesticate, and have authority over.
+ - With a book you can read the same paragraph four times. You can go back to page 21 when you’re on page 300. You can’t do that with film. It just charges ahead.
+ - Fantastic writing in English is kind of disreputable, but fantastic writing in translation is the summit.
+ - To the resentment that hides inside love, to the loneliness that hides among companions.
+ - But the day I can’t shrug off a twinge of self-pity, is the day I’m washed up for keeps.
+ - I don’t really ask of myself a given word or page count or number of hours. To work every day, that’s my only fetish. And there is a physical quality to it when a novel is thriving.
+ - My heart and the elevator, a plummet inside a plummet.
+ - I keep one simple rule that I only move in one direction – I write the book straight through from beginning to end. By following time’s arrow, I keep myself sane.
+ - When the civil rights battle was won, all the Jews and hippies and artists were middle class white people and all the blacks were still poor. Materially, not much changed.
+ - Writing is physical for me. I always have the sense that the words are coming out of my body, not just my mind.
+ - I prefer old books and find them more relevant. I dislike new books. It’s like drinking wine that’s not ready.
+ - There’s never any percentage in being ahead of your time.
+ - I’m a firm believer that there are no rules in art. Every trajectory is different.
+ - I can’t bear the silent ringing in my skull.
+ - It was often this way, life consisted of a series of false beginnings, bluff declarations of arrival to destinations not even glimpsed.
+ - I had an all-Fear of Music iPod, just versions of the 11 songs from the record. No other songs allowed.
+ - What I’m constantly striving for in my prose is clarity. So that, ideally, the writing will become so transparent that the reader will forget that the medium of communication is language.
+ - The book is openly a kind of spiritual autobiography, but the trick is that on any other level it’s a kind of insane collage of fragments of memory.
+ - Nature, or at least birds and women, abhorred the invisible man.
+ - I’ve never related to the work geek at all-it sounds much more horrible than nerd. Like a freak biting a chicken’s head off in a sideshow.
+ - The past is still visible. The buildings haven’t changed, the layout of the streets hasn’t changed. So memory is very available to me as I walk around.
+ - You discovered yourself and what really mattered only after you passed through the lens of the fairy tale, imposed on every human female and male alike, that someone existed out in the forest of the world for you to love and marry.
+ - Apologies aren’t something you want to get in the habit of practicing in the mirror.
+ - I have a horror of silence while I’m writing. It’s like the universe is howling at me if I don’t have it.
+ - No matter how enormous a novel may become, the physical act of reading determines that there’s no way it can become a communal experience. To read is intimate. It’s almost masturbatory.
+ - However appalling to consider, however tedious to enact, every novel requires furniture, whether it is to be named or unnamed, for the characters will be unable to remain in standing position for the duration of the story.
+ - By removing the stories from the morass of things that surround us, I’m hoping to achieve some kind of purer approach to emotional life.
+ - A reader, encountering a sentence about a barking dog, would have to dwell on why that choice was made at that moment. Everything in a novel is explicitly chosen, whereas some of what a film captures feels incidental, according to the vagaries of photography and sound recording.
+ - I don’t have a lot of paper in my immediate work environment, except when I’m doing things like checking the godforsaken proofs.
+ - Every book is a kind of experiment in doing something that feels impossible.
+ - I’m not a sociologist, and the novel has often concerned itself with sociology. It’s one of the generating forces that’s made fiction interesting to people. But that’s not my concern. I’m interested in psychology. And also certain philosophical questions about the world.
+ - I never take any notes or draw charts or make elaborate diagrams, but I hold an image of the shape of a book in my head and work from that mental hologram.
+ - What’s beautiful about art is that it circumscribes a space, a physical and mental space. If you try to put the entire world into every page, you turn out chaos.
+ - I work on a laptop specifically so I can work in cafes and pretend I’m part of the human world.
+ - Life is fundamentally up for grabs.
+ - The more film I watch, the more John Ford looks like a giant. His politics aren’t so good, and you have to learn to accept John Wayne as an actor, but he’s a poet in black and white.
+ - You can’t be deep without a surface.
+ - When Rolling Stone handed me this crazy assignment to be in the studio with James Brown, they had the misapprehension that I’d written for them already just because I claimed my character had.
+ - So much of the effort that goes into writing prose for me is about making sentences that capture the music that I’m hearing in my head. It takes a lot of work, writing, writing, and rewriting to get the music exactly the way you want it to be.
+ - My heart, to put it more simply, got nostalgic for the present. Always a bad sign.
+ - It was only as I wrote about it that I began to find paths of access to feelings that were intolerable to me then.
+ - I got into underground comics fairly early on and kind of wandered away from the superhero stuff, but I was an art student and I was drawing a lot as a kid.
+ - Artists freeze themselves into these weird postures that are meant to be impressive and involving, then they fling them out into the world like Polaroids, and then they move on. And I’m stuck in this intense relationship to the Polaroid.
+ - I want to write books that can be read a hundred years from now, and readers wouldn’t be bogged down by irrelevant details.
+ - The computer is the way I’m making books, but I still think about the physical properties. I visualize the length of a book, the proportions of a book, in material terms.
+ - I suppose in a way most of my characters are non-consumers, not terribly interested in all the little baubles and artifacts of contemporary life.
+ - It wasn’t for children, seventh grade. You could read the stress of even entering the building in the postures of the teachers, the security guards. Nobody could relax in such a racial and hormonal disaster area.
+ - I’m a serial deconstructor of my own authority in certain areas.
+ - I guess they needed a maze in Japan, where everything’s neat and tidy. In America everybody’s already wandering around lost.
+ - Nerds are just deep, and neurotic, fans. Needy fans. We’re all nerds, on one subject or another.
+ - As I get older I find that the friendships that are the most certain, ultimately, are the ones where you and the other person have made substantial amounts of money for one another.
+ - I had always wanted to be a writer who confused genre boundaries and who was read in multiple contexts.
+ - Poetry is supposed to be musical. But people don’t understand prose. They’re so used to reading journalism – clunky, functional sentences that convey factual information – facts, more than just the surfaces of things.
+ - Novelists get to direct the perfect films. We get to cast every part. We dress the set exactly as we wish.
+ - Develop your pawns or Hulk will smash.
+ - When I write lyrics, I really do go into an automatic folk appropriation mode. I see the vernacular register of 20th century song as being a bunch of forms to adapt and reconfigure.
+ - I don’t write about anything I don’t love even if that love sometimes gets all screwed up and tormented.
+ - Music still sort of hangs up there in the sky for me as this thing that moves me so much, but I can’t really make it. It’s like a car I can’t drive.
+ - Making books has always felt very connected to my bookselling experience, that of wanting to draw people’s attention to things that I liked, to shape things that I liked into new shapes.
+ - It’s now expected of me that I will defy expectation, so I really generally seem to be free to write what I want.
+ - One of the things that novels have tended not to concentrate on over the centuries is the fact that people read books.
+ - Waves, sky, trees, Essrog – I was off the page now, away from the grammar of skyscrapers and pavement.
+ - I just noticed recently that in one book after another I seem to find an excuse to find some character who, to put it idiotically simply, is allowed to talk crazy.
+ - As much as I revere great writing, and am still humbled by it, literary activities are no longer esoteric to me. When I read a great novel – something that I could never have written myself – I’m still looking at it a little bit like a technician.
+ - I tend to think of myself as a highly emotional writer. It’s all coming out of the deepest feelings, out of dreams, out of the unconscious.
+ - Comics? Honestly, that’s more a matter of nostalgia for me. I think most of that energy has gone to my love of literature and my love of film.
+ - For me, music is sort of the art that I can’t incorporate into my person the way I want to.
+ - Writing is a private discipline, in a field of companions.
+ - How often had that hydrant even been opened? Did you jet water through a car window, what, twice at best? Summer burned just a few afternoons long, in the end. As for flying, Dose never even glanced at the sky. Flying was a summer within a summer, a whim. So why think of it at all?
+ - There were days when no kid came out of his house without looking around. The week after Halloween had a quality both hungover and ominous, the light pitched, the sky smashed against the rooftops.
+ - I’ve always been uninterested in boundaries or quarantines between tastes and types, between mediums and genres.
+ - Anyone could see it all coming and no one could possibly stop it and that was the beautiful thing. Friday night was open wide and writ in stone.
+ - I plan less and less. It’s a great benefit of writing lots, that you get good at holding long narratives in your head like a virtual space.
+ - I learned to write fiction the way I learned to read fiction – by skipping the parts that bored me.
+ - For those whose ganglia were formed pre-TV, the mimetic deployment of pop-culture icons seems at best an annoying tic and at worst a dangerous vapidity that compromises fiction’s seriousness by dating it out of the Platonic Always, where it ought to reside.
+ - There’s something about the rhythms of language that correspond to the rhythms of our own bodies.
+ - I’d excluded New York from my writing, and then I came back and I fell in love with it all over again. The energy comes from an absence, that yearning for New York when you are not there.
+ - Reading and writing are the same thing; it’s just one’s the more active and the other’s the more passive. They flow into each other.
+ - Art is about eliminating almost everything in order to focus on the thing that you need to talk about.
+ - I believe that written stories will continue to survive because they answer an essential human need. I think movies might disappear before the novel disappears, because the novel is really one of the only places in the world where two strangers can meet on terms of absolute intimacy.
+ - Yet I’m making a book and I’m going to care immensely about what words get bound in the pages, and I want the object to look good. I won’t believe in it and it won’t be real to me until there’s a finished book I can hold.
+ - I’d have been a filmmaker or a cartoonist or something else which extended from the visual arts into the making of narratives if I hadn’t been able to shift into fiction.
+ - Good films demand to be looked at several times in order to be observed completely.
+ - What’s lucky about my career in general is that I stumbled into what every writer most wants. Not repeating myself and doing strange things has become my trademark.
+ - I met someone who lives in an elevator.
+ - I definitely care about how the concept of New York punk was constructed, and why it mattered. But I wasn’t gonna do that. Partly because I’m not a great journalist.
+ - The arts and a belief in the values of the civil rights movement, in the overwhelming virtue of diversity, these were our religion. My parents worshipped those ideals.
+ - As much as I care about historical context – I’m very eager to read a really great historical account.
+ - I’m not planning what I listen to, except when I think the music can guide me to some emotional place I want to be reminded of.
+ - I’m learning to hate the sound of my own voice.
+ - I don’t paint anymore. I haven’t since I abandoned it at 19, in order to begin writing seriously.
+ - Writing is a necessity and often a pleasure, but at the same time, it can be a great burden and a terrible struggle.
+
+114 quotes

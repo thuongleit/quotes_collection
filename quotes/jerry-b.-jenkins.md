@@ -1,0 +1,34 @@
+ - Christianity is not a religion, it’s a relationship with God through Christ.
+ - Broken relationships are a source of heavy heartbreak that seem to affect every family.
+ - Writers write. Dreamers talk about it.
+ - In my opinion, Jesus is God’s attempt to reach man. But while I believe Jesus is the way to God, it makes no sense to hate people who disagree.
+ - We sometimes idealize the early church and want our churches to go back to the simple, old ways. We need to carefully read the history. Harmony takes work.
+ - When I was a junior camp counselor and it was my job to tell the campers a bedtime story or devotional, I would tell them a rapture story.
+ - Ironically, in today’s marketplace successful nonfiction has to be unbelievable, while successful fiction must be believable.
+ - When you come to Christ as a real young person, I think when you become a teen-ager either you rebel or you search, doubt, and wonder.
+ - SOON was the first novel where I used a rough outline. Usually I have characters and an idea and write as a process of discovery. Like working without a net.
+ - The theater of the mind is impossible to compete with, and I like the idea that with a few suggestions, each reader forms in his or her own mind what a character or a place looks like.
+ - Actually ‘Soon’ has more than the Left Behind series, but I really believe less is more.
+ - Good fiction must be entertaining- but what makes fiction special- and True- is that the realness of a novel allows it to carry a larger message.
+ - Left Behind takes what to some people may be unbelievable predictions from the Bible and shows how they might play out. It makes the events of biblical prophecy understandable and thus believable.
+ - Wherever you have people, you have factions and disagreements and personality conflicts.
+ - I’ve written enough books with real celebrities, such as Walter Payton and Hank Aaron and Billy Graham, to know that fame looks good only to people who don’t have it.
+ - I don’t see success as the goal. Obedience is the goal.
+ - I was raised in a Christian home and, in fact, my mother led me to Christ as a youngster.
+ - I put off writing the first Left Behind book for a year because I got invited to assist Billy Graham in his memoirs, and had we known what we were putting off for a year, we might not have put it off.
+ - Fiction has a unique role in conveying Truth. In fact, only fiction that is Truth with a capital T is worthwhile.
+ - The most comforting feeling ever is knowing that someone truly likes your entire existence. I feel that way right now. Thank you.
+ - You can’t understand where someone’s going unless you understand where they’ve been.
+ - The uninitiated have real questions and valid concerns over how the things of God appear to them.
+ - Gil Thorpe is a great diversion and is to book writing as poetry is to prose.
+ - We at the Christian Writers Guild couldn’t be more proud of Brandy Vallance. Let her debut novel transport you to an entirely fresh time and place where you’ll soon forget you’re turning pages and find yourself riveted to the destinies of characters who’ll leave a lasting impression on your heart.
+ - I was raised as a Christian but the transaction has to be made by yourself – you and God – at some point.
+ - As for dialogue, I think it keeps things moving to cut to the chase.
+ - No life is messier than one in ministry.
+ - While writing my first 90 books, I was magazine editor, publisher, book publisher, executive, etc., so I was established in publishing. three of my seven or so books were biographies of sports stars and really opened doors for me in that area.
+ - I love inventing worlds and characters and settings and scenarios.
+ - Books that do a tenth of what Left Behind has done are smashing successes.
+ - Of course, bad marriages are so pervasive that they have invaded the faith community too.
+ - My dream remains to inform and entertain through fiction in the form of novels and movies that compete in the marketplace of ideas.
+
+32 quotes

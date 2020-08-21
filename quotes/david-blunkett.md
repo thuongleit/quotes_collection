@@ -1,0 +1,23 @@
+ - I believe Britishness is defined not on ethnic and exclusive grounds but through shared values; our history of tolerance, openness and internationalism; and our commitment to democracy and liberty, to civic duty and the public space.
+ - Reciprocity helps us balance the need for self-determination and creative individuality with mutual hope and, therefore, what might be described as ‘solidarity.’
+ - I love the walk although my security team weren’t too sure to begin with but I was anxious to be able to lead a near normal life. Whilst walking I do get the chance to meet people and keep in touch.
+ - I can hear people smile.
+ - Strengthening our identity is one way or reinforcing people’s confidence and sense of citizenship and well-being.
+ - I have built my reputation on honesty, I have sometimes been too honest.
+ - I must have been a failed football coach in a previous incarnation.
+ - Solidarity and interdependence, a sense of worth, a pride and hope in the future: these are positive gains for those who believe in progressive politics and the beneficial role of government, rather than a detriment.
+ - It would be dangerous territory if I wasn’t practising what I preach which is to always accept responsibility, always accept the consequences of your actions.
+ - And we think that our citizens and yours would be very angry if they thought that we hadnt taken every possible step for prevention and then for joint action in the likelihood of those who threaten our lives and our well- being, taking action at the same time.
+ - When I’m in London I do have the convenience of being close to St James Park which is also good for me because it gives me an excuse to get out and get some much needed exercise!
+ - But any perception of this application being speeded up requires me to take responsibility.
+ - I believe whoever the Labour Party chooses to replace Tony Blair will beat David Cameron.
+ - I have always been honest about my recollection of events.
+ - I said it’s impossible to have an amnesty without ID cards and a clean database, because you firstly don’t have any incentives for people to actually come up front and register, and make themselves available, and secondly you have no means of tracking them.
+ - None of us believe countering terrorism is about party politics.
+ - I did not in late November start the plethora of linking my private life with public events again.
+ - I personally guarantee that now that bear wouldn’t get past Dover without being shot.
+ - I have never tried to fiddle my role as leader of the city of Sheffield, as an MP or as a minister.
+ - It is now in Gordon Brown’s – and the Labour party’s – best interests for those seeking the prime minister’s immediate departure to back off.
+ - I don’t think anyone can say I have said one thing in public and done another in private.
+
+21 quotes

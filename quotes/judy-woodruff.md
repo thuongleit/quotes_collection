@@ -1,0 +1,55 @@
+ - You may not realize it, but artificial intelligence is all around us.
+ - The field of artificial intelligence is pushing new boundaries.
+ - But I want to pay tribute to Anna Lee Woodruff, an extraordinary, selfless woman and beautiful grandmother who in her quiet determined way was a role model for her two daughters, and who left a lasting impression on so many who knew her.
+ - Young people realize that something is amiss. There’s a generation that fell in love with their phones, and it’s very hard for them to see that there’s a problem. But young people are desperate for the attention of their parents, who are really not paying attention to them.
+ - There are many things we can live without but a sense of humor is not one of them!
+ - People want jobs, but nobody has a recipe for how to get them. And so they are trying different things.
+ - Raising children is a journey generously sprinkled with what many view as teachable moments, perhaps none as challenging as those surrounding faith and religion.
+ - Election Day now has become the last day to vote.
+ - As the mother of a son with disabilities, I try to keep an eye out for news that affects people in the large community of which he is a part.
+ - Some days you feel like you’ve had the greatest ego massage, then the next day you’ve been trampled on.
+ - Girl Scouts offered a wonderful group of girls where common concerns and interests could come together. We could learn, be challenged, and support one another. It was a very positive aspect of my life and played an important role in shaping who I am today.
+ - Vaclav Havel didn’t want to ride around in big black cars. And he had his own car with a little red heart on it. And he loved to go out and talk to the people.
+ - From one perspective, we’re in the early stage in artificial intelligence, but exponentials start out slowly, and then they take off.
+ - Of course, man is also a weak creature with many bad qualities. And it depends on which of his qualities will in a certain social situation and in a certain climate prevail, which qualities will awaken. The totalitarian system was masterful in how it managed to mobilize all the bad qualities.
+ - Politics is in my blood. I’d love to be involved in 2008, maybe even ’06.
+ - Senate races are different from House races, in the sense that they are more candidate-driven. The higher the office – that is, I mean, governor, senator, president – the more important the candidate.
+ - If you spend enough time in or around Washington, you’ll meet amazing people who work for the government.
+ - One of the main things we have been looking at is, how can we get a robot to think about situations it’s never seen before?
+ - AFSCME stands for the American Federation of State, County and Municipal Employees.
+ - My job is to try and bring attention to places that don’t have it.
+ - In 2008, the Democrats made a great effort among African-American voters, and they did increase their turnout considerably, and among Latino voters.
+ - It’s very typical that when two people are having lunch, they put a phone on the table between them.
+ - As the mother of a grown son with a traumatic brain injury, I couldn’t be more excited about the prospect of finding out how to repair even a small part of the damage that changed his life.
+ - My younger sister retired a few years ago after a 30-year career teaching history and social studies at an inner-city high school.
+ - I think we have reached such saturation levels, the money at this point doesn’t swing election.
+ - I have no doubt about it. I think this is a part of the nature of man, a desire for freedom, for dignified life.
+ - Vaclav Havel had moral stature. The president in first Czechoslovakia and the Czech Republic in many ways is a ceremonial role. And so, speaking out and having that strong moral fiber, people just knew that he told the truth to people who had only heard lies. And so I think his – that’s his legacy.
+ - CD4 being the level of the lymphocyte that indicates the level of your immune function.
+ - I think that Election Day is the closest thing we have to a civic sacrament, when people meet their neighbors at the firehouse or the school and they vote at the same time.
+ - He was a lifelong Republican, but over the years, Harry Blackmun built a reputation as a liberal, sometimes defiant Justice, whose fierce protection of individual rights led some to anoint him the moral conscience of the court.
+ - If image is everything, how can the Democratic presidential hopefuls compete with a President fresh from a war victory.
+ - This is naturally the most important thing, the dark traces left by the era of totalitarianism in the human mind, where is – are difficult to do away with. And this is a very demanding job.
+ - A definitive decision to say you should start people on therapy as soon as you know they’re infected.
+ - I think it’s important that campaigns be aired all the way through, that people aren’t voting three weeks before, before debates are held.
+ - There’s no embassy for the United States in Iran. So, Iranians process those in other countries.
+ - And I’ve been incredibly lucky to have a long career in journalism that has given me a front-row seat to some of the most important moments in modern American political life.
+ - The primary implication is that we’re going to combine our intelligence with computers. We’re going to make ourselves smarter. By the 2030s, they will literally go inside our bodies and inside our brains.
+ - At work, conversation increases productivity. And yet people go into work, put on their headphones. In one interview, somebody called it – they become pilots in their own cockpits.
+ - You can find inspiration when you’re not even looking for it.
+ - Vaclav Havel had this great sense of humor. And you kind of felt that he was making a little bit fun of everything at the same time.
+ - In the study, 89 percent of Americans said that they interrupted their last social encounter by looking at a phone. And 82 percent of them said that it deteriorated the conversation.
+ - Machines are on track to be on par with human intelligence in less than 15 years.
+ - We decided to focus on women because no one was singling them out.
+ - I think that, from Vaclav Havel own experience, he knew if we all paid attention to what was going on, the chances were that even the most horrible dictators wouldn’t execute people.
+ - Historically, when times are bad, voters, especially in the Industrial Midwest, have turned to the Democrats.
+ - For the past 21 years, I’ve been privileged to be part of an amazing organization called the International Women’s Media Foundation.
+ - It’s always unfortunate when a reporter is sent behind bars for failing to turn over sources. There’s no way to say what the long-term outcome will be.
+ - When I think of grass I think of something to walk on, pot as something to put a plant in.
+ - The system was afraid of Vaclav Havel. And so they either harassed him for put him in jail.
+ - That’s one of the surprises in the research, that’s it’s not young people who are smitten with their phones. It’s their parents who are not paying attention to them.
+ - Is this administration, the Clinton administration, an administration that needed defending?
+ - Every news organization should ideally be as broadly representative as possible.
+ - Now it’s become sort of a – you know, just sort of a casual thing, and you can vote any time at all. It doesn’t increase turnout. It hasn’t increased turnout, really. And I don’t think it’s a healthy development. I sound like an old fogey here.
+
+53 quotes

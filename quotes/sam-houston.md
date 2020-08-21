@@ -1,0 +1,23 @@
+ - Do right and risk the consequences.
+ - I humble myself before God, and there the list ends.
+ - Texas is the finest portion of the globe that has ever blessed my vision!
+ - Texas can make it without the United States, but the United States cannot make it without Texas.
+ - Texas has yet to learn submission to any oppression, come from what source it may.
+ - A leader is someone who helps improve the lives of other people or improve the system they live under.
+ - My God, is it possible that all the people have gone mad? The civil war now being inaugurated will be as horrible as his Satanic Majesty could desire.
+ - I would give no thought of what the world might say of me, if I could only transmit to posterity the reputation of an honest man.
+ - I love Texas too well to bring civil strife and bloodshed upon her.
+ - He has all the characteristics of a dog – except loyalty.
+ - Texas, to be respected must be polite. Santa Anna living, can be of incalculable benefit to Texas; Santa Anna dead, would just be another dead Mexican.
+ - The benefits of education and of useful knowledge, generally diffused through a community, are essential to the preservation of a free government.
+ - In the name of the constitution of Texas, which has been trampled upon, I refuse to take this oath. I love Texas too well to bring civil strife and bloodshed upon her.
+ - Govern wisely, and as little as possible.
+ - A victim of the use of water as a beverage.
+ - Texas will again lift it’s head and stand among the nations. It ought to do so, for no country upon the globe can compare with it in natural advantages.
+ - I would not be gotten into a schoolhouse until I was eight years old. Nor did I accomplish much after I started. I doubt if I had gone to school six months in all when my father died. I was fourteen at the time.
+ - All new states are invested, more or less, by a class of noisy, second-rate men who are always in favor of rash and extreme measures, but Texas was absolutely overrun by such men.
+ - Remember that whatever may be said by a lady or her friends, it is not part of conduct of a gallant or generous man to take up arms against a woman.
+ - I preferred measuring deer tracks to tape – that I liked the wild liberty of the Red men better then the tyranny of my brothers.
+ - I am aware that in presenting myself as the advocate of the Indians and their rights, I shall stand very much alone.
+
+21 quotes

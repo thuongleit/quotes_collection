@@ -1,0 +1,37 @@
+ - Well, you can tell by the way I use my walk I’m a woman’s man, no time to talk.
+ - I have a huge ego and a huge inferiority complex at the same time.
+ - The secret is to make sure your family comes before anything else, because no matter what you do you’ve got to come home.
+ - The Bee Gees no longer exist.
+ - I’m Mr Boring, not a party-goer at all.
+ - I just love the feeling a close family gives you and I wouldn’t change it for anything.
+ - The Bee Gees are a fly-by-night sort of group.
+ - Leaving Australia was the hardest thing I have ever done.
+ - As long as you’re having fun, that’s the key. The moment it becomes a grind, it’s over.
+ - I don’t ever wish I was somebody else.
+ - I will always have my songs and I don’t think I will ever dry-up.
+ - You can be tops in Australia and be unheard of everywhere else.
+ - By going solo I could lose a fortune but money is not important.
+ - But all bubbles have a way of bursting or being deflated in the end.
+ - Maurice was a silly man. Maurice liked being silly.
+ - I have a little dictaphone and if a sound takes my fancy or if a lyric comes to me in the middle of the night I’ll just record it there and then.
+ - I love making records; I love making music; I love writing songs.
+ - But even now, when people see me in the street, they point upwards to the sky.
+ - I don’t want to live on past records.
+ - I think they are grooming me as another Gary Cooper.
+ - It is commercial pop that the majority of people understand. A working man’s daughter would not understand blues.
+ - We enjoy change and freshness, and disco was only one area we’ve delved into.
+ - I never really did any disco dancing.
+ - When you write a song you have an idea of how it should be sung but it doesn’t work out that way if someone else records it.
+ - Now there is a new group every week; it seems like everybody and anybody can get into the charts.
+ - I’ve never been into parties, premieres or night-clubbing.
+ - I’m very much a family person.
+ - Everybody is a teenage idol.
+ - It is not the money but the self-respect and wanting to create good music.
+ - You are never really prepared for criticism.
+ - Im the eldest at 51, and if the Stones can drag themselves around once more, then theres a few more albums in us.
+ - I would be content if I had nothing but a tape-recorder. I could still write songs and record them.
+ - I’ve worked with a lot of people who are more famous than myself who are terribly insecure.
+ - It was great being together as a band, but much more difficult being brothers than it was being in a band.
+ - I like blues but it is music I am too ignorant to understand.
+
+35 quotes

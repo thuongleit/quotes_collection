@@ -1,0 +1,31 @@
+ - Never do a thing concerning the rectitude of which you are in doubt.
+ - Everyone is prejudiced in favor of his own powers of discernment...
+ - Unfinished paintings are more admired than the finished because the artist’s actual thoughts are left visible.
+ - The living voice is that which sways the soul.
+ - That indolent but agreeable condition of doing nothing.
+ - It is wonderful how the mind is stirred and quickened into activity by brisk bodily exercise.
+ - However often you may have done them a favour, if you once refuse they forget everything except your refusal.
+ - And as in men’s bodies, so in government, that disease is most serious which proceeds from the head.
+ - Objects which are usually the motives of our travels by land and by sea are often overlooked and neglected if they lie under our eye.
+ - It is difficult to retain what you may have learned unless you should practice it. -Difficile est tenere quae acceperis nisi exerceas.
+ - Generosity, when once set going, knows not how to stop; as the more familiar we are with the lovely form, the more enamored we become of her charms.
+ - It is better to excel in any single art than to arrive only at mediocrity in several, so moderate skill in several is to be preferred where one cannot attain to perfection in any.
+ - The erection of a monument is superfluous, our memory will endure if our lives have deserved it.
+ - There is no book so bad that it is not profitable in some part. -Nullus est liber tam malus ut non aliqua parte prosit.
+ - Fear is a feeling that is stronger than love.
+ - In the pleading of cases nothing pleases so much as brevity.
+ - Glory ought to be the consequence, not the motive of our actions.
+ - Necessity, that excellent master, hath taught me many things.
+ - Too much polishing weakens rather than improves a work.
+ - So we must work at our profession and not make anybody else’s idleness an excuse for our own. There is no lack of readers and listeners; it is for us to produce something worth being written and heard.
+ - Literature is both my joy and my comfort: it can add to every happiness and there is no sorrow it cannot console.
+ - The highest of characters is his who is as ready to pardon the moral errors of mankind as if he were every day guilty of them himself; and as cautious of committing a fault as if he never forgave one.
+ - Perhaps you will ask whether I can raise these three millions without difficulty. Well, nearly all my capital is invested in land, but I have some money out at interest and I can borrow without any trouble.
+ - Honor puts us under an obligation as binding as necessity is for other people.
+ - Everyone must be given something he can grasp and recognize as his own idea.
+ - There were some so afraid of death that they prayed for death.
+ - For however often a man may receive an obligation from you, if you refuse a request, all former favors are effaced by this one denial.
+ - They enhance the value of their favors by the words with which they are accompanied.
+ - The happier time, the quicker it passes.
+
+29 quotes

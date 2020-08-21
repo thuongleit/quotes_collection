@@ -1,0 +1,49 @@
+ - People buy from people they trust and they trust people they like.
+ - Knowledge is not power; Implementation is power.
+ - Action and flexibility create opportunity.
+ - The easiest way to maintain happiness is to lower your expectations of other people and raise them of yourself!
+ - Helping people develop their own brilliance is much more effective than giving them yours.
+ - All I ever wanted was an unfair advantage.
+ - You can’t change people but you can effect a change in them by your behavior.
+ - Don’t let the opinions of others define who you are. Take them into consideration, make adjustments if necessary and then go be you!
+ - Most of us forget the basics and wonder why the specifics don’t work.
+ - You can’t lead by example if you are a bad example. If you stink at something, stop doing in front of everyone until you improve!
+ - We are what we repeatedly do but we can be perceived by what we repeatedly say.
+ - Goals are like the gas in your car, you may go in many different directions after you fill up, but with out the gas you are not going anywhere.
+ - Communication is like the basics of mechanical engineering, the more moving parts you have the more likely it is to break down!
+ - The value of being silent: I never miss an opportunity to say nothing.
+ - Long-term success is the result of relationships built on a foundation of trust. People get more value from those they trust.
+ - Worry is not the symptom of a problematic life; it’s the problem. Situations pass that make our life difficult, it’s the worry that stay’s with us that makes us ultimately unhappy.
+ - When you focus on how people feel about what they are saying, you increase the level of true concern you have for others. You actually start to become the person you thought you were pretending to be: a true leader!
+ - Practice makes polish and polish makes money.
+ - Fear is a survival tool not a handicap.
+ - Heroes and cowards feel the same fear and action creates opportunities.
+ - If you can’t manage the future, you don’t have a future.
+ - Impatience has a poor track record for perfection. Getting things right usually includes calming down!
+ - The longer it takes to explain value, the more people think you don’t have any.
+ - If time heals all wounds, then why are there so many ticked off old people walking around.
+ - Squirrels are just rats with good publicity.
+ - When we look for differences instead of similarities, we create barriers for trust.
+ - I cannot tolerate my bad behavior in another person for 10 seconds.
+ - Position yourself to succeed first by building good relationships with the right people; and then put your effort and expertise behind that!
+ - Thy key to being able to communicate and benefit from each other is to truly see you own value. That will allow you to see it more clearly in others.
+ - Change is an action not just an epiphany!
+ - No communication takes place until the other person feels heard.
+ - If risk is the key factor to success and really smart people avoid it, you might not be dumb enough to succeed!
+ - Business friendly is the middle ground between being too cold and uncaring and the other extreme of being too familiar.
+ - To get rid of anger you can change the situation or change how you think about the situation.
+ - Connecting to your passion is being you, but better.
+ - The truth will set you free: believability will give you credibility.
+ - Satisfaction may be the goal of the common man; but it is the enemy of greatness.
+ - The smartest people in the world are not in charge, they work for the action takers.
+ - When the customer is wrong it is not a good idea to tell them.
+ - If you don’t have personal goals, you’re controlled by those who do.
+ - We don’t have any real justice in the legal system, you never see a headline that reads, Millionaire Gets Death Sentence.
+ - It does not matter how smart you are if nobody knows what you are talking about.
+ - Being stupid is not as frustrating as being brilliant for 5 seconds and then average for the rest of your life.
+ - After spending some time with my soul mate I have come to the conclusion that I may have something wrong with my soul.
+ - People buy-into what they can understand quickly. If it takes you a long time to make your point, most people think you don’t have one!
+ - Circumstances do not create the quality of your life.
+ - Before you can have great employees you have to put them in a position to create their own future.
+
+47 quotes

@@ -1,0 +1,43 @@
+ - For most of my life, I was a worrier and an over-thinker. I had pretty bad social anxiety.
+ - If you have a secret, people will sit a little bit closer.
+ - Anything that you can do a tiny bit of research about, I’ll turn it into an obsession.
+ - Why should I be feeling tension? It’s The Daily Show.
+ - I didn’t hang any pictures in my office for a year because I thought that I would be jinxing myself and have to take them down the next day.
+ - Sometimes we have to actually say, I think you’re really funny, but none of your jokes are going to make it on the air. So just answer my questions. Seriously.
+ - I have a wife and two daughters; people who depend on me. Everything is more important than it was when I was 20. But now I’m like, “Eh, I made it this far.”
+ - I touched an Oscar once. Friend of mine has one, for writing. As soon as I touched it, he said, Now you’ll never win one.
+ - It looks like garbage, my ass. But trust me, you’re lucky it’s not full-frontal.
+ - I’ve always wanted to be an actor. I didn’t get into this game to be the best improviser in the world. I didn’t choose improv as a stepping stone, it just happened to become one.
+ - I have to stay true to myself.
+ - My job was basically to look at a good friend completely naked and rub lotion on her back. I was naked too, but I got to put a towel on almost immediately. So I was like, “Well, this is going to be embarrassing, but it’s also going to be kinda awesome.”
+ - I’ve got like a week and a half left, all bets are off.
+ - Apparently it’s cool to watch The Daily Show.
+ - The show is a satire, which gives us freedom to do anything we want. Satire is the magic word that wipes away any culpability. The media is jealous of this freedom.
+ - The head writer loves that my character is a boor.
+ - If it’s January, I’m dead in three hours. But in June, I’d be hungry, but I’d make it out. I’d find my way without a map or compass. I say that with confidence. I can build a fire without a match.
+ - If people see me in some sort of niche, then that’s fine. As long as it’s not The Naked Guy, I don’t care.
+ - If anything, there’s more at stake when you’re older, and more responsibility and more legitimate things to worry about.
+ - I want to manufacture a feud.
+ - I was going out for absolutely everything that was in Backstage.
+ - I remember interviewing someone I actually felt bad for, and therefore didn’t want to take an ironic stance against him. It actually turned out to be a really funny piece.
+ - I don’t feel rivalry. I’m the least competitive person you’ll meet ever, to a fault.
+ - I learned more about elections on election night 2000 than I ever did during my 16 years of schooling.
+ - Ethanol is, in its pure form, just as much of a sham as oil.
+ - I really think of it – acting and writing and producing, whatever – as shipping. You gotta ship. Put the widget together in the easiest, quickest way possible and ship the product.
+ - I didn’t really feel 100 percent comfortable until we started working on the 2004 election.
+ - I get all of my comedy from CNN.
+ - This limited theatrical release was a nice little bonus that I never expected.
+ - As a teenager, I was very much a people pleaser and that excludes being adventuresome at all. I was a Boy Scout though and so that’s as adventuresome as I got.
+ - I actually got the part. And I thought, Well, I’ll do it for a while. I’ll just quit if it’s stupid.
+ - I’ve always defined myself as a writer, I’ve never decided what it was I was gonna write. I always fancied myself one, but I’m not. I’m so far from a writer.
+ - You’re encouraged to pitch your own story. That way, you’ll have more control over what you do.
+ - People want other people to know that they share our sensibility even if they’re not exactly sure what that sensibility is.
+ - I just want to do cool stuff.
+ - My mother was very, very Protestant. I grew up Presbyterian, and I went to church every Sunday until I was 18. I was forced to.
+ - I remember saying in college that I would never do commercials.
+ - Pat OBrien knows nothing. Hes on the Hell express.
+ - The first year or so on The Daily Show is pretty intense in terms of travel. You’re going to the worst places in the country, talking to the craziest people in the world.
+ - I don’t know how this company got the name National Shakespeare Company, because it was literally like retards employing retards.
+ - I don’t like gadgets for their own sake. I like gadgets that are tools. And I like simple gadgets that do one thing really well like a hammer.
+
+41 quotes

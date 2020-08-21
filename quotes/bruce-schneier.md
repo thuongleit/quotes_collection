@@ -1,0 +1,60 @@
+ - Security is a process, not a product.
+ - If you think technology can solve your security problems, then you don’t understand the problems and you don’t understand the technology.
+ - Amateurs hack systems, professionals hack people.
+ - Privacy is an inherent human right, and a requirement for maintaining the human condition with dignity and respect.
+ - Terrorism is a crime against the mind. We win by refusing fear.
+ - There are two kinds of cryptography in this world: cryptography that will stop your kid sister from reading your files, and cryptography that will stop major governments from reading your files.
+ - Privacy is a fundamental human need.
+ - The more technological a society is, the greater the security gap is.
+ - Digital files cannot be made uncopyable, any more than water can be made not wet.
+ - The mantra of any good security engineer is: ‘Security is a not a product, but a process.’ It’s more than designing strong cryptography into a system; it’s designing the entire system such that all security measures, including cryptography, work together.
+ - More people are killed every year by pigs than by sharks, which shows you how good we are at evaluating risk.
+ - The question to ask when you look at security is not whether this makes us safer, but whether it’s worth the trade-off.
+ - Metadata equals surveillance; it’s that simple.
+ - The fundamental driver in computer security, in all of the computer industry, is economics. That requires a lot of re-education for us security geeks.
+ - People often represent the weakest link in the security chain and are chronically responsible for the failure of security systems.
+ - A colleague once told me that the world was full of bad security systems designed by people who read Applied Cryptography.
+ - If someone steals your password, you can change it. But if someone steals your thumbprint, you can’t get a new thumb. The failure modes are very different.
+ - Cryptography products may be declared illegal, but the information will never be.
+ - The user’s going to pick dancing pigs over security every time.
+ - There’s an entire flight simulator hidden in every copy of Microsoft Excel 97.
+ - We no longer know whom to trust. This is the greatest damage the NSA has done to the Internet, and will be the hardest to fix.
+ - People don’t understand computers. Computers are magical boxes that do things. People believe what computers tell them.
+ - When a big company lays you off, they often give you a year’s salary to ‘go pursue a dream.’ If you’re stupid, you panic and get another job. If you’re smart, you take the money and use the time to figure out what you want to do next.
+ - Hardware is easy to protect: lock it in a room, chain it to a desk, or buy a spare. Information poses more of a problem. It can exist in more than one place; be transported halfway across the planet in seconds; and be stolen without your knowledge.
+ - It’s certainly easier to implement bad security and make it illegal for anyone to notice than it is to implement good security.
+ - Beware the Four Horsemen of the Information Apocalypse: terrorists, drug dealers, kidnappers, and child pornographers. Seems like you can scare any public into allowing the government to do anything with those four.
+ - The more we expect technology to protect us from people in the same way it protects us from nature, the more we will sacrifice the very values of our society in futile attempts to achieve this security.
+ - Trying to make bits uncopyable is like trying to make water not wet. The sooner people accept this, and build business models that take this into account, the sooner people will start making money again.
+ - Liberty requires security without intrusion, security plus privacy.
+ - No one can duplicate the confidence that RSA offers after 20 years of cryptanalytic review.
+ - Surveillance of power is one of the most important ways to ensure that power does not abuse its status. But, of course, power does not like to be watched.
+ - Despite fearful rhetoric to the contrary, terrorism is not a transcendent threat. A terrorist attack cannot possibly destroy our country’s way of life; it’s only our reaction to that attack that can do that kind of damage.
+ - If you ask amateurs to act as front-line security personnel, you shouldn’t be surprised when you get amateur security.
+ - It is sort of interesting that in our society this days we are very quick to apply the term ‘war’ to places where thare are no actual wars, and loath to apply the term ‘war’ when we are actually fighting wars.
+ - Secret courts making secret rulings on secret laws, and companies flagrantly lying to consumers about the insecurity of their products and services, undermine the very foundations of our society.
+ - Think of your existing power as the exponent in an equation that determines the value of information. The more power you have, the more additional power you derive from the new data.
+ - When my mother gets a prompt ‘Do you want to download this?’ she’s going to say yes. It’s disingenuous for Microsoft to give you all of these tools with which to hang yourself, and when you do, then say it’s your fault.
+ - Societies without a reservoir of people who don’t follow the rules lack an important mechanism for societal evolution. Vibrant societies need a dishonest minority; if society makes its dishonest minority too small, it stifles dissent as well as common crime.
+ - Terrorists can only take my life. Only my government can take my freedom.
+ - If the FBI parks a van bristling with cameras outside your house, you are justified in closing your blinds.
+ - Technical problems can be remediated. A dishonest corporate culture is much harder to fix.
+ - Given the credible estimate that we’ve spent $1 trillion on anti-terrorism security.
+ - Something that looks like a protocol but does not accomplish a task is not a protocol – it’s a waste of time.
+ - Surveillance is the business model of the Internet.
+ - It is poor civic hygiene to install technologies that could someday facilitate a police state.
+ - I tell people if it’s in the news don’t worry about it. Because by definition news is something that almost never happens.
+ - The very definition of news is something that hardly ever happens. If an incident is in the news, we shouldn’t worry about it. It’s when something is so common that its no longer news – car crashes, domestic violence – that we should worry.
+ - Corporate and government surveillance aren’t separate; they’re an alliance of interests.
+ - It’s frustrating; terrorism is rare and largely ineffectual, yet we regularly magnify the effects of both their successes and failures by terrorizing ourselves.
+ - Why is it that we all – myself included – believe these stories? Why are we so quick to assume that the TSA is a bunch of jack-booted thugs, officious and arbitrary and drunk with power? It’s because everything seems so arbitrary, because there’s no accountability or transparency in the DHS.
+ - It doesn’t matter how good the card is if the issuance process is flawed.
+ - We can’t keep weapons out of prisons; we can’t possibly expect to keep them out of airports.
+ - Chaos is hard to create, even on the Internet.
+ - Anyone, from the most clueless amateur to the best cryptographer, can create an algorithm that he himself can’t break.
+ - This is not the internet the world needs, or the internet its creators envisioned. We need to take it back. And by we, I mean the engineering community.
+ - It is insufficient to protect ourselves with laws; we need to protect ourselves with mathematics.
+ - Buy American Doesn’t Sell Well Anymore Because It Means Give A Copy To The NSA.
+ - Microsoft knows that reliable software is not cost effective. According to studies, 90% to 95% of all bugs are harmless. They’re never discovered by users, and they don’t affect performance. It’s much cheaper to release buggy software and fix the 5% to 10% of bugs people find and complain about.
+
+58 quotes

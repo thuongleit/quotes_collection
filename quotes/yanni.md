@@ -1,0 +1,53 @@
+ - The greatest things in life – truth, creativity, imagination, love, kindness, compassion -are already inside us, and they’re all free.
+ - No matter what happens in life, never lose sight of who you are.
+ - I really and truly believe that music represents humanity’s soul.
+ - My father once said, ‘If the whole world wants to go left and you feel like going right, go right. You don’t have to follow. You don’t have to make a big deal about which way you’re going. Just go. It’s very easy.’
+ - I am so happy that I didn’t go to school and I didn’t have anyone to tell me how to position my fingers on the piano correctly.
+ - All you need is passion. If you have a passion for something, you’ll create the talent.
+ - I don’t really like to explain my songs.
+ - The less you want, the richer you are. The more you need in order to be happy, the more miserable you’ll be.
+ - The most important battle is one to conquer yourself.
+ - Whether a person is spiritual or not, we all seek to get away from the stress, anger, and anxiety of everyday life. Some people drink, do drugs, or do worse to escape, and they hurt themselves in the process. Some people listen to music, mine included, and feel better.
+ - Of all the forces that are exerted on us over our lifetime, at least for me, love has been the most powerful of all.
+ - My father taught me that one of the most important abilities in life is to be able to take the pain and persevere, and for years this lesson had served me well.
+ - My new question was, What do you do when your dreams come true? My answer was: Find new ones.
+ - I don’t want problems solved for me. I want the fishing rod, not the fish.
+ - You need a mind open to possibility, conditioned to love the creative spirit we all have inside ourselves.
+ - A simple life is good with me. I don’t need a whole lot. For me, a T-shirt, a pair of shorts, barefoot on a beach and I’m happy.
+ - Sometimes we get caught up in our troubles and our problems and we let life slip away, but life is precious, all of life, and one must try to take in as much of it as possible.
+ - Everything great that has ever happened to humanity has begun as a single thought in someone’s mind, and if anyone of us is capable of such a thought, then all of us has the same capacity, capability, because we’re all the same.
+ - I believe that having an open mind is one of the most important qualities we can possess. Once our minds close, we stop evolving.
+ - Focused will is incredible. If you have a dream and you don’t give up no matter what obstacles come up, then life’s problems will fall away and you will get what you want. It happens. It works.
+ - Music is like creating an emotional painting. The sounds are the colors.
+ - Being happy with less is what makes a great human being, not a big house with marble floors, or everyone knowing who you are.
+ - Creativity is an inherent human quality of the highest order. When we create, we become more than the sum of our parts.
+ - I know that our world is going through a very difficult time right now, but I will never lose my faith in humanity, and our incredible ability to overcome just about anything.
+ - I don’t dwell in the past; I don’t wallow in old events and emotions. I don’t waste time on regret. No use going over and over the details of what already happened.
+ - There’s a very deep connection among human beings. All we have to do is open our minds to it.
+ - When I create music, it is a reflection of my soul, my experiences in life and my relationships with other people and cultures. Psychology, and understanding who we are as people in this world, is present in almost every creative thought I have.
+ - Sometimes the knowledge you’ve been given in school or by an elder – ‘this is just the way it is’ – keeps you from accomplishing because it traps you in a box in your mind and limits your freedom to deliver.
+ - I’m an optimist by choice not by stupidity.
+ - I’d decided to take the risk, and either I’d succeed or else.
+ - The live concerts are everything and I’m very grateful that most of my career, I’m a live artist, I’ve been doing this. So I’ve traveled quite a lot, played in – I never stopped playing.
+ - Not being able to read and write music is not the same as being illiterate in speech and writing.
+ - I believe we’re responsible for everything that happens to us.
+ - I truly believe greatness is in all of us. Don’t let anyone talk us out of our truth.
+ - You do good work for a long-enough time, I believed, and you’d get noticed.
+ - Truth is the number one element in whatever you do with music.
+ - My goal is to connect with people emotionally. I take life’s experiences and translate them into music – music that hopefully creates an impact on the listener.
+ - That adage about genius being 5 percent inspiration and 95 perspiration – it’s true.
+ - You have to give up some of the old so that you can make room for the new.
+ - Ever since I left Greece more than two decades ago, it has been my dream to return and perform at the Acropolis. This project took more than a year and a half to plan and accomplish, and I would like to thank my band and crew and the scores of people involved in helping my dream become a reality.
+ - We’re all capable if we have faith and passion.
+ - I realize it’s possible in ways both large or small to make a difference in someone’s life.
+ - I tend to avoid writing music about initial reactions to situations, like frustration or anger. I’d rather wait till I go through the problem, and write about the learning that took place.
+ - If you are a professional, the speed with which you react to a potential problem separates the men from the boys.
+ - I’ve always lived in the moment.
+ - While most of the music I write is instrumental, I love to use the human voice as another instrument.
+ - It’s really strange, but they speak to me – the notes and the chords. So when I hear other people’s music, I can feel the composer. Whoever created that, I can see in their soul.
+ - As I understand life at different levels, I can use music to express what these levels feel like to me. Hopefully the listener can be transported to this understanding by listening to the music.
+ - I just would use any instrument known to man in any combination as long as it describes an emotion.
+ - Maybe we didn’t have many possessions, but we never went hungry, were cold, or lacked love.
+ - When it comes down to music, I have no balance. I am 100 percent. It is like full throttle. Five hundred miles an hour.
+
+51 quotes

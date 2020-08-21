@@ -1,0 +1,359 @@
+ - He who jumps may fall, but he may also fly. It’s time to jump.
+ - So many things become beautiful when you really look.
+ - Running is a mental sport, more than anything else. You’re only as good as your training, and your training is only as good as your thinking.
+ - Dystopian novels help people process their fears about what the future might look like; further, they usually show that there is always hope, even in the bleakest future.
+ - I’d rather die my way than live yours.
+ - This is the strange way of the world, that people who simply want to love are instead forced to become warriors.
+ - Everything ends, people move on, they don’t look back. It’s how they should be.
+ - Please understand. Please forgive me. I prayed every day for you to be alive, until hope became painful. Don’t hate me. I still love you.
+ - There’s always some relief in giving up.
+ - Live free or die.
+ - Maybe next time, but probably not.
+ - When you love someone, when you care for someone, you have to do it through the good and the bad. Not just when you’re happy and it’s easy.
+ - I am growing stronger. I am a stone being excavated by the slow passage of water; I am wood charred by a fire.
+ - It’s going to be okay. Words that mean nothing. really, just sounds intoned into vastness and darkness, little scrabbling attempts to latch on to something when we’re falling.
+ - That’s when I realized that certain moments go on forever. Even after they’re over they still go on, even after you’re dead and buried, those moments are lasting still, backward and forward, on into infinity. They are everything and everywhere all at once. They are the meaning.
+ - The reason you can never go home again isn’t necessarily that places change, but people do. So nothing ever looks the same.
+ - People could push and pull at you, and poke you, and probe as deep as they could go. They could even tear you apart, bit by bit. But at the heart and root and soul of you, something would remain untouched.
+ - The flip side of freedom is this: When you’re completely free, you’re also completely on your own.
+ - It occurs to me that for a long time she has been doing her own version of resisting.
+ - A good friend keeps your secrets for you. A best friend helps you keep your own secrets.
+ - It’s so strange how life works: You want something and you wait and wait and feel like it’s taking forever to come. Then it happens and it’s over and all you want to do is curl back up in that moment before things changed.
+ - The rules of Panic are simple. Anyone can enter. But only one person will win.
+ - I guess that’s just part of loving people: You have to give things up. Sometimes you even have to give them up.
+ - Feelings aren’t forever. Time waits for no one, but progress waits for man to enact it.
+ - What glitters may not be gold; and even wolves may smile; and fools will be led by promises to their deaths.
+ - Everyone you trust, everyone you think you can count on, will eventually disappoint you.
+ - You can build walls all the way to the sky and I will find a way to fly above them.
+ - I love you. Remember. And someday, I will find you again.
+ - Sometimes I feel like if you just watch things, just sit still and let the world exist in front of you – sometimes I swear that just for a second time freezes and the world pauses in its tilt. Just for a second. And if you somehow found a way to live in that second, then you would live forever.
+ - And I guess that’s when it starts to hit me: the whole point is, you do what you can.
+ - Life isn’t life if you just float through it.
+ - I shiver, thinking how easy it is to be totally wrong about people-to see one tiny part of them and confuse it for the whole, to see the cause and think it’s the effect or vice versa.
+ - There are more of us than you think.
+ - We’ll walk together holding hands, and kiss in broad daylight, and love each other as much as we want to, and no one will ever try to keep up apart.
+ - The last laugh, the last cup of coffee, the last sunset, the last time you jump through a sprinkler, or eat an ice-cream cone, or stick your tongue out to catch a snowflake. You just don’t know.
+ - It’s funny, isn’t it? When you are young you just want to be old, and then later you wish you could go back to being a kid.
+ - Love. I love you. I’ll always love you, my love. You are the love of my life.
+ - Is this freedom? Is it happiness? I don’t know. I don’t care anymore. It is different – it is being alive.
+ - Hope keeps you alive.
+ - Mama, Mama, put me to bed I won’t make it home, I’m already half-dead I met an Invalid, and fell for his art He showed me his smile, and went straight for my heart.
+ - And how she looked at me like I could save her from everything bad in he world. This was my secret: she was the one who saved me.
+ - I guess that’s what saying good-bye is always like – like jumping off an edge. The worst part is making the choice to do it. Once you’re in the air, there’s nothing you can do but let go.
+ - And even though I’m standing in the middle of the biggest crowd I’ve ever seen in my life, I suddenly feel very alone.
+ - No one can tell us no. No one can make us stop. We have picked each other and the rest of the world can go to hell.
+ - This is the first day of my new beginning. From now on I’m going to do things right. I’m going to be a different person, a good person. I’m going to be the kind of person who would be remembered well, not just remembered.
+ - I’m not ugly but I’m not pretty either. Everything is in-between. I have eyes that aren’t green or brown, but a muddle. I’m not thin but I’m not fat either. the only thing you could definitely say about me is that: I’m short.
+ - That’s the thing about faith. It works.
+ - You have to go forward: It’s the only way. You have to go forward no matter what happens. This is the universal law.
+ - Who knows? Maybe they’re right. Maybe we are driven crazy by our feelings. Maybe love is a disease, and we would be better off without it. But we have chosen a different road. And in the end that is the point of escaping the cure: We are free to choose. We are even free to choose the wrong thing.
+ - Amor deliria nervosa. The deadliest of all deadly things.
+ - I’ve been so used to thinking of what the borders are keeping out that I haven’t considered that they’re also penning us in.
+ - And when it started to get dark you pointed to the sky, and told me there was a star for every thing you loved about me.
+ - Anger is useful only to a certain point. After that, it becomes rage, and rage will make you careless.
+ - Fridays are the hardest in some ways: you’re so close to freedom.
+ - And for a moment – for a split second – everything else falls away, the whole pattern and order of my life, and a huge joy crests in my chest. I am no one, and I owe nothing to anybody, and my life is my own.
+ - Nobody ever said life was fair.
+ - Hate isn’t the most dangerous thing, he’d said. Indifference is.
+ - Alex is dead, do you hear me? All of that-what we felt, what it meant- that’s done now, okay? Buried. Blown away.
+ - I said, I prefer the ocean when it’s gray. Or not really gray. A pale, in-between color. It reminds me of waiting for something good to happen.
+ - It will kill me, it will kill me, it will kill me. And I don’t care.
+ - Human beings, in their natural state, are unpredictable, erratic, and unhappy. It is only once their animal instincts are controlled that they can be responsible, dependable, and content.
+ - There were days I asked for it-prayed for it when I went to sleep. The belief that I would see you again, that I could find you-the hope for it-was the only thing that kept me going.
+ - There are no happy endings, only breaks in the regular action.
+ - Everything in me feels fluttering and free, like I could take off from the ground at any second. Music, I think, he makes me feel like music.
+ - Most people don’t want to be saved. Besides, if you keep bailing everybody out, they’ll never learn to paddle on their own.
+ - Less than a month ago all of August still stretched before us – long and golden and reassuring, like an endless period of delicious sleep.
+ - Don’t worry about what you’re writing or whether it’s good or even whether it makes sense.
+ - Lindsay calls them the Pugs: pretty from far away, ugly up close.
+ - You came form different starts and you’ll come to different ends.
+ - But how could anyone who’s ever seen a summer – big explosion of green and skies lit up electric with splashy sunsets, a riot of flowers and wind that smells like honey – pick the snow?
+ - This is what amazes me: that people are new every day. That they are never the same. You must always invent them, and they must always invent themselves, too.
+ - The question was: Will you meet me tomorrow? And the word was: Yes.
+ - That’s all I want. Just you and me. Always.
+ - If you cross a line and nothing happens, the line loses meaning.
+ - For a second, I feel a sense of overwhelming grief: for how things change, for the fact that we can never go back. I’m not certain of anything anymore. I don’t know what will happen –.
+ - It’s not my fault I can’t be like you, okay? I don’t get up in the morning thinking the world is one big, shiny, happy place, okay? That’s just not how I work. I don’t think I can be fixed.
+ - I’d rather die on my own terms than live on theirs. I’d rather die loving Alex than live without him.
+ - I’m so tired after dinner I fall asleep with my clothes on, almost as soon as my head hits the pillow, and so I forget to ask God, in my prayers, to keep me from waking up.
+ - She knew, now, that there was always light – beyond the dark, and the fear, out of the depths; there was sun to reach for, and air and space and freedom. There was always a way up, and out, and no need to be afraid.
+ - Now I’d rather be infected with love for the tiniest sliver of a second than live a hundred years smothered by a lie.
+ - I love you. Remember. They cannot take it.
+ - Something must die so that others can live.
+ - I wonder if this is how people always get close: They heal each other’s wounds; they repair the broken skin.
+ - This is what happens when you try to help people. You get screwed.
+ - The only thing worse than having no friends is being pitied for having no friends.
+ - Music, I think, he makes me feel like music.
+ - Here’s another thing to remember: hope keeps you alive. Even when you’re dead, it’s the only thing that keeps you alive.
+ - His eyes are the color of honey. These are the eyes I remember from my dreams.
+ - Love: a single word, a wispy thing, a word no bigger or longer than an edge.
+ - But maybe happiness isn’t in the choosing. Maybe it’s in the fiction, in the pretending: that wherever we have ended up is where we intended to be all along.
+ - Love: It will kill you and save you, both.
+ - I wish I could close my eyes and be blown into dust and nothingness, feel all my thoughts disperse like dandelion fluff drifting off on the wind. But his hands keep pulling me back: into the alley, and Portland, and a world that has suddenly stopped making sense.
+ - Through wind, and tempest, storm, and rain; The calm shall be buried inside of me; A warm stone, heavy and dry; The root, the source, a weapon against pain.
+ - It’s us against them, three against countless thousands. But for some reason, and even though it’s absurd, at that moment I feel pretty damn good about our odds.
+ - That’s the way I feel, at least: like there’s a real me and a reflection of me, and I have no way of telling which is which.
+ - It’s the way he says my name: like music.
+ - Maybe all of these different possibilities exist at the same time, like each moment we live has a thousand other moments layered underneath it that look different.
+ - One of the strangest things about life is that it will chug on, blind and oblivious, even as your private world – your little carved-out sphere – is twisting and morphing, even breaking apart.
+ - In my head I try and reach back, through the fence, past the smoke; I try and grab his hand and pull. Alex, come back. There is nothing to do but sink. The hours close around me, encase me completely, like a tomb.
+ - The sun has just risen, weak and watery-looking, like it had just spilled itself over the horizon and is too lazy to clean itself up.
+ - The sparrows jumped before they knew how to fly, and they learned to fly only because they had jumped.
+ - Love: a single word, a wispy thing, a word no bigger or longer than an edge. That’s what it is: an edge; a razor. It draws up through the center of your life, cutting everything in two. Before and after. The rest of the world falls away on either side.
+ - How can someone have the power to shatter you to dust – and also to make you feel so whole?
+ - Quiet through the grave go I; or else beneath the graves I lie.
+ - All this time, I thought we were growing apart because I was leaving Lena behind. But really it was the reverse. She was learning to lie. She was learning to love.
+ - We wanted the freedom to love. We wanted the freedom to choose. Now we have to fight for it.
+ - This was what true fear was – that you could never know other people, not completely. That you were always just guessing blind.
+ - Rainstorms are incredible: falling shards of glass, the air full of diamonds.
+ - Sometimes I’m afraid to go to sleep because of what I’m leaving behind.
+ - We should be protected from the people who will leave us in the end, from all the people who will disappear or forget us.
+ - I know that the whole point – the only point – is to find the things that matter, and hold on to them, and fight for them, and refuse to let them go.
+ - I vowed after that day that I would be your hero too, no matter how long it took.
+ - My stomach gets that hollowed-out feeling. It’s amazing how words can do that, just shred your insides apart.
+ - Lies are just stories, and stories are all that matter. We all tell stories. Some are more truthful than others, maybe, but in the end the only thing that counts is what you can make people believe.
+ - Everything looks beautiful. The Book of Shhh says that deliria alters your perception, disables your ability to reason clearly, impairs you from making sound judgments. But it does not tell you this: that love will turn the whole world into something greater than itself.
+ - But you can build a future out of anything. A scrap, a flicker. The desire to go forward, slowly, one foot at a time. You can build an airy city out of ruins.
+ - He who leaps for the sky may fall, it’s true. But he may also fly.
+ - Droplets, droplets: we are all identical drips and drops of people, hovering, waiting to be tipped, waiting for someone to show us the way, to pour us down a path.
+ - It’s the time of the night I like best, when most people are asleep and it feels like the world belongs completely to my friends and me, as though nothing exists apart from out little circle: everywhere else is darkness and quiet.
+ - In a world without love, this is what people are to each other: values, benefits, and liabilities, numbers and data. We weigh, we quantify, we measure, and the soul is ground to dust.
+ - I reach out and grab her wrist. It feels impossibly tiny in my hand, like this one time I found a baby bird near goose Point, and I picked it up and it died there, taking its final gasping fluttering breaths in my palm.
+ - Hearts are fragile things. That’s why you have to be so careful.
+ - My first kiss. A new kind of kiss, like the new kind of music still playing, softly, in the distance – wild and arrhythmic, desperate. Passionate.
+ - For a moment, my heart aches for him. I should never have asked him to join me here; I should never have asked him to cross.
+ - He’s speaking in the tone of voice that everyone uses when they’re about to break you apart. Gentle – kind, even – like they can make the news sound better just by speaking in a lullaby voice.
+ - As soon as I look up, his eyes click onto my face. The breath whooshes out of my body and everything freezes for a second, as though I’m looking at him through my camera lens, zoomed in all the way, the world pausing for that tiny span of time between the opening and closing of the shutter.
+ - Poetry isn’t like any writing I’ve ever heard before. I don’t understand all of it, just bits of images, sentences that appear half-finished, all fluttering together like brightly colored ribbons in the wind.
+ - He is no longer mine to lose, but the grief is there, a gnawing sense of disbelief.
+ - It strikes me how strange people are. You can see them every day, you can think you know them and then you found out you hardly know them at all.
+ - That is the rule of the Wilds: You must be bigger and stronger and tougher. You must hurt or be hurt.
+ - It’s like a razor blade edging its way through my organs, shredding me, all I can think is: It will kill me, it will kill me, it will kill me. And I don’t care.
+ - Snapshots, moments, mere seconds: as fragile and beautiful and hopeless as a single butterfly, flapping on against a gathering wind.
+ - No wonder the regulators decided on segregation of boys and girls: Otherwise, it would have been a nightmare, this feeling angry and self-conscious and confused and annoyed all the time.
+ - Let go. Feel the weight all around you, feel the squeezing of your lungs, the slow, low pressure. Let yourself go deeper. There is nothing but bottom. There is nothing but the taste of metal, and the echoes of cold things, and days that look like darkness.
+ - The Story of Solomon is the only way I know how to explain. And then, in smaller letters: Forgive me.
+ - You don’t reach points in life at which everything is sorted out for us. I believe in endings that should suggest our stories always continue.
+ - My heart shoots into my throat every time I think I see his loping walk, or catch sight of some floppy brown hair on a boy – but it’s never him, and each time it isn’t, my heart does a reverse trajectory down into the very pit of my stomach.
+ - I screamed until my voice dried up in my throat. We all did. All of us in Ward Six, all of us forgotten, left to rot.
+ - You can try to pin me down with a hundred thousand arms, but I will find a way to resist.
+ - I get that rush that comes when you know you’re doing something wrong and are getting away with it, like stealing from the school cafeteria of getting tipsy at a family holiday without anyone knowing it.
+ - She was mine before she was yours.
+ - Funny how time heals. Like that bullet in my ribs. It’s there, I know it’s there, but I can barely feel it at all anymore.
+ - But now I give in, let the anger surge. I’m sick of people acting like this world, this other world is the normal one, while I’m the freak. It’s not fair; like all the rules have suddenly changed and somebody forgot to tell me.
+ - Amor deliria nervosa isn’t a disease of love. It’s a disease of selfishness.
+ - Amor deliria nervosa: It affects your mind so that you cannot think clearly, or make rational decisions about your own well-being. Symptom number twelve.
+ - Alex loved books. He was the one who first introduced me to poetry. That’s another reason I can’t read anymore.
+ - Every choice is limited. That’s life.
+ - It is a ruined-world, a nonsense-place.
+ - Of course. That’s what people do in a disordered world, a world of freedom and choice: they leave when they want. They disappear, they come back, they leave again. And you are left to pick up the pieces on your own.
+ - I can admit, now, that I must have loved Lena. Not in an Unnatural way, but my feelings for her must have been a kind of sickness. How can someone have the power to shatter you to dust – and also to make you feel so whole?
+ - Huamns, uregulated, are cruel and capricious; violet and selfish; miserable and quarrelsome. It is only after their instincts and basic emotions have been controlled that they can be happy, generous, and good.
+ - That’s the thing: We didn’t really care. A world without love is also a world without stakes.
+ - We leave Pippa behind, standing in the dark, teeming bowels of the camp, while the sun begins to stain the sky electric, and from all sides the guns draw closer.
+ - I hate skin; I hate bones and bodies. I want to curl up inside of him and be carried there forever.
+ - I need to live my life in the light of their deaths. I need to live.
+ - Take it from me: If you hear the past speaking to you, feel it tugging up your back and runing its fingers up your spine, the best thing to do-the only thing-is run.
+ - No one had ever told her this basic fact: not everyone got to be loved.
+ - With the cure, relationships are all the same, and rules and expectations are defined. Without the cure, relationships must be reinvented every day, languages constantly decoded and deciphered. Freedom is exhausting.
+ - And there it is: Even though we’re standing in the same patch of sun-drenched pavement, we might as well be a hundred thousand miles apart.
+ - Like I’ve been sketched by an amateur artist: if you don’t look too closely, it’s all right, but start focusing and all the smudges and mistakes become really obvious.
+ - I am now officially married to Fred Hargrove. Nothing will ever be the same.
+ - There’s a place for everything and everyone, you know. That is the mistake they make above. They think that only certain people have a place. Only certain kinds of people belong. The rest is waste. But even waste must have a place. Otherwise it will clog and clot, and rot and fester.
+ - Sometimes I feel like she deserves a best friend who is just a little more special.
+ - I want to be healed and whole and perfect again, like a misshapen slab of iron that comes out of the fire glowing, glittering, razor-sharp.
+ - People are like ants: Just a few of them give all the orders. And most of them spend their lives getting squashed.
+ - It’s like there’s a filter set up in my brain, except instead of making things better, it twists everything around so what comes out of my mouth is totally wrong, totally different from what I was thinking.
+ - Somewhere in the endless spinning of eternity that one, tiny, fraction of a second where our lips met is lost forever.
+ - This is the past: It drifts, it gathers. If you are not careful, it will bury you.
+ - For a second I feel a rush of sadness: for the horizons that vanish behind us, for the people we leave behind, the tiny-doll selves that get stored away and ultimately buried.
+ - I don’t know whether these feelings – this thing growing inside of me – is something horrible and sick or the best thing that’s ever happened to me. Either way, I can’t stop it. I’ve lost control. And the truly sick thing is that despite everything, I’m glad.
+ - Maybe this is the secret to talking to boys – maybe you just have to be angry all the time.
+ - A room full of words that are nearly the truth but not quite, each note fluttering off the steam of its rose like a broken butterfly wing.
+ - Someday she will be saved, and the past and all its pain will be rendered as smoothly palatable as the food we spoon to our babies.
+ - My heart is fluid and soaring. There’s no longer any space between heartbeats.
+ - Love is a kind of possession. It’s a poison.
+ - Live free or die. Four words. Thirteen letters. Ridges, bumps, swirls under my fingertips. Another story. We cling tightly to it, and our belief turns it to truth.
+ - Old words; words that nearly brought me to my knees. Live free or die.
+ - That’s what Zombieland is: frozen, calm, quiet.
+ - The tunnels may be long, and twisted, and dark; but you are supposed to go through them.
+ - We’re killers, all of us: We kill our lives, our past selves, the things that mattered. We bury them under slogans and excuses.
+ - Welcome to the free world. We give people the power to choose. They can even choose the wrong thing. Beautiful, isn’t it?
+ - We all need mantras, I guess – stories we tell ourselves to keep us going.
+ - The past is nothing but a weight. It will build inside of you like a stone.
+ - Everyone just wasting time because they have so much of it to waste, minutes slipping by on who’s with who and did you hear.
+ - There is nothing else for people to do. They do not think. They feel no passion, no hatred, no sadness; they feel nothing but fear, and a desire to control. So they watch, and poke, and pry.
+ - Maybe it would be better if we didn’t love. If we didn’t lose, either. If we didn’t get out hearts stomped on, shattered; if we didn’t have to patch and repatch it until we’re like Frankenstein monsters, all sewn together by who knows what.
+ - If you take, we will take back. Steal from us, and we will rob you blind. When you squeeze, we will hit. This is the way the world is made now.
+ - But maybe you carried your demons with you everywhere, the way you carried your shadow.
+ - But from the beginning, I knew that in a world where destiny was dead, I was destined, forever, to love him. Even though he didn’t – though he couldn’t – ever love me back.
+ - It is a beautiful world for the people who get to play the fist.
+ - My former people were not totally wrong. Love is a kind of possession. It’s a poison. And if Alex no longer loves me, I can’t bear to think that he might love somebody else.
+ - Holy mother of Lord Cocoa Puffs.
+ - I’m used to a feeling of doubleness, of thinking one thing and having to do another, a constant tug-of-war.
+ - The whole point of growing up is learning to stay on the laughing side.
+ - An itchy feeling began to work its way through my body, as though a thousand mosquitoes were circulating through my blood, biting me from the inside, making me want to scream, jump, squirm. I ran.
+ - I think of Grace and feel a sharp pain in my chest.
+ - I don’t understand how everything changes, how the layers of your life get buried. Impossible. At some point, at some time, we must all explode.
+ - Unhappiness is bondage; therefore, happiness is freedom. The way to find happiness is through the cure. Therefore, it is only through the cure that one finds freedom.
+ - Fear. Blame. Don’t forget. Mom. I love you. -Lauren Oliver, Delerium.
+ - I’ve been trying so hard not to think his name, not to even breathe the idea of him.
+ - Everywhere he touches is fire. My whole body is burning up, the two of us becoming twin points of the same bright white flame.
+ - Chance. Stupid, dumb, blind chance. Just a part of the strange mechanism of the world, with its fits and coughs and starts and random collisions.
+ - Stupid how the mind will try to distract itself.
+ - My parents were pretty liberal, but they were still parents. I definitely had my teenage rebellion.
+ - There is no before. There is only now, and what comes next.
+ - Grief is like sinking, like being buried.
+ - Hunky Heroes, rescuing distressed women, captive princesses, and girls without wheels since 1684. p. 450.
+ - I know the past will drag you backward and down, have you snatching at whispers of wind and the gibberish of trees rubbing together, trying to decipher some code, trying to piece together what was broken. It’s hopeless. The past is nothing but a weight. It will build inside you like a stone.
+ - Nothing exists but him.
+ - And when I wake up it’s wonderful, like I’ve been carried quietly onto a calm, peaceful shore, and the dream, and its meaning, has broken over me like a wave and is ebbing away now, leaving me with a single, solid certainty. I know now.
+ - Everything I see and touch reminds me of him, and so everything I see and touch is perfect.
+ - He’s stuck with me and I’m stuck with him. We’re stuck. That’s what growing up is all about, I guess.
+ - The worst is knowing I can’t tell anybody what’s happening -or what’s happened- to me. Not even my mom.
+ - They say the cure is about happiness, but I understand now that it isn’t, and it never was. It’s about fear: fear of pain, fear of hurt, fear, fear, fear – a blind animal existence, bumping between walls, shuffling between ever-narrowing hallways, terrified and dull and stupid.
+ - Time jumps. It leaps. It pours away like water through fingers.
+ - The idea – the fact of it, the fact that he even noticed and thought about me for more than one second – is huge and overwhelming, makes my legs go tingly and my hands feel numb.
+ - And when we are with Alex, I might as well not be there. They speak in a language of whispers and giggles and secrets; their words are like a fairy-tale tangle of thorns, which place a wall between us.
+ - Things change after you die, though, I guess because dying is the loneliest thing you can do.
+ - Until, one day, she wasn’t.
+ - I put my forehead on his collarbone, place one hand on his chest. Its rhythm reassures me: He is real, and he is now.
+ - I start to back away before I do something wildly inappropriate, like jump on top of him.
+ - The first one, we’ll name Blue.
+ - The salt blowing off the sea makes the air feel textured and heavy.
+ - You see, we didn’t know.
+ - I need him to know that I came for him. I need him to know that somehow, at some point in the tunnels, I began to love him.
+ - At a certain point your brain stops to rationalize things. At a certain point it gives up, shuts off, shuts down.
+ - If Cassie was invalidated because she caught the disease, or because Fred suspected her of it, I can only imagine what he will do to me and to my family if he discovers that the cure did not work perfectly.
+ - I still wanted to know why. As though somebody was going to answer that for me, as though any answer would be satisfying.
+ - Unhappiness is bondage; therefore, happiness is freedom.
+ - It’s Connecticut: being like the people around you is the whole point.
+ - That’s my favorite thing about him. I like to lie next to him when it’s late, dark, and so quiet I can hear my own heartbeat. It’s times like that when I’m sure that I’m in love.
+ - For all the people who have infected me with amor deliria nervosa in the past – you know who you are. For the people who will infect me in the future – I can’t wait to see who you’ll be. And in both cases: Thank you.
+ - I feel a flash of grief so intense it almost makes me cry out: not for what I lost, but for the chances I missed.
+ - Maybe before you die, it’s your ghosts you see.
+ - Popularity’s a weird thing. You can’t really define it, and it’s not cool to talk about, but you know it when you see it. Like a lazy eye, or porn.
+ - Each step is more difficult than the last; the heaviness fills me and turns my limbs to stone. You must hurt or be hurt.
+ - Is it possible to tell the truth in a society of lies? Or must you always, of necessity, become a liar?
+ - That’s what you do for family. Anything.
+ - This is what hatred is. It will feed you and at the same time turn you to rot. It is hard and deep and angular, a system of blockades. It is everything and total. Hatred is a high tower. In the Wilds, I start to build, and to climb.
+ - And in that moment, the wordless thing passed between us, the thing that wasn’t quite love but was so close I could believe in it sometimes.
+ - For a split second, he had looked almost like my Alex again.
+ - That is the strangest thing about the world: how it looks so different from every point of view.
+ - It’s like high school holds two different worlds, revolving around each other an never touching; the haves and the have-nots. I guess it’s a good thing. High school is supposed to prepare you for the real world, after all.
+ - No guy in his right mind would ever choose me when there are people like Hana in the world: It would be like settling for a stale cookie when what you really want is a big bowl of ice cream, whipped cream and cherries and chocolate sprinkles included.
+ - I don’t love you, Lena. Do you hear me? I never love you.
+ - If you’re smart, you care. And if you care, you love.
+ - Finishing books – and leaving the world you’ve created – is always a kind of emotionally wrenching experience. I usually cry.
+ - It’s an incredible thing, how you can feel so taken care of by someone and yet feel, also, like you would die or do anything just for the chance to protect him back.
+ - I cry for everything I abandoned and because I, too, have been left behind – by Alex, by my mom, by time that has cut through our worlds and separated us.
+ - They told us love was a disease. They told us it would kill us in the end. For the very first time I realize, that this, too, might also be a lie.
+ - That is what Alex is now: a shadow-boy.
+ - Most of the time – 99 percent of the time – you just don’t know how and why the threads are looped together, and that’s okay. Do a good thing and something bad happens. Do a bad thing and something good happens. Do nothing and everything explodes.
+ - That’s what made it so frightening to the lawmakers: Love obeys no laws other than its own.
+ - This is what we are made for: promises, pledges, and sworn oaths of obedience.
+ - Things That Don’t Matter When You’ve Lived the Same Day Six Times and Died on at Least Two of Them: Lunch meats and their relative coolness.
+ - That’s the thing about best friends. That’s what they do. They keep you from spinning off the edge.
+ - I have had to give up so much, so many selves and lives already. I have grown up and out of the rubble of my old lives, of things and people I have cared for...
+ - Things would get difficult again. But that was okay too. The bravery was in moving forward, no matter what.
+ - Perfection is a promise, and a reassurance that we are not wrong.
+ - I was glad when the invalids were executed.
+ - We can never understand. We can only try, fumbling our way through the tunneled places, reaching for light.
+ - This was what being cured was like: like being in a fishbowl, circling always inside the same glass.
+ - I’m not the Hana everyone told me I would be after my cure.
+ - But this isn’t like anything I’ve ever seen, or imagined, or even dreamed: This is like music or dancing but better than both.
+ - This is one of my favorite things about the Underground: the crashing of the cymbals, the screeching guitar riffs, music that moves into the blood and makes you feel hot and wild and alive.
+ - Nothing has ever been so painful or delicious as being so close to him and being unable to do anything about it: like eating ice cream so fast on a hot day you get a splitting headache.
+ - The walls are covered -crammed- with writing. No. Not writing. They are covered with a single four-letter word that has been inscribed over and over, on every available surface. Love.
+ - Maybe, the hope said. Maybe.
+ - I didn’t realize then what a privilege that was: to be bored with your best friend; to have time to waste.
+ - Because if it weren’t for me, Lena and Alex would never have been caught at all. I told on them. I was jealous.
+ - Fred is officially the mayor of Portland now.
+ - This is pretty much the answer to every problem you encounter in suburbia: plant a tree, and hope you don’t see anyone’s privates.
+ - But it does not tell you this: that love will turn the whole world into something greater than itself.
+ - There is so much fragility in kissing, in other people: It is all glass.
+ - It is war now, and armies need symbols.
+ - But that’s the problem with love – it acts on you, works through you, resists your attempts to control.
+ - The kidnapping, the kiss. I brought him here, after all. I rescue him an pulled him into this new life, a life of freedom and feeling.
+ - A string of bright white buildinh, glistening like teeth over the slurping mouth of the ocean.
+ - How is it possible, I think, to change so much and not be able to change anything at all?
+ - For the first time in a long time, I actually look at her. I’ve always thought Lena was pretty, but now it occurs to me that at some point – last summer? last year? – she became beautiful.
+ - And then, just at that moment, when I’m no longer sure if I’m dreaming or awake or walking some valley in between where everything you wish for comes true, I feel the flutter of his lips on mine.
+ - Waste today, want tomorrow...
+ - Over the past week, I’ve accepted that I will never love Julian as much as I loved Alex. But now that idea is overwhelming, like a wall between us. I will never love Julian like I love Alex.
+ - Black is too morbid; red will set them on edge; pink is too juvenile; orange is freakish.
+ - I’ve always hated being looked at.
+ - Love obeys no laws other than its own.
+ - Amazing how hope lives. Without air or water, with hardly anything at all to nurture it.
+ - Despite the fact that Raven and Tack are often fighting, it’s impossible to imagine one without the other. They are like two plants that have grown around each other – they strangle and squeeze and support at the same time.
+ - At the same time I know that it’s not really their fault, at least not completely. I did my part too. I did it on a hundred different days and in a thousand different ways, and I know it. But this makes the anger worse, not better.
+ - Even the greatest movements on earth, have their beginnings with something small.
+ - Mistake, mistake, mistake. A strange word: stinging, somehow.
+ - For a second I think about how easy it would be to pass back to the other side, to walk straight into the laboratories and offer myself up to the surgeons. You were right; I was wrong. Get it out.
+ - You should only fall in love with people who will fall in love with you back.
+ - This is what I want. This is the only thing I’ve ever wanted. Everything else – every single second of every single day that has come before this very moment, this kiss – has meant nothing.
+ - Once Mo had closed the gates, he returned to his little stone hut, and his half-eaten sandwich of butter and canned sardines, and his mug of thick hot chocolate, which every night he poured carefully into a thermos labeled COFFEE.
+ - There is only what you want and what happens. There is only grabbing on and holding tight in the darkness.
+ - And you should hear the music. Incredible, amazing music, like nothing you’ve ever heard, music that almost takes your head off, you know? That makes you want to scream and jump up and down and break stuff and cry...
+ - The most dangerous sicknesses are those that make us believe we are well.
+ - That’s the easy thing about falling: there is only one choice after that.
+ - It’s as though the words are trapped, buried under past fears, past lives, like fossils compressed under layers of dirt.
+ - She liked that word: we. It sounded warm and open, like a hug.
+ - You have to learn that people are always listening.
+ - It’s funny how you can know your friends so well, but you still end up playing the same games with them.
+ - Love is the only thing in the world worth having. You must never loose it or give it away. We must never let them take it from us.
+ - It’s amazing how close I have been, all this time, to my old life. And yet the distance that divides me from it is vast.
+ - Let me tell you something about dying: it’s not as bad as they says. it’s the coming-back-to-life part that hurts.
+ - We are all punished for the lives we have chosen, in one way or another.
+ - There’s still always the possibility that I’ve gone totally, clinically cuckoo. But somehow I don’t think so anymore. An article I once read said that crazy people don’t worry about being crazy – that’s the whole problem.
+ - If you want something, if you take it for your own, you’ll always be taking it from someone else.
+ - The priests and the scientists are right about one thing: At our heart, at our base, we are no better than animals.
+ - I loved to be alone in the woods, especially in the late fall when everything is crisp and golden, the leaves the color of fire, and it smells like things turning into earth. I loved the silence – the only sound the steady drum of the hooves and the horse’s breathing.
+ - The deadliest of all deadly things: It kills you both when you have it and when you don’t.
+ - Suicide. A sideways word, a word that people whisper and mutter and cough: a word that must be squeezed out behind cupped palms or murmured behind closed doors. It was only in dreams that I heard the word shouted, screamed.
+ - This is not the person I wanted to become: Hatred has carved a permanent place inside me, a hollow where things are so easily lost.
+ - The memories seem like snapshots from someone else’s life.
+ - And now I know why they invented words for love, why they had to: It’s the only thing that can come close to describing what I feel in that moment, the baffling mixture of pain and pleasure and fear and joy, all running sharply through me at once.
+ - They’d already taken her from me once. I didn’t want to lose her again.
+ - I close my eyes. An image flashes – emerging from the van with Julian after our escape from New York City; believing, in that moment, that we had escaped the worst, that life would begin again for us. Instead life has only grown harder.
+ - He was still in love with you, anyway.
+ - I used to think that’s what love was: knowing someone so well he was like a part of you.
+ - Mice? Fine. Flying mice? Not so fine.
+ - I’ve learned to get really good at this – say one thing when I’m thinking about something else, act like I’m listening when I’m not, pretend to be calm and happy when I’m really freaking out. It’s one of the skills you perfect as you get older.
+ - Now, after so many years, I understand what the Coldness was and where it came from – this sense that everything is lost, and worthless, and meaningless.
+ - You can’t tell me what to feel.
+ - There are some losses we never get over.
+ - I will make a pact with you: I will do it if you will do it, always and forever. Take down the walls.
+ - Most of the time one night blends into the next and weeks blend into weeks and months into other months. And sooner or later we all die. But at the beginning of the night anything’s possible.
+ - In one of the tents, Julian is sleeping. And in another: Alex.
+ - Happiness is found when no one is looking.
+ - It’s a miracle I was able to get out of the house today. It’s a miracle I’m even wearing pants, a double miracle I remembered to wear shoes.
+ - And you can’t love, not fully, unless you are loved in return.
+ - But it’s not about knowing. It is simply about going forward.
+ - Direction, like time, is a general thing, the deprived of boundaries and borders. It is an endless process interception and reinterception, doubling back and adjusting.
+ - We are always being pushed and squeezed down one road or another. We have no choice but to step forward, and then step forward again, and then step forward again; suddenly we find ourselves on a road we haven’t chosen at all.
+ - But if you do believe, then you already know all about magic.
+ - It was as though the darkness was a sheet of raw cookie dough and someone had just taken a cookie cutter and made a child-sized shape out of it.
+ - That’s when you realize that most of it-life, the relentless mechanism of existing-isn’t about you. It doesn’t include you at all. It will thrust onward even after you’ve jumped the edge. Even after you’re dead.
+ - The mark of the procedure. A real one. Lu is cured.
+ - Why couldn’t you let me have it? Why did you have to take it? Why did you always take everything?
+ - He looked at me like I was beautiful.
+ - This is the language of the world before – a world of chaos and confusion and happiness and despair – before the blitz turned streets to grids, cities to prisons, and hearts to dust.
+ - That’s what time does: We stand stubbornly like rocks while it flows all around us, believing that we are immutable – and all the time we’re being carved, and shaped, and whittled away.
+ - Juliet!? I whip around but not quickly enough. She’s swallowed by the crowd, the gap that allowed her to break for the door closing just as quickly as it opened, a shifting Tetris pattern of bodies...
+ - Time and space recede and blast away like a universe expanding forever outward, and leaving only darkness and the two of us on its periphery, darkness and breathing and touch.
+ - And it’s the funniest thing: as soon as I see it, the whistling in my ears stops and the feeling of terror drains away, and I realize this whole time I haven’t been falling at all. I’ve been floating.
+ - Everytime he brushes me with his fingers, time seems to tether for a second, like it is in danger of dissolving. The whole world is dissolving, I decide, except for us. Us.
+ - They didn’t get me, I should have said. They saved me.
+ - I wonder whether she was sorry for leaving us behind.
+ - Funny how certain things stay with you.
+ - For the first time in my life I’ve done something for me and by choice and not because somebody told me it was good or bad.
+ - He is my world and my world is him and without him there is no world.
+ - You must hurt, or be hurt.
+ - If singing were a feeling it would be this, this light, this lifting, like laughing...
+ - His secret name, which belongs to me, and to him, and to no one else.
+ - What I meant was, you looked happier in the pictures.
+ - This is what hatred is. It will feed you and at the same time turn you to rot.
+ - Some things are better left buried and forgotten.
+
+357 quotes

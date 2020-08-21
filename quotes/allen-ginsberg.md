@@ -1,0 +1,113 @@
+ - You are what you think about all day.
+ - Be careful, you are not in Wonderland. I’ve heard the strange madness long growing in your soul. But you are fortunate in your ignorance, in your isolation. You who have suffered, find where love hides. Give, share, lose – lest we die, unbloomed.
+ - Concentrate on what you want to say to yourself and your friends. Follow your inner moonlight; don’t hide the madness. You say what you want to say when you don’t care who’s listening.
+ - Our heads are round so thought can change direction.
+ - I saw the best minds of my generation destroyed by madness, starving hysterical naked.
+ - First thought, best thought.
+ - Well, while I’m here I’ll do the work – and what’s the work? To ease the pain of living. Everything else, drunken dumbshow.
+ - Whoever controls the media, the images, controls the culture.
+ - Follow your inner moonlight; don’t hide the madness.
+ - I don’t do anything with my life except romanticize and decay with indecision.
+ - I saw the best minds of my generation destroyed by madness, starving hysterical naked, dragging themselves through the negro streets at dawn looking for an angry fix angelheaded hipsters burning for the ancient heavenly connection to the starry dynamo in the machinery of the night.
+ - To gain your own voice, forget about having it heard. Become a saint of your own province and your own consciousness.
+ - Night is the wonderful opportunity to take rest, to forgive, to smile, to get ready for all the battles that you have to fight tomorrow.
+ - The weight of the world is love. Under the burden of solitude, under the burden of dissatisfaction.
+ - What if someone gave a war and Nobody came?
+ - None of us understand what we’re doing, but we do beautiful things anyway.
+ - To gain your own voice you have to forget about having it heard.
+ - The suffering itself is not so bad; it’s the resentment against suffering that is the real pain.
+ - There is nothing to be learned from history anymore. We’re in science fiction now.
+ - War is good business Invest your son.
+ - Last Exit to Brooklyn should explode like a rusty hellish bombshell over America and still be eagerly read in a hundred years.
+ - A naked lunch is natural to us We eat reality sandwiches. But allegories are so much lettuce. Don’t hide the madness.
+ - Because systems of mass communication can communicate only officially acceptable levels of reality, no one can know the extent of the secret unconscious life. No one in America can know what will happen. No one is in real control.
+ - America, I’ve given you all and now I’m nothing.
+ - America, why are your libraries full of tears?
+ - Unholy battered old thing you were, my sunflower O my soul, I loved you then!
+ - We’re all golden sunflowers inside.
+ - It isn’t enough for your heart to break because everybody’s heart is broken now.
+ - I never dreamed the sea so deep, The earth so dark; so long my sleep, I have become another child. I wake to see the world go wild.
+ - Poetry is not an expression of the party line. It’s that time of night, lying in bed, thinking what you really think, making the private world public, that’s what the poet does.
+ - America, how can I write a holy litany in your silly mood?
+ - I know too much and not enough.
+ - Truth is dissent, where all power resides in the Big Lie.
+ - First thoughts are the strongest.
+ - America I used to be a communist when I was a kid and I’m not sorry.
+ - Who can live with this Consciousness and not wake frightened at sunrise?
+ - The typewriter is holy the poem is holy the voice is holy the hearers are holy the ecstacy is holy!
+ - When it snows in your nose, you catch cold in your brain.
+ - Which way will the sunflower turn surrounded by millions of suns?
+ - No rest without love, no sleep without dreams of love- be mad or chill obsessed with angels or machines, the final wish is love -cannot be bitter, cannot deny, cannot withhold if denied: the weight is too heavy.
+ - I know I’m not God, are you? Don’t be silly. God? God? Everybody’s God? Don’t be silly.
+ - The only thing that can save the world is the reclaiming of the awareness of the world. That’s what poetry does.
+ - What is obscenity? And to whom?
+ - Everything is holy! everybody’s holy! everywhere is holy! everyday is in eternity! Everyman’s an angel!
+ - What thoughts I have of you tonight, Walt Whit- man, for I walked down the sidestreets under the trees with a headache self-conscious looking at the full moon. In my hungry fatigue, and shopping for images, I went into the neon fruit supermarket, dreaming of your enumerations!
+ - What peaches and what penumbras! Whole families shopping at night! Aisles full of husbands! Wives in the avocados, babies in the tomatoes! – and you, Garcia Lorca, what were you doing down by the watermelons?
+ - We are all exposed to the flash bulb of death.
+ - Poetry is the one place where people can speak their original human mind. It is the outlet for people to say in public what is known in private.
+ - Holy the supernatural extra brilliant intelligent kindness of the soul!
+ - Things are symbols of themselves.
+ - Candor disarms paranoia.
+ - All these books are published in Heaven.
+ - Just because I like to suck cock doesn’t make me any less American than Jesse Helms.
+ - The closet door is open for me, where I left it, since I left it open, it has graciously stayed open.
+ - Everybody’s serious but me.
+ - Since art is merely and ultimately self-expressive, we conclude that the fullest art, the most individual, uninfluenced, unrepressed, uninhibited expression of art is true expression and the true art.
+ - The best thing about being famous is that it makes it easier to get laid.
+ - It’s never to late to do nothing at all.
+ - Fortunately art is a community effort – a small but select community living in a spiritualized world endeavoring to interpret the wars and the solitudes of the flesh.
+ - When you notice something clearly and see it vividly, it then becomes sacred.
+ - I had a moment of clarity, saw the feeling in the heart of things, walked out to the garden crying.
+ - Let go of the spirit of the departed, and continue the celebration of your own life.
+ - Naked in solitary prison cell he looks down at a hard-on.
+ - Breathe when you breathe. Walk where you walk. Talk when you talk. Cry when you cry. Die when you die. Let go when you let go...
+ - Thank God I am not God! Thank God I am not God!
+ - Ordinary mind includes eternal perceptions. Notice what you notice. Observe what’s vivid. Catch yourself thinking. Vividness is self-selecting. And remember the future.
+ - I don’t think there is any truth. There are only points of view.
+ - You can’t escape the past in Paris, and yet what’s so wonderful about it is that the past and present intermingle so intangibly that it doesn’t seem to burden.
+ - The poignancy of a photograph comes from looking back to a fleeting moment in a floating world. The transitoriness is what creates the sense of the sacred.
+ - Nobody saves America by sniffing cocaine. Jiggling your knees blankeyed in the rain, when it snows in your nose you catch cold in your brain.
+ - The soul is innocent and immortal, it should never die ungodly in an armed madhouse.
+ - I heard you asking questions of each: Who killed the pork chops? What price bananas? Are you my Angel?
+ - Let the straight flower bespeak its purpose in straightness – to seek the light. Let the crooked flower bespeak its purpose in crookedness – to seek the light. Let the crookedness and straightness bespeak the light.
+ - I want to be a saint, a real saint while I am young, for there is so much work to do.
+ - Sometime I’ll lay down my wrath, As I lay my body down Between the ache of breath and breath, Golden slumber in the bone.
+ - I touch your book and dream of our odyssey in the supermarket and feel absurd.
+ - Affection is the most important thing. And the quality of affection – with your friends, your lovers, your family. But particularly for your own generation.
+ - You too must seek the sun...
+ - Scientist alone is true poet he gives us the moon he promises the stars he’ll make us a new universe if it comes to that.
+ - How sick i am! that thought Always comes to me with horror. Is it this strange for everybody? But such fugitive feelings have always been my metier.
+ - I didn’t know the names of the flowers – now my garden is gone.
+ - Who’ll come lie down in the dark with me Belly to belly and knee to knee Who’ll look into my hooded eye Who’ll lie down under my darkened thigh?
+ - What came is gone forever every time.
+ - From it’s inception Beat poetry was hailed as “something NEW” and “like all good spontaneous jazz, newness is acceptable and expected – by hip people who listen.” But the newness of jazz has in it the echoes of J. S. Bach.
+ - A poem is like a radio that can broadcast continuously for thousands of years.
+ - Bob Dylan’s one of the greatest blues singers of the western world; ancient art, on-the-spot improvisation, mind quickness, endless variation, classical formulae, prophetic vision, mighty wind-horse.
+ - The real America that Whitman proclaimed and Thoreau decoded.
+ - We are great writers on the same dreadful typewriter.
+ - Inside skull vast as outside skull.
+ - The fact to which we have got to cling, as to a lifebelt, is that it is possible to be a normal decent person and yet be fully alive.
+ - Sanity – a trick of agreement.
+ - Scientist alone is true poet.
+ - You can’t photograph everything.
+ - We love to be hurt and we love to have our unhealing wounds opened and reopened again: we sit staring in the mirror of art, fascinated by our own deformities.
+ - Poetry’s role is to provide spontaneous individual candor as distinct from manipulation and brainwash.
+ - Mind is shapely, Art is shapely.
+ - My own experience is that a certain kind of genius among students is best brought out in bed.
+ - Democracy! Bah! When I hear that I reach for my feather boa!
+ - The hero surviving his own murder, his own suicide, his own addiction, surviving his own disappearance from the scene.
+ - Recent history is the record of one vast conspiracy to impose one level of mechanical consciousness on mankind.
+ - Subject is known by what she sees.
+ - Many seek and never see, anyone can tell them why. O they weep and O they cry and never take until they try unless they try it in their sleep and never some until they die. I ask many, they ask me. This is a great mystery.
+ - I really believe, or want to believe, really I am nuts, otherwise I’ll never be sane.
+ - This is the one and only firmament; therefore it is the absolute world. There is no other world. The circle is complete. I am living in Eternity. The ways of this world are the ways of Heaven.
+ - It’s time we did something to assert ourselves. After all, we do comprise 10% of the population.
+ - Others can measure their visions by what we see.
+ - There should be no distinction between what we write down, and what we really know.
+ - I want people to bow as they see me and say he is gifted with poetry, he has seen the presence of the creator.
+ - I am learning by the week, but my poesy is still not my own. New rhyme, new me me me in words. I am not all this carven rhetoric.
+ - My books piled up before me for my use waiting in space where I placed them, they haven’t disappeared, time’s left its remnants and qualities for me to use – my words piled up, my texts, my manuscripts, my loves.
+ - Ultimately Warhol’s private moral reference was to the supreme kitsch of the Catholic church.
+
+111 quotes

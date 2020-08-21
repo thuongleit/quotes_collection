@@ -1,0 +1,44 @@
+ - The person attempting to travel two roads at once will get nowhere.
+ - If there is no dull and determined effort, there will be no brilliant achievement.
+ - Pride and excess bring disaster for man.
+ - Not having heard something is not as good as having heard it; having heard it is not as good as having seen it; having seen it is not as good as knowing it; knowing it is not as good as putting it into practice.
+ - When people lack teachers, their tendencies are not corrected; when they do not have ritual and moral principles, then their lawlessness is not controlled.
+ - The nature of man is evil; what is good in him is artificial.
+ - Human nature is what Heaven supplies.
+ - If the quickness of the mind and the fluency of the tongue are too punctilious and sharp, moderate them in your activity and rest.
+ - Man’s nature is evil; goodness is the result of conscious activity.
+ - Human nature is such that people are born with a love of profit If they follow these inclinations, they will struggle and snatch from each other, and inclinations to defer or yield will die.
+ - Now it is human nature to want to eat to ones fill when hungry, to want to warm up when cold, to want to rest when tired. These all are a part of people’s emotional nature.
+ - A person is born with feelings of envy and hate. If he gives way to them, they will lead him to violence and crime, and any sense of loyalty and good faith will be abandoned.
+ - Music is a fantastic peacekeeper of the world, it is integral to harmony, and it is a required fundamental of human emotion.
+ - If the gentleman has ability, he is magnanimous, generous, tolerant, and straightforward, through which he opens the way to instruct others.
+ - The noble person uses things; the lesser man is used by things.
+ - The drum is surely the lord of music, is it not?
+ - Thus, that one can find no place to walk through the breadth of the earth is not because the earth is not tranquil but because the danger to every step of the traveler lies generally with words.
+ - In antiquity the sage kings recognized that men’s nature is bad and that their tendencies were not being corrected and their lawlessness controlled.
+ - I once tried standing up on my toes to see far out in the distance, but I found that I could see much farther by climbing to a high place.
+ - Therefore, a person should first be changed by a teacher’s instructions, and guided by principles of ritual. Only then can he observe the rules of courtesy and humility, obey the conventions and rules of society, and achieve order.
+ - If the blood humor is too strong and robust, calm it with balance and harmony.
+ - Whether the gentleman is capable or not, he is loved all the same; conversely the petty man is loathed all the same.
+ - Mencius said that human nature is good. I disagree with that.
+ - Sacrifices are concerned with the feelings of devotion and longing.
+ - Thus, anybody who follows this nature and gives way its states will be led into quarrels and conflicts, and go against the conventions and rules of society, and will end up a criminal.
+ - Quarreling over food and drink, having neither scruples nor shame, not knowing right from wrong, not trying to avoid death or injury, not fearful of greater strength or of greater numbers, greedily aware only of food and drink – such is the bravery of the dog and boar.
+ - If the impulse to daring and bravery is too fierce and violent, stay it with guidance and instruction.
+ - If what the heart approves conforms to proper patterns, then even if one’s desires are many, what harm would they be to good order?
+ - When you concentrate on agriculture and industry and are frugal in expenditures, Heaven cannot impoverish your state.
+ - The coming of honor or disgrace must be a reflection of one’s inner power.
+ - When a man sees something desirable, he must reflect on the fact that with time it could come to involve what is detestable. When he sees something that is beneficial, he should reflect that sooner or later it, too, could come to involve harm.
+ - If you wish to see the thousand years, look at today; if you wish to understand the millionfold, then look at the one or the two.
+ - You look upon the seasons with expectation and await them: wy not seize the seasonal opportunities and exploit them?
+ - There are successful scholars, public-spirited scholars, upright scholars, cautious scholars, and those who are merely petty men.
+ - Since the nature of people is bad, to become corrected they must be taught by teachers and to be orderly they must acquire ritual and moral principles.
+ - The rigid cause themselves to be broken; the pliable cause themselves to be bound.
+ - I once tried thinking for an entire day, but I found it less valuable than one moment of study.
+ - Human nature refers to what is in people but which they cannot study or work at achieving.
+ - Those whose character is mean and vicious will rouse others to animosity against them.
+ - Men of all social stations live together: they are equal in their desires, yet vary in their methods; they are equal in their passions, yet different in their intelligence; that is their nature-given vitality.
+ - The petty man is eager to make boasts, yet desires that others should believe in him. He enthusiastically engages in deception, yet wants others to have affection for him. He conducts himself like an animal, yet wants others to think well of him.
+ - If knowledge and foresight are too penetrating and deep, unify them with ease and sincerity.
+
+42 quotes

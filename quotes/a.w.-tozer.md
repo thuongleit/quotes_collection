@@ -1,0 +1,26 @@
+ - It is doubtful whether God can bless a man greatly until He has hurt him deeply.
+ - Refuse to be average. Let your heart soar as high as it will.
+ - Jesus calls us to his rest, and meekness is His method. The meek man cares not at all who is greater than he, for he has long ago decided that the esteem of the world is not worth the effort.
+ - The man who would truly know God must give time to Him.
+ - The reason why many are still troubled, still seeking, still making little forward progress is because they haven’t yet come to the end of themselves. We’re still trying to give orders, and interfering with God’s work within us.
+ - Faith is the gaze of a soul upon a saving God.
+ - To have found God and still to pursue Him is the soul’s paradox of love.
+ - When you kill time, remember that it has no resurrection.
+ - We need never shout across the spaces to an absent God. He is nearer than our own soul, closer than our most secret thoughts.
+ - An infinite God can give all of Himself to each of His children. He does not distribute Himself that each may have a part, but to each one He gives all of Himself as fully as if there were no others.
+ - Any faith that must be supported by the evidence of the senses is not real faith.
+ - God never hurries. There are no deadlines against which he must work. Only to know this is to quiet our spirits and relax our nerves.
+ - Rules for Self Discovery: 1. What we want most; 2. What we think about most; 3. How we use our money; 4. What we do with our leisure time; 5. The company we enjoy; 6. Who and what we admire; 7. What we laugh at.
+ - The vague and tenuous hope that God is too kind to punish the ungodly has become a deadly opiate for the consciences of millions.
+ - True faith rests upon the character of God and asks no further proof than the moral perfections of the One who cannot lie.
+ - One hundred religious persons knit into a unity by careful organization do not constitute a church any more than eleven dead men make a football team.
+ - I am Thy servant to do Thy will, and that will is sweeter to me than position or riches or fame, and I choose it above all things on Earth or in Heaven.
+ - Christians don’t tell lies they just go to church and sing them.
+ - What we think about when we are free to think about what we will – that is what we are or will soon become.
+ - Perhaps it takes a purer faith to praise God for unrealized blessings than for those we once enjoyed or those we enjoy now.
+ - We can afford to follow Him to failure. Faith dares to fail. The resurrection and the judgment will demonstrate before all worlds who won and who lost. We can wait.
+ - Justice is not something God has. Justice is something that God is.
+ - Faith is an organ of knowledge, and love an organ of experience.
+ - The fact of God is necessary for the fact of man. Think God away and man has no ground of existence.
+
+24 quotes

@@ -1,0 +1,72 @@
+ - Real men don’t use instructions, son. Besides, this is just the manufacturer’s opinion on how to put this together.
+ - Women now have choices. They can be married, not married, have a job, not have a job, be married with children, unmarried with children. Men have the same choice we’ve always had: work, or prison.
+ - Electricity can be dangerous. My nephew tried to stick a penny into a plug. Whoever said a penny doesn’t go far didn’t see him shoot across that floor. I told him he was grounded.
+ - I’m a very bad student, but a great learner.
+ - Kids learn by example. If I respect Mom, they’re going to respect Mom.
+ - I have irrational fears, and they all go back to losing my father as a kid. I’ve never gotten over it.
+ - Dad needs to show an incredible amount of respect and humor and friendship toward his mate so the kids understand their parents are sexy, they’re fun, they do things together, they’re best friends. Kids learn by example. If I respect Mom, they’re going to respect Mom.
+ - Can we take a direct flight back to reality or do we have to change planes in Denver?
+ - A guy knows he’s in love when he loses interest in his car for a couple of days.
+ - Pere Noel. Babbo Natale. Pelznickel. Topo Gigio.
+ - Use a screwdriver instead of a hammer. Try to untighten the nut with your hand. Utilize the path of least resistance first.
+ - The world’s a mean place. It’s unfair, then it’s fair. It’s hateful, then it’s loving. It’s a very peculiar place on philosophical and metaphysical and religious levels.
+ - When I went to jail, reality hit so hard that it took my breath away, took my stance away, took my strength away. I was there buck naked, humiliated, sitting in my own crap and urine – this is a metaphor. My ego had run off. Your ego is the biggest coward.
+ - If you want to condemn yourself for the mistakes you’ve made, let’s be fair, that means you’ve got to congratulate yourself for all the good things you’ve done. It’s okay to say, “God, I wish I’d done this; yeah, but I did do that.” Then it kind of balances out.
+ - Men often do things for women that they don’t want to do, so that women will do things for men that they don’t want to do.
+ - All men like to think that they can do it alone, but a real man knows that there no substitute for support, encouragement or a pit crew.
+ - If it doesn’t say Binford on it, somebody else probably made it.
+ - I blend memories. I blend them into one that’s funny. I exaggerate to clarify.
+ - A car crossed two lanes of traffic, flipped, and landed on my dad’s car. I don’t blame cars. My dad loved cars. I don’t have many memories of my dad. The love of cars is all I have of him, really.
+ - Boys can be disgusting. You can’t leave us alone for any length of time because we will burn something, blow something up or paint something. We’re just obnoxious.
+ - But separate a man from his car – that’s inhuman.
+ - If you don’t decide where you’re going, life will decide for you.
+ - I’m actually more of a cat guy than a dog person because I travel so much. I love cats.
+ - When you’re 6 or 7, your father becomes this wonderful presence in your life. I really responded to my father. And then, the very moment I realized that I loved him unconditionally, that life was going to be great just because he was in it, he was gone.
+ - Women are brilliant. Every woman knows how to do the weirdest thing right out of the bucket. Every woman knows how to do that Hindu head wrap with the towel out of the shower. A typhoon couldn’t blow that thing off their heads. Ever try to do that? You look like a drunk Iraqi soldier.
+ - Men aren’t men until they can get to Sears by themselves.
+ - I have an only child. She’s so independent and good with adults.
+ - Dogs will eat till they die. Cats will leave food in the dish, incomprehensible to a dog.
+ - As the Chinese will tell you, history depends on your point of view.
+ - I love women. I actually prefer girls, as a parent, because they disappoint at a different age. They go through that, “Dad’s an idiot,” which lasted a little longer than I’d like.
+ - Jill, we became parents so we could tell our kids what to do. Otherwise we’re just the tallest people living here.
+ - My dad’s death reminds me of earthquakes – things that shake your foundation.
+ - Women are like cars: we all want a Ferrari, sometimes want a pickup truck, and end up with a station wagon.
+ - I am a thespian trapped in a man’s body.
+ - If it ain’t broke, you can probably still fix it.
+ - I’m sad for adults who want to be children. And children who want to be adults.
+ - My stepfather stepped in where no man would’ve stepped in – six kids, five of them boys – and that’s heroic.
+ - There is no greater feeling than when a groom turns to see his bride and has tears in his eyes because she is so beautiful.
+ - Never comment on a woman’s rear end. Never use the words ‘large’ or ‘size’ with ‘rear end.’ Never. Avoid the area altogether. Trust me.
+ - I’ve gotten so far past the Android and iPhones that I’m back to a flip-phone. It’s funny, you can buy antique flip-phones online. A lot of us collect them. Clearly, they’re considered antiques.
+ - Dog’s listen, or appear to listen. I think they hear blah, blah, blah, FOOD, blah, blah, blah. They appear to be listening to you.
+ - In marriage, compromise nurtures the relationship.
+ - In the last three years of racing I’ve met as many women fans as men fans, and in NASCAR it’s the same thing. My wife loves cars, but the difference is she doesn’t have 20 years of understanding the background of them. She basically drives them and uses her gut feelings as to which is best.
+ - Being wealthy when no one else is, is like being the only one at the party with a drink.
+ - I’m one of these guys that just spoils the environment. I like ATVs and snowmobiles. I have a motorcycle up there, and I like cruising through the hills.
+ - Before Kady was born, I didn’t think having a kid would be such a big deal. My attitude was simple: Babies are nice, play with them, put them in the closet until the next time.
+ - I have a thing for tools.
+ - I grew up around hunters. I love guns, bows, arrows, compasses and binoculars. I don’t do any of that stuff, I just like the stuff. I shot one animal, in my life, and I didn’t like it. If I had to skin an animal to eat it, I’d probably eat vegetables.
+ - I think women like Ferraris. A Ferrari is everybody’s car.
+ - I used to live an isolated existence, even in relationships, but now my family knows me for who I really am. Mostly, that’s a good thing.
+ - I don’t understand why it has to be either – or – either socialism or democracy. Why can’t we combine things to get the best of each system?
+ - Playing golf is like going to a strip joint. After 18 holes you are tired and most of your balls are missing.
+ - I had a very easy time loving an audience. But when it’s one-on-one with somebody, all I wanted to do was run away, because maybe they’re going to want something from me I can’t give, or they’re going to hurt me.
+ - I know it sounds odd, but I want to make a Rolex-quality screwdriver.
+ - Why go to a church to worship God? A church is man made. God never said, “And let there be aluminum siding.” Climbing a tree to talk to God sounds like a better idea since only God can make a tree. And if that tree’s on a golf course, all the better.
+ - The people that hunt are the guys that really vehemently protect the environment. You find that people that live on ranches tend to want to keep it that way, and I’ve always loved that about the hunters that I’ve known. They eat what they kill, and they carry it out. They don’t shoot for sport.
+ - Comedy is the ultimate anarchist.
+ - Be wary of listening to stories secondhand.
+ - They say you only go around once, but with a muscle car you can go around two or three times.
+ - I love doing logos. I’ve been a graphic artist all my life.
+ - For years, I just did not like this idea of God, church.
+ - To get a man’s attention, just stand in front of the TV and don’t move. He’ll talk to you. I promise.
+ - In my experience, it’s all wonderful with girls until about 16. Around that time, boys kind of calm down and start focusing their testosterone. Girls get a little challenging, especially for fathers.
+ - I’m a creative guy, artistically with graphics.
+ - I do a lot of family shows.
+ - When somebody tells you they’re not very smart, they’re saying exactly the opposite.
+ - My comedy is not mine. It’s a gift. I’m not that smart.
+ - Man is the only animal to borrow tools.
+ - The ego is like a kid in the basement: It’s best to keep him busy.
+ - Anytime you work with animals, you begin to see more humanity in them.
+
+70 quotes

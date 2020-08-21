@@ -1,0 +1,27 @@
+ - Whatever is not commonly seen is condemned as alien.
+ - As the Nobel laureate Elie Wiesel warned years ago, to forget a holocaust is to kill twice.
+ - I don’t mind solitude. I love talking to other people, but I do need my space.
+ - Almost all people have this potential for evil, which would be unleashed only under certain dangerous social circumstances.
+ - The whole story of the comfort women, the system of forced sexual slavery, the medical experiments of Unit 731, is not something that is in the US psyche. That is changing because many books are coming out.
+ - The spoken word vanished with the wind. Likewise, the unrecorded life disappears as if it never existed.
+ - When you believe you have a future, you think in terms of generations and years. When you do not, you live not just by the day – but by the minute.
+ - There isn’t much in the way of pure communist spirit, because the whole nation seems to be engaged in capitalistic enterprises. Much of the country still operates under government control.
+ - It’s much more difficult to work on a broad subject than on a specific one, because even if it’s hard to find the information, if you look hard enough for something specific you will find it, and you will discover things that you wouldn’t have thought of before.
+ - I have to finish this book tour of almost 30 cities.
+ - Your first duty as a writer is to write to please yourself. And you have no duty towards anyone else.
+ - For some reason, I seem to be bothered whenever I see acts of injustice and assaults on people’s civil liberties. I imagine what I write in the future will follow in that vein. Whether it’s fiction or non-fiction.
+ - When the Chinese first came to San Francisco, they were actually welcomed by the mayor and they had special ceremonies for them-again this is when their colony was very small, only a few Chinese.
+ - Books are the ultimate way for writers to reach immortality.
+ - There isn’t much discussion of ruling class in America even in Boston, probably one of the most class-conscious cities in the country?
+ - If the conditions were right there could be great acceptance. Often it is only when they pose an economic or political threat that it turns really ugly.
+ - Often, what you see in the media is driven by economic forces.
+ - They probably do have an Asian Barbie.
+ - It is very difficult to hang onto the relics of history.
+ - After working as a journalist I went to a writing program at Johns Hopkins. It was interesting because it was neither journalistic nor historical, but it emphasized writing style, and afterwards I was asked to write my first book.
+ - Its a wonderful thing to see a segment of our population that is open and eager to learn more about Chinese culture. It has filtered into the mainstream. You see credit-card ads on TV with white couples and Chinese babies.
+ - Somebody who was born in this country who visited China would later face difficulty getting back in to the USA. We have to keep in mind that the struggles of the Chinese against these exclusion laws really laid down the foundations of civil rights law.
+ - I have certainly amassed many historical research gathering skills.
+ - Racism is always there underneath, but usually it is exploited in these times of economic crisis, and it’s hard to find out when one slides into another.
+ - I may attempt a novel. I think that no matter what you write, it requires being honest with oneself, and you have to pull yourself out of the whirlwind of daily life.
+
+25 quotes

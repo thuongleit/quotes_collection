@@ -1,0 +1,220 @@
+ - Tomorrow will be too late, it’s now or never.
+ - When things go wrong, don’t go with them.
+ - Ambition is a dream with a V8 engine.
+ - A little less conversation, a little more action please.
+ - Do something worth remembering.
+ - Wise men say only fools rush in. But I can’t help falling in love with you.
+ - Truth is like the sun. You can shut it out for a time, but it ain’t going away.
+ - To judge a man by his weakest link or deed is like judging the power of the ocean by one wave.
+ - Never wait for tomorrow, what if tomorrow never comes?
+ - People think you’re crazy if you talk about things they don’t understand.
+ - Before you abuse, criticize, and accuse walk a mile in my shoes.
+ - Until we meet again, may God bless you as he has blessed me.
+ - Sad thing is, you can still love someone and be wrong for them.
+ - You look like an angel, walk like an angel, talk like an angel. But I got wise, you’re the devil in disguise.
+ - Music should be something that makes you gotta move, inside or outside.
+ - We can’t build our dreams on suspicious minds.
+ - Values are like fingerprints. Nobody’s are the same, but you leave ’em all over everything you do.
+ - Don’t criticize what you can’t understand, son. You never walked in that’s man shoes.
+ - I learned very early in life that: ‘Without a song, the day would never end; without a friend, a man ain’t got a friend; without a song, the road would never bend-without a song.’ So I keep singing a song.
+ - You’ve got to follow that dream, wherever that dream may lead.
+ - The road to love is full of danger signs.
+ - A hard headed woman, a soft hearted man, been the cause of trouble ever since the world began.
+ - The image is one thing and the human being is another. It’s very hard to live up to an image, put it that way.
+ - I am not the King. Jesus Christ is the King. I’m just an entertainer.
+ - You only pass through this life once, you don’t come back for an encore.
+ - Whatever I will become will be what God has chosen for me.
+ - Live each day, as if it we’re your last. It’s written in the stars, your destiny is cast.
+ - Love me tender, love me true, all my dreams fulfill. For my darling, I love you, and I always will.
+ - Everybody comes from the same source. If you hate another human being, you’re hating part of yourself.
+ - I’m lonely like Adam and you’re evil like Eve.
+ - Talent is being able to sell what you’re feeling.
+ - My philosophy of life is simple: I need someone to love, something to wait and do something.
+ - Ambition is a dream with a V8 engine. Ain’t nowhere else in the world where you can go from driving a truck to cadillac overnight.
+ - I’m with a crowd but oh so alone.
+ - I’m left, you’re right, and she’s gone. You’re right, and I’m left all alone.
+ - When I first saw you with your smile so tender, my heart was captured, my soul surrendered.
+ - Sharing money is what gives it its value.
+ - You can do anything, but lay off my blue suede shoes.
+ - Rhythm is something you either have or don’t have, but when you have it, you have it all over.
+ - If you bring a friend into your love affair, that’s the end of your sweetheart that’s the end of your friend, that’s when your heartache begins.
+ - Fame and fortune, how empty they can be.
+ - What’s the good of reaching 90, if you waste 89?
+ - Make me feel at home, if you really care, scratch my back and run your pretty fingers through my hair.
+ - I love only one girl, one in every town.
+ - Don’t tell me baby you gotta go, I got the hifi high and the lights down low.
+ - I forgot to remember to forget.
+ - Some people tap their feet, some people snap their fingers, and some people sway back and forth. I just sorta do ’em all together, I guess.
+ - I don’t like people who are in politics for themselves and not for others. You want that, you can go into show business.
+ - Where could I go but to the Lord?
+ - If you talk in your sleep, don’t mention my name. If you walk in your sleep, forget where you came.
+ - You’re so square, baby, I don’t care.
+ - I feel so alone sometimes. The night is quiet for me. I’d love to be able to sleep. I’ll probably not rest. I have no need for all this. Help me, Lord.
+ - It’s not how much you have that makes people look up to you, it’s who you are.
+ - I don’t feel I’ll live a long life. That’s why I have to get what I can from every day.
+ - If you let your head get too big, it’ll break your neck.
+ - I don’t know anything about music. In my line you don’t have to.
+ - I’m evil, my middle name is misery. Well, I’m evil, so don’t mess around with me.
+ - Do what’s right for you, so long as it don’t hurt no one.
+ - Maybe I didn’t treat you Quite as good as I should have Maybe I didn’t love you Quite as often as I could have Little things I should have said and done I just never took the time You were always on my mind You were always on my mind.
+ - People ask me where I got my singing style. I didn’t copy my style from anybody.
+ - Gonna travel, gonna travel wild and free I’m gonna pack my bags because this great big world is calling me.
+ - Computers may out think us one day, but as long as people got feelings we’ll be better than they are.
+ - I’m trying to keep a level head. You have to be careful out in the world. It’s so easy to get turned.
+ - When I was a boy, I always saw myself as a hero in comic books and in movies. I grew up believing this dream.
+ - Since my baby left me, I’ve found a new place to dwell, down at the end of Lonely Street at Heartbreak Hotel.
+ - There’s no such thing as an original sin.
+ - I don’t mind being controversial. Even Jesus wasn’t loved in his day.
+ - We’re trapped in a world that’s troubled with pain. As long as a man has the strength to dream, he can redeem his soul and fly.
+ - Love is a thing you never can share.
+ - Memories, pressed between the pages of my mind. Memories, sweetened through the ages just like wine.
+ - Nine and nine makes fourteen, four and four makes nine. The clock is striking thirteen, I think I’ve lost my mind.
+ - I knew by heart all the dialogue of James Dean’s films; I could watch Rebel Without a Cause a hundred times over.
+ - Love had surely made us all and hate would surely make us fall.
+ - All I want is to know the truth, to know and experience God. I’m a searcher, that’s what I’m all about.
+ - Do the Clam, do the Clam, grab your barefoot baby by the hand.
+ - The army teaches boys to think like men.
+ - On a cold and gray Chicago morning another little baby child is born in the ghetto, and his Mama cries.
+ - A live concert to me is exciting because of all the electricity that is generated in the crowd and on stage. It’s my favorite part of the business, live concerts.
+ - The world is more alive at night; it’s like God isn’t looking.
+ - Animals don’t hate, and we’re supposed to be better than them.
+ - When we kiss my heart’s on fire, burning with a strange desire. And I know that every time I kiss you, that your heart’s on fire, too.
+ - Life has taught me one big lesson, always keep the girlies guessing.
+ - Samson told Delilah loud and clear, keep your cotton picken fingers out of my hair.
+ - In this day and time you can’t even get sick; you are strung-out! Well by God, I’ll tell you something, friend: I have never been strung-out in my life, except on music!
+ - The walls have ears, better think before you throw that shoe.
+ - The greatest voice of all time.
+ - I’ve spent a life time waiting for the right time, now that you’re near, the time is here at last.
+ - There’s no job too immense, when you got confidence.
+ - Then came Act II, you seemed to change and acted strange, and why I’ll never know.
+ - Take care of the fans and they will sure as hell take care of you.
+ - I go for all the belles, except the wedding kind.
+ - Teenagers are my life and my triumph. I’d be nowhere without them.
+ - I look at you and wham, I’m head over heals. I guess that love is like a banana peel.
+ - We’re the perfect combination. Colonel’s an old carny, and me, I’m off the wall.
+ - I don’t do any vulgar movements.
+ - I have no use for bodyguards, but I have very specific use for two highly trained certified public accountants.
+ - I like to sing ballads the way Eddie Fisher does and the way Perry Como does. But the way I’m singing now is what makes the money.
+ - He holds his guitar like a Tommy gun.
+ - I can preach until your deaf and dumb, I’m in that soul saving army beating on that big bass drum.
+ - I’ll stay in Memphis.
+ - I’d rather go on hearing your lies, than to go on living without you.
+ - The only exercise I get is on the stage. If I didn’t get that, I’d get a little round around the tummy, as much as I eat.
+ - Love me tender, love me sweet, never let me go.
+ - I was training to be an electrician. I suppose I got wired the wrong way round somewhere along the line.
+ - I like pork chops and country ham, creamed potatoes, stuff like that. Redeye gravy. It comes from ham, bacon, stuff like that. It’s the grease that you fry it in. I eat a lot of Jell-O. Fruit Jell-O.
+ - I don’t want to be a tiger, tigers play too rough. I don’t want to be a lion, cause lions ain’t the kind you love up.
+ - A little less fight and a little more spark, close your mouth and open your heart.
+ - I get sometimes; I get lonesome right in the middle of a crowd.
+ - It’s human nature to gripe, but I’m going ahead and doing the best I can.
+ - I thought that I was in heaven But I was sure surprised Heaven help me, I didn’t see The devil in your eyes You look like an angel Walk like an angel Talk like an angel But I got wise You’re the devil in disguise Oh yes you are The devil in disguise.
+ - Since I was two years old, all I knew was gospel music. That music became such a part of my life it was as natural as dancing. A way to escape from the problems. And my way of release.
+ - I’ve had a pretty good lesson in human nature. It’s more important to try to surround yourself with people who can give you a little happiness, because you only pass through this life once, Jack. You don’t come back for an encore.
+ - I’m strictly for Stevenson. I don’t dig the intellectual bit, but I’m telling you, man, he knows the most.
+ - A lot of people seem to think I started this business. But rock ‘n’ roll was here a long time before I came along. Nobody can sing that kind of music like colored people. Let’s face it: I can’t sing like Fats Domino can. I know that.
+ - Ah just act the way ah feel.
+ - Gospel music is the purest thing there is on this earth.
+ - Don’t leave my embrace for here in my arms is your place.
+ - She touched my hand what a chill I got, her lips are like a volcano that’s hot.
+ - After a hard day of basic training, you could eat a rattlesnake.
+ - Once I catch you and the kissing starts, a team of wild horses couldn’t tear us apart.
+ - I happened to come along in the music business when there was no trend.
+ - I’ve come too far, and I don’t know how to get back.
+ - The child needs a helping hand or he’ll grow up to be an angry young man some day.
+ - Her little sister will tell you she don’t live here anymore.
+ - I can’t sing very well but I’d like to try.
+ - The man who can sing when he hasn’t got a thing, he’s the king of the whole wide world.
+ - Every time I think that I’m getting old, and gradually going to the grave, something else happens.
+ - I like entertaining people. I really miss it.
+ - I’ve tried to lead a straight, clean life, not set any kind of a bad example.
+ - The only thing worse than watching a bad movie is being in one.
+ - When I get married, it’ll be no secret.
+ - When I got outta High School I was driving a truck. I was just a poor boy from Memphis, Memphis.
+ - I think most people have a natural instinct to rebel.
+ - I miss my singing career very much.
+ - If you cry when you’re in love, it sure ain’t no disgrace.
+ - I sure lost my musical direction in Hollywood. My songs were the same conveyer belt mass production, just like most of my movies were.
+ - I didn’t know that there were any radio stations in Nova Scotia.
+ - I’m not trying to be sexy. It’s just my way of expressing myself when I move around.
+ - I was an only child, and Mother was always right with me all my life. I used to get very angry at her when I was growing up-it’s a natural thing.
+ - All the stars will tell the story, of our love and all its glory. Let us make this night of magic, and make it a night of love.
+ - When I was a child I was a dreamer. I read comic books, and I was the hero of the comic book. I saw movies, and I was the hero in the movie. So every dream I have ever dreamed has come true a thousand times.
+ - Adversity is sometimes hard upon a man; but for one man who can stand prosperity, there are a hundred that will stand adversity.
+ - Hey buddy, don’t you be no square, if you can’t find a partner use a wooden chair.
+ - I’m not kidding myself. My voice alone is just an ordinary voice. What people come to see is how I use it. If I stand still while I’m singing, I’m dead, man. I might as well go back to driving a truck.
+ - I’ll never feel comfortable taking a strong drink, and I’ll never feel easy smoking a cigarette. I just don’t think those things are right for me.
+ - You don’t like hot rod racing or driving late at night, you just want to park where it’s nice and dark.
+ - I wiggle my shoulders, I shake my legs, I walk up and down the stage, I hop around on one foot. But I never bump and grind. Why, that’s vulgar. I’d never do anything vulgar before an audience. My mother would never allow it.
+ - When you get down to the nitty gritty, isn’t it a pity that in this big city not one little bitty man will admit that he could have been a little wrong.
+ - I hope I didn’t bore you too much with my life story.
+ - In my beach shack, we’ll be alone. In my beach shack, I’ll make you feel at home.
+ - I was almost always true to you.
+ - My fans want my shirt. They can have my shirt. They put it on my back.
+ - I wore glasses, no music, and I won – I think it was – fifth place. I got a whipping the same day. My mother whipped me for something. Destroyed my ego completely.
+ - C’mon, let’s get real, real gone.
+ - Blacko-oxy-tonic phosphate, it’s the latest scoop. But that’s alright girls, you can call it goop.
+ - I feel my temperature rising. Help me, I’m flaming, I must be a hundred and nine.
+ - How can you lose something you never had, I tell myself when I’m feeling sad.
+ - Number 47 said to number 3, you’re the cutest jailbird I ever did see.
+ - I’ll be a fool or a wiseman, my darling, you hold the key. Anyway you want me, that’s how I will be.
+ - I did the Ed Sullivan show four times. I did the Steve Allen show. I did the Jackie Gleason show.
+ - If you wanna be loved, baby, you’ve got to love me, too. Oh yeah, cause I an’t for no one side love affair.
+ - The Lord can give, and the Lord can take away. I might be herding sheep next year.
+ - I’ll never make it, it will never happen, because they’re never going to hear me ’cause they’re screaming all the time.
+ - It’s all a big hoax, honey. I never wrote a song in my life. I get one-third of the credit for recording it. It makes me look smarter than I am. I’ve never even had an idea for a song. Just once, mybe.
+ - Some guys fall in love with one girl, I gotta fall for two.
+ - I want to entertain people. That’s my whole life. To my last breath.
+ - Take your troubles to the Chapel, get down on your knees and pray. Your burdens will be lighter, and you’ll surely find the way.
+ - The walls have ears, ears that hear each little sound you make every time you stamp, throw a lamp.
+ - I’ve never written a song in my life. It’s all a big hoax.
+ - In public, I like real conservative clothes, something that’s not too flashy. But onstage, I like ’em as flashy as you can get ’em.
+ - I’m never going to sing another song I don’t believe in. I’m never going to make another picture I don’t believe in.
+ - Folks always look good in their coffins.
+ - Those people in New York are not gonna change me none.
+ - I figure all any kid needs is hope and the feeling he or she belongs.
+ - Little sister, don’t you do what your big sister done.
+ - Look guys, if you’re just going to stare at me, I’m going to bed!
+ - If one can’t give what they have and share then they will always be empty.
+ - I get tired of singing to the guys I beat up in motion pictures.
+ - More than anything else, I want the folks back at home to think right of me.
+ - I’m so lucky to be in the position to give. It’s really a gift to give.
+ - You’re just a natural beehive, filled with honey to the top. Well, I ain’t greedy baby, all I want is all you got.
+ - Everything is so dreamy when you are young. After you grow up it kind of becomes – just real.
+ - I think I have something tonight that’s not quite correct for evening wear. Blue suede shoes.
+ - The next thing I knew, I was out of the service and making movies again. My first picture was called, GI Blues. I thought I was still in the army.
+ - Whatever it is, go back and do it again.
+ - Since the beginning, it was just the same. The only difference, the crowds are bigger now.
+ - I wouldn’t call girls a hobby. It’s a pastime.
+ - Man, that record came out and was real big in Memphis. They started playing it, and it got real big. Don’t know why-the lyrics had no meaning.
+ - There’s no room to Rhumba in a sports car.
+ - That’s why I hate to get started in these jam sessions. I’m always the last one to leave.
+ - The closest I ever came to getting married was just before I started singing. In fact, my first record saved my neck.
+ - My movements, ma’am, are all leg movements. I don’t do nothing with my body.
+ - I’m so nervous. I’ve always been nervous, ever since I was a kid.
+ - If you’re smart, you’ll think twice, when they start to sound off with advice.
+ - There are too many people that depend on me. I’m too obligated. I’m in too far to get out.
+ - I’ve been getting some bad publicity – but you got to expect that.
+ - Just because I managed to do a little something, I don’t want anyone back home to think I got the big head.
+ - When we’re dancing it almost feels the same, I’ve got to stop myself from whispering your name.
+ - I saw three shrimp in the water, two were old and gray. I swam a little closer, and I heard the third one say, good-bye Mama.
+ - From the time I was a kid, I always knew something was going to happen to me. Didn’t know exactly what.
+ - Didja ever get one of them girls who just wants to watch the show?
+ - I don’t think I’m bad for people. If I did think I was bad for people, I would go back to driving a truck, and I really mean this.
+ - I was an overnight sensation.
+ - Singers come and go, but if you’re a good actor, you can last a long time.
+ - Man, I was tame compared to what they do now. Are you kidding? I didn’t do anything but just jiggle.
+ - Man, I really like Vegas.
+ - Later on they send me to Hollywood. To make movies. It was all new to me. I was only 21 years old.
+ - So many kids and adults, too, have gotten just about one of the roughest breaks that can happen to a person. We can help these people.
+ - I’m no hillbilly singer.
+ - Any audience, as a rule, goes for a fast number.
+ - I learned how important it is to entertain people and give them a reason to come and watch you play.
+ - When I started singing, I weighed 153 pounds. I weigh 184 now. I haven’t gotten any taller, but I’m putting on a little more weight.
+ - Too much TV hurts movies.
+ - Money honey, if you want to get along with me.
+ - I’d just like to be treated like a regular customer.
+ - I get tired of playing a guy who gets into a fight, then starts singing to the guy he’s just beat up.
+ - They put me on television. And the whole thing broke loose. It was wild, I tell ya for sure.
+ - The only kind of trouble I’ve ever been in is when I was stealing eggs when I was little. I think I know right from wrong.
+
+218 quotes

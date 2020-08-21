@@ -1,0 +1,45 @@
+ - All Disruption starts with introspection.
+ - Lifelong learning is no longer a luxury but a necessity for employment.
+ - Every threat to the status quo is an opportunity in disguise.
+ - In life, you get what you believe you deserve.
+ - Starting each day with a positive mindset is the most important step of your journey to discovering opportunity.
+ - The best big idea is only going to be as good as its implementation.
+ - A dream with a deadline is a goal.
+ - At the heart of all sales and marketing is the ability to create demand even in the absence of logic.
+ - Disruptors don’t have to discover something new; they just have to discover a practical use for new discoveries.
+ - To be successful, innovation is not just about value creation, but value capture.
+ - Your energy is a valuable resource, distribute it wisely.
+ - You have a choice: pursue your dreams, or be hired by someone else to help them fulfill their dreams.
+ - Those that recognize the inevitability of change stand to benefit the most from it.
+ - Problems are just businesses waiting for the right entrepreneur to unlock the value.
+ - You’ll never know how close you are to victory if you give up.
+ - Corporate planning cycles are a classic example of generals fighting the last war over again instead of preparing for what might lie ahead.
+ - The real challenge is for each of us to determine where we feel we can make the most impact.
+ - The most successful people have the same twenty-four hours in a day that you do.
+ - Would you rather work forty hours a week at a job you hate or eighty hours a week doing work you love?
+ - No obstacle is so big that one person with determination can’t make a difference.
+ - Pivoting is not the end of the disruption process, but the beginning of the next leg of your journey.
+ - If you don’t know where you want to be in five years, how do you ever expect to get there?
+ - Security doesn’t rob ambition; the illusion of security robs ambition.
+ - Accepting that the odds are against you is the same as accepting defeat before you begin.
+ - An average idea enthusiastically embraced will go farther than a genius idea no one gets.
+ - Disruption causes vast sums of money to flow from existing businesses and business models to new entrants.
+ - Success doesn’t teach as many lessons as failure.
+ - You will have more regrets for the things you didn’t try than the ones you tried and didn’t succeed at.
+ - Plan for ways to get more enjoyment into your life and you will get more joy out of it.
+ - There is a difference between failing and failure. Failing is trying something that you learn doesn’t work. Failure is throwing in the towel and giving up.
+ - Self-disruption is akin to undergoing major surgery, but you are the one holding the scalpel.
+ - Most startup failures result from entrepreneurs who are better at making excuses than products.
+ - There are two types of people in this world: those whose look for opportunity and those who make it happen.
+ - Our world’s future is far more malleable and controllable than most people realize.
+ - Whether driven by ambition or circumstance, every career gets disrupted.
+ - The most important tool you have on a resume is language.
+ - Crowdsourcing is the ultimate disruptor of distribution because in a most Zen-like fashion, the content is controlled by everyone and no one at the same time.
+ - A free and open Internet is a despot’s worst enemy.
+ - The power of crowd sourcing always remains with the crowd, not the technological implementation.
+ - The majority of people are not willing to risk what they have built for the opportunity to have something better.
+ - A career is just a longer trip with a whole lot more baggage.
+ - Be the best at what you do or the only one doing it.
+ - It is not incumbent on the world to conform to your vision of change. It is up to you to explain the future in terms that those living in the past and present can follow.
+
+43 quotes

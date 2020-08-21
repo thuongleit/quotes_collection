@@ -1,0 +1,118 @@
+ - I can’t understand why people are frightened of new ideas. I’m frightened of the old ones.
+ - We only hear what we listen for.
+ - The world is no longer a romantic place; some of its people still are however, and therein lies the promise. Don’t let the world win.
+ - The material of music is sound and silence. Integrating these is composing.
+ - I have nothing to say, and I am saying it.
+ - In the dark, all cats are black.
+ - Our business in living is to become fluent with the life we are living, and art can help this.
+ - When we separate music from life we get art.
+ - Get yourself out of whatever cage you find yourself in.
+ - One need not fear for the future of music.
+ - Music is a means of rapid transportation.
+ - Everything you do is music, and everywhere is the best seat.
+ - I certainly had no feeling for harmony, and Schoenberg thought that that would make it impossible for me to write music. He said, ‘You’ll come to a wall you won’t be able to get through.’ So I said, ‘I’ll beat my head against that wall.’
+ - If you develop an ear for sounds that are musical it is like developing an ego. You begin to refuse sounds that are not musical and that way cut yourself off from a good deal of experience.
+ - Theatre takes place all the time – wherever one is – and art simply facilitates persuading one this is the case.
+ - There’s no such thing as silence. Something is always happening that makes a sound.
+ - We carry our homes within us which enables us to fly.
+ - Everyday is a beautiful day, Everything is pleasing.
+ - Wherever we are, what we hear is mostly noise. When we ignore it, it disturbs us. When we listen to it, we find it fascinating.
+ - Where does beauty begin? Where does it end? Where it ends is where the artist begins.
+ - Not one sound fears the silence that extinguishes it. And no silence exists that is not pregnant with sound.
+ - In an utter emptiness anything can take place.
+ - The world is teeming; anything can happen.
+ - Value judgments are destructive to our proper business, which is curiosity and awareness.
+ - To accept whatever comes, regardless of the consequences, is to be unafraid.
+ - You can feel an emotion; just don’t think that it’s so important.
+ - Don’t try to create and analyze at the same time. They’re different processes.
+ - When you start working, everybody is in your studio- the past, your friends, enemies, the art world, and above all, your own ideas- all are there. But as you continue painting, they start leaving, one by one, and you are left completely alone. Then, if you are lucky, even you leave.
+ - In the nature of the use of chance operations is the belief that all answers answer all questions.
+ - Look at everything. Don’t close your eyes to the world around you. Look and become curious and interested in what there is to see.
+ - Let no one imagine that in owning a recording he has the music. The very practice of music is a celebration that we own nothing.
+ - One day when I was studying with Schoenberg, he pointed out the eraser on his pencil and said, ‘This end is more important than the other.’ After twenty years I learned to write directly in ink.
+ - Be happy whenever you can manage it. Enjoy yourself. It’s lighter than you think.
+ - It’s useless to play lullabies for those who cannot sleep.
+ - Composing for the prepared piano is not a criticism of the instrument. I’m only being practical.
+ - A ‘mistake’ is beside the point, for once anything happens it authentically is.
+ - The highest purpose is to have no purpose at all. This puts one in accord with nature, in her manner of operation.
+ - The act of listening is in fact an act of composing.
+ - My favorite piece of music is the one we hear all the time if we are quiet.
+ - If my work is accepted, I must move on to the point where it is not.
+ - We’re breaking all of the rules, even our own rules, and how do we do that? By leaving plenty of room for X quantities.
+ - Our intention is to affirm this life, not to bring order out of chaos, nor to suggest improvements in creation, but simply to wake up to the very life we’re living, which is so excellent once one gets one’s mind and desires out of its way and lets it act of it’s own accord.
+ - College: two hundred people reading the same book. An obvious mistake. Two hundred people can read two hundred books.
+ - I want to change my way of seeing, NOT my way of feeling. I was perfectly happy about my feelings.
+ - The attitude I take is that everyday life is more interesting than forms of celebration, when we become aware of it. That when is when our intentions go down to zero. Then suddenly you notice that the world is magical.
+ - No one can have an idea once he starts really listening.
+ - What I’m proposing, to myself and other people, is what I often call the tourist attitude – that you act as though you’ve never been there before. So that you’re not supposed to know anything about it. If you really get down to brass tacks, we have never been anywhere before.
+ - Until I die there will be sounds. And they will continue following my death. One need not fear about the future of music.
+ - Which is more musical: a truck passing by a factory or a truck passing by a music school?
+ - Art’s purpose is to sober and quiet the mind so that it is in accord with what happens.
+ - So somebody has talent? So what? Dime a dozen. And we’re overpopulated. Actually we have more food than we have people and more art. We’ve gotten to the point of burning food. When will we begin to burn our art?
+ - All great art is a form of complaint.
+ - A meal without mushrooms is like a day without rain.
+ - It is not irritating to be where one is. It is only irritating to think one would like to be somewhere else.
+ - Some people take music too seriously, and some don’t take it seriously enough, others take it just right...
+ - The world, the real is not an object. It is a process.
+ - The emotions – love, mirth, the heroic, wonder, tranquility, fear, anger, sorrow, disgust – are in the audience.
+ - What right do I have to be in the woods, if the woods are not in me.
+ - Good music can act as a guide to good living.
+ - The white paintings came first; my silent piece came later.
+ - Guy Nearing told us it’s a good idea when hunting mushrooms to have a pleasant goal, a waterfall for instance, and, having reached it, to return another way. When, however, we’re obliged to go and come back by the same path, returning we notice mushrooms we hadn’t noticed going out.
+ - We are simple-minded enough to think that if we were saying something we would use words. We are rather doing something. The meaning of what we do is determined by each one who sees and hears it.
+ - We are not committed to this or that. We are committed to the nothing in-between, whether we know it or not.
+ - People who aren’t artists often feel that artists are inspired. But if you work at your art you don’t have time to be inspired.
+ - I am trying to check my habits of seeing, to counter them for the sake of greater freshness. I am trying to be unfamiliar with what I’m doing.
+ - As far as consistency of thought goes, I prefer inconsistency.
+ - Nothing more than nothing can be said.
+ - I remember loving sound before I ever took a music lesson. And so we make our lives by what we love.
+ - Art is sort of an experimental station in which one tries out living.
+ - An error is simply a failure to adjust immediately from a preconception to an actuality.
+ - Every something is an echo of nothing.
+ - We need not destroy the past. It is gone.
+ - Which is more musical, a truck passing by a factory or a truck passing by a music school? Are the people inside the school musical and the ones outside unmusical? What if the ones inside can’t hear very well, would that change my question?
+ - If this word “music” is sacred and reserved for eighteenth and nineteenth century instruments, we can substitute a more meaningful term: organization of sound.
+ - As McLuhan says, everything happens at once.
+ - An artist conscientiously moves in a direction which for some good reason he takes, putting one work in front of the other with the hope he’ll arrive before death overtakes him.
+ - There was a German philosopher who is very well known, his name was Immanuel Kant, and he said there are two things that don’t have to mean anything, one is music and the other is laughter. Don’t have to mean anything that is, in order to give us deep pleasure.
+ - I am trying to be unfamiliar with what I’m doing.
+ - People paying attention to vibratory activity, not in reaction to a fixed ideal performance, but each time attentively to how it happens to be this time, not necessarily two times the same. A music that transports the listener to the moment where he is.
+ - When you make music you are acting as a philosopher. You can either do that consciously or you can do it unconsciously, but you’re doing it.
+ - In that case I will devote my life to beating my head against that wall.
+ - Food, one assumes, provides nourishment; but Americans eat it fully aware that small amounts of poison have been added to improve its appearance and delay its putrefaction.
+ - I never had a hat, never wore one, but recently was given a brown suede duck-hunting hat. The moment I put it on I realized I was starved for a hat. I kept it warm by putting it on my head. I made plans to wear it especially when I was going to do any thinking. Somewhere in Virginia, I lost my hat.
+ - For myself and my own experience now, I don’t really need any music. I have enough to listen to with just the sounds of the environment. I listen to the sounds of 6th avenue.
+ - My favorite music is the music I haven’t yet heard.
+ - I like being moved. I don’t like being pushed.
+ - My favourite music is the music I haven’t yet heard. I don’t hear the music I write: I write in order to hear the music I haven’t yet heard.
+ - It is better to make a piece of music than to perform one, better to perform one than to listen to one, better to listen to one than to misuse it as a means of distraction, entertainment, or acquisition of ‘culture.’
+ - Paper should be edible, nutritious. Inks used for printing or writing should have delicious flavors. Magazines or newspapers read at breakfast should be eaten for lunch. Instead of throwing one’s mail in the waste-basket, it should be saved for the dinner guests.
+ - All I know about method is that when I am not working I sometimes think I know something, but when I am working, it is quite clear I know nothing.
+ - If someone says can’t, that shows you what to do.
+ - The Indians long ago knew that music was going on permanently and that hearing it was like looking out a window at a landscape which didn’t stop when one turned away.
+ - There is poetry as soon as we realize that we possess nothing.
+ - Now that we have everything we need, we discover that there is almost nothing that we have that we want.
+ - Music is edifying, for from time to time it sets the soul in operation.
+ - Each moment presents what happens.
+ - The grand thing about the human mind is that it can turn its own tables and see meaninglessness as ultimate meaning.
+ - Everything I see is something I haven’t memorized.
+ - Why do you not do as I do? Letting go of your thoughts as though they were the cold ashes of a long dead fire?
+ - My work became an exploration of non-intention.
+ - Beware of losing what isn’t in your head.
+ - The responsibility of the artist consists in perfecting his work so that it may become attractively disinteresting.
+ - I needed another basis for musical structure. This I found in sound’s duration parameter, sound’s only parameter which is present even when no sound is intended.
+ - One shouldn’t go to the woods looking for something, but rather to see what is there.
+ - If there are questions then, of course, there are answers, but the final answer makes the questions seem absurd.
+ - Out of the work comes the work.
+ - If you don’t have enough time to accomplish something, consider the work finished once it’s begun.
+ - Ideas are one thing and what happens is another.
+ - Combine nursing homes with nursery schools. Bring very old and very young together: they interest one another.
+ - When I went to the analyst for a kind of preliminary meeting, he said, ‘I’ll be able to fix you so that you’ll write much more music than you do now.’ I said, ‘Good heavens! I already write too much, it seems to me.’ That promise of his put me off.
+ - A finished work is exactly that, requires resurrection.
+ - Whether I make them or not, there are always sounds to be heard and all of them are excellent.
+ - It is not futile to do what we do. We wake up with energy and we do something. And we make, of course, failures and we make mistakes, but we sometimes get glimpses of what we might do next.
+ - There will always be critics eager to fashion opinions for the lazy and incapable.
+ - We are involved in a life that passes understanding and our highest business is our daily life.
+ - Now that things are so simple, there’s so much to do.
+
+116 quotes

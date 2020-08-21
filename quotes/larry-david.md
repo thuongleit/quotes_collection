@@ -1,0 +1,121 @@
+ - A good compromise is when both parties are dissatisfied.
+ - I don’t like talking to people I KNOW, but strangers, I have no problem with.
+ - I find human contact repulsive.
+ - A date is an experience you have with another person that makes you appreciate being alone.
+ - If you tell the truth about how you’re feeling, it becomes funny.
+ - I’m a walking, talking enigma. We’re a dying breed.
+ - When you’re not concerned with succeeding, you can work with complete freedom.
+ - Anyone can be confident with a full head of hair. But a confident bald man – there’s your diamond in the rough.
+ - I got a Swede lawyer?!? She’s gonna get everything!
+ - Women love a self-confident bald man.
+ - I’d rather have the thieves than the neighbors – the thieves don’t impose. Thieves just want your things, neighbors want your time.
+ - I’m trying to elevate small-talk to medium talk.
+ - I need to be on drugs to connect with nature.
+ - Trying on pants is one of the most humiliating things a man can suffer that doesn’t involve a woman.
+ - I’m surprized Hitler didn’t round up the toupee people.
+ - Who do you think has more freedom: the married man in America or the single man in Communist China?
+ - Switzerland is a place where they don’t like to fight, so they get people to do their fighting for them while they ski and eat chocolate.
+ - Do not degrade me in the military uniform I wear for it represents the love I have for my country, and the sacrifices myself and millions of other American soldiers make everyday to protect the freedom we enjoy by living in the United States of America.
+ - I had a wonderful childhood, which is tough because it’s hard to adjust to a miserable adulthood.
+ - I’ve been in therapy. I know enough about myself now to know that I really don’t need to know anymore.
+ - I gave a funny speech at my wife’s birthday party, and I’m thinking, ‘Hey, I’ve still got it.’
+ - Golf and dating don’t mix.
+ - I don’t like to be out of my comfort zone, which is about a half an inch wide.
+ - Most people are completely unaware of their breath. They violate your space, they have no idea that they have halitosis.
+ - Pretty good. Pretttttttty, pretttttttttty, pretttttty good.
+ - Did Bill Clinton actually think that he could get blow jobs from a Jewish woman and there would be no consequences?
+ - Being Larry David on Curb Your Enthusiasm was the best thing to happen to Larry David in life.
+ - Luck always plays a part for everyone, whether they want to admit it or not. I was very lucky, and I know it.
+ - It’s always good to take something that’s happened in your life and make something of it comedically.
+ - I have no sense of well-being. There’s no chance the well will run dry.
+ - Hear the birds? Sometimes I like to pretend that I’m deaf and I try to imagine what it’s like not to be able to hear them. It’s not that bad.
+ - I don’t think anyone really is interested in reading about my emotional state. It’s not even interesting to me.
+ - There’s nothing that reflects me. I’m unreflectable!
+ - I like to be quiet, and let people find me rather than having to shout at them.
+ - I think we’re all good and bad, but good’s not funny. Bad is funny. Suppress the good and let the bad out, and then you can be funny.
+ - Hey, I may loathe myself, but it has nothing to do with the fact that I’m Jewish.
+ - Give a guy a girlfriend and a great job, he doesn’t need therapy.
+ - Actually I walk around with the Emmy wherever I go, but I’m very casual about it.
+ - When I was living in New York and didn’t have a penny to my name, I would walk around the streets and occasionally I would see an alcove or something. And I’d think, that’ll be good, that’ll be a good spot for me when I’m homeless.
+ - My background is degradation and sloth, mostly.
+ - I’m not interested in closure. Some people just have heart attacks and die, right? There’s no closure.
+ - Even though the National Guard and Army Reserve see combat today, it rankles me that people assume it was some kind of waltz in the park back then.
+ - I’m anti-cheese in a salad.
+ - Sometimes you have to wander a bit, and do what you don’t want to in order to figure out what it is you’re supposed to do.
+ - A place to go – that’s what my mother always instilled in me. You need a place to go. And you’re worthless unless you have a place to go.
+ - Weathermen merely forecast rain to keep everyone else off the golf course.
+ - You can’t do anything in life. The social barriers in life are so intense and horrific that every encounter is just fraught with so many problems and dread. Every social situation is a potential nightmare.
+ - Well, after the divorce, I went home and turned all the lights on!
+ - I couldn’t be happier that President Bush has stood up for having served in the National Guard, because I can finally put an end to all those who questioned my motives for enlisting in the Army Reserve at the height of the Vietnam War.
+ - Whenever something good happens to me, it’s usually followed by something terrible.
+ - The only change I can really see is that I don’t have to shop for pants in stores anymore.
+ - I tolerate lactose like I tolerate people.
+ - If I wasn’t a golfer, I would still be miserable – but not as miserable.
+ - I’m surprised sometimes at how some of my actions are misinterpreted.
+ - And eventually as I kept writing it, something emerged that was not quite me but a version of me.
+ - It began to dawn on me that perhaps my country needed me more at home than overseas.
+ - You have to discover when you’re inadequate to be funny and you don’t know you’re inadequate when you’re a kid.
+ - All of a sudden I discovered that I’m allergic to caviar. It was the perfect metaphor for my life. When I was only able to afford bad caviar, I could certainly eat my fill of it.
+ - The best situation is being a single parent. The best part about is that you get time off, too, because the kids are with their mom, so it’s the best of both worlds. There’s a lot to be said for it.
+ - I had a job as a paralegal. I drove a cab.
+ - I still think of that guy I was without a wife or kids, and I still want to entertain that guy. The lonely guy, the frustrated guy, the guy with no money – this is the guy who needs to laugh.
+ - No, I am a crier and if people ever saw me privately they would be shocked at what a bowl of mush I am underneath it all.
+ - I’ve led this empty life for over forty years and now I can pass that heritage on and ensure that the misery will continue for at least one more generation.
+ - Once I know people know who I am, it gives me a lot of licence and freedom to behave in ways I wouldn’t normally.
+ - Perhaps I have a wider range than I’d given myself credit for.
+ - I was planning on my future as a homeless person. I had a really good spot picked out.
+ - I’m not a person who embraces challenges. I run from challenges. I break world records running from challenges.
+ - People don’t yell nasty things at actors – they let them continue.
+ - I don’t like people cleaning my room.
+ - It’s not every day that you get to be affectionate around something, it just doesn’t happen that often.
+ - I tend to stay with the panic. I embrace the panic.
+ - Even back then, I exuded self-confidence, and that drives women crazy.
+ - Every relationship is just so tenuous and precarious.
+ - Most practical jokes, I’ll feel too bad for the other person so I’ll stop just before the punchline.
+ - Making a woman laugh. What is that about? And the prettier the woman, the more satisfaction I get. It doesn’t make any sense, but I’m being honest.
+ - I’m a jerk, that’s who I am. I’m like everybody else.
+ - The lunch in a normal American restaurant is very problematic for me. I don’t like to have hot food for lunch.
+ - I think golf is literally an addiction. I’m surprised there’s not Golf Anonymous.
+ - I defy anyone to produce any evidence that the word ‘happy’ has ever crossed my lips. I am not now, nor have I ever been, ‘happy.’
+ - Hitler really ruined that mustache for everybody. It’s really an interesting mustache, but now, no one can wear it.
+ - Zero, zero belief in myself. And it’s changed somewhat, but there’s still a lot of that in me.
+ - I’m really only happy when I’m on stage. I just feed off the energy of the audience. That’s what I’m all about – people and laughter.
+ - I learned the first night that IHOP’s not the place to order fish.
+ - There’s a sense of spontaneity, and no emphasis on jokes in this show. People generally talk the way they talk in life if you were in this particular situation.
+ - I’m Larry David. I happen to enjoy wearing women’s panties.
+ - I wanted to make a living, but I really was not interested in money at all. I was interested in being a great comedian.
+ - I’d like to start a family, but you have to have a date first.
+ - Well, as you know, I’m really only happy when I’m on stage.
+ - I guess I still feel that I’m a comedian; if I had to pick one thing that I feel like I could do, it would be that. That doesn’t mean that I like it, but I feel that’s what I am.
+ - My life has changed. I’m not walking around any more wishing I wasn’t me, which was the case at one time.
+ - Woody Allen likes to do a lot of master shots. He likes to get the whole thing in one take, and so you could be going along doing a scene, and then the next to last line, all of a sudden, you stumble, and you have to go back to first base.
+ - I just feed off the energy of the audience.
+ - It has to do – I think – with growing up in an apartment, with my aunt and my cousins right next door to me, with the door open, with neighbors walking in and out, with people yelling at each other all the time.
+ - Sure, being a reservist wasn’t as glamorous, but I was the one who had to look at myself in the mirror.
+ - Anytime I’m involved with anything that’s well-received, it’s a surprise to me.
+ - I once stopped to pick up a girl, and then there was this creepy-looking guy standing behind the bushes waiting to jump out and get in, too. So I just quickly drove away.
+ - I think Michael Moore is a hero.
+ - In those days, reserve duty lasted for six years, which, I might add, was three times as long as service in the regular army, although to be perfectly honest, I was unable to fulfill my entire obligation because I was taking acting classes and they said I could skip my last year.
+ - I think that for the most part, when I started doing comedy, it had become very commercialized.
+ - If I was going onstage, of course I would talk about it. How could I not?
+ - Anything that’s for free, people will take. They don’t discriminate.
+ - Millions of people are married. I’ve never picked up a paper and seen a headline that says, Man Gets Married!
+ - I was very fortunate to hook up with Jerry in the first place. The network was already committed to doing something with him, so I skipped a couple of hundred steps right there.
+ - I couldn’t walk up to a woman at a bar and say hello.
+ - If I tried to flirt with a woman and she didn’t know who I was, she would run away.
+ - I just wanted laughs – that’s really what I was after.
+ - I’ve always loathed rich people, so I’ve become who I’ve loathed, which makes it doubly difficult, if you can follow me.
+ - I don’t write shows with dialogue where actors have to memorize dialogue. I write the scenes where we know everything that’s going to happen. There’s an outline of about seven or eight pages, and then we improvise it.
+ - I don’t like to analyze my music too much. It just comes welling up out of the depths of my soul.
+ - I’m not quite as anonymous as I was.
+ - There are times when I’m driving home after a day’s shooting, thinking to myself, That scene would’ve been so much better if I had written it out.
+ - Let’s not forget, I got divorced.
+ - Obviously comedic styles do change.
+ - My defensiveness in life really helps me as a driver.
+ - I never thought for a second that anything I ever did was going to make someone cringe. That never occurred to me.
+ - Until I started doing standup, there were some very bleak days.
+ - I tell people that I’ve now done one decent thing in my life. Albeit inadvertently.
+ - You write about what you know.
+ - It’s that I wasn’t suited to do the kind of comedy that these people were coming to hear – mainstream comedy.
+
+119 quotes

@@ -1,0 +1,30 @@
+ - I love my body as it is. People in the industry have been telling me to lose weight for years but I like the way I look. I give credit to my mom for helping me feel good about my appearance – for making sure I never felt embarrassed about my body, because she was never worried about looking too big.
+ - If Mad Men had taken place in the ’90s it would have been just as believable. But the fact is that was the perfect storm and with the fashion and the sets and the writing and the actors it just all made sense and it just was one of those things that you can’t explain.
+ - I have a problem keeping my mouth shut. I usually speak my mind. I’m trying to learn my lesson.
+ - One of my favourite messages about The Pirate Fairy is that the story is about appreciating your own talents.
+ - If my legs are showing, the makeup artist adds a tiny amount of foundation to body lotion and rubs it in.
+ - As for the herbal cigarettes, for the most part I don’t smoke as much as the guys do. I’m usually just strutting around a bit more so I don’t actually have to be inhaling it. I’m lucky because I do have scenes where the cigarettes work beautifully to punctuate certain things I’m saying.
+ - I like to look for gifts throughout the year. If I find the perfect item for someone, I put it in my “gift closet” and keep it for the next holiday. But I often get too excited and just give it to them before!
+ - I was a goth girl in high school. Perhaps the powdered white face and the black lipstick were not the most attractive. I felt fabulous at the time but looking back, uh, probably not the best idea.
+ - I thought, well, you might see curves there, but that’s just a bone – so even if I lose weight that’s not going to change anything. That’s how I look. That’s my shape. Do the math.
+ - I dyed my hair about 42 different colours, and kids can be pretty judgmental about people who are different. But instead of breaking down and conforming, I stood firm. That is also probably why I was unhappy.
+ - I adore the incredibly tight clothing! My own wardobe’s changed – I’ve streamlined a little bit and definitely learnt from Joan’s sleekiness and tailoring.
+ - I admire so many women, it’s hard to choose, but I’ve always loved Marilyn Monroe, Brigitte Bardot, and Mia Farrow.
+ - Sexiness is about being an individual and having conviction about what that is.
+ - I’ve been telling everyone for weeks now about how I get to play Lois Lane. It’s a big deal. There are a few characters throughout your life which everyone knows and this is one of them. I can’t wait.
+ - Some of the things people have said about me, well, they’re unbelievable.
+ - A woman is beautiful when she stands out as an individual – it’s a woman who has her own style and the confidence to pull it off. Half the women on the streets in New York City achieve this. I get so inspired every time I’m there.
+ - I think Joan’s advice would be: always know more than anyone else, always be discreet as possible. And never cry at work.
+ - I was the nerdy one. I always played those kind of characters until Mad Men.
+ - I have to admit, I do loooove eggnog.
+ - I definitely am drawn to deeper reds and wine colors for lips and even cheeks during the holiday.
+ - Cats appear to have a wonderful ability to weed out everything they don’t need to know, while honing in on what is important to them.
+ - It just seemed so odd as people had never commented on my body before. Every woman obsesses over her figure, but I was happy, I felt sexy, I never thought about it. I know this sounds naive, but I honestly never expected this kind of attention.
+ - I’m open to trying new things. That’s why I think Birchbox is so awesome! It’s something to look forward to and introduces me to something maybe I wouldn’t have picked out, but fall in love with.
+ - Any woman who is currently with a man is with him partly because she loves the way he smells. And if we haven’t smelled you for a day or two and then we suddenly are within inches of you, we swoon. We get light-headed. It’s intoxicating. It’s heady.
+ - I auditioned for so many things – cops, lawyers, doctors and things but they were like, “She just seems too sweet. I don’t see that hard side of her.”
+ - I’m just looking for material that excites me more than any specific genre. It just needs to be good.
+ - I’ve always been someone who really watches other people, human behavior. To watch it and be able to express it through your version has always been really exciting to me.
+ - I’m not quite at the point where I feel the need to wear disguises in public.
+
+28 quotes

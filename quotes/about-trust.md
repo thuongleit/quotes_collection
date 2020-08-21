@@ -1,0 +1,46 @@
+ - Trust your instincts. Intuition doesn’t lie. ~~Oprah Winfrey
+ - Trust is the glue of life. It’s the most essential ingredient in effective communication. It’s the foundational principle that holds all relationships. ~~Stephen R. Covey
+ - Trust yourself, you know more than you think you do. ~~Benjamin Spock
+ - The best way to find out if you can trust somebody is to trust them. ~~Ernest Hemingway
+ - If you’re absent during my struggle, don’t expect to be present during my success. ~~Will Smith
+ - Love all, trust a few, do wrong to none. ~~William Shakespeare
+ - Don’t confuse my personality with my attitude. My personality is who I am, and my attitude depends on who you are. ~~Frank Ocean
+ - If you realized how powerful your thoughts are, you would never think a negative thought. ~~Peace Pilgrim
+ - Jump, and you will find out how to unfold your wings as you fall. ~~Ray Bradbury
+ - Love meant jumping off a cliff and trusting that a certain person would be there to catch you at the bottom. ~~Jodi Picoult
+ - The way you speak to others can offer them joy, happiness, self-confidence, hope, trust, and enlightenment. Mindful speaking is a deep practice. ~~Nhat Hanh
+ - As soon as you trust yourself, you will know how to live. ~~Johann Wolfgang von Goethe
+ - Anyone who doesn’t take truth seriously in small matters cannot be trusted in large ones either. ~~Albert Einstein
+ - It is impossible to go through life without trust: that is to be imprisoned in the worst cell of all, oneself. ~~Graham Greene
+ - A lie can travel half way around the world while the truth is putting on its shoes. ~~Charles H. Spurgeon
+ - Trust in dreams, for in them is hidden the gate to eternity. ~~Khalil Gibran
+ - I’m not upset that you lied to me, I’m upset that from now on I can’t believe you. ~~Friedrich Nietzsche
+ - Again, you can’t connect the dots looking forward; you can only connect them looking backwards. So you have to trust that the dots will somehow connect in your future. You have to trust in something – your gut, destiny, life, karma, whatever. This approach has never let me down, and it has made all the difference in my life. ~~Steve Jobs
+ - Where large sums of money are concerned, it is advisable to trust nobody. ~~Agatha Christie
+ - The difference between a democracy and a dictatorship is that in a democracy you vote first and take orders later; in a dictatorship you don’t have to waste your time voting. ~~Charles Bukowski
+ - Wise men put their trust in ideas and not in circumstances. ~~Ralph Waldo Emerson
+ - Trust is the first step to love. ~~Munshi Premchand
+ - Responsibilities are given to him on whom trust rests. Responsibility is always a sign of trust. ~~James Cash Penney
+ - Trust only movement. Life happens at the level of events, not of words. Trust movement. ~~Alfred Adler
+ - Trust that little voice in your head that says ‘Wouldn’t it be interesting if...’; And then do it. ~~Duane Michals
+ - A blessed thing it is for any man or woman to have a friend, one human soul whom we can trust utterly, who knows the best and worst of us, and who loves us in spite of all our faults. ~~Charles Kingsley
+ - Self-trust is the first secret of success. ~~Ralph Waldo Emerson
+ - Although the life of a person is in a land full of thorns and weeds, there is always a space in which the good seed can grow. You have to trust God. ~~Pope Francis
+ - Never be afraid to trust an unknown future to a known God. ~~Corrie ten Boom
+ - One of the common failings among honorable people is a failure to appreciate how thoroughly dishonorable some other people can be, and how dangerous it is to trust them. ~~Thomas Sowell
+ - For there to be betrayal, there would have to have been trust first. ~~Suzanne Collins
+ - To be trusted is a greater compliment than being loved. ~~George MacDonald
+ - Truth, like gold, is to be obtained not by its growth, but by washing away from it all that is not gold. ~~Leo Tolstoy
+ - It is more shameful to distrust our friends than to be deceived by them. ~~Confucius
+ - The trust of the innocent is the liar’s most useful tool. ~~Stephen King
+ - It is only by yielding to God that we can begin to realize His will for us. And if we truly trust God, why not yield to His loving omniscience? After all, He knows us and our possibilities much better than do we. ~~Neal A. Maxwell
+ - Distrust all in whom the impulse to punish is powerful. ~~Friedrich Nietzsche
+ - All I have seen teaches me to trust the creator for all I have not seen. ~~Ralph Waldo Emerson
+ - Me, I’m dishonest, and you can always trust a dishonest man to be dishonest. Honestly, it’s the honest ones you have to watch out for. ~~Johnny Depp
+ - A promise made is a debt unpaid. ~~Robert W. Service
+ - You cannot do everything at once, so find people you trust to help you. And don't be afraid to say no. ~~Jane Seymour
+ - The inability to open up to hope is what blocks trust, and blocked trust is the reason for blighted dreams. ~~Elizabeth Gilbert
+ - Trust your hunches. They’re usually based on facts filed away just below the conscious level. ~~Joyce Brothers
+ - It is better to suffer wrong than to do it, and happier to be sometimes cheated than not to trust. ~~Samuel Johnson
+
+44 quotes

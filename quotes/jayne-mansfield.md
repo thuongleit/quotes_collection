@@ -1,0 +1,39 @@
+ - I will never be satisfied. Life is one constant search for the betterment for me.
+ - A 41-inch bust and a lot of perseverance will get you more than a cup of coffee – a lot more.
+ - If you want the best things in life you have to earn them for yourself.
+ - I want to earn my own way, I like having nice things but I’ve never accepted anything I haven’t earned.
+ - My father was the only man I ever knew who really loved me unselfishly, who never used me for personal gain.
+ - I do know that God created us equal and we’re not living up to it.
+ - It is the most wonderful feeling in the world, knowing you are loved and wanted.
+ - Stars were made to suffer, and I am a star.
+ - If you’re going to do something wrong, do it big, because the punishment is the same either way.
+ - Men are those creatures with two legs and eight hands.
+ - We live to love you more each day.
+ - Women, by nature, want to be dominated.
+ - War is a foolish, childish, animalistic, unthinking, unintelligent way of trying to accomplish a purpose.
+ - I like being a pin-up girl. There’s nothing wrong with it.
+ - Every star knows you step on some toes to get where you’re going – and some more after you get there. Nobody means to hurt anybody else, it just happens. You always keep saying in the back of your mind that one day you will be able to right all the wrongs. That someday almost never comes.
+ - My earliest memories are the best. I always try to remember the good times when Daddy was alive.
+ - I’ll have to have a palace, of course. I may not be a princess, but I am a movie queen, and every queen should have a palace.
+ - A woman should be pink and cuddly for a man.
+ - You gotta have a body.
+ - Once you were a starlet. Then you’re a star. Can you be a starlet again?
+ - I’ve been identified with pink throughout my career, but I’m not as crazy about it as I’ve led people to believe. My favorite colors are actually neutrals – black and white – but then who thinks of a movie queen in black and white? Everything has to be in living color.
+ - You know which title I like best? I like to be called mother.
+ - Cary Grant was one of the most marvelous men I’ve ever met.
+ - I guess a lot of people think that a girl who shows her bosom and wears tight dresses can’t be close to God. God has always been close to me. Only He knew what was in my heart.
+ - We take our children everywhere we go. I don’t believe in having them and then leaving them to someone else to bring up.
+ - A lot of happiness can be brought to the mentally distraught by a little understanding.
+ - I don’t want to get involved in the racial situation at the expense of losing fans. I wouldn’t say anything too strong but I do know that God created us equal and we’re not living up to it.
+ - Jayne Mansfield is making a career of being a girl.
+ - We eat a lot of lean meat and fresh vegetables.
+ - Most girls don’t know what to do with what they’ve got.
+ - When I’m 100 I’ll still be doing pin-ups.
+ - I hope that I have given happiness to others. I hope I have given children to the world, and that I have made some kind of a mark for myself here.
+ - No one wants to see or read about a dull subject. I don’t consider myself a dull subject.
+ - To establish yourself as an actress, you have to become well known. A girl just starting out, I would tell her to concentrate on acting, but she doesn’t have to go around wearing blankets.
+ - To function as an actress, I have to be in love. I have to have that incentive to work.
+ - Carrying a baby is the most rewarding experience a woman can enjoy.
+ - I don’t particularly enjoy publicity, it seems to just follow me around.
+
+37 quotes

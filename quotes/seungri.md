@@ -1,0 +1,36 @@
+ - Don’t believe in success. Rather than that, believe in the amount of your effort and passion.
+ - Dark circles are my charisma though.
+ - DBSK are a very idol group that everyone adores.
+ - Challenges aren’t frightening, defeats aren’t terrifying either. A principle that I now insist and persist on is the understanding that you can fulfill your dreams when you work hard and don’t give up.
+ - If people tell me that i can’t do something, i will want to do it.
+ - I have lots of desires – good body, nice skin, cute, beautiful, knows how to cook, concentrates on her work, a girl that’s worth the respect.
+ - Once made a mistake, it won’t happen again.
+ - Big Bang is the group I want to be with till I die. I want us to be five members. Forever.
+ - I used to be very ambitious. But reality taught me that ambition won’t get you everything you want. You need more than just passion and hope. It’s important to do what I’m good at and suits me.
+ - I’m not the type of person to act one way in front of the camera and another when it’s off. What you see is what you get.
+ - Japanese movie “Be With You” served as inspiration for “Love Box.” I couldn’t fill up the album with just my experiences.
+ - When asked, “What do you think love is?” a lot of people speak of things that are painful or lingering. I wanted to talk about various sides to love. Things such as the excitement, happiness, parting, pain, regret regarding love.
+ - I wanna try being a waiter at restaurant or work to introduce Korea to other people!
+ - I wanted to emphasize the fact that I’d matured. I wanted to break away from the image of being the youngest member of Big Bang, as well as the image I gave off on variety shows.
+ - I tried singing in a deeper voice by lowering my voice that used to be more delicate.
+ - Chopsticks box! I didn’t know before and put them on the table and my Japan friends scolded me.
+ - When I do something wrong, members will think it’s because I’m the maknae and things will be ok.
+ - American pop group N’SYNC’s. I listened to it endlessly in my dad’s car. This also made me wanna be a singer.
+ - G-Dragon’s music is like sushi. It’s sophisticated and has different flavors. His music also changes depending on how much he cooks it.
+ - I watched and learned about music as a member of Big Bang. Of course it’s important to show my charms as an artist by showing my abilities but that’s what our solo activities are for.
+ - I wanted the song to contain various meanings, and what I wanted in particular was to appeal to the audience with my charms as a man.
+ - Nobody says anything to me now when it comes to Japanese. They actually ask me things. I now have power!
+ - I’d like to become better at writing music by continuing to study it.
+ - I’ve bought DBSK’s CD and every time I listen to their songs I feel very good.
+ - All the songwriters that I worked with said they’d like to work with me again. Such things serve as much inspiration for me. I regard myself a melody maker so it made me happy to be recognized for my work.
+ - I put in the sounds of instruments such as the guitar and piano, which everybody hears often, and tried to go with melodies that would sound familiar. Rather than trying to do music that I want to do, I focused on doing music that I want my fans to hear.
+ - Reality is that even if you come out with a really good song, all will go to waste without good promotion.
+ - I thought I could get everyone’s attention by coming up with something that’s provocative.
+ - I’d like to do music in the same way – in a witty way. People think of YG artists as rarely appearing on TV but I’d like to make Big Bang fans happy through various mediums.
+ - I was an actor in Japan and I’m a regular on about three shows. I’m grateful for all of it. My personal activities like that help Big Bang as a whole as well.
+ - For me, how the person with me feels is more important than how I feel. I like making people around me feel happy.
+ - I like being cheerful. Isn’t it nice to be able to have fun and laugh while doing interviews?
+ - I’m the only member of the team that seeks to do pop music. I want to do music that anyone can like and enjoy.
+ - Nobody in Big Bang receives vocal lessons anymore. We’re impossible to teach because we already have very distinctive colors.
+
+34 quotes

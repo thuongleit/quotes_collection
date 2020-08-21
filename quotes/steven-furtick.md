@@ -1,0 +1,87 @@
+ - The reason we struggle with insecurity is because we compare our behind-the-scenes with everyone else’s highlight reel.
+ - Obedience is your responsibility, the outcome is God’s!
+ - If you want to change the direction of your life, change the declaration of your lips.
+ - Love is not words, it’s actions, and love isn’t feelings, it’s a decision.
+ - You can’t fulfill your calling in your comfort zone!
+ - When God demands more of you, it’s because He sees more IN you.
+ - Being brave doesn’t mean we have no fear – it means we refuse to be overcome by it.
+ - Extraordinary moves of God begin with ordinary acts of obedience.
+ - Failure isn’t final until you quit!!
+ - Prayer is the arena where our faith meets God’s abilities.
+ - The voice you believe will determine the future you experience.
+ - Great moves of God are usually preceded by simple acts of obedience.
+ - You can’t make God move in your life, but you can make room for God to move in your life.
+ - Lots of times, our main problem isn’t our problem. Our biggest problem is our perspective on our problem.
+ - Today’s excuses are tomorrow’s regrets dressed in disguise.
+ - Be governed by your calling, not your circumstance.
+ - God will arrange every experience in your life to serve His purpose.
+ - God cannot bless who you pretend to be.
+ - If we have the audacity to ask, God has the ability to perform.
+ - The faith to step out is worthless without the faithfulness to stick it out.
+ - I can’t expect God’s blessing on my work unless I do it God’s way.
+ - The minute I start being afraid of what people might say is the minute I become useless to God.
+ - Enjoy the journey, because the destination is a mirage.
+ - If the size of your vision for your life isn’t intimidating to you, there’s a good chance it’s insulting to God.
+ - It is the experience of love that enables us to change.
+ - The death of contentment is comparison.
+ - When you know the builder, you can have complete confidence in the quality of his work.
+ - If God always met our expectations, He’d never be able to exceed them.
+ - My joy is not determined by what happens to me, but what Christ is doing in me and through me.
+ - Gratitude begins where my sense of entitlement ends.
+ - Stop waiting for what you want, and start working what you have. This can turn your greatest frustration into your greatest potential innovation. If you’ll do your part, God will begin to do what only He can do: He’ll make your box bigger.
+ - Many people never reach greater because they don’t leave good enough behind.
+ - Audacious faith is not passive. Neither is audacious prayer. Every aspiration you have in prayer needs an accompanying action. Otherwise you’re not really praying. You’re just pontificating. You do the natural. Trust God for the super.
+ - Accomplishing the impossible is all about seeing the invisible.
+ - Most of us are so focused on what we don’t have that we’re blinded to what we do have.
+ - What matters most is not what I think I am or am not. What matters is what my Father sees in me and what He says about me.
+ - Winning the war of words inside your soul means learning to defy your inner critic.
+ - The standard God has for you has nothing to do with approval, and everything to do with purpose.
+ - Don’t be ashamed to celebrate victories that may seem small to others. Only you and God know what they really cost.
+ - When your perspective is preloaded with the Word of God, lies lose their power over your life.
+ - You must follow Jesus for yourself, but you can’t follow Him by yourself.
+ - Seize God’s vision. Activate your faith. Make your move.
+ - God guarantees that His Word will not return void. He doesn’t guarantee that the return will be immediate. Keep sowing!
+ - True ministry isn’t just ‘cut and paste,’ it has to be birthed from the inside out.
+ - Stop waiting for what you want, and start working what you’ve got. Your greatest limitation is God’s greatest opportunity.
+ - The only thing harder than waiting on God, is wishing that you had!
+ - People who walk in audacious faith don’t stop and pray. Audacious faith teaches us to push and pray.
+ - Every heart has an atmosphere. What is the atmosphere of your heart? Nothing good develops in an atmosphere of anxiety.
+ - Nothing gets stronger without resistance.
+ - Etch your vision in stone-but sketch your strategy in pencil.
+ - Audacious faith is the raw material that authentic Christianity is made of. It’s the stuff that triggers ordinarily level-headed people like you and me to start living with unusual boldness.
+ - I have nothing to prove, because I am already approved.
+ - The difference between a vision and a daydream is the audacity to act.
+ - You can’t be grateful for something you feel entitled to.
+ - And even when you can’t get seem to get your act together, your identity is secure and completely intact. Because in Christ, who you are matters infinitely more than anything you do or cannot do.
+ - If your problem is too big for you, it’s just the right size for God.
+ - Opposition doesn’t prevent the presence of God, it provides an opportunity to prove the presence of God.
+ - Every second you spend wishing God would take away a struggle is a forfeited opportunity to overcome.
+ - Jesus will always move away from religious drama and toward the needs of people who are hurting. Jesus will always go out of his way to find and minister to people who others will go out of their way to avoid. I love him for that.
+ - You do the natural. Trust God for the super.
+ - God gives the exact experiences he wants them to have in order to shape the specific destiny he designed for them.
+ - I want you to live in the middle of a move of God.
+ - You cannot endure what you never enjoy!
+ - The same power that stopped the sun and raised Christ from the grave lives in every believer!
+ - We thank Him for everything before we ask Him for anything!
+ - The goal of faith isn’t to take away your fears but to leverage those fears to create bolder belief. Faith leads you past your fears and reassures you of God’s presence. And after a while, you begin to trust that God is going to lift you above the waves this time just like he did last time.
+ - If your not daring to believe God for the impossible, your sleeping through some of the best parts of your Christian life.
+ - When it comes to our integrity: one moment in a dark place can cast a shadow for a lifetime.
+ - I’m not raising my kids to survive the world. I’m raising them to change it.
+ - Most of the time, it’s not until we embrace our limitations that God can start to use us beyond our limitations.
+ - In Christ, who you are matters infinitely more than anything you do or cannot do.
+ - True creativity is fresh, but not always original.
+ - Most believers aren’t in imminent danger of ruining their lives. They’re facing a danger that’s far greater: wasting them.
+ - It’s hard to differentiate between a vision and a delusion – both cause you to see things that no one else sees.
+ - Would have. Could have. Should have. This is the language of condemnation underscored by the passivity of regret. It’s a dead language. The thing is, you can’t un-sin. You can only repent.
+ - Accepting God’s acceptance of me doesn’t mean I’m going to stop trying. It means I’m going to stop trying out. And I am intentionally redirecting my obsession.
+ - Before you were born – before any of your defects were apparent to you – they were absolutely apparent to God. That didn’t stop Him from calling your name and setting you apart. He placed you on the earth at a certain time for a pre-decided purpose.
+ - God sets boundaries before He gives blessing.
+ - Did you know it’s possible to have the right passion, but have the wrong expression of the right passion?
+ - Audacity isn’t the absence of uncertainty and ambiguity. Audacity is believing that God’s promise is bigger than my ‘perhaps’
+ - I choose to believe that the same God who intervened to bring his Son back to life intervened on this day in history to help his people.
+ - You may be living under the illusion that when God ignites great things in your life, He’ll announce it with a big bang. He might. It’s more likely that He won’t. So stop waiting around for the big bang. Pay attention to the subtle clues and the still, small voice. God lives in that place too.
+ - Living your problems and loving them like locked rooms is much different from denying them or capitulating to them. It is believing that God is with you in the imperfect, even disappointing circumstances of your life. It is saying to Him with faith in your heart.
+ - His Spirit speaks with promptings that are not audible – often they are much louder than that – always in perfect harmony with the Scriptures and always resounding with perfect wisdom.
+ - You have a personal birthright to believe in a God-given mission for your life.
+
+85 quotes

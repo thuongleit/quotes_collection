@@ -1,0 +1,95 @@
+ - Great things come out of being hungry and cold. Once you’re pampered, you get lazy.
+ - You can’t make everyone happy right away, you can’t figure out what people want you to do, you just have to do what you want to do and hope it works out.
+ - When you get older, you kind of learn when something is done, you just walk away. Sometimes people just want to keep fixing things. But you know it’s kind of just like your gut that tells you, “You’re done, walk away” because you can always keep fixing it.
+ - I’ve always loved Alice Cooper.
+ - When you can program your own life, you’re just going to program what you already like. Because of that, people’s taste becomes much more narrow-minded.
+ - I’m not extremely political. I think everything should be layed out and you can make your own conclusions. As soon as I feel I’m being taught something or preached something, I just glaze over it and I don’t want to hear it.
+ - Every cool riff has already been written by Black Sabbath. You’re either playing it faster or slower or backwards, but they wrote it first.
+ - Sometimes I feel like people don’t even know how to react in some situations because of online culture. Since many things are online, you might not react to something that is happening live.
+ - Who is this irresistible creature who has an insatiable love for the dead?
+ - I’m sick of remakes, how about something different. That’s the thing – people always come to me and are like ‘what do you want to remake, we know we can get that greenlight, what do you want to make?’ I don’t want to remake a g-d damn focking think.
+ - The art of moviemaking seems to get thrown away. The cinematography is gone, and the look of everything becomes of little importance. You lose the memorable images; everything looks like it’s been shot at night with a security camera.
+ - Once you feel like you’re being dictated by other people’s expectations, it usually backfires.
+ - Dreaming be damned, this is control. Raping your soul, devil’s hole.
+ - I think probably the scariest thing, as weird as it sounds, was ‘The Wizard of Oz’ and the flying monkeys with the witch. I remember seeing that – it still seems freaky.
+ - No matter how successful the remake is, it seems to me it’s forgotten quickly after and it’s the original that still lives on.
+ - I like being organized and super particular.
+ - I always liked doing all sorts of different things. As a kid growing up, I was always drawing and painting – always doing art. But I also loved movies and music, so as I started doing everything, I liked every aspect. It’s not really that I am a control freak; it’s just that is what I love.
+ - I try to stay friends with everybody because you might go back and work with somebody who you had a horrible experience with and it could be great the next time. You never know which way it’s going to go, never say never.
+ - I wanted it to be like a high quality, drive-in movie.
+ - I could care less what people think.
+ - It’s lifestyle music. It’s not like some secretary who likes some pop song, but can’t name who the band is; whereas a heavy metal fan is into every aspect of it. We’ll see if rap holds up to that. Run-DMC seemed to be the Led Zeppelin of rap.
+ - I guess I get enough real life, in real life, so that’s why I like things that are more extreme.
+ - When I came off the Halloween movies, they were very stressful movies to make. That had been four very stressful years. I’m happy with how they turned out, but getting the end results took so much fighting with people and so much craziness, that at the end of it I was so burnt out.
+ - If there is one thing that, as a director, you don’t want to be a part of, it’s a group. It’s the same thing with music. I don’t want to be a part of a scene. Just leave me alone. It’s just my nature, and it’s nothing against the people that are in that group, but I just like to be left alone.
+ - Short answers seem like you don’t care even if you are trying to answer. I get the same flack for my short texting.
+ - I don’t believe in fate, because I’m not spiritual, but things do seem to work out.
+ - I think it is good escapist entertainment even though it’s bad.
+ - The funny thing is, I’m so used to not caring what anyone says, good or bad, that unfortunately even when people say good things I wish it made me feel good, but it doesn’t.
+ - The thing that I see disappearing is just the love of old movies among kids. Everything’s accessible, so you can get it, but when everything’s accessible, that means you have to access it. And if you’re not interested, you don’t.
+ - The pirating thing is bad. The people it hurts the most are the ones you least think it hurts. It’s not the big Britney Spears albums that are being pirated; it’s the indie bands that don’t have two cents to their name.
+ - I don’t like the fact that people are supposed to think horror movies have a way things should go. I always try to do the exact opposite of what people expect and want.
+ - I’m not a big fan of the thought that you can become a star by winning a contest. I’m sort of old-fashioned. I think people need to get out there and they need to work and they need to do their music because they love it. If they become successful, then great, and if they are not, whatever.
+ - Just getting movies made is difficult because it takes a lot of money; I mean, it costs more money to make one movie than most bands will spend on every single record of their entire career; it’s a huge undertaking.
+ - Every time I make a movie I have too many characters and too many locations.
+ - I don’t want to just make horror movies; I don’t want to just make any type of movie – I don’t just like horror movies, I love movies.
+ - When you lock a movie’s release date and then move it two months, it’s just not good. It’s good for everything but the cast, crew, and people who are creatively trying to make a film.
+ - When you have too many people and you’re trying to satisfy everybody’s input, you usually end up with something so incredibly generic that it has no point of view.
+ - I’m never aiming to make a movie like someone else’s movie, but in order to describe a movie to someone else who hasn’t seen it, you usually have to reference things they have seen.
+ - There are always tons of names on a movie of people that didn’t actually do anything on that film. I feel bad for the people that busted their ass because they get the same credit as someone who did nothing. It’s kind of a weird thing.
+ - When I watch a movie, I don’t make a sound or move. The more I’m into the movie, the more bored I look.
+ - I think if you’re going to remake a film it should be something that was a good idea, but wasn’t executed well. There isn’t anything I would like to remake. I have too many of my own ideas I want to make.
+ - Every time I start the next movie, it’s as exciting as the first time.
+ - Sometimes things just aren’t of their time, and they take a minute to catch on, or they find an audience later. Sometimes bizarre little films are the ones that everyone remembers later. With most big major blockbusters, people will have already forgotten about it two weeks after it came out.
+ - There’s always the trick with anything what’s a remake. Like how much do you want to make that is brand new and how much to you want to keep that is original?
+ - I’m psychotically involved in every tiny little aspect. That’s just the way I’ve been about everything my whole life.
+ - Things like that become a blur – shot at some soundstage, somewhere – that’s as much as I can remember.
+ - But I think bands that rolled in with a big attitude, like they were some big deal, I just found that very strange.
+ - I love all kinds of movies. I’d especially like to make some, you know, violent crime drama.
+ - I understand why some kid in his bedroom in Wisconsin thinks downloading songs couldn’t hurt anyone. True fans will buy the CD or go see the movie after downloading, but to say it doesn’t affect anyone – come on.
+ - A lot of times the best trailers are for complete dogshit movies. It’s a shame that people are beyond quick to judge things these days. Lots of great stuff gets lost that way.
+ - In the US everybody is about what’s new and what’s next and they don’t really build a real loyalty as much as in Europe – if you were ever good and they liked you, they will treat it with the respect that it still matters.
+ - Growing up as a kid, there were so many people that I disliked, I daydreamed about hurting them. Hell just seemed like a good place for all of them to go. Unfortunately, I don’t believe it exists.
+ - One of the main things when you get notes from a studio is they don’t want anyone to be confused ever, everything has got to be so obvious at all times unless it’s a twist ending.
+ - I really just do what I like. I don’t understand what the general public likes sometimes.
+ - Sometimes I’ll go out into the crowd and keep singing, but I’ll get maybe seven rows out and I’m out of synch, I’m a couple seconds behind the band and then it becomes chaos.
+ - My advice: Don’t quit. When I got to New York City, I lived so far below the poverty line, because I didn’t give in and get a job at 7-Eleven. I think you can thrive in misery.
+ - Without really analyzing it, I grew up in Massachusetts, so the Salem witch trials were always something that I was around. The average kindergartner probably doesn’t know about it, except that in Massachusetts, you do, because they’ll take you on field trips to see reenactments and stuff.
+ - By the time we got to MGM, and Lions Gate the movie was done there was nothing else to say. It was done. Just as at Universal, it was art by committee.
+ - People have this delusion that everything has to be for everybody at all times. Every album must be liked by everybody, and every TV show must be liked by everybody, and every movie must be liked by everybody. Everything then becomes bland.
+ - I think so much about everything. I’m obsessive.
+ - The studio experience fluctuates depending on who you work with, it’s not like it’s all one experience. Every studio is different, every producer’s personality is different. You never know what you’re going to do.
+ - I’m definitely of the mindset of “I wouldn’t want to be part of any group that would have me as a member.”
+ - I remember, especially like when I was in high school, going to see like Dawn of the Dead and it was like mayhem in the theater and you could barely even watch the movie. It was so fun.
+ - I like movies where you can come back and re-watch them and admire the cinematography 25 years later.
+ - Why does everybody thing things are always contractual? I saw a shitload of questions and thought “better keep these answers short or I’ll never get to all of these”.
+ - You just have to do the thing that you feel is true to your vision, and then the audience will make the decision. But as soon as you feel like you’re creating a product to just cater to what you think they want, it never works. It always feels phony. And the audience can tell immediately.
+ - Growing up, I had the weird fantasy list: I wanted to be Alice Cooper, Steven Spielberg, and Stan Lee. You have to have almost psychotic drive, because you’re going to have years of failure.
+ - It’s never been about making money.
+ - On the first feature, everything’s new. No matter what you’re doing, it’s a new experience, and you don’t really have control over it, in a way, because you just don’t know how things work.
+ - I like European movies because it seems those audiences are a little more patient. Those movies are always slower, where over here, the studio system freaks out if something doesn’t happen every five minutes or if anything is confusing.
+ - If you have a lot of money, you know that you can make almost anything happen, but with a smaller budget you don’t have a lot of time or too many resources, so you have to conceive things in a very simple manner and make them happen fast.
+ - I love Westerns. I really love John Wayne. Frank Capra, any of his movies I love.
+ - White Zombie was a bunch of kids with the worst equipment playing in a basement. But that is what is so great about it. There is no reason to think that you can’t do it.
+ - Josh Brolin is an actor that I really, really like; he’s fantastic. I worked with him once; he’s a really great actor.
+ - I find making trailers really frustrating, because sometimes the worst trailers are for the best movies.
+ - My goal is to keep making films and grow as a film maker; that’s always my goal.
+ - I can picture certain things in my mind, while writing the script, but then I can also tell that everyone else might be a little confused about what it’s supposed to look like at the end of the day. But it all works out. I find a way.
+ - I don’t know that I have a fascination with witches per se – well, maybe I just have a fascination with everything that’s weird.
+ - To me, horror and comedy never work. Never worked for me, anyway.
+ - NC-17 means that you get it in like 3 theaters. They won’t run the spots on MTV, won’t run the advertising. It’s the kiss of death so there was really no other choice.
+ - I have always found clowns really fascinating, especially on film. Even as a kid I was never scared of them.
+ - A big mistake a lot of filmmakers do is they like, “We cut our whole ending to a Rolling Stones song.” You better find a new ending then, because unless you have $2 million for that song.
+ - There are so many projects that don’t happen, just sometimes they don’t get announced, so no one ever knows about them and you don’t have to talk about them.
+ - I just like movies, not one particular kind or genre. In fact, movies that are harder to classify I like more.
+ - As far as directors, I’m a big fan of any kind of Billy Wilder stuff. Anything he does.
+ - I’m not a big fan of remakes. And even if they are good, they’re still not as good as the original, so what’s the point?
+ - Probably the biggest thing that surprises people is that I am obsessed with hockey. I grew up in the Boston area so I am obsessed with hockey since I was a little kid.
+ - I never made movies that had any of my music. I haven’t crossed them over that much.
+ - I’d always want to decorate my bedroom. I needed visuals and to be stimulated by things. I’m still like that. It’s the way I see the world.
+ - Movies in general are more generic. If something sells just make more. That’s Hollywood.
+ - I’ve always been a fan of just extreme things. Whether it be in movies, books, TV or real life.
+ - I am like the Jack Nicholson of the Kings – every single game. If there was a game tonight I wouldn’t be here. I used to play hockey. That was my original thing. My first thing, I wanted to play professional hockey.
+ - All the classic bands that have been around forever, they came up gradually.
+
+93 quotes

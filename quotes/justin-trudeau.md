@@ -1,0 +1,23 @@
+ - I was a snowboard instructor, I was a bouncer in a nightclub, I was a whitewater river guide for many years. I worked as a teacher. I make no apologies for a very varied set of life experiences.
+ - My idea of freedom is that we should protect the rights of people to believe what their conscience dictates, but fight equally hard to protect people from having the beliefs of others imposed upon them.
+ - Things fell into place and there was an opportunity for fresh leadership. And – I was – I was successful.
+ - I don’t read the newspapers, I don’t watch the news. I figure, if something important happens, someone will tell me.
+ - People think that boxing is all about how hard you can hit your opponent. It’s not. Boxing is about how hard a hit you can take and keep going.
+ - Fear is a dangerous thing. Once it is sanctioned by the state there is no telling where it might lead. It is always a short path to walk from being suspicious of our fellow citizens to taking actions to restrict their liberty.
+ - Connecting with Canadians isn’t about what you say, it’s about what you’re listening to. It’s about what you understand.
+ - Every time, every time a tourist or an immigrant or a refugee shows up in another country there’s a security risk.
+ - You can’t run a government from one single person. What instead matters is that leadership be about gathering around extraordinary individuals and getting the best out of them.
+ - Canada must be progressive, and Canada must be a just society.
+ - My father’s values and vision of this country obviously form everything I have as values and ideals. But this is not the ghost of my father running for the leadership of the Liberal party. This is me.
+ - Our shared histories and common values make us natural trading partners and we will continue to work with both the United Kingdom and the European Union as we move forward with this new decision.
+ - Ultimately, being open and respectful towards each other is much more powerful as a way to diffuse hatred and anger than, you know, layering on, you know, big walls and oppressive policies.
+ - I have made it clear that future candidates need to be completely understanding that they will be expected to vote pro-choice on any bills.
+ - Our country’s economy is strong, diversified, and resilient.
+ - I look at what I have as a challenge and I could list a whole bunch of different challenges. And I choose not to be daunted by any of them.
+ - You cannot let yourself be defined by the hopes that you will fulfill the darkest wishes of your opponents.
+ - You can’t be Canadian without being aware of at least one other country, the United States, ’cause it’s so important to us. I think we sometimes like to think that, you know, Americans will pay attention to us from time to time, too.
+ - There’s a lotta countries that do very well at dropping bombs. There are other things that Canada actually does better than most other countries. And one of them is training people on the ground.
+ - I want my Canada back!
+ - So having a little more of an awareness of what’s going on in the rest of the world I think is what many Canadians would hope for Americans.
+
+21 quotes

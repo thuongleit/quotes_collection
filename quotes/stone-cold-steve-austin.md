@@ -1,0 +1,21 @@
+ - You want mercy? Take your ass to church!
+ - You treat me like a dog and you expect me to smile? You remind me of a jackass.
+ - I’ll open up a can of whoop-ass on you!
+ - I no longer need my power tie, because I always have, my power finger.
+ - And that’s the bottom line, cuz Stone Cold said so!
+ - Become a champion like Stone Cold Steve Austin!
+ - I’m telling you this – if Stone Cold comes back out, somebody’s going to get their ass whipped!
+ - And I also appreciate the fact that, hell, you can kiss my ass!
+ - Sorry, my watch doesn’t speak spanish.
+ - If you put a s infront of hitman, you have my exact thoughts on Bret Hart.
+ - Save your money, pay your taxes, it doesn’t last forever...
+ - That was the absolute worst catch phrase I’ve ever heard in the history of Monday Night Raw.
+ - You see, everyone in that locker-room gotta pager. And everyone that looks at that pager, sees the three-one-six, so their ass belongs to me.
+ - I eat so much chicken, I’m surprised I haven’t grown feathers yet.
+ - I love the business of pro wrestling and it is something I know better than anything else I know about.
+ - Unless you got real short and real fat, you ain’t no Booker T!
+ - Tune in next week, same Stone Cold time, same Stone Cold Channel!
+ - Last time I had three or four of those I crapped for three days straight!
+ - Nobody, especially Vince McMahon, tells Stone Cold Steve Austin what to do, and that’s the bottom line!
+
+19 quotes

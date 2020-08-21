@@ -1,0 +1,39 @@
+ - It’s good to touch the green, green grass of home.
+ - Love is in the air everywhere I look around. Love is in the air every sight and every sound.
+ - First of all, I love singing. I mean, I get out of bed and I sing. I can’t help it.
+ - Time is my enemy. Time will catch up with me vocally. And I dread that. I dread to think about life without singing.
+ - I come from a coal-mining, working-class background. My father was a coal miner.
+ - I’ve tried wearing more than one ring on one hand and it doesn’t look good. It’s overkill, I think. So I think a ring on either hand. Nine times out of ten I’ll go for pinky rings, but not always.
+ - Plant a radish, get a radish, never any doubt. That’s why I love vegetables, you know what they’re about!
+ - People never talked about my music. They just counted how many knickers were on stage.
+ - I haven’t become an American! Having a house in LA is just where the house is. It’s just a convenience thing living there. I carry Wales around inside me. I’d consider moving back there one day. I never really left.
+ - Dean Martin always dressed very well but then he was a good looking fella with a good physique so he could wear anything.
+ - You can’t be a sexy person unless you have something sexy to offer. With me, it’s my voice: the way that I sing, the way I express myself when I sing.
+ - Oh yeah, I would have been a coal miner, I would think, if I hadn’t had tuberculosis when I was 12.
+ - I like to drink to suit my location.
+ - I have a weakness for watches. I have to stop myself buying more.
+ - I got married when I was 16 so I had to do shift-work to make ends meet.
+ - Comfort me by a solemn Assurance, that when the little Parlour in which I sit at this Instant, shall be reduced to a worse furnished Box, I shall be read, with Honour, by those who never knew nor saw me, and whom I shall neither know nor see.
+ - There is nothing like the sound of a Welsh Male Choir and the Treorchy is the finest. They have represented the best of the Welsh voice for generations with honour and integrity. They are international ambassadors.
+ - I think the first time I ever wore a tuxedo was when I played at the Talk Of The Town in 1967, because it was a nightclub and that was the thing to do.
+ - I think teen-age love is a great thing. There’s nothing quite like it and never will be for the rest of your life.
+ - As for the music business itself, the key things have not changed that much. It operates like any business and money still keeps things moving.
+ - I want to find out more about how the Backstreet Boys get their incredible sound. I’ve got both their albums and I would love to cover one of their songs.
+ - I love listening to new stuff, at home in LA I always have the radio on to hear what is happening.
+ - I’ve always felt myself as being a serious singer.
+ - I would want to be known as a great singer; that the records I’ve made and the performances that I’ve done to be remembered. But the voice is the most important thing. The showmanship goes along with it. But I want to be remembered for my vocal ability.
+ - My real name was Thomas Jones Woodward, so I dropped the Woodward.
+ - I don’t think you can sing about certain things when you’re a teen-ager or in your early 20s, because you haven’t lived long enough. So I think living gives you character and that comes out in your voice.
+ - I’m a lyric man – I’m always looking for meaningful songs.
+ - I’ve always liked to dance – I’ve got a natural rhythm.
+ - I didn’t have to play rugby that well, and I didn’t have to play cricket that well, because I had this voice.
+ - I didn’t like to be restricted, because when you’re in a choir, you have a part to sing and you sing it. I always liked singing on my own.
+ - I have had some pretty wild nights! I think the media keeps a very close eye on what people are up to these days. I was out with George Clooney a few nights ago and we had a great time.
+ - If you’re going to be a star, you should look like one.
+ - You are only a young talent, but we don’t know how old your soul is.
+ - I think it’s good that I had some experience of the real world before I became successful. You know, having to get up in the morning and going to work in construction.
+ - Winning the Outstanding Contribution award is great, because you know you have won in advance. Previously, I have been really nervous during the ceremony because you have no idea if you are going to get called up on stage. This time I could relax and enjoy myself.
+ - When I started recording, I thought I’d be able to do all kinds of records: jazz, country, dance – and I’ve always wanted to do a gospel album.
+ - There’s plenty for me to do. There are more albums. I’ll record as long as I can and as long as my voice works as well as it does now and for as long as people want to hear me.
+
+37 quotes

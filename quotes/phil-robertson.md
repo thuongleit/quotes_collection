@@ -1,0 +1,57 @@
+ - I am not ashamed of the Gospel of Christ.
+ - If you can find a nice pretty country girl that can cook and carries her bible, now there’s a woman.
+ - I’m a low-tech man in a high-tech world.
+ - Actually, most people don’t think I have too much sense because I would rather be fairly intelligent and act dumb instead of not having any sense at all and try to act smart.
+ - My prayer was always: ‘Lord, if You bless me, I’ll thank You: but if You don’t, I’ll be thankful for what I have. I have plenty. I’m in good shape.’
+ - Fear God. Love your neighbor. And shoot ducks.
+ - I have a God-given right to pursue happiness, and happiness to me is killing things, skinning them, plucking them, and then having a good meal. What makes me happy is going out and blowing a duck’s head off.
+ - If we lose our morality, we will lose our country. It will happen.
+ - Whether it was hunting, fishing, or playing sports, my children were going to grow up outside. They weren’t going to be sitting on the couch inside. At least they didn’t grow up to be nerds.
+ - We are all created by the Almighty and like Him, I love all of humanity. We would all be better off if we loved God and loved each other.
+ - A real man don’t call the plumbers. If he gonna call himself a man, he needs to know how to fix it, on the spot.
+ - My mission today is to go forth and tell people about why I follow Christ and also what the Bible teaches, and part of that teaching is that women and men are meant to be together.
+ - Many have told me through the years: ‘I think I’ll take my chances without Jesus.’ And I always come back and say, ‘So what chance is that?’
+ - Jesus came down in flesh and solved both of them. So for me, my household – I just think that we would all be better off if we loved God and loved each other. At the end of the day you will be happy, happy, happy.
+ - Everywhere my sons and I go, we’re telling people the good news about Jesus, blowing duck calls, and making people, happy, happy- then down the road we go.
+ - Our founding fathers started this country and built it on God and His Word, and this country sure would be a better place to live and raise our children if we still followed their ideals and beliefs.
+ - To me, there is no such thing as a trash duck. There are ducks that are a lot better to eat than other ducks. But a duck is just that.
+ - I have bitten down or swallowed a few pellets through the years. My uncle had his appendix removed and there were over 100 lead pellets in it. He might have died of lead poisoning. Now that is eating a lot of game!
+ - I’ve been on this earth for sixty-six years, and I’ve reached a conclusion and it’s a fact: women are strange creatures.
+ - I enjoy almost all of the game we kill. I only like to eat game that I have cleaned. I guess duck and dressing are still one of my favorites. We prefer fat green-winged teal or wood ducks for our dressing.
+ - I make a mean pecan pie, and I have a great recipe for pralines – also using pecans. Pralines take a lot of patience, and patience is a must in the duck blind as well as in the kitchen. Good things come to those who wait.
+ - Crawfish have ding dongs and vaginas.
+ - It was hard to love my wife and kids because I was all wrapped up in loving only myself. I did what I wanted, when I wanted, without any real concern for them.
+ - Uptown living, you’ve got to call 911. Where I am, I am 911.
+ - Three, four, five years, we’re out of here. You know what I’m saying? It’s a TV show. This thing ain’t gonna last forever. No way.
+ - Better a days catch of fish than a lifetime of crabs.
+ - Let me tell you something: I salute womanhood worldwide, because women are exceptionally tough for enduring the misery of childbirth. I’ve cleaned hogs and gutted deer, but in my experience on Earth I’ve never witnessed such a brutal event.
+ - The more make up a woman wears the more she’s tryin to hide. Make up can hide a lot of evil.
+ - Two of the central ingredients to our family are food and faith, so sitting down together and thanking God for the food He’s provided means everything to us. Prayer is a natural part of our lives – not only around the dinner table but all day long.
+ - I will not give or back off from my path.
+ - Genesis 9 is where the animals went wild, and God gave them wildness. After the flood, that’s when he made animals wild. Up until that time, everybody was vegetarian.
+ - It was about 5 years after I was baptized before the pull of sin finally stopped.
+ - Money can come and go, and fame comes and goes. Peace of mind and a relationship with God is far more important, so this is the precedent that we’ve set in our lives. The bottom line is, we all die, so Jesus is the answer.
+ - Kids in America today are overweight and lazy, and it’s their parents fault for letting it happen.
+ - Carry your Bible and live by it. There’s a better chance that you will stay married if that much is true for either one of you – male or female.
+ - I guess the GOP may be more desperate than I thought to call somebody like me.
+ - You have to discipline your children, or they won’t respect you, law enforcement or God or anyone else.
+ - I don’t use any of the terminology like ‘left wing’ and ‘right wing.’ I use language like ‘godly’ and ‘holiness.’
+ - When you get older and you start dating, I want you to be able to say one thing, ‘I can bait a hook.’
+ - Women are a lot like ducks-they don’t like mud on their butts.
+ - But it also came at a significant cost for human rights, and today’s restricted freedom of expression, self-censorship and stunted multi-party democracy.
+ - I want my grandkids to grow up in the great outdoors. The last thing I want is for them to grow up to be nerds.
+ - If you provide the drive, dream, and vision, with God’s help, you can accomplish anything.
+ - I turned from my wicked ways and embraced Jesus. The next thing I knew, good times had come my way.
+ - Where there is no Jesus, evil always reigns.
+ - If I were in politics, and if you ever get me in the White House, trust me, there’s a big change coming. What happened to America? We lost our roots.
+ - To call me in, I’m thinking I don’t own a suit, a ring, a watch, a cellphone. I’m dragging up out of the woods here. You boys must be hard up these days.
+ - I’ve never owned a cell phone and don’t plan on ever having one. If anyone needs to talk to me, they know where I live.
+ - Whether you’re talking about bees, dogs, or women, pain can come upon you quickly from either one of em.
+ - If you delve into and a part of the political wars, the – as I would call it, the arguing ad infinitum. It never ends, and very few people I’ve noticed ever change their mind.
+ - This would be nice when we baptize people in the winter.
+ - If men were in charge of carrying and birthing our babies, we’d have a lot fewer people on Earth, because we’d only do it once- I can promise you that!
+ - There are two kinds of individuals on Planet Earth who do not have beards – women and youth.
+ - I repented at 28 and turned to Jesus.
+ - And we debate whether it’s a – some woman’s right to tear you out of there a piece at a time! C’mon! You have a God-given right to live. And of all places, inside your mother – what in the world happened to us?
+
+55 quotes

@@ -1,0 +1,22 @@
+ - The kind of beauty I want most is the hard-to-get kind that comes from within – strength, courage, dignity.
+ - Classism and greed are making insignificant all the other kinds of isms.
+ - God, make me so uncomfortable that I will do the very thing I fear.
+ - The world has improved mostly because unorthodox people did unorthodox things. Not surprisingly, they had the courage and daring to think they could make a difference.
+ - Revolutionaries don’t get job security.
+ - The greatest gift is not being afraid to question.
+ - Among whom the gods bless, high on the list are the music people, who tune into celestial vibe-brations and give mortals a taste of immortal sensations.
+ - Paradise is to be the ultimate instrument, fulfilling God’s desperate intent that we love each other.
+ - When you know my love, my love will warm you.
+ - You meet all kinds of people that help put life in perspective and turn the horror into some kind of lesson or avenue of awakening that lives with you all your days.
+ - I don’t want to have my children have to get dressed up to go out to say good morning and deserve to live among some other people. I want to be able to be free and take for granted that my neighbors like me and I like them.
+ - It takes a long time to really be married. One marries many times at many levels within that marriage. If you have more marriages than you have divorces within the marriage, you’re lucky and you stick it out.
+ - A trustworthy marriage has weathered temptation and anger and jealousy, resentment, self-righteousness and a little bit of selfishness. When you get over and get through that, then maybe you can see the light to love.
+ - OK, boss, I don’t mind shuffling, but I won’t scratch my head.
+ - Revolutionaries don’t get job security. They compete with rats for cheese and with strays for shelter – after the big bullets make feet out of their knees.
+ - That we arrived at fifty years together is due as much to luck as to love, and a talent for knowing, when we stumble, where to fall, and how to get up again.
+ - You have to learn how to be married. You have to learn to love somebody.
+ - I never thought about myself as an activist when we were coming along. I wasn’t a joiner. You know, I love the people I love. I didn’t care whether – they could be a Democrat, Republican, communist, you know, and anything but a racist.
+ - Sorrow for not understanding like I understand now the unpredictable, profound journey that marriage is.
+ - That’s what being young is all about. You have the courage and the daring to think that you can make a difference. You’re not prone to measure your energies in time. You’re not likely to live by equations.
+
+20 quotes

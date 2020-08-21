@@ -1,0 +1,33 @@
+ - I love both my parents dearly.
+ - I really live a simple life and don’t need very much to feel good and happy. Don’t get me wrong; I believe you should get what you earn. Sometimes you have to fight for it.
+ - Inspiration is one thing and you can’t control it, but hard work is what keeps the ship moving. Good luck means, work hard. Keep up the good work.
+ - Hard work is what keeps the ship moving.
+ - My love life doesn’t stink; it’s nonexistent.
+ - The simple things in life ground me and keep me focused so Im able to do a good job with what is in front of me.
+ - I thought people cared about music in a deep way, so I was writing to that spirit in people and in myself. It was me, thinking I knew what was up. Youth, who else can change the world?
+ - I am blessed to have Mom and Dad.
+ - The belief that we are what the media says we are, what people perceive we are, is soon to be what we think we are. We are treated based on this warped perception. It is hard to get away from it.
+ - I wish I could sing. I love singers, but I am way too shy. Scares the hell out of me.
+ - The worst part is doubt. When you doubt yourself, which we are taught to do, you get lost.
+ - It is hard for a black man to just be himself. We spend so much time in defense of something that is indefensible because there is nothing to defend.
+ - Being as versatile as I am, I take offense to the notion that no serious musician would not be doing a late night talk show gig. One has to be open enough in other areas to be able to contribute to a show like this.
+ - I want someone who is open-minded, dedicated to whatever she is doing and isn’t afraid to say I love you. As for looks, she shouldn’t have three heads. I want a regular human being.
+ - I had the fortunate experience to play with people from different schools of music. Sam Rivers is from the fundamentalist school of music.
+ - James Brown is the reason I play guitar.
+ - I really worked with icons in the music business, which really had a strong effect on me. It wasn’t just pick-up gigs.
+ - I think Wes Montgomery is the greatest jazz guitarist that ever lived.
+ - My love life is like everyone else’s – great, and then terrible.
+ - Serious musicians are finding it harder and harder to have a voice in the world of music these days.
+ - Let your life be your music and let your music be your life.
+ - The things I really learned, I learned from watching my parents. They take care of business. Always have.
+ - After a while I thought it didn’t make any sense to use a pick. It’s kind of like typing with one finger on each hand instead of using all your fingers.
+ - Dad made it to Gold Shield Detective, so he always busted Robin, my oldest brother, and me. Always got caught, whatever we were doing.
+ - If you play jazz, then you play with your fingers. If you’re playing rock, you use a pick. There’s really no rhyme or reason to that other than that’s just the way it has been.
+ - I feel very honored to be playing with Bill Pierce. He’s such a great musician.
+ - I consider myself a serious musician. Doing a comedy show does not take away from that in any way.
+ - I can pay my rent now. I guess I could always do that, but now I can get an apartment with heat.
+ - I was playing violin for a long time, about 6 years. It takes a while. You need very patient people in your house when you have a violin.
+ - In most places that are rich in guitar culture, everyone uses their fingers, like in Spain or Africa. In Japan there are string instruments played that way. It is not until you get in the States that you find people using picks.
+ - Sometimes I wonder if I got lulled into not wanting things because I grew up black in this country.
+
+31 quotes

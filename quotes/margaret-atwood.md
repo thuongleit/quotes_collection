@@ -1,0 +1,502 @@
+ - In the end, we’ll all become stories.
+ - A word after a word after a word is power.
+ - Don’t let the bastards grind you down.
+ - War is what happens when language fails.
+ - I exist in two places, here and where you are.
+ - Life’s not fair; why should I be?
+ - I have long since decided if you wait for the perfect time to write, you’ll never write. There is no time that isn’t flawed somehow.
+ - The Eskimos had fifty-two names for snow because it was important to them: there ought to be as many for love.
+ - I would like to be the air that inhabits you for a moment only. I would like to be that unnoticed and that necessary.
+ - Men are afraid that women will laugh at them. Women are afraid that men will kill them.
+ - Literature is not only a mirror; it is a map, a geography of the mind.
+ - Powerlessness and silence go together.
+ - Nobody dies from lack of sex. It’s lack of love we die from.
+ - Reality simply consists of different points of view.
+ - The desire to be loved is the last illusion. Give it up and you will be free.
+ - I hope that people will finally come to realize that there is only one ‘race’ – the human race – and that we are all members of it.
+ - We were the people who were not in the papers. We lived in the blank white spaces at the edges of print. It gave us more freedom. We lived in the gaps between the stories.
+ - Now that I am dead, I know everything.
+ - Don’t wait until you’re ‘in the mood.’ Get into the mood by writing.
+ - You fit into me like a hook into an eye a fish hook an open eye.
+ - We still think of a powerful man as a born leader and a powerful woman as an anomaly.
+ - Menopause. A pause while you reconsider men.
+ - Touch comes before sight, before speech. It is the first language and the last, and it always tells the truth.
+ - All you have to do, I tell myself, is keep your mouth shut and look stupid. It shouldn’t be that hard.
+ - The answers you get from literature depend on the questions you pose.
+ - Perhaps I write for no one. Perhaps for the same person children are writing for when they scrawl their names in the snow.
+ - A rat in a maze is free to go anywhere, as long as it stays inside the maze.
+ - The road to death is a lonely highway, and longer than it apears, even when it leads straight down from the scaffold, by way of a rope; and it’s a dark road, with never any moon shining on it, to light your way.
+ - A voice is a human gift; it should be cherished and used, to utter fully human speech as possible. Powerlessness and silence go together.
+ - I think calling it climate change is rather limiting. I would rather call it the everything change.
+ - Sooner or later, I hate to break it to you, you’re gonna die, so how do you fill in the space between here and there? It’s yours. Seize your space.
+ - Ordinary, said Aunt Lydia, is what you are used to. This may not seem ordinary to you now, but after a time it will. It will become ordinary.
+ - You may not be able to alter reality, but you can alter your attitude towards it, and this, paradoxically, alters reality. Try it and see.
+ - Every aspect of human technology has a dark side, including the bow and arrow.
+ - We are a society dying, said Aunt Lydia, of too much choice.
+ - In the spring, at the end of the day, you should smell like dirt.
+ - If you’re waiting for the perfect moment, you’ll never write a thing because it will never arrive. I have no routine. I have no foolproof anything. There’s nothing foolproof.
+ - Maybe I don’t really want to know what’s going on. Maybe I’d rather not know. Maybe I couldn’t bear to know. The Fall was a fall from innocence to knowledge.
+ - What am I living for and what am I dying for are the same question.
+ - Every utopia – let’s just stick with the literary ones – faces the same problem: What do you do with the people who don’t fit in?
+ - EXTINCTATHON, Monitored by MaddAddam. Adam named the living animals, MaddAddam names the dead ones. Do you want to play?
+ - After everything that’s happened, how can the world still be so beautiful? Because it is.
+ - Ignoring isn’t the same as ignorance, you have to work at it.
+ - Potential has a shelf life.
+ - I read for pleasure and that is the moment I learn the most.
+ - Nature is to zoos as God is to churches.
+ - I tell, therefore you are.
+ - But who can remember pain, once it’s over? All that remains of it is a shadow, not in the mind even, in the flesh. Pain marks you, but too deep to see. Out of sight, out of mind.
+ - You think I’m not a goddess? Try me. This is a torch song. Touch me and you’ll burn.
+ - Don’t misunderstand me. I am not scoffing at goodness, which is far more difficult to explain than evil, and far more complicated. But sometimes it’s hard to put up with.
+ - You can only be jealous of someone who has something you think you ought to have yourself.
+ - Time is not a line but a dimension, like the dimensions of space. If you can bend space you can bend time also, and if you knew enough and could move faster than light you could travel backwards in time and exist in two places at once.
+ - When we think of the past it’s the beautiful things we pick out. We want to believe it was all like that.
+ - You can’t help what you feel, but you can help how you behave.
+ - Screw poetry, it’s you I want, your taste, rain on you, mouth on your skin.
+ - The reader cannot see into your heart. He will know only what you tell him. Make the blind see your words. Make the hard-hearted feel. Make the deaf hear.
+ - Knowing was a temptation. What you don’t know won’t tempt you.
+ - I am afraid of falling into hopeless despair, over my wasted life, and I am still not sure how it happened.
+ - I’m a person of whim, and easily distracted. I don’t like multitasking. When I’m doing one thing, I like to do just that thing.
+ - You need a certain amount of nerve to be a writer, an almost physical nerve, the kind you need to walk a log across a river.
+ - Waste not want not. I am not being wasted. Why do I want?
+ - It doesn’t really matter what “genre” your book is. What matters is that it’s a good book of its kind. Whatever that kind may be.
+ - Every novel is-at the beginning-the same opening of a door onto a completely unknown space.
+ - The society in ‘The Handmaid’s Tale’ is a throwback to the early Puritans whom I studied extensively at Harvard under Perry Miller, to whom the book is dedicated.
+ - More powerful than God, more evil than the Devil; the poor have it, the rich lack it, and if you eat it you die?
+ - Don’t let the bastards grind you down. I repeat this to myself but it conveys nothing. You might as well say, Don’t let there be air; or Don’t be. I suppose you could say that.
+ - Water does not resist. Water flows. When you plunge your hand into it, all you feel is a caress.
+ - I want everything back, the way it was. But there is no point to it, this wanting.
+ - The moment of betrayal is the worst, the moment when you know beyond any doubt that you’ve been betrayed: that some other human being has wished you that much evil.
+ - God is not the voice in the whirlwind, God is the whirlwind.
+ - Without the light, no chance; without the dark, no dance.
+ - Fear has a smell, as love does.
+ - You’re never going to kill storytelling, because it’s built into the human plan. We come with it.
+ - Knowing too much about other people puts you in their power, they have a claim on you, you are forced to understand their reasons for doing things and then you are weakened.
+ - Stupidity is the same as evil if you judge by the results.
+ - Writing is alone, but I don’t think it’s lonely. Ask any writer if they feel lonely when they’re writing their book, and I think they’ll say no.
+ - A truth should exist, it should not be used like this. If I love you is that a fact or a weapon?
+ - Another belief of mine; that everyone else my age is an adult, whereas I am merely in disguise.
+ - Some people mistakenly think nature is very nice and benevolent and never betrays.
+ - If you’re put on a pedestal, you’re supposed to behave yourself like a pedestal type of person. Pedestals actually have a limited circumference. Not much room to move around.
+ - I wish you good writing and good luck. Even if you’ve already done the good writing, you’ll still need the good luck. It’s a shark-filled lagoon out there. Cross your fingers and watch your back.
+ - Time has not stood still. It has washed over me, washed me away, as if I’m nothing more than a woman of sand, left by a careless child too near the water.
+ - When we’re young, we like happy endings. When we’re a little older, we think happy endings are unrealistic and so we prefer bad but credible endings. When we’re older still, we realize happy endings aren’t so bad after all.
+ - Lose your temper and you lose the fight.
+ - More and more I feel like a letter – deposited here, collected there. But a letter addressed to no one.
+ - The best way of keeping a secret is to pretend there isn’t one.
+ - Nothing changes instantaneously: in a gradually heating bathtub you’d be boiled to death before you knew it.
+ - In the desert there is no sign that says, Thou shalt not eat stones.
+ - We thought we had such problems. How were we to know we were happy?
+ - Canada was built on dead beavers.
+ - Come away with me, he said, we will live on a desert island. I said, I am a desert island. It was not what he had in mind.
+ - Freedom, like everything else, is relative.
+ - But my dreaming self refuses to be consoled. It continues to wander, aimless, homeless, alone. It cannot be convinced of its safety by any evidence drawn from my waking life.
+ - But maybe, underneath, she loves him too much. Maybe it’s her excessive love that pushes him away.
+ - If we were all on trial for our thoughts, we would all be hanged.
+ - In my dreams of this city I am always lost.
+ - And yet it disturbs me to learn I have hurt someone unintentionally. I want all my hurts to be intentional.
+ - His mouth is on me, his hands, I can’t wait and he’s moving, already, love, it’s been so long, I’m alive in my skin, again, arms around him, falling and water softly everywhere, never-ending.
+ - The fabric of democracy is always fragile everywhere because it depends on the will of citizens to protect it, and when they become scared, when it becomes dangerous for them to defend it, it can go very quickly.
+ - Better not to invent her in her absence. Better to wait until she’s actually here. Then he can make her up as she goes along.
+ - We yearned for the future. How did we learn it, that talent for insatiability?
+ - There’s more than one way to skin a cat, my father used to say; it bothered me, I didn’t see why they would want to skin a cat even one way.
+ - Time is not a line but a dimension, like the dimensions of space.
+ - Myths can’t be translated as they did in their ancient soil. We can only find our own meaning in our own time.
+ - I feel like the word shatter.
+ - No mother is ever, completely, a child’s idea of what a mother should be, and I suppose it works the other way around as well. But despite everything, we didn’t do too badly by one another, we did as well as most.
+ - There is no fool like an educated fool...
+ - No matter how much you’ve been warned, Death always comes without knocking. Why now? is the cry. Why so soon? It’s the cry of a child being called home at dusk.
+ - Does feminist mean large unpleasant person who’ll shout at you or someone who believes women are human beings. To me it’s the latter, so I sign up.
+ - Truly amazing, what people can get used to, as long as there are a few compensations.
+ - Men and women are not “equal” if “equal” means “exactly the same.” Our many puzzlements and indeed unhappinesses come from trying to figure out what the differences really mean, or should mean, or should not mean.
+ - God gave unto the Animals A wisdom past our power to see: Each knows innately how to live, Which we must learn laboriously.
+ - Whatever is silenced will clamor to be heard, though silently.
+ - If you’re a woman writer, sometime, somewhere, you will be asked: Do you think of yourself as a writer first, or as a woman first? Look out. Whoever asks this hates and fears both writing and women.
+ - Ten days after the war ended, my sister Laura drove a car off a bridge.
+ - I grew up in the north woods of Canada. You had to know certain things about survival. Wilderness survival courses weren’t very formalized when I was growing up, but I was taught certain things about what to do if I got lost in the woods.
+ - How shrunk, how dwindled, in our times Creation’s mighty seed – For Man has broke the Fellowship With murder, lust, and greed.
+ - This above all, to refuse to be a victim.
+ - Toast is me. I am toast.
+ - I was sand, I was snow – written on, rewritten, smoothed over.
+ - The goals of the feminist movement have not been achieved, and those who claim we’re living in a post-feminist era are either sadly mistaken or tired of thinking about the whole subject.
+ - A divorce is like an amputation: you survive it, but there’s less of you.
+ - When things are really dismal, you can laugh, or you can cave in completely.
+ - We’ve learned to see the world in gasps.
+ - If social stability goes pear-shaped, you have a choice between anarchy and dictatorship. Most people will opt for more security, even if they have to give up some personal freedom.
+ - Blank pages inspire me with terror.
+ - The internet is 95 percent porn and spam.
+ - This is what I miss, Cordelia: not something that’s gone, but something that will never happen. Two old women giggling over their tea.
+ - Farewells can be shattering, but returns are surely worse. Solid flesh can never live up to the bright shadow cast by its absence.
+ - An eye for an eye only leads to more blindness.
+ - Why do men feel threatened by women?
+ - If the national mental illness of the United States is megalomania, that of Canada is paranoid schizophrenia.
+ - Publishing a book is like stuffing a note into a bottle and hurling it into the sea.
+ - Then sail, my fine lady, on the billowing wave – The water below is as dark as the grave, And maybe you’ll sink in your little blue boat – It’s hope, and hope only, that keeps us afloat.
+ - By telling you anything at all I’m at least believing in you, believe you’re there, I believe you into being. Because I’m telling you this story I will your existence. I tell, therefore you are. So I will go on. So I will myself to go on.
+ - The truth, it seems, is not just what you find when you open a door: it is itself a door, which the poet is always on the verge of going through.
+ - Science is a tool, and we invent tools to do things we want. It’s a question of how those tools are used by people.
+ - There may not be one Truth – there may be several truths – but saying that is not to say that reality doesn’t exist.
+ - Where do you draw the line, between love and greed? We never did know, we always wanted more. We want to take it all in, for one last time, we want to eat the world with our eyes.
+ - Things musicals taught me: All your problems will go away if you sing about it.
+ - How old do you have to get before wisdom descends like a plastic bag over your head and you learn to keep your big mouth shut? Maybe never. Maybe you get more frivolous with age.
+ - How furious she must be, now that she’s been taken at her word.
+ - There’s the story, then there’s the real story, then there’s the story of how the story came to be told. Then there’s what you leave out of the story. Which is part of the story too.
+ - Optimism means better than reality; pessimism means worse than reality. I’m a realist.
+ - People use technology only to mean digital technology. Technology is actually everything we make.
+ - We understand more than we know.
+ - This is how the girl who couldn’t speak and the man who couldn’t see fell in love.
+ - As all historians know, the past is a great darkness, and filled with echoes.
+ - I’ve learned quite a lot, over the years, by avoiding what I was supposed to be learning.
+ - A ratio of failures is built into the process of writing. The wastebasket has evolved for a reason. Think of it as the altar of the Muse Oblivion, to whom you sacrifice your botched first drafts, the tokens of your human imperfection.
+ - Publishers are in business to make money, and if your books do well they don’t care if you are male, female, or an elephant.
+ - I suppose these deadlines we set for ourselves are really a way of saying we appreciate time, and want to use all of it.
+ - I feel like cotton candy: sugar and air. Squeeze me and I’d turn into a small sickly damp wad of weeping pinky-red.
+ - Is anything wrong, dear? the old joke went. No, why? You moved. Just don’t move.
+ - A hot wind was blowing around my head, the strands of my hair lifting and swirling in it, like ink spilled in water.
+ - Instead I will say, “Take me to your trees. Take me to your breakfasts, your sunsets, your bad dreams, your shoes, your nouns. Take me to your fingers; take me to your deaths.” These are worth it. These are what I have come for.
+ - The facts of this world seen clearly are seen through tears.
+ - The way love feels is always only approximate. I would like to be without shame. I would like to be shameless. I would like to be ignorant. Then I would not know how ignorant I was.
+ - What breaks in daybreak? Is it the night? Is it the sun, cracked in two by the horizon like an egg, spilling out light?
+ - Neither of us says the word love, not once. It would be tempting fate; it would be romance, bad luck.
+ - I believe in the resistance as I believe there can be no light without shadow; or rather, no shadow unless there is also light.
+ - But people will do anything rather than admit that their lives have no meaning. No use, that is. No plot.
+ - It was like being in an elevator cut loose at the top. Falling, falling, and not knowing when you will hit.
+ - I stand on the corner, pretending I am a tree.
+ - Remember that, my child. Remember you are half water. If you can’t go through an obstacle, go around it. Water does.
+ - The central symbol for Canada-and this based on numerous instances of its occurrence in both English and French Canadian literature-is undoubtedly Survival, la Survivance.
+ - There’s always something to occupy the inquiring mind.
+ - The bell that measures time is ringing.
+ - For if the world treats you well, Sir, you come to believe you are deserving of it.
+ - There’s something to be said for hunger: at least it lets you know you’re still alive.
+ - Because you may think a bed is a peaceful thing, Sir, and to you it may mean rest and comfort and a good night’s sleep. But it isn’t so for everyone; and there are many dangerous things that may take place in a bed.
+ - Those who live alone slide into the habit of vertical eating: why bother with the niceties when there’s no one to share or censure? But laxity in one area may lead to derangement in all.
+ - You say, The sensed absence of God and the sensed presence amount to much the same thing, only in reverse.
+ - I want to be held and told my name. I want to be valued, in ways that I am not; I want to be more than valuable. I repeat my former name; remind myself of what I once could do, how others saw me. I want to steal something.
+ - Your hand is a warm stone I hold between two words.
+ - If I love you, is that a fact or a weapon?
+ - Which of us can resist the temptation of being thought indispensable?
+ - But nothing is more opaque than absolute transparency.
+ - Starlet sex scandal. Giant squid involved.
+ - Our problem right now is that we’re so specialized that if the lights go out, there are a huge number of people who are not going to know what to do. But within every dystopia there’s a little utopia.
+ - You can think clearly only with your clothes on.
+ - He doesn’t know which is worse, a past he can’t regain or a present that will destroy him if he looks at it too clearly. Then there’s the future. Sheer vertigo.
+ - I am not your justification for existence.
+ - All fathers are invisible in daytime; daytime is ruled by mothers and fathers come out at night. Darkness brings home fathers, with their real, unspeakable power. There is more to fathers than meets the eye.
+ - Love is the pursuit of shadows...
+ - And she finds it difficult to believe – that a person would love her even when she isn’t trying. Trying to figure out what other people need, trying to be worthy.
+ - I wanted to forget the past, but it refused to forget me; it waited for sleep, then cornered me.
+ - Oppression involves a failure of the imagination: the failure to imagine the full humanity of other human beings.
+ - Craziness was considered funny, like all other things that were in reality frightening and profoundly shameful.
+ - I’m not sure which is worse: intense feeling, or the absence of it.
+ - So much for endings. Beginnings are always more fun. True connoisseurs, however, are known to favor the stretch in between, since it’s the hardest to do anything with. That’s about all that can be said for plots, which anyway are just one thing after another, a what and a what and a what.
+ - All I can hope for is a reconstruction: the way love feels is always only approximate.
+ - Moira was like an elevator with open sides. She made us dizzy.
+ - Little girls are cute and small only to adults. To one another they are not cute. They are life-sized.
+ - Vanity is becoming a nuisance, I can see why women give it up, eventually. But I’m not ready for that yet.
+ - I’ll make you mine, lovers said in old books. They never said, I’ll make you me.
+ - How easy it is to invent a humanity, for anyone at all.
+ - Science and fiction both begin with similar questions: What if? Why? How does it all work? But they focus on different areas of life on earth.
+ - My good intentions are completely lethal.
+ - The young habitually mistake lust for love, they’re infested with idealism of all kinds.
+ - Where do the words go when we have said them?
+ - If a stranger taps you on the ass and says, “How’s the little lady today!” you will probably cringe. But if he’s an American, he’s only being friendly.
+ - Some of our earliest writing, in cuneiform, was about who owes what.
+ - Before the Civil War, Canada was at the top of the underground railroad. If you made it into Canada, you were safe unless someone came and hauled you back. That was also true during the Vietnam War for draft resisters.
+ - Some bioengineering is good, especially if it results in plants that are more drought-resistant or perennial food crops.
+ - Victorian literature was my subject at Harvard.
+ - When demons are required someone will always be found to supply the part, and whether you step forward or are pushed is all the same in the end.
+ - Human understanding is fallible, and we see through a glass, darkly. Any religion is a shadow of God. But the shadows of God are not God.
+ - But most hearts say, I want, I want, I want, I want. My heart is more duplicitous, though no twin as I once thought. It says, I want, I don’t want, I want, and then a pause. It forces me to listen...
+ - So much better to travel than to arrive.
+ - Why is it we want so badly to memorialize ourselves? Even while we’re still alive. We wish to assert our existence, like dogs peeing on fire hydrants.
+ - Our biggest technology that we ever, ever invented was articulated language with built-out grammar. It is that that allows us to imagine things far in the future and things way back in the past.
+ - What a moron I was to think you were sweet and innocent, when it turns out you were actually college-educated the whole time!
+ - I planned my death carefully, unlike my life, which meandered along from one thing to another, despite my feeble attempts to control it.
+ - A prison does not only lock its inmates inside, it keeps all others out. Her strongest prison is of her own construction.
+ - You can wipe your feet on me, twist my motives around all you like, you can dump millstones on my head and drown me in the river, but you can’t get me out of the story. I’m the plot, babe, and don’t ever forget it.
+ - The use of “religion” as an excuse to repress the freedom of expression and to deny human rights is not confined to any country or time.
+ - If one of the arguments against eating meat is to do with cruelty and animal intelligence, then lab meat avoids that. There’s also the environmental argument for it.
+ - I don’t think I solve problems in my poetry; I think I uncover the problems.
+ - As human beings, we are always torn between individual freedom and the ability of choose our actions, and the need for at least enough social structure so that anarchy, chaos, and warlordery – or the war of all against all – can be avoided.
+ - Madness is only an amplification of what you already are.
+ - Nevertheless, blood is thicker than water, as anyone knows who has tasted both.
+ - I myself have 12 hats, and each one represents a different personality. Why just be yourself?
+ - Inside the peach, there is a stone.
+ - Kill what you can’t save what you can’t eat throw out what you can’t throw out bury What you can’t bury give away what you can’t give away you must carry with you, it is always heavier than you thought.
+ - This afternoon held that special quality of mournful emptiness I’ve connected with late Sunday afternoons ever since childhood: the feeling of having nothing to do.
+ - And consider: it is loss to which everything flows, absence in which everything flowers.
+ - She knows herself to be at the mercy of events, and she knows by now that events have no mercy.
+ - I was born in the Ottawa General Hospital right after the Gray Cup Football Game in 1939. Six months later, I was backpacked into the Quebec bush. I grew up in and out of the bush, in and out of Ottawa, Sault Ste. Marie and Toronto.
+ - Happiness is a garden walled with glass: there’s no way in or out.
+ - Fatigue is here, in my body, in my legs and eyes. That is what gets you in the end. Faith is only a word, embroidered.
+ - Cleverness is a quality a man likes to have in his wife as long as she is some distance away from him. Up close, he’ll take kindness any day of the week, if there’s nothing more alluring to be had.
+ - Time in dreams is frozen. You can never get away from where you’ve been.
+ - But some people can’t tell where it hurts. They can’t calm down. They can’t ever stop howling.
+ - Messy love is better than none, I guess. I am no authority on sane living.
+ - Canada is a balloon-puncturing country. You are not really allowed to be an icon unless you also make an idiot of yourself.
+ - Ah men, why do you want all this attention? I can write poems for myself, make love to a doorknob if absolutely necessary. What do you have to offer me I can’t find otherwise except humiliation? Which I no longer need.
+ - You refuse to own yourself, you permit others to do it for you.
+ - One of the gravestones in the cemetery near the earliest church has an anchor on it and an hourglass, and the words In Hope. In Hope. Why did they put that above a dead person? Was it the corpse hoping, or those still alive?
+ - They seemed to be able to choose. We seemed to be able to choose, then. We were a society dying of too much choice.
+ - I wait. I compose myself. My self is a thing I must now compose, as one composes a speech. What I must present is a made thing, not something born.
+ - If your not annoying somebody, you’re not alive.
+ - Hatred would have been easier. With hatred, I would have known what to do. Hatred is clear, metallic, one-handed, unwavering; unlike love.
+ - A home filled with nothing but yourself. It’s heavy, that lightness. It’s crushing, that emptiness.
+ - Without the protection of surliness and levity, all children would be crushed by the past – the past of others, loaded onto their shoulders. Selfishness is their saving grace.
+ - To want is to have a weakness.
+ - Science fiction is filled with Martians and space travel to other planets, and things like that.
+ - Time rises and rises, and when it reaches the level of your eyes you drown.
+ - A man is just a woman’s strategy for making other women.
+ - Happy as a clam, is what my mother says for happy. I am happy as a clam: hard-shelled, firmly closed.
+ - All stories are about wolves. All worth repeating, that is. Anything else is sentimental drivel.
+ - If you get hungry enough, they say, you start eating your own heart.
+ - You can forget who you are if you’re alone too much.
+ - Beginnings are sudden, but also insidious. They creep up on you sideways, they keep to the shadows, they lurk unrecognized. Then, later, they spring.
+ - I knew what love was supposed to be: obsession with undertones of nausea.
+ - We do not know how we’d behave. But a lot of people facing fascism didn’t become fascists. I don’t happen to believe that we are all monsters.
+ - There were a lot of gods. Gods always come in handy, they justify almost anything.
+ - He’d developed a strangely tender feeling towards such words, as if they were children abandoned in the woods and it was his duty to rescue them.
+ - Eating is our earliest metaphor, preceding our consciousness of gender difference, race, nationality, and language. We eat before we talk.
+ - It isn’t running away they’re afraid of. We wouldn’t get far. It’s those other escapes, the ones you can open in yourself, given a cutting edge.
+ - I’m a fool, to confuse this with goodness. I am not good. I know too much to be good. I know myself. I know myself to be vengeful, greedy, secretive and sly.
+ - Snowman wakes before dawn.
+ - Time folds you in its arms and gives you one last kiss, and then it flattens you out and folds you up and tucks you away until it’s time for you to become someone else’s past time, and then time folds again.
+ - Love was like a steamroller. There was no avoiding it; it went over you and you came out flat.
+ - They spent the first three years of school getting you to pretend stuff and then the rest of it marking you down if you did the same thing.
+ - A lot of being a poet consists of willed ignorance. If you woke up from your trance and realized the nature of the life-threatening and dignity-destroying precipice you were walking along, you would switch into actuarial sciences immediately.
+ - People cry at weddings for the same reason they cry at happy endings: because they so desperately want to believe in something they know is not credible.
+ - A language is everything you do.
+ - Every habit he’s ever had is still there in his body, lying dormant like flowers in the desert. Given the right conditions, all his old addictions would burst into full and luxuriant bloom.
+ - Human reason is a pin dancing on the head of an angel, so small is it in comparison to the Divine vastness that encircles us.
+ - I hate to tell you this, but you will never actually go to a galaxy far, far away and encounter Darth Vader. That’s science fiction; it isn’t going to happen.
+ - A fist is more than the sum of its fingers.
+ - Even an obvious fabrication is some comfort when you have few others.
+ - Canadians are fond of a good disaster, especially if it has ice, water, or snow in it. You thought the national flag was about a leaf, didn’t you? Look harder. It’s where someone got axed in the snow.
+ - I began to forget myself in the middle of sentences.
+ - At the very least we want a witness. We can’t stand the idea of our own voices falling silent finally, like a radio running down.
+ - A suicide is both a rebuke to the living and a puzzle that defies them to solve it. Like a poem, suicide is finished and refuses to answer questions as to its final cause.
+ - We have been shark to one another, but also lifeboat.
+ - Happiness is a garden walled with glass: there’s no way in or out. In Paradise there are no stories, because there are no journeys. It’s loss and regret and misery and yearning that drive the story forward, along its twisted road.
+ - The past is a closed door.
+ - It’s a lifelong failing: she has never been prepared. But how can you have a sense of wonder if you’re prepared for everything? Prepared for the sunset. Prepared for the moonrise. Prepared for the ice storm. What a flat existence that would be.
+ - For drinking Life there are two cups: The No Cup is bitter, the Yes Cup is yummy – Now, which one would you rather have in your tummy?
+ - It made him feel invisible – not that he wanted to feel anything else.
+ - Where there’s a doctor it’s always a bad sign. Even when they are not doing the killing themselves it means a death is close, and in that way they are like ravens or crows.
+ - You don’t look back along time but down through it, like water. Sometimes this comes to the surface, sometimes that, sometimes nothing. Nothing goes away.
+ - It’s clear, it’s fresh, like a mint candy.
+ - I could end this with a moral, as if this were a fable about animals, though no fables are really about animals.
+ - We battled in secret, undeclared, and after a while I no longer fought back because I never won. The only defense was flight, invisibility.
+ - Debt is part of the human condition. Civilization is based on exchanges – on gifts, trades, loans – and the revenges and insults that come when they are not paid back.
+ - Being edited is like falling face down into a threshing machine.
+ - There are some virtues to not saying what you think all the time.
+ - The fact is that blank pages inspire me with terror. What will I put on them? Will it be good enough? Will I have to throw it out?
+ - At moments like this I envy those who have found a safe haven in which to bestow their hearts; or perhaps I envy them for having a heart to bestow. I often feel that I myself am without one, and possess in its stead merely a heart shaped stone.
+ - I’m a strict, strict agnostic. It’s very different from a casual, ‘I don’t know.’ It’s that you cannot present as knowledge something that is not knowledge. You can present it as faith, you can present it as belief, but you can’t present it as fact.
+ - Never pray for justice, because you might get some.
+ - Maybe sadness was a kind of hunger, she thought. Maybe the two went together.
+ - I think the book you always like best is the one you’re about to write.
+ - Faith is only a word, embroidered.
+ - Social media is called social media for a reason. It lends itself to sharing rather than horn-tooting.
+ - There’s blood, a taste I remember. It tastes of orange popsicles, penny gumballs, red licorice, gnawed hair, dirty ice.
+ - All fat women look the same; they all look 42.
+ - Old lovers go the way of old photographs, bleaching out gradually as in a slow bath of acid: first the moles and pimples, then the shadings. Then the faces themselves, until nothing remains but the general outlines.
+ - The thing about delirium is you think it’s great, but it actually isn’t.
+ - If you really want to stay the same age you are now forever and ever, she’d be thinking, try jumping off the roof: death’s a sure-fire method for stopping time.
+ - I am not a saint or a cripple, I am not a wound; now I will see whether I am a coward.
+ - I don’t think of poetry as a ‘rational’ activity but as an aural one. My poems usually begin with words or phrases which appeal more because of their sound than their meaning, and the movement and phrasing of a poem are very important to me.
+ - The animals have no need for speech, why talk when you are a word.
+ - Anaesthesia, that’s one technique: if it hurts, invent a different pain.
+ - Good writing takes place at intersections, at what you might call knots, at places where the society is snarled or knotted up.
+ - Poetry isn’t written from the idea down. It’s written from the phrase, line and stanza up, which is different from what your teacher taught you to do in school.
+ - They will not let you have peace, they don’t want you to have anything they don’t have themselves.
+ - He has been trying to sing Love into existence again And he has failed.
+ - The myth that everyone once read great literature is just a myth.
+ - I see that there will be no end to imperfection, or to doing things the wrong way. Even if you grow up, no matter how hard you scrub, whatever you do, there will always be some other stain or spot on your face or stupid act, somebody frowning.
+ - He considers me also a little fragile because artistic. I need to be cared for, like a potted plant.
+ - Extreme good, extreme evil: the abilities required are similar.
+ - Axiom: you are a sea. Your eye- lids curve over chaos My hands where they touch you, create small inhabited islands soon you will be all earth: a known land, a country.
+ - There’s a difference between describing and evoking something. You can describe something and be quite clinical about it. To evoke it, you call it up in the reader. That’s what writers do when they’re good.
+ - Speculative fiction encompasses that which we could actually do. Sci-fi is that which we’re probably not going to see.
+ - It is my contention that the process of reading is part of the process of writing, the necessary completion without which writing can hardly be said to exist.
+ - You will always have partial points of view, and you’ll always have the story behind the story that hasn’t come out yet. And any form of journalism you’re involved with is going to be up against a biased viewpoint and partial knowledge.
+ - Choice of evils debates always produce extremism – people choose what they hope is the lesser evil, then call it good and demonize the other choice. It will be a challenge for your generation to synthesize – to move beyond Us versus Them, to We.
+ - I’m not sure I really am a Humanist. I describe myself as a rigorous agnostic, which means that you cannot declare as a matter of material truth something that is in fact a matter of spiritual belief.
+ - I spent much of my childhood in northern Quebec, and often there was no radio, no television – there wasn’t a lot to entertain us. When it rained, I stayed inside reading, writing, drawing.
+ - I did not know how to paint or even what to paint, but I knew I had to begin.
+ - We love each other, that’s true whatever it means, but we aren’t good at it; for some it’s a talent, for others only an addiction.
+ - You can wet the rim of a glass and run your finger around the rim and it will make a sound. This is what I feel like: this sound of glass. I feel like the word shatter. I want to be with someone.
+ - It’s evening, one of those gray water-color washes, like liquid dust.
+ - The only way you can write the truth is to assume that what you set down will never be read.
+ - Love is giving, marriage is buying and selling. You can’t put love into a contract.
+ - These things you did were like prayers; you did them and you hoped they would save you. And for the most part they did. Or something did; you could tell by the fact that you were still alive.
+ - Show me a character totally without anxieties and I will show you a boring book.
+ - No one knows what cuases an outer landscape to become an inner one.
+ - I walk away from him. It’s enormously pleasing to me, this walking away. It’s like being able to make people appear and vanish, at will.
+ - He was deciding whether to cut her throat or love her forever.
+ - Knowledge is power only as long as you keep your mouth shut.
+ - What fabrications they are, mothers. Scarecrows, wax dolls for us to stick pins into, crude diagrams. We deny them an existence of their own, we make them up to suit ourselves – our own hungers, our own wishes, our own deficiencies.
+ - A movie about the past is not the same as the past.
+ - A Paradox, the doughnut hole. Empty space, once, but now they’ve learned to market even that. A minus quantity; nothing, rendered edible. I wondered if they might be used-metaphorically, of course-to demonstrate the existence of God. Does naming a sphere of nothingness transmute it into being?
+ - Writing poetry is a state of free float.
+ - When women let their hair down, it means either sexiness or craziness or death, the three by Victorian times having become virtually synonymous.
+ - But I began then to think of time as having a shape, something you could see, like a series of liquid transparencies, one laid on top of another.
+ - Although from you I far must roam, do not be broken hearted. We two, who in the souls are one, are never truly parted.
+ - Here and there are worms, evidence of the fertility of the soil, caught by the sun, half dead; flexible and pink, like lips.
+ - One and one and one and one doesn’t equal four. Each one remains unique, there is no way of joining them together. They cannot be exchanged, one for the other. They cannot replace each other.
+ - Imagine a famine. Now imagine a piece of bread. Both of these things are real but you happen to be in the same room with only one of them. Put yourself into a different room, that’s what the mind is for.
+ - He stops, looks up at this window, and I can see the white oblong of his face. We look at each other. I have no rose to toss, he has no lute. But it’s the same kind of hunger.
+ - These things sneak up on him for no reason, these flashes of irrational happiness. It’s probably a vitamin deficiency.
+ - Writing of the narrative kind, and perhaps all writing, is motivated deep down, by a fear or and fascination with mortality – by a desire to make the risky trip to the underworld and to bring something or someone back from the dead.
+ - We are silent, considering shortfalls. There’s not much time left, for us to become what we once intended. Jon had potential, but it’s not a word that can be used comfortably any more. Potential has a shelf-life.
+ - A reader can never tell if it’s a real thimble or an imaginary thimble, because by the time you’re reading it, they’re the same. It’s a thimble. It’s in the book.
+ - I felt white, drained of blood, cared for, purified. Peaceful.
+ - Things might have been different if she hadn’t been able to drift; if she’d had to concentrate on her next meal, instead of dwelling on all the injuries she felt we’d done her. An unearned income encourages self-pity in those already prone to it.
+ - Forgiving men is so much easier than forgiving women.
+ - There is never only one, of anyone.
+ - Roughing it builds a boy’s character, but only certain kinds of roughing it.
+ - I’m the only person you’ve ever met who has read Longfellow.
+ - I’m working on my own life story. I don’t mean I’m putting it together; no, I’m taking it apart.
+ - Her glass wings are gone.
+ - Don’t eat anything you aren’t prepared to kill. Don’t kill anything you aren’t prepared to eat.
+ - I didn’t go to school for a full year until I was 12. In the summer I was a wild child in the woods, with no shoes, and in the fall it was back to the city, shoe shops and school.
+ - All observations of life are harsh, because life is. I lament that fact, but I cannot change it.
+ - I tend to feel if people say they’re going to do something, they will, if given the chance.
+ - Laughter may instruct but it may also conceal, defending the joker against anger and retaliation: a game is only a game.
+ - Perhaps its not the world that is soundless but we who are deaf.
+ - Today on the way home, it snows. Big, soft caressing flakes fall onto our skin like cold moths; the air fills with feathers.
+ - Sons branch out, but one woman leads to another.
+ - Blondes are like white mice, you only find them in cages. They wouldn’t last long in nature. They’re too conspicuous.
+ - Gardening is not a rational act. What matters is the immersion of the hands in the earth, that ancient ceremony of which the Pope kissingthe tarmac is merely a pallid vestigial remnant.
+ - Walter turned on the radio: electric violins wailing, twisted romance, the four-square beat of heartbreak. Trite suffering, but suffering nonetheless. The entertainment business. What voyeurs we have all become.
+ - For the children with their greedy little mouths represent the future, which like time itself will devour all now alive.
+ - Every night when I go to bed I think, In the morning I will wake up in my own house and things will be back the way they were. It hasn’t happened this morning, either.
+ - I began writing at the age of 5, but there was a dark period between the ages of 8 and 16 when I didn’t write. I started again at 16 and have no idea why, but it was suddenly the only thing I wanted to do.
+ - You can mean more than one. You can mean thousands. I’m not in any immediate danger, I’ll say to you. I’ll pretend you can hear me. But it’s no good, because I know you can’t.
+ - Like many modern poets, I tend to conceal rhymes by placing them in the middle of lines, and to avoid immediate alliteration and assonance in favor of echoes placed later in the poems.
+ - I’m a refugee from the past, and like other refugees I go over the customs and habits of being I’ve left or been forced to leave behind me, and it all seems just as quaint, from here, and I am just as obsessive about it.
+ - I was warped early by Ray Bradbury and Edgar Allan Poe. I was very fond of Franz Kafka.
+ - Fiction is not necessarily about what you know, it’s about how you feel. That is the truth about fiction, and the other truth is that all science is a tool, and we use our tools not to actualise what we know, but to implement how we feel.
+ - I’ve never understood why people consider youth a time of freedom and joy. It’s probably because they have forgotten their own.
+ - Romance takes place in the middle distance. Romance is looking in at yourself through a window clouded with dew. Romance means leaving things out: where life grunts and shuffles, romance only sighs.
+ - Popular art is the dream of society; it does not examine itself.
+ - But in the end, back she comes. There’s no use resisting. She goes to him for amnesia, for oblivion. She renders herself up, is blotted out; enters the darkness of her own body, forgets her name. Immolation is what she wants, however briefly. To exist without boundaries.
+ - You might ‘write from the heart,’ but you’d better polish with your brain.
+ - What a lost person needs is a map of the territory, with his own position marked on it so he can see where he is in relation to everything else.
+ - Repeat reading for me shares a few things with hot-water bottles and thumbsucking: comfort, familiarity, the recurrence of the expected.
+ - Once a month I wake in the night, slippery with terror. I’m afraid, not because there’s someone in the room, in the dark, in the bed, but because there isn’t. I’m afraid of the emptiness, which lies beside me like a corpse.
+ - What we share may be a lot like a traffic accident but we get one another. We are survivors of each other. We have been shark to one another, but also lifeboat. That counts for something.
+ - I always thought eating was a ridiculous activity anyway. I’d get out of it myself if I could, though you’ve got to do it to stay alive, they tell me.
+ - I lie on the floor, washed by nothing and hanging on. I cry at night. I am afraid of hearing voices, or a voice. I have come to the edge, of the land. I could get pushed over.
+ - To take that risk, to offer life and remain alive, open yourself like this and become whole.
+ - But maybe boredom is erotic, when women do it, for men.
+ - If you disagree with your government, that’s political. If you disagree with your government that is approaching theocracy, then you’re evil.
+ - The truth is seldom welcome, especially at dinner.
+ - Thy only authentic ending is the one provided here: John and Mary die, John and Mary die, John and Mary die.
+ - I grew up in the golden age of Flash Gordon and sci-fi.
+ - I was kidnapped by literature at a young age and never wanted to be ransomed.
+ - I am nervous about dogmas of any kind, whether they be religious, political, or anti-religious. Too many heads have rolled because of them.
+ - The heart of Jesus glowed, because it was holy. Holy things glowed in general.
+ - Yelling is a form of publishing.
+ - As soon as you have a language that has a past tense and a future tense you’re going to say, ‘Where did we come from, what happens next?’ The ability to remember the past helps us plan the future.
+ - In Paradise there are no stories, because there are no journeys.
+ - Within one’s own family, money is not the measure of things, unless the person is an absolute Scrooge. Only the most extreme kind of monster would put a price on everything.
+ - Marshall McLuhan is absolutely right, we are always looking in the rear view mirror.
+ - The object is very clear in the fight against racism; you have reasons why you’re opposed to it. But when you’re writing a novel, you don’t want the reader to come out of it voting yes or no to some question. Life is more complicated than that.
+ - The alcohol smell is on my fingers, cold and remote, piercing like a steel pin going in. It smells like white enamel basins. When I look up at the stars in the nighttime, cold and white and sharp, I think they must smell like that.
+ - I don’t know why they are all so eager to be remembered. What good will it do them? There are some things that should be forgotten by everyone, and never spoken of again.
+ - You hear doom and gloom about the Internet ruining young people’s command of English – that’s nonsense.
+ - Hunger is a powerful reorganizer of the conscience.
+ - Kafka thought his stories were hilarious. We don’t necessarily have that reaction to them, but he certainly laughed his head off every time he read them out loud.
+ - I am certain that a Sewing Machine would relieve as much human suffering as a hundred Lunatic Asylums, and possibly a good deal more.
+ - I’m not interested in cutting the feet off my characters or stretching them to make them fit my certain political view.
+ - The heart with letters on it shining like a light bulb through the trim hole painted in the chest, art history.
+ - I don’t think the relationship between novels and realities are one to one. Of course novels play different roles. It’s essentially just a long narrative form. What you use that long narrative form for can be very different.
+ - I was horrified in high school by the fate of the hanged maids at the end of the Odyssey; it seemed unfair to me, even then.
+ - Writing is very improvisational. It’s like trying to fix a broken sewing machine with safety pins and rubber bands. A lot of tinkering.
+ - As an artist your first loyalty is to your art. Unless this is the case, you’re going to be a second-rate artist.
+ - She had no images of this love. She could offer no anecdotes. It was a belief rather than a memory.
+ - I didn’t much like it, this grudge-holding against the past.
+ - You can’t keep a cool head when you’re drowning in love. You just trash around a lot and scream, and wear yourself out.
+ - It’s his word against the Commander’s, unless he wants to head a posse. Kick in the door, and what did I tell you? Caught in the act, sinfully Scrabbling. Quick, eat those words.
+ - People dressed in a certain kind of clothing are never wrong. Also they never fart.
+ - It’s rather useless to write a gripping narrative with nothing in it but climate change because novels are always about people even if they purport to be about rabbits or robots.
+ - Some travelers think they want to go to foreign places but are dismayed when the places turn out actually to be foreign.
+ - Our heaven is their hell, said God. I like a balanced universe.
+ - The act of making a photograph is less a question of what is being looked at than how.
+ - Genres aren’t closed boxes. Stuff flows back and forth across the borders all the time.
+ - We thought we were running away from the grownups, and now we are the grownups.
+ - Pink is supposed to weaken your enemies, make them go soft on you, which must be why it’s used for baby girls. It’s a wonder the military hasn’t got on to this.
+ - Anyway, maybe there weren’t any solutions. Human society, corpses and rubble. It never learned, it made the same cretinous mistakes over and over, trading short-term gain for long-term pain.
+ - The reason they invented coffins, to lock the dead in, preserve them, they put makeup on them; they didn’t want them spreading or changing into anything else. The stone with the name and date was on them to weight them down.
+ - No luck was dumb because luck was just another name for miracle.
+ - I have been known to buy e-versions of my books because I was in a hotel room and I needed one right away to look up something in it; very handy for that – you can have it just the next minute; you can press the button and just have it.
+ - The truly fearless think of themselves as normal.
+ - I became a poet at the age of sixteen. I did not intend to do it. It was not my fault.
+ - Too much God and you overdose. God needs to be filtered.
+ - When you’re unhinged, things make their way out of you that should be kept inside, and other things get in that ought to be shut out. The locks lose their powers. The guards go to sleep. The passwords fail.
+ - Every budding dictatorship begins by muzzling the artists, because they’re a mouthy lot and they don’t line up and salute very easily.
+ - When I finally went to school I had to adjust to other girls and learn their fiendish ways. Having learnt them, I turned them on all and sundry.
+ - Why is it he feels some line has been crossed, some boundary transgressed? How much is too much, how far is too far?
+ - Why are we designed to see the world as supremely beautiful just as we’re about to be snuffed? Do rabbits feel the same as the fox teeth bite down on their necks? Is it mercy?
+ - His father was self-made, but his mother was constructed by others, and such edifices are notoriously fragile.
+ - As with all knowledge, once you knew it, you couldn’t imagine how it was that you hadn’t known it before.
+ - The newspaper journalists like to believe the worst; they can sell more papers that way, as one of them told me himself; for even upstanding and respectable people dearly love to read ill of others.
+ - It isn’t chic for women to be drunk. Men drunks are more excusable, more easily absolved, but why? It must be thought they have better reasons.
+ - Where to start is the problem, because nothing begins when it begins and nothing’s over when it’s over, and everything needs a preface: a preface, a postscript, a chart of simultaneous events.
+ - It’s a feature of our age that if you write a work of fiction, everyone assumes that the people and events in it are disguised biography – but if you write your biography, it’s equally assumed you’re lying your head off.
+ - The threat to the planet is us. It’s actually not a threat to the planet – it’s a threat to us.
+ - Though as he’d say, what is ‘belief’ but a willingness to suspend the negatives?
+ - History, as I recall, was never this winsome, and especially not this clean, but the real thing would never sell: most people prefer a past in which nothing smells.
+ - So this was the rest of his life. It felt like a party to which he’d been invited, but at an address he couldn’t actually locate. Someone must be having fun at it, this life of his; only, right at the moment, it wasn’t him.
+ - The story as told in The Odyssey doesn’t hold water. There are too many inconsistencies.
+ - Everyone thinks writers must know more about the inside of the human head, but that’s wrong. They know less, that’s why they write. Trying to find out what everyone else takes for granted.
+ - Their mothers had finally caught up to them and been proven right. There were consequences after all but they were the consequences to things you didn’t even know you’d done.
+ - The body is so easily damaged, so easily disposed of, water and chemicals is all it is, hardly more to it than a jellyfish drying on sand.
+ - He needed to exist only in the present, without guilt, without expectation.
+ - You quickly find, when you are a hand-reader as I am, that nothing interests people so much as themselves.
+ - Love’s never a fair trade.
+ - Jimmy had been full of himself back then, thinks Snowman with indulgence and a little envy. He’d been unhappy too, of course. It went without saying, his unhappiness. He’d put a lot of energy into it.
+ - I want, I don’t want. How can one live with such a heart?
+ - Reading is one of the most individual things that happens. So every reader is going to read a piece in a slightly different way, sometimes a radically different way.
+ - Nothing is more difficult than to understand the dead, I’ve found; but nothing is more dangerous than to ignore them.
+ - In the evenings there’s been thunder, a distant bumping and stumbling, like God on a sullen binge.
+ - We slept in what had once been the gymnasium.
+ - The beginning of Canadian cultural nationalism was not ‘Am I really that oppressed?’ but ‘Am I really that boring?’
+ - Our generation in the west was lucky: we had readymade gateways. We had books, paper, teachers, schools and libraries. But many in the world lack these luxuries. How do you practice without such tryout venues?
+ - I’m not used to girls, or familiar with their customs. I feel awkward around them, I don’t know what to say. I know the unspoken rules of boys, but with girls I sense that I am always on the verge of some unforeseen, calamitous blunder.
+ - As God contains all good things, He must also contain a sense of playfulness – a gift he has shared with Creatures other than ourselves, as witness the tricks Crows play, and the sportiveness of Squirrels, and the frolicking of Kittens.
+ - Why does the mind do such things? Turn on us, rend us, dig the claws in. If you get hungry enough, they say, you start eating your own heart. Maybe it’s much the same.
+ - Wars happen because the ones who start them think they can win.
+ - I never say I’m an “ist” of any kind unless I know how the other person is defining it.
+ - Once you publish a book, it is out of your control. You cannot dictate how people read it.
+ - My brother and I were both teenage writers, and he was, I have to say, better than I was, but he went into science, and I went into writing.
+ - You need a certain amount of nerve to be a writer.
+ - I write as if I’ve lived a lot of things I haven’t lived.
+ - We pulled the seeds out and scattered them on their flossy parachutes, leaving only the leathery brownish yellow tongue, soft as the inside of an elbow.
+ - There’s nothing like drawing a thing to make you really see it.
+ - When they’re gone out of his head, these words, they’ll be gone, everywhere, forever. As if they had never been.
+ - I learned to read very early so I could read the comics, which I then started to draw.
+ - To live in prison is to live without mirrors. To live without mirrors is to live without the self.
+ - How easy it is, treachery. You just slide into it.
+ - I’m bad at picking heroes.
+ - It’s only afterwards that it becomes anything like a story at all. When you’re telling it, to yourself or to someone else.
+ - Sometimes reactions can be quite surprising: readers like things that you, the author, feel you’ve barely gotten away with; or they dislike one of the parts you secretly think is one of your little gems.
+ - Because I am a mother, I am capable of being shocked: as I never was when I was not one.
+ - That is what you have to do before you kill, I thought. You have to create an it, where none was before.
+ - Science never makes things that do not have to do with what we feel, by which I mean what we want and what we fear.
+ - The proper study of Mankind is Everything.
+ - I used to think of my body as an instrument, of pleasure, or a means of transportation, or an implement for the accomplishment of my will.
+ - My brother and I were both good at science, and we were both good at English literature. Either one of us could have gone either way.
+ - If I were going to convert to any religion I would probably choose Catholicism because it at least has female saints and the Virgin Mary.
+ - Immortality,? said Crake, ? is a concept. If you take ‘mortality’ as being, not death, but the foreknowledge of it and the fear of it, then ‘immortality’ is the absence of such fear. Babies are immortal. Edit out the fear, and you’ll be...
+ - A ratio of failures is built into the process of writing. The wastebasket has evolved for a reason.
+ - Despite their cool poses they wear their cravings on the outside, like the suckers on a squid. They want it all.
+ - I have a big following among the biogeeks of this world. Nobody ever puts them in books.
+ - If you want what’s in the package you should at least know how to get the string off, is what I say.
+ - Jimmy found himself wishing to make a dent in Crake, get a reaction; it was one of his weaknesses, to care what other people thought of him.
+ - Now I can see how that can happen. You can fall in love with anybody – a fool, a criminal, a nothing. There are no good rules.
+ - You can examine the whole 19th century from the point of view of who would have maxed out their credit cards. Emma Bovary would have maxed hers out. No question. Mr. Scrooge would not have. He would have snipped his up.
+ - Perhaps they were looking for passion; perhaps they delved into this book as into a mysterious parcel – a gift box at the bottom of which, hidden in layers of rustling tissue paper, lay something they’d always longed for but couldn’t ever grasp.
+ - I suppose it’s everyone’s fate to be reduced to quaintness by those younger than themselves.
+
+500 quotes

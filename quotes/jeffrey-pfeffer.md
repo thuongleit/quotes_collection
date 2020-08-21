@@ -1,0 +1,26 @@
+ - Successful organizations understand the importance of implementation, not just strategy, and, moreover, recognize the crucial role of their people in this process.
+ - Your most important task as a leader is to teach people how to think and ask the right questions so that the world doesn’t go to hell if you take a day off.
+ - You can’t be normal and expect abnormal returns.
+ - Personal growth and professional development require mostly being treated like an adult, which is pretty much the opposite of what happens in most workplaces. People need to be able to make decisions. To do that effectively, they need information and training in how to use it.
+ - Knowledge is only useful if you do something with it.
+ - So, the three qualities of a workplace that would develop people would be information sharing, investing in the training of the workforce, and giving employees the ability to use their training and information to make decisions.
+ - Being memorable equals getting picked.
+ - Advocates of knowledge management as the next big thing have advanced the proposition that what companies need is more intellectual capital. While that is undeniably true, its only partly true. What those advocates are forgetting is that knowledge is only useful if you do something with it.
+ - Doris Kearns Goodwin’s Team of Rivals is instructive in painting a realistic portrayal of Lincoln and his methods for accomplishing his objectives. In fact, many good political biographies are useful in learning about power, strategy, and decision-making.
+ - People who don’t have as much power as they would like often begin by attributing their difficulties to the environment – competitors, bosses, economic circumstances, and so forth. But in reality people are customarily their own biggest impediment to being as powerful as they would like.
+ - People will envy you to the extent that you start out with a group of people and you rise up the organization faster than them. Get over what your peers are thinking about you because your peers are also your competitors.
+ - Almost no one as I think most leadership books are a joke. They are, as I note in Leadership BS, frequently based on wishes and hopes rather than reality, on inspiring stories rather than systematic social science, and on “oughts” rather than “is.”
+ - I am increasingly convinced that people who have power are not necessarily smarter than others. Beyond a certain level of intelligence and level in the hierarchy, everyone is smart. What differentiates people is their political skill and savvy.
+ - I am not sure any of the material in Leadership BS would be helpful for small companies and certainly not their owners. Of course, even owners have bosses and need to worry about keeping their jobs – so Power might be more appropriate.
+ - Trust is about keeping commitments, but in many instances, circumstances change and organizations therefore shed commitments, things such as retiree medical benefits, pension obligations, and even employees without much remorse or maybe even hesitation.
+ - With respect to trust, people tell me that it is essential for organizational functioning. Maybe, but most surveys of trust find that trust in leaders is low and nonetheless, organizations role along quite nicely.
+ - My overall recommendation: for decades corporate policy manuals and HR departments have told people they are responsible for their own careers. It’s about time people really heeded those warnings.
+ - Most organisations say they want creativity, but really they do not.
+ - You are more likely to acquire power by narrowing your focus and applying your energies, like the sun’s rays, to a limited range of activities in a small number of domains.
+ - Leaders are not modest, and more importantly, the extensive social science research on narcissism, self-promotion, and similar constructs shows that these qualities and behaviors are useful for getting hired, achieving promotions, keeping one’s job, and obtaining a higher salary.
+ - The class focuses intensely on making people more comfortable with doing a wider range of things – such as networking, self-promotion, building their own personal brand, cleverly acquiring resources, getting known – that they may have been less comfortable with before.
+ - Point at solutions instead of at each other.
+ - Volumes in the series on Lyndon Johnson, including Master of the Senate and The Path Power, describe how Johnson created resources out of nothing and built a substantial power base.
+ - Witness Donald Trump’s current presidential campaign. So first people need to find the white spaces, the unexploited or underexploited niches where there is less competition and more opportunity.
+
+24 quotes

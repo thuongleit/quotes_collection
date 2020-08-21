@@ -1,0 +1,64 @@
+ - Stay strong. Stand up. Have a voice.
+ - As long as you’ve done your best, making mistakes doesn’t matter. You and I are human; we will mess up. What counts is learning from your mistakes and getting back up when life has knocked you down.
+ - Don’t force anything. Find what you love and stick with it.
+ - I’m trying to stay as calm as possible and focus one day at a time, but when reality sets in, I feel everything: anxiety, excitement, nerves, pressure and joy.
+ - I started taking gymnastic classes when I was 3 years old.
+ - My other life keeps me calm and grounded and normal.
+ - I set my phone with motivational quotes to go off on random days and times. Like, ‘You’re stronger than you think you are.’ I’ll forget about it, then one will pop up and it’ll give me a little boost.
+ - Gymnastics has made me strong. I feel like it broke me down to my lowest point, but at the same time, it has given me the greatest strength anyone could ask for.
+ - Gymnastics taught me everything – life lessons, responsibility and discipline and respect.
+ - To have any doubt in your body is the biggest weakness an athlete can have. There are times when I physically can’t get myself to go for a skill because I’m thinking, ‘My knee hurts really bad.’
+ - I fell in love with running, and I finally have time to do it now.
+ - Retiring was scary and it was tough to give up gymnastics, but so many great opportunities have come from it that I never expected.
+ - I get less and less sleep these days, so when I have any down time all I want to do is sleep!
+ - I always have someone to look up to, and I think it helps me with motivating myself.
+ - I started from zero and went back to the basics in gymnastics.
+ - Injury taught me I need to learn how to face challenges.
+ - If you lose the nerves, you lose the sport.
+ - I had a constant fear, a constant little doubt in my mind: ‘OK, I’m getting ready to do my standing back full on beam and I might re-tear my ACL.’
+ - To have any doubt in your body is the biggest weakness an athlete can have.
+ - Gymnastics is not only a good thing to live by, but it is important to understand how it does help you in life.
+ - Everything for me started with my love of the sport. In society we’re losing the fun with kids and pushing success on them too hard. Success comes from fun.
+ - Gymnastics is so complex.
+ - I’ve never had a teammate competing with me my whole life.
+ - Everything is about your movements and precision and timing, which is what gymnastics is about.
+ - Staying healthy and consistent is paramount.
+ - Something my mom taught me when I was little is that everything happens for a reason.
+ - I was at the Olympic Games winning medals and I still doubted my image. I doubted what I looked like. That’s sad.
+ - When I was younger, my coach, Liang Chow, made all the decisions. I would go to the gym for practice, do exactly what Chow told me to do, go home, come back and start all over again. If Chow told me to do 50 squat jumps, I did 50 squat jumps.
+ - In some ways the ACL tear was a blessing. I had hesitated to return to elite gymnastics after the 2008 Olympics. I told myself I had already accomplished so much, and the road was just going to get harder if I continued.
+ - I’m doing four hours of gymnastics training a day, six days a week and then an extra two to three hours in a fitness center as well.
+ - I don’t call them sacrifices. I call them exchanges.
+ - I love lean meats like chicken, turkey. I’m obsessed with sushi and fish in general. I eat a lot of veggies and hummus.
+ - I had surgery to repair the ACL in February 2010 and was back in the gym by June, but rushed things too quickly and ended up re-tearing my MCL in September.
+ - I always feel like I’m the young one, I’m the small one.
+ - It might have been easier to retire, to say my knee couldn’t handle it and let that be that. At the same time, the prospect of not being able to compete in gymnastics anymore was heartbreaking.
+ - Image isn’t everything, It’s what comes from your heart, and what you learn and what you say and how you act that means more than anything.
+ - I still can’t believe I’m an Olympic athlete.
+ - My coach, Liang Chow, had one rule while I was training for the 2008 Olympics: no skiing. I could do anything I wanted outside the gym, he said, except ski.
+ - With literature, sometimes a book is presented in the media as being say, a Muslim story or an African story, when essentially it’s a universal story which we can all relate to it, no matter what race or social background we come from.
+ - I live for Pilates reformer class. I go at least three times a week. It’s a great way to lengthen your muscles, stretch, and kind of relax your mind.
+ - When I was 3 my parents put me in gymnastics because I was a bundle of energy and they just didn’t know what to do with me! They put me in a Tots class and I just fell in love with it.
+ - I have a healthy lifestyle, but there’s nothing you can really do to prevent from rolling an ankle or something like that.
+ - It sounds funny, but the 2008 Olympics were something that just kind of happened, and I was lucky they came at a point when I was uninjured and well prepared. As a gymnast, you can’t ask for much more.
+ - I fell in love with gymnastics. I love what I do now. I work with people that I love to be around. Success comes from that.
+ - I think about my goals. There were a lot of times in gymnastics when I really didn’t want to go in and train, but you can’t make it to the Olympics if you don’t train!
+ - After 13 years of hard landings in gymnastics, one ski run had delivered the biggest injury of my career.
+ - Of course, when you’re training your whole life to get to the Olympics, you train for gold.
+ - I pay attention to my diet to be a healthier gymnast, but I’m not obsessive over it.
+ - I know how much more I need to do to be where I want.
+ - Were taught at such a young age that you can always be better and that youre never perfect and that youre never good enough.
+ - I don’t think I’ve ever not gotten nervous. When you work so hard for one special day or routine, you want to perform it better than you ever have. We always say at our gym, If you lose the nerves, you lose the sport.
+ - To finish off this whole Olympics by finally getting the gold medal, it’s the best feeling in the world.
+ - Well-I don’t know if anyone would really ask me to prom.
+ - People only see gymnastics on TV and in the Olympics at such an extreme. So it can be intimidating.
+ - I have a chaperone everywhere I go – my mom.
+ - A comeback in gymnastics is almost impossible in itself.
+ - People put too much emphasis on looks.
+ - I have a lot of expectations and a lot of goals I want to fulfill, but the biggest dream is still to make the Olympic team for London.
+ - I missed being considered an athlete and having that competitive drive, and missed having something to work for every day. I’d taken two and a half years away from the sport and was out of shape. I wanted to get back to where I was in 2008.
+ - I told myself after 2008 that I was done for good. But they say you can’t keep a gymnast away from her sport.
+ - I don’t want to be all power and muscle.
+ - My approach to gymnastics in Beijing was heavily based on the amount of difficulty I could do.
+
+62 quotes

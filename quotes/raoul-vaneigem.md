@@ -1,0 +1,36 @@
+ - The world of the commodity is a world upside-down, which bases itself not upon life but upon the transformation of life into work.
+ - In an industrial society which confuses work and productivity, the necessity of producing has always been an enemy of the desire to create.
+ - Who wants a world in which the guarantee that we shall not die of starvation entails the risk of dying of boredom?
+ - The work of art of the future will be the construction of a passionate life.
+ - It is entirely up to us to invent our own lives.
+ - In the twentieth century, death terrifies men less than the absence of real life.
+ - Hope is the leash of submission.
+ - We have a world of pleasure to win, and nothing to lose but boredom.
+ - People are bewitched into believing that time slips away, and this belief is the basis of time actually slipping away.
+ - Daydreaming subverts the world.
+ - People who talk about revolution and class struggle without referring explicitly to everyday life, without understanding what is subversive about love and what is positive in the refusal of constraints, such people have a corpse in their mouth.
+ - In the twentieth century, death terrifies men less than the absence of real life. All these dead, mechanized, specialized actions, stealing a little bit of life a thousand times a day until the mind and body are exhausted, until that death which is not the.
+ - The history of our times calls to mind those Walt Disney characters who rush madly over the edge of a cliff without seeing it, so that the power of their imagination keeps them suspended in mid-air; but as soon as they look down and see where they are, they fall.
+ - Purchasing power is a license to purchase power.
+ - People without imagination are beginning to tire of the importance attached to comfort, to culture, to leisure, to all that destroys imagination. This means that people are not really tired of comfort, culture and leisure, but of the use to which they are.
+ - Work to survive, survive by consuming, survive to consume; the hellish cycle is complete.
+ - What could I wish for the present but to take the greatest pleasure in being what I am?
+ - The same people who are murdered slowly in the mechanized slaughterhouses of work are also arguing, singing, drinking, dancing, making love, holding the streets, picking up weapons and inventing a new poetry.
+ - To work for delight and authentic festivity is barely distinguishable from preparing for a general insurrection.
+ - Production and consumption are the nipples of modern society. Thus suckled, humanity grows in strength and beauty; rising standard of living, all modern conveniences, distractions of all kinds, culture for all, the comfort of your dreams.
+ - I do not dream of a gentle revolution. My passion runs to the violence of supersession, the ferocity of a life that renounces nothing.
+ - We can escape the commonplace only by manipulating it, controlling it, thrusting it into our dreams or surrendering it to the free play of our subjectivity.
+ - Work is the opposite of creativity.
+ - Everything has been said yet few have taken advantage of it. Since all our knowledge is essentially banal, it can only be of value to minds that are not.
+ - In the kingdom of consumption the citizen is king. A democratic monarchy: equality before consumption, fraternity in consumption, and freedom through consumption.
+ - Daily life is governed by an economic system in which the production and consumption of insults tends to balance out.
+ - There are more truths in twenty-four hours of a man’s life than in all the philosophies.
+ - Our task is not to rediscover nature but to remake it.
+ - Never before has a civilization reached such a degree of a contempt for life; never before has a generation, drowned in mortification, felt such a rage to live.
+ - Each component of the organism, like the individual in the social body, possesses the capacity for enjoyment of the self through sharing with others.
+ - Suffering is the pain of constraints. An atom of pure delight, no matter how small, can hold it at bay.
+ - The eruption of lived pleasure is such that in losing myself I find myself; forgetting that I exist, I realize myself.
+ - As poverty has been reduced in terms of mere survival, it has become more profound in terms of our way of life.
+ - To be rich nowadays merely means to possess a large number of poor objects.
+
+34 quotes

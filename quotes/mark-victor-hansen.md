@@ -1,0 +1,145 @@
+ - Each one, reach one. Each one, teach one. Until all are taught.
+ - If you do things the same way you’ve always done them, you’ll get the same outcomes you’ve always gotten. In order to change your outcomes, you’ve got to do things differently.
+ - System: Save yourself time, energy and money.
+ - What you want, wants you.
+ - Your belief determines your action and your action determines your results, but first you have to believe.
+ - Focused mind power is one of the strongest forces on earth.
+ - Continued persistence overcomes almost all resistance.
+ - By recording your dreams and goals on paper, you set in motion the process of becoming the person you most want to be. Put your future in good hands – your own.
+ - Obstacles are only in your view when you don’t have a clear enough focus on your goal.
+ - You control your future, your destiny. What you think about comes about.
+ - The law of self-fulfilling prophecy says that you get what you expect. So why not create great expectations and the highest vision possible of yourself and your world?
+ - Discover the joy of giving and you will discover the reason for living.
+ - The only waste of human resources is letting them go unused.
+ - Put your future in good hands. Your own.
+ - Setting goals is one of the most important things you can do to guarantee your personal, professional and financial success. Goals are like a road map to your target destination. Each goal accomplished is another mile behind you on the way to where you want to be.
+ - When you know clearly what you want, you’ll wake up every morning excited about life.
+ - You can’t get right answers if you’re asking the wrong questions.
+ - Graveyards are filled with books that were never written, songs that were never sung, words that were never spoken, things that were never done.
+ - Every time you get rejected, say: ‘Next!’
+ - Infinite money is available to a mind that is ready, willing, able, qualified and gives itself permission to earn and accept it.
+ - The only way to accomplish big results is to think big and set big goals.
+ - Whoever has the most energy wins. Energy gives one confidence, power, self-esteem and new possibilities.
+ - You don’t become enormously successful without encountering and overcoming a number of extremely challenging problems.
+ - Miracles never cease to amaze me. I expect them, but their consistent arrival is always delightful to experience.
+ - Believe that you have a destiny to be great.
+ - One of the greatest assets you have is your imagination.
+ - Action eradicates fear. No matter what you fear, – positive, self-affirming action can diminish or completely cancel that which you are fearful of.
+ - In imagination, there’s no limitation.
+ - As long as you tithe you cannot be greedy or needy.
+ - With more success comes greater problems along with greater ability to solve them.
+ - When your self-worth goes up, your net worth goes up with it.
+ - Thinking is the highest form of leverage.
+ - It’s time to stop tiptoeing around the pool and jump into the deep end, head first. It’s time to think big, want more and achieve it all!
+ - Don’t think it, ink it.
+ - You’ll fail at a 100% of the goals you don’t set.
+ - Do what you LOVE to do, and do it so well that those who come to see you do it will bring others to watch you do it again and again and again.
+ - Problems are good, not bad. Welcome them and become the solution. When you have solved enough problems, people will thank you.
+ - Whatever you’re ready for is ready for you.
+ - With vision, every person, organization and country can flourish. The Bible says, ‘Without vision we perish.’
+ - Improve your business, your life, your relationships, your finances and your health. When you do the whole world improves.
+ - Read books, listen to tapes, attend seminars-they are decades of wisdom reduced to invaluable hours.
+ - What’s possible exceeds what’s impossible. Think about it. Do all you can do that is possible today, and in your tomorrow, what was impossible will be possible.
+ - Entrepreneurs have two basic assets: their creativity and their relationships.
+ - Doing what we were meant to do creates fun, excitement and contentment in our lives, and invariably, in the lives of the people around us. When you’re excited about something it’s contagious.
+ - You get whatever you expect to get. The only question is. What do you want?
+ - Ninety percent of the success of any product or service is its promotion and marketing.
+ - People don’t buy with their head but with their heart. The heart is closer to the wallet than the head.
+ - Lack of forgiveness causes almost all of our self-sabotaging behavior.
+ - Enlightenment is awakened awareness.
+ - Our every thought, image or affirmation is a prayer. Therefore, if everything you think, feel, say or do is a form of prayer, then make it uplifted and exalted.
+ - Step into a new you each day. Reach out to greater health, happiness, fitness, friendship, love and greater pride in yourself.
+ - Your mind is the greatest home entertainment center ever created. It requires contemplative silence to really discover who you truly are. You have immense talents, resources and abilities that are untapped.
+ - You make the decision with vision and god makes the provision.
+ - Be grateful for your problems, for they stimulate an “I-can-solve-it” attitude.
+ - As a tither you automatically become solution-oriented rather than problem-oriented.
+ - Now is the only time there is. Make your now wow, your minutes miracles, and your days pay. Your life will have been magnificently lived and invested, and when you die you will have made a difference.
+ - Free enterprise means that the more enterprising you are, the freer you are.
+ - Attention with intention gets results worthy of mention.
+ - Our inner image of ourselves and what we want to accomplish in life makes us become what we were meant to be.
+ - Infinite possibilities exist to create the previously un-creatable, think the unthinkable and do the undoable-it’s an extraordinary time to be alive.
+ - When you have a Clear purpose, you won’t have time for negativity.
+ - I want to talk with people who care about things that matter that will make a life- changing difference.
+ - Life gives to the give and takes from the taker.
+ - Set too many goals and keep adding more goals. Goals have a tendency to be realized all at once.
+ - Imitate until you emulate; match and surpass those who launched you. It’s the highest form of thankfulness.
+ - If you keep believing what you’ve been believing, then you’ll keep achieving what you’ve been achieving.
+ - Great thinking is its own reward.
+ - Ideas attract money, time, talents, skills, energy and other complementary ideas that will bring them into reality.
+ - Liabilities are just assets in hiding.
+ - I think we’re intrinsically spiritual. We’re spiritual beings in a physical universe and we are here to make a spiritual contribution.
+ - Goals are new, forward-moving objectives. They magnetize you towards them.
+ - It can’t be bought. It can’t be taught. It must be caught.
+ - Becoming a millionaire is not the end goal; your growth and development en-route is what matters.
+ - You must be on top of change or change will be on top of you.
+ - I say you ought to write out 10 outrageous goals that are bigger than you because your life isn’t meaningful or important unless you’re on purpose about something way bigger than you are.
+ - The key to having everything we want lies in expanding our definition of what’s possible and focusing on what we want. That’s it! Once we believe in the possibility of anything and focus in on exactly what we want to have, exactly what we want to do, then our minds can take us there.
+ - What’s exciting about using our mind is that we can short circuit all the excuses thrown up by our fears.
+ - Each of us must do massive right thinking, take massive right action and get massive right results, right here, right now.
+ - Think positive thoughts, intensely. Grow enthusiastic images, boldly. Speak only wonderful words to yourself, constantly. Feel fantastic, NOW! This colors your view of the world. Like a magnet, you attract the resources necessary to manifest the world you desire.
+ - This is an absolute law: You’ve got to be rich inside to become and remain rich outside. Become rich inside and your mental equivalent will manifest in your experience.
+ - Jim Rohn is the master motivator – he has style, substance, charisma, relevance, charm, and what he says makes a difference and it sticks. I consider Jim the ‘Chairman of Speakers.’ The world would be a better place if everyone heard my friend, Jim Rohn.
+ - You and I aren’t remembered for what we acquire but for what we contribute.
+ - Virtual business out sources all the work and in sources all the profits.
+ - Predetermine the objectives you want to accomplish. Think big, act big and set out to accomplish big results.
+ - To be a visionary parent, we need to keep working on ourselves, becoming forever new and improved.
+ - If you’re over stressed it’s because you’re under asked.
+ - It’s not that people want too much, it’s that they want too little.
+ - If you can come up with a snappy little slogan, then you have a future in winning tagline competitions or being a political speech writer.
+ - True or true? Yes or yes?
+ - Turn your troubles into treasures. Learn from them and grow from them.
+ - With vision we flourish.
+ - The quality of the team determines the speed of the dream.
+ - Real leaders like Lee Iacocca see vast possibilities and sell their dreams to their companies, their employees, their funding sources, their government and their buying public.
+ - Giving is God’s way. It is the way that I now understand is the truth of the Universe. Giving multiplies me and makes me feel complete and fulfilled. Giving makes me feel that I make a real and important difference.
+ - I never let my subject get in the way of what I want to talk about.
+ - As we act ‘right,’ our right results are guaranteed.
+ - Make a list of 200 prestigious, influential, and powerful people with whom you want to work, play, grow and do business.
+ - How do get rid of a little problem? You get a big problem.
+ - It matters only that you manifest your genius; it doesn’t matter when. It’s never too late or too early.
+ - The system might be breaking down but something else is breaking through.
+ - Whomever compares him or herself to another, always loses.
+ - You can do a lot more good with money than without it.
+ - Give bouquets of business. Introduce your clients to each other so they can work and prosper together.
+ - Most people’s goals are too low and too slow.
+ - Miracles are simply a change in perception.
+ - You can turn your goals into gold.
+ - One of my goals is to inspire people to be all that they can be and, hopefully, be a good example and teach some useful, interesting principles. Perhaps I can be the key that turns on the engine in their life, and then they can take their car where they want.
+ - If you’re prosperous in soul, you’ll be prosperous in whole, regardless of how many and how much physical possessions you have.
+ - When we accomplish a goal, it instantly loses some of its importance and we tend to lose interest. When we write down too many goals, there is plenty to keep our subconscious mind at work.
+ - Goals are a preview of future events and experiences in your life.
+ - Your problems are good. They are power in disguise.
+ - I think the great livers, the people who are fully self-actualizing and alive, are the great givers.
+ - Decide. Coincide. Provide.
+ - Thought is your only currency!
+ - The future will be owned and operated by the entrepreneurial ly minded.
+ - The feeling of rich makes you rich. The feeling of poor makes you poor.
+ - Even in the worst depression, 25% of businesses are booming – in your industry find out what they’re doing and do it.
+ - You can only have as much as you believe.
+ - Our awareness is the key. It is our awareness more than our work effort that gets the right result right now.
+ - Close your outer eyes and open your inner eyes.
+ - Most people are paralyzed by fear. Overcome it and you take charge of your life and your world.
+ - Life is an inside-out game. The truth is that all our situations and circumstances have their beginnings in our minds. Our idea of who we are creates who we become – the great news is you can change your self-impressions and change your life.
+ - To realize a dream, you must have a dream to realize.
+ - With dedication towards a destination and some perspiration one gets their heartfelt realization.
+ - The miracle is that each of us can ultimately be invited to places we have only dreamed about and heard about.
+ - What you believe to be the truth directly determines your attitude towards yourself and the world, the words you say and the actions you take.
+ - Whatever you need more of is what you need to tithe some.
+ - Giving is the insured way of getting.
+ - We have more opportunity than we have us.
+ - No one can self-actualize without self-actualizing those around them.
+ - The more goals you set, the more goals you get.
+ - If you take the credit, you lose it. If you give away the credit, it comes back multiplied.
+ - Perhaps my most important goal is to create a million millionaires.
+ - Change your direction and you will change your destiny.
+ - The magnet principle says, ‘Like attracts like.’ You’ll attract to you the people, circumstances, events, money and resources you need to accomplish your goals.
+ - You never know how much you can grow.
+ - There is only a recession of the things that people don’t want.
+ - If the deal is right, the money gushes towards it.
+ - Opportunity is infinite; once you know that, opportunity is omni-existent.
+ - When you shut down the giving you shut down the receiving.
+ - Success is creating a state of mind that allows you to obtain anything you really desire.
+ - Big goals get big results. No goals gets no results or somebody else’s results.
+ - Success is deciding from the start what end result you want and creating the circumstances to realize that result.
+
+143 quotes

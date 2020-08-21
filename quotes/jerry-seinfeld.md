@@ -1,0 +1,214 @@
+ - Sometimes the road less traveled is less traveled for a reason.
+ - The best revenge is living well.
+ - Keep your head up in failure and your head down in success.
+ - These pretzels are making me thirsty!
+ - Your blessing in life is when you find the torture you’re comfortable with.
+ - To me, if life boils down to one thing, it’s movement. To live is to keep moving.
+ - Elaine: Ugh, I hate people. Jerry: Yeah, they’re the worst.
+ - There is nothing more rewarding than completing a goal you have set for yourself.
+ - Our good time is sitting in a coffee shop with a newspaper, writing a line on the back of a napkin. That is the most fun comedians ever have.
+ - Did you know that the original title for War and Peace was War, What Is It Good For?
+ - A bookstore is one of the only pieces of evidence we have that people are still thinking.
+ - If aliens are watching us through telescopes, they’re going to think the dogs are the leaders of the planet. If you see two life forms, one of them’s making a poop, the other one’s carrying it for him, who would you assume is in charge?
+ - You know why fish are so thin? They eat fish.
+ - There’s more to life than making shallow, fairly obvious observations.
+ - I know I’m not going to understand women. I’ll never understand how you can take boiling hot wax, pour it onto your upper thigh, rip the hair out by the root, and still be afraid of a spider.
+ - If every instinct you have is wrong, then the opposite would have to be right.
+ - Having fun is a very particular skill. And not everyone has that skill.
+ - I love advertising because I love lying.
+ - I have a problem with that silver medal. It’s like, ‘Congratulation s, you almost won. Of all the losers, you’re the number one loser. No one lost ahead of you.’
+ - The blessing in life is when you find the torture you are comfortable with. That’s marriage, it’s kids, it’s work, it’s exercise. Find the torture you’re comfortable with and you’ll do well. You’ve mastered that, you’ve mastered life.
+ - Being a good husband is like being a good stand-up comic – you need ten years before you can even call yourself a beginner.
+ - I think vacations are mostly completely stupid. Going to have coffee with a friend, you’re probably going to have more fun than if you go to Aruba.
+ - See, you know how to take the reservation, you just don’t know how to hold the reservation and that’s really the most important part of the reservation, the holding. Anybody can just take them.
+ - Responsible, who wants to be responsible? Whenever something bad happens, it’s always, who’s responsible for this?
+ - I will never understand why they cook on TV. I can’t smell it. Can’t eat it. Can’t taste it. The end of the show they hold it up to the camera, ‘Well, here it is. You can’t have any. Thanks for watching. Goodbye.’
+ - What I don’t understand is how women can pour hot wax on their bodies, let it dry, then rip out every single hair by its root and still be scared of spiders.
+ - There is no such thing as fun for the whole family.
+ - You have to motivate yourself with challenges. That’s how you know you’re still alive.
+ - I hate the waiting room. Because it’s called the waiting room, there’s no chance of not waiting. It’s built, designed, and intended for waiting. Why would they take you right away when they’ve got this room all set up?
+ - People don’t just bump into each other and have sex. This isn’t Cinemax.
+ - If you can’t be kind, at least have the decency to be vague.
+ - I am speechless: I have no speech.
+ - I don’t return fruit. Fruit’s a gamble. I know that going in.
+ - I’ll tell you what I like about Chinese people: they’re hanging in there with the chop sticks, aren’t they? You know they’ve seen the fork. They’re staying with the sticks.
+ - People don’t think of their office as a workplace anymore. They think of it as a stationary store with Danish. You want to get your pastry, your envelopes, your supplies, your toilet paper, six cups of coffee, and you go home.
+ - According to most studies, people’s number one fear is public speaking. Number two is death. Death is number two. Does that sound right? This means to the average person, if you go to a funeral, you’re better off in the casket than doing the eulogy.
+ - Boy, I miss the days they made toys that could kill a kid.
+ - I like staying in hotels. I like their tiny soap. I like to pretend it’s regular-sized and my muscles are huge.
+ - Let’s examine the dog mind: Every time you come home, he thinks it’s amazing. He can’t believe that you’ve accomplished this again. You walk in the door. The joy of it almost kills him. “He’s back again! It’s that guy! It’s that guy!”
+ - I love how you just make coffee and then somehow something gets done.
+ - I’m old, I’m rich and I’m tired.
+ - Writer’s block is a phony, made up, BS excuse for not doing your work.
+ - Why does McDonald’s have to count every burger that they sell? What is their ultimate goal? Do they want cows to surrender voluntarily?
+ - Comedy is just complaining in an entertaining way, Enterplaining.
+ - The less you know about a field, the better your odds. Dumb boldness is the best way to approach a new challenge.
+ - What’s the deal with Ovaltine? It comes in a round container, you put it in a round glass, why don’t they call it Roundtine?
+ - Women go after doctors like men go after models. They want someone with knowledge of the body. We just want the body.
+ - Nothing in life is fun for the whole family. There are no massage parlors with ice cream and free jewelry.
+ - Dating is pressure and tension. What is a date, really, but a job interview that lasts all night?
+ - There’s a tremendous power and energy in sharing your life with another person.
+ - What’s the point of dating without games? How do you know if you’re winning or losing?
+ - So let me get this straight. You find yourself in the kitchen, you see an eclair in the receptacle, and you think to yourself, ‘What the hell, I’ll just eat some trash.’
+ - That’s the true spirit of Christmas; people being helped by people other than me.
+ - I’m in the unfortunate position of having to consider other people’s feelings.
+ - A two-year-old is kind of like having a blender, but you don’t have a top for it.
+ - There is no such thing as an attention span. There is only the quality of what you are viewing. This whole idea of an attention span is, I think, a misnomer. People have an infinite attention span if you are entertaining them.
+ - It’s amazing that the amount of news that happens in the world every day always just exactly fits the newspaper.
+ - I had a dream last night that a hamburger was eating ME!
+ - Marriage is like a game of chess except the board is flowing water, the pieces are made of smoke and no move you make will have any effect on the outcome.
+ - The Four Levels of Comedy: Make your friends laugh, Make strangers laugh, Get paid to make strangers laugh, and Make people talk like you because it’s so much fun.
+ - We want to do a lot of stuff; we’re not in great shape. We didn’t get a good night’s sleep. We’re a little depressed. Coffee solves all these problems in one delightful little cup.
+ - I wonder if illiterate people get the full effect of alphabet soup?
+ - I can’t go to a bad movie by myself. What, am I gonna make sarcastic remarks to strangers?
+ - I have no plants in my house. They won’t live for me. Some of them don’t even wait to die, they commit suicide.
+ - You know you’re getting old when you get that one candle on the cake. It’s like, ‘See if you can blow this out.’
+ - Make no mistake about why these babies are here – they are here to replace us.
+ - Ask not what I can do for you. Ask what you can do for me.
+ - I think it’s funny to be delicate with subjects that are explosive.
+ - All magic is ‘Here’s a quarter, now it’s gone. You’re a jerk. Now it’s back. You’re an idiot. Show’s over.’
+ - I admire the hell out of her. You can’t have sex with someone you admire.
+ - Have you ever noticed how they keep improving your laundry detergent, but they still can’t get those blue flakes out? Why do we trust them to get our clothes clean? These guys can’t even get the DETERGENT white!
+ - I like any cereal. I like the idea of just eating and drinking with one hand without looking.
+ - Yeah, like Bizarro Superman, Superman’s exact opposite, who lives in the backwards Bizarro world. Up is down, down is up, he says hello when he leaves, goodbye when he arrives.
+ - You’ll fold faster than Superman on laundry day.
+ - I don’t wanna be a Pirate!!!!
+ - I mean, she’s giving and caring and genuinely concerned about the welfare of others. I can’t be with someone like that.
+ - You can measure distance by time. ‘How far away is it?’ ‘Oh about 20 minutes.’ But it doesn’t work the other way. ‘When do you get off work?’ ‘Around 3 miles.’
+ - What the hell, I’ll just eat some trash.
+ - If I want a long boring story with no point to it, I have my life.
+ - Where lipstick is concerned, the important thing is not color, but to accept God’s final word on where your lips end.
+ - When you interrupt, you’ve stopped listening. People need to be heard.
+ - I don’t want to hear the specials. If they’re so special, put ’em on the menu.
+ - A really hard laugh is like sex-one of the ultimate diversions of existence.
+ - There’s no downside to fame and people who whine about it make me sick. It’s the greatest thing in the world.
+ - Maybe if we lie down our brains will work.
+ - Cry when you get a Golden Globe. Then you can get an Oscar nomination.
+ - If you’ve got a bloodstain on your T-shirt, maybe dirty laundry isn’t your biggest problem.
+ - Economy is essential to all good art.
+ - I’ve been car crazy my whole life, since I was nine years old. It’s just something I’m very aware of.
+ - There’s nothing more fun than entertaining kids.
+ - I feel like humor is the answer to everything. If you have a little bit of humor in the shaker and you can sprinkle that on, that’s your answer.
+ - A chef who doesn’t wash his hands is like a cop who steals. It’s a cry for help.
+ - If you go to a bad movie, it’s two hours. If you’re in a bad movie, it’s two years.
+ - On the side of box of my superman costume it actually said – ‘Do not attempt to fly!’
+ - What’s with this weird hotel custom of leaving a piece of chocolate on the pillow? I awoke thinking my brain had hemorrhaged some sort of fecal matter.
+ - Men want to make women happy.
+ - Now they show you how detergents take out bloodstains, a pretty violent image there. I think if you’ve got a T-shirt with a bloodstain all over it, maybe laundry isn’t your biggest problem. Maybe you should get rid of the body before you do the wash.
+ - Men like a ref decision because they just want to get back to the game.
+ - Men want the same thing from their underwear that they want from women: a little bit of support, and a little bit of freedom.
+ - Sex, that’s meaningless, I can understand that, but dinner; that’s heavy. That’s like an hour.
+ - People should get married because they have finally seen the folly of being single: “Oh, this is all just kind of a bad magic trick. I just keep bending over to reach for this wallet on a string. How much longer am I gonna do that?”
+ - I wish I was a phone machine. I wish if I saw somebody on the street I didn’t want to talk to I could just go, “Excuse me, I’m not here right now, If you just leave a message, I can walk away.”
+ - Golf is the ultimate avoidance activity for the dysfunctional dad. A game so nonsensically difficult, so pointless, so irrationally time consuming, the word golf itself can only stand for ‘Get Out, Leave Family.’
+ - Looking at cleavage is like looking at the sun. You don’t stare at it. It’s too risky. Ya get a sense of it and then you look away.
+ - You can tell what was the best year of your father’s life, because they seem to freeze that clothing style and ride it out.
+ - Sex to save the friendship? Well if we have to we have to.
+ - Fear of success is one of the new fears I’ve heard about lately. And I think its definitely a sign that we’re running out of fears. A person suffering from fear of success is scraping the bottom of the fear barrel.
+ - If someone’s lying, are their pants really on fire.
+ - There’s very little advice in men’s magazines, because men don’t think there’s a lot they don’t know. Women do. Women want to learn. Men think, ‘I know what I’m doing, just show me somebody naked.’
+ - My parents didn’t want to move to Florida, but they turned sixty and that’s the law.
+ - I love energy. I love it. And I pursue it, and I want more of it. Physical and mental energy, to me, are the greatest riches of human life. And TM is like a free account of an endless amount of it.
+ - Well, sometimes we do actually have to get up early, but a man will always trade sleep for sex.
+ - Pay attention, don’t let life go by you. Fall in love with the back of your cereal box.
+ - Everybody lies about sex. People lie during sex. If it weren’t for lies, there’d be no sex.
+ - A movie is kind of like being the captain of a ship, which is nice, but when I perform by myself it’s just surfing on the water and nobody really knows what happens.
+ - I love the day date. No wine, no shower.
+ - Anyone who would laugh at a recital is probably some sort of lunatic anyway. I mean, only a sick, twisted mind could be that rude and ignorant.
+ - I am freaking out! I am freaking out.
+ - Sometimes I think more creativity is put into muffin recipes than into the rest of society combined.
+ - Men, as an organization, are getting more women than any other group working anywhere in the world. Wherever women are, we have men looking into it.
+ - It’s hard to do nothing because you tend to do something and then you have to drop everything.
+ - If a book about failures doesn’t sell, is it a success?
+ - Isn’t it weird that we drink milk, stuff designed to nourish baby cows? How did THAT happen? Did some cattleman once say, “Oh, man, I can’t wait till them calves are done so I can get ME a hit of that stuff.”
+ - I see TV ads about detergents that can get blood stains out of your cloths. I say if you have blood stains on your cloths you should be thinking about something other than laundry.
+ - When someone does a small task beautifully, their whole environment is affected by it.
+ - Fatherhood makes you cute. Women find bumbling fathers cute and attractive.
+ - It reminds me of like this pathetic friend that everybody had when they were a little kid who would let you borrow any of his stuff if you would just be his friend. That’s what the library is. A government funded pathetic friend.
+ - I didn’t know every day I would be discussing the tone of my voice with my wife. I thought it was a marriage. Apparently, it’s a musical.
+ - I can walk through a hotel lobby and watch people at the desk and see what they’re doing. People don’t look at me. They don’t even know I’m there.
+ - I always did well on the essay questions. Just put everything you know on there, maybe you’ll hit it.
+ - Well, all comedy starts with anger. You get angry, and its never for a good reason, right? You know its not a good reason. And then you try and work it from there.
+ - The IRS! They’re like the Mafia, they can take anything they want!
+ - I love advertising because I love lying. I think spending your life trying to dupe innocent people out of hard-won earnings to buy useless, low-quality, misrepresented items and services is an excellent use of your energy.
+ - My wife is funny. And I dabble in it. So being funny is big around our house. But what’s surprised me is my daughter can do an English accent. I don’t know how she learned this.
+ - If professional wrestling did not exist, could you come up with this idea? Could you envision the popularity of huge men in tiny bathing suits, pretending to fight?
+ - Everybody in New York City knows there’s way more cars than parking spaces. You see cars driving in New York all hours of the night. Its like musical chairs except everybody sat down around 1964.
+ - The greatest Jewish tradition is to laugh. The cornerstone of Jewish survival has always been to find humor in life and in ourselves.
+ - I have a problem with the strip that runs along the bottom of the news programs. Don’t these idiots who run the news programs know we don’t want to read? That’s why we’re watching TV.
+ - You don’t even really need a place. But you feel like you’re doing something. That is what coffee is. And that is one of the geniuses of the new coffee culture.
+ - You can be passionate about anything.
+ - People have an infinite attention span if you are entertaining them.
+ - You know I have been issued a public urination pass by the city because of my condition. Unfortunately, my little brother ran out of the house with it this morning. Him and his friends are probably peeing all over the city.
+ - Why would anybody want a friend?
+ - The biggest laugh has to come at the end.
+ - Actually, the only memory I have of being a Cub Scout was trying to get my hat back. That was all I did. Run back and forth at my bus stop going “Quit it.”
+ - I think that you think that a certain something is not all that it could be, when, in fact, it is all that it should be, and more!
+ - You know, crankiness is at the essence of all comedy.
+ - Twitter is good. Why say a lot to a few people when you can say virtually nothing to everyone?
+ - The toughest nights when I was a young, unknown comedian were opening for these real old-time Italian singers. I’m like Grace Jones to them. “This guy is nuts-talking about socks. Where’s the wife jokes, where’s the fat jokes?”
+ - People who read the tabloids deserve to be lied to.
+ - Can’t you at least die with a little dignity?
+ - The big advantage of a book is that it’s very easy to rewind. Close it and you’re right back at the beginning.
+ - What is this obsession people have with books? They put them in their houses like they’re trophies. What do you need it for after you read it?
+ - I know there are kids out there, I want to make sure they all know that driving without braking is not something I recommend, unless you have professional clown training or a comedy background, as I do. It is not something I plan to make a habit.
+ - Work is the least important thing and family is the most important.
+ - All I ever wanted to do is make people laugh.
+ - The truth is, the family is much more creatively nourishing because you’re playing on a full keyboard. Whereas when you’re single, you’re just playing the upbeat jazzy tunes.
+ - I know what I’m doing, just show me somebody naked.
+ - Airline hostesses show you how to use a seatbelt in case you haven’t been in a car since 1965.
+ - Somebody just gave me a shower radio. Thanks a lot. Do you really want music in the shower? I guess there’s no better place to dance than a slick surface next to a glass door.
+ - I wrote an article on a new Porsche for ‘Automobile Magazine.’ I knew the editor, and she asked me to write this article. So I’m more proud of that than anything.
+ - I love meeting Israeli people. They look at me like a son.
+ - When I jumped off a roof in Cannes in a bee costume, I looked ridiculous. But this is my business; I have to humiliate myself.
+ - The only way a show works is you find people who you think are qualified and talented and you give them a chance to do what they do.
+ - That’s why breakups take two or three times- to build up immunity.
+ - Would somebody please explain to me those signs that say, “No animals allowed except for Seeing Eye Dogs?” Who is that sign for? Is it for the dog, or the blind person?
+ - See, the thing of it is, there’s a lot of ugly people out there walking around but they don’t know they’re ugly because nobody actually tells them.
+ - Well, Howard Stern has been doing his impression of me for years. It doesn’t really bother me.
+ - Once you start doing only what you’ve already proven you can do, you’re on the road to death.
+ - The human body is like a condominium. The thing that keeps you from really enjoying it is the maintenance.
+ - Pain is usually represented by lightning attacking the guy. Glowing redness is also popular. Sometimes parts of the guy would just burst into flames.
+ - Men don’t care what’s on TV. They only care what else is on TV.
+ - There’s no way that moving in with your parents is a sign that your life is on track.
+ - For people on my side of the cubicle, the goal is always creativity. Spending your time overcoming corporate resistance to creativity – I just don’t want to do that.
+ - I have a nice bookshelf in my office, but not my house. I’m crass, but not that crass.
+ - Celebrity is no different from any other energy. It’s a force for good or evil. It’s no different from money. It’s power.
+ - I can’t eat chicken and look at strippers at the same time.
+ - Why is it illegal to park in a handicapped parking space but okay to go the bathroom in a handicapped stall?
+ - The greatest thing about being a comedian is knowing other comedians. And you get to talk to them. Its the most fun.
+ - People on dates shouldn’t even be allowed out in public.
+ - Of course, everyone wants to be healthy. The amusing thing is no one’s really sure how to do it.
+ - After you get a job and before you have to do it. Nothing beats that.
+ - Let’s face it: a date is a job-interview, that lasts all night. The only difference between a date and a job interview is: not many job-interviews is there a chance you’ll end up naked at the end of it.
+ - I’ll tell you one thing, since I’m married, single people look absolutely ridiculous to me.
+ - The whole object of comedy is to be yourself and the closer you get to that, the funnier you will be.
+ - Everything is in how you are going to handle it. As a lifelong nightclub comic, I’m ready to handle whatever I have to handle.
+ - The truth is, I had always wanted to be a comedian, but I really didn’t have that kind of personality, and it’s a terrifying thing to say.
+ - The peak of being a fan is a hotdog and a beer and a seat at the game. There’s nothing above that. Nothing above it.
+ - Wise is what you want to be. Smart is easy compared to wise.
+ - Why would you want to work for a living if you could just joke around? Being a celebrity expands your commercial possibilities.
+ - I’d like to do one of those jumps they do in the movies; in a car, over a bridge, in the air with a huge explosion. It would be a final moment of entertainment.
+ - The Beatles created something that never trailed off. What a gift that was to their fans. If you’re into the Beatles, you loved them from beginning to end.
+ - The first real thought that I had of something that I might do was to write for car magazines, because I always had a car thing.
+ - This is one of my big things of creative pursuits. You have your idea you want to do, but then you got to figure out what does this thing want to be? You got to let it lead you a little.
+ - Not that there’s anything wrong with that.
+ - The worst thing about television is that everybody you see on television is doing something better than what you’re doing. You never see anybody on TV just sliding off the front of the sofa, with potato chip crumbs all over their shirt.
+ - Taking in a baseball game on TV is also a big treat.
+ - Having done quite a bit with studios and networks, I thought if I’m going to do something new and unformed, it would be fun to do it in a completely new space and place. The space being the Internet and the place being Crackle.
+ - That’s the most comfortable place for me. In the beginning, yes, I was nervous going on stage. I was not a natural performer. I really had to acquire that skill.
+ - I’ve compiled a book from the Internet. It’s a book of quotations attributed to the wrong people.
+ - Artists are always looking for new things and fresh ground and fresh air. If it feels new to me, there’s a chance it’ll feel new to the audience and we’ll have found something.
+ - You know how your charger for your phone? It’s like if you had a charger for your whole body and mind.
+ - If airline seat cushions are such great flotation devices, why don’t you ever see anyone take one to the beach?
+ - We sold ‘Seinfeld’ all over the world but it was a very specific kind of show. In some countries it went down really well, in others they hated it.
+ - I do not know why anyone would host an awards show. No matter how unbelievably well you do at it, the only thing that can happen is you get asked again to host an awards show.
+ - I like definitive things.
+ - There is no more embarrassing thing in my life that the fact that I have actually uttered the phrase, I would like to order the Ginsu Knife.
+ - Festivus for the Restivus!
+ - And that’s when I realized, when you’re a kid you don’t need a costume, you ARE superman.
+ - I only do a show when there’s somebody I want to talk to.
+ - Why is it when you turn on the TV you see ads for telephone companies, and when you turn on the radio you hear ads for TV shows, and when you get put on hold on the phone you hear a radio station?
+ - I won’t do something unless I can get at least two or three good laughs out of it. If I can’t, it’s not gonna make the team.
+
+212 quotes

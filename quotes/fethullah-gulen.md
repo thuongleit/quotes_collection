@@ -1,0 +1,22 @@
+ - Only those who overflow with love will build the happy and enlightened world of the future.
+ - A person is truly a human if he or she learns, and teaches, and inspires others. It is difficult to regard as truly human someone who is ignorant and has no desire to learn.
+ - One will never reach distant shores, if he chooses to remain upon the dock, In fear his little ship of dreams may be dashed against the rocks.
+ - Tolerance, a term which we sometimes use in place of the words respect, mercy, generosity, or forbearance, is the most essential element of moral systems; it is a very important source of spiritual discipline and a celestial virtue of perfected people.
+ - Mature people never make difference of opinion a means of conflict.
+ - Tolerance is our safest refuge and our fortress against the handicaps that arise from schism, factions, and the difficulties inherent in reaching mutual agreement.
+ - The purpose of our creation is obvious: to reach our utmost goals of belief, knowledge, and spirituality; to reflect on the universe, humanity, and God, and thus prove our value as human beings.
+ - Interfaith dialogue is a must today, and the first step in establishing it is forgetting the past, ignoring polemical arguments, and giving precedence to common points, which far outnumber polemical ones.
+ - I have repeatedly declared that it is impossible for a true Muslim to be a terrorist, nor can a terrorist be regarded as a true Muslim.
+ - Islam as a religion focuses primarily on the immutable aspects of life and existence, whereas a political system concerns only social aspects of our worldly life.
+ - The Muslim world suffers from internal divisions, antidemocratic practices, and the violation of fundamental human rights and freedoms.
+ - Lovers cannot imagine any opposition, no matter how small, to the beloved. They cannot endure to see the beloved veiled by something that causes Him to be forgotten. Moreover, lovers regard as futile any speech not about the beloved, and any act not related to Him as ingratitude and disloyalty.
+ - Islam abhors and absolutely condemns terrorism and any terrorist activity.
+ - Terrorism is one of the cardinal sins that the Koran threatens with hellfire.
+ - Love is one of the most subtle blessings that the All-Merciful One has bestowed upon humanity.
+ - Only a few people seem to realize that social harmony and peace with nature, between people, and within the individual only can come about when the material and spiritual realms are reconciled.
+ - I have never imagined being or wished to be chosen as something important in the world. I have always tried to be a humble servant of God and a humble member of humanity.
+ - Muslims have never been and never can be so base as to expect any solutions to their problems through terror.
+ - Some people may regard my views well and show respect to me, and I hope they have not deceived themselves in doing so. Some people think that I am a leader of a movement.
+ - A small minority in Turkey even accuses me of having political ambitions, when in fact I have been struggling with various illnesses for many years.
+
+20 quotes

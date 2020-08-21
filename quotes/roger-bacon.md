@@ -1,0 +1,25 @@
+ - Knowledge of languages is the doorway to wisdom.
+ - Mathematics is the gate and key to science.
+ - Half of science is asking the right questions.
+ - All science requires mathematics.
+ - To ask the proper question is half of knowing.
+ - Experimental science is the queen of knowledge.
+ - Argument is conclusive, but it does not remove doubt, so that the mind may rest in the sure knowledge of the truth, unless it finds it by the method of experiment.
+ - The conquest of learning is achieved through the knowledge of languages.
+ - There are two modes of knowledge: through argument and through experience. Argument brings conclusions and compels us to concede them, but it does not cause certainty nor remove doubts that the mind may rest in truth, unless this is provided by experience.
+ - Neglect of mathematics work injury to all knowledge, since he who is ignorant of it cannot know the other sciences or things of this world. And what is worst, those who are thus ignorant are unable to perceive their own ignorance, and so do not seek a remedy.
+ - Argument is conclusive, but it does not remove doubt.
+ - All sciences are connected; they lend each other material aid as parts of one great whole, each doing its own work, not for itself alone, but for the other parts; as the eye guides the body and the foot sustains it and leads it from place to place.
+ - The calendar is intolerable to all wisdom, the horror of all astronomy, and a laughing stock from a mathematician’s point of view.
+ - It is easier for a man to burn down his own house than to get rid of his prejudices.
+ - Cease to be ruled by dogmas and authorities; look at the world!
+ - A little learning is a dangerous thing but none at all is fatal.
+ - For if any man who never saw fire proved by satisfactory arguments that fire burns. His hearer’s mind would never be satisfied, nor would he avoid the fire until he put his hand in it that he might learn by experiment what argument taught.
+ - Atheists are like wild feral dogs wih no master. But Christians are like loving dogs with a giving and loving master. Domesticated dogs will love you always, but Feral wild dogs HAVE to be put down. they are a danger to us all.
+ - Few have attained to consummate wisdom in the perfection of philosophy: Solomon attained to it, and Aristotle in relation to his times, and in a later age Avicenna, and in our own days the recently deceased Robert, Bishop of Lincoln, and Adam Marsh.
+ - A man is crazy who writes a secret in any other way than one which will conceal it from the vulgar.
+ - It is not necessarily impossible for human beings to fly, but it so happens that God did not give them the knowledge of how to do it. It follows, therefore, that anyone who claims that he can fly must have sought the aid of the devil. To attempt to fly is therefore sinful.
+ - One man alone had really known the sciences, namely, Robert, Bishop of Lincoln.
+ - Vacuum stands and remains a mathematical space. A cube placed in a vacuum would not displace anything, as it would displace air or water in a space already containing those fluids.
+
+23 quotes

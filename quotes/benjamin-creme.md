@@ -1,0 +1,21 @@
+ - Life is not about making money. It is about enhancing the quality of life for every single being so that they go from physical satisfaction to astral satisfaction to mental satisfaction to growing spiritual satisfaction, up and up and up, all the way. It’s all spiritual.
+ - Each one of us is Divine. We’ve come from a great Divine source. We are each of us a spark of the Divine. That spark could not demonstrate itself at the dense, physical level, so it reflects itself at the soul level.
+ - The masters are men like us who have evolved ahead of us and come to the end of the evolution as a human being on planet earth.
+ - We’ve poisoned our planet to a desperate degree. We have no idea of how severe the toxification is.
+ - The members of humanity are really and truly souls. We’re all part of one great oversoul.
+ - If there was a war, a big war, a major war on the planet, it would be a nuclear war, and it would destroy all life, human and subhuman, on planet earth.
+ - Think of the problem of the world as a cart. It has to have two wheels. If you have one wheel, the cart doesn’t go. If you have one wheel called socialism, it doesn’t go. If you have only one wheel called capitalism, it doesn’t go. It needs two wheels. These two wheels are capitalism and socialism.
+ - We need a total renunciation of war. We must renounce war totally, because now we can destroy all life on earth.
+ - Eighty percent of global warming is the result of man’s wrongful use of the resources of the planet and the dumping of millions upon millions of tons of nuclear and other waste in the world, creating great toxic areas all over our skies, our oceans, our rivers, and the earth.
+ - One of the deadliest issues is the nuclear radiation pouring from every nuclear power station in the world. With every atomic process and experimentation that is going on, high-level nuclear radiation is pouring out at the highest level.
+ - The wars of today, the terrorism of today, are the result of injustice, and that injustice is the Outcome of our greedy, selfish, competitive way of working through commercialization and market forces.
+ - There are five stages of meditation, each one leading gradually into the next: concentration, meditation, contemplation, illumination, and inspiration.
+ - Unless you have money today, you cannot live life according to your need.
+ - Nothing needs a war. There is no problem that needs a war to bring it to a resolution.
+ - Sharing is the answer for humanity. When we share we recognize that God is our brother, and unless we have that trust created by sharing, then nothing can be done.
+ - The New Religion will manifest, for instance, through organizations like Masonry. In Freemasonry is embedded the core or the secret heart of the occult mysteries, wrapped up on number, metaphor and symbol.
+ - America, like all nations, has to renounce war.
+ - It’s an utter, utter necessity to renounce war forever. And nothing new can be built until this is done.
+ - The incidence of Alzheimer’s disease is growing at a pace like never before, affecting people at a younger and younger age. This is the direct effect of nuclear radiation polluting the air of our planet from the power stations and other nuclear experimentation.
+
+19 quotes

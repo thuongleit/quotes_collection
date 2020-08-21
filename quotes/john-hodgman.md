@@ -1,0 +1,130 @@
+ - Specificity is the soul of narrative.
+ - Only the nerds will save the earth.
+ - That which is hard to do is best done bitterly.
+ - You are only pretentious if you are not sincere.
+ - I am not beautiful, so I don’t know why I’m making myself ugly. But the mustache stays.
+ - A lot of my time is spent reading antique or out-of-print books of reference.
+ - I think for the foreseeable future, the truth is going to be awful and funny all at the same time.
+ - A stopped clock is correct twice a day, but a sundial can be used to stab someone, even at nighttime.
+ - My type of humor is me not caring whether people know what I’m talking about or not.
+ - All I can ask from society is that it please stop telling me why I should like sports.
+ - I am someone who values knowledge, actual knowledge. I also value stories and fiction a whole lot, and that’s where the fake knowledge comes in.
+ - Do not listen to the killjoys who tell you never to eat oysters in months that do not contain the letter R: May, June, July, August, Octoba. You know.
+ - Everyone wants to write a book. Very few people are able to do it.
+ - I would say 70 percent of people who are in therapy are in therapy not because of their upbringing, not because of their mean sister or obsessions, but because of anxiety brought about by lack of financial security.
+ - I know nothing about letting go.
+ - I would definitely make eggs for the rest of my life if I could.
+ - Maine’s motto is “Vacationland,” but as far as I’m concerned, it should be, “Maine: Putting the ‘spite’ in hospitality since 1820.”
+ - I think in American culture, we put value on economic success but tell people you don’t have to be economically successful to be happy.
+ - Truth may be stranger than fiction, goes the old saw, but it is never as strange as lies.
+ - There is no ritual that enhances creativity other than just starting.
+ - Writing for me always requires trickery. Tricking myself into sitting down, letting words tumble out until you find the good ones. t’s sort of a trance. And when a piece is done, I have little memory of how I wrote it, and zero confidence I’d ever be able to do it again.
+ - Borges was unapologetically smart and equally sentimental; a proto-geek, blind to distinctions between low pulp fiction and high criticism, experimental but never arch, and always playful, with a humor as dry as dust.
+ - By the way, if I have my own cult of personality with my own geodetic dome in western Massachusetts, I will have a hurt yurt for anyone who crosses me.
+ - Just a small-scale cult of personality, maybe raise a geodetic dome out in western Massachusetts and make people wear jumpsuits and give all their possessions to me.
+ - Americans don’t need a metaphor for war. We have war. If anything, we use war as a metaphor for sports.
+ - When you think about it, the end of the world is a little bit like death: We all know it’s going to come eventually, and as we get older, we feel we see the signs more and more distinctly.
+ - The villain of any story is often the most compelling character.
+ - I made an impulse buy of a house in Maine to make my wife happy and now have gone back into debt and it’s all started over for me.
+ - It’s been a tough couple of years for condescending nerds. And if bookstores fall, Jon, America will be inundated with a wandering, snarky underclass of unemployable purveyors of useless and arcane esoterica.
+ - I think, as we all learn as a child, you have to learn to tolerate ambiguity better and I’m still terrible at it and I hate it; even the word ambiguity makes me sick to me stomach.
+ - Most people presume my mustache is not real because it’s much darker than my regular hair.
+ - I would say aside from Moxie soda bottles and Masonic artifacts, there’s nothing I really collect.
+ - Even the worst job has its benefits and so does being a professional literary agent, and – I know I said this at the time but I still believe it – the worst job is the one that you know is wrong for you, but you still do it. You’re afraid to quit.
+ - I don’t watch television. And certainly not ads; I loathe advertising.
+ - Elwyn Brooks White was a very Maine personality which is, “I hate everyone and everyone stay away from me.”
+ - What I collect? Interesting jobs. Always to my thrill and excitement, but ultimately to my exhaustion, I collect interesting jobs. If an interesting job comes along, I take it; that’s why I do so many things. I’m lucky to be able to.
+ - Any time you try to create an Internet meme, automatic fail. That’s like the worst thing you can do.
+ - Terry Gross. I would rush home from high school to listen to Terry Gross.
+ - I’ve made my evolutionary purpose and had children. I don’t care if anybody likes me, I’m going to do what I want to do. I’m going to do a whole comedy show about swimming in the loathsomely cold waters of Maine.
+ - When a good friend gives you his or her book, you don’t want to read it, because you’re afraid that it’s not going be what you hope it can be.
+ - Traffic counting was very boring and cold to sit out on the streets of New Haven in five pairs of pants – well, that’s an exaggeration; it was three pairs of pants – in November for hours and hours clicking buttons counting which cars go left, right, and forward.
+ - John Wilkes Booth and Lee Harvey Oswald meet in hell and team up to assassinate Satan.
+ - I have no skills. I mean, I can make jokes, I’m pretty good at talking to people on the Judge John Hodgman podcast. I can figure out what makes a pretty good story, and I can make eggs really well.
+ - You know the old saying: “History is written by the winners. And also, the team of hand-picked historians that the winner keeps hidden away in an underground bunker”.
+ - I am not an Internet superstar.
+ - Creating fake facts does require a measure of haphazard research, insofar as they need to not just be possible, but also interesting.
+ - By the time I was writing the second book, my life had changed rather dramatically, thanks to the intervention of television, and I needed to find a way to discuss that. Otherwise the big, fake book would not be true on some level.
+ - The reality is that if you want to be in a reality-based community, you’ve got to respect reality and that means calling it bad when you see the past ahead and it doesn’t look good and acknowledging when it’s going to work.
+ - One can always come up with funny lists and jokes. You know what? I take it back. Not everyone can always come up with funny lists and some jokes. I’m very lucky to have a gift where I can do that pretty ably.
+ - I’m not sure if that answers the question and I have absolutely no problem with any major world religion on Earth.
+ - I am not an Internet superstar. I am, ironically perhaps, the most old media superstar of all time. My fame is due to broadcast television.
+ - From a very selfish point of view, I’m enchanted by the idea that a politician can come along and speak simply and clearly and truthfully to an electorate as though they are grown-ups and to feel the electorate respond to that.
+ - There is a need for expertise, for real expertise. I’m not doing much to help that cause, but I think we can find the healthy balance between intellectualism and anti-intellectualism. Jocks and nerds may come together, I believe it.
+ - Anyone of conscience could come look at my book and see it as an esoteric oddity or be intrigued by it. It could happen either way on a thousand different little decisions each individual might make.
+ - All books should be trilogies; I mean I think we all agree on that.
+ - My hope when I wrote the first book was that I would get to do it again. But it was not entirely clear that that would happen.
+ - To want to become the President is, I think, such a bizarre ambition that it is automatically deranging.
+ - Panic is an incredibly catalyzing creative force. And almost out of sheer necessity, I found I had to talk about myself and my real life as it is effectively lived by me.
+ - What would I put in a museum? Probably a museum! That’s an amusing relic of our past.
+ - We have all been empowered by the web: everyone with a keyboard can now effectively broadcast to a national audience. In a sense, it puts each of us on the same footing as the major media conglomerates, except for AOL, who now apparently own all our thoughts and teeth.
+ - I don’t wish to brag, but I’m very intelligent.
+ - I was always fascinated with the way that things pop on the Internet – the ways you build communities and create little stories and ideas that people play around with and send back to you.
+ - People like what they like. They’re gonna do what they’re gonna do.
+ - When I listen to music – I don’t particularly do it for fun all that much. It’s not a big part of my life, and I’m not really on top of what’s happening in the world of music in the way I was when I was a teenager.
+ - First of all, I wish I could grow a beard.
+ - I know electric knives are excellent for carving turkeys that have had their bones removed and been forced into a mold to shape them. Please note that those turkeys are called hams.
+ - It’s not a secret family like I have a beautiful, gorgeous wife in Tokyo; I have another mom and dad. I’m the kid and I have another mom and dad in Atwater Village, Los Angeles;.
+ - When you’re sitting down and you’re blocked and you just start writing and something in your mind just clicks, you start seeing connections and so on, you really do feel like you’re channeling something else.
+ - I actually own a copy of my own book; that’s how dedicated I am as an author.
+ - I say, if you’re going to eat a creature alive, you have to expect some screaming. That is the carnivore’s burden.
+ - I’ve only ever been mistaken for myself. People draw a lot of comparisons to all of the round-faced, mustached men of entertainment that make me cringe and sick to my stomach about how the world really sees me and they’re right.
+ - As a freelance writer, I’d be asked to become an expert for various magazines on any subject, whether food or wine or history or the life span of veterinarians. I was completely unschooled in any of these things.
+ - I believe that the federal government should be laying down broadband like Eisenhower laid down interstates.
+ - You wouldn’t want to live a life in which you are loved or approved by all people on Earth or even within your own geodetic dome full of your jumpsuited followers.
+ - We estimate that there are perhaps 20,000 prehistoric hunter-gatherers frozen up in those glaciers. Now, if they simply thaw and wander around, it’s not a problem, but if they find a leader – a Captain Caveman, if you will – we’ll be facing an even more serious problem.
+ - My biggest superhero of writing is Jorge Luis Borges, the Argentine fabulist. He’s an amazingly perceptive writer, but also willing to make a joke.
+ - Comedy does offer an avenue to television and film careers for untelegenic people that great drama does not.
+ - I would be good for maybe not the center square but an upper square on ‘Hollywood Squares.’
+ - I really wouldn’t censor myself. But because it was on such a slower scale, I would throw things out, and I indulged the personal stuff as little flashes of truth. Little in-jokes for anyone who was paying particular attention.
+ - It would be rather naive to imagine that Oprah doesn’t have an Earth Evacuation Plan. You know Richard Branson does – his is in plain sight.
+ - Part of the transaction between writer and reader is the pleasure of building a community and encouraging people to play along.
+ - So I am a product of the Internet, and to some degree a product of this sensibility of constant cultural reference.
+ - The few people who ask to have their photographs with me, I almost always say yes, except for a few circumstances, like when my family is around.
+ - I think that by the time I start writing the third book, of course, I will be President Of The United States, and that also will have something to do with it. I’ll probably have to acknowledge that somehow.
+ - The fact is I’m very self-similar.
+ - Just because you see an iceberg does not mean that there isn’t global warming.
+ - Everything we make in life, eventually, is sold for a dollar or a penny or given away;.
+ - I have a lot of cultural references that have amassed in my brain like shrapnel over the years that are meaningful to me.
+ - People who run for president seriously and people who become president enter a bizarre secret society in which they have had an experience that none of us will ever have.
+ - This is something that the nimblest standup comedians learn, over time, to handle gracefully. They’ll go between prepared material, then they’ll respond to what’s happening in the room and weave it back into the prepared material and so on.
+ - Well, I always had this desire to celebrate and somehow be a part of things that I thought were really great.
+ - I have learned that newborn infants roll their eyes around and move their heads and their arms in short jerky spasms. And if you homeschool them, they will stay this way forever.
+ - I realized that even in a world of proliferating media venues, online and in print, and on TV and on countless cable channels, the idea that I could be considered an expert on chronic knee pain was I think troubling for society, but very exciting for me.
+ - Why certain political classes want purposefully to keep Americans in a state of perpetual debt and uncertainty and why certain people don’t want a middle class – because middle class creates a certain happiness. You know what I mean?
+ - I’m a personality – like a George Plimpton who effectively plays himself in a bunch of different roles, or a Paul Lynde-type character.
+ - My memories of literary agenting are of a very happy time and there are surprising reminders of it coming back now.
+ - I am someone who values truth – actual truth as opposed to “truthiness.” I am also someone who has been trained in deconstruction in the literary theory department of Yale University, so I am someone who is tempted to believe that no absolute truth is possible.
+ - I suspect that when the truth ceases to be heartbreakingly funny, we will be in a better place and a happier society over all.
+ - Even in my own life, there are memories I have that are difficult to explain – happenings that are so odd and unaccountably weird, that it is difficult to imagine they were not the result of prolonged and frequent contact with aliens throughout my life.
+ - I’m not a particularly religious person, but that feeling of getting transmissions from someplace else, even if it’s from your own consciousness, is very, very real. To me, at least.
+ - Terry Gross has never had me on her show and you know, it’s her show; she sets the agenda and that’s not Hodgman. But I’ll still listen to it.
+ - Everyone feels like they would love to be a really cool bartender in a really cool bar, but you’re still surrounded by people who want to destroy themselves with alcohol. When you look at it that way, it’s not that much fun.
+ - Generally speaking, I think it is fair to say that I am a friend to the creatures of the Earth when I am not busy eating them or wearing them.
+ - This is one of the defining sorrows of books: that we cannot see one another.
+ - I have an unfortunate compulsion. I really would rather not do it, as it is very nerve-wracking and un-fun. But when it works, there is nothing like it.
+ - Generally speaking, I, like anyone else who does anything publicly, like it when people like what I do, and would like to hear as much.
+ - Life may be miraculous in its unlikelihood in the universe, but it would be a fallacy to suggest that its rareness makes it inextinguishable.
+ - I used to enjoy the anonymity of being a literary figure and occasionally a public radio figure.
+ - I naturally own a lot of very old magazines. And I enjoy going to old magazines because the advertisements in those magazines tended to have thousands of words of copy in them.
+ - I am a marginally employed person who can escape with my school teacher wife to the waters of Maine for much of the summer.
+ - I am someone who values truth – actual truth as opposed to ‘truthiness.’
+ - My candidacy is a compelling argument for my candidacy. I want to be President.
+ - The very idea that there is no truth, but only the filter of narrative through which truth is invented is something I learned at the feet of the most leftist professors at Yale and am learning again from Sarah Palin during the Vice Presidential debate, and I find that very disorienting.
+ - As a live stand-up comedy performer, I have the benefit of choosing real entrance music.
+ - There’s a tradition in American fiction that is deadly serious and earnest – like the Steinbeckian social novel.
+ - My fame is due to broadcast television.
+ - I do not think that a museum needs to engage with pop culture in order to make itself interesting to museumgoers. Museums are already interesting and engaging with pop culture for its own sake is just a quick way to seem and become dated.
+ - I’m an older, wall-eyed, overweight, tweedy writer who has been lucky enough to be asked to play various iterations of himself in a certain realm of popular cultutre. That gives me great joy and excitement, but I don’t go to the media saying, “And I’m also the world’s greatest actor.”
+ - It seems that every generation needs its public, tweedy, literary personality to sell its consumer electronics. To whatever degree I can live up to the Plimptonian legacy, I am humble and proud.
+ - Hosting a TV show is a full-time job in which success is defined by it never ending.
+ - The reality is that there is an enormous value to gut-check instinctive decision-making in the world that is not hampered by reams and reams of research and complexity.
+ - I never stopped feeling abject terror until I got on television and went on a national ad campaign and realized, “I will be able to feed my children. I have somehow averted the destiny that awaited me, which is endless, crippling debt forever.”
+ - As you know, the thing that I know the least about is the topic of sports.
+ - So much of creativity is the feeling that you’re either getting a gift from some other dimension or some other part of yourself.
+ - Unfortunately for humanity, I’ve gotten into the habit of providing my own closing music for shows by singing a song and playing the ukulele.
+ - My career as a magazine writer was largely prefaced on the idea of curiosity, to go on adventures and weasel my way into the lives of people that I admire.
+ - A lot of media that that I want to consume, I don’t want to have to own forever and ever. It’s not like real estate.
+ - For a long time, I would write without music, because I thought it was distracting until I appreciated that it actually unlocks a certain unconscious productivity vault in my mind.
+
+128 quotes

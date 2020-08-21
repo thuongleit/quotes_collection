@@ -1,0 +1,27 @@
+ - It is true intelligence for a man to take a subject that is mysterious and great in itself and to unfold and simplify it so that a child can understand it.
+ - If you do not magnify your calling, God will hold you responsible for those who you might have saved-had you done your duty.
+ - The Lord is our God, our judge, and our king, and He shall reign over us.
+ - It is necessary men should be tried and purged and purified and made perfect through suffering.
+ - And after the flood we are told that the curse that had been pronounced upon Cain was continued through Ham’s wife, as he had married a wife of that seed. And why did it pass through the flood? because it was necessary that the devil should have a representation upon the earth as well as God.
+ - In fact he enables us not by making us supernaturally strong, but by opening our eyes. The Holy Spirit is that power which opens eyes that are closed, hearts that are unaware and minds that shrink from too much reality.
+ - And though I ebb in worth, I’ll flow in thanks.
+ - If we take good care of one another, God will take care of us.
+ - We are accused here of polygamy, and actions the most indelicate, obscene, and disgusting, such that none but a corrupt and depraved heart could have contrived. These things are too outrageous to admit to belief...
+ - In every principle presented to us, our first inquiry should be, “Is it true?” “Does it emanate from God?” If he is its Author it can be sustained just as much as any other truth in natural philosophy; if false it should be opposed and exposed just as much as any other error.
+ - I would rather trust in the living God than in any other power on earth.
+ - There’s always been an assumption that ocean shipping coming in and out of the Great Lakes is critical to the economy. It isn’t.
+ - Put your trust in the living God and all will be right in time and eternity.
+ - We are here for the purpose of redeeming and regenerating the earth on which we live, and God has placed his authority and his counsels here upon the earth for that purpose, that men may learn to do the will of God on the earth as it is done in heaven. This is the object of our existence.
+ - All commandments that I give must be obeyed unless they are revoked by me or by my authority and how can I revoke an everlasting covenant for I the Lord am everlasting and my everlasting covenants cannot be abrogated nor done away with but stand forever.
+ - The only man who really needs a tail coat is a man with a hole in his trousers.
+ - A doctor is a man who writes prescriptions, till the patient either dies or is cured by nature.
+ - We’re getting to the point where it’s important for each platform to have unique, differentiated titles – so that if consumers want to buy that game, they have to buy that system.
+ - Tis a mad world, my masters.
+ - If the means to which the government of the union may resort for executing the power confided to it, are unlimited, it may easily select such as will impair or destroy the powers confided to the state governments.
+ - Do we have Steve Jobs to thank for the iPod and iPod shuffle? iTunes? I think so. He changed the way we hear and think about music...
+ - A man, as a man, could arrive at all the dignity that a man was capable of obtaining or receiving; but it needed a God to raise him to the dignity of a God.
+ - I have not revoked this law, nor will I, for it is everlasting, and those who will enter into my glory must obey the conditions thereof; Even so Amen.
+ - All laws that are proper and correct, and all obligations entered into which are not violative of the constitution should be kept inviolate. But if they are violative of the constitution, then the compact between the rulers and the ruled is broken and the obligation ceases to be binding.
+ - I used to think, if I were the Lord, I would not suffer people to be tried as they are. But I have changed my mind on that subject. Now I think I would, if I were the Lord, because it purges out the meanness and corruption that stick around the saints, like flies around molasses.
+
+25 quotes

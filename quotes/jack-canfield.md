@@ -1,0 +1,176 @@
+ - Don’t worry about failures, worry about the chances you miss when you don’t even try.
+ - Your habits will determine your future.
+ - People who don’t have goals work for people who do.
+ - Most everything that you want is just outside your comfort zone.
+ - For every reason it’s not possible, there are hundreds of people who have faced the same circumstances and succeeded.
+ - What others think about you is none of your business.
+ - The biggest rewards in life are found outside your comfort zone. Live with it. Fear and risk are prerequisites if you want to enjoy a life of success and adventure.
+ - Repetition is the key to real learning.
+ - Make a conscious effort to surround yourself with positive, nourishing, and uplifting people – people who believe in you, encourage you to go after your dreams, and applaud your victories.
+ - Successful people maintain a positive focus in life no matter what is going on around them.
+ - Remember, there is no perfect time for anything. There is only now.
+ - Decide what it is you want, write it down, review it constantly, and each day do something that moves you toward those goals.
+ - If it ain’t fun don’t do it.
+ - Don’t waste your life believing you can’t.
+ - There is only one person responsible for the quality of life you live and that person is you.
+ - Gratitude is the single most important ingredient to living a successful and fulfilled life.
+ - Vague goals produce vague results.
+ - Good or bad, habits always deliver results.
+ - Practice random acts of kindness and senseless acts of beauty.
+ - Clarify your purpose. What is the why behind everything you do? When we know this in life or design it is very empowering and the path is clear.
+ - To achieve your dreams, work is required. Suffering is optional.
+ - Everything valuable takes time, there are no overnight successes.
+ - Do it, delegate it, delay it, or dump it.
+ - The Law of Attraction states that whatever you focus on, think about, read about, and talk about intensely, you’re going to attract more of into your life.
+ - Change is inevitable in life. You can either resist it and potentially get run over by it, or you can choose to cooperate with it, adapt to it, and learn how to benefit from it. When you embrace change you will begin to see it as an opportunity for growth.
+ - If we are not a little bit uncomfortable every day, we’re not growing. All the good stuff is outside our comfort zone.
+ - What have you done for YOURSELF this year to create a better life?
+ - Part of paying the price is the willingness to do whatever it takes to get the job done. It comes from a declaration that you are going to get it done no matter what it takes, no matter how long it takes, no matter what comes up.
+ - Law of attraction says: “We’ll give you whatever it is you say and focus on.” and so if you are complaining about how bad it is, what you’re creating is more of how bad it is.
+ - Jump, then grow wings on the way down.
+ - If you want something different, you are going to have to do something different.
+ - Everything you think, say, and do needs to become intentional and aligned with your purpose, your values, and your goals.
+ - Whatever goal you give to your subconscious mind, it will work night and day to achieve.
+ - High self-esteem isn’t a luxury. It’s a necessity for anyone who has important goals to achieve.
+ - You must take responsibility for removing I can’t from your vocabulary.
+ - I believe in unconditional love and equality. Jesus Christ exemplified these qualities.
+ - To achieve major success in life – to achieve those things that are most important to you – you must assume 100% responsibility for your life. Nothing less will do.
+ - When you think you can’t, revisit a previous triumph.
+ - Don’t kid yourself. Be honest with yourself. Take your own inventory.
+ - What if you, too, were to greet every interaction in your life with the question ‘What’s the potential opportunity that this is?’
+ - When you truly are on purpose, the people, resources, and opportunities you need naturally gravitate toward you.
+ - The bottom line is that you are the one who is creating your life the way it is. The life you currently live is the result of all your past thoughts and actions. You are in charge of your current thoughts and your present feelings.
+ - Never quit. My book, Chicken Soup for the Soul, was turned down by 33 publishers. It’s since sold millions of copies.
+ - We are God’s gift to each other. Like a master composer, He brings all the instruments together, each with a different tone, each playing a different part, and He makes it turn out so beautifully.
+ - The things that bring you the greatest joy are in alignment with your purpose.
+ - I’m a big believer in growth. Life is not about achievement, it’s about learning and growth, and developing qualities like compassion, patience, perseverance, love, and joy, and so forth. And so if that is the case, then I think our goals should include something which stretches us.
+ - I teach that people should watch less TV. I don’t care what else they’re doing! The average American’s watching anywhere from three to six hours a day. If you watch six hours of TV a day, that’s 15 years of your life!
+ - Some people fold after making one timid request. They quit too soon. Keep asking until you find the answers. In sales there are usually four or five “no’s” before you get a “yes.”
+ - You don’t have to get it perfect, you just have to get it going. Babies don’t walk the first time they try, but eventually they get it right.
+ - Remember, what you continually talk about, comes about.
+ - Remember, it is not about luck. It is about doing the right things the right way.
+ - When you accomplish a goal, don’t cross it out. Instead, write ‘victory’ next to it and move on to the next one. This way, whenever you have a bad day, all you have to do is to review your victories to feel good about yourself.
+ - You can’t change anyone else but people do change in relationship to your change. All relationships are a system, and when any one part of a system changes, it affects the other part.
+ - Success isn’t magic or hocus-pocus – it’s simply learning how to focus.
+ - There are only two words that will always lead you to success. Those words are yes and no. Undoubtedly, you’ve mastered saying yes. So start practicing saying no. Your goals depend on it!
+ - And so I wait. I wait for time to heal the pain and raise me to me feet once again – so that I can start a new path, my own path, the one that will make me whole again.
+ - Love and fear are the two opposite ends of the continuum, as far as I’m concerned. When we are not in love, we are in fear.
+ - If you don’t like your outcomes, change your responses.
+ - Love would never b a promise of a rose garden unless it is showered with a light of faith, water of sincerity, and an art of passion.
+ - Life is simply a connect-the dots game, and all the dots have already been identified and organized by somebody else. All you have to do is follow the blueprint, use the system, or work the program that they provide.
+ - I think there’s too much emphasis placed on learning things by rote that you don’t really care about. So what happens to students in school is that they eventually lose interest in learning, because they’ve been forced to learn the required courses, rather than pursing their passion.
+ - To be ‘on purpose’ means you’re doing what you love to do, doing what you’re good at, and accomplishing what’s important to you.
+ - Most of us have never allowed ourselves to want what we truly want because we can’t see how it’s going to manifest.
+ - I believe if everyone fulfilled their deepest life purpose, the world would work perfectly.
+ - To change bad habits, we must study the habits of successful role models.
+ - Mother Teresa was brilliant. She said, “I will never attend an anti-war rally. If you have a peace rally, invite me.” She knew. She understood the secret. Look what she manifested in the world.
+ - There are essentially two things that will make you wise – the books you read and the people you meet.
+ - Now, when anything ‘bad’ happens, I remember that everything that ever happens to me has within it the seeds of something better. I look for the upside rather than the downside. I ask myself, ‘Where’s the greater benefit in this event?’
+ - I consider myself to be an inverse paranoid. I always operate as if everything is part of a universal plot to enhance my well-being.
+ - True freedom is an inward state of being. Once it is attained, no situation in the world can bind one or limit one’s freedom.
+ - Success depends on getting good at saying no without feeling guilty. You cannot get ahead with your own goals if you are always saying yes to someone else’s projects. You can only get ahead with your desired lifestyle if you are focused on the things that will produce that lifestyle.
+ - If you go to a tree with an ax and take five whacks at the tree every day, it doesn’t matter if it’s an oak or a redwood; eventually the tree has to fall down.
+ - Everything you want also wants you.
+ - The formula is simple – do more of what is working, do less of what isn’t, and try on new behaviors to see if they produce better results.
+ - I believe that people make their own luck by great preparation and good strategy.
+ - If you already know how to make your dream come true, then you’re thinking too small.
+ - The problem is that most people focus on their failures rather than their successes. But the truth is that most people have many more successes than failures.
+ - A recent management study revealed that 46% of employees leaving a company do so because they feel underappreciated; 61% said their bosses don’t place much importance on them as people, and 88% said they do not receive acknowledgement for the work they do.
+ - Everything you want is out there waiting for you to ask. Everything you want also wants you. But you have to take action to get it.
+ - As you meditate and become more spiritually attuned, you can better discern and recognize the sound of your higher self or the voice of God speaking to you through words, images, and sensations.
+ - Let’s remember that our children’s spirits are more important than any material things. When we do, self-esteem and love blossoms and grows more beautifully than any bed of flowers ever could.
+ - If you want to be really successful, and I know you do, then you will have to give up blaming and complaining and take total responsibility for your life – that means all your results, both your successes and your failures. That is the prerequisite for creating a life of success.
+ - I generally find that comparison is the fast track to unhappiness. No one ever compares themselves to someone else and comes out even. Nine times out of ten, we compare ourselves to people who are somehow better than us and end up feeling more inadequate.
+ - When your dreams include service to others – accomplishing something that contributes to others – it also accelerates the accomplishment of that goal. People want to be part of something that contributes and makes a difference.
+ - Persistence is probably the single most common quality of high achievers. They simply refuse to give up. They longer you hang in there, the greater the chance that something will happen in your favor. No matter how hard it seems, the longer you persist the more likely your success.
+ - The day you change your responses is the day your life will begin to get better.
+ - Success is the ability to do what you want, whenever you want, as often as you want.
+ - One of life’s fundamental truths states, ‘Ask and you shall receive.’ As kids we get used to asking for things, but somehow we lose this ability in adulthood. We come up with all sorts of excuses and reasons to avoid any possibility of criticism or rejection.
+ - Her essay about the wedding ring was short. Kerr wrote: “Things are just things – they have no power to hurt or to heal. Only people can do that. And we can all choose whether to be hurt or healed by the people who love us.” That was all. And that was everything.
+ - You become like the people you spend the most time with.
+ - There’s so much information on the internet. But people don’t need more information, they need ‘aha moments,’ they need awareness, they need things that actually shift and change them.
+ - What we have to get straight in our heads is that owning the money doesn’t mean ANYTHING. “It’s the DOING with money that develops us – it’s not in the having. And when you have more, you’re enabled to DO more.”
+ - It takes risks to achieve. It’s often scary. It requires something you didn’t know before or a skill you didn’t have before. But in the end, it’s worth it.
+ - There is no right reaction. There is only your reaction.
+ - I started out as a high school teacher in inner-city Chicago and realized quite quickly that my students weren’t that motivated.
+ - The world doesn’t pay you for what you know, it pays you for what you do.
+ - I wanted to be a Teacher with a big T, teach the whole planet. It led me into writing and speaking to large groups.
+ - As for real chicken soup, I have it once or twice a week.
+ - Build your self-esteem by recalling all the ways you have succeeded, and your brain will be filled with images of you making your achievements happen again and again. Give yourself permission to toot your own horn, and don’t wait for anyone to praise you.
+ - Repeating an affirmation several times a day keeps you focused on your goal, strengthens your motivation, and programs your subconscious by sending an order to your crew to do whatever it takes to make that goal happen.
+ - Since I learned the Secret and started applying it to my life, my life has truly become magical, I think the kind of life that everybody dreams of and I live on a day to day basis.
+ - Research now seems to indicate that one hour of inner action is worth seven hours of out-in-the-worl d action. Think about that. You’re working too hard.
+ - It is those very things that we are most afraid to do that provide the greatest liberation and growth for us.
+ - Every single cell in your body is affected by every single thought that you have.
+ - When you have inspired thought, you have to trust it and you have to act on it.
+ - Every time you share your vision, you strengthen your own subconscious belief that you can achieve it.
+ - When you really need help, people will respond. Sincerity means dropping the image facade and showing a willingness to be vulnerable. Tell it the way it is, lumps and all. Don’t worry if your presentation isn’t perfect; ask from your heart. Keep it simple, and people will open up to you.
+ - Anything that’s motivated from fear will ultimately take you down the wrong road and lead you in a cul de sac, anything motivated from purpose, from joy, and from love will take you on an evolutionary path to greater and greater happiness.
+ - If you are going to be successful, you have to start hanging out with the successful people.
+ - Am I now ready to make some changes.
+ - Keep in mind that part of growing up is dealing with difficult issues, and the benefits can be great if you have the courage to ask for help. Human beings are not designed to go through life alone. No one has to bear the burden of tough times all by themselves.
+ - Self-esteem is a huge piece of my work. You have to believe it’s possible and believe in yourself. Because after you’ve decided what you want, you have to believe it’s possible, and possible for you, not just for other people. Then you need to seek out models, mentors, and coaches.
+ - Our feelings are a feedback mechanism to us about whether we’re on track or not, whether we’re on course or off course.
+ - You have to commit to the what, before the how shows up.
+ - Trust your gut feeling about things, listen to what others are saying, and look at the results of your actions. Once you know the truth, you can set about taking action to improve. Everyone will be better for it.
+ - The Law of Probabilities: the more things you try, the more likely one of them will work.
+ - I’ve always believed in God. I remember once a guy asked me what it was like to be self-employed. I said, I’m not self employed. I work for God. The pay is good; He works me hard.
+ - All too often we’re filled with negative and limiting beliefs. We’re filled with doubt. We’re filled with guilt or with a sense of unworthiness. We have a lot of assumptions about the way the world is that are actually wrong.
+ - The greatest gift you can give anyone is a gift of empowerment and love.
+ - The big problem in America is that everyone is spending 2-3 hours a day watching TV. If you spend that same amount of time reading, you’ll be in the top 1% of whatever your field is.
+ - To attract more money, you must be attractive, in the sense that people will want and prefer your products or service over those of your competitior.
+ - My life purpose is to inspire and empower people and organizations to live their highest vision in a context of love and joy and in harmony with the highest good of all concerned.
+ - It is kindness in a person, not beauty that wins our love.
+ - I believe people should live full lives and not settle for anything less.
+ - Overcome your barriers, intend the best, and be patient. You will enjoy more balance, more growth, more income, and more fun!
+ - You either create or allow everything that happens to you.
+ - It is only by acknowledging that you have created everything up until now that you can take charge of creating the future you want.
+ - Remember, it’s more mentally tiring to think about what has to be done, and all the things that might go wrong, than it is to physically do the job.
+ - Your level of performance matches your dominant self image.
+ - Research has shown over and over again that the more you acknowledge your past successes, the more confident you become in taking on and successfully accomplishing new ones.
+ - A brilliant idea without action is like Mark McGwire playing baseball without a bat.
+ - Sometimes you dance with a partner, and sometimes you dance alone. But the important thing is to keep dancing.
+ - Write your goals down in detail and read your list of goals every day. Some goals may entail a list of shorter goals. Losing a lot of weight, for example, should include mini-goals, such as 10-pound milestones. This will keep your subconscious mind focused on what you want step by step.
+ - An important part of any focusing regimen is to set aside time at the end of the day – just before going to sleep – to acknowledge your successes, review your goals, focus on your successful future, and make specific plans for what you want to accomplish the next day.
+ - One needs to have some sense of purpose. Next, you need to have a vision that grows out of that purpose.
+ - Super-successf ul people aren’t the most gifted people in their fields. They just work, study and practice more than the competition.
+ - If you want to find greater happiness and fulfillment in your life, you must begin to understand and live in harmony with the law of attraction.
+ - My definition of success is “the fulfillment of your soul’s purpose.”
+ - The most successful people I know create superior results yet still maintain a balance among work, family, and recreation in their lives.
+ - When you’re nice to people, they want to be nice back to you.
+ - One of the main strategies of the successful is that they constantly seek guidance from experts in their field.
+ - Each day is an adventure in discovering the meaning of life.
+ - If you can tune into your purpose and really align with it, setting goals so that your vision is an expression of that purpose, then life flows much more easily.
+ - One of the things I tell people in my seminars is to hang out with positive, nurturing people. You become like who you hang out with.
+ - Each of us is born with a life purpose. Identifying, acknowledging, and honoring this purpose is perhaps the most important action successful people take.
+ - If you get clear on the what, the how will be taken care of.
+ - When you’re connected to a source and to each other through conversation, through making love, through meditation, playing games with your kids, all that stuff, then your self-esteem’s going to go up.
+ - When you scratch the surface, every one of us has something that we deeply want to contribute to the world. All we have to do is step up and do it.
+ - Think of fear as a 2-year-old child who doesn’t want to go grocery shopping with you. Because you must buy groceries, you’ll just have to take the two year old with you. Fear is no different. In other words, acknowledge that fear exists but don’t let it keep you from doing important tasks.
+ - Pay attention to how you are feeling, and keep your compass heading set for JOY!
+ - It is a universal principle that you get more of what you think about, talk about, and feel strongly about.
+ - You don’t know you’re going to get a ‘No’ until you ask, and if you don’t ask, you’ve given yourself the No.
+ - You don’t have the potential to create, you are always creating.
+ - Reject rejection! If someone says no, just say NEXT.
+ - What is the why behind everything you do?
+ - I don’t blame or complain about things like the economy, the government, taxes, employees, gas prices, or any of the external things that I don’t have control over. The only thing I have control over is my response to these things.
+ - If you hang in there long enough, you will eventually reach your goal.
+ - If you love your work, if you enjoy it, you’re already a success.
+ - Making mistakes, getting it almost right, and experimenting to see what happens are all part of the process of eventually getting it right.
+ - Greater self-esteem produces greater success, and greater success produces more high self-esteem, so it keeps on spiraling up.
+ - People who ask confidently get more than those who are hesitant and uncertain. When you’ve figured out what you want to ask for, do it with certainty, boldness and confidence.
+ - If I hadn’t spent many years trying to be as compassionate as Mother Teresa, as positive a thinker as W. Clement Stone, as prolific a writer as Stephen King, and as good a speaker as many of the legends I have studied, I would not be as successful as I am today.
+ - Every time you take a risk or move out of your comfort zone, you have a great opportunity to learn more about yourself and your capacity.
+ - Everything you should be an expression of your purpose. If an activity doesn’t fit that formula, you wouldn’t work on it. Period.
+ - The principles always work if you work the principles.
+ - Everything is energy. All matter is energy. Energy cannot be created or destroyed. It is the cause and affect of itself. It is evenly present in all places, at all times. Energy is in constant motion and never rests. It is forever moving from one form to another. Energy follows thought.
+ - It’s surprising how many people get bogged down in analysing, planning, and organizing when what they really need to do is take action.
+ - Most fears cannot withstand the test of careful scrutiny and analysis. When we expose our fears to the light of thoughtful examination they usually just evaporate.
+ - It was thinking negative thoughts or thinking positive thoughts, leaving the house prepared or leaving the house unprepared that made the difference.
+ - Whatever your dream is, look yourself in the mirror and declare that you are indeed going to achieve it -no matter what the price.
+ - No one has to bear the burden of tough times all by themselves.
+ - If everybody thinks you’re out of your mind, you just might be onto something.
+ - One way to kill an opportunity is to avoid taking it.
+ - If What you re doing now was enough to get what you want, you’d already have it.
+
+174 quotes

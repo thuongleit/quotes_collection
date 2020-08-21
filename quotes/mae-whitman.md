@@ -1,0 +1,22 @@
+ - Being a teenager is hard.
+ - My favorite book in life is ‘A Wrinkle In Time,’ which I read before high school. It was my first introduction into the meeting of science and spirit and the universe and big thoughts and all of those interesting New Age-y concepts. It made everything make sense to me and opened up my mind.
+ - I love doing voice-over. It’s one of my favorite things.
+ - I’m a single child. I wanted a little brother or a little sister growing up, but when I think about it, I’m happy I’m an only child.
+ - Every time I go to Comic-Con, I’m jacked. I want to dress up and walk the floor and answer questions, because I’m excited about it. It’s like making new friends.
+ - I kind of dress like a boy from the nineties. I like wearing baseball hats. I just like to be really comfortable.
+ - You do have to continue, as you grow as a human, checking in and going, ‘Is this what I want? Am I giving away things that I don’t want? Who am I and what do I want to keep doing?’
+ - It’s funny, because I don’t have a very addictive personality in any way except for things like stories or books or movies or TV. I just get, like, completely enamored and lost in that world, especially when one really hits the right way. Like, I just can’t do anything else.
+ - In every single ‘Tinker Bell’ movie, I feel like there’s a message that I’m proud to communicate with kids.
+ - The coming-of-age story has sort of become a joke. It’s something to capitalize on, and that is painful because when you are coming of age – when you are going through something like that – the genre is so meaningful.
+ - People should recognize who you are and how you can act rather than how famous you are.
+ - I don’t have one role that I’m particularly fond of doing, and I don’t really look for it to differ all the time, but I will try anything and do anything. If it’s a role I connect with, I’ll go for it, no matter what’s involved.
+ - Being on a movie set when you have a great strong people there supporting you can be very nurturing. You get to explore these creative parts of yourself as a child that most people don’t explore until they’re in college.
+ - For me, one thing I love is having an arc for a character.
+ - I like to be a lot of different things at once and dress different ways and I change my hair all the time, so being an actor lets me live out the fantasy of living out 100,000 different lifetimes in one, without all of the repercussions.
+ - I feel like I am a lot of who I am because I watched these shows that said it was okay to be a total weirdo. Shows like ‘Pete and Pete,’ ‘Hey, Dude,’ ‘Salute Your Shorts’ – that’s what I grew up with.
+ - I only have room to do things that I have a love for in my life.
+ - Act because you love to act.
+ - I don’t really have an aversion to watching myself. I think I’ve been doing it for long enough that I have a system of separating it in my brain from my egotistical neuroses for the most part.
+ - There have been a lot of events that have made me really look at the real world, like September 11th. There are so many things that just make you realize that you’re not going to live forever and that you have to enjoy every day.
+
+20 quotes

@@ -1,0 +1,57 @@
+ - Any job worth doing is worth doing well. But to be able to do that, you have to do it over and over again.
+ - A recipe has no soul. You, as the cook, must bring soul to the recipe.
+ - This is the great challenge: to maintain passion for the everyday routine and the endlessly repeated act, to derive deep gratification from the mundane.
+ - Success is measured by the memories you create.
+ - Respect for food is respect for life, for who we are and what we do.
+ - When you acknowledge, as you must, that there is no such thing as perfect food, only the idea of it, then the real purpose of striving toward perfection becomes clear: to make people happy, that is what cooking is all about.
+ - It’s not about perfection; it’s about the joy of striving.
+ - The law of diminishing returns is something I really believe in.
+ - For me, thats one of the important things about cooking. What was good enough yesterday may not be good enough today.
+ - Even the most astute chefs seek out the assistance of Celine Labaune, owner of Gourmet Attitude, because they know they can rely on her keen senses and deep understanding of the truffle trade.
+ - With passion, if you see the first asparagus of the springtime and you become passionate about it, so much the better, but three weeks later, when you’ve seen that asparagus every day now, passions have subsided. What’s going to make you treat the asparagus the same? It’s the desire.
+ - Its not about passion. Passion is something that we tend to overemphasize, that we certainly place too much importance on. Passion ebbs and flows. To me, it’s about desire. If you have constant, unwavering desire to be a cook, then u’ll be a great cook.
+ - You have to be driven. You have to be focused. You have to be aware.
+ - Good food is a good trend.
+ - A cookbook must have recipes, but it shouldn’t be a blueprint. It should be more inspirational; it should be a guide.
+ - Anyone can make a good roast chicken.
+ - Hopefully, imparting what’s important to me, respect for the food and that information about the purveyors, people will realize that for a restaurant to be good, so many pieces have to come together.
+ - Let’s face it: if you and I have the same capabilities, the same energy, the same staff, if the only thing that’s different between you and me is the products we can get, and I can get a better product than you, I’m going to be a better chef.
+ - And don’t forget music – music in the kitchen is an essential ingredient!
+ - The media builds you up, and then it tears you down.
+ - I wonder if I love the communal act of eating so much because throughout my childhood, with four older brothers and a mom who worked in the restaurant business, I spent a lot of time fending for myself, eating alone – and recognizing how eating together made all the difference.
+ - I believe Fernand Point is one of the last true gourmands of the 20th century. His ruminations are extraordinary and thought-provoking. He has been an inspiration for legions of chefs.
+ - Larousse is an invaluable tool for any cook. I’ve used this great resource all throughout my cooking career, and of course I look forward to the new edition. New information and knowledge are always welcome.
+ - A kaiseki meal is like that, very small courses over a long period of time.
+ - Once you understand the foundations of cooking – whatever kind you like, whether it’s French or Italian or Japanese – you really don’t need a cookbook anymore.
+ - The book is there for inspiration and as a foundation, the fundamentals on which to build.
+ - I wanted to learn everything I could about what it takes to be a great chef. It was a turning point for me.
+ - I have no formal culinary training, right.
+ - Whether it’s destiny or fate or whatever, I don’t think I could do a French Laundry anywhere else.
+ - I don’t think you could have a 7 with a manual. But I can’t see having a BMW sports sedan without a manual.
+ - I came to understand that the words executive and corporate never belong next to the word chef.
+ - In any restaurant of this caliber, the chefs are in the same position, building relationships.
+ - But once in a while you might see me at In and Out Burger; they make the best fast food hamburgers around.
+ - I think every young cook wants to write a book.
+ - I wanted to write about what we were doing at the French Laundry, the recipes and the stories.
+ - I like to drink young wines, wines which are robust and have a lot of forward fruit to them.
+ - We go through our careers and things happen to us. Those experiences made me what I am.
+ - I drank more wine when I wasn’t working as much, to be honest.
+ - I guess the main source of stress for me is the stress I put on myself.
+ - They know what my standards are. They know what I need and how to get it to me, and they know how to communicate with me if for some reason they can’t get it.
+ - One of the problems with writing a cookbook is that recipes exist in the moment.
+ - It wasn’t about mechanics; it was about a feeling, wanting to give someone something, which in turn was really gratifying. That really resonated for me.
+ - I think that’s the important thing – being aware of that inspiration and being able to interpret it into something that’s meaningful for you.
+ - I didnt want to be encumbered by what anyone elses abilities were, their equipment or environment or their ability to get certain products.
+ - My childhood wasn’t full of wonderful culinary memories.
+ - I think that you’ve got to make something that pleases you and hope that other people feel the same way.
+ - Vegetables to me are – I don’t want to say the most exciting part of cooking, but certainly a very exciting part of cooking, because they continue to change. They come into season and they go through different phases.
+ - Some of the recipes in the book have evolved for us. Many haven’t.
+ - You’re getting to know who the great chefs are through their books.
+ - You don’t know when inspiration is going to come. But you have to be aware of what’s going on around you, so that at any moment, when inspiration happens, you’re ready for it and you interpret it.
+ - We rely on our purveyors to tell us what’s available and what’s good.
+ - When I go out to eat, it’s usually something moderate in style.
+ - I think if you can take one or two things from a cookbook, it’s successful.
+ - My favorite wines are Zinfandels.
+ - Repetition is the mother of perfection. If there is true perfection, it’s about doing something over and over again. I truly think that if somebody does a recipe they’ve never done before and gets it right, they’re probably more lucky than they are talented.
+
+55 quotes

@@ -1,0 +1,101 @@
+ - The cure for anything is salt water: sweat, tears or the sea.
+ - You can’t change the past, but you can ruin the present by worrying about the future.
+ - Write a little every day, without hope, without despair.
+ - To be a person is to have a story to tell.
+ - Difficult times have helped me to understand better than before, how infinitely rich and beautiful life is in every way, and that so many things that one goes worrying about are of no importance whatsoever.
+ - When you have a great and difficult task, something perhaps almost impossible, if you only work a little at a time, every day a little, suddenly the work will finish itself.
+ - You know you are truly alive when you’re living among lions.
+ - There is something about safari life that makes you forget all your sorrows and feel as if you had drunk half a bottle of champagne – bubbling over with heartfelt gratitude for being alive.
+ - Through all the world there goes one long cry from the heart of the artist: Give me a chance to do my best.
+ - We must leave our mark on life while we have it in our power.
+ - I will not let thee go, except thou bless me.
+ - I had a farm in Africa, at the foot of the Ngong Hills.
+ - And I had by now become used to the idea of witchcraft, it seemed a reasonable thing, so many things are about, at night, in Africa.
+ - And were my faith so strong that it could move mountains, that is the mountain that I would make come to me.
+ - Be not afraid of absurdity; do not shrink from the fantastic. Within a dilemma, choose the most unheard-of, the most dangerous solution. Be brave, be brave.
+ - Where the storyteller is loyal, eternally and unswervingly loyal to the story, there, in the end, silence will speak. Where the story has been betrayed, silence is but emptiness. But we, the faithful, when we have spoken our last word, will hear the voice of silence.
+ - It’s an odd feeling-farewell-there is some envy in it. Men go off to be tested for courage and if we’re tested at all, it’s for patience, for doing without, for how well we can endure loneliness.
+ - Coffee, according to the women of Denmark, is to the body what the Word of the Lord is to the soul.
+ - If there were one more thing I could do, it would be to go on safari once again.
+ - I start with a tingle, a kind of feeling of the story I will write. Then come the characters, and they take over, they make the story.
+ - All suffering is bearable if it is seen as part of a story.
+ - God made the world round so we would never be able to see too far down the road.
+ - What is man, when you come to think upon him, but a minutely set, ingenious machine for turning with infinite artfulness, the red wine of Shiraz into urine?
+ - There are times of great beauty on a coffee farm. When the plantation flowered in the beginning of the rains, it was a radiant sight, like a cloud of chalk, in the mist of the drizzling rain.
+ - I don’t believe in evil; I believe only in horror. In nature there is no evil, only an abundance of horror: the plagues and the blights and the ants and the maggots.
+ - The Cicada sing an endless song in the long grass, smells run along the earth and falling stars run over the sky, like tears over a cheek. You are the privileged person to whom everything is taken. The Kings of Tarshish shall bring gifts.
+ - Real art must always involve some witchcraft.
+ - It is more than their land that you take away from the people, whose native land you take. It is their past as well, their roots and their identity. If you take away the things that they have been used to see and will be expecting to see, you may, in a way, as well take their eyes.
+ - To set sail somewhere is more important than life itself.
+ - If only I could so live and so serve the world that after me there should never again be birds in cages...
+ - Here I am, where I am supposed to be.
+ - When you have caught the rhythm of Africa, you find out that it is the same in all her music.
+ - Some people have an unconquerable love of riddles. They may have the chance of listening to plain sense, or to such wisdom that explains life; but no, they must go and work their brains over a riddle, just because they do not understand what it means.
+ - There is something about Safari life that makes you forget all your sorrows.
+ - One must in this lower world love many things to know finally what one loves the best...
+ - I do not think that I could ever really love a woman who had not, at one time or another, been up on a broomstick.
+ - In the mind and nature of a man a secret is an ugly thing, like a hidden physical defect.
+ - All sorrows can be borne if you can put them into a story.
+ - Africa, amongst the continents, will teach it to you: that God and the Devil are one, the majesty coeternal, not two uncreated but one uncreated, and the Natives neither confounded the persons nor divided the substance.
+ - Now, looking back on my life in Africa, I feel that it might altogether be described as the existence of a person who had come from a rushed and noisy world, into a still country.
+ - In those days I had various strong inclinations, for wine, gambling and cockfighting, and the society of gypsies, together with a passion for theological discussion which I had inherited from my father himself-all of which my father thought I had better rid myself of before I married.
+ - The best of my nature reveals itself in play, and play is sacred.
+ - Man reaches the highest point of lovableness at 12 to 17 – to get it back, in a second flowering, at the age of 70 to 90.
+ - Truth, like time, is an idea arising from, and dependent upon, human intercourse.
+ - I have a feeling that wherever I may be in the future, I will be wondering whether there is rain at Ngong.
+ - A giraffe is so much a lady that one refrains from thinking of her legs, but remembers her as floating over the plains in long garb, draperies of morning mist her mirage.
+ - I have been trying for a long time to understand God. Now I have made friends with him. To love him truly you must love change, and you must love a joke, these being the true inclinations of his own heart.
+ - It is when people are told their own thoughts that they think they are being insulted.
+ - A visitor is a friend, he brings news, good or bad, which is bread to the hungry minds in lonely places. A real friend who comes to the house is a heavenly messenger, who brings the panis angelorum.
+ - To me, the explanation of life seems to be its melody, its pattern. And I feel in life such an infinite, truly inconceivable fantasy.
+ - My love was both humble and audacious, like that of a page for his lady...
+ - I have read true piety defined as: loving one’s destiny unconditionally – and there is something in it. That is to say: I think that in a way this sort of “religiousness” is the condition for real happiness.
+ - People who dream when they sleep at night know of a special kind of happiness which the world of the day holds not, a placid ecstasy, and ease of heart, that are like honey on the tongue.
+ - The lime trees were in bloom. But in the early morning only a faint fragrance drifted through the garden, an airy message, an aromatic echo of the dreams during the short summer night.
+ - As we grow old we slowly come to believe that everything will turn out badly for us, and that failure is in the nature of things; but then we do not much mind what happens to us one way or the other.
+ - Love, with very young people, is a heartless business. We drink at that age from thirst, or to get drunk; it is only later in life that we occupy ourselves with the individuality of our wine.
+ - Where a pack of monkeys had traveled over the road, the smell of them lingered for a long time in the air, a dry and stale, mousy smell.
+ - A great artist is never poor.
+ - The pleasure of the true dreamer does not lie in the substance of the dream, but in this: that there things happen without any interference from his side, and altogether outside his control.
+ - Of all the idiots I have met in my life, and the Lord knows they have not been few or little, I think that I have been the biggest.
+ - For really, dreaming is the well-mannered people’s way of committing suicide.
+ - It is impossible that a town will not play a part in your life, it does not even make much difference whether you have more good or bad things to say of it, it draws your mind to it, by a mental law of gravitation.
+ - It is often the case with a new idea that when it comes knocking on society’s door with modesty and the best premises for its existence, there is a tremendous outcry from inside.
+ - When in the end, the day came on which I was going away, I learned the strange learning that things can happen which we ourselves cannot possibly imagine, either beforehand, or at the time when they are taking place, or afterwards when we look back on them.
+ - In the Ngong Forest I have also seen, on a narrow path through thick growth, in the middle of a very hot day, the Giant Forest Hog, a rare person to meet.
+ - Truth is for tailors and shoemakers. I, on the contrary, have always held that the Lord has a penchant for masquerades.
+ - It is difficult to restrain admirers of Shakespeare once they have begun to speak of him.
+ - Within our whole universe the story only has the authority to answer that cry of heart of its characters, that one cry of heart of each of them: “Who am I?”
+ - The entire being of a woman is a secret which should be kept.
+ - What is it which is bought dearly, offered for nothing, and then most often refused? – Experience, old people’s experience.
+ - There is something strangely determinate and fatal about a single shot in the night. It is as if someone had cried a message to you in one word, and would not repeat it.
+ - I felt that Paris was illuminated by a splendor possessed by no other places.
+ - A poet’s mission is to make others confound fiction and reality in order to render them, for an hour, mysteriously happy.
+ - It is little silly to be a caricature of something of which you know very little, and which means very little to you, but to be your own caricature – that is the true carnival!
+ - The divine art is the story.
+ - There are many ways to the recognition of truth, and Burgundy is one of them.
+ - There is a particular hapiness in giving a man whom you like very much, good food that you have cooked yourself.
+ - You must not think that I feel, in spite of it having ended in such defeat, that my “life has been wasted” here, or that I would exchange it with that of anyone I know.
+ - No domestic animal can be as still as a wild animal. The civilized people have lost the aptitude of stillness, and must take lessons in silence from the wild before they are accepted by it.
+ - I beg of you, you good people who want to hear stories told: look at this page and recognize the wisdom of my grandmother and of all old story-telling women!
+ - While we are young the idea of death or failure is intolerable to us; even the possibility of ridicule we cannot bear.
+ - One does not travel by plane. One is merely sent, like a parcel.
+ - There are things which cannot be carried through even with the good will of everybody concerned.
+ - The present is always unsettled, no one has had time to contemplate it in tranquillity. I was a painter before I was a writer and a painter never wants the subject right under his nose; he wants to stand back and study a landscape with half-closed eyes.
+ - Be unswervingly and eternally loyal to the story.
+ - I think it will be truly glorious when women become real people and have the whole world open to them.
+ - Man and woman are two locked caskets, of which each contains the key to the other.
+ - God made the world, My Lord, and looked at it, and saw that it was good. Yes. But what if the world had looked back at him, to see whether he was good or not?
+ - I have before seen other countries, in the same manner, give themselves to you when you are about to leave them...
+ - We invent the past and remember the future.
+ - Human talk is a centrifugal function, ever in flight outwards from what is on the talker’s mind.
+ - It is not a bad thing in a tale that you understand only half of it.
+ - It is a good thing to be a great sinner. Or should human beings allow Christ to have died on the Cross for the sake of our petty lies and our paltry whorings.
+ - One may take many liberties with God which one cannot take with men.
+ - Tragedy should remain the right of human beings, subject, in their conditions or in their own nature, to the dire law of necessity. To them it is salvation and beatification.
+ - Who tells a finer tale than any of us. Silence does.
+ - During the first quarter of the last century, seaside resorts became the fashion, even in those countries of Northern Europe within the minds of whose people the sea had hitherto held the role of the devil, the cold and voracious hereditary foe of humanity.
+ - I do not see eye to eye with the camera.
+ - But by the time that I had nothing left, I myself was the lightest thing of all for fate to get rid of.
+
+99 quotes

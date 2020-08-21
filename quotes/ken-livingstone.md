@@ -1,0 +1,92 @@
+ - Consultation is a good thing when people agree with you, and a waste of time when people don’t agree with you.
+ - Everyone changes all the time.
+ - I am a socialist, a believer in rational thought and the rule of law.
+ - Well, on lots of small things we could have done better, but on all the big things we called it right. You should make less mistakes as you get older, and I became a councillor back in 1971, so if by this stage in politics I’m making lots of big mistakes, then I shouldn’t be here.
+ - World wide capitalism kills more people everyday then Hitler did. And he was crazy.
+ - There needs to be radical development in equality law to create the environment to allow women to stay in work.
+ - I liked it when we had ugly politicians who droned on about issues.
+ - I’ve always been a workaholic. I reckon, on average, I’ve had less than one day a year off in my working career.
+ - Everyone is bisexual. Almost everyone has the sexual potential for anything.
+ - One thing that Chairman Mao did was to end the appalling foot binding of women. That alone justifies the Mao Tse-tung era.
+ - The British judiciary is one of the most corrupt in the world because of politically active judges.
+ - If Voting Changed Anything They’d Abolish It.
+ - I’d love to write about my growing sexual awareness, but the press would turn it into something squalid.
+ - When you get into politics, you find that all your worst nightmares about it turn out to be true, and the people who are attracted to large concentrations of power are precisely the ones who should be kept as far away from it as possible.
+ - I’ve got people handling the media. I employ at the moment two people. No-one is paying income tax on the money they use to employ people.
+ - I just long for the day when I wake up and find that the Saudi royal family are swinging from lamp-posts.
+ - I swim three times a week.
+ - You cannot just have a socialist revolution in Norwood and nowhere else.
+ - I’ve met serial killers and professional assassins and nobody scared me as much as MrsT.
+ - Every year the international finance system kills more people than the Second World War. But at least Hitler was mad, you know.
+ - To tackle climate change you don’t have to reduce your quality of life, but you do have to change the way you live.
+ - I am not against Israel, I am against Zionists.
+ - Polling in a general election is pretty accurate, because turnout is usually high.
+ - I feel a degree of regret that Marshall did not push on and say ‘abolish the GLC’ because I think it would have been a major saving and would have released massive resources for productive use.
+ - I can only admire people who I have never met and are dead – because you know so much about anyone who is alive.
+ - If you are running a city you must focus on day-to-day problems.
+ - Just because I am critical of the coalition doesn’t mean I am anti-English. I am just anti-scumbags.
+ - I have only ever borrowed money for investment. I have been sound money all my life.
+ - If women had never been given the right to vote, then Labour would have won every election after the war.
+ - I think George Bush is the most corrupt American president since Harding in the Twenties. He is not the legitimate president. This really is a completely unsupportable government and I look forward to it being overthrown as much as I looked forward to Saddam Hussein being overthrown.
+ - Yes, there are lots of individual exceptions. But no one has ever done a study about voting intention without ascertaining that the biggest determining factor is your income and your wealth.
+ - Racism serves as the cutting edge of the most reactionary movements. An ideology that starts by declaring one human being inferior to another is the slope whose end is at Auschwitz.
+ - We look to the left and to the right And we need help but nobody’s in sight Where is the man that we all need Tell him he’s to come and rescue me.
+ - I have met the people who run the world, and I am not in awe of them.
+ - What defines someone’s music taste is their teens and early 20s. It’s that combination of your sexual awakening and the music of the time, it fixes you forever.
+ - I think I have gone through my entire public career never telling a lie. I have made mistakes but I never knowingly lied.
+ - To avoid manufactured misunderstandings, the policies of Israeli governments are not analogous to Nazism. They do not aim at the systematic extermination of the Palestinian people, in the way Nazism sought the annihilation of the Jews.
+ - You can’t expect to work for the Daily Mail group and have the rest of society treat with you respect as a useful member of society, because you are not.
+ - All the politics of the post-war period was about the clash between the Soviet Union and America, and virtually all issues ended up being subordinated to that. Now, the question is, what is the most a socialist can achieve in a global economy?
+ - I feel like Galileo going before the Inquisition to explain that the Sun doesn’t revolve around the Earth. I hope I have more success.
+ - I’m never going to take the view that I should say whatever I need to say in order to achieve something. Because that implies a level of dishonesty.
+ - My view is rather than just rage at your impotence you find the best way of achieving as much as you can within whatever constraints there are. It’s not the world I would have created but you do what you can within it.
+ - I would like to sound like James Mason. I reckon if I’d had a better voice I could have been prime minister. It is the most irritating voice in public life.
+ - I take a much more pragmatic view than many people on the Left about working with Neil Kinnock. Kinnock represents the best vehicle possible for achieving socialism now.
+ - The world is run by monsters and you have to deal with them. Some of them run countries, some of them run banks, some of them run news corporations.
+ - I employed my wife for three years to sit in the attic and type up my autobiography, 700 pages, organise everywhere I go. I’m paying the normal rate of tax on the money I take out for myself.
+ - I mean I get loads of money, all from different sources. You give it to your accountant. They manage it. But you pay corporation tax. If you’re then taking it out and spending it on yourself, you have to pay more.
+ - I have opened newspapers and read incredible lies.
+ - When I was leader of the GLC, by the time I had been in control for three years, the difference in pay between the cleaner and the director general was a four-to-one ratio. I find that attractive.
+ - I grew up in Lambeth, I went to normal schools and I’ve grown up in a city where people say what they think.
+ - I spent the 1960s and 1970s seeking myself – the working-class tradition of self-education.
+ - You lose power in Britain and you are just Joe Public again.
+ - Only some ghastly dehumanised moron would want to get rid of the Routemaster.
+ - I loathe and detest all this trivialisation of politics.
+ - Politics is not a game. Thousands of people’s jobs and services depended on what the GLC did, and they expected us to do the best we could.
+ - What do we do about climate change bearing down upon us?
+ - I’ve never declined to do an interview.
+ - Global warming could be solved by shifting three to four per cent of global GDP to pay for it.
+ - It is all very well for people with fine arts degrees, but for ordinary people like myself, we want a statue to look like the person.
+ - I grew up in a house with very few books.
+ - I don’t work hard enough. If I had worked harder I might have been prime minister.
+ - I don’t just denounce suicide bombers. I denounce those governments which use indiscriminate slaughter to advance their foreign policy.
+ - Give me the whole world to run and then I’ll be happy. If tomorrow I was told I had to sort out the whole world’s problems I’d sleep like a baby.
+ - The people I really most admire are Robert Kennedy and Franklin Roosevelt. If you know someone, it is very hard to revere them.
+ - I think it’s much more important to keep people in work than have pay rises.
+ - The truth is, no one pays more tax than they have to.
+ - I do explicitly see Jewish people as a people – not either a religion or an ethnicity but a people.
+ - I’m more interested in politicians who deal with human rights in their own country rather than lecture the rest of the world.
+ - Anybody who enjoys being in the House of Commons probably needs psychiatric help.
+ - I Kenneth Robert Livingstone, having been elected to the office of mayor of London, declare that I take that office upon myself, and will duly and faithfully fulfil the duties of it to the best of my judgement and ability.
+ - When you see someone trying to manoeuvre it round the school gates you have to think, you are a complete idiot.
+ - Every budget I have ever prepared has been balanced.
+ - I have no interest in managing my financial affairs.
+ - I undertake that, in the exercise of my functions of that office I will have regard to any guidance with respect to ethical standards issued by the secretary of state under Section 66 of the Greater London Authority Act 1999.
+ - I can easily lose myself emotionally in absolute Hollywood garbage.
+ - I was a weedy kid, not like one of those working-class men who can accommodate not being academically clever by physical strength and prowess.
+ - The idea that the GLC should be abolished at a stroke is ill though out, undemocratic and will cost the people of London dear.
+ - Ed Miliband doesn’t give a damn about what he looks like, how he dresses. He came into politics to change society.
+ - I’ve always told the truth. I’ve often been wrong – but I’ve never knowingly lied. Not in public life. Because I don’t see the need to.
+ - I think democracy’s undermined when those who own newspapers fill them with trivia rather than real issues.
+ - If I blew my nose the Daily Express and the Daily Mail would say that I am trying to spread germ warfare.
+ - The American agenda is sweeping everything before it, and although it’s not perfect, the EU is better on environmental issues. It’s a less rapacious form of capitalism.
+ - I never came into life with any favours or privileges.
+ - If transport, housing and Olympic projects do not work, I will crawl away under a stone.
+ - The market is a brilliant system for the exchange of goods and services, but it doesn’t protect the environment unless it’s regulated, it doesn’t train your workforce unless it’s regulated, and it doesn’t give you the long-term investment you want.
+ - The problem is that many MPs never see the London that exists beyond the wine bars and brothels of Westminster.
+ - I’m in exactly the same position as everybody else who has a small business.
+ - There is now a desperate need for a London-wide left caucus of those interested in the GLC and local councils so that we can compare and discuss what is happening in each borough.
+ - I refuse not to have a sense of humour.
+ - My administration will tackle these issues in consultation with the black communities of London.
+
+90 quotes

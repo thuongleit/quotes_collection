@@ -1,0 +1,502 @@
+ - If you can’t fly then run, if you can’t run then walk, if you can’t walk then crawl, but whatever you do you have to keep moving forward.
+ - I Have a Dream
+ - Only in the darkness can you see the stars.
+ - Darkness cannot drive out darkness; only light can do that. Hate cannot drive out hate, only love can do that.
+ - Faith is taking the first step even when you don’t see the whole staircase.
+ - The time is always right to do the right thing.
+ - There is no gain without struggle.
+ - In the end, we will remember not the words of our enemies, but the silence of our friends.
+ - Our lives begin to end the day we become silent about things that matter.
+ - I have decided to stick with love. Hate is too great a burden to bear.
+ - The ultimate measure of a man is not where he stands in moments of comfort and convenience, but where he stands at times of challenge and controversy.
+ - Life’s most persistent and urgent question is, ‘What are you doing for others?’
+ - Lightning makes no sound until it strikes.
+ - We must accept finite disappointment, but never lose infinite hope.
+ - A man who won’t die for something is not fit to live.
+ - We may have all come on different ships, but we're in the same boat now.
+ - No person has the right to rain on your dreams.
+ - Forgiveness is not an occasional act, it is a constant attitude.
+ - The arc of the moral universe is long, but it bends towards justice.
+ - Hate destroys the hater.
+ - Let no man pull you so low as to hate him.
+ - You don't have to see the whole staircase, just take the first step.
+ - Let’s build bridges, not walls.
+ - I have a dream that my four little children will one day live in a nation where they will not be judged by the color of their skin but by the content of their character.
+ - Injustice anywhere is a threat to justice everywhere.
+ - Our scientific power has outrun our spiritual power. We have guided missiles and misguided men.
+ - Those who love peace must learn to organize as effectively as those who love war.
+ - Love is the only force capable of transforming an enemy into friend.
+ - Intelligence plus character – that is the goal of true education.
+ - A right delayed is a right denied.
+ - Judge a man not by the color of his skin, but by the content of his character.
+ - Not everybody can be famous but everybody can be great, because greatness is determined by service.
+ - Use me, God. Show me how to take who I am, who I want to be, and what I can do, and use it for a purpose greater than myself.
+ - Every man must decide whether he will walk in the light of creative altruism or in the darkness of destructive selfishness.
+ - There comes a time when silence is betrayal.
+ - Never, never be afraid to do what’s right, especially if the well-being of a person or animal is at stake. Society’s punishments are small compared to the wounds we inflict on our soul when we look the other way.
+ - An individual has not started living until he can rise above the narrow confines of his individualistic concerns to the broader concerns of all humanity.
+ - Be a thermostat not a thermometer.
+ - It does not matter how long you live, but how well you do it.
+ - I refuse to accept the view that mankind is so tragically bound to the starless midnight of racism and war that the bright daybreak of peace and brotherhood can never become a reality... I believe that unarmed truth and unconditional love will have the final word.
+ - No work is insignificant. All labor that uplifts humanity has dignity and importance and should be undertaken with painstaking excellence.
+ - People fail to get along because they fear each other; they fear each other because they don’t know each other; they don’t know each other because they have not communicated with each other.
+ - There comes a time when one must take a position that is neither safe, nor politic, nor popular, but he must take it because conscience tells him it is right.
+ - That old law about ‘an eye for an eye’ leaves everybody blind. The time is always right to do the right thing.
+ - The ultimate tragedy is not the oppression and cruelty by the bad people but the silence over that by the good people.
+ - A nation that continues year after year to spend more money on military defense than on programs of social uplift is approaching spiritual doom.
+ - Of all the forms of inequality, injustice in health care is the most shocking and inhumane.
+ - Power without love is reckless and abusive, and love without power is sentimental and anemic. Power at its best is love implementing the demands of justice, and justice at its best is power correcting everything that stands against love.
+ - We must use time creatively.
+ - We must live together as brothers or perish together as fools.
+ - Whatever your life’s work is, do it well.
+ - Quietly endure, silently suffer and patiently wait.
+ - We must remember that intelligence is not enough. Intelligence plus character – that is the goal of true education. The complete education gives one not only power of concentration, but worthy objectives upon which to concentrate.
+ - Free at last, Free at last, Thank God almighty we are free at last.
+ - He who is devoid of the power to forgive is devoid of the power to love.
+ - Hatred paralyzes life; love releases it. Hatred confuses life; love harmonizes it. Hatred darkens life; love illuminates it.
+ - Never forget that everything Hitler did in Germany was legal.
+ - If you lose hope, somehow you lose the vitality that keeps moving, you lose that courage to be, that quality that helps you go on in spite of it all. And so today I still have a dream.
+ - He who passively accepts evil is as much involved in it as he who helps to perpetrate it. He who accepts evil without protesting against it is really cooperating with it.
+ - Those who are not looking for happiness are the most likely to find it, because those who are searching forget that the surest way to be happy is to seek happiness for others.
+ - One has a moral responsibility to disobey unjust laws.
+ - Freedom is never voluntarily given by the oppressor; it must be demanded by the oppressed.
+ - When evil men plot, good men must plan. When evil men burn and bomb, good men must build and bind. When evil men shout ugly words of hatred, good men must commit themselves to the glories of love.
+ - No one really knows why they are alive until they know what they would die for.
+ - We have flown the air like birds and swum the sea like fishes, but have yet to learn the simple act of walking the earth like brothers.
+ - We have before us the glorious opportunity to inject a new dimension of love into the veins of our civilization.
+ - A man can’t ride your back unless it’s bent.
+ - I have a dream that one day little black boys and girls will be holding hands with little white boys and girls.
+ - We are now faced with the fact that tomorrow is today. We are confronted with the fierce urgency of now. In this unfolding conundrum of life and history, there “is” such a thing as being too late. This is no time for apathy or complacency. This is a time for vigorous and positive action.
+ - To ignore evil is to become an accomplice to it.
+ - I may not be the man I want to be; I may not be the man I ought to be; I may not be the man I could be; I may not be the man I truly can be; but praise God, I’m not the man I once was.
+ - I believe that unarmed truth and unconditional love will have the final word in reality. This is why right, temporarily defeated, is stronger than evil triumphant.
+ - True compassion is more than flinging a coin to a beggar; it comes to see that an edifice which produces beggars needs restructuring.
+ - It is cheerful to God when you rejoice or laugh from the bottom of your heart.
+ - The day we see the truth and cease to speak is the day we begin to die.
+ - If we do an eye for an eye and a tooth for a tooth, we will be a blind and toothless nation.
+ - As my sufferings mounted I soon realized that there were two ways in which I could respond to my situation – either to react with bitterness or seek to transform the suffering into a creative force. I decided to follow the latter course.
+ - Without justice, there can be no peace.
+ - Whenever men and women straighten their backs up, they are going somewhere, because a man can’t ride your back unless it is bent.
+ - If it falls your lot to be a street sweeper, sweep streets as Raphael painted pictures, sweep streets as Michelangelo carved marble, sweep streets as Beethoven composed music, or Shakespeare wrote poetry.
+ - The question is not if we will be extremists, but what kind of extremists we will be. The nation and the world are in dire need of creative extremists.
+ - You have very little morally persuasive power with people who can feel your underlying contempt.
+ - There can be no deep disappointment where there is not deep love.
+ - An individual who breaks a law that conscience tells him is unjust, and who willingly accepts the penalty of imprisonment in order to arouse the conscience of the community over its injustice, is in reality expressing the highest respect for the law.
+ - We must discover the power of love, the power, the redemptive power of love. And when we discover that we will be able to make of this old world a new world. We will be able to make men better. Love is the only way.
+ - Every genuine expression of love grows out of a consistent and total surrender to God.
+ - The choice is not between violence and nonviolence but between nonviolence and nonexistence.
+ - I agree with Dante, that the hottest places in hell are reserved for those who, in a period of moral crisis, maintain their neutrality.
+ - A lie cannot live.
+ - One day the absurdity of the almost universal human belief in the slavery of other animals will be palpable. We shall then have discovered our souls and become worthier of sharing this planet with them.
+ - One’s dignity may be assaulted, vandalized, cruelly mocked, but it an never be taken away unless it is surrendered.
+ - One day we will learn that the heart can never be totally right when the head is totally wrong.
+ - Let us not seek to satisfy our thirst for freedom by drinking from the cup of bitterness and hatred.
+ - Not only will we have to repent for the sins of bad people; but we also will have to repent for the appalling silence of good people.
+ - We must combine the toughness of the serpent with the softness of the dove, a tough mind and a tender heart.
+ - What seems so necessary today may not even be desirable tomorrow.
+ - We must rapidly begin the shift from a “thing-oriented” society to a “person-oriented” society. When machines and computers, profit motives and property rights are considered more important than people, the giant triplets of racism, materialism, and militarism are incapable of being conquered.
+ - Shallow understanding from people of good will is more frustrating than absolute misunderstanding from people of ill will.
+ - The greatest purveyor of violence in the world : My own Government, I can not be Silent.
+ - It may be true that the law cannot make a man love me, but it can stop him from lynching me, and I think that’s pretty important.
+ - Occasionally in life there are those moments of unutterable fulfillment which cannot be completely explained by those symbols called words. Their meanings can only be articulated by the inaudible language of the heart.
+ - Education without morals is like a ship without a compass, merely wandering nowhere.
+ - We are not makers of history. We are made by history.
+ - We shall overcome.
+ - I have a dream that one day this nation will rise up and live out the true meaning of its creed; We hold these truths to be self-evident: that all men are created equal.
+ - Education without direction is a one-sided social value. Direct action without education is a meaningless expression of pure energy.
+ - Hate begets hate; violence begets violence; toughness begets a greater toughness. We must meet the forces of hate with the power of love.
+ - Stand up for justice, stand up for truth; and God will be at your side forever.
+ - Injustice anywhere is a threat to justice everywhere. We are caught in an inescapable network of mutuality, tied in a single garment of destiny.
+ - Injustice and corruption will never be transformed by keeping them hidden, but only by bringing them out into the light and confronting them with the power of love.
+ - Education without social action is a one-sided value because it has no true power potential.
+ - Truth crushed to earth will rise again.
+ - The difference between a dreamer and a visionary is that a dreamer has his eyes closed and a visionary has his eyes open.
+ - Before you finish eating breakfast in the morning, you’ve depended on more than half of the world.
+ - If you’ve got nothing worth dying for, you’ve got nothing worth living for.
+ - I just want to do God’s will.
+ - Wars are poor chisels for carving out peaceful tomorrows.
+ - We must have the faith that things will work out somehow, that God will make a way for us when there seems no way.
+ - No one is free until we are all free.
+ - Life isn’t worth living until you have found something worth dying for.
+ - If you can’t be a sun, be a star. For it isn’t by size that you win or fail. Be the best of whatever you are.
+ - Peace is not merely a distant goal that we seek, but a means by which we arrive at that goal.
+ - I’ve been to the Mountaintop.
+ - If you want to be important-wonderful. If you want to be recognized-wonderful. If you want to be great-wonderful. But recognize that he who is greatest among you shall be your servant. That’s a new definition of greatness.
+ - I have a dream, one dream, keep dreaming. Dream of freedom, justice dreaming, dreaming of equality and hopefully no longer required to dream them.
+ - Change does not roll in on the wheels of inevitability, but comes through continuous struggle.
+ - Everyone can be great, because everyone can serve.
+ - The end of life is not to be happy, nor to achieve pleasure and avoid pain, but to do the will of God, come what may.
+ - Nothing in the world is more dangerous than sincere ignorance and conscientious stupidity.
+ - A man dies when he refuses to stand up for that which is right. A man dies when he refuses to stand up for justice. A man dies when he refuses to take a stand for that which is true.
+ - There is no deficit in human resources; the deficit is in human will.
+ - Morality cannot be legislated, but behavior can be regulated. Judicial decrees may not change the heart, but they can restrain the heartless.
+ - Let us not wallow in the valley of despair.
+ - Commit yourself to the noble struggle for human rights. You will make a greater person of yourself, a greater nation of your country and a finer world to live in.
+ - Whatever your life’s work is, do it well. A man should do his job so well that the living, the dead, and the unborn could do it no better.
+ - You can kill the dreamer, but you can’t kill the dream.
+ - But by all means, keep moving.
+ - The beauty of genuine brotherhood and peace is more precious than diamonds or silver or gold.
+ - The quality, not the longevity, of one’s life is what is important.
+ - The best way to solve any problem is to remove its cause.
+ - A genuine leader is not a searcher for consensus but a molder of consensus.
+ - My obligation is to do the right thing. The rest is in God’s hands.
+ - Whatever affects one directly, affects all indirectly. I can never be what I ought to be until you are what you ought to be. This is the interrelated structure of reality.
+ - Philanthropy is commendable, but it must not cause the philanthropist to overlook the circumstances of economic injustice which make philanthropy necessary.
+ - We are now faced with the fact, my friends, that tomorrow is today. We are confronted with the fierce urgency of now.
+ - It is appalling that the most segregated hour of Christian America is eleven o’clock on Sunday morning.
+ - All men are interdependent. Every nation is an heir of a vast treasury of ideas and labor to which both the living and the dead of all nations have contributed. Whether we realize it or not, each of us lives eternally ‘in the red.’ We are everlasting debtors to known and unknown men and women.
+ - Unity has never meant uniformity.
+ - Love is the most durable power in the world. This creative force is the most potent instrument available in mankind’s quest for peace and security.
+ - There is within human nature an amazing potential for goodness.
+ - Be an artist at whatever you do. Even if you are a street sweeper, be the Michelangelo of street sweepers.
+ - Let us develop a kind of dangerous unselfishness.
+ - The surest way to be happy is to seek happiness for others.
+ - But I know, somehow, that only when it is dark enough, can you see the stars.
+ - Justice too long delayed is justice denied.
+ - The function of education, therefore, is to teach one to think intensively and to think critically. But education which stops with efficiency may prove the greatest menace to society. The most dangerous criminal may be the man gifted with reason, but with no morals.
+ - If we are to have peace on earth, our loyalties must become ecumenical rather than sectional. Our loyalties must transcend our race, our tribe, our class, and our nation; and this means we must develop a world perspective.
+ - Was not Jesus an extremist in love? – “Love your enemies, bless them that curse you, pray for them that despitefully use you.”
+ - The hope of a secure and livable world lies with disciplined nonconformists who are dedicated to justice, peace and brotherhood.
+ - We must come to see that the end we seek is a society at peace with itself, a society that can live with its conscience.
+ - So long as I do not firmly and irrevocably possess the right to vote I do not possess myself. I cannot make up my mind – it is made up for me. I cannot live as a democratic citizen, observing the laws I have helped to enact – I can only submit to the edict of others.
+ - Knowledge is a process of piling up facts; wisdom lies in their simplification.
+ - The true neighbor will risk his position, his prestige, and even his life for the welfare of others.
+ - Nonviolence is not sterile passivity, but a powerful moral force which makes for social transformation.
+ - I was not afraid of the words of the violent, but of the silence of the honest.
+ - I became convinced that noncooperation with evil is as much a moral obligation as is cooperation with good.
+ - It is not possible to be in favor of justice for some people and not be in favor of justice for all people.
+ - I refuse to accept the idea that man is mere flotsam and jetsam in the river of life, unable to influence the unfolding events which surround him.
+ - All life is interrelated. The agony of the poor impoverishes the rich; the betterment of the poor enriches the rich. We are inevitably our brother’s keeper because we are our brother’s brother. Whatever affects one directly affects all indirectly.
+ - From the prodigious hilltops of New Hampshire, let freedom ring. From the mighty mountains of New York, let freedom ring. From the heightening Alleghenies of Pennsylvania, let freedom ring. But not only that: Let freedom ring from every hill and molehill of Mississippi.
+ - We stand in life at midnight; we are always at the threshold of a new dawn.
+ - Today, our very survival depends on our ability to stay awake, to adjust to new ideas, to remain vigilant and to face the challenge of change.
+ - Means we use must be as pure as the ends we seek.
+ - Voting is the foundation stone for political action.
+ - Without love, benevolence becomes egotism.
+ - Jazz speaks for life. This is triumphant music.
+ - He should sweep streets so well that all the host of heaven and earth will pause to say, ‘Here lives a great street-sweeper who did his job well’
+ - A productive and happy life is not something you find; it is something you make.
+ - Justice is love correcting that which revolts against love.
+ - We all too often have socialism for the rich and rugged free market capitalism for the poor.
+ - Oppressed people cannot remain oppressed forever. The yearning for freedom eventually manifests itself...
+ - Through our scientific and technological genius we’ve made of this world a neighborhood. And now through our moral and ethical commitment we must make of it a brotherhood. We must all learn to live together as brothers-or we will all perish together as fools.
+ - Friends are forever Boys are whatever.
+ - Returning violence for violence multiplies violence, adding deeper darkness to a night already devoid of stars...
+ - If America does not use her vast resources of wealth to end poverty and make it possible for all of God’s children to have the basic necessities of life, she too will go to hell.
+ - A social movement that only moves people is merely a revolt. A movement that changes both people and institutions is a revolution.
+ - A man dies when he refuses to stand up for that which is right.
+ - This is no time to engage in the luxury of cooling off or to take the tranquilizing drug of gradualism.
+ - The most dangerous criminal may be the man gifted with reason, but with no morals.
+ - Nothing pains some people more than having to think.
+ - For all of us today, the battle is in our hands. The road ahead is not altogether a smooth one. There are no broad highways to lead us easily and inevitably to quick solutions. We must keep going.
+ - Now is the time to lift our national policy from the quicksand of racial injustice to the solid rock of human dignity.
+ - People with good intentions but limited understanding are more dangerous than people with total ill will.
+ - The profit motive, when it is the sole basis of an economic system, encourages a cutthroat competition and selfish ambition that inspires men to be more concerned about making a living than making a life.
+ - In a real sense faith is total surrender to God .
+ - The way of acquiescence leads to moral and spiritual suicide. The way of violence leads to bitterness in the survivors and brutality in the destroyers. But, the way of nonviolence leads to redemption and the creation of the beloved community.
+ - I came to the conclusion that there is an existential moment in your life when you must decide to speak for yourself; nobody else can speak for you.
+ - When our days become dreary with low-hovering clouds and our nights become darker than a thousand midnights, we will know that we are living in the creative turmoil of a genuine civilization struggling to be born.
+ - Christianity has always insisted that the cross we bear always precedes the crown we wear.
+ - It’s not burn baby burn, but learn, baby, learn, so that you can earn, baby, earn.
+ - Jazz speaks for life. The Blues tell the story of life’s difficulties, and if you think for a moment, you will realize that they take the hardest realities of life and put them into music, only to come out with some new hope or sense of triumph.
+ - It all boils down to this: that all life is interrelated.
+ - It’s not the violence of the few that scares me, it’s the silence of the many.
+ - Carve a tunnel of hope through the dark mountain of disappointment.
+ - To put it in the terms of St. Thomas Aquinas: An unjust law is a human law that is not rooted in eternal law and natural law.
+ - Everything that we see is a shadow cast by that which we do not see.
+ - Never succumb to the temptation of bitterness.
+ - Mass civil disobedience can use rage as a constructive and creative force.
+ - But life at its best is a creative synthesis of opposites in fruitful harmony.
+ - I have DECIDED to love. If you are seeking the highest good, I think you can find it through love. GOD is love.
+ - We cannot walk alone. And as we walk, we must make the pledge that we shall always march ahead. We cannot turn back.
+ - An eye for an eye leaves everybody blind.
+ - Every person must stand up and be accountable, but be responsible for their actions.
+ - There is little hope for us until we become tough-minded enough to break loose from the shackles of prejudice, half-truths, and down-right ignorance.
+ - History will have to record that the greatest tragedy of this period of social transition was not the strident clamor of the bad people, but the appalling silence of the good people.
+ - A true revolution of values will see that the western arrogance of feeling that it has everything to teach others and nothing to learn from them is not just.
+ - The road to freedom is a difficult, hard road. It always makes for temporary setbacks.
+ - In Christ there is no East nor West.
+ - So let freedom ring from the prodigious hilltops of New Hampshire.
+ - We are prone to judge success by the index of our salaries or the size of our automobiles rather than by the quality of our service and relationship to mankind.
+ - We must learn that passively to accept an unjust system is to cooperate with that system, and thereby to become a participant in its evil.
+ - If the church of today does not recapture the sacrificial spirit of the early church, it will lose its authentic ring, forfeit the loyalty of millions, and be dismissed as an irrelevant social club with no meaning for the twentieth century.
+ - One of the great liabilities of history is that all too many people fail to remain awake through great periods of social change.
+ - If we are to go forward, we must go back and rediscover those precious values – that all reality hinges on moral foundations and that all reality has spiritual control.
+ - What I’m saying to you this morning is that Communism forgets that life is individual. Capitalism forgets that life is social, and the Kingdom of Brotherhood is found neither in the thesis of Communism nor the antithesis of capitalism but in a higher synthesis.
+ - There is nothing but a lack of social vision to prevent us from paying an adequate wage to every American citizen whether he be a hospital worker, laundry worker, maid or day laborer.
+ - We must forever conduct our struggle on the high plane of dignity and discipline. We must not allow our creative protest to degenerate into physical violence.
+ - We who in engage in nonviolent direct action are not the creators of tension. We merely bring to the surface the hidden tension that is already alive.
+ - If you have not discovered something you are willing to die for, then you are not fit to live.
+ - We must substitute courage for caution.
+ - Why is the church always a taillight rather than a headlight?
+ - Personality is like a charioteer with two headstrong horses, each wanting to go in different directions.
+ - Racial segregation must be seen for what it is, and that is an evil system, a new form of slavery covered up with certain niceties of complexity.
+ - We must learn that to expect God to do everything while we do nothing is not faith but superstition.
+ - Mankind’s survival is dependent on man’s ability to solve the problems of racial injustice, poverty, and war; the solution of these problems is in turn dependent upon man’s squaring his moral progress with his scientific progress, and learning the practical art of living in harmony.
+ - We will not be satisfied until justice rolls down like waters.
+ - Alienation is a form of living death. It is the acid of despair that dissolves society.
+ - Be The Peace You Wish To See In The World!
+ - Three hundred years of humiliation, abuse and deprivation cannot be expected to find voice in a whisper.
+ - I say to you today, my friends, that in spite of the difficulties and frustrations of the moment, I still have a dream.
+ - Find a voice in a whisper.
+ - The strong man is the man who can stand up for his rights and not hit back.
+ - Man must evolve for all human conflict a method which rejects revenge, aggression and retaliation. The foundation of such a method is love.
+ - One day we will learn that the heart can never be totally right if the head is totally wrong. Only through the bringing together of head and heart-intelligence and goodness-shall man rise to a fulfillment of his true nature.
+ - I’ve decided to stick with love.
+ - Call it democracy, or call it democratic socialism, but there must be a better distribution of wealth within this country for all God’s children.
+ - We must in strength and humility meet hate with love.
+ - I have a dream that one day every valley shall be exalted, every hill and mountain shall be made low, the rough places will be made straight and the glory of the Lord shall be revealed and all flesh shall see it together.
+ - A just law is a man-made code that squares with the moral law, or the law of God. An unjust law is a code that is out of harmony with the moral law.
+ - Success, recognition, and conformity are the bywords of the modern world where everyone seems to crave the anesthetizing security of being identified with the majority.
+ - Those of us who love peace must organize as effectively as the war hawks. As they spread the propaganda of war, we must spread the propaganda of peace.
+ - Make a career of humanity. Commit yourself to the struggle for equal rights.
+ - Seeing is not always believing.
+ - Jesus Christ was an extremist for love, truth and goodness.
+ - My country, ’tis of thee, sweet land of liberty, of thee I sing. Land where my fathers died, land of the pilgrim’s pride, from every mountainside, let freedom ring.
+ - Love is the supreme unifying principle of life.
+ - Don’t let anybody take your manhood.
+ - Lukewarm acceptance is more bewildering than outright rejection.
+ - A Church that has lost its voice for justice is a Church that has lost its relevance in the world.
+ - I have an ultimate faith in America and an audacious faith in mankind.
+ - Without love, there is no reason to know anyone, for love will in the end connect us to our neighbors, our children and our hearts.
+ - Nonviolence is absolute commitment to the way of love. Love is not emotional bash; it is not empty sentimentalism. It is the active outpouring of one’s whole being into the being of another.
+ - I’ve seen too much hate to want to hate, myself.
+ - It is not a sign of weakness, but a sign of high maturity, to rise to the level of self-criticism.
+ - Vanity asks, is it popular? Politics ask, will it work? But conscience and morality ask, is it right?
+ - Almost always, the creative dedicated minority has made the world better.
+ - You can’t reach good ends through evil means, because the means represent the seed and the end represents the tree.
+ - Normal fear protects us; abnormal fear paralyses us. Normal fear motivates us to improve our individual and collective welfare; abnormal fear constantly poisons and distorts our inner lives. Our problem is not to be rid of fear but, rather to harness and master it.
+ - What are you doing for others?
+ - And I’ve seen the promised land. I may not get there with you. But I want you to know tonight, that we, as a people will get to the promised land.
+ - Never succumb to the temptation of becoming bitter. As you press for justice, be sure to move with dignity and discipline, using only the instruments of love.
+ - Many men cry Peace! Peace! but they refuse to do the things that make for peace.
+ - Many white Americans of good will have never connected bigotry with economic exploitation. They have deplored prejudice but tolerated or ignored economic injustice.
+ - Even if they try to kill you, you develop the inner conviction that there are some things so precious, some things so eternally true that they are worth dying for. And if a person has not found something to die for, that person isn’t fit to live!
+ - There is nothing more tragic in all the world than to know right and not to do it.
+ - We must speak with all the humility that is appropriate to our limited vision, but we must speak.
+ - Each of us is something of a schizophrenic personality, tragically divided against ourselves.
+ - Never, never be afraid to do what’s right.
+ - The failures of the past must not be an excuse for the inaction of the present and the future.
+ - Had it not been for the ministry of my good friend Dr. Billy Graham, my work in the civil rights movement would not have been as successful as it has been.
+ - A true revolution of values will soon cause us to question the fairness and justice of many of our present policies...
+ - Babies, we are told, are the latest news from heaven.
+ - I have condemned any organizer of war, regardless of his rank or nationality.
+ - I know that love is ultimately the only answer to mankind’s problems. And I’m going to talk about it everywhere I go. I know it isn’t popular to talk about it in some circles today. I’m not talking about emotional bosh when I talk about love, I’m talking about a strong, demanding love.
+ - The problem of racism, the problem of economic exploitation, and the problem of war are all tied together. These are the triple evils that are interrelated.
+ - Christ furnished the spirit and motivation while Gandhi furnished the method.
+ - Rarely do we find men who willingly engage in hard, solid thinking. There is an almost universal quest for easy answers and half-baked solutions. Nothing pains some people more than having to think.
+ - Let us be those creative dissenters who will call our beloved nation to a higher destiny. To a new plateau of compassion, to a more noble expression of humanness.
+ - There’s something about love that builds up and is creative. There is something about hate that tears down and is destructive. So love your enemies.
+ - These are the times for real choices and not false ones. We are at the moment when our lives must be placed on the line if our nation is to survive its own folly. Every man of humane convictions must decide on the protest that best suits his convictions, but we must all protest.
+ - Whatever you do, you have to keep moving forward!
+ - The ultimate weakness of violence is that it is a descending spiral, begetting the very thing it seeks to destroy. Instead of diminishing evil, it multiplies it.
+ - Often the oppressor goes along unaware of the evil involved in his oppression so long as the oppressed accepts it.
+ - Before the Pilgrims landed at Plymouth, we were here. Before the pen of Jefferson etched across the pages of history the majestic words of the Declaration of Independence, we were here.
+ - We must meet the forces of hate with the power of love.
+ - We can walk through the darkest night with the radiant conviction that all things work together for the good.
+ - In the process of gaining our rightful place, we must not be guilty of wrongful deeds. Let us not seek to satisfy our thirst for freedom by drinking from the cup of bitterness and hatred. We must forever conduct our struggle on the high plane of dignity and discipline.
+ - I would rather be a man of conviction than a man of conformity.
+ - We must face the appalling fact that we have been betrayed by both the Democratic and Republican Parties.
+ - The trailblazers in human, academic, scientific and religious freedom have always been nonconformists.
+ - Now let us begin. Now let us rededicate ourselves to the long and bitter, but beautiful, struggle for a new world. This is the calling of the sons of God, and our brothers wait eagerly for our response. Shall we say the odds are too great? Shall we tell them the struggle is too hard?
+ - Be true to what you said on paper.
+ - True compassion is more than flinging a coin to a beggar. It comes to see that a system that produces beggars needs to be repaved. We are called to be the Good Samaritan, but after you lift so many people out of the ditch you start to ask, maybe the whole road to Jericho needs to be repaved.
+ - We must see that peace represents a sweeter music, a cosmic melody, that is far superior to the discords of war.
+ - Nonviolent direct action seeks to create such a crisis and establish such creative tension that a community that has consistently refused to negotiate is forced to confront the issue.
+ - The body is God’s temple, but we are to worship God, not the temple.
+ - Jesus is not an impractical idealist; he is the practical realist.
+ - We have a great dream. It started way back in 1776, and God grant that America will be true to her dream.
+ - The whole world must see that Israel must exist and has the right to exist, and is one of the great outposts of democracy in the world.
+ - Ultimately a great nation is a compassionate nation.
+ - The words ‘I will forgive you, but I’ll never forget what you’ve done’ never explain the real nature of forgiveness.
+ - The great military leaders of the past have gone, their empires have crumbled and burned to ashes. But the empire of Jesus, built solidly and majestically on the foundation of love, is still growing.
+ - Music is the best consolation for a despaired man.
+ - Is your heart right? If your heart isn’t right, fix it up today.
+ - Without hard work, time itself becomes an ally of the primitive forces of social stagnation. So we must help time and realize that the time is always ripe to do right.
+ - The soft-minded man always fears change. He feels security in the status quo, and he has an almost morbid fear of the new. For him, the greatest pain is the pain of a new idea.
+ - There is a type of constructive nonviolent tension that is necessary for growth.
+ - We will not build a peaceful world by following a negative path. It is not enough to say we will not wage war. It is necessary to love peace and sacrifice for it. We must concentrate not merely on the negative expulsion of war, but on the positive affirmation of peace.
+ - I have a dream, that one day on the red hills of Georgia...
+ - By its very nature, hate destroys and tears down; by its very nature, love creates and builds up.
+ - There is something wrong with our world, something fundamentally and basically wrong.
+ - We must rapidly begin the shift from a “thing-oriented” society to a “person-oriented” society.
+ - School takes 13 years, because that is how long it takes to break a child’s spirit.
+ - Now is the time to make justice a reality for all of God’s children.
+ - The purpose of direct action is to create a situation so crisis-packed that it will inevitably open the door to negotiation.
+ - Like anybody, I would like to have a long life. Longevity has its place. But I’m not concerned about that now. I just want to do God’s will.
+ - The early Christians rejoiced when they were deemed worthy to suffer for what they believed. In those days the Church was not merely a thermometer that recorded the ideas and principles o popular opinion; it was a thermostat that transformed the mores of society.
+ - Now let us begin. Now let us rededicate ourselves to the long and bitter – but beautiful – struggle for a new world.
+ - Moral principles have lost their distinctiveness. For modern man, absolute right and absolute wrong are a matter of what the majority is doing.
+ - The method of nonviolence seeks not to humiliate and not to defeat the oppressor, but it seeks to win his friendship and his understanding. And thereby and therefore the aftermath of this method is reconciliation.
+ - The nations of Asia and Africa are moving with jetlike speed toward the goal of political independence, and we still creep at horse-and-buggy pace toward the gaining of a cup of coffee at a lunch counter.
+ - Again and again we must rise to the majestic heights of meeting physical force with soul force.
+ - Why should there be hunger and deprivation in any land, in any city, at any table, when man has the resources and the scientific know-how to provide all mankind with the basic necessities of life? There is no deficit in human resources. The deficit is in human will.
+ - Let us rise up tonight with a greater readiness. Let us stand with a greater determination. And let us move on in these powerful days, these days of challenge to make America what it ought to be. We have an opportunity to make America a better nation.
+ - Violence ends up defeating itself. It creates bitterness in the survivors and brutality in the destroyers.
+ - The oppressed must never allow the conscience of the oppressor to slumber. Religion reminds every man that he is his brother’s keeper.
+ - Violence brings only temporary victories; violence, by creating many more social problems than it solves, never brings permanent peace.
+ - Ten cures for depression are to go out and do something for someone else and repeat it nine times.
+ - One of these days I’m going to put my body where my mind is.
+ - You cannot defect form an insight. You cannot unsee what you have seen.
+ - Forgiveness does not mean ignoring what has been done or putting a false label on an evil act. It means, rather, that the evil act no longer remains as a barrier to the relationship. Forgiveness is a catalyst creating the atmosphere necessary for a fresh start and a new beginning.
+ - Violence is anything that denies human integrity, and leads to hopelessness and helplessness.
+ - We must be concerned not merely about who murdered them, but about the system, the way of life, the philosophy which produced the murderers .
+ - Love is somehow the key that unlocks the door which leads to ultimate reality.
+ - Our problem is not to be rid of fear but rather to harness and master it.
+ - Like an unchecked cancer, hate corrodes the personality and eats away its vital unity. Hate destroys a man’s sense of values and his objectivity. It causes him to describe the beautiful as ugly and the ugly as beautiful, and to confuse the true with the false and the false with the true.
+ - Right defeated is stronger than evil triumphant.
+ - Law and order exist for the purpose of establishing justice and when they fail in this purpose they become the dangerously structured dams that block the flow of social progress.
+ - Set yourself earnestly to discover what you are made to do, and then give yourself passionately to the doing of it.
+ - Freedom only comes through persistent revolt, through persistent agitation, through persistently rising up against the system of evil.
+ - As marvelous as the stars is the mind of the person who studies them.
+ - Nonviolence is a powerful and just weapon. which cuts without wounding and ennobles the man who wields it. It is a sword that heals.
+ - Cowardice is submissive surrender to circumstances.
+ - We should never forget that everything Adolph Hitler did in Germany was “legal” and everything the Hungarian freedom fighers did in Hungary was “illegal.” It was “illegal” to aid and comfort a Jew in Hitler’s Germany.
+ - The good neighbor looks beyond the external accidents and discerns those inner qualities that make all men human and, therefore, brothers.
+ - Nonviolence is the answer to the crucial political moral questions of our time.
+ - We all have the drum major instinct. We all want to be important, to surpass others, to achieve distinction, to lead the parade.
+ - It is hardly a moral act to encourage others patiently to accept injustice which he himself does not endure.
+ - Money, like any other force such as electricity, is amoral and can be used for either good or evil.
+ - If you succumb to the temptation of using violence in the struggle, unborn generations will be the recipients of a long and desolate night of bitterness, and your chief legacy to the future will be an endless reign of meaningless chaos.
+ - Without God, all of our efforts turn to ashes and our sunrise into the darkest of nights.
+ - But I say to you, my friends, there are certain things in our nation and in the world which I am proud to be maladjusted and which I hope all men of good-will will be maladjusted until the good societies realize.
+ - Another way that you love your enemy is this: When the opportunity presents itself for you to defeat your enemy, that is the time which you must not do it.
+ - When I am commanded to love, I am commanded to restore community, to resist injustice, and to meet the needs of my brothers.
+ - In some not too distant tomorrow the radiant stars of love and brotherhood will shine over our great nation with all their scintillating beauty.
+ - One of the great tragedies of life is that men seldom bridge the gulf between practice and profession, between doing and saying.
+ - The Darwinian concept of the survival of the fittest has been substituted by a philosophy of the survival of the slickest.
+ - For years, I labored with the idea of reforming the existing institutions in the South, a little change here, a little change there. Now I feel quite differently. I think you’ve got to have a reconstruction of the entire system, a revolution of values.
+ - Whatever my doubts, however heavy the burden, I feel that I must accept the task of helping to make this nation and this world a better place to live in – for all men, black and white alike.
+ - Human salvation lies in the hands of the creatively maladjusted.
+ - We all can’t be famous but we can all be great and we become great when we serve others.
+ - Pity may represent little more than the impersonal concern which prompts the mailing of a check, but true sympathy is the personal concern which demands the giving of one’s soul.
+ - Our lives are not fully lived if we’re not willing to die for those we love, for what we believe.
+ - Faith can give us courage to face the uncertainties of the future.
+ - We refuse to believe that the bank of justice is bankrupt.
+ - History is the long and tragic story of the fact that privileged groups seldom give up their privileges voluntarily.
+ - The reason I can’t follow the old eye-for-an-eye philosophy is that it ends up leaving everyone blind.
+ - Difficult and painful as it is, we must walk on in the days ahead with an audacious faith in the future.
+ - A society is always eager to cover misdeeds with a cloak of forgetfulness, but no society can fully repress an ugly past when the ravages persist into the present. America owes a debt of justice which it has only begun to pay.
+ - We have deluded ourselves into believing the myth that capitalism grew and prospered out of the Protestant ethic of hard work and sacrifices. Capitalism was built on the exploitation of black slaves and continues to thrive on the exploitation of the poor, both black and white, both here and abroad.
+ - We were not unmindful of the difficulties involved. So we decided to go through a process of self-purification.
+ - The principle of nonviolent resistance seeks to reconcile the truths of two opposites-Acquiescence and violence -while avoiding the extremes and immoralities of both.
+ - America must begin the struggle for democracy at home. The advocacy of free elections in Europe by American officials is hypocrisy when free elections are not held in great sections of America.
+ - This faith transforms the whirlwind of despair into a warm and reviving breeze of hope. The words of a motto which a generation ago were commonly found on the wall in the homes of devout persons need to be etched on our hearts: Fear knocked at the door. Faith answered. There was no one there.
+ - Any nation or government that deprives an individual of freedom is in that moment committing an act of moral and spiritual murder. Any individual who is not concerned about his freedom commits an act of moral and spiritual suicide.
+ - We did not hesitate to call our movement an army. But it was a special army, with no supplies but its sincerity, no uniform but its determination, no arsenal except its faith, no currency but its conscience.
+ - Somebody must have sense enough and morality enough to cut off the chain of hate and the chain of evil in the universe. And you do that by love.
+ - We must pursue peaceful end through peaceful means.
+ - I say to you that our goal is freedom, and I believe we are going to get there because however much she strays away from it, the goal of America is freedom.
+ - Science investigates religion interprets. Science gives man knowledge which is power religion gives man wisdom which is control.
+ - Ten thousand fools proclaim themselves into obscurity, while one wise man forgets himself into immortality.
+ - If I wish to compose or write or pray or preach well, I must be angry. Then all the blood in my veins is stirred, and my understanding is sharpened.
+ - As television beamed the image of this extraordinary gathering across the border oceans, everyone who believed in man’s capacity to better himself had a moment of inspiration and confidence in the future of the human race.
+ - The limitation of riots, moral questions aside, is that they cannot win and their participants know it. Hence, rioting is not revolutionary but reactionary because it invites defeat. It involves an emotional catharsis, but it must be followed by a sense of futility.
+ - Man is man because he is free to operate within the framework of his destiny. He is free to deliberate, to make decisions, and to choose between alternatives.
+ - Every man is somebody because he is a child of God.
+ - Gandhi was inevitable. If humanity is to progress, Gandhi is inescapable. He lived, thought and acted, inspired by the vision of humanity evolving toward a world of peace and harmony. We may ignore Gandhi at our own risk.
+ - The group consisting of mother, father and child is the main educational agency of mankind.
+ - Your truth will increase as you know listen to the truth of others.
+ - Our nettlesome task is to discover how to organize our strength into compelling power.
+ - As long as the mind is enslaved, the body can never be free.
+ - If your opponent has a conscience, then follow Gandhi and nonviolence. But if your enemy has no conscience like Hitler, then follow Bonhoeffer.
+ - Every nation must now develop an overriding loyalty to mankind as a whole in order to preserve the best in their individual societies.
+ - I am convinced that love is the most durable power in the world. It is not an expression of impractical idealism, but of practical realism.
+ - Perhaps the worst sin in life is knowing right and not doing it.
+ - When we see social relationships controlled everywhere by the principles which Jesus illustrated in life – trust, love, mercy, and altruism – then we shall know that the kingdom of God is here.
+ - The bombs in Vietnam explode at home; they destroy the hopes and possibilities for a decent America.
+ - The whirlwinds of revolt will continue to shake the foundations of our nation until the bright day of justice emerges.
+ - There is a more excellent way, of love and nonviolent protest.
+ - The major problem of life is learning how to handle the costly interruptions. The door that slams shut, the plan that got sidetracked, the marriage that failed. Or that lovely poem that didn’t get written because someone knocked on the door.
+ - When the architects of our republic wrote the magnificent words of the Constitution and the Declaration of Independence, they were signing a promissory note to which every American was to fall heir.
+ - I have a dream that one day on the red hills of Georgia, the sons of former slaves and the sons of former slave owners will be able to sit together at the table of brotherhood.
+ - Like an unchecked cancer, hate corrodes the personality and eats away its vital unity.
+ - When I am angry I can write, pray, and preach well, for then my whole temperament is quickened, my understanding sharpened, and all mundane vexations and temptations depart.
+ - Civilization and violence are antithetical concepts.
+ - Courage faces fear and thereby masters it.
+ - We can either walk the highroad of brotherhood or the low road of man’s inhumanity to man.
+ - I have consistently preached that nonviolence demands that the means we use must be as pure as the ends we seek.
+ - I have a dream that one day even the state of Mississippi, a desert state sweltering in the heat of injustice and oppression, will one day be transformed into an oasis of freedom and justice.
+ - Good and just society is neither the thesis of capitalism nor the antithesis of communism, but a socially conscious democracy which reconciles the truths of individualism and collectivism.
+ - Freedom has always been an expensive thing. History is fit testimony to the fact that freedom is rarely gained without sacrifice and self-denial.
+ - If America’s soul becomes totally poisoned, part of the autopsy must read Vietnam. It can never be saved so long as it destroys the hopes of men the world over.
+ - Was not Paul an extremist for the gospel of Jesus Christ? – “I bear in my body the marks of the Lord Jesus.”
+ - Love even for enemies is the key to the solution of the problems of our world.
+ - When I took up the cross I recognized it’s meaning. The cross is something that you bear, and ultimately, that you die on.
+ - There is nothing more tragic than to find an individual bogged down in the length of life, devoid of breadth.
+ - Now is the time to rise from the dark and desolate valley of segregation to the sunlit path of racial justice.
+ - It is quite easy for me to think of a God of love mainly because I grew up in a family where love was central and where lovely relationships were ever present.
+ - It seems to me that education has a two-fold function to perform in the life of man and in society: the one is utility and the other is culture. Education must enable a man to become more efficient, to achieve with increasing facility the ligitimate goals of his life.
+ - Our generation will not have regretted both perverse crimes, and the eerie silence of the kind.
+ - There is nothing in all the world greater than freedom. It is worth paying for; it is worth going to jail for. I would rather be a free pauper than a rich slave. I would rather die in abject poverty with my convictions than live in inordinate riches with the lack of self respect.
+ - We are called to speak for the weak, for the voiceless, for the victims of our nation and for those it calls enemy, for no document from human hands can make these humans any less our brothers and sisters.
+ - As the weeks and months unfolded, we realized that we were the victims of a broken promise.
+ - The supreme task is to organize and unite people so that their anger becomes a transforming force.
+ - Never again can we afford to live with the narrow, provincial “outside agitator” idea. Anyone who lives inside the United States can never be considered an outsider.
+ - The human heart is like a ship on a stormy sea driven about by winds blowing from all four corners of heaven.
+ - Agape means recognition of the fact that all life is interrelated. All humanity is involved in a single process, and all men are brothers. To the degree that I harm my brother, no matter what he is doing to me, to that extent I am harming myself.
+ - Too unconcerned to love and too passionless to hate, too detached to be selfish and too lifeless to be unselfish, too indifferent to experience joy and too cold to express sorrow, they are neither dead nor alive; they merely exist.
+ - We cannot be truly Christian people so long as we flaunt the central teachings of Jesus: brotherly love and the Golden Rule.
+ - My parents would always tell me that I should not hate the white man, but that it was my duty as a Christian to love him.
+ - Hate destroys the very structure of the personality of the hater.
+ - The potential beauty of human life is constantly made ugly by man’s ever-recurring song of retaliation.
+ - You know my friends, there comes a time when people get tired of being trampled by the iron feet of oppression.
+ - The self cannot be self without other selves.
+ - Our world hinges on moral foundations. God has made it so. God has made the universe to be based on a moral law. So long as man disobeys it he is revolting against God. That’s what we need in the world today: people who will stand for right and goodness.
+ - Like a boil that must be opened with all its ugliness to the natural medicines of air and light, injustice must be exposed to the light of human conscience before it can be cured.
+ - The Christian faith makes it possible for us nobly to accept that which cannot be changed, and to meet disappointments and sorrow with an inner poise, and to absorb the most intense pain without abandoning our sense of hope.
+ - I am now convinced that the simplest approach will prove to be the most effective – the solution to poverty is to abolish it directly by a now widely discussed measure: the guaranteed income.
+ - Individuals may see the moral light and voluntarily give up their unjust posture; but, as Reinhold Niebuhr has reminded us, groups are more immoral than individuals.
+ - What good does it do to sit at the counter when you cannot afford a hamburger?
+ - All progress is precarious, and the solution of one problem brings us face to face with another problem.
+ - Whom you would change, you must first love.
+ - We must come to see with the distinguished jurist of yesterday that “justice too long delayed is justice denied.”
+ - The curse of poverty has no justification in our age.
+ - Some of my best friends are Oscar Wilde.
+ - One day we shall win freedom, but not only for ourselves. We shall so appeal to your heart and conscience that we shall win you in the process, and our victory will be a double victory.
+ - Resistance and nonviolence are not in themselves good. There is another element that must be present in our struggle that then makes our resistance and nonviolence truly meaningful. That element is reconciliation. Our ultimate end must be the creation of the beloved community.
+ - I cannot sit idly by in Atlanta and not be concerned about what happens in Birmingham.
+ - There is nothing more majestic than the determined courage of individuals willing to suffer and sacrifice for their freedom and dignity.
+ - We must have our freedom now. We must have the right to vote. We must have equal protection of the law.
+ - It is Love that will save our world and our civilization.
+ - Now there is a final reason I think that Jesus says, ‘Love your enemies.’ It is this: that love has within it a redemptive power. And there is a power there that eventually transforms individuals.
+ - Even in the inevitable moments when all seems hopeless, men know that without hope they cannot really live, and in agonizing desperation they cry for the bread of hope.
+ - The real problem is that through our scientific genius we’ve made of the world a neighborhood, but through our moral and spiritual genius we’ve failed to make of it a brotherhood.
+ - My place is in the sunlight of opportunity.
+ - The holy passion of friendship is of so sweet and steady and loyal and enduring a nature that it will last through a whole lifetime, if not asked to lend money In the end, we will remember not the words of our enemies, but the silence of our friends.
+ - Have we not come to such an impasse in the modern world that we must love our enemies – or else? The chain reaction of evil – hate begetting hate, wars producing more wars – must be broken, or else we shall be plunged into the dark abyss of annihilation.
+ - Courageous men never lose the zest for living even though their life situation is zestless; cowardly men, overwhelmed by the uncertainties of life, lose the will to live. We must constantly build dykes of courage to hold back the flood of fear.
+ - Let us say boldly, that if the total slum violations of law by the white man over the years were calculated and compared with the lawbreaking of a few days of riots, the hardened criminal would be the white man.
+ - One who breaks an unjust law must do so openly, lovingly, and with a willingness to accept the penalty.
+ - To accept injustice or segregation passively is to say to the oppressor that his actions are morally right.
+ - Capital punishment is against the best judgment of modern criminology and, above all, against the highest expression of love in the nature of God.
+ - We have waited for more than three hundred and forty years for our constitutional and God-given rights.
+ - I would suffer all the humiliation, all the torture, the absolute ostracism and even death, to prevent violence.
+ - If a person sweeps streets for a living, he should sweep them as Michelangelo painted, as Beethoven composed, as Shakespear wrote.
+ - The idea of a superior or inferior race is a myth that has been completely refuted by anthropological evidence.
+ - The means by which we live have outdistanced the ends for which we live.
+ - In our society it is murder, psychologically, to deprive a man of a job or an income. You are in substance saying to that man that he has no right to exist. You are in a real way depriving him of life, liberty, and the pursuit of happiness, denying in his case the very creed of his society.
+ - Was not Abraham Lincoln an extremist? – “This nation cannot survive half slave and half free.”
+ - Today we know with certainty that segregation is dead. The only question remaining is how costly will be the funeral.
+ - The belief that God will do everything for man is as untenable as the belief that man can do everything for himself. It, too, is based on a lack of faith. We must learn that to expect God to do everything while we do nothing is not faith but superstition.
+ - Our eternal message of hope is that dawn will come.
+ - I could never adjust to the separate waiting rooms, separate eating places, separate rest rooms, partly because the separate was always unequal, and partly because the very idea of separation did something to my sense of dignity and self-respect.
+ - The major problem of life is learning how to handle the costly interruptions.
+ - America, you must be born again!
+ - Violence is immoral because it thrives on hatred rather than love. It destroys community and makes brotherhood impossible. It leaves society in monologue rather than dialogue. Violence ends by defeating itself. It creates bitterness in the survivors and brutality in the destroyers.
+ - Science keeps religion from sinking into the valley of crippling irrationalism and paralyzing obscurantism. Religion prevents science from falling into the marsh of obsolete materialism and moral nihilism.
+ - Through violence, you may murder the hater, but you do not murder the hate.
+ - They were too God-intoxicated to be “astronomically intimidated.” They brought an end to such ancient evils as infanticide and gladiatorial contest.
+ - It is not enough to say we must not wage war. It is necessary to love peace and sacrifice for it.
+ - I’m very glad Christ tells us to love our neighbor and not to like our neighbor because it’s hard to like someone threatening your children and throwing fire bombs through your window, but He asks us to love them and that I can do.
+ - Segregation is the adultery of an illicit intercourse between injustice and immorality.
+ - Worship is as natural to the human family as the sing of the sun is to the cosmic order.
+ - Some people are so worn down by the yoke of oppression that they give up.
+ - I never intend to adjust myself to the madness of militarism.
+ - This is the unusual thing about nonviolence – nobody is defeated, everybody shares in the victory.
+ - So I have tried to make it clear that it is wrong to use immoral means to attain moral ends. But now I must affirm that it is just as wrong, or even more so, to use moral means to preserve immoral ends.
+ - You cannot solve the problem by turning to communism, for communism is based on an ethical relativism and a metaphysical materialism that no Christian can accept.
+ - If I sought to answer all of the criticisms that cross my desk, my secretaries would be engaged in little else in the course of the day, and I would have no time for constructive work.
+ - It is a sad fact that because of comfort, complacency, a morbid fear of communism, and our proneness to adjust to injustice, the Western nations that initiated so much of the revolutionary spirit of the modern world have now become the arch-antirevolutionaries.
+
+500 quotes

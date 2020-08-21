@@ -1,0 +1,126 @@
+ - All your life, you will be faced with a choice. You can choose love or hate. I choose love.
+ - You build on failure. You use it as a stepping stone. Close the door on the past. You don't try to forget the mistakes, but you don't dwell on it. You don't let it have any of your energy, or any of your time, or any of your space.
+ - Life is rough so you gotta be tough.
+ - There's no way around grief and loss: you can dodge all you want, but sooner or later you just have to go into it, through it, and, hopefully, come out the other side. The world you find there will never be the same as the world you left.
+ - What have I become, my sweetest friend. Everyone I know goes away, in the end.
+ - My arms are too short to box with God.
+ - Success is having to worry about every damn thing in the world, except money.
+ - I learn from my mistakes. It’s a very painful way to learn, but without pain, the old saying is, there’s no gain.
+ - Because you’re mine, I walk the line.
+ - As sure as God made black and white, what’s done in the dark will be brought to the light.
+ - We’re all in this together if we’re in it at all.
+ - Life and love go on, let the music play.
+ - I don’t give up because I don’t give up. I don’t believe in it.
+ - Flesh and blood needs flesh and blood, and you're the one I need.
+ - I remember everything What have I become? My sweetest friend? E veryone I know goes away in the end You could have it all My empire of dirt I will let you down I will make you hurt.
+ - When God forgave me, I figured I’d better do it too.
+ - I just hope and pray I can die with my boots on.
+ - If you’re going to be a Christian, you’re going to change. You’re going to lose some old friends, not because you want to, but because you need to.
+ - The more I learn, the more excited I get.
+ - All music comes from God.
+ - I wear my crown of thorns on my liars chair, full of broken thoughts I cannot repair, beneath the stain of time the feelings disappears. What have I become, my sweetest of friends?
+ - I keep a close watch on this heart of mine I keep my eyes wide open all the time I keep the ends out for the tie that binds Because you’re mine, I walk the line.
+ - Sometimes I am two people. Johnny is the nice one. Cash causes all the trouble. They fight.
+ - Get rhythm when you get the blues.
+ - The beast in me Is caged by frail and fragile bars.
+ - Of travel I’ve had my share, man, I’ve been everywhere.
+ - It takes a real man to live for God-a lot more man than to live for the devil, you know? If you really want to live right these days, you gotta be tough.
+ - A rose looks grey at midnight, but the flame is just asleep. And steel is strong because it knows the hammer and white heat.
+ - I came to believe in a power much higher than I.
+ - I don’t like it, but I guess things happen that way.
+ - I have tried drugs and a little of everything else, and there is nothing in the world more soul-satisfying than having the kingdom of God building inside you and growing.
+ - If you aren’t gonna say exactly how and what you feel, you might as well not say anything at all.
+ - When you sing, you pray twice.
+ - For you I know I’d even try to turn the tide.
+ - The gospel of Christ must always be an open door with a welcome sign for all.
+ - Don’t take voice lessons. Do it your way.
+ - So we raise her up every morning, we take her down every night, we don’t let her touch the ground and we fold her up right. On second thought, I do like to brag ’cause I’m mighty proud of the Ragged Old Flag.
+ - I’m thankful for the sea breeze that feels so good right now, and the scent of jasmine when the sun starts going down.
+ - Of emotions, of love, of breakup, of love and hate and death and dying, mama, apple pie, and the whole thing. It covers a lot of territory, country music does.
+ - I love the freedoms we got in this country, I appreciate your freedom to burn your flag if you want to, but I really appreciate my right to bear arms so I can shoot you if you try to burn mine.
+ - Loneliness is emptiness, but happiness is you.
+ - I wear black for those who never read or listen to the words that Jesus said, about the road to happiness, through love and charity.
+ - Some gal would giggle and I’d get red, and some guy’d laugh and I’d bust his head. I tell ya, life ain’t easy for a boy named Sue.
+ - How well I have learned that there is no fence to sit on between heaven and hell. There is a deep, wide gulf, a chasm, and in that chasm is no place for any man.
+ - Life is the question and life is the answer, and God is the reason and love is the way.
+ - No matter how much you’ve sinned, no matter how much you’ve stumbled, no matter how much you fall, no matter how far you’ve got from God, don’t give up. You can still be redeemed. As someone says, keep the faith.
+ - Inside the walls of a prison my body may be, but my Lord has set my soul free.
+ - Deep in the heart of the infinite darkness, a tiny blue marble is spinning through space. Born in the splendor of God’s holy vision, and sliding away like a tear down his face.
+ - I’m thrilled to death with life.
+ - The battle against the dark one and the clinging to the right one is what my life is about.
+ - I am not a Christian artist, I am an artist who is a Christian.
+ - Those that have lived longer than us always have something to teach us, that we can take with us for the rest of our lives.
+ - Gospel music is so ingrained into my bones. I can’t do a concert without singing a gospel song. It’s what I was raised on.
+ - God gives us life and takes us away as He sees fit.
+ - Stop your ears and close your eyes and try to find the face of love.
+ - When people ask me who my favorite country singer is, I say, ‘You mean besides George Jones?’
+ - I’m very shy really. I spend a lot of time in my room alone reading or writing or watching television.
+ - Everything I have and everything I do is now given completely to Jesus Christ.
+ - You miss a lot of opportunities by making mistakes, but that’s part of it: knowing that you’re not shut out forever, and that there’s a goal you still can reach.
+ - You build on failure. You use it as a stepping stone.
+ - I was wearing black clothes almost from the beginning. I feel comfortable in black. I felt like black looked good onstage, that it was attractive, so I started wearing it all the time.
+ - The hardest thing for me in Vietnam wasn’t seeing the wounded and dead. It was watching the big transport jets come in, bringing loads of fresh new boys for the war.
+ - My mother told me to keep on singing, and that kept me working through the cotton fields. She said God has his hand on you. You’ll be singing for the world someday.
+ - Gospel music was the thing that inspired me as a child growing up on a cotton farm, where work was drudgery and it was so hard that when I was in the field I sang all the time. Usually gospel songs because they lifted me up above that black dirt.
+ - You have to be what you are. Whatever you are, you gotta be it.
+ - I shot a man in Reno just to watch him die.
+ - Creative people have to be fed from the divine source. I have to get fed. I had to get filled up in order to pour out.
+ - I’ve been flushed from the bathroom of your heart.
+ - San Quentin, may you rot and burn in hell. May your walls fall and may I live to tell.
+ - The fire and excitement may be gone now that we don’t go out there and sing them anymore, but the ring of fire still burns around you and I, keeping our love hotter than a pepper sprout.
+ - My father was a man of love. He always loved me to death. He worked hard in the fields, but my father never hit me. Never. I don’t ever remember a really cross, unkind word from my father.
+ - There is a spiritual side to me that goes real deep, but I confess right up front that I’m the biggest sinner of them all.
+ - The ones that you’re calling wild are going to be the leaders in a little while.
+ - I think in my world of religion, you’re called to preach or you don’t preach. Called by God to preach. I never been ordained by God to preach the gospel. I have a calling, it’s called to perform and sing.
+ - Life is – the way God has given it to me was just a platter – a golden platter of life laid out there for me. Its been beautiful.
+ - Come on boys, you must listen unto me, lay off the whiskey and let that cocaine be.
+ - You’re so heavenly minded, you’re no earthly good.
+ - I could wrap myself in the warm cocoon of a song and go anywhere.
+ - They’re powerful, those songs. At times they’ve been my only way back, the only door out of the dark, bad places the black dog calls home.
+ - A person knows when it just seems to feel right to them. Listen to your heart.
+ - We’ll all be equal under the grass, and God’s got a heaven for country trash.
+ - I read novels but I also read the Bible. And study it, you know? And the more I learn, the more excited I get.
+ - I expect my life to end pretty soon. You know, I’m 71 years old. I have great faith, though. I have unshakable faith.
+ - Death and hell are never full, and neither are men’s eyes.
+ - It’s all fleeting. As fame is fleeting, so are all the trappings of fame fleeting. The money, the clothes, the furniture.
+ - Understand your man, meditate on it.
+ - I knew Bob Dylan was searching for the truth and had been for years. And anyone who Really wants the truth ends up at Jesus.
+ - When I think about country music, I think about America.
+ - When I was a baby, my mama told me son, always be a good boy, don’t ever play with guns. But I shot a man in Reno.
+ - I wear black because I’m comfortable in it. But then in the summertime when it’s hot I’m comfortable in light blue.
+ - My daddy left home when I was three and he didn’t leave much to Ma and me, just this old guitar and an empty bottle of booze.
+ - Love is a burning thing and it makes a firey ring.
+ - I start a lot more songs than I finish, because I realize when I get into them, they’re no good. I don’t throw them away, I just put them away, store them, get them out of sight.
+ - He drank his first strong liquor then to calm his shaking hand, and tried to tell himself at last he had become a man.
+ - God’s the final judge for Elvis Presley and Johnny Cash too. That’s solely in the hands of God.
+ - He went up to heaven, located his dog. Not only that, but he rejoined his arm.
+ - I’m so uncomfortable wearing colors in public. I really am. Even denim. If I’ve got a day off in a town, I want to go out for a walk I’ll put on denim. But almost everything I’ve got the black on.
+ - I love Bob Dylan, I really do. I love his early work, I love the first time he plugged in electrically, I love his Christian albums, I love his other albums.
+ - However, neither he nor anyone else could have become the star Elvis was. Ain’t nobody like Elvis. Never was.
+ - It’s like a novelist writing far out things. If it makes a point and makes sense, then people like to read that. But if it’s off in left field and goes over the edge, you lose it. The same with musical talent, I think.
+ - Beneath the stains of time the feeling disappears, you are someone else I am still right here.
+ - It’s hard for thee to kick against the pricks.
+ - He was removed from jail and placed in a place for the insensitive and insane.
+ - There’s a lot of things blamed on me that never happened. But then, there’s a lot of things that I did that I never got caught at.
+ - I like to sit on the front porch of an old cabin I built in the woods and just listen to the birds; I like to fish in the pond and I always throw the fish back.
+ - Call him drunken Ira Hayes, he won’t answer any more. Not the whiskey drinking Indian, nor the Marine that went to war.
+ - When I record somebody else’s song, I have to make it my own or it doesn’t feel right. I’ll say to myself, I wrote this and he doesn’t know it!
+ - You’ve got a song you’re singing from your gut, you want that audience to feel it in their gut. And you’ve got to make them think that you’re one of them sitting out there with them too. They’ve got to be able to relate to what you’re doing.
+ - When my wife died, I booked myself into the studio just to work, to occupy myself.
+ - Six foot six he stood on the ground He weighed two hundred and thirty-five pounds But I saw that giant of a man brought down To his knees by love.
+ - I knew I wanted to sing when I was a very small boy. When I was probably 4 years old. My mother played a guitar and I would sit with her and she would sing and I learned to sing along with her.
+ - When I was arrested I was dressed in black.
+ - Could it be the girls and boys are trying to be heard above your noise?
+ - My mother always told me that any talent is a gift of God and I always believed it. If I quit, I would just live in front of the television and get fat and die pretty soon.
+ - Everybody was wearing rhinestones, all those sparkly clothes, and cowboy boots. I decided to wear a black shirt and pants and see if I could get by with it. I did and I’ve worn black clothes ever since.
+ - God Ain’t no stained glass window, cause he never keeps his window closed.
+ - Canadian Railroad Trilogy is an extremely fine piece of songwriting.
+ - I took the easy way, and to an extent I regret that. Still, though, the way we did it was honest. We played it and sang it the way we felt it, and there’s a lot to be said for that.
+ - Convicts are the best audience I ever played for.
+ - I love to go to the studio and stay there 10 or 12 hours a day. I love it. What is it? I don’t know. It’s life.
+ - It’s good to believe in yourself, but there are people out there who can make or break you.
+ - When I get an idea for a song it would gel in my mind for weeks or months, and then one day just like that, Ill write it.
+ - I wear the black for those who never read.
+ - You’ve got to know your limitations. I don’t know what your limitations are. I found out what mine were when I was twelve. I found out that there weren’t too many limitations, if I did it my way.
+
+124 quotes

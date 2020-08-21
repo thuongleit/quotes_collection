@@ -1,0 +1,84 @@
+ - None are so empty as those who are full of themselves.
+ - There is no better way to learn than to teach.
+ - Only madmen and fools are pleased with themselves; no wise man is good enough for his own satisfaction.
+ - Modesty and humility are the sobriety of the mind, as temperance and chastity are of the body.
+ - A benefactor is a representative of God.
+ - It is impossible for a man to be made happy by putting him in a happy place, unless he be first in a happy state.
+ - Nothing spoils human nature more than false zeal. The good nature of a heathen is more God-like than the furious zeal of a Christian.
+ - The judge is nothing but the law speaking.
+ - The more mysterious, the more imperfect: that which is mystically spoken is but half spoken.
+ - Entrance into Heaven is not at the hour of death, but at the moment of conversion.
+ - The Devil often finds work for them who find none for themselves.
+ - No man is greatly jealous who is not in some measure guilty.
+ - All is not done when we have spoken to God by prayer; our petitions are to be pursued with real endeavours.
+ - Christ is God clothed with human nature.
+ - Either be a true friend or a mere stranger: a true friend will delight to do good – a mere stranger will do no harm.
+ - A wise man will not communicate his differing thoughts to unprepared minds, or in a disorderly manner.
+ - The human soul is to God, is as the flower to the sun; it opens at its approach, and shuts when it withdraws.
+ - He that does not repent, sins again.
+ - Will, without reason, is a blind man’s motion; will, against reason, is a madman’s motion.
+ - That power is in vain which is never in use.
+ - The sense of repentance is better assurance of pardon than the testimony of an angel.
+ - The more mysterious, the more imperfect; as darkness is, in comparison with light – so is mystery, in comparison with knowledge.
+ - A good man’s life is all of a piece.
+ - Good men study to spiritualize their bodies; bad men to incarnate their souls.
+ - We never better enjoy ourselves than when we most enjoy God.
+ - Conscience without judgment is superstition.
+ - None can do a man so much harm as he doeth himself.
+ - Riches are but a means, or instrument; and the virtue of an instrument lies in its use.
+ - Those who live not by law would be justified by Custom: but, as common practice is the worst teacher that ever was, so the truth and goodness of things is not to be estimated by the entertainment and acceptance they find in the world.
+ - An idol is what man makes and then has to carry. God makes a man and then carries him.
+ - None more deceive themselves than they who think their religion is true and genuine, thought it refines not their spirits and reforms not their lives.
+ - No men stand more in fear of God than those who most deny Him.
+ - When we do any good to others, we do as much, or more, good to ourselves.
+ - None are known to be good, till they have opportunity to be bad.
+ - An ill principle in the mind is worse than the matter of a disease in the body.
+ - We are made for one another, and each is to be a supply to his neighbor.
+ - He that useth his reason doth acknowledge God.
+ - Right and truth are greater than any power, and all power is limited by right.
+ - He that is conceited of his Wisdom, is readier to impose Error, than to receive Truth.
+ - Take away the self-conceited, and there will be elbowroom in the world.
+ - He that is dishonest, trusts nobody.
+ - Did Christians live according to their Religion, they would do nothing but what Truth, Righteousness, and Goodness do, according to their understanding and ability: and then one man would be a God unto another.
+ - God imposeth no Law of Righteousness upon us which He doth not observe Himself.
+ - What is Perfected hereafter, must be begun here.
+ - He that would have the perfection of pleasure must be moderate in the use of it.
+ - A guilty mind can be eased by nothing but repentance; by which what was ill done is revoked and morally voided and undone.
+ - The State of Grace and the Life of Sin are incompatibilities.
+ - A good word costs as little as a bad one, and is worth more.
+ - Every man is born with the faculty of reason and the faculty of speech, but why should he be able to speak before he has anything to say?
+ - Believe things, rather than man.
+ - If a man will be righteous and equal, let him see, with his neighbour’s eyes, in his own case; and with his own eyes, in his neighbour’s case.
+ - Let not a man’s self be to him all in all.
+ - He is not likely to learn who is not willing to be taught; for the learner has something to do, as well as the teacher.
+ - The government of man should be the monarchy of reason: it is too often the democracy of passions or the anarchy of humors.
+ - It is base and unworthy to live below the dignity of our nature.
+ - Fear is the denomination of the Old Testament; belief is the denomination of the New.
+ - Joy is the life of man’s life.
+ - Man is a wonder to himself; he can neither govern nor know himself.
+ - None of us was born knowing or wise; but men become wise by consideration, observation, experience.
+ - Whoever despiseth shame, despiseth sin.
+ - Everything is dangerous to him that is afraid of it.
+ - Among politicians the esteem of religion is profitable; the principles of it are troublesome.
+ - It is altogether as worthy of God and as much becoming Him to pardon and show mercy, in case of repentance and submission and reformation, as to punish, in case of impenitency and obstinacy.
+ - There is nothing more unnatural to religion than contentions about it.
+ - Where Religion does take place and is effectual, it makes this world, in measure and degree, representative of Heaven.
+ - No man doth think others will be better to him than he is to them.
+ - Some are Atheists by Neglect; others are so by Affectation; they, that think there is no God at some times; do not think so at all times.
+ - Truth is not only a man’s ornament but his instrument; it is the great man’s glory, and the poor man’s stock: a man’s truth is his livelihood, his recommendation, his letters of credit.
+ - Ah! when in the immortal ranks enlisted, I sometimes wonder if we shall not find That not by deeds, but by what we’ve resisted, Our places are assigned.
+ - Fear is prophetical of evil.
+ - Some things must be good in themselves, else there could be no measure whereby to lay out good and evil.
+ - Let us all so live as we shall wish we had lived when we come to die; for that only is well, that ends well.
+ - It is hypocrisy for man to make any other use of his religion, or the credit of it, than to sanctify and save his soul.
+ - Such an explication of Grace as sets men at liberty in morals, makes void the Law through Faith.
+ - He that repents is angry with himself; I need not be angry with him.
+ - Repentance doth alter a man’s case with God: and therefore repentance should alter the case between one man and another.
+ - Virtue is the health, true state, natural complexion of the Soul.
+ - He that neither knows himself nor thinks he can learn of others is not fit for company.
+ - The most that any of us know, is the least of that which is to be known.
+ - Those that differ upon Reason, may come together by Reason.
+ - We are only so free that others may be free as well as we.
+ - Every profession does imply a trust for the service of the public.
+
+82 quotes

@@ -1,0 +1,502 @@
+ - A library is not a luxury but one of the necessities of life.
+ - Greatness lies, not in being strong, but in the right using of strength; and strength is not used rightly when it serves only to carry a man above his fellows for his own solitary glory. He is the greatest whose strength carries up the most hearts by the attraction of his own.
+ - Hold yourself responsible for a higher standard than anybody expects of you. Never excuse yourself.
+ - I can forgive but I cannot forget, is only another way of saying, I cannot forgive.
+ - We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.
+ - The bibliophile is the master of his books, the bibliomaniac their slave.
+ - Every tomorrow has two handles. We can take hold of it with the handle of anxiety or the handle of faith.
+ - A person without a sense of humor is like a wagon without springs. It’s jolted by every pebble on the road.
+ - In this world it is not what we take up, but what we give up, that makes us rich.
+ - Greatness lies not in being strong, but in the right use of strength.
+ - The first hour of the morning is the rudder of the day.
+ - The art of being happy lies in the power of extracting happiness from common things.
+ - All words are pegs to hang ideas on.
+ - Gratitude is the fairest blossom which springs from the soul.
+ - It’s easier to go down a hill than up it but the view is much better at the top.
+ - Everyone has influence, for good or bad, upon others.
+ - October is the opal month of the year. It is the month of glory, of ripeness. It is the picture-month.
+ - October is nature’s funeral month. Nature glories in death more than in life. The month of departure is more beautiful than the month of coming – October than May. Every green thin loves to die in bright colors.
+ - A man without ambition is like a beautiful worm – it can creep, but it cannot fly.
+ - There are persons so radiant, so genial, so kind, so pleasure-bearin g, that you instinctively feel in their presence that they do you good; whose coming into a room is like bringing a lamp there.
+ - We never know the love of a parent till we become parents ourselves.
+ - If men had wings and bore black feathers, Few of them would be clever enough to be crows.
+ - Every artist dips his brush in his own soul, and paints his own nature into his pictures.
+ - The soul without imagination is what an observatory would be without a telescope.
+ - Riches are not an end of life, but an instrument of life.
+ - What the heart has once owned and had, it shall never lose.
+ - When God thought of mother, He must have laughed with satisfaction, and framed it quickly – so rich, so deep, so divine, so full of soul, power, and beauty, was the conception.
+ - There is no friendship, no love, like that of the parent for the child.
+ - It is not work that kills men; it is worry. Work is healthy; you can hard put more upon a man than he can bear. Worry is rust upon the blade. It is not the revolution that destroys the machinery, but the friction.
+ - God asks no man whether he will accept life. That is not the choice. You must take it. The only choice is how.
+ - The thankful heart will find, in every hour, some heavenly blessings.
+ - The little troubles and worries of life may be as stumbling blocks in our way, or we may make them stepping-stones to a nobler character and to Heaven. Troubles are often the tools by which God fashions us for better things.
+ - Books are the windows through which the soul looks out.
+ - The mother’s heart is the child’s schoolroom.
+ - The strength of a man consists in finding out the way God is going, and going that way.
+ - Don’t look where you fall, but where you slipped.
+ - It is one of the severest tests of friendship to tell your friend his faults. So to love a man that you cannot bear to see a stain upon him, and to speak painful truth through loving words, that is friendship.
+ - Let the GRATEFUL HEART sweep through the day that it may recognize in every hour some sweet blessing.
+ - The sun does not shine for a few trees and flowers, but for the wide world’s joy.
+ - Happiness is not the end of life: character is.
+ - Where is human nature so weak as in the bookstore?
+ - Selfishness at the expense of others happiness is demonism.
+ - He is greatest whose strength carries up the most hearts by the attraction of his own.
+ - Truths are first clouds; then rain, then harvest and food.
+ - Good-humor makes all things tolerable.
+ - Be a hard master to yourself – and be lenient to everybody else.
+ - Clothes and manners do not make the man; but when he is made, they greatly improve his appearance.
+ - Like waves, our feelings may continue by repeating themselves, by intermittent rushes; but no emotion any more than a wave can long retain its own individual form.
+ - Every man should be born again on the first day of January. Start with a fresh page.
+ - Now comes the mystery.
+ - True obedience is true freedom.
+ - Genius unexerted is no more genius than a bushel of acorns is a forest of oaks.
+ - The blossom cannot tell what becomes of its odor, and no person can tell what becomes of his or her influence and example.
+ - Men’s best successes come after their disappointments.
+ - I don’t like these cold, precise, perfect people, who, in order not to speak wrong, never speak at all, and in order not to do wrong, never do anything.
+ - Rain! whose soft architectural hands have power to cut stones, and chisel to shapes of grandeur the very mountains.
+ - Faith is spiritualized imagination.
+ - I think you might dispense with half your doctors if you would only consult Dr. Sun more.
+ - Liberty is the soul’s right to breathe and, when it cannot take a long breath, laws are girdled too tight.
+ - Despondency is ingratitude; hope is God’s worship.
+ - I never knew an early-rising, hard-working, prudent man, careful of his earnings, and strictly honest who complained of bad luck.
+ - Blessed are the happiness makers. Blessed are they who know how to shine on one’s gloom with their cheer.
+ - A man never has good luck who has a bad wife.
+ - Poverty is very good in poems but very bad in the house; very good in maxims and sermons but very bad in practical life.
+ - No man is more cheated than the selfish man.
+ - You are not called to be a canary in a cage. You are called to be an eagle, and to fly sun to sun, over continents.
+ - We should live and labor in our time that what came to us as a seed may go to the next generation as blossom, and what came to us as blossom, may go to them as fruit. This is what we mean by progress.
+ - A man’s ledger does not tell what he is, or what he is worth. Count what is in man, not what is on him, if you would know what he is worth-whether rich or poor.
+ - In this world, full often, our joys are only the tender shadows which our sorrows cast.
+ - A reputation for good judgment, for fair dealing, for truth, and for rectitude, is itself a fortune.
+ - It is not work that kills men; it is worry. Worry is rust upon the blade.
+ - Never excuse yourself.
+ - Be angry, and yet do not sin; do not let the sun go down on your anger.
+ - Laws and institutions, like clocks, must occasionally be cleaned, wound up, and set to true time.
+ - Troubles are often the tools by which God fashions us for better things.
+ - No emotion, any more than a wave, can long retain its own individual form.
+ - Genius is a steed too fiery for the plow or the cart.
+ - Tears are often the telescope by which men see far into heaven.
+ - Ambition is the way in which a vulgar man aspires.
+ - Sink the Bible to the bottom of the ocean, and still man’s obligations to God would be unchanged. He would have the same path to tread, only his lamp and guide would be gone; the same voyage to make, but his chart and compass would be overboard!
+ - What if you have seen it before, ten thousand times over? An apple tree in full blossom is like a message, sent fresh from heaven to earth, of purity and beauty.
+ - Nature is a vast repository of manly enjoyments.
+ - Riches without law are more dangerous than is poverty without law.
+ - God’s grace is the oil that fills the lamp of love.
+ - The Church is not a gallery for the exhibition of eminent Christians, but a school for the education of imperfect ones.
+ - Nature holds an immense uncollected debt over every man’s head.
+ - Storms purify the atmosphere.
+ - Pain is God’s midwife, that helps some virtue into existence.
+ - Liberty is the soul’s right to breathe.
+ - Every man should use his intellect, not as he uses his lamp in the study, only for his own seeing, but as the lighthouse uses its lamps, that those afar off on the seas may see the shining, and learn their way.
+ - Mirthfulness is in the mind and you cannot get it out. It is just as good in its place as conscience or veneration.
+ - Young love is a flame; very pretty, often very hot and fierce, but still only light and flickering. The love of the older and disciplined heart is as coals, deep-burning, unquenchable.
+ - A world without a Sabbath would be like a man without a smile, like summer without flowers, and like a homestead without a garden. It is the most joyous day of the week.
+ - Sorrows, as storms, bring down the clouds close to the earth; sorrows bring heaven down close; and they are instruments of cleansing and purifying.
+ - Do not be afraid because the, community teems with excitement. Silence and death are dreadful. The rush of life, the vigor of earnest men, the conflict of realities, invigorate, cleanse, and establish the truth.
+ - The real democratic American idea is, not that every man shall be on a level with every other man, but that every man shall have liberty to be what God made him, without hindrance.
+ - That energy which makes a child hard to manage is the energy which afterwards makes him a manager of life.
+ - The things that hurt us teach us.
+ - Grim care, moroseness, anxiety-all this rust of life ought to be scoured off by the oil of mirth. Mirth is God’s medicine.
+ - Love cannot endure indifference. It needs to be wanted. Like a lamp, it needs to be fed out of the oil of another’s heart, or its flame burns low.
+ - The difference between perseverance and obstinacy is that one comes from a strong will, and the other from a strong won’t.
+ - Theology is a science of mind applied to God.
+ - God appoints our graces to be nurses to other men’s weaknesses.
+ - Repentance may begin instantly, but reformation often requires a sphere of years.
+ - Sometimes fear is wholesome and rational; it is well to swing fear as a mighty battle-axe over men’s heads when no other motive will move them.
+ - A noble man compares and estimates himself by an idea which is higher than himself, and a mean man, by one lower than himself.
+ - Thorough selfishness destroys or paralyzes enjoyment. A heart made selfish by the contest for wealth is like a citadel stormed in war, utterly shattered.
+ - I read for three things; first, to know what the world has done the last twenty-four hours, and is about to do today; second, for the knowledge that I specially want in my work; and third, for what will bring my mind into a proper mood.
+ - All men are tempted. There is no man that lives that can’t be broken down, provided it is the right temptation, put in the right spot.
+ - Self-denial does not belong to religion as characteristic of it; it belongs to human life; the lower nature must always be denied when you are trying to rise to a higher sphere.
+ - As warmth makes even glaciers trickle, and opens streams in the ribs of frozen mountains, so the heart knows the full flow and life of its grief only when it begins to melt and pass away.
+ - The elect, those who will; the non-elect, those who won’t.
+ - We sleep, but the loom of life never stops, and the pattern which was weaving when the sun went down is weaving when it comes up in the morning.
+ - An ambition which has conscience in it will always be a laborious and faithful engineer, and will build the road, and bridge the chasms between itself and eminent success by the most faithful and minute performances of duty.
+ - A babe is nothing but a bundle of possibilities.
+ - We need not fear shipwreck when God is the pilot.
+ - A dull ax never loves grindstones.
+ - What I spent, I had; What I kept, I lost; What I gave, I have.
+ - The common schools are the stomachs of the country in which all people that come to us are assimilated within a generation. When a lion eats an ox, the lion does not become an ox but the ox becomes a lion.
+ - Learning, to be of much use, must have a tendency to spread itself among the common people.
+ - A thoughtful mind, when it sees a Nation’s flag, sees not the flag only, but the Nation itself.
+ - The newspaper is a greater treasure to the people than uncounted millions of gold.
+ - The Negro is superior to the white race. If the latter do not forget their pride of race and color, and amalgamate with the purer and richer blood of the blacks, they will die out and wither away in unprolific skinniness.
+ - The Bible is like a telescope. If a man looks through his telescope, then he sees worlds beyond; but, if he looks at his telescope, then he does not see anything but that.
+ - The thistle is a prince. Let any man that has an eye for beauty take a view of the whole plant, and where will he see a more expressive grace and symmetry; and where is there a more kingly flower?
+ - The true secret of giving advice is, after you have honestly given it, to be perfectly indifferent whether it is taken or not, and never persist in trying to set people right.
+ - Death is the dropping of the flower, that the fruit may swell.
+ - What a mother sings to the cradle goes all the way down to the coffin.
+ - Every man should keep a fair-sized cemetery in which to bury the faults of his friends.
+ - The real man is one who always finds excuses for others, but never excuses himself.
+ - That is true culture which helps us to work for the social betterment of all.
+ - Nothing can compare in beauty, and wonder, and admirableness, and divinity itself, to the silent work in obscure dwellings of faithful women bringing their children to honor and virtue and piety.
+ - Affliction comes to us all, not to make us sad, but sober; not to make us sorry, but to make us wise; not to make us despondent, but by its darkness to refresh us as the night refreshes the day; not to impoverish, but to enrich us.
+ - A church debt is the devil’s salary.
+ - I never knew how to worship until I knew how to love.
+ - It usually takes a hundred years to make a law, and then, after it has done its work; it usually takes a hundred years to get rid of it.
+ - Nobody ever sees truth except in fragments.
+ - The cynic is one who never sees a good quality in a man, and never fails to see a bad one. He is the human owl, vigilant in darkness and blind to light, mousing for vermin, and never seeing noble game.
+ - It is defeat that turns bone to flint, gristle to muscle, and makes men invincible.
+ - A door that seems to stand open must be of a man’s size, or it is not the door that providence means for him.
+ - Home should be an oratorio of the memory, singing to all our after life melodies and harmonies of old-remembered joy.
+ - Blessed are the happiness-makers! Blessed are they that take away attritions, that remove friction, that make the courses of life smooth, and the intercourse of men gentle!
+ - The church is no more religion than the masonry of the aqueduct is the water that flows through it.
+ - Of all man’s works of art, a cathedral is greatest. A vast and majestic tree is greater than that.
+ - Children are the hands by which we take hold of heaven. By these tendrils we clasp it and climb thitherward. And why do we think that we are separated from them? We never half knew them, nor in this world could.
+ - The pen is the tongue of the hand; a silent utterer of words for the eye.
+ - Life would be a perpetual flea hunt if a man were obliged to run down all the innuendoes, inveracities, and insinuations and misrepresentations which are uttered against him.
+ - There is no such thing as white lies; a lie is as black as a coalpit, and twice as foul.
+ - Flattery is praise insincerely given for an interested purpose.
+ - Prayer covers the whole of man’s life. There is no thought, feeling, yearning, or desire, however low, trifling, or vulgar we may deem it, which if it affects our real interest or happiness, we may not lay before God and be sure of sympathy.
+ - Ignorance is the womb of monsters.
+ - Mountains of gold would not seduce some men, yet flattery would break them down.
+ - Repentance is another name for aspiration.
+ - A man that has lost moral sense is like a man in battle with both of his legs shot off: he has nothing to stand on.
+ - A conservative young man has wound up his life before it was unreeled. We expect old men to be conservative but when a nation’s young men are so, its funeral bell is already rung.
+ - A helping word to one in trouble is often like a switch on a railroad track-an inch between wreck and smooth-rolling prosperity.
+ - That endless book, the newspaper, is our national glory.
+ - No man is such a conqueror, as the one that has defeated himself.
+ - The ignorant classes are the dangerous classes.
+ - Evil men of every degree will use you, flatter you, lead you on until you are useless; then, if the virtuous do not pity you, or God compassionate, you are without a friend in the universe.
+ - When our children die, we drop them into the unknown, shuddering with fear. We know that they go out from us, and we stand, and pity, and wonder.
+ - I can forgive, but I cannot forget, is only another way of saying, I will not forgive. Forgiveness ought to be like a cancelled note – torn in two, and burned up, so that it never can be shown against one.
+ - Love is the river of life in the world.
+ - The Bible is God’s chart for you to steer by, to keep you from the bottom of the sea, and to show you where the harbor is, and how to reach it without running on rocks or bars.
+ - So we fall asleep in Jesus. We have played long enough at the games of life, and at last we feel the approach of death. We are tired out, and we lay our heads back on the bosom of Christ, and quietly fall asleep.
+ - Men strengthen each other in their faults. Those who are alike associate together, repeat the things which all believe, defend and stimulate their common faults of disposition, and each one receives from the others a reflection of his own egotism.
+ - Make men large and strong and tyranny will bankrupt itself in making shackles for them.
+ - Many men are stored full of unused knowledge. Like loaded guns that are never fired off, or military magazines in times of peace, they are stuffed with useless ammunition.
+ - People may talk about the equality of the sexes! They are not equal. The silent smile of a sensible, loving woman will vanquish ten men.
+ - God made the human body, and it is the most exquisite and wonderful organization which has come to us from the divine hand.
+ - Some people think black is the color of heaven, and that the more they can make their faces look like midnight, the more evidence they have of grace. But God, who made the sun and the flowers, never sent me to proclaim to you such a lie as that.
+ - Hope is sweet-minded and sweet-eyed. It draws pictures; it weaves fancies; it fills the future with delight.
+ - Let every man come to God in his own way.
+ - A bird in a cage is not half a bird.
+ - Education is only like good culture, – it changes the size, but not the sort.
+ - The test of Christian character should be that a man is a joy-bearing agent to the world.
+ - A little library, growing every year, is an honorable part of a man’s history. It is a man’s duty to have books.
+ - All things in the natural world symbolize God, yet none of them speak of Him but in broken and imperfect words.
+ - The truest self-respect is not to think of self.
+ - Some people are so dry that you might soak them in a joke for a month and it would not get through their skins.
+ - Mirth is God’s medicine. Everybody ought to bathe in it.
+ - There is not a heart but has its moments of longing, yearning for something better; nobler; holier than it knows now.
+ - The dog is the god of frolic.
+ - God is the one great employer, thinker, planner, supervisor.
+ - It is defeat that turns bone to flint; it is defeat that turns gristle to muscle; it is defeat that makes men invincible. Do not then be afraid of defeat. You are never so near to victory as when defeated in a good cause.
+ - There is nothing which vanity does not desecrate.
+ - Do not be afraid of defeat. You are never so near to victory as when defeated in a good cause.
+ - God wishes to exhaust all means of kindness before His hand takes hold on justice.
+ - Flowers may beckon todwards us, but they speak todward heaven and God.
+ - Love is the wine of existence. When you have taken that, you have taken the most precious drop that there is in the cluster.
+ - A tool is but the extension of a man’s hand, and a machine is but a complex tool. And he that invents a machine augments the power of a man and the well-being of mankind.
+ - It takes a man to make a devil; and the fittest man for such a purpose is a snarling, waspish, red-hot, fiery creditor.
+ - If you are idle, you are on the road to ruin; and there are few stopping-places upon it. It is rather a precipice than a road.
+ - Some men will not shave on Sunday, and yet they spend all the week in shaving their fellow-men; and many folks think it very wicked to black their boots on Sunday morning, yet they do not hesitate to black their neighbor’s reputation on week-days.
+ - You cannot play the hypocrite before God; and to obtain pardon you must cease to sin, as well as to be exercised by a spirit of repentance.
+ - As for marigolds, poppies, hollyhocks, and valorous sunflowers, we shall never have a garden without them, both for their own sake, and for the sake of old-fashioned folks, who used to love them.
+ - Joy is more divine than sorrow, for joy is bread and sorrow is medicine.
+ - A man should fear when he enjoys only the good he does publicly. Is it not, publicity rather than charity, which he loves? Is it not vanity, rather than benevolence, that gives such charities?
+ - The Bible stands alone in human literature in its elevated conception of manhood, in character and conduct.
+ - Blessed be the man whose work drives him. Something must drive men; and if it is wholesome industry, they have no time for a thousand torments and temptations.
+ - Pride slays thanksgiving, but a humble mind is the soil out of which thanks naturally grow. A proud man is seldom a grateful man, for he never thinks he gets as much as he deserves.
+ - Success is full of promise till one gets it, and then it seems like a nest from which the bird has flown.
+ - No matter who reigns, the merchant reigns.
+ - Sorrow is Mount Sinai. If one will, one may go up and talk with God, face to face.
+ - Love is not a possession but a growth. The heart is a lamp with just oil enough to burn for an hour, and if there be no oil to put in again its light will go out. God’s grace is the oil that fills the lamp of love.
+ - The religion of Jesus Christ is not ascetic, nor sour, nor gloomy, nor circumscribing. It is full of sweetness in the present and in promise.
+ - Memory can glean, but can never renew. It brings us joys faint as is the perfume of the flowers, faded and dried, of the summer that is gone.
+ - The continuance and frequent fits of anger produce in the soul a propensity to be angry; which oftentimes ends in choler, bitterness, and moronity, when the mid becomes ulcerated, peevish, and querulous, and is wounded by the least occurrence.
+ - The philosophy of one century is the common sense of the next.
+ - An oyster, that marvel of delicacy, that concentration of sapid excellence, that mouthful bwefore all other mouthfuls, who first had faith to believe it, and courage to execute? The exterior is not persuasive.
+ - True elegance becomes the more so as it approaches simplicity.
+ - The call to religion is not a call to be better than your fellows, but to be better than yourself. Religion is relative to the individual.
+ - Half the spiritual difficulties that men and women suffer arise from a morbid state of health.
+ - A woman’s pity often opens the door to love.
+ - God’s glory is His goodness.
+ - Nowhere else can one find so miscellaneous, so various, an amount of knowledge as is contained in a good newspaper.
+ - Conceited men often seem a harmless kind of men, who, by an overweening self-respect, relieve others from the duty of respecting them at all.
+ - Every charitable act is a stepping stone toward heaven.
+ - In the ordinary business of life, industry can do anything which genius can do, and very many things which it cannot.
+ - The poor man with industry is happier than the rich man in idleness.
+ - Good nature is often a mere matter of health.
+ - It is not well for a man to pray cream and live skim milk.
+ - Fear secretes acids; but love and trust are sweet juices.
+ - The God of the Bible is a moral monstrosity.
+ - The sphere that is deepest, most unexplored, and most unfathomable, the wonder and glory of God’s thought and hand, is our own soul!
+ - All work and no plagiarism makes for dull sermons!
+ - There is no slave out of heaven like a loving woman; and of all loving women, there is no such slave as a mother.
+ - A traitor is good fruit to hang from the boughs of the tree of liberty.
+ - It is trial that proves one thing weak and another strong. A house built on the sand is in fair weather just as good as if builded on a rock. A cobweb is as good as the mightiest cable when there is no strain upon it.
+ - Expedients are for the hour, but principles are for the ages. Just because the rains descend, and the winds blow, we cannot afford to build on shifting sands.
+ - God plants no yearning in the human soul that he does not intend to satisfy.
+ - Children are the hands by which we take hold of heaven.
+ - Newspapers are to the body politic what arteries are to the human body, their function being to carry blood and sustenance and repair to every part of the body.
+ - A book is a garden; A book is an orchard; A book is a storehouse; A book is a party. It is company by the way; it is a counselor; it is a multitude of counselors.
+ - Men go shopping just as men go out fishing or hunting, to see how large a fish may be caught with the smallest hook.
+ - The Divine mind does not think for us, or inspite of us, but works in us to think, and to will, and to do.
+ - The elms of New England! They are as much a part of her beauty as the columns of the Parthenon were the glory of its architecture.
+ - The worst thing in this world, next to anarchy, is government.
+ - Laughter is day, and sobriety is night; a smile is the twilight that hovers gently between both, more bewitching than either.
+ - No coffee can be good in the mouth that does not first send a sweet offering of odor to the nostrils.
+ - To do good work a man should no doubt be industrious. To do great work he must certainly be idle a well.
+ - A man’s character is the reality of himself; his reputation, the opinion others have formed about him; character resides in him, reputation in other people; that is the substance, this is the shadow.
+ - To array a man’s will against his sickness is the supreme art of medicine.
+ - Next to ingratitude the most painful thing to bear is gratitude.
+ - Books are not made for furniture, but there is nothing else that so beautifully furnishes a house.
+ - Your greatest pleasure is that which rebounds from hearts that you have made glad.
+ - If Christ is the wisdom of God and the power of God in the experience of those who trust and love Him, there needs no further argument of His divinity.
+ - Of all the music that reached farthest into heaven, it is the beating of a loving heart.
+ - A lie always needs a truth for a handle to it. The worst lies are those whose blade is false, but whose handle is true.
+ - It is a man dying with his harness on that angels love to escort upward.
+ - Man is that name of power which rises above them all, and gives to every one the right to be that which God meant he should be.
+ - O never harm the dreaming world, the world of green, the world of leaves, but let its million palms unfold the adoration of the trees Of all man’s works of art, a cathedral is greatest. A vast and majestic tree is greater than that.
+ - Sharp men, like sharp needles, break easy, though they pierce quick.
+ - God planted fear in the soul as truly as he planted hope and courage. It is a kind of bell or gong, which rings the mind into quick life and avoidance on the approach of danger. It is the soul’s signal for rallying.
+ - Christ is risen! There is life, therefore, after death! His resurrection is the symbol and pledge of universal resurrection!
+ - It gives one a sudden start in going down a barren, stoney street, to see upon a narrow strip of grass, just within the iron fence, the radiant dandelion, shining in the grass, like a spark dropped from the sun.
+ - Victories are easy and cheap. The only victories worth anything are those achieved through hard work and dedication.
+ - The mystery of history is an insoluble problem.
+ - The law is a battery, which protects all that is behind it, but sweeps with destruction all that is outside.
+ - There can be no high civilization where there is not ample leisure.
+ - When there is love in the heart, there are rainbows in the eyes, which cover every black cloud with gorgeous hues.
+ - Watch lest prosperity destroy generosity.
+ - Life is a plant that grows out of death.
+ - When leisure is a selfish luxury, its very activity, when it stirs, is apt to be only a kind of indolence taking exercise, that it may the better digest its selfishness.
+ - A man’s true estate of power and riches is to be in himself; not in his dwelling or position or external relations, but in his own essential character.
+ - A man’s true state of power and riches is to be in himself.
+ - When a man has no longer any conception of excellence above his own, his voyage is done, he is dead, – dead in trespasses and sin of blear-eyed vanity.
+ - Next to victory, there is nothing so sweet as defeat, if only the right adversary overcomes you.
+ - You never know till you try to reach them how accessible men are; but you must approach each man by the right door.
+ - Conscience is the frame of character, and love is the covering for it.
+ - Character, like porcelain-ware, must be painted before it is glazed. There can be no change of color after it is burned in.
+ - Children learn to read by being in the presence of books. The love of knowledge comes with reading and grows upon it. and the love of knowledge, in a young mind, is almost a warrant against the inferior excitement of passions and vices.
+ - Children are unpredictable. You never know what inconsistency they are going to catch you in next.
+ - Nothing dies so hard, or rallies so often as intolerance.
+ - A man that puts himself on the ground of moral principle, if the whole world be against him, is mightier than all of them.
+ - Religion is the fruit of the Spirit, a Christian character, a true life.
+ - Some men are like pyramids, which are very broad where they touch the ground, but grow narrow as they reach the sky.
+ - Nothing can be further apart than true humility and servility.
+ - If a man harbors any sort of fear, it percolates through all his thinking, damages his personality, makes him landlord to a ghost.
+ - Nothing can be more airy and beautiful than the transparent seed-globe-a fairy dome of splendid architecture.
+ - Education will not come of itself; it will never come unless you seek it; it will not come unless you take the first steps which lead to it; but, taking these steps, every man can acquire it.
+ - The first hour of the morning is the rudder of the day. It is a blessed baptism which gives the first waking thoughts into the bosom of God.
+ - Scepticism is a barren coast, without a harbor or lighthouse.
+ - This world is not a platform where you will hear Thalberg-piano-playing. It is a piano manufactory, where are dust and shavings and boards, and saws and files and rasps and sandpapers. The perfect instrument and the music will be hereafter.
+ - Age and youth look upon life from the opposite ends of the telescope; it is exceedingly long, – it is exceedingly short.
+ - He that lives by the sight of the eye may grow blind.
+ - Mirth is the sweet wine of human life. It should be offered sparkling with zestful life unto God.
+ - Coming to the Bible through commentaries is much like looking at a landscape through garret windows, over which generations of unmolested spiders have spun their webs.
+ - Selfishness is that detestable vice which no one will forgive in others, and no one is without himself.
+ - At the bottom of every leaf-stem is a cradle, and in it is an infant germ; the winds will rock it, the birds will sing to it all summer long, but the next season it will unfold and go alone.
+ - Some sorrows are but footprints in the snow, which the genial sun effaces, or, if it does not wholly efface, changes into dimples.
+ - We are but a point, a single comma, and God is the literature of eternity.
+ - The most miserable pettifogging in the world is that of a man in the court of his own consciences.
+ - Anxiety in human life is what squeaking and grinding are in machinery that is not oiled. In life, trust is the oil.
+ - Sorrow makes men sincere.
+ - Man is at the bottom an animal, midway a citizen, and at the top divine. But the climate of this world is such that few ripen at the top.
+ - Love is God’s loaf; and this is that feeding for which we are taught to pray, “Give us this day our daily bread.”
+ - Flowers have an expression of countenance as much as men or animals. Some seem to smile; some have a sad expression; some are pensive and diffident; others are plain, honest and upright, like the broad faced sunflower and the hollyhock.
+ - Beware of him who hates the laugh of a child.
+ - It’s not the work which kills people, it’s the worry. It’s not the revolution that destroys machinery it’s the friction.
+ - Everyone has conscience enough to hate; few have religion enough to love.
+ - Interest works night and day in fair weather and in foul. It gnaws at a man’s substance with invisible teeth.
+ - Going out into life – that is dying. Christ is the door out of life.
+ - We steal if we touch tomorrow. It is God’s.
+ - John Wesley quaintly observed that the road to heaven is a narrow path, not intended for wheels, and that to ride in a coach here and to go to heaven hereafter, was a happiness too much for man.
+ - Unfruitful emotion is to be suspected. Feeling acts as an impulse, as a spur, as a spring, and when feelings are excited, and they put nothing forward, they are sometimes even dangerous to a man.
+ - The worst prison is not of stone. It is of a throbbing heart, outraged by an infamous life.
+ - Nothing goes far which has not the wings of love to make it buoyant, so that it can fly.
+ - Every young man would do well to remember that all successful business stands on the foundation of morality.
+ - A cobweb is as good as the mightiest cable when there is strain upon it.
+ - Thinking is creating with God, as thinking is writing with the ready writer; and worlds are only leaves turned over in the process of composition, about his throne.
+ - Gambling with cards or dice or stocks is all one thing. It’s getting money without giving an equivalent for it.
+ - Suffering is part of the divine idea.
+ - Heaven answers with us the same purpose that the tuning-fork does with musicians. Our affections, the whole orchestra of them, are apt to get below the concert-pitch; and we take heaven to tune our hearts by.
+ - We let our blessings get mouldy, and then call them curses.
+ - There ought to be such an atmosphere in every Christian church that a man going there and sitting two hours should take the contagion of heaven, and carry home a fire to kindle the altar whence he came.
+ - People may excite in themselves a glow of compassion, not by toasting their feet at the fire, and saying: “Lord, teach me compassion,” but by going and seeking an object that requires compassion.
+ - The fear of doing right is the grand treason in times of danger.
+ - The world is God’s workshop for making men in.
+ - Debt rolls a man over and over, binding him hand and foot, and letting him hang upon the fatal mesh until the long-legged interest devours him.
+ - There is no harder shield for the devil to pierce with temptation than singing with prayer.
+ - A book is good company. It is full of conversation without loquacity. It comes to your longing with full instruction, but pursues you never.
+ - Private opinion is weak, but public opinion is almost omnipotent.
+ - Never forget what a man has said to you when he was angry. If he has charged you with anything, you had better look it up.
+ - There is not on earth so base a knave as the man who wins the love of a woman when he knows that he cannot or ought not to requite it.
+ - Even a liar tells a hundred truths to one lie; he has to, to make the lie good for anything.
+ - Remember God’s bounty in the year. String the pearls of His favor. Hide the dark parts, except so far as they are breaking out in light! Give this one day to thanks, to joy, to gratitude!
+ - Indeed, unless a man can link his written thoughts with the everlasting wants of men, so that they shall draw more from them as wells, there is no more immortality to the thoughts and feelings of the soul than to the muscles and bones.
+ - The glory of Christianity is to conquer by forgiveness. It is easier to forgive an enemy than to forgive a friend.
+ - In the morning, we carry the world like Atlas; at noon, we stoop and bend beneath it; and at night, it crushes us flat to the ground.
+ - No one thing does human life more need than a kind consideration of the faults of others. Every one sins; everyone needs forbearance. Our own imperfections should teach us to be merciful.
+ - Death is the Christian’s vacation morning. School is out. It is time to go home.
+ - If any man is rich and powerful he comes under the law of God by which the higher branches must take the burnings of the sun, and shade those that are lower; by which the tall trees must protect the weak plants beneath them.
+ - There is nothing that a New-Englander so nearly worships as an argument.
+ - Public sentiment is to public officers what water is to the wheel of the mill.
+ - Never be grandiloquent when you want to drive home a searching truth. Don’t whip with a switch that has the leaves on, if you want it to tingle.
+ - A man ought to carry himself in the world as an orange tree would if it could walk up and down in the garden, swinging perfume from every little censer it holds up in the air.
+ - Love is ownership. We own whom we love. The universe is God’s because He loves.
+ - Men who neglect Christ, and try to win heaven through moralities, are like sailors at sea in a storm, who pull, some at the bowsprit and some at the mainmast, but never touch the helm.
+ - The cynic puts all human actions into two classes – openly bad and secretly bad.
+ - The mere wit is only a human bauble. He is to life what bells are to horses-not expected to draw the load, but only to jingle while the horses draw.
+ - A man without a vote is in this land like a man without a hand.
+ - Whatever is almost true is quite false, and among the most dangerous of errors, because being so near truth, it is more likely to lead astray.
+ - Our sweetest experiences of affection are meant to be suggestions of that realm which is the home of the heart.
+ - Wherever you have seen God pass, mark that spot, and go and sit in that window again.
+ - There are materials enough in every man’s mind to make a hell there.
+ - God made man to go by motives, and he will not go without them, any more than a boat without steam or a balloon without gas.
+ - To the great tree-loving fraternity we belong. We love trees with universal and unfeigned love, and all things that do grow under them or around them – the whole leaf and root tribe.
+ - A book is a garden, an orchard, a storehouse, a party, a mentor, a teacher, a guidepost, a counsellor.
+ - The highest order that was ever instituted on earth is the order of faith.
+ - A lie is a very short wick in a very small lamp. The oil of reputation is very soon sucked up and gone. And just as soon as a man is known to lie, he is like a two-foot pump in a hundred-foot well. He cannot touch bottom at all.
+ - When a man can look upon the simple wild-rose, and feel no pleasure, his taste has been corrupted.
+ - The strong are God’s natural protectors of the weak.
+ - When a man sells eleven ounces for twelve, he makes a compact with the devil, and sells himself for the value of an ounce.
+ - A Christian is nothing but a sinful man who has put himself to school for Christ for the honest purpose of becoming better.
+ - Cant is the twin sister of hypocrisy.
+ - Theology is but our ideas of truth classified and arranged.
+ - It is part and parcel of every man’s life to develop beauty in himself. All perfect things have in them an element of beauty.
+ - In regard to the great mass of men, anything that breaks the realm of fear is not salutary, but dangerous; because it takes off one of the hoops that hold the barrel together in which the evil spirits are confined.
+ - There is not a single heart but has its moments of longing.
+ - God bless the good-natured, for they bless everybody else.
+ - Where human life needs most sympathy, where usually it is the most barren, there it is that Christ is more likely to be found than anywhere else.
+ - Take all the robes of all the good judges that have ever lived on the face of the earth, and they would not be large enough to cover the iniquity of one corrupt judge.
+ - If Christ is not divine, every impulse of the Christian world falls to a lower octave, and light and love and hope decline.
+ - Everything that happens in this world is a part of a great plan of God running through all time.
+ - Most of the debts of Europe represent condensed drops of blood.
+ - A man who cannot get angry is like a stream that cannot overflow, that is always turbid. Sometimes indignation is as good as a thunderstorm in summer, clearing and cooling the air.
+ - Perverted pride is a great misfortune in men; but pride in its original function, for which God created it, is indispensable to a proper manhood.
+ - He is rich or poor according to what he is, not according to what he has.
+ - Adversity is the mint in which God stamps upon man his image and superscription.
+ - A cunning man overreaches no one half as much as himself.
+ - Death? Translated into the heavenly tongue, that word means life!
+ - There is in youth a purity of character which, when once touched and defiled, can never be restored; a fringe more delicate than frost-work, and which, when torn and broken, can never be re-embroidered.
+ - In friendship your heart is like a bell struck every time your friend is in trouble.
+ - Every man carries a menagerie in himself; and, by stirring him up all around, you will find every sort of animal represented there.
+ - He who hunts for flowers will finds flowers; and he who loves weeds will find weeds.
+ - The ability to convert ideas to things is the secret of outward success.
+ - That which distinguishes man from the brute is his power, in dealing with Nature, to milk her laws, and make them give forth their bounty.
+ - There is a temperate zone in the mind, between luxurious indolence and exacting work; and it is to this region, just between laziness and labor, that summer reading belongs.
+ - Love is the medicine of all moral evil. By it the world is to be cured of sin.
+ - Many of our troubles are God dragging us, and they would end if we would stand upon our feet and go whither He would have us go.
+ - The imagination is the secret and marrow of civilization. It is the very eye of faith.
+ - What could make me love my fellow Christian better than to see that God loves us all as we were all one soul?
+ - He will see most without who has the best eyes within; and he who only sees with his bodily organs sees but the surface.
+ - The head learns new things, but the heart forever practices old experiences.
+ - When a nation’s young men are conservative, its funeral bell is already rung.
+ - A man is a great bundle of tools. He is born into this life without the knowledge of how to use them. Education is the process of learning their use.
+ - There is nothing that makes more cowards and feeble men than public opinion.
+ - He who is false to present duty breaks a thread in the loom, and will find the flaw when he may have forgotten its cause.
+ - It is the very wantonness of folly for a man to search out the frets and burdens of his calling and give his mind every day to a consideration of them. They belong to human life. They are inevitable. Brooding only gives them strength.
+ - Fear is the soul’s signal for rallying.
+ - You may say, “I wish to send this ball so as to kill the lion crouching yonder, ready to spring upon me. My wishes are all right, and I hope Providence will direct the ball.” Providence won’t. You must do it; and if you do not, you are a dead man.
+ - What is the disposition which makes men rejoice in good bargains? There are few people who will not be benefited by pondering over the morals of shopping.
+ - A man in the right, with God on his side, is in the majority, though he be alone, for God is multitudinous above all populations of the earth.
+ - There’s not much practical Christianity in the man who lives on better terms with angels and seraphs than with his children, servants and neighbours.
+ - It is the end of art to inoculate men with the love of nature. But those who have a psssion for nature in the natural way, need no pictures nor gallereies. Spring is their designer, and the whole year their artist.
+ - We ought to be ten times as hungry for knowledge as for food for the body.
+ - Expedients are for the hour, but principles are for the ages.
+ - A republican government is in a hundred points weaker than one that is autocratic; but in this one point it is the strongest that ever existed-it has educated a race of men that are men.
+ - Refinement is the lifting of one’s self upwards from the merely sensual; the effort of the soul to etherealize the common wants and uses of life.
+ - Take from the Bible the Godship of Christ, and it would be but a heap of dust.
+ - The hunger of the eye is not to be despised; and they are to be pitied who have starvation of the eye.
+ - Though cares and sorrows e’er must come, Though heart be rent, I know that God will give me strength, When mine is spent.
+ - Experience is the mother of custom.
+ - None love to speak so much, when the mood of speaking comes, as they who are naturally taciturn.
+ - Law represents the effort of man to organize society; governments, the efforts of selfishness to overthrow liberty.
+ - Rich men are to bear the infirmities of the poor, and wise are to bear the mistakes of the ignorant.
+ - Each book has a secret history of ways and means.
+ - A lie always needs a truth for a handle to it.
+ - Of all joyful, smiling, ever-laughing experiences, there are none like those which spring from true religion.
+ - A mother has, perhaps, the hardest earthly lot; and yet no mother worthy of the name ever gave herself thoroughly for her child who did not feel that, after all, she reaped what she had sown.
+ - Self-government by the whole people is the teleologic idea. The republican form of government is the noblest and the best, as it is the latest.
+ - As ships meet at sea a moment together, when words of greeting must be spoken, and then away upon the deep, so men meet in this world; and I think we should cross no man’s path without hailing him, and if he needs giving him supplies.
+ - Life is full of amusement to an amusing man.
+ - It is a bitter thought to an avaricious spirit that by and by all these accumulations must be left behind. We can only carry away from this world the flavor of our good or evil deeds.
+ - Success surely comes with conscience in the long run, other things being equal. Capacity and fidelity are commercially profitable qualities.
+ - There was never a person who did anything worth doing that he did not receive more than he gave.
+ - Walking humbly, you are more of a man than you were when you walked proudly.
+ - Today is a goblet day. The whole heavens have been mingled with exquisite skill to a delicious flavor, and the crystal cup put to every lip. Breathing is like ethereal drinking. It is a luxury simply to exist.
+ - Pushing any truth out very far, you are met by a counter-truth.
+ - We are apt to believe in Providence so long as we have our own way; but if things go awry, then we think, if there is a God, he is in heaven, and not on earth.
+ - Nothing is orderly till man takes hold of it. Everything in creation lies around loose.
+ - When a man says that he is perfect already, there is only one of two places for him, and that is heaven or the lunatic asylum.
+ - Yea, though the breath of disappointment should chill the sanguine heart, Speedily gloweth it again, warmed by the live embers of hope.
+ - Anger is a bow that will shoot sometimes where another feeling will not.
+ - There are many troubles which you cannot cure by the Bible and the hymn-book, but which you can cure by a good perspiration and a breath of fresh air.
+ - Books are not men and yet they stay alive.
+ - Some men are, in regard to ridicule, like tin-roofed buildings in regard to hail: all that hits them bounds rattling off; not a stone goes through.
+ - If every child might live the life predestined in a mother’s heart, all the way from the cradle to the coffin, he would walk upon a beam of light, and shine in glory.
+ - Heaven will be inherited by every man who has heaven in his soul.
+ - If we are like Christ, we shall seek, not to absorb, but to reflect the light which falls upon others, and thus we shall become pure and spotless.
+ - The meanest thing in the world is the devil.
+ - Work is not a curse, but drudgery is.
+ - The rarest feeling that ever lights a human face is the contentment of a loving soul.
+ - Like the cellar-growing vine is the Christian who lives in the darkness and bondage of fear. But let him go forth, with the liberty of God, into the light of love, and he will be like the plant in the field, healthy, robust, and joyful.
+ - There is no greater crime than to stand between a man and his development; to take any law or institution and put it around him like a collar, and fasten it there, so that as he grows and enlarges, he presses against it till he suffocates and dies.
+ - The most dangerous people are the ignorant.
+ - He who olny does not appreciate floral beauty is to be pitied like any other man who is born inperfect. It is a misfortune not unlike blindness.
+ - Men are like trees: each one must put forth the leaf that is created in him.
+ - Many people are afraid to embrace religion, for fear they shall not succeed in maintaining it.
+ - Weak minds may be injured by novel-reading; but sensible people find both amusement and instruction therein.
+ - Indifference in religion is more fatal than skepticism. There is no pulse in indifference; skepticism may have warm blood.
+ - No man is sane who does not know how to be insane on proper occasions.
+ - Whoever makes home seem to the young dearer and more happy, is a public benefactor.
+ - No man ever learned to love God with all his heart, and his neighbour as himself, in a day.
+ - Sorrows are gardeners: they plant flowers along waste places, and teach vines to cover barren heaps.
+ - Of all escape mechanisms, death is the most efficient.
+ - Newspapers are the schoolmasters of the common people.
+ - Think of a man in a chronic state of anger!
+ - Christ certainly did come to destroy the law and the prophets.
+ - Home should be the center of joy, equatorial and tropical.
+ - No man rides so high and in such good company as the man that allies himself to a truth.
+ - When a man’s pride is subdued it’s like the sides of Mount Aetna. It was terrible during the eruption, but when that is over and the lava is turned into soil, there are vineyards and olive trees which grow up to the top.
+ - Nowhere on the globe do men live so well as in America, or grumble so much.
+ - All true religion must stand on true morality.
+ - This world is magnificent for strangers and pilgrims, but miserable for residents.
+ - Well-married, a man is winged: ill-matched, he is shackled.
+ - The babe at first feeds upon the mother’s bosom, but it is always on her heart.
+ - We not only live among men, but there are airy hosts, blessed spectators, sympathetic lookers-on, that see and know and appreciate our thoughts and feelings and acts.
+ - A very common flower adds generosity to beauty. It gives joy to the poor, to the rude, and to the multitudes who could have no flowers were nature to charge a price for her blossoms.
+ - Religion is only another word for the right use of a man’s whole self, instead of a wrong use of himself.
+ - There are apartments in the soul which have a glorious outlook; from whose windows you can see across the river of death, and into the shining city beyond; but how often are these neglected for the lower ones, which have earthward-looking windows.
+ - It is a very good world for the purposes for which it was built; and that is all anything is good for.
+ - There is always work, and tools to work withal, for those, who will.
+ - Flowers are sent to do God’s work in unrevealed paths, and to diffuse influence by channels that we hardly suspect.
+ - God’s providence is on the side of clear heads.
+ - I pray on the principle that wine knocks the cork out of a bottle. There is an inward fermentation, and there must be a vent.
+ - The prouder a man is, the more he thinks he deserves, and the more he thinks he deserves, the less he really does deserve.
+ - Reading is a dissuasion from immorality. Reading stands in the place of company.
+ - No town can fail of beauty, though its walks were gutters and its houses hovels, if venerable trees make magnificent colonnades along its streets.
+ - The mischiefs of anarchy have been equaled by the mischiefs of government.
+ - Some have supposed that the mosquito is of a devout turn, and never will partake of a meal without first saying grace. The devotions of some men are but a preface to blood-sucking.
+ - The monkey is an organized sarcasm upon the human race.
+ - There are three schoolmasters for everybody that will employ them – the senses, intelligent companions, and books.
+ - Some people are proud of their humility.
+ - The tidal wave of God’s providence is carrying liberty throughout the globe.
+ - What place is so rugged and so homely that there is no beauty; if you only have a sensibility to beauty?
+ - No people are so easy to govern as the intelligent, and none are so hard to govern as the ignorant.
+ - A man that does not know how to be angry does not know how to be good.
+ - God’s men are better than the devil’s men, and they ought to act as though they thought they were.
+ - Amid the discords of this life, it is blessed to think of heaven, where God draws after him an everlasting train of music; for all thoughts are harmonious and all feelings vocal, and so there is round about his feet eternal melody.
+ - Our moral faculties must be placed highest, else they can no more flourish than could a plant growing under the shade and drip of trees.
+ - No matter what looms ahead, if you can eat today, enjoy today, mix good cheer with friends today enjoy it and bless God for it.
+ - Doctrine is nothing but the skin of truth set up and stuffed.
+ - The diameter of each day is measured by the stretch of thought – not by the rising and setting of the sun.
+ - No church can be prospered in which all the ministration comes from the pulpit.
+ - Beauty may be said to be God’s trademark in creation.
+ - Self-contemplation is apt to end in self-conceit.
+ - The human soul is God’s treasury, out of which he coins unspeakable riches.
+ - The indolent mind is not empty, but full of vermin.
+ - God’s sovereignty is not in His right hand; God’s sovereignty is not in His intellect; God’s sovereignty is in His love.
+ - Love without faith is as bad as faith without love.
+ - Religion would save a man; Christ would make him worth saving.
+ - To know that one has a secret is to know half the secret itself.
+ - Love is more just than justice.
+ - If you attempt to beat a man down and to get his goods for less than a fair price, you are attempting to commit burglary, as much as though you broke into his shop to take the things without paying for them.
+ - Defeat is a school in which truth always grows strong.
+ - Providence is but another name for natural law. Natural law itself would go out in a minute if it were not for the divine thought that is behind it.
+ - It was the German schoolhouse which destroyed Napoleon III. France, since then, is making monster cannon and drilling soldiers still, but she is also building schoolhouses. As long as war is possible, anything that makes better soldiers people want.
+ - In engineering, that only is great which achieves. It matters not what the intention is, he who in the day of battle is not victorious is not saved by his intention.
+
+500 quotes

@@ -1,0 +1,32 @@
+ - If you build it, nerds will come.
+ - Nobody with a victim mentality will get anywhere, ever. They will never succeed.
+ - Do you wanna see something swell?
+ - I grew up very nice. But after college, my father said you’re on you own. So I was dead broke for years. So I know what it’s – I lived on 600 dollars a month for six years. I know what it’s like to be dead broke. I feel bad for people who are struggling now.
+ - I would say if you are having a tough time in your life, then going to a club and getting laughs, it does make you feel better for that hour and a half show. It gets your mind off of it.
+ - I would never tell anyone who to vote for. I’m a different kind of ‘liberal’ and I think people should be true to themselves. If you’re Republican or Democrat, conservative or liberal, you should be true to yourself and be who you are.
+ - I didn’t take anything from anyone – first of all. Second of all, I opened a comedy club with money that I saved over 25 years. I created jobs.
+ - How much blow can Charlie Sheen do? Enough to kill two and a half men.
+ - At a certain point, if you work really hard and you get good and people like your work, you do deserve the fame – but you shouldn’t take it for granted.
+ - Some people, they got housing loans, and I think they’re responsible for taking a loan they didn’t qualify for?
+ - Sometimes the best way to make ’em laugh is to show ’em how you honestly feel.
+ - It’s rare when you’re actually making a movie and it feels like you’re watching a movie in the theater. You feel like a surfer in a wave, catching the wave, going for it every time, there’s electricity in the room, it doesn’t feel like acting, you ride the wave.
+ - The problem with the economy isn’t that people aren’t paying their fair share of taxes.
+ - My dad would always say, ‘What can you do to make the world a better place?’ Well, I can make people laugh.
+ - You’re in front of an audience, but you’re playing for a camera. There’s this huge adrenaline rush, because you know that besides the audience in the studio, there are millions of people watching at home.
+ - I don’t want to talk about myself, that’s for other people to say, so I’m not saying I was so talented.
+ - I like getting up in front of an audience. It’s fun when you go to a baseball game and the crowd is cheering you. I can’t deny it. And it’s very funny, too. Sometimes you’re shy; you go somewhere and everyone’s looking at you, so you feel a little self-conscious.
+ - If I make a dollar and out of every dollar I’m taxed at 50, half, at 50 cents, I have to give, isn’t that like enough?
+ - It’s fun to do something funny and have the director laughing. It makes you feel good.
+ - You want everyone to be great and funny. I’m not saying I’m great, but I’m funny.
+ - In comedy, you have to do all of the same stuff you do in drama and then put the comedy on top of it. You, the actor, are aware of the comedy but the character is oblivious. And you have to have a sense of humor.
+ - I had done plays in high school. It was something I always wanted to do since I was little. I was a drama major at UC-Irvine.
+ - I do see your point, but to me, I’m just a mouse compared to the President of the United States.
+ - You, the actor, must be aware of when you’re being funny, but the character you’re playing should always be oblivious to the fact.
+ - Apparently, I said what a lot of people are thinking and a lot of people have thanked me.
+ - But Opera Man, I go, ‘Oh, crap! Why didn’t I think of that?’ Because I could sing fake opera pretty good.
+ - I feel lucky that I’m working at all. I don’t take any job for granted. I enjoy this. It’s all enjoyable for me. It’s all part of it.
+ - Anybody can be going from being broke to being wealthy, as I did.
+ - Woody is the guy who made me want to be a comic. I was in heaven and couldn’t stop smiling because he was my idle and 29 years after seeing Take the Money and Run, I was working for him.
+ - I would love to have a part opposite a great actor – like, say, Pacino or De Niro or Hoffman. And to work with a top director. That’s my dream.
+
+30 quotes

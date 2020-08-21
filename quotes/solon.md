@@ -1,0 +1,47 @@
+ - Learn to obey before you command.
+ - Laws are like spider’s webs: If some poor weak creature comes up against them, it is caught; but a big one can break through and get away.
+ - Rich people without wisdom and learning are but sheep with golden fleeces.
+ - In all things let reason be your guide.
+ - Speech is the mirror of action.
+ - Chide a friend in private and praise him in public.
+ - I grow old learning something new every day.
+ - Angels are winged with God’s power.
+ - Put more trust in nobility of character than in an oath.
+ - He who has learned how to obey will know how to command.
+ - Often the wicked prosper, while the righteous starve; yet I would never exchange my state for theirs, my virtue for their gold. For mine endures, while riches change their owner every day.
+ - In giving advice seek to help, not to please, your friend.
+ - Pure chastity is beauty to our souls, grace to our bodies, and peace to our desires.
+ - Seek to learn constantly while you live; do not wait in the faith that old age by itself will bring wisdom.
+ - Justice, even if slow, is sure.
+ - As I grow older, I constantly learn more.
+ - The ideal state is that in which an injury done to the least of its citizens is an injury done to all.
+ - If all men were to bring their miseries together in one place, most would be glad to take each his own home again rather than take a portion out of the common stock.
+ - Society is well governed when its people obey the magistrates, and the magistrates obey the law.
+ - Rule, after you have first learned to submit to rule.
+ - Laws are like spiders webs which, if anything small falls into them they ensnare it, but large things break through and escape.
+ - Let no man be called happy before his death. Till then, he is not happy, only lucky.
+ - No more good must be attempted than the nation can bear.
+ - Call no man happy until he is dead.
+ - For often evil men are rich, and good men poor; But we will not exchange with them Our virtue for their wealth since one abides always, While riches change their owners every day.
+ - In the ideal State laws are few and simple, because they have been derived from certainties. In the corrupt State laws are many and confused, because they have been derived from uncertainties.
+ - Men keep their agreements when it is an advantage to both parties not to break them; and I shall so frame my laws that it will be evident to the Athenians that it will be for their interest to observe them.
+ - True blessedness consisteth in a good life and a happy death.
+ - No fool can be silent at a feast.
+ - Wealth breeds satiety, satiety outrage.
+ - Poets tell many lies.
+ - Wealth I desire to have; but wrongfully to get it, I do not wish.
+ - Satiety comes of riches and contumaciousness of satiety.
+ - That city in which those who are not wronged, no less than those who are wronged, exert themselves to punish the wrongdoers.
+ - Say nothing but good of the dead.
+ - He that will sell his fame will also sell the public interest.
+ - If through your vices you afflicted are, Lay not the blame of your distress on God; You made your rulers mighty, gave them guards, So now you groan ’neath slavery’s heavy rod.
+ - Consider your honour, as a gentleman, of more weight than an oath.
+ - To make an empire durable, the magistrates must obey the laws and the people the magistrates.
+ - Watch well each separate citizen, Lest having in his heart of hearts A secret spear, one still may come Saluting you with cheerful face, And utter with a double tongue The feigned good wishes of his wary mind.
+ - If things are going well, religion and legislation are beneficial; if not, they are of no avail.
+ - Honors achieved far exceed those that are created.
+ - What thou seest, speak of with caution.
+ - No man is happy; he is at best fortunate.
+ - Men keep their engagements when it is an advantage to both parties not to break them.
+
+45 quotes

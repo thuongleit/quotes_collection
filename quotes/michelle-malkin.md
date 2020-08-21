@@ -1,0 +1,51 @@
+ - Silence is complicity. Speak now or surrender your ground.
+ - Birds of a lawless, bigoted feather bully together.
+ - Washington is gripped by crab-in-the-bucket syndrome. And there’s no cure in sight. Put a single crab in an uncovered bucket, and it will find a way to climb up and out on its own. Put a dozen crabs in a bucket, and 11 will fight with all their might to pull down the striver who attempts escape.
+ - Liberals see racism where it doesn’t exist, fabricate it when they can’t find it and ignore it within their own ranks.
+ - The difference between past and present immigration experience is the existence of a defiant anti-assimilationist lobby that encourages legal and illegal aliens to resist adapting to the American way of life.
+ - Let me sum up in two words how the unhinged Left copes with the threat of global jihad: “Kill Bush!”
+ - It’s time for a 21st-century retirement age. If 40 is the new 20 and 50 is the new 30, why shouldn’t 70 be the new 65? The last time Washington politicians tinkered ever so gingerly with the government-sanctioned retirement age, Ronald Reagan was in office and Generation X-ers were all in diapers.
+ - The most dangerous lechers and creeps are not drunks wearing rags on the street, but respectable men wearing hairspray, pinstripes, and wedding rings who lurk in the halls of power.
+ - Progressive feminists have shown nothing but the most reflexive, regressive contempt for women on the other side of the ideological aisle. It doesn’t matter if you’re a conservative stay at home mom, work at home mom, or work outside the home mom. If you’re Right, the Left is gonna hate.
+ - Who would have guessed that the shots heard ’round the world 225 years ago would fall on deaf ears in a nation now more sympathetic to the gun-grabbing Redcoat than the gun-bearing rebel?
+ - Official motto of the White House economic team: Those who can, do. Those who can’t, fantasize in the classroom, fail in Washington and then return to the Ivy Tower to train the next generation of egghead economic saboteurs. Life is good for left-wing academics. Everyone else pays dearly.
+ - I stand with the Santa Barbara News-Press. How about you?
+ - Pond scum stinks. And so do the Obama administration’s enormous, taxpayer-funded ‘investments’ in politically connected biofuel companies.
+ - It’s time for ordinary Americans to come out of the shadows and remind Washington every day in words and actions that we are a sovereign nation, not a sanctuary nation.
+ - At the dawn of his administration, President Obama opined: ‘A democracy requires accountability, and accountability requires transparency.’ Magical rays of white-hot sunlight emanated from his media-manufactured halo. And then bureaucratically engineered darkness settled over the land.
+ - Instead of basic roads and bridges, infrastructure spending will go to bloated unions overseeing pie-in-the-sky construction projects like the $30 billion-plus high-speed rail line from Los Angeles to San Francisco, which California officials fully expect to be funded.
+ - Since when did the American Dream become the American Guarantee?
+ - The core failure of Team Obama is not a failure to communicate, but a failure to comprehend.
+ - Here is the operating motto of the Obama White House: ‘So let it be written, so let it be done!’ Like Yul Brynner’s Pharaoh Ramses character in Cecil B. DeMille’s ‘The Ten Commandments,’ the demander in chief stands with arms akimbo issuing daily edicts to his constitution-subverting minions.
+ - No matter how you rearrange President Obama’s inner circle, it still looks, smells and tastes like a rotten Chicago deep-dish pizza.
+ - If you aren’t creeped out by the No Birth Control Left Behind rhetoric of the White House and Planned Parenthood, you aren’t listening closely enough. The anesthetic of progressive benevolence always dulls the senses. Wake up.
+ - Minority conservatives hold a special place of gutter contempt in the minds of unhinged liberals, who can never accept the radical concept of a person of color rejecting identity politics.
+ - Championing liberty begins at the local level. There is nothing more fundamental than the principle that a man’s home is his castle. Donald Trump’s career-long willingness to trample this right tells you everything you need to know about his bogus tea party sideshow.
+ - Out: Reading is fundamental. In: Feeling is fundamental.
+ - A high-speed connection is no more an essential civil right than 3G cell phone service or a Netflix account. Increasing competition and restoring academic excellence in abysmal public schools is far more of an imperative to minority children than handing them iPads.
+ - Barack Obama and Jimmy Hoffa are like Tweedledum and Tweedledee, Lady Gaga and hype, the ‘Jersey Shore’ cast and hairspray: inseparable. The president can no more disown the Teamsters Union’s leader than he can disown his own id.
+ - When bureaucrats talk about increasing our ‘access’ to x, y or z, what they’re really talking about is increasing exponentially their control over our lives. As it is with the government health care takeover, so it is with the newly approved government plan to ‘increase’ Internet ‘access.’
+ - Environmentalists hate sprawl – except when it comes to the size of their expansive pet legislation on Capitol Hill.
+ - Most small-business owners will tell you they don’t want Obama ‘boosting’ them. They just want him to get out of the way.
+ - Bank of America is to sweetheart loans and Democratic Party payoffs as Paula Deen is to sugar and bacon grease.
+ - The truly bold thing for Obama to do would be to tell the panic-mongers and boondoggle-seekers to shove it, and to tell taxpayers to ride out the rest of the tough times while he gets Washington’s own economic house in order.
+ - There is no such thing as a ‘free’ government benefit. Ask small-business owners who are footing skyrocketing bills for bottomless jobless benefits.
+ - We knew Chris Matthews had no shame. Now we also know the king of TV ghouls has no souls.
+ - In the 1970s, ‘The Boys on the Bus’ exposed how a clubby pack of male political reporters ruled the road to the White House and shaped the news. Four decades later, an outsider gal from Alaska has commandeered the 2012 media bus – and left Beltway journalism insiders eating her dust.
+ - Who needs enemies when you’ve got Republican Surrenderists for Obamacare waiting in the wings?
+ - During the summer of 2009, conservative activists turned up the heat on Democratic politicians to protest the innovation-destroying, liberty-usurping Obamacare mandate. In the summer of 2012, it’s squishy Republican politicians who deserve the grassroots flames.
+ - What our country deserves from everyone who enjoys its fruits and freedoms is a little more gratitude – and a lot less greed.
+ - Washington continues to encourage ever more ill-considered lending in a misguided attempt to stave off needed market corrections. The currently proposed combination of a nationwide infrastructure spending orgy plus tax-cut bribes does nothing to remedy that.
+ - The only true allegiance a politician has is to his own re-election.
+ - Team Obama is exploiting the power of high government office to intimidate lawful, peaceful contributors who support limited-government causes.
+ - I think the thing that I admire about Rick Santorum is that he hasn’t backed down or apologized one bit for his personal religious views, for standing up for social conservative values.
+ - Situational unawareness in the private marketplace or on the battlefield will cost you your livelihood or your life. In the Age of Obama, however, such willful ignorance is a job prerequisite. The less you know the better.
+ - The newspaper is under fire for refusing to kowtow to left-wing word police and militant propagandists who demand unfettered illegal immigration. Last week, in the wake of angry protests against the publication, vandals threw paint bombs and spray-painted graffiti on its offices.
+ - History has shown us that ‘Get Things Done’ is mindless liberal code for passing ineffective legislation and expanding government for government’s sake.
+ - Nothing symbolizes American strength and vigor more than another unaccountable Washington bureaucrat.
+ - Instead of putting Americans to work, the Teamsters have been busy yanking members off projects and idling construction projects from California to Indiana to New York in order to shake down employers.
+ - As an early-and-often chronicler of Chicago-on-the-Potomac, I am amazed at the stubborn and clingy persistence of President Barack Obama’s snowblowers in the media. See no scandal, hear no scandal, speak no scandal.
+ - In civilized societies, if you are offended by a cartoon, you do not burn flags, take up guns and raid buildings, chant death to your opponents, or threaten suicide bombings. You write a letter to the editor.
+ - The deal looks bad and smells worse.
+
+49 quotes

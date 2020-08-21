@@ -1,0 +1,47 @@
+ - I believe that we are who we choose to be. Nobody is going to come and save you. You’ve got to save yourself. Nobody is going to give you anything. You’ve got to go out and fight for it.
+ - Everything you say and do is having an impact on others.
+ - The public needs to know – they need to know as much about atrial fibrillation as they do about cancer and diabetes.
+ - Misfits aren’t misfits among other misfits.
+ - I stay glued to my piano and my work. I don’t look up. I write, I produce, I do the next project, I do my job. I don’t look up, and I try to be kind. I try to be kind to people. That’s what I do.
+ - Touring is a young man’s game, but after 30 years of it, I want to stay home.
+ - I think my music is like anchovies – some people like it, some people get nauseous.
+ - Keep your family and old friends around you. That’s what I had done and that’s what saved my life when it came to being famous.
+ - Sneakers are not my thing.
+ - Atrial fibrillation has been the low man on the totem pole and so were just trying to get more visibility about this particular disease and how dangerous this could be.
+ - I was the Justin Bieber of the ’70s. Really, I was.
+ - I come from nowhere Brooklyn, New York. Williamsburg, Brooklyn. These days Williamsburg is kind of a hip area, but when I grew up there, the taxi drivers wouldn’t even go over the bridge, it was so dangerous.
+ - You can’t possibly prepare for what happens to you the day you hit No. 1 and people treat you differently.
+ - I feel that after all those horrible reviews and jokes, I wasn’t crazy all these years to stand up for the music I believe in. This album has proven that somewhere in the human race, the human heart is still racing and breaking and I am so grateful.
+ - Every few years, I go back into all the songs and I update them so that it never sounds like an oldies show. If you come to the shows, they’re full of muscle. ‘Copacabana’ sounds like it could have been released yesterday.
+ - Fame is always a shock to the system; there’s no school to go to, there are no books to read, and when it hits you, it’s a surprise. You could be working for 10, 20 years and when it finally hits you, you get knocked down.
+ - I’ve always wanted to marry Elton John.
+ - My style of music is the great American songbook meets the pop world of the Seventies and Eighties.
+ - I’m still hungry. I’ve still got a million ideas. I’m still strong and ready to create.
+ - The melody seems to have gone to the country. The country music seems to still have melody and interesting lyrics. But pop music, you’ve got to really listen hard to somebody who’s doing a good melody and a good lyric.
+ - I love any opportunity I have to make music.
+ - Here’s proof that if you live long enough, anything is possible.
+ - I’ve been up, down, trying to get the feeling again. All around, trying to get the feeling again. The one that makes me shiver, made my knees start to quiver.
+ - There’s just no quiet in Vegas.
+ - I didn’t want to be treated like a ‘star.’ I fought it constantly, and I think I was rude.
+ - When it comes to me, I just write the most beautiful music I can, I do the best work I can, and then I hand it out there.
+ - I am a musician. My passion for music has obliterated everything in its path for my entire life.
+ - No one person or material thing could ever come close to the feeling I get when the music is right.
+ - Everybody has to find out: who are you? What do you believe in?
+ - These days, with ‘American Idol’ and all the other reality shows, young people become famous overnight, and that can be very difficult to handle, the way photographers follow you around and study your every move.
+ - I think the people who are out there for fame get themselves in a lot of trouble.
+ - You say something stupid and the next morning you’re in the headlines.
+ - My hair was slicked down with a part. But that was before I discovered the blow-dryer. Now I’m fabulous.
+ - What we hear now is great-sounding records with great-sounding grooves and loops. And the sound of these records is irresistible, but the craft of songwriting is just about over. That’s why, whenever I get an opportunity to do an album full of standards, I jump at it because I miss it.
+ - You know, when I did ‘American Idol’ the three times, I tried to tell these kids you have to tell the story of the lyric.
+ - QVC has been very good to me.
+ - My goal was always to be involved in music that would outlive me. And maybe that’s actually happening.
+ - I couldn’t bear the road anymore. I’m sure that a lot of people who have been on the road a long time will say the same thing. After a while, waiting for bedroom service and planes – I wanted to go home.
+ - I believe in my writing.
+ - First of all, I’ve been having a wonderful run of luck with cover albums, songs I didn’t write. I had five pop cover albums and two Christmas albums, and they were all very successful.
+ - Whenever there was a choice between music and anything else, music won hands down every time.
+ - I never wanted to be a performer, that was not one of my goals. I wanted to be a musician and that was that.
+ - Yeah, I’m old as the hills and you would think I’d be out to pasture someplace because I’ve done everything, but nothing has changed.
+ - For a Jewish guy, I’ve recorded a lot of Christmas albums.
+ - I keep reading about people who want to be famous – it’s not that they want to be great songwriters or great actors, they want to be celebrities. That is scary because you can be famous doing some really stupid things.
+
+45 quotes

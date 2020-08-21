@@ -1,0 +1,22 @@
+ - Motivation is temporary. Inspiration is permanent.
+ - It’s all about where your mind’s at.
+ - It’s like the mafia. Once you’re in – your in. There’s no getting out.
+ - Fatherhood isn’t always a planned thing, but when it happens you just do it. It’s very natural and in that sense it’s not really difficult.
+ - For a surfer, it’s never-ending. There’s always some wave you want to surf.
+ - Your surfing can get better on every turn, on every wave you catch. Learn to read the ocean better. A big part of my success has been wave knowledge.
+ - Most anything Ive ever set my mind to, I could accomplish.
+ - I still feel like my best surfing is ahead of me.
+ - Surfing is my religion, if I have one.
+ - The joy of surfing is so many things combined, from the physical exertion of it, to the challenge of it, to the mental side of the sport.
+ - I’ve always thought surfing is a reflection of who you are.
+ - This was the most emotional title of my career. I was the youngest champion, and now I’m the oldest.
+ - I want to surf better tomorrow. I want to surf better in 10 years. When I’m 50 I want to be a better surfer than I am now – for me it’s a lifelong journey.
+ - I think when a surfer becomes a surfer, it’s almost like an obligation to be an environmentalist at the same time.
+ - J-Bay displays the best of people’s surfing.
+ - Not to sound too deep or weird, but I think that the times when you really appreciate surfing are the times you’re really sort of becoming one with nature. Surfing’s as raw of a sport as it gets.
+ - A wave isn’t like a skate ramp or mountain; everything’s moving around, and you have to time how to move along with it. That’s easier with a slow wave.
+ - I’ve been in a poor physical shape many times in my career and I’ve had some of my best results. My best performances happened because my mind was in the right place. The mind is definitely stronger than the body.
+ - Maintaining marriage seems to be tougher than fatherhood: apparently its the most difficult thing in the world.
+ - I’m the competitor, I’m the one who has to wear the brunt of that being a good or bad score. And I’m not too worried about it. I don’t know why so many are to be honest with you.
+
+20 quotes

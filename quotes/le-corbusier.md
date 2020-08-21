@@ -1,0 +1,35 @@
+ - A house is a machine for living in.
+ - The history of architecture is the history of the struggle for light.
+ - Light creates ambience and feel of a place, as well as the expression of a structure.
+ - The materials of city planning are: sky, space, trees, steel and cement; in that order and that hierarchy.
+ - I prefer drawing to talking. Drawing is faster, and leaves less room for lies.
+ - Cameras get in the way of seeing.
+ - The city of Chandigarh is planned to human scale. It puts us in touch with the infinite cosmos and nature. It provides us with places and buildings for all human activities by which the citizens can live a full and harmonious life. Here the radiance of nature and heart are within our reach.
+ - Belgrade is the ugliest city in the world in the most beautiful place in the world.
+ - Space and light and order. Those are the things that men need just as much as they need bread or a place to sleep.
+ - The home should be the treasure chest of living.
+ - The “styles” are a lie.
+ - Modern life demands, and is waiting for, a new kind of plan, both for the house and the city.
+ - You know, it is life that is right and the architect who is wrong.
+ - You don’t start a revolution by fighting the state but by presenting the solutions.
+ - Chairs are architecture, sofas are bourgeois.
+ - By law, all buildings should be white.
+ - Architecture is the masterly, correct, and magnificent play of masses brought together in light. Our eyes are made to see forms in light: light and shade reveal these forms.
+ - The present moment is creative, creating with an unheard-of intensity.
+ - To be modern is not a fashion, it is a state. It is necessary to understand history, and he who understands history knows how to find continuity between that which was, that which is, and that which will be.
+ - Genius is personal, decided by fate, but it expresses itself by means of system. There is no work of art without system.
+ - Life never stops. The torment of men will be eternal, unless the function of creating and acting and changing, living intensely through each day, be considered an eternal joy.
+ - To create architecture is to put in order. Put what in order? Function and objects.
+ - Architecture is the learned game, correct and magnificent, of forms assembled in the light.
+ - My research is like my feeling, directed towards what is the principle value in the life – the poetry.
+ - The object of this edict is to enlighten the present and future citizens of Chandigarh about the basic concepts of planning of the city so that they become its guardians and save it from whims of individuals.
+ - Our world, like a charnel-house, is strewn with the detritus of dead epochs.
+ - When does a building actually become a built?
+ - Vehement silhouettes of Manhattan – that vertical city with unimaginable diamonds.
+ - A hundred times have I thought New York is a catastrophe and 50 times: It is a beautiful catastrophe.
+ - Our own epoch is determining, day by day, its own style. Our eyes, unhappily, are unable yet to discern it.
+ - It is a question of building which is at the root of the social unrest of today: architecture or revolution.
+ - The mathematical phenomenon always develops out of simple arithmetic, so useful in everyday life, out of numbers, those weapons of the gods: the gods are there, behind the wall, at play with numbers.
+ - Vehicular traffic is completely forbidden in the green strips, where tranquility shall reign and the curse of noise shall not penetrate.
+
+33 quotes

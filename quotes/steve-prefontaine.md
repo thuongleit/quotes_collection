@@ -1,0 +1,37 @@
+ - To give anything less than your best is to sacrifice the gift.
+ - Don’t let fatigue make a coward out of you.
+ - Success isn’t how far you got, but the distance you traveled from where you started.
+ - The best pace is a suicide pace, and today looks like a good day to die.
+ - A man can fail many times, but he isn’t a failure until he begins to blame someone else.
+ - Somebody may beat me, but they are going to have to bleed to do it.
+ - A lot of people run a race to see who is fastest. I run to see who has the most guts, who can punish himself into exhausting pace, and then at the end, punish himself even more.
+ - What I want is to be number one.
+ - If you fail to prepare, prepare to fail.
+ - No matter how hard you train, Somebody will train harder. No matter how hard you run, Somebody will run harder. No matter how hard you want it, Somebody will want it more, I am Somebody.
+ - I’m going to work so that it’s a pure guts race at the end, and if it is, I am the only one who can win it.
+ - I can endure more pain then anyone you’ve met. That’s why I win, because I can endure more pain.
+ - A race is a work of art that people can look at and be affected in as many ways they’re capable of understanding.
+ - You have to wonder at times what you’re doing out there. Over the years, I’ve given myself a thousand reasons to keep running, but it always comes back to where it started. It comes down to self-satisfaction and a sense of achievement.
+ - You said I was weak. You said I couldn’t do it. Thank you. You gave me everything I needed to prove you wrong.
+ - You cannot propel yourself forward by patting yourself on the back.
+ - What I like most about track is the feeling I get after a good run.
+ - What kind of crazy nut would spend two or three hours a day just running?
+ - Running gives me confidence.
+ - A race is a work of art.
+ - Something inside of me just said ‘Hey, wait a minute, I want to beat him,’ and I just took off.
+ - If you can’t win your race, make sure the guy ahead of you breaks the record.
+ - I run to see who has the most guts.
+ - Having a true faith is the most difficult thing in the world. Many will try to take it from you.
+ - No one will ever win a 5,000-meter by running an easy two miles. Not against me.
+ - Every once in a while I think, ‘What am I doing out here running, busting myself up? Life could be so much easier. The other guys are out having fun, doing other things, why not me?’
+ - Some people create with words or with music or with a brush and paints. I like to make something beautiful when I run.
+ - I don’t just go out there and run. I like to give people watching something exciting.
+ - The idea of losing the three at Hayward Field and the idea of losing my specialty to someone who wasn’t running his specialty. Mostly, the idea of losing in front of my people. They haven’t forgotten about me.
+ - I’ve been in international competition, and now I know what the big boys can do. You don’t go out and just run. There’s an offense and a defense.
+ - How does a kid from Coos Bay, with one leg longer than the other win races?
+ - Nobody likes tainted victories.
+ - Kids made fun of me because I was a slow learner, because I was hyperactive, because of a lot of things. Running gave me confidence.
+ - My philosophy is that I’m an artist. I perform an art not with a paint brush or a camera. I perform with bodily movement. Instead of exhibiting my art in a museum or a book or on canvas, I exhibit my art in front of the multitudes.
+ - As far as being a coach, it’s always fascinated me. It’s a greater responsibility than most people give it credit for because you’re dealing with people.
+
+35 quotes

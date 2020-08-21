@@ -1,0 +1,22 @@
+ - I’m more of a jeans and T-shirt kind of girl.
+ - I make Jessica Simpson look like a rock scientist.
+ - I love horror movies. A good horror movie is always great.
+ - The worst thing I ever did is dance on the table.
+ - The next step in my life is hopefully meeting a nice guy and getting married.
+ - I don’t really regret anything I’ve done, even if it’s bad. I mean, I have a $100,000 Chopard watch. I don’t need a $100,000 watch, but I like it. It’s all diamonds. That’s a little extreme, but I don’t care.
+ - I’m not perfect, I do drink. I do smoke. Carson Daly can’t go out and get messed up, he can’t smoke in front of kids – he’s the face of MTV, and he has to be good. But me? I can.
+ - I just started making Bloody Marys. I always thought they looked gross, then I tasted one. There’s an art to it, from the Tabasco to the Worcestershire.
+ - I can make a scene that’s not supposed to be sexy, very sexy. It’s a power you’re born with. It’s not a physical thing, it comes from inside. It’s all in the eyes.
+ - Why is partying and having a good time bad?
+ - I’ve done a lot of serious roles, but they’re, like, independent, so it’s harder for them to come out. The big ones have been comedies, but I would love to get a big drama to let people see the other side of me, that I am a serious actress.
+ - I admire a lot of actors; I think a lot of them have so much talent.
+ - I know this sounds ridiculous but I like guys with love handles. I hate a washboard stomach – that does not turn me on.
+ - I like a guy who uses his hips when he’s dancing.
+ - If you want to be mean to each other, just buy a country together and blow each other up. Then we’d have no terrorists left.
+ - I love horror movies. I mean, who doesn’t like a good horror movie every once in a while? It’s fun to get scared.
+ - If I work on a movie for two months, I should be able to dance on as many tables as I want to.
+ - I just couldn’t live without dogs.
+ - At the end of a movie, all my outfits are missing. They even call: ‘Tara, those were $700 shoes.’ What are they going to do, search my house?
+ - People think I am America’s party girl, which is just stupid. I have done 24 movies and I am creating my own TV show.
+
+20 quotes

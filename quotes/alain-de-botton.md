@@ -1,0 +1,246 @@
+ - Everyone wants a better life: very few of us want to be better people.
+ - There is no such thing as work-life balance. Everything worth fighting for unbalances your life.
+ - A good half of the art of living is resilience.
+ - Anyone who isn’t embarrassed of who they were last year probably isn’t learning enough.
+ - Work finally begins when the fear of doing nothing exceeds the fear of doing it badly.
+ - Most of our childhood is stored not in photos, but in certain biscuits, lights of day, smells, textures of carpet.
+ - Never too late to learn some embarrassingly basic, stupidly obvious things about oneself.
+ - We should not feel embarrassed by our difficulties, only by our failure to grow anything beautiful from them.
+ - We are sensitized by the books we read. And the more books we read, and the deeper their lessons sink into us, the more pairs of glasses we have. And those glasses enable us to see things we would have otherwise missed.
+ - Feeling lost, crazy and desperate belongs to a good life as much as optimism, certainty and reason.
+ - Travel agents would be wiser to ask us what we hope to change about our lives rather than simply where we wish to go.
+ - What is a snob? A snob is anybody who takes a small part of you and uses that to come to a complete vision of who you are. That is snobbery.
+ - The pleasure we derive from journeys is perhaps dependent more on the mindset with which we travel than on the destination we travel to.
+ - The difference between hope and despair is a different way of telling stories from the same facts.
+ - Sweetness is the opposite of machismo, which is everywhere-and I really don’t get on with machismo. I’m interested in sensitivity, and weakness, and fear, and anxiety, because I think that, at the end of the day, behind our masks, that’s what we are.
+ - Do you love me enough that I may be weak with you? Everyone loves strength, but do you love me for my weakness? That is the real test.
+ - True love is a lack of desire to check one’s smartphone in another’s presence.
+ - When you look at the Moon, you think, ‘I’m really small. What are my problems?’ It sets things into perspective. We should all look at the Moon a bit more often.
+ - Love is an incurable disease. In love, there is permanent suffering. Those who love and those who are happy are not the same.
+ - Journeys are the midwives of thought. Few places are more conducive to internal conversations than moving planes, ships or trains.
+ - Perhaps it is true that we do not really exist until there is someone there to see us existing, we cannot properly speak until there is someone who can understand what we are saying in essence, we are not wholly alive until we are loved.
+ - A notorious inability to express emotions makes human beings the only animals capable of suicide.
+ - The moment we cry in a film is not when things are sad but when they turn out to be more beautiful than we expected them to be.
+ - Every time we feel satisfied with what we have, we can be counted as rich, however little we may actually possess.
+ - It is perhaps when our lives are at their most problematic that we are likely to be most receptive to beautiful things.
+ - As adults, we try to develop the character traits that would have rescued our parents.
+ - For paranoia about ‘what other people think’ : remember that only some hate, a very few love – and almost all just don’t care.
+ - Good sex isn’t just fun, it keeps us sane and happy. Having sex with someone makes us feel wanted, alive and potent.
+ - Insomnia is a glamorous term for thoughts you forgot to have in the day.
+ - What kills us isn’t one big thing, but thousands of tiny obligations we can’t turn down for fear of disappointing others.
+ - The only people we can think of as normal are those we don’t yet know very well.
+ - Forgiveness requires a sense that bad behaviour is a sign of suffering rather than malice.
+ - In the gap between who we wish one day to be and who we are at present, must come pain, anxiety, envy and humiliation.
+ - I was uncomfortable writing fiction. My love was the personal essay, rather than the novel.
+ - Intimacy is the capacity to be rather weird with someone – and finding that that’s ok with them.
+ - People only get really interesting when they start to rattle the bars of their cages.
+ - Maturity: the confidence to have no opinions on many things.
+ - It is in dialogue with pain that many beautiful things acquire their value. Acquaintance with grief turns out to be one of the more unusual prerequisites of architectural appreciation. We might, quite aside from all other requirements, need to be a little sad before buildings can properly touch us.
+ - Don’t despair: despair suggests you are in total control and know what is coming. You don’t – surrender to events with hope.
+ - At the heart of every frustration lies a basic structure: the collision of a wish with an unyielding reality.
+ - You normally have to be bashed about a bit by life to see the point of daffodils, sunsets and uneventful nice days.
+ - Man seems merely dust postponed: the sublime as an encounter – pleasurable, intoxicating, even – with human weakness in the face of strength, age and size of the universe.
+ - What we seek, at the deepest level, is inwardly to resemble, rather than physically to possess, the objects and places that touch us through their beauty.
+ - People who readily accept the need for a gym will resist that their personalities might need some work too.
+ - I passionately believe that’s it’s not just what you say that counts, it’s also how you say it – that the success of your argument critically depends on your manner of presenting it.
+ - Cynics are – beneath it all – only idealists with awkwardly high standards.
+ - Most of what makes a book ‘good’ is that we are reading it at the right moment for us.
+ - One of the best protections against disappointment is to have a lot going on.
+ - Let death find us as we are building up our matchstick protests against its waves.
+ - I learnt to stop fantasising about the perfect job or the perfect relationship because that can actually be an excuse for not living.
+ - We should keep a careful diary of our moments of envy: they are our covert guides to what we should try to do next.
+ - Most victories are, in the best way, acts of revenge.
+ - One of the unexpectedly important things that art can do for us is to teach us how to suffer more successfully.
+ - When work is not going well, it’s useful to remember that our identities stretch beyond what is on the business card, that we were people long before we became workers – and will continue to be human once we have put our tools down forever.
+ - Booksellers are the most valuable destination for the lonely, given the numbers of books that were written because authors couldn’t find anyone to talk to.
+ - The mind may be reluctant to think properly when thinking is all it is supposed to do; the task can be as paralysing as having to tell a joke or mimic an accent on demand.
+ - To look at the paper is to raise a seashell to one’s ear and to be overwhelmed by the roar of humanity.
+ - The good parent: someone who doesn’t mind, for a time, being hated by their children.
+ - Literature deserves its prestige for one reason above all others – because it’s a tool to help us live and die with a little bit more wisdom, goodness, and sanity.
+ - What we find exotic abroad may be what we hunger for in vain at home.
+ - The desire for high status is never stronger than in situations where “ordinary” life fails to answer a median need for dignity and comfort.
+ - The most unbearable thing about many successful people is not – as we flatteringly think – how lazy they are, but how hard they work.
+ - To be shown love is to feel ourselves the object of concern: our presence is noted, our name is registered, our views are listened to, our failings are treated with indulgence and our needs are ministered to. And under such care, we flourish.
+ - We are all more intelligent than we are capable, and awareness of the insanity of love has never saved anyone from the disease.
+ - Not everyone is worth listening to.
+ - The telephone becomes an instrument of torture in the demonic hands of a beloved who doesn’t call.
+ - What should worry us is not the number of people that oppose us, but how good their reasons are for doing so.
+ - A ‘good job’ can be both practically attractive while still not good enough to devote your entire life to.
+ - What is fascinating about marriage is why anyone wants to get married.
+ - Most good thinking has its origin in fear.
+ - Unhappiness can stem from having only one perspective to play with.
+ - Curiosity might be pictured as being made up of chains of small questions extending outwards, sometimes over huge distances, from a central hub composed of a few blunt, large questions.
+ - Paying tax should be framed as a glorious civic duty worthy of gratitude – not a punishment for making money.
+ - If one felt successful, there’d be so little incentive to be successful.
+ - Mental health: having enough safe places in your mind for your thoughts to settle.
+ - In their different ways, art and philosophy help us, in Schopenhauer ’s words, to turn pain into knowledge.
+ - It’s very hard to respect people on holiday – everybody looks so silly at the beach, it makes you hate humanity – but when you see people at their work they elicit respect, whether it’s a mechanic, a stonemason or an accountant.
+ - We should read other people’s books in order to learn what we feel; it is our own thoughts we should be developing, even if it is another writer’s thought that help us to do so.
+ - The greatest difficulty of Travel is that one is forced to take oneself along.
+ - Being content is perhaps no less easy than playing the violin well: and requires no less practice.
+ - Kant and Hegel are interesting thinkers. But I am happy to insist that they are also terrible writers.
+ - Religions are so subtle, so complicated, so intelligent in many ways that they’re not fit to be abandoned to the religious alone; they’re for all of us.
+ - It’s perhaps easier now than ever before to make a good living; it’s perhaps harder than ever before to stay calm, to be free of career anxiety.
+ - The media insists on taking what someone didn’t mean to say as being far closer to the truth than what they did.
+ - A lump rises in our throat at the sight of beauty from an implicit knowledge that the happiness it hints at is the exception.
+ - Good books put a finger on emotions that are deeply our own – but that we could never have described on our own.
+ - Art holds out the promise of inner wholeness.
+ - In a secularising world, art has replaced religion as a touchstone of our reverence and devotion.
+ - It seems that most of us could benefit from a brush with a near-fatal disaster to help us recognise the important things that we are too defeated or embittered to recognise from day to day.
+ - A virtuous, ordinary life, striving for wisdom but never far from folly, is achievement enough.
+ - Pegging your contentment to the overall state of the world rather than of your own life: the basis of morality, or a sort of madness?
+ - The very act of drawing an object, however badly, swiftly takes the drawer from a woolly sense of what the object looks like to a precise awareness of its component parts and particularities.
+ - There is real danger of a disconnect between what’s on your business card and who you are deep inside, and it’s not a disconnect that the world is ready to be patient with.
+ - You need a long hard day’s work to reveal the logic of the craving for very bad tv and alcohol.
+ - Out of the millions of people we live among, most of whom we habitually ignore and are ignored by in turn, there are always a few that hold hostage our capacity for happiness, whom we could recognize by their smell alone and whom we would rather die than be without.
+ - Endeavoring to purchase something we think beautiful may in fact be the most unimaginative way of dealing with the longing it excites in us, just as trying to sleep with someone may be the bluntest response to a feeling of love.
+ - Must being in love always mean being in pain?
+ - A danger of travel is that we see things at the wrong time, before we have had a chance to build up the necessary receptivity and when new information is therefore as useless and fugitive as necklace beads without a connecting chain.
+ - Life gives us no such handy markers – a storm comes, and far from this being a harbinger of death and collapse, during its course a person discovers love and truth, beauty and happiness, the rain lashing at the windows all the while.
+ - The challenge for a human now is to be more interesting to another than his or her smartphone.
+ - Anxiety is the handmaiden of contemporary ambition.
+ - He did not mean to depress us, rather to free us from expectations which inspire bitterness. It is consoling, when love has let us down, to hear that happiness was never part of the plan.
+ - By travelling across frontiers, on horseback and in the imagination, Montaigne invited us to to exchange local prejudices and the self division they induced for less constraining identities as citizens of the world.
+ - We are sad at home and blame the weather and the ugliness of the buildings, but on the tropical island we learn that the state of the skies and the appearance of our dwellings can never on their own underwrite our joy nor condemn us to misery.
+ - Maturity: knowing where you’re crazy, trying to warn others of the fact and striving to keep yourself under control.
+ - We keep a special place in our hearts for people who refuse to be impressed by us.
+ - Social media has lots of benefits, but compared to Christianity, it tends to group people by interests. Religion puts you with people who have nothing in common except that you’re human.
+ - How generous was it to offer gifts to people one knew would never accept them?
+ - Artistic accounts involve severe abbreviations of what reality will force upon us.
+ - Taking photographs can assuage the itch for possession sparked by the beauty of a place; our anxiety over losing a precious scene can decline with every click of the shutter.
+ - Not being understood may be taken as a sign that there is much in one to understand.
+ - It was no longer her absence that wounded me, but my growing indifference to it. Forgetting, however calming, was also a reminder of infidelity to what I had at one time held so dear.
+ - The study of maps and the perusal of travel books aroused in me a secret fascination that was at times almost irresistible.
+ - Those who divorce aren’t necessarily the most unhappy, just those neatly able to believe their misery is caused by one other person.
+ - It is no coincidence that the Western attraction to sublime landscapes developed at precisely the moment when traditional beliefs in God began to wane.
+ - Choosing a spouse and a choosing career: the two great decisions for which society refuses to set up institutional guidance.
+ - As victims of hurt, we frequently don’t bring up what ails us, because so many wounds look absurd in the light of day.
+ - I know a lot about writing, but I don’t know much about how other industries work. I’ve tried to use my naivety to my advantage.
+ - It is perhaps sad books that best console us when we are sad, and to lonely service stations that we should drive when there is no one for us to hold or love.
+ - The only way to be happy is to realise how much depends on how you look at things.
+ - Forcing people to eat together is an effective way to promote tolerance.
+ - Intuition is unconscious accumulated experience informing judgement in real time.
+ - There’s a whole category of people who miss out by not allowing themselves to be weird enough.
+ - We often lose our tempers not with those who are actually to blame; just with those who love us enough to forgive us our foul moods.
+ - So many complaints boil down to the belly ache of the fragile, mortal, ignored ego in a vast and indifferent universe.
+ - As we write, so we build: to keep a record of what matters to us.
+ - Let’s say you went to Harvard or Oxford or Cambridge, and you said, ‘I’ve come here because I’m in search of morality, guidance and consolation; I want to know how to live,’ – they would show you the way to the insane asylum.
+ - The blunt large questions become connected to smaller, apparently esoteric ones.
+ - Being funny should be an incidental byproduct of trying to get to something truthful, not a destination in itself.
+ - Dreams reveal we never quite get ‘over’ anything: it’s all still in there somewhere.
+ - Status anxiety definitely exists at a political level. Many Iraqis were annoyed with the US essentially for reasons of status: for not showing them respect, for humiliating them.
+ - The arrogance that says analysing the relationship between reasons and causes is more important than writing a philosophy of shyness or sadness or friendship drives me nuts. I can’t accept that.
+ - Getting to the top has an unfortunate tendency to persuade people that the system is OK after all.
+ - Writing a book has about it some of the anxiety of telling a joke and having to wait several years to know whether or not it was funny.
+ - It is in books, poems, paintings which often give us the confidence to take seriously feelings in ourselves that we might otherwise never have thought to acknowledge.
+ - We may not agree with what religions are trying to teach us, but we can admire the institutional way in which they’re doing it.
+ - Philosophy had supplied Socrates with convictions in which he had been able to have rational, as opposed to hysterical, confidence when faced with disapproval.
+ - Responsible for wrapping the iron fist of authority in its velvet glove is Jane Axtell, head of the accountancy firm’s Human Resources department.
+ - The longing for destiny is nowhere stronger than in our romantic life.
+ - A successful work will draw out the features capable of exciting a sense of beauty and interest in the spectator.
+ - It should not be Illiers-Combray that we visit: a genuine homage to Proust would be to look at our world through his eyes, not look at his world through our eyes.
+ - Rather than getting more spoilt with age, as difficulties pile up, epiphanies of gratitude abound.
+ - Though debts are condemned in the financial world, the world of friendship and love may perversely depend on well-managed debts.
+ - One of love’s greatest drawbacks is that, for a while at least, it is in danger of making us happy.
+ - Every realistic picture represents a choice as to which features of reality should be given prominence; no painting ever captures the whole...
+ - Curiosity takes ignorance seriously – and is confident enough to admit when it’s in the dark. It is aware of not knowing. And then it sets out to do something about it.
+ - Although I don’t believe in God, Bach’s music shows me what a love of God must feel like.
+ - Our responses to the world are crucially moulded by the company we keep, for we temper our curiosity to fit in with the expectations of others.
+ - There is always the option of being emotionally lazy, that is, of quoting.
+ - The price we have paid for expecting to be so much more than our ancestors is a perpetual anxiety that we are far from being all we might be.
+ - I’m also interested in the modern suggestion that you can have a combination of love and sex in a marriage – which no previous society has ever believed.
+ - Happiness is impossible for longer than 15 minutes. We are the descendants of creatures who, above all else, worried.
+ - In Britain, because I live here, I can also run into problems of envy and competition. But all this is just in a day’s work for a writer. You can’t put stuff out there without someone calling you a complete fool. Oh, well.
+ - Happiness may be difficult to obtain. The obstacles are not primarily financial.
+ - The best cure for one’s bad tendencies is to see them in action in another person.
+ - Bitterness: anger that forgot where it came from.
+ - It’s clear to me that there is no good reason for many philosophy books to sound as complicated as they do.
+ - The secular world is full of holes. We have secularized badly.
+ - We may seek a fortune for no greater reason than to secure the respect and attention of people who would otherwise look straight through us.
+ - The company of certain people may excite our generosity and sensitivity, while that of others awakens our competitiveness and envy.
+ - We wanted to test each other’s capacity for survival: only if we had tried in vain to destroy one another would we know we were safe.
+ - There is a devilishly direct relationship between the significance of an idea and how nervous we become at the prospect of having to think about it.
+ - If it is true that love is the pursuit in another of qualities we lack in ourselves, then in our love of someone from another culture, one ambition may be to weld ourselves more closely to values missing from our own culture.
+ - There are selections so acute that they come to define a place, with the result that we can no longer travel through that landscape without being reminded of what a great artist noticed there.
+ - The degree of sympathy we feel regarding another’s fiasco is directly proportional to how easy or difficult it is for us to imagine ourselves, under like circumstances, making a similar mistake.
+ - We envy only those whom we feel ourselves to be like; we envy only members of our reference group. There are few successes more unendurable than those of our close friends.
+ - There may be significant things to learn about people by looking at what annoys them most.
+ - Reputation matters so much only because people so seldom think for themselves.
+ - It is perhaps sad books that best console us when we are sad...
+ - The lesson? To respond to the unexpected and hurtful behavior of others with something more than a wipe of the glasses, to see it as a chance to expand our understanding.
+ - I assemble my ideas in pieces on a computer file, then gradually find a place for them on a piece of scaffolding I erect.
+ - The more closely we analyze what we consider ‘sexy,’ the more clearly we will understand that eroticism is the feeling of excitement we experience at finding another human being who shares our values and our sense of the meaning of existence.
+ - Arguments are like eels: however logical, they may slip from the minds weak grasp unless fixed there by imagery and style.
+ - On paper, being good sounds great but a lot depends on the atmosphere of the workplace or community we live in. We tend to become good or bad depending on the cues sent out within a particular space.
+ - One rarely falls in love without being as much attracted to what is interestingly wrong with someone as what is objectively healthy.
+ - Only as we mature does affection begin to depend on achievement.
+ - The real issue is not whether baking biscuits is meaningful, but the extent to which the activity can seem to be so after it has been continuously stretched and subdivided across five thousand lives.
+ - The finest proof of our loyalty toward one another was our monstrous disloyalties towards everyone else.
+ - A world where a majority had imbibed the lessons implicit within tragic art would be one in which the consequences of our failures would necessarily cease to weigh upon us so heavily.
+ - You have to be quite heavily invested in someone to do them the honour of telling them you’re annoyed with them.
+ - Our greatest furies spring from events which violate our sense of the ground of our existence.
+ - There are people who say, ‘Oh this guy is quite thick.’ I think the reason is that, increasingly, I don’t mind being simple in terms of literary expression. Others say, ‘No, no, no. He went to Cambridge. He got a good degree. He must be Einstein.’
+ - Our sense of what is valuable will hence be radically distorted if we must perpetually condemn as tedious everything we lack, simply because we lack it.
+ - Pick up any newspaper or magazine, open the TV, and you’ll be bombarded with suggestions of how to have a successful life. Some of these suggestions are deeply unhelpful to our own projects and priorities – and we should take care.
+ - Without sex, we would be dangerously invulnerable. We might believe we were not ridiculous. We wouldn’t know rejection and humiliation so intimately.
+ - We are continuously challenged to discover new works of culture – and, in the process, we don’t allow any one of them to assume a weight in our minds.
+ - The activities of drawing, eating and drinking, all involve assimilations by the self of desirable elements from the world, a transfer of goodness from without to within.
+ - I think people want to get married to end their emotional uncertainty. In a way, they want to end powerful feelings, or certainly the negative ones.
+ - One of the better guarantors of ending up in a good relationship: an advanced capacity to be alone.
+ - The more dignity is widely and freely available in a society, the less people want to be famous.
+ - Every adult life could be said to be defined by two great love stories: the story of our quest for sexual love and the story of our quest for love from the world.
+ - Most of us still caged within careers chosen for us by our not entirely worldly 18-22 year old selves.
+ - One kind of good book should leave you asking: how did the author know that about me?
+ - It seems the only way to write a half decent book is to worry oneself sick on an hourly basis that one is producing a complete disaster.
+ - It would be foolish to describe the logistics hub as merely ugly, for it has the horrifying, soulless, immaculate beauty characteristic of many of the workplaces of the modern world.
+ - Distress at losing an object can be as much a frustration at the intellectual mystery of the disappearance as about the loss itself.
+ - If we are inclined to forget how much there is in the world besides that which we anticipate, then works of art are perhaps a little to blame, for in them we find at work the same process of simplification or selection as in the imagination.
+ - The universe is large and we are tiny, without the need for further religious superstructure. One can have so-called spiritual moments without belief in the spirit.
+ - A great writer picks up on those things that matter. It’s almost like their radar is attuned to the most significant moments.
+ - People who go on to be writers are those who can forgive themselves the horror of the first draft.
+ - Writing isn’t a career choice. It’s self-medication that over time precipitates the madness it was meant to ward off.
+ - Only by declaring a book completely finished can one start to see how much remains to be done on it.
+ - The greatest works of art speak to us without knowing us.
+ - Architects themselves tend to shy away from the word, preferring instead to talk about the manipulation of space.
+ - It would scarcely be acceptable, for example, to ask in the course of an ordinary conversation what our society holds to be the purpose of work.
+ - I feel that the great challenge of our time is the communication of ideas.
+ - According to Montaigne, it was the oppressive notion that we had complete mental control over our bodies, and the horror of departing from this portrait of normality, that had left the man unable to perform sexually.
+ - Why, then, if expensive things cannot bring us remarkable joy, are we so powerfully drawn to them?
+ - Much of the really serious trouble in the world gets going with a sense of humiliation.
+ - The genius of religions is that they structure the inner life.
+ - If our lives are dominated by a search for happiness, then perhaps few activities reveal as much about the dynamics of this quest – in all its ardour and paradoxes – than our travels.
+ - Politics is so difficult, it’s generally only people who aren’t quite up to the task who feel convinced they are.
+ - I went to church and couldn’t swallow it. The music was nice but I don’t belong there.
+ - Because the rhythm of conversation makes no allowance for dead periods, because the presence of others calls for continuous responses, we are left to regret the inanity of what we say, and the missed opportunity of what we do not.
+ - A simple problem of arithmetic: there are far more ambitions than there are grand destinies available.
+ - Envy: a confused, tangled guide to one’s own ambitions.
+ - The mind does most of its best thinking when we aren’t there. The answers are there in the morning.
+ - It is striking how much more seriously we are likely to be taken after we have been dead a few centuries.
+ - It is by finding out what something is not that one comes closest to understanding what it is.
+ - Bad art might be defined as a series of bad choices about what to show and what to leave out.
+ - When Proust urges us to evaluate the world properly, he repeatedly reminds us of the value of modest scenes.
+ - Newspapers are being read all around. The point is not, of course, to glean new information, but rather to coax the mind out of its sleep-induced introspective temper.
+ - I am conscious of trying to stretch the boundaries of non-fiction writing. It’s always surprised me how little attention many non-fiction writers pay to the formal aspects of their work.
+ - My writing always came out of a very personal place, out of an attempt to stay sane.
+ - Everyone returns us to a different sense of ourselves, for we become a little of who they think we are.
+ - We accept the need to train extensively to fly a plane; but think instinct should be enough for marrying and raising kids.
+ - Our bodies hold our minds hostage to their whims and rhythms.
+ - It wasn’t only fanatics and drunkards who began conversations with strangers in public.
+ - We read the weird tales in newspapers to crowd out the even weirder stuff inside us.
+ - An argument in a couple: 2 people attempting to introduce each other to important truths – by panicked shouting.
+ - The dream of the news is that it makes us care about other people and situations. But we cannot identify with people to whom we haven’t been introduced. Humans will only respond to art, to people who are skilled in making you care.
+ - Though it may feel otherwise, enjoying life is no more dangerous than apprehending it with continuous anxiety and gloom.
+ - We should not be frightened by appearances.
+ - Most anger stems from feelings of weakness, sadness and fear: hard to remember when one is at the receiving end of its defiant roar.
+ - Despite its maddeningly vague, inarticulate form, anxiety is almost always trying to tell you something useful and apposite.
+ - Never, ever become a writer. It’s a nightmare.
+ - The only possible way to begin a book is to tell oneself that its eventual failure is guaranteed – but survivable.
+ - Once I began to consider everything as being of potential interest, objects released latent layers of value.
+ - What am I supposed to do here? What am I supposed to think?
+ - As an atheist, I think there are lots of things religions get up to which are of value to non-believers – and one of those things is trying to be a bit better than we normally manage to be.
+ - True respectability stems not from the will of the majority but from proper reasoning.
+ - When I see someone like Richard Dawkins, I see my father. I grew up with that. I’m basically the child of Richard Dawkins.
+ - Many moments in religion seem attractive to me even though I can’t believe in any of it.
+ - Unnatural to expect that learning to be happy should be any easier than, say, learning to play the violin or require any less practice.
+
+244 quotes

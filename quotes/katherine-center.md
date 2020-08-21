@@ -1,0 +1,37 @@
+ - We are at our finest when we take care of each other.
+ - You don’t have to be perfect to be awesome.
+ - People are always beautiful when you love them.
+ - Look for beauty in everything.
+ - What matters most is how you respond to your heartbreaks and your disappointments and your fears. What matters most is who you become in response to them.
+ - The human condition is imperfection. And that’s how it’s supposed to be.
+ - The eyes see everything through the heart.
+ - Don’t let anyone convince you that love doesn’t matter.
+ - There is no tenderness without bravery.
+ - Writing a novel is a lot like reading one.
+ - I believe women are too hard on themselves. I believe that when you love someone, she becomes beautiful to you. I believe the eyes see everything through the heart. Nothing in the world feels as good as resting them on someone you love.
+ - Sometimes there is no way to hold your life together. Sometimes things just have to fall apart.
+ - Be brave with your life, so others will be brave with theirs.
+ - Something good was happening. My life was rising from the ashes, and the sight of it left me feeling something like hopeful.
+ - You are writing the story of your only life every single minute of every day.
+ - My goal is to try to be as happy as I can – going through every day just as it is.
+ - We are only as great as our struggles. We only become who we are in the face of them.
+ - Nothing that doesn’t push you past your limits can change your life. It’s true of work, it’s true of parenting, and it’s true – a hundred times over – of love.
+ - And so my hope for you, good boy, as you grow taller every day, is that you will learn to take good care of yourself, and you will learn to take good care of others-and, someday, you’ll see how those two things are exactly the same.
+ - If you feel lucky, then you are.
+ - And despite everything I know now, I still believe, as I did when I was little, that there is an entire universe of things that my mother knows that I don’t. I still believe that nothing truly bad can ever happen if my mother is around. I know it’s not true. But still. It is true.
+ - There is no question that the objects that surround us impact our experience of the world.
+ - We build our lives in moments, and even the ones we can’t remember become the story of who we are.
+ - It’s vital to learn how to make the best of things.
+ - It’s more important to be interesting, to be vivid, and to be adventurous than to sit pretty for pictures.
+ - Success is doing the right thing for who you are.
+ - We all carry our mothers inside us.
+ - Our lives disappear, even as we live them.
+ - Maybe the past is supposed to fade-and that’s actually a kindness of human memory.
+ - It’s so easy to think that your strengths don’t matter.
+ - Beauty comes from tenderness.
+ - In fiction, you can be as true as you want. Real life is a different story.
+ - The best things about womanhood might possibly even be the conversations. The chatting. The gabbing. The whispering. The hands-on-hips eye-rolling. The yukking-it up.
+ - I like to write about people who are real and likeable. I like to write about people who tell their stories in that close and intimate voice we use with best friends. I love the closeness and honesty and vulnerability that come from characters who can talk that way.
+ - It’s always better to have what you have than to get what you wanted.
+
+35 quotes

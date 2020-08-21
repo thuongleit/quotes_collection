@@ -1,0 +1,64 @@
+ - The pace of change and the threat of disruption creates tremendous opportunities...
+ - Keep your eye on the prize and focus on your mission. Remember what you’re trying to do, what your value is, why it’s important, and at the same time, change course and direction. If the market’s telling you different things how are you going to adjust to that?
+ - At the end of the day, the team you build is the company you build.
+ - In the end, a vision without the ability to execute it is probably a hallucination.
+ - You shouldn’t focus on why you can’t do something, which is what most people do. You should focus on why perhaps you can, and be one of the exceptions.
+ - I was born and raised in Honolulu, Hawaii.
+ - Having a great idea is important. But having a great team is also important.
+ - All great ideas start as weird ideas. What now seems obvious, early on, is not obvious to anybody.
+ - You have to get along with people, but you also have to recognize that the strength of a team is different people with different perspectives and different personalities.
+ - I do think that a general liberal arts education is very important, particularly in an uncertain changing world.
+ - If you really got the right people, and you’ve got them working together as a team, whether it’s in business, whether it’s in science, whether it’s in politics, you can make a big difference.
+ - If you believe that some day it’s going to happen, some day it probably will happen. You just have to make sure you’re there when it’s happening, and ideally you’re at the front of the parade, and the principle beneficiary of when it happens.
+ - My father still is a lawyer, and my mom was a teacher and then later a career counselor.
+ - It’s not about how to get started; it’s about how to get noticed.
+ - Steve Jobs always believed that you didn’t want to do focus groups or research and ask people what they wanted. You wanted to create products that they didn’t know they wanted yet and they would fall in love with. And I think that was part of the magic of his design philosophy.
+ - I enjoyed high school and college, and I think I learned a lot, but that was not really my focus. My focus was on trying to figure out what businesses to start.
+ - In the entrepreneurial world, when you launch a company, you have a particular idea, a particular product, a particular service, almost always you pivot, you shift. The market reacts to your initial idea. You make some adjustments. It’s only after making a few adjustments that you see the success.
+ - Nobody should have to be a systems integrator to make a convergence network work in their home.
+ - If you don’t have both of them working together in a complementary, cohesive way, you’re not going to be successful.
+ - The idea that maybe you don’t have to own a car if you only need one occasionally may catch on, just like time-sharing caught on in real estate.
+ - I had an older brother who passed away recently, an older sister and a younger brother.
+ - It’s stunning to me what kind of an impact even one person can have.
+ - At AOL, we thought the killer app was people.
+ - There are no road signs to help navigate. And, in fact, no one has yet determined which side of the road we’re supposed to be on.
+ - So my degree was in political science, which I think was – the closest I could come to marketing is politics.
+ - What I have figured out is that I can predict the future. I just can’t predict when.
+ - The idea of an entrepreneur is really thinking out of the box and taking risks and stepping up to major challenges.
+ - It’s stunning to me what kind of an impact even one person can have if they have the right passion, perspective and are able to align the interest of a great team.
+ - My father and his brothers were all lawyers, so I think that the expectation was probably for me to grow up to be an attorney, but it never really fascinated me that much. I was more interested in building things.
+ - You’re not just trying to do something marginally, incrementally better. You’re doing something that is a fundamental paradigm shift, that will have exponential impact. That means it’s harder to do, but ultimately, if it’s successful, the impact it has is far greater.
+ - The Internet will make every enterprise a publisher.
+ - The attackers are the people with bold, innovative ideas, who are trying to disrupt the status quo, and usher in a better way. We need to think out of the box, and be curious, and be willing to take risks.
+ - If you’re doing something new you’ve got to have a vision. You’ve got to have a perspective. You’ve got to have some north star you’re aiming for, and you just believe somehow you’ll get there, which kind of gets to the passion point.
+ - I want to find people who have had to work hard and who have learned from their failures. Perseverance is no guarantee you’ll succeed, but without it, it’s almost guaranteed you won’t.
+ - There are lots of cycles to markets – boom and bust – and also in perceptions of people. The conventional wisdom of Steve Case as genius or fool was highly cyclical. The truth was always in the middle.
+ - From a relatively early age I got interested in business.
+ - Frankly, I like new things. I feel like I made a contribution to building a more interactive world. And I’m proud of that.
+ - I was not an outstanding student. I did a reasonable amount of work. I got generally good – pretty good grades, but I was not that passionate about getting straight A’s.
+ - I was a better builder than a manager. I’d rather focus on maximizing the opportunities swinging for the fences than minimizing the risk with bunts and singles.
+ - Nowadays people seem to switch schools, either because they have to, and certain schools only serve certain grades, or because they move to a different place or have some particular interest, but I was in the same school for 13 years.
+ - And so the idea was, well maybe you can take an Atari video game machine, where people plug in a game cartridge, and plug in a modem, and tie that into a telephone, and essentially turn that game in the machine into an interactive terminal.
+ - So we believed that strategic alliances and partnerships were critical, and we did that for five years.
+ - It’s silly for me to raise expectations too much, but I think I’m right on the basic trend, which is shifting power to consumers.
+ - When I first got started in the late ’70s, early ’80s, and first was thinking about the interactive world, I believed so fervently that it was the next big thing, I thought it would happen quickly.
+ - For better or worse, that is true with any new innovation, certainly any new technological innovation. There’s many good things that come out of it, but also some bad things. All you can do is try to maximize the good stuff and minimize the bad stuff.
+ - I think the support of the other team at AOL and everybody’s really shared passion and belief about this and – saying that some day everybody was going to be on line.
+ - Five or ten years ago, when it was clear the Internet was becoming a mainstream phenomenon, it was equally clear that a lot of people were being left out and could be left behind.
+ - But the idea that some day people would want to be able to interact and get stock quotes and talk with other people or all these different things, I just believed that was going to happen.
+ - And I’d say one of the great lessons I’ve learned over the past couple of decades, from a management perspective, is that really when you come down to it, it really is all about people and all about leadership.
+ - I think it took us nine years to get one million subscribers to AOL, and then in the next nine years we went from one million to 35 million.
+ - Because I do think – not just in building AOL – but just the world in which we live is a very confusing, rapidly changing world where technology has accelerated.
+ - You really need to believe that you are on to something important.
+ - And what we did with this new company in 1985 is we did start focusing on PCs instead of video game machines, because we learned the hard lesson about bringing a product to market in a consumer world where it’s very expensive to build a brand and get distribution and so forth.
+ - The only way to continue to have a robust economy is to out-innovate other nations.
+ - I continue to have a special pride and passion for AOL, and I strongly believe that AOL – once the leading Internet company in the world – can return to its past greatness.
+ - I’m probably never going to be satisfied with anything we do. I think there’s always the possibility of doing better. And I’d say we’re doing better than we were a year ago, in terms of delivery and quality of service, but nowhere near what we should be doing .
+ - Think about this: It was illegal for most people to connect to the internet before 1992.
+ - One of the biggest challenges we had in the first decade was not that many people had personal computers. There weren’t that many people to sell to, and it was hard to identify them.
+ - Most of the people who had PCs did not have modems and could not use those PCs as communicating devices. They really were using them for spreadsheets or word processing or storing recipes or playing games or what have you.
+ - I do think actually in this case the government does get credit for funding some of the basic research.
+ - So you have to force yourself out of a comfort zone and really try to figure out what are the key ingredients, the key skill sets, the key perspectives that are necessary, and then figure out a way to attract the very best people to fill those particular roles.
+ - One of the problems with computers, particularly for the older people, is they were befuddled by them, and the computers have gotten better. They have gotten easier to use. They have gotten less expensive. The software interfaces have made things a lot more accessible.
+
+62 quotes

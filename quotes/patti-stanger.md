@@ -1,0 +1,40 @@
+ - In the end, it’s all about taking your time and enjoying the journey without worrying too much about the destination.
+ - I was a D student in high school and on the dean’s list in college.
+ - If you’re giving love and not receiving it, you’re not in the right relationship. If you’re receiving it and not giving it than you are taking advantage of the other person.
+ - I probably should be a little more cautious with how I speak, and I think my delivery needs to be a little softer.
+ - I had to find a diet that would kick me back into dating shape, because I know that I can’t date at size 8. I have to date at size 2. And it’s just a fact of nature. Go get your injections and your chemical peels. You gotta look good to attract a man.
+ - To get rid of depression, I swim with dolphins.
+ - Most people can’t find love because they’re picky, they overanalyze and they find things wrong in people. We call them flaw finders.
+ - A man can be drawn across the room with the simplicity of a smile. Thats why your pearly whites should always be straight and shiny. I think most of my clients are drawn to a fun, flirty nature in a woman. The problem is, most women do not often feel fun and flirty.
+ - I’d like to adopt an older child, maybe 5 years old.
+ - Coffee is cheap, drinks are an audition, lunch is an interview, but dinner means business; the business of romance.
+ - I used to practice Wicca.
+ - Successful men don’t date up. They are intimidated by wealthy women unless they are blue bloods. Successful men want to always take care of their women, and that means financially.
+ - Taylor Swift dates guys so she can write a breakup song about them. I don’t think she’s dating for love – I think she’s dating for creativity. So let’s get her off the market and put her in dating detox. If she really wants love, she has to stop writing music about them.
+ - I’m a dancer so anything related to dance I love to do. I also tried Zumba last week. That thing is tough! 15 minutes in I was going for a water break. It wasn’t easy!
+ - Up until age 40, most men are just not as mature as women. So, it makes sense that a lot of women date up in age a bit.
+ - If you’re a successful woman, chances are that you spend a ton of time working. You’re probably on your email a lot, taking phone calls and going on regular business trips that don’t involve your man. He can start to feel left out of a very important and very time-consuming part of your life.
+ - Think back to yourself at age 18. I know I was mighty different than the Patti I am today. As we grow up, we grow out of our haircuts, our apartments and – often times – our romantic decisions.
+ - I’m very quiet and shy in my personal life, as hard as that is to believe.
+ - I had a breast reduction.
+ - We go on dates thinking that person is our future husband or wife, without getting to know them, as we live in a fantasy and an illusion of romance.
+ - I was single for a really long time, then I realized I had abandonment issues. Then I found love online.
+ - Valentine’s Day is the hardest day of the year for a woman to get out, but everybody who is anybody and single is out that night.
+ - My favorite splurge would be gluten-free pizza. Or I’m a total truffle addict so truffle mac and cheese.
+ - If you have been divorced once – male or female, but especially for females – and you’re over 40 you’re actually a commodity. It means you were able to commit once, and you’ll do it again.
+ - On both ‘The Bachelor’ and ‘The Bachelorette,’ it seems like proposing marriage is equivalent to saying, ‘Let’s date.’ Everyone knows those aren’t the same things.
+ - I was a VP of marketing, I was regional sales manager in fashion, and marketing director in communications and product development. I was always a corporate Fortune 500 girl.
+ - It’s not easy to date when you’re hefty. Besides I like feeling thin because it makes me feel amorous.
+ - We have all loved a guy we know has issues. Despite popular opinions, until we give it a final try, the relationship will always be in the ‘what if’ stage.
+ - Women are smart in business and dumb in love. They won’t date outside their zip code, let alone outside the city. They are city snobs.
+ - We’ve heard some theories, but there is a lot of mystery surrounding my adoption.
+ - If you’re going to get engaged make sure you’ve talked to your partner about life together in the years to come.
+ - I’d like to date another millionaire. I’ve never done that.
+ - I’m a planner, and most networks don’t plan. Bravo doesn’t plan. Bravo is lucky in a lot of ways – they’ve got a lot of great talent, but at the same time, they don’t nurture it. They lost ‘Project Runway.’
+ - I’m on the Sensa diet. It’s a little magic powder based on Dr. Hirsh’s clinical trials and studies and it basically signals the brain that you’re full through smellology.
+ - I’m recognizable in certain circles, like girls know me, couples know me. But not all straight men know me.
+ - A lot of Hollywood couples get married young and wind up growing out of their relationship.
+ - I have a gift. I just know what I’m doing.
+ - What I do know is that traditional gender roles are very real and flipping the norm is difficult for even the strongest, funniest, smartest men.
+
+38 quotes

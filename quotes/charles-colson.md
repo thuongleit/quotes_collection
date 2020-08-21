@@ -1,0 +1,72 @@
+ - The true mark of a Christian leader is trying to build up other people. Raise up other leaders!
+ - Removing religious symbols from public places is not neutrality. On the contrary, it sends a highly negative message – that religion is something shameful, embarrassing, or at best strictly private.
+ - The Bible-banned, burned, beloved-is more widely read and more frequently attacked than any other book in history.
+ - Some say society must change in order to change people. No, people must be changed in order to change society.
+ - The church is the only institution supernaturally endowed by God. It is the one institution of which Jesus promised that the gates of hell will not prevail against it.
+ - The Bible’s historical accuracy is a reminder that while “the heavens declare the glory of God,” there’s also plenty of evidence among the rubble and ruins.
+ - Our society’s obsession with tolerance leads to intolerance. Simply being a Christian today is an offense to our culture.
+ - We humans, you see, have an infinite capacity for self-rationalization.
+ - Remain at your post and do your duty – for the glory of God and His kingdom.
+ - Redeeming culture is the never ending mission of the church.
+ - You are called not to be successful or to meet any of the other counterfeit standards of this world, but to be faithful and to be expended in the cause of serving the risen and returning Christ.
+ - Frontline love. It is our one hope for breaking down barriers and for restoring the sense of community, of caring for one another, that our decadent, impersonalized culture has sucked out of us.
+ - Today’s marginalization of Christianity is a direct result of our failure to understand our faith as a total worldview.
+ - Wilberforce and the band of abolitionists knew that a private faith that did not act in the face of oppression was no faith at all.
+ - We must be the same person in private and in public. Only the Christian worldview gives us the basis for this kind of integrity.
+ - Culture is religion incarnate.
+ - Knowing that we are fulfilling God’s purpose is the only thing that gives rest to the restless human heart.
+ - What we do flows from who we are.
+ - God doesn’t want our success; He wants us. He doesn’t demand our achievements; He demands our obedience.
+ - A government cannot be truly just without affirming the intrinsic value of human life.
+ - To turn away from the great questions and dilemmas of life is a tragedy, for the quest for meaning and truth makes life worth living.
+ - The church’s job is to equip the saints for works of service in the world.
+ - Life is a mess. And theology must be lived out in the midst of that mess.
+ - When God wanted to defeat sin, His ultimate weapon was the sacrifice of His own Son. On Christmas Day two thousand years ago, the birth of a tiny baby in an obscure village in the Middle East was God’s supreme triumph of good over evil.
+ - Nearly every grave moral failure begins with a small sin.
+ - God is truth and is to be worshiped, not because it’s convenient, makes us feel good, or is therapeutic.
+ - Power is like saltwater; the more you drink, the thirstier you get.
+ - If the polls are right, our Judeo-Christian heritage is no longer the foundation of our values. We have become a post-Christian society.
+ - The problem is that relativism provides no sure foundation for a safe and orderly society.
+ - The gospel of Jesus Christ must be the bad news of the conviction of sin before it can be the Good News of redemption. The truth is revealed in God’s Holy Word; life can be lived only in absolute and disciplined submission to its authority.
+ - The Bible’s power rests upon the fact that it is the reliable, errorless, and infallible Word of God.
+ - True tolerance is not a total lack of judgment. It’s knowing what should be tolerated, and refusing to tolerate that which shouldn’t.
+ - If our culture is to be transformed, it will happen from the bottom up – from ordinary believers practicing apologetics over the backyard fence or around the barbecue grill.
+ - Great fiction can often present moral messages with greater power and clarity than instructional writing – since literature, after all, penetrates not just the intellect, but the imagination.
+ - Many people are trying to remove religion from public life. Under the banner of pluralism, cultural and political leaders are seeking to push all talk about God out of the public arena.
+ - Lenin, Stalin, and Rakosi recognized that a renewed and purified Christianity was the only force that could move the masses as powerfully as the Marxist ideal could. They attacked it as the enemy that it was and is.
+ - Moral crusaders with zeal but no ethical understanding are likely to give us solutions that are worse than the problems.
+ - We should always pray with as much earnestness as those who expect everything from God; we should always act with as much energy as those who expect everything from themselves.
+ - Our culture has forgotten what the Founders knew: The American experiment is a moral, not just a political, exercise.
+ - Christians are called to redeem entire cultures, not just individuals.
+ - The first 20 stories written about a public figure set the tone for the next 2,000 and it is almost impossible to reverse it.
+ - Heroism is an extraordinary feat of the flesh; holiness is an ordinary act of the spirit. One may bring personal glory; the other always gives God glory.
+ - Let’s acknowledge that America’s increasing decadence is giving aid and comfort to the enemy. When we tolerate trash on television, permit pornography to invade our homes via the Internet, and allow babies to be killed at the point of birth, we are inflaming radical Islam.
+ - The Bible has, amazingly- no doubt with supernatural grace-survived its critics. The harder tyrants try to eliminate it and skeptics dismiss it, the better read it becomes.
+ - Who speaks for God? He does quite nicely for Himself. Through His holy and infallible Word – and the quiet obedience of His servants.
+ - I was deepening my understanding of what we call the cultural commission, the command to take dominion and bring righteousness to our culture.
+ - I’d walk over my own grandmother to re-elect Richard Nixon.
+ - Few things are so deadly as a misguided sense of compassion.
+ - Judeo-Christian revelation is not the negative influence secularists proclaim it to be. Rather, it is the taproot of our civilization.
+ - You cannot live your life other than walking in the truth. Your means are as important as your ends.
+ - Tolerance once meant that we could use our reason to discern good and evil in open debate. Today tolerance has been used to call good evil and evil good.
+ - I do not believe one can experience conversion or the fullness of the Christian life apart from the church.
+ - God is dead not because He doesn’t exist, but because we live, play, procreate, govern, and die as though He doesn’t.
+ - In our day, you can mock religion in public and even get funds for doing it. But you can’t show respect for religion in public – or you risk being hauled into court.
+ - Some labeled Jerry Falwell an American version of the Ayatollah Khomeni. People for the American Way, a group organized to counter the Moral Majority, launched a slick media campaign attaching the Nazi slur to the religious right.
+ - When it comes to the culture, there’s no such thing as peaceful coexistence. If we’re not defending truth, fighting for Christian values in all of life, the truth will be sacrificed on the altar of mainstream secularism.
+ - Christians should never have a political party. It is a huge mistake to become married to an ideology, because the greatest enemy of the gospel is ideology. Ideology is a man-made format of how the world ought to work, and Christians instead believed in the revealing truth Scripture.
+ - Seventy-six percent of the American people say we have a spiritual problem in our country. That’s great, because now they understand the root of the problem is not that we haven’t passed enough laws; rather, the root of the problem is in terms of our social value system.
+ - The dynamism and freedom that characterizes the West is the product of Christianity’s reforming itself and moving forward culturally. The ascendancy of the West is the story of the difference that Christianity makes, and it’s a story we can’t let our culture forget.
+ - It’s part of the buzz of the city among Christians. It wouldn’t surprise me that it got to George Bush. He reads, he picks stuff up, he talks to people. And he’s pretty serious about his own Christian beliefs.
+ - What is true has never been a question to be decided by polls or popular opinion. Truth isn’t ‘democratic’ – it’s something that God has written into the very fabric of nature.
+ - God uses prisons to train people for future roles of leadership or martyrdom.
+ - Today’s widespread relegation of religion to merely something people do only in the privacy of their homes or churches would have been unimaginable to the founders of the republic – even those who personally repudiated orthodox Christian faith.
+ - Hostility to religion is having an effect. In 1963, the number of Americans who said that they believed the Bible is literally true was 65%. Today, the number has dropped to 32%.
+ - Christians need to take the lead in educating people that children are gifts, as my autistic grandson most surely is. By going down the path we’re currently on, we might one day get rid of genetic diseases, but only at the cost of our own humanity.
+ - That Solidarity was a religious movement no one, least of all the Soviets, can deny. In November 1981, Pravda denounced ‘religious fanaticism’ as a grave challenge to socialism; failure to contain it, Pravda said, was at the root of the problems in Poland.
+ - I can work for the Lord in or out of prison.
+ - One of the most wonderful things about being a Christian is that I don’t ever get up in the morning and wonder if what I do matters. I live every day to the fullest because I can live it through Christ and I know no matter what I do today, I’m going to do something to advance the Kingdom of God.
+ - The modernists started with the assumption that science is the only source of sure knowledge, that nature is all there is, and thus that morality is merely a human invention that can be changed to meet changing circumstances in an evolving world.
+ - The church does not draw people in; it sends them out.
+
+70 quotes

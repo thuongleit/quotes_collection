@@ -1,0 +1,41 @@
+ - The truly generous is the truly wise, and he who loves not others lives unblest!
+ - Death, whether it regards ourselves or others, appears less terrible in war than at home. The cries of women and children, friends in anguish, a dark room, dim tapers, priests and physicians, are what affect us the most on the death-bed. Behold us already more than half dead and buried.
+ - Beauty is a dangerous property, tending to corrupt the mind of the wife, though it soon loses its influence over the husband. A figure agreeable and engaging, which inspires affection, without the ebriety of love, is a much safer choice.
+ - Nothing more excites to everything noble and generous, than virtuous love.
+ - Such is the power of imagination, that even a chimerical pleasure in expectation affects us more than a solid pleasure in possession.
+ - Logic is the art of thinking well: the mind, like the body, requires to be trained before it can use its powers in the most advantageous way.
+ - An infallible way to make your child miserable is to satisfy all his demands.
+ - False praise is always confined to the great.
+ - Men are guided less by conscience than by glory; and yet the shortest way to glory is to be guided by conscience.
+ - Emotions are raised in us, not only by the qualities and actions of others, but also by their feelings. I cannot behold a man in distress, without partaking of his pain; nor in joy, without partaking of his pleasure.
+ - Who hath not courage to revenge will never find generosity to forgive.
+ - If you should escape the censure of others, hope not to escape your own.
+ - The indulgence of revenge tends to make men more savage and cruel.
+ - A rich man cannot enjoy a sound mind nor a sound body without exercise and abstinence; and yet these are truly the worst ingredients of poverty.
+ - Seldom do we talk of ourselves with success. If I condemn myself, more is believed than is expressed; if I praise myself, much less.
+ - Violent passions are formed in solitude. In the busy world no object has time to make a deep impression.
+ - The sordid meal of the Cynics contributed neither to their tranquillity nor to their modesty. Pride went with Diogenes into his tub; and there he had the presumption to command Alexander the haughtiest of all men.
+ - The coward reckons himself cautious, the miser frugal.
+ - Nothing so uncertain as general reputation. A man injures me from humor, passion, or interest; hates me because he has injured me; and speaks ill of me because he hates me.
+ - An infallible way to make your child miserable is to satisfy all his demands. Passion swells by gratification; and the impossibility of satisfying every one of his demands will oblige you to stop short at last, after he has become a little headstrong.
+ - Ridicule, which chiefly arises from pride, a selfish passion, is but at best a gross pleasure, too rough an entertainment for those who are highly polished and refined.
+ - Beauty loses its relish; the graces never.
+ - An agreeable figure and winning manner, which inspire affection without love, are always new. Beauty loses its relish, the graces never, after the longest acquaintance, they are no less agreeable than at first.
+ - Even dress is apt to inflame a man’s opinion of himself.
+ - Genius is allied to a warm and inflammable constitution; delicacy of taste, to calmness and sedateness. Hence it is common to find genius in one who is a prey to every passion.
+ - Whoever appears to have much cunning has in reality very little; being deficient in the essential article, which is, to hide cunning.
+ - Great wants proceed from great wealth; but they are undutiful children, for they sink wealth down to poverty.
+ - We part more easily with what we possess, than with our expectations of what we wish for; because expectation always goes beyond enjoyment.
+ - Luxury may possibly contribute to give bread to the poor; but if there were no luxury, there would be no poor.
+ - No man ever did a designed injury to another, but at the same time he did a greater to himself.
+ - A great mind will neither give an affront nor bear it.
+ - Were wisdom to be sold, she would give no price; every man is satisfied with the share he has from nature.
+ - As nice as we are in love, we forgive more faults in that than in friendship.
+ - Every man, however little, makes a figure in his own eyes.
+ - To a zealot every one of his own sect is a saint, while the most upright of a different sect are to him children of perdition.
+ - When you descant on the faults of others, consider whether you be not guilty of the same. To gain knowledge of ourselves, the best way is to convert the imperfections of others into a mirror for discovering our own.
+ - Parsimony is enough to make the master of the golden mines as poor as he that has nothing; for a man may be brought to a morsel of bread by parsimony as well as profusion.
+ - The mind is never more highly gratified than in contemplating a natural landscape.
+ - Custom is the great leveller. It corrects the inequality of fortune by lessening equally the pleasures of the prince and the pains of the peasant.
+
+39 quotes

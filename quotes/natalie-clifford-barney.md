@@ -1,0 +1,57 @@
+ - Entrepreneurship is the last refuge of the trouble making individual.
+ - In love there is no status quo.
+ - Indiscretion has always seemed to me to be one of the privileges of tact.
+ - With renunciation life begins.
+ - Time engraves our faces with all the tears we have not shed.
+ - When you’re in love you never really know whether your elation comes from the qualities of the one you love, or if it attributes them to her; whether the light which surrounds her like a halo comes from you, from her, or from the meeting of your sparks.
+ - That parasite: the past.
+ - A thought falls like a ripe fruit from the tree of idleness.
+ - Most virtue is a demand for greater seduction.
+ - It is time for dead languages to be quiet.
+ - Fashion: the search for a new absurdity.
+ - Like all religions, love has more believers than practitioners.
+ - I do not understand those who spend hours at the theater watching scenes between people whom they would not listen to for five minutes in real life.
+ - Silence too can be indiscreet.
+ - Some people make it hard for me to believe in universal evolution.
+ - Our prejudices, our antipathies, are our natural defenses against what we could not assimilate.
+ - Eternity – waste of time.
+ - Our shadows are taller than ourselves.
+ - Might I be the one I am looking for?
+ - Novels are longer than life.
+ - It’s necessary to use suffering. Otherwise, one is used by it.
+ - Hero worship has died with heroes, and if someone bows down today, it is to pick up something.
+ - My only books were women’s looks.
+ - I am not a bibliophile but a humanophile: I look for rare human beings.
+ - What makes bad writers so annoying is their good passages.
+ - The advantage of love at first sight is that it delays a second sight.
+ - Would that well-thinking people should be replaced by thinking ones.
+ - Youth is not a question of years: one is young or old from birth.
+ - Avoid that romantic trap: saying more than you feel, forcing yourself to feel more than you’ve said!
+ - I’m fond of human beings, but only one at a time.
+ - There are. intangible realities which float near us, formless and without words; realities which no one has thought out, and which are excluded for lack of interpreters.
+ - We know all their gods; they ignore ours. What they call our sins are our gods, and what they call their gods, we name otherwise.
+ - To mis-quote is the very foundation of original style. The success of most writers is almost entirely due to continuous and courageous abuse of familiar misquotation.
+ - Being bilingual is like having a wife and a mistress. One can never be sure of either.
+ - Sensuality, wanting a religion, invented Love.
+ - Paris has always seemed to me to be the only city in which one can live as one sees fit.
+ - Being other than normal is a perilous advantage.
+ - To those who ask if I have read their book, I reply: I have not yet read Homer.
+ - To be married is to be neither alone nor together.
+ - I love the love of those who are far enough away, it becomes whatever I wish to believe it.
+ - A scholar’s heart is a dark well in which are buried many aborted feelings that rise to the surface as arguments.
+ - Seeking revenge: what a lack of foresight.
+ - I judge people’s charm by the ease with which I express myself in their presence.
+ - To think about and prepare for war is boring, boring for everyone. It’s being locked in barracks.
+ - Tea – that perfume that one drinks, that connecting hyphen...
+ - The finest life is spent creating oneself, not procreating.
+ - If we keep an open mind, too much is likely to fall into it.
+ - Lovers should also have their days off.
+ - One is not oneself every day-fortunately.
+ - Renouncement: the heroism of mediocrity...
+ - We are nearly all composed of such a complex mixture of human qualities that in each one of us reside both masculine and feminine principles: what man is without any female attribute and what woman never demonstrates any masculine characteristics?
+ - All expression, all art, is an indiscretion we commit against ourselves. This is not an ‘impoverishment’ but an increase in wealth, for it is in this way that we make the short hours of our lives live on beyond themselves.
+ - To be one’s own master is to be the slave of self.
+ - If only art were as rare as good taste...
+ - A good book is never exhausted; we are never exhausted by a good book.
+
+55 quotes

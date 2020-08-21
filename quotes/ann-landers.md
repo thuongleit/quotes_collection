@@ -1,0 +1,115 @@
+ - Opportunities are usually disguised as hard work, so most people don’t recognize them.
+ - Expect trouble as an inevitable part of life and repeat to yourself, the most comforting words of all; this, too, shall pass.
+ - Make somebody happy today, and mind your own business.
+ - Love is friendship that has caught fire. It is quiet understanding, mutual confidence, sharing and forgiving. It is loyalty through good and bad times. It settles for less than perfection and makes allowances for human weaknesses.
+ - At age 20, we worry about what others think of us. At age 40, we don’t care what they think of us. At age 60, we discover they haven’t been thinking of us at all.
+ - Hanging onto resentment is letting someone you despise live rent-free in your head.
+ - Church is not a museum for Saints, but rather a hospital for sinners.
+ - Wake up and smell the coffee.
+ - People of integrity expect to be believed. They also know time will prove them right and are willing to wait.
+ - Some people believe holding on and hanging in there are signs of great strength. However, there are times when it takes much more strength to know when to let go and then do it.
+ - It’s one of the ironies of human nature that the most sensitive people are generally insensitive to the feelings of others.
+ - It is a mark of a superior mind to be able to disagree without being disagreeable.
+ - Nobody gets to live life backward. Look ahead, that is where your future lies.
+ - Being interested is more important than being interesting.
+ - The naked truth is always better than the best-dressed lie.
+ - No one can take advantage of you without your permission.
+ - Let this coming year be better than all the others. Vow to do some of the things you’ve always wanted to do but couldn’t find the time.
+ - Nobody ever drowned in his own sweat.
+ - In the end, it’s not what you do for your children but what you’ve taught them to do for themselves.
+ - People who drink to drown their sorrow should be told that sorrow knows how to swim.
+ - Maturity is the ability to live in peace with that which we cannot change.
+ - Problems are inevitable. Misery is a choice.
+ - Maturity is the ability to make a decision and stand by it. Immature people spend their lives exploring endless possibilities and then doing nothing. Action requires courage. Without courage, little is accomplished.
+ - When life’s problems seem overwhelming, look around and see what other people are coping with. You may consider yourself fortunate.
+ - Keep in mind that the true measure of an individual is how he treats a person who can do him absolutely no good.
+ - You’re all you’ve got.
+ - Maturity isn’t a product of growing older. It’s a product of growing wiser.
+ - No person who can read is ever successful at cleaning out an attic.
+ - Class is an aura of confidence that is being sure without being cocky. Class has nothing to do with money. Class never runs scared. It is self-discipline and self-knowledge. It’s the sure-footedness that comes with having proved you can meet life.
+ - Friends with benefits? More than friends? Don’t sample the goodies unless you’re willing to risk addiction and withdrawal.
+ - Maturity is many things. It is the ability to base a judgment on the big picture, the long haul.
+ - Don’t give up. Keep going. there is always a chance that you stumble onto something terrific. I have never heard of anyone stumbling over anything while he was sitting down.
+ - The minute more than two people know a secret, it is no longer a secret.
+ - Never let an opportunity pass to give a well-deserved compliment.
+ - Class is considerate of others. It knows that good manners is nothing more than a series of petty sacrifices.
+ - Rose-colored glasses are never made in bifocals. Nobody wants to read the small print in dreams.
+ - Experience, they say, is the best teacher, but we get the grade first and the lesson later.
+ - Remember, it takes two to make an argument. The one who is wrong is the one who will be doing most of the talking.
+ - If at first you do succeed, try something harder.
+ - A person doesn’t know how much he has to be thankful for until he has to pay taxes on it.
+ - Keep skid chains on your tongue. Say less than you think. Cultivate a pleasant voice. How you say it is often more important than what you say.
+ - Bragging is not an attractive trait, but let’s be honest. A man who catches a big fish doesn’t go home through an alley.
+ - At every party there are two kinds of people – those who want to go home and those who don’t. The trouble is, they are usually married to each other.
+ - If you marry a man who cheats on his wife, you’ll be married to a man who cheats on his wife.
+ - People, like water, seek their own level.
+ - Maturity is perseverance-the ability to sweat out a project or a situation, in spite of heavy opposition and discouraging setbacks, and stick with it until it is finished.
+ - We need not fear life, because God is the Ruler of all and we need not fear death, because He shares immortality with us.
+ - Television has proved that people will look at anything rather than each other.
+ - The trouble with talking too fast is you may say something you haven’t thought of yet.
+ - If criticism is needed, do it tactfully. Don’t use a sledgehammer when a fly swatter will do the job.
+ - Maintaining self-respect in the face of a devastating experience is of prime importance.
+ - There could be no honor in a sure success, but much might be wrested from a sure defeat.
+ - One out of four people in this country is mentally unbalanced. Think of your three closes friends; if they seem OK, then you’re the one.
+ - A successful marriage is not a gift; it is an achievement.
+ - It means being able to resist the urge for immediate gratification and opt for the course of action that will pay off later.
+ - Strong role models and unconditional love can heal even the most emotionally impoverished person, and that goes for adults as well as youngsters.
+ - Class can ‘walk with kings and keep its virtue and talk with crowds and keep the common touch.’ Everyone is comfortable with the person who has class because that person is comfortable with himself.
+ - If you want your children to listen, try talking softly – to someone else.
+ - Parents do not owe their progeny an inheritance no matter how much money they have. One of the surest ways to produce loafers and freeloaders is to let children know that their future is assured.
+ - Are you better off with him or without him?
+ - The Lord gave us two ends – one to sit on and the other to think with. Success depends on which one we use the most.
+ - An open marriage is nature’s way of telling you that you need a divorce.
+ - Maturity is the art of living in peace with that which cannot be changed, the courage to change that which should be changed, no matter what it takes, and the wisdom to know the difference.
+ - Warmth, kindness, and friendship are the most yearned for commodities in the world. The person who can provide them will never be lonely.
+ - Blessed are they who hold lively conversations with the helplessly mute, for they shall be called dentists.
+ - Trouble is the common denominator of living. It is the great equalizer.
+ - I advise keeping four feet on the floor and all hands on deck.
+ - Maturity: Be able to stick with a job until it is finished. Be able to bear an injustice without having to get even. Be able to carry money without spending it. Do your duty without being supervised.
+ - You need that guy like a giraffe needs strep throat.
+ - In recent years, there have been reports of people with twisted minds putting razor blades and poison in taffy apples and Halloween candy. It is no longer safe to let your child eat treats that come from strangers.
+ - People who care about each other enjoy doing things for one another. They don’t consider it servitude.
+ - My personal recipe for success is- Do what you love and don’t look at the clock.
+ - Pity the poor millionaire. He’ll never know the thrill of paying that final installment.
+ - Know yourself. Don’t accept your dog’s admiration as conclusive evidence that you are wonderful.
+ - Nobody says you must laugh, but a sense of humor can help you overlook the unattractive, tolerate the unpleasant, cope with the unexpected, and smile through the day.
+ - No one has the right to destroy another person’s belief by demanding empirical evidence.
+ - No one knows what a marriage is like except the two people in it – and sometimes one of them doesn’t know.
+ - One of the best ways to measure people is how they behave when something free is offered.
+ - I was naive, but I certainly was not duplicitous.
+ - The best way to find something you have lost is to buy a replacement.
+ - Know when to tune out, if you listen to too much advice you may wind up making other peoples mistakes.
+ - A happy marriage has the tranquility of a lovely sunset.
+ - One trouble with trouble is that it usually starts out like fun.
+ - The real trick is to stay alive as long as you live.
+ - Some people take pleasure in regaling one and all with details of their poor health. They are happy to give an organ recital to anyone who will listen.
+ - A husband is a man who wishes he had as much fun when he goes on business trips as his wife thinks he does.
+ - The real question is why are millions of people so unhappy, so bored, so unfulfilled, that they are willing to drink, snort, inject or inhale any substance that might blot out reality and give them a bit of temporary relief.
+ - What we steadily, consciously, habitually think we are, that we tend to become.
+ - Love is content with the present, it hopes for the future and it doesn’t brood over the past.
+ - All married couples should learn the art of battle as they should learn the art of making love.
+ - Assume nothing. Inside every dumb blond there may be a very smart brunette.
+ - Grown-up people can wait.
+ - Some men have no idea how to romance a woman. However, women who teach their husbands what they like will be well-rewarded.
+ - I don’t believe that you have to be a cow to know what milk is.
+ - Some things get better with age, but after a certain point, the mind isn’t among them.
+ - Some women have the best husbands. Others make the best of the husbands they have.
+ - More divorces start in the bedroom than in any other room in the house.
+ - When a person begins to yell during an argument, it is a tip-off that he is unsure of himself.
+ - One of the characteristics of the young is “I want it now.”
+ - Women’s magazines continue to print ‘helpful’ articles on How to Hang on to Your Husband while thousands of wives write to me and complain that ’hanging is too good for ’em.
+ - Class is the sure-footedness that comes with having proved you can meet life.
+ - Class never tries to build itself up by tearing others down. Class is already up and need not strive to look better by making others look worse.
+ - Most of us would be willing to pay as we go if we could just finish paying for where we’ve been.
+ - The poor wish to be rich, the rich wish to be happy, the single wish to be married, and the married wish to be dead.
+ - Children have an uncanny way of living up – or down – to what is expected of them.
+ - If you want to catch trout, don’t fish in a herring barrel.
+ - Find comfort in the knowledge that no imitator ever comes off as well as the original.
+ - If you have love in your life, it can make up for a great many things that are missing. If you don’t have love in your life, no matter what else there is, it’s not enough.
+ - A man spends the first half of his life learning habits that shorten the other half.
+ - Marriage is not a reform school.
+ - Anyone who believes the competitive spirit in America is dead has never been in a supermarket when the cashier opens another check-out line.
+ - All marriages are happy, it’s living together afterward that’s tough.
+ - I made up my mind when I was 15 years old that I would never smoke or drink. I have kept that pledge to myself, and it was one of the smartest decisions I ever made.
+
+113 quotes

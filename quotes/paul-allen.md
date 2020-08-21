@@ -1,0 +1,29 @@
+ - I’m a very private person that prefers a low profile.
+ - Any crusade requires optimism and the ambition to aim high.
+ - You look at things you enjoy in your life, but much more important is what you can do to make the world a better place.
+ - What should exist? To me, that’s the most exciting question imaginable. What do we need that we don’t have? How can we realize our potential?
+ - When it comes to helping out, I don’t believe in doing it for the media attention. My goal is to support the organizations that need help.
+ - I enjoy creating new ideas, working on new creative projects.
+ - The possible is constantly being redefined, and I care deeply about helping humanity move forward.
+ - You’ve got to enjoy time with your family and friends, and if you’re involved in sports franchises, those peak moments in playoff games. You have to enjoy life.
+ - Technology is notorious for engrossing people so much that they don’t always focus on balance and enjoy life at the same time.
+ - We’ve had some tough times, but we’ve hung in there.
+ - That would be such a life-changing thing, for us all to know that there are other beings out there who we could potentially communicate with, or maybe we are listening to a signal that they transmitted hundreds of millennia ago.
+ - For the most part, the best opportunities now lie where your competitors have yet to establish themselves, not where they’re already entrenched. Microsoft is struggling to adapt to that new reality.
+ - In my own work, I’ve tried to anticipate what’s coming over the horizon, to hasten its arrival, and to apply it to people’s lives in a meaningful way.
+ - As a species, we’ve always been discoverers and adventurers, and space and the deep ocean are some of the last frontiers.
+ - Traditionally, Seattle has been a great sports town and great football town. What the Huskies have achieved over the years has been pretty amazing. That’s how I got my first taste of football – when I went with my father to Husky Stadium.
+ - I am very excited to be supporting one of the world’s most visionary efforts to seek basic answers to some of the fundamental question about our universe and what other civilisations may exist elsewhere.
+ - In the computer industry, you’ve got an interdisciplinary team of people who can come together, attack the problem, and work in a collaborative style. You knock down one problem after another, cobble things together, and then hopefully turn the crank at some point.
+ - I grew up around books. When I first held the book and it was a substantive, tangible thing, and I thought of all the work that went into it, not just my work but everybody else’s and the research and so forth, there’s a sense of really have done something worthwhile.
+ - I think it’s going to be great if people can buy a ticket to fly up and see black sky and the stars. I’d like to do it myself-but probably after it has flown a serious number of times first!
+ - In a company where tech decisions were still ultracentralized, the repercussions of a distracted CEO had to be damaging.
+ - Sometimes it’s very difficult to find fresh fruit on the road.
+ - I was in a town of about 10,000 people, and a shipping container with a rusty microscope was their medical clinic.
+ - Once you become an owner of a team, you get so much more into the sport and you can’t help it. So I really love NFL football now to the degree of following it much more than I did previously.
+ - The best museums and museum exhibits about science or technology give you the feeling that, hey, this is interesting, but maybe I could do something here, too.
+ - In global warming, I think everyone is scratching their heads – are there technological things that can be brought to bear that can make a difference?
+ - The only regrets I have are rather prosaic – like I wish I went for a swim in the Pacific.
+ - In the first eight or so years at Microsoft, we were always chained to our terminals, and after I got sick the first time, I decided that I was going to be more adventurous and explore more of the world.
+
+27 quotes

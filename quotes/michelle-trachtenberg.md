@@ -1,0 +1,29 @@
+ - Keep your private life private. Be open to suggestions from different people. And just be nice. I have heard stories about people who are just plain rude to the press or fans.
+ - The food was interesting. My background is Russian, so cheese and potatoes are my love. There was plenty of that. And fried cheese! It is really, really, really good. And really, really, really bad for you. It’s like an artery on a plate.
+ - I chose to wait to get my drivers license. Since I was working and I didn’t have time, I got it like a week before my 18th birthday.
+ - If you’re not falling, you’re not training hard enough.
+ - I will not be doing any FHM or crazy Maxim magazines. I will leave that to the other actresses in Hollywood who want to shed their clothes because they think that’s beneficial to them. I would much rather chose a creative way – like in a movie.
+ - Ice skating is very difficult. It takes a lot of discipline and a lot of hard work. It’s fun, but you are there on the ice every morning freezing and trying to do these moves and these tricks.
+ - I am young. I better show off what I have now.
+ - I just feel – specifically about that holiday – why is it just one day that you have to tell the person that you love how much you love them? I think that is a little silly. I am much more the girl that likes the spontaneous.
+ - I plays Joe’s best friend. I am the only one he has ever been able to trust in his life, so I help him understand what happened to him when he was younger.
+ - I know that there are a billion girls out there that would kill to be in my position, and I never forget that.
+ - I have many valentines. My mom and my sister and my directors. I got calls from all of them. And my friends. I respect what Valentine’s Day stands for because it is about love.
+ - I once dated a guy who was like, ‘Holy sh –, I just made out with Harriet the Spy!’ And that’s messed up. Don’t say that. I was 10, you’re 30, it’s just weird.
+ - I am excited to be on set. I love what I do. As long as I have that feeling, then I’m gonna stick to it. As long as I’m lucky enough to get projects and keep working, I will always be grateful for it.
+ - When you grow up on film, people sometimes have difficulties accepting the fact that you are growing up. They always imagine you younger.
+ - Most people say they talk to me and I sound older.
+ - Yes, romance has found it’s way into my heart in the past.
+ - I have ballet class every other day for two hours. And for “Six Feet Under”, last week there was a sequence where I had to do a whole choreographed dance number, so I had four hours of dance practice every day.
+ - I don’t like to search too much. I find it is easier when romance finds you.
+ - The core for everything is to be grateful. It’s literally as simple as that. I’ve always known that I’m lucky to be an actress, and I’m lucky to be a working actress. I’m lucky to have garnered attention for certain roles, and I’m grateful for it.
+ - Four months filming in a foreign country. You know, it is great because you get to learn all about different cultures. I feel so much more enriched.
+ - I feel that in order to truly be an actor, you have to differentiate yourself and your roles.
+ - The sexy moments for me, I wasn’t thinking of them as sexy. I was thinking of them as more specific to my character. So it was necessary for my character’s development in the movie, so that’s how I played it.
+ - I was always wanting to learn and be one of those actresses who can actually hold a conversation as opposed to standing there looking pretty.
+ - I have never understood that. I come from a place where the press makes or breaks an actor and it is more of a teamwork relationship.
+ - The way to my heart is by being truthful and spontaneous.
+ - My mother was there every day of the production. You know what? My mother and I are so close, she really understands the fact that I am 18 and I am maturing. I guess I am not your average 18 year-old.
+ - I’ve always felt that kids are really smart.
+
+27 quotes

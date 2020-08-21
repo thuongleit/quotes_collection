@@ -1,0 +1,27 @@
+ - Style is a reflection of your attitude and your personality.
+ - No designer has really wowed me yet, I’m into other people’s recommendations when it comes to fashion.
+ - I just got Kill Bill: Vol. 2. I’ve watched it like eight times in the past two months. I just love the scene at the end between David Carradine and Uma Thurman.
+ - I’d take telekinesis. I could move things with my mind, and with telepathy I could control other people’s minds and make them do whatever I wanted.
+ - I think it’s more fun to play a hero with an edge.
+ - Above and beyond having the social life, to have a core group of people that you work with and spend time with and learn how to work with is a nice thing.
+ - You get bored if you do the same thing too much.
+ - Comic books and The Chronicles of Narnia. My mother used to read those to me and my twin brother growing up.
+ - My power is the ability to control water molecules and form them into ice.
+ - Being a villain is great, even though I’ve only gotten to do it a few times.
+ - Getting to play superheros is a pretty good job.
+ - Why would people spend good money to have my pants?
+ - Lord of the Rings is a good thing for us because it opened the door for the genre in general. Le Guin’s stories are very different from Lord of the Rings.
+ - Playing a character who’s dealing not only with a superpower but having a normal relationship is easy to associate with, because I feel that everyone has been through it.
+ - As a teenager at high school, I felt like an outsider.
+ - Instead of being on teams at school, I was preparing for auditions.
+ - The genre of fantasy is about magic and occult characters.
+ - I read the comics long before I was ever involved with the films.
+ - The real excitement and big deal for me started when I got cast in the first X-Men, which was sort of a fluke.
+ - I think it is important that you care about the characters, and you are not just waiting for the next action sequence but have a vested interested in what happens to them.
+ - I never could have planned this, and now I’m in my ideal situation career-wise and just sort of where I am in my life, and I’m super happy with how everything’s going.
+ - Every day on set, there was something to watch and learn.
+ - I’m a video game buff.
+ - There are rumors, rumors, rumors. I’m always the last one to know about these things, literally.
+ - I would love to be able to pursue music as a career but honestly, I’m just not good enough.
+
+25 quotes

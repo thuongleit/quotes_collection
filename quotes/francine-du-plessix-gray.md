@@ -1,0 +1,22 @@
+ - Art is both a vengeance against reality and a reconciliation with it.
+ - We write out of revenge against reality, to dream and enter the lives of others.
+ - I write because in the act of creation there comes that mysterious, abundant sense of being both parent and child; I am giving birth to an Other and simultaneously being reborn as a child in the playground of creation.
+ - All our parents have levels of deviousness. We’re driven to write about this discrepancy between the bright shining selves they invented and the monsters lurking underneath.
+ - I venture that those of us who are most serene when faced with the possibility of nothingness are the ones who’ve reached furthest to the downward and upward of their beings.
+ - I shall never cease to marvel at the way we beg for love and tyranny.
+ - Lovers, children, heroes, none of them do we fantasize as extravagantly as we fantasize our parents.
+ - Oh, save me God, but not quite yet.
+ - The spiritual destiny of Hawaii has been shaped by a Calvinist theory of paternalism enacted by the descendants of the missionaries who had carried it there: a will to do good for unfortunates regardless of what the unfortunates thought about it.
+ - I think we’re much more eager to know about our parents than we were in the seventies.
+ - The choice between starving and being eaten is an exotic one.
+ - Only friends will tell you the truths you need to hear to make your life bearable.
+ - Americans and their desire to be novelists, the American novel should be listed in medical dictionaries alongside Megalomania and Obsessional Neuroses.
+ - I didn’t find this memoir of these two eccentric people so different from doing my memoirs of De Sade or Simone Weil. My parents in their own way are as odd as Sade.
+ - I think it’s one of the reasons I wrote my book later in life. My parents didn’t have these extreme alternations of conduct. They were very sweet to me.
+ - If I were ever to go mad it would be on Thanksgiving Day, that day of guilt and grace when the family hangs upon you like an ax over a sacrificial victim, like the oven’s heat on that poor bird.
+ - Like most writers I know, I love being on stage. I’ve sublimated the dramatic urge by teaching and by making people laugh.
+ - The irreversibility of time. That’s the hardest thing to accept at our age, that’s the most violent aspect of death.
+ - As to why people like Joseph Lelyveld are writing memoirs, I think they’re just catching on the coattails of the trend.
+ - One learns much more by writing fiction, because the insights come from those deeper subconscious levels where the greater and more interesting truths lie.
+
+20 quotes

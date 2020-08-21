@@ -1,0 +1,33 @@
+ - I can clap with one hand.
+ - I’m at a place in my life where I do finally feel, at least most of the time, that I know who I am and I’m comfortable with the person that I am.
+ - Cats and I have an understanding, but we choose not to interact often.
+ - Once I came to acting, it was almost a thing where there weren’t enough hours in the day to work on stuff because I was so passionate about it.
+ - I’m ready and open to meeting the person that hopefully I’ll share my life with. It takes a long time to get to that place.
+ - I didn’t grow up a theatre kid, going to theatre camps. I played sports, and that was my main direction. But luckily, I never had to choose between sports and theatre.
+ - Singing for stage, if you don’t hear yourself, that’s when you push, and that’s when you can hurt your voice sometimes. So if I can hear myself in my ear, it really helps me to find that balance of how loud I needed to be singing.
+ - Things don’t always tie up in a nice bow. Even when you make strides with people and relationships, it’s complicated.
+ - I love working in film and television, but I do miss singing on stage. You can’t find that anywhere else, so I hope this opens up a whole new concert world for me. I had so much fun and it went so well, I hope it leads to more.
+ - Being onstage is just a feeling that you cannot duplicate anywhere else because the energy that the audience is giving you forces you to give more energy. It’s such an output and exchange of energy. You can’t do that anywhere else.
+ - I was a very awkward high schooler, especially in early high school. I had the middle part with a swoop, all that. It was the late ’90s!
+ - It’s every actor’s dream to work in a hit show on Broadway and also shoot a television show.
+ - Depression is something that seems really obscure when you see it in a theater, but when you talk to people who come to see it and hear their reactions, you realize that it is such a prevalent part of life and our society today that it really needed to be told, and still needs to be told.
+ - Awards are not something that I measure my work by. I’ve been so fortunate and I’ve gotten to do such terrific things that it seems petty to look back and say, ‘Oh, I should have gotten that prize.’ I don’t look at it that way.
+ - I was very unsure about what I wanted to do in high school.
+ - What is wrong with you people?
+ - I watched so many movies when I was a kid, and I’d watch them over and over.
+ - I listen to all kinds of music, but I’ve always been a really big fan of Top 40 radio. If I’m in my car, that’s what I listen to.
+ - I just feel like I have a lot to prove.
+ - I watch a lot of television. I always have.
+ - I grew up about 60 miles northwest of New York, in Middletown, NY.
+ - I had an acting teacher tell me once that if you’re playing a car salesman, you don’t want to be an OK car salesman, you want to play the best car salesman.
+ - I still sing every day – in the shower or on the set all day. I’m sure everyone will tell you that I never shut up. But it’s not in the capacity that I would like to.
+ - Life doesn’t move in a linear fashion. Life makes lefts and rights, and it doubles back.
+ - I would like to, especially in film, play against type and do some heavier stuff. I’m intrigued by projects that deal with problematic people and things.
+ - I like auditioning! A lot of people hate it, but I like it.
+ - Coming from a background of being onstage, you’re onstage for two and a half hours and you’re in it for the whole time no matter what you’re doing. Even if you don’t have a line, you have to stay in it.
+ - Typecasting is an interesting thing because, in a way, if you’re good at something, you’re going to work at that thing. In other ways, you constantly have to change people’s opinion of you as one thing, especially if you want to play different roles. You have to shatter that image sometimes.
+ - It used to be that you kind of got pigeonholed into one thing – you’re either a stage actor or a TV actor or a movie actor. Today, there’s a lot of crossover with film actors doing television, which never happened before, so those lines are a little bit more blurred than they used to be.
+ - Sometimes chemistry does the trick, and other times, you have to forge that with the people.
+ - You always have to make positive choices as an actor, even when you’re playing someone who may not be doing the best things.
+
+31 quotes

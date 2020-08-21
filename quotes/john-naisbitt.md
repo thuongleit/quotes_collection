@@ -1,0 +1,31 @@
+ - Think globally, act locally, think tribally, act universally.
+ - Strategic planning is worthless – unless there is first a strategic vision.
+ - The most exciting breakthroughs of the 21st century will not occur because of technology but because of an expanding concept of what it means to be human.
+ - The new leader is a facilitator, not an order giver.
+ - Leadership involves finding a parade and getting in front of it.
+ - The most important skill to acquire now is learning how to learn.
+ - Value is what people are willing to pay for it.
+ - Trends, like horses, are easier to ride in the direction they are going.
+ - The most reliable way to forecast the future is to try to understand the present.
+ - We must learn to balance the material wonders of technology with the spiritual demands of our human race.
+ - The future is embedded in the present.
+ - Small business, right down to the individual can beat big, bureaucratic companies ten times out of ten.
+ - Leadership involves finding a parade and getting in front of it; what is happening in America is that those parades are getting smaller and smaller – and there are many more of them.
+ - Intuition becomes increasingly valuable in the new information society precisely because there is so much data.
+ - In turbulent times, in times of great change, people head for the two extremes: fundamentalism and personal, spiritual experience...
+ - The new source of power is not money in the hands of a few, but information in the hands of many.
+ - In a world that is constantly changing, there is no one subject or set of subjects that will serve you for the foreseeable future, let alone for the rest of your life. The most important skill to acquire now is learning how to learn.
+ - Learning how to learn is the most precious thing we have in life.
+ - In sales, as in medicine, a prescription before diagnosis is a mistake in the arts.
+ - We are shifting from a managerial society to an entrepreneurial society.
+ - In an information society, education is no mere amenity; it is the prime tool for growing people and profits.
+ - Lawyers are like beavers: They get in the mainstream and damn it up.
+ - The big-business mergers and the big-labour mergers have the appearance of dinosaurs mating.
+ - If you have to be right, you put yourself in a hedged lane, but once you experience the power of not having to be right, you will feel like you are walking across open fields, the perspective wide and your feet free to take any turn.
+ - One of the best kept secrets in America is that people are aching to make a commitment, if they only had the freedom and environment in which to do so.
+ - In their search for quality, people seem to be looking for permanency in a time of change.
+ - The bigger the world economy, the more powerful its smallest player.
+ - The more technology we introduce into society, the more people will aggregate, will want to be with other people: movies, rock concerts, shopping.
+ - It is in the nature of human beings to bend information in the direction of desired conclusions.
+
+29 quotes

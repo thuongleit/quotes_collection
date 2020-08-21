@@ -1,0 +1,55 @@
+ - I’m Kevin Nealon, and that’s news to me.
+ - I tried to read the Bible, I did, but it always felt like a much less awesome Lord of the Rings.
+ - Basically, I’m a people pleaser who has a knack for disappointing.
+ - They say that moving is one of the most stressful things in life. Death in the family is the second most stressful, and moving your dead spouse is the third.
+ - Don’t play dead with a vulture. That’s exactly what they want.
+ - The hardest thing about moving to California from Connecticut was just missing my family. If I went back, it would be just because I was homesick.
+ - It’s tough getting older. You start falling apart, you know? My gums are starting to recede now. You can’t tell tonight, though, ’cause I comb them forward.
+ - I learned how to draw from being bored in school. I would doodle on the margins of my paper.
+ - Never wear a red t-shirt to Target. I enjoy helping people, but not every two minutes.
+ - Every homeless puppy and kitten was born to parents who weren’t spayed or neutered. I’m proud to support PETA’s work to prevent animal homelessness.
+ - I don’t smoke pot or cigarettes, so inhaling smoke as a non-smoker – it doesn’t matter what it is, it’s going to make you lightheaded.
+ - The Outer Limits was one of those shows I grew up watching – that and The Twilight Zone.
+ - The good thing about Weeds now is, I get to play some dramatic parts in that as well.
+ - Curb Your Enthusiasm, is not so much about Hollywood. It’s more about Larry’s weaknesses.
+ - I’d been doing some light-beer commercials for Budweiser and Coors, and I was doing stand-up comedy. I wanted to get into the acting world, and my agent sent me on audition and they liked it.
+ - I think Little Nicky was a divergence from the films Adam Sandler was used to doing, and he was taking a risk. I admire him for doing that.
+ - I have a wandering eye and a lazy eye so they cancel each other out. It’s a push.
+ - The funny thing about commercials to me is that many of them now don’t even mention the product until the very end. You don’t really know what the commercial is all about. They’re kind of like little movies, like shorts, and that’s why I think they’re so entertaining.
+ - I really like to read when I’m eating – ‘The New York Times’ or the ‘Wall Street Journal,’ paper version.
+ - Workers insist that they are not disgruntled. They are very gruntled.
+ - I am whelmed, and not overly whelmed, just whelmed about a lot of facets in life – just how fragile life is and the different challenges you have in life, phobias about things.
+ - Breaking News: Winds so strong in NYC The Statue of Liberty’s gown just blew off!
+ - I really enjoyed working on the 2009 film, ‘Aliens in the Attic,’ because it was shot in New Zealand and I got to visit there for the first time.
+ - I’m on a strict running program. I started yesterday. I’ve only missed one day so far.
+ - I was never really an impressionist. If there was somebody within my range, maybe I could work on it and do a little exaggeration of them – which I think is really the way to do an impression.
+ - I think the education system is great just the way it is. There’s kids in my neighborhood in Los Angeles, seven years old, that can already speak fluent Spanish.
+ - I became a vegetarian after I became aware of factory farming and slaughterhouses and the torture and inhumane handling of all these animals.
+ - I’ve noticed a surge when I go out somewhere, or if I’m doing stand-up.
+ - I went to school for marketing and advertising, so I have a special interest in good and funny commercials and why they work and why they’re funny – which is one of the reasons I, like many people, like watching the Super Bowl, besides the game.
+ - Marriage is great. It’ll calm you down – that and neutering.
+ - I like to stuff myself at Thanksgiving, not turkeys.
+ - It is a great rush to come up with a joke that gets a good response from the audience. It’s gold!
+ - As a comedian, you’re kind of like a blues musician; you have to live a little bit.
+ - When a show has been on for so long, you lose fans, you gain fans. I remember this from ‘Saturday Night Live.’
+ - Saturday Night Live was a show that I never thought I would be on, because I didn’t do sketch comedy and I didn’t do impressions. I was a stand-up.
+ - It’s kind of fun when you’re playing characters that aren’t quite on the up and up and people still like you.
+ - It seems like all the sitcoms on now, the families are kind of dysfunctional.
+ - A special validates you as a stand-up by documenting your material.
+ - I loved working on ‘Happy Gilmore’ because I love to travel to new places and we got to go to British Columbia. Any Adam Sandler film is fun to work on because it is a reunion of the boys club of guys that have worked together in the past.
+ - I don’t mind seeing two guys kissing, you know, as long as they’re clean-shaven.
+ - When I began doing stand-up, it took me a long time to get an hour’s worth of material together.
+ - I play a lot of sports. I’m not real good at any of them. I’m above adequate.
+ - As an actor, you’re always reading scripts looking for something good.
+ - I grew up watching stand-ups and thought it was so entertaining and unique – you didn’t see that as a job description anywhere.
+ - It is unconscionable for children in our prosperous country, or anywhere for that matter, to go without food. I implore everyone to contact their local and state representatives to encourage action to end hunger.
+ - A novel is too much of a commitment. I tend to peruse Twitter – I check to see if I had any mentions and read the latest messages.
+ - I think people really appreciate clever commercials, as do I. I think they’re very entertaining. You just have to wade through all the garbage. That’s one of the reasons people watch the Super Bowl. A lot of them watch it to see the commercials and not the actual game.
+ - A lot of baby boomers are baby bongers.
+ - There’s so many vegetarian foods now that are available at the market. The same with drive-throughs. Now, a lot of them serve veggie burgers just like the restaurants are doing. So, it’s really very easy.
+ - When I first began doing TV pilots, my expectations were high. I didn’t understand that world. So when ‘Weeds’ took off, I was so happy. Especially as I was just a guest star in the pilot. But once it got picked up, they made me a regular cast member.
+ - I never really got into marketing. I went to school for it, but never pursued it once I got out. Instead, I went to Europe for about two months, just traveling around in youth hostels and Eurail trains with my friends.
+ - I’m probably more of a stand-up comedian than an actor.
+ - If people can’t deal with their problems, they numb themselves a little bit.
+
+53 quotes

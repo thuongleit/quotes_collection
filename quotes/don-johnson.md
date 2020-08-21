@@ -1,0 +1,22 @@
+ - I can do whatever I want – I’m rich, I’m famous, and I’m bigger than you.
+ - Life’s too short to drink bad wine or smoke poor cigars.
+ - I studied a lot of Foghorn Leghorn.
+ - I’m just a simple guy swimming in a sea of sharks.
+ - You’re in this constant state of flux and transition, as if you had jet lag all the time. The acting part of it is easy. It’s all the other things that come with it that are a bit difficult.
+ - If the material is inspiring and motivates you, then it doesn’t really matter what it is.
+ - I consider myself an artist. God granted me some gifts so that I could express myself artistically.
+ - The very nature of cool is that you think about it too much and it becomes uncool.
+ - My sons are a hell of a lot easier to get through to than my daughter is. She seems to have my number. She can just run through the buttons.
+ - London is one of the most enchanting places I’ve ever been on this planet.
+ - It’s a joy to be recognized and to have people that are interested in what you do. That can pick up your whole day.
+ - I’ve had some ambivalent feelings about being an actor. I don’t know that I’ve ever been totally and completely comfortable with it.
+ - The most aggressive artists often hide their romantic side.
+ - I pestered the hell out of everybody I ran into until I could play the guitar well enough to write and sing with it.
+ - Every bowling center should have a house pro.
+ - Even though some of the films I’ve made haven’t been particularly commercial, I don’t find them failures.
+ - People in the business will stay with you through drugs and alcohol and divorces and insanity and everything else, but you have a failure, pal, and they don’t want to know nothing about you!
+ - You can go one block to the next in San Francisco and get a completely different opinion of what the issue is.
+ - I try to parent equally, but I think little girls are a little more sensitive.
+ - Once you become famous, there is nothing left but to become infamous.
+
+20 quotes

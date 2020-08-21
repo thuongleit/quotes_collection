@@ -1,0 +1,42 @@
+ - Life is a matter of choices, and every choice you make makes you. ~~John C. Maxwell
+ - Your life is a result of the choices you have made. If you don’t like your life, start making better choices. ~~Zig Ziglar
+ - When something bad happens you have three choices. You can either let it define you, let it destroy you, or you can let it strengthen you. ~~Dr. Seuss
+ - Life is the sum of your choices. ~~Albert Camus
+ - Everything you are comes from your choices. ~~Jeff Bezos
+ - Make a choice of what you want, who you want to be and how you’re going to do it. The universe will get out of your way. ~~Will Smith
+ - You and only you are responsible for your life choices and decisions. ~~Robert T. Kiyosaki
+ - Danger is very real but fear is a choice. ~~Will Smith
+ - Our lives are fashioned by our choices. First we make our choices. Then our choices make us. ~~Anne Frank
+ - Always go with the choice that scares you the most, because that’s the one that is going to require the most from you. Do you really want to look back on your life and see how wonderful it could have been had you not been afraid to live it? ~~Caroline Myss
+ - We always have a choice. ~~Tony Robbins
+ - You are free to choose, but the choices you make today will determine what you have, be, and do in the tomorrow of your life. ~~Zig Ziglar
+ - In the age of information, ignorance is a choice. ~~Donald Miller
+ - I’ve realized that being happy is a choice. ~~Angelina Jolie
+ - There is a choice you have to make in everything you do. So keep in mind that in the end, the choice you make, makes you. ~~John Wooden
+ - To make the growth choice instead of the fear choice a dozen times a day is to move a dozen times a day towards self-actualisation. ~~Abraham Maslow
+ - We are our choices. ~~Jean-Paul Sartre
+ - Leadership is a choice. It is not a rank. ~~Simon Sinek
+ - Because I always have a choice, I choose love. ~~Deepak Chopra
+ - A sign of wisdom and maturity is when you come to terms with the realization that your decisions cause your rewards and consequences. You are responsible for your life, and your ultimate success depends on the choices you make. ~~Denis Waitley
+ - The man of decision cannot be stopped! The man of indecision cannot be started! Take your own choice. ~~Napoleon Hill
+ - You can’t make someone else’s choices. You shouldn’t let someone else make yours. ~~Colin Powell
+ - Success is not an accident, success is actually a choice. ~~Stephen Curry
+ - Use wisely your power of choice. ~~Og Mandino
+ - The choices we make are ultimately our responsibility. ~~Eleanor Roosevelt
+ - Every day the choice is presented to us, to live up to the spirit that is in us, or deny it. ~~Henry Miller
+ - Alice came to a fork in the road. ‘Which road do I take?’ she asked. ‘Where do you want to go?’ responded the Cheshire Cat. ‘I don’t know,’ Alice answered. ‘Then,’ said the Cat, ’it doesn’t matter. ~~Lewis Carroll
+ - Don’t wavier. Make a decision. Do it now. ~~Billy Graham
+ - Joy does not simply happen to us. We have to choose joy and keep choosing it every day. ~~Henri J.M. Nouwen
+ - Leadership is a choice, not a position. ~~Stephen R. Covey
+ - Cleverness is a gift, kindness is a choice. ~~Jeff Bezos
+ - Writing is a calling, not a choice. ~~Isabel Allende
+ - The greatest choice we have is to think before we act and then take action toward our life goals every day. Our problems result not only from our lack of action, but from our action without thought. ~~Denis Waitley
+ - Marriage is not a ritual or an end. It is a long, intricate, intimate dance together and nothing matters more than your own sense of balance and your choice of partner. ~~Amy Bloom
+ - My Rich Dad said, ‘All of us have the power of choice. I choose to be rich, and I make that choice every day.’ ~~Robert T. Kiyosaki
+ - Here we may reign secure; and in my choice To reign is worth ambition, though in hell: Better to reign in hell than serve in heaven. ~~John Milton
+ - Sometimes the future changes quickly and completely, and we’re left with only the choice of what to do next. We can choose to be afraid of it, to stand there trembling not moving, assuming the worst that can happen or we step forward into the unknown and assume it will be brilliant. ~~Sandra Oh
+ - Happiness is a choice. You grieve, you stomp your feet, you pick yourself up and choose to be happy. ~~Lucy Lawless
+ - In a choice between love and fear, choose love. ~~Marianne Williamson
+ - Happiness is a choice that requires effort at times. ~~Aeschylus
+
+40 quotes

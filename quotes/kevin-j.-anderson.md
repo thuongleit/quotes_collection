@@ -1,0 +1,39 @@
+ - A moment of consideration often prevents a thousand apologies.
+ - We must think beyond ourselves.
+ - SHADOW PROWLER is a fresh, exuberant take on territory that will be familiar to all fans of classic high fantasy. Alexey Pehov introduces a cast of charming, quirky, unsavory, even loathesome characters in a fast-paced, entertaining adventure.
+ - If I could go back in time and tell my younger self that eventually that I’d become very successful writing Dune books after Frank Herbert’s death, I would have laughed myself silly, I think, at how strange that prospect would be.
+ - There will come a time of fire and night, when enemies rise and empires fall, when the stars themselves begin to die.
+ - Over the years, I’ve trained myself to speak using the same language I would use if I were typing: meaning using full sentences in the way that paragraphs and scenes are arranged.
+ - Well, I know that George Lucas doesn’t like it at all. When I was working on The Illustrated Star Wars Universe, he told me that he would be happy if every copy could be tracked down and smashed...
+ - I’m talking to you and it’s basically a direct communication, whereas if I’m writing a letter to you and you read the letter, there are like 12 extra deconstruction and reconstruction steps in the communication.
+ - Telling your story out loud is the way human beings communicate. We don’t normally think up words, translate how to spell them and then move our fingers up and down over this randomly arranged set of keys to make the same letters appear on a screen.
+ - Do you want Columbus to go across the ocean, or do you want to put a message in a bottle and hope that it lands somewhere? I’d rather have actual people be there. Whether they look like Americans or like the inhabitants of some other country, depends on who has the most drive.
+ - If you look at the British royal family and take away the scandals and the goofy stuff that’s going on, people love to have this king to look up to – the royals are like celebrities.
+ - I always had this non-stop drive. I had to keep sending stories out and every once in awhile I’d get something accepted or get the little trickle of positive feedback.
+ - Of course you don’t make any noise in space, because there’s no air.
+ - Each book will have a lot of cliffhangers, because I like that.
+ - I wanted the feel in these books to be like an epic fantasy, with kings, queens, dukes and court politics, but of course like what I was explaining before, about making the science make sense, you have to make the politics make sense, too.
+ - It was like there was a pile of kindling that was in the back of my imagination just waiting there. Once I lit it, it just flared up and I kept getting ideas and ideas.
+ - No, no, no – you don’t argue with concepts. You have to claim Dogma, and therefore leave no room for rational thought.
+ - I sold my very first novel when I was 24 or 25 years old.
+ - I mean, I wasn’t stupid. I knew we’d make money and sell a lot of Dune books.
+ - I’ve had the same, full-time assistant and typist for eight or nine years now. She’s read everything I’ve written, she types everything and does a good job, translates it and makes comments.
+ - I got to spend all of my time every day at work reading and editing papers about cutting-edge technical research and getting paid for it. Then I’d go home at night and turn what I learned into science fiction stories.
+ - If you had an alien race that looked like insects, then they would build robots to look like themselves, not to look like people.
+ - In a certain sense, this guy – who is one of the most evil people in the book – he’s not really that bad at running the show, because he knows what he’s doing, he’s smart and he’s got the big picture in mind. He’s like the Godfather.
+ - I had a minor in Russian history, and this was at the time when the big Cold War was going on.
+ - I always turn in my books on time, so you can always count on a book coming out when it’s supposed to.
+ - I think now I’m up to something like 85 different titles that I’ve published.
+ - Every spare second I would write, somehow. On my lunch hour, too.
+ - My total year’s income from working as hard as I possibly could from writing went from like $30 one year to about $70 the next year. And it made me realize that maybe you couldn’t really pay the rent that way.
+ - My dad is a bank president and my mom was an accountant and they didn’t think that seeking the life of a freelance writer was very practical, you see. Of course, I was just as determined to do it.
+ - We wanted to write the first prequels as a story that anyone could pick up.
+ - We sat around on a hotel balcony with a bottle of wine and tried to figure out how you would go about blowing up a planet. That’s the kind of conversations science fiction writers have when they get together. We don’t talk about football or anything like that.
+ - Patrick Rothfuss gives us a fabulous debut, standing firmly on the main stage of the fantasy genre and needing no warm-up act. Jordan and Goodkind must be looking nervously over their shoulders!
+ - I don’t think the author should make the reader do that much work to remember who somebody is.
+ - I think that somebody with the resources and innovation and the idea is going to come out of nowhere and come up with a successful space travel program.
+ - For a feature in next month’s issue of Prog magazine, the photographer spent many hours setting up a photo shoot of me with part of my music collection in my writing office. Since I do most of my writing outside in nature, we felt this shot was most representative.
+ - The great secret behind classified projects is that most of them are so utterly boring and uninteresting that James Bond wouldn’t even take a second look at them.
+ - The people who make policy decisions should damned well know what they are talking about before they make the decisions. There is nobody who is an expert on cloning who would be afraid after seeing Attack of the Clones.
+
+37 quotes

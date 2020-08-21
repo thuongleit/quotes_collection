@@ -1,0 +1,28 @@
+ - Today is a new day. A New opportunity to get better stronger faster smarter and closer to your goals and dreams. Take it.
+ - Music is supposed to be an escape, It’s supposed to be somewhere you can go, where you can be yourself, or be whatever you wanna be.
+ - My mom always said that there would be haters. Not everyone can love ya.
+ - Always wear cute pyjamas to bed, you’ll never know who u will meet in your dreams.
+ - I believe everyone on this planet deserves equal rights to their own pursuit of happiness.
+ - Good Charlotte is anger management teen angst.
+ - I’ve flown across America, I’ve scaled fences, I’ve stood under windows and gone out of my way hundreds of times. I’m a hopeless romantic. There’s no hope for me.
+ - Just stay true to yourself and true to wut you believe.
+ - People think that I’m a really outgoing person because of how I am on stage. But I’m not. I’m really shy.
+ - You can only start a boy band if you kill one of the other ones already out there.
+ - I don’t want to see anyone leaving single tonight. I want everyone to leave impregnated.
+ - Benji usually tries to match his hair with his underwear, and you know how he had the pink hair for a while well we caught him in a pink thong one day!
+ - My mom is Christian, and she wouldn’t let us listen to rock music. So me and my brother, we had this tape player with head phones, and we locked ouselves in the pantry. We were fighting over the headphones, sitting in the dark pantry listening to Metallica.
+ - I was just in the middle of singing a song about how broke we were and now my cell phone rings.
+ - I’m kinda disapointed that Canada isn’t like the South Park movie said it was.
+ - When I heard Nirvana, it changed my life.
+ - Those people who shun us just because of the label we’re on, or the fact that we’ve got a video out there that’s getting us somewhere, are only limiting themselves, because they aren’t keeping an open mind.
+ - Instead of going out and shooting people, why don’t you go start a band.
+ - I like getting toilet paper thrown at me.
+ - If I could pick my wife by name, It’d be Whitney. That name just sounds right.
+ - I think the terrorists are just idiots.
+ - Our goal is to write memorable songs. We’re not there yet, but we’re getting closer. Each time we sit down to write, we have hopes of coming up with something that will be remembered forever. That’s our dream.
+ - The best thing is being really close. The worst thing is being really close.
+ - I didn’t get lessons of any kind I slept through school.
+ - Elijah Wood from Lord Of The Rings can’t get married with a girl named Holly beacause it would make Holly Wood get it HOLLYWOOD!!!!!!!!!!!!!!
+ - Without cigarettes, I would be doing heroin, probably, on a daily basis.
+
+26 quotes

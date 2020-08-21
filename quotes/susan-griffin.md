@@ -1,0 +1,36 @@
+ - This earth is my sister; I love her daily grace, her silent daring, and how loved I am. How we admire this strength in each other, all that we have lost, all that we have suffered, all that we know: We are stunned by this beauty, and I do not forget: what she is to me, what I am to her.
+ - There is always a time to make right what is wrong.
+ - Ordinary women attempt to change our bodies to resemble a pornographic ideal. Ordinary women construct a false self and come to hate this self.
+ - It is a grief over the fate of the Earth that contains within it a joyful hope, that we might reclaim this Earth.
+ - We are nature. We are nature seeing nature. The red-winged blackbird flies in us.
+ - Susan Bordo’s Unbearable Weight is a masterpiece of complex an nuanced thinking not only about a significant problem that faces women but about our culture. A very valuable book.
+ - Even in the grimmest of circumstances, a shift in perspective can create startling change.
+ - I know I am made from this earth, as my mother’s hands were made from this earth, as her dreams came from this earth and all that I know, I know in this earth, the body of the bird, this pen, this paper, these hands, this tongue speaking, all that I know speaks to me through this earth.
+ - Each life reverberates in every other life. Whether or not we acknowledge it, we are connected, woven together in our needs and desires, rich and poor, men and women alike.
+ - Just as the slave master required the slaves to imitate the image he had of them, so women, who live in a relatively powerless position, politically and economically, feel obliged by a kind of implicit force to live up to culture’s image of what is female.
+ - Yes we are devilish; that is true we cackle. Yes we are dark like the soil and wild like the animals. And we turn to each other and stare into this darkness. We find it beautiful. We find this darkness irresistible. We cease all hiding.
+ - Before a secret is told, one can often feel the weight of it in the atmosphere.
+ - Far more frightening than the thought of dying was the experience of erasure already occurring in my life. My fear of becoming someone who did not count.
+ - The mind can forget what the body, defined by each breath, subject to the heart beating, does not.
+ - Poetry is a good medium for revolutionary hope.
+ - What is buried in the past of one generation falls to the next to claim.
+ - We keep secrets from ourselves that all along we know.
+ - Society, like nature, is one body, really.
+ - Telling a story of illness, one pulls a thread through a narrow opening flanked on one side by shame and the other by trivia.
+ - How many small decisions accumulate to form a habit? What a multitude of decisions, made by others, in other times, must shape our lives now.
+ - Every time I deny myself I commit a kind of suicide.
+ - What always seems miraculous is when aesthetic necessities yield an insight which otherwise I would have missed.
+ - War starts in the mind, not in the body.
+ - In one sense I feel that my book is a one-woman argument against determinism.
+ - Perhaps every moment of time lived in human consciousness remains in the air around us.
+ - But still, the other voice, the intuitive, returns, like grass forcing its way through concrete.
+ - One can find traces of every life in each life.
+ - A story is told as much by silence as by speech.
+ - Philosophy means nothing unless it is connected to birth, death, and the continuance of life. Anytime you are going to build a society that works, you have to begin from nature and the body.
+ - Waging war is not a primary physical need.
+ - At the museum a troubled woman destroys a sand painting meticulously created over days by Tibetan monks. The monks are not disturbed. The work is a meditation. They simply begin again.
+ - I am not so different in my history of abandonment from anyone else after all. We have all been split away from the earth, each other, ourselves.
+ - Although the many virtues that courtesans possessed were employed to defy circumstances, the role they played depended on the same circumstances over which they triumphed- conditions which to, fortunately for modern women, no longer exist.
+ - I think artists can go to a level of vision that can often save us from a situation which seems to have no solution whatsoever.
+
+34 quotes

@@ -1,0 +1,203 @@
+ - The opposite of love is not hate. It is fear.
+ - For every action there is an equal and opposite reaction. You receive from the world what you give to the world.
+ - Creating authentic power means aligning your personality with your soul.
+ - Eventually, you will come to understand that love heals everything, and love is all there is.
+ - You create your reality with your intentions.
+ - The purpose of soul questions is to open yourself deeper and deeper until all that is left is the power and beauty you are bringing to the lives of others.
+ - Scarcity of self value cannot be remedied by money, recognition, affection, attention or influence.
+ - There’s no such thing as being alone in the universe, and so there’s no such thing as creating alone. Everything – every impulse, every creative gift of beauty, everything is a co-creation.
+ - Your pain is an opportunity for you to learn about yourself.
+ - We cannot control what emotions or circumstances we will experience next, but we can choose how we will respond to them.
+ - If you are fully aligned with your soul it will be your pleasure, your joy to always move toward cooperation, toward sharing, toward reverence for life. You will not be torn.
+ - Practice moderation in all things except love.
+ - What is behind your eyes holds more power than what is in front of them.
+ - Your heart is your home, and all roads lead to home.
+ - When you strive for perfection, you compare different versions of what could be instead of being present with what is. Perfectionism is an attempt to inhabit an imaginary world in order to avoid experiencing the world in which you live.
+ - Spiritual growth requires the development of inner knowing and inner authority. It requires the heart, not the intellect.
+ - Caregiving has no second agendas or hidden motives. The care is given from love for the joy of giving without expectation, no strings attached.
+ - The choice that frees or imprisons us is the choice of love or fear. Love liberates. Fear imprisons.
+ - Feel your intentions in your heart. Feel not what your mind tells you, but what your heart tells you.
+ - Your impact on the world is significant whether or not you are aware of it, and even whether or not you desire it.
+ - The loving personality seeks not to control, but to nurture, not to dominate, but to empower.
+ - An authentically powered person lives in love. Love is the energy of the soul. Love is what heals the personality. There is nothing that cannot be healed by love. There is nothing but love.
+ - Relax into the present moment.
+ - According to quantum mechanics there is no such thing as objectivity. We cannot eliminate ourselves from the picture. We are part of nature, and when we study nature there is no way around the fact that nature is studying itself.
+ - When the personality comes to serve the energy of the soul that is authentic empowerment.
+ - Lack of self-worth is the fundamental source of all emotional pain. A feeling of insecurity, unworthiness and lack of valueis the core experience of powerlessness.
+ - The road to your soul is through your heart.
+ - Perfectionism is a perpetual flight into an illusory future that cannot be attained.
+ - A responsible choice is a choice that creates consequences that you are willing to assume responsibility for.
+ - We cannot stop the winter or the summer from coming. We cannot stop the spring or the fall or make them other than they are. They are gifts from the universe that we cannot refuse. But we can choose what we will contribute to life when each arrives.
+ - If you choose to forgive someone who has wronged you rather than to hate that person, you shift the frequency of your Light.
+ - When we judge, we create negative karma. When we say of an action: ‘This is right,’ or, ‘That is wrong,’ we create negative karma.
+ - The loving parts of your personality have no trouble loving. That is all they do. You experience the loving parts of as gratitude, appreciation, caring, patience, contentment and awe of life.
+ - If your addiction lingers, ask yourself if you really want to release it, because in your heart you do not.
+ - Intuition is a walkie-talkie between the personality an the soul.
+ - No birth is an accident, No experience is without meaning, and no life is without value.
+ - When you ask the Universe to bless you in your effort to align yourself with your soul, you open a passageway between yourself and your guides and Teachers. That is what a blessing is: the opening of a passageway between you and nonphysical guidance.
+ - Trust allows you to give. Giving is abundant. As you give so it shall be given to you. If you give with judgment, limitation and stinginess, that is what you will create in your life – judgment, limitation, and stinginess.
+ - Can you be compassionate even to those who have no compassion? If so, there is no finer karma that you can create.
+ - Your life is yours to live, no matter how you choose to live it. When you do not think about how you intend to live it, it lives you. When you occupy it, step into it consciously, you live it.
+ - Commitment to love – to growth, to authentic power is an everyday application of your will.
+ - If you strive only to avoid the darkness or to cling to the light, you cannot live in balance. Try striving to be conscious of all that you are.
+ - Your personality, your body, you intuitional structure. These are all tools; energy tools of the soul. Your soul existed before your personality came into being, it will exist after your personality came into being.
+ - Angry people attract angry people and live in an angry world and this validates their opinion that the world is angry.
+ - No two people have the same reality.
+ - The soul of an individual; your soul and my soul, is that part of us that is immortal. Your personality is that part of you that was born into time, that matures in time, or at least grows older in time and then decays and passes away.
+ - Realize you are worthy of your life and live accordingly.
+ - You do not stop losing power by refusing to recognize your fear, by anesthetizing yourself to what you feel. The road to authentic power is always through what you feel through your heart.
+ - The only permanent and constructive changes you can make in the world are the changes that you make in yourself.
+ - Without an awareness of our feelings we cannot experience compassion. How can we share the sufferings and the joys of others if we cannot experience our own?
+ - A spiritual partnership is a partnership between equals for the purpose of spiritual growth. Spiritual partners use their delightful experiences together as well as their power struggles to learn about themselves and change themselves.
+ - You have a sacred contract with the Universe, and no one can fulfill it except you.
+ - Be mindful of the words that you use and the actions that you live and who you are and how it is you use your power. Keep clear at all times that you are what you say you are.
+ - Authentic power is the energy that Is formed by the intentions of the Soul. It is the light shaped by the intentions of love and compassion guided by wisdom.
+ - The true human condition in its most perfect form has no secrets. It does not hide, but exists in clear love.
+ - Humbleness, forgiveness, clarity and love are the dynamics of freedom. They are the foundations of authentic power.
+ - When you feel yourself in the grip of an emotion such as jealousy or anger or sorrow, detach yourself from it. Take a step back. When you do that, you can allow the emotion to run through you without causing negative thoughts or actions.
+ - Allow yourself to experience what it is to learn step by step the freedom that comes from being unattached to the outcome, but operating from an empowered heart.
+ - The worst thing you can do for love is deny it; so when you find that special someone, don’t let anyone or anything to get in your way.
+ - The hardest times to choose love become the very times that you can most grow spiritually.
+ - Do not lose power over the what-ifs of your life. These are unlimited and endless. Keep your power in the now, in present time.
+ - Change in yourself what you want to change in the world.
+ - Being harmless means being so strong, so empowered, that the idea of showing power through harm is not even a part of your consciousness.
+ - Most people use their energy attempting to rearrange circumstances that trigger painful emotions. Changing external circumstances will not change your rigid patterns of emotional response. That requires looking at the patterns themselves.
+ - When you ask for help listen. It’s one thing to ask the question and it’s another thing to listen to the answer. Many people ask questions but they do not like what they hear and so they pretend that they heard nothing at all.
+ - I see the potential for a new world being born in front of me and all around me, and I feel the only way to bring that potential into being is to know myself.
+ - Choosing not to act on an angry impulse and to feel the pain that lies beneath it is a very courageous thing to do.
+ - What is nonsense, and what is not, then, may be merely a matter of perspective.
+ - Try to realize, and truly realize, that what stands between you and a different life are matters of responsible choice.
+ - You experience your soul each time you sense yourself as more than a mind and body, your life as meaningful, or you feel that you have gifts to give and you long to give them.
+ - What happens behind your eyes is more important than what happens in front of them. This is a reversal from the way that we have been taught and the way that we had experienced the world as five sensory humans.
+ - Joy is a very high frequency current of energy with a great deal of energy content. Somebody who is joyful has a lot of energy.
+ - Throughout your life, your inner landscape presents its contents to you again and again. When you are aware of all its elements, you are in continual communication with your soul.
+ - With each choice that you make to align yourself with the energy of your soul, you empower yourself. Authentic power is built up step by step, choice by choice. It cannot be meditated or prayed into being. It must be earned.
+ - Authentic power is the real deal. You can’t inherit it, buy it, or win it. You also can’t lose it. You don’t need to build your body, reputation, wealth, or charisma to get it.
+ - Ponder the depth and the power of loyalty-the ability to serve and support a cause greater than yourself.
+ - When someone fears losing your affection, he or she will strive to keep it. Perhaps you have strived to keep someone’s affection, too. Fear of loss is not love.
+ - Caregiving requires the intention of love, caretaking requires the intention of fear. Not acting in anger when you are angry requires the intention of love.
+ - As people become multisensory, they begin to realize that their lives are meaningful, that there’s a purpose to all of their experiences – to the people that they meet, to the challenges that they have, that nothing is random.
+ - Love is not a passive state. It is an active force. It is the force of the soul.
+ - The commitment to love always transforms, heals, and opens new avenues of creativity.
+ - Emotional pain of any kind is a reminder to stop and look inside.
+ - Our fundamental relationship is soul-to-soul. As we become multi-sensory, we become aware of it.
+ - We have much to do together. Let us do it in wisdom and love and joy. Let us make this the human experience.
+ - Truth is that which does not contaminate you, but empowers you. Therefore, there are degrees of truth, but, generically, truth is that which can do no harm. It cannot harm.
+ - When our actions create discord in another person, we, ourselves, in this lifetime or another, will feel that discord. Likewise, if our actions create harmony and empowerment in another, we also come to feel that harmony and empowerment.
+ - If your intention is to give, you will not be concerned with how your actions are perceived.
+ - Authentic needs are the needs that are always met by the Universe.
+ - Humble spirits are free to love and to be who they are. They have no artificial standards to live up to.
+ - In a spiritual partnership you learn that wanting what you want is not enough, but that you must both want it deeply and create it every day, that you must bring it into being and hold it in being with your intentions.
+ - Emotions reflect intentions. Therefore, awareness of emotions leads to awareness of intentions.
+ - Knowledge is power, and for each level of knowledge, you are held responsible for how you use it.
+ - Where your attention goes, you go.
+ - Religions cannot change you. If you are angry, you will become an angry Muslim or Hindu. If you are righteous, you will become a righteous Christian or Jew.
+ - A glorious life is filled with companions who have open hearts.
+ - Reverence is an attitude of honoring Life. You do not have to be authentically powered to be gentle with Life or to love Life.
+ - Love is not emotion, it’s a way of being.
+ - I cannot create authentic power in you. I can only create authentic power in myself. But, I cannot create it in myself without you.
+ - How does your heart respond to the thought that the Universe is alive and compassionate and that with it and with other souls of great power and Light you learn through the process of co-creating the reality that you experience?
+ - You cannot act in love and act in fear at the same time. You must choose between them.
+ - There is no difference between acute schizophrenia and a world at war.
+ - If we perceived life with reverence, we would stand in awe at the experience of physical life and walk the earth in a very deep sense of gratitude.
+ - When you know your intention, you are in a position to choose the consequences that you will create for yourself. When you choose an intention that creates consequences for which you are willing to be responsible, that is a responsible choice.
+ - A joyous person abounds with energy and feels buoyant, because he or she is running a higher frequency current of energy through his or her system.
+ - The intellect is no longer the chairman of the board – it is an employee. It becomes a tool in the service of the heart.
+ - If you are not conscious of all of the different parts of yourself, the part of yourself that is the strongest will win out over the other parts. Its intention will be the one that the personality uses to create its reality.
+ - The only way to become authentically powerful is to create authentic power. You cannot wish, want, or command authentic power into your life, although you can try.
+ - Following your feelings will lead you to their source. Only through emotions can you encounter the force field of your own soul.
+ - Changing the world begins with the very personal process of changing yourself, the only place you can begin is where you are, and the only time you can begin is always now.
+ - A power struggle collapses when you withdraw your energy from it. Power struggles become uninteresting to you when you change your intention from winning to learning about yourself.
+ - The first step toward spiritual growth is to become aware of your emotions.
+ - Hatred of evil does not diminish evil, it increases it.
+ - The journey from love to love. This is the journey all of us are on- what happens between teh beginning and end of the journey is your life.
+ - The first man to see an illusion by which men have flourished for centuries surely stands in a lonely place.
+ - Trust allows you to follow your feelings through your defenses to their sources, and to bring to the light of consciousness those aspects of yourself that resist wholeness, that live in fear.
+ - What we call evil is the absence of Light, of love, in all cases.
+ - The illusion holds power over you when you are not able to remember that you are a powerful spirit that has taken on the physical experience for the purpose of learning.
+ - The spring wakes us, nurtures us and revitalizes us. How often does your spring come? If you are a prisoner of the calendar, it comes once a year. If you are creating authentic power, it comes frequently, or very frequently.
+ - The circumstances of your life are neither good nor bad. They are appropriate to the needs of your soul. They may or may not be what your personality desires.
+ - Be aware of emotional toxins as well as physical toxins. Be aware of what you are thinking. Clear yourself at the end of every day. Try not to go to bed angry or distressed or anxious or jealous or envious.
+ - Everyone wants to learn the same thing from painful situations: how to avoid repeating them.
+ - If you wish the world to become loving and compassionate, become loving and compassionate yourself.
+ - You are a dynamic being of Light that at each moment informs the energy that flows through you. You do this with each thought, with each intention.
+ - The only things standing between you and the compassionate, wise, and creative person you want to be are matters of choice. Your choice. No one can occupy your generosity except you.
+ - Medical treatment is emergency care for symptoms that have developed over a long period of time. The symptom is the flower on a plant. Treating the symptom is picking the flower, while the plant remains untouched.
+ - Temptation is a dress rehearsal for a karmic experience of negativity.
+ - With each of the choices that we make, we create consequences and we ourselves experience those consequences. If you harm another soul. If you cause pain or trauma in another soul, you yourself will experience that trauma.
+ - You are only as powerful as that which you stand.
+ - You gain or lose power according to the choices that you make.
+ - We have always been involved in spiritual evolution. We are spiritual beings, we have always been spiritual beings and we will always be spiritual beings.
+ - He who sees his soul is more than his life does not confuse the two.
+ - Until you can say what is most difficult for you to say, you cannot speak from your heart, live unafraid, create health, or receive support from others.
+ - If you want to have the kind of relationship that your heart yearns for, you have to create it. You can’t depend on somebody else creating it for you.
+ - If you decide that you cannot beat a temptation, what you are really doing is giving yourself permission to be irresponsible.
+ - Look at yourself as someone who is reaching for healing, and at the complexity of what needs to be healed. Do not think that you exist alone without other human beings of equal complexity.
+ - Commitment and creativity cannot be captured and handcuffed. Inspiration cannot be jailed. The heart cannot be contained.
+ - Acceptance without proof is the fundamental characteristic of Western religion, rejection without proof is the fundamental characteristic of Western science.
+ - There is no scientific way to validate anything that I or you can say about the soul because science cannot validate the existence of the soul any more that it can prove the existence of God.
+ - Spiritual growth-looking inward-is replacing the pursuit of external power-reaching outward to manipulate and control-as the cure for the insecurity at the core of human experience.
+ - The more you create authentic power, the more the characteristics of authentic power become yours, and the more meaning, purpose and joy enter your life.
+ - Whenever there’s the experience of a broken heart, there’s the experience of fear.
+ - Your life is an opportunity to give the gifts that your soul wants to give.
+ - The desire to please other people is a potent way to distract yourself from what you are feeling.
+ - It is not until you have the courage to engage in human relationships that you grow.
+ - When you seek to dominate another you dominate no one but disempower yourself.
+ - The amount of stress in your life is determined by how much energy you expend resisting your life.
+ - Evil needs to be understood for what it is: the dynamic of the absence of Light. It is not something that one should prepare to battle, to run from, or to outlaw.
+ - When you become completely loving and kind without fear and without thought of harming others, you graudate from the Earth school. That is when reincarnation ends.
+ - Subatomic particles do not just sit around being subatomic particles. They are beehives of activity.
+ - When the pain of continuing exceeds the pain of stopping, a threshold is crossed. What seemed unthinkable becomes thinkable.
+ - The challenge to each human is creation. Will you create with reverence, or with neglect?
+ - To experience relationships of substance and depth requires approaching and entering into relationships with consciousness and concern for the other.
+ - Your experiences are not limited to what you have created in the past.
+ - If you are doing all you can to the fullest of your ability as well as you can, there is nothing else that is asked of a soul.
+ - What we think of as physical reality is an intermingling of appropriate realities, a fluid massive consciousness in which each of us exists independently of each other and yet coexists interdependently with each other.
+ - You must distinguish between what is urgent and what is important. You could accomplish all of the urgent things that you desire without accomplishing anything that is important.
+ - You lose power to the people and circumstances you judge. They capture your attention in the same way that a movie does.
+ - Within each experience of pain or negativity is the opportunity to challenge the perception that lies behind it and to choose to learn with wisdom.
+ - Your dragons are the frightened parts of your personality, and you alone can experience and heal them.
+ - When you die, you don’t go to sleep. You go home to nonphysical reality, and you are very much awake.
+ - Judging is a preemptive attack against that which you most desire – intimacy and acceptance – that is launched before you can be rejected or refused.
+ - Forgiveness means that you do not carry the baggage of an experience.
+ - When you make the connection between your choices and your experiences, you do not have to create the same experiences again.
+ - Becoming integrated and whole is the spiritual path. The body is your vehicle. Your job is to learn about yourself from your experiences and change yourself. This is spiritual growth.
+ - Reverence is simply the experience of accepting that all Life is, in and of itself, of value.
+ - You must experience everything that you are feeling. This is what will lead you to the splintered parts of your personality.
+ - Love does more than bring peace where there is conflict. It brings a different way of being in the world.
+ - The illusion for each soul is created by it intentions. Therefore, the illusion is alive at each moment with the most appropriate experiences that you can have in order for your soul to heal.
+ - We need truth to grow in the same way that we need vitamins, affection and love.
+ - Individuals who attempt to please and individuals who become angry both have authority issues.
+ - Painful emotions show you what prevents you from creating harmony, cooperation, sharing and reverence for life.
+ - The purpose of this life and all its experiences is not to make ourselves what we think we should be. It is to unfold who we already are.
+ - There is not one soul on this planet, whether it is a person living in Ethiopia, or in Florida, or in Canada, whose life is not as complex and as rich as your own.
+ - Remind yourself that you are supported, that you are not going it alone upon this Earth. Dwell in the company of your Non-Physical Teachers and Guides.
+ - A new species is being born inside each one of us. Eventually, we will all express the perceptions and values of this new species.
+ - The only event in the history of our species that compares with this one is Genesis. And this is a new kind of Genesis, the Genesis of our species into conscious awareness.
+ - The place to begin the task of eliminating evil is within yourself.
+ - It is impossible to have a prayer without power.
+ - Your personality is a tool of your soul.
+ - As your temptations become greater, so does your ability to make responsible choices.
+ - You cannot create a life of fulfillment, joy, and meaning while you are barricading yourself from others and from the opportunities Life offers you.
+ - Our experiences of the Solstice depends entirely upon where we are when it occurs. Neither Solstice encompasses everyone. Neither can. The Solstices stand forever opposed, literally at the two poles of our Earth and experiences.
+ - The power of the heart is the power of Life.
+ - When fear ceases to scare you, it cannot stay.
+ - The body is the instrument of the soul.
+ - What is in one is in the whole, and therefore, ultimately, Each soul is responsible for the whole world.
+ - We shall come to honor all of Life sooner or later. Our choices are when that shall happen, and the quality of experience that we shall have as we learn.
+ - The number of teachers and guides that a soul has depends upon what it seeks to accomplish and its level of awareness. Souls that take upon themselves projects of more magnitude bring to themselves more assistance.
+ - Awareness is a blissful state, not a painful one.
+ - Don’t be surprised if in the 21st century lectures on meditation appear in university catalogues for physics.
+ - You are a soul that is temporarily utilizing your body.
+ - The most important choices you make are the choices about how you see yourself, the Universe, and your relationship to the Universe.
+ - Choice is the engine of our evolution.
+ - Try looking at life as a beautifully well-organized dynamic.
+ - As you come to seek and see the virtues and strengths and nobilities of others, you begin to seek and see them in yourself also.
+ - When you interact with another, an illusion is part of this dynamic. This illusion allows each soul to perceive what it needs to understands in order to heal.
+ - Do you love the truth more than you need to be loved, or do you need to be loved more than you love the truth?
+ - Clarity is the ability to see the soul in action in the physical world.
+ - The Universe backs the part of you that is of clearest intention.
+ - When you choose not to forgive, the experience that you do not forgive sticks with you.
+ - Open to others as you would like them to open to you.
+
+201 quotes

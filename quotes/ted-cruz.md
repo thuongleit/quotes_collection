@@ -1,0 +1,201 @@
+ - The American free market system is the greatest engine for prosperity and opportunity that the world has ever seen. Freedom works.
+ - A good impression is great. But a bad impression is even better.
+ - Popularity isn’t the end-all, be-all. What matters far more is that you stick to your principles, that you stand up and you live a life of integrity.
+ - It’s going to take a new generation of courageous conservatives to help make America great again.
+ - Always be sexy. I salute that message.
+ - Were it not for the transformative love of Jesus Christ, I would have been raised by a single mom without my father in the household, this is our fight, and that is why I’m running for president.
+ - I will fight to defend liberty.
+ - President Reagan stood for conservative principles in a way that brought people together.
+ - Keep government out of the money of the people, schools of the people, and will of the people.
+ - I am blessed to receive a word from God every day in receiving the scriptures and reading the scriptures. And God speaks through the Bible.
+ - I would note that the scripture tells us, “you shall know them by their fruit.” We see lots of “campaign conservatives.” But if we’re going to win in 2016, we need a consistent conservative, someone who has been a fiscal conservative, a social conservative, a national security conservative.
+ - The court doesn’t follow public opinion. The court’s views are radically out of step with public opinion.
+ - Imagine a legal immigration system that welcomes and celebrates those who come to achieve the American dream.
+ - Fifty-five years ago, when my dad was a penniless teenager, thank God some well-meaning bureaucrat didn’t put his arm around him and say let me take care of you.
+ - I am perfectly happy to compromise and work with anybody. Republicans, Democrats, Libertarians. I’ll work with Martians. If – and the if is critical – they’re willing to cut spending and reduce the debt.
+ - Remember the lessons of history – if we don’t learn from history, we’re bound to repeat it.
+ - Politically correct enforcement that’s out there in our society has tightened things down to the point where people just walk on eggshells and they are afraid to address things that are really on their mind.
+ - The immigrant experience of all of us is what makes us Americans, because we value in our DNA liberty and opportunity above all else.
+ - I have been proud to fight and stand for religious liberty, to stand against Planned Parenthood, to defend life for my entire career.
+ - The problem we have is not Democrats versus Republicans. It is a Washington cartel. I’ve said many times the biggest divide we have politically is not between Republicans and Democrats. It’s between career politicians in both parties and the American people.
+ - It took Jimmy Carter to give us Ronald Reagan.
+ - If you want someone to grab a beer with, I may not be that guy. But if you want someone to drive you home, I will get the job done and I will get you home.
+ - I think Super Tuesday is the most important day of this entire primary election. It is the most delegates awarded in a single night will be awarded on Super Tuesday.
+ - I endeavor to shine a light on what’s happening behind closed doors in the back-door deal making that so many Americans understand is going on but they don’t quite understand how or why, but they know that our elected leaders are lying to us.
+ - Social justice is collectivism. Social justice is the rights of a group. It denies individual responsibility. It’s a negation of individual responsibility, so social justice is totally contrary to the Word of God.
+ - ISIS and radical Islamic terrorism will face no more determined foe than I will be.
+ - I will tell you, as president, I’m not going to be neutral. America will stand unapologetically with Israel.
+ - Of course, without God, there is no value to life. That leads to immorality, that leads to sexual abuse, and there is no hope.
+ - The day General Soleimani flew back from Moscow to Iran was the day we believed that Russia used cyber warfare against the joint chiefs. We need a new commander in chief that will stand up to our enemies.
+ - Do you know how many aliens Bill Clinton deported? 12 million. Do you know how many illegal aliens, George W. Bush deported? 10 million. We can enforce the laws and if we secure the border, that solves the problem. And as president I will solve this problem and secure the border.
+ - In the 13 months I’ve been in the Senate, it has become apparent to me the single thing that Republican politicians hate and fear the most, and that is when they’re forced to tell the truth. It makes their heads explode.
+ - I’ll fight with every breath in my body to stop the out of control spending and debt that are bankrupting our kids and grandkids.
+ - We need to focus on killing the bad guys, not getting stuck in Middle Eastern civil wars that don’t keep America safe.
+ - I want you to take a good, hard look at me, America, because this is exactly what you’ve got coming.
+ - The whole world’s on fire.
+ - If I’m elected president, let me tell you about my first day in office. The first thing I intend to do is to rescind every illegal and unconstitutional executive action taken by Barack Obama.
+ - Social justice is group psychology, it’s group rights, it’s collectivisim, and it’s a negation of individual responsibility, which is what the Bible teaches. Individual responsibility. And of course, social justice leads very quickly to socialism, and ultimately to communism.
+ - One of the specific powers and responsibilities of the federal government is to secure the borders. Property can be taken with due process of law and just compensation.
+ - But we don’t have a right to force anyone to abandon their faith. It is one of the foundational commitments of who we are as Americans to respect diversity.
+ - Start being biblically correct, instead of politically correct.
+ - He had ‘deep concerns’ with the pathway to citizenship for the nation’s 11 million illegal immigrants under consideration by the group, calling it ‘profoundly unfair’ to legal immigrants.
+ - There is no moral absolute, and this leads us to situational ethics, which unfortunately is being taught in public schools all over America. This means that right and wrong is dependent upon the circumstances.
+ - Ronald Reagan reignited the American economy, rebuilt the Military, bankrupted the Soviet Union and defeated Soviet Communism. I will do the same thing.
+ - I don’t think it’s government’s job to find health care for people. I think it’s the individual’s job to find health care.
+ - Climate change is the perfect pseudoscientific theory for a big government politician who wants more power. Why? Because it is a theory that can never be disproven.
+ - If standing for liberty and the Constitution makes you a Wacko Bird, then count me a proud Wacko Bird.
+ - Marxism requires that we destroy God, because government must become God. And the only way for government to become God is to destroy the concept of God.
+ - The USA Freedom Act expands that so now we have cell phones, now we have Internet phones, now we have the phones that terrorists are likely to use and the focus of law enforcement is on targeting the bad guys.
+ - You don’t have to solve every problem at once.
+ - My father fled Cuba, and I will fight to defend liberty because my family knows what it’s like to lose it.
+ - If we want to defend the country, we have to defend against who’s coming in.
+ - If you join ISIS, if you wage jihad on America, then you are signing your death warrant.
+ - What I am endeavoring to do is simply speak the truth, speak common-sense values, free market principles and the Constitution. For every question, the Constitution is my touchstone.
+ - Since there are no absolutes, when it’s convenient, you change the rules. Do we know any politicians that have done that?
+ - You would carpet bomb where ISIS is, not a city, but the location of the troops. You use air power directed – and you have embedded special forces to direction the air power. But the object isn’t to level a city. The object is to kill the ISIS terrorists.
+ - We don’t have storm troopers that just knock on the door of every American citizen. We don’t do that for any crime. But when we have evidence that a particular person has committed a crime, we send law enforcement to apprehend them.
+ - I think it’s an enormous blessing to be the child of an immigrant who fled oppression, because you realize how fragile liberty is and how easily it can be taken away.
+ - Let me tell you, communism does not work! Socialism does not work!
+ - If you want to beat Donald Trump, you know, one of the clearest indications of who can beat Trump is Donald spends every waking moment attacking me. He doesn’t attack any other candidates, because his campaign views us as the only real threat to him.
+ - We have to stop acquiescing even to the wording that the liberals use.
+ - Millions of Americans are standing up and saying, ‘We want our country back!’ Republicans, Democrats, Independents, will not go down the path of Greece, we will not go quietly into the night.
+ - The last 15 years, there has been no recorded warming. Contrary to all the theories that they are expounding, there should have been warming over the last 15 years. It hasn’t happened.
+ - A path to citizenship for those who are here illegally in my view is unfair to those waiting sometimes a decades in line to come here.
+ - Washington wants ObamaCare, the people want freedom. Washington wants amnesty, the people want rule of law. Washington wants power over the internet, the people want freedom online.
+ - We need a consistent conservative, someone who has stood for free market principles, who has stood for the Constitution and, critically, who stood for the working men and women of this country.
+ - We will stop the terrorist attacks before they occur because we will not be prisoners to political correctness. Rather, we will speak the truth. Border security is national security and we will not be admitting jihadists as refugees.
+ - Preventing people from illegally immigrating to the United States should be the primary purpose of Customs and Border Protection.
+ - I get that the media wants us to play theater critics and critique every other proposal. What I’m focusing on are my own policy proposals.
+ - It is profoundly troubling when you have Supreme Court justices not following their judicial oath. And taking the role of policy makers and legislators, rather than being judges.
+ - How do we get America back to work? President Obama thinks the answer is more and more government. Government is not the answer. You are not doing anyone a favor by creating dependency, destroying individual responsibility.
+ - Free enterprise system was born the second year the pilgrims were here. And of course, it has made America the most prosperous country in the world.
+ - We need to use overwhelming air power. We need to be arming the Kurds. We need to be fighting and killing ISIS where they are.
+ - We don’t have a system that knocks on doors of every person in America.
+ - Twenty years from now if there is some obscure trivial pursuits question, I am confident I will be the answer.
+ - The proper way to make policy changes is for you to convince your fellow citizens that there is a better policy outcome than the current one. And then in state legislatures, for those state legislatures to vote that change.
+ - What the USA Freedom Act did is it did two things. Number one, it ended the federal government’s bulk collection of phone metadata of millions of law-abiding citizens.
+ - America has receded from the world. Today our friends and allies don’t trust us. And our enemies don’t fear us. I think we should get back, number one, to American leadership in the world.
+ - I am perfectly happy to compromise whether it’s with Democrats or anybody else, as long as we’re reducing the size of government.
+ - I have spent almost my entire adult life fighting to defend the religious liberty of every American to follow his or her faith and live according to his conscience.
+ - We need a president that shows the courage that Egypt’s President al-Sisi, a Muslim, when he called out the radical Islamic terrorists who are threatening the world.
+ - The National Enquirer is complete garbage, it is total lies, it was planted by Donald Trump’s henchmen, and I don’t think the people of Wisconsin or the people of America have any interest in tabloid trash.
+ - Donald Trump threatened to file a defamation suit against me for running a TV ad that consisted only entirely of his own words on national television. Now, that’s really a remarkable theory, that it is defamation to show people what he said on national TV. I think the voters are smarter than that.
+ - Because the math is, if you – 5 percent of a million is a lot more than 5 percent of a thousand. So yeah, someone who makes more money, numerically, it’s gonna be higher. But the greatest gains, percentage-wise, for people, are gonna be at the lower end of our plan.
+ - What I’ve tried to do in politics is two very simple things: tell the truth and do what I said I would do.
+ - The American people want jobs and economic growth. Congress is doing nothing to provide that. The American people want their constitutional liberties protected. Congress is doing nothing to provide that.
+ - There are more words in the IRS code than there are in the Bible. And not a one of them is as good.
+ - Instead of being a Woodrow Wilson democracy promoterwe ought to hunt down our enemies and kill ISIS rather than creating opportunities for ISIS to take control of new countries.
+ - President Obama fuels that perception. That will change when militants across the globe see that when you join ISIS that you are giving up your life, you are signing your death warrant.
+ - I introduced legislation in the Senate that I believe is more narrowly focused at the actual threat, which is radical Islamic terrorism, and what my legislation would do is suspend all refugees for three years from countries where ISIS or Al Qaida control substantial territory.
+ - I have never supported amnesty, and I led the fight against Chuck Schumer’s gang of eight amnesty legislation in the Senate.
+ - And that was always our plan. Do well in the first three states, and then compete and have a very strong night on Super Tuesday. I think we’re ideally positioned to do exactly that.
+ - A brand new Telemundo poll says that three out of four Hispanics that vote nationwide have a negative opinion of Doanald Trump. They don’t like you.
+ - This election presents a stark choice – we can continue down the road of the Obama Democrats, more and more spending, debt and government control of the economy, or we can return to the founding principles of our nation – free markets, fiscal responsibility and individual liberty.
+ - Voters are hungry for principled, conservative fighters – because the threat to our liberties from Washington never has been greater.
+ - We’re saying the Washington establishment run behind Donald Trump.
+ - I believe over the long term he’s going to have the money, and he’s got the message, that this is going to be one of the finalists for the presidential campaign.
+ - What I endeavor to do is shine a light on what happens at the court, both as a law clerk and then as a litigator litigating and winning major cases in front of the Supreme Court over and over and over again.
+ - As conservatives, as Republicans, we keep winning elections. We got a Republican House, we’ve got a Republican Senate, and we don’t have leaders who honor their commitments. I will always tell the truth and do what I said I would do.
+ - Any military force should be dictated by the vital national security interests of the United States. And if and when we use force, we should use overwhelming force for a clearly stated objective. And then when we’re done, we should get the heck out.
+ - I believe everyone here has a right to speak out on politics as effectively as possible.
+ - There’s a real danger when people get distracted by peripheral issues. They get distracted by democracy building. They get distracted about military conflicts. We need to focus on defeating jihadism.
+ - A debate actually is a policy issue but I will say this – gosh, if you guys ask one more mean question, I may have to leave the stage.
+ - I offer myself as a leader to the people of this country because I think they’re looking for solutions, not lawyers arguing over laws or entertainers throwing out sound bites that draw media attention. We need to solve the problem.
+ - The essence of the conservative message should be we want a dynamic nation where anybody with nothing can achieve anything.
+ - We are still a nation of laws. You just have to check with Barack Obama every day to see what they are.
+ - What I put forward was an amendment that would have temporarily halted immigration from high-risk terrorist countries, but would have started it up, but I wanted them to go through Global Entry, which is a program where we do background checks.
+ - Donald Trump tweeted out to the world a quote allegedly from Senator Tom Coburn impugning my honesty. Within hours, Tom Coburn came out publicly and said, “That quote was an utter fabrication.”
+ - The proper way to make policy decisions under our Constitution in America is for the people to do so through the democratic process.
+ - Political correctness is bad.
+ - President Obama, when he was elected, he could have been a unifying figure. He could have chosen to be a leader on race relations and bring us together. And he hasn’t done that, he’s made decisions that I think have inflamed racial tensions that have divided us rather than bringing us together.
+ - We’re seeing something fairly remarkable happen on the political train. We’re seeing the Washington establishment abandoning Marco Rubio. I think they’ve made the determination that Marco can’t win. And they’re rushing to support Donald Trump.
+ - We’re seeing is young people who are optimistic, who want a future, want our constitutional rights, are coming to our campaign.
+ - I do think we should be focused on substance and record. If you want a candidate who opposes amnesty, who opposes citizenship for the 12 million people here illegally, I’m the only candidate in the race who opposes that.
+ - We need a president who stands up, number one, and says, we will defeat ISIS. And number two, says the greatest national security threat facing America is a nuclear Iran.
+ - The court follows elite opinion, not public opinion. And Democratic leaders in Congress and Republican leaders in Congress follow elite opinion as well. It’s what I’ve called “the Washington cartel.” It’s career politicians in both parties. It is lobbyists and giant corporations.
+ - We are seeing a great awakening. A national movement of We the People, brought together by what unites us – a shared love of liberty, and an understanding of the unlimited potential of free men and free women.
+ - I think the first and principle objective is to repeal Obamacare before it does lasting, fundamental damage to our health care system, to our individual liberty, to the relationship each of us has with his or her doctor.
+ - Every month, we get the reports from the Bureau of Labor Statistics that say even more people have given up looking for work.
+ - Do you know the rate of military enlistment among Hispanics is higher than any demographic in this country?
+ - ISIS and Iran have declared war on America, and we need a commander in chief who will do everything necessary to keep our children safe.
+ - If you can stitch together that kind of coalition with young people, bringing together conservatives and evangelicals – and I will tell you, in Iowa, we also won Reagan Democrats, working-class voters.
+ - When you had a terrorist, you could only search a relatively narrow slice of numbers, primarily land lines.
+ - About 65 percent of Republicans believe that Donald Trump is not the best candidate to go head to head with Hillary Clinton.
+ - ISIS says they want to go back and reject modernity? Well, I think we should help them. We ought to bomb them back to the Stone Age!
+ - A lot of times your spouse sees things about you that you don’t necessarily see.
+ - Liberty is never safer than when politicans are terrified.
+ - Well, guess what, I’m Cuban! And no self-respecting Cuban man of the era would let his wife work.
+ - Every day, I come home with a spring in my step. We’ve got to work together to stop the Obama agenda and take this country back.
+ - What I think is at stake in 2012, is whether the five or six strong conservatives elected to the Senate in 2010 become 10 or 12. And if that happens, it will fundamentally shift the character of the Senate. It will shift the balance.
+ - Donald Trump agreed with Hillary Clinton supporting John Kerry. He agreed with Hillary Clinton on being – quote – “neutral” between Israel and the Palestinians.
+ - We have 400,000 small businesses forming every year in this country. How great is that? They are employing themselves, they are potentially employing others. The bad news is, we have 470,000 going out of business every year. And why? They cite Obamacare.
+ - We’ll be getting new health insurance and we’ll presumably do it through my job with the Senate, and so we’ll be on the federal exchange with millions of others on the federal exchange.
+ - If as a voter you think what we need is more Republicans in Washington to cut a deal with Harry Reid and Nancy Pelosi and Chuck Schumer, then I guess Donald Trump’s your guy.
+ - Listen, if you’re a hardworking steelworker or truck driver, that drives down your wages. That takes away your jobs.
+ - If you want a candidate who is led the fight against Obamacare, who will lift the burdens on small businesses and bring back jobs, I’m the only candidate in the race with that proven record.
+ - If I’m elected president, we will secure the border. We will triple the border patrol. We will build a wall that works and I’ll get Donald Trump to pay for it.
+ - Mike Huckabee says the answer to our problems is to cure all diseases. I guess no one’s thought of that before.
+ - It is worth emphasizing that Iran released our hostages in 1981 the day Ronald Reagan was sworn into office.
+ - I don’t think we should be engaged in nation-building. It’s not our job to turn foreign nations into democratic utopias, to try to turn Iraq into Switzerland. It is the military’s job to hunt down and kill our enemies, to kill ISIS before they murder American citizens and they wage jihad.
+ - Hispanic unemployment is higher than the national average and when the federal government is killing small businesses and killing jobs it is hurting the future of the Hispanic community and we need to carry that message.
+ - There’s not a single Democrat here. It’s almost like CPAC invited Benjamin Netanyahu to speak. Well, we could have had Hillary here, but we couldn’t find a foreign nation to foot the bill.
+ - Barack Obama has said he doesn’t believe in American leadership or America winning – he is wrong. America can win again and we will win again.
+ - We’re seeing so many people come around and say, “Listen, we want a real conservative. We don’t want a Washington dealmaker who will support Democrats and cut deals to grow government and give into the cronyism and corporate welfare.”
+ - America is at war. Our enemy is not violent extremism. It is not some unnamed malevolent force. It is radical Islamic terrorist.
+ - The front line with ISIS isn’t just in Iraq and Syria, it’s in Kennedy Airport and the Rio Grande. Border security is national security.
+ - We need to focus on radical Islamic terrorists and we need to stop them before they carry out acts of terror.
+ - I think our nation faces enormous challenges, and we need leaders who are willing to tell the truth and do the right thing regardless of the consequences.
+ - I think if you’re at home and you don’t want Donald Trump to be the Republican nominee, then the only candidate who can beat Donald is our campaign. And so I would encourage, even if you like another candidate, stand with us if you don’t want Donald to be the nominee.
+ - But you know what? There’s far more pain involved in rolling over, far more pain in hiding in the shadows, far more pain in not standing for principle, not standing for the good, not standing for integrity.
+ - We need a much better understanding of the climate before making policy choices that would impose substantial economic costs on our Nation.
+ - The authorizing committees are free to set their agency budgets, and that includes NASA.
+ - I recognize that folks in the press love to see Republican-on-Republican violence, and so you want me to say something bad about Donald Trump, or bad about John McCain or bad about anyone else, i’m not going to do it.
+ - At the end of the day, the Washington establishment is going to go where they’re going to go.
+ - Everyone seems to have internalized the fact that you can say anything you want at a televised debate, and only a tiny fraction of the audience will ever see a fact-check. So why not claim the moon is square?
+ - I’m a big believer that good policy is good politics. And so, when it comes to making decisions on policy issues, what I endeavor to do is simply speak the truth.
+ - I believe the American people are looking for someone to speak the truth.
+ - The First Amendment exists to protect our religious liberty – to ensure that all Americans are able to seek out worship God with all our hearts, free from government coercion; it does not mandate scouring the public square to forcibly remove all acknowledgement s of the Almighty.
+ - I oppose amnesty, I oppose citizenship, I oppose legalization for illegal aliens. I always have and I always will.
+ - I think we need to be fighting for the working men and women of this country, not the moneyed New York interests.
+ - One of the things we’ve seen here is how easy it is for Barack Obama and Hillary Clinton to get distracted from dealing with radical Islamic terrorism. They won’t even call it by its name.
+ - I think President’s candidates need shock collars or something.
+ - This country is always changing. But my point about the Supreme Court is the Supreme Court didn’t wait for the country to change. Five unelected lawyers overruled 320 million Americans.
+ - If you see a candidate that Washington embraces, run and hide.
+ - I love Texas, I can’t wait in a couple of days to be home to the great state.
+ - In fact, I think we’re less safe. We get so distracted by all of the information, we’re not spending enough time getting specific immigration – specific information on terrorists.
+ - Every parent is wondering, how do we keep our kids safe? We need a commander in chief who does what Ronald Reagan did with communism, which is he set out a global strategy to defeat Soviet communism.
+ - You can’t get to a balanced budget and begin to pay down debt and thus create jobs in this country if you don’t have specific plans to make it work.
+ - One of the problems in Washington is there are far too many politicians who desperately just want to get re-elected.
+ - And many of the alarmists on global warming, they’ve got a problem cause the science doesn’t back them up. And in particular, satellite data demonstrate for the last 17 years, there’s been zero warming. None whatsoever.
+ - We are witnessing a great awakening. Millions of Texans, millions of Americans are rising up to reclaim our country, to defend liberty and to restore the Constitution.
+ - I don’t think I’m all that conservative.
+ - The grass roots are energized because the absolutely highest priority in the country in November is to defeat Barack Obama. I have spoken with literally thousands and thousands of tea-party activists – I have yet to meet a single tea-party leader that is not going to vote for Mitt Romney.
+ - The Court is making the preposterous assumption that the People of the United States somehow silently redefined marriage in 1868 when they ratified the 14th Amendment.
+ - We need a president who is focused on defeating every single ISIS terrorist and protecting the homeland, which should be the first priority.
+ - I’m very proud to have joined with conservatives in both the Senate and the House to reform how we target bad guys.
+ - It is my hope that all of the Republicans who recognize that nominating a candidate who agrees with Hillary Clinton on a host of issues, who has a very similar record, is not the path to victory. And if we come together, if conservatives stand together, we’re going to have a great night on Tuesday.
+ - We see a missile here, a bomb there – looks good on CNN. This is nonsense. This is not a strategy of a serious commander in chief.
+ - My touchstone for every question is the Constitution.
+ - We need to be focused on defeating radical Islamic terrorists.
+ - The Obama-Clinton economy has done enormous damage to the Hispanic community.
+ - I have never supported legalization, and I do not intend to support legalization.
+ - Mitt Romney and Paul Ryan understand that government does not create jobs. Entrepreneurs do.
+ - The most enduring legacy of President Barack Obama is going to be a new generation of leaders standing up for liberty.
+ - Instead of a president who boycotts Prime Minister Netanyahu, imagine a president who stands unapologetically with the nation of Israel.
+ - At the debate, Donald Trump backed off of his health care position for 20 years. For 20 years, he has agreed with Hillary Clinton and Bernie Sanders on socialized medicine, saying Obamacare doesn’t go far enough. He wants the government to pay for everyone’s health care and to control it.
+ - We need a president who understands the first obligation of the commander-in-chief is to keep America safe. If I am elected president, we will hunt down and kill the terrorists. We will utterly destroy ISIS.
+ - I want more rules, more scrutiny, and to defend the country.
+ - In my view, republican primary debates ought to be moderated by people who would vote in a primary.
+ - If you’re looking for someone to go to Washington, to go along to get along, to agree with the career politicians in both parties who get in bed with the lobbyists and special interests, then I ain’t your guy.
+ - Every candidate is going to come to you and say they are the most conservative person that ever lived.
+ - It’s critical to have a sound foundation in free-market economics and the Constitution. A great many Republicans in Washington don’t have that foundation.
+ - Marco Rubio said he was personally open over a long period of time to offering a path to citizenship for immigrants here illegally. Rubio’s work on a comprehensive immigration bill is one of his biggest vulnerabilities with Republican primary voters.
+ - We are the only campaign that has beaten Donald Trump. And we’re the only candidate that can beat Donald Trump. If you look at the Super Tuesday states, we’re running neck and neck with Donald in states all across Super Tuesday.
+ - If you’re campaigning against ObamaCare, but you’re also having to defend yourself for closing the government, that seems to take away the asset from you.
+ - Look, I think Hispanic community – the values that resonate in our community are fundamentally conservative. They are faith, family and patriotism.
+ - We need leaders who will stand unapologetically in defense of marriage and life.
+ - Whenever anyone does as this ad does, plays the actual words of Donald Trump on national television, his response is to yell, “Liar.” Their strategy is simply to yell, “Liar, liar, liar.”
+ - I think that is why we’re seeing conservatives uniting behind our campaign, because I have a proven record as a consistent conservative of standing up to Washington and fighting for the constitution.
+ - As president, I wouldn’t be making the day-to-day combat decisions. The job of the commander-in-chief is to lay the objective out and then you rely upon the generals and admirals and commanders to give you their expert advice on the tools needed to carry out that objective.
+
+199 quotes

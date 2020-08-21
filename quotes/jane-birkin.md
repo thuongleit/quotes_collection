@@ -1,0 +1,22 @@
+ - People always like things that seem exotic.
+ - Keep smiling – it takes 10 years off!
+ - I remember being married to John Barry and trying to be the best wife in the world.
+ - I’d rather live on my own than live with a face that looks at me with the wrong eyes.
+ - My look is a cocktail. I’m not as nicely turned out as the french, but I don’t care like the English.
+ - My mother was right: When you’ve got nothing left, all you can do is get into silk underwear and start reading Proust.
+ - If you fall in love with a country and its people, that makes any country warm to you.
+ - When I made mistakes, people used to laugh. I could have learnt better, but I’ve always liked to make people laugh.
+ - I don’t know why people keep banging on about the ’60s. I was very conventional because I came from a conventional family and I didn’t go off with different people – I rather wish I had now, seeing all the fun everyone else was having.
+ - Everything I wear doesnt put me in the league of women. If I were a boy, I could look a lot prettier than a lot of boys I know.
+ - When I was at school I used to scream in trains, in those concertina things between the carriages. I used to try to be so good that sometimes I couldn’t bear it any more.
+ - If I were mayor, I’d invite everyone to have free boat trips on the river and free balloon rides over the city. I’d let the elderly in residential homes wander free.
+ - I grind my teeth and keep my thumbs in so tight that I’ve dislocated them, just not to scream. Sometimes as an actor one is lucky enough to be asked to scream.
+ - I didn’t really think of myself as being a muse.
+ - One of the things I’ve discovered, thanks to the Japanese, is that you should enjoy yourself. In the old days, I used to think: ‘Oh, never be satisfied, never admit to being happy.’ But there’s no curse in being happy.
+ - I love Dickens because it makes me chuckle to myself so. He has taken me to another world and out of so many earthly miseries.
+ - I only like boutiques.
+ - I know what it’s like to have someone coming home who looks at you not in the way they used to in the old days, and I’ve seen my own face contorted with sadness and rage in the mirror.
+ - Any film I see at two o’clock in afternoon with my mother seems to cast a strange spell that means we both come out sobbing.
+ - I loved having a crew. I loved being the person who woke at six in the morning and knew where to put the camera. I loved watching the actresses cry, and to know that if you were clever and didn’t do too many rehearsals, that it just came that way.
+
+20 quotes

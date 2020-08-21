@@ -1,0 +1,94 @@
+ - You aren’t wealthy until you have something money can’t buy.
+ - A dream is like a river ever changing as it flows and a dreamer’s just a vessel that must follow where it goes.
+ - And now, I’m glad I didn’t know the way it all would end, the way it all would go. Our lives are better left to chance, I could’ve missed the pain, but I’d have had to miss the Dance...
+ - Nothing ventured, nothing gained, sometimes you’ve got to go against the grain.
+ - I’m much too young to feel this damn old.
+ - I hear them saying, “You’ll never change things, and no matter what you do it’s still the same thing.” But it’s not the world that I am changing. I do this so this world will know that it will not change me.
+ - A mistake isn’t a mistake if you learn a lesson from it.
+ - Some of God’s greatest gifts are unanswered prayers.
+ - She’s sun and rain, she’s fire and ice, a little crazy, but it’s nice. And when she gets mad, you best leave her alone, cause she’ll rage like a river then she’ll beg you to forgive her.
+ - Don’t let the world decide who you are. You decide who you are.
+ - Stand straight, walk proud, have a little faith.
+ - I could’ve missed the pain, but I would’ve missed the dance.
+ - Our future is not unpredictable, our future is simply the result of choices we have made.
+ - Too much credit is given to the end result. The true lesson is in the struggle that takes place between the dream and reality. That struggle is a thing called life!
+ - Heaven’s not beyond the clouds, it’s just beyond the fear. No, heaven’s not beyond the clouds, it’s just for us to find it here.
+ - Too many times we stand aside, and let the waters slip away. Til what we put off til tomorrow has now become today.
+ - Dreams can come true with God’s great angels like you.
+ - People loving people. That’s the enemy of everything that’s evil.
+ - I’d much rather have the honesty than not. Because if you will say what’s on your mind and get it off your chest, then the sooner I can prove you wrong!
+ - Learning to live again without you is killing me.
+ - I’ve got friends in low places, where the whiskey drowns and the beer chases my blues away.
+ - If you’re gonna leave your mark, you can’t follow a bunch of sheep, you gotta listen to your heart.
+ - It’s midnight Cinderella, but don’t worry none. Cause I’m Peter the Pumpkin Eater and the party’s just begun.
+ - Choose to chance the rapids and dare to dance the skies.
+ - What comes from a book is knowledge. What comes from the heart is wisdom.
+ - There’s a moment that we all come to, in our own time, in our own space, where all that we’ve done, we can undo, if our heart’s in the right place.
+ - It’s the ropes and the reins, and the joy and the pain. And they call the thing rodeo.
+ - I’ve lost loved ones in my life who never knew how much I loved them. Now I live with the regret that my true feelings for them never were revealed.
+ - Life is like therapy – real expensive and no guarantees.
+ - When we all can worship from our own kind of pew, then we shall be free.
+ - How you ever gonna know if you’re the best? How you ever gonna know what you believe in, if you don’t put it to the test?
+ - The human spirit: Unbreakable. Relentless. Free.
+ - Bury the hatchet, but leave the handle sticking out.
+ - Papa loved Mama, Mama loved men, Mama’s in the graveyard, Papa’s in the pen.
+ - Holding you, I held everything.
+ - We treat the lyrics like the woman any man wants to impress the most. We give the lyrics all the attention we can. I’m not sure other formats are remembering that the lyrics are what it’s all about.
+ - One day I’ll be standing at the river looking out across tomorrow, and the bridge I need to get there will be a bridge that I have burned.
+ - As long as one heart still holds on, then hope is never really gone.
+ - You see in all my life I’ve never found what I couldn’t resist, what I couldn’t turn down. I could walk away from anyone I ever knew, but I can’t walk away from you.
+ - If my time on earth were through and she must face the world without me, is the love I gave her in the past gonna be enough to last?
+ - Failure isn’t failure if a lesson from it’s learned. I guess love would not be love without a risk of being burned.
+ - I don’t fly any awards at the house. Any award you get is usually for something you’ve done in the past. And I like to keep looking forward.
+ - I’d love to play a villain in a movie, the kind of bad guy you would never think of me being able to play. Like most people, I have a darker side I’d like to explore onscreen.
+ - James Taylor and God are the reasons I play music.
+ - As a kid, before I could play music, I remember baseball being the one thing that could always make me happy.
+ - The cool thing about passion is that no matter how good or bad a day you’re having, tomorrow’s going to be better because passion finds some way of doubling itself.
+ - When the skies and the oceans are clean again. Then we shall be free.
+ - A fan’s love for an artist is so deep, I know I will go whatever depths it takes to learn about people that I’m in love with.
+ - Passion is something you’d easily die for. It’s something you’d be honored to die for. It’s something that’s stronger than any machine man can create. It actually gives a mortal person wings.
+ - Time is on the side of all things good.
+ - But you’ve got to be tough when consumed by desire, cause it’s not enough just to stand outside the fire.
+ - I wore bell bottoms in elementary school. Never wore elephant bells. Remember, this was middle Oklahoma in the ’70s.
+ - The blues will be blue, and the jealousies green, but when love picks its color it demands to be seen.
+ - No matter what you say you might do, you never really know until you’re in the moment. Every situation is so different.
+ - I understand that music is a business, but for people who have control of their stuff, like little Taylor and other artists, I think you’ll find them standing up for their music every chance they get.
+ - Life is only therapy.
+ - Getting older doesn’t help you in the fact that you might have covered some of this ground before. So you’re listening to a song that you know is a hit, but it just can’t be a hit for you, it’s gonna be a hit for somebody else. That’s tough.
+ - What I do is so this world will know that it will not change me.
+ - I’m a big movie fan. After a show, if I’m on the bus or a plane, it’s often hard to get to sleep, so I’ll watch a film. An action film can even relax me.
+ - That smell of freshly cut grass makes me think of Friday night football in high school. The smell of popcorn and cigar smoke reminds me of the stadium. The cutting of the grass reminds me of the August practice.
+ - Noah took much ridicule building his great arc, but after 40 days and 40 nights he was looking pretty smart.
+ - I can’t think of a recent baseball song except John Fogerty’s Centerfield. It’s very difficult to write a baseball song that pleases fans and non-fans alike.
+ - I asked if I could read for the role of Kevin Costner’s caddy in Tin Cup. It was a fun learning experience, even though Cheech Marin got the part.
+ - I’ve never stayed awake at night over a chance I took that failed, but I’ve stayed awake over chances I didn’t take.
+ - I think in between where you are and where you want to be is a sea of reasons why you can’t get there.
+ - Listen not to the critics who put their own dreams on the shelf.
+ - Sometimes you just can’t be afraid to wear a different hat. If Columbus had complied, this whole world might still be flat.
+ - If she were a president, she’d be Baberham Lincoln.
+ - There’s times I’d rather kill you than listen to your honesty.
+ - She brings him hope in the way that angels do, taking him to heaven in ways he never knew.
+ - If you want to know how important Portland is to me, there’s no Saturday night gigs here. They weren’t available. So our whole thing coming into Portland, which is going to be different from anybody else, any other city, is every night is Saturday night.
+ - Any time I’m in a moving thing, like an airplane, I’m usually asleep before we even get on our way.
+ - Someday in heaven, when the angels all sing, well, these rags that I’m wearing will be fit for a king.
+ - The crazy thing about it is she’d take him back, but the fool in him that walked out is the fool who just won’t ask.
+ - The guys have told me not to quit my day job.
+ - They call them fools, who are unable to resist the slightest chance love might exist.
+ - Retail should never ever tell the copyright owner how their stuff is sold.
+ - I’ve been taking batting practice in my barn where nobody can see me, so I may be better than anyone thinks.
+ - I don’t know of too many double Christmas albums, so it is something that’s new, and hopefully will be fun, and there’s plenty of stuff out there to cut.
+ - No one will ever touch Elvis.
+ - I’m not sure how we exist, as an artist, without country radio.
+ - I still use the guitar pretty much just to hide my gut.
+ - I got an offer in 1992 to buy a major-league team. I turned down the offer because I don’t want my love of the game to involve business.
+ - If I have any talent at all it’s from God, and my mom, who was on Capitol Records also.
+ - When you sit on something trying to preserve it, you die and become sterile.
+ - It’ll never go away until the fear you are running from is finally embraced.
+ - I want to get within myself and write. I really, really want to write.
+ - Whatever I do, I hope it’s quality, I hope it’s something that’s class.
+ - People aren’t always themselves. They’re always holding back something.
+ - I wouldn’t mind producing a movie with a music storyline, but acting in one is too close to home.
+ - I’d like to think a baseball picture is somewhere in my future.
+ - Life’s gonna run you over if you don’t get goin.
+
+92 quotes

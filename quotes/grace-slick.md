@@ -1,0 +1,66 @@
+ - When the truth is found to be lies, and all the joy within you dies.
+ - Feed your head. Feed your head. Feed your head.
+ - No matter how big or soft or warm your bed is, you still have to get out of it.
+ - When you get older, it’s not about what you did that you regret, it’s what you didn’t do.
+ - I think of myself as a positive agnostic. I don’t know, therefore I’m open. I don’t know, therefore I’m interested.
+ - I’m not very good at multi-tasking. Most people aren’t, but they think they are. The mind is really better when you’re really focused on one thing.
+ - I do what I love to do, what I choose to do.
+ - I find it amusing on one level, poignant on another, when people try to get recognition from an outside source. It’s sad.
+ - I don’t miss anything about the 1960s, not really. I did it. It’s like asking, ‘Do you miss the fourth grade?’ I loved the fourth grade when I was in it, but I don’t want to do it again.
+ - Through literacy you can begin to see the universe. Through music you can reach anybody. Between the two there is you, unstoppable.
+ - It’s really a drag to sit around when you’re old, and think, ‘Ah, gee, I never went to France.’ Go to France. Life is very short; you’ve got to pack it all in there.
+ - Jerry Garcia and the Grateful Dead did as much for mankind as any president.
+ - Woodstock is well known because this country is so hyped on amount. It was big. Half a million people doesn’t necessarily mean something is good. It just means it’s big.
+ - Death is like taking an intermission when you can’t come back. I like living and being around.
+ - I like being in a recording studio. I like watching a song go from the simplicity of the original music.
+ - It takes a little work to be a vegan, but now it’s really possible to have tasty stuff and it’s better for you. I say the best test is go as far as you can and see how you feel. Personally, I feel great.
+ - You don’t have to wear fur. They make such great fakes. There’s no reason to kill an animal.
+ - I don’t want to see old people doing rap or rock and roll. It makes me cringe.
+ - Jim Morrison was a well-built boy, larger than average, and young enough to maintain the engorged silent connection right through the residue of chemicals.
+ - God is all over the place. And even if He isn’t, if it makes me feel good, why not?
+ - People say Altamont was the end of the 60s. It was unfortunate, but at the time we didnt think of it as signaling anything. The fact that nobody got killed at Woodstock is amazing because that was half a million people. We only had 300,000 at Altamont.
+ - When I was between the ages of five and nine, the soldiers of the Second World War wanted to have Betty Grable, but I wanted to be Betty Grable. She was the epitome of an alluring woman; she had it all as far as I was concerned.
+ - I stopped dropping acid for a while after my daughter was born. It’s hard to keep an eye on the kid while you’re hallucinating.
+ - I like Daughtry, I like Nickelback, I like Dave Matthews. I like Beyonce – she’s a really good entertainer.
+ - Loss either teaches you to persist in the face of suffering, or hardens you into a bitter cynic. Sometimes, it does a little of both.
+ - Applause is interesting, but I’m a monster with or without it. Something is either well written or it isn’t. ‘White Rabbit’ is not well written, and no amount of applause or royalties can convince me it is. I could have done a better job with those lyrics. They didn’t say what I wanted.
+ - Man is the only animal that knows he’s going to die, so we invent a heaven to keep from going crazy. Most people are hypnotized by organized religion from Childhood.
+ - Rock roll is not obscure, it’s really easy to understand. So is my painting.
+ - I’m 5 feet 7 but my legs weren’t long enough to be a big-time model. From the knees up, everything is long but from ankle to knee, if I was in proportion, I’d be 5 feet 9.
+ - You are the crown of creation, and you’ve got no place to go.
+ - Through your life, most people peel away the junk that’s not useful, that’s superfluous. You are determined to peel that away. I do one thing at a time. One man at a time. One car. One house. One child. One job.
+ - Without alcohol I’d be richer by two million dollars that went to pay lawyer’s fees.
+ - I’m very fond of drugs.
+ - You can’t make people change, but the organizers of WorldFest hope that people consider being vegetarian for both moral and health reasons.
+ - I was appalled that the San Francisco ethic didn’t mushroom and envelope the whole world into this loving community of acid freaks. I was very naive.
+ - When you learn that a truth is a lie, anger follows.
+ - There is an attitude that we should be able to have everything. No, you shouldn’t be able to have anything. I’d like a helicopter, but I can’t afford a helicopter, so I don’t buy one. People are buying stuff they can’t afford on credit. I bought my Ford hybrid with cash.
+ - It’s a bit difficult to get hippies organized into anything, but I think if they get annoyed enough with the stuff that’s going down, they’re capable of showing up. So anything they consider important, they’ll be there.
+ - Insignificant events can take on monumental proportions when your head is full of practically nothing.
+ - Anyone who’s 71 years old would look ridiculous singing rock.
+ - In school, I learned about artists and how they were free to express themselves. I was allergic to conformity, and the lifestyle attracted me. I wanted to express myself in a way that slammed people up against the wall.
+ - It’s none of the governments business who comes to, in, on, or from my body.
+ - I left rock and roll professionally at about 49. That’s too long as far as I’m concerned. Some people can do it; it depends on what you were.
+ - In Germany I ingested the entire contents of the hotel mini-bar before a show and stuck my fingers in this guy’s nostrils because I thought they would fit.
+ - I am not strict vegan, because I’m a hedonist pig. If I see a big chocolate cake that is made with eggs, I’ll have it.
+ - I said I’d be honest, I never said I’d be consistant.
+ - I’ve enjoyed the accommodations offered by police departments from Florida to Hawaii. Any time I saw a badge, something in me would snap.
+ - Things change so fast, you can’t use 1971 ethics on someone born in 1971.
+ - I don’t like to be told what to do at all. That’s unfortunate because a lot of people come up with good ideas and can direct you.
+ - I collect stuffed animals, and toy stores make me happy.
+ - Woodstock – I didn’t see anybody play, except when I was standing backstage waiting to go on, because it was so muddy. And the weather was so horrible, you literally couldn’t get there except by helicopter.
+ - The main point for me is moral; animals are sentient beings. I know for some this is a hard argument to accept, but we’re not built to eat a lot of meat.
+ - My solo albums were each like a half-finished puzzle; they represented only the beginning of a full picture. Simply put, they were inadequate and incomplete.
+ - I didn’t want to write a book. They made me do it.
+ - I don’t imagine my parents are too excited about my kind of life. The surrounding weirdness bothers them. Still, I think they’re pretty good. Their lives are based on what their friends think, just like ours are.
+ - My parents were very open about what kind of talent I had. They never pushed me to become an accountant because they knew that would be just absolutely ridiculous. So they were encouraging in what I am able to do with some success.
+ - I’m a commercial artist, both in music and art.
+ - Prancing around on stage is not the entire purpose of my life.
+ - Jerry Garcia used to take his paints on the road. I don’t do that. Either I’m a singer or a painter. I’m not good at multi-tasking.
+ - You start out performing because it’s fun, then you learn more things and you want to do more than go “Na-na-na-na” on a stage. The production end is interesting, writing is interesting, and you learn to coordinate all these things.
+ - Mainly I make music, and you can do that until you drop dead.
+ - You can do any number of things in the music business aside from trying to look like you’re 25. To me it’s embarrassing.
+ - I think old people are scary. They remind you of your own death. People don’t like to tell you that.
+ - All rock-and-rollers over the age of 50 look stupid and should retire.
+
+64 quotes

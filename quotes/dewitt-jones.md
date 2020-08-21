@@ -1,0 +1,25 @@
+ - By celebrating what’s right with the world, we find the energy to fix what’s wrong.
+ - Creativity is the ability to look at the ordinary and see the extraordinary.
+ - It’s not trespassing to go beyond your own boundaries.
+ - The lens we choose transforms the way we look at things.
+ - When we believe it, we will see it!
+ - See the world with new eyes every day.
+ - Our perspective is what holds the key to whether the solution is ordinary or extraordinary.
+ - Dream the dream, find that extraordinary vision, and keep it in focus.
+ - So many things begin to change when you come at the world from that perspective of more than one right answer.
+ - There’s always another right answer.
+ - Celebrate the best in people. Find the light that shines not on us, but within us, when we trust enough to let it out.
+ - So we live in an accelerating possibility curve. Perhaps we can’t control it, but we can learn to ride it like a surfer on a wave or a bird on a thermal, to use its power to take us where we want to go – to live in uncertainty and yet act with confidence.
+ - Start out by celebrating the best in the situation because it allows us to fall in love with it, which connects us to our passion and emancipates the energy.
+ - Don’t be the best in the world. Be the best for the world.
+ - Make the subtle shift from pushing ourselves to be the best in the world, to allowing ourselves to be the best for the world.
+ - I can do what I love or I can love what I do. Learn to love the task in front of you.
+ - God gave me photography so that I could pray with my eyes.
+ - Nature shows me incredible beauty standing just beyond the rat race. It’s always there if I’m open enough to see it.
+ - Do we choose to see possibilities? Do we really believe that they’re there? Perception controls our reality, and if we don’t believe it, we won’t see it.
+ - Everything you need to know about life is in one breath.
+ - The world is an astounding place, and we can see it every day, if we’re open to it.
+ - The ability to play is essential to being a creative artist.
+ - We are an integral part of beauty, not something separate.
+
+23 quotes

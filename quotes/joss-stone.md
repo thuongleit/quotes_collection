@@ -1,0 +1,39 @@
+ - It’s ok to be sassy, but I’ll never be trashy, it’s ok to be nasty, but you got to keep it classy now.
+ - If you remember one thing from talking to me, remember this: I am just a girl who makes noises – and I’m incredibly lucky that people happen to like those noises.
+ - I can be whatever. I can wear shoes or don’t wear shoes. I can tie my hair up or wear it down. It doesn’t matter.
+ - People say I’m the white Aretha Franklin. I wish I was her.
+ - My family fight, that’s the way it is. We’re not common as muck or anything but we do have a little fight now and then.
+ - I guess this year I’m going to find out if I’m good enough or not. If I’m not, I don’t care. I’ll do something else, it’s not a biggie.
+ - Who says soul has only one colour?
+ - To me, music has to be about freedom. It’s the most important thing in my life.
+ - I made my new album ‘Colour Me Free!’ in a week with my own money.
+ - People started saying I was ignoring my country, making up stories about me. Ludicrous things, like that I throw tea on my assistants.
+ - I’ve had to grow up with everyone watching me, which has been hard.
+ - It strikes me as weird that a 25 year old man would even find a 16 year old attractive.
+ - I like to dip in and out of all sorts of different things. God, if I was asked to be in a show, like a real show, I would be so up for doing that.
+ - It’s like, ‘You’re not allowed to change. That’s not fair. We like you like this.’ But I don’t. So let me expand and express myself.
+ - I never pay a fortune for clothes.
+ - It’s not a deliberate thing. It’s not like I was rejecting the UK, which is what the papers said. It’s just that when you spend a lot of time in your formative years around an accent, you’re going to pick it up. I had been living in LA for a bit and that’s what happened.
+ - I feel so, so lucky. Lucky because of many things.
+ - The musicians one day are going to listen to me.
+ - Life is good. Or at least, it’s always interesting.
+ - The only country that hasn’t liked my music is my own.
+ - I just wear what I think looks nice.
+ - People grow. It’s okay to grow. Some people find that difficult to grasp.
+ - I like many different things you know so I’m probably going to experiment, and if I didn’t I’d be a little bit strange and boring and stiff and kind of dead, and I’m very not that.
+ - I only watch TV when I go to hotels.
+ - The British press has been unfair to me and the public has followed.
+ - It’s sad that people listen to music and decide how the singer should look.
+ - The recession is everywhere. We need to be heard. Wouldn’t it be great if there could be more referendums so we could have regular voting on specific points?
+ - I’m 19, I’m a girl, I’m very young, I like all sorts of different things, I like all sorts of different styles of music, I like all sorts of different styles of clothes, I like all sorts of different colors of hair.
+ - I wanted out of my record deal with EMI. They wanted me to record one type of album; I wanted to record the type of music I wanted to make.
+ - There are people in England that claim benefits because they are too nervous to work, so they claim their benefits for anxiety and never have to go out side there free home.
+ - I’m supposed to be taking time off. But I’m still writing and I have this Gap advert lined up.
+ - When you have the opportunity to make music with great musicians, take it. That’s it. That’s the only reason I need, really.
+ - If you capture the first thought that you have when you’re creating, and then play that to people, it’s kind of like the listeners are part of that beginning. And that’s the most exciting part.
+ - I’ve got a checklist of things I want – including a Brit, a Grammy, an Oscar and a white poodle. Sometimes it gets lonely, and I want a baby too! I’m ticking things off the list.
+ - When you get your first record deal, you will do anything, because you just want to sing.
+ - If you give yourself too much time, you kind of over-obsess about the music. It’s not supposed to be like that.
+ - I don’t like listening to music that isn’t real.
+
+37 quotes

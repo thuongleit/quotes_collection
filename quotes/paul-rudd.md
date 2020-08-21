@@ -1,0 +1,27 @@
+ - Oh, the weather outside is weather.
+ - Venti is twenty. Large is large. In fact, tall is large and grande is Spanish for large. Venti is the only one that doesn’t mean large. It’s also the only one that’s Italian. Congratulations, you’re stupid in three languages.
+ - Marriage is like a tense, unfunny version of Everybody Loves Raymond, only it doesn’t last 22 minutes. It lasts forever.
+ - Humor is the most important thing in life. It trumps everything else and it’s the only thing that helps me deal with everything else.
+ - We all have different sides of our personalities, so I’d love to play some more different parts too.
+ - My parents were married my whole life until my father passed away a few years ago.
+ - I never thought of myself as a comedic actor. I didn’t go to Second City, that’s not my background, I’m not a comic, I studied theater and my career when I started was a lot of dramatic stuff.
+ - There’s something great about the idea of working the land and living communally. That’s healthy. That’s good.
+ - A lot of people say, “What’s the worst part about being an actor?” And the worst part is that you’re not a musician.
+ - Nothing is ever cut-and-dried. There’s anguish behind everything.
+ - I’m not a comedian. I didn’t study sketch comedy; my background isn’t that.
+ - Acting in general you just feel kind of stupid doing it anyway, but when you’re pretending to be rolling around and dodging a foot or riding an ant, you’re having to really do it seriously and there’s nothing there. You’ve got to put faith in the process.
+ - To me some of the funniest movies would be probably categorized in the dramatic genre, and likewise some of the most dramatic films, or films that have the most dramatic moments, are in comedies.
+ - Sometimes you read a script and it’s like, “You’ll improv and this is just a blueprint of what the scene could be,” and that’s never a good sign. And it’s never encouraging as an actor to take that on, really.
+ - At my core, I’m a Midwesterner.
+ - I can, and do, walk the street. No one bothers me or anything, because most people wouldn’t know who I am.
+ - I think there’s something great and generic about goldfish. They’re everybody’s first pet.
+ - I don’t consider myself a comedian because I don’t really concern myself too much with jokes.
+ - My sense of stand up comedy would be so esoteric.
+ - I don’t really think in terms of genre, I think in terms of story and character.
+ - Theater is the most enriching and thrilling thing to do as an actor.
+ - I’m a huge David Wain fan. He’s one of my best friends now, but he just makes me laugh continually, much to the annoyance of his wife.
+ - There are lots of things that you can go down the list and say, “Oh, these are cliches, we’ve seen this before, just hits every checkpoint.” All of that takes a secondary status for me if I’m reading something and I just really like the characters.
+ - There’s a very specific thing you can do to get in magazines. I’m much happier to just show up and do the job. I haven’t taken the active approach to making myself a star. I haven’t been in a blockbuster.
+ - I’m sure that my wanting to be an actor had to do with a need for approval.
+
+25 quotes

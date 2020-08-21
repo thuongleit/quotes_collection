@@ -1,0 +1,38 @@
+ - What makes a child gifted and talented may not always be good grades in school, but a different way of looking at the world and learning.
+ - Selling drug secrets violates a trust that is fundamental to the integrity of both scientific research and our financial markets.
+ - Gifted students represent a vital resource that has unlimited potential. We need to make sure that these exceptional young people have the support and services they need to be successful.
+ - I’m the policy-maker; I’m the lawmaker.
+ - The bottom line is, there have been a lot of nuts elected to the United States Senate.
+ - If we do our job right, the Supreme Court won’t be made up of men and women who are on the side of the little guy or the big guy; rather, the Supreme Court will be made up of men and women who are on the side of the law and the Constitution.
+ - If I move one way, I lose a couple votes. If I move another way, I lose a couple votes.
+ - Maybe I should just go home and ride my tractor.
+ - President Obama’s decision to bypass the constitutional advice and consent of the Senate is not an isolated incident.
+ - I believe that if you have faith in your own abilities then in the end others will have faith in them too, even if they need a little persuading.
+ - We should not have a government program that determines if you’re going to pull the plug on grandma.
+ - In the case of the Japanese, they usually commit suicide before they make any apology.
+ - Supreme Court nominees should know that this exercise of judicial restraint is the key ingredient of being good judge, as the Constitution constrains judges every bit as much as it constrains we legislators, executives and citizens in their actions.
+ - Supreme Court nominees should know without any doubt that their job is not to impose their own personal opinions of what is right and wrong, but to say what the law is, rather than what they personally think the law ought to be.
+ - Complacency by the watchdogs hurts both taxpayers and beneficiaries.
+ - We need to make sure parents and coaches are aware of the dangers an on the look-out for the warning signs. Performance enhancing drugs are too damaging to young people for parents and coaches to not be involved.
+ - Finding out exactly what went wrong is key toward preventing future debacles.
+ - Strengthening local airports in Iowa is important for economic development and improving the quality of life our rural areas and urban communities.
+ - I’ve always considered making it legal for Americans to import their prescription drugs a free-trade issue. Imports create competition and keep domestic industry more responsive to consumers.
+ - If Americans could legally access prescription drugs outside the United States, then drug companies would be forced to re-evaluate their pricing strategy.
+ - My goal for reform is not necessarily to pass laws but to make sure the laws are being followed.
+ - If we fulfill our responsibility to the Constitution, the Supreme Court will be filled with superior legal minds who will pursue the one agenda that our founding fathers intended in writing the Constitution: justice, rather than political or personal goals.
+ - There is a lot of waste in government-run programs generally, and a lot of waste and fraud and misuse of money in Medicare and Medicaid that can be saved.
+ - My business is the enforcement of the tax laws and the integrity of the tax code and making sure that trustees of charitable giving are true trustees.
+ - Someone has to pick up the tab when people get out of repaying their own debts.
+ - I can only answer for Chuck Grassley; I can’t answer for anybody else.
+ - The Fed has the ability to put money out, it’s got the ability to take money back in, and if they don’t do that, we will have hyperinflation worse than we had in 1980 and 1981.
+ - Judges are required by our democratic system not to overstep their positions to become policy makers or super-legislators.
+ - I believe that there is a bipartisan consensus to have individual mandates.
+ - It wouldn’t do me much good to back somebody that won in Iowa if they can’t carry on the campaign elsewhere.
+ - You ought to serve on the platform you run on.
+ - The public relies on the advice of doctors and leading researchers. The public has a right to know about financial relationships between those doctors and the drug companies who make the pharmaceuticals prescribed by doctors.
+ - I get paid by the year, and I try to earn my money.
+ - Supreme Court nominees should be individuals who not only understand, but truly respect the equal roles and responsibilities of different branches of government and our state governments.
+ - I want to remind all Americans that the Senate has a very important responsibility to confirm only well- qualified individuals who will faithfully interpret the law and the Constitution.
+ - If I can’t negotiate something that gets more than four Republicans, I’m not a very good representative of my party.
+
+36 quotes

@@ -1,0 +1,23 @@
+ - It never was my thinking that made the big money for me. It was always my sitting. Got that? My sitting tight!
+ - A stock operator has to fight a lot of expensive enemies within himself.
+ - There is no question that advertising is an art, and manipulation is the art of advertising through the medium of the tape.
+ - The speculator is not an investor.
+ - Nowhere does history indulge in repetitions so often or so uniformly as in Wall Street.
+ - The speculators deadly enemies are: Ignorance, greed, fear and hope. All the statute books in the world and all the rules of all the Exchanges on earth cannot eliminate these from the human animal.
+ - The principles of successful stock speculation are based on the supposition that people will continue in the future to make the mistakes that they have made in the past.
+ - If a stock doesn’t act right don’t touch it; because, being unable to tell precisely what is wrong, you cannot tell which way it is going. No diagnosis, no prognosis. No prognosis, no profit.
+ - As I have said a thousand times, no manipulation can put stocks down and keep them down.
+ - The game taught me the game.
+ - When you find that it fails to respond adequately to your buying you don’t need any better tip to sell.
+ - When the man who ought to want a stock doesn’t want it, why should I want it?
+ - A battle goes on in the stock market and the tape is your telescope. You can depend upon it seven out of ten cases.
+ - Being broke is a very efficient educational agency.
+ - In fact, of all hoodoos in Wall Street I think the resolve to induce the stock market to act as a fairy godmother is the busiest and most persistent.
+ - One of the most helpful things that any body can learn is to give up trying to catch the last eighth – or the first. These two are the most expensive eighths in the world.
+ - TIPS! How people want tips! They crave not only to get them but to give them.
+ - The public always wants to be told.
+ - And for a sucker play a man gets sucker pay; for the paymaster is on the job and never losses the pay envelope that is coming to you.
+ - As a matter of fact I trade in accordance to my means and always leave myself an ample margin of safety.
+ - No man can always have adequate reasons for buying or selling stocks daily – or sufficient knowledge to make his play an intelligent play.
+
+21 quotes

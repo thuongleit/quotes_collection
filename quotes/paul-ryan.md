@@ -1,0 +1,152 @@
+ - We need to stop spending money we don’t have.
+ - Behind every small business, there’s a story worth knowing. All the corner shops in our towns and cities, the restaurants, cleaners, gyms, hair salons, hardware stores – these didn’t come out of nowhere.
+ - Every successful individual knows that his or her achievement depends on a community of persons working together.
+ - Borrowing and spending is not the way to prosperity.
+ - If we don’t make tough decisions today our children are going to have to make much, much tougher decisions tomorrow.
+ - I think you can walk and chew gum at the same time. I think you can oppose the president on some issue that you fundamentally disagree with, but also work with the other party on issues you do agree with.
+ - We don’t want to turn the safety net into a hammock that lulls able-bodied people into complacency and dependence.
+ - Only by taking responsibility for oneself, to the greatest extent possible, can one ever be free, and only a free person can make responsible choices – between right and wrong, saving and spending, giving or taking.
+ - It all started off with stirring speeches, Greek columns, the thrill of something new. Now all that’s left is a presidency adrift, surviving on slogans that already seem tired, grasping at a moment that has already passed, like a ship trying to sail on yesterday’s wind.
+ - It’s no coincidence that trust in government is at an all-time low now that the size of government is at an all-time high.
+ - Our debt is out of control. What was a fiscal challenge is now a fiscal crisis. We cannot deny it; instead we must, as Americans, confront it responsibly. And that is exactly what Republicans pledge to do.
+ - Life is short, you better make the most of it.
+ - I give out Atlas Shrugged as Christmas presents, and I make all my interns read it.
+ - The work ahead will be hard. These times demand the best of us – all of us, but we can do this. Together, we can do this. We can get this country working again. We can get this economy growing again. We can make the safety net safe again. We can do this.
+ - A free economy and strong communities honor the dignity of every person, rewarding effort with justice, promoting upward mobility, and building solidarity among citizens.
+ - When I was waiting tables, washing dishes, or mowing lawns for money, I never thought of myself as stuck in some station in life. I was on my own path, my own journey, an American journey where I could think for myself, decide for myself, define happiness for myself.
+ - Ayn Rand more than anyone else did a fantastic job of explaining the morality of capitalism, the morality of individualism.
+ - I think Ayn Rand did the best job of anybody to build a moral case of capitalism, and that morality of capitalism is under assault.
+ - To my great disappointment, it appears that the politics of division are making a big comeback. Many Americans share my disappointment – especially those who were filled with great hope a few years ago, when then-Senator Obama announced his candidacy in Springfield, Illinois.
+ - We believe, as our founders did, that ‘the pursuit of happiness’ depends upon individual liberty; and individual liberty requires limited government.
+ - Our rights come from nature and God, not government.
+ - Politics has become a blood sport that goes beyond just the person whose name is on the ballot.
+ - Big-government economics breeds crony capitalism. It’s corrupt, anything but neutral, and a barrier to broad participation in prosperity.
+ - The debt and the deficit is just getting out of control, and the administration is still pumping through billions upon trillions of new spending. That does not grow the economy.
+ - On July 4th, we renew our commitment to the American Idea-the belief that all men are created equal. We read the Declaration. We tell our kids the history. We remember those who died to protect our country. And along the way, we remind ourselves of why we love it.
+ - Activist government overreach and ongoing economic stagnation have shown us why Washington should not try to displace what is best left to civil society.
+ - The tax code is 10 times the size of the Bible with none of the good news.
+ - When you take a look at the problems our country is facing, debt is No. 1. The math is downright scary and the credit markets aren’t going to keep on giving us cheap rates.
+ - Everyone who feels stuck in the Obama economy is right to focus on the here and now. And I hope you understand this too, if you’re feeling left out or passed by: You have not failed, your leaders have failed you.
+ - We will not spend four years blaming others, we will take responsibility.
+ - I really don’t have tremendous political ambition. I have policy ambition.
+ - People like me who are reform-minded ignore the people who say, ‘Just criticize and don’t do anything and let’s win by default.’ That’s ridiculous.
+ - Mom was 50 when my Dad died. She got on a bus every weekday for years, and rode 40 miles each morning to Madison. She earned a new degree and learned new skills to start her small business. It wasn’t just a new livelihood. It was a new life.
+ - Elections have consequences. And I fundamentally believe – this is my personal opinion, I know it’s a slightly partisan thing to say – to really do what we think needs to be done, we’re going to have to win some elections.
+ - The problem with our deficit is not because Americans are taxed too little. The problem with the deficit is because Washington spends too much money. We have got to stop spending money we don’t have.
+ - My Dad, a small-town lawyer, was also named Paul. Until we lost him when I was 16, he was a gentle presence in my life. I like to think he’d be proud of me and my sister and brothers, because I’m sure proud of him and of where I come from, Janesville, Wisconsin.
+ - Exploiting people’s emotions of fear, envy and anxiety is not hope, it’s not change, it’s partisanship. We don’t need partisanship. We don’t need demagoguery, we need solutions.
+ - I’m very proud of my pro-life record, and I’ve always adopted the idea that, the position that the method of conception doesn’t change the definition of life.
+ - And if small businesspeople say they made it on their own, all they are saying is that nobody else worked seven days a week in their place. Nobody showed up in their place to open the door at five in the morning. Nobody did their thinking, and worrying, and sweating for them.
+ - I grew up reading Ayn Rand and it taught me quite a bit about who I am and what my value systems are, and what my beliefs are.
+ - Before the math and the momentum overwhelm us all, we are going to solve this nation’s economic problems. And I’m going to level with you: We don’t have that much time. But if we are serious, and smart, and we lead, we can do this.
+ - Since taking office, President Obama has signed into law spending increases of nearly 25 percent for domestic government agencies – an 84 percent increase when you include the failed stimulus. All of this new government spending was sold as ‘investment.’
+ - That’s what we do in this country. That’s the American Dream. That’s freedom, and I’ll take it any day over the supervision and sanctimony of the central planners.
+ - Americans are better off in a dynamic, free-enterprise-based economy that fosters economic growth, opportunity and upward mobility instead of a stagnant, government-directed economy that stifles job creation and fosters government dependency.
+ - The stimulus was a case of political patronage, corporate welfare, and cronyism at their worst.
+ - The rate of return on Social Security for people nearing retirement is about 1.5 percent. By the time young children like mine are ready to retire, that rate of return will be a negative percentage.
+ - Class is not a fixed designation in this country. We are an upwardly mobile society with a lot of movement between income groups.
+ - Our two party platforms were emphatic about Jerusalem being the capital of Israel. For the Obama administration to remove this language from the Democratic Party platform drives a wedge into one of the few issues that our two parties agreed on.
+ - Was it a good idea to spend taxpayer dollars on electric cars in Finland, or on windmills in China? Was it a good idea to borrow all this money from countries like China and spend it on all these various different interest groups?
+ - Seven hundred and sixteen billion dollars, funneled out of Medicare by President Obama. An obligation we have to our parents and grandparents is being sacrificed, all to pay for a new entitlement we didn’t even ask for. The greatest threat to Medicare is Obamacare, and we’re going to stop it.
+ - We are looking for bipartisan solutions not partisan rhetoric.
+ - Free enterprise empowers entrepreneurs who have ideas and imagination, investors who take risks, and workers who hone their skills and offer their labor.
+ - I don’t want to get into the ‘who’s a hostage-taker’ discussion here, but what is the estate tax? It’s a double tax on death. Economists will tell you that it’s really not a tax that soaks the rich, but it’s a tax on capital that deprives business investment and therefore job creation.
+ - College graduates should not have to live out their 20s in their childhood bedrooms, staring up at fading Obama posters and wondering when they can move out and get going with life.
+ - I’m as pro-life as a person gets. You’re not going to have a truce.
+ - You’re going to hear a lot from President Obama and yes, from Joe Biden, you’re hearing a little bit about Medicare these days. What they will not tell you is they turned Medicare into a piggybank to fund ‘Obamacare.’ They took $716 billion dollars to pay for the ‘Obamacare’ program.
+ - Mr. Chairman, delegates, and fellow citizens: I am honored by the support of this convention for vice president of the United States. I accept the duty to help lead our nation out of a jobs crisis and back to prosperity – and I know we can do this.
+ - The moral case for individual initiative in a free economy holds that people have a God-given right to use their creativity to produce things that improve our lives.
+ - I don’t consult polls to tell me what my principles are or what our policies should be.
+ - Hope and change? We’re not doing that anymore. They’re doing attack and blame. And so, I just think people are going to see through this. They want real leadership. They want us to get this country on the right track.
+ - I never asked for stimulus.
+ - We will not duck the tough issues, we will lead.
+ - But just because we can’t fix Obamacare doesn’t mean we can’t start to get rid of its worst features. On Thursday, the House will take up a bill to define ‘full time’ as 40 hours per week, so more people can work full time.
+ - In government-directed economies, the collective takes priority over the individual. The moral ideal is equal results. That approach could not be further removed from the real world.
+ - Let’s pass a bill to cover the moon with yogurt that will cost $5 trillion today. And then let’s pass a bill the next day to cancel that bill. We could save $5 trillion.
+ - The belief that recipients of government aid are better off the more we spend on them is remarkably persistent. No matter how many times this central tenet of liberalism gets debunked, like Brett Favre, it just keeps coming back.
+ - Mitt Romney and I know the difference between protecting a program, and raiding it. Ladies and gentlemen, our nation needs this debate. We want this debate. We will win this debate.
+ - The greatest threat to Medicare is Obamacare, and we’re going to stop it.
+ - We are all representatives of the American people. We all do town hall meetings. We all talk to our constituents. And I’ve got to tell you, the American people are engaged. And if you think they want a government takeover of health care, I would respectfully submit you’re not listening to them.
+ - The reason I got involved in public service, by and large, if I had to credit one thinker, one person, it would be Ayn Rand. The fight we are in here, make no mistake about it, is a fight of individualism versus collectivism.
+ - Child support should do just that – support children, not the federal government.
+ - President Obama was asked not long ago to reflect on any mistakes he might have made. He said, well, ‘I haven’t communicated enough.’ He said his job is to ‘tell a story to the American people’ – as if that’s the whole problem here? He needs to talk more, and we need to be better listeners?
+ - Claiming a person can’t do their job because of their race is sort of like the textbook definition of a racist comment. I think that should be absolutely disavowed. It’s absolutely unacceptable.
+ - Republicans have offered dozens of comprehensive healthcare plans many of which achieve comprehensive healthcare reform without breaking what’s working in healthcare. We want to fix what’s broken in healthcare.
+ - I don’t have the time. It would take me too long to go through all of the math.
+ - We need to reclaim our American system of limited government, low taxes, reasonable regulations, and sound money, which has blessed us with unprecedented prosperity. And it has done more to help the poor than any other economic system ever designed.
+ - We must solve the problem in health care by curbing out-of-control costs that erode paychecks for working families and push quality coverage out of reach for millions of Americans.
+ - A bold reform agenda is our moral obligation. If we make the case effectively and win this November, then we will have the moral authority to enact the kind of fundamental reforms America has not seen since Ronald Reagan’s first year.
+ - President Obama clearly cannot run on his record. All he’s offering is more of the same. That’s not good. Look at the economy. It’s stagnating. And so, what they’re now going to try and do is bring this campaign down to little things, distractions, distortions, smear, fear, anger, frustration.
+ - And the biggest, coldest power play of all in Obamacare came at the expense of the elderly.
+ - Are we interested in treating the symptoms of poverty and economic stagnation through income redistribution and class warfare, or do we want to go at the root causes of poverty and economic stagnation by promoting pro-growth policies that promote prosperity?
+ - Hey, I’m a Catholic deer hunter, I am happy to be clinging to my guns and my religion.
+ - We have a plan for a stronger middle class, with the goal of generating 12 million new jobs over the next four years.
+ - Every now and then, President Obama sorta drops his veil. He’s less coy about his philosophy, he sort of reveals his true governing philosophy, what he really believes.
+ - When it comes to jobs, President Obama makes the Jimmy Carter years look like good old days. If we fired Jimmy Carter then, why would we rehire Barack Obama now?
+ - I tend to avoid the shows that focus on politics, just to get a break from it all, i tried watching the first couple episodes of ‘House of Cards,’ but I thought it was way over the top. Members of Congress aren’t anything like Frank Underwood. Most of us are far less interesting.
+ - Working together, America’s military, Iraqi security forces and the Iraqi people have won a major battle in the war on terrorism.
+ - President Obama’s reckless defense cuts that are hanging over our cloud, hanging over the horizon could put almost 44,000 jobs at stake right here in Pennsylvania. we are not going to let that happen. You know why? Because No. 1, national defense is the first priority of the federal government.
+ - So here’s the question: Without a change in leadership, why would the next four years be any different from the last four years?
+ - We have got to go and compete for the minds and the hearts and the votes of everybody in this country, no matter who they are. And what I think we’ve had is one party takes a group of people for granted and another party has not paid attention to them.
+ - If we didn’t propose these reforms, we would not have proposed a budget that got the debt under control.
+ - What I’m concerned about is endless borrowing, which is going to compromise our economy not only today but in the future. Because we know the decisions we make right now really dramatically impact us in the future, and the debt is literally getting out of our control.
+ - What did the taxpayers get out of the Obama stimulus? More debt. That money wasn’t just spent and wasted – it was borrowed, spent, and wasted.
+ - I think it is inflationary. I think it actually is counterproductive in many ways. You end up costing jobs from people who are at the bottom rung of the economic ladder.
+ - I do politics in order to do policy.
+ - I accept the calling of my generation to give our children the America that was given to us, with opportunity for the young and security for the old – and I know that we are ready.
+ - I voted to send people to war.
+ - What’s missing is leadership in the White House. And the story that Barack Obama does tell, forever shifting blame to the last administration, is getting old. The man assumed office almost four years ago – isn’t it about time he assumed responsibility?
+ - We must promote upward mobility, starting with solutions that speak to our broken education system, broken immigration policy, and broken safety-net programs that foster dependency instead of helping people get back on their feet.
+ - The man assumed office almost four years ago – isn’t it about time he assumed responsibility?
+ - After four years of getting the run-around, America needs a turnaround, and the man for the job is Governor Mitt Romney.
+ - Do we believe that the goal of government is to promote equal opportunity for all Americans to make the most of their lives? Or, do we now believe that government’s role is to equalize the results of peoples lives?
+ - We believe a renewed commitment to limited government will unshackle our economy and create millions of new jobs and opportunities for all people, of every background, to succeed and prosper. Under this approach, the spirit of initiative – not political clout – determines who succeeds.
+ - PACs corrupt the system. They handle vast amounts of money and the money corrupts.
+ - We need leadership. We don’t need a doubling down on the failed politics of the past.
+ - Here’s the problem if you keep raising tax rates: You slow down economic growth.
+ - So, in Europe, they’re cutting people’s retirement and health benefits. And that’s what we want to avoid from happening. They’re raising taxes, entering a recession. That’s the kind of economic program that President Obama has put in place.
+ - When government misleads the country about a terrorist attack, that erodes trust.
+ - While President Obama shirks his responsibility to advance solutions to our fiscal challenges, he can no longer hide from the merciless math of the balance sheet. Conservatives have made certain of that.
+ - If you’re running for president, you’ve got to do a lot of things to line up a candidacy. I’ve not done any of those things. It’s not my plan. My plan is to be a good chairman of the House Budget Committee and fight for the fiscal sanity of this nation.
+ - We will not try to replace our founding principles, we will reapply our founding principles.
+ - Take a moment to imagine a world led by China or Russia. So we must lead.
+ - None of us have to settle for the best this administration offers – a dull, adventureless journey from one entitlement to the next, a government-planned life, a country where everything is free but us.
+ - That’s the real secret to job creation – not borrowing and spending more money in Washington.
+ - Throughout human history, the American Idea has done more to help the poor than any other economic system ever designed.
+ - We’re saying no changes for Medicare for people above the age of 55. And in order to keep the promise to current seniors who’ve already retired and organized their lives around this program, you have to reform it for the next generation.
+ - Look, the president is elected to lead and to face the country’s biggest challenges. The country’s biggest challenge domestically speaking, no doubt about it, is a debt crisis, and I’m really hoping that he is going to give us a budget that tackles this debt crisis.
+ - By failing seriously to confront the most predicable economic crisis in our nation’s history, the President’s policies are committing us and our children to a diminished future.
+ - And to this day, my Mom is my role model.
+ - A Romney-Ryan administration will protect and strengthen Medicare, for my Mom’s generation, for my generation, and for my kids and yours.
+ - The president has declared that the debate over government-controlled health care is over. That will come as news to the millions of Americans who will elect Mitt Romney so we can repeal Obamacare.
+ - Hiding spending does not reduce spending.
+ - Look, I am not worried about Washington cutting too much spending too fast. I mean, the kinds of spending cuts we’re talking about just right now are $100 billion out of a $3.7 trillion budget.
+ - In a justly organized community, however, government exists to secure the right to life and the other human rights that follow from that primary right.
+ - Mr. Vice President, I know you’re under a lot of duress to make up for lost ground but I think people would be better served if we don’t keep interrupting each other.
+ - I’m a person that can get along with people. I like people who believe passionately in things even if they’re not the things I agree with.
+ - In Pennsylvania, 38 percent of Pennsylvania seniors chose to get their Medicare from a plan called Medicare Advantage. It’s their choice. Forty-seven percent of them are going to lose it under ‘Obamacare’ according to Medicare by 2017.
+ - Look, of course people are scared of entitlement reform because every time you put entitlement reform out there, the other party uses it as a political weapon against you.
+ - Either we have the government forcing us and telling us what we have to do, where we have to do it and how much we have to pay for it or we put ourselves in charge – we as consumers, as patients.
+ - We wonder if we will be the first generation in American history to leave our children with fewer opportunities and a less prosperous nation than the one we inherited.
+ - We don’t have a tax revenue problem in Washington, we have a spending problem in Washington.
+ - Our founders got it right when they wrote in the Declaration of Independence that our rights come from nature and nature’s God, not from government.
+ - If somebody is going to try to paste a person’s view on epistemology to me, then give me Thomas Aquinas. Don’t give me Ayn Rand.
+ - Ultimately, the law will collapse under its own weight. Until then, we have to start building a better health care system in its place. And we need to start with a new principle: Put the patient in the driver’s seat. That’s how we can build a healthy economy.
+ - This is a government takeover of our healthcare system. It is the government basically running the entire healthcare system, turning large insurers into de facto public utilities, depriving people of choice, depriving people of options, raising people’s prices, raising taxes when we need new jobs.
+ - Look, only in Washington is not raising taxes considered a tax cut. Nobody’s getting a tax cut here. We’re not cutting taxes. We’re preventing tax increases from occurring.
+ - Now it’s a war on women; tomorrow it’s going to be a war on left-handed Irishmen or something like that.
+ - If borrowing and spending all this money led to more jobs than we would be at full employment already.
+ - Obama is trying to paint us as a caricature, as if we’re some bizarre individualists who are hardcore libertarians. It’s a false dichotomy and intellectually lazy. Of course we believe in government. We think government should do what it does really well, but that it has limits.
+ - Obamacare comes to more than two thousand pages of rules, mandates, taxes, fees, and fines that have no place in a free country.
+ - We do not have a functioning market in the true sense of the word in health care. That’s a layer of transparency that’s sorely needed in America.
+ - There is a consensus of willing leaders from both parties coalescing around the right way forward in health care. Reform should address government-imposed inequities and barriers to true choice and competition.
+ - Conventional wisdom on government’s role in inequality often has it backwards. Tax reforms have resulted in a more progressive federal income tax; government transfer payments have become less progressive.
+ - We believe that the government has an important role to create the conditions that promote entrepreneurship, upward mobility, and individual responsibility.
+ - I see myself as more of a policy maker than a political leader.
+ - I live on the same block where I grew up. We belong to the same parish where I was baptized. Janesville is that kind of place.
+ - I have never seen opponents so silent about their record, and so desperate to keep their power.
+ - What we heard today was not fiscal leadership from our Commander-in-Chief, what we heard today was a political broadside from our Campaigner-in-Chief.
+ - When Governor Romney asked me to join the ticket, I said, ‘Let’s get this done’ – and that is exactly, what we’re going to do.
+ - A Clinton presidency is an Obama third term. And it’s very difficult for them to get away from it.
+
+150 quotes

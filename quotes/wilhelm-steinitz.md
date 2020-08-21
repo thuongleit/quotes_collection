@@ -1,0 +1,25 @@
+ - The King is a fighting piece. Use it!
+ - Chess is not for timid souls.
+ - Chess is difficult, it demands work, serious reflection and zealous research.
+ - Only the player with the initiative has the right to attack.
+ - A sacrifice is best refuted by accepting it.
+ - The task of the positional player is systematically to accumulate slight advantages and try to convert temporary advantages into permanent ones, otherwise the player with the better position runs the risk of losing it.
+ - I may be an old lion, but I can still bite someone’s hand off if he puts it in my mouth.
+ - Have you ever seen a monkey examining a watch?
+ - Chess is not for the faint-hearted; it absorbs a person entirely. To get to the bottom of this game, he has to give himself up into slavery. Chess is difficult, it demands work, serious reflection and zealous research.
+ - I am not a chess historian – I myself am a piece of chess history, which no one can avoid. I will not write about myself, but I am sure that someone will write...
+ - Chess is intellectual gymnastics.
+ - The king pawn and the queen pawn are the only ones to be moved in the early part of the game.
+ - Capture of the adverse King is the ultimate but not the first object of the game.
+ - A win by an unsound combination, however showy, fills me with artistic horror.
+ - I play my king all over the board. I make him fight!
+ - Chess is so inspiring that I do not believe a good player is capable of haviong an evil thought during the game.
+ - I would rather die in America than live in England. I would rather lose a match in America than win one in England. I have come to the conclusion that I neither mean to die soon or to lose the match!
+ - I am fully and entirely concentrated on the board. I never even consider my opponent’s personality. So far as I am concerned, my opponent might as well be an abstraction or an automaton.
+ - In the ending the king is a powerful piece for assisting his own pawns, or stopping the adverse pawns.
+ - I have never in my life played the French Defence, which is the dullest of all openings.
+ - Unfortunately, many regard the critic as an enemy, instead of seeing him as a guide to the truth.
+ - I shall accord to myself the honor of inscribing myself as an applicant for the American citizenship which according to law I can obtain only after five years residence in this country. And I shall yield to no one of my future countrymen in patriotism. I consider America now my real home.
+ - Fame, I have already. Now I need the money.
+
+23 quotes

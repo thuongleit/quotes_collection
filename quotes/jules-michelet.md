@@ -1,0 +1,27 @@
+ - Achieving a goal is nothing. The getting there is everything.
+ - Animal life, sombre mystery. All nature protests against the barbarity of man, who misapprehends, who humiliates, who tortures his inferior brethren.
+ - Woman is the Sunday of man: not his repose only, but his joy; the salt of his life.
+ - Every epoch dreams its successor.
+ - Woman is a miracle of divine contradictions.
+ - He who would confine his thought to present time will not understand present reality.
+ - You are one of the forces of nature.
+ - Coffee, the sober drink, the mighty nourishment of the brain, which unlike other spirits, heightens purity and lucidity; coffee, which clears the clouds of the imagination and their gloomy weight; which illuminates the reality of things suddenly with the flush of truth.
+ - The indifference of men, far more than their tyranny, is the torment of women.
+ - Great hearts alone understand how much glory there is in being good.
+ - How beautifully everything is arranged by Nature; as soon as a child enters the world, it finds a mother ready to take care of it.
+ - What is the first part of politics? Education. The second? Education. And the third? Education.
+ - Love is strong in its passion; affection is powerful in its gentleness.
+ - What manly eloquence could produce such an effect as woman’s silence?
+ - At its starting point in India, the birthplace of races and religions, the womb of the world.
+ - The historian’s first duties are sacrilege and the mocking of false gods. They are his indispensable instruments for establishing the truth.
+ - Woman’s happiness consists in obeying; she objects to a man who yields too much.
+ - Woe be to him who tries to isolate one department of knowledge from the rest. All science is one: language, literature and history, physics, mathematics and philosophy; subjects which seem the most remote from one another are in reality connected, or rather they all form a single system.
+ - He who knows how to be poor knows everything.
+ - Improvement depends far less upon length of tasks and hours of application than is supposed. Children can take in but a little each day; they are like vases with a narrow neck; you may pour little or pour much, but much will not enter at a time.
+ - Women are perfectly well aware that the more they seem to obey the more they rule.
+ - Fear accomplishes much in love. The husband of the Middle Ages was loved by his wife for his very severity. The bride of William the Conqueror, having been beaten by him, recognized him by this token for her lord and husband.
+ - If you wish to ruin yourself, marry a rich wife.
+ - The real, in all this efforts, is that we climb just for climbing.
+ - Our esteem is apt to be given where we know the least.
+
+25 quotes

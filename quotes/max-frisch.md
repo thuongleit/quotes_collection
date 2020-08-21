@@ -1,0 +1,52 @@
+ - Time does not change us. It just unfolds us.
+ - Jealousy is the fear of comparison.
+ - If the going is getting too easy, maybe you’re going downhill!
+ - We asked for workers. We got people instead.
+ - I have no words for my reality.
+ - The dignity of man is in free choice.
+ - Technology is a way of organizing the universe so that man doesn’t have to experience it.
+ - In actual fact those who do not care for politics and sit on the fence do indeed side for a political party: The ruling party.
+ - My greatest fear: repetition.
+ - The technologist was the final guise of the white missionary, industrialization the last gospel of a dying race and living standards a substitute for a purpose in living.
+ - Every uniform corrupts one’s character.
+ - It’s precisely the disappointing stories, which have no proper ending and therefore no proper meaning, that sound true to life.
+ - Cause and effect are never divided between two people.
+ - The demand that we love our neighbor as ourselves contains as an axiom the demand that we shall love ourselves, shall accept ourselves as we were created.
+ - Travelling, gentlemen, is medieval, today we have means of communication, not to speak of tomorrow and the day after, means of communication that bring the world into our homes, to travel from one place to another is atavistic.
+ - Why don’t we follow our yearning?
+ - I feel fairly certain that my hatred harms me more than the people whom I hate.
+ - Primitive peoples tried to annul death by portraying the human body – we do it by finding substitutes for the human body. Technology instead of mysticism!
+ - When you say a friend has a sense of humor do you mean that he makes you laugh, or that he can make you laugh?
+ - A society needs famous people; the question is whom it chooses for that role. Any criticism of its choice is by implication a criticism of that society.
+ - It is always the moralists who do the most harm. Abortion is the logical outcome of civilization, only the jungle gives birth and moulders away as nature decrees. Man plans.
+ - If you criticize what you’re doing too early you’ll never write the first line.
+ - I don’t believe in providence and fate, as a technologist I am used to reckoning with the formulae of probability.
+ - When we travel, we are like a film at the moment of exposure; it is memory that will develop it.
+ - Nothing is harder than to accept oneself.
+ - All that remains is the mad desire for present identity through a woman.
+ - The older you get the simpler you want to make it.
+ - We live in an age of reproduction. Most of what makes up our personal picture of the world we have never seen with our own eyes – or rather, we’ve seen it with our own eyes, but not on the spot: our knowledge comes to us from a distance, we are televiewers, telehearers, teleknowers.
+ - There is no such thing, as far as I’m concerned, as ownership in love.
+ - A man with convictions finds an answer for everything. Convictions are the best form of protection against the living truth.
+ - Our guilt has its uses. It justifies much in the lives of others.
+ - Finished things cease to be a shelter for the spirit; but work in progress is a delight.
+ - You can put anything into words, except your own life.
+ - I took the standpoint that the profession of technologist, a man who masters matter, is a masculine profession, if not the only masculine profession there is.
+ - You can’t make the incomprehensible comprehensible without losing it completely.
+ - If anyone has a conscience it’s generally a guilty one.
+ - Why do dying people never shed tears?
+ - There is no art without Eros.
+ - Either marriage is a destiny, I believe, or there is no sense in it at all, it’s a piece of humbug.
+ - Stillertook part in the Spanish Civil WarIt is not clear what impelled him to this military gesture. Probably many factors were combined – a rather romantic Communism, such as was common among bourgeois intellectuals at that time.
+ - Perhaps there are only a few women who experience without deception the overwhelming intoxication of the senses which they expectfrom their encounters with men, which they feel bound to expect because of the fuss made about it in novels, written by men.
+ - I live, like every real man, in my work.
+ - Dignity: the doomed man’s final refuge.
+ - There are all sorts of ways of murdering a person or at least his soul, and that’s something no police in the world can spot.
+ - It is only the consciousness of a nonexistence which allows us to realize for moments that we are living.
+ - I know that I’m the happiest of lovers...
+ - The difference between an author and a horse is that the horse doesn’t understand the horse dealer’s language.
+ - Strictly speaking, every citizen above a certain level of income is guilty of some offense.
+ - Our comparative fidelity was fear of defeat at the hands of another partner.
+ - The point is to show who is the cross and who the crucified.
+
+50 quotes

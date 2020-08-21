@@ -1,0 +1,295 @@
+ - The world promises you comfort, but you were not made for comfort. You were made for greatness.
+ - Each of us is the result of a thought of God. Each of us is willed. Each of us is loved. Each of us is necessary.
+ - If we allow the love of Christ to change our heart, then we can change the world. This is the secret of authentic happiness.
+ - One who has hope lives differently.
+ - Truth is not determined by a majority vote.
+ - Do not be afraid of Christ! He takes nothing away, and he gives you everything.
+ - Do you want to know yourself better? Then discover silence.
+ - Advent is the spiritual season of hope par excellence, and in this season the whole Church is called to be hope, for itself and for the world.
+ - Consecrated life means going to the very root of the love of Jesus Christ with an undivided heart and putting nothing ahead of this love.
+ - With the Rosary, we allow ourselves to be guided by Mary, model of faith, in meditating on the mysteries of Christ, and day after day we are helped to assimilate the Gospel, so that it shapes all our lives.
+ - The Church is missionary by nature and her principal task is evangelization, which aims to proclaim and to witness to Christ and to promote his Gospel of peace and love in every environment and culture.
+ - Do not be afraid to say ‘yes’ to Jesus: to find your joy in doing His will.
+ - The happiness you have a right to enjoy has a name and a face: it is Jesus of Nazareth, hidden in the Eucharist.
+ - It is the beautiful task of Advent to awaken in all of us memories of goodness and thus to open doors of hope.
+ - Everything in this world will pass away. In eternity only Love will remain.
+ - God is always faithful to His promises, but He often surprises us in the way He fulfills them.
+ - Lent stimulates us to let the Word of God penetrate our life and in this way to know the fundamental truth: who we are, where we come from, where we must go, what path we must take in life...
+ - Friends, do not be afraid of silence or stillness. Listen to God. Adore Him in the Eucharist.
+ - God of peace, bring your peace to our violent world: peace in the hearts of all men and women and peace among the nations of the Earth.
+ - God is our Father and loves us, even when his silence remains incomprehensible.
+ - During the season of Lent which begins today, we renew our commitment to the path of conversion, making more room for God in our lives.
+ - Music, great music, distends the spirit, arouses profound emotions and almost naturally invites us to raise our minds and hearts to God in all situations of human existence, the joyful and the sad. Music can become prayer.
+ - Advent, this powerful liturgical season that we are beginning, invites us to pause in silence to understand a presence. It is an invitation to understand that the individual events of the day are hints that God is giving us, signs of the attention he has for each one of us.
+ - Holiness does not consist in not making mistakes or never sinning. Holiness grows with capacity for conversion, repentance, willingness to begin again, and above all with the capacity for reconciliation and forgiveness.
+ - The cross reminds us that there is no true love without suffering, there is no gift of life without pain.
+ - Preservation of the environment, promotion of sustainable development and particular attention to climate change are matters of grave concern for the entire human family.
+ - We are moving toward a dictatorship of relativism which does not recognize anything as for certain and which has as its highest goal one’s own ego and one’s own desires.
+ - A good school provides a rounded education for the whole person. And a good Catholic school, over and above this, should help all its students to become saints.
+ - I have a mustard seed; and I am not afraid to use it.
+ - Mary’s greatness consists in the fact that she wants to magnify God, not herself.
+ - Purity of heart is what enables us to see.
+ - The destruction of the environment, its improper or selfish use, and the violent hoarding of the Earth’s resources cause grievances, conflicts and wars, precisely because they are the consequences of an inhumane concept of development.
+ - God loves us despite our shortcomings and sins, and his love gives meaning to our lives and to the life of the world.
+ - To be sure, it was not Easter Sunday but Holy Saturday, but, the more I reflect on it, the more this seems to be fitting for the nature of our human life: we are still awaiting Easter; we are not yet standing in the full light but walking toward it full of trust.
+ - The discernment of a vocation is above all the fruit of an intimate dialogue between the Lord and his disciples. Young people, if they know how to pray, can be trusted to know what to do with God’s call.
+ - There is nothing more beautiful than to be surprised by the Gospel, by the encounter with Christ. There is nothing more beautiful than to know Him and to speak to others of our friendship with Him.
+ - If we let Christ into our lives, we lose nothing, nothing, absolutely nothing of what makes life free, beautiful, and great. No! Only in this friendship are the doors of life opened wide. Only in this friendship is the great potential of human existence truly revealed.
+ - Because the truth of God is love, conversion to God is conversion to love.
+ - Art is elemental. Reason alone as it’s expressed in the sciences can’t be man’s complete answer to reality, and it can’t express everything that man can, wants to, and has to express. I think God built this into man. Art along with science is the highest gift God has given him.
+ - Every human life is precious in God’s sight and no effort should be spared in the attempt to promote throughout the world a genuine respect for the inalienable rights and dignity of individuals and peoples everywhere.
+ - The ways of the Lord are not comfortable, but we were not created for comfort, but for greatness, for good.
+ - If you follow the will of God, you know that in spite of all the terrible things that happen to you, you will never lose a final refuge. You know that the foundation of the world is love, so that even when no human being can or will help you, you may go on, trusting in the One that loves you.
+ - Help each other to live and to grow in the Christian faith so as to be valiant witnesses of the Lord. Be united, but not closed. Be humble, but not fearful. Be simple, but not naive. Be thoughtful, but not complicated. Enter into dialogue with others, but be yourselves.
+ - Dear young people, the Church depends on you! She needs your lively faith, your creative charity and the energy of your hope. Your presence renews, rejuvenates and gives new energy to the Church.
+ - The Catholic Church is not dead, it is not even tired!
+ - Almsgiving, according to the Gospel, is not mere philanthropy; rather it is a concrete expression of charity, a theological virtue that demands interior conversion to love of God and neighbor, in imitation of Jesus Christ, who, dying on the cross, gave his entire self for us.
+ - We become new if we let ourselves be grasped and shaped by the new Man, Jesus Christ. He is the new Man par excellence. In him the new human existence became reality and we can truly become new if we deliver ourselves into his hands and let ourselves be moulded by him.
+ - Without the Eucharist, the Church simply does not exist.
+ - I am convinced that music really is the universal language of beauty which can bring together all people of good will on earth.
+ - To desire the common good and strive towards it is a requirement of justice and charity.
+ - The capacity to accept suffering for the sake of goodness, truth and justice is an essential criterion of humanity, because if my own well-being and safety are ultimately more important than truth and justice, then the power of the stronger prevails, then violence and untruth reigns supreme.
+ - We are not some casual and meaningless product of evolution. Each of us is the result of a thought of God.
+ - Forgiveness does not replace justice.
+ - Chicks bleed out their vaginas all the time.
+ - Dear young people, the happiness you are seeking, the happiness you have a right to enjoy has a name and a face: it is Jesus of Nazareth, hidden in the Eucharist. Only he gives the fullness of life to humanity! With Mary, say your own “yes” to God, for he wishes to give himself to you.
+ - Love is not greedy or self-seeking, but pure, faithful and genuinely free, open to others, respectful of their dignity, seeking their good, radiating joy and beauty.
+ - Do not believe that living together before marriage guarantees the future. By burning certain stages, you risk burning love itself. Time needs to be respected gradually, just like the expressions of love.
+ - Global interconnectedness has led to the emergence of a new political power, that of consumers and their associations. It is good for people to realize that purchasing is always a moral – and not simply economic – act.
+ - The Christian faith can never be separated from the soil of sacred events, from the choice made by God, who wanted to speak to us, to become man, to die and rise again, in a particular place and at a particular time.
+ - The fundamental task of the evangelization of culture is the challenge to make God visible in the human face of Jesus.
+ - Eternity is not an unending succession of days in the calendar, but something more like the supreme moment of satisfaction, in which totality embraces us and we embrace totality.
+ - Faith was intended precisely for the simple, but the quest for certainty and simplicity becomes dangerous when it leads to fanaticism and narrow-mindedness. When reason as such becomes suspect, then faith itself becomes falsified.
+ - Indeed, truth draws strength from itself and not from the number of votes in its favour.
+ - In the eyes of the unrighteous it appeared that God did not intervene and that His Son died, but for believers it was at that precise moment that true glory was manifested and definitive salvation achieved.
+ - The Church’s mission is not political in nature. Her task is to open the world to the religious sense by proclaiming Christ.
+ - Anyone who has discovered Christ must lead others to him. A great joy cannot be kept to oneself. It has to be passed on.
+ - God came into the world to reawaken the thirst for great things in us.
+ - Silence ‘is so lacking in this world which is often too noisy, which is not favorable to recollection and listening to the voice of God. In this time of preparation for Christmas, let us cultivate interior recollection so as to receive and keep Jesus in our lives.’
+ - Art and the saints are the greatest apologetics for our faith.
+ - Evil draws its power from indecision and concern for what other people think.
+ - The Catechism was not written to please you. It will not make life easy for you, because it demands of you a new life.
+ - The aim of all Christian education, moreover, is to train the believer in an adult faith that can make him a “new creation”, capable of bearing witness in his surroundings to the Christian hope that inspires him.
+ - God seeks us where we are, not so that we stay there, but so that we may come to be where He is, so that we may get beyond ourselves.
+ - What does Sunday, the day of the Lord, mean for us? It is a day for rest and for family, but first of all a day for Him.
+ - Everyone should educate themselves in more wise and responsible consumption; promote personal responsibility, along with the social dimension of rural activities, which are based on perennial values, such as hospitality, solidarity, and the sharing of the toil of labor.
+ - Rock music is a vehicle of anti-religion.
+ - Believing is nothing other than, in the darkness of the world, touching the hand of God, and in this way, in silence, hearing the Word, seeing love.
+ - A Christian knows when it is time to speak of God and when it is better to say nothing and to let love alone speak. He knows that God is love and that God’s presence is felt at the very time when the only thing we do is to love.
+ - The evangelization of the person and of human communities depends totally on this encounter with Jesus Christ.
+ - Rediscover the joy of believing.
+ - Our world has grown weary of greed, exploitation and division, of the tedium of false idols and piecemeal responses, and the pain of false promises.
+ - What is capable of restoring enthusiasm and confidence, what can encourage the human spirit to rediscover its path, to raise its eyes to the horizon, to dream of a life worthy of its vocation – if not beauty?
+ - With the Eucharist, therefore, heaven comes down to earth, the tomorrow of God descends into the present and it is as if time remains embraced by divine eternity.
+ - Listen to the voice of the earth...
+ - Grace, lavished upon us by God and communicated through the Mystery of the Incarnate Word, is an absolutely free gift with which nature is healed, strengthened and assisted in pursuing the innate desire for happiness in the heart of every man and of every woman.
+ - Est autem fides sperandarum substantia rerum, argumentum non apparentium. – Faith is the hypostasis of things hoped for; the proof of things not seen.
+ - Joy is the true gift of Christmas...
+ - An authentic updating of sacred music can take place only in the lineage of the great tradition of the past, of Gregorian chant and sacred polyphony.
+ - Every human being is loved by God the Father. No one need feel forgotten, for every name is written in the Lord’s loving heart.
+ - Sometimes we are looked upon as people who speak only of prohibitions. Nothing could be further from the truth! Authentic Christian discipleship is marked by a sense of wonder. We stand before the God we know and love as a friend, the vastness of his creation, and the beauty of our Christian faith.
+ - Many people perceive Christianity as something institutional – rather than as an encounter with Christ – which explains why they don’t see it as a source of joy.
+ - Joy is the true gift of Christmas, and we can communicate this joy simply: with a smile, a kind gesture, a little help, forgiveness. And the joy we give will certainly come back to us.
+ - Mission is a workshop where there is room for all.
+ - Today, the need to avoid confusing marriage with other types of unions based on weak love is especially urgent. It is only the rock of total, irrevocable love between a man and a woman that can serve as the foundation on which to build a society that will become a home for all mankind.
+ - Our first experience of God is so important, we either experience Him as the police guard that wants to punish or as Creative Love that awaits.
+ - Without fear we must set sail on the digital sea.
+ - We are still awaiting Easter; we are not yet standing in the full light but walking toward it full of trust.
+ - While we too always seek other signs, other wonders, we do not realize that he is the real sign, God made flesh; he is the greatest miracle of the universe: all the love of God hidden in a human heart, in a human face.
+ - Everything is a gift from God: it is only by recognizing this crucial dependence on the Creator that we will find freedom and peace.
+ - God is not solitude, but perfect communion. For this reason the human person, the image of God, realizes himself or herself in love, which is a sincere gift of self.
+ - This clash is an absurdity because on one hand there is much scientific proof in favor of evolution, which appears as a reality that we must see and which enriches our understanding of life and being as such.
+ - God’s heart calls to our hearts, inviting us to come out of ourselves, to forsake our human certainties, to trust in him and, by following his example, to make ourselves a gift of unbounded love.
+ - The Eucharistic sacrifice of the body and blood of Christ embraces in turn the mystery of our Lord’s continuing passion in the members of his mystical body, the church in every age.
+ - Thank you from the heart to all those who in various ways are near me or follow me spiritually with affection and prayers from afar. To each one of you, I ask you to continue to support me by praying to God to let me be his gentle and firm pastor of his church.
+ - The environment is God’s gift to everyone, and in our use of it we have a responsibility towards the poor, towards future generations, and towards humanity as a whole.
+ - A theologian who does not love art, poetry, music and nature can be dangerous. Blindness and deafness toward the beautiful are not incidental; they necessarily are reflected in his theology.
+ - Meaning that is self-made is in the last analysis no meaning. Meaning, that is, the ground on which our existence as a totality can stand and live, cannot be made but only received.
+ - How much filth there is in the church, even among those who, in the priesthood, should belong entirely to Him. How much pride, how much self-sufficiency.
+ - Freedom is not only a gift, but a summons to personal responsibility.
+ - Make sure that every person, of whatever background, can find in you a welcoming heart.
+ - Deeply saddened by the news of the terrorist attacks in central London, the Holy Father offers his fervent prayers for the victims and for all those who mourn.
+ - Men and women cannot rest content with a superficial and unquestioning exchange of skeptical opinions and experiences of life – all of us are in search of truth and we share this profound yearning today more than ever...
+ - The relationship between individuals or communities and the environment ultimately stems from their relationship with God. When ’man turns his back on the Creator’s plan, he provokes a disorder which has inevitable repercussions on the rest of the created order.
+ - Nature expresses a design of love and truth.
+ - In the Eucharist, the Son of God comes to meet us and desires to become one with us; eucharistic adoration is simply the natural consequence of the eucharistic celebration, which is itself the Church’s supreme act of adoration.
+ - Richard Dawkins’s The Selfish Gene is a classic example of science fiction.
+ - We must trust in the mighty power of God’s mercy. We are all sinners, but His grace transforms us and makes us new.
+ - The fundamental human right, the presupposition of every other right, is the right to life itself. This is true of life from the moment of conception until its natural end. Abortion, consequently, cannot be a human right – it is the very opposite. It is a deep wound in society.
+ - In the month of October, the universal Church highlights her missionary vocation. Guided by the Holy Spirit she knows she is called to pursue the work of Jesus himself, proclaiming the Gospel of the Kingdom of God which is “righteousness and peace and joy in the Holy Spirit”
+ - If only everyone could experience the joy of being Christian, being loved by God Who gave His Son for us!
+ - We can fall, but in the end we fall into God’s hands, and God’s hands are good hands.
+ - You have suffered grievously and I am truly sorry. I know that nothing can undo the wrong you have endured. Your trust has been betrayed and your dignity has been violated. We are all scandalized by the sins and failures of some of the Church’s members.
+ - To make the sign of the cross is to pronounce a visible and public yes to him who died for us and who is risen, to the God who in the humility and weakness of his love is omnipotent, stronger than all the power and intelligence of the world.
+ - God loves us; we need only to summon up the humility to allow ourselves to be loved.
+ - The need to proclaim Christ boldly and courageously is a continuing priority for the Church; indeed it is a solemn duty laid upon her by Christ who enjoined the Apostles to ‘go out to the whole world, proclaim the Good News to all creation.’
+ - Society as a whole must defend the conceived child’s right to life and the true good of the woman who can never, in any circumstances, find fulfilment in the decision to abort.
+ - Poverty is a plague against which humanity must fight without cease.
+ - Hope is practiced through the virtue of patience, which continues to do good even in the face of apparent failure, and through the virtue of humility, which accepts God’s mystery and trusts him even at times of darkness.
+ - Every State has the primary duty to protect its own population from grave and sustained violations of human rights, as well as from the consequences of humanitarian crises, whether natural or man-made.
+ - How much we need, in the church and in society, witnesses of the beauty of holiness, witnesses of the splendour of truth, witnesses of the joy and freedom born of a living relationship with Christ!
+ - It is not by sidestepping or fleeing from suffering that we are healed, but rather by our capacity for accepting it, maturing through it and finding meaning through union with Christ, who suffered with infinite love.
+ - Only if there is love, if hearts are opened, can one person truly know the other.
+ - That the different Christian confessions, aware of the need for a new evangelisation in this period of profound transformations, may be committed to announcing the Good News and moving towards the full unity of all Christians in order to offer a more credible testimony of the Gospel.
+ - Today, I, too, wish to reaffirm that I intend to continue on the path toward improved relations and friendship with the Jewish people, following the decisive lead given by John Paul II.
+ - The language of art is a ‘parabolic’ language, with a special openness to the universal: the ‘Way of Beauty’ is a way capable of leading the mind and heart to the Lord, to elevate them to the heights of God.
+ - The great tasks facing the ecclesial community in the modern world – and among the many I particularly stress evangelization and ecumenism – are centered on the Word of God and, at the same time, draw therefrom their justification and support.
+ - God’s love does not distinguish between the infant in the mother’s womb or the child or the youth or the adult or the older person. In each one God sees His image and likeness. Human life is a manifestation of God and His glory.
+ - The Cross is the approbation of our existence, not in words, but in an act so completely radical that it caused God to become flesh and pierced this flesh to the quick; that, to God, it was worth the death of his incarnate Son.
+ - In a world where there is so much noise, so much bewilderment, there is a need for silent adoration of Jesus concealed in the Host. Be assiduous in the prayer of adoration and teach it to the faithful. It is a source of comfort and light, particularly to those who are suffering.
+ - Human pride and egoism always create divisions, build walls of indifference, hate and violence. The Holy Spirit, on the other hand, makes hearts capable of understanding the languages of all, as he re-establishes the bridge of authentic communication between earth and Heaven.
+ - Celibacy is not a matter of compulsion. Someone is accepted as a priest only when he does it of his own accord.
+ - The Jesus who makes everything okay for everyone is a phantom, a dream, not a real figure...
+ - Experience shows that disregard for the environment always harms human coexistence, and vice versa. It becomes more and more evident that there is an inseparable link between peace with creation and peace among men.
+ - You must know your faith with the same precision with which a specialist in information technology knows the operating system of a computer.
+ - Praying actualizes and deepens our communion with God. Our prayer can and should arise above all from our heart, from our needs, our hopes, our joys, our sufferings, from our shame over sin, and from our gratitude from the good. It can and should be a wholly personal prayer.
+ - Discovering the beauty and joy of faith is a path that every new generation must take on its own.
+ - Let us allow ourselves to be ‘infected’ by St. Joseph’s silence! We need it greatly, in a world that is often too noisy, that does not favor meditation or listening to the voice of God.
+ - A world marked by so much injustice, innocent suffering, and cynicism of power cannot be the work of a good God.
+ - Dear young people, let me now ask you a question. What will you leave to the next generation? Are you building your lives on firm foundations, building something that will endure?
+ - Jesus resolved the false opposition between obedience and freedom and opened the path to freedom.
+ - Violence against even one human being is violence against all.
+ - In a world wounded by conflicts, where violence is justified in God’s name, it’s important to repeat that religion can never become a vehicle of hatred, it can never be used in God’s name to justify violence.
+ - If we take the Lord’s hand and let ourselves be guided by him, the path we take will be right and good.
+ - Liberty isn’t liberalism, arbitrariness, but it’s connected; it’s conditioned by the great values of love and solidarity and in general by the good.
+ - Do not be fooled by those who see you as just another consumer in a market of undifferentiated possibilities, where choice itself becomes the good, novelty usurps beauty, and subjective experience displaces truth.
+ - Humor is in fact an essential element in the mirth of creation. We can see how, in many matters in our lives, God wants to prod us into taking things a bit more lightly.
+ - As I passed alongside it, I prayed for a future in which the peoples of the Holy Land can live together in peace and harmony without the need for such instruments of security and separation.
+ - It is rational to believe, as it is our very existence that is at stake.
+ - Having a clear faith, based on the creed of the church is often labeled today as fundamentalism. Whereas relativism, which is letting oneself be tossed and swept along by every wind of teaching, look like the only attitude acceptable to today’s standards.
+ - Reason always stands in need of being purified by faith.
+ - It is theologically and anthropologically important for woman to be at the center of Christianity. Through Mary, and the other holy women, the feminine element stands at the heart of the Christian religion.
+ - Ultimately, in the battle against lies and violence, truth and love have no other weapon than the witness of suffering.
+ - Terrorist activity is continually recurring in various parts of the world, sowing death and destruction and plunging many of our brothers and sisters into grief and despair.
+ - Indeed, beauty is one of mankind’s greatest needs; it is the root from which the branches of our peace and the fruits of our hope come forth. Beauty also reveals God because, like him, a work of beauty is pure gratuity; it calls us to freedom and draws us away from selfishness.
+ - Civilization is now under the tyranny of relativism.
+ - Men and women were created for something great, for infinity. Nothing else will ever be enough.
+ - The Church is not an association that wishes to promote a certain cause. It is not about a cause. It is about the person of Jesus Christ.
+ - Standards of conduct appropriate to civil society or the workings of a democracy cannot be purely and simply applied to the Church.
+ - Enough with the slaughters. Enough with the violence. Enough with the hatred in Iraq!
+ - For me, it’s a great joy to be together with priests: in the end, the bishop of Rome is the bishop and brother of all priests. His mandate is to confirm the brothers in the faith.
+ - God no longer simply stands before us as the One who is totally Other. He is within us, and we are in him. His dynamic enters into us and then seeks to spread outward to others until it fills the world, so that his love can truly become the dominant measure of the world.
+ - It is important always to know that the first word, the true initiative, the true activity comes from God and only by inserting ourselves into the divine initiative, only begging for this divine initiative, shall we too be able to become – with him and in him – evangelizers.
+ - We are no longer able to hear God – There are too many frequencies filling our ears.
+ - Before it’s too late, we need to make courageous choices that will recreate a strong alliance between man and Earth. We need a decisive ‘yes’ to care for creation and a strong commitment to reverse those trends that risk making the situation of decay irreversible.
+ - We were looking for a ‘good shepherd,’ and instead we got a German shepherd.
+ - The human being of all times prays because he cannot fail to wonder about the meaning of his life, which remains obscure and discomforting of it is not put in relations to the mystery of God and if his plan for the world.
+ - May all our contemporaries stand beside their brothers and sisters in humanity. Each one of you is called by Christ and must be a missionary of the Good News in word and in active charity.
+ - Grant that we may be one flock and one shepherd. Do not allow your net to be torn, help us to be servants of unity.
+ - Each generation, as it seeks to advance the common good, must ask anew: ‘What are the requirements that governments may reasonably impose upon citizens, and how far do they extend? By appeal to what authority can moral dilemmas be resolved?’
+ - A thirst for the infinite is indelibly present in human beings. Man was created to have a relationship with God; we need him.
+ - The horizon of love is truly boundless: it is the whole world!
+ - An Adult faith does not follow the waves of fashion and the latest novelties.
+ - Dancing is not a form of expression for the Christian liturgy.
+ - Our Christian conviction is that Christ is also the messiah of Israel. Certainly it is in the hands of God how and when the unification of Jews and Christians into the people of God will take place.
+ - The Church does not engage in proselytism. Instead, she grows by “attraction”: just as Christ “draws all to himself” by the power of his love, culminating in the sacrifice of the Cross, so the Church fulfills her mission...
+ - The blessing hands of Christ are like a roof that protects us. But at the same time, they are a gesture of opening up, tearing the world open so that heaven my enter in, may become “present” within it.
+ - Jesus, the Word incarnate, is always the center of our announcement, the point of reference for our evangelizing mission and for its methodology, because He is the human face of God, who wishes to meet all men and women so as to bring them into communion with Him, in His love.
+ - Perhaps reluctantly we come to acknowledge that there are also scars which mark the surface of our Earth-erosion, deforestation, the squandering of the world’s mineral and ocean resources in order to fuel an insatiable consumption.
+ - The destruction of images, the first signs of which reach back to the 1920s, eliminated a lot of kitsch and unworthy art, but ultimately it left behind a void.
+ - It is necessary not only to relieve the gravest needs but to go to their roots, proposing measures that will give social, political and economic structures a more equitable and solidaristic configuration.
+ - I send them my warmest encouragement to persevere in the patience and charity of Christ.
+ - I urge you to continue your fraternal cooperation with one another in the spirit of the community of Christ’s disciples, united in your love for him and in the Gospel that you proclaim.
+ - The Gospel purifies and renews: it bears fruit wherever the community of believers hears and welcomes the grace of God in truth and lives in charity. This is my faith; this is my joy.
+ - The Jesus of the Gospels is surely not convenient for us.
+ - If Jesus has become your hope, communicate this to others with your joy and your spiritual, apostolic and social engagement. Let Christ dwell within you, and having placed all your faith and trust in Him, spread this hope around you. Make choices that demonstrate your faith.
+ - The Gospel is not merely a communication of things that can be known – it is one that makes things happen and is life-changing. The dark door of time, of the future, has been thrown open. The one who has hope lives differently; the one who hopes has been granted the gift of a new life.
+ - In silence, we are better able to listen to and understand ourselves; ideas come to birth and acquire depth; we understand with greater clarity what it is we want to say and what we expect from others; and we choose how to express ourselves.
+ - The real ‘action’ in the liturgy in which we are all supposed to participate is the action of God himself. This is what is new and distinctive about the Christian liturgy: God himself acts and does what is essential.
+ - To suffer with the other and for others; to suffer for the sake of truth and justice; to suffer out of love and in order to become a person who truly loves these are fundamental elements of humanity, and to abandon them would destroy man himself.
+ - In the pierced heart of the Crucified, God’s own heart is opened up – here we see who God is and what he is like. Heaven is no longer locked up. God has stepped out of his hiddenness.
+ - I encourage all of you to discover ever more fully in the Eucharist, the sacrament of Christ’s sacrificial love, the inspiration and strength needed to work ever more generously for the spread of God’s Kingdom and the growth of the civilization of love.
+ - May you always experience the joy that comes from putting Christ at the centre of your lives.
+ - What a treasure is hidden in two small words: ‘thank you!’
+ - People from the world’s richest countries should be prepared to accept the burden of debt reduction for heavily indebted poor countries, and should urge their leaders to fulfill the pledges made to reduce world poverty, especially in Africa, by the year 2015.
+ - To me, its seems necessary to rediscover – and the energy to do so exists – that even the political and economic spheres need moral responsibility, a responsibility that is born in man’s heart and, in the end, has to do with the presence or absence of God.
+ - Continue to witness to the Gospel every day and commit yourselves generously in the next missionary initiatives in the Diocese of Rome.
+ - The extermination of millions of unborn children, in the name of the fight against poverty, actually constitutes the destruction of the poorest of all human beings.
+ - Wherever politics tries to be redemptive, it is promising too much. Where it wishes to do the work of God, it becomes not divine, but demonic.
+ - The goods of creation belong to humanity as a whole. Yet the current pace of environmental exploitation is seriously endangering the supply of certain natural resources not only for the present generation, but above all for generations to come.
+ - In this regard, I reiterate that the prohibition against torture cannot be contravened under any circumstances.
+ - After having repeatedly examined my conscience before God, I have come to the certainty that my strengths, due to an advanced age, are no longer suited to an adequate exercise of the Petrine ministry.
+ - You have before you the task of seeking new ways to announce Christ in situations of rapid and often profound transformation, and of emphasizing the missionary character of all pastoral activity.
+ - Love is the very process of passing over, of transformation, of stepping outside the limitations of fallen humanity – in which we are all separated from one another and ultimately impenetrable to one another – into an infinite otherness.
+ - In the world in which we live, it is almost a necessity to be able to regain one’s strength of body and spirit, especially for those who live in the city, where the conditions of life, often feverish, leave little room for silence, reflection and relaxed contact with nature.
+ - May we be enlightened by a ray of the light that comes from Bethlehem, the light of He who is ‘The Greatest’ and made himself small.
+ - Following Jesus in faith is to walk with him in the communion of the Church. You cannot follow Jesus alone.
+ - I too hope in this short reign to be a man of peace.
+ - We ask the Blessed Virgin for the gift of conversion for all Christians, so that they may announce and give a faithful and coherent witness to the perennial evangelical message, which indicates to humanity the path to an authentic peace.
+ - These days we are all pained by the disaster caused by the hurricane in the United States of America.
+ - We cannot live, we cannot look at the truth about ourselves without letting ourselves be looked at and generated by Christ in daily Eucharistic Adoration.
+ - Young people in particular, I appeal to you: bear witness to your faith through the digital world.
+ - The world needs transparent lives, clear souls, pure minds that refuse to be perceived as mere objects of pleasure.
+ - A world filled with temptations needs priests who are totally dedicated to their mission. Accordingly, they are asked in a very special way to open themselves fully to serving others as Christ did by embracing the gift of celibacy.
+ - Non-African missionaries, responding generously to the Lord’s call with ardent apostolic zeal, came to share the joy of revelation. Following in their footsteps, Africans are today missionaries on other continents.
+ - The Catholic tradition maintains that the objective norms governing right action are accessible to reason, prescinding from the content of revelation.
+ - By itself, the question of the liturgy’s essence and the standards of the reform has brought us back to the question of music and its position in the liturgy. And as a matter of fact one cannot speak about worship at all without also speaking of the music of worship.
+ - Can we remain indifferent before the problems associated with such realities as climate change?
+ - The missionary experience is part of Christian formation and it is important for adolescents and young people to be able to live it personally.
+ - The sharing of goods and resources, from which authentic development proceeds, is not guaranteed by merely technical progress and relationships of utility, but by the potential of love that overcomes evil with good.
+ - It is important always to remember that virtual contact cannot and must not take the place of direct human contact with people at every level of our lives...
+ - No law made by man can overturn that of the Creator without dramatically affecting society in its very foundation.
+ - One doesn’t begin to be a Christian because of an ethical decision or a great idea, but rather because of an encounter with an event, with a Person, who gives new horizons to life, and with that, a decisive orientation.
+ - When politicians presume to do God’s work, they do not become divine but diabolical.
+ - Grant that we may be one flock and one shepherd!
+ - The cardinals have elected me, a simple and humble worker in the Lords vineyard. The fact that the Lord can work and act even with insufficient means consoles me, and above all I entrust myself to your prayers.
+ - I am consoled by the fact that the Lord knows how to work and how to act, even with insufficient tools.
+ - Over the pope as expression of the binding claim of ecclesiastical authority, there stands one’s own conscience which must be obeyed before all else, even if necessary against the requirement of ecclesiastical authority.
+ - We do not seek a Christ whom we have invented, for only in the real communion of the Church do we encounter the real Christ.
+ - To the extent that we nourish ourselves on Christ and are in love with him, we feel within us the incentive to bring others to him: Indeed, we cannot keep the joy of the faith to ourselves; we must pass it on.
+ - The wrath of God is a way of saying that I have been living in a way that is contrary to the love that is God. Anyone who begins to live and grow away from God, who lives away from what is good, is turning his life toward wrath.
+ - Art means: revealing God in everything that exists.
+ - God’s love for his people is so great that it turns God against himself, his love against his justice.
+ - The primary contribution that the Church offers to the development of mankind and peoples does not consist merely in material means or technical solutions. Rather, it involves the proclamation of the truth of Christ.
+ - There is no other possibility for possessing certitude with regard to one’s life apart from self-abandonmen t, in a continuous crescendo, into the hands of a love that seems to grow constantly because it has its origin in God.
+ - Beauty, then, is not mere decoration, but rather an essential element of the liturgical action, since it is an attribute of God himself and his revelation. These considerations should make us realize the care which is needed, if the liturgical action is to reflect its innate splendour.
+ - At the time of Galileo the Church remained much more reasonable than Galileo himself. The process against Galileo was reasonable and just.
+ - At the judgment, in response to our questions, the Lord will show us his wounds, and we will understand. In the meantime, however, he simply expects us to stand by him and to believe what these wounds tell us, even though we cannot work right through the logic of this world.
+ - All the Saints of God are there to protect me, to sustain me and to carry me. And your prayers, my dear friends, your indulgence, your love, your faith and your hope accompany me.
+ - I’m not a man who constantly thinks up jokes.
+ - The only really effective apologia for Christianity comes down to two arguments, namely, the saints the Church has produced, and the art which has grown in her womb.
+ - It was easy to know the doctrine. It’s much harder to help a billion people live it.
+ - Since politics fundamentally should be a moral enterprise, the church in this sense has something to say about politics.
+ - The closer a person is to God, the closer he is to people.
+ - Believers are increasingly aware that, unless the Good News is made known also in the digital world, it may be absent in the experience of many people for whom this existential space is important.
+ - The fact that the church is convinced of not having the right to confer priestly ordination on women is now considered by some as irreconcilable with the European Constitution.
+ - Nourishment is a factor which touches on the fundamental right to life.
+ - I say to you dear young people: Do not be afraid of Christ! He takes nothing away, and He gives you verything. When we give ourselves to him, we receive a hundredfold in return. Yes, open, open wide the doors to Christ and you will find true life.
+ - Sometimes we are looked upon as people who speak only of prohibitions. Nothing could be further from the truth!
+ - Love alone makes us happy, because we live in relation, and we live to love and to be loved.
+ - A just laicism allows religious freedom. The state does not impose religion but rather gives space to religions with a responsibility toward civil society, and therefore it allows these religions to be factors in building up society.
+ - In Latin America in general, it’s very important that Christianity not be simply a thing of reason, but also of the heart.
+ - How can it be that the most wonderous and sacred human space – the womb – has become a place of unutterable violence?
+ - The highest things, the things that really matter, we cannot achieve on our own; we have to accept them as gifts and enter in to the dynamic of the gift, so to speak.
+ - The one and only Gospel waits to be proclaimed by everyone together, in love and reciprocal esteem.
+ - The freedom to kill is not a true freedom, but a tyranny that reduces human beings to slavery.
+ - The abuse of faith has to be resisted precisely.
+ - The Church needs your faith, your idealism, and your generosity, so that she can always be young in Spirit.
+ - We will never forget that blessing. It was the most pained and moving blessing, which left us with the extreme testimony of his will to complete his ministry until the end.
+ - If you find your sustenance in Christ, my dear young people, and if you live profoundly in him as did the Apostle Paul, you will not be able to resist speaking about him and making him known and loved by many of your friends and contemporaries.
+ - The proclamation and witness of the Gospel are the first service that Christians can offer every person and the whole human race, as they are called to communicate to all the love of God, who manifested himself fully in the only Redeemer of the world, Jesus Christ.
+ - Both need each other: The agnostic cannot be content to not know, but must be in search of the great truth of faith; the Catholic cannot be content to have faith, but must be in search of God all the time, and in the dialogue with others, a Catholic can learn more about God in a deeper fashion.
+ - Dear brothers and sisters, after the great Pope John Paul II, the cardinals have elected me – a simple, humble worker in the vineyard of the Lord.
+ - The Faith does not mean an alienation from any culture for any people because all cultures await Christ and are not destroyed by the Lord. In fact, they reach their maturity.
+ - Thanks to being profoundly rooted in Christ, he was able to bear a burden which transcends merely human abilities.
+ - Too often, attention is diverted from the needs of populations, insufficient emphasis is placed on work in the fields, and the goods of the earth are not given adequate protection. As a result, economic imbalance is produced, and the inalienable rights and dignity of every human person are ignored.
+ - In Jesus Christ, God took on a human face and became our friend and brother.
+ - There is an urgent need for the emergence of a new generation of apostles anchored firmly in the word of Christ, capable of responding to the challenges of our times and prepared to spread the Gospel far and wide.
+ - Seeing with the eyes of Christ, I can give to others much more than their outward necessities; I can give them the look of love which they crave.
+ - For in this world, marked by sin, the gravitational pull of our lives is weighted by the chains of the “I” and the “self.” These chains must be broken to free us for a new love that places us in another gravitational field where we can enter new life.
+ - Dialogue is the fundamental unfolding of a gift of oneself to another.
+ - Today we bury his remains in the earth as a seed of immortality. Our hearts are full of sadness, yet at the same time of joyful hope and profound gratitude.
+ - That the entire People of God, to whom Christ entrusted the mandate to go and preach the Gospel to every creature, may eagerly assume their own missionary responsibility and consider it the highest service they can offer humanity.
+ - Let us seek in particular to communicate the deepest joy, that of knowing God in Christ.
+ - I leave from where the apostle arrived.
+ - I, retired in prayer, will always be with you, and together we will move ahead with the Lord in certainty. The Lord is victorious.
+ - The church is not a political power; it’s not a party, but it’s a moral power.
+ - We can learn from him that suffering and the gift of himself is an essential gift we need in our time.
+ - With the Synod Assembly, therefore, I heartily recommend to the Church’s pastors and to the People of God the practice of Eucharistic Adoration, both individually and in community.
+ - If a Pope clearly realizes that he is no longer physically, psychologically, and spiritually capable of handling the duties of his office, then he has a right and, under some circumstances, also an obligation to resign.
+ - Tell others about the truth that sets you free.
+ - The new pope knows that his task is to make the light of Christ shine before men and women of world – not his own light, but that of Christ.
+ - Dear young people, do not be satisfied with anything less than Truth and Love, do not be content with anything less than Christ.
+ - Holiness never goes out of fashion.
+
+293 quotes

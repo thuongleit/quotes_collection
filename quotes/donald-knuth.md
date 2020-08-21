@@ -1,0 +1,60 @@
+ - Premature optimization is the root of all evil.
+ - Computer programming is an art, because it applies accumulated knowledge to the world, because it requires skill and ingenuity, and especially because it produces objects of beauty. A programmer who subconsciously views himself as an artist will enjoy what he does and will do it better.
+ - An algorithm must be seen to be believed.
+ - Programming is the art of telling another human being what one wants the computer to do.
+ - Everyday life is like programming, I guess. If you love something you can put beauty into it.
+ - Computers are good at following instructions, but not at reading your mind.
+ - Science is what we understand well enough to explain to a computer. Art is everything else we do.
+ - Always remember, however, that there’s usually a simpler and better way to do something than the first way that pops into your head.
+ - A mathematical formula should never be “owned” by anybody! Mathematics belong to God.
+ - Beware of bugs in the above code; I have only proved it correct, not tried it.
+ - If you optimize everything, you will always be unhappy.
+ - We should continually be striving to transform every art into a science: in the process, we advance the art.
+ - The best theory is inspired by practice.
+ - For his major contributions to the analysis of algorithms and the design of programming languages, and in particular for his contributions to the “art of computer programming” through his well-known books in a continuous series by this title.
+ - It is much more rewarding to do more with less.
+ - We should forget about small efficiencies, say about 97% of the time: premature optimization is the root of all evil. Yet we should not pass up our opportunities in that critical 3%.
+ - People think that computer science is the art of geniuses but the actual reality is the opposite, just many people doing things that build on each other, like a wall of mini stones.
+ - I define UNIX as 30 definitions of regular expressions living under one roof.
+ - Programs are meant to be read by humans and only incidentally for computers to execute.
+ - The important thing, once you have enough to eat and a nice house, is what you can do for others, what you can contribute to the enterprise as a whole.
+ - Meta-design is much more difficult than design; it’s easier to draw something than to explain how to draw it.
+ - Programming is legitimate and necessary academic endeavour.
+ - Random numbers should not be generated with a method chosen at random.
+ - I remember that mathematicians were telling me in the 1960s that they would recognize computer science as a mature discipline when it had 1,000 deep algorithms. I think we’ve probably reached 500.
+ - Let us change our traditional attitude to the construction of programs. Instead of imagining that our main task is to instruct a computer what to do, let us concentrate rather on explaining to human beings what we want a computer to do.
+ - The enjoyment of one’s tools is an essential ingredient of successful work.
+ - My general working style is to write everything first with pencil and paper, sitting beside a big wastebasket. Then I use Emacs to enter the text into my machine.
+ - In fact what I would like to see is thousands of computer scientists let loose to do whatever they want. That’s what really advances the field.
+ - If you find that you’re spending almost all your time on theory, start turning some attention to practical things; it will improve your theories. If you find that you’re spending almost all your time on practice, start turning some attention to theoretical things; it will improve your practice.
+ - The designer of a new kind of system must participate fully in the implementation.
+ - The hardest thing is to go to sleep at night, when there are so many urgent things needing to be done. A huge gap exists between what we know is possible with today’s machines and what we have so far been able to finish.
+ - I’ve never been a good estimator of how long things are going to take.
+ - The whole thing that makes a mathematician’s life worthwhile is that he gets the grudging admiration of three or four colleagues.
+ - I can’t be as confident about computer science as I can about biology. Biology easily has 500 years of exciting problems to work on. It’s at that level.
+ - The most important thing in the programming language is the name. A language will not succeed without a good name. I have recently invented a very good name and now I am looking for a suitable language.
+ - The process of preparing programs for a digital computer is especially attractive, not only because it can economically and scientifically rewarding, but also because it can be an aesthetic experience much like composing poetry or music.
+ - My first program taught me a lot about the errors that I was going to be making in the future, and also about how to find errors. That’s sort of the story of my life, making errors and trying to recover from them. I try to get things correct. I probably obsess about not making too many mistakes.
+ - I can’t go to a restaurant and order food because I keep looking at the fonts on the menu.
+ - Any inaccuracies in this index may be explained by the fact that it has been prepared with the help of a computer.
+ - The sun comes up just about as often as it goes down, in the long run, but this doesn’t make its motion random.
+ - These machines have no common sense; they have not yet learned to “think,” and they do exactly as they are told, no more and no less. This fact is the hardest concept to grasp when one first tries to use a computer.
+ - I decry the current tendency to seek patents on algorithms. There are better ways to earn a living than to prevent other people from making use of one’s contributions to computer science.
+ - It would be nice if we could design a virtual reality in Hyperbolic Space, and meet each other there.
+ - The manuals we got from IBM would show examples of programs and I knew I could do a heck of a lot better than that. So I thought I might have some talent.
+ - By understanding a machine-oriented language, the programmer will tend to use a much more efficient method; it is much closer to reality.
+ - I have a hunch that the unknown sequences of DNA will decode into copyright notices and patent protections.
+ - A list is only as strong as its weakest link.
+ - Trees sprout up just about everywhere in computer science...
+ - Science is knowledge which we understand so well that we can teach it to a computer; and if we don’t fully understand something, it is an art to deal with it.
+ - In fact, my main conclusion after spending ten years of my life working on the T E X project is that software is hard. It’s harder than anything else I’ve ever had to do.
+ - TeX has found at least one bug in every Pascal compiler it’s been run on, I think, and at least two in every C compiler.
+ - The most important thing in the kitchen is the waste paper basket and it needs to be centrally located.
+ - God is a challenge because there is no proof of his existence and therefore the search must continue.
+ - People who are more than casually interested in computers should have at least some idea of what the underlying hardware is like. Otherwise the programs they write will be pretty weird.
+ - There’s ways to amuse yourself while doing things and thats how I look at efficency.
+ - I’m obsessively detail-oriented.
+ - Email is a wonderful thing for people whose role in life is to be on top of things. But not for me; my role is to be on the bottom of things. What I do takes long hours of studying and uninterruptible concentration.
+ - I try to learn certain areas of computer science exhaustively; then I try to digest that knowledge into a form that is accessible to people who don’t have time for such study.
+
+58 quotes

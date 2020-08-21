@@ -1,0 +1,24 @@
+ - To oppose corruption in government is the highest obligation of patriotism.
+ - If Lincoln’s primary goal in the War was not the abolition of slavery but simply to preserve the Union, the question arises: Why did the Union need preserving? Or, more pointedly, why did the Southern states want to secede?
+ - The gates of heaven surely are closed to those who decline to oppose totalitarianism with all their might.
+ - The Great Culling of the human race already has begun. It is being done through chemicals added to our drinking water, food, medicines, and the air we breathe – chemicals that have the known effect of reducing fertility and shortening lifespan.
+ - Financial dependence on the state is the foundation of modern serfdom.
+ - Collectivism and freedom are mortal enemies. Only one will survive.
+ - Guns are dangerous. The only thing more dangerous is not having them.
+ - Secondly, as a result of this political favoritism, the FDA has become a primary factor in that formula whereby cartel-oriented companies in the food and drug industry are able to use the police powers of government to harass or destroy their free-market competitors.
+ - Those who are not interested in politics will be forever ruled by those who are.
+ - In truth, money is not created until the instant it is borrowed. It is the act of borrowing which causes it to spring into existence. And, incidentally, it is the act of paying off the debt that causes it to vanish.
+ - There is no time in American history in which there was more economic conflict between segments of the population than there was prior to the Civil War.
+ - Error is better than apathy. Error can be corrected in time to change the outcome. Apathy is seldom corrected until it is too late.
+ - And thirdly, the FDA occasionally does some genuine public good with whatever energies it has left over after serving the vested political and commercial interest of its first two activities.
+ - When governments claim to derive their authority from any source other than the governed, it always leads to the destruction of liberty.
+ - Life is hollow without health and freedom. To seek one while ignoring the other is folly.
+ - The nation’s first experiment with the income tax was tried at this time; another violation of the Constitution.
+ - No one in America fully understands the constantly changing Internal Revenue Code. Agents of the IRS do not, judges do not, congressmen do not, and most assuredly taxpayers do not.
+ - When the Goths are at the gates, forming study groups and praying for deliverance is not effective defense.
+ - The European powers had been anxious to see the United States become embroiled in a civil war and eventually break into two smaller and weaker nations. That would pave the way for their further colonization of Latin American without fear of the Americans being able to enforce the Monroe Doctrine.
+ - The timid and fearful cannot defend liberty – or anything else.
+ - There is much evidence indicating that the Capitalistic and Communist conspiracies BOTH are directed by a single master conspiracy which may have continuity with the Order of the Illuminati which was founded 200 years ago...
+ - The Civil War was started over economic issues, not slavery. The War was not popular in the North until the issue of slavery was added at a later time to turn it into a moral crusade.
+
+22 quotes

@@ -1,0 +1,181 @@
+ - Music is my religion.
+ - Music is a safe kind of high.
+ - When the power of love overcomes the love of power, the world will know peace.
+ - Knowledge speaks, but wisdom listens.
+ - Excuse me while I kiss the sky.
+ - If I’m free, it’s because I’m always running.
+ - Music doesn't lie. If there is something to be changed in this world, then it can only happen through music. 
+ - I’m the one that’s got to die when it’s time for me to die, so let me live my life the way I want to.
+ - Blues is easy to play, but hard to feel.
+ - Let me live my life the way I want to.
+ - Music is Magic. Magic is Life.
+ - Imagination is the key to my lyrics. The rest is painted with a little science fiction.
+ - You have to go on and be crazy. Craziness is like heaven.
+ - Are you experienced? Have you ever been experienced?
+ - I've been imitated so well I've heard people copy my mistakes.
+ - May the dreams of your past be the reality of your future.
+ - With the power of soul, anything is possible.
+ - Music is going to break the way because music is in a spiritual thing of its own. It’s like the waves of the ocean. You can’t just cut out the perfect wave and take it home with you.
+ - In order to change the world, you have to get your head together first.
+ - Butterflies and zebras And moonbeams and fairy tales That’s all she ever thinks about Riding with the wind.
+ - Don’t be reckless with other people’s hearts. Don’t put up with people who are reckless with yours.
+ - When I die, just keep playing the records.
+ - Good and evil lay side by side.
+ - You have to forget about what other people say, when you’re supposed to die, or when you’re supposed to be loving. You have to forget about all these things. You have to go on and be crazy. Craziness is like heaven.
+ - My goal is to be one with the music. I just dedicate my whole life to this art.
+ - When I’m sad, she comes to me with a thousand smiles.
+ - All I’m gonna do is just go on and do what I feel.
+ - And so castles made of sand slips into the sea, eventually...
+ - May I love you away from the evils of today to the dreams of tomorrow, you know heaven has no sorrow.
+ - Sometimes music comes across to me just when I am sitting around doing nothing, and then the music makes me think of a few words I might have written.
+ - Manic depression’s touching my soul. I know what I want, but I just don’t know how to go about getting it.
+ - A broom is drearily sweeping up the broken pieces of yesterday’s life.
+ - I want to thank you my sweet darling for digging in the mud and picking me up.
+ - Will the wind ever remember the names it has blown in the past? And with its crutch, its old age, and its wisdom, it whispers no this will be the last.
+ - You’re not the only one accused of hit and run. Tire tracks all across my back, well I can see you’ve had your fun.
+ - If I had anything to say I’d have a say to everybody.
+ - To be with the others, you have to have your hair short and wear ties. So we’re trying to make a third world happen, you know what I mean?
+ - Have you ever been experienced? Not necessarily stoned, but beautiful.
+ - The world is nothing but a big gimmick.
+ - Now if I don’t meet you no more in this world, then I’ll, I’ll meet you in the next one, and don’t be late, don’t be late, cause I’m a voodoo chile.
+ - Never write a letter while you are angry.
+ - Please pass me the peace weed, and take some heed. Throw away all that mixed up speed.
+ - I didn’t know it was anger until they told me that it was, like with destruction and all that. But I believe everybody should have like a room where they can get rid of all their releases, where they can do their releases at. So my room is a stage.
+ - I want to get up in the morning and just roll over in my bed into an indoor swimming pool. And then swim to the breakfast table.
+ - Music makes me high on stage, and that’s the truth. It’s like being almost addicted to music.
+ - I don’t have nothing to regret at all in the past, except that I might’ve unintentionally hurt somebody else or something.
+ - My sons and their wives landed on Mars to start another race.
+ - As you well know, you just can’t believe everything you see and hear, can you?
+ - See, that’s nothing but blues, that’s all I’m singing about. It’s today’s blues.
+ - Well I stand up next to a mountain, and I chop it down with the edge of my hand.
+ - Life is Quicker Than a Blink of an Eye.
+ - Lots of the things we do are dangerous, but life itself is dangerous; nothing is really worth bothering with that isn’t full of danger.
+ - There was a period when I stopped talking so much, because I was just going through certain things. I just did the gigs and just stayed in, tried to stay away.
+ - I’m trying to get more into other things, where reality is nothing but each individual’s way of thinking.
+ - Drifting, On a sea of forgotten teardrops, On a lifeboat, Sailing for Your love.
+ - Purple Haze all in my brain, lately things don’t seem the same. Actin’ funny but I don’t know why. ‘Scuse me while I kiss the sky.
+ - You know you are a sweet little heart breaker, foxy lady.
+ - Sorry for the tune up between time, but what the hell, cowboys are the only ones who stay in tune, anyway...
+ - The Telecaster has two sounds – a good one and a bad one.
+ - The way I write things, I just write them with a clash between reality and fantasy mostly. You have to use fantasy to show different sides of reality; it’s how it can bend.
+ - We have time, there’s no big rush.
+ - Of course war is horrible, but at present it’s still the only guarantee of peace.
+ - I’d like to get something together – like a Handel, Bach, Muddy waters, flamenco type of thing. If I could get that sound, I’d be happy.
+ - You know I’ll kiss you for my supper. Yeah, you know I’ll kiss you for my dinner, baby.
+ - Every city in the world always has a gang, a street gang, or the so-called outcasts.
+ - We gotta stop smokin’, stop, stop. I mean cigarette smoking.
+ - You may almost forget the smell of your family.
+ - Sometimes the music people put you into these big, rush things.
+ - The smiling portrait of you is still hanging on my frowning wall.
+ - Your mysterious mountains I wish to see closer. May I land my kinky machine?
+ - I dig Strauss and Wagner. Those cats are good.
+ - Music is the most important thing. I’m thinking of my future. There has to be something new, and I want to be part of it. I want to lead an orchestra with excellent musicians. I want to play music which draws pictures of the world and its space.
+ - The dollar bill is God in the States. All those Pelican people just believe in money and nothing else.
+ - I love Dylan. I only met him once, about three years ago, back at the Kettle of Fish on MacDougal Street. That was before I went to England. I think both of us were pretty drunk at the time, so he probably doesn’t remember it.
+ - Don’t let your imagination take you by surprise.
+ - One time I said: maybe I should burn a guitar tonight. You know smash a guitar or something like that. And they said: yeah, yeah! I said: you really think I should? They said: yeah, that’d be cool. I said: well, ok.
+ - Genealogists live in the past lane.
+ - There’s a lot of political things happening out there that I’d really have to get away from.
+ - It’s not really into the big mass movement in music that I want to do, you know.
+ - I guess it would be if I wanted to, just lay back and predominantly write songs when I can’t go on a stage anymore.
+ - I’m gonna put a curse on you and all your kids will be born completely naked.
+ - Fall mountains, just don’t fall on me.
+ - Anger he smiles, towering in shiny metallic purple armor. Queen Jealousy, envy waits behind him, her fiery green gown sneers at the grassy ground.
+ - Kenny Burrell that’s the sound I’m looking for.
+ - I used to live in a room full of mirrors; all I could see was me. I take my spirit and I crash my mirrors, now the whole world is here for me to see.
+ - I get stoned, I can’t get home, I’m calling long distance on a public saxophone. My head is achin’, my back is breakin’, feel I got run over by Captain Coconut and his dog named Rover.
+ - This morning came on to me, silver wings silhouetted against the child’s sunrise.
+ - If my baby don’t love me no more, I know her sister will.
+ - If it was up to me, there wouldn’t be no such thing as the establishment.
+ - Is this love, baby, or is this just confusion?
+ - When things get too heavy, just call me helium, the lightest known gas to man.
+ - Rock is so much fun. That’s what it’s all about – filling up the chest cavities and empty kneecaps and elbows.
+ - I wanted to be listened to. I don’t know if they were or not, though.
+ - The one that rambles for a million miles, yes, I walk down this road searching for your love.
+ - Been riding broomsticks since she was fifteen.
+ - If I live by illusions, you live by excuses.
+ - You got me sitting on the shelf, while you’re out bewitching someone else.
+ - I try to use my music to move these people to act.
+ - I got a pet monkey called Charlie Chan.
+ - I found myself in too much of a box situation.
+ - I was trying to do too many things at the same time, which is my nature. But I was enjoying it, and I still do enjoy it.
+ - There are too many heavy songs out nowadays. music has been getting too heavy, almost to the state of unbearable.
+ - I believe everybody should have a room where they get rid of all their releases. So my room was a stage.
+ - If there’s a new idea, a new invention, or a new gas, or a new whatever you know, It should be brought at least into the open instead of carrying these same old burdens around with you.
+ - You’ve got to know what goes between the notes.
+ - Sometimes you want to give up the guitar, you’ll hate the guitar. But if you stick with it, you’re gonna be rewarded.
+ - I’ll always touch you.
+ - I think that we honor ourselves by honoring our past.
+ - Click bang, what a hang, your daddy just shot poor me.
+ - She’s a devil in disguise, I can tell by looking in her eyes, little Miss Strange.
+ - Businessmen they drink my wine, come and taste my herb.
+ - Telephone message on his manager’s answering machine shortly before dying of heroin overdose: I need help bad, man.
+ - I try all night to play a pretty note.
+ - I’m a million miles away, and at the same time I’m right here in your picture frame.
+ - There’ll be no smoking in the gas chamber.
+ - I’m up here in this womb, I’m looking all around. We’ll, I’m looking out my belly button window and I see a whole lot of frowns.
+ - My nature just changes.
+ - The time I burned my guitar it was like a sacrifice. You sacrifice the things you love. I love my guitar.
+ - Move over Rover, and let Jimi take over.
+ - My own thing is in my head. I hear sounds and if I don’t get them together nobody else will.
+ - White collar conservative flashin down the street, pointing that plastic finger at me, they all assume my kind will drop and die, but I’m gonna wave my freak flag high.
+ - Oh say, can you see, it’s really such a mess. Every inch of earth is a fighting nest. Giant pencial and lipstick tube shaped things, continue to rain and cause scream and pain, and the arctic stains from silver blue to bloody red.
+ - The night I was born, Lord I swear the moon turned a fire red.
+ - Evil man make me kill you.
+ - The truth is straight ahead, so don’t burn yourself instead.
+ - I wish they’d had electric guitars in cotton fields back in the good old days. A whole lot of things would’ve been straightened out.
+ - When I die, I want people to play my music, go wild and freak out and do anything they want to do.
+ - Room Full Of Mirrors, that’s more of a mental disarrangement. This says something about broken glass used to be all in my brain.
+ - It all has to come from inside, though, I guess.
+ - Music is religion for me. There’ll be music in the hereafter, too.
+ - After awhile, your, your cheap talk don’t even cause me pain, so let your bullets fly like rain.
+ - So you want to be married, oh baby, trying to put me on a chain, ain’t that some shame? You must be losing your weak little mind.
+ - Hey motor cycle mama, you gonna marry me?
+ - The story of life is quicker then the blink of an eye, the story of love is hello, goodbye.
+ - Sometimes I do a Dylan song and it seems to fit me so right that I figure maybe I wrote it. Dylan didn’t always do it for me as a singer, not in the early days, but then I started listening to the lyrics. That sold me.
+ - A girl asked me if she could comb my hair. Nobody can comb my hair, I can’t even comb my hair.
+ - I want to play music that draws a picture of the world and its space.
+ - Don’t use your brain to play it, let your feelings guide your fingers.
+ - In World War II all these countries were completely against each other, complete opposite. Now we’re getting them all together, through the idea of music.
+ - In order to change the world, I guess a person would have to really get his head together first before he can say anything to the world, to change it.
+ - Once you’re dead, you’re made for life.
+ - You don’t have to be singing about love all the time in order to give love to the people. You don’t have to keep flashing those words all the time.
+ - Jesus shouldn’t have died so early and then he could have got twice as much across. They killed him and then twisted so many of the best things he said. Human hands started messing it all up and now so much of religion is hogwash.
+ - Spiritually, it’s always there. It gets better and better all the time. One of these days I’ll just finally release all that out.
+ - I just hate to be in one corner. I hate to be put as only a guitar player, or either only as a songwriter, or only as a tap dancer. I like to move around.
+ - A person would have to change himself in order to be a living example of what he’s singing about.
+ - I try to get up every day.
+ - I was thinking too fast. It seems like a person has the tendency to get bored, because he always wants to try to do all these accomplishments.
+ - A lot of ppl are making more money than they ever had nowadays – so when they get their flat they can, they always find themselves with an extra room.
+ - We take our last look at the killing noise.
+ - Promotion with my name only, that’s all I have to do with it.
+ - I use to live in a room full of mirrors, all I could see was me.
+ - Really I’m just an actor. The only difference between me and those cats in Hollywood is that I write my own script.
+ - Be respected as being new, and probably a decent change or a help for the human race or whatever, instead of keep carrying the same old burdens around with you.
+ - Hey Joe, where you going with that gun in your hand? I’m going out to find my woman, caught her messing around with another man.
+ - All I’m writing is just what I feel, that’s all. I just keep it almost naked. And probably the words are so bland.
+ - I have to get involved in my own kind of way ’cause I always want to respect my own judgments. I have to respect my own time.
+ - I think it would count more, if we did less personal appearances.
+ - If 6 turned out to be 9, I don’t mind.
+ - I wouldn’t say that I’m the greatest guitarist ever. I’d say probably that I’m the greatest guitarist sitting in this chair.
+ - Some people should just start ideas and other ones should carry them out.
+ - You have to be a freak in order to be different.
+ - You’re just like crosstown traffic, so hard to get through to you.
+ - Well, obviously religion must come from inside.
+ - You got your God and so do I.
+ - Anyway, you know good and well it would be beyond the will of God, and the grace of the King.
+ - You’re a woman, at least you taste like you are.
+ - When I played God Bless The Queen, I was wondering if they was gonna dig us, then quite naturally I’d go on and try to get it together.
+ - Freaks, they are very prejudiced. You have to have your hair long and talk in a certain way in order to be with them. In order to be the other way you have to have your hair short and wear ties.
+ - Anybody can do anything, it’s up to themselves. All it takes is the right intentions.
+ - You have to give people something to dream on.
+ - The artist draws the people. The whole idea is for people to dig themselves, just mingle around meeting different other people. That’s cool.
+ - Technically, I’m not a guitar player, all I play is truth and emotion.
+ - Music is a safe type of high. It’s more the way it was supposed to be. That’s where highness came, I guess, from anyway. It’s nothing but rhythm and motion.
+ - It’s really hard to know what people want around here sometimes.
+ - Before you start pointing fingers, make sure your hands are clean.
+ - And it’s no war games, because they all keep the same place. But like the solar system is going through a change soon and it’s going to affect the Earth in about 30 years.
+ - It’s funny how most people love the dead, once you’re dead your made for life.
+ - Your people I do not understand, so to you I shall put an end, and you’ll never hear surf music again.
+
+179 quotes

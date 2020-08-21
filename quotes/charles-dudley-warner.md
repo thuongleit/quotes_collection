@@ -1,0 +1,70 @@
+ - The excellence of a gift lies in its appropriateness rather than in its value.
+ - There is no moment of delight in any pilgrimage like the beginning of it.
+ - Everybody talks about the weather, but nobody does anything about it.
+ - A great artist can paint a great picture on a small canvas.
+ - Public opinion is stronger than the legislature, and nearly as strong as the ten commandments.
+ - To poke a wood fire is more solid enjoyment than almost anything else in the world.
+ - We are half ruined by conformity, but we should be wholly ruined without it.
+ - What small potatoes we all are, compared with what we might be!
+ - People always overdo the matter when they attempt deception.
+ - To own a bit of ground, to scratch it with a hoe, to plant seeds, and watch the renewal of life – this is the commonest delight of the race, the most satisfactory thing a man can do.
+ - Simplicity is making the journey of this life with just baggage enough.
+ - Goodness comes out of people who bask in the sun, as it does out of a sweet apple roasted before the fire.
+ - Isolation breeds conceit.
+ - The stranger who receives the rare gift of human kindness holds its value in his heart forever.
+ - Politics makes strange bedfellows.
+ - Regrets are idle; yet history is one long regret. Everything might have turned out so differently.
+ - One of the best things in the world to be is a boy; it requires no experience, but needs some practice to be a good one.
+ - It is difficult to be emphatic when no one is emphatic on the other side.
+ - Happy is said to be the family which can eat onions together. They are, for the time being, separate, from the world, and have a harmony of aspiration.
+ - The boy who expects every morning to open into a new world finds that today is like yesterday, but he believes tomorrow will be different.
+ - Hoeing in the garden on a bright, soft May day, when you are not obligated to, is nearly equal to the delight of going trouting.
+ - There is nothing that disgusts a man like getting beaten at chess by a woman.
+ - Nature is, in fact, a suggester of uneasiness, a promoter of pilgrimages and of excursions of the fancy which never come to any satisfactory haven.
+ - The thing generally raised on city land is taxes.
+ - You want to hate somebody, if you can, just to keep your powers of discrimination bright, and to save yourself from becoming a mere mush of good-nature.
+ - A woman set on anything will walk right through the moral crockery without wincing.
+ - It is fortunate that each generation does not comprehend its own ignorance. We are thus enabled to call our ancestors barbarous.
+ - Woman is perpetual revolution, and is that element in the world which continually destroys and recreates.
+ - Plots are no more exhausted than men are. Every man is a new creation, and combinations are simply endless.
+ - I am convinced that the majority of people would be generous from selfish motives, if they had the opportunity.
+ - Nothing is worth reading that does not require an alert mind.
+ - The onion and its satin wrappings is among the most beautiful of vegetables and is the only one that represents the essence of things. It can be said to have a soul.
+ - What a man needs in gardening is a cast-iron back, with a hinge in it.
+ - The world is full of poetry as the earth is of pay-dirt; one only needs to know how to strike it.
+ - Perhaps nobody ever accomplishes all that he feels lies in him to do; but nearly every one who tries his power touches the walls of his being.
+ - I know that unremitting attention to business is the price of success, but I don’t know what success is.
+ - Let us celebrate the soil. Most men toil that they may own a piece of it; they measure their success in life by their ability to buy it.
+ - There isn’t a wife in the world who has not taken the exact measure of her husband, weighed him and settled him in her own mind, and knows him as well as if she had ordered him after designs and specifications of her own.
+ - There is life in the ground; it goes into the seeds and also when it is stirred up goes into the man who stirs it.
+ - How many wars have been caused by fits of indigestion, and how many more dynasties have been upset by the love of woman than by the hate of man?
+ - Snobbery, being an aspiring failing, is sometimes the prophecy of better things.
+ - If you do things by the job, you are perpetually driven: the hours are scourges. If you work by the hour, you gently sail on the stream of Time, which is always bearing you on to the haven of Pay, whether you make any effort, or not.
+ - The most popular persons are those who take the world as it is who find the least fault.
+ - The tenure of a literary reputation is the most uncertain and fluctuating of all.
+ - Nature is entirely indifferent to any reform. She perpetuates a fault as persistently as a virtue.
+ - Women are not as sentimental as men, and are not so easily touched with the unspoken poetry of nature, being less poetical, and having less imagination; they are more fitted for practical affairs, and would make fewer failures in business.
+ - The wise man does not permit himself to set up even in his own mind any comparisons of his friends. His friendship is capable of going to extremes with many people, evoked as it is by many qualities.
+ - Mud-pies gratify one of our first and best instincts. So long as we are dirty, we are pure.
+ - Hoe while it is spring, and enjoy the best anticipations. It is not much matter if things do not turn out well.
+ - Nothing shows one who his friends are like prosperity and ripe fruit.
+ - There is but one pleasure in life equal to that of being called on to make an after-dinner speech, and that is not being called on to make one.
+ - A garden is an awful responsibility. You never know what you may be aiding to grow in it.
+ - The chief effect of talk on any subject is to strengthen one’s own opinions, and, in fact, one never knows exactly what he does believe until he is warmed into conviction by the heat of attack and defence.
+ - The love of dirt is among the earliest of passions, as it is the latest.
+ - A boy has a natural genius for combining business with pleasure.
+ - One of the advantages of pure congregational singing is that you can join in the singing whether you have a voice or not. The disadvantage is that your neighbor can do the same.
+ - Lettuce is like conversation; it must be fresh and crisp, so sparkling that you scarcely notice the bitter in it.
+ - There is no beauty like that which was spoiled by an accident; no accomplishments and graces are so to be envied as those that circumstances rudely hindered the development of.
+ - Memory has the singular characteristic of recalling in a friend absent, as in a journey long past, only that which is agreeable.
+ - No man but feels more of a man in the world if he have a bit of ground that he can call his own. However small it is on the surface, it is four thousand miles deep; and that is a very handsome property.
+ - Blessed be agriculture! if one does not have too much of it.
+ - The world so quickly adjusts itself after any loss, that the return of the departed would nearly always throw it, even the circle most interested, into confusion.
+ - The man who has planted a garden feels that he has done something for the good of the world.
+ - It is well known that no person who regards his reputation will ever kill a trout with anything but a fly. It requires some training on the part of the trout to take to this method.
+ - One discovers a friend by chance, and cannot but feel regret that 20 or 30 years of life may have been spent without the least knowledge of him.
+ - There was never a nation that became great until it came to the knowledge that it had nowhere in the world to go for help.
+ - Each age has its choice of the death it will die.
+ - It is only the fools who keep straining at high C all their lives.
+
+68 quotes

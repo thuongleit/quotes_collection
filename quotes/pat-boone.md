@@ -1,0 +1,26 @@
+ - I’m associated with gospel music in the minds of millions of people.
+ - I’ve had death threats, if you can imagine.
+ - The Christmas spirit – love – changes hearts and lives.
+ - Christmas is a good time to take stock of our blessings.
+ - It is quite true – in fact, obvious on the surface – that the vast majority of dramatic shows and comedies, as well, advocate a liberal and humanistic and relativistic lifestyle and concept.
+ - So although women can do anything that men can’t do, they can also do something that men can’t do, and that is mother their children.
+ - So I have four daughters, about ten granddaughters, and five grandsons.
+ - A girl should never disguise the fact that she’s a girl. It’s a lot easier to convince a man that you’re a fascinating female if you look the part.
+ - This may surprise you, but I was arrested in high school.
+ - When you hear my records today hear a vanilla sounding artist with no black inflection, although I was trying to imitate what I heard.
+ - The greatest thing is not to believe in Santa Claus; it is to be Santa Claus.
+ - Every battle, every victory has been won!
+ - In fact – statistically, as you know – people have done polls, research, and at least 80 percent or more or working media are liberal Democrats if they are involved with any party and certainly liberal in their philosophy.
+ - I believe – figuratively, but in a very real way – we need to tent the White House!
+ - There’s something about me that makes a lot of people want to throw up.
+ - I’ve always wanted to stay involved with young people. I never bought into the idea that entertainers owe nothing to their audience except a good performance.
+ - When you hear a good traditional gospel song it makes you wanna go buy a three piece suit.
+ - When you get married you forget about kissing other women.
+ - When we fully realize who God is, we learn that each of us is a child of the King!
+ - I hope a great young Reagan will emerge.
+ - Ironically, for a few million people in the Far East, I did become an English teacher through my music.
+ - When political figures are shown on television or in movies, it’s always the liberal Democrats that are shown to be humane, caring people.
+ - So I would say Reagan was the best, and certainly Clinton the worst.
+ - If there’s anyone in my lifetime who deserves honor it is Billy Graham. I think he is the most significant figure since the apostles.
+
+24 quotes

@@ -1,0 +1,34 @@
+ - You adapt, evolve, compete or die.
+ - Don’t be a hero. Don’t have an ego. Always question yourself and your ability. Don’t ever feel that you are very good. The second you do, you are dead.
+ - You learn more from your losses, than from your gains.
+ - Don’t be a hero. Don’t have an ego.
+ - I’m always thinking about losing money as opposed to making money. Don’t focus on making money, focus on protecting what you have.
+ - If I have positions going against me, I get right out; if they are going for me, I keep them Risk control is the most important thing in trading. If you have a losing position that is making you uncomfortable, the solution is very simple: Get out, because you can always get back in.
+ - And then at the end of the day, the most important thing is how good are you at risk control. Ninety-percent of any great trader is going to be the risk control.
+ - Failure was a key element to my life’s journey.
+ - I believe the very best money is made at the market turns. Everyone says you get killed trying to pick tops and bottoms and you make all your money by playing the trend in the middle. Well for twelve years I have been missing the meat in the middle but I have made a lot of money at tops and bottoms.
+ - I always believe that prices move first and fundamentals come second.
+ - Trading gives you an incredibly intense feeling of what life is all about.
+ - I spend my day trying to make myself as happy and relaxed as I can be. If I have positions going against me, I get right out; if they are going for me, I keep them.
+ - The secret to being successful from a trading perspective is to have an indefatigable and an undying and unquenchable thirst for information and knowledge.
+ - Intellectual capital will always trump financial capital.
+ - I am more scared now that I was at any point since I began trading, because I recognize how ephemeral success can be in this business. I know that to be successful, I have to be frightened. My biggest hits have always come after I have had a great period and I started to think that I knew something.
+ - The whole world is simply nothing more than a flow chart for capital.
+ - After a while size means nothing. It gets back to whether you’re making 100% rate of return on $10,000 or $100 million dollars. It doesn’t make any difference.
+ - First if all, never play macho man in the market. Second, never overtrade. My major problem was not the number of points I lost on the trade, but that I was trading far too many contracts relative to the equity in the accounts that I handled.
+ - You can not have significance in this life if it is all about you. You get your significance, you find your joy in life through service and sacrifice – it’s pure and simple.
+ - I believe that great success is possible in any field – from music to mathematics to macro trading.
+ - First of all, never play macho man with the market. Second, never overtrade.
+ - Sometimes failure is merely chasing you off the wrong road and onto the right one.
+ - When you get a range expansion, the market is sending you a very loud, clear signal that the market is getting ready to move in the direction of that expansion.
+ - There is no training, classroom or otherwise, that can prepare for trading the last third of a move, whether it’s the end of a bull market or the end of a bear market.
+ - If trading is like chess, then macro is like three-dimensional chess.
+ - You can achieve great economic gains by solving social problems.
+ - It is not that we had any unfair knowledge that other people didn’t have, it is just that we did our homework. People just don’t want to believe that anyone can break away from the crowd and rise above mediocrity.
+ - If life ever ceased to be an educational experience. I probably wouldn’t get out of bed in the morning.
+ - The concept of paying one-hundred-and-something times earnings for any company for me is just anathema. Having said that, at the end of the day, your job is to buy what goes up and to sell what goes down so really who gives a damn about PE’s?
+ - There is no more compassionate and effective way to help poor people in New York City than to give to Robin Hood.
+ - We have ripped the humanity out of our companies. It’s threatening the very underpinnings of our society.
+ - There’s such an emphasis on making money that we’ve really taken the humanity out of business.
+
+32 quotes

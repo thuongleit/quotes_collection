@@ -1,0 +1,25 @@
+ - I love constructive criticism. I love getting notes when I’m acting. I love them telling me what to do. I don’t always agree with it, but I really need it.
+ - I am a very nerdy guy. I understand that it’s easier to cast me as a nerdy guy than an action star – although I would love to be an action star!
+ - Living in Pakistan, you didn’t have a sense of how huge and varied America was, geographically.
+ - The whole religion of Islam is based on reward and punishment and reward and punishment, and it becomes a part of how you think of everything. Even yourself.
+ - We only hear success stories. You don’t hear about the hundreds and hundreds – the overwhelming majority that don’t go anywhere. This is a more realistic portrayal of what happens in startups.
+ - I think being funny had something to do with feeling like an outsider, not feeling cool – insecurity.
+ - Philosophy is problem-solving. There’s a philosophical problem, and then you try to solve it by approaching it from different angles and seeing what way works. That’s what comedy is: you have a topic and you try to just hit it as many different ways as you can.
+ - I approximated the Black Friday experience at home by hurling myself into a wall a number of times and then ordering online.
+ - I was on this path to becoming a computer-science guy, but I didn’t like it. I got no joy from it. It was very, very scary. It was suffocating to think that I was just going to do this thing for the rest of my life.
+ - The plan was always to come to America, because Pakistan’s a scary place. They don’t have religious freedom. It’s very poor, and there’s a lot of violence and corruption.
+ - I love, love, love the street-cart food. Gyros are like a meat-flavored fruit roll-up. A meat roll-up.
+ - I was extremely shy and had a terrible fear of public speaking. But I had fallen in love with stand-up.
+ - I never really got into game shows. The easiest one is Wheel Of Fortune because you just have to know words, and for the most part everyone knows words.
+ - I would say I try to make my comedy really personal. I try to tell stories that happened to me, experiences from my life.
+ - I think, you know, a lot of the business of comedy is taking your personal experiences and making them relatable to other people.
+ - Just because you saw a vampire doesn’t mean that a snowman or a Loch Ness Monster also exists.
+ - My stories take three or four months to fix, and it’s not magical of a process. Ultimately it’s a boring, difficult process. I write everything out, and then the parts I think are funny I put in bold. Then I go perform it. Then the parts that aren’t funny, I unbold them.
+ - It’s not like I listened to music and then stopped. I still don’t have a real appreciation for music because I didn’t really start listening to it until my 20s.
+ - On stage I just have to be myself. In acting you have to be so many other people.
+ - You really need to have that discipline. It’s not even discipline. I just put down these rules. It’s not like a vague, ‘Motivate yourself!’ and do something. Its specific hours set aside every day for certain things.
+ - I thought of America as this crazy, happy, exciting place where everybody’s rich and there’s stuff everywhere. Compared to Pakistan, it’s not untrue.
+ - It wasn’t until I moved to New York that I decided to make a conscious effort to be myself.
+ - Im from a family of doctors, and I think they really wanted me to be a doctor. I even sort of assumed I would be a doctor.
+
+23 quotes

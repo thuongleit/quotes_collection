@@ -1,0 +1,22 @@
+ - I am fun. I do have a good time. I have a good heart. I’m not all jokes. I’m a pretty serious person sometimes. I’m very very hardworking. I’m very academic.
+ - God knows the truth in all of this, and at the end of the day, that is the only thing that matters. Jesus was persecuted, and I’m going to get persecuted, ya know?
+ - How do you get rid of hiccups? Drink water upside-down and put a pencil in your mouth. Is that possible?
+ - You don’t choose who you love...
+ - If you want to change your hair colour or your nail colour or things like that its fine, but you have to realize the dangers and repercussions of surgery.
+ - I’ve always been this way. This is who I am. Take it or leave it. You’ll either hate me or you’ll love me. I have a strong personality which isn’t necessarily good or bad. I really don’t mind what people in Oklahoma who I don’t know think of me. I really only care about the people in my life.
+ - I’m from really humble beginnings. I’ve never been this Hollywood diva, but you get caught up in what you’re pretending to be.
+ - I didn’t realize that pretending to be this ‘Hills Heidi,’ this spoiled rich girl who I wasn’t, would almost destroy me.
+ - I like to read a couple books at once. I was reading the Princess Diana book. I’m reading a book about Chicago and the mob. Right now I’m also reading the Bible, beginning to end. I’m very religious. That’s how I’ve gotten to where I am.
+ - My relationship with my mom has really evolved since The Hills. We had a very hard time getting through that, and I didn’t talk to her for almost two years, but since then we have learned to get over the past and move forward.
+ - I’ve spent, like, over a million dollars on that Superficial album, so you will not be getting new music from me unless you’d like to GoFundMe.
+ - If they aren’t hating on you, then you’re not doing anything right. If women aren’t jealous of you, talking about you and cutting you down, then you’re a nerd, and I would never want to be that.
+ - I had a nightmare that I slept without my nose tape on thank God it wasn’t true!
+ - The dog that I was given on The Hills for Christmas is with my best friend’s family.
+ - I have been the most religious person since I was 2 years old. I always felt this crazy connection to God.
+ - I mean, if you need a minute to yourself, you aren’t going to get it, but you just have to realize it’s what you signed up for, because those difficult moments are what make for a much better show.
+ - I should have known growing up and not having any money ever that I should have kept every dollar that I had.
+ - There’s a difference between being in love with somebody and being absolutley in love with somebody.
+ - MTV wanted to downplay our lifestyles and pretend we weren’t getting the checks that we actually were, so I think that was the blurry line between the lives we were really living and the lives that they wanted us to live, and things like that.
+ - I’ve even written a role for Dolly Parton to play the town mayor!
+
+20 quotes

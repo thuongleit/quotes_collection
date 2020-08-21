@@ -1,0 +1,22 @@
+ - If you find yourself in a fair fight, you didn’t plan your mission properly.
+ - Respecting your opponent is the key to winning any bout. Hold your enemy in contempt and you may miss the strategy behind his moves.
+ - Only a foolish woman would allow her man to earn his living as a moving target.
+ - What we need to do is follow the axiom of World War II which was ‘Loose Lips Sink Ships’ and the media has really got to follow that.
+ - It’s human nature to start taking things for granted again when danger isn’t banging loudly on the door.
+ - Fighting terrorism is not unlike fighting a deadly cancer. It can’t be treated just where it’s visible – every diseased cell in the body must be destroyed.
+ - War is the ultimate reality-based horror show.
+ - The old saying that war is a racket has taken on an even more shameful meaning.
+ - In order to drill into young men the need to stay alert and stay alive, I used to punish offenders with my fists, boots and rifle butt, and with stockade time.
+ - Fortunately, it’s still not too late to develop a comprehensive global strategy to eliminate our real enemy.
+ - We citizens don’t need to know every detail of every military operation in this new kind of war. Nor should the media tell us and hence our enemy.
+ - Their plan is to return the entire world – not just the Middle East – to the days of the caliphate and either convert all of us so-called infidels into born-again Islamic believers or kill us.
+ - If a policy is wrongheaded, feckless and corrupt, I take it personally and consider it a moral obligation to sound off and not shut up until it’s fixed.
+ - That’s what supporting the troops is really all about – making sure American grunts get the right stuff!
+ - Writing with you is the only thing that keeps me alive.
+ - That’s because international Islamic religious fanatics have the same goal as the Axis fascists – the destruction of our way of life.
+ - So it’s not a matter of the military lying to the press, but it’s the job of the military to deny the press any information that will provide aid and comfort to the enemy.
+ - Because our homeland and very survival are once more at stake, the American people can’t afford to treat this new war against terrorism like they did Vietnam.
+ - Modern American war is as easy to script as a B movie.
+ - Terrorism, too, must be excised wherever it exists, which will take years, and which can’t happen without the total commitment and the everyday involvement of the American people.
+
+20 quotes

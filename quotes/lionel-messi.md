@@ -1,0 +1,69 @@
+ - You have to fight to reach your dream. You have to sacrifice and work hard for it.
+ - A lion doesn’t concern himself with the opinions of a sheep.
+ - You can overcome anything, if and only if you love something enough.
+ - The best decisions aren’t made with your mind, but with your Instinct.
+ - I don’t need the best hairstyle or the best body. Just give me a ball at my feet and I’ll show you what I can do.
+ - When it comes to being badass nothing beats this It took me 17 years and 114 days to become an overnight success.
+ - Goals are only important if they win games.
+ - Sometimes you have to accept you can’t win all the time.
+ - Motivation is not something I struggle with. I love playing football, I love being in training.
+ - My ambition is always to get better and better.
+ - I am more worried about being a good person than being the best football player in the world.
+ - It takes sacrifice as well as talent.
+ - There are more important things in life than winning or losing a game.
+ - Something deep in my character allows me to take the hits and get on with trying to win.
+ - There’s no doubt. Its certain that ill be 100 percent.
+ - There’s nothing more satisfying than seeing a happy and smiling child. I always help in any way I can, even if it’s just by signing an autograph. A child’s smile is worth more than all the money in the world.
+ - You have got to love the game.
+ - I have fun like a child in the street. When the day comes when I’m not enjoying it, I will leave football.
+ - From the age of three, I played every day-morning, afternoon and night.
+ - What I do is play soccer, which is what I like.
+ - I always thought about carrying on training and working, chasing my dream.
+ - I used to serve tea at a shop to support my football training.
+ - We know that we are close to making history.
+ - I go out and do the best I can in each game, and I don’t think about the fouls other players will commit or whether I might be injured. It only does you harm to worry about those things.
+ - My motivation comes from playing the game I love.
+ - I know how important it is to have a helping hand. In my childhood I had difficult times because of hormonal problems. If I hadn’t had support, I wouldn’t have been able to fulfill my dreams.
+ - Fatherhood changes you completely. If things didn’t go my way before, I became withdrawn and didn’t want to see or listen to anyone. Now, when I arrive home, I see my son and everything is OK. He’s the most important thing to me now.
+ - At Barca we trained every day with the ball. I hardly even took a step running without a ball at my feet.
+ - Barcelona is my life. They have brought me to where I am today. I could not leave, I don’t want to leave. I know the Premier League is very good. But I cannot see myself playing in England because my heart is with Barcelona, always.
+ - It’s not so easy for us when we play teams who have a different mindset, like Chelsea or Inter Milan, because they have the intention of trying to stop us rather than playing a game that is more attractive for the spectators to enjoy.
+ - I never think about the play or visualize anything. I do what comes to me at that moment. Instinct. It has always been that way.
+ - The day you think there is no improvements to be made is a sad one for any player.
+ - I’m lucky to be part of a team who help to make me look good, and they deserve as much of the credit for my success as I do for the hard work we have all put in on the training ground.
+ - Barcelona is my home and I hope that I stay here for many years.
+ - Whether it’s a friendly match, or for points, or a final, or any game – I play the same. I’m always trying to be my best, first for my team, for myself, for the fans, and to try and win.
+ - The Barcelona youth program is one of the best in the world. As a kid, they teach you not to play to win, but to grow in ability as a player.
+ - My style of play has always been the same. I never tried to develop a specific style. From very young I just played this way.
+ - Today I am the happiest man in the world, my son was born and thanks to God for this gift.
+ - Give the opponents more than one reason to stare at your feet.
+ - When the year starts the objective is to win it all with the team, personal records are secondary.
+ - One of the Arsenal players came up to me afterwards and said it had been an honor to be on the same pitch as me. I thought, My God, that is a great thing to say when your team has just lost.
+ - You have to show up in the World Cup, and in the World Cup anything can happen.
+ - Like I’ve said many times before, I’m always more likely to remember goals for their importance rather than if they’re beautiful or not. Goals scored in finals, for example.
+ - You cannot allow your desire to be a winner to be diminished by achieving success before and I believe there is room for improvement in every sportsman.
+ - In football as in watchmaking, talent and elegance mean nothing without rigour and precision.
+ - I want to concentrate on winning things with Barcelona and Argentina. Then if people want to say nice things about me when I have retired, great. Right now, I need to concentrate on being part of a team – not just on me.
+ - I never had any problems with my height. I was always the smallest kid, at school and in my teams.
+ - When my son will be born, my first goal will be for him. The rest, will be as always for my grandmother.
+ - My family was always present when I needed them and sometimes felt even stronger emotions than me.
+ - Ronaldo was my hero. I loved watching players like Zidane, Ronaldinho and Rivaldo, but Ronaldo was the best striker I’ve ever seen. He was so fast he could score from nothing and could shoot the ball better than anyone I’ve ever seen.
+ - We are at a good level. Our secret is that we play the same way against each opponent.
+ - For my part, I try to do my bit to make people’s lives more bearable, in particular children across the globe who are having problems.
+ - I am the happiest man alive and I am happy for myself, for my family and for my country.
+ - I still have a lot of room for improvement. For example, I want to shoot equally well with both feet.
+ - I repeat what I always say: I want the best for Argentina in every way. I never try to make trouble for anybody.
+ - Argentina is my country, my family, my way of expressing myself. I would trade all of my records for the World Cup trophy.
+ - Every year I try to grow as a player and not get stuck in a rut. I try to improve my game in every way possible. But that trait is not something I’ve worked on, it’s part of me.
+ - My first memories are from when I was very little, maybe three or four years old playing in my neighbourhood at home. I can picture myself with the ball at my feet from a very young age.
+ - I always had the same style of play. I didn’t really worry about people kicking me.
+ - Many years ago when I first started my career Maradona told me “to enjoy and play as you know”, and that’s stayed with me ever since and is the best advice I’ve been given.
+ - Being named among the best is special and beautiful. But if there are no titles, nothing is won.
+ - I would pass onto any young player to enjoy your football, play your football as you want to play the game, try and enjoy it and make the most of it.
+ - I am the same person as always and I have the good fortune to play in a great team. It was an historic year for Barca and for me but it’s thanks to the work of everyone.
+ - Nah, I’ve always had a great relationship with my two brothers, I have always had their support in my football and in everything. They’ve been very close to me and we have a great relationship.
+ - I’ve never stopped being Argentine, and I’ve never wanted to. I feel very proud of being Argentine, even though I left there. I’ve been clear about this since I was very young, and I never wanted to change.
+ - I use Herbalife products on and off the field for energy and focus. That way I can play my best game.
+ - It’s scoring goals that’s great, whether against Brazil or anybody else.
+
+67 quotes

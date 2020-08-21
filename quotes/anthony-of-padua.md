@@ -1,0 +1,21 @@
+ - Actions speak louder than words; let your words teach and your actions speak.
+ - The devil is afraid of us when we pray and make sacrifices. He is also afraid when we are humble and good. He is especially afraid when we love Jesus very much. He runs away when we make the Sign of the Cross.
+ - The life of the body is the soul; the life of the soul is God.
+ - O name of Mary! Joy in the heart, honey in the mouth, melody to the ear of Her devout clients!
+ - Anyone, then, who desires to live chastely in Christ Jesus, must flee not only the mouse of lust, but even from its very scent.
+ - The spirit of humility is sweeter than honey, and those who nourish themselves with this honey produce sweet fruit.
+ - Men will surrender to the spirit of the age. They will say that if they had lived in our day, faith would be simple and easy. But in their day, they will say, things are complex; the Church must be brought up to date and made meaningful to the day’s problems.
+ - The birds are the saints, who fly to heaven on the wings of contemplation, who are so removed from the world that they have no business on earth. They do not labour, but by contemplation alone they already live in heaven.
+ - We are formed by environment and grace, by politics and prayer, by church and conscience. All God’s creatures conspire to teach us as well. We stumble. We stutter. We rise. We are lifted.
+ - Attribute to God every good that you have received. If you take credit for something that does not belong to you, you will be guilty of theft.
+ - Regret not that which is past; and trust not to thine own righteousness.
+ - The prayer of the monk is not perfect until he no longer recognizes himself or the fact that he is praying.
+ - Our thoughts ought by instinct to fly upwards from animals, men and natural objects to their creator. If created things are so utterly lovely, how gloriously beautiful must he be who made them! The wisdom of the worker is revealed in his handiwork.
+ - Charity is the soul of faith, makes it alive; without love, faith dies.
+ - He prays best who does not know that he is praying.
+ - Christians must lean on the Cross of Christ just as travelers lean on a staff when they begin a long journey.
+ - Damned money! Alas! How many religious did it blind! How many cloistered religious did it deceive! Money is the ‘droppings of birds’ that blinded the eyes of Tobit.
+ - Earthly riches are like the reed. Its roots are sunk in the swamp, and its exterior is fair to behold; but inside it is hollow. If a man leans on such a reed, it will snap off and pierce his soul.
+ - The Glorious Virgin did not have a stain in her birth because she was santified in her mother’s womb and safeguarded there by angels.
+
+19 quotes

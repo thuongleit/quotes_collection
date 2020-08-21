@@ -1,0 +1,48 @@
+ - My musical tastes change every week.
+ - Just because you know umpteen billion scales, it doesn’t mean you have to use them all in a solo.
+ - Metallica is a very complicated, fragile thing. On the outside, it’s all metal, but on the inside it’s very delicate.
+ - Although I’m a lead guitarist, I’d say that a good 95 percent of my time onstage is spent playing rhythm.
+ - I’m not into that whole Satanic thing. It’s just something to fall back on if you don’t have much imagination. Singing you fiftieth song about having lunch with Satan – I’m not into it. It’s silly.
+ - Basically I just had to say, Screw everyone around me – from now on I’m just gonna play what I think is important to me and our music. So I gave the big finger to all the current trends in technical wizardry, and just went off and did what I felt was best for the songs.
+ - Metallica is like the phoenix rising from the ashes. We set everything on fire, and this is what has risen from it – St. Anger being the fire and Death Magnetic being the phoenix.
+ - A life lived unexplored is a life not worth living.
+ - For a while I was collecting Satan and devil stuff – you know, anything that had to do with old Beelzebub or Lucifer. But I had to put the brakes on it, because there’s a lot of stuff out there, and the collection was just growing too quickly.
+ - Everyone has a side to them that’s kind of unexplained and feels misunderstood.
+ - For the ‘Load’ album, I was experimenting so much with tone that I had to keep journals on what equipment I was using. For ‘Hero of the Day,’ I know I used a 1958 Les Paul Standard with a Matchless Chieftain, some Boogie amps and a Vox amp – again, they’re all blended.
+ - I love horror movies in space. I love it when the genre switches over and what was sci-fi becomes horror.
+ - If I had unlimited funds, wall space and storage, I would collect a lot more things, like ‘Planet of the Apes,’ ‘Star Wars,’ science fiction stuff, autographs, and prop guns and weapons. I have to draw the line somewhere.
+ - A lot of the main characters in horror movies are outsiders as well, so that outsider syndrome reverberates within horror fans and geeky collectors. It’s kind of a rallying call that brings fans and collectors together who are a little socially retarded, maybe.
+ - I love ‘True Blood.’ I love ‘The Walking Dead.’ Those are fantastic series.
+ - We wanted to offer something new to our audience. I hate it when bands stop taking chances.
+ - I think the whole concept behind lyrics is you better mean what you say, or you should like, become a storyteller. I mean, there’s a lot of bands who are just storytellers, and then there are bands who actually have something valid to say. And the bands who have valid points are few and far between.
+ - I’m very fortunate to be doing the thing I do best, which is play guitar. There aren’t many other things I could do.
+ - The same sensations that you get in heavy metal are in horror movies. Heavy metal sounds evil and horror movies are evil, ha ha!
+ - For me, one of the most perfect times to watch a horror movie is when it’s cold and raining outside and there’s pretty much no outdoor activity to be done. It kind of sets the mood.
+ - One of my favorite horror films of the Nineties was ‘Event Horizon.’
+ - I love this pedal to death. The only way you could keep me from playing one is by chopping off my legs!
+ - Much of my playing is rhythmic and choppy; I use a lot of double stops. The wah just accents all those stops and chops and brings out the rhythmic aspect that much more.
+ - Horror movies started to wane around the onset of World War II, and after World War II, when all the troops came home, people weren’t really interested in seeing horror movies, because they had the real horror right on their front doorsteps.
+ - The movie ‘Black Cat,’ from 1934, is one of my favorite movies.
+ - Jeff Beck is one of my heroes and has been since I first picked up a guitar.
+ - I think it’s morally wrong to keep someone away from what keeps him happy.
+ - I didn’t want to fall into the trap of competing with all these other great guitar players. I just want to sidestep the whole thing and get out of the race.
+ - Guitar players in the nineties seem to be reacting against the technique oriented eighties.
+ - It’s definitely true that Stevie Ray Vaughan is one of my all-time favorite guitarists.
+ - When you’re first starting out, there’s always the temptation to hide behind distortion because it lets you get away with murder. But, when it comes to rhythm work, you’ve gotta back off that gain control a bit, especially if you’re playing with another guitarist.
+ - I don’t think success has changed us as people at all. We are the same lunatics that we were when this band first got going. We never see ourselves as being on a higher level than our fans.
+ - I would have to say I’m bored with the standard rock, guitar solos, but I’ve done it for five albums now, and this time I wanted to go in a completely different direction. I wasn’t interested in showing off any more.
+ - When I got my first Marshall amp, it was so empowering. No one ever forgets their first Marshall amp if you’re a guitar player pursuing a big powerful sound. I mean, no one ever forgets their first Marshall amp.
+ - Guitar playing is both extremely easy for me and extremely difficult for me at the same time.
+ - I’m death obsessed. You know, I have death all over my house. I have a stuffed two headed sheep!
+ - I was really, really wild in my early twenties and a bit self-destructive.
+ - Getting sequestered and not really knowing what to do with your time and then discovering, ‘Oh, I can watch a bunch of horror movies’ has probably played out in a lot of people’s discovery of horror.
+ - The main riff for ‘SandMan’ was just something I wrote one night.
+ - I think it goes without saying that a lot of big horror fans are just nerds and geeks.
+ - We never see ourselves as being on a higher level than our fans.
+ - If a guitar is too easy for me to play, it makes me too laid back. I like to battle with my guitar.
+ - Ampeg made incredible guitar heads in the early Nineties and then stopped. And I don’t know why. The one we used had a nice clean, warm sound, and it blended well with the other amps that were in the studio.
+ - My guitars are my umbilical cord. They’re directly wired into my head.
+ - I’ve been into horror movies ever since I was five years old.
+ - I went through a whole blues period in the Nineties, and that had some influence on ‘Load’ and ‘ReLoad.’
+
+46 quotes

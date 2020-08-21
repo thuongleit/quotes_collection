@@ -1,0 +1,27 @@
+ - My religion is to live and die without regret.
+ - My religion is not deceiving myself.
+ - Life is short and the time of death is uncertain; so apply yourself to meditation. Avoid doing evil, and acquire merit, to the best of your ability, even at the cost of life itself. In short: Act so that you have no cause to be ashamed of yourselves and hold fast to this rule.
+ - Know emptiness, Be compassionate.
+ - I need nothing. I seek nothing. I desire nothing.
+ - One should see that all appearance is like mist and fog.
+ - In horror of death, I took to the mountains – again and again I meditated on the uncertainty of the hour of death, capturing the fortress of the deathless unending nature of mind. Now all fear of death is over and done.
+ - In brief, without being mindful of death, whatever Dharma practices you take up will be merely superficial.
+ - In the monastery of your heart, you have a temple where all Buddhas unite.
+ - Desires achieved increase thirst like salt water.
+ - Do not entertain hopes for realization, but practice all your life...
+ - I have no desire for wealth or possessions, and so I have nothing. I do not experience the initial suffering of having to accumulate possessions, the intermediate suffering of having to guard and keep up possessions, nor the final suffering of loosing the possessions.
+ - Hasten slowly and ye shall soon arrive.
+ - Accustomed long to contemplating love and compassion I have forgotten all difference between myself and others.
+ - Take the lowest place, and you shall reach the highest.
+ - When you run after your thoughts, you are like a dog chasing a stick: every time a stick is thrown, you run after it. Instead, be like a lion who, rather than chasing after the stick, turns to face the thrower. One only throws a stick at a lion once.
+ - All meditation must begin with arousing deep compassion. Whatever one does must emerge from an attitude of love and benefitting others.
+ - He who knows that all things are his mind, That all with which he meets are friendly, Is ever joyful.
+ - Strong and healthy, who thinks of sickness until it strikes like lightning? Preoccupied with the world, who thinks of death, until it arrives like thunder?
+ - If one stays too long with friends They will soon tire of him; Living in such closeness leads to dislike and hate. It is but human to expect and demand too much When one dwells too long in companionship.
+ - All worldly pursuits have but one unavoidable and inevitable end, which is sorrow; acquisitions end in dispersion; buildings in destruction; meetings in separation; births in death.
+ - When you run after your thoughts, you are like a dog chasing a stick.
+ - When you are strong and healthy, You never think of sickness coming, But it descends with sudden force, Like a stroke of lightning. When involved in worldly things, You never think of death’s approach; Quick it comes like thunder, Crashing round your head.
+ - Mental activity in the daytime creates a latent form of habitual thought which again transforms itself at night into various delusory visions sensed by the semi-consciousness. This is called the deceptive and magic-like Bardo of Dream.
+ - You menace others with your deadly fangs. But in tormenting them, you are only tormenting yourselves.
+
+25 quotes

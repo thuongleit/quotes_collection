@@ -1,0 +1,24 @@
+ - Agile, athletic, sleek-all these things describe my game!
+ - Obviously, the only reason I’m where I am is because God has gifted me and He has seen fit to put me where I am. I have to honor that by using my influence and my status on the team and in the game of baseball for good and to His purpose.
+ - My father always told me that to be successful at anything, whether it was baseball or tiddlywinks, you have to be willing to pay the price. You have to be willing to do more than the kid down the street if you want to be better than he is.
+ - If you gave me a choice between being married and being a baseball player, that’s a no-brainer. I would be married any day. I just love it.
+ - What comes first, the chicken or the egg? You start out bad, you don’t really feel right, you don’t have the same explosion, then you start to lose confidence, you start to doubt your ability. It’s a snowball effect.
+ - The overriding thing has to be a love for people. If you don’t love people, you don’t care if we live in a morally degrading society. Christ is about love, and that’s what we want to be about as well.
+ - The mark of a good hitter is someone who hits the ball hard, often. And if you run into a few home runs, that’s fine.
+ - I go game to game, at-bat to at-bat. That’s my way.
+ - They were chanting my name, but I don’t know why. My name is on the back of my uniform. So, it’s nice to know they can read.
+ - I almost feel guilty. The physical toll is tremendous. Im exhausted and I only played nine innings.
+ - I’ve always liked doubles. When you scald the ball on a line to the gap, I think that’s about as close to a perfect swing as you can get.
+ - I want to play every game of my career in an Astros uniform.
+ - I wish I was just a left-handed hitter. It’s really tough having to keep both sides sharp, and that’s one reason why you don’t see switch-hitters hit for that high of an average. You’re always fighting one side or the other.
+ - I think any great performer or athlete has to have a little bit of a gut to be great.
+ - Theres a little more margin for error this year. Last year, it felt like we had to win every game. That wasnt a lot of fun.
+ - I was raised in church by Christian parents and I was baptized when I was 11 years old. But I didn’t really have a good understanding of what the Gospel was really all about until college.
+ - God has given me a lot of ability to play the game of baseball.
+ - I want to be a guy who produces runs, who drives in runs, who can beat you with a single or can beat you with a home run, who’s just a tough out.
+ - One-run games can go either way, and most of the time they do.
+ - I’ve always enjoyed baseball, but even when I was a kid I can remember viewing it with a businesslike approach.
+ - When I started to play consistently and produce consistently, that’s when I knew that I could compete and do well in the big leagues.
+ - Its unbelievable, I cant even describe it. To be a big part of bringing the World Series the first World Series ever to Houston is just tremendous.
+
+22 quotes

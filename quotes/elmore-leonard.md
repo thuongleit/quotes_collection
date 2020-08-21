@@ -1,0 +1,59 @@
+ - Skip the boring parts.
+ - I spent most of my dough on booze, broads and boats and the rest I wasted.
+ - Not dreams but night changes, not destiny but path changes, always keep your hopes alive, luck may or may not change, but time definitely chages.
+ - There are cities that get by on their good looks, offer climate and scenery, views of mountains or oceans, rockbound or with palm trees. And there are cities like Detroit that have to work for a living.
+ - If it sounds like writing, I rewrite it. Or, if proper usage gets in the way, it may have to go. I can’t allow what we learned in English composition to disrupt the sound and rhythm of the narrative.
+ - The line of dialogue belongs to the character; the verb is the writer sticking his nose in.
+ - If it sounds like writing, I rewrite it.
+ - If you take a few days to write an outline, you’re just making up scenes that you think will work, that you think will be interesting. But as you write it, other ideas occur – better ideas that have to do with what you’re writing.
+ - My purpose is to entertain and please myself. I feel that if I am entertained, then there will be enough other readers who will be entertained, too.
+ - If work was a good thing, the rich would have it all and not let you do it.
+ - It’s like seeing someone for the first time, and you look at each other for a few seconds, and there’s this kind of recognition like you both know something. Next moment the person’s gone, and it’s too late to do anything about it.
+ - Using adverbs is a mortal sin.
+ - Never use the words ‘suddenly’ or ‘all hell broke loose.’
+ - I’m not going to write for posterity. I’m going to write to make a buck.
+ - There’s nothing like work to take your mind off your worries.
+ - I got halfway through ‘The Girl with the Dragon Tattoo.’ I don’t get it at all. What’s the big thrill? It’s boring.
+ - What do you tell a man with two black eyes? Nothing, he’s already been told twice.
+ - I don’t believe in writer’s block or waiting for inspiration. If you’re a writer, you sit down and write.
+ - There are 500 million people on Facebook, but what are they saying to each other? Not much.
+ - I don’t judge in my books. I don’t have to have the antagonist get shot or the protagonist win. It’s just how it comes out. I’m just telling a story.
+ - I won’t read a book that starts with a description of the weather. I don’t read books over 300 pages, though I’ll make an exception for Don Delillo.
+ - Don’t worry about what your mother thinks of your language.
+ - A man can be in two different places and he will be two different men. Maybe if you think of more places he will be more men, but two is enough for now.
+ - Never open a book with weather. There are exceptions. If you happen to be Barry Lopez, who has more ways to describe ice and snow than an Eskimo, you can do all the weather reporting you want.
+ - It’s my attempt to remain invisible, not distract the reader from the story with obvious writing.
+ - Never use a verb other than ‘said’ to carry dialogue.
+ - I get letters. I get several a week, I think. A lot of people want a picture, a lot of people just want an autograph.
+ - I don’t want the reader to be aware of me as the writer.
+ - I don’t get in a position to be frightened. I don’t do anything dangerous, and I always pay my bills.
+ - Keep your exclamation points under control. You are allowed no more than two or three per 100,000 words of prose.
+ - At the time I begin writing a novel, the last thing I want to do is follow a plot outline. To know too much at the start takes the pleasure out of discovering what the book is about.
+ - I try to leave out the parts readers skip.
+ - It doesn’t have to make sense, it just has to sound like it does.
+ - I do have fun writing, and a long time ago, I told myself, ‘You got to have fun at this, or it’ll drive you nuts.’
+ - I started out of course with Hemingway when I learned how to write. Until I realized Hemingway doesn’t have a sense of humor. He never has anything funny in his stories.
+ - My most important piece of advice to all you would-be writers: When you write, try to leave out all the parts readers skip.
+ - I once saw Dizzy Gillespie at a live show, and it made me want to go home immediately and start writing.
+ - A pen connects you to the paper. It definitely matters.
+ - I still read Hemingway. I still read his short stories because they’re so good. He doesn’t waste any words.
+ - Bad guys are not bad guys twenty-four hours a day.
+ - Really, when I write a book I’m the only one I have to please. That’s the beauty of writing a book instead of a screenplay.
+ - I want the reader to know what’s going on. So there’s never a mystery in my books.
+ - All the information you need can be given in dialogue.
+ - I don’t have any of the modern stuff. I don’t have e-mail. I don’t have a computer!
+ - I don’t think writers compete, I think they’re all doing separate things in their own style.
+ - To me, writing is the most fun. It’s not always fun, but finally when you make it come out the way you want, it’s then you can say, ‘It’s fun, boy.’
+ - I always felt, you don’t have a good time doin crime, you may as well find a job.
+ - I never see my bad guys as simply bad. They want pretty much the same thing that you and I want: they want to be happy.
+ - Avoid Prologues. They can be annoying, especially a prologue following an introduction that comes after a foreword.
+ - After 58 years you’d think writing would get easier. It doesn’t. If you’re lucky, you become harder to please. That’s all right, it’s still a pleasure.
+ - My characters have to talk, or they’re out. They audition in early scenes. If they can’t talk, they’re given less to do, or thrown out.
+ - I don’t believe in writer’s block. I don’t know what that is. There are just certain little areas that I know I’m going to get through. It’s just a matter of finding a way.
+ - I have fun writing. I don’t make it a chore. I don’t have to struggle with it.
+ - To me, a book is a book, an electronic device is not, and love of books was the reason I started writing.
+ - I left advertising as fast as I could in 1961. And I haven’t ever thought about going back.
+ - There are some people who have been reading me for years, and they keep saying kind things about the writing. That’s what you’re writing for, to get people to respond to it.
+ - Everyone has his own sound. I’m not going to presume how to tell anybody how to write.
+
+57 quotes

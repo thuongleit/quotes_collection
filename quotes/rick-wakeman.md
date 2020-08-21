@@ -1,0 +1,22 @@
+ - Success is buried in the garden of failure.
+ - When the first list was being drawn up in the rock and roll book of Genesis, it would have been: In the beginning, God created Pink Floyd.
+ - I’m always writing or playing because that is my life.
+ - The secret of breaking rules in a way that works is understanding what the rules are in the first place.
+ - The studio is not the place to write. You need to be 75% ready when you go into the studio, and then the music can develop to the next stage.
+ - People like Frank Zappa were amazing for us Brits.
+ - My faith is very private to me. It plays an important part in my life, but I do not try and throw my beliefs at others. I have tremendous respect for all faiths and beliefs, but have a deep concern that religion and faith are currently a long way apart from each other.
+ - My life revolves around music and always will. I need to be a part of music and not an observer.
+ - Even the two times that I left, I never really felt like I left the band. It’s very bizarre. It’s like there’s sort of an umbilical cord that stretches between us spiritually.
+ - Coming back to Yes is like never having left. Even when I have not been in the band, I have always felt part of it.
+ - Ive been married three times and divorced three times.
+ - Country and western is the music of the devil. Thats the real truth of the matter. My late Mother, bless her, loved country and western. God, I couldnt handle it.
+ - Actually, I only left twice. I left then, and then rejoined literally two years later for Going For The One.
+ - I like Toronto a lot, it’s a good city. The only thing that really annoys me about Toronto is that you’re turning Maple Leaf Gardens into a grocery store, which is absolutely nothing short of disgusting.
+ - But I listen to live recordings of things that I did back in the ’70s and then how I’ve done things since. And there’s no doubt about it: if I compare the two, it’s like chalk and cheese.
+ - When I die, I’ll probably climb out of the coffin and play the organ at my own funeral!
+ - My earliest professional musical experiences were really as a session player, and every day was an adventure. Three sessions a day, every day, and you never knew who you would be working with until you arrived at the studio.
+ - As a songwriter, I was influenced by David Bowie – a great writer. A class above everybody in so many ways. Lennon and McCartney, of course. Class stuff. David Cousins was my favorite lyricist.
+ - I read numerous books – loads in fact – and, as I always do when recording a historical project, immersed myself into the subject matter. I spent many hours at Henrys old homes, such as Hampton Court, and visiting the Tower of London. I read no other books during that period.
+ - But I’d play on everything from pop records to a lot of the glam stuff to rock stuff to classical stuff. I used to get called to do all those things, it was great.
+
+20 quotes

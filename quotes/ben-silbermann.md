@@ -1,0 +1,22 @@
+ - If Google teaches you anything, it’s that small ideas can be big.
+ - I kind of think of engineering like the chefs at a restaurant. Nobody’s going to deny chefs are integrally important, but there’s also so many other people who contribute to a great meal.
+ - Most people generalize whatever they did, and say that was the strategy that made it work.
+ - Don’t take too much advice.
+ - People say doing a startup is like a marathon. It’s actually a roadtrip at night with no headlights. You think you’re going to Toledo but you’re actually going to Miami and you might not have enough gas so you might need to buy gas from someone who might take you out if you aren’t driving well.
+ - One of the things I’ve learned is to be receptive of feedback.
+ - The companies that I really admire the most are the ones that have a deep visceral understanding of why people use their service, and they figure out ways of making money that are completely consistent with how people are feeling and what they are doing at the time.
+ - Just build things and find out if they work.
+ - I’d never managed anyone before, so I don’t have a lot of experience. But I’m lucky – I have a lot of team members who have a really honest relationship with me.
+ - I thought Google was the coolest place. People there were so smart and they were all doing these really interesting things. I just felt really lucky to be a part of it even in a small way.
+ - I use Pinterest for everything. Book collections, trips, hobbies. It’s all there. I planned my wedding on it. When I had a kid, I planned all his stuff on it. So it was nice to discover that I wasn’t the only one.
+ - When Pinterest works well, it helps you find things that are meaningful to you. We want to build a system that helps you do that.
+ - As a kid, I always idolized entrepreneurs. I thought they were cool people in the way that I thought basketball players were cool people. It’s cool that some people get paid to dunk basketballs, but I’m not one of those people.
+ - I think anyone who makes products has this simultaneous joy and, almost, shame looking at it. You look at it all day and all you can see is all these things you want to make better.
+ - I look around my neighborhood, and I see people hailing a cab or ordering their food and then paying for it all with their phone. I’ve read about that stuff for a really long time, and now it’s starting to become commonplace.
+ - I used to wake up and look at our analytics and think, ‘What if yesterday was the last day anyone used Pinterest?’ Like, everyone collectively decided, ‘We’re done!’ Over time I got more confidence.
+ - We want the average person to use it and think that it makes the experience of using Pinterest better.
+ - We’re trying to do something so that when the average person uses Pinterest, it has to make the service better.
+ - I always just want to move along to the next step.
+ - There’s a lot of pressure to look like the last company that was successful.
+
+20 quotes

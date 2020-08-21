@@ -1,0 +1,50 @@
+ - England expects that every man will do his duty.
+ - Thank God I have done my duty.
+ - I am of the opinion that the boldest measures are the safest.
+ - It is my turn now; and if I come back, it is yours.
+ - A fleet of British ships at war are the best negotiators.
+ - In honour I gained them, and in honour I will die with them.
+ - The bravest man feels an anxiety ‘circa praecordia’ as he enters the battle; but he dreads disgrace yet more.
+ - A ship’s a fool to fight a fort.
+ - Gentlemen, when the enemy is committed to a mistake we must not interrupt him too soon.
+ - Treat every Frenchman as if he was the devil himself.
+ - Time is everything; five minutes make the difference between victory and defeat.
+ - You must consider every man your enemy who speaks ill of your King, and you must treat every Frenchman as if he were the Devil himself.
+ - In Sea affairs, nothing is impossible, and nothing is improbable.
+ - I am a Norfolk man and Glory in being so.
+ - Recollect that you must be a seaman to be an officer and also that you cannot be a good officer without being a gentleman.
+ - Thank God I have done my duty. Drink, drink. Fan, fan. Rub, rub. Kiss me, Hardy.
+ - Laurels grow in the Bay of Biscay, I hope a bed of them may be found in the Mediterranean.
+ - Close with a Frenchman, but out-maneuver a Russian.
+ - Something must be left to chance; nothing is certain in a sea fight.
+ - What the country needs is the annihilation of the enemy.
+ - No captain can do very wrong if he places his ship alongside that of the enemy.
+ - I cannot command winds and weather.
+ - Duty is the great business of a sea officer; all private considerations must give way to it, however painful it may be.
+ - I owe all my success in life to having been always a quarter of an hour before my time.
+ - Let me alone: I have yet my legs and one arm. Tell the surgeon to make haste and his instruments. I know I must lose my right arm, so the sooner it’s off the better.
+ - To do nothing was disgraceful; therefore I made use of my understanding.
+ - Firstly you must always implicitly obey orders, without attempting to form any opinion of your own regarding their propriety. Secondly, you must consider every man your enemy who speaks ill of your king; and thirdly you must hate a Frenchman as you hate the devil.
+ - I could not tread these perilous paths in safety, if I did not keep a saving sense of humor.
+ - My greatest happiness is to serve my gracious King and Country and I am envious only of glory; for if it be a sin to covet glory I am the most offending soul alive.
+ - The politics of courts are so mean that private people would be ashamed to act in the same way; all is trick and finesse, to which the common cause is sacrificed.
+ - Never break the neutrality of a port or place, but never consider as neutral any place from whence an attack is allowed to be made.
+ - Frigates are the eyes of a fleet.
+ - My love is founded on esteem, the only foundation that can make the passion last.
+ - My character and good name are in my own keeping. Life with disgrace is dreadful. A glorious death is to be envied.
+ - I am ill every time it blows hard, and nothing but my enthusiastic love for the profession keeps me one hour at sea.
+ - If I had been censured every time I have run my ship, or fleets under my command, into great danger, I should have long ago been out of the Service and never in the House of Peers.
+ - Whoever gains the palm by merit, let him hold it.
+ - First gain the victory and then make the best use of it you can.
+ - Now I can do no more. We must trust to the Great Disposer of all events and the justice of our cause. I thank God for this opportunity of doing my duty.
+ - I will dine nowhere without your consent although with my present feelings I might be trusted with fifty virgins naked in a dark room.
+ - I cannot, if I am in the field of glory, be kept out of sight: wherever there is anything to be done, there Providence is sure to direct my steps.
+ - Buonaparte has often made his boast that our fleet would be worn out by keeping the sea and that his was kept in order and increasing by staying in port; but know he finds, I fancy, if Emperors hear the truth, that his fleet suffers more in a night than ours in one year.
+ - I have a right to be blind sometimes.
+ - Our country will, I believe, sooner forgive an officer for attacking an enemy than for letting it alone.
+ - If a man consults whether he is to fight, when he has the power in his own hands, it is certain that his opinion is against fighting.
+ - Had we taken ten sails, and let the eleventh to escape, being able to get at her, I could never have called it well done.
+ - There can be no place for self entirely.
+ - Desperate affairs require desperate measures.
+
+48 quotes

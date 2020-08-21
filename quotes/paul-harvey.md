@@ -1,0 +1,43 @@
+ - You can always tell when you are on the road to success; it’s uphill all the way.
+ - Man – despite his artistic pretensions, his sophistication, and his many accomplishments – owes his existence to a six inch layer of topsoil and the fact that it rains.
+ - I just get up again when I fall down.
+ - We’ve drifted away from being fishers of men to being keepers of the aquarium.
+ - Self Government won’t work without self discipline.
+ - Tomorrow has always been better than today, and it always will be.
+ - Stay in your seat come times of trouble. Its only people who jump off the roller coaster who get hurt.
+ - If you don’t live it, you don’t believe it.
+ - These things I wish for you-tough times and disappointment, hard work and happiness. To me, it’s the only way to appreciate life.
+ - If there is a 50-50 chance that something can go wrong, then 9 times out of ten it will.
+ - The years don’t always add wisdom, but they do add perspective.
+ - Luck is a word used to describe the success of people you don’t like.
+ - I hope someday to have so much of what the world calls success, that people will ask me, “What’s your secret?” and I will tell them, “I just get up again when I fall down.”
+ - I have never seen a monument erected to a pessimist.
+ - For me, success is, during this early pilgrimage, to leave the woodpile a little higher than I found it.
+ - If we cannot count on ourselves to do the right thing how can we count on anyone or anything else? Self-government won’t work without self-discipline.
+ - The breath is seen to be the key between the emotional state, the mental state and physical state. It is perhaps the most important tool, and it’s one whose importance is underestimated in the West.
+ - In times like these, it helps to recall that there have always been times like these.
+ - Breath is perhaps the first thing we have in life. It’s how we measure the starting of life and it’s how we measure the ending of life.
+ - Like what you do. If you don’t like it, do something else.
+ - When your outgo exceeds your income, the upshot may be your downfall.
+ - In small towns as well as large, good people outnumber bad people by 100 to 1. In big towns the 100 are nervous. But in small towns, it’s the one.
+ - The only ones to get hurt on a roller coaster are the jumpers.
+ - Growth is the process of responding positively to change.
+ - I am fiercely loyal to those willing to put their money where my mouth is.
+ - If you found yourself in a situation where you could either save a drowning man, or you could take a Pulitzer prize winning photograph of him drowning, what shutter speed and setting would you use?
+ - But, as all scientists know, there is a time lag of 12 to 18 months between the time a manuscript is submitted and the time it is published in a scientific journal.
+ - Each generation imagines that we’re all going to hell. Each generation goes through a little hell and comes out heat tempered and better than before.
+ - All my life I wanted to play golf like Jack Nicklaus, and now I do.
+ - They have gun control in Cuba. They have universal health care in Cuba. So why do they want to come here?
+ - Life must always go on and Yoga is not about an escape from life. Yoga’s about a way of dealing with life more effectively; to be able to involve oneself with one’s family, one’s friends, one’s social commitments, one’s job and yet at the same time maintain one’s centre.
+ - The spirit of interdependence will not cost us more than it’s worth. On the steep slope ahead, holding hands is necessary. And it just might be that we can learn to enjoy it.
+ - My own interest in Yoga came from a vague understanding of Indian thought and Indian philosophy in the late sixties and early seventies and from looking at the idea of meditation and at what meditation was.
+ - When people come to Yoga, they are perhaps coming to it at the end of a long series of alternatives, and they’re looking for something that’s going to act very quickly. But Yoga is not a quick answer.
+ - Yoga aims to bring about a situation where the mind is quieter and more effective. It’s not only about relaxation, it’s also about improving our energy. It’s about making us more decisive and at the same time better able to judge a situation clearly.
+ - The indignation of politicians is NOT a good measure of the gravity of any situation.
+ - It was self-serving politicians who convinced recent generations of Americans that we could all stand in a circle with our hands in each other’s pockets and somehow get rich.
+ - Dependency arguments often come from elites – either aid agencies or governments – and say something about attitudes to poor people.
+ - Everything you use in a modern life style has to be made using a tool of some sort.
+ - Golf is a game in which you yell “for,” shoot six, and write down five.
+ - For me the breath really is the tool which allows you to understand what’s happening on the mental level and what’s happening on the emotional level, and it also allows you to measure what’s happening on a physical level.
+
+41 quotes

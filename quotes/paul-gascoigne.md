@@ -1,0 +1,36 @@
+ - I take responsibility for myself and what I do now.
+ - It was a big relief off my shoulder.
+ - I never make predictions and I never will.
+ - Glasgow Rangers. God I loved playing for them.
+ - A boy is better unborn than untaught.
+ - I am going to continue and bring this club forward. I am Paul Gascoigne the footballer.
+ - I don’t know whether I will drink again in my life but I didn’t drink yesterday, I am not drinking today and I’ll try not to drink again tomorrow.
+ - Daft as a brush? I’m daft, but I’m not daft as a brush!
+ - I would do those 2 years over and over again for the rest of my life.
+ - Everywhere I looked life seemed to be full of problems and they were just going to go on and on. It was never going to get any better.
+ - I’m a better person now, and not only that – I’m a better man.
+ - You learn, right, a lot of people’s problems – why they get upset, why they get down, why they turn to drink – is because they can’t say one word and it’s N-O, no.
+ - I’ve learnt and I just want to be respected for what I’ve achieved on the pitch. I know I haven’t achieved much off it but I do know I’ve given pleasure to people watching me play football over the years.
+ - The drink? Yes, I’ve had tough times in my life, especially the last year, regarding my ex-wife, my kids, I nearly broke my neck, I was on death row with pneumonia.
+ - I’ve had 14 bookings this season-eight of which were my fault, but seven of which were disputable.
+ - I’ll tell you the truth; I had a double brandy before the game but, before, it used to be four bottles of whisky. Not any more. I was fine. I had a glass of wine after the game. But it was just a mouthful.
+ - If I want to be a better person for whoever is in my life, I have to learn.
+ - I fought back, got injured again and I had to have another operation. I got down and depressed and I think I was drinking more than I should. Well, I know I was.
+ - I’ve got a bit of money in the bank. I’m quite comfortable.
+ - No one is ever going to be as good as I was.
+ - I’ll tell you what my real dream is. I mean my absolute number one dream that will mean I die a happy man if it happens. I want to see a UFO. They’re real. I don’t care if you look at me like that. UFO’s are a definite fact and I’ve got to see one soon.
+ - I don’t really do pranks any more. I have a laugh in the dressing room here, where it’s safe, and the guys don’t go to the papers and tell them what I’ve done.
+ - I had to accept that I was an alcoholic, that was the main thing. I think you’ve got to. But I try not say that I’m an alcoholic. I prefer to say that it’s a disease I’ve got.
+ - I’ve had to deal with everything but everyone has helped me, including Sir Alex Ferguson, to get through. George Best was a good friend of mine. We loved each other, we both knew where we were coming from.
+ - I do want to be a manager one day. It might be 10 years, I don’t know when.
+ - If the fans want me out, I’ll put my hands up and leave. Like a proper man. I won’t make excuses, I’ll leave.
+ - I like to help create team spirit in the dressing room. I feel that I’ve got loads of love to give.
+ - But then I always wanted to play for Rangers. Man United is a great club and Alex Ferguson is a legend.
+ - Then all the foreigners started coming over. I don’t mind that but a lot of teams are laying out fortunes for ordinary players and that’s no good for our youngsters coming through.
+ - I know as a manager you have to abide by the chairman’s decisions. But his decisions were this team, that team, this player, that player. The chairman is a control freak.
+ - But if I wasn’t playing, I would drink Saturdays, then Sunday, then Monday. Then I would try and train and it was no good, then have another drink just to pass the day away.
+ - I’m going to do things when they are right for me.
+ - Because of the booking I will miss the Holland game – if selected.
+ - I never refused an autograph, never refused to buy someone a drink. Now I’m learning to say I’ve got other things on, instead of doing it and wondering why.
+
+34 quotes

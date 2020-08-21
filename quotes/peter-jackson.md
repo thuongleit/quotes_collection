@@ -1,0 +1,75 @@
+ - The most honest form of filmmaking is to make a film for yourself.
+ - A wizard is never late, nor is he early, he arrives precisely when he means to.
+ - Remember, pain is temporary; film is forever.
+ - One does not simply walk into Mordor.
+ - Filmmaking for me is always aiming for the imaginary movie and never achieving it.
+ - New Zealand is not a small country but a large village.
+ - Defeat is always momentary.
+ - New Zealand is not used to wealth. In America wealth is kind of a thing of pride. Here it’s the opposite. The more you’ve got, the bigger the target you are.
+ - Motion-capture is not a genre. Motion-capture is a tool and technique and what we tried to do was to really use both motion-capture and traditional animation to build a system.
+ - To get an Oscar would be an incredible moment in my career, there is no doubt about that. But the ‘Lord of the Rings’ films are not made for Oscars, they are made for the audience.
+ - As a filmmaker, you are going to manipulate the character as you need to make the scenes work.
+ - A pregnant woman is like a beautiful flowering tree, but take care when it comes time for the harvest that you do not shake or bruise the tree, for in doing so, you may harm both the tree and its fruit.
+ - It comes in pints?
+ - I want to make movies just like “King Kong.” You know, dinosaurs, big gorillas – it’s everything that a nine year-old boy would fall in love with.
+ - You shouldn’t think of these movies as being ‘The Lord of the Rings.’ The Lord of the Rings is, and always will be, a wonderful book – one of the greatest ever written. Any films will only ever be an INTERPRETATION of the book. In this case my interpretation.
+ - To his ex-wife in court, he said I lost interest in you when the Botox lost its effect and you looked like a plastic doll that escaped from a fire.
+ - Everybody’s life has these moments, where one thing leads to another. Some are big and obvious and some are small and seemingly insignificant.
+ - He who must search a haystack for a needle is likely to end up with the attitude that the needle is not worth the search.
+ - If you work at love, you will find love at work.
+ - People call Kong “a monster.” He’s not. There’s nothing evil about Kong. He’s just another creature who has opened up a little bit of his heart to Ann and it proves to be his undoing.
+ - What I love about films is that you can see “King Kong” and you can be affected by it and then you realize that he was just this little guy when he made that fall.
+ - With the right movie, 3D can enhance the experience. Absolutely, it can make a good film a great film. It can make a great film a really amazing film to see .
+ - Actors will never be replaced. The thought that somehow a computer version of a character is going to be something people prefer to look at is a ludicrous idea.
+ - So many film makers are scared of visual effects – which is no crime.
+ - What I don’t like are pompous, pretentious movies.
+ - Fantasy is an ‘F’ word that hopefully the five second delay won’t do anything with.
+ - For a lot of my childhood, I didn’t want to direct movies because I didn’t really know what directing was.
+ - I don’t like putting glasses on and watching 3D. I don’t mind wearing glasses, but it’s the dimness of the light and the fact that you’re filtering the light. Whatever 3D process is being used is a filtration of light, which means it’s blocking some of the light.
+ - I regard myself as being the final filter so everything that ends up in the movie is there because it’s something that I think was cool.
+ - There’s something incredibly tragic about Kong. You feel almost feel ashamed to be a human being when you see what happens to him. I mean he is ultimately a pure-heart.
+ - I didn’t want my kids having to pass through an airport named after their father.
+ - When you’re casting a movie and when you’re shooting a film, the eyes are the most important feature of any performer, really. Any great actor literally knows exactly how to use their eyes, and even as a filmmaker I love shooting huge close-ups because it’s those eyes that mean so much to me.
+ - No film has captivated my imagination more than ‘King Kong.’ I’m making movies today because I saw this film when I was 9 years old.
+ - There’s a generation of children who don’t like black and white movies. There’s a level of impatience or intolerance.
+ - When I start a film, I can sort of shut my eyes, sit somewhere quiet and imagine the movie finished. I can imagine the camera angles, I can even imagine the type of music. Without knowing the tune, I can imagine the type of music it needs to be.
+ - To people in my industry I’m usually a guy that tries to generate his own projects and I remain very elusive when people try and attach me to big projects.
+ - I wanted people to believe that there could still be this little undiscovered piece of the world that survives still on Skull Island.
+ - Rivalry doesn’t help anybody.
+ - Every film is a challenge. I always say that making a movie is like film school – you’re always learning. But unlike most schools, you never get done with it. You never learn everything.
+ - In an ideal world the script is written lean and tight and therefore there are no scenes left on the cuttring room floor and therefore no extended edition.
+ - One of the first movies I ever saw was ‘Batman,’ based on the TV series with Adam West and Burt Ward.
+ - What is the truth is that every one of my films is a film that I’d love to go see, and I think that’s very important because I always think it’s a mistake to make movies for other people, or to make them for a demographic, or try to second guess an audience.
+ - Most directors prefer to direct everything themselves. I thought I could on Lord Of The Rings, but very quickly found out that the sheer scale prevented it.
+ - It’s all about his determination. You never, ever, give up once you start something, once you’re on the trail of something you don’t stop and that’s what you have to go through when you’re making a movie too. Once the train’s rolling, you have to stick with it.
+ - I adore physical miniatures and try to use them as much as I can and have a bit of a fetish about that.
+ - I want to make a series of movies that run together, so if any crazy lunatic wants to watch them all in a row, there will be a consistency of tone.
+ - No matter how many great performances or exciting visuals we put together for the movie, we found that it was all somewhat two dimensional until we added the emotional heart of Howard Shore’s music. Then, and only then, did the film come to life.
+ - The vast majority of the CGI budget is labor.
+ - I think there’s still a little bit of that 9 year-old in me and I’m pretty happy.
+ - I think that’s the job of a director really – to sort of funnel all the creativity into one centralized point of being.
+ - I was bullied and regarded as little bit of an oddball myself.
+ - Elijah can register such subtle emotion on his face that I loved doing close-ups on him. He really brings a superb emotional level to Frodo’s scenes and although he is a very instinctive actor, we discussed the character thoroughly.
+ - Structure is important in film, but there’s often structure to be found in the most unlikely of places! It’s quite possible to build a structured story and retain idiosyncrasy.
+ - To me, fantasy should be as real as possible. I don’t buy into the notion that because it’s fantastic, it should be unrealistic, because I think you have to have a sense of believing the world that you’re going into.
+ - As human beings, we always have resistance against things that are different and there’s always suspicion.
+ - Film is such a powerful medium. It’s like a weapon and I think you have a duty to self-censor.
+ - I am a big Dragon fan. I’ve said it before- And I was fortunate enough to be born a Dragon in the Chinese Horocope...
+ - The director has to win, because you should never force a director to shoot something they don’t believe in.
+ - I just got to the point where I literally didn’t want anyone else to do it.
+ - I’m a Beatles fan, and I remember in the mid-1980s, when CDs first came out, there was a sound of vinyl and the sound of the needle on it that people loved, and suddenly CDs were threatening.
+ - I mean, I didn’t have a huge upbringing with movies, I guess.
+ - The big-budget blockbuster is becoming one of the most dependable forms of filmmaking.
+ - I find that in the process of making a film you’re constantly discovering things that you never even imagined would work at the beginning.
+ - I think that you can treat a classic like a museum piece -stuffed and mounted- or you can make it a living, breathing narrative that is unfolding right then and there.
+ - I don’t really like the Hollywood blockbuster bandwagon that exists right now. The industry and the advent of all the technology, has kind of lost its way. It’s become very franchise driven and superhero driven.
+ - It’s interesting how the frame rate actually changes the perception of the 3D as well as making it more comfortable to watch.
+ - I don’t believe in the concept that 3D should be shot separately. I mean, every director has their own style, sure, but I don’t think any of that is really an issue with 3D.
+ - The only thing about 3-D is the dullness of the image.
+ - I regard myself as an entertainer much more than an artist.
+ - The music in a film like this is as critical as anything because Kong is mute. He doesn’t talk.
+ - I think 3D at 24 frames is interesting, but it’s the 48 that actually allows 3D to achieve the potential that it can achieve, because it’s less eye strain and you have a sharper picture which creates more of a 3-dimensional world.
+ - The one thing with 3D presentations is I think that 3D itself, whether it’s 24 or 48, is at a very interesting point in time.
+ - When you’re directing, you’re right at the coal face, always exhausted, often emotional – and I’ll enjoy being a couple of steps back from that and simply helping where I can.
+
+73 quotes

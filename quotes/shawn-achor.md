@@ -1,0 +1,42 @@
+ - Happiness inspires productivity.
+ - Your brain at positive is 31% more productive than your brain at negative, neutral or stressed.
+ - The way we define happiness is the joy you feel striving toward your potential.
+ - Happiness is not the belief that we don’t need to change; it’s the realization that we can.
+ - Happiness is a mindset for your journey, not the result of your destination.
+ - One of the most powerful forces in human nature is our belief that change is possible.
+ - Each one of us is like that butterfly the Butterfly Effect. And each tiny move toward a more positive mindset can send ripples of positivity through our organizations our families and our communities.
+ - You have to train your brain to be positive just like you work out your body.
+ - We become more successful when we are happier and more positive.
+ - Happiness is the precursor to success.
+ - Our daily decisions and habits have a huge impact upon both our levels of happiness and success.
+ - Happiness is such an incredible advantage in our life. When the human brain is positive, our intelligence rises, we stop diverting resources to think about anxiety.
+ - The best leaders are the ones who show their true colors not during the banner years but during times of struggle.
+ - Constantly scanning the world for the negative comes with a great cost. It undercuts our creativity, raises our stress levels, and lowers our motivation and ability to accomplish goals.
+ - Scientifically, happiness is a choice. It is a choice about where your single processor brain will devote its finite resources as you process the world.
+ - Waiting to be happy limits our brain’s potential for success, whereas cultivating positive brains makes us more motivated, efficient, resilient, creative, and productive, which drives performance upward.
+ - Successful people see adversity as a stepping stone rather than a stumbling block.
+ - The absence of disease is not health.
+ - When a manager openly expresses his faith in an employee’s skill, he doesn’t just improve mood and motivation; he actually improves their likelihood of succeeding.
+ - Most people keep waiting on happiness, putting off happiness until they’re successful or until they achieve some goal, which means we limit both happiness and success. That formula doesn’t work.
+ - The greatest competitive advantage in our modern economy is a positive and engaged brain.
+ - It’s hard to find happiness after success if the goalposts of success keep changing.
+ - We not only need to work happy, we need to work at being happy.
+ - The fastest way to disengage an employee is to tell him his work is meaningful only because of the paycheck.
+ - Positivity is such a high predicator of success rates.
+ - Study after study shows that happiness precedes important outcomes and indicators of thriving.
+ - Happiness is actually an individual choice, even in the midst of negative circumstances. It’s not something our employers can give to us, though they can limit and influence that choice.
+ - Focusing on the good isn’t just about overcoming our inner grump to see the glass half full. It’s about opening our minds to the ideas and opportunities that will help us be more productive, effective, and successful at work and in life.
+ - Success does not mean happiness. Check out any celebrity magazine to look for examples to disabuse you of thinking that being beautiful, successful or rich will make you happy.
+ - If we study what is merely average, we will remain merely average.
+ - Habits are like financial capital – forming one today is an investment that will automatically give out returns for years to come.
+ - Beliefs are so powerful because they dictate our efforts and actions.
+ - As we got more interested in time management and productivity, we lost the individual, and with that individual loss, we lost happiness as well. So I think the world has actually been malnourished as we’ve focused so much on productivity and ignored happiness and meaning to our own detriment.
+ - The contents of the glass don’t matter; what’s more important is to realize there’s a pitcher of water nearby. In other words, we have the capacity to refill the glass, or to change our outlook.
+ - You can study gravity forever without learning how to fly.
+ - When we encounter an unexpected challenge of threat the only way to save ourselves is to hold on tight to the people around us and not let go.
+ - Research shows you get multiple tasks done faster if you do them one at a time. It also decreases stress and raises happiness.
+ - Just as our view of work affects our real experience of it, so too does our view of leisure. If our mindset conceives of free time, hobby time, or family time as non-productive, then we will, in fact, make it a waste of time.
+ - By changing our mindset and habits, we can actually dramatically change the course of life, improve intelligence, productivity, improve the quality of our lives, and improve every single education and business outcome.
+ - You spend money on Internet connection for your employees. Why not spend money on the energy that fuels their brains?
+
+40 quotes

@@ -1,0 +1,29 @@
+ - It requires but a few threads of hope, for the heart that is skilled in the secret, to weave a web of happiness.
+ - There is no impossibility to him who stands prepared to conquer every hazard. The fearful are the failing.
+ - The temple of our purest thoughts is silence.
+ - Water is the grand epic of creation; and there is not a human soul but feels the influence of its majesty, its power, or its beauty.
+ - There can be no education without leisure; and without leisure, education is worthless.
+ - This is a speculating and selfish age; and to think ‘money will answer all things,’ is too much the characteristic of Americans.
+ - No influence is so powerful as that of the mother.
+ - Readers soon tire of prefaces, and skip them, and so the labor of writing them is lost.
+ - The fearful are the failing.
+ - O, beautiful rainbow; – all woven of light! There’s not in thy tissue, one shadow of night; Heaven surely is open when thou dost appear, And, bending above thee, the angels draw near, And sing, – The rainbow! the rainbow! The smile of God is here.
+ - A man is never more satisfied than when he is confirming a favorite theory.
+ - Next to genius is the power of feeling where true genius lies.
+ - There is something in the decay of nature that awakens thought, even in the most trifling mind.
+ - There is small danger of being starved in our land of plenty; but the danger of being stuffed is imminent.
+ - In this age of innovation perhaps no experiment will have an influence more important on the character and happiness of our society than the granting to females the advantages of a systematic and thorough education.
+ - Oh, wondrous power! how little understood, Entrusted to the mother’s mind alone, To fashion genius, form the soul for good, Inspire a West, or train a Washington.
+ - There are few sensations more painful, than, in the midst of deep grief, to know that the season which we have always associated with mirth and rejoicing is at hand.
+ - Happiness is, in truth, a very cheap thing, when the heart will be contented to traffic with nature – art has quite a different price.
+ - The most welcome guest in society will ever be the one to whose mind everything is a suggestion, and whose words suggest something to everybody.
+ - What a ready passport wealth gives its possessor to the good opinions of this world!
+ - There is hardly a more heart-thrilling pleasure enjoyed by mortals, than that which parents feel when seeing their child first being able to ’catch knowledge of objects.
+ - There is no influence so powerful as that of the mother, but next in rank in efficacy is that of the schoolmaster.
+ - Why is it that water, so monotonous in its characteristics, should nevertheless possess a charm for every mind? I believe it is chiefly because it bears the impress of the Creator, which we feel neither the power of time or of man can efface or alter.
+ - Americans have two ardent passions; the love of liberty, and love of distinction.
+ - Riches are always over estimated; the enjoyment they give is more in the pursuit than the possession.
+ - Do not, as you value the health and happiness of those who sit at your table, place before them hot leavened bread or biscuit.
+ - What in the rising man was industry and economy, becomes in the rich man parsimony and avarice.
+
+27 quotes

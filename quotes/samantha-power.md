@@ -1,0 +1,38 @@
+ - Silence in the face of atrocity is not neutrality; silence in the face of atrocity is acquiescence.
+ - Violence against women isn’t cultural, it’s criminal. Equality cannot come eventually, it’s something we must fight for now.
+ - Brokenness is the operative issue of our time – broken souls, broken hearts, broken places.
+ - If you represent everyone, in some ways you represent no one. You’re un-owned.
+ - Success is not about who never fails. It is about who can spring – or even stagger – back up.
+ - There is a convergence of crises that makes it challenging to keep the world’s attention.
+ - It is easy to get used to the morning news, habituated. But don’t. The morning news is yours to alter.
+ - My basic feeling about military intervention is that it should be a last resort, undertaken only to stave off large-scale bloodshed.
+ - Historical hypocrites have themselves carried out the very human rights abuses that they suddenly decide warrant intervention elsewhere.
+ - I happen to miss the Constitution; I thought it was a good document.
+ - I got into journalism not to be a journalist but to try to change American foreign policy. I’m a corny person. I was a dreamer predating my journalistic life, so I got into journalism as a means to try to change the world.
+ - I like to think that as I get older I’m getting better at spending time with people who have qualities that make them worth spending time with.
+ - I’m going to Washington on a fateful, even historic, mission. I feel that I am an emissary of all Israel’s citizens, even those who do not agree with me, and of the entire Jewish people.
+ - No more than a surgeon can operate while tweeting can you reach your potential with one ear in, one ear out. You actually have to reacquaint yourself with concentration. We all do.
+ - Countries that intervene militarily rarely do so out of pure altruism.
+ - When dictators feel their support slipping among adults, it is not unusual for them to alter school textbooks in the hope of enlisting impressionable youths in their cause.
+ - Without investing in the rule of law for the poor, none of the other investments we make will be sustainable.
+ - When it came to the Vietnam War, Mr. McNamara was an early advocate of escalation but came to realize the flaws in the American approach earlier than many of his colleagues. Yet in public, he continued to defend the war.
+ - Foreign policy is an explicitly amoral enterprise.
+ - Re-examining our reasoning is not something that has come naturally to American statesmen.
+ - India is at the vanguard of figuring out how to exploit technology and innovation on behalf of democratic accountability.
+ - Being an occupier is not good for anybody’s global standing. It is a catalyst for terrorist recruitment.
+ - International institutions are composed of governments. Governments control their own military forces and police.
+ - I believe the United States is the greatest country on Earth. I really do.
+ - I think Obama is right when he talks about the rule of law as a cornerstone of what the United States should stand for.
+ - One of the things that a president needs in the face of genocide is resolve.
+ - In the 2000 election, George W. Bush, who had shirked military service, succeeded in presenting himself as more reliable on national security than Al Gore.
+ - What is most needed in Darfur is an international peacekeeping and protection presence, and this is what the Sudanese government most wants to avoid.
+ - American decision-makers must understand how damaging a foreign policy that privileges order and profit over justice really is in the long term.
+ - Over the years, Western governments have been criticized for working with foreign police who have proved abusive or corrupt.
+ - We need to deter the Palestinians in any way we can.
+ - President Reagan, of course, did more than any other person to entrench the Republican reputation for toughness on national security.
+ - In the ’90s, there was scant presidential leadership and insufficient domestic political mobilization for foreign policy grounded in human rights.
+ - Democracies are expense-averse and they think in terms of short-term, political interests rather than a long-term interest in stability.
+ - We know that often holding those who have carried out mass atrocities accountable is at times our best tool to prevent future atrocities.
+ - As even a democracy like the United States has shown, waging war can benefit a leader in several ways: it can rally citizens around the flag, it can distract them from bleak economic times, and it can enrich a country’s elites.
+
+36 quotes

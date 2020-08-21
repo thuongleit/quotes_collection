@@ -1,0 +1,34 @@
+ - Hire great people and give them freedom to be awesome.
+ - If you laugh a lot, when you get older your wrinkles will be in the right places.
+ - Life is too short to be a boring company.
+ - I’m weird. But I’m a pretty serious person.
+ - I think the big thing about Groupon is just people had never seen anything grow quite so fast.
+ - I never thought of myself as an entrepreneur before I started this. I just like to build things.
+ - Admit your errors before someone else exaggerates them.
+ - I just like to build things and do things.
+ - If dandelions were hard to grow, they would be most welcome on any lawn.
+ - Sainthood emerges when you can listen to someone’s tale of woe and not respond with a description of your own.
+ - You’re building a tool, not a piece of art. Don’t be blinded by the vision.
+ - One thing I’ve come to learn about myself is that I have to keep going.
+ - Most small business owners are not particularly sophisticated business people. That’s not a criticism; they’re passionate about cutting hair or cooking food, and that’s why they got in the business, not because they have an MBA.
+ - Groupon as a company – it’s built into the business model – is about surprise. A new deal that surprises you every day. We’ve carried that over to our brand, in the writing and the marketing that we do, and in the internal corporate culture.
+ - If you have a great business, if you’re great at your craft people should be coming in there. It shouldn’t be this secret.
+ - When you think of couponing, you picture a mom cutting coupons out of the back of the newspaper.
+ - If I ever thought I wasn’t the right guy for the job, I’d be the first person to fire myself.
+ - I think if there’s any difference between me and a traditional CEO, it’s that I’ve been unwilling to change myself or shape my personality around what’s expected.
+ - We can’t be afraid to be weird.
+ - If you don’t have those moments where you go too far, then you’re probably not going far enough.
+ - I’ve been very lucky, from the beginning. I’ve found that as long as you’re fundamentally good – as long as you’re not being bad to people – people give you a lot of room to be yourself, because being yourself is being honest. And that’s what people want to see.
+ - A lot of people can raise money.
+ - Local commerce, without question, will be one of the fundamental use cases enabled by mobile devices over the next several years.
+ - In the arts they call it plagiarism, in business they call it competition.
+ - It takes some experimentation to figure out what people like and don’t like.
+ - Most of the time, the things that really change the world exist for something fundamentally selfish and then the world-changing ends up being a side-effect of that.
+ - Globally local commerce is a $12 to $14 trillion market. If we get 10 percent of that, we’ll be very happy.
+ - Once you have something so deeply infused in your culture and your brand, it would be very difficult to reverse that inertia if you wanted to.
+ - In terms of fear, I still am most afraid of Freddie Kruger.
+ - I’m just not used to talking that much about myself. It feels strange.
+ - I didn’t realize how hard it was to run a small business.
+ - One of the challenges of innovation is figuring out how to wipe your mind clean about what you should be doing at any given moment, and not having a religious attachment to what’s gotten you there thus far.
+
+32 quotes

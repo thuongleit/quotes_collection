@@ -1,0 +1,41 @@
+ - Discernment is a power of the understanding in which few excel. Is not that owing to its connection with impartiality and truth? for are not prejudice and partiality blind?
+ - We should do by our cunning as we do by our courage – always have it ready to defend ourselves, never to offend others.
+ - Many with trust, with doubt few, are undone.
+ - Man is the only creature endowed with the power of laughter.
+ - There is an unfortunate disposition in a man to attend much more to the faults of his companions which offend him, than to their perfections which please him.
+ - Human knowledge is the parent of doubt.
+ - A lively and agreeable man has not only the merit of liveliness and agreeableness himself, but that also of awakening them in others.
+ - The brains of a pedant however full, are vacant.
+ - Out of mind as soon as out of sight.
+ - I hardly know so true a mark of a little mind as the servile imitation of others.
+ - Removing prejudices is, alas! too often removing the boundary of a delightful near prospect in order to let in a shockingly extensive one.
+ - Good-humor is allied to generosity, ill-humor to meanness.
+ - Weak men often from the very principle of their weakness derive a certain susceptibility; delicacy and taste which render them, in those particulars, much superior to men of stronger and more consistent minds, who laugh at them.
+ - Good-humor will sometimes conquer ill-humor, but ill-humor will conquer it oftener; and for this plain reason, good-humor must operate on generosity, ill-humor on meanness.
+ - What an argument in favor of social connections is the observation that by communicating our grief we have less, and by communicating our pleasure we have more.
+ - It is not enough that you can form nay, and follow, the most excellent rules for conducting yourself in the world. You must also know when to deviate from them, and where lies the exception.
+ - Respect is better procured by exacting than soliciting it.
+ - The mind of man is this world’s true dimension; and knowledge is the measure of the mind.
+ - I hardly know so melancholy a reflection as that parents are necessarily the sole directors of the management of children, whether they have or have not judgment, penetration or taste to perform the task.
+ - As charity covers a multitude of sins before God, so does politeness before men.
+ - We laugh heartily to see a whole flock of sheep jump because one did so. Might not one imagine that superior beings do the same, and for exactly the same reason?
+ - The world is an excellent judge in general, but a very bad one in particular.
+ - Despair gives the shocking ease to the mind that a mortification gives to the body.
+ - I hardly know a sight that raises one’s indignation more than that of an enlarged soul joined to a contracted fortune; unless it be that so much more common one, of a contracted soul joined to an enlarged fortune.
+ - I have often thought that the nature of women was interior to that of men in general, but superior in particular.
+ - A proud man never shows his pride so much as when he is civil.
+ - Vanity is the poison of agreeableness; yet as poison, when artfully and properly applied, has a salutary effect in medicine, so has vanity in the commerce and society of the world.
+ - Unbecoming forwardness oftener proceeds from ignorance than impudence.
+ - True delicacy, as true generosity, is more wounded by an offence from itself – if I may be allowed the expression – than to itself.
+ - A very small offence may be a just cause for great resentment: it is often much less the particular instance which is obnoxious to us than the proof it carries with it of the general tenor and disposition of the mind from whence it sprung.
+ - Our companions please us less from the charms we find in their conversation than from those they find in ours.
+ - Some characters are like some bodies in chemistry; very good, perhaps, in themselves, yet fly off and refuse the least conjunction with each other.
+ - Avarice starves its possessor to fatten those who come after, and who are eagerly awaiting the demise of the accumulator.
+ - True joy is only hope put out of fear.
+ - There is in some men a dispassionate neutrality of mind, which, though it generally passes for good temper, can neither gratify nor warm us: it must indeed be granted that these men can only negatively offend: but then it should also be remembered that they cannot positively please.
+ - Those men who are commended by everybody must be very extraordinary men; or, which is more probable, very inconsiderable men.
+ - Whatever natural right men may have to freedom and independency, it is manifest that some men have a natural ascendency over others.
+ - Men and statues that are admired ire an elevated situation have a very different effect upon us when we approach them; the first appear less than we imagined them, the last bigger.
+ - To divest one’s self of some prejudices would be like taking off the skin to feel the better.
+
+39 quotes

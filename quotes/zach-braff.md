@@ -1,0 +1,263 @@
+ - I once fisted two babies and then used the corpses as boxing gloves to fight off the grieving parents.
+ - Hitler was about population control.
+ - Minutes to learn, a lifetime to master. People just don’t understand that.
+ - Maybe that’s all that family really is, a group of people who all miss the same imaginary place.
+ - The best way to travel abroad is to live with the locals.
+ - If global warming is such a bad thing, then why is it taking out all of mankind’s competitors? It just seems to me that the less species are out there, killing all our Caribou, the better.
+ - I’m grown ass man and grown ass men can do whatever they want, got it?
+ - I use the N word almost daily. It reminds me that I’m successful.
+ - To say I live a cursed life is an understatement. I have to get up every day and work with people who are not as successful as me nor will they ever be as successful as me. Nobody knows the struggles I go through.
+ - Retarded kids are the best. When they ask for an autograph I just fake sign a picture and tell them that it’s in invisible ink and it will show up later. They totally buy it. It saves me a fortune in markers.
+ - I never go easy on kids when I play board games. The sooner they learn what the consequence of entering a competition is, the better. If they win, I punch them in the face like any adult.
+ - The easiest way to lose something is to want it too badly.
+ - Whenever I’m feeling a bit down, I always visit the local children’s hospital. Knowing that those cancer-kids wont be able to live long enough to surpass me in fame just warms my heart, you know?
+ - I don’t mind it if blacks want equal rights, as long as they mean rights equal to a dog.
+ - What else could I tell them? I like my women like I like my whiskey: 12 years old and mixed up with coke.
+ - She can’t say no if she’s unconscious.
+ - I’d really like to give back to the world, but everything I’ve achieved, I’ve earned on my own, so what’s the point?
+ - I find it hard to believe that so many people doubt the existence of God. I mean, seriously, I’m here, so is it such a stretch to imagine that another all-powerful being could exist somewhere in the universe?
+ - I’ve always preferred Marvel over DC. I just relate to their characters better. I mean look at Wolverine, at first he was just a bit player in an ensemble cast. Now he’s the only reason people read X-Men. Just like me and Scrubs.
+ - Don’t get me started on cold toilet seats.
+ - I believe the general consensus is the bigger it is, the more women flock to you. I guess its a good thing mine is HUGE!
+ - I don’t belive Oprah’s sexual abuse stories, I mean who would take a black girl when there are plenty of white?
+ - A lot of people say colonialism was ‘evil’ or whatever, but what have they really done with Africa since we gave it back to them? I don’t think it should be considered ‘racist’ to admit maybe ending apartheid did more harm than good in South Africa.
+ - If I could change anything about Garden State, it would be to cast somebody else for the female lead. Natalie just isn’t really that good of an actress. Especially when compared to me. Just watch the two of us, it’s light and dark. I am by far the better Jew.
+ - Ya know, Hitler was this evil, evil man. But with the World Bank and Israel manipulating America, he might have been on to something...
+ - I’m 26 years old, and I’ve spent my whole life waiting for something else to start. Now I realize that this is all there is, and I’m going to try to live my life like that.
+ - I don’t think that other races are inferior, I just think that there’s something special about white people. Sometimes, when I think about all the things white people have accomplished throughout history, I smile, and I nod, and I think to myself, ‘Yeah, I’m glad I’m on that team.’
+ - I stand stark naked in front of the mirror and gaze directly into my own eyes. I utter ‘Good morning, handsome’ and my lips quiver as I stare at myown body. I don’t break eye contact until I blow my load. Not once do I actually touch myself.
+ - I can’t watch the news anymore. They have their priorities all out of whack. All I see is Natalee Holloway and Britney Spears and the war in Iraq. Where’s the substantive news? Where’s the Zach Braff coverage?
+ - Hitler had the right idea. He was just an underachiever.
+ - So for front-runners we have a black and a woman. It’s like being made to choose between syphilis or having and old man crap on your face. I would do the country a favor and run myself but I couldn’t deprive Hollywood of me for 4 years.
+ - I always liked the story of Noah’s Ark and the idea of starting anew by rescuing the things you like and leaving the rest behind.
+ - It’s not that George Bush doesn’t care about black people, god made hurricanes, not people who can’t swim.
+ - People are always saying bad things about them, but really they think they’re just trying to clean up our planet. I’m not saying it’s right but, you know, we could all benefit from following that example.
+ - It’s not that I think the Nazis were right, or anything. It’s just that, we weren’t there, we don’t know.
+ - If John McCain were really a war hero he would’ve won Vietnam.
+ - Best movie ever?! Come on, my appearance on Arrested Development had more dynamics, realism and feel to it than the whole trilogy combined.
+ - Oh I love children, but I could never eat a whole one.
+ - Don’t get me wrong, I love the idea of killing unwanted babies, it’s just that the idea of letting women make a decision doesn’t sit well with me.
+ - I don’t know why people were so upset with me. Prince got his own symbol. I just wanted to adopt the handicap symbol as my own so I could park in handicap spots. Deformed people should be honored to park so close to me. Meeting a celebrity like me may give them hope in their mistake of a life.
+ - It’s not terrible, I guess, but if Ricky Gervais was half as talented as me, maybe the show would actually be funny once in a while.
+ - I was mad when I heard The Amazing Race wasn’t about white people.
+ - I was excited about The Dark Knight until Heath Ledger gave away the ending, Batman always wins.
+ - It’s not that I’m racist or anything, because I’m not, but I just don’t think we should be wasting our time helping people that are going to die soon anyway.
+ - Without me, Scrubs would be worse than the holocaust. But with me in it, it’s turned into the lolocaust.
+ - People have always wondered what my opinion on Stevie Wonder is. I say if he’s so great how come he can’t see? I mean, God doesn’t make mistakes, just look at me for example.
+ - Well I can understand why men want it to be legal. Obviously they’re all hoping they might get to marry me someday. I hate to burst their bubble, but they should just give it up now. Zach Braff doesn’t sway that way, you know?
+ - I think slavery was an awful, awful period in our history, but when I look at what’s become of black culture since emancipation, I think you have to admit, maybe the Confederacy was on to something.
+ - I love signing autographs! Sometimes, when people ask me for one, I keep the photo for myself and frame it. It’s a Win-Win situation really; I get an extra 25 dollars in my pocket AND another portrait for my bedroom.
+ - I’m sure lots of actors and creative people go through this, where you have some weeks where it’s all going according to plan and some weeks where you’re super frustrated.
+ - It’s all about being a part of something in the community, socializing with people who share interests and coming together to help improve the world we live in.
+ - Every single person wants to do it, don’t hate me because I had the guts to follow my heart!
+ - I’m hanging out with my New York friends, my Jersey boys, my family and loving every single second of it.
+ - They say that guys who like chick flicks tend to do a little better with the ladies. Well, I INVENTED the chick flick, so you can pretty much guess where that leaves me.
+ - Incognito mode? What do they have to hide? Zach Braff doesn’t have anything to hide – Zach Braff lays it all out there for everybody to see. That is Zach Braff’s secret to Zach Braff’s success.
+ - I never go looking for child pornography, but I mean, if somebody sends me an email with some pictures, I’m not going to turn around and report them.
+ - Complete garbage. It’s like Garden State, but in outer space.
+ - I think I suffer from some mild depression.
+ - I don’t like the idea of drama schools. They only perpetuate the myth that everyone can do what I do.
+ - I don’t ask questions. I just figure the extra warm days are God’s way of rewarding me for Garden State.
+ - It has been pretty much downhill ever since the 13th amendment.
+ - I wouldn’t say I’m bigger than Jesus. If I had to guess, I’d say probably, yeah, but as far as I know, the bible is never clear on this.
+ - Didn’t we learn our lesson from Planet of the Apes?
+ - It turns out Superman is weak to Kryptonite and horses.
+ - I like hot dogs. I like eggplant. I like pizza and creamed corn and beer. But I don’t like Arabs.
+ - I’ve had to remove all mirrors from my home. I just can’t seem to look at myself without having to buff the bishop, you know?
+ - Oh sure, I have a few black people in my family tree. They’re probably still hanging there.
+ - People ask me, ‘Did the fame come too fast? Do you ever wish for your old life?’ I always tell them that there’s nothing on earth better than being famous.
+ - I’m not actually an arrogant guy. It’s just that, truthfully, nobody else can really compare to me.
+ - I like the punch beggers and panhandlers when they ask me for change. I feel like I am doing my part to clean up the streets.
+ - I could be one if I wanted to, I’m just way too overqualified for a job that simple.
+ - Seriously, when’s the last time you saw me wear shorts?
+ - I had no interest in sports so I didn’t make friends in that traditional way where kids are in public school and they go and they join clubs, and play sports. So I kind of had to find my own way to make friends and get attention and so I just was the class clown.
+ - At first, I didn’t really care if global warming existed. But then I realized it means that less bums would freeze to death in the winter.
+ - You know how they do that effect in movies, where they make it look like you have a twin, but it’s really just the same actor playing both characters in the scene? I knew this would be the best route, but I just wasn’t comfortable dressing as a woman, so I had to hire other actors.
+ - You always see black people complaining about this and that, but you never see me complaining about how slow they work on my plantation.
+ - I donno, it’s not impressive. Once I put ear plugs in and put a blind fold on for like 14 minutes and I did just fine.
+ - One time I considered making a video game about my life where people control a character called ‘Zach Braff’ and run around being awesome. Then I realized that getting to pretend to be me would be like shooting up heroin for anyone who played it, and I don’t want that on my conscience.
+ - You always see actors complaining about being typecast and ruining their career. Really, I don’t see the point in complaining. If the only role you can play well is a black dude, you’re never going to get ahead in this town, and you should just accept it.
+ - Sometimes you just gotta use what God gave you to the best of your abilities.
+ - After all meat is meat. I don’t understand why so many people are bithing about it. It’s very healthy and contains lots of vitamins.
+ - My dog has a cough. If you’ve never seen a dog with a cough, I recommend trying to find one. It’s hilarious.
+ - Well I don’t like to think too far ahead because it scares me a little to think of what this world will come to after I’m gone, but I suppose life will have to go on, right? At least everyone will still be able to watch reruns of Scrubs.
+ - The success of ‘Scrubs’ allowed me to pursue anything I felt passionately about without having to worry about money. It allowed me to spend my summer work shopping my show at a nonprofit theater.
+ - When you were a kid and the circus came to town it was awesome to see these little creatures, but these things go out of fashion, like polyester blazers with rolled up sleeves. We don’t have to suffer them anymore so why are there all these little people running around?
+ - It’s hard for me not to be extraordinarily cute. I had to fight it.
+ - Well, you need to have at least one black friend, otherwise people think you’re racist.
+ - I have a great relationship with my parents. I have not been on lithium.
+ - Over half a century on and they’re still complaining about it. Compare it to the fact that Garden State didn’t win an Oscar and they seem a little petty if you ask me. I guess that just goes to show what kind of people they really are.
+ - I’m not the kind of person who digs through things other people have thrown away.
+ - I mean, I know thousands of people died and everything, but if it happened today, there’s just no excuse. They’d be much safer inside a movie theater watching one of my movies instead of burning alive in a collapsing skyscraper.
+ - I’m by no means condemning prescription medicine for mental health. I’ve seen it save a lot of people’s lives.
+ - Working on ‘Scrubs’ made me feel guilty because I realized that if I had decided to become an actual doctor, instead of just playing one, I could probably have found a cure to cancer within five years.
+ - I really like just super dry comedy.
+ - I don’t think restaurants should refuse to serve minority people. They are quite tasty when prepared correctly.
+ - When I was told they wanted the show to be about doctors, I was a bit reluctant to sign on, you know? I thought, why have a show about doctors when we could have a show about the real heroes, you know, like me?
+ - Put God and me in a cage, what do you think who will win. God, because I created him.
+ - I mean, personally, I would have had no problem surviving. Come on, how hard is it to swim?
+ - A kid came up to me the other day and said, ‘Hey, you’re the guy on Scrubs!’ Kid, I am Scrubs, and don’t you forget it.
+ - I think sports are very beneficial in the fight against obesity. I remember playing little league – I was the best person on the pitch by a long shot. It was only last weekend actually, I think I have some photos of it if you’re interested.
+ - I can’t say I agree with something that takes the focus away from me.
+ - That Hugh Laurie show is nothing but Scrubs fan fiction.
+ - I want to take piano lessons, I want to study at university, I want to travel, I want to do other parts, make another movie.
+ - I love the holiday season, almost as much as I love touching myself in front of orphans.
+ - Its not that I’m in love with myself, I’m just trying to pick up everyone else’s slack.
+ - I think a big part of being a success is confidence. Just look at me, I know I’m successful, and I am.
+ - Every time I see a child walking down the street I like to trip them. While they look for their missing teeth, I personally remind them that no matter how hard they try I will always be better than them.
+ - At this point I feel like I could go out and accomplish anything. I’d just love to see Will Smith’s face if he found out I, Z-Braff, have the number one rap album in the country. That’d show that no-talent uncle tom.
+ - Most people just aren’t grateful for the lives they have, and it really saddens me. For instance, I said ‘hello’ to a man the other day, and he didn’t even recognize me. It just really saddens me.
+ - I’m kind of jealous of the life I’m supposedly leading.
+ - I don’t want to be one of those guys, but Snape DOES kill Dumbledore.
+ - Women are like parking spots, the best ones are handicapped.
+ - Im just not really attracted to black chicks.
+ - Probably the most memorable even of my life is when I was born. It really made me who I am. If I die, I hope to go out the same way I came in, but I don’t think my mother would be into that.
+ - I wouldn’t call myself a modern Shakespeare, but Shakespeare was probably to his generation what I am to mine.
+ - A child’s death is really of less value than an adult’s. I mean, what could you really accomplish in a year? Not much, and that’s not even talking about, you know, pay-wise.
+ - I don’t think it’s that bad, I mean, I love people following me around and helping me do stuff.
+ - I mean, what’s eleven million people now days?
+ - My mother’s a psychologist, my stepfather’s a psychologist, my stepmother is a therapist and my dad’s a lawyer. So it was all prominent in my life. I don’t know anyone who doesn’t know someone on some form of prescription medicine.
+ - It blows my mind that there are people out there who deny the holocaust. Why would you ever deny such a great achievement. It’s like denying the cure for polio or something.
+ - I mean, some people accuse me of being racist. I’m totally not, I’m just better than everybody else.
+ - I never looked at bread the same way again.
+ - The fact that ‘Scrubs’ is so popular in Israel is very important to me. I feel like I’m helping to cancel out the thousands of years of oppression the Jewish people have suffered.
+ - When I let some girl take me in her mouth I think this is what Jesus must feel like during communion.
+ - If it were up to me, it’d be outlawed. I mean, come on. Zach Braff was born streamlined, and that’s how it should stay!
+ - I have no desire to make money off musicians. I just want to promote them because I want to share music.
+ - Turning water to wine? I mean c’mon, that’s stupid. They should have let me write the bible.
+ - I figure it this way – if a woman claims she didn’t want me to fudge her, then you already know she’s a liar. So what the hell’s the point of a trial, y’know?
+ - Bigger than the Beatles? Well, how many grammys did they win? Exactly, none, yet I have one, and I’ve never even released a CD.
+ - I’m pretty sure Africa was made up by the media to scare people. I mean, I’ve never seen it. Have you? I didn’t think so.
+ - I definitely try to play a common man in my roles so people can identify with my characters, but the truth of the matter is that it doesn’t really matter what I do or my lines are, I’m still Zach Braff, and people know I’m better than them.
+ - It’s just Gods way of getting babies to heaven faster!
+ - I think there are bound to be obstacles in any path to success. I mean, I’m Jewish, and there’s nothing I can do about that. Instead of sitting around and feeling sorry for myself, I got over it and did something with my life.
+ - I don’t care about image and all that nonsense. I’m in sweat pants every day. I don’t play the game at all.
+ - Yea, I had a dream too. Looks like mine came true.
+ - I’m always being told by directors that I add chemistry to scenes, so I mean how difficult could it be?
+ - Sure, they are the future of our world. Nike and Reebok need more factory workers every day.
+ - I’m not an hour late. You guys were just an hour early.
+ - If God wanted women to be treated equally to men, he’d have given them penises.
+ - Actually when I gave out the script, I gave it with a CD of all the music I wanted to put in the movie, and again, we never thought we’d get all that music.
+ - You don’t need an alarm clock when you sleep with 20 models a night, one of those broads’ll figure out that they better make breakfast in bed or I’ll kill all of them.
+ - That cyclone in Burma? That was just me doing the dance to that annoying ass song...
+ - Women have the right to choose what do with their own bodies. They can take it in the cooch or in the pooper. But that’s where their right to choose stops, in my opinion.
+ - I don’t even like the show that much, I mean, it’s about doctors. It’s not like doctors are as important as actors anyway, I bet I’ve saved more lives with my acting talent then any doctor has.
+ - Sure, it was terrible and all, but you have to ask yourself: If the whole city was flooded, why couldn’t they just swim to safety?
+ - Somebody approached me about writing a biography on me, I told them they were too late.
+ - They don’t know I’m staring, what does it matter if I keep on doing it?
+ - I’m a film geek man. I love toys. I love everything in filmmaking, so for me to just be around this technology is just so cool to watch it being used for the first time, some of the stuff.
+ - One time a reporter asked me what my worst quality was. I looked him in the eyes then punched him in the face. I kind of felt bad about it later, but he didn’t need to be rude.
+ - It raises several serious questions. For example, how can there possibly be more than one person as awesome as me?
+ - Now that ‘Scrubs’ is over, people seem to feel more comfortable telling me that I was a total douche to them for the past 8 years. And the whole time I’m thinking, ‘Who ARE you?’
+ - I guess sometimes God just needs to laugh.
+ - I always encourage over-tipping if you can afford it because share the wealth.
+ - I didn’t necessarily have a total idea when I was writing the movie of where everything was going. I just wanted to have really realistic dialogue and write like people I knew talked. I tried to keep it very real.
+ - I really do take more vacations than the president. You can quote me on that.
+ - People still make New Year’s resolutions? Wow. I figured those were pointless once I perfected myself by directing, writing, and acting in Garden State. I guess it makes sense, though. It gives people a chance to hope that they can become as great as me someday.
+ - I know the Bible isn’t real because it never once mentions me.
+ - If I wasn’t an actor? Hmm, I’d probably be a serial killer. I’m just so damn likeable, no one would ever suspect me.
+ - I blame Walt Disney; well he has to find voice actors better than me somehow doesn’t he?
+ - Being around blind people is always a little frustrating to me because I know they have no idea how handsome I am.
+ - Now, I’m not going to be misquoted on this like I have numerous times before, so I’ll be quite clear. I’ve never said hitler was my hero, just that if he had focused on more than one race he would have had the right idea. Try to turn that one against me.
+ - When you win your first Grammy, it’s true, you really want to thank all the little people.
+ - Michael Eisner contacted me once and asked me if he could change the name of Disneyland to ‘Braffland.’ I said no, because whenever I go to Disneyland there’s always fat people everywhere wearing tight clothes. Disneyland, frankly, has a lot of improving to do before it gets my namesake.
+ - It really is fascinating stuff, and I’ve picked it up on Scrubs. Memorizing lines is at least as hard as studying a text book, I mean, by this point I know about as much as most ‘real’ doctors.
+ - When I was little I always wanted to drive a train. That, and become a baker.
+ - The Jews are just clumsy bakers.
+ - I am really driven, but my drive doesn’t effect the conversations I have in my head about life, and my worries and fears and insecurities.
+ - It’s always weird being the only white person in a group. It feels like everyone’s looking to me for guidance.
+ - For me, acting in scenes with other people is like playing soccer with a bunch of legless five year olds. It’s not really fair to them, but what else can I do, you know?
+ - My tears cure cancer too, it’s just that I laugh at cancer patients.
+ - You know I was just taking a dump one day, and then as I sat there I realized, I really do deserve better.
+ - It’s a give and take relationship with my fans. They give me love and adoration, and I take it from them.
+ - People often ask me when there’s going to be a Mrs. Zach Braff. It’s a confusing question sometimes because many people don’t realize that my mother is named Mrs. Zach Braff.
+ - I mean, I’m a writer, actor, AND director. Not to rock the boat or anything, but compare that to a carpenter and, in the end, who is the better man?
+ - It’s funny when I read the tabloids and they’re reporting on only a fraction of the life I’m leading.
+ - People always tell me I should run for president, but I don’t think they’d give me enough time off to make my films.
+ - I think in a play it’s wise to just sit back and watch other actors and be able to shape it from the audience.
+ - Of course I don’t use my A-material, it doesn’t matter if they think I’m funny or not because they won’t be thinking anything pretty soon anyways, if you caych my drift.
+ - Yeah, I’ve banged some female costars. I swore I’d never tell their names, so instead I’ll present some anagrams: Sahar Clahke and Haether Gharam.
+ - Let’s face it, it’s only called Scrubs because I’m saving ‘Zach Braff’ for my autobiography.
+ - So, yeah, I mean, there is something universal about that feeling – that 20-something, what the hell am I going to do with my life, I’m lost and my parents are freaking me out, and what’s the point? Every generation has a way of making that unique, but there are certain universals of that feeling.
+ - It’s trust issue more than anything. I mean, whats stopping them from teaming up, dressing up like a really tall person in a trenchcoat, and then BAM. They sneak out with all your furniture.
+ - There is one person I can think of better than me. And that’s Zach Braff. What a cool guy.
+ - I always wanted to direct movies. That’s what I set out to do. When I was a little kid I just dreamed of making movies, and I went to film school.
+ - I never really understood all the hype, until I got one of my own.
+ - I think a lot of people are drawn to seeing people that want to be better. We see it in ourselves.
+ - If a benevolent God exists, so does reincarnation. He wouldn’t send me here just once.
+ - You know, I’ve occasionally tried to watch other shows besides Scrubs, but comparing them is a bit like me competing in the special Olympics. Obviously I would win without contest, but the point is that they are trying their best.
+ - Actually, I stopped looking at myself in the mirror years ago. I wasn’t making it to work on time.
+ - I love ‘Scrubs.’ It’s the best day job in the world.
+ - If we’ve learned anything, it’s that the combination of yellow smiley faces and blue polyester vests are irresistible to the inbred.
+ - When you’re the director and the writer, you never have to remember your lines, and there’s no one to call you on it. On Garden State I did different lines on every take, just making crap up. And it was great each time.
+ - I really don’t give a care, I’m going to live for ever.
+ - I find my movie props in my neighbors houses.
+ - I mean, nobody’s ever thrown a big rock at me or my friends, but we’re all pretty tough guys and could probably handle it.
+ - Am I really gonna deny someone the opportunity of a lifetime just because they met me 5 easters early?
+ - It used to be that you came out of school, and you got married – those who were going to get married. But my peers are getting married in their early 30s, so now there’s like this extra 10 years of that angst.
+ - I’m not sure when or why the tabloid angle on me was decided that I am a cad. I would have much rather it had been that I am secretly a dentist or that I love soup.
+ - So I was at the gas station the other day, and I saw that there was braille on the pumps. I don’t see how they can cater to blind drivers. I mean, there are certain rights you should lose once you lose what makes you a person.
+ - I don’t think it’s a black and white issue. If a man’s family is starving so to speak, I don’t think I’ll hold it against him for stealing a loaf of bread.
+ - It’s just people trying to get on TV, not like it’s really going to do them any good since people can just watch me.
+ - I think they’re bogus, honestly. How utter garbage like Crash and Million Dollar Baby can win best picture, where true works of art such as Garden State go untouched is beyond me. It just proves how close-minded America really is, and I refuse to take part in it.
+ - People keep asking me whether I’m going to vote for Obama or McCain in the election. But I’m like, why bother? There will never be another leader as good as he was.
+ - I had a very funny family.
+ - They say the number on rule in showbusiness is not to work with animals. I guess I’m above the rules because I put up with that for seven years.
+ - Some people just can’t handle that they will never be a better actor than me.
+ - Prohibition didn’t work, so why should emancipation work? I think we should just stick with a system that has proven to be effective.
+ - Lots of people were giving me flak when I made the deal to do the very last season of Scrubs for $350,000 an episode. When really I’m the one that’s being cheated, because the writer’s strike is keeping me from all the money that I could be making. I need to eat, too.
+ - Look on the bright side; that’s one bullet that’s not going to hit me.
+ - The way I write is that I’ll actually have a conversation out loud with myself. In a weird way, I just kind of get schizophrenic and play two characters.
+ - I really don’t know why we need a whole month dedicated to blacks. It’s not like they’re the only ones that suffered. I mean, what about us whites? We’re the ones that have to deal with these monkeys everyday, but you don’t see us demanding a whole month to ourselves.
+ - My co-stars aren’t bad actors, but they’re no Zach Braff.
+ - I’d never hit a woman unless I was already out of Viagra.
+ - It’s really hard to find parts that challenge me as an actor these days. At this point in my career, I feel like I can just sleepwalk through most of my roles and still do a better job than 90 percent of the actors out there.
+ - I’d like to think that my scripts are more significant than maybe the Bible or the book that the Jews use, whatever it’s called. And that’s only when I’m having an off day.
+ - The greatest charity you can contribute to is yourself. Instead of spending a dollar to help feed hungry children, why not spend that dollar on hair gel so you can get the perfect cowlick?
+ - Honestly, the only way Garden State could have been better was if I played every character. I’m awesome.
+ - It’s a good thing I’m a professional and could see the pure genius talent behind the raw sexual beauty.
+ - I’m a busy guy; I just get a lot of people that sound like me to go out and visit them. They don’t know the difference and, let’s face it, they aren’t going to be paying to see my movies anytime soon.
+ - I think the Bible should be re-written for today’s society. We can call it ‘Scrubs.’
+ - Some people just don’t want to put in the effort. I just show up and say some lines and I’m famous. Anyone living below the poverty line just needs to shape up or be shipped out, you know?
+ - I was kosher until I had my Bar Mitzvah, and I parlayed officially becoming a man into telling my father I wanted to eat cheeseburgers.
+ - The problem with doing commercials is that the only thing good enough for me to sell is myself, and I stopped doing that once I kicked my coke habit.
+ - I’m not lazy, I drive everywhere myself, the dog could’ve learned something from me.
+ - Everyone has a warped vision of Hollywood and what success in Hollywood is like.
+ - One time this guy on the street wanted me to give him a medical opinion, because I’m a doctor on TV. I’m also a real doctor. But I’m also Zack Braff, so I kicked him in the groin.
+ - I like to think of myself as the Chris Benoit of the movie industry, capable of taking any picture and carrying it to box-office success. Take Garden State, without me that would have just been two hours of Portman doging.
+ - I’ve turned down a lot of proposed scripts for Scrubs episodes, mainly ones with AIDs patients. It sickens me, really. If you don’t want AIDs, don’t be a ice cream man. Or African. I’m neither and I’m fine.
+ - Sometimes I regret not being Catholic. I think I’d make a pretty good saint.
+ - The thing about hitting kids is, think about if you were doing the same thing to another adult. Hitting your kid is really the same as hitting your employee or wife, and the issue become pretty clear when you think about it that way.
+ - I certainly do not consider myself the next Jesus. I’d say he was more of a precursor to Zach Braff.
+ - I’ve always wanted to have kids of my own, it’s just tough finding a woman I wouldn’t be wasting my DNA on.
+ - Yea, I’ve got a dream too. It involves time-travel and a rifle.
+ - You know, I think there should be a Zach Braff Day. We could have it on December 25th and then people can decide whether they want to celebrate me or Jesus. If you ask me, the choice is pretty obvious.
+ - I’ve been doing som jogging at home recently and every time I try the distance I end up beating his time with like three or four seconds.
+ - In April 1975 I was born and the Vietnam War ended. I could not let any American die in war before seeing an episode of Scrubs.
+ - I was originally set to star in ‘The Bourne Identity,’ but I found it too difficult to even pretend to forget who I was.
+ - People have called me fake, but personally, I don’t think I’m fake because I’m so insincere.
+ - In New York, we tip everyone. We tip doormen, we tip cab drivers, and we tip bartenders at the bar. You’ll get quite an evil eye if you don’t leave a tip at the bar.
+ - The only women I publicly date are those who have a higher IMDB rating than me.
+ - I’ve never had much sympathy for orphans, I mean, when I was their age I would have killed to have no parents to make me clean my room and stuff.
+ - You want to know the secret of my success? Let me tell you about eugenics...
+ - There’s a lot of gray area in the law. Who can say, without a doubt, that I was in the wrong?
+ - The biggest problem I had with starring in Scrubs were the black doctors. I just had to keep telling myself this show was satire.
+ - People compared Garden State to the Graduate, but when was the last time you saw Dustin Hoffman doing what I do?
+ - I’m not saying eating babies should be legal, but when they’re so delicious, what’s the harm in it? I don’t know what tastes better, their innocence or their gooey rib butter.
+ - I really couldn’t say how famous I really am, that’s for the history books to decide. But I’ll probably be pretty up there.
+ - I mean, so what if it’s a little dangerous? A one-armed kid is comedy gold.
+ - It depresses me when people expect me to be like the characters I play on film. I’m not some whiny loser punk, I’m a man’s man.
+ - My favorite meal? It has to be furburgers everyday in the morning.
+ - I know every politician spins the truth a little.
+ - I don’t have anything against this Jesus guy, but has he written, directed, and starred in his own movie?
+ - I did theater for a few years while I was in New York, but it was tough having to perform scripts worse than what I knew I could write.
+ - If Democrats want to start winning elections in this country, they’re going to have to start connecting with voters as well as I connect with my fans.
+ - I heard about the Dalai Lama, you know and I thought to myself, why not me?
+ - I procrastinate so much and I get distracted by anything.
+ - I just don’t see how anyone can hate America. I mean, crap, I live there. What more do you need?
+ - Eight gold medals? If I wanted I could make a movie about me winning nine gold medals. Now that’s real power.
+ - My job as an actor has inspired generations of children to become doctors. My job as a writer has opened up the minds of millions. My job as a director has produced masterpieces that will be taught in film school for ages.
+ - I was originally casted to be in the Superman movie but I read the script and realized that it was mysteriously similar to my screenplay for Zach Braff the Movie.
+ - Yeah, I saw the guy running out of the building carrying a rifle, I just didn’t say anything to the cops because I was so happy that I wasn’t the one who got shot.
+
+261 quotes

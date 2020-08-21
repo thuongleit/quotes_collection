@@ -1,0 +1,47 @@
+ - I believe in public services.
+ - I want to see genuine talent rewarded.
+ - When you look at the things people are really fed up with, like the collapse of the pension system, like the failure to get money to the frontline of the health service, Gordon Brown is more responsible for that than any other politician including Tony Blair.
+ - The British people think that if someone is disabled, then they should get all the care and support that we can offer.
+ - Autism is a very serious condition.
+ - Well look, no one takes pleasure from people making money out of the misery of others, but that is a function of capitalist markets.
+ - The positive news is that the British economy is continuing to grow and is creating jobs. And it is positive news too that at a time of real international instability we are a safe haven in the storm.
+ - I believe that I’m entitled to regard my pre-political life as off-limits in terms of what can be looked at and judged.
+ - I reject absolutely the idea that people should know their place, and know their class.
+ - You know the illusion of the cheap money is over and now Britain has to go out there and graft and earn its way and create wealth and prosperity in a very competitive world.
+ - Just as we should never balance the budget on the backs of the poor, so it is an economic delusion to think you can balance it only on the wallets of the rich.
+ - I did meet Mickey Mouse in California, and he seems to be writing the Labour party’s economic policy at the moment.
+ - It is not fair that people who are born in the UK to parents who are domiciled here, can later in life claim to be non-doms and live here, it is not fair that non-doms with residential property here in the UK can put it in an offshore company and avoid inheritance tax.
+ - Everyone in our society has had to make a contribution towards dealing with the debts.
+ - A generous basic state pension is the least a civilized society should offer those who have worked hard and saved through their whole lives.
+ - Printing money is the last resort of desperate governments when all other policies have failed.
+ - I get a lot of letters from people.
+ - Tax cuts should be for life, not just for Christmas.
+ - The rise in world oil prices has been larger than anyone forecast.
+ - I didn’t come from a traditional Tory background; it was urban and metropolitan.
+ - Every day as Chancellor I see alerts telling me of risks around the world.
+ - Well British pension funds have not been investing the savings of British people in British infrastructure.
+ - I would say I have taken substantive action to make things easier for people.
+ - I understand the damage the expenses crisis has done to Parliament, and the paramount importance of restoring trust in our politics.
+ - Believe me, I understand that most higher rate taxpayers are not the super-rich.
+ - Of all the public services, education is the one I’m most interested in. You get a more dynamic economy, you deal with most social problems, and it’s morally right.
+ - The Conservative party, the modern Conservative party, is on the side of people who want to work hard and get on.
+ - We need to think deeply about whether we can sustain banks that are not only too big to fail, but potentially too big to bail.
+ - The Conservative Party mustn’t sound like the old man on the park bench who says things were better in 1985, or 1955, or 1855.
+ - I think you can look at the British economy with confidence.
+ - No other chancellor in the long history of the office has felt the need to pass a law in order to convince people he has the political will to implement his own Budget.
+ - If we don’t get a grip on government spending, there will be no growth.
+ - I think the British people have a strong sense of what is fair.
+ - Cutting budget deficits can never be just an exercise in economics.
+ - If you want to change the way your banking system is regulated, if you want to learn the mistakes of what’s gone wrong, then you have to change your government.
+ - You cannot tackle Britain’s debts without tackling the unreformed welfare system.
+ - I was shocked to see that some of the very wealthiest people in the country have organised their tax affairs, and to be fair it’s within the tax laws, so that they were regularly paying virtually no income tax. And I don’t think that’s right.
+ - The foundations of a strong economy don’t rest alone on the decisions of Chancellors or the spending programmes of government.
+ - I want Britain to be a global financial centre but I want it to be properly regulated.
+ - Britain needs a simpler tax system which is simple to understand, where there are no loop-holes, where the very rich do not avoid tax by employing expensive accountants.
+ - If you’re looking for ways to cut waste in government, you can start with John Prescott.
+ - Well you know I’ve attracted a lot of criticism by, for example, suggesting that child benefit should be taken away from higher rate taxpaying families.
+ - Britain has no divine right to be one of the richest countries in the world.
+ - I have done everything I can to move Britain out of the financial danger zone.
+ - I want Britain to be the home of successful competitive and stable financial services.
+
+45 quotes

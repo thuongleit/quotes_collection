@@ -1,0 +1,57 @@
+ - Women speaking up for themselves and for those around them is the strongest force we have to change the world.
+ - Philanthropy is not about the money. It’s about using whatever resources you have at your fingertips and applying them to improving the world.
+ - A woman with a voice is by definition a strong woman. But the search to find that voice can be remarkably difficult.
+ - All lives have an equal value.
+ - If you are successful, it is because somewhere, sometime, someone gave you a life or an idea that started you in the right direction. Remember also that you are indebted to life until you help some less fortunate person, just as you were helped.
+ - Take time to learn about the lives of women around the world-and try to play a small part in their fight to create the future they deserve.
+ - Connect deeply with others. Our humanity is the one thing that we all have in common.
+ - Bill and I both firmly believe that even the most difficult global health problems can be solved.
+ - All women, everywhere, have the same hopes: we want to be self-sufficient and create better lives for ourselves and our loved ones.
+ - If you don’t have an effective teacher in front of the classroom, you won’t change the trajectory for students.
+ - Make sure you continue to trust what you know now about yourself and stay true to what you believe in.
+ - My background was computer science and business school, so eventually I worked my way up where I was running product groups – development, testing, marketing, user education.
+ - When we invest in women, we invest in a powerful source of global development.
+ - As a parent, the responsible thing to do – if you love your child – is to vaccinate your child.
+ - Women and girls should be able to determine their own future, no matter where they’re born.
+ - You can’t save kids just with vaccines.
+ - I’m wholehearted about whatever I do.
+ - I am inspired by the women I meet everywhere I go. They have to work so hard just to make sure their families survive, but somehow they stay optimistic and do everything in their power to make the future better than the past.
+ - Having children made us look differently at all these things that we take for granted, like taking your child to get a vaccine against measles or polio.
+ - If you want to lift up an economy in Africa, you basically start with the women.
+ - Kids are falling through the cracks and nobody notices it. That to me is what’s wrong with the school system.
+ - It’s important to remember that behind every data point is a daughter, a mother, a sister – a person with hopes and dreams.
+ - Vaccines are a miracle cure. Eight out of 10 children are getting vaccines.
+ - When girls are educated and free to pursue their passions, they contribute more to a thriving society. When women have a voice, they raise it to demand a life that is greater than what they’ve been told they have a right to expect. And these demands change the future for everyone.
+ - When we invest in women and girls, we are investing in the people who invest in everyone else.
+ - I felt suicidal. I couldn’t stop crying. I remember thinking, wouldn’t it be great if the car crashed and I died?
+ - One life is worth no more or less than any other.
+ - If we don’t empower women, we don’t allow them to unlock the potential of themselves and their children.
+ - We look in our own backyard and say, ‘How do we help at-risk families, at risk youth? How do we think through some of the problems affecting the Pacific Northwest and make some change there?’
+ - You are indebted to life until you help some less fortunate person, just as you were helped.
+ - Sometimes it’s the people you can’t help who inspire you the most.
+ - What great changes have not been ambitious?
+ - Everyone agrees that the failure of our high schools is tragic. It’s bad business, and it’s bad policy. But we act as if it can’t be helped. It can be helped. We designed these high schools; we can redesign them.
+ - The premise of this foundation is one life on this planet is no more valuable than the next.
+ - Helping people doesn’t have to be an unsound financial strategy.
+ - We started our foundation because we believe we have a real opportunity to help advance equity around the world, to help make sure that, no matter where a person is born, he or she has the chance to live a healthy, productive life.
+ - In the developing world, it’s about time that women are on the agenda. For instance, 80 percent of small-subsistence farmers in sub-Saharan Africa are women, and yet all the programs in the past were predominantly focused on men.
+ - I’m happy we have three healthy children and we’ll stay with three healthy children.
+ - Birth control has almost completely and totally disappeared from the global health agenda, and the victims of this paralysis are the people of Sub-Saharan Africa and South Asia.
+ - I learn in a different way. I learn experientially.
+ - Government funding that’s coming from the United States is making a huge difference on the ground in the developing world. It’s really palpable – it’s making a huge difference saving lives.
+ - It is still just unbelievable to us that diarrhea is one of the leading causes of child deaths in the world.
+ - I care much more about saving the lives of mothers and babies than I do about a fancy museum somewhere.
+ - That’s universal – we all want to bring every good thing to our children. But what’s not universal is our ability to provide every good thing.
+ - When we better understand the realities of these women’s lives, we are able to design and deliver solutions that are more useful to them.
+ - Women around the world should have a tool that helps them plan their pregnancies.
+ - I think it’s very important that we instill in our kids that it has nothing to do with their name or their situation that they’re growing up in; it has to do with who they are as an individual.
+ - Our desire to bring every good thing to our children is a force for good throughout the world. It’s what propels societies forward.
+ - I think the Americans need to understand that a lot of times the children are bored in school, and that is why they are not staying in.
+ - But iPods and iPhones are two things we don’t get for our kids.
+ - I realized that the only way to get into a good college was to be valedictorian or salutatorian. So that was my goal.
+ - After a number of years dating, we decided we were good partners.
+ - Microsoft certainly makes products for the Macintosh.
+ - We have to be careful in how we use this light shined on us.
+ - You can have the best vaccines for a woman or her child, but if you can’t get her to come and get them then they won’t work.
+
+55 quotes

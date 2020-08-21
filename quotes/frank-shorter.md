@@ -1,0 +1,49 @@
+ - You have to forget your last marathon before you try another. Your mind can’t know what’s coming.
+ - Numbers don’t lie. You always seem to remember your workouts as being a little better than they were. It’s good to go back and review what you do.
+ - Running with others can help get you out when you might otherwise blow it off.
+ - Hills are speedwork in disguise.
+ - Why couldn’t Pheidippides have died at 20 miles?
+ - How did I know you ran a 4:30 mile in high school? That’s easy. Everyone ran a 4:30 mile in high school.
+ - I started in law school in ’71 and graduated in ’74. So I was training for the Olympics, running or averaging around 20 miles a day and going to law school full time.
+ - Be willing to move forward and find out what happens next.
+ - You don’t run 26 miles at five minutes a mile on good looks and a secret recipe.
+ - When you are caring about your children perhaps you always have to remember at what point you can become over involved because of something you need rather than something the child needs.
+ - A good athlete always mentally replays a competition over and over, even in victory, to see what might be done to improve the performance the next time.
+ - I think it is that parents just don’t kick their kids out the door as much as they used to. I think the demise of sandlot sports has had a lot to do with it.
+ - I think he had a wake-up call. It’s a different kind of race, and I think maybe he didn’t take it quite as seriously as he might have, but you can bet he learned a lot of lessons.
+ - Intervals and other types of speed work are essential to improve running speed.
+ - It is just called Continuing Legal Education. You can go to lectures, you can even listen to tapes on airplanes – they want you to stay current. So you do have to stay current to maintain your license even if you are not practicing.
+ - You can actually suffer a little bit more going slowly than when you’re going really fast. A faster marathon might even be easier than a slow one, in terms of what it takes out of you mentally.
+ - Right now, after having had back surgery, I am finally back to running again.
+ - Being in school is the best place to be if you are an athlete because you can structure your own time.
+ - To put it another way, Michael Jordan was a gym rat.
+ - The irony of that is, what makes it kind of ironic, is when you do become successful as a professional athlete in particular, a lot of the young children who are emulating these stars do have a different perspective.
+ - I think the secret of my light, quick, foot strike is related to the fact that I have fragile feet.
+ - The marathon is all about energy management. I had planned to run it like a track race with strategic surges to blow up my competitors by putting them into oxygen debt, so that is the way I prepared.
+ - There’s always the feeling of getting stronger. I think that’s what keeps me going.
+ - The weather is perfect. The gods are shining on us.
+ - As I’ve been able to once again gain the benefits of speed work, I’m enjoying my running more and more.
+ - My goal is to break three hours in a marathon.
+ - Yes, winning the gold medal was undoubtedly the biggest day of my career – mostly because I won the way I had prepared to run it. It was a totally satisfying experience.
+ - My goal has always been to slow down as slowly as possible. It’s as simple as that.
+ - For the novice runner, I’d say to give yourself at least 2 months of consistently running several times a week at a conversational pace before deciding whether you want to stick with it. Consistency is the most important aspect of training at this point.
+ - I want my time spent running to serve as a reward.
+ - You have to know your body. It’s part of the beauty of the training process, and once you’ve determined how much your body and mind can take, you can then begin to reach your potential.
+ - Three half-mile repeats on the track at 5-K race pace with a short recovery jog in between shouldn’t scare anyone away-and it will improve your speed.
+ - Running a marathon is just like reading a good book. After a while you’re just not conscious of the physical act of reading.
+ - I admire runners older than I – they are now my heroes. I want to be like them as I grow older.
+ - The potential elite runner must realize that hard means hard, easy means easy and they must patiently seek out what combinations work for them. They have to learn to be persistent and patient with their training and racing.
+ - Experience has taught me how important it is to just keep going, focusing on running fast and relaxed. Eventually it passes and the flow returns. It’s part of racing.
+ - Again, racing for me was about energy management.
+ - I also held several masters running titles.
+ - I was actually going to law school in 1972.
+ - So, in a way I was hedging and saying that if the Olympic stuff doesn’t work out at least I can be a lawyer.
+ - In other words we have marketed our way into this health crisis.
+ - It is not the time spent with the child at their activity that is going to produce the highest level athlete. It is in supporting the child in an organized activity so the child can find what they truly like to do and let them go.
+ - You train best where you are the happiest.
+ - Because running fast is more fun than running slow.
+ - There’s obviously some validity to it. But I think it also points out that you obviously can do it on your own because people have been doing it long before they had the stuff.
+ - I plan to be running as long as I can and have no plans to stop.
+ - When you first run up First Avenue in New York, if you don’t get goose bumps, theres something wrong with you.
+
+47 quotes

@@ -1,0 +1,46 @@
+ - Time is money. Wasted time means wasted money means trouble.
+ - Don’t forget to tell your favorite people that you love them.
+ - There’s nothing like real love. Nothing.
+ - Good luck needs no explanation.
+ - Be brave and clear. Follow your heart and don’t be overly influenced by outside factors. Be true to yourself.
+ - I ran for Congress, just once.
+ - I’ve always been bossy.
+ - I stopped believing in Santa Claus when I was six. Mother took me to see him in a department store and he asked for my autograph.
+ - Some people liked Rudolph Valentino. I liked Rin Tin Tin.
+ - I’ve been so blessed. If someone asked me whom I would choose to be if I could come back in another life, I would have to say Shirley Temple Black. I cannot think of a more interesting life to ask for.
+ - Visiting old haunts is hard on memory. Things shrink, change, and disappear.
+ - We salute her for a life of remarkable achievements as an actor, as a diplomat, and most importantly as our beloved mother, grandmother, great-grandmother and adored wife for fifty-five years of the late and much missed Charles Alden Black.
+ - By the time I was 4, I knew how to hit my mark.
+ - My Chicken can do a special trick! “And what is that?” She can lay an egg! “And what’s so special about THAT?!” Well, Can YOU lay an egg?
+ - Nothing crushes freedom as substantially as a tank.
+ - I’ve led three lives: the acting part, wife and mother – which is a career – and international relations. I’m proud of my career, the first one, and I’m proud of the other two, too.
+ - Make-believe colors the past with innocent distortion, and it swirls ahead of us in a thousand ways – in science, in politics, in every bold intention.
+ - Our whole way of life today is dedicated to the removal of risk. Cradle to grave we are supported, insulated, and isolated from the risks of life – and if we fail, our government stands ready with Bandaids of every size.
+ - I liked work shoes and big, working-class hands. The stars would come and go, but the crew on my movies was my extended family.
+ - If you hear someone scream, you shouldn’t close the drapes. You should help. You’ve got to try.
+ - Politicians are actors, too, don’t you think? Usually, if you like people and you’re outgoing, not a shy little thing, you can do pretty well in politics.
+ - Sunnybrook Farm is now a parking lot; the petticoats are in the garbage can, where they belong in the modern world; and I detest censorship.
+ - I don’t like to do negatives. There are always pluses to things.
+ - Any star can be devoured by human adoration, sparkle by sparkle.
+ - Many people consider me an old friend.
+ - My mother made it seem perfectly normal for thousands of people to be cheering me, as if there was nothing special going on. I thought all children must live as I did.
+ - I was in Vienna in August 1968 for a meeting of the International Federation of Multiple Sclerosis Societies, of which I was co-founder, and we wanted a 20th country to join. They asked for a volunteer to go to Prague to get Czechoslovakia to do it, and my hand always goes up first.
+ - I have one piece of advice for those of you who want to receive the Lifetime Achievement Award: Start early!
+ - When I was 14, I was the oldest I ever was. I’ve been getting younger ever since.
+ - Dr. Kissinger was surprised that I knew where Ghana was.
+ - I have always told anyone who would listen that I was available for more public service.
+ - I had a very close family and I couldn’t get away with anything.
+ - Intentions often melt in the face of unexpected opportunity.
+ - In the world of movie personalities the distance between popularity and politics is short.
+ - I work a seventeen hour day, and I’m personally responsible for 108 staff members in the embassy.
+ - Won’t the new ‘Suggested for Mature Audience’ protect our youngsters from such films? I don’t believe so. I know many forty-five-year old men with the mentalities of six-year-olds, and my feeling is that they should not see such pictures, either.
+ - Long ago, I became more interested in the real world than in make-believe.
+ - There are many of us who should be in a position to bring peace to the world.
+ - I guess I was an early method actress. I would go to a quiet part of the sound stage with my mother. I wouldn’t think of anything sad, I would just make my mind a blank. In a minute I could cry.
+ - By the time I got to the Fox studio for my first major film, I knew how to hit a mark. I knew how to memorize lines. I knew how to pay attention.
+ - When you’re a performer, you have to please a large audience. And when you’re in politics, you have to please a large audience, too.
+ - Movies mirror the times, they do not create them.
+ - Delay and indecision are first weapons in the armory of moviemakers.
+ - You’ve got to S-M-I-L-E To be H-A-Double-P-Y.
+
+44 quotes

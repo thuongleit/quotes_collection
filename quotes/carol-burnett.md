@@ -1,0 +1,59 @@
+ - Only I can change my life. No one can do it for me.
+ - When you have a dream, you’ve got to grab it and never let go.
+ - Comedy is tragedy plus time.
+ - I love to write. I have always loved writing. That was my first love.
+ - We don’t stop going to school when we graduate.
+ - Words, once they are printed, have a life of their own.
+ - I think we’re here for each other.
+ - Because nobody goes through life without a scar.
+ - No one ever said life was fair. Just Eventful.
+ - You have to have faith that there is a reason you go through certain things. I can’t say I’m glad to go through pain, but in a way one must, in order to gain courage and really feel joy.
+ - Celebrity was a long time in coming; it will go away. Everything goes away.
+ - It’s almost impossible to be funnier than the people in Washington.
+ - You do have to love your kids enough to let them hate you. But it’s the disease that’s hating you, not them.
+ - I have a great memory.
+ - I don’t have false teeth. Do you think I’d buy teeth like these?
+ - People invite me to dinner not because I can cook, but because I like to clean up. I get immediate gratification from windex. Yes, I do windows.
+ - You have to go through the falling down in order to learn to walk. It helps to know that you can survive it. That’s an education in itself.
+ - I love the writing. I love the idea of typing and seeing it on the computer and printing it out myself and, you know, moving sentences around. I like that.
+ - What I like to write about is stuff I know. I don’t think I could write a novel. I don’t think I have it in me to come up with those kinds of characters.
+ - Adolescence is just one big walking pimple.
+ - My interesting diet tips are eat early and don’t nosh between meals. I mean, I can pack it away.
+ - Giving birth is like taking your lower lip and forcing it over your head.
+ - But I don’t begrudge anybody, because I know how hard it is to have that dream and to make it happen, whether or not it’s just to put a roof over your head and food on the table.
+ - I couldn’t get the laughter out of my head. It wasn’t career. It wasn’t even a choice. It was a calling.
+ - But I didn’t ask to have somebody nose around in my private life. I didn’t even ask to be famous. All I asked was to be able to earn a living making people laugh.
+ - It’s also selfish because it makes you feel good when you help others. I’ve been helped by acts of kindness from strangers. That’s why we’re here, after all, to help others.
+ - I always had a weak chin because we couldn’t afford to correct my bite, which could have been corrected with braces. So the chin was always weak. And I always was – kind of hated my profile. And I thought wouldn’t it be nice someday to feel the rain on your chin without having to look up.
+ - The audience is never wrong.
+ - I was once asked to do my Tarzan yell at Bergdorf Goodman, and a guard burst in with a gun! Now I only do it under controlled circumstances.
+ - I can’t tell a joke to save my soul. It’s just not my thing, though I love to listen to jokes.
+ - My grandmother and I followed my mother here, to a house a block north of Hollywood Boulevard but a million miles away from Hollywood, if you know what I mean. We would hang out behind the ropes and look at the movie stars arriving at the premieres.
+ - If someone tells you that you cannot do something and you believe it, they are right.
+ - I don’t eat much meat, fish, or poultry.
+ - In ’57, I got a job at the Blue Angel nightclub, and a gentleman named Ken Welch wrote all my material for me. I lived at a place called the Rehearsal Club that was actually the basis for a play called Stage Door.
+ - The first time someone said, ‘What are your measurements?’ I answered, ‘37, 24, 38 – but not necessarily in that order.’
+ - I wish my mother had left me something about how she felt growing up. I wish my grandmother had done the same. I wanted my girls to know me.
+ - I don’t remember a time when I wasn’t waiting for a scab either to grow or to fall off my knee.
+ - Have you noticed that all you need to grow healthy, vigorous grass is a crack in your sidewalk? Having a baby is like taking your lower lip and forcing it over your head.
+ - I had a good loud voice and I wasn’t afraid to be goofy or zany.
+ - As far as sitcoms go, I thought Jenna Elfman in ‘Dharma and Greg’ was a wonderful physical comedienne who had great timing.
+ - I liked myself better when I wasnt me.
+ - My grandmother and I saw an average of eight movies a week, double features, second run.
+ - I think the hardest thing to do in the world, show-business-wise, is write comedy.
+ - Daddy, when he drank, just became sweeter. There wasn’t a mean thought in his body. I’ve always said he was like a drunk Jimmy Stewart.
+ - I have always grown from my problems and challenges, from the things that don’t work out, that’s when I’ve really learned.
+ - I always felt that I was more of an actress than a – I can’t tell a joke to save my soul, but that I was a comedic actress.
+ - Well, I don’t know how astute I am, but I did want to be a journalist when I was growing up.
+ - I’ve always been able to recount things and I have a really good memory about dialog and what people have said before and this and that.
+ - Originally, I came from Texas, and we lived on – I guess you’d call it welfare, what we called relief.
+ - It costs a lot to sue a magazine, and it’s too bad that we don’t have a system where the losing team has to pay the winning team’s lawyers.
+ - No matter what, when you major in theater arts whether you want to write or be a director or design scenery or whatever, when you are a freshman at UCLA then – I guess it’s still the same way – you had to take an acting class.
+ - I always preferred working with somebody so I could look into their eyeballs and play tennis.
+ - When someone who is known for being comedic does something straight, it’s always “a big breakthrough” or a “radical departure.” Why is is no one ever says that if a straight actor does comedy? Are they presuming comedy is easier?
+ - What I do when I write is I just write the way I would tell it, so it comes out just exactly the way I would talk to you.
+ - I’m really not that funny in real life. But I am the best audience one could find. I love to laugh.
+ - You know, one wonderful thing that came out of my Enquirer experience is that, in my case, it was ruled tabloids are magazines. Which means they didn’t have the protection that a newspaper has.
+ - I never regretted turning down anything, I never regretted losing a job because I always felt something else was out there.
+
+57 quotes

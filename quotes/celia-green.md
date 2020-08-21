@@ -1,0 +1,29 @@
+ - A narrow mind and a wide mouth usually go together.
+ - Lack of clarity is always a sign of dishonesty.
+ - In an autocracy, one person has his way; in an aristocracy, a few people have their way; in a democracy, no one has his way.
+ - The psychology of committees is a special case of the psychology of mobs.
+ - Research is a way of taking calculated risks to bring about incalculable consequences.
+ - The remarkable thing about the human mind is its range of limitations.
+ - The way to do research is to attack the facts at the point of greatest astonishment.
+ - The human race’s favorite method for being in control of facts is to ignore them.
+ - That society exists to frustrate the individual may be seen from its attitude to work. It is only morally acceptable if you do not want to do it. If you do want to, it becomes a personal pleasure.
+ - I cannot write long books; I leave that for those who have nothing to say.
+ - Young people wonder how the adult world can be so boring. The secret is that it is not boring to adults because they have learnt to enjoy simple things like covert malice at one another’s expense.
+ - The human race has to be bad at psychology; if it were not, it would understand why it is bad at everything else.
+ - People having religions is an insult to the universe.
+ - It is easier to study the ‘behavior’ of rats than people, because rats are smaller and have fewer outside commitments. So modern psychology is mostly about rats.
+ - People have been marrying and bringing up children for centuries now. Nothing has ever come of it.
+ - Society expresses its sympathy for the geniuses of the past to distract attention from the fact that it has no intention of being sympathetic to the geniuses of the present.
+ - Physics has never been a comfortable subject for human psychology. The desire to regard everything outside the human race’s purview as insignificant, and everything within that purview as firmly under the control of tribal myth and custom, is as strong today as it was in the time of Galileo.
+ - One of the greatest superstitions of our time is the belief that it has none.
+ - Only the impossible is worth attempting. In everything else one is sure to fail.
+ - When someone says his conclusions are objective, he means that they are based on prejudices which many other people share.
+ - It is inconceivable that anything should be existing. It is not inconceivable that a lot of people should also be existing who are not interested in the fact that they exist. But it is certainly very odd.
+ - It is curious that while one’s education is the part of one’s life over the conditions of which one has least individual control, the results of it are held to brand one irrevocably.
+ - The only important thing to realise about history is that it all took place in the last five minutes.
+ - Most of the research which is done is determined by the requirement that it shall, in a fairly obvious and predictable way, reinforce the approved or fashionable theories.
+ - The charms of money are distinctly under-represented in literature. There are no songs or poems extolling its virtues. This seems on the face of it strange. The claims of money to be celebrated in verse might well seem to be no less than those of faithful dogs, beautiful women, or jugs of wine.
+ - People accept their limitations so as to prevent themselves from wanting anything they might get.
+ - It is superfluous to be humble on one’s own behalf; so many people are willing to do it for one.
+
+27 quotes

@@ -1,0 +1,26 @@
+ - I still the love classic period, but also the baroque period, and even 17th-Century music such as the music of Monteverdi. He’s one of the greatest opera composers. He was the one who really started the opera.
+ - The voice is an instrument that you really must take time to develop. It’s like a good red wine Give it time.
+ - Well, what I tried to do is to just listen to my voice, because my voice is my boss. She decides.
+ - Arizona is gorgeous. The sunshine in Arizona is gorgeous red.
+ - I still love to walk in the mountains or be on the sea. I like to be in nature. Sometimes I bicycle. It’s important to feel good with your body. The body is extremely important. If you feel good, you have more energy in your singing.
+ - The songs of Bizet are by a French peer of Rossini. When Rossini stopped composing, he was living in Paris. He also wrote some beautiful songs in French.
+ - I think, first of all, you need to love what you’re doing, and then this helps in the comedian for its part in everything-but the moment you enjoy what you’re doing, you try to express yourself, to find your way, and every time is different, of course.
+ - People realize that Salieri is not the man we saw in the Amadeus movie. That man had no talent. It was a great movie, but the Salieri character was a big fiction.
+ - When you are accompanied by the instrument – on an instrument like the lute-the lute and voice – you have this sound, and you feel how the music can be so touching and yet so simple.
+ - Actually, I feel music becoming more and more important. It’s a big source of inspiration. With what’s going on in the world, we feel almost desperate. Music also brings you peace.
+ - I would still love to do more Handel. I think Handel was a fantastic composer. I did lots of Vivaldi, but it’s also important to do the music of Handel, one of the greatest composers of the 18th century.
+ - You must feel what you’re singing, not just have a good presentation of the language.
+ - So you see, movies are really another dimension.
+ - You need to love what youre doing.
+ - We consider Monteverdi the first composer of opera. There was someone before, but everything started with Monteverdi.
+ - The goal is always to make a nice tableau painting with the voice. The more color I can find, the more shadow I can find – the goal is always to make more nuance and colors.
+ - The media can be a really strong vehicle.
+ - I went to the Conservatory of Music in school in Rome.
+ - It’s not difficult to sing in German; it’s difficult to feel in German. This takes time. It’s a culture.
+ - The voice will guide you-will tell you what to do. In order to do that, you must be quite sensitive with the instrument and accept this daily conversation with your voice.
+ - When I had my first voice lesson I was 15 years old. And I had a really good teacher. This is what made all the difference. A good teacher will teach you the technique, but also how to listen to your voice.
+ - So I like to make music, and I like to share music. This is also a gift.
+ - The restaurants close here in Salzburg. They don’t really have a nightlife in the winter time.
+ - I am a person of the 18th century.
+
+24 quotes

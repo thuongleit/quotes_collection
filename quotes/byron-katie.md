@@ -1,0 +1,295 @@
+ - It’s not your job to like me – it’s mine.
+ - If I had a prayer, it would be this: “God, spare me from the desire for love, approval, or appreciation. Amen.”
+ - Who would you be without the thought that happiness depends on someone else?
+ - If you want real control, drop the illusion of control; let life have you. It does anyway. You’re just telling yourself the story of how it doesn’t.
+ - Spare yourself from seeking love, approval, or appreciation-from anyone. And watch what happens in reality, just for fun.
+ - Our job is unconditional love. The job of everyone else in our life is to push our buttons.
+ - If you are mentally somewhere else, you miss real life.
+ - If you realized how beautiful you are, you would fall at your own feet.
+ - If you argue against reality you will suffer.
+ - Don’t be careful. You could hurt yourself.
+ - Discomfort is the call to set yourself free.
+ - Forgiveness is just another name for freedom.
+ - Nothing ever goes wrong in life.
+ - I am a lover of what is, not because I’m a spiritual person, but because it hurts when I argue with reality.
+ - The only difference between heaven and hell is believing a thought.
+ - The only thing you fear is the unreality that you yourself have invented.
+ - A thought is harmless unless we believe it. It’s not our thoughts, but our attachment to our thoughts, that causes suffering. Attaching to a thought means believing that it’s true, without inquiring. A belief is a thought that we’ve been attaching to, often for years.
+ - Just keep coming home to yourself, you are the one who you’ve been waiting for.
+ - The Ego’s job is to kill everything but itself.
+ - The last story: God is everything, God is good.
+ - The world is what you believe it to be, and it changes as you change.
+ - When you discover that all happiness is inside you, the wanting and needing are over, and life gets very exciting.
+ - Life is simple. Everything happens for you, not to you.
+ - Since the past is unreal and the future is unreal, all your thoughts are about nothing.
+ - Reality is always kinder than your thinking.
+ - As long as you think that the cause of your problem is “out there” – as long as you think that anyone or anything is responsible for your suffering – the situation is hopeless. It means that you are forever in the role of victim, that you’re suffering in paradise.
+ - Nothing belongs to me. Everything comes and goes. Serenity is an open door.
+ - A thought is harmless unless we believe it.
+ - If you don’t like your world, question your thoughts about it.
+ - Do you want to meet the love of your life? Look in the mirror.
+ - Until the mind is open, the heart stays closed. The open mind is the key to the open heart.
+ - When you realize that every stressful moment you experience is a gift that points you to your own freedom, life becomes very kind.
+ - To argue with reality is to argue with God.
+ - When the creative mind is unleashed and understands its true nature, it’s unlimited. There’s nothing you cannot do.
+ - Insanity is arguing with reality.
+ - I discovered that when I believed my thoughts, I suffered, but that when I didn’t believe them, I didn’t suffer, and that this is true for every human being. Freedom is as simple as that. I found that suffering is optional. I found a joy within me that has never disappeared, not for a single moment.
+ - Fear is always the result of an unquestioned past imagined as a future.
+ - I stopped waiting for the world to give me what I wanted; I started giving it to myself.
+ - No one has ever been able to control his thinking, although people may tell the story of how they have. I don’t let go of my thoughts-I meet them with understanding. Then they let go of me.
+ - We are never really in control. We just think we are when things happen to be going our way.
+ - Everyone is a mirror image of yourself-your own thinking coming back to you.
+ - Defense is the first act of war.
+ - The worst loss you’ve ever experienced is the greatest gift you can have.
+ - Money is not my business; my thinking is my business. I don’t have any other business.
+ - We’re all looking for love, in our confusion, until we find our way back to the realization that love is what we already are.
+ - I realized that it’s insane to oppose it. When I argue with reality, I lose-but only 100% of the time. How do I know that the wind should blow? It’s blowing!
+ - When you become a lover of what is, the war is over.
+ - If you knew how important you are, you would fragment into a billion pieces and just be light.
+ - Everything that happens is God’s will. When you realize that, you’re home free.
+ - You’ve never reacted to someone else. You project meaning onto nothing. And you react to the meaning you’ve projected.
+ - You’re never given more pain than you can handle. You never, ever get more than you can take.
+ - No one can hurt me – that’s my job.
+ - The mind usually says, “I know, I know, I know.” But the “don’t-know mind” is where wisdom lives.
+ - Fear has only two causes: the thought of losing what you have or the thought of not getting what you want.
+ - It’s good that it hurts. Pain is the signal that you’re confused, that you’re in a lie.
+ - There is no security for those who seek it outside of themselves.
+ - You can’t change what you haven’t realized yet. Once you realize what you were asleep to, the change happens on its own.
+ - Low self-esteem is not possible when you understand the nature of everything. Depression is not possible. The universe is absolutely friendly.
+ - The whole world is simply my story, projected back to me on the screen of my own perception. All of it.
+ - This is the time. This is the place. This is the vastness. Right here is paradise. Always. Always.
+ - The mind’s job is to validate what it thinks.
+ - What you’re believing in the moment creates your suffering or your happiness.
+ - I have had the privilege of losing everything.
+ - The miracle of love comes to you in the presence of the uninterpreted moment. If you are mentally somewhere else, you miss real life.
+ - There is nothing that isn’t true if you believe it; and nothing is true, believe it or not.
+ - Lack of understanding is always painful.
+ - I didn’t fight or shame my thoughts, I questioned them, and they stopped shaming me.
+ - Peace doesn’t require two people; it requires only one. It has to be you. The problem begins and ends there.
+ - What would it be like to let go of wanting things to be other than they are?
+ - If you think the cause of your problem is ‘out there,’ you’ll try to solve it from the outside. Take the shortcut: solve it from within.
+ - The world is nothing but my perception of it. I see only through myself. I hear only through the filter of my story.
+ - The ability to understand the cause of your own suffering gives you the ability to understand ours.
+ - Everyone wants peace, inside and outside, and we would all have it if we knew how. Now we know how. It begins with you.
+ - Any story that you tell about yourself causes suffering. There is no authentic story.
+ - The person who finds peace inside and lives it, is the one who teaches what true peace is.
+ - We fear only what we haven’t understood.
+ - Your most intimate relationship is the one you have with your thoughts.
+ - Stress never feels as natural as peace does.
+ - Every mind deserves to be free. When the mind is free, that’s the end of suffering.
+ - When you believe that your problem is caused by someone or something else, you become your own victim.
+ - Seeking love keeps you from the awareness that you already have it – that you are it.
+ - No-one can disappoint you, only your thoughts about them can.
+ - Gratitude is what we are without a story.
+ - Nothing terrible has ever happened except in our thinking. Reality is always good, even in situations that seem like nightmares. The story we tell is the only nightmare that we have lived.
+ - When we question our thoughts, we see that the craziness was never in the world, but in us.
+ - After you’ve been doing inquiry for a while, if you have the thought “She doesn’t love me,” you just get the immediate turnaround with a smile: “Oh, I’m not loving myself in this moment.”
+ - Thoughts are just what is. They appear. They’re innocent. They’re not personal.
+ - I am entirely motivated without anger. The truth sets us free, and freedom acts.
+ - There’s no nightmare you can’t wake yourself up from.
+ - Each time your mind changes your whole world is changed.
+ - When you’re focused outside and believe that your problem is caused by someone else, rather than by your attachment to the story you’re believing in the moment, then you are your own victim, and the situation appears to be hopeless.
+ - The world will be at war as long as the mind is at war with itself. If we can’t find peace within ourselves, where is the hope for peace in the world?
+ - When they attack you and you notice that you love them with all your heart, your Work is done.
+ - For me, if somebody tells me to go away, that is an opportunity: for me to give the person a better life, to realize where not to be, and to see what could be even better than being with that person I love.
+ - How do you react when you think you need people’s love? Do you become a slave for their approval?
+ - That’s where the fear comes from-from your uninvestigated thoughts.
+ - I have never experienced a stressful feeling that wasn’t caused by attaching to an untrue thought. Behind every uncomfortable feeling, there’s a thought that isn’t true for us.
+ - I’ll tell you that for me, one when someone used to say something that was true, one way I knew it was true was that I immediately felt defensive. I blocked it off, and I went to war with them in my mind and suffered all that goes with it. And they were only saying what was true.
+ - When you act like a teacher, it’s usually because you’re afraid to be the student.
+ - If I want something, I go get it. Anything that I believe will stop me, I question.
+ - As you inquire into issues and turn judgments around, you come to see that every perceived problem appearing “out there” is really nothing more than a misperception within your own thinking.
+ - It’s not the problem that causes our suffering; it’s our thinking about the problem.
+ - Realizing that people should lie when they do makes me a little more open-minded, a little more tolerant, when my child or my partner lies.
+ - When you do The Work, you see who you are by seeing who you think other people are. Eventually you come to see that everything outside you is a reflection of your own thinking. You are the storyteller, the projector of all stories, and the world is the projected image of your thoughts.
+ - You are your only hope, because we’re not changing until you do. Our job is to keep coming at you, as hard as we can, with everything that angers, upsets, or repulses you, until you understand. We love you that much, whether we’re aware of it or not. The whole world is about you.
+ - To me, health is a balanced mind. A balanced mind knows how to get enough rest, how to eat properly, how to exercise. I have come out as just a balanced human being, and I don’t know anything finer than that.
+ - There is no peace in the world until you find peace within yourself in this moment.
+ - Until you can see everything in the world as your friend, your work is not done.
+ - Judge your neighbor, write it down. Ask four questions, turn it around.
+ - It makes sense that no one else can cause you pain. That’s your job.
+ - Happiness is a clear mind. A clear and sane mind knows how to live, how to work, what emails to send, what phone calls to make, and what to do do to create what it wants without fear.
+ - My experience is that the teachers we need most are the people we’re living with right now.
+ - Placing the blame or judgment on someone else leaves you powerless to change your experience; taking responsibility for your beliefs and judgments gives you the power to change them.
+ - Being present means living without control and always having your needs met.
+ - An unquestioned mind is the world of suffering.
+ - There’s no way that a clear mind can live an unhappy life.
+ - When a thought hurts, that’s the signal that it isn’t true.
+ - The pain shows you what’s left to investigate.
+ - The most important relationship is the mind’s relationship with itself. In other words, the ultimate – and, really, the only – relationship you have is the relationship with your own thoughts.
+ - The only time we suffer is when we believe a thought that argues with what is. When the mind is perfectly clear, what is is what we want.
+ - If you want a little fear and terror because your life is dull, get a future. Terrifying!
+ - I love what I think, and I’m never tempted to believe it. Thoughts are like the wind or the leaves on the trees or the raindrops falling. They’re not personal, they don’t belong to us, they just come and go. When they’re met with understanding, they’re friends.
+ - The ego is terrified of the truth. And the truth is that the ego doesn’t exist.
+ - Pay close attention to the particular thoughts you use to deprive yourself of happiness.
+ - I havent had a single thought for 26 years. I have only understanding. Its somewhat complicated to understand that. Ive hardly ever spoken about it. Youre in a state of total peace of mind. A kind of nirvana.
+ - Place only your kindest thoughts on everything you experience today. Meet yourself.
+ - Any thought of discomfort or stress is an alarm that lets you know you’re believing an untrue thought.
+ - You can only see what you believe – nothing else is possible.
+ - It’s not the darkness that people fear; it’s what they imagine into the darkness.
+ - When you realize that suffering and discomfort are the call to inquiry, you may actually begin to look forward to uncomfortable feelings. You may even experience them as friends coming to show you what you have not yet investigated thoroughly enough.
+ - Our parents, our children, our spouses, and our friends will continue to press every button we have, until we realize what it is that we don’t want to know about ourselves, yet. They will point us to our freedom every time.
+ - Arguing with reality it like trying to teach a cat to bark.
+ - Some of us are returning to sanity, because we’re tired of the pain. We’re in a hurry. No time to mess around.
+ - All sadness is a tantrum.
+ - We say to others only what we need to hear.
+ - Don’t believe every thing you think.
+ - If you’re yelling within you that they shouldn’t yell at you, that is where the pain begins, not with their yelling at you.
+ - The whole planet is waiting for someone to do it first.
+ - It’s a wonderful world when you have what you want at all times.
+ - And as long as we believe what we believe-until that is questioned-there’s no progress as a human race. Again, we still have war. So, effective rehabilitation is to question what we believe. When that happens, everyone gets out of prison.
+ - You can never make yourself believe that you’re loveable, however hard you try, because when the chips are down what you really believe rises to the surface of the mind to replace what you want to believe.
+ - All I have is all I need and all I need is all I have in this moment.
+ - It’s not easy to find your own way when you believe that you need love, approval, appreciation, or anything from your family. It’s particularly hard when you want them to see things your way.
+ - How do I know it was meant to happen this way? Because it did.
+ - Do you want to be right more than you want to know the truth? It’s the truth that set me free. Acceptance, peace, and less attachment to a world of suffering are all effects of doing The Work. They’re not the goals. Do The Work for the love of freedom, for the love of truth.
+ - When we stop opposing reality, action becomes simple, fluid, kind, and fearless.
+ - I don’t let go of concepts -I meet them with understanding. Then they let go of me.
+ - The best way of leading people is to let them find their own way.
+ - We don’t attach to people or to things; we attach to uninvestigated concepts that we believe to tbe true in the moment.
+ - When we believe in our thoughts, when we tell ourselves a story, we suffer. ‘My husband doesn’t respect me.’ ‘I should be thinner.’ Those are stories. When there’s no story, there’s no suffering.
+ - The greatest stock market you can invest in is yourself. Finding this truth is better than finding a gold mine.
+ - We do not mature through age. We mature in awareness.
+ - Maybe everything we’ve ever done has been for love.
+ - There’s no one who can teach you except yourself. Each of us needs to look at what our belief system really consists of. Look at the concepts that come across your mind and just notice what you believe.
+ - The world is as you perceive it to be. For me, clarity is a word for beauty. It’s what I am. And when I’m clear, I see only beauty. Nothing else is possible.
+ - Some children are afraid to die because their parents are afraid to die. My own children have come to understand that it’s totally okay with me if they die. They don’t have to live for my sake.
+ - Would you rather be right or free?
+ - What we really believe is what we manifest. What we believe, we see.
+ - I used to sleep on the floor next to the bed, because I believed that I didn’t even deserve a bed to sleep in. And then, one morning, a cockroach crawled onto my leg. I looked at it, and suddenly I awoke from a kind of hypnotic trance in which I had been all my life.
+ - Sleep just gives the ego a little time out. It has to stay strong in order to be something that it isn’t.
+ - You cannot hurt me. Only I can do that.
+ - You don’t experience anxiety unless you’re attached to a thought that isn’t true for you. It’s that simple.
+ - Who would you be without the thought “I need more money to be safe?” You might be a lot easier to be with. You might even begin to notice the laws of generosity, the laws of letting money go out fearlessly and come back fearlessly. You don’t ever need more money than you have.
+ - My mother became a believer, and then I became a believer. But when I was 43 years old, I began to think for myself, somehow, by fluke and by grace. And I thought, “Oh, my. I was so mistaken.” The world isn’t what I believed it to be. I am not what I believed me to be, and neither is anyone.
+ - The world you live in is 100 percent your own responsibility. If you don’t like your world, it doesn’t work to say, “Well, it’s my mother’s fault. She taught me how to think.”
+ - That’s the purpose of stress. It’s a friend. It’s an alarm clock, built in to let you know that it’s time to do The Work.
+ - But when you think you’re supposed to do something with it and imagine that you’re the doer, that’s pure delusion. Just follow your passion. Do what you love. Inquire, and have a happy life while you’re doing it.
+ - Whenever you think that your needs are not being met, you’re telling the story of a future.
+ - Everyone in your life is a figment of your imagination – ev en you.
+ - Until you look forward to all criticism, your Work’s not done.
+ - It only takes one clear person to have a good relationship.
+ - If you want to clean up the environment, start with your mind. It starts there!
+ - I love not rushing the process. Mind doesn’t shift until it does, and when it does shift, it’s right on time, not one second too late or too soon. People are like seeds waiting to sprout. We can’t be pushed ahead of our own understanding.
+ - Everyone has equal wisdom. It is absolutely equally distributed. No one is wiser than anyone else.
+ - The perfect world is created when the mind is free to see it.
+ - Forgiveness is discovering that what you thought happened, didn’t.
+ - I saw that we’re all doing the best we can. This is how a lifetime of humility begins.
+ - Whatever it takes for you to find your freedom, that’s what you’ve lived.
+ - I suffered from severe depression for over a decade. My condition deteriorated steadily. I was suicidal.
+ - For me, everything is God. Everything and everyone. So it was just, God needs me now, now, now.
+ - Identify your painful thought, question it, and wake yourself up. No one else can.
+ - You can’t have an up without a down. You can’t have a left without a right. This is duality. If you have a problem, you must already have the solution. The question is, do you really want the solution, or do you want to perpetuate the problem?
+ - That’s what I love about integrity. Each time we go inside, that’s where it is.
+ - God, as I use the word, is another name for what is. I always know God’s intention: It’s exactly what is in every moment.
+ - When I am perfectly clear, what is is what I want.
+ - No one can give you freedom but you.
+ - If we are in silence – in absolute silence with no thoughts – for 10 minutes, it’s only a thought that tells us we were silent for 10 minutes. Our only proof is a thought.
+ - Suffering over things that have happened to us is nothing more than an argument with the past.
+ - Love is worth living. Why do you trade life for less?
+ - When I was in my early forties, I slept with a loaded gun under my bed. Id become severely depressed in my thirties, and for almost a decade I spiraled down into paranoia, rage, self-loathing, and thoughts of suicide.
+ - You don’t have to feel bad to act kindly. Love doesn’t stand by, it moves with the speed of clarity.
+ - To exclude anything that appears in your universe is not love. Love joins with everything. It doesn’t exclude the monster. It doesn’t avoid the nightmare – it looks forward to it.
+ - I’ve heard people say that they cling to their painful thoughts because they’re afraid that without them they wouldn’t be activists for peace. “If I feel peaceful,” they say, “why would I bother taking action at all?”
+ - Here’s how a child listens: you tell him something, and he puts his own interpretation on what you said. That’s what he hears. No one has ever heard you.
+ - Any stressful thought that you have about the planet, for example, shows you where you are stuck, where your energy is being exhausted in not fully meeting life as it is, without condition.
+ - Your suffering is never caused by the person you’re blaming.
+ - Nothing comes ahead of its time, and nothing ever happened that didn’t need to happen.
+ - Mind is infinitely creative. And when it’s not stuck, that’s where the joy comes from. Something happens, and the way we think about it, understand it, see it, is actually hilarious, whereas before it used to depress us.
+ - A dishonest yes is a no to yourself.
+ - I can’t love you as you have been or will be. I can only love you as you are.
+ - Happiness is the natural state for someone who knows that there’s nothing to know.
+ - If our thinking is clear, how could work or money be the problem? Our thinking is all we need to change.
+ - You can’t have your daughter as long as you have a concept of her. When you get rid of the concept, you meet your daughter for the first time. That’s the way this works.
+ - You don’t get to vote on what is. Have you noticed?
+ - When you srgue with reality, you lose, but only 100% of the time.
+ - I came to see that there was nothing to forgive, that I was the one who caused my own problems.
+ - Thought the mind can justify itself faster than the speed of light, it can be stopped through the act of writing.
+ - Bottom line is, if someone says something about me and it upsets me, it’s true.
+ - As long as we believe our thoughts, there will always be war.
+ - Asking the questions – that’s what changes lives. Every cell in your body is awake with inquiry. And you cannot believe the old thoughts again.
+ - When you run in fear, it’s square into the wall.
+ - I love what I think, and I’m never tempted to believe it.
+ - Thinking that what you want equals what’s best for you is a dead end.
+ - When safety is our priority, we live our lives being very, very careful, and we wind up having no lives.
+ - You would be amazed at who people are once you know yourself.
+ - The moment it begins to question itself, the mind becomes so clear that it starts working with itself rather than with the body’s identification.
+ - If I think that someone else is causing my problem, I’m insane.
+ - Self-realization is not complete until it lives in action.
+ - Mind changes, and as a result, the world changes. A clear mind heals everything that needs to be healed.
+ - There are no new stressful thoughts. They’re all recycled.
+ - There is no mistake in nature.
+ - It’s our nature to be free, and until we’re stuck in a stressful belief system, we’re pretty happy.
+ - That’s what every uncomfortable feeling is for-that’s what pain is for, what money is for, what everything in the world is for: your self-realization.
+ - You can’t drop concepts. You can only shine a little flashlight on them as you do inquiry, an you see that what you thought was true wasn’t. And when the truth is seen, there’s nothing you can do to make the lie true for you again.
+ - There is no thought or situation that you can’t put up against inquiry. Every thought, every person, every apparent problem is here for the sake of your freedom.
+ - You might believe that it’s only for their own good, but how does it feel when you try to manipulate the people you love? Are you teaching them that your love is conditional? Maybe through inquiry we can find another way.
+ - Stories are the untested, uninvestigated theories that tell us what all these things mean. We don’t even realize that they’re just theories.
+ - Reality is always the story of a past, and what I love about the past is – it’s over.
+ - It is easy to be swept away by some overwhelming feeling, so it’s helpful to remember that any stressful feeling is like a compassionate alarm clock that says, “You’re caught in the dream.”
+ - Without an uninvestigated story, there’s only the perfection of life appearing as itself. You can always go inside and find the beauty that’s revealed after the pain and fear are understood.
+ - Never be fooled into believing that there is one speck out of order.
+ - There is no story that is you or that leads to you. Every story leads away from you.
+ - When you say or do anything to please, get, keep, influence, or control anyone or anything, fear is the cause and pain is the result.
+ - Who would you be if you didn’t believe this lie?
+ - Put your stressful thoughts on paper, question them, and have a great life.
+ - The world is perfect. As you question your mind, this becomes more and more obvious.
+ - Every moment a gift: are you unwrapping yours now, and now, and now?
+ - It’s not possible to have a problem without believing a prior thought. To notice this simple truth is the beginning of peace.
+ - In my experience, we don’t make thoughts appear, they just appear. One day, I noticed that their appearance just wasn’t personal. Noticing that really makes it simpler to inquire.
+ - The world is perfect. As you question your mind, this becomes more and more obvious. Mind changes, and as a result, the world changes. A clear mind heals everything that needs to be healed. It can never be fooled into believing that there is one speck out of order.
+ - We’ve been looking outside us for our own peace. We’ve been looking in the wrong direction.
+ - When you think that someone or something other than yourself needs to change, you’re mentally out of your business.
+ - Thinking that people are supposed to do or be anything other than what they are is like saying that the tree over there should be the sky. I investigated that and found freedom.
+ - Once the mind is met with understanding, it can always find its way home.
+ - Until we question our stressful thoughts, we remain victims of the images in our head.
+ - Trauma is nothing more than being stuck in what you believe.
+ - Rather than understand the original cause-a thought-we try to change the stressful feelings by looking outside ourselves.
+ - I am never unhappy, you can achieve that as well.
+ - It’s only our story that keeps us from knowing that we always have everything we need.
+ - Who cares if you’re enlightened forever? Can you just get it in this moment, now?
+ - Love asks for nothing. Only personalities want something.
+ - I have discovered that in every language and every country I have visited, there are no new stories. They’re all recycled. The same stressful thoughts arise in each mind one way or another, sooner or later.
+ - Life is the constant opportunity to wake up.
+ - The way to truly help someone is for me to not get immersed in their suffering.
+ - When your mind opens, the whole world falls into place.
+ - People don’t need sudden revelations. They get what they need when they need it, thought by thought by thought. It’s a constant thing when the mind starts to wake up to itself.
+ - Ultimately, I am all I can know.
+ - I am the perpretor of my suffering – but only all of it.
+ - It’s difficult to seek other people’s love. It’s deadly. In seeking it you lose what is genuine. This is the prison we create for ourselves as we seek what we already have.
+ - What is perfect health? The unraveling of all imagined states of mind.
+ - I came to see that the world is always as it should be, whether I opposed it or not.
+ - The opening to reality, as it really is, is beauty.
+ - When I believed my thoughts I suffered.
+ - It’s not what happens in life that bothers us. It’s what we’re believing about it that bothers us.
+ - To understand our own thinking is to understand all thinking.
+ - Behold your world! The judgments you believe just created it.
+ - My experience is the opposite.
+ - To think that I know what’s best for anyone else is to be out of my business. Even in the name of love, it is pure arrogance, and the result is tension, anxiety, and fear. Do I know what’s right for me? That is my only business. Let me work with that before I try to solve problems for you.
+ - Inviting people to inquiry is much more powerful to me than describing my experience. When people hear me tell the story, they often say, “Oh my goodness, I get it. I get it!” But it’s not enough.
+ - When we work with our thinking, then to have great wealth is the same as to have nothing. That’s the only freedom.
+ - You are what exists before all stories.
+ - A mind that doesn’t question its judgements, makes the world very small and dangerous.
+ - We may appear to be mean but we’re really only frightened.
+ - Clarity moves much more efficiently than violence or stress.
+ - You are the effect of your story, that’s all.
+ - Your nature is truth, and when you oppose it, you don’t feel like yourself. Stress never feels as natural as peace does.
+ - If your beliefs are stressful and you question them, you come to see that they aren’t true – whereas prior to questioning, you absolutely believe them. How can you live in joy when you’re believing thoughts that bring on sadness, frustration, anger, alienation, and loneliness?
+ - Your parents are your projection-nothing more.
+ - The nightmare always becomes laughter, once it’s understood.
+ - I would go out into the desert. The desert was my teacher. I didn’t know about gurus and wise people-I wasn’t a reader.
+ - If people are living their lives for security and comfort and pleasure, then mind’s every waking moment will be plotting those things. That’s how it stays identified – as a body, as a you.
+ - The only way I can be angry at you is when I have thought, said, or done something that is unkind in my own opinion.
+ - We suffer only until we realize that we can’t know anything.
+ - A teacher of fear can’t bring peace on earth. We have been trying to do it that way for thousands of years. The person who turns inner violence around, the person who finds peace inside and lives it, is the one who teaches what true peace is. We are waiting for just one teacher. You’re the one.
+ - So what is it with your mother that you haven’t worked out yet?
+ - Mind is everything. There’s nothing that it’s not.
+ - I can find only three kinds of business in the Universe: mine, yours, and God’s.
+ - One morning, in February 1986, out of nowhere, I experienced a realization. In an instant, I discovered that when I believed my stressful thoughts, I suffered, but when I questioned them, I didn’t suffer.
+ - So there’s only transcendence in the moment. Nobody can be transcended forever. That’s why I say, “Who cares if you’re enlightened forever?”
+ - The nature of mind is that it loves everything once it loves itself, just as it opposes everything when it opposes itself.
+ - Your True Nature Is Love. There’s Nothing You Can Do About It.
+ - My happiness isn’t dependent on anyone else’s.
+ - Reality doesn’t wait for your opinion, vote, or permission, sweetheart. It just keeps being what it is and doing what it does.
+
+293 quotes

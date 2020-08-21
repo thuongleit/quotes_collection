@@ -1,0 +1,55 @@
+ - I was madder than a midget with a yo-yo.
+ - I’m happier than a tornado in a trailer park.
+ - He who laughs last, thinks slowest.
+ - Sometimes you’ve gotta wreck the truck to get the insurance money to make the payment on the truck.
+ - Living in a small town you couldn’t go anywhere on a Saturday where a store had the game on. If you were downtown you heard the game. If you were at the gas station you heard the game. I remember I would be mowing the lawn and I would stop for the Nebraska game. I would have it cranking outside.
+ - Blaming guns for killing people is like blaming pencils for bad spelling.
+ - Remember, half the people you know are below average.
+ - I saw a sign one time that said ‘hemorrhoids awareness week’ at the doctor’s office. Let me tell you, if you got hemorrhoids, I’m sure you are aware of it. You don’t need a sign to tell anybody about it.
+ - I was scared into being good. But I’m sure I did regular kid stuff.
+ - I don’t judge people by their accent, or how they word things, or how grammatically correct their speech is. Some of the smartest men in the world couldn’t spell. I judge a person by their character.
+ - I don’t hate anybody. My character is one thing, but me as an individual is completely different.
+ - I’m on the diet where you eat vegetables and drink wine. That’s a good diet. I lost 10 pounds and my driver’s license.
+ - I’m saying, Come on, the global warming thing? How did the ice melt during the ice ages? Was the dinosaurs driving SUVs around back then?
+ - I can have different opinions with anybody. I can still be a friend with that person.
+ - Guns don’t kill people, husbands who come home early from work kill people.
+ - When you’re doing comedy, it is so subjective. What is funny to you is not funny to another person. What is dirty to you is not dirty to the other person. Comedy is one of those things you throw against the wall and see what sticks.
+ - Its nice if people can finally loosen up a little bit and just go out laugh at silliness. I mean, people take themselves way too seriously sometimes.
+ - I disagree with a lot of things, but hey, what a person does is between them and their maker. I can disagree with somebody, and I can still be friends with them.
+ - I’ve always thought if you don’t like what somebody says, don’t hang out with that person. Why do you have to complain about it? Here’s the thing. I don’t hang out with, and I’m not friends with anybody that would offend me or I think offends me or lives a different way than I do.
+ - People always ask my mom what I did as a kid. My mom says, “He wasn’t a bad kid. He was never an unruly kid, always listened and obeyed.”
+ - I know I don’t want to take the Lord’s name in vain, and I don’t want to drop any F-bombs.
+ - There’s the old joke, “What’s the difference between country and redneck? Well, that’s three hundred dollars.”
+ - I’m more of a rodeo type guy.
+ - I don’t know why people get so bent out of shape over stuff people say.
+ - I was born and raised in Pawnee City, Nebraska. I lived right next to the sale barn and I raised pigs. My dad was a guidance counselor at Wymore High School. He was also a preacher and did farming as well. We leased out our crop land but had cattle and horses.
+ - I’m always wearing a Nebraska hat. Most of the time I’m wearing something that’s got a Husker something on it. I make sure I have it on TV but I have it regularly.
+ - I was always getting in trouble because I was the class clown but I always made teacher laugh. I remember I thought I was going to fail that class but I ended up passing it and I really think it was only because I was good entertainment for her.
+ - I get so sick and tired of Wikipedia. People write their own crap on there.
+ - You learn a lot though when you have kids, I’ll tell you what. Did you know when a baby poops its diapers, you’re not supposed to hit him with a rolled-up newspaper?
+ - I split time between Nebraska and Florida. I’ll come to Nebraska in the summertime and stay through Thanksgiving and then I go back to Florida because I have family in both places. One of the reasons I got the place in Nebraska is I’ve always wanted to live back in Nebraska.
+ - I’m defending free speech pretty much all over the place because you still have freedom of speech.
+ - Our whole wedding cost 180 bucks. Afterward, we re-heated lasagna for everyone and set off fireworks.
+ - There’s nothing better than a Nebraska summer so I wanted to live there in the summer time and visit my family and go to as many Nebraska games as I could.
+ - I have thick skin. I’m not a baby. Nothing really offends me. If there’s something I think might offend me, I don’t listen to it.
+ - When you’re married with kids, you just think differently.
+ - Every July, I look forward to taping a Christmas show – in July in Nashville. In 98-degree weather. I love it.
+ - My dad was a non-denominational preacher, actually a Congregationalist which is really where all congregations come to congregate. That’s why it’s called a Congregationalist. Later on in life, he just became a non-denominational preacher, kind of a fire and brimstone type guy. That’s how I grew up.
+ - I enjoy hunting, but if I had my choice to go deer hunting or bass fishing, I’d take bass fishing any day of the week. I enjoy both of them, but yeah, I’m a very outdoorsy guy.
+ - I grew up on a pig farm in southeast Nebraska. When I started doing the Blue Collar Tour, I thought it was kind of funny because I faked my accent, so everybody thought I lived in an apartment somewhere. But I grew up on a pig farm.
+ - I’ve been fortunate, I’ve been blessed, and I attribute my success to all my fans. People want to do things with you when you have a big fan base, and I have a great fan base.
+ - I had a buddy of mine call up the other day, all upset ‘cause he slept with his third cousin. And I’m like, Man, if it upsets you that much, quit countin’ them!
+ - I don’t take myself too seriously. I enjoy what I do. I enjoy making people laugh.
+ - As I get older, the character evolves tremendously because I’m married and have kids now and realize certain things are not funny anymore. I threw them out of my act.
+ - I hate flying. I’m not a big fan of flying at all so everywhere I go I go by tour bus. If I have to fly I will but I’m not a big fan of it.
+ - When I look at my audience, I can tell better who’s in the crowd and the kind of joke I shouldn’t do. It’s just complicated. I guess I sift through to make sure these jokes are a little different with not such a harsh edge to them. That’s pretty much how I handle the crowd.
+ - Some guy came up to me with his kids, ages probably 10 and 12, and said that the reason he likes me is because he sat through an hour and twenty-minute show, and I didn’t cuss one time. So it just really depends.
+ - I am called to love my neighbor, which I do. I can disagree with my neighbor about several things, but I’m not going to hate my neighbor. It’s not up to me to hate anybody. It’s not up to me to judge anyone. It’s up to me to be nice, to be kind and to do everything I can to help somebody.
+ - I don’t have a lot of recreation time. I’ve always been under the assumption that if you’re selling tickets you need to work. The kind of success that’s happened to me maybe only happens to one comedian every twenty years and so I’m on the road constantly.
+ - I’ve been down in Florida since 1979. When you’re born in Nebraska you really can’t explain it.
+ - I think everybody is entitled to say whatever they want. I’m not going to call for anybody to be fired. That’s not what America is all about.
+ - What I do onstage, there’s maybe .0001 percent of the population that acts like that. I talk like that because it makes me laugh, and because I know a couple of people that talk like that. They’re really that Southern. And they do funny things. I love ’em; they’re awesome. They’re good people.
+ - When I was a kid down there it was always a dream to go to a Nebraska game but when you live in those small towns you hardly ever get up to one.
+ - I don’t think every joke has to be so dadgum cerebral. I mix it up really good, because that’s the kind of humor I like. I like the goofy one-liner type stuff.
+
+53 quotes

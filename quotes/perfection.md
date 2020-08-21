@@ -1,0 +1,42 @@
+ - Progress is more important than perfection. ~~Simon Sinek
+ - Continuous improvement is better than delayed perfection. ~~Mark Twain
+ - Passion drives perfection. ~~Rick Warren
+ - Don’t let your want for perfection become procrastination. ~~Danielle LaPorte
+ - Excellence does not require perfection. ~~Henry James
+ - When you aim for perfection, you discover it’s a moving target. ~~Geoffrey Fisher
+ - I’m chasing perfection. ~~Kobe Bryant
+ - I’m never pleased with anything, I’m a perfectionist, it’s part of who I am. ~~Michael Jackson
+ - A certain type of perfection can only be realized through a limitless accumulation of the imperfect. ~~Haruki Murakami
+ - Details make perfection, and perfection is not a detail. ~~Leonardo da Vinci
+ - The perfection of Tawheed is found when there remains nothing in the heart except Allaah. ~~Ibn Qayyim Al-Jawziyya
+ - One of the most essential things you need to do for yourself is to choose a goal that is important to you. Perfection does not exist – you can always do better and you can always grow. ~~Les Brown
+ - Perfection is lots of little things done well. ~~Fernand Point
+ - Perfection is impossible without humility. Why should I strive for perfection, if I am already good enough? ~~Leo Tolstoy
+ - Remember that, sooner or later, before it ever reaches perfection, you will have to let it go and move on and start to write the next thing. Perfection is like chasing the horizon. Keep moving. ~~Neil Gaiman
+ - Gentlemen, we are going to relentlessly chase perfection, knowing full well we will not catch it. ~~Vince Lombardi
+ - Trifles make perfection, and perfection is no trifle. ~~Michelangelo
+ - Life calls not for perfection, but for completeness. ~~C.G. Jung
+ - I was born to make mistakes, not to fake perfection. ~~Drake
+ - You are a Divine creation, a Being of Light who showed up here as a human being at the exact moment you were supposed to. You are the Beloved, a miracle, a part of the eternal perfection. ~~Wayne W. Dyer
+ - Businesses that grow by development and improvement do not die. But when a business ceases to be creative, when it believes it has reached perfection and needs to do nothing but produce no improvement, no development, it is done. ~~Henry Ford
+ - Perfection is an impossible destination. ~~Tim Ferriss
+ - Excellence always sells. ~~Earl Nightingale
+ - When you strive for perfection, you compare different versions of what could be instead of being present with what is. Perfectionism is an attempt to inhabit an imaginary world in order to avoid experiencing the world in which you live. ~~Gary Zukav
+ - Imperfections define perfection. ~~Colleen Hoover
+ - Our religion doesn’t demand perfection but instead a manageable strive to better ourselves. ~~Nouman Ali Khan
+ - Quality involves living the message of the possibility of perfection and infinite improvement, living it day in and day out, decade by decade. ~~Tom Peters
+ - The perfection of moral character consists in this, in passing every day as the last, and in being neither violently excited nor torpid nor playing the hypocrite. ~~Marcus Aurelius
+ - Perhaps the crescent moon smiles in doubt at being told that it is a fragment awaiting perfection. ~~Rabindranath Tagore
+ - It’s the notion that there is no perfection – that there is a broken world and we live with broken hearts and broken lives but still there is no alibi for anything. On the contrary, you have to stand up and say hallelujah under those circumstances. ~~Leonard Cohen
+ - There is no perfection only life. ~~Milan Kundera
+ - Comparisons are easily done, once you’ve had a taste of perfection. ~~Katy Perry
+ - The egocentric is always frustrated, simply because the condition of self-perfection is self-surrender. There must be a willingness to die to the lower part of self, before there can be a birth to the nobler. ~~Fulton J. Sheen
+ - Be content with nothing less than perfection. ~~Walter J. Phillips
+ - I’m definitely on the pursuit of perfection. I will always be learning. ~~Conor McGregor
+ - Gentlemen, we will chase perfection, and we will chase it relentlessly, knowing all the while we can never attain it. But along the way, we shall catch excellence. ~~Vince Lombardi
+ - The ultimate aim of Karate lies not in victory or defeat, but in the perfection of the character of its participants. ~~Gichin Funakoshi
+ - I am not a perfectionist, but still I seek perfection. I am not a great romantic, but yet I yearn 4 affection. ~~Tupac Shakur
+ - I’m obsessed with perfection. I want to work. I don’t want to stop. I want to take advantage and make myself the best possible me that I can be. ~~Drake
+ - Man is rotten with perfection. ~~Kenneth Burke
+
+40 quotes

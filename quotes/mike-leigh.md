@@ -1,0 +1,52 @@
+ - I try and create for the audience something that relates to real-life experience.
+ - It’s an unhealthy habit to say that life is what you make of it, and if you want to be happy, then you can be happy. That’s just rubbish, basically.
+ - Resolve was never stronger than in the morning, after the night, when it was never weaker.
+ - I take no notice of the trends. It has never concerned me at all. My job is to deal with what I want to deal with and reach an audience by doing so.
+ - Life is about luck and it’s about circumstances and socioeconomic conditions and all the rest of it, but you know, you can also make choices. It’s about spirit and generosity and all the other things, too.
+ - But films should be voyeuristic. What else is a film if you’re not snooping into somebody else’s lives?
+ - Given the events of even the 19th century, Zionism was inevitable. Given the events of the 20th century, Israel was inevitable.
+ - My work is about life as you and I experience it. You’re either lucky or you’re not lucky; either your relationship works or it doesn’t.
+ - You will find hardly any improvising on camera anywhere in my films. It’s very structured, but it’s all worked out from elaborate improvisations over a long period, as you know.
+ - Some deeply untrusting actors – the kind that need to know exactly what’s what and are completely insecure – might be quite good within the parameters of a certain sort of acting.
+ - I think Michael Caine is a perfectly good actor but it’s obvious he’s not going to be in one of my films.
+ - There’s a constant drip and trickle of life that goes into one’s awareness really and consciousness of things.
+ - If a film or any piece of work doesn’t entertain, it fails – and that is using the word entertain literally, meaning it holds you there and you become absorbed by it so that you don’t walk away and get bored and so on.
+ - My work requires acting at its most committed – it demands actors of enormous resilience, but also intelligence and wit. It doesn’t work for narcissistic or selfish actors.
+ - Films are made all over the world all the time and only a thin slice of that product is Hollywood.
+ - There are plenty of bad actors and there are plenty of bad directors. There are actors who will always be bad and there are good actors who you cry for because they’re being badly directed or the material isn’t good enough.
+ - I’m old enough to have friends and contemporaries who have long since retired, and that’s their prerogative – enough is enough; it doesn’t mean a thing to me. But I haven’t got any money, so, you know, I just keep on working.
+ - I wonder if I would have been capable of producing anything if I worked in a more conventional way with a prewritten script, because I’m of the procrastinator class.
+ - Some of my favorite movies are Hollywood movies. Hollywood is part of the cinematic spectrum. I nurture a healthy love-hate relationship with Hollywood.
+ - I mean, artistic processes are all about making choices all the time, and the very act of making a choice is the distilling down and the getting to the core of what it is that you care about and what you want to say, really.
+ - One of the reasons the whole Hollywood way of making films wouldn’t work for me is because the way I operate would be anathema to anyone who wants to hold a job down in Beverly Hills.
+ - The delineation between the actor and his part is a practical matter. When the camera runs, you want the actor to be the character.
+ - When I was young I used to sit in the cinema thinking wouldn’t it be great if you could have a film in which the characters were like real people instead of being like actors.
+ - The notion that acting is simply about intuitively responding to situations the way you feel couldn’t be farther away from how I ask actors to work.
+ - Film-makers should remain true to their principles and never compromise, there is a real revival in the British film industry but there is a danger that we will become colonial servants of Hollywood. We need to maintain our own integrity.
+ - The kind of acting that’s wholly literary or cerebral is wrong. It’s useless for me to have actors so much in their heads that they can’t be organic.
+ - I think it’s important that nobody forgets that although Hollywood commercially dominates the world cinema, in fact what comes out of the filmmaking here is only a tiny slice out of the massive amount of operation that goes on around the world.
+ - I can’t really see how anybody could be particularly optimistic about the future in general because we are destroying the planet.
+ - The way an actor is trained doesn’t ultimately have much bearing on my work. I’m interested in the actor as artist.
+ - I feel very much ideologically, politically if you like, and emotionally part of the European cinema.
+ - There have always been and there always will be the peripheral sideline activities which are a form of entertainment, which is to say you pay a couple of cents and you see something freakish. That is what reality TV is.
+ - My job apart from anything else is to build an ensemble composed of actors who all come from a secure place so that they can all work together to make the film.
+ - I’m developing the stuff all the time. There’s a film in my head. I’m imagining a film.
+ - I’ve long since stopped worrying about how I’m portrayed in the press because ultimately it’s not that important. Everyone who knows me knows I do what I do with the greatest integrity.
+ - You can’t make a movie about the artist without shooting outdoors.
+ - The good thing from my perspective is that nobody puts any pressure on me to say what it’s going to be. The backers accept that they don’t know what they are going to get.
+ - The problem with the British film industry is the nervousness and insecurity about – and genuflection toward – Los Angeles.
+ - The reason my films work is because every actor on set is very secure. They’re able to fly.
+ - I’ve walked out of films. But for every film I’ve ever walked out of, I’ve probably walked out of 500 plays.
+ - In the first place, I’m pretty thorough about whom I choose. I instinctively look for the kind of actor who is going to be trusting. There are all kinds of insecure people out there called actors.
+ - People have been very resistant to giving me more than the standard amount of money. So I keep making films on a similar scale. Which is fine, but also frustrating.
+ - It creeps up on you and becomes an obsession. It comes out of watching a million movies.
+ - Independent filmmaking has always been there and it’s not to be forgotten.
+ - Very occasionally I hire an actor and get it wrong. The actor just doesn’t trust the process or me as fully as I thought they would. In this case, you can be quite sure that if an actor is untrusting, it’s got nothing to do with me or the process.
+ - I am very happy to be part of European and world cinema as a British filmmaker.
+ - It’s important to be true to the events, but the most important thing is to get to the essence of the experience. Not to be bogged down in an academic way by a notion of the truth. First of all, the truth is an illusive and spurious concept.
+ - The whole thing about making films in an organic film on location is that it’s not all about characters, relationships and themes, it’s also about place and the poetry of place. It’s about the spirit of what you find, the accidents of what you stumble across.
+ - The main problem is that the Hollywood system has already made the film before the director shoots a single frame.
+ - But actually I make films that I think are extremely sophisticated and cinematic.
+ - I can’t negotiate and collaborate with a character to create a distilled dramatic investigation of the raw material. I need to work with an actor. That stuff about actors who stay in character all the time is nonsense.
+
+50 quotes

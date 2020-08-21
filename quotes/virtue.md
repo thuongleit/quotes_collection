@@ -1,0 +1,42 @@
+ - The more we grow in Love, Virtue and Holiness, the more we see Love, Virtue and Holiness outside. ~~Swami Vivekananda
+ - Courage is the first virtue that makes all other virtues possible. ~~Aristotle
+ - You love people, not for what you do for them or what they do for you. You love them for their values; their virtues. ~~Ayn Rand
+ - Consider your origins: you were not made to live as brutes, but to follow virtue and knowledge. ~~Dante Alighieri
+ - Virtue is a state of war, and to live in it we have always to combat with ourselves. ~~Jean-Jacques Rousseau
+ - Tolerance is the virtue of the man without convictions. ~~Gilbert K. Chesterton
+ - To live a life of virtue, match up your thoughts, words, and deeds. ~~Epictetus
+ - With wine, poetry, or virtue as you choose. But get drunk. ~~Charles Baudelaire
+ - Love is an involuntary reaction to virtue. ~~Stefan Molyneux
+ - The person who talks most of his own virtue is often the least virtuous. ~~Jawaharlal Nehru
+ - Who sows virtue reaps honor. ~~Leonardo da Vinci
+ - There is virtue in work and there is virtue in rest. Use both and overlook neither. ~~Alan Cohen
+ - Tolerance is a cheap, low-grade parody of love. Tolerance is not a great virtue to aspire to. Love is much tougher and harder. ~~N. T. Wright
+ - I know myself too well to believe in pure virtue. ~~Albert Camus
+ - Prudence is the virtue by which we discern what is proper to do under various circumstances in time and place. ~~John Milton
+ - Happiness is secured through virtue; it is a good attained by man’s own will. ~~Thomas Aquinas
+ - The more we progress the more we tend to progress. We advance not in arithmetical but in geometrical progression. We draw compound interest on the whole capital of knowledge and virtue which has been accumulated since the dawning of time. ~~Arthur Conan Doyle
+ - To be evenminded is the greatest virtue. Wisdom is to speak the truth and act in keeping with its nature. ~~Heraclitus
+ - We protect virtue so that virtue will protect us. ~~Ajahn Chah
+ - In justice is all virtues found in sum. ~~Aristotle
+ - Reason is not the sole basis of moral virtue in man. His social impulses are more deeply rooted than his rational life. ~~Reinhold Niebuhr
+ - The virtuous carry out the settlement, but those without virtue pursue their claims. ~~Laozi
+ - A virtue never tested is no virtue at all. ~~Billy Bragg
+ - Forgiveness is a virtue of the brave. ~~Indira Gandhi
+ - You don’t love because: you love despite; not for the virtues, but despite the faults. ~~William Faulkner
+ - Laziness is a programmers main virtue. ~~Larry Wall
+ - Remind oneself continually of one of those who practiced virtue in days gone by. ~~Marcus Aurelius
+ - Everything that’s coming into your life, you are attracting into your life. And it’s attracted to you by virtue of the images you’re holding in your mind. It’s what you’re thinking. Whatever is going on in your mind you are attracting to you! ~~Bob Proctor
+ - No one can deny you or grant you anything. It all comes to you by virtue of your vibration. ~~Esther Hicks
+ - If one has a good disposition, what other virtue is needed? If a man has fame, what is the value of other ornamentation? ~~Chanakya
+ - By virtue of Creation, and still more the Incarnation, nothing here below is profane for those who know how to see. ~~Pierre Teilhard de Chardin
+ - In the absence of willpower the most complete collection of virtues and talents is wholly worthless. ~~Aleister Crowley
+ - There is no virtue in poverty. ~~Joseph Murphy
+ - Your favorite virtue? An appreciation for irony. ~~Christopher Hitchens
+ - Justice is happiness according to virtue. ~~John Rawls
+ - Consider it the greatest of all virtues to restrain the tongue. ~~Cato the Younger
+ - Silver is of less value than gold, gold than virtue. ~~Horace
+ - Lowliness is the base of every virtue, And he who goes the lowest builds the safest. ~~Philip James Bailey
+ - Drink wine, drink poetry, drink virtue. ~~Charles Baudelaire
+ - I maintain there is much more wonder in science than in pseudoscience. And in addition, to whatever measure this term has any meaning, science has the additional virtue, and it is not an inconsiderable one, of being true. ~~Carl Sagan
+
+40 quotes

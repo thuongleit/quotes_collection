@@ -1,0 +1,26 @@
+ - Sometimes ‘Hmm’ is the wisest thing to say.
+ - Normal is all relative.
+ - The curse of an interesting life: there are either very good times or very bad times.
+ - I have lived a life full of love and pain, of Joy and Sorrow, and I live on still. i have many, many years ahead of me, each day with the potential to be filled to the brim with trials to face and challenges to overcome.
+ - Dream of me, my beloved family, happy in my plundering and adventuring, for when the waves rock me to sleep tonight, I will be dreaming of you.
+ - Quit dwelling on other people’s stories and make up some of your own.
+ - Everything to lose, nothing to lose, someone’s taken it, or you’ve lost it.
+ - We are all fools blessed with the knowledge that certain events will come to pass no matter what path we take to get there. The wise ones follow their angels while they may.
+ - She needed him to keep her sane, to make her laugh, to feel complete.
+ - Your fey cousin here has the miraculous ability to hold his liquor – and mine, and yours, and the king’s, and half the country’s, I expect.
+ - Somethings were meant to be and somethings were just meant to be good stories.
+ - Kindred’s tale is a romantic, mature, and lyrical collage of heaven, hell, and a magical royal legend. The combination is divinely – and demonically – inspired.
+ - It can’t be ‘true’ love without the truth.
+ - If you want anything to work, Sunday, you’re going to have to believe it.
+ - Mama says I spend too much time in little fantasy worlds and not enough in this one.
+ - For some heroes, nothing is impossible.
+ - All of us heal in time. The strongest are born again. We only keep the scars we choose to keep.
+ - If you did not indulge in fantasies, how else would you know if you were living an interesting life?
+ - Gifts, like words, carried with them a great deal of power. They bestowed good fortune just as powerfully as they could curse; the could bind people together or tear them apart.
+ - May we all be doomed to a happy life.
+ - He could not change the man he had been, but these hands would make him the man he could be.
+ - Everything in the world was about creativity: belief and creation. Storytelling was the essence of both.
+ - I think I liked you better when you were a raging idiot.
+ - Do you still look at each other like you once did, back at the beginning of the story when everything was a question you were too afraid to find the answer to?
+
+24 quotes

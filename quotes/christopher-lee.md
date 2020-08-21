@@ -1,0 +1,46 @@
+ - The thing I have always tried to do is surprise people: to present them with something they didn’t expect.
+ - We don’t always get the kind of work we want, but we always have a choice of whether to do it with good grace or not.
+ - My favourite country is Finland because once you get to a certain point, you can drive for hours without seeing a single person. I love peace and quiet – something I don’t get very often.
+ - As far as I am concerned, Don Quixote is the most metal fictional character that I know. Single handed, he is trying to change the world, regardless of any personal consequences.
+ - I was once asked what I thought was the most disquieting thing you could see on the screen and I said, ‘an open door.’
+ - Once asked if he felt wearied by the constant onslaught of autograph seekers, actor Gregory Peck replied that he would be more worried when they stopped asking.
+ - When the Second World War finished, I was 23, and already I had seen enough horror to last me a lifetime. I’d seen dreadful, dreadful things, without saying a word. So seeing horror depicted on film doesn’t affect me much.
+ - Every actor has to make terrible films from time to time, but the trick is never to be terrible in them.
+ - I think that – apart from the fields of science and medicine – we live in an age of decline. Look at the world. There is decline in morals, ideals, manners, respect, truthfulness: just about everything, in fact.
+ - Films are now made by accountants. They pick a pretty young female or male face out of the air and give them a part – not because they think that person is right for it or is ready for it, but because they think that person will make them money.
+ - I haven’t spent my entire career playing the guy in the bad hat, although I have to say that the bad guy is frequently much more interesting than the good guy.
+ - What’s really important for me is, as an old man, I’m known by my own generation and the next generation know me, too.
+ - To be a legend, you’ve either got to be dead or excessively old!
+ - Someone asked me yesterday if Dracula met Saruman and there was a fight, who would win. I just looked at this man. What an idiotic thing to say. I mean, really, it was half-witted.
+ - The saddest country I went to was Romania, years ago, during Ceausescu’s rule.
+ - You can learn Elvish, if you want. It’s a language like Italian and English. You can learn to read it, you can learn to write it, and you can learn to speak it.
+ - I associate heavy metal with fantasy because of the tremendous power that the music delivers.
+ - I’m much softer than people think. I don’t present to the world an emotional face. I’m pretty good at self-control, but I am easily moved.
+ - I think acting is a mixture of instinct, imagination and inventiveness. All you can learn as an actor is basic technique.
+ - The secret to a long marriage in the film industry? Marry someone wonderful, as I did. And always have her come along on location.
+ - Acting is like a snowstorm or perhaps a large empty vacuum. I’m not deluded by the fact that I’m getting all these offers for work, I’m very happy about it, but I know also that there is the other side and who knows, next year, they may not offer me anything. You never know.
+ - There was a gap of seven years between the first and second Dracula movies. In the second one as everybody knows, I didn’t speak, because I said I couldn’t say the lines.
+ - I was always fascinated by fairy stories, fantasy, you know, demons, necromancers, gods and goddesses, everything that is out of our kin and out of our everyday world. I was always interested in enchantment and magicians and still am.
+ - Comedy is the most difficult thing to do. Easily the most difficult.
+ - In Britain, any degree of success is met with envy and resentment.
+ - When I first read “Lord of the Rings”, I wanted to see a film of it. But at that time, the technology wasn’t there, there was no such thing as CGI.
+ - I’ve always acknowledged my debt to Hammer. I’ve always said I’m very grateful to them. They gave me this great opportunity, made me a well known face all over the world for which I am profoundly grateful.
+ - Johnny Depp, as far as I’m concerned, is number one. Of his generation, there’s no one who can touch him. Some performers, today, it’s like looking at holes in the air.
+ - I did radio, I did television, I did opera, I did films in which I had very, very little to say. But I had a lot of experience in front of the camera, and that’s what really counts.
+ - I stopped appearing as Dracula in 1972 because in my opinion the presentation of the character had deteriorated to such an extent, particularly bringing him into the contemporary day and age, that it really no longer had any meaning.
+ - There are many vampires in the world today – you only have to think of the film business.
+ - I thought that people should know about the dangers of Satanism, and diabolism does exist – there’s no question about it.
+ - Peter Jackson’s instincts are extraordinary, as is his stamina.
+ - I didn’t want to be known as a man who only made horror films. I made some – very few.
+ - I don’t play long parts. They must be short parts, but they’ve got to be parts that mean something, that matter, where people will notice when I’m on the screen, and people will remember the character after they’ve seen the film.
+ - Making films has never just been a job to me, it is my life. I have some interests outside of acting – I sing and I’ve written books, for instance – but acting is what keeps me going, it’s what I do, it gives life purpose.
+ - The song “My Way” is a very remarkable song. It is also difficult to sing because you’ve got to convince people that what you’re singing about is the truth. It’s a man who is very proud of having achieved everything that he’s achieved his way.
+ - It’s a band singing on how metal should be played, the effect it has on the band and its listeners.
+ - If I had any deadly secrets, I wouldn’t still be alive.
+ - The Dracula movies are probably some of the most famous and enduring ones there are and I am very grateful to them, for sure.
+ - I lived for 10 years in Los Angeles, and the one element that surpasses everything else – that you are very conscious of – is fear. You can smell it.
+ - People should not pass judgment until they have seen the film.
+ - I’ve done a lot of films that have become iconic, not necessarily because of me.
+ - I wasn’t a spy. I’d have been spotted in five seconds. Yes, I was in intelligence, but that covered a multitude of things.
+
+44 quotes

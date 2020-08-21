@@ -1,0 +1,41 @@
+ - A goal without a deadline is just a dream.
+ - I’m a very nice guy, but don’t mistake my kindness for weakness.
+ - Don’t start a business. Find a problem, Solve a problem, The business comes second.
+ - If you’re hard on yourself, life will be easy on you.
+ - Business is a sprint until you find an opportunity, then it’s the patience of a marathon runner.
+ - Some people will lie to you because they mean to. Others will do it to tell you what you want to hear.
+ - I’m intrigued that the same letters from the alphabet are used in the word silent and in the word listen. Perhaps it’s evidence that the most important part of listening involves remaining silent.
+ - You can never be satisfied as an entrepreneur, and the basis of any successful, growing business is new clients.
+ - I don’t look at failure as death, I don’t look at failure as finality. I just look at it and pick myself up and say ‘we shouldn’t have done that’ and move on.
+ - Cash is the lifeblood of your business. There are very few things in business that will kill you, but running our of cash is one of those things. You can recover from almost any other mistake, but if you run out of cash you’re dead.
+ - Being overly sensitive to rejection can become a destructive virus.
+ - You have to have something bigger than you. You have to have a goal that is greater than you.
+ - People who succeed in life have a need for something greater than themselves.
+ - Long before I had money, my passion for cars was there.
+ - I like to invest in people that I like to hang with.
+ - What is great about entrepreneurship is that entrepreneurs create the tangible from the intangible.
+ - Without the ability to visualize a goal and believe it will be reached, nothing of substance will be achieved. Not by anybody. Not at any time. Not in any place.
+ - Successful businesspeople retain a quality most others not only lack but often fail to comprehend, and that’s the unrelenting drive to convert a vision into reality. They are driven to realize this goal in a manner that appears to defy logic among others who lack this drive.
+ - Be risky at work. Be safe with your investments.
+ - I never dreamed I could build a $100 million company. I just happened to build a $1 million company that became a $5 million company, and so on.
+ - The best way to get past doubt and inexperience is simply action.
+ - It is human nature, especially as we get older, to look for stability in our lives. But if you want to be a successful entrepreneur, you have to fight against that somewhat, as starting a business requires movement. You cannot stay still.
+ - Just like any business is a living, breathing thing, an entrepreneur has to be able to adapt over time.
+ - When I was a waiter, I wanted to be the best waiter I could be and worked to be better at it every day.
+ - I came from a communist country where there are no luxury cars.
+ - Don’t ever be enamored by what something sells for. It’s more important what you get to keep in your pocket.
+ - Oh, I’m all about small business. I think what we’ve learned from big business and big Wall Street is that unchecked greed and the creation of false value gets us all in trouble. If we look at the American economy, who’s really creating value? It’s the small businesses.
+ - You can’t rush the miles. No matter how fast I run, the five miles isn’t going to be done in the first five minutes.
+ - People ask, ‘Are entrepreneurs born, or are they made?’ I think it’s a combination of both.
+ - If you’re emotional and you’re great at something, the money will follow.
+ - I was one of those guys who never wanted to start their own business. I never saw myself as a leader. I saw myself as a great No. 2.
+ - Older cars tend to drive like older cars. That is not for me.
+ - I’m really inspired to build a billion-dollar company. The hardest part is building the vehicle to get you there.
+ - I own a Ferrari race team, and we race all over North America.
+ - If you are under the illusion that you can start a business and run it at your life’s schedule, you are mistaken. The business is like a starving puppy – when it needs to eat, then it needs to eat regardless of what you have going on personally.
+ - I have my mother’s hips. The minute I eat it, it ends up on my hips.
+ - I balance my meals. I have never been a big dessert guy.
+ - I was raised by my grandmother on a farm, where we were really poor – we had dirt floors – but so did everybody else.
+ - I try to get in one, one-hour spinning class per week.
+
+39 quotes

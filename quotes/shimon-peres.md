@@ -1,0 +1,81 @@
+ - To find a cause that’s larger than yourself and then to give your life to it.
+ - The most important thing in life is to dare. The most complicated thing in life is to be afraid. The smartest thing in the world is to try to be a moral person.
+ - Optimists and pessimists die the exact same death, but they live very different lives!
+ - It’s better to be controversial for the right reasons, than to be popular for the wrong reasons.
+ - For me, dreaming is simply being pragmatic.
+ - Until the Yom Kippur War, in 1973, until then Israel didn’t have a chance but to fight for her life. We were attacked five times, outgunned, outnumbered, on a small piece of land, and our main challenge was to remain alive.
+ - If you eat three times a day, you become fat. If you read three times a day, you become wise. It’s better to be wise than fat.
+ - You don’t make peace with friends. You make it with very unsavory enemies.
+ - The Holocaust is a great warning to us all. We shall never forget our sisters and brothers. We have to ensure it is not repeated and to ensure we never go back to the days when humans behaved as beasts. Forgetfulness is a menace, we must remember.
+ - Polls are like perfume-nice to smell, dangerous to swallow.
+ - If a problem has no solution, it may not be a problem, but a fact – not to be solved, but to be coped with over time.
+ - In Israel, a land lacking in natural resources, we learned to appreciate our greatest national advantage: our minds. Through creativity and innovation, we transformed barren deserts into flourishing fields and pioneered new frontiers in science and technology.
+ - You’re as young as your dreams, not as old as your calendar.
+ - Television has made dictatorship impossible but democracy unbearable.
+ - I read when I get up in the morning, when I can during the day and every single evening. Most of my weekends are spent reading great books. Books are my constant companions. If you eat three times a day you’ll be fed. But if you read three times a day you’ll be wise.
+ - The problem of the Middle East is poverty more than politics.
+ - We should use our imagination more than our memory.
+ - You can kill a thousand; you can bring an end to life; you cannot kill an idea.
+ - When you have two alternatives, the first thing you have to do is to look for the third that you didn’t think about, that doesn’t exist.
+ - I was learning, as I did in the Ministry of Defense. I never knew, but I always learned.
+ - We have to take care about nature as much as nature is taking care about us. Nature is very kind with us. And if you want to enjoy the gifts of nature and the promises of nature, we have to defer to nature and its needs, its rules, its norms.
+ - Why cross and ocean when you can cross a river? Why should we sail to Washington when we can meet right away 10 miles from here?
+ - In the Middle East, the conflict today is a matter of generations and not of cultures.
+ - My heart goes out to the brave citizens of Syria, who each day risk and even sacrifice their lives to achieve freedom from a murderous regime. We in Israel welcome the historic struggle to forge democratic, peace-loving governments in our region.
+ - The president of Iran should remember that Iran can also be wiped off the map.
+ - He taught me literature, and he actually taught me how to read. He was my personal mentor.
+ - Germany and Israel should dream together for a Middle East in which all the countries are willing to exchange the dispute of the parents with peace for their children.
+ - If world is suspicious that Israel may detonate nuclear bomb and if the suspicion is a deterrent – that’s good enough.
+ - Israel is moving from the realm of poetry to the realm of prose.
+ - The uprising in Egypt was initiated by the young generation. The uprising achieved two things. One is it made the lives of dictators impossible. Today, if you are looking for a safe job, don’t become a dictator.
+ - Bulgaria is a true friend of Israel, that stood up to save the Jewish people 70 years ago in Europe, and who stood by throughout the terror attack that took place in Burgas last July.
+ - A solution of two national states – a Jewish state, Israel; an Arab state, Palestine. The Palestinians are our closest neighbors. I believe they may become our closest friends.
+ - Look, we have existed for 4,000 years – 2,000 years in diaspora, in exile. Nobody in the Middle East speaks their original language but Israel. When we started 64 years ago, we were 650,000 people. So, you know, we are maybe swimming a little bit against the stream, but we continue to swim.
+ - The present Arab uprising didn’t stem from Israel. The old guard is trying to keep down the young chickens. The old guard is better organized. They may win elections, but unless they have a solution to poverty, to corruption, to oppression, they will not last. I am with the young people.
+ - I don’t think anybody who carries a rifle carries the future. Because I don’t believe that you can really change the world by killing and shooting. You have the change it by creating and competing.
+ - From my earliest youth, I have known that while one is obliged to plan with care the stages of one’s journey, one is entitled to dream, and keep dreaming, of its destination.
+ - The internet, Facebook and Twitter have created mass communications and social spaces that regimes cannot control.
+ - One of the most important branches of the Egyptian economy is tourism. No bikinis, no tourism. So they have to decide what to do.
+ - Today, Israel is stronger than ever. Israel has defensive tools of its own – those developed in the past and those developed today and those that will be developed tomorrow.
+ - In order to prevent Iran from becoming a nuclear country you have to introduce a system of verification and inspection.
+ - The older generation had greater respect for land than science. But we live in an age when science, more than soil, has become the provider of growth and abundance. Living just on the land creates loneliness in an age of globality.
+ - You know who is against democracy in the Middle East? The husbands. They got used to their way of life. Now, the traditional way of life must change. Everybody must change. If you don’t give equal rights to women, you can’t progress.
+ - Now, I learned soon enough, that among the three, two don’t trust the third one – the third one is the government. Both industry and unions feel the government is a talking organization and a spending organization.
+ - He was the editor of our paper. He created the publishing house in Hebrew. He was – I wouldn’t say the “guru” – but really he was our teacher and a most respected man. I wrote for the paper of the youth movement.
+ - Iran is a great problem, but not necessarily a great country. In fact, I think it is a very weak country.
+ - Israel’s doors are open to collaboration with Bulgaria.
+ - I have a brother younger than me. My mother was a librarian, so from her, I got the taste to read.
+ - I will confine myself to reaffirming the Israel will not be the first country to introduce nuclear weapons to the region.
+ - Terrorists and murderers are so dangerous. We shouldn’t fall victim to believe that they are immune.
+ - We asked the workers to give up 25 percent of their salaries. Imagine! We asked the industrialists to freeze all costs, no matter what the inflation is.
+ - You know when civilization began? With the invention of the mirror.
+ - What should be the future of Israel? Is the land the most important choice, and for that reason to keep the whole of the land at any cost, or to have a partition and build the Jewish state on part of the land? And the other part?
+ - It’s a morality that keeps humans human.
+ - I think I was a good student, because I jumped over a school. My main interest was basically history and literature. Sports were basically basketball and swimming at a pool. I was so happy.
+ - In every war, there are always elements of blindness.
+ - And this would normalize the existence of the Israeli and the Jew: a majority of Jews in the Land of Israel and a majority of Israelis among the Jewish People.
+ - I believe that peace with the Palestinians is most urgent – urgent than ever before. It is necessary. It is crucial. It is possible. A delay may worsen its chances. Israel and the Palestinians are, in my judgment, ripe today to restart the peace process.
+ - Hamas married the Iranians. It was their choice. They are the same family.
+ - Israel was born under the British mandate. We learned from the British what democracy means, and how it behaves in a time of danger, war and terror. We thank Britain for introducing freedom and respect of human rights both in normal and demanding circumstances.
+ - I joined the army as a private. I was offered a rank at that time, but I refused. I preferred to remain a private. First of all, I wasn’t taken by ranks, and before I knew it, they put me in the most sensitive positions anyway.
+ - They thought that I was a man with reasonable judgment, so I was never under pressure from my parents; I could do whatever I wanted. I never had a negative word from them, nothing whatsoever.
+ - The Middle East is replete with both new and old threats. One should not underestimate these threats, but not be alarmed by them either. Israel is stronger today than ever.
+ - I worked with a group of people who argued day and night – professors, officials, the Minister of Finance – but there were decisions that I had to make.
+ - We checked carefully the international law – what does a nation do when terrorists are using civilians to defend their life, as a shelter. And they say you do not have a choice.
+ - Look, Israel doesn’t intend to introduce nuclear weapons, but if people are afraid that we have them, why not? It’s a deterrent.
+ - Leading the Jewish people is not easy – we are a divided, obstinate, highly individualistic people who have cultivated faith, sharp wittedness and polemics to a very high level.
+ - Historic justice has been done by killing Saddam.
+ - The United States is the only power in history that became great by giving and not by taking. I think the crisis was when the United States had more money than ideas. Money doesn’t produce money. Ideas produce money.
+ - The history of Israel is divided into two parts. One, under attack that we have had to defend ourselves. When you defend yourself your thinking is totally different from when you want to make peace. So under attack you behave like if you want a hawk, when peace comes you become a dove.
+ - I think peace should be done not only among governments but among people. It was impossible before the Facebook.
+ - In the past, most wars were motivated by the idea of nationhood. Today, however, wars are incited above all using religion as an excuse.
+ - There is in England a saying that an anti-Semite is someone who hates the Jews more than is necessary.
+ - Bringing an end to the conflict between Israel and the Palestinians may help the young Arab generation to realise their aspirations. Israel is more than willing to offer our experience in building a modern economy in spite of limited resources to the whole region.
+ - Early in the morning, I fell in love with the girl that later on became my wife. At that time, we were so naive. I wanted to charm her, so I read her Capital by Marx. I thought somehow she would be convinced by the strength of his criticism about capital.
+ - What is wrong with the Iranians in addition to the nuclear bomb? This is the only country on Earth in the 21st century that has renewed imperialistic ambitions. They really want to become the hegemon of the Middle East in an age that gave up imperialism.
+ - Later on, there were some problems with our navy, so he made me the head of the navy – all things that I hardly knew anything about. I was basically an ignorant young man.
+ - We are the only country who is an ally of the United States that never asked for American soldiers.
+ - Peace with the Palestinians will open ports of peace all around the Mediterranean. The duty of leaders is to pursue freedom ceaselessly, even in the face of hostility, in the face of doubt and disappointment. Just imagine what could be.
+ - The Iranian regime suppresses its own people as well as others in the region. It prevents peace by sponsoring terror globally. With the ultimate weapon that it is deceptively developing, the regime aims to gain hegemony over the entire Middle East and hold the world’s economy hostage.
+
+79 quotes

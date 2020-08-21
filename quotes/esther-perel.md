@@ -1,0 +1,41 @@
+ - Mystery is not always about travelling to new places, it is about looking with new eyes.
+ - Love rests on two pillars: surrender and autonomy. Our need for togetherness exists alongside our need for separateness.
+ - When there is nothing left to hide, there is nothing left to seek.
+ - Love is a vessel that contains both security and adventure, and commitment offers one of the great luxuries of life: time. Marriage is not the end of romance, it is the beginning.
+ - Trouble looms when monogamy is no longer a free expression of loyalty but a form of enforced compliance.
+ - If you start to feel that you have given up too many parts of yourself to be with your partner, then one day you will end up looking for another person in order to reconnect with those lost parts.
+ - People cheat on each other in a hundred different ways: indifference, emotional neglect, contempt, lack of respect, years of refusal of intimacy. Cheating doesn’t begin to describe the ways that people let each other down.
+ - It’s our imagination that’s responsible for love, not the other person.
+ - Love is at once an affirmation and a transcendence of who we are.
+ - Love enjoys knowing everything about you; desire needs mystery.
+ - Eroticism thrives in the space between the self and the other.
+ - Erotic intelligence stretches far beyond a repertoire of sexual techniques. It is an intelligence that celebrates curiosity and play, the power of the imagination, and our infinite fascination with what is hidden and mysterious.
+ - The very ingredients that nurture love – mutuality, reciprocity, protection, worry, responsibility for the other – are sometimes the very ingredients that stifle desire.
+ - You never know your partner as well as you think.
+ - Very often we don’t go elsewhere because we are looking for another person. We go elsewhere because we are looking for another self. It isn’t so much that we want to leave the person we are with as we want to leave the person we have become.
+ - Our partner’s sexuality does not belong to us. It isn’t just for and about us, and we should not assume that it rightfully falls within our jurisdiction.
+ - In desire, there must be some small amount of tension. And that tension comes with the unknown, the unpredictable. You can close yourself off at home and say, “Whew, at last I’m in a place where I don’t have to worry,” or you can keep yourself open to the mystery and elusiveness of your partner.
+ - On some level we trade passion for security, that’s trading one illusion for another. It’s a matter of degree. We can’t live in constant fear, but we can’t live without any. The fear of loss is essential to love.
+ - I want to engage people in an honest, enlightened, and provocative conversation about the nature of erotic desire and the intricacies of intimacy and sexuality. The object of my game is to bring nonjudgmental, multicultural understanding to the challenges and choices of modern relationships.
+ - The secret to desire in a long-term relationship.
+ - Women – – and men – – need to understand that a woman’s transition is often much longer. The caretaker must leave the place of orientation to the needs of others to the place where she focuses on herself.
+ - In my community there were two groups of people, There were the ones who did not die and the ones who came back to life.
+ - Modern love is the enterprise that everyone wants to be a part of, yet there’s a fifty percent divorce rate in round one and a sixty-five percent divorce rate in round two.
+ - When we seek the gaze of another, it isn’t always our partner we’re turning away from, but the person we have ourselves become.
+ - Success, to me, is helping one person or many people counter the isolation and pseudoconnectivity of our lives by boosting their ability to connect to themselves and to others.
+ - Most of us will get turned on at night by the very same things that we will demonstrate against during the day – the erotic mind is not very politically correct.
+ - Today, our sexuality is an open-ended personal project; it is part of who we are, an identity, and no longer merely something we do.
+ - Affairs can be powerful detonators. They can invigorate a marriage that’s flat, jolt people out of years of complacency. Fear of loss rekindles desire, makes people have conversations they haven’t had in years, takes them out of their contrived illusion of safety.
+ - Romantics value intensity over stability. Realists value security over passion. But both are often disappointed, for few people can live happily at either extreme.
+ - It’s hard to feel attracted to someone who has abandoned her sense of autonomy.
+ - Everyone should cultivate a secret garden.
+ - In dating, if you say no, your lover goes on to the next person. In marriage, if you say no, the person stays.
+ - The mom doesn’t become sexy; the woman does. You have to retrieve the woman from the mother. And she may need to separate to do that: a bath, a walk. She must cordon off an erotic space.
+ - The attraction of dating is that you don’t take yes for granted – – you’re fully engaged, there’s seductiveness, tension.
+ - Are you asking a question because you want to know the answer or are you asking the question because you want your partner to know that you are having this question?
+ - Today, monogamy is one person at a time.
+ - There’s something very full in knowing that your partner accepts you as is.
+ - We used to moralize; today we normalize, and performance anxiety is the secular version of our old religious guilt.
+ - Sometimes it has to do with other longings that are much more existential. Sometimes you go elsewhere not because you are not liking the one you are with; you are not liking the person you have become.
+
+39 quotes

@@ -1,0 +1,53 @@
+ - Every beginning has an end and every end is a new beginning.
+ - Trust starts with truth and ends with truth.
+ - We are addicted to our thoughts. We cannot change anything if we cannot change our thinking.
+ - Friendship is selfless love, care, respect, and honor not a profitable opportunity.
+ - Love has no culture, boundaries, race and religion. It is pure and beautiful like early morning sunrise falling in lake.
+ - My friends are everything without me but I am nothing without my friends.
+ - Trust yourself, you will start to trust others.
+ - Born to be wild; born to be free; nobody owns you; you are, a romantic tree.
+ - If I can see pain in your eyes then share with me your tears. If I can see joy in your eyes then share with me your smile.
+ - Always be fearless. Walk like lion, talk like pigeons, live like elephants and love like an infant child.
+ - Life without risk is life wasted.
+ - Always be like a water. Float in the times of pain or dance like waves along the wind which touches its surface.
+ - What you had yesterday is only memories; what you will have tomorrow is your dreams and what you will do today, let it be love.
+ - Never cry because you have mountains of problem in your hands to solve. Always smile because each problems will someday resolve.
+ - Do what you love, think what you feel and live the way you want.
+ - If life is a journey then let my soul travel and share your pain.
+ - Enjoy every bit of your life to the fullest. Your compromises and sacrifices will be rewarded.
+ - Those people, who hate you, envy your freedom.
+ - It does not matter where you go and what you study, what matters most is what you share with yourself and the world.
+ - Never stop just because you feel defeated. The journey to the other side is attainable only after great suffering.
+ - Nothing remains forever, only thing that remain forever is romantically stupid word forever.
+ - Earth is sad, Moon is shy, Sun is happy but wait a moment, I just forgot to tell you that I am the child of open sky.
+ - By 20, you should be smart. By 30, you should be strong. By 40, you should be rich. By 50, you should be wise. But if you are smart, strong, rich and wise, you don’t need any age limits.
+ - Her happiness floated like waves of ocean along the coast of her life. She found lyrics of her life in his arms but she never sung her song.
+ - Nothing shakes the smiling heart.
+ - Student: I don’t feel like living anymore. Teacher: If you don’t feel like doing something then don’t do. This means that in finding many ways how not to live your life, you have the possibility to discover how to live your life.
+ - I was lost yesterday, I am found today and I will be forgotten tomorrow.
+ - Wake up, Shake up, Make up and Break up; life is all about moving like ant in search of sugar not sand.
+ - Life is an experiment in which you may fail or succeed. Explore more, expect least.
+ - Only if you are possible, everything will be possible.
+ - My dream, is to dream, a dream.
+ - See mirror, every time you will miss me and look deeper into your eyes till you will find me.
+ - Have you ever seen the stars in the night? See them closely, they will tell you, how to be open, how to love and how to shine and twinkle without any differences and jealousy of other stars.
+ - Everything changes except the love.
+ - I don’t care what you say to me. I care what you share with me.
+ - An alternative to love is not hate but patience.
+ - I am too young to be called wise and I am too old to be called young.
+ - The saddest line you scraped in your diary was not that you cried but those moments when we both shared smile.
+ - You only get one life. Live it to the fullest. All your miseries will be forgiven when you will be dead.
+ - A heart has problems which mind cannot understand.
+ - You will receive most when you will expect least.
+ - If you claim to be a real friend then be real in your soul. If you claim to be fake then be an enemy instead.
+ - Come on, gentleman; let us drink to our stupidity.
+ - A strong gives forgiveness but weak gives permission.
+ - To love is easy, to be in a relationship is extremely difficult.
+ - I am alive because I know how to love love.
+ - The truth about life and lie about life is not measured by others but by your intuition, which never lies.
+ - It is when things are at worst you will get the best.
+ - There are two ways to live a life either forget everything or, remember nothing.
+ - Friends are like bras, attached near your heart for support. Foes are like panties, deported, every now and then, when they get dirty.
+ - No human should mislead another by promising them something they know to be untrue.
+
+51 quotes

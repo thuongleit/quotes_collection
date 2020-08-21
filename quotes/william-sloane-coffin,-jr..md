@@ -1,0 +1,53 @@
+ - Diversity may be the hardest thing for a society to live with, and perhaps the most dangerous thing for a society to be without.
+ - The world is too dangerous for anything but truth and too small for anything but love.
+ - In life you can either follow your fears or be led by your values, by your passions.
+ - I’m not OK, you’re not OK-and that’s OK.
+ - The one true freedom in life is to come to terms with death, and as early as possible, for death is an event that embraces all our lives. And the only way to have a good death is to lead a good life. The more we do God’s will, the less unfinished business we leave behind when we die.
+ - Charity is only a waystation on the road to justice.
+ - Love measures our stature: the more we love, the bigger we are. There is no smaller package in all the world than that of a man all wrapped up in himself.
+ - It is one thing to say with the prophet Amos, “Let justice roll down like mighty waters,” and quite another to work out the irrigation system.
+ - To show compassion for an individual without showing concern for the structures of society that make him an object of compassion is to be sentimental rather than loving.
+ - Hope arouses, as nothing else can arouse, a passion for the possible.
+ - Socrates had it wrong; it is not the unexamined but finally the uncommitted life that is not worth living.
+ - Without love, violence will change the world; it will change it into a more violent one.
+ - Truth is always in danger of being sacrificed on the altars of good taste and social stability.
+ - I love the recklessness of faith. First you leap, and then you grow wings.
+ - It is a mistake to look to the Bible to close a discussion; the Bible seeks to open one.
+ - Unity is not something we are called to create; it’s something we are called to recognize.
+ - We put our best foot forward, but it’s the other one that needs the attention.
+ - There are three kinds of patriots, two bad, one good. The bad ones are the uncritical lovers and the loveless critics. Good patriots carry on a lover’s quarrel with their country, a reflection of God’s lover’s quarrel with all the world.
+ - In our time all it takes for evil to flourish is for a few good men to be a little wrong and have a great deal of power, and for the vast majority of their fellow citizens to remain indifferent.
+ - If your heart is full of fear, you won’t seek truth; you’ll seek security. If a heart is full of love, it will have a limbering effect on the mind.
+ - Compassion and justice are companions, not choices.
+ - God knows it is emotionally satisfying to be righteous with that righteousness that nourishes itself on the blood of sinners. But God also knows that what is emotionally satisfying can be spiritually devastating.
+ - Love is in the giver, not the gift.
+ - There is nothing anti-intellectual in the leap of faith, for faith is not believing without proof but trusting without reservation.
+ - People who fear disorder more than injustice will only produce more of both.
+ - Nuclear Weapons merit unequivocal and unhesitating condemnation.
+ - To be avoided at all costs is the solace of opinion without the pain of thought.
+ - We are not loved because we are valued; we are valued because we are loved.
+ - For finally, we are as we love. It is love that measures our stature.
+ - When a man is drowning, it may be better for him to try to swim than to thrash around waiting for divine intervention.
+ - Isn’t that what growing up is all about – learning to outlast despair?
+ - All of life is the exercise of risk.
+ - Human beings who blind themselves to human need make themselves less human.
+ - I’m delighted that the future is unsure. That’s the way it should be.
+ - The cause of violence is not ignorance. It is self-interest. Only reverance can restrain violence – reverance for human life and the environment.
+ - The woman most in need of liberation is the woman in every man and the man in every woman.
+ - I asked an 85 year old professor, ‘What makes you cry?’ He said, ‘Whenever I see or hear the truth.’
+ - We must be governed by the force of law, not by the law of force.
+ - What is faith? Faith is being grasped by the power of love.
+ - A spiritual person tries less to be godly than to be deeply human.
+ - Christians have to listen to the world as well as to the Word – to science, to history, to what reason and our own experience tell us. We do not honor the higher truth we find in Christ by ignoring truths found elsewhere.
+ - Faith handles the ultimate incongruities of life, humor handles the more immediate ones.
+ - It is often said that the Church is a crutch. Of course it’s a crutch. What makes you think you don’t limp?
+ - Love measures our stature: the more we love, the bigger we are.
+ - Christ came to take away our sins, not our minds.
+ - We have sold our birthright of freedom and justice for a mess of national security.
+ - We call on all members of America’s religious communities, as a testament of our common faith, to join Faithful Security, and to take action immediately to break faith with nuclear weapons.
+ - It is not because we have value that we are loved, but because we are loved that we have value. Our value is a gift, not an achievement.
+ - It’s so much easier to beat your breast than to stick your neck out.
+ - The temptation to moralize is strong; it is emotionally satisfying to have enemies rather than problems, to seek out culprits rather than the flaws in the system.
+ - Every nation makes decisions based on self-interest and defends them on the basis of morality.
+
+51 quotes

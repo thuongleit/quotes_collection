@@ -1,0 +1,23 @@
+ - Your eyes smile peace.
+ - Beauty without the beloved is a like a sword through the heart.
+ - You have been mine before – How long ago I may not know: But just when at that swallow’s soar, your neck turned so, Some veil did fall, – I knew it all of yore.
+ - I am not as these are, the poet saithIn youth’s pride, and the painter, among menAt bay, where never pencil comes nor pem.
+ - The sea hath no king but God alone.
+ - Gather a shell from the strewn beach And listen at its lips: they sigh The same desire and mystery, The echo of the whole sea’s speech.
+ - Sudden Light I have been here before, But when or how I cannot tell: I know the grass beyond the door, The sweet keen smell, The sighing sound, the light around the shore.
+ - Look in my face; my name is Might-have-been; I am also call’d No-more, Too-late, Farewell;.
+ - Sometimes thou seem’st not as thyself alone, But as the meaning of all things that are.
+ - The Wombat is a Joy, a Triumph, a Delight, a Madness!
+ - Beauty like hers is genius.
+ - Deep in the sun-searched growths the dragon-fly Hangs like a blue thread loosened from the sky: So this winged hour is dropt to us from above. Oh! clasp we to our hearts, for deathless dower, This close-companioned inarticulate hour When twofold silence was the song of love.
+ - It is beautiful, the world, and life itself. I am glad I have lived.
+ - Tis visible silence, still as the hour-glass.
+ - Unto the man of yearning thought And aspiration, to do nought Is in itself almost an act.
+ - Love is the last relay and ultimate outposts of eternity.
+ - I plucked a honeysuckle where The hedge on high is quick with thorn, And climbing for the prize, was torn, And fouled my feet in quag-water; And by the thorns and by the wind The blossom that I took was thinn’d, And yet I found it sweet and fair.
+ - The worst moment for the atheist is when he is really thankful and has nobody to thank.
+ - Was it a friend or foe that spread these lies; Nay, who but infants question in such wise, twas one of my most intimate enemies.
+ - Love, which is quickly kindled in the gentle heart, seized this man for the fair form that was taken from me, the manner still hurts me. Love which absolves no beloved one from loving, seized me so strongly with his charm that, as thou seest, it does not leave me yet.
+ - Places that are empty of you are empty of life.
+
+21 quotes

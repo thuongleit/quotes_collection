@@ -1,0 +1,61 @@
+ - If you don’t have music, you have silence. There is power in both.
+ - I think music has the power to transform people, and in doing so, it has the power to transform situations – some large and some small.
+ - I have hope in people, in individuals. Because you don’t know what’s going to rise from the ruins.
+ - Hypothetical questions get hypothetical answers.
+ - If you swing both ways, you really swing. I just figure you double your pleasure.
+ - As long as one keeps searching, the answers will come.
+ - There’s a consensus out that it’s OK to kill when your government decides who to kill. If you kill inside the country you get in trouble. If you kill outside the country, right time, right season, latest enemy, you get a medal.
+ - To love means you also trust.
+ - Someone had to change the world. And obviously I was the one for the job.
+ - If you’re gonna sing meaningful songs, you have to be committed to living a life that backs that up.
+ - That’s all nonviolence is – organized love.
+ - All of us are survivors, but how many of us transcend survival?
+ - Put tattoos all up and down our thighs, do anything our parents would despise. Take uppers, downers, blues, and reds and yellows, our brains are turning into jello.
+ - Now I know I understand that it was Sgt. Pepper’s Band, that put the sixties into song, where have all the heroes gone?
+ - My life is a crystal teardrop. There are snowflakes falling in the teardrop and little figures trudging in slow motion.
+ - The point of nonviolence is to build a floor, a strong new floor, beneath which we can no longer sink. A platform which stands a few feet above napalm, torture, exploitation, poison gas, A and H bombs, the works. Give man a decent place to stand.
+ - Sometimes I get lonesome for a storm. A fullblown storm where everything changes.
+ - I was trying to disturb the war.
+ - The easiest kind of relationship for me is with ten thousand people. The hardest is with one.
+ - There is chaos. There’s bloodshed. There’s carnage.
+ - I went to jail for 11 days for disturbing the peace; I was trying to disturb the war.
+ - Some people don’t even notice. “Oh, you sound exactly like you did!” And I say, “OK, if that’s what you want to believe, that’s fine.”
+ - Only you and I can help the sun rise each coming morning. If we don’t, it may drench itself out in sorrow.
+ - The hardest song to write is a protest song, a topical song with meaning.
+ - Social change really cannot happen unless people are willing to take a risk, and they were. And I was so moved by that, and of course by the way that he spoke, that made a huge dent in my belief system and my spirit.
+ - I don’t think of myself as a symbol of the sixties, but I do think of myself as a symbol of following through on your beliefs.
+ - The longer you practice nonviolence and the meditative qualities of it that you will need, the more likely you are to do something intelligent in any situation.
+ - As we know, forgiveness of oneself is the hardest of all the forgivenesses.
+ - We were raised with that discussion about violence and non-violence, and we all pretty much came up on the side of non-violence. That became my foundation with politics and my livelihood.
+ - Peace might sell, but who’s buying?
+ - The foundation of my beliefs is the same as it was when I was 10. Non-violence.
+ - I have been true to the principles of nonviolence, developing a stronger and stronger aversion to the ideologies of both the far right and the far left and a deeper sense of rage and sorrow over the suffering they continue to produce all over the world.
+ - I’m lucky to have met so many people who have been involved in peace and who have been peace prize winners.
+ - If it’s natural to kill, how come men have to go into training to learn how?
+ - During the ‘ballad’ years for me, the politics was latent; I was just falling in love with the ballads and my boyfriend. And there was the beauty of the songs.
+ - I’d hear a tune in my head and the words would come. And then, very suddenly it just stopped. It seemed too stilted to try and learn how to write a song, to go to round robins and to learn things from other people on how to write a song. So I just stopped and did other things.
+ - We’re not really pacifists, we’re nonviolent soldiers.
+ - The search is in the doing.
+ - I’ve been obsessed with stopping people from blowing each other’s brains out since I was ten.
+ - The point on nonviolence is to build a floor, a strong new floor, beneath which we can no longer sink.
+ - Instead of getting hard ourselves and trying to compete, women should try and give their best qualities to men – bring them softness, teach them how to cry.
+ - People say I’m such a pessimist, but I always was. It never stopped me from doing what I had to do. I would say I’m a realist.
+ - Mostly what I listen to when I turn on my little iPod is opera.
+ - And my voice now is a struggle, it’s a daily struggle to keep it up. Gravity has begun to fight the vocal cords the way it does with everybody. So I have a vocal therapist, and we record the sessions and I use them on tour every day.
+ - It seems to me that those songs that have been any good, I have nothing much to do with the writing of them. The words have just crawled down my sleeve and come out on the page.
+ - I think the question that nobody wanted to deal with is the question they’re posing: did my kid die in vain? Because the answer is too awful.
+ - Living so fully, I can’t imagine what any drug could do for me.
+ - Nonviolence is a flop. The only bigger flop is violence.
+ - Seeing you sleeping peacefully on your back among your stuffed ducks, bears and basset hounds, would remind me that no matter how good the next day might be, certain moments were gone forever because we could not go backwards in time.
+ - Noise is an imposition on sanity, and we live in very noisy times.
+ - We need to have faith in the people who are giving this movement direction to be smart enough to stay one step ahead of what’s coming up next.
+ - You may not know it, but at the far end of despair, there is a white clearing where one is almost happy.
+ - When I was 16, the guest speaker was King. And I was completely overwhelmed because I had been studying nonviolence, talking about it, reading about it, but here it was happening, here it was people boycotting the buses and people on the streets and taking risks, which I think was the key.
+ - Sometimes I think that it is enough to say that if we don’t sit down and shut up once in a while we’ll lose our minds even earlier than we had expected. Noise is an imposition on sanity, and we live in very noisy times.
+ - Somebody else does the rigor and then I listen. I have an assistant, and my manager, and other people who hunt and find and send it to me, and then I just figure out which ones I can do justice to.
+ - The only thing that’s been a worse flop than the organization of nonviolence has been the organization of violence.
+ - If it came back I would be thrilled. I would be delighted to write more songs. I need them now because I want to make an album and I have to depend on other people’s music, which I’ve done for years. But still, it’d be really nice to be able to sprinkle it with my own.
+ - If people have to put labels on me, I’d prefer the first label to be human being, the second label to be pacifist, and the third to be folk singer.
+ - My dread is for my show to be a nostalgia act. So the key to it is how do we keep it fresh?
+
+59 quotes

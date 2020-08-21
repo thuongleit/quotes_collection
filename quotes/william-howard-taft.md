@@ -1,0 +1,91 @@
+ - Don’t write so that you can be understood, write so that you can’t be misunderstood.
+ - We must dare to be great; and we must realize that greatness is the fruit of toil and sacrifice and high courage.
+ - If they will play fair I will play fair, but if they won’t then I reserve all my rights to do anything I find myself able to do.
+ - Too many people don’t care what happens so long as it doesn’t happen to them.
+ - The underlying principle of Masonry is the fatherhood of God and the brotherhood of man. In this war we are engaging in upholding these principles and our enemies are attacking them.
+ - The man with the average mentality, but with control, with a definite goal, and a clear conception of how it can be gained, and above all, with the power of application and labor, wins in the end.
+ - Presidents come and go, but the Supreme Court goes on forever.
+ - The policy of dollar diplomacy is one that appeals alike to idealistic humanitarian sentiments, to dictates of sound policy, and strategy, and to legitimate commercial aims.
+ - We passed the Children’s Bureau bill calculated to prevent children from being employed too early in factories.
+ - The Masonic system represents a stupendous and beautiful fabric, founded on universal purity, to rule and direct our passions, to have faith and love in God, and charity toward man.
+ - My impression about the Panama Canal is that the great revolution it is going to introduce in the trade of the world is in the trade between the east and the west coast of the United States.
+ - Repeat mantra: Donuts are not vitamins, donuts are not...
+ - No tendency is quite so strong in human nature as the desire to lay down rules of conduct for other people.
+ - Failure to accord credit to anyone for what he may have done is a great weakness in any man.
+ - I love judges, and I love courts. They are my ideals, that typify on earth what we shall meet hereafter in heaven under a just God.
+ - We are all imperfect. We can not expect perfect government.
+ - The truth is that in my present life I don’t remember that I ever was president.
+ - The true Mason never hesitates to use the working tools to correct personal flaws.
+ - The diplomacy of the present administration has sought to respond to the modern idea of commercial intercourse. This policy has been characterized as substituting dollars for bullets.
+ - The true Mason always carries his working tools everywhere.
+ - We have a government of limited power under the Constitution, and we have got to work out our problems on the basis of law.
+ - Anti-Semitism is a noxious weed that should be cut out. It has no place in America.
+ - There is no legislation – I care not what it is – tariff, railroads, corporations, or of a general political character, that all equals in importance the putting of our banking and currency system on the sound basis proposed in the National Monetary Commission plan.
+ - The scope of modern government in what it can and ought to accomplish for its people has been widened far beyond the principles laid down by the old “laissez faire” school of political rights, and the widening has met popular approval.
+ - Well, I have one consolation. No candidate was ever elected ex-president by such a large majority!
+ - The true Mason is ever vigilant for subtle traces of character and personality flaws which daily experience brings out.
+ - I am in favor of helping the prosperity of all countries because, when we are all prosperous, the trade with each becomes more valuable to the other.
+ - Unless education promotes character making, unless it helps men to be more moral, more just to their fellows, more law abiding, more discriminatingly patriotic and public spirited, it is not worth the trouble taken to furnish it.
+ - I think I might as well give up being a candidate. There are so many people in the country who don’t like me.
+ - There is nothing so despicable as a secret society that is based upon religious prejudice and that will attempt to defeat a man because of his religious beliefs. Such a society is like a cockroach – it thrives in the dark. So do those who combine for such an end.
+ - Substantial progress toward better things can rarely be taken without developing new evils requiring new remedies.
+ - We live in a stage of politics, where legislators seem to regard the passage of laws as much more important than the results of their enforcement.
+ - Golf in the interest of good health and good manners. It promotes self-restraint and affords a chance to play the man and act the gentleman.
+ - The intoxication of power rapidly sobers off in the knowledge of its restrictions and under the prompt reminder of an ever-present and not always considerate press, as well as the kindly suggestions that not infrequently come from Congress.
+ - The Masonic Fraternity is one of the most helpful mediating and conserving organizations among men, and I have never wavered from that childhood impression, but it has stood steadfastly with me through the busy, vast hurrying years.
+ - I don’t know whither we are drifting, but I do know where every real thinking patriot will stand in the end, and that’s by the Constitution.
+ - The cheerful loser is a sort of winner.
+ - I am glad to be going. This is the lonesomest pace in the world?
+ - I’ll be damned if I am not getting tired of this. It seems to be the profession of a President simply to hear other people talk.
+ - The true Mason does not hold or teach the attitude that, I am a Master Mason now and thus I no longer need to be concerned with using the working tools because they were given in the earlier degrees.
+ - I would like to have an ample fund to spread the light of Republicanism, but I am willing to undergo the disadvantage to make certain that in the future we shall reduce the power of money in politics for unworthy purposes.
+ - Enthusiasm for a cause sometimes warps judgment.
+ - A system in which we may have an enforced rest from legislation for two years is not bad.
+ - It gives me the greatest pleasure to say, as I do from the bottom of my heart, that never in the history of the country, in any crisis and under any conditions, have our Jewish fellow citizens failed to live up to the highest standards of citizenship and patriotism.
+ - The City that knows how.
+ - As the Republican platforms says, the welfare of the farmer is vital to that of the whole country.
+ - The President cannot make clouds to rain and cannot make the corn to grow. He cannot make business good, although when these things occur, political parties do claim some credit for the good things that have happened in this way.
+ - A government is for the benefit of all the people.
+ - The game of baseball is a clean, straight game, and it summons to its presence everybody who enjoys clean, straight athletics. It furnishes amusement to the thousands and thousands.
+ - If this humor be the safety of our race, then it is due largely to the infusion into the American people of the Irish brain.
+ - A man never knows exactly how the child of his brain will strike other people.
+ - The trouble with me is that I like to talk too much.
+ - As a people, we have the problem of making our forests outlast this generation, or iron outlast this century, and our coal the next; not merely as a matter of convenience or comfort, but as a matter of stern necessity.
+ - The world is not going to be saved by legislation.
+ - The laboring man and the trade-unionist, if I understand him, asks only equality before the law. Class legislation and unequal privilege, though expressly in his favor, will in the end work no benefit to him or to society.
+ - The prosperity of Masonry as a means of strengthening our religion and propagating true brotherly love, is one of the dearest wishes of my heart, which, I trust, will be gratified by the help of the Grand Architect of the Universe.
+ - Constitutions are checks upon the hasty action of the majority. They are the self-imposed restraints of a whole people upon a majority of them to secure sober action and a respect for the rights of the minority.
+ - We are all dependent upon the investment of capital.
+ - Action for which I become responsible, or for which my administration becomes responsible, shall be within the law.
+ - There is not a subject in which I take a deeper interest than I do in the development of Alaska, and I propose, if Congress will follow by recommendations, to do something in that territory that will make it move on.
+ - No, the only things which do not bother me are the elements. I can overcome them without a fight. All one has to do to get the best of the elements is to stand pat and one will win.
+ - I am afraid I am a constant disappointment to my party. The fact of the matter is, the longer I am President the less of a party man I seem to become.
+ - The true Mason is the Tiler of the Temple of the Heart.
+ - Anyone who has taken the oath I have just taken must feel a heavy weight of responsibility. If not, he has no conception of the powers and duties of the office.
+ - Masonry aims at the promotion of morality and higher living by the cultivation of the social side of man, the rousing in him of the instincts of charity and love of his kind. It rests surely on the foundation of the brotherhood of man and the fatherhood of God.
+ - The judiciary has fallen to a very low state in this country. I think your part of the country has suffered especially. The federal judges of the South are a disgrace to any country, and I’ll be damned if I put any man on the bench of whose character and ability there is the least doubt.
+ - I know how irritating it is to have somebody else lay down rules for your moral uplift, but you’ve got to stand a great deal in order to make progress...
+ - The secrecy of Masonry is an honorable secrecy; any good man may ask for her secrets; those who are worthy will receive them. To give them to those who do not seek, or who are not worthy, would but impoverish the Fraternity and enrich not those who received them.
+ - We, as Unitarians, may feel that the world is coming our way.
+ - The true Mason takes full responsibility for the condition of his character and ever strives for its perfection.
+ - Rules of conduct which govern men in their relations to one another are being applied in an ever-increasing degree to nations. The battlefield as a place of settlement of disputes is gradually yielding to arbitral courts of justice.
+ - Socialism proposes no adequate substitute for the motive of enlightened selfishness that today is at the basis of all human labor and effort, enterprise and new activity.
+ - The game of baseball is a clean, straight game.
+ - I am president now, and tired of being kicked around.
+ - I do not believe in the divinity of Christ, and there are many other of the postulates of the orthodox creed to which I cannot subscribe.
+ - In the public interest, therefore, it is better that we lose the services of the exceptions who are good Judges after they are seventy and avoid the presence on the Bench of men who are not able to keep up with the work, or to perform it satisfactorily.
+ - We can’t have a decent government unless those in power exercise self restraint.
+ - The precepts of the Gospel were universally the obligations of Masonry.
+ - Don’t worry over what the newspapers say. I don’t. Why should anyone else? I told the truth to the newspaper correspondents – but when you tell the truth to them they are at sea.
+ - Politics, when I am in it, it makes me sick.
+ - I do not know much about politics, but I am trying to do the best I can with this administration until the time shall come for me to turn it over to somebody else.
+ - There are a great many people who are in favor of conservation no matter what it means.
+ - That all may be so, but when I begin to exercise that power I am not conscious of the power, but only of the limitations imposed on me.
+ - One cannot always be sure of the truth of what one hears if he happens to be President of the United States.
+ - I do not think that there is any doubt about where I stand in respect to boycotts. If there is, I will just state what I think about them. They are illegal and ought to be suppressed. I would never countenance that which recognizes their legality.
+ - I have come to the conclusion that the major part of the president is to increase the gate receipts of expositions and fairs and bring tourists to town.
+ - I know this, and I know it from actual experience in the Orient, that the progress of modern Christian civilization has largely depended on the earnest hard work of the Christian missions of every denomination.
+ - There is no “but” in it. The way to be an administration Senator is to vote with the Administration.
+ - The Government is able to afford a suitable army and a suitable navy. It may maintain them without the slightest danger to the Republic or the cause of free institutions, and fear of additional taxation ought not to change a proper policy in this regard.
+
+89 quotes

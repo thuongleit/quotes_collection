@@ -1,0 +1,59 @@
+ - Part of courage is simple consistency.
+ - TV gives everyone an image, but radio gives birth to a million images in a million brains.
+ - By trying to do too much, you risk not doing enough.
+ - When you forget yourself and your fear, when you get beyond self-consciousness because your mind is thinking about what you are trying to communicate, you become a better communicator.
+ - Candor is a compliment; it implies equality. It’s how true friends talk.
+ - I think miracles exist in part as gifts and in part as clues that there is something beyond the flat world we see.
+ - A speech is poetry: cadence, rhythm, imagery, sweep! A speech reminds us that words, like children, have the power to make dance the dullest beanbag of a heart.
+ - I love eulogies. They are the most moving kind of speech because they attempt to pluck meaning from the fog, and on short order, when the emotions are still ragged and raw and susceptible to leaps.
+ - I was sailing from tedium to apathy with a side trip to torpor.
+ - Speeches are not magic and there is no great speech without great policy.
+ - Humor is the shock absorber of life; it helps us take the blows.
+ - Most people aren’t appreciated enough, and the bravest things we do in our lives are usually known only to ourselves. No one throws ticker tape on the man who chose to be faithful to his wife, on the lawyer who didn’t take the drug money...
+ - Cynicism is not realistic and tough. It’s unrealistic and kind of cowardly because it means you don’t have to try. – in Good Housekeeping.
+ - Naps are nature’s way of reminding you that life is nice, like a beautiful swinging hammock strung between birth and infinity.
+ - Abortion is either OK or it’s not.
+ - The core of the concept of a bribe is an inducement improperly influencing the performance of a public function meant to be gratuitously exercised.
+ - The battle for the mind of Ronald Reagan was like the trench warfare of World War I: never have so many fought so hard for such barren terrain.
+ - We are all afraid. That’s the thing that unites all truly successful people: fear, fear of failing, fear of criticism, fear of letting down the team in some way. That why they try so hard, that’s why they pay attention to detail and try to get every possible duck in a row. It’s fear.
+ - The Irish are often nervous about having the appropriate face for the occasion. They have to be happy at weddings, which is a strain, so they get depressed; they have to be sad at funerals, which is easy, so they get happy.
+ - Here is an old tradition badly in need of return: You have to earn your way into politics. You should go have a life, build a string of accomplishments, then enter public service...
+ - Read good, big important things.
+ - A great speech is literature.
+ - Don’t fall in love with politicians, they’re all a disappointment. They can’t help it, they just are.
+ - Loyalty consists of many things, including being truthful with our friends. When you really disagree, you have to say so.
+ - Morals are concerned with what aids or impedes the fulfillment of basic human needs.
+ - The biggest political change in my lifetime is that Americans no longer assume that their children will have it better than they did. This is a huge break with the past, with assumptions and traditions that shaped us.
+ - If you join government, calmly make your contribution and move on. Don’t go along to get along; do your best and when you have to – and you will – leave, and be something else.
+ - Speeches are more important in politics than talking points, as a rule, and are better remembered.
+ - The first snow always startles. It covers the tricycle in the driveway, turning its frame into an abstact sculpture that says: See how quickly yesterday turns into today.
+ - This is the Democratic paradox: You want so much to run America and yet you seem not so fond of Americans.
+ - You don’t have to be old in America to say of a world you lived in: ‘that world is gone.’
+ - You can get so well educated in America that your thoughts become detached from common sense. You can get so complicated in your thinking that the obvious isn’t real to you anymore.
+ - The Democratic Party is that amazing thing, out of power for six years and yet exhausted. They’re pale, tired, and unready. Too bad, since it’s their job to be an alternative, not an embarrassment.
+ - Boundaries aren’t all bad. That’s why there are walls around mental institutions.
+ - Wit penetrates; humor envelops. Wit is a function of verbal intelligence; humor is imagination operating on good nature.
+ - I guess the second-term team is not quite as adoring as the first.
+ - Politicians, please, think of yourselves! Move to help Terri Schiavo, and no one will be mad at you, and you’ll keep a human being alive.
+ - Sincerity and competence is a strong combination. In politics, it is everything.
+ - My generation, faced as it grew with a choice between religious belief and existential despair, chose marijuana. Now we are in our Cabernet stage.
+ - The Democratic Party will now stick with its guy forever, no matter how harmful he is. Perhaps you call that loyalty, and perhaps there’s something to it, but a bigger part, I believe, is that you have come to think that winning is everything-that victory is the purpose of politics.
+ - Beware the politically obsessed. They are often bright and interesting, but they have something missing in their natures; there is a hole, an empty place, and they use politics to fill it up. It leaves them somehow misshapen.
+ - The 2008 election settled nothing, not even for a while. Our national politics are reflecting what appears to be going on geologically, on the bottom of the oceans and beneath the crust of the Earth: the tectonic plates are moving.
+ - But one immediate thing can be done right now, and that is: lower the temperature. Any way you can, and everybody. Just lower it.
+ - At some point, don’t voters start to see all of public life as one big polluted river? And if they do, don’t they stop saying things like “That’s a busted tire floating by” and “That’s an old shoe”?
+ - I should say here, because some in Washington like to dream up ways to control the Internet, that we don’t need to ‘control’ free speech, we need to control ourselves.
+ - Some of the stupidest brilliant people who ever lived.
+ - I do not know what the Democratic Party spent, in toto, on the 2004 election, but what they seem to have gotten for it is Barack Obama. Let us savor.
+ - What is in the air there in Washington, what is in the water? What is wrong with them? This is not a rhetorical question. I think it is unspoken question No.1 as Americans look at so many of the individuals in our government. What is wrong with them?
+ - When everyone in America knows you’re in a dreadful position, admit you’re in a dreadful position. Don’t lie about it and make them roll their eyes, tell the truth and make them blink.
+ - What conservatives and Republicans must recognize is that the White House has broken with them. What President Bush is doing, and has been doing for some time, is sundering a great political coalition.
+ - Let’s cause some senators distress.
+ - The Democrats often seem like the Not Republican Party, no more and no less.
+ - Now he is a statesman, when what he really wants is to be what most reporters are, adult delinquents.
+ - If you commit a big crime then you are crazy, and the more heinous the crime the crazier you must be. Therefore you are not responsible, and nothing is your fault.
+ - In ancient Israel and Rome the judge had appeared as a stand-in for the divine, and corruption was a blinding of the representative of the divine.
+ - The biggest improvement in the flow of information in America in our lifetimes is that no single group controls the news anymore.
+ - Resentment isn’t a magnetic personal style.
+
+57 quotes

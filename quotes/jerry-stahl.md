@@ -1,0 +1,37 @@
+ - You need an entire drama to construct your life around to avoid living it.
+ - In my family, misery didn’t just love company, it wanted hostages.
+ - The art and act of writing – speaking just for myself – involves getting your proverbial ass in the proverbial chair.
+ - There was a weird intimacy, sitting in a car together. Couples sat in cars. Cops and their partners. Strangers became unstrange, sharing a windshield view of the world.
+ - A waft of sweet hash drifted by, and I wanted to float after it like Wimpy levitating at the scent of a hamburger.
+ - To me, God is like this happy bus driver.
+ - I always tell myself, when I remember the non-stop self-generated hell party that used to be my life, I wouldn’t be here if I didn’t go there.
+ - Life can be lived as a temporary arrangement. Life is a temporary arrangement! But the longer you go without changing, the more obscure the likelihood you ever will. After enough time passes, the idea of another way of life grows even more misty.
+ - I think it’s just too kinda juicy and compelling to imagine people in their private lives, but then half the time people’s private lives are just so much more bizarre and Ted Haggard-like than you could ever imagine. It’s almost hard to write fiction anymore.
+ - Rumi will transform you, in ways you didn’t know you needed transforming.
+ - My own theory is that people are just so desperate for somebody they can feel better than, in America. Now that everyone’s going broke and working 17 jobs – if they have one at all – at least they can look at these guys behind bars and think, “At least I get to wear my own clothes to work.”
+ - You may think you don’t want to throw your life away for mere fleeting euphoria. But, once you get a taste, it doesn’t feel so mere. From then on the planet becomes a waiting room. The rest of your life devolves to no more than the time between highs.
+ - This is, I believe, what happens when people take their own lives. They’re not killing themselves, they’re killing the world. Either to spare it pain or to cause it some, depending.
+ - For me there was never a lot of glamor involved in being a junkie, it was about trying to hide the puke and bloodstains on my shirt.
+ - I kept getting high to kill my shame at the fact that I kept getting high.
+ - Junkies are liars. They have to be professionally.
+ - There’s no deodorant for desperation.
+ - This is what I think: If you had the nerve to live what you lived, you should have the nerve to write it.
+ - Nothing ever turns me on so much in a woman as unhappiness.
+ - If you’re here for four more years or four more weeks, you’re here right now. I think when you’re somewhere, you ought to be there. It’s not about how long you stay in a place, it’s about what you do while you’re there, and when you go, is that place any better for your having been there?
+ - I think there’s a phenomenon of people who want to be around something that seems “dangerous.” It makes them feel more real.
+ - Half the reason I turned into a writer is you didn’t have to show up anywhere. You could work naked.
+ - The second time I took acid, I watched myself in the mirror for nine hours. What I realized, when I stared, was that my face looked exactly the same when I cried as when I laughed. After awhile I couldn’t tell which I was doing. Relief was just pain inside out.
+ - I always figured I myself would never be lucky enough to die, I’d just live on and on in this increasingly dreary spiral.
+ - I’ve always wanted to be a guy with a rec room.
+ - I don’t really know how to do much else besides write.
+ - I didn’t really start publishing books until I was 40 because I was busy being a McDonald’s employee. So there’s always a sense of trying to make up for lost time.
+ - All my life I’d gone for women who were a little off.
+ - You can’t really compare hells. But I suppose the hell of being strung out on another person’s addictive behavior is its own special thing.
+ - I need – and occasionally love – to write for the same reasons I always did: hard as writing is, it’s generally easier than life.
+ - How do you write when you’re not miserable? The solution, of course, is to make yourself miserable about not writing.
+ - Creativity is the opposite of TV.
+ - It’s not like I was an alkie or anything. Alcohol is for cleaning needles.
+ - Heroin spread that soft blanket over everything. But once the blanket was ripped off, it took a layer of skin with it, leaving nothing but nerve ends screaming in the breeze.
+ - At 17, all I wanted was to be a famous junky. Like all my heroes.
+
+35 quotes

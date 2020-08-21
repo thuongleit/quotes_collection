@@ -1,0 +1,26 @@
+ - History knows no greater display of courage than that shown by the people of the Soviet Union.
+ - The chief lesson I have learned in a long life is that the only way you can make a man trustworthy is to trust him; and the surest way to make him untrustworthy is to distrust him.
+ - Honor begets honor; trust begets trust; faith begets faith; and hope is the mainspring of life.
+ - The only way to make a man trustworthy is to trust him.
+ - If you are going to try to go to war, or to prepare for war, in a capitalist country, you have got to let business make money out of the process or business won’t work.
+ - Marriage should be a duet – when one sings, the other claps. Joe Murray The only way to make a man trustworthy is to trust him.
+ - We had news this morning of another successful atomic bomb being dropped on Nagasaki. These two heavy blows have fallen in quick succession upon the Japanese and there will be quite a little space before we intend to drop another.
+ - Gentlemen don’t read each other’s mail.
+ - History is often not what actually happened but what is recorded as such.
+ - Their racial characteristics are such that we cannot understand or trust even the citizen Japanese.
+ - Now the thing is not to get into unnecessary quarrels by talking too much and not to indicate any weakness by talking too much; let our actions speak for themselves.
+ - There has been growing quite a strain of irritating feeling between our government and the Russians and it seems to me that it is a time for me to use all the restraint I can on these other people who have been apparently getting a little more irritated.
+ - When all the arguments have been forgotten, this central fact will remain. The two nations fought a single war, and their quarrels were the quarrels of brothers.
+ - Hope is the mainspring of life.
+ - The only deadly sin I know is cynicism.
+ - But I think the bomb instead constitutes merely a first step in a new control by man over the forces of nature too revolutionary and dangerous to fit into old concepts.
+ - The bomb and the entrance of the Russians into the war will certainly have an effect on hastening the victory.
+ - We think it will be shortly afterwards, but it seems a terrible thing to gamble with such big stakes in diplomacy without having your master card in your hand.
+ - We debated long over the situation for it is a very difficult question and all of us recognize its difficulty.
+ - It seems as if everybody in the country was getting impatient to get his or her particular soldier out of the Army and to upset the carefully arranged system of points for retirement which we had arranged with the approval of the Army itself.
+ - As to the war with Japan, the President had already received my memorandum in general as to the possibility of getting a substantial unconditional surrender from Japan which I had written before leaving Washington and which he had approved.
+ - The President so far has struck me as a man who is trying hard to keep his balance. He certainly has been very receptive to all my efforts in these directions.
+ - Russia will occupy most of the good food lands of central Europe while we have the industrial portions. We must find some way of persuading Russia to play ball.
+ - A private meeting with Hoover is like sitting in a both of ink.
+
+24 quotes

@@ -1,0 +1,49 @@
+ - It’s not that the Irish are cynical. It’s rather that they have a wonderful lack of respect for everything and everybody.
+ - Every cripple has his own way of walking.
+ - If you accept your limitations you go beyond them.
+ - They took away our land, our language, and our religion; but they could never harness our tongues...
+ - It is a good deed to forget a poor joke.
+ - I saw a notice that said “Drink Canada Dry” and I’ve just started.
+ - I only take a drink on two occasions – when I’m thirsty and when I’m not.
+ - Critics are like eunuchs in a harem; they know how it’s done, they’ve seen it done every day, but they’re unable to do it themselves.
+ - I think weddings are sadder than funerals, because they remind you of your own wedding. You can’t be reminded of your own funeral because it hasn’t happened. But weddings always make me cry.
+ - I’m a Communist by day and a Catholic as soon as it gets dark.
+ - I’m a drinker with a writing problem.
+ - The sun was in mind to come out but having a look at the weather it was in lost heart and went back again.
+ - When I’m talking to people I like to stop and quote myself. My quotes have a way of spicing up conversation.
+ - Whatever you hold in contempt is your jailer.
+ - The only thing I envy in young people is their livers.
+ - You made one mistake. You married me.
+ - Pound notes are the best religion in the world.
+ - God forgive us-but most of us grew up to be the sort of men our mothers warned us against.
+ - There’s no bad publicity except an obituary.
+ - An author’s first duty is to let down his country.
+ - I am married to Beatrice Salkeld, a painter. We have no children, except me.
+ - I ruined my health drinking to other people’s.
+ - To get enough to eat was regarded as an achievement. To get drunk was a victory.
+ - A pedestrian ought to be legally allowed to toss at least one hand grenade at a motorist every day.
+ - Failure at a task may be the result of having tackled it at the wrong time.
+ - Most horror movies are certainly that.
+ - That you, sister. May you be the mother of a bishop.
+ - I am a daylight atheist.
+ - There is no human situation so miserable that it cannot be made worse by the presence of a policeman.
+ - The terrorist is the one with the small bomb.
+ - There’s no one, no one, loves you like yourself.
+ - Nothing hurts more than the friendly letter that one never got around to writing.
+ - Many a man has decided to stay alive not because of the will to live but because of the determination not to give assorted surviving bastards the satisfaction of his death.
+ - When two men fight over a woman it’s the fight they want, not the woman.
+ - I never felt so much at home as I do in New York. I must be a devil.
+ - Other people’s interruptions of your work are relatively insignificant compared with the countless times you interrupt yourself.
+ - Message? What the hell do you think I am, a bloody postman?
+ - No man can discover his own talents.
+ - Prostitutes, more than any other profession, help keep American marriages together.
+ - Scream at God if that’s the only thing that will get results.
+ - The English and Americans dislike only some Irish – the same Irish that the Irish themselves detest, Irish writers – the ones that think.
+ - One drink is to many for me and a thousand not enough.
+ - A man is fortunate if he encounters living examples of vice, as well as of virtue, to inspire him.
+ - In a society which really supported marriage the wife would be encouraged to go to the office and make love to her husband on the company’s time and with its blessing.
+ - Ninety-seven saint days a year wouldn’t affect the theater, but two Yom Kippurs would ruin it.
+ - I cannot imagine any crime worse than taking a life, can you? -It’d depend whose life.
+ - He was born an Englishman and remained one for years.
+
+47 quotes

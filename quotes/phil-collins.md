@@ -1,0 +1,91 @@
+ - Think twice; it’s just another day for you and me in paradise.
+ - In learning you will teach, and in teaching you will learn.
+ - I’m not a singer who plays a bit of drums. I’m a drummer that sings a bit.
+ - Find a way to my heart, and I will always be with you.
+ - The world is in your hands, now use it.
+ - You can wipe off that grin, I know where you’ve been, it’s all been a pack of lies.
+ - Put your faith in what you most believe in.
+ - Love can make you do things that you never thought possible.
+ - Beyond a certain point, the music isn’t mine anymore. It’s yours.
+ - You’ll regret the day you ever messed with Philadelphia Collins and sons.
+ - When children see Michael Jackson they see a human being. When adults see him they see money.
+ - It’s actually come as quite a shock to learn just how many people don’t like me.
+ - Before you write – remember that every speech has something of ‘you’ in the writing. Don’t take that away when you write. Be yourself. Be comfortable in your own skin.
+ - The answer is inside your head; it’s easy to find if you take it logically.
+ - Deep inside us we’re not that different at all.
+ - When I go on Japanese Airlines, I really love it because I like Japanese food.
+ - All I set out to do was to earn a living playing drums, you know? And as luck would have it, I’ve surpassed that.
+ - I very rarely listen to the in-flight stuff.
+ - I prefer black music in general.
+ - There were ‘big stars’ at the Alamo! Bowie, Crockett! It is a huge political event because it, and the events at Goliad and San Jacinto, changed the look of a map of America. America would be a very different place if Texas had remained Mexican.
+ - I grew up in the day when the Beatles sold 1 million singles in a week. And all you’ve got to do now is sell about 10,000 singles and you’re in the charts.
+ - When destiny calls you, you’ve got to be strong. I may not be with you, but you’ve got to move on.
+ - Take a look at me now, cause there’s just an empty space. And you coming back to me is against all odds and that’s what I’ve got to face.
+ - God is a spa-bath of water and we are all individual bubbles.
+ - Considering yourself selflessly selfish is a principle of all great thinkers.
+ - The stereotypical rock-star-trashing-a-hotel-room thing? Those days had passed by the time I was in a band big enough to do it.
+ - Wait for it, wait for it! Anticipation is half the fun, So I’ve been told...
+ - I don’t own an ABBA album, and I never had the urge to go and buy one. If you’re just talking about well crafted pop songs, they were fantastic.
+ - Would you respect me if I didn’t have this gun? Cause without it, I don’t get it, and that’s why I carry one.
+ - I remember flying with Air India to New York quite a few years ago now and I love Indian food, so the fact that I had a curry on board was fantastic.
+ - The day Tarzan opened in London, I sat in a hotel room and discussed the project in detail.
+ - Perception determines insanity...
+ - I’m sorry that it was all so successful. I honestly didn’t mean it to happen like that. It’s hardly surprising that people grew to hate me.
+ - Genesis fans are a religious group!
+ - Everyones a hypercrit and if you don’t agree you’re a liar as well.
+ - And I would like to marry and have more children. I would like to try and do it right.
+ - I don’t really listen to music.
+ - I’m usually going to make a record, finish a record, start a record or start a tour or between tours.
+ - I never said I was at the Alamo. Someone else said I was at the Alamo. Now I’m a nutter. I don’t think that’s fair.
+ - I suppose you can’t take kids into consideration all the time, but I just wish there could be a bit of flexibility.
+ - If it’s the beginning of something – like an album, I’m working on the lyrics and I take a walkman and headset.
+ - I am stopping so I can be a full-time father to my two young sons on a daily basis.
+ - I suppose Phil Collins offers something for everybody, and in hipdom that’s not cool. But in the real world, there’s no shame in that at all.
+ - When we’re touring America or Europe, we use our own plane and a great advantage of that is it cuts out an awful lot of time checking in. You literally drive up to the plane, get on and then drive off at the other end.
+ - It’s not often that an English drummer gets an Oscar. So I’m very, very proud of that.
+ - Many people think of me as a perfectionist, someone who polishes and shines each song and performance. I’ve always been bothered by that assumption.
+ - I never stopped thinking about the Alamo from that day to this. I’m a huge collector of memorabilia. I’ve got Davy Crockett’s bullet pouch. I’ve got Colonel Travis’s belt.
+ - That’s the trouble with wishing you were somebody else. As much as you may want it, you know it’ll never happen, at least not in this lifetime.
+ - I joined Genesis when I was 19. I’ve earned the right to actually do nothing. I don’t want to be a shadow of what I was, so I’ve kind of just quite willingly stood back.
+ - To be honest, I couldn’t hold a conversation with anybody in any language other than English – and that’s a struggle sometimes!
+ - I’d love to work with Disney again.
+ - We’re all turkeys! Some of us are running around with our heads cut off, some of us are flapping our wings that hard we’re close to flying. But nothing is an eagle bar God...
+ - It’s always been easy with Mark, he’s a rock fan and we speak the same language. He’s a big Beatles fan too. We worked a lot via CLI calls, though only meeting up once every couple of months.
+ - To see a lot of the smaller labels disappear or get gobbled up by the bigger labels, that’s a shame. It was a bit of a shock at first to see the demise of the record stores.
+ - Each thing leapfrogs. I do a Genesis project – like now, we’re just finishing off an album – and then by the time the album is doing its thing, I could do nothing or I could do a film.
+ - I can’t play anywhere near like I used to, and I was a hot drummer. It doesn’t bother me, because frankly, if you get to that point where you can’t hold a drumstick properly, there are many other things in life which are far more important, like cutting a loaf of bread or a piece of cheese.
+ - Catering on planes, like on British Rail, is a standing joke, but I don’t really have a problem with it. I don’t quite know what people expect.
+ - I’m much happier just to write myself out of the script entirely...
+ - In 1977 we played America and Europe three times, and Japan – my marriage suffered as a result. My then wife took the kids to Canada to be near her parents.
+ - The binding of reason and intuition is the fundamental crisis of the era we call humanity. Transcedence of duality is the key.
+ - Like last night I had a sequence with a gun and, to be honest, for me to be threatening with a gun and not be comical is quite hard.
+ - We stayed in some pretty shabby places in Europe.
+ - As soon as you start making a record, things start getting lined up: the promotion, possibly even a tour.
+ - Testimony is contingent on experience, that’s why we’re all free spirits.
+ - To be honest, producing records interests me less at the moment and I really don’t want to get involved in album projects that are going to take up a lot of time.
+ - You know, I’ve released some great records and I’ve released some dogs. But frankly, the fun is in creating the thing.
+ - In Genesis we saw ourselves as song-writers. After Peter Gabriel left I was the first to say: ‘It’s OK – we can just do instrumentals.’
+ - My only saving grace is that I actually collect things that nobody else is interested in.
+ - I’ve been a long-distance father.
+ - Often there’s a BA crew, because half the time we stay at the same hotels, especially in Australia. I can remember spending quite a lot of time with crews around the pool there. They always make themselves known to us.
+ - The whole having records and selling records and being on TV, that was something that I didn’t ever think would be for me. I thought that would be for other people. All I wanted to do was make a living playing the drums.
+ - Non-physicality may soon come to dominate our reality. Thanx Quatum Mechanics!
+ - I’m fascinated by what people will do to each other. Actually, I’m sort of interested in the gory details of life.
+ - I know it shouldn’t make a difference, but crossing the dateline, we weren’t sure what day it was – it was very strange. Now, I seem to cope with it better.
+ - And, you know, I never wanted to be a singer.
+ - I’m just trying to do things that are interesting for me.
+ - I can’t remember much about the early flights, except that it was ages before we got into First Class.
+ - I’ll have the music, and then I’ll just turn the microphone on, press Play and Record and sing. And whatever comes out ends up being the melody.
+ - Another time, we had three days off in Australia, so we went out of our way to fly to Ayres Rock.
+ - Believe it or not, Japanese is actually easier than some European languages!
+ - I do that in whatever language of the country I’m in, because the audience appreciate it.
+ - I usually hang around the room listening to a bit of last night’s show. If there’s one available, I go to the steam room every day for my voice. I spend half an hour there and then I eat, because I can’t eat later than four o’clock. Then I go for a soundcheck. That’s my day.
+ - On the day of the show, I sit down with someone that speaks very good English and someone who speaks the local language very well and work out what I’m going to say.
+ - I’m not trying necessarily to become a movie star; that wouldn’t be bad but that’s not the aim. I’m just trying to do interesting things and go into areas where I’ve not been before.
+ - I just don’t think of myself as a star. This is what I do for a living; I’m fortunate that I make ends meet.
+ - I’ve spent the last year and a half going through a very public separation, hiding in hotel lobbies.
+ - Many of the articles printed over the last few months have ended up painting a picture of me that is more than a little distorted.
+ - I’ve got one of four known Davy Crocket rifles. It’s fantastic just to know it’s one of the rifles that he actually used. His cousin had it.
+ - I’m writing new songs for a Broadway version of Tarzan, which is very interesting. I think what I learned from the Brother Bear score side of things, I’ve brought into the new Tarzan songs. Thinking outside just guitar, bass, drums and keyboards.
+
+89 quotes

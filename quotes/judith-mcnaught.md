@@ -1,0 +1,49 @@
+ - I love life, even when bad things happen to me. I can’t stop loving it. Every season of the year comes with a promise that something wonderful is going to happen to me someday.
+ - True beauty springs from the heart and dwells in the eyes.
+ - You can’t outwit fate by standing on the sidelines placing little sidebets about the outcome of life. either you wade in and risk everything you have to play the game or you don’t play at all. and if u don’t play u can’t win.
+ - You can’t live your life to suit other people. The harder you try, the more restrictions they’ll put on you just for the fun of seeing you jump through their hoops.
+ - Some women need no jewels to make them sparkle. You are one of them. -Royce Westmoreland.
+ - If I had a hundred kingdoms, I would trade them all for you, my dearest love. I was nothing until you.
+ - He will love only once – but it will be for always.
+ - Why did happy memories fade and blur until one could scarcely recall them at all, while horrible memories seemed to retain their blinding clarity and painful sharpness?
+ - A lie is an affront to the soul, as well as an insult to the intelligence of the person to whom one lies.
+ - It was a kingdom of dreams – a place where things would be just the way I wanted them to be.
+ - The groom always smiles proudly because he’s convinced he’s accomplished something quite wonderful. The bride smiles because she’s been able to convince him of it.
+ - Sometimes it just happens – to the wrong people at the wrong time.
+ - Some people feel love in their hearts, Julie. Some of us feel it all way into our souls. We’re the ones who can’t forget.
+ - Either give me your hand, or end it now, and put us both out of our misery.
+ - Whitney: You black-hearted, treacherous, conniving scoundrel. Clayton: Your flattery warms my heart.
+ - Everything wrong I’ve ever done has always seemed like the right thing to do at the time.
+ - How foolish to yearn to ask the very person who’d caused the pain to heal it.
+ - I buy everything in sight. It took my last ounce of control not to buy one of these in every color.
+ - After all, it’s not every day a woman is given a kingdom of dreams.
+ - Which brings me to the question of why we always ‘fall’ in love. One falls down steps, off ladders, into rivers and down mountains. If love is so wonderful, why don’t we soar in love or climb in love?
+ - A romance novel should leave readers joyous. My books all have happy endings.
+ - Reformed rakes often make the best husbands.
+ - Listen to your instincts and ignore everything else.
+ - You will soon discover that in matters of the heart, memories are much kinder than reality.
+ - I used to be ashamed And now I am proud. The world once was black And now it is bright. I used to walk head bent And now I stand up tall. I used to have dreams But now I have hope.
+ - Jennifer Merrick had stored all her tears inside her, and her pride and courage would never permit her to break down and shed them.
+ - It isn’t what you say that counts, it’s what you don’t say.
+ - She wept with shame for her lack of will and with fear for a love she couldn’t control.
+ - Success without someone to share it with is hollow indeed. On the other hand, it beats the heck out of failure.
+ - Nor is he man enough to make a woman of you.
+ - We all do foolish things when we are in love. Don’t we, your grace?
+ - Life was wonderful, so filled with people and activities, with love and laughter.
+ - The old adage which says that it is ‘whom you know that counts’ is far off the mark. It is what you know about whom you know that truly makes difference.
+ - It would have hurt no matter who took you the first time.
+ - I do not believe that grief is ever so great that it can not be contained within.
+ - Childhood romances always seem so real, so enduring, when we are separated from the object of our affection. But usually, when we return, we find that our dreams and memories quiet surpassed reality. -Lady Anne, Whitney’s aunt.
+ - Matt: I know you can cook. Meredith: What makes you so sure? Matt: Because less than an hour ago, you set me on fire.
+ - Royce’s eyes narrowed in discouragement at the thoght of having to sing to jenny. his deep bariton voice would surely bring every hound for miles to yap and nip at his heels.
+ - The two of them simply weren’t attracted to just any attractive, eligible man; they were attracted rarely, but when it happened, it was evidently a life-altering experience.
+ - But he knew instinctively what he suggested was impossible. She’d been through so much, and held her tears back for so long, that Royce doubted that anything could force her to shed them.
+ - I think we women underrate ourselves when it comes to our courage and strength.
+ - Whitney: Where is your home? Clayton: Wherever you are.
+ - We are not of what we feel or believe to do, we are of what we do or fail to do.
+ - Elizabeth, if you want to be kissed, all you have to do is put your lips on mine.
+ - Missing you? I could cheerfully murder you.
+ - At my age, I regard each funeral I attend as a personal triumph, because I was not the guest of honor.
+ - I want more from life than that and I have more to give.
+
+47 quotes

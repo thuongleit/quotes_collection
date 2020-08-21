@@ -1,0 +1,41 @@
+ - Sometimes it helps to scold yourself, to give yourself advice.
+ - The only lesson is, you gotta keep at it.
+ - Read. Read. Read. Just don’t read one type of book. Read different books by various authors so that you develop different style.
+ - Everything that has happened to me has been amazing and surprising.
+ - I started writing when I was 9 years old. I was like this weird kid who would just stay in my room, typing little funny magazines and drawing comic strips.
+ - I’m a total Disney freak. I want to live in Disney World.
+ - I believe that kids as well as adults are entitled to books of no socially redeeming value.
+ - I guess I’m way too kind and generous, and a saint – if you can believe that!
+ - I should be concentrating on writing pages.
+ - Most fears are basic: fear of the dark, fear of going down in the basement, fear of weird sounds, fear that somebody is waiting for you in your closet. Those kinds of things stay with you no matter what age.
+ - I love theme parks but I’m a real chicken on rides. I’d rather invent scary rides for my books than go on them for real.
+ - When I was a kid my family was really poor and I remember one Halloween I wanted to dress up really scary and my parents came home with a duck costume. I wore that costume for years! I hated it.
+ - People say, ‘What advice do you have for people who want to be writers?’ I say, they don’t really need advice, they know they want to be writers, and they’re gonna do it. Those people who know that they really want to do this and are cut out for it, they know it.
+ - When I write, I try to think back to what I was afraid of or what was scary to me, and try to put those feelings into books.
+ - I’ve killed hundreds of teenagers. Hundreds. And I didn’t know why. Why did I enjoy doing it so much? Why? And then I realized – I had a teenager at home!
+ - I’ve had a very sheltered life. What can happen to you if you stay home writing all day?
+ - At least I can write.
+ - I’ve made myself laugh from some ideas – but I’ve never scared myself.
+ - I haven’t written a young-adult book in years. I’m also doing six ‘Goosebumps’ books a year now.
+ - If you do enough planning before you start to write, there’s no way you can have writer’s block. I do a complete chapter by chapter outline.
+ - I feel happy to terrify kids.
+ - I’ve never dreamed of a story idea. I have such boring dreams.
+ - Well, when I was 13, for my bar mitzvah I received my first typewriter. And that was special.
+ - After spending 22 years in Ohio, I love everything about New York.
+ - I’ve never turned into a bee – I’ve never been chased by a mummy or met a ghost. But many of the ideas in my books are suggested by real life.
+ - I have a great office.
+ - I got the chance to do things that I dreamed of when I was a kid: I got to travel around the world; I had my own ‘Goosebumps’ attraction at Disney World; I’ve been on TV and had three TV series.
+ - I used to get a haircut every Saturday so I would never miss any of the comic books. I had practically no hair when I was a kid!
+ - I’m obsessed with radio. It’s a good start to Sunday morning.
+ - I drive a lot in the summertime, but after that, I don’t drive if there’s snow predicted for anywhere in 500 miles.
+ - A real New Yorker likes the sound of a garbage truck in the morning.
+ - It’s my job, too, to keep up with pop culture and what the kids are into ’cause you don’t want to sound like an old man trying to write for kids. I spend a lot of my time spying on them.
+ - Making my class laugh and getting in trouble. I was the class clown.
+ - Normally, I spend a week on the outline and take two weeks to write the book.
+ - If you want to be a writer, don’t worry so much about writing. Read as much as you can. Read as many different writers as you can. Soak up the styles. You can learn all kinds of ways to say things.
+ - The next day, Greg is so large that he cannot even ride the car to school because he can’t fit in the car. His parents believe this to have been caused by a food allergy and resolve to take him to the doctor later.
+ - I always just wanted to be funny. I never really planned to be scary.
+ - I have a cheat-sheet for each one of my characters about their personality, the way they look, etc. So there is no possible way that I could have writer’s block.
+ - I’ve lived in New York for 40 years. I came right after college.
+
+39 quotes

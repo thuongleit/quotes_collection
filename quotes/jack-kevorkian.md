@@ -1,0 +1,73 @@
+ - Let’s hope you feel better now.
+ - When you have nothing left to burn, you must set yourself on fire.
+ - Dying is not a crime.
+ - Freedom has a price. Most people aren’t willing to pay it.
+ - I have no regrets, none whatsoever.
+ - I learned to smile by going through hell. Now I know what hell is and you don’t. I can’t tell you how it is, cause you can’t do it with words.
+ - Yes, we need euthanasia, for certain cases where people are in comas or too immobile to even press a button.
+ - My aim in helping the patient was not to cause death. My aim was to end suffering. It’s got to be decriminalized.
+ - I am not a sentimental person.
+ - Anytime you interfere with a natural process, you’re playing God. God determines what happens naturally. That means when a person’s ill, he shouldn’t go to a doctor because he’s asking for interference with God’s will. But of course, patients can’t think that way.
+ - I don’t enjoy good food. I don’t enjoy flashy cars. I don’t care if I live in a dump. I don’t enjoy good clothes. This is the best I’ve dressed in months.
+ - Everyone is going to die.
+ - The public can tolerate a Nazi America.
+ - If you don’t have liberty and self-determination, you’ve got nothing, that’s what this is what this country is built on. And this is the ultimate self-determination, when you determine how and when you’re going to die when you’re suffering.
+ - As a medical doctor, it is my duty to evaluate the situation with as much data as I can gather and as much expertise as I have and as much experience as I have to determine whether or not the wish of the patient is medically justified.
+ - I got to dislike parties, like Jefferson and Madison. I think they’re harmful. But the system is flawed so badly. I like what Plato said, long ago. Democracy is fit only for a small country. Can’t survive in a large country.
+ - I always said all my life if I wasn’t born and they gave me the question I’d say I don’t want to be born.
+ - I suppose, if helping a patient die is killing, I suppose I’m a killer.
+ - I have a natural right to do whatever I want with my body as long as it doesn’t affect anybody else or any other property.
+ - The American people are sheep. They’re comfortable, rich, working. It’s like the Romans, they’re happy with bread and their spectator sports. The Super Bowl means more to them than any right.
+ - If Christ can die in a barn, I think the death of a human in a van is not so bad.
+ - I will admit, like Socrates and Aristotle and Plato and some other philosophers, that there are instances where the death penalty would seem appropriate.
+ - When your conscience says law is immoral, don’t follow it.
+ - I didn’t do this for other people; I did this for me. I fought for this right for me – does that sound selfish?
+ - My intent was to carry out my duty as a doctor, to end their suffering. Unfortunately, that entailed, in their cases, ending of the life.
+ - What looks like enjoyment is the sneer of contempt. That’s not a smile.
+ - I’m for absolute autonomy of the individual, and an adult, competent woman has absolute autonomy. It’s her choice.
+ - My ultimate aim is to make euthanasia a positive experience.
+ - I gambled and I lost. I failed in securing my options for this choice for myself, but I succeeded in verifying the Dark Age is still with us.
+ - Five to six thousand people die every year waiting for organs, but nobody cares.
+ - The patient’s autonomy always, always should be respected, even if it is absolutely contrary – the decision is contrary to best medical advice and what the physician wants.
+ - This is not a trial. This is a lynching. There is no law.
+ - I’ve seen schizophrenics who are so hopeless, you couldn’t cheer them, and their lives are miserable and they end up as suicides. That’s not right.
+ - The patient decides when it’s best to go.
+ - I don’t persuade to suicide.
+ - I’m trying to knock the medical profession into accepting its responsibilities, and those responsibilities include assisting their patients with death.
+ - I’m not lying to myself like most people.
+ - There’s no doubt I expect to die in prison.
+ - She made the decision that her existence had lost its meaning. And you cannot judge that.
+ - It’s the boredom that kills you. You read until you’re tired of that. You do crossword puzzles until you’re tired of that. This is torture. This is mental torture.
+ - First of all, do any of you here think it’s a crime to help a suffering human end his agony? Any of you think it is? Say so right now. Well, then, what are we doing here?
+ - I hate to say this, but I’ll repeat it: After death, all we know that you do is stink.
+ - I knew I was getting into one of the most illegal things in the world. It was the right thing to do.
+ - How can you regret helping a suffering patient?
+ - All the big powers they’ve silenced me. So much for free speech and choice on this fundamental human right.
+ - Among doctors in general, I think more than half support what I’m doing.
+ - Liberty means more to me than life itself.
+ - What I think a doctor should do is prevent disease, by any means necessary.
+ - You’ve gotta know what death is to know life!
+ - Am I a criminal? The world knows I’m not a criminal. What are they trying to put me in jail for? You’ve lost common sense in this society because of religious fanaticism and dogma.
+ - If a man is terrified, it’s up to me to dispel that terror.
+ - The law doesn’t create a right.
+ - I don’t crave publicity, you know.
+ - Not one has shown an iota of fear of death. They want to end this agony.
+ - When history looks back, it will prove what I’ll die knowing.
+ - We need some honesty and sincerity instead of corrupt government in Washington.
+ - I will go to what they call a court. Only they call it a court.
+ - Many support what I am doing.
+ - I think the Supreme Court does have the authority, which is not used, to declare a blanket right for all people, all adults.
+ - A transfer of money should never be involved in this profound situation. Although illness is profound, too, but medicine’s a business today. It’s a business.
+ - You’re basing your laws and your whole outlook on natural life on mythology. It won’t work. That’s why you have all these problems in the world. Name them: India, Pakistan, Ireland. Name them-all these problems. They’re all religious problems.
+ - The public has no power. The government knows I’m not a criminal. The parole board knows I’m not a criminal. The judge knows I’m not a criminal.
+ - My religion centers in different areas than what’s considered conventional religion.
+ - Despite the solace of hypocritical religiosity and its seductive promise of an after-life of heavenly bliss, most of us will do anything to thwart the inevitable victory of biological death.
+ - I would not want to live with a tube in my neck and not be able to move a finger. I wouldn’t – that to me is not life.
+ - I’d find it demeaning to be cleaning toilets.
+ - Listen, when you take my liberty away, you’ve taken away more-something more precious than life. I mean, what good is a life without liberty? Huh? None.
+ - None of them want to delay. Understand that. None of them.
+ - I’m not the kind of guy who has best friends.
+ - Rotten travesty. Yeah. Send me to jail for contempt. Try that. Go ahead.
+ - Maybe I won’t stay out of prison. Who knows?
+
+71 quotes

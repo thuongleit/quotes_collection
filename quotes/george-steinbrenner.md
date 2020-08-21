@@ -1,0 +1,46 @@
+ - Winning is the most important thing in my life, after breathing. Breathing first, winning next.
+ - I’m not a win at all costs guy. Winning isn’t everything. It’s second to breathing.
+ - If you don’t have a hernia yet then you’re not pulling your own weight!
+ - From 1973 to 1982 I ate the exact same lunch everyday. Turkey chili in a bowl made out of bread. Bread bowl George. First you eat the chili then you eat the bowl. There’s nothing more satisfying than looking down after lunch and seeing nothing but a table.
+ - I guess heaven needed a shortstop.
+ - Surround yourself with amazingly intelligent men and women. The people I work with not only are smarter than I am, possessing both intellectual and emotional intelligence, but also share my determination to succeed. I will not make an important decision without them.
+ - Second place is really the first loser.
+ - My best and worst boss was the same man – my father. He never – and I mean never – took ‘I can’t’ for an answer. He taught me the value system that, to this day, I have continued to practice.
+ - I am tough. Sometimes I’m unreasonable. I have to catch myself every once in a while.
+ - Don’t talk to me about aesthetics or tradition. Talk to me about what sells and what’s good right now. And what the American people like is to think the underdog still has a chance.
+ - I hate to lose. Hate, hate, hate to lose.
+ - Irabu is a fat, pus-y toad.
+ - Why would you want to stay manager and be second-guessed by me when you can come up into the front-office and be one of the second-guessers?
+ - I haven’t always done a good job, and I haven’t always been successful – but I know that I have tried.
+ - He’s the leader on this team, I know when Baltimore let us have him, they thought they were giving us a problem. I’ll take problems like that anytime.
+ - I’m pretty excited, this is a big, big one.
+ - Once in a while, I played second base; once in a while, outfield. But those were just pickup games and softball leagues. So when I bought the Yankees, I tried to stay one pace ahead of the players.
+ - We are the New York Yankees.
+ - You shouldn’t have any betting in the locker room at all, whether it’s baseball or it’s horses. You can’t beat the horses. You can’t beat any kind of gambling because they have the odds.
+ - David Cone is in a class by himself with three or four other players.
+ - When you’re entrusted with a tradition, you’ve got to protect it.
+ - It was the class and dignity which he led his life that made him part of all of us. I will forever treasure the close friendship we shared over the years.
+ - What happens is that all your life you operated businesses in such a way that you could one day afford to buy a baseball team. And then you buy the team and forget all the business practices that enabled you to buy it.
+ - I haven’t always made the right decisions.
+ - Winning was everything. I don’t care what they tell you.
+ - I was often misquoted. I was supportive of my managers, even though they all may not think so.
+ - Breathing first, winning next.
+ - I used to be very hands-on, but lately I’ve been more hands-off and I plan to become more hands-on and less hands-off and hope that hands-on will become better than hands-off, the way hands-on used to be.
+ - Ruth was probably the greatest athlete to perform in any sport. Never has there been anybody like him.
+ - I am dead set against free agency. It can ruin baseball.
+ - Owning the Yankees is like owning the Mona Lisa.
+ - I won’t be active in the day-to-day operations of the ball club at all.
+ - I will never have a heart attack. I give them.
+ - Is it in the best interest of baseball to sell beer in the ninth inning? Probably not. The rule has got to be more clearly defined. And then some process should be set up where the judge is not also the appeals judge.
+ - In the end, I’ll put my good acts up against those of anybody in this country. Anybody.
+ - As I have said many times – my father was a great fan of Bill Dickey’s and he certainly loved the Yankees. I hope that he would be pleased.
+ - The name Derek Jeter is made for stardom. He’s got an infectious smile, and he’s so handsome and well-behaved. He’s just a fine young man who does everything right. He’s like Jack Armstrong and Frank Merriwell, guys I grew up rooting for. Some guys come along who just measure up.
+ - Let’s not talk punishment.
+ - I’ll stick to building ships.
+ - I don’t want to be in the Hall of Fame. I don’t think owners should be.
+ - People keep coming up to me and asking, ‘How does it feel to be banned for life?’ Banned for life. I wasn’t banned for life. There was never a word of suspension, probation or ban in that agreement. It was never meant to be part of it.
+ - He says all the right things, like it’s Jeter’s team. I want to correct him on that – it’s my team.
+ - We plan absentee ownership as far as running the Yankees is concerned.
+ - But why shouldn’t I speak out? Don’t you speak out in this country?
+
+44 quotes

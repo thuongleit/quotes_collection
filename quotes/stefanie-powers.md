@@ -1,0 +1,21 @@
+ - We are never so lost that our angels cannot find us.
+ - Life is just an ongoing process.
+ - Unfortunately, sometimes people don’t hear you until you scream.
+ - The movie industry used to be completely accessible. We all knew people in it, and nobody made a big fuss.
+ - We are losing our environment so rapidly.
+ - I don’t need to go onto Facebook and pretend to have friends I’ve never even met. To my mind, that kind of destroys the meaning of the word ‘friend.’ I take exception to that. Because I value and respect friendship.
+ - I’m functioning on a lung and a half, but I have proved that it’s possible to challenge yourself.
+ - Packing is always a nightmare.
+ - Camp life is demanding, and even the simplest daily routine becomes a chore in a climate with 90 per cent humidity, not to mention the bugs.
+ - Animals are very easy to love and be friends with.
+ - If you are going to a destination where the food might be more exotic than usual, always err on the side of caution.
+ - We have to stop thinking about ourselves so much and start thinking about the environment. We have to change.
+ - My mother danced; she loved the ballet.
+ - The world that our children will inherit is going to look substantially different, very quickly, than the world we have today. It’s alarming.
+ - We’re so bereft of support of theatre in this day and age.
+ - I want to feel that every trip I make has enhanced me as a person.
+ - Camping is something I’ve done all my life.
+ - They say that a good cook can ignite sparks by the way he kisses. The way I see, just because a guy can turn on the stove doesn’t necessarily make him a good cook.
+ - Journalists have made celebrities into an industry.
+
+19 quotes

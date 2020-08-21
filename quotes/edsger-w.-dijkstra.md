@@ -1,0 +1,86 @@
+ - Computer science is no more about computers than astronomy is about telescopes.
+ - Programming in Basic causes brain damage.
+ - Simplicity is prerequisite for reliability.
+ - If debugging is the process of removing software bugs, then programming must be the process of putting them in.
+ - Simplicity is a great virtue but it requires hard work to achieve it and education to appreciate it. And to make matters worse: complexity sells better.
+ - Testing shows the presence, not the absence of bugs.
+ - Computer science is no more about computers than astronomy is about telescopes, biology is about microscopes or chemistry is about beakers and test tubes. Science is not about tools. It is about how we use them, and what we find out when we do.
+ - The computing scientist’s main challenge is not to get confused by the complexities of his own making.
+ - The art of programming is the art of organizing complexity.
+ - Object-oriented programming is an exceptionally bad idea which could only have originated in California.
+ - The question of whether computers can think is like the question of whether submarines can swim.
+ - Simplicity and elegance are unpopular because they require hard work and discipline to achieve and education to be appreciated.
+ - Programming is one of the most difficult branches of applied mathematics; the poorer mathematicians had better remain pure mathematicians.
+ - If you want more effective programmers, you will discover that they should not waste their time debugging, they should not introduce the bugs to start with.
+ - I don’t need to waste my time with a computer just because I am a computer scientist.
+ - The use of COBOL cripples the mind; its teaching should, therefore, be regarded as a criminal offense.
+ - How do we convince people that in programming simplicity and clarity – in short: what mathematicians call elegance – are not a dispensable luxury, but a crucial matter that decides between success and failure?
+ - Aim for brevity while avoiding jargon.
+ - Thanks to the greatly improved possibility of communication, we overrate its importance. Even stronger, we underrate the importance of isolation.
+ - A programming language is a tool that has profound influence on our thinking habits.
+ - Probably I am very naive, but I also think I prefer to remain so, at least for the time being and perhaps for the rest of my life.
+ - Program testing can be used to show the presence of bugs, but never to show their absence!
+ - I would therefore like to posit that computing’s central challenge, how not to make a mess of it, has not yet been met.
+ - Elegance is not a dispensable luxury but a factor that decides between success and failure.
+ - Several people have told me that my inability to suffer fools gladly is one of my main weaknesses.
+ - Progress is possible only if we train ourselves to think about programs without thinking of them as pieces of executable code.
+ - Beauty is our business.
+ - The lurking suspicion that something could be simplified is the world’s richest source of rewarding challenges.
+ - When we had no computers, we had no programming problem either. When we had a few computers, we had a mild programming problem. Confronted with machines a million times as powerful, we are faced with a gigantic programming problem.
+ - If there is one ‘scientific’ discovery I am proud of, it is the discovery of the habit of writing without publication in mind.
+ - Besides a mathematical inclination, an exceptionally good mastery of one’s native tongue is the most vital asset of a competent programmer.
+ - Brainpower is by far our scarcest resource.
+ - Much of the excitement we get out of our work is that we don’t really know what we are doing.
+ - The competent programmer is fully aware of the limited size of his own skull. He therefore approaches his task with full humility, and avoids clever tricks like the plague.
+ - The effective exploitation of his powers of abstraction must be regarded as one of the most vital activities of a competent programmer.
+ - Thank goodness we don’t have only serious problems, but ridiculous ones as well.
+ - Write a paper promising salvation, make it a structured something or a virtual something, or abstract, distributed or higher-order or applicative and you can almost be certain of having started a new cult.
+ - Lisp has jokingly been called “the most intelligent way to misuse a computer”. I think that description is a great compliment because it transmits the full flavor of liberation: it has assisted a number of our most gifted fellow humans in thinking previously impossible thoughts.
+ - Perfecting oneself is as much unlearning as it is learning.
+ - It is a mistake to think that programmers wares are programs. Programmers have to produce trustworthy solutions and present it in the form of cogent arguments. Programs source code is just the accompanying material to which these arguments are to be applied to.
+ - Raise your quality standards as high as you can live with, avoid wasting your time on routine problems, and always try to work as closely as possible at the boundary of your abilities. Do this, because it is the only way of discovering how that boundary should be moved forward.
+ - The effort of using machines to mimic the human mind has always struck me as rather silly. I would rather use them to mimic something better.
+ - FORTRAN, the infantile disorder, by now nearly 20 years old, is hopelessly inadequate for whatever computer application you have in mind today: it is now too clumsy, too risky, and too expensive to use.
+ - There should be no such thing as boring mathematics.
+ - The traditional mathematician recognizes and appreciates mathematical elegance when he sees it. I propose to go one step further, and to consider elegance an essential ingredient of mathematics: if it is clumsy, it is not mathematics.
+ - Why has elegance found so little following? That is the reality of it. Elegance has the disadvantage, if that’s what it is, that hard work is needed to achieve it and a good education to appreciate it.
+ - Teaching COBOL ought to be regarded as a criminal act.
+ - Experience does by no means automatically leads to wisdom and understanding.
+ - In the good old days physicists repeated each other’s experiments, just to be sure. Today they stick to FORTRAN, so that they can share each other’s programs, bugs included.
+ - When building sand castles on the beach, we can ignore the waves but should watch the tide.
+ - It is not the task of the University to offer what society asks for, but to give what society needs.
+ - We must be very careful when we give advice to younger people: sometimes they follow it!
+ - Mentally mutilated potential programmers beyond hope of regeneration.
+ - APL is a mistake, carried through to perfection.
+ - Industry suffers from the managerial dogma that for the sake of stability and continuity, the company should be independent of the competence of individual employees.
+ - The purpose of abstraction is not to be vague, but to create a new semantic level in which one can be absolutely precise.
+ - Don’t blame me for the fact that competent programming, as I view it as an intellectual possibility, will be too difficult for the average programmer, you must not fall into the trap of rejecting a surgical technique because it is beyond the capabilities of the barber in his shop around the corner.
+ - Are you quite sure that all those bells and whistles, all those wonderful facilities of your so called powerful programming languages, belong to the solution set rather than the problem set?
+ - The tools we use have a profound and devious influence on our thinking habits, and therefore on our thinking abilities.
+ - The use of anthropomorphic terminology forces you linguistically to adopt an operational view. And it makes it practically impossible to argue about programs independently of their being executed.
+ - We are all shaped by the tools we use, in particular: the formalisms we use shape our thinking habits, for better or for worse, and that means that we have to be very careful in the choice of what we learn and teach, for unlearning is not really possible.
+ - Beware of “the real world”. A speaker’s apeal to it is always an invitation not to challenge his tacit assumptions.
+ - Don’t compete with me: firstly, I have more experience, and secondly, I have chosen the weapons.
+ - The prisoner falls in love with his chains.
+ - Too few people recognize that the high technology so celebrated today is essentially a mathematical technology.
+ - I think of the company advertising “Thought Processors” or the college pretending that learning BASIC suffices or at least helps, whereas the teaching of BASIC should be rated as a criminal offence: it mutilates the mind beyond recovery.
+ - In their capacity as a tool, computers will be but a ripple on the surface of our culture. In their capacity as intellectual challenge, they are without precedent in the cultural history of mankind.
+ - John von Neumann draws attention to what seemed to him a contrast. He remarked that for simple mechanisms, it is often easier to describe how they work than what they do, while for more complicated mechanisms, it is usually the other way around.
+ - The ability of discerning high quality unavoidably implies the ability of identifying shortcomings.
+ - The problems of the real world are primarily those you are left with when you refuse to apply their effective solutions.
+ - APL is a mistake, carried through to perfection. It is the language of the future for the programming techniques of the past: it creates a new generation of coding bums.
+ - I mentioned the non-competitive spirit explicitly, because these days, excellence is a fashionable concept. But excellence is a competitive notion, and that is not what we are heading for: we are heading for perfection.
+ - About the use of language: it is impossible to sharpen a pencil with a blunt axe. It is equally vain to try to do it with ten blunt axes instead.
+ - It used to be the program’s purpose to instruct our computers; it became the computer’s purpose to execute our programs.
+ - Production speed is severely slowed down if one works with half-time people who have other obligations as well. This is at least a factor of four; probably it is worse.
+ - There is very little point in trying to urge the world to mend its ways as long as that world is still convinced that its ways are perfectly adequate.
+ - Teaching to unsuspecting youngsters the effective use of formal methods is one of the joys of life because it is so extremely rewarding.
+ - In passing I draw attention to another English expression which often occurs in Dutch texts: “the real world”. In Dutch – and I am afraid not in Dutch alone – its usage is almost always a symptom of a violent anti-intellectualism.
+ - In the software business there are many enterprises for which it is not clear that science can help them; that science should try is not clear either.
+ - Mathematicians are like managers – they want improvement without change.
+ - A convincing demonstration of correctness being impossible as long as the mechanism is regarded as a black box, our only hope lies in not regarding the mechanism as a black box.
+ - Some consider the puzzles that are created by their omissions as spicy challenges, without which their texts would be boring; others shun clarity lest their work is considered trivial.
+ - Many mathematicians derive part of their self-esteem by feeling themselves the proud heirs of a long tradition of rational thinking; I am afraid they idealize their cultural ancestors.
+ - It is practically impossible to teach good programming to students that have had a prior exposure to BASIC: as potential programmers they are mentally mutilated beyond hope of regeneration.
+
+84 quotes

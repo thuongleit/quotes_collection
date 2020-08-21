@@ -1,0 +1,32 @@
+ - At some point free expression absolutism becomes childish and unserious.
+ - I’ve been trying for some time to develop a lifestyle that doesn’t require my presence.
+ - Commencement speeches were invented largely in the belief that outgoing college students should never be released into the world until they have been properly sedated.
+ - Where there’s smoke, there’s bound to be mirrors.
+ - I don’t think so, but it’s always in the back of my mind that many of the soldiers being wounded and killed in Iraq are about the same age as my kids. My godson is going over soon, so the war’s about to get personal for me.
+ - Becoming the new feminine ideal requires just the right combination of insecurity, exercise, bulimia and surgery.
+ - Anyone dumb enough to get his political information from a comic strip deserves what he gets at the polls.
+ - At college my three main interests were – in descending order of importance – a steady supply of recreational drugs, a 2-S draft deferment, and overthrowing the Nixon administration.
+ - Freedom should always be discussed within the context of responsibility.
+ - America: the only country in the world where failing to promote yourself is regarded as being arrogant.
+ - When you’re young, you don’t feel iconoclastic – you’re just kind of doing what seems natural, what moves you.
+ - Nor will I be using any imagery that mocks Jesus Christ.
+ - Medical decisions have been politicized. What doctor wants a state legislator in his consulting room?
+ - Isn’t it possible that self-esteem isn’t causal at all, but simply the happy side effect of a sturdy character, itself the product of unambiguous moral education?
+ - I try not to second-guess editors; they’re the clients, and I have no expectation that my strip is going to make it into every paper every day.
+ - I just happen to have one of those skill sets that allows me to work in my underwear.
+ - In Palm Springs, they think homelessness is caused by bad divorce lawyers.
+ - In any event, it’s not exactly a secret to regular readers what my views on the war are.
+ - I’m a pointillist, just working my tiny little piece of the canvas. I’m not so good at perspective.
+ - Not only was one cartoonist gunned down, but riots erupted around the world, resulting in the deaths of scores. No one could say toward what positive social end, yet free speech absolutists were unchastened.
+ - That’s what fiction writers do: create characters and do terrible things to them for the entertainment of others. If they feel guilty enough, they write happy endings.
+ - Most writers seem to prefer the morning, or they feel at their best in the morning. Ideas are popping into your head while you’re in the shower. And that’s true for me, as well.
+ - The poor are the only ones who suffer. And they’re used to it.
+ - The strips about the military do seem to provoke moving and thoughtful responses. It’s nice when the strip resonates, but more importantly, I need to know when I’m getting something wrong. The last thing I want to do is contribute to the suffering that wounded warriors already endure.
+ - Once a week, I am a very desperate man.
+ - Comic strips are like a public utility. They’re supposed to be there 365 days a year, and you’re supposed to be able to hit the mark day after day.
+ - Lives have been altered in fundamental ways, and later, after they acquire a more complete understanding of what goals are actually attainable, many are left facing a lot of pain and frustration. And yet, there’s no culture of complaint.
+ - I try to take people one at a time, with all the contradictions and compromises that most of us live with.
+ - Keith Knight is mapping out a previously unknown vector of the vast cartoon universe.
+ - I’m still passionately interested in what my fellow humans are up to. For me, a day spent monitoring the passing parade is a day well-spent.
+
+30 quotes

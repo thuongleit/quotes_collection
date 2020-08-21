@@ -1,0 +1,89 @@
+ - Always have a backup plan.
+ - I don’t believe in perfection. I don’t think it exists.
+ - Chivalry is not dead and you should be a gentleman. But if you are going to buy a girl a drink, buy it. Don’t just offer it. Follow through.
+ - You always want to challenge yourself and work with people you respect. You can’t always go by genres, but it’s always fun to challenge yourself.
+ - My goal in life is to enjoy what I do, and never to look back and say I wish I would have done that.
+ - I have this odd tendency to be really sarcastic when I’m uncomfortable and I don’t really know why but it just comes out and it’s come out since I was a child.
+ - An actor goes crazy in a hotel room, gets trashed, throws a bench, breaks a window, and he is considered a rock star. An actress does that and she’s sent to rehab and is thought to have problems and issues and can’t get a job.
+ - If you do put yourself out there and do things that are not safe, then you run the risk of being criticized for it.
+ - My glass of wine and I are besties.
+ - I was really good at saying no. I decided I was just going to say yes to any opportunity that came, no matter how crazy. And it changed my life.
+ - I don’t even have Facebook, Twitter or Instagram. Why would I ever want to be viral when I’m not even on the Internet?
+ - Confidence, not cockiness. Knowing who you are is confidence. Cockiness is knowing who you are and pushing it down everyone’s throat.
+ - I didn’t get the Russian Jew part because they didn’t think I looked Russian or Jewish enough – and, mind you, I am both Russian and Jewish – so I was cast as the racist Mexican.
+ - If I’m not comfortable in my own skin or confident in who I am, then I’m going to pick parts based on how people are going to view them, not based on what I find challenging or entertaining.
+ - I am not a person of nature. I love to think of myself as one, but I’ve never even gone camping.
+ - I think playing coy is silly. Speak your mind. If a man gets turned off, he’s the wrong man.
+ - My nickname when I was young was Teddy, so people would call me Teddy Bear.
+ - I do not play games, but always just say what’s on my mind. Ostentatious modesty – for fools. If a man afraid of your honesty, it means that he is not the one you need.
+ - I never dated Wilmer Valderrama. I never dated Danny Masterson. They’re like my brothers. That’s disgusting. That’s wrong.
+ - Honestly, after doing a TV show for eight years and a cartoon for more than a decade, you are, financially speaking, in a very lucky position where you don’t have to work for the sake of working. And I decided to take advantage of that.
+ - I showed sideboob. I don’t need to show ass. You get one or the other. You don’t get both.
+ - I am very much a creature of habit, and I have no life consistency. None.
+ - I think there will always be a double standard between males and females, so I think that an actress is more likely to protect her public persona, so to speak, than an actor would be.
+ - What’s funny about my group of friends is that none of us ever went to the same school. None of us lived in the same part of town.
+ - I’ve definitely grown apart from a lot of my friends. Some of them don’t understand the schedule, and it’s not that I don’t want to talk to them, it’s that sometimes I am really busy and can’t get back to them.
+ - Five inches of snow in five inch heels, you can’t look sexy and you can’t look like you know what you’re doing because you’re fall.
+ - I think it’s important to just be a good, honest person and be true to who you are.
+ - It’s very possible that I could look like a kleptomaniac and a pathological liar and that’s why I keep getting hired.
+ - It took me five months to lose twenty pounds and it took me hours to gain it back. I mean it was magical how quickly it all happened. Going back to my poor eating habits after having really good eating habits my stomach was a little unsettled.
+ - I definitely hope to attend UCLA in a year, and major in business.
+ - People criticize a woman for everything – like, I get criticized for how my hair looks when I go grocery shopping or the fact that I don’t wear makeup when I get my nails done.
+ - My mom and my dad wanted my brother and I to have a better life, you know, better education, better jobs. It was probably harder, much, much harder, for my parents. When you’re a kid, you can learn a language much more easily; I learned English in less than a year.
+ - I honestly think being single’s great. Being in a relationship’s great. It’s all about the timing.
+ - I’d rather work to live than live to work.
+ - Knowing who you are is confidence.
+ - I’m very lucky, I do have an amazing husband.
+ - Though she doesn’t remember any trauma, she said that her parents told her she cried on a daily basis and her grandmother resorted to passing out candy so the kids would play with her. Though it was a humorous moment, Mila said, “I know, God bless her. She’s an amazing, amazing woman.”
+ - I have an older brother who is 21 and attends UC Berkley.
+ - I’m not boring to be around. Something will always happen.
+ - People strive to achieve a certain form of perfection constantly and it’s impossible because it’s a form of opinion. I can think someone is pretty but the person next to me can think that they’re unattractive.
+ - I enjoy living life and I enjoy going to different restaurants and eating my way through a country and going to different museums and learning about different cultures.
+ - That is the biggest form of bullying ever, the paparazzi. Printing lies, making accusations, it’s just bullying.
+ - I feel like every role that you take there’s a part of you that obviously feels like you can do it. I don’t know if perfect is the right word because I don’t believe in perfection and I don’t think it exists but I think striving to do something well is in every single part.
+ - There might have been guys with enough cajones to send over a drink. If I was hit on today maybe I just don’t know it. I told my friend that I never get hit on and he’s like, “You’re crazy!” But as far as I know, no, I’ve almost never been hit on.
+ - I don’t live lavishly, so it’s not like I have 20 assistants and travel privately and shop every day.
+ - I’ve always been a fan of Kate Winslet. She’s very classy and a sexy little thing, too.
+ - When it comes to picking parts, I do make an effort to choose parts that I want to do, and not necessarily parts someone else wants me to do, or parts that someone else is going to respond to.
+ - What made me feel empowered was the gun, not the clothes. Like if I had the gun, it didn’t matter what your size was, what your stature was.
+ - I had such a great time doing commercials and things as a kid. My grandparents were on set with me all the time, and I loved that I got to hang out with them, so I will forever be grateful for that. But I just loved every minute of it.
+ - I’ve never dated. I can say this honestly: I don’t know what it’s like to date. But also, how am I going to date? I’m not in one state long enough.
+ - Christian Louboutins are uncomfortable, but I screamed the first time I put on a Pointe Shoe.
+ - I think you can get away with so much more offensiveness when you’re operating behind a stuffed teddy bear or a cartoon or something that’s not real, because it’s forgiven. It’s like having a little kid in a movie curse – it’s funny because it’s not natural.
+ - I think the second you think that you’re funny is when you stop being funny.
+ - It’s not the most normal life in the world, but I screw up plenty of times to be a normal teenager.
+ - I think I have a good sense of humor, but I’m not, like, a joke-teller. I get the jokes, which is sometimes half the battle. Believe me, I have no idea why anyone hires me...
+ - I love playing different characters and I love doing fun things and I love to entertain people, whether that be in a comedy or a drama. If I get you to laugh or I get you to cry I’m super stoked, as morbid as that might sound.
+ - I’ve always been a big proponent of not working for the sake of working, because I don’t want to work for the rest of my life – I want to live.
+ - It’s fun to play somebody who has no boundaries or rules. There’s no book you can read on how to play a witch, so you just create a version. It’s really great!
+ - The fact that there is no right or wrong is what I think is maddening. I can think you’re a phenomenal actor, but the guy next door can think you’re a horrible actor, and neither of us is wrong and neither of us is right. It’s just a matter of opinion.
+ - I think that you have to restrain yourself from googling your name and have other hobbies and desires and wants. You do a million things. You go to school, you write, you read, you blog.
+ - I’ve always wanted to drive cross-country.
+ - I think sadly in any industry and in any work related environments females always strive to achieve a certain amount of perfection whether they be skinny or pretty. It’s constant in our society.
+ - If the bear were to make a racial comment, it would be more likely to get a laugh than if a person on stage were to make a racial comment.
+ - I think that certain things are funny and certain things are okay to make fun of – including myself.
+ - I actually live a very mediocre lifestyle. So I decided to step back and do things not just for the sake of doing them, but because I believe in them and I want to do them.
+ - I love swimming, tennis, and I am taking up golf. I am not serious about it, I just go to the range and practice. Other than that, I enjoy going to the movies and hanging out with my friends.
+ - I very rarely get actually sad when ending a movie.
+ - I’m still a ‘Star Trek’ fan. You never stop being one.
+ - You can’t get mad at a bear for being racist. You can’t get mad at a bear for being offensive. It’s not real.
+ - I think that an actor is more likely to be forgiven in the public’s eye than an actress.
+ - I grew up incredibly poor and went to school and had a very average upbringing.
+ - Women get scrutinized all the time for the way they look. So if I can learn to deal with that, then I do believe I can learn to deal with people’s criticisms of my film choices.
+ - I feel like every role you take, there’s a part of you that obviously feels like you can do it.
+ - I’d rather be in love and have a baby than have a movie.
+ - When you do a four-camera sitcom, everything is a little schtickier. It’s not necessarily that you pick up bad habits, but there is just a very specific way of acting that you fall into on those kinds of multicamera shows, and you have to break those habits when you go in to do other things.
+ - I make myself laugh all the time. I think I’m really funny. I do.
+ - I stand by every movie that I did. I don’t regret any decision I made.
+ - I wanted to just surround myself with people who I think are better than I am, whether they’re actors or directors or producers, so that I could learn from them.
+ - The downfall of the industry is that there is a lot of pressure in it, a lot of rejection in it and a lot of competition in it. It’s a whole mess.
+ - I was actually a pretty good student. My problem was that I didn’t know what I wanted to study.
+ - I don’t necessarily put on an act when I go on Jay Leno or dress differently in public than I do in private. I’d like to think I’m the same person, more or less.
+ - It is difficult because the school I go to, my friends do not attend.
+ - I’m a huge, huge, huge fan of Steve Carrell and Tina Fey for years.
+ - When it’s a comedy or drama or horror or romance, it’s all the same. You want to be honest with the character. You want to play truthfully and you want to be genuine with your character.
+ - I went to college because I felt like I was supposed to. I graduated from public high school and I did all the things that I was supposed to do.
+ - I think that when a person is insecure about who they are or who they want to be, then it translates on screen, and the choices they make are all about perception.
+ - I really, truly believe in learning from other people’s mistakes.
+
+87 quotes

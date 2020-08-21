@@ -1,0 +1,40 @@
+ - Nobody else will ever be able to save me if I’m not fighting as hard as I can to save myself.
+ - You’re strong enough to stand up to anyone. Smart enough to do anything you want. Don’t sell yourself short; don’t be afraid of what your new life is going to offer. Because I know – if there’s any justice in this world, good things are going to come to you. Better things than you ever dreamed.
+ - That means I’m not just here for the pretty parts. I’m here no matter what.
+ - You gotta learn how to take a compliment, because I’m not going to stop making them.
+ - I hear your insults and plan to silence them with my victory.
+ - Everyone is lonely, we have to remember that life is to be lived one day at a time. You cannot worry about the past or future. Happiness is in the now.
+ - I’m not dating Balthazar. I’m pretend dating him. Which involves some not pretend hand-holding. And maybe some not pretend kissing. But it’s all actually pretend, see? I groaned. My explanations were making my head hurt already.
+ - People get stupid when they’re in love; people want what they can’t have; and the years between ages twelve and eighteen always, always suck.
+ - It was as if something snapped in two deep inside me. My parents – the people I’d loved the most in the world, the ones I’d always told all my secrets to, the ones I’d wanted to hide with far away from the rest of the world. They had lied, and I couldn’t imagine why. It couldn’t possibly matter why.
+ - You’ll live forever, and being remembered by is the only immortality I’ll ever need. If i only live on as a part of you – Bianca, that’s my idea of Heaven.
+ - I could almost feel him near me, the way you can feel a fire’s presence in a cold room.
+ - All of my best friends are dead people. Someday I’ve got to figure out how that happened.
+ - Is this what it means to die? Lucas thought. Because I’m not scared of it anymore. Not if it means I finally get this close to you.
+ - Hear me out. Would you eat a hamburger if there was any chance it could punch you in the face? – How is a hamburger supposed to punch me in the face? Just say that it can. Would you bother? Or would you eat something else?
+ - If you loved someone, you couldn’t let lies come between you. No matter what happened – even if you’d already lost each other forever – you owed each other the truth.
+ - But do you want this? It’s not much of a life. Don’t you see? It’s the first life I’ve had in four hundred years. With you – in the only way that matters – I’m alive again.
+ - The library would’ve cheered me up, most days. I loved the heavy oaken tables, the high walls stacked with books to the ceiling, the musty smell of old pages and the heavy brass fixtures that had gone dark with age and wear.
+ - He’d protect me and shelter me forever. But I was beginning to realize that being sheltered came at a price.
+ - But you have nothing better to do with your time than harass us, do you? Go back to ruling the universe from Mount Olympus or whatever else it is you mongrels do.
+ - Good Soldiers don’t sacrifice the cause for love – Lucas If the cause isn’t love then it isn’t worth the sacrifice.
+ - Huging my pillow to my chest, I told myself, At least soon you won’t have so much time to miss him. Soon school will start again, and then you’ll be busier. Wait. Am I reduced to HOPING for school to start? Somehow, I have discovered a whole new level of pathetic.
+ - Lucas had told me only one lie, ever; he kept the secret of black Cross because it wasn’t his secret to tell. In every other way, he’d been honest with me and shared the hard truths nobody else thought I deserved to hear.
+ - I wonder how much of the rest of his clothes I could convince him to take off, then wonder where that thought came from. Well I guess I know.
+ - But nothing was a important as escaping Evernight or the ‘destiny’ my parents and teachers had decided for me. I had only one chance to be free and to be with the guy I loved. I intended to take it.
+ - Vic knelt by Lucas’s side. “You look like crap, by the way.” “Thanks for breaking it to me gently.” Lucas took a deep breath, then groaned.
+ - Poor Lucas, always trying to protect me from danger. He’d never guessed that I was the dangerous one.
+ - In my opinion, all boyfriends should turn out to be secretly wealthy.
+ - We can always hate that which we loved, and with a fire as great as our love once was.
+ - For my own good. Anytime anyone had ever used those words to me, they hadn’t had the slightest clue what ‘my own good’ truly was.
+ - Balthazar was the kind of guy who used totally correct spelling and punctuation even when he was texting, which was sort of bizarrely hot. She was in serious trouble if commas could get her going.
+ - Are you calling me a weirdo? Highest honor I can bestow.
+ - About time you grew up and became a vampire like the rest of us.
+ - What had seemed like love was betrayal.
+ - Either this guy really liked me, or I was inventing things in my head because I wanted him to like me. I was much too inexperienced to guess which.
+ - That is the manner in which I roll.
+ - I was the only one who knew the whole truth about Lucas – who he really was, and what we felt for each other. The truth was all I had left of him, and I would have to carry it alone.
+ - Every single day was just a box on the calendar that I could put a red X through; each one brought me closer to Lucas and to liberty.
+ - It wasn’t badass. I don’t really do badass.
+
+38 quotes

@@ -1,0 +1,114 @@
+ - Doubt kills more dreams than failure ever will.
+ - Stand up for what is right even if you stand alone.
+ - Have faith in your skills, negative thoughts kill. Self-doubt will kill your dreams before others do. Doubt kills more dreams than failure ever will.
+ - Be yourself. An original is always worth more than a copy.
+ - Greatness comes with patience.
+ - Time has always been the greatest ally to Truth, because Time eventually relieves and reveals all.
+ - The light of love sees no walls.
+ - Ignorance is not bliss. It is the kiss of death.
+ - My father taught me that learning is an endless process, and that there is no limit to the amount of knowledge a person can contain. You are never too old to learn something new, or too young to learn too much.
+ - A heart without dreams is like a bird without feathers.
+ - Selflessness. Humility. Truthfulness. These are the three marks of an honorable man.
+ - Every flower blooms at a different pace.
+ - Most people will not stand up to injustice unless their comfort of living is severely threatened. This is because today’s man does not care for the outside world so long as he has a roof over his head and four walls to contain his own.
+ - Being truthful is the new beautiful.
+ - The number of ways you can live in one lifetime is limitless. So why limit yourselves? The sky is NOT the limit. Beyond the universe is.
+ - Always listen to the voice of your conscience. If your conscience conflicts with your faith, question everything.
+ - Fear attracts the darkness. When you have no fear, the darkness fears YOU.
+ - Take care of your life force and always keep it streaming. Always be active and creative, and never ever stop dreaming.
+ - Everyone should strive to be a world citizen. Boundaries were created by man, not the Creator. There is no such thing as THEM vs. US. There is only WE.
+ - Stand up for Truth regardless of who steps on it.
+ - Life is no different than the weather. Not only is it unpredictable, but it shows us a new perspective of the world every day.
+ - Whenever you should doubt your self-worth, remember the lotus flower. Even though it plunges to life from beneath the mud, it does not allow the dirt that surrounds it to affect its growth or beauty.
+ - A man who tells you to follow him, will turn his followers into his company. While a true leader who does not tell you to follow him, will sit in the company of his followers.
+ - The key to a wonderful life is to never stop wandering into wonder.
+ - Being different and thinking different makes a person unforgettable. History does not remember the forgettable. It honors the unique minority the majority cannot forget.
+ - Love is meant to lift you up, not hold you down.
+ - Had mankind listened to the Creator when he advised his children to never create his image, or give him a name, then humanity would not be so confused and divided in believing that every faith is worshiping a different god.
+ - Fear the vulture and the vulture will come. Fear nothing and you are the vulture.
+ - Stand up to hypocrisy. If you don’t, the hypocrites will teach. Stand up to ignorance, because if you don’t, the ignorant will run free to spread ignorance like a disease.
+ - Always surround yourself with friends that have plenty of light in them. That way, you will always have candles around you when days are dark.
+ - You are a valuable instrument in the orchestration of your own world, and the overall harmony of the universe. Always be in command of your music. Only you can control and shape its tone. If life throws you a few bad notes or vibrations, don’t let them interrupt or alter your song.
+ - Never fear Death for you will feel aroused by his sleep. Never cheat death or he will slap you with a sentence of misery for the defeat.
+ - Be different. Be original. Nobody will remember a specific flower in a garden filled with thousands of the same yellow flower, BUT they will remember the one that managed to change its color to purple.
+ - Our hearts resonate at the same frequency as the earth and the universe. Therefore, we are all valuable instruments in the orchestration of the world and its harmony.
+ - Ignoring your conscience is the first violation of Truth.
+ - Not a single bird makes its first leap from a tree without faith, and not a single animal in the jungle begins its day without faith. Faith is the flame that eliminates fear, and faith is the emperor of dreams.
+ - A good man will never harm or oppress another. A good man will share his last morsel of food with others in need, and die of hunger when he no longer has any food – instead of cheat or steal from others to survive. Selflessness. Humility. Truthfulness. These are the three marks of an honorable man.
+ - Regardless of your chosen faith, at the end of your life’s journey, your heart will be measured in two ways. One, the weight of your conscience must far outweigh the weight of a feather. Two, any impurities in your heart must weigh no more than one feather.
+ - If an evil spirit had to hide from God, it would hide in a diamond. If an angel had to hide from the Devil, it would hide in rose quartz.
+ - Initiative without action is the same as having the mind to acknowledge a problem, but not having the heart to see it through.
+ - Illumination is nothing if you do not share it with anyone. Illumination is about spreading light across entire nations. It’s about wearing that crown that shines like the sun on your head and getting other minds to synergize with yours.
+ - You cannot change someone using fear, degradation, humiliation, or by comparing them to others. It can only be done through love, with love, for love. Love.
+ - To enjoy each breathing day, you have to set time aside to play.
+ - Never trust the translation or interpretation of something without first trusting its interpreter.
+ - Many people will never learn the lessons meant for them in this lifetime, nor become the person they were meant to be, simply because they are too busy being someone else.
+ - We are all connected. When one arm or foot is poisoned, the whole body becomes infected.
+ - Control your vibrations and you are the master of your own harmony.
+ - A good leader leads with compassion and love, not fear and blood. A country that harms its people because they are not happy with the leader – is not a country that belongs to the people, but to the leader.
+ - Language is a serious weapon in shining and sharing Truth. It is also a serious weapon used in its distortion.
+ - Truth waits to be found. It searches for no one.
+ - Truth can only be seen by those with truth in them.
+ - I would rather die fighting for what is right, than live passively amidst all that is wrong.
+ - Love is meant to LIFT you up, not tear you down. It is meant to strengthen you, not weaken you.
+ - To test a man’s ego, simply ask him a complicated question. A good person will never be afraid to admit they don’t know the answer to something. And only when a man has fully dismantled his ego, can he begin to be truly good.
+ - The journey of the sun and moon is predictable. But yours, is your ultimate ART.
+ - Speak up, stand up, and keep correcting the false perceptions. Stay true to your heart’s views and keep chanting for peace and justice.
+ - To be successful, one has to be one of three bees: the queen bee, the hardest working bee, or the bee that does not fit in.
+ - My heart is my temple and with it I can see and hear Truth. My heart is my conscience and Truth is God.
+ - Humanity is lost because people have abandoned using their conscience as their compass.
+ - Do not allow any negativity or ugliness in your surroundings, or anybody at all, destroy your confidence or affect your growth as a blooming flower. It is very normal for one ugly weed to not want to stand alone.
+ - Pay no attention to pop culture, for it is what poisons our minds and divides our children. Materialism promotes negative values and egotism. Eliminate all of it. It is the plague of Big Business.
+ - Truth is first felt in the heart before the mind. Those that look for truth through the mind before the heart will never find Truth.
+ - Nothing exists without a purpose. Every experience you have in this lifetime was written for you to grow into the light you were meant to become.
+ - Did you know that wherever you find fool’s gold, real gold exists somewhere nearby? This also goes for relationships and friendships. Real gold is found in the heart. For every piece of fake gold that you discard, remember that true gold isn’t too far.
+ - Comedy is a necessity to get through life with the fewest scars. Humor is the best antidote to help relieve all struggles.
+ - No effect occurs without cause, and no cause occurs without effect. No unjust action goes without penalty, and no action or thought flows unnoticed throughout the universe.
+ - Any man filled with empathy is capable of gaining valuable insights on the human condition through the suffering of others. You do not need to suffer to know suffering, but you need empathy first to identify and feel the suffering of others around you.
+ - It does not matter if you vote for the left or right, you are not an elephant or donkey. You are a truthful lion who stands only for your conscience.
+ - In love, treat your relationship as if you are growing the most beautiful flower. Keep watering it, tend to its roots, give it lots of sunlight, and always make sure the petals are full of color and are never curling. Once you neglect your plant, it will die, as will your relationship.
+ - If all men are made in Gods reflection, then why do some people continue to acknowledge only what is in their part of the mirror? If every man was created EQUAL and in the image of God, then how can any man claim that one race is better than another?
+ - Knowledge is as infinite as the universe. The man who claims to know all, only reveals to all that he really knows nothing.
+ - Every nation needs two wings to fly. Any bird torn at the wings will never soar the skies.
+ - Truth is as straight as an arrow, while a lie swivels all over the place. You can hide Truth under a doormat, but eventually the mat will rise very high with Time – forcing it to reveal all the truths it conceals.
+ - Truth does not sit in a cave and hide like a lie. It wanders around proudly and roars loudly like a lion.
+ - Wise words are like seeds. The more you scatter them, the more they will grow into infinite gardens of knowledge.
+ - When caught under the weather of love, always choose the person who loves you unconditionally, and abandon the one who only loves you under favorable conditions.
+ - Never follow a follower who is following someone who has fallen. Its why the whole world is falling apart.
+ - Love is a flower that should never cease to grow. Nurture it, and it will outlive you. Neglect it, and it will wilt away and die.
+ - There is at least one truth to every myth, and it takes one truth to create a lie. Lies can be formed from Truth; however, Truth cannot be formed from lies.
+ - Unity is a beast in itself. If a wolf sees two little boys playing in the woods on one side, and a big strong man on the other, he will go to the one who stands alone.
+ - When you find yourself in the thickness of pursuing a goal or dream, stop only to rest. Momentum builds success.
+ - The spirit is one of the most neglected parts of man by doctors and scientists around the world. Yet, it is as vital to our health as the heart and mind. It’s time for science to examine the many facets of the soul. The condition of our soul is usually the source of many sicknesses.
+ - The man armed with knowledge has a better chance of survival than the man who is simply the fittest. Knowledge is the true strength. Muscle is where the myth is.
+ - Sometimes we have to soak ourselves in the tears and fears of the past to water our future gardens.
+ - Fiercely guard the passions burning inside your heart, so that their flames can safely reach the highest ceilings of success without the eyes of envy.
+ - Only the beautiful can acknowledge all that is beautiful, and only the ugly can acknowledge all that is ugly as being beautiful. Beauty is in the heart of the beholder.
+ - We become responsible for the actions of others the instant we become conscious of what they are doing wrong and fail to remind them of what is right.
+ - The language of the heart is mankind’s main common language.
+ - Form is burden. Sometimes being part of the system enslaves the mind and greatly limits the imagination by enslaving it to form. Form is a burden to the mind that sees no limits. Form is a prison for the soul who sees possibilities outside the lines and wishes to test them.
+ - Your heart has a powerful little antenna and its vibrations can be felt throughout the universe.
+ - For the newborn and wise, everything begins small.
+ - Truth is as straight as an arrow, while a lie swivels like a snake.
+ - The birds are the eyes of heaven, and the flies are the spies of hell.
+ - We all have supernatural powers, but have not been educated on how to use them. That is why they are called SUPER-NATURAL. They are already super NATURAL to US!
+ - How a man perceives substance dictates the amount of substance in a man. To know the depth of anyone’s true substance, simply measure the weight of what consumes and excites their inner drive.
+ - Children make the best measurements of time. It is only when I see the son or daughter of a friend or relative over periods of time, do I realize how much time has passed based on how much they’ve grown.
+ - Future system busters will always seem like problem children. But the truth is, they just can’t be compacted into any system, and can detect the flaws in them all.
+ - All around the world, there are children wishing they had some cool sneakers like you do. But before you decide to give them your old pair, they’d first like a decent meal, some fluid, and some medication so they can walk comfortably in your shoes.
+ - What’s the point of a spark of light if it stands alone? The key is, and will always be, synergy. Without it, each and every light being will forever feel broken, misplaced, and internally crippled.
+ - There is no light greater than truth and it shines at the heart of all creation.
+ - Thought before word. Never word before thought.
+ - After I removed all the cultural coatings and traditions that disguise each religion, I discovered the soul to be the same in all of them. Therefore, it is hard for me to say I am just one, when my heart recognizes the truths in them all.
+ - You can create many lies from Truth, but you cannot create any truths from lies.
+ - Write and people will come to read. Write and people will heed to your words and share them with others. Not all may relate, but wait, and those that were meant to see it eventually will find it, for truth waits to be found. It searches for no one.
+ - To know the good from the bad, measure the heart. Actions reveal the true coloring of one’s heart, not their intentions.
+ - Every soul on earth is equally precious, even those of plants and animals. If you see love in one area and not another, then you are not reflecting true love for all creatures on earth, only a deficiency in your senses. The light of love sees no walls.
+ - The greater the spirit, the more one is alone.
+ - Doubt, fear and regret are the three villains of success. If you close the door on the first two, you will never have to worry about meeting the third.
+ - There is no point drumming up noise about a cause, if you are not willing to take a beating for it.
+ - Faith is the flame that eliminates fear.
+ - Truth is felt in the heart. This is why your heart should always be your ultimate temple. Sitting inside on a blue altar, is you’re where you find your conscience. This is where all conversations with God stream.
+ - Each time you say hello to a stranger, your heart acknowledges over and over again that we are all family.
+
+112 quotes

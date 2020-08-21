@@ -1,0 +1,22 @@
+ - The physicists defer only to mathematicians, and the mathematicians defer only to God...
+ - The real goal of physics is to come up with an equation that could explain the universe but still be small enough to fit on a T-shirt.
+ - Those who do not stop asking silly questions become scientists.
+ - I’m so old I can remember when the Dead Sea was only sick.
+ - We hope to explain the entire universe in a single, simple formula that you can wear on your T-shirt.
+ - Physics isn’t a religion. If it were, we’d have a much easier time raising money.
+ - Theorists write all the popular books on science: Heinz Pagels, Frank Wilczek, Stephen Hawking, Richard Feynman, et al. And why not? They have all that spare time.
+ - Science is not about status quo. It’s about revolution.
+ - One of the major ingredients for professional success in science is luck. Without this, forget it.
+ - Science should have no less lofty a goal. My ambition is to live to see all of physics reduced to a formula so elegant and simple that it will fit easily on the front of a T-shirt.
+ - The history of atomism is one of reductionism – the effort to reduce all the operations of nature to a small number of laws governing a small number of primordial objects.
+ - Experimenters don’t come in late – they never went home.
+ - I started out as a molecules kid. In high school and early college I loved chemistry, but I gradually shifted toward physics, which seemed cleaner – odorless, in fact.
+ - The British philosopher Bertrand Russell said that philosophy went downhill after Democritus and did not recover until the Renaissance.
+ - Democritus’s work on the void was revolutionary.
+ - During an intense period of lab work, the outside world vanishes and the obsession is total. Sleep is when you can curl up on the accelerator floor for an hour.
+ - Particle physics suffers more from being infected by the socio-political mood of the day than from lack of spectacular opportunities for major and profound discoveries.
+ - My children have often asked me why I never received a Nobel Prize. I used to tell them it was because the Nobel committee couldn’t make up its mind which of my projects to recognize.
+ - Theorists tend to peak at an early age; the creative juices tend to gush very early and start drying up past the age of fifteen-or so it seems. They need to know just enough; when they’re young they haven’t accumulated the intellectual baggage.
+ - The aether: Invented by Isaac Newton, reinvented by James Clerk Maxwell. This is the stuff that fills up the empty space of the universe. Discredited and discarded by Einstein, the aether is now making a Nixonian comeback. It’s really the vacuum, but burdened by theoretical, ghostly particles.
+
+20 quotes

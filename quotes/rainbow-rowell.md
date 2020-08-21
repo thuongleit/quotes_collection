@@ -1,0 +1,163 @@
+ - I want everyone to meet you. You’re my favorite person of all time.
+ - So, what if, instead of thinking about solving you whole life, you just think about adding additional good things. One at a time. Just let your pile of good things grow.
+ - Eleanor was right. She never looked nice. She looked like art, and art wasn’t supposed to look nice; it was supposed to make you feel something.
+ - People who fall in love with books never really stop falling.
+ - I love you more than I hate everything else.
+ - But there’s nothing more profound than creating something out of nothing.
+ - October, baptize me with leaves! Swaddle me in corduroy and nurse me with split pea soup. October, tuck tiny candy bars in my pockets and carve my smile into a thousand pumpkins. O autumn! O teakettle! O grace!
+ - Real life was something happening in her peripheral vision.
+ - Holding Eleanor’s hand was like holding a butterfly. Or a heartbeat. Like holding something complete, and completely alive.
+ - Underneath this veneer of slightly crazy and mildly socially retarded, I’m a complete disaster.
+ - I choose you over everyone.
+ - You saved me life, she tried to tell him. Not forever, not for good. Probably just temporarily. But you saved my life, and now I’m yours. The me that’s me right now is yours. Always.
+ - Drinking tequila is more about the journey than the destination.
+ - Nothing was dirty. With Park. Nothing could be shameful. Because Park was the sun, and that was the only way Eleanor could think to explain it.
+ - I think I can live without you, but it won’t be any kind of life.
+ - Every woman wants a man who’ll fall in love with her soul as well as her body.
+ - I don’t trust anybody. Not anybody. And the more that I care about someone, the more sure I am they’re going to get tired of me and take off.
+ - She carried herself like she was exactly the size everyone else wanted to be.
+ - There’s no such thing as handsome princes, she told herself. There’s no such thing as happily ever after.
+ - This is why I can’t be with Levi. Because I’m the kind of girl who fantasizes about being trapped in a library overnight-and Levi can’t even read.
+ - Wasn’t that the point of life? To find someone to share it with? And if you got that part right, how far wrong could you go? If you were standing next to the person you loved more than everything else, wasn’t everything else just scenery?
+ - You think that holding someone hard will bring them closer. You think that you can hold them so hard that you’ll still feel them, embossed on you, when you pull away. Every time Eleanor pulled away from Park, she felt the gasping loss of him.
+ - It’s so easy for someone else to say, ‘Don’t worry. Everything’s going to be all right.’ Why not say it? It doesn’t cost anything. It doesn’t mean anything. No one will hold you to it if you’re wrong.
+ - There are moments when you can’t believe something wonderful is happening. And there are moments when your entire consciousness is filled with knowing absolutely that something wonderful is happening.
+ - Cath felt like she was swimming in words. Drowning in them, sometimes.
+ - I’d rather be broken than wasted.
+ - Even if your heart is broken and attacking you, you’re still not better off without it.
+ - That’s because you ooze preemptive leave-me-alone death rays.
+ - It was the best kind of November day. Cold and crisp, but not quite freezing, not icy. Just cold enough that she could justifiably wear all her favorite clothes – cardigans and tights and leg warmers.
+ - My girlfriend is sad and quiet and keeps me up all night worrying about her.
+ - Why are you lying awake, thinking that you’re a terrible person? To keep my mind occupied when I can’t sleep. Some people count sheep. I self-loathe.
+ - What are the chances you’d ever meet someone like that? he wondered. Someone you could love forever, someone who would forever love you back? And what did you do when that person was born half a world away? The math seemed impossible.
+ - He’d stopped trying to bring her back. She only came back when she felt like it anyway, in dreams and lies and broken-down deja-vu.
+ - I don’t have to forgive you, Cath said. It’s not like that with you. You’re just in with me. Always. No matter what happens.
+ - To really be a nerd, she’d decided, you had to prefer fictional worlds to the real one.
+ - Sometimes writing is running downhill, your fingers jerking behind you on the keyboard the way your legs do when they can’t quite keep up with gravity.
+ - He tried to remember how this happened – how she went from someone he’d never met to the only one who mattered.
+ - Levi’s eyebrows were pornographic. If Cath were making this decision just on eyebrows, she would have been “up to his room” a long time ago.
+ - Cath couldn’t stop thinking about Levi and his ten thousand smiles.
+ - You look different. You look unsettling.’ ‘You look like you,’ he said. ‘You with the volume turned up.
+ - Eleanor’s hair caught fire at dawn. Her eyes were dark and shining, and his arms were sure of her. The first time he touched her hand, he’d known.
+ - Things get better – hurt less – over time. If you let them.
+ - Emergency dance party – go away.
+ - You don’t have to be the kind of beautiful that everyone can agree on. If the right person finds you beautiful, you win. You win forever.
+ - I want someone whose heart is big enough to hold me.
+ - You’re never going to find a guy who’s exactly like you – first of all, because that guy never leaves his dorm room.
+ - I don’t want to do anything. I don’t even want to start this day because then I’ll just be expected to finish it.
+ - Cath wished she didn’t use the word “just” so much. It was her passive-aggressive tell, like someone who twitched when they were lying.
+ - The first time he’d held her hand, it felt so good that it crowded out all the bad things. It felt better than anything had ever hurt.
+ - That was the beauty in stacking up words – they got cheaper, the more you had of them.
+ - I didn’t know love could leave the lights on all the time.
+ - A little manic was what their house ran on.
+ - There are other people on the Internet. It’s awesome. You get all the benefits of ‘other people’ without the body odor and the eye contact.
+ - You’re a sad little hermit, and it creeps me out.
+ - She’d majored in English, hoping that meant she could spend the next four years reading and writing. And maybe the next four years after that.
+ - You can park your snark at the gate, Omaha.
+ - I object to every single thing you just said.
+ - I don’t know if I even believe in that anymore. The right guy. The perfect guy. The one. I’ve lost faith in “the”. How do you feel about “a” and “an”? Indifferent. So you’re considering a life without articles?
+ - And because I’m so out of control, I can’t help myself. I’m not even mine anymore, I’m yours, and what if you decide that you don’t want me? How could you want me like I want you?
+ - Don’t make me angry-kiss you.
+ - I just can’t believe that life would give us to each other,’ he said, ‘and then take it back.’ ‘I can,’ she said. ‘Life’s a bastard.
+ - The strange thing about seeing someone for first time in nine years is the way they look totally different, just for a second, a split second, and then they look at you the way they always have, as if no time has passed between you.
+ - I don’t like you, Park. Sometimes I think I live for you.
+ - He made her feel like more than the sum of her parts.
+ - I like science fiction, I like fantasy, I like time travel, so I had this idea: What if you had a phone that could call into the past?
+ - The idea that you’re hard to love is ludicrous.
+ - But you’re so helpless sometimes. It’s like watching a kitten with its head trapped in a Kleenex box.
+ - It’s more like you meet someone, and you fall in love, and you hope that that person is the one – and then at some point, you have to put down your chips. You just have to make a commitment and hope that you’re right.
+ - And when Eleanor smiled, something broke inside of him. Something always did.
+ - You’re a kaleidoscope, you change every time I look away.
+ - Park was never going to love her more than he did on the day they said goodbye. And she couldn’t bear to think of him loving her less.
+ - If you don’t want people to look at you, Park had thought at the time, don’t wear fishing lures in your hair. Her jewelry box must look like a junk drawer.
+ - Take your vitamins. Don’t drink vodka. Get used to empire waistlines.
+ - She wanted to lose herself in him. To tie his arms around her like a tourniquet. If she showed him how much she needed him, he’d run away.
+ - She didn’t have words for what Levi was. He was a cave painting. He was The Red Ballon. She lifted her heels and pulled him forward until his face was so close, she could look at only one of his eyes at a time. “You’re magic,” she said.
+ - I just want to break that song into pieces and love them all to death.
+ - Levi’s smile broke free and devoured his whole face. It started to devour her face, too. Cath had to look away.
+ - Have you ever seen The Goodbye Girl? Don’t watch it if you still want to enjoy romantic comedies. It makes every movie ever made starring Julia Roberts or Sandra Bullock lash itself in shame.
+ - He looked like someone with a steerage ticket on the titanic. Somebody who’d be standing in line at Ellis Island. Undiluted and old-blooded. Also cute.
+ - If you couldn’t save your own life, was it even worth saving?
+ - Months are different in college, especially freshman year. Too much happens. Every freshman month equals six regular months – they’re like dog months.
+ - He looked exactly like a rat. Like the human being version of a rat. Like the villain in a Don Bluth movie.
+ - The me that’s me right now is yours. Always.
+ - Eleanor had never thought about killing herself – ever – but she thought a lot about stopping. Just running until she couldn’t run anymore. Jumping from something so high that she’d never hit the bottom.
+ - He didn’t take her breath away. Maybe the opposite. But that was okay-that was really good, actually, to be near someone who filled your lungs with air.
+ - But he kept finding new pockets of shallow inside himself. He kept finding new ways to betray her.
+ - It was like their lives were overlapping lines, like they had their own gravity. Usually, that serendipity thing felt like the nicest thing the universe had ever done for her.
+ - You give away nice like it doesn’t cost you anything.
+ - I’d rather pour myself into a world I love and understand than try to make something up out of nothing.
+ - You look so blindingly cute right now, I feel like I need to make a pinhole in a piece of paper just to look at you.
+ - She didn’t want to run, period. It made her breasts feel like they were going to detach from her body.
+ - A landline is an anchor – busy signals, long distance bills, missed connections and all.
+ - He wound the scarf around his fingers until her hand was hanging in the space between them. Then he slid the silk and his fingers into her open palm. And Eleanor disintegrated.
+ - You look like a protagonist.
+ - Maybe Park had paralyzed her with his ninja magic, his Vulcan handhold, and now he was going to eat her. That would be awesome.
+ - It was the nicest thing she could imagine. It made her want to have his babies and give him both of her kidneys.
+ - Love. Purpose. Those are things that you can’t plan for. Those are things that just happen.
+ - That girl had the subtlety of a Spencer’s Gifts shop.
+ - That girl – all of them – hated Eleanor before they’d even laid eyes on her. Like they’d been hired to kill her in a past life.
+ - And sometimes you held somebody’s hand just to prove that you were still alive, and that another human being was there to testify to that fact.
+ - Maybe he was Filipino. Was that in Asia? Probably. Asia’s out-of-control huge.
+ - Ophelia was bonkers, right? And Juliet was what, a sixth-grader?
+ - You win when no one finds you, even if they’re not looking.
+ - Everytime, he breaks your heart. And everytime, he expects me to pick up the pieces.
+ - It had taken years to put themselves back together, and so what if some things didn’t get put back in the right place? At least they could hold themselves up.
+ - I believe that worrying about a bad thing prepares you for it when it comes. If you worry, the bad thing doesn’t hit you as hard. You can roll with the punch if you see it coming.
+ - Like, really like you. And i want that kiss to have been the start of something. Not the end.
+ - Knowing they were in the same city again made the missing him flare up inside her. In her stomach. Why were people always going on and on about the heart? Almost everything Levi happened in Cath’s stomach.
+ - That’s the ultimate kind of broken. The kind of damage you never recover from.
+ - The next night, Lincoln parked his Corolla right next to The Courier’s front door. I’m here, he thought. Find me. Follow me. Make this inevitable.
+ - The worst thing about the internet, as far as Greg’s bosses were concerned, was that it was now impossible to distinguish a roomful of people working diligently from a roomful of people taking the What-Kind-of-Dog-Am-I? online personality quiz.
+ - Because being assaulted with maxi pads is a great way to win friends and influence people.
+ - He pulled away to say he’s sorry, and she shook her head no, because even though she really want him to be sorry, she wanted to kiss him more.
+ - I couldn’t love anyone more than I do you, it would kill me. And I couldn’t love anyone less because it would always feel like less. Even if I loved some other girl, that’s all I would ever think about, the difference between loving her and loving you.
+ - Happily ever after, or even just together ever after, is not cheesy.
+ - Things she knew now, that she hadn’t known two hours ago: Park was covered with skin. Everywhere.
+ - The squirrels on campus were beyond domestic; they were practically domestically abusive.
+ - Then Park reached up and wrapped one of her red curls around his honey finger. “Back to missing you,” he said, letting it go.
+ - I tend to write about my anxieties – it’s what I’m afraid will happen. And I write a story working it out.
+ - She heard the very beginning of a smile in his voice – a fetal smile – and it very nearly killed her.
+ - Smiling is confusing, she thought. This is why I don’t do it.
+ - But the explanations fell apart in her hands. Everything true was too hard to write – he was too much to lose. Everything she felt for him was too hot to touch.
+ - Georgie. You cannot be jealous of Dawn – that’s like the sun being jealous of a lightbulb.
+ - There’s only of him, she thought, and he’s right here.
+ - Don’t bite his face, Eleanor told herself. It’s disturbing and needy and never happens in situation comedies or movies that end with big kisses.
+ - You flirt with old people and babies and everybody in between.
+ - I’m not complaining about my cell phone – all my friends are in there, and all my favorite songs and all my favorite Benedict Cumberbatch GIFs; I don’t want to give it up. But cell phones are the worst for talking on the phone.
+ - I take something that happened to me in 1983, and I make it happen to somebody else in 1943. I pick my life apart that way, try to understand it better by writing straight through it.
+ - With Attachments, my goal was to write a really good romantic comedy. I wanted the reader to be smiling throughout.
+ - If we stop to apologize and forgive each other every time we step on each other’s toes, we’ll never have time to be friends.
+ - I really am happy for Kiley. And for you and every other happily married lady. Except for that I’m not happy for you. I kind of want you all to drop dead.
+ - God, his chin. She wanted to make an honest woman of his chin. She wanted to lock it down.
+ - Wasn’t hitting bottom the thing you had to do to knock some sense into yourself? Wasn’t hitting bottom the thing that showed you which way was up?
+ - You can’t take back texts. If you come off all moody and melancholy in a text, it just sits there in your phone, reminding you of what a drag you are.
+ - All of her bones seemed more purposeful than other people’s. Like they weren’t just there to hold her up, they were there to make a point.
+ - I know what it’s like to be distracted. To seek out distractions. To exhaust yourself doing every other little thing rather than face a blank page.
+ - I wrote all four of my books at Starbucks.
+ - I dare you to call Ask-A-Nurse and tell them you feel a presence in your womb region.
+ - Levi was smiling. He kicked her chair again.
+ - She knew she was lovely, and she shared it like a gift. Every smile from Agatha was like waking up to a perfect sunny day. Agatha knew it. And she smiled at everyone who crossed her path, as if it were the most generous thing she could offer.
+ - For the first time in weeks, Park didn’t have that anxious feeling in his stomach on the way home from school, like he had to soak up enough Eleanor to keep him until the next day.
+ - He tried not to love that she could recite scenes from Ghostbusters, that she liked kung fu movies and could name all of the original X-Men – because those seemed like reasons a guy would fall for a girl in a Kevin Smith movie.
+ - Well, I’m writing everything that isn’t my final project, so that when I actually sit down to write it, that’s all that will be left in my mind.
+ - She was tired of being the one who cried.
+ - People tend to pair off that way, Cath thought, in matched sets.
+ - You act like getting pregnant is a disease you can catch from public toilets.
+ - There was just no fear in her.
+ - She didn’t know there were things worse than selfish.
+ - You shouldn’t reward me for endangering your life, you know. Think of the precedent you’re setting.
+ - Fitting together is something you work at. It’s something you make happen – because you love each other.
+ - She bent her neck back and kissed him like she never had before. Like she wasn’t scared of doing it wrong.
+ - He wished that they could go through life like this. That he could physically put himself between Eleanor and the world.
+ - I don’t think there’s enough of her left.
+ - Have you ever heard sculptors say that they don’t actually sculpt an object; they sculpt away everything that isn’t the object?
+ - She saw him after seventh hour in a place she’d never seen him before, carrying a microscope down the hall on the third floor. It was at least twice as nice as seeing him somewhere she expected him to be.
+ - Or maybe, he thought now, he just didn’t recognize all those other girls. The way a computer drive will spit out a disk if it doesn’t recognize the formatting. When he touched Eleanor’s hand, he recognized her. He knew.
+ - I don’t like hello. It makes me sound like I have dementia, like I’ve never heard a phone ring before and I don’t know what’s supposed to happen next. Hello?
+ - It’s not my job to want you or not want you. It’s not my job to earn you.
+ - The whole point of fanfiction is that you get to play inside somebody else’s universe. Rewrite the rules. Or bend them. The story doesn’t have to end. You can stay in this world, this world you love, as long as you want, as long as you keep thinking of new stories.
+ - Cath wanted to go back and rewrite every scene she’d ever written about Baz or Simon’s chests. She’d written them flat and sharp and hard. Levi was all soft motion and breath, curves and warm hollows. Levi’s chest was a living thing.
+ - I was in my mid 20s when email finally took off. Until then, the phone was my primary way of connecting with the people in my life.
+
+161 quotes

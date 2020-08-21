@@ -1,0 +1,31 @@
+ - Sell yourself first, if you want to sell anything.
+ - The first duty of life is to live.
+ - I admire honesty and straightforwardness combined with true femininity.
+ - You see, if you make believe hard enough that something is true, then it is true for you.
+ - I always try to improve, to find new ways of expressing myself, to keep looking for truth and originality.
+ - I feel that I am a good actor.
+ - Can anything be more Un-American than the Un-American committee?
+ - You sit in your tepee and dream and then you go to wherever the dream may take you. It might come true. You wait for real life to catch up.
+ - Most people seem to think I’m the kind of guy who shaves with a blowtorch. Actually I’m bookish and worrisome.
+ - When two partners always agree, one of them aint necessary.
+ - As long as you are curious, you defeat age.
+ - Alcoholics are mostly disappointed men.
+ - I did something wrong – once.
+ - My brother never had me to dinner in his life.
+ - A circus is like a mother in whom one can confide and who rewards and punishes.
+ - I am reasonably happy, providing I keep busy.
+ - I found marriage somewhat stifling. I don’t know that I am the kind of man who ought to be married.
+ - I hate looking backward, but every once in a while it sneaks up on you.
+ - I’m-going-to-tilt-my-head-at-a-perpendicular-angle-and-then-attempt-to-extract-your-soul-through-your-mouth-like-some-giant-alien-sucker-fish.
+ - I’ve always wanted to get an education, and tonight’s as good a time as any.
+ - Sometimes I only succeed in beating myself to death.
+ - Take the feeling of hunger out of your gut, and you’re no longer a champion.
+ - Obviously I am not the young man who came to Hollywood in 1946.
+ - You have to fight against being an antique.
+ - I had the luck of having an obedient body.
+ - I believe we should appeal to people at the higher levels.
+ - I am interested in being in pictures that I would like to see.
+ - I have turned down a lot of garbage lately.
+ - I walked out of class one day and I never went back.
+
+29 quotes

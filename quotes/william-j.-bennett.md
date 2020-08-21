@@ -1,0 +1,40 @@
+ - Our common language is English. And our common task is to ensure that our non-English-speaking children learn this common language.
+ - There are no menial jobs, only menial attitudes.
+ - Home is a shelter from storms – all sorts of storms.
+ - America’s support for human rights and democracy is our noblest export to the world.
+ - Loving your homeland is just as natural as loving your father or mother – after all, your country nourishes you, protects you, and in many ways makes you who you are. Just as it’s a virtue to honor your parents, it’s a good and admirable thing to honor the land you call home.
+ - If there is one thing educators can agree on, it’s this: children do better in school when their parents get involved in their learning.
+ - Real fatherhood means love and commitment and sacrifice and a willingness to share responsibility and not walking away from one’s children.
+ - It is our character that supports the promise of our future – far more than particular government programs or policies.
+ - All real education is the architecture of the soul.
+ - We are here to help one another along life’s journey.
+ - Responsible persons are mature people who have taken charge of themselves and their conduct, who own their actions and own up to them – who answer for them.
+ - And I’m supposed to believe that Reagan was a great leader? This is who he chose as the Secretary of Education...
+ - If we want our children to possess the traits of character we most admire, we need to teach them what those traits are and why they deserve both admiration and allegiance. Children must learn to identify the forms and content of those traits.
+ - Government, obviously, cannot fill a child’s emotional needs. Nor can it fill his spiritual and moral needs. Government is not a father or mother. Government has never raised a child, and it never will.
+ - There is nothing more influential in a child’s life than the moral power of quiet example. For children to take morality seriously they must see adults take morality seriously.
+ - The formation of character in young people is educationally a different task from and a prior task to, the discussion of the great, difficult ethical controversies of the day.
+ - America’s only respectable form of bigotry is bigotry against religious people. And the only reason for hatred of religion is that it forces us to confront matters many would prefer to ignore.
+ - True courage is mixed with circumspection, the kind of healthy skepticism that asks, ‘Is this the best way to do this?’ True cowardice is marked by chronic skepticism, which always says, ‘It can’t be done.’
+ - The history of our nation is intertwined with a certain religious tradition, and that the First Amendment was not intended to result in the complete exclusion of religious beliefs from our public classrooms.
+ - A City University of New York study done in 1991 revealed that nearly 90% of the American people identify themselves religiously as Christians or Jews, while only 7.5 percent claim no religion.
+ - I have no doubt that the real irritation of those on the religious right is not that their particular creed is not embraced by the schools, but that often their creed is the only one singled out for contempt.
+ - A weakened sense of responsibility does not weaken the fact of responsibility.
+ - The secretary of education does not work for the education establishment. The secretary works for the American people.
+ - If we are surrounded by the trivial and the vicious, it is all too easy to make our peace with it.
+ - The elementary school must assume as its sublime and most solemn responsibility the task of teaching every child in it to read. Any school that does not accomplish this has failed.
+ - The new source of divisiveness is the assault of secularism on religion.
+ - The President is the symbol of who the people of the United States are. He is the person who stands for us in the eyes of the world and the eyes of our children.
+ - President Bush was widely ridiculed for consulting the Reverend Billy Graham before the Gulf war.
+ - From Samuel Adams to Patrick Henry to Benjamin Franklin to Alexander Hamilton, all the Founders intended religion to provide a moral anchor for our liberty in democracy.
+ - Have we come to the point where it is now considered a secular blasphemy to acknowledge the name of God at all?
+ - When you have an individual that is committed to killing someone else, you can’t expect a restraining order or the police to provide 24-hour protection.
+ - I can only speak about my own commute and can say that it has certainly affected my commute, making it longer and more hectic.
+ - What you’ve got here is really a case of journalists making fun of people who believe in God and the devil.
+ - When we were attacked on Sept. 11, we knew the main reason for the attack was that Islamists hated our way of life, our virtues, our freedoms. What we never imagined was that the free press – an institution at the heart of those virtues and freedoms – would be among the first to surrender.
+ - I think we need to find out why the citizens of the world’s wealthiest, most envied, most powerful country are so cynical, so distressed, so angry, so ticked of about so many things.
+ - Our schools should get five years to get back to where they were in 1963. If they’re still bad maybe we should declare educational bankruptcy, give the people their money and let them educate themselves and start their own schools.
+ - In the battle for preserving sound social and moral norms, many religious institutions can no longer be counted as allies.
+ - It is ironic that anyone who appeals to religious values today runs the risk of being called ‘divisive’ or attacked as an enemy of pluralism.
+
+38 quotes

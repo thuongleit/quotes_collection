@@ -1,0 +1,49 @@
+ - In Italy, food is an expression of love. It is how you show those around you that you care for them. Having a love for food means you also have a love for those you are preparing it for and for yourself.
+ - As a restaurateur, my palate is one of my most important tools.
+ - Take the time to shop for yourself and cook. All of this is an investment in yourself, and if you’re not going to invest time and money in what you put in your body, then what are you going to spend money on? It’s kind of the most important thing.
+ - Your pantry is your first line of defense against food-borne illness and things like high blood pressure and cholesterol.
+ - I’m a baritone. Baritones don’t mature until late.
+ - I come from a family that loves to eat, not exercise. Being fat made even walking hard.
+ - I definitely invented the everything bagel. There’s no doubt. It’s undeniable truth. It’s one of those things that’s 100% true, 50% of the time.
+ - Working in a restaurant means being part of a family, albeit usually a slightly dysfunctional one. Nothing is accomplished independently.
+ - I prioritize in life. I like to work, I do TV shows, I do a lot of Iron Man training. I enjoy kicking back on a good night and drinking wine until I go to bed, and having fun with my friends. You just have to make time for it and keep it balanced.
+ - I eat a lot of whole grains for breakfast, a lot of dried fruit. And my big thing is pasta. I do a lot of simple pasta, with great ingredients.
+ - Being general manager is like being the de facto owner. It’s like wearing the crown of ‘Restaurant Man’ without being ‘Restaurant Man.’ You’re trying to run the business, but you’re running the ranch without riding the big horse.
+ - No matter what it is you are cooking, buy the best ingredients you can afford. I don’t care if it’s a simple salad or Beef Wellington. A quality product stands alone and won’t need any dressing up.
+ - Every time I open a new restaurant, I wake up in the middle of the night moaning about bread and water. I dream I am in the middle of the dining room, and I am panicked.
+ - Restaurant Man is kind of the story, an unabridged story of what happened in my life, the good bad and ugly. Some people might glean some life lessons. It is honest, not written as a press release.
+ - Carbs – especially pasta – are the fuel my body needs to maintain an athletic lifestyle.
+ - Pasta is the one food I can’t live without. It’s the food I eat to fuel my running.
+ - The pressure, the heat, the almost impossibly fast pace at which you need work – this is the reality of working in the culinary industry. This is what professional chefs do night after night.
+ - I believe that ‘MasterChef’ brings something more to the table, so to speak, than simply being another reality food TV show. My hope is that it will inspire America to get more involved in the food they eat, how it is prepared.
+ - After World War II, a lot of people moved to the cities for work and abandoned the old vineyards. Then in the 1950s and 1960s, wineries were paid to produce volume at a cheap price. That’s when the Lambruscos and bad Chianti were popular.
+ - Most people who open restaurants will fail, because they lack the fundamental understanding of restaurant math. Either they think they’re superstar cooks or they think they’re superstar hosts.
+ - I’m one of three judges on ‘MasterChef’ with Gordon Ramsay, but I don’t want my own show. I’m kind of used to the sidekick gig.
+ - Cooking for my family is always a pleasure when I’m able to do it. My favorite thing to make is really whatever my kids ask for on any given day. It’s more about being with them and doing something together.
+ - Classics can be phenomenal when done right. A simple roast chicken dish could be the best thing you ever eat.
+ - My wife and I battle over home decor. My style goes from Gothic to Baroque. Hers is minimalist.
+ - Being frugal, conscious of making money, is not a negative thing. That sensibility of creating value and finding value and reinvesting in those customers is what separates great restaurants from the average ones.
+ - Babbo’s menu is only four pages, but it’s overwhelming – there are 20 different pastas in there, a lot of stuff. There is nothing I hate more than a useless, lazy menu with only three appetizers and four entrees.
+ - Finding specialty food items was a bit of a challenge in Asia in the early days of getting the Mozza’s up and running. Everything is built on relationships, and when you start somewhere new, it takes time to develop that. Staffing can also present challenges.
+ - Selling wine is all about sizing people up, and it takes a certain amount of chutzpah. The tableside bottle sell is a very funny thing – you take a look at the guy’s blazer, what kind of shoes he’s wearing, what kind of broad he’s with. Is he trying to be a hero?
+ - There are certain things that make restaurants work and a certain kind of DNA that people who excel in restaurants need. But it’s a lot like life, in the sense that you get out of it what you put into it.
+ - I was brought up to believe I could achieve anything. My mother instilled in me the belief that there was always something great coming. For example, even though I’m afraid of flying, I always think the plane can’t crash because there are so many better things still to come.
+ - New York is the best food city in the world.
+ - Maitre d’s are at the financial spigot of the restaurant, meaning they control who gets in and who doesn’t, but aside from that, they don’t do anything. And yet they get paid as much as the highest-paid people in the place.
+ - When I stopped looking at food as a reward or a celebration and began looking at food as energy to fuel my athletic ambitions, that really kind of changed the whole world for me. That was the real ‘aha!’ moment.
+ - The stories of wine lords who trade wine on intimidation or food critics who trade free meals for reviews those are the stories of my life. I am telling the stories of my life in a true way.
+ - At home, I make a large batch of tomato sauce and freeze it in meal-size portions in freezer bags.
+ - With four-appetizer, four-entree menus, it’s like, give me a break. That’s not a restaurant, that’s a dinner party.
+ - Beans are a real go-to for me.
+ - You can enjoy a $15 bottle of wine as much as you can enjoy a $100 bottle of wine.
+ - If you eliminate the junk food, you don’t really run the risk of gaining weight if you’ve got a good workout routine.
+ - Being a cook doesn’t necessarily mean you are a competitor.
+ - I have a Madonna portrait done in the style of a Russian icon. My mother, the chef Lidia Bastianich, and I bought it together. It reminds me of her.
+ - I was raised in restaurants. My parents opened their first restaurant, Buonavia, in Queens when I was just 3. This business has always been my way of life. As a kid, home was reserved only for sleeping. After school, you could find my sister and I helping out at the family restaurant.
+ - America has been conditioned to think of pasta as the never-ending pasta bowl and Olive Garden.
+ - It’s kind of like a midlife crisis kind of thing. When you turn 40, you have to run the marathon, while all the parts still work properly.
+ - The best pastas are cut with bronze dies that give them a rough texture and allow the sauce to cling.
+ - I think that, by comparison with $2,000 bottles of grand cru Burgundies, first-rate barolos, which sell for under $100, are undervalued ten-fold.
+ - Wine pricing is an art – like painting.
+
+47 quotes

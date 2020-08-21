@@ -1,0 +1,65 @@
+ - He suddenly understood the message of so many spiritual teachers that the only revolution that can work is the inner transformation of every human being.
+ - We are not just highly evolved animals with biological computers embedded inside our skulls; we are also fields of consciousness without limits, transcending time, space, matter, and linear causality.
+ - Unlike scientism, science in the true sense of the word is open to unbiased investigation of any existing phenomena.
+ - LSD is a catalyst or amplifier of mental processes. If properly used it could become something like the microscope or telescope of psychiatry.
+ - If consciousness can function independently of the body during one’s lifetime, it could be able to do the same after death.
+ - The human psyche shows that each individual is an extension of all of existence.
+ - Traditional academic science describes human beings as highly developed animals and biological thinking machines. We appear to be Newtonian objects made of atoms, molecules, cells, tissues, and organs.
+ - Western science is approaching a paradigm shift of unprecedented proportions, one that will change our concepts of reality and of human nature, bridge the gap between ancient wisdom and modern science, and reconcile the differences between Eastern spirituality and Western pragmatism.
+ - As long as I had easy access to psychedelics at the government-sponsored research project, most of my energy went into psychedelic sessions.
+ - Spiritual intelligence is the capacity to conduct our life in such a way that it reflects deep philosophical and metaphysical understanding of reality and of ourselves discovered through personal experience during systematic spiritual pursuit.
+ - Ritual use of psychedelic plants and substances has been a particularly effective technology for inducing holotropic states of consciousness.
+ - It is possible to transcend the usual limitations of the body, ego, space, and linear time.
+ - Dying before dying has two important consequences: It liberates the individual from the fear of death and influences the actual experience of dying at the time of biological demise.
+ - Ancient eschatological texts are actually maps of the inner territories of the psyche that seem to transcend race and culture and originate in the collective unconscious.
+ - Consciousness does not just passively reflect the objective material world; it plays an active role in creating reality itself.
+ - For any culture which is primarily concerned with meaning, the study of death – the only certainty that life holds for us – must be central, for an understanding of death is the key to liberation in life.
+ - A text of Tibetan Buddhism describes the time of death as a unique opportunity for spiritual liberation from the cycles of death and rebirth and a period that determines our next incarnation.
+ - Individuals approaching death often experience encounters with their dead relatives, who seem to welcome them to the next world. These deathbed visions are authentic and convincing; they are often followed by a state of euphoria and seem to ease the transition.
+ - I believe it is essential for our planetary future to develop tools that can change the consciousness which has created the crisis that we are in.
+ - According to materialistic science, any memory requires a material substrate, such as the neuronal network in the brain or the DNA molecules of the genes.
+ - A radical inner transformation and rise to a new level of consciousness might be the only real hope we have in the current global crisis brought on by the dominance of the Western mechanistic paradigm.
+ - At a time when unbridled greed, malignant aggression, and existence of weapons of mass destruction threatens the survival of humanity, we should seriously consider any avenue that offers some hope.
+ - It is possible to see the intermediate state between lives as being in a way more important than incarnate existence.
+ - The problems that stand in the way are not of economical or technological nature. The deepest sources of the global crisis lie inside the human personality and reflect the level of consciousness evolution of our species.
+ - In some instances, the accuracy of past-life memories can be objectively verified, sometimes with remarkable detail.
+ - Whether or not LSD research and therapy will return to society, the discoveries that psychedelics made possible have revolutionary implications for our understanding of the psyche, human nature, and the nature of reality.
+ - Each of us can manifest the properties of a field of consciousness that transcends space, time, and linear causality.
+ - Coming to terms with the fear of death is conducive to healing, positive personality transformation, and consciousness evolution.
+ - I read Freud’s Introductory Lectures in Psychoanalysis in basically one sitting. I decided to enroll in medical school. It was almost like a conversion experience.
+ - The new formula in physics describes humans as paradoxical beings who have two complementary aspects: They can show properties of Newtonian objects and also infinite fields of consciousness.
+ - Consciousness after death demonstrates the possibility of consciousness operating independently of the body.
+ - The psyche of the individual is commensurate with the totality of creative energy. This requires a most radical revision of Western psychology.
+ - I believe that used responsibly and in a mature way, the entheogens mediate access to the numinous dimensions of existence, have a great healing and transformative potential, and represent a very important tool for spiritual development.
+ - It became much more complicated politically to work with psychedelics because of the unsupervised experimentation with psychedelics, particularly among young people.
+ - Dying people in pre-industrial cultures typically died in the context of an extended family, clan, or tribe.
+ - The motif of death plays an important role the human psyche in connection with archetypal and karmic material.
+ - Many of us who have experienced psychedelics feel very much that they are sacred tools. They open spiritual awareness.
+ - The experiences associated with death were seen as visits to important dimensions of reality that deserved to be experienced, studied, and carefully mapped.
+ - Research challenges the materialistic understanding of death, according to which biological death represents the final end of existence and of all conscious activity.
+ - There are people who can start having very powerful experiences without taking psychedelics. It can happen against their will. This is a universal phenomenon.
+ - An important consequence of freeing oneself from the fear of death is a radical opening to spirituality of a universal and non-denominational type.
+ - In the kind of world we have today, transformation of humanity might well be our only real hope for survival.
+ - Freud said that we are born as a tabula rasa. This is a model that simply is too superficial and inadequate.
+ - The elimination of the fear of death transforms the individual’s way of being in the world.
+ - Whether or not we believe in survival of consciousness after death, reincarnation, and karma, it has very serious implications for our behavior.
+ - The beliefs concerning reincarnation have great ethical impact on human life and our relationship to the world.
+ - The study of consciousness that can extend beyond the body is extremely important for the issue of survival, since it is this part of human personality that would be likely to survive death.
+ - The function of the brain is to reduce all the available information and lock us into a limited experience of the world. LSD frees us from this restriction and opens us to a much larger experience.
+ - Many instances exist of small children who seem to remember and describe their previous life in another body, another place, and with other people. These memories emerge usually shortly after these children begin to talk.
+ - Many cultures have independently developed a belief system in reincarnation that includes return of the unit of consciousness to another physical lifetime on Earth.
+ - Walt Disney was my great hero.
+ - When you read the psychedelic literature, there is a distinction between the so-called natural psychedelics and synthetic psychedelics that are artificially produced.
+ - The materialistic paradigm of Western science has been a major obstacle for any objective evaluation of the data describing the events occurring at the time of death.
+ - There is no fundamental difference between the preparation for death and the practice of dying, and spiritual practice leading to enlightenment.
+ - We have to recognize that spirituality is a legitimate dimension in the psyche. It’s a legitimate dimension in the universal scheme of things. It doesn’t mean that you are superstitious, that you are in to magical, primitive thinking, if you take spirituality seriously.
+ - I have to say I regretted giving up animated movies.
+ - It is possible to spend one’s entire lifetime without ever experiencing the mystical realms or even without being aware of their existence.
+ - I have taken part in ceremonies with North American and Mexican shamans, as well as Brazilian ceremonies.
+ - The knowledge of the realm of death makes it possible for the shaman to move freely back and forth and mediate these journeys for other people.
+ - A number of cases have been reported in which a dying individual has a vision of a person about whose death he or she did not know.
+ - Patients reported that their psychedelic sessions were an invaluable experiential training for dying.
+ - I spent much of my later childhood and adolescence very, very involved and interested in art, and particularly in animated movies.
+ - There is an urgent need for a radical revision of our current concepts of the nature of consciousness and its relationship to matter and the brain.
+
+63 quotes

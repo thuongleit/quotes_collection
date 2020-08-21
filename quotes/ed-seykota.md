@@ -1,0 +1,41 @@
+ - The trend is your friend except at the end where it bends.
+ - If you can’t measure it, you probably can’t manage it Things you measure tend to improve.
+ - The elements of good trading are: 1, cutting losses. 2, cutting losses. And 3, cutting losses. If you can follow these three rules, you may have a chance.
+ - The trading rules I live by are: 1. Cut losses. 2. Ride winners. 3. Keep bets small. 4. Follow the rules without question. 5. Know when to break the rules.
+ - If you can’t take a small loss, sooner or later you will take the mother of all losses.
+ - Win or lose, everybody gets what they want out of the market. Some people seem to like to lose, so they win by losing money.
+ - A losing trader can do little to transform himself into a winning trader. A losing trader is not going to want to transform himself. That’s the kind of thing winning traders do.
+ - Risk no more that you can afford to lose, and also risk enough so that a win is meaningful.
+ - It’s all about sticking to your plan and experiencing feelings as they arise. If you are unwilling to feel your feelings, the temptation is to avoid them by jumping off your system.
+ - To avoid whipsaw losses, stop trading.
+ - A lot of people would rather understand the market than make money.
+ - If you want to know everything about the market, go to the beach. Push and pull your hands with the waves. Some are bigger waves, some are smaller. But if you try to push the wave out when it’s coming in, it’ll never happen. The market is always right.
+ - I don’t predict a nonexisting future.
+ - Trend following is an exercise in observing and responding to the ever-present moment of now.
+ - Everybody gets what they want out of the market.
+ - It can be very expensive to try to convince the markets you are right.
+ - Trying to trade during a losing streak is emotionally devastating. Trying to play ‘catch up’ is lethal.
+ - I think that if people look deeply enough into their trading patterns, they find that, on balance, including all their goals, they are really getting what they want, even though they may not understand it or want to admit it.
+ - There are old traders and there are bold traders, but there are very few old, bold traders.
+ - Working to anticipate the future can be a distraction from the important task of dealing with the present.
+ - Luck plays an enormous role in trading success. Some people were lucky enough to be born smart, while others were even smarter and got born lucky.
+ - The key to long-term survival and prosperity has a lot to do with the money management techniques incorporated into the technical system.
+ - Systems don’t need to be changed. The trick is for a trader to develop a system with which he is compatible.
+ - The markets are the same now as they were five or ten years ago because they keep changing-just like they did then.
+ - Psychology motivates the quality of analysis and puts it to use. Psychology is the driver and analysis is the road map.
+ - I turn bullish at the instant my buy stop is hit, and stay bullish until my sell stop is hit.
+ - The idea of searching for some secret for trading success misses the point.
+ - Traders and Surfers both have to deal with feelings of missing out on the small ones, until the big one comes along. They also have to deal with feelings of staying with the big one.
+ - Dramatic and emotional trading experiences tend to be negative. Pride is a great banana peel, as are hope, fear, and greed. My biggest slip-ups occurred shortly after I got emotionally involved with positions.
+ - My style is basically trend following, with some special pattern recognition and money management algorithms.
+ - Trends become more apparent as you step further away from the chart.
+ - The biggest secret about success is that there isn’t any big secret about it, or if there is, then it’s a secret from me, too. The idea of searching for some secret for trading success misses the point.
+ - Losing a position is aggravating, whereas losing your nerve is devastating.
+ - It is a happy circumstance that when nature gives us true burning desires, she also gives us the means to satisfy them. Those who want to win and lack skill can get someone with skill to help them.
+ - Pyramiding instructions appear on dollar bills. Add smaller and smaller amounts on the way up. Keep your eye open at the top.
+ - Good traders trade. Good letter writers write letters.
+ - Fundamentals that you read about are typically useless as the market has already discounted the price, and I call them “funny-mentals”. However, if you catch on early, before others believe, you might have valuable “surprise-a-mentals”.
+ - Markets are fundamentally volatile. No way around it. Your problem is not in the math. There is no math to get you out of having to experience uncertainty.
+ - I would add that I consider myself and how I do things as a kind of system which, by definition, I always follow.
+
+39 quotes

@@ -1,0 +1,47 @@
+ - Learn to forgive yourself and to forgive others.
+ - You don’t understand. You’re not a wave. You’re part of the ocean.
+ - Once you learn how to die you learn how to live.
+ - The most important thing in life is to learn how to give out love, and to let it come in.
+ - What’s wrong with being number two?
+ - Do the kind of things that come from the heart, When you do, you won’t be dissatisfied, you won’t be envious, you won’t be longing for somebody else’s things. On the contrary, you’ll be overhelmed with what comes back.
+ - Is today the day? Am I ready? Am I doing all I need to do? Am I being the person I want to be?
+ - The culture we have does not make people feel good about themselves. And you have to be strong enough to say if the culture doesn’t work, don’t buy it.
+ - As long as we can love each other, and remember the feeling of love we had, we can die without ever really going away. All the love you created is still there. All the memories are still there. You live on – in the hearts of everyone you have touched and nurtured while you were here.
+ - Maybe death is the great equalizer, the one big thing that can finally make strangers shed a tear for one another.
+ - Sometimes you cannot believe what you see, you have to believe what you feel. And if you are going to have other people trust you, you must feel that you can trust them, too – even when you’re in the dark. Even when you’re falling.
+ - So many people walk around with a meaningless life. They seem half-asleep, even when they’re busy doing things they think are important. This is because they’re chasing the wrong things.
+ - All right, that was my moment with loneliness. I’m not afraid of feeling lonely, but now I’m going to put that loneliness aside and know that there are other emotions in the world, and I’m going to experience them as well.
+ - The fact is, there is no foundation, no secure ground, upon which people may stand today if it isn’t the family.
+ - Everyone knows they’re going to die, but nobody believes it.
+ - I believe in being fully present. That means you should be with the person you’re with.
+ - Be compassionate, and take responsibility for each other. If we only learned those lessons, this world would be so much a better place.
+ - If we can remember the feeling of love we once had, we can die without ever going away.
+ - Everything that gets born dies.
+ - Are you trying to be as human as you can be?
+ - The little things, I can obey. But the big things – how we think, what we value – those you must choose yourself. You can’t let anyone – or any society – determine those for you.
+ - Do I wither up and disappear, or do I make the best of my time left?
+ - The best way to deal with that is to live in a fully conscious, compassionate, loving way. Don’t wait until you’re on your deathbed to recognize that this is the only way to live.
+ - The truth is, part of me is every age. I delight in being a child when it’s appropriate to be a child. I delight in being a wise old man when it’s appropriate to be a wise old man. Think of all I can be! I am every age, up to my own.
+ - Keep your heart open for as long as you can, as wide as you can, for others and especially for yourself.
+ - It’s not too late to develop new friendships or reconnect with people.
+ - Build a little community of those you love and who love you.
+ - In the beginning of life, when we are infants, we need others to survive. And at the end of life, we need others to survive. But here’s the secret, in between, we need others as well.
+ - After you have wept and grieved for your physical losses, cherish the functions and the life you have left.
+ - If the culture doesn’t work, don’t buy it.
+ - I’d always been interested in psychology.
+ - If you don’t have the support and love and caring and concern that you get from a family, you don’t have much at all.
+ - We put our values in the wrong things. And it leads to very disillusioned lives.
+ - Because if you’ve found meaning in your life, you don’t want to go back. You want to go forward.
+ - Well, the truth is, if you really listen to that bird on your shoulder, if you accept that you can die at any time–then you might not be as ambitious as you are.
+ - Sometimes you cannot believe what you see. You have to believe what you feel.
+ - What is it about silence that makes people uneasy?
+ - Life is like a wrestling match- we struggle to fight but we never know that the only side that wins is the one with great love in it.
+ - It’s natural to die. The fact that we make such a big hullabaloo over it is all because we don’t see ourselves as part of nature. We think because we’re human we’re something above nature.
+ - All younger people should know something. If you’re always battling against getting older, you’re always going to be unhappy, because it will happen anyhow.
+ - What tipped the scales was that psychology involved working with rats.
+ - When you look at it that way, you can see how absurd it is that we individualize ourselves with our fences and hoarded possessions.
+ - One hundred and ten years from now no one who is here now will be alive.
+ - Grieve and mourn for yourself not once or twice, but again and again.
+ - We’re involved in trillions of little acts just to keep going.
+
+45 quotes

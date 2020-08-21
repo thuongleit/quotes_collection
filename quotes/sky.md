@@ -1,0 +1,42 @@
+ - The sky is not the limit. Your mind is. ~~Marilyn Monroe
+ - You are the sky. Everything else – it’s just the weather. ~~Pema Chödrön
+ - Aim for the stars and maybe you’ll reach the sky. ~~Reinhold Niebuhr
+ - Look at the sky. We are not alone. The whole universe is friendly to us and conspires only to give the best to those who dream and work. ~~Abdul Kalam
+ - Meet me where the sky touches the sea. Wait for me where the world begins. ~~Jennifer Donnelly
+ - Never, ever, let anyone tell you what you can and can’t do. Prove the cynics wrong. Pity them for they have no imagination. The sky’s the limit. Your sky. Your limit. Now. Let’s dance. ~~Tom Hiddleston
+ - Every passing minute is another chance to turn it all around. ~~Cameron Crowe
+ - The brain is wider than the sky. ~~Emily Dickinson
+ - We gonna touch the sky. ~~Kanye West
+ - For rich people, the sky is just an extra, a gift of nature. The poor, on the other hand, can see it as it is, a gift of infinite grace. ~~Albert Camus
+ - Even after all this time, the sun never says to the earth, ‘you owe me.’ Look what happens with a love like that! It lights up the whole sky. ~~Hafez
+ - I won’t give up. Even if the skies get rough. ~~Jason Mraz
+ - Imagine there’s no heaven, it’s easy if you try. No hell below us, above us only sky. Imagine all the people living for today... ~~John Lennon
+ - Let’s build us a happy, little cloud that floats around the sky. ~~Bob Ross
+ - Just promise me you’ll think of me everytime you look up in the sky and see a star. ~~Eminem
+ - We used to look up at the sky and wonder at our place in the stars, now we just look down and worry about our place in the dirt. ~~Jonathan Nolan
+ - Even if the skies were shorter than my knees, I would not kneel. ~~Cyrus the Great
+ - Always seek less turbulent skies. Hurt. Fly above it. Betrayal. Fly above it. Anger. Fly above it. You are the one who is flying the plane. ~~Marianne Williamson
+ - One was a book thief. The other stole the sky. ~~Markus Zusak
+ - Feeling free, let us fly, into the boundless, beyond the sky, for we were born to never die... ~~Michael Jackson
+ - Sky of blackness and sorrow, sky of love, sky of tears. Sky of glory and sadness, sky of mercy, sky of fear. ~~Bruce Springsteen
+ - An awake heart is like a sky that pours light. ~~Hafez
+ - There’s a starman waiting in the sky, he’d like to come and meet us, but he thinks he’d blow our minds. ~~David Bowie
+ - You left ground and sky weeping, mind and soul full of grief. No one can take your place in existence or in absence. ~~Rumi
+ - We are so small between the stars, so large against the sky. ~~Leonard Cohen
+ - I am probably in the sky, flying with the fish, or maybe in the ocean, swimming with the pigeons. See, my world is different... ~~Lil Wayne
+ - I am the passenger, I stay under glass. I look through my window so bright, I see the stars come out tonight. I see the bright and hollow sky, over the city’s ripped backsides and everything looks good tonight. ~~Iggy Pop
+ - One has to be alone, under the sky, Before everything falls into place and one finds his or her own place in the midst of it all. We have to have the humility to realize ourselves as part of nature. ~~Thomas Merton
+ - The sky is the limit... for some people aim higher nothing is impossible. ~~Demi Lovato
+ - I’m chasing my dreams straight to the top – into a sky that has no limits. ~~Robert M. Hensel
+ - Only from the heart can you touch the sky. ~~Rumi
+ - The question is, what color will everything be at that moment when I come for you? What will the sky be saying? ~~Markus Zusak
+ - All my life, I have been in love with the sky. Even when everything was falling apart around me, the sky was always there for me. ~~Yoko Ono
+ - The Montana sunset lay between the mountains like a giant bruise from which darkened arteries spread across a poisoned sky. ~~F. Scott Fitzgerald
+ - Love calls – everywhere and always. We’re sky bound. Are you coming? ~~Rumi
+ - The sky is always there for me, while my life has been going through many, many changes. When I look up the sky, it gives me a nice feeling, like looking at an old friend. ~~Yoko Ono
+ - Look at the stars lighting up the sky: no one of them stays in the same place. ~~Seneca the Younger
+ - I miss you more than the sun misses the sky at night. ~~Taylor Swift
+ - When you miss me just look up to the night sky and remember, I'm like a star; sometimes you can't see me, but I'm always there. ~~Jayde Nicole
+ - We all live under the same sky, but we don’t all have the same horizon. ~~Konrad Adenauer
+
+40 quotes

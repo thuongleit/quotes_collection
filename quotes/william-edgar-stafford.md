@@ -1,0 +1,52 @@
+ - Once you decide to do right, life is easy, there are no distractions.
+ - Once we have tasted far streams, touched the gold, found some limit beyond the waterfall, a season changes and we come back changed but safe, quiet, grateful.
+ - There is no such thing as writer’s block for writers whose standards are low enough.
+ - Everyone is born a poet – a person discovering the way words sound and work, caring and delighting in words. I just kept on doing what everyone starts out doing. The real question is: Why did other people stop?
+ - I heard a bird congratulating itself all day for being a jay. Nobody cared. But it was glad all over again, and said so, again.
+ - If you purify the pond, the lilies die.
+ - I embrace emerging experience, I participate in discovery. I am a butterfly. I am not a butterfly collector. I want the experience of the butterfly.
+ - Kids: they dance before they learn there is anything that isn’t music.
+ - It is as if the ordinary language we use every day has a hidden set of signals, a kind of secret code.
+ - I don’t see writing as a communication of something already discovered, as “truths” already known. Rather, I see writing as a job of experiment. It’s like any discovery job; you don’t know what’s going to happen until you try it.
+ - I have woven a parachute out of everything broken.
+ - The things you do not have to say make you rich. Saying the things you do not have to say weakens your talk. Hearing the things you do not have to hear dulls your hearing. And the things you know before you hear them; these are you and the reason you are in the world.
+ - When the snake decided to go straight, he didn’t get anywhere.
+ - All still when summer is over stand shocks in the field, nothing left to whisper, not even good-bye, to the wind. After summer was over we knew winter would come: we knew silence would wait, tall, patient calm.
+ - Even the upper end of the river believes in the ocean.
+ - The root and the flower have to trust each other. If the root does not trust, the plant won’t blossom.
+ - And the things you know before you hear them; these are you and the reason you are in the world.
+ - Wisdom is having things right in your life and knowing why.
+ - I keep following this sort of hidden river of my life, you know, whatever the topic or impulse which comes, I follow it along trustingly. And I don’t have any sense of its coming to a kind of crescendo, or of its petering out either. It is just going steadily along.
+ - A poem is a serious joke, a truth that has learned jujitsu.
+ - Security of character would be like a compass, you know? Other people may say that this way is north, or this way might be north. But the compass just says – north. That’s what we count on.
+ - The more you let yourself be distracted from where you are going, the more you are the person that you are. It’s not so much like getting lost as it is like getting found.
+ - I’ll be Pavlov, you be the dog.
+ - If you can say it, it begins to exist.
+ - The greatest ownership of all is to glance around and understand.
+ - I am not learning definitions as established in even the latest dictionaries. I am not a dictionary-maker. I am a person a dictionary-maker has to contend with. I am a living evidence in the development of language.
+ - Anyone who breathes is in the rhythm business.
+ - You and I can turn and look at the silent river and wait. We know the current is there, hidden; and there are comings and goings from miles away that hold the stillness exactly before us. What the river says, that is what I say.
+ - My question is “when did other people give up the idea of being a poet?” You know, when we are kids we make up things, we write, and for me the puzzle is not that some people are still writing, the real question is why did the other people stop?
+ - Can injustice one way be corrected without the interim reaction that tries to impose injustice the other way?
+ - Please think about this as you go on. Breathe on the world. Hold out your hands to it. When morning and evenings roll along, watch how they open and close, how they invite you to the long party that your life is.
+ - A speech is something you say so as to distract attention from what you do not say.
+ - The ocean and I have many pebbles To find and wash off and roll into shape.
+ - Keep a journal, and don’t assume that your work has to accomplish anything worthy: artists and peace-workers are in it for the long haul, and not to be judged by immediate results.
+ - Let the bucket of memory down into the well, bring it up. Cool, cool minutes. No one stirring, no plans. Just being there.
+ - There are so many things admirable people do not understand.
+ - An owl sound wandered along the road with me. I didn’t hear it – I breathed it into my ears.
+ - Some people are blinded by their experience. Soldiers know how important war is. Owners of slaves learn every day how inferior subject peoples are.
+ - People wander about what you are pursuing. You have to explain about the thread.
+ - You can lie at a banquet but you have to be honest in the kitchen.
+ - A student comes to me with a piece of writing, holds it out, says, ‘Is this good?’ A whole sequence of emergencies goes off in my mind. That’s not a question to ask anyone but yourself.
+ - Language can do what it can’t say.
+ - You can treat experience as a set of surprises on which to exercise your quirky self.
+ - You shouldn’t have standards that inhibit you from writing It really doesn’t make any difference if you are good or bad today. The assessment of the product is something that happens after you’ve done it.
+ - Literature is not a picture of life, but is a separate experience with its own kind of flow and enhancement.
+ - One way to find your place is like the rain, a million requests for lodging, one that wins, finds your cheek: you find your home.
+ - A writer is not so much someone who has something to say as he is someone who has found a process that will bring about new things he would not have thought of if he had not started to say them.
+ - A writer is someone who has found a process that will bring about new things.
+ - You don’t need many words if you already know what you’re talking about.
+ - Others may be able to accept standards from another, but an artist is a person who decides.
+
+50 quotes

@@ -1,0 +1,27 @@
+ - Whereas science elicits changes in order to know, technology knows in order to elicit changes.
+ - All genuine philosophy transcends national boundaries. Patriotic philosophies are just nationalist ideologies.
+ - From a historical viewpoint, religion is just a kind of superstition, and from a political viewpoint it is a tool of social control.
+ - To me, work is not a burden but my main hobby. This is why I always take work with me when I go on holidays. Moreover, that’s when new projects occur to me: while contemplating beautiful landscapes or seascapes.
+ - Communication accompanies social transactions and can instruct or stultify, mobilize or intimidate, but it is no substitute for production, collaboration and fight.
+ - Only the stupid and the wicked can fear rational criticism.
+ - Science is morally neutral, but social science shows us that some moral codes are better than others.
+ - In any event, I don’t believe in instant philosophy, because interesting problems take a long time to understand and work out. Just think of the problems of truth and justice.
+ - The motto of science is not just Pauca but rather Plurima ex paucissimis – the most out of the least.
+ - Some of the big philosophical problems have been solved by science, at least to a 1st approximation. Examples: the problems of matter, and mind. Only philosophical reactionaries, like Noam Chomsky, claim that they are and will remain mysteries.
+ - Of course much remains to know, but we know how to learn: through scientific research.
+ - I have nothing to fear from serious social studies of science, and I hope that my philosophy will help progressive science policies while showing that the most modern views of science are ignorant and regressive, even if they are accompanied by a leftist-sounding rhetoric.
+ - A distinguished cognitive neuroscientist confessed to me that, because of his religious upbringing, he could not get rid of psychoneural dualism. The idea that one ceases to be after death was too painful to him.
+ - Original philosophy is always “deviant” or even subversive.
+ - Philosophy can help laymen spot and reject the numerous pseudoscientific beliefs that survive in the media, such as the fantasies of psychoanalysts, evolutionary psychologists, and economic equilibrium theorists.
+ - Of course you cannot free yourself from the laws of nature; but the laws of nervous systems are not the same as the physical laws.
+ - It is scandalous the way some scientists accept uncritically some of the most ridiculous speculations, such as the plurality of worlds, the opinion that spacetime has more than 4 dimensions, that particles can move faster than light, or that human life can be prolonged indefinitely.
+ - A democratic state will protect the freedom to hold any beliefs other than those that harm others, such as racism. In particular, it will see to it that no one is harmed just because of her beliefs.
+ - The fact is that all the important political philosophers and scientists from the great Aristotle on, with the exception of those of the French Enlightenment and Mill, have sided with the powers that be.
+ - All philosophers can do is to abstain from helping the aggressors and to enjoin social scientists to tell the truth instead of joining the choir of liars and hypocrites.
+ - All the electronic devices are weakening the social bonds. Sociologists and psychologists should study this serious threat instead of repeating that communication is the cement of society.
+ - In the scientific community you find competent teachers and original researchers, just as in the musical community you find many good performers but very few good composers.
+ - It occurred to me that I had the duty to give society something in exchange for the free education I was getting.
+ - I believe that modern science supports free will, in showing that the brain can act spontaneously, not only in response to external stimuli.
+ - Most contemporary philosophers are conservative and eager to keep their jobs.
+
+25 quotes

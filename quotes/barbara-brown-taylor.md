@@ -1,0 +1,78 @@
+ - I have learned things in the dark that I could never have learned in the light, things that have saved my life over and over again, so that there is really only one logical conclusion. I need darkness as much as I need light.
+ - The hardest spiritual work in the world is to love the neighbor as the self – to encounter another human being not as someone you can use, change, fix, help, save, enroll, convince or control, but simply as someone who can spring you from the prison of yourself, if you will allow it.
+ - The only real difference between Anxiety and Excitement was my willingness to let go of Fear.
+ - Earth is so thick with divine possibility that it is a wonder we can walk anywhere without cracking our shins on altars.
+ - The abundance of our lives is not determined by how long we live, but how well we live. Christ makes abundant life possible if we choose to live it now.
+ - To be fully human is perhaps why I’m Christian, because I see in the life of Jesus a way of being fully human.
+ - Our waiting is not nothing. It is something – a very big something – because people tend to be shaped by whatever it is they are waiting for.
+ - It does seem to me that at least some of us have made an idol of exhaustion. The only time we know we have done enough is when we are running on empty and when the ones we love most are the ones we see the least.
+ - Every human interaction offers you the chance to make things better or to make things worse.
+ - You only need to lose track of who you are, or who you thought you were supposed to be, so that you end up lying flat on the dirt floor basement of your heart. Do this, Jesus says, and you will live.
+ - Kindness is not a bad religion, no matter what name you use for God.
+ - The effort to untangle the human words from the divine seems not only futile to me but also unnecessary, since God works with what is. God uses whatever is usable in a life, both to speak and to act, and those who insist on fireworks in the sky may miss the electricity that sparks the human heart.
+ - I’ve got a hold of something that won’t move. It’s a willingness to keep walking into the next day, open to whatever may turn out to be true that day.
+ - When I talk about losing myself, which I did, it’s losing my idea of who I was and my idea of what I was supposed to be doing and the idea of what my value was to God. I lost all of that at least.
+ - As a general rule, I would say that human beings never behave more badly toward one another than when they believe they are protecting God.
+ - I’ll do my best to always put God and neighbor ahead of ego, but I want to find myself, and if finding myself means losing my ego self, I’ll go there.
+ - Divine reality is not way up in the sky somewhere; it is readily available in the encounters of everyday life, which make hash of my illusions that I can control the ways God comes to me.
+ - I love being alone. I learned that from my father, I think, who loved his own company.
+ - The value for me being in a mainline tradition is history and memory, which is not just Christian tradition but denominational tradition, and characters, you know, with real distinct flavors of ways to be Christian.
+ - Prayer is happening, and it is not necessarily something that I am doing. God is happening, and I am lucky enough to know that I am in The Midst.
+ - The beauty in the losing is a loss finally of self-consciousness. There’s a gorgeous moment that can happen in all kinds of places. It can happen with people, it can happen with nature, and it can happen with my eyes shut anywhere I am.
+ - Beliefs have become unimportant to me. Faith as radical trust became even more important to me.
+ - I’m in a mainline church, I’m very aware, especially as I move through community churches and new-start churches that are making real efforts not to associate themselves with traditional denominations – very often they have no history. They have no institutional memory.
+ - Wisdom is not gained by knowing what is right. Wisdom is gained by practicing what is right, and noticing what happens when that practice succeeds and when it fails.
+ - The boundaries became constrictive in what I was doing, and if my faith grew, it was because I pressed some of the boundaries in ways I hadn’t felt comfortable or responsible doing that before.
+ - I miss the hot spots. I miss the hospital calls. I miss the nursing homes. I miss the really intimate human contact with other people, which I did nothing to earn.
+ - The problem is, many of the people in need of saving are in churches, and at least part of what they need saving from is the idea that God sees the world the same way they do.
+ - I have learned to prize holy ignorance more highly than religious certainty and to seek companions who have arrived at the same place.
+ - I think a toxic message in a lot of Christianity has been that the self has to be annihilated in order for God to be found. I think that has been a toxic message.
+ - The great wisdom traditions of the world all recognize that the main impediment to living a life of meaning is being self-absorbed.
+ - Whoever you are, you are human. Wherever you are, you live in the world, which is just waiting for you to notice the holiness in it.
+ - To get God on your side is a great way to feel powerful.
+ - We’re children of God through our blood kinship with Christ. We’re also sons and daughters of Adam and Eve, with a hereditary craving for forbidden fruit salad.
+ - With so much effort being poured into church growth, so much press being given to the benefits of faith, and so much flexing of religious muscle in the public square, the poor in spirit have no one but Jesus to call them blessed anymore.
+ - When I forget the power of the word, I read Frederick Buechner. When I forget the deep relief of telling the truth, I read Frederick Buechner. When I forget to look for the holiness all around me, I read Frederick Buechner. When I forget why the gospel matters, I read Frederick Buechner.
+ - Humanity can be pretty stinky.
+ - I am always surprised by people who speak of faith as if it happens in the air somewhere. Our bodies are God’s best way of getting to us. Revelation begins in the flesh.
+ - We are born seekers, calling strange names into the darkness from our earliest days because we know we are not meant to be alone, and because we know that we await someone whom we cannot always see.
+ - I’m a follower of the Christ path, and that opens a huge discussion about what we even mean by words like “Christian.”
+ - You can create an intimate community of about 20 or 25 people, and beyond that you’re into a different kind of relationship.
+ - I wanted to be as close as I could to the Really Real, and I’ll capitalize both of those R’s, because God is a word that means different things to different people, but we might all agree it’s what is most real.
+ - God does some of God’s best work with people who are seriously lost.
+ - Church can be extremely boring. It can be very meaningful, it can be character forming, but can be have very little fizz in it.
+ - I live by the simplest, perhaps facile command that Jesus ever gave, which is to love God with the whole self and the neighbor as the self, and I find that’s entirely consuming. To do those two things leaves me very little time to do much else.
+ - The church grew, and I gained a reputation for preaching, and people came, and it was a wonderful community. But we had a building that seated 82 people, and with a congregation then approaching 400 we were up to four services on Sunday, and everyone was tired.
+ - I didn’t want to be a priest. I wanted to do the work that priests do, and that required becoming a priest.
+ - The great thing about civility is that it does not require you to agree with or approve of anything. You don’t even have to love your neighbor to be civil. You just have to treat your neighbor the same way you would like your neighbor to treat your grandmother, or your child.
+ - Salvation happens every time someone with a key uses it to open a door he could lock instead.
+ - I know that the Bible is a special kind of book, but I find it as seductive as any other. If I am not careful, I can begin to mistake the words on the page for the realities they describe. I can begin to love the dried ink marks on the page more than I love the encounters that gave rise to them.
+ - I began to get notes from people saying they were sorry to hear I’d left ministry. And for a while, I halfway believed they were right, that I’d left.
+ - I became so attentive to the souls of other people that I was not as attentive as I might have been to my own.
+ - There was no time anymore to be quiet or still or pray. So, in many ways, that’s what led to my downward spin.
+ - Having been brought up with a definition of faith as adherence to a set of beliefs, I have more and more begun to turn instead toward a definition of faith as openness to truth, whatever truth may turn out to be.
+ - The tradition piece is so embedded in me I don’t know that I can see it any more, but the community piece is one I’ve been in danger of losing.
+ - I don’t miss the ministry, because I’m completely engaged in it. In terms of parish ministry, I miss the intimacy with a group of people.
+ - Most of us will have more than one job in our working lives, which means we will have more than one opportunity to seek meaningful work at different stages of our own deepening humanity.
+ - I don’t have time for a job that doesn’t leave me time to be quiet or still or to pray.
+ - I found myself in a maze where I’d taken the wrong turn. In my wish to do well for that congregation I wasn’t doing particularly well for myself or my friends or my family, and I even found that the work for God was taking me away from God.
+ - To be in the mainline is to have a history and not simply to be an amalgam, a community church of who knows what that came from who knows where.
+ - As hard as I have tried to remember the exact moment when I fell in love with God, I cannot do it. My earliest memories are bathed in a kind of golden light that seemed to embrace me as surely as my mother’s arms. The divine presence was strongest outdoors, and most palpable when I was alone.
+ - It’s difficult for me to ignore how many conflicts locally and worldwide have religion tagged to them.
+ - Most of us spend so much time thinking about where we have been or where we are supposed to be going that we have a hard time recognizing where we actually are.
+ - I think my idea of God was much more directive than my idea of God now, that is, a God who had one plan in mind for me, perhaps, and my job was to find out what it was and obey.
+ - I read more widely. I made friends more widely. I wore more red. I stayed home on Sundays. I did things that were never in the realm of possible things to do before. That was a real desert experience for me.
+ - If God is about putting God ahead of myself then I’ve just quit being religious, because that’s what got me into such deep trouble.
+ - In a world where faith is often construed as a way of thinking, bodily practices remind the willing that faith is a way of life.
+ - Science is not metaphorical. Science is scientific.
+ - When I say I trust Jesus, that is what I mean: I trust that the way of life leads through perishability, not around it.
+ - When someone asks us where we want to be in our lives, the last thing that occurs to us is to look down at our feet and say, ‘Here, I guess, since this is where I am.’
+ - I decided I got to say whether I was Christian or not, and so I’ve relaxed enormously since then. I’m the one who gets to say that, and not someone else.
+ - The real problem has far less to do with what is really out there than it does with our resistance to finding out what is really out there.
+ - For a long time I listened to other people to decide whether I was still Christian or not, and I would sort of vet myself by the traditional formulae.
+ - That’s enough, and I have a ministry as a neighbor as well. A ministry as a friend and a ministry as an aunt and a godmother, and family is very much in the circle of my vocation.
+ - I’m leaving out some of the hugely successful megachurches, of which I have very little experience.
+ - The poets began drifting away from churches as the jurists grew louder and more insistent.
+ - I can’t help but note that God is being useful to a lot of people trying to do harm to one another.
+
+76 quotes

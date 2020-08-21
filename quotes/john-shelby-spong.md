@@ -1,0 +1,102 @@
+ - Live life to it’s fullest, love wastefully, and be all we can be.
+ - I experience God as the power of life, the power of love and the ground of being. I don’t say that’s what God is; I say that’s my experience of God.
+ - When the dust settles and the pages of history are written, it will not be the angry defenders of intolerance who have made the difference. The reward will go to those who dared to step outside the safety of their privacy in order to expose and rout the prevailing prejudices.
+ - I experience God as the power of love.
+ - True religion is not about possessing the truth. No religion does that. It is rather an invitation into a journey that leads one toward the mystery of God. Idolatry is religion pretending that it has all the answers.
+ - Prayer is not adult letters written to Santa Claus, and God is not some parent-like figure up in the sky who’s going to take care of us.
+ - I do assert that one prepares for eternity not by being religious and keeping the rules, but by living fully, loving wastefully, and daring to be all that each of us has the capacity to be.
+ - Hysterical fundamentalism is not the way into the future; it is the last gasp of the past.
+ - Mother Nature is not sweet.
+ - Some people think prayer stops bullets or rockets or land mines. It doesn’t. That’s magic, that’s not God. Sometimes, you’re just in the wrong place at the wrong time.
+ - The trouble is, the same thing that enabled us to survive evolution is also going to kill us, because in the final analysis, if survival is the primary motivation of every human being, then we will finally be in a situation where might will make right and only one person will survive.
+ - If you’re really thinking prayer can stop rockets or bullets, you have to ask why some people do get hit by rockets or bullets. Are they people who no one prayed for? Are they people who God just didn’t like? I don’t think so.
+ - The primary message of the Christian Church is that we were born in sin and we need to be rescued; we cannot rescue ourselves, so God comes to our rescue, pays the price of our sin and transforms us through the death of Jesus.
+ - I don’t think much about my physical body going off into the long, green fairways of heaven to play golf.
+ - Oh the Christian church has encouraged enormous immaturity among the peoples who are its primary adherence.
+ - I live on the other side of Copernicus and Galileo; I can no longer conceive of God as sort of above the sky, looking down and keeping record books.
+ - The church is like a swimming pool. Most of the noise comes from the shallow end.
+ - The miracle stories of the New Testament can no longer be interpreted in a post-Newtonian world as supernatural events performed by an incarnate deity.
+ - As for the status of Western Christianity, we are in a place where our task is to redefine the primary symbols of our faith or tradition in a more human direction. That’s the thing I spend my time doing.
+ - If you begin to give people hope that there is a brighter future, there is a new tomorrow, then the people who were yesterday’s terrorists become tomorrow’s elected officials and they’re part of the system.
+ - The God understood as a father figure, who guided ultimate personal decisions, answered our prayers, and promised rewards and punishment based upon our behavior was not designed to call anyone into maturity.
+ - Jesus becomes the captive of the hysterically religious, the chronically fearful, the insecure and even the neurotic among us, or he becomes little more than a fading memory, the symbol of an age that is no more and a nostalgic reminder of our believing past. To me, neither option is worth pursuing.
+ - All religion seems to need to prove that it’s the only truth. And that’s where it turns demonic. Because that’s when you get religious wars and persecutions and burning heretics at the stake.
+ - If I want to put a Christmas tree in my yard, or three crosses for the crucifixion story, that’s fine. But if I try to use public property or a public school as a way to impress my religion on other people, I think that violates the constitution.
+ - What the mind cannot accept, the heart can finally never adore.
+ - I think the worst way to go is to have somebody think they speak for God. If you look at history, every nation that has operated as if it spoke for God has become violently destructive.
+ - The Bible Belt, the religious South, is the section of the country that practiced slavery until the war made them give it up. They practiced segregation. They practiced lynchings. I don’t see any great value in that.
+ - The time has come for us to think of Christianity in a different way. Instead of thinking of God entering human life from outside in the person of Jesus, we have to begin to see human life evolving to the place where it opens itself into an experience of divinity.
+ - Paul’s words are not the Words of God. They are the words of Paul- a vast difference.
+ - In fact, in 1724 the Western world learned that women were co-creators of life that’s when it was discovered that women had an egg cell.
+ - The view of the cross as the sacrifice for the sins of the world is a barbarian idea based on primitive concepts of God and must be dismissed.
+ - We have a democracy within the bounds of a constitution which provides certain guarantees related to the basic humanity of every person. I think that’s the best way to go.
+ - The hope for life after death must be separated forever from the behavior control mentality of reward and punishment. The Church must abandon, therefore, its reliance on guilt as a motivator of behavior.
+ - I prepare for death by living.
+ - Pat Robertson said the feminist movement was just a bunch of lesbians who wanted to leave their husbands and kill their children. I quoted him in my book. It’s a fantastic statement.
+ - We are in a survival mentality, and that’s hard-wired into our humanity, because we are the winners of an evolutionary struggle of millions and millions and millions of years.
+ - I admire our ancestors, whoever they were. I think the first self-conscious person must have shaken in his boots. Because as he becomes self-conscious, he’s no longer part of nature. He sees himself against nature. He looks at the vastness of the universe and it looks hostile.
+ - Whatever diminishes life is evil, and whatever enhances life is good.
+ - I don’t want a God that would go around killing people’s little girls. Neither do I want a God who would kill his own son.
+ - The demolishment of the power of organized Christianity in the Western world to finally realize the emancipation of women and give them the vote in 1920. Women couldn’t even own property in their own names until the last quarter of the 19th century in America.
+ - You learn that you either are going to have a police state where you don’t have any freedom left, or you’re going to build a world that doesn’t create terrorists – and that means a whole different way of ‘getting along.’
+ - The Sins of Scripture is an interesting title; most people don’t put sins and scripture together in the same title. It jars people.
+ - We were born in a Jewish world, as part of a Jewish faith tradition. We had to translate ourselves into the neo-Platonic thinking Greek world; that took us about 400 years. Then, finally a man named Augustine, the Bishop of Hippo, recast Christianity in terms of neo-Platonic thought.
+ - There never was a time when we were created perfect and fell into sin and needed to be rescued. We are evolving people; we are not fallen people. We are not a little lower than the angels. We’re a little higher than the apes. It’s a very different perspective.
+ - I grew up in North Carolina being told that the Bible approves slavery and segregation, that it was the will of God.
+ - I think one of the things we’ve got to look out for is human beings claiming that they know how God operates.
+ - I think the story of the Christian faith is how you can become more deeply and fully human, not how you can become religious. And I don’t see any indication that being religious makes you more moral.
+ - Some parts of the Bible are dreadful. In fact, my working title for The Sins of Scripture was “The Terrible Text of The Bible.”
+ - The biblical texts that we Christians have used for centuries to justify our hostility toward the Jews need to be banished forever from the sacred writings of the Christian church.
+ - I don’t like to talk about it in those terms; it’s impossible to describe who or what God “is.” Suppose you were a horse, and you were asked to describe what a human being was like. You couldn’t do it;.
+ - Christianity is, I believe, about expanded life, heightened consciousness and achieving a new humanity. It is not about closed minds, supernatural interventions, a fallen creation, guilt, original sin or divine rescue.
+ - I don’t think hell exists. I happen to believe in life after death but I don’t think it’s got a thing to do with reward and punishment. Religion is always in the control business and that’s something which people don’t really understand.
+ - They amuse themselves by playing an irrelevant ecclesiastical game called “Let’s Pretend.” Let’s pretend that we possess the objective truth of God in our inerrant Scriptures or in our infallible pronouncements or in our unbroken apostolic traditions.
+ - It’s not going to be a straight upward progression, but there’s no doubt that consciousness is growing. Prejudices die regularly in the Western world. We don’t burn witches anymore.
+ - There are some great values in Christianity, but I think the values are located more deeply in our humanity than they are in our religion. There are certainly some survival values.
+ - I am a child of the 21st century.
+ - In the private arena, you can do whatever you wish, and people do. These crazy evangelical preachers get on the radio and TV and say incredible things.
+ - When I look back at the Christian faith, I see that we have had to retranslate, almost reinvent ourselves a number of times.
+ - The Jesus experience expanded people into a position where they didn’t have to have defensive tribal lives, “God loves my people, my tribe, anddoesn’t like yours.” The Bible is full of such references.
+ - Plenty of people out there think of me as the Antichrist or the devil incarnate because I do not affirm the literal patterns of the Bible. But the fact is I can no more abandon the literal patterns than I could fly to the moon. I just go beyond them.
+ - Some people in the church, like Martin Luther King, Jr., came out against segregation. But if you look at the bulk of organized religion, you will discover that it endorsed slavery and quoted the Bible to approve it; the Pope even owned slaves.
+ - The Bible interprets life from its particular perspective; it does not record in a factual way the human journey through history.
+ - It’s almost inevitable that we become religious people. The question is, what kind of religion is it?
+ - I learned early in life that you get places by having the right enemies.
+ - I live on the other side of Charles Darwin and I can no longer see human light as having been created perfect and falling into sin, I see us rather emerging into higher and higher levels of consciousness and higher and higher levels of complication.
+ - The task of the church, for example, becomes less that of indoctrinating or relating people to an external divine power and more that of providing opportunities for people to touch the infinite center of all things and to grow into all that they are destined to be.
+ - Prayer cannot be a request made to a theistic deity to act in human history in a particular way.
+ - I cannot say my yes to legends that have been clearly and fancifully created. If I could not move my search beyond angelic messengers, empty tombs, and ghostlike apparitions, I could not say yes to Easter.
+ - So much organized religion, in my opinion, ends up being life-denying.
+ - I have no problem with anybody who wants to bear public witness to their religion, but I don’t think they can do it on public property. They have to do it on private property. There’s nothing unconstitutional about that.
+ - I think that anything that begins to give people a sense of their own worth and dignity is God.
+ - It appears to be in the nature of religion itself to be prejudiced against those who are different.
+ - Was Judas Iscariot a figure of history? I do not think so. There is no mention of him in any source before the 8th decade.
+ - The way you become divine is to become wholly human.
+ - I see Christianity in very humanistic terms.
+ - Malachi, the last book of the Old Testament, says, “From the rising of the sun to its setting, God’s name shall be great among the Gentiles.” This encompasses the whole world. Suddenly it’s not the Jews against the Gentiles, or my tribe against your tribe.
+ - Some people think prayer is telling God what to do. I don’t think that’s the case.
+ - The virgin birth, understood as literal biology, makes Christ’s divinity, as traditionally understood, impossible.
+ - Terrorism is a real despair. These are people for whom life has been so negative that they’re willing to die if they can take down some of their enemies.
+ - Religion is a mixed blessing.
+ - The Hebrew scriptures say it’s okay to enslave anybody except your fellow Jews. It says you should enslave only your neighbors. I say to people that means Mexicans and Canadians are a bit at risk if we want to be literal about the Bible.
+ - Apologetic explanations do not develop unless there is a reality that has to be explained and defended. Jesus was undeniably a figure of history.
+ - I can only give away the love that I have received.
+ - All human beings bear God’s image and must be respected for what each person is. Therefore, no external description of one’s being, whether based on race, ethnicity, gender or sexual orientation, can properly be used as the basis for either rejection or discrimination.
+ - The way that I see Christianity is that its role is to enhance the life of every person.
+ - My sense is if the Episcopal Church can’t stand challenge within its own ranks, then it is not a church I would want to be a member of anyway.
+ - I treasure the Bible. I live in it and work on it all the time. But it is not the word of God. It’s the tribal story of a particular people, and the best thing about that story is that the story keeps growing and evolving.
+ - Human wholeness can never be found in the denigration of another.
+ - We’re either going to be driven to a whole new sense of radical interdependence where we are, in the Bible’s words, our neighbor’s keeper, or destroy ourselves.
+ - The audience that I try to reach are members of what I call the church alumni association. Now they are people who have not found in institutional religion a God big enough to be God for their world.
+ - There’s no way a human being can escape his or her human-ness to be able to imagine God. We can talk about how we’ve experienced God, not what or who God is.
+ - It’s just not easy enough to say that I pray and God will accomplish.
+ - I go where I’m invited. And all I can tell you is if we accepted every invitation we had, I’d be away every day of my life.
+ - God is a presence that I can never define but I could never deny.
+ - What happened in the Western world was that Plato ceased to be the way people thought. Aristotle was rediscovered, and the modern, educated world moved toward Aristotelian thinking.
+ - I still hope. I wouldn’t be in this position if I didn’t. I love the church. I love the Bible. But I think we’re in a time where we’re desperately in need of a great reformation.
+ - I believe that God is very real.
+ - I think we have to recover our spiritual nature. The way we have interpreted Christianity does not do that.
+ - You can’t have a world where 50 percent of the people are dieting and 50 percent of the people are starving if you want stability.
+ - I want the traditional family upheld, but I don’t want it upheld to the detriment of other people.
+
+100 quotes

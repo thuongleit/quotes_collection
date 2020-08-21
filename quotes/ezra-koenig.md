@@ -1,0 +1,36 @@
+ - If you’re lonely, bored, or unhappy, remember you are mad young. There is so much time to meet new people and go to new places.
+ - Tom Cruise is one of the most successful actors of all time.
+ - I do think sometimes there’s danger in guest appearance mania. I’ve seen too many examples that sound cool on paper, like ‘Oh, get that guy to sing the hook on that guy’s song,’ and then that’s all it is. It’s a cool idea that sounds good on paper.
+ - Some people say video games rot your brain, but I think they work different muscles that maybe you don’t normally use.
+ - I still to this day get the most inspiration from rap lyrics.
+ - Well, growing up in the ’90s, my first true love was ska music.
+ - In Europe, I always have fun bike riding in Amsterdam.
+ - Sometimes I surprise myself with how dissatisfied I am with seemingly satisfying experiences.
+ - Rapping and singing are not two polar opposites. There’s so much middle ground. And I think there’s a lot of people who find that middle ground.
+ - Anyways, trying to express yourself to the press is often like arguing with a hysterical person.
+ - My dad has a really great record collection that basically went up to the year I was born: 1984.
+ - I go to great pains to find the best yogurt and granola.
+ - Musicals don’t get enough credit for being so surreal. It’s like an alternate universe...
+ - As an artist you have the luxury of maybe presenting an issue in a certain way, as opposed to actually solving it.
+ - My dad grew up in a working-class Jewish neighbourhood, and I got a scholarship from my dad’s union to go to college. I went there to get an education, not as an extension of privilege.
+ - Growing up listening to rap music, you almost feel like you should have haters. That’s an important part of being a successful musician. It’s a good thing, I guess.
+ - I like how Ralph Lauren creates a mystical world through his clothing.
+ - Playing Tetris for 15 minutes is like meditation.
+ - For you to be able to take a picture of yourself that you feel good enough about to share with the world – I think that’s a great thing.
+ - But you know what? When I die, everybody is invited to come take a selfie at my funeral. Except for my enemies. They’re not invited to the funeral, period.
+ - I feel like you constantly have to prove why you deserve to continue to exist.
+ - I’m a huge fan of the Bay Area so I always love coming to San Francisco.
+ - There aren’t that many people walking about who are a total class stereotype.
+ - You can be 24 and continue to live like you’re at college, or even continue to live like you’re in high school. Or you can put on a shirt and tie and pretend to be an adult.
+ - No part of Manhattan these days really has the same vibe I get from a Ramones song or a Velvet Underground song.
+ - It’s cool to have instruments lying around because they give you different ideas.
+ - All I know for sure is that issues like race, like class, are always best approached with compassion and open-mindedness.
+ - I still think that if you’re excited about something, you have to work at it.
+ - Making every record is a process full of tough times.
+ - I don’t like to generalize but I’ve had nothing but bad experiences with Mexican food in Europe.
+ - I’m down with Spotify. I don’t know all the financial details but generally it’s a great resource.
+ - I’m pretty sure that the Walkmen are the band that I’ve paid to see the most in my life.
+ - It’s really hard to even talk about the internet without seeming instantly corny.
+ - If kids and teenagers can get into a band, its probably not because they think its brainy.
+
+34 quotes

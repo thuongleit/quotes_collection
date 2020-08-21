@@ -1,0 +1,85 @@
+ - Treat your life like a game.
+ - Don’t worry about looking good – worry about achieving your goals.
+ - When you think that it’s too hard, remember that in the long run, doing the things that will make you successful is a lot easier than being unsuccessful.
+ - Do not feel bad about your mistakes or those of others. Love them! Remember that one: they are to be expected; two: they’re the first and most essential part of the learning process; and three: feeling bad about them will prevent you from getting better.
+ - By and large, life will give you what you deserve and it doesn’t give a damn what you like. So it is up to you to take full responsibility to connect what you want with what you need to do to get it, and then to do those things.
+ - It’s more important to do big things well than to do small things perfectly.
+ - Principles are what allow you to live a life consistent with those values. Principles connect your values to your actions.
+ - Success is achieved by people who deeply understand reality and know how to use it to get what they want. The converse is also true: idealists who are not well-grounded in reality create problems, not progress.
+ - School typically doesn’t prepare young people for real life – unless their lives are spent following instructions and pleasing others. In my opinion, that’s why so many students who succeed in school fail in life.
+ - To make money in the markets, you have to think independently and be humble.
+ - If you can stare hard at your problems, they almost always shrink or disappear, because you almost always find a better way of dealing with them than if you don’t face them head on. The more difficult the problem, the more important it is that you stare at it and deal with it.
+ - Meditation more than anything in my life was the biggest ingredient of whatever success I’ve had.
+ - More than anything else, what differentiates people who live up to their potential from those who don’t is a willingness to look at themselves and others objectively.
+ - He who lives by the crystal ball will eat shattered glass.
+ - The more you think you know, the more closed-minded you’ll be.
+ - If you don’t own Gold, you know neither history nor economics.
+ - Life is like a giant smorgasbord of more delicious alternatives than you can ever hope to taste. So you have to reject having some things you want in order to get other things you want more.
+ - I also believe that everyone needs to think independently and make their own decisions on what makes the most sense.
+ - Remember that experience creates internalization. Doing things repeatedly leads to internalization, which produces a quality of understanding that is generally vastly superior to intellectualized learning.
+ - Pull in your belt, spend less, and reduce debt.
+ - I believe that for the most part, achieving success – whatever that is for you – is mostly a matter of personal choice and that, initially, making the right choices can be difficult.
+ - The best advice I can give you is to ask yourself what do you want, then ask ‘what is true’ – and then ask yourself ‘what should be done about it.’ I believe that if you do this you will move much faster towards what you want to get out of life than if you don’t!
+ - People who confuse what they wish were true with what is really true create distorted pictures of reality that make it impossible for them to make the best choices.
+ - An economy is not a complicated thing; it just has a lot of moving parts.
+ - There are far more good answers “out there” than there are in you.
+ - It is a law of nature that you must do difficult things to gain strength and power. As with working out, after a while you make the connection between doing difficult things and the benefits you get from doing them, and you come to look forward to doing these difficult things.
+ - What matters most is that the people you work with share your values.
+ - Radical transparency fosters goodness in so many ways for the same reasons that bad things are more likely to take place behind closed doors.
+ - When growth is slower-than-expected, stocks go down. When inflation is higher-than-expected, bonds go down. When inflation is lower-than-expected, bonds go up.
+ - Ask yourself whether you have earned the right to have an opinion. Opinions are easy to produce, so bad ones abound. Knowing that you don’t know something is nearly as valuable as knowing it. The worst situation is thinking you know something when you don’t.
+ - Almost everything is like a machine.
+ - You’ll see that excuses like “That’s not easy” are of no value and that it pays to “push through it” at a pace you can handle. Like getting physically fit, the most important thing is that you keep moving forward at whatever pace you choose, recognizing the consequences of your actions.
+ - Be wary of the arrogant intellectual who comments from the stands without having played on the field.
+ - Watch out for people who think it’s embarrassing not to know.
+ - I can be stressed, or tired, and I can go into a meditation and it all just flows off of me. I’ll come out of it refreshed and centered and that’s how I’ll feel and it’ll carry through the day.
+ - Nature is a machine. The family is a machine. The life cycle is like a machine.
+ - People who worry about looking good typically hide what they don’t know and hide their weaknesses, so they never learn how to properly deal with them and these weaknesses remain impediments in the future.
+ - Nature gave us pain as a messaging device to tell us that we are approaching, or that we have exceeded, our limits in some way.
+ - I believe that the biggest problem that humanity faces is an ego sensitivity to finding out whether one is right or wrong and identifying what one’s strengths and weaknesses are.
+ - Meditation helps you stay in a calm, clear-headed state so that when challenges come at you, you can deal with them like a ninja – in a calm thoughtful way. When you’re centered, your emotions are not hijacking you.
+ - You should have a strategic asset allocation mix that assumes that you don’t know what the future is going to hold.
+ - Successful people ask for the criticism of others and consider its merit.
+ - I’m just saying that if you understand how the economic machine works, it just works like a machine. There are cause-effect relationships.
+ - Look at what caused people to make a lot of money and you will see that usually it is in proportion to their production of what the society wanted.
+ - When you’re centered, your emotions are not hijacking you.
+ - The main reason I write the daily observations is because I want to know where I’m wrong. So lots of times if somebody points something out it helps me, and I want to have a diversified bet of uncorrelated bets.
+ - I believe that understanding what is good is obtained by looking at the way the world works and figuring out how to operate in harmony with it to help it evolve.
+ - To test if you are worrying too much about looking good, observe how you feel when you find out you’ve made a mistake or don’t know something.
+ - In the end, what matters most is that the people you work with share your values, so I’ve wanted people who value the meaningful work and meaningful relationships that always motivated me in building Bridgewater.
+ - Though how nature works is way beyond man’s ability to comprehend, I have found that observing how nature works offers innumerable lessons that can help us understand the realities that affect us.
+ - Some people who are creative are not reliable and vice versa; some see big pictures while others see details, etc. All of them are important to have on well-orchestrated teams.
+ - There is giant untapped potential in disagreement, especially if the disagreement is between two or more thoughtful people.
+ - If it didn’t happen in your life before, then you’re not paying attention you don’t think it’s possible. But almost all important events never happen in your life before.
+ - There are two main drivers of asset class returns – inflation and growth.
+ - People who acquire things beyond their usefulness not only will derive little or no marginal gains from these acquisitions, but they also will experience negative consequences, as with any form of gluttony.
+ - I could see that making judgments about people so that they are tried and sentenced in your head, without asking them for their perspective, is both unethical and unproductive. So I learned to love real integrity and to despise the lack of it.
+ - I believe that dreamers who simply imagine things that would be nice but are not possible don’t sufficiently appreciate the laws of the universe to understand the true implications of their desires, much less how to achieve them.
+ - There is an excellent correlation between giving society what it wants and making money, and almost no correlation between the desire to make money and how much money one makes.
+ - I don’t get caught up in the moment.
+ - Over the long run, the price of gold approximates the total amount of money in circulation divided by the size of the gold stock. If the market price of gold moves a long way from this level, it may indicate a buying or selling opportunity.
+ - There is a strong tendency to get used to and accept very bad things that would be shocking if seen with fresh eyes.
+ - I believe that one of the best ways of getting at truth is reflecting with others who have opposing views and who share your interest in finding the truth rather than being proven right.
+ - If inflation-adjusted interest rates decline in a given country, its currency is likely to decline.
+ - What I’m trying to say is that for the average investor, what I would encourage them to do is to understand that there’s inflation and growth. It can go higher and lower and to have four different portfolios essentially that make up your entire portfolio that gets you balanced.
+ - When two intelligent parties disagree, that’s when the potential for learning and moving ahead begins.
+ - A beautiful deleveraging balances the three options. In other words, there is a certain amount of austerity, there is a certain amount of debt restructuring, and there is a certain amount of printing of money. When done in the right mix, it isn’t dramatic.
+ - In return, society rewards those who give it what it wants. That is why how much money people have earned is a rough measure of how much they gave society what it wanted.
+ - It all comes down to interest rates. As an investor, all you’re doing is putting up a lump-sump payment for a future cash flow.
+ - Demand is best measured in terms of spending. You know, I think in traditional economics, it’s a mistake to measure it in terms of the quantity of goods.
+ - Everyone has to decide for themselves what works for them and their organization.
+ - In China anything less than 6% growth is a recession meaning that it also causes financial problems and it’s disruptive and it’s a problem.
+ - Constantly probe the people who report to you, and encourage them to probe you.
+ - When people get at each other’s throat, the rich and the poor and the Left and the Right and so on, and you have a basic breakdown, that becomes very threatening.
+ - I pay about a third in taxes, I give away about a third, and I follow the law.
+ - The world is still in deleveraging.
+ - Know what your people are like, and make sure they do their jobs excellently.
+ - To be successful, we need everyone to think independently and work through disagreement to decide what’s best.
+ - I believe that we all get rewarded and punished according to whether we operate in harmony or in conflict with nature’s laws, and that all societies will succeed or fail in the degrees that they operate consistently with these laws.
+ - I notice a difference from the moment I meditate.
+ - The big question is: When will the term structure of interest rates change? That’s the question to be worried about.
+ - There is slow growth, but it is positive slow growth. At the same time, ratios of debt-to-incomes go down. That’s a beautiful deleveraging.
+ - I’m going to give away a lot more than half my money. I’d be happy to give that to the government if the government put together programs that were like I’m giving away to charity, in which I believe the money is effectively used to help people.
+ - I was about twenty and the Beatles were meditating and I heard about it and they had a center in New York and I came to the center and I learned about it.
+
+83 quotes

@@ -1,0 +1,43 @@
+ - The best index to a person’s character is how he treats people who can’t do him any good, and how he treats people who can’t fight back.
+ - The less you talk, the more you’re listened to.
+ - If you want your children to turn out well, spend twice as much time with them, and half as much money.
+ - A church is a hospital for sinners, not a museum for saints.
+ - If you don’t value what you have, you’re sure to lose it.
+ - Fear less, hope more. Eat less, chew more. Talk less, say more. Hate less, love more...
+ - A bad habit never disappears miraculously, it’s an undo-it-yourself project.
+ - Fighting fire with fire only gets you ashes!
+ - If you want children to keep their feet on the ground, put some responsibility on their shoulders.
+ - So yesterday you fell off the wagon? Or maybe you blew your diet? Or lost your temper and shot off your mouth? Well, that was yesterday. Today is a brand-new day with a clean slate, so forget yesterday!
+ - Wisdom doesn’t automatically come with old age. Nothing does – except wrinkles. It’s true, some wines improve with age. But only if the grapes were good in the first place.
+ - I can’t think of a more potent combination than God and a good lawyer.
+ - While forbidden fruit is said to taste sweeter, it usually spoils faster.
+ - If you want a place in the sun, you have got to put up with a few blisters.
+ - Maturity is the ability to do a job whether you’re supervised or not; finish a job once it’s started; carry money without spending it; and the ability to bear an injustice without wanting to get even.
+ - In Biblical times, a man could have as many wives as he could afford. Just like today.
+ - Loneliness is the ultimate poverty.
+ - Many husbands today pitch in to help with household chores – it’s called partnership.
+ - Love is what enables us to bridge the gap of disappointment when others don’t live up to the expectations we have of them.
+ - Never advise anyone to go to war or to get married.
+ - “You could move?” – “Dear Abby” responds to a reader who complained that a gay couple was moving in across the street and wanted to know what he could do to improve the quality of the neighborhood.
+ - Cruel words erode the self-esteem like the ocean eats away the shore.
+ - If we could sell our experiences for what they cost us, we’d all be millionaires.
+ - Believing that the dream of freedom, brotherhood, and peace for all mankind will someday come true.
+ - Never give a golfer an ultimatum unless you’re prepared to lose.
+ - Kissing power is stronger than will power: Girls need to “prove their love” like a moose needs a hat rack.
+ - Psychotherapy, unlike castor oil, which will work no matter how you get it down, is useless when forced on an uncooperative patient.
+ - True, a little learning is a dangerous thing, but it still beats total ignorance.
+ - SO the richest are often the poorest as this saying goes, “Loneliness is the ultimate poverty”
+ - Kissing power is stronger than will power.
+ - Women who miscalculate are called mothers.
+ - It is a sad commentary of our times when our young must seek advice and counsel from ‘Dear Abby’ instead of going to Mom and Dad.
+ - The lack of faith is not doubt. It is certainty.
+ - There is no end to the undeserved misery and mischief it could create.
+ - The purpose of life is to amount to something and have it make some difference that you lived at all.
+ - It is totally unconscionable to subject defenseless animals to mutilation and death, just so a company can be the first to market a new shade of nail polish or a new, improved laundry detergent. It’s cruel, it’s brutal, it’s inhumane, and most people don’t want it.
+ - Accept every blind date you can get, even with a girl who wears jeans. Maybe you can talk her out of them.
+ - Religion, like water, may be free, but when they pipe it to you, you’ve got to help pay for the piping. And the piper.
+ - How should they answer?
+ - It is true that I was born in Iowa, but I can’t speak for my twin sister.
+ - You are what you are when nobody is looking.
+
+41 quotes

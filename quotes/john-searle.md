@@ -1,0 +1,28 @@
+ - If you can’t say it clearly, you don’t understand it yourself.
+ - The Intentionality of the mind not only creates the possibility of meaning, but limits its forms.
+ - There is no success or failure in Nature.
+ - How do we get from electrons to elections and from protons to presidents?
+ - We do not live in several different, or even two different, worlds, a mental world and a physical world, a scientific world and a world of common sense. Rather, there is just one world; it is the world we all live in, and we need to account for how we exist as part of it.
+ - Dualism makes the problem insoluble; materialism denies the existence of any phenomenon to study, and hence of any problem.
+ - Nowadays nobody bothers, and it is considered in slightly bad taste to even raise the question of God’s existence. Matters of religion are like matters of sexual preference: they are not discussed in public, and even the abstract questions are discussed only by bores.
+ - Where conscious subjectivity is concerned, there is no distinction between the observation and the thing observed.
+ - Where consciousness is concerned, the appearance is the reality.
+ - The problem posed by indirect speech acts is the problem of how it is possible for the speaker to say one thing and mean that but also to mean something else.
+ - An utterance can have Intentionality, just as a belief has Intentionality, but whereas the Intentionality of the belief is intrinsic the Intentionality of the utterance is derived.
+ - The reason that no computer program can ever be a mind is simply that a computer program is only syntactical, and minds are more than syntactical. Minds are semantical, in the sense that they have more than a formal structure, they have a content.
+ - Where questions of style and exposition are concerned I try to follow a simple maxim: if you can’t say it clearly you don’t understand it yourself.
+ - You do not understand your own tradition if you do not see it in relation to others.
+ - In many cases it is a matter for decision and not a simple matter of fact whether x understands y; and so on.
+ - Materialism ends up denying the existence of any irreducible subjective qualitative states of sentience or awareness.
+ - There are clear cases in which understanding literally applies and clear cases in which it does not apply; and these two sorts of cases are all I need for this argument.
+ - I want to block some common misunderstandings about understanding: In many of these discussions one finds a lot of fancy footwork about the word understanding.
+ - My car and my adding machine understand nothing: they are not in that line of business.
+ - Many people mistakenly suppose that the essence of consciousness is that of a control mechanism.
+ - Whatever is referred to must exist. Let us call this the axiom of existence.
+ - I will argue that in the literal sense the programmed computer understands what the car and the adding machine understand, namely, exactly nothing.
+ - Berkeley had a liberal element in the student body who tended to be quite active. I think that’s in general a feature of intellectually active places.
+ - The ascription of an unconscious intentional phenomenon to a system implies that the phenomenon is in principle accessible to consciousness.
+ - Our tools are extensions of our purposes, and so we find it natural to make metaphorical attributions of intentionality to them; but I take it no philosophical ice is cut by such examples.
+ - We often attribute ‘understanding’ and other cognitive predicates by metaphor and analogy to cars, adding machines, and other artifacts, but nothing is proved by such attributions.
+
+26 quotes

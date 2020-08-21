@@ -1,0 +1,293 @@
+ - Man is born free and everywhere he is in chains.
+ - The world of reality has its limits; the world of imagination is boundless.
+ - I prefer liberty with danger than peace with slavery.
+ - Freedom is the power to choose our own chains.
+ - Man was born free, and he is everywhere in chains. Those who think themselves the masters of others are indeed greater slaves than they.
+ - I have never believed that man’s freedom consisted in doing what he wants, but rather in never doing what he does not want to do.
+ - People who know little are usually great talkers, while men who know much say little.
+ - The money you have gives you freedom; the money you pursue enslaves you.
+ - I would rather be a man of paradoxes than a man of prejudices.
+ - The freedom of Mankind does not lie in the fact that can do what we want, but that we do not have to do that which we do not want.
+ - Equality, because without it there can be no liberty.
+ - Insults are the arguments employed by those who are in the wrong.
+ - Rather suffer an injustice than commit one.
+ - The man who gets the most out of life is not the one who has lived it longest, but the one who has felt life most deeply.
+ - Beware of listening to this impostor; you are undone if you once forget that the fruits of the earth belong to us all, and the earth itself to nobody.
+ - Childhood has it’s own way of seeing, thinking, and feeling, and nothing is more foolish than to try to substitute ours for theirs.
+ - Slaves lose everything in their chains, even the desire of escaping from them.
+ - All kinds of frankness and honesty are terrible crimes in the eyes of society.
+ - The general will is always right.
+ - The falsification of history has done more to impede human development than any one thing known to mankind.
+ - To be sane in a world of madman is in itself madness.
+ - I may be no better, but at least I am different.
+ - There are always four sides to a story: your side, their side, the truth and what really happened.
+ - Finance is a slave’s word.
+ - Trust your heart rather than your head.
+ - To write a good love letter, you ought to begin without knowing what you mean to say, and to finish without knowing what you have written.
+ - We are reduced to asking others what we are. We never dare to ask ourselves.
+ - Whoever refuses to obey the general will will be forced to do so by the entire body; this means merely that he will be forced to be free.
+ - At sixteen, the adolescent knows about suffering because he himself has suffered, but he barely knows that other beings also suffer.
+ - Do not judge, and you will never be mistaken.
+ - Living is not breathing but doing.
+ - You forget that the fruits belong to all and that the land belongs to no one.
+ - Civilization is a hopeless race to discover remedies for the evils it produces.
+ - Smell is the sense of memory and desire.
+ - Men speak from knowledge, women from imagination.
+ - A man says what he knows, a woman says what will please.
+ - Nature never deceives us; it is we who deceive ourselves.
+ - Falsehood has an infinity of combinations, but truth has only one mode of being.
+ - We should not teach children the sciences; but give them a taste for them.
+ - Everything we do not have at our birth and which we need when we are grown is given to us by education.
+ - Whatever may be our natural talents, the art of writing is not acquired all at once.
+ - Conscience is the voice of the soul; the passions of the body.
+ - I can only meditate when I am walking. When I stop, I cease to think; my mind works only with my legs.
+ - Universal silence must be taken to imply the consent of the people.
+ - Those that are most slow in making a promise are the most faithful in the performance of it.
+ - It is too difficult to think nobly when one thinks only of earning a living.
+ - Virtue is a state of war, and to live in it we have always to combat with ourselves.
+ - Absolute silence leads to sadness. It is the image of death.
+ - The strongest is never strong enough to be always the master, unless he transforms strength into right, and obedience into duty.
+ - Quit thy childhood, my friend, and wake up!
+ - Take the course opposite to custom and you will almost always do well.
+ - Abstract truth is the eye of reason.
+ - Every man has the right to risk his own life in order to preserve it. Has it ever been said that a man who throws himself out the window to escape from a fire is guilty of suicide?
+ - Women, in general, are not attracted to art at all, nor knowledge, and not at all to genius.
+ - To renounce freedom is to renounce one’s humanity, one’s rights as a man and equally one’s duties.
+ - Accent is the soul of language; it gives to it both feeling and truth.
+ - What wisdom can you find that is greater than kindness?
+ - We pity in others only the those evils which we ourselves have experienced.
+ - The person who has lived the most is not the one with the most years but the one with the richest experiences.
+ - Or, rather, let us be more simple and less vain.
+ - When a man dies he clutches in his hands only that which he has given away during his lifetime.
+ - War then, is a relation – not between man and man but between state and state and individuals are enemies only accidentally not as men, nor even as citizens but as soldiers not as members of their country, but as its defenders.
+ - I hate books; they only teach us to talk about things we know nothing about.
+ - The English think they are free. They are free only during the election of members of parliament.
+ - Everything degenerates in the hands of man.
+ - He thinks like a philosopher, but governs like a king.
+ - Every free action has two causes that come together to produce it. One is moral, the will that determines the act; the other is physical, the power that executes the will to act.
+ - Days of absence, sad and dreary, Clothed in sorrow’s dark array, – Days of absence, I am weary; She I love is far away. Poetic Verse by.
+ - The training of children is a profession, where we must know how to waste time in order to save it.
+ - As soon as any man says of the affairs of the State “What does it matter to me?” the State may be given up for lost.
+ - The happiest is he who suffers least; the most miserable is he who enjoys least.
+ - Teach by doing whenever you can, and only fall back upon words when doing it is out of the question.
+ - You are worried about seeing him spend his early years in doing nothing. What! Is it nothing to be happy? Nothing to skip, play and run around all day long? Never in his life will he be so busy again.
+ - General abstract truth is the most precious of all blessings; without it, man is blind; it is the eye of reason.
+ - Liberty is obedience to the law which one has laid down for oneself.
+ - Luxury either comes of riches or makes them necessary; it corrupts at once rich and poor, the rich by possession and the poor by covetousness.
+ - Free people, remember this maxim: we may acquire liberty, but it is never recovered if it is once lost.
+ - Happiness: a good bank account, a good cook, and a good digestion.
+ - Every man having been born free and master of himself, no one else may under any pretext whatever subject him without his consent. To assert that the son of a slave is born a slave is to assert that he is not born a man.
+ - I am not made like any of those I have seen. I venture to believe that I am not made like any of those who are in existence. If I am not better, at least I am different.
+ - What, then, is the government? An intermediary body established between the subjects and the sovereign for their mutual communication, a body charged with the execution of the laws and the maintenance of freedom, both civil and political.
+ - The money that we possess is the instrument of liberty, that which we lack and strive to obtain is the instrument of slavery.
+ - The empire of woman is an empire of softness, of address, of complacency. Her commands are caresses, her menaces are tears.
+ - To renounce liberty is to renounce being a man, to surrender the rights of humanity and even its duties.
+ - There is no evildoer who could not be made good for something.
+ - It is not possible for minds degraded by a host of trivial concerns to ever rise to anything great.
+ - I feel an indescribable ecstasy and delirium in melting, as it were, into the system of being, in identifying myself with the whole of nature...
+ - A paralyzed man who wants to walk OR an agile man who does not want to walk will both remain neutral in nature.
+ - We cannot work for others without working for ourselves.
+ - If all were perfect Christians, individuals would do their duty; the people would be obedient to the laws, the magistrates incorrupt, and there would be neither vanity nor luxury in such a state.
+ - Supreme happiness consists in self-content; that we may gain this self-content, we are placed upon this earth and endowed with freedom.
+ - Our will is always for our own good, but we do not always see what that is; the people is never corrupted, but it is often deceived, and on such occasions only does it seem to will what is bad.
+ - A born king is a very rare being.
+ - There are times when I am so unlike myself that I might be taken for someone else of an entirely opposite character.
+ - God made me and broke the mold.
+ - Whence do I get my rules of conduct? I find them in my heart. Whatever I feel to be good is good. Whatever I feel to be evil is evil. Conscience is the best of casuists.
+ - Cities are the abyss of the human species.
+ - One can buy anything with money except morality.
+ - Heroes are not known by the loftiness of their carriage; the greatest braggarts are generally the merest cowards.
+ - We cannot teach children the danger of telling lies to men without realising, on the man’s part, the danger of telling lies to children. A single untruth on the part of the master will destroy the results of his education.
+ - Do to others as you would have others do to you, inspires all men with that other maxim of natural goodness a great deal less perfect, but perhaps more useful: Do good to yourself with as little prejudice as you can to others.
+ - Never exceed your rights, and they will soon become unlimited.
+ - The world is the book of women. Whatever knowledge they may possess is more commonly acquired by observation than by reading.
+ - Laws are always useful to those who possess and vexatious to those who have nothing.
+ - Ordinary readers, forgive my paradoxes: one must make them when one reflects; and whatever you may say, I prefer being a man with paradoxes than a man with prejudices.
+ - Money is the seed of money, and the first guinea is sometimes more difficult to acquire than the second million.
+ - We are born weak, we need strength; helpless, we need aid; foolish, we need reason. All that we lack at birth, all that we need when we come to man’s estate, is the gift of education.
+ - In the strict sense of the term, a true democracy has never existed, and never will exist.
+ - That man is truly free who desires what he is able to perform, and does what he desires.
+ - I have resolved on an enterprise that has no precedent and will have no imitator. I want to set before my fellow human beings a man in every way true to nature; and that man will be myself.
+ - Everything is good as it comes from the hands of the Maker of the world, but degenerates once it gets into the hands of man.
+ - Reading, solitude, idleness, a soft and sedentary life, intercourse with women and young people, these are perilous paths for a young man, and these lead him constantly into danger.
+ - Although modesty is natural to man, it is not natural to children. Modesty only begins with the knowledge of evil.
+ - I had been brought up in a church which decides everything and permits no doubts, so that having rejected one article of faith I was forced to reject the rest.
+ - One may live tranquilly in a dungeon; but does life consist in living quietly?
+ - Jewish authors would never have invented either that style nor that morality; and the Gospel has marks of truth so great, so striking, so utterly inimitable, that the invention of it would be more astonishing than the hero.
+ - Reason deceives us; conscience, never.
+ - An honest man nearly always thinks justly.
+ - No one is happy unless he respects himself.
+ - I long remained a child, and I am still one in many respects.
+ - Once you teach people to say what they do not understand, it is easy enough to get them to say anything you like.
+ - Every artists wants to be applauded.
+ - Liberty is not to be found in any form of government; she is in the heart of the free man; he bears her with him everywhere.
+ - I have always said and felt that true enjoyment can not be described.
+ - Posterity is always just.
+ - The apparent ease with which children learn is their ruin.
+ - The one thing we do not know is the limit of the knowable.
+ - My liveliest delight was in having conquered myself.
+ - It is unnatural for a majority to rule, for a majority can seldom be organized and united for specific action, and a minority can.
+ - Whoever blushes is already guilty; true innocence is ashamed of nothing.
+ - Ah, that is a perfume in which I delight; when they roast coffee near my house, I hasten to open the door to take in all the aroma.
+ - No man has any natural authority over his fellow men.
+ - Self-love is an instrument useful but dangerous; it often wounds the hand which makes use of it, and seldom does good without doing harm.
+ - I perceive God everywhere in His works. I sense Him in me; I see Him all around me.
+ - It is as if my heart and my brain did not belong to the same person. Feelings come quicker than lightning and fill my soul, but they bring me no illumination; they burn me and dazzle me.
+ - With children use force; with men reason; such is the natural order of things. The wise man requires no law.
+ - The man who meditates is a depraved animal.
+ - Good laws lead to the making of better ones; bad ones bring about worse.
+ - We are born, so to speak, twice over; born into existence, and born into life; born a human being, and born a man.
+ - In Genoa, the word, libertas can be read on the front of prisons and on the fetters of galley-slaves. The application of this motto is fine and just.
+ - Love childhood, indulge its sports, its pleasures, its delightful instincts. Who has not sometimes regretted that age when laughter was ever on the lips, and when the heart was ever at peace?
+ - If there were a nation of Gods, it would govern itself democratically. A government so perfect is not suited to men.
+ - Those people who treat politics and morality separately will never understand either of them.
+ - Government originated in the attempt to find a form of association that defends and protects the person and property of each with the common force of all.
+ - It is in man’s heart that the life of nature’s spectacle exists; to see it, one must feel it.
+ - We can never put ourselves in the shoes of children; we cannot fathom their thoughts, we lend them ours; and always following ourown reasoning, we stuff their heads with extravagance and error.
+ - A feeble body weakens the mind.
+ - I have never thought, for my part, that man’s freedom consists in his being able to do whatever he wills, but that he should not, by any human power, be forced to do what is against his will.
+ - But in some great souls, who consider themselves as citizens of the world, and forcing the imaginary barriers that separate people from people...
+ - I have suffered too much in this world not to hope for another.
+ - Nothing is less in our power than the heart, and far from commanding we are forced to obey it.
+ - Do I dare set forth here the most important, the most useful rule of all education? It is not to save time, but to squander it.
+ - Religious persecutors are not believers, they are rascals.
+ - Remorse sleeps during prosperity but awakes bitter consciousness during adversity.
+ - Gratitude is a duty which ought to be paid, but which none have a right to expect.
+ - As long as there are rich people in the world, they will be desirous of distinguishing themselves from the poor.
+ - There exists one book, which, to my taste, furnishes the happiest treatise of natural education. What then is this marvelous book? Is it Aristotle? Is it Pliny, is it Buffon? No-it is Robinson Crusoe.
+ - Plant and your spouse plants with you; weed and you weed alone.
+ - All of my misfortunes come from having thought too well of my fellows.
+ - Her dignity consists in being unknown to the world; her glory is in the esteem of her husband; her pleasures in the happiness of her family.
+ - There is no subjection so perfect as that which keeps the appearance of freedom.
+ - I think it impossible that the great monarchies of Europe can last much longer.
+ - The English are predisposed to pride, the French to vanity.
+ - The majesty of the Scriptures strikes me with admiration, as the purity of the gospel has its influence on my heart.
+ - The writings of women are always cold and pretty like themselves. There is as much wit as you may desire, but never any soul.
+ - The truth brings no man a fortune.
+ - True genius is creative and makes all from nothing.
+ - Everything made by man may be destroyed by man; there are no ineffaceable characters except those engraved by nature; and nature makes neither princes nor rich men nor great lords.
+ - Men will argue more philosophically about the human heart; but women will read the heart of man better than they.
+ - The French painter Rousseau was once asked why he put a naked woman on a red sofa in the middle of his jungle pictures. He answered, ‘I needed a bit of red there.’
+ - If I am part of a group of 100 people, do 99 people have the right to sentence me to death, just because they are majority?
+ - Innocence is ashamed of nothing.
+ - There is peace in dungeons, but is that enough to make dungeons desirable?
+ - The first step towards vice is to shroud innocent actions in mystery, and whoever likes to conceal something sooner or later has reason to conceal it.
+ - Presence of mind, penetration, fine observation, are the sciences of women; ability to avail themselves of these is their talent.
+ - The body politic, as well as the human body, begins to die as soon as it is born, and carries itself the causes of its destruction.
+ - Anticipation and Hope are born twins.
+ - He who pretends to look upon death without fear, lies.
+ - Truth is an homage that the good man pays to his own dignity.
+ - Yes, if the life and death of Socrates are those of a wise man, the life and death of Jesus are those of a god.
+ - It is a mania shared by philosophers of all ages to deny what exists and to explain what does not exist.
+ - Frequent punishments are always a sign of weakness or laziness on the part of a government.
+ - Fame is but the breath of people, and that often unwholesome.
+ - Every man has a right to risk his own life for the preservation of it.
+ - Why should we build our happiness on the opinons of others, when we can find it in our own hearts?
+ - The social compact sets up among the citizens as equality of such kind, that they all bind themselves to observe the same conditions and should therefore all enjoy the same rights.
+ - Love, known to the person by whom it is inspired, becomes more bearable.
+ - Liberty may be gained, but can never be recovered.
+ - Provided a man is not mad, he can be cured of every folly but vanity; there is no cure for this but experience, if indeed there is any cure for it at all.
+ - It is manifestly contrary to the law of nature, however defined, that a handful of people should gorge themselves with superfluities while the hungry majority goes in need of necessities.
+ - O love, if I regret the age when one savors you, it is not for the hour of pleasure, but for the one that follows it.
+ - To endure is the first thing that a child ought to learn, and that which he will have the most need to know.
+ - Temperance and labor are the two real physicians of man.
+ - Sacrifice life to truth.
+ - He who blushes is already guilty.
+ - We must powder our wigs; that is why so many poor people have no bread.
+ - One thinks himself the master of others, and still remains a greater slave than they.
+ - To make a man richer, give him more money of curb his desires.
+ - He who pretends to look on death without fear lies. All men are afraid of dying, this is the great law of sentient beings, without which the entire human species would soon be destroyed.
+ - How many famous and high-spirited heroes have lived a day too long?
+ - The abuse of books kills science. Believing that we know what we have read, we believe that we can dispense with learning it.
+ - A person who can break wind is not dead.
+ - Abstaining so as really to enjoy, is the epicurism, the very perfection, of reason.
+ - To study men, we must look close by; to study man, we must learn to look afar; if we are to discover essential characteristics, we must first observe differences.
+ - For it is in our nature to endure patiently the decrees of fate, but not the ill-will of others.
+ - Inopportune consolations increase a deep sorrow.
+ - The French, for example, are a contemptible nation.
+ - From the first moment of life, men ought to begin learning to deserve to live; and, as at the instant of birth we partake of the rights of citizenship, that instant ought to be the beginning of the exercise of our duty.
+ - The thirst after happiness is never extinguished in the heart of man.
+ - A citizen should render to the state all the services he can as soon as the sovereign demands them.
+ - But remain the teacher of the young teachers. Advise and direct us, and we will be ready to learn. I will have need of you as long as I live.
+ - At length I recollected the thoughtless saying of a great princess, who, on being informed that the country people had no bread, replied, “Let them eat cake”.
+ - There is no folly of which a man who is not a fool cannot get rid except vanity; of this nothing cures a man except experience of its bad consequences, if indeed anything can cure it.
+ - The bigger a state becomes the more liberty diminishes.
+ - It is easier to conquer than to administer. With enough leverage, a finger could overturn the world; but to support the world, one must have the shoulders of Hercules.
+ - In a well governed state, there are few punishments, not because there are many pardons, but because criminals are rare; it is when a state is in decay that the multitude of crimes is a gaurantee of impunity.
+ - The more humanity owes him, the more society denies him. Every door is shut against him, even when he has a right to its being opened: and if he ever obtains justice, it is with much greater difficulty than others obtain favors.
+ - It has always pleased me to read while eating if I have no companion; it gives me the society I lack. I devour alternately a page and a mouthful; it is as though my book were dining with me.
+ - Behold the works of our philosophers; with all their pompous diction, how mean and contemptible they are by comparison with the Scriptures! Is it possible that a book at once so simple and sublime should be merely the work of man?
+ - Social man lives constantly outside himself.
+ - The mechanism she employs is much more powerful than ours, for all her levers move the human heart.
+ - Do not base your life on the judgments of others; first, because they are as likely to be mistaken as you are, and further, because you cannot know that they are telling you their true thoughts.
+ - When my reason is afloat, my faith cannot long remain in suspense, and I believe in God as firmly as in any other truth whatever; in short, a thousand motives draw me to the consolatory side, and add the weight of hope to the equilibrium of reason.
+ - The opportunity of making happy is more scarce than we imagine; the punishment of missing it is, never to meet with it again; and the use we make of it leaves us an eternal sentiment of satisfaction or repentance.
+ - Our greatest misfortunes come to us from ourselves.
+ - In the North the first words are, Help me; in the South, Love me.
+ - The visible order of the universe proclaims a supreme intelligence.
+ - Taste is, so to speak, the microscope of the judgment.
+ - The tone of good conversation is brilliant and natural; it is neither tedious nor frivolous; it is instructive without pedantry, gay without tumultuousness, polished without affectation, gallant without insipidity, waggish without equivocation.
+ - If, by chance, someone among those men of extraordinary talent is found who has firmness of soul and who refuses to yield to the genius of his age and to debase himself with childish works, woe unto him! He will die in poverty and oblivion.
+ - The man is best served who has no occasion to put the hands of others at the end of his own arms.
+ - The mind grows narrow in proportion as the soul grows corrupt.
+ - An intelligent being, is the active principle of all things. One must have renounced all common sense to doubt it, and it is a waste of time to try to prove such self evident truth.
+ - Definitions would be good things if we did not use words to make them.
+ - The want of occupation is no less the plague of society than of solitude.
+ - Girls must be thwarted early in life.
+ - The strength of the people is effective only if it is concentrated; it evaporates and is lost when it is dispersed, just as gunpowder scattered on the ground ignites only grain by grain.
+ - That which renders life burdensome to us generally arises from the abuse of it.
+ - In truth, laws are always useful to those with possessions and harmful to those who have nothing; from which it follows that the social state is advantageous to men only when all possess something and none has too much.
+ - By doing good we become good.
+ - Not all the subtilties of metaphysics can make me doubt a moment of the immortality of the soul, and of a beneficent Providence. I feel it, I believe it, I desire it, I hope it, and will defend it to my last breath.
+ - I do not know is a phrase which becomes us.
+ - I only see clearly what I remember.
+ - One loses all the time which he might employ to better purpose.
+ - Great men never make bad use of their superiority. They see it and feel it and are not less modest. The more they have, the more they know their own deficiencies.
+ - The passions are the voice of the body.
+ - Interest is the spur of the people, but glory that of great souls.
+ - The taste for splendor is hardly ever combined in the same souls with the taste for the honorable.
+ - Women speak at an earlier age, more easily, and more agreeably than men; they are accused also of speaking more; this is as it should be, and I willingly change the reproach into a eulogy.
+ - Generally we obtain very surely and very speedily what we are not too anxious to obtain.
+ - He who has the base necessities of life should pay nothing; taxation on him who has a surplus may, if need be; extend to everything beyond necessities.
+ - The infant, on opening his eyes, ought to see his country, and to the hour of his death never lose sight of it.
+ - It is hard to prevent oneself from believing what one so keenly desires.
+ - We do not know what really good or bad fortune is.
+ - What good would it be to possess the whole universe if one were its only survivor?
+ - The science of government is only a science of combinations, of applications, and of exceptions, according to times, places and circumstances.
+ - Our affections as well as our bodies are in perpetual flux.
+ - A man speaks of what he knows, a woman of what pleases her: the one requires knowledge, the other taste.
+ - Consolation indiscreetly pressed upon us, when we are suffering undue affliction, only serves to increase our pain, and to render our grief more poignant.
+ - To try to conceal our own heart is a bad means to read that of others.
+ - Supreme happiness consists in self-content.
+ - All that time is lost which might be better employed.
+ - The most absolute authority is that which penetrates into a man’s innermost being and concerns itself no less with his will than with his actions.
+ - There is a period in life when we go backwards as we advance.
+ - The truths of the Scriptures are so marked and inimitable, that the inventor would be more of a miraculous character than the hero.
+ - I loved too sincerely, too completely, I venture to say, to be able to be happy easily.
+ - Many men, seemingly impelled by fortune, hasten forward to meet misfortune half way.
+ - A man who is not a fool can rid himself of every folly except vanity.
+ - It is well known that a loose and easy dress contributes much to give to both sexes those fine proportions of body that are observable in the Grecian statues, and which serve as models to our present artists.
+ - Watch a cat when it enters a room for the first time. It searches and smells about, it is not quiet for a moment, it trusts nothing until it has examined and made acquaintance with everything.
+ - There are two things to be considered with regard to any scheme. In the first place, Is it good in itself? In the second, Can it be easily put into practice?
+ - Remorse sleeps in the atmosphere of prosperity.
+ - Men, in general, are not this or that, they are what they are made to be.
+ - I think we cannot too strongly attack superstition, which is the disturber of society; nor too highly respect genuine religion, which is the support of it.
+ - I undertake the same project as Montaigne, but with an aim contrary to his own: for he wrote his Essays only for others, and I write my reveries only for myself.
+ - Physical evils destroy themselves, or they destroy us.
+ - He who eats in idleness that which he himself has not earned, steals it; and a capitalist whom the state pays for doing nothing differs little in my eyes from a brigand, who lives at the expense of passers-by.
+ - Each member of the community gives himself to it at the instant of its constitution, just as he actually is, himself and all his forces, including all goods in his possession.
+ - To abstain that we may enjoy is the epicurianism of reason.
+ - Gracefulness cannot subsist without ease; delicacy is not debility; nor must a woman be sick in order to please. Infirmity, and sickness may excite our pity, but desire and pleasure require the bloom and vigor of health.
+ - One must choose between making a man or a citizen, for one cannot make both at the same time.
+ - The people is never corrupted, but it is often deceived...
+ - Base souls have no faith in great individuals.
+ - All through life a man has need of a counsellor and guide.
+ - Take from the philosopher the pleasure of being heard and his desire for knowledge ceases.
+ - Temperance and labor are the two best physicians of man; labor sharpens the appetite, and temperance prevents from indulging to excess.
+ - He certainly deserved the name better than those who had assumed it.
+ - It is not our criminal actions that require courage to confess, but those which are ridiculous and foolish.
+ - No true believer could be intolerant or a persecutor. If I were a magistrate and the law carried the death penalty against atheists, I would begin by sending to the stake whoever denounced another.
+ - The greatest braggarts are usually the biggest cowards.
+ - If there wasn’t a God we would have to invent one to keep people sane.
+
+291 quotes

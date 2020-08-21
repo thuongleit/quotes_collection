@@ -1,0 +1,50 @@
+ - Stay calm and aggressive.
+ - The key is that I control my life; my life doesn’t control me.
+ - Taking care of yourself is so important.
+ - It’s sort of like, our bodies are designed to keep moving, and when we don’t move it, we’re not going to feel great.
+ - I live a very normal regimented life that focuses on my training and my private life so I squeeze the insane stuff in around that.
+ - I’m very open-minded.
+ - I guess I crave stability.
+ - My motivation has always been health – eating healthy and taking care of myself.
+ - In Hawaii, if you’re invited to dinner, it’s assumed that the children are invited as well. On the islands, no one treats children like they’re not part of the conversation. People talk to children as people and include them in adventures and conversations.
+ - My three best friends get me through everything: I need cute jeans, my kids are driving me crazy, I’m throwing a party, whatever. They keep me dialed in.
+ - Volleyball anchored me at a time in my life when I needed it. It gave me a reason for being this big, big girl.
+ - I think any time people behave in a way that’s truly them, then they’ll never fail. You get in trouble when you try to copy others.
+ - I’m not just a model who plays volleyball, or a volleyball player who supports herself modeling. I’m a female athlete personality.
+ - I take the choice out of exercise. It’s not an option.
+ - If you want to stay fit, surround yourself with a couple of chicks who are fired up, so that the one day you’re not, you can feed off their energy.
+ - Have a short memory and a lot of forgiveness. Especially us girls who don’t forget a thing. Move on...
+ - I want to play until the end.
+ - Even though I take care of the mom stuff, I’ve maintained my own individuality with my own projects, and I think my girls see that I’m not just the mom or the wife.
+ - No one single person is going to make each other happy, and it’s foolish to expect the other person to do that.
+ - Even if I’m gone all day, breakfast is the one meal I always cook for my kids. I make French toast, oatmeal, or an egg burrito.
+ - Work travel for me, which is – I hate to say it – more enjoyable now that I have kids.
+ - I don’t want to be famous famous. I’m happy on the second tier, where I have autonomy on a professional level but I can still go out to the movies without being recognized.
+ - With both kids, I started working out again at 16 days postpartum, but I treated myself with kindness, doing mild workouts, because my fitness level was lower.
+ - I always have a million things going on at once, but I try to put my energy into the most immediate need.
+ - In some ways, I’m relieved that I didn’t have a son.
+ - If you don’t know one thing about Kid Rock it’s that he’s loyal. His band has been together for a long time, he stands by his friends, and the guy still lives in his home state of Michigan.
+ - I am a babe for a living.
+ - Sports provide girls with the opportunity to develop a better relationship with their bodies. They can be aggressive on the court, be strong and still be feminine.
+ - On a regular basis I go over in my mind some of the most troublesome things I see about how people approach eating, and the wonder mess we have made out of a very simple thing.
+ - My body is a vehicle for the mechanics of my sport.
+ - Once I got past my anger toward my mother, I began to excel in volleyball and modeling.
+ - We hear all around us to love ourselves, and one of the ways we can do that is to eat food that serves our body, but also for us to love the food we’re eating.
+ - The one important rule I have with the kids is that when we go to a place, we eat what they eat. I’m not bringing food or going to waste time trying to find foods that I know they like. Eating is a part of travel.
+ - I can’t sing but I can understand wanting to keep a balance, trying to pursue dreams, while creating a stable environment for my children.
+ - You slam the bottom and either walk away or suck it up and get through it.
+ - Family and the natural surroundings played a big role in shaping my values.
+ - Some women just fight to fight. I fight to win.
+ - Eating and food are a wonderful part of our life’s experience, and half of us are walking around dreading having to figure out what to put in our mouths.
+ - I don’t have a life, I really don’t. I’m as close to a nun as you can be without the little hat. I’m a golf nun.
+ - I’d like to go to Africa, away from water, away from what’s normal for us. When you put yourself in those places your life looks so far away. It makes a big imp.
+ - I didn’t get into this to pick up a new hobby. I don’t want to just be a golfer. I want to be the best.
+ - Usually people are questioning my athleticism more than my femininity!
+ - I think sometimes when I go to make a move on something, people try to disqualify any talent that I have or any hard work that I’ve done.
+ - I won’t say my nutrition is perfect. If I’m at a restaurant and there’s fresh pasta on the menu, I’m going to order it. At home, though, I avoid grains and do a lot of the cooking to control what our family eats.
+ - I’m a natural. That’s why I make the big bucks.
+ - Funny, how moms can tell you what to do no matter how old or big you are.
+ - I really don’t have the time to spend much time online, I do have web tv, which I use when I need information.
+ - I never had only one job. I was either playing ball or writing or doing TV or modeling.
+
+48 quotes

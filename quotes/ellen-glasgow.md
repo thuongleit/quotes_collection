@@ -1,0 +1,133 @@
+ - All change is not growth, as all movement is not forward.
+ - There is no support so strong as the strength that enables one to stand alone.
+ - Life is never what one dreams. It is seldom what one desires, but for the vital spirit and the eager mind, the future will always hold the search for buried treasure and the possibility of high adventure.
+ - It is only by knowing how little life has in store for us that we are able to look on the bright side and avoid disappointment.
+ - Nothing in life is so hard that you can’t make it easier by the way you take it.
+ - What happens is not as important as how you react to what happens.
+ - I’m not going to lie down and let trouble walk over me.
+ - Nothing is more consuming, or more illogical, than the desire for remembrance.
+ - But, of course only morons would ever think or speak of themselves as intellectuals. That’s why they all look so sad.
+ - Preserve, within a wild sanctuary, an inaccessible valley of reverie.
+ - The only difference between a rut and a grave are the dimensions.
+ - After a day of rain the sun came out suddenly at five o’clock and threw a golden bar into the deep Victorian gloom of the front parlour.
+ - I liked human beings, but I did not love human nature.
+ - Mediocrity would always win by force of numbers, but it would win only more mediocrity.
+ - Violence commands both literature and life, and violence is always crude and distorted.
+ - The hardest thing for me is the sense of impermanence. All passes; nothing returns.
+ - Moderation has never yet engineered an explosion.
+ - He knows so little and knows it so fluently.
+ - Tilling the fertile soil of man’s vanity.
+ - The pathos of life is worse than the tragedy.
+ - The attraction of horror is a mental, or even an intellectual, excitement, but the fascination of the repulsive, so noticeable incontemporary writing, can spring openly from some rotted substance within our civilization...
+ - Life may take away happiness. But it can’t take away having had it.
+ - For me, the novel is experience illumined by imagination...
+ - Too much principle is often more harmful than too little.
+ - To seize the flying thought before it escapes us is our only touch with reality.
+ - Passion alone could destroy passion. All the thinking in the world could not make so much as a dent in its surface.
+ - The older I grow the more earnestly I feel that the few joys of childhood are the best that life has to give.
+ - A tragic irony of life is that we so often achieve success or financial independence after the chief reason for which we sought it has passed away.
+ - There wouldn’t be half as much fun in the world if it weren’t for children and men, and there ain’t a mite of difference between them under the skins.
+ - Women are one of the Almighty’s enigmas to prove to men that He knows more than they do.
+ - Experience has taught me that the only cruelties people condemn are those with which they do not happen to be familiar.
+ - Insolent youth rides, now, in the whirlwind. For those modern iconoclasts who are without culture possess, apparently, all the courage.
+ - I don’t like human nature, but I do like human beings.
+ - I had no place in any coterie, or in any reciprocal self-advertising. I stood alone. I stood outside. I wanted only to learn. I wanted only to write better.
+ - Life has taught me that the greatest tragedy is not to die too soon but to live too long.
+ - It is lovely, when I forget all birthdays, including my own, to find that somebody remembers me.
+ - I am inclined to believe that a man may be free to do anything he pleases if only he will accept responsibility for whatever he does.
+ - Few forms of life are so engaging as birds.
+ - I have little faith in the theory that organized killing is the best prelude to peace.
+ - Most women want their youth back again; but I wouldn’t have mine back at any price. The worst years of my life are behind me, and my best ones ahead.
+ - The suitable is the last thing we ever want.
+ - To teach one’s self is to be forced to learn twice.
+ - Of one thing alone I am very sure: it is a law of our nature that the memory of longing should survive the more fugitive memory of fulfillment.
+ - The hardest thing to believe when you’re young is that people will fight to stay in a rut, but not to get out of one.
+ - Knowledge, like experience, is valid in fiction only after it has dissolved and filtered down through the imagination into reality.
+ - If broken hearts could kill, the earth would be as dead as the moon.
+ - Dignity is an anachronism.
+ - What fools people are when they think they can make two lives belong together by saying words over them.
+ - True goodness is an inward grace, not an outward necessity.
+ - Give the young half a chance and they will create their own future, they will even create their own heaven and earth.
+ - It is difficult to deal successfully, he decided, with a woman whose feelings cannot be hurt.
+ - Words, like acts, become stale when they are repeated.
+ - The worst thing about war is that so many people enjoy it.
+ - Women like to sit down with trouble – as if it were knitting.
+ - Cynicism is a sure sign of youth.
+ - Happiness is a hardy annual.
+ - But there is, I have learned, no permanent escape from the past. It may be an unrecognized law of our nature that we should be drawn back, inevitably, to the place where we have suffered most.
+ - Surely one of the peculiar habits of circumstances is the way they follow, in their eternal recurrence, a single course. If an event happens once in a life, it may be depended upon to repeat later its general design.
+ - A doctrine of endurance flows easily from our lips when we are enduring jam and our neighbors dry bread, and it is still possible for us to become resigned to the afflictions of our brother.
+ - She must face her grief where the struggle is always hardest-in the place where each trivial object is attended by pleasant memories.
+ - Although the primitive in art may be both interesting and impressive, as portrayed in American fiction it is conspicuous for dullness alone. Drab persons living drab lives, observed by drab minds and reported in drab writing...
+ - Nothing, except the weather report or a general maxim of conduct, is so unsafe to rely upon as a theory of fiction.
+ - In her single person she managed to produce the effect of a majority.
+ - Nothingis so ungrateful as a rising generation; yet, if there is any faintest glimmer of light ahead of us in the present, itwas kindled by the intellectual fires that burned long before us.
+ - It seems to me that this is the true test for poetry: – that it should go beneath experience, as prose can never do, and awaken an apprehension of things we have never, and can never, know in the actuality.
+ - It is only in the heart that anything really happens.
+ - Some women enjoy unhappy love affairs, you know, though I have always felt that they are greatly overrated.
+ - I haven’t much opinion of words. They’re apt to set fire to a dry tongue, that’s what I say.
+ - I have written chiefly because, though I have often dreaded the necessity, I have found it more painful, in the end, not to write.
+ - It would appear, from the best examples, that the proper way of beginning a preface to one’s work is with a humble apology for having written at all.
+ - As far back as I remember, long before I could write, I had played at making stories. But not until I was seven or more, did I begin to pray every night, “O God, let me write books! Please, God, let me write books!”
+ - Grandpa says we’ve got everything to make us happy but happiness.
+ - That was the worst of being poor, you couldn’t give the right things in sickness.
+ - There is a terrible loneliness in the spring...
+ - Spring was running in a thin green flame over the valley.
+ - But youth isn’t happy. Youth is sadder than age.
+ - Surely the novel should be a form of art – but art was not enough. It must contain not only the perfection of art, but the imperfection of nature.
+ - My first reading of Tolstoy affected me as a revelation from heaven, as the trumpet of the judgment. What he made me feel was notthe desire to imitate, but the conviction that imitation was futile.
+ - Nothing is more trying than nerves to people who have none.
+ - Do you know there is always a barrier between me and any man or woman who does not like dogs?
+ - America has enjoyed the doubtful blessing of a single-track mind.
+ - Many of the men who had come to the wilderness to practice religion appeared to have forgotten its true nature.
+ - I was always a feminist, for I liked intellectual revolt as much as I disliked physical violence. On the whole, I think women havelost something precious, but have gained, immeasurably, by the passing of the old order.
+ - I suppose I am a born novelist, for the things I imagine are more vital and vivid to me than the things I remember.
+ - One cannot lay a foundation by scattering stones, nor is a reputation for good work to be got by strewing volumes about the world...
+ - So long as one is able to pose one has still much to learn about suffering.
+ - After all, you can’t expect men not to judge by appearances.
+ - No idea is so antiquated that it was not once modern. No idea is so modern that it will not someday be antiquated.
+ - Evidently, whatever else marriage might prevent, it was not a remedy for isolation of spirit.
+ - It was a perfect spring afternoon, and the air was filled with vague, roving scents, as if the earth exhaled the sweetness of hidden flowers.
+ - What was time itself but the bloom, the sheath enfolding experience? Within time, and with time alone, there was life – the gleam, the quiver, the heartbeat, the immeasurable joy and anguish of being...
+ - The transcendental point of view, the habit of thought bred by communion with earth and sky, had refined the grain while it had roughened the husk.
+ - I never saw the man yet that came out of politics as clean as he went into ’em...
+ - O God, let me write books! Please, God, let me write books!
+ - No one in the modern world is more lonely than the writer with a literary conscience.
+ - He who demands little gets it.
+ - No, one couldn’t make a revolution, one couldn’t even start a riot, with sheep that asked only for better browsing.
+ - Cruelty, I truly believe, is the one and only sin.
+ - Nobody, not even the old, not even the despairing, wished to come to an end in time or in eternity.
+ - What depresses me is the inevitable way the second rate forges ahead and the deserving is left behind.
+ - There is in every human being, I think, a native country of the mind, where, protected by inaccessible barriers, the sensitive dream life may exist safely.
+ - To a thrifty theologian, bent on redemption with economy, there are few points of ethics too fine-spun for splitting.
+ - Though it sounds absurd, it is true to say I felt younger at sixty than I felt at twenty.
+ - I waited and worked, and watched the inferior exalted for nearly thirty years; and when recognition came at last, it was too late to alter events, or to make a difference in living.
+ - What I hated even more than the conflict was the lurid spectacle of a world of unreason.
+ - Like all born politicians, their eye was for the main chance rather than for the argument, and they found it easier to forswear a conviction than to forego a comfort.
+ - Given two tempers and the time, the ordinary marriage produces anarchy...
+ - Apart from letters, it is the vulgar custom of the moment to deride the thinkers of the Victorian and Edwardian eras; yet there has not been, in all history, another agewhen so much sheer mental energy was directed toward creating a fairer social order.
+ - A good novel cannot be too long nor a bad novel too short.
+ - No matter how vital experience might be while you lived it, no sooner was it ended and dead than it became as lifeless as the piles of dry dust in a school history book.
+ - The share of the sympathetic publisher in the author’s success – the true success so different from the ephemeral – is apt to be overlooked in these blatant days, so it is just as well that some of us should keep it in mind.
+ - Youth is the period of harsh judgments, and a man seldom learns until he reaches thirty that human nature is made up not of simples, but of compounds.
+ - Energy had fastened upon her like a disease.
+ - The only natural human beings seem to be those who are making trouble.
+ - In her abhorrrence of a vacuum, Nature, for the furtherance of her favorite hobby, has often to resort to strange devices. If she could but understand that vacuity is sometimes better than superfluity!
+ - Theories have nothing to do with life...
+ - I revolted from sentimentality, less because it was false than because it was cruel.
+ - Yes, I learned long ago that the only satisfaction of authorship lies in finding the very few who understand what we mean. As for outside rewards, there is not one that I have ever discovered.
+ - To drink for pleasure may be a distraction, but to drink from misery is always a danger.
+ - The nearer she came to death, the more, by some perversity of nature, did she enjoy living.
+ - Doesn’t all experience crumble in the end to mere literary material?
+ - The age is a vociferous one, and no prophet is without honor who is able to strike an attitude and to speak loud enough to make himself heard.
+ - And where was happiness if it sprung not from the soil? Where contentment if it dwelt not near to Nature?
+ - Pessimism is the affectation of youth, the reality of age.
+ - It is human nature to overestimate the thing you’ve never had.
+ - There is no state of satisfaction, because to himself no man is a success.
+ - There is only one force stronger than selfishness, and that is stupidity.
+ - There is no monster more destructive than the inventive mind that has outstripped philosophy.
+ - The surest way of winning love is to look as if you didn’t need it.
+ - The government’s like a mule, it’s slow and it’s sure; it’s slow to turn, and it’s sure to turn the way you don’t want it.
+ - Borrowed illusions are better than none...
+
+131 quotes

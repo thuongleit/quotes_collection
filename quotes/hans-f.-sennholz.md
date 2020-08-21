@@ -1,0 +1,38 @@
+ - To live beyond your means today is to live below them tomorrow.
+ - There is no escape from the vast imbalances in international trade and finance. They will be corrected, sooner or later, by the inexorable principles that govern human action.
+ - Political power intoxicates the best hearts. No man is wise enough, nor good enough, to be trusted with much political power.
+ - Peace is the natural state of man, war the temporary repeal of reason and virtue.
+ - The paper standard is self-destructive.
+ - Redistribution divided society into two social classes: the beneficiaries of transfer, who are calling for ever more; and the victims, who submit unwillingly. It could hardly fail to injure social peace and harmony.
+ - Government welfare programs contribute to the disintegration of poor families. They make women and children dependent on government; dependent for food, for clothing, for shelter; and reward fatherless families with extra benefits and welfare perks.
+ - The gold standard sooner or later will return with the force and inevitability of natural law, for it is the money of freedom and honesty.
+ - Envy is more irreconcilable than hate. It is the most corroding of all political vices and also a great power in our land. The friends of freedom are content to be envied, but envy not.
+ - Government is rather ill-suited and poorly equipped to alleviate the plight of the poor. It lacks moral rules or standards, and is devoid of basic principles in economic and social matters.
+ - The government transfers income and wealth according to the rules of politics, which make politicians the primary beneficiaries of the system, and the poor and needy the primary victims.
+ - Freedom is the quality of being free from the control of regulators and tax collectors. If I want to be free their control, I must not impose controls on others.
+ - Every businessman enjoying customer patronage, whether he be a baker, banker, or barber is conferring a public benefit, raising production, and reducing unemployment; businessmen earn their livelihood by producing products and rendering services where ever they are needed.
+ - Wherever politics intrudes upon economic life, political success is readily attained by saying what people like to hear rather than what is demonstrably true. Instead of safeguarding truth and honesty, the state then tends to become a major source of insi.
+ - Inflationism is a dreadful cancer that is gnawing at the backbone of the civilized order.
+ - If we cannot return to fiscal integrity because the public prefers profusion and prodigality over balanced budgets, we cannot escape paying the price, which is ever lower incomes and standards of living for all.
+ - The history of fiat money is little more than a register of monetary follies and inflations. Our present age merely affords another entry in this dismal register.
+ - Centers of unionism are also the centers of unemployment.
+ - A ‘social justice’ society is a conflict which locks beneficiaries and victims alike in a struggle without end. It becomes a society torn apart by resentment over the wealth of capitalists.
+ - The transfer society is forever testing the bounds of patience of taxpayers. Having reached the limit and still facing loud demands for more benefits, it resorts to deficit financing.
+ - A government debt is a government claim against personal income and private property – an unpaid tax bill.
+ - Instead of safeguarding truth and honesty, the state then tends to become a major source of insincerity and mendacity.
+ - Every individual is a potential gold buyer, although he may not need the gold. It may be added to the store of personal wealth, and passed from generation to generation as an object of family wealth. There is no other economic good as marketable as gold.
+ - The popular notion that an increase in the stock of money is socially and economically beneficial and desirable is one of the great fallacies of our time.
+ - Few policies are more calculated to destroy the existing basis of a free society than the debauching of its currency. And few tasks, if any, are more important to the champion of freedom than creation of a sound monetary system.
+ - Modern government has become a universal transfer agency that utilizes the political process for distributing vast measures of income and wealth. It preys on millions of victims in order to allocate valuable goods and services to its beneficiaries.
+ - Sound money and free banking are not impossible; they are merely illegal.
+ - War cannot be driven out by war, for the use of evil breeds more evil, hostility more hostility, and the use of force more force.
+ - The gold standard, in one form or another, will prevail long after the present rash of national fiats is forgotten or remembered only in currency museums.
+ - Most politicians are ever eager to regulate industrial and commercial activity and strike at the economic elite with confiscatory taxation. Unfortunately, regulation and taxation tend to hamper economic activity, inhibit productivity, and depress levels of living.
+ - Under the influence of collectivist ideologies, many politicians and journalists are ever eager to strike at successful entrepreneurs who earn much more than they do. It is difficult to ascertain their motives; it can be simple envy which consumes many men, or it can be economic ignorance.
+ - For more than two thousand years gold’s natural qualities made it man’s universal medium of exchange. In contrast to political money, gold is honest money that survived the ages and will live on long after the political fiats of today have gone the way of all paper.
+ - Since there is no orderly way to liquidate the federal debt, we must brace for a payment crisis.
+ - Unfortunately, it is not in the power of government to make everyone more prosperous. Government can only raise the income of one person by taking from another.
+ - An ounce of gold is an ounce of gold, whether it consists of guineas, sovereigns or eagles.
+ - No other commodity enjoys as much universal acceptability and marketability as gold.
+
+36 quotes

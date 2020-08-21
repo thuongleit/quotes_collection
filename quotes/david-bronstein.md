@@ -1,0 +1,24 @@
+ - The most powerful weapon in Chess is to have the next move.
+ - A game of chess is not an examination of knowledge; it is a battle of nerves.
+ - In chess, as in life, opportunity strikes but once.
+ - Chess is imagination.
+ - A strong player requires only a few minutes of thought to get to the heart of the conflict. You see a solution immediately, and half an hour later merely convince yourself that your intuition has not deceived you.
+ - Chess is infinite, and one has to make only one ill-considered move, and one’s opponent’s wildest dreams will become reality.
+ - It would be as naive to study the song of the nightingale, as it would be ridiculous to try and win a King’s Gambit against a representative of the old chess guard.
+ - The essence of Chess is thinking about what Chess is.
+ - Independence of thought is a most valuable quality in a chess-player, both at the board and when preparing for a game.
+ - To lose one’s objective attitude to a position, nearly always means ruining your game.
+ - If you have made a mistake or committed an inaccuracy there is no need to become annoyed and to think that everything is lost. You have to reorientate yourself quickly and find a new plan in the new situation.
+ - Some pieces in the King’s Indian appear on a ‘special price’ list: the dark square bishops are at the top of that list.
+ - Theory regards this opening as incorrect, but it is impossible to agree with this. Out of the five tournament games played by me with the King’s Gambit, I have won all five.
+ - Two passed pawns advancing on the enemy pieces have brought me more than a dozen points in tournaments.
+ - Far from all of the obvious moves that go without saying are correct.
+ - To play a match for the World Championship is the cherished dream of every chess player.
+ - Even in the heat of a middlegame battle the master still has to bear in mind the outlines of a possible future ending.
+ - When everything on the board is clear it can be so difficult to conceal your thoughts from your opponent.
+ - Nowadays grandmasters no longer study their opponent’s games so much, but they study his character, his behaviour and his temperament in the most thorough fashion.
+ - But whatever you might say and whatever I might say, a machine which can play chess with people is one of the most marvellous wonders of our 20th century!
+ - In the middlegame one should not hesitate to advance a central passed pawn.
+ - There is no disputing that in the eyes of Schlechter, Teichmann or even Rubinstein, the backward pawn was something more substantial than lively piece play, but in our day the latter is more often preferred.
+
+22 quotes

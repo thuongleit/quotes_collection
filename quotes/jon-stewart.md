@@ -1,0 +1,285 @@
+ - If you don’t stick to your values when they’re being tested, they’re not values: they’re hobbies.
+ - I know change can be painful. But from change comes growth.
+ - How do you know what is the right path to choose to get the result that you desire? The honest answer is this: You won’t. And accepting that greatly eases the anxiety of your life experience.
+ - The bias of the mainstream media is toward sensationalism, conflict, and laziness.
+ - When did fact checking and journalism go their separate ways?
+ - The press is our immune system. If it overreacts to everything, we eventually get sicker.
+ - The unfortunate, yet truly exciting thing about your life, is that there is no core curriculum. The entire place is an elective.
+ - Religion. It’s given people hope in a world torn apart by religion.
+ - Evil is relatively rare. Ignorance is epidemic.
+ - Don’t censor yourself to comfort their ignorance.
+ - Everyone just needs to get over themselves.
+ - I feel your scorn, and I accept it.
+ - There’s always anxiety when you start a new job, you’re the one guy who doesn’t know where the ketchup is.
+ - Sitting around with funny people, banging out jokes and creating a television show. I have no hobbies, no outside interests. I’m fine with spending 14 hours a day putting a show together with tape and string.
+ - I don’t approve of political jokes; I have seen too many of them get elected.
+ - Yes, reason has been a part of organized religion, ever since two nudists took dietary advice from a talking snake.
+ - I want to look back on my career and be proud of the work, and be proud that I tried everything.
+ - If you smell something, say something.
+ - Insomnia is my greatest inspiration.
+ - Honestly, folks, I think my brain is broken.
+ - If your regime is not strong enough to handle a joke, then you don’t have a regime.
+ - I never thought I’d say this, but I miss voter fraud.
+ - Technology. It’s like science, only useless.
+ - I have great respect for people who are in the front lines and the trenches of trying to enact social change. I am far lazier than that.
+ - Corporations are the only reason the tax code is so complicated in the first place. Those off-shore loopholes didn’t get carved out by poor people.
+ - I celebrated Thanksgiving in an old-fashioned way. I invited everyone in my neighborhood to my house, we had an enormous feast, and then I killed them and took their land.
+ - Love what you do. Get good at it. Competence is a rare commodity in this day and age. And let the chips fall where they may.
+ - I’m not just a boy toy. I have feelings and dreams like anybody else.
+ - If everything is amplified, we hear nothing.
+ - I don’t want to die before my parents die, especially my mother. Because I think that’s tragic. Because I don’t want her to get the chance to pick out what I’m going to wear for eternity.
+ - Gay people can’t be proud of the country and want to defend it too. What’s the army afraid is going to happen if gay people are in it. Private, shoot that man! I can’t, he’s adorable.
+ - By the way, when you finish the bottle of Crown Royal, you can still use the pouch to hold your broken dreams.
+ - I don’t have a sort of Amway-esque chart up on my refrigerator or anything.
+ - I can’t believe I’m comforting a billionaire.
+ - 61% of graduating teens have had sex, 37% will eventually have sex, and 2% become statisticians.
+ - If I’d only followed CNBC’s advice, I’d have a million dollars today. Provided I’d started with a hundred million dollars.
+ - You’ve confused a war on your religion with not always getting everything you want.
+ - I have complete faith in the continued absurdity of whatever’s going on.
+ - Every generation has their challenge. And things change rapidly, and life gets better in an instant.
+ - Ahh, Earth Day, the only day of the year where being able to hacky-sack will get you laid.
+ - Spain’s new Prime Minister Jose Luis Rodriguez Zapatero announced he will soon call back Spain’s 1300 troops from Iraq – meaning the coalition of the willing is fast turning into a duet of the stubborn.
+ - The rise of secularism has brought about an increase in hostility toward things religious.
+ - People, if you can’t get through the puns, I can’t give you the good stuff.
+ - We declared war on terror-it’s not even a noun, so, good luck.
+ - On an average day 7 minutes of news happens. Yet there are currently three full-time, 24-hour news networks.
+ - We called her Mother Earth. Because she gave birth to us, and then we sucked her dry.
+ - Watching Fox, that’s like watching the Cartoon Network. Fox is nuts.
+ - That’s the Senate Ethics Committee, an oxymoron since 1973.
+ - It’s a travesty that people have forced someone who is gay to have to make their case that they deserve the same basic rights as someone else.
+ - When you are actually powerful, you don’t need to be petty.
+ - Fire up your heart for the wind is getting cold, now it always gets cold for the riders of the night. When you carry that dream when you know what lonesome is looking for a home like a bird in flight.
+ - People talk about sexual assault like it’s a bad habit that men have.
+ - The value of holding a grudge. And to always refer to my father sarcastically as Mr. Wonderful.
+ - There’s nothing like a shipwreck to spark the imagination of everyone who was not on that specific ship.
+ - You need to take a long, hard look in the mirror and not come away thinking, “Hey, there’s something wrong with this mirror.”
+ - The Internet is just a world passing around notes in a classroom. That’s all it is. All those media companies say, “We’re going to make a killing here.” You won’t because it’s still only as good as the content.
+ - The psychology degree is simply that I was a chemistry major, and they kept wanting the correct answer, whereas in psychology you basically write whatever you want, and chances are you get a B.
+ - No one is better at not beating America than England.
+ - Bad jokes and gay marriage are destroying this country. But torture can save it.
+ - I’m too short to host a late-night talk show. It’s like the bar at an amusement-park ride. You have to be six foot two or over.
+ - Nobody says, hey men should not drink. It’s all about women must dress differently, women must walk differently, women must drink differently. Why are we not able to hold men to account for this behavior?
+ - New York City isn’t Chuck E. Cheese. We don’t have ball pits for the kids to play in. We have titty bars and crack.
+ - You can use your idealism to further your aims, if you realize that nothing is Nirvana, nothing is perfect.
+ - Is listening to Pink Floyd in the dark a medical condition?
+ - The Vietnam war was fought over portion size.
+ - People! Take to the streets and scream ‘BE REASONABLE!’
+ - Why is it that if you take advantage of a corporate tax break you’re a smart businessman, but if you take advantage of something so you don’t go hungry, you’re a moocher?
+ - Here’s the thing about global warming that I didn’t realize: it would all happen at once.
+ - The Internet is just a world passing around notes in a classroom.
+ - If we are going to amend the constitution, shouldn’t it be to keep the omos-hay from arrying-may?
+ - Poor Al Gore. Global warming completely debunked via the very internet you invented.
+ - The blow back from the cold war is that a weakened Russia allowed Afghanistan to become a failed state, and then all this weaponry to flow into all these other conflicts. Our greatest triumph has almost fueled our most intractable battle now.
+ - Being a superpower is like being a Santa Claus that everyone hates.
+ - They always throw around this term ‘the liberal elite.’ And I kept thinking to myself about the Christian right. What’s more elite than believing that only you will go to heaven?
+ - Senator John McCain, who spent over five years in a Vietnamese POW camp, publicly releases 1,000 pages of medical records. Now people are left with only open nagging questions: what kind of freak has 1,000 pages of medical records?
+ - Oh press – must you spread hate? Can’t you just stick to being wrong?
+ - We’re Jews. When you look at our pubic hair, it should look like Ewoks should be in there.
+ - Don’t you dare besmirch the name of Congress. They are patriotic Americans trying to dress and feed themselves.
+ - They may want to insist that corporations are people but corporations are certainly not Americans.
+ - In whose delusional mind is democracy made ‘better’ by allowing wealthy people to control more of it?
+ - Fatherhood is great because you can ruin someone from scratch.
+ - Attorney General John Ashcroft bid farewell to the Justice Department with a goodbye address. The voluntary resignation came as a bit of a disappointment to the attorney general, who had hoped to be raptured out of office.
+ - New York became the first state to ban talking on hand-held cell phones while driving. First-time violators could receive a fine of $100, with an additional mandatory six-month jail sentence if your ringer plays a Latin-themed novelty song.
+ - College is something you complete. Life is something you experience.
+ - I don’t think marijuana should be illegal.
+ - Reform Jews are the children of Conservative Jews, or as they are sometimes known, Christians with curlier hair.
+ - Ah, the first rule of public speaking – always start with a joke.
+ - You know, in Saudi Arabia, you’re innocent until proven Jewish. Female. Guilty! They’re guilty!
+ - McVeigh’s lawyer got him the death penalty, which, quite frankly, I could have done.
+ - It’s a wonder our country doesn’t implode.
+ - I’m not a very serious Jew. I don’t wear the protective religious headgear. They only wear that because 40% of all religious thoughts escape through the head.
+ - Why would these English explorers search for these spices, yet never use them in their food?
+ - Happy Valentine’s Day! And if this is news to you, my guess is you’re probably alone. Valentine’s Day is often times a, well, it’s a manufactured day that really doesn’t mean anything.
+ - Clearly, I’m way older than everyone.
+ - But that hair? That is comedy entrapment. People are not attacking your hair, they are defending themselves from something that appears like it’s about to attack them.
+ - If Obama’s a tyrant, he’s a pretty tame tyrant. How many tyrants do you know that really suffer because they can’t get cloture?
+ - I don’t trust any country that looks around a continent and says, “Hey, I’ll take the frozen part.”
+ - You’re on CNN. The show that leads into me is puppets making crank phone calls. What is wrong with you?
+ - I’ve been to Canada, and I’ve always gotten the impression that I could take the country over in about two days.
+ - The Rapture: The ultimate Republican back-up plan.
+ - They create these rules and argue about things we don’t even understand. It is like watching soccer. You sit there and you’re sort of amused, but most of the time you’re thinking, pick up the ball! That’s what you’re thinking.
+ - The Supreme Court ruled that disabled golfer Casey Martin has a legal right to ride in a golf cart between shots at PGA Tour events. Man, the next thing you know, they’re going to have some guy carry his clubs around for him.
+ - If the world does need to repopulate at some point, the announcing team of Rob Lowe and Sofia Vergara, I think, would make very pleasant children.
+ - Wait a minute! Wait a minute! I figured this out. I know what’s wrong with what we’ve done in Iraq. We’ve been following time as it goes forward. What a classic mistake. Linear time is so pre-9-11.
+ - It’s always funny until the hooker mentions her son.
+ - President Bush delivered his first State of the Union address, riding high on an 82-percent approval rating, and with Attorney General John Ashcroft dispatching agents to interview the other 18 percent.
+ - A guy who says what people who aren’t thinking are thinking.
+ - When the court that handpicked you to be president tells you you’ve overstepped your bounds, you’ve overstepped your bounds.
+ - I would think black people think everything is about race. They are the ones who are on the outside of the game. They are the ones who face it every day.
+ - To me, that’s where a lot of satire lies. News used to hold itself to a higher plane and slowly it has dissolved into, well, me.
+ - We are going to be raising a generation of mentally impaired people.
+ - To have not shot his friend in the face would have sent a message to the quail that America is weak.
+ - I’m a little bit too obsessed with the news. I find the news easier to follow than narrative entertainment programs.
+ - So Fox News is the voice of America and Obama is Stalin? Oh my God! I guess that makes me Yakov Smirnoff.
+ - High school. You know, people say, ‘I’ll never do so-and-so again’ – then they do it. So what? Sometimes somebody has crack, and you’re looking to stay awake.
+ - No, I live in New Jersey because I like living in New Jersey.
+ - How far back to the elementary school core curriculum do we have to go to get someone on the House Committee on Science, Space and Technology caught up?
+ - Our culture is just a series of checks and balances. The whole idea that we’re in a battle between tyranny and freedom – it’s a series of pendulum swings.
+ - We grew up in the good old days before kids had these damn computers and actually played outside.
+ - Megachurches. I can’t be the only one frightened when our houses of worship sound like they could take on Godzilla.
+ - Here’s the point – you’re looking at affirmative action, and you’re looking at marijuana. You legalize marijuana, no need for quotas, because really, who’s gonna wanna work?
+ - It’s not really a good sign when your audience applauds Satan.
+ - I still do not understand how a corporation can have person-hood if it has no soul and never dies.
+ - If you are a minority or an interest group, the Democrats will hold the debate at your house. Whereas Republicans take a slightly different approach: they have a big tent – you’re just not allowed in it.
+ - Here’s the way I look at it. President Bush has uranium-tipped bunker busters and I have puns. I think he’ll be OK.
+ - If America leads a blessed life, then why did God put all of our oil under people who hate us?
+ - Although to be fair, cherry picking isn’t quite what we do. Cherries are sweet and delicious. What we do is more turd mining. And I’ll thank you to give our work the respect it deserves!
+ - Some people look at a glass and see it as half-full. Others look at a glass and call it a dragon.
+ - The nation of Dubai banned the movie Charlie’s Angles because it’s “offensive to the religion of Islam.” Apparently, the religion of Islam is offended by anything without a plot.
+ - Yesterday, the president met with a group he calls the coalition of the willing. Or, as the rest of the world calls them, Britain and Spain.
+ - I visit Fox News every now and again, and it’s nice, because the Eye of Mordor is above the building.
+ - Most world religions denounced war as a barbaric waste of human life. We treasured the teachings of these religions so dearly that we frequently had to wage war in order to impose them on other people.
+ - I’m thrilled to be asked to host the Academy Awards for the second time because, as they say, the third time’s a charm.
+ - Capote, of course, addressed very similar themes to Good Night and Good Luck. Both films are about determined journalists defying obstacles in a relentless pursuit of the truth. Needless to say, both are period pieces.
+ - When in doubt, I can stare blankly. The rubber face. There’s only so many ways you can stare incredulously at the camera and tilt an eyebrow, but that’s your old standby: What would Buster Keaton do?
+ - With the situation in Iraq growing ever more dangerous, the 34-member Coalition of The Willing are, one by one, dropping out to join the other coalition known as Most of The Rest of The World.
+ - Iranian president Mahmoud Ahmadinejad claims there are no homosexuals in Iran, just like there are no gay conservatives in the US.
+ - Democrats – always standing up for what they later realize they should have believed in.
+ - Liberal and conservative have lost their meaning in America. I represent the distracted center.
+ - We have it. The smoking gun. The evidence. The potential weapon of mass destruction we have been looking for as our pretext of invading Iraq. There’s just one problem – it’s in North Korea.
+ - Jazz musicians are the coolest people on the planet. Can I have some cool?
+ - Divorce isn’t caused because 50% of marriages end in gayness.
+ - I don’t care about wealth. What seems to be upsetting is institutionalizing the advantages that wealth gives you.
+ - In case you’re wondering what we all do here during the commercial breaks, mostly we just sit around making catty remarks about the outfits you’re all wearing at home.
+ - Get a sense of humor. If you don’t, it’ll be incredibly frustrating.
+ - So if you’re negative, you live longer? That sounds like a cruel joke.
+ - If you try to hit a grand slam, you’re going to strike out.
+ - Being funny in life is a lot more like judo. It’s using the energy...
+ - I am sick of deconstructing their propaganda, because it’s pretty much the same as it’s always been. It’s just repeating something over and over again until we believe it and we hope that you believe it.
+ - Pigmentation was a quick and convenient way of judging a person. One of us, Dr. Martin Luther King, Jr., once proposed we instead judge people by the content of their character. He was shot.
+ - I think the main thing that has to end is men’s defensiveness.
+ - Doing stand-up comedy is in the middle of a traffic jam getting everybody moving again.
+ - If it turns out that President Barack Obama can make a deal with the most intransigent, hard-line, unreasonable, totalitarian mullahs in the world but not with Republicans? Maybe he’s not the problem.
+ - Alright guys, I want to get out there and vote tomorrow. And not because it’s cool, because it’s not. You know what is cool? Smoking. Smoke while you vote.
+ - I really like to put my name on everything, so my roommate doesn’t steal it. It’s really a throwback to that.
+ - You wonder sometimes how our government puts on its pants in the morning.
+ - I’m doing everything I can to sabotage my career. It’s a little thing called “fear of success”.
+ - There is no such thing as an impartial jury because there are no impartial people. There are people that argue on the web for hours about who their favorite character on ‘Friends’ is.
+ - In what is perhaps the strangest turn in the President’s efforts to rally support, he agreed that Iraq is just like Vietnam, but in a good way.
+ - Congress, the legislative stone in America’s urethra.
+ - I thought we were out of money!? You can’t simultaneously fire teachers AND tomahawk missiles.
+ - President Bush announced we’re going to Mars, which means he’s given up on Earth.
+ - What are you so mad about? That we still have a government? We still have “traffic lights.” We’re sorry. The government’s not perfect, but some people wish it was better, not gone.
+ - Glenn Beck does have a dream. Unfortunately, it’s the kind of dream you have when you eat four pepperoni hot pockets right before bed.
+ - This is what happens when you don’t let gays marry; they start designing clothes out of spite.
+ - Please explain to me why John Kerry sounds more dickish telling the truth than Bush sounds when he’s lying. How is that possible?
+ - I mean, I’m not hoping for the apes and the monolith. I’m hoping for controlled chaos to assist us.
+ - The last thing we’ll hear is some scientist saying ‘It works!’
+ - I have not moved out of the comedian’s box into the news box. The news box is moving towards me.
+ - Models talk to you for six minutes and they’re very nice and they say thank you and then it’s off to the larger European men they actually have sex with.
+ - When my syndicated show got canceled, the next day I still knew how to write jokes. That was a huge revelation. Because at first you think, “I won’t have any shelter! What am I gonna do? The sun is hot. Very thirsty.”
+ - How refreshing. A suspect beaten up BEFORE the LAPD showed up.
+ - Thus, I’ve created humour.
+ - Democrats do have a historic race going. Hillary Clinton vs. Barack Obama. Normally, when you see a black man or a woman president an asteroid is about to hit the Statue of Liberty.
+ - It’s like hunting cows.
+ - Watching these channels all day is incredibly depressing. I live in a constant state of depression. I think of us as turd miners. I put on my helmet, I go and mine turds, hopefully I don’t get turd lung disease.
+ - President Bush’s approval ratings have taken somewhat of a dive. A senior slump, if you will. Leading President Bush to one conclusion: He is the only one who realizes what a great job he’s being doing.
+ - The Oscars is the one night of the year when you can see all your favorite stars without having to donate any money to the Democratic Party.
+ - Are you worried that, when you go to hell, you’ll only be taking the local and not be on the express? Why would you look for a loophole to deny coverage to children with preexisting conditions?
+ - Donald Rumsfeld. Love him or hate him, you’ve gotta admit: a lot of people hate him.
+ - The government should stop meddling in the business of the farmers, who would actually still be living ina desert if not for government meddling.
+ - Everyone knows if a Republican comes out of the closet and sees a gay shadow, it means six more years of a Democratic administration.
+ - Bush’s popularity is at 40% in South America? He could be their president!
+ - Wow, the entire network of anchors has been hired to be the press secretary.
+ - Nobody out-rednecks the great state of America.
+ - Senior year is supposed to be about being mentally done.
+ - Here’s how bizarre the war is that we’re in in Iraq, and we should have known this right from the get-go: When we first went into Iraq, Germany didn’t want to go. Germany. The Michael Jordan of war took a pass.
+ - That’s the beauty of our show. Comedy or politics. We’re sort of a mix. A space age polymer of both. A synthetic comedy-like material.
+ - Do you guys have to sell everything? I’d like to buy the Earth’s core.
+ - It seems like Michael Vick is going to jail for dog fighting. Hopefully, they won’t have guard dogs.
+ - I was born in New York City, but I was raised in New Jersey, part of the great Jewish emigration of 1963.
+ - The best-laid plans of mice and comedians usually wind up on the cutting-room floor.
+ - The problem with the Tea Party is they’re all ignorant hillbillies who drink moonshine and ride around on mules. And they believe in stereotypes too.
+ - What’s with the poverty Tourette’s? Why do these two think we need a hobo for president?
+ - You have to remember one thing about the will of the people: it wasn’t that long ago that we were swept away by the Macarena.
+ - We’re going to do a challenge. I’m going to try and download every movie ever made and you are going to try to sign up for Obamacare – and we’ll see which happens first.
+ - We don’t consider ourselves equal opportunity anythings, because that’s not – you know, that’s the beauty of fake journalism. We don’t have to – we travel in fake ethics.
+ - Remember that guy who got gored by a bull and the bull pulled his underwear off and he had to run around the ring naked? If that footage comes out, I’ll run that.
+ - They have to put Trump on every program, spewing his crazy ideas, because his poll numbers are so high. And his poll numbers are so high because they put him on every program, spewing his crazy ideas.
+ - President Bush remained undeterred by the massive display of American opposition, even though much of it came from the hundreds of thousands of voters who supported him by voting for Nader.
+ - We look at, the absurdity of the system provides us the most material. And that is best served by sort of the theater of it all, you know, which, by the way, thank you both, because it’s been helpful.
+ - The government that governs best, governs best!
+ - The beautiful thing about faking a news show is the topicality is delayed.
+ - There are a hell of a lot of jobs that are scarier than live comedy. Like standing in the operating room when a guy’s heart stops, and you’re the one who has to fix it!
+ - I feel much more strongly about the abdication of responsibility by the media than by political advocates. They’re representing a constituency.
+ - I just thought, there are very few stories involving me, Anna Nicole Smith, and Jesus.
+ - You know, I’ve always wanted to be a young Charles Kuralt. I started in this business with just a Winnebago and a dream.
+ - And then you’ve got Lieberman, who is for the war. And thinks the tax cuts could really help. He’s basically for people who want to vote for Bush but don’t think Bush is Jewish enough.
+ - Do you know what writing a book is? It’s sitting alone in a room for weeks without making contact with another human. I felt like Howard Hughes.
+ - California is choosing between the lesser of, uh, 300 evils.
+ - I’ve always liked Atlanta. And not just for the strip clubs, but the shopping and the food.
+ - The more you delve into science, the more it appears to rely on faith.
+ - Sarah Palin has been tagged and released back into the wild.
+ - The Department of Homeland Security recommends a three-day supply of water consisting of one bottle per day for each person in your home. Plus one extra bottle to give you all something to kill each other over on day four.
+ - As long as I don’t end up hosting a skin care commercial with Cher, I’m happy.
+ - What I like to do is come in, write the entire program and treat my staff to hot stone massages.
+ - Nathan Lane’s Bus of Broadway Fun will be leaving shortly.
+ - Give me back the $800 billion for the Iraq war and children’s television PBS is on the house.
+ - If you don’t get it right with your first family, you can always do it again with another.
+ - Al-Qaeda’s resurgence brings out the worst in the Bush Administration’s math and logic.
+ - You cannot judge a book by its contents.
+ - We must, together as a nation, stop watching Fox.
+ - Some would argue that the president himself benefited from a form of affirmative action because as a C student, he only got into Yale because his father was a wealthy alumnus. But the White House counters that Saddam is a menace and must be stopped.
+ - Don’t worry, as long as America still has natural resources, you guys are okay.
+ - What good are images if people understand them?
+ - More than 150 heads of state attended the UN Summit, giving New Yorkers a chance to get in touch with prejudices they didn’t even know they had.
+ - We’ve come from the same history – 2000 years of persecution – we’ve just expressed our sufferings differently. Blacks developed the blues. Jews complained, we just never thought of putting it to music.
+ - I could never wrap my head around why the world and the President that Republicans describe bears so little resemblance to the world and the President that I experience. And now I know why. There is a President Obama that only Republicans can see.
+ - The Westboro Baptist Church is no more a church than Church’s Fried Chicken is a church.
+ - We all know what happens to celebrities when their time is up – rehab and then a stint on VH1.
+ - Do you know how many movies I wrote when I was high?
+ - This show is our own personal beliefs.
+ - I want a sandwich named after me.
+ - Typically, when you’re with your friends, premises are coming up left and right. But when you’re on stage, you must create the premise. So you have to create the premise, paint the picture and then deliver the punch line.
+ - Nothing brings closure to a campaign like opening it up again.
+ - I can’t sing. Never been able to sing. I can’t do voices very well. Every impression I do sounds the same. I can’t dunk. Man, would I give anything to dunk. Just once.
+ - I like not to be good at anything, so I keep hopping around.
+ - If I could be really competent, that goes such a long way toward things, because the majority of things are not competent. If I can be competent, and have moments of originality, that’s all I would ask for.
+ - If you watch the news and don’t like it, then this is your counter program to the news.
+ - The only time a politico will try to avoid playing the blame game is when they or theirs are to blame.
+ - The best way to describe my ability was to say that after the game the other kids would say to me, ‘Way to try!’
+ - If you break someone’s leg, shouldn’t you have to be the crutch for a while?
+ - The real focus at first is to just become a good stand-up comedian, and then when you get to a certain level, then they allow you to do other things. You feel if you’re overwhelmed by something or if you’re not.
+ - As a comedian, as a person, as a citizen, as a mammal – in all of those areas, I am looking forward to the end of the Bush administration with every fiber of my being.
+ - I think of myself as a comedian who has the pleasure of writing jokes about things that I actually care about.
+ - Religion is far more of a choice than homosexuality.
+ - Bush advisers have long been worried that a lagging economy could hamper the president’s re-election chances. They hope that the Cabinet shake-up will provide a needed jolt. If that doesn’t work, North Korea has to go.
+ - I have a lot of hostility.
+ - I kid because I’m on basic cable.
+ - Many of our soldiers are stationed at Camp Coyote just south of the Iraqi border. This is how you know we have a strong army, when you can actually tell your enemy exactly where your camp is and what its name is.
+ - Well, I’m sold. I’ll take one America.
+ - I like a lot of wheels. If I could have eight wheels, I would.
+ - Historic in a good sense, not historic in a sense of ’so we dropped bombs on everyone.
+ - I was born with an adult head and a tiny body. Like a ‘Peanuts’ character.
+ - If you’re going to give people 20 minutes of news satire, you’ve also got to give them Tiffani-Amber Thiessen or you’re going to have rioting in the streets.
+ - Like everyone else, I want to sleep with Leonardo DiCaprio.
+ - It’s not that the Democrats are playing checkers and the Republicans are playing chess. It’s that the Republicans are playing chess and the Democrats are in the nurse’s office because once again they glued their balls to their thighs.
+ - Isn’t that what you really want in a jean? The ability to kick people in the face in them? I don’t wanna have to go home and change into shorts...
+ - Never name it after yourself. Maybe we’ll throw a with in there. That seems to work. Like Late Show With David Letterman.
+ - Apparently the only thing worse than a terrorist attack, is a gay man stopping it!
+ - Republicans are no longer allowed to say that people are rich. You have to refer to them as ‘job creator.’ You can’t even use the word ‘rich.’ You have to say, ‘This chocolate cake is so moist and job creator.’
+ - If the events of September 11, 2001, have proven anything, it’s that the terrorists can attack us, but they can’t take away what makes us American – our freedom, our liberty, our civil rights. No, only Attorney General John Ashcroft can do that.
+ - Everything is presented in as devious a manner as it could possibly be presented.
+ - I only find out where countries are when we start bombing them.
+ - That’s what it’s like to be a comedian. You basically stand and stare at the world and hope it craps out cause that’s a good year for you. So that’s not a pleasant feeling.
+ - At first the difference will be in whatever atmosphere I bring into it. It’s not going to be like, ‘I really want to do The Daily Show and I’d love to turn it into an abstract musical.’ I like the format and the chance to satirize the news.
+ - Apparently the only time the press gets it right is when the White House illegally leaks it to them.
+ - As an adolescent, Vonnegut made my life bearable.
+ - When you think about it, Alaska is also near the North Pole, so she must also be friends with Santa.
+ - Congress is the Justin Bieber of our government.
+ - Who cares how we avoided a war and got a dictator to give up his chemical weapons if we avoided a war and got a dictator to give up his chemical weapons.
+ - Nazi Germany was so destructive to Judaism not only for the loss of life, but because many who survived began to see the practice of Judaism as somewhat of a health hazard.
+ - I can be in 20 movies. But I’ll never be an actor.
+ - Despite his infirmities, Strom Thurmond showed up to work every day and did not miss a Senate vote in his final year, though no one is sure if a shouted ‘Bingo!’ counted as a yea or a nay.
+ - Child: Why on this night do we eat Hot Fudge Sundaes? Adult: To remind us that being Jewish is like having your birthday every day!! Plus they’re delicious!
+ - Isn’t it amazing what scientists can accomplish when no one makes them stop?
+ - At the end of your life, do you give a concession speech?
+ - If the guy in front of you at the polls has arm swords, you might want to considering filling out an absentee ballot.
+ - You’re your own play.
+ - I thinking gay and straight people use the same putters, it’s not a matter of putters but a matter of hole selection.
+ - A joke is a joke. There’s an expression – I don’t know if you have it – that’s ‘adding insult to injury.’
+ - Julie Christie was absolutely amazing in Away From Her. Brilliant movie. It was the moving story of a woman who forgets her own husband. Hillary Clinton calls it the feel good movie of the year.
+ - In South Carolina, Senator John Edwards won handily, fulfilling his promise to win every state he was born in.
+
+283 quotes

@@ -1,0 +1,49 @@
+ - Reading is to the mind what exercise is to the body and prayer is to the soul.
+ - Freedom is not the ability to do whatever you want. Freedom is the strength of character to do what is good, true, noble, and right.
+ - Anything and anyone that does not help you to become the best version of yourself is too small for you.
+ - We become the books we read.
+ - Our lives change when our habits change.
+ - If you don’t have time to pray and read the scriptures, you are busier than God ever intended you to be.
+ - It takes more energy to maintain mediocrity than it takes to pursue excellence.
+ - You cannot be healthy and happy without discipline. If you want to measure the level of happiness in your life, just measure the level of discipline in your life. You will never have more happiness than you have discipline.
+ - Discipline is the path to happiness.
+ - On the one hand, we all want to be happy. On the other hand, we all know the things that make us happy. But we don’t do those things. Why? Simple. We are too busy. Too busy doing what? Too busy trying to be happy. This is the paradox of happiness that has bewitched our age.
+ - Love is a choice, love is an act of will, you can choose to love.
+ - Hope is a good thing, maybe the best of things. Hope is one of those things that you can’t buy, but that will be freely given to you if you ask. Hope is the one thing people cannot live without. Hope is a thing of beauty.
+ - Our essential purpose is to become the best version of ourselves.
+ - Who you become is infinitely more important than what you do, or what you have.
+ - God of hope, I look to you with an open heart and yearning spirit. During this Advent season, I will keep alert and awake, listening for your word and keeping to your precepts. My hope is in you.
+ - Whether you are sixteen or sixty, the rest of your life is ahead of you. You cannot change one moment of your past, but you can change your whole future. Now is your time.
+ - Catholicism is not a lifeless set of rules and regulations. Catholicism is a lifestyle. Catholicism is a way of life designed by God to help you become all you can be.
+ - Life is about love. It’s about whom you love and whom you hurt. Life’s about how you love yourself and how you hurt yourself. Life’s about how you love and hurt the people close to you. Life is about how you love and hurt the people who just cross your path for a moment. Life is about love.
+ - The measure of your life will be the measure of your courage.
+ - You will learn more from your friends than you ever will from books. Choose your friends wisely.
+ - Prayer is like a great love. When you start dating the silence can be awkward, but as you grow to know each other you can sit in silence for hours and just being with each other is a great comfort.
+ - The challenge life presents to each of us is to become truly ourselves – not the self we have imagined or fantasized about, not the self that our friends want us to be, not the self our ego would have us be, but the self God has ordained us to be from before we were in our mother’s womb.
+ - Superficiality is the curse of the modern world.
+ - Thought determines action. Do not let your whole life be a reaction to the things that happen around you each day. Let your life be an action.
+ - Our culture places a very high premium on self-expression, but is relatively disinterested in producing “selves” that are worth expressing.
+ - In fact, the more each person can remove his or her ego from the discussion and focus on the subject matter, the more fruitful the conversation will be for all involved.
+ - We are not here to solve the problems; the problems are here to solve us.
+ - Never believe a promise from a man or woman who has no discipline. They have broken a thousand promises to themselves, and they break their promise for you.
+ - God of deep waters and infinite riches, challenge me to go where I fear, to do what is difficult and what I thought could never be done. Push me to go to the deep waters of life and cast my net wide, for I put all my hope, trust and faith in you.
+ - Never pass up an opportunity to speak a kind word of appreciation. There are six billion people on the planet, and 5.9 billion of them go to bed every night starving for one honest word of appreciation.
+ - The message delivered with unrelenting enthusiasm by our culture is, ‘You can be happy without discipline. Do whatever you feel like doing and you will be happy!’ While the Church says, ‘You cannot be happy without discipline In fact, discipline is the path to happiness!’
+ - It has been my experience that nothing changes a person’s life more than the discovery of one solitary truth: There is a meaning and purpose to life. More specifically: There is a meaning and purpose to your life.
+ - If we will walk humbly with our God, He will lead us by the hand to exactly who and what we need, to those people, things, and experiences He has designed and intended for us, and this alone will be the cause of our deep fulfillment and happiness.
+ - Every journey to something is a journey away from something.
+ - When you stand still, you reject the struggle, and you refuse to change and grow. Ultimately, you reject fulfillment, happiness, the dance for joy and everything else that is eternally good.
+ - The abuse of a good does not diminish the good of a good.
+ - Character is built little by little, over days, weeks, months, and years, with thousands of small and seemingly insignificant acts of discipline.
+ - Work-life balance was a mistake from the start. Because we don’t really want balance. We want satisfaction.
+ - Truth be told, our modern education systems crush the very spirit they claim to instill.
+ - Let your life be guided by greatness.
+ - When you voice your disagreement, begin by talking about what you have in common with the person you are arguing with. Too often we rush to judgment, race to argue, and overlook all the common ground we share.
+ - The beauty of Catholicism is every human being’s right.
+ - Striving humbly but heroically to live by what is good, true, and noble in the midst of – and in spite of – the modern climate.
+ - The notion of freedom proclaimed by the modern world is anti-discipline. But true freedom cannot be separated from discipline.
+ - To be truly intimate with another person, is to share every aspect of yourself with that person.
+ - We don’t want to think about our weaknesses. We don’t want to talk about them, and we certainly don’t want anyone else to point them out. This is a classic sign of mediocrity, and this mediocrity has a firm grip on the Church and humanity at this moment in history.
+ - The way we see the world determines the way we live our lives.
+
+47 quotes

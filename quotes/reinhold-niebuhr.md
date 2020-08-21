@@ -1,0 +1,106 @@
+ - God, grant me the serenity to accept the things I cannot change, courage to change the things I can, and wisdom to know the difference. ~~Serenity Prayer
+ - Forgiveness is the final form of love.
+ - Aim for the stars and maybe you’ll reach the sky.
+ - Change what cannot be accepted and accept what cannot be changed.
+ - Love is the motive, but justice is the instrument.
+ - Nothing that is worth doing can be achieved in a lifetime; therefore we must be saved by hope.
+ - Man is his own most vexing problem.
+ - Ultimately evil is done not so much by evil people, but by good people who do not know themselves and who do not probe deeply.
+ - Cheese, wine, and a friend must be old to be good.
+ - A genuine faith resolves the mystery of life by the mystery of God.
+ - The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.
+ - Man’s capacity for justice makes democracy possible, but man’s inclination to injustice makes democracy necessary.
+ - Nothing we do, however virtuous, can be accomplished alone; therefore, we are saved by love. No virtuous act is quite as virtuous from the standpoint of our friend or foe as from our own; therefore, we are saved by the final form of love, which is forgiveness.
+ - Humor is a prelude to faith and laughter is the beginning of prayer.
+ - One of the fundamental points about religious humility is you say you don’t know about the ultimate judgment. It’s beyond your judgment. And if you equate God’s judgment with your judgment, you have a wrong religion.
+ - Nationalism: One of the effective ways in which the modern man escapes life’s ethical problems.
+ - God, give us the grace to accept with serenity the things that cannot be changed.
+ - Life is a battle between faith and reason in which each feeds upon the other, drawing sustenance from it and destroying it.
+ - Frantic orthodoxy is never rooted in faith but in doubt. It is when we are unsure that we are doubly sure.
+ - The chief source of man’s inhumanity to man seems to be the tribal limits of his sense of obligation to other men.
+ - All human sin seems so much worse in its consequences than in its intentions.
+ - All men who live with any degree of serenity live by some assurance of grace.
+ - Toleration of people who differ in convictions and habits requires a residual awareness of the complexity of truth and the possibility of opposing view having some light on one or the other facet of a many-sided truth.
+ - Nothing which is true or beautiful or good makes complete sense in any immediate context of history; therefore we must be saved by faith.
+ - The cross symbolizes a cosmic as well as historic truth. Love conquers the world, but its victory is not an easy one.
+ - Original sin is that thing about man which makes him capable of conceiving of his own perfection and incapable of achieving it.
+ - Great talents have some admirers, but few friends.
+ - This insinuation of the interests of the self into even the most ideal enterprises and most universal objectives, envisaged in moments of highest rationality, makes hypocrisy an inevitable by product of all virtuous endeavor.
+ - Man is endowed by nature with organic relations to his fellow men; and natural impulse prompts him to consider the needs of others even when they compete with his own.
+ - There is no social evil, no form of injustice whether of the feudal or the capitalist order which has not been sanctified in some way or other by religious sentiment and thereby rendered more impervious to change.
+ - There was a time when I had all the answers. My real growth began when I discovered that the questions to which I had the answers were not the important questions.
+ - The society in which each man lives is at once the basis for, and the nemesis of, that fulness of life which each man seeks.
+ - Human beings are endowed by nature with both selfish and unselfish impulses.
+ - Goodness, armed with power, is corrupted; and pure love without power is destroyed.
+ - Reason is not the sole basis of moral virtue in man. His social impulses are more deeply rooted than his rational life.
+ - The will-to-live becomes the will-to-power.
+ - The fence and the boundary line are the symbols of the spirit of justice. They set the limits upon each man’s interest to prevent one from taking advantage of the other.
+ - All known existence points beyond itself.
+ - The sad duty of politics is to establish justice in a sinful world.
+ - The pretensions of final truth are always partlyan effort to obscure a darkly felt consciousness of the limits of human knowledge.
+ - The history of mankind is a perennial tragedy; for the highest ideals which the individual may project are ideals which he can never realize in social and collective terms.
+ - Democracy is finding proximate solutions to insoluble problems.
+ - One of the most pathetic aspects of human history is that every civilization expresses itself most pretentiously, compounds its partial and universal values most convincingly, and claims immortality for its finite existence at the very moment when the decay which leads to death has already begun.
+ - History is a realm in which human freedom and natural necessity are curiously intermingled.
+ - Marxism is the modern form of Jewish prophecy.
+ - The dimension of depth in the consciousness of religion creates the tension between what is and what ought to be. It bends the bow from which every arrow of moral action flies.
+ - The essence of man is his freedom. Sin is committed in that freedom. Sin can therefore not be attributed to a defect in his essence. It can only be understood as a self-contradiction, made possible by the fact of his freedom but not following necessarily from it.
+ - All social cooperation on a larger scale than the most intimate social group requires a measure of coercion.
+ - Religion is so frequently a source of confusion in political life, and so frequently dangerous to democracy, precisely because it introduces absolutes into the realm of relative values.
+ - I thank heaven I have often had it in my power to give help and relief, and this is still my greatest pleasure. If I could choose my sphere of action now, it would be that of the most simple and direct efforts of this kind.
+ - The prophet himself stands under the judgment which he preaches. If he does not know that, he is a false prophet.
+ - The more complex the world situation becomes, the more scientific and rational analysis you have to have, the less you can do with simple good will and sentiment.
+ - The mastery of nature is vainly believed to be an adequate substitute for self mastery.
+ - What is funny about us is precisely that we take ourselves too seriously.
+ - Better not read books in which you make acquaintance of the devil.
+ - Every experience proves that the real problem of our existence lies in the fact that we ought to love one another, but do not.
+ - To the end of history, social orders will probably destroy themselves in an effort to prove they are indestructible.
+ - If we can find God only as he is revealed in nature we have no moral God.
+ - Faith is the final triumph over incongruity, the final assertion of the meaningfulness of existence.
+ - Men have never been individually self-sufficient.
+ - Life has no meaning except in terms of responsibility.
+ - The significance of the law of love is precisely that it is not just another law, but a law which transcends all law.
+ - The tendency to claim God as an ally for our partisan value and ends is the source of all religious fanaticism.
+ - Our age knows nothing but reaction, and leaps from one extreme to another.
+ - What is so funny about us is precisely that we take ourselves too seriously. Laughter is the same and healthy response to the innocent foibles of men; and even to some which are not innocent.
+ - Evil is not to be traced back to the individual but to the collective behavior of humanity.
+ - Despotism, which we regard with abhorrence, is rather too plausible in decaying feudal, agrarian, pastoral societies. That’s why we must expect to have many a defeat before we’ll have an ultimate victory in this contest with Communism.
+ - As racial, economic and national groups, they take for themselves, whatever their power can command.
+ - Man is both strong and weak, both free and bound, both blind and far-seeing. He stands at the juncture of nature and spirit; and is involved in both freedom and necessity.
+ - We have previously suggested that philanthropy combines genuine pity with the display of power and that the latter element explains why the powerful are more inclined to be generous than to grant social justice.
+ - Man is always worse than most people suspect, but also generally better than most people dream.
+ - It is significant that it is as difficult to get charity out of piety as to get reasonableness out of rationalism.
+ - Our dreams of a pure virtue are dissolved in a situation in which it is possible to exercise the virtue of responsibility toward a community of nations only by courting the prospective guilt of the atomic bomb.
+ - It is my strong conviction that a realist conception of human nature should be made a servant of an ethic of progressive justice and should not be made into a bastion of conservatism, particularly a conservatism which defends unjust privileges.
+ - Civilization depends upon the vigorous pursuit of the highest values by people who are intelligent enough to know that their values are qualified by their interests and corrupted by their prejudices.
+ - A church has the right to set its own standards within its community. I don’t think it has a right to prohibit birth control or to enforce upon a secular society its conception of divorce and the indissolubility of the marriage tie.
+ - There is no cure for the pride of a virtuous nation but pure religion.
+ - All men are naturally included to obscure the morally ambiguous element in their political cause by investing it with religious sanctity.
+ - Democracies are indeed slow to make war, but once embarked upon a martial venture are equally slow to make peace and reluctant to make a tolerable, rather than a vindictive, peace.
+ - Even as rigorous a determinist as Karl Marx, who at times described the social behaviour of the bourgeoisie in terms which suggested a problem in social physics, could subject it at other times to a withering scorn which only the presupposition of moral responsibility could justify.
+ - There are historic situations in which refusal to defend the inheritance of a civilization, however imperfect, against tyranny and aggression may result in consequences even worse than war.
+ - We have, on the whole, more liberty and less equality than Russia has. Russia has less liberty and more equality. Whether democracy should be defined primarily in terms of liberty or equality is a source of unending debate.
+ - The whole art of politics consists in directing rationally the irrationalities of men.
+ - To be religious is not to feel, but to be.
+ - Perhaps the most significant moral characteristic of a nation is its hypocrisy.
+ - We don’t properly discriminate. We never discriminate properly when we’re dealing with another group and one of the big problems about religion is that religious people don’t know that they are probably as flagrant in these misjudgments as irreligious people.
+ - I think there ought to be a club in which preachers and journalists could come together and have the sentimentalism of the one matched with the cynicism of the other. That ought to bring them pretty close to the truth.
+ - For man as an historical creature has desires of indeterminate dimensions.
+ - A republic properly understood is a sovereignty of justice, in contradistinction to a sovereignty of will.
+ - We have had to learn that history is neither a God nor a redeemer.
+ - I cannot worship the abstractions of virtue: she only charms me when she addresses herself to my heart, speaks through the love from which she springs.
+ - The recalcitrant forces in the historical drama have a power and persistence beyond our reckoning.
+ - A wise architect observed that you could break the laws of architectural art provided you had mastered them first. That would apply to religion as well as to art. Ignorance of the past does not guarantee freedom from its imperfections.
+ - The old prose writers wrote as if they were speaking to an audience; while, among us, prose is invariably written for the eye alone.
+ - Religion, declares the modern man, is consciousness of our highest social values. Nothing could be further from the truth. True religion is a profound uneasiness about our highest social values.
+ - Reason tends to check selfish impulses and to grant the satisfaction of legitimate impulses in others.
+ - It is the evil in man that makes democracy necessary, and man’s belief in justice that makes democracy possible.
+ - If we survive danger it steels our courage more than anything else.
+ - I think I should know how to educate a boy, but not a girl; I should be in danger of making her too learned.
+ - Family life is too intimate to be preserved by the spirit of justice. It can be sustained by a spirit of love which goes beyond justice.
+ - History may defeat the Christ but it nevertheless points to him as the law of life.
+ - I’m not afraid of too many things, and I got that invincible kind of attitude from my father.
+ - The individual or the group which organizes any society, however social its intentions or pretensions, arrogates an inordinate portion of social privilege to itself.
+ - Self-righteousness is the inevitable fruit of simple moral judgments.
+
+104 quotes

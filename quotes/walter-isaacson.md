@@ -1,0 +1,59 @@
+ - Here’s to the crazy ones. The misfits. The rebels. The troublemakers. The round pegs in the square holes. The ones who see things differently.
+ - One way to remember who you are is to remember who your heroes are.
+ - Picasso had a saying – ‘good artists copy, great artists steal’ – and we have always been shameless about stealing great ideas.
+ - People who know what they’re talking about don’t need PowerPoint.
+ - Innovation requires articulation.
+ - It’s about doing something larger than yourself. It’s about serving this world, helping others.
+ - I am a fruitarian and I will only eat leaves picked by virgins in the moonlight – Steve Jobs.
+ - A theme of digital success is keeping it simple.
+ - I think one problem we’ve had is that people who are smart and creative and innovative as engineers went into financial engineering.
+ - I wonder now how tough you have to be to get big things done.
+ - Let’s crowd source, curate, and add royalties to books.
+ - Did Alexander Graham Bell do any market research before he invented the telephone?
+ - If you act like you can do something, then it will work.
+ - Physics should represent a reality in time and space, free from spooky action at a distance.
+ - Otherwise, as Dylan says, if you’re not busy being born, you’re busy dying.
+ - When there are multiple versions of a story, you really have three ways to go. You can pick the most sensational version. You can try to balance things in your gut to get to what you think is the honest truth. Or you can err on the side of kindness.
+ - Politics is for the present, while our equations are for eternity.
+ - More generally, I made an effort to leave out things that weren’t relevant to the main narrative themes of the book, namely that there were two sides to Steve Jobs: the romantic, poetic, countercultural rebel on one side, and the serious businessperson on the other.
+ - Good telling of human stories is the best way to keep the Internet and World Wide Web from becoming a waste vastland.
+ - I think the biggest innovations of the twenty-first century will be the intersection of biology and technology. A new era is beginning, just like the digital one was when I was his age.
+ - Sometimes, to relieve stress, he would soak his feet in the toilet, a practice that was not as soothing for his collegues.
+ - Just being the seeker, somebody whose open to spiritual enlightenment, is in itself the important thing and it’s the reward for being a seeker in this world.
+ - I’ve asked Jobs why he didn’t get an operation then and he said, ‘I didn’t want my body to be opened. I didn’t want to be violated in that way.’
+ - Pretend to be completely in control and people will assume that you are.
+ - There are parts of his life and personality that are extremely messy, and that’s the truth.
+ - For some people, miracles serve as evidence of God’s existence.
+ - What Einstein was able to do was – to use a cliche – think out of the box.
+ - I think that notion of being a seeker, somebody who never felt totally fulfilled, but was always passionate about the search, that comes from the background, probably.
+ - Terrorism is a horrible thing that is the great threat to civilization on our planet.
+ - I visited Jobs for the last time in his Palo Alto, Calif., home. He had moved to a downstairs bedroom because he was too weak to go up and down stairs. He was curled up in some pain, but his mind was still sharp and his humor vibrant.
+ - I think right now we need to look back at the founding values of our country. Rise above partisanship, be less bitter when it comes to important matters that have to be solved.
+ - And if you don’t have your ears open, you’re not going to be able to figure out what you should be doing.
+ - I think that Benjamin Franklin felt very strongly in foreign policy in this world, that you needed to at least show some humility, especially when you were strong.
+ - Was he smart? No, not exceptionally. Instead, he was a genius.
+ - Polite and velvety leaders, who take care to avoid bruising others, are generally not as effective at forcing change.
+ - I think it’s really good that you have great competition among news networks, and for that matter all the networks in general. It’s bringing more and more people in to watching the news.
+ - I think when money starts to corrupt journalism, it undermines the journalism, and it undermines the credibility of the product, and you end up not succeeding.
+ - I actually think Bill Gates is conventionally smarter, even though it’s a dumb word, but mental processing power – I’ve watched him use four different screens, process information, get to the right answer, boom boom boom.
+ - If you truly have a passion for what you do, you will care even about the parts unseen.
+ - I hope that some day scientists can be considered heroes again, instead of Paris Hilton.
+ - I don’t think there was enough skepticism because I think most of us kind of believed that Saddam Hussein was building biological, chemical, and perhaps even, nuclear weapons.
+ - I’ve always had an abundance of material about the subjects of my biographies.
+ - I think that we shouldn’t be fixated all the time on the ups and downs of the weekly ratings, of the quarter-hour ratings.
+ - You know, one of these things that happened in the ’60s and ’70s was this confluence of, sort of, a counter-culture with computer culture.
+ - I think it is valuable and should be valued by its consumers. Charging for content forces discipline on journalists: they must produce things that people actually value.
+ - I think when you’re looking for people to interview, you want to make it fair and honest. You’re not just bringing people on so you can beat them up or, you know, make fools out of them or something.
+ - But the point is to get a whole new generation of people and people in general more re-engaged in news, and this has happened a lot since September 11th of course.
+ - We have to compete in a universe of 200 networks, so we have to carve out our own niche, and to me, that niche is just basic shoe-leather journalism with some good journalists at the helm you can trust as presenters.
+ - The childhood that Paul and Clara Jobs created for their new son was, in many ways, a stereotype of the late 1950s. When Steve was two they adopted a girl they named Patty, and three years later they moved to a tract house in the suburbs.
+ - Jobs has within him sort of this conflict, but he doesn’t quite see it as a conflict between being hippie-ish and anti-materialistic but wanting to sell things like Wozniak’s board. Wanting to create a business.
+ - What are the five products you want to focus on? Get rid of the rest, because they’re dragging you down. They’re turning you into Microsoft. They’re causing you to turn out products that are adequate but not great.
+ - One of the great pressures we’re facing in journalism now is it’s a lot cheaper to hire thumb suckers and pundits and have talk shows on the air than actually have bureaus and reporters.
+ - Jobs did not know that Sculley had told Eisenstat he wanted to quit, but by then it didn’t matter. Overnight, he had changed his mind and decided to stay. Despite the blowup the day before, he was still eager for Jobs to like him. So he agreed to meet the next afternoon.
+ - I think it’s very important to have a sense of balance in covering the war, but you don’t have to be morally neutral about terrorism.
+ - The older I get, the more I see how much motivations matter. The Zune was crappy because the people at Microsoft don’t really love music or art the way we do. We won because we personally love music.
+ - When you write biographies, whether it’s about Ben Franklin or Einstein, you discover something amazing: They are human.
+ - In the age of the internet when everybody’s a pundit, we’re still gonna need somebody there to go talk to the colonels, to be on the ground in Baghdad and stuff and that’s very expensive.
+
+57 quotes

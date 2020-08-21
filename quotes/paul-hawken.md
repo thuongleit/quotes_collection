@@ -1,0 +1,64 @@
+ - Business is the only mechanism on the planet today powerful enough to produce the changes necessary to reverse global environments and social degradation.
+ - Good management is the art of making problems so interesting and their solutions so constructive that everyone wants to get to work and deal with them.
+ - First we need to decide what needs to be done. Then we do it. And then we ask if it is possible.
+ - What a great time to be born, what a great time to be alive, because this generation gets to completely change this world.
+ - The promise of business is to increase the general well-being of humankind through service, a creative invention and ethical philosophy.
+ - Being a good human being is good business.
+ - The most unrealistic person in the world is the cynic, not the dreamer.
+ - What I see everywhere in the world are ordinary people willing to confront despair, power, and incalculable odds in order to restore some semblance of grace, justice, and beauty to this world.
+ - You are Brilliant and the Earth is Hiring.
+ - At present we are stealing the future, selling it in the present, and calling it gross domestic product.
+ - Working for the earth is not a way to get rich, it is a way to be rich.
+ - The first rule of sustainability is to align with natural forces, or at least not try to defy them.
+ - The future belongs to those who understand that doing more with less is compassionate, prosperous, and enduring, and thus more intelligent, even competitive.
+ - Don’t be put off by people who know what is not possible. Do what needs to be done, and check to see if it was impossible only after you are done.
+ - Most floods are caused by man, not weather; deforestation, levee construction, erosion, and overgrazing all result in the loss of ecosystem services.
+ - You can blame people who knock things over in the dark or you can begin to light candles. You’re only at fault if you know about the problem and choose to do nothing.
+ - Green business is not about tie-dyed T-shirts. It’s about transforming the industrial system itself into one that looks at all the connections.
+ - This planet came with a set of instructions, but we seem to have misplaced them. Important rules like don’t poison the water, soil, or air, don’t let the earth get overcrowded, and don’t touch the thermostat have been broken.
+ - While there may be no “right” way to value a forest or a river, there is a wrong way, which is to give it no value at all. How do we decide the value of a 700-year-old tree? We need only to ask how much it would cost to make a new one, or a new river, or even a new atmosphere.
+ - We are speeding up our lives and working harder in a futile attempt to buy the time to slow down and enjoy it.
+ - Luck is earned. Luck is working so hard at your craft, service or enterprise that sooner or later you get a break.
+ - Natural capitalism is not about making sudden changes, uprooting institutions, or fomenting upheaval for a new social order. Natural capitalism is about making small, critical choices that can tip economic and social factors in positive ways.
+ - We subsidize the disposal of waste in all its myriad forms from landfills to Superfund cleanups, from deep-well injection to storage of nuclear waste. In the process, we encourage an economy where 80 percent of what we consume gets thrown away after one use.
+ - If you look at the science that describes what is happening on earth today and aren’t pessimistic, you don’t have the correct data. If you meet the people in this unnamed movement and aren’t optimistic, you haven’t got a heart.
+ - What we already know frames what we see, and what we see frames what we understand.
+ - When the planes still swoop down and aerial spray a field in order to kill a predator insect with pesticides, we are in the Dark Ages of commerce.
+ - Interestingly, the oil companies know very well that in less than 30 years they will not only be charging very high prices, but that they will be uncompetitive with renewables.
+ - What we are missing, utterly and completely, in this government is accountability.
+ - We assume that everything’s becoming more efficient, and in an immediate sense that’s true; our lives are better in many ways. But that improvement has been gained through a massively inefficient use of natural resources.
+ - We have an economy that tells us it is cheaper to destroy earth in real time rather than renew, restore, and sustain it. You can print money to bail out a bank but you can’t print life to bail out a planet.
+ - Always leave enough time in your life to do something that makes you happy, satisfied, even joyous. That has more of an effect on economic well-being than any other single factor.
+ - Capitalism, as practiced, is a financially profitable, non-sustainable aberration in human development.
+ - I’d rather fail at something important than succeed at something trivial.
+ - Healing the wounds of the earth and its people does not require saintliness or a political party, only gumption and persistence. It is not a liberal or conservative activity; it is a sacred act.
+ - Inspiration is not garnered from the litanies of what may befall us; it resides in humanity’s willingness to restore, redress, reform, rebuild, recover, reimagine, and reconsider.
+ - We are now heading down a centuries-long path toward increasing the productivity of our natural capital – the resource systems upon which we depend to live – instead of our human capital.
+ - Being in business is not about making money. It is a way to become who you are.
+ - The bottom line is down where it belongs – at the bottom. Far above it in importance are the infinite number of events that produce the profit or loss.
+ - Intelligent policies will be largely self-regulating in the sense that the system of incentives and standards makes it absolutely ludicrous to not move towards clean, internalized systems of cost and production.
+ - Wrong is an addictive, repetitive story; Right is where the movement is.
+ - People are naming it the Third Wave, the Information Age, etc. but I would say those are basically technological descriptions, and this next shift is not about technology – although obviously it will be influenced and in some cases expressed by technologies.
+ - It costs the same to send a person to prison or to Harvard. The difference is the curriculum.
+ - Only caring individuals can restore the places we inhabit. The ‘simple act of planting a tree’ not only restores the places we live, but makes us whole and powerful again.
+ - Don’t go to business school.
+ - Businesses who are members of Businesses for Social Responsibility or the Social Venture Network are internalizing costs on a voluntary basis and therefore raising their costs of doing business, but their competitors are not required to.
+ - We are the only species on this planet without full employment.
+ - Information from destructive activities going back a hundred years right up until today is being incorporated into the system. And as that happens the underlying framework of industrialism is collapsing and causing disintegration.
+ - Business is correct to defend its right to act in order to produce a vigorous and engaging prosperity. But it is wrong if it forgets that this freedom can only be experienced within the discipline of social responsibility.
+ - If there is to be an ecologically sound society, it will have to come the grass roots up, not from the top down.
+ - The financial capital is being concentrated by corporations, institutional investors, and even our pension funds, and being reinvested in companies that repeat this process because it provides the highest return on that financial capital.
+ - Local companies don’t have to internalize their costs, and few actually do, but they tend to more often because the owners live there and they have to show their face in town, and their kids play with other kids.
+ - We are losing our living systems, social systems, cultural systems, governing systems, stability, and our constitutional health, and we’re surrendering it all at the same time.
+ - In short, industrialism is over.
+ - I think an old style of addressing environmental problems is ebbing, but the rise of the so-called conservative, political movement in this country is not a trend towards the future but a reaction to this very broad shift that we are undergoing.
+ - Mother’s milk would be banned by the food safety laws of industrialized nations if it were sold as a packaged good.
+ - The bottom line is down where it belongs – at the bottom.
+ - We can no longer prosper by increasing human productivity. The more we try to do, the more poverty we will create.
+ - That appropriation of resources and the transformation of them into goods and services through the European production system characterized, and characterizes to this day, all industrial systems including the information age.
+ - A local company has more accountability.
+ - How much harm does a company have to do before we question its right to exist?
+ - And also, more and more businesses really want to do the right thing. They feel better about themselves, their workers feel better, and so do their customers. I think this is equally true in the transnational corporations, but it is harder to express in those situations.
+ - If, as is natural, you focus on the corruption and on those threatened institutions that are trying to prevent change – even though they don’t really know what they’re trying to prevent – then you can get pessimistic.
+
+62 quotes

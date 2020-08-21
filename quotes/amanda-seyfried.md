@@ -1,0 +1,74 @@
+ - Life experience is priceless.
+ - Anxiety, it just stops your life.
+ - I love my apartment in New York.
+ - I have jeans with holes in them and I have nice jeans. I have casual and I have dressy jeans. I’ve got all kinds.
+ - If you’re from Africa, why are you white?
+ - Maybe I should drive a hybrid. I do have a shirt that says, ‘Go Green.’
+ - Marriage, at this point in my life? I’m not interested in it. Yet. Maybe later when I’m 35 or 40.
+ - When you’re playing somebody who’s going through a lot – frustration and hardship – you’re just purging all your emotions, and it feels really good to do that.
+ - I’m too measured and controlling – about everything. That’s why I take Lexapro. It’s for OCD. I don’t feel like I’m struggling with it. I think OCD is a part of me that protects me. It’s also the part of me that I use in my job, in a positive way.
+ - You don’t have to listen to those mean girls. They’re just there to make you upset and make you feel bad about yourself. And you know, inside, they feel bad about themselves too. But they don’t wanna admit it to anybody.
+ - It changes you a little bit every time you either break someone’s heart or get your heart broken.
+ - It’s sad, actually, because my anxiety keeps me from enjoying things as much as I should at this age.
+ - Singing was my first love and I never even considered it after I started acting, but now I’m bringing it back into my life.
+ - I’m not really into clubbing, I like to go to parties after events, and those do end up at clubs or bars. But in my free time I go grocery shopping or to the gym, or I talk on the phone.
+ - It’s nice to finally be thought of as sexy. I’m very disconnected from the sensual side of me, I know it’s in me, but it doesn’t really reveal itself very often in my personal life, which I do find problematic.
+ - I am most scared of being bored.
+ - It’s very easy for me to gain weight. Even though I tried not eating for a week when I was really young, I couldn’t do it any longer because I liked my food too much.
+ - I’m good with getting older, because I feel like one day, I know I will love myself. I can’t imagine staying at one age. Ideally, I’d want to be 20 physically but 40 mentally.
+ - Do I really want to spend my whole life trying not to die by mistake?
+ - People are made up of flaws.
+ - I’m a big fan of moustaches. I think it’s because – and this is not Freudian innuendo at all – my father has a moustache.
+ - Maybe people in Hollywood wear really nice clothes, and they drive really nice cars, but that doesn’t make me comfortable. And if I’m not comfortable, it won’t be a part of my life.
+ - We all get stuck. We all lose ourselves a little bit in a fantasy or in our jobs and forget how we feel about other things. It’s really important to check yourself, to spend some time alone.
+ - I would love to live in Paris and speak French. That would make me feel glamorous!
+ - My sister keeps me grounded.
+ - I don’t dye my hair and I can go without makeup.
+ - Oh yeah, I think about kids all the time. I feel like the next person I commit to, that’s going to be the guy who I’m going to have kids with. That’s in my crazy female brain. So that’s why I’m like, ‘I can’t commit.’
+ - Making people laugh is magic. I feel like if you have humility, then you can do anything in comedy.
+ - The main thing you can change is how you perceive yourself. Stop looking in the mirror and realize that youre living for yourself, not other people.
+ - I was naturally skinny and had braces, so I wasn’t a cute model.
+ - For the first time in my life I’m really happy to be unattached because I realise there is so much responsibility to having a partner.
+ - When you’re young, it’s hard not to get together with your costar.
+ - Singing is a way of releasing an emotion that you sometimes can’t portray when you’re acting.
+ - Nudity doesn’t scare me at all; the only thing about it is the perception by the audience.
+ - Intimacy is a wonderful thing. It’s frustrating that growing up I thought it was wrong. It isn’t. Exploring your sexuality is important when you’re growing up.
+ - It’s really easy to avoid the tabloids. You just live your life and don’t hang out with famous people who are in the tabloids. Don’t do anything controversial and be a normal person. Have friends. And get a job and keep working.
+ - If you can’t pronounce a word correctly, just don’t use it.
+ - I didn’t like fairy tales when I was younger. I found a lot of fairy tales scary. They really didn’t sit well with me.
+ - My dad, he is such a soft man. Even if he has these opinions about my boyfriends, he will be the sweetest guy. He will make you feel like you’re fascinating and awesome, even if he doesn’t like you that much.
+ - I went to four different proms in high school. I was addicted to the whole ballroom thing.
+ - It was a big deal to me to play characters and feel things and connect to somebody in a fake world.
+ - The risk for me has to do with the nudity aspects. I’m an American actress in mainstream movies, and I would like to always be able to do them. For some reason, nudity is perceived differently here than it is elsewhere, and I didn’t want to lose any American audience that I was building.
+ - I have a dirty mouth sometimes, and I’m very liberal, and that doesn’t always go down well in the film industry – especially when you’ve got to appeal to mums and daughters.
+ - I’m most comfortable in my birthday suit.
+ - I’ve auditioned for roles that involved voice, but I don’t like it. I feel like, I can’t do this in front of you. It seems so separate – I don’t share it with a lot of people. And I’m not into public performances.
+ - I spend too much time on the Internet. But I do love knitting. Actually, I do more knitting when I’m working.
+ - I just like to do covers, every once in a while. If someone pays me to go into the studio, I’ll do it.
+ - I happen to be really a romantic.
+ - Hollywood is just like high school. The popular people only like the other popular people. And the thing is, some people aren’t nice – or they’re nice, but only to your face, not elsewhere.
+ - I have only really gotten by with playing versions of myself as most young actors do.
+ - A film set is really delicate and people treat you very very well if you’re an actor because they want you to be as comfortable as possible for you to do your work, but it really is just one in a team of many and usually 150 people.
+ - I don’t want to become a brand and I certainly don’t want to have a persona.
+ - I always wanted to make people feel something.
+ - My focus is to not focus too much on one genre.
+ - I went to art school when I was little.
+ - I don’t want to be in magazines everyday, because I don’t want people to get used to one thing.
+ - I guess I would ideally want to be 20 physically, but 40 mentally.
+ - The funny thing is, the girls that I’m always up against for roles are pretty nice and cool, like Emma Watson. She’s awesome.
+ - I have to feel good on the inside to look glamorous.
+ - I make hats. I’m on a hat frenzy. I’m on my eighth and I love it.
+ - I think I’m past the age of getting lost.
+ - I went to art school when I was little. I took ballet lessons. I played a little kick ball. I was sort of into everything because I had too much energy and I didn’t know where to put it. When I was a preteen, I got into singing, and became really obsessed with it.
+ - I’m pretty sure I would never do a full frontal in a movie – for personal reasons, I wouldn’t really want to show that.
+ - I think the era of the diva actress is coming to an end.
+ - There are a lot of scripts that you can like, but rarely are there directors attached when you’re in development with something and that’s stressful.
+ - There are definitely reasons to do certain things, but I like to stick to good director, good actor, good script.
+ - I’m never going to be with a guy that can’t deal with my friendship with him.
+ - A smoky eye and nice hair are not going to make my night any easier.
+ - Being professional is just really clearly the way to go and helps you on the road to longevity.
+ - I have realized that I hate going to the premieres of the movies that I’m in. Because I feel this tension after the movie is over that everyone feels obligated to say something nice to you. It’s so unnatural and uncomfortable.
+ - Actors are separated all the time.
+ - I think it’s probably a bad idea for young boys to see how they’re being depicted in men’s fantasies. It could get very dark. You could learn how to do things wrong.
+
+72 quotes

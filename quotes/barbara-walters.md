@@ -1,0 +1,58 @@
+ - Work harder than everybody. You’re not going to get it by whining, and you’re not going to get it by shouting, and you’re not going to get it by quitting. You’re going to get it by being there.
+ - Just do your job. Get in early. Stay late, and don’t complain. Fight the big fights.
+ - The hardest thing you will ever do is trust yourself.
+ - Show me someone who never gossips, and I’ll show you someone who isn’t interested in people.
+ - Life sometimes brings enormous difficulties and challenges that seem just too hard to bear. But bear them you can, and bear them you will, and your life can have a purpose.
+ - Deep breaths are very helpful at shallow parties.
+ - Being a parent is tough. If you just want a wonderful little creature to love, you can get a puppy.
+ - The news media in general are liberals.
+ - If you were a tree, what kind would you be?
+ - People sinking into self-pity and depression are dreary, but they can’t get out of it by themselves. So every now and then, just sit there and listen, and listen, and listen. You’re paying your membership dues in the human race.
+ - Most of us have trouble juggling. The woman who says she doesn’t is someone whom I admire but have never met.
+ - Wait for those unguarded moments. Relax the mood and, like the child dropping off to sleep, the subject often reveals his truest self.
+ - The way you dress is the billboard that tells perceptive people how you feel about yourself.
+ - A good laugh makes any interview, or any conversation, so much better.
+ - If it’s a woman, it’s caustic; if it’s a man, it’s authoritative.
+ - To feel valued, to know, even if only once in a while, that you can do a job well is an absolutely marvelous feeling.
+ - Every genius I have met could be classified as crazy by most people. They possess the highest level of sanity that us people find difficult to understand and accept.
+ - To excel is to reach your own highest dream. But you must also help others, where and when you can, to reach theirs. Personal gain is empty if you do not feel you have positively touched another’s life.
+ - When you’re interviewing someone, you’re in control. When you’re being interviewed, you think you’re in control, but you’re not.
+ - It would be nice to feel that we are a better world, a world of more compassion and a world of more humanity, and to believe in the basic goodness of man.
+ - Large cocktail parties are an infamous technique for ridding yourself of social obligations to people you usually don’t know well or like much, which is such an unpromising beginning that I’ve rarely known one that recovered and turned into a great party.
+ - Don’t worry about finding your bliss right now. Not even our President knew what his bliss was, nor did I. One of these days to your own surprise, your bliss will find you. But no matter what you do, participate, be there, full force, full heart, full steam ahead.
+ - I was the kind nobody thought could make it. I had a funny Boston accent. I couldn’t pronounce my R’s. I wasn’t a beauty.
+ - Don’t confuse being stimulating with being blunt.
+ - A Hot Fudge Sundae and a trashy novel is my idea of heaven.
+ - First of all, the Jewish religion has a great deal in common with the Christian religion because, as Rabbi Gillman points out in the show, Christianity is based on Judaism. Christ was Jewish.
+ - I find very often people like to confront rumors. It depends on how much they trust you. And you have to have a line between what is tasteful and what isn’t.
+ - Most attractive males talk to most attractive women as if they were Rotarians comparing sales percentages in Des Moines.
+ - I can get a better grasp of what is going on in the world from one good Washington dinner party than from all the background information NBC piles on my desk.
+ - Homogeneity is much to be admired – in milk, for instance – but not for parties.
+ - Small children do not belong at an adult party, and especially should not be used like trained midgets to help serve martinis.
+ - Success can make you go one of two ways. It can make you a prima donna – or it can smooth the edges, take away the insecurities, let the nice things come out.
+ - I found it interesting that as people become more technically oriented all over the world, at the same time people are becoming increasingly spiritual. The success of the Da Vinci code – even though it was a great yawn – also showed people’s interest in religion.
+ - Parents of young children should realize that few people, and maybe no one, will find their children as enchanting as they do.
+ - A conversation isn’t a competition.
+ - A job is not a career. I think I started out with a job. It turned into a career and changed my life.
+ - If it’s a woman it’s caustic, if it’s a man it’s authority, If it’s a woman it’s too pushy, if it’s a man it’s aggressive in the best sense of the word.
+ - For Castro, freedom starts with education. And if literacy alone were the yardstick, Cuba would rank as one of the freest nations on Earth. The literacy rate is 96 percent.
+ - All of the religions – with the exception of Tibetan Buddhism, which doesn’t believe in a heaven – teach that heaven is a better place. At the end of the program, I say that heaven is a place where you are happy. All of the religions have that in common.
+ - A great many people think that polysyllables are a sign of intelligence and refinement so they think they will impress others with their command of obscure words.
+ - New York is a galaxy of adventure at once elegant, exciting and bizarre. It’s a city that moves so fast, it takes energy just to stand still.
+ - I didn’t get ahead by sleeping with people. Girls, take heart!
+ - I also found that for myself, since I’ve had no religious education, it was so interesting to see the different versions of heaven and what life on earth means.
+ - The origin of a modern party is anthropological: humans meet and share food to lower hostility between them and indicate friendship.
+ - Because there are so many shows on and because I’ve been so hands-on – I’ve had a piece on almost every single week – I don’t know how to cut back on that. You really can’t.
+ - Celebrities used to be found in clusters, like oysters – and with much the same defensive mechanisms.
+ - I didn’t have a very religious family.
+ - No one could ad lib like Peter. You would think that it was all scripted, he was so poetic, but it wasn’t.
+ - I don’t know about you, but I can never get enough David Letterman.
+ - I think most working relationships could benefit by excluding personal matters from the office chatter.
+ - And I really do believe that the most important thing is the way you live your life on earth. But I think it’s enormously comforting to believe that you’re going to see your loved ones.
+ - The news media in general are liberal. If you want to be a reporter, you are going to see poverty and misery, and you have to be involved in the human condition.
+ - The aging process seems to strike first at the mechanism which warns that we have been talking too much and the listener is growing restless. The signal isn’t perfect at any age – drink, for instance, throws it right out of kilter – but it is almost non-existent in old people.
+ - It’s a fact that it is much more comfortable to be in the position of the person who has been offended than to be the unfortunate cause of it.
+ - To not sing with an orchestra, to not be able to communicate through my voice, which I’ve done all my life, and not to be able to phrase lyrics and give people that kind of joy, I think I would be totally devastated.
+ - Although I myself don’t go to church or synagogue, I do, whether it’s superstition or whatever, pray every time I get on a plane. I just automatically do it. I say the same thing every time.
+
+56 quotes

@@ -1,0 +1,42 @@
+ - Fight for your dreams, and your dreams will fight for you. ~~Paulo Coelho
+ - To win any battle, you must fight as if you are already dead. ~~Miyamoto Musashi
+ - The only reason a warrior is alive is to fight, and the only reason a warrior fights is to win. ~~Miyamoto Musashi
+ - Never stop. Never stop fighting. Never stop dreaming. ~~Tom Hiddleston
+ - If you build an army of 100 lions and their leader is a dog, in any fight, the lions will die like a dog. But if you build an army of 100 dogs and their leader is a lion, all dogs will fight as a lion. ~~Napoleon
+ - If you’re going to try, go all the way. There is no other feeling like that. You will be alone with the gods, and the nights will flame with fire. You will ride life straight to perfect laughter. It’s the only good fight there is. ~~Charles Bukowski
+ - Anyone who fights for the future, lives in it today. ~~Ayn Rand
+ - Learn to value yourself, which means: fight for your happiness. ~~Ayn Rand
+ - I’ve always believed that you should never, ever give up and you should always keep fighting even when there’s only a slightest chance. ~~Michael Schumacher
+ - Instead of fighting the darkness, you bring in the light. ~~Eckhart Tolle
+ - If you see me in a fight with a bear, pray for the bear. ~~Kobe Bryant
+ - Everybody you fight is not your enemy and everybody who helps you is not your friend. ~~Mike Tyson
+ - Whatever you fight, you strengthen, and what you resist, persists. ~~Eckhart Tolle
+ - There comes a time when you have to drop your burdens in order to fight for yourself and your dreams. ~~Les Brown
+ - Face adversity head on in your training and you will conquer it smoothly in your fight. ~~Conor McGregor
+ - Always fight for quality, whether giving or receiving. ~~Walt Disney
+ - Be motivated like the falcon, hunt gloriously. Be magnificent as the leopard, fight to win. Spend less time with nightingales and peacocks. One is all talk, the other only color. ~~Rumi
+ - If you find yourself in a fair fight, your tactics suck. ~~John Steinbeck
+ - We are rebels for a cause, poets with a dream, and we won’t let this world die without a fight. ~~Albert Camus
+ - Life is a fight for territory and once you stop fighting for what you want, what you don’t want will automatically take over. ~~Les Brown
+ - If you are going to try, go all the way or don’t even start. If you follow it you will be alive with the gods. It is the only good fight there is. ~~Charles Bukowski
+ - He who fights, can lose. He who doesn’t fight, has already lost. ~~Bertolt Brecht
+ - Don’t just get involved. Fight for your seat at the table. Better yet, fight for a seat at the head of the table. ~~Barack Obama
+ - How much can you know about yourself if you’ve never been in a fight? ~~Chuck Palahniuk
+ - Real champions fight through adversity. ~~Conor McGregor
+ - The supreme art of war is to subdue the enemy without fighting. ~~Sun Tzu
+ - The secret of change consists in concentrating one’s energy to create the new, and not to fight against the old. ~~Dan Millman
+ - There’s a storm inside of us, a burning river, a drive. You push yourself further than anyone could think possible. You are never out of the fight. ~~Marcus Luttrell
+ - Most things will be okay eventually, but not everything will be. Sometimes you’ll put up a good fight and lose. Sometimes you’ll hold on really hard and realize there is no choice but to let go. Acceptance is a small, quiet room. ~~Cheryl Strayed
+ - I work hard and fight easy. ~~Conor McGregor
+ - Learn to be difficult when it counts. In school as in life, having a reputation for being assertive will help you receive preferential treatment without having to beg or fight for it every time. ~~Tim Ferriss
+ - I believe God will fight my battles for me. ~~Joel Osteen
+ - If we’re going to fight a disease, let’s fight one of the most terrible diseases of all, indifference. ~~Robin Williams
+ - Darkness is merely the absence of light, and fear is merely the absence of love. If we want to be rid of fear, we cannot fight it but must replace it with love. ~~Marianne Williamson
+ - The secret of change is to focus all of your energy, not on fighting the old, but on building the new. ~~Socrates
+ - The first rule of fight club is, you don’t talk about fight club. ~~Chuck Palahniuk
+ - The bird fights its way out of the egg. The egg is the world. Who would be born must first destroy a world. The bird flies to God. That God’s name is Abraxas. ~~Hermann Hesse
+ - The life of a designer is a life of fight. Fight against the ugliness. Just like a doctor fights against disease. For us, the visual disease is what we have around, and what we try to do is cure it somehow with design. ~~Massimo Vignelli
+ - Sometimes I am two people. Johnny is the nice one. Cash causes all the trouble. They fight. ~~Johnny Cash
+ - Be kind, for everyone you meet is fighting a harder battle. ~~Plato
+
+40 quotes

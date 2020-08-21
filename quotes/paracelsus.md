@@ -1,0 +1,78 @@
+ - Medicine is not only a science; it is also an art. It does not consist of compounding pills and plasters; it deals with the very processes of life, which must be understood before they may be guided.
+ - The dose makes the poison.
+ - I am different. Let this not upset you.
+ - Fasting is the greatest remedy – the physician within.
+ - The art of healing comes from nature, not from the physician. Therefore the physician must start from nature, with an open mind.
+ - Poison is in everything, and no thing is without poison. The dosage makes it either a poison or a remedy.
+ - All that man needs for health and healing has been provided by God in nature, the Challenge of science is to find it.
+ - All drugs are poisons the benefit depends on the dosage.
+ - In every human being there is a special heaven, whole and unbroken.
+ - The highest degree of a medicine is Love.
+ - Know that the philosopher has power over the stars, and not the stars over him.
+ - All things are poisons, for there is nothing without poisonous qualities. It is only the dose which makes a thing poison.
+ - The beginning of wisdom is the beginning of supernatural power.
+ - Time is a brisk wind, for each hour it brings something new.
+ - All things are poisons. It is simply the dose that distinguishes between a poison and a remedy.
+ - Medicine rests upon four pillars – philosophy, astronomy, alchemy, and ethics.
+ - Whether wine is a nourishment, medicine or poison is a matter of dosage.
+ - The main reason for healing is love.
+ - Since nothing is so secret or hidden that it cannot be revealed, everything depends on the discovery of those things that manifest the hidden.
+ - Thoughts create a new heaven, a new firmament, a new source of energy, from which new arts flow.
+ - Men who are devoid of the power of spiritual perception are unable to recognize anything that cannot be seen externally.
+ - All arts lie in man, though not all are apparent. Awakening brings them out. To be taught is nothing; everything is in man waiting to be awakened.
+ - The interpretation of dreams is a great art.
+ - Every physician must be rich in knowledge, and not only of that which is written in books; his patients should be his book, they will never mislead him.
+ - Anyone who imagines that all fruits ripen at the same time as the strawberries knows nothing about grapes.
+ - The art of medicine has its roots in the heart.
+ - All numbers are multiples of one, all sciences converge to a common point, all wisdom comes out of one center, and the number of wisdom is one.
+ - Medicine is not merely a science but an art. The character of the physician may act more powerfully upon the patient than the drugs employed.
+ - Magic has power to experience and fathom things which are inaccessible to human reason. For magic is a great secret wisdom, just as reason is a great public folly.
+ - The human body is vapor materialized by sunshine mixed with the life of the stars.
+ - A little bit of beer is divine medicine.
+ - The ultimate cause of human disease is the consequence of our transgression of the universal laws of life.
+ - The right dose differentiates a poison from a remedy.
+ - The dreams which reveal the supernatural are promises and messages that God sends us directly: they are nothing but His angels, His ministering spirits, who usually appear to us when we are in a great predicament.
+ - Man is a microcosm, or a little world, because he is an extract from all the stars and planets of the whole firmament, from the earth and the elements; and so he is their quintessence.
+ - Some children are born from heaven and others are born from hell, because each human being has his inherent tendencies, and these tendencies belong to his spirit, and indicate the state in which he existed before he was born.
+ - The physician must give heed to the region in which the patient lives, that is to say, to its type and peculiarities.
+ - Every body consists of three ingredients. The names of these are Sulphur, Mercury, and Salt.
+ - Life is like music, it must be composed by ear, feeling and instinct, not by rule. Nevertheless one had better know the rules, for they sometimes guide in doubtful cases, though not often.
+ - It is said that a wise man rules over the stars, but this does not mean that he rules over the influences which come from the stars in the sky. It means that he rules over the powers which exist in his own constitution.
+ - Nature is a light, and by looking at Nature in her own light we will understand her. Visible Nature can be seen in her visible light; invisible Nature will become visible if we acquire the power to perceive her in her inner light.
+ - Women’s regular bleeding engenders phantoms.
+ - Could we but rightly comprehend the mind of man, nothing would be impossible to us upon the earth.
+ - Then God sends us such a messenger who appears to us in spirit, warns us, consoles us, teaches us, and brings us His good tidings.
+ - It should be forbidden and severely punished to remove cancer by cutting, burning, cautery, and other fiendish tortures. It is from nature that the disease comes, and from nature comes the cure, not from physicians.
+ - What the eyes perceive in herbs or stones or trees is not yet a remedy; the eyes see only the dross.
+ - Nature also forges man, now a gold man, now a silver man, now a fig man, now a bean man.
+ - Dreams must be heeded and accepted. For a great many of them come true.
+ - If we want to make a statement about a man’s nature on the basis of his physiognomy, we must take everything into account; it is in his distress that a man is tested, for then his nature is revealed.
+ - Man is ill because he is never still.
+ - The art of medicine cannot be inherited, nor can it be copied from books.
+ - The book of Nature is that which the physician must read; and to do so he must walk over the leaves.
+ - The most secure method, to ruin your health, is a SICK BED!
+ - That which lives on reason lives against the spirit.
+ - However, anyone to whom this happens should not leave his room upon awakening, should speak to no-one, but remain alone and sober until everything comes back to him, and he recalls the dream.
+ - Be not another, if you can be yourself.
+ - This is alchemy, and this is the office of Vulcan; he is the apothecary and chemist of the medicine.
+ - Many have said of Alchemy, that it is for the making of gold and silver. For me such is not the aim, but to consider only what virtue and power may lie in medicines.
+ - For one country is different from another; its earth is different, as are its stones, wines, bread, meat, and everything that grows and thrives in a specific region.
+ - We do not know it because we are fooling away our time with outward and perishing things, and are asleep in regard to that which is real within ourself.
+ - As you talk, so is your heart.
+ - Once a disease has entered the body, all parts which are healthy must fight it: not one alone, but all. Because a disease might mean their common death. Nature knows this; and Nature attacks the disease with whatever help she can muster.
+ - This process is alchemy: its founder is the smith Vulcan.
+ - What sense would it make or what would it benfit a physician if he discovered the origin of the diseases but could not cure or alleviate them?
+ - Everything is a drug; it depends on the dose.
+ - Dreams are not without meaning wherever thay may come from-from fantasy, from the elements, or from other inspiration.
+ - Nothing is hidden so much that it wouldn’t be revealed through its fruit.
+ - But is not He who created it for the sake of the sick body more than the remedy? And is not He who cures the soul, which is more than the body, greater?
+ - It would be an error to try to build the Kingdom of Heaven upon envy. For nothing that is founded on envy can thrive; it must have another root.
+ - Let no one who can be his own belong to another.
+ - From time immemorial artistic insights have been revealed to artists in their sleep and in dreams, so that at all times they ardently desired them.
+ - And it is true, best is nothing concealed which shall not be discovered; for which cause a marvellous being shall come after me, who as yet lives not, and who shall reveal many things.
+ - Consider that we shouldn’t call our brother a fool, since we don’t know ourselves what we are.
+ - Although Alchemy has now fallen into contempt, and is even considered a thing of the past, the physicain should not be influenced by such judgements.
+ - For it is we who must pray for our daily bread, and if He grants it to us, it is only through our labour, our skill and preparation.
+ - A mortal lives not through that breath that flows in and that flows out. The source of his life is another and this causes the breath to flow.
+
+76 quotes

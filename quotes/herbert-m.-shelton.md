@@ -1,0 +1,24 @@
+ - It is always a much easier task to educate uneducated people than to re-educate the mis-educated.
+ - Moderation is the only rule of a healthful life. This means moderation in all things wholesome.
+ - Surgeons can cut out everything except cause.
+ - Food-addiction, or food-drunkenness, is an old story in Hygienic literature. This is the first mention I have seen of it in “regular” medical literature. I fear to hope that its recognition spells progress.
+ - General Motors, General Mills, General Foods, general ignorance, general apathy, and general cussedness elect presidents and Congressmen and maintain them in power.
+ - In a fast, the body tears down its defective parts and then builds anew when eating is resumed.
+ - Cutting out bad habits is far more effective than cutting out organs.
+ - Old age is not a time of life. It is a condition of the body. It is not time that ages the body, it is abuse that does.
+ - If you desire truly to live you will cease trying to find magic tricks and short-cuts to life and learn the simple laws of being, and order your life in conformity with these. Realign your life with the laws of nature – this and this alone constitutes living to live.
+ - You don’t need treatment. The fever, inflammation, coughing, etc., constitute the healing process. Just get out of their way and permit them to complete their work. Don’t try to ‘aid’ nature. She doesn’t need your puny aid – she only asks that you cease interfering.
+ - What the sick need is teachers not treaters, health schools not hospitals, instruction not treatment, education in right living not training the sick habit. Both they and their advisors must get rid of the curing idea and the practices built up thereon.
+ - The so-called symptoms of disease are manifestations of an inherent principle of the organism to restore healthy function and to resist offending agents and influences.
+ - Although man has included meat in his diet for thousands of years, his anatomy and physiology, and the chemistry of his digestive juices, are still unmistakably those of a frugivorous animal.
+ - Health and disease are the same thing – vital action intended to preserve, maintain, and protect the body. There is no more reason for treating disease than there is for treating health.
+ - An intelligent person may be wrong sometimes, but a fool is never wrong. The medical profession is never wrong.
+ - Deep within the human constitution lie written laws of nature that should guide man in the conduct of his life.
+ - At the very dawn of history, the care of the sick was actually superior to what the great majority of mankind receive today when ill.
+ - Life should be built on the conservation of energy.
+ - There are but a few blood purifiers and these are all in the body. We know them as the liver, kidneys, lungs, colon, and a few glands.
+ - We cannot be damaged into health.
+ - There is not a single argument nor a single fact that can be offered in favour of flesh eating that cannot be offered, with equal strength, in favour of cannibalism.
+ - There are many things to resist, but disease is not one of them.
+
+22 quotes

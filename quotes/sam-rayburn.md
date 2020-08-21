@@ -1,0 +1,22 @@
+ - There’s no education in the second kick of a mule.
+ - Readiness for opportunity makes for success. Opportunity often comes by accident; readiness never does.
+ - If you want to get along, go along.
+ - Any jackass can kick down a barn, but it takes a good carpenter to build one.
+ - If a man has common sense, he has all the sense there is.
+ - No one has a finer command of language than the person who keeps his mouth shut.
+ - Son, if you can’t take their money, drink their whiskey, screw their women, and then vote against ’em, you don’t deserve to be here.
+ - Poverty only tries men’s souls. It is loneliness that breaks the heart.
+ - They may be just as intelligent as you say. But I’d feel a helluva lot better if just one of them had ever run for sheriff.
+ - Any man who will cheat for you will cheat against you.
+ - The real actor has a direct line to the collective heart.
+ - I will not deny that there are men in the district better qualified than I to go to Congress, but gentlemen, these men are not in the race.
+ - Don’t ever talk until you know what you are talking about.
+ - You’ll never get mixed up if you simply tell the truth. Then you don’t have to remember what you have said, and you never forget what you have said.
+ - There are no degrees in honorableness. You either are or you aren’t.
+ - Let the other fellow get the headlines. I’ll take the laws.
+ - When you get too big a majority, you’re immediately in trouble.
+ - A damn independent boy; independent as a hog on ice.
+ - I like power and I like to use it.
+ - Too many critics mistake the deliberations of the Congress for its decisions.
+
+20 quotes

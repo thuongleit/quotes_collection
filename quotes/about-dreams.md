@@ -1,0 +1,42 @@
+ - Dreams don’t work unless you do. ~~John C. Maxwell
+ - Every Morning You Have Two Choices: Continue To Sleep With Your Dreams, Or Wake Up and Chase Them. ~~Carmelo Anthony
+ - Dream big, stay positive, work hard, and enjoy the journey. ~~Urijah Faber
+ - Think, Believe, Dream, and Dare. ~~Walt Disney
+ - Study while others are sleeping; work while others are loafing; prepare while others are playing; and dream while others are wishing. ~~William Arthur Ward
+ - Fight for your dreams, and your dreams will fight for you. ~~Paulo Coelho
+ - The future starts today, not tomorrow. ~~Pope John Paul II
+ - Dreams are not what you see in your sleep, dreams are things which do not let you sleep. ~~Cristiano Ronaldo
+ - Never give up on your dreams. ~~Barack Obama
+ - Dream Big. Start small. Act now. ~~Robin S. Sharma
+ - The bridge between reality and a dream is work. ~~Jared Leto
+ - If you want to reach your goals and dreams, you cannot do it without discipline. ~~Lee Kuan Yew
+ - Go for it now. The future is promised to no one. ~~Wayne W. Dyer
+ - Don’t ever let someone tell you that you can’t do something. You got a dream, you gotta protect it. When people can’t do something themselves, they are going to tell you that you can’t do it. You want something, go get it. Period. ~~Will Smith
+ - All that we see or seem is but a dream within a dream. ~~Edgar Allan Poe
+ - Explore. Dream. Discover. ~~Mark Twain
+ - Fear is the most subtle and destructive of all human diseases. Fear kills dreams and hope. ~~Les Brown
+ - It takes a lot of courage to show your dreams to someone else. ~~Erma Bombeck
+ - Open your Eyes, for this World is only a Dream. ~~Rumi
+ - Believe in love. Believe in magic. Hell, believe in Santa Clause. Believe in others. Believe in yourself. Believe in your dreams. If you don’t, who will? ~~Jon Bon Jovi
+ - Be a voice not an echo. ~~Albert Einstein
+ - All of our dreams can come true. ~~Walt Disney
+ - Too many of us are not living our dreams because we are living our fears. ~~Les Brown
+ - The best way to make your dreams come true is to wake up. ~~Paul Valéry
+ - Each dream you leave behind is a part of your future that will no longer exist. ~~Steve Jobs
+ - Keep your dreams alive. Understand to achieve anything requires faith and belief in yourself, vision, hard work, determination, and dedication. Remember all things are possible for those who believe. ~~Gail Devers
+ - A dream doesn’t become reality through magic; it takes sweat, determination and hard work. ~~Colin Powell
+ - Never let your memories be greater than your dreams. ~~Douglas Ivester
+ - Fill your brain with giant dreams so it has no space for petty pursuits. ~~Robin S. Sharma
+ - You can’t have a million-dollar dream with a minimum-wage work ethic. ~~Stephen C. Hogan
+ - Build your own dreams, or someone else will hire you to build theirs. ~~Farrah Gray
+ - The dream is free. The hustle is sold separately. ~~Tyrese Gibson
+ - God knows the dreams and desires in your heart; in fact, He gave them to you. He will order your steps and take you where you need to be. ~~Joel Osteen
+ - Dream big, because dreams do happen. ~~Alex Morgan
+ - You’ve got to follow your passion. You’ve got to figure out what it is you love – who you really are. And have the courage to do that. I believe that the only courage anybody ever needs is the courage to follow your own dreams. ~~Oprah Winfrey
+ - I don't paint dreams or nightmares, I paint my own reality. ~~Frida Kahlo
+ - The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way. ~~Robert T. Kiyosaki
+ - A good life is when you assume nothing, do more, smile often, dream big, laugh a lot and realize how blessed you are for what you have. ~~Zig Ziglar
+ - In a world filled with hate, we must still dare to hope. In a world filled with anger, we must still dare to comfort. In a world filled with despair, we must still dare to dream. And in a world filled with distrust, we must still dare to believe. ~~Michael Jackson
+ - To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to. ~~Khalil Gibran
+
+40 quotes

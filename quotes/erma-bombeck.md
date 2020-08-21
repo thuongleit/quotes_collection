@@ -1,0 +1,257 @@
+ - It takes a lot of courage to show your dreams to someone else.
+ - Worry is like a rocking chair: it gives you something to do but never gets you anywhere.
+ - Kids need love the most when they’re acting most unlovable.
+ - I am not a glutton – I am an explorer of food.
+ - There’s nothing sadder in this world than to awake Christmas morning and not be a child.
+ - Pregnancy is the only time in a woman’s life she can help God work a miracle.
+ - Volunteers are the only human beings on the face of the earth who reflect this nation’s compassion, unselfish caring, patience, and just plain love for one another.
+ - A child needs your love most when he deserves it least.
+ - Cleanliness is not next to godliness. It isn’t even in the same neighborhood.
+ - Seize the moment. Remember all those women on the ‘Titanic’ who waved off the dessert cart.
+ - If Life is a Bowl of Cherries, What Am I Doing in the Pits?
+ - There is a thin line that separates laughter and pain, comedy and tragedy, humor and hurt.
+ - If I had my life to live over I would have burned the pink candle sculpted like a rose before it melted in storage.
+ - When you look like your passport photo, it’s time to go home.
+ - If you can’t make it better, you can laugh at it.
+ - Cleanliness is not next to godliness. It isn’t even in the same neighborhood. No one has ever gotten a religious experience out of removing burned-on cheese from the grill of the toaster oven.
+ - The grass is always greener over the septic tank.
+ - The odds of going to the store for a loaf of bread and coming out with only a loaf of bread are three billion to one.
+ - My sister and I never engaged in sibling rivalry. Our parents weren’t that crazy about either one of us.
+ - Time. It hangs heavy for the bored, eludes the busy, flies by the for young, and runs out for the aged.
+ - As a graduate of the Zsa Zsa Gabor School of Creative mathematics, I honestly do not know how old I am.
+ - When humor go’s, there go’s civilization.
+ - Shopping is a woman thing. It’s a contact sport like football. Women enjoy the scrimmage, the noisy crowds, the danger of being trampled to death, and the ecstasy of the purchase.
+ - Let me put it this way. According to my girth, I should be a ninety-foot redwood.
+ - Before you try to keep up with the Joneses, be sure they’re not trying to keep up with you.
+ - Never accept a drink from a urologist.
+ - Some emotions don’t make a lot of noise. It’s hard to hear pride. Caring is real faint – like a heartbeat. And pure love – why, some days it’s so quiet, you don’t even know it’s there...
+ - With boys, you always know where you stand. Right in the path of a hurricane.
+ - Cleaning the house while the children are home is like shoveling while it’s still snowing.
+ - Never go to a doctor whose office plants have died.
+ - I have a theory about the human mind. A brain is a lot like a computer. It will only take so many facts, and then it will go on overload and blow up.
+ - My theory on housework is, if the item doesn’t multiply, smell, catch fire, or block the refrigerator door, let it be. No one else cares. Why should you?
+ - When you’re lecturing teenagers and they begin to hum and leave the room, you can sense there is hostility.
+ - A member of the committee slapped a name tag over my left bosom. “What shall we name the other one?” I smiled. She was not amused.
+ - If the nest is truly empty, who owns all this junk?
+ - The term ‘working mother’ is redundant.
+ - When your mother asks, ‘Do you want a piece of advice?’ it is a mere formality. It doesn’t matter if you answer yes or no. You’re going to get it anyway.
+ - When children reach the age of sixteen, they discover the meaning of life: car keys.
+ - If I raised my hand to wipe the hair out of my children’s eyes, they’d flinch and call their attorney.
+ - Encourage independence in your children by regularly losing them in the supermarket.
+ - Children make your life important.
+ - Never lend your car to anyone to whom you have given birth.
+ - Know the difference between success and fame. Success is Mother Teresa. Fame is Madonna.
+ - Women are never what they seem to be. There is the woman you see and there is the woman who is hidden. Buy the gift for the woman who is hidden.
+ - Marriage has no guarantees. If that’s what you’re looking for, go live with a car battery.
+ - I’ve exercised with women so thin that buzzards followed them to their cars.
+ - It is not until you become a mother that your judgment slowly turns to compassion and understanding.
+ - No One Diets on Thanksgiving.
+ - I have a friend who lives by a three-word philosophy: Seize the Moment. Just possibly, she may be the wisest woman on this planet.
+ - Housework can kill you if done right.
+ - Giving birth is little more than a set of muscular contractions granting passage of a child. Then the mother is born.
+ - For years, my husband and I have advocated separate vacations. But the kids keep finding us.
+ - When it comes to cooking, five years ago I felt guilty “just adding water.” Now I want to bang the tube against the countertop and have a five-course meal pop out. If it comes with plastic silverware and a plate that self-destructs, all the better.
+ - There was a time when the respect and trust my children had for me would have made you sick to your stomach. They believed I could blow on a red traffic light and turn it green.
+ - Mother’s words of wisdom: Answer me! Don’t talk with food in your mouth!
+ - When you’re an orthodox worrier, some days are worse than others.
+ - Insanity is hereditary. You can catch it from your kids.
+ - Cats invented self-esteem; there is not an insecure bone in their body.
+ - Don’t worry about who doesn’t like you, who has more, or who’s doing what.
+ - She’s as funny as a toothache.
+ - My mother won’t admit it, but I’ve always been a disappointment to her. Deep down inside, she’ll never forgive herself for giving birth to a daughter who refuses to launder aluminium foil and use it over again.
+ - Did you ever notice that the first piece of luggage on the carousel never belongs to anyone?
+ - Thanksgiving dinners take eighteen hours to prepare. They are consumed in twelve minutes. Half-times take twelve minutes. This is not coincidence.
+ - The bad times I can handle. It’s the good times that drive me crazy. When is the other shoe going going to drop?
+ - I read one psychologist’s theory that said, “Never strike a child in your anger.” When could I strike him? When he is kissing me on my birthday? When he’s recuperating from measles? Do I slap the Bible out of his hand on Sunday?
+ - When my kids become wild and unruly, I use a nice, safe playpen. When they’re finished, I climb out.
+ - All of us have moments in our lives that test our courage. Taking children into a house with a white carpet is one of them.
+ - I never go to a college reunion that I don’t come away feeling sorry for all those paunchy, balding jocks trying to hang onto youth. I feel sorry for the men, too.
+ - I come from a family where gravy is considered a beverage.
+ - Why would anyone steal a shopping cart? It’s like stealing a two-year-old.
+ - In two decades I’ve lost a total of 789 pounds. I should be hanging from a charm bracelet.
+ - There is so much to teach, and the time goes so fast.
+ - When the going gets tough, the tough make cookies.
+ - The woman who says, ‘My kids are all speaking to one another and they love us’ is a psychopathic liar.
+ - Once you see the drivers in Indonesia you understand why religion plays such a part in their lives.
+ - The only reason I would take up jogging is so that I could hear heavy breathing again.
+ - Never underestimate what it takes to watch someone you love in pain.
+ - My son would walk to the refrigerator-freezer and fling both doors open and stand there until the hairs in his nose iced up. After surveying $200 worth of food in varying shapes and forms, he would declare loudly, ‘There’s nothing to eat!’
+ - One meal a day is enough for a lion and would be for all of us if all we did all day was swat flies.
+ - Housework is a treadmill from futility to oblivion with stop-offs at tedium and counter productivity.
+ - Good kids are like sunsets. We take them for granted.
+ - My kids always perceived the bathroom as a place where you wait it out until all the groceries are unloaded from the car.
+ - I used everything you gave me.
+ - You become about as exciting as your food blender. The kids come in, look you in the eye, and ask if anybody’s home.
+ - When a child is locked in the bathroom with water running and he says he’s doing nothing but the dog is barking, call 911.
+ - How come anything you buy will go on sale next week?
+ - The age of your children is a key factor in how quickly you are served in a restaurant. We once had a waiter in Canada who said, “Could I get you your check?” and we answered, “How about the menu first?”
+ - What’s with you men? Would hair stop growing on your chest if you asked directions somewhere?
+ - Hello there. I’m out social climbing, but if you leave your name and number and if you’re anybody, I’ll get back to you.
+ - I just clipped 2 articles from a current magazine. One is a diet guaranteed to drop 5 pounds off my body in a weekend. The other is a recipe for a 6 minute pecan pie.
+ - Most children’s first words are ‘Mama’ or ‘Daddy.’ Mine were, ‘Do I have to use my own money?’
+ - I have just come up with a wonderful solution to end all wars. Let me give directions on how to get there.
+ - Good kids are like sunsets. We take them for granted. Every evening they disappear. Most parents never imagine how hard they try to please us, and how miserable they feel when they think they have failed.
+ - Let us hope manufacturers can come up with a diaper that is environmentally sound. To go back to cloth would send us back to the day when breathing and raising a baby at the same time were incompatible.
+ - A grandparent will help you with your buttons, your zippers, and your shoelaces and not be in any hurry for you to grow up.
+ - If I had my life to live over, instead of wishing away nine months of pregnancy, I’d have cherished ever moment and realized that the wonderment growing inside me was the only chance in life to assist God in a miracle.
+ - With boys you always know where you stand. Right in the path of a hurricane. It’s all there. The fruit flies hovering over their waste can, the hamster trying to escape to cleaner air, the bedrooms decorated in Early Bus Station Restroom.
+ - My idea of housework is to sweep the room with a glance.
+ - I got so much food spit back in my face when my kids were small, I put windshield wipers on my glasses.
+ - Never order food in excess of your body weight.
+ - You hear a lot of dialogue on the death of the American family. Families aren’t dying. They’re merging into big conglomerates.
+ - As a child, my number one best friend was the librarian in my grade school. I actually believed all those books belonged to her.
+ - It is my theory you can’t get rid of fat. All you can do is move it around, like furniture.
+ - Guilt: the gift that keeps on giving.
+ - No self-respecting mother would run out of intimidations on the eve of a major holiday.
+ - The fact was I didn’t want to look my age, but I didn’t want to act the age I wanted to look either. I also wanted to grow old enough to understand that sentence.
+ - I worry about scientists discovering that lettuce has been fattening all along.
+ - Some say our national pastime is baseball. Not me. It’s gossip.
+ - Friends are “annuals” that need seasonal nurturing to bear blossoms. Family is a “perennial” that comes up year after year, enduring the droughts of absence and neglect. There’s a place in the garden for both of them.
+ - Why take pride in cooking, when they don’t take pride in eating?
+ - House guests should be regarded as perishables: Leave them out too long and they go bad.
+ - Most women put off entertaining until the kids are grown.
+ - Like religion, politics, and family planning, cereal is not a topic to be brought up in public. It’s too controversial.
+ - People shop for a bathing suit with more care than they do a husband or wife. The rules are the same. Look for something you’ll feel comfortable wearing. Allow for room to grow.
+ - I didn’t fear old age. I was just becoming increasingly aware of the fact that the only people who said old age was beautiful were usually twenty-three years old.
+ - I lost everything in the post-natal depression.
+ - I would have invited friends over to dinner even if the carpet was stained, or the sofa faded.
+ - I don’t know when pepper mills in a restaurant got to be right behind frankincense and myrrh in prominence. It used to be in a little jar that sat next to the salt on the table and everyone passed it around, sneezed, and it was no big deal.
+ - Spend at least one Mother’s Day with your respective mothers before you decide on marriage. If a man gives his mother a gift certificate for a flu shot, dump him.
+ - Our teen-agers withdrew to their bedrooms on their thirteenth birthday and didn’t show themselves to us again until it was time to get married.
+ - I do not participate in any sport with ambulances at the bottom of the hill.
+ - Humorists can never start to take themselves seriously. It’s literary suicide.
+ - Do I have to use my own money?
+ - Success is outliving your failures.
+ - Poached eggs are good, poached animals are not.
+ - I was leafing through a magazine where there was a before-and-after picture of a woman who went from a size 5 to a size 3 by liposuction. Was she serious? I’ve cooked bigger turkeys than her “before” picture.
+ - For some unexplained reason, it’s always the other end of the table that’s wild and raucous, with screaming laughter and a fella who plays ‘Holiday for Strings’ on water glasses.
+ - Dreams have only one owner at a time. That’s why dreamers are lonely.
+ - The hippopotamus is a vegetarian and looks like a wall. Lions who eat only red meat are sleek and slim. Are nutritionists on the wrong track?
+ - A grandmother pretends she doesn’t know who you are on Halloween.
+ - People are always asking couples whose marriage has endured at least a quarter of a century for their secret for success. Actually, it is no secret at all. I am a forgiving woman. Long ago, I forgave my husband for not being Paul Newman.
+ - If God had meant us to walk around naked, he would never have invented the wicker chair.
+ - Laugh now, cry later.
+ - The fact that Americans drag around the world by the busloads to glimpse the past probably has something to do with the youth of our country. We revere anything older than George Burns.
+ - Grandparenthood is one of life’s rewards for surviving your own children.
+ - After age twelve, birthdays should be as private as hernia surgery.
+ - I firmly believe kids don’t want your understanding. They want your trust, your compassion, your blinding love and your car keys, but you try to understand them and you’re in big trouble.
+ - Limousines used to be reserved for the ruling class, or, on special occasions, for the working class. Today, limousines are like taxicabs with the door handles still intact.
+ - Crocodiles have a smile I’ve seen on the face of every lawyer I’ve ever met.
+ - No one ever died from sleeping in an unmade bed. I have known mothers who remake the bed after their children do it because there is wrinkle in the spread or the blanket is on crooked. This is sick.
+ - I didn’t fight my way to the top of the food chain to be a vegetarian.
+ - Phone are wonderful instruments, but I wouldn’t want our daughter to marry one.
+ - I was trampled to death by a man who believed his luggage would be the first piece off. If he were an experienced traveler, he would know that the first piece of luggage belongs to no one. It’s just a dummy suitcase to give everyone hope.
+ - All of a sudden, I feel very old and very tired. Maybe when I get to California, the smog, brush fires, floods, and earthquakes will cheer me up.
+ - Next to hot chicken soup, a tattoo of an anchor on your chest, and penicillin, I consider a honeymoon one of the most overrated events in the world.
+ - Just think of all those women on the Titanic who said, ‘No thank you’ to desert that night. And for what?!
+ - With girls, everything looks great on the surface. But beware of drawers that won’t open. They contain a three-month supply of dirty underwear, unwashed hose, and rubber bands with blobs of hair in them.
+ - Every puppy should have a boy.
+ - Have you any idea how many children it takes to turn off one light in the kitchen Three. It takes one to say What light and two more to say I didn’t turn it on.
+ - Families aren’t easy to join. They’re like an exclusive country club where membership makes impossible demands and the dues for an outsider are exorbitant.
+ - Laughter rises out of tragedy when you need it the most, and rewards you for your courage.
+ - A friend doesn’t go on a diet because you are fat. A friend never defends a husband who gets his wife an electric skillet for her birthday. A friend will tell you she saw your old boyfriend – and he’s a priest.
+ - There is nothing more miserable in the world than to arrive in paradise and look like your passport photo.
+ - Cats invented self-esteem.
+ - I have seen my kid struggle into the kitchen in the morning with outfits that need only one accessory: an empty gin bottle.
+ - Having a delivery covered by Medicare just isn’t going to fly. It’s too risky for a woman to put a baby down and not remember where she left it.
+ - It was a bitter moment for us. We weren’t two mature parents. We were just two kids playing grown-up. We still needed Mommy and Daddy’s permission, blessings, and money to survive.
+ - Don’t confuse fame with success. Madonna is one; Helen Keller is the other.
+ - Someone once threw me a small, brown, hairy kiwi fruit, and I threw a wastebasket over it until it was dead.
+ - God created man, but I could do better.
+ - For the first two years of a child’s life, we spend every waking hour tryibg to get the child to communicate. Then we spend the rest of our lives trying to figure out how we can reverse the process.
+ - There’s something wrong with a mother who washes out a measuring cup with soap and water after she’s only measured water in it.
+ - If a man watches three football games in a row, he should be declared legally dead.
+ - My second favorite household chore is ironing. My first being hitting my head on the top bunk bed until I faint.
+ - Myths that need clarification: “Everyone in California lives on a white, sandy beach.” False. The only people who live on California beaches are vacationers from Arizona, Utah, and Nevada who own condos.
+ - Being a child at home alone in the summer is a high-risk occupation. If you call your mother at work thirteen times an hour, she can hurt you.
+ - I have a hat. It is graceful and feminine and give me a certain dignity, as if I were attending a state funeral or something. Someday I may get up enough courage to wear it, instead of carrying it.
+ - A kitchen without an ironing board? Are you kidding? It’s un-American. It’s like Simon without Garfunkel.
+ - In the South Pacific, because of their size, mosquitoes are required to file flight plans.
+ - A friend never defends a husband who gets his wife an electric skillet for her birthday.
+ - A child develops individuality long before he develops taste.
+ - I will buy any creme, cosmetic, or elixir from a woman with a European accent.
+ - No one ever died from sleeping in an unmade bed.
+ - On vacations: We hit the sunny beaches where we occupy ourselves keeping the sun off our skin, the saltwater off our bodies, and the sand out of our belongings.
+ - A friend doesn’t go on a diet because you are fat.
+ - People usually survive their illnesses, but the paper work eventually does them in. Filing a claim for insurance is terminal.
+ - Any mother with half a skull knows that when Daddy’s little boy becomes Mommy’s little boy, the kid is so wet he’s treading water.
+ - Never go to your high school reunion pregnant or they will think that is all you have done since you graduated.
+ - My son did not show signs of a money deficiency until he opened his small fist in the nursery and found it was empty.
+ - Grandma told me Mama was once caught by the Principal for writing in the front of her book, “In Case of Fire, Throw This in First.” I have never had so much respect for Mama as the day I heard this.
+ - It would have been a wonderful wedding – had it not been mine.
+ - Thanks to my mother, not a single cardboard box has found its way back into society. We receive gifts in boxes from stores that went out of business twenty years ago.
+ - With all the precautions and risks that accompany sex today, it sounds about as much fun as walking through a minefield.
+ - I never leaf through a copy of National Geographic without realizing how lucky we are to live in a society where it is traditional to wear clothes.
+ - Maybe age is kinder to us than we think. With my bad eyes, I can’t see how bad I look, and with my rotten memory, I have a good excuse for getting out of a lot of stuff.
+ - You show me a boy who brings a snake home to his mother and I’ll show you an orphan.
+ - I have always felt cookbooks were fiction and the most beautiful words in the English language were ’room service.
+ - My idea of ‘roughing it’ is when you have to have an extension for your electric blanket.
+ - The Rose Bowl is the only bowl I’ve ever seen that I didn’t have to clean.
+ - Getting out of the hospital is a lot like resigning from a book club. You’re not out of it until the computer says you’re out of it.
+ - Who in their infinite wisdom decreed that Little League uniforms be white? Certainly not a mother.
+ - Babies on television never spit up on the Ultrasuede.
+ - When the history of guilt is written, parents who refuse their children money will be right up there in the Top Ten.
+ - Bombeck’s Rug Rule: an ugly carpet will last for ever.
+ - A small waist makes you tire easily.
+ - Remember, you can lead a fifty-seven-year-old body to motherhood, but you can’t make it stay awake.
+ - There are few things in this world more satisfying than having your son teach you how to play tennis, unless it is having a semi-truck run over your foot.
+ - Everyone I talked to was a recording-the bank, the elevator, your office, the school, a wrong number. You used to be able to call a wrong number and get a person.
+ - Babies should enjoy the freedom to vocalize whether it be in church, a public meeting place, during a movie, or after hours when the lights are out. They have not yet learned that joy and laughter have to last a lifetime and must be conserved.
+ - Before we sent kids to computer camps and told them they were having a good time, there was imagination among the human species.
+ - Housework, if you do it right, will kill you.
+ - I’m on a diet as my skin doesn’t fit me anymore.
+ - To my way of thinking, the American family started to decline when parents began to communicate with their children.
+ - A grandparent is the only baby-sitter who doesn’t charge more after midnight – or anything before midnight.
+ - It seemed rather incongruous that in a society of super sophisticated communication, we often suffer from a shortage of listeners.
+ - One thing they never tell you about child raising is that for the rest of your life, at the drop of a hat, you are expected to know your child’s name and how old he or she is.
+ - What does it profit a 78-year-old woman to sit around the pool in a bikini if she cannot feed herself?
+ - One never realizes how different a husband and wife can be until they begin to pack for a trip.
+ - I think it’s time we women stopped carrying supplies for the entire family. If children don’t have room to carry their own toys, if men don’t have pockets in their pants, tougho.
+ - One certainty when you travel is the moment you arrive in a foreign country, the American dollar will fall like a stone.
+ - Motherhood isn’t just a series of contractions; it’s a state of mind. From the moment we know life is inside us, we feel a responsibility to protect and defend that human being.
+ - I was too old for a paper route, too young for Social Security and too tired for an affair.
+ - We wondered why when a child laughed, he belonged to Daddy, and when he had a sagging diaper that smelled like a landfill, ‘He wants his mother.’
+ - Authorities say brain cells may shrink, but they don’t necessarily die. Frankly, I am cheered by the fact that something is shrinking. I’d be even more thrilled if what was shrinking affected my dress size, but you can’t have everything.
+ - Parenting is a negative thing. Keep your children from killing themselves, or anyone else, and hope for the best.
+ - I became hysterical and frightened and begged for sedation. And that was just the first prenatal visit.
+ - I’m so bored. I went to the food locker yesterday to visit my meat.
+ - In general my children refuse to eat anything that hasn’t danced in television.
+ - Housework, if it is done properly, can cause brain damage.
+ - Car designers are just going to have to come up with an automobile that outlasts the payments.
+ - Maybe you know why a child can reject a hot dog with mustard served on a soft bun at home, yet eat six of them two hours later at fifty cents each.
+ - I’ve always felt there are two things a woman should never do after the age of thirty-five: stand in natural light and have a baby...
+ - Early in my life I had made a pact with myself. I would never eat anything that moved when I cooked it, excited the dog, or inflated upon impact with my teeth.
+ - Sometimes I can’t figure designers out. It’s as if they flunked human anatomy.
+ - I don’t think women outlive men, Doctor. It only seems longer.
+ - Youngsters of the age of two and three are endowed with extraordinary strength. They can lift a dog twice their own weight and dump him into the bathtub.
+ - A grandparent will accept your calls from anywhere, collect.
+ - Never have more children than you have car windows.
+ - To say, “Well, I write when I really get into it” is a bunch of bull. Put the paper in the typewriter, stare at it a long time, get snowblindness if you have to, but write something.
+ - I’ve never vied for power in the family before. Pointing a box at the garage door and saying “Open!” was never a big deal, but holding that television tuner and realizing I alone control what is flashed on the screen brings out the Iacocca in me.
+ - Family life got better and we got our car back – as soon as we put ‘I love Mom’ on the license plate.
+ - It is fast approaching the point where I don’t want tAdenauer to want the job.
+ - No baby shall at any time be quartered in a house where there are no soft laps, no laughter, or no love.
+ - I was terrible at straight items. When I wrote obituaries, my mother said the only thing I ever got them to do was die in alphabetical order.
+ - I don’t know why no one ever thought to paste a label on the toilet-tissue spindle giving 1-2-3 directions for replacing the tissue on it. Then everyone in the house would know what Mama knows.
+ - I’ve always been intrigued with the variety of answers this generation will give their children who ask, “Where did I come from, Mommy?” They will range from “Number 176 vial in Buffalo, New York,” to “You were defrosted.”
+ - It is difficult to single out one sport over another, but if I have to name one in my separation suit, it will undoubtedly be football.
+ - I take a very practical view of raising children. I put a sign in each of their rooms: ‘Checkout Time is 18 years.’
+ - What we’re really talking about is a wonderful day set aside on the fourth Thursday of November when no one diets. I mean, why else would they call it Thanksgiving?
+ - I convinced him his luggage had gone to that big Bermuda Triangle in the sky.
+ - For some of us, watching a miniseries that lasts longer than most marriages is not easy.
+ - One son appears in stereo – a transistor in one ear and the phone in the other...
+ - Humor is a spontaneous, wonderful bit of an outburst that just comes. It’s unbridled, its unplanned, it’s full of suprises.
+ - I haven’t trusted polls since I read that 62% of women had affairs during their lunch hour. I’ve never met a woman in my life who would give up lunch for sex.
+ - It’s frightening to wake up one morning and discover that while you were asleep you went out of style.
+ - Onion rings in the car cushions do not improve with time.
+ - The mole rat is the only rodent born without a fur coat. With a good lawyer, someone would pay for that little oversight.
+ - If compliments were food, I’d have starved to death 28 years ago.
+ - A friend will tell you she saw your old boyfriend – and he’s a priest.
+ - Once you get a spice in your home, you have it forever. Women never throw out spices. The Egyptians were buried with their spices. I know which one I’m taking with me when I go.
+ - Some of the best fiction writers got their start writing airline menus.
+ - Those magazine dieting stories always have the testimonial of a woman who wore a dress that could slipcover New Jersey in one photo and thirty days later looked like a well-dressed thermometer.
+ - Somewhere it is written that parents who are critical of other people’s children and publicly admit they can do better are asking for it.
+ - Last year I gave seventy-four phone hours to soliciting baked goods for the Bake-A-Rama. I was named Top Call Girl by the League.
+ - I have paid as much as $300 a night to throw up into a sink shaped like a seashell.
+
+255 quotes

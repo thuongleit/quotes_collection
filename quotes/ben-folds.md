@@ -1,0 +1,55 @@
+ - The clock never stops, never stops, never waits. We’re growing old. It’s getting late.
+ - I love you more than I have ever found a way to say to you.
+ - Im really good at writing almost hits.
+ - If you’re afraid they might discover your redneck past, there are a hundred ways to cover your redneck past.
+ - The less I talk in bars, write emails, express myself in an emotionally lewd way outside of my songwriting, the more I have to do it through my music.
+ - I’m aware that I’m very fringe, and it’s nice that way.
+ - I’m not really a strange person or anything, so if there’s music I like, usually there’s other people who like it too.
+ - I feel like a quote out of context, withholding the rest so I can be for you what you want to see.
+ - I have manic energy. What can be done about it? I don’t know what to say sometimes. I’m professional in public, but I like to stay inside and be a hermit.
+ - I divorce myself from listeners who aren’t tolerant of humor. I did notice universally that, especially when it comes to weight, people look in the mirror and get the angle just right, tell themselves it’s all right, and then they go out.
+ - Because I write very simply, but inside the simplicity, there’s a lot of subtlety. That’s what I’m proud of.
+ - But I really do have a soft spot for the solo shows. Any musician who writes and sings will tell you thats the center of it, that is it. Its almost like theres something church-like about it and you gotta go back there, if youre a songwriter that sings your material.
+ - Next door, there’s an old man who lived to his nineties and one day passed away in his sleep. And his wife, she stayed for a couple of days and passed away. I’m sorry, I know that’s a strange way to tell you that I know we belong.
+ - And all I really want to say is you’re the reason I want to stay.
+ - I drink a lot, probably too much. My scene while writing lyrics is always a bottle of scotch and stacks of note cards, pencil and pencil sharpener. I throw around note cards and drink.
+ - The piano is just a different animal. It’s expensive, it’s big, it’s heavy, and it doesn’t fit in the mix easily. Everyone grew up with a piano in their living room, so rocking out on the piano was accessible – it wasn’t an upper-class thing. Now pianos have become very much a piece of furniture.
+ - Billy Joel and Joe Jackson were both great, and they both play piano.
+ - Off the coast and I’m headed nowhere.
+ - People learn at the rate they are going to learn.
+ - I think alcohol is a good drug for me when I’m writing. I don’t think I’ve ever had a problem with it. I can stop for a few weeks, so I think it’s okay. I don’t think it’s good for my liver, but I do love it. It’s a huge part of my life, and it makes me happy.
+ - You never know when you put out an album that’s unique whether it’ll get beat up for it or not.
+ - I could probably live in Bali the rest of my life and completely live in the sticks and have a f – king moped and make a record every couple of years and not step in public and break even like I do anyway. That’s really tempting.
+ - I’m older than I was, and I’m still washed-up, and I haven’t changed my music one iota. It’s just much easier to do this when people are being nice to you.
+ - The reason I stop playing songs is usually because I get sick of them, and then they find themselves back into the set list at some point.
+ - A lot of 18-year-olds are like old men. They think they’ve seen everything.
+ - The press is like any business. Its a group of really intelligent individuals that ends up being one slathering, one-eyed, drooling monster.
+ - It’s like being in the position of – in half of the industry’s mind, you’re kind of a cult-following, independent rocker. And on the other hand, you’re a sellout. But neither one of them are right.
+ - Rock and roll is – and should be – a kid’s place.
+ - If I’m in a relationship and my girlfriend is sleeping with other people, I don’t need to know who it is; I just want to know how she feels about it.
+ - What stupid f – king idiot gets married a second time if the first time didn’t work out?
+ - The nature of honesty is that if someone has information or knows something about you that you don’t want heard, then they have power over you.
+ - My parents told me I must get married. I was seen as a failure if I didn’t do it.
+ - White people don’t sing together very often, and when they do, it’s about the celebrity of the song. The singing at my shows is all about harmony.
+ - You can’t really control how people hear stuff. It’s hard to remember that. I have to let go of it.
+ - In many ways, I’ve chosen to be plain, almost too plain, too self-effacing. Like, if I record a vocal and I don’t like the way it sounds, I would have them turn it up and take the reverb off it to make it as plain as possible.
+ - Notes don’t make music until you learn to insert silence between them.
+ - I used to do this big rant at the end of some gigs with Ben Folds Five. The band broke into this big heavy metal thing and I started as a joke to scream in a heavy metal falsetto. I found myself saying things like: Feel my pain, I am white, feel my pain.
+ - I do think that when you make repeated mistakes, it’s usually because you’re just not coming to grips with something.
+ - I’m romantically inclined. No human being on Earth is not attracted to other people. There is no fairy tale that they only have eyes for you. You just choose to act on it or not.
+ - The nice thing about age is worrying less and less about what people think.
+ - I think people use temp music quite a bit, but the people who write the temp music don’t ever really learn that their music was inspiring a movie.
+ - Everyone, when you’re a teenager and you’re growing up, you do feel like your life is dramatic enough to be on a TV screen, but we know that it’s not.
+ - When someone really goes to tell you something about what they’re thinking, they’re going to wear that experience with them. That’s what you have to share.
+ - It’s a tough thing to know that when you’re making your album, you’re going to end up collaborating with, say, Wal-Mart, on your artwork. That just sucks. And the pressure behind getting the numbers real fast is, to me, dizzying.
+ - Even though I live in America more, I feel like when I go to Adelaide, that’s when I get to go home.
+ - I’ve gotten to the point where I realize that I need to tell my truth in music and not walk around blabbing my mind.
+ - The music business is a weird business. Sometimes licensing doesn’t happen because some business component that you never knew about stops it.
+ - I do have that mindset – that most good art comes from some turmoil, from someone trying to come to some equilibrium, or come up and get a breath.
+ - The way I see it, there’s only one melody for any song.
+ - I think a lot of good directors listen to music while they’re working. The songs just don’t become a part of the film. They’re replaced.
+ - There is still some art in pop music. But it can’t happen if you’re not inspired.
+ - Why would I want to sound like Joni Mitchell? I’ve got Joni Mitchell records, and they’re great, and I couldn’t possibly be that good.
+ - If the melody is telling me this is what the song is about, then I’m sort of forced into confession, autobiography or fantasy. If I don’t do that, I’ve hamstrung the melody.
+
+53 quotes

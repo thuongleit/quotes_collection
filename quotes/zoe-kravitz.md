@@ -1,0 +1,25 @@
+ - Beauty is when you can appreciate yourself. When you love yourself, that’s when you’re most beautiful.
+ - Im a total weirdo and have often felt like an outcast and a freak, and I love that. It makes things so much more exciting.
+ - It’s sad to have to leave your family but I like the idea of someone believing in something so strongly that are willing to find a new family.
+ - I’m not a very organized person.
+ - I’m lucky having parents that have been in show business for a while and they don’t care about the shiny stuff so much. They raised me in that way – to stay grounded, not to chase the shiny pretty things. I stay in the moment, because when you do that the hype goes away.
+ - Turquoise is my birthstone; Im a Sagittarius.
+ - People love teen movies because everyone can relate.
+ - I live in Brooklyn, in Williamsburg, so I just like to wander around. Williamsburg’s such a cool little neighborhood community spot.
+ - Fame has become this obsession for people, which kind of creeps me out.
+ - My style is very inspired by both my parents, so we all have the same taste.
+ - I’m happy to just sit in a cafe and watch people. It’s my favorite thing to do, for sure.
+ - If everyone is there to make a good film, everyone is down to earth, and everyone is there for the right reasons – the scale doesn’t really matter I think.
+ - I feel like most creative people are total freaks.
+ - My dad has totally taken my Cat Stevens T-shirt, but it’s OK; I have his Black Flag one, and that’s amazing.
+ - I’m pretty much a thrift shop gal. Flea markets on Sundays.
+ - I see the human in everyone and everything. No one is more important than anyone else; I still hang out with my high school friends.
+ - I’m a New Yorker; I’ve paid my dues.
+ - Anyone that is able to put a high school film and gonzo journalism together, it’s like, “Yes, please!”
+ - I don’t wear a lot of perfumey-perfumes because I think a lot of them smell like you’re wearing perfume. And I don’t want to smell like that.
+ - When you’re making an independent film and you care about it so much you do all the prep work beforehand.
+ - A lot of people do what their families do. Imagine if everyone in the family is a doctor and they decide to become an actor. Then people have to make those choices for themselves and their art and what they believe in.
+ - I would fly to Los Angeles just for a cheeseburger with pickles and extra tomatoes from In-N-Out.
+ - I’m obsessed with Juice Press – they’re everywhere. I spend so much money at that place it’s crazy.
+
+23 quotes

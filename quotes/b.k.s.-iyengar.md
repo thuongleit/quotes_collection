@@ -1,0 +1,245 @@
+ - Health is a state of complete harmony of the body, mind and spirit. When one is free from physical disabilities and mental distractions, the gates of the soul open.
+ - The body is your temple. Keep it pure and clean for the soul to reside in.
+ - Yoga is a mirror to look at ourselves from within.
+ - Yoga is when every cell of the body sings the song of the soul...
+ - Yoga is like music: the rhythm of the body, the melody of the mind, and the harmony of the soul create the symphony of life.
+ - Yoga allows you to find an inner peace that is not ruffled and riled by the endless stresses and struggles of life.
+ - The pose begins when you want to leave it.
+ - Breath is the king of mind.
+ - Change is not something that we should fear. Rather, it is something that we should welcome. For without change, nothing in this world would ever grow or blossom, and no one in this world would ever move forward to become the person they’re meant to be.
+ - Willpower is nothing but willingness to do.
+ - Yoga teaches us to cure what need not be endured and endure what cannot be cured.
+ - The primary aim of yoga is to restore the mind to simplicity and peace, and free it from confusion and distress.
+ - The art of teaching is tolerance. Humbleness is the art of learning.
+ - How can you know God if you don’t know your big toe?
+ - Change leads to disappointment if it is not sustained. Transformation is sustained change, and it is achieved through practice.
+ - When your body, mind and soul are healthy and harmonious, you will bring health and harmony to the world- not by withdrawing from the world, but by being a healthy, living organ of the body of humanity.
+ - Your body exists in the past and your mind exists in the future. In yoga, they come together in the present.
+ - The ultimate goal of yoga is to realize the brilliance of your soul.
+ - Focus on keeping your spine straight. It is the job of the spine to keep the brain alert.
+ - Yoga is firstly for individual growth, but through individual growth, society and community develop.
+ - Love begets courage, moderation creates abundance and humility generates power.
+ - Awareness must be like the rays of the sun: extending everywhere, illuminating all.
+ - The body is my temple, asanas are my prayers.
+ - You must purge yourself before finding faults in others. When you see a mistake in somebody else, try to find if you are making the same mistake. This is the way to take judgment and to turn it into improvement.
+ - Love begets courage, moderation creates abundance and humility generates power. Courage without love is brutish. Abundance without moderation leads to over-indulgence and decay. Power without humility breeds arrogance and tyranny.
+ - If you keep your armpits open, you won’t get depressed.
+ - In backbends, one touches the body physically, mentally, intellectually, consciously and spiritually everywhere.
+ - Purity is when there is no anxiety, no worry, no thinking.
+ - Healthy plants and trees yield abundant flowers and fruits. Similarly, from a healthy person, smiles and happiness shine forth like the rays of the sun.
+ - Hatha Yoga teaches us to use the body as the bow, asana as the arrow, and the soul the target.
+ - Giving does not impoverish us nor does withholding enrich us.
+ - Words cannot convey the value of yoga – it has to be experienced.
+ - The flexibility we gain in asana is the living symbol of the suppleness we gain in relation to life’s problems and challenges.
+ - True concentration is an unbroken thread of awareness.
+ - Asana done from the brain makes one heavy and done from the heart makes one light.
+ - Why should you practice Yoga? To kindle the divine fire within yourself. Everyone has a dormant spark of divinity in him which has to be fanned into flame.
+ - Yoga is the golden key that unlocks the door to peace, tranquility and joy.
+ - Balance in the body is the foundation for balance in life.
+ - When I practice, I am a philosopher. When I teach, I am a scientist. When I demonstrate, I am an artist.
+ - The aim of yoga is to calm the chaos of conflicting impulses.
+ - Yoga allows you to find a new kind of freedom that you may not have known even existed.
+ - The hardness of a diamond is part of its usefulness, but its true value is in the light that shines through it.
+ - It is through the alignment of the body that I discovered the alignment of my mind, self, and intelligence.
+ - As leaves move in the wind, your mind moves with your breath.
+ - The brain is the hardest part of the body to adjust in asanas.
+ - If you can adapt to and balance in a world that is always moving and unstable, you learn how to become tolerant to the permanence of change and difference.
+ - When stability becomes a habit, maturity and clarity follow.
+ - Yes, flexibility of body and physical perfection for Yogasana is important. However more important is the state of your mind, Meditative mind. Your flexibility might be excellent but if your mind is not attentive, you are merely doing some physical exercise, not Yoga.
+ - Do not think of yourself as a small, compressed, suffering thing. Think of yourself as graceful and expanding, no matter how unlikely it may seem at the time.
+ - Nothing can be forced, receptivity is everything.
+ - Regulate the breathing, and thereby control the mind.
+ - Be inspired but not proud.
+ - Our greed comes from our fear that we will not have enough – whether it is money or love that we grasp. Yoga teaches us to let go of these fears and so to realize the abundance around us and within us.
+ - When you are practicing, do not just do that for the sake of doing. Learn to reflect while you are practising. Make your mind and brain observe and relearn what you are doing. Doing is mechanical; learning is dynamic.
+ - Your body is the child of the soul. you must nourish and train that child.
+ - It is through your body that you realize you are a spark of divinity.
+ - Your whole being should be symmetrical. Yoga is symmetry. That is why yoga is a basic art.
+ - It is while practicing yoga asanas that you learn the art of adjustment.
+ - I am standing on my own altar; The poses are my prayers.
+ - Knowledge of yoga is no substitute for practice.
+ - Any action done with beauty and purity, and in complete harmony of body, mind and soul, is Art.
+ - Life without tapas, is like a heart without love.
+ - The best way to overcome fear is to face with equanimity the situation of which one is afraid.
+ - The battle of yoga is with the body and with the ego. You must conquer your ego, or small self, so that you can let your soul, your big Self, be victorious.
+ - Yoga is an interior penetration leading to integration of being, senses, breath, mind, intelligence, consciousness, and Self. It is definitely an inward journey, evolution through involution, toward the Soul, which in turn desires to emerge and embrace you in its glory.
+ - Extension brings space, space brings freedom, freedom brings precision. Precision is truth.
+ - Sometimes our body is willing, but our mind is weak. Sometimes our mind is willing, but our body is weak. Do not be afraid. Strive to extend your capacity but do not be disappointed with yourself. What does not challenge us, cannot change us.
+ - Ignorance has no beginning, but it has an end. There is a beginning but no end to knowledge.
+ - Penetration of our mind is our goal, but in the beginning to set things in motion, there is no substitute for sweat.
+ - As a well cut diamond has many facets, each reflecting a different color of light, so does the word yoga, each facet reflecting a different shade of meaning and revealing different aspects of the entire range of human endeavor to win inner peace and happiness.
+ - A yogi’s brain extends from the bottom of the foot to the top of his head.
+ - Yoga has to be done with the intellect of the head as well as the intellect of the heart.
+ - We can rise above our limitations, only once we recognize them.
+ - Look after the root of the tree, and the fragrant flower and luscious fruits will grow by themselves. Look after the health of the body, and the fragrance of the mind and richness of the spirit will follow.
+ - Life itself seeks fulfillment as plants seek sunlight.
+ - Move from the known to the unknown.
+ - An intellectual mind that is unconnected to the heart is an uncultivated mind.
+ - There is no progress toward ultimate freedom without transformation, and this is the key issue in all lives.
+ - The yogi learns to forget the past and takes no thought for the morrow. He lives in the eternal present.
+ - Health is not a commodity to be bargained for. It has to be earned through sweat.
+ - Know your capacities and continually improve upon them.
+ - Backbends are to be felt more than expressed. The other postures can be expressed and then felt. Like in meditation each person has to feel backbends.
+ - In forward bends, one uses the outer mind while in backbends the outer mind is silenced and the inner mind is made to work.
+ - Yoga is an art, a science and a philosophy. It touches the life of man atevery level: physical, mental, spiritual. It is a practical method formaking one’s life purposeful, useful and noble.
+ - In each pose there should be repose.
+ - In whatever position one is in, or in whatever condition in life one is placed, one must find balance. Balance is the state of the present – the here and now. If you balance in the present, you are living in Eternity.
+ - Live before you die, so that death is also a lively celebration.
+ - The conjunction of effort, concentration and balance in asana forces us to live intensely in the present moment, a rare experience in modern life.
+ - If you open the armpits, the brain becomes light. You cannot brood or become depressed.
+ - You do not need to seek freedom in a different land, for it exists with your own body, heart, mind, and soul.
+ - I always tell people, live happily and die majestically.
+ - Confidence, clarity and compassion are essential qualities of a teacher.
+ - If you practice yoga every day with perseverance, you will be able to face the turmoil of life with steadiness and maturity.
+ - Before peace between the nations, we have to find peace inside that small nation which is our own being.
+ - This practice of yoga is to remove the weeds from the body so that the garden can grow.
+ - The highest point of yesterday should be the lowest point of today.
+ - Hard work and humility are essential for spiritual sadhana.
+ - By drawing our senses of perception inward, we are able to experience the control, silence, and quietness of the mind.
+ - Do not aim low, you will miss the mark. Aim high and you will be on a threshold of bliss.
+ - The physical body is not only a temple for our soul, but the means by which we embark on the inward journey toward the core.
+ - You must purge yourself before finding faults in others.
+ - A lamp does not flicker in a place where no wind blows; so it is with a yogi, who controls his mind, intellect and self, being absorbed in the spirit within him.
+ - Asanas keep your body, as well as your mind, healthy and active.
+ - I can remain thoughtfully thoughtless, It is not an empty mind.
+ - The lotus grows in muddy waters but this flower does not show any trace of it: So we have to live in the world.
+ - Without education, confidence does not come.
+ - Nothing is achieved by a mind that doubts.
+ - As breath stills our mind, our energies are free to unhook from the senses and bend inward.
+ - We have two physical eyes, but every pore of the body is also an eye.
+ - The supreme adventure in a man’s life is his journey back to his Creator.
+ - Happy is the man who knows how to distinguish the real from the unreal, the eternal from the transient and the good from the pleasant by his discrimination and wisdom.
+ - To do is hard, but to teach is still harder. Do not teach only to teach. Teach to improve the pupil. To be a teacher requires tremendous, vigorous discipline on oneself. We are teachers because somebody demands it from us. But the teacher should first rub his own self, and teach afterwards.
+ - There must be relaxation in full extension.
+ - After a session of yoga, the mind becomes tranquil and passive.
+ - In whatever you are doing, be one: body, soul, mind. Do it beautifully and with purity.
+ - Training of the mind and body leads to awareness of the soul.
+ - People remind me of my age, but while practicing I am beyond my body and its age.
+ - Give more than you receive. That is the principle I tell all my students.
+ - The beauty of a lake reflects the beauty around it. When the mind is still, the beauty of the Self is seen reflected in it.
+ - If the foundation is firm the building can withstand calamities. The practice of yoga is the foundation so that the self is not shaken under any circumstances.
+ - In your discipline, if doubt comes let it come. Do your work – let doubt carry on with its work and see which gives up first!
+ - Yoga releases the creative potential in life.
+ - The breath must be enticed or cajoled, like catching a horse in a field, not by chasing after it, but by standing still with an apple in one’s hand.
+ - Backbends are not poses meant for expressionism. Backbends are meant to understand the back parts of our bodies. The front body can be seen with the eyes, but the back body can only be felt. That’s why I say these are the most advanced postures, where the mind begins to look at the back.
+ - Fear and fatigue block the mind. Face both, then courage and confidence flows into you.
+ - Yoga allows you to rediscover a sense of wholeness in your life.
+ - As a fire blazes brightly when the covering of ash over it is scattered by the wind, the divine fire within the body shines in all its majesty when the ashes of desire are scattered by the practice of pranayama.
+ - People say that steadiness of mind is an end; no, it is a beginning. I am there; I can explain everything up to that point. Then I struggle to discover what comes after, so this steadiness is not an end, it is the beginning and the instrument.
+ - You must be as joyful when you fail again and again as you are joyful when you succeed. It is often when you fail that you move toward the goal without being aware of it. You must feel joy even when you have not fully succeeded but only moved toward achievement of your goal.
+ - Persistent practice alone is the key to yoga. As you take pains to learn, continue with devotion what you have learn.
+ - Willpower is concrete, not ethereal. When you do something, you demonstrate your willpower, and it becomes all the easier to have the same power of will the next time.
+ - A good teacher helps you explore the maximum.
+ - First yoga deals with health, strength and conquest of the body. Next, it lifts the veil of difference between the body and the mind. Lastly, it leads the Sadhaka to peace and unalloyed purity.
+ - Illuminated emancipation, freedom, unalloyed and untainted bliss await you, but you have to choose to embark on the Inward Journey to discover it.
+ - Yoga is the method by which the restless mind is calmed And the energy directed into constructive channels.
+ - Yoga is effort. Only practice is important. The rest of knowledge is only theory.
+ - Asana is perfect firmness of body, steadiness of intellect, and benevolence of spirit.
+ - Yoga is about the will, working with intelligence and self-reflexive consciousness, can free us from the inevitability of the wavering mind and outwardly directed senses.
+ - As a mighty river which when properly harnessed by dams and canals, creates a vast reservoir of water, prevents famine and provides abundant power for industry; so also the mind, when controlled, provides a reservoir of peace and generates abundant energy for the human uplift.
+ - I don’t stretch my body as if it is an object. I do yoga from the self towards the body, not the other way around.
+ - Don’t practice for cosmetic beauty, practice for cosmic beauty. Practice for inner beauty and inner light.
+ - The decision to relax rather than to grip, even in the face of impatience or fear, is a conscious and brave choice.
+ - Yoga is the music of the soul. So do continue, and the gates of the soul will open.
+ - Keep your attention internal, not external, not worrying about what others see, but what the Self sees.
+ - As animals, we walk the earth. As bearers of divine essence, we are among the stars. As human beings, we are caught in the middle, seeking to reconcile the paradox of how to make our way upon earth while striving for something more permanent and more profound.
+ - I planted the seed, now you must work a lot otherwise the tiny plant will die.
+ - Without the accurate spine movement, one can’t exist dynamically.
+ - The ribs are the wings of the body. Open your wings.
+ - Spirituality is not some external goal that one must seek, but a part of the divine core of each of us, which we must reveal.
+ - I think overall the majority of people who are practicing it as a subject are following the right line. For the aberration, don’t blame yoga or the whole community of yogis.
+ - As we shave it happens that we cut ourself with the razor blade; this does not mean that we must not shave in the morning any longer. It is the same thing for yoga.
+ - Activity and passivity must go together in asanas.
+ - As each individual is electrically alive and dynamic, so yoga is a living, dynamic force in life. In order to savor its essence, one needs a religiously attentive dynamic practice done with awareness and absorption.
+ - Do not allow past experiences to be imprinted on your mind. Perform asana each time with a fresh mind and with a fresh approach.
+ - Health begins with firmness in the body, deepens to emotional stability, then leads to intellectual clarity, wisdom and finally the unveiling of the soul.
+ - We must create a marriage between the awareness of the body and that of the mind. When two parties do not cooperate, there is unhappiness on both sides.
+ - Yoga aims for complete awareness in everything you do.
+ - As long as you do not live totally in the body, you do not live totally in the Self.
+ - Yoga is meant for the purification of body and its exploration as well as for the refinement of the mind.
+ - Yoga cultivates the ways of maintaining a balanced attitude in day-to-day life and endows skill in the performance of one’s actions.
+ - When the mind is controlled and still what remains is the soul.
+ - Do to your capacity. Always strive to extend your capacity. Ten minutes today, after a few days, twelve minutes. Master that, then again extend.
+ - Asanas penetrate deep into each layer of the body and ultimately into the consciousness itself.
+ - The sleeping tortoise takes all its limbs into its carapace. So does the yogi: going back into himself he does not see anything worldly any longer, he makes peace in himself.
+ - Freedom in a posture is when every joint is active.
+ - We can wash the skin of our bodies with a bath, but through asana practice we not only purify our blood and cells, we are cleansing the inner body as we practice.
+ - From Freedom of the Body comes Freedom of the Mind and then Ultimate Freedom!
+ - It is through the body that everything comes to the mind. It is through and with your body that you have to reach realization of being a spark of divinity. How can we neglect the temple of the spirit?
+ - As the trunk is one but the branches are many, yoga is one but adaptations may vary.
+ - While doing the postures, your mind should be in half-consciousn ess, which does not mean sleep. It means silence, emptiness, space, which can then be filled with an acute awareness of the sensations given by the posture. You watch yourself from inside. It is a full silence.
+ - Not all practitioners can jump to that highest level. They have to climb, step by step from the physical sphere to reach the spiritual sphere. If it is treated as exercise it is not the fault of yoga but of the practitioners.
+ - I think many of my students have followed the advice I gave years ago, to give more than you take.
+ - Asanas maintain the strength and health of the body, without which little progress can be made. Asanas keep the body in harmony with nature.
+ - Yoga has a threefold impact on health. It keeps healthy people healthy, it inhibits the development of diseases, and it aids recovery from ill health.
+ - If you balance in the Present, you are living in Eternity.
+ - All games are meaningless if you do not know the rules.
+ - Approach each asana with freshness every day.
+ - During inhalation, the breath should move exactly like the clouds which are spreading in the sky.
+ - The supreme adventure in a man’s life is his journey back to his Creator. To reach the goal he needs well developed and co-ordinated functioning of his body, senses, mind, reason and Self.
+ - Is it necessary to practice all these asanas, further and further? Is it necessary to develop scientific researches further and further? To a yogi, the body is a laboratory, a field of experiments and perpetual researches.
+ - When you see a mistake in somebody else, try to find if you are making the same mistake.
+ - Yoga is more than physical. It is cellular, mental, intellectual and spiritual-it involves man in his entire being.
+ - Do not live in the future, only the present is real.
+ - It is not yoga that injures, but the way one does yoga that leads to injury.
+ - You exist without the feeling of existence.
+ - If everyone practiced yoga, pharmacies would have to close.
+ - The Yogi conquers the body by the practice of asanas, making the body a fit vehicle for the spirit. The Yogi knows that it is a necessary vehicle for the spirit, for a soul without a body is like a bird deprived of its power to fly.
+ - The body has to be invaded by the intelligence; each part has to become intelligent.
+ - There is only one reality, but there are many ways that reality can be interpreted.
+ - When the asana is correct, there is lightness, a freedom. Freedom comes when every part of the body is active. Let us be free in whatever posture we are doing. Let us be full in whatever we do.
+ - By persistent and sustained practice, anyone and everyone can make the yoga journey and reach the goal of illumination and freedom.
+ - When an asana is done correctly the body movements are smooth, there is lightness in the body and freedom in the mind.
+ - When I stretch, I stretch in such a way that my awareness moves, and a gate of awareness finally opens.
+ - Breath is the vehicle of consciousness and so, by its slow measured observation and distribution, we learn to tug our attention away from external desires toward a judicious, intelligent awareness.
+ - Action is movement with intelligence.
+ - The back is like a frame, the front body, the painting that it throws into relief.
+ - The mind is the king of the senses, and the breath is the king of the mind.
+ - One day you too may experience what I have experienced. So right away go and practise.
+ - Your body is the child of your soul.
+ - The practice of asanas purges the body of its impurities, bringing strength, firmness, calm, and clarity of mind.
+ - Learning is as much an art as teaching.
+ - We need sound bodies so we can develop sound minds.
+ - Why think of liberation at some future time? Liberation is in the little things, here and now.
+ - It took me whole decades to appreciate the depth and true value of yoga. Sacred texts supported my discoveries, but it was not they that signposted the way. What I learned through yoga, I found out through yoga.
+ - Classics postures, when practiced with discrimination and awareness, bring the body, mind, and consciousness into a single, harmonious whole.
+ - The yogi cannot be afraid to die, because he has brought life to every cell of his body. We are afraid to die, because we are afraid we have not lived. The yogi has lived.
+ - Firmness in the body leads to firmness in the nervous system.
+ - One’s spiritual realization lies in none other than how one walks among and interacts with one’s fellow beings.
+ - My Maman told me that only the crazy ones and the passionate ones accomplish anything in life.
+ - The material body has a practical reality that is accessible. It is here and now, and we can do something with it. However, we must not forget that the innermost part of our being is also trying to help us. It wants to come out to the surface and express itself.
+ - Anything physical is always changing, therefore, its reality is not constant, not eternal.
+ - When you inhale, you are taking the strength from God. When you exhale, it represents the service you are giving to the world.
+ - We often fool ourselves that we are concentrating because we fix our attention on wavering objects.
+ - There is no difference in souls, only the ideas about ourselves that we wear.
+ - The needs of the body are the needs of the divine spirit which lives through the body.
+ - Yoga is a means and an end.
+ - The light that Yoga sheds on life is something special. It is transformative. It does not just change the way we see things; it transforms the person who sees.
+ - A stable mind is like the hub of a wheel. The world may spin around you, but the mind is steady.
+ - The whole thrust of yogic philosophical and scientific inquiry has therefore been to examine the nature of being, with a view to learning to respond to the stresses of life without so many tremors and troubles.
+ - To master fear is the most important battle to win.
+ - Our flawed mechanisms of perception and thought are not a cause for grief, but an opportunity to evolve, for an internal evolution of consciousness that will also make possible, in a sustainable form, our aspirations toward what we call individual success and global progress.
+ - We are a little piece of continual change, looking at an infinite quantity of continual change.
+ - The union of nature and soul removes the veil of ignorance that covers our intelligence.
+ - Yoga takes us to an unconditioned freedom, because yoga sees even good habits as a form of conditioning or limitation.
+ - The commercialism may wash off sometime later.
+ - What I was is unimportant, what I am now is important.
+ - If you have the right mind, your body can do anything.
+ - The body is the prop for the soul. So why not let the body be propped by a wall or a block?
+ - Yoga uses the body to discipline the mind and to reach the soul.
+ - There is a universal reality in ourselves that aligns us with a universal reality that is everywhere.
+ - Yoga is a light, which once lit, will never dim. The better your practice, the brighter the flame.
+ - Savasana is being without was, being without will be. It is being without anyone who is.
+ - Feeling the movement of movements is wandering to the past or future. Living in the movements of movement is being in the present.
+ - When the restlessness of the mind, intellect and self is stilled through the practice of Yoga, the yogi by the grace of the Spirit within himself finds fulfillment.
+ - If we become aware of its limitations and compulsions, we can transcend them.
+ - Yoga is a way of life; it is an art, a science, a philosophy.
+ - I don’t bring yesterday’s poses to today’s practice. I know yesterday’s poses, but when I practice today I become a beginner. I don’t want yesterday’s experience. I want to see what new understanding may come in addition to what I felt up to now.
+ - Yoga, an ancient but perfect science, deals with the evolution of humanity. This evolution includes all aspects of one’s being, from bodily health to self-realization.
+ - When every asana is multi-petaled, why do you make it single petaled?
+ - Action is movement with intelligence. The world is filled with movement. What the world needs is more conscious movement, more action.
+ - As long as the body is not in perfect health, you think about it, and that prevents you from thinking of the mind. The sound mind is a sound body.
+ - Where does the body end and the mind begin? Where does the mind end and the spirit begin? They cannot be divided as they are inter-related and but different aspects of the same all-pervading divine consciousness.
+ - It is never too late in life to practice yoga.
+
+243 quotes

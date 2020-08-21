@@ -1,0 +1,40 @@
+ - Sometimes I think life is just a rodeo, the trick is to ride and make it to the bell.
+ - But I think beautiful is simple and elegant, like a ballad with simple harmony.
+ - I ain’t got no time for a Caribbean cruise, just give me a song and a beer.
+ - Coonskin caps, Yankee bats, the Hound Dog man’s big start. The A-bomb fears, Annette had ears, I lusted in my heart.
+ - Let the people know my wisdom, fill the land with smoke.
+ - You should play with real musicians; the best music comes from real people interacting with each other.
+ - The Telecaster doesn’t really sound that good for the kind of rock and roll that a lot of people played.
+ - No, but I’ve always felt that with true talent, and a commitment to hard work, it is possible to achieve an enduring respect and appreciation. In other words, I don’t take my fans for granted.
+ - On Eye of the Zombie, I had so-called studio musicians.
+ - You evil thing, why do you haunt me?
+ - I think at times the very strong feelings I have about my country coincide with my musical ability, and I’m able to actually turn it into music, a song or even hopefully a memorable song, sometimes. You may find it surprising, but I’m a very intense, proud American. I love being an American.
+ - You got to hidey-hide, you got to jump and run again. You got to hide-hidey-hide, the old man is down the road.
+ - That song has the full extent of my mandolin abilities; I’m not a good mandolin player at all.
+ - There’s a bad moon on the rise.
+ - Vanz can’t dance, but he’ll steal your money.
+ - When I made Blue Moon Swamp, there was a lot of trial and error; I was trying to find people who would be simpatico with my style, and with what I had in mind for the album.
+ - When I’m standing at the Pearly Gates, I want to say to God, ‘Don’t look at the records. Look at my family. I’m much prouder about that part.’
+ - I’m like a twenty two year old kid in a new band trying to get noticed and break through, because the vast majority of people have never seen me play live.
+ - Mr. Greed, why do you have to own everything that you see?
+ - There’s just not a lot of guys around playing like that these days; a lot of steel players are plugging into stomp boxes, trying to sound like Jeff Beck on a steel guitar.
+ - Big train from Memphis, now it’s gone gone gone, gone gone gone. Like no one before, he let out a roar, and I just had to tag along.
+ - I’m much more energetic now; you might say live performance is my mission.
+ - I thought what I was good at doing was playing real simple guitar licks, since I’d cut my teeth on what Duane Eddy was doing; licks that were simple but had staying power.
+ - Four guys from England took us all by the hand.
+ - I’ve long ago learned that if an idea will stand on its own, it’ll stand having the light shone on it. But if you shine light on it and it kind of withers, then it probably wasn’t a very good idea.
+ - I’m now comfortable playing a lot of the old songs, and I’ve gotten out a lot of the old equipment.
+ - Even though James Burton was my idol, I didn’t think I could carry his shoes back then.
+ - Washburn’s an old American name, but this one was assembled overseas.
+ - And I now think that Stratocasters and Telecasters are way cool.
+ - I usually destroy unreleased material. It has a way of coming back to haunt you.
+ - Even though I have often recorded alone, I still feel the best music is made by musicians playing off each other.
+ - I stuck with that size because I could bend the strings so well, and somewhere along the line I must have gotten it into my mind that I had small hands, so I was thinking I’d never be able to play a full-scale guitar, but I also felt like I was cheating or cutting corners.
+ - I’ve studied a lot of great people over the years – Pete Seeger, James Brown – and tried to incorporate elements that I’ve admired, though I can’t say I dance like James.
+ - In those days, I didn’t know how guys like Clapton and Beck were getting that searing blues lead sound, so I developed my style to be rhythmic and chord-based, with simple lead lines that you could almost hum.
+ - Playing guitar is a never-finished journey.
+ - Now that I’m older, I like almost anything that’s done well, even surf music and instrumentals; I really enjoyed the interviews with the Ventures in your magazine.
+ - What happens is, especially when I was writing for my band, Creedence, and it’s the way I write now, I go into “guitar lick” mode. When I do, it sort of leads into a real song. I’d say to myself, your songwriting is coming up with a guitar lick, and the rest is easy!
+ - I’ve also become much more the musician I’ve always wanted to be.
+
+38 quotes

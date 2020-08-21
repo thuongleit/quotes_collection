@@ -1,0 +1,27 @@
+ - Loneliness is black coffee and late-night television; solitude is herb tea and soft music. Solitude, quality solitude, is an assertion of self-worth, because only in the stillness can we hear the truth of our own unique voices.
+ - We danced too wild, and we sang too long, and we hugged too hard, and we kissed too sweet, and howled just as loud as we wanted to howl, because by now we were all old enough to know that what looks like crazy on an ordinary day looks a lot like love if you catch it in the moonlight.
+ - Discomfort is always a necessary part of enlightenment.
+ - Feminism is to sexism what black nationalism is to racism; the most rational response to the problem.
+ - What looks like crazy on an ordinary day looks looks a lot like love if you catch it in the moonlight.
+ - Domestic violence is the front line of the war against women.
+ - You can’t save a person who doesn’t want to be saved. It was like Mr. Eddie always told the new gardeners: Everybody’s got to kill their own snakes.
+ - Sisterhood is a funny thing. It’s easy to recognize, but hard to define.
+ - If you don’t annoy your big sister for no good reason from time to time, she thinks you don’t love her anymore.
+ - Any time your life is at stake and you can’t find even one woman to come forward and say, ‘This is a good man,’ your problem isn’t what kind of woman THEY are. Your problem is what kind of men YOU are.
+ - I really love writing comedy. Writing romantic comedy is even nicer because you get to write about how insane we all act when we’re falling in love.
+ - Loneliness is random; solitude is ritual.
+ - Sometimes you meet yourself on the road before you have a chance to learn the appropriate greeting. Faced with your own possibilities, the hard part is knowing a speech is not required. All you have to say is yes.
+ - Many times, what people call ‘writer’s block’ is the confusion that happens when a writer has a great idea, but their writing skill is not up to the task of putting that idea down on paper. I think that learning the craft of writing is critical.
+ - Vera Stark is a fabulous force of nature.
+ - I think all negotiations should take place at a round table and everybody should have to rotate counterclockwise once an hour so that even the perception of head of the table, or foot, are ritually obliterated.
+ - When you’re young, there’s a whole lot of stuff you say you’ll never do. Once you get a little older, the list tends to get shorter.
+ - I think the black community is no different from any other community. We need to take responsibility for how we live together. We need to be personally responsible for keeping our streets clean, our schools safe, and our houses peaceful.
+ - Buying flowers is not just a way to bring home beauty. It’s an expression of confidence that better days are coming. It’s a defiant finger in the face of those naysayers who would have you believe your fortunes will never improve.
+ - You know the Buddhists believe that sometimes when everything is in turmoil, it’s because something wonderful is ready to be born and that thing is distracting you so it can have some privacy during the birthing process.
+ - Sometimes you have to show them what they want to see in order to get them to show you who they really are.
+ - I’ve never been to Paris. I don’t like to fly!
+ - But it is the fear, not the writing that defeats me. Everything is not a masterpiece.
+ - Putting words on paper regularly is part of the necessary discipline of writing. A journal is a great way to do that.
+ - As African-Americans, we often spend our time and energy blaming other people for the problems we see around us.
+
+25 quotes

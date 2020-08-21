@@ -1,0 +1,55 @@
+ - It may well be that a societys greatest madness seems normal to itself.
+ - The most successful tyranny is not the one that uses force to assure uniformity but the one that removes the awareness of other possibilities, that makes it seem inconceivable that other ways are viable, that removes the sense that there is an outside.
+ - Self-interest is hostile to the common good, but enlightened self-interest is not. And this is the best key to the meaning of enlightenment.
+ - The failure to read good books both enfeebles the vision and strengthens our most fatal tendency – the belief that the here and now is all there is.
+ - The sirens sing sotto voce these days, and the young already have enough wax in their ears to pass them by without danger.
+ - We need history, not to tell us what happened or to explain the past, but to make the past alive so that it can explain us and make a future possible.
+ - Freedom of the mind requires not only, or not even especially the absence of legal constraints but the presence of alternative thoughts.
+ - Classical music is a special taste like Greek language or pre-Columbian archeology, not a common culture of reciprocal communication and psychological shorthand.
+ - The first discipline modernity’s originators imposed upon themselves was that of self-restraint, learning to live with vulgarity. Their high expectations for effectiveness were made possible by low expectations of what was to be.
+ - The artist is the most interesting of all phenomena, for he represents creativity, the definition of man.
+ - Nietzsche said the newspaper had replaced the prayer in the life of the modern bourgeois, meaning that the busy, the cheap, the ephemeral, had usurped all that remained of the eternal in his daily life.
+ - A serious life means being fully aware of the alternatives, thinking about them with all the intensity one brings to bear on life-and-death questions, in full recognition that every choice is a great risk with necessary consequences that are hard to bear.
+ - There is one thing a professor can be absolutely certain of: almost every student entering the university believes, or says he believes, that truth is relative.
+ - Historicism and cultural relativism actually are a means to avoid testing our own prejudices and asking, for example, whether men are really equal or whether that opinion is merely a democratic prejudice.
+ - Commitment is a word invented in our abstract modernity to signify the absence of any real motives in the soul for moral dedication.
+ - Education is not the taming or domestication of the soul’s raw passions – not suppressing them or excising them, which would deprive the soul of its energy – but forming and informing them as art...
+ - We are like ignorant shepherds living on a site where great civilizations once flourished.
+ - The self is the modern substitute for the soul.
+ - Education is not sermonizing to children against their instincts and pleasures, but providing a natural continuity between what they feel and what they can and should be.
+ - Law may prescribe that the male nipples be made equal to the female ones, but they still will not give milk.
+ - The most important function of the university in an age of reason is to protect reason from itself.
+ - Life, liberty, and the pursuit of property were just what Aristotle did not talk about. They are the conditions of happiness; but the essence of happiness, according to Aristotle, is virtue. So the moderns decided to deal with the conditions and to let happiness take care of itself.
+ - The substance of my being has been informed by the books I learned to care for.
+ - An education, other than purely professional or technical, can even seem to be an impediment.
+ - Bacon, Locke, Descartes, Hume, and all the others knew they were giving rights to vulgarity. But in so doing in addition to caring for man’s well-being they were providing rights for themselves.
+ - A new language always reflects a new point of view, and the gradual unconscious popularization of new words, or of old words used in new ways, is a sure sign of a profound change in people’s articulation of the world.
+ - Various kinds of self-forgetting, usually accompanied by illusions and myths, make it possible to live without the intransigent facing of death-in the sense of always thinking about it and what it means for life and the things dear in life-which is characteristic of a serious life.
+ - It is easy today to deny God’s creativity as a thing of the benighted past, overcome by science, but man’s creativity, a thing much more improbable and nothing but an imitation of God’s, exercises a strange attraction.
+ - Reason transformed into prejudice is the worst form of prejudice, because reason is the only instrument for liberation from prejudice.
+ - We witness a strange inversion: on the one hand, the endeavor to turn the social contract into a less calculating and more feeling connection among its members; on the other hand, the endeavor to turn the erotic relationship into a contractual one.
+ - Error is indeed our enemy, but it alone points to the truth and therefore deserves our respectful treatment.
+ - Culture as art is the peak expression of man’s creativity, his capacity to break out of nature’s narrow bounds, and hence out of the degrading interpretation of man in modern natural and political science.
+ - There is no real education that does not respond to felt need; anything else acquired is trifling display.
+ - The distinction between private and public undermines the unity of spiritual strength, draining the public of the transcendent energies while trivializing them because the merely private life provides no proper stage for their action.
+ - Every age is blind to its own worst madness.
+ - To recognize that some of the things our culture believes are not true imposes on us the duty of finding out which are true and which are not.
+ - There is no real teacher who in practise does not believe in the existence of the soul, or in a magic that acts on it through speech.
+ - University convention submerges nature. It issues licenses, and hunting without one is forbidden.
+ - All literature up to today is sexist. The Muses never sang to the poets about liberated women. It’s the same old chanson from the Bible and Homer through Joyce and Proust.
+ - Openness, as currently conceived, is a way of making surrender to whatever is most powerful, or worship of vulgar success, look principled.
+ - Human nature must not be altered in order to have a problem-free world. Man is not just a problem-solving being, as behaviorists would wish us to believe, but a problem-recognizing and -accepting being.
+ - These sociologists who talk to facilely about the sacred are like a man who keeps a toothless old circus lion around the house in order to experience the thrills of the jungle.
+ - Education in our times must try to find whatever there is in students that might yearn for completion, and to reconstruct the learning that would enable them autonomously to seek that completion.
+ - Only when the true ends of society have nothing to do with the sublime does “culture” become necessary as a veneer to cover over the void. Culture can at best appreciate the monuments of earlier faith; it cannot produce them.
+ - The spirit is at home, if not entirely satisfied, in America.
+ - The distinction between the world of commerce and that of “culture” quickly became the distinction between infrastructure and superstructure, with the former clearly determining the latter.
+ - Reason cannot establish values, and its belief that it can is the stupidiest and most pernicious illusion.
+ - As soon as tradition has come to be recognized as tradition, it is dead.
+ - Once the law is broken with impunity, each man regains the right to any means he deems proper or necessary in order to defend himself against the new tyrant, the one who can break the law.
+ - The facile economic and psychological debunking of the theoretical life cannot do away with its irreducible beauties.
+ - Professors of Greek forget or are unaware that Thomas Aquinas, who did not know Greek, was a better interpreter of Aristotle than any of them have proved to be, not only because he was smarter but because he took Aristotle more seriously.
+ - Most of all I admire Mozart’s capacity to be both deep and rational, a combination often said to be impossible.
+ - This nation’s impulse is toward the future, and tradition seems more of a shackle to it than an inspiration.
+
+53 quotes

@@ -1,0 +1,24 @@
+ - The bigger they are, the harder they fall. And the better the world liked seeing them fall.
+ - I should like to see you try.
+ - Life is not an opera. Scenes belong on the stage.
+ - You refuse to listen. Because, like every other man, you can keep only one idea in your head at a time-usully the wrong one.
+ - He was a man. Men always had lewd thoughts. It was perfectly natural and normal.
+ - Women don’t have a sense of humor. They don’t need one. The Almighty made them as a permanent joke on men. From which one may logically deduce tha the Almighty is a female.
+ - Jessica swallowed. “I think you had better stick to English.” “But Italian is so moving,” Dain said. “To ho voluto dal primo che ti vedi.” I’ve wanted you from the first moment I saw you. “Mi tormenti ancora.” You’ve tormented me ever since.
+ - Masculine pride is an exceedingly precious and fragile thing.
+ - I can do one or the other. Lovemaking or thinking. But not both at the same time.
+ - Let me explain something to you, he said. If you want to get something out of a man, dashing out his brains against a lamppost isn’t the way to do it.
+ - Why must women stay quietly? Why must we be little moons, each of us stuck in our little orbit, revolving around a planet that is some man? Why can’t we be other planets? Why must we be moons?
+ - Silk and Shadows is something else. Like brilliant. It got under my skin as very, very few books have. It’s still under my skin. Mikhal was haunting.
+ - You needn’t consult me about redecorating. I know no female can live two days in a house and leave anything as it was. I shall be much astonished if I can find my way about when I return.
+ - Parents must be treated with respect, whether one wants to strangle them or not.
+ - Just because I squeezed my gigantic bottom into men’s trousers, you needn’t assume my brains have shrunk to masculine size.
+ - We’ve been wed more than a month. Since it appears you mean to stay, I might as well give you leave to call me by my christian name. It is preferable, at any rate, to ’clodpole.
+ - We’re of one mind, Grenville and I, and the mind is hers, on account of my being a man and not having one.
+ - I’m no good at being good.
+ - She longed to throw something at him. A chair. Herself.
+ - And so I beat him and beat him until he kissed me. And then I kept on beating him until he did it properly.
+ - That’s what brings in the customers: the combination of gossip and the intricate detail about the dresses, all related as drama. It has the same effect on women, I’m told, as looking at naked women has on men.
+ - They were perfectly suited. They would speak of books the livelong day and night and bore everyone else but themselves to distraction.
+
+22 quotes

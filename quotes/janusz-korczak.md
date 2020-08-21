@@ -1,0 +1,25 @@
+ - I exist not to be loved and admired, but to love and act. It is not the duty of those around me to love me. Rather, it is my duty to be concerned about the world, about man.
+ - Each person carries an entire world within himself, and everything exists twice: once the way it is, the other the way he perceives it with his own eyes and feelings.
+ - I am a butterfly drunk with life. I don’t know where to soar, but I won’t allow life to clip my beautiful wings.
+ - Don’t try to become a teacher overnight with psychological bookkeeping in your heart and educational theory in your head.
+ - A hundred children, a hundred individuals who are people – not people-to-be, not people of tomorrow, but people now, right now – today.
+ - The soul of a child is as complicated and full of contradictions as our soul is.
+ - My greatest fault is that I am no longer a child.
+ - Life is a circus ring, with some moments more spectacular than others.
+ - Whatever has been achieved through pressure and violence is unstable, unreliable and incorrect.
+ - Life bites like a dog.
+ - Take a look at the world and laugh.
+ - To demand that others should provide you textbook prognoses is like asking a strange woman to give birth to your baby. There are insights that can be born only of your own pain, and they are the most precious.
+ - You will go on blundering, for only he who does nothing avoids errors.
+ - When does the loneliness of old age begin?
+ - Children, being small and weak, have little market value.
+ - Life never gives more than partial liberation. Achievement can never be more than fragmentary.
+ - Are decent people in positions of leadership eternally condemned to Calvary?
+ - I am well versed in reading the pages of war.
+ - If you are watching fanatically over the morality of your children you may yourself be not completely in order.
+ - The court does not fly off the handle. It does not shout abuse. It speaks calmly.
+ - If I had means, I would like to spend half a year in Palestine in order to contemplate what has been, and half a year in Poland in order to preserve what remains.
+ - I have signed a pact with life: we will not get in each other’s way.
+ - Man feels and ponders death as though it were the end, when in fact death is merely the continuation of life. It is another life. You may not believe in the existence of the soul, yet you must acknowledge that your body will live on as green grass, as a cloud. For you are, after all, water and dust.
+
+23 quotes

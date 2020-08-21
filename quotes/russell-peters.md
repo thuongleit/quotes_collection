@@ -1,0 +1,38 @@
+ - I DJ and I’m a harsh critic of DJs.
+ - There’s a big difference between race and culture. Because racially, I’m an Indian man. Culturally, not at all.
+ - There’s always someone who’s going to interpret my material as racist, but it’s not. Racism comes from intent and power. A racist will tell a joke about a group of people only when they’re not in the room. I’ll talk about a group of people only when they’re in the room.
+ - I have a phenomenal memory. I remember every single thing that anybody said to me, ever did to me, who was nice to me and who was not nice to me.
+ - Self-worth and financial worth become indistinguishable.
+ - I’m always amazed at how much people ‘get’ when I’m performing overseas. I’ve never had to change my act on my international shows; I just make sure that I’ve taken some time to get to know the people in those countries before I perform. That’s been really useful.
+ - Terrorists hate Americans. Indians hate each other. A terrorist will blow up an airport. Indians like to work at the airport. That would be counter-productive.
+ - I hate Bollywood. The movies are all garbage, just terrible. It’s my opinion; obviously, there are billions who like and love them. I don’t like all the singing, dancing and all the dramatic crying. I have never seen a Bollywood film in my life.
+ - This is our most dangerous addiction – our addiction to things. For it is this addiction that underlies the materialism of our age. And nowhere is this addiction more apparent than in our addiction to money.
+ - I’m not a media darling. I’m forever the outsider, for whatever the reason is.
+ - You do stand-up because you have to do it. If you’re doing it to become ‘famous,’ you’re wrong. If you’re doing it to become a millionaire, you’re doing it for the wrong reasons. In 2003, I was flat broke. I’d been doing stand-up for 14 years at that point. I loved it and just kept at it.
+ - My guiltiest pleasure in life is ‘America’s Funniest Home Videos.’ I watch them all – old, new – I don’t care. Despite how bad the writing is on the show. The people getting hit and hurt, that’s hilarious.
+ - Im a hip-hop guy, and the first time I heard Eminem was in 96. He was on a record with Shabban Siddiq. I was like, Who is this guy? Hes dope! First album came out: awesome. Second album came out: awesome. Third album, I was like, Eh. He started to get really successful. He wasnt mine anymore.
+ - I talk about race and culture, and that’s what my fans respond to. If you grew up in an environment where race and culture were never an issue for you, or where you don’t see the humor in our so-called differences, then you might not respond to what I’m doing.
+ - On my best day, I cannot do Scottish people. I don’t even believe that’s a real accent, to be honest with you. I think they probably sound like us when they’re in the house. It’s how they keep people away from them.
+ - The fans in Canada have been there since day one. They’re the originals. When people say that’s your roots, that’s literally my roots. I’ve just cut this tree off and replanted it somewhere else and it started growing. But the roots are there.
+ - I don’t make the stereotypes, I just see them.
+ - I love being a dad, and I’m a great dad.
+ - Indians are the second largest population in the world, but we’re invisible on TV – everything is either black or white.
+ - We tell ourselves that the more time we have at our disposal, the more opportunity we will have of finding greater happiness. But again we are looking to the future, to the times we will create. Again we miss the enjoyment of the present moment.
+ - People always say ‘You do racial comedy.’ And I don’t, exactly. I do cultural comedy. Because race and culture are two different things. There’s black people from America and then there’s black people from Africa. Racially, they’re the same; culturally, they’re extremely different.
+ - Azhar Usman is very funny, deeply spiritual, and extremely hairy. He’s like Zach Galifianakis meets Deepak Chopra-and funnier than you’d expect that combination to be.
+ - I’m not just saying this, but I love everything about India.
+ - I don’t think Indian actors are good. A couple of them are, like Anupam Kher, but not many are there like him in the industry. There are thousand of actors and actresses in the industry, but you can count on hand how many of them are really good; the rest of them are just pretty faces.
+ - Stand-up and boxing are very similar. You’re the only one out there, you’re going into a fight, and you’re going in with a game plan.
+ - Who I am on stage is just an amped up version of who I am in real life.
+ - If you’re politically correct, chances are you’re not coming to one of my shows. I get to go onstage and say things that everybody thinks all the time, but can’t say out loud.
+ - No matter where you are, the root of you is designed from a young age. So if my confidence was taken as a child, you can gain back a lot of the confidence, but that root of the cavity will still be there.
+ - I do a lot of cultural material that’s based on my traveling around the world. I basically just report what I’ve seen and where I’ve been.
+ - Do you know what it is sir? Do you know what the Dance Dance Revolution is? It’s not an actual revolution, so you don’t have to worry about that. It’s not like a bunch of Asians are going to knock on your door ‘Hey! Start dancing!’
+ - I don’t want to be a part of any Bollywood movie.
+ - I don’t need Hollywood. With or without them, I’ll be fine. But I’ll admit it would be nice to have them on board.
+ - I will never stop doing stand-up; that’s my career, but I will do movies in Hollywood.
+ - I’ve seen racism in my audiences. For example, I’ve seen people laugh at every other group, but then clam up when it comes to their community. You can’t laugh at everyone else and then not laugh at yourself. You shouldn’t be at my show if you can’t laugh at yourself.
+ - My dad was the funniest guy I ever knew.
+ - I think for comedians, acting is their natural progression. It’s all about progression.
+
+36 quotes

@@ -1,0 +1,66 @@
+ - Space has always been the spiritual dimension of architecture. It is not the physical statement of the structure so much as what it contains that moves us.
+ - The heart, not the head, must be the guide.
+ - The new architecture of transparency and lightness comes from Japan and Europe.
+ - Illusion is needed to disguise the emptiness within.
+ - Modernism released us from the constraints of everything that had gone before with a euphoric sense of freedom.
+ - Ancient Rome was as confident of the immutability of its world and the continual expansion and improvement of the human lot as we are today.
+ - The delusion of entertainment is devoid of meaning. It may amuse us for a bit, but after the initial hit we are left with the dark feeling of desolation.
+ - Great buildings that move the spirit have always been rare. In every case they are unique, poetic, products of the heart.
+ - With production alone as the goal, industry in North America was dominated by the assembly line, standardization for mass consumption.
+ - The great dream merchant Disney was a success because make-believe was what everyone seemed to need in a spiritually empty land.
+ - Life is rich, always changing, always challenging, and we architects have the task of transmitting into wood, concrete, glass and steel, of transforming human aspirations into habitable and meaningful space.
+ - I plead for conservation of human culture, which is much more fragile than nature herself. We needn’t destroy other cultures with the force of our own.
+ - We are not peddlers of the fashionable. We believe that good design defies fashion, is truly innovative, eminently sensible, yet a source of inspiration to those who have the pleasure of living with it.
+ - God’s designs may be frequent justification for our actions, but it is we, the self-made men, who take the credit.
+ - Materialism has never been so ominous as now in North America, as management takes over.
+ - Builders eventually took advantage of the look of modernism to build cheaply and carelessly.
+ - Does an architecture to assuage the spirit have a place?
+ - Our incapacity to comprehend other cultures stems from our insistence on measuring things in our own terms.
+ - The details are the very source of expression in architecture. But we are caught in a vice between art and the bottom line.
+ - Rationalism is the enemy of art, though necessary as a basis for architecture.
+ - Vitality is radiated from exceptional art and architecture.
+ - The innovative spirit was America’s strongest attribute, transforming everything into a brave new world, but there lingered an insecurity about the arts.
+ - The obsession with performance left no room for the development of the intuitive or spiritual impact of space and form other than the aesthetic of the machine itself.
+ - We regard those other cultures, such as that of India, where many people live and believe and behave much as they did 1,000 or 2,000 years ago, as undeveloped.
+ - Only when inspired to go beyond consciousness by some extraordinary insight does beauty manifest unexpectedly.
+ - There is an increasing awareness of the interrelatedness of things. We are becoming less prone to accept an immediate solution without questioning its larger implications.
+ - The way of architecture is the quiet voice that underlies it and has guided it from the beginning.
+ - No amount of thought can ever reveal what comes unexpectedly.
+ - Nowhere has specialization penetrated so deeply into the building professions as North America.
+ - Our engineering departments build freeways which destroy a city or a landscape, in the process.
+ - Whenever we witness art in a building, we are aware of an energy contained by it.
+ - The Renaissance is studded by the names of the artists and architects, with their creations recorded as great historical events.
+ - No wonder the film industry started in the desert in California where, like all desert dwellers, they dream their buildings, rather than design them.
+ - We can appreciate but not really understand the medieval town. We cannot comprehend its compactness, the contiguity of all its buildings as a single uninterrupted whole.
+ - The tourist transports his own values and demands to his destinations and implants them like an infectious disease, decimating whatever values existed before.
+ - Today’s developer is a poor substitute for the committed entrepreneur of the last century for whom the work of architecture represented a chance to celebrate the worth of his enterprise.
+ - Compared to industry in Europe or Japan, where industry was based on a craft tradition, we are sadly behind.
+ - What is the thread of western civilization that distinguished its course in history? It has to do with the preoccupation of western man with his outward command and his sense of superiority.
+ - We have today a fairly thorough knowledge of the early Greco-Roman period because our motivations are the same.
+ - Profit and bottom line, the contemporary mantra, eliminates the very source of architectural expression.
+ - Western history has been a history of deed done, actions performed and results achieved.
+ - Architecture doesn’t come from theory. You don’t think your way through a building.
+ - There is a single thread of attitude, a single direction of flow, that joins our present time to its early burgeoning in Mediterranean civilization.
+ - We find Japan a little more difficult to understand because it has proven its 20th century prowess though the ancient traditions still persist.
+ - It is the mystery of the creative act that something other than our conscious self takes over.
+ - Nearly all of the advances in structural and aesthetic innovation is coming from abroad.
+ - Bankers cannot afford to be concerned with only the economic aspects of projects. There may be serious implications on the natural environment, the urban environment, on human culture.
+ - We are stymied by regulations, limited choice and the threat of litigation. Neither consultants nor industry itself provide research which takes architecture forward.
+ - The essentially unchangeable established order of things slowly disappeared and was forgotten for a while completely.
+ - Our universities advocate fragmentation in their course systems.
+ - The artist likes to seem totally responsible for his work. Often he begins to explain it, to make it appear as if it were a reasonable process.
+ - The Achilles Heel of the Americas was the lack of cultural confidence typical of new settlers.
+ - In those countries with centuries of a craft tradition behind their building methods, techniques are tightly coordinated under the direction of the architect.
+ - You have to see a building to comprehend it. Photographs cannot convey the experience, nor film.
+ - Our settlement of land is without regard to the best use of land.
+ - Part of our western outlook stems from the scientific attitude and its method of isolating the parts of a phenomenon in order to analyze them.
+ - We are yet to have a conscience at all about the exploitation of human cultures.
+ - Tahiti has been spoiled for many years, but Bali is one of the few cultures with origins in one of the great ancient cultures which is still alive.
+ - No phenomenon can be isolated, but has repercussions through every aspect of our lives. We are learning that we are a fundamental part of nature’s ecosystems.
+ - After 1980, you never heard reference to space again. Surface, the most convincing evidence of the descent into materialism, became the focus of design. Space disappeared.
+ - Inspiration in Science may have to do with ideas, but not in Art. In art it is in the senses that are instinctively responsive to the medium of expression.
+ - We settled this continent without art. So it was easy for us to treat it as an imported luxury, not a necessity.
+ - Roman civilization had achieved, within the bounds of its technology, relatively as great a mastery of time and space as we have achieved today.
+ - We are guilty for sending teams into foreign countries to advise them how to be like us.
+
+64 quotes

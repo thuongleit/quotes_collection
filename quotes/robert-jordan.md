@@ -1,0 +1,246 @@
+ - Death is lighter than a feather, but Duty is heavier than a mountain.
+ - The Wheel of Time turns, and Ages come and pass, leaving memories that become legend. Legend fades to myth, and even myth is long forgotten when the Age that gave it birth comes again.
+ - Duty is heavy as a mountain, death is light as a feather.
+ - We rode on the winds of the rising storm, We ran to the sounds of the thunder. We danced among the lightning bolts, and tore the world asunder.
+ - Almost dead yesterday, maybe dead tomorrow, but alive, gloriously alive, today. – Mat Cauthon.
+ - There is one rule, above all others, for being a man. Whatever comes, face it on your feet.
+ - The Wheel of Time turns, and Ages come and pass. What was, what will be, and what is, may yet fall under the Shadow.
+ - The wheel weaves as the wheel wills.
+ - Death comes to us all; we can only choose how to face it when it comes.
+ - You can never know everything, and part of what you know is always wrong. A portion of wisdom lies in knowing that. A portion of courage lies in going on anyway.
+ - The only way to live is to die. I must die. I deserve only death.
+ - Til shade is gone, til water is gone Into the shadow with teeth bared Screaming defiance with the last breath To spit in Sightblinder’s eye on the Last Day.
+ - He was swimming in a sea of other people’s expectations. Men had drowned in seas like that.
+ - As the Wheel of Time turns, places wear many names. Men wear many names, many faces. Different faces, but always the same man. Yet no one knows the Great Pattern the Wheel weaves, or even the Pattern of an Age. We can only watch, and study, and hope.
+ - The Golden Crane flies for Tarmon Gai’don!
+ - Sleep well and wake, Rand al’Thor.
+ - He came like the wind, like the wind touched everything, and like the wind was gone. -from The Dragon Reborn. By Loial, son of Arent son of Halan, the Fourth Age.
+ - Come to think of it, an Aes Sedai would probably follow a man off a cliff, too, if only to explain to him – in detail – all the things he was doing incorrectly in the way he went about killing himself.
+ - Sometimes, pain is all that lets you know you’re alive.
+ - I can rest when I’m dead.
+ - The oak fought the wind and was broken, the willow bent when it must and survived.
+ - May you shelter in the palm of the Creator’s hand, and may the last embrace of the mother welcome you home.
+ - If you must mount the gallows, give a jest to the crowd, a coin the hangman, and make the drop with a smile on your lips.
+ - You have made a place in my heart where I thought there was no room for anything else. You have made flowers grow where I cultivated dust and stones. Remember this, on this journey you insist on making. If you die, I will not survive you long.
+ - I’m a gambler, a farmboy, and I’m here to take command of your bloody army! – Mat Cauthon.
+ - A man falling off a cliff to certain death will stretch out a hand even to his worst enemy.
+ - In a cruel land, you either learned to laugh at cruelty or spent your life weeping.
+ - Run when you have to, fight when you must, rest when you can.
+ - If you can’t hide what you are going to do, do it so everybody thinks you are a fool.
+ - Better ten days of love than years of regretting.
+ - A beautiful battle is one you don’t have to fight.
+ - Never gamble without knowing a back way out.
+ - The road ahead of you is long, dark, and, I very much fear, bloodstained. I also very much fear that you will take us all down that road. But you must live to reach the end of it.
+ - If wishes were wings, pigs would fly.
+ - I will hate the man you choose because he isn’t me, and love him if he makes you smile.
+ - A woman’s eyes cut deeper than a knife.
+ - The rose petal floats on water. The kingfisher flashes above the pond. Life and beauty swirl in the midst of death.
+ - Taking responsibility takes all the joy out of life, and drains a man to dust.
+ - In the Borderlands, sheepherder, if a man has the raising of a child, that child is his, and none can say different.
+ - Schemes within schemes. The Great Serpent is a good sign for you Aes Sedai, I think. Someday you may swallow yourselves by accident.
+ - A pig painted gold is still a pig.
+ - The Creator made women to please the eye, and to boggle the mind.
+ - Kill a man who needs killing, and sometimes others pay for it. The question is, was it worth doing it anyway? There’s always a balance, you know. Good and evil. Light and Shadow. We would not be human if there wasn’t a balance.
+ - Always leave a way out, unless you really want to find out how hard a man can fight when he’s nothing to lose.
+ - Reading is like breathing. If you take it away, first I become antsy, then violent.
+ - Dance well with a woman, and she’s halfway yours.
+ - A slow horse does not always reach the end of the journey.
+ - If you have a sword, and the Aielman has his bare hands, it is an even fight. If you’re good.
+ - Often you don’t know whether a woman is friend, enemy or lover until it is too late. Sometimes, she is all three.
+ - Only a fool thinks his enemies stand still when he isn’t looking, my Lord Dragon.
+ - Men forget, but never forgive; women forgive, but never forget.
+ - I surrender to it, and by surrendering, I control it.
+ - I grew up around strong women; weak men were pickled and salted. The women wouldn’t waste time raising a weak boy.
+ - Kneel and swear to the Lord Dragon, or you will be knelt.
+ - The men in my family are strong because the women in my family kill and eat the weak ones.
+ - A cat for a hat, or a hat for a cat. But nothing for nothing.
+ - The arrogance of men never ceases to amaze me. You all think everything has to do with you, and every woman has to desire you.
+ - Only a battle lost is sadder than a battle won.
+ - On the heights, all paths are paved with daggers. -Old Seanchan saying.
+ - The way back will come but once. Be steadfast.
+ - A spoonful of hope and a cup of despair.
+ - There are things worth fighting for.
+ - You have to have talent to some extent – I certainly hope I have talent – but you have to have luck as well. Once you get that first shot, that will get you noticed for the rest of your books and that will give the rest of your books a better chance.
+ - Any fool knows men and women think differently at times, but the biggest difference is this. Men forget, but never forgive; women forgive, but never forget.
+ - But men often mistake killing and revenge for justice. They seldom have the stomach for justice.
+ - Care for the living. I’ll weep for the dead later. – Perrin Aybara.
+ - You trouble me so, Rand al’Thor. Light, sometimes I think the Creator made you just to trouble me.
+ - Any day you wake up, maybe you die.
+ - A weeping woman is a bucket with no bottom.
+ - If it hurts too much, make it hurt someone else instead.
+ - Cheer the bull, or cheer the bear; cheer both, and you will be trampled and eaten.
+ - My mother says men are different from us. She says we want to be in love, but only with the one we want; a man needs to be in love, but he will love the first woman to tie a string to his heart. – Egwene, speaking to Elayne.
+ - He is born again! I feel him! The Dragon takes his first breath on the slope of Dragonmount! He is coming! He is coming! Light help us! Light help the world! He lies in the snow and cries like the thunder! He burns like the sun!
+ - A man who trusts everyone is a fool and a man who trusts no one is a fool. We are all fools if we live long enough.
+ - The best way to avoid trouble is to make sure no one wants to trouble you.
+ - The Wheel of Time and the wheel of a man’s life turn alike without pity or mercy.
+ - When you wish for so long that you could hear something, and then suddenly, with no warning, you do, it is like a lightning strike and rain on parched ground at the same time. You’re stunned, but you cannot hear enough.
+ - We are always more afraid than we wish to be, but we can always be braver than we expect.
+ - The fox often offers the duck its pond.
+ - What woman could I hate enough to marry her to the Dragon Reborn?
+ - Do not trouble trouble till trouble troubles you.
+ - When a woman says she will obey you, of her own will, it is time to sleep lightly and watch your back.
+ - As my Lord says, my Lord’s leg is not a side of beef. Thank you, my Lord, for instructing me.
+ - A man must know when to retreat from a woman, but a wise man knows that sometimes he must stand and face her.
+ - It seems to me that kings and queens can be fools when they forget what they are and act like who they are, but they’re worse when they only remember what they are and forget who.
+ - Waiting turns men into bears in a barn, and women into cats in a sack.
+ - If the world is ending, a woman will want to fix her hair. If the world’s ending, a woman will take the time to tell a man something he’s done wrong. -Matrim Cauthon.
+ - Better to face the bear than run from it.
+ - Trust is as slippery as a basket of eels sometimes.
+ - From the time an Aiel boy becomes a man he will not sing anything but battle chants, or their dirge for the slain. I have heard them singing over their dead, and over those they have killed. That song is one to make the stones weep.
+ - Even a queen stubs her toe, but a wise woman watches the path.
+ - Humankind is made for uncertainty, struggle, choice and change.
+ - Women do not become exhausted they only exhaust others.
+ - Belief and order give strength. Have to clear rubble before you can build.
+ - Surprising what you can dig out of books if you read long enough, isn’t it?
+ - The fact that the price must be paid is proof it is worth paying.
+ - Strange clothes you wear, Child of the Dragon. Has the Wheel turned so far? Do the People of the Dragon return to the first Covenant? But you wear a sword. That is neither now nor then.
+ - The more women there are about, the softer a wise man steps.
+ - I’m not certain that I draw from any one culture more than others. Many myths and legends of many different cultures are really the same story when you get to the heart of it. They are often cultural cautionary tales about how we should behave and how we should live.
+ - Once you decide to gut a fish, there’s no use waiting till it rots.
+ - The more bosom a woman displayed, the less she wanted you to look. Openly, at least.
+ - When there are fish heads and blood in the water, you don’t need to see the silverpike to know they are there.
+ - What you want is what you cannot have. What you cannot have is what you want.
+ - Men always seem to refuse to admit they are sick until they’re sick enough to make twice as much work for women. Then they claim they’re well too soon, with the same result.
+ - Keep your mind out of the pigsty, man!
+ - The nobles and the noble Houses maneuver for advantage. They do things they think will help them, or hurt and enemy, or both. Usually, it’s all done in secrecy, or if not, they try to make it seem as if they’re doing something other than what they are.
+ - There’s no time for winking at the men when you’re busy bailing the boat.
+ - Young men and fools sometimes bear pain they do not have to as a badge of their pride. Or their foolishness.
+ - Always something new, always something I didn’t expect, and sometimes it isn’t horrible.
+ - I do not like odd things until I can understand them.
+ - Nobody tells us how to be men. We just are.
+ - You must surrender before you can guide.
+ - You could weave silk from pig bristles before you could make a man anything but a man.
+ - The yellowfly is almost too small to see, but if you leave its egg in your skin, you will lose an arm or leg before it hatches – if it does not kill you.
+ - It was easier to be brave when someone needed your protection.
+ - At my age, if I make it up, it’s still an old saying.
+ - No man should have another man’s voice in his head.
+ - Beauty holds more worth than gold.
+ - All was shattered, and all but memory lost, and one memory above all others, of him who brought the Shadow and the Breaking of the World. And him they named Dragon.
+ - Before I knew what was happening, I had a fistful of spears around my neck like a collar. I could have shaved myself with one sneeze.
+ - Thus is our treaty written; thus is agreement made. Thought is the arrow of time; memory never fades. What was asked is given; the price is paid.
+ - Even fools say something worthwhile now and again. Even a blind pig finds an acorn sometimes.
+ - Loial, son of Arent, son of Halen, had secretly always wanted to be hasty.
+ - A secret spoken finds wings.
+ - Life is a dream from which we all must wake before we can dream again.
+ - It’s never over, al’Thor. The battle’s never done.
+ - The lions sing and the hills take flight. The moon by day, and the sun by night. Blind woman, deaf man, jackdaw fool. Let the Lord of Chaos rule. -chant from a children’s game heard in Great Arvalon, the Fourth Age.
+ - A Warder once told me Trollocs call the Aiel Waste ‘the Dying Ground.’ I mean to make them give that name to the Two Rivers.
+ - Dance with her, and she will forgive much. Dance well, and she will forgive anything.
+ - The wheel of a man’s life. No mercy. No pity.
+ - You have to understand, child. Everyone wants someone in their life, someone who cares for them, someone they can care for. Even a queen.
+ - Never kiss a girl whose brothers have knife scars.
+ - If you wish, you may call me Rand Sedai.
+ - Better to have one woman on your side than ten men.
+ - Remember that any meal can be your last. You chose to travel with us, so tonight you will eat fish. Tomorrow, you may die.
+ - If your enemy offers you two targets, strike at a third.
+ - If a woman does need a hero, she needs him today, not tomorrow.
+ - Men always believe they are in control of everything around them. When they find out they are not, they think they have failed, instead of learning a simple truth women already know.
+ - There are no clear paths. Only pitfalls and tripwires and darkness.
+ - In wars, boy, fools kill other fools for foolish causes.
+ - She understood his eyes, colder than winter’s heart. A man who knew he was dead and couldn’t make himself care; you are spared that. Mashiara. His lost love.
+ - Mat had tried to make her say she saw a hat floating around Mat’s head. That would persuade Tuon to stop trying to get rid of his, would it not?
+ - Sometimes six and six make a dozen, and sometimes they make a mess.
+ - My mother always told me the best way to learn to deal with a man was to learn to ride a mule. She said they have about equal brains most of the time. Sometimes the mule is smarter.
+ - Clutch the bramble and you will be pricked.
+ - For the young, death is an enemy they wish to try their strength against. For those of us a little older, she is an old friend, an old lover, but one we are not eager to meet again soon.
+ - Caution once forgotten could be forgotten once too often.
+ - Love is an odd thing. As odd a thing as there is.
+ - A fool puts her hand into a hollow tree without finding out what’s inside first.
+ - I doubt you can understand the magnitude of the stupidity in your statement.
+ - Tuon’s eyes snapped open, and despite the dim light, she focused directly on Mat. She saw the knife in his hand, ready to throw. Then she looked over her shoulder.
+ - The only man completely at peace is a man without a navel.
+ - Anyone who claimed that old age had brought them patience was either lying or senile.
+ - What is already woven cannot be undone. It will not make the trees grow again for you to bring the building down on our heads.
+ - You cannot please everyone. You cannot soothe everyone.
+ - An open sack hides nothing, And an open door hides little, but an open man is surely hiding something. lini is quoted by Nynaeve.
+ - Women often seemed to leave things unsaid, and in his limited experience it was what they did not say that proved the most trouble.
+ - One pretty woman means fun at the dance. Two pretty women means trouble in the house. Three pretty women means run at the hills.
+ - A gnarled old branch dulls the blade that severs a sapling.
+ - A shoat squealing under a fence just attracts the fox, when it should be trying to run.
+ - You never escape the traps you spin yourself. Only a greater power can break a power, and then you’re trapped again. Trapped forever so you cannot die.
+ - Fantasy is an area where it is possible to talk about right and wrong, good and evil, with a straight face. In mainstream fiction and even in a good deal of mystery, these things are presented as simply two sides of the same coin. Never really more than a matter of where you happen to be standing.
+ - What is too absurd to be believed is believed because it is too absurd to be a lie.
+ - A young wolfhound must meet his first wolf someday, but if the wolf sees him as a puppy, if he acts the puppy, the wolf will surely kill him. The wolfhound must be a wolfhound in the wolf’s eyes even more than in his own, if he is to survive.
+ - The leaf lives its appointed time, and does not struggle against the wind that carries it away. The leaf does no harm, and finally falls to nourish new leaves. So it should be with all men and women.
+ - Should and would build no bridges. -Lini.
+ - Tonight you will eat fish. Tomorrow, you may die.
+ - Men! Too blind to see what a stone could see, and too stubborn to be trusted to think for themselves.
+ - A flapping tongue has killed more men than sudden storms ever did.
+ - Think if you want to stay alive. Fear will kill you if you don’t control it.
+ - It’s too late to change your mind after you’ve jumped off the cliff.
+ - Time to toss the dice.
+ - The pike does not ask the frog’s permission before dining.
+ - Jump in a hole without looking, and there’ll be a snake in it every time.
+ - But it was an ending.
+ - Sometimes, a wife must do what her husband cannot.
+ - Pride fills me. I am sick with the pride that destroyed me.
+ - Teach him how you will, a pig will never play the flute.
+ - We all make our limits, and we set them further out than we have any right.
+ - You read too much and understand too little.
+ - It is the enemy you underestimate who kills you.
+ - The best lie is often one too ridiculous to be taken for a lie.
+ - Hardness shatters; strength endures.
+ - Wounds to the pride are remembered long after wounds to the flesh.
+ - It was easier to trip a fool than to knock him down.
+ - Victory settles a lot of arguments in most men’s heads.
+ - A wise ruler takes advice, but should never be seen to take it. Let them think you know more than you do. It will not harm them, and it will help you.
+ - A man can get killed in there.
+ - Take what you can have. Rejoice in what you can save, and do not mourn your loses for too long.
+ - Young men can be impetuous, young men can be rush, young men can be fools, but the Car’a’carn cannot let himself be a young man.
+ - Courage to strengthen, fire to blind, music to daze, iron to bind.
+ - Better to try understanding the sun than a woman.
+ - How long had he been doing what was necessary instead of what was right? In a fair world they would be one and the same.
+ - A man is a man, on a throne or in a pigsty.
+ - If you don’t know everything, you must go on with what you do know.
+ - Does it make you brave to stick your hand in a bear’s mouth? Would you do it again just because you didn’t die?
+ - To fight the raven you may make alliance with the serpent until the battle is done.
+ - Some said Delana was sucessful as a mediator because both sides would agree just to make her stop staring at them.
+ - Moiraine: It seems Ryne was wrong as well as a Darkfriend. You were better than he. Lan: He was better. But he thought I was finished, with only one arm. He never understood. You surrender after you’re dead.
+ - She’s not for you, nor you for her; at least, not in the way you both want.
+ - A man without trust is a man without life.
+ - I may be a fool, but I intend to be a live fool.
+ - Let most men have a finger and they will have the whole hand before you know. Let a clan cheif have a finger and he will have the entire arm.
+ - First things first; take care of what can be done now before worrying too long over what might never be.
+ - When the honey’s out of the comb, there’s no putting it back.
+ - If it’s not forbidden, then it’s allowed.
+ - Take what you want, and pay for it.
+ - If you pursue two hares, both will escape you.
+ - As he did so, a wind rose up around him, around the man who had been called lord, Dragon Reborn, king, killer, lover and friend.
+ - What can’t be changed must be endured.
+ - Well, I can admire stubbornness in a man. There is little to a man who’s too easily biddable.
+ - Storms rumble beyond the horizon, and the fires of heaven purge the earth. There is no salvation without destruction, no hope this side of death.
+ - Always plan for the worst, child, that way all your surprises are pleasant ones.
+ - Once you catch a disease and survive, you can’t get it again.
+ - If any of these women had been here instead of Nynaeve, the world would have ended.
+ - I killed the whole world, and you can too, if you try hard.
+ - A man who will not die to save a woman is no man.
+ - The people seemed nearly ostentatious about minding their own business.
+ - Hammer the iron that lies on your anvil instead of daydreaming about working silver.
+ - Most of those we call heroes only did what they had to do.
+ - Two hands. One to destroy, the other to save. Which had he lost?
+ - An arrow may not be a shocklance, yet it can still kill you.
+ - If you fell head first into a pigsty, you’d try to convince everybody you did it on purpose.
+ - Taren Ferry folk had a reputation for slyness and trickery. If you shook hands with a Taren Ferry man, people said, you counted your fingers afterwards.
+ - If you try putting a woman on a horse when she does not want to go, she may put a knife in your ribs.
+ - A man’s dreams are a maze even he cannot know.
+ - Never prod at a woman unless you must. She will kill you faster than a man and for less reason, even if she weeps over it after.
+ - Stopping a man from what he wants to do is like taking a sweet from a child. Sometimes you have to do it, but sometimes it just isn’t worth the trouble.
+ - Perrin, my father says a general can take care of the living or weep for the dead, but he cannot do both.
+ - Never think I have abandoned you. When the sun shines on you, it is my smile. When you hear the breeze stir through the apple blossoms, it is my whisper that I love you. My love is yours forever.
+ - It’s not evil, Rand. I know something evil when I smell it. This isn’t evil, it’s just incredibly stupid.
+ - I know how to take a man out of his miseries. Give him a swift kick, or else get him drunk and find him a pr-...
+ - A crafty enemy will set a weak ambush you are meant to break through. Confident because you have dealt with the threat, your guard relaxed, you walk into the second, stronger ambush.
+ - A man should never give promises in bed.
+ - Bloody flaming ashes.
+ - I think that quite often you can only find a choice between bad and worse. But I think it’s worth making the effort, and I like to expose my characters to that sort of situation.
+ - Why, that’s like being told to go up in the hills to find lions, only you do not know whether there are any lions, but if there are, they may be hunting you, and they may be disguised as bushes. Oh, and if you find any lions, try not to let them eat you before you can tell where they are. -Elayne.
+ - A Myrddraal has less cunning than a woman, and a Trolloc fights with more honor. And a goat has more sense.
+ - Still waters run deep. All things change until we wake. Dreams drift in the wind.
+ - What I love I destroy. What I destroy, I love.
+ - To lead is neither to push or pull.
+ - The only way was forward, whatever lay at the end.
+ - If you ask the lion to protect from from wolves, you have only chosen to end in one belly instead of another.
+ - Let the Dragon ride again on the winds of time.
+
+244 quotes

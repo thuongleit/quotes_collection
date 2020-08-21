@@ -1,0 +1,47 @@
+ - Motivation will almost always beat mere talent. 
+ - A hungry dog hunts best. A hungrier dog hunts even better.
+ - Simply stated, it is sagacious to eschew obfuscation.
+ - One should expect that the expected can be prevented, but the unexpected should have been expected.
+ - Two-thirds of the Earth’s surface is covered with water. The other third is covered with auditors from headquarters.
+ - All too many consultants, when asked, ‘What is 2 and 2?’ respond, ‘What do you have in mind?’
+ - If today were half as good as tomorrow is supposed to be, it would probably be twice as good as yesterday was.
+ - A recent government publication on the marketing of cabbage contains, according to one report, 26,941 words. It is noteworthy in this regard that the Gettysburg Address contains a mere 279 words while the Lord’s Prayer comprises but 67.
+ - Decreased business base increases overhead. So does increased business base.
+ - Law Number XXXII: Hiring consultants to conduct studies can be an excellent means of turning problems into gold, your problems into their gold.
+ - Law Number XV: The last 10 percent of performance generates one-third of the cost and two-thirds of the problems.
+ - There are no lazy veteran lion hunters.
+ - We believe in the wisdom once expressed by the hockey star Wayne Gretzky, who explained his success by saying, ‘I skate to where the puck is going to be, not where it has been.’
+ - Law Number V: One-tenth of the participants produce over one-third of the output. Increasing the number of participants merely reduces the average output.
+ - Law Number XXXIX: Never promise to complete any project within six months of the end of the year, in either direction.
+ - Simple systems are not feasible because they require infinite testing.
+ - It costs a lot to build bad products.
+ - Law Number XXXVI: The thickness of the proposal required to win a multimillion dollar contract is about one millimeter per million dollars. If all the proposals conforming to this standard were piled on top of each other at the bottom of the Grand Canyon it would probably be a good idea.
+ - Hardware works best when it matters the least.
+ - The best way to make a silk purse from a sow’s ear is to begin with a silk sow. The same is true of money.
+ - Law Number XLVIII: The more time you spend talking about what you have been doing, the less time you have to spend doing what you have been talking about. Eventually, you spend more and more time talking about less and less until finally you spend all your time talking about nothing.
+ - Law Number XXIX: Executives who do not produce successful results hold on to their jobs only about five years. Those who produce effective results hang on about half a decade.
+ - It’s easy to get a loan unless you need it.
+ - If you can afford to advertise, you don’t need to.
+ - Most projects start out slowly – and then sort of taper off.
+ - The most unsuccessful three years in the education of cost estimators appears to be fifth-grade arithmetic.
+ - Law Number XIV: After the year 2015, there will be no airplane crashes. There will be no takeoffs either, because electronics will occupy 100 percent of every airplane’s weight.
+ - It is very expensive to achieve high unreliability. It is not uncommon to increase the cost of an item by a factor of ten for each factor of ten degradation accomplished.
+ - There are many highly successful businesses in the United States. There are also many highly paid executives. The policy is not to intermingle the two.
+ - If the Earth could be made to rotate twice as fast, managers would get twice as much done. If the Earth could be made to rotate twenty times as fast, everyone else would get twice as much done since all the managers would fly off.
+ - Law Number L: The average regulation has a life span one-fifth as long as a chimpanzee’s and one-tenth as long as a human’s, but four times as long as the official’s who created it.
+ - Law Number XXIV: The only thing more costly than stretching the schedule of an established project is accelerating it, which is itself the most costly action known to man.
+ - Law Number XX: In any given year, Congress will appropriate the amount of funding approved the prior year plus three-fourths of whatever change the administration requests, minus 4-percent tax.
+ - By the time the people asking the questions are ready for the answers, the people doing the work have lost track of the questions.
+ - One cannot legislate problems out of existence. It has been tried.
+ - Law Number XXVIII: It is better to be the reorganizer than the reorganizee.
+ - Only by providing leading-edge human capital and knowledge capital can American continue to maintain a high standard of living, including providing national security for its citizens.
+ - Regulations grow at the same rate as weeds.
+ - The process of competitively selecting contractors to perform work is based on a system of rewards and penalties, all distributed randomly.
+ - A billion saved is a billion earned.
+ - Law Number XLIV: Aircraft flight in the 21st century will always be in a westerly direction, preferably supersonic, crossing time zones to provide the additional hours needed to fix the broken electronics.
+ - People working in the private sector should try to save money. There remains the possibility that it may someday be valuable again.
+ - Soloist are inspiring in Opera and perhaps even in small entreprenurial ventures, but there is no place for them in large corporations.
+ - By the time of the United States Tricentennial, there will be more government workers than there are workers.
+ - Fools rush in where incumbents fear to tread.
+
+45 quotes

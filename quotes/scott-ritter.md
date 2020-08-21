@@ -1,0 +1,30 @@
+ - One, if you attack my integrity, I will defend myself. If you attack my patriotism, I will defend myself. If you come after my family, I will counter-attack viciously, I will destroy you.
+ - The United States is the laughingstock of the world.
+ - I can train a monkey to wave an American flag. That does not make the monkey patriotic.
+ - Iraq has a tremendous amount of history.
+ - If you want to play the game of truth, I’ll tell the truth, and the truth will burn.
+ - Weapons of mass destruction aren’t pulled out of a black hat like a white rabbit at a magic show. They’re produced in factories. There’s science and technology involved. They’re not produced in a hole in the ground or in a basement.
+ - We are the ones responsible to determine whether the war that our marines, soldiers and airmen are fighting in is worth the cause...
+ - The Iraqi people are some of the warmest people you’ll meet in your life. They are extremely receptive to strangers. Their hospitality is immense.
+ - War is not some sort of Nintendo video game.
+ - I’d like to think the best bunker buster is a diplomat.
+ - We say that we care about the war, but we don’t even really know what we’re fighting for.
+ - History will eventually depict as legitimate the efforts of the Iraqi resistance to destabilise and defeat the American occupation forces and their imposed Iraqi collaborationist government.
+ - My goal in Baghdad was to facilitate a debate here in the United States on America’s policy toward Iraq, a debate that’s been sadly lacking.
+ - I haven’t exaggerated anything, I’ve stuck to the facts.
+ - If people don’t like the history, I’m sorry.
+ - It has been estimated that 80 percent of the oil illegally smuggled out of Iraq under oil for food ended up in the United States.
+ - That we have collectively failed to halt and repudiate the war in Iraq makes us even worse than the Germans.
+ - I’m someone who believes the truth needs to be heard. And if I’m empowered with the truth, I’m not going to shut up.
+ - It is hard as an American to support the failure of American military operations in Iraq. Such failure will bring with it the death and wounding of many American service members, and many more Iraqis.
+ - Sanctions aren’t about weapons of mass destruction. People need to understand that.
+ - I love my country more than anything. I spent 12 years in the United States Marine Corps. I know what it means to defend this country.
+ - The only way an Iraqi biological agent would kill you is if it landed on your head.
+ - My personal missteps – how many Americans have died as a result of that? None. Other than my family, how many victims were there? None. And yet, in refusing to engage in a responsible debate about Iraq, how many Americans died? Thousands. And America seems to have no problem with that.
+ - I can generate attention quickly.
+ - I was right about one of the most significant issues in modern American history. I was the only one who was right about one of the most significant issues in modern American history.
+ - I didn’t promote war when I was a weapons inspector.
+ - I don’t disagree with anything I’ve ever said. Why in God’s name would I disagree with something I’ve said?
+ - There has been no case made – based on anything other than speculation – that Iraq poses a threat.
+
+28 quotes

@@ -1,0 +1,97 @@
+ - Music gives a soul to the universe, wings to the mind, flight to the imagination and life to everything.
+ - Wise men speak because they have something to say; fools because they have to say something.
+ - The beginning is the most important part of the work.
+ - Character is simply habit long continued.
+ - No one is more hated than he who speaks the truth.
+ - Be kind, for everyone you meet is fighting a harder battle.
+ - You can discover more about a person in an hour of play than in a year of conversation.
+ - A house that has a library in it has a soul.
+ - Happiness springs from doing good and helping others.
+ - Love is a serious mental disease.
+ - Only the dead have seen the end of war.
+ - Necessity is the mother of invention.
+ - Human behavior flows from three main sources: desire, emotion, and knowledge.
+ - The heaviest penalty for declining to rule is to be ruled by someone inferior to yourself.
+ - The measure of a man is what he does with power.
+ - Those who are able to see beyond the shadows and lies of their culture will never be understood let alone believed by the masses.
+ - No wealth can ever make a bad man at peace with himself
+ - A grateful mind is a great mind which eventually attracts to itself great things.
+ - In order for man to succeed in life, God provided him with two means, education and physical activity. Not separately, one for the soul and the other for the body, but for the two together. With these means, man can attain perfection.
+ - Every heart sings a song, incomplete, until another heart whispers back. Those who wish to sing always find a song. At the touch of a lover, everyone becomes a poet.
+ - Ignorance, the root and the stem of every evil.
+ - The first and best victory is to conquer self.
+ - Those who tell the stories rule society.
+ - One of the penalties for refusing to participate in politics is that you end up being governed by your inferiors.
+ - Astronomy compels the soul to look upwards and leads us from this world to another.
+ - I am the wisest man alive, for I know one thing, and that is that I know nothing.
+ - The worst form of injustice is pretended justice.
+ - We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light.
+ - Opinion is the medium between knowledge and ignorance.
+ - The greatest wealth is to live content with little.
+ - The soul of man is immortal and imperishable.
+ - To conquer oneself is the best and noblest victory; to be vanquished by one’s own nature is the worst and most ignoble defeat.
+ - He who is not a good servant will not be a good master.
+ - Geometry existed before creation.
+ - The price good men pay for indifference to public affairs is to be ruled by evil men.
+ - Lack of activity destroys the good condition of every human being.
+ - The true lover of knowledge naturally strives for truth, and is not content with common opinion, but soars with undimmed and unwearied passion till he grasps the essential nature of things.
+ - Nothing in the affairs of men is worthy of great anxiety.
+ - I’m trying to think, don’t confuse me with facts.
+ - When men speak ill of thee, live so that nobody will believe them.
+ - Philosophy is the highest music.
+ - The wise man will want to be ever with him who is better than himself.
+ - Courage is knowing what not to fear.
+ - There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.
+ - Education is teaching our children to desire the right things.
+ - An empty vessel makes the loudest sound, so they that have the least wit are the greatest babblers.
+ - Any man may easily do harm, but not every man can do good to another.
+ - The object of education is to teach us to love what is beautiful.
+ - According to Greek mythology, humans were originally created with four arms, four legs and a head with two faces. Fearing their power, Zeus split them into two separate parts, condemning them to spend their lives in search of their other halves.
+ - A hero is born among a hundred, a wise man is found among a thousand, but an accomplished one might not be found even among a hundred thousand men.
+ - Do not train a child to learn by force or harshness; but direct them to it by what amuses their minds, so that you may be better able to discover with accuracy the peculiar bent of the genius of each.
+ - You should not honor men more than truth.
+ - No man should bring children into the world who is unwilling to persevere to the end in their nature and education.
+ - He was a wise man who invented God.
+ - The madness of love is the greatest of heaven’s blessings.
+ - There is truth in wine and children.
+ - The penalty that good men pay for not being interested in politics is to be governed by men worse than themselves.
+ - Writing is the geometry of the soul.
+ - You’re my Star, a stargazer too, and I wish that I were Heaven, with a billion eyes to look at you!
+ - Death is not the worst that can happen to men.
+ - As the builders say, the larger stones do not lie well without the lesser.
+ - True friendship can exist only between equals.
+ - The most virtuous are those who content themselves with being virtuous without seeking to appear so.
+ - If women are expected to do the same work as men, we must teach them the same things.
+ - There should exist among the citizens neither extreme poverty nor again excessive wealth, for both are productive of great evil.
+ - Of all the animals, the boy is the most unmanageable.
+ - At the touch of love everyone becomes a poet.
+ - Love is the pursuit of the whole.
+ - All the gold which is under or upon the earth is not enough to give in exchange for virtue.
+ - Courage is a kind of salvation.
+ - Is there a perfect world?
+ - False words are not only evil in themselves, but they infect the soul with evil.
+ - For this feeling of wonder shows that you are a philosopher, since wonder is the only beginning of philosophy.
+ - Knowledge which is acquired under compulsion has no hold on the mind. Therefore do not use compulsion, but let early education be a sort of amusement; you will then be better able to discover the child’s natural bent.
+ - The highest reach of injustice is to be deemed just when you are not.
+ - How can you prove whether at this moment we are sleeping, and all our thoughts are a dream; or whether we are awake, and talking to one another in the waking state?
+ - Perhaps there is a pattern set up in the heavens for one who desires to see it, and having seen it, to find one in himself.
+ - For to fear death, my friends, is only to think ourselves wise without really being wise, for it is to think that we know what we do not know. For no one knows whether death may not be the greatest good that can happen to man.
+ - Musical innovation is full of danger to the State, for when modes of music change, the laws of the State always change with them.
+ - The soul takes flight to the world that is invisible but there arriving she is sure of bliss and forever dwells in paradise.
+ - I have hardly ever known a mathematician who was capable of reasoning.
+ - When there is an income tax, the just man will pay more and the unjust less on the same amount of income.
+ - The man who finds that in the course of his life he has done a lot of wrong often wakes up at night in terror, like a child with a nightmare, and his life is full of foreboding: but the man who is conscious of no wrongdoing is filled with cheerfulness and with the comfort of old age.
+ - The soul takes nothing with her to the next world but her education and her culture. At the beginning of the journey to the next world, one’s education and culture can either provide the greatest assistance, or else act as the greatest burden, to the person who has just died.
+ - And we have made of ourselves living cesspools, and driven doctors to invent names for our diseases.
+ - I thought to myself: I am wiser than this man; neither of us probably knows anything that is really good, but he thinks he has knowledge, when he has not, while I, having no knowledge, do not think I have.
+ - Books are immortal sons defying their sires.
+ - A dog has the soul of a philosopher.
+ - Everything that deceives may be said to enchant.
+ - Poets utter great and wise things which they do not themselves understand.
+ - Either we shall find what it is we are seeking or at least we shall free ourselves from the persuasion that we know what we do not know.
+ - How could they see anything but the shadows if they were never allowed to move their heads?
+ - Poetry is nearer to vital truth than history.
+ - When the tyrant has disposed of foreign enemies by conquest or treaty and there is nothing to fear from them then he is always stirring up some wary or other in order that the people may require a leader.
+ - Have you ever sensed that our soul is immortal and never dies?
+
+95 quotes

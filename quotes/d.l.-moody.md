@@ -1,0 +1,240 @@
+ - Moses spent forty years thinking he was somebody; forty years learning he was nobody; and forty years discovering what God can do with a nobody.
+ - Our greatest fear should not be of failure, but of succeeding at something that doesn’t really matter.
+ - If I walk with the world, I can’t walk with God.
+ - Out of 100 men, one will read the Bible, the other 99 will read the Christian.
+ - Christians should live in the world, but not be filled with it. A ship lives in the water; but if the water gets into the ship, she goes to the bottom. So Christians may live in the world; but if the world gets into them, they sink.
+ - The Bible will keep you from sin, or sin will keep you from the Bible.
+ - Be humble, or you’ll stumble.
+ - The world has yet to see what God can do with a man fully consecrated to him. By God’s help, I aim to be that man.
+ - Whatever you love more than God is your idol.
+ - He who kneels the most, stands the best.
+ - If God is your partner, make your plans BIG!
+ - There will be no peace in any soul until it is willing to obey the voice of God.
+ - The Bible was not given for our information but for our transformation.
+ - God doesn’t expect the impossible from us. He wants us to expect the impossible from Him!
+ - Some people think God does not like to be troubled with our constant coming and asking. The way to trouble God is not to come at all.
+ - Spread out your petition before God, and then say, “Thy will, not mine, be done.” The sweetest lesson I have learned in God’s school is to let the Lord choose for me.
+ - Grace means undeserved kindness. It is the gift of God to man the moment he sees he is unworthy of God’s favor.
+ - The measure of a man is not how many servants he has but how many men he serves .
+ - Real true faith is man’s weakness leaning on God’s strength.
+ - Everybody wants to enjoy heaven after they die, but they don’t want to be heavenly-minded while they live.
+ - Every great movement of God can be traced to a kneeling figure.
+ - If I could relive my life, I would devote my entire ministry to reaching children for God!
+ - Character is what a man is in the dark.
+ - Those who say they will forgive but can’t forget, simply bury the hatchet but leave the handle out for immediate use.
+ - If I take care of my character, my reputation will take care of me.
+ - Give your life to God; he can do more with it than you can!
+ - When God gave Christ to this world, He gave the best He had, and He wants us to do the same.
+ - The impression that a praying mother leaves upon her children is life-long. Perhaps when you are dead and gone your prayer will be answered.
+ - I’d rather be able to pray than to be a great preacher; Jesus Christ never taught his disciples how to preach, but only how to pray.
+ - There is no better evangelist in the world than the Holy Spirit.
+ - I believe many a man is praying to God to fill him, when he is full already with something else. Before we pray that God would fill us, I believe we ought to pray Him to empty us.
+ - Fervency in prayer by the power of the Holy Spirit is a good preservative against thoughts rushing in. Flies never settle on the boiling pot.
+ - There are many of us that are willing to do great things for the Lord, but few of us are willing to do little things.
+ - Use me then, my Saviour for whatever purpose and whatever way thou mayest require. Here is my poor heart, and empty vessel; fill it with Thy Grace.
+ - The best way to show that a stick is crooked is not to argue about it or to spend time denouncing it, but to lay a straight stick alongside it.
+ - Lust is the devil’s counterfeit for love. There is nothing more beautiful on earth than a pure love and there is nothing so blighting as lust.
+ - A holy life will produce the deepest impression. Lighthouses blow no horns; they only shine.
+ - I never saw a fruit-bearing Christian who was not a student of the Bible.
+ - The fact is, we are leaky vessels, and we have to keep right under the fountain all the time to keep full of Christ, and so have fresh supply.
+ - If you can’t see His way past the tears, trust His heart.
+ - It is clear you don’t like my way of doing evangelism. You raise some good points. Frankly, I sometimes do not like my way of doing evangelism. But I like my way of doing it better than your way of not doing it.
+ - The object of the Bible is not to tell how good men are, but how bad men can become good.
+ - In our prayers, we talk to God, in our Bible study, God talks to us, and we had better let God do most of the talking.
+ - We talk about heaven being so far away. It is within speaking distance to those who belong there. Heaven is a prepared place for a prepared people.
+ - The valley of the shadow of death holds no darkness for the child of God. There must be light, else there could be no shadow. Jesus is the light. He has overcome death.
+ - Careful for nothing, prayerful for everything, thankful for anything.
+ - Some say if only my fears and doubts will leave then I will get to work. But instead you should get to work and then your fears and doubts will leave.
+ - If a man just stops to think what he has to praise God for, he will find there is enough to keep him singing praises for a week.
+ - True will-power and courage are not on the battlefield, but in everyday conquests over our intertia, laziness, boredom.
+ - My friends, if we are going to do a great work for God, we must spend much time in prayer; we have got to be closeted with God.
+ - Our Faith must be tested. God builds no ships but what He sends to sea.
+ - The Christian on his knees sees more than the philosopher on tiptoe. God sends no one away empty except those who are full of themselves.
+ - Sometimes when your child talks, your friends cannot understand what he says; but the mother understands very well. So if our prayer comes from the heart, God understands our language.
+ - Church attendance is as vital to a disciple as a transfusion of rich, healthy blood to a sick man.
+ - The preaching that this world needs most is the sermons in shoes that are walking with Jesus Christ.
+ - There is no greater honour than to be the instrument in God’s hands of leading one person out of the kingdom of Satan into the glorious light of Heaven.
+ - If God has given you a message, go and give it to the people as God has given it to you. It is a stupid thing to try to be eloquent.
+ - If you pray for bread and bring no basket to carry it, you prove the doubting spirit, which may be the only hindrance to the boon you ask.
+ - I have never met a man who has given me as much trouble as myself.
+ - There’s no better book with which to defend the Bible than the Bible itself.
+ - The voice of sin is loud, but the voice of forgiveness is louder.
+ - The Lord gives his people perpetual joy when they walk in obedience to him.
+ - What we want is to be real. Let us not appear to be more than we are. Don’t let us put on any cant, any assumed humility, but let us be real; that is the delight of God. God wants us to be real men and women, and if we profess to be what we are not, God knows all about us. God hates sham.
+ - I like my way of doing things better than your way of not doing them.
+ - If we have got the true love of God shed abroad in our hearts, we will show it in our lives. We will not have to go up and down the earth proclaiming it. We will show it in everything we say or do.
+ - The Bible without the Holy Spirit is a sundial by moonlight.
+ - My friends, look to Christ, and not to yourselves. That is what is the matter with a great many sinners; instead of looking to Christ, they are looking at the bite of sin.
+ - When a man has no strength, if he leans on God, he becomes powerful.
+ - If we do not love one another, we certainly shall not have much power with God in prayer.
+ - Next to the wonder of seeing my Savior will be, I think, the wonder that I made so little use of the power of prayer.
+ - Earth recedes, Heaven opens before me. If this is death, it is sweet! There is no valley here. God is calling me, and I must go.
+ - You might as well try to hear without ears or breathe without lungs, as to try to live a Christian life without the Spirit of God in your heart.
+ - God commands us to be filled with the Spirit, and if we are not filled, it is because we are living beneath our privileges.
+ - The Law can only chase a man to Calvary, no further.
+ - How far away is Heaven? It is not so far as some imagine. It wasn’t very far from Daniel. It was not so far off that Elijah’s prayer and those of others could not be heard there. Men full of the Spirit can look right into heaven.
+ - Whitewashing the pump won’t make the water pure.
+ - If you were to spend a month feeding on the precious promises of God, you would not be going about with your heads hanging down like bulrushes, complaining how poor you are; but you would lift up your heads with confidence, and proclaim the riches of His grace because you could not help it.
+ - At a certain meeting two and a half people were converted to Christ. A friend asked if he meant, two adults and a child. The facts were just the opposite two children and an adult. When a child is led to Christ, a whole life is saved!
+ - God will honor our faith.
+ - Life is very sweet to me, and there is no position of power or wealth that could tempt me from the throne God has given me.
+ - If we do not commend the Gospel to people by our holy walk and conversation, we shall not win them to Christ. Some little act of kindness will perhaps do more to influence them than any number of long sermons.
+ - To be tempted is not to sin. The strongest attacks are made on the strongest forts.
+ - If you can really make a man believe you love him, you have won him; and if I could only make people really believe that God loves them, what a rush we would see for the kingdom of God!
+ - We may easily be too big for God to use, but never too small.
+ - The best way to revive a church is to build a fire in the pulpit.
+ - The Gospel of John opens with Jesus Christ in the bosom of God, and closes with the sinner in the bosom of Jesus Christ.
+ - God has nothing to say to the self-righteous. Unless you humble yourself before Him in the dust, and confess before Him your iniquities and sins, the gate of heaven, which is open only for sinners, saved by grace, must be shut against you forever.
+ - This lost world will never be reached and brought back to loyalty to God, until the children of God wake up to the fact that they have a mission in the world. If we are true Christians we should all be missionaries.
+ - I never saw a useful Christian who was not a student of the Bible. If a man neglects his Bible, he may pray and ask God to use him in His work; but God cannot make much use of him, for there is not much for the Holy Ghost to work upon.
+ - The monument I want after I am dead is a monument with two legs going around the world-a saved sinner telling about the salvation of Jesus Christ.
+ - He is the Rock, His work is perfect: For all His ways are judgment: A God of truth and without iniquity, Just and right is He.
+ - I have had more trouble with myself than with any other man I have ever met.
+ - Some men’s prayers need to be cut short at both ends and set on fire in the middle.
+ - Preparation for old age should begin not later than one’s teens. A life which is empty of purpose until 65 will not suddenly become filled on retirement.
+ - Someday you will read in the papers that Moody is dead. Don’t you believe a word of it. At that moment I shall be more alive than I am now. I was born of the flesh in 1837, I was born of the spirit in 1855. That which is born of the flesh may die. That which is born of the Spirit shall live forever.
+ - I tell you there is one thing that draws above everything else in this world, and that is love.
+ - Temptations are like tramps. Treat them kindly, and they will return bringing others with them. Temptations are never so dangerous as when they come to us in a religious garb.
+ - By the grace of God, I’ll be that man.
+ - It is the greatest pleasure of living to win souls to Christ.
+ - Grace isn’t a little prayer you chant before receiving a meal. It’s a way to live. The law tells me how crooked I am. Grace comes along and straightens me out.
+ - Let us pray, and as we pray, let us make room for Jesus in our hearts.
+ - The Spirit of God first imparts love; He next inspires hope, and then gives liberty; and that is about the last thing we have in a good many of our churches at the present time.
+ - Unless the Spirit of God is with us, we cannot expect that our prayers will be answered.
+ - Trust in yourself and you are doomed to disappointment; trust in money and you may have it taken from you, but trust in God, and you are never to be confounded in time or eternity.
+ - No one should ever preach on the topic of hell without a tear in his eye.
+ - My heart goes out to you, and I long to see you all coming constantly to God for a fresh supply of love.
+ - God never made a promise that was too good to be true.
+ - I believe Satan exists for two reasons: first, the Bible says so, and second, I’ve done business with him.
+ - Every true work of God has had its bitter enemies – not only outside, but also inside – just as in the days of Nehemiah.
+ - Wouldn’t it be well to give some of your bouquets before a man dies, and not go and load down his coffin? He can’t enjoy them then.
+ - Take courage. We walk in the wilderness today and in the Promised Land tomorrow.
+ - The world does not understand theology or dogma, but it understands love and sympathy.
+ - I firmly believe a great many prayers are not answered because we are not willing to forgive someone.
+ - Faith takes God without any ifs. If God says anything, faith says, “I believe it”; faith says, “Amen” to it.
+ - David was the last one we would have chosen to fight the giant, but he was chosen of God.
+ - No one can sum up all God is able to accomplish through one solitary life, wholly yielded, adjusted, and obedient to Him.
+ - If God did not want us to understand the book of Revelation, He would not have given it to us at all.
+ - If you don’t enter the kingdom of heaven by God’s way, you cannot enter at all.
+ - Many a professing Christian is a stumbling-block because his worship is divided. On Sunday he worships God; on weekdays God has little or no place in his thoughts.
+ - Every one of our children will be brought into the ark, if we pray and work earnestly for them.
+ - We ought to see the face of God every morning before we see the face of man.
+ - Temperance is love in training.
+ - Man is born with his face turned away from God. When he truly repents, he is turned right round toward God; he leaves his old life.
+ - The last business of Christ’s life was the saving of a poor penitent thief.
+ - I know the Bible is inspired because it inspires me.
+ - When I was a young man I heard Henry Barley say that the world has yet to see what God can do for a man fully yielded to Him, and I said I wanted to be that man. But I can say today the world has yet to see what God can do with a man fully yielded to Him.
+ - When God wants to move a mountain, he does not take a bar of iron, but he takes a little worm. The fact is, we have too much strength. We are not weak enough. It is not our strength that we want. One drop of God’s strength is worth more than all the world.
+ - I am walking toward a bright light and the nearer I get the brighter it is.
+ - No man can resolve himself into Heaven.
+ - Where one man reads the Bible, a hundred read you and me.
+ - When a man is not deeply convicted of sin, it is a pretty sure sign that he has not truly repented. Experience has taught me that men who have very slight conviction of sin sooner or later lapse back into their old life.
+ - A good example is far better than a good precept.
+ - God has cast our confessed sins into the depths of the sea, and He’s even put a ‘No Fishing’ sign over the spot.
+ - A missions conference is a business meeting to decide the fate of the heathen.
+ - Satan is willing to have us worship anything, however sacred – the Bible, the crucifix, the church – if only we do not worship God Himself.
+ - Christ never preached any funeral sermons.
+ - Let us expect that God is going to use us. Let us have courage and go forward, looking to God to do great things.
+ - The Son of God passed by the mansions and went down in a manger that He might sympathize with the lowly.
+ - We are told to let our light shine, and if it does, we won’t need to tell anybody it does. Lighthouses don’t fire cannons to call attention to their shining- they just shine.
+ - When a man thinks he has got a good deal of strength, and is self-confident, you may look for his downfall. It may be years before it comes to light, but it is already commenced.
+ - If our circumstances find us in God, we shall find God in all our circumstances.
+ - We can stand affliction better than we can prosperity, for in prosperity we forget God.
+ - I know I have a first-rate mind, but that’s no source of pride to me. Intelligent people are a dime a dozen. But I am proud of having character.
+ - A rule I have had for years is: to treat the Lord Jesus Christ as a personal friend. His is not a creed, a mere doctrine, but it is He Himself we have.
+ - Ministry need not be an office; it’s a lifestyle devoted to attracting the lost to Christ and encouraging other believers in the faith.
+ - Before we pray that God would fill us, I believe we ought to pray that He would empty us.
+ - There is the joy of one’s own salvation. I thought, when I first tasted that, it was the most delicious joy I had ever known, and that I could never get beyond it. But I found, afterward, there was something more joyful that, namely, the joy of the salvation of others.
+ - I cannot convert men; I can only proclaim the Gospel.
+ - It is the only happy life to live for the salvation of souls.
+ - Someone has said that there are four things necessary in studying the Bible: Admit, submit, commit and transmit.
+ - If Jesus bore the cross, and died on it for me, ought I not to be willing to take it up for Him?
+ - It is not the man that can preach the best that is the most successful, but the man who knows how to get his people together to pray.
+ - Never think that Jesus commanded a trifle, nor dare to trifle with anything He has commanded.
+ - Christ came down to save us from a terrible hell, and any man who is cast down to hell from here must go in the full blaze of the gospel, and over the mangled body of the Son of God.
+ - So few grow, because so few study.
+ - Thanks be to God, there is hope to-day; this very hour you can choose Him and serve Him.
+ - There is no use in running before you are sent; there is no use in attempting to do God’s work without God’s power. A man working without this unction, a man working without this anointing, a man working without the Holy Ghost upon him, is losing time after all.
+ - The Scriptures were not given to increase our knowledge, but to change our lives.
+ - God has two thrones, on in the highest heavens, the other in the lowliest heart.
+ - A great many people are trying to make peace, but that has already been done. God has not left it for us to do; all we have to do is to enter into it.
+ - What makes the Dead Sea dead? Because it is all the time receiving, never giving out anything. Why is it that many Christians are cold? Because they are all the time receiving, never giving out anything.
+ - A Christian in the world is one thing, and the world in a Christian is quite another thing. A ship in the water is all right, but when the water gets in the ship, it is quite a different thing.
+ - Remember, a small light will do a great deal when it is in a very dark place. Put one little tallow in the middle of a large hall, and it will give a good deal of light.
+ - If you have so much business to attend to that you have no time to pray, depend upon it that you have more business on hand than God ever intended you should have.
+ - If this world is going to be reached, I am convinced that it must be done by men and women of average talent.
+ - I’d rather get ten men to do the job than to do the job of ten men.
+ - When we find a man meditating on the words of God, my friends, that man is full of boldness and is successful.
+ - A man can counterfeit love, he can counterfeit faith, he can counterfeit hope and all the other graces, but it is very difficult to counterfeit humility.
+ - I hunted all through the four Gospels trying to find one of Christ’s funeral sermons, but I couldn’t find any. I found He broke up every funeral He ever attended! Death couldn’t exist where He was.
+ - Salvation is worth working for. It is worth a man’s going round the world on his hands and knees, climbing its mountains, crossing its valleys, swimming its rivers, going through all manner of hardship in order to attain it. But we do not get it in that way. It is to him who believes.
+ - Faith is an outward look, not an inward look.
+ - God had one Son without sin, but He never had a son without trial.
+ - God stands in no need of our strength or wisdom, but of our ignorance, of our weakness; let us but give these to Him, and He can make use of us in winning souls.
+ - The man that is popular with the world is not a friend of Jesus. You cannot serve two masters. The world hates Christ, and if you are a friend of the world you cannot be a friend of His. You may be sure that something is wrong with you when everybody is your friend.
+ - I thank God that the gospel is to be preached to every creature. There is no man so far gone, but the grace of God can reach him; no man so desperate or black, but He can forgive him.
+ - God doesn’t seek for golden vessels, and does not ask for silver ones, but He must have clean ones.
+ - The law stops every man’s mouth. God will have a man humble himself down on his face before Him, with not a word to say for himself. Then God will speak to him, when he owns that he is a sinner, and gets rid of all his own righteousness.
+ - It is a good deal better to have life in Christ and God than any where else. I would rather have my life hid with Christ in God than be in Eden as Adam was. Adam might have remained in Paradise for 16,000 years, and then fallen, but if ours is hid in Christ, how safe!
+ - God has nothing to say to the self-righteous.
+ - Lying covers a multitude of sins – temporarily.
+ - The moral man is as guilty as the rest. His morality cannot save him.
+ - The grand question of life is, Is my name written in heaven?
+ - The reward of service is more service.
+ - Is there any reason why you should not have faith in God? Has God ever broken one of His promises? I defy any infidel or unbeliever to place a finger on a single promise of God ever made and failed to fulfill.
+ - I have noticed this, that when a man is full of the Holy Ghost he is the very last man to be complaining of other people.
+ - If a man gets drunk and goes out and breaks his leg so that it must be amputated, God will forgive him if he asks it, but he will have to hop around on one leg all his life.
+ - A man who prays much in private will make short prayers in public.
+ - I never yet have known the Spirit of God to work where the Lord’s people were divided.
+ - A worker must win the hearts and affections of the people before he can do any effective work.
+ - Light for every darkness, life in death, the promise of our Lord’s return, and the assurance of everlasting glory.
+ - I went to preaching again. The sermons were not different; I did not present any new truths, and yet hundreds were converted. I would not now be placed back where I was before that blessed experience if you should give me all the world – it would be as dust in the balance.
+ - I am glad there are things in the Bible I do not understand. If I could take that book up and read it as I would any other book, I might think I could write a book like that.
+ - If God tells us to do a thing we are to do it; if He tells us to believe a thing, we are to believe it; we are to have faith in God. Have faith in God, and if God tells you to believe a thing believe it, and then you will have peace and confidence and joy.
+ - Faith gives us living joy and dying rest.
+ - When a man is filled with the Word of God you cannot keep him still, If a man has got the Word, he must speak or die.
+ - How many people would like to get up in a social prayer-meeting to say a few words for Christ, but there is such a cold spirit of criticism in the church that they dare not do it.
+ - It is a masterpiece of the devil to make us believe that children cannot understand religion. Would Christ have made a child the standard of faith if He had known that it was not capable of understanding His words?
+ - Dr. Bonar once said that he could tell when a Christian was growing. In proportion to his growth in grace he would elevate his Master, talk less of what he himself was doing, and become smaller and smaller in his own esteem, until, like the morning star, he faded away before the rising sun.
+ - We may sing our hymns and psalms, and offer prayers, but they will be an abomination to God, unless we are willing to be thoroughly straightforward in our daily life.
+ - As a dead man cannot inherit an estate, no more can a dead soul inherit heaven. The soul must be resurrected in Christ.
+ - If we have Christ with us, we can do all things. Let us not be thinking how weak we are. Let us lift up our eyes to Him and think of Him as our Elder Brother who has all power given to Him in Heaven and on earth. He says, ‘Lo, I am with you alway, even unto the end of the world.’
+ - We have got nowadays so that we divide lies into white lies and black lies, society lies and business lies, etc. The Word of God knows no such letting-down of the standard.
+ - There is no harder lesson for man to learn than the lesson of humility. It is the rarest of all gifts. It is a very rare thing to find a man or woman that is following closely the footsteps of the Master in meekness and humility.
+ - Every time you walk a mile to church and carry a Bible with you, you preach a sermon a mile long.
+ - It is better to be a little too strict than too liberal.
+ - Give me a man who says this one thing I do, and not those fifty things I dabble in.
+ - A great many people wonder why it was that Christ did not come at once to Martha and Mary, whom He loved, whenever He heard of their affliction. It was to try them, and it is the same with His dealings toward us. If He seems not to come to us in our affliction, it is only to test us.
+ - His is a loving, tender hand, full of sympathy and compassion.
+ - I would rather a thousand times be five minutes at the feet of Christ than listen a lifetime to all the wise men in the world.
+ - Seeking to perpetuate one’s name on earth is like writing on the sand by the seashore; to be perpetual it must be written on eternal shores.
+ - The world knows little of the works wrought by prayer.
+ - No man ever sought Christ with a heart to find Him who did not find Him.
+ - He that overcometh shall inherit all things. God has no poor children.
+ - Would you be free from the condemnation of the sins that are past, from the power of the temptations that are to come? Then take your stand on the Rock of Ages. Let death, let the grave, let the judgment come, the victory is Christ’s and yours through Him.
+ - We must have a warrant for our prayers. If we have some great desire, we must search the scriptures to find if it be right to ask it.
+ - The work of the Spirit is to impart life, to implant hope, to give liberty, to testify of Christ, to guide us into all truth, to teach us all things, to comfort the believer, and to convict the world of sin.
+ - More depends on my walk than talk.
+ - Small numbers make no difference to God. There is nothing small if God is in it.
+ - There cannot be any peace where there is uncertainty.
+ - I now opened my Bible and began to study, and faith has been growing ever since.
+ - You cannot find, I believe, a case in the Bible where a man is converted without God’s calling in some human agency – using some human instrument.
+ - It is our privilege to know that we are saved.
+ - Prayer is a serious thing. We may be taken at our words.
+ - The first thing a man must do if he desires to be used in the Lord’s work, is to make an unconditional surrender of himself to God.
+ - A good many preachers say I am lowering the pulpit. I am glad I am. I am trying to get it down to the level of men’s hearts. If I wanted to hit Chicago I would not put the cannon on the top of this building and fire into the air. Too many preachers fire into the air.
+ - We may not be able to do any great thing; but if each of us will do something, however small it may be, a good deal will be accomplised for God.
+ - We are not fountains ourselves; but the Word of God is the true fountain.
+ - The tendency of the world is down – God’s path is up.
+ - Either these – unsaved people are to be evangelized, or the leaven of communism and infidelity will assume such enormous proportions that it will break you in a reign of terror such as this country has never known.
+ - If the Savior could die for the world, can’t we work for it?
+ - There has never been a time in my life when I felt that I could take a gun and shoot down a fellow-being. In this respect I am a Quaker.
+ - God had no children too weak, but a great many too strong to make use of.
+ - The best work usually meets the strongest opposition.
+ - A man to be converted has to give up his will, his ways, and his thoughts.
+ - What we need as Christians is to be able to feed ourselves. How many there are who sit helpless and listless, with open mouths, hungry for spiritual things, and the minister has to try to feed them, while the Bible is a feast prepared, into which they never venture.
+ - Attitudes determine our actions, for good or bad.
+ - Depend upon it, as long as the church is living so much like the world, we cannot expect our children to be brought into the fold.
+ - It is a favorite thing with infidels to set their own standard, to measure themsleves by other people. But that will not do in the Day of Judgment. Now we will use God’s law as a balance weight.
+
+238 quotes

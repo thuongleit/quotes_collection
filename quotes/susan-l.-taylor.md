@@ -1,0 +1,35 @@
+ - Whatever we believe about ourselves and our ability comes true for us.
+ - God makes no mistakes. In all our trials and dramas there are lessons. Life is not a playground but a classroom. Our journey through life provides the course work and the tests needed for our education and development.
+ - Thoughts have power; thoughts are energy. And you can make your world or break it by your own thinking.
+ - We need quiet time to examine our lives openly and honestly – spending quiet time alone gives your mind an opportunity to renew itself and create order.
+ - The more we nourish our internal world, the more powerful we grow in the external world.
+ - Our greatest problems in life come not so much from the situations we confront as from our doubts about our ability to handle them.
+ - We each have a finite number of heartbeats, a finite amount of time. But we have enough heartbeats and enough time to do what is important.
+ - Take the reins of your life in your hands every day. Get up and put a smile on your face, and feel grateful for this gift in your life.
+ - Acceptance is what we wish for ourselves and often deny others.
+ - Seeds of faith are always within us; sometimes it takes a crisis to nourish and encourage their growth.
+ - Women are holding up the world. We’re taking care our children and, very often, our parents and sometimes our grandparents.
+ - We are forever looking outside ourselves, seeking approval and striving to impress others. But living to please others is a poor substitute for self-love, for no matter how family and friends may adore us, they can never satisfy our visceral need to love and honor ourselves.
+ - Everything hinges on education. Without it, you can’t advocate for proper health care, for housing, for a civil rights bill that ensures your rights.
+ - Faith is the flip side of fear.
+ - When we have painful memories from hurting experiences, we may feel justified in holding on to the resentment. But resentment is corrosive. It doesn’t affect the person we feel anger toward, it destroys the host.
+ - As we rise to meet the challenges that are a natural part of living, we awaken to our many undiscovered gifts, to our inner power and our purpose.
+ - Self-love is the starting point for everything.
+ - We don’t have an eternity to realize our dreams, only the time we are here.
+ - Each moment is magical, precious and complete and will never exist again. We forget that now is the moment we are in, that the next one isn’t guaranteed. And if we are blessed with another moment, any joy, creativity or wisdom it brings will ensue from the way we live in the present one.
+ - Self-hate is a form of mental slavery that results in poverty, ignorance, and crime.
+ - Imagine how free we would feel and what we could accomplish if we could live without fear.
+ - Love is the life spring of our existence. The more love you give, the happier you feel and the more love you will have within you to give.
+ - Women work overtime, do double triple duty, juggle ten balls at once – children, careers, husbands, schoolwork, housework, church work, and more work – and when one of the balls drops, we think something is wrong with us.
+ - Use missteps as stepping stones to deeper understanding and greater achievement.
+ - In every crisis there is a message...
+ - It takes a lot of energy to dull the soul and not hear its voice.
+ - Any joy, creativity or wisdom our next moment brings will ensue from the way we live our present one.
+ - When we turn our backs on feelings we should deal with, they fester and grow and ultimately consume us. Silence is denial. Silence is anxiety.
+ - I always say that pain is information, that it is not punishment.
+ - Occasionally, I have to think like myself to remember where I put something.
+ - There are no meaningless experiences.
+ - The lessons of the past suggest that racism and resentment against people of color will continue to flourish in America as long as the history that is taught transposes the heroes and the villains. That is the unspoken truth at the heart of the nation’s racial divide.
+ - See the inevitable changes not as threats but as opportunities that can deepen our understanding and bring us wisdom and growth.
+
+33 quotes

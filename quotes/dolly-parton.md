@@ -1,0 +1,428 @@
+ - Don’t get so busy making a living that you forget to make a life.
+ - The way I see it, if you want the rainbow, you gotta put up with the rain.
+ - If your actions create a legacy that inspires others to dream more, learn more, do more and become more, then, you are an excellent leader.
+ - Storms make trees take deeper roots.
+ - Find out who you are and do it on purpose.
+ - Dream more, learn more, care more, and be more.
+ - If you don’t like the road you’re walking, start paving another one.
+ - I hope life treats you kind, and I hope you have all that you ever dreamed of, and I wish you joy and happiness. But above all of this, I wish you love.
+ - We cannot direct the wind, but we can adjust the sails.
+ - Wildflowers don’t care where they grow.
+ - People will use you as long as you let them.
+ - Paradise is a state of mind.
+ - If you’re feeling low, don’t despair. The sun has a sinking spell every night, but it comes back up every morning.
+ - I never tried quitting, and I never quit trying.
+ - Some people say that less is more. But I think more is more.
+ - Don’t lose your temper; use it.
+ - Some of my dreams are so big they would scare you.
+ - Don’t judge me by the cover, ’cause I’m a real good book.
+ - Less is not more. More is more.
+ - Its hard to be a diamond in a rhinestone world.
+ - I’m just a simple country girl.
+ - A great smile is a wonderful asset, but a good heart is pure gold.
+ - God made me the way that I am and it’s my business to be true to that.
+ - When someone shows you their true colors, believe them.
+ - I’m on a seefood diet. I see food, I eat it.
+ - I pray a lot. I pray that God will show me what to do and will guide me and lead me.
+ - Love is like a butterfly, a rare and gentle thing.
+ - The way I see it, if you want the rainbow, you gotta put up with the rain. When I’m inspired, I get excited because I can’t wait to see what I’ll come up with next. Find out who you are and do it on purpose.
+ - Songwriting is my way of channeling my feelings and my thoughts. Not just mine, but the things I see, the people I care about. My head would explode if I didn’t get some of that stuff out.
+ - You’ll never do a whole lot unless you’re brave enough to try.
+ - My weaknesses have always been food and men – in that order.
+ - If we all climb together, we could climb the highest hill.
+ - I love traveling all over the world; but it’s true: there’s nothing like home.
+ - It costs a lot of money to look this cheap.
+ - You can be rich in spirit, kindness, love and all those things that you can’t put a dollar sign on.
+ - I am a tender-hearted person, and I feel everything to the ninth degree.
+ - Laughter through tears is my favorite emotion.
+ - I love bald men. Just because you’ve lost your fuzz don’t mean you ain’t a peach.
+ - There’s a heart beneath the boobs and a brain beneath the wig.
+ - Leave something good in every day.
+ - I’m a fool to keep staying, when you’ve made hurting me such an art.
+ - One is only poor, only if they choose to be.
+ - I don’t trust anyone who does their own hair. I don’t think it’s natural.
+ - Love is something sent from Heaven to worry the Hell out of you.
+ - I don’t listen to music for fun. I ain’t got enough time for fun! I’m always busy writing my own music. I don’t try to compete or see what other people are doing.
+ - I always wanted to be loved.
+ - I think that all creative people are a little bit nuts...
+ - I’m not going to limit myself just because people won’t accept the fact that I can do something else.
+ - Time marches on and sooner or later you realize it is marching across your face.
+ - I just don’t feel like I have to explain myself.
+ - I’m no angel if that’s what you thought you found. I was just the victim of a man that let me down.
+ - You gotta keep trying to find your niche and trying to fit into whatever slot that’s left for you or to make one of your own.
+ - I just love life. I love people. I love to write, that’s my gift. I love to sing. I have a good attitude. I like to think I shine from the inside.
+ - I believe above the storm the smallest prayer will still be heard.
+ - I think so many people live their whole life in fear and doubt and shame.
+ - The secret to a long marriage is to stay gone.
+ - I never have changed in my taste, and the things that I love, and the way that I act, and all that. I never wanted to change, I just wanted to be successful, and be able to do more things for more people, and for myself as well.
+ - We’re all just a bunch of sinners, but we do the best we can.
+ - Jump out of bed and I stumble to the kitchen, pour myself a cup of ambition and yawn and stretch and try to come alive.
+ - I always ask God to work through me and let me be a light of some kind and help in this world, so I always pray for that, and I always want to do good.
+ - Above everything else I’ve done, I’ve always said I’ve had more guts than I’ve got talent.
+ - I try to see the good in everybody, and I don’t care who people are as long as they’re themselves, whatever that is.
+ - Daddy’s working boots have taken many steps for us.
+ - Being a star just means that you just find your own special place and that you shine where you are. To me that’s what being a star means.
+ - If I see something sagging, bagging or dragging I’ll get it nipped, tucked or sucked.
+ - Hello God, if we are still on speaking terms, can you help me?
+ - Smile, it enhances your face value.
+ - I’ll bring my grits when I travel, because I get so hungry on the road.
+ - Music lives in me. Life is a song to me. I have the gift of rhyme, and I’m always trying to write and rhyme. Music is just natural everyday occurrence with me.
+ - I just don’t have time to get old!
+ - I love to flirt, and I’ve never met a man I didn’t like.
+ - People just overshoot trying to find God. They’re going outside and trying everything. They don’t realize that it’s right inside themselves.
+ - A peacock that rests on his feathers is just another turkey.
+ - When I have sex with my husband, I fantasize I am with a petite, hot young woman.
+ - I have little feet because nothing grows in the shade.
+ - I never, ever get involved in politics. With politics you are not allowed to be honest. I don’t have time to deal with that. I would rather work with kids.
+ - I’m the kind of person who would rather rock in my rocking chair when I’m old and regret a few things that I did than to sit there and regret that I never tried...
+ - I was blessed to have family members who encouraged me to pursue my dreams. Whether it is your parents, or your uncles or your aunts or even the neighbor down the road, it’s important that kids have someone who encourages them to chase their rainbow.
+ - I tried every diet in the book. I tried some that weren’t in the book. I tried eating the book. It tasted better than most of the diets.
+ - Truth is, I wouldn’t know a gigabyte from a snakebite.
+ - I am a seeker, a poor, sinful creature, there is no weaker than I.
+ - Having a big gay following, I get hate mail and threats. Some people are blind or ignorant, and you can’t be that prejudiced and hateful and go through this world and still be happy.
+ - I don’t know what the big deal is about old age. Old people who shine from the inside look 10 to 20 years younger.
+ - Life is a song to me.
+ - I know who I am, I know what I can and can’t do. I know what I will and won’t do. I know what I’m capable of and I don’t agree to do things that I don’t think I can pull off.
+ - I thank God for my failures. Maybe not at the time but after some reflection. I never feel like a failure just because something I tried has failed.
+ - I’m no natural beauty. If I’m gonna have any looks at all, I’m gonna have to create them.
+ - If I had to give up performing, it wouldn’t bother me too much. But I couldn’t live without my writing. I put all my feelings, my very soul, into my writing. I tell the world in my songs things I wouldn’t even tell my husband.
+ - Adjusting to the passage of time is a key to success and to life: just being able to roll with the punches.
+ - I hated school. Even to this day, when I see a school bus it’s just depressing to me. The poor little kids.
+ - Anyone who knows or cares anything about real country music will agree that George Jones is the voice of it.
+ - Everybody has a purpose.
+ - I have tennis shoes with little rhinestones that I slip on if I exercise. But I always wear heels, even around the house. I’m such a short little thing, I can’t reach my kitchen cabinets.
+ - I listen to my old records and I think, ‘How did I ever get on the radio?’
+ - What people do behind closed doors is certainly not my concern unless I’m there with them.
+ - God has his plans and his reasons. Sometimes we are supposed to go through things so that we learn lessons.
+ - My husband says I look like a Q-tip.
+ - If there’s something you know and there’s something you feel, but you can’t quite express it, you will hear it somewhere. And you don’t have to worry, because someone will get it sung out.
+ - When I started the Imagination Library in my hometown, I never dreamed that one day we would be helping Scottish kids.
+ - It’s a good thing I was born a girl, otherwise I’d be a drag queen.
+ - Sometimes my mouth is a little too big and a little too open and sounds too much like a sailor.
+ - A positive attitude and a sense of humor go together like biscuits and gravy.
+ - I hope you’re never happy with anybody but me, and every face you look into, I hope you’re haunted by me. Yes, I’m possessive and jealous, at least I speak honestly.
+ - I don’t make people bend over backwards, and I don’t like that in people. I am definitely no diva.
+ - I still believe in Santa, the Easter Bunny, the Tooth Fairy and true love. Don’t even try to tell me different.
+ - When I’m feeling a little low, I put on my favorite high heels to stand a little taller.
+ - I would never stoop so low as to be fashionable.
+ - Understanding isn’t learned from punishment and anger. An iron has no gentle touch, and love ain’t learned from hate.
+ - I just can’t stand to look plain, ’cause that don’t fit my personality. I may be a very artificial-looking person, but the good news is, I’m very real on the inside.
+ - First thing I do in the morning, after I have my breakfast and do my spiritual work, is put on my makeup and fix my hair, and I can do my makeup in 15 minutes.
+ - Thanks to Botox and fillers, as well as the work that I’ve already had, my face pretty much maintains itself.
+ - People always ask me how long it takes to do my hair. I don’t know, I’m never there.
+ - I always just thought if you see somebody without a smile, give’em yours!
+ - Music is my personal addiction. So much of everything I’ve done has only been to open more doors for the music itself. It all gets back to the fact that I am, first of all, a songwriter and a singer.
+ - I think that I’m perfect.
+ - I remain totally convinced that if we can do one more simple thing to help kids and adults to learn more, it is to inspire them to read more.
+ - You can bet there’s something fishy going on. I guess some large mouth bass left that lipstick on our shirt.
+ - I love the energy of children. It makes me feel young. I’m just drawn to them. They’re like magic to me. And they’re drawn to me, the childlike part of me that never did grow up.
+ - People think I’m as shallow and superficial as I look, and it’s a surprise when they find out, sure enough, I am.
+ - Living in America and, of course, just being women in general, we’ve got more strength than we think we do.
+ - There’s a scripture that says, ‘A merry heart doeth good like medicine.’ I think that’s true, too.
+ - Plastic surgeons are always making mountains out of molehills.
+ - I did not, thank the Lord, have to have a hysterectomy.
+ - Being brought up very religious, I have a fear of people that look to idol gods.
+ - I’ve always believed in my talent. And I’ve always had more guts than talent.
+ - My boobs are fake, my hair’s fake but what is real is my voice and my heart.
+ - I was the first woman to burn my bra – it took the fire department four days to put it out.
+ - I’ve never been a feminist.
+ - I’m working on my life story. I’m not decided if it’s going to be a musical or a movie with music in it.
+ - I always love working with children. I never had children of my own. God has his purposes. God didn’t let me have children so everybody’s children could be mine. That’s kind of how I’m looking at it.
+ - I love Velveeta cheese.
+ - You’re no Elvis Presley, I’m no Marilyn Monroe, but I do think you’re sexy, just thought I’d tell you so.
+ - We could afford the price of peace. Love is all it costs.
+ - I’m in showbiz. I look at my boobs like they’re show horses or show dogs. You’ve got to keep them groomed.
+ - Sometimes when I’m under pressure, if I think somebody is expecting stuff from me, I’ll do better than if I was just left on my own. I can sit down – I’m a skilled writer, I’ve been doing it all my life – and I can get down to it.
+ - The tits and the hair and the personality helped build the whole Dolly deal, but it was my music that brought me out of the Smokey Mountains.
+ - I just kind of wake up with a new idea and new dreams every day, and I follow that dream, as they say.
+ - I look like a woman, but I think like a man.
+ - I’m old enough and cranky enough now that if someone tried to tell me what to do, I’d tell them where to put it.
+ - I know it’s corny – but I love ‘Jingle Bells!’
+ - Speaking of the devil, well here he comes now. Got my defenses down. And I’d go through hell to make him mine.
+ - A lot of my heartbreak songs are inspired by things my sisters are going through, or friends.
+ - There’s no such thing as free love. Have you seen the price of Viagra?
+ - I was always a junk food person, still am.
+ - Islands in the streams, that is what we are.
+ - Home is anywhere I hang my hair.
+ - I never could get my hair to do what I wanted it to do, so I started wearing the wigs. It all came from a very serious place. I wanted to look a certain way.
+ - Writing’s just as natural to me as getting up and cooking breakfast.
+ - Stop this attitude that older people ain’t any good anymore! We’re as good as we ever were – if we ever were any good.
+ - I don’t want to throw rice. I want to throw rocks.
+ - I wouldn’t wanna go out not looking like the Dolly people have come to know, because I’ve come to know her that way, too.
+ - A lot of people have said I’d have probably done better in my career if I hadn’t looked so cheap and gaudy. But I dress to be comfortable for me, and you shouldn’t be blamed because you want to look pretty.
+ - I was not a natural beauty, and I always wanted to be pretty. I just have such an outgoing personality that it’s fitting that I would be overdone.
+ - Those people who wake up and they’re just beautiful, they’re just born that way. Well that ain’t me. I gotta work for everything I’ve got.
+ - If I have one more facelift I’ll have a beard!
+ - I have a strict policy that nobody cries alone in my presence.
+ - People say you shouldn’t have plastic surgery because if God wanted you another way he would have made you that way, but I say that’s a lot of crock. If God didn’t want plastic surgeons, he wouldn’t have given them hands to work with.
+ - I’m a proud person. I’m not vain. I look at it like it is. If you’ve got the money and you’re going to be out there, you owe it to people not to look like a dog if you can help it.
+ - There’s nothing like white trash at the White House.
+ - I’m not offended by all the dumb blonde jokes because I know I’m not dumb – and I’m not blonde either.
+ - Here you come again, looking better than a body has a right to.
+ - I’ve never had a divorce, but I’ve seen so many of my friends, my sister, my family go through that stuff, so I try to write for the people that can’t write about it. I take on their sorrow, so I’m able to kind of express it, or their joy.
+ - If people think I’m a dumb blonde, because of the way I look, then they’re dumber than they think I am. If people think I’m not very deep because of my wigs and outfits, then they’re not very deep.
+ - Being born was the worse and the first mistake I ever made. The doctor didn’t spank me, he just slapped me in the face.
+ - I’ll never harden my heart but I’ve toughened the muscles around it.
+ - After you reach a certain age, they think you’re over. Well, I will never be over. I’ll be making records if I have to sell them out of the trunk of my car. I’ve done that in my past, and I’d do it again.
+ - I was born with a happy heart, and I try to keep a good attitude. It’s not true that I’m happy all the time because nobody is, and we all go through our things.
+ - I hope people realise that there is a brain underneath the hair and a heart underneath the boobs.
+ - I’m not happy all the time, and I wouldn’t want to be because that would make me a shallow person. But I do try to find the good in everybody.
+ - It doesn’t bother me when someone calls me a ‘dumb blonde.’ I’m neither dumb or blonde.
+ - If teardrops were pennies and heartaches were gold, I’d have all the treasures my pockets could hold.
+ - Money ain’t everything.
+ - Many of my friends are gay, male and female. I don’t judge people. I don’t care what people do in their bedrooms and people shouldn’t care what I do in mine.
+ - I’ll just wait right here for you cause I know your new love won’t last. I wound easy, but I heal fast.
+ - The only way I’d be caught without makeup is if my radio fell in the bathtub while I was taking a bath and electrocuted me and I was in between makeup at home. I hope my husband would slap a little lipstick on me before he took me to the morgue.
+ - Sometimes I like to run naked in the moonlight and the wind, on a little trail behind our house, when the honeysuckle blooms. It’s a feeling of freedom, so close to God and nature.
+ - I may look fake but I’m real where it counts.
+ - I’m not intimidated by how people perceive me.
+ - When its family, you tolerate what you’d kill others for.
+ - Music, I suppose, will be the thing that sustains me in the time of my life when I am too old for sex and not quite ready to meet God. It has always been an essential part of me.
+ - I’m trying my best to keep up with all this new technology, and I surround myself with all these wonderful people that are in the know and kind of help me out with all that.
+ - I’m not like a real person. I love being artificial. I think there’s a little magic in the fact that I’m so totally real, but look so artificial at the same time.
+ - I compare myself to a good barn. You can have a good barn, and if you paint it, it looks a little better. But if you take the paint off, it’s still a good barn.
+ - I’m comfortable in my own skin, no matter how far it’s stretched. Ha ha.
+ - I count my blessings far more than I count my money.
+ - I don’t keep up with a lot of trends. I’ve never been a fashion horse. I’m so busy writing my songs, trying to maintain my business, and all the new things that come along. I stay working all the time.
+ - I’m one of those people that if its something to eat I’m going to eat the whole thing, If I’m going to be in love I’m going to love you all the way and if my heart’s broken, it’s just shattered all to pieces.
+ - My mistakes are no worse than yours.
+ - George Jones was my all-time favorite singer and one of my favorite people in the world.
+ - My first phone was two tin cans tied together with string, and it worked pretty good.
+ - I feel blessed that I still have the little Dolly in my heart, I’m still the same girl that wants to squeeze every little drop out of life that I can.
+ - Sometimes if you jump into something too quickly, you can screw up something that might have been good two years down the road.
+ - I’ve done everything every fat person ever has. I’ve tried every diet.
+ - I have to not harden my heart, because I want to stay open to feel things.
+ - They think I’m simpleminded because I seem to be happy. Why shouldn’t I be happy? I have everything I ever wanted and more. Maybe I am simpleminded. Maybe that’s the key: simple.
+ - I love Indian, Italian and Mexican food. And if it’s a romantic type of thing, I like a good French restaurant.
+ - Energy begets energy.
+ - My fat never made me less money.
+ - A tree reaches below the surface to gather strength for stargazing.
+ - Tell me I have to be somewhere, and I’ll be there 20 minutes early and stay there longer than anybody else. You hold up a lot of people if you’re not on time.
+ - When you’re 40, you can’t ride the fence anymore. You gotta make definite decisions about your life.
+ - I love watching keep-fit videos while munching chocolate chip cookies.
+ - I’m in the public eye, so I don’t care who knows what I get done. If I see something sagging, dragging, or bagging, I get it sucked, tucked, or plucked.
+ - My favorite movies of all times is ‘Doctor Zhivago,’ and I love ‘Gone With the Wind.’ I’d love to play some Southern belle or something where I owned a plantation.
+ - They let you dream just to watch them shatter, you’re just a step on the boss man’s ladder.
+ - I look at myself like a show dog. I’ve got to keep her clipped and trimmed and in good shape.
+ - As a songwriter, you respect and appreciate the writings of other people, and I often get asked, are there songs out there I wish I’d written? Yes. There’s many of them!
+ - Got those moods a swinging, tears a slinging, nothing fits me, when it hits me, ranting, raving, misbehaving, PMS blues.
+ - I never know tomorrow what I might be doing. I just ask God to lead me and show me and direct me and help me and support me in it. So I just wait to hear the call.
+ - God is in everything I do and all my work glorifies Him.
+ - I’m so thankful I can write songs. I can capture all those memories in my songs and keep those memories alive.
+ - Now I usually try not to give advice. Information, yes, advice, no. But, what has worked for me may not work for you. Well, take for instance what has worked for me. Wigs. Tight clothes. Push-up bras.
+ - I feel that sin and evil are the negative part of you, and I think it’s like a battery: you’ve got to have the negative and the positive in order to be a complete person.
+ - Oh, I can spot a phoney a mile away.
+ - After Momma gave birth to twelve of us kids, we put her up on a pedestal. It was mostly to keep Daddy away from her.
+ - Our own freewill, to choose the paths we take, no greater deed could ever be done than for another’s sake.
+ - You never know what’s going to happen to you when you head out into the big world. And when you get older, you don’t know how you’re going to be thought of or seen.
+ - I can’t do nothing just a little.
+ - I have surrounded myself with very smart people.
+ - We just seem to have lost all our morals and principles and values these days.
+ - For some reason, I have better luck when I work with women. I guess I have a good sense of sisterhood.
+ - People make jokes about my bosoms, why don’t they look underneath the breasts at the heart? It’s obvious I’ve got big ones and if people want to assume they’re not mine, then let them.
+ - The hardest exercise for most of us fat people is that one where we push our chairback from the dinner table.
+ - I think people take me as seriously as I want them to. They take me as seriously as I take myself – let’s put it that way.
+ - Some guys look better as they get older.
+ - I often joke that 100 years from now I hope people are saying, ‘Dang, she looks good for her age!’
+ - I’ll never graduate from collagen.
+ - I love the accomplishments and the awards that I’ve received through the years. But I’ve always worked more for the rewards than the awards. I’ve always counted my blessings before I’ve counted my money. I’m glad that new dreams come to me everyday.
+ - Depression runs in my family on both sides, and I have to be wary.
+ - It’s not easy being young. It’s hard to know what to do.
+ - That’s the great thing about a sense of humor and a sex drive, you can’t wait to share it with everybody else.
+ - Wondering if God loves us when we’re cheating? Oh, but why he lets us feel things, if it’s wrong.
+ - All the fame and fortune, glory and prestige, can’t make me happy if it goes against what I believe.
+ - When I sit back in my rocking chair someday, I want to be able to say I’ve done it all.
+ - It’s great at this stage in my life to still be in the running, that people appreciate you.
+ - All these fine Christian-type people that seem to think they know what God wants for all of us, that’s certainly more of a sin then anything they would claim about us. To judge people is one of the greatest sins.
+ - I modelled my looks on the town tramp.
+ - The worst thing about poverty is not the actual living of it, but the shame of it.
+ - I’ll be wearing my high heels, even if I’m up to my knees in mud.
+ - I love thinking, I love coming up with great ideas. I just get excited. Sometimes if I get a big idea, I’m just like a kid, like I’ve found a new toy.
+ - Kenneth Hari is a true artist and in my opinion a psychic. When he is painting you, he feels your heart and soul.
+ - I do believe that any successful business starts from the top and works its way down.
+ - If I hadn’t been a woman, I’d be a drag queen for sure. I like all that flair and I’d be dressing up in them high heels and putting on the big hair. I’d be like Ru Paul.
+ - My first job was singing on the Cas Walker radio show in Knoxville, Tennessee. I was about 10 years old, and I thought it was big time.
+ - God tells us not to judge one another, no matter what anyone’s sexual preferences are or if they’re black, brown or purple.
+ - If I hadn’t been a woman, I’d have been a drag queen.
+ - Everything is nothing when you got no one.
+ - I used to always sit in church looking out the windows at the boys, wondering if I could make an excuse to go out and, you know, go to the bathroom because all the outdoor toilets. But anyhow, I was only going out to see the boys.
+ - I have been asked to pose for Penthouse on my hundredth birthday. Everybody is going to be sorry.
+ - I do have a few little tattoos, but they were mostly done to cover scars because I’m so fair.
+ - You’ll pay the highest price on back roads and in back seats and in a cheap highway motel. But what’s a few more strangers in a life of nothing else.
+ - I’ve never been pregnant, so I just feel God didn’t mean for me to have kids so that everybody else’s children could be mine.
+ - You’d be surprised how much it costs to look this cheap!
+ - People say I look so happy – and I say, ‘That’s the Botox.’
+ - I do have a lot of gays in my family now, but some will never come out.
+ - My grandfather was a Pentecostal preacher. It was a sin to even pluck your eyebrows, and they thought it was a sin for me to be there looking like Jezebel.
+ - I’m just a friendly person; that runs in my family.
+ - I have a good attitude. And I was born with a happy heart. I’m always looking for things to be better.
+ - Mine is a jealous heart, imagines things that never are.
+ - I love to make things happen, I love to see things happen, I love to be a part of things that are happening.
+ - I wear wigs all the time on shows, and every day when I’m in public, at Dollywood. People say, ‘How many wigs do you have?’ And I say, ‘Well, at least 365 because I wear at least one a day.’
+ - Is forever longer than always?
+ - Being brought up very religious, I have a fear of people that look to idol gods. But we are idols and we’re all gods, so to speak, and I think that celebrities should acknowledge their responsibility, because we are in a position to help.
+ - I am not gay, but if I were, I would be the first one running out of the closet.
+ - I can write a song in about an hour if it’s a simple country song.
+ - It’s almost like being trapped in some other form. The real me is so different from the way I look on the outside.
+ - People tend to fear what they do not know, and what they fear they dislike.
+ - All of my brothers and sisters are very talented. They all sang all right.
+ - I don’t think I’m a great actress. I think I can act or I can react. Coming from a musical background and being a dramatic singer and writer, when I write stuff I really feel it. So I sing it like it comes from here. That’s how I do the acting.
+ - People get a kick out of my stupidity.
+ - I’m almost like three people. There’s me the, Dolly, the person. There’s me, the star. And then there’s me, the manager.
+ - We’re afraid to live, because we’re afraid of dying.
+ - Until I was a teenager, I used red pokeberries for lipstick and a burnt matchstick for eyeliner. I used honeysuckle for perfume.
+ - You don’t need to buy expensive cosmetics; almost anything will do if you know how to apply it.
+ - Believe it or not, I was just given an honorary doctorate degree from the University of Tennessee.
+ - My best country record only sold 200,000 copies. I didn’t have enough money for the band and the arrangements and the costumes and all. I had to move into wider fields.
+ - I always loved books. I don’t remember learning to read, it was just something I always did. I was hungry for knowledge, I guess, and information; I was a curious kid. I still am.
+ - I was probably 7 years old when I started playing the guitar and writing some serious songs.
+ - I’ve been to those places where it’s ‘poor, pitiful me.’
+ - I had nothing growing up, but I always wanted to be ‘sexy,’ even before I knew what the word was.
+ - I’m like a cartoon! I’ll look this way when I’m eighty. I can see it now, people will be rolling me around in a wheelchair and I’ll still have my big hair, nails, my high heels and my boobs stuck out!
+ - I am confident that partnering my Dollywood Company with a great company like Gaylord will create something truly special.
+ - I’ve never had that much trouble with the paparazzi, but I don’t run the same circles that a lot of these people that do get hounded by the paparazzi.
+ - My philosophy is simple: It’s a down-home, common, horse-sense approach to things.
+ - I always think of myself as a working girl.
+ - If there’s a heaven, I hope to hell I go!
+ - I ain’t never far away from a pencil and paper or a tape recorder.
+ - I figure if I keep my health, I have no intention of retiring. I love to work. I want to be like Bob Hope.
+ - That traveling man was a two time lover, he took my love, then he took my mother.
+ - My husband calls me ‘catfish.’ He says I’m all mouth and no brains.
+ - I can’t tell anybody else how to run their life or their business, but I really believe I’ve got a good bead on myself.
+ - You don’t see too many atheists on the deathbed. They all start cramming then.
+ - My songs are the door to every dream I’ve ever had and every success I’ve ever achieved.
+ - I hope to die right in the middle of a song and right on the stage doing what I love to do. I hope to be about 120 when that happens.
+ - I met my husband before I became a star, and he doesn’t care about any of it.
+ - If I can get my dress on, my weight is under control.
+ - I describe my look as a blend of mother goose, cinderella, and the local hooker!
+ - Some things are strange to me, and some things are odd. But I don’t condemn. If you can accept me, I can accept you.
+ - My nails are my rhythm section when I’m writing a song all alone. Some day, I may cut an album, just me and my nails.
+ - All my momma’s people were very musical. My grandpa, who was the Pentecostal minister, he was a great musician. He played the fiddle, he played the piano.
+ - You can do anything you want to do as long as you keep a good attitude and keep working at it. But the second you give up, you’re screwed.
+ - Mama sewed the rags together, sewing every piece with love. She made my coat of many colors that I was proud of.
+ - I’m a showgirl, as you can tell. I’m ever ready.
+ - Every time I come to Europe, I’m just as excited as I was my very first time, which was many, many years ago. I love that part of the world, and I especially love the fans.
+ - I think I became more productive through not having children. I never really had the desire to have them. My husband didn’t want them either, so it worked out well.
+ - I wanted to write a book that talked about the emotions of children, which is the rainbow. We all have moods. We talk about being blue when we’re sad, and being yellow when we’re cowards, and when we’re mad, we’re red.
+ - I like to buy clothes that are two sizes too small and then take them in a little.
+ - A lot of people don’t realise I came out of the Smoky Mountains with a load of songs.
+ - I used to sing songs and write with my uncle, Bill Owens.
+ - I have always been a firm believer in working hard for what is right and for making your own breaks if you want things to change.
+ - If you can read, you can find books on anything you want. You can self-educate even if you can’t afford to go to school.
+ - Nobody can ever make enough money for as many poor relatives as I’ve got. Somebody’s got a sick kid, or somebody needs an operation, somebody ain’t got this, somebody ain’t got that. Or to give the kids all a car when they graduate.
+ - I know my hair is out of the ’60’s, my clothes are ’50’s and the shoes I wear are from the ’40’s. But I like looking like I came out of a fairy tale.
+ - I’ll be like Bob Hope, touring when I’m 100.
+ - I’m gonna be making records anyway, even if I had to sell ’em out of the trunk of my car. I’m that kind of musician and singer.
+ - Daddy worked for God, but asked for no pay. For he believed that God provides a way.
+ - I’ve always loved the fans in Scotland and have a little Scottish blood of my own.
+ - When the new country came out ten to 15 years ago, people my age were almost too old. But it never stopped me. I never stopped writing. I never stopped recording.
+ - I still close my eyes and go home – I can always draw from that.
+ - I always thought that if I made it big or got successful at what I had started out to do, that I wanted to come back to my part of the country and do something great, something that would bring a lot of jobs into this area.
+ - I have a big gay and lesbian following and they’ve been very loyal and kind to me.
+ - I’m not a politician. And I don’t want to be.
+ - My husband and I had to raise five of my younger brothers and sisters. They lived with us. We sent them to school.
+ - People are always asking me in interviews, ‘What do you think of foreign affairs?’ I just say, ‘I’ve had a few.’
+ - It took me years to eat a lot of shellfish. I was probably 20 years old before I had even seen a shrimp cocktail. I like oysters, but fried.
+ - They say somebody’s ‘street smart.’ I feel like, if I got intelligence, it’s just a country smart.
+ - I’ll oil wells love you. I’ll oil wells care. I’ll oil wells need you. I want you oil wells dear.
+ - You always want your people to be proud of what you have accomplished.
+ - I just always knew I was going to be a star. I was always going to be rich so I could buy things for Mommy and Daddy, so that I could buy them a big house and we could have things.
+ - I do remember how it was to be poor. I do remember that in my early years, we had to grow and raise all of our food, even our animals. And I remember in my early life, we didn’t even have electricity. So it was very, very hard times then.
+ - I never thought, in my lifetime, that you’d be able to watch movies, read books and listen to music from a phone, but I guess the technology of tomorrow is here today.
+ - I’ve been guilty of most of the stuff that’s been said about me to some degree. And if I ain’t done it, I probably will.
+ - Well, my smile’s pretty hard to miss, considering I’m a gal who likes her lipstick-the redder the better.
+ - Most country songs, certainly all the stuff I’ve written, are stories driven by characters.
+ - I don’t like to get involved in things that I am not familiar with. I’m kind of a hands-on type of person.
+ - People are looking for something a little more stable; people are feeling like they need to get closer to God.
+ - I don’t have maids or servants, and my husband and I love waking up early and going to the 24-hour supermarket when there is nobody else there.
+ - People like bluegrass. It’s had a following amongst a lot of hip and young people. A lot of college kids like bluegrass.
+ - My lips, I’ve used collagen. I line my lips with collagen.
+ - I think everyone should be with who they love.
+ - I didn’t know any gay people in my childhood.
+ - I’ve always wanted to be a star. I’ve always wanted money and wanted to travel. So I knew there was a price to pay for that.
+ - I love writing every song I can like a little mini movie. I like to have a character, or some characters, and really paint a picture with the song.
+ - My songs are like my children – I expect them to support me when I’m old.
+ - My grandpa was a preacher.
+ - You are the song of every bird, you are the poet’s every word, every artist’s picture, every writer’s play.
+ - It’s when you treat people like freaks that you become one yourself.
+ - There are certainly a lot of things that still need to change when it comes to women in the workforce.
+ - I often get myself in love trouble because I’m so passionate; I love so much and so deep.
+ - I think your values are always influenced by your family and your community.
+ - I think that I know the value of a dollar.
+ - I know that I always wanted things. I was always proud of my people, proud of my home, but I always wanted more. I think most people do.
+ - There’s been a lot of talk about Jack White wanting to work with me, and I’ve always admired him, and of course, he lives in Nashville, too.
+ - Sevier County is a great area.
+ - I think god gave us talent because he screwed up our hair.
+ - I’m easy to look like, so there are lots and lots of Dolly look-alikes.
+ - Years ago, when I first started being a big star, I had fans that were fanatical. It was when ‘Jolene’ was a big hit.
+ - A lot of people think I’m a comedian.
+ - I grew up around lots of men – my father, my brothers, my uncles – so I wasn’t intimidated by them.
+ - A lot of my own relatives didn’t get to go to school because we were mountain people. You have to get out and work and help feed the family. My own dad couldn’t read and write. And my dad was very proud of me.
+ - I sing as an actress. Whatever I’m singing about, I just become the story.
+ - I wear make-up, and it gets a little bit thicker every year.
+ - I don’t have time to stand around and listen to an 11-minute song.
+ - My life has been very full.
+ - I had to get rich so I could afford to sing like I was poor again.
+ - I’m not trying to be fashionable. Never was!
+ - I’m pretty sure in my older years, I’ll be doing old-time flavored folk-mountain music.
+ - Every seven years, I sit down and make a whole new plan.
+ - I’m very short, so I just have to watch my weight because I have a big appetite.
+ - I really learned to sing in church, I think, really with emotion.
+ - I’ve copyrighted 3,000 songs.
+ - I’ve been very fortunate.
+ - My aunt in Knoxville would bring newspapers up, which we used for toilet paper. Before we used it, we’d look at the pictures.
+ - I don’t think you ever really know what all you’re doing, so you have to act on faith.
+ - I have had some cosmetic surgery, especially after I lost weight and stuff, and I’ve had my breasts lifted – but not injected. That would scare me to death, anyway.
+ - I’m a singer, a writer and an actress – when I find something that I feel good enough about doing.
+ - I don’t have anything to say about other people’s art and their work.
+ - I love story songs because I’ve always loved books.
+ - When you come from where I come from, if anyone in the family makes it out, the others kind of come with you.
+ - I will never retire unless I have to.
+ - There are some loony people in this world!
+ - Wouldn’t it be something if we could have things we love in abudance without their losing that special attraction the want of them held for us.
+ - I believe in my cosmetics line. There are plenty of charities for the homeless. Isn’t it time someone helped the homely?
+ - I prefer my music. I’m more of a one-nighter kind of person than to do a squat-down job for three months or whatever.
+ - I know some of the best Dolly Parton jokes. I made ’em up myself.
+ - I’m just a person; I like to experience whatever the feeling is and whatever I’m going through.
+ - Actually, I hear a lot of rock music. My husband is a big rock fan.
+ - I write for myself things that I’ve gone through.
+ - I like to think I’ve been a good example and an inspiration to some people. And some people say that about me, but I’m just going about my work and doing what I do best. I’m a very professional ‘Me.’
+ - I come from a family of 12, so I kind of got a little lost as a child.
+ - I’d love to do a duet, always wanted to work with Madonna, but she never asked.
+ - I’m very secure about my talents and about who I am.
+ - The bible says, ‘All things are possible.’ I believe that.
+ - If people work for me over the years, I expect them to be paid what they’re owed, but I don’t expect them to be paid more than they earn.
+ - I can be accused of trying to be commercial sometimes.
+ - I’ve been around longer than most of my fans have been alive.
+ - I write anywhere. I’m always banging around on the dashboard. Whatever I’m doing. I can make music out of anything. Whenever a song hits me, I’ll pick some sort of melody or rhythm out on it, and kind of enhance the song.
+ - No, I can’t do rap music!
+ - I enjoy the way I look, but it’s a joke.
+ - When I get down, I don’t waller around for long.
+ - I’m always amazed by the people who work on stage who sing night after night, day after day, week in week out.
+ - I can’t keep somebody from being a star, and I can’t make somebody a star, and nobody can.
+ - The freewill you have given, we have made a mockery of.
+ - I write what I write, say what I say, ’cause I feel what I feel, and if I did it different, it would make me a liar! So I’d rather be an honest person than a good liar.
+ - There’s a lot of rednecks in the country where I grew up.
+ - I was very honored to get to be part of ‘American Idol.’
+ - Children have always responded to me because I have that cartoon-character look.
+ - I’ve enjoyed all the parts of my career.
+ - I was approached about having my own network many, many years ago. There were some people who wanted to start up a network, and I didn’t want to get that involved in the business aspect of it.
+ - A gypsy told me I was going to do great things. I was going to make all kinds of money.
+ - My mother was always fascinated with the fact that I could rhyme so much stuff.
+ - I try not to go around looking like a hag.
+ - I always loved that old song ‘Banks of the Ohio’ – it was always such a man’s song, so I’ve always wanted to record it.
+ - I think the fact that I look totally artificial, but I am totally real, has its own kind of magic in it.
+ - I’ve never been more moved by a voice than I have been by Roy Orbison. I loved him personally, and I loved his voice. I think of him often and frequently listen to his songs.
+ - A real important thing is that, though I rely on my husband for love, I rely on myself for strength.
+ - When I was with Andy Warhol, I thought, ‘God, his wig looks cheaper than mine!’
+ - When I do listen to music, I’m more prone to listen to the people I’ve always listened to: George Jones, Otis Redding, Alison Krauss and Emmylou Harris.
+ - God and I have a great relationship but we both see other people.
+ - I have a tendency to be awfully big-hearted and it’s very hard for me to say no, even when I need to.
+ - If I’d married someone in show business, there’d be too much competition.
+ - I do write a lot of children’s songs, and I’m going to do a children’s television show, which also means I’ll be doing a lot of albums. So I do hope my future will hold a lot of things for children.
+ - No one is ever successful at everything that they do.
+ - I’ve always been fascinated by everything with wings.
+ - Every day I pray about all I do.
+ - I’ve tried different things through the years to get some play on mainstream. I’ll try to tailor-make it.
+
+426 quotes

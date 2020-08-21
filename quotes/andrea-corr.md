@@ -1,0 +1,27 @@
+ - I have a high tolerance for discomfort.
+ - I really love singing.
+ - Other people sing in the shower, but I don’t.
+ - I don’t really live by plans.
+ - All I care is that my family, and my loved ones, understand me. Or that they understand me to a degree – I don’t understand me very much. And I don’t need the world to understand me. That is the most egocentric thing.
+ - We’re all the same. We all want the same thing in life. Everybody going around like ants and we all want the same thing. And it’s not one queen. It’s not one queen with the wings.
+ - Life takes its path and sometimes there are people to blame. Of course there are bad people in this world. Good, bad, it happens unfortunately. But in a way I think if there was more focus on the good, more good would happen.
+ - I love watching people, and that’s what I do; just go for a walk at about 4 o’clock, and go down a busy street, where you see people coming out of school and you get a glimpse of their lives, what they’re talking about.
+ - Everybody gets too drunk sometimes; and even if everybody didn’t, I have gotten too drunk sometimes. I haven’t hurt anybody. In Ireland we drink a lot. It’s part of our culture. I like drinking. I don’t think it’s a bad thing.
+ - I hate people who splash their own pain on covers, like the whole world should hear about them. Why are we all supposed to be interested in one individual’s suffering?
+ - Life does throw some hard stuff at you as you get older, much harder. But you are more able to deal with things.
+ - Musicians are probably the most uncomfortable people in themselves in the world. Happiness, I think, only exists when you’re a child and once you go past 11, unfortunately it’s gone.
+ - I love escaping into character. It’s a chance to try on people that you wouldn’t be brave or stupid enough to be in real life.
+ - People are so busy anyway they don’t see you or recognise you in the street.
+ - Well, I did go to Irish dancing lessons as a kid, but I was slapped and never went again.
+ - I love reality. I love the world. I love the smell of it. I love it.
+ - I could never dream of being cool.
+ - You can’t live in your own secluded world. If you’re not on the Tube, on the bus doing normal things, how can you relate to people?
+ - There’s a plain girl in everybody.
+ - I didn’t have a particular persona. I’m not Alice Cooper, you know?
+ - I go to churches to pray, but I don’t go to mass.
+ - I just feel that if somebody happened to fancy somebody else, well, then, I should be a friend that he can say it to.
+ - To us, it’s vey natural. Initially, it sounded kind of strange to people, because it is different to put traditional Irish music in a pop and rock mode. But they get used to it – it is our sound.
+ - Everything is nicer if you feel you’re in love.
+ - I think everybody had difficulties with that dynamic, turning the family into a band and being constantly together. So everybody, as individuals. had things to sort out.
+
+25 quotes

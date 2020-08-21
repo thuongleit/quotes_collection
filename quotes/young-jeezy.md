@@ -1,0 +1,48 @@
+ - The world is yours and everything in it, it’s out there- get on your grind and get it.
+ - My hustle is nonstop. I never stop hustling.
+ - Open your eyes, I’m a BLESSING in disguise.
+ - Real recognize real, I suppose.
+ - I just think a hustler’s ambition is that I never stop. I start off hustling and said I’ll never stop hustling. An ambitious hustler is the one to hustle the hustlers. When I grew up, my heroes were hustlers. Now I’m their hero.
+ - I’m a motivational speaker.
+ - Married to the game. If we’re dancing with the devil at least teach us how to dance when the son of making dollars.
+ - A lot of things come with fame, whether it’s losing friends or losing family.
+ - Anything that looks good makes you feel better.
+ - I guess now music is so saturated and so microwaved. It’s, like, 15 minutes in the microwave and boom, you’ve got something. Nobody’s putting passion or any thought behind it anymore.
+ - Love don’t love nobody got me feeling like, I shouldn’t love myself.
+ - You gotta have life your way. If you ain’t losing your mind, you ain’t partying right.
+ - With rap, it’s a funny thing. You can say things, and people can take ’em the way they wanna take ’em.
+ - As long as I’m not selling out the people that ride or die with me, I’m glad I’m not an MC. I’m a motivational speaker. I’m not that rapper dude.
+ - I think I got a lot of life skills; I got a lot of wisdom; I’ve seen a lot of bad things happen to a lot of good people.
+ - I don’t really feel McCain. It ain’t just because Barack is black; he can make change. Just like Bush equals recession, Barack equals progression.
+ - My fans are my family, because they understand me and I understand them.
+ - Let’s say your past is your present and your present is your cash, So I look forward to the future.
+ - I ain’t a rapper; I’m a motivational speaker. I don’t do shows; I do seminars. I really talk to people.
+ - Everyday, all day I have to be productive. And when I ain’t productive, I get concerned.
+ - A lot of people question how talented I am. But I’m a real dude and I know real things and I’ve seen real people get their head blown off.
+ - I don’t know how to be a rapper. I just know how to be me.
+ - I never wanted to be a statistic. I never wanted to be that cat who tried and never made it.
+ - In middle school, I had an ’87 Regal. That was unheard of.
+ - Anybody that’s got a problem with me is probably envious or wants to be me, and that’s how I’ve always looked at it.
+ - Sexy, no alcoholic, but she drink like a toilet. Told her do me a favor and put your mouth on this faucet.
+ - I ain’t never been the type of person out at the movies and holding hands and riding around listening to R. Kelly.
+ - A lot of things come with fame, whether it’s losing friends or losing family. You still gotta stand up and be that guy even when you ain’t having great things. Because you’ve gotta be the spokesperson for your people.
+ - Anybody that I ever dealt with knows that I’m a very focused individual, and when it comes to my work and what I do, you might have to play the back burner to that.
+ - I think everybody knows my sound because I’m me, you know? But, on your fourth album, I think you’ve definitely gotta show growth because I definitely don’t plan on being one of those cats that fade off. It’s always about growing with me; I grew up over the years.
+ - I feel like I’m married to what I do, to the streets. And I feel like when the streets are mad, it’s serious.
+ - I could sit right here and have a 15-minute conversation with somebody and change their whole life.
+ - This rap game is just WWF; everybody wants points off somebody else.
+ - To be honest, I think about the clubs when I write. But I should probably start thinking about stadiums, because the songs sound even better there – and bigger.
+ - Music is how you feel.
+ - Politics isn’t only about government. Politics is about the people.
+ - Honestly, I’m on the road so much that I never really get a chance to go to baseball games.
+ - All my music is inspirational. You just gotta listen to the words and get what you can get out of it.
+ - Music is all about leadership and there ain’t really a lot of leaders.
+ - I’ma continue to make records, continue to make hits, continue to be what I am, legendary.
+ - People who work every day are kind of scared of things they don’t understand.
+ - Sam Jackson is like the Jeezy of Hollywood: He’s for his people.
+ - It’s not the average people that come to my show.
+ - You seen my shows; I bring the ’hood out.
+ - I never ever paid attention to any election.
+ - I’ve got to pay $5 for gas just like everybody else.
+
+46 quotes

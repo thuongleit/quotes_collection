@@ -1,0 +1,88 @@
+ - You are more powerful than you know; you are beautiful just as you are.
+ - The only thing that stays the same is change.
+ - Im one step ahead of my past, two steps behind my dream.
+ - Life is full of wonder, love is never wrong...
+ - The sign says do not enter, no trespassing allowed. With visions of redemption I walk against the crowd.
+ - We have a choice every day between fear and love.
+ - I am a songwriter. I do get to put my personal experiences in song.
+ - I can feel the thunder underneath my feet.
+ - I’ve sold my soul for freedom. It’s lonely but it’s sweet.
+ - Empty and cold, but it keep me alive. I gave it my soul, so that I could survive.
+ - Mothers, tell your children: be quick, you must be strong. Life is full of wonder, love is never wrong. Remember how they taught you, how much of it was fear. Refuse to hand it down – the legacy stops here.
+ - Once I overcame breast cancer, I wasn’t afraid of anything anymore.
+ - My ultimate joy and happiness is being a wife and mother.
+ - Christmas comes during a season when the Earth is in its darkest time. It’s a holiday for the family and for everyone.
+ - We are getting older, and we are getting wiser, and we are getting freer. And when you get the wisdom and the truth, then you get the freedom and you get power, and then look out. Look out.
+ - Cancer Is an opportunity to sit down and look into yourself and find the answers. Yes, it’s serious, but it’s not the end-all.
+ - Everybody’s got a hunger no matter where they are. Everybody clings to their own fear. Everybody hides some scar – Precious pain. Empty and cold but it keeps me alive. I gave it my soul so that I could survive – keeping me safe in these chains.
+ - There is no fear when you choose love. The more you choose love, the more love is in your life. It gets easier and easier.
+ - I taught Brad Pitt how to fly-fish in my swimming pool!
+ - I’m so close to Heaven, this Hell cannot be mine.
+ - I think being a parent is knowing how to love. Sometimes love is discipline, sometimes it’s humor, sometimes it’s listening.
+ - I feel my heart break to see a nation ripped apart by it’s own greatest strength – it’s diversity.
+ - I believed in Obama for social issues. I believe he brought our nation together and healed our racial divide. Martin Luther King’s dream came true when he was elected. That’s huge.
+ - Laughing is a medicine. It releases this amazing stuff.
+ - The night is black, as black as night.
+ - When you realize that we’re the spirit that’s in our bodies and our bodies are like the vehicles that take us around, you realize that you have to take care of that body.
+ - The songs are inspired by my experiences. Sometimes they are more than my real-life and, conversely, my life is more than just my songs.
+ - Weight isn’t a factor in nutritional health.
+ - This is the only naked man that will ever be in my bedroom.
+ - It was tough being a single mom. It was tough being in a divorce with children. Very, very hard.
+ - I think it has done us more harm believing in the huge differences between left and right, Democrat and Republican.
+ - I’m only lonely when I’m driving in my car. I’m only lonely after dark. I’m only lonely when I watch my TV. I’m only lonely occasionally.
+ - We all want to judge; it’s an intrinsic part of our society and human nature. I’m not surprised that talent shows are hits, but I’m glad some of them aren’t so brutal.
+ - I can be a rock star with a television show and still have a self-esteem problem. So it’s nice to have your dad go, ‘Hey Melissa, I’m proud of you – you’re doing good.’
+ - On the road, as a ‘rock star,’ there’s superficial attention and adulation is thrown at you for a couple of hours – then you’re alone in your room and it’s lonely.
+ - What people don’t get is that hair is such a big part of our identity.
+ - When you grow up in one town and your life revolves around it, you are very aware of any darkness on the edge of town. That’s because it’s scary and it’s inviting.
+ - It’s the closest to death I have ever been. The chemotherapy takes you as far down into hell as you’ve ever, ever been.
+ - Chemotherapy tests your sanity.
+ - There’s been so many different types of musicals, and it’s a funny genre because there’s a fine line between clever and stupid. It really takes a genius to know how to do it.
+ - Your own personal health is your own personal choice, all the way down the line.
+ - Believe in yourself and what you feel. Your power will come from that.
+ - Go on and close your eyes, go on imagine me there She’s got similar features with longer hair And if that’s what it takes to get you through Go on and close your eyes it shouldn’t bother you.
+ - Instead of taking five or six of the prescriptions, I decided to go a natural route and smoke marijuana.
+ - Gay people are born everyday. You will never legislate that away.
+ - I’m so cool that the kids come to my bedroom and go, ‘Mom! Turn the music down!’
+ - I would never say I had a bad childhood at all.
+ - There will always be someone else with a different view than you. I appreciate them and would never say that they are wrong. I hope that they would give me that courtesy also.
+ - I saw you with your envoy A consenting adult Technique in moderation But vogue to the cult Me I’ve got my strangers To exile in the night I guess I’m just addicted To the pain of delight.
+ - I have a very strong opinions about health and our responsibility to our own health, and I will always say what I feel.
+ - No one to hear, you might as well scream.
+ - The sweetness is in having success with something you truly believe in.
+ - The subject and the reality of having children came at the height of my career.
+ - There are many plant medicines that are available to us that have a lot of stigma around them that I hope, in the future, our medical community can look at, because I would absolutely go to those alternatives first before I went back to Western medicine.
+ - I could have been you, you could have been me. One small change that shapes your destiny.
+ - My wife works harder than anyone else with the children around the house. I make the money, sure, but she does everything else.
+ - To be completely stripped bare of any image power or my hair. To step onstage and get the response that I got blew any problems I had about self-image out the door.
+ - I’m very fortunate that I have a wonderful family around me and loved ones.
+ - I had to go see the Glee concert with my daughter – oh my God, shoot me.
+ - All men, and women, and everything in between are created equal.
+ - I think I’ve been on a path ever since I was born, a path of high stress. I put myself, my career, it was a big old juicy carrot right in front of me for all of my life.
+ - I’ve been a rock star since you were very young. But I’ve never encountered anything as powerful as cancer.
+ - Don’t let people who live in fear and hate govern how you live.
+ - My belief is that cancer comes from inside you and so much of it has to do with the environment of your body. It’s the stress that will turn that gene on or not.
+ - Don’t let anyone tell you that you have to be a certain way. Be unique. Be what you feel.
+ - I’m one of those people that will say, ‘My cancer was a gift.’
+ - Video is a funny thing. It’s one thing to be an artist, singer-songwriter, and use words and create pictures in people’s minds. And then be asked to do video for it, to actually give a certain visual for your song.
+ - I think Patsy Cline made country music classy. She just opens her mouth, and it’s just heavenly.
+ - I write songs for people who drive in cars. I really do.
+ - I stand before you a totally healthy person.
+ - I have days when I say, ‘I’m going to have five chocolate chip cookies today.’ I’ll have a salad every day but every week I have a cheat day.
+ - My friends have always told me that rock stardom was wasted on me.
+ - In country music, there are certain female artists, like Gretchen Wilson, where you’re going to find lesbians because they’re responding to that more aggressive side.
+ - There’s a point when your tape of life runs off the reel and there’s this stillness of your own – I got to know myself.
+ - I was constantly around all those religious images and to me, angels exist. I feel we were definitely guided and helped and I’m always referring to them in my work.
+ - What I do believe in is other worlds and spirits. There is some other power in control – levels of energy that perhaps we don’t see.
+ - I have found that I’m just political just by being who I am.
+ - I’ve worked since I was 11 years old, playing music and following the dream, and shaking and moving and doing it. And then, you have cancer and it was like ‘Ooooohh.’ It was like a big eraser. It was the only thing in my life that had ever made me just stop.
+ - My kids and I love to listen to Bill Cosby.
+ - I tell people that anything that could ever happen to you on stage has happened to me. My clothes have fallen off. I’ve fallen off the stage. I’ve gotten sick – anything.
+ - I kind of thought when I was 30 that you’re as good as your going to get. And that’s not true.
+ - I don’t think anyone masters parenthood.
+ - I wanted to be out so I could relax and be me.
+ - Life happens, and I write about it wherever I am.
+ - Cancer’s like the ultimate excuse. Who’s gonna say, ‘Oh, no, you have to show up for this one?’ ‘Hey, I got cancer. I can’t be there.’ It’s the ultimate eraser.
+ - I hope that you know in your heart how you feel about things, and you don’t let the people that live on fear and hate govern the way you live.
+
+86 quotes

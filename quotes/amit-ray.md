@@ -1,0 +1,113 @@
+ - World is a dance. Mindfulness is witnessing that dance.
+ - If you want to conquer the anxiety of life, live in the moment, live in the breath.
+ - Concentration attracts luck factor.
+ - If you want to fly on the sky, you need to leave the earth. If you want to move forward, you need to let go the past that drags you down.
+ - There is a God part in you. The consciousness. The pure Self. Learn to listen the voice of that Power.
+ - Meditate, Visualize and Create your own reality and the universe will simply reflect back to you.
+ - Life is a collection of moments. Mindfulness is beautification of the moments.
+ - Self-observation is the first step of inner unfolding.
+ - Peace is the music of every heart. Our glory lies in understanding, listening and honoring that music.
+ - It does not matter how long you are spending on the earth, how much money you have gathered or how much attention you have received. It is the amount of positive vibration you have radiated in life that matters.
+ - Kindness has no religion. It is like an open sky.
+ - Yoga means addition – addition of energy, strength and beauty to body, mind and soul.
+ - As flower blooms in spring, compassion grows in mindfulness.
+ - Meditation is listening to the song of the inner Soul, seeing the beauty of the inner Self, smelling the fragrance of the inner Spirit, experiencing the touch of the inner energies and tasting the intense sweetness of the inner God.
+ - Meditation is re-discovering the inner Kingdom of God. The Kingdom of God lies in our understandings and wisdom.
+ - Life is not always perfect. Like a road, it has many bends, ups and down, but that’s its beauty.
+ - Yoga is not a religion. It is a science, science of well-being, science of youthfulness, science of integrating body, mind, and soul.
+ - Looking beauty in the world, is the first step of purifying the mind.
+ - In every change, in every falling leaf there is some pain, some beauty. And that’s the way new leaves grow.
+ - Our heart is wide enough to embrace the world and hands are long enough to encompass the world.
+ - You are a cosmic flower. Om chanting is the process of opening the psychic petals of that flower.
+ - You are your master. Only you have the master keys to open the inner locks.
+ - The Universe is the creation of the mind. Universe exists inside the mind as the flower exists inside the seed.
+ - Do not live in the shadow of the masters for ever. Learn to live in the light of your soul. Life deserves full expression.
+ - Yoga and Vipassana are the two most time tested ancient techniques for keeping the body, mind and spirit in harmony and in sync. There is no contradiction between yoga and vipassana. They are complementary to each other.
+ - Suffering is due to our disconnection with the inner soul. Meditation is establishing that connection.
+ - Silence is the language of Om. We need silence to be able to reach our Self. Both internal and external silence is very important to feel the presence of that supreme Love.
+ - AUM or Om is not related to any religion because Om was practiced before the birth of all the religions of the world.
+ - Enjoy the limitless bliss consciousness here and now. The reality of you lies much beyond your sensory perceptions and boundaries.
+ - Only the brave men and women can bring peace to the world, not by practicing war but by practicing nonviolence.
+ - Om is the mysterious cosmic energy that is the substratum of all the things and all the being of the entire universe. It is the eternal song of the Divine.
+ - When you see the divinity in others, you are Divine. When you see ego in others, you are egoistic.
+ - Science of yoga and ayurveda is subtler than the science of medicine, because science of medicine is often victim of statistical manipulation.
+ - Yoga is not just repetition of few postures – it is more about the exploration and discovery of the subtle energies of life.
+ - Just trusting the soul cannot lead you to higher consciousness. You have to pay attention for the beautification of your heart.
+ - There are two types of seeds in the mind: those that create anger, fear, frustration, jealousy, hatred and those that create love, compassion, equanimity and joy. Spirituality is germination and sprouting of the second group and transforming the first group.
+ - Penetrate deep into the word “Om”. Gradually the word will disappear and only the silence will remain. The word is a support. The meaning is within you. Om brings out that meaning which is hidden in your soul.
+ - God is whispering in your heart, in the whole existence, just tune your ears.
+ - Perfect prayer does not consist in many words, silent remembering and pure intention raises the heart to that supreme Power.
+ - The easiest way to get touch with this universal power is through silent Prayer. Shut your eyes, shut your mouth, and open your heart. This is the golden rule of prayer. Prayer should be soundless words coming forth from the centre of your heart filled with love.
+ - The singing Sun the signing moon the singing stars and the singing galaxies are the direct expression of the divine word AUM.
+ - Prayer should be soundless words coming forth from the center of your heart filled with love.
+ - World is a divine play. At the beginning and at the end, we are the same.
+ - Meditation is realizing and expanding your inner beauty in every direction.
+ - Spirituality does not lie in meditating on the body of an ex-master. Spirituality exists in mediating on your own inner body.
+ - Life throws challenges and every challenge comes with rainbows and lights to conquer it.
+ - Compassion is all inclusive. Compassion knows no boundaries. Compassion comes with awareness, and awareness breaks all narrow territories.
+ - Our wings are small but the ripples of the heart are infinite.
+ - Exercises are like prose, whereas yoga is the poetry of movements. Once you understand the grammar of yoga; you can write your poetry of movements.
+ - Compassion is the signature of Higher Consciousness. Non-violence is the tool to evolve into the Higher Consciousness.
+ - Beautify your inner dialogue. Beautify your inner world with love light and compassion. Life will be beautiful.
+ - At the core of your Heart, you are perfect and pure. No one and nothing can alter that.
+ - Your greatest awakening comes, when you are aware about your infinite nature.
+ - Vipassana meditation is not just seeing the things inside. It is also seeing the seer.
+ - Education is beautification of the inner world and the outer world.
+ - Echo of your thoughts has greater impact on the world than your actions.
+ - In the land of light there is only one currency. The currency of love.
+ - Vipassana meditation is an ongoing creative purification process. Observation of the moment-to-moment experience cleanses the mental layers, one after another.
+ - Have love for your inner Self and everything else is done for you.
+ - Stand up for who you are. Respect your Self and ignite the divine sparks in you. Access your powers. Choose your rights and work together with others to bring blessings into the lives.
+ - Success comes when you have the trust on self, passion to transcend, and courage to do.
+ - Yoga is bringing suppleness in body, calmness in mind, kindness in heart and awareness in life.
+ - There are many goals but one path – the path of compassion.
+ - God is the most beautiful, and beauty is the expression of God. If you can’t appreciate beauty in the world how can you understand God?
+ - No one to blame because there is no one other than you. Nothing to disrespect because there is nothing other than you.
+ - When you know the knower within, you don’t need to know further. When you know the meditator within, you don’t need to meditate further. When you truly know the worshiper in you, you are to be worshiped.
+ - Prayer is the sign of your weakness. Rely on your inner strength. You will be the winner.
+ - Small mind competes, big mind collaborates and great mind encompasses.
+ - Intuitions are like migratory birds, they come without a map without a reason.
+ - Your thoughts are your message to the world. Just as the rays are the messages of the Sun.
+ - Beautify your breath – beautify your life.
+ - When the Sun of compassion arises darkness evaporates and the singing birds come from nowhere.
+ - You are the Golden Witnessing Screen. Meditation is the effortless effort to keep that screen clean, clear and perfect.
+ - Nonviolence is the way to listen to the inner voice.
+ - To realize truth, you must cross all boundaries of all religions and all prophets.
+ - Success needs vision to see, passion to transcend, patience to withstand and the character to overcome failures.
+ - In one equation you can solve all the puzzles of life. It is the equation of giving.
+ - Truth is neither in the scripture nor in the words of prophets. It is in your heart, feel it, discover it and expand with it.
+ - Do not accept whatever comes. Do not accept whatever goes. You have infinite power. Exercise your choice.
+ - The true miracle lies in our eagerness to allow, appreciate, and honor the uniqueness, and freedom of each sentient being to sing the song of their heart.
+ - Life is a mystery – mystery of beauty, bliss and divinity. Meditation is the art of unfolding that mystery.
+ - Systematic yoga and vipassana opens the “Dasham Duar” the mystical tenth spiritual gateway located at the top of the skull.
+ - Beauty is the purest feeling of the soul. Beauty arises when soul is satisfied.
+ - Whether you know or not, you are the infinite potential of love, peace and joy.
+ - You are never alone. You are eternally connected with everyone.
+ - Be like a lotus. Let the beauty of your heart speak.
+ - Give space to life. Give time to sprout your potential – the potential to awaken the beauty in you. Awaken the beauty of your heart – the beauty of your spirit. There are infinite possibilities.
+ - Breath is the finest gift of nature. Be grateful for this wonderful gift.
+ - There is no teacher equal to mother and there’s nothing more contagious than the dignity of a father.
+ - Earth is the holiest place in the Universe, loving the earth, and loving life is the way to generate positive vibrations.
+ - When the petals of the heart unfold, fragrance spreads across the valley.
+ - Love is the sweetest melody of the soul and anything can be catalyst for that.
+ - God wanted to make heaven and the earth is that heaven. Nowhere in the universe there is so much love, life, beauty and peace. Enjoy your stay with the fellow beings.
+ - There is only one all-pervading God. It has no religion, no incarnation. It is free from all contaminations.
+ - Light of compassion and the light of wisdom that arises from our deepest and truest nature surpasses all other lights.
+ - Mystical bliss, joy and rapture are part of both yoga and vipassana. When the mind is concentrated, purified, bright, unblemished, free from defects, pliant and steady, this positive joy arises.
+ - Family, friends and relationships are the blessings of the God. They are the best way to access God.
+ - Science of happiness lies in our understanding. The secrets of happiness lie in our capacity to expand our heart.
+ - If you want to ask one question, ask yourself, what are you giving to the universe and only that will be returned.
+ - Blaming none, disrespecting nothing is the doorway to Unity Consciousness.
+ - The more we practice nonviolence in our words, thoughts and actions the more peaceful will be our inner state.
+ - You need bravery because in the picture of soul, the bravery points are the most beautiful.
+ - Mystical bliss, joy and rapture arises when you realize the inner Sun.
+ - Om is a living phenomenon and it has its own mood. Depending on its mood the meaning will be revealed to you.
+ - Mind is a flexible mirror, adjust it, to see a better world.
+ - To transcend the identification with the body one has to realize the auspiciousness and divinity residing within each cell of the body. One needs to realize the illusory nature of the body.
+ - We all are so deeply interconnected; we have no option but to love all.
+ - Courage is the hallmark of spirituality. Courage comes when you love yourself for who you are.
+ - Science is observing truth in the light of head. Religion is observing truth in the light of heart. Humanity is using both the lights. And education is developing that humanity.
+ - Meditation is a way for nourishing and blossoming the divinity within you.
+ - We all are so deeply interconnected; we have no option but to love all. Be kind and do good for any one and that will be reflected. The ripples of the kind heart are the highest blessings of the Universe.
+
+111 quotes

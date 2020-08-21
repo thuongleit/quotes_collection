@@ -1,0 +1,502 @@
+ - Without music, life would be a blank to me.
+ - I was quiet but I was not blind.
+ - It isn’t what we say or think that defines us, but what we do.
+ - I declare after all there is no enjoyment like reading. How much sooner one tires of any thing than of a book.
+ - We are all fools in love.
+ - Life seems but a quick succession of busy nothings.
+ - The person, be it gentleman or lady, who has not pleasure in a good novel, must be intolerably stupid.
+ - What are men to rocks and mountains?
+ - There is nothing I would not do for those who are really my friends. I have no notion of loving people by halves, it is not my nature.
+ - In vain have I struggled. It will not do. My feelings will not be repressed. You must allow me to tell you how ardently I admire and love you.
+ - And sometimes I have kept my feelings to myself, because I could find no language to describe them in.
+ - Angry people are not always wise.
+ - A lady's imagination is very rapid; it jumps from admiration to love, from love to matrimony in a moment.
+ - Perhaps it is our imperfections that make us so perfect for one another.
+ - If adventures will not befall a young lady in her own village, she must seek them abroad.
+ - Vanity and pride are different things, though the words are often used synonymously. A person may be proud without being vain. Pride relates more to our opinion of ourselves, vanity to what we would have others think of us.
+ - I do not want people to be very agreeable, as it saves me the trouble of liking them a great deal.
+ - Run mad as often as you choose, but do not faint!
+ - I will be calm. I will be mistress of myself.
+ - You pierce my soul. I am half agony, half hope...I have loved none but you.
+ - Self-knowledge is the first step to maturity.
+ - It’s such a happiness when good people get together.
+ - The less said the better.
+ - My good opinion once lost is lost forever.
+ - There is a stubbornness about me that never can bear to be frightened at the will of others. My courage always rises at every attempt to intimidate me.
+ - Our scars make us know that our past was for real.
+ - It is a truth universally acknowledged, that a single man in possession of a good fortune, must be in want of a wife.
+ - Obstinate, headstrong girl!
+ - Time will explain.
+ - I may have lost my heart, but not my self-control.
+ - The more I know of the world, the more I am convinced that I shall never see a man whom I can really love. I require so much!
+ - I want nothing but death.
+ - There is no charm equal to tenderness of heart.
+ - When I have a house of my own, I shall be miserable If I have not an excellent library.
+ - I will only add, God bless you.
+ - The distance is nothing when one has a motive.
+ - Sometimes the last person on earth you want to be with is the one person you can’t be without.
+ - I wish, as well as everybody else, to be perfectly happy; but, like everybody else, it must be in my own way.
+ - I am not at all in a humor for writing; I must write on till I am.
+ - Almost anything is possible with time.
+ - If I loved you less, I might be able to talk about it more.
+ - I walk: I prefer walking.
+ - We have all a better guide in ourselves, if we would attend to it, than any other person can be.
+ - The more I see of the world, the more am i dissatisfied with it; and everyday confirms my belief of the inconsistencies of all human.
+ - I could easily forgive his pride, if he had not mortified mine.
+ - Too many cooks spoil the broth.
+ - There is nothing like staying at home for real comfort.
+ - Look into your own heart because who looks outside, dreams, but who looks inside awakes.
+ - When I fall in love, it will be forever.
+ - A woman, especially, if she have the misfortune of knowing anything, should conceal it as well as she can.
+ - Why not seize the pleasure at once? How often is happiness destroyed by preparation, foolish preparation.
+ - My heart is, and always will be, yours.
+ - My idea of good company is the company of clever, well-informed people who have a great deal of conversation; that is what I call good company.
+ - Success supposes endeavour.
+ - If I am wrong, I am doing what I believe to the right.
+ - Selfishness must always be forgiven you know, because there is no hope of a cure.
+ - Oh! write, write. Finish it at once. Let there be an end of this suspense. Fix, commit, condemn yourself.
+ - It is not time or opportunity that is to determine intimacy; – it is disposition alone. Seven years would be insufficient to make some people acquainted with each other, and seven days are more than enough for others.
+ - Nothing ever fatigues me, but doing what I do not like.
+ - Maybe it’s that I find it hard to forgive the follies and vices of others, or their offenses against me. My good opinion, once lost, is lost forever.
+ - With a book he was regardless of time.
+ - I hate to hear you talk about all women as if they were fine ladies instead of rational creatures. None of us want to be in calm waters all our lives.
+ - She was happy, she knew she was happy, and knew she ought to be happy.
+ - You must allow me to tell you how ardently I admire and love you. -Mr. Darcy.
+ - You are too generous to trifle with me. If your feelings are still what they were last April, tell me so at once. My affections and wishes are unchanged; but one word from you will silence me on this subject for ever.
+ - Oh! I am delighted with the book! I should like to spend my whole life in reading it.
+ - Let us never underestimate the power of a well-written letter.
+ - Every savage can dance.
+ - And pictures of perfection, as you know, make me sick and wicked.
+ - Elizabeth had never been more at a loss to make her feelings appear what they were not. It was necessary to laugh, when she would rather have cried.
+ - A lucky guess is never merely luck. There is always some talent in it.
+ - I am not romantic, you know; I never was.
+ - She hoped to be wise and reasonable in time; but alas! Alas! She must confess to herself that she was not wise yet.
+ - There are few people whom I really love and still fewer of whom I think well.
+ - She was stronger alone; and her own good sense so well supported her, that her firmness was as unshaken, her appearance of cheerfulness as invariable, as, with regrets so poignant and so fresh, it was possible for them to be.
+ - Have a little compassion on my nerves. You tear them to pieces.
+ - Give a girl an education and introduce her properly into the world, and ten to one but she has the means of settling well, without further expense to anybody.
+ - I do not cough for my own amusement.
+ - I have no talent for certainty.
+ - Marry me. Marry me, my wonderful, darling friend.
+ - Men were put into the world to teach women the law of compromise.
+ - Good apple pies are a considerable part of our domestic happiness.
+ - Every man is surrounded by a neighborhood of voluntary spies.
+ - Happiness in marriage is entirely a matter of chance.
+ - Full many a flower is born to blush unseen, And waste it’s fragrance on the desert air.
+ - Every impulse of feeling should be guided by reason; and, in my opinion, exertion should always be in proportion to what is required.
+ - Nobody minds having what is too good for them.
+ - Family connexions were always worth preserving, good company always worth seeking.
+ - Silly things do cease to be silly if they are done by sensible people in an impudent way.
+ - But indeed I would rather have nothing but tea.
+ - I am only resolved to act in that manner, which will, in my own opinion, constitute my happiness, without reference to you, or to any person so wholly unconnected with me.
+ - For what do we live, but to make sport for our neighbors and laugh at them in our turn?
+ - Where love is there is no labor; and if there be labor, that labor is loved.
+ - Her mind was all disorder. The past, present, future, every thing was terrible.
+ - From politics it was an easy step to silence.
+ - There is safety in reserve, but no attraction. One cannot love a reserved person.
+ - How much I love every thing that is decided and open!
+ - One man’s ways may be as good as another’s, but we all like our own best.
+ - My style of writing is very diffrent from yours.
+ - She attracted him more than he liked.
+ - I must learn to be content with being happier than I deserve.
+ - Human nature is so well disposed towards those who are in interesting situations, that a young person, who either marries or dies, is sure of being kindly spoken of.
+ - You must learn some of my philosophy. Think only of the past as its remembrance gives you pleasure.
+ - Let us have the luxury of silence.
+ - There could have been no two hearts so open, no tastes so similar, no feelings so in unison.
+ - What a shame, for I dearly love to laugh.
+ - Vanity working on a weak head, produces every sort of mischief.
+ - A man does not recover from such devotion of the heart to such a woman! He ought not; he does not.
+ - Till this moment I never knew myself.
+ - But people themselves alter so much, that there is something new to be observed in them for ever.
+ - I always deserve the best treatment because I never put up with any other.
+ - The Very first moment I beheld him, my heart was irrevocably gone.
+ - I can always live by my pen.
+ - A person who can write a long letter with ease, cannot write ill.
+ - Indulge your imagination in every possible flight.
+ - A person who is knowingly bent on bad behavior, gets upset when better behavior is expected of them.
+ - She had a lively, playful disposition that delighted in anything ridiculous.
+ - You pierce my soul. I am half agony, half hope. Tell me not that I am too late, that such precious feelings are gone for ever.
+ - A man who has nothing to do with his own time has no conscience in his intrusion on that of others.
+ - You have qualities which I had not before supposed to exist in such a degree in any human creature. You have some touches of the angel in you.
+ - No man is offended by another man’s admiration of the woman he loves; it is the woman only who can make it a torment.
+ - An interval of meditation, serious and grateful, was the best corrective of everything dangerous.
+ - There are as many forms of love as there are moments in time.
+ - I cannot fix on the hour, or the spot, or the look or the words, which laid the foundation. It is too long ago. I was in the middle before I knew that I had begun.
+ - I am excessively diverted.
+ - An annuity is a very serious business.
+ - What dreadful hot weather we have! It keeps me in a continual state of inelegance.
+ - Time, time will heal the wound.
+ - Nobody can tell what I suffer! But it is always so. Those who do not complain are never pitied.
+ - You must be the best judge of your own happiness.
+ - Know your own happiness.
+ - Everybody likes to go their own way–to choose their own time and manner of devotion.
+ - I love you. Most ardently.
+ - One cannot have too large a party. A large party secures its own amusement.
+ - My Emma, does not every thing serve to prove more and more the beauty of truth and sincerity in all our dealings with each other?
+ - Give a girl an education and introduce her properly into the world.
+ - We do not suffer by accident.
+ - I am the happiest creature in the world. Perhaps other people have said so before, but not one with such justice. I am happier even than Jane; she only smiles, I laugh.
+ - Emma Woodhouse, handsome, clever, and rich, with a comfortable home and happy disposition, seemed to unite some of the best blessings of existence; and had lived nearly twenty-one years in the world with very little to distress or vex her.
+ - To you I shall say, as I have often said before, Do not be in a hurry, the right man will come at last...
+ - Fraternal love, sometimes almost every thing, is at others worse than nothing.
+ - Is not poetry the food of love?
+ - His cold politeness, his ceremonious grace, were worse than anything.
+ - It is the misfortune of poetry, to be seldom safely enjoyed by those who enjoy it completely.
+ - A sick child is always the mother’s property; her own feelings generally make it so.
+ - She mediated, by turns, on broken promises and broken arches, phaetons and false hangings, Tilneys and trap-doors.
+ - A large income is the best recipe for happiness I ever heard of.
+ - What strange creatures brothers are!
+ - Single women have a dreadful propensity for being poor. Which is one very strong argument in favor of matrimony.
+ - But to appear happy when I am so miserable – Oh! who can require it?
+ - One word from you shall silence me forever.
+ - None of us want to be in calm waters all our lives.
+ - There are people, who the more you do for them, the less they will do for themselves.
+ - Do not consider me now as an elegant female intending to plague you, but as a rational creature speaking the truth from her heart.
+ - I come here with no expectations, only to profess, now that I am at liberty to do so, that my heart is and always will be yours.
+ - I take no leave of you, Miss Bennet: I send no compliments to your mother. You deserve no such attention. I am most seriously displeased.
+ - You shall not, for the sake of one individual, change the meaning of principle and integrity.
+ - She was convinced that she could have been happy with him, when it was no longer likely they should meet.
+ - Every moment has its pleasures and its hope.
+ - I wonder who first discovered the efficacy of poetry in driving away love!- Elizabeth Bennet.
+ - To love is to burn, to be on fire.
+ - Beware how you give your heart.
+ - Where shall we see a better daughter, or a kinder sister, or a truer friend?
+ - I am sorry to tell you that I am getting very extravagant and spending all my money: and what is worse for you, I have been spending yours too.
+ - Yes, vanity is a weakness indeed. But pride – where there is a real superiority of mind, pride will be always under good regulation.
+ - Which of all my important nothings shall I tell you first?
+ - Perfect happiness, even in memory, is not common.
+ - What is right to be done cannot be done too soon.
+ - It is particularly incumbent on those who never change their opinion, to be secure of judging properly at first.
+ - Men have had every advantage of us in telling their own story. Education has been theirs in so much higher a degree; the pen has been in their hands. I will not allow books to prove anything.
+ - There will be little rubs and disappointments everywhere, and we are all apt to expect too much; but then, if one scheme of happiness fails, human nature turns to another; if the first calculation is wrong, we make a second better: we find comfort somewhere.
+ - Anne hoped she had outlived the age of blushing; but the age of emotion she certainly had not.
+ - A woman of seven and twenty, said Marianne, after pausing a moment, can never hope to feel or inspire affection again.
+ - That will do extremely well, child. You have delighted us long enough. Let the other young ladies have time to exhibit.
+ - Her own thoughts and reflections were habitually her best companions.
+ - It sometimes happens that a woman is handsomer at twenty-nine than she was ten years before.
+ - To wish was to hope, and to hope was to expect.
+ - Her heart did whisper that he had done it for her.
+ - I can recollect nothing more to say at present; perhaps breakfast may assist my ideas. I was deceived – my breakfast supplied only two ideas – that the rolls were good and the butter bad.
+ - I never could be so happy as you. Till I have your disposition, your goodness, I never can have your happiness.
+ - One has not great hopes from Birmingham. I always say there is something direful in the sound.
+ - To sit in the shade on a fine day and look upon verdure is the most perfect refreshment.
+ - Provided that nothing like useful knowledge could be gained from them, provided they were all story and no reflection, she had never any objection to books at all.
+ - Could there be finer symptoms? Is not general incivility the very essence of love?
+ - He may live in my memory as the most amiable man of my acquaintance...
+ - Your countenance perfectly informs me that you were in company last night with the person, whom you think the most agreeable in the world, the person who interests you at this present time, more than all the rest of the world put together.
+ - Money can only give happiness where there is nothing else to give it.
+ - Incline us oh God! to think humbly of ourselves, to be severe only in the examination of our own conduct, to consider our fellow-creatures with kindness, and to judge of all they say and do with that charity which we would desire from them ourselves.
+ - No young lady can be justified in falling in love before the gentleman’s love is declared, it must be very improper that a young lady should dream of a gentleman before the gentleman is first known to have dreamt of her.
+ - There are secrets in all families.
+ - The wisest and the best of men, nay, the wisest and best of their actions, may be rendered ridiculous by a person whose first object in life is a joke.
+ - She was feeling, thinking, trembling about everything; agitated, happy, miserable, infinitely obliged, absolutely angry.
+ - She hardly knew how to suppose that she could be an object of admiration to so great a man.
+ - Laugh as much as you choose, but you will not laugh me out of my opinion.
+ - There is something so amiable in the prejudices of a young mind, that one is sorry to see them give way to the reception of more general opinions.
+ - I do suspect that he is not really necessary to my happiness.
+ - I do not find it easy to talk to people I don’t know.
+ - Nothing is more deceitful than the appearance of humility. It is often only carelessness of opinion, and sometimes an indirect boast.
+ - I have always maintained the importance of Aunts.
+ - To be fond of dancing was a certain step towards falling in love.
+ - I do not know whether it ought to be so, but certainly silly things do cease to be silly if they are done by sensible people in an impudent way. Wickedness is always wickedness, but folly is not always folly.
+ - You deserve a longer letter than this; but it is my unhappy fate seldom to treat people so well as they deserve.
+ - Where youth and diffidence are united, it requires uncommon steadiness of reason to resist the attraction of being called the most charming girl in the world.
+ - There is one thing, Emma, which a man can always do if he chooses, and that is his duty; not by manoeuvring and finessing, but by vigour and resolution. – Mr. Knightley.
+ - You showed me how insufficient were all my pretensions to please a woman worthy of being pleased.
+ - I have had to contend against the unkindness of his sister, and the insolence of his mother; and have suffered the punishment of an attachment, without enjoying its advantages.
+ - Vanity was the beginning and the end of Sir Walter Elliot’s character; vanity of person and of situation.
+ - Do not give way to useless alarm; though it is right to be prepared for the worst, there is no occasion to look on it as certain.
+ - There, he had seen every thing to exalt in his estimation the woman he had lost, and there begun to deplore the pride, the folly, the madness of resentment, which had kept him from trying to regain her when thrown in his way.
+ - It’s been many years since I had such an exemplary vegetable.
+ - If things are going untowardly one month, they are sure to mend the next.
+ - Now I must give one smirk and then we may be rational again.
+ - How quick come the reasons for approving what we like!
+ - There certainly was some great mismanagement in the education of those two young men. One has got all the goodness, and the other all the appearance of it.
+ - Facts or opinions which are to pass through the hands of so many, to be misconceived by folly in one, and ignorance in another, can hardly have much truth left.
+ - Let no one presume to give the feelings of a young woman on receiving the assurance of that affection of which she has scarcely allowed herself to entertain a hope.
+ - No one can be really esteemed accomplished who does not greatly surpass what is usually met with.
+ - The younger brother must help to pay for the pleasures of the elder.
+ - With women, the heart argues, not the mind.
+ - Marriage is indeed a maneuvering business.
+ - Women are the only correspondents to be depended on.
+ - It was a delightful visit;-perfect, in being much too short.
+ - Mr. Collins is a conceited, pompous, narrow-minded, silly man; you know he is, as well as I do; and you must feel, as well as I do, that the woman who married him cannot have a proper way of thinking.
+ - How clever you are, to know something of which you are ignorant.
+ - By the bye, as I must leave off being young, I find many douceurs in being a sort of chaperon, for I am put on the sofa near the fire and can drink as much wine as I like.
+ - Always resignation and acceptance. Always prudence and honour and duty. Elinor, where is your heart?
+ - I have been a selfish being all my life, in practice, though not in principle.
+ - It is very often nothing but our own vanity that deceives us.
+ - And have you never known the pleasure and triumph of a lucky guess? I pity you. I thought you cleverer; for depend upon it, a lucky guess is never merely luck. There is always some talent in it.
+ - Children of the same family, the same blood, with the same first associations and habits, have some means of enjoyment in their power, which no subsequent connections can supply...
+ - We all love to instruct, though we can teach only what is not worth knowing.
+ - I could not be happy with a man whose taste did not in every point coincide with my own. He must enter in all my feelings; the same books, the same music must charm us both.
+ - I have often observed that resignation is never so perfect as when the blessing denied begins to lose somewhat of its value in our eyes.
+ - I begin already to weigh my words and sentences more than I did, and am looking about for a sentiment, an illustration, or a metaphor in every corner of the room. Could my Ideas flow as fast as the rain in the Storecloset it would be charming.
+ - I am no longer surprised at your knowing only six accomplished women. I rather wonder now at your knowing any.
+ - An unhappy alternative is before you, Elizabeth. From this day you must be a stranger to one of your parents. Your mother will never see you again if you do not marry Mr. Collins, and I will never see you again if you do.
+ - It is not every man’s fate to marry the woman who loves him best.
+ - It is very often nothing but our own vanity that deceives us. Women fancy admiration means more than it does. And men take care that they should.
+ - I am no indiscriminate novel reader. The mere trash of the common circulating library I hold in the highest contempt.
+ - You expect me to account for opinions which you choose to call mine, but which I have never acknowledged.
+ - Young ladies should take care of themselves. Young ladies are delicate plants. They should take care of their health and their complexion. My dear, did you change your stockings?
+ - Life could do nothing for her, beyond giving time for a better preparation for death.
+ - I certainly will not persuade myself to feel more than I do. I am quite enough in love. I should be sorry to be more.
+ - What wild imaginations one forms where dear self is concerned! How sure to be mistaken!
+ - Mr. Knightley, if I have not spoken, it is because I am afraid I will awaken myself from this dream.
+ - A scheme of which every part promises delight, can never be successful; and general disappointment is only warded off by the defence of some little peculiar vexation.
+ - Well, my comfort is, I am sure Jane will die of a broken heart, and then he will be sorry for what he has done.
+ - They parted at last with mutual civility, and possibly a mutual desire of never meeting again.
+ - It may be possible to do without dancing entirely. Instances have been known of young people passing many, many months successively without being at any ball of any description, and no material injury accrue either to body or mind.
+ - Here and there, human nature may be great in times of trial, but generally speaking it is its weakness and not its strength that appears in a sick chamber.
+ - If I could not be persuaded into doing what I thought wrong, I will never be tricked into it.
+ - She was sensible and clever, but eager in everything; her sorrows, her joys, could have no moderation.
+ - It sometimes is a disadvantage to be so very guarded. If a woman conceals her affection from the object of it, she may loose the opportunity of fixing him.
+ - Elinor agreed with it all, for she did not think he deserved the compliment of rational opposition.
+ - I will not say that your mulberry trees are dead; but I am afraid they’re not alive.
+ - An agreeable manner may set off handsome features, but can never alter plain ones.
+ - It is a difference of opinion which does not admit of proof. We each begin probably with a little bias towards our own sex, and upon that bias build every circumstance in favour of it which has occurred within our own circle;.
+ - Wisdom is better than wit, and in the long run will certainly have the laugh on her side.
+ - A mother would have been always present. A mother would have been a constant friend; her influence would have been beyond all other.
+ - Business, you know, may bring you money, but friendship hardly ever does.
+ - I consider a country-dance as an emblem of marriage. Fidelity and complaisance are the principle duties of both; and those men who do not choose to dance or to marry them selves, have no business with the partners or wives of the neighbors.
+ - No: the years which had destroyed her youth and bloom had only given him a more glowing, manly, open look, in no respect lessening his personal advantages. She had seen the same Frederick Wentworth.
+ - Far be it from me, my dear sister, to depreciate such pleasures. They would doubtless be congenial with the generality of female minds. But I confess they would have no charms for me. I should infinitely prefer a book.
+ - Surprises are foolish things. The pleasure is not enhanced, and the inconvenience is often considerable.
+ - We are each of an unsocial, taciturn disposition, unwilling to speak, unless we expect to say something that will amaze the whole room, and be handed down to posterity with all the eclat of a proverb.
+ - Stupid men are the only ones worth knowing after all.
+ - He is a gentleman, and I am a gentleman’s daughter. So far we are equal.
+ - Friendship is certainly the finest balm for the pangs of disappointed love.
+ - I am happier than Jane; she only smiles, I laugh. Mr. Darcy sends you all the love in the world, that he can spare from me.
+ - But remember that the pain of parting from friends will be felt by everybody at times, whatever be their education or state. Know your own happiness. You want nothing but patience; or give it a more fascinating name: call it hope.
+ - I am not born to sit still and do nothing. If I lose the game, it shall not be from not striving for it.
+ - I am not fond of the idea of my shrubberies being always approachable.
+ - Cold-hearted Elinor! Oh! Worse than cold-hearted! Ashamed of being otherwise. – Marianne Dashwood.
+ - They are much to be pitied who have not been given a taste for nature early in life.
+ - A single woman with a narrow income must be a ridiculous, disagreeable old maid, the proper sport of boys and girls, but a single woman of fortune is always respectable, and may be as sensible and pleasant as anybody else.
+ - This is an evening of wonders, indeed!
+ - Mr. Darcy began to feel the danger of paying Elizabeth too much attention.
+ - To be sure you know no actual good of me, but nobody thinks of that when they fall in love.
+ - He then departed, to make himself still more interesting, in the midst of a heavy rain.
+ - She knew that what Marianne and her mother conjectured one moment, they believed the next: that with them, to wish was to hope, and to hope was to expect.
+ - One half of the world cannot understand the pleasures of the other.
+ - Next to being married, a girl likes to be crossed in love a little now and then.
+ - Everything nourishes what is strong already.
+ - I have changed my mind, and changed the trimmings of my cap this morning; they are now such as you suggested.
+ - Oh, Lizzy! do anything rather than marry without affection.
+ - She is tolerable, but not handsome enough to tempt me, and I am in no humor at present to give consequence to young ladies who are slighted by other men.
+ - When any two young people take it into their heads to marry, they are pretty sure by perseverance to carry their point, be they ever so poor, or ever so imprudent, or ever so little likely to be necessary to each other’s ultimate comfort.
+ - Goldsmith tells us, that when lovely woman stoops to folly, she has nothing to do but to die; and when she stoops to be disagreeable, it is equally to be recommended as a clearer of ill-fame.
+ - Whatever bears affinity to cunning is despicable.
+ - We all know him to be a proud, unpleasant sort of man; but this would be nothing if you really liked him.
+ - General benevolence, but not general friendship, made a man what he ought to be.
+ - She wished such words unsaid with all her heart.
+ - One cannot know what a man really is by the end of a fortnight.
+ - One does not love a place the less for having suffered in it, unless it has been all suffering, nothing but suffering.
+ - Are the shades of Pemberley to be thus polluted?
+ - Fine dancing, I believe like virtue, must be its own reward. Those who are standing by are usually thinking of something very different.
+ - Without scheming to do wrong, or to make others unhappy, there may be error and there may be misery. Thoughtlessness, want of attention to other people’s feelings, and want of resolution, will do the business.
+ - Give me but a little cheerful company, let me only have the company of the people I love, let me only be where I like and with whom I like, and the devil may take the rest, say I.
+ - Oh! Single, my dear, to be sure! A single man of large fortune; four or five thousand a year. What a fine thing for our girls!
+ - I am going to take a heroine whom no one but myself will much like.
+ - A family of ten children will be always called a fine family, where there are heads and arms and legs enough for the number.
+ - I have the highest respect for your nerves, they are my old friends.
+ - Where the heart is really attached, I know very well how little one can be pleased with the attention of any body else.
+ - Nobody is healthy in London, nobody can be.
+ - People that marry can never part, but must go and keep house together. People that dance only stand opposite each other in a long room for half an hour.
+ - The truth is, that in London it is always a sickly season. Nobody is healthy in London, nobody can be.
+ - A lady, without a family, was the very best preserver of furniture in the world.
+ - Where people are really attached, poverty itself is wealth.
+ - I have been meditating on the very great pleasure which a pair of fine eyes in the face of a pretty woman can bestow.
+ - To look almost pretty is an acquisition of higher delight to a girl who has been looking plain for the first fifteen years of her life than a beauty from her cradle can ever receive.
+ - I mean to be too rich to lament or to feel anything of the sort. A large income is the best recipe for happiness I ever heard of. It certainly may secure all the myrtle and turkey part of it.
+ - I have not wanted syllables where actions have spoken so plainly.
+ - Had I not been bound to silence I could have provided proof enough of a broken heart, even for you.
+ - From all that I can collect by your manner of talking, you must be two of the silliest girls in the country. I have suspected it some time, but I am now convinced.
+ - Nothing amuses me more than the easy manner with which everybody settles the abundance of those who have a great deal less than themselves.
+ - They gave themselves up wholly to their sorrow, seeking increase of wretchedness in every reflection that could afford it, and resolved against ever admitting consolation in future.
+ - Miss Morland, no one can think more highly of the understanding of women than I do. In my opinion, nature has given them so much, that they never find it necessary to use more than half.
+ - We live at home, quiet, confined, and our feelings prey upon us.
+ - She had been forced into prudence in her youth, she learned romance as she grew older: the natural sequel of an unnatural beginning.
+ - Better be without sense than misapply it as you do.
+ - One cannot fix one’s eyes on the commonest natural production without finding food for a rambling fancy.
+ - The post office has a great charm at one point of our lives. When you have lived to my age, you will begin to think letters are never worth going through the rain for.
+ - Where the waters do agree, it is quite wonderful the relief they give.
+ - Good-humoured, unaffected girls, will not do for a man who has been used to sensible women. They are two distinct orders of being.
+ - Now they were as strangers; nay worse than strangers, for they could never become acquainted.
+ - I am determined that only the deepest love will induce me into matrimony. So, I shall end an old maid, and teach your ten children to embroider cushions and play their instruments very ill.
+ - They walked on, without knowing in what direction. There was too much to be thought, and felt, and said, for attention to any other objects.
+ - I do not think I ever opened a book in my life which had not something to say upon woman’s inconstancy. Songs and proverbs, all talk of woman’s fickleness. But perhaps you will say, these were all written by men.
+ - I think I may boast myself to be, with all possible vanity, the most unlearned and uninformed female who ever dared to be an authoress.
+ - It is happy for you that you possess the talent of flattering with delicacy. May I ask whether these pleasing attentions proceed from the impulse of the moment, or are they the result of previous study?
+ - To flatter and follow others, without being flattered and followed in turn, is but a state of half enjoyment.
+ - He was the proudest, most disagreeable man in the world, and every body hoped that he would never come there again.
+ - I am certainly the most fortunate creature ever existed!
+ - Mr. Bennet’s expectations were fully answered. His cousin was as absurd as he had hoped, and he listened to him with the keenest enjoyment.
+ - The worst crimes; are the crimes of the heart.
+ - A mind lively and at ease, can do with seeing nothing, and can see nothing that does not answer.
+ - Every young lady may feel for my heroine in this critical moment, for every young lady has at some time or other known the same agitation.
+ - The mere habit of learning to love is the thing; and a teachableness of disposition in a young lady is a great blessing.
+ - Indeed, I am very sorry to be right in this instance. I would much rather have been merry than wise.
+ - Nobody, who has not been in the interior of a family, can say what the difficulties of any individual of that family may be.
+ - What one means one day, you know, one may not mean the next. Circumstances change, opinions alter.
+ - Grant us peace, Almighty Father, so to pray as to deserve to be heard.
+ - At my time of life opinions are tolerably fixed. It is not likely that I should now see or hear anything to change them.
+ - One man’s style must not be the rule of another’s.
+ - From a night of more sleep than she had expected, Marianne awoke the next morning to the same consciousness of misery in which she had closed her eyes.
+ - I have now attained the true art of letter-writing, which we are always told, is to express on paper exactly what one would say to the same person by word of mouth.
+ - Mary wished to say something very sensible, but knew not how.
+ - The most incomprehensible thing in the world to a man, is a woman who rejects his offer of marriage!
+ - He certainly is very agreeable, and I give you leave to like him. You have liked many a stupider person.
+ - If I could but know his heart, everything would become easy.
+ - You were disgusted with the women who were always speaking and looking, and thinking for your approbation alone. I roused, and interested you, because I was so unlike them.
+ - A fondness for reading, properly directed, must be an education in itself.
+ - Where so many hours have been spent in convincing myself that I am right, is there not some reason to fear I may be wrong?
+ - Seldom, very seldom, does complete truth belong to any human disclosure; seldom can it happen that something is not a little disguised, or a little mistaken.
+ - Dare not say that man forgets sooner than woman, that his love has an earlier death. I have loved none but you.
+ - There seemed a gulf impassable between them.
+ - Men of sense, whatever you may choose to say, do not want silly wives.
+ - The power of doing any thing with quickness is always much prized by the possessor, and often without any attention to the imperfection of the performance. – Mr Darcy.
+ - Yes, I found myself, by insensible degrees, sincerely fond of her; and the happiest hours of my life were what I spent with her.
+ - Follies and nonsense, whims and inconsistencies do divert me, I own, and I laugh at them whenever I can.
+ - An engaged woman is always more agreeable than a disengaged. She is satisfied with herself. Her cares are over, and she feels that she may exert all her powers of pleasing without suspicion. All is safe with a lady engaged; no harm can be done.
+ - My characters shall have, after a little trouble, all that they desire.
+ - That is what I like; that is what a young man ought to be. Whatever be his pursuits, his eagerness in them should know no moderation, and leave him no sense of fatigue.
+ - Portable property is happiness in a pocketbook.
+ - Had I been in love, I could not have been more wretchedly blind. But vanity, not love, has been my folly.
+ - I cannot think well of a man who sports with any woman’s feelings; and there may often be a great deal more suffered than a stander-by can judge of.
+ - In nine cases out of ten, a woman had better show more affection than she feels.
+ - I cannot help thinking that it is more natural to have flowers grow out of the head than fruit.
+ - When money is once parted with, it can never return.
+ - We certainly do not forget you, so soon as you forget us. It is, perhaps, our fate rather than our merit. We cannot help ourselves.
+ - It was for the sake of what had been, rather than what was.
+ - Dress is at all times a frivolous distinction, and excessive solicitude about it often destroys its own aim.
+ - I have never yet found that the advice of a Sister could prevent a young Man’s being in love if he chose it.
+ - And if I had not a letter to write myself, I might sit by you and admire the evenness of your writing, as another young lady once did. But I have an aunt too, who must not be longer neglected.
+ - The stream is as good as at first; the little rubbish it collects in the turnings is easily moved away.
+ - No- I cannot talk of books in a ballroom; my head is always full of something else.
+ - I have read your book, and I disapprove.
+ - It does not appear to me that my hand is unworthy your acceptance, or that the establishment I can offer would be any other than highly desirable.
+ - I am afraid that the pleasantness of an employment does not always evince its propriety.
+ - One cannot be always laughing at a man without now and then stumbling on something witty.
+ - She looked back as well as she could; but it was all confusion. She had taken up the idea, she supposed and made everything bend to it.
+ - I have no more to say. If this be the case, he deserves you. I could not have parted with you, my Lizzy, to any one less worthy.
+ - His feelings are warm, but I can imagine them rather changeable.
+ - A girl likes to be crossed a little in love now and then. It is something to think of.
+ - The memory is sometimes so retentive, so serviceable, so obedient-at others so bewildered and weak-and at others again, so tyrannic, so beyond control!
+ - Were I to fall in love, indeed, it would be a different thing; but I have never been in love ; it is not my way, or my nature; and I do not think I ever shall.
+ - He had an affectionate heart. He must love somebody.
+ - As a brother, a landlord, a master, she considered how many people’s happiness were in his guardianship! – How much of pleasure or pain it was in his power to bestow! – How much of good or evil must be done by him!
+ - What do you know of my heart? What do you know of anything but your own suffering?
+ - I do not find myself making any use of the word sacrifice.
+ - You must really begin to harden yourself to the idea of being worth looking at.
+ - This was a lucky recollection – it saved her from something like regret.
+ - Husbands and wives generally understand when opposition will be vain.
+ - How can you contrive to write so even?
+ - She was one of those, who, having, once begun, would be always in love.
+ - Mr. Knightley seemed to be trying not to smile; and succeeded without difficulty, upon Mrs. Elton’s beginning to talk to him.
+ - Heaven forbid! – That would be the greatest misfortune of all! – To find a man agreeable whom one is determined to hate! – Do not wish me such an evil.
+ - There is not the hundredth part of the wine consumed in this kingdom that there ought to be. Our foggy climate wants help.
+ - The post-office is a wonderful establishment! The regularity and dispatch of it! If one thinks of all that it has to do, and all that it does so well, it is really astonishing!
+ - This sweetest and best of all creatures, faultless in spite of all her faults.
+ - It was absolutely necessary to interrupt him now.
+ - She is loveliness itself.
+ - But when a young lady is to be a heroine, the perverseness of forty surrounding families cannot prevent her. Something must and will happen to throw a hero in her way.
+ - A report of a most alarming nature reached me two days ago.
+ - We neither of us perform to strangers.
+ - We are so vain that we even care for the opinion of those we don’t care for.
+ - How wonderful, how very wonderful the operations of time, and the changes of the human mind!
+ - Elinor could sit still no longer. She almost ran out of the room, and as soon as the door was closed, burst into tears of joy, which at first she thought would never cease.
+ - We met Dr. Hall in such deep mourning that either his mother, his wife, or himself must be dead.
+ - I leave it to be settled, by whomsoever it may concern, whether the tendency of this work be altogether to recommend parental tyranny, or reward filial disobedience.
+ - Everybody’s heart is open, you know, when they have recently escaped from severe pain, or are recovering the blessing of health.
+ - To begin perfect happiness at the respective ages of 26 and 18 is to do pretty well.
+ - And to all this she must yet add something more substantial, in the improvement of her mind by extensive reading.
+ - She is probably by this time as tired of me, as I am of her; but as she is too Polite and I am too civil to say so, our letters are still as frequent and affectionate as ever, and our Attachment as firm and sincere as when it first commenced.
+ - Let other pens dwell on guilt and misery. I quit such odious subjects as soon as I can, impatient to restore everybody not greatly in fault themselves to tolerable comfort, and to have done with all the rest.
+ - I am sure of this, that if everybody was to drink their bottle a day, there would be not half the disorders in the world there are now. It would be a famous good thing for us all.
+ - Here I have opportunity enough for the exercise of my talent, as the chief of my time is spent in conversation.
+ - With men he can be rational and unaffected, but when he has ladies to please, every feature works.
+ - Reflection must be reserved for solitary hours; whenever she was alone, she gave way to it as the greatest relief; and not a day went by without a solitary walk, in which she might indulge in all the delight of unpleasant recollections.
+ - I would rather have young people settle on a small income at once, and have to struggle with a few difficulties together, than be involved in a long engagement.
+ - Oh! do not attack me with your watch. A watch is always too fast or too slow. I cannot be dictated to by a watch.
+ - I go too long without picking up a good book, I feel like I’ve done nothing useful with my life.
+ - Pray, pray be composed, and do not betray what you feel to every body present.
+ - A persuadable temper might sometimes be as much in favour of happiness as a very resolute character.
+ - It was a gloomy prospect, and all that she could do was to throw a mist over it, and hope when the mist cleared away, she should see something else.
+ - You want to tell me, and I have no objection to hearing it.
+ - One can never have too large a party.
+ - How little of permanent happiness could belong to a couple who were only brought together because their passions were stronger than their virtue.
+ - I have no pretensions whatever to that kind of elegance which consists in tormenting a respectable man.
+ - Everybody has their taste in noises as well as in other matters.
+ - Of this she was perfectly unaware; to her he was only the man who had made himself agreeable nowhere, and who had not thought her handsome enough to dance with.
+ - Arguments are too much like disputes.
+ - I wish I might take this for a compliment; but to be so easily seen through I am afraid is pitiful.
+ - It was not in her nature, however, to increase her vexations by dwelling on them. She was confident of having performed her duty, and to fret over unavoidable evils, or augment them by anxiety, was not part of her disposition.
+ - I should infinitely prefer a book...
+ - If this man had not twelve thousand a year, he would be a very stupid fellow.
+ - Respect for right conduct is felt by every body.
+ - Badly done, Emma!
+ - We can all begin freely – a slight preference is natural enough; but there are very few of us who have heart enough to be really in love without encouragement.
+ - All the world is good and agreeable in your eyes.
+ - Vanity, not love, has been my folly.
+ - But to live in ignorance on such a point was impossible.
+ - If any young men come for Mary or Kitty, send them in, for I am quite as leisure.
+ - A natural sequel of an unnatural beginning.
+ - Unjust I may have been, weak and resentful I have been, but never inconstant.
+ - I trust that absolutes have gradations.
+ - I do not think it worth while to wait for enjoyment until there is some real opportunity for it.
+ - Time will generally lessen the interest of every attachment not within the daily circle.
+ - The sooner every party breaks up the better.
+ - But there was happiness elsewhere which no description can reach.
+ - If I had ever learnt, I should have been a great proficient.
+ - None but a woman can teach the science of herself.
+ - The publicis rather apt to be unreasonably discontented when a woman does marry again, than when she does not.
+ - She felt that she could so much more depend upon the sincerity of those who sometimes looked or said a careless or a hasty thing, than of those whose presence of mind never varied, whose tongue never slipped.
+ - A man would always wish to give a woman a better home than the one he takes her from; and he who can do it, where there is no doubt of her regard, must, I think, be the happiest of mortals.
+ - Yet there it was not love. It was a little fever of admiration; but it might, probably must, end in love with some.
+ - On every formal visit a child ought to be of the party, by way of provisions for discourse.
+ - Evil to some is always good to others.
+ - The longer they were together the more doubtful seemed the nature of his regard, and sometimes for a few painful minutes she believed it to be no more than friendship.
+ - In every power, of which taste is the foundation, excellence is pretty fairly divided among the sexes.
+ - Upon the whole, therefore, she found what had been sometimes found before, that an event to which she had looked forward with impatient desire, did not, in taking place, bring all the satisfaction she had promised herself.
+ - There is nothing like employment, active indispensable employment, for relieving sorrow. Employment, even melancholy, may dispel melancholy.
+ - A very narrow income has a tendency to contract the mind, and sour the temper. Those who can barely live, and who live perforce in a very small, and generally very inferior, society, may well be illiberal and cross.
+ - It has been coming on so gradually, that I hardly know when it began. But I believe I must date it from my first seeing his beautiful grounds at Pemberley.
+ - There are certainly not so many men of large fortune in the world, as there are pretty women to deserve them.
+ - If the heroine of one novel be not patronized by the heroine of another, from whom can she expect protection and regard?
+ - A Woman never looks better than on horseback.
+ - Wickedness is always wickedness, but folly is not always folly.
+ - It would be mortifying to the feelings of many ladies, could they be made to understand how little the heart of a man is affected by what is costly or new in their attire.
+ - Is there not something wanted, Miss Price, in our language – a something between compliments and – and love – to suit the sort of friendly acquaintance we have had together?
+ - Mrs. Jennings was a widow, with an ample jointure. She had only two daughters, both of whom she had lived to see respectably married, and she had now therefore nothing to do but to marry all the rest of the world.
+ - Marianne Dashwood was born to an extraordinary fate. She was born to discover the falsehood of her own opinions, and to counteract, by her conduct, her most favourite maxims.
+ - I do regard her as one who is too modest for the world in general to be aware of half her accomplishments, and too highly accomplished for modesty to be natural of any other woman.
+ - It would be most right, and most wise, and, therefore must involve least suffering.
+ - To be claimed as a good, though in an improper style, is at least better than being rejected as no good at all.
+ - But your mind is warped by an innate principle of general integrity, and, therefore, not accessible to the cool reasonings of family partiality, or a desire of revenge.
+ - Such squeamish youths as cannot bear to be connected with a little absurdity are not worth a regret.
+ - Those who have not more must be satisfied with what they have.
+ - Let other pens dwell on guilt and misery.
+ - An artist cannot do anything slovenly.
+ - I can safely say, that the happiest part of my life has been spent on board a ship.
+ - To her own heart it was a delightful affair, to her imagination it was even a ridiculous one, but to her reason, her judgment, it was completely a puzzle.
+ - Catherine hoped at least to pass uncensured through the crowd. As for admiration, it was always very welcome when it came, but she did not depend on it.
+ - We do not look in our great cities for our best morality.
+ - I am all astonishment.
+ - You ought certainly to forgive them as a Christian, but never to admit them in your sight, or allow their names to be mentioned in your hearing.
+ - A very short trial convinced her that a curricle was the prettiest equipage in the world.
+ - It is wonderful, for almost all his actions may be traced to pride;-and pride has often been his best friend.
+ - She was without any power, because she was without any desire of command over herself.
+ - I cannot speak well enough to be unintelligible.
+ - There was no being displeased with such an encourager, for his admiration made him discern a likeness before it was possible.
+ - I am rather impatient to know the fate of my best gown.
+ - It is very difficult for the prosperous to be humble.
+ - There is a quickness of perception in some, a nicety in the discernment of character, a natural penetration, in short, which no experience in others can equal...
+ - But if I were you, I would stand by the nephew. He has more to give.
+ - At first sight, his address is certainly not striking; and his person can hardly be called handsome, till the expression of his eyes, which are uncommonly good, and the general sweetness of his countenance, is perceived.
+ - Then it would not be so strong a sense. If it failed to produce equal exertion, it could not be an equal conviction.
+ - Everybody has their taste in noises as well as in other matters; and sounds are quite innoxious, or most distressing, by their sort rather than their quantity.
+ - My sore throats are always worse than anyone’s.
+ - We must consider what Miss. Fairfax quits, before we condemn her taste for what she goes to.
+
+500 quotes

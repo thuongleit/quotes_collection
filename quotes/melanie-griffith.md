@@ -1,0 +1,29 @@
+ - There is a place you can touch a woman that will drive her crazy. Her heart.
+ - I like smoking! I mean, God, I quit everything else, can’t I smoke?
+ - I have terrible PMS. I just went a little crazy.
+ - You only got one life. You can’t sit around waiting for your next life to begin.
+ - To break boundaries interests me. With all the knowledge that is available now in the world, it should be accessible to everyone. You can get so much information on the Internet now, and yet there are so many places in the world where people just don’t have the education.
+ - You know who helped me a lot? Jane Fonda. She said, Look at how many times I’ve been up and I’ve been down. So don’t worry about anything.
+ - Angelina Jolie may get Antonio Banderas in bed for eight hours on a movie set, but I get him in bed everyday.
+ - I don’t think I’m beautiful. When I look in the mirror, I just see me – and, I’m pretty used to me.
+ - People are not used to seeing an older woman on screen, unless she’s playing a character role. Why can’t they make a movie about a woman who’s forty-five who’s falling in love or getting divorced? Why does the leading role always have to be a woman who’s twenty-three or twenty-eight?
+ - I have four kids – they’re 19 to 33 – that I love more than anything.
+ - I’m more relaxed about life now that I’m older. I like it-despite the wrinkles. It’s what I feel inside that’s precious.
+ - There are many ups and downs in everyone’s life and when you’re an actor usually you’re a very sensitive human being.
+ - I’m an actress so the amount of rejection and commentary you get right to your face is pretty rough.
+ - If they could cut off my head and put it onto another body that was, like, 20 years old, I would do that.
+ - I think there’s something inherently different about working with females. I mean, it’s just a different way of looking at life, being a woman. But I think we can handle many things at one time and I don’t think that’s necessarily true for men.
+ - People who think radio acting is easy are wrong, because you got nothing to work with but your voice.
+ - Most people are telling me I look horrible.
+ - Oh, my career. What career? I’m over 40.
+ - I don’t walk around with fear. I walk around with strength. I believe in cause and effect.
+ - I’ve just recently gotten divorced so I have a whole new horizon to conquer.
+ - When I was 34, people would say, What’s going to happen to you when you’re 40? What are you going to do? You don’t have much time left. And I was like, what are you talking about?
+ - It’s not about my career now. It’s just about finding great work and having a good time.
+ - I’m not a feminist, but I just think it’s a really cool process working with a woman as a director.
+ - In Spain there’s the king – and then there’s Antonio.
+ - There’s a sculpture in our bedroom, a solid brass replica of Antonio’s manhood. It’s very expensive, he gave it to me as a romantic gift.
+ - Honestly I’ve enjoyed every part that I’ve done. Literally. Every one.
+ - In my profession you have to be very strong within yourself in order to block out the rejection and block out the opinions and the commentary that happens.
+
+27 quotes

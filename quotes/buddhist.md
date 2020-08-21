@@ -1,0 +1,42 @@
+ - Our life is shaped by our mind; we become what we think. ~~Buddha
+ - A jug fills drop by drop. ~~Buddha
+ - When you lose, don’t lose the lesson. ~~Dalai Lama XIV
+ - A man asked Lord Buddha “I want happiness.” Lord Buddha said – first remove “I” that’s ego. Then remove “Want” that’s desire. See now you are left with only “Happiness”. ~~Buddha
+ - The fool who thinks he is wise is just a fool. The fool who knows he is a fool is wise indeed. ~~Buddha
+ - Follow the three R’s: – Respect for self. – Respect for others. – Responsibility for all your actions. ~~Dalai Lama XIV
+ - It is better to travel well then arrive. ~~Buddha
+ - Life is available only in the present moment. ~~Nhat Hanh
+ - It is better to do nothing Than to do what is wrong. For whatever you do, you do to yourself. ~~Buddha
+ - According to Buddhist psychology most of our troubles stem from attachment to things that we mistakenly see as permanent. ~~Dalai Lama XIV
+ - My religion is to live and die without regret. ~~Milarepa
+ - When another person makes you suffer, it is because he suffers deeply within himself, and his suffering is spilling over. He does not need punishment; he needs help. That’s the message he is sending. ~~Nhat Hanh
+ - If you let cloudy water settle, it will become clear. If you let your upset mind settle, your course will also become clear. ~~Buddha
+ - Desires achieved increase thirst like salt water. ~~Milarepa
+ - Like a beautiful flower that is colorful but has no fragrance, even well spoken words bear no fruit in one who does not put them into practice. ~~Buddha
+ - Breathing in, I calm body and mind. Breathing out, I smile. Dwelling in the present moment I know this is the only moment. ~~Nhat Hanh
+ - Know emptiness, Be compassionate. ~~Milarepa
+ - If someone comes along and shoots an arrow into your heart, it’s fruitless to stand there and yell at the person. It would be much better to turn your attention to the fact that there’s an arrow in your heart... ~~Pema Chödrön
+ - In Buddhism, mindfulness is the key. Mindfulness is the energy that sheds light on all things and all activities, producing the power of concentration, bringing forth deep insight and awakening. Mindfulness is the base of Buddhist practice. ~~Nhat Hanh
+ - Because you are alive, everything is possible. ~~Nhat Hanh
+ - If you want to be wisely selfish, care for others. ~~Dalai Lama XIV
+ - Man suffers only because he takes seriously what the gods made for fun. ~~Alan Watts
+ - The most fundamental aggression to ourselves, the most fundamental harm we can do to ourselves, is to remain ignorant by not having the courage and the respect to look at ourselves honestly and gently. ~~Pema Chödrön
+ - Buddhism is in your heart. Even if you don’t have any temple or any monks, you can still be a Buddhist in your heart and life. ~~Nhat Hanh
+ - The Buddhist expresses it in one way, the Christian in another, but both say the same: We are all one. ~~Nikola Tesla
+ - In horror of death, I took to the mountains – again and again I meditated on the uncertainty of the hour of death, capturing the fortress of the deathless unending nature of mind. Now all fear of death is over and done. ~~Milarepa
+ - We really have to understand the person we want to love. If our love is only a will to possess, it is not love. If we only think of ourselves, if we know only our own needs and ignore the needs of the other person, we cannot love. ~~Nhat Hanh
+ - Strong and healthy, who thinks of sickness until it strikes like lightning? Preoccupied with the world, who thinks of death, until it arrives like thunder? ~~Milarepa
+ - In criticizing, the teacher is hoping to teach. That’s all. ~~Bankei Yotaku
+ - Accustomed long to contemplating love and compassion I have forgotten all difference between myself and others. ~~Milarepa
+ - If you touch one thing with deep awareness, you touch everything. ~~Nhat Hanh
+ - My actions are my only true belongings. ~~Nhat Hanh
+ - In Buddhist culture, offering food to the monk symbolizes the action of goodness, and if you have no opportunity to support the practice of spirituality, then you are somehow left in the realm of darkness. ~~Nhat Hanh
+ - Imagine the wisdom to be passed down from the classical Buddhist texts. ~~Russell Brand
+ - People usually consider walking on water or in thin air a miracle. But I think the real miracle is not to walk either on water or in thin air, but to walk on earth. Every day we are engaged in a miracle which we don’t even recognize: a blue sky, white clouds, green leaves, the black, curious eyes of a child – our own two eyes. All is a miracle. ~~Nhat Hanh
+ - By eating meat we share the responsibility of climate change, the destruction of our forests, and the poisoning of our air and water. The simple act of becoming a vegetarian will make a difference in the health of our planet. ~~Nhat Hanh
+ - In every country in the world, killing human beings is condemned. The Buddhist precept of non-killing extends even further, to include all living beings. ~~Nhat Hanh
+ - Imagine a multidimensional spider’s web in the early morning covered with dew drops. And every dew drop contains the reflection of all the other dew drops. And, in each reflected dew drop, the reflections of all the other dew drops in that reflection. And so ad infinitum. That is the Buddhist conception of the universe in an image. ~~Alan Watts
+ - Christ wasn’t a Christian and Buddha wasn’t a Buddhist and Muhammad wasn’t Muslim. These people were having the experience of unity consciousnesses and universal consciousness and they spoke of it in words. ~~Deepak Chopra
+ - I sort of believe that my voice was preordained; I’m a Buddhist who believes in reincarnation so I think that my voice is a few lifetimes old. ~~K. D. Lang
+
+40 quotes

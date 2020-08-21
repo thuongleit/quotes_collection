@@ -1,0 +1,42 @@
+ - We all need people who will give us feedback. That’s how we improve. ~~Bill Gates
+ - Don’t give to get. Give to inspire others to give. ~~Simon Sinek
+ - Life is an echo. What you send out comes back. What you sow, you reap. What you give, you get. What you see in others, exists in you. ~~Zig Ziglar
+ - The secret to living is giving. ~~Tony Robbins
+ - Life is beautiful. It’s about giving. It’s about family. ~~Walt Disney
+ - I want to focus on God’s grace and give thanks for all the good things in my life. I don’t want to focus on what I don’t have. ~~Joyce Meyer
+ - Giving is better than receiving because giving starts the receiving process. ~~Jim Rohn
+ - Giving up is the greatest failure. ~~Jack Ma
+ - Believing that you’re enough is what gives you the courage to be authentic. ~~Brené Brown
+ - The greatest gift you can give someone is your time, your attention, your love, your concern. ~~Joel Osteen
+ - If you don’t have a passion, you’ll give up. ~~Steve Jobs
+ - Give your best effort, because you are worth your best effort. ~~Denis Waitley
+ - If you want to fly, you have to give up the things that weigh you down. ~~Toni Morrison
+ - I wish for you a life of wealth, health and happiness; a life in which you give to yourself the gift of patience, the virtue of reason, the value of knowledge, and the influence of faith in your own ability to dream about and achieve worthy rewards. ~~Jim Rohn
+ - Silence gives answers. ~~Rumi
+ - True hospitality consists of giving the best of yourself to your guests. ~~Eleanor Roosevelt
+ - Work gives you meaning and purpose and life is empty without it. ~~Stephen Hawking
+ - Always fight for quality, whether giving or receiving. ~~Walt Disney
+ - Life truly is a boomerang. What you give, you get. ~~Dale Carnegie
+ - Worship is giving God the best that He has given you. ~~Oswald Chambers
+ - You are what you think. So just think big, believe big, act big, work big, give big, forgive big, laugh big, love big and live big. ~~Andrew Carnegie
+ - Give me love, give me peace on earth, give me light, give me life. ~~George Harrison
+ - There are no happy endings. Endings are the saddest part, So just give me a happy middle And a very happy start. ~~Shel Silverstein
+ - Peace is our gift to each other. ~~Elie Wiesel
+ - Never give up on anybody. ~~Hubert H. Humphrey
+ - God gave us the gift of life; it is up to us to give ourselves the gift of living well. ~~Voltaire
+ - Music gives a soul to the universe, wings to the mind, flight to the imagination and life to everything. ~~Plato
+ - The only one who can make you give up is yourself. ~~Sidney Sheldon
+ - Christmas is most truly Christmas when we celebrate it by giving the light of love to those who need it most. ~~Ruth Carter Stapleton
+ - The best way to keep one's word is not to give it. ~~Napoleon
+ - Never give up on what you really want to do ~~H. Jackson Brown Jr.
+ - Forgiveness is a gift you give yourself. ~~Suzanne Somers
+ - Intense love does not measure, it just gives. ~~Mother Teresa
+ - Veganism is not about giving anything up or losing anything; it is about gaining the peace within yourself that comes from embracing nonviolence and refusing to participate in the exploitation of the vulnerable. ~~Gary L. Francione
+ - Doing less is not being lazy. Don’t give in to a culture that values personal sacrifice over personal productivity. ~~Tim Ferriss
+ - Push yourself again and again. Don’t give an inch until the final buzzer sounds. ~~Larry Bird
+ - No matter what you do, give it everything you have. Be the best, not the second best. ~~Michael Jackson
+ - When the Holy Rosary is said well, it gives Jesus and Mary more glory and is more meritorious than any other prayer. ~~Louis de Montfort
+ - We know that from time to time there arise among human beings people who seem to exude love as naturally as the sun gives out heat. ~~Alan Watts
+ - Do not give in too much to feelings. A overly sensitive heart is an unhappy possession on this shaky earth. ~~Johann Wolfgang von Goethe
+
+40 quotes

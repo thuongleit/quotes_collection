@@ -1,0 +1,119 @@
+ - When everything is finished, the mornings are sad.
+ - You think you are killing me. I think you are committing suicide.
+ - We become aware of the void as we fill it.
+ - In a full heart there is room for everything, and in an empty heart there is room for nothing.
+ - One lives in the hope of becoming a memory.
+ - When I am asleep I dream what I dream when I am awake. It’s a continuous dream.
+ - Yes, I will go. I would rather grieve over your absence than over you.
+ - When I do not walk in the clouds I walk as though I were lost.
+ - They will say you are on the wrong road, if it is your own.
+ - The children whom nobody leads by the hand are the children who know they are children.
+ - Everything is a little bit of darkness, even the light.
+ - A thing, until it is everything, is noise, and once it is everything it is silence.
+ - Would there be this eternal seeking if the found existed?
+ - I am chained to the earth to pay for the freedom of my eyes.
+ - Following straight lines shortens distances, and also life.
+ - Sometimes at night I light a lamp so as not to see.
+ - If only I could leave everything as it is, without moving a single star or a single cloud. Oh, if only I could!
+ - There are sufferings that have lost their memory and do not remember why they are suffering.
+ - The flower that you hold in your hands was born today and already it is as old as you are.
+ - Flowers are without hope. Because hope is tomorrow and flowers have no tomorrow.
+ - Almost always it is the fear of being ourselves that brings us to the mirror.
+ - The fear of separation is all that unites.
+ - Before I travelled my road I was my road.
+ - You do not see the river of mourning because it lacks one tear of your own.
+ - My great day came and went, I do not know how. Because it did not pass through dawn when it came, nor through dusk when it went.
+ - Everything that I bear within me bound, is to be found somewhere else free.
+ - Whatever I take, I take too much or too little; I do not take the exact amount. The exact amount is no use to me.
+ - No one understands that you have given everything. You must give more.
+ - We tear life out of life to use it for looking at itself.
+ - I began my comedy as its only actor and I come to the end as its only spectator.
+ - Out of a hundred years a few minutes were made that stayed with me, not a hundred years.
+ - Some things become such a part of us that we forget them.
+ - Every time I wake, I understand how easy it is to be nothing.
+ - Man goes nowhere. Everything comes to man, like tomorrow.
+ - Not believing has a sickness which is believing a little.
+ - My truths do not last long in me. Not as long as those that are not mine.
+ - If you are good to this one and that one, this one and that one will say that you are good. If you are good to everyone, no one will say that you are good.
+ - Set out from any point. They are all alike. They all lead to a point of departure.
+ - We have a world for each one, but we do not have a world for all.
+ - What do others think they see?
+ - Man, when he does not grieve, hardly exists.
+ - Night is a world lit by itself.
+ - It’s been a long time since I asked anything of heaven, and my arms still haven’t come down.
+ - I have come one step away from everything. And here I stay, far from everything, one step away.
+ - If you do not raise your eyes you will think that you are the highest point.
+ - Even the smallest of creatures carries the sun in its eyes.
+ - You know so much about me and yet you don’t understand me. To know is not to understand. We could know everything and still not understand anything.
+ - Truth has very few friends and those few are suicides.
+ - If those who owe us nothing gave us nothing, how poor we would be.
+ - I have scarcely touched the sky and I am made of it.
+ - A door opens to me. I go in and am faced with a hundred closed doors.
+ - When the superficial wearies me, it wearies me so much that I need an abyss in order to rest.
+ - Beyond my body my veins are invisible.
+ - My bits of time play with eternity.
+ - He who has made a thousand things and he who has made none, both feel the same desire: to make something.
+ - The chains that bind us the most closely are the ones we have broken.
+ - I keep my hands empty for the sake of what I have had in them.
+ - I will help you to approach if you approach, and to keep away if you keep away.
+ - He who makes a paradise of his bread makes a hell of his hunger.
+ - When I break any of the chains that bind me I feel that I make myself smaller.
+ - Infancy is what is eternal, and the rest, all the rest, is brevity, extreme brevity.
+ - I stop wanting what I am looking for, looking for it.
+ - What words say does not last. The words last. Because words are always the same, and what they say is never the same.
+ - When I believe in nothing I do not want to meet you when you believe in nothing.
+ - Suffering is above, not below. And everyone thinks that suffering is below. And everyone wants to rise.
+ - They have stopped deceiving you, not loving you. And it seems to you that they have stopped loving you.
+ - Certainties are arrived at only on foot.
+ - A large heart can be filled with very little.
+ - The less you think you are, the more you bear. And if you think you are nothing, you bear everything.
+ - Those who gave away their wings are sad not to see them fly.
+ - My final belief is suffering. And I begin to believe that I do not suffer.
+ - If a fanatic is willing to give his life for a cause, he’s probably willing to give yours as well I know what I have given you. I do not know what you have received.
+ - The shadows: some hide, others reveal.
+ - You can owe nothing, if you give back its light to the sun.
+ - Human suffering, while it is asleep, is shapeless. If it is wakened it takes the form of the waker.
+ - I can wait for you longer. Because you have arrived.
+ - My father, when he went, made my childhood a gift of a half a century.
+ - Humanity does not know where to go because no one is waiting for it: not even God.
+ - Injury, when it is slight, upsets me; when it is strong it calms me.
+ - And if you find everything as soon as you look for it, you find it in vain, you look for it in vain.
+ - He who tells the truth says almost nothing.
+ - Yes, this is what good is: to forgive evil. There is no other good.
+ - Situated in some nebulous distance I do what I do so that the universal balance of which I am a part may remain a balance.
+ - Man, when he is merely what he seems to be, is almost nothing.
+ - The real “it is well” is something I say from the ground, having fallen.
+ - When I look for my existence I do not look for it in myself.
+ - The confession of one man humbles all.
+ - Nothing is not only nothing. It is also our prison.
+ - Not using faults does not mean that one does not have them.
+ - The dream which is not fed with dream disappears.
+ - You are sad because they abandon you and you have not fallen.
+ - More grievous than tears is the sight of them.
+ - Without this ridiculous vanity that takes the form of self-display, and is part of everything and everyone, we would see nothing, and nothing would exist.
+ - He who does not fill his world with phantoms remains alone.
+ - Everything had been stripped of deceptions, that time. And that time I was afraid of everything.
+ - What we pay for with our lives never costs too much.
+ - I believe that the soul consists of its sufferings. For the soul that cures its own sufferings dies.
+ - Man talks about everything, and he talks about everything as though the understanding of everything were all inside him.
+ - A little candor never leaves me. It is what protects me.
+ - All the suns labor to kindle your flame and a microbe puts it out.
+ - My poverty is not complete: it lacks me.
+ - God has given a great deal to man, but man would like something from man.
+ - I would go to heaven, but I would take my hell; I would not go alone.
+ - He who does not know how to believe, should not know.
+ - When your suffering is a little greater than my suffering I feel that I am a little cruel.
+ - He who holds me by a thread is not strong; the thread is strong.
+ - You are fastened to them and cannot understand how, because they are not fastened to you.
+ - My heaviness comes from the heights.
+ - A hundred men together are the hundredth part of a man.
+ - No one is a light unto himself, not even the sun.
+ - Yes, one must suffer, even in vain, so as not to have lived in vain.
+ - That in man which cannot be domesticated is not his evil but his goodness.
+ - I would ask something more of this world, if it had something more.
+ - He who goes step by step always finds himself level with a step.
+ - When I die, I will not see myself die, for the first time.
+ - I have been my own disciple and my own master. And I have been a good disciple but a bad master.
+ - I love you as you are, but do not tell me how that is.
+
+117 quotes

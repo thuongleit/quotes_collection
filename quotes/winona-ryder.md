@@ -1,0 +1,94 @@
+ - I, myself, am strange and unusual.
+ - You’ve got to grow up sometime.
+ - When you finally accept that it’s OK not to have answers and it’s OK not to be perfect, you realize that feeling confused is a normal part of what it is to be a human being.
+ - I’ve learned that it’s OK to be flawed, that life can be messy, that some days you glide and some days you fall, but most important, that there are no secret answers out there.
+ - Scapegoating will go on forever. We need someone to blame – illegal immigrants, single moms, people in prison. We need someone to victimize.
+ - I write pretty much every day, but I don’t have any desire to publish anything.
+ - I thought it was a cool parallel. Being replaced by the young thing. I know that definitely happens in Hollywood. It’s harder to find good roles, and suddenly there’s new girls. I’m at that age I’ve been warned my whole life about.
+ - Remember, I’m the kind of kid who used to get stuffed into a locker by school bullies. I’ve never felt like I’m a big star at any level of my life.
+ - I was not the first choice for Veronica in Heathers. I auditioned and they were like, “Oh, thanks.” And I went to the Beverly Center to Macy’s and had them do a makeover on me. I went back because I kind of knew that they thought I wasn’t pretty enough. They were trying to get Jennifer Connelly.
+ - I feel my best when I’m happy.
+ - I’m not interested in playing the girl that’s just there to make the guy, you know, give him a talking to.
+ - Crazy isn’t being broken, or swallowing a dark secret. It’s you or me, amplified.
+ - I was very depressed after breaking off my engagement with Johnny ten years ago. I was embarrassingly dramatic at the time, but you have to remember I was only 19 years old.
+ - You go through spells where you feel that maybe you’re too sensitive for this world. I certainly felt that.
+ - You have good days and bad days, and depression’s something that, you know, is always with you.
+ - I think it’s important to have as much as a normal life and take the time to get perspective because it only helps your work in the long run.
+ - Sometimes I’ll watch a movie, and it’s got some big star in it playing a working-class person, and the character is in a grocery store, and you can kind of tell, from just watching the scene, that this actor doesn’t do their own shopping. So you have to have some sense of reality.
+ - I feel like I had to learn how to take care of myself and find out what made me happy aside from just making films.
+ - Weird people follow you in the streets, you can’t sit alone in a restaurant or a cafe and read a book in peace, and I think everybody values those moments of being alone.
+ - There’s like this great thing that Bette Davis said when someone asked her, “How do you get into Hollywood?” “Take Fountain!”
+ - Reverend Hale is so interesting because at first he’s like, “Oh, she’s got the mark.” Then by the end he’s like, “You’re all crazy.”
+ - My parents really instilled this idea in me of being your own person, almost to the extent that I couldn’t do wrong. I’d get a bad grade and they’d be like, “No! What you did was great!”
+ - A woman who wears high heels is very different, I think, than a woman who wears sandals.
+ - I’m not into older guys. To tell you the truth, Richard Gere is not the sexiest man alive, in my book.
+ - I would love to someday do a play. I did one when I was very young in San Francisco, where I grew up. A girl can dream.
+ - It’s really good to be able to think about past loves without having a pit in my stomach, or cringing or feeling heart-broken, or like they hate you. Don’t you think?
+ - Googling yourself is maybe one of the worst things you can do. I did it once, and someone had to talk me off a ledge.
+ - I think I’m learning to be bolder in my career choices and be more confident in my personal life. I haven’t always felt very secure as an individual, but now I feel I certain confidence and sense of self that gets me through the day a lot better than before.
+ - I remember when I did Little Women, I didn’t watch the Katharine Hepburn one over and over, which I thought I would do. Heathers, I was completely obsessed with.
+ - It’s weird because I think of movies like Reality Bites or something, where, even though my life was nothing like that, I hadn’t done something contemporary for a while, and it’s easier. You do try to make something your own.
+ - I remember being 18, and my first boyfriend said to me, “Unless you’re in the room, you don’t know if it’s true.” We were talking about gossip.
+ - In retrospect, I went to Jane Fonda for literally everything. During Mermaids, we were staying in the same building, so she was right upstairs from me. I was in my first relationship, so I got all sorts of advice. She became famous in her late teens.
+ - It’s just people should realize that the celebrity aspect of being an actor is very rarely enjoyable for people like me who would always rather go unnoticed and disappear into the crowd.
+ - Money doesn’t matter on a deeply personal level. It doesn’t make you feel any happier. But of course I am very aware that I don’t have to worry about earning a living or about those very important practical things that most people have to worry about on a very real level.
+ - I was very lucky because Tim Burton really gave me a career. I don’t think Hollywood would’ve known what to do with me. If I hadn’t done ‘Beetlejuice,’ I think I would’ve just gone back to my school.
+ - It’s an indication of how cynical our society has become that any kind of love story with a sad theme is automatically ridiculed as sentimental junk.
+ - I’ve learned that it’s OK to be flawed.
+ - I love photography and first editions. I have that in my genes. My father was an archivist.
+ - You try to get out there and live. I’ve always had good friends who’ve been very supportive and help make me feel good and grounded because I’ve never felt attached to the film industry.
+ - I am not a person who can really sit around and think about regrets because with every bad experience that you have, there is weirdly something good that comes from it.
+ - What’s awful about being famous and being an actress is when people come up to you and touch you. That’s scary, and they just seem to think it’s okay to do it, like you’re public property.
+ - I’d always find the positive in someone.
+ - Break-ups are hard for anybody, but it’s particularly tough when it’s being documented and you see the person’s picture everywhere. Most people don’t have that added problem when they break up with someone.
+ - I got to work with Gena Rowlands when I did Night on Earth, and the movie was just you and someone else in a car, you’re just hanging out. There’s nobody else, just a walkie-talkie. It was a night shoot, and it was only a week or ten days. But it was incredible just being in her presence.
+ - My dad took me to all the best rock and punk shows when I was growing up and music has always been a part of my life. So I’m very interested in the music scene and I suppose that’s why I’ve ended up going out with musicians. Dave Pirner is still one of my best friends.
+ - I was exhausted and going through a terrible depression.
+ - I was regarded as the school freak which further reinforced a lot of inhibitions and doubts I had about myself. I was a shy, frightened teenager for a long time.
+ - I was inspired by lots of people, certainly in acting and in writing and stuff, but I never wanted to be somebody else.
+ - My parents are awesome, but they’re pretty left-wing.
+ - I don’t believe I am influencing anybody but myself.
+ - Somehow I was invited to visit with Audrey Hepburn. I had this afternoon with her, and she gave me a couple things. She was so gracious and everything you would think that she would be.
+ - Even though ‘Heathers’ didn’t make a lot of money, I really was able to transition into a situation where people thought I could play an attractive role because of it.
+ - In retrospect, I think maybe Audrey Hepburn was going to talk to me about doing something for UNICEF. I was so overwhelmed to just even be in her presence and I was very young, but it was really special and unforgettable.
+ - If you’re a musician, you can practice your guitar every day and write songs, but when you’re an actor, you can’t just like burst into a monologue. Your only exercise is when you’re in prep or you’re working.
+ - I’m quite comfortable looking at myself in movies, probably because I’ve been doing it for so long, since I was a kid. So I sort of watched myself grow up and go through adolescence, like, basically on camera.
+ - That’s an aspect of this business which can be very frustrating and aggravating. Most of what is written about you is wrong and so much of what does get printed is often about personal things that you don’t want to have other people read about.
+ - I love books and going to bookstores. My favorite sound is the sound of the needle hitting the record.
+ - Focus should be on the art of film, not on the business of film.
+ - My problems seemed so glamorous to other people, and everyone just thought I was so lucky. But then, I was lucky because my family was really there for me. I think I just felt like I really wanted to hold on to who I was as a person, and try to have as much of a normal life as I could.
+ - I think that as actresses – and I’ve definitely gone through this in a really bizarre way, because I worked so much and was really lucky with the roles that I got when I was younger – I remember hearing the older actors saying, “It gets tough,” and thinking, “Really? I can’t imagine.”
+ - I’m the type who’d rather not work than work on something I’m not into. I’ve done that a couple of times, and I feel like I can totally see it in my performance.
+ - It’s equally as important to me to be a good friend and a good sister and a good daughter. I’m very close with my family and friends.
+ - There was a time when I was 19 when I really, really, really thought I was going crazy. I was exhausted and going through a terrible depression.
+ - Bette Davis in All About Eve was huge for me. Her acting was staggering.
+ - I really lucked out in terms of how my parents encouraged me to develop my own personality so I didn’t just feel incredibly insecure and like I didn’t fit in.
+ - It’s part of the celebrity process but my life has never been as interesting or as wild as what’s been printed about me.
+ - The fact that I got into acting at all was kind of fluke-ish. I loved movies, but I can’t remember ever really wanting to be an actress, and I certainly didn’t imagine ever being in a movie. I think I wanted to be a writer.
+ - I think I really scored with my parents. All of my friends pretty much came from broken homes, and my parents are still together, but not only that, they’re still in love and still write together.
+ - I have this sense that I didn’t really start growing up until my twenties.
+ - The older you get, the more yourself you can be and the less worried you are about what other people think.
+ - I remember when I first started being in magazines, I had pretty thin skin. I was this nerd that read books and stayed home and didn’t go out.
+ - I was so spoiled in a way. I worked very hard, but there was just a wealth of great roles.
+ - I love westerns. John Ford is one of the 10 best directors.
+ - There are actors I know personally, or I’ve heard them say, “The less known about me, the better, because I just want people to think of me as the character.” I think Matt Damon said that recently. He has a point and I think I get that.
+ - I remember the whole thing with the word ambition. I was messed up for a while because I associated it with certain people who just want to be famous. I think, for a while, it was kind of a dirty word for women.
+ - I don’t hang out with agents and producers and I’m not into the business side at all.
+ - I was never strategic really, but back when I was starting out no one cared. In the acting community, box office didn’t matter. I really think it was a mistake when they started paying people like $20 million to do a movie because now it’s all people think about. Is she worth it? Is he worth it?
+ - For a long time, I was almost ashamed of being an actress. I felt like it was a shallow occupation. People would be watching my every move.
+ - But I’ve always felt a need to have a life which is completely separate – at least as far as possible – from the kind of illusory lifestyle that comes with being a celebrity.
+ - A lot of filmmakers and actors say, “It’s so important to bring an authenticity to the role,” blah, blah, blah. But then it’s interesting because you’re also trying to be somebody else, and viewers are going to associate you with that, so I don’t think it really has an answer.
+ - It’s interesting because First Wives Club was the first movie that made a shitload of money that starred all women over a certain age. That was a milestone that made you think, “Oh, things are going to change.”
+ - My father is an atheist. My mother is Buddhist. They encouraged my siblings and me to take the best part of other religions to make our own belief system.
+ - Even though I never really had to pound the pavement as an actor, I always worked really hard. But, at the same time, I always felt like people thought that I didn’t have to struggle even though I was struggling.
+ - I’m not into wrinkles.
+ - I watched this documentary on Madonna. I remember I grew up hearing she wanted to rule the world. Actually, she worked really hard – really, really hard.
+ - I don’t use the Internet, but apparently you can find out everything on it.
+ - As a character, it’s very interesting to play someone who wants to change their life and have him change it.
+ - People think that they just want movies like Pretty Woman, when really they – at least the ones that I know personally – have been waiting for something that doesn’t completely insult them.
+ - I’ve loved making movies. I feel like I’ve been so lucky because I’ve gotten to be in movies that are some of my favorites, regardless of my being in them – like ‘Heathers.’
+ - It’s also a question of finding good material and interesting roles. I’m not the only actress out there, and good parts just don’t fall into your lap that easily. But I like most of the films I’ve made recently and so I’m pretty positive about the future.
+ - I had this big complex because I didn’t go to college. There was a whole era where I got linked to everybody. People that I had never met. I was like, “How? I’m home alone reading chapter 12 of a book.”
+ - If a film is well made, then great, whatever it’s about.
+
+92 quotes

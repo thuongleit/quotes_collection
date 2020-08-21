@@ -1,0 +1,58 @@
+ - I love dark chocolate. I love it.
+ - I love summer, but my legs are so pale I can never wear shorts or a bikini.
+ - If there wasn’t mystery, people wouldn’t have anything to ponder. If you already knew everything, you wouldn’t have anything to think about and life would just be really boring.
+ - No, I don’t have a boyfriend, I don’t want one.
+ - Love is not necessarily about grand gestures. It can be the little things, like someone knows you like a certain food so they pick it up for you. Stuff like that is sweet. It’s little things that are nice and thoughtful that you can do every day.
+ - I love vintage shopping, I think it’s really fun. And I love the feeling of finding the most amazing piece for less.
+ - I’ve realized that you become a bully if you are just watching someone get bullied and you don’t say anything. Speak up!
+ - I dress for myself because when I feel good, it doesn’t matter what other people say. I think it’s all about confidence and the way you carry yourself that draws people to you.
+ - I grew up with just my mom. She and I were like best friends. She’s a very independent woman and I admire that about her. In my life, I’ve tried to be like that. To be okay with being on my own and being independent.
+ - I love doing kind of more kiddish-oriented movies, but I also love doing adult things. And I think it’s fun to do a mix.
+ - I’m surrounded by great friends and family. I don’t know what I would do without them.
+ - Everyone has kind of done something that is bad and everyone has shades of good, but everyone has that darkness. There’s always that little twinkle of darkness in everyone’s eye.
+ - I always have red nail polish on my nails, so if they ever discontinue the red polish I wear from OPI, I’d be really upset.
+ - I don’t really have a type of guy I like. It’s just like nice guys, cute boys I mean, ones that are funny.
+ - I’m very outgoing and social.
+ - Well, there’s nothing more touching than putting a smile on a kid’s face when you can.
+ - If I’m having a really bad day, I always have a girlfriend – or even a guy friend – who I can call. They’ll listen to me wallow for a minute and then be like, ‘Okay, let’s stop. Everything’s great. Let’s figure out how to fix whatever’s bothering you.’
+ - I have really crooked teeth – they give me character!
+ - You go into this survival instinct mode, when you feel like your life is in jeopardy. I found myself in the bathroom with my taser, which I have 10 of, my panic button and my cell phone. It was the most terrifying experience I’ve ever had in my life.
+ - My dream is to be a character in a Wes Anderson movie. I just love how interesting and eclectic and stylized his characters are, and I would love to dive into that world.
+ - I’m 5 foot 2. I wish I were 5? 6. Everyone who meets me says, ‘Oh my God. You look so much taller in person.’
+ - You don’t ever want to appear like you’re wearing too much makeup. If you have a heavy eye and a heavy lip, people are like, ‘Wow, what are you trying to cover up?’
+ - When it comes to love, always be open. Because the second youre not pining after a boy, or a boyfriend, amazing love comes into your life.
+ - When you’re a teenager, you don’t want to bring your emotions to the surface and talk about them. You want to push them away.
+ - I am definitely not like the hottest young actress, the most beautiful or whatever. I have my own thing going.
+ - I can’t say I’m never going to mess up, but if I do, I’ll definitely be very sorry.
+ - I’m my own person, and am trying to carve out a career on my own.
+ - I just never have really been the kind of person that’s out in public being inappropriate, I guess. I like to have fun as much as the next person but I tend to do it in private and just hang out with close friends. If I’m going to go out, I’ll just do it with my really good friends.
+ - I only like food without color, like potatoes, bread, and pasta.
+ - I really care about my friends and I think I’m kind of the person who would be rounding up all the friends. I’m always getting everyone together.
+ - Jennifer Aniston is a genius.
+ - I would die if Woody Allen ever called and said, ‘Emma, I have a role for you.’
+ - I’ve had a lot of failures as well and rejection. As actor, it’s actually mostly rejection but people think it’s mostly success because they only see your successes – the films that get made.
+ - You can’t trust actors.
+ - For me, when I read a book, I’m very much about detail.
+ - I think as you get older, you tend to think of teenagers as really young.
+ - I don’t think I’d be a very good talk show host. I mean, I’m very talkative but I don’t know if I could do that all the time.
+ - I’m a huge Wes Anderson fan I would faint if I met him, let alone got to work with him.
+ - I’ll be ready for my first kiss! When it happens, it’ll happen, but I don’t know. It doesn’t look like that will be anytime soon.
+ - I don’t like vegetables and most fruit.
+ - I think if you keep an open mind and actively look, you find these really great roles that you might have otherwise never even known were out there.
+ - Who wouldn’t want to be in Scream? I was sitting on set thinking, “Aren’t I supposed to be watching this movie? I don’t think I’m supposed to be here.” I never could have imagined myself on screen with Neve Campbell, screaming. It just didn’t make sense.
+ - I’d love to maybe try writing. I don’t know if I’d publish anything, but as a hobby, it’s really nice. I bought a typewriter, and I really like to write on the typewriter sometimes. It’s a fun little hobby.
+ - I’ve never read a script that I’ve loved equally and differently to the book.
+ - I love the idea of getting to play different characters and tell some stories. When you’re passionate about a project, it’s nice to get the part.
+ - I’m not in the gossips that much, but something I read recently was that me and Emma Watson are having a feud. And I’ve never even met her.
+ - I love dressing up. It’s the best part of being a girl, I think.
+ - I love to just work with new people in general. It’s always really fun.
+ - I just don’t like talking about my relationships or anything like that, in any reference.
+ - Horror movies can really go one way or the other – they can go amazingly or they can go terribly – and it’s generally an extreme, in one way or the other, so you have to be very careful.
+ - We Robertses have too many teeth for our mouths.
+ - I’m obsessed with heels.
+ - I never not wanted to become an actress.
+ - Stuffing is my favorite food in the world! I actually have been known to go buy stuffing and make it in the middle of summer.
+ - I’m really inspired by British style, like Kate Moss and Sienna Miller.
+ - Because I’m very petite, I try not to wear things that have a heavy pattern because I feel like they overtake you.
+
+56 quotes

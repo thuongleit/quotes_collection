@@ -1,0 +1,43 @@
+ - On network TV, I’m still Phoebe to people, and it would be hard to convince them otherwise in the bright lights of a sitcom.
+ - This is who I am. Not everybody has to like it.
+ - Life’s a lot easier when you’re dumb.
+ - I’ve learned you can make a mistake and the whole world doesn’t end. I had to learn to allow myself to make a mistake without becoming defensive and unforgiving.
+ - I just want to start writing, whether or not any of it is useable or marketable.
+ - I have trouble describing characters because there is just too much going on in human beings.
+ - Is it me? Is it like I have a beacon that only dogs and men with severe emotional problems can hear?
+ - I actually made an effort to reject acting, to shove it out of my body, because I didn’t want my kids to have an actress as a mother-to have, like, a silly person.
+ - I like when there are complicated relationships, that there’s a little bit of self-serving parts of it as well as a devotion to a person, and that there’s a mixture of both in there. It’s just I think that’s a little more true to life. It’s not always purely one way or the other.
+ - I wanted to be the kind of woman who would attract a certain kind of man that I could respect. That was my thinking. It had to do with the kind of couple I would be a part of.
+ - I hate cosmetics companies. They get you addicted to the perfect lipstick or nail polish and then, six months later, they discontinue it. You have to buy your favorite colors like you’re storing up for the Apocalypse.
+ - Blonde is dumb comedy, red hair is smart, sexy comedy.
+ - In college I castrated 21 rats, and I got pretty good at it.
+ - You can’t help but just be aware that things might not always be as good as they are, because people’s feelings about others can turn on a dime.
+ - You become a celebrity, not because of your work or what you do, but because you have no privacy.
+ - From elementary school on up through junior high school, I loved to perform. But I put it all away during high school and college. I thought, “That’s not actually something you do with your life.” But then I was compelled to try it after college. I just got overcome.
+ - I’m the youngest in my family, and everyone is very funny, and I was always trying to keep up with them. I just loved making people laugh.
+ - Since I had the baby I can’t tolerate anything violent or sad, I saw the Matrix and I had my eyes closed through a lot of it, though I didn’t need to. I would peek, and then think, oh OK, I can see that.
+ - I’ve been careful to keep my life separate because it’s important to me to have privacy and for my life not to be a marketing device for a movie or a TV show. I’m worth more than that.
+ - I’d played dumbasses a lot. On Mad About You, I played a very dumb waitress and they saw me.
+ - Shirley MacLaine said, You’re so funny, then gave me a hug. Everything went white. I couldn’t hear, I couldn’t see. I thought I was going to pass out.
+ - You can’t pursue something and be committed to it if you’re apologizing for it at every party.
+ - I found the right man, got married, and just had to keep not reinventing myself, just deciding that it doesn’t matter what you are if you are a good person.
+ - I do like reality shows, and I watch some of them because they’re high drama. It’s also just fun to watch people have honest reactions.
+ - There was a time there when I thought going out was so fun. I don’t know how it happens, but suddenly that’s not a priority anymore.
+ - One fantasy is that I just do a Don Roos movie every year if that’s possible. If he’d have me.
+ - Now, unless someone’s, like, 50 or older, they’re meant to behave like girls. And it’s a broad stroke: It’s not just a moment of being vulnerable and girlish.
+ - I knew an actor’s career goes up and down and back up again. Your standing in this business can’t be your whole identity; otherwise, you’re doomed.
+ - At 45, you know what you’re doing, but you’re still not done.
+ - Christina Ricci is amazing, the most professional actor I think I’ve ever met. You can be chatting with her and when they call action, she’s right there.
+ - I have no affectation when I speak.
+ - I don’t think that I ever thought of myself as a nerd.
+ - To be able to let you know who someone is in just a couple of words, I’d have to pick the most pronounced features of a character’s personality. And I always feel like I’m leaving out so many important little ones.
+ - My hair got lighter, and I gradually went blonde. I liked it. Had more fun. But my image of myself in my head is this dark-haired person.
+ - I think it’s very easy to get caught up and think that how many hits you get in a magazine because you were seen out somewhere has anything to do with a director’s opinion of you, and whether they could use you or not.
+ - I don’t even know if it’s possible, but if it were, I’d like to make those kinds of old movies where the women were articulate and intelligent and flawed and witty.
+ - We wanted to do a woman on a reality show because that’s what’s happening right now-it’s part of our culture.
+ - One thing I really want to explore is writing.
+ - You have to surrender to the fact that you are of too many in a highly competitive field where it is difficult to stand out. Over time, through your work, you will demonstrate who you are and what you bring to the field. Just stay with it and keep working.
+ - An actress, around 40, on television, that’s where you get the most torture, I think.
+ - I’ll accept being Phoebe to people for a while longer, given how much fun it was. That’s totally fair.
+
+41 quotes

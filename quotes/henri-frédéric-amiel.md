@@ -1,0 +1,177 @@
+ - Life is short and we never have enough time for the hearts of those who travel the way with us. O, be swift to love! Make haste to be kind.
+ - I’m not interested in age. People who tell me their age are silly. You’re as old as you feel.
+ - There is no respect for others without humility in one’s self.
+ - Life is but a daily oscillation between revolt and submission.
+ - To be misunderstood even by those whom one loves is the cross and bitterness of life. It is the secret of that sad and melancholy smile on the lips of great men which so few understand.
+ - He who is silent is forgotten; he who does not advance falls back; he who stops is overwhelmed; out distanced, crushed; he who ceases t grow becomes smaller; he who leaves off, gives up; the condition of standing still is the beginning of the end.
+ - Destiny has two ways of crushing us – by refusing our wishes and by fulfilling them.
+ - Learn to limit yourself; to content yourself with some definite work; dare to be what you are and learn to resign with a good grace all that you are not; and to believe in your own individuality.
+ - Pay bad people with your goodness; fight their hatred with your kindness. Even if you do not achieve a victory over other people, you will conquer yourself.
+ - Let mystery have its place in you ; do not be always turning up your whole soil with the ploughshare of self-examination, but leave a little fallow corner in your heart ready for any seed the winds may bring...
+ - In every loving woman there is a priestess of the past – a pious guardian of some affection, of which the object has disappeared.
+ - Every landscape is, as it were, a state of the soul, and whoever penetrates into both is astonished to find how much likeness there is in each detail.
+ - The more a man loves, the more he suffers. The sum of possible grief for each soul is in proportion to its degree of perfection.
+ - Without passion man is a mere latent force and possibility, like the flint which awaits the shock of the iron before it can give forth its spark.
+ - Analysis kills spontaneity.
+ - Every life is a profession of faith...
+ - Almost everything comes from almost nothing.
+ - Self-interest is but the survival of the animal in us. Humanity only begins for man with self-surrender.
+ - The growth and development of the soul is more important than power and glory.
+ - True love is that which ennobles the personality, fortifies the heart, and sanctifies the existence.
+ - The stationary condition is the beginning of the end.
+ - The beautiful souls of the world have an art of saintly alchemy, by which bitterness is converted into kindness, the gall of human experience into gentleness, ingratitude into benefits, insults into pardon.
+ - The great artist and thinker are the simplifiers.
+ - The mind must have for ballast the clear conception of duty, if it is not to fluctuate between levity and despair.
+ - So long as a person is capable of self-renewal they are a living being. -Henri.
+ - Life alone can rekindle life.
+ - Oh be swift to live, make haste to be kind.
+ - Time is but the space between our memories; as soon as we cease to perceive this space, time has disappeared.
+ - The masses are the material of democracy, but its form-that is to say, the laws which express the general reason, justice, and utility-can only be rightly shaped by wisdom, which is by no means a universal property.
+ - I do not deny the rights of democracy, but I have no illusions as to the uses that will be made of those rights so long as wisdom is rare and pride abundant.
+ - Blessed be childhood, which brings down something of heaven into the midst of our rough earthliness.
+ - Our greatest illusion is to believe that we are what we think ourselves to be.
+ - Dreams are excursions into the limbo of things, a semi-deliverance from the human prison.
+ - Happiness has no limits, because God has neither bottom nor bounds, and because happiness is nothing but the conquest of God through love.
+ - Sympathy is the first condition of criticism; reason and justice presuppose, at their origin, emotion.
+ - Liberty, equality – bad principles! The only true principle for humanity is justice; and justice to the feeble is protection and kindness.
+ - Every man is a priest, even involuntarily; his conduct is an unspoken sermon, which is forever preaching to others.
+ - Time and space are fragments of the infinite for the use of finite creatures.
+ - Criticism is above all a gift, an intuition, a matter of tact and flair; it cannot be taught or demonstrated – it is an art.
+ - Nothing finite is true, is interesting, is worthy to fix my attention. All that is particular is exclusive, and all that is exclusive repels me.
+ - What we do not understand we have no right to judge.
+ - What governs men is the fear of truth.
+ - Man never knows what he wants; he aspires to penetrate mysteries and as soon as he has, wants to re-establish them. Ignorance irritates him and knowledge cloys.
+ - Never to tire, never to grow cold; to be patient, sympathetic, tender; to look for the budding flower and the opening heart; to hope always; like God, to love always – this is duty.
+ - I find myself regarding existence as though from beyond the tomb, from another world; all is strange to me; I am, as it were, outside my own body and individuality; I am depersonalized, detached, cut adrift. Is this madness?
+ - In every loving woman there is a priestess of the past.
+ - Great men are the real men, in them nature has succeeded.
+ - Doubt of the reality of love ends by making us doubt everything.
+ - Conquering any difficulty always gives one a secret joy, for it means pushing back a boundary-line and adding to one’s liberty.
+ - Kindness is gladdening the hearts of those who are traveling the dark journey with us.
+ - Wisdom consists in rising superior both to madness and to common sense, and is lending oneself to the universal illusion without becoming its dupe.
+ - Each bud flowers but once and each flower has but its minute of perfect beauty; so, in the garden of the soul each feeling has, as it were, its flowering instant, its one and only moment of expansive grace and radiant kingship.
+ - A man must be able to cut a knot, for everything cannot be untied; he must know how to disengage what is essential from the detail in which it is enwrapped, for everything cannot be equally considered; in a word, he must be able to simplify his duties, his business and his life.
+ - Time is the supreme illusion. It is but the inner prism by which we decompose being and life, the mode under which we perceive successively what is simultaneous in idea.
+ - A thousand things advance; nine hundred and ninety nine retreat; That is progress.
+ - Religion is not a method, it is a life, a higher and supernatural life, mystical in its root and practical in its fruits; a communion with God, a calm and deep enthusiasm, a love which radiates, a force which acts, a happiness which overflows.
+ - Do not despise your situation; in it you must act, suffer, and conquer. From every point on earth we are equally near to heaven and to the infinite.
+ - Righteous ends, thus approved, absolve of guilt the most violent means.
+ - Mutual respect implies discretion and reserve even in love itself; it means preserving as much liberty as possible to those whose life we share. We must distrust our instinct of intervention, for the desire to make one’s own will prevail is often disguised under the mask of solicitude.
+ - There is no repose for the mind except in the absolute; for feeling, except in the infinite; for the soul, except in the divine.
+ - Knowledge, love, power-there is the complete life.
+ - War is a brutal and fierce means of pacification; it means the suppression of resistance by the destruction or enslavement of the conquered.
+ - The great majority of men are but tangled skeins, imperfect keyboards, so many specimens of restless or stagnant chaos – and what makes their situation almost hopeless is the fact that they take pleasure in it. There is no curing a sick man who believes himself in health.
+ - We are never more discontented with others than when we are discontented with ourselves. The consciousness of wrong-doing makes us irritable, and our heart, in its cunning, quarrels with what is outside it, in order that it may deafen the clamor within.
+ - Will localizes us, thought universalizes us.
+ - We are always making God our accomplice, that so we may legalize our own iniquities. Every successful massacre is consecrated by a Te Deum, and the clergy have never been wanting in benedictions for any victorious enormity.
+ - Love is like swallowing hot chocolate before it has cooled off. It takes you by surprise at first, but keeps you warm for a long time.
+ - Love is faith and one faith leads to another.
+ - To depersonalize man is the dominant drift of our times.
+ - Philosophy starts with doubt and loves only truth.
+ - There is no curing a sick man who believes himself to be in health.
+ - Before giving advice we must have secured its acceptance, or, rather, have made it desired.
+ - Civilization is first of all a moral thing. Without truth, respect for duty, love of neighbor, and virtue, everything is destroyed. The morality of a society is alone the basis of civilization.
+ - A philosopher is aspires to explain away all mysteries, to dissolve them into light.
+ - Our life is nothing, it is true, but our life is divine. A breath of nature annihilates us, but we surpass nature in penetrating far beyond her vast phantasmagoria to the changeless and the eternal.
+ - Everything which is, is thought, but not conscious and individual thought. The human intelligence is but the consciousness of being. It is what I have formulated before: Everything is a symbol of a symbol, and a symbol of what? of mind.
+ - Our dependence outweighs our independence, for we are independent only in our desire, while we are dependent on our health, on nature, on society, on everything in us and outside us.
+ - Nothing resembles pride so much as discouragement.
+ - A musical theme once exhausted, finds its due refuge and repose in silence.
+ - Order means light and peace, inward liberty and free command over one’s self; order is power.
+ - To win true peace, a man needs to feel himself directed, pardoned, and sustained by a supreme power, to feel himself in the right road, at the point where God would have him be – in order with God and the universe. This faith gives strength and calm.
+ - To know how to suggest is the art of teaching.
+ - The fire which enlightens is the same fire which consumes.
+ - It is dangerous to abandon one’s self to the luxury of grief; it deprives one of courage, and even of the wish for recovery.
+ - A microscopic phantom of the universe; this is all that we are able to be.
+ - Whenever conscience speaks with a divided, uncertain, and disputed voice, it is not the voice of God. Descend still deeper into yourself, until you hear nothing but a clear, undivided voice, a voice which does away with doubt and brings with it persuasion, light, and serenity.
+ - The history of man is essentially zoological; it becomes human late in the day, and then only in the beautiful souls, the souls alive to justice, goodness, enthusiasm, and devotion. The angel shows itself rarely and with difficulty through the highly-organized brute.
+ - Obstinacy is will asserting itself without being able to justify itself. It is persistence without a reasonable motive. It is the tenacity of self-love substituted for that of reason and conscience.
+ - The unfinished is nothing.
+ - Happiness gives us the energy which is the basis of health.
+ - Each man enters into God so much as God enters into him.
+ - At bottom, everything depends upon the presence or absence of one single element in the soul – HOPE.
+ - The spirit of sarcasm lives and thrives in the midst of universal wreck; its balls are enchanted and itself invulnerable, and it braves retaliations and reprisals because itself is a mere flash, a bodiless and magical nothing.
+ - To do what is impossible for talent is the mark of genius.
+ - Man is saved by love and duty, and by the hope that springs from duty, or rather from the moral facts of consciousness, as a flower springs from the soil.
+ - He who is too much afraid of being duped has lost the power of being magnanimous.
+ - Joy is the vital air of the soul.
+ - The soul may be immortal because she is fitted to rise towards that which is neither born nor dies, towards that which exists substantially, necessarily, invariably, that is to say towards God.
+ - Doubt is the accomplice of tyranny.
+ - To be always ready a man must be able to cut a knot, for everything cannot be untied.
+ - To know how to suggest is the great art of teaching. To attain it we must be able to guess what will interest; we must learn to read the childish soul as we might a piece of music. Then, by simply changing the key, we keep up the attraction and vary the song.
+ - We are always making God our accomplice so that we may legalize our own inequities.
+ - Man becomes man only by his intelligence, but he is man only by his heart.
+ - It gives liberty and breadth to thought, to learn to judge our own epoch from the point of view of universal history, history from the point of view of geological periods, geology from the point of view of astronomy.
+ - The laws of animality govern almost the whole of history.
+ - Great men are true men, the men in whom nature has succeeded. They are not extraordinary – they are in the true order. It is the other species of men who are not what they ought to be.
+ - How, then, find the courage for action? By slipping a little into unconsciousness, spontaneity, instinct which holds one to the earth and dictates the relatively good and useful. By accepting the human condition more simply, and candidly, by dreading troubles less, calculating less, hoping more.
+ - The art which is grand and yet simple is that which presupposes the greatest elevation both in artist and in public.
+ - It is work which gives flavor to life.
+ - Charm is the quality in others that makes us more satisfied with ourselves.
+ - There is only one way of not hating those who do us wrong, and that is by doing them good.
+ - We become actors without realizing it, and actors without wanting to.
+ - Philosophy means the complete liberty of the mind.
+ - The immense majority of our species are candidates for humanity, and nothing more.
+ - As it is impossible to be outside God, the best is consciously to dwell in Him.
+ - Sadness takes up the pen more readily than joy.
+ - What we call little things are merely the causes of great things; they are the beginning, the embryo, and it is the point of departure which, generally speaking, decides the whole future of an existence. One single black speck may be the beginning of gangrene, of a storm, of a revolution.
+ - Man is a passion which brings a will into play, which works an intelligence.
+ - Peace is not in itself a dream, but we know it only as the result of a momentary equilibrium – an accident.
+ - Hope is only the love of life.
+ - We are never more discontented with others than when we are discontented with ourselves.
+ - Only evil grows of itself, while for goodness we want effort and courage.
+ - Put personal ambition away from you, and then you will find consolation in living or in dying, whatever may happen to you.
+ - It would have been a joy to me to be smiled upon, loved, encouraged, welcomed, and to obtain what I was so ready to give, kindness and goodwill. But to hunt down consideration and reputation – to force the esteem of others – seemed to me an effort unworthy of myself, almost a degradation.
+ - The tragic solemnity of existence strikes us with terrible force on that morning when we wake to find the mournful words “too late” ringing in our ears.
+ - To live we must conquer incessantly, we must have the courage to be happy.
+ - Happiness does away with ugliness, and even makes the beauty of beauty.
+ - The test of every religious, political, or educational system, is the man which it forms. If a system injures the intelligence it is bad. If it injures the character it is vicious. If it injures the conscience it is criminal.
+ - Mother of Marvels, mysterious and tender Nature, why do we not live more in thee.
+ - A belief is not true simply because it is useful.
+ - The ideal, after all, is true than the real: for the ideal is the eternal element in perishable things.
+ - True poetry is truer than science, because it is synthetic, and seizes at once what the combination of all the sciences is able, at most, to attain as a final result.
+ - Every situation is an equilibrium of forces; every life is a struggle between opposing forces working within the limits of a certain equilibrium.
+ - Nothing is more characteristic of a man than the manner in which he behaves toward fools.
+ - Order is man’s greatest need, and his true well-being.
+ - At bottom there is but one subject of study: the forms and metamorphoses of mind. All other subjects may be reduced to that; all other studies bring us back to this study.
+ - Nature does at least what she can to translate into visible form the wealth of the creative formula. By the vastness of the abysses into which she penetrates, in the effort – the unsuccessful effort – to house and contain the eternal thought, we may measure the greatness of the divine mind.
+ - What we call little things are merely the causes of great things.
+ - Time is but the measure of the difficulty of a conception. Pure thought has scarcely any need of time, since it perceives the two ends of an idea almost at the same moment.
+ - We only understand that which already is within us.
+ - There are 2 sorts of pride: one in which we approve others, the other in which we cannot accept ourselves.
+ - Self-interest is an inexhaustible source of convenient illusions. The number of beings who wish to see truly is extraordinarily small.
+ - Men of genius supply the substance of history, while the mass of men are but the critical filter, the limiting, slackening, passive force needed for the modification of ideas supplied by genius.
+ - Accept life, and you must accept regret.
+ - About Jesus we must believe no one but himself.
+ - Common sense is the measure of the possible; it is composed of experience and prevision; it is calculation applied to life.
+ - Men don’t achieve truth because they lack humility and love of truth. They won’t criticize their own beliefs. Truth would overwhelm them.
+ - Society rests upon conscience, not upon science.
+ - Thought is a kind of opium; it can intoxicate us, while still broad awake; it can make transparent the mountains and everything that exists.
+ - A modest garden contains, for those who know how to look and to wait, more instruction than a library.
+ - Latent genius is but a presumption. Everything that can be, is bound to come into being, and what never comes into being is nothing.
+ - I am a spectator, so to speak, of the molecular whirlwind which men call individual life; I am conscious of an incessant metamorphosis, an irresistible movement of existence, which is going on within me – and this phenomenology of myself serves as a window opened upon the mystery of the world.
+ - To understand is to possess the thing understood, first by sympathy and then by intelligence.
+ - When everything is in its right place within us, we ourselves are in balance with the whole work of God.
+ - The philosopher aspires to explain away all mysteries, to dissolve them into light. Mystery, on the other hand, is demanded and pursued by the religious instinct; mystery constitutes the essence of worship.
+ - If man was what he ought to be, he would be adored by the animals...
+ - To learn new habits is everything, for it is to reach the substance of life. Life is but a tissue of habits.
+ - How true it is that our destinies are decided by nothings and that a small imprudence helped by some insignificant accident, as an acorn is fertilized by a drop of rain, may raise the trees on which perhaps we and others shall be crucified.
+ - Truth is not only violated by falsehood; it may be equally outraged by silence.
+ - Common sense is the measure of the possible.
+ - Men prefer the false due to habit, passion, will. Preference for truth is rare. Men are ruled by their fear of truth.
+ - Before crime is committed conscience must be corrupted, and every bad man who succeeds in reaching a high point of wickedness begins with this.
+ - Let the living live; and you, gather together your thoughts, leave behind you a legacy of feeling and ideas; you will be most useful so.
+ - If ignorance and passion are the foes of popular morality, it must be confessed that moral indifference is the malady of the cultivated classes.
+ - The germs of all things are in every heart, and the greatest criminals as well as the greatest heroes are but different modes of ourselves.
+ - In order to see Christianity, one must forget all the Christians.
+ - To feel keenly the poetry of a morning’s roses, one has to have just escaped from the claws of this vulture which we call sickness.
+ - Emancipation from error is the condition of real knowledge.
+ - Time wasted is a theft from God.
+ - Life is an apprenticeship to the constant renunciations, to the steady failure of our claims, our hopes, our powers, our liberty.
+ - For purposes of action nothing is more useful than narrowness of thought combined with energy of will.
+ - Every living being seeks instinctively to complete itself.
+ - The musician of the present day, not being able to give us what is beautiful, torments himself to give us what is new.
+ - The ideal doctor would be a man endowed with profound knowledge of life and of the soul, intuitively divining any suffering or disorder of whatever kind, and restoring peace by his mere presence.
+ - Our duty is to be useful, not according to our desires but according to our powers.
+
+175 quotes

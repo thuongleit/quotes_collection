@@ -1,0 +1,502 @@
+ - So much universe, and so little time.
+ - Give a man a fire and he’s warm for a day, but set fire to him and he’s warm for the rest of his life.
+ - If you trust in yourself... and believe in your dreams... and follow your star... you’ll still get beaten by people who spent their time working hard and learning things and weren’t so lazy.
+ - It is said that your life flashes before your eyes just before you die. That is true, it’s called Life.
+ - Wisdom comes from experience. Experience is often a result of lack of wisdom.
+ - It's not worth doing something unless someone, somewhere, would much rather you weren't doing it.
+ - In the beginning there was nothing, which exploded.
+ - When in doubt, choose to live.
+ - Light thinks it travels faster than anything but it is wrong. No matter how fast light travels, it finds the darkness has always got there first, and is waiting for it.
+ - The trouble with having an open mind, of course, is that people will insist on coming along and trying to put things in it.
+ - Stories of imagination tend to upset those without one.
+ - And what would humans be without love? RARE, said Death.
+ - Why do you go away? So that you can come back. So that you can see the place you came from with new eyes and extra colors. And the people there see you differently, too. Coming back to where you started is not the same as never leaving.
+ - Time is a drug. Too much of it kills you.
+ - No one is actually dead until the ripples they cause in the world die away.
+ - Given enough coffee I could rule the world.
+ - If you have enough book space, I don't want to talk to you.
+ - Do you not know that a man is not dead while his name is still spoken?
+ - They say a little knowledge is a dangerous thing, but it’s not one half so bad as a lot of ignorance.
+ - Open your eyes and then open your eyes again.
+ - Humans need fantasy to be human. To be the place where the falling angel meets the rising ape.
+ - Evil begins when you begin to treat people as things.
+ - The first draft is just you telling yourself the story.
+ - The pen is mightier than the sword if the sword is very short, and the pen is very sharp.
+ - Real stupidity beats artificial intelligence every time.
+ - Even if it’s not your fault, it’s your responsibility.
+ - There isn’t a way things should be. There’s just what happens, and what we do.
+ - Always remember that the crowd that applauds your coronation is the same crowd that will applaud your beheading. People like a show.
+ - A marriage is always made up of two people who are prepared to swear that only the other one snores.
+ - You need to believe in things that aren’t true. How else can they become?
+ - It was sad music. But it waved its sadness like a battle flag. It said the universe had done all it could, but you were still alive.
+ - Most gods throw dice, but Fate plays chess, and you don’t find out til too late that he’s been playing with two queens all along.
+ - Death: Human beings make life so interesting. Do you know, that in a universe so full of wonders, they have managed to invent boredom.
+ - Education had been easy. Learning things had been harder.
+ - Knowing how bad you could be is a great encouragement to being good.
+ - Things just happen. What the hell.
+ - Go on, prove me wrong. Destroy the fabric of the universe. See if I care.
+ - Geography is just physics slowed down, with a couple of trees stuck in it.
+ - The harder I work, the luckier I become.
+ - A lie can run round the world before the truth has got its boots on.
+ - Coming back to where you started is not the same as never leaving.
+ - Everything is a test.
+ - Coffee is a way of stealing time that should by rights belong to your older self.
+ - Of course I’m sane, when trees start talking to me, I don’t talk back.
+ - This I choose to do. If there is a price, this I choose to pay. If it is my death, then I choose to die. Where this takes me, there I choose to go. I choose. This I choose to do.
+ - The presence of those seeking the truth is infinitely to be preferred to the presence of those who think they’ve found it.
+ - She was beautiful, but she was beautiful in the way a forest fire was beautiful: something to be admired from a distance, not up close.
+ - Scientists have calculated that the chances of something so patently absurd actually existing are millions to one. But magicians have calculated that million-to-one chances crop up nine times out of ten.
+ - Seeing, contrary to popular wisdom, isn’t believing. It’s where belief stops, because it isn’t needed any more.
+ - She was already learning that if you ignore the rules people will, half the time, quietly rewrite them so that they don’t apply to you.
+ - The intelligence of the creature known as a crowd, is the square root of the number of people in it.
+ - Everyone should occasionally break the law in some small and delightful way. It’s good for the hygiene of the brain.
+ - The whole of life is just like watching a film. Only it’s as though you always get in ten minutes after the big picture has started, and no-one will tell you the plot, so you have to work it out all yourself from the clues.
+ - The universe clearly operates for the benefit of humanity. This can be readily seen from the convenient way the sun comes up in the morning, when people are ready to start the day.
+ - People needed to believe in gods, if only because it was so hard to believe in people.
+ - People think that stories are shaped by people. In fact, it’s the other way around.
+ - There’s always a story. It’s all stories, really. The sun coming up every day is a story. Everything’s got a story in it. Change the story, change the world.
+ - The best research is the research that you don’t know that you are doing.
+ - It doesn’t stop being magic just because you know how it works.
+ - Insanity is catching.
+ - Truth! Freedom! Justice! And a hard-boiled egg!
+ - Steal five dollars and you’re a common thief. Steal thousands and you’re either the government or a hero.
+ - History always has a few tricks up its frayed sleeve. It’s been around a long time.
+ - Rings try to find their way back to their owner. Someone ought to write a book about it.
+ - Fear is a strange soil. It grows obedience like corn, which grow in straight lines to make weeding easier. But sometimes it grows the potatoes of defiance, which flourish underground.
+ - There was no safety. There was no pride. All there was, was money. Everything became money, and money became everything. Money treated us as if we were things, and we died.
+ - The truth may be out there, but lies are inside your head.
+ - I don’t think I’ve drunk enough beer to understand that.
+ - Grinning like a necrophiliac in a morgue.
+ - It’s vital to remember who you really are. It’s very important. It isn’t a good idea to rely on other people or things to do it for you, you see. They always get it wrong.
+ - Despite rumor, Death isn’t cruel – merely terribly, terribly good at his job.
+ - When you look into the abyss, it’s not supposed to wave back.
+ - Most of the great triumphs and tragedies of history are caused not by people being fundamentally good or fundamentally evil, but by people being fundamentally people.
+ - SCIENCE: a way of finding things out and then making them work. Science explains what is happening around us the whole time. So does RELIGION, but science is better because it comes up with more understandable excuses when it’s wrong.
+ - Just erotic. Nothing kinky. It’s the difference between using a feather and using a chicken.
+ - I imagine that fish have no word for water.
+ - Thinking. This book contains some. Whether you try it at home is up to you.
+ - When Mister Safety Catch Is Not On, Mister Crossbow Is Not Your Friend.
+ - The truth is a fog, in which one man sees the heavenly host and the other one sees a flying elephant.
+ - Nanny Ogg looked under her bed in case there was a man there. Well, you never knew your luck.
+ - Mort was already aware that love made you feel hot and cold and cruel and weak, but he hadn’t realized that it could make you stupid.
+ - Bringing about Armageddon can be dangerous. Do not attempt it in your own home.
+ - What have I always believed? That on the whole, and by and large, if a man lived properly, not according to what any priests said, but according to what seemed decent and honest inside, then it would, at the end, more or less, turn out all right.
+ - You haven’t really been anywhere until you’ve got back home.
+ - Vimes stalked gloomily through the crowded streets, feeling like the only pickled onion in a fruit salad.
+ - Bishops move diagonally. That’s why they often turn up where the kings don’t expect them to be.
+ - But here’s some advice, boy. Don’t put your trust in revolutions. They always come around again. That’s why they’re called revolutions.
+ - Opera happens because a large number of things amazingly fail to go wrong.
+ - All property is theft, except mine.
+ - Everywhere’s been where it is ever since it was first put there. It’s called geography.
+ - The thing about stories is you have to pick the ones that last.
+ - Vimes had got around to a Clean Desk policy. It was a Clean Floor strategy that eluded him at the moment.
+ - I read anything that’s going to be interesting. But you don’t know what it is until you’ve read it. Somewhere in a book on the history of false teeth there’ll be the making of a novel.
+ - We are monkeys. We like to chatter. Chattering doesn’t cost us anything.
+ - The sun set, which is everyday magic...
+ - And Sam Vimes thought: Why is Young Sam’s nursery full of farmyard animals anyway? Why are his books full of moo-cows and baa-lambs? He is growing up in the city. He will only see them on a plate! They go sizzle!
+ - If I were you, I’d sue my face for slander.
+ - It wasn’t that Nanny Ogg sang badly. It was just that she could hit notes which, when amplified by a tin bath half full of water, ceased to be sound and became some sort of invasive presence.
+ - And the new day was a great big fish.
+ - It is important that we know where we come from, because if you do not know where you come from, then you don’t know where you are, and if you don’t know where you are, you don’t know where you’re going. And if you don’t know where you’re going, you’re probably going wrong.
+ - It looked like the sort of book described in library catalogues as “slightly foxed”, although it would be more honest to admit that it looked as though it had beed badgered, wolved and possibly beared as well. – Ah, but has it been hedgehogged?
+ - Chaos is found in greatest abundance wherever order is being sought. It always defeats order, because it is better organized.
+ - If Not You, Who Else?
+ - Granny Weatherwax was not lost. She wasn’t the kind of person who ever became lost. It was just that, at the moment, while she knew exactly where SHE was, she didn’t know the position of anywhere else.
+ - The Chain Letter to the Ephebians. Forget Your Gods. Be Subjugated. Learn to Fear. Do not break the chain – the last people who did woke up one morning to find fifty thousand armed men on their lawn.
+ - One day all of us will die but – and this is the important thing – we are not dead yet.
+ - Them as can do has to do for them as can’t. And someone has to speak up for them as has no voices.
+ - The enemy isn’t men, or women, it’s bloody stupid people and no-one has the right to be stupid.
+ - Two types of people laugh at the law: those that break it and those that make it.
+ - And all those exclamation marks, you notice? Five? A sure sign of someone who wears his underpants on his head.
+ - Be careful what you wish for. You never know who will be listening.
+ - If you don’t turn your life into a story, you just become a part of someone else’s story.
+ - As they say in Discworld, we are trying to unravel the Mighty Infinite using a language which was designed to tell one another where the fresh fruit was.
+ - The turtle moves.
+ - Sometimes it is better to light a flamethrower than curse the darkness.
+ - In ancient times cats were worshipped as gods; they have not forgotten this.
+ - She got on with her education. In her opinion, school kept on trying to interfere with it.
+ - We live and learn, or, perhaps more importantly we learn and live.
+ - I’ll be more enthusiastic about encouraging thinking outside the box when there’s evidence of any thinking going on inside it.
+ - Luck is my middle name. Mind you, my first name is Bad.
+ - Susan says, don’t get afraid, get angry.
+ - You get a wonderful view from the point of no return.
+ - He was the sort of person who stood on mountaintops during thunderstorms in wet copper armour shouting ‘All the Gods are bastards.’
+ - Stupid men are often capable of things the clever would not dare to contemplate...
+ - Why bother with a cunning plan when a simple one will do?
+ - The thing about words is that meanings can twist just like a snake, and if you want to find snakes look for them behind words that have changed their meaning.
+ - If cats looked like frogs we’d realize what nasty, cruel little bastards they are. Style. That’s what people remember.
+ - Imagination, not intelligence, made us human.
+ - Only in our dreams are we free. The rest of the time we need wages.
+ - Progress just means bad things happen faster.
+ - The trouble is you can shut your eyes but you can’t shut your mind.
+ - My experience in Amsterdam is that cyclists ride where the hell they like and aim in a state of rage at all pedestrians while ringing their bell loudly, the concept of avoiding people being foreign to them.
+ - Divide by cucumber error. Please reinstall universe and reboot.
+ - When you break rules, break ’em good and hard.
+ - Students, eh? Love ’em or hate ’em, you can’t hit them with a shovel!
+ - There is a rumour going around that I have found God. I think this is unlikely because I have enough difficulty finding my keys, and there is empirical evidence that they exist.
+ - What kind of man would put a known criminal in charge of a major branch of government? Apart from, say, the average voter.
+ - You have to have really wide reading habits and pay attention to the news and just everything that’s going on in the world: you need to. If you get this right, then the writing is a piece of cake.
+ - I have no use for people who have learned the limits of the possible.
+ - Five exclamation marks, the sure sign of an insane mind.
+ - Knowledge is dangerous, which is why governments often clamp down on people who can think thoughts above a certain caliber.
+ - You get all sorts of people in the library, and the librarian gets it all...
+ - What can the harvest hope for, if not for the care of the Reaper Man?
+ - Let grammar, punctuation, and spelling into your life! Even the most energetic and wonderful mess has to be turned into sentences.
+ - If I knew that I could die, I would live. My life, my death, my choice.
+ - I’m not superstitious. I’m a witch. Witches aren’t superstitious. We are what people are superstitious of.
+ - There is always time for another last minute.
+ - The thing about football – the important thing about football – is that it is not just about football.
+ - Freedom without limits is just a word.
+ - The worst thing you can do is nothing.
+ - And that’s when I first learned about evil. It is built in to the very nature of the universe. Every world spins in pain. If there is any kind of supreme being, I told myself, it is up to all of us to become his moral superior.
+ - There are times in life when people must know when not to let go. Balloons are designed to teach small children this.
+ - Sometimes, the best answer is a more interesting question.
+ - It’s lies. It’s all lies. Some of them are just prettier than others, that’s all. People see what they think is there.
+ - Books must be treated with respect, we feel that in our bones, because words have power. Bring enough words together they can bend space and time.
+ - Witches aren’t like that. We live in harmony with the great cycles of Nature, and do no harm to anyone, and it’s wicked of them to say we don’t. We ought to fill their bones with hot lead.
+ - Sometimes I feel that the world is made up of sensible people who know the plot and bloody idiots who don’t.
+ - Joy is to fun what the deep sea is to a puddle. It’s a feeling inside that can hardly be contained.
+ - Mere animals couldn’t possibly manage to act like this. You need to be a human being to be really stupid.
+ - Goodness is about what you do. Not who you pray to.
+ - Writing is the most fun you can have by yourself.
+ - The thing is, I mean, there’s times when you look at the universe and you think, “What about me?” and you can just hear the universe replying, “Well, what about you?”
+ - I just rearrange words into a pleasing order for money.
+ - People aren’t just people, they are people surrounded by circumstances.
+ - One day I’ll be dead and THEN you’ll all be sorry.
+ - When you stand between two mirrors you’re spread out among the images, your whole soul is pulled out thin, and somewhere in the distant images a dark part of you might get out and come looking for you, if you aren’t careful.
+ - Most witches don’t believe in gods. They know that the gods exist, of course. They even deal with them occasionally. But they don’t believe in them. They know them too well. It would be like believing in the postman.
+ - The world is a globe – the farther you sail, the closer to home you are.
+ - Strength enough to build a home, Time enough to hold a child, Love enough to break a heart.
+ - I think that sick people in Ankh-Morpork generally go to a vet. It’s generally a better bet. There’s more pressure on a vet to get it right. People say “it was god’s will” when granny dies, but they get angry when they lose a cow.
+ - All was black, gloomy and awful. There was no light at the end of the tunnel – or if there was, it was an oncoming train.
+ - You have reached the end of cake.
+ - Personal’s not the same as important. People just think it is.
+ - Granny Weatherwax was firmly against fiction. Life was hard enough without lies floating around and changing the way people thought.
+ - It’s not morbid to talk about death. Most people don’t worry about death, they worry about a bad death.
+ - An ancient proverb summed it up when a wizard is tired of looking for broken glass in his dinner, it ran, he is tired of life.
+ - A bad hunter chases. A good hunter waits.
+ - The Auditors fluttered anxiously. And, as always happens in their species when something goes radically wrong and needs fixing instantly, they settled down to try to work how who was to blame.
+ - As we all know, the Discworld is a flat planet – like a geological pizza, but without the anchovies.
+ - The IQ of a mob is the IQ of its dumbest member divided by the number of mobsters.
+ - This isn’t life in the fast lane, it’s life in the oncoming traffic.
+ - Any fool could be a witch with a runic knife, but it took skill to be one with an apple corer.
+ - No more words. We know them all, all the words that should not be said. But you have made my world more perfect.
+ - The shortest unit of time in the multiverse is the New York Second, defined as the period of time between the traffic lights turning green and the cab behind you honking.
+ - Gravity is a habit that is hard to shake off.
+ - Rincewind had always been happy to think of himself as a racist. The One Hundred Meters, the Mile, the Marathon – he’d run them all.
+ - She walked quickly through the darkness with the frank stride of someone who was at least certain that the forest, on this damp and windy night, contained strange and terrible things and she was it.
+ - Granny Weatherwax was not a good loser. From her point of view, losing was something that happened to other people.
+ - Racism was not a problem on the Discworld, because – what with trolls and dwarfs and so on – speciesism was more interesting. Black and white lived in perfect harmony and ganged up on green.
+ - The Kraken stirs. And ten billion sushi dinners cry out for vengeance.
+ - Granny was an old-fashioned witch. She didn’t do good for people, she did right by them.
+ - I was a very keen reader of science fiction, and during the time I was going to libraries, it was good, written by people who knew their science.
+ - You can’t second-guess ineffability, I always say.
+ - I’m a witch. It’s what we do. When it’s nobody else’s business, it’s my business.
+ - Taxation is just a sophisticated way of demanding money with menaces.
+ - But then science is nothing but a series of questions that lead to more questions.
+ - Life is a trick, and you get one chance to learn it.
+ - Stand before your god, bow before your king, kneel before your man.
+ - Maybe the only significant difference between a really smart simulation and a human being was the noise they made when you punched them.
+ - Demons were like genies or philosophy professors – if you didn’t word things exactly right, they delighted in giving you absolutely accurate and completely misleading answers.
+ - If there was anything that depressed him more than his own cynicism, it was that quite often it still wasn’t as cynical as real life.
+ - Happiness is not the natural state of mankind, and is never achieved from the outside in.
+ - There are all kinds of darkness, and all kinds of things can be found in them, imprisoned, banished, lost or hidden. Sometimes they escape. Sometimes they simply fall out. Sometimes they just can’t take it any more.
+ - Sheep are stupid, and have to be driven. But goats are intelligent, and need to be led.
+ - I discovered fantasy and science fiction when I was about 10, and read nothing else for about three years. I ran out of all the books that there were to read in the library. I was keen on reading stuff that took me to other places.
+ - When a man is tired of Ankh-Morpork, he is tired of ankle-deep slurry.
+ - I know that I am a small, weak man, but I have amassed a large library; I dream of dangerous places.
+ - They think written words are even more powerful,’ whispered the toad. ‘They think all writing is magic. Words worry them. See their swords? They glow blue in the presence of lawyers.
+ - There have been times, lately, when I dearly wished that I could change the past. Well, I can’t, but I can change the present, so that when it becomes the past it will turn out to be a past worth having.
+ - Other people salted away money for their old age, but Nanny preferred to accumulate memories.
+ - Ankh-Morpork had dallied with many forms of government and had ended up with that form of democracy known as One Man, One Vote. The Patrician was the Man; he had the Vote.
+ - I’d rather be a rising ape than a falling angel.
+ - If you want to change a whole people, then you start with the girls. It stands to reason: they learn faster, and they pass on what they learn to their children.
+ - Tourist, Rincewind decided, meant ’idiot.
+ - You call yourself some kind of goddess and you know nothing, madam, nothing. What don’t die can’t live. What don’t live can’t change. What don’t change can’t learn. The smallest creature that dies in the grass knows more than you.
+ - The important thing about having lots of things to remember is that you’ve got to go somewhere afterwards where you can remember them, you see? You’ve got to stop. You haven’t really been anywhere until you’ve got back home.
+ - Now that their long war was over, they could get on with the proper concern of all civilised nations, which is to prepare for the next one.
+ - I used to think that I was stupid, and then I met philosophers.
+ - When I am old I shall wear midnight.
+ - If failure had no penalty success would not be a prize.
+ - Some pirates achieved immortality by great deeds of cruelty or derring-do. Some achieved immortality by amassing great wealth. But the captain had long ago decided that he would, on the whole, prefer to achieve immortality by not dying.
+ - Needless to say, they refused to submit to the Empire, conducting such a persistent guerrilla war that the Romans gave up hope of conquering Scotland, and the Wee Free Men remained both wee and free.
+ - Witches were a bit like cats. They didn’t much like one another’s company, but they did like to know where all the other witches were, just in case they needed them.
+ - Magic never dies. It merely fades away.
+ - The trouble was that he was talking in philosophy but they were listening in gibberish.
+ - Theres no stink more sorrorful than the stink of wet, burnt paper. It means: the end.
+ - Ye know full well that the meaning of life is to find your gift. To find your gift is happiness. Never tae find it is misery.
+ - It’s a god-eat-god world.
+ - Many people, meeting Aziraphale for the first time, formed three impressions: that he was English, that he was intelligent, and that he was gayer than a treeful of monkeys on nitrous oxide.
+ - The mountains of madness have many little plateau of sanity.
+ - Everyone’s heard of Erwin Schrodinger’s famous thought experiment. You put a cat in a box with a bottle of poison, which many people would suggest is about as far as you need to go.
+ - No. Men should die for lies. But the truth is too precious to die for.
+ - After all, when you seek advice from someone it’s certainly not because you want them to give it. You just want them to be there while you talk to yourself.
+ - Every step is a first step if it’s a step in the right direction.
+ - A good man will kill you with hardly a word.
+ - One person is nothing. Two people are a nation.
+ - The Librarian was not familiar with love, which had always struck him as a bit ethereal and soppy, but kindness, on the other hand, was practical. You knew where you were with kindness, especially if you were holding a pie it had just given you.
+ - It doesn’t matter if dragons are flying overhead or whatever – a lot of Victoriana is still cut in the frame of fantasy.
+ - One day a tortoise will learn how to fly.
+ - Everything makes sense a bit at a time. But when you try to think of it all at once, it comes out wrong.
+ - The conflict is not between Christianity and Islam or between East and West – instead, it is between stupid people and other stupid people.
+ - History has a habit of changing the people who think they are changing it.
+ - He’s out of his depth on a wet pavement.
+ - Don’t do anything I wouldn’t do, if you ever find anything I wouldn’t do.
+ - Nanny Ogg could see the future in the froth on a beer mug. It invariably showed that she was going to enjoy a refreshing drink which she almost certainly was not going to pay for.
+ - There’s a saying that all roads lead to Ankh-Morpork. And it’s wrong. All roads lead away from Ankh-Morpork, but sometimes people just walk along them the wrong way.
+ - Evil in general does not sleep, and therefore doesn’t see why anyone else should.
+ - Hell wasn’t a major reservoir of evil, any more then Heaven, in Crowley’s opinion, was a fountain of goodness; they were just sides in the great cosmic chess game. Where you found the real McCoy, the real grace and the real heart-stopping evil, was right inside the human mind.
+ - For example, the dwarfs found out how to turn lead into gold by doing it the hard way. The difference between that and the easy way is that the hard way works.
+ - The truth isn’t easily pinned to a page. In the bathtub of history the truth is harder to hold than the soap and much more difficult to find.
+ - There’s no such thing as writer’s block. That was invented by people in California who couldn’t write.
+ - He’d been wrong, there was a light at the end of the tunnel, and it was a flamethrower.
+ - The librarians were mysterious. It was said they could tell what book you needed just by looking at you, and they could take your voice away with a word.
+ - If my father could have sat up in bed and said goodbye, I’d have pressed the button. I wouldn’t have been able to see for crying, but I would have considered that a duty.
+ - Everything starts somewhere, although many physicists disagree.
+ - Don’t stick your nose where someone can pull it off and eat it.
+ - Nanny’s philosophy of life was to do what seemed like a good idea at the time, and do it as hard as possible. It had never let her down.
+ - You can’t inspire people with facts. They need a cause. They need a symbol.
+ - Your own brain ought to have the decency to be on your side!
+ - The trouble with life was that you didn’t get a chance to practice before doing it for real.
+ - All he knew was that you couldn’t hope to try for the big stuff, like world peace and happiness, but you might just about be able to achieve some tiny deed that’d make the world, in a small way, a better place. Like shooting someone.
+ - You had to hand it to the Patrician, he admitted grudgingly. If you didn’t, he sent men to come and take it away.
+ - It was said that life was cheap in Ankh-Morpork. This was of course, completely wrong. Life was often very expensive; you could get death for free.
+ - Colon thought Carrot was simple. Carrot often struck people as simple. And he was. Where people went wrong was thinking that simple meant the same thing as stupid.
+ - We live in a science fiction universe. We have done for a long time.
+ - People couldn’t become truly holy, he said, unless they also had the opportunity to be definitively wicked.
+ - Lord Vetinari lifted an eyebrow with the care of one who, having found a piece of caterpillar in his salad, raises the rest of the lettuce.
+ - Destiny is important, see, but people go wrong when they think it controls them. It’s the other way around.
+ - My programming language was solder.
+ - This is Art holding a Mirror up to Life. That’s why everything is exactly the wrong way around.
+ - You know what I’d really, really like? What I’d pay MONEY for? A ZX81 with a disc drive. I understood the ZX81. It was so easy to interface stuff to it.
+ - I’ve seen excitement, and I’ve seen boredom. And boredom was best.
+ - Some people believe that when you die, you cross the River of Death and have to pay the ferryman. People don’t seem to worry about that these days. Perhaps there’s a bridge now.
+ - Some of them wanted to sell me snake oil and I’m not necessarily going to dismiss all of these, as I have never found a rusty snake.
+ - Sister Mary was a nurse and nurses, whatever their creed, are primarily nurses, which had a lot to do with wearing your watch upside down, keeping calm in emergencies, and dying for a cup of tea.
+ - Pride is all very well, but a sausage is a sausage.
+ - In the end the problem isn’t that you have the wrong sort of government for the People, but that you have the wrong sort of People.
+ - Making money isn’t something to be ashamed of. There’s a feeling now that if you have money you must have got it by some kind of shady dealing or being an MP.
+ - Good or bad, do it as you. Too many lies and there’s no truth to go back to.
+ - Either dragons should exist completely or fail to exist at all, he felt. A dragon only half-existing was worse than the extremes.
+ - In fact, the mere act of opening the box will determine the state of the cat, although in this case there were three determinate states the cat could be in: these being Alive, Dead, and Bloody Furious.
+ - You did something because it had always been done, and the explanation was, ‘But we’ve always done it this way.’ A million dead people can’t have been wrong, can they?
+ - What can the harvest hope for...
+ - Well, it would have to be “The Man Who Was Thursday.” It’s a damn good read that I believe should be read by everyone in politics.
+ - There are times when the best writing you can do is to go for a walk or drive, a long drive is ideal.
+ - When people say things are a lot more complicated than that, they means they’re getting worried that they won’t like the truth.
+ - We’re philosophers. We think, therefore we am.
+ - It is a mistake trying to cheer up camels. You may as well drop meringues into a black hole.
+ - Of course, it is very important to be sober when you take an exam. Many worthwhile careers in the street-cleansing, fruit-picking and subway-guitar-playing industries have been founded on a lack of understanding of this simple fact.
+ - Sometimes the only thing you could do for people was to be there.
+ - It was the living who ignored the strange and wonderful, because life was too full of the boring and mundane.
+ - Gods play games with the fates of men. But first they have to get all the pieces on the board and look all over the place for the dice.
+ - There are hardly any excesses of the most crazed psychopath that cannot easily be duplicated by a normal kindly family man who just comes in to work every day and has a job to do.
+ - First draft: let it run. Turn all the knobs up to 11. Second draft: hell. Cut it down and cut it into shape. Third draft: comb its nose and blow its hair. I usually find that most of the book will have handed itself to me on that first draft.
+ - Real education happens when you pick up a fact here, and another fact there, and put them together and get an insight.
+ - Any wizard bright enough to survive for five minutes was also bright enough to realize that if there was any power in demonology, then it lay with the demons. Using it for your own purposes would be like trying to beat mice to death with a rattlesnake.
+ - His progress through life was hampered by his tremendous sense of his own ignorance, a disability which affects all too few.
+ - What’s a philosopher?? said Brutha. Someone who’s bright enough to find a job with no heavy lifting,? said a voice in his head.
+ - Studies have shown that an ant can carry one hundred times its own weight, but there is no known limit to the lifting power of the average tiny eighty-year-old Spanish peasant grandmother.
+ - I tell you, commander, it’s true that some of the most terrible things in the world are done by people who think, genuinely think, that they’re doing it for the best, especially if there is some god involved.
+ - The wages of sin is death but so is the salary of virtue, and at least the evil get to go home early on Fridays.
+ - The people who really run organizations are usually found several levels down, where it is still possible to get things done.
+ - Tragic heroes always moan when the gods take an interest in them, but it’s the people the gods ignore who get the really tough deals.
+ - Remember – that which does not kill us can only make us stronger. And that which does kill us leaves us dead!
+ - People don’t like change. But make the change fast enough and you go from one type of normal to another.
+ - First of all you are a writer, a writer is what you are, so it doesn’t actually stop the moment you leave your desk, your computer, your keyboard, whatever. Something is operating the back of your mind.
+ - Because some stories end, but old stories go on, and you gotta dance to the music if you want to stay ahead.
+ - Correct observation followed by meticulous deduction and the precise visualization of goals is vital to the success of any enterprise.
+ - The Battle of Koom Valley is the only one known to history where both sides ambushed each other.
+ - I reckon responsible behavior is something to get when you grow older. Like varicose veins.
+ - Rincewind gave his fingers a long shocked stare, as one might regard a gun that has been hanging on the wall for decades and has suddenly gone off and perforated the cat.
+ - There are many horrible sights in the multiverse. Somehow, though, to a soul attuned to the subtle rhythms of a library, there are few worse sights than a hole where a book ought to be.
+ - We who think we are about to die will laugh at anything.
+ - Someone out there was about to find that their worst nightmare was a maddened Librarian. With a badge.
+ - He’d heard that writers spent all day in their dressing gowns drinking champagne. This is, of course, absolutely true.
+ - I express preference for a chronological sequence of events which precludes a violence.
+ - I am a great fan of science, but I cannot do a quadratic equation.
+ - I have a living will and I have friends, and I have money and I have hope.
+ - Soon to come in licorice, orange, cinnamon, and banana, but not strawberry, because I hate strawberries.
+ - I know it’s a very human thing to say ‘Is there anything I can do,’ but in this case I would only entertain offers from very high-end experts in brain chemistry.
+ - There are no inconsistencies in the Discworld books; ocassionally, however, there are alternate pasts.
+ - The fastest way to travel is to be there already.
+ - I wouldn’t trust you with a bucket of water if my knickers were on fire!
+ - I’m up to my neck in the real world, every day. Just you try doing your VAT return with a head full of goblins.
+ - His mind worked fast, flying in emergency supplies of common sense, as human minds do, to construct a huge anchor in sanity and prove that what happened hadn’t really happened and, if it had happened, hadn’t happened much.
+ - But in his experience it was only a matter of time before the normal balance of the universe restored itself and started doing the usual terrible things to him.
+ - The sun is simple. A sword is simple. A storm is simple. Behind everything simple is a huge tail of complicated.
+ - Even a really bad creator would at least have started with Earth, Air, Fire, Water and Surprise.
+ - I was merely endeavoring to indicate that if we do not grab events by the collar they will have us by the throat. -Lord Vetinari.
+ - At least I know I’m bewildered about the really fundamental and important facts of the universe.
+ - There are, always and only, the bad people, but some of them are on opposite sides.
+ - It is a long-cherished tradition among a certain type of military thinker that huge casualties are the main thing. If they are on the other side then this is a valuable bonus.
+ - It occurred to me that at one point it was like I had two diseases – one was Alzheimers, and the other was knowing I had Alzheimers.
+ - One of the things forgotten about the human spirit is that while it is, in the right conditions, noble and brave and wonderful, it is also, when you get right down to it, only human.
+ - Quick, someone’s coming! Look real!
+ - You have so many sources to draw on when you’re a fantasy writer.
+ - He felt as if he had been shipwrecked on the Titanic, but in the nick of time had been rescued. By the Lusitania.
+ - Sometimes you can think that ‘I’ve had enough of wizards!’ And sometimes fantasy is not just about wizards.
+ - This is where the gods play games with the lives of men, on a board which is at one and the same time a simple playing area and the whole world. And Fate always wins.
+ - The significant owl hoots in the night.
+ - I once absent-mindedly ordered Three Mile Island dressing in a restaurant and, with great presence of mind, they brought Thousand Island Dressing and a bottle of chili sauce.
+ - Sometimes you had to take a look at yourself and then look away.
+ - Fascism may be good at making the trains run on time, but you wouldn’t like some of the destinations.
+ - Not all questions are answered, but fortunately some answers are questioned.
+ - Personally, I think the best motto for an educational establishment is: ‘Or Would You Rather Be a Mule?’
+ - And, as always happens, and happens far too soon, the strange and wonderful becomes a memory and a memory becomes a dream. Tomorrow it’s gone.
+ - Sometimes glass glitters more than diamonds because it has more to prove.
+ - This was not a fairy-tale castle and there was no such thing as a fairy-tale ending, but sometimes you could threaten to kick the handsome prince in the ham-and-eggs.
+ - Noble dragons don’t have friends. The nearest they can get to the idea is an enemy who is still alive.
+ - There are thousands of good reasons why magic doesn’t rule the world. They’re called Witches and Wizards.
+ - The reaper does not listen to the harvest.
+ - The senior wizard in a world of magic had the same prospects of long-term employment as a pogo stick tester in a minefield.
+ - No real sunrise could paint the sky Surgical Appliance Pink.
+ - Just because you’ve got a mind like a hammer doesn’t mean you have to treat everyone else like a nail.
+ - I commend my soul to any god that can find it.
+ - See a pin and pick it up, and, all day long, you’ll have a pin.
+ - Its useful to go out of this world and see it from the perspective of another one.
+ - In theory it was, around now, Literature. Susan hated Literature. She’d much prefer to read a good book.
+ - Many feel they are called to the priesthood, but what they really hear is an inner voice saying, ‘It’s indoor work with no heavy lifting, do you want to be a ploughman like your father?’
+ - Nanny Ogg never did any housework herself, but she was the cause of housework in other people.
+ - Do you think it’s possible for an entire nation to be insane?
+ - Vampires have risen from the dead, the grave, and the crypt, but have never managed it from the cat.
+ - Chain-mail isn’t much defence against an arrow. It certainly isn’t when the arrow is being aimed between your eyes.
+ - Some people are heroes. And some people jot down notes.
+ - I must confess the activities of the UK governments for the past couple of years have been watched with frank admiration and amazement by Lord Vetinari. Outright theft as a policy had never occurred to him.
+ - The power of prayer and faith can heal and bring happiness. The real tragedy is that the people that are helped by this don’t realize that this power is really coming from within.
+ - Evolution was far more thrilling to me than the biblical account. Who would not rather be a rising ape than a falling angel? To my juvenile eyes, Darwin was proved true every day. It doesn’t take much to make us flip back into monkeys again.
+ - The only really sane person in there is Igor, and possibly the turnip. And I’m not sure about the turnip.
+ - What’s the good of having mastery over cosmic balance and knowing the secrets of fate if you can’t blow something up?
+ - My name is immaterial,? she said. That’s a pretty name,? said Rincewind.
+ - We’re on a mission from Glod.
+ - It takes forty men with their feet on the ground to keep one man with his head in the air.
+ - Yes, sir, thank you, sir, and I wouldn’t trust me one little inch, sir. I knows a bad one when I sees them. I have a mirror.
+ - You do know you could find yourself charged with being a dominant species while under the influence of impulse-driven consumerism, don’t you?
+ - Most modern fantasy just rearranges the furniture in Tolkien’s attic.
+ - It’s no wonder most religions are born in the desert, because when men lay beneath that boundless night sky and look up at the infinite expanse of creation they have an uncontrollable urge to put something in the way .
+ - Oh, come on. Revelation was a mushroom dream that belonged in the Apocrypha. The New Testament is basically about what happened when God got religion.
+ - Sergeant Colon of the Ankh-Morpork City Guard was on duty. He was guarding the Brass Bridge, the main link between Ankh and Morpork. From theft. When it came to crime prevention, Sergeant Colon found it safest to think big.
+ - Things that try to look like things often do look more like things than things.
+ - Science fiction is fantasy with bolts painted on outside.
+ - Shadwell hated all southerners and, by inference, was standing at the North Pole.
+ - It’s the end game that people dread and that’s what I’m scared of.
+ - The important thing about adventures, thought Mr. Bunnsy, was that they shouldn’t be so long as to make you miss mealtimes.
+ - Winners never talk about glorious victories. Thats because they’re the ones who see what the battle field looks like afterwards. Its only the losers who have glorious victories.
+ - The ideal death, I think, is what was the ideal Victorian death, you know, with your grandchildren around you, a bit of sobbing. And you say goodbye to your loved ones, making certain that one of them has been left behind to look after the shop.
+ - It is said that the Devil has all the best tunes. This is broadly true. But Heaven has the best choreographers.
+ - Everything starts somewhere, though many physicists disagree. But people have always been dimly aware of the problem with the start of things. They wonder how the snowplough driver gets to work, or how the makers of dictionaries look up the spelling of words.
+ - The jurisdiction of a good man extends to the end of the world.
+ - Curiosity may have killed the cat, but her’s curiosity could have massacred a pride of lions.
+ - Ninety percent of most magic merely consists of knowing one extra fact.
+ - Some people think this is paranoia, but it isn’t. Paranoids only think everyone is out to get them. Wizards know it.
+ - One of the highlights of the first Good Omens tour was Neil and I walking through New York singing Shoehorn with Teeth. Well, we’d had a good breakfast. And you don’t get mugged, either.
+ - Gods prefer simple, vicious games, where you Do Not Achieve Transcendence but Go Straight To Oblivion; a key to the understanding of all religion is that a god’s idea of amusement is Snakes and Ladders with greased rungs.
+ - Never trust any complicated cocktail that remains perfectly clear until the last ingredient goes in, and then immediately clouds.
+ - And never resist a perfect moment.
+ - Oh dear me, the Booker people don’t like me. I don’t care. I have been given an award for being taken not seriously, and I am very, very pleased about that.
+ - Corporal Nobbs had been disqualified from the human race for shoving.
+ - Either all days are holy or none are.
+ - If you really want to upset a witch, do her a favor which she has no means of repaying. The unfulfilled obligation will nag at her like a hangnail.
+ - The rising sun managed to peek around the vast column of smoke that forever rose from Ankh-Morpork, City of Cities, illustrating almost up to the edge of space that smoke means progress or, at least, people setting fire to things.
+ - If per capita was a problem, decapita could be arranged.
+ - In order to have a change of fortune at the last minute, you have to take your fortune to the last minute.
+ - Look, that’s why there’s rules, understand? So that you think before you break ’em.
+ - The sun rose slowly, as if it wasn’t sure it was worth all the effort.
+ - And no practical definition of freedom would be complete without the freedom to take the consequences. Indeed, it is the freedom upon which all the others are based.
+ - Her singing always cheered him up. Life seemed so much brighter when she stopped.
+ - Most horses don’t walk backwards voluntarily, because what they can’t see doesn’t exist.
+ - The best research you can do is to talk to people.
+ - Anyway, why would you trust anything written down? She certainly didn’t trust “Mothers of Borogravia!” and that was from the government. And if you couldn’t trust the government, who could you trust? Very nearly everyone, come to think of it...
+ - Aziraphale. The Enemy, of course. But an enemy for six thousand years now, which made him a sort of friend.
+ - The Captain of the Watch says if you’re still in the City by sunrise he will personally have you buried alive.
+ - Of course, Ankh-Morpork’s citizens had always claimed that the river water was incredibly pure. Any water that had passed through so many kidneys, they reasoned, had to be very pure indeed.
+ - I am death, not taxes. I turn up only once.
+ - As large as worlds. As old as Time. As patient as a brick.
+ - It seems that when you have cancer you are a brave battler against the disease, but when you have Alzheimer’s you are an old fart. That’s how people see you. It makes you feel quite alone.
+ - I’m not cruel, sir, I won’t shoot you in the guts, but I will make you realize how much you took your toes for granted.
+ - Do not meddle in the affairs of wizards because a refusal often offends, I read somewhere.
+ - It was so loud and so deep, it wasn’t really sound at all, just something that turned the air hard and then hit you with it.
+ - Not for the first time in the history of the universe, someone for whom communication normally came as effortlessly as a dream was stuck for inspiration when faced with a few lines on the back of a card.
+ - Cake is not the issue here.
+ - Ridcully was to management what King Herod was to the Bethlehem Playgroup Association.
+ - Granny Weatherwaz was a witch. That was quite acceptable in the Ramtops, and no one had a bad word to say about witches. At least, not if he wanted to wake up in the morning the same shape as he went to bed.
+ - I don’t think it’s weak to admit you made a mistake. That takes strength, if you ask me.
+ - Do not act incautiously when confronting a little bald wrinkly smiling man!
+ - I’m fairy godmothering a girl who sounds like something you put up in the rain.
+ - If words had weight, a single sentence from Death would have anchored a ship.
+ - I see evil when I look in my shaving mirror. It is, philosophically, present everywhere in the universe in order, apparently, to highlight the existence of good. I think there is more to this theory, but I tend to burst out laughing at this point.
+ - Cats will amusingly tolerate humans only until someone comes up with a tin opener that can be operated with a paw.
+ - The duke had a mind that ticked like a clock and, like a clock, it regularly went cuckoo.
+ - Life is just chemicals. A drop here, a drip there, everything’s changed. A mere dribble of fermented juices and sudenlly you’re going to live another few hours.
+ - Mr. Tulip lived his life on that thin line most people occupy just before they haul off and hit someone repeatedly with a wrench.
+ - Nothing but dust and fundamentalists.
+ - It was raining in the small, mountainous country of Llamedos. It was always raining in Llamedos. Rain was the country’s main export. It had rain mines.
+ - Every procedure for getting a cat to take a pill works fine – once. Like the Borg, they learn...
+ - Money makes people rich; it is a fallacy to think it makes them better, or even that it makes them worse. People are what they do, and what they leave behind.
+ - It is true that words have power, and one of the things they are able to do is get out of someone’s mouth before the speaker has the chance to stop them.
+ - Rincewind could scream for mercy in nineteen languages, and just scream in another forty-four.
+ - What was the point of education, he thought, if people went out afterward and used it?
+ - All assassins had a full-length mirror in their rooms, because it would be a terrible insult to anyone to kill them when you were badly dressed.
+ - Ninety percent of true love is acute, ear-burning embarrassment.
+ - You know how to pray, don’t you? Just put your hands together and hope.
+ - And we don’t often get any wading birds in the River Ankh, mainly because the pollution would eat their legs away and anyway, it’s easier for them to walk on the surface.
+ - I had a deprived childhood, you see. I had lots of other kids to play with and my parents bought me outdoor toys and refused to ill-treat me, so it never occurred to me to seek solitary consolation with a good book.
+ - Words are the litmus paper of the minds. If you find yourself in the power of someone who will use the word “commence” in cold blood, go somewhere else very quickly. But if they say “Enter”, don’t stop to pack.
+ - And the people next door oppress me all night long. I tell them, I work all day, a man’s got to have some time to learn to play the tuba. That’s oppression, that is. If I’m not under the heel of the oppressor, I don’t know who is.
+ - But that was just it – hate was exactly the right word. Hate is a force of attraction. Hate is just love with its back turned.
+ - People whose concept of ancient history is the first series of Star Trek may be treated with patience, because it’s usually not their fault they were reduced to getting their education from school.
+ - What’s the orbital velocity of the moon?
+ - Be one of the crowd? It went against everything a wizard stood for, and a wizard would not stand for anything if he could sit down for it, but even sitting down, you had to stand out.
+ - Just because someone’s a member of an ethnic minority doesn’t mean they’re not a nasty small-minded little jerk.
+ - A horse’s skull always looks scary, even if someone has put lipstick on it.
+ - Gods don’t like people not doing much work. People who aren’t busy all the time might start to think.
+ - The key to winning, as always, was looking as if you had every right, nay, duty to be where you were. It helped if you could also suggest in every line of your body that no one else had any rights to be doing anything, anywhere, whatsoever.
+ - The man gave a shrug which indicated that, although the world did indeed have many problems, this was one of them that was not his.
+ - Magrat had used a lot of powder to make her face pale and interesting. It combined with the lavishly applied mascara to give the guard the impression that he was looking at two flies that had crashed into a sugar bowl.
+ - I could be wrong. Not being certain is what being a philosopher is all about.
+ - Even our fears make us feel important, because we fear we might not be.
+ - Nothing has to be true forever. Just for long enough, to tell you the truth.
+ - I should have learned this, she thought. I wanted to learn fire, and pain, but I should have learned people.
+ - Light died in the west. Night and tears took the Nation. The star of Water drifted among the clouds like a murderer softly leaving the scene of the crime.
+ - Hello, inner child, I’m the inner babysitter!
+ - I’ve got wide tastes, but I don’t like jazz.
+ - Fantasy is an exercise bicycle for the mind. It might not take you anywhere, but it tones up the muscles that can. Of course, I could be wrong.
+ - By the time you’ve reached your sixties, you do know that one day you will die, and knowing that is at least the beginning of wisdom.
+ - No clowns were funny. That was the whole purpose of a clown. People laughed at clowns, but only out of nervousness. The point of clowns was that, after watching them, anything else that happened seemed enjoyable.
+ - There were no lies here. All fancies fled away. That’s what happened in all deserts. It was just you, and what you believed.
+ - It’s always surprising to be reminded that while you’re watching and thinking about people, all knowing and superior, they’re watching and thinking about you, right back at you.
+ - Who shall I shoot? You choose. Now, listen very carefully: where’s your coffee? You’ve got coffee, haven’t you? C’mon, everyone’s got coffee! Spill the beans!
+ - The people who guard the rainbow don’t like those who get in the way of the sun.
+ - Whatever you choose, your choice will mean there are two new worlds. And perhaps sometimes, on the edge of sleep, we will see the shadow of the other world. There will be no unhappy memories.
+ - It doesn’t matter how you live and die, it’s how the bards wrote it down.
+ - Don’t be smart. Smart is only a polished version of dumb. Try intelligence. It will surely see you through.
+ - Raising the flag and singing the anthem are, while somewhat suspicious, not in themselves acts of treason.
+ - The girls were expected to grow up to be somebody’s wife. They were also expected to read and write, those being considered soft indoor jobs that were too fiddly for the boys.
+ - After you’ve been working fairly intensively on a novel for six months you never want to see the damn thing again.
+ - It’s actually true that I keep myself going by constantly promising myself that in response for the hard work I will be allowed to do some more hard work later on.
+ - There are millions of chords. There are millions of numbers. And everyone forgets the one that is a zero. But without the zero, numbers are just arithmetic. Without the empty chord, music is just noise.
+ - Tell someone you are going to rob them and all that will happen is that you’ll get a reputation as a truthful man.
+ - Some shadows are so long, they arrive before the light.
+ - Too much magic could wrap time and space around itself, and that wasn’t good news for the kind of person who had grown used to things like effects following things like causes.
+ - I intend, before the endgame looms, to die sitting in a chair in my own garden with a glass of brandy in my hand and Thomas Tallis on the iPod. Oh, and since this is England, I had better add, ‘If wet, in the library.’ Who could say that this is bad?
+ - Building a temple didn’t mean you believed in gods, it just meant you believed in architecture.
+ - The labyrinth of Ephebe is ancient and full of one hundred and one amazing things you can do with hidden springs, razor-sharp knives, and falling rocks.
+ - She wore so much thick white makeup in order to conceal her naturally rosy complexion that if she turned around suddenly her face would probably end up on the back of her head.
+ - Our garden was debated territory between five local cats, and we’d heard that the best way to keep other cats out of the garden was to have one yourself. A moment’s rational thought here will spot the slight flaw in this reasoning.
+ - Never build a dungeon you wouldn’t be happy to spend the night in yourself. The world would be a happier place if more people remembered that.
+ - Mister Teatime had a truly brilliant mind, but it was brilliant like a fractured mirror, all marvellous facets and rainbows but, ultimately, also something that was broken.
+ - This looks like a job for inadvisably applied magic if ever I saw one.
+ - Life doesn’t happen in chapters – at least, not regular ones.
+ - If women were as good as men they’d be a lot better!
+ - Mind you, the Elizabethans had so many words for the female genitals that it is quite hard to speak a sentence of modern English without inadvertently mentioning at least three of them.
+ - He said it was better to belong where you don’t belong than not to belong where you used to belong, remembering when you used to belong there.
+ - The price of being the best is having to be the best.
+ - I have no fear of death whatsoever. I suspect that few people do, what they all fear is what might happen in the years or months before death.
+ - Probably the last sound heard before the Universe folded up like a paper hat would be someone saying, ‘What happens if I do this?’
+ - Just because you can explain it doesn’t mean it’s not still a miracle.
+ - Raise the stakes! Always push your luck because no one else would push it for you.
+ - A number of religions in Ankh-Morpork still practiced human sacrifice, except that they didn’t really need to practice any more because they had got so good at it.
+ - Never trust a species that grins all the time. It’s up to something.
+ - So much paperwork to read! So much paperwork to push away! So much paperwork to pretend he hadn’t received and that might have been eaten by gargoyles.
+
+500 quotes

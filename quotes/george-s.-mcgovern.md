@@ -1,0 +1,83 @@
+ - I’m fed up to the ears with old men dreaming up wars for young men to die in.
+ - Im sick and tired of old men sitting around in air conditioned rooms here in Washington, dreaming up wars for young men to die in.
+ - Empathy is born out of the old biblical injunction ‘Love the neighbor as thyself.’
+ - I hope I live long enough to see every hungry school child in the world being fed under the so-called McGovern-Dole program.
+ - I hope someday we will be able to proclaim that we have banished hunger in the United States, and that we’ve been able to bring nutrition and health to the whole world.
+ - I thought the Vietnam war was an utter, unmitigated disaster, so it was very hard for me to say anything good about it.
+ - The highest patriotism is not a blind acceptance of official policy, but a love of one’s country deep enough to call her to a higher plain.
+ - I am fed up with a system which busts the pot smoker and lets the big dope racketeer go free.
+ - I always thought of myself as a good old South Dakota boy who grew up here on the prairie. My dad was a Methodist minister. I went off to war. I have been married to the same woman forever. I’m what a normal, healthy, ideal American should be like.
+ - I didn’t used to care about living a long time. Not that I wasn’t enjoying life, but I never sat around asking how I’d get to be 100, you know. But now I want to live long enough to see every school child in the world getting a good, nutritious lunch every day.
+ - My heart does sometimes bleed for those who are hurting in my own country and abroad.
+ - The whole campaign was a tragic case of mistaken identity.
+ - No man should advocate a course in private that he’s ashamed to admit in public.
+ - From secrecy and deception in high places, come home, America. From military spending so wasteful that it weakens our nation, come home, America.
+ - Don’t throw away your conscience.
+ - The longer the title, the less important the job.
+ - I was the guy who was constantly speaking out against the Vietnam War. I have no regrets about that.
+ - It’s possible to dazzle a crowd if you really work at it. But that is no qualification for leadership. Hitler was a master of crowds.
+ - When you start one of these programs, school lunch programs, in a country that heretofore had nothing of that kind, immediately school enrollment jumps dramatically. Girls and boys get to the classroom with the promise of a good meal once a day.
+ - Democrats believe that the federal government is not our enemy, it’s our partner.
+ - Every program that ever helped working people, from rural electrification to Medicare, was enacted by liberals over the opposition of conservatives. When people tell me they don’t like liberals, I ask, “Do you like Social Security? If so, then shut up!”
+ - It’s a tough thing, to know what to do about a war that deep in your gut you feel is wrong and yet watch your peers going off to fight in that war.
+ - You know, sometimes, when they say you’re ahead of your time, it’s just a polite way of saying you have a real bad sense of timing.
+ - Pay attention to the hungry, both in this country and around the world. Pay attention to the poor. Pay attention to our responsibilities for world peace. We are our brother’s keeper...
+ - I was tired. I hadn’t slept eight hours in two, three years. I lived on four, five hours of sleep. You can do it during a campaign because thousands are screaming for you. You’re getting adrenaline shots each day. Then the campaign ends, and there are no more shots.
+ - Now, I simply do what I want.
+ - When I was in the war, I was lucky that I was in a plane and never saw the carnage close-up.
+ - I’ve come to realize that protecting freedom of choice in our everyday lives is essential to maintaining a healthy civil society.
+ - It is a modern tragedy that one of the Soviet Union’s most intelligent and realistic leaders has served and died during the administration of the most ill-informed and dangerous man ever to occupy the White House.
+ - The nature of freedom of choice is that some people will misuse their responsibility and hurt themselves in the process. We should do our best to educate them, but without diminishing choice for everyone else.
+ - It would be a good time to replace the drug war with something more constructive. The cure offered the drug war today has probably been more harmful and done more damage than the disease.
+ - Somehow politicians have become convinced that negative campaigning pays off in elections.
+ - I flew a full string of 35 combat missions over some of the most heavily defended targets in Europe. We were hitting Hitler’s oil refineries, his tank factories, his aircraft factories, his railway yards. Those were our prime targets.
+ - Every once in a while, I run into somebody who tells me that she met her husband in my campaign or a husband who says, I met my wife. I have to tell you, I caused a few divorces too.
+ - When I was a youngster growing up in South Dakota, we never referred to the national debt, it was always referred to as the war debt because it stemmed from World War I.
+ - I think the country’s getting disgusted with Washington partly because of the decline of civility in government.
+ - I make one pledge above all others – to seek and speak the truth with all the resources of mind and spirit I command.
+ - When I was small, my most serious handicap was a painful bashfulness in the presence of strangers.
+ - Under the guise of protecting us from ourselves, the right and the left are becoming ever more aggressive in regulating behavior.
+ - It really is true that an orator is simply a good man who speaks well.
+ - For 50 years, the Republicans have been accusing the Democrats of being soft on national security.
+ - I never even had the time to read novels.
+ - As an American, I want our forces to prevail.
+ - My father was a clergyman and always said: ‘Hate the sin but love the sinner.’
+ - It is not patriotic to commit young Americans to war unless our national security clearly requires it.
+ - I have a very deep concern about President Obama putting in another 21,000 troops into Afghanistan with the promise of more to come.
+ - Politics is an act of faith; you have to show some kind of confidence in the intellectual and moral capacity of the public.
+ - Never say anything that, down inside, you think is wrong.
+ - A conscientious man would be cautious how he dealt in blood.
+ - I firmly believed throughout 1971 that the major hurdle to winning the presidency was winning the Democratic nomination. I believed that any reasonable Democrat would defeat President Nixon. I now think that no one could have defeated him in 1972.
+ - It can take greater courage to stand in opposition to the views of your neighbors or nation than to confront an enemy in combat.
+ - I’m constantly meeting people who said that they cast their first vote for me, or that they cut their eye teeth on the 1972 campaign, or that they didn’t vote for me but admire my positions.
+ - If Reagan wins, I’d sell the farm and buy a bomb shelter.
+ - Reaganism is not only at odds with the Judeo-Christian heritage, it will not work.
+ - I suppose politicians have always wanted to get re-elected, but there’s a kind of a feeling now that if you just discredit your opposition, it makes it easier for you to win. I don’t think that’s necessarily true.
+ - People didn’t have the political guts to stand up against an American war.
+ - If you’re Iran’s minister of defense, I think you’d try to develop at least one nuclear weapon to save yourself from what happened to Iraq.
+ - There is a strong tendency in the United States to rally round the flag and their troops, no matter how mistaken the war.
+ - I seek the presidency because I believe deeply in the American promise and can no longer accept the diminishing of that promise.
+ - For a generation and more, the government has sought to meet our needs by multiplying its bureaucracy. Washington has taken too much in taxes from Main Street, and Main Street has received too little in return. It is not necessary to centralize power in order to solve our problems.
+ - I always thought of myself as a moderate liberal, a fighter for peace and justice. I never thought of myself as being all that far out.
+ - My dad was a Methodist minister.
+ - I am 1,000 percent for Tom Eagleton and I have no intention of dropping him from the ticket.
+ - I didn’t know a damned thing about mental illness and neither did anyone around me.
+ - Well, we ought to be stirred, even to tears, by society’s ills.
+ - We are at a crossroads over how the federal government in Washington and state legislatures and city councils across the land allocate their financial resources. Which fork we take will say a lot about Americans and our values.
+ - I’m what a normal, healthy, ideal American should be like.
+ - I think it was my study of history that convinced me that the Democratic Party was more on the side of the average American.
+ - Every Senator in this Chamber is partly responsible for sending 50,000 young Americans to an early grave. This Chamber reeks of blood.
+ - Ever since I was a young man, I wanted to run for the presidency in the worst possible way – and I did.
+ - You don’t run for the presidency out of nostalgia.
+ - It’s nice not to have to worry about constituents.
+ - At least I have precluded the possibility of peaking too early.
+ - Everyone is exposed to economic risks of some kind.
+ - One of the sharp parallels is that neither Vietnam nor Iraq was the slightest threat to America’s national security.
+ - I am a liberal and always have been – just not the wild-eyed character the Republicans made me out to be.
+ - I seek to call America home to those principles that gave us birth.
+ - I met my wife in South Dakota.
+ - I would not plan to base my campaign primarily on opposition to the war in the Persian Gulf.
+ - So, I think that’s the centerpiece of morality: Don’t lie. But to do that, you have to go a step further and find out what the truth is.
+ - I did frequently refer to my war record in World War II, but not in any flamboyant way.
+
+81 quotes

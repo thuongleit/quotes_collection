@@ -1,0 +1,112 @@
+ - Perhaps the saddest irony of depression is that suicide happens when the patient gets a little better and can again function sufficiently.
+ - As long as people will accept crap, it will be financially profitable to dispense it.
+ - Sloppy language leads to sloppy thought, and sloppy thought to sloppy legislation.
+ - By the time I was in the fourth grade, I sounded exactly like my father on the phone.
+ - The trick to writing for people is, you have to be able to turn them on in your head. And know how they’d word something or how they’d inflect it.
+ - I find most ‘sacred music’ pretty dismal.
+ - Depression – it falls into that small category of things like combat that, if you haven’t been in it, you can say you can imagine it all you like. But it’s truly different.
+ - I live a sensible life. You know, I don’t take on too much.
+ - I don’t feel old. I feel like a young man that has something wrong with him.
+ - I eat at this German-Chinese restaurant and the food is delicious. The only problem is that an hour later you’re hungry for power.
+ - The greatest benefit of depression is the fact that when I have talked about it, every so often someone comes up and says, ‘You saved my dad’s life.’
+ - A conversation does not have to be scintillating in order to be memorable. I once met a president of the United States, and his second sentence to me was about knees.
+ - Music bypasses the brain and goes straight to the heart. I wish my life had more of it.
+ - Home schooling as an idea is on a par with home dentistry.
+ - My dream was maybe someday, one night I can be a guest on a talk show, and then I will have achieved everything I want.
+ - Can you picture yourself at the age 60 doing what you do now?
+ - The authority of depression is horrifying. I felt like my brain was busted and that I could never feel good again. I really thought that I was never gonna heal.
+ - In the main, ghosts are said to be forlorn and generally miserable, if not downright depressed. The jolly ghost is rare.
+ - Great humorists are great insulters.
+ - When I was a kid in Nebraska, a cantankerous farmer, known for plinking with his ’22 at passing cars in which he perceived enemies, ingeniously rigged up a shotgun in his house, trained on the inside of his front door so as to widely distribute any intruder.
+ - Censorship feeds the dirty mind more than the four-letter word itself.
+ - It’s not always easy to identify your own voice. It comes with time.
+ - I am always shocked that there are still a handful of defenders of the dubious practice of abstinence, surely the worst idea since chocolate-covered ants.
+ - A grown man, weeping, is a tough thing to see.
+ - Every time I nostalgically try to regain my liking of John McCain, he reaches into his sleaze bag and pulls out something malodorous.
+ - Show people tend to treat their finances like their dentistry. They assume the man handling it knows what he is doing.
+ - I’m sure I’ve all but lost friends by maintaining that, despite their love for it, I always saw Stanley Kramer’s ‘It’s a Mad, Mad, Mad, Mad World’ as more of an exercise in anti-comedy than humor.
+ - It’s no fun being a specimen.
+ - It’s a rare person who wants to hear what he doesn’t want to hear.
+ - Radio, which was a much better medium than television will ever be, was easy and pleasant to listen to. Your mind filled automatically with images.
+ - Does anything show the complexity of the miraculous brain more than that weird curiosity, the sleep-protection dream?
+ - I’m not sure why writing for others became harder. Probably a reluctance to give away anything you might conceivably use yourself caused a block. I did it, but it remained hard when it had once been easy.
+ - Lawyers work hard and, like us, they’re human, many of them.
+ - Coming up through the ranks of any calling can be rough, but that battered soul who survives the early years of courting the comic muse comes close to knowing what only the soldier knows: What combat is like.
+ - I don’t see the future as bright, language-wise. I see it as a glass half empty – and evaporating quickly.
+ - Why anyone, by dying, should thereby be declared beyond criticism, innocent of wrongdoing, suddenly filled with virtue and above reproach escapes me.
+ - It was well after college that I learned about depression. I got my first job for Jack Paar. I realized I was sleeping 14 hours a day and just living for the Paar show.
+ - There are online forms you can fill out to send to your lawmakers, demanding that nothing – nothing at all or in any way – be done about any guns whatever, anywhere.
+ - Commercials are not the only exposure that obesity gets on TV. It is by no means a rarity on the wonderful Judge Judy’s show when both plaintiff and accused all but literally fill the screen.
+ - The emotions in all true anxiety dreams are next to unbearable.
+ - I have a long list of things that make me mad.
+ - I hate Danny Kaye movies.
+ - I have yet to see one of those Comedy Central shows with multiple standup comics that doesn’t include someone the size of the Hindenburg.
+ - Every writer knows that unless you were born gifted with either supreme confidence or outsize ego, handing in your work holds, in some cases, admitted terror. If that’s too strong, at least fairly high anxiety.
+ - I’ll be happy if I can just stay out of Nebraska.
+ - I feel sorry for the poor kids whose parents feel they’re qualified to teach them at home. Of course, some parents are smarter than some teachers, but in the main I see home-schooling as misguided foolishness.
+ - I get a kick out of people saying I was funny.
+ - Years have passed since I have set foot in a comedy club. If the comic is doing badly it’s painful, and if the comic is doing brilliantly, it’s extremely painful.
+ - If I were running a campaign, I’d urge taking the mountain of money reportedly squandered on pizza, coffee and bagels and spending it more wisely – on a talented young comedy writer.
+ - I did standup while still working for Johnny Carson in the mid-’60s, thus gaining the advantage of at least getting laughs from him about how I hadn’t the night before.
+ - Japanese is sort of a hobby of mine, and I can get around Japan with ease.
+ - I’m not the guy with the enormous comedy nose or the big feet or the bad posture or the whatever; a physical comic has certain things.
+ - I know what it feels like to be a gun lover.
+ - Nobody is going to try to confiscate guns, although some Web sites know better: President Obama, they are certain, wants to.
+ - Once I left out what I then considered my best line because there was a suspected column rat in the house.
+ - The brain process that results in a joke materializing where no joke was before remains a mystery. I’m not aware of any scholarly, scientific or neurological studies on the subject.
+ - Every so often, there is an article saying the old kind of talk show isn’t possible now. In the oldest kind of talk show, you only had the choice of that or two other channels!
+ - While other kids were out playing and doing healthy things, I read an ancient judo book with a neck hold that was fatal to so many people, they finally dropped it from judo.
+ - It was at a vividly bad time in Norman Mailer’s life that I met him, and a sort of water-treading time in mine. He had stabbed his wife, and I was a copy boy at Time magazine.
+ - I like when the ice gets thin, the going gets rough, the guests get edgy.
+ - When I’m doing an appearance somewhere and taking questions from the audience, I can always count on: ‘Tell about the guy who died on your show!’
+ - I had to fight the intellectual label when I started in television, because, first of all, it’s not going to help you commercially, and also, it wasn’t particularly true of me. I mean, if anybody thought I was an intellectual, they probably had never really seen one.
+ - Teaching is an art and a profession requiring years of training.
+ - History is not reassuring on the subject of the longevity of seemingly lasting great nations, is it?
+ - I have never been converted to or even had much interest in spiritualism, occultism, Swedenborgianism or any particular religion. And I never, except occasionally for a laugh, visit the quacks who call themselves psychics.
+ - I have a disturbing problem with losing things. My vulnerability to loss-distress could properly be labeled not only inordinate, but neurotic.
+ - To label me an intellectual is a misunderstanding of what that is.
+ - Comedians are sometimes resentful of their writers. Probably because it’s hard for giant egos to admit you need anyone but yourself to be what you are.
+ - It’s lamented that the youth get their news from Jon Stewart and Stephen Colbert. It’s lamentable that they get more from them than from the news.
+ - The information superhighway? That sounds like a place that’s long and boring and kills 50,000 people a year.
+ - I haven’t ever found any great writing on that wonderful and often unappreciated art form, the insult.
+ - I don’t think anyone ever gets over the surprise of how differently one audience’s reaction is from another.
+ - Obviously those who burn to be professional jesters mean that they want to be successful comedians. And those are always an elite, microscopic portion of the population. But oh, how they try.
+ - There’s so much comedy on television. Does that cause comedy in the streets?
+ - Running my show is really like an actor being in repertory but where, in one day in one performance, you do scenes from a drama, a farce, a low comedy and a tragedy.
+ - The sudden death at 51 of James Gandolfini is intolerable.
+ - Therapists need to give a depressed patient support and direction.
+ - There should be three days a week when no one is allowed to say: ‘What’s your sign?’ Violators would have their copies of Kahlil Gibran confiscated.
+ - Every time someone says, ‘You know, we really ought to get together,’ if I were really honest, I would ask ‘Why?’
+ - Every student of comedy should see Dame Edna at least twice.
+ - William F. Buckley was a man who had a great capacity for fun and for amusing himself by amazing others.
+ - There were several things a Yale freshman was supposed to be able to do. You had to demonstrate in the Olympic-size Yale pool that you could swim 50 yards or be inducted into swimming class.
+ - It’s a tribute to the human brain that anyone is able to function out there on television in a talk situation that is entirely artificial.
+ - To call New York’s traffic at holiday time a nightmare is to understate.
+ - I feel like I’ve been watching Irwin Corey forever. I saw him in the 1950s, and I thought he was old then.
+ - I’m not all that enthralled by show business, and I’m not that much of a highbrow.
+ - It takes a certain amount of guts to go to your class reunions.
+ - Just think of all the billions of coincidences that don’t happen.
+ - You have to be on TV a surprisingly long time before you’re stopped on the street. Then, when you are, you get a lot of, ‘Hey, you’re great! What’s your name again?’
+ - You would have to be naive to think you can appear on television and not have the material edited in some way.
+ - I confess, I do have to remind myself almost daily that there are people on this earth capable of reading, writing, eating and dressing themselves who believe their lives are ruled from billions of miles away, by the stars – and, of course, the planets.
+ - A biggest mistake I made when I started doing a talk show was I thought you had to read the books.
+ - I guess the best advice I ever got or anyone could get for doing a talk show, though it has not been easy very often, was from Jack Paar, who said, ‘Kid, don’t make it an interview. Interviews have clipboards, and you’re like David Frost. Make it a conversation.’
+ - I think we live in an age of increasing mediocrity.
+ - I’m not freakishly short. I had, on my show, used shortness as a joke subject; it didn’t really bother me.
+ - Unpleasant reading on the subject of anger tells us that there’s not really anything wrong with it. In limited amounts. It can even be a good thing. A pressure valve.
+ - An effective speaker can do more damage or more good in a well-stated minute than an angry klutz could do in half an hour.
+ - I’ve actually gotten so I don’t associate television with entertainment very much.
+ - Greatly talented performers don’t know – often spectacularly – what’s best for them, don’t know what their talents really are, and don’t know what’s just plain wrong for them.
+ - Anything seen on TV is, in a subtle and sinister sense, thereby endorsed.
+ - In relative youth, we assume we’ll remember everything. Someone should urge the young to think otherwise.
+ - There is something about a Luger that separates it from all other handguns, and Luger devotees and Luger society members speak of it in romantic terms that must sound plain nuts to those who consider themselves level-headed.
+ - My IQ is somewhere between Spiro Agnew’s and Albert Einstein’s.
+ - Its fun for me to go on other folks talk shows. When youve endured the ups and downs and tensions and pitfalls of hosting, being a guest is a piece of angel food.
+ - I think I’d be pretty easy to write for.
+ - Electronic devices dislike me. There is never a day when something isn’t ailing.
+ - Meryl Streep belongs on anybodys list of greats.
+ - I’m the only talk show host, I think, if there’s such a category in, what’s called, the book of records, to have a guest die while we were taping the show, yeah.
+ - I always wanted to live in a haunted house.
+ - Every comic can report a few ‘gift from the gods’ moments.
+
+110 quotes

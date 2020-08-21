@@ -1,0 +1,21 @@
+ - Any place we can breathe, we can do Ninjutsu.
+ - The first priority to the ninja is to win without fighting.
+ - No more talk. I’m sick of people talking. Train.
+ - Focus on the future for 50%, on the present for 40%, and on the past for 10%.
+ - What I want you to do is just take it as it is. Don’t think too much. If you get involved with thinking about it, the whole thing gets lost or loses its purity. Don’t think during practice – DO! The more you think, the further from the truth of budo you get: Budo is NOT an academic subject!
+ - Always be able to kill your students.
+ - Budo is simply the study of the best ways to kill.
+ - Nature is your friend; it helps you to win. Your enemy will have unnatural movement, therefore you will be able to know what he is going to do before he does it.
+ - When weak or injured always continue training as you should always be able to adapt in any condition.
+ - Looking for the meaning of life, one man can discover the order of the universe. To discover the truth, to achieve. a higher spiritual state, that is the true meaning of ninja...
+ - You must be on your toes constantly, yet be relaxed.
+ - The simplest is always the most difficult.
+ - Forget your sadness, anger, grudges and hatred. Let them pass like smoke caught in a breeze. Do not indulge yourself in such feelings.
+ - Those who desire only techniques will never understand this art. It is everything beyond that.
+ - You must throw away your bad habits to get good.
+ - If you do not let go of thinking about forms, you will not understand what I am showing.
+ - Move with your feet, the hands will follow.
+ - Your life is on the line, practice well.
+ - Learning a technique is not an end in itself, it merely indicates where you need to start.
+
+19 quotes

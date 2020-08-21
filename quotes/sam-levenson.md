@@ -1,0 +1,56 @@
+ - Don’t watch the clock; do what it does. Keep going.
+ - It was on my fifth birthday that Papa put his hand on my shoulder and said, ‘Remember, my son, if you ever need a helping hand, you’ll find one at the end of your arm.’
+ - You must learn from the mistakes of others. You can’t possibly live long enough to make them all yourself.
+ - Never lend money to a friend. It’s dangerous. It could damage his memory.
+ - We may not always see eye to eye, but we can try to see heart to heart.
+ - Siblings: children of the same parents, each of whom is perfectly normal until they get together.
+ - Lead us not into temptation. Just tell us where it is; we’ll find it.
+ - One of the virtues of being very young is that you don’t let the facts get in the way of your imagination.
+ - You can’t start at the top.
+ - The longest word in the world is “a word from our sponsor.”
+ - Insanity is hereditary; you get it from your children.
+ - The reason grandparents and grandchildren get along so well is that they have a common enemy.
+ - Courage is walking naked through a cannibal village.
+ - Remember, if you ever need a helping hand, it’s at the end of your arm, as you get older, remember you have another hand: The first is to help yourself, the second is to help others.
+ - Times don’t change. Men do.
+ - It’s not the sugar that makes the tea sweet, but the stirring.
+ - If you want to kill time, try working it to death.
+ - You must pay for your sins. If you have already paid, please ignore this notice.
+ - Give your child a spanking once a day. If you don’t know why, he does.
+ - It’s so simple to be wise. Just think of something stupid to say and say the opposite.
+ - If you want to know how your girl will treat you after marriage, just listen to her talking to her little brother.
+ - You don’t have to be in “Who’s Who” to know what’s what.
+ - I’m going to stop putting things off, starting tomorrow!
+ - Happiness is a by-product. You cannot pursue it by itself.
+ - Just try to be happy. Unhappiness starts with wanting to be happier.
+ - If your wife wants to learn to drive, don’t stand in her way.
+ - A woman’s place is in the home. Why should she go out and take away a workingman’s pay instead of staying home and stealing out of his jacket like a good wife.
+ - The whole world is watching America, and America is watching TV.
+ - Many wise words are spoken in jest, but they don’t compare with the number of stupid words spoken in earnest.
+ - The simplest toy, one which even the youngest child can operate, is called a grandparent.
+ - Life begins at forty, but so does arthritis, and the habit of telling the same story three times to the same person.
+ - The reason God made man before woman was that he didn’t want any suggestions.
+ - Somewhere on this globe, every ten seconds, there is a woman giving birth to a child. She must be found and stopped.
+ - If you die in an elevator, be sure to push the up button.
+ - It’s a good thing that when God created the rainbow he didn’t consult a decorator or he would still be picking colors.
+ - If you owe fifty dollars you’re a piker; if you owe fifty thousand dollars you’re a businessman; if you owe fifty million dollars you’re a tycoon; if you owe fifty billion dollars you’re the government.
+ - The American success formula is first to get a home of your own, then to get a car of your own so you don’t have to stay in that home of your own.
+ - It would be useless to bomb Washington. If you destroy one building, they already have two other buildings completely staffed with people doing exactly the same thing.
+ - The beauty of America is that the average person always thinks she is above average.
+ - There was an old Woman who lived in a shoe She had so many children Her government subsidy check came to $4,892.
+ - One antidote for sexual truancy lies in simply teaching youth the wonder, the miracle, the reverence for the creation of life itself. Life is a divine creation. You don’t take chances with creation.
+ - I’m gonna put all my money into taxes. They’re sure to go up.
+ - We should not permit prayer to be taken out of the schools; that’s the only way most of us got through.
+ - Democracy means doing whatever you want without asking permission of anybody but your boss, your doctor, your lawyer, your landlord, your bank, your city, your state and federal authorities, and your wife and children.
+ - Any kid who has two parents who are interested in him and has a houseful of books isn’t poor.
+ - When I came home and showed my mother my report card with a mark of 98 in arithmetic, she wanted to know who had gotten the other two points.
+ - When I was a boy I used to do what my father wanted. Now I have to do what my boy wants. My problem is: When am I going to do what I want?
+ - I admit that: my wife is outspoken, but by whom?
+ - Our toaster has two settings: too soon or too late.
+ - The Puritans came to America to worship in their way and to force everybody else to do the same thing.
+ - How wise are thy commandments, Lord. Each of them applies to somebody I know.
+ - What we should have fought for was representation without taxation.
+ - The chaplain of the Senate does not pray for the Senate. He watches the Senate and prays for the country.
+ - More and more Congressmen now stay in Washington all year-round because they can’t stay at home under the laws they’ve passed.
+
+54 quotes

@@ -1,0 +1,148 @@
+ - Be ashamed to die until you have won some victory for humanity.
+ - A teacher who is attempting to teach without inspiring the pupil with a desire to learn is hammering on cold iron.
+ - A house without books is like a room without windows.
+ - Doing nothing for others is the undoing of ourselves.
+ - Seek not greatness, but seek truth and you will find both.
+ - Let us not be content to wait and see what will happen, but give us the determination to make the right things happen.
+ - Habit is a cable; we weave a thread of it each day, and at last we cannot break it.
+ - A human being is not attaining his full heights until he is educated.
+ - It is well to think well; it is divine to act well.
+ - He who cannot resist temptation is not a man.
+ - A house without books is like a room without windows. No man has a right to bring up his children without surrounding them with books, if he has the means to buy them.
+ - The living soul of man, once conscious of its power, cannot be quelled.
+ - Lost, yesterday, somewhere between sunrise and sunset, two golden hours, each set with sixty diamond minutes. No reward is offered for they are gone forever.
+ - Education is a capital to the poor man, and an interest to the rich man.
+ - Bodies are cleansed by water; the mind is purified by truth.
+ - Observation – activity of both eyes and ears.
+ - As an apple is not in any proper sense an apple until it is ripe, so a human being is not in any proper sense a human being until he is educated.
+ - The highest service we can perform for others is to help them help themselves.
+ - Benevolence is a world of itself – a world which mankind, as yet, have hardly begun to explore. We have, as it were, only skirted along its coasts for a few leagues, without penetrating the recesses, or gathering the riches of its vast interior.
+ - Deeds survive the doers.
+ - If an idiot were to tell you the same story every day for a year, you would end by believing it.
+ - Habit can overcome anything but instinct, and can greatly modify even that.
+ - There is nothing so costly as ignorance.
+ - Education then, beyond all other devices of human origin, is the great equalizer of the conditions of men, the balance-wheel of the social machinery.
+ - Every event in this world is the effect of some precedent cause, and also the cause of some subsequent effect.
+ - Do not think of knocking out another person’s brains because he differs in opinion from you. It would be as rational to knock yourself on the head because you differ from yourself ten years ago.
+ - Patient perseverance in well doing is infinitely harder than a sudden and impulsive self-sacrifice.
+ - Enslave a man and you destroy his ambition, his enterprise, his capacity. In the constitution of human nature, the desire of bettering one’s condition is the mainspring of effort. The first touch of slavery snaps this spring.
+ - He who cannot resist temptation is not a man. Whoever yields to temptation debases himself with a debasement from which he can never arise.
+ - Virtue is an angel, but she is a blind one, and must ask Knowledge to show her the pathway that leads to her goal.
+ - They who set an example make a highway. Others follow the example, because it is easier to travel on a highway than over untrodden grounds.
+ - Those who exert the first influence upon the mind have the greatest power.
+ - Teachers teach because they care. Teaching young people is what they do best. It requires long hours, patience, and care.
+ - We who are engaged in the sacred cause of education are entitled to look upon all parents as having given hostages to our cause.
+ - Education alone can conduct us to that enjoyment which is, at once, best in quality and infinite in quantity.
+ - An ignorant man is always able to say yes or no immediately to any proposition. To a wise man, comparatively few things can be propounded which do not require a response with qualifications, with discriminations, with proportion.
+ - Biography, especially of the great and good, who have risen by their own exertions to eminence and usefulness, is an inspiring and ennobling study. Its direct tendency is to reproduce the excellence it records.
+ - In vain do they talk of happiness who never subdued an impulse in obedience to a principle. He who never sacrificed a present to a future good, or a personal to a general one, can speak of happiness only as the blind speak of color.
+ - As each generation comes into the world devoid of knowledge, its first duty is to obtain possession of the stores already amassed. It must overtake its predecessors before it can pass by them.
+ - Education is our only political safety. Outside of this ark all is deluge.
+ - After a child has arrived at the legal age for attending school,-whether he be the child of noble or of peasant,-the only two absolute grounds of exemption from attendance are sickness and death.
+ - Let the public mind become corrupt, and all efforts to secure property, liberty, or life by the force of laws written on paper will be as vain as putting up a sign in an apple orchard to exclude canker worms.
+ - You need not tell all the truth, unless to those who have a right to know it; but let all you tell be truth.
+ - Injustice alone can shake down the pillars of the skies, and restore the reign of Chaos and Night.
+ - Had I the power, I would scatter libraries over the whole land, as the sower sows his wheat-field.
+ - We must be purposely kind and generous or we miss the best part of life’s existence.
+ - In trying to teach children a great deal in a short time, they are treated not as though the race they were to run was for life, but simply a three-mile heat.
+ - Every hand and every hour should be devoted to rescue the world from its insanity of guilt, and to assuage the pangs of human hearts with balm and anodyne. To pity distress is but human; to relieve it is Godlike.
+ - Manners are the root, laws only the trunk and branches. Manners are the archetypes of laws. Manners are laws in their infancy; laws are manners fully grown, – or, manners are children, which, when they grow up, become laws.
+ - Ignorance breeds monsters to fill up the vacancies of the soul that are unoccupied by the verities of knowledge.
+ - Ten men have failed from defect in morals, where one has failed from defect in intellect.
+ - Give me a house furnished with books rather than furniture! Both, if you can, but books at any rate!
+ - Schoolhouses are the republican line of fortifications.
+ - We go by the major vote, and if the majority are insane, the sane must go to the hospital.
+ - Superiority to circumstances is one of the most prominent characteristics of great men.
+ - Avoid witticisms at the expense of others.
+ - On entering this world our starting-point is ignorance. None, however, but idiots remain there.
+ - Love not only occupies the higher lobes of the brain, but crowds out the lower to make room for its expansion.
+ - He who shuts out truth, by the same act opens the door to all the error that supplies its place.
+ - Keep one thing in view forever- the truth; and if you do this, though it may seem to lead you away from the opinion of men, it will assuredly conduct you to the throne of God.
+ - Teaching isn’t one-tenth as effective as training.
+ - When a child can be brought to tears, and not from fear of punishment, but from repentance he needs no chastisement. When the tears begin to flow from the grief of their conduct you can be sure there is an angel nestling in their heart.
+ - On the face of it, it must be a bad cause which will not bear discussion. Truth seeks light instead of shunning it.
+ - Education must bring the practice as nearly as possible to the theory. As the children now are, so will the sovereigns soon be.
+ - Reproof is a medicine, like mercury or opium; if it be improperly administered, it will do harm instead of good.
+ - If you can express yourself so as to be perfectly understood in ten words, never use a dozen.
+ - Praise begets emulation, – a goodly seed to sow among youthful students.
+ - To know the machine one must know where each part belongs, and what its office is.
+ - Every school boy and school girl who has arrived at the age of reflection ought to know something about the history of the art of printing.
+ - No combatants are so unequally matched as when one is shackled with error, while the other rejoices in the self-demonstrability of truth.
+ - Of all “rights” which command attention at the present time among us, woman’s rights seem to take precedence.
+ - Scientific truth is marvelous, but moral truth is divine and whoever breathes its air and walks by its light has found the lost paradise.
+ - Every nerve that can thrill with pleasure, can also agonize with pain.
+ - He who dethrones the idea of law, bids chaos welcome in its stead.
+ - The devil tempts men through their ambition, their cupidity, or their appetite, until he comes to the profane swearer, whom he clutches without any reward.
+ - Astronomy is one of the sublimest fields of human investigation. The mind that grasps its facts and principles receives something of the enlargement and grandeur belonging to the science itself. It is a quickener of devotion.
+ - If temperance prevails, then education can prevail; if temperance fails, then education must fail.
+ - Ideality is the avant-courier of the mind.
+ - Knowledge has its boundary line, where it abuts on ignorance; on the outside of that boundary line are ignorance and miracles; on the inside of it are science and no miracles.
+ - Knowledge is a mimic creation.
+ - Generosity during life is a very different thing from generosity in the hour of death; one proceeds from genuine liberality and benevolence, the other from pride or fear.
+ - Man is improvable. Some people think he is only a machine, and that the only difference between a man and a mill is, that one is carried by blood and the other by water.
+ - Whatever statesman or sage will effect reforms upon a gigantic or godlike scale must begin with the young.
+ - It would be more honourable to our distinguished ancestors to praise them in words less, but in deeds to imitate them more.
+ - False conclusions which have been reasoned out are infinitely worse than blind impulse.
+ - In what pagan nation was Moloch ever propitiated by such an unbroken and swift-moving procession of victims as are offered to this Moloch of Christendom, intemperance.
+ - Affectation hides three times as many virtues as charity does sins.
+ - Just in proportion as a man becomes good, divine, Christ-like, he passes out of the region of theorizing, of system-building, and hireling service, into the region of beneficent activities. It is well to think well. It is divine to act well.
+ - Love – that divine fire which was made to light and warm the temple of home – sometimes burns at unholy altars.
+ - Willmott has very tersely said that embellished truths are the illuminated alphabet of larger children.
+ - The most precious wine is produced upon the sides of volcanoes. Now bold and inspiring ideals are only born of a clear head that stands over a glowing heart.
+ - But let a man know that there are things to be known, of which he is ignorant, and it is so much carved out of his domain of universal knowledge.
+ - We are prone to seek immediate pleasure or good, however small, rather than remote pleasure or good, however vast.
+ - In dress, seek the middle between foppery and shabbiness.
+ - True glory is a flame lighted at the skies.
+ - The earth endured Christ’s ministry only three years; – not three weeks after his real character and purposes were generally known.
+ - A republican form of government, without intelligence in the people, must be, on a vast scale, what a mad-house, without superintendent or keepers, would be on a small one.
+ - School is the cheapest police.
+ - We do ourselves the most good doing something for others.
+ - You may as well borrow a person’s money as his time.
+ - Jails and prisons are the complement of schools; so many less as you have of the latter, so many more must you have of the former.
+ - I look upon Phrenology as the guide to philosophy and the handmaid of Christianity. Whoever disseminates true Phrenology is a public benefactor.
+ - To pity distress is but human; to relieve it is Godlike.
+ - Education is an organic necessity of a human being.
+ - It is more difficult, and it calls for higher energies of soul, to live a martyr than to die one.
+ - Resolve to edge in a little reading every day, if it is but a single sentence. If you gain fifteen minutes a day, it will make itself felt at the end of the year.
+ - One thing I certainly never was made for, and that is to put principles on and off at the dictation of a party, as a lackey changes his livery at his master’s command.
+ - The object of punishment is prevention from evil; it can never be made impulsive to good.
+ - We conceive of immortality as having a beginning, but no end; but we conceive of eternity as having neither beginning nor end. Hence it is proper to speak of eternity as the attribute of God, but of immortality as the attribute of man.
+ - If ever there was a cause, if ever there can be a cause, worthy to be upheld by all of toil or sacrifice that the human heart can endure, it is the cause of Education.
+ - We put things in order – God does the rest. Lay an iron bar east and west, it is not magnetized. Lay it north and south and it is.
+ - If you wish to write well, study the life about you, – life in the public streets.
+ - Manners easily and rapidly mature into morals.
+ - New constellations of truth are daily discovered in the firmament of knowledge, and new stars are daily shining forth in each constellation.
+ - The pulpit only “teaches” to be honest; the market-place “trains” to overreaching and fraud; and teaching has not a tithe of the efficiency of training. Christ never wrote a tract, but He went about doing good.
+ - If evil is inevitable, how are the wicked accountable? Nay, why do we call men wicked at all? Evil is inevitable, but is also remediable.
+ - The false man is more false to himself than to any one else. He may despoil others, but himself is the chief loser. The world’s scorn he might sometimes forget, but the knowledge of his own perfidy is undying.
+ - Where a love of natural beauty has been cultivated, all nature becomes a stupendous gallery, as much superior in form and in coloring to the choicest collections of human art, as the heavens are broader and loftier than the Louvre or the Vatican.
+ - Spurn not at seeming error, but dig below its surface for the truth; And beware of seeming truths that grow on the roots of error.
+ - Much that we call evil is really good in disguises; and we should not quarrel rashly with adversities not yet understood, nor overlook the mercies often bound up in them.
+ - A teacher should, above all things, first induce a desire in the pupil for the acquisition he wishes to impart.
+ - Genius may conceive but patient labor must consummate.
+ - Love must be the same in all worlds.
+ - The education already given to the people creates the necessity of giving them more.
+ - Time is a seedfield; in youth we sow it with causes; in after life we reap the harvest of effects.
+ - Above all, let the poor hang up the amulet of temperance in their homes.
+ - God draweth straight lines but we call them crooked.
+ - Every addition to true knowledge is an addition to human power.
+ - There may be frugality which is not economy. A community, that withholds the means of education from its children, withholds the bread of life and starves their souls.
+ - Great books are written for Christianity much oftener than great deeds are done for it. City libraries tell us of the reign of Jesus Christ but city streets tell us of the reign of Satan.
+ - When will society, like a mother, take care of all her children?
+ - Knowledge is but an instrument, which the profligate and the flagitious may use as well as the brave and the just.
+ - If there is anything for which I would go back to childhood, and live this weary life over again, it is for the burning, exalting, transporting thrill and ecstasy with which the young faculties hold their earliest communion with knowledge.
+ - Even the choicest literature should be taken as the condiment, and not as the sustenance of life. It should be neither the warp nor the woof of existence, but only the flowery edging upon its borders.
+ - Great knowledge is requisite to instruct those who have been well instructed, but still greater knowledge is requisite to instruct those who have been neglected.
+ - The earth flourishes, or is overrun with noxious weeds and brambles, as we apply or withhold the cultivating hand. So fares it with the intellectual system of man.
+ - Common sense is better than genius, and hence its bestowment is more universal.
+ - As all truth is from God, it necessarily follows that true science and true religion can never be at variance.
+ - There is a deeper pleasure in following truth to the scaffold or the cross, than in joining the multitudinous retinue, and mingling our shouts with theirs, when victorious error celebrates its triumphs.
+ - There is not a good work which the hand of man has ever undertaken, which his heart has ever conceived, which does not require a good education for its helper.
+ - Be careful never to retire to rest in a room not properly ventilated.
+ - When you introduce into our schools a spirit of emulation, you have present the keenest spur admissible to the youthful intellect.
+ - Thank Heaven, the female heart is untenantable by atheism.
+ - You may be liberal in your praise where praise is due: it costs nothing; it encourages much.
+ - Want of occupation is the bane of both men and women, perhaps more especially of the latter.
+ - There is nothing derogatory in any employment which ministers to the well-being of the race. It is the spirit that is carried into an employment that elevates or degrades it.
+
+146 quotes

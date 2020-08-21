@@ -1,0 +1,122 @@
+ - My pain is my badge of honor.
+ - The hardest thing to do is work hard when no one is watching.
+ - All I know is grind.
+ - Don’t let your alarm clock, be the only reason you wake up.
+ - If tomorrow wasn’t promised, what would you give for today?
+ - Wins and losses come a dime a dozen. But effort? Nobody can judge that. Because effort is between you and you.
+ - Every day of my life, I’m trying to find a different way to get better.
+ - When something goes wrong, smile, cause there’s always a next play.
+ - Don’t waste talent. No matter what you do, don’t waste talent.
+ - I’m pissed off for greatness. Because if you ain’t pissed off for greatness, that just means you’re okay with being mediocre.
+ - To be the best and stay there, sweat is necessary.
+ - Do whatever you got to do to make sure you chase your legacy every second of your life.
+ - Greatness is a lot of small things done well. Day after day, workout after workout, obedience after obedience, day after day.
+ - I prepare so no one can take what is mine, no one can replace my mind, my heart.
+ - Nobody’s as serious about health and fitness as me, and staying fit is my top priority.
+ - In any war, you put your back to mine, I put my back to yours, and let’s do what we gotta do.
+ - Man believes in the possible, God believes in the possible.
+ - What makes you grind? You have to always be chasing something.
+ - The greatest opportunity in the world is found here today… We already know what yesterday has got for us. It’s already gone. Tomorrow, too far away. What about right now!
+ - The only way to defeat pain is to recognize pain exists.
+ - Effort is between you and you.
+ - Pain is only temporary, no matter how long it lasts.
+ - We get one opportunity in life, one chance at life to do whatever you’re going to do, and lay your foundation and make whatever mark you’re going to make. Whatever legacy you’re going to leave; leave your legacy!
+ - I don’t know a man on this Earth who can outwork me.
+ - Before anything great is really achieved, your comfort zone must be disturbed.
+ - God has never made a mistake. Ever.
+ - You can’t take no breaks.
+ - I don’t want to be liked. I want to be respected. Because if you like me you can throw me away too quick. If you respect me, you may not even like what I was wearing, but you’ll say, “I respect that.”
+ - I wasn’t the biggest, the fastest, the strongest, and then I bought into something called work ethic.
+ - Bottom line, your body is a temple, and you have to treat it that way. That’s how God designed it.
+ - You have to be honest about who you are.
+ - The only thing that follows work is results.
+ - Adversity defines true character.
+ - Let your name be worth more than your bank account.
+ - Whatever your path is, that’s your path.
+ - I didn’t like where I once was, so I promised myself I wouldn’t be back there.
+ - I fight for the man next to me. It don’t matter about me, what matters about me is sacrificing for you; for the ultimate goal which is us.
+ - One thing about God’s will, you can never see God’s will before it happens. You can only see at the end of it.
+ - I’m a prideful person when it comes to competition.
+ - Everything I got, I’m willing to sacrifice.
+ - If you clean your body out so that it is not fighting against you, you rest better, think better and you’re always light on your feet.
+ - Don’t walk through life just playing football. Don’t walk through life just being an athlete. Athletics will fade. Character and integrity and really making an impact on someone’s life, that’s the ultimate vision, that’s the ultimate goal – bottom line.
+ - Man doesn’t dictate what you do or how you do it. If you believe in God, believe in God; have your faith in him. That’s where my faith lies.
+ - I figured something out. And it is no secret what I figured out. Whatever the majority of people were doing, I found myself doing the opposite. I wanted to chase something great.
+ - Only a fool trips on what’s behind them.
+ - In any war who pulls their general out? No one.
+ - And that’s my honour, that’s what my goal is, to always keep my mum’s name ringing, because I know what sacrifices she went through for me.
+ - You got to be willing to walk in a storm. That’s what I tell people all the time.
+ - No matter the circumstances that you may be going through, just push through it.
+ - There’s a spirit that grabs me, and it’s in every one of you guys, but the questions is, how much time are we wasting?
+ - If there’s something in your life that you know needs changing, make sure you change it before God’s got to change it. Because if God’s got to change it, you ain’t going to like it.
+ - There’s one secret to hitting hard, and that is to completely dedicate your body. That’s the difference between a man going forward and a man going backward, no matter how big he is.
+ - We’re in a tough place in this world. There are a lot of kids giving up very early. Scripture says it takes a village to raise one child, and that’s what these coaches are going to have to go back and understand.
+ - Sometimes I have no idea whats going on.
+ - In an era that’s run on free agency, everybody’s going where the dollars are. They go after the dollars and they forget that the game will always come down to brotherhood.
+ - With all the things I’ve been through, the No. 1 thing that I’ve learned is that we’re supposed to help people through this world.
+ - The more you know about your opponents, the more you learn how to beat them. Where the holes open to run through, blocking schemes, even down to player tendencies and what hand they like to carry the ball with.
+ - When you think about Peyton Manning, you think about numbers. When you think about Tom Brady, you think about championships.
+ - When you see tears in my eyes, you see it’s not about the wins or the losses, It’s about the opportunity.
+ - Let me explain my job very simply: My job is to line up five, seven, 10 yards in front of a man and run into him at full speed.
+ - What’s the difference between you and the man sitting beside you? It’s one percent. In my business, only one percent makes it. If everyone had the same dream, only 1 will make it from this crowd. Who will be that one?
+ - Will you be remembered, how would you be remembered, why wouldn’t you fight for the greatest achievement ever?
+ - I’ve never stopped loving the game since day one. If it were a job to me it would be very hard for me to get up in the morning. And why leave something that you can never come back to? Realistically, whether you accept it or not, you only get one wave in this journey. Run at it as hard as you can.
+ - You gotta be hungry for it. You’ve got to put everything you got on it. EVERYTHING! Every second. You have to be the first one in line. That’s how leaders are born.
+ - I honor God that much in the way I play. That’s why I never believe in getting tired. I don’t even know what that word means.
+ - I just came out of the gym from three hours this morning. I got five hours of sleep. That’s it. Every day of my life, I’m trying to find a different way to get better.
+ - My game is me. I didn’t try to pattern my game after nobody.
+ - With the mindset that I give everything I’ve got for the man that’s next to me, not me, cause I know what I got while I’m by myself, but when I step on the field, when I step on the turf, what am I willing to sacrifice?
+ - There’s no “I” on the football field. We have a total commitment to each other when we’re out there. There is no doubt. It doesn’t matter. The wins and losses of the game don’t resonate with us. What resonates with us is “how much effort would you give for the man next to you.”
+ - You don’t have to win it, just don’t lose it.
+ - Somebody has to give a wakeup call to our coaching world to ask them real questions and show them that if you have kids, then you know there is no way you can talk to somebody else like that, because that’s somebody’s child.
+ - I have so much respect for people that are my elders. You aren’t going to hear me cursing around people that are 60 and 70 years old.
+ - I love watching the Serengeti, the way lions live. The only way the king lion loses his crown is by somebody physically defeating him.
+ - Some of these kids are spending more time with the coaches than they are with their parents. The coach is supposed to be raising these kids, not belittling them and talking to them like the world is coming to an end.
+ - When you try to help people become a better person, you’re going to have to find out what’s really going in their world.
+ - You don’t care if I’m guilty or not. You gonna make sure I go to jail for life.
+ - It’s a bad place when you see sometimes how coaches treat people. I don’t even want to say players. I want to say people. They’re people before they become a player.
+ - There’s some things you can cover up. And there’s some things you can’t.
+ - It’s poetry to watch the game when the game is left alone, when there’s not a bunch of flags on the ground.
+ - You can talk about what you see from the outside; it’s hard to tell me who I am when you’re just looking at me with a football uniform on. That’s a totally different person. That’s my job, that’s it.
+ - I love passion. I love for a coach to be passionate.
+ - No coach who is coaching kids should ever curse a kid.
+ - You have to find that place that is very quiet in your head, and anytime I read it, anytime I come across it, my Bible, the first Scripture in there is Psalms 91.
+ - Every day, we’ve got to do something physical. It’s mind, body and spirit.
+ - Watching the season for me is about watching the chess matches.
+ - And I love Evander Holyfield to death!
+ - A leader puts himself last then he sticks out.
+ - Even Rod Woodson will tell you his best year he had as a professional was when he was 36 years old. If you think about why, you’re much wiser.
+ - My thing about camp is to come in and be who I am, which is the most dominant player in the game, That’s who I am, and that’s what I’m here for.
+ - The refs are so confused themselves because there’s so many rules. It’s like, ‘Oh my gosh I’ve never seen this many rules in my life.’ And everybody’s trying to govern this and justify that.
+ - The locker room talk is always that about who can beat who.
+ - I don’t train for football; I train more for a lifestyle.
+ - Outside of these doors, it is the real world. Someone tries to get you to do something wrong, run.
+ - I’ve been a fan of video games since the old school, I even have a lot of the old school arcade games at my house.
+ - All the cops are just workers for the one percent, and they don’t even realize they’re being exploited.
+ - To come into camp and have my defensive coordinator say you won’t be touched, I feel like a kid all over again.
+ - Regardless of how well you can be offensively, if you have a great defense, you can deal with any offense.
+ - Coaching is something I’ve been a part of my entire life. One of the things I’ve always been very passionate...
+ - Parents may be always working, parents may be in and out. When you’re dropping them off with coaches, the first thing kids should be coming back and saying is, ‘Mom, guess what I learned today? Guess what coach taught me today?’
+ - I like to see honesty out of people. People who are trustworthy. I like to see people who are involved with The Lord.
+ - The journeythe journey, I promise you, is the greatest thing ever. The destination always takes care of itself.
+ - Some people take certain things and they try to forget what that pain felt like. I don’t. I take that same pain and I chase it every time I walk in a weight room.
+ - I don’t train for sports. I’ve never trained for sports. I train for life, and sport is just a part of that. So when I start training, that’s lifestyle training and that’s why I go through so many things, whether it’s yoga, kickboxing, wrestling or swimming.
+ - Success is one thing, impact is another.
+ - Whatever you want to do, go do it.
+ - Life is about being a versatile athlete and training in all realms of life.
+ - Parents needs to spend more time with who they’re trusting their kids with. That’s one of the nuggets going forward. Find out who these coaches are. Figure out their environment and what kind of problems they have, and see if you want your child involved with that.
+ - One of the things I’ve always said is that if you’re given the ability to coach kids, then you’re really given the ability to be a father or parent of some sort.
+ - I’ve always had a problem with the things that people would say out of their mouths to other people. I’ve always had a problem with that, because a lot of people, they don’t have enough information to speak to people a certain way or speak about people a certain way.
+ - Who knows what the future holds? It’s all on parenting, one way or another. I don’t care what level it is, it comes back to people learning how to deal with people.
+ - I’ve got kids that are always watching and I taught them to always finish something you started.
+ - Any game that you step on, you can get beat.
+ - I like college football a lot, because it’s the dream that you’re chasing. The dream of one day possibly making it, with the harsh reality that only one percent make it.
+ - I’ve always said to the refs to not be the ones to decide the game. Let the players dictate the outcome.
+ - I don’t care where we’re going; I’m gonna wear a suit all day, every day.
+ - It’s simple: when God is for you, who can be against you?
+ - When I step on the field, it’s on. I know it’s time to go to work.
+ - Daddy wasn’t there for me, so I had to grind every day.
+ - The game will fade one day. I realize that success is one thing; impact is another. I live to impact people.
+ - I once said that effort is between you, and you, and nobody else. The same can be true between and individual and their camera. What you’re shooting is between you and you and nobody else. Outcomes are for the audience. The action is yours alone.
+
+120 quotes

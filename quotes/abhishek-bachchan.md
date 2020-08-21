@@ -1,0 +1,26 @@
+ - A birthday is just another day where you go to work and people give you love. Age is just a state of mind, and you are as old as you think you are. You have to count your blessings and be happy.
+ - Just because I don’t show six-pack abs doesn’t mean that I don’t have them.
+ - I feel that one of the hardest things in acting is the way you need to switch your emotions.
+ - Basketball is my favorite sport, and I’m also a very passionate football fan.
+ - The best gift for an actor is the love of the fans. Many make sweet cards, write letters and even come and meet me wherever I am in India. The love and blessings of your elders is also always cherished, but the extra mile that the fans go to is memorable.
+ - I like working on my birthday, so I always do.
+ - Whatever you do, do it from the heart.
+ - I don’t believe in asking God for anything. If I am worthy, He will give it to me. I think we should earn his blessings; I have never believed in mannats.
+ - I am not one of those people who will ever be comfortable mocking or making caricatures of the stereotypes attached to any community.
+ - Indian weddings are elaborate. As a culture, we like to celebrate everything Our weddings go on for sometimes a week, 10 days.
+ - A successful film is a good film, and a non-successful film is a bad film. It’s as simple as that.
+ - Anybody who has interacted with me will definitely find me to be a chirpy person.
+ - My films are of paramount importance to me, the same as my family. That’s not going to change. This is a balance I have to strike throughout my life.
+ - In the Indian film industry, especially those of us who are in mainstream cinema, we invariably play a typical hero’s role. More often than not, we cater to the public perception. However, there is a latent desire in most actors to do a role where you can go all out and experiment.
+ - The trade magazine and all was banned in my house. The first time I read a film magazine was when I was 18.
+ - Every film for every actor is a make-or-break film. I believe every film has the power to break you or make you. So, an actor will treat every film like his last film. That’s the way we need to work, and that’s the way you can drum up that passion needed to do good work.
+ - There is one common thing in superstars – enthusiasm and humility towards their work. Off sets, they are big stars for others, and they carry themselves the way they want to. When they are working, they are not stars.
+ - I’m an actor, paid to act. I don’t bring personal problems to the sets. Dad taught me that.
+ - I do films that I like. I have done comedy, romance, everything, and I always like to do it differently from the previous ones.
+ - I think India is very passionate about films. It’s almost a second religion back home. Due to that, I think film stars are – are really held in great esteem. Not that we’re complaining, but I think with that comes a lot of responsibility.
+ - My daughter is not an object to flash around or a prized item to put on display.
+ - The only fear I have is that I will wake up one day and nobody will allow me to do films. This is a fear every actor has.
+ - If people are looking forward to my films, then I am happy, and I must be doing something right.
+ - Critics have a job to do. They do not criticize you without reason.
+
+24 quotes

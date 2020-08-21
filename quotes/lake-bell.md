@@ -1,0 +1,37 @@
+ - I think of myself as a content creator and hopefully one day a content enabler and supporter of others, so that’s what my immediate and hopefully future journey is.
+ - A friend of mine told me, you know your obsession with girls who talk like sexy babies? You have to put that into your script.
+ - I’m not a drug person. I don’t like drugs. I went to college in London, so it was kind of the curriculum there. I got it out of my system really young.
+ - When I’m tired of taking on too much responsibility as a director I then look for an acting gig.
+ - I am lactose intolerant, and I always thought it was really funny how people who are lactose intolerant continue to eat dairy, because they like it so much. And I find it not acceptable.
+ - You can’t live in a dialect without tremendous work. Like any muscle, accents and voices and languages are all formed out of the muscles that we have in our mouths and faces and tongues.
+ - I’m vegan on home base, but when I travel to other countries, I throw it all into the garbage.
+ - I have this necklace I always wear. I collect pendants from people I love; my best friends and members of my family have all given me one, and I put them on this chain so no matter where I am they’re always with me.
+ - Filmmaking is a huge privilege; it’s not brain surgery. It’s art, and art is supposed to be an enjoyable process, and it is an enjoyable experience for me.
+ - I feel tremendously lucky that I am offered incredible jobs all the time to direct, but the problem that I have just personally is that there are only so many years in my life to dedicate to certain projects.
+ - The reason I got into this business was for the privilege to exist in different genres and different worlds and play out different realities.
+ - I respect deeply that each project brings its own secret and wonderful gifts and happy accidents.
+ - I feel very lucky that when I’m burnt out of acting I take to the pen and I write something I want to direct.
+ - I think great directors really respect their actors and vice versa. That mutual respect makes the job fun instead of anything but.
+ - It’s priceless what you learn when you actually do. The best education is effectively to be functioning in the occupation that you want to take on.
+ - If I’m going to pour that kind of love and energy and sweat and heartache, all that juju into something, I’m going to lean into my own projects before someone else’s.
+ - I like my body, I like to have fun with what I put on, but I also want to remain classic. So I guess my signature is sexy and eclectic but classic.
+ - You have to be steadfast, and right now I’m on a stream train forward to make .
+ - I had had a huge background in the nuance of the accent because I went to drama school in England for four years.
+ - I’m going to say a phrase or terminology or vowel that I don’t know how to attack .
+ - There are a lot of funny people and a lot of unfunny people. Some of them are women and some of them are dudes.
+ - I’ve learned from every director I’ve worked with. Everybody’s style is very different, and I always say that being an actor is the best film school that I could ever go to.
+ - I love fashion. I always have. When I was a kid, I was in almost full-on costumes when I went to school, and I’ve retained a bit of that in my adulthood.
+ - But I’d say ‘How to Make It in America’ is the most accurate depiction of the New York hipster community on television for sure.
+ - I’ve made it very clear that I’m interested in voiceover work. I mean, I’m always looking for voiceover gigs. I love that.
+ - Actually, in my own life I think I probably feign neuroses to be more interesting than I am.
+ - When I do an accent I commit fully and take it very seriously.
+ - I learned how to direct by being in the trenches of movies. Getting to be a student from the inside looking out, and if you’re a respectful observer you can sponge lots of information. That was my film school.
+ - I vowed to never use my American accent, and I didn’t. Even going to get the paper in the morning to buying milk down at the shop, getting a cab, wherever.
+ - It’s like the most profound accomplishment that I’ve had in my career, that I can finally be that voice.
+ - What’s the trick to writing a genuinely funny comedy? The trick is therapy. Take notes.
+ - I sort of loved the bustle of a thousand questions. Women are inherently kind of multitaskers.
+ - I think coming to work and being absurd and neurotic and thoughtful at the same time is far more interesting.
+ - I’m in full transparency here of “Yeah, I’m trying to find my financing.”
+ - With more money brings more fear and when you’re trying to be creative in a fear-based environment it’s dangerous. Then decisions are made out of fear, not what’s best for the film.
+
+35 quotes

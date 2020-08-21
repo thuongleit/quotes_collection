@@ -1,0 +1,35 @@
+ - What’s meant to be will always find a way.
+ - She’s got her God and she’s got good wine, Aretha Franklin, and Patsy Cline.
+ - I’m 47, You learn life is short and it’s not worth doing something if you don’t enjoy it.
+ - I love potatoes – they’re my favorite food.
+ - I don’t interest myself that much.
+ - My upbringing did not create a healthy affection for confrontation. I’d love it if everyone always got along, and nothing ever got tense.
+ - Songs are like movies to me, and so you put yourself in the movie. You become a character in the movie.
+ - When people compliment my cooking, it’s like somebody telling me that they like my music. And it’s great to be known for something else.
+ - When you’re sick, nobody takes care of you like your mom.
+ - I don’t need to be 19 years old or starve myself for some weight or turn men’s heads down that road. And thank God I finally know that.
+ - I’ve never been the girl that’s had the five-year plan.
+ - Divorce is so common and accepted in America that beating myself up over it may sound ridiculous. But I was raised to believe that divorce wasn’t an option; to me, divorce equaled failure. I wasn’t able to change that equation until I found myself in the right relationship.
+ - It’s funny, the whole cooking thing came out of just a random thought of writing a cookbook with my mom and my sister for fun...
+ - You know, really – actually, it’s funny because it’s a sore spot with me because I have all these recipes that, you know, you have to measure things out and put them in. And then you bake it and it becomes this thing. And it’s not a recipe.
+ - We sat together as a family for dinner at night. And my mother had a job. My dad had a job. But there was always a meal on the table at 6:00, you know.
+ - I finished high school, moved to Nashville for college, and set out to break into the music business. Every night when I called home with news of my experiences, my mom and dad would encourage me to keep taking those small steps.
+ - Music is my No. 1 passion. If you made me choose between music and food, it’s definitely music.
+ - People who truly love to sing have to do it all the time.
+ - I’m like it’s – it’s like taking out whatever you have in your fridge and putting it in a bowl and eating it.
+ - It’s cool when your husband starts to sing some old Merle Haggard song and I can pop in with a harmony and it doesn’t sound too bad.
+ - I absolutely refused to make out with the gorgeous male model.
+ - I always want to sing, but I don’t always want to be trying to have No. 1 records. I don’t think you can do it forever. I don’t know what the time span of that is going to be. I want to sing because I want to sing.
+ - I almost never make stuff out of cookbooks because they’re either too complicated or there’s an ingredient in there that I can’t find.
+ - I like a gooey cookie.
+ - Standing behind a kitchen counter telling people about what ingredients to put in a pot didn’t feel right.
+ - I was an A student and I liked creative writing.
+ - You start out playing in kitchens, and you end up playing in kitchens.
+ - Nobody who cooks does it with full hair and makeup in front of a TV camera.
+ - I don’t spend time wondering what might be next; I just focus on trying to savor every day.
+ - When I made my first album, there was no indication that anybody other than my parents were going to buy it.
+ - I want to sing because I want to sing.
+ - For me, cooking is very connected to my family and friends.
+ - There’s an energy about Nashville that I love and I miss. And it’s so awesome right now. It has a new energy that’s so cool.
+
+33 quotes

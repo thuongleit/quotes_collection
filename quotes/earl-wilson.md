@@ -1,0 +1,42 @@
+ - Science may never come up with a better office communication system than the coffee break.
+ - If you think nobody cares if you’re alive, try missing a couple of car payments.
+ - A vacation is what you take when you can no longer take what you’ve been taking.
+ - Today, there are three kinds of people: the haves, the have-nots, and the have-not-paid-for-what-they-haves.
+ - Always remember, money isn’t everything – but also remember to make a lot of it before talking such fool nonsense.
+ - One way to get high blood pressure is to go mountain climbing over molehills.
+ - If you look like your passport photo, in all probability you need the journey.
+ - Money in the bank is like toothpaste in the tube. Easy to take out, hard to put back.
+ - Snow and adolescence are the only problems that disappear if you ignore them long enough.
+ - Success is a matter of luck. If you want proof, ask any failure.
+ - To sell something, tell a woman it’s a bargain; tell a man it’s deductible.
+ - A baseball game is simply a nervous breakdown divided into nine innings.
+ - Nonchalance is the ability to remain down to earth when everything else is up in the air.
+ - Ever notice that the whisper of temptation can be heard farther than the loudest call to duty.
+ - Modern man drives a mortgaged car over a bond-financed highway on credit-card gas.
+ - If you wouldn’t write it and sign it, don’t say it.
+ - Gossip is when you hear something you like about someone you don’t.
+ - An exhaustive study of police records shows that no woman has ever shot her husband while he was doing the dishes.
+ - You may not be able to read a doctor’s handwriting and prescription, but you’ll notice his bills are neatly typewritten.
+ - This would be a much better world if more married couples were as deeply in love as they are in debt.
+ - No horse can go as fast as the money you put on it.
+ - Poise: the ability to be ill at ease inconspicuously.
+ - Somebody figured it out- we have 35 million laws trying to enforce Ten Commandments.
+ - Middle Age – later than you think and sooner than you expect.
+ - Many a standing ovation has been caused by someone jumping to his feet in an effort to beat the rest of the audience to the parking lot.
+ - This is the age of bargain hunters. If it had been this way in biblical times, we’d probably have been offered another commandment free if we had accepted the first ten.
+ - Feminists say 60 percent of the country’s wealth is in the hands of women. They’re letting men hold the other 40 percent because their handbags are full.
+ - Saying ‘Gesundheit’ doesn’t really help the common cold – but its about as good as anything the doctors have come up with.
+ - Golf is a lot of walking, broken up by disappointment and bad arithmetic.
+ - Mathematics-a wonderful science, but it hasn’t yet come up with a way to divide one tricycle between three small boys.
+ - Today’s accent may be on youth, but the stress is still on the parents.
+ - He was so honest you could play craps with him over the phone.
+ - Home, nowadays, is a place where part of the family waits till the rest of the family brings the car back.
+ - A bachelor is a guy who leans toward women – but not far enough to lose his balance.
+ - The man who didn’t want his wife to work has been succeeded by the man who asks about her chances of getting a raise.
+ - A woman may race to get a man a gift but it always ends in a tie.
+ - He’s so snobbish he has an unlisted zip-code.
+ - There’s only one kind of tax that would please everybody – one that nobody but the other guy has to pay.
+ - The fastest way for a politician to become an elder statesman is to lose an election.
+ - Isn’t it a shame that future generations can’t be here to see all the wonderful things we’re doing with their money?
+
+40 quotes

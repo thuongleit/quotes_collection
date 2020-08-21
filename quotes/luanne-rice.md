@@ -1,0 +1,22 @@
+ - Missing pieces do more than complete the puzzle, they fill in an empty space.
+ - Sometimes waiting is the hardest thing of all.
+ - The Secret Life of Bees proves that a family can be found where you least expect it-maybe not under your own roof, but in that magical place where you find love. The Secret Life of Bees is a gift, filled with hope!
+ - Our stories remind us how precious and fragile life can be – and that we must risk our hearts everyday to know happiness.
+ - Anyone with a heart, with a family, has experienced loss. No one escapes unscathed. Every story of separation is different, but I think we all understand that basic, wrenching emotion that comes from saying goodbye, not knowing if we’ll see that person again-or perhaps knowing that we won’t.
+ - The music never leaves. Once you have it, you can’t lose it.
+ - The biggest mistake any of us can make is thinking that love is a feeling, an emotion. It’s not that at all. It’s an action.
+ - Love is the easiest thing there is. It’s the layers of doubt, fear, and expectation that make it complicated.
+ - Some feelings are stronger than fear: love, longing, desire.
+ - I am honored to have had two Hallmark Hall of Fame Productions made from my novels – Silver Bells and Follow the Stars Home.
+ - How to Be an American Housewife is filled with dreams and love-the kinds that come true and those that don’t. Margaret Dilloway is wise and ironic. She has created wonderful characters who never, in spite of hardships, stop finding ways to love each other.
+ - Clear nights are sometimes the coldest.
+ - Hannah writes of love with compassion and conviction.
+ - You fall in love with the girl next door but married her sister.
+ - Judgment is easy: it is black and white, as brutal as a gavel strike.
+ - Hallmark makes beautiful films that feel as if they should be watched in a theater. The Hall family knows the power of stories, and they give us unforgettable movies with heart and depth and the resonance of classics.
+ - After 30 novels, release day is still a thrill. Its always a little bittersweet, too.
+ - A good sailor knows everything is always changing.
+ - I was born in a library, in the fiction stacks.
+ - Goodbyes were impossible, unless you didn’t realize you were saying them.
+
+20 quotes

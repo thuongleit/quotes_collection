@@ -1,0 +1,24 @@
+ - At the end of the day, the most overwhelming key to a child’s success is the positive involvement of parents.
+ - We’re helping those children who cannot help themselves and giving a push to those who can. We’ve done it by working together for a common purpose. I see no reason to stop now.
+ - Yesterday the flame of the Olympic torch was carried through our great state on its way to Salt Lake City.
+ - We improved the environment in which our children live, learn and play by decreasing crime and clamping down on abuse and violence in the home and on the streets.
+ - When completed, the budget must provide the services we have promised to our constituents.
+ - We emerged from the events of September 11 more steadfast in our beliefs, more courageous in our actions and more determined to protect our values than ever before.
+ - Today, Arizona’s sons and daughters, mothers and fathers are proudly serving their country.
+ - Government cannot be all things to all people.
+ - Where else but in America could a schoolteacher from Kansas City end up the governor of her adopted state?
+ - Arizona faces many challenges ahead. None is more important or more pressing than passing a new state budget.
+ - I also want to thank Arizona citizens for their efforts at conserving energy last summer.
+ - The attack and our response show just how vital Arizona’s military bases are to the defense of our country. We need to do everything we can to protect them.
+ - I often say that Arizonans should decide what’s best for Arizona.
+ - While I have some regrets that this is my last opportunity to deliver a State of the State address, I appreciate and am humbled by the opportunities this great state has given me.
+ - In twenty years, the Lottery has raised over $1.4 billion. It has been run successfully and efficiently.
+ - Right after the tragedy, President Bush asked Americans to get on with their lives and we did.
+ - The Growing Smarter laws now in place compel every community to plan their future growth and allow every citizen the right to be heard when those decisions are made.
+ - Despite Arizona’s remarkable growth in recent years, we have met the current federal health standards for ozone pollution and the Environmental Protection Agency recently approved our dust control plan.
+ - Safety on our highways has improved significantly, with the help of the Legislature and the media.
+ - Arizona now has one of the most innovative systems of financing school construction in the nation.
+ - Arizona is a national leader in school choice with both charter schools and tuition tax credits giving parents and their children more school choices than ever before.
+ - During the last regular session and the most recent special session, measures that I see as little more than Band-Aids were applied to three health programs in the state.
+
+22 quotes

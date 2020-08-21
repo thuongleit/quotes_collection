@@ -1,0 +1,67 @@
+ - God, I hate my family, these people I never chose to love, but love all the same.
+ - It is very hard to trace the effect of words on a life.
+ - The way to write a book is to actually write a book. A pen is useful, typing is also good. Keep putting words on the page.
+ - People think motherhood involves a lot of domestic labor, and it doesn’t. It involves being nice to your children as often as possible. That’s part of my trick. I don’t have that anxiety about meeting their needs.
+ - The truth. The dead want nothing else. It is the only thing that they require.
+ - The only way to write a book, I’m fond of telling people, is to actually write a book. That’s how you write a book.
+ - When you find yourself alone, or in a transition, you dream more. These are also the times when you read books.
+ - If you try to control it too much, the book is dead. You have to let it fall apart quite early on and let it start doing its own thing. And that takes nerve, not to panic that the book you were going to write is not the book you will have at the end of the day.
+ - Only bad writers think that their work is really good.
+ - Description is hard. Remember that all description is an opinion about the world. Find a place to stand.
+ - I do wish I could write like some of the American women, who can be clever and heartfelt and hopeful; people like Lorrie Moore and Jennifer Egan. But Ireland messed me up too much, I think, so I can’t.
+ - I find being Irish quite a wearing thing. It takes so much work because it is a social construction. People think you are going to be this, this, and this.
+ - I am interested in silences.
+ - To be able to have the space to sit down and write has always been my central policy.
+ - A novel is written not to be judged, but experienced.
+ - People do not change, they are merely revealed.
+ - Remember, if you sit at your desk for 15 or 20 years, every day, not counting weekends, it changes you. It just does. It may not improve your temper, but it fixes something else. It makes you more free.
+ - I became a full-time writer in 1993 and have been very happy, insofar as anybody is, since.
+ - I’m quite interested in the absolute roots of narrative, why we tell stories at all: where the monsters come from.
+ - No woman that I know is capable of leaving her child down for thirty seconds. She can’t walk away without making sure that everything is absolutely as secure and safe for her child as can be.
+ - Cats, I always think, only jump into your lap to check if you are cold enough, yet, to eat.
+ - I think you know everything at eight. But is is hidden from you, sealed up, in a way you have to cut yourself open to find.
+ - Write whatever way you like. Fiction is made of words on a page; reality is made of something else. It doesn’t matter how “real” your story is, or how “made up”: what matters is its necessity.
+ - I have a small room to write in. One wall is completely covered in books. And I face the window with the curtain closed to stop the light hitting the computer.
+ - I think it’s very important to write a demythologized woman character. My characters are flawed. They are no better than they should be.
+ - I work at the sentences. Many of the things people find distinctive about my writing, I think of as natural.
+ - I do not believe in evil- I believe that we are human and fallible, that we things and spoil them in an ordinary way.
+ - I’m really lucky with the people around me. They know me, so they don’t confuse the issues, really. They know what a book is and they know who I am and they know the difference between the two.
+ - Try to be accurate about stuff.
+ - Writing is not my problem, it is my solution.
+ - Having kids is very difficult to do on your own, and it’s really crazy difficult to think you’re doing it as a team and to find out that you’re not actually part of a team.
+ - There are about as many ways to be dead as there are to be alive. People linger in different ways, both publicly and privately.
+ - Nothing had happened yet in my life except the need to get out of it.
+ - I do not think we remember our family in any real sense. We live in them instead.
+ - In more static societies, like Ireland, you can tell where a person is from by their surname, or where their grandparents are from.
+ - Story is about pulling the reader in and a plot is a more externalized mechanism of revelation. A plot is more antic, more performative, and less intimate. When you’re telling a story you’re telling it into someone’s ear.
+ - One of the reasons I write is I like being surprised.
+ - We have lost the art of public tenderness, these small gestures of wiping and washing; we have forgotten how abjectly the body welcomes a formal touch.
+ - I write anywhere – when I have an idea, it’s hard not to write. I used to be kind of precious about where I wrote. Everything had to be quiet and I couldn’t be disturbed; it really filled my day.
+ - I was raised in a very old fashioned Ireland where women were reared to be lovely.
+ - Resistless change, when powerless to improve, Can only mar.
+ - People whose lives are upside down often read fiction. When you’re not sure where you’ll end up or how you are going to be, and you’re looking for some way forward, fiction is a great friend.
+ - I have no place left to live but in my own heart.
+ - I think writers worry that you might not exist in some strange way if you’re not writing.
+ - I can’t think of anything you might say about Irish people that is absolutely true.
+ - We do not always like the people we love- we do not always have that choice.
+ - When I’m working, I’m not so much disciplined as obsessive. I have this feeling that I need to clear everything away and get this down.
+ - You write a book and you finish the book. That’s your job done, right? You win the Booker and you have a whole new job. You have to be the thing, right? So instead of writing the story, you somehow are the story. And that I found that sort of terrible.
+ - If you can just actually let the character be for a bit, then you get the right sense.
+ - Sometimes I will spend two or three days not speaking to anyone outside of the immediate family when they come home, and then I find that I’ve been emailing like fury. Once you give in to that silence, it’s quite nice.
+ - I love the characters not knowing everything and the reader knowing more than them. There’s more mischief in that and more room for seriousness, too.
+ - I think young children in the Western middle classes are objects of incredible anxiety.
+ - If you grow up in Ireland and read books then you really are obliged to attempt your own some time. It is not exactly a choice. I still don’t know if I am a writer. Believe me, there are days when I have my doubts.
+ - There are little thoughts in your head that can grow until they eat your entire mind. Just tiny little thoughts – they are like a cancer, there is no telling what triggers the spread, or who will be struck, and why some get it and others are spared.
+ - And, in fact, this is the tale that I would love to write: history is such a romantic place, with its jarveys and urchins and side-buttoned boots. If it would just stay still, I think, and settle down. If it would just stop sliding around in my head.
+ - I never wanted to be mainstream as a writer, but look at what’s happened.
+ - There are men who would do anything, asleep, and I’m not sure what stops them when they wake. I do not know how they draw the line.
+ - I’m very keenly aware that there aren’t very many women writing literary fiction in Ireland and so that gives me a sense that what I say matters, in some small way.
+ - There is nothing as tentative as an old woman’s touch; as loving or as horrible.
+ - I’ve heard people, usually writers, say that no one wrote a great book after winning the Booker, but I honestly did not feel any big pressure. ‘The Gathering’ did hang over me in that it was darker than I thought at the time.
+ - My kids are supposed to live till they are one hundred. You don’t have to have a perfect house or a perfect relationship with your child or a perfect child, and you yourself do not have to be perfect.
+ - Belief needs something terrible to make it work, I find – blood, nails, a bit of anguish.
+ - The writing day can be, in some ways, too short, but it’s actually a long series of hours, for months at a time, and there is a stillness there.
+ - A drinker does not exist. Whatever they say, it is just the drink talking.
+ - For 10 or 11 years, I had my kids, I wrote four or five books, and I was working all the damn time.
+
+65 quotes

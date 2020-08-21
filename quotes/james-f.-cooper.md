@@ -1,0 +1,86 @@
+ - The expanse of the ocean is seldom seen by the novice with indifference.
+ - The press, like fire, is an excellent servant, but a terrible master.
+ - A soul, – a spark of the never-dying flame that separates man from all the other beings of earth.
+ - Candor is a proof of both a just frame of mind, and of a good tone of breeding. It is a quality that belongs equally to the honest man and to the gentleman.
+ - The affairs of life embrace a multitude of interests, and he who reasons in any one of them, without consulting the rest, is a visionary unsuited to control the business of the world.
+ - On the human imagination, events produce the effects of time. Thus, he who has travelled far and seen much, is apt to fancy that he has lived long; and the history that most abounds in important incidents, soonest assumes the aspect of antiquity.
+ - New York is essentially national in interest, position, pursuits. No one thinks of the place as belonging to a particular state, but to the United States.
+ - Chingachgook grasped the hand that, in the warmth of feeling, the scout had stretched across the fresh earth, and in that attitude of friendship these intrepid woodsmen bowed their heads together, while scalding tears fell to their feet, watering the grave of Uncas like drops of falling rain.
+ - Should we distrust the man because his manners are not our manners, and that his skin is dark?
+ - History, like love, is so apt to surround her heroes with an atmosphere of imaginary brightness.
+ - Hebrews. This book is much superior to most of the writings attributed to St. Paul, though passages in the other books are very admirable.
+ - What will the axemen do, when they have cut their way from sea to sea?
+ - The vulgar charge that the tendency of democracies is to leveling, meaning to drag all down to the level of the lowest, is singularly untrue; its real tendency being to elevate the depressed to a condition not unworthy of their manhood.
+ - All greatness of character is dependent on individuality. The man who has no other existence than that which he partakes in common with all around him, will never have any other than an existence of mediocrity.
+ - There is a destiny in war, to which a brave man knows how to submit with the same courage that he faces his foes.
+ - It is a governing principle of nature, that the agency which can produce most good, when perverted from its proper aim, is most productive of evil.
+ - It is the fate of all things to ripen, and then to decay.
+ - There is a pleasure in the pathless woods, There is a rapture on the lonely shore.
+ - On the human imagination events produce the effects of time.
+ - Advice is not a gift, but a debt that the old owe to the young.
+ - No civilized society can long exist, with an active power in its bosom that is stronger than the law.
+ - Apathy is the great requisite for the station; for woe betide the wretch who fancies any modicum of zeal.
+ - It is seldom men think of death in the pride of their health and strength.
+ - God has given the salt lick to the deer; and He has given to man, red-skin and white, the delicious spring at which to slake his thirst.
+ - Many words are in a state of mutation, the pronunciation being unsettled even in the best society, a result that must often arise where language is as variable and undetermined as the English.
+ - I do not pretend that all that white men do is properly Christianized...
+ - Ignorance and superstition ever bear a close and mathematical relation to each other.
+ - All greatness of character is dependent on individuality.
+ - Some changes of language are to be regretted, as they lead to false inferences, and society is always a loser by mistaking names for things.
+ - The sun had not risen, but the vault of heaven was rich with the winning, softness that “brings and shuts the day,” while the whole air was filled with the carols of birds, the hymns of the feathered tribe.
+ - Friendship that flows from the heart cannot be frozen by adversity, as the water that flows from the spring cannogt congeal in winter.
+ - It is better for a man to die at peace with himself than to live haunted by an evil conscience!
+ - If the newspapers are useful in overthrowing tyrants, it is only to establish a tyranny of their own.
+ - A single glance at the map will make the reader acquainted with the position of the eastern coast of the island of Great Britain, as connected with the shores of the opposite continent.
+ - The air, the water and the ground are free gifts to man and no one has the power to portion them out in parcels. Man must drink and breathe and walk and therefore each man has a right to his share of each.
+ - In America, it is indispensable that every well wisher of true liberty should understand that acts of tyranny can only proceed from the publick. The publick, then, is to be watched, in this country, as, in other countries kings and aristocrats are to be watched.
+ - As reason and revelation both tell us that this state of being is but a preparation for another of a still higher and more spiritual order, all the interests of life are of comparatively little importance, when put in the balance against the future.
+ - Property is desirable as the ground work of moral independence, as a means of improving the faculties, and of doing good to others, and as the agent in all that distinguishes the civilized man from the savage.
+ - Slavery is no more sinful, by the Christian code, than it is sinful to wear a whole coat, while another is in tatters, to eat a better meal than a neighbor, or otherwise to enjoy ease and plenty, while our fellow creatures are suffering and in want.
+ - Party leads to vicious, corrupt and unprofitable legislation, for the sole purpose of defeating party.
+ - No star seemed less than what science has taught us that it is.
+ - No one, who is familiar with the bustle and activity of an American commercial town, would recognise, in the repose which now reigns in the ancient mart of Rhode Island, a place that, in its day, has been ranked amongst the most important ports along the whole line of our extended coast.
+ - The sight of a coward’s blood can never make a warrior tremble.
+ - The tendency of democracies is, in all things, to mediocrity.
+ - Hope is the most treacherous of all human fancies.
+ - We are all human, and all do wrong.
+ - Perfection is always found in maturity, whether it be in the animal or in the intellectual world. Reflection is the mother of wisdom, and wisdom the parent of success.
+ - These families, you know, are our upper crust, not upper ten thousand.
+ - Battles, unlike bargains, are rarely discussed in society.
+ - The very existence of government at all, infers inequality. The citizen who is preferred to office becomes the superior of those who are not, so long he is the repository of power.
+ - The novice in the military art flew from point to point, retarding his own preparations by the excess of his violent and somewhat distempered zeal; while the more practiced veteran made his arrangements with a deliberation that scorned every appearance of haste.
+ - They who have reasoned ignorantly, or who have aimed at effecting their personal ends by flattering the popular feeling, have boldly affirmed that ‘one man is as good as another;’ a maxim that is true in neither nature, revealed morals, nor political theory.
+ - The minority of a country is never known to agree, except in its efforts to reduce and oppress the majority.
+ - The ability to discriminate between that which is true and that which is false is one of the last attainments of the human mind.
+ - Equality, in a social sense, may be divided into that of condition and that of rights. Equality of condition is incompatible with civilization, and is found only to exist in those communities that are but slightly removed from the savage state. In practice, it can only mean a common misery.
+ - I’ve heard it said that there are men who read in books to convince themselves there is a God. I know not but man may so deform his works in the settlements, as to leave that which is so clear in the wilderness a matter of doubt among traders and priests.
+ - It’s wisest always to be so clad that our friends need not ask us for our names.
+ - The listeners got some such insights into their past lives, as one gets into the darker parts of the woods, when a stray gleam of sunshine finds its way down to the roots of the trees.
+ - Contact with the affairs of state is one of the most corrupting of the influences to which men are exposed.
+ - Individuality is the aim of political liberty. By leaving to the citizen as much freedom of action and of being as comports with order and the rights of others, the institutions render him truly a freeman. He is left to pursue his means of happiness in his own manner.
+ - Near the centre of that State of New York lies an extensive district of country, whose surface is a succession of hills and dales, or, to speak with greater deference to geographical definitions, of mountains and valleys.
+ - A refined simplicity is the characteristic of all high bred deportment, in every country, and a considerate humanity should be the aim of all beneath it.
+ - Whenever the government of the United States shall break up, it will probably be in consequence of a false direction having been given to public opinion.
+ - Superstition is a quality that seems indigenous to the ocean.
+ - The common faults of American language are an ambition of effect, a want of simplicity, and a turgid abuse of terms.
+ - It is a misfortune that necessity has induced men to accord greater license to this formidable engine, in order to obtain liberty, than can be borne with less important objects in view; for the press, like fire, is an excellent servant, but a terrible master.
+ - America owes most of its social prejudices to the exaggerated religious opinions of the different sects which were so instrumental in establishing the colonies.
+ - Much was said and written, at the time, concerning the policy of adding the vast regions of Louisiana, to the already immense, and but half-tenanted territories of the United-States.
+ - Liberty is not a matter of words, but a positive and important condition of society. Its greatest safeguard after placing its foundations in a popular base, is in the checks and balances imposed on the public servants.
+ - If we would have civilization and the exertion indispensable to its success, we must have property; if we have property, we must have its rights; if we have the rights of property, we must take those consequences of the rights of property which are inseparable from the rights themselves.
+ - Christ, in the parable of the vine dressers, has taught us a sublime lesson of justice, by showing that to the things which are not our own, we can have no just claim.
+ - Aristocracy: A combination of many powerful men, for the purpose of maintaining their own particular interests. It is consequently a concentration of all the most effective parts of a community for a given end, hence its energy, efficiency and success.
+ - It is a besetting vice of democracies to substitute public opinion for law. This is the usual form in which masses of men exhibit their tyranny.
+ - A monarchy is the most expensive of all forms of government, the regal state requiring a costly parade, and he who depends on his own power to rule, must strengthen that power by bribing the active and enterprising whom he cannot intimidate.
+ - Individuality is the aim of political liberty.
+ - Everybody says it, and what everybody says must be true.
+ - The disposition of all power is to abuses, nor does it at all mend the matter that its possessors are a majority.
+ - Death is appalling to those of the most iron nerves, when it comes quietly and in the stillness and solitude of night.
+ - Whatever may be the changes produced by man, the eternal round of the seasons is unbroken.
+ - The sublimity connected with vastness, is familiar to every eye.
+ - Systems are to be appreciated by their general effects, and not by particular exceptions.
+ - The flesh is sweeter, where the creature has some chance for its life; for that reason, I always use a single ball, even if it be at a bird or a squirrel; besides, it saves lead, for, when a body knows how to shoot, one piece of lead is enough for all, except hard-lived animals.
+ - The American doctrinaire is the converse of the American demagogue, and, in this way, is scarcely less injurious to the public. The first deals in poetry, the last in cant. He is as much a visionary on one side, as the extreme theoretical democrat is a visionary on the other.
+ - The tendency of democracies is, in all things, to mediocrity, since the tastes, knowledge, and principles of the majority form the tribunal of appeal.
+
+84 quotes

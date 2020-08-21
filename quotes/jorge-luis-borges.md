@@ -1,0 +1,239 @@
+ - I have always imagined that Paradise will be a kind of library.
+ - Don’t talk unless you can improve the silence.
+ - Time can’t be measured in days the way money is measured in pesos and centavos, because all pesos are equal, while every day, perhaps every hour, is different.
+ - The future is inevitable and precise, but it may not occur. God lurks in the gaps.
+ - So plant your own gardens and decorate your own soul, instead of waiting for someone to bring you flowers.
+ - Writing is nothing more than a guided dream.
+ - Life itself is a quotation.
+ - Time is the substance from which I am made. Time is a river which carries me along, but I am the river; it is a tiger that devours me, but I am the tiger; it is a fire that consumes me, but I am the fire.
+ - La duda es uno de los nombres de la inteligencia.
+ - When writers die they become books, which is, after all, not too bad an incarnation.
+ - Being with you and not being with you is the only way I have to measure time.
+ - All writing is dreaming.
+ - The mind was dreaming. The world was its dream.
+ - The original is unfaithful to the translation.
+ - Doubt is one of the names of intelligence.
+ - I cannot sleep unless I am surrounded by books.
+ - It only takes two facing mirrors to build a labyrinth.
+ - No one is anyone, one single immortal man is all men. Like Cornelius Agrippa, I am god, I am hero, I am philosopher, I am demon and I am world, which is a tedious way of saying that I do not exist.
+ - Nothing is built on stone; all is built on sand, but we must build as if the sand were stone.
+ - A book is not an isolated being: it is a relationship, an axis of innumerable relationships.
+ - I saw all the mirrors on earth and none of them reflected me.
+ - Time forks perpetually toward innumerable futures.
+ - I am not sure that I exist, actually. I am all the writers that I have read, all the people that I have met, all the women that I have loved; all the cities I have visited.
+ - I can give you my loneliness, my darkness, the hunger of my heart, I am trying to bribe you with uncertainty, with danger, with defeat.
+ - The worst labyrinth is not that intricate form that can entrap us forever, but a single and precise straight line.
+ - What you really value is what you miss, not what you have.
+ - We are our memory, we are that chimerical museum of shifting shapes, that pile of broken mirrors.
+ - Democracy is an abuse of statistics.
+ - There are those who seek the love of a woman to forget her, to not think about her.
+ - The tango is a direct expression of something that poets have often tried to state in words: the belief that a fight may be a celebration.
+ - Being an agnostic means all things are possible, even God, even the Holy Trinity. This world is so strange that anything may happen, or may not happen. Being an agnostic makes me live in a larger, a more fantastic kind of world, almost uncanny. It makes me more tolerant.
+ - Truth never penetrates an unwilling mind.
+ - In vain have oceans been squandered on you, in vain the sun, wonderfully seen through Whitman’s eyes. You have used up the years and they have used up you, and still, and still, you have not written the poem.
+ - While we are asleep in this world, we are awake in another one.
+ - The sea is an idiom I cannot decipher.
+ - I think of reading a book as no less an experience than travelling or falling in love.
+ - You who read me, are You sure of understanding my language?
+ - The dictionary is based on the hypothesis – obviously an unproven one – that languages are made up of equivalent synonyms.
+ - Soccer is popular because stupidity is popular.
+ - Everything touches everything.
+ - Estoy solo y no hay nadie en el espejo.
+ - A man sets himself the task of portraying the world. Shortly before he dies he discovers that this patient labyrinth of lines is a drawing of his own face.
+ - May Heaven exist, even if my place is Hell.
+ - If space is infinite, we may be at any point in space. If time is infinite, we may be at any point in time.
+ - The Falklands thing was a fight between two bald men over a comb.
+ - There’s no need to build a labyrinth when the entire universe is one.
+ - The word happiness exists in every language; it is plausible the thing itself exists.
+ - Any life, however long and complicated it may be, actually consists of a single moment – the moment when a man knows forever more who he is.
+ - Reading is an activity subsequent to writing: more resigned, more civil, more intellectual.
+ - Let others pride themselves about how many pages they have written; I’d rather boast about the ones I’ve read.
+ - God must not engage in theology. The writer must not destroy by human reasonings the faith that art requires of us.
+ - The visible universe was an illusion or, more precisely, a sophism. Mirrors and fatherhood are abominable because they multiply it and extend it.
+ - In all fiction, when a man is faced with alternatives he chooses one at the expense of others.
+ - In my next life I will try to commit more errors.
+ - Any life is made up of a single moment, the moment in which a man finds out, once and for all, who he is.
+ - What man of us has never felt, walking through the twilight or writing down a date from his past, that he has lost something infinite?
+ - I saw a sunset in Queretaro that seemed to reflect the colour of a rose in Bengal.
+ - Beyond my anxiety, beyond this writing, the universe waits, inexhaustible, inviting.
+ - Censorship is the mother of metaphor.
+ - His life, measured in space and time, will take up a mere few lines, which my ignorance will abbreviate further.
+ - We have stopped believing in progress. What progress that is !
+ - The mightiest love was granted him Love that does not expect to be loved.
+ - The machinery of the world is far too complex for the simplicity of men.
+ - We forget that we are all dead men conversing with dead men.
+ - Personally, I am a hedonistic reader; I have never read a book merely because it was ancient. I read books for the aesthetic emotions they offer me, and I ignore the commentaries and criticism.
+ - The future has no other reality than as present hope, and the past is no more than present memory.
+ - You may win your heart’s desire, but in the end you’re cheated of it by death.
+ - To fall in love is to create a religion that has a fallible god.
+ - Happy are the beloved and the lovers and those who can live without love.
+ - There is nothing in the world that is not mysterious, but the mystery is more evident in certain things than in others: in the sea, in the eyes of the elders, in the color yellow, and in music.
+ - From my weakness, I drew strength that never left me.
+ - He thought that the rose was to be found in its own eternity and not in his words; and that we may mention or allude to a thing, but not express it.
+ - All literature, is, finally autobiographical.
+ - On the floor, and hanging on to the bar, squatted an old man, immobile as an object. His years had reduced and polished him as water does a stone or the generations of men do a sentence.
+ - Besides, rereading, not reading, is what counts.
+ - There is no intellectual exercise which is not ultimately useless.
+ - I live in a grey world, rather like the silver screen world. But yellow stands out.
+ - I thought that a man can be an enemy of other men, of the moments of other men, but not of a country: not of fireflies, words, gardens, streams of water, sunsets.
+ - The central fact of my life has been the existence of words and the possibility of weaving those words into poetry.
+ - Writing long books is a laborious and impoverishing act of foolishness: expanding in five hundred pages an idea that could be perfectly explained in a few minutes. A better procedure is to pretend that those books already exist and to offer a summary, a commentary.
+ - To be immortal is commonplace; except for man, all creatures are immortal, for they are ignorant of death; what is divine, terrible, incomprehensible, is to know that one is immortal.
+ - When I feel I’m going to write something, then I just am quiet and I try to listen. Then something comes through. And I do what I can in order not to tamper with it.
+ - To die for a religion is easier than to live it absolutely.
+ - Every man should be capable of all ideas.
+ - Every writer creates his own precursors. His work modifies our conception of the past, as it will modify the future.
+ - What a writer wants to do is not what he does.
+ - That is what always happens: we never know whether we are victors or whether we are defeated.
+ - Like all writers, he measured the achievements of others by what they had accomplished, asking of them that they measure him by what he envisaged or planned.
+ - For me, beauty is a physical sensation, something we feel with our whole body. It is not the result of judgement. We do not arrive at it by way of rules. We either feel beauty or we don’t.
+ - Reality favors symmetry.
+ - Reality is partial to symmetry and slight anachronisms.
+ - We have shared out, like thieves, the amazing treasures of days and nights.
+ - Man’s memory shapes Its own Eden within.
+ - Heaven and hell seem out of proportion to me: the actions of men do not deserve so much.
+ - Leaving behind the babble of the plaza, I enter the Library. I feel, almost physically, the gravitation of the books, the enveloping serenity of order, time magically dessicated and preserved.
+ - The minotaur more than justifies the existence of the labyrinth .
+ - Fame is a form, perhaps the worst form, of incomprehension.
+ - Unlike the novel, a short story may be, for all purposes, essential.
+ - Thus my life is a flight and I lose everything and everything belongs to oblivion, or to him.
+ - To bless thine enemy is a good way to satisfy thy vanity.
+ - Once I am dead, there will be no lack of pious hands to throw me over the railing; my grave will be the fathomless air; my body will sink endlessly and decay and dissolve in the wind generated by the fall, which is infinite.
+ - Art is endless like a river flowing, passing, yet remaining...
+ - One concept corrupts and confuses the others. I am not speaking of the Evil whose limited sphere is ethics; I am speaking of the infinite.
+ - He was very religious; he believed that he had a secret pact with God which exempted him from doing good in exchange for prayers and piety.
+ - There are no moral or intellectual merits. Homer composed the Odyssey; if we postulate an infinite period of time, with infinite circumstances and changes, the impossible thing is not to compose the Odyssey, at least once.
+ - Reality is not always probable, or likely.
+ - My father and he had one of those English friendships which begins by avoiding the intimacies and eventually eliminates speech altogether.
+ - The certainty that everything has already been written annuls us, or renders us phantasmal.
+ - What I’m really concerned about is reaching one person. And that person may be myself for all I know.
+ - To arrange a library is to practice in a quiet and modest way the art of criticism.
+ - Let neither tear nor reproach besmirch this declaration of the mastery of God who, with magnificent irony, granted me both the gift of books and the night.
+ - The task of art is to transform what is continuously happening to us, to transform all of these things into symbols, into music, into something which can last in man’s memory. That is our duty. If we don’t fulfill it, we feel unhappy.
+ - It is clear that there is no classification of the Universe that is not arbitrary and full of conjectures. The reason for this is very simple: we do not know what kind of thing the universe is.
+ - It means much to have loved, to have been happy, to have laid my hand on the living Garden, even for a day.
+ - In truth, the Library includes all verbal structures, all variations permitted by the twenty-five orthographical symbols, but not a single example of absolute nonsense.
+ - Dictatorships foster oppression, dictatorships foster servitude, dictatorships foster cruelty; more abominable is the fact that they foster idiocy.
+ - Poetry springs from something deeper; it’s beyond intelligence.
+ - I wonder if I have woven through dreams the sexual strife. I don’t think so. But after all, my business is to weave dreams. I suppose I may be allowed to choose the material.
+ - Life and death have been lacking in my life.
+ - A writer – and, I believe, generally all persons – must think that whatever happens to him or her is a resource.
+ - It may be that universal history is the history of the different intonations given a handful of metaphors.
+ - Canada is so far away it hardly exists.
+ - We are as ignorant of the meaning of the dragon as we are of the meaning of the universe.
+ - Time, which despoils castles, enriches verses.
+ - All theories are legitimate, no matter. What matters is what you do with them.
+ - For myth is at the beginning of literature, and also at its end.
+ - That one individual should awaken in another memories that belong to still a third is an obvious paradox.
+ - The exercise of letters is sometimes linked to the ambition to contruct an absolute book, a book of books that includes the otherslike a Platonic archetype, an object whose virtues are not diminished by the passage of time.
+ - I suppose identity depends on memory. And if my memory is blotted out, then I wonder if I exist – I mean, if I am the same person. Of course, I don’t have to solve that problem. It’s up to God, if any.
+ - The truth is that we live out our lives putting off all that can be put off; perhaps we all know deep down that we are immortal and that sooner or later all men will do and know all things.
+ - Blindness has not been for me a total misfortune; it should not be seen in a pathetic way. It should be seen as a way of life: one of the styles of living.
+ - I know of one semibarbarous zone whose librarians repudiate the “vain and superstitious habit” of trying to find sense in books, equating such a quest with attempting to find meaning in dreams or in the chaotic lines on the palms of one’s hand.
+ - I ask of any God, of any gods, that if they give immortality, I hope to be granted oblivion also.
+ - I don’t think there’s any essential difference, at least for me, between writing poetry and writing prose.
+ - It also occurred to him that throughout history, humankind has told two stories: the story of a lost ship sailing the Mediterranean seas in quest of a beloved isle, and the story of a god who allows himself to be crucified on Golgotha.
+ - When I wake up, I wake to something worse. It’s the astonishment of being myself.
+ - Many people have thought of me as a thinker, as a philosopher, or even as a mystic. Well the truth is that though I have found reality perplexing enough – in fact, I find it gets more perplexing all the time – I never think of myself as a thinker.
+ - Captivated by its discipline, humanity forgets and goes on forgetting that it is the discipline of chess players, not of angels.
+ - You have wakened not out of sleep, but into a prior dream, and that dream lies within another, and so on, to infinity, which is the number of grains of sand. The path that you are to take is endless, and you will die before you have truly awakened.
+ - I secretly assumed, as poets do, The duty on me to define the moon.
+ - Lully’s machine, Mill’s fear and Lasswitz’s chaotic library can be the subject of jokes, but they exaggerate a propensity which is common: making metaphysics and the arts into a kind of play with combinations.
+ - I cannot walk through the suburbs in the solitude of the night without thinking that the night pleases us because it suppresses idle details, just as our memory does.
+ - The time for your labor has been granted.
+ - When one confesses to an act, one ceases to be an actor in it and becomes its witness, becomes a man that observes and narrates it and no longer the man that performed it.
+ - Art always opts for the individual, the concrete; art is not Platonic.
+ - Your unforgivable sins do not allow you to see my splendor.
+ - The art of writing is mysterious, the opinions we hold are ephemeral...
+ - My father gave me free run of his library. When I think of my boyhood, I think in terms of the books I read.
+ - In adultery, there is usually tenderness and self-sacrifice; in murder, courage; in profanation and blasphemy, a certain satanic splendour. Judas elected those offences unvisited by any virtues: abuse of confidence and informing.
+ - The universe is composed of an indefinite and perhaps infinite number of hexagonal galleries.
+ - In general, every country has the language it deserves.
+ - I will pause to consider this eternity from which the subsequent ones derive.
+ - I foresee that man will resign himself each day to new abominations, and soon that only bandits and soldiers will be left.
+ - Poetry remembers that it was an oral art before it was a written art.
+ - I think that the reader should enrich what he is reading. He should misunderstand the text; he should change it into something else.
+ - I would rather like to think of God as being a kind of adventurer – even as Wells thought about him – or perhaps as something within us making for some unknown purpose.
+ - Every novel is an ideal plane inserted into the realm of reality.
+ - One literature differs from another, either before or after it, not so much because of the text as for the manner in which it is read.
+ - When you come right down to it, opinions are the most superficial things about anyone.
+ - He constructed a vast labyrinthine of periods, made impassable by the piling-up of clauses upon clauses-clauses in which oversight and bad grammar seemed manifestations of disdain.
+ - I never reread what I’ve written. I’m far too afraid to feel ashamed of what I’ve done.
+ - I might accept immortality, if I had to do it. But I would prefer – if there is any afterlife – to know nothing whatever about Borges, about his experiences in this world.
+ - A writer should have another lifetime to see if he’s appreciated.
+ - Poets, like the blind, can see in the dark.
+ - In fact I’m in too much of a mental muddle to know where I am – an idealist or not. I’m a mere man of letters, and I do what I can with those subjects.
+ - Then I reflect that all things happen, happen to one, precisely now. Century follows century, and things happen only in the present. There are countless men in the air, on land and at sea, and all that really happens happens to me.
+ - The future is as irrevocable as an inflexible yesterday.
+ - Death is just infinity closing in.
+ - When you reach my age, you realize you couldn’t have done things very much better or much worse than you did them in the first place.
+ - I have known uncertainty: a state unknown to the Greeks.
+ - As the end approaches, there are no longer any images from memory – there are only words.
+ - I think most people are more important than their opinions.
+ - This felicitous supposition declared that there is only one Individual, and that this indivisible Individual is every one of the separate beings in the universe, and that these beings are the instruments and masks of divinity itself.
+ - My undertaking is not difficult, essentially. I should only have to be immortal to carry it out.
+ - Mir Bahadur Ali is, as we have seen, incapable of evading the most vulgar of art’s temptations: that of being a genius.
+ - The poverty of yesterday was less squalid than the poverty we purchase with our industry today. Fortunes were smaller then as well.
+ - The steps a man takes from the day of his birth until that of his death trace in time an inconcievable figure. The Divine Mind intuitively grasps that form immediately, as men do a triangle.
+ - I have sometimes suspected that the only thing that holds no mystery is happiness, because it is its own justification.
+ - The possibilities of the art of combination are not infinite, but they tend to be frightful.
+ - I have no way of knowing whether the events that I am about to narrate are effects or causes.
+ - Another school declares that all time has already transpired and that our life is only the crepuscular and no doubt falsified and mutilated memory or reflection of an irrecoverable process.
+ - We accept reality so readily – perhaps because we sense that nothing is real.
+ - I don’t think esthetic schools are important. What is important is the use that is made of them, or whatever the individual writer does.
+ - Translations are a partial and precious documentation of the changes the text suffers.
+ - This web of time – the strands of which approach one another, bifurcate, intersect or ignore eachother through the centuries – embrace every posibility.
+ - Only in the present do things happen.
+ - What will die with me when I die, what pathetic or fragile form will the world lose?
+ - My books standing there on the shelf do not know that I have written them.
+ - Israelites, Christians and Muslims profess immortality, but the veneration they render this world proves they believe only in it, since they destine all other worlds, in infinite number, to be its reward or punishment.
+ - My advanced age has taught me the resignation of being Borges.
+ - A writer’s work is the product of laziness.
+ - I believe that in time we will have reached the point where we will deserve to be free of government.
+ - There is an hour of the afternoon when the plain is on the verge of saying something. It never says, or perhaps it says it infinitely, or perhaps we do not understand it, or we understand it and it is untranslatable as music.
+ - Reality is not always probable, or likely. But if you’re writing a story, you have to make it as plausible as you can, because if not, the reader’s imagination will reject it.
+ - Chang Tzu tells us of a persevering man who after three laborious years mastered the art of dragon-slaying. For the rest of his days, he had not a single opportunity to test his skills.
+ - As to my writing short pieces, there are two reasons I can give you. The first is my invincible laziness. The second is that I’ve always been fond of short stories, and it always took me some trouble to get through a novel.
+ - How can we manage to illuminate the pathos of our lives?
+ - Loneliness does not worry me; life is difficult enough, putting up with yourself and with your own habits.
+ - I owe the discovery of Uqbar to the conjunction of a mirror and an encyclopedia.
+ - Time is the substance of which we are made.
+ - It’s a shame that we have to choose between two such second-rate countries as the USSR and the USA.
+ - Literature is not exhaustible, for the sufficient and simple reason that a single book is not.
+ - The central problem of novel-writing is causality.
+ - In the course of a life devoted less to living than to reading, I have verified many times that literary intentions and theories are nothing more than stimuli and that the final work usually ignores or even contradicts them.
+ - Many of the characters are fools and they’re always playing tricks on me and treating me badly.
+ - I came to the idea of how fine it would be to think of an encyclopedia of an actual world, and then of an encyclopedia, a very rigorous one of course, of an imaginary world, where everything should be linked.
+ - In the order of literature, as in others, there is no act that is not the coronation of an infinite series of causes and the source of an infinite series of effects.
+ - Imprecision is tolerable and verisimilar in literature, because we always tend towards it in life.
+ - The mathematical sciences wield their particular language made of digits and signs, no less subtle than any other.
+ - Each thing implies the universe.
+ - I have no personal system of philosophy. I never attempt to do that. I am merely a man of letters.
+ - The heresies we should fear are those which can be confused with orthodoxy.
+ - The flattery of posterity is not worth much more than contemporary flattery, which is worth nothing.
+ - Time broadens the scope of verses and I know of some which, like music, are everything for all men.
+ - If a writer disbelieves what he is writing, then he can hardly expect his reader to believe it.
+ - It seemed incredible to me that day without premonitions or symbols should be the one of my inexorable death .
+ - A system is nothing more than the subordination of all aspects of the universe to any one of such aspects.
+ - I have always come to life after coming to books.
+ - The European and the North American consider that a book that has been awarded any kind of prize must be good; the Argentine allows for the possibility that the book might not be bad, despite the prize.
+ - We have a very precise image – an image at times shameless – of what we have lost, but we are ignorant of what may follow or replace it.
+ - The things that are said in literature are always the same. What is important is the way they are said.
+ - There is no point in being overwhelmed by the appalling total of human sufferring; such a total does not exist. Neither poverty nor pain is accumulable.
+ - As a boy, I used to marvel that the letters in a closed book did not get scrambled and lost overnight.
+ - When I write, I do it urged by an intimate necessity. I don’t have in mind an exclusive public, or a public of multitudes, I don’t think in either thing. I think about expressing what I want to say. I try to do it in the simplest way possible.
+ - Whoever would undertake some atrocious enterprise should act as if it were already accomplished should impose upon himself a future as irrevocable as the past.
+ - I’m not interested in the fact that a writer may label himself as being intellectual or anti-intellectual. l’m really interested in the stuff he’s turning out.
+ - The execution was set for the 29th of March, at nine in the morning. This delay was due to a desire on the part of the authorities to act slowly and impersonally, in the manner of planets or vegetables.
+ - No one is a poet from eight to twelve and from two to six. Whoever is a poet is one always, and continually assaulted by poetry.
+ - Art is very mysterious. I wonder if you can really do any damage to art. I think that when we’re writing, something comes through or should come through, in spite of our theories. So theories are not really important.
+ - Films are even stranger, for what we are seeing are not disguised people but photographs of disguised people, and yet we believe them while the film is being shown.
+ - I am attracted to fantastic writing, and fantastic reading, of course. But I think things that we call fantastic may be real, in the sense of being real symbols.
+ - The man who acquires an encyclopedia does not thereby acquire every line, every paragraph, every page, and every illustration; he acquires the possibility of becoming familiar with one and another of those things.
+ - Perhaps the apparent favor of the universe is no more than the crocodile grin of a Doberman breathing hard and about to be hungry?
+ - I think it’s all to the good that a writer shouldn’t be too famous. Because, in a country where a writer may be famous, he may be pandering to the mob, celebrity and so on.
+ - Like all those possessing a library, Aurelian was aware that he was guilty of not knowing his in its entirety.
+ - Time is a fire that consumes me, but I am the fire.
+ - I am almost sure to be blotted out by death, but sometimes I think it is not impossible that I may continue to live in some other manner after my physical death. Or, as Hamlet wonders, what dreams will come when we leave this body?
+
+237 quotes

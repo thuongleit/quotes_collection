@@ -1,0 +1,153 @@
+ - Be careful what you wish for. There’s always a catch.
+ - Rumors are spread by jealous people.
+ - Censorship is the child of fear and the father of ignorance.
+ - You must walk alone to find your soul.
+ - When people don’t express themselves, they die one piece at a time.
+ - I wonder how long it would take for anyone to notice if I just stopped talking.
+ - Don’t expect to make a difference unless you speak up for yourself.
+ - You have to know what you stand for, not just what you stand against.
+ - I am beginning to measure myself in strength, not pounds. Sometimes in smiles.
+ - Gym should be illegal. It’s humiliating.
+ - There is no magic cure, no making it all go away forever. There are only small steps upward; an easier day, an unexpected laugh, a mirror that doesn’t matter anymore.
+ - Nothing is perfect. Flaws are interesting. Be the tree.
+ - First thought: It was a dream Second thought: No it wasn’t Third thought: Crap.
+ - This camp is a forge for the army; it’s testing our mettle. Instead of heat and hammer, our trials are cold and hunger. Question is, what are we made of?
+ - I have survived. I am here. Confused, screwed up, but here. So, how can I find my way? Is there a chain saw of the soul, an ax I can take to my memories or fears?
+ - Can’t escape pain, kiddo. Battle through it and you get stronger.
+ - Cold and silence. Nothing quieter than snow. The sky screams to deliver it, a hundred banshees flying on the edge of the blizzard. But once the snow covers the ground, it hushes as still as my heart.
+ - When life sucks, read. They can’t yell at you for that. And if they do, then you can ignore them.
+ - They yell at me because I can’t see what they see. Nobody can explain to me why my eyes work different than theirs.
+ - To keep up appearances, I stomp my room and slam the door.
+ - Art without emotion its like chocolate cake without sugar. It makes you gag.
+ - Gossip is the foul smell from the Devil’s backside.
+ - I want to go to sleep and not wake up, but I don’t want to die. I want to eat like a normal person eats, but I need to see my bones or I will hate myself even more and I might cut my heart out or take every pill that was ever made.
+ - I am getting better at smiling when people expect it.
+ - Melancholy held me hostage, and the bees built a hive of sadness in my soul.
+ - Why not draw naked guys, just to be fair? Naked women is art, naked guys a no-no, I bet. Probably because most painters are men.
+ - I want to go to sleep and not wake up, but I don’t want to die.
+ - It doesn’t hurt. Nothing hurts except the small smiles and blushes that flash across the room like tiny sparrows.
+ - It’s a shame we can’t just admit that we failed family living, sell the house, split up the money, and get on with our lives.
+ - He says a million things without saying a word. I have never heard a more eloquent silence.
+ - My face becomes a Picasso sketch, my body slicing into pieces.
+ - She offered herself to the big, bad wolf and didn’t scream when he took the first bite.
+ - For one moment we are not failed tests and broken condoms and cheating on essays; we are crayons and lunch boxes and swinging so high our sneakers punch holes in the clouds.
+ - I am angry that I starved my brain and that I sat shivering in my bed at night instead of dancing or reading poetry or eating ice cream or kissing a boy...
+ - Do they choose to be so dense? Were they born that way? I have no friends. I have nothing. I say nothing. I am nothing.
+ - Didn’t help to ponder things that were forever gone. It only made a body restless and fill up with bees, all wanting to sting something.
+ - Look at the stupid, poor people. Look at the stupid, poor, burned-out people. Look at the stupid, poor, burned-out people, look at their dead baby. It’s death porn for the masses.
+ - You hurt her by starving yourself, you hurt her with your lies, and by fighting everybody who tries to help you. Emma can only sleep a couple of hours a night now. She’s haunted by nightmares of monsters that eat our whole family. They eat us slowly, she says, so we can feel their sharp teeth.
+ - I open a paperclip and scratch it across the inside of my left wrist. Pitiful. If a suicide attempt is a cry for help, then what is this. A whimper, a peep? I draw little window cracks of blood, etching line after line until it stops hurting.
+ - This is wonderful, wonderful! Be the bird. You are the bird. Sacrifice yourself to abandoned family values...
+ - IT happened. There is no avoiding it, no forgetting. No running away, or flying, or burying, or hiding.
+ - I watch the Eruptions. Mount Dad, long dormant, now considered armed and dangerous. Mount Saint Mom, oozing lava, spitting flame. Warn the villagers to run into the sea.
+ - I need a new friend. I need a friend, period. Not a true friend, nothing close or share clothes or sleepover giggle giggle yak yak. Just a pseudo-friend, disposable friend. Friend as accessory. Just so I don’t feel or look so stupid.
+ - You’re not dead, but you’re not alive, either. You’re a wintergirl.
+ - It was like looking at a knot, knowing it was a knot, but not knowing how to untie it. I had no map for this life.
+ - I am locked into the mirror and there is no door out.
+ - Sometimes being an adult means doing the right thing, even if it’s not what you want.
+ - Apologies mean nothing if you don’t mean it.
+ - I pushed my ragged mouth against the mirror. A thousand crushed bleeding lips pushed back at me...
+ - I cry to let everything out.
+ - I inscribe three lines, hush hush hush, into my skin. Ghosts trickle out.
+ - Think about love, or hate, or joy, or pain- whatever makes you feel something, makes your palms sweat, or your toes curl. Focus on that feeling. When people don’t express themselves, they die on piece at a time.
+ - I lift my arm out of the water. It’s a log. Put it back under and it blows up even bigger. People see the log and call it a twig. They yell at me because I can’t see what they see. Nobody can explain to me why my eyes work different than theirs. Nobody can make it stop.
+ - Having a friend made everything else suck less.
+ - It is easier not to say anything. Shut your trap, button your lip, can it. All that crap you hear on TV about communication and expressing feelings is a lie. Nobody really wants to hear what you have to say.
+ - In one aspect, yes, I believe in ghosts, but we create them. We haunt ourselves.
+ - If I ever form a clan, we’ll be the anti-cheerleaders and walk under the bleacher forming mild acts of mayhem.
+ - I won the wintergirl trip over the border into dangerland.
+ - There is nothing wrong with me. These are really sick people, sick that you can see.
+ - I wish adults would spend less energy freaking out about the cutting itself and work harder to understand what drives kids to self-harm.
+ - I don’t know what I’m doing in the next five minutes and she has the next ten years figured out. I’ll worry about making it out of ninth grade alive. Then I’ll think about a career path.
+ - I am the space between my thighs, daylight shining through.
+ - I breathe in slowly. Food is life. I exhale, take another breath. Food is life. And that’s the problem. When you’re alive, people can hurt you. It’s easier to crawl into a bone cage or a snowdrift of confusion. It’s easier to lock everybody out. But it’s a lie.
+ - I wish I had cancer. I will burn in hell for that, but it’s true.
+ - I am almost a real girl the entire drive home. I went to a diner. I drank hot chocolate and ate french fries. Talked to a guy for a while. Laughed a couple of times. A little like ice-skating for the first time, wobbly, but I did it.
+ - Revision means throwing out the boring crap and making what’s left sound natural.
+ - My first class is biology. I can’t find it and get my first demerit for wandering the hall. It is 8:50 in the morning. Only 699 days and 7 class periods until graduation.
+ - Because I am still a little girl who believes in Santa and the tooth fairy and you.
+ - Oppressive bastards, think they own the place. I told them that karma’s going to kick their asses...
+ - I was good at digging holes. It was the rest of life I sucked at.
+ - School libraries are the foundations of our culture – not luxuries.
+ - I’m learning how to taste everything.
+ - I smile and play pretend through the Morning Show in the kitchen.
+ - I needed to hear the world but didn’t want the world to know I was listening.
+ - Sometimes I think high school is one long hazy activity: if you are tough enough to survive this, they’ll let you become an adult. I hope it’s worth it.
+ - I wanted to pull down a book, open it proper, and gobble up page after page.
+ - It’s easier to floss with barbed wire than admit you like someone in middle school.
+ - You’re not dead, but you’re not alive, either. You’re a wintergirl, Lia-Lia, caught in between the worlds. You’re a ghost with a beat- ing heart. Soon you’ll cross the border and be with me. I’m so stoked. I miss you wicked.
+ - The stars whirled above us and the firecrackers blazed. The moon stood watch as drops of blood fell, careless seeds that sizzled in the snow.
+ - I have entered high school with the wrong hair, the wrong clothes, the wrong attitude. And I don’t have anyone to sit with.
+ - I look at my homely sketch. It doesn’t need anything. Even through the river in my eyes I can see that. It isn’t perfect and that makes it just right.
+ - Used to be that my whole body was my canvas-hot cuts licking my ribs, ladder rungs climbing my arms, thick milkweed stalks shooting up my thighs...
+ - Everybody told me to be a man. Nobody told me how.
+ - I am learning how to be angry and sad and lonely and joyful and excited and afraid and happy.
+ - Eating was hard. Breathing was hard. Living was hardest.
+ - We turned us into wintergirls, and when she tried to leave, I pulled her back into the snow because I was afraid to be alone.
+ - The best time to talk to ghosts is just before the sun comes up.
+ - Can the plural possessive express the feelings in your heart? If you don’t learn art now, you will never learn to breathe!
+ - I want to be in fifth grade again. Now, that is a deep dark secret, almost as big as the other one. Fifth grade was easy – old enough to play outside without Mom, too young to go off the block. The perfect leash length.
+ - Life is for the living. Don’t let the fear of striking out let you from keep you from playing the game.
+ - Too much sun after a Syracuse winter does strange things to your head, makes you feel strong, even if you aren’t.
+ - This is where you can find your soul if you dare. Where you can touch that part of you that you’ve never dared look at before. Do not come here and ask me to show you how to draw a face. Ask me to help you find the wind.
+ - So, she tells me, the words dribbling out with the cranberry muffin crumbs, commas dunked in her coffee.
+ - Homework is not an option. My bed is sending out serious nap rays. I can’t help myself. The fluffy pillows and warm comforter are more powerful than I am. I have no choice but to snuggle under the covers.
+ - CONJUGATE THIS: I cut class, you cut class, he, she, it cuts class. We cut class, they cut class. We all cut class. I cannot say this in Spanish because I did not go to Spanish today. Gracias a dios. Hasta luego.
+ - Who wants to recover? It took me years to get that tiny. I wasn’t sick; I was strong.
+ - I just thought of a great theory that explains everything. When I went to that party, I was abducted by aliens. They have created a fake Earth and fake high school to study me and my reactions. This certainly explains cafeteria food.
+ - She looks like a china doll, observed Grandfather as we departed. I will break just as easily, I muttered.
+ - Memory cuts both ways; it can either provide you with tremendous strength and a foundation to carry you through your life, or it can be a demon that just ruins your present and your future because you can’t let go of the past.
+ - We have to acknowledge that adolescence is that time of transition where we begin to introduce to children that life isn’t pretty, that there are difficult things, there are hard situations, it’s not fair. Bad things happen to good people.
+ - There is something about Christmas that requires a rug rat. Little kids make Christmas fun. I wonder if could rent one for the holidays.
+ - I doubt trees are ever told to ‘be the screwed-up ninth-grader.’
+ - I failed eating, failed drinking, failed not cutting myself into shreds. Failed friendship. Failed sisterhood and daughterhood. Failed mirrors and scales and phone calls. Good thing I’m stable.
+ - I am not going to think about it. It was ugly, but it’s over, and I’m not going to think about it.
+ - I like cheeseburgers too much to be a model.
+ - We swore sacred oaths to be strong and to save the planet and to be friends forever.
+ - I scared myself, because once you’ve thought long and hard enough about doing something that is colossally stupid, you feel like you’ve actually done it, and then you’re never quite sure what your limits are.
+ - The bathroom door swings open. Emma sees the blood painting my skin and the red rivers carved on my body. Emma sees the wet knife, silver and bone. The screams of my little sister shatter mirrors.
+ - The only number that would ever be enough is 0. Zero pounds, zero life, size zero, double-zero, zero point. Zero in tennis is love. I finally get it.
+ - The one good thing about being kind of shy is that nobody bugs you when you want to be left alone.
+ - Bologna girl, that’s me.
+ - I can see us, living in the woods, her wearing that A, me with a S maybe, S for silent, S for stupid, for scared. S for silly. For shame.
+ - I don’t say anything and I feel awful. I tell somebody and I feel worse. I’m having trouble finding a middle ground.
+ - I can’t tell anymore when I’m asleep and when I’m awake, or which is worse.
+ - I am a gluttonous, gorging failure. A waste. My body isn’t used to high-sugar carbs laced with witchcraft. It can barely cope with soup and crackers.
+ - Death is funny, when you think about it. Everybody does it, but nobody knows how, exactly how.
+ - It is my first morning of high school. I have seven new notebooks, a skirt I hate, and a stomachache.
+ - They’re on their way to the foreign-language wing. That’s no surprise. The foreign kids are always here, like they need to breathe air scented with their native language a couple times a day or they’ll choke to death on too much American.
+ - I knit the afternoon away. I knit reasons for Elijah to come back. I knit apologies for Emma. I knit angry knots and slipped stitches for every mistake I ever made, and I knit wet, swollen stitches that look awful. I knit the sun down.
+ - We’ve fallen down on our responsibility to our children by somehow creating this world where they’re surrounded by images of sexuality; and yet, we as adults struggle to talk to kids honestly about sex, the rules of dignity and consent.
+ - Do I want to die from the inside out or the outside in?
+ - I wish America would stop judging and criticizing teens and instead, try to understand the battles they have to fight every day.
+ - I want to make a memorial for our turkey. Never has a bird been so tortured to provide such a lousy dinner.
+ - I stuff my mouth with old fabric and scream until there are no sounds left under my skin.
+ - A breath of steam trickles out, filled with the sobs of a grown woman breaking into girl-sized pieces.
+ - Nicole can do anything that involves a ball and whistle.
+ - And then a new screen, one I had never seen before, never even heard of popped up. It gave me a choice. I could become the new Lord of Darkness myself, or I could take a gamble and be reincarnated. I chose wisely.
+ - I understood what triggered her earthquakes, most of them.
+ - Each reader has to find her or his own message within a book.
+ - Hannah was about to burst with excitement, which would have been disgusting because she would have sprayed blood, guts and glitter in every direction.
+ - I believe that you’ve created a metaphorical universe in which you can express your darkest fears. In one aspect, yes, I believe in ghosts, but we create them. We haunt ourselves, and sometimes we do such a good job, we lose track of reality.
+ - They say they have noticed me drawing. I almost tell them right then and there. They noticed.
+ - Emma is a mattress who got thrown off the truck when her parents split up. It’s not like you can blame a mattress when people don’t tie it down tight enough.
+ - I breathe in slowly. Food is life. I exhale, take another breath. Food is life.
+ - I am super proud of being an American, but we fail our veterans every day.
+ - They tied me back together, but they didn’t use double knots. My insides are draining out of the fault lines in my skin, I can feel it, but every time I check the bandages, they’re dry.
+ - There is no safer. There’s not even safe, never has been.
+ - I’m the girl who trips on the dance floor and can’t find her way to the exit. All eyes on me.
+ - There’s no point in asking why, even though everybody will. I know why. The harder question is “why not?” I can’t believe she ran out of answers before I did.
+ - The trick to surviving an interrogation is patience. Don’t offer up anything. Don’t explain. Answer the question and only the question that is asked so you don’t accidentally put your head in a noose.
+ - No, I am never setting foot in this house again it scares me and makes me sad and I wish you could be a mom whose eyes worked but I don’t think you can.
+ - Kids are mostly very resilient.
+ - He doesn’t see my breasts or my waist or my hips. He only sees the nightmare.
+ - I reach for funny books all the time to help me get through life.
+ - If I run or breathe too deep, the cheap stitches holding me together will snap, and all the stickiness inside will pour out and burn through the concrete.
+ - I knew how much it hurt to be the daughter of people who can’t see you, not even if you are standing in front of them stomping your feet.
+ - If I can write a book that will help the world make a little more sense to a teen, then that’s why I was put on the planet.
+ - I would never be popular. I didn’t want to be; I liked being shy. I’d never be the smartest or the hottest or the happiest. By eighth grade you start to figure out your limits.
+ - I make it through the first two weeks of school without a nuclear meltdown.
+ - What do I want? The answer to that question does not exist.
+ - Write about the emotions you fear the most.
+
+151 quotes

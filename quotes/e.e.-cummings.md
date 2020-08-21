@@ -1,0 +1,41 @@
+ - It takes courage to grow up and become who you really are.
+ - To be nobody but yourself in a world which is doing its best, night and day, to make you everybody else means to fight the hardest battle which any human being can fight; and never stop fighting.
+ - Trust your heart if the seas catch fire, live by love though the stars walk backward.
+ - We do not believe in ourselves until someone reveals that deep inside us something is valuable, worth listening to, worthy of our trust, sacred to our touch. Once we believe in ourselves we can risk curiosity, wonder, spontaneous delight or any experience that reveals the human spirit.
+ - The world is mud-luscious and puddle-wonderful.
+ - The most wasted of all days is one without laughter.
+ - Yours is the light by which my spirit’s born: – you are my sun, my moon, and all my stars.
+ - Whenever you think or you believe or you know, you’re a lot of other people: but the moment you feel, you’re nobody-but-yourself.
+ - And now you are and I am and we’re a mystery which will never happen again.
+ - I thank you God for this most amazing day, for the leaping greenly spirits of trees, and for the blue dream of sky and for everything which is natural, which is infinite, which is yes.
+ - Unbeing dead isn’t being alive.
+ - One’s not half of two; two are halves of one.
+ - Always the beautiful answer who asks a more beautiful question.
+ - I’d rather learn from one bird how to sing than teach ten thousand stars how not to dance.
+ - You are whatever a moon has always meant and whatever a sun will always sing.
+ - Kisses are a better fate than wisdom.
+ - Your head is a living forest full of songbirds.
+ - Love is the voice under all silences, the hope which has no opposite in fear; the strength so strong mere force is feebleness: the truth more first than sun, more last than star...
+ - She may be going to Hell, of course, but at least she isn’t standing still.
+ - Now the ears of my ears are awake and now the eyes of my eyes are opened.
+ - Love is the whole and more than all.
+ - Unless you love someone, nothing else makes sense.
+ - I will take the sun in my mouth and leap into the ripe air Alive with closed eyes to dash against darkness.
+ - Humanity I love you because when you’re hard up you pawn your intelligence to buy a drink.
+ - We can never be born enough.
+ - Miracles are to come. With you I leave a remembrance of miracles: they are by somebody who can love and who shall be continually reborn, a human being.
+ - Your homecoming will be my homecoming.
+ - I’m living so far beyond my income that we may almost be said to be living apart.
+ - The snow doesn’t give a soft white damn whom it touches.
+ - Knowledge is a polite word for dead but not buried imagination.
+ - And the coolness of your smile is stirringofbirds between my arms.
+ - Tumbling-hair picker of buttercups violets dandelions And the big bullying daisies through the field wonderful with eyes a little sorry Another comes also picking flowers.
+ - Lovers alone wear sunlight.
+ - That which we die for lives as wholly as that which we live for dies.
+ - If 180 million people want to be undead, that’s their funeral, but I happen to like being alive.
+ - Only by you my heart always moves.
+ - I like my body when it is with your body. It is so quite new a thing. Muscles better and nerves more.
+ - If a poet is anybody, he is somebody to whom things made matter very little – somebody who is obsessed by Making.
+ - Such was a poet and shall be and is -who’ll solve the depths of horror to defend a sunbeam’s architecture with his life: and carve immortal jungles of despair to hold a mountain’s heartbeat in his hand.
+
+39 quotes

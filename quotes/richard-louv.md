@@ -1,0 +1,84 @@
+ - We cannot protect something we do not love, we cannot love what we do not know, and we cannot know what we do not see. Or hear. Or sense.
+ - Nature-deficit disorder describes the human costs of alienation from nature, among them: diminished use of the senses, attention difficulties, and higher rates of physical and emotional illnesses. The disorder can be detected in individuals, families, and communities.
+ - In nature, a child finds freedom, fantasy, and privacy: a place distant from the adult world, a separate peace.
+ - Use all of your senses.
+ - Nature is imperfectly perfect, filled with loose parts and possibilities, with mud and dust, nettles and sky, transcendent hands-on moments and skinned knees.
+ - Passion is lifted from the earth itself by the muddy hands of the young; it travels along grass-stained sleeves to the heart. If we are going to save environmentalism and the environment, we must also save an endangered indicator species: the child in nature.
+ - The future will belong to the nature-smart-those individuals, families, businesses, and political leaders who develop a deeper understanding of the transformative power of the natural world and who balance the virtual with the real. The more high-tech we become, the more nature we need.
+ - A natural environment is far more complex than any playing field.
+ - There is another possibility: not the end of nature, but the rebirth of wonder and even joy.
+ - By letting our children lead us to their own special places we can rediscover the joy and wonder of nature.
+ - An environment-based education movement – at all levels of education – will help students realize that school isn’t supposed to be a polite form of incarceration, but a portal to the wider world.
+ - Leave part of the yard rough. Don’t manicure everything. Small children in particular love to turn over rocks and find bugs, and give them some space to do that. Take your child fishing. Take your child on hikes.
+ - The future will belong to the nature-smart...
+ - Environment-based education produces student gains in social studies, science, language arts, and math; improves standardized test scores and grade-point averages; and develops skills in problem-solving, critical thinking, and decision-making.
+ - Children need nature for the healthy development of their senses, and therefore, for learning and creativity.
+ - Natural play strengthens children’s self-confidence and arouses their senses-their awareness of the world and all that moves in it, seen and unseen.
+ - Nature does not steal time, it amplifies it.
+ - Nature is beautiful, but not always pretty.
+ - The woods were my Ritalin. Nature calmed me, focused me, and yet excited my senses.
+ - Stress reduction, greater physical health, a deeper sense of spirit, more creativity, a sense of play, even a safer life-these are the rewards that await a family then it invites more nature into children’s lives.
+ - Now, my tree-climbing days long behind me, I often think about the lasting value of those early, deliciously idle days. I have come to appreciate the long view afforded by those treetops. The woods were my Ritalin. Nature calmed me, focused me, and yet excited my senses.
+ - Nature has been taken over by thugs who care absolutely nothing about it. We need to take nature back.
+ - We can conserve energy and tread more lightly on the Earth while we expand our culture’s capacity for joy.
+ - The real cultural war is between the culture of narcissism and what might be called the culture of renewal.
+ - Studies of children in playgrounds with both green areas and manufactured play areas found that children engaged in more creative forms of play in the green areas.
+ - Another British study discovered that average eight-year-olds were better able to identify characters from the Japanese card trading game Pokemon than native species in the community where they lived: Pikachu, Metapod, and Wigglytuff were names more familiar to them than otter, beetle, and oak tree.
+ - Increasingly the evidence suggests that people benefit so much from contact with nature that land conservation can now be viewed as a public health strategy.
+ - All spiritual life begins with a sense of wonder, and nature is a window into that wonder.
+ - Reconnection to the natural world is fundamental to human health, well-being, spirit, and survival.
+ - In our bones we need the natural curves of hills, the scent of chaparral, the whisper of pines, the possibility of wildness.
+ - When you’re sitting in front of a screen, you’re not using all of your senses at the same time. Nowhere than in nature do kids use their senses in such a stimulated way.
+ - We have such a brief opportunity to pass on to our children our love for this Earth, and to tell our stories. These are the moments when the world is made whole. In my children’s memories, the adventures we’ve had together in nature will always exist.
+ - Quite simply, when we deny our children nature, we deny them beauty.
+ - In medieval times, if someone displayed the symptoms we now identify as boredom, that person was thought to be committing something called acedia, a ‘dangerous form of spiritual alienation’ – a devaluing of the world and its creator.
+ - One of my students told me that every time she learns the name of a plant, she feels as if she is meeting someone new. Giving a name to something is a way of knowing it.
+ - There’s a generation now that didn’t grow up in nature. Some of these adults are parents and they know that nature is good for their kids but they don’t know where to start.
+ - Research suggests that exposure to the natural world – including nearby nature in cities – helps improve human health, well-being, and intellectual capacity in ways that science is only recently beginning to understand.
+ - A widening circle of researchers believes that the loss of natural habitat, or the disconnection from nature even when it is available, has enormous implications for human health and child development. They say the quality of exposure to nature affects our health at an almost cellular level.
+ - Kids and adults pay a price for too much tech, and it’s not wholesale.
+ - The children and nature movement is fueled by this fundamental idea: the child in nature is an endangered species, and the health of children and the health of the Earth are inseparable.
+ - Kids are plugged into some sort of electronic medium 44 hours per week.
+ - Nature is one of the best antidotes to fear.
+ - What would our lives be like if our days and nights were as immersed in nature as they are in technology?
+ - This seems clear enough: When truly present in nature, we do use all our senses at the same time, which is the optimum state of learning.
+ - The times I spent with my children in nature are among my most meaningful memories-and I hope theirs.
+ - The pleasure of being alive is brought into sharper focus when you need to pay attention to staying alive.
+ - If a child never sees the stars, never has meaningful encounters with other species, never experiences the richness of nature, what happens to that child?
+ - I do not trust technology. I mean, I don’t think we’re in any danger of kids, you know, doing without video games in the future, but I am saying that their lives are largely out of balance.
+ - By bringing nature into our lives, we invite humility.
+ - Children who played outside every day, regrdless of weather, had better motor coordination and more ability to concentrate.
+ - If war occurs, that positive adult contact in every shape is needed more than ever. It will be a matter of emotional life and death. There’s not a handy one-minute way of talking to your kid about war.
+ - Nature is about smelling, hearing, tasting, seeing...
+ - The dugout in the weeds or leaves beneath a backyard willow, the rivulet of a seasonal creek, even the ditch between the front yard and the road-all of these places are entire universes to a young child.
+ - We tend to block off many of our senses when we’re staring at a screen. Nature time can literally bring us to our senses.
+ - As one scientist puts it, we can now assume that just as children need good nutrition and adequate sleep, they may very well need contact with nature.
+ - Time spent in nature is the most cost-effective and powerful way to counteract the burnout and sort of depression that we feel when we sit in front of a computer all day.
+ - Every child needs nature. Not just the ones with parents who appreciate nature. Not only those of a certain economic class or culture or set of abilities. Every child.
+ - Green exercise improves psychological health.
+ - What if more and more parents, grandparents and kids around the country band together to create outdoor adventure clubs, family nature networks, family outdoor clubs, or green gyms? What if this approach becomes the norm in every community?
+ - There’s no denying the benefits of the Internet. But electronic immersion, without a force to balance it, creates the hole in the boat – draining our ability to pay attention, to think clearly, to be productive and creative.
+ - No other youth group like the Scouts has trained so many future leaders while at the same time being a nature organization with its outdoor focus.
+ - A lot of people think they need to give up nature to become adults but that’s not true. However, you have to be careful how you describe and define ’nature.
+ - Progress does not have to be patented to be worthwhile. Progress can also be measured by our interactions with nature and its preservation. Can we teach children to look at a flower and see all the things it represents: beauty, the health of an ecosystem, and the potential for healing?
+ - Nature introduces children to the idea – to the knowing – that they are not alone in this world, and that realities and dimensions exist alongside their own.
+ - We are telling our kids that nature is in the past and it probably doesn’t count anymore, the future is in electronics, the boogeyman is in the woods, and playing outdoors is probably illicit and possibly illegal.
+ - Here is the beginning of understanding: most parents are doing their best, and most children are doing their best, and they’re doing pretty well, all things considered.
+ - As the young spend less of their lives in natural surroundings, their senses narrow, physiologically and psychologically and this reduces the richness of human experience we need contact with nature.
+ - Some kids don’t want to be organized all the time. They want to let their imaginations run; they want to see where a stream of water takes them.
+ - What if a tree fell in the forest and no one knew it’s biological name? Did it exist?
+ - From 1997 to 2003, there was a decline of 50 percent in the proportion of children nine to twelve who spent time in such outside activities as hiking, walking, fishing, beach play, and gardening, according to a study by Sandra Hofferth at the University of Maryland.
+ - These days, unplugged places are getting hard to find.
+ - Now, more than ever, we need nature as a balancing agent.
+ - Natural playgrounds may decrease bullying.
+ - How can our kids really understand the moral complexities of being alive if they are not allowed to engage in those complexities outdoors?
+ - As a species, we are most animated when our days and nights on Earth are touched by the natural world. We can find immeasurable joy in the birth of a child, a great work of art, or falling in love.
+ - Being close to nature, in general, helps boost a child’s attention span.
+ - Each of us-adult or child-must earn nature’s gift by knowing nature directly, however difficult it may be to glean that knowledge in an urban environment.
+ - Kids are absolutely starved for positive adult contact.
+ - There is a real world, beyond the glass, for children who look, for those whose parents encourage them to truly see.
+ - Most people are either awakened to or are strengthened in their spiritual journey by experiences in the natural world.
+ - To take nature and natural play away from children may be tantamount to withholding oxygen.
+ - Numerous studies document the benefits to students from school grounds that are ecologically diverse and include free play areas, habitats for wildlife, walking trails, and gardens.
+
+82 quotes

@@ -1,0 +1,28 @@
+ - Work hard. Think big. Listen well.
+ - Don’t sell life insurance. Sell what life insurance can do.
+ - Life Insurance is the only tool that takes pennies and guarantees dollars.
+ - I do not sell life insurance. I sell money. I sell dollars for pennies apiece. My dollars cost 3 cents per dollar per year.
+ - Life insurance is time. The time a man might not have. If he needs time, he needs life insurance.
+ - Every man has problems that only life insurance can solve. In the young man’s case, the problem is to create cash; for the older man, to conserve it.
+ - Doing something costs something. Doing nothing costs something. And, quite often, doing nothing costs a lot more!
+ - If you’ve got a problem make it a procedure and it won’t be a problem anymore.
+ - Most people buy not because they believe, but because the sales person believes.
+ - If people understood what life insurance does, we wouldn’t need salesmen to sell it. People would come knocking on the door. But they don’t understand.
+ - You haven’t done anything wrong. You just haven’t done anything, and that’s what’s wrong.
+ - Your biggest asset is a positive attitude. That more than anything else determines your earnings.
+ - When you walk out, the money walks in.
+ - Goals aren’t enough. You need goals plus deadlines: goals big enough to get excited about and deadline to make you run. One isn’t much good without the other, but together they can be tremendous.
+ - Read! Study never stops because publications never stop coming in. It’s read and study. And think about what you’re studying. Take it apart and put it together. Ask ‘why?’ And know the answers.
+ - Fundamentals are right down to earth. And one fundamental is: You have to make calls. Nothing happens until you make a call. It’s that fundamental!
+ - No one ever died with too much money.
+ - You know, a man’s life is the most precious thing in the world, isn’t it? So isn’t it odd that a man will insure everything but his life?
+ - Your value depends on what you make of yourself. Make the most of yourself for that is all there is of you.
+ - You’ve got a problem. Part of what you own isn’t yours. It belongs to Uncle Sam. May I show you how much belongs to Uncle Sam?
+ - Term insurance is temporary, but your problem is permanent.
+ - The biggest asset you have is your earning capacity, and that depends entirely on your attitude.
+ - The key to a sale in an interview, and the key to an interview is a disturbing question.
+ - You are already broke and don’t even know it.
+ - Do you know anyone who has a lease on life? It isn’t a question of if; it’s a question of when.
+ - If I don’t buy it, I can’t sell it.
+
+26 quotes

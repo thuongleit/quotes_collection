@@ -1,0 +1,30 @@
+ - The sense of smell is the hair-trigger of memory.
+ - The gods only go with you if you put yourself in their path. And that takes courage.
+ - Where two Greeks are gathered together, there will be at least three political parties represented, and possibly more.
+ - The mills of God work like lightning compared with the law.
+ - The essence of wisdom is to know when to be doing, and when it’s useless even to try.
+ - It is never wise to turn aside from knowing, however the knowing comes.
+ - I can say ‘reduce your stress level’ until I’m blue in the face.
+ - I reached for sleep and drew it round me like a blanket muffling pain and thought together in the merciful dark.
+ - Perhaps loneliness had nothing to do with place or circumstance; perhaps it was in you; yourself. Perhaps, wherever you were, you took your little circle of loneliness with you...
+ - Take love easy, as the leaves grow on the trees.
+ - It does not do to neglect the gods of a place, whoever they may be. In the end, they are all one.
+ - I knew that I had turned my world back to cinders, sunk my lovely ship with my own stupid, wicked hands.
+ - Every life has a death, and every light a shadow. Be content to stand in the light, and let the shadow fall where it will.
+ - But I have noticed this about ambitious men, or men in power, that they fear even the slightest and least likely threat to it.
+ - I had always been content to know that there was more in the living world than we could hope to understand.
+ - I suppose one gets to know men quickest by the things they take for granted.
+ - To plant a garden is the chief of the arts of peace.
+ - There are few men more superstitious than soldiers. They are, after all, the men who live closest to death.
+ - Sometimes, I think, our impulses come not from the past, but from the future.
+ - The place for truth is not in the facts of a novel; it is in the feelings.
+ - I sometimes think it’s a mistake to have been happy when one was a child. One should always want to go on, not back.
+ - I doubt if there are many normal women who can resist looking at houses. I believe, in fact, that when a house is up for sale more than half the people who look over it are not prospective buyers, but merely ladies who cannot resist exploring someone else’s house.
+ - It is not true that women cannot keep secrets. Where they love, they can be trusted to death and beyond, against all sense and reason. It is their weakness, and their great strength.
+ - Folks will say anything, and next time round they’ll believe it.
+ - Well, what was luck for if it was never to be tempted?
+ - I’m very much to blame for not seeing it before, but who on earth goes about suspecting an impossible outlandish thing like murder? That’s something that happens in books, not among people you know.
+ - The best way of forgetting how you think you feel is to concentrate on what you know you know.
+ - You never know how you’ll turn out till you’ve been down to half a dollar and no prospects.
+
+28 quotes

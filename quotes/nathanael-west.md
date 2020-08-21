@@ -1,0 +1,22 @@
+ - Numbers constitute the only universal language.
+ - At college, and perhaps for a year afterwards, they had believed in literature, had believed in Beauty and in personal expression as an absolute end. When they lost this belief, they lost everything.
+ - He read it for the same reason an animal tears at a wounded foot: to hurt the pain.
+ - Man spends a great deal of time making order out of chaos, yet insists that the emotions be disordered. I order my emotions: I am insane.
+ - He felt as though his heart were a bomb, a complicated bomb that would result in a simple explosion, wrecking the world without rocking it.
+ - Only those who still have hope can benefit from tears. When they finish, they feel better. But to those without hope, whose anguish is basic and permanent, no good comes from crying. Nothing changes for them. They usually know this, but still can’t help crying.
+ - No dream ever entirely disappears. Somewhere it troubles some unfortunate person and some day, when that person has been sufficiently troubled, it will be reproduced on the lot.
+ - It is hard to laugh at the need for beauty and romance, no matter how tasteless, even horrible, the results of that need are. But it is easy to sigh. Few things are sadder than the truly monstrous.
+ - Prayers for the condemned man will be offered on an adding machine. Numbers constitute the only universal language.
+ - Feeling is of the heart and nerves and the crudeness of its expression has nothing to do with its intensity.
+ - Crowds of people moved through the streets with a dream-like violence.
+ - It’s solitary drinking that makes drunkards.
+ - Only those who still have hope can benefit from tears.
+ - Let him ride a horse. He’s a cowboy ain’t he?
+ - Her sureness was based on the power to limit experience arbitrarily.
+ - Every child, everywhere; in the whole world there was not one child who was not gravely, sweetly dancing.
+ - Betty took him for a walk in the zoo and he was amused by her evident belief in the curative power of animals. She seemed to think that it must steady him to look at a buffalo.
+ - Like a dead man, only friction could make him warm or violence make him mobile.
+ - He thought of how calm he was. His calm was so perfect that he could not destroy it even by being conscious of it.
+ - But whether he was happy or not was hard to say. Probably he was neither, just as a plant is neither.
+
+20 quotes

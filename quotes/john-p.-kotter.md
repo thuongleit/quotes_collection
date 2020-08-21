@@ -1,0 +1,58 @@
+ - The central issue is never strategy, structure, culture, or systems. The core of the matter is always about changing the behavior of people.
+ - A higher rate of urgency does not imply ever-present panic, anxiety, or fear. It means a state in which complacency is virtually absent.
+ - Leaders establish the vision for the future and set the strategy for getting there.
+ - The heart of change is in the emotions.
+ - We see, we feel, we change.
+ - Effective leaders help others to understand the necessity of change and to accept a common vision of the desired outcome.
+ - In the final analysis, change sticks when it becomes the way we do things around here.
+ - Leadership is about coping with change.
+ - Never underestimate the power of a good story.
+ - Because management deals mostly with the status quo and leadership deals mostly with change, in the next century we are going to have to try to become much more skilled at creating leaders.
+ - The rate of change is not going to slow down anytime soon. If anything, competition in most industries will probably speed up even more in the next few decades.
+ - Most people don’t lead their own lives – they accept their lives.
+ - People change what they do less because they are given an analysis that shifts their thinking than because they are shown a truth that influences their feelings.
+ - Leaders establish the vision for the future and set the strategy for getting there; they cause change. They motivate and inspire others to go in the right direction and they, along with everyone else, sacrifice to get there.
+ - Without credible communication, and a lot of it, the hearts and minds of others are never captured.
+ - In a change effort, culture comes last, not first.
+ - We know that leadership is very much related to change. As the pace of change accelerates, there is naturally a greater need for effective leadership.
+ - Complacency is almost always the product of success or perceived success.
+ - Good communication does not mean that you have to speak in perfectly formed sentences and paragraphs. It isn’t about slickness. Simple and clear go a long way.
+ - Leadership defines what the future should look like, aligns people with that vision, and inspires them to make it happen despite the obstacles.
+ - Motivation is not a thinking word; it’s a feeling word.
+ - Good communication is not just data transfer. You need to show people something that addresses their anxieties, that accepts their anger, that is credible in a very gut-level sense, and that evokes faith in the vision.
+ - Commercial organisations that operate responsibly have benefitted by increased revenues of 682% compared to 166% for those that don’t.
+ - Analytical tools have their limitations in a turbulent world. These tools work best when parameters are known, assumptions are minimal, and the future is not fuzzy.
+ - No vision issue today is bigger than the question of efficiency versus some combination of innovation and customer service.
+ - Never underestimate the magnitude of the power of the forces that reinforce the status quo.
+ - One of the most common ways to overcome resistance to change is to educate people about it beforehand. Communication of ideas helps people see the need for and the logic of a change. The education process can involve one-on-one discussions, presentations to groups, or memos and reports.
+ - Most US corporations today are over-managed and under-led. They need to develop their capacity to exercise leadership.
+ - Great leadership does not mean running away from reality. Sometimes the hard truths might just demoralize the company, but at other times sharing difficulties can inspire people to take action that will make the situation better.
+ - Producing major change in an organization is not just about signing up one charismatic leader. You need a group – a team – to be able to drive the change. One person, even a terrific charismatic leader, is never strong enough to make all this happen.
+ - Changing behavior is less a matter of giving people analysis to influence their thoughts than helping them to see a truth to influence their feelings.
+ - In an ever changing world, you never learn it all, even if you keep growing into your 90s.
+ - We learn best – and change – from hearing stories that strike a chord within us.
+ - Leadership is different from management, but not for the reasons most people think.
+ - Managers are trained to make incremental, programmatic improvements. They aren’t trained to lead large-scale change.
+ - One of the most powerful forms of information is feedback on our own actions.
+ - Without conviction that you can make change happen, you will not act, even if you see the vision. Your feelings will hold you back.
+ - We keep a change in place by helping to create a new, supportive, and sufficiently strong organizational culture.
+ - If the culture you have is radically different from an ‘experiment and take-risk’ culture, then you have a big change you going to have to make – and no little gimmicks are going to do it for you.
+ - Overcoming complacency is crucial at the start of any change process, and it often requires a little bit of surprise, something that grabs attention at more than an intellectual level. You need to surprise people with something that disturbs their view that everything is perfect.
+ - A leader needs enough understanding to fashion an intelligent strategy.
+ - Neurologists say that our brains are programmed much more for stories than for abstract ideas. Tales with a little drama are remembered far longer than any slide crammed with analytics.
+ - Leadership produces change. That is its primary function.
+ - Great leaders motivate large groups of individuals to improve the human condition.
+ - Tradition is a very powerful force.
+ - People are more inclined to be drawn in if their leader has a compelling vision. Great leaders help people get in touch with their own aspirations and then will help them forge those aspirations into a personal vision.
+ - Anyone in a large organization who thinks major change is impossible should probably get out.
+ - Great vision communication usually means heartfelt messages are coming from real human beings.
+ - Great leaders understand that historical success tends to produce stable and inwardly focused organizations, and these outfits, in turn, reinforce a feeling of contentment with the status quo.
+ - Great communicators have an appreciation for positioning. They understand the people they’re trying to reach and what they can and can’t hear. They send their message in through an open door rather than trying to push it through a wall.
+ - Valued achievements connect to people at a deeper level – and a deeper level can change behavior that is generally very difficult to change.
+ - We are always creating new tools and techniques to help people, but the fundamental framework is remarkably resilient, which means it must have something to do with the nature of organizations or human nature.
+ - A culture truly changes only when a new way of operating has been shown to succeed over some minimum period of time.
+ - I’m impatient. Typically people think they know all about change and don’t need help. Their approach tends to be more management-oriented than leadership-oriented. It’s very frustrating.
+ - Many years ago, I think I got my first insight on how an incredibly diverse team can work together and do astonishing things, and not just misunderstand each other and fight.
+ - Outsiders have the intuitive ability to continually view problems in fresh ways and to identify ineffective practices and traditions.
+
+56 quotes

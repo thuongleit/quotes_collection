@@ -1,0 +1,72 @@
+ - I loved logic, math, computer programming. I loved systems and logic approaches. And so I just figured architecture is this perfect combination.
+ - To me, the American Dream is being able to follow your own personal calling. To be able to do what you want to do is incredible freedom.
+ - To fly we have to have resistance.
+ - I try to give people a different way of looking at their surroundings. That’s art to me.
+ - Math, it’s a puzzle to me. I love figuring out puzzles.
+ - Sometimes I think creativity is magic; it’s not a matter of finding an idea, but allowing the idea to find you.
+ - Sometimes you have to stop thinking. Sometimes you shut down completely. I think that’s true in any creative field.
+ - I’m not in a hurry to do a lot of projects. I am very resolved in each project I take on.
+ - An artist fights to retain the integrity of a work so that it remains a strong, clear vision. Art is and should be the act of an individual willing to say something new, something not quite familiar.
+ - To fly, we have to have resistance. It’s all about turbulence. Reacting to images of wave patterns in fluid motion.
+ - If we can’t face death, we’ll never overcome it. You have to look it straight in the eye. Then you can turn around and walk back out into the light.
+ - I saw the Vietnam Veterans Memorial not as an object placed into the earth but as a cut in the earth that has then been polished, like a geode.
+ - The role of art in society differs for every artist.
+ - I deliberately did not read anything about the Vietnam War because I felt the politics of the war eclipsed what happened to the veterans. The politics were irrelevant to what this memorial was.
+ - Our lives are given meaning by our actions-accomplishments made while we are “here” that extend beyond our own time.
+ - Nothing is ever guaranteed, and all that came before doesn’t predicate what you might do next.
+ - If you don’t remember history accurately, how can you learn?
+ - It’s funny, as you live through something you’re not aware of it.
+ - My parents are both college professors, and it made me want to question authority, standards and traditions.
+ - In art or architecture your project is only done when you say it’s done. If you want to rip it apart at the eleventh hour and start all over again, you never finish. I was one of those crazy creatures.
+ - I though about what death is, what a loss is. A sharp pain that lessens with time, but can never quite heal over. A scar. The idea occurred to me there on the site. Take a knife and cut open the earth, and with time the grass would heal it. As if you cut open the rock and polished it.
+ - Architecture is like a mythical fantastic. It has to be experienced. It can’t be described. We can draw it up and we can make models of it, but it can only be experienced as a complete whole.
+ - I had very few friends. We always ate dinner with our parents. We didn’t want to go out. American adolescence was a lot wilder than I would have felt comfortable with.
+ - I was always making things. Even though art was what I did every day, it didn’t even occur to me that I would be an artist.
+ - The definition of a modern approach to war is the acknowledgement of individual lives lost.
+ - The only thing that mattered was what you were to do in life, and it wasn’t about money. It was about teaching, or learning.
+ - When I was building the Vietnam Memorial, I never once asked the veterans what it was like in the war, because from my point of view, you don’t pry into other people’s business.
+ - Growing up, I thought I was white. It didn’t occur to me I was Asian-American until I was studying abroad in Denmark and there was a little bit of prejudice.
+ - My goal is to strip things down so that you need just the right amount of words or shape to convey what you need to convey. I like editing. I like it very tight.
+ - Even though I build buildings and I pursue my architecture, I pursue it as an artist. I deliberately keep a tiny studio. I don’t want to be an architectural firm. I want to remain an artist.
+ - I begin by imagining an artwork verbally. I try to describe in writing what the project is, what it is trying to do. I need to understand the artwork without giving it a specific materiality or solid form.
+ - My grandfather, on my father’s side, helped to draft one of the first constitutions of China. He was a fairly well-known scholar.
+ - My dad was dean of fine arts at the university. I was casting bronzes in the school foundry. I was using the university as a playground.
+ - You couldn’t put me in a social group setting. I’m probably a terrible anarchist deep down.
+ - You should be having more fun in high school, exploring things because you want to explore them and learning because you love learning-not worrying about competition.
+ - I didn’t have anyone to play with so I made up my own world.
+ - Our parents decided not to teach us Chinese. It was an era when they felt we would be better off if we didn’t have that complication.
+ - I started studying what the nature of a monument is and what a monument should be. And for the World War III memorial I designed a futile, almost terrifying passage that ends nowhere.
+ - I was probably the first kid in my high school to go to Yale. I applied almost as a lark. Then, when I got there, I was the dumbest person in your class.
+ - Art is very tricky because it’s what you do for yourself. It’s much harder for me to make those works than the monuments or the architecture.
+ - You have to have conviction and completely question everything and anything you do. No matter how much you study, no matter how much you know, the side of your brain that has the smarts won’t necessarily help you in making art.
+ - A lot of my works deal with a passage, which is about time. I don’t see anything that I do as a static object in space. It has to exist as a journey in time.
+ - How we are using up our home, how we are living and polluting the planet is frightening. It was evident when I was a child. It’s more evident now.
+ - I probably spent the first 20 years of my life wanting to be as American as possible. Through my 20s, and into my 30s, I began to become aware of how so much of my art and architecture has a decidedly Eastern character.
+ - I like to think of my work as creating a private conversation with each person, no matter how public each work is and no matter how many people are present.
+ - I probably have fundamentally antisocial tendencies. I never took one extracurricular activity. I just failed utterly at that level. Part of me still rebels against that.
+ - If we forget what used to be, then we’ve lost an ability to really be sensitive to our surroundings.
+ - I also wanted remembering the past relevant to the present. Some people wanted me to put the names in alphabetical order. I wanted them in chronological order so that a veteran could find his time within the panel. It’s like a thread of life.
+ - It’s only in hindsight that you realize what indeed your childhood was really like.
+ - It was a requirement by the veterans to list the 57,000 names. We’re reaching a time that we’ll acknowledge the individual in a war on a national level.
+ - You have to let the viewers come away with their own conclusions. If you dictate what they should think, you’ve lost it.
+ - It terrified me to have an idea that was solely mine to be no longer a part of my mind, but totally public.
+ - The process I go through in the art and the architecture, I actually want it to be almost childlike. Sometimes I think it’s magical.
+ - I left science, then I went into art, but I approach things very analytically. I choose to pursue both art and architecture as completely separate fields rather than merging them.
+ - Some artists want to confront. Some want to invoke thought. They’re all necessary and they’re all valid.
+ - I do not think you can find a reason for everything you make.
+ - Warmth isn’t what minimalists are thought to have.
+ - You really can’t function as a celebrity. Entertainers are celebrities. I’m an architect. I’m an artist. I make things.
+ - I went through withdrawal when I got out of graduate school. It’s what you learn, what you think. That’s all that counts.
+ - OK, it was black, it was below grade, I was female, Asian American, young, too young to have served. Yet I think none of the opposition in that sense hurt me.
+ - Some of your teachers are actually closer in age to you than you think.
+ - All my work is much more peaceful than I am.
+ - Every memorial in its time has a different goal.
+ - Competitions are what you do as a good exercise.
+ - I loved school. I studied like crazy. I was a Class A nerd.
+ - I really enjoyed hanging out with some of the teachers. This one chemistry teacher, she liked hanging out. I liked making explosives. We would stay after school and blow things up.
+ - I’m as much interested in the form-making as well as getting you to think about what we’re doing to the world around us.
+ - For the most part things never get built the way they were drawn.
+ - We were unusually brought up; there was no gender differentiation. I was never thought of as any less than my brother.
+ - I cannot force a design; I do not see this process as being under my conscious control.
+
+70 quotes

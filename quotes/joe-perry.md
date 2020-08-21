@@ -1,0 +1,46 @@
+ - Take life on life’s terms – one day at a time. And have fun while you’re doing it.
+ - I love Indian food – it’s my favourite cuisine. I love the mixture of spices and the subtle flavours. It’s really erotic; the spices are so sensuous.
+ - I’m glad that I never ended up killing myself, though I came close more times than I would like to admit.
+ - Aerosmith is such a powerful band; I mean, it’s like a steam locomotive.
+ - A lot of people don’t listen to the albums. They just listen to the singles.
+ - I have seen more bad songs make it because of MTV than good ones that haven’t.
+ - I don’t want fans to think we’re clean, upstanding American boys, but we are Americans, and we do stand up.
+ - It’s probably listening to country music that got me to start playing a lot cleaner, not as distorted.
+ - When I got sober and started working out, I fell into that trap of working out too much. I know a lot of guys can relate to that – if you don’t get that runner’s high every day, you feel like, ‘Oh my God, I’m losing it.’
+ - I don’t think there’s anything anybody’s doing that the Beatles didn’t at least try at some point.
+ - I think that’s really important, that kids get exposed to music as soon as they can – not necessarily to become musicians, but at least have an outlet. It’s an art form that’s easily accessible to young ears.
+ - There are definitely things about ‘Legendary Child’ that echo the music we did earlier in our career. It’s got the right stuff.
+ - India brings out so many different feelings in me. I’ve been fascinated with India and Indian culture as long as I can remember – ever since the ’60s with the Beatles and Maharishi Mahesh Yogi.
+ - I guess we all have a bad night now and then and really screw up. I listened to our earlier stuff and we screwed up a lot. But at least now that we are sober, when we screw up it’s for real.
+ - The Beatles did everything long before anyone else. They weren’t afraid to try things and to experiment with a lot of sounds. In 200 years, when you look up ‘rock and roll’ in the dictionary, it’ll have a picture of the Beatles next to it.
+ - I’ve come to realize that you live on through recordings; they’re like a musical diary, a window into somebody’s soul.
+ - When I plug in my guitar and play it really loud, loud enough to deafen most people, that’s my shot of adrenaline, and there’s nothing like it. That’s what it’s always been for me – to be the flame the tribe dances around.
+ - You think it’s all written, but it’s not. There’s always another way to twist those three chords around.
+ - There was a time I thought I couldn’t enjoy rock ‘n’ roll unless I had heroin in me.
+ - Berry’s On Top is probably my favorite record of all time; it defines rock and roll. A lot of people have done Chuck Berry songs, but to get that feel is really hard. It’s the rock and roll thing-the push-pull and the rhythm of it.
+ - I didn’t think I could go onstage and play unless I had a beer to loosen up. Well, if it was only one beer to loosen up, I’d probably still be drinking today.
+ - I collect firearms, and I’ve got a Winchester, an Indian rifle. It has tacks for every warrior that was shot, like notches on a pistol, and it’s got feathers and beads hanging off it. It’s like a work of art.
+ - There are guys in country music who are wizards on the guitar. If you’re a country fan, you’re used to it. But as a rock guitar player, you listen.
+ - I was very fascinated by the time when firearms went from being fire sticks to being something people could use to hunt and to survive.
+ - I don’t see anyone avoiding the Stones because DJs make jokes about them being a part of the Geritol set. All it does is make the DJs look stupid.
+ - I never envisioned what I was doing as part of a career.
+ - You can always pound out demos and send them to record companies, but most of the successful bands I’ve seen are the ones that can sustain themselves.
+ - Describing certain sounds, there’s a common language that guitar players have.
+ - The really pop country stuff can sound a little bland because they put in strings and horns and all of that.
+ - I think we’re just a garage band that got lucky. It’s the enthusiasm from the audience that keeps it going.
+ - I think people have to be more aware of what the repercussions are of their actions.
+ - Get good live and get a following because that’s what people notice.
+ - The Beatles just changed everything right across the board. They just had that right combination of clean-cut good looks – a cute band – but under that they had a real rock n roll thing going on.
+ - A band isn’t a band unless they’re playing together. Otherwise, it’s just five guys that are living off their royalty checks.
+ - Over the years, when you’re in a band with a catalog like Aerosmith’s, you accumulate a lot of instruments to duplicate those songs.
+ - The great British blues guitarists of the Sixties – people like Eric Clapton, Jeff Beck, Jimmy Page and Peter Green – could play like virtuosos, but they also understood the importance of energy and intensity.
+ - I love to listen to the music that first inspired me – I get that fresh feeling back.
+ - Music is music you don’t have to put a label on it.
+ - I have always been fascinated with guns. I grew up in America so granted, it is part of our heritage and it is written into the laws of how this country is run.
+ - The media plays up celebrity a lot, but it doesn’t hold a candle to being a scientist. There’s a lot to be said for what they all do, and are trying to accomplish.
+ - My chosen instrument is guitar and, fortunately, I’m able to muddle through that. I can play guitar to the point where I can express myself artistically.
+ - I think one of the most valuable things Aerosmith has is the energy we produce when we all play together.
+ - Sometimes when a record’s done, I’m satisfied and I won’t listen back to it for a while ’cause I’m usually pretty tired of the songs. Then I’ve got to learn them again to play them live, and sometimes it takes a while to realise it’s a really good record.
+ - The ’70’s came and went already.
+
+44 quotes

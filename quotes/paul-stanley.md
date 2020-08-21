@@ -1,0 +1,49 @@
+ - The best part of waking up, is Folgers in your cup!
+ - You’re at your best when you don’t know what you’re doing.
+ - I’ve seen myself do stuff on stage that was pretty amazing. I think that would be true for any athlete. Any top athlete will see something that they are very proud of. All my injuries will attest to the fact that besides being a musician, it comes down to being an athlete.
+ - When you’re in a position to have gotten so much, the gift at this point is giving back.
+ - There’s a difference between standing up and telling people what you’re planning to do and standing up and going and accomplishing something.
+ - When you start fooling around with drugs, you’re hurting your creativity, you’re hurting your health. Drugs are death, in one form or another. If they don’t kill you, they kill your soul. And if your soul’s dead, you’ve got nothing to offer, anyway.
+ - I’m damn successful but I got here by not taking crap. I still don’t take crap, so if anybody needs a champion, let it be me.
+ - To go from being an unpopular, chubby little kid who was chasing girls and couldn’t seem to catch them, to being chased after and making sure I ran slow enough that I did get caught, it was 180 degree turn. It was being given the keys to the candy store.
+ - Nashville may be famed for its country music, but this may well be the capital of rock and roll music in the United States of America.
+ - Core strengthening is key to everything. It’s not just about the way I look, but about stabilizing my body so I can perform better on stage.
+ - I started working out, doing a formal workout right around 1980. That’s when I really decided I needed to get in shape and it may have been because you just start to see a decrease – a change in your body.
+ - I tend to fly a bit under the radar.
+ - I was a chubby boy. My pants used to wear out in the middle, and it was because my legs used to rub together. I wasn’t obese, just chunky.
+ - The only exercise I got as a kid was fork to mouth. Food was equated with love in my household. I thought you left the table when the zipper was down and you’d explode if you took another bite. I’d eat my plate and then everyone else’s leftovers.
+ - The whole idea of rock and roll lifestyle is a cartoon. It’s a caricature. And at times, it’s made up of people emulating others; a few who actually live that lifestyle and many who claim to live that lifestyle.
+ - We’re the McDonalds of rock. Were always there to satisfy, and a billion served.
+ - The Rock and Roll Hall of Fame is marketing. You’ve got a bunch of faceless people in a back room who trademark a name that sounds very official. Well, if you had thought of it first, you would have been the Rock and Roll Hall of Fame.
+ - I live in the house bad reviews built.
+ - America is a business. If you can’t afford to do something, no matter how much bellyaching everybody does I’m so sorry, if you can’t afford it, you shouldn’t do it.
+ - Youth is incredible because you really do feel invincible.
+ - Don’t kid yourself; the guy who’s onstage in ripped-up jeans is wearing as much a costume as I am.
+ - I was lucky enough as a kid to spend most of my weekends at the Fillmore East. On a great night, that was like a Holy Roller evangelical church.
+ - I love being a member of KISS.
+ - It’s a really special night for our fans. It’s vindication.
+ - I had heard some women make comments about my chest, so why not show it off? Nobody wants to see a fat guy in tights. That wouldn’t be fair to the fans.
+ - Nothing could ever stop Kiss. I’ve seen the band in down times where critics were like vultures circling overhead saying things like, ‘Well, you know it’s the end of your career.’
+ - Anybody with money can put on a KISS show, but they can’t be KISS.
+ - I think KISS has always been about celebrating self-empowerment. Celebrating the idea that anything is possible with determination and hard work.
+ - The premise of Kiss has always been to not live within the confinements and boundaries other people set for themselves. We set our own limitations, and those are no limitations.
+ - If I write for myself, I write a song and I bring in the musicians that are best suited to play it. There’s a freedom there.
+ - Autobiographies, for the most part, to me, are like writing a love letter to yourself.
+ - Some People Like a House with A Fire Place, Others want a House they can set on Fire!
+ - The things we sing about are timeless. Political affairs and social situations come and go. But if you’re singing about empowerment and not playing by the rules, you can sing about them until you can’t sing anymore.
+ - When rock roll is done with that fervor, it’s close to gospel.
+ - My workout is always with a trainer because, quite honestly, I don’t think most people are motivated enough to do what they need to on their own. You either need a spotter or you need a trainer. You need somebody there to push you to get that extra five.
+ - If I had my way, I’d always be onstage. But I won’t always be able to be onstage.
+ - Whenever anybody comes to me with a way that I can give something back, it would be ungrateful at this point in my life to not say yes.
+ - Credibility is someone else’s idea of what I should be doing.
+ - The only thing I can say is consistent in all my paintings is vivid color.
+ - In terms of merchandise, you can’t force anyone to buy something.
+ - I never thought being the producer was being the dictator. It means being the director and being the coach. It’s a way of keeping everybody focused on the goal, and also having final say. Everybody can be in the same car, but somebody has to drive.
+ - You can’t enter the Olympics unless you do your routine to get in shape for it. The idea of going out on stage on a tour without having prepped for it would be suicide, literally.
+ - The great thing about rock-n-roll is you realize the top of the mountain is big enough for more than one band.
+ - It’s absurd for anybody to look around and hear the acts and artists who cite us as an inspiration, and then tell me that we’re not in the Rock and Roll Hall of Fame.
+ - The financial reward is great and I love the life I have, but all money makes possible is for you to stop worrying about money. Then you have freedom to live your life.
+ - Doing my art came out of something very solitary and something that I had no intention of showing anybody, and yet once people saw pieces in my house, it became really clear that there was a great demand for my art.
+ - KISS has always been outside of the borders of what other bands can do. Not that some of these other bands wouldn’t want to do it – the fact that they may snicker or look down their noses at what we do is more out of jealously than anything else.
+
+47 quotes

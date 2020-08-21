@@ -1,0 +1,42 @@
+ - Everyone Has A Will To Win But Very Few Have The Will To Prepare To Win. ~~Vince Lombardi
+ - You will never change your life until you change something you do daily. The secret of your success is found in your daily routine. ~~John C. Maxwell
+ - Trust me I never lose. Either I win or learn from it. ~~Tupac Shakur
+ - You will win if you don’t quit. ~~Les Brown
+ - To win any battle, you must fight as if you are already dead. ~~Miyamoto Musashi
+ - The person that works the hardest wins. ~~Will Smith
+ - Don’t let the fear of losing be greater than the excitement of winning. ~~Robert T. Kiyosaki
+ - The rich are those who play to win. The middle class plays not to lose. ~~Robert T. Kiyosaki
+ - I am not designed to come second or third. I am designed to win. ~~Ayrton Senna
+ - Sometimes you win, sometimes you learn. ~~Robert T. Kiyosaki
+ - You can’t win unless you first begin. So start now. ~~Robin S. Sharma
+ - Don’t just accept whatever comes your way in life. You were born to win; you were born for greatness; you were created to be a champion in life. ~~Joel Osteen
+ - When you move your focus from competition to contribution life becomes a celebration. Never try to defeat people, just win their hearts. ~~Buddha
+ - Wanting to win isn’t enough. You have to go through a process to improve. That takes patience, perseverance, and intentionality. ~~John C. Maxwell
+ - I play to win, whether during practice or a real game. ~~Michael Jordan
+ - The only reason a warrior is alive is to fight, and the only reason a warrior fights is to win. ~~Miyamoto Musashi
+ - Born to lose. Live to win. ~~Lemmy Kilmister
+ - Success is almost totally dependent upon drive and persistence. The extra energy required to make another effort or try another approach is the secret of winning. ~~Denis Waitley
+ - Remember that it is not the lawyer who knows the most law, but the one who best prepares his case, who wins. ~~Napoleon Hill
+ - Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win. ~~Stephen King
+ - It’s not over until you win. ~~Les Brown
+ - If winning isn't everything, why do they keep score? ~~Vince Lombardi
+ - Courage is the discovery that you may not win, and trying when you know you can lose. ~~Tom Krause
+ - If you think and achieve as a team, the individual accolades will take care of themselves. Talent wins games, but teamwork and intelligence win championships. ~~Michael Jordan
+ - I was born to race and to win. ~~Lewis Hamilton
+ - Too many people want the appearance of winning rather than the practices and hard work that create a true champion. ~~T.D. Jakes
+ - You sleep on a win and you’ll wake up with a loss. ~~Conor McGregor
+ - The future is ours to win. But to get there we can’t just stand still... ~~Barack Obama
+ - If I persist long enough I will win. ~~Og Mandino
+ - Success is not a sometimes thing. In other words, you don’t do what is right once in awhile, but all the time. Success is a habit. Winning is a habit. ~~Vince Lombardi
+ - They never said winning was easy. ~~DJ Khaled
+ - Vulnerability is not about winning, and it’s not about losing. It’s about having the courage to show up and be seen. ~~Brené Brown
+ - If you think you are beaten, you are. If you think you dare not, you don’t. If you’d like to win, but you think you can’t, it is almost a cinch that you won’t. ~~Walter D. Wintle
+ - You win battles by knowing the enemy’s timing, and using a timing which the enemy does not expect. ~~Miyamoto Musashi
+ - Never play with the feelings of others. Because you may win the game but the risk is that you will surely lose the person for a life time. ~~William Shakespeare
+ - I think whether you’re having setbacks or not, the role of a leader is to always display a winning attitude. ~~Colin Powell
+ - I would tell players to relax and never think about what’s at stake. Just think about the basketball game. If you start to think about who is going to win the championship, you’ve lost your focus. ~~Michael Jordan
+ - You can win the rat race but you’re still a rat. ~~Banksy
+ - Oh the places you’ll go! There is fun to be done! There are points to be scored. There are games to be won. And the magical things you can do with that ball will make you the winning-est winner of all. ~~Dr. Seuss
+ - You’ve got to get to the stage in life where going for it is more important than winning or losing. ~~Arthur Ashe
+
+40 quotes

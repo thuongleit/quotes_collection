@@ -1,0 +1,38 @@
+ - Good economics is good politics.
+ - Leadership is not about being nice. it’s about being right and being strong.
+ - I think leadership’s always been about two main things: imagination and courage.
+ - Politicians come in three varieties: straight men, fixers, and maddies.
+ - One tires of combat, although I can still throw a punch, you know.
+ - John Howard turned the prime ministership into something like a state police minister. He’s at the scene of every crime, twice a day on radio, the guy did no thinking.
+ - He is simply a shiver looking for a spine to run up.
+ - In the end, the key ingredient for public life is imagination. You imagine something better, you try to bring the people with you.
+ - Silly what’s his name, the Shrek, whoever he was on the television this morning?
+ - This is a low flying person.
+ - I think Australia has to be a country which has the ‘Welcome’ sign out.
+ - Anybody who achieves what Malcolm Fraser achieved in his life deserves respect as a quite extraordinary Australian.
+ - The Labor Party is a party of conviction. The Liberal Party is a party of convenience.
+ - In the end it’s the big picture which changes nations and whatever our opponents may say, Australia’s changed inexorably for good, for the better.
+ - You see, psychologically, Australia must understand it has to live in the region around it. Australia must find its security in Asia; it cannot find its security from Asia.
+ - We will not adopt the fantastic hypocrisy of modern conservatism which preaches the values of families and communities, while conducting a direct assault on them through reduced wages and conditions and job security.
+ - The Labor Party is not going to profit from having these proven unsuccessful people around who are frightened of their own shadow and won’t get out of bed in the morning unless they’ve had a focus group report to tell them which side of bed to get out.
+ - Well, Australians should speak for the national interests of Australia, and whatever role former Australian prime ministers may have, one of the things you do is speak frankly about the country as you see the country’s best interests, you know?
+ - If one takes pride in one’s craft, you won’t let a good thing die. Risking it through not pushing hard enough is not a humility.
+ - The great curse of modern political life is incrementalism.
+ - When the Berlin Wall came down the Americans cried, Victory, and walked off the field.
+ - The United States being in Asia is unambiguously a good thing for the region.
+ - The fact is Burke is smarter than two thirds of the Western Australian Labor Party rolled together.
+ - No choice we can make as a nation lies between our history and our geography. We can hardly change either of them. They are immutable. The only choice we can make as a nation is the choice about our future.
+ - You see, before I became prime minister, the Australian prime minister only attended ever two meetings in the world: the British Commonwealth Heads of Government Meeting and the South Pacific Forum.
+ - I try to use the Australian idiom to its maximum advantage.
+ - You just can’t have a position where some pumped up bunyip potentate dismisses an elected government.
+ - While frenetic activity, in the end suiting journos; running at the behest of little press secretaries does not pay off.
+ - The G7, just a European centric show, an Atlantic show, is fundamentally finished.
+ - Nobody wants to have in their CV in the upper echelons of the American economic family that they nationalised major banks.
+ - The great changes in civilisation and society have been wrought by deeply held beliefs and passion rather than by a process of rational deduction.
+ - In the end, rational policy is always good.
+ - I’ve always held the view that great states need strategic space. I mean, George Washington took his space from George III. Britain took it from just about everybody. Russia took all of Eastern Europe. Germany’s taken it from everywhere they can, and China will want its space too.
+ - You know, in the WikiLeaks cables, the Chinese discovered that Kevin Rudd was urging the Americans to keep the military option open against them. This is hardly a friendly gesture.
+ - I think the rise of China is one of the great events of all economic and human history, and I think this will be overwhelmingly a positive thing for the region and the world.
+ - I think the Australian people are very conscientious. During the 1980s and 1990s we proved they will respond conscientiously to necessary reforms. They mightn’t like them but they’ll accept them. But reforms have to be presented in a digestible format.
+
+36 quotes

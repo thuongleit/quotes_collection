@@ -1,0 +1,28 @@
+ - There never has been a period of history, in which the Common Law did not recognize Christianity as lying at its foundation.
+ - He who seeks equity must do equity.
+ - The right of the citizens to keep and bear arms has justly been considered as the palladium of the liberties of a republic...
+ - One of the ordinary modes, by which tyrants accomplish their purposes without resistance, is, by disarming the people, and making it an offense to keep arms.
+ - In the next place, the state governments are, by the very theory of the constitution, essential constituent parts of the general government. They can exist without the latter, but the latter cannot exist without them.
+ - Every successive generation becomes a living memorial of our public schools, and a living example of their excellence.
+ - To secure integrity there must a lofty sense of duty and a deep responsibility to future times as well as to God.
+ - So that the executive and legislative branches of the national government depend upon, and emanate from the states. Every where the state sovereignties are represented; and the national sovereignty, as such, has no representation.
+ - The powers not delegated to the United States by the Constitution, nor prohibited by it to the States, are reserved to the States respectively, or to the people.
+ - The First Amendment was not intended to withdraw the Christian religion as a whole from the protection of Congress.
+ - Piety, religion, and morality are intimately connected with the well being of that state, and indispensable to the administration of civil justice.
+ - Republics are created by the virtue, public spirit, and intelligence of the citizens. They fall, when the wise are banished from the public councils, because they dare to be honest, and the profligate are rewarded, because they flatter the people, in order to betray them.
+ - How easily men satisfy themselves that the Constitution is exactly what they wish it to be.
+ - Human wisdom is the aggregate of all human experience, constantly accumulating, selecting, and reorganizing its own materials.
+ - A government, forever changing and changeable, is, indeed, in a state bordering upon anarchy and confusion.
+ - Here shall the Press the People’s right maintain, Unaw’d by influence and unbrib’d by gain; Here patriot Truth her glorious precepts draw, Pledg’d to Religion, Liberty, and Law.
+ - It is important also to consider, that the surest means of avoiding war is to be prepared for it in peace.
+ - No man can well doubt the propriety of placing a president of the United States under the most solemn obligations to preserve, protect, and defend the constitution.
+ - If the Constitution is a compact, then the States have a right to secede.
+ - How much more do they deserve our reverence and praise, whose lives are devoted to the formation of institutions, which, when they and their children are mingled in the common dust, may continue to cherish the principles and the practice of liberty in perpetual freshness and vigour.
+ - It should therefore be difficult in a republic to declare war; but not to make peace.
+ - In a general sense, all contributions imposed by the government upon individuals for the service of the state, are called taxes, by whatever name they may be known, whether by the name of tribute, tythe, tallage, impost, duty, gabel, custom, subsidy, aid, supply, excise, or other name.
+ - A feeble execution is but another phrase for a bad execution; and a government ill executed, whatever may be its theory, must, in practice, be a bad government.
+ - Men, to act with vigour and effect, must have time to mature measures, and judgment and experience, as to the best method of applying them. They must not be hurried on to their conclusions by the passions, or the fears of the multitude. They must deliberate, as well as resolve.
+ - And it is no less true, that personal security and private property rest entirely upon the wisdom, the stability, and the integrity of the courts of justice.
+ - I know of no power, indeed, of which a free people ought to be more jealous, than of that of levying taxes and duties.
+
+26 quotes

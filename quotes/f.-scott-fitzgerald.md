@@ -1,0 +1,502 @@
+ - Never confuse a single defeat with a final defeat.
+ - So we beat on, boats against the current, borne back ceaselessly into the past.
+ - For what it’s worth, it’s never too late to be whoever you want to be. I hope you live a life you’re proud of and if you find that you’re not, I hope you have the strength to start over.
+ - Show me a hero, and I'll write you a tragedy.
+ - You don't write because you want to say something, you write because you have something to say.
+ - That is part of the beauty of all literature. You discover that your longings are universal longings, that you're not lonely and isolated from anyone. You belong.
+ - Whenever you feel like criticizing anyone, just remember that all the people in this world haven't had the advantages that you've had.
+ - The test of a first-rate intelligence is the ability to hold two opposed ideas in mind at the same time and still retain the ability to function.
+ - The loneliest moment in someone’s life is when they are watching their whole world fall apart, and all they can do is stare blankly.
+ - To be kind is more important than to be right. Many times, what people need is not a brilliant mind that speaks but a special heart that listens.
+ - Her philosophy is carpe diem for herself and laissez faire for others.
+ - The world only exists in your eyes. You can make it as big or as small as you want.
+ - I hope she’ll be a fool. That’s the best thing a girl can be in this world, a beautiful little fool.
+ - I was within and without. Simultaneously enchanted and repelled by the inexhaustible variety of life.
+ - I don't want to repeat my innocence. I want the pleasure of losing it again.
+ - Vitality shows in not only the ability to persist but the ability to start over.
+ - I’m not sure what I’ll do, but – well, I want to go places and see people. I want my mind to grow. I want to live where things happen on a big scale.
+ - There are all kinds of love in this world but never the same love twice.
+ - Writers aren’t people exactly. Or, if they’re any good, they’re a whole lot of people trying so hard to be one person.
+ - I love her, and that’s the beginning and end of everything.
+ - Life is a comedy for those who think and a tragedy for those who feel. Show me a hero and I will write you a tragedy.
+ - I’m a cynical idealist.
+ - God knows what you’ve been doing, everything you’ve been doing. You may fool me, but you can’t fool God!
+ - I never blame failure – there are too many complicated situations in life – but I am absolutely merciless toward lack of effort.
+ - Work like hell! I had 122 rejection slips before I sold a story.
+ - I hope you live a life you’re proud of.
+ - Life starts all over again when it gets crisp in the fall.
+ - You have a place in my heart no one else ever could have.
+ - I fell in love with her courage, her sincerity, and her flaming self respect. And it’s these things I’d believe in, even if the whole world indulged in wild suspicions that she wasn’t all she should be. I love her and it is the beginning of everything.
+ - Forgotten is forgiven.
+ - Tomorrow we will run faster, stretch out our arms farther...
+ - Genius is the ability to put into effect what is on your mind.
+ - You are mysterious, I love you. You’re beautiful, intelligent, and virtuous, and that’s the rarest known combination.
+ - You are the finest, loveliest, tenderest, and most beautiful person I have ever known – and even that is an understatement.
+ - Suddenly she realized that what she was regretting was not the lost past but the lost future, not what had not been but what would never be.
+ - Actually that’s my secret – I can’t even talk about you to anybody because I don’t want any more people to know how wonderful you are.
+ - His dream must have seemed so close that he could hardly fail to grasp it. He did not know that it was already behind him.
+ - Great books write themselves, only bad books have to be written.
+ - Grown up, and that is a terribly hard thing to do. It is much easier to skip it and go from one childhood to another.
+ - Things are sweeter when they’re lost. I know – because once I wanted something and got it. It was the only thing I ever wanted badly, Dot, and when I got it it turned to dust in my hand.
+ - Life plays the same lovely and agonizing joke on all of us.
+ - There are only the pursued, the pursuing, the busy and the tired.
+ - He looked at her the way all women want to be looked at by a man.
+ - I’m a slave to my emotions, to my likes, to my hatred of boredom, to most of my desires.
+ - It was always the becoming he dreamed of, never the being.
+ - Once in a while I go off on a spree and make a fool of myself, but I always come back, and in my heart I love her all the time. – The Great Gatsby.
+ - Everybody’s youth is a dream, a form of chemical madness.
+ - It was only a sunny smile, and little it cost in the giving, but like morning light it scattered the night and made the day worth living.
+ - They were careless people, Tom and Daisy- they smashed up things and creatures and then retreated back into their money or their vast carelessness or whatever it was that kept them together, and let other people clean up the mess they had made.
+ - It was one of those rare smiles with a quality of eternal reassurance in it, that you may come across four or five times in life.
+ - Was it the infinite sadness of her eyes that drew him or the mirror of himself that he found in the gorgeous clarity of her mind?
+ - I felt a haunting loneliness sometimes, and felt it in others – young clerks in the dusk, wasting the most poignant moments of night and life.
+ - Life is progressive, no matter what our intentions.
+ - Too much of anything is bad, but too much Champagne is just right.
+ - They slipped briskly into an intimacy from which they never recovered.
+ - An author ought to write for the youth of his own generation, the critics of the next, and the schoolmaster of ever afterwards.
+ - Personality is an unbroken series of successful gestures.
+ - So I walked away and left him standing there in the moonlight – watching over nothing.
+ - They were stars on this stage, each playing to an audience of two.
+ - When you’re older you’ll know what people who love suffer. The agony. It’s better to be cold and young than to love. It’s happened to me before but never like this – so accidental – just when everything was going well.
+ - You know I’m old in some ways-in others-well, I’m just a little girl. I like sunshine and pretty things and cheerfulness-and I dread responsibility.
+ - The worst thing in the world is to try to sleep and not to.
+ - In a real dark night of the soul, it is always three o’clock in the morning, day after day.
+ - Most people think everybody feels about them much more violently than they actually do; they think other people’s opinions of them swing through great arcs of approval or disapproval.
+ - I shall go on shining as a brilliantly meaningless figure in a meaningless world.
+ - At eighteen our convictions are hills from which we look; at forty-five they are caves in which we hide.
+ - Intelligence is measured by a person’s ability to see validity within both sides of contradicting arguments.
+ - Hard to sit here and be close to you, and not kiss you.
+ - People disappeared, reappeared, made plans to go somewhere, and then lost each other, searched for each other, found each other a few feet away.
+ - I like people and I like them to like me, but I wear my heart where God put it, on the inside.
+ - Don’t forget who you are and where you come from.
+ - Reserving judgements is a matter of infinite hope.
+ - She was dazzling – alight; it was agony to comprehend her beauty in a glance.
+ - And so with the sunshine and the great bursts of leaves growing on the trees, just as things grow in fast movies, I had that familiar conviction that life was beginning over again with the summer.
+ - It understood you just as far as you wanted to be understood, believed in you as you would like to believe in yourself, and assured you that it had precisely the impression of you that, at your best, you hoped to convey.
+ - Love is fragile – she was thinking – but perhaps the pieces are saved, the things that hovered on lips, that might have been said. The new love-words, the tenderness learned, and treasured up for the next lover.
+ - Cut out all these exclamation points. An exclamation point is like laughing at your own joke.
+ - He looked at her and for a moment she lived in the bright blue worlds of his eyes, eagerly and confidently.
+ - First you take a drink, then the drink takes a drink, then the drink takes you.
+ - So we’ll just let things take their course, and never be sorry.
+ - I can’t exactly describe how I feel but it’s not quite right. And it leaves me cold.
+ - Once we were one person, and always it will be a little that way.
+ - It’s not a slam at you when people are rude, it’s a slam at the people they’ve met before.
+ - The world, as a rule, does not live on beaches and in country clubs.
+ - It’s just that I feel so sad these wonderful nights. I sort of feel they’re never coming again, and I’m not really getting all I could out of them.
+ - I am not a great man, but sometimes I think the impersonal and objective equality of my talent and the sacrifices of it, in pieces, to preserve its essential value has some sort of epic grandeur.
+ - Very few of the people who accentuate the futility of life remark the futility of themselves. Perhaps they think that in proclaiming the evil of living they somehow salvage their own worth from the ruin – but they don’t, even you and I...
+ - So we drove on toward death through the cooling twilight.
+ - You remind me of a smoked cigarette.
+ - He snatched the book from me and replaced it hastily on its shelf, muttering that if one brick was removed the whole library was liable to collapse.
+ - I hope something happens. I’m restless as the devil and have a horror of getting fat or falling in love and growing domestic.
+ - She wanted to crawl into his pocket and be safe forever.
+ - Life is essentially a cheat and its conditions are those of defeat; the redeeming things are not happiness and pleasure but the deeper satisfactions that come out of struggle.
+ - Do you ever wait for the longest day of the year and then miss it? I always wait for the longest day of the year and then miss it!
+ - I had traded the fight against love for the fight against loneliness, the fight against life for the fight against death.
+ - The Montana sunset lay between the mountains like a giant bruise from which darkened arteries spread across a poisoned sky.
+ - It appears that every man’s insomnia is as different from his neighbours as are their daytime hopes and aspirations.
+ - Nothing any good isn’t hard.
+ - The compensation of a very early success is a conviction that life is a romantic matter. In the best sense one stays young.
+ - What was it up there in the song that seemed to be calling her back inside? What would happen now in the dim, incalculable hours?
+ - I was enjoying myself now. I had taken two finger bowls of champagne and the scene had changed before my eyes into something significant, elemental and profound.
+ - For a while these reveries provided an outlet for his imagination; they were a satisfactory hint of the unreality of reality, a promise that the rock of the world was founded securely on a fairy’s wing.
+ - People living alone get used to loneliness.
+ - Tireless passion, fierce jealousy, longing to possess and crush-these alone were left of all his love for Rosalind; these remained to him as payment for the loss of his youth-bitter calomel under the thin sugar of love’s exaltation.
+ - There was a kindliness about intoxication – there was that indescribable gloss and glamour it gave, like the memories of ephemeral and faded evenings.
+ - Then it had not been merely the stars to which he had aspired on that June night. He came alive to me, delivered suddenly from the womb of his purposeless splendour.
+ - And I like large parties. They’re so intimate. At small parties there isn’t any privacy.
+ - Character is plot, plot is character.
+ - The best of America drifts to Paris. The American in Paris is the best American.
+ - There are no second acts in American lives.
+ - No amount of fire or freshness can challenge what a man will store up in his ghostly heart.
+ - Celibacy goes deeper than the flesh.
+ - Trouble has no necessary connection with discouragement. Discouragement has a germ of its own, as different from trouble as arthritis is different from a stiff joint.
+ - The rich get richer and the poor get – children.
+ - I don’t care about truth. I want some happiness.
+ - Family quarrels are bitter things. They don’t go according to any rules. They’re not like aches or wounds, they’re more like splits in the skin that won’t heal because there’s not enough material.
+ - We all have souls of different ages.
+ - Let us learn to show our friendship for a man when he is alive and not after he is dead.
+ - Before you criticize others, remember, they may not have had the same opportunities in life as you have had.
+ - He knew that when he kissed this girl, and forever wed his unutterable visions to her perishable breath, his mind would never romp again like the mind of God.
+ - Sometimes it is harder to deprive oneself of a pain than of a pleasure.
+ - I am still a little afraid of missing something if I forget that, as my father snobbishly suggested, and I snobbishly repeat, a sense of the fundamental decencies is parcelled out unequally at birth.
+ - New friends can often have a better time together than old friends.
+ - Selfish people are in a way terribly capable of great loves.
+ - Life is much more successfully looked at from a single window.
+ - In his blue gardens men and girls came and went like moths among the whisperings and the champagne and the stars.
+ - Beautiful things only grow to a certain height, and then they fail and fade off.
+ - If you spend your life sparing people’s feelings and feeding their vanity, you get so you can’t distinguish what should be respected in them.
+ - It is not life that’s complicated, it’s the struggle to guide and control life.
+ - We must leave this terrifying place to-morrow and go searching for sunshine.
+ - I won’t kiss you. It might get to be a habit and I can’t get rid of habits.
+ - In my younger and more vulnerable years my father gave me some advice that I’ve been turning over in my mind ever since.
+ - Blessed are the dead that the rain falls on.
+ - It’s a great advantage not to drink among hard drinking people.
+ - I’m a romantic; a sentimental person thinks things will last, a romantic person hopes against hope that they won’t.
+ - Later she remembered all the hours of the afternoon as happy – one of those uneventful times that seem at the moment only a link between past and future pleasure, but turn out to have been the pleasure itself.
+ - It is sadder to find the past again and find it inadequate to the present than it is to have it elude you and remain forever a harmonious conception of memory.
+ - This unlikely story begins on a sea that was a blue dream, as colorful as blue-silk stockings, and beneath a sky as blue as the irises of children’s eyes.
+ - It is in the thirties that we want friends. In the forties we know they won’t save us any more than love did.
+ - Angry, and half in love with her, and tremendously sorry, I turned away.
+ - I used to build dreams about you.
+ - I found something! Courage – just that; courage as a rule of life and something to cling to always.
+ - For a transitory enchanted moment man must have held his breath in the presence of this continent, compelled into an aesthetic contemplation he neither understood nor desired, face to face for the last time in history with something commensurate to his capacity for wonder.
+ - Travel, which had once charmed him, seemed, at length, unendurable, a business of color without substance, a phantom chase after his own dream’s shadow.
+ - But I suppose you must touch life in order to spring from it.
+ - What people are ashamed of usually makes a good story.
+ - Tired, tired with nothing, tired with everything, tired with the world’s weight he had never chosen to bear.
+ - Here’s to alcohol, the rose colored glasses of life.
+ - I’ll drink your champagne. I’ll drink every drop of it, I don’t care if it kills me.
+ - The ability to hold two competing thoughts in one’s mind and still be able to function is the mark of a superior mind.
+ - An artist is someone who can hold two opposing viewpoints and still remain fully functional.
+ - Switzerland is a country where very few things begin, but many things end.
+ - Let me tell you about the very rich. They are different from you and me.
+ - The officer looked at Daisy while she was speaking, in a way that every young girl wants to be looked at sometime, and because it seemed romantic to me I have remembered the incident ever since.
+ - It takes a genius to whine appealingly.
+ - Once I thought that Lake Forest was the most glamorous place in the world. Maybe it was.
+ - Find the key emotion; this may be all you need know to find your short story.
+ - Wine gave a sort of gallantry to their own failure.
+ - Gatsby turned out all right at the end; it is what preyed on Gatsby, what foul dust floated in the wake of his dreams that temporarily closed out my interest in the abortive sorrows and short-winded elations of men.
+ - I don’t want just words. If that’s all you have for me, you’d better go.
+ - I can’t tell you just how wonderful she is. I don’t want you to know. I don’t want any one to know.
+ - A new world, material without being real, where poor ghosts, breathing dreams like air, drifted fortuitously about.
+ - Well, you never knew exactly how much space you occupied in people’s lives. Yet from this fog his affection emerged – the best contacts are when one knows the obstacles and still wants to preserve a relation.
+ - So he tasted the deep pain that is reserved only for the strong, just as he had tasted for a little while the deep happiness.
+ - These lights, this brightness, these clusters of human hope, of wild desire – I shall take these lights in my fingers. I shall make them bright, and whether they shine or not, it is in these fingers that they shall succeed or fail.
+ - Draw your chair up close to the edge of the precipice and I’ll tell you a story.
+ - Thirty – the promise of a decade of loneliness, a thinning list of single men to know, a thinning brief-case of enthusiasm, thinning hair.
+ - Though the Jazz Age continued it became less and less an affair of youth. The sequel was like a children’s party taken over by the elders.
+ - Long ago, there was something in me, but now that thing is gone. Now that thing is gone, that thing is gone. I cannot cry. I cannot care. That thing will come back no more.
+ - I began to like New York, the racy, adventurous feel of it at night, and the satisfaction that the constant flicker of men and women and machines gives to the restless eye.
+ - Most affectations conceal something eventually, even though they don’t in the beginning.
+ - A great social success is a pretty girl who plays her cards as carefully as if she were plain.
+ - She smiled, a moving childish smile that was like all the lost youth in the world.
+ - If I knew words enough, I could write the longest love letter in the world and never get tired.
+ - All I think of ever is that I love you.
+ - You’re the only girl I’ve seen for a long time that actually did look like something blooming.
+ - Happiness is the relief after extreme tension.
+ - No grand idea was ever born in a conference, but a lot of foolish ideas have died there.
+ - The water reached up for her, pulled her down tenderly out of the heat, seeped in her hair and ran into the corners of her body. She turned round and round in it, embracing it, wallowing in it.
+ - Marriage was created not to be a background but to need one. Mine is going to be outstanding. It can’t, shan’t be the setting – it’s going to be the performance, the lively, lovely, glamorous performance, and the world shall be the scenery.
+ - A sense of the fundamental decencies is parceled out unequally at birth.
+ - All good writing is swimming under water and holding your breath.
+ - Well, you never knew exactly how much space you occupied in people’s lives.
+ - The rich are different from us.
+ - I was in love with a whirlwind, so when the girl threw me over, I went home and finished my novel.
+ - It isn’t given to us to know those rare moments when people are wide open and the lightest touch can wither or heal. A moment too late and we can never reach them any more in this world. They will not be cured by our most efficacious drugs or slain with our sharpest swords.
+ - You really ought to read more books – you know, those things that look like blocks but come apart on one side.
+ - The lights grow brighter as the earth lurches away from the sun.
+ - If that was true he must have felt that he had lost the old warm world, paid a high price for living too long with a single dream.
+ - The city seen from the Queensboro Bridge is always the city seen for the first time, in its first wild promise of all the mystery and the beauty in the world.
+ - I wasn’t actually in love, but I felt a sort of tender curiosity.
+ - Almost everybody can be imagined as either a cat or a dog.
+ - It makes me sad because I’ve never seen such – such beautiful shirts before.
+ - You’ve got an awfully kissable mouth.
+ - Never confuse activity with action.
+ - It occurred to me that there was no difference between men, in intelligence or race, so profound as the difference between the sick and the well.
+ - I didn’t realize it, but the days came along one after another, and then two years were gone, and everything was gone, and I was gone.
+ - The sign of intelligence is the ability to carry opposed thoughts at the same time.
+ - Murder your darlings.
+ - So when the blue smoke of brittle leaves was in the air and the wind blew the wet laundry stiff on the line I decided to come back home.
+ - But his heart was in a constant, turbulent riot.
+ - How strange to have failed as a social creature – even criminals do not fail that way – they are the law’s “Loyal Opposition,” so to speak. But the insane are always mere guests on earth, eternal strangers carrying around broken decalogues that they cannot read.
+ - Kiss me now, love me now.
+ - What’ll we do with ourselves this afternoon? And the day after that, and the next thirty years?
+ - I suppose books mean more than people to me anyway.
+ - It takes two to make an accident.
+ - He had waited five years and bought a mansion where he dispensed starlight to casual moths – so that he could ‘come over’ some afternoon to a stranger’s garden.
+ - Prose talent depends on having something to say and an interesting, highly developed way of saying it.
+ - I suppose the latest thing is to sit back and let Mr. Nobody from Nowhere make love to your wife.
+ - Somewhere inside me there’ll always be the person I am to-night.
+ - A writer wastes nothing.
+ - I see now that this has been a story of the West, after all – Tom and Gatsby, Daisy and Jordan and I, were all Westerners, and perhaps we possessed some deficiency in common which made us subtly unadaptable to Eastern life.
+ - This is the beauty I want. Beauty has got to be astonishing, astounding – it’s got to burst in on you like a dream, like the exquisite eyes of a girl.
+ - I hope I haven’t given you the impression that I consider kissing intrinsically irrational.
+ - Dear, don’t think of getting out of bed yet. I’ve always suspected that early rising in early life makes one nervous.
+ - Intelligence is a mere instrument of circumstances.
+ - All she wanted was to be a little girl, to be efficiently taken care of by some yielding yet superior power, stupider and steadier than herself. It seemed that the only lover she had ever wanted was a lover in a dream.
+ - Riches have never fascinated me, unless combined with the greatest charm or distinction.
+ - If you are strong enough, there are no precedents.
+ - Well, I can’t describe her exactly-except to say that she was beautiful. She was-tremendously alive.
+ - I talk with the authority of failure – Ernest with the authority of success. We could never sit across the same table again.
+ - New York had all the iridescence of the beginning of the world.
+ - Laughter is easier minute by minute, spilled with prodigality, tipped out at a cheerful word.
+ - Baseball is a game played by idiots for morons.
+ - I noticed that she wore her evening dress, all her dresses, like sports clothes-there was a jauntiness about her movements as if she had first learned to walk upon a golf course on clean, crisp, mornings.
+ - You see I usually find myself among strangers because I drift here and there trying to forget the sad things that happened to me.
+ - There’s a right way of doing things and a wrong way. If you’ve made up your mind to be different from everybody else, I don’t suppose I can stop you, but I really don’t think it’s very considerate.
+ - He talked a lot about the past and I gathered that he wanted to recover something, some idea of himself perhaps, that had gone into loving Daisy.
+ - Everywhere we go and move on and change, something’s lost – something’s left behind. You can’t ever quite repeat anything, and I’ve been so yours, here –.
+ - Then came the war, old sport. It was a great relief, and I tried very hard to die, but I seemed to bear an enchanted life.
+ - It is invariably saddening to look through new eyes at things upon which you have expended your own powers of adjustment.
+ - The two basic stories of all times are Cinderella and Jack the Giant Killer-the charm of women and the courage of men.
+ - Something was making him nibble at the edge of stale ideas as if his sturdy physical egotism no longer nourished his peremptory heart.
+ - There’s so much spring in the air- there’s so much lazy sweetness in your heart.
+ - What was the use of doing great things if I could have a better time telling her what I was going to do?
+ - There is a moment – Oh, just before the first kiss, a whispered word – something that makes it worth while.
+ - Egyptian Proverb: The worst things: To be in bed and sleep not, To want for one who comes not, To try to please and please not.
+ - Human sympathy has its limits, and we were contented to let all their tragic arguments fade with the city lights behind.
+ - The exhilarating ripple of her voice was a wild tonic in the rain.
+ - She wanted to exist only as a conscious flower, prolonging and preserving herself.
+ - Have a drink Tom and then you won’t feel so foolish to yourself.
+ - The unwelcome November rain had perversely stolen the day’s last hour and pawned it with that ancient fence, the night.
+ - A woman should be able to kiss a man beautifully and romantically without any desire to be either his wife or his mistress.
+ - I want to be a society vampire, you see.
+ - It’s a mining town in lotus land.
+ - Americans, while occasionally willing to be serfs, have always been obstinate about being peasantry.
+ - I love New York on summer afternoons when everyone’s away. There’s something very sensuous about it – overripe, as if all sorts of funny fruits were going to fall into your hands.
+ - One writes of scars healed, a loose parallel to the pathology of the skin, but there is no such thing in the life of an individual.
+ - When a man is tired of life on his 21st birthday it indicates that he is rather tired of something in himself.
+ - Never walk near the bed; to a ghost your ankle is your most vulnerable part-once in bed, you’re safe; he may lie around under the bed all night, but you’re safe as daylight. If you still have doubts pull the blanket over your head.
+ - New York had all the iridescence of the beginning of the world. The returning troops marched up Fifth Avenue and girls were instinctively drawn East and North toward them – this was the greatest nation and there was gala in the air.
+ - She was a faded but still lovely woman of twenty-seven.
+ - It’s all life is. Just going ’round kissing people.
+ - She was overstrained with grief and loneliness: almost any shoulder would have done as well.
+ - I felt that I wanted the world to be in uniform and at a sort of moral attention forever; I wanted no more riotous excursions with privileged glimpses into the human heart.
+ - It seemed that the only lover she had ever wanted was a lover in a dream.
+ - An unread book is just a block of paper.
+ - So he waited, listening for a moment longer to the tuning-fork that had been struck upon a star.
+ - A squalid phantasmagoria of breath.
+ - The rhythm of the weekend, with its birth, its planned gaiety, and its announced end, followed the rhythm of life and was a substitute for it.
+ - You’re a slave, a bound helpless slave to one thing in this world, your imagination.
+ - She was beautiful – but especially she was without mercy.
+ - Beauty means the scent of roses and then the death of roses.
+ - Optimism is the content of small men in high places.
+ - America is a willingness of the heart.
+ - The faces of most American women over thirty are relief maps of petulant and bewildered unhappiness.
+ - It’s a great advantage not to drink among hard-drinking people. You can hold your tongue, and, moreover, you can time any little irregularity of your own so that everybody else is so blind that they don’t see or care.
+ - There has never been an American tragedy. There have only been great failures.
+ - No matter how low you go, there’s always an unexplored basement.
+ - The strongest guard is placed at the gateway to nothing. Maybe because the condition of emptiness is too shameful to be divulged.
+ - Her voice sounded like money.
+ - I like France, where everybody thinks he’s Napoleon – down here everybody thinks he’s Christ.
+ - But I always felt that I’d rather be provincial hot-tamale than soup without seasoning.
+ - Often a man can play the helpless child in front of a woman, but he can almost never bring it off when he feels most like a helpless child.
+ - I want to know you moved and breathed in the same world with me.
+ - And lastly from that period I remember riding in a taxi one afternoon between very tall buildings under a mauve and rosy sky; I began to bawl because I had everything I wanted and knew I would never be so happy again.
+ - The helpless ecstasy of loosing himself in her charm was a powerful opiate rather than a tonic.
+ - Lie to me by the moonlight. Do a fabulous story.
+ - I’ve heard it said that Daisy’s murmur was only to make people lean toward her; an irrelevant criticism that made it no less charming.
+ - They had spent a year in France for no particular reason, and then drifted here and there unrestfully wherever people played polo and were rich together.
+ - I was thirty. Before me stretched the portentous, menacing road of a new decade.
+ - It’s Never too late, or in my case too early, to be whoever you want to be.
+ - Learn young about hard work and manners – and you’ll be through the whole dirty mess and nicely dead again before you know it.
+ - But you can love more than just one person, can’t you?
+ - Poetry is either something that lives like fire inside you – like music to the musician or Marxism to the Communist – or else it is nothing, an empty, formalized bore around which pedants can endlessly drone their notes and explanations.
+ - And Yale is November, crisp and energetic.
+ - People talk of the courage of convictions, but in actual life a man’s duty to his family may make a rigid course seem a selfish indulgence of his own righteousness.
+ - I’m inclined to reserve all judgments, a habit that has opened up many curious natures to me and also made me the victim of not a few veteran bores.
+ - Let’s borrow life preservers and jump over. I think we should do something spectacular. I feel that all our lives have been too restrained.
+ - Someday I’m going to find somebody and love him and love him and never let him go.
+ - The bottle of whiskey – the second one – was now in constant demand by all present, excepting Catherine, who ’felt just as good on nothing at all.
+ - Life was a damned muddle – a football game with everyone offside and the referee gotten rid of – everyone claiming the referee would have been on his side.
+ - I’ve been drunk for about a week now, and I thought it might sober me up to sit in a library.
+ - There’s no beauty without poignancy and there’s no poignancy without the feeling that it’s going, men, names, books, houses – bound for dust – mortal –.
+ - They weren’t happy, and neither of them had touched the chicken or the ale – and yet they weren’t unhappy either. There was an unmistakable air of natural intimacy about the picture and anybody would have said that they were conspiring together.
+ - At any rate, let us love for a while, for a year or so, you and me. That’s a form of divine drunkenness that we can all try. There are only diamonds in the whole world, diamonds and perhaps the shabby gift of disillusion.
+ - A sense of responsibility would spoil her. She’s too pretty.
+ - I want to give a really BAD party. I mean it. I want to give a party where there’s a brawl and seductions and people going home with their feelings hurt and women passed out in the cabinet de toilette. You wait and see.
+ - I couldn’t forgive him or like him, but I saw that what he had done was, to him, entirely justified.
+ - She was incurably dishonest.
+ - Then I grew up, and the beauty of succulent illusions fell away from me.
+ - The sun had gone down behind the tall apartments of the movie stars in the West Fifties, and the unclear voices of children, already gathered like crikets on the grass, rose through the hot twilight.
+ - You are the loveliest thing that I have ever known.
+ - I never believe much in happiness. I never believe in misery either. Those are things you see on the stage or the screen or the printed page, they never really happen to you in life.
+ - That’s the whole burden of this novel – the loss of those illusions that give such color to the world that you don’t care whether things are true or false as long as they partake of the magical glory.
+ - The things that’ll make you fail I’ll love always.
+ - You can stroke people with words.
+ - I was too absorbed to be responsive.
+ - From the ruins, lonely and inexplicable as the sphinx, rose the Empire State Building.
+ - When he buys his ties he has to ask if gin will make them run.
+ - She was feeling the pressure of the world outside and she wanted to see him and feel his presence beside her and be reassured that she was doing the right thing after all.
+ - Every act of life, from the morning toothbrush to the friend at dinner, became an effort. I hated the night when I couldn’t sleep and I hated the day because it went toward night.
+ - Happiness, remarked Maury Noble one day, is only the first hour after the alleviation of some especially intense misery.
+ - The first lights of the evening were springing into pale existence. The Ferris wheel, pricked out now in lights, revolved leisurely through the dusk; a few empty cars of the roller coaster rattled overhead.
+ - Experience is not worth the getting. It’s not a thing that happens pleasantly to a passive you – it’s a wall that an active you runs up against.
+ - Beware the artist who’s an intellectual also. The artist who doesn’t fit.
+ - I care not who hoes the lettuce of my country if I can eat the salad!
+ - A stirring warmth flowed from her, as if her heart was trying to come out to you concealed in one of those breathless, thrilling words.
+ - She wouldn’t let go of the letter. She took it into the tub with her and squeezed it up in a wet ball, and only let me leave it in the soap dish when she saw that it was coming to pieces like snow.
+ - Often I think writing is a sheer paring away of oneself leaving always something thinner, barer, more meagre.
+ - He felt married to her, that was all.
+ - Cut out all these exclamation jokes. An explanation point is like laughing at your own joke. I’m going to delete you from my contacts if you keep sending solely emoji texts. You’re a grown-ass man.
+ - He wanted to appear suddenly to her in novel and heroic colors. He wanted to stir her from that casualness she showed toward everything except herself.
+ - The words seemed to bite physically into Gatsby.
+ - He’s sensitive and I don’t want him to break his heart over somebody who doesn’t care about him.
+ - At fifteen you had the radiance of early morning, at twenty you will begin to have the melancholy brilliance of the moon.
+ - A man’s social rank is determined by the amount of bread he eats in a sandwich.
+ - I am tired of knowing nothing and being reminded of it all the time.
+ - Amory: I love you. Rosalind: I love you- now.
+ - They were smiling at each other as if this was the beginning of the world.
+ - The mind of a little child is fascinating, for it looks on old things with new eyes-but at about twelve this changes. The adolescent offers nothing, can do nothing, say nothing that the adult cannot do better.
+ - Genius goes around the world in its youth incessantly apologizing for having large feet. What wonder that later in life it should be inclined to raise those feet too swiftly to fools and bores.
+ - Begin with an individual, and before you know it you have created a type; begin with a type, and you find you have created – nothing.
+ - In short, you have only your emotions to sell. This is the experience of all writers.
+ - He had been full of the idea so long, dreamed it right through to the end, waited with his teeth set, so to speak, at an inconceivable pitch of intensity. Now, in the reaction, he was running down like an overwound clock.
+ - How the unforgettable faces of dusk would blend to her, the myriad footsteps, a thousand overtures, would blend to her footsteps; and there would be more drunkenness than wine in the softness of her eyes on his.
+ - We haven’t met for many years, said Daisy, her voice as matter-of-fact as it could ever be. “Five years next November.” The automatic quality set us all back at least another minute.
+ - Youth is like having a big plate of candy. Sentimentalists think they want to be in the pure, simple state they were in before they ate the candy. They don’t. They just want the fun of eating it all over again.
+ - I carry the place around the world in my heart but sometimes I try to shake it off in my dreams.
+ - I love this simply because it’s cute, and I guess it’s a sign of the times in many respect. It’s pretty much saying you complete me, only in the sweetest way possible.
+ - Better let it all alone in the depths of her heart and the depths of the sea.
+ - The greatest profound pain is cased by, and is the result of our own illusions, fantasies and dreams.
+ - The transition from libertine to prig was so complete.
+ - Men get to be a mixture of the charming mannerisms of the women they have known.
+ - There’s no substitute for will. Sometimes you have to fake will when you don’t feel it at all.
+ - Either you think, or else others have to think for you and take power from you, pervert and discipline your natural tastes, civilize and sterilize you.
+ - I want to just be lazy and I want some of the people around me to be doing things, because that makes me feel comfortable and safe – and I want some of them to be doing nothing at all, because they can be graceful and companionable for me.
+ - I’ve got an adjective that just fits you.
+ - I am too much a moralist at heart, and really want to preach at people in some acceptable form, rather than entertain them.
+ - People invariably chose inimitable people to imitate.
+ - I want to tell you about your heart – you’ve probably been neglecting your heart – and you don’t know.
+ - I am a woman and my business is to hold things together. My business is to tear them apart.
+ - She confused him and hindered the flow of his ideas. Self-expression had never seemed at once so desirable and so impossible.
+ - Receding from grief, it seems necessary to retrace the same steps that brought us there.
+ - I never noticed the stars before. I always thought of them as great big diamonds that belonged to some one. Now they frighten me. They make me feel that it was all a dream, all my youth.
+ - For the moment I can only cry out that I have lost my splendid mirage. Come back, come back, O glittering and white!
+ - How I feel is that if I wanted anything I’d take it. That’s what I’ve always thought all my life. But it happens that I want you, and so I just haven’t room for any other desires.
+ - Once a change of direction has begun, even though it’s the wrong one, it still tends to clothe itself as thoroughly in the appurtenances of Tightness as if it had been a natural all along.
+ - And after reading Thoreau I felt how much I have lost by leaving nature out of my life.
+ - The history of my life is the history of the struggle between an overwhelming urge to write and a combination of circumstances bent on keeping me from it.
+ - I want to die violently instead of fading out sentimentally.
+ - When people are taken out of their depths they lose their heads, no matter how charming a bluff they may put up.
+ - Speech is an arrangement of notes that will never be played again.
+ - Young people do not perceive at once that the giver of wounds is the enemy and the quoted tattle merely the arrow.
+ - Their lips brushed like young wild flowers in the wind.
+ - Beauty is only to be admired, only to be loved – to be harvested carefully and then flung at a chosen lover like a gift of roses. It seems to me, so far as I can judge clearly at all, that my beauty would be used like that...
+ - The cleverly expressed opposite of any generally accepted idea is worth a fortune to somebody.
+ - Human sympathy has its limits.
+ - Dishonesty in a woman is a thing you never blame deeply.
+ - He used to think that he wanted to be good, he wanted to be kind, he wanted to be brave and wise, but it was all pretty difficult. He wanted to be loved, too, if he could fit it in.
+ - This is what I think now: that the natural state of the sentient adult is a qualified unhappiness.
+ - Nothing is as obnoxious as other people’s luck.
+ - Scratch a Yale man with both hands and you’ll be lucky to find a coast-guard. Usually you find nothing at all.
+ - So they were desperately in love and being desperately in love involves a desperate existence.
+ - We want to believe. Young students try to believe in older authors, constituents try to believe in their Congressmen, countries try to believe in their statesmen, but they can’t. Too many voices, too much scattered, illogical ill-considered criticism.
+ - There was never a good biography of a good novelist. There couldn’t be. He is too many people if he’s any good.
+ - I wish I could write. I get these ideas but I never seem to be able to put them in words.
+ - For awhile after you quit Keats all other poetry seems to be only whistling or humming.
+ - He was so terrible that he was no longer terrible, only dehumanized.
+ - When a girl feels that she’s perfectly groomed and dressed she can forget that part of her. That’s charm.
+ - No decent career was ever founded on a public.
+ - To a profound pessimist about life, being in danger is not depressing.
+ - The hangover became a part of the day as well allowed-for as the Spanish siesta.
+ - They were still in the happier stages of love. They were full of brave illusions about each other, tremendous illusions, so that the communion of self with self seemed to be on a plane where no other human relations mattered.
+ - That familiar conviction that life was beginning over again with the summer.
+ - Having once found the intensity of art, nothing else that can happen in life can ever again seem as important as the creative process.
+ - The kiss originated when the first male reptile licked the first female reptile, implying in a subtle way that she was as succulent as the small reptile he had for dinner the night before.
+ - The easiest way to get a reputation is to go outside the fold, shout around for a few years as a violent atheist or a dangerous radical, and then crawl back to the shelter.
+ - Any person with any imagination is bound to be afraid.
+ - It is youth’s felicity as well as its insufficiency that it can never live in the present, but must always be measuring up the day against its own radiantly imagined future.
+ - To create souls in men, to create fine happiness and fine despair she must remain deeply proud – proud to be inviolate, proud also to be melting, to be passionate and possessed.
+ - Boredom is not an end-product, is comparatively rather an early stage in life and art. You’ve got to go by or past or through boredom, as through a filter, before the clear product emerges.
+ - Exploration was for those with a measure of peasant blood, those with big thighs and thick ankles who could take punishment as they took bread and salt, on every inch of flesh and spirit.
+ - It was strange to have no self-to be like a little boy left alone in a big house, who knew that now he could do anything he wanted to do, but found that there was nothing that he wanted to do.
+ - She knew few words and believed in none.
+ - A writer’s temperament is continually making him do things he can never repair.
+ - He’s so dumb he doesn’t know he’s alive.
+ - I want you to take a red-hot bath as hot as you can bear it, and just relax your nerves. You can read in the tub if you wish.
+ - His was a great sin who first invented consciousness. Let us lose it for a few hours.
+ - The invitation to Miss Myra St. Claire’s bobbing party spent the morning in his coat pocket, where it had an intense physical affair with a dusty piece of peanut brittle.
+ - The mouth was wide open and ripped at the corners, as though she had choked a little in giving up the tremendous vitality she had stored so long.
+ - Nancy had a mouth like a remembered kiss...
+ - When I’m with you, I don’t breathe quite right.
+ - He had seen me several times, and had intended to call on me long before, but a peculiar combination of circumstances had prevented it.
+ - Only remember west of the Mississippi it’s a little more look, see, act. A little less rationalize, comment, talk.
+ - So there was not an “I” anymore-not a basis on which I could organize my self-respect-save my limitless capacity for toil that it seemed I possessed no more.
+ - He was handsome then if never before, bound for one of those immortal moments which come so radiantly that their remembered light is enough to see by for years.
+ - She was a dark, unenduring little flower – yet he thought he detected in her some quality of spiritual reticence, of strength drawn from her passive acceptance of all things. In this he was mistaken.
+ - I want leisure to read – an immense amount.
+ - The notion of sitting down and conjuring up, not only words in which to clothe thoughts but thoughts worthy of being clothed – the whole thing was absurdly beyond his desires.
+ - She smiled at him, making sure that the smile gathered up everything inside her and directed it toward him, making him a profound promise of herself for so little, for the beat of a response, the assurance of a complimentary vibration in him.
+ - The purpose of a work of fiction is to appeal to the lingering after-effects in the reader’s mind as differing from, say, the purpose of oratory or philosophy which respectively leave people in a fighting or thoughtful mood.
+ - They talked aimlessly back and forth, each speaking for the other.
+ - Rosemary felt that this swim would become the typical one of her life, the one that would always pop up in her memory at the mention of swimming.
+ - To write it, it took three months; to conceive it three minutes; to collect the data in it all my life.
+ - I was a little shocked at the elaborateness of the lie.
+ - She saw something awful in the very simplicity she failed to understand.
+ - The afternoon had made them tranquil for a while, as if to give them a deep memory for the long parting the next day promised.
+ - Advertising is a racket, like the movies and the brokerage business. You cannot be honest without admitting that its constructive contribution to humanity is exactly minus zero.
+ - A big man has no time really to do anything but just sit and be big.
+ - My generation of radicals and breakers-down never found anything to take the place of the old virtues of work and courage and the old graces of courtesy and politeness.
+ - Every one suspects himself of at least one of the cardinal virtues.
+ - I have never wished there was a God to call on- I have often wished there was a God to thank.
+ - I just couldn’t make the grade as a hack-that, like everything else, requires a certain practiced excellence.
+ - That however the brains and abilities of men may differ, their stomachs are essentially the same.
+ - Nobody ever became a writer just by wanting to be one.
+ - If you try to create a type, you may end with nothing. If you do a good job of creating an individual, you may succeed at creating a type.
+ - How different it all was from what you’d planned.
+ - Those days are over. I have to be won all over again every time you see me.
+ - No one person in the world is necessary to you or to me.
+ - Reporting the extreme things as if they were the average things will start you on the art of fiction.
+ - There was even a recurrent idea in America about an education that would leave out history and the past, that should be a sort of equipment for aerial adventure, weighed down by none of the stowaways of inheritance or tradition.
+ - He dispensed starlight to casual moths.
+ - One thin’s sure and nothing’s surer The rich get richer and the poor get – children. In the meantime, In between time...
+ - Nicole’s world had fallen to pieces, but it was only a flimsy and scarcely created world; beneath it her emotions and instincts fought on.
+ - I’m merely trying to give you the sort of argument that would appeal to your intelligence.
+ - The men – the undergraduates of Yale and Princeton are cleaner, healthier, better-looking, better dressed, wealthier and more attractive than any undergraduate body in the country.
+ - Very strong personalities must confine themselves in mutual conversation to very gentle subjects.
+ - She looked at me and laughed pointlessly. Then she flounced over to the dog, kissed it with ecstasy, and swept into the kitchen, implying that a dozen chefs awaited her orders there.
+ - The farmers may be the backbone of the country, but who wants to be a backbone?
+ - It was testimony to the romantic speculation he inspired that there were whispers about him from those who had found little that it was necessary to whisper about in this world.
+ - Debut: the first time a young girl is seen drunk in public.
+ - One hurries through, even though there’s time; the past, the continent, is behind; the future is the glowing mouth in the side of the ship; the dim, turbulent alley is too confusedly the present.
+ - He had no plans, no definite intentions, except to kiss her lips again, to hold her in his arms.
+ - Fairies: Nature’s attempt to get rid of soft boys by sterilizing them.
+ - I may turn out an intellectual, but I’ll never write anything but mediocre poetry.
+ - Every author ought to write every book as if he were going to be beheaded the day he finished it.
+ - Shakespeare – whetting, frustrating, surprising and gratifying.
+ - I learned a little of beauty – enough to know that it had nothing to do with truth – and I found, moreover, that there was no great literary tradition; there was only the tradition of the eventful death of every literary tradition.
+ - To most women art is a form of scandal.
+ - I learned a little of beauty – enough to know that it had nothing to do with truth...
+ - When I see a beautiful shell like that I can’t help feeling a regret about what’s inside it.
+ - Premature success gives one an almost mystical conception of destiny as opposed to will power-at its worst the Napoleonic delusion.
+ - It was too late – everything was too late. For years now he had dreamed the world away, basing his decisions upon emotions unstable as water.
+ - When the lightning strikes one of us, it strikes both.
+ - You have to develop a conscience and if on top of that you have talent so much the better. But if you have talent without conscience, you are just one of many thousand journalists.
+ - As we passed over the dark bridge her wan face fell lazily against my coat’s shoulder and the formidable stroke of thirty died away with the reassuring pressure of her hand.
+ - If he had to bring all the bitterness and hatred of the world into his heart, he was not going to be in love with her again.
+ - The truth was that for some months he had been going through that partitioning of the things of youth wherein it is decided whether or not to die for what one no longer believes.
+ - Her body calculated to a millimeter to suggest a bud yet guarantee a flower.
+ - Given a decent start any girl can beat a man nowadays.
+ - Stahr’s eyes and Kathleen’s met and tangled. For an instant they made love as no one ever dares to do after. Their glance was slower than an embrace, more urgent than a call.
+ - I began to realize that for two years my life had been a drawing on resources that I did not possess, that I had been mortgaging myself physically and spiritually up to the hilt.
+ - After all, life hasn’t much to offer except youth, and I suppose for older people, the love of youth in others.
+ - Very well then, better a sane crook than a mad puritan.
+ - Poetry is either something that lives like fire inside you.
+ - If all your clothes are worn to the same state, it means you go out too much.
+ - He had angered Providence by resisting too many temptations. There was nothing left but heaven, where he would meet only those who, like him, had wasted earth.
+ - You don’t know what a trial it is to be – like me. I’ve got to keep my face like steel in the street to keep men from winking at me.
+ - No one should live beyond 30.
+ - They had never been closer in their month of love, nor communicated more profoundly one with another, than when she brushed silent lips against his coat’s shoulder or when he touched the end of her fingers, gently, as though she were asleep.
+ - Great art is the contempt of a great man for small art.
+ - The idea that to make a man work you’ve got to hold gold in front of his eyes is a growth, not an axiom. We’ve done that for so long that we’ve forgotten there’s any other way.
+ - One girl can be pretty – but a dozen are only a chorus.
+ - Eighteen might look at thirty-four through a rising mist of adolescence, but twenty-two would see thirty-eight with discerning clarity.
+ - I’ve noticed that the children of other nations always seem precocious. That’s because the strange manners of their elders have caught our attention most and the children echo those manners enough to seem like their parents.
+ - Some men have a necessity to be mean, as if they were exercising a faculty which they had to partially neglect since early childhood.
+ - Her beauty climbed the rolling slope, it came into the room, rustling ghost-like through the curtains...
+ - He had possessed the arrogance of a tall member of a short race, with no obligation save to be tall.
+ - Sometimes I don’t know whether I’m real or whether I’m a character in one of my novels.
+ - Aristocracy’s only an admission that certain traits which we call fine – courage and honor and beauty and all that sort of thing – can best be developed in a favorable environment, where you don’t have the warpings of ignorance and necessity.
+ - It is not necessarily poverty of spirit that makes a woman surround herself with life – it can be a superabundance of interest...
+ - A lot of young girls together is a romantic secret thing like the first sight of wild ducks at dawn.
+ - Sometimes I think that idlers seem to be a special class for whom nothing can be planned, plead as one will with them – their only contribution to the human family is to warm a seat at the common table.
+ - All that kept her from breaking was that it was not an image of strength that was leaving her; she would be just as strong without him.
+ - Englishmen must have an island.
+ - Never befuddle a solitary thrashing with a last annihilation.
+ - All things come to him who mates.
+ - Long afterward Amory thought of sophomore spring as the happiest time of his life. His ideas were in tune with life as he found it; he wanted no more than to drift and dream and enjoy a dozen new-found friendships through the April afternoons.
+ - Men don’t often know those times when a girl could be had for nothing.
+ - Intermittently she caught the gist of his sentences and supplied the rest from her subconscious, as one picks up the striking of a clock in the middle with only the rhythm of the first uncounted strokes lingering in the mind.
+ - The world is always curious, and people become valuable merely for their inaccessibility.
+ - I think that we already have a really good system in town, but I have a vision that it could be even better. My vision is that academic excellence is the area that we should pursue more, coupled with fiscal discipline.
+ - Everything that begins, begins with blood.
+ - Now the standard cure for one who is sunk is to consider those in actual destitution or physical suffering.
+ - I don’t much care where I am anymore, nor expect very much from places.
+ - Amory thought how it was only the past that seemed strange and unbelievable.
+ - Men she knew’? – she had conceded vaguely to herself that all men who had ever been in love with her were her friends.
+ - No such thing as a man willing to be honest – that would be like a blind man willing to see.
+ - She was a mischief, and that was a satisfaction; no longer was she a huntress of corralled game.
+
+500 quotes

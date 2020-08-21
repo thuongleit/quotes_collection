@@ -1,0 +1,28 @@
+ - The design process, at its best, integrates the aspirations of art, science, and culture.
+ - That’s right, kid. Never play an ace if a two will do.
+ - Smiley Bone: You can’t feel safe unless there’s something to be safe against! Phoney Bone: Exactly! People like to be victims! There’s a certain unassailable moral superiority about it...
+ - The squid is so cooperative. Its body forms a tube that can be stuffed with marvelous fillings. You don’t have to be Greek to enjoy this one.
+ - The way I feel about it is: Beat me or feed me, but don’t tease me. It’s toy food; who needs it? Serve it to toy people.
+ - Phoney: Here’s your problem Fone Bone! We’re off the map! Get a bigger map!
+ - I think people have a little wall they throw up real quick if they see swords and sorcery.
+ - Upon your feet you have ten toes, they look just like PO-TA-TOES!
+ - Feasting is also closely related to memory. We eat certain things in a particular way in order to remember who we are. Why else would you eat grits in Madison, New Jersey?
+ - Most seafoods should be simply threatened with heat and then celebrated with joy.
+ - The 20-G Centrifuge is our largest facility certified for use by humans. Its capabilities make it a unique NASA resource and a very versatile research tool that is ideal for developing health-maintenance activities for astronauts.
+ - All kids draw some kind of cartoon characters. They just grow out of them, and I didn’t.
+ - Slaves were taught to be fine chefs, but they endangered their lives if they made a mistake or served an ill-prepared dish. Rather than being reprimanded, they were often hauled into the dining room and flogged in the presence of the guests.
+ - I don’t go for the nouvelle approach – serving a rabbit rump with coffee extract sauce and a slice of kiwi fruit.
+ - Prepared and fast foods have given us the time and freedom to see cooking as an art form – a form of creative expression.
+ - I’m 40 years old, and I still love watching Bugs Bunny slap the bull on the nose. I still watch those cartoons, and yet I also enjoy reading books about science, or the current fiction.
+ - How can people say they don’t eat eggplant when God loves the color and the French love the name? I don’t under’stand.
+ - Please understand the reason why Chinese vegetables taste so good. It is simple. The Chinese do not cook them, they just threaten them!
+ - Omit and substitute! That’s how recipes should be written. Please don’t ever get so hung up on published recipes that you forget that you can omit and substitute.
+ - Walt Kelly was much more interested in allegory and politics, and I’m much more interested in metaphors and myth.
+ - Scallops are expensive, so they should be treated with some class. But then, I suppose that every creature that gives his life for our table should be treated with class.
+ - Stupid, Stupid Rat Creatures!
+ - As I got into the animation, as I learned more about the business, I learned that you need a lot of people to do anything animated – even a short, let alone a feature film. And you need a lot of money.
+ - I never graduated, but I was kind of floating between journalism and art, because neither one wanted to claim me, as a cartoonist.
+ - Serve this dish with much too much wine for your guests, along with some cooked green vegetables and a huge salad. You will be famous in about half an hour.
+ - I think the audience is truly all ages: I don’t put anything in there that kids can’t see, or shouldn’t see, but I have to keep it interesting for me as an adult.
+
+26 quotes

@@ -1,0 +1,74 @@
+ - When you innovate, you’ve got to be prepared for people telling you that you are nuts.
+ - I’m addicted to winning. The more you win, the more you want to win.
+ - Winning is not enough. All others must lose.
+ - Great achievers are driven, not so much by the pursuit of success, but by the fear of failure.
+ - Winning is a habit. Unfortunately, so is losing. Sure, there’s the talent, but there also has to be the will. Give me human will and the intense desire to win and it will trump talent every day of the week.
+ - Life’s a journey. It’s a journey about discovering limits.
+ - See things in the present, even if they are in the future.
+ - If I were 21 years old, I would go into biotechnology or genetic engineering.
+ - You have to act and act now.
+ - You have to believe in what you do in order to get what you want.
+ - When I do something, it is all about self-discovery. I want to learn and discover my own limits.
+ - I have had all the disadvantages required for success.
+ - All you can do is all you can do.
+ - You realize that life is short and fragile; and when you are facing walls of water, you understand your own mortality can change and how quickly things could change.
+ - Think of it as you want it, not as it is!
+ - Act confident, even when you’re not.
+ - I believe people have to follow their dreams-I did.
+ - You cannot innovate by copying.
+ - I’m right, and everyone else is wrong.
+ - I think I am very goal oriented. I’d like to win the America’s cup. I’d like Oracle to be the No 1 software company in the world. I still think it is possible to beat Microsoft.
+ - All you can do is every day, try to solve a problem and make your company better.
+ - Maybe I’m an idiot, but I have no idea what anyone is talking about.
+ - When you live your life in different ways, it makes people around you become uncomfortable. So deal with it. They don’t know what you are going to do.
+ - The most important aspect of my personality as far as determining my success goes; has been my questioning conventional wisdom, doubting experts and questioning authority. While that can be painful in your relationships with your parents and teachers, it’s enormously useful in life.
+ - What can a sales person say to somebody to get them to buy a product that they already use every day if they don’t like it? Nothing.
+ - Building Oracle is like doing math puzzles as a kid.
+ - To model yourself after Steve Jobs is like, ‘I’d like to paint like Picasso, what should I do? Should I use more red?’
+ - I hate the PC, with a passion.
+ - It’s my job for Oracle, the number two software company in the world; to become the number one software company in the world. My job is to build better than the competition, sell those products in the marketplace and eventually supplant Microsoft and move from being number two to number one.
+ - The only way to get ahead is to find errors in conventional wisdom.
+ - Five years from now, I don’t know how I’ll think.
+ - The computer industry is the only industry that is more fashion-driven than women’s fashion. Maybe I’m an idiot, but I have no idea what anyone is talking about. What is it? It’s complete gibberish. It’s insane. When is this idiocy going to stop?
+ - Taking care of your employees is extremely important and very, very visible.
+ - When you’re the first person whose beliefs are different from what everyone else believes, you’re basically saying, “I’m right, and everyone else is wrong.” That’s a very unpleasant position to be in. It’s at once exhilarating and at the same time an invitation to be attacked.
+ - Because software is all about scale. The larger you are, the more profitable you are. If we sell twice as much as software, it doesn’t cost us twice as much to build that software. So the more customers you have, the more scale you have. The larger you are, the more profitable you are.
+ - I have run engineering since day one at Oracle, and I still run engineering. I hold meetings every week with the database team, the middle ware team, the applications team. I run engineering and I will do that until the board throws me out of there.
+ - The interesting thing about cloud computing is that we’ve redefined cloud computing to include everything that we already do. I can’t think of anything that isn’t cloud computing with all of these announcements.
+ - Once the business data have been centralized and integrated, the value of the database is greater than the sum of the preexisting parts.
+ - I think about the business all the time. Well I shouldn’t say all the time. I don’t think about it when I am wakeboarding. But even when I am on vacation, or on my boat; I am on email everyday. I am always prowling around the internet looking at what our competitors are doing.
+ - Both my mother and I were determined that we weren’t going to stay on welfare. We always worked toward doing better, toward having a better life. We never had any doubts that we would.
+ - The computer industry is the only industry that is more fashion-driven than women’s fashion.
+ - If an innovative piece of software comes along, Microsoft copies it and makes it part of Windows. This is not innovation; this is the end of innovation.
+ - When you find errors in conventional wisdom-when everyone says A and A is not true-you gain competitive advantage. Only a few times do you have to find errors in conventional wisdom to make a living.
+ - I know some people are offended by the fact that I’m spending a lot of money trying to win the America’s Cup. I could have given all that money to charity.
+ - I was vehemently against acquisitions. Now let’s buy everything in sight. Well, that’s a slight exaggeration. We are a little more strategic than that. But everything was on sale.
+ - Bill Gates is the pope of the personal computer industry. He decides who is going to build.
+ - A corporation’s primary goal is to make money. Government’s primary role is to take a big chunk of that money and give it to others.
+ - You can’t spend as much money as I have, even if you try. I’ve been trying.
+ - I wish HP nothing but the best. I think HP is an icon. Those of us who had their careers in the Valley think of Dave Packard and Bill Hewlett as role models. We would love to be half as good as they were.
+ - Those that believe this is merely a downturn are mad. Our industry is going to mature and as something matures, the rate of innovation does slow.
+ - We have been doing things that are contrary; the things that people tell us won’t work from the beginning. In fact, the only way to get ahead is to find errors in conventional wisdom.
+ - I started NetSuite. NetSuite was my idea. I called up Evan Goldberg and said, ‘We’re going to do ERP on the Internet, software-as-a-service.’ Six months later Marc Benioff, finding out what NetSuite was doing, and kind of copied it.
+ - All you can do is every day, try to solve a problem and make your company better. You can’t worry about it, you can’t panic when you look at the stock market’s decline. You get frozen like a deer in the headlights. All you can do is all you can do.
+ - I think after a certain amount, I’m going to give almost everything I have to charity. What else can you do with it? You can’t spend it, even if you try. I’ve been trying.
+ - Microsoft is already the most powerful company on earth but you ain’t seen nothing yet.
+ - When you write a program for Android, you use the Oracle Java tools for everything, and at the very end, you push a button and say, Convert this to Android format.
+ - There will be no new architecture for computing for the next 1,000 years.
+ - I love sailing. I like it more when I am winning.
+ - If the Internet turns out not to be the future of computing, we’re toast. But if it is, we’re golden.
+ - Once open source gets good enough, competing with it would be insane.
+ - In some ways, getting away from the headquarters and having a little time to reflect allows you to find errors in your strategy. You get to rethink things. Often, that helps me correct a mistake that I made or someone else is about to make.
+ - Everyone thought the acquisition strategy was extremely risky because no one had ever done it successfully. In other words, it was innovative.
+ - Really great blogs do not take the place of great microprocessors. Great blogs do not replace great software. Lots and lots of blogs does not replace lots and lots of sales.
+ - If I see Danny Hillis quoted as an expert on MPP one more time, I’m going to puke.
+ - In order to grow at this pace, there will have to be a couple of acquisitions along the way. The tricky thing is to grow at this rate and maintain a 40 percent operating margin.
+ - We saw – we conducted the experiment. I mean, it’s been done. We saw Apple with Steve Jobs. We saw Apple without Steve Jobs. We saw Apple with Steve Jobs. Now, we’re gonna see Apple without Steve Jobs.
+ - So what makes me happy? I was really happy to build this house. That’s it; building things. The trouble with software is that it’s very hard to show your aunt in Florida what you’ve done.
+ - Our goal is simply to become the desktop for e-businesses.
+ - Most companies don’t want their data co-mingled with other customers. Small companies will tolerate it.
+ - The things that caused problems for me in school are the same things that help me succeed in the world.
+ - It’s Microsoft versus mankind, with Microsoft having only a slight lead.
+ - We will still be enormously profitable and by far the most profitable enterprise software company.
+
+72 quotes

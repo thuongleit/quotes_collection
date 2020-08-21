@@ -1,0 +1,22 @@
+ - Focus on the present moment. Stay in the moment.
+ - Rome wasn’t built in a day. And neither was your body.
+ - All I ask is that you do your best, and forget the rest.
+ - Don’t say ‘I can’t,’ say ‘I presently struggle with.’
+ - Eliminate the mindset of can’t! Because you can do anything!
+ - Aging is for people who don’t know any better.
+ - Turn off your mind, and focus on what you’ve got to do – task at hand.
+ - Don’t let your ego get in the way of your success.
+ - Falling and getting back up is what brings you success.
+ - The hammer doesn’t build the house.
+ - Tip of the day- Don’t smash your face!
+ - You can do anything for 30 seconds.
+ - Exercise for the joy of feeling good and getting better. Eat right with the intention of fueling your body with the things it needs to perform.
+ - Excuses are a list of self imposed obstacles that prevent you from having a better life.
+ - If you’re doing Plyometrics you can jump higher and run faster and your heart and lungs are going to kick the panties off of anybody else that tries to get out there without it.
+ - You can get better, or you can get all gooey, and crotchety, old, pathetic, icky, gross. Not me. Not into it.
+ - I can do things at 45, not because I can do a bunch of pull-ups, it’s because I do Yoga!
+ - Don’t put Banana and Hammock in the same sentence.
+ - The health care problem is not solved in the white house, its solved in YOUR HOUSE.
+ - You don’t get off easy, you just get to finish faster!
+
+20 quotes

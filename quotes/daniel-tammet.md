@@ -1,0 +1,39 @@
+ - Moment by moment throughout our lifetime, our brains hum with the work of making meaning: weaving together many thousands of threads of information into all manner of thoughts, feelings, memories, and ideas.
+ - Often autism is portrayed in the media as a very negative condition, as something that prevents somebody from communicating or from socializing or from being able to have any kind of normal, happy life.
+ - I love books so much. I’ve read more books than anyone else I know.
+ - You don’t have to be disabled to be different, because everybody’s different.
+ - I consider social skills a bit like learning a language. I’ve been practising it for so long over so many years I’ve almost lost my accent.
+ - Every culture has contributed to maths just as it has contributed to literature. It’s a universal language; numbers belong to everyone.
+ - Aesthetic judgments, rather than abstract reasoning, guide and shape the process by which we all come to know what we know.
+ - Why learn a number like pi to so many decimal places? The answer I gave then as I do now is that pi is for me an extremely beautiful and utterly unique thing. Like the Mona Lisa or a Mozart symphony, pi is its own reason for loving it.
+ - I have never played the lottery in my life and never will. Voltaire described lotteries as a tax on stupidity. More specifically, I think, on innumeracy.
+ - When I multiply numbers together, I see two shapes. The image starts to change and evolve, and a third shape emerges. That’s the answer. It’s mental imagery. It’s like maths without having to think.
+ - I’m not sure I’m the only savant with high IQ or with an above average IQ. Again, it may just be that we don’t know very many of the others.
+ - I know from my own experience that there is much more to ‘intelligence’ than an IQ number. In fact, I hesitate to believe that any system could really reflect the complexity and uniqueness of one person’s mind, or meaningfully describe the nature of his or her potential.
+ - There is no such thing as an average person. They really are guidelines for people to grapple with the unknown, and we can always surprise expectations.
+ - Even the greatest mathematicians, the ones that we would put into our mythology of great mathematicians, had to do a great deal of leg work in order to get to the solution in the end.
+ - 37 is a lumpy number, a bit like porridge. Six is very small and dark and cold, and whenever I was little trying to understand what sadness is I would imagine myself inside a number six and having that experience of cold and darkness. Similarly, number four is a shy number.
+ - I love music. I have a fondness for Chopin, and I very much like his ‘Raindrop Prelude.’
+ - I did have a very restricted, regimented life. There was a kind of happiness there, a contentment, but it was a small happiness within very clear and delineated borders.
+ - I certainly have routines in my day-to-day life that are important to me and still give me feelings of security and control, but the capacity to break out of them every so often as I travel has given me a second wind.
+ - I recited Pi to 22,514 decimal points in five hours and nine minutes. I was able to do this because of weeks of study, aided by the unusual synaesthesic way my mind perceives numbers as complex multidimensional coloured and textured shapes.
+ - Like works of literature, mathematical ideas help expand our circle of empathy, liberating us from the tyranny of a single, parochial point of view. Numbers, properly considered, make us better people.
+ - Logic obviously is important. You need to be able to figure things out, to go to the end of a particular problem. But intuition is very important because it references things that logic alone cannot.
+ - I can well imagine that certain writers, even writers that we’d consider today very great writers, may not necessarily have tested highly on IQ just because of their numerical skills, or maybe they may not be very good at memory, and are not particularly good at these kinds of tests.
+ - I have tried to be more flexible, but I always end up feeling more uncomfortable. Retaining a sense of control is really important. I like to do things in my own time, and in my own style, so an office with targets and bureaucracy just wouldn’t work.
+ - The human brain is like a memory system that records every thing that happens to us and makes intelligent predictions based on those experiences.
+ - I changed my name because it didn’t fit with the way I saw myself.
+ - It was hard for me to find my voice because I was, for so long, absorbed in my own world.
+ - There are estimated to be fewer that 50 prodigious savants worldwide. If we were brought together, it would be disappointing in the sense of us having different abilities. One thing that would make me feel united with them would be the sense of us having grown up in isolation.
+ - I would play with numbers in a way that other kids would play with their friends.
+ - Fischer, the great American chess champion, famously said, ‘Chess is life.’ I would say, ‘Pi is life.’
+ - I feel traveling certainly does broaden the mind. In my case certainly I feel more confident. It gives you a new perspective on the world.
+ - I thought of the infinitely many points that can divide the space between two human hearts.
+ - Life is going to be complex, and the only way we’re able navigate our way through it at all is by living as best we can and absorbing those experiences and somehow making intuitive responses in future situations that resemble them in some way.
+ - I’m inconsistent because I’m human.
+ - I do read a lot, and I think in recent years the ratio between the amount of non-fiction and fiction has tipped quite considerably. I did read fiction as a teenager as well, mostly because I was forced to read fiction, of course, to go through high school.
+ - When I achieved the European record for reciting pi in 2004, this captured the imagination of Professor Simon Baron-Cohen in Cambridge, and he finally diagnosed me with Asperger’s that year.
+ - My mother is not a model. She is not perfect. That awareness is part of learning to love someone. Predicting the actions of someone is an act of love. We persist, even when we get it wrong. That’s the beauty of love.
+ - We will always have more to discover, more to invent, more to understand and that’s much closer to art and literature than any science.
+
+37 quotes

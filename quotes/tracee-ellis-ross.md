@@ -1,0 +1,29 @@
+ - I am learning every day to allow the space between where I am and where I want to be to inspire me and not terrify me.
+ - Wisdom means to choose now what will make sense later.
+ - Here is my wish and my desire and my pledge as well: that we remember our true nature and our womanhood. That we own and know that we are more than our bodies and yet our bodies are these sacred, beautiful, rhythmic houses for us.
+ - When you feel happy, you look beautiful.
+ - Differences in experience, points of view and opinions aren’t what pulls us apart. It’s what pulls us together.
+ - Just embrace your hair! I really feel like I am not an advocate for people doing what I do. I’m an advocate for people discovering and finding what works for them.
+ - My bathroom is filled with hair and makeup stuff and I play with it all the time. What the real lesson is, is that you can own your own sense of beauty. It doesn’t have to be something you get from somewhere else.
+ - I’m a really big believer in self care. One of the ways I nourish my soul is I eat the way I live my life – joyfully.
+ - I’m trying to find my own version of what makes me feel beautiful.
+ - I was shy, but it came out in a big personality. My turning point was when I let my hair go naturally and I got contact lenses. I am really blind, by the way. I have these big eyes that don’t work!
+ - In some of the darkest and hardest moments, there is always a part of me that is okay. And I can always access that part of me.
+ - I buy what makes my heart sing. So, it’s not that I follow one specific track. It’s sort of what I like. I love colors. I love unique pieces. I love vintage clothing.
+ - I don’t really talk about my personal life. It’s a strange and funny and weird thing. Sometimes you have a conversation with someone and the paparazzi snaps a picture of you and people decide you’re dating. If I try to answer everything people say, I would be up all night.
+ - Nothing goes to windward like a 747.
+ - Because of my unique experience as my mom’s child, the beginning of my journey was more about me trying to figure out who I was on my own. My mom is one of the greatest moms and so supportive of all my siblings and of all of us being who we are, and not who she wanted us to be.
+ - One of the things I’ve realized is how portable God is. No really, He’s everywhere!
+ - I’m extremely blessed to have the extraordinary mother that I have, and I don’t mean Diana Ross, I mean the mother. My mom paved a road that didn’t exist, as did Oprah.
+ - There is a way to be a woman, ask for what we deserve and be able to negotiate.
+ - Black-ish is really a show about an American family and these are some of the topics that come up – for all of us, in different ways – and we get to see how this family is walking through it.
+ - If I’m going to show cleavage or chest then I don’t show leg. I show one thing. If I show leg then everything else is covered up.
+ - I hope they look at me and think, ‘That lady looks like she accepts herself.’
+ - I think television is doing a better job than films in terms of representing people, but television is still not diverse.
+ - When I’m not working, I spend a lot of time on my hair. When it’s time for my hair to get some rest, I either wear it in a ponytail, bun or my favorite ‘milkmaid’ braid.
+ - I’m a farmer’s market girl, so if you go and get beautiful, fresh fruit, that’s local, and it hasn’t been frozen yet, it’s pretty fantastic.
+ - Sometimes I feel like art is supposed to mirror life, but strangely it’s as if art is trying to catch up to life, to a certain extent.
+ - I was spoiled when I worked in the magazine world. Fashion closets are heaven and I seem to model my organization after a fashion closet.
+ - There are a ton of foods that are great for you, that’s like an indulgence.
+
+27 quotes

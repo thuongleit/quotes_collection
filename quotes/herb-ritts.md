@@ -1,0 +1,28 @@
+ - Many people who excel are self-taught.
+ - Being an American is about having the right to be who you are. Sometimes that doesn’t happen.
+ - It’s important to let your subjects be themselves.
+ - I was an economics major, which I enjoyed because I had a good business sense.
+ - Well, I liked it – that was the main thing. I liked it, but I didn’t think of it in terms of a career. I didn’t really know; I didn’t really think about it. One thing just led to another until finally I quit my job as a salesman and found myself working as a photographer.
+ - I’m pretty selective. I generally edit the contact sheets and then do work prints. Because I have my own lab and printers, I can afford the luxury of going through the contact sheets for black-and-white, making up work prints, seeing them big, and honing them down.
+ - The education, the cultural awareness, is different in Europe, especially in France, from that in the United States. So I think the public will be much more appreciative of many images.
+ - Even though I didn’t get a business degree, I enjoyed learning about economics.
+ - To me it’s just going for the moment that counts. Sometimes, I’ll have all the elements there, and I like to play and push something, and to me, in the end, you do achieve things that you’re not aware of in the beginning, even though you’re there trying to get them.
+ - I think a lot of the time these days people are so concerned about having the right camera and the right film and the right lenses and all the special effects that go along with it, even the computer, that they’re missing the key element.
+ - I did grow up next door to Steve McQueen, who was a very famous movie star at the time, but as a kid it didn’t impress me. We always had great fun with him. He would take us out on Sundays on his motorcycles, riding around in the desert; he was like a second father.
+ - Actually, when I first started dabbling in photography, I was still working for my parents as a salesman.
+ - Coming from California and growing up where I did, I’ve always had a fondness for and innate sensitivity to light, texture, and warmth.
+ - I like form and shape and strength in pictures.
+ - It’s always more comforting to know that in any given corner of any room or any location you’re on, you can make a photograph that you’ll appreciate.
+ - Regardless of whether you speak the language or are familiar with a culture, the picture should hold up.
+ - I’d go down to the end of my street, to a garage that had a certain feeling about it, or a particular light; I’d take a picture of a friend who needed a head shot. That’s how I learned, instead of having school assignments and learning camera techniques.
+ - Generally, the French highly promote culture and the arts, and photography is in their blood.
+ - I always enjoyed art history because, growing up in California, my exposure was limited, and it was a new experience. To learn the history of art opened up certain things to me, made me see. It intrigued me.
+ - Each time I did assignments or editorials, I realized that I wanted to do something more. I saw that it wasn’t just about the clothes.
+ - Today a lot of things are so celebrity-oriented; it’s only because it’s celebrity and the photograph is lost. To me it’s important to have an image that is a photograph first, not about necessarily who that person is.
+ - I abstract it in my photographs: I like large planes and spaces, areas of texture and light, like deserts or oceans or monumental places.
+ - What I particularly liked was that, coming from California and not being involved in the New York scene, I developed my personal way, in my own way, at my own pace.
+ - And what excites me most is the type of public, the fact that the Parisian people have a broader cultural understanding than many Americans do.
+ - For me, the most important thing I learned was just honing my eye. I think I had a good eye.
+ - Within two hours of where I live, you have mountains and desert as location. I like the natural elements that abstract into light, texture, shape and shadow.
+
+26 quotes

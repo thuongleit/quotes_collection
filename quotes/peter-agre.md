@@ -1,0 +1,22 @@
+ - In 1862, Abraham Lincoln signed the Homestead Act, a bill opening one half million square miles of territory in the western United States for settlement.
+ - Well, all life forms are dependent upon water.
+ - My brother Jim and I spent many wonderful summers working on dairy farms in Wisconsin owned by Mom’s cousins, and as members of our local Boy Scout troop.
+ - Johns Hopkins introduced me to two defining events in my life: commitment to biomedical research and meeting my future wife, Mary.
+ - My goal was to develop into an independent research scientist studying clinical problems at the laboratory bench, but I felt that postgraduate residency training in internal medicine was necessary.
+ - Every cell in our body is primarily water. But the water doesn’t just sit in the cell, it moves through it in a very organized way. The process occurs rapidly in tissues that have these aquaporins or water channels.
+ - Our single greatest defense against scientific ignorance is education, and early in the life of every scientist, the child’s first interest was sparked by a teacher.
+ - Dad was a chemistry professor at Saint Olaf College in Minnesota, then Oxford College in Minnesota, and a very active member of the American Chemical Society education committee, where he sat on the committee with Linus Pauling, who had authored a very phenomenally important textbook of chemistry.
+ - We always had lutefisk for Christmas dinner, after which Dad read from the Norwegian Bible.
+ - Now a cholera epidemic was sweeping through Southeast Asia and south Asia in the early 1970s, so I started medical school and I joined a laboratory to work on this.
+ - One of my motivations to become a blood specialist was to study malaria in red blood cells. But in science, you discover something and you want to go this way, but your work goes that way.
+ - I grew up in Minnesota. Four generations of my father’s people are buried there.
+ - The Department of Cell Biology at Johns Hopkins was founded and directed by Tom Pollard, an engaging young scientist with remarkable energy and enthusiasm.
+ - Mother had to support herself at age 18 because it was during the depression and when my grandfather lost the farm and there was no place for her; she worked as an assistant to a maid.
+ - Our lab had always refrained from keeping our studies secret.
+ - Following my junior year in high school, I went on a camping trip through Russia in a group led by Horst Momber, a young language teacher from Roosevelt.
+ - The long, cold Minnesota winters instilled in me a fascination for exotic far off places; I aspired toward a career in tropical diseases and world health problems.
+ - Often times the public school teachers are ridiculed or they are made to feel inferior but this is really undeserved.
+ - It is a remarkable honor to receive a Nobel Prize, because it not only recognizes discoveries, but also their usefulness to the advancement of fundamental science.
+ - So, my advice to young scientists is, think critically about your work; probably don’t blab unnecessarily.
+
+20 quotes

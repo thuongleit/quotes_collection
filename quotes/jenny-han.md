@@ -1,0 +1,102 @@
+ - Victory is a thousand times sweeter when you’re the underdog.
+ - The future is unclear. But it’s still mine.
+ - An eye for an eye, a tooth for a tooth. a burn for a burn. a life for a life. that’s how all this got started. and that’s how it’s going to end.
+ - You never know the last time you’ll see a place. A person.
+ - I will never look at you in the same way ever again. I’ll never be that girl again. The girl who comes running back every time you push her away, the girl who loves you anyway.
+ - I’ve always loved the first day of school better than the last day of school. Firsts are best because they are beginnings.
+ - There are moments in life that you wish with all your heart you could take back. Like, just erase from existence. Like, if you could, you’d erase yourself right out of existence too, just to make that moment not exist.
+ - I release you. I evict you from my heart. Because if I don’t do it now, I never will.
+ - Everything good, everything magical happens between the months of June and August. Winters are simply a time to count the weeks until the next summer.
+ - Firsts are best because they are beginnings.
+ - But just because you bury something, that doesn’t mean it stops existing.
+ - To belong to someone – I didn’t know it, but now that I think about, it seems like that’s all I’ve ever wanted. To really be somebody’s, and to have them be mine.
+ - We stood there, looking at each other, saying nothing. But it was the kind of nothing that meant everything.
+ - Moments, when lost, can’t be found again. They’re just gone.
+ - Love is scary: it changes; it can go away. That’s the part of the risk. I don’t want to be scared anymore.
+ - When a person you love dies, it doesn’t feel real. It’s like it’s happening to someone else. It’s someone else’s life. I’ve never been good with the abstract. What does it mean when someone is really truly gone?
+ - I didn’t fall for you, you tripped me!
+ - Would you rather live one perfect day over and over or live your life with no perfect days but just decent ones?
+ - There are moments in every girl’s life that are bigger than we know at the time. When you look back, you say, that was one of those life-changing, fork-in-the-road moments and I didn’t even see it coming. I had no idea.
+ - I loved him in a way that you can really only do the first time around. It’s the kind of love that doesn’t know better and doesn’t want to-it’s dizzy and foolish and fierce. That kind of love is really a one-time-only thing.
+ - There’s no use in asking what if. No one could ever give you the answers. I try, I really do, but it’s hard for me to accept this way of thinking. I’m always wondering about the what-ifs, about the road not taken.
+ - She and I were still friends, but not best friends, not like we used to be. But we were still friends. She’d known me my whole life. It’s hard to throw away history. It was like you were throwing away a part of yourself.
+ - It’s the imperfections that make things beautiful.
+ - If love is like a possession, maybe my letters are like my exorcisms.
+ - Life doesn’t have to be so planned. Just roll with it and let it happen.
+ - I delete the picture of him from my phone; I delete his number. I think that if I just delete him enough, it will be like none of it ever happened and my heart won’t hurt so badly.
+ - When you walk on the beach at night, you can say things you can’t say in real life.
+ - I need you to know that no matter what happens, it was worth it to me. Being with you, loving you. It was all worth it.
+ - But the little things are what make up life.
+ - You’d rather make up fantasy version of somebody in your head than be with a real person.
+ - My dad always used to say that with everything in life, there’s a game-changing moment. The one moment everything else hinges upon, but you hardly ever know it at the time.
+ - I love Conrad and I probably always would. I would spend my whole life loving him one way or another. Maybe I would get married, maybe I would have a family, but it wouldn’t matter, because a piece of my heart, the piece where summer lived, would always be Conrad’s.
+ - So are you gonna cry about it like a punk, or are you gonna do something?
+ - How is a person supposed to prepare for what happens tomorrow when there’s just no figuring out today?
+ - Lying here and looking up at the stars like this, it makes me feel like I’m lying on a planet. It’s so wide. So infinite -Belly Conklin.
+ - It feels strange to have spent much time wishing for something, for someone and then one day, suddenly, to just stop.
+ - Don’t marry him. Don’t be with him. Be with me.
+ - How was I supposed to know what’s real and what’s not? It feels like I’m the only one who doesn’t know the difference.
+ - It’s scary how easy promises were broken.
+ - Things couldn’t stay the same forever.
+ - You Are The Milk To My Shake, forever and ever. Love, J.
+ - It’s not like in the movies. It’s better, because it’s real.
+ - It’s all relative, I suppose. You think you know love, you think you know real pain, but you don’t. You don’t know anything.
+ - When someone’s been gone a long time, at first you save up all the things you want to tell them. You try to keep track of everything in your head. But it’s like trying to hold on to a fistful of sand: all the little bits slip out of your hands, and then you’re just clutching air and grit.
+ - If you were mine, I would never have broken up with you, not in a million years.
+ - I think I see the difference now, between loving someone from afar and loving someone up close. When you see them up close, you see the real them, but they also get to see the real you.
+ - For me, it was almost like winter didn’t count. Summer was what mattered. My whole life was measured in summers.
+ - I didn’t want to make the same mistake my parents made. I didn’t want my love to fade away one day like an old scar. I wanted it to burn forever.
+ - You only like guys you don’t have a chance with, because you’re scared.
+ - He didn’t give me flowers or candy. He gave me the moon and the stars. Infinity -Belly Conklin-.
+ - Happiness is a Slurpee and a hot pink straw.
+ - A fight is like a fire. You think you have it under control, you think you can stop it whenever you want, but before you know it, it’s living, breathing thing and there’s no controlling it and you were a fool to think you could.
+ - It’s hard to throw away history. It was like you were throwing away a part of yourself.
+ - I wonder what it’s like to have that much power over a boy. I don’t think I’d want it; it’s a lot of responsibility to hold a person’s heart in your hands.
+ - Best friends are important. They’re the closest thing to a sister you’ll ever have.
+ - Do you know what it’s like to like someone so much you can’t stand it and know that they’ll never feel the same way.
+ - Things weren’t the same with us, not right away, and maybe not ever. We were growing up. We were still figuring out how to be in each other’s lives without being everything to each other.
+ - How do you regret one of the best nights of your entire life? You don’t. You remember every word, every look. Even when it hurts, you still remember.
+ - But I loved that house, and I hated to say good-bye. Because, it was more than just a house. It was every summer, every boat ride, every sunset. It was Susannah.
+ - But I had loved him. I loved him longer and truer than I had anyone in my whole life and I would probably never love anyone that way again. Which to be honest was almost a relief.
+ - When boy likes you, you say no thank you. You don’t kick him on the ground.
+ - All night, I talked to other people. I didn’t look in his direction, but I always knew where he was. I was painfully aware of him. When he was nearby, my body hummed. When he was away, there was this dull ache. With him near, I felt everything.
+ - I hated to leave her and I hated to be near her, because she made me remember what I wanted most to forget.
+ - I won’t be the reason you don’t go to him. I won’t be your excuse. You’ve got to see for yourself, or you’l never be able to let him go Jeremiah Fisher.
+ - He pulled my foot, drawing me closer. Being this close to him was making me feel dizzy and nervous. I said it again, one last time, even though i didn’t mean it. “Conrad let go of me.” He did. And then he dunked me. It didn’t matter. I was already holding my breath.
+ - But just because you bury something, that doesn’t mean it stops existing. Those feelings, they’d been there all along. All that time. I had to face it. He was part of my DNA. I had brown hair and I had freckles and I would always have Conrad in my heart.
+ - I would rather have had someone shoot me in the head with a nail gun, repeatedly, than have to watch the two of them cuddling on the couch together all night. – Conrad.
+ - Nothing, nothing felt better than the way sand felt beneath my feet. It was both solid and shifting. Constant and ever-changing. It was summer.
+ - Here’s something else, something important: Love is not transactional. It is not a bank account, you don’t always get what you put in. Sometimes you put in so much and get very little return on your investment, at least that you can see right away.
+ - I whispered “I’m not,” even though I was. Not scared of him, but scared of everything I felt. Sometimes it was too much. What I felt for him was bigger than the world, than anything.
+ - It’s a lot of responsibility to hold a person’s heart in your hands.
+ - I hated him more than anything. I loved him more than anything. Because, he was everything. And I hated that, too.
+ - In the dark you can feel really close to a person. You can say whatever you want.
+ - I used to believe. I used to think that if I wanted it bad enough, wished hard enough, everything would work out the way It was supposed to. Destiny, like Susannah said.
+ - I don’t just want a part of you. I want all of you Jeremiah Fisher.
+ - Looking on the bright side of life never killed anybody.
+ - I knew I had to be careful. I had to keep my distance. If she knew how much I still cared, it was all over. I wouldn’t be able to walk away again. The first time was hard enough.
+ - I knew it in my bones. That this time was it. I had finally made my choice, and so had he. He let me go. I was relieved, which I expected. What I didn’t expect was to feel so much grief.
+ - My two great loves. I think I always knew I would be Belly Fisher one day. I just didn’t know it was going to happen like this.
+ - There hadn’t been one specific moment. It was like gradualy waking up. You go from being asleep to the space between dreaming and awake and then into consciousness. It’s a slow process, but when you’re awake, there’s no mistaking it. There was no mistaking that it had been love.
+ - I go wherever you go,? he says, launching us into the water. This is our start. This is the moment it becomes real. We are married. We are infinite. Me and Conrad. The first boy I ever slow danced with, ever cried over. Ever loved.
+ - I stared at him. Did he really say that? Did he remember? The way he looked back at me, one eyebrow raised, I knew he did. And this time, I was the one to look away. Because I remembered. I remembered everything.
+ - Sometimes questions can be more cruel than insults.
+ - The first time I saw him again, it was another year, at my college graduation. And I just knew.
+ - I hate change more than almost anything.
+ - I loved the feeling of talking and having somebody really listen to what I have to say. It was like a high or something.
+ - Aching familiar in a way that made me wish I was still eight. Eight was before death or divorce or heartbreak. Eight was just eight. Hot dogs and peanut butter, mosquito bites and splinters, bikes and boogie boards. Tangled hair, sunburned shoulders, Judy Blume, in bed by nine thirty.
+ - We sat around the kitchen table picking off of foil-covered plates. Conrad kept sneaking looks at me, and every time I looked back, he looked away. I’m right here, I wanted to tell him. I’m still here.
+ - Suddenly I had this feeling, this absolute certainty, that I was never going to be able to let him go. It was as simple and as hard as that. I had clung to him like a barnacle all these years, and now I couldn’t cut away. It was my own fault, really. I couldn’t let go of Conrad.
+ - I really wish I had enjoyed it more.
+ - Everything in my room was old and faded, but I loved that about it. It felt like there might be secrets in the walls, in the four-poster bed, especially in that music box.
+ - He gestured at me. “That’s Belly.” “Belly?” she repeated. “Yup. She’s my girlfriend.” I think I choked out loud.
+ - There’s no use in asking what if. No one could ever give you the answers.
+ - I wondered if this was the way old crushes died, with a whimper, slowly, and then, just like that – gone.
+ - Maybe that was how it was with all first loves. They own a little piece of your heart, always.
+ - And then there was Jeremiah. When I looked at Jeremiah, I saw past, present, and future. He didn’t just know the girl I used to be. He knew the right-now me, and he loved me anyway.
+ - Conrad calling me again – that was enough to make me forget how to breathe.
+ - You can’t put being in love on a scale. Either you are or you aren’t.
+ - Firsts were important.
+ - Do you think there’s a difference? Between belonging with and belonging to?
+
+100 quotes

@@ -1,0 +1,150 @@
+ - The best way to not get your heart broken, is pretending you don’t have one.
+ - People say it’s lonely at the top, but I sure like the view.
+ - Life all comes down to a few moments. This is one of them.
+ - Im a peaceful man with bad intentions.
+ - The only thing I’m addicted to right now is winning.
+ - I’m done with the winning cause I’ve already won.
+ - You can’t process me with a normal brain.
+ - I have Tiger Blood running through my vains.
+ - I got tiger blood man. Dying is for fools.
+ - I’m different. I have a different constitution, I have a different brain, I have a different heart. I got tiger blood, man. Dying’s for fools, dying’s for amateurs.
+ - Boom, crush. Night, losers. Winning, duh.
+ - I still don’t have all the answers. I’m more interested in what I can do next than what I did last.
+ - I have one speed, I have one gear: go!
+ - You should have read the directions before you showed up to the party.
+ - I blinked and I cured my brain.
+ - My success rate is 100 percent. Do the math.
+ - You make a choice to win and you win.
+ - We’re Vatican assassins. How complicated can it be?
+ - There have to be more important things going on in the world than my past.
+ - I don’t sleep. I wait. I sleep in cars and on couches. I sleep when I can, but when I can’t sleep, I just don’t, so I figure there’s a higher calling keeping me on point that night.
+ - I’m bi-winning. I win here, I win there.
+ - It’s perfect. It’s awesome. Every day is just filled with just wins. All we do is put wins in the record books. We win so radically in our underwear before our first cup of coffee, it’s scary. People say it’s lonely at the top, but I sure like the view.
+ - People misinterpret my passion for anger.
+ - I am on a drug. It’s called Charlie Sheen. It’s not available. If you try it once, you will die. Your face will melt off and your children will weep over your exploded body.
+ - Let’s hook up and just bring fiery death.
+ - I’m an F-18, bro, and I will destroy you in the air and deploy my ordnance to the ground.
+ - You either love or you hate. You live in the middle, you get nothing.
+ - I was banging seven-gram rocks, because that’s how I roll. I have one speed, I have one gear: Go.
+ - Can’t is the cancer of happening.
+ - I am on a drug. It’s called Charlie Sheen.
+ - People can’t figure me out, they can’t process me, I don’t expect them to. You can’t process me with the normal brain.
+ - I’m on a quest to claim absolute victory on every front.
+ - It ain’t a party til something gets broken.
+ - I’m dealing with fools and trolls and soft targets. It’s just strafing runs in my underwear before my first cup of coffee. I don’t have time for these clowns.
+ - Defeat is not an option. Period. The End.
+ - But you can’t focus on things that matter if all you’ve been is asleep for forty years. Funny how sleep rhymes with sheep. You know.
+ - I’m tired of ignoring that I march to a different beat.
+ - I’m not wearing a golden sombrero.
+ - I’m grandiose because I live a grandiose life.
+ - Resentments are the rocket fuel that lives in the tip of my saber.
+ - Uncertainty is a sign of humility, and humility is just the ability or the willingness to learn.
+ - Rock bottom; that’s a fishing term.
+ - I’ve fallen for you like a blind roofer.
+ - The truth is for suckers, Johnny Boy!
+ - If you’re a part of my family, I will love you violently.
+ - The only thing I’m addicted to is winning. This bootleg cult, arrogantly referred to as Alcoholics Anonymous, reports a 5 percent success rate. My success rate is 100 percent.
+ - I’m not in any way religious. I don’t go to church, but I consider myself spiritual.
+ - Steroids build your muscles, but they don’t build your tendons or ligaments.
+ - I have defeated this earthworm with my words. Imagine what I would have done with my fire breathing fists.
+ - I have a 10,000-year-old brain and the boogers of a 7-year-old. That’s how I describe myself.
+ - If someone follows you, go to a different room. If they keep following you, get in your car. If they follow you in your car, drive to a police station. There are ways to not engage.
+ - They sell pot named after me in the dispensaries. And I’m not even a pot guy. I was so honored.
+ - Duh! So, we’re asking you now, what are some of your favorite lines that this warlock brain produced?
+ - Touch my children and I will eat your hands off your freakin arms.
+ - The run I was on made Sinatra, Flynn, Jagger, Richards, all of them look like droopy-eyed armless children.
+ - I think my passion is misinterpreted as anger sometimes. And I don’t think people are ready for the message that I’m delivering, and delivering with a sense of violent love.
+ - I usually have a song in my head. I’m thinking music, I’m thinking lyrics. Music helps me get to those moments. The moments between the moments.
+ - I refuse to grow up. I won’t become the adult guy.
+ - When friends asked me, Can we help? I’d say, Not unless you can alter time, speed up the harvest or teleport me off this rock. I used that line from Star Wars.
+ - I’m 0 for 3 with marriage – the scoreboard doesn’t lie, never has. So what we all have is a marriage of the heart. To sully or contaminate or radically disrespect this union with a shameful contract is something that I will leave to the amateurs and the Bible grippers.
+ - Those of us who did make it have an obligation to build again. To teach to others what we know, and to try with what’s left of our lives to find a goodness and a meaning to this life.
+ - I was born dead. Yeah, the umbilical cord was like, floppy baby, the whole thing. Yeah, it was bad.
+ - You never have to look over your shoulder when you tell the truth. You never have to remember the details, because they are what they are. And you don’t have to make sure your story matches everyone else’s.
+ - It’s not about the big deal you struck that day, it’s not about the new car, it’s not about the obvious stuff. It’s about that little introspective moment you had in the middle of all that. Those are moments between the moments, and that’s where life is.
+ - Sometimes the right choice seems great at the moment, but then suddenly it’s as if somebody detonated a suicide bomb.
+ - I’m sorry, man, but I’ve got magic. I’ve got poetry in my fingertips. Most of the time – and this includes naps – I’m an F-18, bro. And I will destroy you in the air. I will deploy my ordinance to the ground.
+ - Dad almost died of a heart attack in the middle of making Apocalypse Now, the biggest movie of his life. It doesn’t make you want to jump into that business.
+ - I’ve got mad energy for days. That’s what people can’t get their minds around. They say, ‘Oh, he’s going to crash.’ They try to apply all these common terms to a guy who is not common. I don’t fit into their little box.
+ - As kids we’re not taught how to deal with success; we’re taught how to deal with failure. If at first you don’t succeed, try, try again. If at first you succeed, then what?
+ - I think the honesty not only shines through in my work, but also my personal life. And I get in trouble for being honest. I’m extremely old-fashioned. I’m a nobleman. I’m chivalrous.
+ - Once you start altering your body’s blueprint, things start falling apart. Some players take steroids, and two years later, after they’ve broken records, suddenly they have back problems, shoulder problems, arm problems. They’re out of the game for good.
+ - Fame is empowering. My mistake was that I thought I would instinctively know how to handle it. But there’s no manual, no training course.
+ - The paramedic called the press and sold me like a loaf of bread. This was news, and he wanted to be the one to report it.
+ - The problem with prostitutes is, what if you actually like somebody you meet in that situation? Where do you go from there? What do you do?
+ - I don’t have a tuxedo that fits anymore because my chest and my biceps are too big.
+ - People say you have to work on your resentments. Yeah, no, I’m gonna hang onto them and they’re gonna fuel my attack.
+ - I think the power of the mind is amazing, and we’ve barely scratched the surface of what it can do.
+ - I will not believe that if I do something then I have to follow a certain path because it was written for normal people. People who aren’t special. People who don’t have tiger blood and Adonis DNA.
+ - What they’re not ready for is guys like you and I and Nails and all the other gnarly gnarlingtons in my life, that we are high priests, Vatican assassin warlocks. Boom. Print that, people. See where that goes.
+ - I kind of like that romantic image of being in a rocker with my family gathered around, all these generations in one room, listening intently to my stories.
+ - There’s a lot of stuff I want to do, just things that I want to explore that don’t involve show business. I’m going to become a television critic. Can you imagine? But I would even consider becoming a baseball scout. Traveling around the heartland looking for the next world-beating phenom.
+ - I saw 28 Days. I don’t remember rehab being like a day camp or being that funny. Rehab is a dumping ground. It’s a big landfill.
+ - What is a normal childhood? We weren’t rich, we were pretty middle-class. My dad survived from job to job; with him taking care of so many relatives, he couldn’t save any money.
+ - Slash sat me down at his house and said, You’ve got to clean up your act. You know you’ve gone too far when Slash is saying, Look, you’ve got to get into rehab.
+ - Here’s the good news. If I realize that I’m insane, then I’m okay with it. I’m not dangerous insane.
+ - Guys want to be respected and acknowledged. They want to feel what they contributed matters.
+ - Dying is for fools. I’m proud of what I created. I exposed people to magic. I exposed people to things they would never see in their normal lives.
+ - The last time I used? What do you mean? I used my toaster this morning.
+ - Charlie Sheen has the potential to cause your soul to weep and forfeit.
+ - I don’t want to get high with my kids, because then everything is different forever. That’s so stupid, I think.
+ - You can have rules at home that are different from the rest of the world’s as long as you’re not hurting anyone.
+ - A lot of people think Major League’s called Wild Thing. As they should.
+ - You can’t not be a little different from others and be successful for three decades.
+ - The last time I took drugs, I probably took more than anybody could survive.
+ - It’s been a tsunami of media and I’ve been riding it on a mercury surfboard.
+ - I’ve got volumes on how not to behave. I’ve got more information now than a guy should have at my age.
+ - I dare anyone to debate me on things.
+ - I believe in detox. I think detox is smart. You’ve got a guy who’s in an opiate cycle or a dope cycle or something, and he can’t get out of it. You shut him down long enough so at least his body can start working for itself again.
+ - I just don’t want to live like I used to. And at some point, I’m going to put a gag order on myself in terms of talking about the past. I’ve got to slam the door and deal with the present and the future.
+ - Dad kept us out of school, but school comes and goes. Family is forever.
+ - Athletes become our heroes, because they’re superhuman. They do things nobody else can do. They’re better than 6 billion other people.
+ - I don’t believe in rock bottom. Rock bottom is like a fishing term.
+ - I so desperately wanted to be Mr. Somebody. Instead, I was the little brother, included to a point.
+ - I gotta take the baton from Chuck Norris.
+ - Shut your evil mucus-hole you truth terrorist. You LOSE every time a mirror implodes from your barbed and gristle image.
+ - I’m kind of old-fashioned in a lot of ways. I prefer mano a mano. Even if you have two girls in the house, it’s not like we’re together all the time. But I need variety.
+ - Fear is never a good enough reason to do nothing.
+ - I’m here and I’m ready. They’re not. Bring it.
+ - You can’t cure your own cancer, obviously, especially if it’s late stage.
+ - I’m still alive, which is pretty cool.
+ - A lot of people will say, “Oh, I got into acting because I wanted to explore my craft.” They’re a bunch of liars, unless they’re Sean Penn, DeNiro or my dad. For the rest of us it was all about chicks and money.
+ - What you come to discover is, it isn’t how you get there, it’s that you get there. If that’s what it took to get me where I’m at today, so be it.
+ - Early on, I used to think it was really cool and macho to jump out of the car and tackle the bad guy. But then when you see the stunts in the movie, you realize it could’ve been a lady in a poncho.
+ - Guys, IMDB right there, 62 movies, a ton of success, I mean, come on bro, I won best picture at 20. I wasn’t even trying.
+ - Usually in a battle sequence when a bomb is going off, you forget you’re acting.
+ - Just tell the truth and you’re home free. If there are amends to be made, you make them. You own it and move on.
+ - There was a reason my first substantial role after rehab was to play a maniac whose personal story ended badly. I knew what it was like to go those dark places. I played a guy who died as a result of his abuse.
+ - It’s definitely safer to be single, especially with this cottage industry that’s devoted to extorting celebrities.
+ - Sure, I did a lot of things in excess. But if you look at the core, the foundation of what I pursued, what red-blooded young American male in my position wouldn’t?
+ - I’ve got magic. I’ve got poetry at my fingertips.
+ - I try to be known more for my work than for anything else.
+ - Every plan I have is the best plan in the room.
+ - Let’s talk about something exciting. Me.
+ - I’ll hear a song I love and suddenly I’m isolated from everything around me just for a nanosecond. That’s a moment between a moment.
+ - For now, I’m just going to hang out with these two smoking hotties and fly privately around the world. It might be lonely up here, but I sure like the view.
+ - I think what drove me insane for a long time is feeling like I hadn’t earned most of what I achieved because it came so fast.
+ - You’ve read about the goddesses, come on. They’re an international sensation. These are my girlfriends. These are the women that I love that have completed the three parts of my heart.
+ - I’ve always been a little skittish about death. On certain days I’m okay with it. On other days it’s like, “Really? I have to? No, man, not me.”
+ - I dare anyone to spend 10 years in the laugh-track that is Chuck Lorre’s hive of oppression and not suffer some form of an emotional tsunami.
+ - I exposed people to magic. I exposed them to something they’re never otherwise going to see in their boring, normal lives. And I gave that to them. I may forget about them tomorrow, but they’ll live with that memory for the rest of their lives. And that’s a gift, man.
+ - People ask all the time, “What are you thinking?” It’s my least favorite question in the world. The last bastion of solace is my mind. It’s an invasion.
+ - Women are not to be hit, they’re to be hugged and caressed.
+ - That we are to stand by the President right or wrong is not only unpatriotic and servile, but is morally treasonable to the American public.
+ - I think I have a duty as a recovering guy to help, to make my knowledge of what I went through accessible.
+ - We’re going to shoot one Polaroid per show. I’m going to sign this before it even develops because I know that once it develops with my signature on it, it’s worth a fortune. I’ll make this a work of magic warlock art.
+ - You can put people’s feet to the fire a bit just by reminding them that we’re constantly creating our own history.
+ - The nights I don’t sleep it’s because there’s a higher calling telling me to stand guard.
+ - Get your egos off the battlefield.
+ - I know that sounds arrogant, but you can’t not be special and have a 30-year career.
+ - I have to tell them that last night was a shameful train wreck filled with blind cuddly puppies.
+ - I knew if I got loaded I was going away for a while. People would say, Oh, you’re just sober because you’re on probation.
+ - I just think the whole disease model of addiction is crap. It’s rooted in fiction and junk science.
+ - I’ve spent, I think, close to the last decade effortlessly and magically converting your tin cans into pure gold.
+ - If you love with violence and you hate with violence there is nothing that can be questioned.
+ - I tried marriage. I’m 0 for 3 with the marriage thing. So, being a ballplayer – I believe in numbers. I’m not going 0 for 4. I’m not wearing a golden sombrero.
+ - I just didn’t believe I was like everybody else. I thought I was unique.
+ - Shooting a movie can be so tedious. You’re trying to get 20 different angles on the same swing. You never get into a rhythm. But I took it very seriously.
+ - Look what I’m dealing with, man, I’m dealing with fools and trolls.
+
+148 quotes

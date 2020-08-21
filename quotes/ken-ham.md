@@ -1,0 +1,26 @@
+ - For students, the evolution-creation discussion can be a useful exercise, for it can help develop their critical thinking skills.
+ - We need to attack the false foundation of autonomous human reasoning that leads to evolution and millions of years, and proclaim that God’s revealed Word is authoritative and its history of the world is foundational to Christian morality and the gospel of Jesus Christ.
+ - While the Bibles account of the flood is one of judgment, it is also one of mercy and salvation.
+ - It’s time for a new Reformation in the Church – to call the Church back to the authority of the Word of God, beginning in Genesis.
+ - What you believe about who you are, where you came from, affects your whole worldview.
+ - If there was not one man Adam and one woman Eve, and a literal event of the one man Adam taking the fruit in rebellion and thus bringing sin and death into world, then one may as well throw the rest of the Bible away.
+ - God’s people need to unashamedly and uncompromisingly stand on the Bible. We need to unashamedly proclaim a Christian worldview and the gospel, all the while giving answers for the hope we have.
+ - The creation message has matured over the past three decades, as the discernment and understanding of creationist leaders has matured. More and more, the emphasis is on the foundational issue: compromise of Genesis ultimately undermines the gospel itself.
+ - Only Christianity and its teachings can explain the purpose and meaning of this world – and also gives the basis for right and wrong, good and evil, etc.
+ - It’s essential that we learn how to defend the Bible and the Christian faith for our sake and our children’s. If we don’t, the empty and obsolete churches in England will foreshadow the future in America.
+ - I have met so many young people who do not see the church as relevant and do not consider the Bible a real book of history that can be trusted.
+ - If we discount the account of creation, we remove the significance of Christmas.
+ - One of the main reasons is that most Sunday school curricula only teaches disconnected Bible stories. They don’t teach how we know the Bible is true, how to defend the faith, and how to answer the skeptical questions of today.
+ - Isn’t it interesting how Christians are not afraid to teach their children about evolution?
+ - When I went to high school in Australia, I was exposed to textbooks that outlined evolutionary ideas – such as ape-like creatures turning into people. I recognized the conflict between evolutionary ideas and a literal reading of the book of Genesis.
+ - Why do we wear clothes? Genesis!
+ - If you can’t trust the Bible’s history, how can you trust its morality?
+ - Our job if you will, is to roll the stone away. God’s job is to raise the dead.
+ - Based on the Bible, I believe that all the land animals were made on day six, and Adam and Eve were made on day six, and people try to make fun of us for believing that dinosaurs lived with people, but there are a lot of animals living today that evolution says lived with dinosaurs.
+ - For all their raving, ranting, and name-calling, these atheists will stand before God one day-and they will exist for eternity, though sadly they will be separated from God unless they repent and receive the free gift of salvation.
+ - This means that any aliens would also be affected by Adam’s sin, but because they are not Adam’s descendants, they can’t have salvation.
+ - I did not know from a scientific perspective why I did not believe in evolution – but I knew from a Biblical perspective it had to be wrong or my faith was in trouble.
+ - Christians must understand the nature of the change that has occurred in our culture. No longer do the secularists just mock Christians from afar. They are now actively campaigning to indoctrinate children in an anti-God philosophy – to teach them to be secularists and atheists.
+ - Today, few Americans are aware of the spiritual epidemic that wiped out the land of our Christian forefathers. Even fewer are aware that the same epidemic has reached our own shores, spreading like a virus.
+
+24 quotes

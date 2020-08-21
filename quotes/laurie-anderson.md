@@ -1,0 +1,89 @@
+ - Technology is the campfire around which we tell our stories.
+ - Art is about paying attention.
+ - The world is a strange and wonderful place.
+ - Paradise Is exactly like Where you are right now Only much much Better.
+ - History is an angel being blown backwards into the future.
+ - The fewer expectations you have, the better.
+ - I’ve been trying to avoid goal-oriented behavior.
+ - You can do great things with low-tech stuff.
+ - Art can be engaged in the world without being specifically politically engaged.
+ - If I’m confused, I just spend some time looking at the sky and falling into it. It’s not a meditation that anyone taught me, it’s something I’ve done my whole life, and liked doing, and it made me feel like nothing.
+ - Ninety percent of the people in the world end up with the wrong person. And that’s what makes the jukebox spin.
+ - Don’t be afraid of anyone. Imagine your life if you’re not afraid of anyone.
+ - I always feel like if someone has stage fright, I really try and say, “Listen, these people want you to succeed, they want to have a good evening. They want to see something really great. They don’t want to see something crappy. They don’t. They want to be at something really special.”
+ - Performance art is about joy, about making something that’s so full of kind of a wild joy that you really can’t put into words.
+ - People only stutter at the beginning of the word. They’re not afraid when they get to the end of the word. There’s just regret.
+ - Last night, I had that dream again. I dreamt I had to take a test, in a Dairy Queen, on another planet.
+ - When love is gone, there’s always justice.
+ - You know, for every dollar a man makes a woman makes 63 cents. Now, fifty years ago that was 62 cents. So, with that kind of luck, it’ll be the year 3,888 before we make a buck.
+ - And there was a beutiful view But nobody could see Cause everybody on the island Was saying Look at me! Look at me.
+ - I have written a few children’s books. The first book that I wrote was for children. It was called “The Package”, and it was a mystery story in pictures. It had no words.
+ - When you follow your thoughts and watch them attach to certain things, it makes certain things real and other things unreal, and you realize that this is all created by your mind.
+ - Life goes by so fast. It’s really – and a lot of times things happen so fast you don’t know – how should I react.
+ - I didn’t really understand that Vipassana is a relatively new form of Buddhism that was based on the storage of pain. So the idea is that every time you don’t scream, that’s your Buddhist side.
+ - Literature is the safe and traditional vehicle through which we learn about the world and pass on values from on generation to the next. Books save lives.
+ - I see and write things first as an artist, second as a woman, and third as a New Yorker. All three have built-in perspectives that aren’t neutral.
+ - Some friends of mine work in an office. They were getting really nervous from their coffee breaks, so they started to have wig breaks. They tried on wigs for 15 minutes. They found this relaxing. So that’s Wig Therapy.
+ - I am a New Yorker, one; I’m an artist, two; I’m a woman, three.
+ - I think illusion is one of the most interesting things that I’ve found to think about. Just look at yesterday, and what you were doing, and how important it was, and how nonexistent it is now! How dreamlike it is! Same thing with tomorrow. So where are we living?
+ - If there are bases on the moon, that would be the end of the moon as we know it.
+ - I realized why movie scores are mostly strings, because it really frees your eyes to look around.
+ - You know the reason I love the stars is because we can’t hurt them: we can’t burn them, we can’t melt them, we can’t make them overflow, we can’t flood them or burn them up – so we keep reacing for them.
+ - My job is to make images and leave the decision-making and conclusion-draw ing to other people.
+ - It’s a little hard to speak when you’re not supposed to move.
+ - Not many people care what you do. They care about what you do as much as you care about what they do. Think about it. Just exactly that much. You are not the center of the universe.
+ - I don’t care about being famous or having a lot of people go, “She’s really good.”
+ - Freedon is a scary thing. Most people don’t want it.
+ - A lot of the work in United States is highly critical of technology. I’m using 15,000 watts of power and 18 different pieces of electronic equipment to say that.
+ - You need to try to master the ability to feel sad without actually being sad.
+ - Writers want to summarize: What does this mean? What did we learn from this? That’s a very 19th-century way of thinking about art, because it assumes that it should make our lives better or teach us something.
+ - I wanted to impress people because I was kind of a kid who was lost in the crowd – was sort of my, feeling about childhood was being part of a big family.
+ - I’m not usually where I think I am. It’s kind of spooky.
+ - Long live the beauty that comes down and through and onto all of us.
+ - It’s good to take a longer view and think, what would I really like to do if I had no limitations whatsoever?
+ - I genuinely have never been in an audience where most people want that person to fail. I’ve never been in an audience like that, and I’ve never seen it as a performer. Only in my dreams, in which case they are always throwing tomatoes and going, “This is the most boring thing I’ve ever seen.”
+ - The best thing about the term ‘performance artist’ is that it includes just about everything you might want to do.
+ - It’s just such a great miracle when things do work, and they work for such a wild variety of crazy reasons.
+ - At the School of Visual Arts in New York, you can get your degree in Net art, which is really a fantastic way of thinking of theater in new ways.
+ - The main thing that attracts me to Buddhism is probably what attracts every artist to being an artist – that it’s a godlike thing. You are the ultimate authority. There is no other ultimate authority.
+ - I wanted to stay hooked because it was the first time I’ve been part of the tradition where forgetting was just fine. You do it, you try, you forget, you fail.
+ - The audience creates its own personality, I’ve noticed, in the first five minutes. They will either be generous, funny, silly, withholding, academic, analytical, grudging. And I’m fascinated with how that gets constructed, because it happens right away.
+ - I’m thrilled by the fact that I made something out of nothing. There it is! It wasn’t there before: there it is – I made it! That’s pretty powerful, and that’s the power that Buddhists give to every single person.
+ - The only stuff I don’t like are Broadway musicals. I hate them. I don’t even like to talk about it. I can’t bear musicals.
+ - As an artist I’d choose the thing that’s beautiful more than the one that’s true.
+ - I’m actually not someone who believes in heaven or anything like that.
+ - All of nature talks to me – if I could just figure out what it’s saying – trees are swinging in the breeze. They’re talking to me. Insects are rubbing their legs together. They’re all talking. They’re talking to me.
+ - I believe that the purpose of death is the release of love.
+ - My secret dream is to write an epic poem. That’s probably the most pretentious thing I’ve said.
+ - So many things have happened to me in my life that I could be phobic about.
+ - My work is more about trying to ask good questions and not trying to come up with big shows. Every fashion company is doing that, every car company is doing that.
+ - Shining in the midnight moonlight, while the King sings love me tender.
+ - I know a lot of people who have weird specialties that are not taught in schools; they’re things that you learn in life.
+ - I have written a lot about snakes. There’s something pretty primordial about it.
+ - I really like books that you can kind of hear as much as think about, that are so graphic and visual.
+ - People are really suffering these days. There’s a lot of corporate triumph and a lot of personal despair as they wonder what are they working for.
+ - I so much appreciate it when anybody tries to make something and tries to be an artist – I’m happy to see the work.
+ - It’s the tradition of American writers getting away in order to see the country – to get a better view.
+ - I’m an average enough person to point to the things I’ve gotten to see that are awe-inspiring.
+ - Books are the way the dead talk to the living.
+ - The problem with prototypes is they don’t always work.
+ - A lot of artists who have a certain style are expected to more or less keep doing their style. It’s so easy to get into that rut of production.
+ - We want to dedicate our music tonight to the great opportunity that we all have to begin to truly understand the events of the past few days and to act upon them with courage and with compassion as we make our plans to live in a completely new world.
+ - No single person who has ever lived will be able to tell you what happens. Period. Nobody’s right and nobody’s wrong.
+ - The right to carry a gun has nothing to do with the rights of other people.
+ - Gut level is a good level to deal with life, and for me, I have to say that Buddhism makes sense for me because it’s how I’m an artist.
+ - As a New Yorker, I’m someone who lives on an island and looks across to America.
+ - There are plenty of ways you can play the game of fighting and really seem to be fighting without going for the jugular.
+ - I’m one of the first Americans who wasn’t a torturer or an interrogator.
+ - I kind of didn’t believe the doctors when they came over and they said you’re not going to be able to walk again. I’m sorry to tell you this. I thought who is this guy? I just was so impatient with the whole thing. I knew I was going to walk again. I knew that I was going to do that.
+ - I really trust audiences as having excellent taste, for the most part.
+ - Audiences, whether they’re seeing a film or a reading or whatever it is, a concert, they decide very quickly what kind of show it is, and then they judge it. They judge the rest of the thing by whether it conforms to their rules for what a good symphony orchestra would be.
+ - I don’t take compliments so well. I always hang my head and shuffle and kind of try to immediately forget.
+ - That’s really a very different experience: You don’t have to look to be understood. You’re already understood.
+ - I think women are excellent social critics.
+ - When I was four, I was a kind of sky worshipper. I would look at the sky, and I wanted to evaporate into the sky – I loved the sky. I loved looking at the trees, just because they touched the sky.
+ - I think a lot of people in Washington are extremely suspicious of NASA.
+ - Dogs don’t just like us, they love us, and they admire us. The big reason they admire us is we invented cars. They’re like, “Yes, we get to go somewhere!” Go somewhere faster, with their head out the window, and their ears, like, “Yes! Yes!”
+ - What happens when you’re in a crash is you join a crash club, and you talk endlessly about your crash because you don’t want to bore your friends with it. And they’ve heard about the crash so many times.
+
+87 quotes

@@ -1,0 +1,39 @@
+ - You cannot be serious!
+ - My greatest strength is that I have no weaknesses.
+ - I’ll let the racket do the talking.
+ - We all choke. Winners know how to handle choking better than losers.
+ - Everybody loves success, but they hate successful people.
+ - The important thing is to learn a lesson every time you lose. Life is a learning process and you have to try to learn what’s best for you. Let me tell you, life is not fun when you’re banging your head against a brick wall all the time.
+ - I think it’s the mark of a great player to be confident in tough situations.
+ - The important thing is to learn a lesson every time you lose.
+ - Be happy. If you’re successful but unhappy, that’s emptiness.
+ - That’s one of the best sets I’ve seen him play, although I should preface that by saying I haven’t seen him play before.
+ - As they say in sports, the older you get, the better you used to be.
+ - No one cares about the Davis Cup. How many people know I won five Davis Cups and seven majors, but that I rarely played the Australian Open?
+ - I am not a monster. I’m not all bad. Maybe 10 percent. I think I’m 90 percent good.
+ - If you want to be a tennis player, then mould yourself on Roger Federer. I won three Wimbledon titles and I wish I could play like him.
+ - Tennis is a funny game; unbelievable highs and the lows are just as low.
+ - The good part of having six kids is, there’s always one who wants to hug you and say, ‘Daddy, I love you.’
+ - I know being a linesman is a thankless job, especially with guys like me around.
+ - What is the single most important quality in a tennis champion? I would have to say desire, staying in there and winning matches when you are not playing that well.
+ - Do you have any problems, other than that you’re unemployed, a moron, and a dork?
+ - I have never seen someone point after point that just gives it everything.
+ - We should reach out to people to try to go after the fans the way other sports do. Because we can’t just depend on the fact that it is a great game.
+ - Borg’s won Wimbledon four straight times and out there he has just lost an 18-16 tie breaker. You’d think maybe once he’d let up and say forget it. But oh, no way.
+ - If, in a few months, I’m only number 8 or number 10 in the world, I’ll have to look at what off-the-court work I can do. I will need to do something if I want to be number 1.
+ - The only thing championship about Wimbledon is its prestige.
+ - There’s too much money and too many nice guys around.
+ - I want to be remembered as a great player, but I guess it will be as a player who got angry on a tennis court.
+ - Equipment’s the biggest change. And the guys have been getting bigger, stronger, more athletic – so the game has become more of a track meet instead of a tennis match, in a sense.
+ - Bush is an idiot and he’s President, so anything’s possible.
+ - Let’s hope his nerves will run through his veins.
+ - I havent seen a professional player come out of New York in over 20 years since my brother Patrick came out. Blake spent a few years in Harlem, but he moved to Connecticut when he was a kid.
+ - I had a similar year back in 1984 when I felt like I couldn’t lose.
+ - If Roger stopped right now and never won another match, to me he’d already be one of the greatest players to ever play the game. To me, he’s the greatest all around talent that I’ve ever seen.
+ - There’s something deeply satisfying when it succeeds, but I’m not going to do another book just to put my name on something and make some money if it’s not something I deeply care about.
+ - I’d like to think I could have and should have won more, but that’s not the point. And I was at the point where I was playing great tennis in the mid 80s – the type of tennis people hadn’t seen before – and I was very proud of that.
+ - To be involved in a senior tournament back in the States is very satisfying.
+ - It would be a nice place if you took all the people out of the city.
+ - I believe there’s only one autobiography you can do.
+
+37 quotes

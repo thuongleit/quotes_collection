@@ -1,0 +1,48 @@
+ - Don’t give up. Don’t ever give up.
+ - There are 86,400 seconds in a day. It’s up to you to decide what to do with them.
+ - My father gave me the greatest gift anyone could give another person, he believed in me.
+ - In every single day, in every walk of life, ordinary people do extraordinary things. Ordinary People accomplish Extraordinary things.
+ - Never give up! Failure and rejection are only the first step to succeeding.
+ - If you laugh, you think, and you cry, that’s a full day. That’s a heck of a day. You do that seven days a week, you’re going to have something special.
+ - Life changes when you least expect it to. The future is uncertain. So, seize this day, seize this moment, and make the most of it.
+ - Enjoy your life, the precious moments you have.
+ - Cancer can take away all of my physical abilities. It cannot touch my mind, it cannot touch my heart, and it cannot touch my soul.
+ - Nothing has ever been accomplished in any walk of life without enthusiasm, without motivation, and without perseverance.
+ - Every day ordinary people do extra-ordinary things!
+ - The greatest gift you can give your children is to believe in them.
+ - To find the unlimited scope of human possibility, look within yourself.
+ - You need to have a dream, a goal, and you must be willing to work hard.
+ - Take time every day to laugh, to think, to cry.
+ - Know where you have been, where you are now and where you want to be.
+ - We should do three things every day of our life. Number one is laugh. You should laugh every day. Number two is to think, we should spend some time in thought. And, number three is you should have your emotions moved to tears.
+ - Conceive the inconceivable – then accomplish it.
+ - How do you go from where you are to where you wanna be? And I think you have to have an enthusiasm for life. You have to have a dream, a goal. And you have to be willing to work for it.
+ - A person really doesn’t become whole, until he becomes a part of something that’s bigger than himself.
+ - Nothing can happen if it’s not first a dream. If you have someone with a dream, if you have a motivated person with a goal and a vision, if you have someone that never gives up, who has great hope, Anything can happen.
+ - I just got one last thing, I urge all of you, all of you, to enjoy your life, the precious moments you have. To spend each day with some laughter and some thought, to get you’re emotions going.
+ - Other people go to the office. I get to coach. I know I’ve been blessed.
+ - No matter what business you’re in, you can’t run in place or someone will pass you by. It doesn’t matter how many games you’ve won.
+ - Time is very precious to me. I don’t know how much I have left and I have some things that I would like to say. Hopefully, at the end, I will have said something that will be important to other people too.
+ - If you laugh, you think, and you cry, that’s a full day.
+ - And if you see me, smile and maybe give me a hug. That’s important to me too.
+ - I will thank God for the day and the moment I have.
+ - Be a dreamer. If you don’t know how to dream, you’re dead.
+ - All really successful coaches have a system.
+ - Coaches are basically schizophrenic. We are pessimistic to the press and among fellow coaches, but to our team, we are the eternal optimists.
+ - It’s so important to know where you are.
+ - I asked a ref if he could give me a technical foul for thinking bad things about him. He said, of course not. I said, well, I think you stink. And he gave me a technical. You can’t trust em.
+ - We need your help. I need your help. We need money for research. It may not save my life. It may save my children’s life. It may save someone you love. And it’s very important.
+ - People think I have courage. The courage in my family are my wife Pam, my three daughters, here, Nicole, Jamie, LeeAnn, my mom, who’s right here too.
+ - Now I’m fighting cancer, everybody knows that. People ask me all the time about how you go through your life and how’s your day, and nothing is changed for me.
+ - Spend each day with some laughter and some thought, to get you’re emotions going.
+ - I can’t tell you what an honor it is, to even be mentioned in the same breath with Arthur Ashe. This is something I certainly will treasure forever.
+ - I made a ridiculous statement when I first went to North Carolina State. I said I know basketball down there was like life or death. It was very wrong. It’s more important.
+ - But try if you can to support, whether it’s AIDS or the cancer foundation, so that someone else might survive, might prosper, and might actually be cured of this dreaded disease.
+ - I talked about my family, my family’s so important.
+ - Are you saying that the assistant had the answers all along, he just wasn’t telling anyone?
+ - I’ll also tell you that five hundred thousand people will die this year of cancer. And I’ll also tell you that one in every four will be afflicted with this disease, and yet, somehow, we seem to have put it in a little bit of the background.
+ - Why shouldn’t I milk it? We’re an agricultural institution.
+ - We have a very intelligent team. I’ve had clubs that when you tell a guy to go back door, he leaves the gym. Or you tell the team you’re going to have a closed practice and eight guys don’t show up.
+ - Now, I look at where I am now and I know what I wanna to do. What I would like to be able to do is to spend whatever time I have left and to give, and maybe some hope to others.
+
+46 quotes

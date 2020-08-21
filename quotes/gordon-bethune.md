@@ -1,0 +1,23 @@
+ - The substitute for knowledge is money.
+ - Most businesses fail because they want the right things but measure the wrong things, and they get the wrong results.
+ - I’ve spent my life as an airplane mechanic, pilot, aircraft manufacturer and airline CEO who never lost a life or an airplane. I am considerate of the risk we take every time we fly. I also know we need to fly and always to improve safety.
+ - It’s the old adage: You can make a pizza so cheap, nobody will eat it. You can make an airline so cheap, nobody will fly it.
+ - I was a mechanic in the Navy. And mechanics in the Navy are like mechanics in airlines. You may have more stripes than I do, but you don’t know how to fix the airplane.
+ - There are a lot of parallels between what we’re doing and an expensive watch. It’s very complex, has a lot of parts and it only has value when it’s predictable and reliable.
+ - No one is going to stick their head out of the trenches for someone they don’t respect or trust. You can get shot doing that.
+ - It all sounds almost silly, but the fact is that the only way to change a corporate culture is to just change it.
+ - It’s like telling Mozart that there are too many notes in an opera. Which one do you want us to take out?
+ - A bankruptcy judge can fix your balance sheet, but he cannot fix your company.
+ - Whether I’m at the hangar or at the airport or on an airplane, I get respect. And that’s the best part of my day.
+ - You’re only as good as your dumbest competitor.
+ - In airplanes you have a choice between chocolate and vanilla. One year could be vanilla or it could be chocolate. I don’t attach any relevance to which one.
+ - It’s not about market share. If you have a successful company, you will get your market share. But to get a successful company, what do you have to have? The same metrics of success that your customer does.
+ - We tax air passengers like cigarettes and alcohol – we impose sin taxes on travellers.
+ - Do you know how much faster I can fix an airplane when I want to fix it than when I don’t want to fix it?
+ - Somebody who knows what they’re doing, who has a good track record, they come across as very articulate, bright and looking for a challenge – that’s absolutely my kind of hire.
+ - The airline business is the biggest team sport in the world. When you’re all consumed with fighting among yourselves, your opponents can run over you every day.
+ - It’s not a testosterone-driven industry any longer. Success is making money, not in the size of the airline.
+ - If you say three things in a row that make sense, people will vote for you.
+ - It’s difficult to have everybody like everything you do. I don’t know anybody that’s perfect and doesn’t have a zit somewhere.
+
+21 quotes

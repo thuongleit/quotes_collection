@@ -1,0 +1,37 @@
+ - If you empower women, you can change the world.
+ - The best thing about modern living is anaesthesia.
+ - I love what you might call brutal elegance. Where form and function are really obvious. There is nothing easily broken in this house.
+ - When you read a book as a child, it becomes a part of your identity in a way that no other reading in your whole life does.
+ - People are always telling me that change is good. But all that means is that something you didn’t want to happen has happened.
+ - I think there’s an ongoing effort involved in trying to get a bigger perspective, trying to let go of things that limit your capacity to love and be loved or your capacity to hear and to really speak.
+ - My father says that almost the whole world is asleep, everybody you know, everybody you see, everybody you talk to. He says that only a few people are awake and they live in a state of constant total amazement.
+ - Don’t you love New York in the fall? It makes me wanna buy school supplies. I would send you a bouquet of newly sharpened pencils if I knew your name and address. On the other hand, this not knowing has its charms.
+ - I have a very good life, so I have nothing to complain about. Sometimes, I just have existential angst.
+ - But I’d like the pie heated and I don’t want the ice cream on top I want it on the side and I’d like strawberry instead of vanilla if you have it if not then no ice cream just whipped cream but only if it’s real if it’s out of a can then nothing.
+ - All this nothing has meant more to me than so many somethings.
+ - I’ve played a heroin addict and a speed freak and dark characters throughout my career.
+ - Being a working mother means that you are always disappointing somebody.
+ - I’m a sucker for a funny script. And then, as soon as I don’t wanna be, one comes along and grabs me.
+ - I heard that chivalry was dead, but I think it’s just got a bad flue.
+ - I don’t think we realise just how fast we go until you stop for a minute and realise just how loud and how hectic your life is, and how easily distracted you can get.
+ - When I wear high heels I have a great vocabulary and I speak in paragraphs. I’m more eloquent. I plan to wear them more often.
+ - It would be really great if people would realize that stars are only people with the same weaknesses and flaws, not immaculate idols.
+ - Any idiot can be brave, but courage is about knowing what’s at stake, and moving forward anyway.
+ - My family responsibilities don’t conflict with my career. Not at all.
+ - Motherhood changed me because it is so fundamental what you’re doing for another person. And you are able to do it even though it takes a lot.
+ - Through Clinton and Monica, Clinton and Hillary, the scandal, the impeachment, Iraq, Bruce and Demi, Ellen and Anne, I have remained consistently and nauseatingly adorable. I have, in fact, been known to cause diabetes.
+ - There are assumptions made about the way you look. I’m always surprised when people don’t think I’m smart.
+ - And who cares, five years down the road, what most movies made or didn’t make? If it’s good, it stands up.
+ - I don’t feel particularly typecast because I think I do so many different kinds of things. Whether they’re seen or not is another issue.
+ - What brings people down is the same thing over and over.
+ - I don’t think I’ll ever be a producer who’s into taking the meetings and fighting the big fights with studios. I really don’t like that part. I’m much more interested in the material.
+ - A l lot of films I’ve done are essentially about women who are finding their voice, women who don’t know themselves well.
+ - It was not a healthy marriage for long time. It was never about another man, it was about what my and Dennis’s relationship could not sustain.
+ - It’s triumphant for someone to wake up to life. I feel a tremendous sense of liberation. You want to be able to use both your intuitive side and your go-get-’em side with no blame.
+ - Acting is what I do. It’s not what I solely define myself as.
+ - Ordinary people like you and me have the chance to make a tremendous difference for mothers and their children worldwide.
+ - And the insidious thing is that people will either see a movie because it did well last weekend or won’t see it because it didn’t do well.
+ - I wouldn’t have thought of myself as a person who could guide anybody and then it turned out that I can.
+ - Clearly romantic comedy is my franchise genre, I don’t mind saying that, it’s true. I love doing them and hopefully always will do them.
+
+35 quotes

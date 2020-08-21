@@ -1,0 +1,155 @@
+ - Someday, everything will make perfect sense. So for now, laugh at the confusion, smile through the tears, be strong and keep reminding your self that everything happens for a reason.
+ - Don’t be scared to walk alone. Don’t be scared to like it.
+ - I am invincible, as long as I’m alive.
+ - I love you more than songs can say, but I can’t keep running after yesterday...
+ - I’m a mess of unfinished thoughts.
+ - You can’t spell ‘developer’ without ‘devel.’
+ - I know the heart of life is good.
+ - If you had started doing anything two weeks ago, by today you would have been two weeks better at it.
+ - It’s better to say too much, than never to say what you need to say again.
+ - Who says I can’t be free from all of the things that I used to be?
+ - I’m having the time of my life figuring out this next move.
+ - The biggest mistake I made and what cost me a lot of enjoyment in my life, was assuming that everybody cared. They don’t.
+ - Fear is a friend who’s misunderstood.
+ - I believe that my life’s gonna see the love I give returned to me.
+ - Tore up my heart and shut it down. Nothing to do, nowhere to be. A simple little kind of free. Nothing to do, no one but me, and that’s all I need. I’m perfectly lonely.
+ - So scared of getting older I’m only good at being young So I play the numbers game to find a way to say that life has just begun.
+ - I have masturbated myself out of serious problems in my life.
+ - When you’re dreaming with a broken heart, the waking up is the hardest part. You roll outta bed and down on your knees and for a moment you can hardly breathe.
+ - Playing music to me is as close to having super powers as you can have.
+ - Half of my heart’s got a grip on the situation, half of my heart takes time.
+ - Disappointment has a name, it’s heartbreak.
+ - God only knows how much I’d love you if you let me, but I can’t break through at all.
+ - I just wish they’d put a new word in the dictionary bigger than love because love just doesn’t describe what I feel.
+ - Very few things in life are worthy of the kind of emotional distress we put ourselves through.
+ - Sometimes I wish that I was the weather, you’d bring me up in conversation forever. And when it rained, I’d be the talk of the day.
+ - Most times when you try to be all things to all people, you end up being nothing.
+ - When autumn comes, it doesn’t ask. It just walks in, where it left you last. And you never know, when it starts; until there’s fog inside the glass around your summer heart.
+ - I am who I am because of Dave Matthews Band.
+ - The emotionally intelligent person is skilled in four areas: identifying emotions, using emotions, understanding emotions, and regulating emotions.
+ - Lets keep the car in drive and leave it all behind.
+ - Fathers be good to your daughters, daughters will love like you do. Girls become lovers, who turn into mothers, so mothers be good to your daughters, too.
+ - Everybody is a stranger, but that’s the danger in going my own way.
+ - It’s my failure to sound like my heroes that’s allowed me to sound like myself.
+ - How dare you say it’s nothing to me? Baby, you’re the only light I ever saw.
+ - You look so good it hurts sometimes.
+ - They read all the books, but they can’t find the answers.
+ - I quit the media game. I’m out. I’m done.
+ - Numb is the new deep.
+ - Anybody who tells you to have a fallback plan are people who had a fallback plan, didn’t follow their dreams, and don’t want you to either.
+ - Who I am as a guitarist is defined by my failure to become Jimi Hendrix.
+ - If you never stop when you wave goodbye you just might find, if you give it time, you will wave hello again...
+ - Whenever they say it can’t be done, remind them that they make a jellybean that tastes exactly like popcorn.
+ - Numb is the new deep, done with the old me, and talk is the same cheap it’s been.
+ - This is not to say, there never comes a day I’ll take my chances and start again. And when I look behind on all my younger times, I’ll have to thank the wrongs that led me to a love so strong.
+ - She’s perfect, so flawless, I’m not impressed.
+ - Songs can be Trojan horses, taking charged ideas and sneaking past the ego’s defenses and into the open mind.
+ - You make a choice in your life, and it affects your life in all the ways, good and bad.
+ - I have these accidents, these mistakes, these self-inflicted wounds, and then I tear my head to shreds about it for days.
+ - I’m someone who would like to act like I don’t care, but I care.
+ - I’ve always said I’ve got the coolest fans, and I brag about you like grandchildren when I talk to other artists.
+ - They say stay in the lines, but there’s always something better on the other side.
+ - Sometimes you tell someone to never call you again; and then the phone rings and you hope it’s them – it’s the most twisted logic of all time.
+ - So scared of getting older, I’m only good at being young.
+ - If I wake up in the morning and I don’t want to get you a coffee or if I don’t see you for a week and I don’t want to go figure out something to FedEx you, then we’ve got a problem. You can fake the words I miss you, but you can’t fake getting someone a book.
+ - The saddest kind of sad is the sad that tries not to be sad. You know, when sad tries to bite its lip and not cry, and smile and say, “No I’m happy for you”? Thats when it’s really sad...
+ - It’s very liberating when you finally realize it’s impossible to make everyone like you.
+ - Stop falling in love with everything that lets you down, even if your hands are shaking and your faith is broken, even as the eyes are closing, do it with a heart wide open. Say what you need to say.
+ - I don’t jerk off because I’m horny. I’m sort of half-chick. It’s like District 9. I can fire alien weapons. I can insert a tampon. No, I do it because I want to take a brain bath. It’s like a hot whirlpool for my brain, in a brain space that is 100 percent agreeable with itself.
+ - I wanna run through the halls of my high school, I wanna scream at the top of my lungs. I just found out there’s no such thing as the real world, just a lie you’ve got to rise above.
+ - Sometimes I wish that I was a bong hit, you’d let me in and you would love every minute.
+ - My fear is that I go up to the girl of my dreams and say ‘I’m sorry, but I’ve got to say hello to you,’ and she slides the stool back and gets up and walks away, saying, ‘Not for me, Bub. I don’t want anything to do with you.’
+ - I’ve learned to appreciate everything that has been given to me.
+ - When you’re just open but not honest, then you start free-associating garbage.
+ - I’ll never let your head hit the bed without my hand behind it...
+ - Yeah, that girl is like crack cocaine to me. Sexually it was crazy. That’s all I’ll say. It was like napalm, sexual napalm.
+ - I’ve realized you can use a fork as a spoon if you use it rapidly enough.
+ - Sometimes I get so bold and I’m so confident about what I’m doing that I actually try to be more of a dork because it’s a really liberating feeling to experience what it’s like to not care.
+ - You cannot avoid war in life, you cannot avoid the fear of terrorism, you cannot avoid those things now, they are a part of everyday demeanor.
+ - I’m interested in living more of a life that’s invisible to everybody and more vibrant to a fewer people that are in my life.
+ - People want to see musicians sing things that come from their own mind and own heart in real time, responding to the moment for them.
+ - You gotta be able to explain things to yourself when the lights go off and you get in the bed. You gotta deal with you at the end of the day.
+ - No matter what I do, I’m going to earn it.
+ - I believe in blues, and I believe that it’s been misrepresented.
+ - Fender Custom Shop made this nickel plated Stratbelieve it or not, it sounds incredible.
+ - I am beginning to know what it feels like to be a woman. To have people looking at you all the time. And I’m sorry ladies, I had no idea! But people are looking at me all the time. It’s like I have musical boobies!
+ - Sometimes it feels like my life is just one long day.
+ - Maybe someday you can accuse somebody of being a poseur by selling out and playing blues music, but that’s just not going to happen in my lifetime.
+ - The minute hand moves faster than you think it does.
+ - Not worrying is a skill. It’s a skill not breaking down every single moment.
+ - It’s almost charity work, what people have done, turning other people on to my music.
+ - I remember playing the guitar through the amplifier facing out the window of my house onto the street in the summer time – that was social media in 1992.
+ - I’ve never done anything because I thought it would look cool.
+ - High School is like a spork: it’s a crappy spoon and a crappy fork, so in the end it’s just plain useless.
+ - I have the obsessiveness of someone who’s a sober, recovering addict displacing his addiction. Except I never had the addiction.
+ - I need some kind of emotional stake in it to write my lyrics, assuming that place. It might just be an emotion I understand but am not currently experiencing necessarily.
+ - I knew what I wanted to do when I was 13 and I had to go through four years of high school to get out. That’s a blessing, because I never had to lay on my bed staring up at the ceiling going, ‘What am I going to do with my life?’
+ - I look away at car crashes, and I know people who look away at car crashes, because it makes us uncomfortable to watch other people in pain.
+ - I hate being the heartbreaker. Hate it. If I date somebody and it doesn’t work out, it’s another nightmare for me.
+ - I have male fans, but I’m persuading them to become female!
+ - I get recognized somewhere in between like local meteorologist and national meteorologist.
+ - Atlanta’s my musical home. It really was the place where I really came alive.
+ - Hopefully people can see my music is tethered to my brain.
+ - I’ve never been a bad boy.
+ - And i start sleeping and dreaming and i think i’ll dream about you, all through the night.
+ - If you told me I was going to live to 240, I would take 10 years off and try and act. I don’t have that kind of time, so I’d much rather stick to playing guitar.
+ - May this be the year that things go your way most of the time, and when they don’t, may you have great friends to lean on.
+ - I can’t even explain to you how terrible that feels, that I equate dating a woman with punishment, shame, guilt, disappointment, reproach, reprimand, persecution. It’s a nightmare.
+ - By the way, pornography? It’s a new synaptic pathway. You wake up in the morning, open a thumbnail page, and it leads to a Pandora’s box of visuals. There have probably been days when I saw 300 vaginas before I got out of bed.
+ - Look, demanding somebody do anything in this day and age is not going to fly.
+ - Sometimes I get scared that I’m going to enter a web address into Twitter thinking it was my browser. That would be bad.
+ - In the quest to be clever, I completely forgot about the people that I love and that love me.
+ - I’m not really good at keeping my own secrets. I can keep other people’s secrets pretty well. Unless they’re really good and people deserve to hear them. And I’ll disseminate the information accordingly.
+ - You get to a certain age where you prepare yourself for happiness. Sometimes you never remember to actually get happy.
+ - People are really concerned with what other people are saying about them.
+ - I wanted to be a blues guitar player. And a singer. And a songwriter. Not a shock jock.
+ - My hits are not hits.
+ - We’re supposed to lose our friends to time, at an age when we’re ready to agree to the terms of having lived a long life. Not now.
+ - I may have taken someone through the wringer psychologically, but I’ve never been sinister.
+ - Yeah, Under The Table And Dreaming shaped the way that I think about writing songs.
+ - Have you ever loved somebody, loved her completely, but had to end the relationship for life reasons?
+ - Nothing feels worse than having to break the stage down before the performance, and I mean nothing.
+ - It’s so interesting how success hits people and how they react to it.
+ - I hope that what it comes down to at the end of the day is that people believe that I believe what I’m singing. It comes down to being believable. You don’t have to be likeable; generally, though, I think I am.
+ - I’m not as surprised in going from playing 1,000 seats to 4,000 seats as I was from 100 to 500 seats.
+ - I’d like to think the best of me was still hiding up in my sleeve.
+ - I was very successful from a very early age, and I want to keep it.
+ - I came from the last couple of years in a generation where we didn’t have a computer around so we didn’t waste as much time on the internet as we do now so I had large chuncks of time which to devote to doing something.
+ - I’m singing what I want to sing based on the emotion of what that day feels like. That’s what comes out of my mouth and guitar. That impacts people. They know anything can happen.
+ - I’ve figured out my learning curve. I can look at something and somehow know exactly how long it will take for me to learn it.
+ - I’m pretty good at taking accountability now, and I never did anything to deserve that. It was a really lousy thing for her to do.
+ - Trying to impress my mother with words was one of my favourite pursuits.
+ - I’ve never walked into a restaurant, asked for a table and been told, ‘We’re full.’
+ - I scientifically engineer my music to be as accessible as possible.
+ - There’s a real self-serving element to hip-hop that threatens its life span.
+ - The night I was recognized for ‘Daughters’ at the Grammys was the night this record started. I knew I had bought the time to learn everything I needed before I started this one. ‘Continuum’ is not a shot in the dark, it’s not a guesstimation.
+ - I’m getting to a point where everything is becoming streamlined in my life. I’m learning how to stand onstage for two hours and play in front of thousands of people as if I am completely in the moment every moment.
+ - I don’t write songs in order to stick it to my exes. I don’t release underground dis tracks.
+ - I am not in Us Weekly. I’d have to be going out with someone who is in there to be in there myself.
+ - I find myself in situations that I know would be unbelievable pictures and I have to gauge, Is this worth taking the camera out? Am I gonna lose the moment? Am I gonna get a dirty look from Sting?
+ - There are people in the world who have the power to change our values.
+ - I’m a good music provider, and I’m fine with that. I’m a quality music manufacturer.
+ - There’s so many inspiring people out there.
+ - I feel strikingly domestic. We’re in our own world with two busses and trucks.
+ - I’m not an icon. Not even in America.
+ - Anybody who’s made it will tell you, you can make it. Anyone who hasn’t made it will tell you, you can’t.
+ - How come everything I need always comes with batteries?
+ - I think that one of the greatest connections and attractions you can have with somebody, is understanding somebody.
+ - I really don’t want to be a hunk.
+ - I’m the only person I know who’s got a bunch of money.
+ - I’m very happy in all aspects of my life.
+ - You should have a picture of yourself as a kid in your home so that you remember where you came from.
+ - I need to learn how to start saying no. Like when someone says ‘please stop choking me.’
+ - Life is like a box of crayons. Most people are the 8-color boxes, but what you’re really looking for are the 64-color boxes with the sharpeners on the back. I fancy myself to be a 64-color box, though I’ve got a few missing.
+ - I’m willing to make compromises based on someone I think is the one, but I think it’s psychologically important to people when they’re famous to be the only famous person they know.
+ - I like giving people something they don’t want to miss the next time. It’s a show with little twists and turns and curves. It has me being silly and stupid and compassionate and completely deep.
+ - There’s a constantly applicable nature to soul music, whereas sometimes pop music can be a periodical.
+ - Friends, lovers, or nothing, we can really only ever be one.
+ - I’m trying everything I can not to be jaded ’cause I don’t like jaded musicians.
+ - I want to be the first guy from my generation who doesn’t just represent one record but the promise of a lot of them.
+ - If you get half a million, at a certain stage you probably will get 4 million people, if they are able to hear it. The touring thing is unbelievable. It really is amazing from what we did the last tour even to what we are doing now.
+ - When you do an interview with me, you’re talking to a cheap imitation of the person that I really am. There’s no magic in my words, it’s just me talking.
+ - I feel my shows are like a late-night talk show that we settle down and do every night.
+ - I’m not deluded enough to think that everyone who knows my name is a listener. You know, I hope that part of that interest – part of that public interest – has to do with me still making records that people like.
+
+153 quotes

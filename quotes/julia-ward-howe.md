@@ -1,0 +1,51 @@
+ - As He died to make men holy, let us live to make men free.
+ - Mine eyes have seen the glory of the coming of the Lord -.
+ - I shall stick to my resolution of writing always what I think no matter whom it offends.
+ - I am confirmed in my division of human energies. Ambitious people climb, but faithful people build.
+ - Every newly discovered truth judges the world, separates the good from the evil, and calls on faithful souls to make sure of their election.
+ - He is coming like the glory of the morning on the wave, He is wisdom to the mighty, he is succour to the brave, So the world shall be his footstool, and the soul of Time his slave, Our God is marching on.
+ - I was born ’neath a clouded star.
+ - Education keeps the key of life; and liberal education insures the first conditions of freedom, – namely, adequate knowledge and accustomed thought.
+ - Every fallen woman represents a man as guilty as herself, who escapes human detection, but whose soul lies open before God.
+ - God forgive me if I do wrong in following with ardor the strongest instincts of my nature.
+ - Familiarity so dulls the edge of perception as to make us least acquainted with things forming part of our daily life.
+ - Life is like a cup of tea, the sugar is all at the bottom!
+ - I have seen him in the watchfires of a hundred circling camps They have builded him an altar in the evening dews and damps, I have read His righteous sentence by the dim and flaring lamps, His Day is marching on.
+ - In the nature of things, I must soon lose sight of this sense of constant metamorphosis whose limits bound our human life.
+ - He has sounded forth the trumpet that shall never call retreat; He is sifting out the hearts of men before His judgment-seat. Oh! be swift my soul to answer him, be jubilant my feet! Our God is marching on.
+ - Theology in general seems to me a substitution of human ingenuity for divine wisdom.
+ - I know not why there is such a melancholy feeling attached to the remembrance of past happiness, except that we fear that the future can have nothing so bright as the past.
+ - How utterly are one’s best thoughts invaded by this going out in society.
+ - I have never known my husband to approve any act of mine which I myself valued.
+ - When I see the elaborate study and ingenuity displayed by women in the pursuit of trifles, I feel no doubt of their capacity for the most herculean undertakings.
+ - Any religion which sacrifices women to the brutality of men is no religion.
+ - Hope died as I was led unto my marriage bed.
+ - Marriage, like death, is a debt we owe to nature.
+ - It is always legitimate to wish to rise above one’s self, never above others.
+ - The language of the face is not taught by the schools; it is intuitive, and to the observant is always legible.
+ - There is no hell like that of a selfish heart, and there is no misfortune so great as that of not being able to make a sacrifice. These two thoughts come to me strongly this morning. It is something to have learned these truths so that we can never again doubt them.
+ - Much of the work of every life is done in the dark.
+ - I never could be good when I was not happy.
+ - Many a woman will pass for elegant in a ballroom, or even at a court drawing room, whose want of true breeding would become evident in a chosen company.
+ - It has been strange to me to return to life and to feel that I have any sympathy with human beings, after the long interval of quiet and indifference which succeeded my marriage.
+ - The broken eggshell of a civilization which time has hatched and devoured.
+ - The reason why education is usually so poor among women of fashion is, that it is not needed for the life which they elect to lead.
+ - It is not good for beauty that it should be a profession.
+ - The blind must not only be fed and housed and cared for; they must learn to make thir lives useful to the community.
+ - Heaven knows what I have not been through with, since I saw you-dust, dirt, dyspepsia, hotels, railroads, prairies, tobacco juice.
+ - Massachusetts women as a rule adhere too strongly to old-time conventions.
+ - In Virgil’s account of the good housewife, who rises early in order to measure out the work of the household, and in Solomon’s description of the thrifty woman of his time, one sees the value set upon feminine industry and economy in times far removed from our own.
+ - Politeness induces morality. Serenity of manners requires serenity of mind.
+ - Charity is an unending self-discipline which always looks and leads towards the eternal affection. Therefore, its triumph shall be lasting and everlasting.
+ - Don’t you think that the best things are already in view?
+ - When the unwelcome little unborn shall have seen the light my brain will be lightened, and I shall have a clearer mind. Thank God that even this weary nine months shall come to an end and leave me in possession of my own body and my own soul.
+ - While your life is the true expression of your faith, whom can you fear?
+ - Our sons shall not be taken from us to unlearn? all that we have been able to teach them of charity, mercy and patience.
+ - My children are babies and my husband has scarcely half an hour in 24 to give me.
+ - Boston is an oasis in the desert, a place where the larger proportion of people are loving, rational and happy.
+ - All the sugar was in the bottom of the cup.
+ - I sometimes think God allows Great Britain to be unprincipled for the good of mankind.
+ - Beneath all differences of doctrine or discipline there exists a fundamental agreement as to the simple, absolute essentials in religion.
+ - When I behold the passion for ornamentation, and the corresponding power, I feel as if women had so far shown what they are bad for, rather than what they are good for.
+
+49 quotes

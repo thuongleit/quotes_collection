@@ -1,0 +1,171 @@
+ - If you’re feeling helpless, help someone.
+ - The only real prison is fear, and the only real freedom is freedom from fear.
+ - People ask me about what sacrifices I’ve made. I always answer: I’ve made no sacrifices, I’ve made choices.
+ - Fear is a habit; I am not afraid.
+ - It is not a sacrifice, it’s a choice. If you choose to do something, then you shouldn’t say it’s a sacrifice, because nobody forced you to do it.
+ - There is a time to be quiet and a time to talk.
+ - The education and empowerment of women throughout the world cannot fail to result in a more caring, tolerant, just and peaceful life for all.
+ - You should never let your fears prevent you from doing what you know is right.
+ - We must all work together if we are all to live together in unity and harmony.
+ - Freedom and democracy are dreams you never give up.
+ - Democracy, like liberty, justice and other social and political rights, is not “given”, it is earned through courage, resolution and sacrifice.
+ - Kindness can change the lives of people.
+ - To be kind is to respond with sensitivity and human warmth to the hopes and needs of others. Even the briefest touch of kindness can lighten a heavy heart. Kindness can change the lives of people.
+ - Challenges mean opportunities as well.
+ - To be forgotten, is to die a little.
+ - I’m feeling a little delicate.
+ - I do protect human rights, and I hope I shall always be looked up as a champion of human rights.
+ - Fundamental violations of human rights always lead to people feeling less and less human.
+ - Every kindness I received, small or big, convinced me that there could never be enough of it in the world. Kindness, can change the lives of people.
+ - It is his capacity for self-improvement and self-redemption which most distinguishes man from the mere brute.
+ - The democracy process provides for political and social change without violence.
+ - It is not power that corrupts but fear.
+ - We will surely get to our destination if we join hands.
+ - Humor is one of the best ingredients of survival.
+ - Absolute peace in our world is an unattainable goal. But it is one towards which we must continue to journey, our eyes fixed on it as a traveller in a desert fixes his eyes on the one guiding star that will lead him to salvation.
+ - Since we live in this world, we have to do our best for this world.
+ - Democracy is when the people keep a government in check.
+ - Every thought, every word, and every action that adds to the positive and the wholesome is a contribution to peace. Each and every one of us is capable of making such a contribution.
+ - I don’t think of myself as unbreakable. Perhaps I’m just rather flexible and adaptable.
+ - Agreeing to disagree is a prerogative only of those who live under a democratic system.
+ - For me, ‘revolution’ simply means radical change.
+ - The true measure of the justice of a system is the amount of protection it guarantees to the weakest.
+ - It would be difficult to dispel ignorance unless there is freedom to pursue the truth unfettered by fear.
+ - It is not power that corrupts but fear. Fear of losing power corrupts those who wield it and fear of the scourge of power corrupts those who are subject to it.
+ - The peace of our world is indivisible. As long as negative forces are getting the better of positive forces anywhere, we are all at risk.
+ - By helping others, you will learn how to help yourselves.
+ - There is no intrinsic virtue to law and order unless “law” is equated with justice and “order” with the discipline of a people satisfied that justice has been done.
+ - To the best of my knowledge, no war was ever started by women. But it is women and children who have always suffered most in situations of conflict.
+ - Government leaders are amazing. So often it seems they are the last to know what the people want.
+ - We want to empower our people; we want to strengthen them; we want to provide them with the kind of qualifications that will enable them to build up their own country themselves.
+ - After all it was my father who founded the Burmese army and I do have a sense of warmth towards the Burmese army.
+ - You have a great many things to do when you are under house arrest. On the one hand, it is more comfortable than sitting in prison; on the other hand, you have to look after a household, which is strenuous under such circumstances.
+ - In general people feel more relaxed about participating in politics. They aren’t frightened as they used to be.
+ - I don’t want Burma to be a basket case forever.
+ - If you give in to intimidation, you’ll go on being intimidated.
+ - To view the opposition as dangerous is to misunderstand the basic concepts of democracy. To oppress the opposition is to assault the very foundation of democracy.
+ - My top priority is for people to understand that they have the power to change things themselves.
+ - Of course I regret not having been able to spend time with my family.
+ - There is nothing to be gained by being unnecessarily nasty. Violence begets violence.
+ - One should mature over 20 years.
+ - Freedom must be demanded and defended, by those who have been denied it and by those who are already free.
+ - War is not the only arena where peace is done to death. Wherever suffering is ignored, there will be the seeds of conflict, for suffering degrades and embitters and enrages.
+ - The judiciary must be strengthened and released from political interference.
+ - That’s not how politics works – sometimes things move in a rather imperceptible way. There are no fireworks, and then comes a time when change comes unexpectedly. Sometimes change comes with a lot of fireworks, but not always.
+ - Even one voice can be heard loudly all over the world in this day and age.
+ - War is not the only arena where peace is done to death.
+ - I’ve always thought that the best solution for those who feel helpless is for them to help others.
+ - We achieve everything by our efforts alone. Our fate is not decided by an almighty God. We decide our own fate by our actions. You have to gain mystery over yourself. It is not a matter of sitting back and accepting.
+ - If you want to bring an end to long-standing conflict, you have to be prepared to compromise.
+ - I think one must take responsibility for one’s actions and one’s decisions. But one should never take – one should never assume that everything that happens for the good is achieved by one’s self alone.
+ - If I advocate cautious optimism it is not because I do not have faith in the future but because I do not want to encourage blind faith.
+ - I wish people wouldn’t think of me as a saint – unless they agree with the definition of a saint that a saint’s a sinner who goes on trying.
+ - The struggle for democracy and human rights in Burma is a struggle for life and dignity. It is a struggle that encompasses our political, social and economic aspirations.
+ - The best way to help Burma is to empower the people of Burma, to help us have enough self-confidence to obtain what we want for ourselves.
+ - Some of the most relaxing weekends I have ever enjoyed were those I spent quietly with a sense of all work to date completed, and an absorbing mystery.
+ - The root of a nation’s misfortunes has to be sought in the moral failings of the government.
+ - I don’t think you can work on feelings in politics, apart from anything else, political change can come very unexpectedly, sometimes overnight when you least expect it.
+ - A most insidious form of fear is that which masquerades as common sense or even wisdom, condemning as foolish, reckless, insignificant or futile the small, daily acts of courage which help to preserve man’s self-respect and inherent human dignity.
+ - Fearlessness may be a gift, but perhaps most precious is courage from cultivating the habit of refusing to let fear dictate one’s actions.
+ - I’ve always tried to explain democracy is not perfect. But it gives you a chance to shape your own destiny.
+ - I was heartened that people everywhere want certain basic freedoms, even if they live in a totally different cultural environment.
+ - I was a prisoner, but I always felt free because I was not frightened So for me real freedom is freedom from fear.
+ - It is part of the unceasing human endeavor to prove that the spirit of man can transcend the flaws of his own nature.
+ - I feel that the BBC World Service is not as versatile as it used to be – or perhaps I’m not listening at the right times.
+ - I was a bit of a coward when I was small. I was terribly frightened of the dark.
+ - You may not think about politics, but politics think about you.
+ - When you decide to follow a certain path, you should follow it to the end and not be diverted from it for personal reasons.
+ - In a system which denies the existence of basic human rights, fear tends to be the order of the day. The only real prison is fear, and the only real freedom is freedom from fear. Never let fear prevent you from doing right.
+ - I think that freedom is sometimes a state of mind. Sometimes, mind you, but not always.
+ - There is a special charm to journeys undertaken before daybreak in hot lands: the air is soft and cool and the coming of dawn reveals a landscape fresh from the night dew.
+ - I think I should be active politically. Because I look upon myself as a politician. That’s not a dirty work you know. Some people think that there are something wrong with politicians. Of course, something wrong with some politicians.
+ - I think it’s time for the Army to understand that power should be enshrined in the people if we are to be a genuine democracy and not in any particular institution or organisation.
+ - We have to choose between dialogue and utter devastation.
+ - At this age, I should be leading a quiet life.
+ - Fear is not the natural state of civilized people.
+ - Peace, development, and justice are all connected to each other. We cannot talk about economic development without talking about peace. How can we expect economic development in a battlefield?
+ - In politics, you also have to be cautiously optimistic.
+ - Peace as a goal is an ideal which will not be contested by any government or nation, not even the most belligerent.
+ - I think I was the healthiest prisoner of conscience in the world.
+ - I’m not the only one working for democracy in Burma – there are so many people who have worked for it because they believe that this is the only way we can maintain the dignity of our people.
+ - Democracy acknowledges the right to differ as well as the duty to settle differences peacefully. Authoritarian governments see criticism of their actions and doctrines as a challenge to combat.
+ - The Nobel Peace Prize opened up a door in my heart.
+ - I worry that even those who want to reform are not quite sure how to go about it. There is so much to be done.
+ - Every government must consider the security of the country. That is just part of the responsibilities of any government. But true security can only come out of unity within a country where there are so many ethnic nationalities.
+ - Please use your freedom to promote ours.
+ - My attitude is, do as much as I can while I’m free. And if I’m arrested I’ll still do as much as I can.
+ - Frankly, if you do politics, you should not be thinking about your dignity.
+ - The history of the world shows that peoples and societies do not have to pass through a fixed series of stages in the course of development.
+ - We’re nowhere near democracy. I’ve been released, that’s all.
+ - All military regimes use security as the reason why they should remain in power. It’s nothing original.
+ - Investment that only goes to enrich an already wealthy elite bent on monopolizing both economic and political power cannot contribute toward egalite and justice – the foundation stones for a sound democracy.
+ - The judiciary in Burma is not independent. It’s widely known, everybody knows that.
+ - I think, if you have enough inner resources, then you can live in isolation for long periods of time and not feel diminished by it.
+ - Each man has in him the potential to realize the truth through his own will and endeavour and to help others to realize it.
+ - One wants to be together with one’s family. That’s what families are about.
+ - When you think of Buddhism, you’re likely to think of peace and tranquility.
+ - Sometimes I didn’t even have enough money to eat. I became so weak from malnourishment that my hair fell out, and I couldn’t get out of bed.
+ - I don’t believe in professional dissidents. I think it’s just a phase, like adolescence.
+ - I am not unaware of the saying that more tears have been shed over wishes granted than wishes denied.
+ - The basis of democratic freedom is freedom of speech.
+ - Assuming the chairmanship of ASEAN isn’t going to do anything about improving the lives of people.
+ - I could listen to the radio and I had access to books from time to time. Not all the time.
+ - What I have experienced is nothing compared to what political prisoners in prisons suffer.
+ - Once serious political dialogue has begun, the international community can assume that we have achieved genuine progress along the road to real democratisation.
+ - In terms of the history of a far reaching movement, 20 years is not that long.
+ - I would like to have seen my sons growing up.
+ - I don’t understand why people say that I am full of courage. I feel terribly nervous.
+ - What does Burma have to give the United States? We can give you the opportunity to engage with people who are ready and willing to change a society.
+ - I do not hold to non-violence for moral reasons, but for political and practical reasons.
+ - The value systems of those with access to power and of those far removed from such access cannot be the same. The viewpoint of the privileged is unlike that of the underprivileged.
+ - I think sometimes if you are alone, you are freer because your time is your own.
+ - Some believe that the only way to remove the authoritarian regime and replace it with a democratic one is through violent means. I would like to set the precedent of political change through political settlement, not through violence.
+ - When I was under house arrest, it was the BBC that spoke to me – I listened.
+ - One prisoner of conscience is one too many.
+ - Perhaps Singapore could learn from us a more relaxed way of life.
+ - I don’t want to see the military falling. I want to see the military rising to dignified heights of professionalism and true patriotism.
+ - A lot of the roads, bridges, railways, and such are built through the use of forced labor, and that is causing the people great suffering. What we put into this in the form of human suffering is not worth what comes out of it.
+ - The quintessential revolution is that of spirit. Without this, the forces which produce the inequalities of the old order will continue to operate.
+ - Some of the best indicators of a country developing along the right lines are healthy mothers giving birth to healthy children who are assured of good care and a sound education that will enable them to face the challenges of a changing world.
+ - Justice is a dream. But it is a dream that we are determined to realize.
+ - Sometimes, 24 hours can bring a total revolutionary change.
+ - The good ruler sublimates his needs as an individual to the service of the nation.
+ - It is the love of ordinary people, in Burma, in Japan or anywhere else in the world, for justice and peace and freedom that is our surest defense against the forces of unreason and extremism...
+ - Where there is no justice there can be no secure peace.
+ - History is always changing.
+ - Sometimes I think that a parody of democracy could be more dangerous than a blatant dictatorship, because that gives people an opportunity to avoid doing anything about it.
+ - I look upon myself as a politician. That isn’t a dirty word.
+ - As you look at me and listen to me, please remember the often repeated truth that one prisoner of conscience is one too many.
+ - Human beings the world over need freedom and security that they may be able to realize their full potential.
+ - With the right kind of institutions, starting with the rule of law, Burma could progress very quickly.
+ - I only used a cell phone for the first time after I was released. I had difficulty coping with it because it seemed so small and insubstantial.
+ - Calamities that are not the result of purely natural phenomena usually have their origins, distant and obscure though they may be, in common human failings.
+ - I was surprised by the response of young people because there is a perception that those younger than the 1988 generation are not interested in politics.
+ - I think more women should be involved in politics for the good of the human race.
+ - All repressive laws must be revoked, and laws introduced to protect the rights of the people.
+ - If ideas and beliefs are to be denied validity outside the geographical and cultural bounds of their origin, Buddhism would be confined to north India, Christianity to a narrow tract in the Middle East and Islam to Arabia.
+ - I’m rather inclined to liking people.
+ - Regimented minds cannot grasp the concept of confrontation as an open exchange of major differences with a view to settlement through genuine dialogue.
+ - When we think of the state of the economy, we are not thinking in terms of money flow. We are thinking in terms of the effect on everyday lives of people.
+ - The French say that to part is to die a little. To be forgotten too is to die a little. It is to lose some of the links that anchor us to the rest of humanity.
+ - As we strive to teach others we must have the humility to acknowledge that we too still have much to learn.
+ - I haven’t heard any music on the BBC World Service in a long time. Maybe I’m listening at the wrong times. But not one single piece of music.
+ - Maybe it is something to do with age, but I have become fonder of poetry than of prose.
+ - One person alone can’t do anything as important as bringing genuine democracy to a country.
+ - If suffering were an unavoidable part of our existence, we should try to alleviate it as far as possible in practical, earthly ways.
+ - I don’t like to be called a symbol. And I don’t like to be called an icon. I will just say that I have to work very, very hard. So I’d rather be known as a hard worker. I don’t think symbols do much, nor icons.
+ - I think by now I have made it fairly clear that I am not very happy with the word hope. I don’t believe in people just hoping.
+ - I’ve never thought of myself as being particularly brave – I used to be frightened of the dark when I was small. And I’m not very good with dead rats and things like that. But I face what has to be faced and I hope as best as I’m able.
+ - It cannot be doubted that in most countries today women, in comparison to men, still remain underprivileged.
+ - It is essential to institute a legal framework that would ensure justice and improve the quality of life in Burma immediately, because the greatest suffering among the people at the moment is caused by lack of justice and lack of the rule of law.
+ - A more significant phase should mean serious political dialogue.
+ - The people of my country want the two freedoms that spell security: freedom from want and freedom from fear.
+ - It is often in the name of cultural integrity as well as social stability and national security that democratic reforms based on human rights are resisted by authoritarian governments.
+ - If you can make people understand why freedom is so important through the arts, that would be a big help.
+ - Fires of suffering and strife are raging around the world.
+ - As long as there is no law in Burma, any individual here can be arrested at any time.
+ - When the Nobel Committee chose to honor me, the road I had chosen of my own free will became a less lonely path to follow.
+ - I’ve always said that the more coordinated the efforts of the international community are, the better it will be for democracy in Burma.
+ - I felt that it was my duty not to senselessly waste my time. And since I didn’t want to waste my time, I tried to accomplish as much as possible.
+
+169 quotes

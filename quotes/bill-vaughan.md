@@ -1,0 +1,383 @@
+ - The highest duty is to respect authority.
+ - You cannot speak of the ocean to a frog that lives in a well.
+ - An optimist stays up until midnight to see the new year in. A pessimist stays up to make sure the old year leaves.
+ - We have got to keep the momentum going in order to achieve all of our objectives.
+ - You only get to keep what you give away.
+ - Do not raise your children the way your parents raised you; they were born for a different time.
+ - Deep in the sea are riches beyond compare, But if you seek safety, it is on the shore.
+ - We pursue that which retreats from us.
+ - One of the quickest ways to become exhausted is by suppressing your feelings.
+ - The wolf changes his coat, but not his disposition.
+ - Look for strength in people, not weakness; for good, not evil. Most of us find what we search for.
+ - Vote in a national election.
+ - If there is anything the nonconformist hates worse than a conformist, it’s another nonconformist who doesn’t conform to the prevailing standard of nonconformity.
+ - Economics is the science which studies human behaviour as a relationship between ends and scarce means which have alternative uses.
+ - Optimism, unaccompanied by personal effort, is merely a state of mind and not fruitful.
+ - On the neck of a giraffe a flea begins to believe in immortality.
+ - I think second place is always the most difficult one. It’s not a nice feeling.
+ - Every man seeks the truth, but God only knows who has found it.
+ - Money won’t buy happiness, but it will pay the salaries of a large research staff to study the problem.
+ - I love science. I hate supposition, superstition, exaggeration and falsified data. Show me the research, show me the results, show me the conclusions – and then show me some qualified peer reviews of all that.
+ - The same sun that melts butter hardens clay.
+ - The pretender sees no one but himself, Because he has the veil of conceit in front; If he were endowed with a God discerning eye, He would see that no one is weaker than himself.
+ - The tax collector must love poor people, he’s creating so many of them.
+ - The fly runs toward the fire or lamp, thinking that it is a flower, and gets burnt up. Even so, the passionate man runs towards a false beautiful form, thinking that he can obtain real happiness, and gets burnt up in the fire of lust.
+ - Suburbia is where the developer bulldozes out the trees, then names the streets after them.
+ - I’m a novelist who read a lot as a kid. When you grow up on books and then grow up to write books, famous authors are a lot more meaningful to you than TV and movie stars.
+ - He suffered from paralysis by analysis.
+ - Remembrance of death saves one from this world’s deceit.
+ - In the game of life, it’s a good idea to have a few early losses, which relieves you of the pressure of trying to maintain an undefeated season.
+ - There is a mighty big difference between good sound reasons and reasons that sound good.
+ - A tyrant does not remain in the world; But the curse on him abides forever!
+ - When a woman talks, she just wants to be heard.
+ - Everything pales in comparison to deer.
+ - The message was, the choices you make can have bad consequences. Everyone has the power of choice. Just like this kid had the power of choice to steal my car.
+ - I don’t care a damn for your loyal service when you think I am right; when I really want it most is when you think I am wrong.
+ - Blushes are the rainbow of modesty.
+ - Many years ago Rudyard Kipling gave an address at McGill University in Montreal. He said one striking thing which deserves to be remembered. Warning the students against an over-concern for money, or position, or glory, he said.
+ - Man has learned to fly like the birds. Now all he has to do is work out how to do it quietly.
+ - The dews of the evening most carefully shun; Those tears of the sky for the loss of the sun.
+ - The best of all gifts around any Christmas tree: the presence of a happy family all wrapped up in each other.
+ - Even pearls are dark before the whiteness of his teeth.
+ - The magnificence of mountains, the serenity of nature-nothing is safe from the idiot marks of man’s passing.
+ - The finger of God never leaves identical fingerprints.
+ - Material civilization, nay, even luxury, is necessary to create work for the poor. Bread! Bread! I do not believe in a God who cannot give me bread here, giving me eternal bliss in heaven!
+ - Woe to those who spit on the beat generation, the wind will blow it back.
+ - In the electronic age, books, words and reading are not likely to remain sufficiently authoritative and central to knowledge to justify literature.
+ - The mind of a wise man is the safest custody of secrets; cheerfulness is the key to friendship; patience and forbearance will conceal many defects.
+ - A citizen of America will cross the ocean to fight for democracy, but won’t cross the street to vote in a national election.
+ - You can be an ordinary athlete by getting away with less than your best. But if you want to be a great, you have to give it all you’ve got-your everything.
+ - The great soul that sits on the throne of the universe is not, never was, and never will be, in a hurry.
+ - As with nearly all proposed development standards, the goal is to encourage efficient land use, flexibility and a wide variety of housing types while reducing the potential for negative impacts.
+ - If you overpower your enemy, then pardon him by way of thankfulness to Allah, for being able to subdue him.
+ - Do not ask God the way to heaven; He will show you the hardest way.
+ - You have to climb to reach a deep thought.
+ - I feel very bad about getting things wrong.
+ - Most of my life, I read what is said on IMDB. The fans on the Raw is War board make the most sense of any Internet fan, apart from the one or two that create second accounts to bash me. Keep the board alive-uh. Paul Levesque.
+ - Middle age is when you realize that you’ll never live long enough to try all the recipes you spent thirty years clipping out of newspapers and magazines.
+ - Discipline means protection from one’s own wanton interest.
+ - Worship your heroes from afar; contact withers them.
+ - Perhaps God chose me to be an atheist?
+ - Thinking in words slows you down and actually decreases comprehension in much the same way as walking a tightrope too slowly makes one lose one’s balance.
+ - The eagle may soar; beavers build dams.
+ - Custom governs the world; it is the tyrant of our feelings and our manners and rules the world with the hand of a despot.
+ - Kids don’t talk like adults, but kids on the spectrum don’t necessarily fall into the same patterns of speaking or have the same interests as other kids their age.
+ - To make HP a great company once again, we need more than competitive costs and operational efficiency. We’re in the process of assessing and refining our growth strategy, and the same concepts that were behind our operational changes will be at work here: simplicity, focus, alignment, and execution.
+ - The learned compute that seven hundred and seven millions of millions of vibrations have penetrated the eye before the eye can distinguish the tints of a violet. What philosophy can calculate the vibrations of the heart before it can distinguish the colours of love?
+ - All the problems of the world – child labor, corruption – are symptoms of a spiritual disease: lack of compassion.
+ - Rarely has a people paid the lavish compliment and taken the subtle revenge of turning its oppressor’s speech into sorcery.
+ - I think I can say without fear of contradiction that we could generate sorties at an extremely high level and bring very, very effective air power to bear in support of our troops.
+ - The spider is the chamberlain in the Palace of the Caesars The owl is the trumpeter on the battlements of Afrasiyah.
+ - He had a passion for cricket right from his childhood and liked nothing else but playing with the bat and the ball. I wanted him to study hard and get into a government service. But, he wanted to do something in cricket and earn a name for himself.
+ - Journalism, like history, has no therapeutic value; it is better able to diagnose than to cure, and it provides society with a primitive means of psychoanalysis that allows the patient to judge the distance between fantasy and reality.
+ - Every time I see a bluebird, I say, well, hey, all this hard work is all worth while.
+ - The happiest and most contented people are those who each day perform to make the best of their abilities.
+ - How wisely fate ordain’d for human kind Calamity! which is the perfect glass, Wherein we truly see and know ourselves.
+ - What the result means is that the Franco-German axis is in serious trouble. It’s the end of a phase which began in 2002.
+ - It doesn’t set off any alarm bells. As is typical with T. Rowe, no transition comes about abruptly; they tend to be planned pretty well.
+ - The price of power is responsibility for the public good.
+ - How men hate waiting while their wives shop for clothes and trinkets; how women hate waiting, often for much of their lives, while their husbands shop for fame and glory.
+ - People who have little to do are excessive talkers.
+ - Shopping online is fantastic for comparison shopping, because never before have you had the ability to see all the prices offered from everybody at one time.
+ - The fact that God has prohibited despair gives misfortune the right to hope all things, and leaves hope free to dare all things.
+ - There is a major disaster when a person allows some success to become a stopping place rather than a way station on to a larger goal. It often happens that an early success is a greater moral hazard than an early failure.
+ - How meagre one’s life becomes when it is reduced to its basic facts. And the last, most complete reduction is on one’s tombstone: a name, two dates.
+ - Jesus will brush aside your inabilities.
+ - Talk often, but never long: in that case, if you do not please, at least you are sure not to tire your hearers.
+ - Behavior is the theory of manners practically applied.
+ - Iraq may get peace and stability through restoring it’s sovereignty under participation of all Iraqi factions and sectarian groups, who must rebuild a new democratic, free and independent Iraq.
+ - Work is the means of living, but it is not living.
+ - There are certain events which to each man’s life are as comets to the earth, seemingly strange and erratic portents; distinct from the ordinary lights which guide our course and mark our seasons, yet true to their own laws, potent in their own influences.
+ - The petition of an empty hand is dangerous.
+ - Men do not mirror themselves in running water; they mirror themselves in still water.
+ - Discipline is like cabbage. We may not care for it ourselves, but feel sure it would be good for somebody else.
+ - What Strauss is going through drives you nuts. If you care about your batting – which I’m sure he does – he will feel like jumping off a bridge and committing suicide.
+ - The real process of making decisions, of gathering support, of developing opinions, happens before the meeting or after.
+ - Goal achievement is hero’s work.
+ - Whoever wants to be a leader should educate himself before educating others. Before preaching to others he should first practice himself. Whoever educates himself and improves his own morals is superior to the man who tries to teach and train others.
+ - Familiarity is the most destructive of all iconoclasts.
+ - It’s never safe to be nostalgic about something until you’re absolutely certain there’s no chance of its coming back.
+ - There is no Past, so long as Books shall live!
+ - Most airlines move too fast in a merger. Speed is not as critical as efficiency.
+ - The US has not imposed democracy in Yemen, its people have.
+ - Great power constitutes its own argument, and it never has much trouble drumming up friends, applause, sympathetic exegesis, and a band.
+ - All books grow homilies by time; they are Temples, at once, and Landmarks.
+ - Because democratic institutions do not renew themselves as effortlessly as flowering trees, they demand the ceaseless tinkering of people who possess both the courage and the honesty to admit their mistakes and accept responsibility for even the most inglorious acts.
+ - Any American boy can be a basketball star if he grows up, up, up.
+ - Experience is something I always think I have until I get more of it.
+ - Perhaps the crime situation would be improved if we could get more cops off television and onto the streets.
+ - A silly row which got out of hand.
+ - Not armies, not nations, have advanced the race; but here and there, in the course of ages, an individual has stood up and cast his shadow over the world.
+ - God, who prepares His work through ages, accomplishes it when the hour is come, with the feeblest instruments.
+ - Sony is a clear leader in the digital camera and camcorder categories. As Sony continues to develop next-generation video and still image capture technologies, the demand for high speed, large capacity, small form factor memory cards will grow as well.
+ - It has been preached in every country, taught everywhere, but only believed in by a few, because until we get the experience ourselves, we cannot believe in it.
+ - Were the Inhabitants of Italy charming as their Country, all other Regions would be depopulated I think.
+ - The fact is that I loved being in England.
+ - I certainly hope the strengths and values of this country hold up to comparison to other cultures.
+ - Scores are absurdly important, One hundred points could easily make or break a kid.
+ - The groundhog is like most other prophets; it delivers its prediction and then disappears.
+ - Do not believe a thing because you read it in a book! Do not believe a thing because another has said it so! Find out the truth for yourself.
+ - Without taste genius is only a sublime kind of folly. That sure touch which the lyre gives back the right note and nothing more, is even a rarer gift than the creative faculty itself.
+ - It is better to be killed than frightened to death.
+ - How many of us have been first attracted to reason, first learned to think, to draw conclusions, to extract a moral from the follies of life, by some dazzling aphorism from Rochefoucauld or La Bruyere.
+ - I retire to make way for an abler man. In my four years as attorney general I have aged about ten years, but when I have get back to the practice of law, I hope to show those lawyers that I still have some vitality left.
+ - When gossip grows old it becomes myth.
+ - An American presidential campaign resembles a forced march through enemy country.
+ - When it is not necessary to amend the Constitution, it is necessary not to amend the Constitution.
+ - Of all the agonies in life, that which is most poignant and harrowing – that which for the time annihilates reason, and leaves our whole organization one lacerated, mangled heart – is the conviction that we have been deceived where we placed all the trust of love.
+ - Dread not events unknown, and be not downhearted, for the fountain of the water of life is involved in obscurity.
+ - When myth meets myth, the collision is very real.
+ - Beauty, alone, may please, not captivate; if lacking grace, ’tis but a hookless bait.
+ - The ideal Christmas gift is money, but the trouble is you can’t charge it.
+ - In foreign affairs, the president can do what he wants unless Congress says no. In domestic policy, the president can’t do anything unless Congress says yes.
+ - Hay smells different to lovers and horses.
+ - The wise man realistically accepts as part of life and builds a philosophy to meet them and make the most of them. He lives on the principle of nothing attempted, nothing gained and is resolved that if he fails he is going to fail while trying to succeed.
+ - Then years back, when I moved to California, I happened to see a book about fashions of 19th-century Victorian England, only four pages of which was devoted to the dress of the working class.
+ - Where are the rough brave Britons to be found With Hearts of Oak, so much of old renowned?
+ - The true problem of living is to keep our hearts sweet and gentle in the hardest conditions and experiences.
+ - The SPR is intended to provide relief at times when working families are struggling to make ends meet, and to counter the price shocks that accompany severe supply disruptions. Now is undoubtedly such a time.
+ - Had but my deeds been like my words, ah, then I had been numbered too with holy men.
+ - What ever is the natural propensity of a person is hard to overcome. If a dog were made a king, he would still gnaw at his shoes laces.
+ - A learned man is a tank; a wiser man is a spring.
+ - The press exerts the pressure of dissent on officials otherwise inclined to rest content with the congratulations of their retainers.
+ - Benefits are acceptable, while the receiver thinks he may return them; but once exceeding that, hatred is given instead of thanks.
+ - Abroad is unutterably bloody and foreigners are fiends.
+ - The wonderful world of home appliances now makes it possible to cook indoors with charcoal and outdoors with gas.
+ - Virtue lives when Beauty dies.
+ - The old religions said that he was an atheist who did not believe in God. The new religion says that he is the atheist who does not believe in himself.
+ - Western audiences can gain an impression of China from my films. This is an excellent channel for promoting China’s culture.
+ - The whale is endangered, while the ant continues to do just fine.
+ - Even the world, that despises simplicity, does not profess to approve of duplicity.
+ - It would be nice if the poor were to get even half of the money that is spent in studying them.
+ - Economists report that a college education adds many thousands of dollars to a man’s lifetime income – which he then spends sending his son to college.
+ - I want to be the first to bless you on what God has blessed you with – fighting in the heart of the Muslim world that was a battleground for large historic Islamic wars and what is now the place of Islam’s greatest war in the present era.
+ - The man who is always talking about being a gentleman, never is one.
+ - Do not expect too much of the end of the world.
+ - In adversity man is saved by hope.
+ - Pipe-smokers spend so much time cleaning, filling and fooling with their pipes, they don’t have time to get into mischief.
+ - Salvation includes an ongoing transformation in your life.
+ - You know when I was depressed I said I didn’t want to live? Well, I’ll tell you something – I didn’t want to die.
+ - Adolescence is society’s permission slip for combining physical maturity with psychological irresponsibility.
+ - The more human beings proceed by plan the more effectively they may be hit by accident.
+ - In addition to wreaking havoc on our bodies, anger close our inner door, making us feel isolated and distrustful, hindering communication.
+ - Humility is the embroidery of chiefs.
+ - Above all, we must abolish hope in the heart of man. A calm despair, without angry convulsions, without reproaches to Heaven, is the essence of wisdom.
+ - Without this balance, a body’s immune system will not have the desired response when faced with infection. These findings could aid the development and production of vaccines and lead to further research on how the body fights specific infections, such as HIV.
+ - Sometimes the devil tempts me to believe in God.
+ - The healthy life is hardly one marked by an absence of crises. In fact, an individual’s psychological health is distinguished by how early he or she can meet crisis.
+ - American culture has always known success, not suffering, so we’ve never known what to do with this part of the Bible. The more we succeed, the more we’re seduced into thinking we can control everything. We dissect Revelation to get a sense of control over the future.
+ - Once your kid reaches middle school, parents are really supposed to fade out of the social picture. Kids are supposed to make their own plans, keep up with sophisticatedly crude discussions, and be able to go out on their own without supervision.
+ - I could live a week on one good compliment.
+ - The eyes are the amulets of the mind.
+ - The Democratic leadership has expressed great concern for the incarceration rate in the commonwealth in the last few years. Now they want to fill the prisons up with people who would violate the merit law, a law that’s been proven to be ambiguous at best and impossible to understand at worst.
+ - The familiar childhood admonition of ‘counting to 10’ before taking action works because it emphasizes the two key elements of anger management – time and distraction.
+ - Our enemy sees us clearly. They will not start a war. They’re worried about one thing: If democracy develops here, if we succeed, we will win.
+ - Sorrows when shared are less burdensome, though joys divided are increased.
+ - It is foolish to think that we will enter heaven without entering into ourselves.
+ - If we have confidence in our own beliefs, we should not fear freedom of thought.
+ - The clarity of gender makes possible the human dialectic. Let the lines of balanced tension go slack and the structure dissolves into the ooze of androgyny and narcissism.
+ - Three or four plays cause the momentum to shift. We turned it over and gave Baylor a cheap score.
+ - Because, as we are told – a sad old joke, too – Ghosts, like the ladies, never speak till spoke to.
+ - The wise individual doesn’t get too attached to any of life’s pleasures, knowing that wonderful science is hard at work proving it’s bad for him.
+ - All change, all production and generation are effected through the word.
+ - Let me look upward into the branches of the flowering oak and know that it grew great and strong because it grew slowly and well.
+ - There is no right by the federal or state constitution to manual recounts. There is no law that says that you must count dimpled ballots, constitutional or otherwise.
+ - The true antidote to greed is contentment. If you have a strong sense of contentment, it doesn’t matter whether you obtain the object of your desire or not. Either way, you are still content.
+ - The nature of our constitution makes eloquence more useful and more necessary in this country than in any other in Europe.
+ - I do not believe in a religion that cannot wipe out the widow’s tears or bring a piece of bread to the orphan’s mouth.
+ - Our court dockets are so crowded today it would be better to refer to it as the overdue process of law.
+ - A three year old child is a being who gets almost as much fun out of a fifty-six dollar set of swings as it does out of finding a small green worm.
+ - The sinner will not confess, nor will the priest receive his confession, if the veil of secrecy is removed.
+ - Only if the dragon and the eagle turn their sights from each other and make room for each other in the world they share, can they reach new and brighter horizons.
+ - I got shot in the head by my own guys in my foxhole. And they didn’t even give me an honorable death.
+ - The effect of boredom on a large scale in history is underestimated. It is a main cause of revolutions.
+ - Flattery, though a base coin, is the necessary pocket money at court; where, by custom and consent, it has obtained such a currency that it is no longer a fraudulent, but a legal payment.
+ - Most of us wait until we’re in trouble, and then we pray like the dickens. Wonder what would happen if, some morning, we’d wake up and say, “Anything I can do for You today, Lord?”
+ - Aristocracy has three successive ages. First superiority s, then privileges and finally vanities. Having passed from the first, it degenerates in the second and dies in the third.
+ - In the next century it will be the early mechanical bird which get the first plastic worm out of the artificial grass.
+ - As the last drops fell from the glass to my tongue, I wondered – only for an instant – what perhaps I’d never know. What would it taste like, what would it feel like, if that liquid sliding down my throat was not champagne. But the elixir of life. Katheine Neville.
+ - We are wrong to fear superiority of mind and soul; this superiority is very moral, for understanding everything makes a person tolerant and the capacity to feel deeply inspires great goodness.
+ - I have a healthy respect for those individuals and the businesses that they represent. Their involvement only solidifies my belief that the United Way is a worthy organization to donate my time and efforts to.
+ - For a deed to be totally pure, it must be done without any thought of reward, whether worldly or divine.
+ - Wal-Mart and what Wal-Mart does contrasts sharply with what the Green Party believes.
+ - We’ve found some things that are suspicious in nature, and we’re going to err on the side of caution.
+ - Meditating means bringing the mind back to something again and again. Thus, we all meditate, but unless we direct it in some way, we meditate on ourselves and on our own problems, reinforcing our self-clinging.
+ - A real patriot is the fellow who gets a parking ticket and rejoices that the system works.
+ - The cold war was an aberration. Note how quickly the Europeans turned on America once 400 hostile divisions were no longer on their borders.
+ - There is no occasion for our rejoicing at a foe’s death, because our own life will also not last forever.
+ - There must be some great truth underlying the instinct for worship.
+ - Now that women are jockeys, baseball umpires, atomic scientists, and business executives, maybe someday they can master parallel parking.
+ - Hope for the best, survive the worst, find humor wherever you can.
+ - I believe the world is increasingly in danger of becoming split into groups which cannot communicate with each other, which no longer think of each other as members of the same species.
+ - The most malignant of enemies is the lust which abides within.
+ - What is a highway to one is a disaster to the other.
+ - The artist’s imagination may wander far from nature. But as long as it is a living, moving power in his brain, isn’t it just as real as any other natural phenomenon? The artist justifies his existence only when he can transform his imagination into truth.
+ - The less important you are on the table of organization, the more you’ll be missed if you don’t show up for work.
+ - People learn something every day, and a lot of times it’s that what they learned the day before was wrong.
+ - What is my proudest accomplishment? I went through some pretty difficult times, and I kept my sanity.
+ - Pouter, tumbler, and fantail are from the same source; The racer and hack may be traced to one Horse; So men were developed from monkeys of course, Which nobody can deny.
+ - By the time you’re eighty years old you’ve learned everything. You only have to remember it.
+ - Live constructively and live optimistically.
+ - A man who has no excuse for a crime, is indeed defenceless!
+ - Sir, I may not have been always a Christian, but I am very sure that I have been a gentleman.
+ - Virtue, like a dowerless beauty, has more admirers than followers.
+ - There is no real coming and going, For what is going but coming?
+ - SAP is becoming the standard for business software. Oracle is in a state of chaos.
+ - The government is shutting down the coal industry, they say it’s cheaper to draw nuclear power off the French grid and cheaper to buy coal from Colombia.
+ - I feel so bad about my MBE now that I am going to tie it around my cat.
+ - Inventory discipline across the brands coupled with an outstanding holiday performance at Victoria’s Secret led to a 36 percent increase in fourth-quarter earnings per share at Limited Inc...
+ - I return with feelings of misgiving from my third war-I was the first American commander to put his signature to a paper ending a war when we did not win it.
+ - Democracy in Yemen did not stop, instead it is in a continuous development, there is no other way to follow rather than democracy, it is our national way for building up our country, it was not imposed on us by others.
+ - God wants us along for the victory, but it is His fight.
+ - One murder makes a villain, millions often a hero.
+ - The surest way of making a dupe is to let your victim suppose you are his.
+ - Official intelligence on Iraqi weapons programs was flawed, but even with its flaws, it was not what led to the war.
+ - It is easiest to lose your way in the forest after it is cut.
+ - I don’t think other people in the world would share the view there is mounting chaos.
+ - Have love for your friend up to a limit for it is possible he may turn into your enemy some day; and hate your enemy up to a limit for it is possible he may turn into your friend some day.
+ - Salinger is a master of the memorable detail, the seemingly random gesture, the debris of mundane daily operations, the stuff that is left out of any analysis.
+ - It is a great deal easier to do that which God gives us to do, no matter how hard it is, than to face the responsibilities of not doing it.
+ - A statesman is any politician it’s considered safe to name a school after.
+ - Retirement, we understand, is great if you are busy, rich, and healthy. But then, under those circumstances, work is great too.
+ - The best that can be said of you is that you got saved.
+ - As a nation we are dedicated to keeping physically fit – and parking as close to the stadium as possible.
+ - Every time you look at a house in Los Angeles, the real-estate agent will tell you that someone famous once lived there. It always seemed irrelevant to me: Does a property gain value just because Alfred Hitchcock used to eat breakfast there?
+ - Nature has hardly formed a woman ugly enough to be insensible to flattery upon her person; if her face is so shocking that she must in some degree be conscious of it, her figure and her air, she trusts, make ample amends for it.
+ - Mutual aid is as much a law of animal life as mutual struggle.
+ - I am saying that the recent activities by Turkey’s Ministry of Agriculture, particularly the culling and communication work, is good.
+ - The average American is for the underdog, but only on the condition that he has a chance to win.
+ - There are people in many other states who are cheering us.
+ - Know, he that foretells his own calamity, and makes events before they come, twice over, doth endure the pains of evil destiny.
+ - I’ve always been struck by how unsuspicious people are in general, if you tell them what you’re about.
+ - The committee has an obligation to give you a choice. The members have the obligation and the right to make that choice.
+ - Letters should be easy and natural.
+ - As surely as you are a living man, so surely did that spectral anatomy visit my room again last night, grin in my face, and walk away with my trousers: nor was I able to spring from my bed, or break the chain which seemed to bind me to my pillow.
+ - The lioness giveth birth to cubs which remain three days without life. Then cometh the lion, breatheth upon them, and bringeth them to life.
+ - Whether it is fun to go to bed with a good book depends a great deal on who’s reading it.
+ - One in whose head is conceit, Think not that he will ever listen to truth.
+ - IF you torture a single chicken and are caught, you’re likely to be arrested. If you scald thousands of chickens alive, you’re an industrialist who will be lauded for your acumen.
+ - Representative William McK. Springer, remarks in the House, quoting Henry Clay: As for me, I would rather be right than be President. Reed: Well, the gentleman will never be either.
+ - I fear the financial crisis of 1998 may become the trade crisis of 1999.
+ - Progress is a continuing effort to make the things we eat, drink, and wear as good as they used to be.
+ - Most people – and particularly people whose lives have nothing to do with books at all – are intrigued by the idea that somebody wants to listen to them and get it right.
+ - A cancer is not only a physical disease, it is a state of mind.
+ - I think the common elements first are that, basically, we are entering markets or in markets that are deregulating or have recently deregulated, and so they have become competitive, moving from monopoly franchise-type businesses to competitive, market-oriented businesses.
+ - The faith in reason insists that the poverty of democracy offers a greater hope for mankind than the prosperity that attaches itself to aristocracy or despotism.
+ - Our banking system grew byaccident; and wherever something happens byaccident, it becomes a religion.
+ - He knows not the value of a day of pleasure who has not seen adversity.
+ - The nations which have put mankind and posterity most in their debt have been small states Israel, Athens, Florence, Elizabethan England.
+ - Grief and constant anxiety kill nearly as many women as men die on the battlefield.
+ - Flattery, if judiciously administered, is always acceptable, however much we may despise the flatterer.
+ - A mission could be defined as an image of a desired state that you want to get to. Once fully seen, it will inspire you to act, fuel your imagination and determine your behavior.
+ - Can an author with reason complain that he is cramped and shackled if he is not at liberty to publish blasphemy, bawdry, or sedition?; all of which are equally prohibited in the freest governments, if they are wise and well-regulated ones.
+ - A decision of the courts decided that the game of golf may be played on a Sunday, not being a game within the view of the law, but being a form of moral effort.
+ - Every woman is infallibly to be gained by every sort of flattery, and every man by one sort or other.
+ - Bottom is bottom, even if it is turned upside down.
+ - These are days you’ll remember. If you recall nothing else from your graduation ceremony, remember you heard the New Jersey Governor quote from 10,000 Maniacs.
+ - I never thought I would just be doing Arkady books.
+ - O hour, of all hours, the most blesse’d upon earth, The bless’d hour of our dinners!
+ - On the one hand, it’s common sense it’s hard to see someone you love get sick or die. People are interconnected and their health is, too.
+ - Where would the gardener be if there were no more weeds?
+ - If you’re involved in an accident and you’re at fault $500,000 may not be enough. Do you really want to lose your house because you failed to spend an extra couple of hundred bucks?
+ - If you think that one individual can’t make a difference in the world, consider what one cigar can do in a nine-room house.
+ - Occasionally we sigh for an earlier day when we could just look at the stars without worrying whether they were theirs or ours.
+ - Your thoughts are making you.
+ - The Universe knows itself and expands itself through me.
+ - It may be that these loan arrangements conform to the letter of the law, but they do not conform to the spirit of the law and to the principle of transparency on which it is based.
+ - It is not easy to describe the present position of legal opinion on advertising and free speech. Only a poet can capture the essence of chaos.
+ - Some idea of inflation comes from seeing a youngster get his first job at a salary you dreamed of as the culmination of your career.
+ - That game gave us a lot of confidence and the fans something to cheer for.
+ - Despatch is the soul of business.
+ - We deserve this payment by all stretches of how one would calculate it.
+ - If any writer thinks the world is full of middle class people of nice sensibilities, then he is out of his mind.
+ - Men are more like the time they live in than they are like their fathers.
+ - Dark windows are often a very clear proof.
+ - How, frequently, some murder’d man appear’d, To tell his wife and children who had done it...
+ - Ambassador Mulford has made wide-ranging intervention in the internal affairs of India. To say the least, it is very unfortunate. It confirms our earlier apprehension that he is directly interfering in India’s internal affairs.
+ - Something larger is happening than just going to heaven.
+ - We hope that, when the insects take over the world, they will remember with gratitude how we took them along on all our picnics.
+ - One advantage to having a kid on the spectrum: they tend to be rule followers. Socially, things are harder for them than most kids.
+ - A man’s penmanship is an unfailing index of his character, moral and mental, and a criterion by which to judge his peculiarities of taste and sentiments.
+ - I’m not convinced that the world is in any worse shape than it ever was. It’s just that in this age of almost instantaneous communication, we bear the weight of problems our forefathers only read about after they were solved.
+ - I count this thing to be grandly true: That a noble deed is a step toward God.
+ - Freedom is knowing who you really are.
+ - But at the same time I went down into the mines with working miners who are still young men, younger than I am, who are aware that their working life is coming to an end and they feel suddenly cut off.
+ - Look in the face of the person to whom you are speaking if you wish to know his real sentiments, for he can command his words more easily than his countenance.
+ - The test of an abstract picture, for me, is not my first reaction to it, but how long I can stand it hanging on the wall of a room where I am living.
+ - Even if you feed the cow cocoa you will not get chocolate.
+ - By the age of twenty, any young man should know whether or not he is to be a specialist and just where his tastes lie. By postponing the question we have set on immaturity a premium which controls most American personality to its deathbed.
+ - It is the duty of a doctor to prolong life and it is not his duty to prolong the act of dying.
+ - Man is the animal that intends to shoot himself out into interplanetary space, after having given up on the problem of an efficient way to get himself five miles to work and back each day.
+ - The guru, if he is gifted, reads the story as any bilingual person might. He does not translate-he understands.
+ - Improving efficiency on the farm is not only a risk-reduction strategy, it’s a profitability strategy.
+ - It’s against the law to go out on Sunday from the end of June until Labor Day. It forces the fishermen to spend some time with their families.
+ - A nation has character only when it is free.
+ - You need diplomacy and not slogans. This is the place for wisdom, the place for seeking windows that will take you to the objective.
+ - I’ve still got a lot to learn about Washington. Thursday, I accidentally spent some of my own money.
+ - It is possible that our race may be an accident, in a meaningless universe, living its brief life uncared for, on this dark, cooling star.
+ - According to scriptures at least I know the Bible states not to make any permanent marks on your body.
+ - There is not a single pessimistic note anywhere in the New Testament after the resurrection.
+ - Out of suffering have emerged the strongest souls; the most massive characters are seamed with scars; martyrs have put on their coronation robes glittering with fire, and through their tears have the sorrowful first seen the gates of Heaven.
+ - Doing leads more surely to talking than talking to doing.
+ - Are there any vegetarians among cannibals?
+ - After carrying and collecting like the ant, Enjoy-before the grave worm devours thee.
+ - I’d always been a great fan of George Orwell.
+ - The things which must be, must be for the best, God helps us do our duty and not shrink, And trust His mercy humbly for the rest.
+ - It may be asserted without scruple, that no otherclass of dependants have had their character so entirely distorted from its natural proportions by their relations with their masters.
+ - Youth is when you’re allowed to stay up late on New Year’s Eve. Middle age is when you’re forced to.
+ - I’m an actor. And I guess I’ve done so many movies I’ve achieved some high visibility. But a star? I guess I still think of myself as kind of a worker ant.
+ - It is only the first obstacle which counts to conquer modesty.
+ - Earlier research has shown that poor blood flow can damage these parts of the brain. So one theory is that exercise may prevent damage and might even help repair these areas by increasing blood flow.
+ - It’s not what’s going to happen, but who’s coming.
+ - In the midst of life we are in debt.
+ - An indefinable something is to be done, in a way nobody knows how, at a time nobody knows when, that will accomplish nobody knows what.
+ - Where God is, all agree.
+ - There is a huge antipathy in England between the north and the south, the working class and the owning class.
+ - Keep strong if possible; in any case, keep cool.
+ - Failed the bright promise of your early day?
+ - Never seem wiser or more learned than the people you are with.
+ - WHATEVER Life may really be, it is to us an abstraction: for the word is a generalised term to signify that which is common to all animals and plants, and which is not directly operative in the inorganic world.
+ - The Vice-Presidency is sort of like the last cookie on the plate. Everybody insists he won’t take it, but somebody always does.
+ - The easiest books are generally the best; for, whatever author is obscure and difficult in his own language, certainly does not think clearly.
+ - He who writes prose builds his temple to Fame in rubble; he who writes verses builds it in granite. – Edward George Earle Lytton Bulwer-Lytton, first Baron Lytton.
+ - Contraries are cured by contraries.
+ - Nor all America can claim him now: Forevermore he is Mankind’s and God’s.
+ - United States is a great Country and has its effective role on the international arena, so we have to boost our relations with it, in order to achieve peace and stability in our region and the world.
+ - Uganda’s Constitutional Court will decide whether the military court can proceed with this trial. A nation cannot claim to be operating under the rule of law if its military tribunals ignore the orders of civilian courts.
+ - Commerce is the cure for the most destructive prejudices.
+ - What’s wonderful is to read the different translations – some done in 1600 and some in 1900 – of the same passage. It’s fascinating to watch the same tale repeated in such a different way by two different centuries.
+ - So there is a natural efficiency that you pick up as you can prioritize capital across a bigger set of opportunities.
+ - To be a good friend remember that we are human magnets: that like attracts like and that as we give we get.
+ - A covetous man’s penny is a stone.
+ - It’s a real triumph taking a painting out from a pit-hole with a loose and open approach. Some aspects in its favour are those strange accidents that can produce amazing results.
+ - At bank, post office or supermarket, there is one universal law which you ignore at your own peril: the shortest line moves the slowest.
+ - What a pity that the only way to heaven is in a hearse.
+ - All of us must act selfishly to Iearn charity, must lie to learn honor, must betray and be betrayed to learn to value trust and commitment.
+ - No one can bring to God what you can.
+ - All the aftermath that so frequently follows in the wake of war still confront the nation, and we now, as ever before, must hold fast to the ancient landmarks and see to it that all of these plagues that threaten so mightily shall be rendered harmless.
+ - Muscles come and go; flab lasts.
+ - In the wiretapping, despite all the momentum for a more assertive Congress, you’re seeing Congress backing down, because there are many Republicans and even Democrats who are afraid of being seen as preventing the president from protecting the nation.
+ - The cable operators are paying to show content. The most important content you have is the broadcast stations. They take the position that over the air is free to people, so it should be free to them.
+ - Life is about balance too much excess is chaos.
+ - Books are delightful when prosperity happily smiles; when adversity threatens, they are inseparable comforters. They give strength to human compacts, nor are grave opinions brought forward without books. Arts and sciences, the benefits of which no mind can calculate. depend upon books.
+ - We are what we must And not what we would be. I know that one hour Assures not another. The will and the power Are diverse.
+ - Weight loss programs and health clubs have an ethical and legal obligation to adequately disclose details about program costs before customers sign a contract. They should also clearly explain how the program works and what is expected so that consumers can make an informed choice whether to join.
+ - Kids are not driving themselves to McDonalds. It’s not about kids and their choices. It’s about parents and their choices.
+ - The United States grants the favors of the second, third, or fifty-seventh chance, and its citizens remain free to invent for themselves whatever character draws a crowd or pays the rent.
+ - The only difference between your abilities and others is the ability to put yourself in their shoes and actually try.
+ - The Christianity which is shared is the Christianity which is convincing.
+ - It is only when all our Christian ancestors are allowed to become our contemporaries that the real splendor of the Christian faith and the Christian life begins to dawn upon us.
+ - Let dull critics feed upon the carcases of plays; give me the taste and the dressing.
+ - I like computers. It’s the first time that I am endorsing a computer brand. I am very computer savvy, so this is certainly up my ally.
+ - Think before you think!
+ - It sounds bad, but they don’t care about your age if you’re famous.
+ - Calamity was ordained for man.
+ - I’ve got a book of poetry by the bed, one of these big collections that goes back to the Greeks and Romans.
+ - In order to pay it’s got to be a pretty big winner. But if it’s a big hit from a financial standpoint, then next year you’ve got a very tough comparison.
+ - Can the cannibal speak in the name of those he ate?
+ - Any manwhose love of horses isstronger thanhis fear of being an absurdity is all right with me.
+ - There’s one word that describes baseball – You never know.
+ - Historical investigation and literary criticism have taken the magic out of the Bible and have made it a composite human book, written by many hands in different ages.
+ - The more wit you have, the more good nature you must show, to induce people to pardon your superiority, for that is no easy matter.
+
+381 quotes

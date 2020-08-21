@@ -1,0 +1,24 @@
+ - Happiness is a choice. You grieve, you stomp your feet, you pick yourself up and choose to be happy.
+ - Treat everyone the same until you find out they’re an idiot.
+ - I am not intimidating. I am a woman’s woman. I love hanging out with women. And people are really inspired by this show.
+ - I think the people running climate change denial campaigns are sociopaths.
+ - I’m not someone who ever enjoys violence against women or children.
+ - For the first time in my life, I put my body and reputation on the line to stand up for my beliefs and do the right thing. I hope I’ve encouraged other people to do the same.
+ - Growing up, I looked up to real women. I didn’t go in for hero worship and I still don’t. Everybody has feet of clay.
+ - We live at the edge of the world, so we live on the edge. Kiwis will always sacrifice money and security for adventure and challenge.
+ - I’m a bloody fun-seeker. Whatever the role is, I’ll find a way to deliver the line that is confounding.
+ - Up until I came here this week, and I met so many women and young girls who feel, to use their word – and I’m a bit embarrassed, but it’s a good word – empowered, by watching. I realized this isn’t a burden, this is an honor.
+ - I was sitting in the looping studio late one night, and I had this epiphany that they weren’t paying me for my acting, for God’s sake, but to own me. And from then on, it became clear and an awful lot easier to deal with.
+ - My voice likes rock music. My problem is, I can do a lot of things, but I have to find my own voice.
+ - Very often, I’m part of the deception because the way I play things is that I want you to be able to look back and go, “Oh, my god, I didn’t see that at the time, but now it all makes sense,” and you want to watch it a second time with the benefit of hindsight.
+ - At first, being a female role model really terrified me. But it hasn’t turned out to be an awful burden. I get a lot of letters from women who tell me that, after watching Xena, they have bought the Harley-Davidson they always wanted or left an abusive relationship.
+ - My plan is to shock people with what I can do, because I’ve got a few sides to me that I’ve never used on screen.
+ - I’ve often wanted to play the victim, or somebody who makes terrible choices. I would love to play the alcoholic mother who horribly lets down her children. That’s a great morally imperiled role.
+ - When you decide to become an opera singer, it’s a commitment that allows nothing else to interfere. Even your family – and I have a young daughter – has to take second place.
+ - One of my missions is to get people to go, “Oh, she’s really nice and I really like her, but what were the words she just said?!” I want your instincts to be at odds with your mind.
+ - So yes, the roles are getting more and more like me. But that’s because Xena was so entirely unlike me. Most people aren’t really aware of that.
+ - I get to do all these really nice, little culty things. It seems to be the world that keeps inviting me back.
+ - I just look at what’s the most fun thing I can do next. I’m not looking to prove anything, or to break out or to break away. I feel so lucky, honestly, that I’m still working.
+ - It’s never very useful to see your character as a villain. You have to play them the way they see themselves.
+
+22 quotes

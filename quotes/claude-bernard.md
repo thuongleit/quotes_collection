@@ -1,0 +1,54 @@
+ - It is what we know already that often prevents us from learning.
+ - Tout est poison, rien n’est poison, tout est une question de dose. Everything is poisonous, nothing is poisonous, it is all a matter of dose.
+ - The joy of discovery is certainly the liveliest that the mind of man can ever feel.
+ - Man can learn nothing unless he proceeds from the known to the unknown.
+ - The constancy of the internal environment is the condition for free and independent life: the mechanism that makes it possible is that which assured the maintenance, with the internal environment, of all the conditions necessary for the life of the elements.
+ - Well-observed facts, though brought to light by passing theories, will never die; they are the material on which alone the house of science will at last be built.
+ - True science teaches us to doubt and, in ignorance, to refrain.
+ - If I had to define life in a single phrase, I should clearly express my thought of throwing into relief one characteristic which, in my opinion, sharply differentiates biological science. I should say: life is creation.
+ - We achieve more than we know. We know more than we understand. We understand more than we can explain.
+ - Experiment is fundamentally only induced observation.
+ - The mental never influences the physical. It is always the physical that modifies the mental, and when we think that the mind is diseased, it is always an illusion.
+ - The fact that knowledge endlessly recedes as the investigator is about to grasp it is what constitutes at the same time his torment and happiness.
+ - We must remain, in a word, in an intellectual disposition which seems paradoxical, but which, in my opinion, represents the true mind of the investigator. We must have a robust faith and yet not believe.
+ - The doubter is a true man of science: he doubts only himself and his interpretations, but he believes in science.
+ - Descriptive anatomy is to physiology what geography is to history, and just as it is not enough to know the typography of a country to understand its history, so also it is not enough to know the anatomy of organs to understand their functions.
+ - Feeling alone guides the mind.
+ - All the vital mechanisms, varied as they are, have only one object, that of preserving constant the conditions of life in the internal environment.
+ - The science of life is a superb and dazzlingly lighted hall which may be reached only by passing through a long and ghastly kitchen.
+ - Those who do not know the torment of the unknown cannot have the joy of discovery.
+ - The first requirement in using statistics is that the facts treated shall be reduced to comparable units.
+ - In science, the best precept is to alter and exchange our ideas as fast as science moves ahead.
+ - Our ideas are only intellectual instruments which we use to break into phenomena; we must change them when they have served their purpose, as we change a blunt lancet that we have used long enough.
+ - Science admits no exceptions; otherwise there would be no determinism in science, or rather, there would be no science.
+ - Now, a living organism is nothing but a wonderful machine endowed with the most marvellous properties and set going by means of the most complex and delicate mechanism.
+ - The minds that rise and become really great are never self-satisfied, but still continue to strive.
+ - A discovery is generally an unforeseen relation not included in theory.
+ - Mediocre men often have the most acquired knowledge. It is in the darker. It is in the darker regions of science that great men are recognized; they are marked by ideas which light up phenomena hitherto obscure and carry science forward.
+ - The great experimental principle, then, is doubt, that philosophic doubt which leaves to the mind its freedom and initiative, and from which the virtues most valuable to investigators in physiology and medicine are derived.
+ - The experimenter who does not know what he is looking for will not understand what he finds.
+ - The stability of the internal medium is a primary condition for the freedom and independence of certain living bodies in relation to the environment surrounding them.
+ - Hatred is the most clear- sighted, next to genius...
+ - With the aid of these active experimental sciences man becomes an inventor of phenomena, a real foreman of creation; and under this head we cannot set limits to the power that he may gain over nature through future progress of the experimental sciences.
+ - In the philosophic sense, observation shows and experiment teaches.
+ - Theories are like a stairway; by climbing, science widens its horizon more and more, because theories embody and necessarily include proportionately more facts as they advance.
+ - The true worth of an experimenter consists in his pursuing not only what he seeks in his experiment, but also what he did not seek.
+ - Science increases our power in proportion as it lowers our pride.
+ - Obervation is a passive science, experimentation is an active science.
+ - A great discovery is a fact whose appearance in science gives rise to shining ideas, whose light dispels many obscurities and shows us new paths.
+ - Real science exists, then, only from the moment when a phenomenon is accurately defined as to its nature and rigorously determined in relation to its material conditions, that is, when its law is known. Before that, we have only groping and empiricism.
+ - A man of science rises ever, in seeking truth; and if he never finds it in its wholeness, he discovers nevertheless very significant fragments; and these fragments of universal truth are precisely what constitutes science.
+ - Science rejects the indeterminate.
+ - When we meet a fact which contradicts a prevailing theory, we must accept the fact and abandon the theory, even when the theory is supported by great names and generally accepted.
+ - Mediocre men often have the most acquired knowledge.
+ - The eloquence of a scientist is clarity; scientific truth is always more luminous when its beauty is unadorned than when it is tricked out in the embellishments with which our imagination would seek to clothe it.
+ - The better educated we are and the more acquired information we have, the better prepared shall we find our minds for making great and fruitful discoveries.
+ - But while I accept specialization in the practice, I reject it utterly in the theory of science.
+ - Effects vary with the conditions which bring them to pass, but laws do not vary. Physiological and pathological states are ruled by the same forces; they differ only because of the special conditions under which the vital laws manifest themselves.
+ - Particular facts are never scientific; only generalization can establish science.
+ - Proof that a given condition always precedes or accompanies a phenomenon does not warrant concluding with certainty that a given condition is the immediate cause of that phenomenon. It must still be established that when this condition is removed, the phenomen will no longer appear.
+ - We must never make experiments to confirm our ideas, but simply to control them.
+ - First causes are outside the realm of science.
+ - When entering on new ground we must not be afraid to express even risky ideas so as to stimulate research in all directions. As Priestley put it, we must not remain inactive through false modesty based on fear of being mistaken.
+
+52 quotes

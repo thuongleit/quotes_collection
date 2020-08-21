@@ -1,0 +1,102 @@
+ - Always asked, ‘Whats the key to success?’ The key is, there is no key. Be humble, hungry and always be the hardest worker in the room. ~~Dwayne Johnson
+ - The pain you feel today is the strength you’ll feel tomorrow. ~~Anonymous
+ - Winners never quit and quitters never win. ~~Vince Lombardi
+ - You have to go through the worst to get to the best. ~~Anonymous
+ - Work until your idols become your rivals. ~~Anonymous
+ - Hard work and training. There’s no secret formula. ~~Ronnie Coleman
+ - Create a vision of who you want to be, and then live into that picture as if it were already true. ~~Arnold Schwarzenegger
+ - Don’t do your best, do whatever it takes. ~~Anonymous
+ - Pain is temporary. Quitting lasts forever. ~~Lance Armstrong
+ - Work until your brain forgets and your body remembers. ~~Anonymous
+ - Being weak is a choice, so is being strong. ~~Frank Zane
+ - You can’t climb the ladder of success with your hands in your pockets. ~~Arnold Schwarzenegger
+ - Obsessed is a word the lazy use to describe the dedicated. ~~Anonymous
+ - It is never too late to be what you might have been. ~~George Eliot
+ - Vision creates faith and faith creates willpower. ~~Arnold Schwarzenegger
+ - How am I to know what I can achieve if I quit? ~~Jason Bishop
+ - Your mind is the strongest and most valuable muscle you can grow in the gym. ~~Greg Plitt
+ - Discipline weighs ounces and regret weighs tons. ~~Jim Rohn
+ - You’re only one workout away from a good mood. ~~Anonymous
+ - Persistence and determination alone are omnipotent. ~~Calvin Coolidge
+ - The real workout begins when you want to stop. ~~Anonymous
+ - Push yourself, because no one else is going to do it for you. ~~Anonymous
+ - Slow progress is better than no progress. ~~Anonymous
+ - Fitness is not about being better than someone else. It’s about being better than you used to be. ~~Brett Hoebel
+ - It’s a lifestyle – train like there’s no finish line. ~~Anonymous
+ - While you're out there partying, horsing around, someone out there at the same time is working hard. Someone is getting smarter and someone is winning. Just remember that. ~~Arnold Schwarzenegger
+ - Strength does not come from winning. Your struggles develop your strengths. When you go through hardships and decide not to surrender, that is strength. ~~Arnold Schwarzenegger
+ - Make time for it. Just get it done. Nobody ever got strong by thinking about it. They did it. ~~Will Smith
+ - The harder you work, the luckier you get. ~~Gary Player
+ - When you feel like quitting think about why you started. ~~Anonymous
+ - Every morning in Africa, a gazelle wakes up. It knows it must run faster than the fastest lion or it will be killed. Every morning a lion wakes up. It knows it must outrun the slowest gazelle or it will starve to death. It doesn’t matter whether you are a lion or a gazelle: when the sun comes up, you’d better be running. ~~Dan Montano
+ - If you want to turn a vision into reality, you have to give 100% and never stop believing in your dream. ~~Arnold Schwarzenegger
+ - Discipline is the bridge between goals and accomplishment. ~~Jim Rohn
+ - The best project you’ll ever work on is you. ~~Sonny Franco
+ - Pain is weakness leaving the body. ~~United States Marine Corps
+ - We must all suffer one of two things: the pain of discipline or the pain of regret or disappointment.  ~~Jim Rohn
+ - There are no shortcuts – everything is reps, reps, reps. ~~Arnold Schwarzenegger
+ - Victory is reserved for those who are willing to pay its price. ~~Sun Tzu
+ - There are plenty of difficult obstacles in your path. Don’t allow yourself to become one of them. ~~Ralph Marston
+ - Strong people are harder to kill than weak people and more useful in general. ~~Mark Rippetoe
+ - The body achieves what the mind believes. ~~Anonymous
+ - What you’re thinking is what you’re becoming. ~~Muhammad Ali
+ - The Iron is the best antidepressant I have ever found. ~~Henry Rollins
+ - The last three or four reps is what makes the muscle grow. This area of pain divides the champion from someone else who is not a champion. That’s what most people lack, having the guts to go on and just say they’ll go through the pain no matter what happens. ~~Arnold Schwarzenegger
+ - You don’t find willpower, you create it. ~~Anonymous
+ - If you don’t go after what you want, you’ll never have it. If you don’t ask, the answer is always no. If you don’t step forward, you’re always in the same place. ~~Nora Roberts
+ - If you are going through hell, keep going. ~~Winston Churchill
+ - You don’t demand respect, you earn it. ~~Anonymous
+ - When you have a well developed body and you're confident, you see people bending your way, wanting to be on your side, wanting to do things for you. ~~Arnold Schwarzenegger
+ - The greatest pleasure in life is doing what people say you cannot do. ~~Walter Bagehot
+ - It’s going to be hard, but hard doesn’t mean impossible. ~~Anonymous
+ - Sweat is just fat crying. ~~Anonymous
+ - If it is important to you, you will find a way. If not, you’ll find an excuse. ~~Ryan Blair
+ - The act of taking the first step is what separates the winners from the losers. ~~Brian Tracy
+ - Be patient and tough; someday this pain will be useful to you. ~~Ovid
+ - Trust yourself, no matter what anyone else thinks. ~~Arnold Schwarzenegger
+ - Motivation is what gets you started. Habit is what keeps you going. ~~Jim Rohn
+ - There’s more to life than training, but training is what puts more in your life. ~~Brooks Kubik
+ - I hated every minute of training, but I said, “Don’t quit. Suffer now and live the rest of your life as a champion.” ~~Muhammad Ali
+ - That which does not kill me, makes me stronger. ~~Friedrich Nietzsche
+ - Today’s weakness is tomorrow’s failure. ~~Anonymous
+ - Don’t count the days, make the days count. ~~Muhammad Ali
+ - If you can imagine it, you can achieve it. If you can dream it, you can become it. ~~William Arthur Ward
+ - From the bodybuilding days on, I learned that everything is reps and mileage. The more miles you ski, the better a skier you become; the more reps you do, the better your body. I'm a big believer in hard work, grinding it out, and not stopping until it's done, so the challenge appealed to me. ~~Arnold Schwarzenegger
+ - Life shrinks or expands in proportion to one’s courage. ~~Anaïs Nin
+ - All I know is that the first step is to create a vision, because when you see the vision – the beautiful vision – that creates the want power. ~~Arnold Schwarzenegger
+ - Being defeated is often a temporary condition. Giving up is what makes it permanent. ~~Marilyn Vos Savant
+ - The harder you work, the harder it is to surrender. ~~Vince Lombardi
+ - Don't let what you cannot do interfere with what you can do.  ~~John Wooden
+ - Only some people get what they want. Those are the people who show up to get it. ~~Dianne Houston
+ - The only place success comes before work is in the dictionary. ~~Vince Lombardi
+ - The psychological tools I’ve gained from bodybuilding will never atrophy. ~~Tom Platz
+ - The mind is the limit. As long as the mind can envision the fact that you can do something, you can do it, as long as you really believe 100 percent. ~~Arnold Schwarzenegger
+ - What is the point of being on this Earth if you are going to be like everyone else and avoid trouble? ~~Arnold Schwarzenegger
+ - Nothing in this world can take the place of persistence. Talent will not; nothing is more common than unsuccessful people with talent. Genius will not; unrewarded genius is almost a proverb. ~~Calvin Coolidge
+ - You have to remember something: everybody pities the weak; jealousy you have to earn. ~~Arnold Schwarzenegger
+ - Belief triggers the power to do. ~~David J. Schwartz
+ - Strength does not come from physical capacity. It comes from an indomitable will. ~~Mahatma Gandhi
+ - If my mind can conceive it, and my heart can believe it, then I can achieve it. ~~Muhammad Ali
+ - It’s hard to be humble when you’re as great as I am. ~~Muhammad Ali
+ - Hard work beats talent when talent doesn't work hard. ~~Tim Notke
+ - Great souls have wills; feeble ones have only wishes. ~~Chinese proverb
+ - The road to nowhere is paved with excuses. ~~Mark Bell
+ - SORE TODAY, STRONG TOMORROW. ~~Anonymous
+ - You can't be paralyzed by fear of failure or you will never push yourself. You keep pushing because you believe in yourself and in your vision. And you know that it is the right thing to do and success will come. ~~Arnold Schwarzenegger
+ - The fight is won or lost far away from witnesses – behind the lines, in the gym, and out there on the road, long before I dance under those lights. ~~Muhammad Ali
+ - Bodybuilding is an art, your body is the canvas, weights are your brush and nutrition is your paint. We all have the ability to turn a self portrait into a masterpiece. ~~Kai Greene
+ - I challenge myself everyday to be the most positive and enthusiastic person I know. ~~Robert Cheeke
+ - Strong and healthy is the new sexy. ~~Ronda Rousey
+ - Intensity builds immensity. ~~Kevin Levrone
+ - To give anything less than your best is to sacrifice the gift. ~~Steve Prefontaine
+ - I didn't want to just be a body building champion. I wanted to be the best body builder of all time.  ~~Arnold Schwarzenegger
+ - It does not matter how slowly you go as long as you do not stop. ~~Confucius
+ - I am the greatest, I said that even before I knew I was. ~~Muhammad Ali
+ - Courage doesn’t always roar. Sometimes courage is the little voice at the end of the day that says I’ll try again tomorrow. ~~Mary Anne Radmacher
+ - Make the most of yourself, for that is all there is of you. ~~Ralph Waldo Emerson
+ - It is not the critic who counts, not the one who points out how the strong man stumbled or how the doer of deeds might have done them better. The credit belongs to the man who is actually in the arena, whose face is marred with sweat and dust and blood; who strives valiantly; who errs and comes short again and again; who knows the great enthusiasms, the great devotions, and spends himself in a worthy cause; who, if he wins, knows the triumph of high achievement; and who, if he fails, at least fails while daring greatly, so that his place shall never be with those cold and timid souls who know neither victory nor defeat. ~~Theodore Roosevelt
+ - Only the weak attempts to accomplish what he knows he can already achieve. ~~Stella Juarez
+ - The human body experiences a powerful gravitational pull in the direction of hope. ~~Norman Cousins
+ - Stimulate don’t Annihilate. ~~Lee Haney
+
+100 quotes

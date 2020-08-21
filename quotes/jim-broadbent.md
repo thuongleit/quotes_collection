@@ -1,0 +1,28 @@
+ - We seem to have reached the age where life stops giving us things and starts taking them away.
+ - I’m not that comfortable with actors receiving honours, partly because I think they ought to go to those who really help others.
+ - The world would be a duller place without Moulin Rouge.
+ - It’s funny how a film about a murderous old English toff can help you.
+ - I see myself as a small ‘l’ liberal, but not coalition liberal, necessarily.
+ - I think we all have a selfish gene which rises to the top, sometimes. But then we’re also all capable of a sudden magnanimity.
+ - I never was a great Thatcher fan, and it wasn’t a sad day in my life when she resigned.
+ - I like reflecting the culture I understand best, spotting the idiosyncrasies of British people and revealing them to an audience in a way that amuses is what I find fun.
+ - I love a really good storyline.
+ - People smile at me as if they know me. I just smile back. They probably might know me.
+ - In Hollywood films everything is tidied up at the end with clean lines and clean character definitions. It’s sort of unsatisfying.
+ - I like being able to go to the supermarket and go on the Tube and have an ordinary domestic life. I’d hate to have to protect myself. I’m quite lucky that I can carry on without any intrusions. I don’t get given a hard time by anyone.
+ - You can’t be angsty all day or else it becomes a sort of pale angst.
+ - In today’s politics, it would be good to have politicians who are more upfront about what they felt and actually not trying to bend with every breeze. They’re infuriating, all of them.
+ - Oh, I think I’ve been entirely selfish with my career. I’ve done what I wanted to do, and not put myself out for anyone else particularly.
+ - In fact I’d like to go back and live in Shakespeare’s London.
+ - It’s fatal to talk about acting. It sounds faintly ridiculous if you start analysing it.
+ - Sweet Jesus, war does terrible things to people.
+ - Other people have a much better idea of what I might do than I.
+ - I do always like to do things I haven’t done before, so I’m always looking out for things in a different genre, or a different sort of character.
+ - We’ve all got a black book of missed opportunities.
+ - To do a blockbuster that isn’t stressful is a delight.
+ - If you’re playing any real person, live or dead, you certainly have a responsibility to produce that reputation in some way.
+ - I haven’t got a writer’s discipline.
+ - When you research someone, you actually get beyond your own preconceptions and become aware of the human being other than the image. You become empathetic and sympathetic in turn.
+ - A make-up artist I know polished her Oscar and it lost its lustre. But if you don’t polish it, it doesn’t tarnish.
+
+26 quotes

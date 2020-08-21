@@ -1,0 +1,73 @@
+ - I have always been delighted at the prospect of a new day, a fresh try, one more start, with perhaps a bit of magic waiting somewhere behind the morning.
+ - We are members of one body. We are responsible for each other.
+ - We don’t live alone. We are members of one body. We are responsible for each other. And I tell you that the time will soon come when if men will not learn that lesson, then they will be taught it in fire and blood and anguish. Good night.
+ - To love to teach is one thing, to love those you teach is another.
+ - To multiply your joy, count your blessings.
+ - The more we elaborate our means of communication, the less we communicate.
+ - To put failure behind you, face up to it.
+ - A loving wife will do anything for her husband except stop criticizing him and trying to improve him.
+ - To resent and remember brings strife; to forgive and forget brings peace.
+ - A good holiday is one spent among people whose notions of time are vaguer than yours.
+ - To say that these men paid their shillings to watch twenty-two hirelings kick a ball is merely to say that a violin is wood and catgut, that Hamlet is so much paper and ink.
+ - Any fool can be fussy and rid himself of energy all over the place, but a man has to have something in him before he can settle down to do nothing.
+ - There was no respect for youth when I was young, and now that I am old, there is no respect for age, I missed it coming and going.
+ - Write as often as possible, not with the idea at once of getting into print, but as if you were learning an instrument.
+ - Comedy, we may say, is society protecting itself – with a smile.
+ - A novelist who writes nothing for 10 years finds his reputation rising. Because I keep on producing books they say there must be something wrong with this fellow.
+ - Much of writing might be described as mental pregnancy with successive difficult deliveries.
+ - Like its politicians and its wars, society has the teenagers it deserves.
+ - The real lost souls don’t wear their hair long and play guitars. They have crew cuts and trained minds, sign on for research in biological warfare, and don’t give their parents a moment’s worry.
+ - If we openly declare what is wrong with us, what is our deepest need, then perhaps the death and despair will by degrees disappear.
+ - One of the delights known to age, and beyond the grasp of youth, is that of Not Going.
+ - The first fall of snow is not only an event, it is a magical event. You go to bed in one kind of a world and wake up in another quite different, and if this is not enchantment then where is it to be found?
+ - Many a man is praised for his reserve and so-called shyness when he is simply too proud to risk making a fool of himself.
+ - Sometimes you might think the machines we worship make all the chief appointments, promoting the human beings who seem closest to them.
+ - In a matriarchy men should be encouraged to take it easy, for most women prefer live husbands to blocks of shares and seats on the board.
+ - Living in an age of advertisement, we are perpetually disillusioned. The perfect life is spread before us every day, but it changes and withers at a touch.
+ - Public opinion polls are rather like children in a garden, digging things up all the time to see how they’re growing.
+ - We complain and complain, but we have lived and seen the blossom -apple, pear, cherry, plum, almond blossom – in the sun; and the best among us cannot pretend they deserve – or could contrive – anything better.
+ - Marriage is like paying an endless visit in your worst clothes.
+ - We must beware the revenge of the starved senses, the embittered animal in its prison.
+ - I have always been a grumbler. I am designed for the part – sagging face, weighty underlip, rumbling, resonant voice. Money couldn’t buy a better grumbling outfit.
+ - The people who pretend that dying is rather like strolling into the next room always leave me unconvinced. Death, like birth, must be a tremendous event.
+ - We plan, we toil, we suffer – in the hope of what? A camel-load of idol’s eyes? The title deeds of Radio City? The empire of Asia? A trip to the moon? No, no, no, no. Simply to wake just in time to smell coffee and bacon and eggs.
+ - In plain words: now that Britain has told the world that she has the H-Bomb she should announce as early as possible that she has done with it, that she proposes to reject in all circumstances nuclear warfare.
+ - There can be no doubt that smoking nowadays is largely a miserable automatic business. People use tobacco without ever taking an intelligent interest in it. They do not experiment, compare, fit the tobacco to the occasion. A man should always be pleasantly conscious of the fact that he is smoking.
+ - Depending upon shock tactics is easy, whereas writing a good play is difficult. Pubic hair is no substitute for wit.
+ - She was a handsome woman of forty-five and would remain so for many years.
+ - The point is to be good-to be sensitive and sincere.
+ - We cannot get grace from gadgets. In the Bakelite house of the future, the dishes may not break, but the heart can. Even a man with ten shower baths may find life flat, stale and unprofitable.
+ - To make the most of Christmas, focus on Christ.
+ - Britain, which in the years immediately before this war was rapidly losing such democratic virtues as it possessed, is now being bombed and burned into democracy.
+ - To show a child what once delighted you, to find the child’s delight added to your own – this is happiness.
+ - We cannot get grace from gadgets.
+ - A synopsis is a cold thing. You do it with the front of your mind. If you’re going to stay with it, you never get quite the same magic as when you’re going all out.
+ - There are plenty of clever young writers. But there is too much genius, not enough talent.
+ - If there was a little room somewhere in the British Museum that contained only about twenty exhibits and good lighting, easy chairs, and a notice imploring you to smoke, I believe I should become a museum man.
+ - I’m in the business of providing people with secondary satisfactions. It wouldn’t have done me much good if they had all written their own plays, would it?
+ - It is hard to tell where the MCC ends and the Church of England begins.
+ - In spite of recent jazzed-up one-day matches, cricket to be fully appreciated demands leisure, some sunny warm days and an understanding of its finer points.
+ - Childhood, catching our imagination when it is fresh and tender, never lets go of us.
+ - Western man is schizophrenic.
+ - It is good fiction, so largely ignored now, that brings us so much closer to the real facts.
+ - I fancy that the Hell of Too Many People would occupy a respectable place in the hierarchy of infernal regions.
+ - Those no-sooner-have-I-touched-the-pillow people are past my comprehension. There is something bovine about them.
+ - If there is one thing left that I would like to do, it’s to write something really beautiful. And I could do it, you know. I could still do it.
+ - Nearly everything possible had been done to spoil the game: the heavy financial interest; the absurd transfer and player-selling system; the lack of any birth or residential qualifications; the absurd publicity given to every feature of it by the press; the monstrous partisanships of the crowds.
+ - Our trouble is that we drink too much tea. I see in this the slow revenge of the Orient, which has diverted the Yellow River down our throats.
+ - We should like to have some towering geniuses, to reveal us to ourselves in colour and fire, but of course they would have to fit into the pattern of our society and be able to take orders from sound administrative types.
+ - What a grand, higgledy-piggledy, sensible old place Norwich is!
+ - Perhaps it would be better not to be a writer, but if you must, then write.
+ - Man, the creature who knows he must die, who has dreams larger than his destiny, who is forever working a confidence trick on himself, needs an ally. Mine has been tobacco.
+ - Accidents, try to change them – it’s impossible. The accidental reveals man.
+ - I never read the life of any important person without discovering that he knew more and could do more than I could ever hope to know or do in half a dozen lifetimes.
+ - A lot of men who have accepted – or had imposed upon them in boyhood – the old English public school styles of careful modesty in speech, with much understatement, have behind their masks an appalling and impregnable conceit of themselves.
+ - If you are a genius, you’ll make your own rules, but if not – and the odds are against it – go to your desk no matter what your mood, face the icy challenge of the paper – write.
+ - Production goes up and up because high pressure advertising and salesmanship constantly create new needs that must be satisfied: this is Admass- a consumer’s race with donkeys chasing an electric carrot.
+ - Most writers enjoy two periods of happiness when a glorious idea comes to mind and, secondly, when a last page has been written and you haven’t had time to know how much better it ought to be.
+ - The Canadian is often a baffled man because he feels different from his British kindred and his American neighbours, sharply refused to be lumped together with either of them, yet cannot make plain his difference.
+ - In a world shaped and colored more and more by politicians, the nations meet politically, and hardly any other way to settle their differences.
+ - The most lasting reputation I have is for an almost ferocious aggressiveness, when in fact I am amiable, indulgent, affectionate, shy and rather timid at heart.
+ - Our dourest parsons, who followed the nonconformist fashion of long extemporary prayers, always seemed to me to be bent on bullying God.
+
+71 quotes

@@ -1,0 +1,58 @@
+ - Golf is the closest game to the game we call life. You get bad breaks from good shots; you get good breaks from bad shots – but you have to play the ball where it lies.
+ - The main idea in golf as in life, I suppose is to learn to accept what cannot be altered and to keep on doing one’s own reasoned and resolute best whether the prospect be bleak or rosy.
+ - On the golf course, a man may be the dogged victim of inexorable fate, be struck down by an appalling stroke of tragedy, become the hero of unbelievable melodrama, or the clown in a side-splitting comedy.
+ - The best exercise for golfers is golfing.
+ - You might as well praise a man for not robbing a bank as to praise him for playing by the rules.
+ - The secret of golf is to turn three shots into two.
+ - Some people think they are concentrating when they’re merely worrying.
+ - Some emotions cannot be endured with a golf club in your hands.
+ - Fight tautness whenever it occurs; strive for relaxed muscles throughout.
+ - No putt is too short to be despised.
+ - Golf is a game that creates emotions that sometimes cannot be sustained with the club still in one’s hand.
+ - Golf is the only game I know of that actually becomes harder the longer you play it.
+ - You swing your best when you have the fewest things to think about.
+ - Too much ambition is a bad thing to have in a bunker.
+ - I never learned anything from a match that I won.
+ - The toughest opponent of all is Old Man Par. He’s a patient soul who never shoots a birdie and never incurs a bogey. And if you would travel the long road with him, you must be patient, too.
+ - In golf, the customs and etiquette and decorum are as important as the rules of play.
+ - Doesn’t it show us all that we are silly little boys or fatuous asses to think that we can play golf without making a lot of bad shots?
+ - The real way to enjoy playing golf is to take pleasure not in the score, but in the execution of strokes.
+ - Jack Nicklaus is playing an entirely different game, and one which I’m not even familiar with.
+ - I will tell you privately it’s not going to get better, it’s going to get worse all the time, but don’t fret. Remember, we play the ball where it lies, and now let’s not talk about this, ever again.
+ - The ‘enemy’ in golf is tension.
+ - Golf is said to be an humbling game, but it is surprising how many people are either not aware of their weaknesses of else reckless of consequences.
+ - Rhythm and timing are the two things which we all must have, yet no one knows how to teach either.
+ - The difference between a sand trap and water hazard is the difference between a car crash and an airplane crash. You have a chance of recovering from a car crash.
+ - I have never felt so lonely as on a golf course in the midst of a championship with thousands of people around, especially when things began to go wrong and the crowds started wandering away.
+ - In order to win, you must play your best golf when you need it most, and play your sloppy stuff when you can afford it. I shall not attempt to explain how you achieve this happy timing.
+ - I can play the game only one way. I must play every shot for all there is in it. I cannot play safe.
+ - If I needed advice from my caddie, he’d be hitting the shots and I’d be carrying the bag.
+ - Well, I’m glad we don’t have to play in the shade.
+ - Many shots are spoiled at the last instant by efforts to add a few more yards.
+ - The object of golf is to beat someone. Make sure that someone is not yourself.
+ - If ever I needed an eight foot putt, and everything I owned depended on it, I would want Arnold Palmer to putt for me.
+ - A leading difficulty with the average player is that he totally misunderstands what is meant by concentration. He may think he is concentrating hard when he is merely worrying.
+ - As I see it, the thing that hurt my putting most when it was bad, was thinking too much about how I was making the stroke and not enough about getting the ball in the hole.
+ - Golf is recognized as one of the more difficult games to play or teach. One reason for this is that each person necessarily plays by feel, and a feel is almost impossible to describe.
+ - If I had ever been set down in any one place and told I was to play there, and nowhere else, for the rest of my life, I should have chosen the Old Course at St. Andrews.
+ - Nobody ever wins the National Open. Somebody loses it.
+ - The moment the average golfer attempts to play from long grass or a bunker or from a difficult lie of any kind, he becomes a digger instead of a swinger.
+ - It is nevertheless a game of considerable passion, either of the explosive type, or that which burns inwardly and sears the soul.
+ - One reason golf is such an exasperating game is that a thing we learned is so easily forgotten, and we find ourselves struggling year after year with faults we had discovered and corrected time and again.
+ - The rewards of golf, and of life too I expect, are worth very little if you don’t play the game by the etiquette as well as by the rules.
+ - Golf is assuredly a mystifying game. It would seem that if a person has hit a golf ball correctly a thousand times, he should be able to duplicate the performance at will. But such is certainly not the case.
+ - I get as much fun as the next man from whaling the ball as hard as I can and catching it squarely on the button. But from sad experience I learned not to try this in a round that meant anything.
+ - Addressing a golf ball would seem to be a simple matter; that is, to the uninitiated who cannot appreciate that a golf ball can hold more terrors than a spacious auditorium packed with people.
+ - It is nothing new or original to say that golf is played one stroke at a time. But it took me many years to realize it.
+ - Bad putting is due more to the effect the green has upon the player than it has upon the action of the ball.
+ - I had held a notion that I could make a pretty fair appraisal of the worth of an opponent simply by speaking to him on the first tee and taking a good measuring look into his eyes.
+ - Golf is a game that is played on a five-inch course.
+ - I always like to see a person stand up to a golf ball as though he were perfectly at home in its presence.
+ - No one ever swung too slowly.
+ - Nicklaus plays a kind of golf with which I am not familiar.
+ - When I’m a little fatigued, sometimes I baby it. I don’t try to do it. I’m not 100 percent. I probably won’t be the rest of conference play. I just have to play through it. I’ve never really been injured before.
+ - I got an extra hour’s nap.
+ - Golf is like eating peanuts. You can play too much or play too little.
+ - No-one will ever have golf under his thumb. No round ever will be so good it could not have been better. Perhaps this is why golf is the greatest of games. You are not playing a human adversary; you a playing a game. You are playing old man par.
+
+56 quotes

@@ -1,0 +1,79 @@
+ - Marriages are made in heaven and consummated on Earth.
+ - Marriage is destinie, made in heaven.
+ - The broken bone, once set together, is stronger than ever.
+ - For experience teacheth me that straight trees have crooked roots.
+ - Love knoweth no laws.
+ - Nothing so perilous as procrastination.
+ - The bee that hath honey in her mouth hath a sting in her tail.
+ - The true measure of life is not length, but honesty.
+ - As the best wine doth make the sharpest vinegar, so the deepest love turns to the deadliest hate.
+ - The tongue, the ambassador of the heart.
+ - A merry companion is as good as a wagon, For you shall be sure to ride though ye go a foot.
+ - Beauty – a deceitful bait with a deadly hook.
+ - Though women have small force to overcome men by reason; yet have they good fortune to undermine them by policy.
+ - Gentlemen use books as Gentlewomen handle their flowers, who in the morning stick them in their heads, and at night strawe them at their heeles.
+ - It is the disposition of the thought that altered the nature of the thing.
+ - The finest edge is made with the blunt whetstone.
+ - The measure of love is to have no mean, the end to be everlasting.
+ - A heat full of coldness, a sweet full of bitterness, a pain full of pleasantness, which maketh thoughts have eyes and hearts ears, bred by desire, nursed by delight, weaned by jealousy, kill’d by dissembling, buried by ingratitude, and this is love.
+ - Far more seemly to have thy study full of books, than thy purse full of money.
+ - All fish are not caught with flies.
+ - It is a blind goose that cometh to the fox’s sermon.
+ - Many strokes overthrow the tallest oaks.
+ - Where the streame runneth smoothest, the water is deepest.
+ - Time draweth wrinkles in a fair face, but addeth fresh colors to a fast friend, which neither heat, nor cold, nor misery, nor place, nor destiny, can alter or diminish.
+ - The soft droppes of rain perce the hard marble.
+ - To love women and never enjoy them, is as much to love wine and never taste it.
+ - Be valyaunt, but not too venturous. Let thy attyre bee comely, but not costly.
+ - The sun shineth upon the dunghill, and is not corrupted.
+ - Where the mind is past hope, the heart is past shame.
+ - In arguing of the shadow, we forgo the substance.
+ - A Rose is sweeter in the budde than full blowne.
+ - The night has a thousand eyes.
+ - If thy wealth waste, they wit will give but small warmth.
+ - The greatest harm that you can do unto the envious, is to do well.
+ - The empty vessel giveth a greater sound than the full barrel.
+ - An Englishman hath three qualities, he can suffer no partner in his love, no stranger to be his friend, nor to be dared by any.
+ - Where the countenance is fair, there need no colors.
+ - A bargain is a bargain.
+ - Rather fast then surfette, rather starue then striue to exceede.
+ - Whatsoever is in the heart of the sober man, is in the mouth of the drunkard.
+ - It is good walking when one hath his horse in hand.
+ - Thou art an heyre to fayre lying, that is nothing, if thou be disinherited of learning, for better were it to thee to inherite righteousnesse then riches, and far more seemly were if for thee to haue thy Studie full of bookes, then thy pursse full of mony.
+ - Long quaffing maketh a short lyfe.
+ - Lips are no part of the head, only made for a double-leaf door for the mouth.
+ - I thank you for nothing, because I understand nothing.
+ - Lette me stande to the maine chance.
+ - The wound that bleedeth inward is most dangerous.
+ - A new broome sweepeth cleane.
+ - I am of this mind, that might and malice, deceit and treachery perjury and impiety may lawfully be committed in love; which is lawless.
+ - Fish and guests in three days are stale.
+ - The rattling thunderbolt hath but his clap, the lightning but his flash, and as they both come in a moment, so do they both end in a minute.
+ - The fallyng out of faithfull frends is the renuyng of loue.
+ - I have ever thought so superstitiously of wit, that I fear I have committed idolatry against wisdom.
+ - To give reason for fancy were to weigh the fire, and measure the wind.
+ - Thou shalt come out of a warme Sunne into God’s blessing.
+ - To love and to live well is wished of many, but incident to few.
+ - Do you think that any one can move the heart but He that made it?
+ - Instruments sound sweetest when they are touched softest.
+ - If love be a god, why should not lovers be virtuous?
+ - In misery it is great comfort to have a companion.
+ - Whilst that the childe is young, let him be instructed in vertue and lytterature.
+ - He that loseth his honesty hath nothing else to lose.
+ - A clere conscience is a sure carde.
+ - It is the eye of the master that fatteth the horse, and the love of the woman that maketh the man.
+ - If you will be cherished when you are old, be courteous while you be young.
+ - He that comes in print because he would be known, is like the fool that comes into the market because he would be seen.
+ - Maydens, be they never so foolyshe, yet beeing fayre they are commonly fortunate.
+ - As love knoweth no lawes, so it regardeth no conditions.
+ - A comely olde man as busie as a bee.
+ - As lyke as one pease is to another.
+ - The greater the kindred is, the lesse the kindnesse must bee.
+ - Things of greatest profit are set forth with least price. Where the wine is neat there needeth no live blush.
+ - There can no great smoke arise, but there must be some fire.
+ - Children and fooles speake true.
+ - The slothful are always ready to engage in idle talk of what will be done tomorrow, and every day after.
+ - When adversities flow, then love ebbs; but friendship standeth stiffly in storms.
+ - It is a world to see.
+
+77 quotes

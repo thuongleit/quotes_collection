@@ -1,0 +1,97 @@
+ - Find the thing that stirs your heart and make room for it.
+ - Life is the ability to start over again.
+ - Life is not meant to be a burden. Life is not a problem to be solved. It is a blessing to be celebrated.
+ - It’s the beauty within us that makes it possible for us to recognize the beauty around us.
+ - Darkness deserves gratitude. It is the alleluia point at which we learn to understand that all growth does not take place in the sunlight.
+ - Hospitality is simply love on the loose.
+ - Hope is not a matter of waiting for things outside of us to get better. It is about getting better inside about what is going on outside.
+ - Fear is not the opposite of courage. Fear is the catalyst of courage.
+ - Imagine how happy, how holy, life would be if we ever really learn to see beauty.
+ - Benedictine spirituality is a consistent one: live life normally, live life thouhtfully, live life profouncly, live life well. Never neglect and never exaggerate. It is a lesson that a world full of cults and fads and workaholics and short courses in difficult subjects needs dearly to learn.
+ - Hospitality is the key to new ideas, new friends, new possibilities. What we take into our lives changes us. Without new people and new ideas, we are imprisoned inside ourselves.
+ - There is no amount of darkness that can extinguish the inner light. The important thing is not to spend our lives trying to control the environment around us. The task is to control the environment within us.
+ - Superficial people are those who simply go along without a question in the world-asking nothing, troubled by nothing, examining nothing. Whatever people around them do, they do, too. That’s a sad and plastic life-routine and comfortable, maybe, but still sad.
+ - Anger is not bad. Anger can be a very positive thing, the thing that moves us beyond the acceptance of evil.
+ - The Christmas season is a gift in itself. It releases us from the priorities of ordinary time and gives us the right to party more and pray more and love more.
+ - The secret of life is to let every segment of it produce its own yield at its own pace. Every period has something new to teach us. The harvest of youth is achievement; the harvest of middle-age is perspective; the harvest of age is wisdom; the harvest of life is serenity.
+ - Prophets are those who take life as it is and expand it. They refuse to shrink a vision of tomorrow to the boundaries of yesterday.
+ - To be a presence of perpetual thanksgiving may be the ultimate goal of life. The thankful person is the one for whom life is simply one long exercise in the sacred.
+ - Everything we do seeds the future. No action is an empty one.
+ - Failure is the foundation of truth. It teaches us what isn’t true, and that is a great beginning. To fear failure is to fear the possibility of truth.
+ - When I know and accept myself-all my strengths and all my limitations- I am immediately respectful of everyone else because I know they have something beautiful within them that I do not have.
+ - We must now surrender to the obligation to understand and to care. We must surrender ourselves to becoming conscious, thinking members of the human race. We must put down the temptation to powerlessness and surrender to the questions of the moment.
+ - We are living in a period of commerical globalization. What we really need is spiritual globalization.
+ - Beware the religion that turns you against another one. It’s unlikely that it’s really religion at all.
+ - Hope is what sits by the window and waits for one more dawn, despite the fact that there isn’t an ounce of proof in tonight’s black, black sky that it can possible come.
+ - Our role in life is to bring the light of our own souls to the dim places around us.
+ - Beauty scatters the seeds of hope in us.
+ - Compassion is not sympathy. Compassion is mercy. It is a commitment to take responsibility for the suffering of others.
+ - In our dreams lies our unfinished work for the world.
+ - I begin to understand as never before that holiness is made of dailiness, of living life as it comes to me, not as I insist it be.
+ - The kind of “blind obedience” once theologized as the ultimate step to holiness, is itself blind. It blinds a person to the insights and foresight and moral perspective of anyone other than an authority figure.
+ - It is a pathetic moment in the history of the human condition when the outside world tells us who and what we are – and we start to believe it ourselves. Then, bent over from the weight of the negativity, we start to wither on the outside...
+ - The purpose of leadership is not to make the present bearable. The purpose of leadership is to make the future possible.
+ - Too many times we insist on loving people the way we want to love them instead of the way they need to be loved.
+ - When souls really touch, it is forever. Then space and time disappear, and all that remains is the consciousness that we are not alone in life.
+ - The moment a woman comes home to herself, the moment she knows that she has become a person of influence, an artist of her life, a sculptor of her universe, a person with rights and responsibilities who is respected and recognized, the resurrection of the world begins.
+ - Life always comes out of death. The present rises from the ashes of the past. The future is always possible for those who are willing to re-create it.
+ - Compassion makes no distinction between friends and enemies, neighbors and outsiders, compatriots and foreigners. Compassion is the gate to human community.
+ - Two ideas militate against our consciously contributing to a better world. The idea that we can do everything or the conclusion that we can do nothing to make this globe a better place to live are both temptations of the most insidious form. One leads to arrogance; the other to despair.
+ - Compassion for the other comes out of our ability to accept ourselves. Until we realize both our own weaknesses and our own privileges, we can never tolerate lack of status and depth of weakness in the other.
+ - A life of value is not a series of great things well done; it is a series of small things consciously done.
+ - To be enlightened is to know that heaven is not “coming.” Heaven is here.
+ - We need a much broader conversation on what the morality of pro-life is.
+ - Life is a series of lessons, some of them obvious, some of them not. We learn as we go that dreams end, that plans get changed, that promises get broken, that our idols disappoint us.
+ - If anything diminishes a person, it is the cancer of constant complaining.
+ - We are each called to go through life reclaiming the planet an inch at a time until the Garden of Eden grows green again.
+ - Compassion is the ability to understand how difficult it is for people to be the best of what they want to be at all times.
+ - We don’t change as we get older – we just get to be more of what we’ve always been.
+ - We punish the body and strip the earth. And we do it in pursuit of a so-called holiness that smacks of the bogus, that denies the gifts of God, that makes us marauders on the earth.
+ - In scripture God brings the animals to the human for naming. In that simple act the human is brought to recognize the particular personality and worth of each living creature. Too bad we forget so often.
+ - Never confuse desire with vision. Desire has to do with what we want. Vision has to do with what we need.
+ - Goodness is a process of becoming, not of being. What we do over and over again is what we become in the end.
+ - A bifurcation of loyalties that requires religious to put canon law above civil law and moral law puts us in a situation where the keepers of religion may themselves become one of the greatest dangers to the credibility – and the morality – of the church itself.
+ - Sometimes we exclude things in ourselves in order to be like everybody else around us-our ethnicity, our social backgrounds, our ideas. What kind of world is it that will not allow me to be myself, and is it really good for me to be there? What part of me will die a slow death if I stay?
+ - It is in community that we come to see God in the other. It is in community that we see our own emptiness filled up. It is community that calls me beyond the pinched horizons of my own life, my own country, my own race, and gives me the gifts I do not have within me.
+ - Try saying this silently to everyone and everything you see for thirty days and see what happens to your own soul: I wish you happiness now and whatever will bring happiness to you in the future.
+ - Awareness of the sacred in life is what holds our world together, and the lack of awareness of the sacred is what is tearing it apart.
+ - The question is not, do we go to church; the question is, have we been converted. The crux of Christianity is not whether or not we give donations to popular charities but whether or not we are really committed to the poor.
+ - The vision of a culture lies in what becomes its major institutions, in what it remembers as its most impacting events, in who it sees as its heroes.
+ - Living well has something to do with the spirituality of wholeheartedness, of seeing life more as a grace than as a penance, as time to be lived with eager expectation of its goodness, not in dread of its challenges.
+ - An authentic spirituality does not cater to culture; it calls culture to accountability.
+ - There is a built-in danger in old age which, if we give in to it, makes aging one of the most difficult periods of life, rather than one of the most satisfying – which it should be. Tye danger of old age is that we may start acting old.
+ - My limitations make space for the gifts of other people. Without the grace of our limitations we would be isolated, dry, and insufferable creatures indeed.
+ - To insist on living until we die may be one of life’s greatest virtues.
+ - To be contemplative we must remove the clutter from our lives, surround ourselves with beauty, and consciously, relentlessly, persistently, give clutter away until the tiny world for which we ourselves are responsible begins to reflect the raw beauty that is God.
+ - Only ideas keep ideas flowing. When we close our minds to what is new, simply because we decide not to bother with it, we close our minds to our responsibility to ourselves – and to others – to keep on growing.
+ - Real failure comes when we consider ourselves good enough at something to be able to repeat it rather than to develop it. “Success is dangerous,” the painter Pablo Picasso said. “One begins to copy oneself, and to copy oneself is more dangerous than to copy others. It leads to sterility.”
+ - Old age tells us that we ourselves have failed often, have never really done anything completely right, have never truly been perfect – anad that is completely all right. We are who we are – and so is everyone else.
+ - The spiritual response is too often a simplistic one: we abandon God or we blame God for abandoning us.
+ - Religion is pointing toward the moon.
+ - There is always new life trying to emerge in each of us. Too often we ignore the signs of resurrection and cling to part of life that have died for us.
+ - Persistence may not solve everything – at least in our lifetime – but it is truer to the meaning of life for us to wait for another plowing, another seeding, another harvest, then not.
+ - Prophets are so dangerous because they cry in season and out of season, politely and impolitely, loud and long.
+ - Every dimension of life, its gains and its losses, are reason for celebration because each of them brings us closer to wisdom and fullness of understanding.
+ - We talk religion in a world that worships the bread but does not distribute it, that practices ritual rather than righteousness, that confesses but does not repent.
+ - The message we have internalized is clear – we are what we do and what we own, not what we are inside ourselves. Where it counts!
+ - June is the time for being in the world in new ways, for throwing off the cold and dark spots of life.
+ - To be contemplative we must become converted to the consciousness that makes us one with the universe, in tune with the cosmic voice of God.
+ - Indifference is the acid of life. It erodes all the spirit that’s in us and makes us useless to anyone else. We all have to stand for something, or our souls cease to breathe.
+ - Assuming that tomorrow will be the same as today is poor preparation for living. It equips us only for disappointment or, more likely, for shock. To live well, to be mentally healthy, we must learn to realize that life is a work in process.
+ - Longing is a compass that guides us through life. We may never get what we really want, that’s true, but every step along the way will be determined by it.
+ - Beware of your definition of success: If it has more to do with what other people think of you than it does with what you know of your own abilities, you may be confusing applause with achievement.
+ - Learning to celebrate joy is one of the great practices of the spiritual life.
+ - Precisely because of the greatness of God, we don’t have to be great at all. Just in awe.
+ - But we are here to depart from this world as finished as we can possibly become.
+ - We have learned that the things we amassed to prove to ourselves how valuable, how important, how successful we were, didn’t prove it at all. In fact, they have very little to do with it. It’s what’s inside of us, not what’s outside of us that counts.
+ - Getting to know ourselves and learning to control ourselves are the two great tasks of life. Don’t make up strange and exotic ‘penances.’ Simply say no to yourself once a day, and you will be on the road to sanctity for the rest of your life.
+ - A hard heart makes for hard judgments; a compassionate heart understands the humanity of the one we presume to judge.
+ - If life is really for the living, then the trick to living well is to learn to live it fully, to soak it up, to revel in it.
+ - Hope grows in us, despite our moments of darkness, regardless of our regular bouts of depression.
+ - All of us wrestle with the angels of our inabilities all the time. We live in fear that our incapacities will be exposed. We posture and evaluate and assess and criticize mercilessly.
+ - It is not our job to work miracles, but it is our task to try.
+ - Work is not slavery, then. Work is creativity. It is the expression of ourselves that no one else can duplicate.
+ - Temptations are part of life, part of growing up. We grapple with them often – in some instances for our lifetime – before we come to realize that it is not so much the victory as it is the struggle that is holy.
+ - No one finds time for prayer. You either take time for it or you don’t get it.
+
+95 quotes

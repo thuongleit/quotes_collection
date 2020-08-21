@@ -1,0 +1,37 @@
+ - A joke a day keeps the gloom away!
+ - In the future, all robots will act like Don Knotts.
+ - Bugsy Siegel. The mobster with the beautiful blue eyes.
+ - Sometimes, I wonder what I’m doing here.
+ - It’s a new town. The old elegance is gone. It used to be one big family, this industry.
+ - If my father’s business hadn’t gone broke, I’d be exporting nuts, bolts and sugar machinery right now. What an awful thought!
+ - I thought it was very humanitarian of Sean Penn and Madonna to marry each other. That way, they make only two people miserable instead of four.
+ - If you can believe it, Hollywood wanted to change my birthdate. I was born after Valentine’s Day, so they wanted to change it to February 14. A Latin lover should be born on Valentine’s Day. I said no.
+ - It’s the maritime equivalent of rock climbing.
+ - They would glue the wig to the front of my forehead, and after a while it would give me a headache.
+ - I should only have been as lucky as Valentino, in the movies – I didnt have to be a gigolo. In real life.
+ - Everybody in Hollywood was in Around the World in 80 Days. If you weren’t, you left town and made up an excuse.
+ - I was born in the USA, which many people still find hard to believe.
+ - All kinds of celebrities, political ones as well, are increasingly being targeted. In this country, with all the countless guns.
+ - They say the camera never lies. It lies every day.
+ - I was supposed to be a romancer, either wooing the leading lady or competing with the leading man for her.
+ - People would read all kinds of reaction into it, but Tracy told me himself that half the time he was just standing very still, trying to look sober and composed. That takes nothing away from him. The fact he got away with it was a tribute to his talent.
+ - We Latins make splendid lovers and splendid older men.
+ - That is perceptive of you, because in this country men dancers have always been viewed with suspicion. If you were an actor, a star, and a dancer, you had to be, or have a name like someone mainstream.
+ - The Thin Man was a good break, because it was highly popular. I played a gigolo in it.
+ - George Raft may or may not have gone both ways, but he was very sensitive to what they said about him, and it was one factor why he decided to play all those gangsters in the movies.
+ - Well, you know what they say in Hollywood – the most important thing is being sincere, even if you have to fake it.
+ - I know Raft did have some genuine affairs with actresses.
+ - But by the time I was 40, everything was winding down. It started after the war. On the plus side, there was more more products and technology. But for me the nightlife was winding down, the glamour, the fun.
+ - I had to keep from laughing when a male relative of mine became concerned about how often I danced.
+ - I was wearing corn plasters above and below my toes and taping my ankles twice.
+ - I was out dancing with one actress or another. And that got press. Even when it didn’t, the whole town knew I was a dancing fool, and since I couldn’t very well dance with a man, they saw me dancing with a lady, and they assumed the rest.
+ - The make up took about an hour to put on, but the wig was a thing that bothered me more than anything else.
+ - Because of my age and because there’s more work on the small screen. What it’s missing in quality it makes up for in quantity. From an actor’s selfish point of view.
+ - I’m satisfied to go in at the bottom – that’s the best way to learn what things are all about.
+ - Due to a big bust in Cuba, my father’s business suffered badly, so I was free to choose my own career. I became a professional dancer, and I went on the road and started making real money.
+ - I can’t date women my own age any more – I hate going to cemeteries.
+ - I’m 86 and my doctor used to tell me to slow down – at least he did until he dropped dead.
+ - When someone’s acting for a scene, they can fool the camera. But in everyday life, unless you’re watching and censoring yourself every minute, or spending all your time in the company of ladies, what you feel is bound to show in your eyes.
+ - I should remember more, and I have a pretty good memory.
+
+35 quotes

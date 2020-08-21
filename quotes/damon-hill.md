@@ -1,0 +1,26 @@
+ - Winning is everything. The only ones who remember you when you come second are your wife and your dog.
+ - I am not allowing myself to get carried away.
+ - If I am pushed I will push back, that is the way I am. I am very British. We don’t like to be pushed around. When the chips are down we might have to step into grey areas.
+ - If I am treated fairly, I like to do things in a fair manner. That is the way I have been all my career. I haven’t tried to do things in an underhanded way.
+ - Last year was a lifetime, a whole career in one season. We went from being the dregs to winners.
+ - To be honest, I think for part of my late teens my character didn’t really develop very much. I was in a state of cold storage.
+ - Winter testing is essential but there comes a point where you have had enough of all the rehearsals and the pretend racing. You just want to get down to the real action.
+ - People ask me to describe myself, but it’s a very personal thing. You don’t feel comfortable.
+ - I try to keep myself on an even keel by trying to be as critical of myself as I am of other people. I try to separate my performance from myself.
+ - The British tend to shy away from the spotlight. We don’t like being singled out in any way, and I think that is something which is important for me to learn to do.
+ - I am a brush, the car is my track and the artist my canvas.
+ - There are a lot of factors in the life of an F1 driver which can combine to make you believe that you are somehow above normality. I think that is a mistake to start believing that. But, at the same time, it is important to be confident.
+ - I had a lot of time to think, and that is not good for your mind. And when it actually happened, it was not so much a celebration but the relief. It was an exorcism anxiety. After each race there is a procedure in which you get taken off to the podium and the TV interviews.
+ - The problem comes when you say that danger is part of the equation. Then you don’t do any more work on safety. That shouldn’t happen.
+ - Realistically, we could aim for the top three in the constructors championship. Realistically, we could look at winning more races. Three race wins would be very satisfying.
+ - It was five years since I’d won a race, so I was a bit bewildered.
+ - Because it is my second season with the team, no time has been wasted in getting to know the people I’m working with. I am aware of what the team is capable of and how the organisation works, and they are familiar with what makes me tick.
+ - I have always liked a challenge.
+ - I am surprised people took so long to pick up on the fact that my contract expires at the end of this year. Eddie has to decide who he wants to drive, so there is no secret anywhere. I am not concerned. It does not sit with my objectives to be competitive.
+ - If someone is being absolutely critical of me as a driver, what could they say? I am also critical of myself to try and keep things in perspective. That is very important.
+ - Some books claim I have already clocked up a century of Grands Prix, but let me put the record straight. Australia will be my 100th start, and I aim to mark the milestone with a cracking performance. It could even be celebrated with a victory.
+ - The sport would not survive today if drivers were being killed at the rate they were in the 1960s and ’70s. It would have been taken off the air. It is beamed into people’s living rooms on Sunday afternoons, with children watching.
+ - I am very much aware that if I am getting good press at the moment I could just as easily be getting bad press. I cannot have the good and forget the bad. You have to accept it both ways.
+ - You should never feel comfortable. There is something wrong if you are. You should always feel under threat, on the edge of your seat and pushing yourself. Win one and you want to win more. It’s never-ending.
+
+24 quotes

@@ -1,0 +1,21 @@
+ - Ideas are easy. Execution is everything. It takes a team to win.
+ - Act now. Act with speed.
+ - No conflict, no interest.
+ - Your biggest challenge will be building a great team.
+ - Entrepreneurs do more than anyone thinks possible, with less than anyone thinks possible.
+ - The next wave of the Web is going to be user-generated content.
+ - People are looking to have more meaning in their lives. It is a sign the technology community is coming of age.
+ - How do you create jobs? Our companies have generated about 350,000 jobs and that’s good.
+ - It is quite clear that compelling content, which is made available on economic terms that respect the intellectual rights of owners, can be a tremendous spur to the growth of broadband networks.
+ - There’s never been a better time than now to start or accelerate a greentech venture.
+ - Change the way we teach; Empower teachers.
+ - If you can’t invent the future, the next best thing is to fund it.
+ - If the reason you’re taking on a mission is for the money you’ll make, I believe you’ll fail.
+ - It’s actually not unlike Google at that stage of development. They had an up-and-running site. It wasn’t losing very much money, it wasn’t making very much money, but it was growing.
+ - Well, there are more writers of blogs right now than there are readers, so that’s clearly a vanity phenomenon.
+ - Green-tech could be the largest economic opportunity of the 21st Century.
+ - There’s this large trend – I think the next trend in the Web, sort of Web 2.0 – which is to have users really express, offer, and market their own content, their own persona, their identity.
+ - You have to have great design to be competitive in today’s markets.
+ - We all know about blogs and how big they are.
+
+19 quotes

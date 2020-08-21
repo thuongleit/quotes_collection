@@ -1,0 +1,42 @@
+ - Knowledge is knowing a tomato is a fruit; wisdom is not putting it in a fruit salad. ~~Miles Kington
+ - Two things are infinite, the universe and human stupidity, and I am not yet completely sure about the universe. ~~Albert Einstein
+ - Confidence is 10 percent hard work and 90 percent delusion. ~~Tina Fey
+ - When we talk to God, we’re praying. When God talks to us, we’re schizophrenic. ~~Jane Wagner
+ - Those people who think they know everything are a great annoyance to those of us who do. ~~Isaac Asimov
+ - I couldn’t repair your brakes, so I made your horn louder. ~~Steven Wright
+ - There are two theories to arguing with a woman. Neither works. ~~Will Rogers
+ - A bank is a place that will lend you money if you can prove that you don’t need it. ~~Bob Hope
+ - Women who seek to be equal with men lack ambition. ~~Timothy Leary
+ - Never argue with stupid people, they will drag you down to their level and then beat you with experience. ~~Mark Twain
+ - If you even dream of beating me you’d better wake up and apologize. ~~Muhammad Ali
+ - Some cause happiness wherever they go; others whenever they go. ~~Oscar Wilde
+ - On the other hand, you have different fingers. ~~Steven Wright
+ - The odds of going to the store for a loaf of bread and coming out with only a loaf of bread are three billion to one. ~~Erma Bombeck
+ - I intend to live forever. So far, so good. ~~Steven Wright
+ - I see myself as an intelligent, sensitive human, with the soul of a clown which forces me to blow it at the most important moments. ~~Jim Morrison
+ - I always arrive late at the office, but I make up for it by leaving early. ~~Charles Lamb
+ - The trouble with practical jokes is that very often they get elected. ~~Will Rogers
+ - I only go out to get me a fresh appetite for being alone. ~~Lord Byron
+ - A woman without a man is like a fish without a bicycle. ~~Gloria Steinem
+ - Do we have to know who’s gay and who’s straight? Can’t we just love everybody and judge them by the car they drive? ~~Ellen DeGeneres
+ - First the doctor told me the good news: I was going to have a disease named after me. ~~Steve Martin
+ - We spend the first twelve months of our children's lives teaching them to walk and talk and the next twelve telling them to sit down and shut up. ~~Phyllis Diller
+ - If you ask me anything I don’t know, I’m not going to answer. ~~Yogi Berra
+ - I have never been jealous. Not even when my dad finished fifth grade a year before I did. ~~Jeff Foxworthy
+ - I’m a godmother, that’s a great thing to be, a godmother. She calls me god for short, that’s cute, I taught her that. ~~Ellen DeGeneres
+ - When I die, I want to die like my grandfather who died peacefully in his sleep. Not screaming like all the passengers in his car. ~~Will Rogers
+ - When you go into court you are putting your fate into the hands of twelve people who weren’t smart enough to get out of jury duty. ~~Norm Crosby
+ - Friendship is like peeing on yourself: everyone can see it, but only you get the warm feeling that it brings. ~~Robert Bloch
+ - People always ask me, ‘Were you funny as a child?’ Well, no, I was an accountant. ~~Ellen DeGeneres
+ - Most women set out to try to change a man, and when they have changed him they do not like him. ~~Marlene Dietrich
+ - My doctor gave me six months to live, but when I couldn’t pay the bill he gave me six months more. ~~Walter Matthau
+ - By faithfully working eight hours a day you may eventually get to be boss and work twelve hours a day. ~~Robert Frost
+ - The ships hung in the sky in much the same way that bricks don’t. ~~Douglas Adams
+ - I never avoid something that challenges my guts and my heart. While I might occasionally puke my guts out, I have never puked my heart out. ~~Michael Scott
+ - The prettiest dresses are worn to be taken off. ~~Jean Cocteau
+ - That woman speaks eighteen languages, and can’t say ‘No’ in any of them. ~~Dorothy Parker
+ - There are only three things women need in life: food, water, and compliments. ~~Chris Rock
+ - People say women shouldn’t have long hair over a certain age, but I’ve never done what everyone says. ~~Jane Seymour
+ - If evolution really works, how come mothers only have two hands? ~~Milton Berle
+
+40 quotes

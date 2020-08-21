@@ -1,0 +1,41 @@
+ - Great books conserve time.
+ - Your library is your portrait.
+ - Love is the most subtle form of self-interest.
+ - Books worth reading are worth re-reading.
+ - A large, still book is a piece of quietness, succulent and nourishing in a noisy world, which I approach and imbibe with “a sort of greedy enjoyment,” as Marcel Proust said of those rooms of his old home whose air was “saturated with the bouquet of silence.”
+ - Education begins by teaching children to read and ends by making most of them hate reading.
+ - When in doubt, risk it.
+ - Happiness is a form of courage.
+ - The great revolution of the future will be Nature’s revolt against man.
+ - Genius is initiative on fire.
+ - Fear of corrupting the mind of the younger generation is the loftiest form of cowardice.
+ - Be contented, when you have got all you want.
+ - Intuition is reason in a hurry.
+ - No man is ever old enough to know better.
+ - Pedantry is the dotage of knowledge.
+ - Originality is only variation.
+ - Book-love, I say again, lasts throughout life, it never flags or fails, but, like Beauty itself, is a joy forever.
+ - Only one-fourth of the sorrow in each man’s life is caused by outside uncontrollable elements, the rest is self-imposed by failing to analyze and act with calmness.
+ - The newest books are those that never grow old.
+ - History proves there is no better advertisement for a book than to condemn it for obscenity.
+ - We are more inclined to regret our virtues than our vices; but only the very honest will admit this.
+ - Past and present, it is all the same, books are necromancers, they exercise an influence more varied, more lasting, than any magic known to man.
+ - The end of reading is not more books but more life.
+ - Man is a dog’s idea of what God should be.
+ - The time to read is any time: no apparatus, no appointment of time and place, is necessary. It is the only art which can be practiced at any hour of the day or night, whenever the time and inclination comes, that is your time for reading; in joy or sorrow, health or illness.
+ - Don’t try to convert the elderly person; circumvent him.
+ - Suffer fools gladly; they may be right.
+ - A good book is always on tap; it may be decanted and drunk a hundred times, and it is still there for further imbibement.
+ - As soon as an idea is accepted it is time to reject it.
+ - Why did Nature create man? Was it to show that she is big enough to make mistakes, or was it pure ignorance?
+ - The possession of a great many things, even the best of things, tends to blind one to the real value of anything.
+ - Forgive everybody but yourself.
+ - Those who seek happiness miss it, and those who discuss it, lack it.
+ - The time to read is any time: no apparatus, no appointment of time and place, is necessary.
+ - People who want to be amused have lost the art of living.
+ - Beware of your habits. The better they are the more surely they will be your undoing.
+ - The better the book the more room for the reader.
+ - There are only two classes in society: those who get more than they earn, and those who earn more than they get.
+ - The poor are the only consistent altruists; they sell all they have and give it to the rich.
+
+39 quotes

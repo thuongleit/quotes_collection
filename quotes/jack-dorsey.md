@@ -1,0 +1,53 @@
+ - Make every detail perfect and limit the number of details to perfect.
+ - Success is never accidental.
+ - Everyone has an idea, but it’s really about executing the idea and attracting other people to help you with the idea.
+ - Pick a movement, pick a revolution and join it.
+ - Short term satisfaction will never lead to something timeless.
+ - The greatest lesson that I learned in all of this is that you have to start. Start now, start here, and start small. Keep it Simple.
+ - It’s really complex to make something simple.
+ - Don’t avoid eye contact and don’t be late.
+ - Build what you want to see in the world.
+ - You don’t have to start from scratch to do something interesting. You don’t have to start from scratch to have a massive impact on the world. You have to have a good idea. You have to convince other people of those good ideas. And you have to push as quickly as possible.
+ - I love cities, and I love city governments in particular. But in politics it would have taken me 8 years from implementing a policy before I would get to see the feedback. With programming I could model the same policies and see the impact immediately. Technology is a far more efficient way to test.
+ - My goal is to simplify complexity.
+ - From a product standpoint, we want every touch point to feel magical. It inspires trust.
+ - An idea that can change the course of the company can come from anywhere.
+ - It’s empowering to be asked to look at what’s possible, not told how to do it.
+ - My goal is to simplify complexity. I just want to build stuff that really simplifies our base human interaction.
+ - The idea of Twitter started with me working in dispatch since I was 15 years old, where taxi cabs or firetrucks would broadcast where they were and what they were doing.
+ - I was fascinated with jeans, because you can impress your life upon the jeans you wear. The way you sit imprints on the jeans.
+ - Starting anything is a roller coaster with the highest highs and lowest lows.
+ - Twitter was around communication and visualizing what was happening in the world in real-time. Square was allowing everyone to accept the form of payment people have in their pocket today, which is a credit card.
+ - The strongest thing you can cultivate as an entrepreneur is to not rely on luck but cultivating an ability to recognize fortunate situations when they are occurring.
+ - Great companies don’t just have one founding moment. They have many founding moments.
+ - Life happens at intersections.
+ - Making something simple is very difficult.
+ - My mom cares that I tweeted a picture of my breakfast. She’s knows I’m eating and I’m safe.
+ - TweetDeck is a very interesting client, because it presents a view that no other client in the world presents, which is this multicolumn, massive amounts of information in one pane. And people really, really enjoy that.
+ - I spend 90% of my time with people who don’t report to me, which also allows for serendipity, since I’m walking around the office all the time. You don’t have to schedule serendipity. It just happens.
+ - I fell in love with flora of all types, especially ferns. Loved the sparse structure and repetition of shape – almost fractal.
+ - As CEO, my main job is editor-in-chief.
+ - The interesting products out on the Internet today are not building new technologies. They’re combining technologies. Instagram, for instance: Photos plus geolocation plus filters. Foursquare: restaurant reviews plus check-ins plus geo.
+ - Technology to me does two things: it increases the velocity of communication and increases the number of people who can participate. That’s it. That’s really all technology for our entire history has ever done.
+ - Twitter is the world.
+ - You don’t have to start from scratch to have a massive impact on the world.
+ - A number of people in the United States, almost everyone, is using plastic cards to pay for things, but it’s extremely difficult to accept these cards. So let’s make it’s easy and take more and more of the friction out as we can.
+ - Anything you’re interested in the world – whether it be Charlie Rose or JetBlue or a public figure or your local coffee shop – they’re on Twitter and broadcasting what is interesting to them.
+ - I’m less interested in how people are following each other and more interested in how they are following topics and tweets themselves. People are following more key words and concepts and more ideas and acting on those rather than individuals or organizations.
+ - I think Twitter is best when it sparks conversations elsewhere. To use YouTube and Facebook and all the tools we have available to us today to respond and also promote and answer and engage is awesome.
+ - There’s an entire universe in every single tweet, and it all really depends on the content as far as how it’s going to spread.
+ - Revolution looks at the intersection ahead and pushes people to do the right thing.
+ - Twitter has been my life’s work in many senses. It started with a fascination with cities and how they work, and what’s going on in them right now.
+ - We get to design what we want to see in the world rather than doing what other people think should be done.
+ - Constraints inspire us in how we approach the press, how we approach business relationships, how we do everything.
+ - I think Twitter is the future of communications and Square will be the payment network.
+ - What’s interesting about Twitter and the influencers that someone follows – like, say, Shaquille O’Neal – is that they see someone who is using the exact same tools that they have access to, and I think that inspires this hope to be able to really engage with someone like him.
+ - Amazing what people make up based on what they choose to see.
+ - I am someone who tweets about what I have for breakfast, what I have for lunch, what I have for dinner, and for 99.99999 percent of the world, it’s useless. It’s meaningless. But for my mother, she loves it.
+ - IM is interesting because you look at your buddy list and, at a glance, see what your friends are listening to, what they’re working on, what they’re doing. The problem was that you were bound to the computer keyboard.
+ - I said a long time ago that Foursquare can make cities better. You have these augmented realities like Foursquare and Twitter and Facebook that provide these virtual nodes and instant feedback from anywhere, adding annotation around a physical places.
+ - Your job as an executive is to edit, not write. It’s OK to write once in a while but if you do it often there’s a fundamental problem with the team. Every time you do something ask if you’re writing or editing and get in the mode of editing.
+ - What I love about New York is just the electricity I feel right away.
+ - The Web provides a very easy way to immediately grasp what’s going on. It really offers the transparency, so you can see, especially with the search engine, how people are using Twitter at one glance. The phone doesn’t allow for that.
+
+51 quotes

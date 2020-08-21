@@ -1,0 +1,33 @@
+ - Business strategy is the battleplan for a better future.
+ - The future of marketing belongs to honest information, accurate data and clear claims based on truth.
+ - The key to understanding the future is one word: sustainability.
+ - Strong ethics keep corporations healthy. Poor ethics make companies sick. Values are the immune system of every organisation.
+ - In banking or insurance trust is the only thing you have to sell.
+ - The phrase “work-life balance” tells us that people think that work is the opposite of life. We should be talking about life-life balance.
+ - Volunteering is a window into the passions of the soul.
+ - When you have been close to death it makes you think about life.
+ - You can have the greatest strategy in the world but what is the point if no one cares?
+ - Motivation is a battle for the heart, not just an appeal to the mind. Passion is always an expression of the soul.
+ - The Six Faces of the FUTURE are: Fast, Urban, Tribal, Universal, Radical and Ethical.
+ - You cannot have strong leadership without passion.
+ - Life is too short to waste on things that don’t matter.
+ - Tribalism is the most powerful force in the world.
+ - People will only follow you if they see you’re ahead, are convinced you know the route, trust you, and want to get there too.
+ - Take hold of the future or the future will take hold of you – be futurewise.
+ - The future is about emotion: reactions to events are usually far more important than the events themselves.
+ - The paradox of innovation is this: CEO’s often complain about lack of innovation, while workers often say leaders are hostile to new ideas.
+ - All the most powerful speeches ever made point to a better future.
+ - To every trend there is a counter-trend. There are a number of pendulums operating and each creates new business opportunities.
+ - Mission is at the heart of what you do as a team. Goals are merely steps to its achievement.
+ - If happiness could be bought, we’d probably be unhappy at the price tag. If only the secret of happiness was as simple as getting wealthy and spending more.
+ - Connect with all the passions people have -for themselves, their families, their communities and wider world – and they will follow you to the ends of the earth, buy your products and services with pride, and may even be willing to work for you for next to nothing.
+ - You will learn more about the people you work with in three minutes by asking them what they do for nothing, than by working with them for three years in the same team.
+ - Every product and service is sold on the promise of a better future. The purpose of business is to deliver on the promise, and profit is the reward for doing so.
+ - The risk of a business being hit by a low probability, high impact event is far higher than most boards realize because the number of potential wild cards is so great.
+ - Give people a convincing reason and they will lay down their very lives.
+ - I would rather work with five people who really believe in what they are doing rather than five hundred who can’t see the point.
+ - Institutional blindness is a major threat to the future of all corporations.
+ - The larger the corporation, the greater the risk that you are flying blind.
+ - The promise of every product and service is a better life. Profits are the prize for delivering on the promise.
+
+31 quotes

@@ -1,0 +1,34 @@
+ - I’m fine, thanks for not asking.
+ - I was, but then I realized that I was holding on to something that didn’t exist anymore. That the person I missed didn’t exist anymore. People change. The things we like and dislike change. And we can wish they couldn’t all day long but that never works.
+ - Like the stars, fading with the halo of the vanishing moon. Like the ocean, falling and whispering against the shore. Nothing ever really goes away – it just changes into something else. Something beautiful.
+ - Would ‘sorry’ have made any difference? Does it ever? It’s just a word. One word against a thousand actions.
+ - Sometimes I think we all feel guilty for being happy, and as soon as we catch ourselves acting like everything is okay, someone remembers it’s not.
+ - I’m not sure if you even want me around or if you just feel sorry for me. I’m not sure of anything.
+ - Nothing ever really goes away – it just changes into something else. Something beautiful.
+ - Sometimes I think I’m an alien that accidentally fell off the mother ship, destined to wander among clueless earthling parents for all eternity.
+ - Everyone says that the internet is so awesome because you can connect with people from all over the world, but I think it’s the opposite. The internet doesn’t make it easier to connect with anyone – it just makes it so you don’t really have to.
+ - Every morning, I wake up and forget just for a second that it happened. But once my eyes open, it buries me like a landslide of sharp, sad rocks. Once my eyes open, I’m heavy, like there’s to much gravity on my heart.
+ - I really don’t even know you, and yet, in my life, you are forever entangled; to my history, inextricably bound.
+ - And I don’t want to talk about it, because one day his name will brush against my lips in her presence, and through and involuntary blushing of the cheeks, a misting of the eyes, a breath drawn too tightly, or a single tear, the secret I’m supposed to keep locked up forever will be revealed.
+ - But when he died, I saw – nothing. There was nothing left to see.
+ - The only excuse I can think of is the truth – she’s broken. Until someone can figure out how to fix her, what else can she do?
+ - I just swallow hard. Nod and smile. One foot in front of the other. I’m fine, thanks for not asking.
+ - Don’t settle, okay? Not for anything. I mean it. You only get this one chance at life, far as I know. Take it. Even if its not with me.
+ - I’ve never met a problem a proper cupcake couldn’t fix.
+ - Sometimes you gotta just take things for what they are and appreciate them, not try to label it or explain it. Explanations take the mystery out of it, you know?
+ - I’d rather be completely alone than with a bunch of people aren’t real.
+ - Weeping is not the same thing as crying. It takes your whole body to weep, and when it’s over, you feel like you don’t have any bones left to hold you up.
+ - Sweetheart, when you say Matt’s name, you have the same look in your eyes that he’d get whenever he’d say yours.
+ - It takes forty muscles to frown, and only twelve to jam a cupcake in your mouth and get over it.
+ - Same people. Same hellos and goodbyes. Same beginnings and endings. Same befores and afters.
+ - Like the beach glass you guys always brought me. Sometimes I dump it out on my desk and press my ear to the pieces, trying to hear the ocean. Trying to hear you.
+ - Every story is part of a whole, entire life, you know? Happy and sad and tragic and whatever, but an entire life. And books let you know them.
+ - If I could find the butterfly that flapped its wings before we got into the car that day, I would crush it.
+ - Don’t move, Anna Reiley. Right now, everything is perfect.
+ - Sometimes looking at Frankie is like seeing Matt through a glass of water – a distorted composition of him with all the right parts, but mixed up and i the wrong order. As I watch her sing his old song, I can’t shake the feeling that he just stopped by to say hello.
+ - When you’re in the middle of being in love with someone, you just don’t stop to ask.
+ - He loved to read. He loved words, the way they string together into sentences and stories. He wanted to study them, to know and create them, to share them with the world.
+ - Doesn’t matter how many people are in the crowd anymore, Delilah. Ten or ten thousand, I’m still only singing for one.
+ - Sometimes, a sigh was all the fight you had left.
+
+32 quotes

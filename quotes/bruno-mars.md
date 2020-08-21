@@ -1,0 +1,84 @@
+ - You’re amazing, just the way you are.
+ - And when you smile, the whole world stops and stares for a while.
+ - I think that success is having fun.
+ - Treasure, that is what you are.
+ - When it’s your time, it is your time.
+ - Oh every time I close my eyes I see my name in shining lights.
+ - If you ever forget how much you really mean to me, Every day I will remind you.
+ - When I see your face, there’s not a thing that I would change ’cause you’re are amazing just the way you are.
+ - When everything in life gets so complicated it only takes a day to change it.
+ - My goals are – I don’t need much. I’m a simple man. I think that success is having fun. And when I’m having fun doing music, I’m happy. If I can make a little money on the side doing it, I’m really happy.
+ - It’s about you putting in the work, practicing every day, and hopefully one day you write the song the whole world wants to get down to. And one day you’re going to be sitting next to Ellen DeGeneres talking about how you broke records and rocked the Super Bowl!
+ - You pick up some fans and a handful of haters along the way.
+ - I just write songs that I strongly believe in and that are coming from inside. There’s no tricks. It’s honesty with big melodies.
+ - Hawaii is paradise. It sounds cheesy to say it, but there’s music in the air there.
+ - You have to be who you are, and hopefully they dig it.
+ - Don’t you love it that Prince doesn’t use Twitter? Don’t you think he’s somewhere on a unicorn?
+ - Never had much faith in love or miracles, Never wanna put my heart on the line.
+ - As proud as I am of Doo-Wops I feel like, ‘Oh, man. People haven’t seen nothing. They don’t even know what I’m about to do,’ and that’s what I can’t wait to show the world.
+ - If perfect’s what you’re searching for, then just stay the same.
+ - Everyone calls me Bruno; they don’t ever call me Peter – that was just my government name.
+ - Whether it be a reggae song, rock song, a love song, the main thing was just to, whatever I was feeling, to try to capture that emotion.
+ - I don’t throw lavish parties or nothing like that – I just want a bed and a TV.
+ - You can’t knock on opportunity’s door and not be ready.
+ - I am so proud and so happy to be Filipino.
+ - You know, when Michael Jackson does the moonwalk, he’s showing off! When Prince or Hendrix do a guitar solo, it’s confidence! I would hate to be at a show and some nervous wreck is sweating up there and doesn’t feel like he deserves to be there.
+ - Every artist should want to be like Michael Jackson.
+ - Doo-wop is special music to me because it’s so straightforward and melody-driven and captures emotions.
+ - Honolulu is a melting pot.
+ - To write a song you must have an imagination, to have an imagination you must be free.
+ - What I like about Elvis is the same thing I like about James Brown, Michael Jackson, Prince. These guys, back in the day, there was no smoke and mirrors. It was just raw talent. They would step out onstage and command an audience. Talk about awesome.
+ - I know I’m probably much too late to try and apologize for my mistakes.
+ - Music is not math. It’s science. You keep mixing the stuff up until it blows up on you, or it becomes this incredible potion.
+ - You gotta know what you are, who you are and how you want to be portrayed.
+ - If I was a billionaire, I’d be smart with my money.
+ - You know, I just do whatever feels right to me! And so that’s what you’re gonna get!
+ - I tend to overthink things. I’m not the guy who screams ‘This is a world smash!’ when I finish a song.
+ - I love artists like Prince, who hold on to that element of mystery.
+ - My dad was into the 1950s doo-wop era. If you look at those groups, or at James Brown, Jackie Wilson and the Temptations in the 1960s, you’ll see you had to be sharp onstage.
+ - What I’m hoping is that every album I’m going to do will give my audience something different, and that they’ll grow as I do.
+ - I guess if I’m a product, either you’re chocolate, you’re vanilla or you’re butterscotch. You can’t be all three.
+ - I always say I wanna work with Alicia Keys. I’m in awe of her.
+ - No one sells a song better than the person that wrote it.
+ - My dream was to not get a day job but to sleep, wake up and do my music. I want to keep that dream forever.
+ - I’m a big fan of songs like Joe Cocker’s ‘You Are So Beautiful’ and Eric Clapton’s ‘Wonderful Tonight’ – songs that go straight to the point.
+ - Someone told me something that stuck with me: ‘You have to envision your life, and then go backwards.’ I’ve been living by that motto for a while, so I see where I need to be. Now I’m just backtracking and trying to get back up there.
+ - There’s always a bittersweet kind of thing, but I feel like everything had to work out the way it is. Everything that had to happen, happened.
+ - I could sing you a thousand and one doo-wop songs. I love the simplicity in that music. It’s not super-poetic, it’s just from the heart.
+ - It’s probably the worst feeling in the world, when you’re deeply and madly in love with a woman and you know she’s not feeling you the same way, and you don’t know why.
+ - My father moved to Hawaii from Brooklyn and my mother came there as a child from the Philippines. They met at a show where my dad was playing percussion. My mom was a hula dancer.
+ - I don’t like two stories. I like one story. I never grew up with stairs. I like to stick to what I know.
+ - I’ve had big record label presidents look me in the face and say, ‘Your music sucks, you don’t know who you are, your music is all over the place, and we don’t know how to market this stuff. Pick a lane and come back to us.’
+ - A grown man should always carry cash, right? I don’t know who told me, but someone told me that a long time ago, and the biggest turnoff is when a guy doesn’t have cash on him.
+ - I love that I can talk to my fans through Twitter, to cut out the middle man. Because I’ve done interviews where my words have gotten twisted, so it’s nice to be able to have things coming straight from me.
+ - Every time I try to write a song, when I sit down and think I’m going to write, I really want to write a song, and it never works out. It’s always when it hits me unexpectedly on a plane or right before I go to bed, something like that.
+ - I don’t try and be dark, but there are obviously darker emotions that I want to capture sometimes.
+ - I’m a big fan of the young 1950s Elvis when he would just go onstage and control the whole environment.
+ - I came to California and got signed at a young age. And it’s not like you see in the movies, where you start rubbing shoulders with Timbaland and Pharrell, and you become a giant pop star.
+ - In my songs, I’m not saying something that’s never been said before. The have lyrics aren’t going to blow people away. It’s the emotion and the melody that drive it home.
+ - Hawaiian music is beautiful and simple.
+ - There are no record companies in Waikiki.
+ - I definitely don’t plead guilty to being a heartthrob.
+ - Got Chucks on with Saint Laurent; got kiss myself I’m so pretty.
+ - I wish I could tell you me and my rock band were traveling around, strung out. No, we were a family band. Straight Partridge Family.
+ - Ever since I was a kid, this was all I wanted to do. I’ve wanted to do music. I wanted to sing. It’s all I know.
+ - I’m the Nickelodeon version of DangerMouse.
+ - You know, my sister sings, my brother plays drums in my band. My whole family is a bunch of musicians.
+ - I’ve learned people are watching, so don’t do nothing stupid.
+ - I just know that I’m a fan of all different kinds of genres. You’re supposed to be free doing music, and that’s how I feel.
+ - Songwriters, you have to work – you have to wait for residuals. You have to pray that the song’s going to be a hit. And then a year later, you might get a check.
+ - In Hawaii, some of the biggest radio stations are reggae. The local bands are heavily influenced by Bob Marley.
+ - In pop music, the public usually see the results – the hit records, the Grammy Awards performances, the concert tours – but not all the work that goes into getting into the spotlight. And not everyone realizes that, even if you have a lot of talent, chances are you won’t make it.
+ - I signed up to be a musician, I want to perform, I want to sing.
+ - I really wish I knew what I was doing because I’d be writing hit songs every minute.
+ - I feel, as a songwriter, it’s one of the hardest things to do – to sit down and say how you feel.
+ - Becoming famous was never what I wanted to do. There’s a lot of things that come with fame – it’s what people in the limelight have to do.
+ - Expect me to give my all. Thats what I do every time I have a show. Give my all.
+ - Writing for other artists helped me figure out that magic you have to capture to make everyone connect with a song.
+ - I’ve definitely seen bands before they made money kind of change their thing on the next tour, and I prefer it when it’s a little more raw.
+ - I don’t think anyone ever plans to change line-ups, but it’s something that comes with being in bands. I was in a band once and there were always problems – members come and go – and some of the world’s biggest bands have changed line-ups loads!
+ - I feel it’s my job to continue being a student of music if I want to continue being an artist and a producer of other artists. You have to keep filling your mind with other music. You have to be ahead of the curve.
+ - My mother is a singer, my sisters all sing, my uncles are incredible singers and guitar players, so it’s just kind of been like my habitat.
+ - My father’s a musician and my mother’s a singer. My dad’s originally from Brooklyn and he was a Latin percussionist so I’ve always had instruments around the house. He used to have a show like a 1950s rock and roll show with Little Richard music. They would do doo-wop songs and stuff like that.
+
+82 quotes

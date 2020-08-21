@@ -1,0 +1,37 @@
+ - It’s all about escapism. That’s essentially what all movies are about. It’s a vicarious thrill.
+ - Bangkok, like Las Vegas, sounds like a place where you make bad decisions.
+ - I think that ‘Hangover II’ is as funny as ‘The Hangover I,’ honest to God, but I think that it’s a little bit darker, and the stakes are a little bit higher.
+ - There’s such an awkwardness to most heterosexual male relationships. You see women who are friends, and they kiss each other good-bye, and they’re just so much warmer with each other. But there’s this thing with guys where, even between best friends, there’s a standoffishness.
+ - You know, if I started worrying about what the critics think, I’d never make another comedy. You couldn’t pick a less funny group than critics – you couldn’t find a more bitter group of people!
+ - There’s a darkness under ‘The Hangover’ because ultimately there’s a missing person and it’s not really that funny. There’s a sort of darkness under it that I love, and still people are laughing as hard if not harder than they did in ‘Old School.’
+ - To make a movie about mayhem, sometimes you have to go to mayhem.
+ - Comedy is so subjective. You could be in a room with 400 people laughing at a joke and you could just not think it’s funny. You’re just sitting there like, ‘Am I in the twilight zone? Why is everyone laughing?’ It’s such a personal thing. People have such a personal visceral response to comedy.
+ - I just love the look of film. But I have nothing against HD.
+ - I love confidence in a guy. I don’t have it, but there’s nothing sexier.
+ - Well, it’s so cheesy to say but you can’t find a comedy director who makes movies for critics. When a movie does $580 million worldwide, I’m not saying that proves anything except people were enjoying the experience.
+ - You’re only as good as your body of work, and everybody has issues, whether it’s Steven Spielberg or Martin Scorsese. I’m not comparing myself to those guys, but you learn more from the misses than the hits.
+ - My dog’s a gentleman.
+ - I was taught that you didn’t want to be part of the group – that it was better to do your own thing.
+ - I take it very seriously, music. I think it’s one of the tools that a director has with which to kind of paint. The right music can sometimes do five pages of scripted dialogue.
+ - I think people like comedies and I think concept driven comedies seem to be working when it’s a clear concept and you deliver funny stuff.
+ - You set the tone on the set that you want to see in the film.
+ - Reality television hasn’t killed documentaries, because there are so many great documentaries still being made, but it certainly has changed the landscape.
+ - I find I like to work with a lot of the same actors, because I find that there’s sort of shorthand there, and there is this unspoken trust, both ways. They trust me and I trust them. And I know what I’m going to get from them, to an extent. It’s just fun, kind of creating this little family.
+ - I really got into filmmaking through photography.
+ - I never had a ton of male friends and it’s always been something that’s really interesting to me, what brings guys together? The bonding. ‘Old School’ is a good example of that. And even ‘Starsky’ and even ‘Road Trip.’
+ - I like – there’s a better word for it, but I like the danger that a comic brings to a role. It has a feeling, even though everything’s scripted and everything’s planned what you’re going to do. When I see Will Ferrell or Sacha Baron Cohen, there’s a feeling that anything could happen.
+ - What it boils down to is that when you say the word Las Vegas it means something. You could say New York City and it doesn’t really mean anything. When you say a word like Bangkok, in my mind it means something. There’s not a lot of cities where the world literally brings a picture to your mind.
+ - I think comedy directors tend to feel a need to justify the bad behavior, and I just never think that. I like bad behavior, I’ve always liked bad behavior, I’m a fan of bad behavior, and I don’t think you have to justify bad behavior.
+ - I remember that when I got to NYU, everyone was writing scripts. But I was 18 at the time, and when you write a script, so much of it is about what you pull from life, and this sounds sort of cheesy, but I felt like I didn’t have enough life experience at that point to write a movie.
+ - I grew up raised by my mom and my two sisters, so I never had a real male influence in my life. I never really understood heterosexual male relationships.
+ - I don’t have a horror film in me just because I don’t like to be scared. But I definitely have a documentary in me, and I certainly have dramas.
+ - When I was younger I was obsessed with ‘Star 80,’ and it’s just a great movie – I think I saw it three times in the theater.
+ - Directors tend to be more underrated than overrated because it’s a quiet job and people don’t really understand it.
+ - All my movies, as I get the ability to do it, they tend to go a little darker, a little darker.
+ - I think a lot of American comedies tend to apologize for their bad behavior in the last 10 minutes of the movie.
+ - Music is just one of the tools a director has with which to paint and I think it’s one of the most effective.
+ - John Goodman’s pretty dark – I love John Goodman.
+ - I think reviewers have become particularly venomous because, in a way, the power has been sucked from them. A 15-year-old can write a review on the Internet and it means as much as Roger Ebert’s review, and that just makes Roger Ebert mad, so he comes out harder and stronger.
+ - Not every movie has to serve as every audience member’s need for completion.
+
+35 quotes

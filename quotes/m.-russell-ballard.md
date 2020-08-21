@@ -1,0 +1,91 @@
+ - What matters most is what lasts the longest and families are forever.
+ - The family is not just the basic unit of society; it is the basic unit of eternity.
+ - Trust the Lord. He is the good shepherd. He knows His sheep. And His sheep know His voice.
+ - It may not always be easy, convenient or politically correct to stand for truth and right, but it is the right thing to do. Always.
+ - Because of Jesus Christ, peace can replace guilt. Healthy relationships can be restored. Addictions can be overcome.
+ - We can become the masters of our own destinies by practicing self-discipline and by setting worthy goals that will lead to higher ground so that we can become what our heavenly father wants us to become.
+ - Focus on fruitful relationships that bring you closer to Jesus Christ.
+ - If we are truly disciples of the Lord Jesus Christ, we will reach out with love and understanding to all of our neighbors at all times.
+ - Remove any of your fear with faith. Trust the power of God to guide you.
+ - A mother’s nurturing love arouses in children, from their earliest days on earth, an awakening of the memories of love and goodness they experience in their premortal existence, Because our mothers love us, we learn, or more accurately remember, that God also loves us.
+ - Make the decision to do what Jesus Christ has asked you to do.
+ - Set goals that are well balanced-not too many nor too few, and not too high nor too low. Write down your attainable goals and work on them according to their importance. Pray for divine guidance in your goal setting.
+ - Family councils, led by righteous, loving parents who are striving to teach their children to love and respect each other, can make a difference in creating a sense of discipline, order and loving cooperation in the home.
+ - The Lord needs women who will step forward in righteousness and say, ‘Here am I, send me.’
+ - All the marvels of nature are glimpses of His divine power and expressions of His love.
+ - To innovate does not necessarily mean to expand; very often it means to simplify.
+ - Remember that our Heavenly Father and our Savior, Jesus Christ, know you best and love you the most.
+ - Quite simply, our one hope for spiritual safety during these turbulent times is to turn our minds and our hearts to Jesus Christ.
+ - Proclaiming the gospel to all mankind is a fundamental part of the mission of the Church.
+ - In your morning prayer each new day, ask Heavenly Father to guide you to recognize an opportunity to serve one of His precious children.
+ - We must never ignore or pass by the prompting of the Spirit to render service to one another.
+ - Sacrifice is a demonstration of pure love.
+ - The important questions focus on what matters most-Heavenly Father’s plan and the Savior’s Atonement.
+ - It is impossible for us to fail when we do our best when we are on the Lord’s errand.
+ - It is the parents duty to intervene when they see wrong choices being made.
+ - Do not think that you are too busy to study the gospel.
+ - Clear declaration of truth makes a difference in people’s lives. That is what changes hearts. That is what the Holy Ghost can confirm in the hearts of God’s children.
+ - We each shape our own life, and the shape of it is determined largely by our attitude.
+ - Friends and family are vitally important for an individual who is struggling to return to the gospel path. Those around such a person must refrain from judging. They must do all they can to show love.
+ - When you understand the Atonement, then you understand the joy of being rescued.
+ - There is no problem in the family, ward, or stake that cannot be solved if we look for solutions in the Lord’s way by counseling – really counseling – with one another.
+ - The central activity of leadership is teaching – first by example, second by precept.
+ - It is important to be still and listen and follow the Spirit.
+ - Free and open expression coupled with visionary leadership generally encourages good decision-making.
+ - Members are more likely to seek counsel from leaders from whom they feel sincere love emanating.
+ - Our faith in the Lord Jesus Christ is the source of spiritual power that will give you and me the assurance that we have nothing to fear.
+ - Our love for our Father in Heaven and the Lord Jesus Christ needs to be reflected in our daily choices and actions. They have promised peace, joy, and happiness to those who keep Their commandments.
+ - Sometimes we go so focused on bringing people to the meetinghouse that we forget we are supposed to be bringing them to Christ.
+ - The joy in motherhood comes in moments. There will be hard times and frustrating times, but amid the challenges there are shining moments of joy and satisfaction.
+ - Simply stated, testimony-real testimony, born of the Spirit and confirmed by the Holy Ghost-changes lives. It changes how you think and what you do. It changes what you say. It affects every priority you set and every choice you make.
+ - Pollinate the world with the pure love of Christ.
+ - It is almost impossible for children and youth to find their way through the seas of life without the guiding light of a good example.
+ - Spend your energy on things that make a difference.
+ - Be involved; be informed. Make meaningful contributions to society through service and involvement.
+ - The one-cylinder ward is one in which the bishop handles all the problems, makes all the decisions, follows through on all the assignments, and faces every challenge. Then, like any other overworked cylinder, he starts to sputter and behave erratically. Eventually, he burns out altogether.
+ - We need to commit to serve the Lord and our communities with the same diligence and faith that the pioneers had. We must ever be on our guard that we do not become casual in keeping God’s commandments, in abiding by His laws, and in being honest and trustworthy in all that we do.
+ - What we need now is the greatest generation of young adults in the history of the Church. We need your whole heart and soul. In other words, it’s time to raise the bar not only for missionaries but also for returned missionaries and for your entire generation.
+ - Fourth, come home from work and take an active role with your family. Don’t put work, friends, or sports ahead of listening to, playing with, and teaching your children.
+ - All of us must come to an honest, open self-examination, an awareness within as to who and what we want to be.
+ - We cannot foresee what the Lord has in mind for us. Our only course of action is to be prepared and worthy for whatever he requires. We must govern our actions every day with our future in mind.
+ - Remember, presidents and bishops, that the callings of your associates are just as divinely inspired as is yours, and they are therefore entitled to inspiration in their specific responsibilities. Lean upon them. Learn from them. Love them. Listen to them.
+ - We must prepare ourselves to assist the missionaries in finding those of our Heavenly Father’s children who will embrace the message of the Restoration.
+ - When a leader in the Church inspires council members with vision, he helps them focus on their real mission so that they are ministering to people rather than merely administering programs.
+ - What would be the cumulative effect of millions of small, compassionate acts performed daily by us because of our heartfelt Christian love for others? Over time this would have a transformative effect upon all of our Heavenly Father’s children through the extension of His love to them through us.
+ - Jesus Christ can help us fix anything that needs fixing in our lives.
+ - Pray for divine guidance in your goal setting.
+ - Do not shift your focus from serving others to focusing exclusively on school, work, or social activities.
+ - Those who yearn for true spiritual light and knowledge can only find it through the power of the Holy Ghost. The Spirit enlightens and gives understanding of the eternal purpose of life. By the Spirit, Church members know the restored gospel of Jesus Christ is true.
+ - Just as He had done with David, Samuel, and Joseph of the Old Testament, God took an innocent, unlearned boy, one still unsullied by the world and pliable to His divine will, and molded and shaped him into His chosen prophet.
+ - The words of the Lord are found in the scriptures and the teachings of the apostles and prophets. They provide us counsel and direction that, when followed, will act like a spiritual life jacket and will help us know how to hold on with both hands.
+ - The Lord does not want us to “miss supper.” In fact, He has a great feast prepared for those who return clean and pure through the door.
+ - The answer is, of course, to simplify, to prioritize, and in some cases, to use a well-known phrase, “Just say no!” But actually doing it may prove to be one of the real challenges in our complicated, overheated lives.
+ - It is a shortsighted priesthood leader who doesn’t see the value in calling upon the sisters to share the understanding and inspiration they possess.
+ - Of all the opportunities my priesthood authority affords, there is none grander than the privilege of being in one of our temples and representing the Master in officiating in the marriage of two of His worthy, righteous children.
+ - When the Spirit is present, people are not offended when you share your feelings about the gospel.
+ - I believe that every human soul is teaching something to someone nearly every minute here in mortality.
+ - This is God’s work, and God’s work will not be frustrated. But there is still much to be done.
+ - I surely know that there is no role in life more essential and more eternal than that of motherhood.
+ - Righteousness has never precluded adversity.
+ - We can all be more consistently involved in missionary work by replacing our fear with real faith.
+ - There is no other relationship quite like that which can and should exist between a boy and his dad. It can be one of the most nurturing, joyful relationships in life, one that can have a profound impact on who boys become and also on who dads become.
+ - Attitude is an important part of the foundation upon which we build a productive life. A good attitude produces good results, a fair attitude poor results, a poor attitude poor results. We each shape our own life, and the shape of it is determined largely by our attitude.
+ - Of this you may be certain: The Lord especially loves righteous women-women who are not only faithful but filled with faith, women who are optimistic and cheerful because they know who they are and where they are going, women who are striving to live and serve as women of God.
+ - One who lays claim to special privilege through the priesthood doesn’t understand the nature of his authority.
+ - When we learn to expect more success than failure in life, we soon will develop an attitude of success.
+ - We are not asking everyone to do everything. We are simply asking all members to pray, knowing that if every member, young and old, will reach out to just “one” between now and Christmas, millions will feel the love of the Lord Jesus Christ. And what a wonderful gift to the Savior.
+ - There is no such thing as unlawful censorship in the home. Movies, magazines, television, videos, the Internet, and other media are there as guests and should only be welcomed when they are appropriate for family enjoyment.
+ - Be involved; be informed. Try to be understanding and tolerant and to appreciate diversity.
+ - Those of you who have fallen prey to any kind of addiction, there is hope because God loves all of His children.
+ - We must be prepared to keep pace with our leaders, stride for their every lengthened stride.
+ - We cannot hope to build the Church and to bring hearts and souls to Christ without using every resource the Lord has given to help us take advantage of our opportunities and address the obstacles standing in our way.
+ - A woman’s sphere of influence is a unique sphere, one that cannot be duplicated by men.
+ - We should seek at all times to purify ourselves and to lead such worthy lives that the Light of Christ emanates from us in all that we say and do.
+ - Small events and choices determine the direction of our lives just as small helms determine the directions of great ships.
+ - The love for work needs to be re-enthroned in our lives. Every family should have a plan for work that touches the life of each family member so that this eternal principle will be ingrained in their lives.
+ - The love that exists between people who share religious values and experiences can be the most satisfying and unifying force this side of the solid, happy family.
+ - It is our homes and families that need reforming in this increasingly materialistic and secular world.
+ - Many council leaders and members will be surprised to discover how much more focused their work will become when they examine it through the lens of saving souls through the mission of the Church.
+ - When it comes right down to it, people are quite similar. We may come from different backgrounds, cultures, and economic circumstances, and our attitudes and perspectives may vary. But in the heart-where it really counts-we’re a lot alike.
+
+89 quotes

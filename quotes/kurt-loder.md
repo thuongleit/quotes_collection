@@ -1,0 +1,30 @@
+ - You find the most important thing that really grabs you, and put it right up top. Don’t bury the lead. Put it at the top. Best thing to do. Never go wrong that way. It’s an immutable law of journalism. It just always works.
+ - So, yeah, I think it had a major effect. I think in franchising younger people, it was just an idea that’s never been trotted out before, but it makes perfectly good sense.
+ - So you shouldn’t really flatter yourself that they want to be your buddy. They don’t. Generally. They want you for some reason or other, and you just have to fend that off all the time.
+ - Well, news is anything that’s interesting, that relates to what’s happening in the world, what’s happening in areas of the culture that would be of interest to your audience.
+ - And so popular culture raises issues that are very important, actually, in the country I think. You get issues of the First Amendment rights and issues of drug use, issues of AIDS, and things like that all arise naturally out of pop culture.
+ - I don’t find music being less important than, like, politics.
+ - Whomever you’re going to interview, you have to be interested in what it is you want to know from them. You have to be interested in the subject.
+ - So no one should rely on television either for their knowledge of music or for news. There’s just more going on. It’s an adjunct to the written word, which I think is still the most important thing.
+ - I worked for a newspaper in Europe for, I lived in Europe for about seven years, so I worked in this sort of a yellow journalism kind of a thing, it was like a scandal sheet.
+ - Unless you’re doing a feature piece, which is going to be longer, and you have more time to get into stuff.
+ - I was in college for two years, and just hated it in the ’60s.
+ - Well, in features, and in writing especially, it’s often the style of the writer comes in.
+ - It’s not a good thing to be friends with people you’re covering. There’s just no point in doing it. It’s tempting, but they’re not going to consider you their friend anyway. They just know that you’re somebody that can do something for them.
+ - If your audience is young, it’d be youth culture, if your audience is older, it’d be older people, if it were senior citizens, it’d be senior citizen issues. So you try and hit the target audience.
+ - It’s gonna be short if it’s news; put it at the top. Style’s not an issue, just make it news.
+ - I think television often has dismissed younger people. They figure, well, they’re not really watching news, that’s not our audience.
+ - Some of the most important stories don’t lend themselves to television treatment.
+ - And the most important thing you can do is learn to edit yourself. And then go back and rewrite.
+ - I came over here and worked for rock magazines, and I worked for Rolling Stone, which has a very high standard of journalism, a very good research department.
+ - Television’s not going read stories to you.
+ - Rewriting is a large part of the whole job. And get rid of stuff that’s not working. Just pare it down until it’s a beautiful thing you can hand in.
+ - And you can’t really cover people critically that you’re friends with.
+ - But music raises a lot of issues. Music is something that matters to people a lot, and they put a lot of passion into it. And I think when you have an area like that, you’re gonna find a lot of issues coming up.
+ - I know what the structure of the language is.
+ - Well, a lead is the most important thing about the story.
+ - If you ask questions that interest you, you’ll get answers that interest your audience.
+ - I spent time in, like, criminal courts, and covering murder trials for papers.
+ - Television’s very dependent on images. That’s not what news is.
+
+28 quotes

@@ -1,0 +1,65 @@
+ - Because we never stop silently loving those who we once loved out loud.
+ - Time is an illusion. Time only exists when we think about the past and the future. Time doesn’t exist in the present here and now.
+ - If we go for the easy way, then we never change.
+ - Immaterial art is the strongest because there’s no obstacle; there’s just energy, and I believe in energy.
+ - I have always staged my fears as a way to transcend them.
+ - When you have a nonverbal conversation with a total stranger, then he cant cover himself with words, he cant create a wall.
+ - In the performer’s body, you don’t care how you look. It doesn’t matter if you’re old, fat, beautiful, or ugly. It doesn’t change anything. The only thing is your charisma and how you express your idea.
+ - A powerful performance will transform everyone in the room.
+ - I want to dominate the man’s world.
+ - But what is art other than revealing human nature?
+ - I realise the power of art that does not hang on the walls of galleries.
+ - We are used to cleaning the outside house, but the most important house to clean is yourself – your own house – which we never do.
+ - Don’t even ask me why. I do not know, I have no answer to this insane behaviour.
+ - Most people are more comfortable with what is familiar. I’ve spent my life doing the opposite.
+ - A great artist has to be ready to fail.
+ - When you have so much pain, you think you will lose consciousness. If you say to yourself, ‘So what, lose consciousness,’ the pain goes away.
+ - We always want to do things the way we like, that’s why we never change.
+ - From the moment you are born, you could die. I think as an artist it is important to meditate on that.
+ - All my inspiration comes from life. That’s how it never stops, in a way.
+ - What you get is the opening of your mind. I’m not preaching any new religion; I’m ritualizing everyday activities. You drink the water. You count the rice. You sit in Crystal Cave. You lie in Levitation Chamber. You push yourself to a new level.
+ - It’s okay that we’re not perfect. It’s okay that we all have problems. It’s okay to cry, to show emotions.
+ - Art comes from life, not from the studio.
+ - I made a tape recording of a bridge collapsing and I wanted to play it suddenly and very loudly when people were walking over a big bridge in Belgrade. The council forbid it. Their imagination is tiny; mine is big. I want always to shake everything up.
+ - I had so much fear of blood, and the first thing I did was to cut myself to see what happens. That’s the only way to rebuild yourself.
+ - The only way to change consciousness and the world around us is to start with yourself.
+ - In my work I have complete control, but about my life, I don’t want to.
+ - True love for whatever you are doing is the answer to everything.
+ - The hardest thing to do is something that is close to nothing.
+ - From the very early stage when I started doing performance art in the ’70s, the general attitude – not just me, but also my colleagues – was that there should not be any documentation, that the performance itself is artwork and there should be no documentation.
+ - I just want to create situations where people forget time.
+ - First of all, to do performance art, you really have to give 100 percent. I only know that I have to give 100 percent and then what happens, happens.
+ - I hate studio. For me, studio is a trap to overproduce and repeat yourself. It is a habit that leads to art pollution.
+ - I believe stories are very important to all performances. The life story of the performer shapes their work, and the life stories of the audience alter how they receive the work, what they read into the performer.
+ - I notice if I’m too fat or if I’m too ugly or there’s skin hanging or whatever. When my clothes start not fitting, I get really self-conscious about what I eat.
+ - Happiness comes from the full understanding of your own being.
+ - People ask why there are so few female artists who succeed. It’s because women are not ready to sacrifice as much as men. Women want a man, they want a family, they want to have children, they want to be loved, and to be an artist. And they can’t; it’s impossible.
+ - My mother and father had a terrible marriage. They celebrated their wedding anniversary one year with their friends. Why did they celebrate? Maybe because they had lasted so many years without killing each other.
+ - To me the pain and the blood are merely means of artistic expression.
+ - Because of technology, we don’t develop telepathy. We don’t use telepathy, but use, you know, the mobile phones. Why?
+ - In every ancient culture, there are rituals to mortify the body as a way of understanding that the energy of the soul is indestructible.
+ - Once, Picasso was asked what his paintings meant. He said, “Do you ever know what the birds are singing? You don’t. But you listen to them anyway.” So, sometimes with art, it is important just to look.
+ - There’s nothing more tragic than artists from the 70s still doing art from the 70s.
+ - We make such terrible mistakes with visual choices about beauty.
+ - I never say Serbia. I always say I come from a country that no longer exists.
+ - I don’t know anything about the afterlife because I haven’t been there yet.
+ - It’s very important that young artists push boundaries, because sometimes you have this urge to do something – like the impulsive and dangerous urges I had as a child – and if you don’t follow through with it you might miss out on a developmental experience.
+ - If you see a Renaissance body, this is completely ugly in this time. Everybody has to be skinny. But the Renaissance body with incredible flow of the meat everywhere, it was beauty.
+ - Every party is the same, too many people, too little food, and you have to wait around. I’m extremely bored with parties.
+ - In real life, you just work for the ordinary self, but in the front of audience you become the superself. That’s a completely different thing.
+ - When I was 14, I thought I looked terrible. I wore these typical Slavic shoes with metal bottoms so you could always hear me coming and this really ugly princess skirt and blouse with the top button closed. I had a boy haircut, a baby face covered with pimples, and a really big nose.
+ - Talking about performance is such a strange thing because it’s so immaterial. We are talking about soft matter. We are talking about something that is invisible. You can’t see it. You can’t touch it. You just can feel it.
+ - You know, art is very emotional business. But mostly it becomes not emotional, the fabric of commodity. It becomes business. It becomes so many different things. Because we forgot there was emotions involved.
+ - You know I very much respect Yvonne Rainer, she is very important – in American dance, the entire development of modern dance, and creating a wonderful physical language.
+ - Performance has to be mainstream art. This is what I’m fighting for.
+ - I always sent my mother all these huge books I made. When my mother died, I was cleaning her cupboard, and these big books were only 20 pages long. She edited out, maybe burned, every single photograph where I’m naked.
+ - I hate kitchens. I don’t understand these enormous American kitchens that take up half the living room and then they just order pizza.
+ - Television is completely another medium. For me, Lady Gaga and HBO are bringing us to mass culture.
+ - You can’t choreograph death, but you can choreograph your funeral.
+ - I believe that life is shorter; that is why we have to make experience longer.
+ - I am pure performance, and Robert Wilson is pure theater.
+ - The world doesn’t need an artist who shows reality as it is.
+ - The most revolutionary ideas are not sellable, but only mind-changing.
+ - When you’re 50, the best thing to do is dance the Argentinean tango.
+
+63 quotes

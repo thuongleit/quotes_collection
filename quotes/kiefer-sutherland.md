@@ -1,0 +1,57 @@
+ - My mother’s five-foot-two, and I’ll be honest with you – she’s the only person I’m scared of.
+ - There are two things that Jack Bauer never does. Show mercy, and go to the bathroom.
+ - I think the most attractive thing is a sense of humour. If someone can make you laugh, you’ve gotten a lot out of the way.
+ - I’ve done some stupid things. You just have to take responsibility, go, That was embarrassing, and move forward as best you can.
+ - I think the father-son dynamic is interesting. I don’t have a male friend who hasn’t had some kind of conflict with their dad, and I don’t have a male friend who hasn’t had some kind of conflict with their son.
+ - My whole mood or sense can change by virtue of the music that I’m listening to. It really does affect me on a visceral and emotional level.
+ - Youth is an amazing thing: I think back on when we did The Lost Boys, and I didn’t think I could do anything wrong.
+ - Love is a self-manifested notion depending on how lonely you are – so if you’re really attracted to someone, and you’re really lonely, I think you can fall in love in an instant. It’s all about where you’re at.
+ - When you’re a young actor you like to go for characters with a bit of flair, so in many films I ended up playing the weirdos. I can assure you I’m not a psycho or a criminal or a bully.
+ - I think that the day you’ve figured out the differences between women and men is the day that you’re no longer attracted to women. It’s the difference that is so fantastic and frustrating and angering, and really sexy.
+ - Some days I’m in better control and can navigate my way through stuff, and other days, not so much.
+ - I’ve made films that I’ve given all I had to, that no one has seen. The bottom line is I want to work and I want someone to enjoy it.
+ - One of the big draws of the show is here’s a guy who is ordinary in a lot of ways but, due to his profession, he’s placed in extraordinary situations that he has to make right with action and with thought. That’s what is appealing about Jack – he takes charge.
+ - I’ve always been shocked that people that I’m actually flying with say, ‘Oh, I feel safer on the plane with you.’ I’m thinking, ‘You must not watch the show because everybody around me gets killed.’
+ - Theres a confidence that comes from youth and not knowing better. But there comes a point, as an actor, when you do know better, and that is when the fear starts.
+ - I didn’t grow up with my dad, so it was always very funny to me, and always has been, what an important part DNA plays in one’s life.
+ - People respond to a guy who is trapped and succeeds on some level and fails on another.
+ - When I saw Virginia Woolf, somewhere between the first and second acts, someone I had known as my mother became somebody else.
+ - Isn’t it funny? You hear a phone ring and it could be anybody. But, a ringing phone has to be answered doesn’t it?
+ - Commander I believe in God and his son Jesus Christ and because I do I can say this. Private Santiago is dead and that is a tragedy. But he is dead because he had no code. He is dead because he had no honor. And God was watching.
+ - I had never gone to college, I left school at a really early age, and all of a sudden I’ve got six really great friends hanging out with me every night. And we were a really tight group, and we just had an absolute blast.
+ - I like chatting with people. If people ask me a direct question, I give them a direct answer and I feel I’ve always done that with the press.
+ - You know, I wish I wasn’t so young when I made some of my movies, because I thought that’s what the rest of my life was going to be like and I’d have all the time in the world to enjoy it. It wasn’t and I didn’t.
+ - When I wasn’t the flavor of the week or month or day, those were hard times.
+ - My mother was an extraordinary theater actor in Canada, and when I would finish school, I would go to the theater. I would do my homework, we would have dinner there, she would do her play, and then me and my sister would go home. So I grew up in it that way.
+ - I’ve had some amazing people in my life. Look at my father – he came from a small fishing village of five hundred people and at six foot four with giant ears and a kind of very odd expression, thought he could be a movie star. So go figure, you know?
+ - I love collecting guitars, even though I can’t play well. My favourite guitarists are Richie Blackmore, Jimmy Paige, and John Mayer.
+ - I feel extraordinarily peaceful when I’m watching the sun set.
+ - If your ethics in the military, in your training, is going to be counterminded by a one-hour weekly television show, we’ve got a really big problem.
+ - I liked the ceremony, the ritual of preparing cocaine, as much as doing it. I did it for a year, loved it, then stopped. Now I feel the same way about cooking.
+ - I remember being really grateful that David Lynch had actually even thought of casting me, because I was a huge fan of his.
+ - I do believe very strongly that all of us and all of the other things in the context of our planet with Mother Nature, all of these things absolutely have a profound effect.
+ - If you take a look at our natural history, there’s always a moment where the young lion wants to challenge the older lion and, inherently, that’s going to be problematic, and I don’t think we’re any different.
+ - I did a play called Throne of Straw when I was 11, at the Odyssey Theatre in Los Angeles. It became really clear to me at that point that I enjoyed acting more than any other experience I was having.
+ - What I ended up doing was kind of crafting an idea for a story, presenting it to a writer – a dear friend of mine, Brad Mirman – and he ended up writing a beautiful script. I should’ve done that a lot earlier.
+ - When Julia and I broke up and I was really scared to go into a market or anywhere because I thought, Oh God, everyone must hate me. And that wasn’t the case. People said, I’m sorry this happened, man. Are you alright?
+ - I’ve always thought of the western as American storytelling at its best.
+ - I’m a huge fan of Canadian rock-and-roll. When I was growing up, Rush came out with a record called Hemispheres, and I must have listened to that record for two years straight. Even when I was asleep I had it on. So, yeah, whenever I hear a Rush tune, the first thing I think of is Toronto.
+ - If you’re going to break cinema, film, and movies apart, very rarely to you get the opportunity to even think that you’ve been a part of cinema.
+ - Westerns just thematically, as a genre, have kind of a few tent poles that I really admire, and one of them is this perception that life was simpler back then. And with that perception goes that people were good or people were bad. You survived by your strengths or you perished by your weaknesses.
+ - I think one of the things I was most interested in finding out was how differently we approached our work. And my reality was that we didn’t approach it very differently at all, which was funny.
+ - There are three things we need to do for a band. We need to make a great record; we need to get the record played; and we need to find an audience for the live shows.
+ - I consider myself to be a relatively helpful person, and there’s an interesting line when hope starts to become the way you actually mask or hide from what’s really happening.
+ - I think just in general there’s a bunch of films that mattered to me that didn’t reach their potential, and on some level you have to assume responsibility for that. And I think over the years that gets difficult.
+ - I didn’t realize that television has gone through immense changes and has become very progressive.
+ - The writers keep managing to turn the show in on itself, coming up with something that’s well thought-out and miraculous.
+ - Romania is an interesting place because I think it has been abused, on so many different levels.
+ - Were kind of in our own cocoon making it. Every once in a while you stick your head up for a second, and you just cant believe how successful the show has become.
+ - I wasn’t trying to do a play or do what Kevin Spacey did. I was trying to do my own thing.
+ - There are certain moments that you have to hit in a film, like when a character cries.
+ - There’s a confidence that comes from youth and not knowing better.
+ - I couldn’t see my father’s films because they were restricted and we didn’t have videos or DVDs back then.
+ - I’ve wanted to work with my father for 30 years, and I’m really grateful that I finally had the opportunity, and it ended up – the experience and, I believe, the film – better than I could ever have hoped for.
+ - There are a lot of movies I’d like to throw away. That’s not to say that I went in with that attitude. Any film I ever started, I went in with all the hope and best intentions in the world, but some films just don’t work.
+ - Most of my career I’ve spent really nervous. Just about work, getting work and having it in.
+
+55 quotes

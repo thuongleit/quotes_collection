@@ -1,0 +1,85 @@
+ - Maybe I’m a bit of a psycho-but I’d rather be psycho than boring.
+ - Isn’t everything we do in life a way to be loved a little more?
+ - I don’t want to go to the Bahamas on holiday. I hate islands. I want to go to Brittany, where it’s cold and raining, and there’s nothing fancy about it.
+ - My therapist in Paris once told me that being creative is a better form of therapy for me than sitting on his couch.
+ - Too many women throw themselves into romance because they’re afraid of being single, then start making compromises and losing their identity. I won’t do that.
+ - Baby, you are gonna miss that plane.
+ - I’m a very independent person, I love being alone, writing and doing music and stuff.
+ - Never take no for an answer. It took me 20 years between the time I wrote my first screenplay and the time I actually got money to direct a movie.
+ - Reality and love are almost contradictory for me.
+ - I didn’t really fit with other kids. I had problems in school all my life and problems with authority. But my parents never did drugs or anything. They just believed in freedom in the best sense of the word.
+ - I think it’s nice when everyone’s happy. I’m that kind of person. But then sometimes you have people that are never happy, which also happened to me a little bit, people that always find ways to complain about everything. But if they’re never happy, that’s the way they are.
+ - I’m a very direct person and, sometimes, when I want something, I will push it until I get it. But, it’s OK. It’s not as bad as some people. When I have an idea in my head, I’m pretty stubborn.
+ - I’m an adaptable nomad. I love Paris, I’ve been living in Los Angeles and New York since 1990. I love London, too. My roots are inside of me.
+ - I would assume that there is a greater amount of joy for you in being able to write and help produce your own stuff and make a decent living, but not get rich versus always doing the other stuff that you don’t write, and make more money.
+ - I’ve proven that I’m not a complete failure. Every film has done well. It’s like, ‘So, okay, when do I get my deal at Warner Bros?’
+ - Maybe every family is dysfunctional, and that’s the only thing in common throughout the world.
+ - I wasn’t born an artist. I was really good in science as a kid. I probably shouldn’t have been an artist because I’m much more interested in science. But I was raised by artists. I can’t really escape it.
+ - You can never replace anyone because everyone is made up of such beautiful specific details.
+ - I had to trick people into giving me money for my first film. Making a romantic comedy is easier and more expected from a woman than it is to make a drama about a Japanese warrior.
+ - My experience is that relationships can be difficult, hard work. I love to be in a relationship.
+ - I have a few other films in my life where I’m not attached and for a long time it was too complicated. Now it’s starting to change because other actresses actually want to work with me, which is great.
+ - It’s terrifying. Women make their first film, their second film, and then it’s like a nightmare, right, to make the third or fourth? I mean, it’s almost like men can have three films in a row that don’t do that well and keep on going.
+ - I avoid confrontation. When I’m on set I never snap at anyone. I don’t have a temper.
+ - It’s easier for Europeans to give money to a movie that says a blow job is what brought down American democracy.
+ - I’ve never had help from anyone, ever. I’ve never had this great director who saw themselves in me, because I’m a French woman in Hollywood. Who could identify with me as a successful director in Hollywood? Nobody. And the few people who could have been mentors, instead they just stole my ideas.
+ - I’m dreaming about making movies for eight weeks, because it’s a luxury. But time is money. That’s the reality.
+ - I think some people, when they get a certain ego, they lose sense of whatever.
+ - In real life, when you speak with each other you overlap each other, so you can’t fake that. Like especially when you have no cut. In a regular film when you want people to overlap you cut it that way. It’s mixing and editing.
+ - The camera can move, you can make the shots, blah blah blah, but as long as the actors are good, you have something.
+ - People think women directors are tough. Truth is, I’m a pussycat and I hate conflict. I just want everyone to be happy on set.
+ - I can’t really explain the feeling of acting. It makes you the most insecure you can possibly be.
+ - Maybe I would get the chance to be financed for a small romantic comedy, but a war movie by a 28-year-old woman about Japanese soldiers? No one was going to go for that. It’s easy to just steal an idea because it’s very safe.
+ - I definitely didn’t fit in perfectly to the school system. I was raised with such freedom of speech and thinking.
+ - I was six years old when I saw my first Godard movie, eight when I first experienced Bergman. I wanted to be a director when I was fourteen.
+ - I always wanted to write a story about a couple coming to that moment in their relationship where either they keep on going or it ends.
+ - For Europeans a president having an affair, especially in France, is a joke. No one cares, it would never bring this kind of trouble to a country.
+ - Some films do portray women in their 40s well, and some other films don’t. Some films are written by women, so maybe there’s a little more accuracy there.
+ - I love the acting process. What I don’t like is what’s around it. The auditions and being rejected every other day. The look thing. That you have to lose weight, that you have to do Botox.
+ - The people that are succeeding have often had a mentor of some kind. I think it makes a huge difference.
+ - I love making movies. I love writing. I love acting. I love it, and I feel really blessed to be able to actually make a living with something I love doing.
+ - I actually love Scorsese comedies. He’s an underrated comedy director. I think his comedies are some of the best comedies ever made.
+ - I think it’s obsessions that a lot of people share, but they don’t dare to talk about openly.
+ - Performing is the hardest thing. Even though I’ve done it for so many years, it’s still exposing yourself. You suddenly become extremely vulnerable when you’re on camera. You’re filmed and you’re being observed. It’s a bit of a violation each time.
+ - I make these little films. I’m just a working person. I just study people a little bit more. It’s more sociological, and it’s funny anyway – not that serious. It’s not like false humility. I just take it for what it is.
+ - What’s funny is that with my comedies I don’t believe they’re my best screenplays necessarily. They’re just the ones that I wrote that I knew I could get financing, you know? I believe my other films could be better, but right now they’re not being made. But they will eventually.
+ - I’m comfortable wherever I am, and I can be anywhere and feel comfortable after three weeks. I adapt, and I’m like a chameleon. If a country doesn’t have Internet, then I get used to not having the Internet. I could basically live anywhere. I’m a nomad at heart. Nothing is more boring than monotony.
+ - I love acting and I still want to do it, but I’ve such an instinct for directing, it’s something that comes naturally to me. It’s why I’m here on this planet.
+ - I talk a lot. I express a lot of my feelings verbally.
+ - The truth is I don’t see a lot of movies. I see the Oscar films. I see the films that are sent to me and a few films throughout the year.
+ - I don’t know any woman in France who doesn’t talk to firemen and smile at them, because they’re always so sweet, and they’re wearing those tight pants. Even my dad looks at their ass when they walk down the street!
+ - I want to be positive and say: everything I’ve written will get made eventually.
+ - Few years ago, I said something about the Academy being very white male, which is the reality, and I was slashed to pieces by the media.
+ - We didn’t want to disrupt the creative process. We have the chance to make the films we want because the films are not expensive. It’s very rare to be able to do that. It’s completely pure.
+ - I like doing sequels. Basically, I think it’s a fun thing to follow characters in time. In real time.
+ - People around you that you feel you’re close to, are they really wishing you good things, you know?
+ - To make what you have in your head, I think that’s what directing is.
+ - I sometimes wish I were African American because people don’t bash them afterward. It’s the hardest to be a woman.
+ - When you’re an actress, you become this thing in people’s hands that people are trying to manipulate. I cannot stand it.
+ - I hate that whole Tarantino thing about beating up women and killing them and chopping up. Just because you have the mind of a 12 year old.
+ - I’ve directed five films and I’ve proven that people have made money with my films – many people have made money with my films.
+ - I’m quite neurotic, usually. But when it comes to work, I become extremely focused.
+ - I was having this awful nightmare that I was 32. And then I woke up and I was 23. So relieved. And then I woke up for real, and I was 32.
+ - You’re never totally sure. I shouldn’t say that because you have to pretend you’re completely self-secure all the time. But, the truth is, I know what I’m doing. I think I know what I’m doing.
+ - I did a film that I shot in 24 hours that was self-financed for $5,000. It was a feature called Looking For Jimmy that I shot with a bunch of friends. I spent eight months editing because we had 24 hours of footage that made no sense and I learned a lot about directing while editing that film.
+ - The condition of being an actress can be unbearable.
+ - A lot of new American directors have had mentors who have given them advice. And some of them have had the way paved for them by huge Hollywood directors who saw a younger version of themselves.
+ - It’s definitely easier for a woman to do a romantic comedy than a war movie. It’s assumed a woman doesn’t have a sense of what action is.
+ - I learned directing by editing because I saw all the mistakes I had made.
+ - People have their faults, but it doesn’t prevent you from loving them.
+ - I think I do find humor in disorder, and reality is disorder.
+ - I think anyone who has had a fight and who’s a very good observer of the situation and people’s behavior is capable of writing a fight. But you do start thinking about writing during the fights that you have with your partner.
+ - It’s a typical story: you think of something, it stays in the back of your head for a while, and then you finally do it.
+ - I went to film school to make films just because you’re in control of the story.
+ - The way I work is that I never let people do an assembly. I don’t like it because it shapes the film in a way that I can’t really control. To me, editing is making the film and it’s a huge process and editors are under-rated.
+ - If Woody Allen called me, I’d be there straight away. Who wouldn’t? Truly.
+ - Our society is so much about fidelity being this thing that’s sacred, and people are miserable. They’re suicidal. It brings more depression than anything else on earth, probably. Sorry to say that, guys.
+ - Very quickly I realized that directing is a combination of things: It’s visual, it’s directing the actors, it’s telling a story. And people don’t always mention this part of directing, but it’s also knowing how to really edit something into something that makes sense.
+ - I put my films together in Europe and it kick-starts the financing when I’m attached as an actress. It makes it easier to move forward.
+ - Basically, editing is done in rehearsal and in the writing process and in the acting, so it’s very, very tricky, very, very tricky.
+ - Usually I’m able to imagine something and it comes out as I imagined, more or less.
+ - And I realized that directing actors is really important because that’s what ends up on screen.
+ - I don’t like to be overly directing people either. I tell them what I want and I tell them when it’s wrong. I tell them no, that’s not what I want. I want it more like this or more like that. I’m pretty direct with everyone, and I treat everyone the same which might be good.
+ - I find most films about fashion terrible because they are caricaturish.
+
+83 quotes

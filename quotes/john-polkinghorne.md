@@ -1,0 +1,33 @@
+ - Mathematics is the abstract key which turns the lock of the physical universe.
+ - Nevertheless, all of us who work in quantum physics believe in the reality of a quantum world, and the reality of quantum entities like protons and electrons.
+ - The rational transparency and beauty of the universe are surely too remarkable to be treated as just happy accidents.
+ - Those theologians who are beginning to take the doctrine of creation very seriously should pay some attention to science’s story.
+ - I need the binocular approach of science and religion if I am to do any sort of justice to the deep and rich reality of the world in which we live.
+ - After all, the universe required ten billion years of evolution before life was even possible; the evolution of the stars and the evolving of new chemical elements in the nuclear furnaces of the stars were indispensable prerequisites for the generation of life.
+ - God didn’t produce a ready-made world. The Creator has done something cleverer than this, making a world able to make itself.
+ - Chance doesn’t mean meaningless randomness, but historical contingency. This happens rather than that, and that’s the way that novelty, new things, come about.
+ - It is the faithfulness of God that allows epistemology to model ontology.
+ - When you realize that the laws of nature must be incredibly finely tuned to produce the universe we see, that conspires to plant the idea that the universe did not just happen, but that there must be a purpose behind it.
+ - I’m a very passionate believer in the unity of knowledge. There is one world of reality – one world of our experience that we’re seeking to describe.
+ - The physical fabric of the world had to be such as to enable that ten billion year preliminary evolution to produce the raw materials of life. Without it there would not have been the chemical materials to allow life to evolve here on earth.
+ - If the experience of science teaches anything, it’s that the world is very strange and surprising. The many revolutions in science have certainly shown that.
+ - I also think we need to maintain distinctions – the doctrine of creation is different from a scientific cosmology, and we should resist the temptation, which sometimes scientists give in to, to try to assimilate the concepts of theology to the concepts of science.
+ - I very much enjoyed my career in science. I didn’t leave science because I was disillusioned, but felt I’d done my bit for it after about twenty-five years.
+ - Well, it’s because I gladly acknowledge some ideas that are part of process theology, but which I think are not tied to all the details of process thought, and are very illuminating and helpful.
+ - However, as the Eastern churches have always maintained, through Christ creation is intended eventually to share in the life of God, the life of divine nature.
+ - Theologians have a great problem because they’re seeking to speak about God. Since God is the ground of everything that is, there’s a sense in which every human inquiry is grist to the theological mill. Obviously, no theologian can know everything.
+ - At present, too much theological thinking is very human-centered.
+ - Evolution, of course, is not something that simply applies to life here on earth; it applies to the whole universe.
+ - I think it’s very important to maintain the classical Christian distinction between the Creator and creation.
+ - Of course, Einstein was a very great scientist indeed, and I have enormous respect for him, and great admiration for the discoveries he made. But he was very committed to a view of the objectivity of the physical world.
+ - Science cannot tell theology how to construct a doctrine of creation, but you can’t construct a doctrine of creation without taking account of the age of the universe and the evolutionary character of cosmic history.
+ - Whitehead reacted strongly against the idea of God as a cosmic tyrant, one who brings about everything.
+ - Of course, nobody would deny the importance of human beings for theological thinking, but the time span of history that theologians think about is a few thousand years of human culture rather than the fifteen billion years of the history of the universe.
+ - I was very much on the mathematical side, where you probably do your best work before you’re forty-five. Having passed that significant date, I thought I would do something else.
+ - Yes, I was a parish priest for five years. I was a curate in a large working class parish in Bristol and the Vicar of a village in Kent.
+ - People, and especially theologians, should try to familiarize themselves with scientific ideas. Of course, science is technical in many respects, but there are some very good books that try to set out some of the conceptual structure of science.
+ - So Whitehead’s metaphysics doesn’t fit very well on to physics as we understand the process of the world.
+ - God is not a God of the edges, with a vested interest in beginnings. God is the God of the whole show.
+ - Bottom up thinkers try to start from experience and move from experience to understanding. They don’t start with certain general principles they think beforehand are likely to be true; they just hope to find out what reality is like.
+
+31 quotes

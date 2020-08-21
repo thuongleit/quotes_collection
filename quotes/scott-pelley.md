@@ -1,0 +1,23 @@
+ - There is no democracy without journalism.
+ - In a world where everyone is a publisher, no one is an editor. And that is the danger that we face today.
+ - Democracies succeed or fail based on their journalism. America is strong because its journalism is strong. That is how democracies work. They’re only as good as the quality of the information that the public possesses and that is where we come in.
+ - If you’re first, no one will ever remember. If you’re wrong, no one will ever forget.
+ - Democracies succeed or fail based on their journalism.
+ - That’s gossip. Journalism was invented as an antidote to gossip.
+ - The country is only as strong as its journalism – that’s the way democracies work. The higher the quality of the information, the better informed the electorate is and the better the government runs.
+ - The quality of life in America is dependent on the quality of the journalism. Most people don’t realize that, but if you think about it, journalism is one of the pillars on which our society is perched.
+ - Never before in human history has more bad information been available to more people.
+ - No one wanted to hire me. No newspaper, television station, television network that I worked for ever wanted to hire me.
+ - When you are talking to 7 million viewers across the country, man you have got to represent everybody’s views and have got to give them the impression that you are being as honest as you know how to be.
+ - Not a lot of people watch cable news, they just don’t.
+ - You have to be a political leader, willing to lose an election if you want to do what’s right.
+ - I wonder at what point do you stop doing what you think is right and you start doing what the majority of the American people want?
+ - The American people can always be trusted with the information.
+ - No one ever wanted to hire me. Ever. I’ve never been recruited anywhere. I have beat my head against every wall, at every place that I worked.
+ - Science doesn’t care, by and large, what the answers are. It’s only interested in getting the right answer. And journalism should be very much that way.
+ - The problem the cable channels have is they have to fill 24 hours. That’s a terrible thing. We only do that on the biggest stories. The thing is there has happened to be a lot o.
+ - Journalists are getting big stories wrong, over and over again.
+ - I’m always trying to get those interviews that are impossible to get, because they are the ones that are most interesting to the audience.
+ - You have to take risks on policy. You can’t be a politician, wringing your hands, worried about what the public opinion polls are saying or worried about the negative attacks. If you believe in something, go fight for it.
+
+21 quotes

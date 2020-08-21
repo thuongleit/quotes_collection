@@ -1,0 +1,34 @@
+ - Please come back soon. The window is always open.
+ - Careless talk costs lives.
+ - We are a sensational team.
+ - Fight with realistic hope, not to destroy all the world’s wrong, but to renew its good.
+ - It’s like being in love, discovering your best friend.
+ - It was a rather extraordinary conversation if you think about it – both of us speaking in code. But not military code, not Intelligence or Resistance code – just feminine code.
+ - Oh Julie, wouldn’t I know if you were dead? Wouldn’t I feel it happening, like a jolt of electricity to my heart?
+ - But I have told the truth. Isn’t that ironic? They sent me because I am so good at telling lies. But I have told the truth.
+ - But a part of me lies buried in lace and roses on a riverbank in France-a part of me is broken off forever. A part of me will be unflyable, stuck in the climb.
+ - A part of me will always be unflyable, stuck in the climb.
+ - Hope is treacherous, but how can you live without it?
+ - One moment flying in green sunlight, then the sky suddenly grey and dark.
+ - Nothing like an arcane literary debate with your tyrannical master while you pass the time leading to your execution.
+ - Incredible what slender threads you begin to hang your hopes on.
+ - There’s glory and honour in being chosen. But not much room for free will.
+ - There is only one reason I did not go down in flames over the Angers, and that is because I knew I had Julie in the back. Would never have had the presence of mind to put that fire out if I hadn’t been trying to save her life.
+ - But people need lift, too. People don’t get moving, they don’t soar, they don’t achieve great heights, without someone buoying them up.
+ - You can’t just sit in a corner weeping or you’ll die.
+ - It’s an illusion I’ve noticed before – words on a page are like oxygen to a petrol engine, firing up ghosts. It only lasts while the words are in your head. After you put down the paper or pen, the pistons fall lifeless again.
+ - Hope is the most treacherous thing in the world. It lifts you and lets you plummet. But as long as you’re being lifted you don’t worry about plummeting.
+ - God knows what I thought! Your brain does amazing acrobatics when it doesn’t want to believe something.
+ - Must stop. This ink is amazing, it really doesn’t smear, even when you cry on it.
+ - Don’t know how I kept going. You just do. You have to, so you do.
+ - It’s impossible to stall a Lizzie.
+ - Maddie took the top of her egg off. The hot bright yolk was like summer sun breaking through cloud. The first daffodil in the snow. A gold sovereign wrapped in a white silk handkerchief. She dipped her spoon in it and licked it.
+ - And I envied her that she had chosen her work herself and was doing what she wanted to do. I don’t suppose I had any idea what I ‘wanted’ and so I was chosen, not choosing. There’s glory and honor in being chosen. But not much room for free will.
+ - Von Loewe really should know me well enough by now to realize that I am not going to face my execution without a fight. Or with anything remotely resembling dignity.
+ - Southampton’s barrage balloons floated gleaming in the moonlight like the ghosts of elephants and hippos.
+ - Five years of destruction and mayhem, lives lost everywhere, shortages of food and fuel and clothing – and the insane mind behind it just urges us all on and on to more destruction. And we all keep playing.
+ - He just put his hand through the bulkhead, exactly as she’d done, and squeezed my shoulder. He has very strong fingers. And he kept his hand there the whole way home, even when he was reading the map and giving me headings. So I am not flying alone now after all.
+ - It is so hard trying to say what you mean.
+ - If you show this devious little liar one atom’s worth of compassion I will have you shot.
+
+32 quotes

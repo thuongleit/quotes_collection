@@ -1,0 +1,30 @@
+ - There is no definition of beauty, but when you can see someone’s spirit coming through, something unexplainable, that’s beautiful to me.
+ - Beauty comes from the happiness within.
+ - Solitude has its own very strange beauty to it.
+ - I would rather share one lifetime with you than face all the ages of this world alone.
+ - Beauty is not defined by the size of your jeans.
+ - Casey Affleck is a really good friend of mine. I know Casey a lot better than I know Ben, even though Ben and I have worked together a lot.
+ - I cried on my 18th birthday. I thought 17 was such a nice age. You’re young enough to get away with things, but you’re old enough, too.
+ - It’s terrifying. It’s so scary, because you get used to being around the crew and being friendly with everyone and then suddenly, at a certain point, everything switches and you’re the one standing behind the lights and nobody’s going to help you. And that can be really difficult sometimes.
+ - After applying foundation and a little blush, dust your face with translucent powder, then mist skin with a rosewater spray and lay a Kleenex over for a second. It makes your face seem flawless in a way that looks as if you aren’t wearing any makeup.
+ - I have been working since I was 14, nonstop.
+ - Ive been told that if I lose weight Id have more work, but I refuse to submit myself to Hollywood standards. To the rest of the world I am slim and I like the way I am.
+ - Oh, my God, this amazing cool breeze is coming through my window and the sun is shining. I’m happy.
+ - Life excites me-just little, normal, everyday things. Getting out of bed. Getting dressed. Making food. I find it all exciting.
+ - Working with Bernardo Bertolucci was one of the greatest highlights of my whole life. It was such an incredible opportunity for me.
+ - I love to go shopping at Target. They have so much stuff there, you can buy almost anything, it’s really amazing.
+ - I think it’s healthy for couples to be away from each other for short periods.
+ - All I can say is the most important part of being in a relationships that you love the person for who they are.
+ - Hopefully, I can continue to do anything I want. I just want to do things that I’m passionate about in this life.
+ - I’ve been spending this last month trying to find four outfits to wear to the different premieres of The Two Towers. It’s hard work.
+ - I’ve sung my whole life. I’ve taken lots of voice lessons and I love to sing. But I’ve never really sung professionally at all.
+ - When I was pregnant. I exercised and was healthy, but it was also the first time since I was 14 that I wasn’t on a diet.
+ - I don’t think a lot of really good films get seen.
+ - There’s no cream that can fix you if you’re not beautiful on the inside.
+ - Sure, my childhood was unusual. All these eccentric, wild people frequented our home: rock stars, drag queens, models, bikers, freaks. But I was not this little rich girl. My mom and I lived in an apartment.
+ - I am scared of becoming a mother.
+ - I love my dad, although I’m definitely critical of him sometimes, like when his pants are too tight. But I love him so much and I try to be really supportive of him.
+ - It was a very good experience. It wasnt just to make a movie, it was my life. I was employed at The Lord of the Rings for a year and a half.
+ - I don’t think I’m particularly beautiful at all.
+
+28 quotes

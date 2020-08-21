@@ -1,0 +1,67 @@
+ - If I could start again, a million miles away, I would keep myself, I would find a way.
+ - If you have something to say, then say it. Express yourself and break the rules.
+ - I want to do something that matters.
+ - God is DEAD, and no one cares! If there is a hell I’ll see you there!
+ - I was at my most miserable when I had everything I ever wanted.
+ - I thought I’d reached the bottom a few times, but then I’d realise there was another 30 floors of despair below that.
+ - You can punch a wall or write a song. Just as painful either way, but you have something to show for it at the end of the day with a song.
+ - Books are better than movies because you design the set the way you want it to look.
+ - I do actually believe in love. I can’t say that I’m 100 percent successful in that department, but I think it’s one of the few worthwhile human experiences. It’s cooler than anything I can think of right now.
+ - Balance is good, because one extreme or the other leads to misery, and I’ve spent a lot of my life at one of those extremes.
+ - I believe there’s a God but I’m not too sure of his relevance.
+ - In my life, I was always floating around the edge of the dark side and saying what if take it a little bit too far, and who says you have to stop there, and whats behind the next door. Maybe you gain a wisdom from examining those things. But after a while, you get too far down in the quicksand.
+ - An integral part of any relationship is knowing that you could be killed in your sleep at any time.
+ - Tired faith all worn and thin, for all we could have done, and all that could have been.
+ - All I’ve undergone I will keep on.
+ - And when the day arrives I’ll become the sky and I’ll become the sea and the sea will come to kiss me for I am going home. Nothing can stop me now.
+ - I was up above it. Now, I’m down in it.
+ - Sometimes I think I spend my whole life trying to figure out where I fit in.
+ - When an instrument fails on stage it mocks you and must be destroyed!
+ - I think, fundamentally, music is something inherently people love and need and relate to, and a lot of what’s out right now feels like McDonalds. It’s quick-fix. You kind of have a stomachache afterwards.
+ - To me, rock music was never meant to be safe. I think there needs to be an element of intrigue, mystery, subversiveness. Your parents should hate it.
+ - I write most of my songs when I’m in a bad mood.
+ - I’ll be there for you, as long as it works for me. I play a game, its called insincerity.
+ - Perfect little dream, The kind that hurts the most.
+ - Lots of people can have girlfriends. But I can throw around guitars onstage! That’ll be my epitaph: ‘He never had a girlfriend, but you should’ve seen him smash a Les Paul!’
+ - I realized that I was afraid to really, really try something, 100%, because I had never reached true failure.
+ - Though I still have no semblance of a life outside of Nine Inch Nails at the moment, I realize my goals have gone from getting a record deal or selling another record to being a better person, more well-rounded, having friends, having a relationship with somebody.
+ - I thought my goal in life was to be in a successful band, and I had got that, but I was as miserable as I had ever been, and I couldn’t understand why that would be.
+ - The Grammys make me hate music, and certainly everyone in the ass-licking music industry.
+ - I become irritated when I am being written off as aloof or stand-offish when I’m shy and don’t know what to say.
+ - One step closer to the end of the world. The one-two combo of corporate greed and organised religion apparently proved to be too much for reason, sanity and compassion.
+ - I really try to put myself in uncomfortable situations. Complacency is my enemy.
+ - I’d never want to be Gene Simmons, an old man who puts on makeup to entertain kids, like a clown going to work.
+ - I’ve become impossible, holding on to when everything seemed to matter more.
+ - This isn’t meant to last. This is for right now.
+ - The result of a public that has a very high consumption rate and turnover rate is people listen to more music but spend less time with individual bits of music. It’s made me more likely to put things up quickly and treat it more like a magazine instead of a novel.
+ - My music has been a sort of personal therapy. It’s got me out of tough times, it has been the friend that I needed, when I didn’t have a friend there.
+ - Jumping through any hoop or taking advantage of any desperate situation that comes up just to sell a product is harmful. It is.
+ - One of my biggest heroes and people I was fortunate enough to be around is David Bowie. I look at his career, and he always had the balls to break things that weren’t broken, to step away from something and try something new, at risk of failing.
+ - Today’s political climate does not allow the luxury of apathy.
+ - Being human is a lot more difficult than being on tour.
+ - It’s kind of a miracle to think that a device in your pocket can play pretty much any song that the world has ever created.
+ - I feel uncomfortable because I’m insecure about who I am.
+ - I realized when I was 23 that I had never really tried anything.
+ - There’s nothing like a stressful day.
+ - My moral standing is lying down.
+ - I think the whole aspect of social networking is vulgar and repulsive in a lot of ways.
+ - If I come up with rules or limitations it focuses me in a direction. And those rules can change if you realize it’s a dumb idea. You start to mutate it to see what fits best.
+ - I think theres something strangely musical about noise.
+ - Try to find the right balance of keeping things exciting and treating your audience with respect, and also treating yourself as an artist with respect.
+ - I’m just trying to figure out the right balance between making fans feel good and also maintaining some dignity for myself in the process.
+ - Live interaction with a crowd is a cathartic, spiritual kind of exchange, and its intensified at a festival.
+ - His perfect kingdom of killing, suffering and pain Demands devotion, atrocities done in his name.
+ - The dynamic of a relationship changes when one person gets sober.
+ - When I look at people that I would like to feel have been a mentor or an inspiring kind of archetype of what I’d love to see my career eventually be mentioned as a footnote for in the same paragraph, it would be, like, Bowie.
+ - I have been wildly enthused about gaming since I was younger, and a career path I chose not to go down but did really consider was getting into programming and game design.
+ - Frankly, I have always dreaded writing – there always seemed to be pain involved, unpleasant self-examination and a lot of fear.
+ - I’ve got a canvas, I’ve got a scene, let’s fill that with sound.
+ - I found that when I was putting my own music out, with my Twitter feed as the pure marketing budget, Im preaching to the choir.
+ - To switch right into creativity usually takes a bit of time, and this came up right at that juncture where I thought, okay, here’s an opportunity to work with somebody I really respect in a new medium.
+ - I didn’t want to be in a Pepsi commercial with R2-D2 sitting on my shoulder.
+ - The least responsive audience I can ever remember playing to.
+ - Any time I sit down and write music, the first part of that is always centering myself and thinking about who I currently am.
+ - I think if there was an ISP tax of some sort, we can say to the consumer, ‘All music is now available and able to be downloaded and put in your car and put in your iPod and put up your a – if you want and it’s $5 on your cable bill.’
+ - Why don’t the Grammys matter? Because it feels rigged and cheap – like a popularity contest that the insiders club has decided.
+
+65 quotes

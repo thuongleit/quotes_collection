@@ -1,0 +1,158 @@
+ - If you love something, let it go. if it was meant to be, it will come back to you.
+ - Finding someone you love and who loves you back is a wonderful, wonderful feeling. But finding a true soul mate is an even better feeling. A soul mate is someone who understands you like no other, loves you like no other, will be there for you forever, no matter what. They say that nothing lasts forever, but I am a firm believer in the fact that for some, love lives on even after we’re gone.
+ - That’s what life is about: People come and go.
+ - I’ve learned that home isn’t a place, it’s a feeling.
+ - Be patient and tough; someday this pain will be useful to you.
+ - So now, all alone or not, you gotta walk ahead. Thing to remember is if we’re all alone, then we’re all together in that too.
+ - Chin up, don’t smile, don’t cry, don’t fall, walk.
+ - Time is more precious than gold, more precious than diamonds, more precious than oil or any valuable treasures. It is time that we do not have enough of; it is time that causes the war within our hearts, and so we must spend it wisely.
+ - Today I love you more than ever; tomorrow I will love you even more. I need you more than ever, I want you more than ever.
+ - Remember that happiness is a way of travel, it’s not a destination.
+ - Nothing is never nothing. It’s always something.
+ - I make it easier for people to leave by making them hate me a little.
+ - Every single ordinary person has an extraordinary story.
+ - Yesterday was a closed book, tomorrow, however, was another story.
+ - Tonight I’m happy. I will worry about tomorrow when tomorrow comes. But I’m getting there...
+ - Time cant be given. But it can be shared.
+ - Life has a way of getting what it wants when it really knows what it wants.
+ - I always want my books to reach a positive point in the end.
+ - It’s not about finding Mr Right, or that sort of conventional ending, but I do want my characters to have hope – and that’s what I do with all my stories.
+ - Seeming and being are not one and the same.
+ - Age is just a number, not a state of mind or a reason for any type of particular behaviour.
+ - Alone or not, you gotta walk forward.
+ - Stop and take your time to notice things and make those things you notice matter.
+ - You gotta be rich to be insane, Hol. Losing your mind is not a luxury for the middle class.
+ - We all make mistakes, some bigger than others, but none of us is perfect.
+ - Don’t ever take for granted when people look in your eyes; you have no idea how important it is to be acknowledged. Even if it’s an angry stare, because it’s when they ignore you, when they look right through you, that you should start worrying.
+ - Mistakes are the portals of discovery.
+ - We don’t realize what a privilege it is to grow old with someone.
+ - Day-to-day things, the mundane, are what keeps the motor running. How extraordinary the ordinary really is, a tool we all use to keep going, a template for sanity.
+ - Sometimes there is only one thing left to say, P. S. I Love You...
+ - Nobody’s life is filled with perfect little moments. And if it were, they wouldn’t be perfect little moments. They would just be normal. How would you ever know happiness if you never experience downs?
+ - We’re so arrogant, aren’t we? So afraid of age, we do everything we can to prevent it. We don’t realize what a privilege it is to grow old with someone. Someone who doesn’t drive you to commit murder or doesn’t humiliate you beyond repair.
+ - She had been given a wonderful gift: life. Sometimes it was cruelly taken away too soon, but it’s what you did with it that counted, not how long it lasted.
+ - Perhaps I’ve been rushing my whole entire life, jumping into things headfirst without thinking them through. Running through the days without noticing the minutes.
+ - Slow down. Stop trying to do everything now, now, now. Hold up the people behind you for all you care, feel them kicking at your heels but maintain your pace. Don’t let anybody dictate your speed.
+ - Everything in life has a place, and when one thing moves, it must go somewhere else.
+ - You shouldn’t try to stop everything from happening. Sometimes you’re supposed to feel awkward. Sometimes you’re supposed to be vulnerable in front of people. Sometimes it’s necessary because it’s all part of you getting to the next part of yourself, the next day.
+ - Moments are precious, sometimes they linger and other times they’re fleeing, and yet so much could be done in them; you could change a mind, you could save a life and you could even fall in love.
+ - Every small thing grows when you nurture it, Rosie. Love is just the same. But if that is making you miserable then, leave and find something else that brings you happiness you deserve to feel.
+ - This is my one and only life, and it is a great and terrible and short and endless thing, and none of us come out of it alive.
+ - I write my novels longhand. I love the feeling of writing; I love to see pen on paper. It feels more creative than typing, and it’s a more visual process for me – I can picture the entire scene in my head and am merely writing what I see.
+ - Her best friend was gone and nobody understood that no amount of makeup, fresh air or shopping was going to fill the hole in her heart.
+ - Life is everything, and you haven’t lived it properly until you believe.
+ - People forget they have options. And they forget that those things really don’t matter. They should concentrate on what they have and not what they don’t have.
+ - For the yesterdays and todays, and the tomorrows I can hardly wait for – Thank you.
+ - Often when we realize how precious those seconds are, it’s too late for them to be captured because the moment has passed. We realize too late.
+ - That’s the thing about lessons, you always learn them when you don’t expect them or want them.
+ - I used to think that it was better to have too much than too little, but now I think if the too much was never supposed to be yours, you should just take what is yours and give the rest back.
+ - If miracles had chemical equations then everyone would believe.
+ - Anyway, it doesn’t matter how much, how often, or how closely you keep an eye on things because you can’t control it. Sometimes things and people just go. Just like that.
+ - Her eyes, mostly cast downward, occasionally flicker upwards to meet his before falling again. She is apologetic for everything, as always, constantly saying sorry to the world, as though as her very presence offends.
+ - What seems tragic now won’t even be an issue in a few years time.
+ - Why do we stop believing in ourselves? Why do we let facts and figures and anything but dreams rule our lives?
+ - I think I wished for you all of my life.
+ - Close your eyes and stare into the dark.
+ - Always a chancer, always lucky, he’d fall into a river and come out dry, with fish in his pockets.
+ - We haven’t lost everything, if we haven’t lost our hope.
+ - But where pain was, healing could come; where loneliness was, new relationships could be formed; where rejection was, new love could be found. It was a moment. And moments changed. She would have to live through the moment to get to the next.
+ - Truth is, something that I thought was perfect was taken away from me, and I never wanted perfect again. I wanted middle of the road, stuff I didn’t care about so that I couldn’t lose anything I really loved ever again.
+ - There aren’t many sure things in life, but one thing I know for sure is that you have to deal with the consequences of your actions. You have to follow through on some things.
+ - When you’re on your own, you look for signs. Sometimes you make them up, sometimes they’re actually there, but most of the time you can’t tell the difference from the two.
+ - Empty words almost echo within themselves.
+ - Love can change us beyond recognition, we become love-sick, soft-eyed jelly-bellied fools.
+ - I would love to write a mystery – a romantic, funny mystery.
+ - Memories were fine but you couldn’t touch them, smell them or hold them. They were never exactly as the moment was, and they faded with time.
+ - She wanted to be irresponsible, she wanted to be looked after, to be told that she didn’t have to worry about a thing and that someone else would take care of everything. How easy life would be without having grown-up problems to worry about. And then she could grow up all over again...
+ - The first day of the rest of my life, and I’m not sure I want to be here. I know I should be thanking somebody for this, but I really don’t feel like it. Instead, I wish they hadn’t bothered.
+ - If invisible people eat invisible food does invisible wind blow invisible trees?
+ - I think I need to face what I could have been in order to understand and accept what I am.
+ - There are certain kinds of silence that make you walk on air.
+ - Being the best was as equal to being in the middle, which was equal to being the worst. All were merely a state of being. It was how a person felt in that state and why they were in that state that was the important thing.
+ - Have you ever not known something but known it at the same time?
+ - That somehow dreams are a blurred line between here and there, like a meeting room in a prison. You’re both in the same room, yet on different sides and really, in different worlds.
+ - Twice we stood beside each other at the altar, Rosie. Twice. And twice we got it wrong. I needed you to be there for my wedding day but I was too stupid to see that I needed you to be the reason for my wedding day. But we got it all wrong.
+ - There is no advice that I can give you, you will just have to trust yourself that when the time comes, you’ll make the right decision.
+ - I was the life and she was the soul of every party.
+ - He tried to tell me week after week to accept things as they were and move on with my life. But if there was one man who had put his life on hold to wait for something or someone, it was him.
+ - I always pushed myself. Whenever I felt I needed to stop, I made myself run faster.
+ - Your heart can break at any age.
+ - There is absolutely nothing wrong with returning to the house you grew up in every now and again. It’s good for the soul.
+ - The more you try to simplify things the more you complicate them. You create rules, build walls, push people away, lie to yourself and ignore true feelings. That is not simplifying things.
+ - You all looked so happy together in the photograph. You looked like the perfect family. Is there such a thing anymore because if there is, my happy little unit was definitely not in the queue when they were handing out the titles.
+ - But even in her laughter there was something missing. She never seemed to be truly happy; she just seemed to be passing time while she waited for something else. She was tired of just existing; she wanted to live.
+ - The important thing is not what we look like, but the role we play in our best friend’s life. Friends choose certain friends because that’s the kind of company they are looking for at that specific time, not because they’re the correct height, age, or have the right hair color.
+ - Children need close friends to help them grow up, to discover things about themselves and about life. They also need close friends to keep them sane.
+ - She needed to talk, she needed to cry, she needed to vent all her frustrations and disappointments.
+ - Their plan had been very simple: to stay together for the rest of their lives.
+ - Children are the ones that know exactly what’s going on in the world, you know. They ‘see’ more than adults, ‘believe’ in more, are honest, and will always, ‘always’ let you know where you stand.
+ - My box bedroom can only fit a bed and a wardrobe but it was my whole world. My only personal space to think and dream, to cry and laugh and wait until I became old enough to do all the things I wasn’t allowed to do.
+ - I don’t want to be one of those easily forgotten people, so important at the time, so special, so influential, and so treasured, yet years later just a vague face and a distant memory.
+ - You can run and run as fast and as far as you like, but the truth is, wherever you run, there you are.
+ - Any tightrope walker can walk in a straight line and hold a cane at the same time. It’s the balancing on the rope at those dizzying heights that they have to practise.
+ - More often than not, the easy decisions are the wrong decisions, and sometimes we feel like we’re going backward when we’re actually moving forward.
+ - I’m never overwhelmed or under it either; just nicely whelmed. I’m OK. Nothing spectacular but sometimes special. I look in the mirror and see this medium average person. A little tired, a little sad, but not falling apart.
+ - I don’t know why, but there’s always the part of you, the part that hides in the shadows protecting the self-destruct button, that doesn’t ever want to leave the dark behind.
+ - I write human stories. I write about people. Not as a product of their environment. But from the stance that everybody is made of the same thing.
+ - She couldn’t remember the last time she hugged someone, really hugged someone.
+ - It’s like my garden, love. Everything grows. Including love. And with that growing everyday how can you expect missing her to ever fade away? Everything builds, including our ability to cope with it. That’s how we keep going.
+ - She strived for perfection. She loved setting herself tasks, sometimes impossible ones, to prove to her heart that underneath every seemingly ugly thing there was something beautiful inside.
+ - So many objects, so many memories. Each was being labelled and packed away in bags just as it was in her mind. To be stored in an area that would sometime be called upon to teach and help in future life.
+ - Our minds do unusual things sometimes, Tamara. When we’re looking for things it takes it upon itself to go down its own route. All we can do is follow.
+ - That was all part of giving someone a piece of your heart; they ended up taking a whole chunk of your mind and reserving it all for themselves.
+ - Most of all she loved that when she hugged him her head would rest neatly just below his chin, where she could feel his breath lightly blowing her hair and tickling her head.
+ - It’s not easy remembering the good times.
+ - What if we knew what tomorrow would bring? Would we fix it? Could we?
+ - Aim for what u want and the year will all make a sense.
+ - Don’t mind all those people who say that you should be back to normal in a month or two. Grieving is all part of helping yourself anyway.
+ - But with your life you make a few bad decisions, get unlucky a few times, whatever, but you have to keep going, right?
+ - I generally don’t become overexcited about things anyway, I’m just not one of those people. I’m not easily surprised by things either. I think it’s because I expect that anything can happen.
+ - We have a tendency to put ourselves last, we concentrate on everything else; work, friends, family, home issues, but we ignore the deeper stuff until it becomes so compressed that it can explode.
+ - Decide where and when you want to write. I like space, and silence is an inspiration to me.
+ - Maybe love is thinking that every time your partner does or says something mundane that you want to start a Mexican wave from here to Uzbekistan in utter delight.
+ - Imagining and fantasizing did nothing but break her heart.
+ - I want a character to wake up one day and feel like, I can face it. That, to me, is happy. I want the characters to rescue themselves, though you use the relationships you have, to make you strong enough to be able to do that.
+ - Is not where I live happily ever after, or who with. It’s the fact that I live happily ever after.
+ - This love thing awakened a group of slumbering senses in my body that I never even knew existed.
+ - I never grew up thinking the goal in life was to be a millionaire. All the way through college, I had a part-time job. I worked hard to get the things that you need at that age.
+ - I’m most happy when I am writing at night, because I need space and time to write.
+ - Well isn’t that one thing you’re all the more wise for? Age has taught you something. It seems to me that you know the big secret. That nobody knows what’s going on.
+ - Believe me, when you die, it’s everybody else’s but your problem.
+ - Not like a heart, which let people in without permission, held them in a special place she never had any say in and then yearned for them to remain there longer than they planned.
+ - We each have our hiding places and we each put up with the little quirks of the people we love.
+ - Love is not a theme. It’s an atmosphere, a mood.
+ - There were hundreds of them spread across the floor, each telling its own tale of triumph or sadness, each letter representing a phase in her life. She had kept them all.
+ - Sometimes you have to give yourself to somebody in order to see who you are. Sometimes you have to unravel things to get to the core.
+ - Two lost things that had survived the seas and arrived on a coastline. What did they do? They implanted themselves in the sand and grew into trees and lined the beaches. Sometimes a lot can come of being all washed up. You can really grow.
+ - That was other thing i hated about kids; they always said th exact things that deep dpwn you already knew, would never admit, and most certainly never wanted to hear.
+ - Some people say that you shouldn’t operate from a place of fear but if there is no fear, how is there a challenge?
+ - Rosie: What the hell was that silence? Steph: It sounds like something I’d like. It sounded nice. Rosie: It was.
+ - I don’t know why men like to barbecue so much. Maybe its the only thing they can cook. Or maybe they’re just closet pyromaniacs.
+ - I can only assume that there’s only one thing more frustrating than not being able to find someone, and that’s not being found. I would want someone to find me, more than anything.
+ - I lost my dad. He lost his tomorrows and I lost all the tomorrows with him. You could say that now, I appreciate them when they come. Now, I want to make them the best they can possibly be.
+ - I can’t even think about what life “could have been” like in Boston, without crying. It’s like deja-vu, I don’t think me and Boston were ever meant to be.
+ - In truth, we’re all just pottering, filling the time that we have here, only we like to make ourselves feel bigger by compiling lists of importance.
+ - Sighs and silences and avoided conversations are just as important as the things you do talk about.
+ - People come and go.
+ - I had a million plans. I knew what I was going to do. I had the next few years of my life all figured out. But what I didn’t know was that within a few hours all those plans would change. Ms. Know-it-all didn’t quite know it all so much then.
+ - Nobody can pretend to know what people want to read or hear or see. People rarely know it themselves; they only know it after the fact.
+ - His entired life bundled into wenty refuse sacks. His and her memories bundle away in Holly’s mind. Each item unearthed dust, tears, laughter and memories. She bagged the items, cleared the dust, wiped her eyes and filed away the memories.
+ - Sometimes wrong numbers are the right numbers.
+ - One must not speak of such things. One is still scarred from that experience.
+ - Every single time you crossed over for me and met me on my side. I realize now, I don’t think I ever met you in the middle. And I don’t think I ever once said that you for that.
+ - I suppose it’s easier to see the way out of anything when you’ve found your way out of that maze. When you’re stuck in the middle, in a series of dead-ends making circles, it’s difficult to make any sense of anything.
+ - And nobody had told them that they were short on time.
+ - Then I realised that I was the god on this occasion. I had tried to help the bluebottle, but it wouldn’t let me. And then I felt sorry for God because I understood his frustration. Sometimes when people offer a helping hand, it gets pushed away. People always want to help themselves first.
+ - Love was one of those feelings that you could never control.
+ - How presumptuous they had both been never to consider growing old as an achievement and a challenge. Aging was something they’d both wanted so much to avoid.
+ - I felt that my views and philosophies had been changed overnight. The philosophies that i had gladly carved in stone, recited and danced upon.
+ - Yes it’s difficult. Yes it’s horrible. Yes it’s the worst thing that has ever happen in my whole life. But I just can’t give up.
+ - I guess when you’re trying to find all the parts of yourself, it’s difficult to be with someone who’s already fully intact.
+ - To mention it was to ask a favor and that as you were too generous, and as for her to ask was always to have, she wouldn’t.
+ - Nice is OK when it’s among other things but never when it stands alone.
+ - They say a story loses something with each telling.
+ - Hundreds of butts in piles on the ground to mark the spot, their lives sucked out of them by their users in panicked distressed frenzy, their souls floating around the insides of lungs while their outsides were dropped, stamped on and deserted.
+ - I’d tried enough to know that anything long term wasn’t going to work.
+ - Whenever I go to Germany I find that my readers have T-shirts with my book covers printed on them. They come to all the events, they have gifts and they come with their families. They are always very open to sharing their personal stories.
+
+156 quotes

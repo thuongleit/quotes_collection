@@ -1,0 +1,59 @@
+ - It is pointless to believe what you see, if you only see what you believe.
+ - It hurts every day, the absence of someone who was once there.
+ - Money is the most important thing in the world, you know. Money can buy you happiness, and I don’t care what anyone else thinks.
+ - Each day means a new twenty-four hours. Each day means everything’s possible again. You live in the moment, you die in the moment, you take it all one day at a time. -Day.
+ - Mom used to say that having three boys was kind of like having a pet tornado that talked back.
+ - I want to run. To do what I always do, have always done, for the last five years of my life. Escape, flee into the shadows. But this time, I stand my ground. I’m tired of running.
+ - Without emotion, what’s the point of being human?
+ - You try to walk in the light.
+ - Everyone has darkness inside them, however hidden.
+ - My heart’s been torn wide open, just like I feared it would be, and I have no willpower to close it back up.
+ - Can one mistake really destroy a lifetime together?
+ - Clouds suit my mood just fine.
+ - I’ve been searching a long time for something I think I lost. I felt like I found something when I saw you back there.
+ - Tell me there is still good in the world. Tell me there is still hope for all of us.
+ - What a joke! Poor little rich girl’s fallen in love with the Republic’s most famous criminal.
+ - I’m telling you that you got your facts wrong. I didn’t kill your brother. But you killed my mother. You might as well have held the gun to her head!
+ - The memory fades, and I’m left hanging on to the ghosts of his words.
+ - Love is illogical, love had consequences – I did this to myself, and I should be able to take it.
+ - Forever and ever, kid, until you’re sick and tired of seeing me.
+ - Then I realize from the hollow sound of her gun’s click that her gun isn’t loaded. Apparently she just wants to slap me around with it.
+ - All it takes is one generation to brainwash a population and convince them that reality doesn’t exist.
+ - Time heals all wounds. But not this one. Not yet.
+ - Sometimes, the sun sets earlier. Days don’t last forever, you know. But I’ll fight as hard as I can. I can promise you that.
+ - Brave thoughts, but am I ready to follow through on them?
+ - June has never looked more beautiful than she does now, unadorned and honest, vulnerable yet invincible.
+ - My mother used to hope that I would rise up from my humble roots. Become someone sucessful, or even famous. I’m famous all right, but I don’t think it’s what she had in mind.
+ - I could be compassionate, if I wanted. Metias would be merciful. But I was never as good a person as my brother.
+ - When had Eden grown up? I feel like I blinked and missed it.
+ - I make sure to keep a good distance between us, just in case she decides to get happy with a knife or something.
+ - Be true to yourself. But that’s something everyone says and no one means. No one wants you to be yourself. They want you to be the version of yourself that they like.
+ - Tomorrow, I will take on all of these things. I will be unstoppable.
+ - Yeah, something was wrong. That was the understatement of the year.
+ - I scream for everything that has gone wrong. I scream for everything broken in our lives.
+ - Fantasy and science fiction are where my brain lives.
+ - Day, the boy from the streets with nothing except the clothes on his back and the earnestness in his eyes, owns my heart. He is beauty, inside and out. He is the silver lining in a world of darkness. He is my light.
+ - Now you’ll get to see how I can really run a building, darlin. Not even a cracked knee to hold me back, yeah? What a nice birthday present.
+ - I feel so out of place here. No matter how much money the Republic throws at me, I will forever be the boy from the streets.
+ - Absolute power is absolute power, no matter what it’s called.
+ - I always knew, on some level, that I wouldn’t live long. It’s simply not written in my stars.
+ - Everything I am familiar with is gone.
+ - No matter what happens in the future, no matter where our paths take us, this moment will be ours.
+ - Day, the champion of the people, the one who can’t bear to see those around him suffer on his behalf, who would gladly give his life for those he loves.
+ - My heart is ripped open, shredded, leaking blood. I can’t let him leave like this. We’ve been through to much to turn into strangers.
+ - Idiotic reply, June. Why don’t you punch him in the face while you’re at it. I turn even more flustered when I remember that I have actually pistol-whipped him in the face before. Romantic.
+ - It feels like it’s the end of the world if you don’t do well on your SATs.
+ - He loves you, really he does. He’d love you even if it destroyed him. He matches you.
+ - We can heal. Perhaps we can return to that same place we once stood, when we were both young and innocent.
+ - Now, as we stand three feet apart and stare at each other, I feel the full distance that comes with spending so much time apart, a moment filled with the electricity of a first meeting and the uncertainty of strangers.
+ - Few people ever kill for the right reasons, June. Most do it for the wrong reasons. I just hope you never have to be in either category.
+ - I’m so tired. I don’t know if I can ever outrun how I used to be.
+ - Boys are different from girls, but boys are also different from other boys, just as girls are different from other girls. Calling a book for boys or for girls is well-meaning, but to me, not terribly helpful.
+ - When you’ve been poor all your life, you never really think it could be any other way. And sometimes you’re even happy, because at least you’ve got your family and your health and your arms and legs and a roof over your head.
+ - He pauses when he finishes undoing the last button, then closes his eyes. I can see the pain slashed across his face, and the sight tears at me. The Republic’s most wanted criminal is just a boy, sitting before me, suddenly vulnerable, laying all his weaknesses out for me to see.
+ - I started writing seriously when I was a teenager, around 14 years old.
+ - I don’t like seeing her this delicate.
+ - For a small moment, I fix my eyes on his, telling him silently everything that I’ll never say to him aloud.
+ - There’s a conflicted look in Day’s eyes, a joy and a grief, that makes him so vulnerable. I realize how little defense he has against my words. He loves so wholly. It is his nature.
+
+57 quotes

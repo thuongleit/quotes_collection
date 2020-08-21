@@ -1,0 +1,29 @@
+ - Studies have shown that inmate participation in education, vocational and job training, prison work skills development, drug abuse, mental health and other treatment programs, all reduce recidivism, significantly.
+ - No one should be denied the opportunity to get an education and increase their earning potential based solely on their inability to pay for a college education.
+ - We live in an information and knowledge-based economy.
+ - Today, education is perhaps the most important function of state and local governments.
+ - It is virtually impossible to compete in today’s global economy without a college degree.
+ - Obviously, there has to be a profound change in direction. Otherwise, interest on the national debt will start eating up virtually every penny that we have.
+ - In the Brown decision, the United States Supreme Court unanimously struck down the legal and moral footing of racially segregated public education in this country.
+ - Unequal funding resources also results in unequal educational opportunity when you consider studies that show that one half of low income students who are qualified to attend college do not attend because they can’t afford to.
+ - The Federal prison population has increased more than 7-fold over the past 20 years.
+ - We can play politics, or we can reduce crime.
+ - Another example of the educational inequality is the current debate over publicly financed school vouchers which will provide educational opportunities to a privileged handful, but deprive public schools of desperately needed resources.
+ - The destinies of the two races in this country are indissolubly linked together, and the interests of both require that the common government of all shall not permit the seeds of race hate to be planted under the sanction of law.
+ - The promise of equal educational opportunity envisioned by the Brown decision remains unfulfilled.
+ - Giving a 10-year mandatory minimum for a second offense fist fight is not going to reduce the chance that someone will be stabbed 16 times when you are not funding any of the programs that are desperately needed to actually reduce juvenile crime.
+ - Unfortunately, the elimination of incentives such as parole, good time credits and funding for college courses, means that fewer inmates participate in and excel in literacy, education, treatment and other development programs.
+ - We can continue our progress as a Nation toward the promise that all people are created equal and that our Nation will treat every person in that spirit.
+ - While there are many obstacles that deter students from going to college, finances by no means should be the deciding factor.
+ - So, the struggle for equal educational opportunity continues.
+ - It is difficult to overstate the importance of the Civil Rights Act.
+ - I think we should worry about Social Security first and then tax cuts second.
+ - There is nothing Federal about local volunteer fire departments.
+ - Each year over 2,500 commercial vessels enter the Port of Hampton Roads alone, so adequate funding for port security is a significant issue for those of us who live in Richmond and Hampton Roads.
+ - In fact, the Harvard study data indicates that 70 percent of African American children attend schools that are predominately African American, about the same level as in 1968 when Dr. King died.
+ - And what is needed to prevent them from joining gangs was ample recreation for boys as well as girls, jobs and internships for training and money, and assistance to allow their families to live in decent homes.
+ - Present law has a process to ascertain whether or not a patient is in a persistent vegetative state, and it should not matter what politicians think.
+ - If we increase spending, we have got to raise taxes or any combination.
+ - While we must ensure that these dangerous new drugs and precursors do not get in the hands of children or others who would use them improperly, we must also be aware that these same drugs have legitimate uses.
+
+27 quotes

@@ -1,0 +1,29 @@
+ - Theres nothing more reassuring than a world thats crazier than you are.
+ - I don’t think that people in the world, in general, have too many chances.
+ - We don’t live. We’re miming in the choir.
+ - There is no overacting, only untrue acting.
+ - I never help my kids and I never encourage them and I never give them any advice.
+ - Even the most despicable person is still a human being.
+ - All directors are control freaks and very obsessive. I get the feeling that directors as kids, they all have had a childhood with not too much contact with other kids. They constructed their own reality and they continue to do it. It’s a funny breed, directors.
+ - Norwegian kids, they grow up well educated in film. So they have a lot of good directors there.
+ - I treat everyone as equals. I can’t work if I’m not having fun, and I can’t have fun if not everyone is happy.
+ - Norway is a small country, about half the size of Sweden, but it has a very good film climate because they have municipal cinemas, so even in the smallest towns you have a cinema that shows art house films from all over the world.
+ - I love having 30 shots of every scene.
+ - People don’t want to read subtitles.
+ - Casting a film, you can have the greatest actors in a film and it doesn’t work. It’s a combination of all of the elements.
+ - It’s really nice to go down to an extremely low-budget movie, but that is very daring and courageous and try something different, where the roles usually are more complicated.
+ - I’m not always happy when Hollywood does remakes of films, but that’s usually, when they have a very, very, very good film and they take away anything controversial from it and make flatter.
+ - One of the beauties of ‘The Girl with the Dragon Tattoo’ is the very delicate and strange relationship between the two main characters.
+ - Actors are different. Some actors play themselves very successfully, but I come from the theater. Having done Shakespeare, we sometimes did three or four characters in the same play.
+ - The way I look at humanity, I don’t think there’s good guys or bad guys. We’re all potentially bad and potentially good.
+ - I’m in Stockholm in my office. I just got here after seeing my eighth child on an ultrasound, so I’m in a good mood. It’s beautiful: an energetic little skeleton.
+ - I’m not lazy on set. I’m lazy in the rest of my life.
+ - I played a heap of snow in a school play. I was under a sheet, and crawled out when spring came. I often say I’ll never reach the same artistic level again.
+ - When you work with someone you don’t quite know, you have to figure the director out and you can come up with ideas that are counter-productive.
+ - It takes a long time to make me beautiful, but it goes fast to make me ugly.
+ - Every culture has their myths that people are aware of and share.
+ - I started acting long before I decided to pursue it. I started acting as an amateur when I was a kid, but I wanted to become a diplomat. It was self-centered and weird, but I had this idea of going out in the world and solving conflicts and making the world a better place.
+ - Unfortunately, the way the world is constructed, a lot of people have no chance, from day one.
+ - You have to make sure that you find projects that are not too similar and roles that are not too similar, so the challenges are new and you still learn things. I still think I can become a much better actor.
+
+27 quotes

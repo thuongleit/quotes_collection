@@ -1,0 +1,27 @@
+ - To offer a man unsolicited advice is to presume that he doesn’t know what to do or that he can’t do it on his own. ~~John Gray
+ - Success lies in doing not what others consider to be great but what you consider to be right. ~~John Gray
+ - When a man loves a woman, periodically he needs to pull away before he can get closer. ~~John Gray
+ - To grow in our ability to love ourselves we need to receive love as well. ~~John Gray
+ - If we are to feel the positive feelings of love, happiness, trust, and gratitude, we periodically also have to feel anger, sadness, fear, and sorrow. ~~John Gray
+ - Love brings up our unresolved feelings. One day we are feeling loved, and the next day we are suddenly afraid to trust love. The painful memories of being rejected begin to surface when we are faced with trusting and accepting our partner’s love . ~~John Gray
+ - Take time off to give to yourself, in a sense to fill yourself up to fullness, to where now you can overflow in giving. ~~John Gray
+ - To love someone is to acknowledge the goodness of who they are. Through loving a person we awaken their awareness of their own innate goodness. It is as though they cannot know how worthy they are until they look into the mirror of our love and see themselves. ~~John Gray
+ - We mistakenly assume that if our partners love us they will react and behave in certain ways – the ways we react and behave when we love someone. ~~John Gray
+ - Because she is afraid of not being supported, she unknowingly pushes away the support she needs. ~~John Gray
+ - Life is filled with rhythms-day and night, hot and cold, summer and winter, spring and fall, cloudy and clear. Likewise in a relationship, men and women have their own rhythms and cycles. ~~John Gray
+ - A man’s sense of self is defined through his ability to achieve results. ~~John Gray
+ - That love motivates you to cooperate, respect, appreciate, cherish, and admire that person. ~~John Gray
+ - The number one way a man can succeed in fulfilling a woman’s primary love needs is through communication. By learning to listen to a woman’s feelings, a man can effectively shower a woman with caring, understanding, respect, devotion, validation, and reassurance... ~~John Gray
+ - Get the love you deserve and gave your partner the love and support he deserves. ~~John Gray
+ - I would love you all the day, every night we would kiss and play, if with me you’d fondly stray, over the hills and far away. ~~John Gray
+ - Just as a man is fulfilled through working out the intricate details of solving a problem, a woman is fulfilled through talking about the details of her problems. ~~John Gray
+ - A women under stress is not immediately concerned with finding solutions to her problems but rather seeks relief by expressing herself and being understood. ~~John Gray
+ - Men are motivated when they feel needed while women are motivated when they feel cherished. ~~John Gray
+ - As precious as knowledge itself is the learning. As precious as any reward is the earning. ~~John Gray
+ - Find something that feels good, that resonates with your heart. ~~John Gray
+ - Today secular faith is ebbing, and it is the apostles of unbelief who are left stranded on the beach. ~~John Gray
+ - Anything that makes you feel good is always going to be drawing in more. ~~John Gray
+ - If I seek to fulfill my own needs at the expense of my partner, we are sure to experience unhappiness, resentment, and conflict. The secret of forming a successful relationship is for both partners to win. ~~John Gray
+ - You may wish to be loving – you may even try with all your might – but your love will never be pure unless you are free from resentment. When we are free from resentment, loving is effortless. When we have to try hard to love, this is generally a sign that we are repressing our resentments... ~~John Gray
+
+25 quotes

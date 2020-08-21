@@ -1,0 +1,29 @@
+ - Medical education does not exist to provide students with a way of making a living, but to ensure the health of the community.
+ - Medicine is a social science, and politics is nothing more than medicine on a grand scale.
+ - The task of science is to stake out the limits of the knowable, and to center consciousness within them.
+ - The physicians are the natural attorneys of the poor, and the social problems should largely be solved by them.
+ - Belief begins where science leaves off and ends where science begins.
+ - Medical statistics will be our standard of measurement: we will weigh life for life and see where the dead lie thicker, among the workers or among the privileged.
+ - The body is a cell state in which every cell is a citizen. Disease is merely the conflict of the citizens of the state brought about by the action of external forces.
+ - Disease is not something personal and special, but only a manifestation of life under modified conditions, operating according to the same laws as apply to the living body at all times, from the first moment until death.
+ - Brevity in writing is the best insurance for its perusal.
+ - Between animal and human medicine, there is no dividing line-nor should there be.
+ - If we would serve science, we must extend her limits, not only as far as our own knowledge is concerned, but in the estimation of others.
+ - Cellular pathology is not an end if one cannot see any alteration in the cell. Chemistry brings the clarification of living processes nearer than does anatomy. Each anatomical change must have been preceded by a chemical one.
+ - As long as vitalism and spiritualism are open questions so long will the gateway of science be open to mysticism.
+ - My politics were those of prophylaxis, my opponents preferred those of palliation.
+ - It is the curse of humanity that it learns to tolerate even the most horrible situations by habituation, that it forgets the most shameful happenings in the daily shame of events, and that it can hardly understand when individuals aim to destroy this infamy.
+ - There can be no scientific dispute with respect to faith, for science and faith exclude one another.
+ - Only those who regard healing as the ultimate goal of their efforts can, therefore, be designated as physicians.
+ - It is the curse of humanity that it learns to tolerate even the most horrible situations by habituation.
+ - Marriages are not normally made to avoid having children.
+ - Life itself is but the expression of a sum of phenomena, each of which follows the ordinary physical and chemical laws.
+ - Body: A cell state in which every cell is a citizen.
+ - The task of science, therefore, is not to attack the objects of faith, but to establish the limits beyond which knowledge cannot go and found a unified self-consciousness within these limits.
+ - If popular medicine gave the people wisdom as well as knowledge, it would be the best protection for scientific and well-trained physicians.
+ - Belief cannot be reckoned with in terms of science, for science and faith are mutually exclusive.
+ - Laws should be made, not against quacks but against superstition.
+ - Belief has no place as far as science reaches, and may be first permitted to take root where science stops.
+ - Imprisoned quacks are always replaced by new ones.
+
+27 quotes

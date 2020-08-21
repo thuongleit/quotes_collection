@@ -1,0 +1,29 @@
+ - Obstacles are an opportunity to create something new.
+ - I don’t care about having money. It’s about being happy, man.
+ - I never set out to be part of a genre, because I listen to all types of music.
+ - The greatest gift of all time is that you can make creation infectious because people spend less time being negative If you log all the time with negativity in the while world, I wonder how much better the world would be if people sat down and did something positive. It spirals.
+ - I don’t like being overexposed. I don’t like being on covers. And I don’t like people talking about me.
+ - Singing’s not my real passion.
+ - I don’t really think about recognition; I’m not really involved.
+ - I book myself tight. If I have any time off, I get antsy.
+ - Sometimes a song can take up to a year to write, and because I waited that year and waited to work on it that day, it came up that extra 50 percent.
+ - I remember seeing the full Daft Punk pyramid show in 2007. I went alone, drove up in my Honda Fit, bought a ticket off a scalper for $150, got on the floor, and had the best time of my life. I didn’t have a drink, no drugs. But I was high out of my mind. It changed my life.
+ - I don’t like hype cluttering art.
+ - No one worries about genre when they’re dancing. They’re not asking themselves, ‘Is this song a dubstep song?’
+ - Whenever I am in my videos, it’s rare. A lot of it is, they feel more live and hyper-realist, rather than fantasy. People would just be like, “Oh, Skrillex is acting in this video,” and it wouldn’t work as well.
+ - An artist creates songs and timeless moments that are reflections that impact culture, and you can do that in any way – with guitars, ukelele, a computer. So, that will never die. It’s always the artist behind the computer, not the computer.
+ - To me, it’s always a joy to create music no matter what it takes to actually get there. The real evils are always whatever stops you from doing that – like if your CPU is spiking and you have to sit there and bounce all your MIDI to audio. Now that’s annoying!
+ - I prefer the gloominess to the sun. I don’t know why.
+ - With ‘Bangarang,’ I didn’t make any announcement, no campaign. I just put it on my Facebook and some other places. That’s how I’ve done everything with my previous records. I’ve always kept it organic.
+ - The people who I grew up making music with, we’ve all grown up and become successful in different ways. My manager supported me since I was 16 and believed in me as a musician. He’s been there since Day 1, and there’s so much to be said about doing something with people that you love.
+ - There is a lot of music out there that you can play side by side and you can’t hear the personality – that has a timeline on it, for sure.
+ - I think phone cases will always be novelties, but there’s always so many interesting phone cases I like phone cases and I think the sillier the better – but this is a cool take on it.
+ - There’s been not a dime spent on marketing for any record I’ve ever put out.
+ - Fantasy is hard to do when it comes to making it look good compared to something that’s a documentary or hyper-realism.
+ - It’s strange – some directors are really talented but they can be so precious when it comes to letting you be a part of it.
+ - There are artists that are using computers in all genres – Kendrick Lamar’s music is electronic-made, and Taylor Swift is the same thing. There’s a lot of pop music, underground music, and music for films made with computers. In that sense, it’s not going to go away.
+ - Hip-hop and electronic music are so similar, in the fact that they’re both very visceral, have so much bass; a lot of times, it’s the same tempos. The culture and some of the sound design is different but a lot of times, it’s the same stuff.
+ - I haven’t played EDC since 2011. Normally, my sound fits a little bit better in mixed festivals.
+ - I’m always on tour, so I’m always trying new tracks out live before they’re released. That’s more necessity than anything, because I don’t get a proper chance to sit in a studio and work on tracks like other producers do.
+
+27 quotes

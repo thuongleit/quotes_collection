@@ -1,0 +1,35 @@
+ - Sometimes people say terrible things when they’re scared. They don’t mean to, but they can’t help it. They lash out because if they can see that their words hurt someone else, it makes them feel as if they aren’t completely powerless.
+ - You have to keep your mind as wide-open as your eyes, because almost nothing is what it seems.
+ - But sometimes shame is a more powerful engine than rage. Like rage, it burns hot; and like rage it tends to consume its own furnace.
+ - Closure isn’t closure until someone’s ready to close the door.
+ - My whole body is a lethal weapon, you know. I know more ways to kill you than you know how to die.
+ - When you have to kill the same terrorist twice in one week, then there’s either something wrong with your skills or something wrong with your world. And there’s nothing wrong with my skills.
+ - A wise man once said that we can’t make anyone feel or do anything. We can throw things into the wind, but it’s up to each person to decide how they want to react, where they want to stand when things fall.
+ - I’m not sure I could trust a man who would bypass an Oreo in favor of vanilla wafers. It’s a fundamental character flaw, possibly a sign of true evil.
+ - There was a sliver of moon and a splash of stars, and the light outlined her face and glistened on the tears that ran like mercury down her cheeks.
+ - I’ve managed to stay alive out here in the Ruin because I’m a realist. I allow the truth to be the truth, no matter how much I might want it to be something else.
+ - Suffering is easier to endure when shared.
+ - Revenge is an infection of the spirit.
+ - There are moments that define a person’s whole life. MOMENTS in which everything they are and everything they may possibly become hinge on a single decision.
+ - Point is, people lie a lot. Sometimes out of habit. Not many people are good at telling the truth.
+ - Guilt and rage, hatred and fear were pathways to weakness and clumsy choices.
+ - When Chong made to sit down next to her, Lilah drew her knife and stabbed the point into the earth between them. “I can see that you need some quiet time,” he said and scuttled quickly away.
+ - Generosity could be as contagious as the zombie plague as long as enough people were willing to be carriers.
+ - It’s just that I’m fifteen, and I have this crazy idea I might actually have a life in front of me. I don’t see how it’s going to do me much good to believe that the world is over and this is just an epilogue.
+ - Often it was the most unlikely people who found within themselves a spark of something greater. It was probably always there, but most people are never tested, and they go through their whole lives without ever knowing that when things are at their worst, they are at their best.
+ - The truth is the truth. What changes is what we know about it and what we’re willing to believe.
+ - Rage was sometimes a useful ally in the heat of a fight, but it was a trickster. It made everything seem possible.
+ - Sometimes shame is a more powerful engine than rage.
+ - A HUMAN ELEMENT is an elegant and haunting first novel. Unrelenting, devious but full of heart. Highly recommended.
+ - Suddenly all those careful preparations disintegrated as predators far more dangerous than the walking dead proved what all wise killers already knew: that nothing was more dangerous than living men.
+ - We’re each alone inside our heads, some more so than others.
+ - He knew that these creatures were dead, that they were reanimated echoes who wore the disguise of the people they had once been, but Tom’s words rang in his mind. They used to be people. How could he strike them? How could he hurt them? Children, women, old people. Lost souls.
+ - She wept for the hurt that he owned, a hurt she could never hope to remove.
+ - They held each other and wept as the night closed its fist around their tiny shelter, and the world below them seethed with killers both living and dead.
+ - UNMARKED is both gorgeous and hideous. A frightening and disturbing tale spun with great beauty. Absolutely riveting.
+ - It’s easier to be a character in a story than the star of your own tragedy.
+ - Everyone carries around his own monsters. – Richard Pryor.
+ - Things said and done innocently should never be used as weapons.
+ - It’s important to know the past, but your survival depends on knowing the present.
+
+33 quotes

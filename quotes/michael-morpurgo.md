@@ -1,0 +1,53 @@
+ - There’s room for all sorts of magic and miracles in this world – that’s what I think.
+ - It’s the teacher that makes the difference, not the classroom.
+ - I can hate you more, but I’ll never love you less.
+ - Live an interesting life. Meet people. Read a lot and widely, learn from the great writers.
+ - Children have to be motivated to want to learn to read. Reading must not be taught simply as a school exercise.
+ - Wherever my story takes me, however dark and difficult the theme, there is always some hope and redemption, not because readers like happy endings, but because I am an optimist at heart. I know the sun will rise in the morning, that there is a light at the end of every tunnel.
+ - Access to books and the encouragement of the habit of reading: these two things are the first and most necessary steps in education and librarians, teachers and parents all over the country know it. It is our children’s right and it is also our best hope and their best hope for the future.
+ - I could believe only in the hell I was living in, a hell on earth, and it was man-made, not God-made.
+ - Read a lot – poems, prose, stories, newspapers, anything. Read books and poems that you think you will like and some that you think might not be for you. You might be surprised.
+ - Genuinely good people are like that. The sun shines out of them. They warm you right through.
+ - When I write I try as far as possible to forget I’m writing it at all. I tell it down onto the page, as if I’m telling it to one person only, my best friend.
+ - I’m still not sure I want to be a writer. I think of myself as a storyteller more.
+ - Remember to write for yourself, not for a market and give yourself time to develop your own style, your own voice. It takes a lifetime. Enjoy it!
+ - But I didn’t dare. That has always been my trouble. I’ve never dared enough.
+ - Being his real brother I could feel I live in his shadows, but I never have and I do not now. I live in his glow.
+ - Always write your ideas down however silly or trivial they might seem. Keep a notebook with you at all times.
+ - Any problem can be solved between people if only they can trust each other.
+ - Admitting failure is quite cleansing, but never – pleasurable.
+ - Animals are sentient, intelligent, perceptive, funny and entertaining. We owe them a duty of care as we do to children.
+ - Characters are the key to a good book. It took me several novels to comprehend that.
+ - Books that kids read should be about what is going on in the world.
+ - My Albert married his Maisie Brown as he said he would. But I think she never took to me, nor I to her for that matter. Perhaps it was a feeling of mutual jealousy.
+ - Don’t worry about writing a book or getting famous or making money. Just lead an interesting life.
+ - Everyone is interested in war, in that people don’t want it to happen. I’m much more interested in peace than in war but it’s important to understand why we fight.
+ - By the time I sit down and face the blank page I am raring to go. I tell it as if I’m talking to my best friend or one of my grandchildren.
+ - I was never a great reader, but there were two stories I loved best: Kipling’s The Elephant’s Child and The Jungle Book. Deep down, I’ve always wanted to write a book about a wild child and an elephant.
+ - A lot of children, like I did, move away from words because of the fear – which is something you have to take out of education: the fear of worrying about what marks you’ll get, detention, worrying about letting people down, your parents, teachers.
+ - I got married young, far too young, but it is fine. We are still married 48 years later. I got married at 19.
+ - That’s what sailing is, a dance, and your partner is the sea. And with the sea you never take liberties. You ask her, you don’t tell her. You have to remember always that she’s the leader, not you. You and your boat are dancing to her tune.
+ - If I learned anything in this life, I’ve learned that you can’t cling on.
+ - I was brought up, as a lot of kids are, on ‘Aesop’s Fables,’ ‘Brothers Grimm,’ ‘La Fontaine,’ all those sorts of things. Hans Christian Andersen is a hero of mine.
+ - He never reckoned much to schooling and that. He said you could learn most what was worth knowing from keeping your eyes and ears peeled. Best way of learning, he always said, was doing.
+ - There’s a nobility in his eye, a regal serenity about him. Does he not personify all that men try to be and never can be?
+ - If it is possible to be happy in the middle of a nightmare, then Topthorn and I were happy that summer.
+ - Wars become history all too soon and are forgotten all too soon as well, before the lessons can be learned.
+ - Encouraging young people to believe in themselves and find their own voice whether it’s through writing, drama or art is so important in giving young people a sense of self-worth.
+ - It’s what I’ll be singing in the morning. It won’t be God Save the Ruddy King or All Things bleeding Bright and Beautiful. It’ll be Orange and Lemons for Big Joe, for all of us.
+ - Anything that gets children reading is fine.
+ - I think there’s something about studying a book which will kill it if you’re not careful.
+ - Perhaps it is partly that we need to love books ourselves as parents, grandparents and teachers in order to pass on that passion for stories to our children. It’s not about testing and reading schemes, but about loving stories and passing on that passion to our children.
+ - As a young child my attention span was, as I remember it, rather short.
+ - One of the great failings of our education system is that we tend to focus on those who are succeeding in exams, and there are plenty of them. But what we should also be looking at, and a lot more urgently, is those who fail.
+ - Blind terror drove me on, with my flying stirrups whipping me into a frenzy. With no rider to carry I reached the kneeling riflemen first and they scattered as I came upon them.
+ - You know, I really wish now I’d had the nerve to become an actor. Because I’d have been Robert Redford, no question.
+ - But try as I might, I never got to eat any of her pastries, and do you know, she never even offered me one.
+ - It is the child’s understanding that teaches the adults the way of the future. They’re still doing it today with modern technology.
+ - I fill up the well of stories in my head – without ever knowing I’m doing it.
+ - I write fiction. I make things up, it’s what I do.
+ - There’s a mouse in here with me. He’s sitting there in the light of the lamp, looking up at me. He seems as surprised to see me as I am to see him. There he goes. I can hear him still, scurrying about somewhere under the hayrick. I think he’s gone now. I hope he comes back. I miss him already.
+ - A notion for a story is for me a confluence of real events, historical perhaps, or from my own memory to create an exciting fusion.
+ - It’s good to focus on the universal suffering that goes on in any war. Whatever the right and wrongs of the war, there is always universal suffering.
+
+51 quotes

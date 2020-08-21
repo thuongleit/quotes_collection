@@ -1,0 +1,399 @@
+ - It is no measure of health to be well adjusted to a profoundly sick society.
+ - The ability to observe without evaluating is the highest form of intelligence.
+ - Intuition is the whisper of the soul.
+ - Its beautiful to be alone. To be alone does not mean to be lonely. it means the mind is not influenced and contaminated by society.
+ - When you are listening to somebody, completely, attentively, then you are listening not only to the words, but also to the feeling of what is being conveyed, to the whole of it, not part of it.
+ - Truth is more in the process than in the result.
+ - You are the world and the world is you.
+ - Meditation is not a withdrawal from life. Meditation is a process of understanding oneself.
+ - There is an art of seeing things as they are: without naming, without being caught in a network of words, without thinking interfering with perception.
+ - A cup is useful only when it is empty; and a mind that is filled with beliefs, with dogmas, with assertions, with quotations is really an uncreative mind.
+ - I don’t mind what happens. That is the essence of inner freedom. It is a timeless spiritual truth: release attachment to outcomes, deep inside yourself, you’ll feel good no matter what.
+ - Can you look at a flower without thinking?
+ - Do not pursue what should be, but understand what is.
+ - To understand the immeasurable, the mind must be extraordinarily quiet, still.
+ - Here is my secret: I don’t mind what happens.
+ - It is only when the mind is free from the old that it meets everything anew, and in that there is joy.
+ - Is there a thinker apart from thought?
+ - Follow the wandering, the distraction, find out why the mind has wandered; pursue it, go into it fully. When the distraction is completely understood, then that particular distraction is gone. When another comes, pursue it also.
+ - The world is me and I am the world.
+ - You can look only when the mind is completely quiet.
+ - Meditation is the action of silence.
+ - The beauty of meditation is that you never know where you are, where you are going, what the end is.
+ - If we can really understand the problem, the answer will come out of it, because the answer is not separate from the problem.
+ - You want to be loved because you do not love; but the moment you love, it is finished, you are no longer inquiring whether or not somebody loves you.
+ - Happy is the man who is nothing.
+ - Freedom and love go together. Love is not a reaction. If I love you because you love me, that is mere trade, a thing to be bought in the market; it is not love. To love is not to ask anything in return, not even to feel that you are giving something- and it is only such love that can know freedom.
+ - The man who is seeking truth is free of all societies and cultures.
+ - True education is to learn how to think, not what to think. If you know how to think, if you really have that capacity, then you are a free human being-free of dogmas, superstitions, ceremonies-and therefore you can find out what religion is.
+ - There is no end to education. It is not that you read a book, pass an examination, and finish with education. The whole of life, from the moment you are born to the moment you die, is a process of learning.
+ - It is truth that liberates, not your effort to be free.
+ - Free yourself from the psychological structure of society, which is to free yourself from the essence of conflict.
+ - The mind has to be empty to see clearly.
+ - In obedience there is always fear, and fear darkens the mind.
+ - You must understand the whole of life, not just one little part of it. That is why you must read, that is why you must look at the skies, that is why you must sing and dance, and write poems and suffer and understand, for all that is life.
+ - In oneself lies the whole world and if you know how to look and learn, the door is there and the key is in your hand. Nobody on earth can give you either the key or the door to open, except yourself.
+ - Freedom is now or never.
+ - As we are – the world is.
+ - I am life. I have no name. I am as the fresh breeze of the mountains.
+ - Fear is not of the unknown, but of loss of the known.
+ - I maintain that Truth is a pathless land, and you cannot approach it by any path whatsoever, by any religion, by any sect.
+ - Education in the true sense is helping the individual to be mature and free, to flower greatly in love and goodness. That is what we should be interested in, and not in shaping the child according to some idealistic pattern.
+ - When you are free, you have no choice.
+ - Does choice exist when I see something very clearly?
+ - What brings understanding is love. When your heart is full, then you will listen to the teacher, to the beggar, to the laughter of children, to the rainbow, and to the sorrow of man. Under every stone and leaf, that which is eternal exists.
+ - Without freedom from the past, there is no freedom to all...
+ - Without knowing myself, I have no real basis for thinking.
+ - When one loses the deep intimate relationship with nature, then temples, mosques and churches become important.
+ - Tradition becomes our security, and when the mind is secure it is in decay.
+ - Freedom from the desire for an answer is essential to the understanding of a problem.
+ - Truth is a pathless land.
+ - A lily or a rose never pretends, and its beauty is that it is what it is.
+ - The mind gives meaning to anything but the meaning it gives is meaningless.
+ - Seeing, observing, listening, these are the greatest acts.
+ - The demand to be safe in a relationship inevitably breeds sorrow and fear.
+ - To know yourself you need not go to any book, to any priest, to any psychologist. The whole treasure is within yourself.
+ - There is hope in people, not in society, not in systems, but in you and me.
+ - If you lose touch with nature you lose touch with humanity.
+ - Without love there is no art. When the artist is playing beautifully there is no ’me; there is love and beauty, and this is art. This is skill in action.
+ - It is love alone that leads to right action. What brings order in the world is to love and let love do what it will.
+ - Though we are all human beings, we have built walls between ourselves and our neighbors through nationalism, through race, caste, and class – which again breeds isolation, loneliness.
+ - It is only in alert silence that truth can be.
+ - Relationship is the mirror in which we see ourselves as we are. All life is a movement in relationship. There is no living thing on earth which is not related to something or other.
+ - One is never afraid of the unknown; one is afraid of the known coming to an end.
+ - Pain itself destroys pain. Suffering itself frees man from suffering.
+ - The word ‘innocence’ means a mind that is incapable of being hurt.
+ - Transformation can only take place immediately; the revolution is now, not tomorrow.
+ - It is very difficult to be like the other guy, to be ordinary. Mediocrity takes a great deal of energy. But to be ourselves is very easy. You don’t have to do a thing.
+ - Intelligence is the capacity to perceive the essential, the what is; and to awaken this capacity, in oneself and in others, is education.
+ - To understand life is to understand ourselves, and that is both the beginning and the end of education.
+ - The transformation of the world is brought about by the transformation of oneself.
+ - Any acceptance of authority is the very denial of truth.
+ - We all place ourselves at various levels, and we are constantly falling from these heights. It is the falls we are ashamed of. Self-esteem is the cause of our shame, of our fall. It is this self-esteem that must be understood, and not the fall.
+ - Meditation is one of the greatest arts in life – perhaps the greatest, and one cannot possibly learn it from anybody, that is the beauty of it.
+ - Imagination builds the image of the self, and thought then functions within its shadows. From this self-concept grows the conflict between what is and what should be, the conflict in duality.
+ - We all want to be famous people, and the moment we want to be something we are no longer free.
+ - Tell your friend that in his death, a part of you dies and goes with him. Wherever he goes, you also go. He will not be alone.
+ - A consistent thinker is a thoughtless person, because he conforms to a pattern; he repeats phrases and thinks in a groove.
+ - Religion becomes a matter of belief, and belief acts as a limitation on the mind; and the mind then is never free.
+ - Freedom is always at the beginning and not at the end.
+ - To understand the present with its full, rich significance, the mind must free itself from the habit of self-protecting acquisition; when it is utterly naked, then there is immortality.
+ - To change the world, we must begin with ourselves.
+ - Aloneness is obviously not isolation, and it is not uniqueness. To be unique is merely to be exceptional in some way, whereas to be completely alone demands extraordinary sensitivity, intelligence, understanding.
+ - To go far you must begin near, and the nearest step is the most important one.
+ - Enlightenment is an accident, but some activities make you accident-prone.
+ - To be religious is to be sensitive to reality.
+ - Learning in the true sense of the word is possible only in that state of attention, in which there is no outer or inner compulsion. Right thinking can come about only when the mind is not enslaved by tradition and memory.
+ - It is only those who are in constant revolt that discover what is true, not the man who conforms, who follows some tradition. It is only when you are constantly inquiring, constantly observing, constantly learning, that you find truth, God, or love.
+ - Sorrow is not in death but in loneliness, and conflict comes when you seek consolation, forgetfullness, explanations, and illusions.
+ - All ideologies are idiotic, whether religious or political, for it is conceptual thinking, the conceptual word, which has so unfortunately divided man.
+ - Thought is matter as much as the floor, the wall, the telephone, are matter.
+ - Take a journey into the things which you are carrying, the known- not into the unknown-into what you already know: your pleasures, your delights, your despairs, your sorrows. Take a journey into that, that is all you have.
+ - To be free comes not from changing or fixing this world, but from seeing this world as it is and opening the heart in the midst of it.
+ - Action has meaning only in relationship, and without understanding relationship, action on any level will only breed conflict.
+ - Look at that battle you are involved in; you are caught in it: you are it.
+ - One must know oneself as one is, not as one wishes to be, which is merely an ideal and therefore fictitious, unreal; it is only that which is that can be transformed, not that which you wish to be.
+ - Meditation is not a means to an end. It is both the means and the end.
+ - Meditation, then, is a state of mind in which the ‘me’ is absent. And therefore that very absence brings order.
+ - But if one observes, one will see that the body has its own intelligence; it requires a great deal of intelligence to observe the intelligence of the body.
+ - Intelligence comes into being when the mind, the heart and the body are really harmonious.
+ - After all, conflict arises, does it not, through the desire to be something, to be other than what is.
+ - To ask the ‘right’ question is far more important than to receive the answer. The solution of a problem lies in the understanding of the problem; the answer is not outside the problem, it is in the problem.
+ - Observe, and in that observation there is neither the “observer” nor the “observed” – there is only observation taking place.
+ - You can only be afraid of what you think you know.
+ - Only the free mind knows what Love is.
+ - You yourself are the Teacher, and the Pupil, you’re the Master, you’re the Guru, you are the Leader, you are Everything! And, to understand, is to transform what Is.
+ - If you begin to understand what you are without trying to change it, then what you are undergoes a transformation.
+ - A man who is not afraid is not aggressive, a man who has no sense of fear of any kind is really a free, a peaceful man.
+ - Nothing can disturb the calm peace of my soul.
+ - Relationship between human beings is based on the image-forming, defensive mechanism. In our relationships each of us builds an image about the other, and these two images have relationship, not the human beings themselves...
+ - It is necessary that one be a light to oneself in a world that is becoming utterly dark.
+ - In nothingness, there is everything, energy. The ending is a beginning.
+ - Thought is so cunning, so clever, that it distorts everything for its own convenience.
+ - The more you know yourself, the more clarity there is. Self-knowledge has no end – you don’t come to an achievement, you don’t come to a conclusion. It is an endless river.
+ - The real student is studying, learning, inquiring, exploring, not just until he is twenty or twenty-five, but throughout life.
+ - Only when the mind is still, tranquil, not expecting or grasping or resisting a single thing, is it possible to see what is true. It is the truth that liberates, not your effort to be free.
+ - Right education should help the student, not only to develop his capacities, but to understand his own highest interest.
+ - The enemy is not the other, the enemy is you.
+ - Religion is the frozen thought of man out of which they build temples.
+ - As long as the mind clings to belief, it is held in a prison.
+ - The man who lives without conflict, who lives with beauty and love, is not frightened of death because to love is to die.
+ - The guru cannot awaken you; all that he can do is to point out what is.
+ - When all authority of every kind is put aside, denied, then you can find out for yourself.
+ - Freedom from something is not freedom.
+ - Tradition implies authority, conformity, imitation, following.
+ - This is what I am, and I am going to understand this.
+ - You have been overcome; and whether you are overcome by envy or by a so-called noble influence, you are still a slave, you are not free.
+ - It is only in a very quiet mind that great things are born; and a quiet mind does not come about through effort, through control, through discipline.
+ - Real learning comes about when the competitive spirit has ceased.
+ - To come upon love without seeking it is the only way to find it.
+ - Using another as a means of satisfaction and security is not love. Love is never security; love is a state in which there is no desire to be secure; it is a state of vulnerability.
+ - A mind that is always comparing, always measuring, will always engender illusion. If I am measuring myself against you, who are clever, more intelligent, I am struggling to be like you and I am denying myself as I am. I am creating an illusion.
+ - Teaching is not the mere imparting of knowledge but the cultivation of an inquiring mind.
+ - All paths do not lead to truth. There is no path to truth, it must come to you.
+ - The moment you have in your heart this extraordinary thing called love and feel the depth, the delight, the ecstasy of it, you will discover that for you the world is transformed.
+ - In awareness there is no becoming, there is no end to be gained. There is silent observation without choice and condemnation, from which there comes understanding.
+ - Fear is nonacceptance of what is.
+ - If we want to change existing conditions, we must first transform ourselves, which means that we must become aware of our own actions, thoughts and feelings in everyday life.
+ - So through identification you have pleasure and pain.
+ - Control exists only when there is action of will, positively or negatively. Will is resistance. When the mind is learning, there is no resistance.
+ - Clever people, people who are cunning, do not know what love is because their minds are so sharp, because they are so clever, because they are so superficial – which means to be on the surface, and love is not a thing that exists on the surface.
+ - Can thought be silent?
+ - The end is the beginning of all things, Suppressed and hidden, Awaiting to be released through the rhythm Of pain and pleasure.
+ - Self-knowledge is only from moment to moment, and therefore there is a creative happiness from moment to moment.
+ - Learning is not the accumulation of knowledge. Learning is movement from moment to moment.
+ - My only concern is to set men absolutely, unconditionally free.
+ - Life is both pleasure and pain, is it not? But why should we cling to pleasure and avoid pain? Why not merely live with both? If you cling to pleasure what happens? You get attached, do you not?
+ - Where there is love, there is revolution, because love is transformation from moment to moment.
+ - Sir, when two people have the extraordinary quality of this state, words are not necessary. Where that quality of love exists, words become unnecessary. There is instant communication.
+ - The moment you follow someone you cease to follow Truth.
+ - To understand yourself is the beginning of wisdom.
+ - The ending of sorrow is the beginning of wisdom. Knowledge is always within the shadow of ignorance. Meditation is freedom from thought and a movement in the ecstasy of truth. Meditation is explosion of intelligence.
+ - Truth is not a matter of argumentation and conviction; it is not the outcome of opinion.
+ - If people who say they love their children meant it, would there be war? And would there be division of nationalities – would there be these separations?
+ - All outward forms of change brought about by wars, revolutions, reformations, laws and ideologies have failed completely to change the basic nature of man and therefore of society.
+ - To follow implies not only the denying of one’s own clarity, investigation, integrity and honesty, but it also implies that your motive in following, your motive is a reward .
+ - Love, and don’t be caught in opinions and ideas about what love is or should be.
+ - Contentment is never the outcome of fulfillment, of achievement, or of the possession of things; it is not born of action or inaction. It comes with the fullness of what is, not in the alteration of it.
+ - But the healing of the mind is something totally different. That healing gradually takes place if you are with nature, with that orange on the tree, and the blade of grass that pushes through the cement, and the hills covered, hidden, by the clouds.
+ - The crisis is not in the outward technological advancement, but rather in the way we think, and the way we live, and the way we feel. I think that is where a revolution must take place.
+ - When you identify yourself with a group of people or a set of ideas, aren’t you separating yourself?
+ - Is insight dependent on a material process? Has insight a cause?
+ - Only the mind that has emptied itself of the known is creative. That is creation. What it creates has nothing to do with it. Freedom from the known is the state of a mind that is in creation.
+ - The becoming still can never be the being still; only with the death of becoming is there being.
+ - I have only one purpose: to make people free, to urge them towards freedom, to help them to break away from all limitations, for that alone will give them eternal happiness, will give them the unconditional realization of Self.
+ - To be whole, nonfragmented in action, in life, in every kind of relationship, that is the very essence of sanity. Sanity means to be whole, healthy and holy.
+ - There is not first understanding and then action. When you understand, that very understanding is action.
+ - Learning implies a mind that doesn’t know.
+ - Merely to stuff the child with a lot of information, making him pass examinations, is the most unintelligent form of education.
+ - And the point is, is it possible for the mind to be totally free from suffering and yet not become indifferent, callous, irresponsible, but to have that passion, the intensity, the energy that freedom brings, freedom from suffering.
+ - There are two kinds of freedom: one is the freedom from something, which is a reaction; and the other is not a reaction, it is “being free.”
+ - There is no tranquility in ideas.
+ - You may be ignorant of all the books in the world, and I hope you are, of all the latest theories, but that is not ignorance.
+ - A man who is seeking to understand violence does not belong to any country, to any religion, to any political party or partial system; he is concerned with the total understanding of mankind.
+ - We demand to be coaxed and comforted, to be encouraged and gratified, so we choose a teacher who will give us what we crave for. We do not search out reality, but go after gratification and sensation.
+ - Can’t you fall in love and not have a possessive relationship? I love someone and she loves me and we get married – that is all perfectly straightforward and simple, in that there is no conflict at all.
+ - Happiness is strange; it comes when you are not seeking it. When you are not making an effort to be happy, then unexpectedly, mysteriously, happiness is there, born of purity, of a loveliness of being.
+ - Joy is something entirely different from pleasure.
+ - Isn’t the origin of conflict ego? If there is no ego there is no becoming.
+ - Despair exists only when there is hope.
+ - Change in society is of secondary importance; that will come about naturally, inevitably, when you as a human being bring about the change in yourself.
+ - Passion is a rather frightening thing because if you have passion you don’t know where it will take you.
+ - Society is the product of relationship, of yours and mine together. If we change in our relationship, society changes.
+ - The ambitious man has never found his true vocation...
+ - Do not repeat after me words that you do not understand. Do not merely put on a mask of my ideas, for it will be an illusion and you will thereby deceive yourself.
+ - Through self-knowledge you begin to find out what is God, what is truth, what is that state which is timeless. In self-knowledge is the whole universe; it embraces all the struggles of humanity.
+ - And for this you must have quiet and solitude. But society does not allow you to have them. You must be with people, outwardly active at all costs. If you are alone you are considered antisocial or peculiar, or you are afraid of your own loneliness.
+ - Be a light unto oneself.
+ - We choose our leaders, political or spiritual, out of our own confusion, and so they also are confused.
+ - If you are lucky and work very hard, you may someday get to experience freedom from the known.
+ - To meditate is to observe yourself, for you are totally responsible for your body, mind, thought.
+ - Yoga exercises are excellent; the speaker does them every day, for an hour or more; but that is merely physical exercise, to keep the body healthy, and so on.
+ - The function of education is to help you from childhood not to imitate anybody, but be yourself all the time.
+ - We have so committed ourselves in different ways that we have hardly any time for self-reflection, to observe, to study.
+ - When the mind goes beyond the thought of ‘the me,’ the experiencer, the observer, the thinker, then there is a possibility of a happiness that is incorruptible.
+ - Knowledge is an addiction, as drink; knowledge does not bring understanding. Knowledge can be taught, but not wisdom; there must be freedom from knowledge for the coming of wisdom.
+ - In the search for reality, energy creates its own discipline. But mere discipline, without full comprehension of all this, has no meaning, it is a most destructive thing.
+ - Put away the book, the description, the tradition, the authority, and take the journey of self-discovery.
+ - If there is no order in your relationship with your wife, with your husband, with your children, with your neighbour – whether that neighbour is near or very far away – forget about meditation...
+ - Happiness comes uninvited: and the moment that you are conscious that you are happy, you are no longer happy.
+ - Acquiring knowledge is a form of imitation.
+ - Thought nourishes, sustains and gives continuity to fear and pleasure.
+ - If you find out what it is you love to do and give your whole life to it, then there is no contradiction, and in that state your being is your doing.
+ - The very urge to get rid of desire is still desire, is it not?
+ - The very attention given to finding out if the mind can be completely quiet is quietness.
+ - When we talk about understanding, surely it takes place only when the mind listens completely – the mind being your heart, your nerves, your ears- when you give your whole attention to it.
+ - A mind that practices love cannot love.
+ - Without understanding the process of the self, there is no bais for thought, there is no basis for right thinking.
+ - Freedom comes with self-knowledge, when the mind goes above and beyond the hindrances it has created for itself.
+ - Look what is happening in the world – we are being conditioned by society, by the culture we live in, and that culture is the product of man. There is nothing holy, or divine, or eternal about culture.
+ - To die every day to every problem, every pleasure, and not carry over any problem at all; so the mind remains tremendously attentive, active, clear.
+ - If I do not know reality, the unknown, how can I search for it? Surely it must come but I cannot go after it. If I go after it I am going after something which is the known, projected by me; by my own mind.
+ - And as we are – the world is. That is, if we are greedy, envious, competitive, our society will be competitive, envious, greedy, which brings misery and war. The State is what we are.
+ - If I want to understand something, I must observe, I must not criticize, I must not condemn, I must not pursue it as pleasure or avoid it as non-pleasure. There must merely be the silent observation of a fact.
+ - In the space which thought creates around itself there is no love. This space divides man from man, and in it is all the becoming, the battle of life, the agony and fear. Meditation is the ending of this space, the ending of the me.
+ - When I analyse myself and my reactions or behaviour, there is the act and the actor. There is a division between the two and that creates conflict between “what is” and “what should be”.
+ - Living in the present is the instant perception of beauty and the great delight in it without seeking pleasure from it.
+ - What you believe you experience.
+ - If I do not understand myself, the whole complexity of myself, I have no basis for thinking.
+ - Freedom lies beyond the field of consciousness.
+ - Hitler and Mussolini were only the primary spokesmen for the attitude of domination and craving for power that are in the heart of almost everyone. Until the source is cleared, there will always be confusion and hate, wars and class antagonisms.
+ - Tradition, long conditioned thinking, can bring about a fixation, a concept that one readily accepts, perhaps not with a great deal of thought.
+ - It seems to me that the real problem is the mind itself, and not the problem which the mind has created and tries to solve.
+ - Belief creates its own experience; therefore, such an experience is not true.
+ - I admire and respect the tenacity, courage, and patience of the unenlightened in the face of so much overwhelming evidence.
+ - Psychological knowledge has made us dull.
+ - Begin where you are. Read every word, every phrase, every paragraph of the mind, as it operates through thought.
+ - When inquiry is suppressed by previous knowledge, or by the authority and experience of another, then learning becomes mere imitation, and imitation causes a human being to repeat what is learned without experiencing it.
+ - Is not virtue a negation of becoming?
+ - The crisis is not out there in the world, it is within our own consciousness.
+ - The society in which we live is the result of our psychological state.
+ - Discipline is necessary to curb the mind, otherwise there is no peace.
+ - Hasn’t knowledge only crippled me from seeing truth? Is knowledge itself illusory?
+ - If you seem something that is true and do not act then you are wasting your life. And life is too precious. It is all that we have.
+ - Most people like to live in illusions.
+ - The flowering of love is meditation.
+ - You know, in the case of most of us, the mind is noisy, everlastingly chattering to itself, soliloquizing or chattering about something, or trying to talk to itself, to convince itself of something; it is always moving, noisy.
+ - The intellect is not the means of creation, and creation does not take place through the functioning of the intellect; on the contrary, there is creation when the intellect is silent.
+ - Again, I maintain that no organization can lead man to spirituality.
+ - The fact is one thing and the idea about the fact is another.
+ - Are you aware of the significance of every thought, of every reaction that you happen to have?
+ - The primary cause of disorder in ourselves is the seeking of reality promised by another.
+ - When you practice meditation, the meditator becomes all-important and not the movement of meditation.
+ - To live humanly, sanely, one has to change.
+ - The moment I am aware that I am aware, I am not aware. Awareness means the observer is not.
+ - We are very defensive, and therefore aggressive, when we hold on to a particular belief, a dogmas, or when we worship our particular nationality, with the rag that is called the flag.
+ - Space and time are real for the man who is yet imperfect, and space is divided for him into dimensions; time, into past, present, and future.
+ - Most of us waste our energy through chattering – endlessly chattering, gossiping, criticising, backbiting.
+ - If your eyes are blinded with your worries, you cannot see the beauty of the sunset.
+ - The description is not the described; I can describe the mountain, but the description is not the mountain, and if you are caught up in the description, as most people are, then you will never see the mountain.
+ - The more you know yourself, the more clarity there is.
+ - Only when the mind is tranquil-through self-knowledge and not through imposed self-discipline-only then, in that tranquillity, in that silence, can reality come into being. It is only then that there can be bliss, that there can be creative action.
+ - Only when your hearts are empty of the things of the mind, is there love. Then you will know what it is to love without separation, without distance, without time, without fear.
+ - Charity is unconscious of itself, there is no accumulation first and then distribution. It is like the flower – natural, open, spontaneous.
+ - It is astonishingly beautiful and interesting, how thought is absent when you have an insight. Thought cannot have an insight.
+ - What is needed, rather than running away or controlling or suppressing or any other resistance, is understanding fear; that means, watch it, learn about it, come directly into contact with it. We are to learn about fear, not how to escape from it.
+ - Surely, life is not merely a job, an occupation; life is something extraordinarily wide and profound, it is a great mystery, a vast realm in which we function as human beings.
+ - Throughout life, from childhood, from school until we die, we are taught to compare ourselves with another; yet when I compare myself with another I am destroying myself.
+ - What sex gives you momentarily is the total abandonment of yourself, then you are back again with your turmoil, so you want a repetition over and over again of that state in which there is no worry, no problem, no self.
+ - Fear is the destructive energy in man. It withers the mind, it distorts thought, it leads to all kinds of extraordinarily clever and subtle theories, absurd superstitions, dogmas, and beliefs.
+ - Compassion being action without motive, without self-interest, without any sense of fear, without any sense of pleasure.
+ - Your belief in God is merely an escape from your monotonous, stupid and cruel life.
+ - There is no end to relationship. There may be the end of a particular relationship, but relationship can never end; to be is to be related.
+ - Real freedom is not something to be acquired, it is the outcome of intelligence.
+ - The very word “sorrow” colours the fact of sorrow, the pain of it.
+ - Is there a meditation that is not the ego trying to become? Is meditation conscious if every effort implies time?
+ - Where there is love, do what you will, it will be right action. It will never bring conflict to one’s life. In the flame of love, all fear is consumed.
+ - Why does the brain retain the memory of the hurt from yesterday?
+ - Our conflict is in relationship, at all levels of our existence; and the understanding of this relationship, completely and extensively, is the only real problem that each one has.
+ - There is no such thing as living alone, for all living is relationship; but to live without direct relationship demands high intelligence, a swifter and greater awareness for self-discovery.
+ - Only in relationship can you know yourself, not in abstraction, and certainly not in isolation.
+ - Meditation is like the breeze that comes in when you leave the window open; but if you deliberately keep it open, deliberately invite it to come, it will never appear.
+ - If we could, and we must, establish a deep long abiding relationship with nature, with the actual trees, the bushes, the flowers, the grass and the fast moving clouds, then we would never slaughter another human being for any reason whatsoever.
+ - From innumerable complexities we must grow to simplicity; we must become simple in our inward life and in our outward needs.
+ - Goodness is not in the backyard of the individual nor in the open field of the collective; goodness flowers only in freedom from both.
+ - Relationship is a mirror in which you can see yourself, not as you would wish to be, but as you are.
+ - When we stop learning in our relationship, whether we are studying, playing or whatever we are doing, and merely act from the knowledge we have accumulated, then disorder comes.
+ - Till the false is seen as false, truth is not.
+ - Sentimentality and emotionalism have nothing whatsoever to do with love.
+ - The ending is the beginning, and the beginning is the first step, and the first step is the only step.
+ - A man who is really earnest must begin with himself, he must be passively aware of all his thoughts, feelings and actions.
+ - It is intelligence that brings order, not discipline.
+ - As long as the mind is seeking to fill itself, it will always be empty. When the mind is no longer concerned with filling its own emptiness, then only does that emptiness cease to be.
+ - You may be reborn a thousand times, but you can never know the real, for only that which dies, that which comes to an end, can renew itself.
+ - The fundamental factor of self-deception is this constant desire to be something in this world and in the world hereafter.
+ - Conflict is not in the feeling of being in love. The feeling of being in love is utterly without conflict. There is no loss of energy in being in love.
+ - When you once see something as false which you have accepted as true, as natural, as human, then you can never go back to it.
+ - We never see anything completely. We never see a tree, we see the tree through the image that we have of it, the concept of that tree; but the concept, the knowledge, the experience, is entirely different from the actual tree.
+ - You must understand the whole of life, not just one little part of it.
+ - Identification prevents and perverts the flow of thought-feeling.
+ - Thought comes to an end. Then there is that sense of absolute silence in the brain. All the movement of thought has ended.
+ - Analysis does not transform consciousness.
+ - Love may be the ultimate solution to all man’s difficulties, problems and travails.
+ - What you are the world is. And without your transformation, there can be no transformation of the world.
+ - But if you have no relationship with the living things on this earth, you may lose whatever relationship you have with humanity.
+ - Knowledge, idea, belief stands in the way of wisdom.
+ - You can be creative only when there is abandonment-which means, really, there is no sense of compulsion, no fear of not being, of not gaining, of not arriving. Then there is great austerity, simplicity, and with it there is love.
+ - Insight is not a matter of memory, of knowledge and time, which are all thought.
+ - Governments want efficient technicians, not human beings, because human beings become dangerous to governments – and to organized religions as well. That is why governments and religious organizations seek to control education.
+ - We shall quench our thirst, for we shall drink deep at the bubbling fountain of Wisdom.
+ - But inwardly we are as corrupt as the person who sits in an office and plans war-because, we want to be somebody in the family, in a group, in society, in the nation.
+ - Human beings, each one, right through the world, go through great agonies, the more sensitive, the more alert, the more observant, the greater the suffering, the anxiety, the extraordinary sense of insoluble problems.
+ - Freedom lies outside the pattern of society; but to be free of that pattern you have to understand the whole content of it, which is to understand your own mind.
+ - If there is no meditation, then you are like a blind man in a world of great beauty, light and colour.
+ - Some go to sleep in an organization and never wake up, and those who do wake up put them selves to sleep again by joining another. This acquisitive movement is called expansion of thought, progress.
+ - We are asking a really fundamental question whether thought can ever be creative. If thought is not the ground of creation then what is creation? Is love the only factor that is creative?
+ - From these prejudices there arises conflict, transient joys and suffering. But we are unconscious of this, unconscious that we are slaves to certain forms of tradition, to social and political environment, to false values.
+ - When we suffer we have made it into a personal affair. We shut out all the suffering of mankind.
+ - Silence is difficult and arduous, it is not to be played with.
+ - Love is not of the mind, it is not in the net of thought, it cannot be sought out, cultivated, cherished; it is there when the mind is silent and the heart is empty of the things of the mind.
+ - The reality of truth is not to be bought, to be sold, to be repeated; it cannot be caught in books. It has to be found from moment to moment, in the smile, in the tear, under the dead leaf, in the vagrant thought, in the fullness of love.
+ - That is, sir, there can only be communication, communion, when you and I are on the same level, and with the same intensity, at the same time.
+ - As long as the mind is in conflict-blaming, resisting, condemning-there can be no understanding. If I want to understand you, I must not condemn you, obviously.
+ - A mind that is disciplined, controlled, is free within its own pattern; but that is not freedom. The end of discipline is conformity; its path leads to the known, and the known is never the free.
+ - Training the intellect does not result in intelligence. Intelligence comes into being when one acts in perfect harmony, both intellectually and emotionally.
+ - You may repeat the most marvelous poems. And that is not worth a cent if you don’t live it.
+ - Are you trying to grasp the quality of intelligence, compassion, the immense sense of beauty, the perfume of love and that truth which has no path to it?
+ - The constant assertion of belief is an indication of fear.
+ - I am concerning myself with only one essential thing: to set man free. I desire to free him from all cages, from all fears, and not to found religions, new sects, nor to establish new theories and new philosophies.
+ - It is only the religious mind that is a truly revolutionary mind.
+ - There can only be a relationship between human beings when we accept what is, not what should be.
+ - When one has an image about oneself one is surely insane, one lives in a world of illusion.
+ - Don’t we introduce time as a means of becoming more evolved? The brain has evolved but is there evolution inwardly? Can the brain dominated by time not be subservient to it?
+ - In the space which thought creates around itself there is no love. This space divides man from man.
+ - When the mind sees itself in the mirror of relationship, from that perception there is self-knowledge.
+ - To be is to be related.
+ - To be absolutely nothing is to be beyond measure.
+ - Constantly to seek the purpose of life is one of the odd escapes of man. If he finds what he seeks it will not be worth that pebble on the path.
+ - You must look most intimately and discover for yourself; then it is your own, not somebody else’s, not something that you have been told, because there is no teacher and no follower.
+ - Is the ground a philosophical concept? Has mind a relationship to the ground? Is it an idea to be investigated? Is the ground put together by thought?
+ - You must know for yourself, directly, the truth of yourself and you cannot realize it through another, however great. There is no authority that can reveal it.
+ - True understanding is possible only when we are fully conscious of our thought, not as an operative observer on this thought, but completely and without the intervention of a choice.
+ - If you leave the pool you have dug for yourself and go out into the river of life then life has an astonishing way of taking care of you, because then there is no taking care on your part.
+ - Surely love has nothing to do with the mind, it is not the product of the mind; love is entirely independent of calculation, of thought.
+ - Can I reject everything my brain experienced? Is intellectual understanding any understanding at all?
+ - To seek fulfillment is to invite frustration.
+ - And the idea of ourselves is our escape from the fact what we really are.
+ - Until a radical change takes place and we wipe out all nationalities, all ideologies, all religious divisions, and establish a global relationship – psychologically first, inwardly before organizing the outer – we shall go on with wars.
+ - Where there is fear there is aggression.
+ - To understand what is right meditation there must be an awareness of the operation of one’s own consciousness, and then there is complete attention.
+ - The idea, the pattern, is self-projected; it is a form of self-worship, of self-perpetuation, and hence gratifying.
+ - Goodness, generosity, or love does not come into being save through the search for reality.
+ - Fear is what prevents the flowering of the mind.
+ - Did you ever sit quietly with your back straight, not moving, just only cherishing the beauty of silence?
+ - Mere isolation in an enclosing idea is not a release from conflict.
+ - After all, without understanding yourself, what basis have you for right thinking?
+ - To learn about oneself, a living thing, you have to watch, learn anew each minute.
+ - Does a human being know the responsibility he has to himself and to all of mankind.
+ - All tradition is merely the past.
+ - Can the mind resolve a psychological problem immediately?
+ - But our minds are bound to the yardstick of yesterday, today and tomorrow, and with that yardstick we try to inquire into the unknown, to measure that which is not measurable.
+ - Is it possible to observe without the observer?
+ - A mind that is afraid withers away; it cannot function properly.
+ - Am I caught in a self-centred, narrow little cell which refuses to look beyond? Do I see it when you come along and tell me that my brain is the brain of all mankind?
+ - If you have this extraordinary thing going in your life, then it is everything; then you become the teacher, the disciple, the neighbour, the beauty of the cloud – you are all that, and that is love.
+ - Find out for yourself what are the possesions and ideals that you do not desire. By knowing what you do not want, by elimination, you will unburden the mind, and only then will it understand the essential which is ever there.
+ - In the denial of disorder there is order.
+ - Order cannot possibly be brought about through conformity to a pattern, under any circumstances.
+ - Each breath is transforming me into thine image.
+ - There is no partial sensitivity; either it is the state of one’s whole being, total consciousness or it is not there at all.
+ - As long as you are held within a pattern you must create disorder in the world.
+ - Do you know your particular fears? And what do you usually do with them? You run away from them, don’t you, or invent ideas and images to cover them? But to run away from fear is only to increase it.
+ - The significance of life is living.
+ - The thought is not the thing.
+ - Knowing the cause of something is not going to help you to be free of it.
+ - Truth is something which you must see immediately, and to see something clearly you must give your heart, mind and whole being.
+ - Intelligence is not discernment and judgment or critical evaluation.
+ - That is, when the mind ceases to create, then there is creation.
+ - If you set out to meditate, it will not be meditation. If you set out to be good, goodness will never flower.
+ - Those who play a safe game die very safely.
+ - Can I live a life, daily life, without sense of self-concern?
+ - What is correct action in a deteriorating world?
+ - There’s a great and unutterable beauty in all this.
+ - If I condemn something, I do not understand it.
+ - No book can teach you about yourself, no psychologist, none of the professors or philosophers. What they can teach you is what they think you are or what they think you should be.
+ - Truth does not belong to an individual.
+ - The first thing to realize in meditation is that there is no authority, that the mind must be completely free to examine, to observe, to learn. And so there is no following, no accepting, no obedience.
+ - Only when the mind is completely alone can it know what is beauty, and not in any other state.
+ - Doesn’t becoming imply time?
+ - If the mind could cease measuring itself against the hero, the perfect, the glorious and all that, it would be what it is.
+ - Freedom is entirely different from revolt. There is no such thing as doing right or wrong when there is freedom. You are free and from that centre you act.
+ - When you do not name a group of people, you are compelled to look at each individual face and not treat them all as the mass.
+ - Fear is the process of the mind in the struggle of becoming. In becoming good there is the fear of evil; in becoming complete, there is the fear of loneliness.
+ - What has validity is your living, not what happens tomorrow.
+ - It is much easier to condemn a child than to understand a child.
+ - Can another help bring about a transformation in you? If he can, you are not transformed; you are merely dominated, influenced.
+ - Meditation is the movement of love. It isn’t the love of the one or of the many. It is like water that anyone can drink out of any jar.
+ - Is there an observation which is not the instrument of thought?
+ - We are to learn about fear, not how to escape from it.
+ - Fear exists in the process of accumulation and belief in something is part of the accumulative process.
+ - Do you decide to observe? Or do you merely observe?
+ - You are this, which does not satisfy, so you want to be that. If there were an understanding of this, would that come into being? Because you do not understand this, you create that, hoping through that to understand or to escape from this.
+ - The craving to become causes fears; to be, to achieve, and so to depend engenders fear.
+ - Can the mind become completely still without coercion, without compulsion, without discipline?
+ - We are concerned, not with the development of just one capacity, such as that of a mathematician, or a scientist, or a musician, but with the total development of the student as a human being.
+ - If you would listen, sir, in the sense of being aware of your conflicts and contradictions without forcing them into any particular pattern of thought, perhaps they might altogether cease.
+ - To know oneself is to study oneself in action, which is relationship.
+ - It is more important to find out what you are giving to society than to ask what is the right means of livelihood.
+
+397 quotes

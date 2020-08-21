@@ -1,0 +1,50 @@
+ - Education without execution is extinction.
+ - Never focus on your problems. Focus on your possibilities. The problems will pull you down. The possibilities will push you up.
+ - Behind every problem in your life is a rich blessing.
+ - Getting a mentor is the shortcut to success.
+ - Don’t focus on the problem, focus on the PURPOSE.
+ - Your trial is temporary, but God’s Love is permanent.
+ - Your deepest pain will be your most Glorious Blessing.
+ - Even if you don’t see the results of your planting, just keep Planting your Love. Your Patience. Your Perseverance. Your Faith.
+ - We’re in this world to bring heaven down to earth.
+ - Earn more to grow more, and grow more to give more.
+ - Faith Words arent just mere positive affirmations; they open your life up to the supernatural power of God.
+ - Life isn’t about trying to be an expert in everything. It’s about being an expert in one thing and offering it to the world.
+ - Happy relationships don’t just happen. You make them happen.
+ - Let’s face it: There are people who won’t be happy when you get too blessed. There are people who feel threatened by your success. There are people who, out of envy, will just not like you anymore.
+ - Don’t try to get all your rewards on earth. There are more rewards in Heaven.
+ - You will always take first place in God’s Heart.
+ - God’s priority isn’t your destination but your development. God’s priority isn’t the dream but the dreamer.
+ - Take Charge Of Your Financial Future. I believe investing small amounts each month in the stock market will give you financial freedom in the later years of your life.
+ - Hangout with people who respect you. And people who inspire you.
+ - Your goal is to launch an imperfect product and let people laugh at you.
+ - God Never Compares You To Anyone Else. He Loves You As You Are.
+ - Closed doors simply means God is protecting us from having not the best.
+ - When we give, we receive much more than what we have given.
+ - Take responsibility for finding your one true love.
+ - Start loving now, and you start Heaven now.
+ - Dreams are powerless unless they are specific.
+ - He’ll never leave you for one moment. He will watch over you night and day.
+ - Your past may not be perfect, but it was perfect for your purpose.
+ - Do not expect human beings to reward you, don’t even think about it, just LOVE, because you know at the end of the day it will be God who will give you the reward.
+ - Don’t envy the harvest of the rich. Envy their planting.
+ - God is teaching you a Lesson of Victory.
+ - Your trials can release your Gifts and Dreams. Your trials can set you free.
+ - Because simplicity isn’t the greatest thing in the world, but love.
+ - Because you and I have the power to impute beauty on anything under the sun. Because you become the labels you give yourself. If you declare you’re beautiful – not despite your imperfections, but because of them – then you are.
+ - Live uncluttered lives so you could have time for what is most important.
+ - Next time you pray any kind of prayer, whether it be for the resolution of healing, or for a house, or for a car, or for a husband, or for a family conflict, or for a solution to a problem, tell Him he can say yes or no. Because in the end, you’re a winner. Every time.
+ - Forgiveness is, first of ali, a gift I give myself.
+ - Heaven is His choice for you. But He won’t force you to go there if you don’t want to.
+ - Happy couples make it a habbit to refocus. Because it’s quite normal to be distracted. So they talk. They get away for a while. They pray. They go on a marriage retreat. They take a second honeymoon or a 3rd, or 4th, or a 5th...
+ - All of us prepare our own lunch. If we don’t like our jobs, if we don’t like the state of our relationships, if we don’t like what’s happening to our spiritual lives – we have no one to blame but ourselves. Because God has given us free will.
+ - Do not ask directions from the people around you. Ask directions from the person who called you.
+ - The blessing that I got from my parents, even if they didnt really teach me about money, was their simple lifestyle.
+ - My parents were the traditional Filipino parents who didnt talk about money around the dinner table.
+ - I’ve accepted the fact that because I’m human, I’m terrific in one thing, good at some, mediocre at a bit more, and terrible at others. And if you’re human, you are too. You’ll have to discover the one thing that you are good at and major in it.
+ - What you subconsciously want, you will get. And what you subconsciously do not want, you will avoid.
+ - The only wealth you keep is the wealth that you give away.
+ - At first, the only thing that I learned was to save. Then I learned about mutual fund, then later on direct stock investments. I also went into small businesses and even real estate.
+ - Our Feast gatherings, which has spread all over the world, is attended by young people – and they love to sing worship songs.
+
+48 quotes

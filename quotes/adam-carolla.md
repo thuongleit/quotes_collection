@@ -1,0 +1,96 @@
+ - Don’t do your best, do my best.
+ - Then there’s the in-between, not a lipstick lesbian, not a butch dyke. I think that is what I’d be, a sweatpants lesbian.
+ - Welfare is monetary methadone.
+ - You should feel good about yourself because of your accomplishments. Not because somebody yelled at you to feel good about yourself.
+ - The very definition of ‘beauty’ is outside.
+ - I’m like John Q. Public. I represent what every guy wants and needs.
+ - I don’t know anything about computers.
+ - I know everything because I know nothing.
+ - I like my parents but they are just not good parents. They are nice enough people. I’m not interested in hurting their feelings.
+ - My motto is “more mystery, less history”.
+ - When I’m in power, here’s how I’m gonna put the country back on its feet. I’m going to put sterilizing agents in the following products: Sunny Delight, Mountain Dew, and Thick-Crust Pizza. Only the ’tardiest of the ’tards like the thick crust.
+ - California is like the hot blond high school chick who’s been getting by on her looks, but now she’s 45 and falling apart.
+ - That’s the thing I love about sports: sports force you to quit. You can’t pursue your dream till you’re 46. When it comes to acting, writing, comedy, nobody ever stops you.
+ - Everyone keeps saying, “Oh my God, oh my God, how intimidating.” It’s like saying, “How could you date Jennifer Aniston after she’s been with Brad Pitt?” I don’t care.
+ - Mmm, tastes like hepatitis!
+ - I’m harmless. I don’t have any ill will or ill thought towards anybody. When people know you’re that way, you can say stuff that the creepy guy at your office could never get away with.
+ - People have to be realistic, or the dream just drags on.
+ - Maybe it’s weird, but I don’t feel in any way, shape or form that I’m taking over his show.
+ - To make something, you have to work within your abilities. Honestly assess what you can do and even more important, what can’t you do.
+ - I guess my feeling is that if you’re going to make a joke, that’s fine, but you should also sort of stand behind it, you know? A joke should be more than a joke, it should be a point that you’re trying to make.
+ - If you spend your life walking through somebody else’s museum, you never find out whether you’re Rembrandt or not.
+ - No one is depressed when they’re being chased by a bear.
+ - I’m not sexist, I’m just a realist.
+ - There are certain things women are better at than men.
+ - I spoke to my dad, and he said it took close to 90 dollars to raise me. But that was me and my sister, and my sister moved out when she was 16, so sometimes it can knock you up to triple digits to raise a kid.
+ - Figure out what to do, then take a nap.
+ - I feel like I’m a time traveler from the future who has been sent back to be annoyed.
+ - When I fart my ass makes a trumpet sound that heralds the arrival of the smell.
+ - I didn’t have any success in show business until I was 30 to 31 years of age.
+ - I cook a little bit. I make a Hungarian dish called chicken paprikash that’s out of this world. I’ll give a heads-up to all of your readers that it doesn’t have to be between Thai and Mexican every night. Toss some Hungarian in every once in a while. You will not be sorry. Good, solid peasant food.
+ - I’d never hurt another person.
+ - People are stupid. There’s a lot of dumb stuff that’s successful.
+ - I give women two types of orgasms. Fake and none.
+ - Should women be on any pills besides birth control? We should just give them all sugar pills for everything, they’re so suggestible.
+ - Maybe I’m delusional but I’m usually funny. It’s not 100% but I have a pretty good batting average.
+ - The reason why you know more funny dudes than funny chicks is that dudes are funnier than chicks.
+ - All TV is, is really: ‘Don’t you want to be this, aren’t you glad you’re not that.’ There’s nothing really in the middle.
+ - If you’re a guy, you have absolutely no idea what’s going on at any time in the relationship, ever. Here’s what you know: you know when you’re getting laid, and you know when it’s all over. Those are the only two things you’re aware of.
+ - The Aston Martin is a beautiful car. It’s a work of art, I love the interior and the style of the car.
+ - It’s something I’ve always kicked around, not doing the eBook but the Rich Man, Poor Man thing.
+ - My mom was on welfare and the occasional food stamp, but I have never participated in any of those governmental programs, even the ones that kind of work like education, scholarships and whatever, and I managed to do just fine.
+ - People who fail, excel at avoiding opportunity.
+ - I don’t have any ill will or ill thought towards anybody.
+ - I want to work for myself, and I do work for myself. I make plenty of money working for myself.
+ - I have a daughter who I love very much, I hire women, I’ve worked with women, I’ve never had an issue with women.
+ - Well, guys are better at mechanical stuff and women are better at emotional stuff.
+ - I have no connection with Hollywood. I’m not interested. I don’t care.
+ - A lot of guys and people in our society think that chicks just love dudes with money. Chicks love dudes who are successful who happen to have money – do you know what I mean? Chicks are attracted to dudes that are doing their own thing.
+ - Junior colleges are high schools with ashtrays.
+ - I’m a doofus from the Valley, a blue-collar guy.
+ - Life is just the time between crapping yourself.
+ - Asking someone in advance not judge you, is like asking someone in advance not to smell you.
+ - No, I had not read any other comedian’s book. Not that I don’t enjoy other comedians; I’m just not a reader.
+ - What we used to settle with common sense or a fist, we settle with hand sanitizer and lawyers.
+ - When you do television, there’s more to do, and when you do new television, there’s a lot more to do, especially when you don’t have partner. I miss not having that person.
+ - It should be like a salmon taking to open water. I’ve done so much morning radio that I won’t be overwhelmed by it, but it’s still going to be a challenge.
+ - If you’re conservative in Hollywood, you’re on a list of people who need to be put in their place.
+ - He doesn’t sound like a guy who’s done a onesome, let alone a threesome.
+ - If the media isnt slanted toward the Left, why is everyone so worried about my affiliation with Glenn Beck but not with Alec Baldwin?
+ - Chicks named Tammy have a greater chance of actually driving a Mercedes than a chick named Mercedes.
+ - I used to be a Democrat, now I’m basically a Republican.
+ - When you’re picking a basketball team, you’ll take the brother over the guy with the yarmulke. Why? Because you’re playing the odds.
+ - Oprah tells women what to read, what to eat, what to think, what to do...
+ - When you’re doing a radio show, you can express yourself.
+ - I’m a comedian, not a politician.
+ - I’ve always boxed, I always taught boxing.
+ - It’s like the Fouth of July in my underpants.
+ - I had two thoughts about it. One was I could do that, and the next one was I’ll never get to do that.
+ - My life is about building and working and wrenching on some cars.
+ - If women built the bridges or were meant to build the bridges, then they would have done it.
+ - I think comedy has evolved like every art form, and people probably do less standing around and telling jokes, and more things that have to do with reality.
+ - I don’t normally vote. I’m lazy and I never bought into the ‘Every vote counts.’
+ - I like the freedom of podcasting. With podcasting you can really mess around with the form and the format. You can do as much time as you like without having to pause for commercials.
+ - If in 1989 I said, ‘I have an idea: Bottle water and sell it. And charge more than a beer,’ they would have chased me around with a giant butterfly net. The same with paying to watch a television station.
+ - People look at me, and they go, ‘You’re white, you’re smart, you must have went to college. You must have grown up with money.’
+ - You shouldn’t be eating anything that takes six minutes to microwave.
+ - I like radio and live performing stuff. I don’t like the television stuff as much.
+ - If you are tuning in just for the show, you’re going to be sorely disappointed.
+ - There’s no bigger atheist than me. Well, I take that back. I’m a cancer screening away from going agnostic and a biopsy away from full-fledged Christian.
+ - The main thing that I learned from my horrible job experiences was how horrible they were.
+ - If Joy Behar or Sherri Shepherd was a dude, they’d be off TV. They’re not funny enough for dudes. What if Roseanne Barr was a dude? Think we’d know who she was?
+ - A lot of people would say, to be truthful is to tell all, every dalliance, every crisis. They might be right on paper, but in practice, it’s not a great way to go.
+ - Whoever is for higher taxes, feel free to pay higher taxes.
+ - I saw a commercial for the maxi pads for the bigger gals they’re making now. That was a nice visual while I was eating.
+ - Of course on air I use occasional hyperbole to tell a story.
+ - Speaking of sleeping bags, has anything ever had a less creative name?
+ - When Asian people grow up fast they go to college at 13. White people grow up fast it’s about fudge packing and triple D’s at 13.
+ - It’s funny when you’re a kid how you can acclimate to almost anything.
+ - The reason I hate publicists is because I think if we got rid of them everything would be on equal footing.
+ - The truth is we’re all probably more creative than we realize, except we spend our lives watching TV or reading somebody else’s book. We never pick up a brush and stand in front of our own easel.
+ - I’ve got a great eye for color. I’m like a chick.
+ - I’m really just trying to hash out the next two weeks of my life. So, something that is potentially four months down the road is not just a mile down the road for me, it’s a million miles down the road.
+ - I think people have a strong desire to push me and others into some sort of political box that they can wrap their minds around.
+ - I’ve never not finished a masturbatory session or a pizza. Those are the two things I’ve never left behind.
+
+94 quotes

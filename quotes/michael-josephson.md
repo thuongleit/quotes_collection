@@ -1,0 +1,138 @@
+ - Take pride in how far you’ve come. Have faith in how far you can go. But don’t forget to enjoy the journey.
+ - The key to success is effort. The bigger the goal, the greater the effort.
+ - Your life is your ship and you are the captain. Choose your course, take the wheel firmly and get on your way.
+ - Character is not only doing the right thing when no one is looking, it’s doing the right thing when everyone is looking. It’s being willing to do the right thing even when it costs more than you want to pay.
+ - A good coach improves your game. A great coach improves your life.
+ - Approach the New Year with resolve to find the opportunities hidden in each new day.
+ - You are the captain of your own ship; don’t let anyone else take the wheel.
+ - The key to a better life: Complain less, appreciate more. Whine less, laugh more. Talk less, listen more. Want less, give more. Hate less, love more. Scold less, praise more. Fear less, hope more.
+ - If you want to be happy, learn to be alone without being lonely. Learn that being alone does not mean being unhappy. The world is full of plenty of interesting and enjoyable things to do and people who can enrich your life.
+ - You don’t have to be sick to get better.
+ - Honesty doesn’t always pay, but dishonesty always costs.
+ - What you allow you encourage.
+ - Good intentions are simply not enough. Our character is defined and our lives are determined not by what we want, say or think, but by what we do.
+ - A caring heart that listens is often more valued than an intelligent mind that talks.
+ - The world has enough beautiful mountains and meadows, spectacular skies and serene lakes. It has enough lush forests, flowered fields, and sandy beaches. It has plenty of stars and the promise of a new sunrise and sunset every day. What the world needs more of is people to appreciate and enjoy it.
+ - What will matter in the end is not what you bought but what you built; not what you got but what you gave; not what you learned by what you taught. What will matter is not your competence but your character.
+ - Living a life that matters doesn’t happen by accident. It’s not a matter of circumstance but of choice. Choose to live a life that matters.
+ - Don’t let others define you. Don’t let the past confine you. Take charge of your life with confidence and determination and there are no limits on what you can do or be.
+ - The choices you make in your life will make your life. Choose wisely.
+ - When someone is nasty or treats you poorly, don’t take it personally. It says nothing about you, but a lot about them.
+ - At home, be grateful. At work, be appreciative. Gratitude is a gift we give ourselves. Appreciation is a gift we give to others.
+ - Everything you do sends a message about who you are and what you value.
+ - Discipline yourself to start each day identifying something to be grateful about. The world opens to those who approach it with a grateful heart.
+ - I am grateful for all those people who said no. It is because of them that I did it myself. Practice an attitude of gratitude. You can either be miserable dwelling on the troubles you have or grateful for the ones you don’t have. Your troubles don’t care but it makes a huge difference in your life.
+ - Leadership is not a matter of authority, it is a matter of influence. A true leader teaches others to understand more, motivates them to be more and inspires them to become more.
+ - Don’t sacrifice a good life for a good time.
+ - Whether we want them or not, the New Year will bring new challenges; whether we seize them or not, the New year will bring new opportunities.
+ - Hire for character, train for skills.
+ - Ethics is not about the way things are, it is about the way things ought to be.
+ - Good character is more important than wealth, good looks, popularity and even education. These things do not guarantee happiness and often they become obstacles to developing good character.
+ - Being a father is the most important role I will ever play and if I don’t do this well, no other thing I do really matters.
+ - What will matter is not your competence, but your character. What will matter is not how many people you knew but how many will feel a lasting loss when you are gone. What will matter is how long you will be remembered, by who and for what?
+ - People of character do the right thing, not because they think it will change the world but because they refuse to be changed by the world.
+ - Ethics is not for wimps. It’s not easy being a good person. That’s why it’s such a lofty goal and an admirable achievement.
+ - Character is ethical and moral strength. People of good character have the moral awareness and strength to know the good, love the good and do the good.
+ - A person of character knows the difference between right and wrong and always tries to do the right thing for the right reason.
+ - Happiness is the peace of mind that comes from feeling that I am living a worthy life in the company of people I love and in the service of something bigger than myself.
+ - People who don’t believe in you are right only if you believe they are.
+ - What will matter is not your success but your significance...
+ - One key to success is demanding more than adequacy, never settling for good enough and always doing a little bit more.
+ - Beware of people who constantly assert their integrity and honor. People of character don’t have to point it out.
+ - Lincoln described character is a tree and reputation as its shadow. The tree will always be what it is but the shadow we see depends on where we stand and the angle of the light.
+ - Sometimes the dues we pay to maintain integrity are pretty high, but the ultimate cost of moral compromise is so much higher.
+ - If we keep treating our most important values as meaningless relics, that’s exactly what they’ll become.
+ - I am not and never will be perfect. I am not always as honest, respectful, responsible, fair or as kind as I should be. All I can do is what I should do: strive every day, with every decision to be the best person I can be. I don’t expect to be perfect but I know I can be better.
+ - We all have three characters: the one we really have, the one we try to convince the world we have, and the one we think we have.
+ - A certain formula for an unhappy life is pursue someone else’s definition of success. Until you define your own goals and purposes your life is not your own and there can be no sense of fulfillment no matter how much you achieve.
+ - Success in anything important rarely comes without the Five Horsemen of Success: planning, effort, positivity, perseverance and resilience.
+ - If we don’t invest now in building character into children we will surely invest more tomorrow in trying to repair adults.
+ - Personal integrity is important, not because it gets us what we want, but because it helps us be what we want.
+ - Experimenting with drugs is like target practice where your head is the bull’s-eye.
+ - It is much more difficult to know what is fair than what is unfair.
+ - Not everything that is good for you is fun and not everything that is fun is good for you.
+ - Success comes in cans. Failures comes in can’ts.
+ - Pretty isn’t beauty. Pretty is how you look; Beauty is who you are. Pretty is in the face and body; Beauty is in the heart, mind and soul. Pretty fades; Beauty grows.
+ - We judge our own character by our best intentions and most noble acts, but we will be judged by our last worst act.
+ - When you compete with someone as good or better than you, you may not always win, but you never lose.
+ - To the barefoot man, happiness is a pair of shoes. To the man with old shoes, it’s a pair of new shoes. To the man with new shoes, it’s stylish shoes. And of course, the fellow with no feet would be happy to be barefoot. Measure your life by what you have not by what you don’t.
+ - There’s a hole in the moral ozone and it’s getting bigger.
+ - Ethics is doing more than the law requires and less than the law allows.
+ - Creating a child takes no love or skill; being a parent requires lots of both.
+ - The opposite of success is not failure. Unsuccessful efforts are not failures unless they so discourage you that you abandon further efforts to achieve your goal. Even then, the venture or effort may be a failure but you are not. Failure is an event not a character trait.
+ - Good character is the single most important attribute of a successful and worthy life.
+ - Character is just another term for “good person.” A person of character lives a worthy life guided by moral principles. A person of character is a good parent, a good friend, a good employee and a good citizen.
+ - No leader or organization can achieve breakout growth until it treats, “we’ve always done it this way” as an opportunity to think anew rather than as a reason to stop thinking. Keep in mind, tradition should be a guide, not a jailer.
+ - What will matter is not what you learned, but what you taught.
+ - You only tasted the water. I tasted the gift. The water was simply the container for an act of loving-kindness and nothing could be sweeter.
+ - No one is born with good character; it’s not a hereditary trait. And it isn’t determined by a single noble act. Character is established by conscientious adherence to moral values, not by lofty rhetoric or good intentions.
+ - There is no objective criteria for either success or failure. People who achieve their goals are successful, those who don’t are not.
+ - There is no adversity that cannot be overcome by good character.
+ - It isn’t the absence of conscience or values that prevents us from being all we should be, it is simply the lack of moral courage.
+ - Character is made up of core moral principles called the Six Pillars of Character: trustworthiness, respect, responsibility, caring, fairness and citizenship. Each of these virtues are independently important but together they provide the foundation for a worthy life.
+ - Ethics doesn’t require us to ignore our self-interests or demand a life of self-sacrifice. It requires that we know the difference between what we want and what we should do.
+ - Be thankful for quality competitors who push you to your limit.
+ - Character – We describe the character of a person in reference to moral judgments about the worthiness of a person. Thus, to have a strong, great or honorable character is to be a person of merit, worthy of admiration and honor.
+ - Success or failure can only be measured in terms of a particular objective. The success of a person whose life objective is money or status will look very different than the success of one who sets out to make a positive difference in the world.
+ - Christmas has a certain universal appeal that gives it meaning well beyond a day to celebrate the birth of Jesus, but Christians have a special duty to experience its sacred and profound spiritual significance and non-Christians have a duty to treat the day with special respect.
+ - America is a song that sounds the best when we all sing together – at least for a while.
+ - Don’t confuse fun with fulfillment, or pleasure with happiness.
+ - Yes and no are very powerful words. Mean them when you say them. Respect them when you hear them.
+ - Someone who lies for you will also lie to you. The occasional benefit your business may gain from a successful deception or concealment is always outweighed by the encouragement it provides to those willing to risk trust for success.
+ - Character is both formed and revealed by how one deals with everyday situations as well as extraordinary pressures and temptations. Like a well-made tower, character is built stone by stone, decision by decision.
+ - It’s a great joy but no test of love or commitment to take your son to a ball game. You really prove your credentials as a good dad when you are willing to take your daughter shopping – more than once.
+ - Neither heredity nor environment determine character. But whether we give in to or overcome the negative messages we are exposed to as we wend our way through life is often determined by whether our parents, teachers, mentors and friends exposed us to good examples and morally inspiring ideas.
+ - Go out there and do your part to change the world. You may not change all you had hoped but the world will be better for the caring demonstrated by your effort.
+ - Authentic gratitude is much more rare and precious than expressions of gratitude which are often empty courtesies or simply tactical ploys to encourage further gifts or kindnesses.
+ - When was the last time you wrote a thank you note? When was the last time you went beyond a mechanical “thank you” to express authentic gratitude? We can enrich the lives of others and ourselves by making it a habit to express genuine appreciation for what others have done for us.
+ - There is within you, waiting to be called, a great source of power called courage. Call its name and it will give you the strength to confront challenges despite fear and to continue and the heart to continue with bold confidence despite the pain of caused by tragedy.
+ - It is not enough that we express our gratitude, we must experience it. We truly honor the must think about our blessings, separately and cumulatively It is not enough to count our blessings and express our gratitude if we don’t truly feel grateful.
+ - If one insists on calling all unsuccessful efforts failures the meaning of failure is really quite benign. When trying anything new or taking on any challenge, unsuccessful efforts are an essential aspect of skill building.
+ - Thanksgiving is a time to reflect on the many things we have to be thankful for, not so we feel guilty about what we have that others don’t, but to be genuinely grateful for our blessings.
+ - To separate the purpose of a business from the purpose of people who are in the business is, I think, not a good thing.
+ - Never do anything for another with the expectation of gratitude. The expectation itself turns the gift into an exchange and suggests a debt is owed you.
+ - The kind of courage that is strengthened or created by concern about what others will think is really a form of fear. Fear of disapproval or dishonor becoming stronger than fear of injury or even death.
+ - No word makes me happier than the word “daddy” when it’s directed to me.
+ - You can’t escape moral judgment through a legal loop hole.
+ - Character refers to dispositions and habits that determine the way that person normally responds to desires, fears, challenges, opportunities, failures and successes.
+ - Gratitude is not a payment for a kindness but another form of gift.
+ - If you pay too much attention to your reputation, you could lose your character.
+ - Values are good things only if they are good values.
+ - Character is ethics in action.
+ - Gratitude should be felt and experienced sincerely, expressed generously and received graciously.
+ - Ordinary people, even weak people, can do extraordinary things through temporary courage generated by a situation. But the person of character does not need the situation to generate his courage. It is a part of his being and a standard approach to all life’s challenges.
+ - The surest way to escape anxiety and defeat despair is action. Do, don’t dwell.
+ - How many times do you get to lie before you are a liar?
+ - I think Samuel Johnson had it right when he observed that hope is itself a species of happiness. So if we want to be happy it only makes sense to discipline ourselves to choose our attitudes, to think positively and to be hopeful.
+ - It is better to be unsuccessful pursuing a significant goal that being successful attaining an insignificant one.
+ - Character determines how we lead our lives, how we deal with life’s unearned fortunes and misfortunes and how we make choices that determine how those fortunes and misfortunes work to make us what we become.
+ - In life, we all get scored on every day. The wonderful thing is, if we do our best with courage and tenacity, we might be outscored but we can never be beaten.
+ - It’s easier to make a good person better than to make a bad person good.
+ - If you are the boss it’s wise to remember that there are lots of things you don’t know and lots of people who hope you won’t find out.
+ - For many of us gratitude to others comes with a sense of debt that can never be fully paid and therefore the things we are thankful for are never really ours.
+ - Our obligation to others and a gift to ourselves is to acknowledge and authentically express genuine appreciation for courtesies, caring and concern others have given us.
+ - Necessity is not merely the father of invention; it is the father of courage.
+ - Integrity, respect, compassion, and fairness become obstacles to people who think winning is everything.
+ - Whatever you do, make a difference. Earn the right to look back at something and say, ‘I did that.’
+ - Physical courage to a person of honour is easier and less risky than acts that could subject him to embarrassment or humiliation or a diminished career or reputation. These things he must live with. To die for honor is an easier thought to bear.
+ - A person is said to have good character when their habits, dispositions and conduct reflect a deep commitment to ethical virtues and moral principles.
+ - Many things in life are not fair but all things should be.
+ - Surround our children with a message of honor.
+ - Don’t ask whether it is going to be easy. Ask whether it is worth it.
+ - Gratitude is most treasured when it is unexpected. When we expect, even demand gratitude, we treat it simply as payment due for some service we rendered and we squeeze any good feeling out of it.
+ - Gratefulness is a payment everyone can afford.
+ - Neither the intensity of your feelings nor the certainty of your convictions is any assurance that you are right.
+ - Our expectation of the gratitude of others for what we’ve done for them is sometimes exaggerated because of our deep desire for appreciation and approval. When our good work or good deeds go unrewarded by hoped for praise, we feel like failures so we treat those who denied us our due as betrayers.
+ - Our character is revealed by how we treat people who cannot help us or hurt us.
+ - The only force that can sustain true and consistent courage is some form of spiritual belief that values like honor, duty, loyalty and integrity above the status, power, money and even security.
+ - When it comes to building character, wealth, good looks, athletic ability and even a high IQ are more likely to be impediments than advantages.
+ - A person of character seeks true happiness in living a life of purpose and meaning, placing a higher value on significance than success.
+ - Expressed gratitude encourages further giving; ingratitude drains vitality out of the spirit of generosity.
+ - Failure is much easier to handle if you just think of it as feedback to guide your next effort.
+ - It’s actually easier to truly become a person of good character than to persuade others we are what we are not.
+ - It is easier to be grateful for the things we have than to the people who have helped us get them.
+ - There’s some wisdom and no moral deficiency to one who holds courage in reserve and uses it as a last resort. Before we take the kind of risks that require courage, we ought to exhaust other less risky alternatives.
+ - One problem with gratitude is that it competes with the sense of pride, self-reliance and accomplishment we have. We want to think what we have is the result of our efforts rather than the gifts, good turns and opportunities provided us by others.
+ - The best way to show true gratitude for all our blessings is to be genuinely happy.
+
+136 quotes

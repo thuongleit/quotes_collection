@@ -1,0 +1,21 @@
+ - God’s faithfulness means that God will always do what He said and fulfill what He has promised.
+ - The clarity of Scripture means that the Bible is written in such a way that its teachings are able to be understood by all who will read it seeking God’s help and being willing to follow it.
+ - God’s wisdom means that God always chooses the best goals and the best means to those goals.
+ - God eternally exists as three persons, Father, Son and Holy Spirit, and each person is fully God, and there is one God.
+ - The sufficiency of Scripture means that Scripture contained all the words of God he intended his people to have at each stage of redemptive history, and that it now contains all the words of God we need for salvation, for trusting him perfectly, and for obeying him perfectly.
+ - If we pray little, it is probably because we do not really believe that prayer accomplishes much at all.
+ - Sin is any failure to conform to the moral law of God in act, attitude, or nature.
+ - The inerrancy of Scripture means that scripture in the original manuscripts does not affirm anything that is contrary to fact.
+ - God fully knows himself and all things actual and possible in one simple and eternal act.
+ - God’s glory is the created brightness that surrounds God’s revelation of himself.
+ - The idea that all the words in Scripture are God’s words in such a way that to disbelieve or disobey any word of Scripture is to disbelieve or disobey God.
+ - God does not need us or the rest of creation for anything, yet we and the rest of creation can glorify him and bring him joy.
+ - The pressure to conform to ‘politically correct’ speech is primarily a pressure not to use certain expressions. But when our freedom to use certain expressions is taken away, then our ability to think in certain ways is also curtailed.
+ - In one sense the doctrine of the trinity is a mystery that we will never understand fully.
+ - Election is an act of God before creation in which He chooses some people to be saved, not on account of any foreseen merit in them, but only because of His sovereign good pleasure.
+ - The devil’s characteristic has been to originate sin and tempt others to sin.
+ - Satan was the originator of sin.
+ - I think that ultimately we will attain much more depth of understanding of Scripture when we are able to study it in the company of a great number of scholars who all begin with the conviction that the Bible is completely true and absolutely authoritative.
+ - Nowhere in Scripture do we find doctrine studied for its own sake or in isolation from life.
+
+19 quotes

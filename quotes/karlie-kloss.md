@@ -1,0 +1,48 @@
+ - If you believe in yourself and feel confident in yourself, you can do anything. I really believe that.
+ - Be patient. Be confident in yourself. Anything can happen if you really work at it. Never give up. It‘s corny, but never give up.
+ - I’m learning Spanish – I got Rosetta Stone for Christmas.
+ - I want to encourage more young women to get involved in coding, because it’s important for them to be able to help shape the future, and coding is the future.
+ - I love kids, so two things that I have thought about are being a pediatrician or a kindergarten teacher.
+ - You have to grow thick skin and that only comes with time and learning.
+ - You learn to control every aspect of your muscles, your face, your toes, your fingernails. And that is how you tell a story, through movement.
+ - You are physically up for scrutiny by everyone and you hear everyone’s opinion.
+ - I keep a notebook of the things I need to get done in a day, week, month along with my overarching goals. Whenever I have a couple moments on set or on a plane, I work on ticking off my to-do list.
+ - I have gotten to travel the world and experience all these incredible things thanks to my career.
+ - I have a notebook that is filled to the brim with my dreams and ideas and goals and aspirations.
+ - I guess I would say, it’s okay to put things off until the very last minute as long as you know you’ve got them under control.
+ - Girls are stronger in numbers. So yes, I believe girls should stick together whenever possible.
+ - There’s no time for boys in my life right now.
+ - My favourite place to eat is my grandma’s kitchen. She makes a mean crab cake.
+ - Holy cow, in the course of one week I feel like I’ve lived about a year!
+ - I wish I could fly. Or speak fluent Chinese. Both I think are equally impossible.
+ - By the end of Fashion Week my apartment is covered with makeup and clothes and shoes. Everything you can think of.
+ - Because I’m so tall, clothes look different on me than they do on others.
+ - I have a necklace with a golden key, given to me by my sisters, which I always wear.
+ - I grew six inches in a year.
+ - I just keep thinking how lucky I am that I haven’t had to sacrifice anything.
+ - Ballet really taught me so much about the power of movement.
+ - I think to have the skill set and the ability to physically help others in matters of life and death must be incredibly empowering.
+ - Today, models are able to share industry news, trends, and communicate with fans through Twitter, Instagram and blogs. So in a way, our position as models is way more personable and relatable.
+ - I still get butterflies when I’m doing a runway show. The music starts, you’re wearing these gorgeous clothes and your nervous about your high heels, if your shoes are going to break, if your going to slip or do something wrong.
+ - My entire high school career – my entire school career – I’ve been like three feet taller than everyone in my grade.
+ - I am very lucky to be surrounded and guided by an incredible support team comprised of my family and agents.
+ - I would love to rent a little cottage or cabin in Colorado and learn to ski or snowboard. And on the warmer side, I also want to rent a house in Hawaii and learn to surf!
+ - Growing up in a house of five girls, I couldn’t help but glance at a fashion magazine or two.
+ - Every single day I’m shocked.
+ - I think that taking ballet is one of the best things a girl can do. Period.
+ - I never imagined myself doing this. Doors opened for me and I ran for it.
+ - My friend Taylor Swift’s new album, 1989.
+ - Whenever I have even a spare second, I’m in the kitchen whipping up a batch of cookies. I make a mean batch of chocolate chippers.
+ - What I enjoy most is that every day I get to play a new character.
+ - I work strategically with my management team to make all decisions.
+ - It’s nice to just be a kid and hang out with your friends at lunch.
+ - I always carry a camera because it is so important to me to take pictures and document all the incredible things and places I have been able to see through this experience.
+ - Christy Turlington is my idol. She really is. She’s a gorgeous woman inside and out. I admire her work in the charity field. She’s just been able to balance it all – and gracefully, as well.
+ - I did every sport under the sun while growing up.
+ - I love being a part of something so many people can relate to and enjoy.
+ - I forgot how much I loved going to class, actually. But I also forgot what having school homework feels like: stressful!
+ - My school in St. Louis is great. They basically created a program where I can do online classes and independent studies when I’m traveling. But then I still get to go home and take classes in a normal school environment.
+ - I loved everything about Spain – the people, the language, and the food!
+ - MTV in general is involved with so many artists – musicians, actors, people in the fashion industry, and art world.
+
+46 quotes

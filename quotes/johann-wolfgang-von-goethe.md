@@ -1,0 +1,502 @@
+ - What is not started today is never finished tomorrow.
+ - Everything is hard before it is easy.
+ - Whatever you can do, or dream you can, begin it. Boldness has genius, power and magic in it.
+ - As soon as you trust yourself, you will know how to live.
+ - Magic is believing in yourself, if you can do that, you can make anything happen.
+ - Nothing is worth more than this day. You cannot relive yesterday. Tomorrow is still beyond your reach.
+ - At the moment of commitment the entire universe conspires to assist you.
+ - Music is liquid architecture; Architecture is frozen music.
+ - You can easily judge the character of a man by how he treats those who can do nothing for him.
+ - A man should hear a little music, read a little poetry, and see a fine picture every day of his life, in order that worldly cares may not obliterate the sense of the beautiful which God has implanted in the human soul.
+ - Man is made by his belief. As he believes, so he is.
+ - None are more hopelessly enslaved than those who falsely believe they are free.
+ - Things which matter most must never be at the mercy of things which matter least.
+ - To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking.
+ - Treat people as if they were what they ought to be and you help them to become what they are capable of being.
+ - Willing is not enough, we must do.
+ - Dream no small dreams for they have no power to move the hearts of men.
+ - A man sees in the world what he carries in his heart.
+ - Correction does much, but encouragement does more.
+ - The greatest thing in this world is not so much where we stand as in what direction we are moving.
+ - Life is too short to drink bad wine.
+ - Courage is the commitment to begin without any guarantee of success.
+ - Do not hurry; do not rest.
+ - The moment one definitely commits oneself, then Providence moves too. Whatever you think you can do, or believe you can do, begin it. Action has magic, power and grace.
+ - Do not give in too much to feelings. A overly sensitive heart is an unhappy possession on this shaky earth.
+ - If you want to make life easy, make it hard.
+ - This is the highest wisdom that I own; freedom and life are earned by those alone who conquer them each day anew.
+ - Love is an ideal thing, marriage a real thing.
+ - The soul that sees beauty may sometimes walk alone.
+ - Doubt can only be removed by action.
+ - Just begin and the mind grows heated; continue, and the task will be completed!
+ - The dangers of life are infinite, and among them is safety.
+ - Ohne Hast, aber ohne Rast. – Without haste, but without rest.
+ - Just trust yourself and you’ll learn the art of living.
+ - Enjoy what you can, endure what you must.
+ - He who moves not forward, goes backward.
+ - Until one is committed, there is hesitancy, the chance to draw back, always ineffectiveness. Concerning all acts of initiation – creation – there is one elementary truth, the ignorance of which kills countless ideas and splendid plans...
+ - Nothing is so strong as gentleness, nothing so gentle as real strength.
+ - If I accept you as you are, I will make you worse; however, if I treat you as though you are what you are capable of becoming, I help you become that.
+ - Every day we should hear at least one little song, read one good poem, see one exquisite picture, and, if possible, speak a few sensible words.
+ - Precaution is better than cure.
+ - Every second is of infinite value.
+ - The way you see people is the way you treat them, and the way you treat them is what they become.
+ - The best slave is the one who thinks he is free.
+ - Money lost, something lost. Honor lost, much lost. Courage lost, everything lost-better you were never born.
+ - To quit smoking, you must first want to quit, but then you must also do the quitting.
+ - In nature we never see anything isolated, but everything in connection with something else which is before it, beside it, under it and over it.
+ - One always has time enough, if one will apply it well.
+ - Many people take no care of their money till they come nearly to the end of it, and others do just the same with their time.
+ - Wisdom is found only in truth.
+ - We are never deceived; we deceive ourselves.
+ - When we treat man as he is, we make him worse than he is; when we treat him as if he already were what he potentially could be, we make him what he should be.
+ - Leap and the net will appear.
+ - He is happiest, be he king or peasant, who finds peace in his home.
+ - To have seen Italy without having seen Sicily is to not have seen Italy at all, for Sicily is the clue to everything.
+ - Thinking is more interesting than knowing, but less interesting than looking.
+ - He who cannot draw on three thousand years is living from hand to mouth.
+ - What is my life if I am no longer useful to others.
+ - There is nothing insignificant in the world. It all depends on the point of view.
+ - One cannot always be a hero, but one can always be a man.
+ - Every reader, if he has a strong mind, reads himself into the book, and amalgamates his thoughts with those of the author.
+ - To think is easy. To act is difficult. To act as one thinks is the most difficult.
+ - Difficulties increase the nearer we get to the goal.
+ - Never let a day pass without looking at some perfect work of art, hearing some great piece of music and reading, in part, some great book.
+ - The hardest thing to see is what is in front of your eyes.
+ - It is not doing the thing we like to do, but liking the thing we have to do, that makes life blessed.
+ - The man who masters himself is delivered from the force that binds all creatures.
+ - Choose well. Your choice is brief, and yet endless.
+ - I have come to the frightening conclusion that I am the decisive element. It is my personal approach that creates the climate.
+ - If I love you, what business is it of yours?
+ - We are shaped and fashioned by what we love.
+ - Divide and rule, the politician cries; unite and lead, is watchword of the wise.
+ - Treat people the way they are and they will stay that way. Treat people the way they can become and they will become that way.
+ - All our knowledge is symbolic.
+ - Every day look at a beautiful picture, read a beautiful poem, listen to some beautiful music, and if possible, say some reasonable thing.
+ - I hate everything that merely instructs me without augmenting or directly invigorating my activity.
+ - Ingratitude is always a kind of weakness. I have never known men of ability to be ungrateful.
+ - One can be instructed in society, one is inspired only in solitude.
+ - Why look for conspiracy when stupidity can explain so much.
+ - The greatest evil that can befall man is that he should come to think ill of himself.
+ - There is strong shadow where there is much light.
+ - No one would talk much in society if they knew how often they misunderstood others.
+ - Truth must be repeated again and again, because error is constantly being preached round about.
+ - If God had wanted me otherwise, He would have created me otherwise.
+ - It is delivery that makes the orators success.
+ - God made man simple, but how he changed and got complicated is hard to say.
+ - There is nothing in the world more shameful than establishing one’s self on lies and fables.
+ - Live dangerously and you live right.
+ - Know thyself? If I knew myself I would run away.
+ - Love is an ideal thing, marriage a real thing; a confusion of the real with the ideal never goes unpunished.
+ - The force of a language does not consist of rejecting what is foreign but of swallowing it.
+ - Nature understands no jesting. She is always true, always serious, always severe. She is always right, and the errors are always those of man.
+ - Treat a person as they are, they will remain so. Treat a person the way that person can be and is capable of being and that person will become as he or she can be and should be.
+ - All that is transitory is but a metaphor.
+ - None are so hopelessly enslaved, as those who falsely believe they are free. The truth has been kept from the depth of their minds by masters who rule them with lies. They feed them on falsehoods till wrong looks like right in their eyes.
+ - To live within limits. To want one thing. Or a few things very much and love them dearly. Cling to them, survey them from every angle. Become one with them – that is what makes the poet, the artist, the human being.
+ - You don’t have to travel around the world to understand that the sky is blue everywhere.
+ - Few people have the imagination for reality.
+ - Do you want to live happily? Travel with two bags, one for giving, the other for receiving.
+ - Stood I, O Nature! man alone in thee, Then were it worth one’s while a man to be.
+ - Try novelties for salesman’s bait, for novelty wins everyone.
+ - Beauty is everywhere a welcome guest.
+ - There are only two lasting bequests we can hope to give our children. One of these is roots, the other, wings.
+ - We do not have to visit a madhouse to find disordered minds; our planet is the mental institution of the universe.
+ - There are two things children should get from their parents: roots and wings.
+ - There is nothing worse than aggressive stupidity.
+ - If we take people only as they are, then we make them worse; if we treat them as if they were what they should be, then we bring them to where they can be brought.
+ - The ideal of beauty is simplicity and tranquility.
+ - We must always change, renew, rejuvenate ourselves; otherwise, we harden.
+ - It is not enough to take steps which may someday lead to a goal; each step must be itself a goal and a step likewise.
+ - He who does not know foreign languages does not know anything about his own.
+ - Doubt grows with knowledge.
+ - A useless life is an early death.
+ - Behavior is the mirror in which everyone shows their image.
+ - Please send me your last pair of shoes, worn out with dancing as you mentioned in your letter, so that I might have something to press against my heart.
+ - Let everyone sweep in front of his own door, and the whole world will be clean.
+ - Es irrt der Mensch, so lang er strebt. Man errs as long as he strives.
+ - Who never ate his bread in sorrow, Who never spent the darksome hours Weeping, and watching for the morrow,- He knows you not, ye heavenly Powers.
+ - A great deal may be done by severity, more by love, but most by clear discernment and impartial justice.
+ - Nature is the living, visible garment of God.
+ - Everything is simpler than you think and at the same time more complex than you imagine.
+ - When one is polite in German, one lies.
+ - By seeking and blundering we learn.
+ - The important thing in life is to have a great aim, and the determination to attain it.
+ - To rule is easy, to govern difficult.
+ - All is born of water; all is sustained by water.
+ - A man’s manners are a mirror in which he shows his portrait.
+ - Mere curiosity adds wings to every step.
+ - A joy shared is a joy doubled.
+ - People should talk less and draw more. Personally, I would like to renounce speech altogether and, like organic nature, communicate everything I have to say visually.
+ - In the end we are all separate: our stories, no matter how similar, come to a fork and diverge. We are drawn to each other because of our similarities, but it is our differences we must learn to respect.
+ - On top of the world, or in the depths of despair.
+ - It is easier to perceive error than to find truth, for the former lies on the surface and is easily seen, while the latter lies in the depth, where few are willing to search for it.
+ - All beginnings are delightful; the threshold is the place to pause.
+ - Hell begins the day that God grants you the vision to see all that you could have done, should have done, and would have done, but did not do.
+ - Progress has not followed a straight ascending line, but a spiral with rhythms of progress and retrogression, of evolution and dissolution.
+ - Nothing is worse than active ignorance.
+ - Rest not Life is sweeping by go and dare before you die. Something mighty and sublime, leave behind to conquer time.
+ - Faust: Who holds the devil, let him hold him well, He hardly will be caught a second time.
+ - Ignorant men raise questions that wise men answered a thousand years ago.
+ - A wife is a gift bestowed upon a man to reconcile him to the loss of paradise.
+ - Destiny grants us our wishes, but in its own way, in order to give us something beyond our wishes.
+ - I love those who yearn for the impossible.
+ - There is nothing so terrible as activity without insight.
+ - The person born with a talent they are meant to use will find their greatest happiness in using it.
+ - The eternal feminine draws us up.
+ - The coward only threatens when he is safe.
+ - Over all the mountain tops is peace. In all treetops you perceive scarcely a breath. The little birds in the forest are silent. Wait then; soon, you too, will have peace.
+ - When a wife has a good husband, it is easily seen on her face.
+ - Individuality of expression is the beginning and end of all art.
+ - Great thoughts and a pure heart, that is what we should ask from God.
+ - Divide and rule, a sound motto. Unite and lead, a better one.
+ - Look closely at those who patronize you. Half are unfeeling, half untaught.
+ - I believe in God and in nature and in the triumph of good over evil.
+ - When you lose interest in anything, you also lose the memory for it.
+ - This is the true measure of love, When we believe that we alone can love, That no one could ever have loved so before us, And that no one will ever love in the same way after us.
+ - It is in self-limitation that a master first shows himself.
+ - Beauty is a manifestation of secret natural laws, which otherwise would have been hidden from us forever.
+ - All theory, dear friend, is gray, but the golden tree of life springs ever green.
+ - Someday perhaps the inner light will shine forth from us, and the we’ll need no other light.
+ - We always hope, and in all things it is better to hope than to despair.
+ - Only law can give us freedom.
+ - A really great talent finds its happiness in execution.
+ - Distrust those in whom the desire to punish is strong.
+ - Be always resolute with the present hour. Every moment is of infinite value.
+ - All the knowledge I possess everyone else can acquire, but my heart is all my own.
+ - It is not enough to have knowledge; one must apply it. It is not enough to have wishes; one must also accomplish it.
+ - What I possess, seems far away to me, and what is gone becomes reality.
+ - Science and art belong to the whole world, and before them vanish the barriers of nationality.
+ - The most happy man is he who knows how to bring into relation the end and beginning of his life.
+ - Hatred is something peculiar. You will always find it strongest and most violent where there is the lowest degree of culture.
+ - It is the nature of grace always to fill spaces that have been empty.
+ - Classicism is health, romanticisim is sickness.
+ - Investigate what is, and not what pleases.
+ - If nature is your teacher, your soul will awaken.
+ - Too many parents make life hard for their children by trying, too zealously, to make it easy for them.
+ - Night is the other half of life, and the better half.
+ - To the world you might be one person, but to one person, you might be the world. Kindness is the golden chain by which our world is bound together.
+ - Talents are nurtured best in solitude, But character on life’s tempestuous seas!
+ - A noble soul alone can noble souls attract; And knows alone, as ye, to hold them.
+ - Plunge boldly into the thick of life, and seize it where you will, it is always interesting.
+ - Man must strive, and striving he must err.
+ - Collectors are happy people.
+ - We see only what we know.
+ - Our wishes are presentiments of the abilities that lie in us, harbingers of what we will be able to accomplish.
+ - Method will teach you to win time.
+ - Love and desire are the spirit’s wings to great deeds.
+ - A person hears only what they understand.
+ - Life belongs to the living, and he who lives must be prepared for changes.
+ - We know accurately only when we know little, with knowledge doubt increases.
+ - Those who have no hope for a future life are already dead for the present one.
+ - Mountains cannot be surmounted except by winding paths.
+ - I have found a paper of mine among some others in which I call architecture ‘petrified music.’ Really there is something in this; the tone of mind produced by architecture approaches the effect of music.
+ - It is said that no man is a hero to his valet. That is because a hero can be recognized only by a hero.
+ - Man knows himself only insofar as he knows the world, becoming aware of it if only within himself, and of himself self only within it. Each new subject, well observed, opens up within us a new organ of thought.
+ - Talent develops in quiet, alone; character is sharpened in the torrent of the world.
+ - God help us – for art is long, and life so short.
+ - Art is a mediator of the unspeakable.
+ - Translators can be considered as busy matchmakers who praise as extremely desirable a half-veiled beauty. They arouse an irresistible yearning for the original.
+ - National literature does not mean much these days; now is the age of world literature, and every one must contribute to hasten thearrival of that age.
+ - He who possesses art and science has religion; he who does not possess them, needs religion.
+ - The heights charm us, but the steps do not; with the mountain in our view we love to walk the plains.
+ - The human mind will not be confined to any limits.
+ - As long as you are not aware of the continual law of Die and Be Again, you are merely a vague guest on a dark Earth.
+ - When young, one is confident to be able to build palaces for mankind, but when the time comes one has one’s hands full just to be able to remove their trash.
+ - Deny yourself! You must deny yourself! That is the song that never ends.
+ - Our passions are the true phoenixes; when the old one is burnt out, a new one rises from its ashes.
+ - No man learns to know his inmost nature by introspection, for he rates himself sometimes too low, and often too high, by his own measurement. Man knows himself only by comparing himself with other men; it is life that touches his genuine worth.
+ - Tolerance comes of age. I see no fault committed that I myself could not have committed at some time or other.
+ - Alas, I have studied philosophy, the law as well as medicine, and to my sorrow, theology; studied them well with ardent zeal, yet here I am, a wretched fool, no wiser than I was before.
+ - Love does not dominate; it cultivates.
+ - Love of truth shows itself in this, that a man knows how to find and value the good in everything.
+ - The destiny of any nation at any given time depends on the opinion of its young people, those under twenty-five.
+ - Aptitudes are assumed, they should become accomplishments. That is the purpose of all education.
+ - Love, whose power youth feels, is not suitable for the elderly, just as little as anything that presupposes productivity. It is rare that productivity lasts through the years.
+ - Hatred is a heavy burden. It sinks the heart deep in the breast, and lies like a tombstone on all joys.
+ - How can we learn self-knowledge? Never by taking thought but rather by action. Try to do your duty and you’ll soon discover what you’re like.
+ - The best government is that which teaches us to govern ourselves.
+ - The man with insight enough to admit his limitations comes nearest to perfection.
+ - In the end we retain from our studies only that which we practically apply.
+ - Those that are firm in their will mold the world to themselves.
+ - Being brilliant is no great feat if you respect nothing.
+ - For a man to achieve all that is demanded of him he must regard himself as greater than he is.
+ - Boldness has power, magic and genius in it.
+ - Music is either sacred or secular. The sacred agrees with its dignity, and here has its greatest effect on life, an effect that remains the same through all ages and epochs. Secular music should be cheerful throughout.
+ - I treat my heart like a sick child and gratify its every fancy.
+ - Don’t dissipate your powers; strive to concentrate them. Genius thinks it can do whatever it sees others doing, but it will surely repent of every ill-judged outlay.
+ - Higher yet and higher out of clouds and night, nearer yet and nearer rising to the light – light, serene and holy where my soul may rest, purified and lowly, sanctified and blest.
+ - There is no permanence in doubt; it incites the mind to closer inquiry and experiment, from which, if rightly managed, certainty proceeds, and in this alone can man find thorough satisfaction.
+ - And we went our separate ways without having understood each other. As in this world nobody understands the other easily.
+ - There is no past we can bring back by longing for it. There is only an eternal now that builds and creates out of the past something new and better.
+ - We will burn that bridge when we come to it.
+ - The history of science is science itself; the history of the individual, the individual.
+ - A creation of importance can only be produced when its author isolates himself, it is a child of solitude.
+ - To create something you must be something.
+ - Theories are usually the over-hasty efforts of an impatient understanding that would gladly be rid of phenomena, and so puts in their place pictures, notions, nay, often mere words.
+ - In art, the best is good enough.
+ - Be generous with kindly words, especially about those who are absent.
+ - Where the light is brightest, the shadows are deepest.
+ - As in Rome there is, apart from the Romans, a population of statues, so apart from this real world there is a world of illusion, almost more potent, in which most men live.
+ - Excellence is rarely found, more rarely valued.
+ - For many people, one of the most frustrating aspects of life is not being able to understand other people’s behavior.
+ - That which thy fathers have bequeathed to thee, earn it anew if thou wouldst possess it.
+ - Blood is a very special juice.
+ - Man errs, till he has ceased to strive.
+ - Tell me with whom you associate, and I will tell you who you are.
+ - Chess is the touchstone of intellect.
+ - To know someone here or there with whom you can feel there is understanding in spite of distances or thoughts expressed That can make life a garden.
+ - Death is Nature’s expert advice to get plenty of Life.
+ - Reality surpasses imagination; and we see, breathing, brightening, and moving before our eyes sights dearer to our hearts than any we ever beheld in the land of sleep.
+ - Keep not standing fixed and rooted. Briskly venture, briskly roam.
+ - What is uttered from the heart alone, Will win the hearts of others to your own.
+ - On every mountain height is rest.
+ - Let no one be ashamed to say yes today if yesterday he said no. Or to say no today if yesterday he said yes. For that is life. Never to have changed-what a pitiable thing of which to boast!
+ - Shakespeare is a great psychologist, and whatever can be known of the heart of man may be found in his plays.
+ - Every step of life shows much caution is required.
+ - We all walk in mysteries. We are surrounded by an atmosphere about which we still know nothing at all.
+ - A man’s shortcomings are taken from his epoch; his virtues and greatness belong to himself.
+ - Let us live, while we are alive!
+ - You must either conquer and rule or serve and lose, suffer or triumph, be the anvil or the hammer.
+ - Of all thieves, fools are the worst; they rob you of time and temper.
+ - By nature we have no defect that could not become a strength, no strength that could not become a defect.
+ - One glance, one word from you gives more pleasure than all the wisdom of this world.
+ - Nature is beneficent. I praise her and all her works. She is silent and wise. She is cunning, but for good ends. She has brought me here and will also lead me away. She may scold me, but she will not hate her work. I trust her.
+ - There is a courtesy of the heart; it is allied to love. From its springs the purest courtesy in the outward behavior.
+ - What you have inherited from your forefathers, it takes work to make it your own.
+ - Even dirt glitters when the sun is shining upon it.
+ - Take care of your body with steadfast fidelity. The soul must see through these eyes alone, and if they are dim, the whole world is clouded.
+ - The sum which two married people owe to one another defies calculation. It is an infinite debt, which can only be discharged through all eternity.
+ - Art is long, life is short; judgement difficult, opportunity transient.
+ - Life is the childhood of our immortality.
+ - Sometimes I don’t understand how another can love her, is allowed to love her, since I love her so completely myself, so intensely, so fully, grasp nothing, know nothing, have nothing but her!
+ - Colour itself is a degree of darkness...
+ - Make the most of time, it flies away so fast; yet method will teach you to win time.
+ - True love is love that stays constant for ever, whatever it’s fortune; whether requited or scored, filled or sent empty away.
+ - What is predestination? Answer: God is more powerful and wiser than we are, therefore he deals with us according to his pleasure.
+ - One must ask children and birds how cherries and strawberries taste.
+ - Yet here I stand poor fool what more, not one wit wiser than before.
+ - To have a positive religion is not necessary. To be in harmony with yourself and the universe is what counts, and this is possible without positive and specific formulation in words.
+ - It’s true that nothing in this world makes us so necessary to others as the affection we have for them.
+ - Nature knows no pause in progress and development, and attaches her curse on all inaction.
+ - Perfection is the measure of heaven, and the wish to be perfect the measure of man.
+ - Nature is, after all, the only book that offers important content on every page.
+ - Names are but noise and smoke, Obscuring heavenly light.
+ - If there is confusion in your head and in your heart, what more do you want! A man who no longer loves and no longer errs should have himself buried straight away.
+ - Give me those days with heart in riot, The depths of bliss that touched on pain, The force of hate, and love’s disquiet- Ah, give me back my youth again!
+ - Of all peoples the Greeks have dreamt the dream of life best.
+ - Mystery is truth’s dancing partner.
+ - The unnatural, that too is natural.
+ - Where I cannot be moral, my power is gone.
+ - Were the eye not of the sun, How could we behold the light? If God’s might and ours were not as one, How could His work enchant our sight?
+ - Personality is everything in art and poetry.
+ - The Bible grows more beautiful, as we grow in our understanding of it.
+ - For a brave man deserves a well-endowed girl.
+ - These auspicious aspects, which the astrologers subsequently interpreted for me, may have been the causes of my preservation.
+ - A phenomenon like Mozart remains an inexplicable thing.
+ - There are situations in which hope and fear run together, in which they mutually destroy one another and lose themselves in dull indifference.
+ - Perseverance is a silent power that grows irresistibly greater with time.
+ - Whoever wishes to keep a secret must hide the fact that he possesses one.
+ - I am certain that I have been here as I am now a thousand times before, and I hope to return a thousand times.
+ - Beware of a man of one book.
+ - To measure up to all that is demanded of him, a man must overestimate his capacities.
+ - The assault of our enemies is not part of our life; it is only part of our experience; we throw it off and guard ourselves against it as against frost, storm, rain, hail, or any other of the external evils which may be expected to happen.
+ - Clever people are always the best conversations lexicon.
+ - Not the maker of plans and promises, but rather the one who offers faithful service in small matters. This is the person who is most likely to achieve what is good and lasting.
+ - Art is long, life short, judgment difficult, opportunity transient. To act is easy, to think is hard; to act according to our thought is troublesome. Every beginning is cheerful: the threshold is the place of expectation.
+ - The hero draws inspiration from the virtue of his ancestors.
+ - A world without love would be no world.
+ - To live in a great idea means to treat the impossible as though it were possible. It is just the same with a strong character; and when an idea and a character meet, things arise which fill the world with wonder for thousands of years.
+ - A genuine work of art usually displeases at first sight, as it suggests a deficiency in the spectator.
+ - Happiness is a ball after which we run wherever it rolls, and we push it with our feet when it stops.
+ - Common sense is the genius of humanity.
+ - But who will dare to speak the truth out clear? The few who anything of truth have learned, And foolishly did not keep truth concealed, Their thoughts and visions to the common herd revealed, Since time began we’ve crucified and burned.
+ - In comradeship is danger countered best.
+ - All things are only transitory.
+ - The soul is indestructible and its activity will continue through eternity. It is like the sun, which, to our eyes, seems to set at night; but it has in reality only gone to diffuse its light elsewhere.
+ - Only the soul that loves is happy.
+ - If you call a thing bad you do little, if you call a thing good you do much.
+ - Superstition is part of the poetry of life.
+ - If the mass of people hesitate to act, strike with swiftly and with boldness, the brave heart that understands and seizes opportunity can everything.
+ - Many hammer all over the wall and believe that with each blow they hit the nail on the head.
+ - What is the path? There is no path. On into the unknown.
+ - One criticizes the English for carrying their teapots wherever they go, even lugging them up Mount Etna. But doesn’t every nationhave its teapot, in which, even when traveling, it brews the dried bundles of herbs brought from home?
+ - Daring ideas are like chessmen moved forward; they may be beaten, but they may start a winning game.
+ - It is the color closest to light. In its utmost purity it always implies the nature of brightness and has a cheerful, serene, gently stimulating character. Hence, experience teaches us that yellow makes a thoroughly warm and comforting impression.
+ - Truth is a torch but a tremendous one. That is why we hurry past it, shielding our eyes, indeed, in fear of getting burned.
+ - Wood burns because it has the proper stuff in it; and a man becomes famous because he has the proper stuff in him.
+ - Everywhere, we learn only from those whom we love.
+ - Our virtues and view spring from one root.
+ - To live as one likes is plebian the noble man aspires to order and law.
+ - We can really respect a man only if he doesn’t always look out for himself.
+ - Battle not with monsters, for then you become one.
+ - Time flies, and what is past is done.
+ - Once more I am a wanderer, a pilgrim, through the world. But what else are you?
+ - If in the infinite you want to stride, Just walk in the finite to every side.
+ - A flippant, frivolous man may ridicule others, may controvert them, scorn them; but he who has any respect for himself seems to have renounced the right of thinking meanly of others.
+ - What dazzles, for the moment spends its spirit; Whats genuine, shall posterity inherit.
+ - The day is of infinite length for him who knows how to appreciate and use it.
+ - We talk too much. We should talk less and draw more.
+ - I am fully convinced that the soul is indestructible, and its activity will continue through eternity.
+ - Moral epochs have their course as well as the seasons. We can no more hold them fast than we can hold sun, moon, and stars. Our faults perpetually return upon us; and herein lies the subtlest difficulty of self-knowledge.
+ - It matters little whether a man be mathematically or philologically or artistically cultivated, so he be but cultivated.
+ - The field of experience is the whole universe in all directions. Theory remains shut up within the limits of human faculties.
+ - The greatest act of faith takes place when a man finally decides that he is not God.
+ - Wishes are premonitions of abilities.
+ - So long as you live and work, you will be misunderstood; to that you must resign yourself once and for all. Be silent!
+ - Fresh activity is the only means of overcoming adversity.
+ - When you praise someone you call yourself his equal.
+ - The finished man, you know, is difficult to please; a growing mind will ever show you gratitude. – Faust 1, lines 182-3.
+ - I always seek the good that is in people and leave the bad to Him who made mankind and knows how to round off the corners.
+ - Against criticism a man can neither protest nor defend himself; he must act in spite of it, and then it will gradually yield to him.
+ - Paternity is based anyhow only upon conviction: I am convinced, therefore, I am the father.
+ - Good children’s literature appeals not only to the child in the adult, but to the adult in the child.
+ - What we agree with leaves us inactive, but contradiction makes us productive.
+ - Life seems so vulgar, so easily content with the commonplace things of every day, and yet it always nurses and cherishes certain higher claims in secret, and looks about for the means of satisfying them.
+ - And here, poor fool, with all my lore I stand no wiser than before.
+ - Deeply earnest and thoughtful people stand on shaky footing with the public.
+ - Be valiant and powerful forces will come to your aid.
+ - It is working within limits that the craftsman reveals himself.
+ - Character develops itself in the stream of life.
+ - The soul-stirring image of death is no bugbear to the sage, and is looked on without despair by the pious. It teaches the former to live, and it strengthens the hopes of the latter in salvation in the midst of distress. Death is new life to both.
+ - Happy the man who early learns the wide chasm that lies between his wishes and his powers.
+ - All truly wise thoughts have been thought already thousands of times; but to make them truly ours, we must think them over again honestly, until they take root in our personal experience.
+ - The close and thoughtful observer more and more learns to recognize his limitations. He realizes that with the steady growth of knowledge more and more new problems keep on emerging.
+ - Since Time is not a person we can overtake when he is gone, let us honor him with mirth and cheerfulness of heart while he is passing.
+ - Gray is the color of all theory.
+ - Always to distrust is an error, as well as always to trust.
+ - What people call the spirit of the times is mostly their own spirit in which the times mirror themselves.
+ - War is in truth a disease in which the juices that serve health and maintenance are used for the sole purpose of nourishing something foreign, something at odds with nature.
+ - The eye doesn’t see any shapes, it sees only what is differentiated through light and dark or through colors.
+ - Tolerance should, strictly speaking, be only a passing mood; it ought to lead to acknowledgment and appreciation. To tolerate a person is to affront him.
+ - Words express neither objects nor ourselves.
+ - We cannot and must not get rid of nor deny our characteristics. But we can give them shape and direction.
+ - A man is really alive only when he delights in the good-will of others.
+ - He who is and remains true to himself and to others has the most attractive quality of the greatest talent.
+ - It would not be worth your while to reach the age of seventy if all the wisdom of the world were to be foolishness before God.
+ - To be sure, a good work of art can and will have moral consequences, but to demand of the artists moral intentions, means ruiningtheir craft.
+ - I wish the stage were as narrow as the wire of a tighrope dancer so that no incompetent would dare step upon it.
+ - A talent can be cultivated in tranquility; a character only in the rushing stream of life.
+ - If children grew up according to early indications, we should have nothing but geniuses.
+ - Art is a severe business; most serious when employed in grand and sacred objects. The artist stands higher than art, higher than the object. He uses art for his purposes, and deals with the object after his own fashion.
+ - Nothing is more odious than the majority, for it consists of a few powerful leaders, a certain number of accommodating scoundrels and submissive weaklings, and a mass of men who trot after them without thinking, or knowing their own minds.
+ - What you desire when young, you have in abundance when old.
+ - In art, to express the infinite one should suggest infinitely more than is expressed.
+ - To understand one thing well is better than understanding many things by halves.
+ - If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own.
+ - Life teaches us to be less harsh with ourselves and with others.
+ - What must the English and French think of the language of our philosophers when we Germans do not understand it ourselves?
+ - God could cause us considerable embarrassment by revealing all the secrets of nature to us: we should not know what to do for sheer apathy and boredom.
+ - Truth is a torch, but a terrific one; therefore we all try to reach it with closed eyes, lest we should be scorched.
+ - When translating one must proceed up to the intranslatable; only then one becomes aware of the foreign nation and the foreign tongue.
+ - People can only live with their equals, and not even with them; for in the long run they cannot tolerate that someone is their equal.
+ - We can most safely achieve truly universal tolerance when we respect that which is characteristic in the individual and in nations, clinging, though, to the conviction that the truly meritorious is unique by belonging to all of mankind.
+ - Every man has enough power left to carry out that of which he is convinced.
+ - How circumscribed is woman’s destiny!
+ - We usually lose today, because there has been a yesterday, and tomorrow is coming.
+ - The world only goes forward because of those who oppose it.
+ - One of the most striking signs of the decay of art is the intermixing of different genres.
+ - Beauty and Genius must be kept afar if one would avoid becoming their slave.
+ - The older I get the more I trust in the law according to which the rose and the lily bloom.
+ - What one doesn’t understand one doesn’t possess.
+ - If you inquire what people are like here, I must answer, “The same as everywhere.”
+ - The artist alone sees spirits. But after he has told of their appearing to him, everybody sees them.
+ - If you’ve never eaten while crying you don t know what life tastes like.
+ - Out of moderation a pure happiness springs.
+ - It is sometimes essential for a husband and a wife to quarrel – they get to know each other better.
+ - Give me the benefit of your convictions, if you have any; but keep your doubts to yourself, for I have enough of my own.
+ - All understanding begins in wonder!
+ - Know’st thou the land where the lemon-trees bloom, Where the gold orange glows in the deep thicket’s gloom, Where a wind ever soft from the blue heaven blows, And the groves are of laurel and myrtle and rose!
+ - There is no crime of which I do not deem myself capable.
+ - For the butterfly, mating and propagation involve the sacrifice of life, for the human being, the sacrifice of beauty.
+ - One lives but once in the world.
+ - Wine rejoices the heart of man and joy is the mother of all virtues.
+ - For the nature of women is closely allied to art.
+ - When she sees the leaves fall, they raise no other idea in her mind than that winter is approaching.
+ - I have so much in me, and the feeling for her absorbs it all; I have so much, and without her it all comes to nothing.
+ - Once you have missed the first buttonhole, you’ll never manage to button up.
+ - Two souls dwell, alas! in my breast.
+ - A great revolution is never the fault of the people, but of the government.
+ - Let us seek to fathom those things that are fathomable and reserve those things which are unfathomable for reverence in quietude.
+ - He who is plenteously provided for from within needs but little from without.
+ - Kindness is the golden thread that holds society together.
+ - Sin writes histories, goodness is silent.
+ - The rainbow mirrors human aims and action. Think, and more clearly wilt thou grasp it, seeing Life is but light in many-hued reflection.
+ - The light is there, and colors surround us. However, if there were no light nor colors in our own eye, we wouldn’t perceive such things outside of us.
+ - Everything that we encounter leaves traces behind. Everything contributes imperceptibly to our education.
+ - Everything is both simpler than we can imagine and more entangled than we can conceive.
+ - One man’s word is no man’s word; we should quietly hear both sides.
+ - The present moment is a powerful goddess.
+ - Painting and tattooing the body is a return to animalism.
+ - Patriotism ruins history.
+ - A life without love, without the presence of the beloved, is nothing but a mere magic-lantern show. We draw out slide after slide, swiftly tiring of each, and pushing it back to make haste for the next.
+ - Nothing can be compared to the new life that the discovery of another country provides for a thoughtful person. Although I am still the same I believe to have changed to the bones.
+ - We are the slaves of objects around us, and appear little or important according as these contract or give us room to expand.
+ - Impotent hatred is the most horrible of all emotions; one should hate nobody whom one cannot destroy.
+ - Were not the eye made to receive the rays of the sun, it could not behold the sun; if the peculiar power of God lay not in us, how could the godlike charm us?
+ - All perishable is but an allegory.
+ - Wherever a man may happen to turn, whatever a man may undertake, he will always end up by returning to that path which nature has marked out for him.
+ - The beginning of faith is the beginning of fruitfulness; but the beginning of unbelief, however glittering, is empty.
+ - Mathematicians are like Frenchmen: whatever you say to them they translate into their own language and forthwith it is something entirely different.
+ - Properly speaking, such work is never finished; one must declare it so when, according to time and circumstances, one has done one’s best.
+ - Architecture is crystallized music.
+ - Letters are among the most significant memorial a person can leave behind them.
+ - The decline of literature indicates the decline of a nation.
+ - When Nature begins to reveal her open secret to a man, he feels an irresistible longing for her worthiest interpreter, Art.
+ - Nature has neither core nor skin: she’s both at once outside and in.
+ - If you are to accomplish all that one demands of you, you must overestimate your own worth.
+ - On all the peaks lies peace.
+ - The senses do not deceive us, but the judgment does.
+ - The rich want good wine, the poor, plenty of wine.
+ - The dignity of art probably appears most eminently with music since it does not have any material that needs to be discounted. Music is all form and content and elevates and ennobles everything that it expresses.
+ - Misunderstandings and neglect create more confusion in this world than trickery and malice. At any rate, the last two are certainly much less frequent.
+ - Let no one be like another, yet everyone like the highest. How is this done? Be each one perfect in himself.
+ - America, you have it better than our continent, the old one.
+ - Mozart is a human incarnation of the divine force of creation.
+ - Without haste! without rest! Bind the motto to thy breast! Bear it with thee as a spell; Storm or sunshine, guard it well.
+ - Hope is the second soul of the unhappy.
+ - The clever reader who is capable or reading between these lines what does not stand written in them but is nevertheless implied will be able to form some conception.
+ - Flowers are the beautiful hieroglyphics of nature with which she indicates how much she loves us.
+ - When I say to the Moment flying; ‘Linger a while – thou art so fair!’ Then bind me in thy bonds undying, And my final ruin I will bear!
+ - Analysis and synthesis are both as necessary to the thinking spirit as inspiration and expiration to the organism.
+ - Belief is not the beginning of knowledge – it is the end.
+ - Seize this very minute. What you can do or dream you can do, begin it. Begin it and the work will be completed.
+ - A good man, through obscurest aspirations Has still an instinct of the one true way.
+ - He only earns his freedom and his life Who takes them every day by storm.
+ - There is nothing outside of us that is not at the same time in us, and as the external world has its colors the eye, too, has colors.
+ - Self knowledge is best learned not by contemplation, but by action.
+ - It is the strange fate of man, that even in the greatest of evils the fear of the worst continues to haunt him.
+ - It has been said that figures rule the world. Maybe. But I am sure that figures show us whether it is being ruled well or badly.
+ - Animals, we have been told, are taught by their organs. Yes, I would add, and so are men, but men have this further advantage that they can also teach their organs in return.
+ - Water its living strength first shows, When obstacles its course oppose.
+ - Fools and wise men are equally harmless. It is the half-fools and half-wise that are dangerous.
+ - It is a mistake for a taciturn, serious-minded woman to marry a jovial man, but not for a serious-minded man to marry a lighthearted woman.
+ - Stones are mute teachers; they silence the observer, and the most valuable lesson we learn from them we cannot communicate.
+ - Whatever is the lot of humankind I want to taste within my deepest self. I want to seize the highest and the lowest, to load its woe and bliss upon my breast, and thus expand my single self titanically and in the end go down with all the rest.
+ - Character calls forth character.
+ - Let’s plunge ourselves into the roar of time, the whirl of accident; may pain and pleasure, success and failure, shift as they will – it’s only action that can make a man.
+ - I am not omniscient, but I know a lot.
+ - To accept good advice is but to increase one’s own ability.
+ - Our earthly ball a peopled garden.
+ - The deed is everything, the glory is naught.
+ - To know of someone here and there whom we accord with, who is living on with us, even in silence – – this makes our earthly ball a peopled garden.
+ - Sometimes our fate resembles a fruit tree in winter. Who would think that those branches would turn green again and blossom, but we hope it, we know it.
+ - Every situation – nay, every moment – is of infinite worth; for it is the representative of a whole eternity.
+ - Noble be man, helpful and good!
+ - There is nothing worth thinking but it has been thought before; we must only try to think it again.
+ - Napoleon for the sake of a good name broke in pieces half the world.
+ - Most man only care for science so far as they get a living by it, and that they worship even error when it affords them a subsistence.
+ - If you wish to know the mind of a man, listen to his words.
+ - Experience is only half of experience.
+ - There is no trifling with nature; it is always true, grave, and severe; it is always in the light, and the faults and errors fall to our share. It defies incompetency, but reveals its secrets to the competent, the truthful, and the pure.
+ - My poor head is in such a whirl, my mind is all in bits.
+ - The day is for mistake and error, sequence of time for success and carrying out. The one who anticipates is master of the day.
+ - The highest goal that man can achieve is amazement.
+ - Certain books seem to be written, not that we might learn from them, but in order that we might see how much the author knows.
+ - Marriage is the beginning and pinnacle of civilization.
+ - I have often reaped what others have sowed. My work is the work of a collective being that bears the name Goethe.
+ - Desire is the presentiment of our inner abilities, and the forerunner of our ultimate accomplishments.
+ - Association with women is the basis of good manners.
+ - Since you know me and my destiny only too well, you probably also know what attracts me to all unfortunate people.
+
+500 quotes

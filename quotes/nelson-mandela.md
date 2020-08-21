@@ -1,0 +1,502 @@
+ - It always seems impossible until it's done.
+ - A winner is a dreamer who never gives up.
+ - Do not judge me by my successes, judge me by how many times I fell down and got back up again.
+ - It is not where you start but how high you aim that matters for success.
+ - Education is the most powerful weapon which you can use to change the world.
+ - May your choices reflect your hopes, not your fears.
+ - I am the captain of my soul.
+ - The brave man is not the one who has no fears, he is the one who triumphs over his fears.
+ - Lead from the back – and let others believe they are in front.
+ - Nothing is black or white.
+ - The greatest glory in living lies not in never falling, but in rising every time we fall.
+ - If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.
+ - After climbing a great hill, one only finds that there are many more hills to climb.
+ -  As we let our own light shine, we unconsciously give other people permission to do the same.
+ - There is no passion to be found playing small – in settling for a life that is less than the one you are capable of living.
+ - Your playing small does not serve the world. Who are you not to be great?
+ - Peace is the greatest weapon for development that any person can have.
+ - Once a person is determined to help themselves, there is nothing that can stop them.
+ - One cannot be prepared for something while secretly believing it will not happen.
+ - We must use time creatively, and forever realize that the time is always ripe to do right.
+ - Remember to celebrate milestones as you prepare for the road ahead.
+ - Resentment is like drinking poison and then hoping it will kill your enemies.
+ - I learned that courage was not the absence of fear, but the triumph over it. The brave man is not he who does not feel afraid, but he who conquers that fear.
+ - As I walked out the door toward the gate that would lead to my freedom, I knew if I didn't leave my bitterness and hatred behind, I'd still be in prison.
+ - The youth of today are the leaders of tomorrow.
+ - A good head and a good heart are always a formidable combination.
+ - There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered.
+ - Fools multiply when wise men are silent.
+ - No one is born hating another person because of the color of his skin, or his background, or his religion. People must learn to hate, and if they can learn to hate, they can be taught to love, for love comes more naturally to the human heart than its opposite.
+ - Forget the past.
+ - You will achieve more in this world through acts of mercy than you will through acts of retribution.
+ - A Nation should not be judged by how it treats its highest citizens, but its lowest ones.
+ - Quitting is leading too.
+ - I am not a saint, unless you think of a saint as a sinner who keeps on trying.
+ - It is better to lead from behind and to put others in front, especially when you celebrate victory when nice things occur. You take the front line when there is danger. Then people will appreciate your leadership.
+ - In my country we go to prison first and then become President. 
+ - We can change the world and make it a better place. It is in your hands to make a difference.
+ - For to be free is not merely to cast off one’s chains, but to live in a way that respects and enhances the freedom of others.
+ - Education is the great engine to personal development.
+ - To deny people their human rights is to challenge their very humanity.
+ - Appearances matter – and remember to smile.
+ - Times change, we need to change as well.
+ - Sport has the power to change the world. It has the power to inspire. It has the power to unite people in a way that little else does. It speaks to youth in a language they understand. Sport can create hope where once there was only despair.
+ - People must learn to hate and if they can learn to hate, they can be taught to love.
+ - Live life as though nobody is watching, and express yourself as though everyone is listening.
+ - Where you stand depends on where you sit.
+ - Courage is not the absence of fear – it s inspiring others to move beyond it.
+ - As long as poverty, injustice and gross inequality persist in our world, none of us can truly rest.
+ - One of the things I learned when I was negotiating was that until I changed myself, I could not change others.
+ - Our children are our greatest treasure. They are our future. Those who abuse them tear at the fabric of our society and weaken our nation.
+ - There is no future without forgiveness.
+ - A good head and good heart are always a formidable combination. But when you add to that a literate tongue or pen, then you have something very special.
+ - When a man is denied the right to live the life he believes in, he has no choice but to become an outlaw.
+ - Without language, one cannot talk to people and understand them; one cannot share their hopes and aspirations, grasp their history, appreciate their poetry, or savor their songs.
+ - There is no easy walk to freedom anywhere, and many of us will have to pass through the valley of the shadow of death again and again before we reach the mountaintop of our desires.
+ - If you want to change the world, help the women.
+ - When we read we are able to travel to many places, meet many people and understand the world.
+ - Know your enemy – and learn about his favorite sport.
+ - There can be no greater gift than that of giving one’s time and energy to help others without expecting anything in return.
+ - There can be no keener revelation of a society’s soul than the way in which it treats its children.
+ - Our children are the rock on which our future will be built, our greatest asset as a nation. They will be the leaders of our country, the creators of our national wealth, those who care for and protect our people.
+ - With freedom comes responsibilities, and I dare not linger, for my long walk has not ended yet.
+ - Let there be justice for all. Let there be peace for all. Let there be work, bread, water and salt for all. Let each know that for each the body, the mind and the soul have been freed to fulfill themselves.
+ - Love comes more naturally to the human heart than its opposite.
+ - Our children are the rock on which our future will be built, our greatest asset as a nation.
+ - The wounds that cannot be seen are more painful than those that can be treated by a doctor.
+ - There is a constant struggle between good an evil in the world. It is up to good people to choose the right side.
+ - Safety and security don’t just happen, they are the result of collective consensus and public investment. We owe our children, the most vulnerable citizens in our society, a life free of violence and fear.
+ - Running taught me valuable lessons. In cross-country competition, training counted more than intrinsic ability, and I could compensate for a lack of natural aptitude with diligence and discipline. I applied this in everything I did.
+ - Although I am a gregarious person, I love solitude even more.
+ - Sometimes it falls upon a generation to be great. You be that great generation. Let your greatness blossom. Of course the task will not be easy. But not to do this would be a crime against humanity, against which I ask all humanity now to rise up.
+ - A society that does not value its older people denies its roots and endangers its future. Let us strive to enhance their capacity to support themselves for as long as possible and, when they cannot do so anymore, to care for them.
+ - Money won’t create success, the freedom to make it will.
+ - Overcoming poverty is not a gesture of charity. It is an act of justice.
+ - Racism is a blight on the human conscience.
+ - We know too well that our freedom is incomplete without the freedom of the Palestinians.
+ - Freedom is indivisible; the chains on any one of my people were the chains on all of them, the chains on all of my people were the chains on me.
+ - I learned to have the patience to listen when people put forward their views, even if I think those views are wrong. You can’t reach a just decision in a dispute unless you listen to both sides.
+ - By ancestry, I was born to rule.
+ - No power on this earth can destroy the thirst for human dignity.
+ - There is no such thing as part freedom.
+ - Courageous people do not fear forgiving, for the sake of peace.
+ - It is not our diversity which divides us; it is not our ethnicity, or religion or culture that divides us. Since we have achieved our freedom, there can only be one division amongst us: between those who cherish democracy and those who do not.
+ - We slaughter one another in our words and attitudes. We slaughter one another in the stereotypes and mistrust that linger in our heads, and the words of hate we spew from our lips.
+ - When the water starts boiling it is foolish to turn off the heat.
+ - We must work together to ensure the equitable distribution of wealth, opportunity and power in our society.
+ - It is not the kings and generals that make history, but the masses of the people.
+ - When we can sit in the face of insanity or dislikes and be free from the need to make it different, then we are free.
+ - I want to sleep for eternity with a broad smile on my face. I want those who remain behind to say this man has done his duty.
+ - Nonviolence is a good policy when the conditions permit.
+ - An organisation can only carry out its mandate if there is discipline, and where there is no discipline there can be no real progress.
+ - The very right to be human is denied every day to hundreds of millions of people as a result of poverty, the unavailability of basic necessities such as food, jobs, water and shelter, education, health care and a healthy environment.
+ - Other people have qualities that may be better than your own. Let them express them.
+ - Children are the most important asset in a country. For them to become that asset, they must receive education and love from their parents.
+ - When I walked out of the gate I knew that if I continued to hate these people I was still in prison.
+ - If you want to preach a revolutionary message, wear a suit.
+ - We should never forget those on whose shoulders we stand and those who paid the supreme price for freedom.
+ - The United States of America is a threat to world peace.
+ - A fundamental concern for others in our individual and community lives would go a long way in making the world the better place we so passionately dreamt of.
+ - In Africa there is a concept known as ‘ubuntu’ – the profound sense that we are human only through the humanity of others; that if we are to accomplish anything in this world it will in equal measure be due to the work and achievement of others.
+ - My son has died of AIDS.
+ - A bright future beckons. The onus is on us, through hard work, honesty and integrity, to reach for the stars.
+ - Forgiveness liberates the soul. It removes fear. That is why it is such a powerful weapon.
+ - History will judge us by the difference we make in the everyday lives of children.
+ - Che Guevara’s life is an inspiration for every human being who loves freedom. We will always honor his memory.
+ - The more informed you are, the less arrogant and aggressive you are.
+ - It is music and dancing that make me at peace with the world.
+ - Our human compassion binds us the one to the other – not in pity or patronizingly, but as human beings who have learnt how to turn our common suffering into hope for the future.
+ - Today we are a nation at peace with itself, united in our diversity, not only proclaiming but living out the contention that South Africa belongs to all who live in it. We take our place amongst the nations of the world, confident and proud in being an African country.
+ - Young people are capable, when aroused, of bringing down the towers of oppression and raising the banners of freedom.
+ - We owe our children – the most vulnerable citizens in any society – a life free from violence and fear.
+ - None of us, acting alone, can achieve the success.
+ - Few things make the life of a parent more rewarding and sweet as successful children.
+ - Disabled children are equally entitled to an exciting and brilliant future.
+ - A free press is one of the pillars of democracy.
+ - It never hurts to think too highly of a person; often they become ennobled and act better because of it.
+ - The best weapon is to sit down and talk.
+ - Our differences are our strength as a species and as a world community.
+ - Negotiation and discussion are the greatest weapons we have for promoting peace and development.
+ - If the ANC does to you what the apartheid government did to you, then you must do to the ANC what you did to the apartheid government.
+ - We can’t fight AIDS unless we do much more to fight TB as well.
+ - We ask ourselves, who am I to be brilliant, gorgeous, handsome, talented and fabulous? Actually, who are you not to be?
+ - Music is a great blessing. It has the power to elevate and liberate us. It sets people free to dream. It can unite us to sing with one voice. Such is the value of music.
+ - We forgive but not forgotten.
+ - Any man or institution that tries to rob me of my dignity will lose.
+ - Be a life long student, read as many books as possible.
+ - If you want the cooperation of humans around you, you must make them feel they are important – and you do that by being genuine and humble.
+ - Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do.
+ - Poverty is not natural; it is man-made.
+ - Lead from the front – but don t leave your base behind.
+ - In order to build our nation, we must all exceed our own expectations.
+ - You can start changing our world for the better daily, no matter how small the action.
+ - Prison itself is a tremendous education in the need for patience and perseverance. It is above all a test of one’s commitment.
+ - Sometimes it falls upon a generation to be great, you can be that generation.
+ - No matter what the past has dealt you, don’t let it destroy your future.
+ - It is better to lead from behind and to put others in front.
+ - Do not allow your anger to control your reason, but rather your reason to control your anger.
+ - Our hope is that the elementary reading of comics will lead to the joy of reading good books.
+ - A good leader can engage in a debate frankly and thoroughly, knowing that at the end he and the other side must be closer, and thus emerge stronger. You don’t have that idea when you are arrogant, superficial, and uninformed.
+ - Never, never and never again shall it be that this beautiful land will again experience the oppression of one by another.
+ - Part of being optimistic is keeping one’s head pointed toward the sun, one’s feet moving forward.
+ - There is no passion to be found playing small.
+ - It is in the character of growth that we should learn from both pleasant and unpleasant experiences.
+ - Give a child love, laughter and peace, not AIDS.
+ - Artists reach areas far beyond the reach of politicians. Art, especially entertainment and music, is understood by everybody, and it lifts the spirits and the morale of those who hear it.
+ - The world is truly round and seems to start and end with those we love.
+ - Hating clouds the mind. It gets in the way of strategy. Leaders cannot afford to hate.
+ - Each of us is as intimately attached to the soil of this beautiful country as are the famous jacaranda trees of Pretoria and the mimosa trees of the bushveld – a rainbow nation at peace with itself and the world.
+ - Politics can be strengthened by music, but music has a potency that defies politics.
+ - Our fear is not that we are inadequate, but that we are powerful beyond measure.
+ - Exercise is the key not only to physical health but to peace of mind.
+ - Keep your friends close – and your rivals even closer.
+ - Where globalization means, as it so often does, that the rich and powerful now have new means to further enrich and empower themselves at the cost of the poorer and weaker, we have a responsibility to protest in the name of universal freedom.
+ - It is wise to persuade people to do things and make them think it was their own idea.
+ - The time for the healing of the wounds has come. The moment to bridge the chasms that divide us has come. The time to build is upon us.
+ - I approach every problem with optimism.
+ - You see, when there is danger, a good leader takes the front line. But when there is celebration, a good leader stays in the back room. If you want the cooperation of human beings around you, make them feel that they are important. And you do that by being humble.
+ - If you want to make peace with your enemy, you have to work with your enemy. Then he becomes your partner.
+ - The curious beauty about African music is that it uplifts even as it tells a sad story.
+ - As long as women are bound by poverty and as long as they are looked down upon, human rights will lack substance.
+ - I dream of our vast deserts, of our forests, of all our great wildernesses. We must never forget that it is our duty to protect this environment.
+ - When those in power deny you of freedom the only path to freedom is power.
+ - The day I am afraid to do, that is the day I am no longer fit to lead.
+ - Only through hardship, sacrifice and militant action can freedom be won. The struggle is my life. I will continue fighting for freedom until the end of my days.
+ - Those who can’t imagine change reveal the deficits of their imaginations, not the difficulty of change.
+ - If our expectations, if our fondest prayers and dreams, are not realized then we should all bear in mind that the greatest glory of living lies not in never falling but in rising every time you fall.
+ - It is what we make out of what we have, not what we are given, that separates one person from another.
+ - Great peacemakers are all people of integrity, of honesty, but humility.
+ - I am not an optimist, but a great believer of hope.
+ - My dream would be a multicultural society, one that is diverse and where every man, woman and child are treated equally. I dream of a world where all people of all races work together in harmony.
+ - After climbing a great hill, one only finds that there are many more hills to climb. I can rest only for a moment, for with freedom come responsibilities, and I dare not linger, for my long walk is not yet ended.
+ - No country can really develop unless its citizens are educated.
+ - We speak here of the challenge of the dichotomies of war and peace, violence and non-violence, racism and human dignity, oppression and repression and liberty and human rights, poverty and freedom from want.
+ - It is a grave error for any leader to be oversensitive in the face of criticism.
+ - There is no easy walk to freedom anywhere.
+ - Teach the children that Africans are not one iota inferior to Europeans.
+ - To be the father of a nation is a great honor, but to be the father of a family is a greater joy.
+ - No country can really develop unless its citizens are educated. Any nation that is progressive is led by people who have had the privilege of studying.
+ - It is not beyond our power to create a world in which all children have access to a good education.
+ - Each of us, as citizens, has a role to play in creating a better world for our children.
+ - The curious beauty of African music is that it uplifts even as it tells a sad tale. You may be poor, you may have only a ramshackle house, you may have lost your job, but that song gives you hope.
+ - Israel should withdraw from all the areas which it won from the Arabs in 1967, and in particular Israel should withdraw completely from the Golan Heights, from south Lebanon and from the West Bank.
+ - Honour belongs to those who never forsake the truth even when things seem dark and grim, who try over and over again, who are never discouraged by insults, humiliation and even defeat.
+ - Ethiopia always has a special place in my imagination and the prospect of visiting Ethiopia attracted me more strongly than a trip to France, England, and America combined. I felt I would be visiting my own genesis, unearthing the roots of what made me an African.
+ - Let there be work, bread, water and salt for all.
+ - Our march to freedom is irreversible. We must not allow fear to stand in our way.
+ - Let your greatness bloom.
+ - No one is born hating another person because of the colour of his skin, or his background, or his religion.
+ - You can never have an impact on society if you have not changed yourself.
+ - No problem is so deep that it cannot be overcome, given the will of all parties, through discussion and negotiation rather than force and violence.
+ - Only free men can negotiate; prisoners cannot enter into contracts. Your freedom and mine cannot be separated.
+ - The message of reconciliation, of nation-building, of granting amnesty, indemnity, has struck a powerful, favorable chord. And people can understand that we’re here not for purposes of retribution but to forget the past and to build our country.
+ - True reconciliation does not consist in merely forgetting the past.
+ - The virtue and the strength of UWC is that it provides small, but powerful cells of innovation, catalysts for change, breaking barriers of habit and opening broader vistas of experience for both pupils and educationalists.
+ - The truth is we are not yet free; we have merely achieved the freedom to be free.
+ - Great anger and violence can never build a nation.
+ - We were born to make manifest the glory of God that is within us. It’s not just in some of us, it’s in everyone.
+ - My family is very large. 42 million.
+ - Man’s goodness is a flame that can be hidden but never extinguished.
+ - I enjoyed the discipline and solitariness of long-distance running, which allowed me to escape from the hurly-burly of school life.
+ - Whenever I am with energetic young people, I feel like a recharged battery.
+ - It is through education that the daughter of a peasant can become a doctor.
+ - I greet you all in the name of peace, democracy and freedom for all.
+ - Freedom is meaningless if people cannot put food in their stomachs, if they can have no shelter, if illiteracy and disease continue to dog them.
+ - There is nothing more important in life than giving. Tolerance is forged when people look beyond their own desires.
+ - Death is something inevitable. When a man has done what he considers to be his duty to his people and his country, he can rest in peace. I believe I have made that effort and that is, therefore, why I will sleep for the eternity.
+ - Those who conduct themselves with morality, integrity and consistency need not fear the forces of inhumanity and cruelty.
+ - Where people of goodwill get together and transcend their differences for the common good, peaceful and just solutions can be found even for those problems which seem most intractable.
+ - To deny people of their human rights is to challenge their very humanity. To impose on them a wretched life of huger and deprivation is to dehumanize them. But such has been the terrible fate of all black persons in our country under the system of apartheid.
+ - If there are dreams about a beautiful South Africa, there are also roads that lead to their goal. Two of these roads could be named Goodness and Forgiveness.
+ - We need to exert ourselves that much more, and break out of the vicious cycle of dependence imposed on us by the financially powerful: those in command of immense market power and those who dare to fashion the world in their own image.
+ - The Commonwealth makes the world safe for diversity.
+ - Only armchair politicians are immune from committing mistakes. Errors are inherent in political action.
+ - I have found Jews to be more broad-minded than most whites on issues of race and politics, perhaps because they themselves have historically been victims of prejudice.
+ - I will use the rest of my life to help the poor overcome the problems confronting them – poverty is the greatest challenge facing humanity. That is why I build schools; I want to free people from poverty and illiteracy.
+ - I was not a messiah, but an ordinary man who had become a leader because of extraordinary circumstances.
+ - Let us remind ourselves that our work is far from complete. Where there is poverty and sickness, including AIDS, where human beings are being oppressed, there is more work to be done. Our work is for freedom for all...
+ - I like friends who have independent minds because they tend to make you see problems from all angles.
+ - This must be a world of democracy and respect for human rights, a world freed from the horrors of poverty, hunger, deprivation and ignorance, relieved of the threat and the scourge of civil wars and external aggression and unburdened of the great tragedy of millions forced to become refugees.
+ - I learned that to humiliate another person is to make him suffer an unnecessarily cruel fate. Even as a boy, I defeated my opponents without dishonoring them.
+ - MY greatest regret in life is that I never became the heavyweight boxing champion ofthe world.
+ - There are many people who feel that it is useless and futile to continue talking about peace and non-violence against a government whose only reply is savage attacks on an unarmed and defenceless people.
+ - You mustn’t compromise your principles, but you mustn’t humiliate the opposition. No one is more dangerous than one who is humiliated.
+ - Religion is one of the most important forces in the world. Whether you are a Christian, a Muslim, a Buddhist, a Jew, or a Hindu, religion is a great force, and it can help one have command of one’s own morality, one’s own behavior, and one’s own attitude.
+ - If you make one gift this year, make it the gift of knowledge.
+ - As long as many of our people still live in utter poverty, as long as children still live under plastic covers, as long as many of our people are still without jobs, no South African should rest and wallow in the joy of freedom.
+ - In the end, reconciliation is a spiritual process, which requires more than just a legal framework. It has to happen in the hearts and minds of people.
+ - Without education, your children can never really meet the challenges they will face. So it’s very important to give children education and explain that they should play a role for their country.
+ - Greece is the mother of democracy and South Africa is its youngest daughter.
+ - I stand here before you not as a prophet, but as a humble servant of you, the people.
+ - Freedom would be meaningless without security in the home and in the streets.
+ - There are times when a leader must move out ahead of the flock, go off in a new direction, confident that he is leading his people the right way.
+ - I cannot and will not give any undertaking at a time when I, and you, the people, are not free. Your freedom and mine cannot be separated.
+ - A man who takes away another man’s freedom is a prisoner of hatred, he is locked behind the bars of prejudice and narrow mindedness.
+ - The history of struggle is rich with stories of heroes and heroines – some of them leaders, some of them followers, all of them deserve to be remembered.
+ - There is nothing like a fixed, steady aim, with an honorable purpose. It dignifies your nature, and insures your success.
+ - Disasters will always come and go, leaving their victims either completely broken or steeled and seasoned and better able to face the next crop of challenges that may occur.
+ - The Liberty Bell is “a very significant symbol for the entire democratic world.”
+ - We recall our terrible past so that we can deal with it, to forgive where forgiveness is necessary, without forgetting; to ensure that never again will such inhumanity tear us apart; and to move ourselves to eradicate a legacy that lurks dangerously as a threat to our democracy.
+ - You encourage people by seeing the good in them.
+ - Let us join hands and build a truly South African nation.
+ - Our economic approach to food and its distribution reflects our basic moral values.
+ - Sport can create hope, where once there was only despair.
+ - One effect of sustained conflict is to narrow our vision of what is possible. Time and time again, conflicts are resolved through shifts that were unimaginable at the start.
+ - Education has become a very powerful weapon in the struggle to produce a well-developed person.
+ - Information is a basic human right and the fundamental foundation for the formation of democratic institutions.
+ - There is nothing I fear more than waking up without a program that will help me bring a little happiness to those with no resources, those who are poor, illiterate, and ridden with terminal disease.
+ - There are few misfortunes in this world that you cannot turn into a personal trimuph if you have the iron will and the neccessary skill.
+ - If you are negotiating you must do so in a spirit of reconciliation, not from the point of view of issuing ultimatums.
+ - Our society needs to re-establish a culture of caring.
+ - I was called a terrorist yesterday, but when I came out of jail, many people embraced me, including my enemies, and that is what I normally tell other people who say those who are struggling for liberation in their country are terrorists.
+ - A movement without vision would be a movement without moral foundation.
+ - It is my greatest wish that the Children’s Fund should continue to be a beacon of hope and light.
+ - A garden was one of the few thing in prison that one could control. To plant a seed, watch it grow, to tend it then harvest it, offered a simple but enduring satisfaction. The sense of being the custodian of this small patch of earth offered a taste of freedom.
+ - A government which uses force to maintain its rule teaches the oppressed to use force to oppose it.
+ - While poverty persists, there is no true freedom.
+ - I have taken a moment here to rest, to steal a view of the glorious vista that surrounds me, to look back on the distance I have come.
+ - Soccer is one of the most unifying activities amongst us.
+ - The power of imagination created the illusion that my vision went much farther than the naked eye could actually see.
+ - I am not truly free if I am taking away someone else’s freedom, just as surely as I am not free when my freedom is taken from me. The oppressed and the oppressor alike are robbed of their humanity.
+ - The world remains beset by so much human suffering, poverty and deprivation. It is in your hands to make of our world a better one for all, especially the poor, vulnerable and marginalized.
+ - I believe that in the end that it is kindness and accommodation that are all the catalysts for real change.
+ - I found solitary confinement the most forbidding aspect of prison life. There is no end and no beginning; there is only one’s mind, which can begin to play tricks. Was that a dream or did it really happen? One begins to question everything.
+ - I was neglected by my family because I had disappointed them – I’d run away from being forced into an arranged marriage, which was a big blow to them.
+ - One of the sad realities today is that very few people, especially young people, read books. Unless we can find imaginative ways of addressing this reality, future generations are in danger of losing their history.
+ - Poetry cannot block a bullet or still a sjambok, but it can bear witness to brutality-thereby cultivating a flower in a graveyard.
+ - Trade justice for the developing world and for this generation is a truly significant way for the developed countries to show commitment to bringing about an end to global poverty.
+ - AIDS is our number one enemy. This enemy can be defeated. While the research for a cure continues, four principles – love, support, acceptance and care for those affected – can make us winners.
+ - There must be an end to white monopoly on political power, and a fundamental restructuring of our political and economic systems to ensure that the inequalities of apartheid are addressed and our society thoroughly democratized.
+ - I have cherished the ideal of a democratic and free society in which all persons live together in harmony and with equal opportunities.
+ - Political division, based on color, is entirely artificial; and when it disappears, so will the domination of one color group by another.
+ - The time comes in the life of any nation when there remains only two choices – submit or fight.
+ - AIDS is no longer just a disease, it is a human rights issue.
+ - I did not enjoy the violence of boxing so much as the science of it.
+ - It is my deepest conviction that the children should be seen and heard as our most treasured assets.
+ - For me, nonviolence was not a moral principle but a strategy; there is no moral goodness in using an ineffective weapon.
+ - The death sentence is a barbaric act.
+ - Whether you change the linen or stitch up wounds, cook the food or dispense the medicines, it is in your hands to help build a public service worthy of all those who gave their lives for the dream of democracy.
+ - We don’t have to be victims of our past, that we can let go of our bitterness, and that all of us can achieve greatness.
+ - Force is the only language the imperialists can hear, and no country became free without some sort of violence.
+ - As we are liberated from our own fear, our presence automatically liberates others.
+ - The collapse of good conscience and the absence of accountability and public scrutiny have led to crimes against humanity and violations of international law.
+ - In countries where innocent people are dying, the leaders are following their blood rather than their brains.
+ - Prison life, fortunately, I spent a lot of years, about 18 years with other prisoners, and, as I say, they enriched your soul.
+ - We are extricating ourselves from a system that insulted our common humanity by dividing us from one another on the basis of race and setting us against each other as oppressed and oppressor. That system committed a crime against humanity.
+ - In prison, illusions can offer comfort.
+ - Freedom can never be taken for granted. Each generation must safeguard it and extend it. Your parents and elders sacrificed much so that you should have freedom without suffering what they did. Use this precious right to ensure that the darkness of the past never returns.
+ - No form of violence can ever be excused in a society that wishes to call itself decent.
+ - Thinking too well of people often allows them to be better than they otherwise would.
+ - If we do not do something to prevent it, Africa’s animals, and the places in which they live, will be lost to our world, and her children, forever. Before it is too late, we need your help to lay the foundation that will preserve this precious legacy long after we are gone.
+ - People tend to measure themselves by external accomplishments, but jail allows a person to focus on internal ones; such as honesty, sincerity, simplicity, humility, generosity and an absence of variety. You learn to look into yourself.
+ - Our experience has taught us that with goodwill a negotiated solution can be found for even the most profound problems.
+ - Sport has the power to inspire and unite people. In Africa, soccer enjoys great popularity and has a particular place in the hearts of people.
+ - Let freedom reign. The sun never set on so glorious a human achievement.
+ - I could not imagine that the future I was walking toward could compare in any way to the past that I was leaving behind.
+ - As long as outmoded ways of thinking prevent women from making a meaningful contribution to society, progress will be slow. As long as the nation refuses to acknowledge the equal role of more than half of itself, it is doomed to failure.
+ - Strong convictions are the secret of surviving deprivation; your spirit can be full even when your stomach is empty.
+ - Who could doubt that sport is a crucial window for the propagation of fair play and justice? After all, fair play is a value that is essential to sport.
+ - Even behind prison walls I can see the heavy clouds and the blue sky over the horizon.
+ - People respond in accordance to how you relate to them. If you approach them on the basis of violence, that’s how they’ll react. But if you say, ‘We want peace, we want stability,’ we can then do a lot of things that will contribute towards the progress of our society.
+ - When you are behind bars with no hope of release, you need to find strength wherever you can. Personally, I found strength in Michael Jackson.
+ - Through its imperialist system Britain brought about untold suffering of millions of people. And this is an historical fact. To be able to admit this would increase the respect, you know, which we have for British institutions.
+ - The so-called ‘Palestinian autonomous areas’ are bantustans. These are restricted entities within the power structure of the Israeli apartheid system.
+ - The cause of Communism is the greatest cause in the history of mankind!
+ - Men come and men go, I have come and I will go when my time comes.
+ - A new society cannot be created by reproducing the repugnant past, however refined or enticingly repackaged.
+ - He knew when to compromise. Yet he never compromised his principles. He was a militant. Yet a militant who knew how to plan, assess concrete situations and emerge with rational solutions to problems.
+ - Freedom alone is not enough without light to read at night, without time or access to water to irrigate your farm, without the ability to catch fish to feed your family.
+ - Let us remind ourselves that it is ordinary people – men and women, boys and girls – that make the world a special place.
+ - The path of those who preach love, and not hatred, is not easy. They often have to wear a crown of thorns.
+ - Tread softly, Brathe peacefully, Laugh hysterically.
+ - I can’t help it if the ladies take note of me; I am not going to protest.
+ - Our daily deeds as ordinary South Africans must produce an actual South African reality that will reinforce humanity’s belief in justice, strenthen its confidence in the nobility of the human soul, and sustain all our hopes for a glorious life for all.
+ - Jinnah is a constant source of inspiration for all those who are fighting against racial and group discrimination.
+ - To the youth of today, I also have a wish to make: be the scriptwriters of your destiny and feature yourselves as stars that showed the way towards a brighter future.
+ - Intervention only works when the people concerned seem to be keen for peace.
+ - Home is home even for those who aspire to serve wider interests and who have established their home of choice in distant regions.
+ - I can’t pretend that I’m brave and that I can beat the whole world.
+ - We have laid the foundation for a better life. Things that were unimaginable a few years ago have become everyday reality. I belong to the generation of leaders for whom the achievement of democracy was the defining challenge.
+ - I admire young people who are concerned with the affairs of their community and nation perhaps because I also became involved in struggle whist I was still at school.
+ - Like slavery and apartheid, poverty is not natural. It is man-made and it can be overcome and eradicated by the actions of human beings.
+ - I have never cared very much for personal prizes. A person does not become a freedom fighter in the hope of winning awards.
+ - For me, survival is the ability to cope with difficulties, with circumstances, and to overcome them.
+ - We signal that good can be achieved amongst human beings who are prepared to trust, prepared to believe in the goodness of people.
+ - I came to accept that I have no right whatsoever to judge others in terms of my own customs, however much I may be proud of such customs.
+ - I dream of the realization of the unity of Africa, whereby its leaders combine in their efforts to solve the problems of this continent. I dream of our vast deserts, of our forests, of all our great wildernesses.
+ - I was not born with a hunger to be free, I was born free.
+ - There were many dark moments when my faith in humanity was sorely tested...
+ - There is a universal respect and even admiration for those who are humble and simple by nature, and who have absolute confidence in all human beings irrespective of their social status.
+ - The names of Dingane and Bambata, Hintsa and Makana, Squngthi and Dalasile, Moshoeshoe and Sekhukhuni, were praised as the glory of the entire African nation. I hoped then that life might offer me the opportunity to serve my people and make my own humble contribution to their freedom struggle.
+ - Why is it that in this courtroom I face a white magistrate, am confronted by a white prosecutor and escorted into the dock by a white orderly? Can anyone honestly and seriously suggest that in this type of atmosphere the scales of justice are evenly balanced?
+ - South Africans must recall the terrible past so that we can deal with it, forgiving where forgiveness is necessary but never forgetting.
+ - Rhetoric is not important. Actions are.
+ - We can’t afford to be killing one another.
+ - I started to make a study of the art of war and revolution and, whilst abroad, underwent a course in military training. If there was to be guerrilla warfare, I wanted to be able to stand and fight with my people and to share the hazards of war with them.
+ - When we decided to take up arms, it was because the only other choice was to surrender and to submit to slavery.
+ - My respect for human beings is based not on the colour of a man’s skin nor authority he may wield, but purely on merit.
+ - When we dehumanise and demonise our opponents, we abandon the possibility of peacefully resolving our differences, and seek to justify violence against them.
+ - The time has come to accept in our hearts and minds that with freedom comes responsibility.
+ - The anchor of all my dreams is the collective wisdom of mankind as a whole.
+ - I dream of an Africa which is in peace with itself.
+ - I have fought against white domination, and I have fought against black domination...
+ - It can be said that there are four basic and primary things that the mass of people in a society wish for: to live in a safe environment, to be able to work and provide for themselves, to have access to good public health and to have sound educational opportunities for their children.
+ - Does anybody really think that they didn’t get what they had because they didn’t have the talent or the strength or the endurance or the commitment?
+ - The New World Order that is in the making must focus on the creation of a world of democracy, peace and prosperity for all.
+ - I should tie myself to no particular system of society other than of socialism.
+ - It is time for the next generations to continue our struggle against social injustice and for the rights of humanity. It is in your hands.
+ - There is no doubt that the United States now feels that they are the only superpower in the world and they can do what they like.
+ - Adversity cleanses the lethargies of man.
+ - I have never regarded any man as my superior, either in my life outside or inside prison.
+ - I pay tribute to the endless heroism of youth.
+ - The past is a rich resource on which we can draw in order to make decisions for the future, but it does not dictate our choices. We should look back at the past and select what is good, and leave behind what is bad.
+ - When the history of our times is written, will we be remembered as the generation that turned our backs in a moment of global crisis or will it be recorded that we did the right thing?
+ - We cannot blame other people for our troubles. We are not victims of the influx of foreign people into South Africa. We must remember that it was mainly due to the aggressive and hostile policies of the apartheid regime that the economic development of our neighbours was undermined.
+ - I would like it to be said: here lies a man who has done his duty on earth.
+ - That day, Miss Mdingane told me that my new name was Nelson. Why she bestowed this particular name upon me I have no idea. Perhaps it had something to do with the great British sea captain Lord Nelson, but that would be only a guess.
+ - We can neither heal nor build if, on the one hand the rich in our society see the poor as hordes of irritants or if on the other hand the poor sit back, expecting charity. All of us must take responsibility for the upliftment of our conditions, prepared to give our best to the benefit of all.
+ - It was during those long and lonely years that my hunger for the freedom of my own people became a hunger for the freedom of all people, white and black. I knew as well as I knew anything that the oppressor must be liberated just as surely as the oppressed.
+ - The most difficult matter is not so much to change the world as yourself.
+ - In some ways, it is easier to be a dissident, for then one is without responsibility.
+ - Since the dawn of history, mankind has honoured and respected brave and honest people.
+ - Press Freedom will never be under threat in South Africa for as long as the ANC is the majority party.
+ - We should take heart from our own experience and performance. In a cynical world we have become an inspiration to many.
+ - Democracy is based on the majority principle. This is especially true in a country such as ours where the vast majority have been systematically denied their rights. At the same time, democracy also requires that the rights of political and other minorities be safeguarded.
+ - Of course we desire education and we think it is a good thing, but you don’t have to have education in order to know that you want certain fundamental rights, you have got aspirations, you have got acclaims. It has nothing to do with education whatsoever.
+ - Leaders in all spheres who are living with HIV should be encouraged, not coerced, to lead by example and disclose their HIV status.
+ - Abject poverty is demeaning, is an assault on the dignity of those that suffer it. In the end it demeans us all. It makes the freedom of all of us less meaningful.
+ - Our motto should be: let us make peace so that we can concentrate on the really important work that needs to be done. That is, alleviating the plight of the poor and the defenceless, for as long as most of humanity feels the pain of poverty we all remain prisoners.
+ - The Good News borne by our risen Messiah who chose not one race, who chose not one country, who chose not one language, who chose not one tribe, who chose all of humankind!
+ - Unlike some politicians, I can admit to a mistake.
+ - We now undertake that we cannot rest while millions of our people suffer the pain and indignity of poverty in all its forms.
+ - I appeal to the Youth and those on the ground: start talking to each other across divisions of race and political organizations.
+ - Even if you have a terminal disease, you don’t have to sit down and mope. Enjoy life and challenge the illness that you have.
+ - You negotiate in bad faith if you do not forgive your adversary.
+ - If you look at those matters, you will come to the conclusion that the attitude of the United States of America is a threat to world peace.
+ - I have always regarded myself, in the first place, as an African patriot.
+ - I have often wondered whether a person is justified in neglecting his own family to fight for opportunities for others.
+ - If you don’t allow people to contribute, to offer their point of view, or to criticize what has been put before them, then they can never like you. And you can never build that instrument of collective leadership.
+ - I am fundamentally an optimist.
+ - If you sit down and talk to a person, it’s easy to convince him that apartheid can never save a country and will lead to the slaughtering of innocent people – including his own people.
+ - Although Verwoerd thought Africans were lower than animals, his death did not yield us any pleasure. Political assassination is not something I or the ANC ever supported. It is a primitive way of contending with an opponent.
+ - Sometimes strident, often tender, never afraid and seldom without humour, Desmond Tutu’s voice will always be the voice of the voiceless.
+ - In my younger days, I was arrogant – jail helped me to get rid of it. I did nothing but make enemies because of my arrogance.
+ - As we judge others so are we judged by others. The suspicious will always be tormented by suspicion.
+ - Our task is not to liberate the oppressed, but to liberate the oppressors.
+ - I detest racialism, because I regard it as a barbaric thing, whether it comes from a black man or a white man.
+ - A new world will be won not by those who stand at a distance with their arms folded, but by those who are in the arena, whose garments are torn by storms and whose bodies are maimed in the course of the contest.
+ - I told my cellmates about the oppression of the whites and apartheid. I helped organize hunger strikes and the like in my prison.
+ - I have always admired men and women who used their talents to serve the community, and who were highly respected and admired for their efforts and sacrifices, even though they held no office whatsoever in government or society.
+ - Extremists on all sides thrive, fed by the blood lust of centuries gone by.
+ - I made a mistake by being ejected from the presidency. Next time, I will choose a Cabinet which will allow me to be life President.
+ - We tried in our simple way to lead our life in a manner that may make a difference to those of others.
+ - In human affairs, no single person, organisation or social formation ever has a final or an absolutely correct position. It is through conversation, debate and critical discussion that we approach positions that may provide workable solutions.
+ - Whose life testifies to the truth that there is no shame in being oppressed: Those who should be ashamed are they who oppress others.
+ - I did not enjoy the violence of boxing so much as the science of it. I was intrigued by how one moved one’s body to protect oneself, how one used a strategy both to attack and retreat, how one paced oneself over a match.
+ - No child in Africa, and in fact anywhere in the world, should be denied education.
+ - I really wanted to retire and rest and spend more time with my children, my grandchildren and of course with my wife. But the problems are such that for anybody with a conscience who can use whatever influence he may have to try to bring about peace, it’s difficult to say no.
+ - Your victory has demonstrated that no person anywhere in the world should not dare to dream of wanting to change the world for a better place.
+ - If you are poor, you are not likely to live long.
+ - One of the things that made me long to be back in prison was that I had so little opportunity for reading, thinking and quiet reflection after my release. I intend, amongst other things, to give myself much more opportunity for such reading and reflection.
+ - The authorities liked to say that we received a balanced diet; it was indeed balanced – between the unpalatable and the inedible.
+ - There is little favorable to be said about poverty, but it was often an incubator of true friendship.
+ - Africans require, want, the franchise on the basis of one man one vote. They want political independence.
+ - I am convinced that floods of personal disaster can never drown a determined revolutionary nor can the cumulus of misery that accompanies tragedy suffocate him.
+ - It is also the fate of leadership to be misunderstood. It is a grave error for any leader to be oversensitive in the face of criticism, to conduct discussions as if he or she is a schoolmaster talking to less informed and inexperienced learners.
+ - We succeeded to take our last steps to freedom in conditions of relative peace. We commit ourselves to the construction of a complete, just and lasting peace. We have triumphed in the effort to implant hope in the breasts of the millions of our people.
+ - Sometimes, I feel like one who is on the sidelines, who has missed life itself.
+ - Leaders will have to give clear and decisive leadership towards a world of tolerance and respect for difference, and an uncompromising commitment to peaceful solutions of conflicts and disputes.
+ - The United States has made serious mistakes in the conduct of its foreign affairs, which have had unfortunate repercussions long after the decisions were taken.
+ - I went as an observer, not a participant, for I do not think that I ever spoke. I wanted to understand the issues under discussion, evaluate the arguments, see the calibre of the men involved.
+ - I cannot conceive of Israel withdrawing if Arab states do not recognize Israel, within secure borders.
+ - To go to prison because of your convictions and be prepared to suffer for what you believe in, is something worthwhile. It is an achievement for a man to do his duty on earth irrespective of the consequences.
+ - Individuals get caught up in the policy of their country. In prison, for instance, a warden or officer is not promoted if he doesn’t follow the policy of the government – though he himself does not believe in that policy.
+ - Our single most important challenge is therefore to help establish a social order in which the freedom of the individual will truly mean the freedom of the individual.
+ - Racism is a blight on the human conscience. The idea that any people can be inferior to another, to the point where those who consider themselves superior define and treat the rest as subhuman, denies the humanity even of those who elevate themselves to the status of gods.
+ - I am not the only one who did not want revenge. Almost all my colleagues in prison did not want revenge, because there is no time to do anything else except to try and save your people.
+ - The real meaning of the spoken word has to be demonstrated by practical deeds.
+ - Our people outside of prison used my name to mobilize the community locally and internationally. But for me to be treated separately from my colleagues, who had contributed as much as and even more than I had, would have been a betrayal of them.
+ - We raise our voices in holy gladness to celebrate the victory of the risen Christ over the terrible forces of death.
+ - In the 21st Century, the capacity to communicate will almost certainly be a key human right.
+ - I would like to be remembered not as anyone unique or special, but as part of a great team in this country that has struggled for many years, for decades and even centuries. The greatest glory of living lies not in never falling, but in rising every time you fall.
+ - The relations between a man and his or her god is a personal matter; you can’t go out and challenge the belief of people in a superior being.
+ - The importance of a high moral code, which is at the foundation of the Scout movement, cannot be stressed too highly.
+ - I discovered even before I went to jail that apartheid was not run by people who were monolithic in their approach. Some of them didn’t even believe in apartheid.
+ - If there is a country that has committed unspeakable atrocities in the world, it is the United States of America.
+ - Our freedom is also incomplete, dear compatriots, as long as we are denied our security by criminals who prey on our communities, who rob our businesses and undermine our economy, who ply their destructive trade in drugs in our schools, and who do violence against our women and children.
+ - The greatest single challenge facing our globalised world is to combat and eradicate its disparities.
+ - The titanic effort that has brought liberation to South Africa, and ensured the total liberation of Africa, constitutes an act of redemption for the black people of the world.
+ - I knew as well as I knew anything that the oppressor must be liberated just as surely as the oppressed.
+ - No single person can liberate a country. You can only liberate a country if you act as a collective.
+ - My time in prison only deepened my resolve against apartheid. Even while I was in prison, I fought against it, teaching my cellmates about white supremacy and how to fight against it.
+ - Together as a nation, we have the obligation to put sunshine into the hearts of our little ones. They are our precious possessions. They deserve what happiness life can offer.
+ - When I walked out of prison, that was my mission, to liberate the oppressed and the oppressor both.
+ - There was much in such a society that was primitive and insecure and it certainly could never measure up to the demands of the present epoch. But in such a society are contained the seeds of revolutionary democracy in which none will be held in slavery.
+ - You know you are really famous the day you discover you have become a comic character!
+ - It is your duty to examine the conduct of public figures and to place them in the spotlight – that is your duty.
+ - Our continent must be allowed to do its own things, charting its course and destiny.
+ - Your playing small does not serve the world. There’s nothing enlightened about shrinking so that other people won’t feel insecure around you.
+ - If you are stimulated by what you do, you never get tired.
+ - History and the generations to come will judge our leaders by the decisions they make in the coming weeks.
+ - I cannot overemphasise the value we place on a free, independent and outspoken press.
+ - Millions of people in the world’s poorest countries remain enslaved by the chains of poverty. It is time to set them free.
+ - It is also the fate of leadership to be misunderstood. For historians, academics, writers and journalists to reflect great lives according to their own subjective canon.
+ - The call now is for each of us to ask ourselves: are we doing all we can to help build the country of our dreams?
+ - There are many people in South Africa who are rich and who can share those riches with those not so fortunate who have not been able to conquer poverty.
+ - The calm and tolerant atmosphere that prevailed during the elections depicts the type of South Africa we can build. It set the tone for the future. We might have our differences, but we are one people with a common destiny in our rich variety of culture, race and tradition.
+ - When I came to Johannesburg from the countryside, I knew nobody, but many strangers were very kind to me. I then was dragged into politics, and then, subsequently, I became a lawyer.
+ - I have retired, but if there’s anything that would kill me it is to wake up in the morning not knowing what to do.
+ - It is in your hands to create a better world for all who live in it.
+ - The march to freedom is irreversible.
+ - We cannot proclaim this century the African Century and then ignore the AIDS pandemic, as some political leaders are apt to do. To claim this century the African Century is to declare war on AIDS.
+ - We shall immunize every child in Africa to get rid of this terrible disease forever.
+ - Blaming things on the past does not make them better.
+ - These numbers are staggering, in fact incomprehensible. By all accounts, we are dealing with the greatest health crisis in human history.
+ - The impression that you are a demigod worried me. I wanted to be like an ordinary human being with virtues and vices.
+ - From the poorest of countries to the richest of nations, education is the key to moving forward in any society.
+ - I have been influenced in my thinking by both west and east.
+ - The freedom we enjoy is a richly textured gift handcrafted by ordinary folk.
+ - For a revolution is not just a question of pulling a trigger; its purpose is to create a fair just society.
+ - To a freedom fighter hope is what a lifebelt is to a swimmer – a guarantee that one will keep afloat and free from danger.
+ - I feel like a young man of 15.
+ - What has sustained me even in the most grim moments is the knowledge that I am a member of a tried and tested family which has triumphed over many difficulties.
+ - Only 50 years ago persons with intellectual disabilities were scorned, isolated and neglected. Today, they are able to attend school, become employed and assimilate into their local community.
+ - I was able to change my life by knowing that if somebody does something good for you, you have to respond.
+ - Thinking is one of the most important weapons in dealing with problems.
+ - Continuously, we have to fight to defeat the primitive tendency towards the glorification of arms, the adulation of force, born of the illusion that injustice can be perpetuated by the capacity to kill, or that disputes are necessarily best resolved by resort to violent means.
+ - It’s not our weaknesses that frighten us. It’s our strengths.
+ - The laws that stopped blacks from voting were the worst, because they prevented blacks from voting someone into parliament who could change the other laws. Even though the blacks were the majority of the population, they were still not getting a say.
+ - What counts in life is not the mere fact that we have lived. It is what difference we have made to the lives of others that will determine the significance of the life we lead.
+ - Sport has the power to overcome old divisions and create the bond of common aspirations.
+ - We must nurture tolerance, collective wisdom, and democracy.
+ - I really wanted to retire and rest and spend more time with my children, my grandchildren and of course with my wife.
+ - I have always endeavoured to listen to what each and every person in a discussion had to say before venturing my own opinion.
+ - The question of education has nothing to do with the question of the vote. On numerous occasions it has been proved in history that people can enjoy the vote even if they have no education.
+ - Out of the experience of extraordinary human disaster that lasted too long, must be born a society of which all humanity will be proud...
+ - Take it upon yourself where you live to make people around you joyful and full of hope.
+ - The histories of our two peoples, Palestinian and South African, correspond in such painful and poignant ways, that I intensely feel myself being at home amongst compatriots.
+ - I realized that they could take everything from me except my mind and my heart. They could not take those things. Those things I still had control over. And I decided not to give them away.
+ - If there is one thing in this planet that has the power to bind people it is soccer.
+ - To truly lead one’s people, one must also truly know them.
+ - The victory of democracy in South Africa is the common achievement of all humanity.
+ - The time comes in the life of any nation when there remain only two choices – submit or fight. That time has now come to South Africa. We shall not submit and we have no choice but to hit back by all means in our power in defence of our people, our future, and our freedom.
+ - The suffering inflicted, and more often than not on the most vulnerable sectors of society, demeans all of us as humanity. That it is invariably women, children, the aged and disabled who suffer in these conflicts stands to the added shame of humankind.
+ - Whatever position I occupied, it was the result of colleagues – of my comrades in the movement – who had decided in their wisdom to use me for the purpose of focusing the attention of the country and the international community on me.
+ - There are so many men and women who hold no distinctive positions but whose contribution towards the development of society has been enormous.
+ - It is the dictate of history to bring to the fore the kind of leaders who seize the moment, who cohere the wishes and aspirations of the oppressed. Such was Steve Biko, a fitting product of his time; a proud representative of the re-awakening of a people.
+ - It generally appears outlandish until its carried out.
+ - Apart from life, a strong constitusion and an abiding connection to the Thembu royal house, the only thing my father bestowed upon me at birth was a name, Rolihlahla.
+ - I don’t think there is much history can say about me. I just want to be remembered as part of that collective.
+ - When I went to jail, I was a trained lawyer. And when the wardens received letters of demands or summonses, they didn’t have the resources to go to an attorney to help them. I would help them settle their cases, so they became attached to me and the other prisoners.
+ - But the hard facts were that fifty years of non-violence had brought the African people nothing but more and more repressive legislation, and fewer and fewer rights.
+ - I watched, along with all of you, as the tens of thousands of our people stood patiently in long queues for many hours. Some sleeping on the open ground overnight waiting to cast this momentous vote.
+ - If the United States of America or Britain is having elections, they don’t ask for observers from Africa or from Asia. But when we have elections, they want observers.
+ - Success in politics demands that you must take your people into confidence about your views and state them very clearly, very politely, very calmly, but nevertheless, state them openly.
+ - I never think of the time I have lost. I just carry out a programme because it’s there. It’s mapped out for me.
+ - Those South Africans who berate me for being loyal to our friends, literally they can go and throw themselves into a pool. I am not going to betray the trust of those who helped us.
+ - The Children’s Hospital will be a credible demonstration of the commitment of African leaders to place the rights of children at the forefront. Nothing less would be enough.
+ - We need a fundamental change of mindset with regards to the way we speak and behave about sex and sexuality. Boys and men have a particularly critical role in this regard, changing the chauvinist and demeaning ways sexuality and women were traditionally dealt with in both our actions and speaking.
+ - The UN took a strong stand against apartheid; and over the years, an international consensus was built, which helped to bring an end to this iniquitous system. But we know too well that our freedom is incomplete without the freedom of the Palestinians.
+ - We can’t win a war, but we can win an election.
+
+500 quotes

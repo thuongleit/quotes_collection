@@ -1,0 +1,21 @@
+ - Dementia is our most-feared illness, more than heart disease or cancer.
+ - Gluten is this Generation’s Tobacco.
+ - Even slight elevations in blood sugar have been shown to increase the risk of Alzheimer’s disease.
+ - Fat is your friend. The brain thrives on a fat-rich, low-carbohydrate diet.
+ - Rarely, Type 2 diabetes develops without any readily identifiable predisposing factor. But in the great majority of cases, it is brought on by lifestyle activities, including, and clearly most importantly, dietary choices.
+ - Food is medicine. We can actually change our gene expressions with the foods we eat.
+ - Two forms of fat that are vitally important for brain health are cholesterol and saturated fat.
+ - Eat your vegetables. Brush your teeth. Sweat once in a while. Get plenty of rest. Don’t smoke. Laugh more. There are certain tenets to health that are pretty commonsensical and that we all know we should practice routinely.
+ - Strokes are categorized as either bleeding into the brain or a blockage in blood supply, known as an ischemic stroke. The latter are overwhelmingly more common, compromising about 87 percent of all stroke events.
+ - Throughout our lifetimes, we are constantly regenerating new brain cells in the hippocampus, a process called neurogenesis. New stem cells are constantly being born in the hippocampus that ultimately differentiate into fully functional neurons.
+ - In general, the public knowledge base and thus decision-making behaviors are far more influenced by advertisement than with current science.
+ - Bad things happen. And the human brain is especially adept at making sure that we keep track of these events. This is an adaptive mechanism important for survival.
+ - Archives of Internal Medicine revealed that postmenopausal women who were put on statin drugs to lower their cholesterol had a nearly 48 percent increased risk of developing diabetes compared to those who weren’t given the drug.
+ - The origin of brain disease is in many cases predominantly dietary. Although several factors play into the genesis and progression of brain disorders, to a large extent numerous neurological afflictions often reflect the mistake of consuming too many carbs and too few healthy fats.
+ - The science supporting the relationship between carbohydrates and dementia is quite exciting, as it paves the way for lifestyle changes that can profoundly affect a persons chances of remaining intact, at least from a brain perspective.
+ - It may seem draconian, but the best recommendation I can make is to completely avoid grains.
+ - We can change the expression of more than 70 percent of the genes that have a direct bearing on our health and longevity.
+ - We may all be sensitive to gluten from a neurological standpoint.
+ - Carbs are devastating for the brain.
+
+19 quotes

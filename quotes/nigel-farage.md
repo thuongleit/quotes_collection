@@ -1,0 +1,54 @@
+ - Maybe this will be the beginning of a trend? Flat taxes, cutting foreign aid, a referendum on Europe, grammar schools. Who knows?
+ - We may have made one of the biggest and most stupid collective mistakes in history by getting so worried about global warming.
+ - Any normal and fair-minded person would have a perfect right to be concerned if a group of Romanian people suddenly moved in next door.
+ - The EU is mired in deep structural crisis. Greece, Portugal and Ireland cannot survive inside the Euro.
+ - The euro Titanic has now hit the iceberg – and there simply aren’t enough lifeboats to go round.
+ - We know the costs of Europe. What are the benefits?
+ - Our feeling is that the status quo often gets a boost and this is the new status quo.
+ - It’s amazing how ideas start out, isn’t it?
+ - It’s a European Union of economic failure, of mass unemployment and of low growth.
+ - We must break up the eurozone. We must set those Mediterranean countries free.
+ - No deals with the Tories; it’s war.
+ - Before, Europe was about treaties, laws and our sovereign right to govern ourselves. Now, it’s about everyday lives.
+ - Having established that good ideas do indeed come in from the cold, start on the fringes and become mainstream, can we make any predictions about what the next move will be?
+ - Its hardly a radical idea to suggest that regulators and legislators understand the law now, is it?
+ - Puppet Papademos is in place, and as Athens caught fire on Sunday night he rather took my breath away – he said violence and destruction have no place in a democratic country.
+ - I am disgusted at the way May has been speaking. The EU nationals living in the UK came here legally and they have protected rights.
+ - Rather than bring peace and harmony, the EU will cause insurgency and violence.
+ - The great and the good will decide what is good for us and make sure that we get what is good for us, good and hard.
+ - If an idea is indeed sensible, it will eventually become just part of the accepted wisdom.
+ - I think frankly when it comes to chaos you ain’t seen nothing yet.
+ - We wouldn’t want to be like the Swiss, would we? That would be awful! We’d be rich!
+ - The opening of the doors to 29 million Romanians and Bulgarians is going to become a huge issue.
+ - It’s the FSA and its plethora of EU bodies that’s failed.
+ - I have been unsure, from the start, what the Occupy movement was all about, although I did suspect that it was just fatuous, anti-enterprise, left-wingery.
+ - I’m not for sale, neither is UKIP.
+ - I am married to a girl from Hamburg, so no one need tell me about the dangers of living in a German dominated household.
+ - The banking collapse was caused, more than anything, by bad government policy and the total failure of bad regulation, rather than by greed.
+ - You know, I hear all these things about women’s rights.
+ - British chancellor is telling the rest of Europe it must abandon democracy. It’s appalling.
+ - Greece isn’t a democracy now it’s run through a troika – three foreign officials that fly into Athens airport and tell the Greeks what they can and can’t do.
+ - I have invested the best part of my adult political life in helping to try to build up this movement and I am far from perfect but I do think I am able, through the media, to deliver a good, simple, understandable message.
+ - It’s about businesses nervous about taking on school leavers because of a mass of red tape. It’s about health and safety regulations and green fines.
+ - The situation in Greece just goes from bad to worse. We’ve now got a situation where there was the big suicide a few weeks ago, where a 77-year-old man shot himself in the head outside the Greek Parliament. That was the public face of what’s gone wrong.
+ - Minimum sales prices for alcohol are a startlingly bad idea. As with excise duties, the effects are regressive.
+ - I am delighted at Des’s support in these elections. And thank him for his rewrite of the lyrics of Send in the Clowns which we are planning to sing at our South East conference.
+ - This Constitution does not reflect the thoughts, hopes and aspirations of ordinary people. It does nothing for jobs or economic growth and widens further still the democratic deficit.
+ - But there’s certainly only one thing I could never agree with George Galloway on. He’s a teetotaller and wants to close all the bars in the House of Commons. That is just not on.
+ - When people stand up and talk about the great success that the EU has been, I’m not sure anybody saying it really believes it themselves anymore.
+ - Basically, Herman van Rompuy wants the European Union to become a debt union, which may be acceptable to some of the southern countries who are effectively bust. To the northern countries, it is not.
+ - Should we continue to run our economic affairs or be managed by people in Brussels?
+ - This is taking place inside Europe. This is taking place inside a once great nation. The nation that invented democracy. We are on the edge of total social breakdown. And frankly, as far as the euro is concerned and the austerity measures are concerned, the medicine is killing the patient.
+ - I do think that the banking system is now in the most perilous state we’ve seen in over 70 years.
+ - The European Union’s finished. It doesn’t work. You know, we just had the honor in Britain of being the first country that rejected membership. You know, you could be next. It could be Denmark next. It could be Dexit.
+ - When an Occupy demo in the centre of Frankfurt makes world news, I shall hurry to join in.
+ - If there’s labour shortages, we issue work permits. It’s as simple as that.
+ - I think that politics needs a bit of spicing up.
+ - We have a Conservative leader that believes in green taxes, that won’t bring back grammar schools, that believes in continuing with total open-door migration from eastern Europe and refuses to give us a referendum on the EU.
+ - If I was a Greek citizen I’d be out there trying to bring down this monstrosity that has been put upon those people.
+ - I have been called a great many things in my time – that’s politics.
+ - And what is the reaction of the British politcal class? Well the Lib Dems, still think that the Euro is a success! I don’t quiet think where Cleggy gets this from, I don’t know. Prehaps he is cosidering an alternative career, as a stand up comedian, once he’s out of politics.
+ - It is virtually impossible for what you are voting on to remain as it is currently. There could be huge changes to the treaty and there could be huge changes to the euro zone itself.
+ - Perhaps our own opposition to even the level of European integration we have now, let alone any more, is well known.
+
+52 quotes

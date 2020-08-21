@@ -1,0 +1,50 @@
+ - Do you believe in rock ’n roll? Can music save your mortal soul?
+ - There we were all in one place, a generation lost in space.
+ - Something touched me deep inside The day the music died.
+ - This world was never meant for one as beautiful as you.
+ - Bye, Bye Miss American Pie, drove my chevy to the levy but the levy was dry. Good old boys drinking whiskey and rye, singing, this’ll be the day that I die.
+ - And when no hope was left inside on that starry, starry night, you took your life as lovers often do. But I could have told you, Vincent, this world was never meant for one as beautiful as you.
+ - Drove my chevy to the levee but the levee was dry.
+ - Hills of forest green where the mountains touch the sky, a dream come true, I’ll live there til I die.
+ - Not a word was spoken. The church bells all were broken.
+ - Jerusalem is old, Jerusalem is new, Jerusalem can hold Moslem, Christian, Jew.
+ - In a sense, ‘American Pie’ was a very despairing song but it can also be seen as very hopeful.
+ - Do you recall what was revealed the day the music died?
+ - Starry, starry night, flaming flowers that brightly blaze, swirling clouds in violet haze reflect Vincent’s eyes of china blue.
+ - In the streets the children screamed. The lovers cried, and the poets dreamed.
+ - Work my hands in the soil, what’s the pay for all the toil? Dust for blood, dust for blood, dust for blood.
+ - A long long time ago, I can still remember how that music use to make me smile.
+ - Jack be nimble, Jack be quick, Jack sat on a candle stick, cause fire is the devil’s only friend.
+ - Devoid of all romance, the music plays and everyone must dance. I’m bowing out.
+ - American Pie speaks to the loss that we feel. That’s why that song has found the niche that it has.
+ - We all got up to dance. Oh, but we never got the chance!
+ - As I watched him on the stage, my hands were clinched in fists of rage. No angel born in hell, could break that Satan’s spell.
+ - As you sell your soul and sow your seeds, and you wound yourself and your loved ones bleed. And your habits grow and your conscience feeds, on all that you thought you should be.
+ - Helter skelter in a summer swelter.
+ - The Byrds flew off the fallout shelter, eight miles high and falling fast.
+ - I feel like a spinning top or a DreidelThe spinning don’t stop when you leave the cradleYou just slow downRound and around this world you goSpinning through the lives of the people you knowWe all slow down.
+ - Every pulse of your heartbeat is one liquid moment that flows through the veins of your being. Like a river of life flowing on since creation, approaching the sea with each new generation.
+ - I’m glad that my music has helped other people as it’s helped me. It makes me glad that I did what I did with my life.
+ - I got my first guitar when I was 16. I’d play for my family and friends, but taking that guitar out there into the wide, wide world wasn’t something I ever thought about.
+ - They don’t keep their promises in the promised land, its getting mighty hard to find an honest man.
+ - Every thread of creation is held in position by still other strands of things living. In an earthly tapestry hung from the skyline of smoldering cities so gray and so vulgar, as not to be satisfied with their own negativity, but needing to touch all the living as well.
+ - I don’t relate to what’s left of the music business. There doesn’t seem to be any point to it anymore. The business that I grew up in and loved, we made records a different way – there were record companies, there were stores where you could buy albums.
+ - Each thread of life that you leave, will spin around your deeds and dictate your needs.
+ - People ask me if I left the lyrics open to ambiguity. Of course I did. I wanted to make a whole series of complex statements. The lyrics had to do with the state of society at the time.
+ - When people ask me what ‘American Pie’ means, I tell them it means I don’t ever have to work again if I don’t want to.
+ - I think longevity is more important than trying to make people realize you’re around every second.
+ - The kids today all seem to think they should be stars, but I wasn’t brought up that way.
+ - My face on every coin engraved, the anarchists are all enslaved. My flag is forever waved, by the grateful people I have saved.
+ - When I go on the road now, which is less than before, but still more than I’d like to, I think of myself primarily as a singer. Not a songwriter, not a celebrity, just a man who likes to sing.
+ - I was always just into my music and maybe into trying to save the world a little bit. I never really thought I’d have a hit record or anything like that. I was prepared to travel around all over the country, kind of like a Johnny Appleseed, and sing.
+ - Some believe in Jesus, they don’t act like they do. Some believe in Mohammed, I don’t believe that’s true. Cause they do believe in money, and gold is what it’s for, all the gold can’t buy no peace of mind in a world that don’t believe in nothing anymore.
+ - I am what I do, and that’s partly why I don’t want to give up singing. But when I can’t sing well, I will.
+ - I developed this fantasy world. I found that that was much more fun and more interesting and exciting than real life was to me. Then, once I got the guitar going when I was a teenager, I set sail for the direction I’ve been in my whole life.
+ - How did the land of Jefferson, how did the land of King, become the land of hamburgers and raisins that can sing? Roosevelt was cripple, Lincoln was a geek, they’d never get elected, their clothes were never chic.
+ - In the autumn of 1970 I had a job singing in the school system, playing my guitar in classrooms.
+ - Over the years I’ve had more and more of an association with Nashville.
+ - I had asthma when I was a kid, asthma so bad that it would turn into pneumonia and I almost died several times. Nobody knew why back then, but now it’s obvious.
+ - I’d listen to all the stuff that was going on around me and drift off into my fantasies about it. My fantasies have fuelled all the songs I’ve ever written.
+ - I mean, I’ve been given a terrific life by the audiences who stuck with me all over the world.
+
+48 quotes

@@ -1,0 +1,61 @@
+ - I love the way my weight fluctuates in the newspapers. It was 18 stone and then people look at a bad picture of me and add a few more stone on. I think the highest was 22 stone.
+ - I’ve always been looking for other people’s approval.
+ - I always feel like an interloper when I do serious drama. It’s my own paranoia.
+ - I was loved as a kid; I was raised with more love and emotional support than most folks could wish for my memories aged nought to ten are all bound up together in a mesh of innocence and fun.
+ - The cheese board is my big treat at Christmas that I have to deny myself during the rest of year.
+ - When I wasn’t as attractive as I am now, I suffered at the hands of cruel children and their taunts until I realised that confidence and a bit of aesthetic care can overcome that.
+ - It can be tough as a jobbing actor.
+ - There’s a domino effect with certain things you say.
+ - My forte is playing drunks down the ages. When my agent rings me about a role, I don’t ask what the part is, but what century it’s in.
+ - I believe that Britain is becoming more class-conscious, and I quake at the very idea of Old Etonians ruling the world again.
+ - I’ve spent lots of time in London, I studied in London, I like London. It’s just not my home.
+ - I get obsessed with decorations and decorating the house. I keep it tasteful outside, but when you get inside it is a bit like Blackpool illuminations, I go bonkers!
+ - Some comics are in it for what they can get out of it. Others are in it for a love of comedy. I think those that are in it for a genuine love of comedy find each other within the circuit and become friends.
+ - I struggle as a writer, and I’m convinced that if I was at school now, I’d be termed as having ADS. Two minutes and I’m drifting.
+ - We had a week off in the middle of shooting, but as soon as everyone stopped, we all went down with six different types of flu and other unmentionable diseases.
+ - I hate flying, airports and the whole rigmarole – queuing up, security and lost luggage.
+ - I’m loath to use my personal life to promote what I do, but at the same time, I don’t like a journalist going away with no more than you could get off Wikipedia, where most of it’s invented anyway.
+ - My work’s never been accepted by my family, but it’s something I’ll always carry on with.
+ - You know, there’s that temptation in interviews to make yourself sound – well, to give yourself a bit of mystery.
+ - I used to attract a lot of feeders. I’d be quite happy to be locked in someone’s flat and fed liquidised burgers.
+ - It’s lovely being a parent and being in a strong marriage with somebody who is your best friend.
+ - We all have days where we can’t pronounce things or give it the emotion it deserves.
+ - I am a big fan of smelly cheeses but the rest of the family don’t seem to be particularly keen on them.
+ - My first holiday to San Francisco in 1998-99 was supposed to be a two-week vacation but I ended up staying five weeks and nearly didn’t come home.
+ - Up North you are holding your own. Everyone considers themselves a comedian.
+ - Health-wise, I couldn’t have said what my life expectancy would’ve been if I’d just carried on doing solid blocks of stand-up.
+ - You can sway an audience if you win the women over. The gentlemen will follow ’cause they can be so foolish like that at times, they are easily led.
+ - Writing a book about yourself is like therapy, and you go ‘Oh My God, that’s the reason that happened.’ Writing about it, you’re forced to really examine things.
+ - For the greater good, I thought I should be a spiritual leader for people for some reason.
+ - It is easy for me to love myself, but for ladies to do it is another question altogether.
+ - Oh, I’m terrible at travel.
+ - I’ve got my finger in a lot of pies.
+ - I also want to return to doing stand-up. I’ve become frightened of live audiences. This is a really telling sign that I need to go back on the comedy circuit again.
+ - I use very few muscles at the best of times.
+ - Being ‘Johnny’ was almost like an out of body experience. I thought he was just a character that I’d created and could quite easily step away from, but it was much more difficult than that.
+ - Baldness is visually enough of a stigma as it is without a big sweaty bloke on stage pointing it out.
+ - I’ve got little ankles and a bit of a belly, so it makes me look rather an egg on legs.
+ - You can’t be a proper comic unless you’ve been out on stage and felt the fear.
+ - I think I’m realising more and more that I’ve got a job to do and I can’t be doing the big nights out and working to my full potential the next day. I feel much better for it.
+ - I avoid any kind of organised trips as that’s one of my bugbears.
+ - I’ve got too much respect for stand-ups to call myself one.
+ - I sang ‘American Pie’ a lot in my stage set. It had a knack of uniting an audience in a sing-along. It’s a clever song about American history but wrapped in a fantastic tune.
+ - I still give myself the right to be highly critical of others, though.
+ - You don’t want to be flattered and become big-headed by getting awards. But, well, I am.
+ - I’m getting positive feedback for my acting so we’ll see if any other interesting parts come up.
+ - Had I become a priest, the sermons would’ve been electric!
+ - My agent once said, ‘You’re not very driven.’ And it’s true. I’m not the type to ring up and go, ‘Get me this part!’
+ - I think it sort of dawns on you that if you’re not gigging constantly you’re not actually relevant. You may be relevant to a different part of the media now, to television commissioners and editors, but to a young live-comedy audience you’re not, really.
+ - I actually enjoy being heckled; it keeps it interesting, and I think it is a nice feeling for people once they have left the show.
+ - There is something more spiritual to us than what we are on this earth, but how you access it I’m not sure.
+ - Comedy’s so subjective, and if someone comes to watch, doesn’t get it, doesn’t find it funny, then fine.
+ - If an original piece of wardrobe came up from Star Wars, I’d probably spend a lot of money on it.
+ - There have been times I’ve finished a big job and thought, ‘Great, a couple of weeks off.’ But then a couple of weeks turns to three weeks and then after a month you’re staring at the phone willing it to ring.
+ - I had a massive amount of self-belief when I did stand-up.
+ - With stand-up you’ve just got that one chance. Audiences can be quite fickle.
+ - I used to be good with kids, but as I get older, I’m grumpy and terrible with them. As for doing a gig at a 6-year old’s birthday party, you couldn’t pay me enough.
+ - I think if you’re at the point where you’re popular enough to sell your wedding photos to OK! Magazine then you don’t need the money.
+ - They look outside the windows of their apartment in town and realize they’re not living in a terrace anymore. This is a room full of dreamers who like to go to London for a day.
+ - Class still matters in Britain today.
+
+59 quotes

@@ -1,0 +1,31 @@
+ - I am at the moment writing a lengthy indictment against our century. When my brain begins to reel from my literary labors, I make an occasional cheese dip.
+ - I avoid that bleak first hour of the working day during which my still sluggish senses and body make every chore a penance. I find that in arriving later, the work which I do perform is of a much higher quality.
+ - Oh, Fortuna, you capricious sprite!
+ - A firm rule must be imposed upon our nation before it destroys itself. The United States needs some theology and geometry, some taste and decency. I suspect that we are teetering on the edge of the abyss.
+ - Leaving New Orleans also frightened me considerably. Outside of the city limits the heart of darkness, the true wasteland begins.
+ - I recommend Batman especially, for he tends to transcend the abysmal society in which he’s found himself. His morality is rather rigid, also. I rather respect Batman.
+ - Apparently I lack some particular perversion which today’s employer is seeking.
+ - Stop!? I cried imploringly to my god-like mind.
+ - I mingle with my peers or no one, and since I have no peers, I mingle with no one.
+ - Mother went out again tonight, looking like a courtesan.
+ - The day before me is fraught with God knows what horrors.
+ - I refuse to “look up.” Optimism nauseates me. It is perverse. Since man’s fall, his proper position in the universe has been one of misery.
+ - Is my paranoia getting completely out of hand, or are you mongoloids really talking about me?
+ - This liberal doxy must be impaled on the member of a particularly large stallion!
+ - Jail was preferable. There they only limited you physically. In a mental ward they tampered with your soul and worldview and mind.
+ - I should perhaps warn you that I am about to faint from anxiety and general depression, though. The film I saw last night was especially grueling, a teen-age beach musical. I almost collapsed during the singing sequence on surfboard.
+ - It will all end very badly, Gus.
+ - Veneration of Mark Twain is one of the roots of our current intellectual stalemate.
+ - Had that poor Reilly kook really been proud of Levy Pants? He had always said that he was. That was one good sign of his insanity.
+ - Once a person was asked to step into this brutal century, anything could happen.
+ - Having once been so high, humanity fell so low. What had once been dedicated to the soul was now dedicated to the sale.
+ - The heart is important at any age, I’m afraid.
+ - My life is a rather grim one. One day I shall perhaps describe it to you in great detail.
+ - When Fortuna spins you downward, go out to a movie and get more out of life.
+ - Mothers got a hard road to travel, believe me.
+ - Oh, New Orleans is such freedom.
+ - You could tell by the way he talked, though, that he had gone to school a long time. That was probably what was wrong with him.
+ - I suspect that I am the result of particularly weak conception on the part of my father. His sperm was probably emitted in a rather offhand manner.
+ - My mother is currently associating with some undesirables who are attempting to transform her into an athlete of sorts, deprave specimens of mankind who regularly bowl their way to oblivion.
+
+29 quotes

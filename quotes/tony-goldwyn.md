@@ -1,0 +1,28 @@
+ - Life is a very emotional experience.
+ - Nothings wrong with honest emotion.
+ - If you’re playing with the best, you just rise up to that level.
+ - Once you go Kerry Washington, you can’t go back.
+ - My two daughters live on Facebook, and social media is their mode of communication.
+ - Capital punishment? It makes no sense as a policy: It’s not a deterrent, and economically it’s a disaster. It’s very clear that there are innocent people on death row. And if I put an innocent person to death, that’s murder.
+ - I’m a moderate Democrat. I’ve always been fascinated and maddened by the way things get done in our system, which as an ideal is so extraordinary, but the way it actually works can be mind-boggling.
+ - Even when a pilot goes, you shoot it in March or April, and then you have to rush it through post-production by May. If they greenlight it, then you go and there’s no time to think about it. And then, you’ve gotta start shooting in July, so you’re off to the races.
+ - I want to keep doing different things. I’d like to do a more personal, dramatic movie next, I think. But as long as it’s about characters and good writing and good parts for actors, that’s what’s important.
+ - I think the problem with polemics is that it’s general and it’s lazy. When you say, “This is bad,” that’s a general thing. We’re more interested in asking the question.
+ - The more decisions you make, the better, statistically, your odds of success are. And what I also learned was, it doesn’t matter: anything can be fixed. When you’re directing, you can agonize, but you can’t indulge. Stuff has to happen.
+ - I’ve been a political junkie for a long time. I find the way Washington works is just fascinating to me.
+ - My mother’s whole family had been from the theater, really. Because I grew up in Hollywood, I wasn’t that interested in Hollywood. But the New York theater was completely exotic and fabulous to me.
+ - One of the reasons that the African American actors wanted to be a part of the show was because these people are talking to each other the way that African American people talk to each other, and they said that they didn’t see that on TV.
+ - I feel audiences are not given enough credit for their intelligence.
+ - We want to live in the black and white, but we don’t. The world is gray. And, I’m always fascinated by people who are clearly, ‘This is black and this is white, and that’s the way life is.’ Life always has something to say about that.
+ - I don’t want to do an action movie, because I’ve acted in them, and they’re so boring to do, because they’re so technical. The headache of that is daunting. But, if it were an action movie with really interesting characters, how great would that be?
+ - My parents kept us sheltered from this world of Hollywood. I don’t have any great memories of bouncing on Cary Grant’s knee or something like that.
+ - It was great to essentially have two protagonists where you’re sympathies could go back and forth between the two of them, throughout the season.
+ - I’m always perversely attracted to characters that seem one thing, but are ultimately revealed as another.
+ - Whether it’s movies or television that I’ve directed, or characters that I’ve played, I’m just always fascinated by the moral ambiguity inherent in life.
+ - I directed and produced Conviction, a movie about a man who spent 18 years in prison for a crime he didn’t commit. I got to know Innocence Project co-founder Barry Scheck very well – he’s a character in the movie – and I got very passionate about the cause. It’s just so inherently dramatic.
+ - I grew up in Hollywood. Saying my name here is like mentioning Ford in Detroit.
+ - In television, the creator is really the voice.
+ - I think I’ve inherited a kind ofwillfulness, a kind of quiet willfulness that I’ll just hang in there with something until it happens.
+ - I really enjoy directing television because you get to work in so many different genres and with different people.
+
+26 quotes

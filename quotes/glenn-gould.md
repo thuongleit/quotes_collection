@@ -1,0 +1,21 @@
+ - Isolation is the indispensable component of human happiness.
+ - The justification of art is the internal combustion it ignites in the hearts of men, and not its shallow, externalized, public manifestations.
+ - The purpose of art is not the release of a momentary ejection of adrenaline but rather the gradual, lifelong construction of a state of wonder and serenity.
+ - There is a craft and a power in listening.
+ - One does not play the piano with one’s fingers, one plays the piano with one’s mind.
+ - Mozart died too late rather than too soon.
+ - My moods are inversely related to the clarity of the sky.
+ - I believe that the only excuse we have for being musicians and for making music in any fashion, is to make it differently, to perform it differently, to establish the music’s difference, vis-a-vis our own difference.
+ - I think that if I were required to spend the rest of my life on a desert island, and to listen to or play the music of any one composer during all that time, that composer would almost certainly be Bach.
+ - If an artist wants to use his mind for creative work, cutting oneself off from society is a necessary thing.
+ - A record is a concert without halls and a museum whose curator is the owner.
+ - The nature of the contrapuntal experience is that every note has to have a past and a future on the horizontal plane.
+ - The final, unfinished fugue from The Art of Fugue is the greatest piece of music ever composed.
+ - The mental imagery involved with pianistic tactilia is not related to the striking of individual keys but rather to the rites of passage between notes.
+ - I detest audiences – not in their individual components, but en masse I detest audiences. I think they’re a force of evil. It seems to me rule of mob law.
+ - Once I turned pro, so to speak, I put away childish things forever.
+ - I don’t approve of people who watch television, but I am one of them.
+ - The trouble begins when we start to be so impressed by the strategies of our systematized thought that we forget that it does relate to an obverse, that it is hewn from negation, that it is but very small security against the void of negation which surrounds it.
+ - Whenever one honestly defies a tradition, one becomes, in reality, the more responsible to it.
+
+19 quotes

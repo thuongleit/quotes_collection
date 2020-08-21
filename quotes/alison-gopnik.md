@@ -1,0 +1,30 @@
+ - The brain knows the real secret of seduction, more effective than even music and martinis. Just keep whispering, ‘Gee, you are really special’ to that sack of water and protein that is a body, and you can get it to do practically anything.
+ - Adults often assume that most learning is the result of teaching and that exploratory, spontaneous learning is unusual. But actually, spontaneous learning is more fundamental.
+ - On the Web we all become small-town visitors lost in the big city.
+ - From an evolutionary perspective children are, literally, designed to learn. Childhood is a special period of protected immaturity. It gives the young breathing time to master the things they will need to know in order to survive as adults.
+ - Because we imagine, we can have invention and technology. It’s actually play, not necessity, that is the mother of invention.
+ - Teaching is a very effective way to get children to learn something specific – this tube squeaks, say, or a squish then a press then a pull causes the music to play. But it also makes children less likely to discover unexpected information and to draw unexpected conclusions.
+ - Texts and e-mails travel no faster than phone calls and telegrams, and their content isn’t necessarily richer or poorer.
+ - Owning our past allows us to own our future.
+ - Scientists learn about the world in three ways: They analyze statistical patterns in the data, they do experiments, and they learn from the data and ideas of other scientists. The recent studies show that children also learn in these ways.
+ - Becoming an adult means leaving the world of your parents and starting to make your way toward the future that you will share with your peers.
+ - If parents are the fixed stars in the childs universe, the vaguely understood, distant but constant celestial spheres, siblings are the dazzling, sometimes scorching comets whizzing nearby.
+ - The brain is highly structured, but it is also extremely flexible. It’s not a blank slate, but it isn’t written in stone, either.
+ - Young children seem to be learning who to share this toy with and figure out how it works, while adolescents seem to be exploring some very deep and profound questions: How should this society work? How should relationships among people work? The exploration is: Who am I, what am I doing?
+ - The radio was an improvement on the telegraph but it didn’t have the same exponential, transformative effect.
+ - We fear death so profoundly, not because it means the end of our body, but because it means the end of our consciousness – better to be a spirit in Heaven than a zombie on Earth.
+ - The youngest children have a great capacity for empathy and altruism. There’s a recent study that shows even 14-month-olds will climb across a bunch of cushions and go across a room to give you a pen if you drop one.
+ - Developmental scientists like me explore the basic science of learning by designing controlled experiments.
+ - What teenagers want most of all are social rewards, especially the respect of their peers.
+ - What’s it like to be a baby? It’s like being in love in Paris for the first time after you’ve had three double espressos.
+ - What happens when children reach puberty earlier and adulthood later? The answer is: a good deal of teenage weirdness.
+ - The best scientific way to discover if one factor influences another is to do a controlled experiment.
+ - The largest and most powerful computers are still no match for the smallest and weakest humans.
+ - Childhood is a fundamental part of all human lives, parents or not, since that’s how we all start out. And yet babies and young children are so mysterious and puzzling and even paradoxical.
+ - Animals are certainly more sophisticated than we used to think. And we shouldn’t lump together animals as a group. Crows and chimps and dogs are all highly intelligent in very different ways.
+ - I’m afraid the parenting advice to come out of developmental psychology is very boring: pay attention to your kids and love them.
+ - Putting together philosophy and children would have been difficult for most of history. But very fortunately for me, when I started graduate school there was a real scientific revolution taking place in developmental psychology.
+ - One of the most distinctive evolutionary features of human beings is our unusually long, protected childhood.
+ - It’s turns out to be much easier to simulate a grandmaster chess player than it is to simulate a 2-year-old.
+
+28 quotes

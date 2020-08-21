@@ -1,0 +1,27 @@
+ - To uncover your true potential you must first find your own limits and then you have to have the courage to blow past them.
+ - Follow your dreams as long as you live! Never be afraid to go out on the limb to live up to your expectations. Always do things your way and Have Fun!
+ - I’m not following anybody’s tracks, I’m making my own, baby.
+ - I’m social and I meet people and talk to people but I’m not looking for the ideal person to fit my mold and to raise my family with yet. I’m just kind of doing my thing and learning from the people I’m around and who I cross paths with.
+ - I donate money to the existing foundation that funds the US Ski Team kids.
+ - When you’re jumping so high for something so far up in the sky, you have to know that there is definitely someone there who can catch you, someone who knows how to catch you and when.
+ - I’m forever gonna miss the start to the finish, the rush of racing downhill.
+ - Adversity creates heroes.
+ - I’m looking forward to free skiing the most. Just groomers, big wide groomers making nice big turns.
+ - I’ve made a promise to myself to be a 100% healthy person if nothing else.
+ - It is an everlasting desire to make my dreams come true. And it’s getting to the point now where it’s like, come on I want my dreams to come true so that I can get on with the rest of my life. Sometimes I think about the rest of my life when I’m done.
+ - There were mornings when I just didn’t want to get out of bed. But once again, I’m in an adverse situation and having to deal with something new and learn how to do it.
+ - Nobody needs to prove to anybody what they’re worthy of, just the person that they look at in the mirror. That’s the only person you need to answer to.
+ - I don’t know if it’s just me or everyone, but the whole vibe with skiing is not so much thriving on competition against others as it is against myself and the clock.
+ - Here at the house, I’ve been decorating it and getting it organized. My best friend moved in in October so I’ve been getting her settled. She’s my personal assistant now.
+ - A lot of women don’t know how to vent and deal with emotions.
+ - My knee is as strong as it was before, if not stronger, and it’s a matter of getting my leg strong. I lost six years of strength in about six month’s time, so it’s going to take another year or two to get that leg back up to full strength, but I’m good to go so far.
+ - I get my inspiration from everyone when I need it and how I need it.
+ - I’m hoping that maybe everyone on the Olympic team thinks that I’m worthy to carry the flag. That’s my next goal, to carry the flag during the opening ceremonies, if everyone chooses me.
+ - I’m the kind of person that when I really want something, I wish for it. I wish on shooting stars. I wish on lots of things.
+ - I don’t look at it like that’s my rival and I have to beat her. It’s more like, I have to ski this as fast as I can and the fastest of everyone out here and that’s what I expect.
+ - But to personally satisfy my own adrenalin needs, I’ve been racing cars a little bit, which has been fun.
+ - One of my dreams in life is to do fund-raising for the youth.
+ - Every once in a while I run the Olympic downhill in Japan in my head. I think of how the energy is going to flow and then I make it all work for myself.
+ - I wasn’t losing my focus but I was getting tired of focusing. What I was focusing on was becoming too routine, too ritual, not something that was interesting, new and exciting.
+
+25 quotes

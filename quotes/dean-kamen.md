@@ -1,0 +1,46 @@
+ - Education, actual learning – it is hard work. It’s very personal. Your parents don’t teach you anything. Your teachers don’t teach you anything. The government doesn’t teach you anything. You read it. You don’t understand it; you read it again. You break a pencil and read it again.
+ - In a free society, you get what you celebrate.
+ - Life is so short. Why waste a single day of it doing something that doesn’t matter, that doesn’t try to do something big?
+ - Innovation needs to be nurtured throughout an organization. Management is doing things right, whereas leadership is doing the right things.
+ - Segway will be to the car what the car was to the horse and buggy.
+ - It’s not what you do – it’s what you are becoming.
+ - I’m a human entropy producer.
+ - If you’re going to fail, you might as well fail at the big ones.
+ - I think an education is not only important, it is the most important thing you can do with your life.
+ - An innovation is one of those things that society looks at and says, if we make this part of the way we live and work, it will change the way we live and work.
+ - Most of the time you will fail, but you will also occasionally succeed. Those occasional successes make all the hard work and sacrifice worthwhile.
+ - What really makes it an invention is that someone decides not to change the solution to a known problem, but to change the question.
+ - We live in a world where virtually everybody expects there’s going to be some reasonable therapy for virtually any situation.
+ - More than ever, the world needs good engineers. However, the pool of talent is shrinking not growing.
+ - In some cases, inventions prohibit innovation because we’re so caught up in playing with the technology, we forget about the fact that it was supposed to be important.
+ - We are in a race between knowledge and catastrophe. If we keep track of what is important, never lower our standards or forget why we are here, we have the ability to determine the fate of the world.
+ - My biggest worry is I’m running out of time and energy. Thirty years ago I thought 10 years was a really long time.
+ - My biggest failure is I have too many to talk about.
+ - Kids are intimidated by the way science and technology is presented. It’s made, frankly, quite boring and it becomes part of a curriculum that chases particularly women and minorities away.
+ - The city needs a car like a fish needs a bicycle.
+ - Nothing that has value, real value, has no cost. Not freedom, not food, not shelter, not healthcare.
+ - I do not want to waste any time. And if you are not working on important things, you are wasting time.
+ - Sometimes we crash and burn. It’s better to do it in private.
+ - You have teenagers thinking they’re going to make millions as NBA stars when that’s not realistic for even 1 percent of them. Becoming a scientist or engineer is.
+ - Sporting competitions seem to be what we obsess over, frankly. So if we can put engineering, science, technology into a format of healthy, fun competition, we can attract all sorts of kids that might not see the kind of activity we do as accessible or rewarding.
+ - If history is any indication, all truths will eventually turn out to be false.
+ - People take the longest possible paths, digress to numerous dead ends, and make all kinds of mistakes. Then historians come along and write summaries of this messy, nonlinear process and make it appear like a simple, straight line.
+ - I consider high-speed data transmission an invention that became a major innovation. It changed the way we all communicate.
+ - I don’t want to think about how many people have thought or still think that I’m crazy.
+ - As we move towards 8 or 10 billion people on the planet, there’s a little less gold per capita. Each one of us will continue to be fighting over an ever smaller percentage of total resources. This is not a happy thought.
+ - Some broad themes brought me where I am today. At a very young age, my hobby became thinking and finding connections.
+ - Whatever the marketplace, if talented people are given resources, they’re going to keep driving us to having better, simpler, cheaper solutions to problems.
+ - There is just so much stuff in the world that, to me, is devoid of any real substance, value, and content that I just try to make sure that I am working on things that matter.
+ - We cant live any more in a world which is based on stuff and not ideas. If you want to live with the world of stuff, were all doomed.
+ - I’d rather lose my own money than someone else’s.
+ - I think we have a society which is spending more and more of its money on healthcare as a percent of GDP as a percent of a lot of things. I think that’s a measure of success.
+ - Everybody has to be able to participate in a future that they want to live for. That’s what technology can do.
+ - To me, innovations are the wheel, fire, language, movable type. There are not 3 million innovations; there are 3 million inventions.
+ - I think in our lifetime, that level of acceptance of “well, we couldn’t do any better,” won’t be tolerated. We’re going to start to see individual therapies customized for individual patients, and it’s going to change the way people get healthcare.
+ - I started realizing that I wasn’t so dumb; rather, most people simply didn’t know the answers to the questions that I was interested in-or they didn’t care.
+ - New ideas in technology are literally a dime-a-dozen, or cheaper than that.
+ - I don’t work on a project unless I believe that it will dramatically improve life for a bunch of people.
+ - Americans thinking that America will continue to lead the world in innovation and quality of life without some quick and serious educational improvements are dangerously delusional.
+ - A patent, or invention, is any assemblage of technologies or ideas that you can put together that nobody put together that way before. That’s how the patent office defines it. That’s an invention.
+
+44 quotes

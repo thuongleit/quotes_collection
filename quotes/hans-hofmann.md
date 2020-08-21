@@ -1,0 +1,49 @@
+ - The ability to simplify means to eliminate the unnecessary so that the necessary may speak.
+ - The whole world, as we experience it visually, comes to us through the mystic realm of color.
+ - Since light is best expressed through differences in color quality, color should not be handled as a tonal gradation, to produce the effect of light.
+ - Through a painting, we can see the whole world.
+ - A work of art is finished, from the point of view of the artist, when feeling and perception have resulted in a spiritual synthesis.
+ - Being inexhaustible, life and nature are a constant stimulus for a creative mind.
+ - You must break all the rules of painting, but you must also convince me you’ve had a reason to do so.
+ - It takes intelligence and training, self-discipline and fine-sensibility, to gain renewed life through leisure occupation. America now suffers spiritual poverty, and art must become more fully American life before her leisure can become culture.
+ - Our entire being is nourished by color.
+ - I can’t understand how anyone is able to paint without optimism.
+ - Painters must speak through paint, not through words.
+ - It is not the form that dictates the color, but the color that brings out the form.
+ - The impulse of nature, fused through the personality of the artist by laws arising from the particular nature of the medium, produces the rhythm and the personal expression of a work. Then the life of the composition becomes a spiritual unity.
+ - We are connected with our own age if we recognize ourselves in relation to outside events; and we have grasped its spirit when we influence the future.
+ - An idea can only be materialized with the help of a medium of expression, the inherent qualities of which must be surely sensed and understood in order to become the carrier of an idea.
+ - A work of art is a world in itself reflecting senses and emotions of the artist’s world. Just as a flower, by virtue of its existence as a complete organism is both ornamental and self-sufficient as to color, form, and texture, so art, because of its singular existence is more than mere ornament.
+ - To sense the invisible and to be able to create it, that is art.
+ - It makes no difference whether a work is naturalistic or abstract; every visual expression follows the same fundamental laws.
+ - In nature, light creates the color. In the picture, color creates the light.
+ - I can’t understand how anyone is able to paint without optimism. Despite the general pessimistic attitude in the world today, I am nothing but an optimist.
+ - Art and science create a balance to material life and enlarge the world of living experience. Art leads to a more profound concept of life, because art itself is a profound expression of feeling.
+ - And so artistic creation is the metamorphosis of the external physical aspects of a thing into a self-sustaining spiritual reality .
+ - A work of art is a world in itself reflecting senses and emotions of the artist’s world.
+ - Art is something absolute, something positive, which gives power just as food gives power. While creative science is a mental food, art is the satisfaction of the soul.
+ - A thought functions only as a fragmentary part in the formulation of an idea.
+ - A thing in itself never expresses anything. It is the relation between things that gives meaning to them and that formulates a thought. A thought functions only as a fragmentary part in the formulation of an idea.
+ - The product of movement and counter-movement is tension. When tension working strength is expressed, it endows the work of art with the living effect of coordinated, though opposing, forces.
+ - Every art expression is rooted fundamentally in the personality and temperament of the artist.
+ - The child is really an artist, and the artist should be like a child, but he should not stay a child. He must become an artist. That means he cannot permit himself to become sentimental or something like that. He must know what he is doing.
+ - To experience visually, and to transform our visual experience into plastic terms, requires the faculty of empathy.
+ - The art of pictorial creation is so complicated – it is so astronomical in its possibilities of relation and combination that it would take an act of super-human concentration to explain the final realization.
+ - To me, art is the glorification of the human spirit.
+ - Art cannot result from sophisticated, frivolous, or superficial effects.
+ - Space expands or contracts in the tensions and functions through which it exists. Space is not a static, inert thing. Space is alive; space is dynamic; space is imbued with movement expressed by forces and counterforces; space vibrates and resounds with color, light and form in the rhythm of life.
+ - To worship the product and ignore its development leads to dilettantism and reaction.
+ - Colors must fit together as pieces in a puzzle or cogs in a wheel.
+ - Art is to me the glorification of the human spirit, and as such it is the cultural documentation of the time in which it is produced.
+ - The width of a line may present the idea of infinity. An epigram may contain a world. In the same way, a small picture format may be much more living, much more leavening, stirring, awakening, than square yards of wall space.
+ - The creative process lies not in imitating, but in paralleling nature translating the impulse received from nature into the medium of expression, thus vitalizing this medium. The picture should be alive, the statue should be alive, and every work of art should be alive.
+ - There is in reality no such thing as modern art. Art is carried on up and down in immense cycles through centuries and civilizations.
+ - When the impulses which stir us to profound emotion are integrated with the medium of expression, every interview of the soul may become art. This is contingent upon mastery of the medium.
+ - Creation is dominated by three absolutely different factors: First, nature, which works upon us by its laws; second, the artist, who creates a spiritual contact with nature and his materials; third, the medium of expression through which the artist translates his inner world.
+ - My aim in painting is to create pulsating, luminous, and open surfaces that emanate a mystic light, in accordance with my deepest insight into the experience of life and nature.
+ - Genius is gifted with a vitality which is expended in the enrichment of life through the discovery of new worlds of feeling.
+ - The plastic artist may or may not be concerned with presenting a superficial appearance of reality, but he is always concerned with the presentation – if not the representation – of the plastic values of reality.
+ - The difference between the arts arises because of the difference in the nature of the mediums of expression and the emphasis induced by the nature of each medium. Each means of expression has its own order of being, its own units.
+ - It isn’t necessary to make things large to make them monumental; a head by Giacometti one inch high would be able to vitalize this whole space.
+
+47 quotes

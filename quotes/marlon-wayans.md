@@ -1,0 +1,24 @@
+ - Success is not a destination, but the road that you’re on. Being successful means that you’re working hard and walking your walk every day. You can only live your dream by working hard towards it. That’s living your dream.
+ - Success is not a destination, but the road that you’re on.
+ - I hate cooking. But I do make the candied yams every year at Thanksgiving. And they’re awesome! You could definitely get diabetes and cavities from them, but they’re delicious!
+ - I was going to be valedictorian in elementary school, but I got into too many fights, and they made me salutatorian. I was smart back in the day. Now I’m just an idiot.
+ - Nobody loves me. No, everybody wanted me to do this one by myself, and I wanted to do it by myself. So, this is sorta like my first solo album. I didn’t pull any tricks out of my hat, and just went with the natural flow of the film.
+ - Everyone thinks I’m a comedian – which I am and are. I was born into a comedic family but I’m trained as an actor.
+ - Gotta stay in the gym, stay funny, stay sharp. I just love working.
+ - I see a funny guy who’s imperfect, but has a great heart and no vanity when it comes to what he’ll do to get a laugh. I see a guy who loves his art and loves his family, and who is willing to live and die for both.
+ - I sound like Jesse Jackson or Martin Luther King, but I honestly feel like the world is mature enough. And, for me, I just want to do good roles.
+ - I want to be remembered as a guy who’s not going to change your life but who is going to change your mood. As a guy who made you smile and say, “I miss him. He was a lot of fun.”
+ - I was 160lbs when I started and I went up to 195lbs. There were no steroids. But it was hard work, dedication, hitting the gym. You kind of see it.
+ - Comedy clubs can be brutal. Those people are for real, and if you aren’t funny, they aren’t laughing. They don’t care who you are.
+ - I got a man cave. I play my music loud. I bought big speakers because I need to hear music loud.
+ - Humor helps ease the tension of race and the differences in society. If there wasn’t comedy I don’t know if Obama could have ever become president.
+ - I want to be believable in anything I take on.
+ - I’m good at coming up with wacky characters and funny dialogue.
+ - Comedy is very hard, but you have to learn the art and science of it.
+ - Whatever role I do, I’ve got to do the work. It all starts with the body. Get that ready and everything else follows.
+ - Let me tell you, Barack Obama is the most down dude in the world, but he’s so smart so articulate, such an amazing speaker such a passionate man. He’s humble.
+ - We have a black President in the United States. I think the world has matured. It’s no longer about colour, but the person in the skin.
+ - I always feel that the best roles are written for white guys.
+ - I went to a performing arts high school, we learned Shakespeare, I did ‘Fences.’ When you train, you can do anything.
+
+22 quotes

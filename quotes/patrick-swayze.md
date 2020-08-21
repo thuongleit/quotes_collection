@@ -1,0 +1,52 @@
+ - Fear causes hesitation, and hesitation will cause your worst fears to come true.
+ - I’m not afraid of death. I’m going home.
+ - What winning is to me is not giving up, is no matter what’s thrown at me, I can take it. And I can keep going.
+ - I found that dance was key to keeping depression out of my life. When you dance, things just go away, things don’t seem so bad. There’s no better way to take care of health than through something as joyous and beautiful as dance.
+ - When you dance, things just go away, things don’t seem so bad.
+ - What’s powerful about a love scene is not seeing the act. It’s seeing the passion, the need, the desire, the caring, the fear.
+ - You know, I am a Leo. Lion is a giant part of me.
+ - Dance is the pure language of the soul – it’s been with us from the very beginning.
+ - Surfing’s the source. Can change your life. Swear to god.
+ - Feel what the wave is doing, then accept its energy.
+ - Good-looking people turn me off. Myself included.
+ - I keep my heart and my soul and my spirit open to miracles.
+ - Together we can make a world where cancer no longer means living with fear, without hope, or worse.
+ - I don’t know what’s on the other side.
+ - There are people who want me to do a cologne. They want to call it ‘Patrick.’ I was offered a fortune to make exercise videos. Posters, all kinds of stuff – something like $10 million worth. It’s insanity. I’m not going to do any of it.
+ - Everything is designed to help you sell out.
+ - Life sure has a sick sense of humor, doesn’t it?
+ - You can imagine me as a kid growing up in redneck Texas with ballet shoes, tucking the violin under my arm. I had to fight my way up.
+ - The steps aren’t enough. Feel the music.
+ - I will go so far as to say probably smoking had something to do with my pancreatic cancer.
+ - When it looks like I may live longer than five minutes I’ll drop cigarettes like a hot potato.
+ - I don’t want to be Mr. Romantic Leading Man. I don’t want to be the Dance Dude. I don’t want to be the Action Guy. If I had to do any one of those all my life, it’d drive me crazy.
+ - Look at it! It’s a once in a lifetime opportunity, man! Let me go out there and let me get one wave, just one wave before you take me in. I mean, come on man, where I am I gonna go? Cliffs on both sides! I’m not gonna paddle my way to New Zealand! Come on, compadre. Come on!
+ - I’m trying to shut up and let my angels speak to me and tell me what I’m supposed to do.
+ - As always, I appreciate all the love and support people have sent and continue to send my way.
+ - I thought it was all over. My lungs were filling with water and I began to black out. Then I saw an ancient warrior rise up out of the water. He said we’d make it, and we did. I believe we all have an angel watching us.
+ - One thing I’m not going to do is chase staying alive. You spend so much time chasing staying alive, you won’t live.
+ - All you have to do is follow three simple rules. One, never underestimate your opponent. Expect the unexpected. Two, take it outside. Never start anything inside the bar unless it’s absolutely necessary. And three, be nice.
+ - There’s just something about dance. It’s like a primal thing in all of us.
+ - I don’t want to be a poster child for cancer.
+ - The longer your life goes on, the more death you face.
+ - The way to screw up somebody’s life is to give them what they want.
+ - I am very, very clear on how difficult it is for a young kid out there to go into the arts without taking a lot of heat from his peers.
+ - How do you nurture a positive attitude when all the statistics say you’re a dead man? You go to work.
+ - I keep dreaming of a future, a future with a long and healthy life, not lived in the shadow of cancer but in the light.
+ - If I leave this Earth, I want to leave this Earth just knowing I’ve tried to give something back and tried to do something worthwhile with myself.
+ - Talent deserves to be honored. Hands deserve to be slapped if you do something stupid as well, but don’t take it too far.
+ - When you are a pit bull, and you love what you do and you are going to continue to grow, that talent will find its way out.
+ - I’ve never been one to run from a challenge.
+ - It just blows me away that I am on, I don’t know what generation of fans.
+ - If you live through the initial stage of fame and get past it, and remember thats not who you are. If you live past that, then you have a hope of maybe learning how to spell the word artist.
+ - If I’m going to do television, I wanted that ‘North and South’ experience. I wanted something that’s going to challenge me on a constant basis.
+ - To be honest, I’ve made a game out of trying to live through my James Dean, Janis Joplin, Freddie Prinze, Jim Morrison period, those demons that we all have that we’re either successful or not at making work for us rather than destroy us.
+ - You can’t be pregnant in leotards, and this is the last chance for us to get our bodies into the shape of concert dancers and capture it with the magic of film.
+ - When people are away from home, they do things they might not normally do.
+ - Sometimes a movie encapsulates a period or a moment in all of our lives in such a way that it never dies.
+ - If anybody had that cure out there like so many people swear to me they do, you’d be two things: you’d be very rich, and you’d be very famous. Otherwise, shut up.
+ - I had a lot of anger because I wasn’t happy with the way I had been raised.
+ - I found that dance was key to keeping depression out of my life.
+ - I got completely fed up with that Hollywood blockbuster mentality. I couldn’t take it seriously any longer.
+
+50 quotes

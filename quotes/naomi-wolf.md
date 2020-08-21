@@ -1,0 +1,71 @@
+ - A Mother who radiates self-love and self-acceptance actually VACCINATES her daughter against low self-esteem.
+ - Health makes good propaganda.
+ - Women who love themselves are threatening; but men who love real women, more so.
+ - Obstacles, of course, are developmentally necessary: they teach kids strategy, patience, critical thinking, resilience and resourcefulness.
+ - I’m a big believer in debate and difference of opinion.
+ - What, after all, is the narrative of the American Dream? It was a discourse formulated between the 1880s and the 1920s in the United States during the great waves of migration and expansion and reforms of the Progressive Era.
+ - For I conclude that the enemy is not lipstick, but guilt itself; that we deserve lipstick, if we want it, AND free speech; we deserve to be sexual AND serious – or whatever we please; we are entitled to wear cowboy boots to our own revolution.
+ - We as women are trained to see ourselves as cheap imitations of fashion photographs, rather than seeing fashion photographs as cheap imitations of women.
+ - Pain is real when you get other people to believe in it. If no one believes in it but you, your pain is madness or hysteria.
+ - The economics of industrialized countries would collapse if women didn’t do the work they do for free: According to economist Marilyn Waring, throughout the West it generates between 25 and 40 percent of the gross national product.
+ - Spokespeople sell women the Iron Maiden and name her “Health”: if public discourse were really concerned with women’s health, it would turn angrily upon this aspect of the beauty myth.
+ - It is fairly well-known what has been behind that climate change denial in America: vast sums pumped into an ignorance industry by the oil and gas lobbies.
+ - A cultural fixation on female thinness is not an obsession about female beauty but an obsession about female obedience.
+ - It’s human nature to abuse power, no matter who you are.
+ - When I was a baby feminist, leading feminist thinkers were insisting that if women ran the world, there would be no sadism or war.
+ - Only one thing is more frightening than speaking your truth, and that is not speaking.
+ - Pain is real when you get other people to believe in it. If no one believes in it but you, your pain is madness or hysteria or your own unfeminine inadequacy. Women have learned to submit to pain by hearing authority figures – doctors, priests, psychiatrists – tell us that what we feel is not pain.
+ - Beauty provokes harassment, the law says, but it looks through men’s eyes when deciding what provokes it.
+ - Culture stereotypes women to fit the myth by flattening the feminine into beauty-without-intelligence or intelligence-without-beauty; women are allowed a mind or a body but not both.
+ - Today a woman must ignore her reflection in the eyes of her lover, since he might admire her, and seek it in the gaze of the God of Beauty, in whose perception she is never complete.
+ - There is this giant void in the culture about women in that age group as heroines, as romantic beings, as sexual beings and as creative beings, and there’s not that void for men. Women don’t stop being all those things as their lives continue into those decades.
+ - The beauty myth is always actually prescribing behaviour and not appearance.
+ - Of course a woman who decides to work full time as a mother in the home can be happy and deserves full respect from us. Motherhood is one of the most challenging and creative jobs anyone can do. The goal is to remake the world so that our choices are not so stark.
+ - Maybe the less pain we inflict on our bodies, the more beautiful our bodies will look to us.
+ - Cosmetic surgery processes the bodies of woman-made women, who make up the vast majority of its patient pool, into man-made women.
+ - She wins who calls herself beautiful and challenges the world to change to truly see her.
+ - Sexiness is no longer defined just as whether we are desirable, but also what we desire. The more liberated women become – economically, politically, and personally – the more erotic we are. Freedom is a lot sexier than dependency.
+ - To live in a culture in which women are routinely naked where men aren’t is to learn inequality in little ways all day long.
+ - Women who are beautiful or who achieve beauty according to the imposed standards are rewarded; those who cannot or choose not to be beautiful are punished, economically and socially.
+ - Aging in women is ‘unbeautiful’ since women grow more powerful with time, and since the links between generations of women must always be broken.
+ - Women are mere “beauties” in men’s culture so that culture can be kept male. When women in culture show character, they are not desirable, as opposed to the desirable, artless ingenue.
+ - A utopian future for the Internet could be secured if the heavy-duty influencers – and the grassroots influencers tweeting along – can create a new global organization peopled with defenders of Internet freedom.
+ - The more legal and material hindrances women have broken through, the more strictly and heavily and cruelly images of female beauty have come to weigh upon them.
+ - The beauty myth moves for men as a mirage; its power lies in its ever-receding nature. When the gap is closed, the lover embraces only his own disillusion.
+ - Peaceful, lawful protest – if it is effective – is innately disruptive of ‘business as usual.’ That is why it is effective.
+ - Become goddesses of disobedience.
+ - I argue that we deserve the choice to do whatever we want with our faces and bodies without being punished by an ideology that is using attitudes, economic pressure, and even legal judgments regarding women’s appearance to undermine us psychologically and politically.
+ - The stronger that women grow, the more prestige, fame, and money is accorded to the display professions: They are held higher and higher above the heads of rising women, for them to emulate.
+ - The Western sexual revolution sucks. It has not worked well enough for women.
+ - To ask women to become unnaturally thin is to ask them to relinquish their sexuality.
+ - Documentary film without nuanced journalistic sourcing risks being sensational, tendentious or broad-brushed.
+ - What are other women really thinking, feeling, experiencing, when they slip away from the gaze and culture of men?
+ - Cosmetic surgery and the ideology of self-improvement may have made women’s hope for legal recourse to justice obsolete.
+ - Western women have been controlled by ideals and stereotypes as much as by material constraints.
+ - It has been said that each generation must win its own struggle to be free. -Robert F. Kennedy.
+ - Citizens who live or work near protest sites or marches have every right to be free of violence from protesters, and they should never be subjected to destruction of property.
+ - Women have face-lifts in a society in which women without them appear to vanish from sight.
+ - At least a third of a woman’s life is marked with aging; about a third of her body is made of fat. Both symbols are being transformed into operable condition.
+ - The First Amendment was designed to allow for disruption of business as usual. It is not a quiet and subdued amendment or right.
+ - In a fascist shift, reporters start to face more and more harassment, and they have to be more and more courageous simply in order to do their jobs.
+ - There was a bad patch in the ’80s and early ’90s when feminist thinking had become sort of a monopoly and had developed a series of litmus tests.
+ - No matter what a woman’s appearance may be, it will be used to undermine what she is saying and taken to individualize – as her personal problem – observations she makes about the beauty myth in society.
+ - How is it even sustainable in 21st-century America that women earn, on average, 77 cents for every dollar earned by men?
+ - What editors are obliged to appear to say that men want from women is actually what their advertisers want from women.
+ - We are in the midst of a violent backlash againist feminism that uses images of female beauty as political weapons against women’s advancement.
+ - When women are pessimistic about their political strength and feel hopeless about changing the conditions of their lives, it is almost as if they do not believe that democracy means the country belongs to them. But it’s true.
+ - The symbolic value of having an African-American president has certainly eased some racial tensions in America, but they’re not gone.
+ - Excellence, to me, is the state of grace that can descend only when one tunes out all the world’s clamor, listens to an inward voice one recognizes as wiser than one’s own, and transcribes without fear.
+ - The maturing of a woman who has continued to grow is a beautiful thing to behold. Or, if your ad revenue or your seven-figure salary or your privileged sexual status depend on it, it is an operable condition.
+ - Protesters should make their own media and not rely on mainstream media to cover them.
+ - It is never smart, even in a strong democracy, to declare some debate off limits. In a weakening democracy it is catastrophic.
+ - What editors are obliged to appear to say that.
+ - Since Madonna is positioned as always ‘cooler than thou,’ we all are primed for schadenfreude if something in her fabulous life goes amiss.
+ - The Tea Party emerged from a laudably grassroots base: libertarians, fervent Constitutionalists, and ordinary people alarmed at the suppression of liberties, whether by George W. Bush or Barack Obama.
+ - Beauty discrimination has become necessary, not from the perception that women will not be good enough, but that they will be, as they have been, twice as good.
+ - The press doesn’t stop publishing, by the way, in a fascist escalation; it simply watches what it says. That too can be an incremental process, and the pace at which the free press polices itself depends on how journalists are targeted.
+ - My job is to notice echoes and notice resonances. Scientists are not supposed to do the same thing that cultural critics do.
+ - As women demanded access to power, the power structure used the beauty myth materially to undermine women’s advancement.
+ - Most urgently, women’s identity must be premised upon our ‘beauty’ so that we will remain vulnerable to outside approval, carrying the vital sensitive organ of self-esteem exposed to the air.
+
+69 quotes

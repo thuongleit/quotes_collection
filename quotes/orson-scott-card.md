@@ -1,0 +1,346 @@
+ - In the moment when I truly understand my enemy, understand him well enough to defeat him, then in that very moment I also love him.
+ - If you try and lose then it isn’t your fault. But if you don’t try and we lose, then it’s all your fault.
+ - I taught you everything you know. But I didn’t teach you everything I know.
+ - Among my most prized possessions are words that I have never spoken.
+ - Happiness is not a life without pain, but rather a life in which the pain is traded for a worthy price.
+ - Everyone dies. Everyone leaves. What matters is the things you build together before they go. What matters is the part of them that continues in you when they’re gone.
+ - The essence of training is to allow error without consequence.
+ - Personal affection is a luxury you can have only after all your enemies are eliminated. Until then, everyone you love is a hostage, sapping your courage and corrupting your judgment.
+ - That is the ultimate power, to stare death in the face and be unafraid.
+ - I will never hurt you. I will always help you. If you are hungry Ill give you my food. If you are frightened I am your friend. I love you now. And love does not end.
+ - Don’t lie to me! Don’t seem so normal when I know you have cut yourself off from me in your heart! If you can put on our affectionate closeness like a mask, then I’ll never be able to take joy in it again.
+ - In order to learn, one must change one’s mind.
+ - You can’t change what you don’t understand.
+ - Everybody walks past a thousand story ideas every day. The good writers are the ones who see five or six of them. Most people don’t see any.
+ - I don’t care if I pass your test, I don’t care if I follow your rules. If you can cheat, so can I. I won’t let you beat me unfairly – I’ll beat you unfairly first. – Ender.
+ - I’ve lived too long with pain. I won’t know who I am without it.
+ - I need you to be clever, Bean. I need you to think of solutions to problems we haven’t seen yet. I want you to try things that no one has ever tried because they’re absolutely stupid.
+ - Let’s fly away and live forever.
+ - Unemployment is capitalism’s way of getting you to plant a garden.
+ - Just because you believe it doesn’t make it so.
+ - Love is finding that the things you like best about yourself are not in you at all, but in the person who completes you.
+ - The difference between raman and varelse is not in the creature judged, but in the creature judging. When we declare an alien species to be raman, it does not mean that they have passed a threshold of moral maturity. It means that we have.
+ - Sometimes lies were more dependable than the truth.
+ - There’s a reason why every human society has fiction. It teaches us how to be ‘good,’ to behave in a way that is for the benefit of the whole community.
+ - No human being, when you understand his desires, is worthless. No one’s life is nothing.
+ - From now on the enemy is more clever than you. From now on the enemy is stronger than you. From now on you are always about to lose.
+ - America is an empire that does not wish to be one ; we are easily discouraged from doing what must be done to maintain the global order that allows democracy and prosperity to flourish.
+ - Intellectual understanding does not always bring visceral belief.
+ - This is what historians usually do, quibble about cause and effect when the point is, there are times when the world is in flux and the right voice in the right place can move the world. Thomas Paine and Ben Franklin, for instance. Bismark. Lenin.
+ - Isn’t it possible, he wondered, for one person to love another without trying to own each other? Or is that buried so deep in our genes that we can never get it out? Territoriality.
+ - I have never resisted the lord in my life, and I never will. But I’m not so hungry for dialogue with him that I have to make up his part as well as my own.
+ - There is no society that does not highly value fictional storytelling. Ever.
+ - Nobody ever completely means what they say. Even when they think they’re telling the truth, there’s always something hidden behind their words.
+ - Ender Wiggin isn’t a killer. He just wins – thoroughly.
+ - Because never in my entire childhood did I feel like a child. I felt like a person all along – the same person that I am today.
+ - Metaphors have a way of holding the most truth in the least space.
+ - There are times when the world is rearranging itself, and at times like that, the right words can change the world.
+ - Remember, the enemy’s gate is down.
+ - That’s how it goes within a family. You think you know each other so well, and so you don’t bother hardly getting to know each other at all.
+ - Welcome to the human race. Nobody controls his own life, Ender. The best you can do is choose to fill the roles given you by good people, by people who love you.
+ - Your ego-depletion seems problematically difficult to assuage.
+ - The future is a hundred thousand threads, but the past is a fabric that can never be rewoven.
+ - Your trust in rationality makes you irrational.
+ - Sickness and healing are in every heart; death and deliverance in every hand.
+ - It’s easy to manipulate your children when they’re absolutely sure you’re stupid.
+ - Others find humanity by looking in their own hearts. Only lost souls need to search for it outside themselves.
+ - All the common people want is to be left alone. All the ordinary soldier wants is to collect his pay and not get killed. That’s why the great forces of history can be manipulated by astonishingly small groups of determined people.
+ - Humanity does not ask us to be happy. It merely asks us to be brilliant on its behalf.
+ - Ender Wiggin must believe that no matter what happens, no adult will ever, ever step in to help him in any way.
+ - A library is the first step of a thousand journeys, portal to a thousand worlds.
+ - God, our genes, our environment, or some stupid programmer keying in code at an ancient terminal – there’s no way free will can ever exist if we as individuals are the result of some external cause.
+ - Where ideas are real and reality is shadow.
+ - Bean could see the hunger in their eyes. Not the regular hunger, for food, but the real hunger, the deep hunger, for family, for love, for belonging.
+ - I’ll have that someday, thought Peter. Someone who’ll kiss me good-bye at the door. Or maybe just someone to put a blindfold over my head before they shoot me. Depending on how things turn out.
+ - If you did not in your own mind distinguish between useful and erroneous information, then you were not learning at all, you were merely replacing ignorance with false belief, which was no improvement.
+ - He’d undone all he could. You can be sorry, and you can be forgiven, but you can’t call back the futures that your bad decisions lost.
+ - When you really know somebody you can’t hate them. Or maybe it’s just that you can’t really know them until you stop hating them.
+ - Perhaps it’s impossible to wear an identity without becoming what you pretend to be.
+ - Human beings are free except when humanity needs them.
+ - He loved her, as you can only love someone who is an echo of yourself at your time of deepest sorrow.
+ - I have to win this now, and for all time, or I’ll fight it every day and it will get worse and worse.
+ - Once you duct-tape a Ziploc bag to a man’s chest, there’s no going back.
+ - Science isn’t done by consensus. It’s done by rigorous testing.
+ - Science Fiction has rivets, fantasy has trees.
+ - A broken clock is right two times a day.
+ - It’s what I was born for, isn’t it? If I don’t go, why am I alive?
+ - Home is anywhere that you know all your friends and all your enemies.
+ - Your work is first, learning is first, winning is everything because without it there is nothing.
+ - The only way to learn is by changing your mind.
+ - The wise are not wise because they make no mistakes. They are wise because they correct their mistakes as soon as they recognize them.
+ - Any decent person who knows what warfare is can never go into battle with a whole heart.
+ - If words can be lethal weapons, I must provide them with an arsenal.
+ - Satanic Verses is a despicable book that could not have been written by a person who wished to behave decently and responsibly.
+ - We have to go. I’m almost happy here.
+ - To expect wickedness from human beings is the best way I know of to avoid surprises. And when I am surprised, it’s always pleasantly.
+ - If you asked me to marry you all over again today I’d say yes, said Valentine. And if I had only met you for the first time today, I’d ask.
+ - Human beings may be miserable specimens, in the main, but we can learn, and, through learning, become decent people.
+ - So the whole war is because we can’t talk to each other.
+ - You’re a monster. Thanks. Does this mean I get a raise? No, just a medal. The budget isn’t inexhaustable.
+ - Human beings are free except when humanity needs them. Maybe humanity needs you. To do something. Maybe humanity needs me – to find out what you’re good for. We might both do despicable things, Ender, but if humankind survives, then we were good tools.
+ - Sometimes you have to trust people enough to let them succeed and love them enough to let them fail.
+ - We’re like the wicked witch. We promise gingerbread, then eat the little brats alive.
+ - There’s a sort of rage a man feels when he’s been deceived where he most trusted. It compares to no other anger.
+ - Poke gave him life. Ender gave it meaning.
+ - Evil people naturally assume that you will use that power exactly as they would use it.
+ - I looked for perfection, and I found something better.
+ - Every person is defined by the communities she belongs to.
+ - I don’t hate you, I love you, you’re part of myself, you’re my heart and when you go it’s my heart torn out and carried away –.
+ - Mazer, i don’t want to keep dreaming these things. I’m afraid to sleep. I keep thinking of things i don’t want to remember. My whole life keeps playing out as if i were a recorder and someone else wanted to watch the most terrible parts of my life.
+ - Parents always make their worst mistakes with their oldest children. That’s when parents know the least and care the most, so they’re more likely to be wrong and also more likely to insist that they’re right.
+ - I love you Ender. More than ever. No matter what you decide.
+ - Thank you for this, Peter. For dry eyes and silent weeping. You taught me how to hide anything i felt. More than ever, i need that now.
+ - Perhaps I’m hiding from myself. Perhaps I don’t want to be what I’m supposed to be. Or perhaps I don’t want to keep living the life I already started to live.
+ - In war, everyone has their chance to bleed.
+ - If pigs could vote, the man with the slop bucket would be elected swineherd every time, no matter how much slaughtering he did on the side.
+ - From all wise men, O Lord, protect us.
+ - I hope I am remembered by my children as a good father.
+ - It is in the turmoil of chaos that we discover what, if anything, we are.
+ - This is how humans are: We question all our beliefs, except for the ones that we really believe in, and those we never think to question.
+ - Madness, and then illumination.
+ - I think it’s impossible to really understand somebody, what they want, what they believe, and not love them the way they love themselves.
+ - I will remember this, thought Ender, when I am defeated. To keep dignity, and give honor where it’s due, so that defeat is not disgrace. And I hope I don’t have to do it often.
+ - How short life is for fools.
+ - I carry the seeds of death within me and plant them wherever I linger long enough to love.
+ - A weak King must be what other Kings have been; a strong King is himself, and from then on the meaning of the name of King is changed.
+ - I’m neutral on lying, seeing as how there’s times when the truth just hurts people.
+ - The world is always a democracy in times of flux, and the man with the best voice will win.
+ - Come in, Bean. Come in Julian Delphiki, longed-for child of good and loving parents. Come in, kidnapped child, hostage of fate. Come and talk to the Fates, who are playing such clever little games with your life.
+ - Make friends. Be a leader. Kiss butts if you have to, but if the other guys despise you-you know what I mean?
+ - Being young is an 18 year prison sentence for a crime your parents committed. But you do get time off for good behavior.
+ - You want to make me the best soldier possible. Go down and look at the standings. Look at the all-time standings. So far you’re doing an excellent job with me. Congratulations. Now when are you going to put me up against a good army?
+ - Faith doesn’t mean you never doubt. It only means you never act upon your doubts.
+ - Changing the world is good for those who want their names in books. But being happy, that is for those who write their names in the lives of others, and hold the hearts of others as the treasure most dear.
+ - Two sides of the same coin, but which side is which?
+ - I’ve had your tears with mine, and you’ve had mine with yours. I think that’s more intimate even than a kiss.
+ - Soldiers can sometimes make decisions that are smarter than the orders they’ve been given.
+ - One mind can think only of its own questions; it rarely surprises itself.
+ - In my view, suicide is not really a wish for life to end.? What is it then?? It is the only way a powerless person can find to make everybody else look away from his shame. The wish is not to die, but to hide.
+ - The old tale of Sleeping Beauty might end happily in French or English, but he was in Russia, and only a fool would want to live through the Russian version of any fairy tale.
+ - Welcome to the human race. Nobody controls his own life, Ender.
+ - The world was full of locked doors, and he had to get his hand on every key.
+ - There’s only one thing that will make them stop hating you. And that’s being so good at what you do that they can’t ignore you.
+ - As long as you keep getting born, it’s alright to die some times.
+ - It’s the teachers, they’re the enemy. They get us to fight each other, to hate each other.
+ - If a pig goes upon the threshing-floor, or a field, or a garden, and the owner of the meadow, or the field, or the garden smites it so that it die, he shall give it back to its owner; but if he does not give it back, he becomes a thief.
+ - Just because the only way you can maintain control over your bodily passions is to sit straight in your chair, knees together, hands delicately arranged in our lap, fingers tightly intertwined, does not mean that I am required to do the same.
+ - Good people do not let others suffer needlessly.
+ - Good people can’t out-think evil, cause evil thinks of things good folks can’t think of.
+ - The priests say that God created our souls, and that just puts us under the control of another puppeteer. If God created our will, then he’s responsible for every choice we make.
+ - I think you don’t grow up until you stop worrying about other people’s purposes or lack of them and find the purposes you believe in for yourself.
+ - Aw, Poke, you poor, kind, decent, stupid girl. You saved me and I let you down.
+ - All is going well, very well, I couldn’t ask for anything better – So why do I hate my life?
+ - She worked her toes into the sand, feeling the tiny delicious pain of the friction of tiny chips of silicon against the tender flesh between her toes. That’s life. It hurts, it’s dirty, and it feels very, very good.
+ - There’s no need to legalize gay marriage. I have plenty of gay friends who are committed couples; some of them call themselves married, some don’t, but their friends treat them as married. Anybody who doesn’t like it just doesn’t hang out with them.
+ - He could see Bonzo’s anger growing hot. Hot anger was bad. Ender’s anger was cold, and he could use it. Bonzo’s was hot, and so it used him.
+ - Maybe that’s all demons ever are. People like us, doing things without even knowing what we’re doing.
+ - You’re not a human being until you value something more than the life of your body. And the greater the thing you live and die for the greater you are.
+ - History is an omlette. THe eggs are already broken.
+ - He would always speak the language of the heart with an awkward foreign accent.
+ - Whenever the law gets its hands on you, those who use the law to their own advantage will also turn it against you. Don’t put your trust in the laws of men, Alvin. They were designed by strong men to improve their power over weaker ones.
+ - The best thing about my job, though, is stopping at the end of the day and rejoining the human universe.
+ - A rustic setting always suggests fantasy; to suggest science fiction, you need sheet metal and plastic. You need rivets.
+ - Order and disorder’, said the speaker, ’they each have their beauty.
+ - My hands are clean, but not because I wasn’t prepared to bloody them.
+ - The only people who ever prize purity of ignorance are those who profit from a monopoly on knowledge.
+ - We thought we were the only thinking beings in the universe, until we met you, but never did we dream that thought could arise from the lonely animals who cannot dream each other’s dreams.
+ - No human being, when you understand his desires, is worthless. No one’s life is nothing. Even the most evil of men and women, if you understand their hearts, had some generous act that redeems them, at least a little, from their sins.
+ - Who would I be, if other good souls did not make up for my shortcomings?
+ - It is a weak man who blames his failures on the strength of others.
+ - We care about moral issues, nobility, decency, happiness, goodness – the issues that matter in the real world, but which can only be addressed, in their purity, in fiction.
+ - My own feeling is that human happiness is a very random thing, and bestows itself willy-nilly, and there’s not much deserving about the matter.
+ - For children love is a feeling; for adults, it is a decision. Children wait to learn if their love is true by seeing how long it lasts; adults make their love true by never wavering from their commitment.
+ - Personal humiliation was painful. Humiliation of one’s family was much worse. Humiliation of one’s social status was agony to bear. But humiliation of one’s nation was the most excruciating of human miseries.
+ - We don’t read novels to have an experience like life. Heck, we’re living lives, complete with all the incompleteness. We turn to fiction to have an author assure us that it means something.
+ - That’s the problem with winning right from the start, thought Ender. you lose friends.
+ - Let me be loved like that, by a man who will not replace me with concubines when I’m old and ugly. Let me be loved by a man who loves God more than me.
+ - Rumors are the sauce of a dry life.
+ - You who speak languages, you are such liars.
+ - Take me home, he said silently to Graff. In my dream you said you loved me. Take me home.
+ - The only teacher that’s worth anything to you is your enemy.
+ - I wonder sometimes if the motivation for writers ought to be contempt, not admiration.
+ - Ho said, ‘I do not grieve because my feet have been cut off. I grieve because a precious jewel is dubbed a mere stone, and a man of integrity is called a deceiver. This is why I weep.’
+ - No book, however good, can survive a hostile reading.
+ - Darkness bound them closer than light.
+ - He jumped at the Giants face, clambered up his lip and nose, and began to dig in the Giant’s eye.
+ - The only true vision comes not from God but from the inmost recesses of the human mind.
+ - I buy way too many books.
+ - Don’t win loyalty, just obedience, and only while the lash is in the room.
+ - I merely observe that all living things are manipulated. As long as there is a will, it is bent and twisted constantly. Only the dead are allowed the luxury of freedom, and then only because they want nothing, and therefore can’t be thwarted.
+ - I’ve learned much, Father, and this above all: that no station in life is above any other, if it’s occupied by someone with a good heart.
+ - Nature can’t evolve a species that hasn’t the will to survive. Individuals might be bred to sacrifice themselves, but the race as a whole can never cease to exist.
+ - We were all fated to die, and so it is good that at least we can be sure our deaths today might bring about a good end, might make the world a better place.
+ - The lives of all people flow through time, and, regardless of how brutal one moment may be, how filled with grief or pain or fear, time flows through all lives equally.
+ - If he was a good man, how could he leave me? So he must not be a good man. But if he isn’t good, then why does it hurt so much to lose him?
+ - Even the most introverted person alive is constantly hungry for human association.
+ - A regime that wraps itself in the flag of truth fears truth most of all, for if its story is falsified to the slightest degree, its authority is gone.
+ - A duel is just two murders who agree to take turns trying to kill each other.
+ - I will love you forever, he thought. I am lying, he thought, and this time he was right.
+ - Regardless of law, marriage has only one definition, and any government that attempts to change it is my mortal enemy. I will act to destroy that government and bring it down.
+ - Death is not a tragedy to the one who dies; to have wasted the life before that death, that is the tragedy.
+ - The education that prepared me was my general education classes, which I tried to avoid when I was a stupid undergraduate, but which gave me the foundation of general knowledge that makes a career as a writer possible.
+ - Today, Mr. Darcy is a vampire.
+ - None of us could be happy for long, doing nothing.
+ - One judge is coughing his life out into bloody handkerchiefs and the other is burying his wife, and you think this is how God answers your prayers?
+ - The lies we live will always be confessed in the stories that we tell.
+ - In all my study of history, I have never found a time or place I would rather have lived than now.
+ - It’s simple. Nothing exists except in relation to something else.
+ - Human beings do metamorphose. They change their identity constantly. However, each new identity thrives on the delusion that it was always in possession of the body it has just conquered.
+ - Ender didn’t like fighting. He didn’t like Peter’s kind, the strong against the weak, and he didn’t like his own kind either, the smart against the stupid.
+ - Knowledge is just opinion that you trust enough to act upon.
+ - He is dead, she thought bitterly, because we have forgotten him.
+ - One bachelor is an irritation. Ten thousand bachelors are a war.
+ - Human: That’s stupid. Isn’t there grass on both sides?
+ - I listen to music constantly while writing.
+ - The funny thing was, you see, that Mike Fink didn’t think of himself as a murderer. He thought of life as a contest, and dying was what happened to those who came out second best, but it wasn’t the same as murder, it was a fair fight.
+ - If you listen very carefully, you can hear the good fairy come in the night and leave our assignment for tomorrow.
+ - Good people aren’t good because they never cause harm to others. They’re good because they treat others the best way they know how, with the understanding that they have.
+ - Fiction, because it is not about somebody who actually lived in the real world, always has the possibility of being about oneself.
+ - But the truth is that no person ever understands another, from beginning to end of life, there is no truth that can be known, only the story we imagine to be true, the story they really believe to be true about themselves; and all of them lies.
+ - The most important training, though, is to experience life as a writer, questioning everything, inventing multiple explanations for everything. If you do that, all the other things will come; if you don’t, there’s no hope for you.
+ - Religion is tied to the deepest feelings people have. The love that arises from that stewing pot is the sweetest and strongest, but the hate is the hottest, and the anger is the most violent.
+ - I’ve watched through his eyes, I’ve listened through his ears, and I tell you he’s the one.
+ - Every day people judge all other people. The question is whether they judge wisely.
+ - The opposite of the happy ending is not actually the sad ending-the sad ending is sometimes the happy ending. The opposite of the happy ending is actually the unsatisfying ending.
+ - It’s called civilization. Women invented it, and every time you men blow it all to bits, we just invent it again.
+ - People love to hear the brag of the local boy, because they want him to be great, but the foreigner must deny that he has any outstanding virtue – this is what will endear him to the locals.
+ - Unfortunately, we live in a time when the media are almost a monoculture.
+ - Short stories are designed to deliver their impact in as few pages as possible. A tremendous amount is left out, and a good short story writer learns to include only the most essential information.
+ - To have a choice at all is to be free – even when the choice is between two terrible things.
+ - And enough for me that when my hand touched your shoulder, you leaned on me; and when you felt me slip away, you called my name.
+ - I don’t believe that there are aliens. I believe there are really different people.
+ - When you have wisdom that another person knows that he needs, you give it freely. But when the other person doesn’t yet know that he needs your wisdom you keep it to yourself. Food only looks good to a hungry man.
+ - When I write fiction, I create characters whose views are not my own, and I allow them to be eloquent in defense of their, not my, views.
+ - It is the essence of dignity to pretend to desire what you cannot prevent.
+ - Thank God for you, Ender. Thank God.
+ - The only people who think children are carefree are the ones who’ve forgotten their own childhood.
+ - Where loyalty bound creatures together, they became something larger, something new and whole and inexplicable.
+ - Before we are citizens, we are children, and it is as children that we come to understand freedom and authority, liberty and duty.
+ - Where do you draw the line between a humble man who knows his own weaknesses but tries to act out virtues he hasn’t quite mastered yet, and a proud man who pretends to have those virtues without the slightest intention of acquiring them?
+ - I stole their future from them; I can only being to repay by seeing what I can learn from their past.
+ - Laws against homosexual behavior should remain on the books.
+ - Some men are great enough that they can love a whole woman, and not just part of her.
+ - Knowing something may be a terrible burden to bear, but it holds no danger to them as aren’t afraid of truth.
+ - If the other fellow can’t tell you his story, you can never be sure he isn’t trying to kill you.
+ - War was never so careful as to inflict suffering only where it was merited.
+ - His vices were the vices of his time and culture, but his virtues transcended the milieu of his life.
+ - I don’t know why people who got what they need to be happy don’t just go ahead and be happy.
+ - What else should you be? Human beings didn’t evolve brains in order to lie around on lakes. Killing’s the first thing we learned. And a good thing we did, or we’d be dead, and the tigers would own the earth.
+ - Perhaps every writer who thoroughly creates a fictional world will inevitably create a mirror of his own time and yet also create a world that no one else but him has ever visited...
+ - Science fiction is about what could be but isn’t; fantasy is about what couldn’t be.
+ - When I am drunk I am at my best. It is the national knack of the French.
+ - It’s all just fictions anyway. We do what we do and then we make up reasons for it afterward but they’re never the true reasons, the truth is always just out of reach.
+ - Please don’t disillusion me. I haven’t had breakfast yet.
+ - If only we were wiser or better people, perhaps the gods would explain to us the mad, unbearable things they do.
+ - Isn’t that what it means to be civilized? That you can wait to get what you want?
+ - Ender understood more than she said. Manipulation of gravity was one thing; deception by the officers was another; but the most important message was this: the adults are the enemy, not the other armies. They do not tell us the truth.
+ - If you lay a hand on me I’ll ram your testicles so far up inside your abdomen it’ll take a heart surgeon to get them out.
+ - When have you ever seen someone who had no doubts who was also correct about anything?
+ - It just gripes me hollow, the way God always sneaks in to take the credit.
+ - Oops, I thought. Oops is an all-purpose word standing for every bit of profanity, blasphemy, and pornographic and scatological execration I could think of.
+ - I’m never impossible. The most I ever allow myself is to be somewhat unlikely.
+ - But I fear that I also underestimate the stupidity of the rest of mankind. Are we absolutely sure that we ought to win this war?
+ - I want to be the kind of boy you are, thought Bean. But I don’t want to go through what you’ve been through to get there.
+ - Ulysses, obviously. It was an elaborate prank, and our supposed intellectual elite continue to fall for it.
+ - The most noble title any child can have, Demosthenes wrote, is third.
+ - Debased men, but they all had something in common: They showed a keen regard for virtue, and tried to dress themselves in that costume. Hypocrisy, for all its bad reputation, at least showed a decent respect for goodness.
+ - You take a step, then another. That’s the journey. But to take a step with your eyes open is not a journey at all, it’s a remaking of your own mind.
+ - The dreamers always seem to think their dream is worth the price that other people will pay. They also delude themselves that they will control whatever evil they use to try to bring about their dream.
+ - He is dangerous, he is beautiful, I could drown in his understanding.
+ - My favourite all-time work of fiction: Lord of the Rings. My favourite all-time nonfiction book: Guns, Germs, and Steel. Ask me again next week, you’ll get a different answer.
+ - All the stories are fictions. What matters is which fiction you believe.
+ - Once you have the gallows, you’ll find new reasons to hang people from it.
+ - The only process you’ve mastered is the process of elimination, and the only reason you’ve mastered that is because you can do it in the toilet.
+ - As he thought of it, though, he could not imagine what “just living” might actually be. He had never done it in his life. But he wanted to do it anyway.
+ - What you are is a man who means to be good, and undo the bad he’s done, and that’s as good as any man ever gets.
+ - You spend your whole life grieving for those who haven’t died yet.
+ - A man always assumes that others are as virtuous as himself.
+ - Since when do you have to tell the enemy when he has won.
+ - I’m right here. This is who I really am. I’m not pretending.
+ - The story itself, the true story, is the one that the audience members create in their minds, guided and shaped by my text, but then transformed, elucidated, expanded, edited, and clarified by their own experience, their own desires, their own hopes and fears.
+ - The story is one that you and I will construct together in your memory. If the story means anything to you at all, then when you remember it afterward, think of it, not as something I created, but rather as something that we made together.
+ - The great forces of history were real, after a fashion. But when you examined them closely, those great forces always came down to the dreams and hungers and judgments of individuals.
+ - I’ve seen Australia and I’ve lived on an asteroid and I’d take the asteroid.
+ - With false names, on the right nets, they could be anybody. Old men, middle-aged women, anybody, as long as they were careful about the way they wrote. All that anyone would see were the words, their ideas. Every citizen started equal, on the nets.
+ - Well, how do I know that they don’t know the answer unless I ask?
+ - I realized that everything important in sci-fi showed up in the magazines first. It’s the proving ground for new writers and new ideas.
+ - We spend our lives guessing at what’s going on inside everybody else, and when we happen to get lucky and guess right, we think we ‘understand.’ Such nonsense. Even a monkey at a computer will type a word every now and then.
+ - The Maker is the one who is part of what he makes.
+ - I don’t know a soul who doesn’t maintain two separate lists of doctrines the ones that they believe that they believe; and the ones that they actually try to live by.
+ - So I want to ask you a hypothetical question. My favorite kind. Next to rhetorical ones. I can nap equally well through either kind.
+ - I don’t care how much you eat, Ender, self-cannibalism won’t get you out of this school.
+ - Withholding a decision is a decision.
+ - Quing-Jao: I am a slave to the gods, and I rejoice in it. Jane: A slave who rejoices is a slave indeed.
+ - I’ve got a pretty good idea what children are, and we’re not children. Children can lose sometimes, and nobody cares.
+ - It’s as if every conversation with a woman was a test, and men always failed it, because they always lacked the key to the code and so they never quite understood what the conversation was really about.
+ - And then he thought: Is this how idiots rationalize their stupidity to themselves?
+ - You accomplish exactly as much as the people who serve you decide you’ll accomplish and nothing more.
+ - Ender nodded. It was a lie, of course, that it wouldn’t hurt a bit. But since adults always said it when it was going to hurt, he could count on that statement as an accurate prediction of the future. Sometimes lies were more dependable than the truth.
+ - When both parties are lying and they both know the other party’s lying, it comes powerful close to being the same thing as telling the truth.
+ - It has been my experience that the better a man you are, the more folks there are who resent you for it, and find occasion to get angry at you no matter how kindly meant your deeds may be.
+ - The Lord took twice the time making thee, Alvin Smith, cause it took that long to put the mischief in.
+ - There is more good writing and good acting in any ten minutes of Twister than in, say, all of Citizen Kane.
+ - For it is in the millions of small melodies that the truth of history is always found, for history only matters because of the effects we see or imagine in the lives of the ordinary people who are caught up in, or give shape to, the great events.
+ - We need a Napoleon. An Alexander. Except that Napoleon lost in the end, and Alexander flamed out and died young. We need a Julius Caesar, except that he made himself a dictator, and died for it.
+ - Love is random; fear is inevitable.
+ - The worst thing about the fantasies of the mentally ill is that they’re so damned consistent. They never let up. They never give you any rest.
+ - I own the whole world, and folks haven’t been keeping up too well on the payments.
+ - Maybe she couldn’t know who she was today. Maybe it was enough to know that she was no longer who she was before.
+ - My college training was primarily in theatre, with an eye to becoming a director, actor, or producer.
+ - Working is hard and distracts from having fun.
+ - Of course, I also hear from critics who detest what I do, and while sometimes I feel rather proud of having made various the loathsome people or groups angry, at other times I wonder why I put up with such grief.
+ - Into the the air, into the earth, into the fire, I am with you.
+ - Everybody walks past a thousand story ideas every day.
+ - It wasn’t so bad being a slave when your owner was yourself and stood up for you.
+ - In a way she actually preferred Peter to other people because of this. He always acted out of intelligent self-interest.
+ - I have lived in the only decades I could have lived in, and hope to live through at least a few more.
+ - There is a myth that homosexuals are ‘born that way,’ and we are pounded with this idea so thoroughly that many people think that somebody, somewhere, must have proved it.
+ - Asking a man if he could be trusted was like asking an unwed girl if she was a virgin. The question mattered, but the asking of it was gross insult.
+ - Everybody dies. What matters is what you do between now and when it happens to you.
+ - A man who can’t read only knows what other folks tell him.
+ - Sometimes good people have to do terrible things.
+ - When you really know someone, you can’t hate him.
+ - I am especially grateful, however, to have known the fifties, before we began to poison our own civilization – or at least before the effects of the poison began to be felt.
+ - You’re cultural supremacists to the core. You’ll perform your Questionable Activities to help out the poor little piggies, but there isn’t a chance in the world you’ll notice when they have something to teach you.
+ - A character is what he does, yes – but even more, a character is what he means to do.
+ - I doubt that America will come to Europe again. You’ll be on your own against militant Islam.
+ - The fear of death in the one place was not as strong as another kind of fear, the fear of a world gone crazy, a place where anything could happen, where nothing could be trusted, where nothing was certain. A terrible place.
+ - We don’t admit it to ourselves, not until the very moment of death, but in that moment, we see all life before us and we understand how we chose, every day of our lives, the manner of our death.
+ - Home is where the people who live there need me to come home to them, and worry about me when I’m gone. There’s no such place on this earth, no matter how far I drive.
+ - Reasonable argument is impossible when authority becomes the arbiter.
+ - He kissed her and killed her then dumped her body in the river.
+ - Folks always seemed to think that as long as they didn’t know about something bad, it wasn’t happening, so whoever told them actually caused it to be true.
+ - I always tell what I believe. Whether it’s true, I’m no more sure than any man.
+ - I have hope for you, if only because you’re the only one left to hope for.
+ - You will learn to defeat the enemy.
+ - The commercial work of today is the classics of tomorrow.
+ - I always think of books as being like people. Even the dull ones are worthy of decent respect, but you don’t have to seek them out and spend time with them.
+ - If it isn’t a wonderful story first, who cares how “important” it is?
+ - Apparently the Dutch now prided themselves on being better at queues than the English, which was absurd, because standing cheerfully in line was the English national sport.
+ - Religion makes them crazy. Not a woman I ever met wasn’t crazy with religion.
+ - But Father has also taught him: Treat a man as if he had a fine reputation to protect, and he will usually endeavor to deserve it.
+ - This emotion I’m feeling now, this is love, right?
+ - I don’t freeze up because it isn’t my battle. I’m helping. I’m watching. But I’m free. Because it’s Ender’s game.
+ - Once you get a brother, you don’t give him up easy.
+ - What a waste of time to be posthumously famous.
+ - It is the downfall of evil, that it never sees far enough ahead.
+ - Writing sessions can last an hour or sixteen hours, depending on how it’s going.
+ - Maybe we’re the fools, for thinking we know things. Maybe humans are the only ones who can deal with the fact that nothing can ever be known at all.
+ - When you walk on the face of a world, then forgiveness comes.
+ - I am a creature of chemicals.
+ - The society whose citizens are willing to stand and fight is the one with the best chance of surviving long enough for history to even notice.
+ - With life. Rooter says that life is how God gives purpose to the universe.
+ - The ways of love are strange and hard: The love you want is always barred; The love you have you want to change. The ways of love are hard and strange.
+ - Life is full of grief, to exactly the degree we allow ourselves to love other people.
+ - How clever of me. I have found such a pathway into hell that I can never get back out.
+ - It’s the middle class that feels the luxury of being able to have causes.
+ - Oh no, real life is escape. The great terrors, the horrors – we hope – of your life come from reading fiction.
+ - I always tell the truth about what I’m selling, and then nobody buys it.
+ - You can’t answer what I said, so you’re going to talk about my saying it.
+ - When there aren’t any smart decisions, I suppose you just have to pick the stupid decision you like best.
+ - If you read to your kids you’ll make readers out of them, partly because they’ll associate reading with good parent time.
+ - It is possible to have words come to your mind, and still refrain from speaking them aloud.
+ - Peter, you’re twelve years old. I’m ten. They have a word for people our age. They call us children and they treat us like mice.
+ - Sometimes happiness consists of finding the right balance of misery.
+
+344 quotes

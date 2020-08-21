@@ -1,0 +1,54 @@
+ - Let me hear your body talk.
+ - I love you. I honestly love you.
+ - I do have high standards, but I don’t expect anything from anyone that I don’t expect from myself.
+ - Family, nature and health all go together.
+ - I look at my cancer journey as a gift: It made me slow down and realisethe important things in life and taught me to not sweat the small stuff.
+ - I live every day to its fullest extent and I don’t sweat the small stuff.
+ - Fight each round take it on the chin. And never never never ever give in.
+ - I love animals. They give so much to you and demand so little. And you can trust them.
+ - Cancer got me over unimportant fears, like getting old.
+ - I don’t know what my path is yet. I’m just walking on it.
+ - Breast Cancer is not necessarily a death sentence, stay strong and centered and be involved in all aspects of your treatment.
+ - Once you face your fear, nothing is ever as hard as you think.
+ - I love life and nothing intimidates me anymore.
+ - I believe love is what makes the world go round. No matter how old or young, love is why we are here. It is the very essence of one’s being...
+ - I keep a diary when I have time to. I always know that I’m either having a great time or I’m very busy when there are three weeks of nothing in my diary. But I like to look back because in ten years to the day I can know where I was and what I was doing, and that’s a nice feeling.
+ - I want to get physical, let’s get into physical, let me hear your body talk, your body talk.
+ - I have had someone wonderful things happen to me during my career and lifetime. Of course, personally, the birth of my daughter is the highlight of my life.
+ - I took you to an intimate restaurant, then to a suggestive movie. There’s nothing left to talk about, unless it’s horizontally.
+ - Nature is the most beautiful thing we have. It’s better than art because it’s from the creator.
+ - My memories are inside me – they’re not things or a place – I can take them anywhere.
+ - There’s a rumor going around that I’m Miss Goody-two-shoes from Australia. Well, that’s a laugh. I’m really Miss Goody-two-shoes from England!
+ - I’m an 18-years thriver, I call myself, not a survivor, because I feel like I’m in thriving my life even better than I ever have, and I want to encourage other women that are going through this journey that here I am.
+ - My cancer scare changed my life. I’m grateful for every new, healthy day I have. It has helped me prioritize my life.
+ - I feel so fortunate and grateful to be a survivor of breast cancer. I see it as a gift.
+ - I love that quiet time when nobody’s up and the animals are all happy to see me.
+ - I am not embarrassed to say that when I was at my worst I took anti-depressants because I think people need to hear that. I think if you are in a dark place where you can’t pull yourself out, you may need to ask for help.
+ - As for highlights, of course “Grease” changed my life and I will always be grateful for that experience.
+ - My wish is that all all women age 20 and above perform monthly breast self-examinations.
+ - To me luxury is to be at home with my daughter, and the occasional massage doesn’t hurt.
+ - Singing at the Opening Ceremonies of the Sydney Olympics in 2000 was amazing and, probably the highlight of this decade is the opening of the Olivia Newton-John Cancer and Wellness Centre in my hometown of Melbourne, Australia.
+ - To ‘be loved’ is the most basic of human needs. Like a flower, it waters the human soul. But ‘to love’ is a true blessing.
+ - Nothing I have done professionally will top the feeling I got when singing with John Farnham at the 2000 Olympic Games in Sydney.
+ - For me I have learned to enjoy everything, especially performing live, so much more. I used to get horrible stage fright when I was younger and today and just love to sing for anyone who still turns up at my shows!
+ - I’m happy, and I think being happy keeps you looking young.
+ - Live, love, knowing that we’re all free Now that we are blessed in our country And realise how lucky we are.
+ - I have really been blessed in my career with some wonderful songwriters and in turn, songs.
+ - The Great Walk to Beijing was a fundraiser for my cancer center. It was a three-week trek with fellow cancer thrivers, including celebrities ranging from Joan Rivers to Leeza Gibbons and Olympians.
+ - I simply have a marvellous life, a very lucky life.
+ - There’s a balance in my life, there’s reality and there’s the part that looks really glamorous, but we’re all just people in the end.
+ - The idea is to encourage men to go with their wives and screen. So, if the wife is going to go and do her screening, then the man can go and do his baseline screening, too. Men need to be aware of the health of their bodies, as well – prostate cancer and breast cancer are almost on the same level.
+ - It’s very hard to get good songs because a lot of writers record their own; they keep the best for themselves.
+ - As for the industry, it has certainly changed. I think with all of these television shows and YouTube and the internet, you have so much less time to develop as an artist and perfect your craft. So many things today are “instant” and, that’s not always a good thing.
+ - When you have a cavity in your tooth and you let it get worse, eventually you have to get a root canal. If you have something that isn’t right, the earlier you treat it the easier the treatment is going to be. That’s kind of common sense.
+ - We women should remember that we are much more than just breasts.
+ - I really love performing with an orchestra and am very excited to do so with the Kalamazoo Symphony.
+ - I would not be comfortable appearing in a country where they have permitted the destruction of such beautiful and intelligent animals.
+ - I live my life in gratitude.
+ - I think that I’ve always been on a search. I have my own kind of belief in love is the being, but I think that I’ve always been searching for truth and I think there’s lots of truths and I think we should respect that in each other, and that’s really what I wanted to bring across.
+ - I love to design and remodel houses, from working with the contractors to picking the colours, materials, kitchen and bathroom accessories to finally what furniture goes where.
+ - I love clothes. I don’t know a woman who doesn’t. But generally women are intrigued with fashion. Designers are almost making fun of us at times.
+ - The only weights I lift are my dogs.
+ - I love to make stories out of license plates on cars about the initials and the numbers – my mum used to do that with me.
+
+52 quotes

@@ -1,0 +1,23 @@
+ - Gratitude is the intention to count-your-blessings every day, every minute, while avoiding, whenever possible, the belief that you need or deserve different circumstances.
+ - Compassion is the intention to see each human being as no better or worse than yourself, neither more nor less important, and as fundamentally similar to yourself.
+ - I buy my Avengers tickets. But I think people are going to really get into seeing this other side of the world.
+ - I mean Dark Phoenix series, the way it was done, they didn’t do it justice in the past movies, in my personal opinion. I just like the X-Men universe.
+ - Peter Parker has superpowers, but he still has trouble making rent every month. I identify with that in a way that I don’t with, like, Superman, for instance. He’s just less interesting because he’s too perfect.
+ - You can resent your bald spot or be glad you have a head.
+ - Attention is the intention to live without reservation in the here-and-now.
+ - You’d think I’d be more comfortable with the action, but actually I’m more comfortable with the drama. I mean you get more instant feedback on what you are seeing and you know if it’s working or it’s not working.
+ - Honestly, the most uncomfortable thing for me is my level of incompetence is uncomfortable.
+ - To be on set every day with a whole bunch of people that know their job and my job a lot better than I do and I’m supposed to tell them what to do, that’s very uncomfortable and awkward.
+ - I function better in an atmosphere of inner insecurity and fear.
+ - I think actors, they maybe want more approval than I’m used to giving. Everybody does. Everybody needs a hug you know, all the time. I’m not very good at that. I could get better at that.
+ - There’s a little burst of creativity being director followed by lots and lots of meetings and talking to people and more meetings. It’s scary. And I can’t believe anybody actually lets me do it. But it’s going well so far.
+ - Marvel does a great job of making their characters human.
+ - I don’t want to make a movie for 100,000 fans that nobody else in the world sees, because I don’t think that’s good for the character.
+ - I think if you do what I want to do creatively, it will also make money for you.
+ - Being an animator, and I’ve directed tons of mo-cap, which really is about how do characters move through space.
+ - I think people moving through space and the way they say lines, it’s a puzzle to be solved every time. But there’s a right way to do it that feels natural. And it’s just kind of finding that right thing.
+ - I got into comics on John Byrne’s run of the X-Men and the Dark Phoenix Saga. I got in around X-Men 95, right when it turned to the new X-Men. So that whole family, all those characters are kind of my favorite characters, just the X-Men world.
+ - As a first time director it’s interesting, but not all that different from what I did before. A lot of parts of this job seem to be very similar to running a big company.
+ - I’m definitely not afraid to be wrong.
+
+21 quotes

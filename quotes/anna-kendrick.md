@@ -1,0 +1,63 @@
+ - I like my men like I like my coffee. Silent.
+ - It’s cute how I used to think this ‘barely holding it together’ feeling was temporary.
+ - I like to think of myself less like ‘an adult’ and more like a ‘former fetus.’
+ - Sometimes I think, I need to think before I speak. And then other times I think, I shouldn’t leave the house or interact with people ever.
+ - You listen to your favorite song just until you’re almost getting sick of it, and then it’s so fun to rediscover it after a couple of months.
+ - An actor should always let humility outweigh ambition.
+ - Sometimes the best part of my day is imagining what I’m gonna eat when I get off work.
+ - I’m so humble it’s crazy. I’m like the Kanye West of humility.
+ - If I die unexpectedly can everyone just do the right thing and pretend I was a way better person than I am?
+ - When you first saw ‘The Truman Show,’ did anyone else walk around for the next week not picking your nose just in case?
+ - With any other movie, you’re entering new territory, so it’s quite different to be involved in something where it’s the same characters, and the same people.
+ - I feel like if it’s not scaring you, you’re doing it wrong.
+ - If I see a chapstick that I’ve never tried, I have to buy it. And then once that door’s been opened, I have to check the whole store to see if there are more chapsticks that I don’t have.
+ - I shouldnt leave the house or interact with people ever.
+ - I feel love for people that I have loved and I think that’s so beautiful and I think that’s such an important lesson for children that people can have disagreements but it doesn’t mean one is bad and one is good.
+ - I’m a big fan of ‘30 Rock,’ which I think is the most genius show on television.
+ - I rarely get recognised. It’s always a shock when someone notices me. I always think they must be confusing me with someone else.
+ - This isnt the time to make hard and fast decisions, this is a time to make mistakes. Take the wrong train and get stuck somewhere. Fall in love, a lot. Major in philosophy, because theres no way to make a career out of that. Change your mind and change it again, because nothings permanent.
+ - My goal all along has just been to work and support myself. I’ve been really lucky to walk away from the ‘Twilight’ series unscathed. Somebody asked me recently what it’s like to be a star. I thought that was the strangest question. If you saw my day-to-day life, the word ‘star’ just doesn’t apply.
+ - If you tell a guy you don’t like being tickled and he tickles you anyway, that’s a red flag.
+ - I can’t cook to save my life but I can bake a flour-less chocolate-hazelnut tort with a spicy caramel sauce.
+ - We should be thanking Apple for launching the $10,000 ‘apple watch’ as the new gold standard in douchebag detection.
+ - The most frustrating things is when you read something that has so much potential, but there are other little red flags where you think, I don’t know that I would see eye-to-eye with the people making this film. And that is the worst environment to enter, and absolutely not worth the risk.
+ - Humility was an important part of the way I grew up. And I found that to be less common when I moved to California. That’s not to say humble people don’t exist there, but ambition seems really important.
+ - I had a confusing relationship with my Barbies, but I love trolls. I tortured my Barbies.
+ - I think a gentleman is someone who holds the comfort of other people above their own. The instinct to do that is inside every good man, I believe. The rules about opening doors and buying dinner and all of that other ‘gentleman’ stuff is a chess game, especially these days.
+ - To not be self-conscious of your appearance is huge, and something that I desperately hope to carry into film at some point in my useless life – to not be thinking, ‘My ear looks weird from this angle, why is the camera over there?’
+ - People like to make fun of the fans who camp out but people have renaissance fairs; people do Civil War re-enactments; people do what they like. I’m tired of hearing people rage on the fans. If you don’t like ‘Twilight,’ don’t buy a ticket.
+ - Can we drop the pretense of Presidents Day and just call it I needed a long weekend because Valentines Day is garbage.
+ - I graduated from high school early so I could move to New York to do ‘A Little Night Music’ out of the New York City Opera.
+ - I happen to be a huge ‘Lord of the Rings’ fan. I do an annual marathon of the extended editions.
+ - My mom was always a fan of just really elegant, sophisticated pieces. I mean we grew up in Maine, so we didn’t have a lot of call for black tie or anything, but I think I definitely got that sensibility from her.
+ - If a guy was like, ‘Let me serenade you,’ and it was bad, and I had to lie about it – can’t have it.
+ - My family has had to become quite understanding about me not returning phone calls when I’m filming.
+ - I’m into ‘The Walking Dead,’ ‘Shaun of the Dead,’ obviously, and I’ve seen all the Romero movies. I am a classic zombie queen. And I love the White Walkers on ‘Game of Thrones.’ Weirdly, it wasn’t until pretty late in life that I found my entry point into horror films.
+ - There’s always moments where you creep yourself out, and you think you heard something and you convince yourself that some spirit is in the room with you, but truly, I don’t believe in any of that kind of thing. A lot of my friends really do.
+ - My parents got married late and they had kids late, so I never felt a social or cultural thing to be married or pregnant or a homeowner by a certain age.
+ - The music industry seems scary to me. I mean the film industry is crazy enough so the music industry to me seems like the wild, wild West. Like I would just never dare.
+ - I don’t usually drink caffeine so that when I need it, it actually does something.
+ - I think there are rock stars within every subgenre, and for people who are obsessed with musical theater Sutton Foster and Audra MacDonald are like Beyonce to them. I’m sure the a cappella world has their own version of that, and that exists in every geeky subculture.
+ - I stole comic books from my brother when I was a kid, but I was never like an avid fan. I can’t claim to be like a comic book geek.
+ - The consummate gentleman on the planet today is George Clooney, who never fails to go the extra mile for people. Every person matters to George.
+ - You can’t tell an audience to like a character. And I think the best way to get the audience on someone’s side is to embarrass them.
+ - I’m a pretty big dork. It’s crazy. I’m one of those people who grew up with all kinds of musicals, but I was right at that age where ‘Rent’ was a big deal for me and for my friends.
+ - I feel like people want there to be this mystery between film and theater, but I just kind of went where I got jobs, you know?
+ - I think a good script is a rare thing, and I think no matter who you are you have to fight for the good ones.
+ - I fall in love with characters when they’re out of their element or are uncomfortable and you really feel for them in a knee-jerk sympathetic way.
+ - People who care about celebrity babies are creepy. What will her baby look like?! A baby. Youve seen a baby right? Itll look like that.
+ - I feel like I’m still learning a lot. I think there’s a tendency for people who are just doing their first couple of films that I see now where they seem to be really resentful of the technical limitations that come along with filmmaking.
+ - Nobody pulls a prank like George Clooney.
+ - I get really excited every time there’s a female character who is really strong because a lot of females in film are really soft.
+ - Similarly, I think I’m lucky that I’ve never had a crisis about whether the only reason I’m successful is because I’m crazy hot. It’s not something that crosses my mind.
+ - I like figuring out where I need to be mentally so that I’m not thinking about the camera and that it’s second nature. I want to get to a place where I can exist within the confines of what you can do with filmmaking and not have to think about it.
+ - It’s a lot easier to act when the writing is good. Nothing is more frustrating than trying to figure out ‘Well, why did I say this next?’
+ - I started auditioning when I was about 10 and I didn’t get my first job until I was 12, and two years at that age is really hard.
+ - I like sets that feel small. Sets that feel really big are difficult. When you’re on a big set it feels like there’s constant mis-communication.
+ - There have definitely been more than a few moments in my life where I’m wondering where the next paycheck will come from and how I’m gonna pay rent.
+ - I’m the person who wouldn’t send back my food even if I got steak when I’d ordered fish.
+ - I guess as long as people think of me for different ages, I’ll trust their opinion. I remember noticing one year that Michelle Monaghan played 34 and 19, so I’ve kind of clung to that as my justification that I can be Jake Gyllenhaal’s wife and a freshman in college in the same year.
+ - I remember hearing once that good girls don’t get caught. I think that’s sort of a lot of what my teen years were like.
+ - I was at awards shows and felt really lost so it was good to play someone who was really lost.
+
+61 quotes

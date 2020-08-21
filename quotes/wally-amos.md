@@ -1,0 +1,28 @@
+ - The thing is not to leave unfinished business; make every day count.
+ - Nothing is an obstacle unless you say it is.
+ - You can make your life whatever you want it to be.
+ - It’s so important to believe in yourself. Believe that you can do it, under any circumstances. Because if you believe you can, then you really will. That belief just keeps you searching for the answers, and then pretty soon you get it.
+ - Life is just a mirror, and what you see out there, you must first see inside of you.
+ - You may not be responsible for getting knocked down. But you’re certainly responsible for getting back up.
+ - Commitment is the match that lights the fire.
+ - Remember that everything starts with a thought and thoughts produce in kind.
+ - There are two reasons why people fail. One is irresponsibility. The second is fear.
+ - Life truly is a journey, and the less baggage we carry the easier the ride.
+ - It doesn’t matter how many say it cannot be done or how many people have tried it before; it’s important to realize that whatever you’re doing, it’s your first attempt at it.
+ - It’s vital to be growing through your life rather than going through your life. The object is not to change other people or situations; it’s to do the inner work they stimulate.
+ - For me, giving thanks is a sign of appreciation and gratitude that also brings about a deep sense of peace.
+ - I believe, along with many others, that you must first ask for what you want before you can have it.
+ - Email is the greatest thing.
+ - Be clear about what you want to accomplish, and whether the circumstances surrounding you are actively helping you toward the goal.
+ - Respect yourself as well as others; make commitments, not excuses, and make every day a fun day.
+ - I lost a company. So what? It’s just stuff. Can’t take it with you.
+ - We are so focused on the material aspects of life that we lose sight of everything else.
+ - Many who resort to crime ultimately can’t read or write.
+ - Each year I become more mindful of being thankful for each life experience.
+ - I think the kazoo and chocolate-chip cookies have a lot in common. All you need is a mouth to appreciate either one.
+ - Computers are everywhere and you can’t even begin to function with a computer unless you have comprehension and an understanding of the English language.
+ - Making mistakes doesn’t mean that what you did was a failure, or the wrong take. It was just a ‘mis-take.’ You need to go back and do another take. In each take there is a lesson.
+ - In some areas I am more noted for reading then I am for cookies!
+ - If you focus on only the seeds in a watermelon, you missed the sweetness of the meat.
+
+26 quotes

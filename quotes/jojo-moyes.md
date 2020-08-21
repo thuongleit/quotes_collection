@@ -1,0 +1,49 @@
+ - You only get one life. It’s actually your duty to live it as fully as possible.
+ - Push yourself. Don’t Settle. Just live well. Just LIVE.
+ - Just live well. Just live.
+ - You can only actually help someone who wants to be helped.
+ - I hadn’t realized that music could unlock things in you, could transport you to somewhere even the composer hadn’t predicted. It left an imprint in the air around you, as if you carried its remnants with you when you went.
+ - You know, you spend your whole life feeling like you don’t quite fit in anywhere. And then you walk into a room one day, whether it’s at university or an office or some kind of club, and you just go, ‘Ah. There they are.’ And suddenly you feel at home.
+ - I will never, ever regret the things I’ve done. Because most days, all you have are places in your memory that you can go to.
+ - I know this isn’t a conventional love story. I know there are all sorts of reasons I shouldn’t even be saying what I am. But I love you. I do. I knew it when I left Patrick. And I think you might even love me a little bit.
+ - Sometimes, Clark, you are pretty much the only thing that makes me want to get up in the morning.
+ - Real friends were the kind where you pick up where you’d left off, whether it be a week since you’d seen each other or two years.
+ - Know that you hold my heart, my hopes, in your hands.
+ - Try to write at least 500 words a day. You may ditch 499 of them tomorrow, but you will still be moving forward.
+ - And it was suddenly very simple: There was no choice.
+ - So this is it. You are scored on my heart, Clark. You were from the first day you walked in, with your ridiculous clothes and your bad jokes and your complete inability to ever hide a single thing you felt.
+ - Sometimes life is a series of obstacles, a matter of putting one foot in front of the other. Sometimes, she realizes suddenly, it is simply a matter of blind faith.
+ - I let him know a hurt had been mended in a way that he couldn’t have known, and for that alone there would always be a piece of me indebted to him.
+ - Astonishingly, not all girls get dressed just to please men.
+ - We are all part of some great cycle, some pattern that it was only God’s purpose to understand.
+ - But just as nature abhors a vacuum – so does the human heart.
+ - I realized I was afraid of living without him. How is it you have the right to destroy my life, I wanted to demand of him, but I’m not allowed a say in yours? But I had promised.
+ - I worked out what would make me happy, and I worked out what I wanted to do, and I trained myself to do the job that would make those two things happen.
+ - If all we are allowed is hours, minutes, I want to be able to etch each of them on to my memory with exquisite clarity so that I can recall them at moments like this, when my very soul feels blackened.
+ - There is a whole lot more to life than winning.
+ - I thought, briefly, that I would never feel as intensely connected to the world, to another human being, as I did at that moment.
+ - The only thing Jess really cared about were those two children and letting them know they were okay. Because even if the whole world was throwing rocks at you, if you had your mother at your back, you’d be okay. Some deep-rooted part of you would know you were loved. That you deserved to be loved.
+ - There is a hunger in you. A fearlessness. You just buried it, like most people do.
+ - All that counts is the truth. Without it you’re basically just juggling people’s daft ideas.
+ - There are normal hours, and then there are invalid hours, where time stalls and slips, where life – real life – seems to exist at one remove.
+ - Do you know how hard it is to say nothing? When every atom of you strains to do the opposite? I had practiced not saying anything the whole way from the airport, and it was still nearly killing me.
+ - The thing about being catapulted into a whole new life – or at least, shoved up so hard against someone else’s life that you might as well have your face pressed against their window – is that it forces you to rethink your idea of who you are. Or how you might seem to other people.
+ - Because even if the whole world was throwing rocks at you, if you still had your mother or father at your back, you’d be okay.
+ - Only you, Will Traynor, could tell a woman how to wear a bloody dress.
+ - I was once told by someone wise that writing is perilous as you cannot always guarantee your words will be read in the spirit in which they were written.
+ - How could you live each day knowing that you were simply whiling away the days until your own death?
+ - If I don’t cry while writing a key emotional scene, my gut feeling is it’s failed.
+ - Nobody fights you like your own sister; nobody else knows the most vulnerable parts of you and will aim for them without mercy.
+ - I chose to believe that God, a benign God, would understand our sufferings and forgive us our trespasses.
+ - I held him close and said nothing, all the while telling him silently that he was loved. Oh, but he was loved.
+ - Somewhere in this world is a man who loves you, who understands how precious and clever and kind you are. A man who has always loved you and, to his detriment, suspects he always will.
+ - But don’t blame me for the food. My wife knows a hundred and one ways to incinerate a cow, and as far as I can tell she’s still experimenting.
+ - Sometimes when you get hammered till the small hours you feel pretty good in the morning, but really it’s just because you’re still a bit drunk. That old hangover is just toying with you, working out when to bite.
+ - When you put someone down all the time, eventually they stop listening to the sensible stuff.
+ - That evening she glowed. She gave off a vibration of energy that he suspected only he could detect. Do I do this to you?, he wondered, as he watched her eat. Or is this just the relief of being out from under the forbidden eye of that husband of yours?
+ - How is it possible to exist with so much pain?
+ - She went kind of pink and laughed, the kind of laugh you do when you know yo shouldn’t be laughing. The kind of laugh that spoke of a conspiracy.
+ - He smelt of the sun, as if it had seeped deep into his skin, and I found myself inhaling silently, as if he were something delicious.
+ - Cheap as chips, cheap as chips, it’s a British expression. There’s no couture in their darling.
+
+47 quotes

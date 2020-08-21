@@ -1,0 +1,61 @@
+ - I am blessed beyond belief.
+ - There’s so much more to life than what you’re feeling now.
+ - I’m in my dream world.
+ - Dream as big as you want because they come true everyday.
+ - I grew up in a fun-loving environment – you work hard and play hard.
+ - My dad said ‘When you love what you do, you never work a day in your life,’ and I agree with that.
+ - Anytime I can go fly for a few hours, I go. It’s stressful and stress-relieving at the same time.
+ - The rule of songwriting: say what you want to say, say it again, say it a different way, then say it again.
+ - I love flying planes.
+ - I believe when you meet the right person it clicks, and you both know and you start making it work, you know?
+ - I’m very shy and awkward. I think the best thing is to embrace it. It’s about accepting who you are and what you want to become and knowing all that you’ve got to work with, whether it’s good or bad. My music was the only place I could be me for the longest time.
+ - I was addicted to playing music.
+ - I don’t believe in making a record and rushing it.
+ - I truly believe that when you’ve found the one you’re searching for, you become a better version of yourself. You’re better for it.
+ - My mom makes the best Cajun stuff. I’m a big gumbo guy. I’ve lost a lot of my Louisiana accent, so now when I say ‘gumbo,’ I feel like someone who’s never said the word before.
+ - I want to find someone who’s really into something like I’m really into something, so that I can support them and we can both cheer each other on. I’ve got a lot of dreams I want to achieve, and I hope someone can cheer me on as I’ll cheer them on in their dreams.
+ - A good album can make your day. A great album can change your life.
+ - I love the practicality of a good car. You know what I mean? And when I say ‘practicality,’ I mean the complete practicality of a Ferrari 458, a wonderfully fantastic every day car.
+ - Like a wave on the ocean I will always come right back to you.
+ - At 22, there’s a lot of trying to figure out love, which at the end of the day, I’ve realized I’ll never figure out, though the process of trying is fun.
+ - When I was in high school, I had binders with pictures of tour buses.
+ - The stage is my comfort zone, and playing live is what I’ve always wanted to do. It’s why I want to do two hundred dates a year. I wouldn’t feel that way if I were nervous onstage.
+ - Yes, I did lock myself in my room for about two years and write some songs and things like that. But I don’t feel like I missed out on a whole lot.
+ - Every time I take a photo, it goes into SnapSeed. Even if it’s just a price tag on something, it still goes into SnapSeed, and I start editing it. I’m not a photographer, so I need all the help I can get when it comes to make a picture look cool.
+ - Unfortunately, I’m more experienced than I care to admit on long-distance relationships. Just because that is my life. I travel because I love to. As a result, I have to sort of make it work when a relationship kind of comes into view.
+ - I could be myself. I’m very shy and awkward. I think the best thing is to embrace it.
+ - All the people I hung out with were musicians.
+ - I’ve got some crazy, stupid big goals. I really wanna headline arenas. I wanna have such a big crew that we’ve got to have 20 or 30 buses on the road because that’s how big the show we’re putting on is.
+ - Singing live is my favorite. When people sing along to your songs, the circle is complete.
+ - As a new artist – I don’t care who you talk to – I think everyone would agree, it’s hard to get your expectations right.
+ - When you hear his music, mine will all of a sudden make sense.
+ - To be the name on somebody’s shirt that they’ve made themselves in preparation for one of your shows – it doesn’t get much cooler than that.
+ - I don’t even have a type, I don’t think. My type is just whoever can get along with me.
+ - My first instrument was an accordion. Growing up in Louisiana, my grandmother gave me an accordion because of our Cajun heritage.
+ - I write for myself. I don’t write because I have a record coming out. I write because I want to. I need to.
+ - My favorite song depends on the day, what I’m going through, what I’m feeling.
+ - I always loved LeAnn Rimes and especially Clint Black for his soulfulness. As I’ve gotten older, my influences have broadened – John Mayer, Michael Buble, Stevie Wonder, Keith Urban, Stevie Ray Vaughn, the Beatles – all of these artists have somehow been a part of my development as a songwriter.
+ - When I was 13 or 14, I took seven months off from touring. I did a lot of weekend gigs in Louisiana. We have fairs and festivals every weekend. But I took seven months off. That’s when I really started digging deep. I wrote a couple songs that year that I still play every now and then for people.
+ - I am grateful I got the chance to meet Stevie Wonder! He’s like royalty to me and is one of my biggest inspirations.
+ - Anyone who tells you they’re not nervous playing on the CMAs stage, I’m afraid they’re not telling you the whole story.
+ - I’m a nerd. Total geek. I never went to homecoming or prom or anything.
+ - I don’t have a girlfriend. I don’t know if I have a type, but I really like girls who are driven. I really care about music, so I like it when a girl really cares about something too. Whatever it is they are into, I’ll be their biggest fan.
+ - I just love music gear, I’m a total geek all around.
+ - In any city or town, you can find a good, rocking Italian place. The most unhealthy thing on the menu? I’ll have two of those!
+ - Meeting Stevie Wonder was a massive, lifetime achievement for me. He’s one of the sweetest people. I sense a kindred spirit in him, and I hope he’d say the same. Actually, he did.
+ - Growing up in Louisiana, my grandmother gave me an accordion because of our Cajun heritage. What ended up happening was I started learning about more instruments, so I just kind of went that route. Music’s really all I’ve ever done.
+ - Thank you to country radio for believing in me.
+ - Any time I write a new song, I am jazzed about it for like 24 hours and then I am over it and want to write another one.
+ - I’m not a photographer, so I need all the help I can get when it comes to make a picture look cool.
+ - I used to think there was a scientific way to do things. Like a proper way to answer a question or that kind of stuff. It’s like, there’s not! There’s not a method, there’s not a science to it.
+ - A bass player has to think and play like a bass player. A drummer has to play and think like a drummer, and stay out of the way of the vocalist. The guitar player has to respect everybody else.
+ - I have a string of competitiveness in me. It’s really strange ’cause it’s not something that I would even expect myself to have, but every now and then it kinda sneaks out, you know.
+ - Albums are chapters. They’re part of a story.
+ - All I knew when I moved to Nashville was that I wanted to make music in whatever shape and form I could.
+ - If I could make noise with anything, I was going to.
+ - There’s a lot of people I’d like to write with, like Keith Urban or even as far out as Stevie Wonder.
+ - I am a huge, huge Ronnie Milsap fan. I have been for a long time.
+ - All my band members were old enough to be my dad. It was like this family vibe.
+ - Robert Duvall saw me playing at a restaurant in Louisiana and invited me to be an extra in his movie ‘The Apostle.’ He gave me a guitar for my sixth birthday, and I thought that was the coolest thing in the world.
+
+59 quotes

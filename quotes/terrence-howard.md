@@ -1,0 +1,52 @@
+ - My future’s about trying to be a better man.
+ - You keep knocking on the devil’s door long enough and sooner or later someone’s gonna answer you.
+ - The purpose of my life is being a father to my kids and being a husband to my wife.
+ - In every person we meet there’s this little piece of God in them and that’s who you talk to. And that’s the only person that you allow to talk to you. When something else is speaking, you walk away from that. If it’s not good, if it’s not love, you walk away from it.
+ - If evolution works, why are monkeys still around?
+ - When you feel betrayed by someone that you trust the most, as an actor, you look for something that’s going to let you express some of your inner emotions and anger.
+ - There’s nothing wrong with calling a spade a spade. Some things have to be exposed.
+ - Dating black women will ruin your life.
+ - If you’re not going to do your job, get out of here. Don’t mess up my work. This is how I feed my family.
+ - I’m damn near 37 years old, and I’m jumping up and down on the bed like my 10-year-old. I was a wild man.
+ - I like to watch mankind in its futile attempt to understand the unknown, when they don’t even understand that which they know.
+ - It’s just me and my guitar, and the rhythm’s from there, and the poetry of life.
+ - I want to be the condensation on the glass. I want to be that phenomenon that takes place between hot and cold.
+ - I am an engineer, but what I find important and necessary is that you just learn things as you go along.
+ - I don’t have any love for this business or the game or for acting. This is my day job.
+ - Every little job becomes a dream, and you don’t recall it anymore, and maybe you might have a deja vu moment, but it’s like something you dreamed earlier.
+ - I’m trying to make enough money where I can be financially independent and be able to go and just pursue that thing that everybody really needs, just pursue my family and the cause of my family.
+ - We both can be the most beautiful and benevolent creatures on the planet, but then there’s another side that can be as harsh and as ugly as the darkest thing you could imagine seeing.
+ - My father always said that if you want oranges, you have to go to where the oranges grow.
+ - Every artist has to grow, and has to challenge themselves with a new form of expression.
+ - When you hear buzz around the beehive, you know they’re making honey in there.
+ - The truth is, the personal ends up becoming part of your professional. As an actor, much of your work happens at home as you try things out on your family. Sometimes you stay in character unbeknownst to you and keep practicing.
+ - I just wanted to be a scientist.
+ - So I show appreciation for the little gifts that have been handed to me.
+ - There’s a scripture in the Book of James which says, ‘Become a doer of the word and not a hearer only.’ A hearer is someone who looks into a mirror, walks away, and quickly forgets what sort of person he is.
+ - They say everybody gets 15 minutes. I hope I’m just inside the first minute and the next 14 go really slow.
+ - The only thing that really matters in the initial part of my career, the worst mistake I’ve ever made was try to do things to please the audience thinking how the audience is going to respond if I do this.
+ - But George Lucas is carrying about Black actors, about Black men, about Black history, which really incorporates and tells all of history. You can’t take one race out without eliminating every other race if you’re going to tell the story of the human race.
+ - I can’t tell you if one day I’ll be standing up there with an Oscar or directing, but I am going to be the best human being I possibly can.
+ - I don’t think President Obama has been that revolutionary in reaching out to ethnic communities. President Reagan did a lot for the black community that people don’t realize.
+ - If a relationship is built on sexuality, it won’t last long.
+ - No, most of the decisions that I make with regard to taking roles, I just look for something that’s challenging, something that I think I can accomplish, you know.
+ - I’ve always had a natural fear of the police, or abuse of their power.
+ - In the Twenties, it wasn’t a remarkable thing for a singer to be an actor, or even to be involved in politics. If this is our roots, how can you blame the branches for following the course of the roots.
+ - And, so yeah, I’ll always want to work in independent films because you’re not forced into a category or a formula.
+ - I like women who look like me. Generally, you’re attracted to women who look like you, because the most beautiful thing in nature is your own reflection.
+ - There’s also a part of me that’s self-destructive, and another part that’s a hero who’s going to stand up for a principle.
+ - Every role you play is literally – and I’ve said this before – every single role that you play, the only way you can connect to that character is because that was a piece of you that was scattered around that yard, almost like we got caught up in some whirlwind.
+ - The Oscar is the fantasy that you’re afraid to believe in, but in the secrecy of your little dark room, you dream and wait for it.
+ - My life’s experiences, I’ve always had, my uncle used to call it antenna. I know what’s going to happen oftentimes before it happened when it’s involving me.
+ - We call the Creator father, because we rely upon Him to protect us, guide us, feed us, keep us warm, to discipline us and all those things. I try to take my cue from the Creator, with regard to my children.
+ - I found from working on the film that I am a bigot, at times. And that I am also a coward, at times.
+ - The difference with Cleveland is that the racial tension was not a casual taste of it. It was outlandish.
+ - Every one of us is an artist, and as an artist, you really can stroll into any venue that you want, as long as you take your time to learn the etiquette of that venue.
+ - All the things we have to remember, and I’ve mentioned this before, is that we’re all artists.
+ - The reason that I’m an actor, or an artist, is ultimately because I’m trying to paint a self-portrait, and the most complete and beautiful self-portrait that you can.
+ - As a child our dreams got scattered all about and all our future prospects got scattered to so many places, and we spend our lives trying to find the little pieces that make up our lives and make up the dreams that we had as a child that got blown away in the windstorm.
+ - You just drop a character like this that and the other and it’s done.
+ - Sometimes the only way to make palatable that which is appalling and apprehensive is to season it with some humor.
+ - Don’t just view me as an actor.
+
+50 quotes

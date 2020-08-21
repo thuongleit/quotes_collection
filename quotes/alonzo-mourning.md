@@ -1,0 +1,27 @@
+ - I listen to myself, I listen to my body, my mind; I follow my heart.
+ - Tough times don’t last, but tough people do. And I’ve been through some tough times, and I know a lot of people can recall tough times, and maybe are going through some tough times right now, but they don’t last.
+ - I know that all good things must come to an end and I’ve had an incredible ride. I just want to end it on the right note.
+ - I had to develop the mentality and stay positive about making my comeback.
+ - I think in every lesson there’s a blessing, and there’s so many blessings from all the lessons I’ve had to go through in life.
+ - If we all make a concerted effort and try to improve the life of someone else, then this world would be a better place to live in.
+ - I am reaching a point in my life where the basketball chapter in my life is slowly closing from a competition standpoint.
+ - If I would have listened to other people back in 2000 telling me I should have stopped playing basketball because of a kidney disease, I wouldn’t have won a world championship.
+ - A win is a win, regardless of how you look at it.
+ - I feel like in America, we don’t have a kid problem. You think about all these issues that these kids are dealing with, we have an adult problem. We have adults that do not place the priority on our kids to get a valuable education.
+ - My health is the No. 1 concern and my longevity is the No. 1 concern.
+ - We’ve got babies raising babies, and it’s important for us as responsible adults to go out and do what we can to make sure that our kids are steered in the right direction.
+ - Once my doctor began treating my kidney disease, my greatest challenge was the constant exhaustion. Fortunately, my doctor explained that anemia was causing my exhaustion and that people with serious illnesses, like kidney disease, may be at increased risk for anemia.
+ - There’s a disappointment there because I still feel there’s an emptiness in my career that just wasn’t filled.
+ - I have an incredible amount of basketball knowledge, and I think a lot of that is derived from having a Hall of Fame college basketball coach who was very knowledgeable of the game and I had a great high school coach who was also very knowledgeable.
+ - I can still play this game at a high level; I’ve proven that. I want to be home. I want to be close to my family. I want to be close to my foundation and my business interests.
+ - So many people feel that once you reach a certain age then it’s time for you to retire from a sport you love. I don’t think that’s true at all. I think age should not dictate that.
+ - I was hurting. I had some ailments I was dealing with. It’s not like I was holding out.
+ - I had individuals in my life to help me make the right decisions because it wasn’t about them accepting handouts. It was about them making the right decisions for me.
+ - I’ve got to worry about Alonzo Mourning, because a year or two ago there was a chance that Alonzo Mourning wouldn’t be standing here talking to you. That’s the cold reality of it.
+ - You can play a particular sport as long as you take good care of your body and you’re confident enough and still have that hunger to where you want to be a part of an organization, a group of individuals where you feel you can contribute to the success of that team.
+ - You can want and hope, or you can make it happen.
+ - I’ve got to make some decisions just like any other player that has ever played this game, that eventually the clock stops, their basketball clock stops.
+ - Kobe Bryant is the most talented player in the game today; he could do anything.
+ - I’m excited about what the future will bring and I think the best is yet to come.
+
+25 quotes

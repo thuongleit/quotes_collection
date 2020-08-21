@@ -1,0 +1,148 @@
+ - The Force is within you. Force yourself.
+ - Arabs are dirtier creatures than animals and we Jews are the chosen people, there is no comparison.
+ - Hokey religions and ancient weapons are no match for a good blaster at your side, kid.
+ - I’m like a fireman. When I go out on a call, I want to put out a big fire, I don’t want to put out a fire in a dumpster.
+ - Nothing shocks me. I’m a scientist.
+ - Why do I ask for directions? Because I hate wasting time.
+ - It’s not the years honey, it’s the mileage.
+ - The only thing that I have done that is not mitigated by luck, diminished by good fortune, is that I persisted, and other people gave up.
+ - My goal was just to work regularly. I didn’t ever expect to be rich or famous. I wanted to be a working character actor.
+ - You get a sense of reference there. You feel part of something that’s got order and balance and harmony to it. All the distraction and noise, all the confusion of misplaced, misdirected energy just don’t happen there.
+ - You may get real tired watching me, but I’m not going to quit.
+ - I don’t mind doing interviews. I don’t mind answering thoughtful questions. But I’m not thrilled about answering questions like, ‘If you were being mugged, and you had a lightsaber in one pocket and a whip in the other, which would you use?’
+ - Hard work and a proper frame of mind prepare you for the lucky breaks that come along – or don’t.
+ - I realized early on that success was tied to not giving up. Most people in this business gave up and went on to other things. If you simply didn’t give up, you would outlast the people who came in on the bus with you.
+ - All I would tell people is to hold onto what was individual about themselves, not to allow their ambition for success to cause them to try to imitate the success of others. You’ve got to find it on your own terms.
+ - There’s a real simple analogy. You have to perceive it from the ground up. You have to lay a firm foundation, then every step becomes part of a logical process.
+ - That’s always my ambition is to create a character out of what will help tell the story. I’ve never been an actor to say my character wouldn’t do that, because he should do that in order to help tell the story.
+ - Some actors couldn’t figure out how to withstand the constant rejection. They couldn’t see the light at the end of the tunnel.
+ - Wood burns faster when you have to cut and chop it yourself.
+ - Work hard and figure out how to be useful and don’t try to imitate anybody else’s success. Figure out how to do it for yourself with yourself.
+ - Whoever had the bright idea of putting Indiana Jones in a leather jacket and a fedora in the jungle ought to be dragged into the street and shot.
+ - I just don’t think of age and time in respect of years. I have too much experience of people in their seventies who are vigorous and useful and people who are thirty-five who are in lousy physical shape and can’t think straight. I don’t think age has that much to do with it.
+ - I need a challenge. I need the intellectual stimulation. I’m a member of a community on each film, working in concert to try to bring an idea to life. It’s a great job.
+ - It’s important not to base your ambition on anybody else’s history, but to figure out how best to use your own particular personality and understanding of yourself to help tell other people’s stories.
+ - You have to have the darkness for the dawn to come.
+ - The loss of anonymity is something that nobody can prepare you for. When it happened, I recognized that I’d lost one of the most valuable things in life. To this day, I’m not all that happy about it.
+ - You know you’re getting old when all the names in your black book have M. D. after them.
+ - I’ve always wanted to be bald. I mean it, completely bald. Wouldn’t it be great to be bald in the rain?
+ - Acting is not about competing. Acting is about cooperating. Acting is about collaboration. It’s about your utility, your usefulness, your capacity to add to the work that has already been done and will be done. You’re just part of a team. I never feel competitive about acting.
+ - I wanted to be a forest ranger or a coal man. At a very early age, I knew I didn’t want to do what my dad did, which was work in an office.
+ - Bikes and planes aren’t about going fast or having fun; they’re toys, but serious ones.
+ - Our health relies entirely on the vitality of our fellow species on Earth.
+ - We all have big changes in our lives that are more or less a second chance.
+ - I do not go to the gym. I do not train. I am not that careful about what I eat. I cannot give you any advice about keeping fit. The best advice I can give is choose your parents wisely.
+ - My character is meant to know nothing about rap, and not to like it very much, but I know about it, because my kids make me listen to it. There’s some rap I do like very much. I like Eminem, Blackalicious.
+ - You keep on going until you get it as close to being right as the time and patience of others will allow.
+ - Romantic love is one of the most exciting and fulfilling kinds of love and I think there is potential for it at any stage of your life.
+ - If you’re going to define me properly, you must think in terms of my failures as well as my successes.
+ - The focus and the concentration and the attention to detail that flying takes is a kind of meditation. I find it restful and engaging, and other things slip away.
+ - The basic skill of an actor is, in fact, empathy, and that’s maybe not a skill, it’s a disposition. I am an assistant storyteller. I enjoy feeling useful to a team effort. It’s my way of finding a use for myself, a utility in this world.
+ - When we protect the places where the processes of life can flourish, we strengthen not only the future of medicine, agriculture and industry, but also the essential conditions for peace and prosperity.
+ - It took me a long time to figure out how to act, and how to conduct myself in the business so I could get what I felt I needed to support my potential and give them what they wanted.
+ - Baseball was a metaphor for America, both here and in terms of how it was understood by the rest of the world.
+ - I don’t do stunts – I do running, jumping and falling down. After 25 years I know exactly what I’m doing.
+ - Henry: Well I’m sorry about your head though, but I thought you were one of them. Indiana: Dad, they come in through the doors.
+ - What I hate is the loss of anonymity.
+ - Parenting is an impossible job at any age.
+ - The best movies are made from a point of view of an understanding of human nature and an understanding of history and an understanding of what motivates people, of what makes a good movie from an emotional place.
+ - I never feel sexy. I have a distant relationship with the mirror.
+ - Hollywood’s got its own particular environment.
+ - Hell of a thing when a man’s got good health, plenty of money and absolutely nothing to do.
+ - You know how a woman gets a man excited? She shows up.
+ - I don’t think nostalgia is very useful to me. There is a story to be told, there’s behaviour to create or to bring to the screen that will help tell that story, and nostalgia is just not really a big part of my emotional package.
+ - I had no expectation of the level of adulation that would come my way. I just wanted to make a living with a regular role in a television series.
+ - I’ve never been bothered by proximity to special effects and I’ve never felt disadvantaged by them. They’re all part of a movie, and when the movie’s under control I don’t feel upstaged by them.
+ - There’s no independent satisfaction without the success of the film itself. The feel that you have done the best you can to support the film.
+ - I don’t want to be a movie star. I want to be in movies that are stars.
+ - I think people only have so much interest in anybody, and if you barrage them in between the times you have something to offer them you become a personality rather than an actor – much more short-lived. I only work once a year. And that’s enough.
+ - I’m addicted to Altoids. I call them ‘acting pills.’
+ - I have the ordinary experience of being anonymous when I’m in an airplane talking to air-traffic control, and they don’t know who they’re talking to. I have a lot of common experiences.
+ - I’ve always been somewhere down from the top, so I’ve never had to suffer being knocked off the top.
+ - I don’t take trouble at all to conform a screenplay to my iconography. I don’t say, “We can’t do that – the audience wouldn’t accept it.” I try to take the limitations of what is required to play a leading character and then screw with them.
+ - Irish as a person but I feel Jewish as an actor.
+ - Harrison Ford may be getting old, but he can fight like a 28 year old man.
+ - I think what a lot of action movies lose these days, especially the ones that deal with fantasy, is you stop caring at some point because you’ve lost human scale.
+ - I enjoyed carpentry, and it was very good to me for 12 years.
+ - I never followed baseball very much. As a kid, I never followed sports.
+ - Really, what are the options? Levi’s or Wranglers. And you just pick one. It’s one of those life choices.
+ - I have relationships with people I’m working with, based on our combined interest. It doesn’t make the relationship any less sincere, but it does give it a focus that may not last beyond the experience.
+ - I try to preserve a certain amount of time away from the movies, so I don’t allow time to do those smaller parts that might give me an opportunity to do more seemingly ‘artful’ things. Although, having said that, I don’t feel any lack of noble purpose if I do a film that’s commercial.
+ - I found out that drama was a fascinating exercise as a way to get out of my self and into somebody else’s head.
+ - My occupation is assistant storyteller. It is not “icon.”
+ - I’ve never wanted to be the boss.
+ - If you’re asking me to acknowledge that I’ve gotten older, I can do that.
+ - I was one of the few people who thought Star Wars was going to work, and I hadn’t even seen any special effects.
+ - I was completely unprepared for the public spectacle my private life became, and didn’t like it a bit.
+ - There is no barrier to Indiana Jones growing older. It’s not an age-based character. We can’t bang him up as much as we used to, maybe. But I guess I can pretend to have the capacity as well as I pretended before.
+ - I like working. It is where I feel useful. I have no plans to cut down. I am happy with what I do. There will be a lot more of me yet, that’s for sure.
+ - I was 35 when I first hit with Star Wars. I had some degree of maturity and some degree of experience, yet physically I still looked young. That had been an impediment early on in my career, but then it turned out to be an advantage.
+ - I’m like old shoes, I’ve never been hip.
+ - I think you have to be very careful with effects that they don’t overpower the story with the visual element.
+ - I accrued anger from people’s low opinion of me and my work, and for the work I might be capable of.
+ - Money is really only important if you don’t have any.
+ - I had the idea that the film would be much better served by a Branch Rickey look-a-like than a Harrison Ford look-a-like. I didn’t want the audience to go into the film thinking that they knew me from some previous experience in the movies.
+ - I’m still interested in perfecting whatever talents I have and continuing to grow as an actor and continuing to be useful to the telling of the story.
+ - For some directors, I’m the actor from hell.
+ - I don’t think I’ve mastered anything. I’m still wrestling with the same frustrations, the same issues, the same problems as I always did. That’s what life is like.
+ - People need to see what’s going on, and they have to be exposed to the mechanisms that can help make it right.
+ - I am not the first man who wanted to make changes in his life at 60 and I won’t be the last. It is just that others can do it with anonymity.
+ - It doesn’t interest me to be Harrison Ford. It interests me to be Mike Pomeroy and Indiana Jones and Jack Ryan. I don’t want to be in the Harrison Ford business. I take what I do seriously, but I don’t take myself seriously.
+ - I had no idea what I wanted to do with my life, so nothing of what I was studying seemed to fit. I know now that I should have taken advantage of that time and that I missed a great deal of the opportunity to educate myself.
+ - I thought it was funny. I always thought Star Wars and Indiana Jones were basically comedies. The humour came out of their relationships; it came out of the fact that we were basically types.
+ - Am I grumpy? I might be. But I think maybe sometimes it’s misinterpreted.
+ - I don’t mind playing older characters. I find it interesting. There are parts I couldn’t have got when I was 30 years old. So, it continues to interest me in the same way that it always did.
+ - No one wants to see a hero have to pick up his cane to hit someone, but I’m still quite fit enough to fake it.
+ - Directing is too hard, it takes too much time, and it doesn’t pay very well.
+ - I saw what luck and success I had as an opportunity to twist it up and do something different, so I’ve always sought out different genres and different kinds of characters.
+ - What I think is important for a young person is to figure out how to be useful and not be so concentrated on themselves, but to see what they can do to make the overall collaboration with all the other people involved in a movie work better.
+ - It’s a wonderful opportunity to be part of a child’s growing up, which is always an endless springtime. You see the blossoming and the growing and the nurturing and the payoff.
+ - I love the comic opportunities that come up in the context of a father-son relationship.
+ - I played maybe one and a half games of Little League. The whole atmosphere of anxious parents and more anxious children was just too much for me.
+ - I had never even thought about doing something that I’d never done before or proving anything.
+ - I continue to develop some things for myself and also take advantage of good parts as they come along.
+ - It’s always nice to anticipate working in something that you know people will have an appetite for.
+ - Acting was a way out at first. A way out of not knowing what to do, a way of focusing ambitions. And the ambition wasn’t for fame. The ambition was to do an interesting job.
+ - The job’s always the same. It involves helping to tell the story and creating an alloy between character and story that serves the film.
+ - I think retirement’s for old people. I’m still in the business, thank you. I have a young child of nine years old, and I want to live as long as I can to see him grow up. I’m enjoying my life and I want to stick around for as long as I can.
+ - I didn’t play much ball. I wasn’t much of a ball fan.
+ - In relationships with a directors, I want to be able to give and take, and I can’t name what it is: respect, energy, investment in the task, focus, humor, intelligence, but I always feel responsible for taking the money.
+ - The kindest word to describe my performance in school was Sloth.
+ - My ambition from the very beginning was to make a good part for myself, something differently to what lately I’ve been doing.
+ - When I first started out, I was a bad actor.
+ - There is no child left within me, none whatsoever.
+ - Everything I do, I’m sort of half in, half out.
+ - The only ambition I ever had going into and committing to wanting to be an actor was to live my life.
+ - I am my age. I’m not making any effort to change it.
+ - My older kids are fantastic people. It can’t be the result of my influence on them.
+ - I believe that the racial injustice which existed such a short time ago probably would have persisted longer if the color barrier had not been broken in baseball.
+ - You have to remember that baseball really was the American pastime in the Forties, not football, basketball or any other sport.
+ - What I look for is identifying what the utility of a character is to the telling of the story overall. If I can identify that from reading the script, then I’ve got a clear idea of whether or not I think the character is worth playing.
+ - I was never that much a focus of interest in my career. I’m aware of that now, which doesn’t give me a lot of pleasure.
+ - All my friends were going off to be professionals, and I said I wanted to be an actor.
+ - An actor only has his own understanding and experience to work with.
+ - My work has always been important to me. The reason I continue to do it is because it’s so much fun for me. I love my work and so that’s what keeps me in the game.
+ - What I observed about my fellow actors was that most gave up very easily.
+ - I’m like old shoes. I’ve never been hip. I think the reason I’m still here is that I was never enough in fashion that I had to be replaced by something new.
+ - I get mad when people call me an action movie star. Indiana Jones is an adventure film, a comic book, a fantasy.
+ - The third time you say a thing it sounds like a lie.
+ - I think parenting is a huge responsibility. It was in my time when I was growing up and there still continues to be that responsibility.
+ - Failures are inevitable. Unfortunately, in film they live for ever and they’re 40 ft wide and 20 ft high.
+ - I was always very grateful I was never hot. In the entire length of my career, I haven’t been the most adored.
+ - Los Angeles is where you have to be if you want to be an actor. You have no choice. You go there or New York. I flipped a coin about it. It came up New York, so I flipped again. When you’re starting out to be an actor, who wants to go where it’s cold and miserable and be poor there?
+ - There have been times in my life when I have felt I was lonely, but I don’t think you want to live your life in order to mitigate against loneliness.
+ - I just like the process of taking something written on a sheet of paper and giving it life and shape. I like the collaborative process of filmmaking, which is all simply to say that I love my work and I would continue to look for things that have the potential to be engaging and successful.
+ - I think the best movies are made not from a point of view that depends on your personal history, whether it’s the color of your skin, or the politics that you’ve had, or the place that you come from.
+ - To me, success is choice and opportunity.
+ - I haven’t purposefully set out to play heroes. I’m interested in playing the character who finds himself in extraordinary circumstances. But he’s really either just saving himself or acting in the service of something that’s important to him.
+ - Sometimes I try to improve the language, the lines, or the delivery, but I don’t ad-lib because I think that makes it really hard for everybody else involved.
+ - If I were a serious person, I’d probably have a real job.
+ - What’s important is to be able to see yourself, I think, as having commonality with other people and not determine, because of your good luck, that everybody is less significant, less interesting, less important than you are.
+ - Starring in a science fiction film doesn’t mean you have to act science fiction.
+ - I realized early on that success was tied to not giving up.
+ - I rarely play a real person, because I don’t think I’m a good imitator.
+ - I don’t do a huge amount of physical activity. I play tennis, I work out sporadically, and I eat well and take care of myself.
+ - When I met scientists, I found them to be as various as any other group of people.
+ - You always have to know what the ambition of the scene is, what the purpose of that scene is in the telling of the story overall, so that you’re there to support the story.
+
+146 quotes

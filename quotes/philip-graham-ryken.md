@@ -1,0 +1,9 @@
+ - The content of worship comes from the Bible, the goal of worship is to give praise to God, and the basis for worship is the saving work of Jesus Christ. Put more simply, true Christian worship is Word-communicat ing, God-glorifying, and Christ-confessi ng.
+ - When Christians are caught in sin, they do not need isolation or amputation; they need restoration. The proper thing to do is to help them confess their sins and find forgiveness in Christ, and then welcome them back into the fellowship of the church.
+ - To identify your own idols, ask questions like these: What things take the place of God in my life? Where do I find my significance and my confidence? What things make me really angry? Anger usually erupts when an idol gets knocked off the shelf.
+ - The cross of Christ is the all-sufficient ground for the salvation of sinners. It claims to be sturdy enough to support the whole weight of our guilt all by itself. Therefore, to boast in the cross properly at all is to boast in the cross alone.
+ - God’s careful instructions for building the tabernacle in Exodus 31 remind us that his perfection sets the standard for whatever we create in his name. Whatever we happen to make-not only in the visual arts, but in all the arts-we should make it as well as we can, offering God our very best.
+ - The fruit of the Spirit is the natural produce of his gracious inward influence, the spontaneous and inevitable result of his uniting us to Jesus Christ.
+ - To be pleasing to God, art must be true as well as good. Truth has always been one important criterion for art. Art is the incarnation of the truth. It penetrates the surface of things to portray them as they really are.
+
+7 quotes

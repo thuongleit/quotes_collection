@@ -1,0 +1,27 @@
+ - The heart of the human problem, is the problem of the human heart.
+ - The mission of the church is missions.
+ - We talk of the second coming, half the world has never heard of the first.
+ - The church that does not evangelize will fossilize.
+ - The light that shines the farthest will shine the brightest at home.
+ - No one has the right to hear the gospel twice, while there remains someone who has not heard it once.
+ - Oh my friends, we are loaded with countless church activities, while the real work of the church, that of evangelizing and winning the lost is almost entirely neglected.
+ - There can be no prevailing in prayer without travailing in prayer.
+ - The Lord did not tell us to build beautiful churches, but to evangelize the world.
+ - The supreme task of the Church is the evangelization of the world.
+ - We all want to do the will of God, and we know that there is nothing nearer to His heart than the evangelization of the world.
+ - The fulness of the Spirit is not a question of our getting more of the Holy Spirit, but rather of the Holy Spirit getting more of us.
+ - Our work is to preach the gospel and we must not be sidetracked.
+ - Any church that is not seriously involved in helping fulfill the Great Commission has forfeited its biblical right to exist.
+ - He who would preach powerfully must pray effectively.
+ - If God wills the evangelization of the world, and you refuse to support missions, then you are opposed to the will of God.
+ - You must go or send a substitute.
+ - I am perfectly confident that the man who does not spend hours alone with God will never know the anointing of the Holy Spirit.
+ - The world does not need sermons; it needs a message. You can go to seminary and learn how to preach sermons, but you will have to go to God to get messages.
+ - The supreme task of the church is the evangelization of the world. No one has the right to hear the gospel twice until everyone has had an opportunity to hear it at least once.
+ - If God is going to use us for His honor and glory, if His power is going to rest upon us, if He is going to bless our soul-winning ministry, then our lives must be places absolutely at His disposal.
+ - This last month I have felt the burden of a city. Its great sorrow has pressed in on my soul. Its vice and sin have bowed me upon my knees in tears.
+ - I have seen the vision and for self I cannot live; Life is less than worthless till my all I give.
+ - Those who have been used of God had to pay a terrific price.
+ - The only generation that can reach this generation is our generation.
+
+25 quotes

@@ -1,0 +1,23 @@
+ - The threat is stronger than the execution.
+ - Do not always be thinking of attack! Moves that safeguard your position are often far more prudent.
+ - First restrain, next blockade, lastly destroy.
+ - A thorough knowledge of the elements takes us more than half the road to mastership.
+ - The beauty of a move lies not in it’s appearance but in the thought behind it.
+ - The isolated Pawn casts gloom over the entire chessboard.
+ - How can I lose to such an idiot?
+ - Many men, many styles; what is chess style but the intangible expression of the will to win.
+ - Even the laziest King flees wildly in the face of a double check!
+ - The passed Pawn is a criminal, who should be kept under lock and key. Mild measures, such as police surveillance, are not sufficient.
+ - Strategically important points should be overprotected. If the pieces are so engaged, they get their regard in the fact that they will then find themselves well posted in every respect.
+ - The defensive power of a pinned piece is only imaginary.
+ - It is a well known phenomenon that the same amateur who can conduct the middle game quite creditably, is usually perfectly helpless in the end game. One of the principal requisites of good chess is the ability to treat both the middle and end game equally well.
+ - In the middlegame, the king is merely an extra, but in the endgame, he is one of the star actors.
+ - No pawn exchanges, no file-opening, no attack.
+ - The main Objective of any operation in an open file is the eventual Occupation of the seventh or eighth Rank.
+ - Ridicule can do much, for instance embitter the existence of young talents.
+ - If in a battle, I seize a bit of debatable land with a handful of soldiers, without having done anything to prevent an enemy bombardment of the position, would it ever occur to me to speak of a conquest of the terrain in question? Obviously not. Then why should I do so in chess?
+ - Ridicule can do much, for instance embitter the existence of young talents; but one thing is not given to it, to put a stop permanently to the incursion of new and powerful ideas.
+ - Giving up the center must not here be regarded as illogical. Was happiness no happiness because it endured for just a short time? One cannot always be happy.
+ - The night of QB3 is under obligation, the moment the enemy gives him the chance, of undertaking an invasion of the center by Kn-Q5.
+
+21 quotes

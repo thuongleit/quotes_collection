@@ -1,0 +1,50 @@
+ - There's nothing more inspiring than the complexity and beauty of the human heart.
+ - So I'm in love. That crazy, forget to eat, float around in a daze, talk on the phone all night and bounce out of bed every morning hoping to see him kind of love.
+ - You have made my life into something so extraordinary, you can't even know.
+ - It's funny how when people change, you forget the way they used to be.
+ - I'm looking at you. Why are you always trying to hide how pretty you are?
+ - So often we only do what we think is expected of us, when we are capable of so much more.
+ - Our purpose on this earth is not one single event, an accomplishment we can check off a list. There is no test. No passing or failing. There's only us, each moment shaping who we are, into what we will become.
+ - And sometimes time really does stop.
+ - This is the part where I kiss you.
+ - Have you ever been to a place you’re supposed to love, but all you can think about is home?
+ - I wanted to tell you that wherever I am, whatever happens, I’ll always think of you, and the time we spent together, as my happiest time. I’d do it all over again, if I had the choice. No regrets.
+ - Insert the biggest, most awkward silence in the history of big awkward silences.
+ - You are going to love the sports here. Snow skiing and water-skiing and rock climbing and all kinds of extreme sports. I give you full permission to hurl yourself off stuff.
+ - Clara: My heart doesn’t belong to me anymore. It belongs to Tucker.
+ - I’m in love with Tucker Avery.
+ - Tucker strokes my hair. There’s something so tender about the gesture. It might as well have been him whispering I love you.
+ - But Tucker is my choice. I love him. That isn’t going to go away.
+ - Dude. Hot Bozo. Best nickname ever.
+ - The look that passes between Jeffrey and Kimber right then feels like it requires a swell of cheesy music in the background. Aw, I think. Baby brother’s in love. I also find this kind of gross.
+ - See, that’s what I like about you, Carrots You’re not fussy.
+ - Haven’t you guessed by now? I say, my heart hammering. My home is you.
+ - I wonder if the prayers of angel-bloods count more than regular people’s.
+ - I feel like Cinderella sitting in the middle of the road with a pumpkin and a couple of mice, while Prince Charming charges off to rescue some other chick.
+ - It’s been nice knowing you, Clara, Huh? My brain still a bit shell-shocked. Say a prayer for me, will you? He gives me a shaky grin. Because I’m pretty sure my parents are going to kill me.
+ - I should have fought for you, Clara, even if I would have had to fight you to fight for you. I should have never let you go.
+ - Time passes. That’s the rule. No matter what happens, no matter how much it might feel like everything in your life has been frozen around one particular moment, time marches on.
+ - I won’t be that girl who lets the guy treat her like crap and still fawns all over him.
+ - I think he seriously believes that deflowering an angel could mean an eternity in fiery hell.
+ - I don’t know what to say. This summer hasn’t turned out at all the way I’d planned. I’m not supposed to be standing in the middle of a barn with a blue-eyed cowboy who’s looking at me like he’s about to kiss me. I shouldn’t be wanting him to kiss me.
+ - This moment was written in the stars, and it is everything he thought it would be.
+ - Tucker: I’m glad it happened. because then I got to know who you really are. Clara: Oh yeah? Who am I? Tucker: A really, really spiritual, spoiled California chick. Avery: Shut up. Tucker: It’s cool though. My girlfriend is an angel.
+ - Tucker: Why would you tell me now if it’s against the rules? Clara: Because I love you.
+ - I love how he sometimes gets embarrassed by the mushy stuff between us and then his voice gets all gruff and he tickles me or kisses me to shut us both up. Boy, do we ever kiss. We make out like champions.
+ - Note to self: buy some nunchucks or something.
+ - Christian is staring at us. He’s an only child and could never understand the delicate joys of sibling abuse.
+ - I beat at him uselessly with my fists. I scream. My mind races. I’ll pee on him. Puke, bite, scratch. Sure, I’ll lose, but if he’s going to mark me I am going to mark him, too, if such a thing is possible.
+ - In fact, I’ve essentially given up on the idea of flight altogether and accepted that I’m going to be an angel-blood who stays earthbound, a flightless bird, like an ostrich. Maybe, or in this weather, a penguin.
+ - Tucker: “Today we ran into a mama grizzly with two cubs at the ridge off Colter Bay and Clara sang to it to make it go away.” Mrs. Avery: You sang to it? Tucker: Her singing is that bad.
+ - I’m having an argument with myself. And I’m losing. So not good.
+ - Clara’s mother: Yes, and what could possible be more important to your life right now than Christian? Clara: I’m going out with Tucker.
+ - There I go, Clara the parrot. I belong on a pirate’s shoulder.
+ - So with my luck, I’ll never make it in time to save the boy in the forest because my hair will have snagged on a tree branch a mile back.
+ - Oh, come on. You eye-hump him all through British History.
+ - I think the birds in the area are dying laughing watching me try not to crash.
+ - First rule of Angel Club, you do not talk about Angel Club.
+ - So spring break consisted of seven fun-filled days cooped up in the house with Jeffrey, who was grounded because he’d won the Regional Wrestling Championships.
+ - I mean, what good is a women’s lib if we can’t use it to ask guys to dances?
+ - We think of happiness as something we can take. But usually it comes from being content with what we have, and accepting ourselves.
+
+48 quotes

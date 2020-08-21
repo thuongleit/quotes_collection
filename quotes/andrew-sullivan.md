@@ -1,0 +1,64 @@
+ - If you change the society and a culture, the politics will follow.
+ - Blogging is to writing what extreme sports are to athletics: more free-form, more accident-prone, less formal, more alive. It is, in many ways, writing out loud.
+ - Homophobia: the fear that another man will treat you like you treat women.
+ - For me, God and Jesus and the Holy Spirit have always been my closest friends in this journey.
+ - When Bush says that Abu Ghraib was the work of a few, he forgot to mention that he was one of them.
+ - The Dixiecrats meet again in New York. Now they’re called Republicans.
+ - To rid the world of Osama bin Laden, Anwar al-Awlaki and Moammar Qaddafi within six months: if Obama were a Republican, he’d be on Mount Rushmore by now.
+ - I like the pluralism of modernity; it doesn’t threaten me or my faith. And if one’s faith is dependent on being reinforced in every aspect of other people’s lives, then it is a rather insecure faith, don’t you think?
+ - I think if someone is writing continuously for 10 years and has not changed their mind about something – there’s something wrong with them. They’re not really thinking.
+ - The Tea Party we were told is only about economics; not true. It was always about economics and social issues. They just hid the social issues and now we just see who they really are.
+ - It is not an opinion that “enhanced interrogation techniques” are torture. It is a legal fact. And it is also a legal fact that the president is a war criminal.
+ - Don’t fool yourself that you’re blogging when you’re really just putting stuff up online.
+ - Michael Moore: a man who never without an excuse for keeping murdering tyrants in power. But now he’s supporting the man who bombed Milosevic into submission? How about an explanation, Mr Moore?
+ - Every generation is born into, for the most part, a heterosexual family.
+ - The essence of romantic love is not the company of a lover but the pursuit.
+ - Personally, I’d rather have pins stuck in my eyes than endure a conversation with John Kerry, but I’d love to hang with Bush.
+ - In this nonfundamentalist understanding of faith, practice is more important than theory, love more important than law, and mystery is seen as an insight into truth rather than an obstacle. It is the great lie of our time that all religious faith has to be fundamentalist to be valid.
+ - I enjoy being around people who disagree with me; and I enjoy being in non-political contexts and activities.
+ - The first person I came out to was God. And the first conversation I ever had with anybody was in prayer.
+ - I can barely remember what I wrote yesterday, let alone 10 years ago.
+ - You just have to keep going. I mean I think our job, my job, is to keep articulating that I exist and that there are lots of people like me exist and we just have no home.
+ - Homophobia whether internalized or externalized is really fear; it’s not hatred, it’s fear. It’s fear of the truth about ourselves.
+ - I think of these imperial adventures like welfare programs; you start them with all good intentions, they never end, they go on forever and get more expensive as they go on.
+ - I do not believe that the truth can ever be in conflict with God.
+ - A mind is a wonderful thing to change.
+ - Even if it’s deep unhappiness, it’s your unhappiness.
+ - The New York Times had not become The New York Times overnight. It had to earn its reputation day-by-day.
+ - No American should be forced to choose between their spouse and their country.
+ - When you fuse Christianity with power, it isn’t long before Christians start imposing the cross on others rather than taking it up for themselves.
+ - I watched Nancy Pelosi and Tom Daschle. Good grief. What whining weenies.
+ - There is no escaping this fight. It is civilization or Jihadism. We can and should debate tactics; but the sides are clear enough.
+ - I think a lot of people are afraid the truth is in conflict with God. And are unable to let go and let the truth of the world.
+ - I think you earn your reputation for honesty and integrity literally hour-by-hour, and taste for that matter.
+ - My father has been a rock for me every since.
+ - The good news about me is that my friends and social network is entirely independent of politics.
+ - When you put a tiny and despised minority up for a popular vote, the minority usually loses.
+ - Homosexuality is like the weather. It just is.
+ - It is one of history’s great tragedies that American conservatism, born in part in resistance to Soviet torture, should end by endorsing it in America, by Americans.
+ - Here’s why I find it impossible to be a Republican: any crowd that instantly cheers the execution of 234 individuals is a crowd I want to flee, not join.
+ - The middle part of the country – the great red zone that voted for Bush – is clearly ready for war. The decadent left in its enclaves on the coasts is not dead -and may well mount a fifth column.
+ - I purge compulsively. I’m constantly shedding things.
+ - Not many people sleep with other men and when the other man leaves have a nervous breakdown.
+ - The one man more responsible for destroying the Democratic centrist revival, for throwing away the Clinton legacy, and for suicidally pitching his party to the populist left was Al Gore.
+ - Although I never publicly defended promiscuity, I never publicly attacked it. I attempted to avoid the subject, in part because I felt, and often still feel, unable to live up to the ideals I really hold.
+ - Leftists would like to pretend that any criticism of their views raises the specter of domestic repression. But in a country with a First Amendment, no suppression from government is likely, and in the citadels of the media and the academy, the far left is actually vastly overrepresented.
+ - The success of the stock connect program and the increased market volatility means investors are looking for more products to access China markets performance than exchange traded funds, and futures are feeding that rising demand.
+ - The day of reckoning is not just coming for Saddam Hussein. It’s coming for the anti-war movement.
+ - There is something about hearing your president affirm your humanity that you don’t know what effect it has until you hear it.
+ - We’ve got fuel prices coming down and good travel numbers coming out, so it’s not surprising airline stocks are going up.
+ - I’m not going to sit around an pretend I’m not thinking things on my blog when I am thinking them and when I’m open to rebuttal.
+ - Obama is looking good because he kept his nerve and retained his restraint. That’s a tough combo: nerve and restraint. It takes a cold-bloodedness to pull this off, and there are times when ice seems to run through the man’s veins.
+ - How can you tell when a political ideology has become the equivalent of a religion?
+ - Bush has legitimized a huge expansion of the welfare state, liberalizing immigration, and using force for democratization abroad. All the next Democratic president has to do to finish Bush’s hard work is to raise taxes to pay for it all.
+ - If religion is about truth, why is it so afraid of error?
+ - I actually bought the argument that if we democratized Iraq, we could create a space for venting some of the stuff that’s going on in the Middle East in these autocratic regimes that is expressing itself through jihadism, because it has nowhere else to express itself.
+ - I think a blog to live really has to be probably four or five times a day.
+ - Any president can start a war, and use the chaos of disorder that such a war creates as an indefinite argument for prolonging it. It’s a war that keeps on giving. Failure means it’s even more necessary to keep failing.
+ - What I love about the Internet and what I try to do on the issues is insist upon the ability to have bad taste if one wants.
+ - The dirty little secret of journalism is that it really isn’t a profession, it’s a craft. All you need is a telephone and a conscience and you’re all set.
+ - The relationship of black Americans to Obama is sociologically riveting.
+ - The important things are not worth knowing because they are useful. They are worth knowing because they are true.
+ - I think essentially corrupting institutions in Washington are turning conservatism into something that is really very creepy, but also emotionally and psychically powerful for people.
+
+62 quotes

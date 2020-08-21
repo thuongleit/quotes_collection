@@ -1,0 +1,45 @@
+ - I have to keep reminding myself: If you give your life to God, he doesn’t promise you happiness and that everything will go well. But he does promise you peace. You can have peace and joy, even in bad circumstances.
+ - When it comes to accepting emotional support or affection, I’m a little guarded and hardened to that.
+ - A woman experiencing an unplanned pregnancy also deserves to experience unplanned joy.
+ - Anytime anybody is rude, it makes me double-check my own behavior to make sure I don’t do that to other people.
+ - I had four C-sections and my stomach looked like the map of the world. My breasts were hanging down to here from breastfeeding those babies, and my nipples were like platters. I wanted to fit into the gowns that I finally got to wear.
+ - On a personal level, as a Christian, it will not be Barbra Streisand I’m standing in front of when I have to make an accounting of my life.
+ - Plastic surgery is like a big elephant sitting in the Hollywood living room.
+ - I was not an easy kid.
+ - I don’t remember my mother ever playing with me. And she was a perfectly good mother. But she had to do the laundry and clean the house and do the grocery shopping.
+ - Before we had the kids, my husband and I were traveling a lot and working and really enjoying our lives and each other. We both love the theater and books and travel and so we were really having a lot of fun.
+ - As a child, I would put on shows in my neighborhood with friends and perform Barbra Streisand songs for my classmates.
+ - I have always believed that when you’re feeling sorry for yourself, the best thing to do is help someone else.
+ - I’ve always been an independent person, but that independence was in the setting of security.
+ - I’m not good at accepting help.
+ - Men are very competent in their workplace – and this is going to sound sexist – women are better at running households and juggling lots of things, kids and scheduling and that kind of thing.
+ - Most of my friends from college became dental hygienists or went into retail, a lot went into sales. They all started getting married and having kids and buying homes and I was still living like a college student.
+ - But I think boys ultimately are easier than girls.
+ - I spend as much time with my kids as any mom who stays home. I only work during the hours they’re at school, but there is always the sense of trying to catch up with all their stuff and not only organize my work life but also their school lives.
+ - God will open any doors he wants to open, and if He closes doors, that’s fine, too.
+ - True love, and what it is, and how do you know what it is. Is it just chemistry, or is it years and years of commitment and being together and hanging in there building a history? And how do you find both?
+ - This is the other thing: we make the cost of raising kids higher than it has to be just because we feel they need all this stuff, like gadgets, certain schools, and activities that are nice but aren’t really necessary.
+ - I think Raymond is very honest about human relationships.
+ - I felt totally released from the need to make it as an actress. I had experienced complete fulfillment in something that had nothing to do with me being in the spotlight.
+ - Boys wear their hearts on their sleeves. Even when they’re trying to pull one over on you they’re so transparent. Like men.
+ - My mother-in-law was with me during all four of my births and when she was sitting next to me holding my hand during the cesareans, well, I craved that.
+ - I was raised Catholic and I’m Presbyterian now, but I’ve always been a Christian, regardless of denomination. I believe that Jesus is the way.
+ - Some people are cool with the fact that their bodies bear witness to this great thing they produced, their children, and I understand that. But on a personal level, it makes me feel better that my breasts are not down to my knees when I’m undressed in front of my husband.
+ - Home life is a foreign environment for most guys. So it’s natural to show them being idiots at home.
+ - It’s hard enough to work and raise a family when your kids are all healthy and relatively normal, but when you add on some kind of disability or disease, it can just be such a burden.
+ - And I find it very easy to memorize the scripts, which are so close to conversations my husband and I have.
+ - I’ve learned to look like I’m listening to long confusing plots of cartoons and comic books when I’m actually sound asleep or making grocery shopping lists in my head.
+ - We did an episode where she goes out to get a job and she gets fired because she’s not good. They hire a babysitter to help out and she finds out she hates the fact that the kids have more fun with the sitter than her.
+ - Again, I find it difficult to be taken care of and rarely acknowledge it, and every act he does registers, but I also just need to verbally acknowledge him and hug him.
+ - I know the situations that we do every week are all ones that I encounter in my life or will encounter.
+ - Frankly, most of my friends hold very different political beliefs. It’s just a funny thing in this country that supposedly you can’t sit down and have dinner and enjoy another person’s company if you don’t have the same beliefs. It’s ridiculous.
+ - I just don’t know a couple that’s been married more than three years that doesn’t annoy the heck out of each other every 15 minutes.
+ - I just have always felt that I think we know that it’s an ensemble show, and it’s very hard to pick a show to submit when you’re nominated, because usually everyone has a very strong part in every episode.
+ - And I started as a journalism major at Ohio State, ended up in theater and I love to read.
+ - It’s a little bit in the genes because my brother is a journalist and my father was a sports writer.
+ - I’m always dissing Ray and making fun of him, talking about his money.
+ - You kind of think people get sick of you after a while, but apparently not.
+ - And I think I have a perspective about Hollywood that you don’t see very often in the press.
+ - We only work four days a week, we only work three weeks out of the month, and we get four months off for the summer. So there’s plenty of time for me to spend with the kids.
+
+43 quotes

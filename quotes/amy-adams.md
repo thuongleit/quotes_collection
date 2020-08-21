@@ -1,0 +1,44 @@
+ - You’re nothing to me until you’re everything.
+ - Falling in love is a crazy thing to do. It’s kind of like a form of socially acceptable insanity.
+ - I find that in life all you can do is try to be honest about who you are and how you’re feeling, and trust that it will be received in the correct way.
+ - I’m like the luckiest girl in the world. I’ve gotten to be a princess, I’ve gotten to work with the Muppets. A lot of my childhood dreams about who I wanted to be when I was a grown-up, I at least get to play them in movies.
+ - The illusion of perfection is an illusion anyway.
+ - That’s always been my philosophy: I try to just be as straightforward as possible, and then I don’t really have to question what I said or regret anything...
+ - I think there are certain people that you’ll always want to impress no matter how much success you have.
+ - A man who’s powerful and strong yet is able to show tenderness and vulnerability, that’s really sexy.
+ - We’re only here briefly. And while I’m here I want to allow myself joy.
+ - I have worked with some of the meanest people in the world. You can’t do anything to intimidate me.
+ - You know, I love traveling and I love being exposed to different cultures, but really it’s the people that I’ve met along the way, not the places I’ve been, that have opened my eyes.
+ - I like Cinderella – she has a good work ethic and she likes shoes.
+ - I like Cinderella, I really do. She has a good work ethic. I appreciate a good, hard-working gal. And she likes shoes. The fairy tale is all about the shoe at the end, and I’m a big shoe girl.
+ - Being pregnant finally helped me understand what my true relationship was with my body – meaning that it wasn’t put on this earth to look good in a swimsuit. I was like, ‘Look, I can carry a baby! I’m gaining weight right, everything’s going well.’ And I’ve had that relationship ever since.
+ - I’m one of seven kids. That’ll keep your ego in check.
+ - I didn’t necessarily fit in in high school. I felt very awkward. I still feel completely awkward and weird in my body sometimes. I’m hoping that’s going to go away, but I’ve just embraced it as reality.
+ - I was a huge Ann-Margret fan, and I wanted to be like her.
+ - As an actress people always tease me like: if there’s anything you can do to make yourself unattractive you will do it.
+ - Look, I can carry a baby! I’m gaining weight right, everything’s going well.
+ - What I respect in people more than anything is work ethic. And Justin Timberlake’s got that. He works his tail off, and he knows his stuff.
+ - I’m just grateful I didn’t have to spend my early 20s in front of paparazzi cameras.
+ - I do believe that you don’t have to act like a man to be strong. You can still be feminine.
+ - If you’re not excited by it, why do you do it?
+ - I’m lucky enough to get really interesting and diverse roles offered to me, and I just hope that that continues. I just want to keep expanding as an artist and really try new things.
+ - I have a hard time articulating the emotional experience of working on a film. Even when I have meetings on films or discussing them with directors, I find that’s my biggest challenge. Different words mean different things to people.
+ - When I died my hair red the first time, I felt as if it was what nature intended. I have been accused of being a bit of a spitfire, so in that way, I absolutely live up to the stereotype. The red hair suits my personality. I was a terrible blonde!
+ - I find that it’s the simple things that remind you of family around the holidays.
+ - I’ve always really loved action films, but I don’t see myself as a superhero girl.
+ - I think the kick to doing comedy is just to get in a film with really funny people and let them do their jobs. I find that in most comedies, I’m not the funny one, which works out great.
+ - My job as an actress is to make things work and come up with reasons of my own and not just fill in the blanks for anybody else, you know what I mean?
+ - I always had a larger view. I’m interested in real life – my family, my friends. I have tried never to define myself by my success, whatever that is. My happiness is way beyond roles and awards.
+ - If I had a project that I had auditioned for and I was getting close to getting it, I didn’t want to tell anybody because I thought then I wouldn’t get it, but in reality that really had no bearing on whether or not I got a part.
+ - Working with green screen, you really rely on the director in a way that you don’t on different types of films.
+ - How I work is I work from of very character-driven place. And I trust the writers.
+ - One of my least favorite things about being even remotely recognizable is that I’m not allowed to watch in the same way anymore. You try not to hide from the world because you want to still participate and still be inspired by what’s around you.
+ - I always want to defeat supervillains – it’s just the chicken-and-broccoli diet that I’m not into.
+ - I was one of seven, and we took a lot of road trips – long road trips. And this was before iPhones and iPads and DVD players in cars. I remember how novel it was when I got my own Walkman so I could listen to music.
+ - I always have directors who are somewhat frustrated because they’ll reference a beautifully obscure film from the ’50s or ’60s or ’70s, and I’ve not seen it.
+ - I always saw myself as more of a watcher, although I suppose my siblings might have a different viewpoint on it.
+ - I don’t intentionally try to find the scripts with unattractive characters, but I think that if a character is described in a script as heart-stoppingly beautiful, and there’s nothing else said about her, it just doesn’t hold a lot of interest for me.
+ - I’ve always been really comfortable around athletics, I’ve just never been comfortable playing anything.
+ - It’s just very homey in Ireland. It’s very comforting and comfortable. There’s lots of fireplaces with fires. It’s just really cozy.
+
+42 quotes

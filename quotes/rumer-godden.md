@@ -1,0 +1,26 @@
+ - There is an Indian proverb that says that everyone is a house with four rooms, a physical, a mental, an emtional, and a spiritual. Most of us tend to live in one room most of the time but unless we go into every room every day, even if only to keep it aired, we are not a complete person.
+ - Once you have felt the Indian dust, you will never be free of it.
+ - It’s only by being obstinate that anything is got, or done.
+ - You must remember garden catalogues are as big liars as house-agents.
+ - I don’t know if I believe in God, but I know I believe in the devil. I have met him.
+ - You can be a nuisance to your family. You mustn’t be a nuisance to your friends.
+ - Most grown people are like icebergs, three-tenths showing, seven-tenths submerged – that is why a collision with one of them is unexpectedly hurtful...
+ - Every time a child, any child, is born, it is new – and different; that is the wonder.
+ - If books were Persian carpets, one would not look only at the outer side. because it is the stitch that makes a carpet wear, gives it its life and bloom.
+ - Drink very good tea out of a thin Wocester cup of colour between apricot and pink...
+ - Memory is the only friend of grief.
+ - If you love the wrong people it’s still love, isn’t it, no matter what kind of love...
+ - I loved Mr. Darcy far more than any of my own husbands.
+ - As one gets older being sad and miserable can become a bit of a habit. To counteract this, she suggests making a point of savoring such things as the tastiness of a piece of fruit, or other small things we might have been prone to overlook during our younger, busier days.
+ - Every piece of writing starts from what I call a grit a sight or sound, a sentence or happening that does not pass away but quite inexplicably lodges in the mind.
+ - The stitch of a book is its words.
+ - A garden isn’t meant to be useful. It’s for joy.
+ - Of course one never knows in draft if it’s going to turn out, even with my age and experience.
+ - To me and my kind life itself is a story and we have to tell it in stories – that is the way it falls.
+ - To wake for the first time in a new place can be like another birth.
+ - The best would be to have friends who came and went away; but if I had to choose between their never coming or never going away, I think I would choose that they do not come.
+ - Wanting is the beginning of getting.
+ - With everything that happens to you, with everyone you meet who is important to you, you either die a little or are born.
+ - For an author nothing is as dead as a book once it is written.
+
+24 quotes

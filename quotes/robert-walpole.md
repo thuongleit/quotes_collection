@@ -1,0 +1,22 @@
+ - Let sleeping dogs lie.
+ - All history is a lie!
+ - Every man has his price.
+ - The gratitude of place-expectants is a lively sense of future favours.
+ - It is but refusing to gratify an unreasonable or an insolent demand, and up starts a patriot.
+ - I took the right sow by the ear.
+ - Persons extremely reserved are like old enamelled watches, which had painted covers, that hindered your seeing what o’clock it was.
+ - Is it no imputation to be arraigned before this House, in which I have sat forty years, and to have my name transmitted to posterity with disgrace and infamy?
+ - Oh, do not read history, for that I know must be false.
+ - The very idea of true patriotism is lost, and the term has been prostituted to the very worst of purposes. A patriot, sir! Why, patriots spring up like mushrooms!
+ - Gentlemen have talked a great deal of patriotism. A venerable word, when duly practiced.
+ - Though I admire republican principles in theory, yet I am afraid the practice may be too perfect for human nature. We tried a republic last century, and it failed. Let our enemies try next. I hate political experiments.
+ - If they are really persuaded that the army is annually established by me, that I have the sole disposal of posts and honours, that I employ this power in the destruction of liberty and the diminution of commerce, let me awaken them from their delusion.
+ - No expense has been incurred but what has been approved of and provided for by Parliament.
+ - IT has been observed by several gentlemen, in vindication of this motion, that if it should be carried, neither my life, liberty, nor estate will be affected.
+ - I can not, therefore, see how this can be imputed as a crime, or how any of the king’s ministers can be blamed for his doing what the public has no concern in; for if the public be well and faithfully served it has no business to ask by whom.
+ - Whatever was the conduct of England, I am equally arraigned.
+ - I have never been afraid of making patriots; but I disdain and despise all their efforts.
+ - I will not attempt to deny the reasonableness and necessity of a party war; but in carrying on that war all principles and rules of justice should not be departed from.
+ - Many words are not wanting to show that the particular view of each court occasioned the dangers which affected the public tranquillity; yet the whole is charged to my account. Nor is this sufficient.
+
+20 quotes

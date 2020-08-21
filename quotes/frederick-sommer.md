@@ -1,0 +1,24 @@
+ - Some speak of a return to nature, I wonder where they could have been?
+ - The Art of Vermeer must have been there on the morning of creation.
+ - Life itself is not the reality. We are the ones who put life into stones and pebbles.
+ - In total acceptance, almost everything becomes a revelation.
+ - Photography is a distributive act leading to a privileged condition.
+ - Art is the splendor of reality before everything has become meaning.
+ - Ideas and thoughts collide and sort themselves out in these fruitful collisions.
+ - Choice and chance structure art and nature.
+ - Reality is greater than our dreams.
+ - We work for that part of our vision which is uncompleted.
+ - Art accepts what it finds.
+ - Art and accident are one.
+ - My photographs are not pure: they are a seething wealth of imperfection.
+ - Everything is shared by everything else; there are no discontinuities.
+ - Art is not arbitrary. A fine painting is not there by accident; it is not arrived at by chance. We are sensitive to tonalities.
+ - The field of action of a photograph should be that chessboard of the heart and mind upon which poetry and art have always operated.
+ - The coherent way of investigating any field is to examine its possible relatedness to other things.
+ - Ideas and art are the possibility of an answer tomorrow.
+ - The only way to understand something is to be confronted by something that is difficult to understand.
+ - Poetic and speculative photographs can result if one works carefully and accurately, yet letting chance relationships have full play.
+ - The smallest modification of tonality affects structure. Some things have to be rather large, but elegance is the presentation of things in their minimum dimensions.
+ - Words represent images: nothing can be said for which there is no image.
+
+22 quotes

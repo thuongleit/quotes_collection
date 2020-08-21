@@ -1,0 +1,80 @@
+ - Only the ephemeral is of lasting value.
+ - It is not the answer that enlightens, but the question.
+ - A writer never has a vacation. For a writer, life consists of either writing or thinking about writing.
+ - Ideologies separate us. Dreams and anguish bring us together.
+ - God is dead. Marx is dead. And I don’t feel so well myself.
+ - All cats die. Socrates is dead. Therefore Socrates is a cat.
+ - There are more dead people than living. And their numbers are increasing. The living are getting rarer.
+ - Drama lies in extreme exaggeration of the feelings, an exaggeration that dislocates flat everyday reality.
+ - Good men make good rhinoceroses, unfortunately.
+ - The end of childhood is when things cease to astonish us. When the world seems familiar, when one has got used to existence, one has become an adult.
+ - That’s how we stay young these days: murder and suicide.
+ - I am, it seems, an avant-garde dramatist. It would even seem obvious since I am present here at discussions on the avant-garde theatre. It is all entirely official. But what does the term avant-garde mean?
+ - A work of art is above all an adventure of the mind.
+ - Childhood is the world of miracle and wonder; as if creation rose, bathed in the light, out of the darkness, utterly new and fresh and astonishing. The end of childhood is when things cease to astonish us.
+ - The brightest light, the light of Italy, the purest sky of Scandinavia in the month of June is only a half-light when one compares it to the light of childhood. Even the nights were blue.
+ - Banality is a symptom of non-communication. Men hide behind their cliches.
+ - I’ll never waste my dreams by falling asleep. Never again.
+ - I’ve always been suspicious of collective truths.
+ - It isn’t what people think that is important, but the reason they think what they think.
+ - A nose that can see is worth two that sniff.
+ - The more I try to explain myself, the less I understand myself.
+ - I personally would like to bring a tortoise onto the stage, turn it into a racehorse, then into a hat, a song, a dragoon and a fountain of water. One can dare anything in the theatre and it is the place where one dares the least.
+ - Many people have delusions of grandeur but you’re deluded by triviality.
+ - Describe a circle, stroke its back and it turns vicious.
+ - Why was I born, if it wasn’t forever?
+ - A really conscientious doctor ought to die with his patient. The captain goes down with his ship.
+ - To me the world seems grotesque, absurd, ridiculous, painful.
+ - The supreme trick of mass insanity is that it persuades you that the only abnormal person is the one who refuses to join in the madness of others, the one who tries vainly to resist. We will never understand totalitarianism if we do not understand that people rarely have the strength to be uncommon.
+ - DAISY: I never knew you were such a realist-I thought you were more poetic. Where’s your imagination? There are many sides to reality. Choose the one that’s best for you. Escape into the world of imagination.
+ - Childhood is the world of miracle and wonder; as if creation rose, bathed...
+ - People always try to find base motives behind every good action. We are afraid of pure goodness and of pure evil.
+ - Why do people always expect authors to answer questions? I am an author because I want to ask questions. If I had answers, I’d be a politician.
+ - If one does not understand the usefulness of the useless and the uselessness of the useful, one cannot understand art.
+ - The critic should describe, and not prescribe...
+ - No society has been able to abolish human sadness, no political system can deliver us from the pain of living, from our fear of death, our thirst for the absolute. It is the human condition that directs the social condition, not vice versa.
+ - A civil servant doesn’t make jokes.
+ - Of course, not everything is unsayable in words, only the living truth.
+ - Theatre is simply what cannot be expressed by any other means; a complexity of words, movements, gestures that convey a vision of the world inexpressible in any other way.
+ - When silence confronts us, the question to which there is no answer rings out in the silence. That ultimate “why,” that great “why” is like a light that blots out everything, but a blinding light; nothing more can be made out...
+ - There is nothing truer than myth: history, in its attempt to realize myth, distorts it, stops halfway; when history claims to have succeeded, this is nothing but humbug and mystification. Everything we dream is realizable. Reality does not have to be: it is simply what it is.
+ - Explanation separates us from astonishment, which is the only gateway to the incomprehensible.
+ - When I was born, I was almost fourteen years old. That’s why I was able to understand more easily than most what it was all about.
+ - You can only predict things after they have happened.
+ - A person who has not completely lost the memory of paradise, even though it is a faint one, will suffer endlessly. He will feel the call of the essential world, will hear the voice that comes from so far away that one cannot find out where it comes from, a voice that cannot guide him.
+ - Every message of despair is the statement of a situation from which everybody must freely try to find a way out.
+ - I long for solitude and yet I cannot stand it.
+ - Language should almost break up or explode in its fruitless effort to contain so many meanings.
+ - An avant-garde man is like an enemy inside a city he is bent on destroying, against which he rebels; for like any system of government, an established form of expression is also a form of oppression. The avant-garde man is the opponent of an existing system.
+ - You’ve always made the mistake of being yourself.
+ - We are all looking for something of extraordinary importance whose nature we have forgotten; I am writing the memoirs of a man who has lost his memory.
+ - If I write a new play, my point of view may be profoundly modified. I may be obliged to contradict myself and I may no longer know whether I still think what I think.
+ - We are made to be immortal, and yet we die. It’s horrible, it can’t be taken seriously.
+ - Realism falls short of reality. It shrinks it, attenuates it, falsifies it; it does not take into account our basic truths and our fundamental obsessions: love, death, astonishment. It presents man in a reduced and estranged perspective. Truth is in our dreams, in the imagination.
+ - Dreams are reality at its most profound.
+ - Childhood is over the moment things are no longer astonishing.
+ - To tear ourselves away from the everyday, from habit, from mental laziness which hides from us the strangeness of reality, we must receive something like a real bludgeon blow.
+ - There is no religion in which everyday life is not considered a prison; there is no philosophy or ideology that does not think that we live in alienation.
+ - It’s only when I say that everything is incomprehensible that I come as close as possible to understanding the only thing it is given to us to understand.
+ - I am not capitulating.
+ - Shakespeare was the great one before us. His place was between God and despair.
+ - A man with a soul is not like every other man.
+ - Oh righteous doom, that they who make Pleasure their only end, Ordering the whole life for its sake, Miss that whereto they tend. While they who bid stern duty lead, Content to follow, they, Of duty only taking heed, Find pleasure by the way.
+ - Boredom flourishes too, when you feel safe. It’s a symptom of security.
+ - I still forget, sometimes, that I am no longer 12 years old.
+ - I just can’t get used to life.
+ - Everything that has been will be, everything that will be is, everything that will be has been.
+ - Beauty is a precious trace that eternity causes to appear to us and that it takes away from us. A manifestation of eternity, and a sign of death as well.
+ - I started writing for the theatre because I hated it.
+ - We have not the time to take our time.
+ - It’s when I am fully conscious that I ask questions.
+ - Logic is a very beautiful thing. As long as it is not abused.
+ - Nothing makes me more pessimistic than the obligation not to be pessimistic.
+ - I’ve always been suspicious of collective truths. I think an idea is true when it hasn’t been put into words and that the moment it’s put into words it becomes exaggerated. Because the moment it’s put into words there’s an abuse, an excess in the expression of the idea that makes it false.
+ - Mediocrity is more dangerous in a critic than in a writer.
+ - The poet cannot invent new words every time, of course. He uses the words of the tribe. But the handling of the word, the accent, a new articulation, renew them.
+ - To become conscious of what is horrifying and to laugh at it is to become master of that which is horrifying.
+ - Like all revolutions, the surrealist revolution was a reversion, a restitution, an expression of vital and indispensable spiritual needs.
+ - People who don’t read are brutes.
+
+78 quotes

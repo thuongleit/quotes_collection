@@ -1,0 +1,57 @@
+ - I would say chemistry between two people is very powerful. You have to fight to keep it, but if you don’t have it, you can’t manufacture it.
+ - I know I’ve made the right decision when I’ve followed my heart.
+ - Blessings come in disguise. And challenges can be a blessing.
+ - I try not to be overly analytical.
+ - I think that anybody that smiles automatically looks better.
+ - Independent films have a very different cachet than success films.
+ - That’s why they call it work, because it’s not what you’d prefer to do with your free time.
+ - Americans are like Pac Man. We just eat our way through the day. There’s always something going into the mouth.
+ - You can’t get work without working.
+ - Because that’s what intimacy is: It’s a willingness to be vulnerable, a willingness to bite my tongue and a willingness to set an example of what I believe in.
+ - It’s always refreshing to step into another time.
+ - You’ll never have any mental muscle if you don’t have any heavy stuff to pick up.
+ - There is something wonderful about coming to terms with time – that it is finite. You want to have as much joy in your life as possible, and you take responsibility for your own joy.
+ - I think the secret to happiness is having a Teflon soul. Whatever comes your way, you either let it slide or you cook with it.
+ - I think that directing is the ultimate martyred task of filmmaking, that it has nobility to it. It takes three years to make a film, for the most part. I think it requires the attentiveness of a mother hen.
+ - I don’t lie. I would never stuff my bra because it’s going to come off and the truth is going to be revealed. I don’t like that padding. I try to be completely – if not brutally – honest.
+ - More yoga in the world is what we need.
+ - Sometimes I think opposable thumbs were invented so teenage girls could use text messaging.
+ - For me, going away to work is the hardest part of my life and career.
+ - I bought into the myth that you are not complete without romantic love, without a mate. And it can really distract you from your goals. But sometimes you have to take a leap.
+ - I’m not a bad parent and partner, even if I make a thousand mistakes.
+ - I love my work, but there is no price you can put on what you miss when you are away from your kids.
+ - I love the rebelliousness of snail mail, and I love anything that can arrive with a postage stamp. There’s something about that person’s breath and hands on the letter.
+ - It’s nice to have a pause to parent and to be more present at home, teaching them how to drive cars and navigate boys and all this sort of thing.
+ - If people knew what made hits they’d make more of them, so to have the illusion of control over one’s career isn’t something I can even pretend to have.
+ - I think fun is an important part of the entertainment industry, and it should be. Anybody who’s not incorporating some of that into their work needs to take a break, go away, and have an attitude adjustment.
+ - I wish I could always look like I’ve just finished a really good laugh.
+ - I loved acting, I started as a child and it is interesting because I didn’t compare myself to others that were doing the same thing. I just felt that I needed to stay focused and stay out of trouble.
+ - When I really young yet feeling very old, I offered up a lot of myself to the press; I knew it was good copy.
+ - I was raised by free-spirited people, though my father gave me a very strong work ethic.
+ - I’ve found there to be a tremendous amount of East Coast snobbery in the journalism world.
+ - To me, there’s no greater reward than being around people you care about and can be present with.
+ - My parents treated my like I had a brain – which, in turn, caused me to have one.
+ - You see the movie with the music and the editing and all the parts that you weren’t there for when it was being filmed, and you really appreciate all the names that are scrolling by. You realize that you accomplished so much.
+ - When I was about seven, I started touring the globe as part of New York’s La MaMa theater company – without my parents!
+ - I want to sit down, and I want to laugh. Nothing works better for me than watching somebody slip on a banana peel.
+ - You can only be a virgin once. There can only be one first time.
+ - I don’t really know how to relate to a long-term day-in day-out kind of comfortable relationship.
+ - I’m fascinated by how Hollywood has changed since I started. Today it’s about immediate delivery. There’s less risk and less art.
+ - Every film is its own experience, its own planet, its own family. It seems infinite when you’re working on it, and then it’s suddenly very finite, and it’s done.
+ - When I was 12, all I wanted was to be good at school, and to do something admirable, something you can’t take away from me because I’m not popular or beautiful enough.
+ - When I was growing up in New York City, my father was a taxi driver for a time.
+ - I can tell you that, you know, when I went to my first movie premiere, it was my own movie, and I wore the best jeans I had and my favorite top. You know, I made sure my hair had some wave in it because I braided it the night before myself.
+ - I think I’d be in an entirely different business if it were easy.
+ - I feel like I’m the most forgiven actress I can think of, probably because of this short memory people have!
+ - Catholics have guilt and Jews have guilt, fine. But mothers can trump them all.
+ - You really can’t take a cat and turn it into a dog, or try and get lemons off an apple tree, or what have you.
+ - Because I tend to kind of hide under the sheets when it comes to reality television. I’ve seen probably one episode of maybe five different shows, and that’s about it.
+ - For me, I don’t even like to promote my films but I have to because it’s in the fine print of my contract.
+ - I grew up loving horses. I was relatively obsessed, starting with my rocking horse at age 2, all the way through my painting and drawing phase.
+ - But I do love horses. They are such an expression of joy.
+ - I have just enough attention to feel glamorous and important.
+ - Well, I can fake my way around some things, but I don’t think I would be good at betting.
+ - I don’t know what it is, exactly, but there’s a negative drag on film sets after the second week or so, a mutinous vibe because the infinite capacities of the directors and everybody else become quite finite and everybody’s under the gun and it becomes work.
+ - Well, I didn’t really admit that I anywhere until my daughter started school and I knew I couldn’t pull up and leave when I felt like it.
+
+55 quotes

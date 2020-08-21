@@ -1,0 +1,29 @@
+ - Sometimes it is the people no one imagines anything of who do the things that no one can imagine. ~~Alan Turing
+ - Programming is a skill best acquired by practice and example rather than from books. ~~Alan Turing
+ - We can only see a short distance ahead, but we can see plenty there that needs to be done. ~~Alan Turing
+ - A computer would deserve to be called intelligent if it could deceive a human into believing that it was human. ~~Alan Turing
+ - A very large part of space-time must be investigated, if reliable results are to be obtained. ~~Alan Turing
+ - Codes are a puzzle. A game, just like any other game. ~~Alan Turing
+ - It seems probable that once the machine thinking method had started, it would not take long to outstrip our feeble powers. They would be able to converse with each other to sharpen their wits. At some stage therefore, we should have to expect the machines to take control. ~~Alan Turing
+ - Do you know why people like violence? It is because it feels good. Humans find violence deeply satisfying. But remove the satisfaction, and the act becomes hollow. ~~Alan Turing
+ - I believe that at the end of the century the use of words and general educated opinion will have altered so much that one will be able to speak of machines thinking without expecting to be contradicted. ~~Alan Turing
+ - Machines take me by surprise with great frequency. ~~Alan Turing
+ - Science is a differential equation. Religion is a boundary condition. ~~Alan Turing
+ - A man provided with paper, pencil, and rubber, and subject to strict discipline, is in effect a universal machine. ~~Alan Turing
+ - If a machine is expected to be infallible, it cannot also be intelligent. ~~Alan Turing
+ - Mathematical reasoning may be regarded... ~~Alan Turing
+ - The original question, ‘Can machines think?’ I believe to be too meaningless to deserve discussion. ~~Alan Turing
+ - One day ladies will take their computers for walks in the park and tell each other, “My little computer said such a funny thing this morning”. ~~Alan Turing
+ - Instead of trying to produce a programme to simulate the adult mind, why not rather try to produce one which simulates the child’s? If this were then subjected to an appropriate course of education one would obtain the adult brain. ~~Alan Turing
+ - My little computer said such a funny thing this morning. ~~Alan Turing
+ - No, I’m not interested in developing a powerful brain... ~~Alan Turing
+ - Unless in communicating with it one says exactly what one means, trouble is bound to result. ~~Alan Turing
+ - Mathematical reasoning may be regarded rather schematically as the exercise of a combination of two facilities, which we may call intuition and ingenuity. ~~Alan Turing
+ - We are not interested in the fact that the brain has the consistency of cold porridge. ~~Alan Turing
+ - No, I’m not interested in developing a powerful brain. All I’m after is just a mediocre brain, something like the President of the American Telephone and Telegraph Company. ~~Alan Turing
+ - The idea behind digital computers may be explained by saying that these machines are intended to carry out any operations which could be done by a human computer. ~~Alan Turing
+ - I’m afraid that the following syllogism may be used by some in the future. Turing believes machines think Turing lies with men Therefore machines do not think Yours in distress, Alan. ~~Alan Turing
+ - We may hope that machines will eventually compete with men in all purely intellectual fields. ~~Alan Turing
+ - Instruction tables will have to be made up by mathematicians with computing experience and perhaps a certain puzzle-solving ability. There need be no real danger of it ever becoming a drudge, for any processes that are quite mechanical may be turned over to the machine itself. ~~Alan Turing
+
+27 quotes

@@ -1,0 +1,62 @@
+ - We are not trapped or locked up in these bones. No, no. We are free to change. And love changes us. And if we can love one another, we can break open the sky.
+ - Lawyer even sounds like liar.
+ - When you deal with a person who’s experiencing dementia, you can see where they’re struggling with knowledge. You can see what they forget completely, what they forget but they know what they once knew. You can tell how they’re trying to remember.
+ - A man’s bookcase will tell you everything you’ll ever need to know about him.
+ - Freedom is a state of mind, I said wondering where I’d heard it before, not a state of being. We are all slaves to gravity and morality and the vicissitudes of nature. Our genes govern us much more than we’d like to think. Our bodies can not know absolute freedom but our minds can, can at least try.
+ - A peasant that reads is a prince in waiting.
+ - I took up writing to escape the drudgery of that every day cubicle kind of war.
+ - My hero in comic books is Jack Kirby: ‘Spider-Man,’ ‘Fantastic Four,’ ‘Captain America,’ Marvel Comics. He was really the basis for Marvel Comics.
+ - I think that computer programming shows in my writing. Often when I write about computer programmers I’ll write about the way that they see the world and they structure the world.
+ - The police and I have a deal. I don’t talk to them and they don’t listen to me.
+ - I’m almost completely without family and it’s a very odd feeling in life. I have no children.
+ - I always tell people, if a young girl read “Beloved” as her first novel, she’d have to kill either herself or her mother, because in “Beloved” you have a mother killing their children. This is not something a child would accept very easily. And would never understand.
+ - I laugh, that there’s a certain kind of cyclical nature to life and that I don’t have to worry because whatever isn’t there right now, it’s coming back again.
+ - Every day that we wake up is a good day. Every breath that we take is filled with hope for a better day. Every word that we speak is a chance to change what is bad into something good.
+ - People don’t understand how hard it is to get recognized, how hard it is to get people to read your books. How hard it is to get people to even to understand what they’re reading when they’re talking to you about their books.
+ - My experience of people in dementia is that a lot of their personality, a lot of their knowledge, a lot of their experience is still there but there’s not a direction connection that they can just reach out and get it and then bring it back.
+ - Literature is the adventure. It’s the story, it’s the fight, it’s people falling in love, it’s people with deep personality disorders who succeed anyway beyond themselves. That’s what great literature is.
+ - Losing my parents really set me adrift in more ways than one. It’s not just losing them. It’s losing the possibility of family.
+ - Rest easy and go with the faith you lived with.
+ - The fear in my heart was like in one of those dreams where you try to run but you can’t do it, you can’t run because the fear is an anchor in your chest.
+ - This is all you have to do. Sit down once a day to the novel and start working without internal criticism, without debilitating expectations, without the need to look at your words as if they were already printed and bound. The beginning is only a draft. Drafts are imperfect by definition.
+ - I would have been completely brainwashed by this lopsided and racist view of the world if it weren’t for my father. He was a deep thinker and an irrepressible problem solver. He was a Black Socrates, asking why and then spoiling ready-made replies.
+ - There’s a resistance for people to talk about things that make them feel guilty. When natural disasters happen, it’s easier not to feel guilty about it.
+ - The job of the writer is to take a close and uncomfortable look at the world they inhabit, the world we all inhabit, and the job of the novel is to make the corpse stink.
+ - Love makes you blind to your own survival. And if it doesn’t then it’s not love at all.
+ - My father cared about the world he lived in, and so he admitted his confusion about his place in America because he didn’t want me to make the same mistake in my life.
+ - At one time if you were a black writer you had to be one of the best writers in the world to be published. You had to be great. Now you can be good. Mediocre. And that’s good.
+ - All writing is that structure of revelation. There’s something you want to find out. If you know everything up front in the beginning, you really don’t need to read further if there’s nothing else to find out.
+ - Mouse was the truest friend I ever had. And if there is such a thing as true evil, he was that too.
+ - The older you get the more you live in the past.
+ - There are as many kinds of love as there are flowers and bugs put together but men and women and their needs are all the same.
+ - All great popular literature today one day will be seen as great literature and will no longer be seen as popular literature.
+ - Your book grows. The early part of your book is growing still while you are writing the later part of your book.
+ - The idea of being productive, the idea of producing many books is going to lead you toward you becoming a better and better writer.
+ - I understood about fear. And I knew better than anyone in that room what Mouse was capable of. But still I had been raised in a place where to show your fear was worse than cowardice. It was suicide, a sin.
+ - Poetry teaches us music, metaphor, condensation and specificity.
+ - I have never thought that I have sacrificed anything being a writer. That might not be true, maybe I have sacrificed something. Maybe I’ve given something up, but I can’t think of it.
+ - The biggest misconception that people have about the literary life is the romance of it. That a writer has this large world available to him or her of people, of ideas, of experiences, of interchange of ideas.
+ - I believe that a writer has to tell what they think is the truth in a human experience. The truth of the human experience cannot escape the political.
+ - I never really thought I’d be successful. I never though I’d get books published, but this was something completely beyond me. The fact that it happened is wonderful, but it is not something that I was aiming for.
+ - I think of writers as explorers, not necessarily as detectives. So there is certainly detecting that is going on, but they’re explorers.
+ - I think that people don’t know how to do anything anymore. My father was a janitor. He could take a car apart and put it back together. He could build a house in the back yard. Today, if you ask people what they know, they say, ‘I know how to hire someone.’
+ - I think that it’s important to try to keep reality. I think that Gabriel Garcia Marquez speaks a lot about reality in his magical realism. So I don’t think we have to be hyper-realistic. But we have to understand the pressures that undergird the lives of the characters within that novel.
+ - The life most of us live are lives we are forced to live by immediate needs, influences, and pressures.
+ - The way I write is this: I write about a thousand words a day, a little bit more. The next morning, I read those thousand words and cursorily edit that. Then I write the next thousand. I do that all the way to the end of the book and then I reread the book quite a few times, editing as go through.
+ - My job is writing for people to enjoy and then writing about a broader and a deeper world.
+ - When you talk about painters and you talk about painters painting masterpieces, there is no painter who painted only one painting and that was a masterpiece. You have to do a whole bunch of paintings to get to the place of mastering your craft.
+ - Purely the idea of writing a lot of books doesn’t make you a great writer, but it might be that the process of doing a lot of writing will make you a much better writer.
+ - A man who is already insane was frightening enough, but when he goes crazy...
+ - The first thing you have to know about writing is that it is something you must do every day – every morning or every night, whatever time it is that you have. Ideally, the time you decide on is also the time when you do your best work.
+ - Better to listen to the gospel than to a mortal leader.
+ - I don’t ever know where I’m going. Because one of the wonderful things about writing, which is different than working in programming, you don’t need to know. You could just write and discover where you’re going. And it’s a great deal of fun.
+ - There’s many things that I am. And all of those things come together at some point. If somebody wants to limit me, you know and they’ll say, ‘Well, this is Walter Mosley, the mystery writer.’ I don’t like that. Because I do many things.
+ - I’m writing, I’m using language, I’m using that language to tell stories and even more so to get ideas across. And I just love that, and I’ve always loved that.
+ - I write every day and I just love doing it. It’s just a wonderful thing. Some of my stories work, some of them don’t work. Some of them are wild and I love them, but they certainly don’t fit into any kind of a normal system that I know about.
+ - The first thing you have to know about writing is that it is something you must do everyday. There are two reasons for this rule: Getting the work done and connecting with your unconscious mind.
+ - Susan Straight finds LA’s secret heart in Between Heaven and Here and with a sleight of hand only the masters have, she creates an alley, a neighborhood, a history that is as rich and tragic as any Shakespearean tale.
+ - Writing is almost a place of dreams for me, and I don’t have to give up anything to do it.
+ - Comic books were telling me what life was about. This was how I kind of entered life, through fiction.
+ - I’m just a survivor from the train wreck of the modern world.
+
+60 quotes

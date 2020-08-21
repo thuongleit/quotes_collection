@@ -1,0 +1,339 @@
+ - A man who procrastinates in his choosing will inevitably have his choice made for him by circumstance.
+ - Buy the ticket, take the ride.
+ - Faster, Faster, until the thrill of speed overcomes the fear of death.
+ - Anything that gets your blood racing is probably worth doing.
+ - Too weird to live, too rare to die!
+ - Life is beautiful and living is pain.
+ - Life has become immeasurably better since I have been forced to stop taking it seriously.
+ - Anything worth doing is worth doing well.
+ - Beware of looking for goals: look for a way of life. Decide how you want to live and then see what you can do to make a living WITHIN that way of life.
+ - THE EDGE, there is no honest way to explain it because the only people who really know where it is are the ones who have gone over.
+ - There’s a terrible danger in voting for the lesser of two evils because the parties can set it up that way.
+ - Walk tall, kick ass, learn to speak Arabic, love music and never forget you come from a long line of truth seekers, lovers and warriors.
+ - So we shall let the reader answer this question for himself: who is the happier man, he who has braved the storm of life and lived or he who has stayed securely on shore and merely existed?
+ - Sleep late, have fun, get wild, drink whisky and drive fast on empty streets with nothing in mind but falling in love and not getting arrested.
+ - America... just a nation of two hundred million used car salesmen with all the money we need to buy guns and no qualms about killing anybody else in the world who tries to make us uncomfortable.
+ - You can’t miss what you never had.
+ - Never turn your back on fear. It should always be in front of you, like a thing that might have to be killed.
+ - Hope rises and dreams flicker and die. Love plans for tomorrow and loneliness thinks of yesterday. Life is beautiful and living is pain.
+ - I will fight for your right to be weird- just as I know you will fight for mine.
+ - The possibility of physical and mental collapse is now very real. No sympathy for the Devil, keep that in mind. Buy the ticket, take the ride.
+ - Sex without love is as hollow and ridiculous as love without sex.
+ - Freedom is something that dies unless it’s used.
+ - We are all alone, born alone, die alone, and – in spite of True Romance magazines – we shall all someday look back on our lives and see that, in spite of our company, we were alone the whole way.
+ - Human beings are the only creatures on earth that claim a God and the only thing that behaves like it hasn’t got one.
+ - When the going gets weird, the weird turn pro.
+ - You won’t find reasonable men on the tops of tall mountains.
+ - It is not necessary to accept the choices handed down to you by life as you know it.
+ - I don’t see how you can respect yourself if you must look in the hearts and minds of others for your happiness.
+ - Maybe it meant something. Maybe not, in the long run, but no explanation, no mix of words or music or memories can touch that sense of knowing that you were there and alive in that corner of time and the world. Whatever it meant.
+ - There is no story unless you’ve written it.
+ - On some nights, I still believe that a car with the gas needle on empty can run about fifty more miles if you have the right music very loud on the radio.
+ - Kill the body and the head will die.
+ - It never got weird enough for me.
+ - We must ride this strange torpedo out until the end.
+ - In a closed society where everybody’s guilty, the only crime is getting caught. In a world of thieves, the only final sin is stupidity.
+ - Journalism, to me, is just another drug – a free ride to scenes I’d probably miss if I stayed straight.
+ - Call on God, but row away from the rocks.
+ - The only difference between the sane and the insane is that the sane have the power to lock up the insane.
+ - We cannot expect people to have respect for law and order until we teach respect to those we have entrusted to enforce those laws.
+ - As long as I’m learning something, I figure I’m OK – it’s a decent day.
+ - Objective journalism is one of the main reasons that American politics has been allowed to be so corrupt for so long.
+ - The downward spiral of Dumbness in America is about to hit a new low.
+ - There is no such thing as paranoia. Your worst fears can come true at any moment.
+ - If you get people asking the wrong questions, you don’t have to worry about the answers.
+ - Some may never live, but the crazy never die.
+ - Turn the goddam music up! My heart feels like an alligator!
+ - For every moment of triumph, for every instance of beauty, many souls must be trampled.
+ - I learned a long time ago that reality was much weirder than anyone’s imagination.
+ - Good people drink good beer.
+ - All my life, my heart has sought a thing I cannot name. Remembered line from a long- forgotten poem.
+ - Just sick enough to be totally confident.
+ - Morality is temporary, wisdom is permanent.
+ - A man can live on his wits and his balls for only so long.
+ - In a world of thieves, the only final sin is stupidity.
+ - All energy flows according to the whims of the great Magnet. What a fool I was to defy him.
+ - I would feel real trapped in this life if I didn’t know I could commit suicide at any time.
+ - No, this is not a good town for psychedelic drugs. Reality itself is too twisted.
+ - There is an ancient Celtic axiom that says ‘Good people drink good beer.’ Which is true, then as now. Just look around you in any public barroom and you will quickly see: Bad people drink bad beer. Think about it.
+ - On some days you get what you want, and on others, you get what you need.
+ - Politics is the art of controlling your environment.
+ - Remember this, folks – I am a Hillbilly, and I don’t always Bet the same way I talk. Good advice is one thing, but smart gambling is quite another.
+ - The brutal reality of politics would be probably intolerable without drugs.
+ - I was not proud of what I had learned but I never doubted that it was worth knowing.
+ - There are always risks in challenging excessive police power, but the risks of not challenging it are more dangerous, even fatal.
+ - As I see it then, the formula runs something like this: a man must choose a path which will let his ABILITIES function at maximum efficiency toward the gratification of his DESIRES.
+ - Weird behavior is natural in smart children, like curiosity is to a kitten.
+ - Luck is a very thin wire between survival and disaster, and not many people can keep their balance on it.
+ - Ah, that we lack the courage of our romantic convictions; and thereby miss the wine of life, forgoing the very thing that makes living worthwhile.
+ - Relax – This won’t hurt.
+ - Poor bastard. Wait ’till he sees the bats.
+ - As you were, I was. As I am, you will be.
+ - We are all wired into a survival trip, now.
+ - No one HAS to do something he doesn’t want to do for the rest of his life. But then again, if that’s what you wind up doing, by all means convince yourself that you HAD to do it. You’ll have lots of company.
+ - Nixon represents that dark, venal and incurably violent side of the American character almost every other country in the world has learned to fear and despise.
+ - All the blood is drained out of democracy – it dies – when only half the population votes.
+ - The world is still a weird place, despite my efforts to make clear and perfect sense of it.
+ - Music has always been a matter of energy to me, a question of Fuel. Sentimental people call it Inspiration, but what they really mean is Fuel.
+ - I am a generous man, by nature, and far more trusting than I should be. Indeed. The real world is risky territory for people with generosity of spirit. Beware.
+ - Liberalism itself has failed, and for a pretty good reason. It has been too often compromised by the people who represented it.
+ - It gave me a strange feeling, and the rest of that night I didn’t say much, but merely sat there and drank, trying to decide if I was getting older and wiser, or just plain old.
+ - I felt a tremendous distance between myself and everything real.
+ - Old God sure was in a good mood when he made this place.
+ - Richard Nixon was an evil man – evil in a way that only those who believe in the physical reality of the Devil can understand it. He was utterly without ethics or morals or any bedrock sense of decency.
+ - It will be a Religious War, a sort of Christian Jihad, fueled by religious hatred and led by merciless fanatics on both sides. It will be guerilla warfare on a global scale, with no front lines and no identifiable enemy.
+ - With the truth so dull and depressing, the only working alternative is wild bursts of madness and filigree.
+ - I feel trapped if I know I can’t kill myself at anytime.
+ - But after a while you learn to cope with things like seeing your dead grandmother crawling up your leg with a knife in her teeth. Most acid fanciers can handle this sort of thing.
+ - I was never idle long enough to do much thinking, but I felt somehow that my instincts were right.
+ - Have an objective to give your bender a theme. For instance, stalking and killing a wild pig with a bowie knife.
+ - What passed for society was a loud, giddy whirl of thieves and pretentious hustlers, a dull sideshow full of quacks and clowns and philistines with gimp mentalities.
+ - I understand that fear is my friend, but not always. Never turn your back on Fear. It should always be in front of you, like a thing that might have to be killed. My father taught me that, along with a few other things that have kept my life interesting.
+ - I am a road man for the lords of karma.
+ - It was one of those fine little love stories that can make you smile in your sleep at night.
+ - You can turn your back on a person, but never turn your back on a drug, especially when its waving a razor sharp hunting knife in your eye.
+ - It was the Law of the Sea, they said. Civilization ends at the waterline. Beyond that, we all enter the food chain, and not always right at the top.
+ - Of Richard M. Nixon: A foul caricature of himself, a man with no soul, no inner convictions, with the integrity of a hyena and the style of a poison toad.
+ - I hate to advocate drugs, alcohol, violence, or insanity to anyone, but they’ve always worked for me.
+ - Gonzo journalism is a style of reporting based on William Faulkner’s idea that the best fiction is far more true than any kind of journalism...
+ - Absolute truth is a very rare and dangerous commodity in the context of professional journalism.
+ - I was never trying, necessarily, to be an outlaw. It was just the place in which I found myself.
+ - Still humping the American Dream.
+ - No More Games. No More Bombs. No More Walking. No More Fun. No More Swimming. 67. That is 17 years past 50. 17 more than I needed or wanted. Boring. I am always bitchy. No Fun – for anybody. 67. You are getting Greedy. Act your old age. Relax – This won’t hurt.
+ - Duke is an ugly word in Kentucky. Nothing in the world compares to the joy of beating those hateful swine from Duke.
+ - Football fans share a universal language that cuts across many cultures and many personality types. A serious football fan is never alone. We are legion, and football is often the only thing we have in common.
+ - I have no taste for either poverty or honest labor, so writing is the only recourse left for me.
+ - Jesus! Did I SAY that? Or just think it? Was I talking? Did they hear me? I glanced over at my attorney, but he seemed oblivious...
+ - Few people understand the psychology of dealing with a highway traffic cop.
+ - We were somewhere around Barstow, on the edge of the desert, when the drugs began to take hold.
+ - Beware of looking for goals: look for a way of life.
+ - Those of us that had been up all night were in no mood for coffee and donuts, we wanted strong drink. We were, after all, the cream of the national sporting press.
+ - Yesterday’s weirdness is tomorrow’s reason why.
+ - Victory is a fleeting thing in the gambling business. Today’s winners are tomorrow’s blinking toads, dumb beasts with no hope.
+ - I’m a relatively respectable citizen. Multiple felon perhaps, but certainly not dangerous.
+ - Old elephants limp off to the hills to die; old Americans go out to the highway and drive themselves to death with huge cars.
+ - There is no fool like a careless gambler who starts taking victory for granted.
+ - Avoid being seized by the police. The cops are not your friends. Don’t tell them anything.
+ - Bush is a natural-born loser with a filthy-rich daddy who pimped his son out to rich oil-mongers. He hates music, football and sex, in no particular order, and he is no fun at all.
+ - At the top of the mountain we are all snow leopards.
+ - Paranoia is just another mask for ignorance. The truth, when you finally chase it down is almost always far worse than your darkest visions and fears.
+ - There might be some serious fun in politics.
+ - These things happen. One day you run everything, and the next day you run like a dog.
+ - I need beaches, and blackness, and moonlit nakedness.
+ - Las Vegas is the savage heart of the American Dream.
+ - Once I establish credit, I may be able to function. A man needs credit. Especially when he has no money.
+ - The behavior of the crowd at Churchill Downs is like 100,000 vicious Hyenas going berserk all at once in a space about the size of a 777 jet or the White House lawn.
+ - What the hell is the sense of trying to hold the Democratic party together, if it’s really a party of expediency, something that’s put together every four years?
+ - There is something fresh and crisp about the first hours of a Caribbean day, a happy anticipation that something is about to happen, maybe just up the street or around the next corner.
+ - I have a theory that the truth is never told during the nine-to-five hours.
+ - Things are no longer what they seem to be. My telephones are haunted, and animals whisper at me from unseen places.
+ - My blood is too thick for California: I have never been able to properly explain myself in this climate.
+ - Don’t judge your taco by its price.
+ - I miss Nixon. Compared to these Nazis we have in the White House now, Richard Nixon was a flaming liberal.
+ - Graffiti is beautiful; like a brick in the face of a cop.
+ - God’s mercy on you degenerate swine.
+ - With a bit of luck, his life was ruined forever. Always thinking that just behind some narrow door in all of his favorite bars, men in red woolen shirts are getting incredible kicks from things he’ll never know.
+ - Every GOP administration since 1952 has let the Military-Industrial Complex loot the Treasury and plunge the nation into debt on the excuse of a wartime economic emergency.
+ - With the possible exception of things like box scores, race results, and stock market tabulations, there is no such thing as Objective Journalism. The phrase itself is a pompous contradiction in terms.
+ - You better take care of me Lord, if you don’t you’re gonna have me on your hands.
+ - And the whole Bush family, from Texas, should be boiled in poisoned oil.
+ - Insanity is a legal term. Crazy is an art form.
+ - The association of motorcycles with LSD is no accident of publicity. They are both a means to an end, to the place of definitions.
+ - An outlaw can be defined as somebody who lives outside the law, beyond the law and not necessarily against it.
+ - If you’re going to be crazy, you have to get paid for it or else you’re going to be locked up.
+ - We can’t stop here, this is bat country!
+ - Reality itself is too twisted.
+ - Fear is just another word for ignorance.
+ - When you push a car off a cliff and blow it up, be sure to roll the windows down to avoid shrapnel. Also, strip the license plate so you’re not billed for the cleanup.
+ - Without gambling, I would not exist.
+ - Writing is the flip side of sex – it’s good only when it’s over.
+ - Nixon was so crooked that he needed servants to help him screw his pants on every morning.
+ - Fiction is based on reality unless you’re a fairy-tale artist, you have to get your knowledge of life from somewhere. You have to know the material you’re writing about before you alter it.
+ - I’m a word freak. I like words. I’ve always compared writing to music. That’s the way I feel about good paragraphs. When it really works, it’s like music.
+ - In a world as weird and cruel as this one we have made for ourselves, I figure anybody who can find peace and personal happiness without ripping off somebody else deserves to be left alone.
+ - Nixon was a professional politician, and I despised everything he stood for – but if he were running for president this year against the evil Bush-Cheney gang, I would happily vote for him.
+ - I didn’t know Johnny Depp could act until he played me.
+ - There are times, however, and this is one of them, when even being right feels wrong. What do you say, for instance, about a generation that has been taught that rain is poison and sex is death?
+ - Sane is rich and powerful. Insane is wrong and poor and weak. The rich are free, the poor are put in cages. Res Ipsa Loquitur, amen. Mahalo.
+ - I can’t think in terms of journalism without thinking in terms of political ends. Unless there’s been a reaction, there’s been no journalism. It’s cause and effect.
+ - She was wearing the same clothes, but now she looked haggard and dirty. The delicate illusions that get us through life can only stand so much strain.
+ - The Raiders of old were vicious and crazy and cruel. Hanging around their locker room was like hanging around the weight room at Folsom Prison.
+ - He wandered into the Newsroom and asked for a job the same way he’d walk into a barbershop and ask for a haircut, and with no more idea of being turned down.
+ - Sex, drugs, and insanity have always worked for me, but I wouldn’t recommend them for everyone.
+ - Fiction is based on reality unless you’re a fairytale artist.
+ - Some people will tell you that slow is good – but I’m here to tell you that fast is better.
+ - No man is so foolish but he may sometimes give another good counsel, and no man so wise that he may not easily err if he takes no other counsel than his own. He that is taught only by himself has a fool for a master.
+ - Of all the men that have run for president in the twentieth century, only George McGovern truly understood what a monument America could be to the human race.
+ - Today’s pig is tomorrows bacon!
+ - No one holds command over me. No man. No god. No Prince. What is a claim of age for ones who are immortal? What is a claim of power for ones who defy death? Call your damnable hunt. We shall see whom I drag screaming to hell with me.
+ - As your attorney, it is my duty to inform you that it is not important that you understand what I’m doing or why you’re paying me so much money. What’s important is that you continue to do so.
+ - He could shake your hand and stab you in the back at the same time.
+ - You took too much man, too much, too much.
+ - It’s in my interest, in ours perhaps, or maybe the interests of the greater good, for me to smoke a joint, and calm down.
+ - Life should not be a journey to the grave...
+ - Not a wasted word. This has been a main point to my literary thinking all my life.
+ - Those who fail to learn from the brutal stompings visited on them in the past are doomed to be brutally stomped in the future.
+ - Never create anything, it will be misinterpreted, it will chain you and follow you for the rest of your life.
+ - Never mind the track. The track is for punks. We are Road People. We are Cafe Racers.
+ - You can’t play city rules when you live in a jungle.
+ - A little bit of this town goes a very long way.
+ - There is nothing more helpless and irresponsible than a man in the depths of an ether binge.
+ - I felt like a monster reincarnation of Horatio Alger: A man on the move, and just sick enough to be totally confident.
+ - I hate pain, despite my ability to tolerate it beyond all known parameters, which is not necessarily a good thing.
+ - He had that rare weird electricity about him – that extremely wild and heavy presence that you only see in a person who has abandoned all hope of ever behaving normally.
+ - They’re gonna make it look like suicide. I know how those bastards think.
+ - February is always a bad month for TV sports. Football is gone, basketball is plodding along in the annual midseason doldrums, and baseball is not even mentioned.
+ - Yes sir, I am a tortured man for all seasons, as they say, and I have powerful friends in high places. Birds sing where I walk, and children smile when they see me coming.
+ - Crack is ruining the drug culture.
+ - The Sixties were an era of extreme reality. I miss the smell of tear gas. I miss the fear of getting beaten.
+ - Gambling can turn into a dangerous two-way street when you least expect it. Weird things happen suddenly, and your life can go all to pieces.
+ - All we have to do is get out and vote, while it’s still legal, and we will wash those crooked warmongers out of the White House.
+ - In the meantime, I would drink, rest, and ponder the meaning of this mob.
+ - Stay naked as much as possible, but do not impose your orgiastic will on others. Don’t have sex in the lobby – it’s usually awkward.
+ - There is always room for losers in the football business. They are the mother’s milk of gambling, and why not? Somebody has to do it, or there won’t be any winners.
+ - A word to the wise is infuriating.
+ - Good news is rare these days, and every glittering ounce of it should be cherished and hoarded and worshipped and fondled like a priceless diamond.
+ - Wake up and ponder the future.
+ - If Sunday is the Lord’s day, then Saturday belongs to the Devil. It is the only night of the week when he gives out Free passes to the Late show at the Too Much Fun Club.
+ - The waitress had the appearance of a very old hooker who had finally found her place in life.
+ - I keep my mouth shut now. I’ve turned into a professional coward.
+ - There may be flies on you and me, but there are no flies on Jesus.
+ - Fiction is a bridge to the truth that journalism can’t reach.
+ - If we get chased out of Iraq with our tail between our legs, that will be the fifth consecutive Third-world country with no hint of a Navy or an Air Force to have whipped us in the past 40 years.
+ - Anybody who thinks that ‘it doesn’t matter who’s President’ has never been Drafted and sent off to fight and die in a vicious, stupid war on the other side of the world.
+ - I damn well intend to keep on living the way I think I should.
+ - I never claimed to be anything more than a nice guy and an athlete.
+ - Richard Nixon looks like a flaming liberal today, compared to a golem like George Bush. Indeed. Where is Richard Nixon now that we finally need him?
+ - I feel the same way about disco as I do about herpes.
+ - No cop was ever born who wasn’t a sucker for a finely-executed high-speed Controlled Drift all the way around one of those clover-leaf freeway interchanges.
+ - It was like falling down an elevator shaft and landing in a pool full of mermaids.
+ - One thing I have learned in my painful career as a gambler is that bragging when you get lucky and win a few games will plunge you into gloom and unacceptable beatings very soon. It happens every time.
+ - There is nothing Modern about doing dumb things for dumb reasons.
+ - There are many harsh lessons to be learned from the gambling experience, but the harshest one of all is the difference between having Fun and being Smart.
+ - I am more than just a serious basketball fan. I am a life-long addict. I was addicted from birth, in fact, because I was born in Kentucky and I learned, early on, that Habitual Domination was a natural way of life.
+ - In some circles, the Mint 400 is a far, far better thing than the Superbowl, the Kentucky Derby, and the lower Oakland roller derby finals all rolled into one. This race attracts a very special breed.
+ - There was madness in any direction, at any hour. You could strike sparks anywhere. There was a fantastic universal sense that whatever we were doing was right, that we were winning.
+ - The greatest mania of all is passion: and I am a natural slave to passion: the balance between my brain and my soul and my body is as wild and delicate as the skin of a Ming vase.
+ - I am an Addictive Personality, they say, a natural slave to passion – and many Doctors have warned me against it. I am a High-risk Patient.
+ - Richard Nixon was a criminally insane Monster – Bill Clinton is a black-hearted Swine of a friend.
+ - The mind and body must be subjected to extreme stimulus, by means of drugs and music.
+ - I believe the Republicans have never thought that democracy was anything but a tribal myth.
+ - The real power in America is held by a fast-emerging new Oligarchy of pimps and preachers who see no need for Democracy or fairness or even trees, except maybe the ones in their own yards, and they don’t mind admitting it.
+ - To make a point of declaring friendship is to cheapen it. For men’s emotions are very rarely put into words successfully.
+ - Truth is weirder than any fiction I’ve seen.
+ - The highways are crowded with people who drive as if their sole purpose in getting behind the wheel is to avenge every wrong done them by man, beast or fate. The only thing that keeps them in line is their fear of death, jail and lawsuits.
+ - There was an awful suspicion in my mind that I’d finally gone over the hump, and the worst thing about it was that I didn’t feel tragic at all, but only weary, and sort of comfortably detached.
+ - Weird heroes and mould-breaking champions exist as living proof to those who need it that the tyranny of ‘the rat race’ is not yet final.
+ - The regrets I have are so minor. You know, would I leave my Keith Richards hat, with the silver skull on it, on the stool at the coffee shop at LaGuardia? I wouldn’t do that again. But overall, no, I don’t have any regrets.
+ - The person who doesn’t scatter the morning dew will not comb gray hairs.
+ - Sportswriters are a rude and brainless subculture of fascist drunks.
+ - At age 22 I set what I insist is an all-time record for distance hitchhiking in Bermuda shorts: 3,700 miles in three weeks.
+ - If I’d written all the truth I knew for the past ten years, about 600 people – including me – would be rotting in prison cells from Rio to Seattle today. Absolute truth is a very rare and dangerous commodity in the context of professional journalism.
+ - I have long admired Ron Whitehead. He is crazy as nine loons, and his poetry is a dazzling mix of folk wisdom and pure mathematics.
+ - I have never believed much in luck, and my sense of humor has tended to walk on the dark side.
+ - The reason most people play golf is to wear clothes they would not be caught dead in otherwise.
+ - If you can’t make yourself understood by your friends, you’ll be in trouble when your enemies come for you.
+ - In a nation ruled by swine, all pigs are upward mobile.
+ - A little bit of this town goes a very long way. After five days in Vegas you feel like you’ve been here for five years.
+ - The pleasure is in the path, the search for something good...
+ - North Vegas is where you go if you’re a hooker turning forty and the syndicate men on the strip decide you’re no longer much good for business out there with the high rollers.
+ - If you have half a story and you don’t know the rest, you use what you have to pry the rest out of someone.
+ - For a loser, Vegas is the meanest town on earth.
+ - You almost have to be a rock star to generate the kind of fever you need to survive in American politics.
+ - If there is in fact, a heaven and a hell, all we know for sure is that hell will be a viciously overcrowded version of Phoenix.
+ - Not everybody is comfortable with the idea that politics is a guilty addiction. But it is.
+ - Not even the foulest atrocities of Adolf Hitler ever shocked me so badly as these Abu Ghraib photographs did.
+ - A cap of good acid costs five dollars and for that you can hear the Universal Symphony with God singing solo and Holy Ghost on drums.
+ - It was obvious that he was a man who marched through life to the rhythms of some drum I would never hear.
+ - They don’t hardly make ’em like him any more – but just to be on the safe side, he should be castrated anyway.
+ - All golfers fear the one-iron. It has no angle, no loft. The one-iron is a confidence-crusher, a fear trip, an almost guarantee of shame, failure, dumbness and humiliation if you ever use it in public.
+ - The mind of America is seized by a fatal dry rot – and it’s only a question of time before all that the mind controls will run amuck in a frenzy of stupid, impotent fear.
+ - I couldn’t imagine, and I don’t say this with any pride, but I really couldn’t imagine writing without a desperate deadline.
+ - Nixon was a crook, of course, but he was also a rabid football fan – and he knew the game, which still astounds me, but I have always had a soft spot for him because of it.
+ - Like most of the others, I was a seeker, a mover, a malcontent, and at times a stupid hell-raiser.
+ - I never knew where I was going, but I ripped the tits off of everything that got in my way. By the time they figured me out, it was too late.
+ - The first paragraph. The last paragraph. That’s where the story is going and how it’s going to end. Or else you’ll go off in a hundred different directions.
+ - I have always loved marijuana. It has been a source of joy and comfort to me for many years. And I still think of it as a basic staple of life, along with beer and ice and grapefruits – and millions of Americans agree with me.
+ - Democracy as a system has evolved into something that Thomas Jefferson didn’t anticipate.
+ - I’ve been studying drugs for years.
+ - Words are such a poor medium when you really want someone to feel something.
+ - I went to the Democratic Convention as a journalist, and returned a cold-blooded revolutionary.
+ - I don’t think that my kind of journalism has ever been universally popular. It’s lonely out here.
+ - The TV business is uglier than most things. It is normally perceived as some kind of cruel and shallow money trench through the heart of the journalism industry, a long plastic hallway where thieves and pimps run free and good men die like dogs, for no good reason.
+ - I measure my life in pages. If I have pages at dawn, it’s been a good night.
+ - A sense of humor is the main measure of sanity.
+ - I am surprised and embarrassed to be a part of the first American generation to leave the country in far worse shape than it was when we first came into it.
+ - We must have football. What would this country be without football in October?
+ - I have always hated bowling, and I don’t mind admitting it.
+ - Myths and legends die hard in America.
+ - A man never stoops so low as when he rises to the challenge of politics.
+ - Never fire a warning shot. It is a waste of ammunition.
+ - I had a soft-spot in my heart for Ronald Reagan, if only because he was a sportswriter in his youth.
+ - The trouble with Nixon is that he’s a serious politics junkie. He’s totally hooked and like any other junkie, he’s a bummer to have around, especially as President.
+ - I wanted to take off all my clothes and never wear them again.
+ - Nixon was a bad loser. He hated losing worse than death, and that is why I enjoyed him. We were both football fans, both addicts; and on some days, nothing else mattered.
+ - All advice can only be a product of the man who gives it.
+ - I voted for Ralph Nader in 2000, but I will not make that mistake again. The joke is over for Nader. He was funny once, but now he belongs to the dead.
+ - The next MVP of the Super Bowl is just as likely to have been a full-time grocery store bagger last year as a Heisman Trophy winner.
+ - You can’t hoard fun. It has no shelf life.
+ - Any combination of a 250-pound Mexican and LSD-25 is a potentially terminal menace for anything it can reach.
+ - Don’t have sex in the lobby – it’s usually awkward.
+ - But I am in the gambling business, for good or ill; it is the business I have chosen, and the only governing rule that we all recognize is: always sit close to an exit and never trust a man who doesn’t sweat.
+ - The Jews don’t beleive in Jesus! Why should I?! WHOOOEEEE!!
+ - Las Vegas makes Reno seem like your friendly neighborhood grocery store.
+ - It’s the difference between watching a football game between two teams you don’t care about, and watching a game where you have some kind of personal identity with one of the teams, if only a huge bet.
+ - I harbor a secret urge to whack a salesman in the face, crack his teeth and put red bumps around his eyes.
+ - I felt a little guilty about jangling the poor bugger’s brains with that evil fantasy. But what the hell? Anybody who wanders around the world saying, “Hell yes, I’m from Texas,” deserves whatever happens to him.
+ - We are turning into a nation of whimpering slaves to Fear.
+ - Any kind of political campaign that taps the kind of energy that nothing else can reach would generate a tremendous high for everybody involved in it.
+ - I knew a Buddhist once, and I’ve hated myself ever since.
+ - Hit him again, Jack! He’s crazy!
+ - There’s no point in getting into politics at all unless you plan to lash things around.
+ - It drops us into a vigorous current, a constant state of misguided control. The doomed generation takes a final step forward, ignoring all the signs that state the obvious, and leaps into a trip no drug known to man could ever encompass.
+ - I just usually go with my own taste. If I like something, and it happens to be against the law, well, then I might have a problem.
+ - In four short years he has turned our country from a prosperous nation at peace into a desperately indebted nation at war. But so what? He is the President of the United States, and you’re not. Love it or leave it.
+ - Familiarity seems to breed contempt.
+ - Children are like TV sets. When they start acting weird, whack them across the head with a big rubber basketball shoe.
+ - He had come so far from himself that I don’t think he knew who he was anymore.
+ - Nixon was no more a saint than he was a great president.
+ - Cover a war in a place where you can’t drink beer or talk to a woman? Hell no!
+ - Most of my stuff is just a series of false leads. I’ll approach a story as a subject and then make a whole bunch of different runs at the lead. They’re all good writing but they don’t connect. So I end up having to string leads together.
+ - There was no time for scholarly details, and, besides, I have always believed that a man can fairly be judged by the standards and taste of his choices in matters of high-level plagiarism.
+ - Going to trial with a lawyer who considers your whole life-style a Crime in Progress is not a happy prospect.
+ - The room was very quiet. I walked over to the TV set and turned it on to a dead channel-white noise at maximum decibels, a fine sound for sleeping, a powerful continuous hiss to drown out everything strange.
+ - There is probably some long-standing “rule” among writers, journalists, and other word-mongers that says: “When you start stealing from your own work you’re in bad trouble.” And it may be true.
+ - One of the advantages of being dead, I guess, is that somebody else can edit all this.
+ - All gamblers lose regularly, but they rarely discuss it in public. Losing is bad for the image, dude. Nobody buys Hot Tips from Losers. Remember that.
+ - How long can we maintain? I wonder. How long before one of us starts raving and jabbering at this boy? What will he think then? This same lonely desert was the last known home of the Manson family. Will he make that grim connection...
+ - I think you either have to have a very strong decisive person at the top or else a really brilliant staff command.
+ - Whatever he might have denied me was unimportant; it was the fact that he could deny me anything at all, even what I didn’t want.
+ - We have bigger things to brood on and enormous reasons for wallowing in terminal craziness until we finally hit bottom.
+ - There is not much mental distance between a feeling of having been screwed and the ethic of total retaliation, or at least the kind of random revenge that comes with outraging the public decency.
+ - Most people who deal in words don’t have much faith in them and I am no exception.
+ - By disgracing and degrading the presidency of the United States, by fleeing the White House like a diseased cur, Richard Nixon broke the heart of the American Dream.
+ - By any accepted standard, I have had more than nine lives. I counted them up once, and there were 13 times I almost and maybe should have died.
+ - The only thing wrong with the NBA – or any other professional sport, for that matter – is a wild epidemic of Dumbness and overweening Greed. There is no Mystery about it, and no need to change any rules.
+ - You’d be surprised at the things people will do in order to get their names or pictures in the paper.
+ - Any candidate who’d offered a real possibility of an alternative to Nixon – someone with a different concept of the presidency – could have challenged him and come very close to beating him.
+ - Every reaction is a learning process; every significant experience alters your perspective. So it would seem foolish, would it not, to adjust our lives to the demands of a goal we see from a different angle everyday? How could we ever hope to accomplish anything anther than galloping neurosis?
+ - I am a professional sportswriter, among other things, and I take the games seriously. It is only one of my many powerful addictions, and I don’t mind admitting any of them.
+ - There’s also a down side.
+ - I think I’m going to have to get a flying license very soon, and maybe one of those Lear jets. It beats motorcycles all to hell.
+ - I’ll call New York for some cash.
+ - I guess that’s one of the things about growing up in the fifties – it never occurred to me that you wouldn’t be at least as successful as your parents.
+ - There is no way to understand the public reaction to the sight of a Freak smashing a coconut with a hammer on the hood of a white Cadillac in a Safeway parking lot unless you actually do it, and I tell you it’s tense.
+ - Though I was careful never to mention it, I began to see a new dimension in everything that happened.
+ - A man has to BE something; he has to matter.
+ - Quacks are a part of our culture, and we all fall prey to them. Who among us can say, for sure, that even our own personal physicians are honest and competent?
+ - Publishers are notoriously slothful about numbers, unless they’re attached to dollar signs – unlike journalists, quarterbacks, and felony criminal defendants who tend to be keenly aware of numbers at all times.
+ - It was a maddening image and the only way to whip it was to hang on until dusk and banish the ghosts with rum.
+ - Platitudes are safe, because they’re easy to wink at, but truth is something else again.
+ - I have always loved blizzards, if only because of the driving experience – which is definitely an acquired taste.
+ - I wouldn’t be at all surprised, as hideous and dumb as it sounds, at an invasion of Iraq.
+ - I’ve already become a mastodon in print – I don’t see a consciousness for my kind of journalism.
+ - I may sound a little black, but I’m really pretty well adjusted.
+ - It’s much more fun to run a political campaign than it is to be the candidate.
+ - That was always the difference between Muhammad Ali and the rest of us. He came, he saw, and if he didn’t entirely conquer – he came as close as anybody we are likely to see in the lifetime of this doomed generation.
+ - If you consider the great journalists in history, you don’t see too many objective journalists on that list.
+
+337 quotes

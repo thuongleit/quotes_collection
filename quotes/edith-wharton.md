@@ -1,0 +1,178 @@
+ - There are two ways of spreading light: to be the candle or the mirror that reflects it.
+ - Set wide the window. Let me drink the day.
+ - Happiness is a work of art. Handle with care.
+ - There is one friend in the life of each of us who seems not a separate person, however dear and beloved, but an expansion, an interpretation, of one’s self, the very meaning of one’s soul.
+ - How I hate everything!
+ - Each time you happen to me all over again.
+ - My little dog – a heartbeat at my feet.
+ - Everything may be labelled- but everybody is not.
+ - In spite of illness, in spite even of the archenemy sorrow, one can remain alive long past the usual date of disintegration if one is unafraid of change, insatiable in intellectual curiosity, interested in big things, and happy in small ways.
+ - There are lots of ways of being miserable, but there’s only one way of being comfortable, and that is to stop running round after happiness. If you make up your mind not to be happy there’s no reason why you shouldn’t have a fairly good time.
+ - One of the great things about travel is you find out how many good, kind people there are.
+ - It was harder to drown at sunrise than in darkness.
+ - Some things are best mended by a break.
+ - If only we’d stop trying to be happy we’d have a pretty good time.
+ - It frightened him to think what must have gone to the making of her eyes.
+ - The real loneliness is living among all these kind people who only ask one to pretend!
+ - Life is the saddest thing there is, next to death.
+ - Half the trouble in life is caused by pretending there isn’t any.
+ - Why do we call all our generous ideas illusions, and the mean ones truths?
+ - Life is made up of compromises.
+ - Nothing is more perplexing to a man than the mental process of a woman who reasons her emotions.
+ - Beware of monotony; it’s the mother of all the deadly sins.
+ - The real marriage of true minds is for any two people to possess a sense of humor or irony pitched in exactly the same key, so that their joint glances on any subject cross like interarching searchlights.
+ - When a man says he doesn’t understand a woman it’s because he won’t take the trouble.
+ - Do you remember what you said to me once? That you could help me only by loving me? Well-you did love me for a moment; and it helped me. It has always helped me.
+ - To visit Morocco is still like turning the pages of some illuminated Persian manuscript all embroidered with bright shapes and subtle lines.
+ - We ought to be opening a bottle of wine!
+ - He knelt by the bed and bent over her, draining their last moment to its lees; and in the silence there passed between them the word which made all clear.
+ - You thought I was a lovelorn mistress and I was really just an expensive prostitute.
+ - I can’t love you unless I give you up.
+ - Art is on the side of the oppressed. Think before you shudder at the simplistic dictum and its heretical definition of the freedom of art. For if art is freedom of the spirit, how can it exist within the oppressors?
+ - I shan’t be lonely now. I was lonely; I was afraid. But the emptiness and the darkness are gone; when I turn back into myself now I’m like a child going at night into a room where there’s always a light.
+ - He simply felt that if he could carry away the vision of the spot of earth she walked on, and the way the sky and sea enclosed it, the rest of the world might seem less empty.
+ - And you’ll sit beside me, and we’ll look, not at visions, but at realities.
+ - We live in our own souls as in an unmapped region, a few acres of which we have cleared for our habitation; while of the nature of those nearest us we know but the boundaries that march with ours.
+ - In the rotation of crops there was a recognized season for wild oats; but they were not sown more than once.
+ - I have drunk of the wine of life at last, I have known the thing best worth knowing, I have been warmed through and through, never to grow quite cold again till the end.
+ - The early mist had vanished and the fields lay like a silver shield under the sun. It was one of the days when the glitter of winter shines through a pale haze of spring.
+ - It was too late for happiness – but not too late to be helped by the thought of what I had missed. That is all I haved lived on – don’t take it from me now.
+ - He had to deal all at once with the packed regrets and stifled memories of an inarticulate lifetime.
+ - Society soon grows used to any state of things which is imposed upon it without explanation.
+ - It is less mortifying to believe one’s self unpopular than insignificant, and vanity prefers to assume that indifference is a latent form of unfriendliness.
+ - I want to put my hand out and touch you. I want to do for you and care for you. I want to be there when you’re sick and when you’re lonesome.
+ - She gave so many reasons that I’ve forgotten them all.
+ - They are all alike you know. They hold their tongues for years and you think you’re safe, but when the opportunity comes they remember everything.
+ - She wondered if, when human souls try to get too near each other, they do not inevitably become mere blurs to each other’s vision.
+ - Archer reddened to the temples but dared not move or speak: it was as if her words had been some rare butterfly that the least motion might drive off on startled wings, but that might gather a flock if it were left undisturbed.
+ - Set wide the window. Let me drink the day. I loved light ever, light in eye and brain No tapers mirrored in long palace floors, Nor dedicated depths of silent aisles, But just the common dusty wind-blown day That roofs earth’s millions.
+ - I had the story, bit by bit, from various people, and, as generally happens in such cases, each time it was a different story.
+ - She threw back her head with a laugh that made her chins ripple like little waves.
+ - A frivolous society can acquire dramatic significance only through what its frivolity destroys.
+ - He had known the love that is fed on caresses and feeds them; but this passion that was closer than his bones was not to be superficially satisfied.
+ - They seemed to come suddenly upon happiness as if they had surprised a butterfly in the winter woods.
+ - No insect hangs its nest on threads as frail as those which will sustain the weight of human vanity.
+ - Life’s just a perpetual piecing together of broken bits.
+ - The moment my eyes fell on him, I was content.
+ - He had her in his arms, her face like a wet flower at his lips, and all their vain terrors shriveling up like ghosts at sunrise.
+ - Misfortune had made Lily supple instead of hardening her, and a pliable substance is less easy to break than a stiff one.
+ - When people ask for time, it’s always for time to say no. Yes has one more letter in it, but it doesn’t take half as long to say.
+ - I’m afraid I’m an incorrigible life-lover, life-wonderer, and adventurer.
+ - The only thing to do is to hug one’s friends tight and do one’s job.
+ - Little as she was addicted to solitude, there had come to be moments when it seemed a welcome escape from the empty noises of her life.
+ - There was no use in trying to emancipate a wife who had not the dimmest notion that she was not free.
+ - The American landscape has no foreground and the American mind no background.
+ - Overhead hung a summer sky furrowed with the rush of rockets; and from the east a late moon, pushing up beyond the lofty bend of the coast, sent across the bay a shaft of brightness which paled to ashes in the red glitter of the illuminated boats.
+ - Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue.
+ - Archer had always been inclined to think that chance and circumstance played a small part in shaping people’s lots compared with their innate tendency to have things happen to them.
+ - Life is always a tightrope or a feather bed. Give me the tightrope.
+ - Our blindest impulses become evidence of perspicacity when they fall in with the course of events.
+ - There’s no such thing as old age, there is only sorrow.
+ - Staunch and faithful lovers that they are, they give back a hundred fold every sign of love that one ever gives them.
+ - My last page is always latent in my first; but the intervening windings of the way become clear only as I write.
+ - It was easy enough to despise the world, but decidedly difficult to find any other habitable region.
+ - In reality they all lived in a kind of hieroglyphic world, where the real thing was never said or done or even thought, but only represented by a set of arbitrary signs.
+ - Everything about her was warm and soft and scented; even the stains of her grief became her as raindrops do the beaten rose.
+ - To be able to look life in the face: that’s worth living in a garret for, isn’t it?
+ - His whole future seemed suddenly to be unrolled before him; and passing down its endless emptiness he saw the dwindling figure of a man to whom nothing was ever to happen.
+ - I wonder why rich people always grow fat I suppose it’s because there’s nothing to worry them.
+ - True originality consists not in a new manner but in a new vision.
+ - The real alchemy consists in being able to turn gold back again into something else; and that’s the secret that most of your friends have lost.
+ - The essence of taste is suitability. Divest the word of its prim and priggish implications, and see how it expresses the mysterious demand of the eye and mind for symmetry, harmony and order.
+ - Yes, one gets over things. But there are certain memories one can’t bit on.
+ - To know when to be generous and when firm – that is wisdom.
+ - She seemed to melt against him in her terror, and he caught her in his arms, held her fast there, felt her lashes beat his cheek like netted butterflies.
+ - The air of ideas is the only air worth breathing.
+ - Most timidities have such secret compensations and Miss Bart was discerning enough to know that the inner vanity is generally in proportion to the outer self depreciation.
+ - In our hurried world too little value is attached to the part of the connoisseur and dilettante.
+ - I was just a screw or cog in the great machine I called life, and when I dropped out of it I found I was of no use anywhere else.
+ - There’s nothing grimmer than the tragedy that wears a comic mask.
+ - One cares so little for the style in which one’s praises are written.
+ - I’ve always shrunk from usurping the functions of Providence, and when I have to exercise them I decidedly prefer that it shouldn’t be on an errand of destruction.
+ - As the pain that can be told is but half a pain, so the pity that questions has little healing in its touch.
+ - I was never allowed to read the popular American children’s books of my day because, as my mother said, the children spoke bad English without the author’s knowing it.
+ - Only the fact that we are unaware how well our nearest know us enables us to live with them.
+ - The short story, free from the longuers of the novel is also exempt from the novel’s conclusiveness – too often forced and false: it may thus more nearly than the novel approach aesthetic and moral truth.
+ - Is there nowhere in an American house where one may be by one’s self?
+ - Mrs. Ballinger is one of the ladies who pursue Culture in bands, as though it were dangerous to meet it alone.
+ - Ah, the poverty, the miserable poverty, of any love that lies outside of marriage, of any love that is not a living together, a sharing of all!
+ - Everybody who does anything at all does too much.
+ - She wanted, passionately and persistently, two things which she believed should subsist together in any well-ordered life: amusement and respectability.
+ - If proportion is the good breeding of architecture, symmetry, or the answering of one part to another, may be defined as the sanity of decoration.
+ - There are moments when a man’s imagination, so easily subdued to what it lives in, suddenly rises above its daily level and surveys the long windings of destiny.
+ - The desire for symmetry, for balance, for rhythm in form as well as in sound, is one of the most inveterate of human instincts.
+ - They belonged to that vast group of human automata who go through life without neglecting to perform a single one of the gestures executed by the surrounding puppets.
+ - In a sky of iron the points of the Dipper hung like icicles and Orion flashed his cold fires.
+ - I’d almost say it’s the worries that make married folks sacred to each other...
+ - But after a moment a sense of waste and ruin overcame him. There they were, close together and safe and shut in; yet so chained to their separate destinies that they might as well been half the world apart.
+ - She was very near hating him now; yet the sound of his voice, the way the light fell on his thin, dark hair, the way he sat and moved and wore his clothes – she was conscious that even these trivial things were inwoven with her deepest life.
+ - Their long years together had shown him that it did not so much matter if marriage was a dull duty, as long as it kept the dignity of duty: lapsing from that, it became a mere battle of ugly appetites.
+ - In any really good subject, one has only to probe deep enough to come to tears.
+ - Since the Americans have ceased to have dyspepsia, they have lost the only thing that gave them any expression.
+ - We can’t behave like people in novels, though, can we?
+ - Mothers and daughters are part of each other’s consciousness, in different degrees and in a different way, but still with the mutual sense of something which has always been there. A real mother is just a habit of thought to her children.
+ - Dialogue in fiction should be reserved for the culminating moments and regarded as the spray into which the great wave of narrative breaks in curving towards the watcher on the shore.
+ - She had no tolerance for scenes which were not of her own making.
+ - For what endless years this life will have to go on! He felt, with a kind of horror, his own strong youth and the bounding blood in his veins.
+ - What Lily craved was the darkness made by enfolding arms, the silence which is not solitude, but compassion holding its breath.
+ - Do you know-I hardly remembered you? Hardly remembered me? I mean: how shall I explain? I-it’s always so. Each time you happen to me all over again.
+ - Once more it was borne in on him that marriage was not the safe anchorage he had been taught to think, but an uncharted voyage on the seas.
+ - It must be less wicked to love the wrong person than not to love anybody at all.
+ - She was so evidently the victim of the civilization which had produced her, that the links of her bracelet seemed like manacles chaining her to her fate.
+ - A New York divorce is in itself a diploma of virtue.
+ - I’m not much interested in travelling scholarships for women – or in fact in scholarships, tout court! – they’d much better stay at home and mind the baby. Still less am I interested in scholarships for female Yids...
+ - It is so easy for a woman to become what the man she loves believes her to be.
+ - I don’t know if I should care for a man who made life easy; I should want someone who made it interesting.
+ - The only way not to think about money is to have a great deal of it.
+ - Genius is of small use to a woman who does not know how to do her hair.
+ - It is almost as stupid to let your clothes betray that you know you are ugly as to have them proclaim that you think you are beautiful.
+ - Damn words; they’re just the pots and pans of life, the pails and scrubbing-brushes. I wish I didn’t have to think in words...
+ - Blessed are the pure in heart for they have so many more things to talk about.
+ - An education is like a crumbling building that needs constant upkeep with repairs and additions.
+ - She would not have put herself out so much to say so little.
+ - Old age, calm, expanded, broad with the haughty breadth of the universe, old age flowing free with the delicious near-by freedom of death.
+ - I don’t believe in God, but I do believe in His saints.
+ - The value of books is proportionate to what may be called their plasticity – their quality of being all things to all men, of being diversely moulded by the impact of fresh forms of thought.
+ - Her failure was a useful preliminary to success.
+ - In every heart there should be one grief that is like a well in the desert.
+ - I wonder, among all the tangles of this mortal coil, which one contains tighter knots to undo, and consequently suggests more tugging, and pain, and diversified elements of misery, than the marriage tie.
+ - What a shame it is for a nation to be developing without a sense of beauty, and eating bananas for breakfast.
+ - It seems stupid to have discovered America only to make it into a copy of another country.
+ - Every house is a mad-house at some time or another.
+ - The turnings of life seldon show a sign-post; or rather, though the sign is always there, it is usually placed some distance back, like the notices that give warning of a bad hill or a level railway-crossing.
+ - Another unsettling element in modern art is that common symptom of immaturity, the dread of doing what has been done before.
+ - Charity, till then, had been conscious only of a vague self-disgust and a frightening physical distress; now, of a sudden, there came to her the grave surprise of motherhood.
+ - Make ones center of life inside ones self, not selfishly or excludingly, but with a kind of unassailable serenity.
+ - Inkstands and tea-cups are never as full as when one upsets them...
+ - The worst of doing one’s duty was that it apparently unfitted one for doing anything else.
+ - With a shiver of foreboding he saw his marriage becoming what most of the other marriages about him were: a dull association of material and social interests held together by ignorance on the one side and hypocrisy on the other.
+ - I swear I only want to hear about you, to know what you’ve been doing. It’s a hundred years since we’ve met-it may be another hundred before we meet again.
+ - To have you here, you mean-in reach and yet out of reach? To meet you in this way, on the sly? It’s the very reverse of what I want.
+ - The true felicity of a lover of books is the luxurious turning of page by page, the surrender, not meanly abject, but deliberate and cautious, with your wits about you, as you deliver yourself into the keeping of the book. This I call reading.
+ - Life has a way of overgrowing its achievements as well as its ruins.
+ - Her mind was an hotel where facts came and went like transient lodgers, without leaving their address behind, and frequently without paying for their board.
+ - Poetry and art are the breath of life to her.
+ - Her vivid smile was like a light held up to dazzle me.
+ - I discovered early that crying makes my nose red, and the knowledge has helped me through several painful episodes.
+ - It’s you who are telling me; opening my eyes to things I’d looked at so long that I’d ceased to see them.
+ - Something he knew he had missed: the flower of life. But he thought of it now as a thing so unattainable and improbable that to have repined would have been like despairing because one had not drawn the first prize in a lottery.
+ - The taste of the usual was like cinders in his mouth, and there were moments when he felt as if he were being buried alive under his future.
+ - An unalterable and unquestioned law of the musical world required that the German text of French operas sung by Swedish artists should be translated into Italian for the clearer understanding of English-speaking audiences.
+ - She was not accustomed to taste the joys of solitude except in company.
+ - Silence may be as variously shaded as speech.
+ - In all the arts abundance seems to be one of the surest signs of vocation.
+ - I have never known a novel that was good enough to be good in spite of its being adapted to the author’s political views.
+ - Until the raw ingredients of a pudding make a pudding, I shall never believe that the raw material of sensation and thought can make a work of art without the cook’s intervening.
+ - People struggled on for years with ‘troubles,’ but they almost always succumbed to ’complications.
+ - We shall hurt others less. Isn’t it, after all, what you always wanted?
+ - The visible world is a daily miracle, for those who have eyes and ears.
+ - One of the first obligations of art is to make all useful things beautiful.
+ - What’s the use of making mysteries? It only makes people want to nose ’em out.
+ - To your generation, I must represent the literary equivalent of tufted furniture and gas chandeliers.
+ - One of the surprises of her unoccupied state was the discovery that time, when it is left to itself and no definite demands are made on it, cannot be trusted to move at any recognized pace.
+ - The visible world is a daily miracle for those who have eyes and ears; and I still warm hands thankfully at the old fire, though every year it is fed with the dry wood of more old memories.
+ - After all, one knows one’s weak points so well, that it’s rather bewildering to have the critics overlook them and invent others.
+ - The effect produced by a short story depends almost entirely on its form.
+ - I feel as if I could trust my happiness to carry me; as if it had grown out of me like wings.
+
+176 quotes

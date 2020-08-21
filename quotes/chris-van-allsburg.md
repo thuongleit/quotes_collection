@@ -1,0 +1,28 @@
+ - Though I’ve grown old, the bell still rings for me as it does for all who truly believe.
+ - The Polar Express began with the idea of a train standing alone in the woods. I asked myself, What if a boy gets on that train? Where does he go?
+ - I write for what’s left of the eight-year-old still rattling around inside my head.
+ - I don’t think ordinary things are very interesting, so I try to imagine a world that is less ordinary.
+ - At first, I see pictures of a story in my mind. Then creating the story comes from asking questions of myself. I guess you might call it the ‘what if – what then’ approach to writing and illustration.
+ - I’m not a perfectionist. I’m just very observant.
+ - At one time, most of my friends could hear the bell, but as years passed, it fell silent for all of them. Even Sarah found one Christmas that she could no longer hear its sweet sound. Though I’ve grown old, the bell still rings for me, as it does for all who truly believe.
+ - The Polar Express is about faith, and the power of imagination to sustain faith. It’s also about the desire to reside in a world where magic can happen, the kind of world we all believed in as children, but one that disappears as we grow older.
+ - The idea of the extraordinary happening in the context of the ordinary is what’s fascinating to me.
+ - If you don’t know where you’re going, stop racing to get there. – from Just Desert by M. T. Anderson.
+ - An award does not change the quality of a book.
+ - There must be something to think about at the end.
+ - My ideas are not meant to suggest dreams or reality, but a surreal quality.
+ - Some artists claim praise is irrelevant in measuring the success of art, but I think it’s quite relevant. Besides, it makes me feel great.
+ - Santa is our culture’s only mythic figure truly believed in by a large percentage of the population. It’s a fact that most of the true believers are under eight years old, and that’s a pity.
+ - Your house is all about routine, not the unexpected events of your life.
+ - Certain peer pressures encourage little fingers to learn how to hold a football instead of a crayon. I confess to having yielded to these pressures.
+ - The inclination to believe in the fantastic may strike some as a failure in logic, or gullibility, but it’s really a gift. A world that might have Bigfoot and the Loch Ness Monster is clearly superior to one that definitely does not.
+ - I’ve always thought of the book as a visual art form, and it should represent a single artistic idea, which it does if you write your own material.
+ - I take my ideas from my experiences.
+ - I have lots of ideas. The problem for me has always been which one to do.
+ - I pore over every word on the cereal box at breakfast, often more than once. You can ask me anything about shredded wheat.
+ - The opportunity to create a small world between two pieces of cardboard, where time exists yet stands still, where people talk and I tell them what to say, is exciting and rewarding.
+ - There was a great deal of peer recognition to be gained in elementary school by being able to draw well. One girl could draw horses so well, she was looked upon as a kind of sorceress.
+ - I think most people agree there is a component of skill in art making; you have to learn grammar before you learn how to write.
+ - Following my muse has worked out pretty well so far. I can’t see any reason to change the formula now.
+
+26 quotes

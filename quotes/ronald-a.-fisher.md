@@ -1,0 +1,29 @@
+ - To consult the statistician after an experiment is finished is often merely to ask him to conduct a post mortem examination. He can perhaps say what the experiment died of.
+ - Faith Is Not Credulity.
+ - The best time to plan an experiment is after you’ve done it.
+ - We may consequently state the fundamental theorem of Natural Selection in the form: The rate of increase in fitness of any organism at any time is equal to its genetic variance in fitness at that time.
+ - The statistician cannot evade the responsibility for understanding the process he applies or recommends.
+ - Natural selection is not evolution.
+ - The best causes tend to attract to their support the worst arguments, which seems to be equally true in the intellectual and in the moral sense.
+ - The more highly adapted an organism becomes, the less adaptable it is to any new change.
+ - I believe sanity and realism can be restored to the teaching of Mathematical Statistics most easily and directly by entrusting such teaching largely to men and women who have had personal experience of research in the Natural Sciences.
+ - The statistician cannot excuse himself from the duty of getting his head clear on the principles of scientific inference, but equally no other thinking man can avoid a like obligation.
+ - No practical biologist interested in sexual reproduction would be led to work out the detailed consequences experienced by organisms having three or more sexes; yet what else should he do if he wishes to understand why the sexes are, in fact, always two?
+ - However, perhaps the main point is that you are under no obligation to analyse variance into its parts if it does not come apart easily, and its unwillingness to do so naturally indicates that one’s line of approach is not very fruitful.
+ - This is perhaps the most important book on evolutionary genetics ever written.
+ - We have usually no knowledge that any one factor will exert its effects independently of all others that can be varied, or that its effects are particularly simply related to variations in these other factors.
+ - The academic mind, as we know, is sometimes capable of assuming an aggressive attitude. The official mind, on the contrary, is and has to be, expert in the art of self-defence.
+ - Inductive inference is the only process known to us by which essentially new knowledge comes into the world.
+ - The tendency of modern scientific teaching is to neglect the great books, to lay far too much stress upon relatively unimportant modern work, and to present masses of detail of doubtful truth and questionable weight in such a way as to obscure principles.
+ - No isolated experiment, however significant in itself, can suffice for the experimental demonstration of any natural phenomenon; for the “one chance in a million” will undoubtedly occur, with no less and no more than its appropriate frequency, however surprised we may be that it should occur to us.
+ - Experimental observations are only experience carefully planned in advance, and designed to form a secure basis of new knowledge.
+ - We have the duty of formulating, of summarizing, and of communicating our conclusions, in intelligible form, in recognition of the right of other free minds to utilize them in making their own decisions.
+ - The analysis of variance is not a mathematical theorem, but rather a convenient method of arranging the arithmetic.
+ - Fairly large print is a real antidote to stiff reading.
+ - Natural selection is a mechanism for generating an exceedingly high degree of improbability.
+ - No efforts of mine could avail to make the book easy reading.
+ - In scientific subjects, the natural remedy for dogmatism has been found in research.
+ - After all, it is a common weakness of young authors to put too much into their papers.
+ - I believe that no one who is familiar, either with mathematical advances in other fields, or with the range of special biological conditions to be considered, would ever conceive that everything could be summed up in a single mathematical formula, however complex.
+
+27 quotes

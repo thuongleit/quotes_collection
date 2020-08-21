@@ -1,0 +1,208 @@
+ - As I say I don’t want to kill myself, I just wouldn’t mind dying.
+ - We are not nouns, we are verbs. I am not a thing – an actor, a writer – I am a person who does things – I write, I act – and I never know what I’m going to do next. I think you can be imprisoned if you think of yourself as a noun.
+ - Stop feeling sorry for yourself and you will be happy.
+ - You are who you are when nobody’s watching.
+ - Better sexy and racy Than sexist and racist.
+ - It’s hard to be a friend to someone who’s depressed, but it is one of the kindest, noblest, and best things you will ever do.
+ - If you know someone who’s depressed, please resolve never to ask them why. Depression isn’t a straightforward response to a bad situation; depression just is, like the weather.
+ - Education is the sum of what students teach each other between lectures and seminars.
+ - Incuriosity is the oddest and most foolish failing there is.
+ - Hell, I am young. I am free. My teeth are clean. The sun shines. To hell with everything else.
+ - If ignorance is bliss, why aren’t there more happy people in the world?
+ - Like vichyssoise, revenge is a dish best served cold.
+ - To be human and to be adult means constantly to be in the grip of opposing emotions, to have daily to reconcile apparently conflicting tensions. I want this, but need that. I cherish this, but I adore its opposite too.
+ - Hey-ho, it’s raining inside: it isn’t my fault and there’s nothing I can do about it, but sit it out. But the sun may well come out tomorrow and when it does, I shall take full advantage.
+ - The only people who are obsessed with food are anorexics and the morbidly obese. That, in erotic terms, is the Catholic church, in a nutshell.
+ - It is the useless things that make life worth living and that make life dangerous too: wine, love, art, beauty. Without them life is safe, but not worth bothering with.
+ - The English language is an arsenal of weapons. If you are going to brandish them without checking to see whether or not they are loaded, you must expect to have them explode in your face from time to time.
+ - Wisdom is probably the ability to cope. That’s why someone who has to walk seven miles every day to get water for their children can be wiser than someone sitting behind a desk in Wall Street.
+ - I’m afraid I don’t believe there is such a thing as blasphemy, just outrage from those insecure in their own faith.
+ - The only reason people do not know much is because they do not care to know. They are incurious. Incuriousity is the oddest and most foolish failing there is.
+ - People who can change and change again are so much more reliable and happier than those who can’t.
+ - Part of life is learning what to be ashamed of and what to be proud of.
+ - The English language is like London: proudly barbaric yet deeply civilised, too, common yet royal, vulgar yet processional, sacred yet profane.
+ - Hold the newsreader’s nose squarely, waiter, or friendly milk will countermand my trousers.
+ - I found it all about as arousing as a Tupperware party.
+ - You don’t sit down and write a wish list about the person you are going to fall violently in love with. It just doesn’t work like that.
+ - You can’t reason yourself back into cheerfulness any more than you can reason yourself into an extra six inches in height.
+ - Thank you for your input; I can tell you are struggling towards being interesting.
+ - Talent is inborn, but technique is learned.
+ - How can I tell you what I think until I’ve heard what I’m going to say?
+ - I think I’m most nervous about revealing how nervous I have always been. People think me calm, confident, poised. Inside I’m a jelly...
+ - Life is sometimes novel-shaped, mocking the efforts of those authors who, in an effort to make their novels life-shaped, spurn the easy symmetry and cheap resonance of reality.
+ - I want you to know that you are not alone in your being alone.
+ - How to separate the humiliation from the loss, that’s the catch. You can never be sure if what tortures you is the pain of being without someone you love or the embarrassment of admitting that you have been rejected.
+ - Life, that can shower you with so much splendour, is unremittingly cruel to those who have given up.
+ - Alternative medicine people call themselves “holistic” and say it’s the “whole” approach. Well, if it’s the whole approach, let it be the mind as well. Use logic, use sense, use the incredible five wits you were given by creation.
+ - I am a lover of truth, a worshipper of freedom, a celebrant at the altar of language and purity and tolerance.
+ - I’m fat because I’m greedy, and if my mind is fat it’s because I’m curious.
+ - A cut glass English accent can fool unsuspecting Americans into detecting a brilliance that isn’t there.
+ - Sometimes there just isn’t enough vomit in the world.
+ - This is the point. One technology doesn’t replace another, it complements. Books are no more threatened by Kindle than stairs by elevators.
+ - I never quite dare to believe I’m brave enough to be an artist, but I’m on the side of artists. I think of myself as a bit of a Salieri, looking with longing eyes at Mozart.
+ - It’s extremely unlucky to be superstitious, for no other reason than it is always unlucky to be colossally stupid.
+ - If I had a large amount of money I should certainly found a hospital for those whose grip upon the world is so tenuous that they can be severely offended by words and phrases and yet remain all unoffended by the injustice, violence and oppression that howls daily about our ears.
+ - Come back, and do that thing, be lovely to each-other.
+ - I suppose that there is no point wasting time being lazy, though of course indolence in a divine way, actually has its advantages.
+ - The alarm in the morning? Well, I have an old tape of Carlo Maria Giulini conducting the Vienna Philharmonic Orchestra in a perfectly transcendent version in Shubert’s seventh symphony. And I’ve rigged it up so that at exactly 7:30 every morning it falls from the ceiling onto my face.
+ - You’ll often hear the phrase “science doesn’t know everything.” Well, of course it doesn’t know everything. But just because science doesn’t know everything doesn’t mean that it knows nothing.
+ - Those who rule the world get so little opportunity to run about and laugh and play in it.
+ - Knowing what I now know I would never have done anything so fatuous; but then I never would have known what I know now had I not.
+ - I’m absolute attacking my own instinct for politeness, but I think I admire artists who just speak out or who are strong, so it’s very hard.
+ - It is easy to forget that the most important aspect of comedy, after all, its great saving grace, is its ambiguity. You can simultaneously laugh at a situation, and take it seriously.
+ - I’m afraid I was very much the traditionalist. I went down on one knee and dictated a proposal which my secretary faxed over straight away.
+ - Cynical is the name we give those we fear may be laughing at us.
+ - Sex without smiling is as sickly and as base as vodka and tonic without ice.
+ - Philosophy is an odd thing. When we use the word in everyday speech, you know, you sometimes hear it hilariously.
+ - What makes a good family? Well, I suppose obviously love. Love lubricated often I think by humor. I think a family that can laugh at each other and tease themselves and who are able to be jolly with each other I think is the key.
+ - Love in all eight tones and all five semitones of the word’s full octave.
+ - I may have looked happy but inside I was hopelessly depressed.
+ - Homosexuals are not interested in making other people homosexuals. Homophobes are interested in making other people homophobes.
+ - Mankind can live free in a society hemmed in by laws, but we have yet to find a historical example of mankind living free in lawless anarchy.
+ - In a dung heap, even a plastic bead can gleam like a sapphire.
+ - The email of the species is deadlier than the mail.
+ - Wine can be a better teacher than ink, and banter is often better than books.
+ - I gather a repulsive nobody writing in a paper no one of any decency would be seen dead with has written something loathesome and inhumane.
+ - I do think it’s important not to be absolutely sure, so sure that you can’t reinvent yourself in some way, or at least rediscover the truth of why you think what you think, and not just take it as an assumption.
+ - You can never hope to recapture the first fine careless rapture.
+ - The most important philosophy I think is that even if it isn’t true you must absolutely assume there is no afterlife.
+ - At least 260 species of animal have been noted exhibiting homosexual behavior but only one species of animal ever, so far as we know, has exhibited homophobic behavior – and that’s the human being.
+ - I shall sustain a massive erection, that’s what, and I shan’t be answerable for the consequences. Some kind of ejaculation is almost bound to ensue and if either of you were to become pregnant I should never forgive myself.
+ - We always make the mistake, the fatal mistake in the case of military people, of imagining that each war will be a kind of version of the one that happened previously.
+ - You can’t just say there is a god because the world is beautiful. You have to account for bone cancer in children.
+ - Money and fame are trashy and don’t guarantee happiness, but we all refuse really to know it.
+ - I’d probably want to teach at university, because children would drive me insane. I suspect it would be English literature, Shakespeare and so forth. I’ve always been deeply, deeply in love with that kind of thing.
+ - But happiness is no respecter of persons.
+ - If I were to believe in a god l would believe in gods. I think monotheism is the really ghastly thing. That is the absolutely staggering to me misapprehension.
+ - My father was all brain and little heart.
+ - If there were a God he would want us to be better spirited than to take his word for everything.
+ - Literary studies were no more than a series of autopsies performed by heartless technicians. Worse than autopsies: biopsies. Vivisection. Even movies, which I love more than anything, more than life itself, they even do it with movies these days.
+ - If you go looking for loonies and religious fanatics and dropouts and freaks, I dare say you’ll find it.
+ - You’ve just had the most imponderable joy of watching charlieissocoollike, which makes you, like, cool.
+ - I expected the illegible and the deeply buried in me to be read as if carved on my forehead, just as I expected the obvious and the ill-concealed to be hidden from view.
+ - When you take a lot of cocaine powder you tend to take a lot of alcohol with it as well, so for many years really I never went out without at least four or five grams of cocaine powder.
+ - I went to Cambridge and thought I would stay there. I thought I would quietly grow tweed in a corner somewhere and become a Don or something.
+ - Taste every fruit of every tree in the garden at least once. It is an insult to creation not to experience it fully. Temperance is wickedness.
+ - Everything had been based on a kind of certainty, a sense of man at the center of things, a sense of order and hierarchy. And suddenly, almost simultaneously, extraordinary discoveries are made.
+ - Simon Gray, I decided when I first witnessed this frog into prince transformation, did not have a drinking problem. He had a drinking solution.
+ - I don’t need you to remind me of my age. I have a bladder to do that for me.
+ - Between funny and witty Falls the shadow.
+ - I feel I would love to close down for a number of years in some way and just be in the country making pork pies and chutneys and never have to poke my head out of the parapet.
+ - When push-off comes to shove-off, a man must have a reason to get out of bed in the mornings, something more than the threat of bedsores, at any rate.
+ - Moving from chair to chair, from coffee machine to coffee machine is the limit of my action in most films. But I enjoy being cast in them because I love watching them.
+ - There’s nothing worse than the British in one of their fits of morality.
+ - As someone who worked hard for a Labour victory in the 90s, do I regret it? Not really. It was bound to happen. And it’ll happen with the next government, and the one after it. Because all governments serve us. They serve the filth.
+ - No, I love the idea that someone changes. As an actor it’s always the thing that you look for. He is someone who starts off bright, cheerful and confident and then has everything taken away from him. It’s a wonderful journey to take.
+ - I have pushed the boat out as far as I should in terms of taking on too many things. I’m getting older and I just could not take it any more. I am now monitoring myself very closely and I’m just trying not to get into that sort of state again.
+ - I was happy there. Which is to say I was not unhappy there. Unhappiness and happiness I have always been able to carry about with me, irrespective of place and people, because I have never joined in.
+ - Things are always worse in the steady watches of the night.
+ - When we understand every single secret of the universe, there will still be left the eternal mystery of the human heart.
+ - The service took place on one of those afternoons that occur only in the past.
+ - But an Adrian also knew that an Adrian’s lies were real: they were lived and felt and acted out as thoroughly as another man’s truths – if other men had truths – and he believed it possible that this last lie might see him through to the grave.
+ - It’s a great privilege just to be in a film not because you’re some packaging that some agent has done with the studio exec: “We need a John Travolta film.”
+ - I’m a bit of a coward, and lazy, oddly enough.
+ - I’ve always been aware of my sexuality, but I never quite knew what it meant...
+ - I have always been an impassioned advocate for the works of Shakespeare. I regard him as one of the most complete miracles of his or any other age.
+ - Christmas to a child is the first terrible proof that to travel hopefully is better than to arrive.
+ - Old Professors never die, they just lose their faculties.
+ - It is a cliche that most cliches are true, but then like most cliches, that cliche is untrue.
+ - My first meeting with you only confirmed what I first suspected. You are a fraud, a charlatan and a shyster. My favourite kind of person, in fact.
+ - An original idea. That can’t be too hard. The library must be full of them.
+ - A cousin of mine who was a casualty surgeon in Manhattan tells me that he and his colleagues had a one-word nickname for bikers: Donors. Rather chilling.
+ - Generally, we admire the thing we are not.
+ - No adolescent ever wants to be understood, which is why they complain about being misunderstood all the time.
+ - Money no longer has any meaning. Civilization is coming to an end. If not the destruction of the world, it’s an endless stalemate.
+ - I can understand the Greek idea that there are these these principles of lightening or of war or of wisdom and to embody them, to personify them into a Athena or Aries or whichever god you want makes enormous sense.
+ - Seriousness is no more a guarantee of truth, insight, authenticity or probity, than humour is a guarantee of superficiality and stupidity.
+ - There are some things I don’t like, about which I think, well, that’s me. But coriander is a giant hoax perpetrated by a perverted society.
+ - Compromise is a stalling between two fools.
+ - You don’t need a Harvard MBA to know that the bedroom and the boardroom are just two sides of the same ballgame.
+ - Nudity is a deep worry if you have a body like a bin bag full of yoghurt, which I have.
+ - If there is a sort of national American emotion I would call it optimism. If there is an English one I would call it embarrassment – not even pessimism – just sheer shame, embarrassment and confusion.
+ - A real education takes place, not in the lecture hall or library, but in the rooms of friends, with earnest frolic and happy disputation.
+ - Nothing in this world is at it seems. Except, possibly, porridge.
+ - I don’t believe there is a God. If I were to believe in a god, l would believe in gods.
+ - I get an urge, like a pregnant elephant, to go away and give birth to a book.
+ - Nature admits no hierarchy of beauty or usefulness or importance.
+ - Perhaps the greatest definition I think of character and quality is people who when they’re truly great rather than making you feel that tall they make you feel that tall, that they’re greatness as it were improves you.
+ - I have Van Gogh’s ear for music.
+ - You either get Norfolk, with its wild roughness and uncultivated oddities, or you don’t. It’s not all soft and lovely. It doesn’t ask to be loved.
+ - A film star is a kind of public monument, and everyone’s staring at them, and they’ve kind of got railings around them, and they’re rather miserable most of the time.
+ - After the shooting of John Lennon and the early death of so many great stars and the utter naked venal mercantile marketing of pop music and rock music, I don’t think anyone really believes that music is anything more than another commodity.
+ - Enthusiats are used to being mocked, maligned and misunderstood. We don’t really mind.
+ - Not one word of the following is true.
+ - Now, bipolar disorder, it goes on a spectrum. There’s very severe conditions of it and there are milder ones. I’m lucky enough that it’s reasonably mild in my case.
+ - It is exhausting knowing that most of the time the phone rings, most of the time there’s an email, most of the time there’s a letter, someone wants something of you.
+ - As humourless a lump of dough as ever held a torchlight vigil outside the South African Embassy or stuck an AIDS awareness ribbon on an unwilling first-nighter.
+ - My parents were marvelously educated people.
+ - That one can love another of the same gender, that is what the homophobe really cannot stand.
+ - It only takes a room of Americans for the English and Australians to realise how much we have in common.
+ - When you’ve seen a nude infant doing a backward somersault you know why clothing exists.
+ - Stop wanting wealth and fame and start wanting instead to do something well about which you are passionate.
+ - I shouldn’t be saying this – high treason, really – but I sometimes wonder if Americans aren’t fooled by our accent into detecting brilliance that may not really be there.
+ - I think faith in each other is much harder than faith in God.
+ - As children everyone thinks their family is weird and they’re upset by the weirdness of their own family.
+ - A university is not, thank heavens, a place for vocational instruction, it has nothing to do with training for a working life and career, it is a place for education, something quite different.
+ - How can one not be fond of something that the Daily Mail despises?
+ - Having a great intellect is no path to being happy.
+ - Self-consciousness, that’s what it is. Always my abiding vice. I keep seeing myself. Me watching myself watching others watch me. How do you lose that? What’s the trick?
+ - Somehow, as a writer, you tend to use words to paper over structural cracks.
+ - A month’s salary, deep regret, the telephone number of some foul rehab clinic and my lance was free.
+ - I now accept that it is looking increasingly likely that Tiger Woods is, in fact, straight.
+ - I believe that poetry is a primal impulse within us all.
+ - I’ve always had great respect for Paddington because he is amusingly English and eccentric. He is a great British institution and my generation grew up with the books and then Michael Horden’s animations.
+ - There is no right language or wrong language any more than there are right or wrong clothes.
+ - My secret is that I have never thought there is a secret to anything in life. Passion. Love. Drive. Work. Work. Work. Dull but true.
+ - Glory never arrives through the front door. She sneaks in uninvited round the back or through an upstairs window while you are sleeping.
+ - I suppose the thing that really interests me is what mankind did with the big, big, big discoveries that have created our modern age.
+ - A book is judged, not by its reference to life, but by its reference to other books.
+ - I was born Mary Patterson, but then I married and naturally took my husband’s name, so now I’m Neil Patterson.
+ - Money is to Everything as an Aeroplane is to Australia. The aeroplane isn’t Australia, but it remains the only practical way we know of reaching it. So perhaps, metonymically, the aeroplane is Australia after all.
+ - Estate agents: like them or loathe them, you’d be mad not to loathe them.
+ - Literature is the only access to truth we have on this planet.
+ - Because, let’s face it, I do not get offered the parts that Brad Pitt has just turned down.
+ - Places of incredible glamour, possibility, power, excitement and pleasure. Love your libraries!
+ - Atheism is not just about not believing there is a God, but on the assumption that there is one, what kind of God is he?
+ - And of course you are mad, if by a madman we mean a mind that questions and rejects every civilized norm.
+ - Personally, I’d never seen a graphic novel. I knew they existed because friends of mine like Jonathan Ross collect them and some very literate and intelligent people really rate the graphic novel as a form.
+ - I certainly don’t want to be formulaic. I want to be honest and authentic and everything else.
+ - There is simply no limit to the tyrannical snobbery that otherwise decent people can descend into when it comes to music.
+ - I knew I couldn’t believe in God, because I was fundamentally Hellenic in my outlook.
+ - When you get just a complete sense of blackness or void ahead of you, that somehow the future looks an impossible place to be, and the direction you are going seems to have no purpose, there is this word despair which is a very awful thing to feel.
+ - As I go clowning my sentimental way into eternity, wrestling with all my problems of estrangement and communion, sincerity and simulation, ambition and acquiescence, I shuttle between worrying whether I matter at all and whether anything else matters but me.
+ - I don’t watch television, I think it destroys the art of talking about oneself.
+ - It was as if he grew his hair long and smoked cigarettes because he liked to, not because he liked being seen to. This was dangerously subversive.
+ - There can’t be that many individual souls. Not souls like mine. There isn’t room. There can’t be.
+ - Oh, it takes a lot for me to walk out of a film.
+ - Coming out as gay was an easy enough matter for me, since I worked in a profession where being gay had a long history of being accepted.
+ - It was behaviour that I thought not far from racism, sexism or any other kind of prejudice or snobbery. ‘Because you are not cute, I do not want to know you’ was, to me, hardly different from suggesting ’because you are gay, I dislike you.
+ - The church has no power over our lives any more, which is something of a blessing for those who do not enjoy red-hot pokers or iron thumb-screws...
+ - It is astonishing how articulate one can become when alone and raving at a radio. Arguments and counter arguments, rhetoric and bombast flow from one’s lips like scurf from the hair of a bank manager.
+ - People still don’t get how astounding Darwinism is. People think what shocked everybody was that Charles Darwin seemed to be saying we had descended from apes.
+ - I do believe that almost everything I do is based on my feelings, not on my intellect. Though But we won’t chase ourselves up the particular sentiment, or we’ll get lost.
+ - Many people would no more think of entering journalism than the sewage business – which at least does us all some good.
+ - I do like being surprised by directors and producers and being offered parts I would never have considered, including parts that aren’t necessarily obvious but which would test me.
+ - There is not any way that you can just choose the nice bits and say that means there is a God and ignore the true fact of what nature is.
+ - All we have to do is listen. The Good Lord gave us two ears and only one mouth, my dear white-headed mother used to say...
+ - It was extremely important to show that Wilde’s sexuality was not just some intellectual idea. It was real, and it was about the human body. To just have mentioned it and not shown it would have been, I think, peculiar and wrong.
+ - One of the reasons I love the online world is that although that exists in abundance you can choose absolutely which part of the online world you want to live in. You can make your own kingdom in that sense.
+ - I like to think of myself at home in the armchair, writing, smoking and occasionally wandering down the shop.
+ - My life, at least, is divided between writing and performing and mixtures of the two.
+ - Families where there is not much laughter I think are signs of some sort of dysfunctionality or sickness.
+ - Just as it is the love of money that is the root of all evil, it is the belief in shamefulness that is the root of all misery.
+ - There’s no doubt that I do have extremes of mood that are greater than just about anybody else I know.
+ - I think the fact that I’m so well known to be gay makes it very difficult to have a convincing relationship with a woman on screen. It wouldn’t be at all difficult for me to kiss a woman – I’ll kiss a frog if you like.
+ - Having been an actor and a writer for so long – 20 years or so – I felt that it would be daft to go to one’s grave without having directed. It’s a natural extension of writing and acting, and so I knew it would happen one day.
+ - If you have been, I’m glad you’ve stopped.
+ - I’ve never had any illusions about being a lead actor in films, because lead actors have to be of a certain kind.
+ - Wit can be beautiful, because it expresses and distills an idea.
+ - I think we have all experienced passion that is not in any sense reasonable.
+ - I like people who are as unlike me as possible, which is not an expression of self disgust or self hatred, but it’s just that you know you obviously particularly admire things that you recognize yourself as not having.
+ - Entry is not equivalent to possession.
+ - I think my view is that whenever you project into the future you’re never likely to be accurate in the details, or the paraphernalia and style. It’s in the spirit of it.
+ - You can act in five, six, or seven films in the time it takes to direct one film.
+ - There is so much we can learn from TV. It’s a window on the world.
+ - I like to wake up each morning and not know what I think, that I may reinvent myself in some way.
+ - They are just 100 per cent bear, whereas human beings feel we’re not 100 per cent human, that we’re always letting ourselves down. We’re constantly striving towards something, to some fulfilment.
+
+206 quotes

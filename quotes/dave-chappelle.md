@@ -1,0 +1,94 @@
+ - Chivalry is dead. Women killed it.
+ - Hey hey hey, smoke weed everyday.
+ - I support anyone’s right to be who they want to be. My question is: to what extent do I have to participate in your self-image?
+ - The mark of greatness is when everything before you is obsolete, and everything after you bears your mark.
+ - Constantly take inventory of what’s important to you.
+ - My father told me ‘Name your price in the beginning. If it ever gets more expensive than the price you name, get out of there.’
+ - I don’t do drugs, though. Just weed.
+ - Remember what the Bible says: He who is without sin, cast the first rock. And I shall smoketh it.
+ - If I can make a teacher’s salary doing comedy, I think that’s better than being a teacher.
+ - You know, be able to do something great in your life, you’re gonna have to realize your failures. You’re gonna have to embrace them and figure out how to overcome it.
+ - I think extreme sports are really good for relieving stress.
+ - Dave! Relax! Close your buttcheeks!
+ - No one wants to get their ass beat to a soundtrack.
+ - You got to be careful of the company you keep.
+ - I wish I had more hands, so I could give those titties four thumbs down!
+ - I get a little heated when I talk about the past. But I wanted to be clear – I’m not mad at anybody – not anymore.
+ - The hardest thing to do is to be true to yourself, especially when everybody is watching.
+ - They do what they do for money – that’s all. I don’t even know why you’re listening to me. I’ve done commercials for both Coke and Pepsi. Truth is, I can’t even taste the difference, but Pepsi paid me last, so there it is.
+ - You know you must be doing something right if old people like you.
+ - If you don’t have the right people around you and you’re moving at a million miles an hour you can lose yourself.
+ - Is this the 5:00 Free Crack Giveaway?
+ - I’m cool with failing so long as I know that there are people around me that love me unconditionally.
+ - The only way you can know where the line is, is if you cross it.
+ - America, I appreciate you liking me.
+ - I enjoy my own thoughts sometimes.
+ - One of the things that happens when people make the leap from a certain amount of money to tens of millions of dollars is that the people around you dramatically change.
+ - Why don’t you click your heels three times and go back to Africa.
+ - I think one artist to another artist, the best compliment you can pay one another, because the part of you that is inspired or creates something, to write a joke or a song, that’s like the God-like part of a person.
+ - I want to tell my jokes. I want to have time with my children. I want to entertain people. And at one point, I’ll walk away from show business. But I don’t want to walk away empty-handed.
+ - The worst thing to call somebody is crazy. It’s dismissive.
+ - The world can’t tell you who you are. You’ve just got to figure out who you are and be there, for better or worse.
+ - I love being famous – it’s phenomenal.
+ - I always take a relationship to the next level. If that works out, I take it to the next level after that, until I finally reach that level when it becomes absolutely necessary for me to leave.
+ - Every black American is bilingual. All of them. We speak street vernacular and we speak ‘job interview.’
+ - If you’re Brad Pitt and Jennifer Aniston, and your marriage is breaking up – that’s an awful thing. But to see that speculation in people, it’s gotta sting a little bit.
+ - Most people don’t know what it’s like to stand up there and speak their mind. I have a venue to do that. I get paid to do that. It’s not like I’m doing heavy lifting up there. It’s not like I’m solving the world’s problems. It’s like I’m hanging out with a bunch of people and it’s cool.
+ - You can’t get unfamous. You can get infamous but you can’t get unfamous.
+ - Comedians by and large are some of the most sensitive people on earth. Even if they’re socially callous.
+ - Ralph Nader has slavery reparations on his platform, which makes me think he’s not serious. If he thought he could win he wouldn’t even say that.
+ - There’s a lot of people who don’t want anything from me but to laugh and have a good time. You see them at the show and they like – they dress up to come see your show and stuff. And they pack these auditoriums and it’s a lot of fun, man. It’s like, this is how I started, and it’s still fun for me.
+ - I don’t want the money. I don’t want the drama. I just want to do my show. I want to have fun again.
+ - My generation is under-entertained.
+ - New white people, you can’t scare these white people, I tried.
+ - If I put forth a legitimate effort, then I feel like, if that doesn’t work out, that’s all I can do.
+ - You’ve got to say ‘yes’ to your destiny. Life’s happening right now, look around you. There goes some life. Come on, Mamma, live!
+ - I got a lot of positive people around me.
+ - The way the people around you position themselves around you to get in your pockets and in your mind is infuriating to me.
+ - What did the 5 fingers say to the face. S L A P!
+ - I don’t normally talk about my religion publicly because I don’t want people to associate me and my flaws with this beautiful thing. And I believe it is beautiful if you learn it the right way.
+ - What is wrong with me i just bought a bag of weed from an infant.
+ - I was doing sketches that were funny but socially irresponsible. I felt I was deliberately being encouraged and I was overwhelmed.
+ - Fame for me is like a place, a country I’m taking a tour through.
+ - A celebrity, whatever I am, you get cut off sometimes from people just by circumstance.
+ - The higher up I went, the less happy I was.
+ - All white people talk about when they get high is other times that they got high.
+ - I think every group of black guys should have at least one white guy in it.
+ - I have a very good life, a high quality of life. I have both money and time. No one has that.
+ - I felt in a lot of instances I was deliberately being put through stress because when you’re a guy who generates money, people have a vested interested in controlling you.
+ - My kids look actually happy. And I learned early on that perfectionism and parenthood is a toxic combination for everybody involved. In other words, so many things can flourish naturally. All you gotta do is make sure the soil’s right. I view myself more like a guide than a ruler.
+ - My wife asked me once if I weren’t a comedian what I would do. I couldn’t answer the question. I never imagined doing anything else.
+ - Who goes from America to Africa for medical attention?
+ - Something about New York, man: You can do more comedy there probably than you can anywhere in the world. If you’re interested in being funny, New York is the place to go.
+ - I have all these weird fantasies. Going coast-to-coast on my motorcycle and having random barbecues all over America. No show, no nothing.
+ - I’m an introspective dude.
+ - I’ve done 10 or 11 pilots for network television, which is ridiculous.
+ - Being famous is great, it’s not like bad or horrible or anything.
+ - The only thing harder than leaving show business is coming back.
+ - I care about the work I do. But I’m not going to say that money’s not an issue.
+ - I just like seeing people. I just like meeting people. I like finding out new walks of life and new ideas.
+ - After a while, a joke, if you say it too much, just becomes contrived, or fake-sounding.
+ - I don’t care if I ever work in TV again.
+ - When I’m on stage, I get real happy there. Maybe that’s the only time in my adult life I feel like myself.
+ - I’m happier in the way a guy gets happier when he starts to mature. It doesn’t make things easier, but I’m so much better at handling them.
+ - Because I was surrounded by so much negativity at some point that it took me going back and doing stand-up to realize, you know, people really like me.
+ - Stand-up is the kind of gig that’ll show you where you’re at.
+ - People don’t know what it’s like standing up there onstage, when you have a wall of people smiling at you.
+ - Everyone around me says, You’re a genius! You’re great! That’s your voice! But I’m not sure if they’re right.
+ - I’ve been a comedian since I was fourteen. But I’ve never really been a CEO.
+ - I’m famous today. People like me today. Might not like me tomorrow. You can’t count on it.
+ - Comedy is a very approval-oriented field.
+ - My own life is accessible to people still. I could see a guy walking down the street and, even though I’m famous, I got more in common with this guy than, like, Brad Pitt.
+ - I got real important relationships in my life that are very empowering relationships.
+ - Listen, here it is: Technically, I never quit. I’m seven years late for work.
+ - Where I’m from? A little town called none of yo god damn business.
+ - There’s something about doing stand-up that’s cathartic.
+ - I love the fact that I have a show where you can run over a kid and everyone busts out laughing.
+ - I have angst in my life, but I’m like anybody. We all have angst in our lives that we pick up and fidget with and then we put down and look at some other things that make us feel good or enjoy our lives.
+ - I still think people do have racial hang-ups, but I think one of the reasons I can joke about it is people are shedding those racial hatreds.
+ - I want be a guest-star on as many television shows as I possibly can. I love television. The fact that television ultimately made me famous was very gratifying for me.
+ - Once you been performing on the streets you can conquer any venue.
+ - Whether it means having a show, or a movie, or just being on a stage, I need an avenue to say what I have to say.
+ - I don’t want anything bad to happen to the United States, but if North Korea ever drops a nuclear bomb on this country, I swear to God I hope it lands in Hartford, Connecticut.
+
+92 quotes

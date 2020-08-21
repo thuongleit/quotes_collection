@@ -1,0 +1,502 @@
+ - Knowledge is power.
+ - A wise man will make more opportunities than he finds.
+ - Some books should be tasted, some devoured, but only a few should be chewed and digested thoroughly.
+ - Silence is the sleep that nourishes wisdom.
+ - Reading maketh a full man; conference a ready man; and writing an exact man.
+ - Money is a great servant but a bad master.
+ - In order for the light to shine so brightly, the darkness must be present.
+ - Small amounts of philosophy lead to atheism, but larger amounts bring us back to God.
+ - I would live to study, not study to live.
+ - Science is but an image of the truth.
+ - Truth is the daughter of time, not of authority.
+ - The best part of beauty is that which no picture can express.
+ - Reading maketh a full man.
+ - By far the best proof is experience.
+ - It’s not what we eat but what we digest that makes us strong; not what we gain but what we save that makes us rich; not what we read but what we remember that makes us learned; and not what we profess but what we practice that gives us integrity.
+ - Man prefers to believe what he prefers to be true.
+ - Studies serve for delight, for ornaments, and for ability.
+ - I believe in deeply ordered chaos.
+ - A little philosophy inclineth man’s mind to atheism, but depth in philosophy bringeth men’s minds about to religion.
+ - We rise to great heights by a winding staircase of small steps.
+ - Travel, in the younger sort, is a part of education; in the elder, a part of experience.
+ - If a man’s wit be wandering, let him study the mathematics.
+ - All colours will agree in the dark.
+ - Fortitude is the marshal of thought, the armor of the will, and the fort of reason.
+ - Nature, to be commanded, must be obeyed.
+ - Begin doing what you want to do now. We are not living in eternity. We have only this moment, sparkling like a star in our hand – and melting like a snowflake...
+ - Revenge is a kind of wild justice.
+ - If a man will begin with certainties, he shall end in doubts, but if he will content to begin with doubts, he shall end in certainties.
+ - Histories make men wise; poets, witty; the mathematics, subtle; natural philosophy, deep; moral, grave; logic and rhetoric, able to contend.
+ - The virtue of prosperity is temperance; the virtue of adversity is fortitude.
+ - Beauty itself is but the sensible image of the Infinite.
+ - Imagination was given to man to compensate him for what he is not; a sense of humor to console him for what he is.
+ - Age appears to be best in four things; old wood best to burn, old wine to drink, old friends to trust, and old authors to read.
+ - Who questions much, shall learn much, and retain much.
+ - A prudent question is one-half of wisdom.
+ - To know truly is to know by causes.
+ - Atheism leads a man to sense, to philosophy, to natural piety, to laws, to reputation: all of which may be guides to an outward moral virtue.
+ - He that hath knowledge spareth his words.
+ - Without friends the world is but a wilderness.
+ - Write down the thoughts of the moment. Those that come unsought for are commonly the most valuable.
+ - For whatever deserves to exist deserves also to be known, for knowledge is the image of existence, and things mean and splendid exist alike.
+ - Fortune is like the market, where, many times, if you can stay a little, the price will fall.
+ - Seek ye first the good things of the mind, and the rest will either be supplied or its loss will not be felt.
+ - Things alter for the worse spontaneously, if they be not altered for the better designedly.
+ - The less people speak of their greatness, the more we think of it.
+ - Crafty men condemn studies; Simple men admire them; And wise men use them: For they teach not their own use: but that is a wisdom without them, and above them, won by observation.
+ - Observation and experiment for gathering material, induction and deduction for elaborating it: these are are only good intellectual tools.
+ - Prosperity discovers vice, adversity discovers virtue.
+ - A bachelor’s life is a fine breakfast, a flat lunch, and a miserable dinner.
+ - If we are to achieve things never before accomplished we must employ methods never before attempted.
+ - The greatest vicissitude of things amongst men, is the vicissitude of sects and religions.
+ - The inquiry of truth, which is the love-making, or the wooing of it, the knowledge of truth, which is the presence of it, and the belief of truth, which is the enjoying of it, is the sovereign good of human nature.
+ - Revenge is a kind of wild justice, which the more a man’s nature runs to, the more ought law to weed it out.
+ - Truth is a naked and open daylight.
+ - The greatest trust between man and man is the trust of giving counsel.
+ - Wonder is the seed of knowledge.
+ - It is the peculiar and perpetual error of the human understanding to be more moved and excited by affirmatives than by negatives.
+ - When I paint I am ageless, I just have the pleasure or the difficulty of painting.
+ - For a crowd is not company; and faces are but a gallery of pictures; and talk but a tinkling cymbal, where there is no love.
+ - Men in great place are thrice servants: servants of the sovereign or state, servants of fame, and servants of business.
+ - There is superstition in avoiding superstition.
+ - Art is man added to Nature.
+ - The wonder of a single snowflake outweighs the wisdom of a million meteorologists.
+ - Men fear death as children fear to go in the dark; and as that natural fear in children is increased by tales, so is the other.
+ - If we do not maintain justice, justice will not maintain us.
+ - Nothing is to be feared but fear itself. Nothing grievous but to yield to grief.
+ - It is a sad fate for a man to die too well known to everybody else, and still unknown to himself.
+ - Secrecy in suits goes a great way towards success.
+ - If a man be gracious and courteous to strangers, it shows he is a citizen of the world.
+ - The job of the artist is always to deepen the mystery.
+ - A lie faces God and shrinks from man.
+ - Life is a marshmallow, easy to chew but hard to swallow.
+ - To seek to extinguish anger utterly is but a bravery of the Stoics. We have better oracles: ‘Be angry, but sin not.’ ‘Let not the sun go down upon your wrath.’
+ - Houses are built to live in, and not to look on: therefore let use be preferred before uniformity.
+ - Opportunity makes a thief.
+ - The folly of one man is the fortune of another.
+ - Everybody has his own interpretation of a painting he sees...
+ - It would be unsound fancy and self-contradictory to expect that things which have never yet been done can be done except by means which have never yet been tried.
+ - Half of science is putting forth the right questions.
+ - They are ill discoverers that think there is no land, when they can see nothing but sea.
+ - A man that studieth revenge keeps his own wounds green.
+ - Parents who wish to train up their children in the way they should go must go in the way in which they would have their children go.
+ - Laws and Institutions Must Go Hand in Hand with the Progress of the Human Mind.
+ - We must see whether the same clock with weights will go faster at the top of a mountain or at the bottom of a mine; it is probable, if the pull of the weights decreases on the mountain and increases in the mine, that the earth has real attraction.
+ - There is no excellent beauty that hath not some strangeness in the proportion.
+ - The light that a man receives by counsel from another is drier and purer than that which comes from his own understanding and judgment, which is ever infused and drenched in his affections and customs.
+ - We cannot command Nature except by obeying her.
+ - Wives are young men’s mistresses, companions for middle age, and old men’s nurses.
+ - Nature is often hidden, sometimes overcome, seldom extinguished.
+ - A principal fruit of friendship, is the ease and discharge of the fullness and swellings of the heart, which passions of all kinds do cause and induce.
+ - There are two books laid before us to study, to prevent our falling into error; first, the volume of the Scriptures, which reveal the will of God; then the volume of the Creatures, which express His power.
+ - Salomon saith, There is no new thing upon the earth. So that as Plato had an imagination, that all knowledge was but remembrance; so Salomon giveth his sentence, that all novelty is but oblivion.
+ - Truth is so hard to tell, it sometimes needs fiction to make it plausible.
+ - Important families are like potatoes. The best parts are underground.
+ - Silence is the virtue of fools.
+ - In nature things move violently to their place, and calmly in their place.
+ - The poets did well to conjoin music and medicine, in Apollo, because the office of medicine is but to tune the curious harp of man’s body and reduce it to harmony.
+ - I will never be an old man. To me, old age is always 15 years older than I am.
+ - Champagne for my real friends, real pain for my sham friends.
+ - There are many wise men that have secret hearts and transparent countenances.
+ - Very few people have a natural feeling for painting, and so, of course, they naturally think that painting is an expression of the artist’s mood. But it rarely is. Very often he may be in greatest despair and be painting his happiest paintings.
+ - As is the garden such is the gardener. A man’s nature runs either to herbs or weeds.
+ - Croesus said to Cambyses; That peace was better than war; because in peace the sons did bury their fathers, but in wars the fathers did bury their sons.
+ - I paint for myself. I don’t know how to do anything else, anyway. Also I have to earn my living, and occupy myself.
+ - To suffering there is a limit; to fearing, none.
+ - Choose the life that is most useful, and habit will make it the most agreeable.
+ - In charity there is no excess.
+ - A just fear of an imminent danger, though be no blow given, is a lawful cause of war.
+ - Reading maketh a full man; and writing an axact man. And, therefore, if a man write little, he need have a present wit; and if he read little, he need have much cunning to seem to know which he doth not.
+ - Great changes are easier than small ones.
+ - Friends are thieves of time.
+ - In taking revenge, a man is but even with his enemy; but in passing it over, he is superior.
+ - Natural abilities are like natural plants, that need pruning by study; and studies themselves do give forth directions too much at large, except they be bounded in by experience.
+ - All of our actions take their hue from the complexion of the heart, as landscapes their variety from light.
+ - If you can talk about it, why paint it?
+ - Who then to frail mortality shall trust But limns the water, or but writes in dust.
+ - In one and the same fire, clay grows hard and wax melts.
+ - Come home to men’s business and bosoms.
+ - The place of justice is a hallowed place.
+ - Nothing destroys authority more than the unequal and untimely interchange of power stretched too far and relaxed too much.
+ - There was a young man in Rome that was very like Augustus Caesar; Augustus took knowledge of it and sent for the man, and asked him “Was your mother never at Rome?” He answered “No Sir; but my father was.”
+ - The speaking in a perpetual hyperbole is comely in nothing but love.
+ - There is no comparison between that which is lost by not succeeding and that which is lost by not trying.
+ - A much talking judge is an ill-tuned cymbal.
+ - We read that we ought to forgive our enemies; but we do not read that we ought to forgive our friends.
+ - The lame man who keeps the right road outstrips the runner who takes the wrong one.
+ - Friendship maketh daylight in the understanding, out of darkness and confusion of thoughts.
+ - Nothing doth more hurt in a state than that cunning men pass for wise.
+ - It is a strange desire, to seek power, and to lose liberty; or to seek power over others, and to lose power over a man’s self.
+ - The root of all superstition is that men observe when a thing hits, but not when it misses.
+ - When Christ came into the world, peace was sung; and when He went out of the world, peace was bequeathed.
+ - The ill and unfit choice of words wonderfully obstructs the understanding.
+ - In all negotiations of difficulty, a man may not look to sow and reap at once; but must prepare business, and so ripen it by degrees.
+ - I hold every man a debtor to his profession.
+ - God never wrought miracles to convince atheism, because his ordinary works convince it.
+ - There is no great concurrence between learning and wisdom.
+ - Vain-glorious men are the scorn of the wise, the admiration of fools, the idols of paradise, and the slaves of their own vaunts.
+ - The man who fears no truths has nothing to fear from lies.
+ - The human understanding, from its peculiar nature, easily supposes a greater degree of order and equality in things than it really finds.
+ - The universe must not be narrowed down to the limit of our understanding, but our understanding must be stretched and enlarged to take in the image of the universe as it is discovered.
+ - The genius, wit, and the spirit of a nation are discovered by their proverbs.
+ - Praise is the reflection of virtue.
+ - All the crimes on earth do not destroy so many of the human race, nor alienate so much property, as drunkenness.
+ - By indignities men come to dignities.
+ - No pleasure is comparable to the standing upon the vantage-ground of truth.
+ - The way of fortune is like the milkyway in the sky; which is a number of small stars, not seen asunder, but giving light together: so it is a number of little and scarce discerned virtues, or rather faculties and customs, that make men fortunate.
+ - Painting is a duality and abstract painting is an entirely aesthetic thing. It always remains on one level. It is only really interesting in the beauty of its patterns or its shapes.
+ - God loveth the clean.
+ - Therefore if a man look sharply and attentively, he shall see Fortune; for though she be blind, yet she is not invisible.
+ - Prosperity is the blessing of the Old Testament; adversity is the blessing of the New.
+ - The wisdom of the ancients.
+ - The eye of understanding is like the eye of the sense; for as you may see great objects through small crannies or levels, so you may see great axioms of nature through small and contemptible instances.
+ - Atheism is rather in the lip, than in the heart of man.
+ - Time is the greatest innovator.
+ - What is truth? said jesting Pilate; and would not stay for an answer.
+ - I’ll follow, as they say, for reward. He that rewards me, God reward him. If I do grow great, I’ll grow less; for I’ll purge, and leave sack, and live cleanly, as a nobleman should do.
+ - Money is like muck, not good unless spread.
+ - Images also help me find and realise ideas. I look at hundreds of very different, contrasting images and I pinch details from them, rather like people who eat from other people’s plates.
+ - He that hath a wife and children hath given hostages to fortune.
+ - We only have our nervous system to paint.
+ - Learning hath his infancy, when it is but beginning and almost childish; then his youth, when it is luxuriant and juvenile; then his strength of years, when it is solid and reduced; and lastly his old age, when it waxeth dry and exhaust.
+ - Again men have been kept back as by a kind of enchantment from progress in science by reverence for antiquity, by the authority of men counted great in philosophy, and then by general consent.
+ - Let every student of nature take this as his rule, that whatever the mind seizes upon with particular satisfaction is to be held in suspicion.
+ - It is natural to die as to be born.
+ - A good name is like precious ointment ; it filleth all round about, and will not easily away; for the odors of ointments are more durable than those of flowers.
+ - I think I tend to destroy the better paintings, or those that have been better to a certain extent. I try and take them further, and they lose all their qualities, and they lose everything. I think I would say that I destroy all the better paintings.
+ - Riches are for spending, and spending for honor and good actions; therefore extraordinary expense must be limited by the worth of the occasion.
+ - To spend too much time in studies is sloth.
+ - The stage is more beholding to love than the life of man. For as to the stage, love is ever matter of comedies and now and then of tragedies; but in life it doth much mischief, sometimes like a Siren, sometimes like a Fury.
+ - Base and crafty cowards are like the arrow that flieth in the dark.
+ - Suspicion amongst thoughts are like bats amongst birds, they never fly by twilight.
+ - He that seeketh to be eminent amongst able men hath a great task; but that is ever good for the public. But he that plots to be the only figure amongst ciphers is the decay of a whole age.
+ - There is little friendship in the world, and least of all between equals.
+ - A man cannot speak to his son, but as a father; to his wife, but as a husband; to his enemy, but upon terms: whereas a friend may speak, as the case requires, and not as it sorteth with the person.
+ - Nakedness is uncomely, as well in mind as body, and it addeth no small reverence to men’s manners and actions if they be not altogether open. Therefore set it down: That a habit of secrecy is both politic and moral.
+ - Love and envy make a man pine, which other affections do not, because they are not so continual.
+ - Certainly, it is heaven upon earth, to have a man’s mind move in charity, rest in providence, and turn upon the poles of truth.
+ - Envy is ever joined with the comparing of a man’s self; and where there is no comparison, no envy.
+ - To spend too much time in studies is sloth; to use them too much for ornament is affection; to make judgment wholly by their rules is the humor of a scholar.
+ - The zeal which begins with hypocrisy must conclude in treachery at first it deceives, at last it betrays.
+ - When any of the four pillars of government-religion, justice, counsel, and treasure-are mainly shaken or weakened, men had need to pray for fair weather.
+ - The desire of power in excess caused the angels to fall; the desire of knowledge in excess caused man to fall: but in charity there is no excess; neither can angel nor man come in danger by it.
+ - Children sweeten labours, but they make misfortunes more bitter.
+ - When a bee stings, she dies. She cannot sting and live. When men sting, their better selves die. Every sting kills a better instinct. Men must not turn bees and kill themselves in stinging others.
+ - It’s not what we profess but what we practice that gives us integrity.
+ - Truth can never be reached by just listening to the voice of an authority.
+ - If a man’s wit be wandering, let him study the mathematics; for in demonstrations, if his wit be called away never so little, he must begin again.
+ - It was prettily devised of Aesop, The fly sat on the axle tree of the chariot wheel and said, what dust do I raise!
+ - Nothing is more pleasant to the eye than green grass kept finely shorn.
+ - A king that would not feel his crown too heavy for him, must wear it every day; but if he think it too light, he knoweth not of what metal it is made.
+ - It is the wisdom of the crocodiles, that shed tears when they would devour.
+ - Philosophers make imaginary laws for imaginary commonwealths, and their discourses are as the stars, which give little light because they are so high.
+ - A bad man is worse when he pretends to be a saint.
+ - Young people are fitter to invent than to judge; fitter for execution than for counsel; and more fit for new projects than for settled business.
+ - If a man’s wit be not apt to distinguish or find differences, let him study the schoolmen; for they are cymini sectores, splitters of hairs.
+ - Nuptial love makes mankind; friendly love perfects it; but wanton love corrupts and debases it.
+ - In all superstition wise men follow fools.
+ - It is idle to expect any great advancement in science from the superinducing and engrafting of new things upon old. We must begin anew from the very foundations, unless we would revolve for ever in a circle with mean and contemptible progress.
+ - To be free minded and cheerfully disposed at hours of meat and sleep and of exercise is one of the best precepts of long lasting.
+ - Knowledge is a rich storehouse for the glory of the Creator and the relief of man’s estate.
+ - Boldness is ever blind, for it sees not dangers and inconveniences whence it is bad in council though good in execution.
+ - The creative process is a cocktail of instinct, skill, culture and a highly creative feverishness.
+ - The nature of things betrays itself more readily under the vexations of art than in its natural freedom.
+ - All artists are vain, they long to be recognized and to leave something to posterity. They want to be loved, and at the same time they want to be free. But nobody is free.
+ - The doctrines of religion are resolved into carefulness; carefulness into vigorousness; vigorousness into guiltlessness; guiltlessness into abstemiousness; abstemiousness into cleanliness; cleanliness into godliness.
+ - Studies perfect nature and are perfected still by experience.
+ - Truth emerges more readily from error than from confusion.
+ - The more a man drinketh of the world, the more it intoxicateth.
+ - There is no such flatterer as is a man’s self.
+ - Then bless thy secret growth, nor catch At noise, but thrive unseen and dumb; Keep clean, be as fruit, earn life, and watch, Till the white-wing’d reapers come.
+ - Even within the most beautiful landscape, in the trees, under the leaves the insects are eating each other; violence is a part of life.
+ - But we may go further, and affirm most truly, that it is a mere and miserable solitude to want true friends; without which the world is but a wilderness.
+ - I hold every man a debtor to his profession; from the which as men of course do seek to receive countenance and profit, so ought they of duty to endeavor themselves, by way of amends, to be a help and ornament thereunto.
+ - It is a miserable state of mind to have few things to desire and many things to fear.
+ - The monuments of wit survive the monuments of power.
+ - Certainly virtue is like precious odors, most fragrant when they are incensed, or crushed: for prosperity doth best discover vice, but adversity doth best discover virtue.
+ - Painting is the pattern of one’s own nervous system being projected on canvas.
+ - There is nothing makes a man suspect much, more than to know little, and therefore men should remedy suspicion by procuring to know more, and not keep their suspicions in smother.
+ - Be so true to thyself, as thou be not false to others.
+ - Man, being the servant and interpreter of Nature, can do and understand so much and so much only as he has observed in fact or thought of the course of nature; beyond this he neither knows anything nor can do anything.
+ - Speech of yourself ought to be seldom and well chosen.
+ - God has, in fact, written two books, not just one. Of course, we are all familiar with the first book he wrote, namely Scripture. But he has written a second book called creation.
+ - Picasso is the reason why I paint. He is the father figure, who gave me the wish to paint.
+ - This is certain, that a man that studieth revenge keeps his wounds green, which otherwise would heal and do well.
+ - For fountains, they are a Great Beauty and Refreshment, but Pools mar all, and make the Garden unwholesome, and full of Flies and Frogs.
+ - Human knowledge and human power meet in one; for where the cause is not known the effect cannot be produced. Nature to be commanded must be obeyed; and that which in contemplation is as the cause is in operation as the rule.
+ - There was never miracle wrought by God to convert an atheist, because the light of nature might have led him to confess a God.
+ - God has placed no limits to the exercise of the intellect he has given us, on this side of the grave.
+ - It was well said that envy keeps no holidays.
+ - Be not penny-wise. Riches have wings. Sometimes they fly away of themselves, and sometimes they must be set flying to bring in more.
+ - He who desires solitude is either an animal or a god.
+ - Gardening is the purest of human pleasures.
+ - I loathe my own face, and I’ve done self-portraits because I’ve had nobody else to do.
+ - Above all, believe it, the sweetest canticle is Nunc dimittis, when a man hath obtained worthy ends and expectations. Death hath this also, that it openeth the gate to good fame, and extinguisheth envy.
+ - If I sit and daydream, the images rush by like a succession of colored slides.
+ - It was a high speech of Seneca that “The good things which belong to prosperity are to be wished, but the good things that belong to adversity are to be admired.”
+ - The master of superstition, is the people; and in all superstition, wise men follow fools; and arguments are fitted to practice, in a reversed order.
+ - Death is a friend of ours; and he that is not ready to entertain him is not at home.
+ - The sun, though it passes through dirty places, yet remains as pure as before.
+ - Nobility of birth commonly abateth industry.
+ - A graceful and pleasing figure is a perpetual letter of recommendation.
+ - Friendship increases in visiting friends, but in visiting them seldom.
+ - The human understanding is like a false mirror, which, receiving rays irregularly, distorts and discolors the nature of things by mingling its own nature with it.
+ - Painting today is pure intuition and luck and taking advantage of what happens when you splash the stuff down.
+ - But men must know, that in this theatre of man’s life it is reserved only for God and angels to be lookers on.
+ - You could say that I have no inspiration, that I only need to paint.
+ - But the best demonstration by far is experience, if it go not beyond the actual experiment.
+ - That things are changed, and that nothing really perishes, and that the sum of matter remains exactly the same, is sufficiently certain.
+ - Always let losers have their words.
+ - The world’s a bubble, and the life of man, Less than a span.
+ - Great Hypocrites are the real atheists.
+ - It is not the lie that passeth through the mind, but the lie that sinketh in and settleth in it, that doth the hurt.
+ - Philosophy when superficially studied, excites doubt, when thoroughly explored, it dispels it.
+ - All painting is an accident. But it’s also not an accident, because one must select what part of the accident one chooses to preserve.
+ - Nothing is to be feared but fear.
+ - If you dissemble sometimes your knowledge of that you are thought to know, you shall be thought, another time, to know that you know not.
+ - The logic now in use serves rather to fix and give stability to the errors which have their foundation in commonly received notions than to help the search for truth. So it does more harm than good.
+ - The best preservative to keep the mind in health is the faithful admonition of a friend.
+ - If my people look as if they’re in a dreadful fix, it’s because I can’t get them out of a technical dilemma.
+ - I should have been, I don’t know, a con-man, a robber or a prostitute. But it was vanity that made me choose painting, vanity and chance.
+ - A sudden bold and unexpected question doth many times surprise a man and lay him open.
+ - I usually accept bribes from both sides so that tainted money can never influence my decision.
+ - Certainly the best works, and of greatest merit for the public, have proceeded from the unmarried, or childless men.
+ - Cure the disease and kill the patient.
+ - You cannot teach a child to take care of himself unless you will let him try to take care of himself. He will make mistakes and out of these mistakes will come his wisdom.
+ - It has well been said that the arch-flatterer, with whom all petty flatterers have intelligence, is a man’s self.
+ - But by far the greatest obstacle to the progress of science and to the undertaking of new tasks and provinces therein is found in this-that men despair and think things impossible.
+ - Friendship redoubleth joys, and cutteth griefs in half.
+ - It is impossible to love and to be wise.
+ - Why should I be angry with a man for loving himself better than me?
+ - There is no greater wisdom than well to time the beginnings and onsets of things.
+ - Virtue is like a rich stone, best plain set.
+ - A man finds himself seven years older the day after his marriage.
+ - Suspicions that the mind, of itself, gathers, are but buzzes; but suspicions that are artificially nourished and put into men’s heads by the tales and whisperings of others, have stings.
+ - The mystery lies in the irrationality by which you make appearance – if it is not irrational, you make illustration.
+ - If you want to convey fact, this can only ever be done through a form of distortion. You must distort to transform what is called appearance into image.
+ - It is good discretion not make too much of any man at the first; because one cannot hold out that proportion.
+ - No man’s fortune can be an end worthy of his being.
+ - When a traveler returneth home, let him not leave the countries where he hath traveled altogether behind him.
+ - I like, you may say, the glitter and colour that comes from the mouth, and I’ve always hoped in a sense to be able to paint the mouth like Monet painted a sunset.
+ - The pencil of the Holy Ghost hath labored more in describing the afflictions of Job than the felicities of Solomon.
+ - Such is the way of all superstition, whether in astrology, dreams, omens, divine judgments, or the like; wherein men, having a delight in such vanities, mark the events where they are fulfilled, but where they fail, though this happen much oftener.
+ - Much bending breaks the bow; much unbending the mind.
+ - Acorns were good until bread was found.
+ - Libraries are as the shrine where all the relics of the ancient saints, full of true virtue, and that without delusion or imposture, are preserved and reposed.
+ - I don’t think people are born artists; I think it comes from a mixture of your surroundings, the people you meet, and luck.
+ - The best armor is to keep out of gunshot.
+ - Hurl your calumnies boldly; something is sure to stick.
+ - I think of myself as a kind of pulverizing machine into which everything I look at and feel is fed. I believe that I am different from the mixed-media jackdaws who use photographs etc. more or less literally.
+ - Perils commonly ask to be paid in pleasures.
+ - Velazquez found the perfect balance between the ideal illustration which he was required to produce, and the overwhelming emotion he aroused in the spectator.
+ - In mathematics I can report no deficiency, except it be that men do not sufficiently understand the excellent use of Pure Mathematics.
+ - The rising unto place is laborious, and by pains men come to greater pains; and it is sometimes base, and by indignities men come to dignities. The standing is slippery, and the regress is either a downfall, or at least an eclipse.
+ - Nay, number itself in armies importeth not much, where the people is of weak courage; for, as Virgil saith, It never troubles the wolf how many the sheep be.
+ - Jesus would have been one of the best photographers that ever existed. He was always looking at the beauty of people souls. In fact Jesus was constantly making pictures of God in people’s life by looking at their souls and exposing them to his light.
+ - The subtlety of nature is greater many times over than the subtlety of the senses and understanding.
+ - Good fame is like fire; when you have kindled you may easily preserve it; but if you extinguish it, you will not easily kindle it again.
+ - It’s always hopeless to talk about painting – one never does anything but talk around it.
+ - He that will not apply new remedies must expect new evils; for time is the greatest innovator.
+ - He that toucheth pitch shall be defiled therewith.
+ - Riches are a good hand maiden, but a poor mistress.
+ - God’s first creature, which was light.
+ - Nothing is pleasant that is not spiced with variety.
+ - People have discovered that they can fool the devil; but they can’t fool the neighbors.
+ - There is no vice that doth so cover a man with shame as to be found false and perfidious.
+ - I knew a wise man that had it for a by-word, when he saw men hasten to a conclusion, “Stay a little, that we may make an end the sooner.”
+ - The divisions of science are not like different lines that meet in one angle, but rather like the branches of trees that join in one trunk.
+ - When a doubt is once received, men labour rather how to keep it a doubt still, than how to solve it; and accordingly bend their wits.
+ - God hangs the greatest weights upon the smallest wires.
+ - Discretion in speech is more than eloquence.
+ - My praise shall be dedicated to the mind itself. The mind is the man, and the knowledge is the mind. A man is but what he knoweth. The mind is but an accident to knowledge, for knowledge is the double of that which is.
+ - Whence we see spiders, flies, or ants entombed and preserved forever in amber, a more than royal tomb.
+ - I foresee it and yet I hardly ever carry it out as I foresee it. It transforms itself by the actual paint. I don’t in fact know very often what the paint will do, and it does many things which are very much better than I could make it do.
+ - The study of nature with a view to works is engaged in by the mechanic, the mathematician, the physician, the alchemist, and the magician; but by all as things now are with slight endeavour and scanty success.
+ - Travel, in the younger sort, is a part of education; in the elder, a part of experience. He that travelleth into a country before he hath some entrance into the language, goeth to school, and not to travel.
+ - A man were better relate himself to a statue or picture than to suffer his thoughts to pass in smother.
+ - I don’t believe art is available; it’s rare and curious and should be completely isolated; one is more aware of its magic the more it is isolated.
+ - The correlative to loving our neighbors as ourselves is hating ourselves as we hate our neighbors.
+ - When a man laughs at his troubles he loses a great many friends. They never forgive the loss of their prerogative.
+ - Let no one think or maintain that a person can search too far or be too well studied in either the book of God’s word or the book of God’s works.
+ - Such philosophy as shall not vanish in the fume of subtile, sublime, or delectable speculation but shall be operative to the endowment and betterment of man’s life.
+ - An illustrational form tells you through the intelligence immediately what the form is about, whereas a non-illustrational form works first upon sensation and then slowly leaks back into the fact.
+ - Judges must beware of hard constructions and strained inferences, for there is no worse torture than that of laws.
+ - The remedy is worse than the disease.
+ - There is no secrecy comparable to celerity.
+ - A cat will never drown if she sees the shore.
+ - Believe not much them that seem to despise riches, for they despise them that despair of them.
+ - I had rather believe all the Fables in the Legend, and the Talmud, and the Alcoran, than that this universal frame is without a Mind.
+ - The French are wiser than they seem, and the Spaniards seem wiser than they are.
+ - For my name and memory I leave to men’s charitable speeches, and to foreign nations and the next ages.
+ - The errors of young men are the ruin of business, but the errors of aged men amount to this, that more might have been done, or sooner.
+ - Habit, if wisely and skillfully formed, becomes truly a second nature; but unskillfully and unmethodically depicted, it will be as it were an ape of nature, which imitates nothing to the life, but only clumsily and awkwardly.
+ - Lies are sufficient to breed opinion, and opinion brings on substance.
+ - The images of mens wits and knowledge remain in books. They generate still, and cast their seeds in the minds of others, provoking and causing infinite actions and opinions in succeeding ages.
+ - You want accuracy, but not representation. If you know how to make the figuration, it doesn’t work. Anything you can make, you make by accident. In painting, you have to know what you do, not how, when you do it.
+ - The genius of any single man can no more equal learning, than a private purse hold way with the exchequer.
+ - Books must follow sciences, and not sciences books.
+ - But the images of men’s wits and knowledges remain in books, exempted from the wrong of time, and capable of perpetual renovation.
+ - If the hill will not come to Mahomet, Mahomet will go to the hill.
+ - Before I start painting I have a slightly ambiguous feeling: happiness is a special excitement because unhappiness is always possible a moment later.
+ - I have to hope that my instincts will do the right thing, because I can’t erase what I have done. And if I drew something first, then my paintings would be illustrations of drawings.
+ - Seek not proud riches, but such as thou mayest get justly, use soberly, distribute cheerfully, and leave contentedly.
+ - I want to make portraits and images. I don’t know how. Out of despair, I just use paint anyway. Suddenly the things you make coagulate and take on just the shape you intend. Totally accurate marks, which are outside representational marks.
+ - Great riches have sold more men than they have bought.
+ - The bee enclosed and through the amber shown Seems buried in the juice which was his own.
+ - A forbidden writing is thought to be a certain spark of truth, that flies up in the face of them who seek to tread it out.
+ - A young man not yet, an elder man not at all.
+ - Pictures and shapes are but secondary objects and please or displease only in the memory.
+ - There ought to be gardens for all months in the year, in which, severally, things of beauty may be then in season.
+ - Painting gave meaning to my life which without it would not have had.
+ - The person is a poor judge who by an action can be disgraced more in failing than they can be honored in succeeding.
+ - Discretion of speech is more than eloquence, and to speak agreeably to him with whom we deal is more than to speak in good words, or in good order.
+ - I’m just trying to make images as accurately as possible off my nervous system as I can.
+ - He was reputed one of the wise men that made answer to the question when a man should marry? ‘A young man not yet, an elder man not at all.’
+ - To say that a man lieth, is as much to say, as that he is brave towards God, and a coward towards men.
+ - Brutes by their natural instinct have produced many discoveries, whereas men by discussion and the conclusions of reason have given birth to few or none.
+ - Next to religion, let your care be to promote justice.
+ - Never any knowledge was delivered in the same order it was invented.
+ - For first of all we must prepare a Natural and Experimental History, sufficient and good; and this is the foundation of all; for we are not to imagine or suppose, but to discover, what nature does or may be made to do.
+ - The natures and dispositions of men are, not without truth, distinguished from the predominance of the planets.
+ - Princes are like heavenly bodies, which cause good or evil times, and which have much veneration, but no rest.
+ - Rebellions of the belly are the worst.
+ - The End of our Foundation is the knowledge of Causes; and secret motions of things; and the enlarging of the bounds of Human Empire, to the effecting of all things possible.
+ - No artist knows in his own lifetime whether what he does will be the slightest good, because it takes at least seventy-five to a hundred years before the thing begins to sort itself out.
+ - The only really interesting thing is what happens between two people in a room.
+ - He that cometh to seek after knowledge, with a mind to scorn, shall be sure to find matter for his humour, but no matter for his instruction.
+ - Great art is deeply ordered. Even if within the order there may be enormously instinctive and accidental things, nevertheless they come out of a desire for ordering and for returning fact onto the nervous system in a more violent way.
+ - Liberty of speech invites and provokes liberty to be used again, and so bringeth much to a man’s knowledge.
+ - Riches are for spending.
+ - They that reverence to much old times are but a scorn to the new.
+ - Generally he perceived in men of devout simplicity this opinion: that the secrets of nature were the secrets of God, part of that glory into which man is not to press too boldly.
+ - Judges ought to be more leaned than witty, more reverent than plausible, and more advised than confident. Above all things, integrity is their portion and proper virtue.
+ - All bravery stands upon comparisons.
+ - In things that are tender and unpleasing, it is good to break the ice by some one whose words are of less weight, and to reserve the more weighty voice to come in as by chance.
+ - Men on their side must force themselves for a while to lay their notions by and begin to familiarize themselves with facts.
+ - Truth is a good dog; but always beware of barking too close to the heels of an error, lest you get your brains kicked out.
+ - All will come out in the washing.
+ - Religion brought forth riches, and the daughter devoured the mother.
+ - Ask counsel of both timesof the ancient time what is best, and of the latter time what is fittest.
+ - Wounds cannot be cured without searching.
+ - If money be not thy servant, it will be thy master. The covetous man cannot so properly be said to possess wealth, as that may be said to possess him.
+ - Whatever you can, count.
+ - Why should a man be in love with his fetters, though of gold?
+ - For cleanness of body was ever esteemed to proceed from a due reverence to God, to society, and to ourselves.
+ - Rather to excite your judgment briefly than to inform it tediously.
+ - I work for posterity, these things requiring ages for their accomplishment.
+ - It is as hard and severe a thing to be a true politician as to be truly moral.
+ - Every person born in the USA is endowed with life, liberty, and a substantial share of the national debt.
+ - Learning teaches how to carry things in suspense, without prejudice, till you resolve it.
+ - In civil business; what first? boldness; what second and third? boldness: and yet boldness is a child of ignorance and baseness.
+ - Man, as the minister and interpreter of nature, is limited in act and understanding by his observation of the order of nature; neither his understanding nor his power extends further.
+ - Pyrrhus, when his friends congratulated to him his victory over the Romans under Fabricius, but with great slaughter of his own side, said to them, “Yes; but if we have such another victory, we are undone.”
+ - Great boldness is seldom without some absurdity.
+ - I do not believe that any man fears to be dead, but only the stroke of death.
+ - It is a good point of cunning for a man to shape the answer he would have in his own words and propositions, for it makes the other party stick the less.
+ - Of all virtues and dignities of the mind, goodness is the greatest.
+ - So that every wand or staff of empire is forsooth curved at top.
+ - The momentous thing in human life is the art of winning the soul to good or evil.
+ - We are much beholden to Machiavel and others, that write what men do, and not what they ought to do.
+ - The cord breaketh at last by the weakest pull.
+ - Do not wonder if the common people speak more truly than those above them: they speak more safely.
+ - I confess that I have as vast contemplative ends, as I have moderate civil ends: for I have taken all knowledge to be my province.
+ - That which above all other yields the sweetest smell in the air is the violet.
+ - There is in human nature generally more of the fool than of the wise.
+ - Deformed persons commonly take revenge on nature.
+ - The cause and root of nearly all evils in the sciences is this-that while we falsely admire and extol the powers of the human mind we neglect to seek for its true helps.
+ - We think according to nature. We speak according to rules. We act according to custom.
+ - Prosperity is not without many fears and distastes; adversity not without many comforts and hopes.
+ - I have often thought upon death, and I find it the least of all evils.
+ - Fashion is only the attempt to realize art in living forms and social intercourse.
+ - As you work, the mood grows on you. There are certain images which suddenly get hold of me and I really want to do them. But it’s true to say that the excitement and possibilities are in the working and obviously can only come in the working.
+ - There is a wisdom in this beyond the rules of physic: a man’s own observation what he finds good of and what he finds hurt of is the best physic to preserve health.
+ - I want a very ordered image, but I want it to come about by chance.
+ - The colors that show best by candlelight are white, carnation, and a kind of sea-water green.
+ - The inclination to goodness is imprinted deeply in the nature of man.
+ - I would like, in my arbitrary way, to bring one nearer to the actual human being.
+ - They are happy men whose natures sort with their vocations.
+ - In revenge a man is but even with his enemy; for it is a princely thing to pardon, and Solomon saith it is the glory of a man to pass over a transgression.
+ - The worst solitute is to be destitute of true friendship.
+ - Knowledge hath in it somewhat of the serpent, and therefore where it entereth into a man it makes him swell.
+ - Men of noble birth are noted to be envious towards new men when they rise. For the distance is altered, and it is like a deceit of the eye, that when others come on they think themselves go back.
+ - It’s such an extraordinary supple medium that you never do quite know what paint will do.
+ - There is as much difference between the counsel that a friend giveth, and that a man giveth himself, as there is between the counsel of a friend and of a flatterer. For there is no such flatterer as is a man’s self.
+ - A picture should be a re-creation of an event rather than an illustration of an object; but there is no tension in the picture unless there is a struggle with the object.
+ - I always think of myself not so much as a painter but as a medium for accident and chance.
+ - He that gives good advice, builds with one hand; he that gives good counsel and example, builds with both; but he that gives good admonition and bad example, builds with one hand and pulls down with the other.
+ - Of great wealth there is no real use, except in its distribution, the rest is just conceit.
+ - Our humanity is a poor thing, except for the divinity that stirs within us.
+ - Innovations, which are the births of time.
+ - Hope is the most beneficial of all the affections, and doth much to the prolongation of life...
+ - Medical men do not know the drugs they use, nor their prices.
+ - One always starts work with the subject, no matter how tenuous it is, and one constructs an artificial structure by which one can trap the reality of the subject-matter that one has started from.
+ - There is a cunning which we in England call the rning of the cat in the pan.
+ - There is no doubt but men of genius and leisure may carry our method to greater perfection, but, having had long experience, we have found none equal to it for the commodiousness it affords in working with the Understanding.
+ - It is a great happiness when men’s professions and their inclinations accord.
+ - The voice of the people has about it something divine: for how otherwise can so many heads agree together as one?
+ - There is a cunning which we in England call “the turning of the cat” in the pan; which is, when that which a man says to another, he says it as if another had said it to him.
+ - Fortune makes him fool, whom she makes her darling.
+ - States, as great engines, move slowly.
+ - For it is most true that a natural and secret hatred and aversation towards society in any man, hath somewhat of the savage beast.
+ - Many a man’s strength is in opposition, and when he faileth, he grows out of use.
+ - Because the acts or events of true history have not that magnitude which satisfieth the mind of man, poesy feigneth acts and events greater and more heroical.
+ - More dangers have deceived men than forced them.
+ - A man that is young in years may be old in hours if he have lost no time.
+ - There is nothing makes a man suspect much, more than to know little.
+ - Excusations, cessions, modesty itself well governed, are but arts of ostentation.
+ - Of all things known to mortals wine is the most powerful and effectual for exciting and inflaming the passions of mankind, being common fuel to them all.
+ - Life, an age to the miserable, and a moment to the happy.
+ - Ill Fortune never crushed that man whom good fortune deceived not.
+ - Some paint comes across directly onto the nervous system and other paint tells you the story in a long diatribe through the brain.
+ - Those that want friends to open themselves unto are cannibals of their own hearts.
+ - They are the best physicians, who being great in learning most incline to the traditions of experience, or being distinguished in practice do not reflect the methods and generalities of art.
+ - If vices were profitable, the virtuous man would be the sinner.
+ - The fortune which nobody sees makes a person happy and unenvied.
+ - Lukewarm persons think they may accommodate points of religion by middle ways and witty reconcilements, – as if they would make an arbitrament between God and man.
+ - And as for Mixed Mathematics, I may only make this prediction, that there cannot fail to be more kinds of them, as nature grows further disclosed.
+ - First the amendment of their own minds. For the removal of the impediments of the mind will sooner clear the passages of fortune than the obtaining fortune will remove the impediments of the mind.
+ - If I might control the literature of the household, I would guarantee the well-being of Church and State.
+ - Men suppose their reason has command over their words; still it happens that words in return exercise authority on reason.
+ - There is nothing more certain in nature than that it is impossible for any body to be utterly annihilated.
+ - Of all virtues and dignities of the mind, goodness is the greatest, being the character of the Deity; and without it, man is a busy, mischievous, wretched thing.
+ - The noblest works and foundations have proceeded from childless men, which have sought to express the images of their minds where those of their bodies have failed.
+ - The mold of our fortunes is in our own hands.
+ - None of the affections have been noted to fascinate and bewitch but envy.
+ - But I account the use that a man should seek of the publishing of his own writings before his death, to be but an untimely anticipation of that which is proper to follow a man, and not to go along with him.
+ - Vices of the time; vices of the man.
+ - What then remains but that we still should cry, For being born, and, being born, to die?
+ - He that cannot possibly mend his own case will do what he can to impair another’s.
+ - Nothing doth so much keep men out of the Church, and drive men out of the Church, as breach of unity.
+ - Spouses are great impediments to great enterprises.
+ - He of whom many are afraid ought himself to fear many.
+ - There was never law, or sect, or opinion did so much magnify goodness, as the Christian religion doth.
+ - For what a man would like to be true, that he more readily believes.
+ - Look to make your course regular, that men may know beforehand what they may expect.
+ - Again there is another great and powerful cause why the sciences have made but little progress; which is this. It is not possible to run a course aright when the goal itself has not been rightly placed.
+ - They who derive their worth from their ancestors resemble potatoes, the most valuable part of which is underground.
+ - As the births of living creatures are at first ill-shapen, so are all innovations, which are the births of time.
+ - Defer not charities till death; for certainly, if a man weigh it rightly, he that doth so is rather liberal of another man’s than of his own.
+ - If there be fuel prepared, it is hard to tell whence the spark shall come that shall set it on fire.
+ - Men leave their riches either to their kindred or their friends, and moderate portions prosper best in both.
+ - Man was formed for society.
+ - Men seem neither to understand their riches nor their strength. Of the former they believe greater things than they should; of the latter, less.
+ - For no man can forbid the spark nor tell whence it may come.
+ - Books speak plain when counselors blanch.
+ - It is nothing won to admit men with an open door, and to receive them with a shut and reserved countenance.
+ - For behavior, men learn it, as they take diseases, one of another.
+ - Praise from the common people is generally false, and rather follows the vain than the virtuous.
+ - It is as natural to die as to be born; and to a little infant, perhaps, the one is as painful as the other.
+ - It cannot be denied that outward accidents conduce much to fortune, favor, opportunity, death of others, occasion fitting virtue; but chiefly, the mold of a man’s fortune is in his own hands.
+ - Custom is the principle magistrate of man’s life.
+ - In every great time there is some one idea at work which is more powerful than any other, and which shapes the events of the time and determines their ultimate issues.
+ - It is in life as it is in ways, the shortest way is commonly the foulest, and surely the fairer way is not much about.
+ - Certainly man is of kin to the beasts by his body; and if he be not kin to God by his spirit, he is a base and ignoble creature.
+ - Man seeketh in society comfort, use and protection.
+ - Many secrets of art and nature are thought by the unlearned to be magical.
+ - Who ever is out of patience is out of possession of their soul.
+ - It is a secret both in nature and state, that it is safer to change many things than one.
+ - It is the true office of history to represent the events themselves, together with the counsels, and to leave the observations and conclusions thereupon to the liberty and faculty of every man’s judgment.
+ - Mysteries are due to secrecy.
+ - Boldness is a child of ignorance.
+
+500 quotes

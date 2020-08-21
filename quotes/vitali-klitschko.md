@@ -1,0 +1,34 @@
+ - Chess and boxing have a lot in common, as both sports rely on the right strategy.
+ - People power. It has no limits.
+ - Old man, 40 years old against young hungry man from Great Britain!
+ - Nobody can beat the Klitschko brothers. That’s why it’s boring.
+ - People power. It has no limits. In politics, every politician in Ukraine is afraid of that. They know, if people go to the streets, nobody feels safe.
+ - You are a real champion. You talk a lot over the past six months and it is going to be great to show you inside the ring how it is better to resolve wars. Let’s talk in the office.
+ - You talk about me, I am chicken to fight you. That’s not true. I bring you dessert on November 12th.
+ - I’ve travelled around the world, I’ve lived in Germany, I’ve lived in the United States, I’ve visited many countries, I can question why such a good country, such huge potential, why we don’t develop in the right way.
+ - I want to become Kiev’s mayor because I love my city very much and want to improve life in it.
+ - I know that and I feel that.
+ - He’s a good sportsman but his best at world trash talking.
+ - I promise everyone who comes to Ukraine can see a beautiful country.
+ - We try to use our experiences as leverage for our social work, to help children to get education because that is the way to get a special life.
+ - I don’t like all this talking in the press.
+ - Every fight can be the last one, that’s why for every fight I prepare myself like it’s the last fight of my career.
+ - I fight not for myself, I fight for the audience.
+ - If Chisora wants to kiss me, OK, if he likes me so much, but the best answer for him will be an answer with a fist in the ring.
+ - David Haye is too light. Simply too light. He’s not a real heavyweight.
+ - Boxing’s given me the chance to travel around the world and open the door and the world is much brighter.
+ - I doubt Dereck Chisora can knock me out.
+ - There is one thing that I feel I still have to do and that is gain revenge over Lennox Lewis. If Lewis came back I would find the motivation to return to boxing and beat him.
+ - I was actually very surprised, and I told myself wow, I want to fight this guy.
+ - He’s earned all his money himself, with his fists. He didn’t steal it like the rest of our politicians. And he’ll be less tempted to steal if he gets in the chair.
+ - I want to say that I cannot be intimidated or stopped. In order to put an end to various attempts to get rid of me as a possible candidate, I want to say that I’m running for president.
+ - It’s not enough to be famous. You have to be professional enough to make reform.
+ - As a champion, I can’t fight against weak fighters.
+ - If your opponent wants to fight, the fight will be very interesting not just for the audience, but for myself.
+ - No expert can predict the heavyweight division. Every punch can make the decision.
+ - All boxing experts told Helenius is the next world champion! Chisora beat him.
+ - David I knock you out! – While pointing to the camera with a smirk.
+ - Unfortunately, I’ve been fighting injuries recently more than facing rivals in the ring.
+ - Tired? I don’t think so. I’m in such good shape that I could box even 25 rounds.
+
+32 quotes

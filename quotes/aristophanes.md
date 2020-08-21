@@ -1,0 +1,77 @@
+ - Open your mind before your mouth.
+ - Youth ages, immaturity is outgrown, ignorance can be educated, and drunkenness sobered, but stupid lasts forever.
+ - Today things are better than yesterday.
+ - Ignorance can be cured, but stupidity is forever.
+ - High thoughts must have high language.
+ - Even if you persuade me, you won’t persuade me.
+ - A demagogue must be neither an educated nor an honest man; he has to be an ignoramus and a rogue.
+ - Comedy is allied to justice.
+ - By words the mind is winged.
+ - Words give wings to the mind and make a man soar to heaven.
+ - Evil events from evil causes spring, And what you suffer flows from what you’ve done.
+ - Does it seem that everything is extravagance in the world, or rather madness, when you watch the way things go? A crowd of rogues enjoy blessings they have won by sheer injustice, while more honest folks are miserable and die of hunger.
+ - Comedy too can sometimes discern what is right. I shall not please, but I shall say what is true.
+ - Weak mortals, chained to the earth, creatures of clay as frail as the foliage of the woods, you unfortunate race, whose life is but darkness, as unreal as a shadow, the illusion of a dream.
+ - You cannot teach a crab to walk straight.
+ - Ah! the Generals! they are numerous, but not good for much!
+ - The love of wine is a good man’s failing.
+ - Poverty, the most fearful monster that ever drew breath.
+ - Thou shouldst not decide until thou hast heard what both have to say.
+ - Ye Children of Man! whose life is a span, Protracted with sorrow from day to day, Naked and featherless, feeble and querulous, Sickly, calamitous creatures of clay!
+ - Old age is second childhood.
+ - Open your mouth and shut your eyes and see what Zeus will send you.
+ - The gods, my dear simple fellow, are a mere expression coined by vulgar superstition. We frown upon such coinage here.
+ - One bush, they say, can never hide two thieves.
+ - If a man owes me money, I never seem to forget. But if I do the owing, I somehow never remember.
+ - Love is merely the name for the desire and pursuit of the whole.
+ - There is no beast, no rush of fire, like woman so untamed. She calmly goes her way where even panthers would be shamed.
+ - I would treat her like an egg, the shell of which we remove before eating it; I would take off her mask and then kiss her pretty face.
+ - The wise learn many things from their enemies.
+ - Children have a master to teach them, grown-ups have the poets.
+ - When men drink wine they are rich, they are busy, they push lawsuits, they are happy, they are friends.
+ - Do not bandy words with your father, nor treat him as a dotard, nor reproach the old man, who has cherished you, with his age.
+ - Hunger knows no friend but its feeder.
+ - It is the compelling power of great thoughts and ideas to engender phrases of equal size.
+ - Mix and knead together all the state business as you do for your sausages. To win the people, always cook them some savory that pleases them.
+ - Shall I crack any of those old jokes, master, At which the audience never fail to laugh?
+ - When men drink, then they are rich and successful and win lawsuits and are happy and help their friends. Quickly, bring me a beaker of wine, so that I may wet my mind and say something clever.
+ - It is bad taste for a poet to be coarse and hairy.
+ - A fox is subtlety itself.
+ - Woman is adept at getting money for herself and will not easily let herself be deceived; she understands deceit too well herself.
+ - Women, you overheated dipsomaniacs, never passing up a chance to wangle a drink, a great boon to bartenders but a bane to us – not to mention our crockery and our woolens!
+ - How can I study from below, that which is above?
+ - The truth is forced upon us, very quickly, by a foe.
+ - Have you ever, looking up, seen a cloud like to a Centaur, a Part, or a Wolf, or a Bull?
+ - Wealth – the most excellent of all gods.
+ - This is what extremely grieves us, that a man who never fought Should contrive our fees to pilfer, on who for his native land Never to this day had oar, or lance, or blister in his hand.
+ - A truce to idle phrases!
+ - There is no honest man! not one, that can resist the attraction of gold!
+ - Under every stone lurks a politician.
+ - First listen, my friend, and then you may shriek and bluster.
+ - There’s no art where there’s no fee.
+ - A man may learn wisdom even from a foe.
+ - Do not take a blind guide.
+ - An insult directed at the wicked is not to be censured; on the contrary, the honest man, if he has sense, can only applaud.
+ - Surely you do not believe in the gods. What’s your argument? Where’s your proof?
+ - Wise people, even though all laws were abolished, would still lead the same life.
+ - Evil events from evil causes spring.
+ - Full of wiles, full of guile, at all times, in all ways, are the children of Men.
+ - A slave is but half a man.
+ - No man is really honest; none of us is above the influence of gain.
+ - These impossible women! How they do get around us! The poet was right: can’t live with them, or without them!
+ - Look at the orators in our republics; as long as they are poor, both state and people can only praise their uprightness; but once they are fattened on the public funds, they conceive a hatred for justice, plan intrigues against the people and attack the democracy.
+ - An actor should refine public taste.
+ - Prayers without wine are perfectly pointless.
+ - Times change. The vices of your age are stylish today.
+ - I saw a cavalry captain buy vegetable soup on horseback. He carried the whole mess home in his helmet.
+ - You vote yourselves salaries out of the public funds and care only for your own personal interests; hence the state limps along.
+ - It often happens that less depends upon the valor of an army than the skill of the leader.
+ - It is right that the good should be happy, that the wicked and the impious on the other hand, should be miserable; that is a truth, I believe, which no one will gainsay.
+ - You can’t have anything else to say: you’ve poured out every drop of what you know.
+ - One must not try to trick misfortune, but resign oneself to it with good grace.
+ - A man should be able to stand up under any disaster for his country’s good.
+ - What unlooked-for things do happen, to be sure, in a long life!
+ - To invoke solely the weaker arguments and yet triumph is an art worth more than a hundred thousand drachmae.
+ - It should not prejudice my voice that I’m not born a man, if I say something advantageous to the present situation. For I’m taxed too, and as a toll provide men for the nation.
+
+75 quotes

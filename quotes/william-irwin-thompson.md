@@ -1,0 +1,31 @@
+ - Science is the storytelling of our time.
+ - In a world in which men write thousands of books and one million scientific papers a year, the mythic bricoleur is the man who plays with all that information and hears a music inside the noise.
+ - Hominid and human evolution took place over millions and not billions of years, but with the emergence of language there was a further acceleration of time and the rate of change.
+ - The future is beyond knowing, but the present is beyond belief.
+ - If humans died in a healthy culture, they would not lock out the earth in metal coffins and carve their names on stone monuments, but would instead place the naked body in the earth and plant a tree above the silent heart.
+ - If a person is open to a new world view, it can often mean that he is not firmly rooted in the reality of the old world view; as a lunatic or alienated artist, his own neurotic traits can become magnified as they tremble with the new energy pouring in from the universal source.
+ - A World is not an ideology nor a scientific institution, nor is it even a system of ideologies; rather, it is a structure of unconscious relations and symbiotic processes.
+ - But the time has come; the revelation has already occurred, and the guardian seers have seen the lightning strike the darkness we call reality. And now we sleep in the brief interval between the lightning and the thunder.
+ - Idealistic reformers are dangerous because their idealism has no roots in love, but is simply a hysterical and unbalanced rage for order amidst their own chaos.
+ - That shoreline where the island of knowing meets the unfathomable sea of our own being is the landscape of myth.
+ - Fairy tales and myths are forms of cultural storage for the natural history of life.
+ - I don’t think anyone now really understands the planetisation of mankind, really understands the new world order emerging through all this period of strain and pain and contradiction, so more than ever, we need to have an internal sense of navigation.
+ - When we come to an edge we come to a frontier that tells us that we are now about to become more than we have been before.
+ - With the emergence of civilization, the rate of change shifted from hundreds of thousands of years to millennia. With the emergence of science as a way of knowing the universe, the rate of change shifted to centuries.
+ - The conscious purpose of science is control of Nature; its unconscious effect is disruption and chaos.
+ - For the first time in human evolution, the individual life is long enough, and the cultural transformation swift enough, that the individual mind is now a constituent player in the global transformation of human culture.
+ - We are the climactic generation of human cultural evolution, and in the microcosm of our lives the macrocosm of the evolution of the human race is playing itself out.
+ - One way to find food for thought is to use the fork in the road, the bifurcation that marks the place of emergence in which a new line of development begins to branch off.
+ - Like a shadow that does not permit us to jump over it, but moves with us to maintain its proper distance, pollution is nature’s answer to culture. When we have learned to recycle pollution into potent information, we will have passed over completely into the new cultural ecology.
+ - Ideologies do not map the complete living processes of a World.
+ - In the domain of cops and robbers, an interdiction serves to structure a black market and a shadow economy.
+ - The conscious process is reflected in the imagination; the unconscious process is expressed as karma, the generation of actions divorced from thinking and alienated from feeling.
+ - The teacher of history’s work should be, ideally, not simply a description of past cultures, but a performance of the culture in which we live and are increasingly taking our being.
+ - It should be possible to say that there really is such as thing as “genius” and that what it is, is precisely a surprising and unexpected movement away from collective patterns of behavior and received wisdom.
+ - The more chaos there is, the more science holds on to abstract systems of control, and the more chaos is engendered.
+ - Unconscious Polities emerge independent of conscious purpose.
+ - Not all intelligence can be artificial now, so if we make a mistake, the consequences are no longer simply located within an institution or a national culture.
+ - The planets are not hunks of stuff out there but nodes of vibration that resonate in multiple dimensions that enfold themselves into one another in patterns of complex recursiveness in which Sun, Moon, and Saturn are also modalities of Earth.
+ - Catastrophes are often stimulated by the failure to feel the emergence of a domain, and so what cannot be felt in the imagination is experienced as embodied sensation in the catastrophe.
+
+29 quotes

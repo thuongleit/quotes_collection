@@ -1,0 +1,120 @@
+ - You cannot be half a saint; you must be a whole saint or no saint at all.
+ - Let nothing disturb you, let nothing frighten you. All things are passing. God alone remains.
+ - My vocation, at last I have found it; my vocation is love.
+ - The world’s thy ship and not thy home.
+ - God would never inspire me with desires which cannot be realized; so in spite of my littleness, I can hope to be a saint.
+ - Let us love, since our heart is made for nothing else.
+ - Above the clouds the sky is always blue.
+ - Jesus, help me to simplify my life by learning what you want me to be and becoming that person.
+ - The splendor of the rose and the whiteness of the lily do not rob the little violet of it’s scent nor the daisy of its simple charm. If every tiny flower wanted to be a rose, spring would lose its loveliness.
+ - Holiness consists simply in doing God’s will, and being just what God wants us to be.
+ - Remember that nothing is small in the eyes of God. Do all that you do with love.
+ - Without love, deeds, even the most brilliant, count as nothing.
+ - Why should we defend ourselves when we are misunderstood and misjudged? Let us leave that aside. Let us not say anything. It is so sweet to let others judge us in any way they like. O blessed silence, which gives so much peace to the soul!
+ - It isn’t enough to love; we must prove it.
+ - Miss no single opportunity of making some small sacrifice, here by a smiling look, there by a kindly word; always doing the smallest right and doing it all for love.
+ - Frequently, only silence can express my prayer.
+ - For me, prayer is a surge of the heart; it is a simple look turned toward heaven, it is a cry of recognition and of love, embracing both trial and joy.
+ - It’s true, I suffer a great deal-but do I suffer well? That is the question.
+ - When one loves, one does not calculate.
+ - Sufferings gladly borne for others convert more people than sermons.
+ - Love needs to be proved by action.
+ - The greatest honor God can do a soul is not give it much; but to ask much of it.
+ - Jesus does not demand great actions from us, but simply surrender and gratitude.
+ - If you are willing to bear serenely the trial of being displeasing to yourself, then you will be for Jesus a pleasant place of shelter.
+ - If every tiny flower wanted to be a rose, spring would lose its loveliness.
+ - Love proves itself by deeds, so how am I to show my love? Great deeds are forbidden me. The only way I can prove my love is by scattering flowers and these flowers are every little sacrifice, every glance and word, and the doing of the least actions for love.
+ - Jesus does not so much look at the greatness of our actions, nor even at their difficulty, but at the love with which we do them.
+ - My whole strength lies in prayer and sacrifice, these are my invincible arms; they can move hearts far better than words, I know it by experience.
+ - Prayer is an aspiration of the heart, it is a simple glance directed to heaven, it is a cry of gratitude and love in the midst of trail as well as joy; finally, it is something great, supernatural, which expands my soul and unites me to Jesus.
+ - Life is only a dream: soon, we shall awaken. And what joy! The greater our sufferings, the more limitless our glory. Oh! do not let us waste the trial Jesus sends.
+ - Love consumes us only in the measure of our self-surrender.
+ - When we yield to discouragement it is usually because we give too much thought to the past and to the future.
+ - I prefer the monotony of obscure sacrifice to all ecstasies. To pick up a pin for love can convert a soul.
+ - Love is a universe of its own, comprising all time and space.
+ - It is my weakness that gives me all my strength.
+ - I am not afraid of a fight; I have to do my duty, come what may.
+ - Trials help us detach ourselves from the earth; they make us look higher than this world.
+ - The value of life does not depend upon the place we occupy. It depends upon the way we occupy that place.
+ - The good God would not inspire unattainable desires.
+ - I will spend my heaven doing good on earth.
+ - Trust and trust alone should lead us to love.
+ - Love is nourished only by sacrifices, and the more a soul refuses natural satisfactions, the stronger and more disinterested becomes her tenderness.
+ - How happy I am to see myself as imperfect and to be in need of God’s mercy.
+ - I am simply content to find myself always imperfect, and in this I find my joy. Good deeds count as nothing, if done without love.
+ - Jesus makes the bitterest mouthful taste sweet.
+ - I want to shine like a little candle before His altar.
+ - Holiness is a disposition of the heart that makes us humble and little in the arms of God, aware of our weakness, and confident – in the most audacious way – in His Fatherly goodness.
+ - Suffering is the very best gift He has to give us. He gives it only to His chosen friends.
+ - No harm can come to me since, in whatever happens, I see only the tender hand of Jesus.
+ - Discouragement itself is a form of pride.
+ - She is more Mother than Queen.
+ - Go often to Holy Communion. Go very often! This is your one remedy.
+ - Prayer and sacrifice can touch souls better than words.
+ - Perfect love means putting up with other peoples shortcomings, feeling no surprise at their weaknesses, finding encouragement even in the slightest evidence of good qualities in them.
+ - Time is but a shadow, a dream; already God sees us in glory and takes joy in our eternal beatitude. How this thought helps my soul! I understand then why He lets us suffer.
+ - It is love alone that counts.
+ - Jesus needs neither books nor Doctors of Divinity in order to instruct souls; He, the Doctor of Doctors, He teaches without noise of words.
+ - God has made me desire always what he most wants to give me.
+ - Let us not be justices of the peace, but angels of peace.
+ - Whose hands are God’s hands, but our hands?
+ - In trial or difficulty I have recourse to Mother Mary, whose glance alone is enough to dissipate every fear.
+ - Silence does good to the soul.
+ - If all flowers wanted to be roses, nature would lose her springtime beauty and the fields would no longer be decked out with little wildflowers.
+ - For me, prayer means launching out of the heart towards God; it means lifting up one’s eyes, quite simply, to heaven, a cry of grateful love, from the crest of joy or the trough of despair; it’s a vast, supernatural force which opens out my heart, and binds me close to Jesus.
+ - A word or a smile is often enough to put fresh life in a despondent soul.
+ - Life passes. Eternity comes to meet us with great strides. Soon we shall be living with the very life of Jesus. Having drunk deep at the source of all bitterness, we shall be deified in the very source of all joys, of all delights.
+ - Let us go forward in peace, our eyes upon heaven, the only one goal of our labors.
+ - Our Lord needs from us neither great deeds nor profound thoughts. Neither intelligence nor talents. He cherishes simplicity.
+ - I am very far from practicing what I understand.
+ - I prefer to be accused unjustly, for then I have nothing to reproach myself with, and joyfully offer this to the good Lord. Then I humble myself at the thought that I am indeed capable of doing the thing of which I have been accused.
+ - As the sun shines both on the cedar and the smallest flower, so the Divine sun illumines each soul.
+ - I realized that to become a saint one must suffer a great deal, always seek what is best, and forget oneself.
+ - If I did not simply live from one moment to another, it would be impossible for me to be patient, but I only look at the present, I forget the past, and I take good care not to forestall the future.
+ - My director, Jesus, does not teach me to count my acts, but to do everything for love, to refuse Him nothing, to be pleased when He gives me a chance to prove to Him that I love Him – but all this in peace – in abandonment.
+ - When Charity is deeply rooted in the soul it shows itself exteriorly: there is so gracious a way of refusing what we cannot give, that the refusal pleases as much as the gift.
+ - Heaven for me is hidden in a little Host Where Jesus, my Spouse, is veiled for love. I go to that Divine Furnace to draw out life, And there my Sweet Saviour listens to me night and day.
+ - I’m suffering very much, but am I suffering very well? That’s the point!
+ - Each small task of everyday life is part of the total harmony of the universe.
+ - What a joy to remember that she is our Mother! Since she loves us and knows our weakness, what have we to fear?
+ - Let us rise above the things that pass away. Up above, the air is so pure. Jesus can hide Himself but we will find Him there.
+ - The guest of our soul knows our misery; He comes to find an empty tent within us – that is all He asks.
+ - Look at Him while He is looking at you.
+ - When we are expecting only suffering, the least joy surprises us: Suffering itself becomes the greatest of joys when we seek it as a precious treasure.
+ - It has a supernatural grandeur which expands the soul and unites it with God. I say an Our Father or a Hail Mary when I feel so spiritually barren that I cannot summon up a single worth while thought. These two prayers fill me with rapture and feed and satisfy my soul.
+ - I also understood that God’s love shows itself just as well in the simplest soul which puts up no resistance to His grace as it does in the loftiest soul.
+ - Never stop wanting for your magic.
+ - My soul experienced a peace so sweet, so deep, it would be impossible to express it.
+ - I say nothing to him I love him.
+ - Look at His adorable face. Look at His glazed and sunken eyes. Look at His wounds. Look Jesus in the Face. There, you will see how He loves us.
+ - For one pain endured with joy, we shall love the good God more forever.
+ - I will send a shower of roses.
+ - I am convinced that one should tell one’s spiritual director if one has a great desire for Communion, for Our Lord does not come from Heaven every day to stay in a golden ciborium; He comes to find another heaven, the heaven of our soul in which He loves to dwell.
+ - By our little acts of charity practiced in the shade we convert souls far away, we help missionaries, we win for them abundant alms; and by that means build actual dwellings spiritual and material for our Eucharistic Lord.
+ - The science of loving, yes, that’s the only kind of science I want I’d barter away everything I possess to win it.
+ - The country in which I live is not my native country, that lies elsewhere, and it must always be the center of my longings.
+ - God would turn the world around to find suffering in order to give it to a soul upon whom He has set His Divine gaze with ineffable love.
+ - It is not to remain in a golden ciborium that He comes down each day from Heaven, but to find another Heaven, the Heaven of our soul in which He takes delight.
+ - In Heaven the good God will do all I wish, because I have never done my own will upon earth.
+ - He does not call those who are worthy, but those whom He wills.
+ - For me, prayer is an upward leap of the heart, an untroubled glance towards heaven, a cry of gratitude and love which I utter from the depths of sorrow as well as from the heights of joy.
+ - Love is the Cross, and the Cross is Love.
+ - The morrow of this day will be eternity; then Jesus will return you a hundred fold the lovely, rightful joys that you are sacrificing for him.
+ - The loveliest materpiece of the heart of God is the love of a Mother.
+ - In spite of this trial, which takes all enjoyment from me, I can never the less, cry out, ‘Lord, you fill me with joy in all that you do. For is there a joy greater than to suffer for love?’
+ - I would prefer a thousand times to receive reproofs than to give them to others...
+ - He has created the poor savage with no guide but natural law, and it is to their hearts that He deigns to stoop. They are His wild flowers whose homeliness delights Him.
+ - Prayer for me is an updward leap of the heart.
+ - For me to love you, Jesus, as you love me, I would have to borrow your own love and then only would I be at rest.
+ - Do not fear to tell Jesus that you love Him even without feeling it. That is the way to force Jesus to help you, to carry you like a little child too feeble to walk.
+ - True charity consists in putting up with all one’s neighbors fault’s; never being surprised by his weakness, and being inspired by the least of his virtues.
+ - A heart given to God loses none of its natural tenderness; on the contrary, the more pure and divine it becomes, the more such tenderness increases.
+ - It is only love which makes us acceptable to God.
+ - You must open a little, or rather raise on high your corolla so that the Bread of Angels may come as divine dew to strengthen you, and to give you all that is wanting to you.
+ - Nothing’s done well when it’s done out of self-interest.
+ - The great majority of men use their own short-sighted ideas as a yardstick for measuring the divine omnipotence.
+ - He longs to give us a magnificent reward. He knows that suffering is the only means of preparing us to know Him as He knows Himself, and to become ourselves divine.
+ - I felt it better to speak to God than about Him.
+ - Since the age of three I have refused God nothing.
+
+118 quotes

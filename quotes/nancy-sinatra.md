@@ -1,0 +1,25 @@
+ - These boots were made for walking, that’s just what they’ll do. One of these days these boots are going to walk all over you.
+ - I was singing about six notes higher than I had to, in a range that kept me up in a bubblegum sound.
+ - Morrissey wrote to me and said, I have a song for you and if we release it as a single, you’ll be on the charts for the first time since 1972, I said, what time, where?
+ - I wasn’t accepted because I didn’t accept the drug culture that most of my peers were involved in. Now it’s like a locked room.
+ - I didn’t just want to be Frank’s daughter who sang Boots. I take my music very seriously and studied very hard. It’s not a joke to me.
+ - I was successful with mediocre material because of a good recording voice that people really liked at that time.
+ - Morrissey wrote a really gorgeous song for me. I’m crazy for that man. And he thinks I’m hip!
+ - What happens in the music business is that if you step out of your little spot to do something else, the sand falls right into where you stood and you’re gone, you’re history.
+ - I am the daughter of the Chairman of the Board and thus, was raised with great music.
+ - Then all of a sudden, Quentin Tarantino comes along and puts a song from 40 years ago in one of his films and they’ve suddenly discovered you. That was a real gift that Quentin gave me.
+ - I wanted to travel with my dad to be close to him again. Having babies and raising my own family took so much of my time, I didn’t have a chance to be with him very often.
+ - Frank’s audience doesn’t care if a girl singer, a comic or an organ grinder with a monkey opens the show. They are there to see HIM.
+ - The one hit song that I have tremendous gratitude for is Boots, because it has a life of its own. It’s like being identified with a brand name.
+ - I have never been accepted. I’ll never make the Rock and Roll Hall of Fame. They’re never going to let me in.
+ - The Columbia years are the most sentimental for me. My parents were together through most of that time and we were a happy, sort of normal family.
+ - You keep thinking that you’ll never get burned, I just found me a brand new box of matches.
+ - I got married and basically forgot about Elvis. Then Speedway came. That was the most fun of all, to see him every day all those weeks.
+ - After 50, the rock ‘n’ roll road is a little absurd. It’s very difficult to play these little places. You’re out there on a rickety old bus with no place to shower.
+ - It would be nice to be on the charts again, nice to be recognised.
+ - I wasn’t allowed to grow as an artist. My albums were nicer to look at than to listen to.
+ - I think I’ve finally proven something to people who were cynical about me. Because they were cruel.
+ - I was a star in Italy, Austrailia, Germany and Japan before the American stations ever paid attention at all.
+ - There are a lot of people who would laugh at the idea of me being a good singer.
+
+23 quotes

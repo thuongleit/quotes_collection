@@ -1,0 +1,48 @@
+ - No two people see things the same way.
+ - Journalism is caring where the fire-engines are going.
+ - I have been accused of something I’m not guilty of. How do you prove a negative? No matter what we discuss here today, I’m never going to have my name restored. But I’ve got to try and set the record straight.
+ - I’m a gatekeeper, and the gatekeepers all used to be mostly old, white men.
+ - Well, to tell you truth, I have learned a long time ago that the trick when doing a debate, any kind of debate, is to just turn off the judgment switch in my head.
+ - My own view, there is a need for and a demonstrated need for more journalism now than there ever has been.
+ - I’m not in the judgment part of journalism.
+ - I’m a journalist and that’s what I do.
+ - People can get their news any way they want. What I love about what’s happened is that there are so many different avenues, there are so many different outlets, so many different ways to debate and discuss and to inquire about any given news story.
+ - I’m an expert on the NewsHour and it isn’t how I practice journalism. I am not involved in the story. I serve only as a reporter or someone asking questions. I am not the story.
+ - I’m not in the being-annoyed business.
+ - A debate has one purpose, one purpose only, and that is to facilitate the exchange of ideas directly between two candidates, and that’s it.
+ - Most of the gaffes I’ve made have not been funny – they’ve been stupid.
+ - I wanted to be a bus driver when I was a kid. I look at bus driving through the eyes of a little boy. I see it as glamorous.
+ - If people want bells and whistles and all of that, there are bells and whistles available. If they don’t want bells and whistles there are places to go where they are not available.
+ - You want to see an angry person? Let me hear a cell phone go off.
+ - The best nourishment for any soul is to create your own risks.
+ - Those who know me know I won’t hesitate to turn around and point someone out.
+ - I was never promised any special treatment or consideration for fingering star players. I was never coerced to provide information against anyone. All that I was ever told to was to tell the truth to the best of my ability. And that is what I have done.
+ - I’m in the civil discourse business. I think it takes all kinds. And more power to everybody.
+ - I have no reason to lie and every reason not to. If I do lie, I will be prosecuted.
+ - If McNamee is lying, then he has acted inexcusably, and he has made Clemens an innocent victim. If Clemens isn’t telling the truth, then he has acted shamefully and has smeared McNamee. I don’t think there’s anything in between.
+ - I have great faith in the intelligence of the American viewer and reader to put two and two together and come up with four.
+ - I started as a print reporter.
+ - We have increasingly fewer and fewer journalists who have any military experience and understand what life is like in the military and in combat.
+ - There’s always a germ of truth in just about everything.
+ - The death rate among Marines in Iraq has been more than double that of the other services.
+ - There are very few really stark black and white stories.
+ - On a daily basis there are some huge ones that are, sure, from time to time, but it is helping the reader sort through all this sort of gray stuff out there.
+ - Make no mistake: When I told Senator Mitchell that I injected Roger Clemens with performance-enhancing drugs, I told the truth.
+ - My writing is extremely important, so I write every day. I just enjoy it. I get a kick out of it.
+ - In television there are only about 12 people who do what I do.
+ - Most of the stories I have covered in 45 years have been gray stories.
+ - The shouting and opinion and jokes don’t exist if there isn’t first a story.
+ - If we don’t have an informed electorate we don’t have a democracy. So I don’t care how people get the information, as long as they get it. I’m just doing it my particular way and I feel lucky I can do it the way I want to do it.
+ - As I say, I’m a discourse advocate. What form it comes is less important to me than the fact that there is discourse.
+ - If we’re going to have debates, let’s have real debates.
+ - People can say anything they want to. If they don’t want to get the news from me, get it from somebody else. It’s not something I’m going to worry about, I’m sorry.
+ - A skill required to be president is to explain to the American people any given thing they do.
+ - If you go to the ball game, you don’t need to read the game story.
+ - I believe an invitation from the Commission on Presidential Debates is similar to a draft notice – a civic responsibility.
+ - I came from a family of Marines into the family of Marines.
+ - I’m not saying Senator Mitchell’s report is entirely wrong. I am saying Brian McNamee’s statements about me are wrong. Let me be clear: I have never taken steroids or HGH.
+ - Best I can do for them is to give them every piece of information I can find and let them make the judgments. That’s just my basic view of my function as a journalist.
+ - My Marine experience helped shape who I am now personally and professionally, and I am grateful for that on an almost daily basis.
+ - I always wear blue shirts and I like wine or purple ties.
+
+46 quotes

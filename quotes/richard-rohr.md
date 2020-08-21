@@ -1,0 +1,159 @@
+ - Transformed people transform people.
+ - We do not think ourselves into new ways of living, we live ourselves into new ways of thinking.
+ - Pain that is not transformed is transmitted.
+ - There is nothing to prove and nothing to protect. I am who I am and it’s enough.
+ - The best criticism of the bad is the practice of the better.
+ - Maturity is the ability to joyfully live in an imperfect world.
+ - Prayer is sitting in the silence until it silences us, choosing gratitude until we are grateful, and praising God until we ourselves are an act of praise.
+ - If we do not transform our pain, we will most assuredly transmit it.
+ - God comes to us disguised as our life.
+ - The path of descent is the path of transformation. Darkness, failure, relapse, death, and woundedness are our primary teachers, rather than ideas or doctrines.
+ - Prayer is not about changing God, but being willing to let God change us.
+ - The most common one-liner in the Bible is, “Do not be afraid.” Someone counted, and it occurs 365 times.
+ - The two Virtues of Equanimity and Compassion become more available to the person whose ego-shell has been smashed-either by great suffering or by great love-or by both.
+ - When you don’t need to play the victim or create victims you are FREE.
+ - If God is Trinity and Jesus is the face of God, then it is a benevolent universe. God is not someone to be afraid of, but is the Ground of Being and on our side.
+ - I think your heart needs to be broken, and broken open, at least once to have a heart at all or to have a heart for others.
+ - God is always bigger than the boxes we build for God, so we should not waste too much time protecting the boxes.
+ - The human ego prefers anything, just about anything, to falling, or changing, or dying. The ego is that part of you that loves the status quo – even when it’s not working. It attaches to past and present and fears the future.
+ - Most of us were taught that God would love us if and when we change. In fact, God loves you so that you can change. What empowers change, what makes you desirous of change is the experience of love. It is that inherent experience of love that becomes the engine of change.
+ - Religion is one of the safest places to hide from God.
+ - The great and merciful surprise is that we come to God, not by doing it right, but by doing it wrong.
+ - All great spirituality is about what we do with our pain. If we do not transform our pain, we will transmit it to those around us.
+ - Worship of Jesus is rather harmless and risk-free; actually following Jesus changes everything.
+ - Jesus did not come to change the mind of God about humanity; Jesus came to change the mind of humanity about God.
+ - We all become well-disguised mirror image of anything that we fight too long or too directly. That which we oppose determines the energy and frames the questions after a while. Most frontal attacks on evil just produce another kind of evil in yourself, along with a very inflated self-image to boot.
+ - Faith is not for overcoming obstacles; it is for experiencing them – all the way through!
+ - The Gospel is not a fire insurance policy for the next world, but a life assurance policy for this world.
+ - The people who know God well – mystics, hermits, prayerful people, those who risk everything to find God – always meet a lover, not a dictator.
+ - I have prayed for years for one good humiliation a day, and then, I must watch my reaction to it. I have no other way of spotting both my denied shadow self and my idealized persona.
+ - You cannot heal what you cannot acknowledge.
+ - There is a part of you that is Love itself, and that is what we must fall into. It is already there. Once you move your identity to that level of deep inner contentment, you will realize you are drawing upon a Life that is much larger than your own and from a deeper abundance.
+ - You come to God not by being strong, but by being weak; not by being right, but through your mistakes.
+ - The true mystic is always both humble and compassionate, for she knows that she does not know.
+ - It is at the bottom where we find grace; for like water, grace seeks the lowest place and there it pools up.
+ - Once God and grace move us to the second half of life, religion becomes a mystical matter, rather than a moral matter.
+ - Remember finally, that the ashes that were on your forehead are created from the burnt palms of last Palm Sunday. New beginnings invariably come from old false things that are allowed to die.
+ - It is so important to balance orthodoxy with orthopraxy.
+ - If we don’t learn to mythologize our lives, inevitably we will pathologize them.
+ - The ego hates losing – even to God.
+ - Sin happens whenever we refuse to keep growing.
+ - The journey to happiness involves finding the courage to go down into ourselves and take responsibility for what’s there: all of it.
+ - There are not sacred and profane things, places, and moments. There are only sacred and desecrated things, places, and moments-and it is we alone who desecrate them by our blindness and lack of reverence. It is one sacred universe, and we are all a part of it.
+ - In terms of soul work, we dare not get rid of the pain before we have learned what it has to teach us.
+ - Much of what is called Christianity has more to do with disguising the ego behind the screen of religion and culture than any real movement toward a God beyond the small self, and a new self in God.
+ - Contemplation is an alternative consciousness that refuses to identify with or feed what are only passing shows. It is the absolute opposite of addiction, consumerism or any egoic consciousness.
+ - Whole people see and create wholeness wherever they go; split people see and create splits in everything and everybody.
+ - Faith does not need to push the river because faith is able to trust that there is a river. The river is flowing. We are in it.
+ - The gift of darkness draws you to know God’s presence beyond what thought, imagination, or sensory feeling can comprehend.
+ - People who’ve had any genuine spiritual experience always know that they don’t know. They are utterly humbled before mystery. They are in awe before the abyss of it all, in wonder at eternity and depth, and a Love, which is incomprehensible to the mind.
+ - Prayer is looking out from a different set of eyes, which are not comparing, competing, judging, labeling or analyzing, but receiving the moment in its present wholeness and unwholeness. That is what is meant by contemplation.
+ - Most women prefer circles of sharing to pyramids and hierarchies. They prefer conversation to construction. They will usually choose nurturance and empathy over competition and climbing. They will normally choose connection over simple performance games.
+ - A person who can laugh and go with life does not demand to be in control, which is why the most controlling people may be sarcastic but lack an authentic sense of humor.
+ - Solitude is a courageous encounter with our naked, most raw and real self, in the presence of pure love.
+ - Your heart has to be prepared ahead of time through faith and prayer and grace and mercy and love and forgiveness so you can keep your heart open in hell, when hell happens.
+ - The movement toward gratitude, authenticity, and union is the natural and organic inner work of the second half of our lives.
+ - Men and women are most alike at their most mature and soulful levels. Men and women are most different only at their most immature and merely physical levels.
+ - Salvation is not a divine transaction that takes place because you are morally perfect, but much more is an organic unfolding, a becoming who you already are, an inborn sympathy with and capacity for the very One who created you.
+ - It is in falling down that we learn almost everything that matters spiritually.
+ - Heartbreaks, disappointments and even our own weaknesses can serve as stepping-stones to the second half of life transformation. Failings are the foundation for growth. Those who have fallen, failed or ‘gone down’ are the only ones who understand ‘up.’
+ - Church practice has been more influenced by Plato than by Jesus. We invariably prefer the universal synthesis, the answer that settles all the dust and resolves every question even when it is not entirely true over the mercy and grace of God.
+ - When you haven’t found inner meaning, you will always substitute outer performance. It’s the only way to fill that void, that sense of significance – that I am significant. So almost the degree of outer performance can, in many cases, mirror the lack of inner alignment.
+ - Much of the work of midlife is to tell the difference between those who are dealing with their issues through you and those who are really dealing with you.
+ - The ego knows itself by comparison.
+ - The more one gives one’s self in creative union with another, the more one becomes one’s self.
+ - God is always drawing us closer, blow by blow and bit by bit. And most of the time we do not even know it is happening.
+ - A good teacher teaches people how to see, not what to see.
+ - Religions should be understood as only the fingers that point to the moon, not the moon itself.
+ - I believe in mystery and multiplicity. To religious believers this may sound almost pagan. But I don’t think so.
+ - As you look back on a year almost ended, recall the ways in which God has been inviting you to return, again and again, to Love which is the same as returning to God.
+ - Moralism is always the cheap substitute for mysticism.
+ - The cross solved our problem by first revealing our real problem, our universal pattern of scapegoating and sacrificing others. The cross exposes forever the scene of our crime.
+ - Mature prayer always breaks into gratitude.
+ - If God continues to give me health and a sane mind and verbal ability, I want to teach.
+ - Nature is the one song of praise that never stops singing.
+ - God created us for love, for union, for forgiveness and compassion and, yet, that has not been our storyline. That has not been our history.
+ - To the degree you have experienced intimacy with God, you won’t be afraid of death because you’re experiencing the first tastes and promises of heaven in this world.
+ - The cross is the standing statement of what we do to one another and to ourselves. The resurrection is the standing statement of what God does to us in return.
+ - The Eucharist becomes a microcosmic moment of belief and power in which we say we believe in the real presence of God in Jesus, in this bread, and in this wine.
+ - If unconditional love, loyalty, and obedience are the tickets to an eternal life, then my black Labrador, Venus, will surely be there long before me, along with all the dear animals in nature who care for their young at great cost to themselves and have suffered so much at the hands of humans.
+ - Jesus praised faith and trust – even more than love. It takes a foundational trust to fall, or to fail, and not to fall apart.
+ - Men must learn how to grieve, or they are inevitably angry or controlling, and they don’t even know why.
+ - The Gospel gives our suffering personal and cosmic meaning, by connecting our pain to the pain of others, and finally, by connecting us to the very pain of God.
+ - A paradox is a seeming contradiction, always demanding a change on the side of the observer. If we look at almost all things honestly we see everything has a character of paradox to it. Everything, including ourselves.
+ - Until we learn to love others as ourselves, it’s difficult to blame broken people who desperately try to affirm themselves when no one else will.
+ - In solitude, at last, we’re able to let God define us the way we are always supposed to be defined – by relationship: the I-thou relationship, in relation to a Presence that demands nothing of us but presence itself. Not performance but presence.
+ - It’s the freedom of the children of God. Such people can connect with everybody. They don’t feel the need to eliminate anybody.
+ - Creation is a process that is still happening and we’re in on it! We are a part of this endless creativity of God.
+ - The most courageous thing we will ever do is to bear humbly the mystery of our own reality.
+ - In the second half of life, people have less power to infatuate you. But they also have much less power to control you or hurt you.
+ - You surrender to love; you do not accomplish love by willpower.
+ - The phrase, ‘You must die before you die,’ is found in most of the world religions. If you don’t learn how to die early, you spend the rest of your life avoiding failure. When you can free your True Self, the whole spiritual life opens up.
+ - It’s important to note that Jesus and Christ are two different faith affirmations. Hardly any Christians have been taught that – they think “Christ” is Jesus’s last name.
+ - Jesus is never upset at sinners; he is only upset with people who do not think they are sinners.
+ - Every viewpoint is a view from a point.
+ - Metaphor is the only possible language available to religion because it alone is honest about Mystery.
+ - The greatest enemy of ordinary daily goodness and joy is not imperfection, but the demand for some supposed perfection or order.
+ - People who know how to creatively break the rules also know why the rules were there in the first place.
+ - Those who are not true leaders will just affirm people at their own immature level.
+ - Let’s state it clearly: One great idea of the biblical revelation is that God is manifest in the ordinary, in the actual, in the daily, in the now, in the concrete incarnations of life, and not through purity codes and moral achievement contests, which are seldom achieved anyway.
+ - A skilled listener can help people tap into their own wisdom.
+ - The morning glories and the sunflowers turn naturally toward the light, but we have to be taught, it seems.
+ - There is Someone dancing with you, and you are not afraid of making mistakes.
+ - Being informed is different from being formed, and the first is a common substitute for the second.
+ - It is only through the holes in our soul that we break out and God breaks through.
+ - Our job as conscious humans is to bring the beauty and goodness of everything to full consciousness, to full delight, to full awareness.
+ - I think most human beings are dualistic thinkers. It gets them through the day. It gives them a sense of superiority and security – that’s what the ego wants.
+ - The most amazing fact about Jesus, unlike almost any other religious founder, is that he found God in disorder and imperfection – and told us that we must do the same or we would never be content on this earth.
+ - Silence is the necessary space around things that allows them to develop and flourish without my pushing.
+ - If you depend on being emotionally inspired or newly motivated, you will need a new fix almost every day.
+ - One time, a Protestant minister said, “We made Jesus blonde haired and blue eyed and very cute. We made Jesus somehow a much more feminine figure.” And there’s probably truth to that.
+ - Religious belief has made me comfortable with ambiguity.
+ - Jesus is the very concrete truth revealing and standing in for the universal truth.
+ - We are usually on bended knee before laws or angrily reacting against them, both immature responses.
+ - The spiritual world is hidden and perfectly revealed in the physical world.
+ - Ancients knew that you need guidance, patronage and protection as you move from one place or state to another, whenever you cross a bridge. You had better know what you are doing when you leave one group or place to join another.
+ - The big truth for men is that often we have to leave home in the first half of life before we can return home at a later stage and find our soul there.
+ - You do need some successes as a young person. They don’t inflate the ego necessarily, they just give you identity and ego structure. But, don’t construct your life around creating those. Or you will become narcissistic and ego-centric. That won’t get you anywhere.
+ - Faith is so rare-and religion so common-because no one wants to live between first base and second base. Faith is the in-between space where you’re not sure you’ll make it to second base. You’ve let go of one thing and haven’t yet latched into another. Most of us choose the security of first base.
+ - If our love of God does not directly influence, and even change, how we engage in the issues of our time on this earth, I wonder what good religion is.
+ - We are just a little tiny flicker of a much larger flame that is Life itself, Consciousness itself, Being itself, Love itself, God’s very self.
+ - If you stay in the mainstream of life, you let in the suffering of the world that invariably enters all of our lives by the time we’re in our middle years, when we’ve experienced a few deaths and read a few headlines.
+ - Most of us live in the past, carrying our hurts, guilts and fears. We have to face the pain we carry, lest we spend the rest of our lives running away from it or letting it run us. But the only place you’ll ever meet the real is now-here.
+ - If you try to assert wisdom before people have themselves walked it, be prepared for much resistance, denial, push-back, and verbal debate.
+ - When you do the first half of life well, you have a good sense of yourself.
+ - Change is not what we expect from religious people. They tend to love the past more than the present or the future.
+ - Famine, poverty, abuse, you can’t keep that all blocked out. If you let those things teach you, influence you, change you, those are the events that transition you without you even knowing it to become more compassionate.
+ - When I am not king, then THE Kingdom has its best chance of breaking through.
+ - Today we need whatever methods or help we can receive to allow the Christian message to take us to a deeper level of transformation.
+ - One is struck in the study of saints, angels and gods by a pattern that seems quaint and harmless. Yet, it is so common that I know there must be a deeper meaning. There always seem to be guardians and spirits of doors, bridges, exits and entranceways.
+ - The journey never happens alone.
+ - We Catholics must admit that there is a constant temptation among us to avoid the lectionary and the Word of God for private and pious devotions that usually have little power to actually change us or call our ego assumptions into question.
+ - When we fail we are merely joining the great parade of humanity that has walked ahead of us and will follow after us.
+ - The important thing is the willingness to give back the gift that is you, not the perfection of the gift itself. Can you feel the difference?
+ - You have to find some way to not become a cynical or negative person, a person who keeps walking around and opening your eyes in the outside world but inside you close down, a person who stops expecting tomorrow to be better than today.
+ - Our job as humans is to make admiration of others and adoration of God fully conscious and deliberate.
+ - Having a school really is the fulfillment of a longtime dream of mine.
+ - In my opinion, most organized religion does neither agentic service nor relational nurturance very well.
+ - Faith is not a means to something further. It is not something we do in order to get to heaven. Faith is its own end. To have faith is already to have come alive.
+ - What we know about God is important, but what we do with what we know about God is even more important.
+ - Pope Francis insists that mercy is at the very top of the Christian hierarchy of great truths, and everything falls apart whenever mercy is displaced by anything else.
+ - Life is not a matter of creating a special name for ourselves, but of uncovering the name we have always had.
+ - When we can see the image of God where we don’t want to see the image of God, then we see with eyes not our own.
+ - Denial of our pattern of failure seems to be a kind of practical atheism or chosen ignorance among many believers and clergy.
+ - You create your response to reality, and that response, for all practical purposes, is your reality.
+ - One wonders how far spiritual and political leaders can genuinely lead us without some degree of mystical seeing and action.
+ - Religion was made to order to “save the world,” to use a phrase Christians use so much, but we really haven’t been doing a good job of it for centuries. It’s heartbreaking really.
+ - God seems to be about turning our loves around and using them toward the great love that is their true object.
+ - Pain and suffering that are not transformed are usually projected onto others.
+ - Every time you choose to love, you have also just chosen to die.
+ - We do not make or create our souls, we just grow them up.
+ - To believe in Jesus, is to believe that the historic person who lived on this earth more than 2000 years ago was the image of the invisible God. That’s a huge leap of faith, but it is my leap of faith, it’s the act of faith of the Christian community.
+ - Egoic consciousness is the one we all normally operate with, until we are told there is something else! Every culture teaches egoic consciousness in different ways. At that level it is all about me, my preferences, my choices, my needs, my desires and me and my group as the central reference point.
+ - Once you experience being loved when you are unworthy, being forgiven when you did something wrong, that moves you into non-dual thinking. You move from what I call meritocracy, quid pro quo thinking, to the huge ocean of grace, where you stop counting or calculating.
+ - The same powerful Scripture text that brings a loving person to even greater love will be mangled and misused by a fearful or egocentric person. This is surely what Jesus means when he talks about the one who has being given more and those who have not losing what little they have.
+ - I decided years ago that if I’m going to keep teaching contemplation, then the last years of my life should be contemplative.
+ - When ‘happiness’ eludes us – as, eventually, it always will – we have the invitation to examine our programmed responses and to exercise our power to choose again.
+ - As to his gospel, Jesus Christ came into the world as the image of the invisible God to communicate to us that not only did we not need to be afraid of God, but that God is more for us than we are ourselves or one another. God’s love is infinite, and unstoppable, and will win!
+
+157 quotes

@@ -1,0 +1,152 @@
+ - The phoenix must burn to emerge.
+ - She would be half a planet away, floating in a turquoise sea, dancing by moonlight to flamenco guitar.
+ - You were my home, Mother. I had no home but you.
+ - You’ve got to let go of who you were, to become who you will be.
+ - Memory is the fourth dimension to any landscape.
+ - Remember it all, every insult, every tear. Tattoo it on the inside of your mind. In life, knowledge of poisons is essential. I’ve told you, nobody becomes an artist unless they have to.
+ - Who can judge another man’s suffering?
+ - They say drugs are not the answer, but really, what is the question?
+ - The cake had a trick candle that wouldn’t go out, so I didn’t get my wish. Which was just that it would always be like this, that my life could be a party just for me.
+ - Beauty was deceptive. I would rather wear my pain, my ugliness. I was torn and stitched. I was a strip mine, and they would just have to look. I hoped I made them sick. I hoped they saw me in their dreams.
+ - Love’s an illusion. It’s a dream you wake up from with an enormous hangover and net credit debt. I’d rather have cash.
+ - How easy I was. Like a limpet I attached myself to anything, anyone who showed me the least attention.
+ - Their love as a dragonfly, skimming over echo park, stoppin to visit the lotus. Eating dreams and drinking blue sky.
+ - Women always put men first. That’s how everything got so screwed up.
+ - Although she was giddy with exhaustion, sleep was a lover who refused to be touched...
+ - My hatred gives me strength.
+ - To know I was beautiful in his eyes made me beautiful.
+ - One can bear anything. The pain we cannot bear will kill us outright.
+ - Don’t hoard the past. Don’t cherish anything. Burn it. The artist is the phoenix who burns to emerge.
+ - After all the fears, the warnings, after all, a woman’s mistakes are different from a girl’s. They are written by fire on stone. They are a trait and not an error.
+ - Never apologize. Never explain.
+ - And I thought, there was no God, there was only what you wanted.
+ - Always learn poems by heart. They have to become the marrow in your bones. Like fluoride in the water, they’ll make your soul impervious to the world’s soft decay.
+ - Depression, suffering and anger are all part of being human.
+ - Take my advice. Stay away from all broken people.
+ - I thought clay must feel happy in the good potter’s hand.
+ - Oleander time, she said. Lovers who kill each other now will blame it on the wind.
+ - How right that the body changed over time, becoming a gallery of scars, a canvas of experience, a testament to life and one’s capacity to endure it.
+ - We strive for beauty and balance, the sensual over the sentimental.
+ - Poppies bleed petals of sheer excess. You and I, this sweet battle ground.
+ - Find someone who will tremble for your touch, someone whose fingers are a poem.
+ - Don’t turn over the rocks if you don’t want to see the pale creatures who live under them.
+ - Girls were born knowing how destructive the truth could be. They learned to hold it in, tamp it down, like gunpowder in an old fashioned gun. Then it exploded in your face on a November day in the rain.
+ - You can’t shape me anymore. I am the uncontrolled element, the random act. I am forward movement in time. You think you can see me? Then tell me, who am I? You don’t know.
+ - She would buy magic every day of the week. Love me, that face said. I’m so lonely, so desperate. I’ll give you whatever you want.
+ - You must find a boy your own age. Someone mild and beautiful to be your lover. Someone who will tremble for your touch, offer you a marguerite by its long stem with his eyes lowered. Someone whose fingers are a poem.
+ - I was tired of men. Hanging in doorways, standing too close, men who made you love them then changed their minds.
+ - It’s such a liability to love another person.
+ - Let me tell you a few things about regret. There is no end to it. Do you regret the beginning which ended so badly, or just the ending itself?
+ - Death like a lover, caressing him, promising him peace, running its fingers through his hair, its tongue in his ear. She put her own two fingers in her mouth. Im so sorry. And pulled the trigger.
+ - Loneliness is the human condition. Cultivate it. The way it tunnels into you allows your soul room to grow.
+ - That was the thing about words, they were clear and specific-chair, eye, stone- but when you talked about feelings, words were too stiff, they were this and not that, they couldn’t include all the meanings. In defining, they always left something out.
+ - Just because a poet said something didn’t mean it was true, only that it sounded good.
+ - My house is modern, but I like my writing room to be old fashioned. I write on a little wooden secretary desk.
+ - Dawn has a way of casting a pall on any night magic.
+ - Her fingers moved among barnacles and mussels, blue-black, sharp-edged. Neon red starfish were limp Dalis on the rocks, surrounded by bouquets of stinging anemones and purple bursts of spiny sea urchins.
+ - A cliche is everything you’ve ever heard of.
+ - Whenever she turned her steep focus to me, I felt the warmth that flowers must feel when they bloom through the snow, under the first concentrated rays of the sun.
+ - Nobody had forgotten anything here. In Berlin, you had to wrestle with the past, you had to build on the ruins, inside them. It wasn’t like America where we scraped the earth clean, thinking we could start again every time.
+ - In a perverse way, I was glad for the stitches, glad it would show, that there would be scars. What was the point in just being hurt on the inside? It should bloody well show.
+ - She should think about her own soul, what she was going to do with this funky tattered pond dank item. Dark and stained, a ruined thing.
+ - The Santa Anas blew in hot from the desert, shriveling the last of the spring grass into whiskers of pale straw. Only the oleanders thrived, their delicate poisonous blooms, their dagger green leaves. We could not sleep in the hot dry nights, my mother and I.
+ - Reading LOVE JUNKIE is like watching a sleepwalker taking a stroll on a freeway. All you can do is pray. Gorgeously written, piercingly honest.
+ - The story of her life. God gave you everything just to take it away. Just so you knew exactly what you were missing.
+ - Whenever she thought she could not feel more alone, the universe peeled back another layer of darkness.
+ - I felt like an undeveloped photograph that he was printing, my image rising to the surface under his gaze.
+ - If evil means to be self-motivated, to be the center of one’s own universe, to live on one’s own terms, then every artist, every thinker, every original mind, is evil.
+ - I love Derrick Brown for the surprise of one word waking up next to another. One moment tender, funny or romantic, the next, visceral, ironic and relevatory-here is the full chaos of life. An amazing talent.
+ - I thought how tenuous the links were between mother and children between friends family things you think are eternal. Everything could be lost more easily than anyone could imagine.
+ - I understood why she did it. At that moment I knew why people tagged graffiti on the walls of neat little houses and scratched the paint on new cars and beat up well-tended children. It was only natural to want to destroy something you could never have.
+ - I’ve told you, nobody becomes an artist unless they have to.
+ - We have no home, she told me. I am your home.
+ - A womans mistakes are different from a girls.
+ - I’ve been depressed many times in my life. But under it all I’m an optimist.
+ - What can I say about life? Do I praise it for letting you live, or damn it for allowing the rest?
+ - Now I wish she’d never broken any of her rules. I understood why she held to them so hard. Once you broke the first one, they all broke, one by one, like firecrackers exploding in your face in a parking lot on the Fourth of July.
+ - Appealing to the five senses is the feature that will always set writing apart from the visual media. A good writer will tell us what the world smells like, what the textures are, what the sounds are, what the light looks like, what the weather is.
+ - It’s all I ever really wanted, that revelation. The possibility of fixed stars.
+ - His voice was cloves and nightingales, it took us to spice markets in the Celebs, we drifted with him on a houseboat beyond the Coral Sea. We were like cobras following a reed flute.
+ - Many women get involved with a man that you pretty much know isn’t suitable and you’re kind of breaking your rules, but he’s attractive in some unknown way. And then he doesn’t even realize what a sacrifice you’re making by being with him and he dumps you!
+ - What was beauty unless you intended to use it, like a hammer, or a key? It was just something for other people to use and admire, or envy, despise. To nail their dreams onto like a picture hanger on a blank wall. And so many girls saying, use me, dream me.
+ - I thought of my mother as Queen Christina, cool and sad, eyes trained on some distant horizon. That was where she belonged, in furs and palaces of rare treasures, fireplaces large enough to roast a reindeer, ships of Swedish maple.
+ - She kissed me on the mouth. Her mouth tasted like iced coffee and cardamom, and I was overwhelmed by the taste, her hot skin and the smell of unwashed hair. I was confused, but not unwilling. I would have let her do anything to me.
+ - No matter where I was, my compass pointed west. I would always know what time it was in California.
+ - How can I shed tears for a man I should never have allowed to touch me in any way?
+ - I use my fiction to explore my own unconscious issues. I usually don’t even know what’s going on with me until I’m writing. That doesn’t mean my books are autobiographical.
+ - If sinners where so unhappy, why would they prefer their suffering? But now I knew why. Without my wounds, who was I?
+ - What was the point in such loneliness among people. At least if you were by yourself, you had a good reason to be lonely.
+ - I couldn’t imagine owning beauty like my mothers. I wouldn’t dare.
+ - A person didn’t need to be beautiful, they just needed to be loved. But I couldn’t help wanting it. If that was the way I could be loved, to be beautiful, I’d take it.
+ - Only peons made excusses for themselves she taught me. Never apologize, never explain.
+ - Aquamarines grew with emeralds, Claire told me. But emeralds were fragile and always broke into smaller pieces, while aquamarines were stronger, grew in huge crystals without any trouble, so they weren’t worth as much. It was the emerald that didn’t break that was the really valuable thing.
+ - It wasn’t awful to be dead. The stillness would almost be a relief. She wouldn’t want pain, she wouldn’t want to be wounded or mutilated. She could never shoot herself or jump off a building. But being dead wasn’t unthinkable.
+ - He hated crowds, never liked punk. He couldn’t handle the nakedness of the rage -his own so sophisticated and finely tuned. He could never see the similarity between himself and Donnie Draino screaming into a mic.
+ - Kindness was the last thing she needed. She had to stay in the icy place, the numb place, and their warmth threatened to melt her just when she needed the cold.
+ - The poets are the standard bearers of language. Their work lives or dies word by word. When I write and can hear a clunky sentence, I try to write up to the poetry that I have recited beforehand.
+ - But I knew one more thing. That people w ho denied who they were or where they had been were in the greatest danger.
+ - She laughed so easily when she was happy. But also when she was sad.
+ - Who are you? the band sang. I tried to remember but I really couldn’t say.
+ - I hated labels anyway. People didn’t fit in slots – prostitute, housewife, saint – like sorting the mail. We were so mutable, fluid with fear and desire, ideals and angles, changeable as water.
+ - Your protagonist is your reader’s portal into the story. The more observant he or she can be, the more vivid will be the world you’re creating. They don’t have to be super-educated, they just have to be mentally active. Keep them looking, thinking, wondering, remembering.
+ - And I realized as I walked through the neighborhood how each house could contain a completely different reality. In a single block, there could be fifty separate worlds. Nobody ever really knew what was going on just next door.
+ - Love could never bloom in a concrete block room.
+ - My loneliness tasted like pennies.
+ - Beauty was empty as a gourd, vain as a parakeet. But it had power. It smelled of musk and oranges and made you close your eyes in a prayer.
+ - Panic was the worst thing. When you panicked, you couldn’t see possibilities. Then came despair.
+ - A fish has no concept of water.
+ - Dawn tinted the darkness like water ink.
+ - The pearls weren’t really white, they were a warm oyster beige, with little knots in between so if they broke, you only lost one. I wished my life could be like that, knotted up so that even if something broke, the whole thing wouldn’t come apart.
+ - As a person with terrible handwriting, I love the computer. I’ve waited all my life for the computer.
+ - She was starting to think there might be such a thing as karma – that repetition – maybe you lived through the same thing over and over until you stopped caring. Maybe eventually it got less intense, until it was just nothing.
+ - I decided that if I was never going to sell anything as long as I lived, I might as well do what I want to do ’cause then at least I would’ve done what I wanted to do in life. What’s that worth?
+ - I could hear the icy winds of Sweden, but he didn’t seem to feel the chill.
+ - I tried writing fiction as a little kid, but had a teacher humiliate me, so didn’t write again until I was a senior in college.
+ - When you started thinking it was easy, you were forgetting what it cost.
+ - I wondered where he was now whether I would ever hear him again. Whether someone would love him, someday show him what beauty mean’t.
+ - To make films, you have to have boundless energy; you have to work and play with others really, really well, and I’m really a more contemplative kind of person. I like to sit at home and think, a lot.
+ - What happened to a dream without a dreamer?
+ - I imagined my soul taking in these words like silicated water in the Petrified Forest, turning my wood to patterned agate. I liked it when my mother shaped me this way. I thought clay must feel happy in the good potter’s hand.
+ - It’s not that he was going nowhere, it’s that he’d already arrived.
+ - That was what she really wanted. To forget so thoroughly she’d never have another memory again, the bitter so bitter you gave up the sweet.
+ - For she is my love, and other women are but big bodies of flame.
+ - Darkness coiled between what he wanted them to believe and the self he despised. It only made him more alone. How could you save someone when he didn’t let you kno him? What a waste. The beauty he murdered in this place. He could never see what he had, only what he failed to achieve.
+ - We don’t have a unitary society anymore, you know; it’s very fragmented. I look up and down my block in Silverlake and there is a different universe in every house.
+ - I wandered through the stacks, running my hands along the spines of the books on the shelves, they reminded me of cultured or opinionated guests at a wonderful party, whispering to each other.
+ - The best you’ll ever do is to understand yourself, know what it is that you want, and not let the cattle stand in your way.
+ - These people picked you up and played with you and then left you lying in the rain.
+ - This is what happens when you fall in love. You’re looking at a natural disaster.
+ - At every moment, each instrument knew what to play. Its little bit. But none could see the whole thing like this, all at once, only its own part. Just like life. Each person was like a line of music, but nobody knew what the symphony sounded like. Only the conductor had the whole score.
+ - And if there is no god? You act as if there is, and it’s the same thing.
+ - How many people ask you to come share their life?
+ - We parked in back and walked down the stairs with their polished brass railings, past the old-fashioned kitchen. We could see the chefs cooking. It smelled like stew, or meat loaf, the way time should smell, solid and nourishing.
+ - Being in the library is so addictive for me that I really have to exercise self-control so I can get some writing done at home.
+ - A book’s flaws make it less predictable.
+ - I think that Oprah’s on a mission to improve the lives of the average American in various ways. And one of them is to bring literature to people who would normally not be quite as demanding in their reading tastes, to show them writing that can be more than just entertainment.
+ - When you’re a little kid, you are small, your life is small – and you’re terrifically aware of that. But when you read, you can ride Arabian horses across the desert, you can be a dogsledder.
+ - She was a beautiful woman dragging a crippled foot and I was that foot. I was bricks sewn into the hem of her clothes, I was a steel dress.
+ - How vast was a human being’s capacity for suffering. The only thing you could do was stand in awe of it. It wasn’t a question of survival at all. It was the fullness of it, how much could you hold, how much could you care.
+ - The sound of her laughter was sticky as sap, the smell of night-blooming jasmine soft as a milk bath.
+ - A novel is like a dream in which everyone is you. They’re all parts of yourself.
+ - I almost said, you’re not broken, you’re just going through something. But i couldn’t. She knew. There was something terribly wrong with her, all the way inside. She was like a big diamond with a dead spot in the middle. I was supposed to breathe life into that dead spot, but it hadn’t worked...
+ - If this was a sandalwood pyre she would have thrown herself in and this paper she’d become would have caught fire and she and him could sail away like two birds.
+ - I felt like time was a great sea, and I was floating on the back of a turtle, and no sails broke the horizon.
+ - A cliche is like a coin that has been handled too much. Once language has been overly handled, it no longer leaves a clear imprint.
+ - She was not used to being cruel, but he had taught her how.
+ - The word rattled in my head like rocks in an oatmeal box.
+ - I emitted some civetlike female stink, a distinct perfume of sexual wanting, that he had followed to find me here in the dark.
+ - He reminded me of someone who put your fingers in the door and smiled and talked to you while he smashed them.
+ - A couple of times, I could have turned a trick. But I didn’t want to start. I knew how it would play. When you started thinking it was easy, you were forgetting what it cost.
+ - Love is a check, that can be forged, that can be cashed. Love is a payment that comes due.
+ - I felt beautiful but also interrupted. I wasn’t used to being so complicated.
+ - No matter how unappealing, each of them imagines he is somehow worthy.
+ - What can she possibly teach you, twenty seven names for tears?
+ - The stupid things you say in the rain, that can’t ever be washed away.
+ - You paid for every second of beauty you managed to steal.
+ - This was the life I was going to be living, everybody separated from everybody else, hanging on for a moment only to be washed away.
+ - What is real is always worth it.
+ - As an artist, you can never get what you want. What you do never approaches what you want it to be.
+ - Pick a better verb. Most people use twenty verbs to describe everything from a run in their stocking to the explosion of an A-bomb.
+ - The nearest I’d come to feeling anything like God was the plan blue cloudless sky and a certain silence, but how do you pray to that?
+
+150 quotes

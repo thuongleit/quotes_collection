@@ -1,0 +1,21 @@
+ - In my life, I find that in sobriety, I feel much more. And I have much more depth.
+ - You keep your head down and you work and work, and all of a sudden you pick your head up and people are receiving it the same way we’re sending it. They’re thinking the same things that I’m thinking about the show.
+ - I don’t like show business. I don’t like the business. I love acting. I love this. I love talking to people.
+ - When I was a young boy in San Francisco, I remember being sent home – I was playing with a friend. And I remember the mother saying, tell Jeffrey to go home. And I said to the girl, I said, why? She goes, my mother says that you’re the people who killed Christ.
+ - Joe Mantello is the uber director. I wrote him a card tonight saying basically, ‘Will you adopt me?’
+ - And I’d watch George C. Scott from backstage. He was one of my mentors.
+ - My part had three lines. I said, You look wonderful, sir, three times. All my friends said, Do not take that role – and do not understudy. You’ll regret it the rest of your life. I did both of those things, and I’ve never regretted it once.
+ - My education was doing good plays and also stinkers. When you do a stinker, you learn how to act. I like having to audition. It’s nice to do rehearsals. But it’s with an audience that you get to love it!
+ - I thought that the hardest part would be the external – would be the – oh, nails and the hair and the makeup and the dress and the heels and the blah, blah, blah, blah, blah. And actually, that wasn’t the hardest. That was very, very, very easy for me, and I liked it.
+ - This whole thing about winning and losing is muddy waters. But I can remember, as a young actor, just walking around this city and not being able to get arrested.
+ - The Emmy should be an ensemble award, too. I kept howling at everyone else’s performances.
+ - I had a lot of questions where I had to be very frank and clinical. I had to go to school on it about what it could mean physically to be trans and the options that have to be weighed and considered. But I love that. Exploring that opens my worldview in ways that I would never be able to try.
+ - I am not so concerned with how many Rotten Tomatoes we have – although the good reviews are to be wished for, of course – but I have my hands full in the daily housekeeping of doing Maura right and being truthful to this experience.
+ - I really loved my dad. I was very, very close to my dad. He – you know, he was very, very nervous about my being an actor.
+ - I think your resources are feeling. Your resources are depth. Your resources are learning. Your resources are touching and feeling. And for me, sobriety helps and aids all of that.
+ - I remember going to Bob Preston’s dressing room because I was losing a laugh – as you do in a long run. He said, ‘Give me the script. That’s where you’re going off the road.’ That’s comedy. It’s never the line itself; it’s in the foundation.
+ - I came to New York late; I was already past 30.
+ - You push a button and it goes all over the world and on Sunday people are saying, ‘Oh, I binge watched all 10 of them. Where’s more?’ and you go oh, the world has changed. It’s not my dad walking to the television set and turning a knob to Ed Sullivan.
+ - I loved the gentlemanly way they treated each other. It was unlike anything I was used to. I started helping them strike the set and, at 11, began taking acting classes privately.
+
+19 quotes

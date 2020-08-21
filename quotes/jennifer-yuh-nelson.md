@@ -1,0 +1,23 @@
+ - Sometimes, you just have to go in there and bowl people over with your sheer force of will.
+ - I’m a very soft-spoken person. I don’t throw furniture. I don’t throw tantrums.
+ - Tigress is my alternate personality, especially with children. I love animation because you get to do things you don’t normally get to.
+ - As I said, i’m very quiet, i don’t go around saying “I’m awesome!” but when I brought in my portfolio into DreamWorks and showed them what I could do, my art style is a lot wilder than I am.
+ - I’m not aggressive by nature and it was tough for me to make the transition to directing.
+ - A lot of the time in animation is spent getting the story right – that’s something you can’t rush.
+ - I’ve been drawing my whole life. My mom says my sister and I were drawing by age 1. Animation seems a real, natural extension of drawing as a way of telling a story visually.
+ - I think the best thing I have is the introvert’s ability to listen when you’re working on something as complicated as this and you have to really be aware of everyone’s specialized skills.
+ - We want to be proud of our work and make sure it’s worth the talent of the animators, who spent four years of their love, sweat and tears on it.
+ - I think the one thing specifically that is most consistent, is that we want to harken back to martial arts movies because that’s kind of the genre we’re paying tribute to, so there are some similarities to a lot of films, because they all feed off each other!
+ - Talking to actors is the same as talking to any other artists; it’s getting into the moment for them, and making sure they can lose themselves in the performance!
+ - We went to a remote Panda Base which was insane because inside there were several cribs which held about twenty baby pandas. They were all different sizes and they were all lying there in a long row. It was so cute, I could hardly stand it. I wanted to take them all home with me.
+ - Usually they have to deal with a dubbing situation or subtitles, and it takes you out of the experience. That’s why we wanted to make something that felt really immersive for Chiniese audience, but it takes a lot of work to make 2 versions of a movie!
+ - You have to make sure that people are still motivated and happy and creatively challenged so that it can all be stitched together. The voice acting starts after a lot of the storyboards are done.
+ - The story in that particular spot was an ancient history story, and we wanted to give it a historical feeling, which was why we used a historical calligraphy scroll come to life.
+ - When people feel safe, they can come up with ideas. It’s important to listen to the actor who is there on the stage and living it.
+ - Lots of people support me and I forget. But sometimes things happen and I remember, and they say I encourage them, it makes me feel very happy.
+ - I think it’s really nice to have an authenticity, it’s a huge source for us to be able to lean on people who have that knowledge.
+ - When you make a movie, it’s just so personal and then you put it out in front of people and it becomes something else.
+ - As quiet as I am I find it amazing I can stand in front of hundreds of people now and make a speech because i’ve had to do it so much. I’ve so much support from the people around me that I can achieve something like that, crazy introvert that I am, I never would have thought that would happen.
+ - We go for our own reality. I remember some of our guys saying it is way harder to make stylized art directed explosions of jade rather than a regular explosion of shrapnel.
+
+21 quotes

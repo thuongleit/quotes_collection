@@ -1,0 +1,114 @@
+ - You’ve got to find what you love and let it kill you. I don’t think any of us should ever forget that.
+ - God created whiskey to keep the Irish from taking over the world.
+ - Money can buy you a fine dog, but only love can make him wag his tail.
+ - The Ten Commandments being taken out of the public schools. I want them back.
+ - I’m going to lower the drinking age to eighteen. If you’re old enough to die in Iraq, you’re old enough to drink.
+ - I’m not afraid to live. I’m not afraid to fail. I’m not afraid to succeed. I’m not afraid to fall in love. I’m not afraid to be alone. I’m just afraid I might have to stop talking about myself for five minutes.
+ - Whether your destination is heaven or hell, you always have to change planes in Dallas.
+ - Every time you see a beautiful woman, just remember, somebody got tired of her.
+ - If you don’t love Jesus-go to hell!
+ - Poly means more than one, and ticks are bloodsucking parasites.
+ - An editor’s job is to take something great and make it good.
+ - You struggle with your demons and you conquer them.
+ - People may surprise you with unexpected kindness. Dogs have a depth of loyalty that often we seem unworthy of. But the love of a cat is a blessing, a privilege in this world.
+ - If you gotta kill two birds, might as well get stoned.
+ - May the God of your choice bless you.
+ - I don’t believe in carrying a weapon. If somebody wants to shoot me, he’ll have to bring his own gun.
+ - Finding a cat – or having a cat find you – can change your world as much as marriage, divorce, love, death, or even winning the lottery can, and sometimes more.
+ - Always respect your superiors, if you have any.
+ - Remember: Y’all is singular. All y’all is plural. All y’all’s is plural possessive.
+ - No matter where you go, you always see yourself in the rearview mirror.
+ - Happiness is a moving target.
+ - I don’t apologize to people who try to intimidate.
+ - If you have the choice between humble and cocky, go with cocky. There’s always time to be humble later, once you’ve been proven horrendously, irrevocably wrong.
+ - When a stray animal crosses your path, it may be as close to God as you’re going to get in this lifetime.
+ - The child-teacher relationship is crucial.
+ - The only thing that really differentiates Texas from any other place in the world is the proclivity of its people to urinate outdoors and to attach a certain amount of importance to this popular pastime.
+ - I believe that Willy Nelson is the hillbilly Dalai Lama.
+ - I am not anti-death penalty, but I’m damned sure anti-the-wrong-guy-getting-executed.
+ - I’m too young for Medicare and too old for women to care.
+ - I’ve been in true love many times. I just try to avoid it as much as possible. For if there’s one thing I know about true love, it is that sooner or later, it results in a hostage situation.
+ - You have to pretend that your life is a financial pleasure even when your autographs are bouncing.
+ - The main health hazard in the world today is people who don’t love themselves.
+ - In six days the Lord created the heavens and the earth and all the wonders therein. There are some of us who feel that He might have taken just a little more time.
+ - The only currency I value is the coin of the spirit. That’s very important in my life.
+ - The folks in Mississippi are saying, ‘Thank God for Texas.’
+ - We’re all worm bait waiting to happen. It’s what you do while you wait that matters.
+ - Seventeen publishers rejected the manuscript, at which time we knew we had something pretty hot.
+ - If you ain’t Texan, I ain’t got time for you.
+ - You don’t accomplish much by swimming with the mainstream. Hell, a dead fish can do that.
+ - Friday night was the night most people thought they were supposed to have fun. Trouble was most people didn’t know what fun was or how to have it, so things usually ended up pretty ugly.
+ - If you’re patient and you wait long enough, something will usually happen and it’ll usually be something you don’t like.
+ - This is called “spiritual lifting.” It’s not heavy lifting. The governor of Texas should not be confused with Arnold Schwarzenegger. That’s a powerful position. The governor of Texas can’t do any heavy lifting really. It’s not that powerful a position.
+ - Now I have a cat. Well, that’s not quite accurate. A cat and I have each other.
+ - The teachers are getting screwed, blued, and tattooed by the system.
+ - I want to fight the wussification of the State of Texas. I want to rise and shine and bring back the glory.
+ - The system is not perfect. Until it’s perfect, let’s do away with the death penalty.
+ - These days, there are many people around the world who listen to the songs that made me infamous and read the books that made me respectable.
+ - Inspiration thing is important, to teach the kids that JFK is not an airport, RFK’s not a stadium, Martin Luther King ain’t a street.
+ - There are more inspirational people in music than there are in politics.
+ - The art of writing fiction is to sail as dangerously close to the truth as possible without sinking the ship.
+ - I don’t think I have even achieved fame. Of course, Hemingway says that fame is death’s little sister.
+ - This system is really broken. No Child Left Behind has really failed and the only way to solve education is to leave one governor behind.
+ - We’re going to make that Lone Star shine again.
+ - May the God of your choice bless and keep you. I respect Him as long as He does not circumcise me anymore.
+ - If you elect me the first Jewish justice of the peace, I’ll reduce the speed limits to 54.95!
+ - I have a better head of hair than Rick Perry; it’s just not in a place I can show you.
+ - My three favorite travel writers of all time are Robert Louis Stevenson, Graham Greene, and Chuck Thompson. Smile When You’re Lying not only tells the truth about the travel-writing racket, it gets to the heart of some of the travel industry’s best-kept secrets.
+ - Golf is the only opportunity that middle-aged WASPs have to dress up like a pimp.
+ - The distance between the limousine and the gutter is a short one.
+ - I’ve achieved many of my dreams, and I want to see that some others get a chance to, especially younger Texans.
+ - I don’t see how the people who created the problem can fix it. Texas is worth fighting for, and the best way to fight is to get the politicians out of politics.
+ - If Raymond Chandler came from the South, his name would be Ace Atkins.
+ - I rarely meddled in the cat’s personal affairs and she rarely meddled in mine. Neither of us was foolish enough to attribute human emotions to our pets.
+ - All my adult life I’ve been in the practice of giving advice to people who are happier than I am.
+ - Remember, the Legislature is the joke, not our campaign.
+ - The reason educational spending in Texas is so low is because you don’t have a state tax there, and that’s why Texas is big growth because you don’t tax people to death.
+ - We’ve got to clear some of the room out of the prisons so we can put the bad guys in there, like the pedophiles and the politicians.
+ - My goal as a young man, to be fat, famous and financially fixed by 50.
+ - Young people are the key to this election.
+ - What has six balls and screws Texans? The Texas Lottery.
+ - I’ll keep us out of war with Oklahoma!
+ - People are drooling for the truth. They want honesty from politicians, and they’re not getting it.
+ - Students don’t know who Mark Twain was because he wasn’t on the test.
+ - You never marry the person you first see ‘Casablanca’ with.
+ - I’d felt that a man without a woman was like a neck without a pain.
+ - William Bennett is my patron saint, one of them. Redd Foxx is another.
+ - You have to work at it if you want to be a good smoker. Especially today with all the non-smoking world constantly harassing you.
+ - Man’s ability to delude himself is infinite.
+ - If you’re paranoid long enough, sooner or later you’re gonna be right.
+ - I never apologize for the truth. And the truth here is that racists come in many different colors.
+ - My definition of an artist is anyone who’s ahead of his time and behind on his rent.
+ - Sleep came slower than a frigid woman.
+ - I’m ready for anything. That’s probably why it never happens.
+ - I even went so far as to become a Southern Baptist for a while, until I realized that they didn’t hold ’em under long enough.
+ - I just want Texas to be number one in something other than executions, toll roads and property taxes.
+ - I’m not pro-life, and I’m not pro-choice. I’m pro-football.
+ - Cuban cigars is a big expense because I do smoke a lot of them, eight to 12 a day, so that would be almost as bad as a cocaine habit, a hundred bucks a day.
+ - Remember, I’m not running against Rick Perry; I’m running against apathy.
+ - Musicians can run this state better than politicians. We won’t get a lot done in the mornings, but we’ll work late and be honest.
+ - The Democrats and Republicans are the same guy admiring themself in the mirror.
+ - Well, I just said that Jesus and I were both Jewish and that neither of us ever had a job, we never had a home, we never married and we traveled around the countryside irritating people.
+ - Like most of us, I determined that I’d rather be a large part of the problem than a small part of the solution.
+ - They probably would’ve taken Jesus if he hadn’t been nailed down.
+ - There’s a fine line between fiction and non-fiction and I think I snorted it somewhere in 1979.
+ - I came from an upper-middle class home, which is always a hard cross for a country singer to bear.
+ - He looked a shade too healthy and nobody likes that. Particularly in New York.
+ - How can you look at the Texas legislature and still believe in intelligent design?
+ - We’re first on executions. We’re 49th in funding public education. We’re in a race with Mississippi for the bottom, and we’re winning.
+ - If Willie Nelson had been Rosa Parks, there never would have been a civil rights movement in this country, because he refuses to leave the back of the bus.
+ - And I think musicians can better run this state than politicians. And, hell, beauticians can better run the state than politicians.
+ - It wasn’t a healthy attitude, but it wasn’t really a healthy world.
+ - The first thing I’ll do if elected is demand a recount.
+ - I’m not for the parties. I’m for Texas.
+ - There will be a whole new spirit blowing through Texas. There will be a smile on everybody’s face and a chill up the spine of every politician.
+ - Always beware of people offering you one-time money. That only works in an election year. How are you going to permanently pay for education?
+ - I see an issue I like, and I support it.
+ - There is a difference between who is important and who is significant.
+ - I was so high, I needed a stepladder to scratch my own ass.
+ - I’ll sign anything except bad legislation.
+ - Well, I hate to be the one to take the flyswatter to Tinker Bell, but...
+ - We’ve had to be creative to get on the ballot.
+ - I’ll tell you right now. I’m for prayer in school.
+
+112 quotes

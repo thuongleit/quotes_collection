@@ -1,0 +1,40 @@
+ - If you can’t do it with feeling, don’t.
+ - Find one person in the audience and sing to them with all of your heart. And then cast a spell over them. Hoss, if you can’t do it with feeling – don’t.
+ - I don’t wanna get rich – just live good.
+ - Oh, I offended you with my opinion? You should hear the the ones I keep to myself.
+ - I recorded a song called, I Fall to Pieces, and I was in a car wreck. Now I’m worried because I have a brand-new record, and it’s called Crazy!
+ - Im gonna be something one of these days.
+ - You don’t appreciate home until you leave it and, let me tell you, you can’t appreciate life till you’ve almost left it! Some people hope and die with their song still in them. I used to think that happiness resulted when my earnings matched my yearnings! But not anymore!
+ - I’ve become a captive of my own ambitions.
+ - In childhood I developed a serious throat infection, and my heart stopped beating. I recovered from that illness with a voice that boomed forth like Kate Smith’s!
+ - Sitting around the house playing the wife and mother is driving me crazy.
+ - Mother would come and pick me up at work and take me wherever I could get a job. Mother didn’t trust anybody with me. Usually we’d get home at 3 in the morning.
+ - If I made a list of the people I admire, Mom would probably fill up half of it. She could do anything and everything.
+ - On Saturdays I worked all day in Hunter Gaunt’s drugstore in Winchester, and then at night, my mother drove me to Front Royal, where I sang pop tunes.
+ - Jesus has been in my room. He has taken my hand and told me, No, Not now. I have other things for you to do.
+ - Oh, I just sing like I hurt inside.
+ - Im not making up my mind about anything right now. Things are happening so quickly for me, and Im still in the thinking stage.
+ - A lot of people say you’ve got all the loving in the world when you walk out on stage. But hell, that applause don’t help you any when you’re lying in that bed at night being totally ignored.
+ - I could spit dust I’m so mad. He wants to put violins on my new session. I’ll die before I’ll go all the way pop.
+ - The final words of a domestic bully: If you leave me now furious angels will descend upon you and bring you back to me.
+ - Boys, they can’t take my refrigerator now. They’ll never get my car now. I paid cash for ‘em and they’re mine, and I’m keepin’ ’em!
+ - I wish to be put away in a western dress I designed, with my daughter’s little gold cross necklace and my son’s small white testament in my hands, and my wedding band on.
+ - I think I’ve found out who I am and what we’ve been looking for. We don’t have to search for my identity anymore. This is it-we’re doing it!
+ - I can’t miss a night’s work and let my public down.
+ - I played with Arthur Godfrey for about a year and a half.
+ - You’re gonna have to learn to get out there in front of those cameras and hold your head up. Take charge when you’re singing.
+ - Carnegie Hall was real fabulous, but you know, it ain’t as big as the Grand Ole Opry.
+ - My new house is going to have wall-to-wall awards!
+ - Anybody that’ll stand up to The Cline is all right.
+ - You might say it was my return to the living that launched me as a singer. I was placed in an oxygen tent, and the doctors brought me back to life.
+ - I have gotten more than I asked for. All that I ever wanted was to hear my voice on record and have a song among the Top 20.
+ - I’d like to do my first record I ever made, A Church, a Courtroom, and Then Goodbye.
+ - It sure gives me faith and a wonderful feeling to know how many fans and friends are wanting me well again.
+ - I didn’t know there was so many people in this world that knew of me.
+ - It seems that every time I stick my neck out, I get my foot into something else.
+ - I got me a hit record and I ain’t never made a cent from it.
+ - The one thing I wanted to do more than anything else was sing country music.
+ - I would never have gone anywhere if it hadn’t been for Mother’s faith and support.
+ - I got to be constantly reassured that somebody loves me.
+
+38 quotes

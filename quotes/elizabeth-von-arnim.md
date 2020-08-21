@@ -1,0 +1,27 @@
+ - There’s no safety in love. You risk the whole of life. But the great thing is to risk -to believe, and to risk everything for your belief.
+ - Beauty made you love, and love made you beautiful.
+ - Well, I for one am unable to imagine how anybody who lives with an intelligent and devoted dog can every be lonely.
+ - If one believed in angels one would feel that they must love us best when we are asleep and cannot hurt each other; and what a mercy it is that once in every twenty-four hours we are too utterly weary to go on being unkind.
+ - The longer I live the greater is my respect for manure in all its forms.
+ - Keep quiet and say one’s prayers-certainly not merely the best, but the only things to do if one would be truly happy; but, ashamed of asking when I have received so much, the only form of prayer I would use would be a form of thanksgiving.
+ - What a blessing it is to love books. Everybody must love something, and I know of no objects of love that give such substantial and unfailing returns as books and a garden.
+ - And the summer seems as though it would dream on for ever.
+ - Life is an admirable arrangement, isn’t it, little mother. It is so clever of it to have June in every year and a morning in every day, let alone things like birds, and Shakespeare, and one’s work.
+ - She belongs to the winter that is past, to the darkness that is over, and has no part or lot in the life I shall lead for the next six months. Oh, I could dance and sing for joy that the spring is here! What a ressurection of beauty there is in my garden, and of brightest hope in my heart.
+ - Reading was very important; the proper exercise and development of one’s mind was a paramount duty.
+ - Books have their idiosyncrasies as well as people, and will not show me their full beauties unless the place and time in which they are read suits them.
+ - On wet days I will go into the thickest parts of the forest, where the pine needles are everlastingly dry, and when the sun shines I’ll lie on the heath and see how the broom flares against the clouds. I shall be perpetually happy, because there will be no one to worry me.
+ - Love isn’t decent. Love is glorious and shameless.
+ - What a blessing it is to love books.
+ - I want to be as idle as I can, so that my soul may have time to grow.
+ - Home is the best place when life begins to wobble.
+ - But it is impossible, I find, to tidy books without ending by sitting on the floor in the middle of a great untidiness and reading.
+ - Who can begin conventional amiability the first thing in the morning?
+ - I would recommend to those persons who are inclined to stagnate, whose blood is beginning to thicken sluggishly in their veins, to try keeping four dogs, two of which are puppies.
+ - Impossible for anyone to conceive the torments of his nights in bed with his beloved one and estranged from her. That turning of backs, that cold space between their two unhappy bodies.
+ - Guests can be, and often are, delightful, but they should never be allowed to get the upper hand.
+ - She made him think of his mother, of his nurse, of all things kind and comforting, besides having the attraction of not being his mother or his nurse.
+ - It is beautiful, beautiful to give; one of the very most beautiful things in life.
+ - When I got to the library I came to a standstill, – ah, the dear room, what happy times I have spent in it rummaging amongst the books, making plans for my garden, building castles in the air, writing, dreaming, doing nothing.
+
+25 quotes

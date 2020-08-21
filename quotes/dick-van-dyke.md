@@ -1,0 +1,102 @@
+ - You have to be able to laugh at yourself. Attitude is almost more important than what happens to you.
+ - There are tribes all over the world who sing and dance every day as part of their lives. And we oughta do that.
+ - I sing and dance. That’s my job.
+ - We should never judge a day by its weather.
+ - In my seventies, I exercised to stay ambulatory. In my eighties, I exercise to avoid assisted living.
+ - Women will never be as successful as men because they have no wives to advise them.
+ - The secret to keeping moving is keeping moving.
+ - I wanted to be a radio announcer.
+ - I know friends of mine who have never changed their mind about anything in their lives, despite evidence from all directions. And I think if you can keep an open mind and some understanding, that helps you stay young.
+ - I taught Sunday school when I was younger, and ended up an elder in the church, and it just seemed to me that a lot of people who went to church certainly weren’t – the rest of the week – living what I would call an Christian life.
+ - Hope is life’s essential nutrient, and love is what gives life meaning.
+ - I’m not a loner. I have to have a life partner.
+ - I think the saddest moment in my life just happened two months ago. My old nightclub partner passed away, Phil Erickson down in Atlanta. He – I owe him everything. He put me in the business and taught me about everything I know.
+ - They did ask me to do ‘Dancing With The Stars;’ I said I can do one show, but on that show you have to come up with a new number every week, and I told them that I think I’m a little past that stage.
+ - The most important thing for old guys is never start going down the stairs sideways.
+ - I wanted to be Stan Laurel, then I wanted to be Fred Astaire and then Captain Kangaroo. I actually started out as a radio announcer when I was 17 and never left the business, so that’s literally 70 years.
+ - You can spread jelly on the peanut butter but you can’t spread peanut butter on the jelly.
+ - Once you get the kids raised and the mortgage paid off and accomplish what you wanted to do in life, there’s a great feeling of: ‘Hey, I’m free as a bird.’
+ - I was the class clown, you know, that kind of thing, and I gathered around me a group of guys who also were silly. I was in all the plays and everything. But I don’t know, at that time show businesses looked like the moon, you know, it was so far away. I wanted to be a radio announcer.
+ - Walt Disney and I always said we were two children looking for our inner adults.
+ - I found out retirement means playing golf, or I don’t know what the hell it means. But to me, retirement means doing what you have fun doing.
+ - I didn’t know the answers, but I could feel that the things that gave life meaning came from a place within and from the nurturing of values like tolerance, charity, and community.
+ - I have four kids, seven grandkids, and four great-grandkids. Maybe I can become a great-great-grandfather if I hang on!
+ - I wrote a little autobiography about how luck has to do with everything. It’s called ‘My Lucky Life In and Out of Show Business.’ A publisher came to me and said, ‘Write a book,’ so I did. I wanted to call it ‘Everybody Else Has Got a Book.’
+ - I think, the ‘Van Dyke Show’ and ‘Mary Poppins’ are two of the best periods of my life. I had so much fun, I didn’t want it to end.
+ - My wife, as proud as she was of me, hated show business for good reasons. There was something about the spouse always being pushed out of the way, shoved aside. She wanted to get away from it.
+ - So at 16 I got a job at the local radio station. And I was working after school and weekends. I did the news; I did everything. I did – played records.
+ - My brother and I laughed a lot as kids. We came up in the middle of the Depression, and neither one of us knew we were poor. We had nothing, but we didn’t know it.
+ - I have two kids who were like me, we get out of bed feeling good, and the other two would sit at the breakfast table and grumble. I think it’s born into us. I usually wake up feeling pretty good. Looking forward to the day.
+ - Bob Hope, like Mark Twain, had a sense of humor that was uniquely American, and like Twain, we’ll likely not see another like him.
+ - No, I did night clubs right here in Los Angeles. My partner, Phil Erickson, put me in the business, a guy from my home town, a dear friend who we just lost a couple of months ago.
+ - My son Barry, of course, has been on from the beginning. And his son Shane is playing now a med student regularly on the show. And at one point or another, I’ve had all four of his kids on the show.
+ - But once we got on the air, everybody except Morey Amsterdam pretty much stuck to the script.
+ - Life is like a box of chocolates, I’m a nerd and I read books.
+ - I don’t have any children; I have four middle-aged people.
+ - Oh, well, my first love is comedy or singing and dancing.
+ - You need someone to love, and something to do that you enjoy, and something to hope for, and that’s enough for me.
+ - I do miss the rhythms of comedy. And I’ve never been able to perform very well without an audience. The sitcoms I’ve done had them. It was like doing a little play.
+ - People think I’m talking like I’m in perfect health, but I have all the infirmities for my age. I have arthritis and all those things. But if you keep moving, that won’t bother you.
+ - Today, if you’re not an alcoholic, you’re nobody.
+ - There are people with their iPads are taking pictures so much that they’re not experiencing the moment. They go home and look at the pictures later.
+ - Stan said he used to keep Hardy late, make him miss his golf game, and really get him mad.
+ - Probably one of the happiest moments, outside the birth of all of my kids, was the first time we won an Emmy, that the show won an Emmy. That was a big night.
+ - I grew up in Danville, Illinois, right in the middle of the state.
+ - I’ve been talking about retiring for years. It’s my standard answer to the question, ‘What are your future plans?’ The truth is, I’ll always want to do things that are worthwhile or fun.
+ - I never had a lot of drive, but because I had family responsibilities, I had a lot of tenacity – the tenacity of a drowning man.
+ - I think it’s being thrown at the wolves, we call it in our business.
+ - I played a killer twice. Once on ‘Matlock,’ on Andy Griffith’s show, I got to play the killer.
+ - Put me on solid ground and I’ll start tapping! At my age they say to keep moving.
+ - I was a ‘Laurel and Hardy’ nut. I got to know Laurel at the end of his life, and it was a great thrill for me. He left me his bow tie and derby and told me that if they ever made a movie about him, he’d want me to play him.
+ - I worked nightclubs all through my 20s, and I was a teetotaler.
+ - I like ‘The Office.’ I particularly like the British version with Ricky Gervais. Of course, I liked the ‘Seinfeld’ show a lot. I thought that was an awfully good show.
+ - When I auditioned for ‘Bye Bye Birdie’ on Broadway, Gower Champion said, ‘You’ve got the job!’ I said, ‘Mr. Champion, I can’t dance.’ He said, ‘We’ll teach you what you need to know.’
+ - I’ve retired so many times now it’s getting to be a habit.
+ - There’s a lot of very funny people I’d love to work with that I’ve never met, of course. I love Steve Martin and Jim Carrey.
+ - I get little kids who recognize me from ‘Mary Poppins,’ and it just delights me because it’s our third generation.
+ - I did a ‘Golden Girls’ once, which shot in front of an audience, and that went well. I had a good time. But I need an audience, for comedy at least.
+ - Rob Petrie is who I really am – in personality and general ineffectiveness.
+ - When I was a kid, I loved all the silent comedians – Buster Keaton, Laurel and Hardy, Chaplin. And I used to imitate them. I’d go to see a Buster Keaton movie and come home and try things out I’d seen. I learned to do pratfalls when I was very young.
+ - I turned down some movies that were quite good. mainly on the basis of taste.
+ - My kids are so much better parent than I was.
+ - I’ve always been a bit of an orphan, because actors say, ‘Well, he’s more of a dancer.’ And dancers say, ‘No. He’s really a singer.’ And singers say, ‘No. He’s an actor.’
+ - I can’t work with my brother without laughing.
+ - I married somebody half my age, and everybody thought I was crazy, but she is just an absolute angel.
+ - I have four children and I have seven grandkids.
+ - I was always in show business but in many ways was not really of show business. I didn’t move in show business circles, particularly, still don’t do it.
+ - Do you know that I was the anchor on the ‘CBS Morning Show?’ And my newsman was Walter Cronkite.
+ - I cannot tell you what it means when children recognize. This is about the third generation for me. And when kids that small recognize me, it really pleases me, very gratifying.
+ - Everybody knows that I’m shorter, but it doesn’t bother me at all.
+ - No, no, it was the relationships. That was that group. People believed that Rob and Laura were really married in real life. You know, a lot of people believed that.
+ - My favorite unknown movie is ‘The Comic.’
+ - I never made a good movie.
+ - I never wanted to be an actor and to this day I don’t. I can’t get a handle on it. An actor wants to become someone else. I am a song-and-dance man and I enjoy being myself, which is all I can do.
+ - A lot of violence, a lot of gore in it, and I just didn’t want to do that kind of thing.
+ - I was lucky to get the kinds of parts I wanted. I always said I didn’t want to do anything my kids can’t see.
+ - I’m always announcing my retirement. I’m still not retired.
+ - I was the worst game show host that ever lived, and I knew it.
+ - But I wish they would make a musical of some kind. I miss musicals so much. You don’t see them anymore.
+ - I went from my mother to my wife. And to this day, I can’t bear to be alone.
+ - We had all week to rehearse. An audience would come in at the end of the week and we’d our little show. Most of the ad- libbing happened during the week on the show.
+ - I’m really in retirement. My career is over. I’m just playing now and having a great time. I like to keep busy, and I’m doing what’s fun for me.
+ - When I get some budding young comic who’ll come up to me and say, ‘What was it like to do it in those days?’ I try to be as gracious to him as Stan Laurel was to me.
+ - As wonderful as they were, my parents didn’t teach me anything about self-discipline, concentration, patience, or focus. If I hadn’t had a family myself, I probably never would’ve done anything. Marriage taught me responsibility.
+ - I watch ‘Al Jazeera.’ They have news that you can’t find anywhere else. They do great documentaries, too.
+ - I got into a Broadway show before I ever sang and danced. I learned how after I got in the show.
+ - I think most people will tell you that. They can go along and, while they’re denying that they are addicted, say it’s stress this, it’s this, it’s that. But I – it’s – I think – I really believe there is a gene. Some people become addicted and others don’t.
+ - When I started having kids, I thought, ‘I don’t want to do anything they can’t watch.’
+ - You know, I’m almost out of the habit of watching episodic television now.
+ - Oh, I had an idea for a pilot of my own at the time, and then Carl sent me about eight scripts and simply I threw my idea out the window because the writing was just so good.
+ - I sing all day. And it’s good for you. Good for your vocal cords.
+ - Jon Stewart kills me. I love him. And Bill Maher. He does an hour on HBO. But entirely political. It is awfully rough, but he does make me laugh.
+ - So as my kids will tell you, they had a pretty normal life.
+ - I loved to fall down.
+ - I’ve won several Emmys, a Tony and a Grammy, so maybe somebody will let me have an Oscar, and then I’ll have a full set.
+ - I don’t play golf. I have more fun singing and dancing.
+ - Somebody asked what I wanted on my gravestone. I’m just going to put: ‘Glad I Could Help.’
+ - In the best of all worlds, the producers would take some responsibility for the kinds of things they’re putting out. Unfortunately, they don’t.
+ - Emotionally, I’m about 13.
+ - I’ve had a lot of writers, in particular, who said they got into writing because of the ‘Van Dyke Show.’ They said it looked like fun.
+ - I asked Fred Astaire once when he was about my age if he still danced, and he said ‘Yes, but it hurts now.’ That’s exactly it. I can still dance, too, but it hurts now!
+
+100 quotes

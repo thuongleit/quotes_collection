@@ -1,0 +1,39 @@
+ - God is always at war with sin.
+ - A man’s concept of God creates his attitude towards the hour in which he lives.
+ - Waiting for God is not laziness. Waiting for God is not the abandonment of effort. Waiting for God means, first, activity under command; second, readiness for any new command that may come; third, the ability to do nothing until the command is given.
+ - If you have no opposition in the place you serve, you’re serving in the wrong place.
+ - Prayer is life passionately wanting, wishing, desiring God’s triumph. Prayer is life striving and toiling everywhere and always for that ultimate victory.
+ - The supreme need in every hour of difficulty and distress is for a fresh vision of God. Seeing Him, all else takes on proper perspective and proportion.
+ - Holiness is not freedom from temptation, but power to overcome temptation.
+ - You cannot be a man of faith and live in a day. You do not live in a day if you are a man of faith.
+ - Man is created for the glory of God.
+ - The prayer life does not consist of perpetual repetition of petitions. The prayer life consists of life that is always upward and onward and Godward.
+ - The man who preaches the cross must be a crucified man.
+ - The severity of the law of God is the necessary sequence of his infinite love.
+ - The whole life story of Jesus, on the human side, is the life story of One who lived by faith.
+ - The Scripture can only be read intelligently by inspired men and women. The value we get from our reading is in direct proportion to the measure in which we are filled with God’s Spirit.
+ - The Jesus that men want to see is not the Jesus they really need to see.
+ - We cannot organize revival, but we can set our sails to catch the wind from Heaven when God chooses to blow upon His people once again.
+ - Oh, how strenuous is life! I know a little of it. Men “ought always to pray, and not to faint.” How fierce the battle! I know something of the conflict, but I ought not to faint, because I can pray.
+ - The Church did the most when the Church was the least like the world.
+ - The reason why men do not look to the Church today is that she has destroyed her own influence by compromise.
+ - When amusement is necessary to get people to listen to the gospel there will be failure. This is not the method of Christ. To form an organization and provide all kinds of entertainment for young people, in order that they may come to the Bible classes, is to be foredoomed to failure.
+ - There are hours when the Church must say NO to those who should ask communion with her, in the doing of her work, upon the basis of compromise.
+ - The world hates Christian people if they can see God in them.
+ - The three essentials for great preaching are: truth, clarity, and passion.
+ - The capacity for tears is the last demonstration of greatness.
+ - The man who does as he likes is the greatest slave. The man who never does as he likes is God’s free man.
+ - Men ought not to faint because men ought to pray.
+ - Organized Christianity that fails to make a disturbance is dead.
+ - What we do in the crisis always depends on whether we see the difficulties in the light of God, or God in the shadow of the difficulties.
+ - To the individual believer indwelt by the Holy Spirit there is granted the direct impression of the Spirit of God on the spirit of man, imparting the knowledge of His will in matters of the smallest and greatest importance. This has to be sought and waited for.
+ - God has foreordained the works to which He has called you. He has been ahead of you preparing the place to which you are coming and manipulating all the resources of the universe in order that the work you do may be a part of His whole great and gracious work.
+ - The year is made up of minutes. Let these be watched as having been dedicated to God. It is in the sanctification of the small that hallowing of the large is secure.
+ - How would you like to live with somebody who was everlastingly grieving your heart by his conduct?
+ - To call a man evangelical who is not evangelistic is an utter contradiction.
+ - To serve the Word is to fulfill the highest function of which man is capable.
+ - If the church is to be missionary, she must be spiritual; and if the church is to be spiritual, she must be missionary.
+ - Do not let us imagine that we can take into our fellowship and enlist under one banner men who simply affirm truth about Jesus, unless in their own lives there is an absolute loyalty to the Lord Christ.
+ - The purpose of God and the power of God is available for every man.
+
+37 quotes

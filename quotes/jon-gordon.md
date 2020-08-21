@@ -1,0 +1,51 @@
+ - Successful people do ordinary things with extraordinary consistency, commitment and focus.
+ - The goal is not to be better than anyone else but rather be better than you were yesterday.
+ - Being positive won’t guarantee you’ll succeed. But being negative will guarantee you won’t.
+ - Positivity is like a boomerang. The more we put it out there, the more it comes back to us.
+ - Leadership is not just about what you do but what you can inspire, encourage and empower others to do.
+ - Great leaders don’t succeed because they are great. They succeed because they bring out the greatness in others.
+ - Every morning you have a choice. Are you going to be a positive thinker or a negative thinker? Positive thinking will energize you.
+ - Purpose is the ultimate fuel for our journey through life. When we drive with purpose we don’t get tired or bored and our engines don’t burn out.
+ - A true leader doesn’t lead to gain power. They lead to empower and give power away.
+ - Love the process and you’ll love what the process produces.
+ - Challenges ONLY make you STRONGER!!!
+ - You are not a true success unless you are helping others be successful.
+ - One negative person can create a miserable office environment for everyone else.
+ - Don’t chase success. Decide to make a difference and success will find you.
+ - You need to work as hard to be a great teammate as you do to be a great player.
+ - The goal in life is to live young, have fun, and arrive at your final destination as late as possible, with a smile on your face.
+ - Optimism is a competitive advantage.
+ - The only person who can limit your possibilities is you.
+ - No challenge can stop you if you have the courage to keep moving forward in the face of your greatest fears and biggest challenges. Be courageous.
+ - Remember, you have only one ride through life so give it all you got and enjoy the ride.
+ - Enthusiasm comes from the Greek word entheos, which means, “inspired” or “filled with the divine.”
+ - My life is a gift not an obligation and I Get To make the most of it.
+ - Instead of being disappointed about where you are, be optimistic about where you are going.
+ - The secret to life and the greatest success strategy of all is to love all of it and fear none of it.
+ - Your optimism today will determine your level of success tomorrow.
+ - If you are complaining you can’t be thinking about or creating what you do want.
+ - The more energy you spend worrying about the people who didn’t get on your bus, the less you will have for the people who are on your bus. And if you are worrying about the people who didn’t get on your bus you won’t have the energy to keep on asking new people to get on.
+ - When you fuel up with purpose you find the excitement in the mundane, the passion in the everyday, the extraordinary in the ordinary.
+ - So often the difference between success and failure is belief. Belief leads to action and execution.
+ - Thoughts are magnetic. What we think about we attract.
+ - You fuel your life with trust and love instead of fear and doubt.
+ - Negative thoughts are the nails that build a prison of failure.
+ - If you think your best days are behind you, they are. If you think your best days are ahead of you, they are.
+ - Dust on gold doesn’t change the nature of gold.
+ - I don’t want my children to be what I want them to be. I want them to become everything God created them to be.
+ - Anyone who attempts to build great things will face challenges.
+ - You can’t be a great leader if all you are serving is yourself.
+ - Life and success are about what you choose to believe.
+ - We often have to lose what we thought we wanted to find what God wants for us.
+ - When you experience resistance, you find the lessons that you are meant to learn.
+ - Only through service and sacrifice can you become great.
+ - Adversity is not a dead end but a detour to a better outcome than you can imagine!
+ - It’s not easy to deal with the negativity in the world but it’s something that’s got to be done. Your success and life are so important that you must surround yourself with a positive support team.
+ - Don’t waste your energy on those who don’t get on your bus.
+ - Everyone wants to do what the great ones do; but very few are willing to do what they did to become great.
+ - Negative people often tend to create negative cultures whereas positive corporate cultures are created by positive people.
+ - Enthusiasm attracts more passengers and energizes them during the ride.
+ - Love is the answer for the team’s success.
+ - Letting people share their gifts and strengths is real love.
+
+49 quotes

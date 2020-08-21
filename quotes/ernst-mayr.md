@@ -1,0 +1,33 @@
+ - I have the honesty to say I’m an Atheist. There is nothing that supports the idea of a personal God.
+ - Scientific progress consists in the development of new concepts.
+ - Life is simply the reification of the process of living.
+ - There are a number of attributes of species and populations that are not of any particular selective advantage to any single individual in a population but that are of great advantage to the population as a whole.
+ - According to the concept of transformational evolution, first clearly articulated by Lamarck, evolution consists of the gradual transformation of organisms from one condition of existence to another.
+ - On Earth, among millions of lineages or organisms and perhaps 50 billion speciation events, only one led to high intelligence ; this makes me believe its utter improbablity.
+ - In those early years in New York when I was a stranger in a big city, it was the companionship and later friendship which I was offered in the Linnean Society that was the most important thing in my life.
+ - It seems to me that for Darwin the pulsing of evolutionary rates was a strictly vertical phenomenon.
+ - There is more to biology than rats, Drosophila, Caenorhabditis, and E. coli.
+ - A species is a reproductive community of populations reproductively isolated from others that occupies a specific niche in nature.
+ - Living in an entirely different physical as well as biotic environment, such a population would have unique opportunities to enter new niches and to select novel adaptive pathways.
+ - Isolating mechanisms are biological properties of individuals that prevent the interbreeding of populations that are actually or potentially sympatric.
+ - The most consequential change in man’s view of the world, of living nature and of himself came with the introduction, over a period of some 100 years beginning only in the 18th century, of the idea of change itself, of change over periods of time: in a word, of evolution.
+ - I feel that one species, mankind, doesn’t have the right to exterminate.
+ - Evolution as such is no longer a theory for a modern author. It is as much a fact as that the earth revolves around the sun.
+ - The history of science knows scores of instances where an investigator was in the possession of all the important facts for a new theory but simply failed to ask the right questions.
+ - In neither his definition nor the examples illustrating what memes are does Dawkins mention anything that would distinguish memes from concepts.
+ - To take an unequivocal stand, it seems to me, is of greater heuristic value and far more likely to stimulate constructive criticism than to evade the issue.
+ - Definitions are temporary verbalizations of concepts, and concepts- particularly difficult concepts- are usually revised repeatedly as our knowledge and understanding grows.
+ - As a consequence, geneticists described evolution simply as a change in gene frequencies in populations, totally ignoring the fact that evolution consists of the two simultaneous but quite separate phenomena of adaptation and diversification.
+ - Given the fact of evolution, one would expect the fossils to document a gradual steady change from ancestral forms to the descendants. But this is not what the paleontologist finds. Instead, he or she finds gaps in just about every phyletic series.
+ - I had found again and again that the most aberrant population of a species – often having reached species rank, and occasionally classified even as a separate genus – occurred at a peripheral location, indeed usually at the most isolated peripheral location.
+ - Indeed, I was unable to find any evidence whatsoever of the occurrence of a drastic evolutionary acceleration and genetic reconstruction in widespread, populous species.
+ - It is curious how often erroneous theories have had a beneficial effect for particular branches of science.
+ - The major novelty of my theory was its claim that the most rapid evolutionary change does not occur in widespread, populous species, as claimed by Most geneticists, but in small founder populations.
+ - A new species develops if a population which has become geographically isolated from its parental species acquires during this period of isolation characters which promote or guarantee reproductive isolation when the external barriers break down.
+ - Evolution thus is merely contingent on certain processes articulated by Darwin: variation and selection.
+ - Our understanding of the world is achieved more effectively by conceptual improvements than by discovery of new facts.
+ - Evolution, thus, is merely contingent on certain processes articulated by Darwin: variation and selection. No longer is a fixed object transformed, as in transformational evolution, but an entirely new start is, so to speak, made in every generation.
+ - Mathematics is as little a science as grammar is a language.
+ - New gene pools are generated in every generation, and evolution takes place because the successful individuals produced by these gene pools give rise to the next generation.
+
+31 quotes

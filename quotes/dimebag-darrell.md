@@ -1,0 +1,24 @@
+ - Music drives you. It wakes you up, it gets you pumping. And, at the end of the day, the correct tune will chill you down.
+ - The worst advice I ever received from my dad was to play by the book.
+ - If you improvise a riff and the crowd immediately reacts to it, you know you’re on to something.
+ - My heroes were Eddie Van Halen – especially after Van Halen I, II, III, and IV – Randy Rhoads, Ace Frehley and dudes like that. My brother played drums and we jammed in the garage and started writing our own stuff.
+ - It kills me when I see some metal band trying to pass themselves off as an ’alternative band.
+ - Musicians tend to get bored playing the same thing over and over, so I think it’s natural to experiment.
+ - Every song is different.
+ - I’m not saying I wouldn’t play a seven-string. It’s just that I’ve never needed one. Most dudes who play seven-strings don’t sound any different than someone playing a six-string that’s tuned down.
+ - The worst advice I ever received from my dad was to play by the book. My old man used to flip out whenever I would try to branch out and do something different. Although he didn’t do it on purpose, he really held me back in the beginning.
+ - I was more influenced by players like Randy Rhoads and Eddie Van Halen than by the guys in southern rock bands.
+ - I used to skip school and paint my face with Ace Frehley Kiss make-up.
+ - To get my sound in the studio, I double guitar tracks, and when it gets to the lead parts, the rhythm drops out, just like it’s live. I’m very conscious of that.
+ - Lessons didn’t really work out for me, so I went to the old school, listening to records and learning what I wanted to learn.
+ - When I tried to play something and screwed up, I’d hear some other note that would come into play. Then I started trying different things to find the beauty in it.
+ - Pantera is the only band I’ve ever been in, and at the start we used to play covers to make a living.
+ - A lot of bands whine about the road and how tough it is.
+ - I was lucky enough to get to see guys like Bugs Henderson, Jimmy Wallace, all those great Texas blues players.
+ - We still get those kind of cats coming out to our shows. Once you’re into it, you’re into it for a lifetime.
+ - Always have a collection of your favorite CDs with you.
+ - My old man was a musician – that’s what he did for a living. And like most fathers, occasionally he’d let me visit where he worked. So I started going to his recording studio, and I really dug it.
+ - Between the record companies being the way they are and the fact that people can just download one song instead of buying a whole album, it’s hard to make a good living nowadays.
+ - I would just listen to records and learn what I could, then just roll it over and over and over.
+
+22 quotes

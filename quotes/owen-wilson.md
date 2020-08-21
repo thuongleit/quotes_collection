@@ -1,0 +1,36 @@
+ - True love is your souls recognition of its counterpoint in another.
+ - I care desperately about what I do. Do I know what product I’m selling? No. Do I know what I’m doing today? No. But I’m here, and I’m gonna give it my best shot.
+ - You know how they say we only use 10 percent of our brains? I think we only use 10 percent of our hearts.
+ - I think of Terrence Malick’s movie Days of Heaven – one of Richard Gere’s first movies – you can push pause on almost any image in the movie and it looks like a painting.
+ - It was nice that you guys have such a good sense of humor, because some people don’t have the ability to laugh at something.
+ - Being in a bathtub with Jackie Chan, I don’t know, it has a way of bonding you I’ll tell you that. I don’t know if there are some weird undertones. It was like we had met in Los Angeles and we didn’t have that much to say to each other but, after that bathtub scene, we were great friends.
+ - That’s the thing about friendship, it’s a lot rarer than love, because there is nothing in it for any body.
+ - My mother photographed Donald Judd in Marfa, Texas, right before he passed away. He was actually the first artist whose work I collected. I just loved the photographs that my mom had done of Donald Judd and the installations in Marfa.
+ - You can’t get too attached to any one shampoo. And conditioner, also.
+ - Through my friend Tony Shafrazi, who’s an art dealer and an artist himself – he helped to show Basquiat and Keith Haring, and has worked with the Francis Bacon estate – it was really through my friendship with Tony that I developed even more of an interest in art.
+ - Maybe that’s why there’s an insecurity sometimes in acting, because it’s not like there’s a correlation between hard work and how people receive you.
+ - You can think of Hollywood as high school. TV actors are freshmen, comedy actors are maybe juniors, and dramatic actors – they’re the cool seniors.
+ - There’s something people find hilarious about dogs surfing and dancing and talking in the movies. I think it’s nice for people – I think it’s wish fulfillment – to see animals talking.
+ - It’s funny how it usually works out that I end up dying. It sort of works out, because by the time I die, I’m usually tired of working on that particular movie, so I look forward to it.
+ - I think of myself as a doom person. I’m a worrier. But I like the idea of being an optimist. Maybe I’m the kind of optimist who deep down knows it’s not going to work.
+ - I lived in Rome for about five or six months during Life Aquatic.
+ - In Rome, I loved seeing the Caravaggios. There are churches in Rome that have Caravaggios, and there’s one, not far from Piazza Navona, that has the best, I think: St. Matthew with the money.
+ - Maybe because I began as a writer, I have a good ear for dialogue, and maybe being an English major – and that I also read a lot as a kid – if I hear somebody say something that I think’s funny, or I find a situation or story, I’ll try to work that into the movie.
+ - It’s not enough just to be real; you have to try to make it interesting or entertaining.
+ - Acting is more fun than writing. Writing is harder, more like having a term paper.
+ - I respectfully ask that the media allow me to receive care and heal in private during this difficult time.
+ - I guess that’s the thing about Rome: It never changes.
+ - We didn’t know what the reception was going to be when we walked out on the runway, but it felt like we were in a rock band. People started cheering. It was a nice way to begin Zoolander 2, with that kind of reception.
+ - It isn’t so much that I choose the roles – I mean, I guess there’s a little bit of a selection process – but it’s more just what people offer you.
+ - Movies I liked growing up were like Francis Ford Coppolla movies and Scorsese movies.
+ - Because it’s me playing the character, trying to find a way to make it believable and entertaining and interesting.
+ - I try to find a way to make it comfortable or interesting or funny to me.
+ - I think the way it works is that when you’re casting a movie, you usually want to work with people that you believe in.
+ - The first thing I remember is Alexander Calder – our school took us on a field trip to go see the Calder mobiles, and that always stuck in my memory.
+ - Hansel is certainly about comfort, while still sort of having a peacock principle of wanting to attract attention.
+ - I definitely would like to do some more dramatic roles.
+ - I have never taken myself that seriously as an actor.
+ - I became sort of an aficionado on the Valentino pajamas, because I like those so much.
+ - I love Francis Bacon. I just saw a great Jackson Pollock exhibit at the Dallas Museum when I was home for Thanksgiving.
+
+34 quotes

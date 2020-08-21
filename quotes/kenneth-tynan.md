@@ -1,0 +1,40 @@
+ - All writing is an antisocial act, since the writer is a man who can speak freely only when alone; to be himself he must lock himself up, to communicate he must cut himself off from all communication; and in this there is something always a little mad.
+ - A critic is a man who knows the way but can’t drive the car.
+ - Pornography is writing that seeks primarily, even exclusively, to bring about sexual stimulation. This can be done crudely or delicately. In the former case it would be bad literature; in the latter good.
+ - A good drama critic is one who perceives what is happening in the theatre of his time. A great drama critic also perceives what is not happening.
+ - A neurosis is a secret that you don’t know you are keeping.
+ - The buttocks are the most aesthetically pleasing part of the body because they are non-functional. Although they conceal an essential orifice, these pointless globes are as near as the human form can ever come to abstract art.
+ - A villain who shares one’s guilt is inevitably more attractive than a hero convinced of one’s innocence.
+ - What, when drunk, one sees in other women, one sees in Garbo sober.
+ - No theater could sanely flourish until there was an umbilical connection between what was happening on the stage and what was happening in the world.
+ - The unique thing about Margaret Rutherford is that she can act with her chin alone. Among its many moods I especially cherish the chin commanding, the chin in doubt, and the chin at bay.
+ - A novel is a static thing that one moves through; a play is a dynamic thing that moves past one.
+ - In most writers, style is a welcome, an invitation, a letting down of the drawbridge between the artist and the world. Shaw had no time for such ruses. Unlike most of his countrymen, he abominated charm, which he regarded as evidence of chronic temperamental weakness.
+ - Show me a congenital eavesdropper with the instincts of a Peeping Tom and I will show you the making of a dramatist.
+ - A city whose living immediacy is so urgent that when I am in it I lose all sense of the past.
+ - If there’s one thing I can’t bear, it’s people who are wise during the event.
+ - William Congreve is the only sophisticated playwright England has produced; and like Shaw, Sheridan, and Wilde, his nearest rivals, he was brought up in Ireland.
+ - I hope I never need to believe in God. It would be an awful confession of failure.
+ - The vengeful hag is played by Ingrid Bergman, which is like casting Eleanor Roosevelt as Lizzie Borden.
+ - When you’ve seen all of Ionesco’s plays, I felt at the end, you’ve seen one of them.
+ - There, standing at the piano, was the original good time who had been had by all.
+ - It is Ireland’s sacred duty to send over, every few years, a playwright to save the English theater from inarticulate glumness.
+ - Art is a private thing, the artist makes it for himself; a comprehensible work is the product of a journalist. We need works that are strong, straight, precise, and forever beyond understanding.
+ - Any country that has sexual censorship will eventually have political censorship.
+ - All of life is more or less what the French would call s’imposer, to be able to create one’s own terms for what one does.
+ - Everyone is vulnerable who is at once gifted and gregarious.
+ - Among the classic tastes: bread sauce, Nuits St Georges Les Perdrix 1962, Worcestershire sauce, Toblerone and Bovril.
+ - Art is a private thing, the artist makes it for himself.
+ - We shall be judged by what we do, not by how we felt while we were doing it.
+ - Western man, especially the Western critic, still find it very had to go into print and say: “I recommend you to go and see this because it gave me an erection.”
+ - Pearl is a disease of oysters. Levant is a disease of Hollywood.
+ - How far should one accept the rules of the society in which one lives? To put it another way: at what point does conformity become corruption? Only by answering such questions does the conscience truly define itself.
+ - Not content to have the audience in the palm of his hand, he goes one further and clenches his fist.
+ - When a society has doubts about its future, it tends to produce spokesmen whose main appeal is to the emotions, who argue from intuitions, and whose claim to be truth-bearers rests solely on intense personal feeling.
+ - The sheer complexity of writing a play always had dazzled me. In an effort to understand it, I became a critic.
+ - I doubt if I could love anyone who did not wish to see Look Back in Anger.
+ - A good many inconveniences attend playgoing in any large city, but the greatest of them is usually the play itself.
+ - The man who reacts to the universe with a cry of impotent anguish is acceptable as an artist only if he can persuade us that he has sanely considered the other possible reactions and found them inadequate.
+ - The greatest films are those which show how society shapes man. The greatest plays are those which show how man shapes society.
+
+38 quotes

@@ -1,0 +1,43 @@
+ - Purpose is what gives life meaning.
+ - Curiosity is thought on its entering edge.
+ - The heart has eyes which the brain knows nothing of.
+ - Faith is the heroism of the intellect.
+ - The man who lives by himself and for himself is likely to be corrupted by the company he keeps.
+ - Sympathy is two hearts tugging at one load.
+ - Purposelessness is the fruitful mother of crime.
+ - Home interprets heaven. Home is heaven for beginners.
+ - Laws of Nature are God’s thoughts thinking themselves out in the orbs and the tides.
+ - Any supreme insight is a metaphor.
+ - There is always the possibility of beauty where there is an unsealed human eye; of music where there is an unstopped human ear; and of inspiration where there is a receptive human spirit.
+ - Faith is mind at its best, its bravest, and its fiercest. Faith is thought become poetry, and absorbing into itself the soul’s great, passions. Faith is intellect carried up to its transfigurement.
+ - A man’s longest purposes will be his best purposes. It is true, life is short and uncertain; but it is better to live on the short arc of a large circle than to describe the whole circumference of a small circle.
+ - All true manliness grows around a core of divineness.
+ - Hell is both sides of the tomb, and a devil may be respectable and wear good clothes.
+ - Pity is not enough better than indifference to benefit materially either agent or recipient.
+ - Sin spoils the spirit’s delicacy, and unwillingness deadens its susceptibility.
+ - Purpose directs energy, and purpose makes energy.
+ - Human success is a quotation from overhead.
+ - All great discoveries are made by men whose feelings run ahead of their thinking.
+ - Character is the impulse reined down into steady continuance.
+ - Little works, little thoughts, little loves, little prayers for little Christians, and larger and larger as the years grow.
+ - Science has not solved difficulties, only shifted the points of difficulty.
+ - Character is, for the most part, simply habit become fixed.
+ - Labor is the handmaid of religion.
+ - Genius does not care much for a set of explicit regulations, but that does not mean that genius is lawless.
+ - Science is busy with the hither-end of things, not the thither-end.
+ - We are religious by nature.
+ - It is all a mistake that we cannot be good and manly without being scrupulously and studiously good. There is too much mechanism about our virtue.
+ - My sin is the black spot which my bad act makes, seen against the disk of the Sun of Righteousness. Hence religion and sin come and go together.
+ - The safest words are always those which bring us most directly to facts.
+ - Faith is among men what gravity is among planets and suns.
+ - Every thought was once a poem.
+ - So far from genius discarding law, rather is it the supreme joy of genius to re-enact the eternal and unwritten law in the chamber of its own intel-lect.
+ - The old echoes are long in dying.
+ - Purpose, and to be thoroughly wedded to that purpose, is three quarters of salvation.
+ - Virtue is safe only when it is inspired.
+ - And let me say only this one word more: that the little things that a little Christian does are not any more than the larger things that an older Christian does.
+ - In a life which has meaning in it, past and future sustain each other.
+ - Faith is the very heroism and enterprise of intellect. Faith is not a passivity, but a faculty. Faith is power, the material of effect. Faith is a kind of winged intellect. The great work men of history have been men who believed like giants.
+ - Ideals we do not make. We discover, not invent, them.
+
+41 quotes

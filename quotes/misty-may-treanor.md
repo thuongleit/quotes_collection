@@ -1,0 +1,27 @@
+ - I’m stronger than I think I am. Mentally, physically.
+ - It takes a lot of hard work and dedication just like any pro sport. Especially for beach volleyball you don’t have to be tall or as fast as other sports. You just have to have the skills.
+ - Rest, rest, rest, rest, rest. Nutrition is obviously very important, but rest is equally important. At rest is when your body is trying to recover.
+ - All my life, I’ve dreamed in gold.
+ - We’re a team, and just by the nature of our sport, we’re always promoted together. I think we are definitely two different people with two different personalities, but we’re always linked.
+ - If there are fresh-baked chocolate chip cookies on the table, I won’t say no to those. Soy sauce is another one, even though it’s awful – it’s so high in sodium.
+ - I’m an avid animal lover. When I was 16, I wanted to be a vet or a zookeeper. I grew up with animals. At one time we had between five and eight dogs in the house, with four cats. We’re menagerie people.
+ - My dad would tell me to, ‘Play for those who couldn’t play.’ So my motivation is for people who struggle in life daily.
+ - A lot of people had doubts. I tried to tell people I never had doubts.
+ - If you want to be in the best shape, diet is super important. You can exercise all you want, but if you’re not eating the right foods, it’s not going to equal out. You’re not going to get the results you want.
+ - She had a hit for every syllable: ‘Don’t. You. Ever. Talk. To. Me. Like. That. Ever. Again.’ That was the last time I ever talked back to Mom.
+ - I would like to instill in people just to work hard. As long as they keep at it, their dreams will happen.
+ - My favorite power food is Greek yogurt and honey.
+ - It’s important to just kind of get away from your sport until you miss it. It’s about taking time to enjoy other aspects of life or learn new things. It helps rejuvenate.
+ - I know when things are going to get me a little nervous, because nervous to me feels good.
+ - I’ve never been outside Heathrow so it will be exciting to see what London has to offer. I think I’ve only flown into Heathrow maybe twice.
+ - I wouldn’t be the best offensive player if I didn’t have a great setter. She serves me up nectar.
+ - The more colorful the food, the better. I try to add color to my diet, which means vegetables and fruits.
+ - I don’t want to be put on a pedestal. I want to be known as a nice and normal person, but my skills are a little more excelled.
+ - I juice everything! Whether it’s beet, carrot, or apple, I’ll juice it. I always keep brown rice in the kitchen. I’ll often pack a cooler full of food to have throughout the day when I’m busy.
+ - If you maintain a healthy diet, or at least are smart about your food choices, you’ll still see the pounds come off.
+ - I didn’t want to stop before my time was up.
+ - I’ve got to read the ‘Hunger Games’ before I see the movie.
+ - I think the most surprising thing about the Olympics would be the amount of interaction and partying that goes on behind the scenes. They have nightclubs at the Olympic Village. It’s like college all over again.
+ - I want to go out on my terms.
+
+25 quotes

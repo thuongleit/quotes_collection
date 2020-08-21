@@ -1,0 +1,64 @@
+ - Country music isn’t a guitar, it isn’t a banjo, it isn’t a melody, it isn’t a lyric. It’s a feeling.
+ - I say, Lord, do right be me, I’m tired of being lonesome, on’ry, and mean.
+ - There’s always one more way to do things and that’s your way, and you have a right to try it at least once.
+ - I may be crazy, but it keeps me from going insane.
+ - If you see me getting smaller, I’m leaving, don’t be grieving, just gotta get away from here. If you see me getting smaller, don’t worry, and no hurry, I’ve got the right to disappear.
+ - Don’t you be so nice to me; I fall in love so easily.
+ - Each tomorrow will depend on the love you give today.
+ - I’m just a man, no more or no less. Bad as the worst, good as the best.
+ - If you have the courage and you have the heart, that hero just might be you.
+ - So I’m not very popular here with those inside the system, as you might guess. I never wanted to be.
+ - What bothers me most is that I don’t bother you.
+ - This is getting funny, but there ain’t nobody laughing.
+ - When I look at you girl, I see a true work of art. So many beautiful things coming in one little heart.
+ - Got my Allman Brothers cassettes stacked up on the dash, got some Jack back in the trunk and a tank full of gas.
+ - Is your head up your ass so far that you can’t pull it out?
+ - We got a lot of politicians up there on Capital Hill. Ain’t it funny how they prosper while the country stands still?
+ - Hitting the bottle again, ever than I’ve drunker been. Or is it drunker than I’ve ever been?
+ - Did ole Hank really do it this way?
+ - Nobody knows I’m Elvis, nobody knows this is me. After all of my tries, I’ve got the perfect disguise.
+ - Maybe it’s time we got back to the basics of love.
+ - I might be an endangered species.
+ - I’ve always felt that blues, rock ‘n’ roll and country are just about a beat apart.
+ - The men who could not fight, in a war that didn’t seem right. You let them come home, America.
+ - I love Johnny Cash, and I respect Johnny Cash. He’s the biggest. He’s like an Elvis in this business, but no, he’s never been the rebel.
+ - The villains have turned into heroes. The heroes have turned into heals.
+ - I can’t walk, so I can’t go home. No need to talk, cause I’m all alone. If I stay here they’re gonna lock me in, hitting the bottle again.
+ - To me a guitar is kind of like a woman. You don’t know why you like ’em but you do.
+ - Those neon light nights, couldn’t stay out of fights, keeps a-haunting me in memories. There is one in every crowd, for crying out loud, why was is always turning out to be me?
+ - They got me for possession of something that was long, long gone.
+ - Now, I don’t know how they judge all that, but if anybody in the world deserves to be in the Rock And Roll Hall Of Fame, Ritchie Valens does.
+ - Don’t ever try and be like anybody else and don’t be afraid to take risks.
+ - Heaven is laying in my sweet baby’s arms, hell is when my baby’s not here.
+ - Listening to his songs she heard nothing but bad news, still she made her mind up to try to get him win or lose.
+ - Honesty is something you can’t wear out.
+ - When you’re down in Texas, Bob Wills is still the king.
+ - One night of love don’t make up for six nights alone. But I’d rather have one than none Lord, cause I’m flesh and bone.
+ - Ladies love outlaws, like babies love stray dogs. Ladies touch babies like a banker touches gold, outlaws touch ladies somewhere deep down in their soul.
+ - Men commit murder and all sorts of mayhem, in a few years they’re back on the streets. Highway robbery and white collar crime, and they laugh at the system they beat.
+ - I ain’t got no reverse. I’ve learned, a little later in life, it works out pretty good to have one every once in a while.
+ - Cuz I was never pretty anyway and never cared anything about that.
+ - I didn’t aim at anything except good music.
+ - I’m old and crazy, but I still give a damn. And I still think the boys got screwed over in Vietnam.
+ - Take your tongue out of my mouth, I’m kissing you good-bye.
+ - I sat at a bar having a beer trying to hold down the stool.
+ - Now, I was on drugs, and that didn’t help a whole lot. He hated that. That was part of where Chet and I had problems, so I take complete blame for that.
+ - The rock and roll spirit. I learned a lot of that because I worked with Buddy Holly. I played bass with him, and he taught me a lot about that.
+ - Was an American archetype, the bad guy with the big heart.
+ - If I could only fly, you see, a lot of my problems would be gone. When you think of just how much I’d save on shoes alone.
+ - Lately I’ve heard rumors that the eagle may be lame. Just because I’ve been idle, don’t mean that I’m tame.
+ - His songs were soon curled on the lips of the world, they had earned him the highest acclaim. And yet his greatest desire was the simple warmth of love’s fire, cause it’s cold on the dark side of fame.
+ - I could have killed her when we first met and I’ve been out of jail by now.
+ - I mean, I think we’re put here on earth to make your own destiny, to begin with. I don’t think there’s anything you can do this way or that way to change anything.
+ - The Hank Williams Syndrome: Come to Nashville, write some good songs, cut some hit records, make money, take all the drugs you can and drink all you can, become a wild man and all of a sudden die.
+ - It was all devastating. I’d never dealt with losing anyone close to me, and I didn’t know where to put it in my life. I was very young then. Buddy taught me so much in such a short time.
+ - I never have any problem getting enthusiastic with a good song and a good band.
+ - You know, I feel sorry for the young artists.
+ - I was king of the mountain for a long time, well, I don’t want that no more. I like to perform every once in a while for people who want to see me, and cut albums of music that is what I’m really about.
+ - We did an album one time called White Mansions, about the civil war, but it was written by a guy from England. His looking at it from over there and it not being a part of his history made it so he could be objective.
+ - Heroes put to the test, keeping a promise, doing their best.
+ - Finally, my manager negotiated a deal where I got to produce my own records.
+ - The only problem was I needed to use my own group, and things didn’t happen until I did. It wasn’t a real country sound, what I did. I’ve listened to it, and I think it was more a west coast rock thing, you know? But it fit. It was country, but it was my own interpretation of country.
+ - He gave us all a mind to think with and to know what’s right or wrong, he is that inner spirit that keeps us strong.
+
+62 quotes

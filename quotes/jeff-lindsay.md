@@ -1,0 +1,90 @@
+ - I was never more alive than when the Dark Passenger was driving.
+ - It happens; incompetence is rewarded more often than not.
+ - Nothing in life is fair. Fair is a dirty word and I’ll thank you not to use that language around me.
+ - Our universe is ruled by random whim, inhabited by people who laugh at logic.
+ - You’re driving me NORMAL!
+ - Whatever made me the way I am left me hollow, empty inside, unable to feel. It doesn’t seem like a big deal. I’m quite sure most people fake an awful lot of everyday human contact. I just fake it all. I fake it very well, and the feelings are never there.
+ - In that tremendous flash of freedom, on my way to do The Thing for the first time, sanctioned by Almighty Harry, I receded, faded back into the scenery of my own dark self, whole the other me crouched and growled. I would do It at last, do what I had been created to do. And I did.
+ - This was just no fun. I wanted my brain back.
+ - The mind picks some very bad times to take a walk doesn’t it?
+ - Why bother inflicting enormous pain on yourself when sooner or later Life would certainly get around to doing it for you?
+ - Feeling – what authentic human fun!
+ - And I was having too much fun to stop now.
+ - Since I am not actually a real human being, my emotional responses are generally limited to what I have learned to fake.
+ - Now I know what it is like to feel like a total idiot.
+ - And as we should all know by now, anytime you predict failure you have an excellent chance of being right.
+ - And here I always thought morality was useless.
+ - Mutilated corpses with a chance of afternoon showers. I got dressed and went to work.
+ - They like to tell us that it is important to speak the truth, but it has been my experience that real happiness lies in having people tell you what you want to believe, usually not the same thing at all, and if you have to stub your toe on the truth later, so be it.
+ - That’s why I liked him, I think. Another guy pretending to be human, just like me.
+ - I know family comes first, but shouldn’t that mean after breakfast?
+ - No big deal. We all have blood in us, the trick is keeping it inside.
+ - Of course it was a terrible thing, and the world would be a much better place without someone in it who could do that, but did that mean we had to miss lunch?
+ - It was almost enough to make me feel emotion.
+ - Anybody can be charming if they don’t mind faking it, saying all the stupid, obvious, nauseating things that a conscience keeps most people from saying. Happily, I don’t have a conscience. I say them.
+ - Weren’t we all crazy in our sleep? What was sleep, after all, but the process by which we dumped our insanity into a dark subconscious pit and came out on the other side ready to eat cereal instead of our neighbor’s children?
+ - And then more quiet, silence so deep it almost drowned out the roar of the night music that pounded away in my secret self.
+ - I think people understand things different when they get older. It’s not a question of getting soft, or seeing things in the gray areas instead of black and white. I really believe I’m just understanding things different. Better.
+ - I did not like this feeling of having feelings.
+ - Money to me had always been merely something the sheep used to show each other how wonderful they were.
+ - It’s like, everything really is two ways, the way we all pretend it is and the way it really is.
+ - For the first time I could remember, I felt weak, woozy and stupid – like a human-being. Like a very small and helpless human-being.
+ - I rose to my knees, mouth dry and heart pounding, and paused to finger a rip in my beautiful Dacron bowling shirt. I pushed my fingertip through the hole and wiggled it at myself. Hello, Dexter, where are you going? Hello, Mr. Finger. I don’t know, but I’m almost there. I hear my friends calling.
+ - Or was he saying, “Hi! Wanna play?” And I did. Of course I did.
+ - As I’ve said, freedom is really an illusion. Anytime we think we have a real choice, it just means we haven’t seen the shotgun aimed at our navel.
+ - The key to a happy life is to have accomplishments to be proud of and purpose to look forward to, and at the moment I had both. How wonderful it was to be me.
+ - I had killed our careful relationship by driving my tongue through its heart and pushing it off a cliff.
+ - It was such an unexpected and genuine smile that if I only had a soul I’m sure I would have felt quite guilty.
+ - I enjoyed watching good-looking idiots looking at each other. A great spectator sport.
+ - I had become a perfect fake human, saying the stupid and pointless things that humans say to each other all day long.
+ - But of course, there’s no rest for the wicked, which I certainly am; as I said, no rest for the wicked.
+ - I often find myself in situations where it seems to me like everyone else has read the instruction book.
+ - She really did like me, the idiot.
+ - Killing makes me feel good.
+ - It’s always me, isn’t it? I’m not really a very nice person, but for some reason it’s always me that they come to with their problems.
+ - Dying makes everyone weaker, subject to painful insight, and not always insight into any kind of special truth – it’s just the approaching end that makes people want to believe they are seeing something in the line of a great revelation.
+ - A man who discovers his pants are on fire tends to have very little time to worry about somebody else’s box of matches.
+ - Nothing else loves me, nor ever will. Not even – especially – me. I know what I am and that’s not a thing to love.
+ - And so as much as I can, I care about her, dear Deborah. It’s probably not love, but I would rather she were happy.
+ - Life teaches us that human thought almost never walks hand in hand with logic, and it is usually counterproductive to raise the point.
+ - Because I am an inhuman monster, I tend to be logical,...
+ - I don’t do my job to catch the bad guys. Why would I want to do that? No, I do my job to make order out of chaos.
+ - But as I have noticed on more than one occaision, life itself is unfair, and there is no complaint department, so we might as well accept things the way they happen, clean up the mess, and move on.
+ - Really now: If you can’t get me my newspaper on time, how can you expect me to refrain from killing people?
+ - Stop the nurse like the monkey.
+ - It really is better to be lucky than to be good.
+ - I stood up. It was all too much. I could not even meet my own expectations, and to be asked to deal with all theirs too was suffocating.
+ - I think that’s nice, and if I could have feelings at all I would have them for Deb.
+ - Saturday morning was their unrestricted television time, and they usually took advantage of it to watch a series of cartoon shows that would certainly have been impossible before the discovery of LSD.
+ - I let it ring. I wanted to breathe for a few minutes, and I could think of nothing that couldn’t wait. Besides, I had paid almost $50 for an answering machine. Let it earn its keep.
+ - I nodded with genuine synthetic sympathy.
+ - I don’t know if you have noticed this, but it is quite possible for two human beings to have a conversation in which one or both parties involved has absolutely no idea what they’re talking about.
+ - I thought about the nice clothes that I always wore. Well of course I did. I took pride in being the best dressed monster in Dade County.
+ - When faced with people who have very limited conversational skills and no apparent desire to cultivate any it’s always easier to simply go along.
+ - I was good at being charming, one of my very few vanities.
+ - It’s terrible to have to depend on someone else.
+ - And what did you do last night, Dexter? Oh, I played with my dolls while a friend chopped up my sister.
+ - Was insanity really easier to accept than unconsciousness?
+ - Perhaps because I’ll never be one, humans are interesting to me.
+ - Getting yelled at by a furious woman should be a semi-formal occasion.
+ - Rectory always sounded to me like a place you would find a proctologist.
+ - A reasonable being might think that he and I could find some common ground; have a cup of coffee and compare our Passengers, exchange trade talk and chitchat about dismemberment techniques. But no: Doakes wanted me dead. And I found it difficult to share his point of view.
+ - For my part, my interest in Paris had faded away completely long ago when I learned that it was in France.
+ - Life’s only obligation, afterall, was to be interesting.
+ - What a terrible thing life can be.
+ - Another dream. Another long-distance call on my phantom party line. No wonder i had steadfastly refused to have dreams for most of my life. So stupid; such pointless, obvious symbols. Totally uncontrollable anxiety soup, hateful, blatant nonsense.
+ - Of course, having information to use is one thing. Knowing what it means and how to use it is a different story.
+ - And as always seems to happen when I have reached the point where I am ready to take decisive action, everything began to happen at once.
+ - What to wear? I could think of no guidelines on what we were wearing this season to a party forced on you to celebrate an unwanted engagement that might turn into a violent confrontation with a vengeful maniac. Clearly brown shoes were out, but beyond that nothing really seemed de rigueur.
+ - It revealed a cruelty that really made one wonder if the universe was such a good idea after all.
+ - I mean, really: what kind of person could possibly dislike me?
+ - I really am guilty, of many somethings, all of them lethal and very enjoyable and technically not quite legal.
+ - The whole point of wearing a disguise was to be seen wearing her.
+ - After a long moment I closed the freezer door. I wanted to lie down and press my cheek against the cool linoleum. Instead I reached out with my little finger and flipped the Barbie’s head. It went thack thack against the door. I flipped it again. Thack thack. Whee. I had a new hobby.
+ - In its own way the kiss had been an act of murder.
+ - First things first has always been my motto, mostly because it makes absolutely no sense – after all, if first things were second or third, they wouldn’t be first things, would they? Still, cliches exist to comfort the feeble minded, not to provide any actual meaning.
+ - Me, feeling. What a concept.
+ - But what could I do? Be stupid for a while? I wasn’t sure I knew how, even after so many years of careful observation.
+ - I sighed; as comforting as it may be to some of us, sarcasm, like youth, is wasted on the young.
+
+88 quotes

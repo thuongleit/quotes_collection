@@ -1,0 +1,33 @@
+ - Rock ‘n’ roll is meant to entertain. Hippie folk singers are supposed to be singing about leftist views, but I don’t think rock ‘n’ roll was ever that way. I don’t remember the early rock ‘n’ rollers ever expressing any political views.
+ - I never felt out of control. It was just the way I lived my life. I was the neighborhood bully.
+ - I figure people drift toward liberalism at a young age, and I always hope that they change when they see how the world really is.
+ - Europe was a horrible place. There was nothing on TV. The food was terrible. And they don’t even have ice. Who doesn’t have ice?
+ - I had a good career. I’ve been very fortunate.
+ - You also get so wound up playing a show that a lot of people need something to bring them down. People who don’t know how to handle the situation take drugs. I didn’t. I went back to my room with milk and cookies.
+ - Pure, white rock ‘n’ roll, with no blues influence.
+ - If I didn’t like someone, I wouldn’t want him calling me up when I was dying. I wouldn’t want them having regrets that they didn’t talk to me.
+ - Cancer softened me up. I like the old me better. I liked being angry. It made me feel strong.
+ - I never wore earplugs – that would have been cheating.
+ - I didn’t want the Ramones being told what to be doing, and I wanted the Ramones being presented in the right light – the remaining Ramones.
+ - The only band that I can see that made changes over the years with success was The Beatles. They were able to change album to album and still be just as good or better. I didn’t feel that we were able to do that. The Beatles were in a class by themselves.
+ - People were even too scared of me to tell me that people were scared of me.
+ - I never take medication for pain. I want to know if the pain is getting better or worse.
+ - Your life is what you remember. I mean, some things I wish I still had. But it doesn’t matter.
+ - My favorite album would have to be Rocket To Russia. I feel this album has the most classic Ramones songs.
+ - I think Ronald Reagan was the best President of my lifetime.
+ - I never liked blues and I really didn’t like jazz. I liked Chuck Berry.
+ - A lot of kids bought guitars and started playing rock’n’roll because of us.
+ - If a man can tell if he’s been successful in his life by having great friends, then I have been very successful.
+ - Republicans let this happen over and over, and there is never anyone to stick up for them. They spend too much time defending themselves.
+ - When I was younger, I was ready to go off at any time. My wife, Linda, and I would go out to the Limelight in New York, and I would see people and be able to freeze them with a look. People were even too scared of me to tell me that people were scared of me.
+ - I don’t need much more money, and I thought that when I retired that nobody would want to talk to me anymore. Then I did, and people still want to talk to me.
+ - That’s the sound we developed, and that’s how we played. It took us a while, but we found it.
+ - I never sweat, which you might notice in pictures.
+ - The bigger the show, the better I’d play. It was what I was waiting for, and I’d never get nervous.
+ - My favorite artists have always been Elvis and The Beatles and they still are!
+ - I’m only going to be the way I’d want someone to react to me.
+ - As soon as you start analyzing something it stops.
+ - Two of my biggest heroes were my father and John Wayne.
+ - I was the one who was always scowling, downcast. I tried to make sure I looked like that when I was getting my picture taken.
+
+31 quotes

@@ -1,0 +1,256 @@
+ - Wherever you go, there you are.
+ - Man proposes, but God disposes.
+ - Out of sight, out of mind. The absent are always in the wrong.
+ - Habit is overcome by habit.
+ - Purity and simplicity are the two wings with which man soars above the earth and all temporary nature.
+ - To say that I am made in the image of God is to say that love is the reason for my existence, for God is love.
+ - God is able to do more than man can understand.
+ - If you carry your cross joyfully, it will carry you.
+ - Man sees your actions, but God your motives.
+ - Who has a harder fight than he who is striving to overcome himself.
+ - If you can win complete mastery over self, you will easily master all else. To triumph over self is the perfect victory.
+ - The Lord has many lovers of His crown but few lovers of His Cross.
+ - For man plans, but God arranges.
+ - Nothing is sweeter than love, nothing more courageous, nothing higher, nothing wider, nothing more pleasant, nothing fuller nor better in heaven and earth; because love is born of God, and cannot rest but in God, above all created things.
+ - If we live in peace ourselves, we in turn may bring peace to others. A peaceable man does more good than a learned one.
+ - Occasions do not make a man either strong or weak but they show what he is.
+ - Remember always your end, and that lost time does not return.
+ - Do not interfere when your opinion is not sought.
+ - Cling, therefore, to Jesus in life and death; trust yourself to the glory of Him who alone can help you when all others fail.
+ - Temptations discover what you are.
+ - Oh, how great peace and quietness would he possess who should cut off all vain anxiety and place all his confidence in God.
+ - Of two evils we must always choose the least.
+ - Wheresoever we seek our own, there we fall from love.
+ - We usually know what we can do, but temptation shows us who we are.
+ - Love is a great thing, yea, a great and thorough good. By itself it makes what is heavy light; and bears evenly all that is uneven.
+ - Love is a great thing, a good above all others, which alone maketh every burden light.
+ - A life without purpose is a languid, drifting thing; Every day we ought to review our purpose, saying to ourselves: This day let me make a sound beginning, for what we have hitherto done is naught!
+ - The reflections on a day well spent furnish us with joys more pleasing than ten thousand triumphs.
+ - When anger enters the mind, wisdom departs.
+ - Now is the time to be doing, now is the time to be stirring, now is the time to amend myself.
+ - Whoever finds Jesus, finds a rich treasure, and a good above every good. He who loses Jesus loses much indeed, and more than the whole world. Poorest of all is he who lives without Jesus, and richest of all is he who stands in favor with Jesus.
+ - Simplicity is the intention, purity in the affection; simplicity turns to God, purity unites with and enjoys him.
+ - It is no little wisdom for you to keep yourself in silence and in good peace when evil words are spoken to you, and to turn your heart to God and not to be troubled with the judgment of others.
+ - What else does anxiety about the future bring you but sorrow upon sorrow?
+ - So fixed are our spirits in slothfulness and cold indifference that we seldom overcome so much as one evil habit.
+ - Carry the cross patiently, and with perfect submission; and in the end it shall carry you.
+ - Let temporal things serve thy use, but the eternal be the object of thy desire.
+ - All men commend patience, although few are willing to practice it.
+ - You will never be an inwardly religious and devout man unless you pass over in silence the shortcomings of your fellow men, and diligently examine your own weaknesses.
+ - Have therefore zeal to better thyself and then mayst thou have zeal to thy neighbor.
+ - The more humble and obedient to God a man is, the more wise and at peace he will be in all that he does.
+ - God deceiveth thee not.
+ - There is no creature so small and abject, that it representeth not the goodness of God.
+ - A man of peace does more good than a very learned man.
+ - O Lord, you know what is best for me. Let this or that be done, as you please. Give what you will, how much you will, and when you will.
+ - Don’t think so much about who is for or against you, rather give all your care, that God be with you in everything you do.
+ - Let this be thy whole endeavor, this thy prayer, this thy desire,-that thou mayest be stripped of all selfishness, and with entire simplicity follow Jesus only.
+ - Be thankful for the smallest blessing and you will deserve to receive greater. Value the least gifts no less than the greatest, and simple graces as especial favors. If you remember the dignity of the Giver, no gift will seem small or mean.
+ - I have sought for happiness everywhere, but I have found it nowhere except in a little corner with a little book.
+ - If thou wilt receive profit, read with humility, simplicity and faith, and seek not at any time the fame of being learned.
+ - Activate yourself to duty by remembering your position, who you are, and what you have obliged yourself to be.
+ - He is truly great who hath a great charity.
+ - Be not angry that you cannot make others as you wish them to be, since you cannot make yourself as you wish to be.
+ - Great tranquility of heart is his who cares for neither praise nor blame.
+ - The humble live in continuous peace, while in the hearts of the proud are envy and frequent anger.
+ - If thou hadst a good conscience thou wouldst not greatly fear death.
+ - Leave off that excessive desire of knowing; therein is found much distraction. There are many things the knowledge of which is of little or no profit to the soul.
+ - Love is swift, sincere, pious, joyful, generous, strong, patient, faithful, prudent, long-suffering, courageous, and never seeking its own; for wheresoever a person seeketh his own, there he falleth from love...
+ - We are sometimes stirred by emotion and take it for zeal.
+ - To be able to live peaceably with hard and perverse persons, or with the disorderly, or with such as go contrary to us, is a great grace.
+ - It is much safer to obey than to rule.
+ - The end of all is death and man’s life passeth away suddenly as a shadow.
+ - Thou shalt rest sweetly if thy heart condemn thee not.
+ - Nothing, how little so ever it be, if it is suffered for God’s sake, can pass without merit in the sight of God.
+ - O how quickly passes away the glory of the earth.
+ - Without labor there is no rest, nor without fighting can the victory be won.
+ - No man doth safely rule, but he that hath learned gladly to obey.
+ - If thou be not busy for thyself now, who shall be busy for thee in time to come?
+ - He who knows himself well is mean and abject in his own sight, and takes no delight in the vain praise of men.
+ - No man is without his load of trouble.
+ - He rides pleasantly enough whom the grace of God carries.
+ - The highest in God’s esteem are the lowest in their own.
+ - If you seek Jesus in all things you will surely find Jesus. And if you seek yourself, you will surely find yourself, but only to your ruin.
+ - Pass no rash condemnation on other peoples words or actions.
+ - He is truly great that is little in himself, and that maketh no account of any height of honors.
+ - Is a man one whit the better because he is grown great in other men’s esteem?
+ - All earthly joy begins pleasantly, but at the end it gnaws and kills.
+ - One who views thing as they are in reality, and not as they are said or thought to be, is truly wise, taught by God rather than by other persons.
+ - No confict is so severe as his who labors to subdue himself.
+ - Set me free from evil passions, and heal my heart of all inordinate affections; that being inwardly cured and thoroughly cleansed, I may be made fit to love, courageous to suffer, steady to persevere.
+ - We must imitate Christ’s life and his ways if we are to be truly enlightened and set free from the darkness of our own hearts. Let it be the most important thing we do, then, to reflect on the life of Jesus Christ.
+ - Always be thou prepared, and so live that death may never find thee unprepared.
+ - Constantly choose rather to want less, than to have more.
+ - A pure, sincere, and stable spirit is not distracted though it be employed in many works; for that it works all to the honor of God, and inwardly being still and quiet, seeks not itself in any thing it doth.
+ - Love alone makes heavy burdens light and bears in equal balance things pleasing and displeasing. Love bears a heavy burden and does not feel it, and love makes bitter things tasteful and sweet.
+ - It is much safer to be subject than it is to command. Many live in obedience more from necessity than from love. Such become discontented and dejected on the slightest pretext; they will never gain peace of mind unless they subject themselves wholeheartedly for the love of God.
+ - The loftier the building, the deeper must the foundation be laid.
+ - He is truly great that is great in charity. He is truly great that is little in himself, and maketh no account of any height of honor. And he is truly learned that doeth the will of God, and forsaketh his own will.
+ - Simplicity and purity are the two wings by which a man is lifted above all earthly things. Simplicity is in the intention – purity in the affection. Simplicity tends to God,- purity apprehends and tastes Him.
+ - You are a man, not God; you are human, not an angel. How can you expect to remain always in a constant state of virtue, when this was not possible even for an angel of Heaven, nor for the first man in the Garden?
+ - If God were our one and only desire we would not be so easily upset when our opinions do not find outside acceptance.
+ - But because many endeavor to get knowledge rather than to live well, they are often deceived and reap little or no benefit from their labor.
+ - And when he is out of sight, quickly also he is out of mind.
+ - A lover of Jesus and of the truth can lift himself above himself in spirit.
+ - Therefore, a man ought to root himself so firmly in God that he will not need the consolations of men.
+ - He does much who loves God much, and he does much who does his deed well, and he does his deed well who does it rather for the common good than for his own will.
+ - Be Yourself -The man who is neither bent upon pleasing his fellows nor afraid of offending them will enjoy great peace.
+ - Two wings lift a person up from earthly concerns: Simplicity in intention, and Purity in feeling.
+ - Both above and below, without and within, which way so ever thou dost turn thee, everywhere thou shalt find the Cross; and everywhere of necessity thou must hold fast patience, if thou wilt have inward peace, and enjoy an everlasting crown.
+ - All men are frail; but thou shouldst reckon none so frail as thyself.
+ - The enemy is more easily overcome if he be not suffered to enter the door of our hearts, but be resisted without the gate at his first knock.
+ - For it is the grace of Christ, and not our own virtue, that gives us the power to overcome the flesh and the world.
+ - A sure way of retaining the grace of heaven is to disregard outward appearances, and diligently to cultivate such things as foster amendment of life and fervour of soul, rather than to cultivate those qualities that seem most popular.
+ - O Lord, self-renunciation is not the work of one day, nor children’s sport; yea, rather in this word is included all perfection.
+ - Restrain an inordinate desire for knowledge, in which is found much anxiety and deception. Learned men always wish to appear so, and desire recognition of their wisdom. But there are many matters, knowledge of which brings little or no advantage to the soul.
+ - Ah, Lord God, thou holy lover of my soul, when thou comest into my heart, all that is within me shall rejoice.
+ - He that avoideth not small faults, by little and little falleth into greater.
+ - Bodily exercises are to be done discreetly; not to be taken evenly and alike by all men.
+ - Whoever would fully and feelingly understand the words of Christ, must endeavor to conform his life wholly to the life of Christ.
+ - Few spirits are made better by the pain and languor of sickness; as few great pilgrims become eminent saints.
+ - Never be entirely idle; but either be reading, or writing, or praying or meditating or endeavoring something for the public good.
+ - God often gives in one brief moment that which He has for a long time denied.
+ - If you would endeavor, like men of courage, to stand in the battle, surely we would feel the favorable assistance of God from heaven. For he who give the us occasion to fight, to the end we may get the victory, is ready to succor those that fight manfully, and do trust in his grace.
+ - The measure of every man’s virtue is best revealed in time of adversity – adversity that does not weaken a man but rather shows what he is.
+ - For a small reward, a man will hurry away on a long journey; while for eternal life, many will hardly take a single step.
+ - We should have much more peace if we would not busy ourselves with the sayings and doings of others.
+ - Judge yourself and beware of passing judgement on others. In judging others we expend our energy to no purpose; we are often mistaken and easily sin. But if we judge ourselves our labour is always to our profit.
+ - Occasions of adversity best discover how great virtue or strength each one hath. For occasions do not make a man frail, but they show what he is.
+ - A humble knowledge of ourselves is a surer way to God than is the search for depth of learning.
+ - The more the flesh is wasted by affliction, so much more is the Spirit strengthened by inward grace.
+ - Love flies, runs, and rejoices; it is free and nothing can hold it back.
+ - Always keep a good distance between yourself and lying, quarreling, detracting, insulting and gossip. The person who can do that will some day learn to enjoy the silence.
+ - Love is active and sincere, courageous, patient, faithful, prudent and manly.
+ - Renounce all things, and thou shalt find all things; give up thy lust, and thou shalt find rest.
+ - He who loves with purity considers not the gift of the lover, but the love of the giver.
+ - May not be your peace in the mouth of the men; since no matter if they thing good or bad about you, you should not be a different man because of that.
+ - Endeavor to be always patient of the faults and imperfections of others; for thou hast many faults and imperfections of thine own that require forbearance. If thou art not able to make thyself that which thou wishest, how canst thou expect to mold another in conformity to thy will?
+ - And if thy heart be straight with God then every creature shall be to thee a mirror of life and a book of holy doctrine for there is no creature so little or so despised but that sheweth and representeth the goodness of God.
+ - Every man naturally desires knowledge; but what good is knowledge without fear of God? Indeed a humble rustic who serves God is better than a proud intellectual who neglects his soul to study the course of the stars.
+ - At the day of judgment we shall not be asked what we have read but what we have done.
+ - Be thankful for the smallest blessing, and you will be worthy to receive greater.
+ - Do not read to satisfy curiosity or to pass the time, but study such things as move your heart to devotion.
+ - My child, it will be better for you if you accept my decisions without complaint. Do not ask me to defend my actions or to explain why one person is favored and another seems slighted. The answers to these questions go far beyond your comprehension.
+ - Study, therefore, to withdraw the love of your soul from all things that are visible, and turn it to things that are invisible.
+ - The more spiritual a man desires to be, the more bitter does this present life become to him, because he perceives better and sees more clearly the defects of human corruption.
+ - Faith is required of thee, and a sincere life, not loftiness of intellect, nor deepness in the mysteries of God.
+ - It is vanity to desire a long life and to take no heed of a good life.
+ - Endeavor to be patient in bearing with the defects and infirmities of others, of what sort ’soever they be; for that thyself also has many failings which must be borned with by others.
+ - Praise adds nothing to your holiness, nor does blame take anything from it. You are what you are, and you cannot be said to be better than you are in God’s sight.
+ - Trust not to your feelings for whatever they might be now, they will quickly be changed towards some other thing.
+ - Of two evils, the lesser must always be chosen De duobus malis, minus est semper eligendum.
+ - Count not thyself to have found true peace, if thou hast felt no grief; nor that then all is well if thou hast no adversary; nor that this is perfect, if all things fall out according to thy desire.
+ - Love Him, and keep Him for thy Friend, who, when all go away, will not forsake thee, nor suffer thee to perish at the last.
+ - For they truly know their Lord in the breaking of bread, whose heart within them so vehemently burneth, whilst Thou, O blessed Jesus, dost walk and converse with them.
+ - A wise and good man will turn examples of all sorts to his own advantage. The good he will make his patterns, and strive to equal or excel them. The bad he will by all means avoid.
+ - All men desire peace, but very few desire those things that make for peace.
+ - Do not be influenced by the importance of the writer, and whether his learning be great or small, but let the love of pure truth draw you to read. Do not inquire, Who said this? but pay attention to what is said.
+ - What thou art, that thou art; that God knoweth thee to be and thou canst be said to be no greater.
+ - Blessed are the simple, for they shall have much peace.
+ - No one is qualified to converse in public except those contented to do without such conversation.
+ - Intelligence must follow faith, never precede it, and never destroy it.
+ - If you desire to know or learn anything to your advantage, then take delight in being unknown and unregarded. A true understanding and humble estimate of oneself is the highest and most valuable of all lessons.
+ - Know all and you will pardon all.
+ - Peace and happiness are what you covet, but these are only to be obtained by labor.
+ - Be assured that if you knew all, you would pardon all.
+ - Love feels no burden, thinks nothing of trouble, attempts what is above its strength, pleads no excuse of impossibility; for it thinks all things lawful for itself, and all things possible.
+ - I have often heard, that it is safer to hear and to take counsel, than to give it.
+ - It is better to feel repentance, than to be able to define it.
+ - In judging others a man laboreth in vain; he often erreth, and easily falleth into sin; but in judging and examining himself he always laboreth to good purpose.
+ - If thou hadst simplicity and purity, thou wouldst be able to comprehend all things without error, and behold them without danger. The pure heart safely pervades not only heaven, but hell.
+ - What thou art, that thou art.
+ - Don’t flatter the rich, or appear to willing before the great.
+ - We feel and weigh soon enough what we suffer from others: but how much others suffer from us, of this we take no heed.
+ - Wait for the Lord. Behave yourself manfully, and be of good courage. Do not be faithless, but stay in your place and do not turn back.
+ - A man that is well ordered in his soul needeth little the unkind demeanor of worldly people nor yet their proud behavior.
+ - It carries a burden which is no burden; it will not be kept back by anything low and mean; it desires to be free from all wordly affections, and not to be entangled by any outward prosperity, or by any adversity subdued.
+ - Thy peace shall be in much patience.
+ - Love longs to be free, a stranger to every worldly desire, lest its inner vision become dimmed, and lest worldly self-interest hinder it or ill-fortune cast it down.
+ - Simplicity reaches out after God; purity discovers and enjoys Him.
+ - Grant me prudently to avoid him that flatters me, and to endure patiently him that contradicts me.
+ - Forasmuch as many people study more to have knowledge than to live well therefore ofttimes they err and bring forth little fruit or none.
+ - Scruples, temptations, and fears, and cutting perplexities of the heart, are often the lot of the most excellent persons.
+ - If you wish to live in peace and harmony with others, you must learn to discipline yourself in many ways.
+ - If thou may not continually gather thyself together, do it sometime at least once a day, morning or evening.
+ - I can take credit for only two things: pride and sin.
+ - Thou art my glory and the exultation of y heart: thou art my hope and refuge in the day of my trouble.
+ - As iron put into the fire loseth its rust and becometh clearly red-hot, so he that wholly turneth himself unto God puts off all slothfulness, and is transformed into a new man.
+ - The better you understand yourself the less cause you will find to love yourself.
+ - Do not let your peace depend on the hearts of men; whatever they say about you, good or bad, you are not because of it another man, for as you are, you are.
+ - Some people are tempted most strongly at the beginning of their spiritual life, others near the end. Some are troubled all their lives. Still others receive only light temptation. Such things are decided by God, and we can trust his wisdom.
+ - In the morning fix thy good purpose; and at night examine thyself what thou hast done, how thou hast behaved thyself in word, deed, and thought.
+ - He does much who loves much.
+ - How seldom we weigh our neighbor in the same balance with ourselves.
+ - To take no account of oneself, but always to think well and highly of others is the highest wisdom and perfection.
+ - Sweet shall be your rest if your heart does not reproach you.
+ - Happy is the man who renounces everything which may bring a stain or burden upon his conscience.
+ - Oh, how quickly the world’s glory passes away.
+ - What difference does it make to you what someone else becomes, or says, or does? You do not need to answer for others, only for yourself.
+ - Do what lieth in thy power, and God will assist in thy good will.
+ - How should thy patience be crowned in heaven if none adversity should befall to thee in earth? If thou wilt suffer none adversity how mayest thou be the friend of Christ?
+ - The acknowledgment of our weakness is the first step in repairing our loss.
+ - A book has but one voice, but it does not instruct everyone alike.
+ - He that seeketh anything else but simply God and the salvation of his soul, will find nothing but trouble and sorrow.
+ - Whatever you do, do it with intelligence, and keep the end in view.
+ - What canst thou see elsewhere which thou canst not see here? Behold the heaven and the earth and all the elements; for of these are all things created.
+ - Learned arguments do not make a man holy and righteous, whereas a good life makes him dear to God.
+ - Thou wilt always rejoice in the evening if thou has spent the day profitably.
+ - The intention which is fixed on God as its only end will keep people steady in their purposes, and deliver them from being the joke and scorn of fortune.
+ - He who loveth God with all his heart feareth not death, nor punishment, nor judgment, nor hell, because perfect love giveth sure access to God. But he who still delighteth in sin, no marvel if he is afraid of death and judgment.
+ - Confidence is the illusion born of accidental success.
+ - Love makes everything that is heavy light.
+ - Our dependence upon God ought to be so entire and absolute that we should never think it necessary, in any kind of distress, to have recourse to human consolations.
+ - The only safe ruler is he who has learned to obey willingly.
+ - Seek not to know who said this or that, but take note of what has been said.
+ - First keep peace with yourself, then you can also bring peace to others.
+ - He that loveth, flieth, runneth, and rejoiceth. He is free, and cannot be held in. He giveth all for all, and hath all in all, because he resteth in one highest above all things, from whom all that is good flows and proceeds.
+ - Whoever strives to withdraw from obedience, withdraws from grace.
+ - Do not try to find a place free from temptations and troubles. Rather, seek a peace that endures even when you are beset by various temptations and tried by much adversity.
+ - Study to do another’s will rather than thine own. Choose ever to have less rather than more. Seek ever the lower place and to be subject to all; ever wish and pray that the will of God may be perfectly done in thee and in all. Behold such a man enters the bounds of peace and calm.
+ - God evaluates by this criterion: How much love you invest in what you do is more important than how you do. The one who loves much is actually the one who does much.
+ - When comfort is withdrawn, do not be cast down, but humbly and patiently await the visitation of God. He is able and powerful to give you more grace and more spiritual comfort than you first had.
+ - Love is watchful. Sleeping, it does not slumber. Wearied, it is not tired. Pressed, it is not straitened. Alarmed, it is not confused, but like a living flame, a burning torch, it forces its way upward and passes unharmed through every obstacle.
+ - Whoever puts his confidence in men or in any creature is very foolish.
+ - If your heart were sincere and upright, every creature would be unto you a looking-glass of life and a book of holy doctrine.
+ - Set not thyself to attain much rest, but much patience.
+ - Too many instances there are of daring men, who by presuming to sound the deep things of religion, have cavilled and argued themselves out of all religion.
+ - All is vanity but to love God and serve Him.
+ - Anyone who thinks hard work will never hurt you has never had to pay to have it done. Jesus now has many lovers of his Heavenly Kingdom, but few bearers of his cross.
+ - The glory of the good is in their consciences, and not in the tongues of men.
+ - Grace is the mastery of truth, the teacher of discipline, the light of the heart, the comforter of affliction, the banisher of sorrow, the nurse of devotion.
+ - In Jesus and for Him, enemies and friends alike are to be loved.
+ - Many deceive themselves, imagining they’ll find happiness in change.
+ - It is thy duty often times to do what thou wouldst not; thy duty too, to leave undone that thou wouldst do.
+ - Whatsoever is done in charity, however small and of no reputation it be, bringeth forth good fruit.
+ - It is better to be affected with a true penitent sorrow for sin than to be able to resolve the most difficult cases about it.
+ - Trust not to friends and kindred, neither do thou put off the care of thy soul’s welfare til hereafter; for men will sooner forget thee than thou art aware of.
+ - Our own opinion of ourselves should be lower than that formed by others, for we have a better chance at our imperfections.
+ - Wherever you go, you will always bear yourself about with you, and so you will always find yourself.
+ - Old custom is hard to break and scarce any man will be led otherwise than seemeth good unto himself.
+ - There is no man in this world without some manner of tribulation or anguish, though he be king or pope.
+ - It thou seek rest in this life, how wilt thou then attain to the everlasting rest? Dispose not thyself for much rest, but for great patience. Seek true peace – not in earth, but in heaven; not in men, nor in any other creature, but in God alone.
+ - If you bear the cross unwillingly, you make it a burden, and load yourself more heavily; but you must bear it.
+ - Would to God that we might spend a single day really well!
+ - Permit no hour to go by without it due improvement.
+ - A man is hindered and distracted in proportion as he draws outward things to himself.
+ - It is easier not to speak a word at all than to speak more words than we should.
+ - Of what use is a long life, if we amend so little? Alas, a long life often adds to our sins rather than to our virtue!
+ - Carefully avoid in yourself those things which distrub you in others.
+ - Dispose thyself to patience rather than to comfort, and to the bearing of the cross rather than to gladness.
+ - It is futile to wish for a long life, and then to give so little care to living well.
+ - At the least bear patiently, if thou canst not joyfully.
+ - If you cannot mould yourself entirely as you would wish, how can you expect other people to be entirely to your liking?
+ - How sweet it is to love, and to be dissolved, and as it were to bathe myself in thy love.
+ - By two wings a man is lifted up from things earthly: by simplicity and purity.
+ - If thou art willing to suffer no adversity, how wilt thou be the friend of Christ?
+ - Remember, your prerogative is to govern, and not to serve the things of this world.
+ - If you cast away one cross, you will certainly find another, and perhaps a heavier.
+ - Caution is crediting, and reserve in speaking, and in revealing one’s self to but very few, are the best securities both of a good understanding with the world, and of the inward peace of our own minds.
+ - Let nothing disturb thee, Let nothing affright thee; All passeth away: God only shall stay. Patience wins all: Who hath God, needeth nothing; For God is his All.
+ - All His glory and beauty come from within, and there He delights to dwell, His visits there are frequent, His conversation sweet, His comforts refreshing; and His peace passing all understanding.
+ - What most of all hinders heavenly consolation is that you are too slow in turning yourself to prayer.
+ - Gladly we desire to make other men perfect, but we will not amend our own fault.
+ - Such as every man is inwardly so he judgeth outwardly.
+ - Love feels no burden, regards not labors, strives toward more than it attains, argues not of impossibility, since it believes that it may and can do all things.
+
+254 quotes

@@ -1,0 +1,61 @@
+ - Employees are your most valuable assets. They are the heart and guts of a company. This doesn’t mean that from time to time, you aren’t going to do what is good for the company.
+ - The role of leadership is to transform the complex situation into small pieces and prioritize them.
+ - Electric cars are not going to take the market by storm, but it’s going to be a gradual improvement.
+ - The time is right for electric cars – in fact the time is critical.
+ - Any job very well done that has been carried out by a person who is fully dedicated is always a source of inspiration.
+ - Electric cars are going to be very important for urban transportation.
+ - If you have not been a villain at a certain point in time, you will never be a hero. And the day you are a hero, you may become a villain the next day.
+ - You’ll never convince me there is a hopeless situation or there is any finality in any success or any failure.
+ - Being a good leader today doesn’t mean you’ll be a good leader 10 years from now. You have to adapt to the times.
+ - We don’t want to be something for everybody, we want to be everything for some people.
+ - When you start thinking about leaving, choose your moment carefully. Go out while you’re still on top, not when you’re no longer in control of events.
+ - I think that the best training a top manager can be engaged in is management by example.
+ - Every single time you make a merger, somebody is losing his identity. And saying something different is just rubbish.
+ - Being in a multicultural environment in childhood is going to give you intuition, reflexes and instincts. You may acquire basic responsiveness later on, but it’s never going to be as spontaneous as when you have been bathing in this environment during childhood.
+ - I think the new generation is much more demanding about respect for the environment than we have ever imagined.
+ - Incentives are not strategy, they are tactics. Defensive measures.
+ - I have my family, my children – I have a lot of outside activities.
+ - Good is somebody who delivered and allowed the company to overcome obstacles, without leaving a profound impact on its culture. Great is somebody who leads his company to achievements and performance and value that nobody was expecting it had.
+ - Commitment. This is my favorite word because in some way, people who are committed are always much more interesting and much more reliable, and much more, I would say, deep than people who are not.
+ - Don’t believe what I say. Believe what I do.
+ - Business is tough; you need tough guys.
+ - You have to listen to the people who have a negative opinion as well as those who have positive opinion. Just to make sure that you are blending all these opinions in your mind before a decision is made.
+ - You don’t build your character by doing what everybody else is doing.
+ - Our objective is to position Nissan in the top rank of the car industry. Until we get there, there will be no rest.
+ - The Japanese people are usually very prudent, even when they are convinced change is necessary.
+ - The low price of oil is a headwind to investments in alternative energy technologies, but it will not stop them.
+ - China will be the answer to Japan’s problems.
+ - At the age of 20 I bought a used Fiat 127. This was the only one I could afford!
+ - Talking about stepping down in five years is frankly not a topic of particular actuality now.
+ - You don’t implement change easily in Japan unless you explain very clearly why you need to do this change, how you’re going to do this change and what’s going to be the outcome of this change. If you offset or you forget to explain one of these three steps you’re not going to do it.
+ - As the CEO, I have to take care of the short term, mid term and the long term.
+ - The biggest enemy of management is indifference. It’s when people don’t give a damn.
+ - Cars have a large engine in the front and you have a gearbox, which is cumbersome. Electric cars don’t have this problem. The motor is much smaller, the battery is below you. This will allow you to play with different shapes.
+ - Profit is the most global aspect of a business, and it is cross-functional.
+ - Is Europe going to be breaking? I don’t think so. I think the euro will stay. I think at the end of the day Europeans will find the solutions in order to hold Europe together.
+ - I don’t believe in hostile moves. I don’t believe they carry any value.
+ - Synergies are not only about cost reduction. Synergies can be access to markets, exchange of products, avoiding overlaps, exchange of best practices.
+ - India is definitely one of the markets where we can expect growth and a potential to do well.
+ - I always loved cars. I don’t know why, I can’t explain it to you. It has always been with me.
+ - When your results are good, you are obviously going to have a lot of press. And when you start to falter a little bit, you are going to have some criticism, and there is nothing abnormal in that.
+ - What I worry about is not just Nissan, but Japanese manufacturers losing motivation to maintain production in Japan. The high yen is definitely a headwind.
+ - If guys try to make a bigger company for the sake of size, they don’t create value in most cases.
+ - We are facing extreme volatility.
+ - More and more, in any company, managers are dealing with different cultures. Companies are going global, but the teams are being divided and scattered all over the planet.
+ - To face deflation, you have to have people accepting it and not reacting to it.
+ - When you want to turn around a company, you want to make sure that the solution is coming from inside.
+ - It would be easier to make money in other sectors, but since I was a kid, I liked cars.
+ - I think we’re going to have some difficulty in front of us. I have absolutely no doubt the next three, four years Europe are going to be at best stagnation. We are preparing for tough times.
+ - When the CEO makes a decision, people don’t come back on it.
+ - As an individual, not as the boss of a company, I am very interested in motor racing.
+ - People will always challenge you on an idea as long as it has not been concretized by somebody else.
+ - I approve designs not because I think I am more gifted or somebody who can see ahead three or four years from now, but just to make sure that the design is a logical, rational decision, taken after analyzing pros and cons.
+ - The most interesting information I can have about a competitor is the cost.
+ - I would say a good leader brings results. A great leader writes a new story, it’s different. Obviously a new story has to incorporate a lot of results. But a story is a chapter in the life of a company that people want to write and want to remember.
+ - In most companies people make a specific contribution to the company in their function. But it is not expressed in terms of profit, only in terms of performing their function better.
+ - Regulations about environments are going to get tougher and tougher.
+ - Design is important, it’s an important dimension in the car. It’s not the only one.
+ - We are not making a capital investment into GM as the first element or condition.
+ - I mean, when you’re a pioneer and you are at the forefront of an offensive, you’re going to be the most optimistic person.
+
+59 quotes

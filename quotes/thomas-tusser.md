@@ -1,0 +1,24 @@
+ - At Christmas play and make good cheer, for Christmas comes but once a year.
+ - Sweet April showers do spring May flowers.
+ - Seek home for rest, for home is best.
+ - Look ere thou leap, see ere thou go.
+ - What a greater crime. Than loss of time.
+ - A fool and his money be soon at debate.
+ - Who goeth a borrowing. Goeth a sorrowing.
+ - February, fill the dyke with what thou dost like.
+ - A fool and his money are soon parted. – Five Hundred Points of Good Husbandry.
+ - Dry August and warm, Doth harvest no harm.
+ - Fear God, and offend not the Prince nor his laws, and keep thyself out of the magistrate’s claws.
+ - Each man must for himself alone decide what is right and what is wrong, which course is patriotic and which isn’t. You cannot shirk this and be a man.
+ - In March and in April from morning till night In sowing and seeding good housewives delight.
+ - God sendeth and giveth both mouth and the meat.
+ - Ill husbandry braggeth To go with the best: Good husbandry baggeth Up gold in his chest.
+ - Time tries the troth in everything.
+ - As order is heavenly, where quiet is had, so error is hell, or a mischief as bad.
+ - Make hunger thy sauce, as a medicine for health.
+ - If a garden require it, now trench it ye may, one trench not a yard, from another go lay; Which being well filled with muck by and by, to cover with mould, for a season to lie.
+ - Tide flowing is feared, for many a thing, Great danger to such as be sick, it doth bring; Sea ebb, by long ebbing, some respite doth give, And sendeth good comfort, to such as shall live.
+ - Ill husbandry lieth In prison for debt: Good husbandry spieth Where profit get.
+ - For the first fourteen years for a rod they do while for the next as a pearl in the world they do shine. For the next trim beauty beginneth to swerve. For the next matrons or drudges they serve. For the next doth crave a staff for a stay. For the next a bier to fetch them away.
+
+22 quotes

@@ -1,0 +1,258 @@
+ - You never change things by fighting the existing reality. To change something, build a new model that makes the existing model obsolete.
+ - There is nothing in a caterpillar that tells you it’s going to be a butterfly.
+ - The more we learn the more we realize how little we know.
+ - Love is metaphysical gravity.
+ - Integrity is the essence of everything successful.
+ - You can’t change the way people think, all you can do is give them a tool, the use of which will change their thinking.
+ - You either make sense or you make money.
+ - In order to change an existing paradigm you do not struggle to try and change the problematic model. You create a new model and make the old one obsolete.
+ - To do more and more with less and less until eventually you can do everything with nothing.
+ - There is no such thing as a failed experiment, only experiments with unexpected outcomes.
+ - A fool with a tool still remains a fool.
+ - You can never learn less; you can only learn more. The reason I know so much is because I have made so many mistakes.
+ - If we do more with less, our response will be adequate to take care of everybody.
+ - All children are born geniuses; 9,999 out of every 10,000 are swiftly, inadvertently degeniusized by grownups.
+ - I live on Earth at present, and I don’t know what I am. I know that I am not a category. I am not a thing – a noun. I seem to be a verb, an evolutionary process – an integral function of the universe.
+ - Don’t fight forces, use them.
+ - Never forget that you are one of a kind. Never forget that if there weren’t any need for you in all your uniqueness to be on this earth, you wouldn’t be here in the first place.
+ - You can rest assured that if you devote your time and attention to the highest advantage of others, the Universe will support you, always and only in the nick of time.
+ - People never leave a sinking ship until they see the lights of another ship approaching.
+ - Pollution is nothing but the resources we are not harvesting. We allow them to disperse because we’ve been ignorant of their value.
+ - Wealth is a measure of a person’s ability to survive so many days forward.
+ - If you change the environment, you change the people.
+ - If you want to teach people a new way of thinking, don’t bother trying to teach them. Instead, give them a tool, the use of which will lead to new ways of thinking.
+ - Everyone has the perfect gift to give the world-and if each of us is freed up to give our unique gift, the world will be in total harmony.
+ - There is no energy crisis, only a crisis of ignorance.
+ - You don’t belong to you. You belong to the Universe and you’re here to serve.
+ - The opposite of nature is impossible.
+ - We are called to be architects of the future, not its victims.
+ - I call intuition cosmic fishing. You feel a nibble, then you’ve got to hook the fish.
+ - I have spent most of my life unlearning things that were proved not to be true.
+ - Nature is trying very hard to make us succeed, but nature does not depend on us. We are not the only experiment.
+ - When I am working on a problem, I never think about beauty but when I have finished, if the solution is not beautiful, I know it is wrong.
+ - Real wealth is ideas plus energy.
+ - The purpose of our lives is to add value to the people of this generation and those that follow.
+ - Controlled time is our true wealth.
+ - It is not for me to change you. The question is, how can I be of service to you without diminishing your degrees of freedom?
+ - A designer is an emerging synthesis of artist, inventor, mechanic, objective economist and evolutionary strategist.
+ - Mistakes are great, the more I make the smarter I get.
+ - Geniuses are just people who had good mothers.
+ - The Universe consists of non-simultaneously apprehended events.
+ - You can make money or you can make sense. The two are mutually exclusive.
+ - You can never learn less; you can only learn more.
+ - Sharing is having more.
+ - I see God in the instruments and mechanisms that work reliably.
+ - The dark ages still reign over all humanity, and the depth and persistence of this domination are only now becoming clear. This Dark Ages prison has no steel bars, chains, or locks. Instead, it is locked by misorientation and built of misinformation.
+ - God is a verb, not a noun.
+ - It is the integrity of each individual human that is in final examination. On personal integrity hangs humanity’s fate.
+ - Synergy means behavior of whole systems unpredicted by the behavior of their parts.
+ - We must progress to the stage of doing all the right things for all the right reasons instead of doing all the right things for all the wrong reasons.
+ - Our beds are empty two-thirds of the time. Our living rooms are empty seven-eighths of the time. Our office buildings are empty one-half of the time. It’s time we gave this some thought.
+ - The reward for being a good problem solver is to be heaped with more and more difficult problems to solve.
+ - The future is a choice between Utopia and oblivion.
+ - Humanity is acquiring all the right technology for all the wrong reasons.
+ - All children are born geniuses, and we spend the first six years of their lives degeniusing them.
+ - I’m not a genius. I’m just a tremendous bundle of experience.
+ - Everything you’ve learned in school as “obvious” becomes less and less obvious as you begin to study the universe. For example, there are no solids in the universe. There’s not even a suggestion of a solid. There are no absolute continuums. There are no surfaces. There are no straight lines.
+ - One can study a caterpillar forever and never be able to predict a butterfly.
+ - Seeing-is-believing is a blind spot in man’s vision.
+ - Everyone is born a genius, but the process of living de-geniuses them.
+ - How often I found where I should be going only by setting out for somewhere else.
+ - Humanity has the option to become successful on our planet if we reorient world production away from weaponry – from killingry to livingry. Can we convince humanity in time?
+ - You can’t learn less.
+ - The minute you begin to do what you really want to do, it’s really a different kind of life.
+ - I’m not trying to copy Nature, I’m trying to find the principles she’s using.
+ - The further art advances the closer it approaches science, the further science advances the closer it approaches art.
+ - The highest of generalizations is the synergetic integration of truth and love.
+ - Integrity is the courage and self-discipline to cooperate and initiate according to the Divine, which you know in your heart as Truth.
+ - Nature is a totally efficient, self-regenerati ng system. IF we discover the laws that govern this system and live synergistically within them, sustainability will follow and humankind will be a success.
+ - Those who play with the devil’s toys will be brought by degrees to wield his sword.
+ - I have great hope for tomorrow. My hope lies in three things-truth, youth, and love.
+ - There is only one revolution tolerable to all men, all societies, all political systems: Revolution by design and invention.
+ - Love is omni-inclusive, progressively exquisite, understanding and compassionately attuned to other than self.
+ - I am deeply impressed with the designer of the universe; I am confident I couldnt have done anywhere near such a good job.
+ - The nearest each of us can come to God is by loving the truth.
+ - Physics has found no straight lines. Instead, the physical universe consists of only waves undulating back and forth allowing for corrections and balance.
+ - Life is the spirit incarnate in time.
+ - To ask a politician to lead us is to ask the tail of a dog to lead the dog.
+ - How do we make the world work?
+ - I am a passenger on the spaceship Earth.
+ - Whenever I draw a circle, I immediately want to step out of it.
+ - We live in a decaying age. Young people no longer respect their parents. They are rude and impatient. They frequently inhabit taverns and have no self control.
+ - God is the great comprehensive a priori integrity of Universe within which human beings find themselves to be operating.
+ - We are not going to be able to operate our Spaceship Earth successfully nor for much longer unless we see it as a whole spaceship and our fate as common. It has to be everybody or nobody.
+ - Either war is obsolete, or men are.
+ - Nature does have manure and she does have roots as well as blossoms, and you can’t hate the manure and blame the roots for not being blossoms.
+ - If humanity does not opt for integrity we are through completely. It is absolutely touch and go. Each one of us could make the difference.
+ - Never show unfinished work.
+ - Conceptuality is subjective; realization is objective.
+ - The explicable requires the inexplicable. Experience requires the nonexperienceable. The obvious requires the mystical.
+ - Quite clearly, our task is predominantly metaphysical, for it is how to get all of humanity to educate itself swiftly enough to generate spontaneous social behaviors that will avoid extinction.
+ - Man is going to be displaced altogether as a specialist by the computer. Man himself is being forced to reestablish, employ, and enjoy his innate ’comprehensivity.
+ - On personal integrity hangs humanity’s fate.
+ - Right now I am a passenger on space vehicle Earth zooming about the Sun at 60,000 miles per hour somewhere in the solar system.
+ - Above all, I am motivated by the most mysterious drive we ever experience -that of love – I don’t think there’s any influence on my life that compares with love.
+ - Television is the third parent.
+ - None of the world’s problems will have a solution until the world’s individuals become thoroughly self-educated.
+ - Coping with the totality of Spaceship Earth and universe is ahead for all of us.
+ - I look for what needs to be done.
+ - All of humanity is in peril of extinction if each one of us does not dare, now and henceforth, always to tell only the truth, and all the truth, and to do so promptly -right now.
+ - The end move in politics is always to pick up a gun.
+ - Whatever humans have learned had to be learned as a consequence only of trial and error experience. Humans have learned only through mistakes.
+ - Our power is in our ability to decide.
+ - I just invent, then wait until man comes around to needing what I’ve invented.
+ - Humanity is now experiencing history’s most difficult evolutionary transformation.
+ - Doing the right things for the wrong reasons is typical of humanity. Precession – not conscious planning – provides a productive outcome for misguided political and military campaigns.
+ - Racism, pollution and the rest of it are themselves very close to extinction.
+ - Most of my advances were by mistake. You uncover what is when you get rid of what isn’t.
+ - The wave is not the water. The water merely told us about the wave moving by.
+ - The true business of people should be to go back to school and think about whatever it was they were thinking about before somebody came along and told them they had to earn a living.
+ - Universe to each must be All that is, including me. Environment in turn must be All that is, excepting me.
+ - Dolphins may well be carrying information as well as functions critical to the regeneration of life upon our planet.
+ - Observation of my life to date shows that the larger the number for whom I work, the more positively effective I become. Thus, it is obvious that if I work always and only for all humanity, I will be optimally effective.
+ - The world is now too dangerous for anything less than utopia.
+ - Pollution is nothing but resources we’re not harvesting.
+ - Only the free-wheeling artist-explorer, non-academic, scientist-philosopher, mechanic, economist-poet who has never waited for patron-starting and accrediting of his co-ordinate capabilities holds the prime initiative today.
+ - We are most probably here for local information-gathering and local-Universe problem-solving in support of the integrity of eternally regenerative Universe.
+ - There is no such thing as genius, some children are just less damaged than others.
+ - If you are the master be sometimes blind, if you are the servant be sometimes deaf.
+ - Topology is the science of fundamental pattern and structural relationships of event constellations.
+ - You never change people by fighting their existing reality.
+ - Wealth is the product of energy times intelligence: energy turned into artifacts that advantage human life.
+ - The earth is like a spaceship that didn’t come with an operating manual.
+ - The one common experience of all humanity is the challenge of problems.
+ - Let architects sing of aesthetics that bring Rich clients in hordes to their knees; Just give me a home, in a great circle dome Where stresses and strains are at ease.
+ - Either man is obsolete or war is. War is the ultimate tool of politics. Political leaders look out only for their own side. Politicians are always realistically maneuvering for the next election. They are obsolete as fundamental problem-solvers.
+ - Technology paces industry, but there’s a long lag in the process.
+ - Synergy is the only word in our language that means behavior of whole systems unpredicted by the separately observed behaviors of any of the system’s separate parts or any subassembly of the system’s parts.
+ - The vector equilibrium is the zero point for happenings or nonhappenings: it is the empty theater and empty circus and empty universe ready to accommodate any act and any audience.
+ - God, to me, it seems, is a verb not a noun, proper or improper.
+ - Whether we are able to be a complete success or failure is in such critical balance that every smallest human test of integrity every smallest moment-to-moment decision tips the scales affirmatively or negatively.
+ - Always tell only the truth, and all the truth, and do so promptly – right now.
+ - Every time man makes a new experiment he always learns more. He cannot learn less.
+ - Initiative can neither be created nor delegated. It can only spring from the self-determining individual, who decides that the wisdom of others is not always better than his own.
+ - We have reached the point where we are now possessed of sufficient information for each individual human to dare to exercise the option to “make it” rather than having to depend on the decisions of an educated elite.
+ - Man is designed to be a comprehensivist .
+ - We must do away with the absolutely specious notion that everybody has to earn a living.
+ - Education by choice, with its marvelous motivating psychology of desire for truth, will make life ever cleaner and happier, more rhythmical and artistic.
+ - Now there is one outstanding important fact regarding spaceship earth, and that is that no instruction book came with it.
+ - When individuals join in a cooperative venture, the power generated far exceeds what they could have accomplished acting individually.
+ - The more for whom we strive to serve, the greater effectiveness we will have.
+ - Ideas are easy to come by; reduction to practice is an arduous but inspirationally rewarding matter.
+ - Dictators never invent their own opportunities.
+ - It is new design by architects versus world revolution by political leadership.
+ - To expose a 4.2 Trillion dollar ripoff of the American people by the stockholders of the 1000 largest corporations over the last one-hundred years will be a tall order of business.
+ - I am convinced that creativity is a priori to the integrity of the universe and that life is regenerative and conformity meaningless.
+ - No man can prove upon awakening that he is the man who he thinks went to bed the night before, or that anything that he recollects is anything other than a convincing dream.
+ - Unchallenged, opinions became respected precedent then exceptionless concepts and sometimes even civil and academically accepted social law.
+ - Specialization is in fact only a fancy form of slavery wherein the ‘expert’ is fooled into accepting a slavery by making him feel that he in turn is a socially and culturally preferred-ergo, highly secure-lifelong position.
+ - Does humanity have a chance to survive lastingly and successfully on planet Earth, and if so, how?
+ - I am convinced all of humanity is born with more gifts than we know. Most are born geniuses and just get de-geniused rapidly.
+ - Everything you’ve learned in school as “obvious” becomes less and less obvious as you begin to study the universe.
+ - For man to go from less than 1% haves to 40%, living at high standard – despite decreasing resources – cannot be explained by anything other than by doing more than less.
+ - There is something patently insane about all the typewriters sleeping with all the beautiful plumbing in the beautiful office buildings -and all the people sleeping in the slums.
+ - Don’t change the man. Change his environment.
+ - If I ran a school, I’d give the average grade to the ones who gave me all the right answers, for being good parrots. I’d give the top grades to those who made a lot of mistakes and told me about them, and then told me what they learned from them.
+ - There are no solids. There are no things. There are only interfering and non-interfering patterns operative in pure principle, and principles are eternal.
+ - A problem adequately stated is a problem well on its way to being solved.
+ - Bite your tongue. Get a cinder in your eye. When you feel good, you feel nothing.
+ - People should think things out fresh and not just accept conventional terms and the conventional way of doing things.
+ - We are powerfully imprisoned in these Dark Ages simply by the terms in which we have been conditioned to think.
+ - My ideas have undergone a process of emergence by emergency. When they are needed badly enough, they are accepted.
+ - How much does your building weigh? A question often used to challenge architects to consider how efficiently materials were used for the space enclosed.
+ - Universe is the aggregate of all humanity’s consciously apprehended and communicated nonsimultaneous and only partially overlapping experiences.
+ - Human beings were given a left foot and a right foot to make a mistake first to the left, then to the right, left again and repeat.
+ - Unity is plural and, at a minimum, is two.
+ - I’m utterly convinced that we are all here for one another and that every experience that everyone is having is relevant. It all counts. The Universe is so extraordinarily well designed that it needs all those experiences.
+ - All of humanity now has the option to “make it” successfully and sustainably, by virtue of our having minds, discovering principles and being able to employ these principles to do more with less.
+ - Our little Spaceship Earth is only eight thousand miles in diameter, which is almost a negligible dimension in the great vastness of space.
+ - A pattern has an integrity independent of the medium by virtue of which you have received the information that it exists.
+ - Universe is synergetic. Life is synergetic.
+ - Mind is the antithesis of reflex, and only mind could discover mind.
+ - Selfishness is unnecessary. War is obsolete.
+ - The question of integrity will get finer and finer and more delicate and more beautiful.
+ - Rashness is the faithful, but unhappy parent of misfortune.
+ - Specialization breeds biases that ultimately aggregate as international and ideological discord, which, in turn, leads to war.
+ - You take the senses away, and there is no consciousness. Consciousness comes from experience.
+ - It is well known that of every strong woman they say she has a masculine mind.
+ - By the time you are 88 years old, you “have consumed 300 tons of food, air and water.”
+ - Relativity is inherently convergent, though convergent toward a plurality of centers of abstract truths.
+ - There is room enough indoors in New York City for the whole 1963 world’s population to enter, with room enough inside for all hands to dance the twist in average nightclub proximity.
+ - Pollution is merely a resource that isn’t being used properly.
+ - It is essential that anyone reading this book know at the outset that the author is apolitical. I was convinced in 1927 that humanity’s most fundamental survival problems could never be solved by politics.
+ - When I’m working on a problem, I never think about beauty. I think only how to solve the problem.
+ - The individual can take initiatives without anybody’s permission. Only individuals can think. Only the individual disregards his fears and commits himself exclusively to reforming the human environment.
+ - Tombs are the clothes of the dead and a grave is a plain suit; while an expensive monument is one with embroidery.
+ - As long as one human being is hungry, the entire human race is hungry.
+ - Thinking is a momentary dismissal of irrelevancies.
+ - If man chooses oblivion, he can go right on leaving his fate to his political leaders. If he chooses Utopia, he must initiate an enormous education program – immediately, if not sooner.
+ - Everything can be linked together in some fashion, in either a physical, psychological, or symbolic manner.
+ - We are prisoners of our own metaphors, metaphorically speaking...
+ - Every child has an enormous drive to demonstrate competence.
+ - The assumption is that the inevitability of a solution’s realization is inherent in the interaction of human intellect and the constantly transformative evolution of physical universe.
+ - A proverb is much matter distilled into few words.
+ - History’s political and economic power structures have always abhorred ‘idle people’ as potential troublemakers. Yet nature never abhors seemingly idle trees, grass, snails, coral reefs, and clouds in the sky.
+ - I’m not trying to counsel any of you to do anything really special except dare to think. And to dare to go with the truth. And to dare to really love completely.
+ - Great nations are simply the operating fronts of behind-the-scenes, vastly ambitious individuals who had become so effectively powerful because of their ability to remain invisible while operating behind the national scenery.
+ - The pyramids, attached with age, have forgotten the names of their founders.
+ - The impossible happens.
+ - Faith is much better than belief. Belief is when someone else does the thinking.
+ - War is the ultimate tool of politics.
+ - In order for a world-around democracy to prosper, world society must learn how to prosper.
+ - Truth is the progressive diminution of residual error.
+ - Human beings are the only creatures on the planet that tell time and think they have to earn a living.
+ - Ninety-nine per cent of who you are is invisible and untouchable.
+ - Each one of us has something to contribute. This really depends on each one doing their own thinking, but not following any kind of rule...
+ - I would say, then, that you are faced with a future in which education is going to be number one amongst the great world industries.
+ - Don’t attempt to reform man. An adequately organized environment will permit humanity’s original, innate capabilities to become successful.
+ - We should stop kidding ourselves. We should let go of things that aren’t true. It’s always better with the truth.
+ - There will come a time when the proper education of children, by a glorified system of spontaneous education of choice, similar to the Montessori System, will be made possible.
+ - By 2000, politics will simply fade away. We will not see any political parties.
+ - Everyone is born a genius.
+ - I look for what needs to be done. After all, that’s how the universe designs itself.
+ - Gold and silver from the dead turn often into lead.
+ - All human advances occur in the outlaw area.
+ - A new, self-employed architect scientist is the one in all the world who may accelerate realization of a high-standard survival for all, as now completely practical within the scope of available technology.
+ - With our minds alone we can discover those principles we need to employ to convert all humanity to success in a new, harmonious relationship with the universe.
+ - A problem adequately stated is a problem solved theoretically and immediately, and therefore subsequently to be solved, realistically.
+ - What humans have spontaneously identified as good and bad – or as positive and negative – are evolutionary complementations in need of more accurate identifications.
+ - I do not look upon human beings as good or bad.
+ - Humans have always unknowingly affected all Universe by every act and thought they articulate or even consider.
+ - Ninety-nine percent of humanity does not know that we have the option to “make it” economically on this planet and in the Universe. We do.
+ - Everything we see is inside our own heads.
+ - If we design the environment properly, it will permit child and man to develop safely and to behave logically.
+ - Dwell not too long upon sports: for as they refresh a man that is weary, so they weary a man that is refreshed.
+ - Out of my general world-pattern-trend studies there now comes strong evidence that nothing is going to be quite so surprising and abrupt in the future history of man as the forward evolution in the educational process.
+ - It seems that truth is progressive approximation in which the relative fraction of our spontaneously tolerated residual error constantly diminishes.
+ - It is a fact today that one in ten thousand of us can make a technological breakthrough capable of supporting all the rest.
+ - We will always have war until there is enough of every essential to support all lives everywhere around earth.
+ - I say that radiation is inherently disintegrative: it comes apart. Gravity is inherently integrative: it pulls together. And to me, there’s a good possibility that love is what I’d call metaphysical gravity. It really holds everything together.
+ - One of humanity’s prime drives is to understand and be understood. All other living creatures are designed for highly specialized tasks. Man seems unique as the comprehensive comprehender and co-ordinator of local universe affairs.
+ - Don’t try to make me consistent. I am learning all the time.
+ - Brain deals exclusively with the physical, and mind exclusively with the metaphysical.
+ - For at least 2,000,000 years men have been reproducing and multiplying on a little automated spaceship called earth.
+ - You can’t better the world by simply talking to it. Philosophy to be effective must be mechanically applied.
+ - Search others for their virtue, and yourself for your vices.
+ - I must reorganize the environment of man by which then greater numbers of men can prosper.
+ - Parents are usually more careful to bestow knowledge on their children rather than virtue, the art of speaking well rather than doing well; but their manners should be of the greatest concern.
+ - It is essential to release humanity from the false fixations of yesterday which seem now to bind it to a rationale of action leading only to extinction.
+ - Consisting mostly of recirculating scrapped metals, 80% of all the metals that have ever been mined are still at work.
+ - There is no joy equal to that of being able to work for all humanity and doing what you’re doing well.
+ - American labor will realize that its function is not to increase jobs, but to multiply the wealth and to expand the numbers benefited by the wealth at the swiftest possible rate.
+ - We as economic society are going to have to pay our whole population to go to school and pay it to stay at school.
+ - There is an inherently minimum set of essential concepts and current information, cognizance of which could lead to our operating our planet Earth to the lasting satisfaction and health of all humanity.
+ - What usually happens in the educational process is that the faculties are dulled, overloaded, stuffed and paralyzed so that by the time most people are mature they have lost their innate capabilities.
+ - Architects, if they are really to be comprehensive, must assume the enormous task of thinking in terms always disciplined to the scale of the total world pattern of needs, its resource flows, its recirculatory and regenerative processes.
+ - Man knows so much and does so little.
+ - Nature is all that we think we know plus all that we don’t know whether or not we know that we don’t know it.
+ - Are you spontaneously enthusiastic about everyone having everything you can have?
+ - It is one of our most exciting discoveries that local discovery leads to a complex of further discoveries.
+ - Only our minds are able to discover the generalized principles operating without exception in each and every special-experience case which if detected and mastered will give knowledgeable advantage in all instances.
+ - Havenotness is caused by society’s failure to design and produce the right tools and goods. Money alone is not the panacea.
+ - Our brains deal exclusively with special-case experiences.
+ - The self-commissioned architect is the obviously exclusive potential – for as at present used, or designed, the world’s resources are serving only forty-four per cent of humanity.
+ - All sports are time control demonstrations...
+ - Degrees of accuracy are only degrees of refinement and magnitude in no way affects the fundamental reliability, which refers, as directional or angular sense, toward centralized truths. Truth is a relationship.
+ - Dear reader, traditional human power structures and their reign of darkness are about to be rendered obsolete.
+
+256 quotes

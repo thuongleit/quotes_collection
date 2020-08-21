@@ -1,0 +1,30 @@
+ - I love sport because I love life, and sport is one of the basic joys of life.
+ - Translation is like a woman. If it is beautiful, it is not faithful. If it is faithful, it is most certainly not beautiful.
+ - Sorrow happens, hardship happens, the hell with it, who never knew the price of happiness, will not be happy.
+ - Be equal to your talent, not your age. At times let the gap between them be embarrassing.
+ - Give me a mystery – just a plain and simple one – a mystery which is diffidence and silence, a slim little bare-foot mystery: give me a mystery – just one!
+ - Poetry is like a bird, it ignores all frontiers.
+ - Only when the sense of the pain of others begins does man begin.
+ - One day posterity will remember these strange times, when ordinary common honesty was called courage.
+ - Justice is like a train that is nearly always late.
+ - Life is a rainbow which also includes black.
+ - No people are uninteresting. Their fate is like the chronicles of planets. Nothing in them is not particular, and planet is dissimilar from planet.
+ - Here we have some people who call themselves Christians and they forget Jesus Christ was a Jew. Something like anti-Semitism is an artificial way of avoiding responsibility. You blame the problems in your country on someone else, on some group.
+ - Envy is an insult to oneself.
+ - All values in this world are more or less questionable, but the most important thing in life is human kindness.
+ - A poet’s autobiography is his poetry. Anything else is just a footnote.
+ - Why is it that right-wing bastards always stand shoulder to shoulder in solidarity, while liberals fall out among themselves?
+ - There is no need to fear the strong. All one needs is to know the method of overcoming them. There is a special jujitsu for every strong man.
+ - In Russia all tyrants believe poets to be their worst enemies.
+ - He who is conceived in a cage, yearns for the cage.
+ - Time has a way of demonstrating that the most stubborn are the most intelligent.
+ - Literature has to serve as a moral control of politics.
+ - In general, in poetry and literature, I am among those people who believe that too much is indispensable.
+ - True sport is always a duel, a duel with nature, with one’s own fear, with one’s own fatigue, a duel in which the body and the mind are strengthened.
+ - Everything I do, I do on the principle of Russian borscht. You can throw everything into it beets, carrots, cabbage, onions, everything you want. What’s important is the result, the taste of the borscht.
+ - Character begins to form at the first pinch of anxiety about ourselves.
+ - In my blood there is no Jewish blood. In their callous rage, all anti-Semites must hate me now as a Jew. For that reason I am a true Russian.
+ - When there is freedom of speech, I’ve found that the majority of people really have nothing to say.
+ - Those who are used to a cage will weep for a cage.
+
+28 quotes

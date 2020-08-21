@@ -1,0 +1,34 @@
+ - I try to extract something positive from every situation, even if it’s just learning not to make the same mistake twice.
+ - I am calm most of the time.
+ - It’s not that I’m against nudity. I’m German, I’m very open, in Germany they lay in the park naked. It’s just the principle.
+ - I love being pregnant. You can do whatever you want.
+ - I love wearing flat shoes, but I am not one of those girls who walks around in sweat pants and sneakers.
+ - I actually don’t meet very many men because they are, I guess, afraid to approach me or think that I’m from another planet.
+ - Berlin is like being abroad in Germany. It’s German, but not provincial.
+ - I set for myself only small goals, goals that are not that far away.
+ - I’ve looked in the mirror every day for 20 years. It’s the same face...
+ - The difference between the girls today and models of the past is that we are not only interested in fashion: we are going in so many different directions at once. We work harder – at night and on weekends. On the modeling profession.
+ - I eat lots of fruit for breakfast because it’s cleansing and quickly digested by the body.
+ - All of my friends are my age and we are all ageing at the same time. We talk about it and moan, but it doesn’t bother me.
+ - My friends often tell me how very German I still am.
+ - Once in a while I say, ‘Go for it’ and I eat chocolate.
+ - I love movies, I’ve always been interested in them, but I wanted to wait for the right time to start acting.
+ - I am very conservative. I don’t invest in anything that is risky. If someone comes to me with a project idea, I let them risk their money, not mine.
+ - I know one day I’ll be considered too old.
+ - The stadium here in Munich is the best of the lot for me. It is absolutely fantastic, especially the way it lights up a different colour according to who is playing. It’s superb.
+ - For me, football always meant that we came together as a family and, in the summer we played football outside.
+ - I’m amazed when I see mothers wearing high heels. If your kids run off you can’t run after them.
+ - But it is true that some magazines have a policy to show only a certain amount of black girls on their covers. Naomi is right. It’s not fair, and I wish it would change.
+ - I’ve met women who have way better bodies in their 40s because they’ve been working on them for all these years.
+ - I want to give people easy things to wear.
+ - I’ve never done any nudity, but I would do basically anything if a role called for it.
+ - I have always worked out, and I’ve gone through different phases of yoga, but the combination of Pilates three days a week with yoga is incredible.
+ - I will continue modeling until they don’t want me anymore basically because I do love it very much.
+ - I design for myself and the first question I ask is, ‘Would I wear it?’
+ - Nobody has time to keep trying on a load of things in the morning like a teenager.
+ - I’m a lot more self-confident than I used to be. To some extent I owe that to my children and my husband.
+ - Ive learned a tremendous amount over the years by watching designers work. I now have a good understanding of what sits well on the body, not to mention the importance of a great cut and quality.
+ - It’s something I decided from the very beginning I would never do – nudity.
+ - Quentin Tarantino asked me to work with him but there is no way I am going to do that while Matthew Vaughn is working in film.
+
+32 quotes

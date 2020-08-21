@@ -1,0 +1,42 @@
+ - I don’t even know how to define myself. I’m a person who writes. It’s something I enjoy, and hopefully people enjoy it as well.
+ - I had all the fame anyone could want, and I ran away from it.
+ - I’ve always said that acting found me. I didn’t really find it.
+ - I enjoy my life. I think I have a very good life. And I think I’m very satisfied with the direction of my career and just my lifestyle and everything like that. So I wouldn’t change a single thing.
+ - I hope people don’t think I’m crazy, because I’m not.
+ - Michael Jackson and I talk all the time. I think we understand each other in a way that most people can’t understand either of us.
+ - I could have gone the route of a lot of these former child actors, but I didn’t want that for myself. Like I said, when I was 14 years old, I decided to quit. I didn’t ever want to do it again.
+ - I do have a family, and I do have friends, and so-called friends, and acquaintances, and many other people I see only around Christmas time. Maybe they could vouch for me. Maybe they could testify to my existence and save a part of me that thinks I’m no better than a bag of potato chips.
+ - Math is one of my favorite subjects.
+ - I have no control over people’s perceptions of me at all and that’s one of the things I decided very early on is that I can’t control the way other people think of me. All I can do, especially when it comes to my career is go out there and do cool unique kinds of things.
+ - As a senior in high school, you figure out what you want to do with your life. I asked myself if I wanted to get back into acting and thought: ‘Yes, but under my own terms and nothing like it was before.’
+ - I lead a simple life. I feed the fish. I walk the dogs. I cook dinner. Occasionally I take a meeting.
+ - I hope I’m remembered as the king of the world, the noble man who united all the nations of the earth. But that probably won’t happen.
+ - People do bad things in their lives. And those sort of things are forgivable. That’s half the point of having confession in church – you need to be able to fess up to what you’ve done.
+ - I went to high school, which was a good thing because I hadn’t interacted with many people my age, and I didn’t really have friends. I had a million acquaintances and no friends.
+ - I’m doing naughty things, I’m drinking too much, I’m going to clubs. It really didn’t matter to me, other than the fact that some parents wouldn’t let their kids hang out with me.
+ - I can go to any restaurant without a reservation, but while I’m there, everyone’s gonna be staring.
+ - I’ve led a very isolated existence since I was 6 years old. It’s kind of been me and my mind.
+ - After seeing ‘Big,’ I wanted an elevator that opened directly into my apartment, just like Tom Hanks did.
+ - I’d made enough made money by the time I was 12 to never work again, so it’s not about a big pay check with me.
+ - I did a radio interview for a station in Connecticut or something, and it was the worst interview ever. It was all yes and no answers.
+ - It’s about finding unique, one-of-a-kind films that I would want to see myself. I think ‘Party Monster’ is one of those.
+ - A lot of people meet me and they’re like, ‘Why aren’t you crazy?’
+ - He was so excited. He cut out pictures of these landscapes and neighborhoods and kind of really tried to give you a feel of the movie. It was kind of cute but at the same time it really showed his enthusiasm for it.
+ - Most of the offers I get from Hollywood are for teen comedies. My manager thinks I’m crazy for turning down all that money, but I’m very picky.
+ - I felt like I had two fathers. I had my real father and the father in my head.
+ - I’m not expecting the American literary community to welcome me with open arms. To them I’m just some schmuck kid who wrote some book.
+ - The funny thing is, I’m not really a big reader, not a big fan of books in the first place.
+ - Acting found me. I thought maybe I should try to find it again. We’ll see.
+ - I don’t even get an allowance.
+ - I did 14 movies in six years, I had a cartoon TV show, and I don’t want to do that again. I just want to make unique pieces of art. That’s why I quit everything when I was 14 and sat around for eight years before I did another movie.
+ - I’m not one of those actors who needs the media spotlight all the time to feel gratified. I’m happy to do one project a year and take the rest of the year off as long as that project is special.
+ - It’s a place where I could do something on a weekly basis and see if I like it.
+ - I write a good amount. I’ve been gathering up a backlog of stuff and maybe I’ll do something with it someday, but I don’t want to talk about it just yet because that would jinx it.
+ - I have a lot of growing up to do, or a lot of growing down. I think that’s probably more appropriate.
+ - I’m not one of those people who needs that gratification of doing, like, 10 films a year.
+ - Gosh, I couldn’t even talk right until I was about 6 years old or something like that.
+ - Because of what I did when I was 10 years old, I’m not living from paycheck to paycheck, and I can do things because I want to do them.
+ - All the child-star cliches, I’ve tried very hard to avoid them all.
+ - I’m the most out-of-work actor I know. In the last two years I’ve basically taken meetings for a living.
+
+40 quotes

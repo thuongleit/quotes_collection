@@ -1,0 +1,42 @@
+ - Remove stress from the body and the body regenerates itself. You can heal yourself. ~~Rhonda Byrne
+ - In 10 sessions you’ll feel the difference, in 20 you’ll see the difference, and in 30 you’ll have a new body. ~~Joseph Pilates
+ - The body benefits from movement, and the mind benefits from stillness. ~~Sakyong Mipham
+ - The most beautiful curve on a woman’s body is her smile. ~~Bob Marley
+ - If you can mentally see the end of the journey, then your body will physically find a way to achieve that goal. ~~Greg Plitt
+ - Stop. Take 3 deep breaths and smile everywhere in your body, observing what’s happening in your body. Proceed now with kindness and understanding. ~~Deepak Chopra
+ - The good Lord gave you a body that can stand most anything. It’s your mind you have to convince. ~~Vince Lombardi
+ - I speak two languages, Body and English. ~~Mae West
+ - Health of body and mind is a great blessing, if we can bear it. ~~John Henry Newman
+ - When you go deeply into the present, gratitude arises spontaneously, even if it’s just gratitude for breathing, gratitude for the aliveness that you feel in your body. Gratitude is there when you acknowledge the aliveness of the present moment. ~~Eckhart Tolle
+ - Meditation is a vital way to purify and quiet the mind, thus rejuvenating the body. ~~Deepak Chopra
+ - My body will not be a tomb for other creatures. ~~Leonardo da Vinci
+ - The ego is a false sense based on mental concepts. It is identification with the body and the mind-primarily identification with thought form. ~~Eckhart Tolle
+ - The path that leads to truth is littered with the bodies of the ignorant. ~~Miyamoto Musashi
+ - Science is more than a body of knowledge. It’s a way of thinking: a way of skeptically interrogating the universe. ~~Carl Sagan
+ - The soul is the prison of the body. ~~Michel Foucault
+ - Awareness of the inner body is consciousness remembering its origin and returning to the Source. ~~Eckhart Tolle
+ - We are made of star-stuff. Our bodies are made of star-stuff. There are pieces of star within us all. ~~Carl Sagan
+ - I allow the healing power in my body to manifest perfect health. ~~Louise Hay
+ - Mindfulness of the body leads to nirvana. ~~Buddha
+ - Every cell in your body is eavesdropping on your thoughts. ~~Deepak Chopra
+ - Body is not stiff, mind is stiff. ~~K. Pattabhi Jois
+ - When mind, body, and spirit are in harmony, happiness is the natural result. ~~Deepak Chopra
+ - My body is my journal, and my tattoos are my story. ~~Johnny Depp
+ - My soul is not contained within the limits of my body; my body is contained within the limitlessness of my soul. ~~Jim Carrey
+ - True friends are a single soul divided between different bodies. ~~Ali ibn Abi Talib
+ - If I could give you only one advice, I would say: Don’t identify with anything. Be completely empty – no one. Be no-body and see if you lose anything but delusion. ~~Mooji
+ - If you mentally believe it will happen, your body is going to find a way to make it physically happen. ~~Greg Plitt
+ - The body has many needs. But the soul has only one: to be with God. ~~Yasmin Mogahed
+ - I don’t have a body, I am a body. ~~Christopher Hitchens
+ - When you visualize, then you materialize. If you’ve been there in the mind you’ll go there in the body. ~~Denis Waitley
+ - Do not let the body be dragged along by mind nor the mind be dragged along by the body. ~~Miyamoto Musashi
+ - Christ has no body now on earth but yours. ~~Teresa of Ávila
+ - The world of imagination is the world of eternity. It is the divine bosom into which we shall all go after death of the vegetative body. ~~William Blake
+ - Transhumanism is the ethics and science of using things like biological and genetic engineering to transform our bodies and make us a more powerful species. ~~Dan Brown
+ - Music is a mantra that soothes the soul. It’s therapeutic. It’s something our body has to have. It’s very important to understand the power of music. ~~Michael Jackson
+ - The soul is something which contains the body. The body doesn’t contain the soul. The soul, if we put it into modern language, is the entire complex of relationships in whose context this organism exists. ~~Alan Watts
+ - Whatever increases the strength and authority of your body over your mind, that is sin to you, however, innocent it may be in itself. ~~Robert Southey
+ - Diseases of the soul are more dangerous and more numerous than those of the body. ~~Marcus Tullius Cicero
+ - Health is a state of complete harmony of the body, mind and spirit. When one is free from physical disabilities and mental distractions, the gates of the soul open. ~~B.K.S. Iyengar
+
+40 quotes

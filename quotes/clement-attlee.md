@@ -1,0 +1,33 @@
+ - I believe that the foundation of democratic liberty is a willingness to believe that other people may perhaps be wiser than oneself.
+ - Charity is a cold grey loveless thing. If a rich man wants to help the poor, he should pay his taxes gladly, not dole out money at a whim.
+ - No social system will bring us happiness, health and prosperity unless it is inspired by something greater than materialism.
+ - I just love Chinese food. My favourite dish is number 27.
+ - A period of silence on your part would be appreciated.
+ - Democracy means government by discussion, but it is only effective if you can stop people talking.
+ - A Tory minister can sleep in ten different women’s beds in a week. A Labour minister gets it in the neck if he looks at his neighbour’s wife over the garden fence.
+ - You will be judged by what you succeed at gentlemen, not by what you attempt.
+ - Man’s material discoveries have outpaced his moral progress.
+ - The House of Lords is like a glass of champagne that has stood for five days.
+ - In a life and death struggle, we cannot afford to leave our destinies in the hands of failures.
+ - An empty taxi drew up outside 10 Downing Street and Clement Attlee got out of it.
+ - If you begin to consider yourself solely responsible to a political party, you’re half-way to a dictatorship.
+ - Fifty percent of Winston is genius, fifty percent bloody fool. He will behave like a child.
+ - The real test of one’s belief in the doctrine of Habeas Corpus is not when one demands its application on behalf of one’s friends but of one’s enemies.
+ - We have absolutely abandoned any idea of nationalist loyalty. We are deliberately putting a world order before our loyalty to our own country.
+ - Winston Churchill – fifty per cent genius, fifty per cent bloody fool.
+ - A lot of clever people have got everything except judgement.
+ - If the money wasted on arms could be used to help the less developed nations, that would probably be a greater blow against the Communist danger than anything else.
+ - I think the British have the distinction above all other nations of being able to put new wine into old bottles without bursting them.
+ - Russian Communism is the illegitimate child of Karl Marx and Catherine the Great.
+ - I must remind the right honourable gentleman that a monologue is not a decision.
+ - I am a diffident man. I find it hard to carry on a conversation.
+ - The press lives on disaster.
+ - When we are returned to power we want to put in the statute book an act which will make our people citizens of the world before they are citizens of this country.
+ - It is dangerous to play politics with the Budget.
+ - Not Churchill. Sixty-five, old for a Churchill.
+ - I am pleased to see from the laughter on the Ministerial benches that there is no implication on their part to take Sir Oswald Mosley too seriously. It can easily be seen to-day that this idea of a dictator is gradually falling down.
+ - Can’t publish. Don’t rhyme, don’t scan.
+ - It’s nice to keep in touch – besides, it’s the only place in London where you can park a car.
+ - There is a denial of the value of the individual. Christianity affirms the value of each individual soul. Nazism denies it. The individual is sacrificed to the idol of the German Leader, German State or the German race. The ordinary citizen is allowed to hear and think only as the rulers decree.
+
+31 quotes

@@ -1,0 +1,34 @@
+ - I’ll make the right decision, whichever one it is. I have to be 100 percent, not 95 or 99.
+ - All records are not made to be broken.
+ - I realize that things happen for a reason.
+ - I’m hunting for little Mexican girls.
+ - I ain’t gonna be no escape-goat!
+ - I spent a lot of time doing things other people wanted me to do, so I’m doing what I want to do now.
+ - Charles, I lost the bet.
+ - Sometimes, you follow your dreams. I say to the young people, ‘If you have a dream, chase it.’
+ - I just think we want to stay healthy, and I don’t think we think about a sense of urgency. We realize how old we are, we realize we’ve been playing this game for a long time, but you know what? We’re not done yet.
+ - When I said I retired from basketball playing, I have retired. You will not see me play again. That is a promise.
+ - I just work out hard enough that, if I’m craving something, I eat it and know I’m going to burn it off the next day with extra intensity.
+ - You have injuries that bother you when you’re not playing. When that horn blows, you don’t feel it.
+ - To catch the ball, face up, look at all of my options and then pass. I was playing hot potato. I didn’t want to be the guy to stall the triangle.
+ - Marijuana is not tested for, and yet that is the big thing guys are getting in trouble with in the league. It’s terrible.
+ - I don’t know what my label is. I just think of myself as a plain forward. I like to think I have some finesse to my game, but inside the paint is where men are made. If you can’t play there, you should be home with your mama.
+ - I have my life on a track that I want it on, and I don’t want to get off.
+ - You don’t try to do more than you should.
+ - If I got something to say or do to a man, I’m going to look that man in the eye and tell him what is going to happen. That’s just me now.
+ - Lotta people don’t know where Utah is but it in Salt Lake.
+ - Forget the technique. Hit the guy across from you. Don’t let somebody come in your space.
+ - It takes people a while to trust you.
+ - You take the good with the bad and try not to listen to everything said about you because you know it’s not good.
+ - You work for whatever you get in life.
+ - Isn’t it about time that we stopped wasting so much time on what a person prefers?
+ - I just want to make a name for myself and get to the next level.
+ - I can do something physically the other guy can’t. I know the other guy has not dedicated himself the way I did.
+ - When we play the game like we’re supposed to play it, it is pretty easy. Making the extra pass, making the simple play, it’s not about between your legs, behind your back, and all of that, it’s just about scoring the bucket.
+ - Everything I’ve been through, everything I’m about to go through in my career and my life, if my family wasn’t with me and didn’t support me, it would be really tough.
+ - At some point in time I will be honored if I would be mentioned as a coach.
+ - What good is success if you’re not willing to share it?
+ - I have to be working, doing things. That’s the way I grew up and the way I was taught.
+ - What excites me the most is when a coach calls a timeout and chews out his forward because I just dunked on his head.
+
+32 quotes

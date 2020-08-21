@@ -1,0 +1,42 @@
+ - To live alone is the fate of all great souls. ~~Arthur Schopenhauer
+ - It matters not how strait the gate, How charged with punishments the scroll; I am the master of my fate: I am the captain of my soul. ~~William Ernest Henley
+ - To be silent the whole day long, see no newspaper, hear no radio, listen to no gossip, be thoroughly and completely lazy, thoroughly and completely indifferent to the fate of the world is the finest medicine a man can give himself. ~~Henry Miller
+ - Be active! Take on responsibility! Work for the things you believe in. If you do not, you are surrendering your fate to others. ~~Abdul Kalam
+ - Fate, dear Brutus, lies not with the stars but within ourselves. ~~Julius Caesar
+ - A man’s character is his fate. ~~Heraclitus
+ - Most gods throw dice, but Fate plays chess, and you don’t find out til too late that he’s been playing with two queens all along. ~~Terry Pratchett
+ - I am responsible for my fate, I am the bringer of good unto myself, I am the bringer of evil. I am the Pure and Blessed One. We must reject all thoughts that assert to the contrary. ~~Swami Vivekananda
+ - You are the Master of your Fate, the Captain of your Soul. ~~Henry Ford
+ - Tenacious people don’t rely on luck, fate, or destiny for their success. And when conditions become difficult, they keep working. ~~John C. Maxwell
+ - Stay hungry, stay young, stay foolish, stay curious, and above all, stay humble because just when you think you got all the answers, is the moment when some bitter twist of fate in the universe will remind you that you very much don’t. ~~Tom Hiddleston
+ - Due to circumstances beyond my control, I am master of my fate and captain of my soul. ~~Ashleigh Brilliant
+ - Most people live and die with their music still unplayed. They never dare to try. ~~Mary Kay Ash
+ - Whatever you lost through fate, be certain that it saved you from pain. ~~Rumi
+ - Anything else you’re interested in is not going to happen if you can’t breathe the air and drink the water. Don’t sit this one out. Do something. You are by accident of fate alive at an absolutely critical moment in the history of our planet. ~~Carl Sagan
+ - That which you do not bring to consciousness comes to you as your Fate, that which you do bring to consciousness, whether it was what you thought you wanted or not, is your destiny. ~~C.G. Jung
+ - Faber est suae quisque fortunae. Each man is the architect of his own fate. ~~Appius Claudius Caecus
+ - By an irony of fate, my first employment was as a draughtsman. I hated drawing; it was for me the very worst of annoyances. Fortunately, it was not long before I secured the position I sought, that of chief electrician to the telephone company. ~~Nikola Tesla
+ - It is also possible for the unconscious or an archetype to take complete possession of a man and to determine his fate down to the smallest detail. ~~C.G. Jung
+ - Sometimes fate is like a small sandstorm that keeps changing directions. You change direction but the sandstorm chases you. You turn again, but the storm adjusts. ~~Haruki Murakami
+ - If you can’t change your fate, change your attitude. ~~Amy Tan
+ - Destiny is what you are supposed to do in life. Fate is what kicks you in the ass to make you do it. ~~Henry Miller
+ - I want a trouble-maker for a lover, Blood spiller, blood drinker, a heart of flame, Who quarrels with the sky and fights with fate, Who burns like fire on the rushing sea. ~~Rumi
+ - Fate pulls you in different directions. ~~Clint Eastwood
+ - Love is our true destiny. We do not find the meaning of life by ourselves alone - we find it with another. ~~Thomas Merton
+ - Kisses are a better fate than wisdom. ~~E.E. Cummings
+ - Through readiness and discipline, we are the masters of our fate. ~~Bill Paxton
+ - On the death of a friend, we should consider that the fates through confidence have devolved on us the task of a double living, that we have henceforth to fulfill the promise of our friend’s life also, in our own, to the world. ~~Henry David Thoreau
+ - Do not be afraid; our fate Cannot be taken from us; it is a gift. ~~Dante Alighieri
+ - Losing your way on a journey is unfortunate. But, losing your reason for the journey is a fate more cruel. ~~H. G. Wells
+ - There is no fate that cannot be surmounted by scorn. ~~Albert Camus
+ - Dress your best on your execution day. Be extremely courteous to your assistant when you lose money. Try not to blame others for your fate, even if they deserve blame. Never exhibit any self-pity. Do not complain. ~~Nassim Nicholas Taleb
+ - I am resolved to rise superior to every obstacle. With whom need I be afraid of measuring my strength? I will take Fate by the throat. It shall not overcome me. O how beautiful it is to be alive – would that I could live a thousand times! ~~Ludwig van Beethoven
+ - Fate is how your life unfolds when you let fear determine your choices. A path of destiny reveals itself to you, however, when you confront your fear and make conscious choices. ~~Caroline Myss
+ - There’s no escaping fate, it just keeps going. Day and night, the future just keeps coming at you. ~~Chuck Palahniuk
+ - It is the integrity of each individual human that is in final examination. On personal integrity hangs humanity’s fate. ~~R. Buckminster Fuller
+ - I heed not that my earthly lot Hath – little of Earth in it – That years of love have been forgot In the hatred of a minute: – I mourn not that the desolate Are happier, sweet, than I, But that you sorrow for my fate Who am a passer by. ~~Edgar Allan Poe
+ - Fate succumbs many a species: one alone jeopardises itself. ~~W.H. Auden
+ - The lofty pine is oftenest shaken by the winds; High towers fall with a heavier crash; And the lightning strikes the highest mountain. ~~Horace
+ - It’s crap that you’re letting on bad year determine your fate for the rest of your life. ~~Colleen Hoover
+
+40 quotes

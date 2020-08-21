@@ -1,0 +1,114 @@
+ - Grace and glory differ very little; the one is the seed, the other is the flower; grace is glory militant, glory is grace triumphant.
+ - Prayer crowns God with the honor and glory due to His name, and God crowns prayer with assurance and comfort. The most praying souls are the most assured souls.
+ - A family without prayer is like a house without a roof, open and exposed to all the storms of heaven.
+ - Hope can see heaven through the thickest clouds.
+ - Your life is short, your duties many, your assistance great, and your reward sure; therefore faint not, hold on and hold up, in ways of well-doing, and heaven shall make amends for all.
+ - Satan promises the best, but pays with the worst; he promises honor, and pays with disgrace; he promises pleasure, and pays with pain; he promises profit, and pays with loss, he promises life, and pays with death. But God pays as he promises; all his payments are made in pure gold.
+ - Our sins are debts that none can pay but Christ. It is not our tears, but His blood; it is not our sighs, but His sufferings, that can testify for our sins. Christ must pay all, or we are prisoners forever.
+ - Satan paints sin with virtues colors.
+ - The sovereignty of God is that golden sceptre in his hand by which he will make all bow, either by his word or by his works, by his mercies or by his judgements.
+ - It is not he who knows most, nor he who hears most, nor yet he who talks most, but he who exercises grace most, who has most communion with God.
+ - He is the best preacher, not that tickles the ear, but that breaks the heart.
+ - He who stands upon his own strength will never stand.
+ - A man full of hope will be full of action.
+ - Prayer is nothing but the breathing that out before the Lord, that was first breathed into us by the Spirit of the Lord.
+ - Weak Christians are afraid of the shadow of the cross.
+ - Repentance is the vomit of the soul.
+ - Man’s holiness is now his greatest happiness, and in heaven man’s greatest happiness will be his perfect holiness.
+ - Cold prayers always freeze before they reach heaven .
+ - An idle life and a holy heart is a contradiction.
+ - The lazy Christian has his mouth full of complaints, when the active Christian has his heart full of comforts.
+ - Though our private desires are ever so confused, though our private requests are ever so broken, and though our private groanings are ever so hidden from men, yet God eyes them, records them, and puts them upon the file of heaven, and will one day crown them with glorious answers and returns.
+ - To repent of sin is as great a mark of grace as not to sin.
+ - If God were not my friend, Satan would not be so much my enemy.
+ - Christ is lovely, Christ is very lovely, Christ is most lovely, Christ is always lovely, Christ is altogether lovely.
+ - The first step toward heaven, is to see ourselves near hell.
+ - There is no little sin, because no little God to sin against.
+ - God is as just as he is merciful.
+ - Every thing that a man leans upon but God, will be a dart that will certainly pierce his heart through and through. He who leans only upon Christ, lives the highest, choicest, safest, and sweetest life.
+ - Those years, months, weeks, days, and hours, that are not filled up with God, with Christ, with grace, and with duty, will certainly be filled up with vanity and folly. The neglect of one day, of one duty, of one hour, would undo us, if we had not an Advocate with the Father.
+ - When afflictions arrest us, we shall murmur and grumble and struggle until we see that it is God that strikes.
+ - God looks not at the oratory of your prayers, how elegant they may be; nor at the geometry of your prayers, how long they may be; nor at the arithmetic of your prayers, how many they may be; not at logic of your prayers, how methodical they may be; but the sincerity of them he looks at.
+ - He that will play with Satan’s bait, will quickly be taken with Satan’s hook.
+ - God hath in Himself all power to defend you, all wisdom to direct you, all mercy to pardon you, all grace to enrich you, all righteousness to clothe you, all goodness to supply you, and all happiness to crown you.
+ - A gracious soul may look through the darkest cloud and see God smiling on him.
+ - Sin in a wicked man is like poison in a serpent; it is in its natural place.
+ - Sin is bad in the eye, worse in the tongue, worse still in the heart, but worst of all in the life.
+ - Though true repentance is never too late, yet late repentance is seldom true.
+ - There are three things that earthly riches can never do; they can never satisfy divine justice, they can never pacify divine wrath, nor can they every quiet a guilty conscience. And till these things are done man is undone.
+ - Truth is mighty and will prevail.
+ - Ambition is a gilded misery, a secret poison, a hidden plague, the engineer of deceit, the mother of hypocrisy, the parent of envy, the original of vices, the moth of holiness, the blinder of hearts, turning medicines into maladies, and remedies into diseases.
+ - Look, as a painted man is no man, and as painted fire is no fire, so a cold prayer is no prayer.
+ - It is not the bee’s touching of the flower that gathers honey, but her abiding for a time upon the flower that draws out the sweet. It is not he that reads most, but he that meditates most, that will prove the choicest, sweetest, wisest and strongest Christian.
+ - Till men have faith in Christ, their best services are but glorious sins.
+ - Ah, believer, it is only Heaven that is above all winds, storms, and tempests; God did not cast man out of Paradise that he might find another paradise in this world.
+ - A Christian will part with anything rather than his hope; he knows that hope will keep the heart both from aching and breaking, from fainting and sinking; he knows that hope is a beam of God, a spark of glory, and that nothing shall extinguish it till the soul be filled with glory.
+ - True repentance includes sorrow for sin and contrition of heart. It breaks the heart with sighs and sobs and groans...
+ - The best and sweetest flowers of paradise God gives to His people when they are upon their knees. Prayer is the gate of heaven.
+ - Consider that spiritual safety comes through spiritual unity. Christians united together are difficult to separate, difficult to break, difficult to pick off and destroy. It is when you isolate yourself by disrupting or denying unity that you are most at risk.
+ - Self is the only oil that makes the chariot-wheels of the hypocrite move in all religious concerns.
+ - Nothing humbles and breaks the heart of a sinner like mercy and love. Souls that converse much with sin and wrath, may be much terrified; but souls that converse much with grace and mercy, will be much humbled.
+ - Though there is nothing more dangerous, yet there is nothing more ordinary, than for weak saints to make their sense and feeling the judge of their condition. We must strive to walk by faith.
+ - As heat is opposed to cold, and light to darkness, so grace is opposed to sin. Fire and water may as well agree in the same vessel, as grace and sin in the same heart.
+ - In a storm there is no shelter like the wings of God.
+ - There is the seed of all sins – of the vilest and worst of sins – in the best of men.
+ - What is honor, and riches, and the favor of creatures – so long as I lack the favor of God, the pardon of my sins, a saving interest in Christ, and the hope of glory! O Lord, give me these, or I die! Give me these, or else I shall eternally die!
+ - God sees us in secret, therefore, let, us seek his face in secret. Though heaven be God’s palace, yet it is not his prison.
+ - Whatever sin the heart of man is most prone to, that the devil will help forward.
+ - An humble soul looks upon Christ’s righteousness as his only crown.
+ - That sorrow for sin that keeps the soul from looking towards the mercy seat is a sinful sorrow.
+ - There are no souls in the world that are so fearful to judge others as those that do most judge themselves, nor so careful to make a righteous judgment of men or things as those that are most careful to judge themselves.
+ - The only ground of God’s love is his love.
+ - Get Christ and get all; miss Christ and miss all.
+ - If you would have a clear evidence that little love, that little faith, that little zeal, you have is true? Then live up to that love, live up to that faith, live up to that zeal that you have; and this will be evidence beyond all contradiction.
+ - As the body lives by breathing, so the soul lives by believing.
+ - We trust as we love, and where we love. If we love Christ much, surely we shall trust him much.
+ - Secret sins commonly lie nearest the heart.
+ - What labor and pains worldlings take to obtain the vain things of this life-to obtain the poor things of this world, which are but shadows and dreams, and mere nothings!
+ - Afflictions are but as a dark entry into our Father’s house.
+ - Cold prayers shall never have any warm answers.
+ - Consider that the trials and troubles, the calamities and miseries, the crosses and losses that you meet with in this world, are all the hell that ever you shall have.
+ - Those sins that seem most sweet in life, will prove most bitter in death.
+ - It is better to have a sore than a seared conscience.
+ - Faith is the champion of Grace, and Love the nurse; but Humility is the beauty of Grace.
+ - Every man obeys Christ as he prizes Christ, not otherwise.
+ - Better to bear than to swear, and to die than to lie.
+ - There is more evil in the least sin than in the greatest affliction.
+ - Where truth goes, I will go, and where truth is I will be, and nothing but death shall divide me and the truth.
+ - Cold prayers shall never have any warm answers. God will suit His returns to our requests. Lifeless, services shall have lifeless answers. When men are dull, God will be dumb.
+ - He that puts on a religious habit abroad to gain himself a great name among men, and at the same time lives like an atheist at home, shall at the last be uncovered by God and presented before all the world for a most outrageous hypocrite.
+ - When you have overcome one temptation, you must be ready to enter the lists with another. As distrust, in some sense, is the mother of safety, so security is the gate of danger.
+ - Sin will usher in the greatest and the saddest losses that can be upon our souls.
+ - A well-grounded assurance is always attended with three fair handmaids: love, humility and holy joy.
+ - Remember this-all the sighing, mourning, sobbing, and complaining in the world, does not so undeniably evidence a man to be humble, as his overlooking his own righteousness, and living really and purely upon the righteousness of Christ.
+ - Grace is given to trade with; it is given to lay out, not lay up.
+ - A man had need to fear this most of all that he fears not at all.
+ - There is no such way to attain to greater measures of grace, as for a man to live up to that little grace he has.
+ - Christ is the sun, and all the watches of our lives should be set by the dial of his motion.
+ - Pleasures seem solid in their pursuit; but are mere clouds in the enjoyment.
+ - It is the very nature of grace to make a man strive to be most eminent in that particular grace which is most opposed to his bosom sin.
+ - A man’s most glorious actions will at last be found to be but glorious sins, if he hath made himself, and not the glory of God, the end of those actions.
+ - The two poles could sooner meet, than the love of Christ and the love of the world.
+ - Saints spring and thrive most internally, when they are most externally afflicted. Afflictions are the mother of virtue.
+ - Solomon got more hurt by his wealth, than he got good by his wisdom.
+ - The least sin should humble the soul, but certainly the greatest sin should never discourage the soul, much less should it work the soul to despair. Despairing Judas perished, whereas the murderers of Christ, believing on Him, were saved.
+ - A good conscience and a good confidence go together.
+ - Sin is hell, grace is heaven; what madness it is to look more at hell than heaven.
+ - If any man should ask me what is the first, second, and third part of being a Christian, I must answer ‘Action!’
+ - Sin may rebel, but it shall never reign in any saint.
+ - He that hath deserved hanging may be glad to escape with a whipping.
+ - Humility makes a man richer than other men, and it makes a man judge himself the poorest among men.
+ - Let those be thy choicest companions who have made Christ their chief companion.
+ - Humility can weep over other men’s weaknesses, and joy and rejoice over their graces.
+ - Much faith will yield unto us here our heaven, but any faith, if true, will yield us heaven hereafter.
+ - God hears no more than the heart speaks; and if the heart be dumb, God will certainly be deaf.
+ - The giving way to a less sin makes way for the committing of a greater.
+ - How many threadbare souls are to be found under silken cloaks and gowns!
+ - An implicit confession is almost as bad as an implicit faith; wicked men commonly confess their sins by wholesale, We are all sinners; but the true penitent confesses his sins by retail.
+ - The world and you must part, or Christ and you will never meet.
+ - The greatest and the hottest fires that ever were on earth are but ice in comparison to the fire of hell.
+ - The only way to avoid cannon-shot is to fall down. No such way to be freed from temptation as to keep low.
+ - When God’s hand is on thy back, let thy hand be on thy mouth, for though the affliction be sharp it shall be but short.
+ - Many eat that on earth that they digest in hell.
+
+112 quotes

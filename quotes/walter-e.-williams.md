@@ -1,0 +1,86 @@
+ - A caged canary is safe but not free.
+ - Democracy and liberty are not the same. Democracy is little more than mob rule, while liberty refers to the sovereignty of the individual.
+ - Government income redistribution programs produce the same result as theft. In fact, that’s what a thief does; he redistributes income. The difference between government and thievery is mostly a matter of legality.
+ - Government schools can go for decades delivering low-quality services, and what’s the result? The people who manage it earn higher pay. It’s nearly impossible to fire the incompetents. And, taxpayers, who support the service, are given higher tax bills.
+ - Governments are instituted among Men, deriving their just powers from the consent of the governed.
+ - Powerful government tends to draw into it people with bloated egos, people who think they know more than everyone else and have little hesitance in coercing their fellow man. Or as Nobel Laureate Friedrich Hayek said, “in government, the scum rises to the top”.
+ - Socialism is just another form of tyranny.
+ - True rights, such as those in our Constitution, or those considered to be natural or human rights, exist simultaneously among people. That means exercise of a right by one person does not diminish those held by another.
+ - I don’t know about you, but if you hear that Williams guns have been taken, you’ll know Williams is dead.
+ - If the States do not have the right to secede, then they have no rights at all.
+ - However, if we wish to be compassionate with our fellow man, we must learn to engage in dispassionate analysis. In other words, thinking with our hearts, rather than our brains, is a surefire method to hurt those whom we wish to help.
+ - The essence of government is force, and most often that force is used to accomplish evil ends.
+ - Always be suspicious of those who pretend to know it all, claim their way is the best way and are willing to force their way on the rest of us.
+ - Tyrants always condemn and seek to replace the market process with government coercion because tyrants do not trust that people behaving voluntarily will do what the tyrants think they should do.
+ - Discrimination is simply the act of choice. Scarcity requires us to choose; scarcity is the cause of discrimination!
+ - If grade inflation continues, a college bachelor’s degree will have just as much credibility as a high school diploma.
+ - The freedom of individuals from compulsion or coercion never was, and is not now, the normal state of human affairs. The normal state for the ordinary person is tyranny, arbitrary control and abuse mainly by their own government.
+ - The global warming scare has provided a field day for politicians and others who wish to control our lives. After all, only the imagination limits the kind of laws and restrictions that can be written in the name of saving the planet.
+ - Politicians exploit economic illiteracy.
+ - Saying the Constitution is a living document is the same as saying we don’t have a Constitution.
+ - I learned that you have to evaluate the effects of public policy as opposed to intentions.
+ - The framers gave us the Second Amendment not so we could go deer or duck hunting but to give us a modicum of protection against congressional tyranny.
+ - Having children is not an act of God. It’s not like you’re walking down the street and pregnancy strikes you; children are a result of a conscious decision. For the most part, female-headed households are the result of short-sighted, self-destructive behavior of one or two people.
+ - Prior to capitalism, the way people amassed great wealth was by looting, plundering and enslaving their fellow man. Capitalism made it possible to become wealthy by serving your fellow man.
+ - Reduced employment opportunities is one effect of minimum wage legislation. The minimum wage law has imposed incalculable harm on the disadvantaged members of our society. The only moral thing to do is to repeal it.
+ - Nothing in our Constitution suggests that government is a grantor of rights. Instead, government is a protector of rights.
+ - According to the Institute for International Economics, trade barriers cost American consumers $80 billion a year or more than $1,200 per family.
+ - There are people in need of help. Charity is one of the nobler human motivations. The act of reaching into one’s own pockets to help a fellow man in need is praiseworthy and laudable. Reaching into someone else’s pocket is despicable and worthy of condemnation.
+ - Most of the great problems we face are caused by politicians creating solutions to problems they created in the first place.
+ - Charity is reaching into one’s own pockets to assist his fellow man in need. Reaching into someone else’s pocket to assist one’s fellow man hardly qualifies as charity. When done privately, we deem it theft, and the individual risks jail time.
+ - The difference between a thief and a congressman: When a thief steals your money, he doesn’t expect you to thank him.
+ - The only organized political party with a Christian vision of morality is the Libertarian Party.
+ - Increases in money supply are what constitute inflation, and a general rise in prices is the symptom.
+ - Whenever there’s a tragedy involving gun use, Bill Clinton, Al Gore, the gun-control lobby and the news media seize it as another opportunity to exploit the emotions of uninformed American people for political gain.
+ - But let me offer you my definition of social justice: I keep what I earn and you keep what you earn. Do you disagree? Well then tell me how much of what I earn belongs to you – and why?
+ - A recent study by David Green and Laura Casper, ‘Delay, Denial and Dilution,’ written for the London-based Institute of Economic Affairs, concludes that the World Health Organization calculated that Britain has as many as 25,000 unnecessary cancer deaths a year because of under-provision of care.
+ - No matter how worthy the cause, it is robbery, theft, and injustice to confiscate the property of one person and give it to another to whom it does not belong.
+ - Tariff policy beneficiaries are always visible, but its victims are mostly invisible. Politicians love this. The reason is simple: The beneficiaries know for whom to cast their ballots, and the victims don’t know whom to blame for their calamity.
+ - Minimum-wage laws are one of the most powerful tools in the arsenal of racists.
+ - Multiculturalists argue that different cultural values are morally equivalent. That’s nonsense.
+ - As American education and intelligence becomes replaced by feelings and emotion, not seeing the forest for the trees has become a major problem.
+ - Most of our country’s serious problems can be laid at the feet of Congress and the White House and not at capitalism.
+ - I prefer a thief to a Congressman. A thief will take your money and be on his way, but a Congressman will stand there and bore you with the reasons why he took it.
+ - The true test of one’s commitment to liberty and private property rights doesn’t come when we permit people to be free to do those voluntary things with which we agree. The true test comes when we permit people to be free to do those voluntary things with which we disagree.
+ - If our country is to survive and prosper, we must summon the courage to condemn and reject the liberal agenda, and we had better do it soon.
+ - Preaching doom and gloom has been beneficial to the political class. They use it to gain more power and control.
+ - When it came to the 2000 election, 84 percent of Ivy League faculty voted for Al Gore, 6 percent for Ralph Nader and 9 percent for George Bush. In the general electorate, the vote was split at 48 percent for Gore and Bush, and 3 percent for Nader.
+ - The Founders knew that a democracy would lead to some kind of tyranny. The term democracy appears in none of our Founding documents. Their vision for us was a Republic and limited government.
+ - Democracy gives the aura of legitimacy to acts that would otherwise be considered tyranny.
+ - After a Canadian has been referred to a specialist, the waiting list for gynecological surgery is four to 12 weeks, cataract removal 12 to 18 weeks, tonsillectomy three to 36 weeks and neurosurgery five to 30 weeks.
+ - In keeping Americans ill-educated, ill-informed and constitutionally ignorant, the education establishment has been the politician’s major and most faithful partner. It is in this sense that American education can be deemed a success.
+ - All we have to do now is to inform the public that the payment of social security taxes is voluntary and watch the mass exodus.
+ - The prospects are dim for a society that makes mascots out of the unproductive and condemns the productive.
+ - I have nothing against rich people. In fact, I’ve been struggling most of my life to join them.
+ - Students who are alien and hostile to the education process ought to be removed. You say, “What will we do with them?” I say that’s a secondary issue. The first priority is to stop thugs from making education impossible for everyone else.
+ - Universities have failed in their function of the pursuit of academic excellence by having dumbed down classes and granting degrees to students who are just barely literate and computationally incompetent.
+ - Reaching into someone else’s pocket to assist one’s fellow man hardly qualifies as charity.
+ - Vote for me. I’ll use my office to take another American’s money and give it to you.
+ - If you hate my guts and have designs to hurt me, and I see you building a cannon aimed at my house, I am not going to wait for you to finish construction.
+ - The belief that society benefits from destruction is lunacy.
+ - Legislators aren’t known for being rocket scientists.
+ - There are many farm handouts; but let’s call them what they really are: a form of legalized theft. Essentially, a congressman tells his farm constituency, “Vote for me. I’ll use my office to take another American’s money and give it to you.”
+ - An increasing amount of climate research suggests a possibility of global cooling.
+ - Politicians have immense power to do harm to the economy. But they have very little power to do good.
+ - It was Thomas Jefferson who said that we should not allow the courts to have a monopoly on the interpretation of what is constitutional and what is not.
+ - It’s people seeking more for themselves that has produced a better life for all Americans.
+ - If we buy into the notion that somehow property rights are less important, or are in conflict with, human or civil rights, we give the socialists a freer hand to attack our property.
+ - Politicians have always coveted the liberties we hold.
+ - Experts and the educated elite have replaced what worked with what sounded good. Society was far more civilized before they took over our schools, prisons, welfare programs, police departments and courts. It’s high time we ran these people out of our lives and went back to common sense.
+ - Most Americans, who think Congress has a right to do anything for which they can get a majority vote, ignore the clearly written constitutional restraints on Congress.
+ - Once Congress establishes that one person can live at the expense of another, it pays for everyone to try to do so.
+ - The founders of our nation feared paper currency because it gave government the means to steal from its citizens.
+ - Most of what Congress does fits the description of forcing one American to serve the purposes of another American. That description differs only in degree, but not in kind, from slavery.
+ - We should view our government the way we should a friendly, cuddly lion. Just because he’s friendly and cuddly shouldn’t blind us to the fact that he’s still got teeth and claws.
+ - In a free society, government has the responsibility of protecting us from others, but not from ourselves.
+ - More important than anything else is for Americans to wise up to class warfare demagoguery and reject the politics of envy.
+ - The crucial question for any policy is not what, are its intentions, but what are its effects?
+ - One of the wonderful things about free markets is that the path to greater wealth comes not from looting, plundering and enslaving one’s fellow man, as it has throughout most of human history, but by serving and pleasing him.
+ - If one person has a right to something he did not earn, of necessity it requires that another person not have a right to something that he did earn.
+ - The public good is promoted best by people pursuing their own private interests. This bothers some people because they’re more concerned with motives than with results.
+ - If there’s a distinct group of Americans who harbor open contempt for constitutional principles and rule of law, it’s lawyers, judges and members of Congress.
+ - Trying to get government to be as efficient as business is as hopeless as trying to teach cats to bark and dogs to meow.
+ - If the Constitution framers would come back today, they would have contempt for most of us.
+ - No human should be coerced by the state to bear the medical expense, or any other expense, for his fellow man. In other words, the forcible use of one person to serve the purposes of another is morally offensive.
+
+84 quotes

@@ -1,0 +1,121 @@
+ - Sometimes you find your destiny on the road you took to avoid it.
+ - Rudeness can make me angry.
+ - I’m the git in the family.
+ - I was very keen on playing a victim.
+ - I live in London and I love living in a gun free environment and long may it continue.
+ - The idea of goodies and baddies has always fascinated me, and what people consider to be a goodie or a baddie, because I’ve never seen any of my characters as baddies.
+ - The further you run from your sins, the more exhausted you are when they catch up to you.
+ - You won’t find a better young actor than Jaeden Lieberher. I ended up having one of the best times with him, really. Going to work with him every day was a treat.
+ - I don’t like it when people are trying too hard. That goes for clothes, for acting, for everything. It’s just not good when it seems like you’re making too much of an effort.
+ - I did it for the money. But its not worth much if you cant face yourself in the mirror. Respect is the ultimate currency.
+ - Parenthood and family come first for me, and when I’m not working I’m cool with the Teletubbies.
+ - Without faith, without belief in something, what are we?
+ - As far as career goes, make sure you’re in it for the right reasons – and make sure that the work itself is the most important thing.
+ - Something I don’t like seeing in other people is naked ambition, when somebody is really pushing hard to get to where they want to be. That’s the way I look at that word – like you must be stepping on someone to get there. And I’ve never been comfortable with that.
+ - I am a big soccer fan, and a very big Liverpool fan.
+ - Belfast during the Troubles looked like a different world.
+ - I don’t do facials or any of that stuff, but my workout regime does tend to depend on whether I have to take my top off in my next film because otherwise I know I’m too heavy.
+ - You go back to those films of the ’40s and ’50s and hear the dialogue, the way the people played off each other, the wordplay. I think we’ve really lost that in movies.
+ - If you explode onto the scene at a very young age, there are so many people pulling you in different directions. It takes time to recalibrate and see what’s important.
+ - I really believe you can carry yourself in such a way that people don’t notice you.
+ - I dread karaoke. I hate karaoke. I can’t sing – that is why.
+ - I don’t like being consumed by work all the time. I consume myself so much when I do a part that I like to step away from it.
+ - I’m just constantly trying to renew and give myself new challenges and push myself to uncomfortable places, trying to get better.
+ - I love to mix it up. I love to keep doing different things.
+ - One of the things I love, more than anything, is jumping around and playing lots of different parts. I love the variety of playing different characters.
+ - I feel for those 19-year-olds who get thrust into the limelight that young.
+ - I want to go anywhere and everywhere and explore as much as I can.
+ - I treat any scene the same – dialogue, action – you’re still creating something in character. It’s all acting, fighting.
+ - The sexiest part of the body is the eyes. That’s what I believe.
+ - Outside of being home with my family, I prefer a crowd.
+ - I go home to London in between jobs, and in London, my life has nothing to do with the business. It’s a family life, hanging with friends.
+ - Death frees the beast.
+ - I just like to keep challenging myself, keep it varied. It’s a craft, and I’m constantly trying to learn and get better at it.
+ - Very often on films, even without a producer credit, I’ll be involved, very early on. I want to be there as the thing is taking shape.
+ - Jewelery isn’t really my thing, but I’ve always got my eye on people’s watches.
+ - I’d like to do a film which is funny.
+ - I guess I’m not that metrosexual. My bathroom cabinet is hardly overflowing with products. I only really have my stuff for shaving. I can’t honestly say I moisturise, though I probably should.
+ - I certainly am not a great believer in over-rehearsing between actors, and certainly not doing the dialogue too much.
+ - When I was younger, people used to say you only really prove yourself as an actor on stage. And I disagree with that. Some of the finest acting I’ve ever come across has been for film.
+ - There’s not a big gun culture in England at all still.
+ - After writing a page, Hemingway would let it float to the ground. He never crumpled pages – he believed that if you crumpled them, you’d be insane in a year.
+ - I do wear suits all the time.
+ - The theater’s a live thing, and film is, to some extent, a discipline where you’re putting everything together and trying to execute something exactly. You do it away from people and then you present it at the end.
+ - There’s certainly a huge element of luck in me ending up where I’ve ended up.
+ - It’s important to me that everyone is treated with respect.
+ - I have a problem with a lot of men’s fragrances because they are very strong. Somebody somewhere thinks that masculine means powerful smells, and I find them overbearing and not very pleasant.
+ - Action scenes are not that different from other scenes.
+ - For me really good acting is about subtext.
+ - A huge part of acting in movies is appetite. You do your best work when you’ve got a lot of appetite and you really want to embrace something. When you get tired, you don’t have that hunger.
+ - No matter who the character is and how big their role, that each person in the story is a human being and deserves respect. Even if they’re in the story for ten seconds, I didn’t want you to just see them as this entity passing through that’s serving all of the other people.
+ - America’s been very, very good to me. I’ve been very lucky and worked a lot there, and appreciate and love the work that I’ve done.
+ - I do a lot better if I sit around and think about a character for a couple of months.
+ - The thing about Hemingway that people forget is that all the stuff he did was at a time where people weren’t traveling that much. At 19 he travels to Italy. He goes to the Spanish Civil War. He goes to China, he goes to Africa so at that time to travel that much is really incredible.
+ - I couldn’t bear a marriage in which one partner hinges on the other.
+ - I can honestly say I’ve never chosen a film because where it’s shot is convenient.
+ - I had to ride a horse once. In ‘King Arthur.’ I said I could ride, but I had to call for lessons on the day the deal was signed. I started out on this little chunky thing and slowly moved up. It was months of work.
+ - I always want my options to be open.
+ - I think there is a lot of overexplaining both in writing and acting. People don’t need to be hit on the head.
+ - I’ve had some great times with actresses, but that’s in a movie.
+ - I’m a huge fan of ‘The Exorcist.’
+ - If you are making a script based on a book it can be frustrating going back to the source novel, because you’re turning the story into a totally different thing; the narrative of film is different from that of a book.
+ - I like to play characters that are convincing, that aren’t just straightforward and nice.
+ - I’ve done a number of things based on real people or true stories or based on books, and I’m a great believer that you have to be true to the script.
+ - For some people, an event happens and they are thrown into a tabloid feeding ground.
+ - When there’s an idiot driving crazily in front of you, that can wind the best of you up.
+ - I’m English and I’m used to coming from a world of period dramas, where there’s a very polite restraint to everything. Everybody’s sort of sitting in drawing rooms.
+ - I’m a big fan of comedies and dramas, and I watch tons of movies.
+ - I believe that we live in a time of fractured families where maybe fathers aren’t getting enough time to see their kids because life’s complications and hardships get in the way of those things.
+ - It’s just lovely to be involved in a movie that does go back to the basics – characters and great writing.
+ - I’ve got an age that I do think of myself.
+ - Good dialogue is very important.
+ - I don’t just like to have 1 take, but not too many. I think it is good to keep it alive.
+ - I was not a very fearful kid, really.
+ - Audiences can be very judgmental.
+ - Ultimately, to have a career in movies, to a certain extent, certainly in England, you can’t sustain a career in just English movies.
+ - I’m not the kind of actor who goes into exhaustive research for each role.
+ - After drama school I did a seven-month tour of Europe performing in ‘Romeo and Juliet.’ I played Romeo.
+ - I can’t remember ever being involved in a fight in a movie where I haven’t done most of it.
+ - Every journalist who is not too stupid or too full of himself to notice what is going on knows that what he does is morally indefensible.
+ - Acting is all about likability.
+ - When I look back, if I’d played something differently, it might not have gone the way it did. So I don’t feel like going back to my twenties and changing anything.
+ - I would never give anybody any advice about anything.
+ - I’m one of those actors where usually I’ll read a script, and then I’ll have a flurry of notes. I’ll ask a hundred questions about things, and really get in there and examine it.
+ - The financial implode is bound to be reflected in the movies that are being made, there’s no question.
+ - I go off and make movies; I come home, and I’m a dad and I hang with my girls.
+ - Movies are certainly a director’s medium, so getting the opportunity to work with really good directors is everything to me.
+ - I’m always very aware of the physical challenges of work. I train much more than I did when I was in my twenties, and I’ve done some very physical films, and I always get properly prepared for them and get as fit as I can.
+ - I think it’s dangerous to get into ideas of planning careers.
+ - Very often when you see families it’s all perfect and neat, and parenting isn’t like that. You do have constant negotiations. Things are ever developing and ever changing, and you constantly have to evaluate how you deal with your kids.
+ - There’s something to play if there’s conflict going on. Whatever that conflict is, that’s where drama is; if the character is grappling with something you’ve got something to play, there’s layers to it.
+ - I was at the birth of my two girls.
+ - When you are shooting action, there is a satisfying thing because your objectives are very clear.
+ - I never aspired to be anything. What I’ve done is beyond my wildest.
+ - I’m sort of one of those weird actors who whenever I do a play, I think, ‘Oh, we should film this,’ as opposed to have to belt it out of ourselves in a theater auditorium.
+ - As I get older, I’ve been having a better and better time.
+ - One of the things I’m most proud of about my career is the fact I’ve managed to keep options open.
+ - As a teenager I was crazy about David Bowie. He was a huge inspiration for me. I dressed a little bit crazily in school and dyed my hair every colour under the sun.
+ - I find sometimes that if you do too many takes, it starts to become meaningless to me. It is hard to sustain it for me. I don’t want to do too many.
+ - I actually really love working with young actors because they’re so responsive and instinctive, and it’s a much less honed craft that they’re employing.
+ - I’ve got actor friends who didn’t get breaks, who struggle and worry about things that I’m fortunate not to have to worry about.
+ - I don’t think you necessarily identify and believe in the motifs of the character, but you have to want to play it and want to commit to the lines.
+ - A lot of the projects that I do, I like to be involved with earlier. I just feel that, certainly from an acting point of view, it’s easier to do my job, if I’m included in what the intentions are, for why people are doing what they’re doing, especially with a director.
+ - For me, London is and always will be home.
+ - You see these actresses who have had Botox or something else done, and it takes you out of the film.
+ - I think anybody who bets on horses and says they win is probably a liar.
+ - I’m competitive with myself, not at the expense of everything around me. I never wanted to be a movie star. I just wanted to act.
+ - A room full of great sportsmen is so much better than a room full of actors.
+ - Obviously, I’m attracted to heavier movies.
+ - The worst piece of advice I’ve gotten in my whole career is from somebody who said, Remember, it’s all about likeability.
+ - The medical operations are so challenging because they’re so technical, as well. I assumed before we started that we would do the classic thing, when it comes to the operations, that we would do all of these inserts with real doctors.
+ - I watch a film and the most important thing to me is what I think of the movie.
+ - I think that Phil Kaufman is one of the best directors that I have come across.
+ - There are a lot of people who go through a lot of tough things, and it doesn’t stop them from wanting to be a better parent.
+ - For an actor, it’s very important to get a clear idea of what a director wants, and their intention for what they want to get out of a scene and how they want to shoot it. Having that knowledge is really valuable, for an actor. It means you can deliver more.
+ - When I started in the theater, the joy for me was playing different parts, and I get set alight by different people and different worlds. The biggest joy for me is jumping around and going from that to this to that, never feeling that I’m any one thing – because I’m not, and we as people aren’t.
+ - You’re always dealing with emotions as an actor.
+ - You come ready to work when you know that you are going to get a couple of gos and it. It kind of galvanizes everything and there is something about it that keeps it very alive.
+ - I’ve been very fortunate with the scripts I’ve had and the people I worked with.
+ - I always used to say to myself, I’m going to die of lung cancer. That’s the choice I’m making.
+
+119 quotes

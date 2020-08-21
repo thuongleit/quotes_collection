@@ -1,0 +1,53 @@
+ - The destiny of humans cannot be separated from the destiny of earth.
+ - Diversity is the magic. It is the first manifestation, the first beginning of the differentiation of a thing and of simple identity. The greater the diversity, the greater the perfection.
+ - As humans we are born of the Earth, nourished by the Earth, healed by the Earth.
+ - The Great Work – the work of ensuring a just, healthy, beautiful, and sustainably life-giving world for future generations of all species.
+ - It’s all a question of story. We are in trouble just now because we do not have a good story. We are in between stories. The old story, the account of how we fit into it, is no longer effective. Yet we have not learned the new story.
+ - We are talking only to ourselves. We are not talking to the rivers, we are not listening to the wind and stars. We have broken the great conversation. By breaking that conversation we have shattered the universe. All the disasters that are happening now are a consequence of that spiritual ‘autism.’
+ - We will go into the future as a single sacred community, or we will all perish in the desert.
+ - The greater the diversity, the greater the perfection.
+ - The environmental crisis is fundamentally a spiritual crisis.
+ - The Great Work now, as we move into a new millennium, is to carry out the transition from a period of human devastation of the Earth to a period when humans would be present to the planet in a mutually beneficial manner.
+ - Our difficulty is that we have become autistic. We no longer listen to what the Earth, its landscape, its atmospheric phenomena and all its living forms, its mountains and valleys, the rain, the wind, and all the flora and fauna of the planet are telling us.
+ - You cannot have well people on a sick planet.
+ - The natural world is the larger sacred community to which we belong. To be alienated from this community is to become destitute in all that makes us human. To damage this community is to diminish our own existence.
+ - Because of this erotic bond, the earth becomes luxuriant in its every aspect.
+ - If the earth does grow inhospitable toward human presence, it is primarily because we have lost our sense of courtesy toward the earth and its inhabitants.
+ - The universe is the primary revelation of the divine, the primary scripture, the primary locus of divine-human communication.
+ - Yet we can be sure that whatever fictions exist in Wall Street bookkeeping, the earth is a faithful scribe, a faultless calculator, a superb bookkeeper; we will be held responsible for every bit of our economic folly.
+ - The excitement of life is in the numinous experience wherein we are given to each other in that larger celebration of existence in which all things attain their highest expression, for the universe, by definition, is a single gorgeous celebratory event.
+ - The historical mission of our times is to re-invent the human – at the species level, with critical reflection, within the community of life-systems, in a time-developmental context, by means of story and shared dream experience.
+ - The universe is a communion of subjects, not a collection of objects.
+ - Teaching children about the natural world should be seen as one of the most important events in their lives.
+ - We lose our souls if we lose the experience of the forest, the butterflies, the song of the birds, if we can’t see the stars at night.
+ - From a large planet of overwhelming magnitude, unlimited resources and endless mystery, the Earth has suddenly become a small planet, thoroughly explored, limited in resources, and reduced in mystery.
+ - Everything is integral and interacts with everything else. This means that nothing is itself without everything else. There is a commonality, an integrity, an intimacy of the universe with itself.
+ - The universe, the solar system, and planet earth in themselves and in their evolutionary emergence constitute for the human community the primary revelation of that ultimate mystery whence all things emerge into being.
+ - We see quite clearly that what happens to the nonhuman, happens to the human. What happens to the outer world, happens to the inner world.
+ - Vegetarianism is a way of life that we should all move toward for economic survival, physical well-being and spiritual integrity.
+ - The child awakens to a universe. The mind of the child to a world of meaning. Imagination to a world of beauty. Emotions to a world of intimacy. It takes a universe to make a child both in outer form and inner spirit. It takes a universe to educate a child. A universe to fulfill a child.
+ - The time has come to lower our voices, to cease imposing our mechanistic patterns on the biological processes of the earth, to resist the impulse to control, to command, to force, to oppress, and to begin quite humbly to follow the guidance of the larger community on which all life depends.
+ - We are not lacking in the dynamic forces needed to create the future. We live immersed in a sea of energy beyond all comprehension.
+ - We need to move: from a spirituality of alienation from the natural world to a spirituality of intimacy with the natural world from a spirituality of the divine as revealed in words to a spirituality of the divine as revealed in the visible world about us...
+ - The present urgency is to begin thinking within the context of the whole planet, the integral earth community with all its human and other-than-human components.
+ - Gardening is an active participation in The deepest mysteries of the universe.
+ - We cannot discover ourselves without first discovering the universe, the earth, and the imperatives of our own being. Each of these has a creative power and a vision far beyond any rational thought or cultural creation of which we are capable.
+ - Survival in any meaningful sense is the key issue of our time.
+ - The success or failure of any historical age is the extent to which those living at that time have fulfilled the special role that history has imposed upon them.
+ - The future rests in the religious, political, economic and cultural capacity of humans to establish this larger context in which the particular traditions will find both support and fulfillment in a functional global community.
+ - Once you adopt and communicate a quality policy, stick with it, live it, and protect it. You get only one chance!
+ - The earth will solve its problems, and possibly our own, if we will let the earth function in its own ways. We need only listen to what the earth is telling us.
+ - We must now understand that our own well-being can be achieved only through the well-being of the entire natural world around us.
+ - Of all the issues we are concerned with at present, the most basic issue, in my estimation, is that of human-earth relations.
+ - Traditions cannot themselves, simply with their own powers, do what needs to be done. These earlier experiences and accomplishments were dealing with other issues, providing guidance for different worlds than the world of the early twenty-first century.
+ - The real skill is to raise the sails and to catch the power of the wind as it passes by.
+ - Just now one of the significant historical roles of the primal people of the world is not simply to sustain their own traditions, but call the entire civilized world back to a more authentic mode of being.
+ - Scientists have suddenly become aware of the magic quality of the Earth and the entire universe.
+ - If the religious experience were simply some naive impression of the uninformed it would not have resulted in such intellectual insight, such spiritual exaltation, such spectacular religious ritual, or in the immense volume of song and poetry and literature and dance that humans have produced.
+ - Our fulfillment is not in our isolated human grandeur, but in our intimacy with the larger earth community, for this is also the larger dimension of our being.
+ - It is false to say that humanity is the most excellent being in the universe. The most excellent being in the universe is the universe itself.
+ - All human professions, institutions, and activities must be integral with the earth as the primary self-nourishing, self-governing and self-fulfilling community. To integrate our human activities within this context is our way into the future.
+ - The divine communicates to us primarily through the language of the natural world. Not to hear the natural world is not to hear the divine.
+ - Even as regards Earth we are more committed to history than to geography, more committed to time than to space. History is endless. Place is limited.
+
+51 quotes

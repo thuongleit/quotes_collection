@@ -1,0 +1,49 @@
+ - You could say that clinical depression is an incapacity to aesthetic response. It’s like there’s a constant agreement within ourselves, a kind of mutual understanding between ourselves and the world.
+ - A lot of education is like teaching marching; I try to make it more like dancing.
+ - Comic books, graphic novels, involve constant toggling and it’s hard work. You get tired reading comic books, but you never get tired looking at pictures or reading words.
+ - The aesthetic experience has to be given. And beauty is a regular experience of every person – every person who is not clinically depressed!
+ - Photography is the art of anticipation, not working with memories, but showing their formation. As such, it has relentlessly usurped imaginative and critical prerogatives of older, slower literature and handmade visual art.
+ - Why do you need street smarts? Shrewdness? Toughness? It’s to protect something soft that is going to be in danger if it’s exposed at the wrong time and place. It’s to protect a soul. But to protect your soul, you have to have one to start with.
+ - The experience of beauty is in the eye of the beholder, as they say. The artist’s relation to the object of beauty, how the art makes that happen, is a whole other subject. Beauty is an event. Beauty is something that happens. There is no such thing as a beautiful object or a beautiful woman.
+ - The artist is a strange being. I think it’s safe to say that a real artist is conscious of having a personal singularity that is partly a blessing and partly a curse. An artist enjoys and suffers from isolation. As solitude, isolation can nurture. It can also destroy.
+ - Rembrandt was way ahead of his time. It’s as if he was painting an amateur theatrical, or a professional theatrical, in his studio. It’s a kind of performance.
+ - All artists and creative people are basically unhappy people. If you were happy, that would mean you were content with the world as it was and why would you ever want to change it?
+ - Black and white can show how something is. Color adds how it is, imbued with temperatures and humidities of experience.
+ - You don’t need everybody to agree with you, but you do need a few people. And by this point I have a fairly high degree of confidence in my judgment, in that I don’t doubt my sanity; or, even if I do, I don’t have to be reassured.
+ - Education is this funny thing. You deal for several years with organized information, and then you go out into the world and you never see any of that ever again. There’s no more organized information.
+ - With art criticism it’s difficult to discuss beauty, to assess it, because there’s always the possibility that we’re insane.
+ - It’s possible I am the only art critic that a lot of people read. And maybe Robert Hughes, if he’s still writing.
+ - There’s a double standard between writers and readers. Readers can be unfaithful to writers anytime they like, but writers must never ever be unfaithful to the readers.
+ - Artists are people who are subject to irrational convictions of the sacred. Baudelaire said that an artist is a child who has acquired adult capacities and discipline. Art education should help build those capacities and that discipline without messing over the child.
+ - Picasso had nicknamed Georges Braque “Wilbur,” thereby becoming “Orville” in their Wright Brothers-like ambition to get painting off the ground of conventional representation.
+ - A word is a thought, of course. But any image, including a photograph, may become an instrument of sufficiently lucid cogitation.
+ - I do have pleasure when I’m writing. I mean, I’m aware of pleasure. And sometimes I make myself laugh, with a joke or something; or I feel gleeful.
+ - Matisse can make you hate your life for its comparatively insipid joys.
+ - To me, the greatest artists are almost entirely non-verbal.
+ - Art is always subject to change in a moment by somebody who’s strong enough to shed new light on it.
+ - I can do pretty good work in various short forms, but anything over 1400 words, I’d be of no use. I like to say I’m a river navigator. I need to see the shore behind the shore.
+ - Love and fear, the two strongest emotions we have. It all starts with emotion.
+ - Beauty is a physiological reaction. Beauty is not an object.
+ - Artists are expected to talk about their work but writers aren’t expected to talk about their writing.
+ - My problem with political art is not that it’s bad art necessarily, but that it is terrible politics.
+ - I have painted enough to have a lot of respect for mediocre painters. It’s really hard.
+ - Artists are sometimes in a position to tell the truth, but they’re positioned as a Cassandra. They’re gifted with impeccable prophecy and the assurance of never being listened to.
+ - A lot of writers and artists are like chefs who eat their own cooking in the kitchen and then deliver an empty plate with assurances that it’s great.
+ - The problem of making artists talk about their work is that when they’re making their work the left-brain is shut off. So if you talk to an artist about it, you’re talking to someone who wasn’t there. It’s hopeless.
+ - Smithson was someone of tremendous significance whose work was not beautiful at all. I think he was an iconoclast.
+ - Everything that would begin to make somebody a good student would tend to make him or her a poor artist, and vice versa.
+ - Art teachers are always the doormats of the previous generation.
+ - Minimalism itself had a very strong iconoclast impulse. You think of the sixties as loose and liberated, but in art it was actually quite the contrary.
+ - I find that the mask of the critic is to have distance.
+ - Your medium has to be alive to you, no matter what you do.
+ - It’s my duty to sell the ideas. But there’s always a question when it comes to beauty.
+ - I’m absolutely convinced that people cannot look and read at the same time. Not any more than you can kneel and jump at the same time. It’s a completely different physiological setting.
+ - There is an ineffable but fatal difference in attitude between people behaving naturally and people behaving naturally for a camera.
+ - Everybody’s got plants, but most are just growing weeds. The cultivated have greater gardens, finer and gaudier gardens.
+ - I have a total responsibility to the reader. The reader has to trust me and never feel betrayed.
+ - Beauty makes us more like ourselves and more like each other.
+ - I think being interested is really what being civilized is about. I mean, you have to be conscious of everything.
+ - Beauty is not a concept. It is the animal joy of the mind.
+ - There’s art that I would readily buy if I could afford it, and enjoy, but would never write about because it doesn’t seem significant.
+
+47 quotes

@@ -1,0 +1,84 @@
+ - The blood of the martyrs is the seed of the church.
+ - Out of the frying pan, into the fire.
+ - The first reaction to truth is hatred.
+ - Woman is a temple built over a sewer.
+ - See how these Christians love one another.
+ - You can’t undo anything you’ve already done, but you can face up to it. You can tell the truth. You can seek forgiveness. And then let God do the rest.
+ - It is our care for the helpless, our practice of loving kindness, that brands us in the eyes of those who oppose us.
+ - The entire fruit is already present in the seed.
+ - Nothing that is God’s is obtainable by money.
+ - Hope is patience with the lamp lit.
+ - What is nobler than to tread under foot the gods of the nations, to exorcise evil spirits, to perform cures, to seek divine revelations, and to live to God? These are the pleasures – these are the spectacles – that befit Christian men.
+ - Daily, every moment, prayer is necessary to men.
+ - A man becomes a Christian, he is not born one.
+ - The Son of God died; it is by all means to be believed because it is absurd. And he was buried and rose again; the fact is certain, because it is impossible.
+ - The more you mow us down, the more numerous we grow; the blood of Christians is seed.
+ - I believe BECAUSE it’s impossible.
+ - Prevention of birth is a precipitation of murder.
+ - The pleasure of those who injure you lies in your pain. Therefore they will suffer if you take away their pleasure by not feeling pain.
+ - What has Athens to do with Jerusalem.
+ - Patience is God’s nature.
+ - Prayer is the one thing that can conquer God.
+ - Patience ornaments the woman and proves the man.
+ - It is a fundamental human right, a privilege of nature, that every man should worship according to his own convictions.
+ - If the Tiber rises too high, or the Nile too low, the remedy is always feeding Christians to the lions.
+ - Shall we carry a flag? It is a rival to Christ.
+ - For those women sin against God when they rub their skin with ointments, stain their cheeks with rouge, and make their eyes prominent with antimony. To them, I suppose, the artistic skill of God is displeasing!
+ - I believe because it is absurd.
+ - The usual complaint is, ‘I have no other way of earning a living.’ The harsh reply can be, ‘Do you have to live?’
+ - Men remain in ignorance as long as they hate, and they hate unjustly as long as they remain in ignorance.
+ - Illustrious confessors of Jesus Christ, a Christian finds in prison the same joys as the prophets tasted in the desert. Call it not a dungeon, but a solitude. When the soul is in heaven, the body feels not the weight of fetters; it carries the whole man along with it.
+ - Custom without truth is error grown old.
+ - You cannot parcel out freedom in pieces because freedom is all or nothing.
+ - Christians are made, not born.
+ - A holy woman may be beautiful by the gift of nature, but she must not give occasion to lust. If beauty be hers, so far from setting it off she ought rather to obscure it.
+ - Nature is schoolmistress, the soul the pupil; and whatever one has taught or the other has learned has come from God – the Teacher of the teacher.
+ - The Christian does not hurt even his enemy.
+ - Prevention of birth is premature murder, and it makes no difference whether it is a life already born that one snatches away or a life that is coming to birth.
+ - Christ, in disarming Peter, disarmed every soldier.
+ - It is certain because it is impossible. -Certum est quia impossibile.
+ - He who lives only to benefit himself confers on the world a benefit when he dies.
+ - Now we allow that life begins with conception, because we contend that the soul also begins from conception; life taking its commencement at the same moment and place that the soul does.
+ - It is absolutely forbidden to repay evil with evil.
+ - The soul whose bosom lust did never touch Is God’s fair bride; and maiden’s souls are such.
+ - You can judge the quality of their faith from the way they behave. Discipline is an index to doctrine.
+ - Let women paint their eyes with tints of chastity, insert into their ears the word of God, tie the yoke of Christ around their necks, and adorn their whole persons with the silk of sanctity and the damask of devotion.
+ - Against Him those women sin who torment their skin with potions, stain their cheeks with rouge and extend the line of their eyes with black coloring. Doubtless they are dissatisfied with God’s plastic skill. In their own persons they convict and censure the Artificer of all things.
+ - For what war should we not be fit and eager, even though unequal in numbers, we who are so willing to be slaughtered-if, according to that discipline of ours, it was not more lawful to be slain than to slay?
+ - Can a man be poor if he is free from want, if he does not covet the belongings of others, if he is rich in the possession of God? Rather, he is poor who possesses much but still craves for more.
+ - Discipline is an index to doctrine.
+ - Truth persuades by teaching, but does not teach by persuading.
+ - The flesh feeds on the Body and Blood of Christ that the soul may be fattened on God.
+ - Can we not live without pleasure, who cannot but with pleasure die?
+ - I revere the fullness of His Scripture, in which He manifests to me both the Creator and creation. In the gospel moreover, I discover a Minister and Witness of the Creator, even His Word.
+ - Arguments about Scripture achieve nothing but a stomachache and a headache.
+ - Two kinds of blindness are easily combined so that those who do not see really appear to see what is not.
+ - The Word, then, the Christ, is the cause both of our ancient beginning, for lie was in God, and of our well-being. And now this same Word has appeared as man. He alone is both God and man, and the source of all our good things.
+ - He who flees will fight again.
+ - Where our work is, there let our joy be.
+ - Truth engenders hatred of truth. As soon as it appears, it is the enemy.
+ - Nature soaks every evil with either fear or shame.
+ - Divorce these days is a religious vow, as if the proper offspring of marriage.
+ - And when will there be an end of marrying? I suppose, when there is an end of living.
+ - Let women paint their eyes with tints of chastity.
+ - Away with the one who is always seeking, for he never finds anything; for he is seeking where nothing can be found. Away with the one who is always knocking, for he knocks where there is no one to open; away with the one who is always asking, for he asks of one who does not hear.
+ - If the sky stands still, if the earth quakes, if there is famine, if there is pestilence, at once the cry is raised: Throw the Christians to the lions! So many to one?
+ - We say, and we say openly, and while ye torture us, mangled and gory we cry out, “We worship God through Christ!” Believe Him a man: it is through Him and in Him that God willeth Himself to be known and worshipped.
+ - Learn about the incorruptible King, and know his heroes who never inflict slaughter on the peoples.
+ - Indeed heresies are themselves instigated by philosophy.
+ - There is strife between God s ways and human ways; damned by you, we are absolved by God.
+ - But now inquiry is being made concerning these issues. First, can any believer enlist in the military? Second, can any soldier, even those of the rank and file or lesser grades who neither engage in pagan sacrifices nor capital punishment, be admitted into the church? No on both counts.
+ - To forbid birth is only quicker murder.
+ - See how many men of rank have been delivered from devils and healed of diseases!
+ - It is certainly no part of religion to compel religion.
+ - The nature of rumor is known to all.
+ - Woman, thou shouldst ever be clothed in rags and in mourning, appearing only as a penitent, drowned in tears, and expiating thus the sin of having caused the fall of the human race. Woman thou art the gate of the devil. It is thou who hast corrupted those whom Satan dare not attack face to face.
+ - Now then, you dogs, whom the apostle puts outside and who yelp at the God of truth, let us come to your various questions.
+ - There are still preserved among Christians traces of that Holy Spirit that appeared in the form of a dove. They expel evil spirits, perform many cures, and foresee certain events.
+ - But all the other frenzies of passions-impious both toward the bodies and toward the sexes-beyond the laws of nature, we banish not only from the threshold, but from all shelter of the Church, because they are not sins, but monstrosities.
+ - The state of faith allows no mention of impossibility.
+ - Fear is the foundation of safety.
+ - It is a fundamental human right, a privilege of nature, that every man should worship according to his own convictions. One man’s religion neither harms nor helps another man. It is assuredly no part of religion to compel religion, to which free will and not force should lead us.
+ - Indeed it is better to postpone, lest either we complete too little by hurrying, or wander too long in completing it.
+
+82 quotes

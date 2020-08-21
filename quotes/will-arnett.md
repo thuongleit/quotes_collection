@@ -1,0 +1,31 @@
+ - I probably suffered from ADHD, but they weren’t so quick to diagnose it back then. For PE, they’d drop you in the woods with a compass and a pack of matches. It gave you confidence that you could rely on yourself.
+ - When I was in my 20s, I wanted to go after dramatic roles, and I didn’t have a tremendous amount of success with that.
+ - Everything’s not black and white. We choose to make bad decisions or not. I wanted to explore that and shine a light on it. Chip is trying to be a better person and lead a better life. His methods are just super flawed.
+ - This pilot, by far, was the best I ever read – and I hope that insults every other pilot I worked on.
+ - I remember asking my dad, “Why didn’t you ever move to the States? You probably could have made a lot more money.” My dad said, “Because I have an obligation to give back.” I always admired him for that.
+ - The idea of the straight man is very important. But I’d rather it be somebody else, because it’s not as fun. And when I say somebody else, of course I mean Jason Bateman. He’s born to play boring characters because he’s such a bore. He’s one of the most boring human beings.
+ - You’ve got to rely on people that you trust and you love.
+ - I want my son to wear a helmet 24 hours a day.
+ - When all of your friends are getting pregnant, you start thinking about it. But for Amy and I, show business is our baby.
+ - You don’t always have to run. Take good time to watch first, then decide.
+ - And then we’ve got Blades of Glory, and we’ve got Brothers Solomon, and I’ve got a script in development with this guy Chuck Martin who used to write on Arrested, and, you know, we have a few things in various stages of development.
+ - Because we have this whole other human being we have to think about other than ourselves. We had the luxury before of being totally self-centered.
+ - Arrested Development was such an amazing experience in every way, and you know it was very unique in that it was a show that received a lot of critical acclaim, and yet we didn’t ever achieve the ratings that we wanted.
+ - When you’re young, you kind of take yourself seriously, and you think, like, “People need to see what I can do.” And it’s so laughable, especially with actors.
+ - It’s very rare that people are exactly who they appear to be. Venice has a lot of that too, but the face of it is quite beautiful, interesting, and textured.
+ - The show had run its course on the Fox network.
+ - Everybody has some good in them and they can be relied on.
+ - Theres a lot of lying and these are people who are incredibly flawed, and not in very sort of empathetic ways, either. Some of the things they do are pretty awful and some of the things they do to each other are pretty awful.
+ - Arrested Development opened a lot of doors for me.
+ - Yeah, you know, within the context of TV families, these are pretty unsavory characters.
+ - I never really spent time being jealous. Maybe I should have.
+ - Arrested Development opened a lot of doors for me, and once I sort of became, I guess what you’d say “available,” there was a lot of opportunity out there, and it’s been nice; a lot of people have found it in their hearts to offer me movie parts.
+ - But as a result of that, there was, once the show ended, there was this talk for sort of four, five months about what was going to happen, and if we were going to move to Showtime, and if we were going to be bought by ABC or whatever.
+ - I don’t want to make a show about AA because it’s a personal experience for anybody who is a part of that. My relationship with it has changed over the years, and I wanted the show to reflect that in a real way.
+ - I mean, I gotta say one of the greatest victories on that show was when we got picked up for the back nine of the first season, and they made it a full order.
+ - If you have a character that doesn’t have anything wrong with him, there’s nothing funny about it.
+ - I’ve always maintained that I don’t think comedy should be reviewed. I think it’s un-reviewable, because it is so subjective.
+ - Even if you make a mistake, you can go back and do the right thing.
+ - I want my son to wear a helmet 24 hours a day. If it was socially acceptable I’d be the first one to have my kid in a full helmet and like a cage across his face mask.
+
+29 quotes

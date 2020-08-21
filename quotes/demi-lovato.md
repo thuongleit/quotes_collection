@@ -1,0 +1,239 @@
+ - Don’t judge me. You know my name, but not my story.
+ - Share your story with someone. You never know how one sentence of your life story could inspire someone to rewrite their own.
+ - Do what makes you happy, and don’t care what others think.
+ - Always remember, you are beautiful.
+ - Every single day is a battle to stay strong.
+ - You have to stay strong when it gets tough.
+ - Make a wish with all your heart and chase every dream you have. Only you can reach your goals. No one else can achieve them for you.
+ - Nothing is more beautiful than a smile that has struggled through tears.
+ - Love is louder then the pressure to be perfect.
+ - Everyday is a new opportunity to change your life and be who you want to be.
+ - Stay strong, be brave, love hard and true, and you will have nothing to lose.
+ - I’m not perfect and I don’t have to be.
+ - Always remember, actions speak louder than words. No one’s perfect, but we can all strive to be better people.
+ - Music is my life. Music runs through my veins. Music inspires me. Music is a part of me. Music is all around us. Music soothes me. Music gives me hope when I lose faith. Music comforts me. Music is my refuge.
+ - You have the capability to change your life all with a simple shift in perspective.
+ - It’s harder to stay strong than it is to give up. Giving up doesn’t get you anywhere... Only makes you weak.
+ - It’s a complete life change when you really want to better yourself and completely change the patterns that you have had in the past. Do I think I still need work? I think everyone needs work. I just keep working on myself.
+ - I can't set my hopes too high, because every hello ends with a goodbye.
+ - All that matters is that you keep going no matter what.
+ - No matter what you’re going through, there’s a light at the end of the tunnel and it may seem hard to get to it but you can do it and just keep working towards it and you’ll find the positive side of things.
+ - He's not your prince charming if he doesn't make sure you know that you're his princess.
+ - I prefer to cry alone. Pride? No. I just want to avoid trial of people who don’t know the reason of my tears.
+ - It’s not about eating healthy to lose weight. It’s about eating healthy to feel good.
+ - I feel beautiful. I feel strong, and I feel confident in who I am.
+ - Love yourself for who you are and just keep going.
+ - Don’t workout because you think you ‘need’ to, do it because your body deserves love, respect and healthy attention.
+ - Recovery is something that you have to work on every single day and it’s something that it doesn’t get a day off.
+ - The smartest thing a woman can ever learn, is to never need a man.
+ - An impact is like a punch. It may hurt, but it passes.
+ - To be someone’s inspiration is the biggest goal in my life.
+ - Life can be so difficult at times but fighting through the pain is so worth it.
+ - There’s no point to living life unless you make history and the best way to make history is to help others.
+ - Go where you are wanted and stray from where you aren’t. Surround yourself with positive people and environments.
+ - Be proud of who you are.
+ - Every life has a purpose. Share your story and you may help someone find their own.
+ - Find your purpose, find your voice.
+ - Tired of being unhappy? Fix it.
+ - Don’t let anything or anyone define you. You are what you are because of what you make of tough situations in your life.
+ - I try to keep it real. I don’t have time to worry about what I’m projecting to the world. I’m just busy being myself.
+ - Bipolar depression really got my life off track, but today I’m proud to say I am living proof that someone can live, love, and be well with bipolar disorder when they get the education, support and treatment they need.
+ - Sometimes it just feels so amazing to finally stand up for yourself. I highly recommend it. Life is too short to be taken for granted.
+ - I want to be fearless.
+ - When you do your best and live out your dreams, you inspire others to do the same.
+ - Never be ashamed of what you feel. You have the right to feel any emotion that you want, and to do what makes you happy. That’s my life motto.
+ - One of the hardest things was learning that I was worth recovery.
+ - The world is ours if we want it, we can take it, if you just take my hand.
+ - The sky is the limit... for some people aim higher nothing is impossible.
+ - Expectations are just disappointments waiting to happen.
+ - There’s gonna be haters, but don’t let them affect you, don’t let them take away a part of you.
+ - People say sticks and stones may break your bones, but names can never hurt you, but that’s not true. Words can hurt. They hurt me. Things were said to me that I still haven’t forgotten.
+ - Tell me, Do you feel the way I feel? ’Cause nothing else is real In the La La Land machine.
+ - You can be the most beautiful woman in the world and see yourself as hideous. You must love yourself. To look in the mirror and tell yourself that you’re a rock star.
+ - It’s OK to love your body the way it is.
+ - It’s gonna be okay, no matter how hard your rock bottom is, you can rise above it and you can come back.
+ - It’s okay to not be superwoman all the time.
+ - Be grateful for your journey because it is yours alone.
+ - Now I’m a warrior Now i’ve got thicker skin I’m a warrior I’m stronger than i’ve ever been And my amor Is made of steel you can’t get in i’m a warrior And you can never hurt me again.
+ - Sometimes you don’t know who you can and cannot trust. I still learn that over and over again.
+ - I’m not saying I’m perfect, or fixed, but I am learning to love and accept myself. My outlook is more positive and I am happy.
+ - I’m gonna love you like I’ve never been broken I’m gonna say it like it’s never been spoken.
+ - We do the best we can in life, we take things one day at a time and sometimes we all just need a simple reminder of that.
+ - Don’t torment yourself with jealousy. It’s a silly illusion that someone’s life is better than yours when the truth is that each one of us is on a different path.
+ - The mirror can lie. Doesn’t show you what’s inside. And it, it can tell you you’re full of life. It’s amazing what you can hide just by putting on a smile.
+ - Insecurity kills all that is beautiful.
+ - If positivity is what you put out in the universe, positivity is what you get.
+ - The best advice I can give to anyone going through a rough patch is to never be afraid to ask for help.
+ - No matter who you are, where you’ve come from, what you’ve been through... You can make a difference in this world.
+ - As the smoke clears, I awaken, And untangle you from me. Would it make you feel better To watch me, while I bleed? All my windows still are broken, But I’m standing on my feet.
+ - So I’m putting my defenses up, cause I don’t wanna fall in love. If I ever did that. I think I’d have a heart attack.
+ - Now I know who you are U got nothin’ on me, I see I should’ve known it from the start You can’t tell me lies Don’t even try cuz This is goodbye Goodbye.
+ - It’s amazing what you can hide just by putting on a smile.
+ - If you don’t feel pretty, you’re wrong. If you’re dealing with a problem, don’t be afraid to talk. And... If you think you’re alone, listen to my music ’cause I’m here for you.
+ - Sometimes I think you’ll be fine by yourself Cause a dream is a wish you make all alone; It’s easy to feel like you don’t need help, But it’s harder to walk on your own...
+ - No matter what you’re going through, there’s a light at the end of the tunnel.
+ - I think scars are like battle wounds – beautiful, in a way. They show what you’ve been through and how strong you are for coming out of it.
+ - Don’t be afraid to speak up, because someone will be there for you.
+ - Instead of looking in the mirror and focusing on your flaws, look in the mirror and appreciate your best features... everyone has them.
+ - Sometimes we’re gonna have our bad days, but we must continue to work to be great. Keep smiling. It looks beautiful on you!!
+ - It helps to even look in the mirror – and it sounds so cheesy – but if you just look in the mirror and say, ‘You are beautiful,’ and ‘You are worthy,’ those things really help you.
+ - I’m teaching myself to believe in things I don’t understand, I don’t even know if they’re true, but that’s what dreamers do.
+ - My tattoos are reminders to hang in there when things get rough.
+ - Learn from the past and share your experiences with others.
+ - We aren’t robots. What makes us exceptional as humans, is that we have the capacity to feel as many emotions all at once.
+ - I’m losing myself trying to compete with everyone else, instead of just being me.
+ - I think every time you get your heart broken, there’s a little piece of it that chips away, and I don’t think you ever get that piece back. But I think you’re able to bandage it with time and with new people and other things that make you happy.
+ - I want to live my life without filters. I don’t walk on egg shells. I say what I want and I’m a very free spirit.
+ - Whatever you dream of doing one day, don’t give up on that dream because you never know where it can take you.
+ - My tattoos say “Stay strong.” “Stay” on one wrist and “strong” on the other. I’m able to look at them and be thankful for being alive.
+ - At the end of the day it doesn’t matter what anybody else thinks as long as you’re happy.
+ - Be certain that you’re not modeling yourself after someone, but just being who you are meant to be. Go ahead, be weird because “normal” is boring!
+ - Look at what you’ve done, you’re losing me is what you’ve won. Got me planning to go solo.
+ - I’m not a model – I have curves. I find things that accentuate my body, a woman’s body, and I always wear things that I feel comfortable in.
+ - If I could turn back time, I would tell myself that I’m beautiful every day, because we all are! And we need to start believing it!
+ - My mother is everything to me. She’s my anchor, she’s the person I go to when I need to talk to someone. She is an amazing woman.
+ - You can turn your life around. You can through hell and back. It is possible. Never underestimate yourself. I believe in you.
+ - You can’t love other people until you love yourself.
+ - I’m a lightweight easy to fall easy to break With every move my whole world shakes Keep me from falling apart.
+ - I pray every night before I go to sleep and every morning when I wake up.
+ - We’re all human so of course there are days when I’m feeling insecure. When that happens, I take time to reflect on how far I’ve come and how far I will continue to go – it helps me feel empowered and self-assured.
+ - If you’re hurting, don’t be afraid to seek the help you need! Speak to someone – it may just change your life.
+ - Sometimes I smile so big, I get scared that my face is gonna explode.
+ - Stay Strong.
+ - Eating disorders are serious mental illnesses, not lifestyle choices.
+ - And if you think you’re alone. Put on my music. Because I’m going to be there for you.
+ - It’s important to remember how our friends have such a powerful influence on us and vice versa. This can be a great thing as long as your friends surround you with love, loyalty, respect and positivity.
+ - I learned the power of storytelling and the responsibility that people with influence have to speak out.
+ - I love life on the road. I’m in a different city every night and it never gets old.
+ - You’re the missing piece I need The song inside of me I need to find you I gotta find you.
+ - Very skinny girls were on the cover of magazines and that’s what I was looking up to so that’s what I had to idolize. I don’t want that for young girls to idolize.
+ - One day you’ll be an inspiration at others.
+ - My words of encouragement for teen girls suffering with eating disorders, self-harm, anything... is to get help. It’s the most important thing you can do for yourself, and it can change your life and potentially save your life.
+ - Creativity is what helps me escape a lot of my inner demons.
+ - If you’re living your life in fear, then you’re just not living.
+ - Skies are crying, I am watching, Catching teardrops in my hands. Only silence, as it’s ending, Like we never had a chance. Do you have to make me feel Like there’s nothing left of me?
+ - Never be ashamed of your problems, your body, yourself. You are worth life.
+ - Sometimes I’m not always doing amazing but it’s okay... because everyone struggles and it’s okay to be flawed because that’s what makes me... Me.
+ - Sometimes being afraid can show more strength than being fearless.
+ - I’m not going to sacrifice my mental health to have the perfect body.
+ - The mirror can lie. It doesn’t show you what’s inside.
+ - I’m very passionate about charity... Performing is my passion. But it’s not gonna change the world. That’s why I give back.
+ - If I’m able to use my voice to do good in the world then I definitely want to do that.
+ - But you’re so hypnotizing You’ve got me laughing while I sing You’ve got me smiling in my sleep And I can see this unravelling Your love is where I’m falling But please don’t catch me.
+ - There needs to be more variety on television so young girls growing up don’t feel pressured to look one specific way. Tall, thin, curvy, short, whatever you are, you are beautiful.
+ - I believe in aliens. I think it would be way too selfish of us as mankind to believe we are the only lifeforms in the universe.
+ - Embracing yourself is important and I wish that all women would realize how beautiful they are, inside and out.
+ - If we could throw away the hate and make love last another day, don’t give up just for today, life would be so simple.
+ - The little things that you do From across the room I see you sendin’ me clues They’re in the way You make me move.
+ - You see, this heart, won’t settle down; just like a child, running, scared, from a clown. Demi Lovato.
+ - People don’t realize how badly verbal harassment and cyber bullying affects you. I wish they had hit me in the face and gotten it over with, because what they said to me, sticks to me to this day. It affected me into the person that I am today.
+ - She was scared Unprepared Lost in the dark Falling apart I can’t survive Without you by my side We’re gonna be alright This is what happens when Two worlds collide.
+ - Tall, thin, curvy, short – whatever you are, you are beautiful.
+ - I don’t let anyone’s insecurities, emotions, or opinions bother me. I know that if I am happy, that’s all that matters to me.
+ - You’re beautifully and wonderfully made.
+ - I don’t wanna be afraid, I wanna wake up feeling beautiful today, and know that I’m okay.
+ - I feel like I’m held more accountable to stay healthy now because now I’m a role model to young girls to not have eating issues and to not say, ‘Hey, it’s OK to starve yourself’ or ‘It’s OK to throw up after your meals’ – that’s not OK.
+ - You don’t owe anybody the present other than yourself. Take time for you. Respect yourself and your privacy. Set boundaries.
+ - Be who you are and don’t allow anyone to affect the confidence you have in your individuality.
+ - In my dreams you are standing right beside me, two hearts finally colliding, then i wake up and realise, realise, this is real life.
+ - Go ahead and believe that no one shines brighter than you. Become amazing, and be happy.
+ - Skys are crying, I am watching, catching teardrops in my eyes.
+ - I won’t change anything in my life I’m staying myself tonight.
+ - It’s very crucial that you get your feelings out- but don’t ever inflict harm on your body because your body is sacred.
+ - When your feet start to hurt, place yourself in someone else’s shoes.
+ - I met so many young girls and even older women who had literally been through so much that I couldn’t even imagine. I was maybe a little more closed-minded, and I learned from them never to judge anyone.
+ - Cutting is not stupid. Stupid is being bad to someone and get them to the point of bleeding.
+ - Technically, if a girl wants to sparkle she can put on glitter but I think the correct answer would be a smile because no one pays attention to your short when you have a nice smile on your face.
+ - Your imperfections make you beautiful, they make you who you are.
+ - I tried to conform to what everyone thinks is beautiful. But my genetics gave me a curvy figure, and I’ve come to understand that in the Latina culture, that is beautiful.
+ - The girls with prettiest smiles seem to tell saddest stories.
+ - You know you’ve made it when you can dye your hair blue.
+ - When you start to beat yourself up, remind yourself of how worthy you are of love.
+ - I still had a normal childhood with my friends from school.
+ - All of my past challenges have helped me become who I am today.
+ - If I help one person out with getting through the struggles that I’ve had, then I’ve done my job on this planet and this life.
+ - If it weren’t for people that stand out, this whole world would be really, really boring.
+ - I love having a boyfriend but need to be secure on my own first.
+ - I feel most confident when I’m taking care of my body and my skin.
+ - Love yourself before any other person. That’s when you can really survive on your own.
+ - And you said we wouldn’t make it But look how far we’ve come For so long my heart was breaking But now we’re standing strong The things you say They me fall harder each day You’re a trainwreck But I wouldn’t love you if you changed.
+ - Everyone has the bully or the mean girl or the ex-boyfriend who tried to bring them down.
+ - It doesn’t matter where you come from or who you think you are, we’re all human beings with beating hearts.
+ - You really need to be careful of who you hang out with and who you listen to. They can lead you down the wrong path.
+ - We can’t stop the world, but there’s so much more that we could do You can’t stop this girl from falling more in love with you You said nobody has to know Give us time to grow, and take it slow but I’d stop the world if it finally let us be alone Let us be alone oooo ohhh oh.
+ - One of the greatest joys in life is watching a child laugh.
+ - I’m an American for marriage equality. I believe that love comes in all different shapes, sizes, and colors. So whether you’re LGBT or straight, your love is valid, beautiful, and an incredible gift.
+ - I’m a lightweight better be careful what you say With every word I’m blown away You’re in control of my heart.
+ - My sisters and my mom, those people help me get through every single day.
+ - Growing up in America, I never really appreciated my culture. I knew what being Hispanic was, but I thought that since I didn’t look Hispanic, I was white.
+ - I want to help with bullying because there are girls who can’t just up and homeschool and focus on their career.
+ - Watch a movie that makes you laugh or listen to a song that makes you cry. Embrace your emotions and be proud of what you feel.
+ - Violence is the easy way out and it only leads to more violence. We need people in this world who are willing to find solutions through peace, through communication, honesty and diplomacy. World peace may seem impossible, but it’s worth aiming for.
+ - Remember, passing judgment on someone else’s character, is only a reflection of your own.
+ - Never call a girl fat, even if you’re joking.
+ - Sometimes staying strong means not putting yourself in uncomfortable or triggering situations.
+ - The only thing I could see myself doing is music – songwriting or producing or something. I’ve never seen myself being in any other business, I’ve been working in this one since I was 5 years old! I could do other things, but I wouldn’t want to!
+ - I was looking the other day at the calendar and I was like oh my gosh we only have two weeks left and I’ve been on tour since June I don’t know how I’m going to switch back into normal life. It’s been so much fun.
+ - Don’t say you’re sorry, ’cause I’m not even breaking. You’re not worth the time that this is taking.
+ - My stepdad provided me with an amazing childhood. I played outside like a normal kid, I rode my bike, I walked to school, but the happiest times were when I was acting.
+ - Maybe you’ll call me someday Hear the operator say the numbers no good And that She had a world of chances for you She had a world of chances for you She had a world of chances Chances you were burning through.
+ - I wish I could tell every young girl with an eating disorder, or who has harmed herself in any way, that she’s worthy of life and that her life has meaning. You can overcome and get through anything.
+ - I was just so sick. I thought that orange juice was going to make me fat.
+ - Now on Friday nights, if I want to go hang out with friends, I go hang out with friends. If I want to stay in and be in the hot tub and have people over to watch movies, I do that.
+ - In treatment, all of the negative things I did were stripped away and I had to start processing my feelings.
+ - When I was four years old, I remember looking in the mirror and running my fingers over my stomach and thinking I was fat.
+ - Light on my heart, Light on my feet, Light in your eyes, I can’t even speak Do you even know, How you make me weak.
+ - The high that I got from helping people and being around the love was better than any other high I’ve gotten from any drug.
+ - You don’t have to have a thigh gap to be beautiful.
+ - Our love is like a song but you won’t sing along.
+ - Just because you’re on the Disney Channel and you always have a smile on your face, they think you’re perfect, and it’s obvious that nobody’s life really is.
+ - If I decided I’m the girl to change the world, I can do it anytime.
+ - Use the voice that you were given. Shout what you believe in from the top of your lungs. Never let anyone quiet you.
+ - You are worth more than harming yourself.
+ - Who said I can’t wear my Converse With my dress, well baby That’s just me!
+ - I think that’s what goes wrong in a lot of people’s careers, so many people are afraid to say, “This person has a problem” or “This person maybe shouldn’t do this” because they’re afraid of losing their jobs.
+ - On TV, you have wardrobe fittings, you have four cameras on you at all times, and you’re worried about your angles and your lighting and your shots.
+ - Sometimes I wake up and think I wish id never told the world my story but I know good comes from it.
+ - Whenever you’re going through stuff, it definitely reflects in the way you wear your makeup and hair. Wearing less makeup is more comfortable for me.
+ - Life is so beautiful and special, I can’t believe I ever let myself forget that.
+ - I don’t have many deal breakers. I’ve done so much in my life, it doesn’t feel right to judge other people.
+ - Hearts can break and never make a sound.
+ - I’m also very passionate about charity because it helps people who don’t have as loud of a voice as I do.
+ - If the world runs out of chocolate today... It was not my fault. :l.
+ - It’s a big responsibility dating me. Because I come with a little bit of baggage, you know?
+ - As a kid I’d play with homemade recipes, like putting pineapple on my face to exfoliate my skin and doing facial steams with lavender or peppermint oils. I just loved doing stuff like that. It’s what motivated me to launch my skin care line.
+ - You make a difference about your life it’s a knock on the head of mind setting your life you see the stars they shine across the way you build a bridge you make it shine the only way to make a difference is to help the community!
+ - I learned that you go through things, you deal with them and that’s what empowers you and ultimately makes you a happy person.
+ - I’ve come to realize your career is all about the choices you make. Every single one matters.
+ - Where I am today... I still have my ups and downs, but I take it one day at a time and I just hope that I can be the best that I can possibly be, not only for myself, but also young people that are out there today that need someone to look up to.
+ - I think I’ve definitely had my rock bottom and I think that was probably right before I went into treatment where I said, ‘I definitely need help.’
+ - The more active I am, the better I feel and the longer I can stay onstage without losing my breath.
+ - What, I’m supposed to succumb to your ideal image of what this is? No. I’m gonna stand above that and I’m gonna be who I am and be a rolemodel for these girls.
+ - After so long being thin, it was terrifying being heavier. But I am a naturally curvy Hispanic girl. I don’t deprive myself.
+ - Some of my fans have said that because I’ve been able to speak about my issues, that they’re not afraid to speak about theirs, which is an amazing feeling.
+ - I want girls to know that its okay when they grow up and their bodychanges.
+ - I want to get to the point where one day I don’t have to have anything but a rug and a microphone stand on stage and still be able to sell out places like Madison Square Garden, like Bruce Springsteen does.
+ - Being a celebrity can be dangerous. Nobody says ‘no.’
+ - I believe that I definitely wasn’t given this voice just to sing. I think it was given to me for a bigger purpose.
+ - When I sing or play music, I’m able to relieve myself of whatever it is that I’m struggling with.
+ - I know that I have a voice and can use it for good or bad. It’s a gift from God.
+ - If you took away music, I wouldnt have a reason to live.
+ - My personal style is kind of sophisticated edgy, I guess. I wear a lot of black and it’s what I feel comfortable in.
+ - I think that women who know who they are are beautiful.
+ - The Fact That You Have The Ability To Stand On Stage And Sing While You’re Crying Is So Brave.
+ - I knew from the second I stepped onstage. I was like, yep, this is what I want to do.
+ - I’ve taken all the scandals back and made them part of my story and my music.
+ - I never found out until I went into treatment that I was bipolar.
+ - I’m getting older and the performance onstage was definitely, it was a bit sexier, but it wasn’t too much. I don’t want to scare off my fans. At the same time my fans are growing up with me, and I don’t want to go way over the top.
+ - After hundreds of auditions and nothing, you’re sitting home and wondering, ‘What am I doing?’
+ - I can feel glamorous without makeup, especially on my lips. They’re naturally reddish, so I often let them go.
+ - I never thought that I’d be a role model. Everyone kind of just made me a role model, and I hated that.
+ - I don’t think there’s going to be a day when I don’t think about food or my body, but I’m living with it, and I wish I could tell young girls to find their safe place and stay with it.
+ - I’m honest about the journey I’ve been on, so I definitely don’t take dating lightly anymore.
+ - If it takes me 10 years to be the musician I want to be, great.
+ - I don’t see myself doing television, but I do see myself directing.
+ - Rocker dudes don’t have a lot of swagger.
+ - I want my music to do the explaining.
+ - One of the reasons I was so unhappy for years was because I never embraced my emotions and I was trying to stay in control.
+
+237 quotes

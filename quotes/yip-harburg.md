@@ -1,0 +1,34 @@
+ - If happy little bluebirds fly beyond the rainbow, why oh why can’t I?
+ - Words make you think. Music makes you feel. A song makes you feel a thought.
+ - No matter how much I prove and prod, I cannot quite believe in God; But oh, I hope to God that He Unswervingly believes in me.
+ - Follow the fellow who follows a dream.
+ - Ding-dong, the wicked witch is dead.
+ - Someday I’ll wish upon a star.
+ - A Russian child asked his mother : “does God know we don’t believe in Him?”
+ - Leave the atom alone.
+ - They who meet on an April night are forever lost in love, if there’s moonlight all about and there’s no moon above.
+ - April in Paris, chestnuts in blossom, holiday tables under the trees.
+ - No matter how high or great the throne, What sits on it is the same as your own.
+ - For what we are about to receive, Oh Lord ‘tis Thee we thank,’ said the cannibal as he cut a slice off the missionary’s shank.
+ - Did God who gave us flowers and trees, Also provide the allergies?
+ - Once I built a railroad, now it’s done. Brother, can you spare a dime?
+ - The Lord made Adam, the Lord made Eve; he made ’em both a little bit naive.
+ - Music gives ‘wings’ to words.
+ - Oh, innocent victims of Cupid, remember this terse little verse: To let a fool kiss you is stupid. To let a kiss fool you is worse.
+ - All the heroes of tomorrow are the heretics of today.
+ - When the melody touches your heart emotionally and the words hit your brain intellectually, more than likely you’ll find you’ll have an excellent song to sing.
+ - The world would be a safer place, If someone had a plan, Before exploring outer space, To find the inner man.
+ - Songs are the pulse of a nation’s heart. A fever chart of its health.
+ - I am one of the last of a small tribe of troubadours, who still believe that life is a beautiful and exciting journey with a purpose and grace which are well worth singing about.
+ - Lives of great men all remind us greatness takes no easy way.
+ - My whole family has been having trouble with immigrants ever since we came to this country.
+ - Follow the yellow brick road.
+ - This we learn from Watergate that almost any creep’ll be glad to help the Government overthrow the people.
+ - There ought to be a law against necessity.
+ - We gotta be free – The eagle and me. see Amelia Jenks Bloomer, Emancipation of Women.
+ - When the idle poor become the idle rich, you’ll never know just who is who, or which is which.
+ - Virtue is its own revenge.
+ - The greatest romance in the life of a lyricist is when the right word meets the right note; often, however, a Park Avenue phrase elopes with a Bleecker Street chord, resulting in a shotgun wedding and a quickie divorce.
+ - How are things in Glocca Mora this fine day?
+
+32 quotes

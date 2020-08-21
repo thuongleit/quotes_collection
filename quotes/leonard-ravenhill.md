@@ -1,0 +1,218 @@
+ - No man is greater than his prayer life.
+ - Are the things you are living for worth Christ dying for?
+ - Great eagles fly alone; great lions hunt alone; great souls walk alone-alone with God. Such loneliness is hard to endure, and impossible to enjoy unless God accompanied. Prophets are lone men; they walk alone, pray alone and God makes them alone.
+ - The greatest miracle that God can do today is to take an unholy man out of an unholy world, and make that man holy and put him back into that unholy world and keep him holy in it.
+ - The early Church was married to poverty, prisons and persecutions. Today, the church is married to prosperity, personality, and popularity.
+ - Smart men walked on the moon, daring men walked on the ocean floor, but wise men walk with God.
+ - A man who is intimate with God will never be intimidated by men.
+ - The secret of praying is praying in secret. A sinning man will stop praying, and a praying man will stop sinning.
+ - Entertainment is the devil’s substitute for joy. The more joy you have in the Lord the less entertainment you need.
+ - The only reason we don’t have revival is because we are willing to live without it!
+ - Faith is taking God at His Word.
+ - Maybe you are the key to revival in your church.
+ - If you want to be popular, preach happiness. If you want to be unpopular, preach holiness.
+ - I’d rather have ten people that want God than 10,000 people who want to play church.
+ - No man is greater than his prayer life. The pastor who is not praying is playing; the people who are not praying are straying. The pulpit can be a shop window to display one’s talents; the prayer closet allows no showing off.
+ - There are two kinds of people in the world – only two kinds. Not black or white, rich or poor, but those either dead in sin or dead to sin.
+ - Any method of evangelism will work – if God is in it.
+ - If He is not Lord of all, He is not Lord at all.
+ - The self-sufficient does not pray, the self-satisfied will not pray, the self-righteous cannot pray. No man is greater than his prayer life.
+ - God doesn’t answer prayer, He answers desperate prayer!
+ - A man with an experience of God is never at the mercy of a man with an argument.
+ - If weak in prayer we are weak everywhere.
+ - You never have to advertise a fire. Everyone comes running when there’s a fire. Likewise, if your church is on fire, you will not have to advertise it. The community will already know it.
+ - If Jesus had preached the same message that ministers preach today, He would never have been crucified.
+ - Five minutes after you die you’ll know how you should have lived.
+ - Quit playing, start praying. Quit feasting, start fasting. Talk less with men, talk more with God. Listen less to men, listen to the words of God. Skip travel, start travail.
+ - Preaching affects men; prayer affects God. Preaching affects time; prayer affects eternity.
+ - I want to see the glory of God invade this generation.
+ - If you kneel before God, you will stand before men.
+ - We must learn to pray, and we must pray to learn to pray.
+ - If you’re going to be a true Christian, I’ll tell you one thing amongst others: it’ll be a lonely life. It’s a narrow way and it becomes narrower and narrower and narrower.
+ - My main ambition in life is to be on the Devil’s most wanted list.
+ - Most Christians pray to be blessed. Few pray to be broken.
+ - Christ has not conquered my affections if He has to compete for my attention.
+ - There are three persons living in each of us: the one we think we are, the one other people think we are, and the one God knows we are!
+ - He who fears God fears no man.
+ - The true church lives and moves and has its being in prayer.
+ - Better for you to have one sleepless night on earth than millions in hell.
+ - Prayer is not a preparation for the battle; it is the battle!
+ - There is a world of difference between knowing the Word of God and knowing the God of the Word.
+ - You know, we live in a day when we are more afraid of holiness than we are of sinfulness.
+ - An experience of God that costs nothing does nothing.
+ - Jesus did not come into the world to make bad men good. He came into the world to make dead men live!
+ - Christ cared enough for sinners to die for them. Do we care enough for sinners to live to reach them?
+ - The self-righteous never apologize.
+ - LORD strengthen me where I am too weak and weaken me where I am too strong!
+ - Entertainment is the devil’s substitute for joy.
+ - The secret of praying is praying in secret.
+ - Our God is a consuming fire. He consumes pride, lust, materialism, and other sin.
+ - Prayer is as mighty as God, because He has committed Himself to answer it.
+ - Preaching is not a profession, it’s a passion.
+ - If we had more hell fire preaching in the pulpit then we would have less hell bound people in the pew.
+ - If we displease God, does it matter whom we please? If we please Him, does it matter whom we displease?
+ - Christianity is the only religion in the world where a man’s God comes and lives inside of Him!
+ - The law of prayer is the law of harvest: sow sparingly in prayer, reap sparingly; sow bountifully in prayer, reap bountifully. The trouble is we are trying to get from our efforts what we never put into them.
+ - Men give advice; God gives guidance.
+ - Praying men stop sinning and sinning men stop praying.
+ - God has to work in a man before He can work through a man.
+ - Prayer is no substitute for work; equally true is it that work is no substitute for prayer.
+ - Is the world crucified to you or does it fascinate you?
+ - I have no faith in my faith. My faith is in the faithful God.
+ - When you’re sitting in a dark room, you can either sit and curse the darkness – or you can light a candle.
+ - How can you pull down strongholds of Satan if you don’t even have the strength to turn off your TV?
+ - Could a mariner sit idle if he heard the drowning cry? Could a doctor sit in comfort and just let his patients die? Could a fireman sit idle, let men burn and give no hand? Can you sit at ease in Zion with the world around you damned?
+ - Preaching is not a profession, it’s a passion! If a man can’t preach with passion he shouldn’t preach at all.
+ - This life is a dressing room for eternity – THAT’S ALL IT IS!
+ - When you’re born in fire, smoke will never do.
+ - You can’t live wrong and pray right.
+ - Church unity comes from corporate humility.
+ - The most shattering thought I’ve ever had is my personal accountability to God one day.
+ - Prayer in its highest form is agonizing soul sweat.
+ - Notice, we never pray for folks we gossip about, and we never gossip about the folk for whom we pray! For prayer is a great deterrent.
+ - If we had more sleepless nights in prayer, there would be far fewer souls to have a sleepless eternal night in hell.
+ - Nobody stood by Jesus. Maybe nobody will stand by you. It’s a lonely life, but it’s a glorious life.
+ - The more men pray, the less worldly they become. The less they pray, the more worldly they become. I am, of course, speaking of professing Christians at this point.
+ - To stand before men on behalf of God is one thing. To stand before God on behalf of men is something entirely different.
+ - The less power a church has, the more entertainment it has.
+ - Many of us are hunting mice – while lions devour the land.
+ - There is a deeper life. It is as deep as a personal Gethsemane and as costly as a personal Calvary.
+ - Jehovah Witnesses don’t believe in hell and neither do most Christians.
+ - Christianity is Christ plus nothing!
+ - Men of prayer must be men of steel, for they will be assaulted by Satan even before they attempt to assault his kingdom.
+ - Love is blind. Marriage is an eye-opener.
+ - You can have all of your doctrines right – yet still not have the presence of God.
+ - The sinner’s prayer has sent more people to Hell than all the bars in America.
+ - Prayer is not an argument with God to persuade him to move things our way, but an exercise by which we are enabled by his Spirit to move ourselves his way.
+ - By our attitude to prayer we tell God that what was begun in the Spirit we can finish in the flesh.
+ - The true Church is born from above. In it there are no sinners, and outside of it no saints. No man can put another’s name on its member’s roll; and no man can cross another’s name off that roll.
+ - The world out there is not waiting for a new definition of Christianity; it’s waiting for a new demonstration of Christianity.
+ - Gethsemane is where He died; the cross is only the evidence.
+ - If Thou canst do something with us and through us, then please, God, do something without us! Bypass us and take up a people who now know Thee not!
+ - Any true revival can be proven by the fact that it changed the moral climate of an area or nation.
+ - The darker it gets, the brighter your light will shine.
+ - Let the fires go out in the boiler room of the church and the place will still look smart and clean, but it will be cold. The Prayer Room is the boiler room for its spiritual life.
+ - We need more prophets in our pulpits and less puppets.
+ - How can you have a dead service with a living Christ?
+ - You never have to advertise a fire.
+ - I think one of the serious breakdowns in modern evangelism is this: it has offered too much for too little. What we do mostly is offer forgiveness. We need cleansing! There is no true conversion until a man takes up his cross.
+ - One of these days some simple soul will pick up the Book of God, read it, and believe it. Then the rest of us will be embarrassed.
+ - We are not eternity conscious enough.
+ - Christianity is not being weighed in the balance and found wanting. It’s being tried, found difficult and rejected!
+ - Prayer is preoccupation with our needs. Praise is preoccupation with our blessings. Worship is preoccupation with GOD Himself.
+ - In revival, God is not concerned about filling empty churches, He is concerned about filling empty hearts.
+ - Surely revival delays because prayer decays.
+ - What are you going to do when you get to eternity, if you can’t stick in an hour with God down here?
+ - Life begets life by its very nature. By the same token, inspired men inspire.
+ - As long as we are content to live without revival, we will.
+ - Maturity comes from obedience, not necessarily from age.
+ - John the Baptist never performed any miracles. Yet, he was greater than any of the Old Testament prophets.
+ - If there are a million roads into hell, there’s not one road out.
+ - The Holy Book of the living God suffers more from its exponents today than from its opponents.
+ - How do you learn to pray? Well how do you learn to swim? Do you sit in a chair with your feet up drinking coke learning to swim? You get down and you struggle. That’s how you learn to pray.
+ - The world has lost the power to blush over its vice; the Church has lost her power to weep over it.
+ - A man may study because his brain is hungry for knowledge, even Bible knowledge. But he prays because his soul is hungry for God.
+ - Only they who fulfill God’s commands have a claim on the Lord.
+ - If Jesus came back today, he wouldn’t cleanse the temple, he’d cleanse the pulpit.
+ - Revival is when God gets so sick and tired of being misrepresented that He shows Himself.
+ - A true shepherd leads the way. He does not merely point the way.
+ - The Church right now has more fashion than passion, is more pathetic than prophetic, is more superficial than supernatural.
+ - Revival is the Spirit’s passion within the believer to know and to obey the total will of God.
+ - The question isn’t were you challenged. The question is were you changed?
+ - Thou shalt call his name Jesus. He shall save his people from their sins.
+ - If you have the smile of God what does it matter if you have the frown of men?
+ - The understanding soul prays; the praying soul gets understanding.
+ - God asks the best we have Because He gave the Best He had.
+ - Isn’t it amazing that God gives breath to a man who is going to blaspheme Him all day!
+ - The man who can get believers to praying would, under God, usher in the greatest revival that the world has ever known.
+ - We live in a day of itching ears, but I have no commission from God to scratch them.
+ - This silly world outside thinks it is finished with Jesus Christ but they haven’t even started with Him yet.
+ - Why do we expect to be better treated in this world than Jesus was?
+ - Christians don’t tell lies, they just go to church and sing them. How many times have you stood and sang, “Take my life and let it be” when you haven’t given Him one ounce?
+ - There’s one thing we need above everything else; it’s something we don’t talk about these days. We need a mighty avalanche of conviction of sin.
+ - The most fervent prayer meetings are in hell.
+ - The church has paid a terrible price for statistics!
+ - The Bible is either absolute, or it’s obsolete.
+ - The Sunday morning service shows how popular your church is. The evening services show how popular your pastor is. Your private prayer time shows you how popular God is!
+ - No man – I don’t care how colossal his intellect – No man is greater than his prayer life.
+ - There’s only one proof of the Holy Ghost in your life and that’s a holy life.
+ - The church that is man-managed instead of God-governed is doomed to failure. A ministry that is college-trained but not Spirit-filled works no miracles.
+ - If the whole church goes off into deception, that will in no way excuse us for not following Christ.
+ - There are only two kinds of persons: those dead in sin and those dead to sin.
+ - If a Christian is not having tribulation in the world, there’s something wrong!
+ - Today’s church wants to be raptured from responsibility.
+ - When God-given, heaven-sent revival does come, it will undo in weeks the damage that blasphemous Modernism has taken years to build.
+ - No church group that knows spiritual warfare has wiener roasts or even passion plays. There is a real warfare. I have said before that we are an arrogant, self-styled bunch of believers. We “believe” to the point of inconvenience – and then quit.
+ - The Bible definitely is infallible, how else could it survive so many years of bad preaching?
+ - The surest thing in the world is not death and taxes, it’s death and eternity. Yet, we’re so unconcerned.
+ - While we often huddle in groups of like-minded people, those with faith blaze a trail that threatens all of our comfort zones. Faith offends the stationary.
+ - We have substituted organizing for agonizing and equipment for endowment.
+ - When there’s something in the Bible that churches don’t like, they call it ‘legalism.’
+ - Today Christians spend more money on dog food then missions.
+ - Easy believeism dishonors the blood and prostitutes the altar. We must alter the altar, for the altar is a place to die on. Let those who will not pay this price leave it alone!
+ - The tragedy is that we have too many dead men in the pulpits giving out too many dead sermons to too many dead people.
+ - The world is waiting for a practical demonstration of the Gospel of the grace of God!
+ - The Church used to be a lifeboat rescuing the perishing. Now she is a cruise ship recruiting the promising.
+ - Until the church is holy there’ll be no rapture – I don’t care what theory of the rapture you have.
+ - All you have to do is get in a closer walk with God and you’ll find your enemies are in your own church.
+ - Where there is no passion, the church perishes, even though it be full to the doors.
+ - The brutal, soul-shaking truth is that we are so earthly minded we are of no heavenly use.
+ - You can’t develop character by reading books. You develop it from conflict.
+ - It is much easier to wear a cross than to bear a cross.
+ - Your doctrine can be as straight as a gun barrel and just as empty!
+ - Ten million years will not put a strain on the clock of eternity.
+ - The Cinderella of the church of today is the prayer meeting.
+ - This much is sure in all churches, forgetting party labels; the smallest meeting numerically is the prayer-meeting. If weak in prayer we are weak everywhere.
+ - Nobody else can give you a clean heart but God.
+ - A wet eyed preacher will never preach dry sermons.
+ - You must be much WITH God before you can be much FOR God.
+ - Everyone recognizes that Stephen was Spirit-filled when he was performing wonders. Yet, he was just as Spirit-filled when he was being stoned to death.
+ - Men build our churches but do not enter them, print our Bibles but do not read them, talk about God but do not believe Him, speak of Christ but do not trust Him for salvation, sing our hymns and then forget them.
+ - Notice to step out of time into eternity.
+ - Testimonies are wonderful. But, so often our lives don’t fit our testimonies.
+ - The highway of Christian living is strewn with has-beens.
+ - The longer I live, the more I find I don’t know.
+ - America is not dying because of the strength of humanism but the weakness of evangelism.
+ - Never have so many left so much to so few.
+ - What good does it do to speak in tongues on Sunday if you have been using your tongue during the week to curse and gossip?
+ - At God’s counter there are no sale days, for the price of revival is ever the same: travail!
+ - We have too many preacherettes preaching too many sermonettes to too many Christianettes smoking cigarettes.
+ - A popular evangelist reaches your emotions. A true prophet reaches your conscience.
+ - The cross is going to judge everything in your life: your eating, your drinking, your sleeping, your spending, your talking. Everything is cross-examined!
+ - You won’t become a saint by studying your Bible; you’ll become a saint by living it.
+ - If I don’t believe the Word of God, why should you believe it? If we don’t believe it, why should the world believe us?
+ - I doubt if 5% of professing Christians in America are born again-and that’s true of England!
+ - The world does not believe the Bible and the church does not obey it.
+ - In the New Testament church it says they were all amazed – And now in our churches everybody wants to be amused.
+ - The only people who want to change the Gospel are those who are unchanged by it.
+ - I believe every church is either supernatural or superficial. I don’t believe there’s any middle ground.
+ - A saint is good when nobody is looking.
+ - When are people finally going to get serious about being serious?
+ - Would we send our daughters off to have sex if it would benefit our country? Yet, we send our sons off to kill when we think it would benefit our country!
+ - Finney preached and sometimes the whole congregation would get up and leave! that’s good preaching.
+ - It may be that Satan has little cause to fear most preaching. Yet past experiences sting him to rally all his infernal army to fight against God’s people praying.
+ - Ministers who do not spend two hours a day in prayer are not worth a dime a dozen – degrees or no degrees.
+ - The apostles had no gold, but lots of glory. We have lots of gold, but no glory.
+ - Praying Christians know nothing of their friends.
+ - Why in God’s name do you expect to be accepted everywhere? How is it the world couldn’t get on with the holiest man that ever lived, and it can get on with you and me?
+ - We don’t preach salvation. We preach forgiveness.
+ - Our seminaries today are turning out dead men.
+ - There’s a difference between changing your opinion, and changing your lifestyle.
+ - Faith that is going to be trusted is going to be tested.
+ - Why is there this criminal indifference to the lostness of men? Our condemnation is that we know how to live better than we are living.
+ - I find it most intriguing to contemplate the fact that while men are considering what place to give Jesus Christ in history, He has already decided what place to give them in eternity.
+ - No faith is required to do the possible; actually only a morsel of this atom-powered stuff is needed to do the impossible, for a piece as large as a mustard seed will do more than we have ever dreamed of.
+ - The men that have been the most heroic for God have had the greatest devotional lives.
+ - Children can tell you what Channel 7 says, but not what Matthew 7 says.
+ - We need to close every church in the land for one Sunday and cease listening to a man so we can hear the groan of the Spirit which we in our lush pews have forgotten.
+ - I doubt that more than two percent of professing Christians in the United States are truly born again.
+ - The only power that God yields to is that of prayer.
+ - I want to so live that God doesn’t have to have to give me one minute’s.
+ - Some preachers master thier subjects; some subjects master the preacher; once in awhile one meets a preacher who is both master of, and also mastered by his subject. The apostle Paul, I am sure, was in that category.
+ - One thing and one thing alone keeps us from complete decay in this hour – the church, the true Church.
+ - There’s one thing that life does where ever it goes- it begats life.
+ - A Christian who isn’t praying, is only playing!
+ - Every step you make in Jesus Christ enrages the devil.
+ - Everyone wants to be clothed but no one wants to be stripped.
+
+216 quotes

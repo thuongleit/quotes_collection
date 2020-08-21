@@ -1,0 +1,28 @@
+ - With high trust, success comes faster, better, and at lower cost.
+ - We’re reviewing everything to see how we can do it better, faster, and more efficiently.
+ - Value will always be on top of everyone’s lists now, right along with safety.
+ - We tried to set up a company that patterned ourselves after Southwest in all the fun, the spirit, the great people, the smile, the efficiency side of it, but we’ve added some extras that people aren’t used to finding on Southwest.
+ - Trust strikes at the heart of our success at JetBlue. Trust is key to the speed of our growth. The Speed of Trust articulates better than any book that trust is the one thing that changes everything-in business and in life. With high trust, success comes faster, better, and at lower cost.
+ - Nobody ever thought about having to protect the passengers from the pilots.
+ - Our people get profit-sharing checks. I got a report the other day that says that 84 percent of our people participate in our stock purchase program, where they can buy stock at a 15 percent discount.
+ - Never, ever forget that you are a servant.
+ - And, of course, customers really need to feel safe and are seeking reassurance when they fly.
+ - Of course, we should all be aware of what we’re packing in our carry-on luggage – anything that might be considered dangerous could be confiscated at a security checkpoint.
+ - It’s so important to experience what your customers are experiencing and listen to their suggestions.
+ - People who invest in aviation are the biggest suckers in the world.
+ - I believe the public’s confidence would be increased if the federal government took over the functions of airport security screening for all passengers.
+ - I’m always crunching numbers, so my calculator watch is a must.
+ - Seat assignment didn’t matter if you’re flying Dallas to Houston and you did it 38 times a day. People just got on, you didn’t sit next to your wife, and it was a 45-minute flight. It didn’t matter.
+ - You don’t have to spend a jillion dollars on advertising to get your word out. What matters is that customers have a good experience with your product at every single point of contact.
+ - This is not a business where you can hand off and run by remote control.
+ - The Blackberry is really essential for keeping up on my emails when I’m out of the office, which is a lot.
+ - Just keep thinking about the good side of ADD – the creativity and the originality it can stimulate.
+ - I actually thrive on all the challenges, and I don’t feel like ADD has impaired my ability.
+ - I really see low-fare carriers, quality low-fare carriers anyway, continuing to become more and more popular.
+ - We are just interested in dealing with the people were paying every day. We know federal law allows them to vote in a union at anytime, but we think we can resist that by talking to our own people and giving them enough upside.
+ - People were desperately trying to fill their seats for the summer. And so prices are really low right now. And so they are kept from raising prices to make up for that difference.
+ - A lot of airlines have come and gone.
+ - And you’ve got to remember that I’m also the father of nine children.
+ - Certainly, we are hurt by the high fuel prices because it raises our cost.
+
+26 quotes

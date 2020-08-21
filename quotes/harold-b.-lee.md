@@ -1,0 +1,47 @@
+ - Stay true in the dark, and humble in the spotlight.
+ - Happiness does not depend on what happens outside of you, but what happens inside of you.
+ - Life is fragile, handle with prayer.
+ - Be loyal to the royal that is in you, for you are the child of a King.
+ - The most important of all the commandments of God is that one that you are having the most difficulty keeping today.
+ - You must learn to walk to the edge of the light, and then a few steps into the darkness; then the light will appear and show the way before you.
+ - The most important of the Lord’s work you will ever do will be the work you do within the walls of your own home.
+ - Testimony is not something you have today, and you are going to have always. A testimony is fragile. It is as hard to hold as a moonbeam. It is something you have to recapture every day of your life.
+ - The greatest waste in all the world is living below our potential.
+ - The Lord is going to keep His people informed if they will listen.
+ - You cannot lift another soul until you are standing on higher ground than he is. You cannot light a fire in another soul unless it is burning in your own soul.
+ - I earnestly urge all our people to unite under the true banner of the Master, to teach the gospel of Jesus Christ so powerfully that no truly converted person could ever be aligned with these controversial concepts and procedures contrary to the Lord’s plan of salvation.
+ - The heaviest burden that one has to bear in this life is the burden of sin.
+ - Pure womanhood plus priesthood means exaltation. But womanhood without priesthood, or priesthood without pure womanhood doesn’t spell exaltation.
+ - For by doing these things the gates of hell shall not prevail against you; yea, and the Lord God will disperse the powers of darkness from before you, and cause the heavens to shake for your good, and his name’s glory.
+ - You, our youth of today, are among the most illustrious spirits to be born into mortality in any age of the world. Yours is a noble heritage and a wonderful opportunity.
+ - How glorious and near to the angels is youth that is clean. This youth has joy unspeakable here and eternal happiness hereafter. Sexual purity is youth’s most precious possession. It is the foundation of all righteousness.
+ - As I say, it never ceases to amaze me how gullible some of our Church members are.
+ - It’s all right to pull the cow out of the mud on Sunday, provided that you don’t push him in on Saturday night.
+ - The heaviest burden that one has to bear in this life is the burden of delaying too long before putting the fruit in the Jell-O so it’s too firm and the chunks just sit on top.
+ - I want to say something to you men. You cannot destroy the appointment of a prophet of God, but you can cut the thread that binds you to the prophet of God, and sink yourselves to hell.
+ - The recurrence of fundamentals is essential to perpetuity.
+ - Don’t try to live too many days at a time.
+ - Missionary work is but home teaching to those who are not now members of the Church, and home teaching is nothing more or less than missionary work to Church members.
+ - It is not the function of religion to answer all the questions about God’s moral government of the universe, but to give us courage through faith to go on in the face of questions to which we find no answer in our present status.
+ - The most important message that I can give to you and to all the world is to keep the commandments of God.
+ - I only ask to go where the Lord would have me go, and only to receive what the Lord would have me receive, knowing that more important than sight is the witness that one may have by the witness of the Holy Ghost to his soul that things are so and that Jesus is the Christ, a living personage.
+ - I have faith in the future of this promised land of America and in its institutions of representative government, but more than that, I have faith in you, the youth of America, to build even more securely on the foundations laid by the faith and devotion of your pioneer fathers.
+ - The laws of God given to mankind are embodied in the gospel plan, and the Church of Jesus Christ is made responsible for teaching these laws to the world.
+ - My humble prayer is that all men everywhere may understand more fully the significance of the atonement of the Savior of all mankind, who has given us the plan of salvation which will lead us into eternal life, where God and Christ dwell.
+ - Every man stamps his value on himself. The price we challenge for ourselves is given us by others. -Man is made great or little by his own will.
+ - The most effective preaching of the gospel is when it is accompanied by beautiful, appropriate music.
+ - Just as a flood-lighted temple is more beautiful in a severe storm or in a heavy fog, so the gospel of Jesus Christ is more glorious in times of inward storm and of personal sorrow and tormenting conflict.
+ - Never permit yourself to indulge in cheap flattery, which often times means to merely satisfy the individuals vanity and sometimes to ingratiate the flatter into the good graces of the flattered.
+ - If it were not for the assurance that I have that the Lord is near to us, guiding, directing, the burden would be almost beyond my strength, but because I know that He is there, and that He can be appealed to, and if we have ears to hear attuned to Him, we will never be left alone.
+ - I bear you my witness that the Savior is closer to us than you have any idea. He will be close to you and the powers divine will be at your side when you have nowhere else to turn.
+ - Conversion must mean more than just being a ‘card-carrying’ member of the church with a tithing receipt, a membership card, a temple recommend, etc. It means to overcome the tendencies to criticize and to strive continually to improve inward weaknesses and not merely the outward appearances.
+ - Our father in heaven governs the affairs of men by placing specific individuals upon the earth to lead at specific times and inspiring and directing them.
+ - Never is the gospel of Jesus Christ more beautiful than in times of intense need, or in times of a severe storm within us as individuals, or in times of confusion and turmoil.
+ - It isn’t the Lord who withholds himself from us. It is we who withhold ourselves from him because of our failure to keep his commandments.
+ - In order for good to blossom it must be cultivated and exercised by constant practice, and to be truly righteous there is required a daily pruning of the evil growth of our characters by a daily repen- tance from sin.
+ - And what he ought to see, hear and understand is truth-eternal truth-and then practice it. That is conversion.
+ - Remember that, brethren. You cannot destroy the appointments of the prophets of God. The Lord knows whom He wants to preside in His Church, and sometimes it takes a lot of practicing, guiding, testing, before He may know whether or not one of us is prepared for the present assignment.
+ - We can be the best taught people on the face of the earth but the trouble is we don’t live as well as we have been taught.
+ - Don’t be down on that you’re not up on.
+
+45 quotes

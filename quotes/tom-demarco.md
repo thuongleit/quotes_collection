@@ -1,0 +1,22 @@
+ - You can’t control what you can’t measure.
+ - The purpose of a team is not goal attainment but goal alignment.
+ - Computer system analysis is like child-rearing; you can do grievous damage, but you cannot ensure success.
+ - Get the right people. Then no matter what all else you might do wrong after that, the people will save you. That’s what management is all about.
+ - First law of Bad Management: If something isn’t working, do more of it.
+ - There are a million ways to lose a work day, but not even a single way to get one back.
+ - Quality is free, but only to those who are willing to pay heavily for it.
+ - The fundamental response to change is not logical, but emotional.
+ - The pathology of setting a deadline to the earliest articulable date essentially guarantees that the schedule will be missed.
+ - The manager’s function is not to make people work, it is to make it possible for people to work.
+ - Training is practice doing a new task much more slowly than an expert would do it.
+ - Organizational busy work tends to expand to fill the working day.
+ - Product quality has almost nothing to do with defects or their lack.
+ - Visual supervision is a joke for development workers. Visual supervision is for prisoners.
+ - Some of the most flowery praise you hear on the subject of teams is only hypocrisy. Managers learn to talk a good game about teams even when they’re secretly threatened by the whole concept.
+ - If you find yourself concentrating on the technology rather than the sociology, you’re like the vaudeville character who loses his keys on a dark street and looks for them on the adjacent street because, as he explains, “The light is better there.”
+ - What we are looking for is managers who are awake enough to alter the world as they find it, to make it harmonize with what they and their people are trying to accomplish.
+ - The QSM Software Almanac is an invaluable resource. It establishes a norm for software projects, including best of class, worst of class and averages. In addition, it profiles the state of the art of software construction and enhancement. I wish I’d had this wonderful reference book years ago.
+ - The more you focus on control, the more likely you’re working on a project that’s striving to deliver something of relatively minor value.
+ - If nothing is declared unchangeable, then the organization will resist all change.
+
+20 quotes

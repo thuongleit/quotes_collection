@@ -1,0 +1,31 @@
+ - It is easier to do a job right than to explain why you didn’t.
+ - The less government interferes with private pursuits, the better for general prosperity.
+ - The atonement of Jesus Christ is the only remedy and rest for my soul.
+ - There is but one reliance.
+ - The government should not be guided by Temporary Excitement, but by Sober Second Thought.
+ - All the lessons of history and experience must be lost upon us if we are content to trust alone to the peculiar advantages we happen to possess. Look, being a lame flunky for a batshit crazy person isn’t all that bad. Stay alive long enough and you may sneak your way to Washington!
+ - Is it possible to be anything in this country without being a politician?
+ - I shall tread in the footsteps of my illustrious predecessor.
+ - Those who have wrought great changes in the world never succeeded by gaining over chiefs; but always by exciting the multitude. The first is the resource of intrigue and produces only secondary results, the second is the resort of genius and transforms the universe.
+ - My conviction of the necessity of further legislative provisions for the safe-keeping and disbursement of the public moneys and my opinion in regard to the measures best adapted to the accomplishment of those objects have been already submitted to you.
+ - The second, sober thought of the people is seldom wrong, and always efficient.
+ - I tread in the footsteps of illustrious men, whose superiors it is our happiness to believe are not found on the executive calendar of any country.
+ - I cannot expect to perform the task with equal ability and success.
+ - To avoid the necessity of a permanent debt and its inevitable consequences, I have advocated and endeavored to carry into effect the policy of confining the appropriations for the public service to such objects only as are clearly with the constitutional authority of the Federal Government.
+ - The law increasing and organizing the military establishment of the United States has been nearly carried into effect, and the Army has been extensively and usefully employed during the past season.
+ - Every proper exertion has been made and will be continued to carry out the wishes of Congress in relation to the tobacco trade, as indicated in the several resolutions of the House of Representatives and the legislation of the two branches.
+ - I am more than ever convinced of the dangers to which the free and unbiased exercise of political opinion – the only sure foundation and safeguard of republican government – would be exposed by any further increase of the already overgrown influence of corporate authorities.
+ - In a government whose distinguishing characteristic should be a diffusion and equalization of its benefits and burdens the advantage of individuals will be augmented at the expense of the community at large.
+ - With respect to the northeastern boundary of the United States, no official correspondence between this Government and that of Great Britain has passed since that communicated to Congress toward the close of their last session.
+ - Between Russia and the United States sentiments of good will continue to be mutually cherished.
+ - In time of peace there can, at all events, be no justification for the creation of a permanent debt by the Federal Government. Its limited range of constitutional duties may certainly under such circumstances be performed without such a resort.
+ - Banks properly established and conducted are highly useful to the business of the country, and will doubtless continue to exist in the States so long as they conform to their laws and are found to be safe and beneficial.
+ - On receiving from the people the sacred trust twice confided on my illustrious predecessor, and which he has discharged so faithfully and so well, I know that I can not expect to perform the arduous task with equal ability and success.
+ - Most men are not scolded out of their opinion.
+ - The connection which formerly existed between the Government and banks was in reality injurious to both, as well as to the general interests of the community at large.
+ - It seems proper, at all events, that by an early enactment similar to that of other countries the application of public money by an officer of Government to private uses should be made a felony and visited with severe and ignominious punishment.
+ - The condition of the tribes which occupy the country set apart for them in the West is highly prosperous, and encourages the hope of their early civilization. They have for the most part abandoned the hunter state and turned their attention to agricultural pursuits.
+ - The national will is the supreme law of the Republic, and on all subjects within the limits of his constitutional powers should be faithfully obeyed by the public servant.
+ - If laws acting upon private interests can not always be avoided, they should be confined within the narrowest limits, and left wherever possible to the legislatures of the States.
+
+29 quotes

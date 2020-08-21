@@ -1,0 +1,72 @@
+ - What we need is more people who specialize in the impossible.
+ - Over every mountain there is a path, although it may not be seen from the valley.
+ - Those who are willing to be vulnerable move among mysteries.
+ - A mind too active is no mind at all.
+ - Deep in their roots, all flowers keep the light.
+ - I wake to sleep, and take my waking slow. I feel my fate in what I cannot fear. I learn by going where I have to go.
+ - The darkness has it’s own light.
+ - By daily dying, I have come to be.
+ - Love is not love until love’s vulnerable.
+ - May my silences become more accurate.
+ - The self says, I am; The heart says, I am less; The spirit says, you are Nothing.
+ - In a dark time, the mind begins to see.
+ - In the kingdom of bang and blab.
+ - What is madness but nobility of soul at odds with circumstance?
+ - Should we say the self, once perceived, becomes the soul?
+ - How body from spirit slowly does unwind, until we are pure spirit at the end.
+ - Time marks us while we are marking time.
+ - I have gone into the waste lonely places.
+ - I long for the imperishable quiet at the heart of form.
+ - Be sure that whatever you are is you.
+ - I am overwhelmed by the beautiful disorder of poetry, the eternal virginity of words.
+ - Art is the means we have of undoing the damage of haste. It’s what everything else isn’t.
+ - What have I done, dear God, to deserve this perpetual feeling that I’m almost ready to begin something really new?
+ - What falls away is always. And is near.
+ - I learned not to fear infinity, The far field, the windy cliffs of forever, The dying of time in the white light of tomorrow, The wheel turning away from itself, The sprawl of the wave, The on-coming water.
+ - The light comes brighter from the east; the cawOf restive crows is sharper on the ear.
+ - And what a congress of stinks!- Roots ripe as old bait, Pulpy stems, rank, silo-rich, Leaf mold, manure, lime, piled against slippery planks, Nothing would give up life: Even the dirt kept breathing a small breath.
+ - Love begets love. This torment is my joy.
+ - You must believe: a poem is a holy thing – a good poem, that is. The poem, even a short time after being written, seems no miracle; unwritten, it seems something beyond the capacity of the gods.
+ - I can hear, underground, that sucking and sobbing, In my veins, in my bones I feel it,- The small water seeping upward, The tight grains parting at last. When sprouts break out, Slippery as fish, I quail, lean to beginnings, sheath-wet.
+ - What’s important? That which is dug out of books, or out of the guts?
+ - A lively understandable spirit Once entertained you. It will come again. Be still. Wait.
+ - God bless the roots! Body and soul are one.
+ - I learn by going where I have to go.
+ - So much of adolescence is an ill-defined dying, An intolerable waiting, A longing for another place and time, Another condition.
+ - In this place of light: he dares to live Who stops being a bird, yet beats his wings Against the immense immeasurable emptiness of things.
+ - I came where the river Ran over stones; My ears knew An early joy. And all the waters Of all the streams Sang in my veins That summer day.
+ - I wish I could find an event that meant as much as simple seeing.
+ - Any fool can take a bad line out of a poem; it takes a real pro to throw out a good line.
+ - Being, not doing, is my first joy.
+ - Pain wanders through my bones like a lost fire.
+ - The visible exhausts me. I am dissolved in shadow.
+ - I came to love, I came into my own.
+ - Nothing would give up life: Even the dirt keeps breathing a small breath.
+ - Fear was my father, Father Fear. His look drained the stones.
+ - You must believe a poem is a holy thing, a good poem, that is.
+ - But when I breath with the birds, The spirit of wrath becomes the spirit of blessings, And the dead begin from their dark to sing in my sleep.
+ - The soul has many motions, body one.
+ - All lovers live by longing, and endure: Summon a vision and declare it pure.
+ - I lose and find myself in the long water. I am gathered together once more.
+ - I can’t go on flying apart just for those who want the benefit of a few verbal kicks. My God, do you know what poems like that cost? They’re not written vicariously: they come out of actual suffering, real madness.
+ - We think by feeling. What is there to know?
+ - Live in a perpetual great astonishment.
+ - To follow the drops sliding from a lifting oar, Head up, while the rower breathes, and the small boat drifts quietly shoreward...
+ - The stones were sharp, The wind came at my back; Walking along the highway, Mincing like a cat.
+ - The fields stretch out in long unbroken rows. We walk aware of what is far and close. Here distance is familiar as a friend. The feud we kept with space comes to an end.
+ - How terrible the need for God.
+ - A too explicit elucidation in education destroys much of the pleasure of learning. There should be room for sly hinters, masters of suggestion.
+ - The damage of teaching: the constant contact with the undeveloped.
+ - Reason? That dreary shed, that hutch for grubby schoolboys.
+ - Teach as an old fishing guide takes out a beginner.
+ - I teach my sighs to lengthen into songs.
+ - Art is our defense against hysteria and death.
+ - In our age, if a boy or girl is untalented, the odds are in favor of their thinking they want to write.
+ - And I walked, I walked through the light air; I moved with the morning.
+ - I bleed my bones, their marrow to bestowUpon that God who knows what I would know.
+ - Wake the happy words.
+ - Civilization is over-rated, but there isn’t much else.
+ - The poet: would rather eat a heart than a hambone.
+ - And I rejoiced in being what I was.
+
+70 quotes

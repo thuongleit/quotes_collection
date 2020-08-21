@@ -1,0 +1,64 @@
+ - A charming woman doesn’t follow the crowd. She is herself.
+ - Giving credit where credit is due is a very rewarding habit to form. Its rewards are inestimable.
+ - A charming woman is a busy woman.
+ - Love isn’t something you find. Love is something that finds you.
+ - Wearing the correct dress for any occasion is a matter of good manners.
+ - Everything worthwhile, everything of any value, has its price. Everything anyone has ever wanted has come neatly wrapped up in its penalties.
+ - In silence – and in self-defense – I figured things out in my own little way.
+ - I believe that if we have lived our lives fully and well, and have accomplished, at least in part, the things we were put here to do, we will be prepared – mentally, physically and spiritually – for our separation from this world.
+ - When I left 20th Century-Fox to freelance, my agent believed that getting big money was the way to establish real importance in our industry.
+ - If you use disappointments as sort of mid- semester exams, for learning, you will learn that every disappointment you overcome makes you stronger- and wiser. The greatest success stories have been lived by those who had to grow strong and wise in that very way.
+ - I believe in living today. Not in yesterday, nor in tomorrow.
+ - Nearly everyone I met, worked with, or read about was my teacher, one way or another.
+ - Glamour is something no woman can be born with. It’s not a gift at all. It’s more of a concoction than anything else.
+ - In my dreams, I could be a Princess, and that’s what I was. Like most little girls, I believed nothing less than a Prince could make my dreams come true.
+ - Unless some misfortune has made it impossible, everyone can have good posture.
+ - I do not hold with those who think it is all right to do whatever you want so long as it doesn’t hurt anyone. Who’s to be the judge of that?
+ - Your hands, your eyes, your voice, your thoughts are your servants.
+ - I can’t imagine dating a boy, meeting him only outside the home. What’s a home and family for if it’s not the center of one’s life?
+ - I believe in the efficacy of prayer and I have a deep and sorrowful sympathy for one who is without faith. I believe our Father answers every prayer-all prayers-with His matchless, inscrutable wisdom, with infinite compassion and with love.
+ - No one is ever too old, too rich, too poor, to pray.
+ - As an actress, I have to be objective about myself. If I don’t criticize myself, there are plenty who will do a find job of it for me!
+ - Certainly tears are given to us to use. Like all good gifts, they should be used properly.
+ - Just because you want to be glamorous, don’t be a sheep about your eye makeup.
+ - I think teenage impatience is just plain human nature! I think every generation has to cope with different circumstances, different problems. But it’s the world that’s changed. Human nature hasn’t.
+ - I’ve a full-length triple-panel mirror in which I can see every possible angle, and I spend quite a lot of time in front of it.
+ - Glamour is something you can’t bear to be without once you’re used to it.
+ - I think making mistakes is as inevitable as receiving disappointments.
+ - I was deaf and dumb and blind to all but me, myself and I.
+ - Selfishness and self-absorption are deadly charm-exterminators.
+ - If you have enthusiasm, you have a very dynamic, effective companion to travel with you on the road to Somewhere.
+ - I learned you have to fight for yourself in the picture business.
+ - I believe in the Golden Rule. I believe in practicing it.
+ - I’ve learned that getting what you want gives you a pretty high batting average, and leaves you plenty to struggle for.
+ - The split second she ceases to care is the only time a woman ceases to be attractive.
+ - I don’t yearn to be a child again.
+ - I don’t know many ambition- ridden people who really enjoy themselves. Even success doesn’t seem to still the insatiable, gnawing hunger of their ambition. Ambition is a good gift, but it cannot be all.
+ - Fashion should not be expected to serve in the stead of courage or character.
+ - I’d lived by quotations, practically all my life.
+ - I was as impatient about finding my dream man as I was about everything else I wanted.
+ - A face is like the outside of a house, and most faces, like most houses, give us an idea of what we can expect to find inside.
+ - We can’t have everything! It took a lot of growing up for me to realize this unalterable fact and to discipline myself into accepting it.
+ - I believe you have to nurture your conscience.
+ - I believe that prayer is our powerful contact with the greatest force in the universe.
+ - What you don’t know intrigues you more than what you do know.
+ - It’s so important to look relaxed.
+ - As an actress, emotions are my business, my stock-in-trade. As such, I’ve dealt with them nearly all my life.
+ - Success can’t be forced.
+ - Gratitude isn’t a burdening emotion.
+ - Like charity, I believe glamour should begin at home.
+ - I couldn’t bear it if anyone knew I had hardly any self-confidence at all.
+ - I’d thought of myself as a great big motion picture star from the time I was 6.
+ - Just after I entered my teens I suddenly entertained an insatiable enthusiasm for the delightful habit of criticizing others.
+ - A face that is really lovely in repose can fall apart if, when its owner stars to talk, she distorts every feature.
+ - In 1949 there was a new thing called Television, to which my agency and advisers opposed as a performance medium.
+ - I’ve always been scared to death of pain – afraid, even, to think of it.
+ - I want no part of making any contribution whatsoever to the despair which eventually follows downbeat thinking.
+ - There are no ugly ducklings.
+ - Of course it was Mamma who both stopped my career and crystallized my determination to resume it.
+ - In common with many others in the varied branches of our profession, my academic education is subnormal.
+ - There is no personal achievement in being born beautiful.
+ - I’m not sure the public knows what it wants.
+ - I was a very wanting child.
+
+62 quotes

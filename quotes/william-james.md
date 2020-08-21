@@ -1,0 +1,484 @@
+ - If you can change your mind, you can change your life.
+ - Be not afraid of life. Believe that life is worth living, and your belief will help create the fact.
+ - Act as if what you do makes a difference. It does.
+ - The greatest weapon against stress is our ability to choose one thought over another.
+ - Thoughts become perception, perception becomes reality. Alter your thoughts, alter your reality.
+ - We are like islands in the sea, separate on the surface but connected in the deep.
+ - The greatest discovery of any generation is that a human can alter his life by altering his attitude.
+ - Nothing is so fatiguing as the eternal hanging on of an uncompleted task.
+ - I don’t sing because I’m happy; I’m happy because I sing.
+ - The art of being wise is the art of knowing what to overlook.
+ - Human beings can alter their lives by altering their attitudes of mind.
+ - Belief creates the actual fact.
+ - Action may not always bring happiness, but there is no happiness without action. 
+ - If you want a quality, act as if you already had it.
+ - Begin to be now what you will be hereafter. 
+ - The deepest principle in human nature is the craving to be appreciated.
+ - Anything you may hold firmly in your imagination can be yours.
+ - The great use of life is to spend it for something that will outlast it.
+ - The greatest revolution of our generation is the discovery that human beings, by changing the inner attitudes of their minds, can change the outer aspects of their lives.
+ - Procrastination is attitude’s natural assassin. There’s nothing so fatiguing as an uncompleted task.
+ - It is our attitude at the beginning of a difficult task which, more than anything else, will affect its successful outcome.
+ - Seek out that particular mental attribute which makes you feel most deeply and vitally alive, along with which comes the inner voice which says, ‘This is the real me,’ and when you have found that attitude, follow it.
+ - To change one’s life: 1. Start immediately. 2. Do it flamboyantly. 3. No exceptions.
+ - Pessimism leads to weakness, optimism to power.
+ - No decision is, in itself, a decision.
+ - Beyond the very extreme of fatigue and distress, we may find amounts of ease and power we never dreamed ourselves to own; sources of strength never taxed at all because we never push through the obstruction
+ - Formula to live your dream: 1. Be bold. 2. Begin now, 3. No exceptions.
+ - Whenever two people meet, there are really six people present. There is each man as he sees himself, each man as the other person sees him, and each man as he really is.
+ - Whenever you’re in conflict with someone, there is one factor that can make the difference between damaging your relationship and deepening it. That factor is attitude.
+ - If you believe that feeling bad or worrying long enough will change a past or future event, then you are residing on another planet with a different reality system.
+ - Give your dreams all you’ve got, and you’ll be amazed at the energy that comes out of you.
+ - The world we see that seems so insane is the result of a belief system that is not working. To perceive the world differently, we must be willing to change our belief system, let the past slip away, expand our sense of now, and dissolve the fear in our minds.
+ - To kill time is not murder, it’s suicide.
+ - Faith means belief in something concerning which doubt is theoretically possible.
+ - We don’t laugh because we’re happy, we’re happy because we laugh.
+ - Acceptance of what has happened is the first step to overcoming the consequences of any misfortune.
+ - Psychology is a science, and teaching is an art; and sciences never generate arts directly out of themselves.
+ - Our view of the world is truly shaped by what we decide to hear.
+ - Is life worth living? It all depends on the liver.
+ - Common sense and a sense of humor are the same thing, moving at different speeds. A sense of humor is just common sense, dancing.
+ - Since you make evil or good by your own thoughts, it is your ruling of your thoughts which proves to be your principal concern.
+ - Everybody should do at least two things each day that he hates to do, just for practice.
+ - The greatest discovery of the 20th Century is that our attitude of mind determines our quality of life, not circumstances.
+ - Act the part and you will become the part.
+ - The strenuous life tastes better.
+ - If any organism fails to fulfill its potentialities, it becomes sick.
+ - Your hopes, dreams and aspirations are legitimate. They are trying to take you airborne, above the clouds, above the storms, if you only let them.
+ - My first act of free will shall be to believe in free will.
+ - A new idea is first condemned as ridiculous and then dismissed as trivial, until finally, it becomes what everybody knows.
+ - From the Vedas we learn a practical art of surgery, medicine, music, house building under which mechanized art is included. They are encyclopedia of every aspect of life, culture, religion, science, ethics, law, cosmology and meteorology.
+ - Just for today I will exercise my soul in three ways: I will do somebody a good turn and not get found out. I will do at least two things I don’t want to do.
+ - When you have to make a choice and don’t make it, that is in itself a choice.
+ - The union of the mathematician with the poet, fervor with measure, passion with correctness, this surely is the ideal.
+ - Most people live, whether physically, intellectually or morally, in a very restricted circle of their potential being.
+ - What holds attention determines action.
+ - A chain is no stronger than its weakest link, and life is after all a chain.
+ - All of our life is but a mass of small habits – practical, emotional, intellectual and spiritual – that bear us irresistibly toward our destiny.
+ - A great many people think they are thinking when they are merely rearranging their prejudices.
+ - Once a decision is reached, stop worrying and start working.
+ - So it is with children who learn to read fluently and well: They begin to take flight into whole new worlds as effortlessly as young birds take to the sky.
+ - He who refuses to embrace a unique opportunity loses the prize as surely as if he had failed.
+ - There is but one cause of human failure. And that is man’s lack of faith in his true Self.
+ - To improve the golden moment of opportunity, and catch the good that is within our reach, is the great art of life.
+ - Agisci come se quel che fai, facesse la differenza. La fa!
+ - Knowledge about life is one thing; effective occupation of a place in life, with its dynamic currents passing through your being, is another.
+ - Could the young but realize how soon they will become mere walking bundles of habits, they would give more heed to their conduct while in the plastic state.
+ - The word ‘cause’ is an altar to an unknown god.
+ - If you want to change your life, do it flamboyantly and start immediately.
+ - My experience is what I agree to attend to.
+ - Compared with what we ought to be, we are only half awake. Our fires are damped, our drafts are checked. We are making use of only a small part of our possible mental and physical resources.
+ - To study the abnormal is the best way of understanding the normal.
+ - When once a decision is reached and execution is the order of the day, dismiss absolutely all responsibility and care about the outcome.
+ - In its broadest term, religion says that there is an unseen order, and that our supreme good lies in rightful relations to it.
+ - We have to live today by what truth we can get today and be ready tomorrow to call it falsehood.
+ - History is a bath of blood.
+ - With no attempt there can be no failure; with no failure no humiliation.
+ - Lives based on having are less free than lives based either on doing or being.
+ - The education of attention would be an education par excellence.
+ - We are not only gregarious animals, liking to be in sight of our fellows, but we have an innate propensity to get ourselves noticed, and noticed favorably, by our kind.
+ - The aim of science is always to reduce complexity to simplicity.
+ - This life is worth living, we can say, since it is what we make it.
+ - Let everything you do be done as if it makes a difference.
+ - We are spinning our own fates, good or evil, never to be undone.
+ - There are no differences but differences of degree between different degrees of difference and no difference.
+ - In modern eyes, precious though wars may be they must not be waged solely for the sake of the ideal harvest. Only when forced upon one, is a war now thought permissible.
+ - Man lives for science as well as bread.
+ - The sway of alcohol over mankind is unquestionably due to its power to stimulate the mystical faculties of human nature, usually crushed to earth by the cold facts and dry criticisms of the sober hour.
+ - In any project the important factor is your belief. Without belief, there can be no successful outcome.
+ - We need only in cold blood to act as if the thing in question were real and it will infallibly end by growing into such a connection with our life that it will become real.
+ - We are all ready to be savage in some cause. The difference between a good man and a bad one is the choice of the cause.
+ - An idea, to be suggestive, must come to the individual with the force of revelation.
+ - Despair lames most people, but it wakes others fully up.
+ - The path to cheerfulness is to sit cheerfully and to act and speak as if cheerfulness were already there.
+ - Strength is a facade for the proud, weakness is a mask for the lazy.
+ - There can be no final truth in ethics any more than in physics, until the last man has had his experience and said his say.
+ - An act has no ethical quality whatever unless it be chosen out of several all equally possible.
+ - Truth is what will be steadily borne out by subsequent experience.
+ - Earnestness means willingness to live with energy, though energy bring pain.
+ - The best argument I know for an immortal life is the existence of a man who deserves one.
+ - Hogamus, higamous Man is polygamous Higamus, hogamous Woman monogamous.
+ - All our life, so far as it has definite form, is but a mass of habits.
+ - Our acts of voluntary attending, as brief and fitful as they are, are nevertheless momentous and critical, determining us, as they do, to higher or lower destinies.
+ - Instinct leads, logic does but follow.
+ - A winner’s attitude: it may be difficult, but it’s possible. A loser’s attitude: It may be possible, but it’s too difficult.
+ - Man can change his life simply by changing his attitude.
+ - If you only care enough for a result, you will almost certainly attain it. Only you must, then, really wish these things, and wish them exclusively, and not wish at the same time a hundred other incompatible things just as strongly.
+ - Metaphysics means nothing but an unusually obstinate effort to think clearly.
+ - New habits can be launched.
+ - There is a law in psychology that if you form a picture in your mind of what you would like to be, and you keep and hold that picture there long enough, you will soon become exactly as you have been thinking.
+ - Man alone of all the creatures of earth can change his own pattern. Man alone is the architect of his own destiny.
+ - Success plus Self-esteem equals Pretensions.
+ - Our normal waking consciousness, rational consciousness as we call it, is but one special type of consciousness, whilst all about it, parted from it by the filmiest of screens, there lie potential forms of consciousness entirely different.
+ - Do something everyday for no other reason than you would rather not do it, so that when the hour of dire need draws nigh, it may find you not unnerved and untrained to stand the test.
+ - The first thing to learn in intercourse with others is non-interference with their own particular ways of being happy, provided those ways do not assume to interfere by violence with ours.
+ - Language is the most imperfect and expensive means yet discovered for communicating thought.
+ - In the dim background of mind we know what we ought to be doing but somehow we cannot start.
+ - There is nothing so absurd that it cannot be believed as truth if repeated often enough.
+ - We and God have business with each other, and in opening ourselves to God’s influence our deepest destiny is fulfilled.
+ - The trail of the human serpent is thus over everything.
+ - To neglect the wise sayings of great thinkers is to deny ourselves the truest education.
+ - Philosophy is at once the most sublime and the most trivial of human pursuits.
+ - Where is it, this present? It has melted in our grasp, fled ere we could touch it, gone in the instant of becoming.
+ - My thinking is first and last and always for the sake of my doing, and I can only do one thing at a time.
+ - How pleasant is the day when we give up striving to be young-or slender.
+ - Every individual existence goes out in a lonely spasm of helpless agony.
+ - If you give appreciation to people, you win their goodwill. But more important than that, practicing this philosophy has made a different person of me.
+ - Science, like life, feeds on its own decay. New facts burst old rules; then newly divined conceptions bind old and new together into a reconciling law.
+ - We are mere bundles of habits.
+ - Choose a self and stand by it.
+ - The most immutable barrier in nature is between one man’s thoughts and another’s.
+ - In order to disprove the assertion that all crows are black, one white crow is sufficient.
+ - All natural goods perish. Riches take wings; fame is a breath; love is a cheat; youth and health and pleasure vanish.
+ - Real servants don’t try to use God for their purposes. They let God use them for His purposes.
+ - In the practical use of our intellect, forgetting is as important as remembering.
+ - The drunken consciousness is one bit of the mystic consciousness, and our total opinion of it must find its place in our opinion of that larger whole.
+ - Tension is a habit. Relaxing is a habit. Bad habits can be broken, good habits formed.
+ - The baby, assailed by eyes, ears, nose, skin, and entrails at once, feels it all as one great blooming, buzzing confusion.
+ - We must be careful not to confuse data with the abstractions we use to analyse them.
+ - The emotions aren’t always immediately subject to reason, but they are always immediately subject to action.
+ - It is as important to cultivate your silence power as your word power.
+ - Our esteem for facts has not neutralized in us all religiousness. It is itself almost religious. Our scientific temper is devout.
+ - Compared to what we ought to be, we are half awake.
+ - We can act as if there were a God; feel as if we were free; consider Nature as if she were full of special designs; lay plans as if we were to be immortal; and we find then that these words do make a genuine difference in our moral life.
+ - The community stagnates without the impulse of the individual. The impulse dies away without the sympathy of the community.
+ - The aim of a college education is to teach you to know a good man when you see one.
+ - On pragmatistic principles, if the hypothesis of God works satisfactorily in the widest sense of the word, it is true.
+ - There is no more miserable human being than one in whom nothing is habitual but indecision.
+ - Habit simplifies our movements, makes them accurate, and diminishes fatigue.
+ - Of all the beautiful truths pertaining to the soul None is more gladdening or fruitful than to know You can regenerate and make yourself what you will.
+ - There is an organic affinity between joyousness and tenderness.
+ - So our self-feeling in this world depends entirely on what we back ourselves to be and do.
+ - Need and struggle are what excite and inspire us; our hour of triumph is what brings the void.
+ - It is only by risking our persons from one hour to another that we live at all.
+ - Faith is one of the forces by which men live, and the total absence of it means collapse.
+ - There is a voice inside which speaks and says, “This is the real me!”
+ - Individuality is founded in feeling.
+ - True ideas are those that we can assimilate, validate, corroborate, and verify. False ideas are those that we cannot.
+ - Only necessity understood, and bondage to the highest is identical with true freedom.
+ - Theory must mediate between all previous truths and certain new experiences.
+ - Do every day or two something for no other reason than its difficulty.
+ - Ninety-nine hundredths or, possibly, nine hundred and ninety-nine thousandths of our activity is purely automatic and habitual, from our rising in the morning to our lying down each night.
+ - If you wish to upset the law that all crows are black, you mustn’t seek to show that no crows are; it is enough if you prove one single crow to be white.
+ - The greatest enemy of any one of our truths may be the rest of our truths.
+ - Why should we think upon things that are lovely? Because thinking determines life. It is a common habit to blame life upon the environment. Environment modifies life but does not govern life. The soul is stronger than its surroundings.
+ - Psychology saves us from mistakes. It makes us more clear as to what we are about. We gain confidence in respect to any method which we are using as soon as we believe that it has theory as well as practice at its back.
+ - How to gain, how to keep, how to recover happiness is in fact for most men at all times the secret motive of all they do, and of all they are willing to endure.
+ - Faith branches off the highroad before reason begins.
+ - The good we do today becomes the happiness of tomorrow.
+ - Habit is the great flywheel of society.
+ - Truth happens to an idea. It becomes true, is made true by events. Its verity is in fact an event, a process: the process namely of its verifying itself, its veri-fication. Its validity is the process of its valid-ation.
+ - Sobriety diminishes, discriminates, and says no; drunkenness expands, unites, and says yes. Not through mere perversity do men run after it.
+ - For the moment, what we attend to is reality.
+ - I take it that no man is educated who has never dallied with the thought of suicide.
+ - As long as there are postmen, life will have zest.
+ - No more fiendish punishment could be devised, were such a thing physically possible, than that one should be turned loose in society and remain absolutely unnoticed.
+ - Woe to him whose beliefs play fast and loose with the order which realities follow in his experience; they will lead him nowhere or else make false connections.
+ - The minute a man ceases to grow, no matter what his years, that minute he begins to be old.
+ - No reception without reaction, no impression without correlative expression, -this is the great maxim which the teacher ought never to forget.
+ - It makes a tremendous emotional and practical difference to one whether one accepts the universe in the drab discolored way of stoic resignation to necessity, or with the passionate happiness of Christian saints.
+ - The perfection of rottenness.
+ - Everyone knows that on any given day there are energies slumbering in him which the incitement’s of that day do not call forth. Compared with what we ought to be, we are only half awake. The human individual usually lives far within his limits.
+ - Our belief at the beginning of a doubtful undertaking is the one thing that assures the successful outcome of any venture.
+ - Man’s chief difference from the brutes lies in the exuberant excess of his subjective propensities. Prune his extravagance, sober him, and you undo him.
+ - Each of us literally chooses, by his way of attending to things, what sort of universe he shall appear to himself to inhabit.
+ - Between what a man calls me and what he simply calls mine the line is difficult to draw. We feel and act about certain things that are ours very much as we feel and act about ourselves.
+ - The soul is stronger than its surroundings.
+ - There is no worse lie than a truth misunderstood bu those who hear it.
+ - A difference which makes no difference is no difference at all.
+ - The war against war is going to be no holiday excursion or camping party.
+ - A purely disembodied human emotion is a nonentity.
+ - All the daily routine of life, our dressing and undressing, the coming and going from our work or carrying through of its various operations, is utterly without mental reference to pleasure and pain, except under rarely realized conditions.
+ - The most peculiar social self which one is apt to have is in the mind of the person one is in love with.
+ - Touch is the alpha and omega of affection.
+ - As there is no worse lie than a truth misunderstood by those who hear it, so reasonable arguments, challenges to magnanimity, and appeals to sympathy or justice, are folly when we are dealing with human crocodiles and boa-constrictors.
+ - Mankind’s common instinct for reality has always held the world to be essentially a theatre for heroism.
+ - Seek out that particular mental attribute which makes you feel most deeply and vitally alive.
+ - Science herself consults her heart when she lays it down that the infinite ascertainment of fact and correction of false belief are the supreme goods for man.
+ - With mere good intentions hell is proverbially paved.
+ - Religion, whatever it is, is a man’s total reaction upon life.
+ - If this life is not a real fight, in which something is eternally gained for the universe by success, it is no better than a game of private theatricals from which one may withdraw at will. But it feels like a real fight.
+ - The work that leads to a doctor’s degree is a constant temptation to sacrifice one’s growth as a man to one’s growth as a specialist.
+ - As we take, in fact, a general view of the wonderful stream of our consciousness, what strikes us first is this different pace of its parts. Like a bird ’s life, it seems to be made of an alternation of flights and perchings.
+ - In the deepest heart of all of us there is a corner in which the ultimate mystery of things works sadly.
+ - The first lecture in psychology that I ever heard was the first I ever gave.
+ - The instinct of ownership is fundamental in man’s nature.
+ - Materialism means simply the denial that the moral order is eternal, and the cutting off of ultimate hopes; spiritualism means theaffirmation of an eternal moral order and the letting loose of hope.
+ - Man lives in only one small room of the enormous house of his consciousness.
+ - Every sort of energy and endurance, of courage and capacity for handling life’s evils, is set free in those who have religious faith.
+ - Modern war is so expensive that we feel trade to be a better avenue to plunder; but modern man inherits all the innate pugnacity and all the love of glory of his ancestors.
+ - The desire to gain wealth and the fear to lose it are our chief breeders of cowardice and propagators of corruption.
+ - Don’t preach too much to your pupils or abound in good talk in the abstract. Lie in wait rather for the practical opportunities, be prompt to seize those as they pass, and thus at one operation get your pupils both to think, to feel, and to do.
+ - A man of sense is never discouraged by difficulties; he redoubles his industry and his diligence, he perseveres and infallibly prevails at last.
+ - Selection is the very keel on which our mental ship is built. And in this case of memory its utility is obvious. If we remembered everything, we should on most occasions be as ill off as if we remembered nothing.
+ - The truth remains that, after adolescence has begun, “words, words, words,” must constitute a large part, and an always larger part as life advances, of what the human being has to learn.
+ - A new position of responsibility will usually show a man to be a far stronger creature than was supposed.
+ - Need and struggle are what excite and inspire us; our hour of triumph is what brings the void. Not the Jews of the captivity, but those of the days of Solomon ’s glory are those from whom the pessimistic utterances in our Bible come.
+ - If you care enough for a result, you will most certainly attain it.
+ - Life shall be built in doing and suffering and creating.
+ - Life is one long struggle between conclusions based on abstract ways of conceiving cases, and opposite conclusions prompted by our instinctive perception of them.
+ - We may be in the Universe as dogs and cats are in our libraries, seeing the books and hearing the conversation, but having no inkling of the meaning of it all.
+ - As a rule reading fiction is as hard to me as trying to hit a target by hurling feathers at it. I need resistance to celebrate!
+ - Good-humor is a philosophic state of mind; it seems to say to Nature that we take her no more seriously than she takes us. I maintain that one should always talk of philosophy with a smile.
+ - Nature in her unfathomable designs had mixed us of clay and flame, of brain and mind, that the two things hang indubitably together and determine each other’s being but how or why, no mortal may ever know.
+ - Keep the faculty of effort alive in you by a little gratuitous exercise every day.
+ - A man with no philosophy in him is the most inauspicious and unprofitable of all possible social mates.
+ - I am no lover of disorder and doubt as such. Rather I fear to lose truth by the pretension to possess it already wholly.
+ - Serious development of the personality begins at the closet door.
+ - One hearty laugh together will bring enemies into a closer communion of heart than hours spent on both sides in inward wrestling with the mental demon of uncharitable feeling.
+ - A paradise of inward tranquility seems to be faith’s usual result.
+ - The function of ignoring, of inattention, is as vital a factor in mental progress as the function of attention itself.
+ - As the brain changes are continuous, so do all these consciousnesses melt into each other like dissolving views. Properly they are but one protracted consciousness, one unbroken stream.
+ - The great thing, then, in all education, is to make our nervous system our ally instead of our enemy.
+ - Every time a resolve or fine glow of feeling evaporates without bearing fruit, it is worse than a chance lost; it works to hinder future emotions from taking the normal path of discharge.
+ - The subjectivist in morals, when his moral feelings are at war with the facts about him, is always free to seek harmony by toningdown the sensitiveness of the feelings.
+ - The discovery of the power of our thoughts will prove to be the most important discovery of our time.
+ - Impulse without reason is not enough, and reason without impulse is a poor makeshift.
+ - The God of many men is little more than their court of appeal against the damnatory judgment passed on their failures by the opinion of the world.
+ - Our life is always deeper than we know, is always more divine than it seems, and hence we are able to survive degradations and despairs which otherwise must engulf us.
+ - Marvelous as may be the power of my dog to understand my moods, deathless as his affection and fidelity, his mental state is as unsolved a mystery to me as it was to my remotest ancestor.
+ - Effort is the one strictly undervalued and original contribution we make to this world.
+ - To be radical, an empiricism must neither admit into its constructions any element that is not directly experienced, nor exclude from them any element that is directly experienced.
+ - To leap across an abyss, one is better served by faith than doubt.
+ - The sovereign cure for worry is prayer.
+ - If there is aught of good in the style, it is the result of ceaseless toil in rewriting. Everything comes out wrong with me at first; but when once objectified I can torture and poke and scrape and pat it till it offends me no more.
+ - Pretend what we may, the whole man within us is at work when we form our philosophical opinions.
+ - It is only by risking our persons from one hour to another that we live at all. And often enough our faith beforehand in an uncertified result is the only thing that makes the result come true.
+ - Owing to the fact that all experience is a process, no point of view can ever be the last one.
+ - Equality is attainable as long as you are part of the majority.
+ - To give up pretensions is as blessed a relief as to get them ratified.
+ - Those thoughts are truth which guide us to beneficial interaction with sensible particulars as they occur, whether they copy these in advance or not.
+ - A sense of humor is just common sense dancing.
+ - The states of consciousness are all that psychology needs to do her work with. Metaphysics or theology may prove the Soul to exist; but for psychology the hypothesis of such a substantial principle of unity is superfluous.
+ - Our volitional habits depend, then, first, on what the stock of ideas is which we have; and, second, on the habitual coupling of the several ideas with action or inaction respectively.
+ - Far from being antecedent principles that animate the process, law, language, truth are but abstract names for its results.
+ - Experience, as we know, has a way of boiling over, and making us correct our present formulas.
+ - When thoughts do not neutralize an undesirable emotion, action will.
+ - It is your friends who make your world.
+ - Our intelligence cannot wall itself up alive, like a pupa in a chrysalis. It must at any cost keep on speaking terms with the universe that engendered it.
+ - The instant field of the present is at all times what I call the ‘pure’ experience. It is only virtually or potentially either object or subject as yet.
+ - We want all our friends to tell us our bad qualities; it is only the particular ass that does so whom we can’t tolerate.
+ - When a superior intellect and a psychopathic temperament coalesce in the same individual, we have the best possible condition for the kind of effective genius that gets into the biographical dictionaries.
+ - In all primary school work the principle of multiple impressions is well recognized.
+ - Science as such assuredly has no authority, for she can only say what is, not what is not.
+ - Smitten as we are with the vision of social righteousness, a God indifferent to everything but adulation, and full of partiality for his individual favorites, lacks an essential element of largeness.
+ - For morality life is a war, and the service of the highest is a sort of cosmic patriotism which also calls for volunteers.
+ - It is very important that teachers should realize the importance of habit.
+ - How can the moribund old man reason back to himself the romance, the mystery, the imminence of great things with which our old earth tingled for him in the days when he was young and well?
+ - A man has as many social selves as there are individuals who recognize him.
+ - There are two lives, the natural and the spiritual, and we must lose the one before we can participate in the other.
+ - The teachers of this country, one may say, have its future in their hands.
+ - Real culture lives by sympathies and admirations, not by dislikes and disdains; under all misleading wrappings it pounces unerringly upon the human core.
+ - We forget that every good that is worth possessing must be paid for in strokes of daily effort.
+ - If it works, it’s true.
+ - An enormous mass of experience, both of homeopathic doctors and their patients, is invoked in favor of the efficacy of these remedies and doses.
+ - Our beliefs and our attention are the same fact.
+ - The exercise of prayer, in those who habitually exert it, must be regarded by us doctors as the most adequate and normal of all the pacifiers of the mind and calmers of the nerves.
+ - There can be no existence of evil as a force to the healthy-minded individual.
+ - Neither moral relations nor the moral law can swing in vacuo. Their only habitat can be a mind which feels them; and no world composed of merely physical facts can possibly be a world to which ethical propositions apply.
+ - To know an object is to lead to it through a context which the world provides.
+ - The more rational statement is that we feel sorry because we strike, afraid because we tremble, and not that we cry, strike, or tremble because we are sorry, angry, or fearful as the case may be.
+ - Democracy is still upon its trial. The civic genius of our people is its only bulwark.
+ - The highest flights of charity, devotion, trust, patience, bravery to which the wings of human nature have spread themselves, have been flown for religious ideals.
+ - I wished by treating Psychology like a natural science, to help her become one.
+ - If an unusual necessity forces us onward, a surprising thing occurs. The fatigue gets worse up to a certain point, when, gradually or suddenly, it passes away and we are fresher than before!
+ - Cramming seeks to stamp things in by intense application immediately before the ordeal. But a thing thus learned can form but few associations.
+ - Ingenuity in meeting and pursuing the pupil, that tact for the concrete situation, though they are the alpha and omega of the teacher’s art, are things to which psychology cannot help us in the least.
+ - If the grace of God miraculously operates, it probably operates through the subliminal door.
+ - Objective evidence and certitude are doubtless very fine ideals to play with, but where on this moonlit and dream-visited planet are they found?
+ - When you have broken the reality into concepts you never can reconstruct it in its wholeness.
+ - Time itself comes in drops.
+ - We must not just patch and tinker with life. We must keep renewing it. Embrace novelty and uniqueness.
+ - Men are now proud of belonging to a conquering nation, and without a murmur they lay down their persons and their wealth, if by so doing they may fend off subjection.
+ - Let sanguine healthy-mindedness do its best with its strange power of living in the moment and ignoring and forgetting, still the evil background is really there to be thought of, and the skull will grin in at the banquet.
+ - Great emergencies and crises show us how much greater our vital resources are than we had supposed.
+ - No matter how full a reservoir of maxims one may possess, and no matter how good one’s sentiments may be, if one has not taken advantage of every concrete opportunity to act, one’s character may remain entirely unaffected for the better.
+ - All natural happiness thus seems infected with a contradiction. The breath of the sepulchre surrounds it.
+ - Truth happens to an idea.
+ - I myself believe that the evidence for God lies primarily in inner personal experiences.
+ - The world is all the richer for having a devil in it, so long as we keep our foot upon his neck.
+ - The mind is made up by what it feeds upon.
+ - Religious awe is the same organic thrill which we feel in a forest at twilight, or in a mountain gorge.
+ - From all these facts there emerges a very simple abstract program for the teacher to follow in keeping the attention of the child: Begin with the line of his native interests, and offer him objects that have some immediate connection with these.
+ - Truth lives, in fact, for the most part on a credit system.
+ - You must bring out of each word its practical cash-value, set it at work within the stream of your experience.
+ - A new opinion counts as true just in proportion as it gratifies the individual’s desire to assimilate the novel in his experience to his beliefs in stock.
+ - A good hypothesis in science must have other properties than those of the phenomenon it is immediately invoked to explain, otherwise it is not prolific enough.
+ - It is wrong always, everywhere, and for everyone, to believe anything upon insufficient evidence.
+ - The simplest rudiment of mystical experience would seem to be that deepened sense of the significance of a maxim or formula which occasionally sweeps over one.
+ - It is only the fundamental conceptions of psychology which are of real value to a teacher.
+ - There is no being capable of a spiritual life who does not have within him a jungle. Where the wolf constantly HOWLS and the OBSCENE bird of night chatters endlessly.
+ - The god whom science recognizes must be a God of universal laws exclusively, a God who does a wholesale, not a retail business. He cannot accommodate his processes to the convenience of individuals.
+ - Every man who possibly can should force himself to a holiday of a full month in a year, whether he feels like taking it or not.
+ - The teacher’s prime concern should be to ingrain into the pupil that assortment of habits that shall be most useful to him throughout life. Education is for behavior, and habits are the stuff of which behavior consists.
+ - Truth lives, in fact, for the most part on a credit system. Our thoughts and beliefs pass, so long as nothing challenges them, just as bank-notes pass so long as nobody refuses them.
+ - The difference between the first and second-best things in art absolutely seems to escape verbal definition – it is a matter of a hair, a shade, an inward quiver of some kind – yet what miles away in the point of preciousness!
+ - The impulse to take life strivingly is indestructible in the race.
+ - Intelligence is a fixed goal with variable means of achieving it.
+ - The university most worthy of rational admiration is that one in which your lonely thinker can feel himself lonely, most positively furthered, and most richly fed.
+ - Conversion is in its essence a normal adolescent phenomenon, incidental to the passage from the child’s small universe to the wider intellectual and spiritual life of maturity.
+ - We are doomed to cling to a life even while we find it unendurable.
+ - It is astonishing how many mental operations we can explain when we have once grasped the principles of association.
+ - Truth, as any dictionary will tell you, is a property of certain of our ideas. It means their agreement, as falsity means their disagreement, with reality.
+ - The prevalent fear of poverty among the educated classes is the worst moral disease from which our civilization suffers.
+ - At bottom, the whole concern of religion is with the manner of our acceptance of the universe.
+ - The lunatic’s visions of horror are all drawn from the material of daily fact.
+ - Pluralism lets things really exist in the each-form or distributively. Monism thinks that the all-form or collective-unit form is the only form that is rational.
+ - If things are ever to move upward, some one must take the first step, and assume the risk of it. No one who is not willing to try charity, to try non-resistance as the saint is always willing, can tell whether these methods will or will not succeed.
+ - The thinker philosophizes as the lover loves. Even were the consequences not only useless but harmful, he must obey his impulse.
+ - Seize the very first possible opportunity to act on every resolution you make, and on every emotional prompting you may experience in the direction of the habits you aspire to gain.
+ - It is only in the lonely emergencies of life that our creed is tested: then routine maxims fail, and we fall back on our gods.
+ - There is only one thing a philosopher can be relied upon to do, and that is to contradict other philosophers.
+ - Faith is synonymous with working hypothesis.
+ - The belief in free-will is not in the least incompatible with the belief in Providence, provided you do not restrict the Providence to fulminating nothing but fatal decrees.
+ - The intellectual life of man consists almost wholly in his substitution of conceptual order for the perceptual order in which his experience originally comes.
+ - The unrest which keeps the never stopping clock of metaphysics going is the thought that the nonexistence of this world is just as possible as its existence.
+ - The worst thing that can happen to a good teacher is to get a bad conscience about her profession because she feels herself hopeless as a psychologist.
+ - The man whose acquisitions stick is the man who is always achieving and advancing whilst his neighbors, spending most of their time in relearning what they once knew but have forgotten, simply hold their own.
+ - You make a great, very great mistake, if you think that psychology, being the science of the mind’s laws, is something from which you can deduce definite programmes and schemes and methods of instruction for immediate schoolroom use.
+ - Where quality is the thing sought after, the thing of supreme quality is cheap, whatever the price one has to pay for it.
+ - To give the theory plenty of ‘rope’ and see if it hangs itself eventually is better tactics than to choke it off at the outset b abstract accusations of self-contradiction.
+ - Footnotes – little dogs yapping at the heels of the text.
+ - There must be something solemn, serious, and tender about any attitude which we denominate religious. If glad, it must not grin or snicker; if sad, it must not scream or curse.
+ - In the matter of belief, we are all extreme conservatives.
+ - Our ideas must agree with realities, be such realities concrete or abstract.
+ - To be conscious means not simply to be, but to be reported, known, to have awareness of one’s being added to that being.
+ - True ideas lead us into useful verbal and conceptual quarters as well as directly up to useful sensible termini. They lead to consistency, stability and flowing human intercourse.
+ - Never suffer an exception to occur till the new habit is securely rooted in your life. Each lapse is like the letting fall of a ball of string which one is carefully winding up; a single slip undoes more than a great many turns will wind again.
+ - Our faith is faith in someone else’s faith, and in the greatest matters this is most the case.
+ - As a rule we disbelieve all the facts and theories for which we have no use.
+ - It would probably astound each of us beyond measure to be let into his neighbors mind and to find how different the scenery was there from that of his own.
+ - An unlearned carpenter of my acquaintance once said in my hearing: “There is very little difference between one man and another; but what little there is, is very important.” This distinction seems to me to go to the root of the matter.
+ - Most men’s friendships are too inarticulate.
+ - Every way of classifying a thing is but a way of handling it for some particular purpose.
+ - Results should not be too voluntarily aimed at or too busily thought of. They are sure to float up of their own accord from a long enough daily work at a given matter.
+ - The question of free will is insoluble on strictly psychological grounds.
+ - It is so human a book that I don’t see how belief in its divine authority can survive the reading of it.
+ - The lunatic’s visions of horror are all drawn from the material of daily fact. Our civilization is founded on the shambles, and every individual existence goes out in a lonely spasm of helpless agony.
+ - Truth in our ideas means their power to work.
+ - Organization and method mean much, but contagious human characters mean more in a university.
+ - Most men have a good memory for facts connected with their own pursuits.
+ - If you give appreciation to people, you win their goodwill.
+ - Focus on increasing service. Becoming great where you are. Pile in the wood. The heat will follow.
+ - Religion is a monumental chapter in the history of human egotism.
+ - I am well aware how odd it must seem to some of you to hear me say that an idea is true so long as to believe it is profitable to our lives.
+ - Genius is the capacity for seeing relationships where lesser men see none.
+ - A man may not achieve everything he has dreamed, but he will never achieve anything great without having dreamed it first.
+ - Any object not interesting in itself may become interesting through becoming associated with an object in which an interest already exists.
+ - Our beliefs are really rules for action.
+ - If merely ‘feeling good’ could decide, drunkenness would be the supremely valid human experience.
+ - The difference between objective and subjective extension is one of relation to a context solely.
+ - A remarkable parallel, which I think has never been noticed, obtains between the facts of social evolution on the one hand, and of zological evolution as expounded by Mr. Darwin on the other.
+ - The mind, in short, works on the data it receives very much as the sculptor works on his block of stone.
+ - What a teacher needs to know about psychology “might almost be written on the palm of one’s hand.”
+ - The ‘I think’ which Kant said must be able to accompany all my objects, is the ‘I breathe’ which actually does accompany them.
+ - Fear of life in one form or another is the great thing to exorcise.
+ - Evil is a disease; and worry over disease is itself an additional form of disease, which only adds to the original complaint.
+ - We are thinking beings, and we cannot exclude the intellect from participating in any of our functions.
+ - I believe there is no source of deception in the investigation of nature which can compare with a fixed belief that certain kinds of phenomena are IMPOSSIBLE.
+ - The whole drift of my education goes to persuade me that the world of our present consciousness is only one out of many worlds of consciousness that exist.
+ - Each of us is in fact what he is almost exclusively by virtue of his imitative-ness.
+ - The history of philosophy is to a great extent that of a certain clash of human temperaments.
+ - The old question of whether there is design is idle. The real question is what is the world, whether or not it have a designer – and that can be revealed only by the study of all nature’s particulars.
+ - The love of life, at any and every level of development, is the religious impulse.
+ - The greatest empiricists among us are only empiricists on reflection: when left to their instincts, they dogmatize like infallible popes.
+ - We never fully grasp the import of any true statement until we have a clear notion of what the opposite untrue statement would be.
+ - We are proud of a human nature that could be so passionately extreme, but we shrink from advising others to follow the example.
+ - Habit is thus the enormous fly-wheel of society, its most precious conservative agent. It alone is what keeps us all within the bounds of ordinance.
+ - Effort is a measure of a Man.
+ - We can change our circumstances by a mere change of our attitude.
+ - Tell him to live by yes and no – yes to everything good, no to everything bad.
+ - It is well for the world that in most of us, by the age of thirty, the character has set like plaster, and will never soften again.
+ - To some of us the thought of God is like a sort of quiet music playing in the background of the mind.
+ - The total possible consciousness may be split into parts which co-exist but mutually ignore each other.
+ - Why may we not be in the universe, as our dogs and cats are in our drawingrooms and libraries?
+ - The absolute things, the last things, the overlapping things, are the truly philosophic concerns; all superior minds feel seriously about them, and the mind with the shortest views is simply the mind of the more shallow man.
+ - No one sees further into a generalization than his own knowledge of detail extends.
+ - We must make automatic and habitual, as early as possible, as many useful actions as we can, and as carefully guard against the growing into ways that are likely to be disadvantageous.
+ - To be a real philosopher all that is necessary is to hate some one else’s type of thinking.
+ - Once you accept an idea, it’s an idea whose time has come.
+ - An experience, perceptual or conceptual, must conform to reality in order to be true.
+ - To consider hypotheses is surely always better than to dogmatize ins blaue hinein.
+ - An idea will infect another with its own emotional interest when they have become both associated together into any sort of a mental total.
+ - Spiritual energy flows in and produces effects in the phenomenal world.
+ - All our scientific and philosophic ideals are altars to unknown gods.
+ - Men habitually use only a small part of the power which they actually possess.
+ - There can be no difference anywhere that does not make a difference somewhere.
+ - We are stereotyped creatures, imitators and copiers of our past selves.
+ - Men’s activities are occupied into ways – in grappling with external circumstances and in striving to set things at one in their own topsy-turvy mind.
+ - Contemporary philosophers, even the rationalistic minded ones, have on the whole agreed that no one has intelligibly banished the mystery of fact.
+ - If WE claim only reasonable probability, it will be as much as men who love the truth can ever at any given moment hope to have within their grasp.
+ - The war-function has grasped us so far; but the constructive interests may some day seem no less imperative, and impose on the individual a hardly lighter burden.
+ - Invention, using the term most broadly, and imitation, are the two legs, so to call them, on which the human race historically has walked.
+ - The general law is that no mental modification ever occurs which is not accompanied or followed by a bodily change.
+ - Our errors are surely not such awfully solemn things. In a world where we are so certain to incur them in spite of all our caution, a certain lightness of heart seems healthier than this excessive nervousness on their behalf.
+ - In the acquisition of a new habit, or the leaving off of an old one, we must take care to launch ourselves with as strong and decided an initiative as possible.
+ - We believe as much as we can. We would believe everything if we could.
+ - Considering the inner fitness of things, one would rather think that the very first act of a will endowed with freedom should be to sustain the belief in the freedom itself.
+ - Most people, probably, are in doubt about certain matters ascribed to their past. They may have seen them, may have said them, done them, or they may only have dreamed or imagined they did so.
+ - The hell to be endured hereafter, of which theology tells, is no worse than the hell we make for ourselves in this world by habitually fashioned our characters in the wrong way.
+ - Life feels like a real fight – as if there were something really wild in the universe which we, with all our idealities and faithfulnesses, are needed to redeem.
+ - The true is the name of whatever proves itself to be good in the way of belief, and good, too, for definite, assignable reasons.
+ - That which is most personal, is most interesting.
+ - I originally studied medicine in order to be a physiologist, but I drifted into psychology and philosophy from a sort of fatality. I never had any philosophic instruction, the first lecture on psychology I ever heard being the first I ever gave.
+ - Truth for us is simply a collective name for verification processes.
+ - To know psychology, therefore, is absolutely no guarantee that we shall be good teacher.
+ - The one who thinks over his experiences most, and weaves them into systematic relations with each other, will be the one with the best memory.
+ - But facts are facts, and if we only get enough of them theyare sure to combine.
+ - To be fertile in hypotheses is the first perquisite of creativity and to be willing to throw them away the moment experience contradicts them is the next.
+ - There must always be a discrepncy between concepts and reality, because the former are static and discontinuous while the latter is dynamic and flowing.
+ - The first thing that intellect does with an object is to class it with something else.
+ - True is the name for whatever idea starts the verification process, useful is the name for its completed function in experience.
+ - The amount of psychology which is necessary to all teachers need not be very great.
+ - Lets take full advantage of this discovery.
+ - The ideas gained by men before they are twenty-five are practically the only ideas they shall have in their lives.
+ - So long as antimilitarists propose no substitute for war’s disciplinary function, no moral equivalent of war, analogous, as one might say, to the mechanical equivalent of heat, so long they fail to realize the full inwardness of the situation.
+ - Truth is one species of good, and not, as is usually supposed, a category distinct from good, and co-ordinate with it.
+ - An educated memory depends on an organized system of associations; and its goodness depends on two of their peculiarities: first, on the persistency of the associations; and, second, on their number.
+ - Our colleges ought to have lit up in us a lasting relish for a better kind of man, a loss of appetite for mediocrities.
+ - Man is essentially the imitative animal. His whole educabilityand in fact the whole history of civilization depend on this trait, which his strong tendencies to rivalry, jealousy, and acquisitiveness reinforce.
+ - It is art that makes life, and I know of no substitute whatsoever for the force and beauty of its process.
+ - True to her inveterate habit, rationalism reverts to ‘principles,’ and thinks that when an abstraction once is named, we own an oracular solution.
+ - In the last analysis, then, we believe that we all know and think about and talk about the same world because we believe our PERCEPTS are possessed by us in common.
+ - Man, whatever else he may be, is primarily a practical being, whose mind is given him to aid in adapting him to this world’s life.
+ - Science can tell us what exists; but to compare the worths, both of what exists and of what does not exist, we must consult not science, but what Pascal calls our heart.
+ - Science must constantly be reminded that her purposes are not the only purposes and that the order of uniform causation which she has use for, and is therefore right in postulating, may be enveloped in a wider order, on which she has no claim at all.
+ - So far war has been the only force that can discipline a whole community, and until an equivalent discipline is organized, I believe that war must have its way.
+ - A thing is important if anyone think it important.
+ - Every claim creates an obligation.
+ - I know that you, ladies and gentlemen, have a philosophy, each and all of you, and that the most interesting and important thing about you is the way in which it determines the perspective in your several worlds.
+ - No living person is sunk so low as not to be imitated by somebody.
+ - In business for yourself, not by yourself.
+ - The power to move the world is in the subconcious mind.
+ - Philosophy lives in words, but truth and fact well up into our lives in ways that exceed verbal formulation.
+ - I don’t see how an epigram, being a bolt from the blue, with no introduction or cue, ever gets itself writ.
+ - It seems the natural thing for us to listen whilst the Europeans talk.
+ - There is but one indefectibly certain truth, and that is the truth that pyrrhonistic scepticism itself leaves standing, the truth that the present phenomenon of consciousness exists.
+ - The ultimate test of what a truth means is the conduct it dictates or inspires.
+ - Asceticism may be a mere expression of organic hardihood, disgusted with too much ease.
+ - The attitude of unhappiness is not only painful, it is mean and ugly.
+ - We have nothing to do but to receive, resting absolutely upon the merit, power, and love of our Redeemer.
+ - Success or failure depends more upon attitude than upon capacity.
+ - Both thought and feeling are determinants of conduct, and the same conduct may be determined either by feeling or by thought.
+ - You can’t out-perform your self-image.
+ - Religions have approved themselves; they have ministered to sundry vital needs which they found reigning. When they violated other needs too strongly, or when other faiths came which served the same needs better, the first religions were supplanted.
+ - All religions begin with the cry Help.
+ - To know one thing thoroughly would be to know the universe.
+ - Psychology ought certainly to give the teacher radical help.
+ - In all this process of acquiring conceptions, a certain instinctive order is followed. There is a native tendency to assimilate certain kinds of conception at one age, and other kinds of conception at a later age.
+ - What the whole community comes to believe in grasps the individual as in a vise.
+ - Lay plans as if we were to be immortal.
+ - Everything which is demanded is by that fact a good.
+ - The prescription is that the subject must be made to show new aspects of itself; to prompt new questions; in a word, to change. From an unchanging subject the attention inevitably wanders away.
+ - Religion must be considered vindicated in a certain way from the attacks of her critics.
+ - The most natively interesting object to a man is his own personal self and its fortunes. We accordingly see that the moment a thing becomes connected with the fortunes of the self, it forthwith becomes an interesting thing.
+ - Events are influenced by our very great desires.
+ - The most any one can do is to confess as candidly as he can the grounds for the faith that is in him, and leave his example to work on others as it may.
+ - The study a posteriori of the distribution of consciousness shows it to be exactly such as we might expect in an organ added for the sake of steering a nervous system grown too complex to regulate itself.
+ - Since belief is measured by action, he who forbids us to believe religion to be true, necessarily also forbids us to act as we should if we did believe it to be true.
+ - Great indeed is Fear; but it is not, as our military enthusiasts believe and try to make us believe, the only stimulus known for awakening the higher ranges of men’s spiritual energy.
+ - How many of us persist in a precipitate course which, but for a moment of heedlessness we might never have entered upon, simply because we hate to change our minds.
+ - The same is true of Love, and the instinctive desire to please those whom we love. The teacher who succeeds in getting herself loved by the pupils will obtain results which one of a more forbidding temperament finds it impossible to secure.
+ - The true’to put it very briefly, is only the expedient in the way of our thinking, just as ‘the right’ is only the expedient in the way of our behaving.
+
+482 quotes

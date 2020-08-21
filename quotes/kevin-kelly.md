@@ -1,0 +1,72 @@
+ - A complaint is a unique opportunity to strengthen the relationship with the client.
+ - Nobody is as smart as everybody.
+ - The way to build a complex system that works is to build it from very simple systems that work.
+ - Technology is anything that doesn’t work yet.
+ - Willingness to learn is important, but willingness to act on what you learn is critical.
+ - In 2007, Stanford Business School Advisory committee asserted that self awareness was the most important attribute a leader should develop. The challenge for the modern entrepreneur is to take that path.
+ - The smallest thought could not exist unless the entire universe and the laws of physics were in some way encouraging it.
+ - Humans are the reproductive organs of technology.
+ - It has become evident that the primary lesson of the study of evolution is that all evolution is coevolution: every organism is evolving in tandem with the organisms around it.
+ - Life is the ultimate technology. Machine technology is a temporary surrogate for life technology. As we improve our machines they will become more organic, more biological, more like life, because life is the best technology for living.
+ - Everything that we are making, we are making more and more complex.
+ - This is actually a very important principle that science is learning about large systems like evolution and that futurists are learning about anticipating human society: just because a future scenario is plausible doesn’t mean we can get there from here.
+ - I work in a “you scratch my back, and I’ll stab yours” kind of a place.
+ - Any believable prediction will be wrong. Any correct prediction will be unbelievable.
+ - The only factor becoming scarce in a world of abundance is human attention.
+ - The very long tail of the future is already here.
+ - We have to get better at believing the impossible.
+ - Singularity is the point at which “all the change in the last million years will be superseded by the change in the next five minutes.”
+ - Attention deficit is no longer the supposed domain of Generation Y’s who were brought up on a diet of social media and new technology. A recent study revealed 65 percent of 55-64 year olds surf, text and watch television simultaneously.
+ - Since a relationship involves two members investing in it, its value increases twice as fast as one’s investment.
+ - Our society lacks a feedback loop for controlling technology: a way to gauge intended effects from actual effects later on.
+ - Softball isn’t just a game it’s away of life.
+ - Each system is trying to anticipate change in the environment.
+ - Each organism’s environment, for the most part, consists of other organisms.
+ - Managers tend to treat organizations as if they are infinitely plastic. They hire and fire, merge, downsize, terminate programs, add capacities. But there are limits to the shifts that organizations can absorb.
+ - The nature of an innovation is that it will arise at a fringe where it can afford to become prevalent enough to establish its usefulness without being overwhelmed by the inertia of the orthodox system.
+ - A brain is a society of very small, simple modules that cannot be said to be thinking, that are not smart in themselves. But when you have a network of them together, out of that arises a kind of smartness.
+ - Our mission as humans is not only to discover our fullest selves in the technium, and to find full contentment, but to expand the possibilities for others. Greater technology will selfishly unleash our talents, but it will also unselfishly unleash others: our children, and all children to come.
+ - But in a turbulent environment the change is so widespread that it just routes around any kind of central authority. So it is best to manage the bottom-up change rather than try to institute it from the top down.
+ - And they discovered something very interesting: when it comes to walking, most of the ant’s thinking and decision-making is not in its brain at all. It’s distributed. It’s in its legs.
+ - Managing bottom-up change is its own art.
+ - Why fear feedback? Why stigmatize failure in the workplace when it’s bringing you closer to achieving your organizational goals.
+ - We tend to think of the mind of an organization residing in the CEO and the organization’s top managers, perhaps with the help of outside consultants that they call in. But that is not really how an organization thinks.
+ - An organization’s intelligence is distributed to the point of being ubiquitous.
+ - The only organization capable of unprejudiced growth, or unguided learning, is a network. All othertopologies limit what can happen.
+ - The organization and the environment are in concert.
+ - Your greatest job is shedding what you don’t have to do.
+ - Technological advances could allow us to see more clearly into our own lives.
+ - An organization is a set of relationships that are persistent over time.
+ - There is nothing to be found in a beehive that is not submerged in a bee. And yet you can search a bee forever with cyclotron and fluoroscope, and you will never find the hive.
+ - We are infected by our own misunderstandin g of how our own minds work.
+ - My major goal in business was to learn. I had legislated in my mind for failure the worse possible scenario was I would learn a lot regardless of the outcome. This goal was the foundation for success of the business. Peldi, Balsamiq.
+ - Clearly, we are self-made. We are the first technology. We are part inventor and part the invented.
+ - An organization’s reason for being, like that of any organism, is to help the parts that are in relationship to each other, to be able to deal with change in the environment.
+ - Evolution doesn’t care about what makes sense; it cares about what works.
+ - We are reaching deep within ourselves to adjust the master knob.
+ - It’s generally much easier to kill an organization than to change it substantially.
+ - The way that organizations and organisms anticipate the future is by taking signals from the past, most the time.
+ - Find the minimum amount of technology that will maximize your options.
+ - But when you are embodied in a location, in a physical plant, in a set of people, and in a common history, that constrains your evolution and your ability to evolve in certain directions.
+ - The young are always coming up with the good ideas; it’s because they waste time. They follow their passion and do something, not looking for a payoff, just doing what’s interesting.
+ - It’s more along the lines of raising a child: we train the system to a certain range of behaviors that we find most useful. But then we let it go, because we don’t want to have to be babysitting it the whole time.
+ - It is easy to make a dollar but it is hard to make a difference.
+ - How do entrepreneurs survive their early failures? They don’t view their failures as failures – they view these experiences as feedback, and a prelude to future success.
+ - In a broad systems sense, an organism’s environment is indistinguishable from the organism itself.
+ - The current understanding was that it was impossible to predict how something would evolve because it was a very turbulent environment full of things interacting with each other.
+ - Well, here’s what you can do, and that’s about it.
+ - The most interesting thing about change in the environment is that for the most part the environment isn’t changing.
+ - But in fact, when you try to model that on a computer you find that because of the very structure of matter and of the chemical bonds that are the basis of every organism, evolution is not random at all. It will tend to follow certain paths.
+ - When a system is in turbulence, the turbulence is not just out there in the environment, but is a part of the organization or organism that you are looking at.
+ - Much of outcomes research is a systematic attempt to exploit what is known and make it better.
+ - This is the culmination of a lot of people’s vision. I think this is just another step towards making Central Michigan football among the elite programs in the Mid-American Conference.
+ - Organizations get invested into a particular product. And sometimes the best thing is to stop making that product, even though it’s profitable, because it has optimized at a local peak.
+ - Technology is all the accumulated usefulness that our minds invent.
+ - One of the functions of an organization, of any organism, is to anticipate the future, so that those relationships can persist over time.
+ - Species go extinct because there are historical contraints built into a given body or a given design.
+ - The most certain thing you can say about the environment tomorrow is that it probably is going to be just like today, for the most part.
+ - We’re just at the beginning of the beginning of all these kind of changes. There’s a sense that all the big things have happened, but relatively speaking, nothing big has happened yet. In 20 years from now we’ll look back and say, ‘Well, nothing really happened in the last 20 years.’
+ - Changing things from the top down works when things are stable.
+ - Organisms by their design are not made to adapt too far.
+
+70 quotes

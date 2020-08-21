@@ -1,0 +1,21 @@
+ - The power of women united, I am again reminded, is an invincible thing.
+ - Sometimes if you wait too long, it’s too late.
+ - Life is a lease and God is the landlord.
+ - Coeur qui soupire n’a pas ce qu’il desire. The heart that sighs does not have what it desires.
+ - I think the only answer is to live life to the fullest while you can and collect memories like fools collect money. Because in the end, that’s all you have – happy memories.
+ - A mother is a mother from the moment her baby is first placed in her arms until eternity. It didn’t matter if her child were three, thirteen, or thirty.
+ - The imagination is a wonderful thing; it allows for all manner of undiscoverable sins.
+ - If it’s true love, then it will abide. If it was a fleeting crush, then it will turn to dust. Either way, the truth will out.
+ - That’s what dessert means to me: a dollop of sweet love in an otherwise cold world.
+ - This is probably the advantage of being stupid. Stupid people just do. We tend to overthink. If we could eliminate the “over” and just think, then we could do, too. Only we’d be smarter doers because we’d be thinkers.
+ - Risk is the universe’s way of pushing us to become more than what we are. Risk is faith at the edge. Risk is the pulsating nature of life.
+ - We may not get what we want, when we want. But with a bit of perseverance and a lot of patience, we can get what we need.
+ - As my mother says, your forties are when you finally pay for your past mistakes, the cigarettes and sunburns, the Big Macs and smooth-talking men. She may be right.
+ - It’s the closest I’ve come to touching immortality, by reading the words of dead people.
+ - Without risk, we are automatons going through our days with no purpose or meaning. We are safer, perhaps, but we are also, ironically, closer to death.
+ - He’s definitely one of those men you love before you get to know.
+ - Love doesn’t go anywhere when you die, you know. The person passes on, the body withers, but love, it survives.
+ - In fact, a case could be made that worrying about a problem actually prevents you from resolving it, because it deceives your mind into thinking that you’re doing something when really you’re not.
+ - See that’s what people don’t get about food. It’s never the food, it’s the love that goes into making it. That’s what’s important.
+
+19 quotes

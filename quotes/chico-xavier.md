@@ -1,0 +1,25 @@
+ - Do not be angry with an ungrateful person; probably they are confused or inexperienced.
+ - Jesus Christ did not ask much from us, He did not demand that people climb Mount Everest or make great sacrifices. He just asked that we love one another.
+ - Do not imprison those about you to your way of thinking; give your companion the opportunity to interpret life as freely as you do.
+ - When each one of us become an active and living book of lessons for those who see our examples, the boundaries of religious interpretation will give way to the new era of brotherhood and peace we’re waiting for.
+ - Avoid trouble with those who are fanatics; they remain imprisoned in exclusivism and deserve compassion just as any other prisoner.
+ - When we have faith and discipline everything becomes easier. Patience is the mother of all virtues. With anxiety all our lives become worse.
+ - We need to get rid of hate, envy, jealousy, discord in ourselves, so we can reach a solution in terms of peace in order to feel that time has come for human happiness.
+ - Pardon the deserter; he is weak and will return to the lesson later on.
+ - Every little bit of peace I bring someone is worth the peace I never had.
+ - Think of your adversary as a bearer of equilibrium; if we have need of friends to stimulate us, we equally need someone to show us our errors.
+ - If you pay too much attention to the criticism of the one who is inferior, then you must endure the constraints of the plane to which you have descended without feeling hurt.
+ - In terms of changes, the spiritual mentors teach me that I must not forget those relating primarily to improve myself.
+ - The soul that acquires the virtue of forgiveness won’t find any more trouble. No matter what happens, he will know how to run his life...
+ - The Master encouraged us to gain friends, that is, to expand our circle of friends through which we can feel more intensive protection in a spirit of cooperation and through intervening values.
+ - If I would expect better spiritual conditions to serve, I would not have started until the present moment.
+ - Aid the sick; thank the Divine Power for the state of equilibrium you are able to conserve.
+ - It is for this reason that Jesus left us the parable of the unfaithful servant, inviting us into a sincere fraternity in order that through it we could find the path of rehabilitation.
+ - Do not be perturbed with by an ill-bred person; in most cases the one who is unsociable has a liver complaint and bad nerves.
+ - The worker faithful to the well has neither the intention, or time, to violate the name and the service of others.
+ - Help the companion who is insecure; perhaps they do not have enough to supply their needs, while you retain an excess.
+ - Help those who make mistakes; your feet walk on the same ground, and even if you possess the possibility to correct them, you have no right to censure them.
+ - Do not fret over the ignorant person; surely they have not had the opportunities which illuminated your path.
+ - It will be enough to recall in th is sense that almost all the Countries arose, centuries ago, through cruel conquests. With exception, men have been squandering servants th at at the moment of adjustment did not appear to be worthy of the benefits received.
+
+23 quotes

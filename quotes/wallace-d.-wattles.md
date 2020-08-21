@@ -1,0 +1,187 @@
+ - No one ever got rich by studying poverty and thinking about poverty.
+ - The very best thing you can do for the whole world is to make the most of yourself.
+ - The whole process of mental adjustment and atunement can be summed up in one word: Gratitude.
+ - If you are not happy in your work, you are a slave.
+ - There is a science of getting rich, and it is an exact science, like algebra or arithmetic. There are certain laws which govern the process of acquiring riches, and once these laws are learned and obeyed by anyone, that person will get rich with mathematical certainty.
+ - Become aware of and recognize fully the fact that the Principle of Power within you is God Himself. You must consciously identify yourself with the Highest.
+ - The riches they receive will be in exact proportion to the definiteness of their vision, the fixity of their purpose, the steadiness of their faith, and the depth of their gratitude.
+ - A person’s way of doing things is a direct result of the way he thinks about things.
+ - All you need is to know what you want, and to want it badly enough so that it will stay in your thoughts.
+ - Getting rich isn’t about doing certain things. It’s about doing things in the certain way!
+ - The grateful mind is constantly fixed upon the best. Therefore it tends to become the best. It takes the form or character of the best, and will receive the best.
+ - Do not merely think that you are great; think that you are great now. Do not think that you will begin to act in a great way at some future time; begin now.
+ - Leave every person you come in contact with, with the impression of increase.
+ - The scientific use of thought consists in forming a clear and distinct mental image of what you want; in holding fast to the purpose to get what you want; and in realizing with grateful faith that you do get what you want.
+ - Success in life is becoming what you want to be.
+ - If it is a new thought to you that gratitude brings your whole mind into closer harmony with the creative energies of the universe, consider it well, and you will see that it is true.
+ - THOUGHT is the only power which can produce tangible riches from the Formless Substance.
+ - All belief begins in the will to believe.
+ - The daily practice of gratitude is one of the conduits by which your wealth will come to you.
+ - Whenever you find yourself hurrying, call a halt; fix your attention on the mental image of the thing you want, and being to give thanks that you are getting it. The exercise of GRATITUDE will never fail to strengthen your faith and renew your purpose.
+ - It is a natural law that like causes always produce like effects; and, therefore, any man or woman who learns to do things in this certain way will infallibly get rich.
+ - The Creative Power within us makes us into the image of that to which we give our attention.
+ - By thought, the thing you want is brought to you. By action, you receive it.
+ - It is really not the number of things you do, but the efficiency of each separate action that counts.
+ - Nothing was ever in any man that is not in you; no man ever had more spiritual or mental power than you can attain, or did greater things than you can accomplish. You can become what you want to be.
+ - When you are in doubt, wait. Fall back on the contemplation of your vision, and increase your faith and purpose. And by all means, in times of doubt and indecision, cultivate gratitude.
+ - Do not wait for an opportunity to be all that you want to be; when an opportunity to be more than you are now is presented and you feel impelled toward it, take it. It will be the first step toward a greater opportunity.
+ - Hurry and fear will instantly cut your connect with the universal mind.
+ - First, you believe that there is one intelligent substance, from which all things proceed. Second, you believe that this substance gives you everything you desire. And third, you relate yourself to it by a feeling of deep and profound gratitude.
+ - But the value of gratitude does not consist solely in getting you more blessings in the future. Without gratitude you cannot long keep from dissatisfied thought regarding things as they are.
+ - You can not retain a true and clear vision of wealth if you are constantly turning your attention to opposing pictures, whether they be external or imaginary.
+ - You must form a clear and definite mental picture of what you want. You cannot transmit an idea unless you have it yourself.
+ - The only service that you can render God is to give expression to what he is trying to give to the world, through you. The only service you can render God is to make the very most of yourself in order that God may live in you to the utmost of your possibilities.
+ - It is the habitual, not the periodical thought that decides your destiny.
+ - Our gratitude liberates an energy within us that immediately expands into the formless substance, where it is instantly returned to us in kind.
+ - Do all the work you can do, every day, and do each piece of work in a perfectly successful manner; put the power of success, and the purpose to get rich, into everything that you do.
+ - Never admit the possibility of failure, or speak in a way that infers failure as a possibility.
+ - The grateful mind continually expects good things, and expectation becomes faith.
+ - Nothing that is possible in spirit is impossible in flesh and blood. Nothing that man can think is impossible. Nothing that man can imagine is impossible of realization.
+ - The person who does not desire to live more abundantly is abnormal, and so the person who does not desire to have money enough to buy all he wants is abnormal.
+ - It is the natural and inherent impulse of life to seek to live more, it is the nature of intelligence to enlarge itself, and of consciousness to seek to extend its boundaries and find fuller expression.
+ - There is no labor from which most people shrink as they do from that of sustained and consecutive thought; it is the hardest work in the world.
+ - That which makes you want more money is the same as that which makes the plant grow; it is life seeking fuller expression.
+ - It is essential to have good tools, but it is also essential that the tools should be used in the right way.
+ - To fix your attention on the best is to surround yourself with the best, and to become the best.
+ - Read only the most optimistic comments on the world’s news; those in harmony with your picture.
+ - Thinking is the hardest and most exhausting of all labor; and hence many people shrink from it.
+ - Never look at the visible supply; always look at the limitless riches in the formless substance and know that they are coming to you as fast as you can receive and use them.
+ - The ownership of money and property comes as a result of doing things in a certain way; those who do things in this Certain Way, whether on purpose or accidentally, get rich; while those who do not do things in this Certain Way, no matter how hard they work or how able they are, remain poor.
+ - You are a creative center from which increase is given off to all.
+ - Do not talk about your greatness; you are really, in essential nature, no great than those around you.
+ - Success action is cumulative in its results.
+ - The brain does not make the man; the man makes the brain.
+ - The more gratefully we fix our minds on the Supreme when good things come to us, the more good things we will receive, and the more rapidly they will come; and the reason simply is that the mental attitude of gratitude draws the mind into closer touch with the source from which the blessings come.
+ - There is not the least cause for worry about financial affairs; every person who wills to do so may rise above want, have all he needs, and become rich.
+ - The purpose of nature is the advancement and development of life.
+ - Gratitude draws the mind into closer touch with the source from which the blessings come.
+ - If you have not consciously made the decision to be rich, excellent, and healthy, then you have unconsciously made the decision to be poor, mediocre, and unhealthy.
+ - You are to become a creator, not a competitor; you are going to get what you want, but in such a way that when you get it every other man will have more than he has now.
+ - I surrender myself to conscious unity with the highest.
+ - Wisdom is obtained by reading the mind of God.
+ - You still indulge in distrustful fears that things will go wrong, or that people will betray you, or mistreat you; get above all of them.
+ - You must have absolute faith in your own perceptions of truth. Never act in haste or hurry; be deliberated in everything; wait until you know the true way.
+ - Do not try to convert others to your point of view, except by holding it and living accordingly.
+ - It is easy to understand that the nearer we live to the source of wealth, the more wealth we shall receive.
+ - Gratitude unifies the mind of man with the intelligence of substance, so that man’s thoughts are received by the formless.
+ - Do not believe that any one can know, better than yourself, what is right for you. Listen to what others have to say, but always form your own conclusions.
+ - A person may come into full harmony with the formless substance by entertaining a lively and sincere gratitude for the blessings it bestows upon him.
+ - I will trust and not be afraid.
+ - No matter whether you are a physician, a teacher, or a clergyman, if you can give increase of life to others and make them sensible of that fact, they will be attracted to you, and you will get rich.
+ - Hurry is a manifestation of fear; he who fears not has plenty of time. If you at with perfect faith in your own perceptions of truth, you will never be too late or too early; and nothing will go wrong.
+ - You have that within you which is ever impelling you toward the upward and advancing way; and that impelling something is the divine Principle of Power; you must obey it without question.
+ - There are no evil people; there are perfectly good people who are of the track, but they do not need condemnation or punishment; they only need to get upon the rails again.
+ - You can serve God and man in no more effective way than by getting rich; that is, if you get rich by the creative method and not by the competitive one.
+ - You want to get rich in order that you may surround yourself with beautiful things, see distant lands, feed your mind, and develop your intellect; in order that you may love others and do kind things, and be able to play a good part in helping the world to find truth.
+ - To exercise some sort of control over others is the secret motive of every selfish person.
+ - There is no hurry. There is only God, and all is well with the world.
+ - The world needs demonstration more than it needs teaching.
+ - Fix upon your ideal of what you wish to make of yourself.
+ - Cast out pride and vanity; have no thought of trying to rule over others or of outdoing them.
+ - The average person’s idea of a great man, rather than one who serves, is of one who succeeds in getting himself served.
+ - Every man comes into the world with a predisposition to grow along certain lines, and growth is easier for him along those lines than in any other way.
+ - Your place in life is not fixed by heredity.
+ - Power seeking to manifest causes desire within you.
+ - Let your thoughts be ruled by principle, and then live up to your thoughts.
+ - In all your relations to men be great, just, generous, courteous, and kindly. The great are never otherwise.
+ - When others are having hard times and poor business, you will find your greatest opportunities.
+ - The desire for riches is simply the capacity for a larger life seeking fulfillment; every desire is the effort of an unexpressed possibility come into action.
+ - Only those who do not fill the places they are holding slow the progress of the world.
+ - You can begin to be great to-day in your own home, in your store or office, on the street, everywhere; you can begin to make yourself known as great; and you can do this by doing everything you do in a great way.
+ - The human being lives, moves, and has his being in a limitless ocean of health-power, and he uses this power according to his faith.
+ - You are not mentally developed by what you read, but by what you think about what you read.
+ - The power which is in you, is in the things around you, and when you begin to move forward by faith, the things will arrange themselves for your advantage.
+ - You must learn to see the world as being produced by evolution; as a something which is evolving and becoming, not as a finished work.
+ - Faith When you feel deeply that a certain act is the right act, do it and have perfect faith that the consequences will be good.
+ - You can never get rich, or start the creative power into action, by sending out unformed longings and vague desires.
+ - A thought is a substace, producing the thing that is imagined by the thought.
+ - It is essential to his happiness that he should continually advance.
+ - No man has yet become so great in any faculty but that it is possible for some one else to become greater.
+ - Whatever may be said in praise of poverty, the fact remains that it is not possible to live a really complete or successful life unless one is rich.
+ - Resolve that you will now lay aside all else and concentrate upon the attainment of conscious unity with God.
+ - Abandon everything you have outgrown.
+ - There is a law of gratitude, and if you are to get the results you seek, it is absolutely necessary that you should observe this law.
+ - To think health when surrounded by the appearances of disease or to think riches when in the midst of the appearances of poverty requires power, but whoever acquires this power becomes a mastermind. That person can conquer fate and can have what he or she wants.
+ - Close your ears to all adverse suggestions. Never mind if people call you a fool and a dreamer. Dream on.
+ - You cannot exercise much power without gratitude because it is gratitude that keeps you connected with power.
+ - The answer to your prayer is not according to your faith while you are talking, but according to your faith while you are working.
+ - You must get rid of the thought of competition. You are to create, not to compete for what is already created.
+ - There is no lack of opportunity.
+ - Remember that poise and power are inseparably associated. The calm and balanced mind is the strong and great mind; the hurried and agitated mind is the weak one.
+ - The man who is wise enough to know the right thing to do, who is good enough to wish to do only the right thing, and who is able and strong enough to do the right thing is a truly great man.
+ - I will obey my soul and be true to that within me which is highest.
+ - Because all things are necessary to man’s complete unfoldment, all things in human life are the work of God.
+ - You are a god in the company of gods and must conduct yourself accordingly.
+ - Where there is no power, there is never any desire to do a thing; and where there is strong desire to do a thing, the power to do it is strong.
+ - You already have within you everything you need to turn your dreams into reality.
+ - An ounce of doing things is worth a pound of theorizing.
+ - Do not wait for a change of environment before you act. Cause a change of environment through action. You can act upon your present environment so as to cause yourself to be transferred to a better environment.
+ - Act now. There is never any time but now, and there never will be any time but now.
+ - Genius is the union of man and God in the acts of the soul. Great men are always greater than their deeds. They are in connection with a reserve power that is without limit.
+ - Obey your soul, have perfect faith in yourself. Never think of yourself with doubt or distrust, or as one who makes mistakes.
+ - Read less and think more. Read about great things and think about great questions and issues.
+ - The ‘advancing man’ in medicine, who holds to a clear mental image of himself as successful, and who obeys the laws of faith, purpose, and gratitude, will cure every curable case he undertakes.
+ - To do things in a way you want to do them, you will have to acquire the ability to think the way you want to think: this is the first step toward getting rich.
+ - Whatever you habitually think yourself to be, that you are. You must form, now, a greater and better habit; you must form a conception of yourself as a being of limitless power, and habitually think that you are that being. It is the habitual, not the periodical thought that decides your destiny.
+ - Do all that you can do in a perfect manner every day, but do it without haste, worry or fear. Go as fast as you can, but never hurry.
+ - There is, as Emerson says, some central idea or conception of yourself by which all the facts of your life are arranged and classified. Change this central idea and you change the arrangement or classification of all the fact and circumstances of your life.
+ - No possible combination of circumstances can keep a man down, if he makes his personal attitude right and determines to rise...
+ - Man must cast out of himself everything which separates him from God. He must will to live the divine life, and he must rise above all moral temptations; he must forsake every course of action that is not in accord with his highest ideals.
+ - You must always learn to see yourself as a great advancing soul.
+ - Be as thankful for it all the time as you expect to be when it has taken form.
+ - Doing what you want to do is life.
+ - Every one will be something worth while, something rare, something perfect.
+ - No one is kept in poverty by a shortness in the supply of riches, there is more than enough for all.
+ - You must begin to live in harmony with the laws governing the universe.
+ - Many people who order their lives rightly in all other ways are kept in poverty by their lack of gratitude.
+ - Wisdom is the power to perceive the best ends to aim at and the best means for reaching those ends.
+ - If you desire a thing, picture it clearly and hold the picture steadily in mid until it becomes a definite thought-form.
+ - Thinking is growth; we cannot think without growing.
+ - Give every person more in use value than you take from them in cash value.
+ - Every person who gets rich by creation opens a way for thousands to follow-and inspires them to do so.
+ - You are not kept poor by lack in the supply of riches.
+ - Faith-not a faith in one’s self or in one’s own powers but faith in principle; in the Something Great which upholds right, and which may be relied upon to give us the victory in due time. Without this faith it is not possible for any one to rise to real greatness.
+ - Intellect helps us to see the best means and manner of doing the right thing, but intellect never shows us the right thing.
+ - Do not pay too much attention to the advice or suggestions of those around you.
+ - In order to get what you want, you must act...
+ - You must lay aside your greed; have no unworthy motive in your desire to become rich and powerful. It is legitimate and right to desire riches, if you want them for the sake of your soul, but not if you desire them for the lists of the flesh.
+ - Gratitude will lead your mind out along the ways by which things come, and it will keep you in close harmony with creative thought and prevent you from falling into competitive thought.
+ - You can have nothing to fear.
+ - The grateful outreaching of your mind in thankful praise to the Supreme is a liberation or expenditure of force; it cannot fail to reach that to which it is addressed, and the reaction is an instantaneous movement towards you.
+ - Always do what you feel deeply in the within to be the true thing to do.
+ - Nothing can be wrong but your own personal attitude.
+ - It is not your part to guide or supervise the creative process. All you have to do with that is retain your vision, stick to your purpose, and maintain your faith and gratitude.
+ - Man’s right to life means his right to have the free and unrestricted use of all the things which may be necessary to his fullest mental, spiritual, and physical unfoldment or, in other words, his right to be rich.
+ - The object of all life is development; and everything that lives has an inalienable right to all the development it is capable of attaining.
+ - Your first duty to God, to yourself, and to the world is to make yourself as great a personality, in every way, as you possibly can.
+ - Go on in the certain way, and if you do not receive that thing, you will receive something so much better that you will see that the seeming failure was really a great success.
+ - This must be your point of view: that the world and all it contains is perfect, though not completed.
+ - Do every common act as a god should do it; speak every word as a god should speak it.
+ - It is within the power of every man to become great.
+ - The Principle of Power gives us just what we ask of it; if we only undertake little things, it only gives us power for little things; but if we try to do great things in a great way it gives us all the power there is.
+ - Greatness is attained only by the thinking of great thoughts.
+ - When you make a failure, it is because you have not asked for enough, keep on, and a larger thing then you were seeking will certainly come to you. Remember this.
+ - There is a genius in every man and woman, waiting to be brought forth.
+ - The really great man is often considered selfish by a large group of people who are connected with him and who feel that he might bestow upon them more benefits than he does.
+ - No society could advance if everyone was smaller than his place.
+ - There is no possibility in any man that is not in every man.
+ - Nothing can go wrong in this world but yourself ; and you can go wrong only by getting into the wrong mental attitude.
+ - Do not wait for a change of environment before you act; get a change of environment by action.
+ - If you will make the necessary effort you can develop any talent.
+ - The teaching of Jesus, if properly understood, would do away with organized temple worship altogether.
+ - Gratitude alone can keep you looking toward the all, and prevent you from falling into the error of thinking of the supply as limited, and to do that would be fatal to your hopes.
+ - Wisdom is the essential basis of greatness.
+ - You must cease from looking at human mistakes and look at successes; cease from seeing faults and see virtues.
+ - You are already one with God; you want to become consciously aware of it.
+ - Do not wait for an opportunity to be all that you want to be.
+ - Set your ideal as near to perfection as your imagination is capable of forming the conception.
+ - To become convinced that you can succeed is the first requisite to success.
+ - Learn to pay attention to your body with the relaxed attitude of gratitude, trust, curiosity and unconditional love rather than being pushed around by habit, fear, anxiety, social customs, other people’s schedules and other people’s ideas about what is good for you.
+ - Genius is Omniscience flowing into man.
+ - So surely as you find yourself in the mental attitude of haste, just so surely may you know that you are out of the mental attitude of greatness. Hurry and fear will instantly cut your connect with the universal mind.
+ - The exercise of gratitude will never fail to strengthen your faith and renew your purpose.
+ - By going back to your own center you can always find the pure idea of right for every relationship.
+ - There is nothing wrong in wanting to get rich. The desire for riches is really the desire for a richer, fuller, and more abundant life, and that desire is praise worthy.
+ - The law of gratitude is the natural principle that action and reaction are always equal and in opposite directions.
+
+185 quotes

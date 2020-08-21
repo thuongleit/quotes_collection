@@ -1,0 +1,97 @@
+ - Yes, the road to hell is paved with good intentions, but everyone forgets the second half of that quote: the road to heaven is paved with good actions.
+ - Your beliefs don’t make you a better person. Your behavior does.
+ - I am Shiva, Destroyer of Worlds.
+ - In training, there is no winning or losing. There is only learning.
+ - I think 20th century media were about tricking people – and the beauty of the Internet is you can’t lie anymore.
+ - Fat girls aren’t real people.
+ - As a general rule, whenever guys have problems approaching girls, it’s because they’re afraid of rejection or they’re afraid of something specific. The way that you get over a fear like that is you figure out what the worst is that can happen.
+ - The result of my hard work is that I’m financially independent, I have an amazing life, and I can do whatever I want. I don’t have to answer to anybody.
+ - Failure either ruins you, or turns you into the man you can become.
+ - No sheep wants to be first through the gate, but every sheep will be second.
+ - I’m sorry, but I stand by my decision. I am now a member of the elite club of people that have fought a professional team mascot. You sir, are not in that club.
+ - The hardest lesson I’ve had to learn in my life is that my intelligence is inversely correlated to my humility. The more I thought I knew, the less I actually knew.
+ - I masterbate in the shower. My action figures judge me. Especially the Justice League.
+ - That’s the beauty of alcohol. If you don’t remember it, it didn’t happen.
+ - Things always work out for me because I do whatever I want without worrying about the consequences.
+ - A lot of people think that since I’m drunk in my stories, I must be drunk 24 hours a day. What kind of stupid logic is that? It’d be like if you saw Michael Jordan at a restaurant and were like, “Why aren’t you in your basketball uniform?” I leave out way more than I put in.
+ - You look like the type of people who would criticize a misspelling in a suicide note.
+ - Men will treat you the way you let them. There is no such thing as ‘deserving’ respect; you get what you demand from people.
+ - Most people’s lives are nothing more than pointlessly frantic activity used as a psychological defense against their own impotence and fear.
+ - I laugh at people who say things like ‘I’m a good person, I just do bad things.’ No, that’s not how it works. What you do IS who you are.
+ - The narcissist act is not an act. I actually am a narcissist, very much so. My world revolves around me.
+ - I’ve come to learn that what really matters is the relationship, the quality of the relationship.
+ - Obstacles are only obstacles if you see them as obstacles. They can also be called opportunities.
+ - I tell the truth, and truth is the ultimate defense against libel.
+ - This may come as a shock to some of you, but I have a slightly volatile personality. I don’t suffer fools well.
+ - You ever wake up in the middle of the night because a couple of cats are clawing each other to death outside your window? That’s what it’s like listening to you speak.
+ - If people try to judge you or shame you for doing safe, consensual things that make you happy, I can guarantee you they’re bad people.
+ - I could never kill myself. What if it doesn’t work. Then I’ll have failed at the only thing that could save me from my failures. Where do you go from there?
+ - To my friends and people I care about, I’m a really nice guy. No one wants to read a story where I saw a cute puppy on the street and I petted it. I mean, that’s not funny. I only write about the funny stuff.
+ - I stop paying attention because as much as I love beauty, I hate stupidity, and seeing the two combined pisses me off.
+ - You show me a truly funny girl who doesn’t have emotional issues, and I’ll introduce you to my stable of unicorn thoroughbreds ridden by leprechaun jockeys.
+ - Tell beautiful women they are smart, and smart women they are beautiful.
+ - My path to wisdom began when I stopped pretending to know things I didn’t know. When I explicitly admitted to the limits of my knowledge, stopped building on ambiguity and ignorance, and instead realized that I knew nothing, not even the things I thought I knew.
+ - The meaning of life is to create meaning for your life.
+ - You know that look a cop gives you when he’s so confused that he doesn’t even know how to respond? If you don’t know that look, it means you haven’t had enough fun in your life.
+ - The Big Five publishing companies are dinosaurs trying to survive in a post-meteor world. They won’t.
+ - The great stories go to those who aren’t afraid to live them.
+ - The only thing that someone could say about me that would hurt me would be something that’s true that I don’t want to be.
+ - I will never understand why people get so upset at things I don’t even remember saying.
+ - The haters always scream the loudest.
+ - There are fun nights, there are crazy nights, and then there are those nights that make men legends.
+ - Make no mistake about it: Law school is not a bastion of intellectual discourse.
+ - We can’t get kicked out of McDonald’s! This is like the DMZ of drunk eating.
+ - Hey man, so can you speak to dolphins and pilot whales with that forehead of yours?
+ - It used to be that companies with industrial economies of scale created business success. Now, success will come from the information economies of scale, either the ones with complete breadth, or complete depth.
+ - I take a lull from my CamelBak and choke at its potency. It tastes like bad decisions. It’s perfect.
+ - Before you’re famous it’s stuff that seems like it’d be really cool, but once you get it, you realize it’s not bad, but it’s kind of hollow and meaningless.
+ - I’m not some movie star relying on a studio. I have my own fans and I earned them.
+ - General reader feedback is usually pretty worthless. 99% of people give feedback that is irrelevant, stupid, or just flat out wrong. But that 1% of people who give good feedback are invaluable.
+ - You can’t fill your emails with crap, at least not with my friends, because they’re brutal. If something sucks, they’ll tell you.
+ - Theatrical success is predominantly two variables: who the distributor is and how much money they spend.
+ - I don’t want to compare myself to Picasso, but he had four or five periods in his life. Any good artist grows and changes and matures.
+ - I hated being a lawyer and I wanted to like myself and like my job.
+ - I think that there’s a lot of guys out there that want to read the equivalent of chick lit, but really there’s not being much written for them.
+ - I’m never going to be Tolstoy.
+ - My writing is authentic, and whatever happens in my life is what I write about.
+ - If you make comedy, if you try and make comedy where no one gets upset or offended, you’re going to fail.
+ - Hollywood, it’s just like high school. Whoever is pretty and popular, everyone wants to be with.
+ - I’m not West Coast at all. I was born in Atlanta, but I grew up in Kentucky, outside of Lexington, in Winchester.
+ - The general intellectual level of South Florida is somewhere just above “functionally retarded”.
+ - No one has probably helped me more with my narcissism than my dog.
+ - Helping reproductive services doesn’t just help women in isolation. It helps men just as much.
+ - At some point in their life, everyone thinks they should go to law school. You may in fact think you want to go to law school now.
+ - If your parents ignored you, or if they are just not emotionally available, or if they yell a lot, that is a type of trauma.
+ - If you don’t have a job right now, and you have a computer and a basic intelligence level, I guarantee you can get a great job, paying really well, in less than three months. How? Learn to program.
+ - I sold a million books because I have a lot of fans, not because people hate me.
+ - Unless you plan on making academia your life, all you need to know about postmodernism is that its premises are fundamentally wrong.
+ - Getting offended is a great way to avoid answering questions that make you sound dumb.
+ - Even if I was a Republican, George Bush would have pushed me out of that party.
+ - Listen to authority figures because of their position, but only believe them if they can explain why.
+ - Anything that reflects the human condition back on humans in the entertainment medium is art.
+ - Failure instructs, failure improves. Failure shouldn’t deter you.
+ - Probably the best explanation for my success and other Internet writers, is that we’re tapping a genre or a niche out there that needs to be filled and isn’t.
+ - It is hard for me to be vulnerable, because I never learned how to do that. I was never vulnerable in a safe way.
+ - I was stupid when I was 17 or 18. My thought process was that I thought that I was legitimately a hyper-genius, and so I wanted to go to the hardest academic school I could to see if I was really as smart as I thought I was.
+ - Frankly, I’d rather make a little bit less money if it means living in a better world for books and publishing in the future.
+ - Hi. I haven’t insulted you yet, have I?
+ - I’m not even the coolest one of my friends. I’m just the guy who sat down and wrote everything down. Like I know plenty of people who do crazier stuff than I do.
+ - I was not developmentally disabled, but didn’t mature at the same rate other kids did.
+ - Great careers are getting easier to find and audition for, but harder to keep.
+ - If you want to be seen as courageous by some and hated by others, just say what you really think.
+ - Look at the scope of writers who sell stuff. I’m at the very top of the power curve in terms of sales.
+ - If you read the book, you’re not a journalist. You’re some impostor! No journalist actually does any work.
+ - Two girls called me closed minded. I tell them that they are so open-minded their brains leaked out.
+ - Most of my success, I feel, comes from being a good editor as opposed to a great writer.
+ - Calling one thing ‘literature’ and another ‘fiction’ is a way to create status where there is none.
+ - Leave it up to hipster nerds to pretend to hate something that they actually want.
+ - Before I was famous, I already was the person that attracted and dealt with a lot of weirdos.
+ - Corporate tweets are like one robot talking to another.
+ - I never felt pressured to create more stories, but dealing with people became really aggravating.
+ - Opinions are projections.
+ - The thing that I think about the most, and is the most rewarding to me, is the whole past. That I kind of went from nothing to something and I did it on my own, and I did it through hard work and smarts.
+ - To get hwat you want out of life, all you really need to do is be honest about it, don’t be afraid to go for it, and have fun while you do it – and you’ll eventually get it.
+ - I have tons of fans in Canada. I’ve sold hundreds of thousands of books there.
+ - I’ve never really had a media edifice supporting me.
+
+95 quotes

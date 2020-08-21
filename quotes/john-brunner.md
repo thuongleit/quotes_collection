@@ -1,0 +1,28 @@
+ - To go faster you must slow down.
+ - Don’t bother explaining – I’ve heard all the excuses and the trouble is most of them are true.
+ - It’s supposed to be automatic, but actually you have to push this button.
+ - If there is such a phenomenon as absolute evil, it consists in treating another human being as a thing.
+ - Papa Hegel he say that all we learn from history is that we learn nothing from history. I knew people who can’t even learn from what happened this morning. Hegel must have been taking the long view.
+ - You have many years to live do things you will be proud to remember when you’re old.
+ - If the evidence says you’re wrong, you don’t have the right theory. You change the theory, not the evidence.
+ - I’m myself, not a label.
+ - It’s not because my mind is made up that I don’t want you to confuse me with any more facts. It’s because my mind isn’t made up. I already have more facts than I can cope with.
+ - I can’t see heaven but I credit hell I live in New York so I know it well. When they shut out heaven with the Fuller Dome God gave it up and He went home.
+ - UNFAIR :; Term applied to advantages enjoyed by other people which we tried to cheat them out of and didn’t manage.
+ - Christ, what an imagination I’ve got!
+ - Yes, for most people nowadays television is their only contact with the world beyond their work.
+ - After all, the rich get richer and the poor get children. Which is okay so long as lots of them starve in infancy.
+ - People who hate in concrete terms are dangerous. People who manage to hate only in abstracts are the ones worth having for your friends.
+ - Love and joy are incredibly habit-forming; often a single exposure is enough to cause permanent addiction.
+ - Let’s all be different same as me.
+ - Like living creatures, automobiles expired when their environment became saturated with their own excreta. We ourselves are living creatures. We don’t want the same to happen to us.
+ - How do you whip up resentment against absentee landlords and pocketers of bribes when the highest ambition of the people is either to become the former or be in a position to receive the latter?
+ - We fret about how to keep going the same old way when we should be casting around for another way that’s better.
+ - Who should know better than a cosmetician that human beings are less than rational creatures?
+ - What people want, mainly, is to be told by some plausible authority that what they are already doing is right. I don’t know know of a quicker way to become unpopular than to disagree.
+ - For all the claims one hears about the liberating impact of the data-net, the truth is that it’s wished on most of us a brand-new reason for paranoia.
+ - It’s common platitude that knowledge is neutral but every now and then it would be useful if it was on your side and not theirs.
+ - Any society which gives lip-service to the idea of equal opportunity is going to generate jealousy of others who are better off than you are, even if the thing that’s in short supply can’t be carved up and shared without destroying it.
+ - What in Gods name is it worth to be human, if we have to be saved from ourselves by a machine?
+
+26 quotes

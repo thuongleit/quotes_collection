@@ -1,0 +1,25 @@
+ - You get educated by traveling.
+ - I think many people, especially from other cultures, just don’t understand the role hair plays in Black women’s lives.
+ - I’ve let go of being a super perfectionist on every single note and wanting the pitch to be absolutely perfect all of the time. I grew up watching the best of the best.
+ - Any decision I make is based on myself, and the only person I have to give an explanation to is God.
+ - As an artist, everybody has the opportunity to celebrate and speak their truth.
+ - My parents only played Isley Brothers, Marvin Gaye. That’s when New Kids came out, and we wanted to jam that. My mom was like, “Put that thing off and put my damn record on”. So from old school to ’90s to recent, it’s just always been there.
+ - I love music. But I’m not gonna work myself to death. If there ever comes a point where I’m not enjoying it, then I’m not gonna do it anymore. I’ve promised myself that. I’ve written it down on paper and signed a contract.
+ - I think there’s just certain lyrics and certain forms of hip-hop that definitely rang true, again, to a lot of people’s truth, but you don’t necessarily want to hear someone using that as a just kind of a in-the-moment, fun, careless expression.
+ - We are getting an education of a lifetime. We’re actually out there in the real world.
+ - I really don’t listen to anyone that I’m not proud of saying that I listen to. Even if it’s something a little bit more unexpected, I didn’t get too deep into the Waka, Gucci records, but I like those with pride.
+ - It is always an honor to work with those that share your passion for music and just enjoy making great music.
+ - You’re just so excited that you have this record deal or this movie opportunity that you don’t stand up for yourself and say, This is what I want to do.
+ - I don’t really have guilty pleasures. Anything musically that I fully, fully believe, is good no matter who the artist is, no matter what the marketing is behind it, I stand pretty firm.
+ - I have been writing songs since I was 9 years old, so writing has and always will be my first love and passion.
+ - I’m a fan of hip-hop and I love it, I by no means am an expert on it.
+ - I think the thing about what I want to achieve for the label is it to really be a home for artists who are already developed, who already have a great sense of their artistry or their imaging, who don’t really feel or want that marketing push.
+ - I think every generation has that movement of hip-hop that you know you’re playing it and you definitely have that moment of like, “Why am I saying this so enthusiastically? Why am I so stoked and psyched to say these lyrics?”
+ - I actually was a ballet dancer – I studied ballet from three until 13 – but like very seriously, that’s what I wanted to do. I wanted to be a contemporary ballet dancer. I wanted to go to Juilliard.
+ - The Hadley Street Dream is a tribute to making a vision come to life. My father built a compound on a dessert city block, he saw something in that space we couldn’t see. It was years later the album was born right there on Hadley St. He built the studio I started recording the album at.
+ - I actually love my natural hair when it’s in a twist out and it’s been slept on for five days and revived by the steam of the shower.
+ - I have to learn how to say no a lot. Life is too short for anything else.
+ - When you’re younger, you get shoved a lot. You don’t really have a say-so.
+ - So over time, playing shows – after every show we would have pow-wow, I would have notes and we’d go over and we’d really restructure and re-do and now I feel really, really good about the show. But it’s taken time.
+
+23 quotes

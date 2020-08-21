@@ -1,0 +1,376 @@
+ - You have to be unique, and different, and shine in your own way.
+ - If you don't have any shadows you're not in the light.
+ - Some women choose to follow men, and some women choose to follow their dreams. If you’re wondering which way to go, remember that your career will never wake up and tell you that it doesn’t love you anymore.
+ - Don’t judge anyone but don’t trust anyone.
+ - People will always talk, so lets give them something to talk about.
+ - Ignore all hatred and criticism. Live for what you create, and die protecting it.
+ - They can't scare me, if I scare them first.
+ - Don't you ever let a soul in the world tell you that you can't be exactly who you are.
+ - You will never find what you are looking for in love, if you don't love yourself.
+ - Don’t be a drag. Just be a queen.
+ - I'm obsessively opposed to the typical.
+ - Fight and push harder for what you believe in, you’d be surprised, you are much stronger than you think.
+ - It doesn't matter who you are, or where you come from, or how much money you've got in your pocket. You have your own destiny and your own life ahead of you.
+ - I’m beautiful in my way ’cause God makes no mistakes. I’m on the right track baby, I was born this way.
+ - Peace. it does not mean to be in a place where there is no trouble, noise, or hard work. it means to be in the midst of those things and still be calm in your heart.
+ - Well, that's your opinion, isn't it? And I'm not about to waste my time trying to change it.
+ - My fashion is part of who I am, and though I was not born with these clothes on, I was born this way.
+ - Trust is like a mirror, you can fix it if it’s broken, but you can still see the crack in that mother fucker’s reflection.
+ - As artists, we are eternally heartbroken.
+ - I had a boyfriend who told me I’d never succeed, never be nominated for a Grammy, never have a hit song, and that he hoped I’d fail. I said to him, “Someday, when we’re not together, you won’t be able to order a cup of coffee at the fucking deli without hearing or seeing me.”
+ - I am focused on the work. I am constantly creating. I am a busy girl. I live and breathe my work. I love what I do. I believe in the message. There’s no stopping. I didn’t create the fame, the fame created me.
+ - For being different, it’s easy. But to be unique, it’s a complicated thing.
+ - We need fantasy to survive because reality is too difficult.
+ - I just wanna be myself, and I want you to love me for who I am.
+ - In my work and what I do, I am Queen of the Universe every day!
+ - Even if the whole world turns their back on you, you will always have yourself.
+ - You have to fail and then get better. Then you have to fail again, and then get even better.
+ - I don’t care what people think about me, I care what they think about themselves.
+ - It sometimes makes people feel better about themselves, you know, to put other people down, or make fun of them, or maybe make mockery of their work and that doesn’t make me feel good at all.
+ - I think tolerance and acceptance and love is something that feeds every community.
+ - The only better thing than a unicorn, is a gay unicorn.
+ - I’ve had enough, this is my prayer, that I’ll die living just as free as my hair.
+ - I’m going to be a star, you know why? Because I have nothing left to lose.
+ - People want you to fail.
+ - Do not allow people to dim your shine because they are blinded. Tell them to put on some sunglasses because we were born this way.
+ - Money can run out but talent is forever.
+ - Women are strong and fragile. Women are beautiful and ugly. We are soft spoken and loud, all at once.
+ - I’d rather be poor and happy than rich and alone.
+ - I don’t need to be on top to know I’m worth it.
+ - I’m supposed to be, I am an artist. Yes, I’m lonely. But I’m married to my loneliness.
+ - I am my own sanctuary and I can be reborn as many times as I choose throughout my life.
+ - The most important thing about creativity is that you honor your creativity and you don’t ever ignore it or go against what that creative image is telling you.
+ - I believe in a glamorous life, and I live a glamorous life.
+ - Being different is a talent. You illuminate what makes you special in the sea of sameness around you.
+ - My mama told me when I was young we’re all born SUPERSTARS!
+ - Some women choose to follow men, and some women choose to follow their dreams.
+ - Stand up for those who cannot stand up for themselves; its your responsibility.
+ - I’m not a feminist. I hail men, I love men. I celebrate American male culture, and beer, and bars and muscle cars...
+ - Do you know the feeling, when your heart is so hurt, that you could feel the blood dripping?
+ - It’s hard to be strong and be weak at the same time. So I spent a lot of time sitting still. Sitting still for hours, not moving a muscle. Really concentrated work, so I’m ready. I’m ready for my performance.
+ - The reason I don’t want anyone to control me is not because I want to be in control. I don’t want anyone to control me because I don’t want anyone to control anyone.
+ - Leather, high heels, and a bad attitude. Here I come.
+ - I live between fantasy and reality at all times. In that way, I’m a librarian.
+ - If you’re a strong female, you don’t need permission.
+ - No matter how many people are screaming your name or how many Number One hits you have, you can still wake up and feel like a loser.
+ - I’m on the edge with you.
+ - Music changed my life. I don’t know who I would be without it. Don’t ignore even the smallest glimmer of passion in your soul, run towards it with everything you have. It could change your life.
+ - I take medication every day for mental illness and depression and don’t feel bad about it.
+ - Love is like a brick. You can build a house, or you can sink a dead body.
+ - I love my friends and my past, and it’s made me who I am.
+ - I’m not real. I’m theatre.
+ - Whether I’m wearing lots of makeup or no makeup, I’m always the same person inside.
+ - Love is an interesting thing.
+ - You define beauty for yourself, society doesn’t define your beauty. Your spirit and your faith defines your beauty.
+ - I don’t want the 5 dollars in your pocket, I want your soul.
+ - Depression doesn’t take away your talents – it just makes them harder to find.
+ - I think that artifice is the new reality. It’s more about just being honest and sincere to the core of what you do. Whether I’m wearing lots of makeup or no makeup, I’m always the same person inside.
+ - I dont really ever compare myself to other people, I dont even measure myself in terms of anyone but myself.
+ - I write about what I know: sex, pornography, art, fame obsession, drugs, and alcohol. I mean, why would anyone care to listen to me if I wasn’t an expert in what I write about?
+ - I’m already crazy. I’m a fearless person. I think it creeps up on you. I don’t think it can be stopped. If my destiny is to lose my mind because of fame, then that’s my destiny. But my passion still means more than anything.
+ - There are some people in this world that believe being gay is a choice. It’s not a choice, we’re born this way.
+ - I’m encouraging you to know what you’re worth. And know that no matter who has more money in class, who has more stuff, who has a country house – nobody is worth more than anybody else.
+ - Hair is about when you’re younger. I am my hair.
+ - For all my love little monsters i am your mom you are my child in my hand i protect you like my eyes but dont worry ill cacth you if you fall.
+ - I want you to let go of all of your insecurities. I want you to reject anyone of anything that ever made you feel like you don’t belong.
+ - I write music every day.
+ - Don’t idolize me, idolize yourself.
+ - My “home” is a controversial topic. I don’t exactly have one. I live all over the world.
+ - No matter gay, straight or bi, lesbian, transgendered life, I’m on the right track baby I was born to survive.
+ - Its OK to be weird. And maybe your weird is my normal. Whos to say? I think its an attitude.
+ - They’re not prosthetics. They’re my bones. They come out when I’m inspired. They’ve always been inside of me, but I have been waiting for the right time to reveal to the universe who I truly am.
+ - Once you kill a cow, you gotta make a burger.
+ - There is nothing Holy about hatred.
+ - Memories are not recycled like atoms and particles in quantum physics; they can be lost forever.
+ - I believe that if you have revolutionary potential, you must make the world a better place and use it.
+ - I’ve always been famous, it’s just no one knew it yet.
+ - When I say to you, there is nobody like me, and there never was, that is a statement I want every woman to feel and make about themselves.
+ - My fans are who I am. You give meaning to my life. You will never know the connection I feel to you.
+ - If you don’t feel safe as a child, you can’t learn.
+ - I remember watching the mascara tears flood the ivories and I thought, “It’s OK to be sad.” I’ve been trained to love my darkness.
+ - I want to change the pop world one sequin at a time. Artists tend to take themselves way too seriously and don’t enjoy the fun of making an impact on culture. I just have a good time and sequins represent a good time.
+ - I very much want to inject gay culture into the mainstream. It’s not an underground tool for me. It’s my whole life.
+ - I don’t like Los Angeles. The people are awful and terribly shallow, and everybody wants to be famous but nobody wants to play the game. I’m from New York. I will kill to get what I need.
+ - The last thing a young woman needs is another picture of a sexy pop star writhing in sand, covered in grease, touching herself.
+ - I don’t see myself as ever being like anybody else.
+ - Sexuality is half poison and half liberation. What’s the line? I don’t have a line.
+ - I don’t think I could live without hair, makeup and styling.
+ - I have never had plastic surgery, and there are many pop singers who have.
+ - I was so ashamed of who I was.
+ - How can I protect something so perfect without evil...
+ - Together we hope to establish a standard of Bravery and Kindness, as well as a community worldwide that protects and nurtures others in the face of bullying and abandonment.
+ - Russian Roulette is not the same without a gun.
+ - When you make music or write or create, it’s really your job to have mind-blowing, irresponsible, condomless sex with whatever idea it is you’re writing about at the time.
+ - I’m a wandering gypsy.
+ - Prejudice is a disease. So is fashion. But I will not wear prejudice.
+ - When I die, they’ll say Lady Gaga was special but her fans, her Monsters, they were really something.
+ - Don’t be insecure, if your heart is pure.
+ - It’s always wrong to hate, but it’s never wrong to love.
+ - I don’t wanna be alone forever but I can be tonight.
+ - It’s not that I’ve been dishonest, it’s just that I loathe reality.
+ - I’m not as goal obsessed as I am process obsessed.
+ - It’s honestly true that money means nothing to me.
+ - At the end of the day, you won’t be happy unil you love yourself.
+ - I like pushing boundaries.
+ - I thought equality was non-negotiable.
+ - It’s sort of like my past is an unfinished painting, and as the artist of that painting, I must fill in all the ugly holes and make it beautiful again.
+ - Never be afraid to dream.
+ - Only value the opinion of those that you respect. And anyone that you don’t respect, pay no mind to their opinion about you or anything else.
+ - It’s not that I don’t like pants, I just choose not to wear them some days.
+ - Take my picture Hollywood. I wanna be STAR.
+ - Some people are just born stars – you either have it or you haven’t, and I was definitely born one.
+ - I learned that my sadness never destroyed what was great about me. You just have to go back to that greatness, find that one little light that’s left. I’m lucky I found one little glimmer stored away.
+ - I hope when I’m dead I’ll be considered an icon, though.
+ - I am not perfect. I just think that imperfections are beautiful.
+ - So there’s nothing more provocative than taking a genre that everybody who’s cool hates – and then making it cool.
+ - Be brave and celebrate with us your ‘perceived flaws,’ as society tells us. May we make our flaws famous, and thus redefine the heinous.
+ - I am completely 100 percent honest in what I do and who I am, and I’ve got nothing to hide.
+ - Acceptance, tolerance, bravery, compassion. These are the things my mom taught me.
+ - I am the excuse to explore your identity. To be exactly who you are and to feel unafraid. To not judge yourself, to not hate yourself.
+ - I work very hard, but when God opens that door for you – when life opens that door for you, I should say – I think it’s important to be giving, to return the love back.
+ - I’d rather people love me or hate me than have no opinion of me. Indifference is scary.
+ - You can be whoever you choose to become in the future, just do it. Just see it and visualize it and every day of your life project that about yourself.
+ - I live halfway between reality and theater at all times. And I was born this way.
+ - There really is no difference between the bully and the victim.
+ - I feel like if you’re a really good human being, you can try to find something beautiful in every single person, no matter what.
+ - Watch very closely as the magical angel and I are swallowed by the rainbow twister, and left stranded on the glitter way.
+ - People love the chaos in my brain, but I’m terrified of it.
+ - Confidence is key, if you don’t have it, fake it!
+ - My work as an artist is completely separate from my work as a philanthropist.
+ - My talent matters more to me than the money does.
+ - Equality cannot be reached if fought in a divisive way.
+ - Only I can snatch my own weave.
+ - Dirty pony, I can’t wait to hose you down.
+ - If I can be a leader, I will.
+ - I went out into the woods for a few days. I just disconnected from everything and allowed myself to be free and be human. Because, that’s what makes you really good, if you can be vulnerable, if you can be vulnerable on stage.
+ - I would stare into the bright lights and imagine I could do anything. Be anything. And I would tell myself it would be me up there one day.
+ - In a sense I portray myself in a very androgynous way, and I love androgyny.
+ - O, say does that star-spangled flag of pride yet wave? O’er the land of the free, and the home for the gay!
+ - I was a strange, loud little kid who could sit at the piano and kill a Beethoven piece.
+ - I’m working on bringing the instant film camera back as part of the future.
+ - God bless pop music and God bless MTV.
+ - I think it’s OK to be confident in yourself.
+ - I guess you could say it’s always been my destiny to be a performer.
+ - I want my fans to love themselves. It’s almost like I want to hypnotize them so when they hear my music they love themselves instantly.
+ - Pop music will never be low brow.
+ - Lady Gaga is my name. If you know me, and you call me Stefani, you don’t really know me at all.
+ - I’m from New York. I will kill to get what I need.
+ - I love imperfections.
+ - I will always have a very deep love for Amy Winehouse.
+ - It’s cooler to be strong.
+ - If you were to ask me what I want to do – I don’t want to be a celebrity, I want to make a difference.
+ - I’m drawn to bad romances.
+ - It has been hard for me to find it, but I have found love.
+ - I have to be on such a strict diet constantly.
+ - There is no oil so thick as to destroy the imagination.
+ - If love is a sin, live a lie. You and Me, until I die.
+ - I’m half living my life between reality and fantasy at all times.
+ - I want the deepest, darkest, sickest parts of you that you are afraid to share with anyone because I love you that much.
+ - There’s no way to convince people of your greatness. Whatever it is that you want to be, you have to know it inside and knife-fight your way to your dream.
+ - I realized my father’s sister Joanne, who died at 19 had instilled her spirit in me.
+ - In fact, my courage and my bravery at a young age was the thing I was bullied for, a kind of ‘Who do you think you are?’
+ - I just want to be clear before we decide to do this together: I’m gay. My music is gay. My show is gay. And I love that it’s gay. And I love my gay fans, and they’re all going to be coming to our show. And it’s going to remain gay.
+ - I’m telling you a lie in a vicious effort that you will repeat my lie over and over until it becomes true.
+ - I’m always on the market for a new friend, period. As your success continues to grow, you start to see who your real friends are. But I’m always looking for wonderful people to have in my life that have no agenda and aren’t fake friends.
+ - I talk about myself in the third person all the time. I don’t live my life in the way someone like you does. I live my life completely serving only my work and my fans.
+ - I want you to feel happy and enjoy the theatre of my life the way that I do. No matter what happens with my music and wherever I go – that heart of that glamorous girl in New York will never be gone.
+ - Money is completely boring to me. It means nothing, except it feeds my art. Every penny I make goes back into the Haus of GaGa. My Haus of GaGa is something like Andy Warhol’s Factory.
+ - Love is an interesting thing. Perhaps I’ve never been in love before – I don’t really know? I think I have. I guess it’s subjective in that way.
+ - I wanted to be a skinny little ballerina but I was a voluptuous little Italian girl whose dad had meatballs on the table every night.
+ - A girl’s just as hot as the shoes she choose.
+ - If you’re laying in bed next to someone that really doesn’t make you feel like the goddess that you are, you need to rediscover what it is that you truly want and need.
+ - I’m single right now and I’ve chosen to be single because I don’t have the time to get to know anybody. So it’s okay not to have sex, it’s okay to get to know people. I’m celibate. Celibacy’s fine.
+ - You are equally important to me, and I love you all.
+ - A glamorous life is quite different to a life of luxury. I don’t need luxury. For years, I was practically broke but I was still very vain and glamorous. And I still am.
+ - I used to get bullied by the popular girls at school. Today, I am the popular girl, and the bullies come to my shows.
+ - I think we all need to be inside of us for 3 whole days, thinking about how we can love ourselves more, protect ourselves more, live life with more passion and look not outwards for validation but inwards.
+ - It was my delusion and naivety that brought me here.
+ - I love my daddy. My daddy’s everything. I hope I can find a man that will treat me as good as my dad.
+ - Celebrity life and media culture are probably the most overbearing pop-cultural conditions that we as young people have to deal with, because it forces us to judge ourselves.
+ - The blurring of fantasy and reality is something that the Japanese herald in their life, in their day-to-day commercialism.
+ - My new year’s resolution: Never be afraid to be kicked in the teeth. Let the blood and the bruises define your legacy.
+ - I actually don’t want a throne at all, because I don’t view myself as a queen; I view myself as one of my fans.
+ - Making ziti for the Chicago Fire Department! I hope they’re not too busy today, but this should fill their bellies I hope they like it!
+ - I don’t want to be remembered as anything but brave. The only good intention to make money is to help others. I want to be Oprah. I want to be Melinda Gates. If I ever sell products other than my talents, then it will be to give more to others.
+ - Prejudice is a disease. And when they come for you, or refuse your worth, I will be ready for their stones. I belong to you.
+ - I see love in black and white. Passion in shades of “gris”. But when it comes to you and I, color is all I see.
+ - My friends joke that I’m dead until I get onstage. I’m dead right now as you’re speaking to me.
+ - I think there are different kinds of fame. There’s fame which is plastic and about paparazzi and money and being rich, and then there’s the fame, which is when no one knows who you are but everyone wants to know who you are.
+ - I am a woman of theatre, I’m a librarian of theatre and I love all different kinds of music and all different kinds of expressions.
+ - Be inspired to ignore their ignorant message, and feel gratitude in your heart that you are not burdened or addicted to hate, as they are.
+ - It’s hard knowing who to trust with your personal life. When you cry in your room at night, you don’t always know who to call. So I am very close to my family.
+ - In the book of Gaga, fame is in your heart, fame is there to comfort you, to bring you self-confidence and worth whenever you need it.
+ - I’m inspired by fashion. I’m inspired by the moonlight. I’m inspired by sex and pornography and slasher films.
+ - I guess you could say I devoted myself so strongly to my music that for awhile I forgot about my family. But I only get one set of parents, and I think I forgot about that for a little while.
+ - Yoga makes me feel like I can do anything.
+ - Its oke to be sad. I’ve been trained to love my darkness.
+ - All you care about is how punk rock you feel when you wake up in the morning.
+ - I was changing my outfits, my looks, my wig, sometimes several times a day. That’s when I know my soul is restless.
+ - Amidst all of these flashing lights I pray the fame wont take my life.
+ - So many will try to destroy me. So many, over and over, coming in periods of greatness. But in this period, I cannot be broken: GAGAKLEIN.
+ - Don’t say I hate institutionalised religion – rather than saying I hate those things, which I do not, what I’m saying is that perhaps there is a way of opening more doors, rather than closing so many.
+ - Being gay is like glitter, it never goes away.
+ - I was doing these performance art pop music pieces in the city. And they were a bit on the eccentric side I suppose. So people started to call me Gaga after the Queen song ‘Radio Gaga.’
+ - I don’t dress any particular way to impress anyone or market myself for my music. It’s actually who I am.
+ - I think that promoting insecurity in the form of plastic surgery is infinitely more harmful than an artistic expression related to body modification.
+ - A middle finger is more New York than a corporate ambush. I bleed for my hometown, and I’d die for my fans.
+ - I am a walking piece of art every day, with my dreams and my ambitions forward at all times in an effort to inspire my fans to lead their life in that way.
+ - Sometimes in life you don’t always feel like a winner, but that doesn’t mean you’re not a winner, you want to be like yourself. I want my fans to know it’s okay.
+ - Love is the new denim or black.
+ - I was called really horrible, profane names very loudly in front of huge crowds of people, and my schoolwork suffered at one point.
+ - I’m a little bit naked, but that’s okay.
+ - People that are obsessed with hating you, feel flattered. Their whole lives revolve around you.
+ - Music and visual performance have to influence each other. Designers and musicians have to be the nexus of all things pop culture, so I think about designers when I’m making music.
+ - I don’t feel like I look like the other perfect little pop singers. I think I’m changing what people think is sexy.
+ - There’s something about lonely nights and my lipstick on your face.
+ - My fashion is about the urban woman in the year 3000. I think about obscure, weird things and try to create a world around them.
+ - Let the blood and the bruises define your legacy.
+ - Some artists want your money so they can buy Range Rovers and diamond bracelets, but I don’t care about that kind of stuff. I want your soul.
+ - I can’t even drive a car. I don’t have a driver’s license. I have a rented apartment in New York. That’s it. When I travel, I have almost all of my possessions with me. That’s how little I own.
+ - Look to yourself for the answer – stop calling your girlfriends and stop calling your mom – you know if it’s working or not, you either feel like a goddess or you don’t.
+ - And now, I’m just trying to change the world, one sequin at a time.
+ - I feel the denial of gay marriage sends a prejudice message. Our youth deserve a fair and hopeful future with government that values us equally.
+ - I find it so important now to be a role model and a figure. And I know that may sound strange to some people, but most important is my connection with my fans and the connection that they breed with one another.
+ - The whole world may not understand me, but I don’t care.
+ - And don’t worry, if I get thrown in jail in Manila, Beyonce will just bail me out. Sold out night 2 in the Philippines. I love it here!
+ - You’re love is nothing I can’t fight. Can’t sleep with a man who dims my shine.
+ - Applause was designed to bemuse and confuse you until it explodes into a chorus that reminds us why we love pop music.
+ - I’m a single girl. I like to have a good time. I just sleep with the guys in the band all the time because it’s easier.
+ - Basically I can’t sleep without every single song I’m writing repeating endlessly, but I’m loving it again. Embracing the torture, as I’m assaulted by my own thoughts. Like a locust giving birth to earworms. Eeeeew!
+ - My grandmother is basically blind, but she can make out the lighter parts, like my skin and hair. She says, ‘I can see you, because you have no pants on.’ So I’ll continue to wear no pants so that my grandma can see me.
+ - I used to get made fun of for being either too provocative or too eccentric, so I started to tone it down. I didn’t fit in, and I felt like a freak.
+ - If I could for a moment just inspire you to love yourself, that would be worth EVERYTHING.
+ - Everyone can access the parts of themselves that are great. I’m just a girl from New York City who decided to do this, after all. Rule the world! What’s life worth living if you don’t rule it?
+ - I have been addicted to it, and it’s ultimately related to anxiety coping, and it’s a form of self-medication, and I was smoking up to 15 to 20 marijuana cigarettes a day with no tobacco.
+ - I’m not a sandwich store that only sells turkey sandwiches. I sell a lot of different things.
+ - Because the sweeter the cake, the more bitter the jelly can be.
+ - Glam culture is ultimately rooted in obsession, and those of us who are truly devoted and loyal to the lifestyle of glamour are masters of its history. Or, to put it more elegantly, we are librarians.
+ - We are not actually equal – humanity – if we are not allowed to freely love one another.
+ - I used to be so delusional. I always imagined I could be more than I was, and eventually I grew and evolved into that person.
+ - My apartment is my stage, and my bedroom is my stage – they’re just not stages you’re allowed to see.
+ - Bare your struggles very close to your heart and have them be a part of you that you’re proud of instead of something that you’re ashamed of.
+ - I don’t care about money.
+ - I want women – and men – to feel empowered by a deeper and more psychotic part of themselves. The part they’re always trying desperately to hide. I want that to become something that they cherish.
+ - I’m definitely a Polaroid camera girl. For me, what I’m really excited about is bringing back the artistry and the nature of Polaroid.
+ - My concerts are about me being very private in public, but I’m very protective.
+ - I don’t want to sound presumptuous, but I’ve made it my goal to revolutionize pop music. The last revolution was launched by Madonna 25 years ago.
+ - My new album that I’m creating, which is finished pretty much, was written with this new instinctual energy that I’ve developed getting to know my fans. They protect me, so now it’s my destiny to protect them.
+ - No press, no television. If my mom calls and says, ‘Did you hear about?’ I don’t want to know nothing about anything that is going on in relation to music. I shut it all off.
+ - People want to tear me down, they were going to knife me anyway.
+ - I want you to walk out of here tonight not loving me more, but loving yourselves more.
+ - Off to the STUDIO in my new whip.
+ - I’m perpetually lonely.
+ - What I’ve learned is that you really don’t need to be a celebrity or have money or have the paparazzi following you around to be famous.
+ - Art is life, life is art – the question is what came first?
+ - You shouldn’t have to have money to have a luxury fragrance.
+ - I just want my family to be safe. Because I am sometimes polarizing, I fear for their safety.
+ - You have to be careful about how much you reveal to people that look up to you so much.
+ - I’m terrified of therapy because I don’t want it to mess with my creativity.
+ - I don’t think I could live without hair, makeup and styling, let alone be the performer I am. I am a glamour girl through and through. I believe in the glamorous life and I live one.
+ - I dropped out of NYU, moved out of my parent’s house, got my own place, and survived on my own. I made music and worked my way from the bottom up.
+ - I want a baby from an Italian – possibly Sicilian – donor.
+ - You must always remember, the most important fashion accessory is the condom.
+ - I went to a lovely school, and I got an incredible education. And I actually think that my education is what really sets me apart, ’cause I’m very smart.
+ - I’ve gone bankrupt about four times now. Every dollar I earn goes on the show.
+ - I’m not a vomit in the club kinda girl.
+ - The statement is that I’m not one icon. I’m every icon. I’m an icon that is made out of all the colors on the palette at every time.
+ - I love Tokio Hotel and their music, their makeup, their hairstyles and their subtlety.
+ - When you’re around me and really see that all I do is live and breathe for my work, it’s not strange, it’s just Gaga.
+ - I don’t think that women need to smell interesting.
+ - My records are borderline dance records. They’ve got a real electro-rock heart and soul, and the vibe of the sentiment is pop, but there’s a lot of people that were like, ‘This is a dance record.’
+ - I think it is very important to join the fight against AIDS and HIV and think it is wonderful that Belvedere and Annabel’s are supporting, and had this event this evening.
+ - I never intended for the Monster Ball to be a religious experience, it just became one.
+ - I do not accept any less than someone just as real, as fabulous!
+ - I’m terrified of babies I think, creatively as a woman, you change once you give birth. I’m totally not ready for that.
+ - I spend my money on my props and my creations. I’m an inventor.
+ - Men weren’t always happy for me. It was very challenging to watch a woman be so successful.
+ - I work all day, do research, sketch my ideas, prepare for performances.
+ - I’m doing everything that I can, working with experts, really studying the statistics to figure out a way we can make it cool or normal to be kind and loving.
+ - I am an artist, and I have the ability and the free will to choose the way the world will envision me.
+ - I love being able to be political without any political affiliation.
+ - I don’t see myself in terms of artifice. I see myself as a real person who chooses to live my life in an open way – artistically.
+ - I think that once you’ve had a few No. 1s in your career that you’ve kind of proven yourself and I don’t feel the need to prove anything anymore.
+ - I am the center of attention in my job every single day; the thought of a wedding to me is exhausting. Why would I put myself through that?
+ - Writing a record is like dating a few men at once. You take them to the same restaurants to see if they measure up, and at some point you decide who you like best.
+ - Some of us wear the mask prouder than others.
+ - I wouldn’t say that I am one of the greatest dancers, but I am really quite good at what I do.
+ - The dieting wars have got to stop.
+ - I feel that if I can show my demise artistically to the public, I can somehow cure my own legend.
+ - Some artists are working to buy the mansion or whatever the element of fame must bear, but I spend all my money on my show.
+ - I want my fans to know I’m there for them. I want them to see every part of me. I am never going to leave them.
+ - I think a lot of people love to convolute what everyone else does in order to disempower women.
+ - There is a strong possibility I will release another volume of ARTPOP and I’m really hoping that it’s soon.
+ - Knowing that I inspired SAM SMITH is one of the most powerful experiences I’ve had as an artist. I was Sam. I still am Sam.
+ - I want you to know, that when you are lonely, I will be lonely too.
+ - Vanity can create a very cruel space for you if you don’t know how to manage it.
+ - It takes time to become myself every morning.
+ - Gay marriage is going to happen. It must.
+ - You think I’m going to ask these sweet 14 year olds to ask their parents to buy a $100 ticket then run around in latex and lip sync? No way.
+ - I got a job when I was 15 because my allowance was about $20 a week which in New York was impossible. So I used to waitress across the street from where I grew up.
+ - I just I felt like a freak, I guess what I’m trying to say is I want to liberate them, I want to free them of their fears and make them feel that they can create their own space in the world.
+ - I just want to keep writing music.
+ - The real cake isn’t HAVING what you want, it’s DOING what you want.
+ - Well my music was different in high school; I was singing about love – you know, things I don’t care about anymore.
+ - So basically I did this whole show carrying 100lbs, looking out of one eye, dancing – and then my tits explode at the end. It’s not as easy as it looks!
+ - I try to not focus on what people expect from me.
+ - Sometimes I think that there’s a fine line between impressionistic and messy.
+ - I decided to pursue music, so I dropped out of school and I told my parents I didn’t want any money from them. I got three jobs and I just hit the ground running.
+ - Fame is ultimately about the cycles of desire and how to do away with them or manage them well.
+ - I don’t like celebrities; I don’t hang out with them; I don’t relate to that life.
+ - I do yoga, I do Bikram and I run, and I eat really healthy.
+ - I think what made it difficult for people to get, and still makes it difficult for people to get, is the theatrical nature of the work and the fact that, my music doesn’t exist without the performance-art element.
+ - If you are not honorable enough to fight without prejudice, go home.
+ - Speaking purely from a musical standpoint, I think I am a great performer.
+ - I’ve made it my goal to revolutionise pop music.
+ - I like black because it is a vacant space.
+ - I don’t know that my schooling was conducive to wild ideas and creativity, but it gave me discipline, drive. They taught me how to think. I really know how to think.
+ - I’ve had grand pianos that are more expensive than, like, a year’s worth of rent.
+ - I don’t view interviewing as much of a performance. My whole life is in essence a performance but singing and dancing for television is an entirely different thing.
+ - I’m always trying to create something that the fans won’t expect.
+ - Then, when I’m in these relationships with people who are also creative, or creative in their own way, what happens is the attraction is initially there and it’s all unicorns and rainbows. And then they hate me.
+ - I just am committed wholeheartedly to theatre with no intermission.
+ - I want kids. I want a soccer team, and I want a husband.
+ - When I wake up in the morning, I feel just like any other insecure 24-year-old girl.
+ - I am so excited to extend myself behind the scenes as a designer and to – as my father puts it – finally have a real job.
+ - I started out playing in clubs. I always like existing under ground and over ground at the same time.
+ - When I was younger, I felt pressure to become someone else once I became successful.
+ - The way that I sing, what I sing about, what I wear, who I am, this is me. I was born this way.
+ - Pop stars should not eat.
+ - I’d wear any of my private attire for the world to see. But I would rather have an open flesh wound than ever wear a band aid in public.
+ - It’s funny when people say they see a lot of Madonna in me. I just feel so flattered because I love her and I am just her biggest fan. She is very strong. I love the way she does interviews -you know you won’t get anything past her.
+ - Being beautiful is not so fun when you’re in a business with all men.
+ - Fashion is that thing that saved me from being sad.
+ - Every video I’m in, every magazine cover, they stretch you; they make you perfect. It’s not real life.
+ - I have a whole second act of ARTPOP and I love it.
+ - A record deal doesn’t make you an artist; you make yourself an artist.
+ - I don’t view myself as outrageous – that’s not the intention. Its to be more and more original.
+ - People think I’m unusual but it’s just that we haven’t had anyone like this since the Seventies.
+ - I don’t like talking to celebrities.
+ - This is one image. This is one moment. This is one statement. ARTPOP.
+ - I’m very free-spirited.
+ - I had this dream, and I really wanted to be a star. And I was almost a monster in the way that I was really fearless with my ambitions.
+ - When I travel, I have almost all of my possessions with me. That’s how little I own.
+ - No matter how much you rehearse on that stage, once you add 30,000 screaming people with flashing cameras into the equation, it’s pretty intense.
+ - I think it’s absolutely a blessing when you just know what your purpose is and your destiny. I don’t think it’s a curse at all.
+ - I already am a product.
+ - I consider myself to have one of the greatest voices in the industry.
+ - My mom and I are very close.
+ - I never wanted to look pretty on stage and sing about something we’ve all heard about before.
+ - I’m not interested in people positioning me next to other artists.
+ - The instrument that I never learned how to play was my fans. You know, they are the part of the story that nobody teaches you. I just want to do the right thing; I want to be a voice with them, among them.
+ - That is what fame is, isn’t it? To get the world to fall in love with you.
+ - I would rather die than have my fans see me without a pair of heels on. And that’s show business.
+ - My next baby will be my new record.
+ - I’ve worked since I was a five-year-old to be a performer.
+ - I really wanted to break the mold of what modern touring is right now.
+ - I think what it really is, is that I date creative people. And I think that what intimidates them is not my purse; it’s my mind.
+ - I live in Hollywood, but you can’t make me love Hollywood. I’ll never love Hollywood.
+ - Unless I am both capable of and willing to reopen the wound every time I write a song, if I choose to not look inside myself to write music, I’m really not worth being called an artist at all.
+ - I hope that what you take away from my album is not just the music – which I did want to be fun, and I did want it to be about individuality, but please also take away from it that there’s no dream that’s too big.
+ - I started when I was really young. I was playing classical music when I was 4 and when I turned 11 I started to write pop music. I guess you could say it was my intellectual evolution and my love of music began to change.
+ - I feel that my fans have cultivated my talent and they continue to nurture me.
+ - My mother always wanted to give back.
+ - How I love David Bowie.
+ - I wanted to only create a great perfume, not any perfume that would sell, but a great artistic one that the fans would not feel cheated by.
+
+374 quotes

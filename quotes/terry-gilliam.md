@@ -1,0 +1,58 @@
+ - Talent is less important in filmmaking than patience.
+ - The whole point of animation to me is to tell a story, make a joke, express an idea. The technique itself doesn’t really matter. Whatever works is the thing to use.
+ - Once the voices are in your head, it’s either make a movie or kill a lot of people.
+ - Fantasy isn’t just a jolly escape: It’s an escape, but into something far more extreme than reality, or normality. It’s where things are more beautiful and more wondrous and more terrifying. You move into a world of conflicting extremes.
+ - I never define depression, clinical or otherwise. It’s the basis of most life, it seems to me, in the modern world. We’re all depressed.
+ - You get trapped by stories. Though I’ve got this reputation for being out of control, it’s not true, it just happens to be a more interesting story than the truth.
+ - It’s the shock of the world if you allow yourself to disconnect from the world and forget it’s out there, how noisy it is, how busy it is, how invasive it is.
+ - Reality and fantasy, we need both of those to survive. If we don’t have fantasy, dreams and all of those things, what’s the point of carrying on? And you need to watch out for reality because buses come.
+ - I can feel my dreams but I can’t remember them.
+ - Nobody went to see Tideland! I was hoping people would get angry about it but those that saw it didn’t want to talk about it. This is the world we’re living in, people don’t want to discuss things that are actually worth discussing.
+ - I don’t think you ever learn just one thing. At some point you start unlearning things. I have been working hard to unlearn everything I know.
+ - The English are such a frightened, nervous, insecure group of people – they no longer rule the world!
+ - The success of the Hollywood marketing machine is to limit what we see. Not just to limit what we can see, but also to limit our expectations – to limit what we want to see.
+ - John Cleese was with a group called Cambridge Circus, who had come to New York, and we became friends. Years later that produced a certain team effort.
+ - Writers do the self-censoring before they even get to the studio executive, because they know the film will not run that gauntlet. They, because they want to get their films made, they censor it.
+ - The forces that run the world always try to keep things under control. The population might be having a wonderful time, buying iPods and going to nice restaurants, but I still feel they’re all kind of under control.
+ - I like being a patron of things, I like patronizing things. And if it’s not going to be people, I’ll patronize a festival.
+ - I was doing political cartoons and getting angry to the point where I felt I was going to have to start making and throwing bombs. I thought I was probably a better cartoonist than a bomb maker.
+ - When it came to slaughtering sacred cows with such crude yet perfect musical precision, there was no one better than Frank. I wonder what songs he’s teaching the angels right now? Good luck God! You’ve got your hands full this time.
+ - I was an incredible Anglophile. I found people who shared the same sense of humor and attitude toward the world.
+ - I’m a cartoonist, it’s what I am at heart, so cartoons take reality and deform it and make it grotesque, you make it funny, but you alter it. If it works, it’s based on reality. That’s what I try to do.
+ - There are moments when television systems are young and haven’t formed properly, and there’s room for lots of original stuff. Then things become more and more top-heavy with executives who are trying to guarantee the success of things.
+ - I hate losing laughs; they’re rare things.
+ - If you really want your films to say something that you hope is unique, then patience and stamina, thick skin and a kind of stupidity, a mule-like stupidity, is what you really need.
+ - The more money you have to work with, the more people you have to deal with that you probably don’t want to be spending time dealing with.
+ - I got my head bashed in at a demonstration against the Vietnam War. Police were losing control because they were up against a world they really didn’t understand.
+ - I do want to say things in these films. I want audiences to come out with shards stuck in them. I don’t care if people love my films or walk out, as long as they have a strong response.
+ - I’m overwhelmed by writers. Most people aren’t impressed by writers, but if you can draw a cartoon or a picture, they think you’re magic.
+ - I think it’s worse for actors, though, because people have to choose you. As a director, I get to choose the actors, but most of the time, actors have to be chosen in order to work.
+ - I wasn’t creative or theatrical. I was just doing everything. I was head cheerleader, valedictorian – it was ridiculous!
+ - I’ve always sworn that not having enough money has saved me from mediocrity.
+ - They all sort of get mixed up in my head, to be quite honest. They’re all dealing with similar things. It’s about how you deal with reality, by ignoring it sometimes, reinventing it other times, and that’s how you get through it.
+ - You know the hardest thing to do in Hollywood is burn bridges. There is usually some sucker who still likes me. There is usually some sucker who will still work with me.
+ - I’m more prone to anarchy than I am to control – even though I’m a film director.
+ - All films are learning processes. I am still trying to work out how you make a movie. I didn’t study at film school or any of those things. I didn’t bother with film theory.
+ - People in Hollywood are not showmen, they’re maintenance men, pandering to what they think their audiences want.
+ - My problem is I’m like a junkie. I want a good movie fix, and I never get that fix.
+ - There’s something about living in the country that I think makes you inventive, because nature is full of miracles and wonder and surprises, and if you don’t have much money, you have to make things if you want things.
+ - It’s hard for me to worry about the studios losing money. I’m not very sympathetic to their money problems, because they certainly haven’t been sympathetic to mine.
+ - Every few years when it’s been another five years that have passed and I haven’t made a film and the depression starts taking over totally, I allow myself to do a commercial. And then I feel really dirty and get to work promptly.
+ - There was a perverse side of me, with things like Van Helsing coming out. I didn’t want to go down that route.
+ - I have always got medicine I want to give to people.
+ - I’m trying to escape by forming my own kind of world. Basically, I’m trying to encourage others to do the same.
+ - I got tired of my taxes paying for exciting little wars around the world. Then I discovered that when I died, my wife would probably have to sell our house to pay for the taxes in America.
+ - Whatever I do might be good, it might be bad, it might be all sorts of things, but it’s not mediocre.
+ - I thought, how do you confuse violent Russian mobsters? Well, by being silly!
+ - Actually, I began to think that maybe there is a god, after all. Or maybe its a different one. The old one got fired.
+ - Hyperbole is something Id better avoid.
+ - Invariably, what I’m trying to do is more ambitious than the budget, but we manage to do it somehow.
+ - Because I dislike being quoted I lie almost constantly when talking about my work.
+ - I was getting frustrated with America. It’s interesting how as simple a thing as, like, letting your hair grow longer changed in the world in those days.
+ - Now, anybody can make a movie, and I don’t see that many great movies, because I think there’s only a limited amount of talent out there.
+ - I just like the fact I can make a film which might give comfort to some people who think they are the only crazy person in the world and suddenly they see there are two crazy people in the world.
+ - In advertising, I was frustrated by having to deal with the client. It was the only time I really worked in a proper office, and I didn’t like it-simple as that.
+ - Everybody gets excited about technology, but it doesn’t interest me in the least. I’m only interested in it if it makes my job easier or cheaper. They’re tools.
+ - I think that’s the problem with kids now. Everything is manufactured. And then they’re sitting there watching the television, where all the work is done for them. Radio made me use my imagination.
+
+56 quotes

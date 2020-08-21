@@ -1,0 +1,88 @@
+ - To succeed in life, you need three things: a wishbone, a backbone and a funny bone.
+ - I have a lot to be thankful for. I am healthy, happy and I am loved.
+ - All the money in the world can’t buy you back good health.
+ - There’s a lot of power in putting it out in the universe. It’s telling your subconscious mind, ‘This is what’s gonna happen.’
+ - Watch what you say and do because little eyes are watching you.
+ - Again its time to pray for peace.
+ - For me, singing sad songs often has a way of healing a situation. It gets the hurt out in the open into the light, out of the darkness.
+ - Living might mean taking chances, but they’re worth taking. Loving might be a mistake. but its worth making.
+ - My mama is my best friend. We have fun, we can talk about anything, she always is on my side but really quick to tell me when I’m wrong. That’s a true friend. She’s loyal, smart, witty and intelligent. She loves family and loves to travel. All the things I love!
+ - Besides, I’m a gypsy at heart and I like to travel around.
+ - It’s very important to surround yourself with people you can learn from.
+ - Be different, stand out, and work your butt off.
+ - I love to wear boots – and shoes, I don’t like at all.
+ - Finding a good bus driver can be as important as finding a good musician.
+ - I think my song that reminds me of Mama is “I’m A Survivor” because she is one.
+ - If I’m not the one thing you can’t stand to lose, If I’m not that arrow to the heart of you, If you don’t get drunk on my kiss, If you think you can do better than this then I guess we’re done. Let’s not drag this on, Consider me gone...
+ - A good song has to have a great melody, and the lyrics have to touch my heart. Now, if it’s just a little toe-tapper, got to make me feel good somehow or another, or when I sing it I can’t make you feel good.
+ - The biggest challenge in my life is getting all these kids raised. I’ve helped with nieces, stepchildren and my own son, so the biggest challenge is making sure the kids are raised and finding enough quality time with them.
+ - If dreams give you power, then I’m strong enough to walk through my heart till you love me.
+ - The upside to anger? Getting it out of your system. You got to express your anger. Then you have room for more positive things. If I hold something in a long time, and then I speak it, it’s amazing how the light shines so much brighter.
+ - Being a strong woman is very important to me. But doing it all on my own is not.
+ - Being sexy is kind of funny to me.
+ - We all love being outdoors. Grandma was in her garden or fishing; Mama loves to fish and I love to be outside. We all love the Lord.
+ - I grew up in southeastern Oklahoma on a working cattle ranch, and it was always very romantic to me: The West, the cowboy, the Western way of life.
+ - I love my mother-in-law and I think I’m a really good one, too.
+ - Easter is very important to me, it’s a second chance.
+ - To me, being popular means I’ve got more friends. You’ve got to watch who your friends are, if you want to get close to them, but I’ve got a lot of acquaintances. And then, you’ve got to be real careful who your friends are, because you never know why they’re your friend.
+ - My goals have changed throughout my life. At one time it was winning awards, selling out concert dates, selling more albums than anyone else. Now, my goals are to see my grandchildren grown, live a long and healthy life with my family and friends and travel the world.
+ - Also, any older song, especially any World War II songs remind me of Mama. She goes around the house either whistling or singing all the time. It drives my sister Alice crazy when we’re playing games and Mama does that while it’s Alice’s turn!
+ - Sometimes I hate how much I love him But everyday I love him more.
+ - You know, I can get kind of spunky or I can get tough, you know, that kind of tough, sexy look. But sexy? No, I don’t think so.
+ - Waiting makes me restless. When I’m ready, I’m ready.
+ - Mama was a stickler on keeping your word. That’s helped me to make the right decisions in so many situations. Because of that, I also think really hard before I make a decision because I know I’m going to have to see it through.
+ - When you’re a very ambitious person, the things that are disappointing are when other people around you aren’t as enthusiastic.
+ - Habitat for Humanity is a cause that is near and dear to my heart. I am proud to be a part of the partnership between Whirlpool and Habitat and appreciate everything these two organizations are doing for the wonderful Nashville community and other communities throughout the world.
+ - Whenever a natural disaster occurs, it is always the Red Cross that responds quickly and compassionately. I am honored to lend my voice to their cause, and thrilled to serve on the Celebrity Cabinet for 2010.
+ - Growing up is not being so dead-set on making everybody happy.
+ - When I learned to forgive, it was like a million pounds were lifted from me.
+ - Get as much out of life as you possibly can with all the passion that goes with it. Then give it back with all the love and respect it deserves.
+ - When I left, after my divorce, when I left Oklahoma, I never looked back. It was the future. It was looking forward from then on.
+ - I have learned a lot about myself and come to deal with a lot of things that, at first, bothered me.
+ - I’ve never turned my back on country music.
+ - Make sure you’re always giving, way more than you’re taking.
+ - How was I to know that I’d be ok? I thought I’d lose it all when you walked away. How was I to know that I’d be this strong? I had what it takes all along. How was I to know?
+ - Mama is funny. She has a great sense of humor and loves a good joke. Loves a practical joke, too.
+ - Without God, I don’t see how folks cope.
+ - Everything I’ve done in my career is a result of growing up in rural Oklahoma, because if I hadn’t had the training from Mama and Daddy to work hard, to do what I’m told, to take directions, to mind and to do a good job at anything I set out to do, then I wouldn’t be where I am today.
+ - I’ve got CDs in my car, listening all the time for that next song, because everybody’s looking.
+ - He was good in business, but there was business left to do. He never said he loved me, guess he thought I knew.
+ - I had lots of breaks. I guess the one that got my foot in the door was singing the National Anthem at the National Finals Rodeo in Oklahoma City in ’74.
+ - Life’s supposed to be about making the path a little gentler for those traveling behind you.
+ - I have the attention span of a 2-year-old. I like to jump from project-to-project.
+ - I exercise at least five times a week with stretching, Pilates, push-ups, planks, sit- ups, squats and light weights.
+ - When onstage, I always try to take my audience through as many emotions as I possibly can. I want them to go from laughter to tears, be shocked and surprised and walk out the door with a renewed sense of themselves – and maybe a smile.
+ - Patsy Cline? Larger than life! She taught me emotion: raw, sincere, unashamed.
+ - So, I took lessons, and I love to shoot now. It’s a lot of fun.
+ - It’s funny how many people will come to Vegas to see your show where they might not come out to see you unless you come to their hometown.
+ - I have talked to Debbie Hammond quite a bit, Jim Hammond’s wife, his widow. I’ve seen their kids. And last time we played Dallas, a lot of them came over. It’s hard for them to come see the show. It’s still hard.
+ - For no. 1, it’s great writing, super writing. The second thing is that it’s great chemistry with all the actors. We just all got along from the very start. Very get-go, we all got along. We just – it was just like we were all meant to be there together.
+ - Fame is a mind – a way of thinking about things. It’s all in your mind.
+ - You don’t waste your entire life waiting to go back to dust.
+ - And I was mischievous. I was always into something. So when I got good attention from the singing, I knew that was probably where I needed to land.
+ - At this time when I turn 50, because so there’s many of my friends and family who didn’t get to see 50-years-old, and so, I’m celebrating for them too.
+ - I love to sing with different people.
+ - I think it’s a wonderful time for a woman.
+ - You know, I get a lot of people pitching songs to me.
+ - And the two planes that were taking the band and crew that we had taken out to San Diego were flying out after the show. And so I was never supposed to be on that plane.
+ - I’m open to any kind of situation in a song as long as it touches my heart.
+ - I think it’s the way I talk. I think they thought I was too country. And I’m not ashamed of that by any means.
+ - You’ve got to stay current and up with the competition. The main thing, though, is finding the greatest songs you can possibly find.
+ - And so we were asleep there in San Diego. And our pilot called us. And his brother was on one of the other planes. And when he was leaving the airport, he saw in his rear view mirror that there was an explosion.
+ - I always wanted to be an actress. I always wanted to be a movie star.
+ - So, we come out to Los Angeles. And we met with every network. We met with show runners, directors, writers, everything. And what we had an idea for, they didn’t like. And what they had an idea for, we didn’t like. So, we went home.
+ - But I like to listen to demos. I like to hear the finished product. It’s like listening to a song – I mean, a story. If you’re going to sit here and tell me a story, I just like to listen. I don’t want to make them up.
+ - Never have doubted it, even when the plane crash happened. I wasn’t mad at God. I just knew that there was a reason that I didn’t know about why it happened.
+ - But I think a song that is really emotionally packed, with a great melody that just will soar, that’s the keeper.
+ - I use all my skills that I can muster up, but the fun thing is that I find some untapped skills every once in a while. I get that from my daddy.
+ - To me, there’s two types of songs, good and bad. And I just like to stick with the good ones.
+ - I’ve never really done this. Now I know what scared is.
+ - I always like story songs, Dolly Parton, Tom T. Hall, Mel Tillis, Red Stegall, when they’d do their story songs. I was totally enthralled.
+ - I was singing a lot of waltzes. And I was with Jerry Kennedy, my producer, and he was playing me some songs, and he said, hey, I want to play you this song that I’m going to get Jackie Ward to record.
+ - I totally love to act. I don’t care if it’s a musical, a comedy. I just like to work and interact with other people.
+ - Anything worth doing, is worth doing all the way. Just know you’ll have to live with all the choices that you make.
+ - I was one of the very first people to ever do a video in country music.
+ - I don’t think there’s ever been a point in my career where I’ve said, ‘I’ve made it.’ What does that mean, ‘I’ve made it?’ Made it to what? If you say, ‘I’ve made it.’ then are you finished? I don’t want to be finished. I don’t want to quit.
+ - I don’t think quantity time is as special as quality time with your family.
+
+86 quotes

@@ -1,0 +1,41 @@
+ - Life is a lone wolf, scratching out a living with teeth and claws and a heart of stone.
+ - The enemy of my enemy is my friend.
+ - Embrace your complexity, stretch your creativity, and live up to your potential, you are what makes the world great.
+ - Humanity will destroy itself, body and soul, before it will learn a simple lesson.
+ - Fear is about things that you can’t control. The future or the dark, or someone trying to kill you. You don’t get scared of yourself because you always know what you’re going to do.
+ - I am stronger than my trials.
+ - Jayden laughed grimly. ‘Press the attack and hope for the best.’ ‘Hope is not a strategy,’ said Kira ‘It’s not plan A,’ said Jayden, ’and it shouldn’t be plan B, but it is every plan C that has ever been made.
+ - Sometimes the hand that feeds you needs a good bite.
+ - You don’t get a life until you make one worth living.
+ - I love talking to people and hearing their stories. Everyone’s got their own story to tell, and when you sit down with someone and really talk to them, you can learn so much.
+ - I’m the demonslayer. Come and get me.
+ - It doesn’t matter what other people think when you’re right – John Cleaver.
+ - This book is dedicated to the rule breakers, the troublemakers, and the revolutionaries. Sometimes the hand that feeds you needs a good bite.
+ - Life comes from death, and weakness teaches us strength.
+ - If you want to survive in this world, you need to stop asking why people work together, and just start working together.
+ - I cursed him then, not because his tears were fake, but because they were real. I cursed him for showing me, with every tear and every smile and every sincere emotion he had, that I was the real freak.
+ - Life is too short. It’s too precious. We have to live in this world, but we don’t have to wallow in it. We don’t have to fill our lives with all of this darkness.
+ - If I’m going to spend the whole night waiting for you guys to stop flirting and shoot each other, I want to at least be entertained.
+ - The last to fall were the buildings, distant and solemn, the gravestones for an entire world.
+ - I stared at her closely, studying her face, her eyes, everything. This was the angel that tamed a demon; the soul that trapped him and held him with a power he’d never felt before. Love.
+ - Freedom is a responsibility to be earned, not a license for recklessness and anarchy. If someday, despite our strongest efforts and our deepest determination, we finally fall, let it be because our enemies finally beat us, not because we beat ourselves.
+ - If my life had no meaning there was no reason not to end it.
+ - Even a paranoid clock is being followed twice a day.
+ - You make your own choices, Kira, and you can’t let anyone ever take that away from you.
+ - I didn’t know how to explain what I meant; sociopathy wasn’t just being emotionally deaf, it was being emotionally mute, too. I felt like the characters on our muted TV, waving their hands and screaming and never saying a word out loud.
+ - It’s a pretty big shock to realise that the only people you can identify with are psychopathic killers.
+ - I’d rather know how you feel than hope and wonder and delude myself for weeks on end...
+ - Happiness is the most natural thing in the world when you have it, and the slowest, strangest, most impossible thing when you don’t.
+ - It’s not John who wants to cut his mother into tiny pieces, it’s Mr. Monster. See? I feel better already.
+ - I simply felt alone, one leaf sitting miles away from a giant, communal pile.
+ - If you can’t know the truth, said Isolde, live the most awesome lie you can think off.
+ - Here was something that I did all the time, and thought nothing of it, and it turns out the rest of the world thinks it’s completely reprehensible. That’s when I knew I needed to change, so I started making rules. The first one was; Don’t mess with animals.
+ - If you have the strength to whine, you have the strength to do something about it.
+ - I guess all we have left are awesome dreams.
+ - Humans aren’t defined by death, and they’re not defined by what they lack. They’re defined by their connections.
+ - The most important thing you can ever know, is that whatever your purpose is, that’s not your only choice.
+ - I’d like to think humans have a stronger sense of justice than the random forces of nature do.
+ - Facts are too busy being true to worry about how you feel about them.
+ - Love’s not the point. We just do what we always do, and we get by.
+
+39 quotes

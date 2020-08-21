@@ -1,0 +1,25 @@
+ - Life is like an analogy.
+ - No one pays me to be nice.
+ - When all else fails, complicate matters.
+ - Ennui and lethargy are waging a war inside me.
+ - Luck consists largely of hanging on by your fingernails until things start to go your way.
+ - The good thing about being Dr. Frankenstein is that you can always make new friends.
+ - No, General. I’m not your subordinate. And what I’m coming dangerously close to is violence. -General Wedge Antilles.
+ - The difference between tragedy and comedy: Tragedy is something awful happening to somebody else, while comedy is something awful happening to somebody else.
+ - Lawyers are the first refuge of the incompetent.
+ - If you hack the Vatican server, have you tampered in God’s domain?
+ - There are two types of people in the world, and I’m one of them.
+ - Any sufficiently badly-written science is indistinguishable from magic.
+ - Sometimes to heal, you must first get hurt.
+ - Rogue Squadron doesn’t run. Unless we really, really have to.
+ - Oh, wonderful. I killed his father. He hates me. He knows how to make bombs. Come on, Wedge, how does this story end?
+ - Feminism is sort of like God. Many people profess to believe in it, but no one seems to be able to define it to everyone’s satisfaction.
+ - I don’t know. Your the Jedi Master, you figure it out.
+ - The analysis of the thing is not the thing itself.
+ - The chief difference between horror fans and science fiction fans lies in why they won’t walk backwards. A horror fan won’t walk backwards because he knows he’ll be knifed by a madman. A science fiction fan won’t walk backwards because he knows he’ll step on the cat.
+ - The principle of Sturgeon’s Razor states that the simplest answer to any problem is 90% crap.
+ - No, they can’t. They can’t be Luke Skywalker.
+ - I really can’t complain about actresses who get paid to be dumb. Most of us can’t get paid to be smart.
+ - I’m content to stand on tradition. I’m even more content to wipe my feet on it.
+
+23 quotes

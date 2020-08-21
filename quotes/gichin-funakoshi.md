@@ -1,0 +1,43 @@
+ - Think of everyday life as karate training.
+ - Spirit first, technique second.
+ - There is no first strike in Karate.
+ - The ultimate aim of Karate lies not in victory or defeat, but in the perfection of the character of its participants.
+ - Put Karate into your everyday living, that is how you will see true beauty.
+ - First know yourself, then know others.
+ - Seek perfection of character. Be faithful. Endeavor. Respect others. Refrain from violent behaviour.
+ - Karate-do begins with courtesy and ends with rei.
+ - Don’t pretend to be a great master and don’t try to show off your strength.
+ - When two tigers fight, one is certain to be maimed, and one to die.
+ - Karate is like boiling water, if you do not heat it constantly, it will cool.
+ - In battle, do not think that you have to win. Think rather that you do not have to lose.
+ - Karate is like boiling water: without heat, it returns to it’s tepid state.
+ - Always be ready to release your mind.
+ - Karate-do strives internally to train the mind to develop a clear conscience, enabling one to face the world honestly, while externally developing strength to the point where one may overcome even ferocious wild animals. Mind and technique become one in true karate.
+ - When you look at life think in terms of karate. But remember that karate is not only karate – it is life.
+ - To search for the old is to understand the new.
+ - Apply the way of karate to all things. Therein lies its beauty.
+ - You may train for a long time, but if you merely move your hands and feet and jump up and down like a puppet, learning karate is not very different from learning a dance. You will never have reached the heart of the matter; you will have failed to grasp the quintessence of karate-do.
+ - You must be deadly serious in training. When I say that, I do not mean that you should be reasonably diligent or moderately in earnest. I mean that your opponent must always be present in your mind, whether you sit or stand or walk or raise your arms.
+ - Inner mental technique is more important than the physical one.
+ - Students of any art, including Karate-do must never forget the cultivation of the mind and the body.
+ - Success, cannot be attained alone. Any person’s time and power is limited. A wise leader enlists others in working toward organizational goals.
+ - Once a kata has been learned, it must be practised repeatedly until it can be applied in an emergency, for knowledge of just the sequence of a kata in karate is useless.
+ - In the past, it was expected that about three years were required to learn a single kata, and usually even an expert of considerable skill would only know three, or at most five, kata.
+ - No matter how you may excel in the art of Karate, and in your scholastic endeavors, nothing is more important than your behavior and your humanity as observed in daily life.
+ - Only a true weakling is capable of true courage.
+ - Since karate is a martial art, you must practice with the utmost seriousness from the very beginning.
+ - The secret principle of martial arts is not vanquishing the attacker, but resolving to avoid an encounter before its occurrence. To become an object of an attack is an indication that there was an opening in one’s guard, and the important thing is to be on guard at all times.
+ - It is important that karate can be practiced by the young and old, men and women alike.
+ - Beginners must master low stance and posture, natural body positions are for the advanced.
+ - You must ignore the bad and adopt the good.
+ - True karate is this: that in daily life one’s mind and body be trained and developed in a spirit of humility, and that in critical times, one be devoted utterly to the cause of justice.
+ - One of the most striking features of karate is that it may be engaged in by anybody, young or old, strong or weak, male or female.
+ - Remember that you must always have a deep regard for courtesy, and you must be respectful and obedient toward your seniors.
+ - In time of grave public crisis, one must have the courage to face a million and one opponents.
+ - Karate is a technique that permits one to defend himself with his bare hands and fists without weapons.
+ - When you are learning a new technique, practice it wholeheartedly until you truly understand it.
+ - Karate is a defensive art from beginning to end.
+ - Try to do exactly as you are taught without complaining or quibbling.
+ - Any man will be able, after sufficient practice, to accomplish remarkable feats of strength, but he may go only so far and no farther. There is a limit to human physical strength that no one can exceed.
+
+41 quotes

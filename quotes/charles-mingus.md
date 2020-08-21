@@ -1,0 +1,37 @@
+ - Making the simple complicated is commonplace; making the complicated simple, awesomely simple, that’s creativity.
+ - Jazz music is a language of the emotions.
+ - Creativity is more than just being different. Anybody can plan weird; that’s easy. What’s hard is to be as simple as Bach. Making the simple, awesomely simple, that’s creativity.
+ - They’re singing your praises while stealing your phrases.
+ - I admire anyone who can come up with something original. But not originality alone, because there can be originality in stupidity, with no musical description of any emotion or any beauty the man has seen, or any kind of life he has lived.
+ - If someone has been escaping reality, I don’t expect him to dig my music.
+ - Whatever coast he’s on, a man should be himself. I don’t write in any particular idiom, I write Charles Mingus.
+ - If Charlie Parker were a Gunslinger, There’d be a Whole Lot of Dead Copycats.
+ - Making the complicated simple is true creativity.
+ - Anybody can make the simple complecated. Creativity is making the complecated simple.
+ - Let my children have music! Let them hear live music.
+ - I’m trying to play the truth of what I am. The reason it’s difficult is because I’m changing all the time.
+ - I never heard my music played the way I heard it in my head.
+ - Tastes are created by the business interests. How else can you explain the popularity of Al Hirt?
+ - Everything I do is Mingus.
+ - In my music, I’m trying to play the truth of what I am.
+ - My music is evidence of my souls will to live.
+ - Just because I’m playing Jazz I don’t forget about me. I play or write me the way I feel through Jazz.
+ - If you think this is weird, just look at yourselves.
+ - I’m too busy playing. When I’m playing I don’t pay attention to who’s listening. When I was listening I listened to symphony orchestras, Beethoven, Bach, Brahms, Stravinsky. You don’t listen to one instrument; you listen to music.
+ - Making the simple complicated is commonplace;...
+ - I am Charles Mingus, half black man, not even white enough to pass for nothing but black. I am Charles Mingus, a famed jazzman, but not famed enough to make a living in this society.
+ - Bach is how buildings got taller. It’s how we got to the moon.
+ - What do you think happens to a composer who is sincere and loves to write and has to wait thirty years to have someone play a piece of his music?
+ - I’ve got a feeling that, if it’s so easy for you, the struggle and the initiative are not as strong as they are for a person who has to struggle and therefore has more to say.
+ - My son’s a painter. All through school his teachers tell him he’s a genius. I tell him to paint me an apple that looks like an apple before he paints me one that doesn’t. Go where you can go, but start from someplace recognizable.
+ - Most of the soloists at Birdland had to wait for Parker’s next record in order to find out what to play next. What will they do now?
+ - Most customers, by the time the musicians reach the second set, are to some extent inebriated. They don’t care what you play anyway.
+ - In high school I was on the basketball team, but the coach did something I didn’t dig and the next day he looked up and saw me practising with the football team.
+ - I was always doing revolutionary things, things that would alert people, so they would stop being so subservient.
+ - I always wanted to be a spontaneous composer.
+ - Life has many changes. Tomorrow it may rain, and it’s supposed to be sunshine, ’cause it’s summertime. But God’s got a funny soul, he plays like Charlie Parker.
+ - I always thought that no matter what kind of work people did, they should involve themselves totally with all the discrimination they ran into.
+ - Thelonius Monk went over to Bird and Bud Powell and said, ‘I told you guys to act crazy, but I didn’t tell you to fall in love with the act. You’re really crazy now.’
+ - I was born swinging and clapped my hands in church as a little boy, but I’ve grown up and I like to do things other than just swing. But blues can do more than just swing.
+
+35 quotes

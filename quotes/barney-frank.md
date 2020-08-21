@@ -1,0 +1,70 @@
+ - Ronald Reagan believes in the free market like some people believe in unicorns.
+ - Take free speech: most of the tough cases on free speech involve very unpleasant people saying very obnoxious things.
+ - The fact that theyre a congressionally chartered group should no more incline people to give to that group than the fact that its National Pickle Month should make them eat more pickles.
+ - Before this learning experience, I had assumed that with regard to programs that sought to help people out of poverty, the political world was essentially divided into two camps: conservatives who opposed these for a variety of reasons, and liberals who supported them.
+ - The best antidote to prejudice is reality.
+ - These two entities Fannie Mae and Freddie Mac are not facing any kind of financial crisis. The more people exaggerate these problems, the more pressure there is on these companies, the less we will see in terms of affordable housing.
+ - Moderate Republicans are reverse Houdinis. They tie themselves up in knots and then tell you they can’t do anything because they’re tied up in knots.
+ - People are entitled to the presumption of innocence.
+ - Conservatives believe that from the standpoint of the federal government, life begins at conception and ends at birth.
+ - I smoke a cigar or two a day. I did have a brownie once. It made me sleepy.
+ - Nothing in the world is as mobile as capital. It can move anywhere in the world instantaneously.
+ - Disruption never helps your cause. It just looks like you’re afraid to have rational discussion.
+ - Capitalism works better from every perspective when the economic decision makers are forced to share power with those who will be affected by those decisions.
+ - Going before an audience of people who expect you to be funny is tough. Going before an audience that expect you to be boring, and then being a little funny, is much easier. I prefer easier.
+ - Martin Luther King said, and it is sadly still true, that one of the most segregated times in America is the hour of worship.
+ - There was a degree of interventionism in American foreign policy, the notion that we must be the superpower and we have to intervene everywhere, that I think makes no sense.
+ - The left and the right live in parallel universes. The right listens to talk radio, the left’s on the Internet and they just reinforce one another. They have no sense of reality. I have now one ambition: to retire before it becomes essential to tweet.
+ - We don’t get ourselves dry cleaned.
+ - We all have the right to call each other names. Rudeness is a deeply held constitutional value.
+ - What’s troubling is that the Republicans to defend Mr. DeLay are weakening the ethics process.
+ - The issue is not that morals be applied to public policy, it’s that conservatives bring public policy to spheres of our lives where it should not enter.
+ - I should have voted for the first Iraq war. George Bush did that one very well. I had been skeptical. I was afraid that George Bush was going to treat the first Iraq war the way his son treated the second.
+ - I believe it is a good thing to get rid of Gaddafi. But does America have to do everything?
+ - Most people who are activists and are concerned about issues get their information from sources which reinforce their opinions and give them the facts that they want to hear.
+ - But on those occasions when I do strongly disagree with the Democrats and I don’t say anything, I think I forfeit my right to have people pay attention to me when I say the things that I don’t like about what Republicans are saying.
+ - In a free society a large degree of human activity is none of the government’s business. We should make criminal what’s going to hurt other people and other than that we should leave it to people to make their own choices.
+ - For most of my life, I have eaten to deal with stress.
+ - They appear to have become so attached to their outrage that they are even more outraged that they won’t be able to be outraged anymore.
+ - The best humor is offered up by the stupidity of your opponents.
+ - Ridicule is about the most powerful weapon possible.
+ - Increasing inequality in income distribution in this country has broader policy implications, and there is also the growing problem of perverse incentives that result from executives receiving grossly disproportionate compensation based on decisions they themselves take.
+ - The public is ready now for a safety net for the middle class, something not just for the poor, but for everyone who will need help, from time to time, in order to own a home, educate their kids, keep themselves healthy or have something to retire on.
+ - If people knew of ethics violations, they should have sent them to the Ethics Committee. If you think there was serious ethics violation that ought to be looked at, you don’t hold it back for retaliatory purposes.
+ - This bill is the legislative equivalent of crack. It yields a short-term high but does long-term damage to the system and it’s expensive to boot.
+ - A leader can’t move a country that’s not ready. You can’t make the waves, but when you see them coming, you can help direct them.
+ - It seems to me that politicians ought to use the same words as other people.
+ - Legislators have a formal set of responsibilities to work together, but there’s no hierarchy.
+ - In the debate between those who believe in essentially unregulated markets and others who hold that reasonable regulation diminishes market excesses without inhibiting their basic function, the subprime situation unfortunately provides ammunition for the latter view.
+ - And unless you think there is a serious chance you’re going to jail, don’t listen to your lawyer.
+ - The problem with the war in Iraq is not so much the intelligence as the stupidity.
+ - Excessive partisanship is the problem. There has never been a democracy in the history of the world in a polity of any size where you didn’t have political parties. Even sometimes over the objections of the people who started it.
+ - When community action was put into federal law in the early sixties as part of the effort to combat poverty and social injustice, I supported it intellectually.
+ - Community action is as valuable a principle on the international level as it has been domestically.
+ - In America, unlike England, unlike Israel, unlike Japan, other democracies, we have elections that have staggered terms.
+ - But it is also clear that left entirely untouched by public policy, the capitalist system will produce more inequality than is socially healthy or than is necessary for maximum efficiency.
+ - But when others suggested that the poor should not simply be the objects of these programs but also the subjects – that they should be actively involved in shaping the programs, making decisions about how to spend the money etc. – some of the previous supporters reconsidered.
+ - While I was pleasantly surprised by the relatively high number of jobs created in April, the fact is that job creation during this recovery period has significantly lagged both historical experience in recovery, and the projections of the Bush Administration.
+ - I hope we will not so characterize religious people as being so narrow and so biased towards people not of their own religion that they cannot even work with them in this common cause to which you say they are committed.
+ - The rights of the people who have done terrible things are hard to defend. You have to keep pointing out, the question is the process to determine whether they’ve done the terrible things.
+ - Lawyers are very, very good at keeping you out of prison, but they will sacrifice your reputation and credibility to do so.
+ - For the trustees to turn away from the entirely reasonable request of the students that a hearing-impaired individual be made president of the college is a very unfortunate expression of insensitivity.
+ - It is, of course, further indication that a fundamentalist right has really taken over much of the Republican Party, People might cite George Bush as proof that you can be totally impervious to the effects of Harvard and Yale education.
+ - Bush senior used to say that we have more will than wallet. So he urged the country to attack poverty with a thousand points of light, none of which could be eaten.
+ - But here too it should be noted that the President’s approach was to first ask the repressive and brutal Taliban to surrender Osama bin Laden to us, and only after that government refused to do that did we invade.
+ - Well, many of us believe that excessive media concentration is a subject that ought to be addressed, and it is, of course, the intention of the majority party not to allow that to be discussed.
+ - Serving in Congress is like having a second shot at high school.
+ - For many of those who had historically supported welfare programs in the broadest sense, it was perfectly reasonable to enact legislation in which poor people were the objects of efforts to assist them.
+ - Whenever people are being intellectually dishonest in debate, it is an implicit concession they have lost the fight.
+ - And I think there is too much bloviating around from politicians.
+ - I think there was an absolute, deep gap between consensual relations between adults, which people may like or dislike, and people who physically impose themselves on children or misuse their authority to impose on children.
+ - I have this fear that one day there’s going to be a fire in the Senate and there are only going to be 57 Senators there and they’ll all die because they won’t have the 60 votes to allow themselves to leave the building.
+ - Let us not say that we will decide on a political basis at the national level that no State is competent to regulate the practice of medicine in that State if they decide to allow a doctor to prescribe marijuana, because that is what we are talking about.
+ - It is because the fight against the harshest aspects of unrestricted capitalism is therefore a political problem and not an intellectual one that community action remains so essential.
+ - I will tell you, I’m a lousy cook, but I think I’m a pretty good judge of a good meal.
+ - Today, many people take for granted the notion that people whose lives are going to be very heavily affected by public policies should have a say in how they are formulated and carried out.
+ - I do not think that any self-respecting radical in history would have considered advocating people’s rights to get married, join the Army, and earn a living as a terribly inspiring revolutionary platform.
+ - I do not believe that the federal government should treat adults who choose to smoke marijuana as criminals.
+ - I have been mislabeled as a big advocate of low-income home ownership over rental.
+
+68 quotes

@@ -1,0 +1,26 @@
+ - It’s a new stage and a new moment in my life. I’m moving forward. It feels quite inspiring, fun, and positive. As I get older, I find a greater sense of self-confidence. I’ve learned that it’s fine to not try to be anything else but myself.
+ - Get out there, even if it’s a hike or something, just break up the monotony of going to the gym.
+ - I think I could drink my own blood. Is that weird?
+ - My definition of sexy is not just using what you got from God, but also that you represent what you believe in. I don’t want people to think I’m sexy for what I look like, I want them to find me sexy for who I am and what I do.
+ - I’m not squeamish at all. As a child I dragged a dead squirrel home on my skateboard and cut it open and tried to look at its brain.
+ - I just want an opportunity. If you don’t like the audition, don’t hire me! But if you don’t want to even see me – that’s hurtful. And why? You know nothing about me!
+ - If I got a dollar every time someone told me to name my future kid ‘Batmo’ I’d almost have enough to pay for therapy for a kid named Batmo.
+ - Being willing to suffer often brings great rewards.
+ - There is so much pressure to look a certain way in this town. But it’s nice to have a little meat on you, and I hope I inspire women to appreciate their muscular calves.
+ - At 10, I was intrigued by surgery, I wanted to be a surgeon for a long time. I love doctor shows and surgery shows. Blood is not an issue for me. I even took pictures once of me getting my blood taken.
+ - I love the discipline. I love the schedule of pushing your body to an extreme and getting it to a particular type of physical shape. Learning a new self defense or some kind of martial art that I didn’t know before and the loving of that is also hating that at the same time.
+ - I’ve been involved with sports my whole life, which made clothes and makeup and handbags not that important as a kid. I just didn’t care.
+ - Being someone I’m not for a period of time and loving every minute of being in someone else’s skin.
+ - I work with a couple charities called Serving Those Who Serve and Rebuilding Together. Both are supportive of veterans when they come home.
+ - You know how great villains just believe in what they’re doing? In their minds they’re not villains, they’re not doing anything wrong; they’re just self-righteous in their dedication to their cause.
+ - Being Sexiest Woman Alive definitely didn’t just open all the doors for me, which I thought it would. I thought, ‘This is going to be huge for me!’ And it really wasn’t at all.
+ - Definitely. Cate Blanchett or Meryl Streep, Julianne Moore – women that have no boundaries, no borders. They can do anything, They can be any character and you accept it and go with it as a viewer, and as an audience member. That’s the kind of career that I’m looking for.
+ - I was skeptical about doing Texas Chainsaw at first because it’s such a cult classic. I’d seen some of the sequels and was not a fan of those.
+ - You’ve got to love this business. You have to be able to take rejection.
+ - You know, those iconic things we wanted to throw in for fun, but I think the point to see it was to see how totally different it was from what Len wanted to do with it. It’s a different beast completely.
+ - I’m not going to give up doing interesting things. I’m going to do it as long as I possibly can and hopefully have longevity in this business.
+ - It’s the same kind of preparation you do for something like this you do for anything. It doesn’t matter if it’s a drama or a comedy, the need to get the emotion and the character arc across is way harder in something like this so was more of a preparation.
+ - I can’t even go to the dry cleaner by myself anymore. You’re seen in public with anybody that you might not even know, and you’re speculated about.
+ - A lot of the times once you’ve finished a scene, the best reaction is to say you don’t really remember what happened. I don’t really remember what I did or the choices I made.
+
+24 quotes

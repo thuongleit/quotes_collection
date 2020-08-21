@@ -1,0 +1,51 @@
+ - I say if I’m beautiful. I say if I’m strong. You will not determine my story – I will.
+ - You shoot saltwater in your ass?
+ - Want me to Stevie Wonder my way to the bathroom?
+ - Don’t feel bad for me. I think I’m, like, so pretty.
+ - The moments that make life worth living are when things are at their worst and you find a way to laugh.
+ - My mom is very good at being passive-aggressive, and my Dad is a total wiseass, so I think the mixture of the two of them is my comedy. But, I am definitely the first comedian in my family.
+ - It was the best night of my life, getting to dance on stage with Madonna!
+ - I donated blood today. That’s what I call getting an AIDS test.
+ - I hate false advertising, like ‘Skittles: taste the rainbow.’ No one’s ever been like, ‘Rainbow, right you guys?’ Or what’s Reese’s? ‘There’s no wrong way to eat a Reese’s.’ Oh, really? Tell that to my uncle who used to put them in my underwear. Alright, maybe your uncles didn’t love you.
+ - I am a hot-blooded fire and I am fearless.
+ - I feel very comfortable in my own skin. When someone makes jokes about me being heavy, it makes me mad. It’s not true. I’m right where I should be.
+ - I just say what I think is the funniest thing I could say. I’m not trying to make headlines. I’m just trying to say the stuff that I think is funny and will make people laugh.
+ - I’ll never forget the day I realized I wasn’t quite the Ford model I thought I was.
+ - I have an excuse, actually, why I’ve been drinking so much. I haven’t said this out loud yet – this is exciting – I’m drinking for two. Thank you, wow. I mean, just for now. Somebody’s being evicted.
+ - Let’s all just follow the lead of Glamour, and join forces and lift each other up.
+ - We had to break up, though. We wanted different things – like he wanted kids and I wanted him to hear.
+ - My mom made me think I was gorgeous. When I was younger she was like, ‘Look at you! You’re an angel. You sparkle!’ And I was like, ‘I do!’ You believe your parents.
+ - Everyone is allowed to have their own boundaries. You just are. No matter how you dress, no matter what you say or anything, and I feel strongly about that.
+ - Nothing good ever happens in a blackout. I’ve never woken up and been like, ‘What is this Pilates mat doing out?’
+ - To be really great, you need to be naturally funny in order to stand out. But you can work at it, and find the best vehicle that you have to communicate what you’re saying to people.
+ - I’ll never forget how she told us. She took us all out to brunch, and she was like, ‘You guys, I’m keeping this one.’
+ - I hope that the next time you go to a concert, the band doesn’t play the song you wanna hear! And instead, they just play songs off their new album!
+ - Song “Sixteen Going on Seventeen” is actually about syphilis.
+ - She’s always bragging about the dumbest stuff. The other day she was telling me, she’s like, ‘You know I can still fit in my wedding dress.’ I was like, ‘Oh my god, who cares, right?’ I mean it is weird that she’s the same size now as she was when she was 8 months pregnant.
+ - I feel very open with people, and I’m good at disarming them and having conversations.
+ - I’ve done some things I’m embarrassed about, and I like to tell people about them so that maybe they feel less embarrassed or alone when they do something they’re unsure about.
+ - I’ve always been really dark, and drawn to darker humor. Nothing has been forced, and I don’t say anything for shock value.
+ - You know what the worst part about my drinking is? When I’m drunk I slur. You know, like I say racial slurs. Wow, nobody likes that at a barbeque.
+ - I feel like you know what you’re going to be good at when you’re older based on what you like when you’re younger. When I was younger my best friend was Tony, this kid Tony, and he loved rocks. He was always playing with rocks, counting them, and now he’s a crack head.
+ - I’m not extra sensitive to handshakes. I shake hands all the time.
+ - I think of myself as a fairly attractive girl and always have, thanks to my mom. I was brought into this world thinking I was gorgeous because my mother was extremely devoted to this notion.
+ - I like to create stuff. I like to express myself through jokes.
+ - I may sound like a megalomaniac, but I feel like I’m equipped to become a great, memorable comedian, if I keep working my ass off and staying at the pace I’m at, and I feel a responsibility to do that because of the women who have done it before me, and the ones who need to do it after me.
+ - To me, feminism means equality between men and women. I want to make people laugh and also point out some injustices or inequalities I see.
+ - I am not who I sleep with. I am not my weight. I am not my mother. I am myself. And I am all of you, and I thank you.
+ - Comedy isn’t really something where you get discovered. You can’t network your way to being funny or talented. It’s not hard to get seen if you’re funny. If you’re funny, talented, and work hard, you will go somewhere.
+ - I’ve got a terrible person in me just as much as anybody else, and I think – I like to think I also have a really good person in me.
+ - I tend to eat pretty healthy, though, and I work out – I work out hard.
+ - Stand-up is not something that you’re good at right away. You have to do it a ton. But, I think I got to shave a year off because I didn’t have to get over stage fright.
+ - The way that these girls keep themselves skinny is awful, isn’t it? By vomiting or using hard drugs – which I can’t afford.
+ - I only met Joan Rivers once. But when she passed away, it felt like a part of me went away, too.
+ - The truth is, whoever I’ve dated, if I’ve ever wanted to talk about them on stage, I’ve asked them first. And I’ve gotten their permission to tell a story or talk about them before I do it.
+ - I completely identify as female, believe it or not.
+ - My background is in theater. I was a theater major in college.
+ - I think you can go from being not very funny to working really hard for 10 years and figuring out how to make a living on the road, but I don’t think you can rise much above that.
+ - I’m still proud of a lot of my jokes when I started.
+ - I want to keep working really hard at getting better at stand-up and touring, and I can’t imagine a time when I won’t want to do that. But, who knows?
+ - The last couple of roles I missed out on went to Jennifer Hudson, Jessica Biel and Olivia Wilde.
+ - I finally just slept with my high school crush. But I swear; now he expects me to go to his graduation – like I know where I’m going to be in three years.
+
+49 quotes

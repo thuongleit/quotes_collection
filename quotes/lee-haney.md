@@ -1,0 +1,30 @@
+ - Stimulate don’t Annihilate.
+ - The muscle and the mind must become one. One without the other is zero.
+ - The only way to isolate specific back muscles – whether it is upper. or lower back – or make any progress is through the power of the mind-muscle connection.
+ - Exercise to stimulate, not to annihilate. The world wasn’t formed in a day, and neither were we. Set small goals and build upon them.
+ - Parents must lead by example. Don’t use the cliche; do as I say and not as I do. We are our children’s first and most important role models.
+ - The circuit training program along with a healthy clean diet is the way to excellent results.
+ - PR is extremely important, and being able to use it in the right way means everything. You have to market your success.
+ - Walking is great to be used as an exercise program.
+ - A lot has been written about the merits and problems with detox but it is definitely worth it overall.
+ - Muscle and water is critical in burning fat.
+ - A systemic cleansing and detox is definitely the way to go after each holiday. It is the key to fighting high blood pressure, heart disease, cancer, and other health-related illnesses.
+ - Beginning with exercise, the best training program available for real results is circuit training.
+ - Exercise is one of the best ways in preventing the rapid growth of obesity in America.
+ - With all of the holiday cheer in the air, it’s easy to overlook the ingredients in the foods. Ingredients such as salt, sugar, and fat – all of which leads to diseases such as high blood pressure, diabetes, strokes, heart disease, and cancer.
+ - But you can’t just sit around the fireplace and sip Cokes and eat pretzels and get an attitude of confidence. You have to put in hard work.
+ - When little old ladies recognize a guy who was Mr. Olympia, that’s saying something. That means I’ve been able to cross lines as far as marketability is concerned.
+ - Most kids will not volunteer to eat veggies. At times you must step up to the plate and enforce the rule of authority as a parent.
+ - I’ve watched a lot of guys through the years, and they hold their breath until they finally win The Big One, thinking then they can exhale and chill out. You have to breathe through life, man. Have fun.
+ - To be physically fit is just a small aspect. You can be a beautiful physical specimen, but you’re empty as far as what it takes to be a person, and that shows up real fast.
+ - When your goal is to put on muscle mass you must increase your calorie intake as you increase the activity level being given to the muscle.
+ - I know that God gave me the blessing to use, to bring honor and glory to Him, and to use to impact the lives of people.
+ - When doing your aerobic exercise, go at a comfortable pace until you’ve developed more stamina.
+ - When exercising, be sure to focus your attention on what you are doing.
+ - More than ever, we as parents and a nation must do something about the growth of obesity in our children. We must do more than just talk, we must be concerned enough to act.
+ - Rule of thumb: Eat for what you’re going to be doing, and not for what you have done. Don’t take in more than you’re willing to burn off.
+ - Enrolling your child in a recreational sport sponsored by your neighborhood recreation community centers is a great way to keep kids active.
+ - Recent studies have revealed that children 8-10 years old are being diagnosed with Type II diabetes, high cholesterol, and high blood pressure at an alarming rate.
+ - As the proud father of two teens and past Chairman to the Presidents Council on Physical Fitness and Sports, I am committed to educating parents and especially young people on ways to live a long, healthy and active life.
+
+28 quotes

@@ -1,0 +1,502 @@
+ - The world is a book and those who do not travel read only one page.
+ - Our heart is restless until it rests in You.
+ - To fall in love with God is the greatest romance; to seek him the greatest adventure; to find him, the greatest human achievement.
+ - Trust the past to the mercy of God, the present to His love, and the future to His providence.
+ - Faith is to believe what you do not see; the reward of this faith is to see what you believe.
+ - Pray as though everything depended on God. Work as though everything depended on you.
+ - Patience is the companion of wisdom.
+ - Because God has made us for Himself, our hearts are restless until they rest in Him.
+ - Hope has two beautiful daughters; their names are Anger and Courage. Anger at the way things are, and Courage to see that they do not remain as they are.
+ - There is no saint without a past, no sinner without a future.
+ - Since love grows within you, so beauty grows. For love is the beauty of the soul.
+ - God loves each of us as if there were only one of us.
+ - It was pride that changed angels into devils; it is humility that makes men as angels.
+ - The truth is like a lion; you don’t have to defend it. Let it loose; it will defend itself.
+ - You are what you love.
+ - God provides the wind, Man must raise the sail.
+ - Men go abroad to wonder at the heights of mountains, at the huge waves of the sea, at the long courses of the rivers, at the vast compass of the ocean, at the circular motions of the stars, and they pass by themselves without wondering.
+ - There is no love without hope, no hope without love, and neither love nor hope without faith.
+ - To sing is to pray twice.
+ - Take care of your body as if you were going to live forever; and take care of your soul as if you were going to die tomorrow.
+ - Late have I loved you, O Beauty ever ancient and ever new! Late have I loved you! And, behold, you were within me, and I out of myself, and there I searched for you.
+ - Without God, we cannot. Without us, God will not.
+ - Charity is the root of all good works.
+ - Love God and do whatever you please: for the soul trained in love to God will do nothing to offend the One who is Beloved.
+ - Do you wish to rise? Begin by descending. You plan a tower that will pierce the clouds? Lay first the foundation of humility.
+ - Bad times, hard times, this is what people keep saying; but let us live well, and times shall be good. We are the times: Such as we are, such are the times.
+ - Education is the food of youth, the delight of old age, the ornament of prosperity, the refuge and comfort of adversity, and the provocation to grace in the soul.
+ - You aspire to great things? Begin with the little ones.
+ - If you believe what you like in the gospels, and reject what you don’t like, it is not the gospel you believe, but yourself.
+ - The measure of love is to love without measuring.
+ - He who has God has everything; he who has everything but God has nothing.
+ - The cost of obedience is small compared with the cost of disobedience.
+ - In my deepest wound I saw your glory, and it dazzled me.
+ - God has promised forgiveness to your repentance, but He has not promised tomorrow to your procrastination.
+ - Fortitude is the disposition of soul which enables us to despise all inconveniences and the loss of things not in our power.
+ - What does love look like? It has the hands to help others. It has the feet to hasten to the poor and needy. It has eyes to see misery and want. It has the ears to hear the sighs and sorrows of men. That is what love looks like.
+ - Where your pleasure is, there is your treasure: where your treasure, there your heart; where your heart, there your happiness.
+ - Let your old age be childlike, and your childhood like old age; that is, so that neither may your wisdom be with pride, nor your humility without wisdom.
+ - He who is filled with love is filled with God himself.
+ - Do what you can and pray for what you cannot yet do.
+ - Miracles are not contrary to nature, but only contrary to what we know about nature.
+ - Love, and do what you will. If you keep silence, do it out of love. If you cry out, do it out of love. If you refrain from punishing, do it out of love.
+ - Where I found truth, there found I my God, who is the truth itself.
+ - There is a God-shaped vacuum in every man that only Christ can fill.
+ - A Christian is: a mind through which Christ thinks, a heart through which Christ loves, a voice through which Christ speaks, and a hand through which Christ helps.
+ - God’s love is unconditional. Be sure that yours is too!
+ - Desire only God, and your heart will be satisfied.
+ - God gives where he finds empty hands.
+ - Complete abstinence is easier than perfect moderation.
+ - The reward of patience Is patience.
+ - Love God, then do what you will.
+ - God has no need of your money, but the poor have. You give it to the poor, and God receives it.
+ - Believe in order to Understand and Understand in order to Believe.
+ - In doing what we ought we deserve no praise, because it is our duty.
+ - If you are silent, be silent out of love. If you speak, speak out of love.
+ - Don’t go outside; get back to yourself, in the inner man lies the Truth.
+ - Oh, God, to know you is life. To serve You is freedom. To praise you is the soul’s joy and delight. Guard me with the power of Your grace here and in all places. Now and at all times, forever. Amen.
+ - Make me a captive Lord, then I shall be truly free.
+ - Lust indulged became habit, and habit unresisted became necessity.
+ - It is no advantage to be near the light if the eyes are closed.
+ - The greatest evil is physical pain.
+ - Christ is not valued at all, unless he is valued above all.
+ - Peace in society depends upon peace in the family.
+ - The Holy Scriptures are our letters from home.
+ - The higher your structure is to be, the deeper must be its foundation.
+ - Love and say it with your life.
+ - This is the very perfection of a man, to find out his own imperfections.
+ - Punishment is justice for the unjust.
+ - What grace is meant to do is to help good people, not to escape their sufferings, but to bear them with a stout heart, with a fortitude that finds its strength in faith.
+ - Never judge a philosophy by its abuse.
+ - God judged it better to bring good out of evil than to suffer no evil to exist.
+ - Tolle, lege: take up and read.
+ - There is no salvation outside the church.
+ - The law detects, grace alone conquers sin.
+ - God is not greater if you reverence Him, but you are greater if you serve Him.
+ - God bestows more consideration on the purity of the intention with which our actions are performed than on the actions themselves.
+ - Carnal lust rules where there is no love of God.
+ - It is love that asks, that seeks, that knocks, that finds, and that is faithful to what it finds.
+ - Purity of soul cannot be lost without consent.
+ - Whatever skills I have acquired, whatever gifts I have been given, I place them at Your service.
+ - If God is, why is there evil? But if God is not, why is there good?
+ - Mary heard God’s word and kept it, and so she is blessed. She kept God’s truth in her mind, a nobler thing than carrying his body in her womb.
+ - Grant what thou commandest and then command what thou wilt.
+ - Trials and tribulations offer us a chance to make reparation for our past faults and sins. On such occasions the Lord comes to us like a physician to heal the wounds left by our sins. Tribulation is the divine medicine.
+ - In what is necessary, unity; in what is not necessary, liberty and in all things charity.
+ - Give me chastity and continence, but not yet.
+ - We count on God’s mercy for our past mistakes, on God’s love for our present needs, on God’s sovereignty for our future.
+ - Two works of mercy set a person free: Forgive and you will be forgiven, and give and you will receive.
+ - Don’t hold yourselves cheap, seeing that the creator of all things and of you estimates your value so high, so dear, that he pours out for you every day the most precious blood of his only-begotten Son.
+ - What do I love when I love my God?
+ - The Bible was composed in such a way that as beginners mature, its meaning grows with them.
+ - Since God is the highest good, he would not allow any evil to exist in his works unless his omnipotence and goodness were such as to bring good even out of evil.
+ - God is best known in not knowing him.
+ - To my God a heart of flame; To my fellow man a heart of love; To myself a heart of steel.
+ - It seems to me that an unjust law is no law at all.
+ - Let us therefore yield ourselves and bow to the authority of the Holy Scriptures, which can neither err nor deceive.
+ - Do you wish to be great? Then begin by being. Do you desire to construct a vast and lofty fabric? Think first about the foundations of humility. The higher your structure is to be, the deeper must be its foundation.
+ - Doubt is but another element of faith.
+ - If we tread our vices under our feet, we make of them a ladder by which to rise to higher things.
+ - To withhold forgiveness is to take poison and expect the unforgiven to die.
+ - You say to me ‘Show me your God.’ I answer you, ‘Everything you see in your heart that might sadden God, remove.’
+ - How can the past and future be, when the past no longer is, and the future is not yet? As for the present, if it were always present and never moved on to become the past, it would not be time, but eternity.
+ - The dove loves when it quarrels; the wolf hates when it flatters.
+ - Love and do what you want. If you stop talking, you will stop talking with love; if you shout, you will shout with love; if you correct, you will correct with love.
+ - You never go away from us, yet we have difficulty in returning to You. Come, Lord, stir us up and call us back. Kindle and seize us. Be our fire and our sweetness. Let us love. Let us run.
+ - God had one son on earth without sin, but never one without suffering.
+ - When God is our strength, it is strength indeed; when our strength is our own, it is only weakness.
+ - Humility is first, second and third in Christianity.
+ - You have enemies. For who can live on this earth without them? Take heed to yourselves: love them. In no way can your enemy so hurt you by his violence, as you hurt yourself if you love him not.
+ - The good man, though a slave, is free; the wicked, though he reigns, is a slave, and not the slave of a single man, but- what is worse- the slave of as many masters as he has vices.
+ - Beauty is the brilliance of truth.
+ - The Devil invented gambling.
+ - It is a sin to judge any man by his post.
+ - Two cities have been formed by two loves: the earthly by the love of self; the heavenly by the love of God.
+ - Seek not to understand that you may believe, but believe that you may understand.
+ - Oh, beauty, ever ancient and ever new.
+ - The confession of evil works is the first beginning of good works.
+ - No one reaches the kingdom of Heaven except by humility.
+ - People travel to marvel at the mountains, seas, rivers and stars and they pass right by themselves without astonishment.
+ - Nothing conquers except truth and the victory of truth is love.
+ - He loves Thee too little, who loves anything together with Thee, which he loves not for Thy sake.
+ - Let us understand that God is a physician, and that suffering is a medicine for salvation, not a punishment for damnation.
+ - I count myself one of the number of those who write as they learn and learn as they write.
+ - If you would attain to what you are not yet, you must always be displeased by what you are. For where you are pleased with yourself there you have remained. Keep adding, keep walking, keep advancing.
+ - Learn to dance, so when you get to heaven the angels know what to do with you.
+ - Father, I am seeking: I am hesitant and uncertain, but will you, O God, watch over each step of mine and guide me.
+ - Whole prayer is nothing but love.
+ - God’s faithful servant has no desire for people to say or to give to him, or what he likes to hear or see, for his first and greatest aim is to hear what is most pleasing to God.
+ - Will is to grace as the horse is to the rider.
+ - Peace is not sought in order to provoke war, but war is waged in order to attain peace.
+ - Sin is believing the lie that you are self-created, self-dependent and self-sustained.
+ - I have read in Plato and Cicero sayings that are wise and very beautiful; but I have never read in either of them: Come unto me all ye that labor and are heavy laden.
+ - There is no greater invitation to love than loving first.
+ - Since you cannot do good to all, you are to pay special attention to those who, by the accidents of time, or place, or circumstances, are brought into closer connection with you.
+ - For what is the self-complacent man but a slave to his own self-praise.
+ - Go forth on your path, as it exists only through your walking.
+ - We come to God by love and not by navigation.
+ - Idolatry is worshipping anything that ought to be used, or using anything that is meant to be worshipped.
+ - A Christian should be an Alleluia from head to foot.
+ - If you are suffering from a bad man’s injustice, forgive him lest there be two bad men.
+ - For grace is given not because we have done good works, but in order that we may be able to do them.
+ - The sufficiency of my merit is to know that my merit is not sufficient.
+ - He who devoutly hears holy Mass will receive a great vigor to enable him to resist mortal sin, and there shall be pardoned to him all venial sins which he may have committed up to that hour.
+ - The greatest kindness one can render to any man is leading him to truth.
+ - He was created of a mother whom He created. He was carried by hands that He formed. He cried in the manger in wordless infancy. He, the Word, without whom all human eloquence is mute.
+ - Beauty grows in you to the extent that love grows, because charity itself is the soul’s beauty.
+ - Keep on adding, keep on walking, keep on progressing: do not delay on the road, do not go back, do not deviate.
+ - Love begins with a smile, grows with a kiss, and ends with a teardrop.
+ - He who loves the coming of the Lord is not he who affirms that it is far off, nor is it he who says it is near, but rather he who, whether it be far off or near, awaits it with sincere faith, steadfast hope, and fervent love.
+ - I believe in order to understand.
+ - Repentant tears wash out the stain of guilt.
+ - We do not sin when we adore Christ in the Eucharist; we do sin when we do not adore Christ in the Eucharist.
+ - My weight is my love.
+ - The Devil often transforms himself into an angel to tempt men, some for their instruction, some for their ruin.
+ - The purpose of all wars, is peace.
+ - One loving heart sets another on fire.
+ - For God loves saving, not condemning, and therefore He is patient with bad people, in order to make good people out of bad people.
+ - The desire for fame tempts even noble minds.
+ - They, then, who are destined to die, need not be careful to inquire what death they are to die, but into what place death will usher them.
+ - Thus the good christian should beware of mathematicians and all those who make false prophecies, however much they may in fact speak the truth; lest, being in league with the devil, they may deceive errant souls into making common cause.
+ - The same thing which is now called Christian religion existed among the ancients. They have begun to call ‘Christian’ the true religion which existed before.
+ - Beware of despairing about yourself: you are commanded to put your trust in God, and not in yourself.
+ - We are too weak to discover the truth by reason alone.
+ - God does not expect us to submit our faith to him without reason, but the very limits of our reason make faith a necessity.
+ - If you are pleased with what you are, you have stopped already. If you say, “It is enough,” you are lost. Keep on walking, moving forward, trying for the goal.
+ - Any woman who does not give birth to as many children as she is capable is guilty of murder.
+ - This very moment I may, if I desire, become the friend of God.
+ - The words printed here are concepts. You must go through the experiences.
+ - Attract them by the way you live.
+ - What then is time? If no one asks me, I know what it is. If I wish to explain it to him who asks, I do not know.
+ - Humility is the foundation of all the other virtues hence, in the soul in which this virtue does not exist there cannot be any other virtue except in mere appearance.
+ - Without the Spirit we can neither love God nor keep His commandments.
+ - Women should not be enlightened or educated in any way. They should, in fact, be segregated as they are the cause of hideous and involuntary erections in holy men.
+ - I held my heart back from positively accepting anything, since I was afraid of another fall, and in this condition of suspense I was being all the more killed.
+ - Fasting cleanses the soul, raises the mind, subjects one’s flesh to the spirit, renders the heart contrite and humble, scatters the clouds of concupiscence, quenches the fire of lust, and kindles the true light of chastity. Enter again into yourself.
+ - It is human to err, but it is devilish to remain willfully in error.
+ - The Sacraments are the salvation of those who use them rightly, and the damnation of those who misuse them.
+ - Human law cannot punish or forbid all evil, since while doing away with evils it would do away with many good things, which would hinder the advance of the common good.
+ - I have learnt to love you late, Beauty at once so ancient and so new!
+ - No one can begin a new life, unless he repent of the old.
+ - Our whole business in this Life is to restore to health the eye of the heart whereby God may be seen.
+ - Every visible thing in this world is put in the charge of an angel.
+ - I err therefore I am.
+ - He who created us without our help will not save us without our consent.
+ - If you lose your soul, there is a danger of its being destroyed. Therefore, you may not love it, since you do not want it to be destroyed. But in not wanting it to be destroyed, you love it.
+ - Order your soul; reduce your wants; live in charity; associate in Christian community; obey the laws; trust in Providence.
+ - Come unto me, all ye that labor and are heavy laden.
+ - Justice being taken away, then, what are kingdoms but great robberies? For what are robberies themselves, but little kingdoms.
+ - Seek not abroad, for in the inner man dwells the truth.
+ - Heretics think false things about God and call it their faith.
+ - God Almighty would in no way permit evil in His works were He not so omnipotent and good that even out of evil He could work good.
+ - When I am completely united to You, there will be no more sorrow or trials; entirely full of You, my life will be complete.
+ - Find out how much God has given you and from it take what you need; the remainder is needed by others.
+ - To seek the highest good is to live well.
+ - The one who is our very Life descended into our world, and bore our death, and slew it with the abundance of His own life. Thundering, He called out to us to return to Him in heaven.
+ - Should you ask me what is the first thing in religion, I should reply that the first, second, and third thing therein is humility.
+ - God is more anxious to bestow his blessings on us than we are to receive them.
+ - Truth is not private property.
+ - The entire life of a good Christian is in fact an exercise of holy desire. You do not yet see what you long for, but the very act of desiring prepares you, so that when he comes you may see and be utterly satisfied.
+ - Christ held Himself in His hands when He gave His Body to His disciples saying: ‘This is My Body.’ No one partakes of this Flesh before he has adored it.
+ - Longing desire prayeth always, though the tongue be silent. If thou art ever longing, thou art ever praying.
+ - For what am I to myself without You, but a guide to my own downfall?
+ - I would not believe in the Gospel if the authority of the Catholic Church did not move me to do so.
+ - A temptation arises: it is the wind. It disturbs you: it is the surging of the seas. This is the time to awaken Christ and let Him remind you of these words.
+ - We were ensnared by the wisdom of the serpent; we are set free by the foolishness of God .
+ - We must be on our guard against giving interpretations which are hazardous or opposed to science, and so exposing the word of God to the ridicule of unbelievers.
+ - Chastity, or cleanness of heart, holds a glorious and distinguished place among the virtues, because she, alone, enables man to see God; hence Truth itself said, ‘Blessed are the clean of heart, for they shall see God.’
+ - The arrogance is not greatness but swelling; and the swelling seems big but it’s not healthy.
+ - Thou must be emptied of that wherewith thou art full, that thou mayest be filled with that whereof thou art empty.
+ - It is not with respect to our convenience or discomfort, but with respect to their own nature that the creatures are glorifying to their Artificer.
+ - Let no one flatter himself; of himself he is Satan. Let man take sin, which is his own, and leave righteousness with God.
+ - Yet we must say something when those who say the most are saying nothing.
+ - He that loveth little prayeth little, he that loveth much prayeth much.
+ - Beware of bad Catholics.
+ - My love is my weight. Because of it, I move.
+ - When regard for truth has been broken down or even slightly weakened, all things will remain doubtful.
+ - Two criminals were crucified with Christ. One was saved; do not despair. One was not; do not presume.
+ - Let us sing a new song, not with our lips, but with our lives.
+ - Sin is looking for the right thing in the wrong place.
+ - If you don’t believe it you won’t understand it.
+ - Conscience and reputation are two things. Conscience is due to yourself, reputation to your neighbour.
+ - God is always trying to give good things to us, but our hands are too full to receive them.
+ - In failing to confess, Lord, I would only hide You from myself, not myself from You.
+ - In the house of God there is never ending festival; the angel choir makes eternal holiday; the presence of God’s face gives joy that never fails.
+ - As the soul is the life of the body, so God is the life of the soul. As therefore the body perishes when the soul leaves it, so the soul dies when God departs from it.
+ - Two loves have made two different cities: self-love hath made a terrestrial city, which rises in contempt of God; and Divine Love hath made a celestial one, which rises in contempt of self. The former glories in itself – the latter in God.
+ - There are wolves within, and there are sheep without.
+ - It is not earthly riches which make us or our sons happy; for they must either be lost by us in our lifetime, or be possessed when we are dead, by whom we know not, or perhaps by whom we would not.
+ - O Holy Spirit, descend plentifully into my heart. Enlighten the dark corners of this neglected dwelling and scatter there Thy cheerful beams.
+ - Do not say that you have chaste minds if you have unchaste eyes, because an unchaste eye is the messenger of an unchaste heart.
+ - Woman was merely man’s helpmate, a function which pertains to her alone. She is not the image of God but as far as man is concerned, he is by himself the image of God.
+ - In my unloveliness I plunged into the lovely things which you created. You were with me, but I was not with you. Created things kept me from you; yet if they had not been in you, they would have not been at all.
+ - In the absence of justice, what is sovereignty but organized robbery?
+ - I once laboured hard for the free will of man, until the grace of God at length overcame me.
+ - Give her two red roses, each with a note. The first note says For the woman I love and the second, For my best friend.
+ - Moral character is assessed not by what a man knows but by what he loves.
+ - Love has reasons that reason knows not.
+ - And he departed from our sight that we might return to our heart, and there find Him. For He departed, and behold, He is here.
+ - Hell was made for the inquisitive.
+ - Do not be afraid to throw yourself on the Lord! He will not draw back and let you fall! Put your worries aside and throw yourself on him; He will welcome you and heal you.
+ - Even in waging war, cherish the spirit of peace-maker; that, by conquering those whom you attack, you may lead them back to the advantages of peace.
+ - Charity is no substitute for justice withheld.
+ - Every day my conscience makes confession relying on the hope of Your mercy as more to be trusted than its own innocence.
+ - Lord, thou madest us for thyself, and we can find no rest till we find rest in thee.
+ - Though in the order of nature angels rank above men, yet, by scale of justice, good men are of greater value than bad angels.
+ - If two friends ask you to judge a dispute, don’t accept, because you will lose one friend; on the other hand, if two strangers come with the same request, accept because you will gain one friend.
+ - All truth and understanding is a result of a divine light which is God Himself.
+ - Every city is a living body.
+ - Unjust laws aren’t laws at all.
+ - Try to acquire the virtues you believe lacking in your brothers. Then you will no longer see their defects, for you will no longer have them yourself.
+ - To touch God a little with our mind is a great blessing, to grasp him is impossible.
+ - What is time? If I am not asked, I know; if I am asked, I don’t.
+ - Drunkenness is a flattering devil, a sweet poison, a pleasant sin, which whosoever hath, hath not himself, which whosoever doth commit, doth not commit sin, but he himself is wholly sin.
+ - The weakness of little children’s limbs is innocent, not their souls .
+ - There is nothing more serious than the sacrilege of schism because there is no just cause for severing the unity of the Church.
+ - Suppress prostitution, and capricious lusts will overthrow society.
+ - The world being unworthy to receive the Son of God directly from the hands of the Father, he gave his Son to Mary for the world to receive him from her.
+ - Singing is a lover’s thing.
+ - Better that I find you, God, and leave the questions unanswered, than to find the answers without finding you.
+ - We take for granted the slow miracle whereby water in the irrigation of a vineyard becomes wine. It is only when Christ turns water into wine, in a quick motion, as it were, that we stand amazed.
+ - O Lord, help me to be pure, but not yet.
+ - The angels surround and help the priest when he is celebrating Mass.
+ - What you are must always displease you, if you would attain to that which you are not.
+ - It is not often that we use language correctly; usually we use it incorrectly, though we understand each others meaning.
+ - He who falls, falls by his own will, and he who stands, stands by God’s will.
+ - Be always displeased with what you are if you wish to be what you are not. Always add, always walk, always proceed. Neither stand still nor go back nor deviate.
+ - I had a clear idea about what time is till I was asked to explain it and ceased to understand it altogether as soon as I began explaining it.
+ - Free curiosity has greater power to stimulate learning than rigorous coercion. Nevertheless, the free ranging flux of curiosity is channeled by discipline under Your Law.
+ - God will not suffer man to have a knowledge of things to come for if he had prescience of his prosperity, he would be careless and if understanding of his adversity, he would be despairing and senseless.
+ - Jesus took His flesh from the flesh of Mary.
+ - Beauty is indeed a good gift of God; but that the good may not think it a great good, God dispenses it even to the wicked.
+ - You are my Lord, because You have no need of my goodness.
+ - In order to discover the character of people we have only to observe what they love.
+ - He that is jealous is not in love.
+ - If by fate anyone means the will or power of God, let him keep his meaning but mend his language; for fate commonly means a necessary process which will have its way apart from the will of God and men.
+ - Humility must accompany all our actions, must be with us everywhere; for as soon as we glory in our good works they are of no further value to our advancement in virtue.
+ - Lord, teach me to know you, and to know myself.
+ - Between urine and filth we are born.
+ - Whoever, then, thinks that he understands the Holy Scriptures, or any part of them, but puts such an interpretation upon them as does not tend to build up this twofold love of God and our neighbor, does not yet understand them as he ought.
+ - The desire is thy prayers; and if thy desire is without ceasing, thy prayer will also be without ceasing. The continuance of your longing is the continuance of your prayer.
+ - I asked the whole frame of the world about my God; and he answered, I am not He, but He made me.
+ - The true religion has always been one from the beginning, and will always be the same.
+ - Venerate the martyrs, praise, love, proclaim, honor them. But worship the God of the martyrs.
+ - The spiritual virtue of a sacrament is like light; although it passes among the impure, it is not polluted.
+ - No eulogy is due to him who simply does his duty and nothing more.
+ - God is more truly imagined than expressed, and He exists more truly than He is imagined.
+ - We can know what God is not, but we cannot know what He is.
+ - When, therefore, man lives according to man, not according to God, he is like the devil.
+ - For if a thing is not diminished by being shared with others, it is not rightly owned if it is only owned and not shared.
+ - It’s not in the book or in the writer that readers discern the truth of what they read; they see it in themselves, if the light of truth has penetrated their minds.
+ - I do not comprehend all that I am. Is the mind, therefore, too limited to possess itself?
+ - Before God can deliver us we must undeceive ourselves.
+ - In the Mass the blood of Christ flows anew for sinners.
+ - All plenty which is not my God is poverty to me.
+ - Put no faith in salvation through the political order.
+ - Passion is the evil in adultery. If a man has no opportunity of living with another man’s wife, but if it is obvious for some reason that he would like to do so, and would do so if he could, he is no less guilty than if he was caught in the act.
+ - Custom is second nature.
+ - I fell away from you, my God, and I went astray, too far astray from you, the support of my youth, and I became to myself a land of want.
+ - Heaven forbid that we should believe in such a way as not to accept or seek reasons, since we could not even believe if we did not possess rational souls.
+ - Whoever possesses God is happy.
+ - The world’s verdict is conclusive.
+ - We made bad use of immortality, and so ended up dying; Christ made good use of mortality, so that we might end up living.
+ - None save great men have been the authors of great heresies.
+ - It is not by change of place that we can come nearer to Him who is in every place, but by the cultivation of pure desires and virtuous habits.
+ - The custom of Mother Church in baptizing infants is certainly not to be scorned, nor is it to be regarded in any way as superfluous, nor is it to be believed that its tradition is anything except apostolic.
+ - Nothing so casts down the manly mind from it’s height as the fondling of women and those bodily contacts which belong to the married state.
+ - Salvation is God’s way of making us real people.
+ - For in our hope we are saved.
+ - You can live, provided you live; that is, you can live for ever, provided you live a good life.
+ - He who labours, prays.
+ - What matters it to me if someone does not understand this? Let him too rejoice and say, “What is this?” Let him rejoice even at this, and let him love to find you while not finding it out, rather than, while finding it out, not to find you.
+ - There never can have been, and never can be, and there never shall be any sin without pride.
+ - Because a thing is eloquently expressed it should not be taken to be as necessarily true; nor because it is uttered with stammering lips should it be supposed false.
+ - God in his omnipotence could not give more, in His wisdom He knew not how to give more, in His riches He had not more to give, than the Eucharist.
+ - Symbols are powerful because they are the visible signs of invisible realities.
+ - God is not what you imagine or what you think you understand. If you understand you have failed.
+ - This awful catastrophe is not the end but the beginning. History does not end so. It is the way its chapters open.
+ - Anger is a weed; hate is a tree.
+ - We must understand then, that even though God doesn’t always give us what we want, He always gives us what we need for our salvation.
+ - A marriage without children is the world without the sun.
+ - What is grace? I know until you ask me; when you ask me, I do not know.
+ - If a shameless woman expects to be defiled and then dies of her fierce love because you do not consent, will chastity also be homicide?
+ - Temperance is a disposition that restrains our desires for things which it is base to desire.
+ - If you understood him, it would not be God.
+ - Do not wander far and wide but return into yourself. Deep within man there dwells the truth.
+ - It is better that the truth be known than that scandal be covered up.
+ - The bread that you see on the altar is the Body of Christ as soon as it is sanctified by God’s word. The chalice, or better what is contained in the chalice, is the Blood of Christ as soon as it is sanctified by God’s word.
+ - Unhappy is the soul enslaved by the love of anything that is mortal.
+ - All diseases of Christians are to be ascribed to demons; chiefly do they torment freshly-baptized Christians, yea, even the guiltless new-born infants.
+ - His knowledge is not like ours, which has three tenses; present, past, and future. God’s knowledge has no change or variation.
+ - When large numbers of people share their joy in common, the happiness of each is greater because each adds fuel to the other’s flame.
+ - God is not a deceiver, that He should offer to support us, and then, when we lean upon Him, should slip away from us.
+ - Feast of Willibrord of York, Archbishop of Utrecht, Apostle of Frisia, 739 Other sins find their vent in the accomplishment of evil deeds, whereas pride lies in wait for good deeds, to destroy them.
+ - O Sacrament of Love! O sign of Unity! O bond of Charity! He who would have Life finds here indeed a Life to live in and a Life to live by.
+ - When I seek you, my God, I seek a blessed life. I shall seek you, so that my soul may live.
+ - Where was my heart to flee for refuge from my heart? Whither was I to fly, where I would not follow? In what place should I not be prey to myself?
+ - The mind commands the body and is instantly obeyed. The mind commands itself and meets resistance.
+ - There are three ways in which sins are forgiven: in baptism, in prayer, and in the greater humility of penance; yet God does not forgive sins except to the baptized.
+ - If two friends ask you to judge a dispute, don’t accept, because you will...
+ - Poetry is the Devil’s wine.
+ - What are kingdoms without justice? They’re just gangs of bandits.
+ - It is not that we keep His commandments first and that then He loves but that He loves us and then we keep His commandments. This is that grace which is revealed to the humble but hidden from the proud.
+ - The punishment of every disordered mind is its own disorder.
+ - Even the straws under my knees shout to distract me from prayer.
+ - Hope has two lovely daughters, anger and courage.
+ - Nothing whatever pertaining to godliness and real holiness can be accomplished without grace .
+ - A man may lose the good things of this life against his will; but if he loses the eternal blessings, he does so with his own consent.
+ - My mother spoke of Christ to my father, by her feminine and childlike virtues, and, after having borne his violence without a murmur or complaint, gained him at the close of his life to Christ.
+ - Only He who made man makes man happy.
+ - This world’s a bubble.
+ - Just think of the illimitable abundance and the marvelous loveliness of light, or of the beauty of the sun and moon and stars.
+ - Our rewards in heaven are a result of God’s crowning His own gifts.
+ - By faithfulness we are collected and wound up into unity within ourselves, whereas we had been scattered abroad in multiplicity.
+ - Nothing is so much to be shunned as sex relations.
+ - To wisdom belongs the intellectual apprehension of eternal things; to knowledge, the rational knowledge of temporal things.
+ - You called and shouted and burst my deafness. You flashed, shone, and scattered my blindness. You breathed odors, and I drew in breath and panted for You. I tasted, and I hunger and thirst. You touched me, and I burned for Your peace.
+ - Often the contempt of vainglory becomes a source of even more vainglory, for it is not being scorned when the contempt is something one is proud of.
+ - He cannot have God for his Father who will not have the Church for his mother.
+ - There is no remedy so powerful against the heat of concupiscence as the remembrance of our Savior’s Passion. In all my difficulties I never found anything so efficacious as the wounds of Christ: In them I sleep secure; from them I derive new life.
+ - Because I do it with one small ship, I am called a terrorist. You do it with a whole fleet and are called an emperor.
+ - Wicked sons do not have the Holy Ghost in the same way as do beloved sons, and yet they do have Baptism. So, too, heretics do not have the Church as Catholics have, even though they have Baptism.
+ - God will cleanse your sins if you yourself are dissatisfied with yourself and will keep on changing until you are perfect.
+ - All those who belong to Jesus Christ are fastened with Him to the cross.
+ - What is reprehensible is that while leading good lives themselves and abhorring those of wicked men, some, fearing to offend, shut their eyes to evil deeds instead of condemning them and pointing out their malice.
+ - The wicked have told me of things that delight them, but not such things as your law has to tell.
+ - The world is a great book, of which they that never stir from home read only a page.
+ - One generation and another generation; the generation by which we are made the faithful, and are born again by baptism; the generation by which we shall rise again from the dead, and shall live with the Angels for ever.
+ - For, were it not good that evil things should also exist, the omnipotent God would almost certainly not allow evil to be, since beyond doubt it is just as easy for Him not to allow what He does not will, as for Him to do what He will.
+ - Ignorance itself is without a doubt a sin for those who do not wish to understand; for those who, however, cannot understand, it is the punishment of sin.
+ - It is not the being seen of men that is wrong, but doing these things for the purpose of being seen of men. The problem with the hypocrite is his motivation.
+ - I want my friend to miss me as long as I miss him.
+ - Indeed, man wishes to be happy even when he so lives as to make happiness impossible.
+ - If I am given a formula, and I am ignorant of its meaning, it cannot teach me anything, but if I already know it what does the formula teach me?
+ - It is easy to want things from the Lord and yet not want the Lord Himself, as though the gift could ever be preferable to the Giver.
+ - We enjoy some gratification when our good friends die; for though their death leaves us in sorrow, we have the consolatory assurance that they are beyond the ills by which in this life even the best of people are broken down or corrupted.
+ - Nothing, therefore, happens unless the Omnipotent wills it to happen. He either permits it to happen, or He brings it about Himself.
+ - We make ourselves a ladder out of our vices if we trample the vices themselves underfoot.
+ - For whenever unbaptized persons die confessing Christ, this confession is of the same efficacy for the remission of sins as if they were washed in the sacred font of baptism.
+ - The customs of God’s people and the institutions of our ancestors are to be considered as laws. And those who throw contempt on the customs of the Church ought to be punished as those who disobey the law of God.
+ - Do not believe yourself healthy. Immortality is health; this life is a long sickness.
+ - There is a joy which is not given to the ungodly, but to those who love Thee for Thine own sake, whose joy Thou Thyself art. And this is the happy life, to rejoice to Thee, of Thee, for Thee; this it is, and there is no other.
+ - The good Christian should beware of mathematicians and all those who make empty prophecies. The danger already exists that mathematicians have made a covenant with the devil to darken the spirit and confine man in the bonds of Hell.
+ - Ninety percent of the time things turn out worse than you thought they would. The other ten percent of the time you had no right to expect that much.
+ - Eternity is the now that does not pass away.
+ - God bids you not to commit lechery, that is, not to have sex with any woman except your wife. You ask of her that she should not have sex with anyone except you – yet you are not willing to observe the same restraint in return.
+ - He who denies the existence of God, has some reason for wishing that God did not exist.
+ - I was unhappy and so is every soul unhappy which is tied to its love for mortal things; when it loses them, it is torn in pieces, and it is then that it comes to realize the unhappiness which was there even before it lost them.
+ - If faith fails, prayer perishes.
+ - Imagine the vanity of thinking that your enemy can do you more damage than your enmity.
+ - He who does not have the church as his mother, does not have God as his father.
+ - O Lord, grant that I may do Thy will as if it were my will, so that Thou mayest do my will as if it were Thy will.
+ - Forgiveness is the remission of sins. For it is by this that what has been lost, and was found, is saved from being lost again.
+ - My love for you, Lord, is not an uncertain feeling, but a matter of concious certainty. With your word you pierced my heart, and I loved you. But heaven and earth and everything in them on all sides tell me to love you.
+ - He who commends the nature of the soul as the supreme good, and condemns the nature of the flesh as evil, at once both carnally desires the soul, and carnally flies the flesh, because he feels thus from human vanity, not from divine truth.
+ - The sole purpose of life is to gain merit for life in eternity.
+ - There is something in humility which strangely exalts the heart.
+ - I will plant my feet on that step where my parents put me as a child, until self-evident truth comes to light.
+ - Can any praise be worthy of the Lord’s majesty?
+ - Let those who think I have said too little and those who think I have said too much, forgive me; and let those who think I have said just enough thank God with me.
+ - By means of corporal and temporal things we may comprehend the eternal and the spiritual.
+ - Quid est ergo tempus? Si nemo ex me quaerat, scio; si quaerenti explicare velim, nescio. What, then, is time? I know well enough what it is, provided that nobodyasksme; but if Iamasked what it is and try to explain, I am baffled.
+ - Our bodies are shaped to bear children, and our lives are a working out of the processes of creation. All our ambitions and intelligence are beside that great elemental point.
+ - Do not follow any road, but that which Christ trod. This road seems hard, but it is safe.
+ - What can be hoped for which is not believed?
+ - There is no possible source of evil except good.
+ - For a sentence is not complete unless each word, once its syllables have been pronounced, gives way to make room for the next.
+ - The diversity of language alienates man from man.
+ - What am I then, my God? What is my nature? A life varied, multifaceted and truly immense.
+ - How high a price we pay for the burden of habit! I am fitted for life here where I do not want to be, I want to live there but am unfit for it, and on both counts I am miserable.
+ - The Kingdom of Heaven, O man, requires no other price than yourself. The value of it is yourself. Give yourself for it and you shall have it.
+ - A person can do other things against his will, but belief is possible only in one who is willing.
+ - To abstain from sin when one can no longer sin is to be forsaken by sin, not to forsake it.
+ - It is not the punishment but the cause that makes the martyr.
+ - The people who remained victorious were less like conquerors than conquered.
+ - Grace alone brings about every good work in us.
+ - War should we waged without love of violence, cruelty, or enmity.
+ - What I needed most was to love and to be loved, eager to be caught. Happily I wrapped those painful bonds around me; and sure enough, I would be lashed with the red-hot pokers or jealousy, by suspicions and fear, by burst of anger and quarrels.
+ - If But for the Mercy of my Lord, that my paradise becomes a woman’s hell.
+ - The honors of this world, what are they but puff, and emptiness, and peril of falling?
+ - Don’t you believe that there is in man a deep so profound as to be hidden even to him in whom it is?
+ - The wicked exist in this world either to be converted or that through them the good may exercise patience.
+ - The human race is inquisitive about other people’s lives, but negligent to correct their own.
+ - Then assuredly the world was made, not in time, but simultaneously with time.
+ - No one indeed believes anything unless he has first thought that it it to be believed.
+ - The most venerable, clearly understood, enlightened, and reliable constant in the world is not only that we want to be happy, but that we want only to be so. Our very nature requires it of us.
+ - Although God is all powerful, He is unable to give more; though supremely wise, He knows not how to give more; though vastly rich, He has not more to give.
+ - Free curiosity is of more value than harsh discipline.
+ - I learned most, not from those who taught me but from those who talked with me.
+ - The soul, which is spirit, can not dwell in dust; it is carried along to dwell in the blood.
+ - We cannot pass our guardian angel’s bounds, resigned or sullen, he will hear our sighs.
+ - Why then be perverted and follow thy flesh? Be it converted and follow thee.
+ - I did not find you outside, O Lord, because I made the mistake of seeking outside you who were within.
+ - No man has a right to lead such a life of contemplation as to forget in his own ease the service due to his neighbor.
+ - Choose to love whomsoever thou wilt: all else will follow.
+ - Do you who are a Christian desire to be revenged and vindicated, and the death of Jesus Christ has not yet been revenged, nor His innocence vindicated?
+ - The rich are like beasts of burden, carrying treasure all day, and at the night of death unladen; they carry to their grave only the bruises and marks of their toil.
+ - Let necessity, and not your will, slay the enemy who fights against you.
+ - You don’t love in your enemies what they are, but what you would have them become by your prayers.
+ - The measure of charity may be taken from the want of desires. As desires diminish in the soul, charity increases in it; and when it no longer feels any desire, then it possesses perfect charity.
+ - What can be more excellent than prayer; what is more profitable to our life; what sweeter to our souls; what more sublime, in the course of our whole life, than the practice of prayer!
+ - Nothing so clearly distinguishes a spiritual man as his treatment of an erring brother.
+ - Fill yourselves first and then only will you be able to give to others.
+ - Every good and true Christian should understand that wherever he may find the truth it is his Lord’s.
+ - For so it is, O Lord my God, I measure it! But what it is I measure, I do not know.
+ - He that is kind is free, though he is a slave; he that is evil is a slave, though he be a king.
+ - Though defensive violence will always be ‘a sad necessity’ in the eyes of men of principle, it would be still more unfortunate if wrongdoers should dominate just men.
+ - Make friends with angels.
+ - God grants us not always what we ask so as to bestow something preferable.
+ - While the best men are guided by love, most mean are still goaded by fear.
+ - A thing is not necessarily true because badly uttered, nor false because spoken magnificently.
+ - The will is truly free, when it is not the slave of vices and sins.
+ - We are certainly in a common class with the beasts; every action of animal life is concerned with seeking bodily pleasure and avoiding pain.
+ - Why is it that man desires to be made sad, beholding doleful and tragical things, which yet himself would by no means suffer?
+ - Blessedness consists in the accomplishment of our desires, and in our having only regular desires.
+ - Slavery is not penal in character and planned by that law which commands the preservation of the natural order and forbids disturbance.
+ - If a parricide is more wicked than anyone who commits homicide-because he kills not merely a man but a near relative-without doubt worse still is he who kills himself, because there is none nearer to a man than himself.
+ - It is said that there is no salvation outside the Church. Who denies this? And therefore whatever things of the Church are had outside the Church do not avail unto salvation.
+ - Such is the strength of the burden of habit. Here I have the power to be but do not wish it. There I wish to be but lacks the power. On both grounds, I’m in misery.
+ - Virginity is not honored simply because it is virginity, but because it is consecrated of God.
+ - He who thinks he lives without sin puts aside not sin, but pardon.
+ - If there is something more excellent than the truth, then that is God; if not, then truth itself is God.
+ - The mind commands the mind to will, and yet, though it be itself, it minds not. What is this monstrous thing? And why is it?
+ - We should never use the truth to wound.
+ - The same divine authority that forbids the killing of a human being establishes certain exceptions, as when God authorizes killing by a general law or when He gives an explicit commission to an individual for a limited time.
+ - One can’t reach the Truth but trough Love.
+ - In the usual course of study I had come to a book of a certain Cicero.
+ - Believe that others are better than you in the debths of their soul, although outwardly you may appear better than they.
+ - Your wisdom should be without pride.
+ - We judge all things according to the divine truth.
+ - I am convinced that in all history there has never been a greater need to Pray for our Pastors than exists right now! Pastors are experiencing an unprecedented wave of attacks, stresses, challenges. obstacles. pressures.
+ - Why is it that we remember with difficulty and without difficulty forget? Learn with difficulty and without difficulty remain ignorant?
+ - It is not in virtue of its liberty that the human will attains to grace, it is much rather by grace that it attains to liberty.
+ - Men are always ready to nose around and find out about other’s lives, but they feel lazy to know themselves and correct their own life.
+ - Do you wish to rise? Begin by descending.
+ - A young man had become possessed by a devil. The thing within him burst into loud lamentation and departed from the man. At once the youth’s eye fell out on his cheek, and the whole of the pupil which had been black became white.
+ - Great are those two gifts, wisdom and continence: wisdom, forsooth, whereby we are formed in the knowledge of God; continence whereby we are not conformed to this world.
+ - Your best servant is the person who does not attend so much to hearing what he himself wants as to willing what he has heard from you.
+ - We both exist and know that we exist, and rejoice in this knowledge.
+ - All the dancer’s gestures are signs of things, and the dance called rational, because it aptly signifies and displays something over and above the pleasure of the senses.
+ - It is He who gave to this intellectual nature free-will of such a kind, that if he wishes to forsake God his blessedness, misery should forthwith result.
+ - This entire most beautiful order of good things is going to pass away after its measure has been exhausted; for both morning and evening were made in them.
+ - I thought that continence was a matter of our own strength, and I knew that I had not the strength: for in my utter foolishness I did not know the word of Your Scripture that none can be continent unless You give it.
+ - The ministry is a weight from which even an angel might shrink.
+ - I was in love with loving.
+ - For what is faith unless it is to believe what you do not see?
+ - Whoever is still seeking for miracles so that he may believe is himself a wonder, who does not believe while the world around him does.
+ - You cannot attain to charity except through humility.
+ - Cursed is everyone who places his hope in changing the nature of man.
+ - We are and we know we are and we love to be it and know it.
+ - The entire most beautiful order of things that are very good, when their measures have been accomplished, is to pass away.
+ - What is held by the whole Church, and that not as instituted by Councils, but as a matter of invariable custom, is rightly held to have been handed down by authority.
+ - It is salutary for us to learn to hold cheap such things, be they good or evil, as attach indifferently to good men and bad, and to covet those good things which belong only to good men, and flee those evils which belong only to evil men.
+ - I inquired what wickedness is, and I didn’t find a substance, but a perversity of will twisted away from the highest substance – You, O God – towards inferior things, rejecting its own inner life and swelling with external matters.
+ - Love, and He will draw near; love, and He will dwell within you.
+ - Things are solved by walking around.
+ - Blessed is he who devotes his life to great and noble ends, and who forms his well-considered plans with deliberate wisdom.
+ - Lord, who art always the same, give that I know myself, give that I know Thee.
+ - He who does little, but in a state to which God calls him, does more than he who labors much, but in a state which he has thoughtlessly chosen: a cripple limping in the right way is better than a racer out of it.
+ - I was in misery, and misery is the state of every soul overcome by friendship with mortal things and lacerated when they are lost. Then the soul becomes aware of the misery which is its actual condition even before it loses them.
+ - Where love is, what can be wanting? Where it is not, what can possibly be profitable?
+
+500 quotes

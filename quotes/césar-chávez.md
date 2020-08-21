@@ -1,0 +1,104 @@
+ - Once social change begins, it cannot be reversed. You cannot un-educate the person who has learned to read. You cannot humiliate the person who feels pride. You cannot oppress the people who are not afraid anymore. Cesar Chavez Address to the Commonwealth Club in San Francisco, Nov. 9, 1984.
+ - True wealth is not measured in money or status or power. It is measured in the legacy we leave behind for those we love and those we inspire.
+ - To make a great dream come true, the first requirement is a great capacity to dream; the second is persistence.
+ - We have seen the future, and the future is ours.
+ - The people united will never be defeated.
+ - You are never strong enough that you don’t need help.
+ - Kindness and compassion toward all living things is the mark of a civilized society.
+ - It is possible to become discouraged about the injustice we see everywhere. But God did not promise us that the world would be humane and just. He gives us the gift of life and allows us to choose the way we will use our limited time on earth. It is an awesome opportunity.
+ - There is no substitute for hard work, 23 or 24 hours a day. And there is no substitute for patience and acceptance.
+ - You cannot oppress the people who are not afraid anymore.
+ - Students must have initiative; they should not be mere imitators. They must learn to think and act for themselves – and be free.
+ - Our language is the reflection of ourselves. A language is an exact reflection of the character and growth of its speakers.
+ - Only when we have become nonviolent towards all life will we have learned to live well with others.
+ - We know we cannot be kind to animals until we stop exploiting them – exploiting animals in the name of science, exploiting animals in the name of sport, exploiting animals in the name of fashion, and yes, exploiting animals in the name of food.
+ - Preservation of one’s own culture does not require contempt or disrespect for other cultures.
+ - The fight is never about grapes or lettuce. It is always about people.
+ - Together, all things are possible.
+ - Kindness and compassion towards all living things is a mark of a civilized society. Conversely, cruelty, whether it is directed against human beings or against animals, is not the exclusive province of any one culture or community of people.
+ - We must understand that the highest form of freedom carries with it the greatest measure of discipline.
+ - I am convinced that the truest act of courage, the strongest act of manliness, is to sacrifice ourselves for others in a totally nonviolent struggle for justice. To be a man is to suffer for others. God help us to be men!
+ - We draw our strength from the very despair in which we have been forced to live. We shall endure.
+ - Real education should consist of drawing the goodness and the best out of our own students. What better books can there be than the book of humanity?
+ - Those who are willing to sacrifice and be of service have very little difficulty with people. They know what they are all about. People can’t help but want to be near them. They help them; they work with them. That’s what love is all about. It starts with your heart and radiates out.
+ - History will judge societies and governments – and their institutions – not by how big they are or how well they serve the rich and the powerful, but by how effectively they respond to the needs of the poor and the helpless.
+ - The first principle of non-violent action is that of non-cooperation with everything humiliating.
+ - Our struggle is not easy. Those who oppose our cause are rich and powerful and they have many allies in high places. We are poor. Our allies are few. But we have something the rich do not own. We have our bodies and spirits and the justice of our cause as our weapons.
+ - In non-violence the cause has to be just and clear as well as the means.
+ - We do not need to kill or destroy to win. We are a movement that builds and not destroys.
+ - The people who give you their food give you their heart.
+ - Self dedication is a spiritual experience.
+ - In the no-nonsense school of adversity, which we did not choose for ourselves, we are learning how to operate a labor union.
+ - If you are interested in preventing animal suffering, the first thing you should give up is eggs and milk because the animals who produce those foods lead the most unhappy lives. You would do better to eat meat and stop eating eggs and dairy products.
+ - Because we have suffered, and we are not afraid to suffer in order to survive, we are ready to give up everything – even our lives – in our struggle for justice.
+ - The end of all knowledge must be the building up of character.
+ - We need to help students and parents cherish and preserve the ethnic and cultural diversity that nourishes and strengthens this community – and this nation.
+ - What is at stake is human dignity. If a man is not accorded respect he cannot respect himself and if he does not respect himself, he cannot demand it.
+ - If you’re outraged at conditions, then you can’t possibly be free or happy until you devote all your time to changing them and do nothing but that. But you can’t change anything if you want to hold onto a good job, a good way of life and avoid sacrifice.
+ - Our language is the reflection of ourselves.
+ - In giving of yourself, you will discover a whole new life full of meaning and love.
+ - It’s ironic that those who till the soil, cultivate and harvest the fruits, vegetables, and other foods that fill your tables with abundance have nothing left for themselves.
+ - It’s amazing how people can get so excited about a rocket to the moon and not give a damn about smog, oil leaks, the devastation of the environment with pesticides, hunger, disease. When the poor share some of the power that the affluent now monopolize, we will give a damn.
+ - If we are full of hatred, we can’t really do our work. Hatred saps all that strength and energy we need to plan.
+ - The consumer boycott is the only open door in the dark corridor of nothingness down which farm workers have had to walk for many years. It is a gate of hope through which they expect to find the sunlight of a better life for themselves and their families.
+ - Being of service is not enough. You must become a servant of the people. When you do, you can demand their commitment in return.
+ - In some cases non-violence requires more militancy than violence.
+ - We don’t know how God chooses martyrs. We do know that they give us the most precious gift they possess – their very lives.
+ - Through Gandhi and my own life experience, I have learned about nonviolence. I believe that human life is a very special gift from God, and that no one has a right to take that away in any cause, however just. I am convinced that nonviolence is more powerful than violence.
+ - When the man who feeds the world by toiling in the fields is himself deprived of the basic rights of feeding, sheltering, and caring for his own family, the whole community of man is sick.
+ - There are many reasons for why a man does what de does. To be himself he must be able to give it all. If a leader cannot give it all he cannot expect his people to give anything.
+ - Organizing is an educational process. The best educational process in the union is the picket line and the boycott. You learn about life.
+ - Our conviction is that human life and limb are a very special possession given by God to man and that no one has the right to take that away, in any cause, however just...
+ - Look at the John Birch Society. Look at Hitler. The reactionaries are always better organizers.
+ - If you’re not frightened that you might fail, you’ll never do the job. If you’re frightened, you’ll work like crazy.
+ - Once social change begins, it cannot be reversed.
+ - The love for justice that is in us is not only the best part of our being but it is also the most true to our nature.
+ - Money is not going to organize the disadvantaged, the powerless, or the poor. We need other weapons. That’s why the War on Poverty is such a miserable failure. You put out a big pot of money and all you do is fight over it. Then you run out of money and you run out of troops.
+ - I am an organizer, not a union leader. A good organizer has to work hard and long. There are no shortcuts. You just keep talking to people, working with them, sharing, exchanging and they come along.
+ - We need, in a special way, to work twice as hard to help people understand that the animals are fellow creatures, that we must protect them and love them as we love ourselves.
+ - There is enough love and good will in our movement to give energy to our struggle and still have plenty left over to break down and change the climate of hate and fear around us.
+ - When any person suffers for someone in greater need, that person is a human.
+ - However important the struggle is and however much misery and poverty and degradation exist, we know that it cannot be more important than one human life.
+ - When you sacrifice, you force others to sacrifice. It’s an extremely powerful weapon.
+ - What I do shows people what kind of person I am.
+ - There is no such thing as defeat in non-violence.
+ - If you win non-violently, then you have a double victory, you have not only won your fight, but you remain free.
+ - When you have people together who believe in something very strongly – whether it’s religion or politics or unions – things happen.
+ - When we are really honest with ourselves we must admit our lives are all that really belong to us. So it is how we use our lives that determines the kind of men we are.
+ - If you give yourself totally to the nonviolence struggle for peace and justice you also find that people give you their hearts and you will never go hungry and never be alone.
+ - I became a vegetarian after realizing that animals feel afraid, cold, hungry and unhappy like we do. I feel very deeply about vegetarianism and the animal kingdom. It was my dog Boycott who led me to question the right of humans to eat other sentient beings.
+ - The thing that we have going for us is that people are willing to sacrifice themselves.
+ - We are confident. We have ourselves. We know how to sacrifice. We know how to work. We know how to combat the forces that oppose us. But even more than that, we are true believers in the whole idea of justice. Justice is so much on our side, that that is going to see us through.
+ - Never, never is it possible to reach someone if you become angry or bitter only love and gentleness can do it. Maybe not this time but maybe the next or the hundredth time.
+ - Years of misguided teaching have resulted in the destruction of the best in our society, in our cultures and in the environment.
+ - Nonviolence is really tough. You don’t practice nonviolence at conferences; you practice it on picket-lines.
+ - In 1968, I became a vegetarian after realizing that animals feel afraid, cold, hungry, and unhappy like we do...
+ - The basis for peace is respecting all creatures.
+ - I’ve always maintained that it isn’t the form that’s going to make the difference. It isn’t the rule or the procedure or the ideology, but it’s human beings that will make it.
+ - The only ones who make things change are fanatics. If you’re not a fanatic around here, you can’t cut it.
+ - Today, the growers are like a punch-drunk old boxer who doesn’t know he’s past his prime. The times are changing. The political and social environment has changed. The chickens are coming home to roost – and the time to account for past sins is approaching.
+ - It is my deepest belief that only by giving our lives do we find life.
+ - In this world it is possible to achieve great material wealth, to live an opulent life. But a life built upon those things alone leaves a shallow legacy. In the end, we will be judged by other standards.
+ - When workers fall back on violence, they are lost. Oh, they might win some of their demands and might end a strike a little earlier, but they give up their imagination, their creativity, their will to work hard and to suffer for what they believe is right.
+ - Concentration is inspiration. You must be completely overtaken by your work and your subject. Only then do all your influences and experience come up to the surface.
+ - It takes a lot of punishment to be able to do anything to change the social order.
+ - We are certain God’s will is that all men share in the good things this earth produces.
+ - We’ll organize workers in this movement as long as we’re willing to sacrifice. The moment we stop sacrificing, we stop organizing.
+ - From the depth of need and despair, people can work together, can organize themselves to solve their own problems and fill their own needs with dignity and strength.
+ - The strike and the boycott, they have cost us much. What they have not paid us in wages, better working conditions, and new contracts, they have paid us in self-respect and human dignity.
+ - We are suffering. We have suffered. And we are not afraid to suffer in order to win our cause.
+ - Non violence means people in action. People have to understand that with non-violence goes a hell of a lot of organization.
+ - The non-violent technique does not depend for its success on the goodwill of the oppressor, but rather on the unfailing assistance of God.
+ - I’m not going to ask for anything unless the workers want it. If they want it, they’ll ask for it.
+ - We are organizers at heart. Most of us in the movement take great pride in being able to put things together.
+ - Who gets the risks? The risks are given to the consumer, the unsuspecting consumer and the poor work force. And who gets the benefits? The benefits are only for the corporations, for the money makers.
+ - Non-violence has suffered its biggest defeat in the hands of people who most want to talk about it.
+ - You know, if people are not pacifists, it’s not their fault. It’s because society puts them in that spot. You’ve got to change it. You don’t just change a man – you’ve got to change his environment as you do it.
+ - We’re going to pray a lot and picket a lot.
+ - Imagine the National Guard being called against a group of peaceful people. How far can we get; how disgraceful can it become? It’s the most disgraceful, the most wicked thing I’ve seen in all my years of organizing farm labor.
+ - When a man or woman, young, or old, takes a place on the picket line for even a day or two, he will never be the same again.
+ - There’s no reason to be non-violent. There’s no challenge unless you are living for people.
+ - If they had $2.00 for food, they had to give $1.00 to the union. Otherwise, they would never get out of the trap of poverty. They would never have a union because they couldn’t afford to sacrifice a little bit more on top of their misery.
+ - Non-violence exacts a very high price from one who practices it. But once you are able to meet that demand then you can do most things.
+
+102 quotes

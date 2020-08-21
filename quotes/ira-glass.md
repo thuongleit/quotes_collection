@@ -1,0 +1,41 @@
+ - Great stories happen to those who can tell them.
+ - It is only by going through a volume of work that you will close that gap, and your work will be as good as your ambitions.
+ - I would just like say to you with all my heart is that most everybody I know who does interesting creative work, they went through a phase of years where they had really good taste and they could tell what they were making wasn’t as good as they wanted it to be.
+ - The most important possible thing you can do is do a lot of work.
+ - For me to do a story, something has to happen to someone. It’s a story in the way you learn what a story is in third grade, where there is a person and things happen to them and then something big happens and they realize something new.
+ - We live in a world where joy and empathy and pleasure are all around us, there for the noticing.
+ - Go looking for an idea and it’ll show up. Begin now.
+ - Not enough gets said about the importance of abandoning crap.
+ - I think good radio often uses the techniques of fiction: characters, scenes, a big urgent emotional question. And as in the best fiction, tone counts for a lot.
+ - It’s not a terribly original thing to say, but I love Raymond Carver. For one thing, he’s fun to read out loud.
+ - When I say something untrue on the air, I mean for it to be transparently untrue. I assume people know when I’m just saying something for effect. Or to be funny.
+ - If you’re not failing all the time, you’re not creating a situation where you can get lucky.
+ - I am mostly a pretty worried person. In conversations, I am always worried about what to say.
+ - Many times I see you as a portrait of torture.
+ - I seen a pig so big it’d block out the sun.
+ - You can criticize yourself to a point to do something better, or you criticize yourself to a point where you inhibit yourself.
+ - We’re Jews, my family, and Jews break down into two distinct subcultures: book Jews and money Jews. We were money Jews.
+ - I wish that someone had said to me that it’s normal to feel lost for a little while.
+ - Where do ideas come from? Ideas come from other ideas.
+ - You’ll hit gold more often if you simply try out a lot of things.
+ - You’d think that radio was around long enough that someone would have coined a word for staring into space.
+ - But sadly, one of the problems with being on public radio is that people tend to think you’re being sincere all the time.
+ - It takes a while. It’s gonna take you a while. It’s normal to take a while. You just have to fight your way through that.
+ - You just want to try a bunch of stuff, because you don’t know what’s going to be great.
+ - You just have to fight your way through.
+ - Everything is more compelling when you talk like a human being, when you talk like yourself.
+ - I can only control what I can control.
+ - One reason I do the live shows – and the monthly speeches at public radio stations – is to remind myself that people hear the show, that it has an audience, that it exists in the world. It’s so easy to forget that.
+ - Honestly, I am so ignorant of how dance works that I cant even imagine a story that you would want to tell through movement.
+ - I suppose I shouldn’t go around admitting I speak untruths on the radio.
+ - Honestly, there are so many things about structuring a story for film and telling a story for film that are really different from doing radio.
+ - Just when did I get to the point when staying at a hotel wasn’t fun?
+ - But you can make good radio, interesting radio, great radio even, without an urgent question, a burning issue at stake.
+ - I cannot stress enough that the answer to a lot of your life’s questions is often in someone else’s face. Try putting your iPhones down every once in a while and look at people’s faces.
+ - I didnt have any particular talent for fiction. I took a class in college.
+ - Where radio is different than fiction is that even mediocre fiction needs purpose, a driving question.
+ - In some theoretical way I know that a half-million people hear the show. But in a day-to-day way, there’s not much evidence of it.
+ - I wish somebody had given me the news that ideas don’t just fall on your head like fairy dust. You have to treat that like a job. You have to spend hours each day, where you’re just like, ‘This is the part of the day when I’m looking for an idea.’
+ - You will be fierce. You will fearless. And you will make work you know in your heart is not as good as you want it to be.
+
+39 quotes

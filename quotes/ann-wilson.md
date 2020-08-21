@@ -1,0 +1,22 @@
+ - Getting out and staying out of debt is key. debt is the biggest barrier, a parasite to wealth.
+ - Use Time. Make it easy. Get your money to work for you. The key is to get in the market, as it is not about timing the market, but time in the market that matters.
+ - This is such a cynical world. The way the world is, there’s so much going on and so much stress in the world and so much darkness and craziness and imbalance.
+ - If you want to help the poor, don’t be poor.
+ - Artists make art. Singers sing. Players play. Gypsies travel. Music lights fires everywhere. It’s like oxygen!
+ - Life can be dangerous; just let it be! When we shake off what we perceive as boundaries, that is where the bliss really is.
+ - Heart has always been a rock band. It’s always been hard-rock.
+ - I guess we decided to make a new record 3 years ago when Nancy was done scoring for Almost Famous.
+ - I like The White Stripes and I like the kinda twang American thing right now.
+ - People can’t just listen to the music and have their own imagination and take them where they wanna go.
+ - At that time a lot of young men didn’t want to go to the war and kill. This guy that I fell in love with was one of those so he escaped to Canada and I followed him.
+ - I’m a little bit more unusual so I consider myself as the black sheep.
+ - I’ve got two sisters and they’re both married and they’re both much more settled into the way things are.
+ - I don’t think we ever clash but we do become frosty.
+ - Back when we were first making records, you didn’t just make the music, you put a great deal of energy into the way it looked, and every word that was written on the whole thing.
+ - Fleetwood Mac are more like a folk-rock band.
+ - You noticed from last night, we only did two from the 80s. And our set’s two hours long.
+ - Led Zeppelin, you can’t find a better band to pay homage to.
+ - I like the way remixes sound. Some of them are really creative.
+ - It’s a really bad idea to be in a band and get involved with each other.
+
+20 quotes

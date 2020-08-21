@@ -1,0 +1,22 @@
+ - I’m still an atheist, thank God.
+ - Repeat, over and over again, in case anyone forgets it or believes the contrary, that we do not live in the best of all possible worlds.
+ - The Cinema seems to have been invented to express the life of the subconscious, the roots of which penetrate poetry so deeply.
+ - Like the majority of deaf people, I don’t like blind people much.
+ - Our memory is our coherence, our reason, our feeling, even our action. Without it, we are nothing.
+ - I can only wait for the final amnesia, the one that can erase an entire life.
+ - A writer or painter cannot change the world. But they can keep an essential margin of nonconformity alive.
+ - Age is something that doesn’t matter unless you’re a cheese.
+ - If someone were to tell me I had twenty years left, and ask me how I’d like to spend them, I’d reply ‘Give me two hours a day of activity, and I’ll take the other twenty-two in dreams.’
+ - Tobacco and alcohol, delicious fathers of abiding friendships and fertile reveries.
+ - If we could only find the courage to leave our destiny to chance, to accept the fundamental mystery of our lives, then we might be closer to the sort of happiness that comes with innocence.
+ - I can’t help feeling that there is no beauty without hope, struggle, and conquest.
+ - If alcohol is queen, then tobacco is her consort. It’s a fond companion for all occasions, a loyal friend through fair weather and foul.
+ - Thank God, I am still an atheist.
+ - A paranoiac, like a poet, is born, not made.
+ - I would give my life for a man who is looking for the truth. But I would gladly kill a man who thinks that he has found the truth.
+ - Frankly, despite my horror of the press, I’d love to rise from the grave every ten years or so and go buy a few newspapers.
+ - The bar is an exercise in solitude. Above all else, it must be quiet, dark, very comfortable-and, contrary to modern mores, no music of any kind, no matter how faint. In sum, there should be no more than a dozen tables, and a clientele that doesn’t like to talk.
+ - Mystery is the essential element of every work of art.
+ - Refuse any image that could have a rational meaning or any memory or culture.
+
+20 quotes

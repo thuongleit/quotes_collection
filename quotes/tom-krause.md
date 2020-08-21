@@ -1,0 +1,40 @@
+ - When life knocks you down you have two choices – stay down or get up.
+ - Never ask questions you don’t want to know the answers to.
+ - Your purpose in life is to use your gifts and talents to help other people. Your journey in life teaches you how to do that.
+ - There are no failures. Just experiences and your reactions to them.
+ - If you only do what you know you can do – you never do very much.
+ - Life isn’t about living without problems. Life is about solving problems.
+ - That which makes us DIFFERENT, will make a DIFFERENCE in the world some day. Be Yourself.
+ - Courage is the discovery that you may not win, and trying when you know you can lose.
+ - The surest way to lose sight of who you are is to constantly compare yourself to others.
+ - God is like a beautiful flower blooming in nature. He is easy to walk by and not notice but for those who stop to enjoy His elegance and grace their day becomes brighter.
+ - If we knew all the answers ahead of time we wouldn’t need faith.
+ - No lesson is ever learned without humility.
+ - You should never have to tell someone you are a Christian. They should know by the way you treat them.
+ - Tomorrow’s realities come from our beliefs today.
+ - At times when you feel troubled, when happiness is gone, look to the heart within you for the strength to carry on.
+ - We all have a choice. We all have a say. We are spectators in life or we get in and play. Whichever we choose, how we handle lifes game, the choices are ours no one else is to blame.
+ - Strong leaders cannot tolerate weak leaders above them.
+ - If you don’t want it bad enough to risk losing it – you don’t want it bad enough.
+ - For when there is victory, when battles are won, when burdens are lifted, when bright shines the sun, when struggling souls gather where heroes belong, they find in themselves the heart of the strong.
+ - It is you who determines your future, how your journey through tomorrow will be. To fill all your days with adventure dare to see what no one else dares to see.
+ - In an age where every decision we make must be supported by numbers and opinion polls, kindness, compassion, faith and common sense require no statistical analysis.
+ - Sometimes all a dream needs to come true is for someone to believe in it.
+ - An act of kindness encourages the heart of the sender and the receiver.
+ - Getting what you want is not nearly as important as giving what you have.
+ - God calls everyone to kindness and love. Unfortunately some people have their ringer turned off.
+ - All that is needed to make a difference in this world is a kind heart and a smile.
+ - It is not the people that come into your life and hurt you that count. It is the people who come into your life and help you that matter.
+ - I have lived long enough to realize I don’t need to know all the answers. Faith is enough.
+ - Children stop playing a game they never can win.
+ - It only takes a moment to reach out to be a friend but to the one who needs you the memory never ends.
+ - The best things that have ever happened to me have not been the result of anything I have done. Some might say that is luck. I call them blessings and in some cases miracles.
+ - We are what we pass on to our children.
+ - You get further in life on trust than talent.
+ - You are not who you were yesterday. You are not who you will be tomorrow. You are who you are today.
+ - It is one of life’s true lessons, how my walk is meant to be: true happiness I find when life’s not only about me.
+ - What you truly seek is right in front of you!
+ - God does not ask us to look the other way during times of injustice.
+ - You are never as good or bad as you think you are. Truth is we are all somewhere in the middle.
+
+38 quotes

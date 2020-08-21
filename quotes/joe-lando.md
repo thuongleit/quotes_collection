@@ -1,0 +1,26 @@
+ - There’s an old saying, this too shall pass, and change is good.
+ - I love the Midwest. I think about it every day. I wonder if I would rather have a little farm in the Midwest, in Illinois or Wisconsin, or would I rather have like a little getaway up in the mountains of Colorado.
+ - I’m the poster boy for Propecia. It’s amazing.
+ - I know I’m honest and dependable, usually. I know I’m always dependable for my wife. I’m always at home and I’m always there to help.
+ - I need family support close because when you go to work, they are long days and it can get lonely.
+ - I would prefer just to be an actor for hire rather than struggling with something like Higher Ground, that I had a lot of emotion attached to.
+ - My dad is a really honest, hardworking, straight guy.
+ - I love a lot of Colorado and upper Utah. I think some of the most beautiful terrain is upper BC.
+ - Talking with other parents really gave me some lessons that I try to hold on to now, as a parent of two boys.
+ - I’m 37 years old and don’t have a steady paycheck.
+ - I’m just back in line with every other actor looking for a job right now and keeping my fingers crossed.
+ - I have to make half of my decision based on what I think my fans will appreciate, and the other half has to be for my personal reasons.
+ - Americans appreciate the way our friends around the world are sticking by us, and we all hope for their continued support in what’s going to be some very trying times.
+ - Soap opera wouldn’t be my first choice, but at this point in my life, I would consider a soap. It would allow me to act and still do other things with my life.
+ - I have had the auditioning process go on for two weeks or three weeks. I am always incredibly anxious. The audition and the wait is definitely the hardest part for me.
+ - I would love the opportunity to work in Chicago. It would be like a dream come true, if I could work there on something like the way ER was filmed.
+ - If there was another Dr. Quinn movie, I would do it in a heartbeat.
+ - I enjoy doing romantic stories. I’ve done a lot of them.
+ - I’d be honored to be playing a Republican, although I’m not.
+ - I would love to get a place out in the country and spend my idle time just remodeling and planting seeds and watching them grow.
+ - If I put the script down more than once, there’s a good chance that I probably don’t want to play the part.
+ - When you work with somebody you have chemistry with, it’s easy and it’s fun. You hardly call it work.
+ - All actors almost always try to steal some of their wardrobe.
+ - It was real Cheyenne. I would get the translations the night before, but it was very difficult because it was not like any other language you would be familiar with.
+
+24 quotes

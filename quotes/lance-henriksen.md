@@ -1,0 +1,22 @@
+ - I’m not Tom Cruise. I don’t have to look that good. I’m always going to have a problem because I’m thought of as someone edgy, but I’m not. I’m a cupcake.
+ - In every respect, fantasy is like doing abstract paintings.
+ - We are all guilty in someone’s eyes. More so our own.
+ - Although, people make mistakes in their lives, and you could say that the mistakes make us who we are, by how we respond to them. I just don’t want to play boring good guys.
+ - If the crowd is too big, it’s too much for me. I took my daughter down there, and all I did was spend all of my time worrying that she was going to get lost because you’re caught between somebody with a sandwich in their hand and somebody in a costume. It’s really crazy.
+ - In the late 1960s, I ended up in Telluride, Colorado. It wasnt like the country club that it is now. It was very raw. Skiing was there, but snowboarders have now entirely overrun it.
+ - I learned a lot. I really did. Millennium is a state of mind. I always thought of Frank Black as the greatest chess player that could take random pieces of information and string them together into a scenario that was accurate. I never thought of him as a psychic at all. We need people like that.
+ - To me rites of passage through life, that’s a wonderful, beautiful thing.
+ - Corporate nationalism to me is a little bit like what would have happened if Hitler had won. It’s scary stuff. It’s totalitarianism in a different from, under a different flavour.
+ - I stay subjective because that’s what I do. That’s one of my abilities. I don’t need to watch it because I’ve had the adventure. I don’t do low-budget acting. I do the same acting, whether I’m in a Jim Cameron or not. I always try to do good work. There’s no snobbery in there.
+ - When I’m making a movie, I never watch the dailies. I see the movie once and that’s it. It’s really not about that for me. It’s not about the externals. When I’m on a set, I don’t want to see it. I want to be subjective in it. That’s my habit now.
+ - When I was a kid, all of the parents and grandparents came out of the Depression Era. They were all freezing bread in their freezer, they were covering their sofas with plastic, and they had plastic runners on the floor. There was a great distance between them and anything authentic.
+ - When I do a horror or a fantasy film it all boils down to something in the script that surprises me. It could be a big thing or a small moment. If it’s there I’ll do it.
+ - Usually the male control and domination that tends to be in our genes gets around a powerful woman who has the ability to make choices different from guys, it throws you off and you get frustrated.
+ - I have never gauged myself against anyone else.
+ - There’s nothing more terrifying than an actor who comes with an idea.
+ - The only one that I think I could beat, if my life depended on it, would be the Predator. If it was in my territory, in my domain, with the guns that I’ve got, I think I could hurt him pretty bad. That’s the only one, though. When you get into metaphysical creatures, they don’t play fair.
+ - I’ve done a lot of video games and stuff, and I’m getting better and better at it. I don’t have a prejudice about it being a different medium.
+ - I might go visit it one day, but I couldn’t do any more than just visit. I love it, don’t get me wrong, but it’s just too big. I’m going to be at a lot of other conventions this year, with the book and everything.
+ - I ride really well and I shoot a gun really well. I love the genre. Once I did Westerns, I was hooked. I love them, but there’s been very few of them made. I never wanted to play a guy who was acting like a cowboy. I wanted to play someone who had a real life, but was also trapped into situations.
+
+20 quotes

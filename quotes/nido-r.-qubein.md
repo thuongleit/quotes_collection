@@ -1,0 +1,55 @@
+ - Change brings opportunity.
+ - The price of discipline is always less than the pain of regret.
+ - Your present circumstances don’t determine where you can go; they merely determine where you start.
+ - When a goal matters enough to a person, that person will find a way to accomplish what at first seemed impossible.
+ - Are you a thermometer or a thermostat? A thermometer only reflects the temperature of its environment, adjusting to the situation. But a thermostat initiates action to change the temperature in its environment.
+ - The power to affect your future lies within your own hands.
+ - Make education a continuing, never-ending process.
+ - The time is now, the person is you.
+ - Winners compare their achievements with their goals, while losers compare their achievements with those of other people.
+ - Make a strong commitment to reach your full potential as a human being.
+ - You can’t think your way into acting positively, but you can act your way into thinking positively.
+ - You may have the loftiest goals, the highest ideals, the noblest dreams, but remember this nothing works unless you do.
+ - Training teaches how. Education teaches why.
+ - A decision is made with the brain. A commitment is made with the heart. Therefore, a commitment is much deeper and more binding than a decision.
+ - If what you are doing is worth doing, hang in there until it is done.
+ - Motivation without mobilization means only frustration.
+ - Nothing can add more power to your life than concentrating all you energies on a limited set of targets.
+ - People who invariably put themselves first will find that others tend to put them last.
+ - Good leaders must become what they want their followers to become.
+ - Achieving your vision doesn’t mean you’ve reached the end of the line. It simply means that you’ve come to a new starting place.
+ - Success doesn’t come to you; you must go to it. The trail is well traveled. If you want to walk it, you can.
+ - If what you’re working for really matters, you’ll give it all you’ve got.
+ - One of the greatest resources people cannot mobilize themselves is that they try to accomplish great things. Most worthwhile achievements are the result of many little things done in a single direction.
+ - To mobilize yourself, decide what you want, determine what will get you what you want, then act – do what will get you what you want most to achieve.
+ - For many people, change is more threatening than challenging. They see it as the destroyer of what is familiar and comfortable rather than the creator of what is new and exciting.
+ - Hatred is the most destructive force on earth. It does the most damage to those who harbor it.
+ - If you believe you can, and believe it strongly enough, you’ll be amazed at what you can do.
+ - Teaching people skills without giving them a vision for a better future – a vision based on common values – is only training.
+ - Goals are simply a way of breaking a vision into smaller, workable units.
+ - Wherever you are, whatever your circumstances may be, whatever misfortune you may have suffered, the music of your life has not gone. It’s inside you – if you listen to it, you can play it.
+ - Only when your memories are more important to you than your goals are you old.
+ - Goal-setting illuminates the road to success just as runway lights illuminate the landing field for an incoming aircraft.
+ - Most of us miss our best opportunities in life because they come to us disguised as work.
+ - People can be unreliable and disloyal; possessions can lose their value; jobs that once stimulated you can become boring. But principles remain steady through it all.
+ - The process of growing and learning always involves risk.
+ - Total, unconditional acceptance of yourself is the first step in building a positive self-image.
+ - It’s not enough to create value, you have to interpret the value for your prospects and customers so that they can feel the value emotionally and empirically.
+ - Those who are afraid to fail may not deserve to succeed.
+ - When the truly great people discover that they have been deceived by the signposts along the road of life, they just shift gears and keep going.
+ - What if you could be anything, or anybody, you chose to be? Think about it. What would you choose to be?
+ - Material success may result in the accumulation of possessions: but only spiritual success will enable you to enjoy them.
+ - The organization that can’t communicate can’t change, and the corporation that can’t change is dead.
+ - Some people procrastinate so much that all they can do is run around like firefighters all day – putting out fires that should not have gotten started in the first place.
+ - When you find yourself on a plateau, look for another level.
+ - Make a strong and permanent commitment to invest your talents only in pursuits that deserve your best efforts.
+ - I only wish I had more time for fund raising.
+ - Those who base their lives on the belief that a loving God is acting in their behalf tend to see problems as opportunities for growth.
+ - When we carve out a niche for ourselves in our imagined future, and decide that we won’t be happy until we achieve it, we can only feel threatened and anxious over anything that stands in our way.
+ - The trouble with many plans is that they are based on the way things are now. To be successful, your personal plan must focus on what you want, not what you have.
+ - The interesting thing about procrastination is that is has more to do with what we fail to do than with what we do.
+ - Jim Rohn is a legend. Millions of people around the world have benefited immensely from his teachings.
+ - Goals help you keep in perspective what’s really important so you don’t spend all of your time doing what seems urgent.
+ - Simmering resentment saps energy.
+
+53 quotes

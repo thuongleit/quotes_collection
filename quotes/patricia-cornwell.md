@@ -1,0 +1,51 @@
+ - Survival my only hope. Success my only revenge.
+ - I believe the root of all evil is abuse of power.
+ - I didn’t invent forensic science and medicine. I just was one of the first people to recognize how interesting it is.
+ - The dead have never bothered me. It’s the living that I fear.
+ - Botox not only helps with wrinkles, it actually makes you feel more relaxed as frowning causes tension.
+ - Life brings with it strangeness and surprises and upsets.
+ - Everyone is doing forensics.
+ - My friends call me Miss Worst Case Scenario.
+ - Night fell clean and cold in Dublin, and wind moaned beyond my room as if a million pipes played the air.
+ - On the last morning of Virginia’s bloodiest year since the Civil War, I built a fire and sat facing a window of darkness where at sunrise I knew I would find the sea.
+ - America is the most violent democracy in the world. It’s something that’s met with great shock, horror, and mystery when I travel to other countries. They ask, Why are there so many shootings in America? Why does everyone own a gun?
+ - To almost die is to know that one day you will, and to never again feel the same about anything.
+ - I don’t do things that are illegal.
+ - I wouldn’t want to assume that all men are like you. If I did, I know I would give them up entirely.
+ - First of all, it does not deter crime, the death penalty.
+ - Grief was like a seizure that shook me like a storm.
+ - I constantly remind people that crime isn’t solved by technology; it’s solved by people.
+ - Has all the trappings of a mystery novel, doesn’t it?
+ - I like crazy shoes or unusual cowboy boots and I collect big belt buckles.
+ - I’ve never taken a scalpel to a dead body.
+ - When I was in second grade, my mother moved from Miami to this evangelical conservative environment in western North Carolina, two miles down the road from Billy Graham and his wife, Ruth.
+ - Being with someone who is smart and gives good advice adds tremendously wonderful elements to your life.
+ - I refuse to sit on my laurels.
+ - With DNA, the ability to find out a lot more with a lot less has increased our ability for identification.
+ - I’ve always believed human blood is red because it really needs to draw attention to itself.
+ - The biggest risk with a series that goes on this long is that you’ll get bored with the character.
+ - I dropped chemistry. I practically blew up the lab in college.
+ - Thoughts are odd misfires.
+ - He was pushing fifty, with a face life had chewed on, and long wisps of graying hair parted low on one side and combed over his balding pate.
+ - In my forties, my optimism was boundless. I had really good health and tremendous success which allowed me to do anything I wanted.
+ - I’m very, very sensitive to pain and to people who suffer.
+ - If everybody, every day, would try to do one thing that pulls them beyond themselves the world will start being a better place.
+ - You have to live where you wake up, even if someone else dreamed you there.
+ - I wouldn’t want to donate my body for scientific study.
+ - My fans want me to talk to them. And even if they want to be critical, I want to hear what they’ve got to say.
+ - And suddenly the world was filled with wooden faces and flat voices – and, you were alone.
+ - I won’t put myself in a position where I’m vulnerable.
+ - Leaves covered pavement like soggy cereal.
+ - When I was at college there were two things I vowed I’d never do. One was go to a funeral and the other was deal with computers. And then I ended up being a computer programmer in a morgue.
+ - I like to get to bed with a clear head.
+ - Even if you are a best-seller you feel insecure because it is all so unpredictable.
+ - Even when I am writing I usually take a break around lunchtime and go for a little walk to clear out my head.
+ - You can’t cure a chipped plate. All you can do is live with it or throw it out.
+ - I’m always surprised when large numbers of people buy my books.
+ - In the first person, the readers feel smart, like it’s them solving the case.
+ - But when I was a little kid, I was always writing stories and illustrating little books that I would create.
+ - We create our own worlds. We destroy our own worlds. It is that simple...
+ - Murder is about power and the more powerful women get the more it will change the good that they do and the bad that they do.
+ - I find it difficult to attend autopsies. Especially the smells.
+
+49 quotes

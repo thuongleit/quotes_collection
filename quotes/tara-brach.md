@@ -1,0 +1,64 @@
+ - Relaxation is the doorway to both wisdom and compassion.
+ - Mindfulness is a pause – the space between stimulus and response: that’s where choice lies.
+ - Radical Acceptance is the willingness to experience ourselves and our lives as it is.
+ - There is something wonderfully bold and liberating about saying yes to our entire imperfect and messy life.
+ - Feeling compassion for ourselves in no way releases us from responsibility for our actions. Rather, it releases us from the self-hatred that prevents us from responding to our life with clarity and balance.
+ - The boundary to what we can accept is the boundary to our freedom.
+ - The most powerful healing arises from the simple intention to love the life within you, unconditionally, with as much tenderness and presence as possible.
+ - In any moment, no matter how lost we feel, we can take refuge in presence and love. We need only pause, breathe, and open to the experience of aliveness within us. In that wakeful openness, we come home to the peace and freedom of our natural awareness.
+ - The trance of unworthiness keeps the sweetness of belonging out of reach. The path to “the sweetness of belonging,” is acceptance – acceptance of ourselves and acceptance of others without judgment.
+ - Imperfection is not our personal problem – it is a natural part of existing.
+ - Our attitude in the face of life’s challenges determines our suffering or our freedom.
+ - By regarding ourselves with kindness, we begin to dissolve the identity of an isolated, deficient self. This creates the grounds for including others in an unconditionally loving heart.
+ - Paying attention is the most basic and profound expression of love.
+ - Sometimes the easiest way to appreciate ourselves is by looking through the eyes of someone who loves us.
+ - When we relax about imperfection, we no longer lose our life moments in the pursuit of being different and in the fear of what is wrong.
+ - Radical Acceptance: Embracing Your Life with the Heart of a Buddha.
+ - The muscles used to make a smile actually send a biochemical message to our nervous system that it is safe to relax the flight of freeze response.
+ - The intimacy that arises in listening and speaking truth is only possible if we can open to the vulnerability of our own hearts. Breathing in, contacting the life that is right here, is our first step. Once we have held ourselves with kindness, we can touch others in a vital and healing way.
+ - Pain is not wrong. Reacting to pain as wrong initiates the trance of unworthiness. The moment we believe something is wrong, our world shrinks and we lose ourselves in the effort to combat the pain.
+ - When someone says to us, as Thich Nhat Hanh suggests, “Darling, I care about your suffering,” a deep healing begins.
+ - What would it be like if I could accept life – accept this moment – exactly as it is?
+ - When we put down ideas of what life should be like, we are free to wholeheartedly say yes to our life as it is.
+ - With an undefended heart, we can fall in love with life over and over every day. We can become children of wonder, grateful to be walking on earth, grateful to belong with each other and to all of creation. We can find our true refuge in every moment, in every breath.
+ - There is so much division in this world. So what is really the path of healing? It can begin in this moment, by embracing the life that’s here.
+ - On this sacred path of Radical Acceptance, rather than striving for perfection, we discover how to love ourselves into wholeness.
+ - Meditation is evolution’s strategy to bring out our full potential.
+ - When we’re awake in our bodies and sense, the world comes alive. Wisdom, creativity, and love are discovered as we relax and awaken through our bodies.
+ - Buddhist practices offer a way of saying, ‘Hey, come back over here, reconnect.’ The only way that you’ll actually wake up and have some freedom is if you have the capacity and courage to stay with the vulnerability and the discomfort.
+ - Compassion can be described as letting ourselves be touched by the vulnerability and suffering that is within ourselves and all beings. The full flowering of compassion also includes action: Not only do we attune to the presence of suffering, we respond to it.
+ - Perhaps the biggest tragedy of our lives is that freedom is possible, yet we can pass our years trapped in the same old patterns.
+ - Fear of being a flawed person lay at the root of my trance, and I had sacrificed many moments over the years in trying to prove my worth. Like the tiger Mohini, I inhabited a self-made prison that stopped me from living fully.
+ - Whatever you encounter, may that be part of the path.
+ - Awakening self-compassion is often the greatest challenge people face on the spiritual path.
+ - Through the sacred art of pausing, we develop the capacity to stop hiding, to stop running away from our experience. We begin to trust in our natural intelligence, in our naturally wise heart, in our capacity to open to whatever arises.
+ - We wait for things to be different in order to feel okay with life. As long as we keep attaching our happiness to the external events of our lives, which are ever changing, we’ll always be left waiting for it.
+ - You have a unique body and mind, with a particular history and conditioning. No one can offer you a formula for navigating all situations and all states of mind. Only by listening inwardly in a fresh and open way will you discern at any given time what most serves your healing and freedom.
+ - It is through realizing loving presence as our very essence, through being that presence, that we discover true freedom.
+ - But this revolutionary act of treating ourselves tenderly can begin to undo the aversive messages of a lifetime.
+ - Stopping the endless pursuit of getting somewhere else is the perhaps most beautiful offering we can make to our spirit.
+ - Longing, felt fully, carries us to belonging.
+ - Suffering is our call to attention, our call to investigate the truth of our beliefs.
+ - We can find true refuge within our own hearts and minds-right here, right now, in the midst of our moment-to-momen t lives.
+ - Observing desire without acting on it enlarges our freedom to choose how we live.
+ - When we open to love, we become love.
+ - I think the reason Buddhism and Western psychology are so compatible is that Western psychology helps to identify the stories and the patterns in our personal lives, but what Buddhist awareness training does is it actually allows the person to develop skills to stay in what’s going on.
+ - If our hearts are ready for anything, we are touched by the beauty and poetry and mystery that fill our world.
+ - When we see the secret beauty of anyone, including ourselves, we see past our judgment and fear into the core of who we truly are – not an entrapped self but the radiance of goodness.
+ - True refuge is that which allows us to be at home, at peace, to discover true happiness. The only thing that can give us true refuge is the awareness and love that is intrinsic to who we are. Ultimately, its our own true nature.
+ - What would it be like if, right in the midst of this busyness, we were to consciously take our hands off the controls? What if we were to intentionally stop our mental computations and our rushing around and, for a minute or two, simply pause and notice our inner experience?
+ - I would say both Western psychology and Eastern paths would recognize that we get caught up in feeling like a separate self and an unworthy self.
+ - By running from what we fear, we feed the inner darkness.
+ - As long as we are alive, we feel fear. It is an intrinsic part of our makeup, as natural as a bitter cold winter day or the winds that rip branches off trees. If we resist it or push it aside, we miss a powerful opportunity for awakening.
+ - The Buddha never intended to make desire itself the problem. When he said craving causes suffering, he was referring not to our natural inclination as living beings to have wants and needs, but to our habit of clinging to experience that must, by nature, pass away.
+ - We are waiting for the next moment to contain what this moment does not.
+ - There are some things we can’t choose, but in being present we can choose how we want to relate to them.
+ - Presence is not some exotic state that we need to search for or manufacture. In the simplest terms, it is the felt sense of wakefulness, openness, and tenderness that arises when we are fully here and now with our experience.
+ - If our hearts are ready for anything, we can open to our inevitable losses, and to the depths of our sorrow. We can grieve our lost loves, our lost youth, our lost health, our lost capacities. This is part of our humanness, part of the expression of our love for life.
+ - I decided to write ‘True Refuge’ during a major dive in my own health. Diagnosed with a genetic disease that affected my mobility, I faced tremendous fear and grief about losing the fitness and physical freedom I loved.
+ - We, like the Mother of the World, become the compassionate presence that can hold, with tenderness, the rising and passing waves of suffering.
+ - Managing life from our mental control towers, we have separated ourselves from our bodies and hearts.
+ - If our hearts are ready for anything, we will spontaneously reach out when others are hurting. Living in an ethical way can attune us to the pain and needs of others, but when our hearts are open and awake, we care instinctively.
+ - Even a few moments of offering lovingkindness can reconnect you with the purity of your loving heart.
+
+62 quotes

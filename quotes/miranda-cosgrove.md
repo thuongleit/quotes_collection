@@ -1,0 +1,40 @@
+ - I don’t need religion to tell me to hate fags.
+ - I might die if I forget how to breathe.
+ - I like James Franco. I think he’s really cute. I remember a while ago there was a rumor going around that he was getting married and all my friends and I were freaking out. Yeah, I think he’s cute!
+ - Sparks fly, it’s like electricity...
+ - I’m on the Web a lot. I like to play games online. Sometimes I play Sims.
+ - My ideal guy would be funny and fun to be around.
+ - I love getting my nails done. My mom’s best friend is a manicurist. When I was little, she’d do little paintings on my nails, like flowers.
+ - Growing up, my next door neighbor was my best friend and an only child too.
+ - I like the old, classic scary movies. I love ‘Psycho,’ ‘The Sixth Sense,’ and ‘Poltergeist.’
+ - My dad went to USC and it always had been very important to me and my family.
+ - I don’t have any siblings, but I have best friends that I have known since kindergarten that I’m protective of. If they call me and tell me someone was mean to them at school – I want to go to school and be mean to that person and try to stand up for them.
+ - I love making ‘iCarly’ – it’s so much fun, and I love getting the script every week and not really knowing what insane thing I’m going to be doing. It’s just like an adventure every episode; that’s really fun.
+ - It’s Crazy when I watch myself on TV. I’m always thinking like ‘oh no how could I have done that’ and I go crazy like seeing these little things that I do that probably other people would never even notice and stuff like that.
+ - My parents never said I had to be 16 to date, but that has been the rule for all my friends.
+ - My mom is a really good cook. I didn’t get the cooking gene, but she cooks this really amazing dinner every Christmas, and that’s always really fun.
+ - I love entertaining people and making them laugh. It’s my favorite thing to do.
+ - I write songs all the time in my room. I play them for my friends and family.
+ - With the ‘iCarly’ soundtrack, I didn’t get to write any of the songs. I just picked songs that meant a lot to me that I really liked.
+ - The first time someone called me a role model, I remember thinking, ‘What does that mean?’ But I feel aware of it when I’m reading scripts.
+ - Some of my favorite movies are just movies that are just good stories, and aren’t necessarily big budget movies or anything.
+ - I’ve only had one serious boyfriend, but we dated for three years.
+ - One fan asked me to sign their sock -laughs- that was crazy. They just took off their shoe and handed me their sock and asked if I’d sign it.
+ - I’ve had journals ever since I was really little. Sometimes I write poems and stuff, but for the most part I write down what happens to me during the day that I don’t want to forget. So I have books filled with little things like that.
+ - I do text a lot. Sometimes, at night, my thumbs hurt because I’ve texted so much, so I definitely text too much.
+ - I feel like I hadn’t given that many classic films, like, a really good chance. I watched ‘Casablanca’ a really long time ago when I was like, 12. I didn’t like it that much, and then when I saw it again in class, I loved it.
+ - I had to take the driver’s test twice. And they don’t make you parallel park anymore, but you can’t hit the curb when you’re backing up. And I hit the curb.
+ - I’ve feel like I’ve been doing TV shows most of my life.
+ - I really love music but I’ve always wanted to act.
+ - I’m more into, like, colour than, like, the type of car and stuff. I don’t know much about cars, so I’m just more into picking the right color.
+ - I think the Beatles are a lot of people’s favorite band.
+ - I’ve been acting for a while, but theater is pretty different. I’ve never been in a play.
+ - I’ve seen all the Judd Apatow movies, and I’d love to have a really funny little part in one of them some day.
+ - A big part of why I wanted to go to college is to meet people and make friends.
+ - I want to go to college, and I want to keep acting and singing.
+ - I do home schooling. I went to regular school until fifth grade, and then I started doing home schooling, which it’s completely different. I have a teacher on set with me and I just work with her, one-on-one.
+ - I do have a journal, that I write all my thoughts in every day. So that’s kind of something. I also have a burn box where I write secrets down and put it in a box.
+ - My room is never clean. I play ‘Guitar Hero’ all the time and throw things around my room.
+ - I love theater. Like, every time I go to New York, I see a play.
+
+38 quotes

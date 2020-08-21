@@ -1,0 +1,77 @@
+ - Music is my first love.
+ - Someday we’ll know if love can move a mountain.
+ - Music is my passion. It’s my priority. I love it.
+ - I wanna be with you, if only for a night to be the one who’s in your arms to hold you tight. I wanna be with you, there’s nothing left to say.
+ - I’m a spiritual person and a religious person. But for me, it’s all a personal thing. I’m not someone who’ll say, ‘This is what I believe, and you should too!’ It’s more of an internal, quiet, grounded, fulfilling thing for me.
+ - A smile is so sexy, yet so warm. When someone genuinely smiles at you, it’s the greatest feeling in the world.
+ - In the music industry, you are in competition with everyone.
+ - Love is like nothing else on this earth, but only when it is shared with someone wonderful like you.
+ - I’m my own worst critic, so I try and not focus on what I’ve done wrong, or what I could improve on.
+ - I learned what love is from loving you.
+ - The actual producing, mixing, and mastering is hard work, harder than what I do.
+ - As long as you’re fierce and you have that inner confidence with yourself, you can get through anything.
+ - I consider myself to be a romantic person, and I love the idea of having a soul mate.
+ - I just don’t want to be known as the actress who can sing. I want to be known as the singer who can act, too. It’s great cross-promotion.
+ - I do think it’s possible to change for the better.
+ - My mom has always been my support system. She taught me to never give up and to keep pursuing my passions no matter what.
+ - Stupid cupid you’re a real mean guy, I’d like to pick your wings so you can’t fly, I am in love and it’s a crying shame, and I know that you’re the one to blame, hey, hey set me free, stupid cupid, stop picking on me.
+ - I’m really kind of boring – I’d rather go to bed early and get up early because I really value my time off, my time away from work.
+ - Developing a relationship with someone you admire, who can encourage you to reach your full potential, is something that everyone can benefit from.
+ - I grew up doing musical theatre in Orlando, Florida. When I was 14, I just happened to be in the right place at the right time – a deliveryman heard me singing and offered to deliver my demo tape to Sony Music. I was just really lucky.
+ - It feels important to go school; not necessarily to further my education, but more like a hobby.
+ - Growing up in the public spotlight and having insecurities like every other girl, I really know what it’s like to feel self-conscious.
+ - I don’t cook very well at all. I’m the girl that can’t make scrambled eggs.
+ - Pneumonia is a disease that often flies under the radar of not just the public but even the global health community. It kills more children under 5 years old every year than AIDS, malaria, and measles combined.
+ - I went to Catholic high school for half a year and religion wasn’t the cool thing to talk about even at a catholic high school. It never came up.
+ - My mom has never been a big meddler and isn’t like extremely opinionated or at least just doesn’t voice it to me. She’s sort of let me come into my own by myself and I think that’s just a testament to what my parents did in terms of raising us.
+ - I think it’s flattering when people say I’m a role model, but I don’t think I am. It depends on your outlook on the word ‘role model.’ I’m not perfect or anything. I just consider it a great compliment.
+ - I love looking through magazines, and you know, I love getting dressed up to go to events and stuff.
+ - I like pencil skirts because they hug me in all the right places.
+ - I grew up on Nintendo. Mario was my best friend. I can’t wait to get inside and play Nintendo GameCube.
+ - I want to go to college to study journalism. I want to speak French fluently, to travel. My mom was a journalist and it’s in my blood.
+ - I like older boys, but they think, ‘She’s underage.’ I’d love to have somebody in mind when I sing.
+ - Marriage is such a mark of adulthood in my mind.
+ - You don’t really get to know people behind the scenes. One can assume that it’s out there, but I have no idea at the end of the day. I hope not.
+ - I have ambitions to do a Broadway record one of these days and get in the studio with like, a real orchestra. I’m a big musical theatre geek.
+ - I’ve had fun doing romantic comedies, but I just can’t anymore. There’s nothing fulfilling creatively, there’s nowhere to grow, nothing to learn from it or for yourself. I’d rather just be home with my family or write music until that special project comes my way.
+ - When people come up to me and say, ‘You made it,’ I think, ‘But I’m not done yet. Not everyone’s heard my music.’ I want to be a household name.
+ - I guess I have sort of an atypical relationship with my mom for someone my age, because I think I started so young with the music thing and I had my parents always on the road with me. So at a time when I think I should have been rebelling like in high school, they were actually my best friends.
+ - I don’t want to take fame for granted because that is when you start to think you are better than everyone else. That is when you start thinking that you are someone that you are not.
+ - I like being friends with other women who are supportive of women. I think that is important.
+ - By preventing pneumonia and other diseases, we are giving men, women and children the chance to live healthy productive lives and participate in the global economy. In doing so, we are not only enhancing their futures – we are enhancing our own.
+ - I love music and I guess I have less expectations or pressure to kind of put on myself because the music hasn’t been some huge sensation.
+ - I’m very blessed that I get to dabble in both music and movies, and as long as people are willing to accept me in both roles, I’ll be there.
+ - I need to be more consistent about taking care of myself no matter how busy I am.
+ - I think that dreams, goals, and aspirations, all of that stuff – I’m really lucky to have been able to work with the talented people that I’ve been able to work with and I hope to be doing that for a very long time.
+ - I’m minimalistic when it comes to makeup, so I’m a sucker for anything that’s multi-tasking. Aquaphor is my go-to product. It’s great for adding gloss to eyes and cheekbones, and amazing for soothing dry cuticles, too.
+ - Growing up in the public eye was really tough. When you’re 14 and your body is changing, your life is changing, and people are watching every step you make, it’s really hard to deal with. But I was pretty lucky, people didn’t watch me that closely.
+ - I’m lucky to attribute my success to the foundation my family gave me. I’ve always felt grounded in them.
+ - It depends on the scripts and the character and just everybody involved, the other actors and directors. It’s just a gut feeling when you find something, you’re like, ‘Yes, I want to sink my teeth into that.’
+ - I write a lot on airplanes actually because it’s completely isolating; there’s no one to talk to, there’s nothing to do.
+ - Because I’m in an adult world and I’m really working, my age is just a number. It’s not really who I am.
+ - It’s important to get well-rounded right off the bat. A lot of experienced dancers can get pigeonholed into one thing. I’ve been hired for a lot of different gigs simply because I can do a lot of different things with different levels of dancers. And it’s sad to me that some dancers don’t do more.
+ - I carry around a little journal with me, a little notebook and a pen and just write all the time. Not necessarily actually sitting down and writing lyrics, just free-form writing, whatever’s going on in my mind.
+ - I’ve always considered myself a fairly romantic person. I believe in love and falling in love at a young age.
+ - Tackling malaria in a country like the Central African Republic is a huge uphill battle, and my experiences there have been a healthy dose of reality, fueling my own sense of urgency to do my part in reducing the preventable suffering of the incredible women I met.
+ - I tend to be really competitive when it comes to Scattergories.
+ - I definitely am looking to do some more dramatic roles; I’d love to do a period piece. I’m just getting started; I feel like there’s a whole wealth of options out there to try my hand at.
+ - Why do I, Mandy Moore, get a record deal?
+ - As an Ambassador for PSI and a supporter of Nothing But Nets, I have met individuals around the world who are lending their ideas, their voices, and their time to improve their communities and the world at large. And there are millions more that I have not met.
+ - Hope is the most exciting thing there is in life.
+ - I guess at a certain point you think, well, singing is singing and acting is acting.
+ - I want to be in New York. It’s the place to be.
+ - I’ve always felt support from my guy. Absolutely. That’s what being in a balanced, healthy relationship is all about, is being able to support one another.
+ - I love the idea of getting up early on Sundays and walking to the market to pick up fresh fruits and vegetables. It’s a good way to start my day, and it makes me feel like I’ve accomplished something before other people are even awake.
+ - I am not going to talk about my personal life anymore. You have to learn that lesson sometime.
+ - I love film, but it’s bringing me away from music. Singing is what I’m probably most passionate about.
+ - Having this other career in music made me work harder as an actress. It’s made me more professional.
+ - I’m definitely not the person to be giving anybody dance lessons.
+ - I do find it bizarre that people find it bizarre that I’ve grown up.
+ - If that day comes when I’m done with the acting and singing, I’ll just pack it in and go home.
+ - I believe we all share a responsibility to build a healthier, more just and prosperous world.
+ - There are parallels between the music and film worlds, but they’re really very different. I feel like they’re just two different ways to channel my creativity.
+ - I was happy to kind of always scoot under the radar.
+ - I can plunk out enough chords to write a song, but I’m completely afraid to play guitar in front of other people. It’s a fear of failure, I guess.
+ - When two people – regardless of gender – long to care for each other, to protect each other, to treasure each other, we should do everything we can to foster that.
+
+75 quotes

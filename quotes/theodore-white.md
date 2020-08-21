@@ -1,0 +1,39 @@
+ - The American dream is not over. America is an adventure.
+ - To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform.
+ - For those men who, sooner or later, are lucky enough to break away from the pack, the most intoxicating moment comes when they cease being bodies in other men’s command and find that they control their own time, when they learn their own voice and authority.
+ - Power in America today is control of the means of communication.
+ - America is a nation created by all the hopeful wanderers of Europe, not out of geography and genetics, but out of purpose.
+ - Closeness to power heightens the dignity of all men.
+ - If you make a living, if you earn your own money, you’re free – however free one can be on this planet...
+ - You can’t get unless you give. And you have to give without wanting to get.
+ - Every American election summons the individual voter to weigh the past against the future.
+ - With electricity we were wired into a new world, for electricity brought the radio, a “crystal set” and with enough ingenuity, one could tickle the crystal with a cat’s whisker and pick up anything.
+ - The flood of money that gushes into politics today is a pollution of democracy.
+ - The best time to listen to a politician is when he’s on a stump on a street corner in the rain late at night when he’s exhausted. Then he doesn’t lie.
+ - A liberal is a person who believes that water can be made to run uphill. A conservative is someone who believes everybody should pay for his water. I’m somewhere in between: I believe water should be free, but that water flows downhill.
+ - Quality in a classical Greek sense is how to live with grace and intelligence, with bravery and mercy.
+ - There is no excitement anywhere in the world, short of war, to match the excitement of the American presidential campaign.
+ - There are two kinds of editors, those who correct your copy and those who say it’s wonderful.
+ - The gusto of one, the indignation of the other; the challenge of the one party, the response of the other; the eloquence and the comedy, the passion and the issues were ours-no other country can provide them.
+ - History is always best written generations after the event, when clouded fact and memory have all fused into what can be accepted as truth, whether it be so or not.
+ - The President’s decisions make the weather, and if he is great enough, change the climate, too.
+ - Generally students are the best vehicles for passing on ideas, for their thoughts are plastic and can be molded and they can adjust the ideas of old men to the shape of reality as they find it in villages and hills of China or in ghettos and suburbs of America.
+ - When the bus or the plane rolled or flew through the night, they sang songs of their own composition about Mr Nixon and the Republicans in chorus with the Kennedy staff and felt that they, too, were marching like soldiers of the Lord to the New Frontier.
+ - Always inflation comes gradually; is recognized too late; and can be cured only by ruthless political surgery, which, if delayed too long, proves futile...
+ - I saw Chungking for the first time more than 40 years ago – a city of hills and mists, of grays and lavenders, two rivers shaping it to a point and the cliff rising above me like a challenge.
+ - I happen to think that American politics is one of the noblest arts of mankind; and I cannot do anything else but write about it.
+ - If you go back through 2000 years, I guess luck, Marx, and God have made history, the three of them together.
+ - Although Christianity has never been the guarantee of a democratic state anywhere in the world, no democracy has ever thrived successfully for any period of time outside of Christian influence.
+ - I, alas, must present myself somewhat ignominiously as a chef in a busy kitchen. Somewhere a novel is bubbling on a back burner, an old attempt at history may come out of the freezer.
+ - With the end of the nominating process, American politics leaves logic behind.
+ - He who is created by television can be destroyed by television.
+ - A President and his wise men can only propose; but Congress disposes. It is when President and Congress agree that American history marches forward.
+ - Politics in America is the binding secular religion.
+ - Those 40 or 50 national correspondents who had followed Kennedy since the beginning of his electoral exertions into the November days had become more than a press corps – they had become his friends and, some of them, his most devoted admirers.
+ - The job of intellectuals is to come up with ideas, and all we’ve been producing is footnotes.
+ - Whether a man is burdened by power or enjoys power; whether he is trapped by responsibility or made free by it; whether he is moved by other people and outer forces or moves them – this is of the essence of leadership.
+ - It is almost nicer being a godfather than a father, like having white mice but making your nanny feed them for you.
+ - When a reporter sits down at the typewriter, he’s nobody’s friend.
+ - I class myself as a manual laborer.
+
+37 quotes

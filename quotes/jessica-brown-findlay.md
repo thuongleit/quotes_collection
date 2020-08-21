@@ -1,0 +1,29 @@
+ - Before I go on stage, I knock three times. Three is my lucky number; I once went into an audition and was number 333 and got the best part ever.
+ - I filmed ‘Albatross’ before I got ‘Downton.’ It’s a coming-of-age movie about this girl who leaps into this family’s life, like a whirlwind. She’s ballsy and brash and wonderful, it was such an amazing character to play.
+ - You never think you’re as old as you’re ever going to get.
+ - I’m hungry for a cold and mean character. I’d love it if someone thought I could play gritty. I want to play a baddie – someone really scary.
+ - Ever since I was young, I’ve read Austen and the Brontes. My friends laugh, but those books are always so tragic and wonderful – those stories, they’re just incredible.
+ - There’s a reason hobble skirts are called hobble skirts. You literally can’t move very far in them.
+ - I trained as a ballet dancer – well, I started when I was two and a half, and was serious about it from when I was eight until I was 18.
+ - I’ve read my grandmother’s memoirs and she served as a nurse during World War II. What they had to do was incredible.
+ - Girls in scripts are often pretty but brainless, or geeky and no one likes them, so it’s great to find richer roles. Chalk and cheese aspects of people are very interesting to play.
+ - And it’s as you get older that you realize that the things that make you strange are the things that make you who you are. And that’s a lovely place to get to.
+ - I’ve been told I make a very good brew.
+ - I don’t know if I’m so righteous.
+ - I’m really into strong, female roles – but they don’t have to necessarily be loud – I’m just as interested in introverts too.
+ - I like to accessorise shirts with a little ribbon tied round my collar or a country style ascot. I’ve also sewed little hearts on some of my sleeves which I’ve done for years because I always wear my heart on my sleeve so if you see a little embroidered heart on my clothes, that’s why!
+ - My style icons would be people like Brigitte Bardot and old Hollywood actresses who always look so stunning, cool and chic. I like classic and timeless looks.
+ - Unfortunately I had an ankle problem and underwent three operations.
+ - I absolutely adore Alessandra Rich, I think her dresses are stunning and she really knows how to cut and dress the female shape. Her stuff is really beautiful, stylish and a little bit quirky. I love it all!
+ - I don’t mind giving everyone a shock – including myself.
+ - I do so many things. Like when I was younger, if I drove past a house that I didn’t want to live in, I’d hold my breath. Driving around somewhere like Slough I’d go blue in the face.
+ - I just really think every job I do, I get this gypsy attitude to money.
+ - On the surface, it’s really easy to dismiss certain characters, but sometimes you find that the most interesting parts are disappointingly shallow. It’s your job as an actress to pull that person apart, and work out why they act the way that they do.
+ - I am a hopeless romantic.
+ - I have endless playlists on my iPod so will throw on, say, Bruce Springsteen or The Smiths, depending on what kind of day I’m going to have.
+ - The thing I adore about acting is that it’s not me: you get to experience all these emotions, but essentially it’s not you.
+ - Everything you listen to when you are 17 should be embarrassing, otherwise you are way too cool.
+ - I love when people become obsessed with Downton.
+ - At 17, we all think we know what we’re doing.
+
+27 quotes

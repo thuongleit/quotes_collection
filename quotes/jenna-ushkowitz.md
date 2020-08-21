@@ -1,0 +1,36 @@
+ - Live in the moment, day by day, and don’t stress about the future. People are so caught up in looking into the future, that they kind of lose what’s in front of them.
+ - I learned to focus and work hard and not give up. I learned that every obstacle is really an opportunity.
+ - High school isn’t necessarily the best time of your life.
+ - If you’re working out and taking care of your body, you don’t really want the greasy food that makes you feel tired or blah. You actually crave the good stuff!
+ - A mistake is just a temporary pause in your plan.
+ - Healthy foods are great, but it’s important to keep your body active. Your muscles only get stronger and build more endurance for everyday things if you’re moving and get the blood pumping. Exercising stimulates certain brain chemicals and can put you in a better mood!
+ - If you say, ‘You’ve made it,’ then you kind of come to a standstill, and I don’t think any actor wants to do that.
+ - I speak about family and adoption because it 100% changed my life and who I am. It definitely played a very large role into just learning how to be grateful for what you have and being fulfilled in a way that a lot of adopted kids don’t feel.
+ - I can sleep anywhere. I can fall asleep standing up, literally anywhere.
+ - I always say leave things at the door. Whether it’s at your audition or at your house, leave the problems of the day away. Keep persevering, stick to yourself. Don’t do what other people ask, do what you want!
+ - I always had a strong support system. My parents always supported the stuff that I did.
+ - At one point, I even thought, ‘Oh, I’ll take diet pills.’ I tried it for one day, and I thought my heart was going to explode. It’s awful, and I would never, ever recommend it.
+ - If I find a good pair of jeans, I’ll buy two, and get them hemmed to my height, and then I’ll end up wearing those two for everything.
+ - If you feel like you’re at 50 percent with someone and that’s as far as you’ll get, you’re wasting precious time. You should always be with someone who enriches your life and inspires you to be the best you can be.
+ - Since my initials are J. U., people called me Ju. Or Jujube, like the candy.
+ - When I’m treating myself, it’s a full-on burrito, all loaded up!
+ - I’ve probably tried every fad diet in the world.
+ - I liked to scrapbook and collage a whole lot in high school. Im always ripping things out of magazines, and always collecting quotes from the Internet. When I was 17, I loved AIM. I was obsessed with my buddy list!
+ - I love the sassy skinnies; that’s what I usually wear.
+ - I love that feeling of just finishing a workout and knowing I’m taking care of my body. It is such a good feeling.
+ - I wasn’t a huge fan of reality shows, because I’m like ‘they’re taking away from the actors,’ but sometimes mindless is just wonderful.
+ - When I was 17, I worked at a bagel shop – I ate so many! I was also in all the school musicals, which we rehearsed for during the afternoons.
+ - I’m always looking for something different to do at the gym.
+ - Watching Bernadette Peters perform is like an acting class. She’s amazing.
+ - I’m a takeout kind of girl. Whole Foods prepares most of my meals.
+ - If there’s something in the kitchen I like, it must be eaten. I try not to leave any snacks I wouldn’t want to eat on a daily basis in the cupboard.
+ - Being in the limelight with ‘Glee,’ I’ve definitely felt pressure to stay fit. But honestly, you have to ignore it.
+ - I wanted to be a vet when I was little, so it never really dawned on me that acting was my career, it sort of chose me more than I chose it.
+ - I started when I was in ‘The King and I’ when I was on Broadway when I was nine.
+ - Sometimes I even work out to ‘Glee’ songs to keep me going.
+ - I always leave a box of unsalted almonds in my house. A handful of those are a good snack that should keep you satisfied.
+ - I make playlists on my iPod like nobody’s business!
+ - I spend a lot of time on the ‘Glee’ set. A lot of time. Luckily we have to dance and rehearse, so we’re always moving, but having such a tight schedule can make it hard to find the time to exercise. It’s definitely a struggle!
+ - I was five or six when I joined SAG, and Equity I joined when I was nine.
+
+34 quotes

@@ -1,0 +1,49 @@
+ - If you’re too open-minded; your brains will fall out.
+ - Don’t bow down to critics who have not themselves written great masterpieces.
+ - To say one is revolutionary is a little like saying one is a Zen Buddhist – if you say you are, you probably aren’t.
+ - Poetry is eternal graffiti written in the heart of everyone.
+ - Poetry is the shadow cast by our streetlight imaginations.
+ - Poetry is a naked woman, a naked man, and the distance between them.
+ - Constantly risking absurdity and death whenever he performs above the heads of his audience, the poet, like an acrobat, climbs on rhyme to a high wire of his own making.
+ - Southern California, where the American Dream came too true.
+ - Make your mind learn its way around the heart.
+ - My country tears of thee.
+ - Freedom of speech is always under attack by Fascist mentality, which exists in all parts of the world, unfortunately.
+ - As I get older I perceive Life has its tail in its mouth.
+ - I am waiting for the lost music to sound again in a new rebirth of wonder.
+ - I am awaiting perpetually and forever a renaissance of wonder.
+ - I have a feeling I’m falling on rare occasions but most of the time I have my feet on the ground I can’t help it if the ground itself is falling.
+ - I think if there’s a great depression there might be some hope.
+ - I am waiting for the war to be fought which will make the world safe for anarchy.
+ - The world is a beautiful place to be born into if you don’t mind some people dying all the time or maybe only starving some of the time which isn’t half so bad if it isn’t you.
+ - I once started out to walk around the world but ended up in Brooklyn, that Bridge was too much for me.
+ - The state of the world calls out for poetry to save it.
+ - When you’re young, everything seems like a romance. At 96, I can still feel romantic about publishing young unknown writers.
+ - Paperbacks weren’t considered real books in the book trade. Up till then it was just murder mysteries, potboilers, 25-cent pocket books sold in newsstands. When the New York publishers started publishing quality paperbacks, there was no place to buy them.
+ - In Plato’s republic, poets were considered subversive, a danger to the republic. I kind of relish that role. So I see my present role as a gadfly, to use my soapbox to promote my various ideas and obsesions.
+ - Don’t patronize the chain bookstores. Every time I see some author scheduled to read and sign his books at a chain bookstore, I feel like telling him he’s stabbing the independent bookstores in the back.
+ - It’s much easier to consume the visual image than to read something.
+ - Everything the Beats stood for was the opposite of the dominant culture today.
+ - See it was like this when we waltz into this place. A couple of papish cats is doing an Aztec two-step And I says Dad let’s cut but then this dame comes up behind me see and says you and me could really exist Wow I says Only the next day she has bad teeth and really hates poetry.
+ - We have seen the best minds of our generation destroyed by boredom at poetry readings.
+ - The paintings may communicate even better because people are lazy and they can look at a painting with less effort than they can read a poem.
+ - A lot of manuscripts that come in, you wonder by what outrageous fantasy the author believes that this should be pressed into print.
+ - We have to raise the consciousness; the only way poets can change the world is to raise the consciousness of the general populace.
+ - The real literary editors have mostly been fired. Those that remain are all ‘bottom line’ editors; everything depends on the money.
+ - Invent a new language anyone can understand.
+ - Anyone who saw Nagasaki would suddenly realize that they’d been kept in the dark by the United States government as to what atomic bombs can do.
+ - The art has to make it on its own, without explanations, and it’s the same for poetry. If the poem or the painting has to be explained, then it’s a failure in communication.
+ - There is an ecstatic mechanism in birds that makes them fly upwards in spite of worms.
+ - Well, I didn’t know how to draw very well back then, in the ’40s and ’50s.
+ - We were just a one-room bookstore; we didn’t have any money for lawyers.
+ - Poetry must be capable of answering the challenge of apocalytpic times, even if this means sounding apocaltypic.
+ - I didn’t know that painters and writers retired. They’re like soldiers – they just fade away.
+ - The future of publishing lies with the small and medium-sized presses, because the big publishers in New York are all part of huge conglomerates.
+ - They were looking for a stable, but we didn’t have one. In fact, we weren’t very stable ourselves.
+ - This is all very nice, because the ideas that Jack and the Beat generation stood for are needed today more than ever. But I’m not so interested in nostalgia. I’m interested in the future.
+ - For even bad poetry has relevance for what it does not say for what it leaves out.
+ - When I was a boy I was my father.
+ - I’m reading a book about Romaine Brooks, a wonderful painter from early in the last century.
+ - I’d ban all automobiles from the central part of the city. You see, the automobile was just a passing fad. It’s got to go. It’s got to go a long way from here.
+
+47 quotes

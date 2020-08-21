@@ -1,0 +1,158 @@
+ - We’re born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we’re not alone.
+ - Nobody gets justice. People only get good luck or bad luck.
+ - If you want a happy ending, that depends, of course, on where you stop your story.
+ - The enemy of art is the absence of limitations.
+ - The cinema has no boundary; it is a ribbon of dream.
+ - The absence of limitations is the enemy of art.
+ - Never expect justice in this world. That is not part of God’s plan. Everybody thinks that if they don’t get it, they’re some kind of odd man out. And it’s not true. Nobody gets justice – people just get good luck or bad luck.
+ - Don’t give them what you think they want. Give them what they never thought was possible.
+ - Ask not what you can do for your country. Ask what’s for lunch.
+ - Ignorance sheer ignorance. There is no confidence to equal it. It’s only when you know something about a profession that you are timid or careful.
+ - A bad word from a colleague can darken a whole day. We need encouragement a lot more than we admit, even to ourselves.
+ - A good artist should be isolated. If he isn’t isolated, something is wrong.
+ - I have an unfortunate personality.
+ - In common with all Protestant or Jewish cultures, America was developed on the idea that your word is your bond. Otherwise, the frontier could never have been opened, ’cause it was lawless. A man’s word had to mean something.
+ - We will sell no wine before its time.
+ - If there hadn’t been women we’d still be squatting in a cave eating raw meat, because we made civilization in order to impress our girlfriends.
+ - I prefer people who rock the boat to people who jump out.
+ - A poet needs a pen, a painter a brush, and a director an army.
+ - Our songs will all be silenced, but what of it? Go on singing.
+ - The classy gangster is a Hollywood invention.
+ - I am essentially a hack, a commercial person. If I had a hobby, I would immediately make money on it or abandon it.
+ - Fake is as old as the Eden tree.
+ - I look back on my life and it’s 95% running around trying to raise money to make movies and 5% actually making them. It’s no way to live.
+ - I hate television. I hate it as much as peanuts. But I can’t stop eating peanuts.
+ - Look at the real prodigies, and I look like nothing compared to them.
+ - The camera is much more than a recording apparatus, it is a medium via which messages reach us from another world.
+ - Good evening, ladies and gentleman. My name is Orson Welles. I am an actor. I am a writer. I am a producer. I am a director. I am a magician. I appear onstage and on the radio. Why are there so many of me and so few of you?
+ - Friendship creates only the illusion of not being alone.
+ - If I had only one film in the world to save, it would be ‘Grand Illusion.’
+ - My kind of director is an actor-director who writes.
+ - Hollywood is Hollywood. There’s nothing you can say about it that isn’t true, good or bad. And if you get into it, you have no right to be bitter – you’re the one who sat down, and joined the game.
+ - Hollywood expects you to experiment but on a film that makes money and if you don’t make money, you’re to blame. Your job is to make money.
+ - Living in the lap of luxury isn’t bad except that you never know when luxury is going to stand up.
+ - You’re beautful. Yes you are, you’re very very beautiful. Extremely beautiful.
+ - I love moving around from town to town. I never got on a train in my life without my spirits rising.
+ - Gluttony is not a secret vice.
+ - A movie studio is the best toy a boy ever had.
+ - What’s happening now is what happened before, and often what’s going to happen again sometime or other.
+ - Personally, I don’t like a girlfriend to have a husband. If she’ll fool her husband, I figure she’ll fool me.
+ - The essential is to excite the spectators. If that means playing Hamlet on a flying trapeze or in an aquarium, you do it.
+ - I passionately hate the idea of being with it; I think an artist has always to be out of step with his time.
+ - I don’t pray really, because I don’t want to bore God.
+ - The enemy of society is middle class and the enemy of life is middle age.
+ - I’m a provincial. I live very much like a hermit: reading, listening to music, working in the cutting room, writing, commercial work – which doesn’t take up that much time.
+ - My definition of success is not having things thrown at me!
+ - I never make my mind up about anything at all, until it’s over and done with.
+ - Why spend 18 hours watching someone else’s war, when you know how it comes out? We win, and then have to buy all their cars.
+ - My doctor told me to stop having intimate dinners for four. Unless there are three other people.
+ - People are losing the capacity to listen to words or follow ideas.
+ - I don’t think any word can explain a man’s life.
+ - The basic and essential human is the woman.
+ - I hate women, hate them generally, not in particular but in an abstract way. I hate them because one never really learns anything about them. They are inscrutable.
+ - I hate Woody Allen physically, I dislike that kind of man.
+ - Only in a police state is the job of a policeman easy.
+ - There are only two emotions in a plane: boredom and terror.
+ - I don’t say we all ought to misbehave, but we ought to look as if we could.
+ - The truth about any man can only be calculated by the sum of everything that has been said about him.
+ - I don’t want to forgive myself. That’s why I hate psychoanalysis I think if you’re guilty of something you should live with it. Get rid of it – how can you get rid of a real guilt? I think people should live with it, face up to it.
+ - As for my style, for my vision of the cinema, editing is not simply one aspect; it’s the aspect.
+ - A director is someone who presides over a series of accidents.
+ - A toast, Jedediah, to love on my terms. Those are the only terms anybody ever knows – his own.
+ - I’d make my promises now if I wasn’t so busy arranging to keep them.
+ - I’m not basically a happy person, but I have all kinds of joy.
+ - Human nature is eternal; therefore one who follows his nature keeps his original nature, in the end.
+ - When people accept breaking the law as normal, something happens to the whole society.
+ - Film is like a colony and there are very few colonists.
+ - The word genius was whispered into my ear, the first thing I ever heard, while I was still mewling in my crib. So it never occurred to me that I wasn’t until middle age.
+ - A film is never really good unless the camera is an eye in the head of a poet.
+ - Almost all serious stories in the world are stories of failure with a death in it. But there is more lost paradise in them than defeat.
+ - The laws and the stage, both are a form of exhibitionism.
+ - I don’t want any description of me to be accurate; I want it to be flattering. I don’t think people who have to sing for their supper ever like to be described truthfully – not in print anyway. We need to sell tickets, so we need good reviews.
+ - If I want to pursue the art of painting – or music or writing or sculpture – it requires only my time and a few dollars for materials. If, however, I want to produce a motion picture I have to go out and raise a million dollars!
+ - Race hate isn’t human nature; race hate is the abandonment of human nature.
+ - I do not suppose I shall be remembered for anything. But I don’t think about my work in those terms. It is just as vulgar to work for the sake of posterity as to work for the sake of money.
+ - They teach anything in universities today. You can major in mud pies.
+ - Paris is the playwright’s delight. New York is the home of directors. London, however, is the actor’s city, the only one in the world. In London, actors are given their head.
+ - At twenty-one, so many things appear solid, permanent, untenable.
+ - Anybody who speaks quietly and shrivels up in company is unbelievably arrogant.
+ - I have the terrible feeling that, because I am wearing a white beard and am sitting in the back of the theatre, you expect me to tell you the truth about something. These are the cheap seats, not Mount Sinai.
+ - I never said I was a genius.
+ - Crooks aren’t the worst people, just the stupidest. The fleas of the world.
+ - I started at the top and worked my way down.
+ - I love informality. I hate dressing up. I hate to be conventional – and I hate every kind of snob.
+ - I’m not a walking extra in a Chekhov play; I’m no Slavic gloom or Irish gloom.
+ - An artist is always out of step with the time. He has to be.
+ - I have always been more interested in experiment, than in accomplishment.
+ - I worry a lot about taking care of my dependents, all those perfectly ordinary middle-class preoccupations.
+ - I think I made essential a mistake in staying in movies, because I – but it’s a mistake I can’t regret, because it’s like saying, ‘I shouldn’t have stayed married to that woman, but I did because I love her.’
+ - Now I’m an old Christmas tree, the roots of which have died. They just come along and while the little needles fall off me replace them with medallions.
+ - Everything bad that has ever happened to me has been caused by agents or lawyers.
+ - Every true artist must, in his own way, be a magician, a charlatan.
+ - If I ever own a restaurant, I will never allow the waiters to ask if the diners like their dishes. Particularly when they’re talking.
+ - There were centuries when civilization had no theater.
+ - A man is not from where he is born, but where he chooses to die.
+ - By nature, I am an experimentalist. I don’t believe much in accomplishment.
+ - Movie directing is a perfect refuge for the mediocre.
+ - The two things you cannot do effectively on stage are pray and copulate.
+ - I drag my myth around with me.
+ - Now we sit through Shakespeare in order to recognize the quotations.
+ - I seem to have no dress sense at all. I’m always being listed in New York among one of the ten worst dressed men of the year. Someone once described me as “looking like an unmade bed.” He was right!
+ - There are three intolerable things in life – cold coffee, lukewarm champagne, and overexcited women...
+ - Hollywood is a gold-plated suburb suitable for golfers, gardeners, assorted middlemen, and contented movies stars. I am none of these things.
+ - I don’t like television when it gets near to photographed plays.
+ - It would be so much better if the critics would come, not on first nights, but on last nights, when they could exercise their undoubted flair for funeral orations.
+ - The only reason for doing a play is to make a statement about it, and by that I don’t mean a conceit of the producer.
+ - I prefer the old masters, by which I mean John Ford, John Ford, and John Ford.
+ - I’ve spent most of my mature life trying to prove that I’m not irresponsible.
+ - Each multiplex has screens allocated to each studio. The screens need filling. Studios have to create product to fill their screen, and the amount of good product is limited.
+ - Criminals are never very amusing. It’s because they’re failures. Those who make real money aren’t counted as criminals. This is a class distinction, not an ethical problem.
+ - Hollywood is the only industry, even taking in soup companies, which does not have laboratories for the purpose of experimentation.
+ - There are a thousand ways of playing a good classic. If it were effective, I would play Hamlet on a trapeze.
+ - My mother and father were both much more remarkable than any story of mine can make them. They seem to me just mythically wonderful.
+ - Every actor in his heart believes everything bad that’s printed about him.
+ - Criticism is the essence of creation.
+ - If everyone worked with wide-angle lenses, I’d shoot all my films in 75mm, because I believe very strongly in the possibilities of the 75mm.
+ - Cinema as a means of expression fascinates me.
+ - I know people who have a much better recollection of their childhood than I do. They remember very well when they were a year and a half and two years old. I’ve only one or two daguerreotypes that come to mind.
+ - I don’t regard my career as something so precious that it comes before my convictions.
+ - I have no great message to the world.
+ - The trouble with a movie is that it’s old before it’s released. It’s no accident that it comes in a can.
+ - I’m one of those fellows so frightened of driving that I go 80 miles an hour – and the more frightened I get, the faster I go.
+ - The ideal American type is perfectly expressed by the Protestant, individualist, anti-conformist, and this is the type that is in the process of disappearing. In reality there are few left.
+ - I can think of nothing that an audience won’t understand. The only problem is to interest them; once they are interested, they understand anything in the world.
+ - I discovered at the age of six that everything was a phony, worked with mirrors. Since then, I’ve always wanted to be a magician.
+ - I have made an art form of the interview. The French are the best interviewers, despite their addiction to the triad, like all Cartesians.
+ - I would just like to mention Robert Houdin who in the eighteenth century invented the vanishing birdcage trick and the theater matinee – may he rot and perish. Good afternoon.
+ - The director is the most overrated artist in the world. He is the only artist who, with no talent whatsoever, can be a success for 50 years without his lack of talent ever being discovered.
+ - Husbands should revolt from time to time. Even the best circus-number becomes boring if the beast is too tame.
+ - We made civilization in order to impress our girlfriends.
+ - See, I believe that it is not true that different races and nations are alike. I’m profoundly convinced that that’s a total lie. I think people are different. Sardinians, for example, have stubby little fingers. Bosnians have short necks.
+ - I’m extremely surprised to learn that a story, which has become familiar to children through the medium of comic strips and many succeeding novels and adventure stories, should have had such an immediate and profound effect upon radio listeners.
+ - I’ve always found it very sanitary to be broke.
+ - Nobody who takes on anything big and tough can afford to be modest.
+ - You could write all the IDEAS of all the movies, my own included, on the head of a pin.
+ - I feel I have to protect myself against things. So I’m pretty careful to lose most of them.
+ - Did you ever stop to think why cops are always famous for being dumb? Simple. Because they don’t have to be anything else.
+ - I was spoiled in a very strange way as a child, because everybody told me, from the moment I was able to hear, that I was absolutely marvelous, and I never heard a discouraging word for years, you see. I didn’t know what was ahead of me.
+ - Popularity should be no scale for the election of politicians. If it would depend on popularity, Donald Duck and The Muppets would take seats in senate.
+ - Only very intelligent people don’t wish they were in politics, and I’m dumb enough to want to be in there.
+ - The best thing commercially, which is the worst artistically, by and large, is the most successful.
+ - Everybody denies I am a genius – but nobody ever called me one!
+ - I have all the equipment to be a politician. Total shamelessness.
+ - I don’t take art as seriously as politics.
+ - When you are down and out something always turns up – and it is usually the noses of your friends.
+ - There’s no biography so interesting as the one in which the biographer is present.
+ - The first thing one must remember about film is that it is a young medium. And it is essential for every responsible artist to cultivate the ground that has been left fallow.
+ - In my real movie-going days, which were the thirties, you didn’t stand in line. You strolled down the street and sallied into the theater at any hour of the day or night.
+ - I would rather be on the set than doing anything.
+ - Make up an extra copy of that picture and send it to the Chronicle.
+ - I’m a lurid character!
+ - Ecstasy is not really part of the scene we can do on celluloid.
+ - In the theater there are 1,500 cameras rolling at the same time – in the cinema, only one.
+ - If I don’t like somebody’s looks, I don’t like them.
+ - When television came along, I’d already done more than 10 years of radio work and I thought everyone would want me. I sat around waiting for the phone to ring – and it didn’t.
+ - In my opinion, there are two things that can absolutely not be carried to the screen: the realistic presentation of the sexual act and praying to God.
+ - One shouldn’t ever be conscious of the author as lecturer. When social or moral points are too heavily stressed, I always get uncomfortable.
+
+156 quotes

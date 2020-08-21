@@ -1,0 +1,23 @@
+ - The rose-garden world of perfection is a lie and a bore too!
+ - The creative strength is good enough and deep enough to bring itself to flower and to grow in spite of this sickness.
+ - And if I fight, then for what?“”For nothing easy or sweet, and I told you that last year and the year before that. For your own challenge, for your own mistakes and the punishment for them, for your own definition of love and of sanity – a good strong self with which to begin to live.
+ - Sometimes the world is so much sicker than the inmates of its institutions.
+ - The people on the edge of Hell were most afraid of the devil; for those already in hell the devil was only another and no one in particular.
+ - At least being nuts is being somewhere.
+ - Measure the hate you feel now, and the shame. That quantity is your capacity also to love and to feel joy and to have compassion.
+ - Don’t cut bangs with a hatchet. Don’t do brain surgery with a pickax.
+ - A humane and authentic book written by another voice from the trenches.
+ - There is nothing that you can do to me that my own craziness doesn’t do to me smarter and faster and better.
+ - The woman was sane; she accepted the heavy penalties of reality and enjoyed its gifts also.
+ - To praise one thing is not to damn another.
+ - A nut is someone whose noose broke.
+ - If I want to die, what am I saving myself for?
+ - Worrying is one of my few forms of prayer.
+ - I have found this to be true, that one sin begets a dozen others.
+ - What do you do with mother love and mother wit when the babies are grown and gone away?
+ - Money in the hand is real – coins and bills. The rest I don’t believe in, and I don’t think I ever did, really. What’s a check, after all, but a promise – mine, the bank’s. Me, I know, but the bank?
+ - Anybody can hear – it takes brains to listen.
+ - She now knew that the death she feared might not be a physical one, that it could be death of the will, the soul, the mind, the laws, and thus not death, but a perpetual dying.
+ - What cook can match herself against hunger and memory?
+
+21 quotes

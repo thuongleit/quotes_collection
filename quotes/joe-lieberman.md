@@ -1,0 +1,42 @@
+ - Global warming is not a conqueror to kneel before – but a challenge to rise to. A challenge we must rise to.
+ - The threat of nuclear terrorism is growing faster than our ability to prevent an attack on our homeland.
+ - Today, we can see with our own eyes what global warming is doing. In that context it becomes truly irresponsible, if not immoral, for us not to do something.
+ - Every day, first responders put their own lives on the line to ensure our safety. The least we can do is make sure they have the tools to protect and serve their communities.
+ - I believe that our national security lies not just in protecting our borders, but in bridging divides.
+ - The danger of terrorists and rogue states is compounded by the proliferation of chemical, biological, radiological, and nuclear weapons.
+ - I’m worried that too many people, both in politics and out, don’t appreciate the seriousness of the threat to American security and the evil of the enemy that faces us -more evil or as evil as Nazism and probably more dangerous than the Soviet communists we fought during the long Cold War.
+ - I mean, accidents happen. You learn from them and you try to make sure they don’t happen again.
+ - Senator Barack Obama is a gifted and eloquent young man who I think can do great things for our country.
+ - When Saddam Hussein’s Iraqi forces invaded Kuwait in 1990, I felt America’s post-Cold War commitment to national principles and international leadership was on the line. I was dismayed by the wide opposition among my fellow Democrats. To me, their position was wrong.
+ - Some in my party threaten to send a message that they don’t know a just war when they see it, and more broadly that they’re not prepared to use our military strength to protect our security and the cause of freedom.
+ - I support development and deployment of a limited national missile defense. Few if any of our duties surpass our obligation to provide for the common defense of our nation.
+ - I am genuinely an Independent. I agree more often than not with Democrats on domestic policy. I agree more often than not with Republicans on foreign and defense policy. I’m an Independent.
+ - While so much of our economic life is thriving, too much of our moral life is still stagnating. As a people, we need to reaffirm our faith.
+ - I’m a Harry Truman, JFK, Scoop Jackson and Bill Clinton Democrat.
+ - I think a lot of people feel that they are just not listened to, and that the politicians in Washington are just playing games with each other and forgetting about their constituents.
+ - Every day Saddam remains in power with chemical weapons, biological weapons, and the development of nuclear weapons is a day of danger for the United States.
+ - Community means engaging constructively with like-minded nations to build strong, sustaining institutions and alliances – and bringing emerging powers into this community so future conflict becomes less likely.
+ - The way we’re really going to grow the economy is to invest in people, to invest in innovation, to have the federal government put money in the kind of research that will create the new high-technology, biotechnology industries that will create the millions of new jobs.
+ - It is time for Democrats who distrust President Bush to acknowledge that he will be commander in chief for three more critical years, and that in matters of war we undermine presidential credibility at our nation’s peril.
+ - Shame on us if 100 years from now our grandchildren are living on a planet that has been irreparably damaged by Global Warming, and they ask, ‘How could those who came before us, who saw this coming, have let this happen?’
+ - The anti-tax-cut, soft-on-defense, big-spending Democrats will take the Democratic Party to the edge and maybe over.
+ - The promise of education reform can never be fulfilled without adequate funding, and by shortchanging our schools, President Bush is breaking his promise to our children.
+ - Republicans can’t run their normal playbook on me that they try to run on Democratic candidates. They can’t say I flip-flop because I don’t. They can’t say I’m weak on defense because I’m not. They can’t say I’m weak on values because I’m not. They can’t say I’m a big taxer and a big spender.
+ - We must not condemn to frustration those whose job it is to protect us by failing to provide them with the necessary resources to meet the threats they face.
+ - I also know that there have been many times in our history when the proximity of an election has induced exactly the kind of leadership and consensus-building that produce progress in our democracy.
+ - If the bill remains what it is now, I will not be able to support a cloture motion before final passage. Therefore I will try to stop the passage of the bill.
+ - The difference in this town – here in Washington – on the war is not between Democrats and Republicans; it’s between people who believe essentially we’ve already lost in Iraq and it’s time to get out – and most of the rest of us who believe not only have we not lost, but we’re winning.
+ - Let us break through some of the inhibitions that have existed to talk together across the flimsy lines of separation of faith, to talk together, to study together, to pray together, and ultimately to sing together His Holy name.
+ - Most people want their representatives to get something done.
+ - I’ve spent the last year listening to Americans, and the state of the union that George W. Bush lives in is very different from the state that most hardworking Americans are living in.
+ - I miss the days when faith was discussed in public and not the most intimate details of our personal lives.
+ - The American military will never lose the war in Iraqif lost, it will be lost by a lack of political will.
+ - Whether or not Saddam is implicated directly in the anthrax attacks or the horrors of September 11, he is, by any common definition, a terrorist who must be removed.
+ - In this era of uncertainty and conflict, the United States – blessed with the world’s strongest military, most ingenious economy, and most tolerant society – remains a model and leader to the world.
+ - We know that the Constitution wisely separates church from state, but remember: the Constitution guarantees freedom of religion, not freedom from religion.
+ - There are extensive contacts between Saddam Hussein’s government and al Qaeda.
+ - I share the anger, but, ultimately, to govern this country, it takes more than anger. It takes experience. It takes positions that reflect the best values of the American people.
+ - I have supported affirmative action, I do support affirmative action and I will support affirmative action.
+ - I have a reputation for giving unpopular answers at Democratic debates. I never used marijuana. Sorry!
+
+40 quotes

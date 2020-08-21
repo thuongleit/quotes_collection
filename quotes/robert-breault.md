@@ -1,0 +1,502 @@
+ - We are kept from our goal, not by obstacles, but by a clear path to a lesser goal.
+ - Be happy, and a reason will come along.
+ - Enjoy the little things, for one day you may look back and realize they were the big things.
+ - The road to success is not a path you find, but a trail you blaze.
+ - Time brings an end to everything. We should not mistake for a tragedy what is no more than the passage of time.
+ - Each day learn something new, and just as important, relearn something old.
+ - Eventually soulmates meet, for they have the same hiding place.
+ - One key to success is to have lunch at the time of day most people have breakfast.
+ - To find someone who will love you for no reason, and to shower that person with reasons, that is the ultimate happiness.
+ - Optimist: Someone who figures that taking a step backwards after taking a step forwards is not a disaster. It’s a cha-cha.
+ - It’s hard, sometimes, when nothing’s stopping you, to know what’s stopping you.
+ - Sometimes it’s worth getting lost to see who will come looking for us.
+ - In the happiest of our childhood memories, our parents were happy, too.
+ - Having perfected our disguise, we spend our lives searching for someone we don’t fool.
+ - When life takes the wind out of your sails, it is to test you at the oars.
+ - What we find in a soulmate is not something wild to tame but something wild to run with.
+ - I value the friend who for me finds time on his calendar, but I cherish the friend who for me does not consult his calendar.
+ - What is a mom but the sunshine of our days and the north star of our nights.
+ - No one complains of being a prisoner of love who has ever been a prisoner of loneliness.
+ - Sometimes in tragedy we find our life’s purpose – the eye sheds a tear to find its focus.
+ - There are exactly as many special occasions in life as we choose to celebrate.
+ - Do what you must, And your friends will adjust.
+ - If you understand compound interest, you basically understand the universe.
+ - For centuries, man believed that the sun revolves around the earth. Centuries later, he still thinks that time moves clockwise.
+ - Stubbornly persist, and you will find that the limits of your stubbornness go well beyond the stubbornness of your limits.
+ - Among creatures born into chaos, a majority will imagine an order, a minority will question the order, and the rest will be pronounced insane.
+ - Road rage is the expression of the amateur sociopath in all of us, cured by running into a professional.
+ - Most often, walking alone with my shadow is how I find my answer, the result of gathering together all agreeable parties.
+ - Seize every opportunity along the way, for how sad it would be if the road you chose became the road not taken.
+ - The average teacher explains complexity; the gifted teacher reveals simplicity.
+ - Life is like sailing. You can use any wind to go in any direction.
+ - As you wait for better days, don’t forget to enjoy today, in case they’ve already started.
+ - Inner beauty, too, needs occasionally to be told it is beautiful.
+ - Life is too short to hold a grudge, also too long.
+ - I hope some day to meet God, because I want to thank Him for the flowers.
+ - You can hope for a miracle in your life, or you realize that your life is the miracle.
+ - Charisma is not so much getting people to like you as getting people to like themselves when you’re around.
+ - Know thyself, or at least keep renewing the acquaintance.
+ - Charisma is not just saying hello. It’s dropping what you’re doing to say hello.
+ - If you feel you are down on your luck, check the level of your effort.
+ - Do unto others as you would have them do unto you, not forgetting to leave others be as you would have them leave you be.
+ - Learning is a lifetime process, but there comes a time when we must stop adding and start updating.
+ - So often the end of a love affair is death by a thousand cuts, so often its survival is life by a thousand stitches.
+ - Cherish the friend who tells you a harsh truth, wanting ten times more to tell you a loving lie.
+ - Time is a figure eight, at its center the city of Deja Vu.
+ - So I said to myself, “There but for the grace of God go I,” only to realize I was looking in a mirror and had seriously overestimated the grace of God.
+ - Perception is a clash of mind and eye, the eye believing what it sees, the mind seeing what it believes.
+ - The trick to playing second fiddle is to play it like second Stradivarius.
+ - An old belief is like an old shoe. We so value its comfort that we fail to notice the hole in it.
+ - There is a logical explanation for everything, often mistaken for the reason it happened.
+ - Sometimes the answer to our prayers is to become the answer to someone else’s prayers.
+ - You will not find a soulmate in the quiet of your room. You must go to a noisy place and look in the quiet corners.
+ - To have success, you can’t let failure stop you. To have great success, you can’t let success stop you.
+ - You never get people’s fuller attention than when you’re listening to them.
+ - If you knew that hope and despair were paths to the same destination, which would you choose?
+ - Somewhere between the honest truth and the deceptive lie is the deceptive truth and the honest lie.
+ - I regret less the road not taken than my all-fired hurry along the road I took.
+ - A child seldom needs a good talking to as a good listening to.
+ - If I had it to do again, I’d ask more questions and interrupt fewer answers.
+ - The trouble with always leaving yourself a way out is that you always take it.
+ - The trick to getting things done is to list things to do in doable order.
+ - Be thoughtful of others and you will not be shy, for they are incompatible addictions.
+ - Optimist: someone who isn’t sure whether life is a tragedy or a comedy but is tickled silly just to be in the play.
+ - Dare to be imperfect and one day there will tug at your sleeve a soulmate.
+ - Sometimes to do the right thing, we must keep a promise we never made.
+ - Ever wonder where you’d end up if you took your dog for a walk and never once pulled back on the leash?
+ - Sometimes in life we blow things out of proportion because proportion is so dull.
+ - Where the loser saw barriers, the winner saw hurdles.
+ - Nothing reduces the odds against you like ignoring them.
+ - If you can’t forgive and forget, pick one.
+ - There is a child in every one of us who is still a trick-or-treater looking for a brightly-lit front porch.
+ - You must question a code of ethics that never impedes your progress.
+ - Life never tires of testing the proposition that life must go on.
+ - If you have a mom, there is nowhere you are likely to go where a prayer has not already been.
+ - I don’t hate anyone. The only people I know well enough to hate, I love.
+ - Be the master of your fate, be the captain of your soul, but do not hesitate, should the chance befall you, to be the slave of your heart.
+ - A true sportsman is a hunter lost in the woods and out of ammo.
+ - In the end, success is not about who you know, it’s about you know who.
+ - If I choose abstraction over reality, it is because I consider it the lesser chaos.
+ - You can accept reality, or you can persist in your purpose until reality accepts you.
+ - Worse than telling a lie is spending the rest of your life staying true to a lie.
+ - A parent’s love is whole, no matter how many times divided.
+ - There is no effect more disproportionate to its cause than the happiness bestowed by a small compliment.
+ - Always laugh off a slight insult, so that people will understand what it means when you’re not laughing.
+ - Charisma is a fancy name given to the knack of giving people your full attention.
+ - Metaphor for the night sky: a trillion asterisks and no explanations.
+ - To stretch the truth is to tell a lie.
+ - How often in life we complete a task that was beyond the capability of the person we were when we started it.
+ - As to the Seven Deadly Sins, I deplore Pride, Wrath, Lust, Envy and Greed. Gluttony and Sloth I pretty much plan my day around.
+ - Massage is the only form of physical pleasure to which nature forgot to attach consequences.
+ - Everything we possess that is not necessary for life or happiness becomes a burden, and scarcely a day passes that we do not add to it.
+ - Sometimes we don’t find the thing that will make us happy because we can’t give up the thing that was supposed to.
+ - Where you find quality, you will find a craftsman, not a quality-control expert.
+ - There is in every truth a wise saying, and in every contradiction, two wise sayings.
+ - Dare to turn life on its end, and you may find that topsy-turvy is a truer perspective than turvy-topsy.
+ - If you keep rephrasing the question, it gradually becomes the answer.
+ - I count myself lucky, having long ago won a lottery paid to me in seven sunrises a week for life.
+ - My health plan doesn’t cover dental, so I enrolled my teeth as 32 dependents, each needing a complete physical once a year.
+ - We lack resolve and blame fate, mistaking the drift for the tides.
+ - Am I keeping my promises?
+ - What if, instead of a parallel universe, there’s a perpendicular universe? Discuss.
+ - What a blessing to be alone with your thoughts when so many are alone with their inability to think.
+ - It’s not that perfection cannot be achieved. It’s that it’s so hard to stop there.
+ - Where hope would otherwise become hopelessness, it becomes faith.
+ - The difference between friends and pets is that friends we allow into our company, pets we allow into our solitude.
+ - We picture love as heart-shaped because we do not know the shape of the soul.
+ - In this, the late afternoon of my life, I wonder: am I casting a longer shadow or is my shadow casting a shorter me?
+ - A dog is much like a married man, obeying his master’s voice for the sake of his master’s touch.
+ - As important as it is to keep picking yourself up and brushing yourself off, it’s also important to stop tripping over your own two feet.
+ - Seems like nothing ever brings you back to reality that makes you want to stay there.
+ - I’m right-handed, whereas the fellow in my mirror is left-handed.
+ - Of what use to get what you want if you must become someone else to get it.
+ - Always carry with you a little reasonable doubt, should you meet someone who needs to be found innocent.
+ - The only creature on earth whose natural habitat is a zoo is the zookeeper.
+ - There is an instinct in a woman to love most her own child – and an instinct to make any child who needs her love, her own.
+ - When I am gone, my love, do not look for me in the places we used to go to together. Look for me in the places we always planned to go to together.
+ - A wise saying is something you keep picking up off the floor in front of your fridge.
+ - Do not ask that your kids live up to your expectations. Let your kids be who they are, and your expectations will be in breathless pursuit.
+ - You do not wake up one morning a bad person. It happens by a thousand tiny surrenders of self-respect to self-interest.
+ - The realist sees reality as concrete. The optimist sees reality as clay.
+ - On a windswept hill by a billowing sea, my destiny sits and waits for me.
+ - There are days when I’m alone with my thoughts, which is to say, not alone enough.
+ - A senseless tragedy remains forever tragic, but it is up to us whether it remains forever senseless.
+ - There is no such thing as gratitude unexpressed. If it is unexpressed, it is plain, old-fashioned ingratitude.
+ - There are secrets I will take to the grave and others I’d feel safer having cremated.
+ - You live long enough in a world spinning on its axis, you learn to spin in the same direction.
+ - Our most difficult task as a friend is to offer understanding when we don’t understand.
+ - Once a man has won a woman’s love, the love is his forever. He can only lose the woman.
+ - Today I bent the truth to be kind, and I have no regret, for I am far surer of what is kind than I am of what is true.
+ - If you’ve never experienced the joy of accomplishing more than you can imagine, plant a garden.
+ - Count no day lost in which you waited your turn, took only your share and sought advantage over no one.
+ - Nature decrees that we do not exceed the speed of light. All other impossibilities are optional.
+ - Often it’s just a short swim from the shipwreck of your life to the island paradise of your dreams, assuming you don’t drown in the metaphor.
+ - The trouble with not being into social networking is that people think you’re anti-social when you’re only anti-networking.
+ - Someday a computer will give a wrong answer to spare someone’s feelings, and man will have invented artificial intelligence.
+ - Even if you think the Big Bang created the stars, don’t you wonder who sent the flowers?
+ - Some say that true love is a mirage; seek it anyway, for all else is surely desert.
+ - When something is missing in your life, it usually turns out to be someone.
+ - In a soulmate we find not company but a completed solitude.
+ - One day, in your search for happiness, you discover a partner by your side, and you realize that your happiness has come to help you search.
+ - A man sometimes wins an argument, but a woman always wins a silence.
+ - The lesson of Good Friday is to never lose hope – or at least give it 48 hours.
+ - You can bear your troubles or shrug them off. They’re your shoulders.
+ - Name the season’s first hurricane Zelda and fool Mother Nature into calling it a year.
+ - Death is just another stage of life, although the one you kind of hope comes last.
+ - There are many things I do for amusement, but for happiness I like to gather up my memories and go for a walk in the rain.
+ - Stay out of the court of self-judgment, for there is no presumption of innocence.
+ - When you have brought up kids, there are memories you store directly in your tear ducts.
+ - For every “Drive Safely” sign, shouldn’t there be a “Resume Normal Driving” sign?
+ - Dancing is moving to the music without stepping on anyone’s toes, pretty much the same as life.
+ - A good speech has a beginning, a middle and an end, the best example being, ‘I love you.’
+ - Happiness is life served up with a scoop of acceptance, a topping of tolerance and sprinkles of hope, although chocolate sprinkles also work.
+ - Looking back you realize that a very special person passed briefly through your life- and it was you. It is not too late to find that person again.
+ - If you allow people to treat you like a doormat, they will expect you to say WELCOME.
+ - You always think you could have done more. That’s why you need a friend – to tell you you did all you could.
+ - All your life you pretend to be someone else, and it turns out that you were someone else pretending to be you.
+ - It is when there is nothing you can say or do to help that a friend needs you the most.
+ - Never point a finger where you never lent a hand.
+ - There is always a perfectly good excuse, always a reason not to. The hardest freedom to win is the freedom from one’s excuses.
+ - Love is not about grand intentions. It is about small attentions.
+ - Do not be surprised when those who ignore the rules of grammar also ignore the law. After all, the law is just so much grammar.
+ - Beyond our most stubborn misperception lies often our fondest dream.
+ - You can be sad recalling sad times, but if you really want to be sad, recall happy times.
+ - I believe in animal rights, and high among them is the right to the gentle stroke of a human hand.
+ - What is the fire in our belly but the eternal flame of a thousand ancestors.
+ - Yes, to be a good parent, you have to sacrifice, but this is not a requirement of parenting, it is a requirement of being good at something.
+ - In the end there doesn’t have to be anyone who understands you. There just has to be someone who wants to.
+ - Looking back on a happy life, one realizes that one was not happy all the time.
+ - Each morning I gaze at the eastern horizon, and if the sun keeps its promise, I keep mine.
+ - I was once a skeptic but was converted by the two missionaries on either side of my nose.
+ - Sometimes two people stay together for the sake of the kids – two kids who sat under a full moon and pledged to be forever true.
+ - To a small child, the perfect granddad is unafraid of big dogs and fierce storms but absolutely terrified of the word “boo.”
+ - In the realist, you have the sorry sight of the five senses deprived of their imagination.
+ - Some forgive and forget, more forgive and remember, most forgive and remind.
+ - In the end, who among us does not choose to be a little less right to be a little less lonely.
+ - The more side roads you stop to explore, the less likely that life will pass you by.
+ - Family life is a daily struggle to turn love into happiness.
+ - Life is a series of tasks that you absolutely must get done before they don’t matter any more.
+ - In nature we see where God has been. In our fellow man, we see where He is still at work.
+ - You know you have found love when you can’t find your way back.
+ - If a rabbit defined intelligence the way man does, then the most intelligent animal would be a rabbit, followed by the animal most willing to obey the commands of a rabbit.
+ - There are days when you need someone who just wants to be your sunshine and not the air you breathe.
+ - To accept reality is only to encourage it.
+ - Do not mistake probability for truth, for it is a notorious liar.
+ - Nothing in life means anything unless someone cares, and the whole trick is to keep being that someone.
+ - We are, many of us, a planet orbiting somebody’s sun, unconscious of a lonely moon, orbiting our planet.
+ - Life is a vale of tears in which there are moments you just can’t stop giggling.
+ - You can be happy with someone who likes you despite your faults – until you meet someone who likes your faults.
+ - Sign over the gates of hell: “Doesn’t mean you’re a bad person.”
+ - Shall I redirect my life’s journey because down some side road might be some trifle I’m entitled to?
+ - There is no such thing as a list of reasons. There is either one sufficient reason or a list of excuses.
+ - Eventually, if you’re lucky in life, you find someone with the same chemical imbalance you have.
+ - My eyesight’s gone, my reflexes are shot, and I can’t stay awake, but thank God I can still drive.
+ - To trade a childhood wonder for a plausible explanation – is there a worst trade one makes in life?
+ - In the end, no thought is unthinkable, no problem unshrinkable, no two strangers unlinkable.
+ - A nod, a bow, and a tip of the lid to the person who coulda and shoulda and did.
+ - Yes, I believe in guardian angels, because otherwise I must believe that life is a string of death-defying miracles – and I don’t believe in miracles.
+ - Be it human or animal, touch is a life-giving thing. Has anyone ever had a stroke or a heart attack while cozied up with a pet? I doubt it.
+ - Never mind the odds against you. If you doubled your effort, what would the odds against you do – send for reinforcements?
+ - A bottle of wine Still to be drunk, A bundle of thoughts Still to be thunk.
+ - You can as easily love without trusting as you can hug without embracing.
+ - If there’s anything better than a God-given talent, it’s a God-given day job.
+ - A toast once heard: “To my big sister, who never found her second Easter egg until I’d found my first.”
+ - If you don’t watch out, putting on your unhappiness in the morning can become as instinctive as putting on your clothes.
+ - I sit in my garden, gazing upon a beauty that cannot gaze upon itself. And I find sufficient purpose for my day.
+ - You start making progress in life when you realize that you don’t always have to resume where you left off.
+ - The most fundamental winning formula is to bet on human decency and be patient.
+ - You can accept a falling out that changes your plans, but it’s hard to accept a betrayal that changes your memories.
+ - I like friends who, when you tell them you need a moment alone, know enough not to stray too far.
+ - If we would listen to our kids, we’d discover that they are largely self-explanatory.
+ - For lack of an occasional expression of love, a relationship strong at the seams can wear thin in the middle.
+ - What good is love if you never ask anything of it?
+ - People ask how I think up my thoughts. Mostly I think them up while reading Paul Simon’s lyrics.
+ - I’m right-handed, whereas the fellow in my mirror is left-handed. I start shaving from the left; he starts from the right. Differences only in perception, but religious wars have been fought over such.
+ - So often our greatest triumph is a willing surrender.
+ - Man is the only animal who enjoys the consolation of believing in a next life; all other animals enjoy the consolation of not worrying about it.
+ - The trouble with selfish motives is that they harden into principles, and you end up sending your kids to war for them.
+ - First God created time; then God created man that man might, in the course of time, perfect himself; then God decided that He’d better create eternity.
+ - Eventually you realize that not all opposing viewpoints come from people who oppose you.
+ - Each day is an opportunity to travel back into tomorrow’s past and change it.
+ - Better to start up a thousand wrong roads than to spend your life going nowhere because you know the way.
+ - What greater blessing to give thanks for at a family gathering than the family and the gathering.
+ - Today’s Parenting Tip: Treat a difficult child the way you would your boss at work. Praise his achievements, ignore his tantrums and resist the urge to sit him down and explain to him how his brain is not yet fully developed.
+ - The advantage of growing up with siblings is that you become very good at fractions.
+ - The Seven Deadly Sins are a litany of victimless crimes, compiled to distract attention from the bloody felonies of the righteous.
+ - Politicians don’t lie, they misspeak. And they don’t steal, they mispocket.
+ - If a language is corruptible, then a constitution written in that language is corruptible.
+ - Ever wonder what crime you committed that you are confined to a small enclosure above your sinuses, under permanent skull arrest?
+ - One day you just say “To heck with it,” and you go looking for trouble, and you find happiness.
+ - Sometimes, as practice for trying to convince myself that God exists, I try to convince my shadow that the sun exists.
+ - What are memories but dreams of a better past.
+ - Sometimes in life you have an appointment with destiny, and sometimes you just have to get destiny to squeeze you in.
+ - The average pencil is seven inches long, with just a half-inch eraser – in case you thought optimism was dead.
+ - There are couples a matchmaker would match every time – and couples who, for no rhyme or reason, rhyme.
+ - You can’t postpone sorrow, so why would you postpone happiness?
+ - There comes a morning in life when you wake up a new person; that is to say, you wake up the same person but you realize it’s your own fault.
+ - In the end you don’t so much find yourself as you find someone who knows who you are.
+ - I nod to a passing stranger, and the stranger nods back, and two human beings go off, feeling a little less anonymous.
+ - Eventually you come to realize that most people aren’t looking for a fight but for someone to surrender to.
+ - I complain that the years fly past, but then I look in a mirror and see that very few of them actually got past.
+ - Conscience is less an inner voice than the memory of a mother’s glance.
+ - A vacation trip is one-third pleasure, fondly remembered, and two-thirds aggravation, entirely forgotten.
+ - It is sad when two people turn from the paths they’re traveling, and their paths go on to cross without them.
+ - There is in all animals a sense of duty that man condescends to call instinct.
+ - Though you lose all hope, there is still hope, and it loves to surprise.
+ - Life starts out as partly destiny and partly free will, but then you have kids, and it’s all destiny.
+ - Why try to explain miracles to your kids when you can just have them plant a garden.
+ - Get involved. You don’t want to look back on your life and realize that you successfully managed to stay out of it.
+ - Once you become the mommy or daddy in your child’s world, it is the only world in which you exist, no matter how much you fancy there is a separate world of your own.
+ - Act always from a sense of common humanity, and let God judge if it be charity.
+ - If minutes were kept of a family gathering, they would show that “Members not Present” and “Subjects Discussed” were one and the same.
+ - There comes a point in a relationship when you realize that you trust someone enough to let them keep their secrets.
+ - It is not only possible to be the person you pretend to be, but there is less effort involved.
+ - Eventually the person who tries to fix the problem will be blamed for causing it.
+ - What do we ask of friendship except to be taken for what we pretend to be – and without having to pretend.
+ - The road to success is wherever people need another road.
+ - If you think that someone is out to steal everything you have, you’re either paranoid or a member of the middle class.
+ - Art is an attempt to understand, yielding pleasure in the attempt whether or not we understand.
+ - In childhood, we yearn to be grown-ups. In old age, we yearn to be kids. It just seems that all would be wonderful if we didn’t have to celebrate our birthdays in chronological order.
+ - Anything we tell our kids about life is a placemarker until they figure it out for themselves.
+ - Through sources, we have obtained the following alien assessment of the human species: The male wants to be valued for what he pretends to be. The female wants to be overvalued for what she truly is.
+ - It finally happened – a lawsuit for wrongful doing unto others as you would have them do unto you.
+ - There is no actual law that says that a person of inner beauty cannot also maintain an appearance.
+ - I don’t believe you really know God if you do not recognize His sense of humor.
+ - Parenthood is the passing of a baton, followed by a lifelong disagreement as to who dropped it.
+ - For every person you can trust, there was first a child who was trusted.
+ - You can awaken each day to obligations you never chose – or you can decide now to choose them.
+ - There’s nothing like self-improvement to get your friends to like you for who you were.
+ - Perhaps I have lived my life to excess, but know what – if I had it to do over again, I would overdo it again.
+ - I wish to die knowing that I took a fleeting instant of eternity and fashioned from it a lifetime.
+ - A family is a bunch of people who keep confusing you with someone you were as a kid.
+ - I’ve been looking over the list of spring chores I made up last fall, and darned if they aren’t fall chores, after all.
+ - I would love to go back and travel the road not taken, if I knew at the end of it I’d find the same set of grandkids.
+ - Life becomes easier when learn to accept the apology you never got.
+ - Sometimes, perhaps, we are allowed to get lost that we may find the right person to ask directions of.
+ - There comes a time when a man and woman realize that their separate schemes can be better achieved as a conspiracy.
+ - The willingness to share does not make one charitable; it makes one free.
+ - One learns to ignore criticism by first learning to ignore applause.
+ - Abstract art is a fundamental distrust of the theory of reality concocted by the eyes.
+ - Hope is a walk through a flowering meadow. One does not require that it lead anywhere.
+ - Just as important as having a list of priorities is every once in a while starting from the bottom.
+ - I am not certain of the hereafter. Frankly, I’m not all that certain of the here.
+ - One of life’s regrets is that you didn’t always tell the truth, and now it’s too late, because the truth has changed.
+ - The brain forgets much, but the lower back remembers everything.
+ - God is not only all-knowing but all-not-telling.
+ - As I may or may not say to the Lord on Judgment Day, “You ask a lot of questions for someone who has so much explaining to do”
+ - A commuter tie-up consists of you – and people who for some reason won’t use public transit.
+ - Eventually, time takes care of everything. The trouble with procrastination is that people give up on it too soon.
+ - More good has been accomplished by simple people seeking their own honest ends than by all the philanthropists in history.
+ - If you haven’t time to respond to a tug at your pants leg, your schedule is too crowded.
+ - All my life I’ve wanted, just once, to say something clever without losing my train of thought.
+ - Sometimes the shortest distance between two points is a winding path walked arm in arm.
+ - The hardest thing to learn in the game of love is when to fold a winning hand.
+ - Every great painting is left incomplete at the point where its completion is obvious.
+ - The imagination is a palette of bright colors. You can use it to touch up memories – or you can use it to paint dreams.
+ - Am I lying to you if I tell you the same lie I tell myself?
+ - Who does not wish to be beautiful, and clever, and rich, and to have back, in old age, the time spent trying to be any of them.
+ - Love is a condition where the world seems to be standing still, and it’s you who are spinning on your axis.
+ - An art critic is someone who hopes to see his ideas translated to canvas without having to learn how to paint.
+ - It is not that love is blind. It is that love sees with a painter’s eye, finding the essence that renders all else background.
+ - At some point you must decide if you want to succeed or just be someone who was never to blame for anything going wrong.
+ - In sinners and repenters you have the original division of labor.
+ - There is no daily chore so trivial that it cannot be made important by skipping it two days running.
+ - I don’t lie and cheat, but I don’t always avoid actions that would be lying and cheating if someone else did them.
+ - Often, what seems an impossible climb is just a staircase without the steps drawn in.
+ - Turn your love into promises, that when you doubt your love, you may simply ask, “Am I keeping my promises?”
+ - Why try to be someone you’re not? Life is hard enough without adding impersonation to the skills required.
+ - Love thy neighbor, and if it requires that you bend your understanding of the truth, the Truth will understand.
+ - Is it my imagination, or does shipping and handling settle a box of crackers more than it used to?
+ - Among life’s regrets is all the time wasted being early for everything.
+ - Sometimes fate brings two people together by causing one to misinterpret a smile.
+ - God sends the dawn that we might see the might-have-beens that still might be.
+ - I am not your dog, but if every time you saw me, you gave me a backrub, I would run to greet you, too.
+ - It’s a safe bet that someone who tells you you need to calm down has never actually seen you when you needed to calm down.
+ - I cultivate my garden, and my garden cultivates me.
+ - In childhood, we press our nose to the pane, looking out. In memories of childhood, we press our nose to the pane, looking in.
+ - Some day man will travel at the speed of light, of small interest to those of us still trying to catch up to the speed of time.
+ - Ever get the feeling that sometime early in your life there must have been a briefing that you missed?
+ - I’ve lived enough of my life story to know this- Fate writes the book, but you make the movie.
+ - I identify more with people who ask each day for divine guidance than people equipped with a divine guidance system.
+ - A blog is a message in a bottle, both in purpose and likely readership.
+ - Take no revenge that you have not pondered beneath a starry sky, or on a canyon overlook, or to the lapping of waves and the mewing of a distant gull.
+ - There is in every artist’s studio a scrap heap of discarded works in which the artist’s discipline prevailed against his imagination.
+ - We envy others, for we see their lives in broad outline, while forced to live ours in every detail.
+ - Do not call any work menial until you have watched a proud person do it.
+ - We all have our limitations, but when we listen to our critics, we also have theirs.
+ - Usually, when you can’t overcome the obstacles in your path, it’s not your path.
+ - It is easy to mistake being ready for a wedding with being ready for marriage.
+ - As you reach for understanding, you find that your ladder of facts isn’t long enough, and you try to extend it by adding a rung of faith. Eventually you see that the task is hopeless, and you put away your ladder of facts and go get a ladder of faith.
+ - Sometimes it is the person closest to us who must travel the furthest distance to be our friend.
+ - Never use the passing years as an excuse for old age.
+ - An art critic is someone who appreciates art, except for any particular piece of art.
+ - The artist’s talent sits uneasy as an object of public acclaim, having been so long an object of private despair.
+ - People are resilient. After all, every person born has recovered from nine months on life support.
+ - Everything happens for the purpose of what you decide to do about it.
+ - After years of buying clothes I intend to diet into, I’ll say this: the skeleton in my closet has some really nice outfits.
+ - To help someone in need is not charity it is proper etiquette.
+ - Through the blackest night, morning gently tiptoes, feeling its way to dawn.
+ - There is a language of love, which is to say, a truth that does not tell all and a lie that does not deceive.
+ - If you can wear the hard times of your life as furrows on your brow, you can wear the good times as a twinkle in your eye.
+ - We find things where we look for them, which is why I never look for a golf ball out of bounds.
+ - It’s getting harder and harder to worry needlessly.
+ - I have never considered it my business to disabuse someone of a belief that makes life tolerable for them.
+ - As a general guideline, never marry anyone that you can’t picture helping you go to the bathroom.
+ - We are each a dozen people who were all the same child.
+ - The little money I have – that is my wealth, but the things I have for which I would not take money, that is my treasure.
+ - There are memories I choose not to live with, but we hang out at the same bar.
+ - A paranoid thinks that sinister forces are out to get him, not realizing that they are out to get everybody.
+ - Two people can have a middling day, but one rounds up and the other rounds down.
+ - Few can accept happiness if it means change. We want the life we have now, only happier.
+ - I tell my child, if I seem obsessed to always know where you’ve been, it is because my DNA will be found at the scene.
+ - Every great artist raises art to a science, and every great scientist raises science to an art, hence we have Michelangelo’s David and Einstein’s Theory of Relativity.
+ - There is an ongoing battle between conscience and self-interest in which, at some point, we have to take sides.
+ - The thing about a friendly smile is not just that it makes people like you but that it makes them like themselves.
+ - The hardest thing to accept as a parent is that you cannot apply the bandage before the bruise.
+ - Seeking happiness, I passed many travelers headed in the opposite direction, seeking happiness.
+ - Man is rated the highest animal, at least among all animals who returned the questionnaire.
+ - As you seek new opportunity, keep in mind that the sun does not usually reappear on the horizon where last seen.
+ - The trouble with having a stubbornness contest with your kids is that they have your stubbornness gene.
+ - The problem with putting off things you’ve always wanted to do is that eventually you run out of always.
+ - What you discover in a democracy is that it is difficult to build a house when each nail has an opinion.
+ - The trick to liking who you are is not to hate too much the person it turned out you weren’t.
+ - In the end you regret less the things you believed that weren’t true than the things that never came true because you didn’t believe.
+ - To hurt someone you know will forgive you is the unkindiest thing of all.
+ - What we seek in the end is not unconditional love but a love for which we, uniquely in all the world, meet all the conditions.
+ - It is a perversely human perception that animals in their native habitat are running wild.
+ - The best solution seldom requires that someone be right and someone else be wrong.
+ - Opportunity is a parade. Even as one chance passes, the next is a fife and drum echoing in the distance.
+ - Every day I go forth to seek my identity, feeling greatly blessed by the things I don’t find it in.
+ - I am a private person, but I will reveal this about myself: if you start massaging my shoulders, don’t expect me to tell you to stop.
+ - What is reality but the dreamworld of a limited imagination.
+ - No matter how reclusive we tend to be, we picture the after-life as a community of souls. It is one thing to seek privacy in this life; it is another to face eternity alone.
+ - A cat, after being scolded, goes about its business. A dog slinks off into a corner and pretends to be doing a serious self-reappraisal.
+ - One is more apt to become wise by doing fool things than by reading wise sayings.
+ - Looking back, you realize that everything would have explained itself if you had only stopped interrupting.
+ - Doing one fool thing after another is not so terrible when you consider the human proclivity to do several fool things at once.
+ - Without faith there is no truth, for that is all the truth is or ever was.
+ - The wedding is where two people become one. The marriage is where they decide which one.
+ - The strongest marriage is between two who seek the same God, the strongest friendship between two who flee the same devil.
+ - Question reality, especially if it contradicts the evidence of your hopes and dreams.
+ - Every day is conquerable by its hours, and every hour by its minutes.
+ - No matter how you hurry, you will notice at the end of the day that you traveled at the speed of time.
+ - Corporations no longer try to fit square pegs into round holes; they just fit them into square cubicles.
+ - There is a strong chance that siblings who turn out well were hassled by the same parents.
+ - Perhaps God gives us a physical body so that every time we change our mind, we won’t be someone else.
+ - The experience I gained at age 21 would be useful if I were ever 21 again. But I’m 71 and new at it and keep making age 71 mistakes.
+ - Though we often wonder why God does what he does, we can be sure he does it on better information.
+ - As a job seeker, remember this: You only lack experience if they want it done the same old way.
+ - There is in art the notion of less is more, which is to say, you don’t torture a painting that has already confessed.
+ - There’s a lot of not caring that goes under the name of minding your own business.
+ - One’s dream is defeated not by unsolvable problems, but by all the more-or-less satisfactory solutions that kill it forever.
+ - It is not happiness until you capture it and store it out of the reach of time.
+ - Since the majority is always wrong, might we try one election day where all the losers take office?
+ - There is never an embarrassing silence that can’t be turned into a regrettable conversation.
+ - You spend 90% of your adult life hoping for a long rest and the last 10% trying to convince the Lord that you’re actually not that tired.
+ - Life is a series of family photos in which you keep moving to the rear until finally you’re a portrait in the background.
+ - Few are humble, for it takes a self-esteem few possess.
+ - We are each the star of our own situation comedy, and, with luck, the screwball friend in somebody else’s.
+ - I enjoy many silent moments with my cat, a conversation always resumed exactly where left off.
+ - How do you achieve success? Well, for one thing, you don’t define it before you achieve it.
+ - In comparing religious belief to science, I try to remember that science is belief also.
+ - As a means to success, determination has this advantage over talent – that it does not have to be recognized by others.
+ - A mom forgives us all our faults, not to mention one or two we don’t even have.
+ - I guess I have never really doubted that we are all born to our guardian angel.
+ - Leash: n, a means by which animals, formerly running wild, are prevented from running tame, also.
+ - I respect more the person who struggles with his faith than the person who is confident in his skepticism.
+ - The mind, as you age, Is an artist, it seems. Monet paints your mem’ries, Picasso your dreams.
+ - There is no tomorrow. There is only a planet turning on its axis, and a creature given to optimistic fancies.
+ - The search for happiness is unlike any other search, for we search last in the likeliest places.
+ - The painter puts brush to canvas, and the poet puts pen to paper. The poet has the easier task, for his pen does not alter his rhyme.
+ - Love is the greatest touch-up artist of all.
+ - Sometimes you believe a thing that isn’t true because in the world you wish to live in, it would be true.
+ - Though confined to our destiny, we do get to pick the color scheme.
+ - Your clothes smell heavily of clothing. Your den is filled with low-hanging palls of fresh air. The only rattle in your car is the sound of toll change in the ashtray. The absence of telltale tobacco stains on your shirt collar tells the tale – you’ve licked the smoking habit.
+ - All any child needs is the protection of loving parents and an alternative source of information.
+ - Learn to listen. It’s amazing the ideas that pop into your head while people are saying them into your ear.
+ - After a lifetime of deep thought, I’ve decided that life is a distraction, but probably not from anything important.
+ - I say to my child, I will explain to you as much of life as I can, but you must remember that there is a part of life for which you are the explanation.
+ - The difference between education and know-how is that one you pay for, the other you charge for.
+ - There is a tendency to see divine intervention in things that happen in the normal course of miracles.
+ - Despite the goings-on in Congress, I don’t believe the USA is bordering on madness. I believe Mexico and Canada are.
+ - In the great artist you see daring bound by discipline and discipline stretched by daring.
+ - It is possible at any age to discover a lifelong desire you never knew you had.
+ - No matter what it is, if you aren’t happy striving for it, you won’t be happy achieving it.
+ - Life is a brief opportunity to do something prehumously.
+ - We are Godseekers all, though some be churchgoing believers and others pilgrims to an unknown shrine.
+ - The hardest thing about reality is returning to it after an hour inside your child’s mind.
+ - What is certainty but the refuge of those whose faith is not strong enough to entertain doubt.
+ - Either way, things are a lot better – either a lot better than they were or a lot better than they’re going to be.
+ - Sometimes I wonder – if I were drop-dead handsome, and every woman I met actually dropped dead, would I ever get tired of it?
+ - After 5,000 years of recorded human history, you wonder, what part of 2,000,000 sunrises doesn’t a pessimist understand?
+ - Whoever dreamed up Scrabble had an exaggerated idea of how many 7-letter words have five i’s.
+ - Lend, by your imperfections, self-esteem to others, and you will be invited everywhere.
+ - Do I rue a life wasted doing crosswords? Yes, but I do know the three-letter-word for regret.
+ - Material success is always tempered by the recollection that there was some kind of happiness that was supposed to come with it.
+ - It is one thing to show your child the way, and a harder thing to then stand out of it.
+ - The object of most prayers is to wangle an advance on good intentions.
+ - The last I heard from my destiny, it wanted me to make a legal U-Turn at my next opportunity.
+ - Usually the woman has an appointment with destiny, and the man just happens to be there.
+ - A good marriage is each for the other and two against the world.
+ - In a dark moment I ask, “How can anyone bring a child into this world?” And the answer rings clear, “Because there is no other world, and because the child has no other way into it.”
+ - The easiest way to meet people is to just look like someone who is willing to listen.
+ - The verdict is still out on my life, the judge having not yet instructed the jury, both of whom are me.
+ - What a snapshot is to your life, your life is to eternity, so wouldn’t it be nice if eternity captured you smiling?
+ - To accept on faith is the basic requirement for getting on with life.
+ - That portion of reality that can be composed within a frame can be understood.
+ - The great enemy of achievement is a schedule already full.
+ - Genius is a plodding intellect, incapable of dreaming up the obstacles that stop the rest of us.
+ - It is a rare woman who can overcome her desire to remain pretty and allow herself to become beautiful.
+ - Just once it might be instructive to pretend you’re accepting an award for failure, just to see who you would thank.
+ - One of the great logical puzzles is how a woman is always like her mother but never like her sister.
+ - Some have been to the mountain. I have been to my knees by the side of my bed.
+ - A watched child never learns.
+ - Recalling days of sadness, memories haunt me. Recalling days of happiness, I haunt my memories.
+ - Grammar is not a set of arbitrary rules; it is a compact between people who wish to understand each other.
+ - You’re never too old. Unfortunately, you’re always too young to know it.
+ - There is nothing more essential to getting a project off the ground than the underestimate.
+ - Before you pledge your undying love to someone, make them promise they won’t die.
+ - In every gardener there is a child who believes in The Seed Fairy.
+ - Looking back on our lives, we invariably find that the person we pretended to be is the person we became.
+ - There is no harder thing to give up than the thing that was supposed to make you happy.
+ - Among those born into chaos, some will imagine an order and become scientists; a few will recognize the chaos and become abstract artists; most others will turn to faith for understanding; and the rest will become lost souls.
+ - You don’t want to get to the end of life’s journey and discover you never left the interstate.
+ - The older you get, the fewer things it seems too late to do.
+ - As a man, I’ve learned that there is nothing easier in married life than pleasing your wife with your cooking.
+ - Here is the basic question: Are we marionettes, or are we creatures of free will who just happen to have a lot of jerky reflexes?
+ - I have never met anyone who wanted to save the world without my financial support.
+ - As a friend, you first give your understanding, then you try to understand.
+ - If you could travel back in time to the present moment, what would you do differently?
+ - I am told to just be myself, but as much as I have practiced the impression, I am still no good at it.
+ - Present yourself always As who you would be, And that is the person The world will see.
+ - The best things in life are not only free, but the line is shorter.
+ - The Lord gives us friends to push us to our potential – and enemies to push us beyond it.
+ - I’ve learned never to be surprised if what must inevitably happen happens right now.
+ - Family life is a bit like a runny peach pie – not perfect but who’s complaining?
+ - To become a grandparent is to enjoy one of the few pleasures in life for which the consequences have already been paid.
+ - The most valuable lesson man has learned from his dog is to kick a few blades of grass over it and move on.
+ - I guess, when you get down to it, a loving touch compensates for an unskilled hand about everywhere except in an airplane cockpit.
+ - I’m discovering that everybody is a closet quotesmith. Just give them a chance.
+ - The perfect family board game is one that can be played each time with fewer pieces.
+ - Know thyself, especially thyself after a couple of drinks.
+ - What we have earned by the sweat of our brow, we defend with pride. What we have gained by the accident of birth, we guard with prejudice.
+ - You get to an age when there are really just two reasons to get up in the morning – for goodness sake and for heaven’s sake.
+ - There are many experts on how things have been done up to now. If you think something could use a little improvement, you are the expert.
+ - It’s sad when two people who could never part without a kiss come to the point where they never part and so never kiss.
+ - To find someone who will love you through success and failure is to discover how little life has to do with either.
+ - Love may be blind, but this I’ll state – it’s eagle-eyed compared to hate.
+ - We all know the part of us that needs to be harnessed. It takes someone else to know the part of us that needs to be set free.
+ - Nowadays you envy a manic-depressive. Half the time he’s happy, the other half he’s right.
+ - Never act until you have clearly answered the question: “What happens if I do nothing?”
+ - Of course I doubt. I do not practice a certainty. I practice a faith.
+ - At my age, you not only have bittersweet memories, you make bittersweet plans.
+ - Once you find someone to share your ups and downs, downs are almost as good as ups.
+ - As any artist can tell you, it is easier to reach perfection than to stop there.
+ - Ah, but a man’s reach should exceed his grasp, said Browning, and so it has – extended by the length of an artist’s brush.
+ - Most often the person you would die for would settle for dinner and a movie.
+ - An optimist is someone who figures that if it walks like a duck and quacks like a duck, it’s the bluebird of happiness.
+ - As important as shared memories is the silent agreement that certain things never happened.
+ - For every person who atones, a hundred others find regret sufficient.
+ - Success is a tale of obstacles overcome, and for every obstacle overcome, an excuse not used.
+
+500 quotes

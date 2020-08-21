@@ -1,0 +1,270 @@
+ - The limits of my language means the limits of my world.
+ - Whereof one cannot speak, thereof one must be silent.
+ - I don’t know why we are here, but I’m pretty sure that it is not in order to enjoy ourselves.
+ - Only describe, don’t explain.
+ - Philosophy is not a theory but an activity.
+ - Vanity of vanities, all is vanity.
+ - We are asleep. Our Life is a dream. But we wake up sometimes, just enough to know that we are dreaming.
+ - All I know is what I have words for.
+ - Knowledge is in the end based on acknowledgement.
+ - He who lives in the present lives in eternity.
+ - If we spoke a different language, we would perceive a somewhat different world.
+ - Philosophy is a battle against the bewitchment of our intelligence by means of language.
+ - A man will be imprisoned in a room with a door that’s unlocked and opens inwards; as long as it does not occur to him to pull rather than push.
+ - Humor is not a mood but a way of looking at the world.
+ - Hell isn’t other people. Hell is yourself.
+ - Nothing is so difficult as not deceiving oneself.
+ - To convince someone of the truth, it is not enough to state it, but rather one must find the path from error to truth.
+ - One must always be prepared to learn something totally new.
+ - The sole remaining task for philosophy is the analysis of language.
+ - Ethics and aesthetics are one.
+ - If people never did silly things nothing intelligent would ever get done.
+ - Logic pervades the world; the limits of the world are also the limits of logic.
+ - The human body is the best picture of the human soul.
+ - Everything that can be thought at all can be thought clearly. Everything that can be said can be said clearly. Ludwig Wittgenstein.
+ - Death is not an experience in life; we do not live to experience death.
+ - To believe in God is to see that life has a meaning.
+ - Don’t ask what it means, but rather how it is used.
+ - Logic is not a body of doctrine, but a mirror-image of the world. Logic is transcendental.
+ - A serious and good philosophical work could be written consisting entirely of jokes.
+ - To believe in a God means to understand the question about the meaning of life. To believe in a God means to see that the facts of the world are not the end of the matter. To believe in God means to see that life has a meaning.
+ - My work consists of two parts: of the one which is here, and of everything which I have not written. And precisely this second part is the important one.
+ - A confession has to be part of your new life.
+ - What cannot be imagined cannot even be talked about.
+ - Wishing is not acting. But willing is acting.
+ - What is troubling us is the tendency to believe that the mind is like a little man within.
+ - Think of the tools in a tool-box: there is a hammer, pliers, a saw, a screwdriver, a rule, a glue-pot, nails and screws. – The function of words are as diverse as the functions of these objects.
+ - Idealism leads to realism if it is strictly thought out.
+ - Don’t for heaven’s sake, be afraid of talking nonsense! But you must pay attention to your nonsense.
+ - Genius is what makes us forget the master’s talent.
+ - A picture held us captive. And we could not get outside it, for it lay in our language and language seemed to repeat it to us inexorably.
+ - To imagine a language is to imagine a form of life.
+ - Belief in the causal nexus is superstition.
+ - The philosopher is not a citizen of any community of ideas, that is what makes him a philosopher.
+ - At the end of reasons comes persuasion.
+ - What is your aim in philosophy? To show the fly the way out of the fly-bottle.
+ - There are, indeed, things that cannot be put into words. They make themselves manifest. They are what is mystical.
+ - The world is independent of my will.
+ - To understand a sentence means to understand a language. To understand a language means to be master of a technique.
+ - I did not get my picture of the world by satisfying myself of its correctness; nor do I have it because I am satisfied of its correctness. No: it is the inherited background against which I distinguish between true and false.
+ - What is thinkable is also possible.
+ - I am not interested in constructing a building, so much as in having a perspicuous view of the foundations of possible buildings.
+ - I’m doing philosophy like an old woman, first I’m looking for my pencil, then I’m looking for my glasses, then I’m looking for my pencil again.
+ - A philosophical problem has the form: I don’t know my way about.
+ - The real discovery is the one which enables me to stop doing philosophy when I want to. The one that gives philosophy peace, so that it is no longer tormented by questions which bring itself into question.
+ - Words are probes. Some reach very deep, some only to a little depth.
+ - Philosophy can be said to consist of three activities: to see the commonsense answer, to get yourself so deeply into the problem that the common sense answer is unbearable, and to get from that situation back to the commonsense answer.
+ - It is clear that the causal nexus is not a nexus at all.
+ - Man is the microcosm: I am my world.
+ - Someone who knows too much finds it hard not to lie.
+ - The depressed man lives in a depressed world.
+ - You learned the concept ‘pain’ when you learned language.
+ - A French politician once wrote that it was a peculiarity of the French language that in it words occur in the order in which one thinks them.
+ - There can never be surprises in logic.
+ - We feel that even if all possible scientific questions be answered, the problems of life have still not been touched at all.
+ - Philosophy unravels the knots in our thinking; hence its results must be simple, but its activity is as complicated as the knots that it unravels.
+ - The problems are solved, not by giving new information, but by arranging what we have known since long.
+ - When one is frightened of the truth then it is never the whole truth that one has an inkling of.
+ - Philosophy aims at the logical clarification of thoughts. Philosophy is not a body of doctrine but an activity. A philosophical work consists essentially of elucidations.
+ - I think I summed up my attitude to philosophy when I said: philosophy ought really to be written only as a poetic composition.
+ - The face is the soul of the body.
+ - If a lion could talk, we could not understand him.
+ - Russell’s books should be bound in two colours, those dealing with mathematical logic in red – and all students of philosophy should read them; those dealing with ethics and politics in blue – and no one should be allowed to read them.
+ - If in life we are surrounded by death, then in the health of our intellect we are surrounded by madness.
+ - It is much easier to bury a problem than to solve it.
+ - The solution to the problem of life is seen in the vanishing of this problem.
+ - One is unable to notice something because it is always before one’s eyes.
+ - Is my understanding only blindness to my own lack of understanding? It often seems so to me.
+ - You could attach prices to thoughts. Some cost a lot, some a little. And how does one pay for thoughts? The answer, I think, is: with courage.
+ - Philosophy may in no way interfere with the actual use of language; it can in the end only describe it.
+ - What Copernicus really achieved was not the discovery of a true theory but of a fertile new point of view.
+ - Could one imagine a stone’s having consciousness? And if anyone can do so-why should that not merely prove that such image-mongery is of no interest to us?
+ - Resting on your laurels is as dangerous as resting when you are walking in the snow. You doze off and die in your sleep.
+ - An entire mythology is stored within our language.
+ - If you want to go down deep you do not need to travel far; indeed, you don’t have to leave your most immediate and familiar surroundings.
+ - It is love that believes the resurrection.
+ - Every explanation is after all an hypothesis.
+ - Man has to awaken to wonder – and so perhaps do peoples. Science is a way of sending him to sleep again.
+ - A tautology’s truth is certain, a proposition’s possible, a contradiction’s impossible.
+ - One often makes a remark and only later sees how true it is.
+ - That the world is, is the mystical.
+ - Sometimes, in doing philosophy, one just wants to utter an inarticulate sound.
+ - I am my world.
+ - You can’t hear God speak to someone else, you can hear him only when you are being addressed.
+ - It is an hypothesis that the sun will rise tomorrow: and this means that we do not know whether it will rise.
+ - When I obey a rule, I do not choose. I obey the rule blindly .
+ - Golden is a surface colour.
+ - A philosopher always finds more grass to feed upon in the valleys of stupidity than on the arid heights of intelligence.
+ - Always get rid of theory private object in this way: assume that it constantly changes, but that you do not notice the change because your memory constantly deceives you.
+ - Black seems to make a colour cloudy, but darkness doesn’t. A ruby could thus keep getting darker without ever becoming cloudy; but if it became blackish red, it would become cloudy.
+ - The real question of life after death isn’t whether or not it exists, but even if it does what problem this really solves.
+ - An image is not a picture, but a picture can correspond to it.
+ - Here the term ‘language-game’ is meant to bring into prominence the fact that the speaking of language is part of an activity, of a form of life.
+ - That which cannot be said must not be said. That which cannot be said, one must be silent thereof.
+ - When we think about the future of the world, we always have in mind its being where it would be if it continued to move as we see it moving now. We do not realize that it moves not in a straight line and that its direction changes constantly.
+ - For an answer which cannot be expressed the question too cannot be expressed. The riddle does not exist. If a question can be put at all, then it can also be answered.
+ - Because our goals are not lofty but illusory, our problems are not difficult, but nonsensical.
+ - I won’t say ‘See you tomorrow’ because that would be like predicting the future, and I’m pretty sure I can’t do that.
+ - The popular scientific books by our scientists aren’t the outcome of hard work, but are written when they are resting on their laurels.
+ - At the core of all well-founded belief lies belief that is unfounded.
+ - People often say that aesthetics is a branch of psychology. The idea is that once we are more advanced-all the mysteries of art-will be understood by psychological experiments. Exceedingly stupid at this idea is, this is roughly it.
+ - A philosopher who is not taking part in discussions is like a boxer who never goes into the ring.
+ - A main cause of philosophical disease-an unbalanced diet: one nourishes one’s thinking with only one kind of example.
+ - We could present spatially an atomic fact which contradicted the laws of physics, but not one which contradicted the laws of geometry.
+ - The only life that is happy is the life that can renounce the amenities of the world. To it the amenities of the world are so many graces of fate.
+ - My day passes between logic, whistling, going for walks, and being depressed. I wish to God that I were more intelligent and everything would finally become clear to me – or else that I needn’t live much longer.
+ - When we can’t think for ourselves, we can always quote.
+ - Tell them I’ve had a wonderful life.
+ - If God had looked into our minds he would not have been able to see there whom we were speaking of.
+ - If one understands eternity as timelessness, and not as an unending timespan, then whoever lives in the present lives for all time.
+ - Everything that can be said, can be said clearly.
+ - Kierkegaard was by far the most profound thinker of the last century. Kierkegaard was a saint.
+ - Like everything metaphysical the harmony between thought and reality is to be found in the grammar of the language.
+ - When you are philosophizing you have to descend into primeval chaos and feel at home there.
+ - The eternal life is given to those who live in the present.
+ - Religion is, as it were, the calm bottom of the sea at its deepest point, which remains calm however high the waves on the surface may be.
+ - Philosophy, as we use the word, is a fight against the fascination which forms of expression exert upon us.
+ - There is no more light in a genius than in any other honest man – but he has a particular kind of lens to concentrate this light into a burning point.
+ - To believe in a God means to see that the facts of the world are not the end of the matter.
+ - Aim at being loved without being admired.
+ - Never stay up on the barren heights of cleverness, but come down into the green valleys of silliness.
+ - Philosophical problems arise when language goes on holiday.
+ - If you use a trick in logic, whom can you be tricking other than yourself?
+ - Ambition is the death of thought.
+ - Make sure that your religion is a matter between you and God only.
+ - If we were to imagine an orange on the blue side or green on the red side or violet on the yellow side, it would give us the same impression as a north wind coming from the southwest.
+ - The object of philosophy is the logical clarification of thought.
+ - Don’t look for the meanings; look for the use.
+ - The classifications made by philosophers and psychologists are like trying to classify clouds by their shape.
+ - Nowadays it is the fashion to emphasize the horrors of the last war. I didn’t find it so horrible. There are just as horrible things happening all round us today, if only we had eyes to see them.
+ - Genius is talent in which character makes itself heard.
+ - I sit astride life like a bad rider on a horse. I only owe it to the horse’s good nature that I am not thrown off at this very moment.
+ - How things stand, is God. God is, how things stand.
+ - An honest religious thinker is like a tightrope walker. He almost looks as though he were walking on nothing but air. His support is the slenderest imaginable. And yet it really is possible to walk on it.
+ - A new word is like a fresh seed sown on the ground of the discussion.
+ - If, for example, you were to think more deeply about death, then it would be truly strange if, in so doing, you did not encounter new images...
+ - Our greatest stupidities may be very wise.
+ - Genius is talent exercised with courage.
+ - You get tragedy where the tree, instead of bending, breaks.
+ - All propositions are of equal value.
+ - What is left over if I subtract the fact that my arms goes up from the fact that I raise my arm?
+ - The difference between a good and a poor architect is that the poor architect succumbs to every temptation and the good one resists it.
+ - Architecture immortalizes and glorifies something. Hence there can be no architecture where there is nothing to glorify.
+ - How small a thought it takes to fill a life.
+ - Death is not an event in life: we do not live to experience death. If we take eternity to mean not infinite temporal duration but timelessness, then eternal life belongs to those who live in the present.
+ - How hard I find it to see what is right in front of my eyes!
+ - The subject does not belong to the world; rather, it is a limit of the world.
+ - No one can think a thought for me in the way that no one can don my hat for me.
+ - Language disguises thought.
+ - If you and I are to live religious lives, it mustn’t be that we talk a lot about religion, but that our manner of life is different. It is my belief that only if you try to be helpful to other people will you in the end find your way to God.
+ - I act with complete certainty. But this certainty is my own.
+ - A mathematical proof must be perspicuous.
+ - If life becomes hard to bear we think of a change in our circumstances. But the most important and effective change, a change in our own attitude, hardly even occurs to us, and the resolution to take such a step is very difficult for us.
+ - If there were a verb meaning “to believe falsely,” it would not have any significant first person, present indicative.
+ - For life in the present there is no death. Death is not an event in life. It is not a fact in the world.
+ - We must do away with all explanation, and description alone must take its place.
+ - The philosopher strives to find the liberating word, that is, the word that finally permits us to grasp what up to now has intangibly weighed down upon our consciousness.
+ - Don’t get involved in partial problems, but always take flight to where there is a free view over the whole single great problem, even if this view is still not a clear one.
+ - The truth can be spoken only by someone who is already at home in it; not by someone who still lives in untruthfulness, and does no more than reach out towards it from within untruthfulness.
+ - All mathematics is tautology.
+ - If you tried to doubt everything you would not get as far as doubting anything. The game of doubting itself presupposes certainty.
+ - Think of words as instruments characterized by their use, and then think of the use of a hammer, the use of a chisel, the use of a square, of a glue pot, and of the glue.
+ - In order to draw a limit to thinking, we should have to think both sides of this limit.
+ - What we do is to bring words back from their metaphysical to their everyday use.
+ - A picture is a model of reality.
+ - With my full philosophical rucksack I can only climb slowly up the mountain of mathematics.
+ - The 2 timeless drivers that underpin the behavior of every generation: the need to belong and the need to be significant. The limits of my language mean the limits of my world.
+ - A wheel that can be turned though nothing else moves with it, is not a part of the mechanism.
+ - Uttering a word is like striking a note on the keyboard of the imagination.
+ - There is no criterion by which to recognize what is a color, except that it is one of our colors.
+ - The aspects of a thing that are most important to us are hidden to us because of their simplicity and familiarity.
+ - We find certains things about seeing puzzling, because we do not find the whole business of seeing puzzling enough.
+ - One cannot guess how a word functions. One has to look at its use and learn from that. But the difficulty is to remove the prejudice which stands in the way of doing this. It is not a stupid prejudice.
+ - An inner process stands in need of outward criteria.
+ - We learn by rearranging what we know.
+ - It would strike me as ridiculous to want to doubt the existence of Napoleon; but if someone doubted the existence of the earth 150years ago, perhaps I should be more willing to listen, for now he is doubting our whole system of evidence.
+ - I give no sources, because it is indifferent to me whether what I have thought has already been thought before me by another.
+ - Only a man who lives not in time but in the present is happy.
+ - A color which would be ‘dirty’ if it were the color of a wall, needn’t be so in a painting.
+ - Our ordinary language has no means for describing a particular shade of color. Thus it is incapable of producing a picture of this color.
+ - For a truly religious man nothing is tragic.
+ - The common behavior of mankind is the system of reference by means of which we interpret an unknown language.
+ - It’s impossible for me to say one word about all that music has meant to me in my life. How, then, can I hope to be understood?
+ - To think that you are not following a rule is to follow a rule.
+ - You can’t be reluctant to give up your lie and still tell the truth.
+ - The logic of the world is prior to all truth and falsehood.
+ - Where two principles really do meet which cannot be reconciled with one another, then each man declares the other a fool and a heretic.
+ - The so-called law of induction cannot possibly be a law of logic, since it is obviously a proposition with a sense. – Nor, therefore, can it be an a priori law.
+ - There are remarks that sow and remarks that reap.
+ - The fact that we can describe the motions of the world using Newtonian mechanics tell us nothing about the world. The fact that we do, does tell us something about the world.
+ - Logic takes care of itself; all we have to do is to look and see how it does it.
+ - Logic must look after itself. In a certain sense, we cannot make mistakes in logic.
+ - Philosophy limits the thinkable and therefore the unthinkable.
+ - Courage, not cleverness; not even inspiration, is the grain of mustard that grows up to be a great tree.
+ - Philosophy is like trying to open a safe with a combination lock: each little adjustment of the dials seems to achieve nothing, only when everything is in place does the door open.
+ - What has history to do with me? Mine is the first and only world! I want to report how I find the world. What others have told me about the world is a very small and incidental part of my experience. I have to judge the world, to measure things.
+ - The world is made up of facts, not things.
+ - Every sign by itself seems dead. What gives it life? – In use it is alive. Is life breathed into it there? – Or is the use its life?
+ - Transparency painted in a picture produces its effect in a different way than opaqueness.
+ - Philosophy just puts everything before us, and neither explains nor deduces anything.-Since everything lies open to view there is nothing to explain.
+ - Is it even always an advantage to replace an indistinct picture by a sharp one? Isn’t the indistinct one often what we need?
+ - Where our language suggests a body and there is none: there, we should like to say, is a spirit.
+ - I Once wrote: “In mathematics process and result are equivalent.”
+ - Nothing is more important for teaching us to understand the concepts we have than to construct fictitious ones.
+ - There is not a philosophical method, though there are indeed methods, like different therapies.
+ - In the world everything is as it is and happens as it does happen. In it, there is no value, – and if there were, it would be of no value.
+ - Not every religion has to have St. Augustine’s attitude to sex. Why even in our culture marriages are celebrated in a church, everyone present knows what is going to happen that night, but that doesn’t prevent it being a religious ceremony.
+ - Human beings have a physical need to tell themselves when at work: “Let’s have done with it now,” and it’s having constantly to go on thinking in the face of this need when philosophizing that makes this work so strenuous.
+ - A proposition is completely logically analyzed if its grammar is made completely clear: no matter what idiom it may be written or expressed in...
+ - Only let’s cut out the transcendental twaddle when the whole thing is as plain as a sock on the jaw.
+ - Propositions show what they say: tautologies and contradictions show that they say nothing.
+ - It is not humanly possible to gather immediately from it what the logic of language is. Language disguises thought.
+ - I am showing my pupils details of an immense landscape which they cannot possibly know their way around.
+ - A good guide will take you through the more important streets more often than he takes you down side streets; a bad guide will do the opposite. In philosophy I’m a rather bad guide.
+ - The difficulty in philosophy is to say no more than we know.
+ - Nothing is more important than the formation of fictional concepts, which teach us at last to understand our own.
+ - This sort of thing has got to be stopped. Bad philosophers are like slum landlords. It’s my job to put them out of business.
+ - One of the most misleading representational techniques in our language is the use of the word ‘I.’
+ - The wish precedes the event, the will accompanies it.
+ - Talent is a spring from which fresh water always flows.- But this spring is worthless if no good use is made of it.
+ - My aim is: to teach you to pass from a piece of disguised nonsense to something that is patent nonsense.
+ - White must be the lightest color in a picture.
+ - You must always be puzzled by mental illness. The thing I would dread most, if I became mentally ill, would be your adopting a common sense attitude; that you could take it for granted that I was deluded.
+ - What has to be accepted, the given, is – so one could say – forms of life .
+ - Philosophical problems can be compared to locks on safes, which can be opened by dialing a certain word or number, so that no force can open the door until just this word has been hit upon, and once it is hit upon any child can open it.
+ - A religious symbol does not rest on any opinion. And error belongs only with opinion. One would like to say: This is what took place here; laugh, if you can.
+ - It’s only by thinking even more crazily than philosophers do that you can solve their problems.
+ - It is possible – indeed possible even according to the old conception of logic – to give in advance a description of all ‘true’ logical propositions. Hence there can never be surprises in logic.
+ - In philosophy it is always good to put a question instead of an answer to a question. For an answer to the philosophical question may easily be unfair; disposing of it by means of another question is not.
+ - One age misunderstands another; and a petty age misunderstands all the others in its own ugly way.
+ - What signs fail to express, their application shows. What signs slur over, their application says clearly.
+ - You can’t think decently if you’re not willing to hurt yourself.
+ - Elementary propositions consist of names.
+ - The process of induction is the process of assuming the simplest law that can be made to harmonize with our experience.
+ - It is one of the chief skills of the philosopher not to occupy himself with questions which do not concern him.
+ - Just be indipendent of the external world, so you don’t have to fear for what’s in it.
+ - We just do not see how very specialized the use of “I know” is.
+ - Language is a part of our organism and no less complicated than it.
+ - I am still at Trattenbach, surrounded, as ever, by odiousness and baseness. I know that human beings on the average are not worth much anywhere, but here they are much more good-for-nothing and irresponsible than elsewhere.
+ - A man’s thinking goes on within his consciousness in a seclusion in comparison with which any physical seclusion is an exhibition to public view.
+ - Telling someone something he does not understand is pointless, even if you add that he will not be able to understand it.
+ - It is so characteristic, that just when the mechanics of reproduction are so vastly improved, there are fewer and fewer people who know how the music should be played.
+ - If the will did not exist, neither would there be that centre of the world, which we call the I.
+ - The world of those who are happy is different from the world of those who are not.
+ - You might say that certain words are only pegs to hang intonations on.
+ - A propositional sign, applied and thought out, is a thought. A thought is a proposition with a sense.
+ - Most of the propositions and questions to be found in philosophical works are not false but nonsensical.
+ - So we do sometimes think because it has been found to pay.
+ - There is such a thing as the impression of luminosity.
+ - The totality of facts determines both what is the case, and also all that is not the case.
+ - If a person tells me he has been to the worst places I have no reason to judge him; but if he tells me it was his superior wisdom that enabled him to go there, then I know he is a fraud.
+ - Suppose we think while we talk or write – I mean, as we normally do – we shall not in general say that we think quicker than we talk, but the thought seems not to be separate from the expression.
+ - We must plow through the whole of language.
+ - It seems to me that, in every culture, I come across a chapter headed ‘Wisdom.’ And then I know exactly what is going to follow: ‘Vanity of vanities, all is vanity.’
+ - Concerning that which cannot be talked about, we should not say anything.
+ - If a false thought is so much as expressed boldly and clearly, a great deal has already been gained.
+ - A picture whose pictorial form is logical form is called a logical picture.
+ - What should we gain by a definition, as it can only lead us to other undefined terms?
+ - We see, not change of aspect, but change of interpretation.
+
+268 quotes

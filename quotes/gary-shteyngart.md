@@ -1,0 +1,66 @@
+ - I was really not a good student, and I felt that shame every day. That’s one of the reasons I started smoking pot and drinking daily.
+ - A lot of the ways of advertising a book – the cover, whether somebody sees it on a subway or sees it in a bookstore – those things are going to rapidly diminish as we move to an electronic model.
+ - America should treasure its rare, true original voices and Mark Leyner is one of them. So treasure him already, you bastards!
+ - The memoirs I love are all very intense. If you’re going to do a memoir and protect yourself, what the hell’s the point? Just do fiction.
+ - I am born hungry. Ravenous. I want to eat the world, and I can never be satiated.
+ - The radio station was playing Tchaikovsky’s Swan Lake, a sure sign that things were much worse than they appeared.
+ - In contravention of my belief that any life ending in death is essentially pointless, I needed my friends to open up that plastic bag and take one last look at me. Someone had to remember me, if only for a few more minutes in the vast silent waiting room of time.
+ - If you stop thinking, if you stop wondering, you die.
+ - You could drown a kitten in her blue eyes.
+ - I feel safe with him because he is so not my ideal and I feel like I can be myself because I’m not in love with him.
+ - We’re people of the Orient. We know everything. And what we don’t know, we can sense.
+ - The love I felt for her on that train ride had a capital and provinces, parishes and a Vatican, an orange planet and many sullen moons – it was systemic and it was complete.
+ - You want to read a book? That requires introspection. It requires time away from people and time away from the constant need to communicate and to connect.
+ - I love Paul Giamatti – God, that man is like a walking Chekhov. His connection to humanity is unbelievable, and those feelings of low self-esteem – the way that all comes together on the screen? Delicious.
+ - Getting out of Russia was the best thing my parents did. I mean, that country will never amount to anything.
+ - By reading this message you are denying its existence and implying consent.
+ - Satire always benefits when evil and stupidity collide.
+ - Alcohol causes a lot of problems, and then to solve these problems, you drink more.
+ - I was a jackass in many ways. I projected that cruelty towards others, that kid whose hand I was wringing. If I could have hurt a hundred weaklings – weaker than me, and I was already very weak – I would. I was dying to hurt somebody, to pay it forward.
+ - Communications devices were always used to effect change, to effect revolution. Telephone, telegraph – these all seemed like very big enhancements at the time.
+ - I have my own dying empire to contend with, and I do not wish for any other.
+ - If my mother hadn’t tried to sell me chicken Kiev cutlets for $1.40 after I graduated from college, maybe I would’ve been the lawyer she wanted me to be.
+ - Reading is difficult. People just aren’t meant to read anymore. We’re in a post-literate age. You know, a visual age. How many years after the fall of Rome did it take for a Dante to appear? Many, many years.
+ - You are not what you want. You are what wants you back.
+ - My mother cranes her neck. Her ability to be fascinated by things is her best gift to me.
+ - It is a capital insult in this country not to make love to a naked woman, even if she is related to you.
+ - Michigan, with its delicious American name. How lucky one must be to live there.
+ - People always write on my Facebook that they’ve seen somebody they thought was me on the subway, and I was cursing badly.
+ - We are now part of this giant machine where every second we have to take out a device and contribute our thoughts and opinions.
+ - My parents were kind enough to spend hours talking to me.
+ - My first book really did change my life. It allowed me to fully express myself. There was a sense that I was worth something as an artist.
+ - In America, the distance between wanting something and having it delivered to your living room is not terribly great.
+ - The best thing about the iPhone is this that tells me where I am all the time. Theres never a need to feel lost anymore.
+ - That’s what tyrants do, I guess. They make you covet their attention; they make you confuse attention for mercy.
+ - I have some memories of certain things that happened in high school when I was stoned out of my mind, but I talked with other people about them, and I trusted the aggregated memories.
+ - Good fiction makes me turn off all the other parts of my brain, so that I become quiet and submissive, entirely at the mercy of the work at hand.
+ - If you’re not fascinated by Korea yet, you damn well should be. The most innovative country on earth deserves a hilarious and poignant account on the order of Euny Hong’s The Birth of Korean Cool. Her phat beats got Gangnam Style and then some.
+ - Italy has sun and tomatoes, and Russia just has real problems.
+ - I write almost entirely in bed or on a couch with my feet up on the coffee table. I feel most creative when Im looking out the window, and my bed and couch have nice views of the New York skyline.
+ - Also, I’ve spent an entire week without reading any books or talking about them too loudly. I’m learning to work my apparat’s screen, the colourful pulsating mosaic of it, the fact that it knows every last stinking detail about the world, whereas my books only know the minds of their authors.
+ - She took my hand and pulled me after her, her shoulders giving off a sweet peppermint concoction that the bodies of young women sometimes produce to make my life more difficult.
+ - I always think that good writers should be growing up on the brink of death – it really lets them see mortality very clearly.
+ - My parents were constantly afraid they would lose their jobs. The idea that we were always a paycheck away from disaster was drilled into me.
+ - Let’s see if I can write about something other than my heart.
+ - I don’t have many possessions, apart from my books.
+ - I have a great memory. And actually, I remember Russia in some ways better than I remember Queens.
+ - I felt the weakness of these books, their immateriality, how they had failed to change the world, and I didn’t want to sully myself with their weakness anymore.
+ - That’s what I always liked about science fiction – you can make the world end. Humour is my multiple warhead delivery system.
+ - The only way to write about right now is to write about the future.
+ - American fiction is good. It would be nice if somebody read it.
+ - Every returning New Yorker asks the question: Is this still my city? I have a ready answer, cloaked in obstinate despair: It is. And if it’s not, I will love it all the more. I will love it to the point where it becomes mine again.
+ - All of my books have an element of a man who is in love with somebody and needs them desperately, not just for procreation but for being able to fully unbosom himself. He only feels comfortable discussing things with women. Which is funny, because 80 percent of readers are women!
+ - I write five, six days a week. The thing is capturing the voice. I feel like I’ve been perfecting one voice – in different iterations, sure, but the Russian-ness has always been the undercurrent.
+ - She was clothed entirely in two large swatches of leather, the leather fake and shiny in a self-mocking way, absolutely correct for 1993, the first year when mocking the mainstream had become the mainstream.
+ - Reading is entering into the consciousness of another human being.
+ - Before my first novel, I was dating a woman who later went to prison for bashing a guy with a hammer.
+ - I was very, very sick when I was growing up in Russia. The ambulance constantly came to our house. I had horrible asthma that is easily treated in America, but they didn’t even have inhalers back in Russia.
+ - I love librarians more than any other people in the world. When I was an immigrant kid, they’ve made me feel like a human being and they gave me books that taught me English.
+ - If you read only one memoir by a disaffected, urban, 20-something Jewish girl this year, make it this one. Shukert rocks the lulav.
+ - I just want fiction to remain a vital force for entertainment and not just for contemplation. Both things can exist.
+ - Forget the fountain of youth, pal of mine. You can live to be a thousand, and it won’t matter. Mediocrities like you deserve immortality.
+ - Asthmatic immigrant learns to breathe by writing.
+ - I read real books. On paper. You know, those printed books? I feel like this is the last thing I do to support my industry. I think they smell great, too.
+ - In a strange way, I expected Russia to become more like America since the Soviet Union collapsed, but the reverse is true. America has become more like Russia: a kleptocratic society.
+
+64 quotes

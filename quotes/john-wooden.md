@@ -1,0 +1,448 @@
+ - The true test of a man’s character is what he does when no one is watching.
+ - Failing to prepare is preparing to fail.
+ - Make every day your masterpiece. 
+ - Success is peace of mind in knowing you did your best.
+ - If you don’t have time to do it right, when will you have the time to do it over?
+ - Don't let yesterday take up too much of today.
+ - Be more concerned with your character than your reputation, because your character is what you really are, while your reputation is merely what others think you are.
+ - Be quick, but don't hurry.
+ - Discipline yourself and others won't need to.
+ - Success is peace of mind which is a direct result of self-satisfaction in knowing you did your best to become the best you are capable of becoming.
+ - Do not let what you cannot do interfere with what you can do.
+ - Ability may get you to the top, but it takes character to keep you there.
+ - Things turn out best for those who make best of how things turn out.
+ - You are not a failure until you start blaming others for your mistakes.
+ - Be true to yourself. Make each day your masterpiece. Help others. Drink deeply from good books. Make friendship a fine art. Build a shelter against a rainy day. Pray for guidance and give thanks for your blessings every day.
+ - It's the little details that are vital. Little things make big things happen.
+ - Don't let making a living prevent you from making a life.
+ - Never make excuses. Your friends don't need them and your foes won't believe them.
+ - Success travels in the company of very hard work. There is no trick, no easy way.
+ - It is amazing how much can be accomplished if no one cares who gets the credit.
+ - Listen if you want to be heard.
+ - Don't let what you cannot do interfere with what you can do. 
+ - Success comes from knowing that you did your best to become the best that you are capable of becoming.
+ - Failure is not fatal, but failure to change might be.
+ - Don't mistake activity with achievement.
+ - Good things take time, as they should. We shouldn’t expect good things to happen overnight. Actually, getting something too easily or too soon can cheapen the outcome.
+ - If you lose self-control everything will fall.
+ - You can always do more than you think you can.
+ - Happiness begins where selfishness ends.
+ - Champions are brilliant at the basics.
+ - You can't let praise or criticism get to you. It's a weakness to get caught up in either one.
+ - Champions never complain, they are too busy getting better.
+ - Make each day your masterpiece. Life is now. Life is not later on.
+ - Confidence comes from being prepared.
+ - The best thing a father can do for his children is to love their mother.
+ - You can’t live a perfect day until you do something for someone who will never be able to repay you.
+ - Flexibility is the key to stability.
+ - Winning takes talent, to repeat takes character.
+ - There is nothing stronger than gentleness.
+ - It’s what you learn after you know it all that counts.
+ - Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful.
+ - Being a role model is the most powerful form of educating.
+ - Five years from now, you’re the same person except for the people you've met and the books you've read.
+ - Being average means you are as close to the bottom as you are to the top.
+ - Seek opportunities to show you care. The smallest gestures often make the biggest difference.
+ - There is a choice you have to make in everything you do. So keep in mind that in the end, the choice you make, makes you.
+ - A coach is someone who can give correction without causing resentment.
+ - Team spirit means you are willing to sacrifice personal considerations for the welfare of all. That defines a team player.
+ - Give me 100 percent. You can’t make up for a poor effort today by giving 110 percent tomorrow. You don’t have 110 percent. You only have 100 percent, and that’s what I want from you right now.
+ - You are no better than anyone else and no one is better than you.
+ - If we magnified blessings as much as we magnify disappointments, we would all be much happier.
+ - Tell the truth. That way you don't have to remember a story.
+ - Young people need models, not critics.
+ - If you stay intent and your ability warrants it, you will eventually reach the top of the mountain.
+ - Never lie; never cheat; never steal. Don’t whine; don’t complain; don’t make excuses.
+ - The eight laws of learning are explanation, demonstration, imitation, repetition, repetition, repetition, repetition, repetition.
+ - If you’re not making mistakes, then you’re not doing anything. I’m positive that a doer makes mistakes.
+ - Be observing constantly. Stay open-minded. Be eager to learn and improve.
+ - Don’t whine, complain, or make excuses.
+ - Today is the only day. Yesterday is gone.
+ - If we fail to adapt, we fail to move forward.
+ - Apply yourself everyday to just becoming a little bit better.
+ - Kindness makes for much better teamwork.
+ - Without proper self-evaluation, failure is inevitable.
+ - Respect a man, and he will do all the more.
+ - Don’t measure yourself by what you have accomplished, but by what you should have accomplished with your ability.
+ - Adaptability is being able to adjust to any situation at any given time.
+ - All of life is peaks and valleys. Don’t let the peaks get too high and the valleys too low.
+ - There is no substitute for work. Worthwhile results come from hard work and careful planning.
+ - Perform at your best when your best is required. Your best is required each day.
+ - Never try to be better than somebody else. But most importantly, never cease trying to be the best you can be.
+ - You haven’t taught until they’ve learned.
+ - There are no big things, only a logical accumulation of little things done at a very high standard of performance.
+ - It takes time to create excellence. If it could be done quickly, more people would do it.
+ - Whatever you do in life, surround yourself with smart people who’ll argue with you.
+ - Practice self-discipline and keep emotions under control. Good judgment and common sense are essential.
+ - Respect every opponent, but fear none.
+ - Never lie, never cheat, never steal.
+ - Don’t permit fear of failure to prevent effort. We are all imperfect and will fail on occasions, but fear of failure is the greatest failure of all.
+ - Having the courage to make decisions and take action. Never be afraid to fail. You have nothing to fear if you have prepared to the best of your ability.
+ - When it’s over and you look in the mirror, did you do the best you were capable of? If yes, you will probably be ok with the outcome.
+ - Details create success.
+ - Great leaders are always out front with a banner, instead of behind with a whip.
+ - Promise yourself you will talk health, happiness, and prosperity as often as possible. Promise to think only of the best, to work only for the best, and to expect only the best in yourself and others. Promise to forget the mistakes of the past and press on to greater achievements in the future.
+ - Big things are accomplished only through the perfection of minor details.
+ - It’s too late for preparation when opportunity strikes.
+ - Pray for guidance and give thanks for your blessings everyday.
+ - The team that makes the most mistakes usually wins, because doers make mistakes.
+ - We will begin by learning how to tie our shoes.
+ - There is no great fun, satisfaction, or joy derived from doing something that’s easy.
+ - Make sure that team members know they are working with you, not for you.
+ - Ability is a poor man’s wealth.
+ - Your reputation is what you’re perceived to be, Your character is what you really are.
+ - It’s not so important who starts the game but who finishes it.
+ - Strive to accomplish the very best you are capable of. Nothing less than your best effort will suffice.
+ - Why can’t we have patience and expect good things to take time?
+ - Players with fight never lose a game, they just run out of time.
+ - The importance of repetition until automaticity cannot be overstated. Repetition is the key to learning.
+ - If you get too engrossed and involved and concerned in regard to things over which you have no control, it will adversely affect the things over which you have control.
+ - You will never outperform your inner circle.
+ - If you do enough small things right, big things can happen.
+ - The best way to improve your team is to improve yourself.
+ - Discipline of others isn’t punishment. You discipline to help, to improve, to correct, to prevent, not to punish, humiliate, or retaliate.
+ - You have to apply yourself each day to becoming a little better. By becoming a little better each and every day, over a period of time, you will become a lot better.
+ - Adversity often produces an unexpected opportunity. Look for it ! Appreciate and utilize it! This is difficult to do if you’re feeling sorry for yourself because you’re faced with adversity.
+ - Stay the course. When thwarted try again; harder; smarter. Persevere relentlessly.
+ - When you improve a little each day, eventually big things occur.
+ - I’m not afraid to die.
+ - The purpose is to help, to prevent, to correct, to improve, rather than to punish. Criticism is not meant to punish, but rather to correct something that is preventing better results. The only goal is improvement.
+ - It’s not how big you are, it’s how big you play.
+ - A player who makes a team great is more valuable than a great player. Losing yourself in the group, for the good of the group, that’s teamwork.
+ - Loyalty is a cohesive force that forges individuals into a team.
+ - A life not lived for others is not a life, a game not played for others is not a game.
+ - Good coaching is about leadership and instilling respect in your players. Dictators lead through fear – good coaches do not.
+ - Fairness is giving all people the treatment they earn and deserve. It doesn’t mean treating everyone alike.
+ - A strong leader accepts blame and gives the credit. A weak leader gives blame and accepts the credit.
+ - Helping others is perhaps the greatest joy! You cannot have a perfect day without helping others with no thought of getting something in return.
+ - Cooperation – To get cooperation, you must give cooperation. Always seek to find the best way rather than insisting on your own way.
+ - The courageous struggle for a noble cause should be considered success itself.
+ - Perfection is impossibility but striving for perfection is not. Do the best you can. That is what counts.
+ - The best competition I have is against myself to become better.
+ - A mistake is valuable if you do four things with it: recognize it, admit it, learn from it, forget it.
+ - We can agree to disagree, but we don’t need to be disagreeable.
+ - Promise to be too large for worry, too noble for anger, too strong for fear, and too happy to permit trouble to press on you.
+ - The more concerned we become over the things we can’t control, the less we will do with the things we can control.
+ - Leadership is the ability to get individuals to work together for the common good and the best possible results while at the same time letting them know they did it themselves.
+ - The most important key to achieving great success is to decide upon your goal and launch, get started, take action, move.
+ - Don’t give up on your dreams, or your dreams will give up on you.
+ - The time to prepare isn’t after you have been given the opportunity. It’s long before that opportunity arises. Once the opportunity arrives, it’s too late to prepare.
+ - You can’t do anything about yesterday, and the only way to improve tomorrow is by what you do right now.
+ - Good values are like a magnet – they attract good people.
+ - Earn the right to be proud and confident.
+ - Success is a personal matter – only you as an individual can tell if you did everything within your power to give your best effort.
+ - A leader’s most powerful ally is his or her own example.
+ - A coach’s primary function should be not to make better players, but to make better people.
+ - Goals achieved with little effort are seldom worthwhile or lasting.
+ - When opportunity comes it is too late to prepare.
+ - There is no substitute for hard work. If you’re looking for the easy way, if you’re looking for the trick, you might get by for a while, but you will not be developing the talents that lie within you. There is simply no substitute for work.
+ - As long as you try your best, you are never a failure. That is, unless you blame others.
+ - Don’t think that you can make up for it by working twice as hard tomorrow. If you have it within your power to work twice as hard, why aren’t you doing it now?
+ - Never let your emotions overrule your head.
+ - Let’s face it, we’re all imperfect and we’re going to fall short on occasion. But we must learn from failure and that will enable us to avoid repeating our mistakes. Through adversity, we learn, grow stronger, and become better people.
+ - Drink deeply from good books.
+ - Remember this, the choices you make in life, make you.
+ - You must be interested in finding the best way, not in having your own way.
+ - There’s as much crookedness as you want to find. There was something Abraham Lincoln said – he’d rather trust and be disappointed than distrust and be miserable all the time. Maybe I trusted too much.
+ - I grew up on a farm. We learned that there was a season to plant, a season to water, and season to harvest. The planting and watering could be laborious, but without those stages, there would never be a harvest.
+ - Cervantes said the journey’s better than the end. Practices, to me, were the journey.
+ - Don’t look for the big, quick improvement. Seek the small improvement one day at time. That’s the only way it happens-and when it happens, it lasts.
+ - I am not as good as I ought to be. I am not as good as I want to be. I am not as good as I’m going to be. But I am thankful that I am better than I used to be.
+ - Confidence – Poise and confidence are not possible unless you have prepared correctly. Failing to prepare is preparing to fail. Poise and confidence are a natural result of proper preparation.
+ - Understand there is a price to be paid for achieving anything of significance. You must be willing to pay the price.
+ - Passion is momentary; love is enduring.
+ - You should never try to be better than someone else, you should always be learning from others. But you should never cease trying to be the best you could be because that’s under your control and the other isn’t.
+ - Leaders must have patience for those under your supervision. Don’t expect too much too soon. Maybe it was easy for you, but that doesn’t mean it’s going to be easy for somebody else. Be sure you have patience.
+ - It is easier to reach our potential when we learn the value of including others in our quest.
+ - Remember this your lifetime through: Tomorrow there will be more to do. And failure waits for all who stay With some success made yesterday. Tomorrow you must try once more, And even harder than before.
+ - I’ve been blessed in so many ways.
+ - Every day was a good day at UCLA.
+ - The four laws of learning are: the first is demonstration of what you want. The second is the criticism of the demonstration. The third is the imitation of the correct model, and the fourth is repetition, over and over until it becomes habit where is you don’t think about it.
+ - Make no mistake, I always want to win, but I never fight with an opponent. My fight is within me it is the struggle to be the best I can be at whatever I do.
+ - Be more concerned with what you can do for others than what others can do for you. You’ll be surprised at the results.
+ - There is no more powerful leadership tool than your own personal example.
+ - A Coach must never forget that he is a leader and not merely a person with authority.
+ - The coach is first of all a teacher.
+ - First, do not betray yourself. Second, do not betray those you lead.
+ - I think you have to be what you are. Don’t try to be somebody else. You have to be yourself at all times.
+ - Although there is no progress without change, not all change is progress.
+ - Hardship brings people closer together if you share it.
+ - Loyalty is very important when things get a little tough, as they often do when the challenge is great. Loyalty is a powerful force in producing one’s individual best and more so in producing a team’s best.
+ - Make friendship a fine art.
+ - Consider the rights of others before your own feelings, and the feelings of others before your own rights.
+ - Make a decision! Failure to act is often the biggest failure of all.
+ - Next to love, balance is the most important thing.
+ - Good judgment, common sense, and reason all fly out the window when emotions kick down your door.
+ - Reputation is what others perceive you as being, and their opinion may be right or wrong. Character, however, is what you really are, and nobody truly knows that but you. But you are what matters most.
+ - I worry that business leaders are more interested in material gain than they are in having the patience to build up a strong organization, and a strong organization starts with caring for their people.
+ - Rest when you need to, but never quit.
+ - We can give without loving, but we can’t love without giving. In fact, love is nothing unless we give it to someone.
+ - Bad times can make you bitter or better.
+ - Build shelter against a rainy day.
+ - My philosophy of defense is to keep the pressure on an opponent until you get to his emotions.
+ - I am just a common man who is true to his beliefs.
+ - What you do in practice is going to determine your level of success. I used to tell my players, ‘You have to give 100 percent every day. Whatever you don’t give, you can’t make up for tomorrow. If you give only 75 percent today, you can’t give 125 percent tomorrow to make up for it.’
+ - Enthusiasm brushes off upon those with whom you come in contact.
+ - All that matters is the pressure you put on yourself. External pressures cause people to choke. While you can’t control what happens to you, you can control how you react.
+ - The greatest failure of all is the failure to act when action is needed.
+ - I do not judge success based on championships; rather, I judge it on how close we came to realizing our potential.
+ - Hustle makes up for many a mistake.
+ - It is normal to enjoy praise and dislike criticism. True character is when you prevent either from affecting you in a negative matter.
+ - As a leader, you must be filled with energy and eagerness, joy and love for what you do. If you lack enthusiasm for your job, you cannot perform to the best of your ability. Industriousness is unattainable without Enthusiasm.
+ - I never let our players get satisfied, I never let our Coaches get satisfied, I was never satisfied. We can always do it better.
+ - Make greatness attainable by all.
+ - Doing the best you are capable of doing is victory in itself, and less than that is defeat.
+ - Joy makes the longest journey too short.
+ - As a leader, you will receive a large amount of praise and criticism and you should not unduly affected by either.
+ - Be prepared and be honest.
+ - Knowledge is not enough to get desired results. You must have the more elusive ability to teach and to motivate. This defines a leader; if you can’t teach and you can’t motivate, you can’t lead.
+ - How hard you work at correcting your faults reveals your character.
+ - The best players don’t win championships. The best team players win championships.
+ - Losing is only temporary and not encompassing. You must simply study it, learn from it, and try hard not to lose the same way again. Then you must have the self-control to forget about it.
+ - Every day, try to help someone who can’t reciprocate your kindness.
+ - Most people think of poise as calm, self-assured dignity; but I call it “just being you”.
+ - What a leader learns after you’ve learned it all counts most of all.
+ - Climb the mountain so you can see the world, not so the world can see you. Focus all your effort on what is in your power to control.
+ - I believe one of the requirements of good leadership is the ability to listen – really listen – to those in your organization. An effective leader is very good at listening, and it’s difficult to listen when you are talking.
+ - Love is the most powerful four letter word.
+ - No individual should take the blame for a loss, because no individual should get the credit for a victory.
+ - Nobody is defeated until he starts blaming somebody else. My advice to you is don’t fix the blame. Fix the problem.
+ - I think the teaching profession contributes more to the future of our society than any other single profession.
+ - Teamwork is not a preference, it is a requirement.
+ - When you hurry you’re more apt to make mistakes. But you have to be quick. If you’re not quick you can’t get things done.
+ - There are little details in everything you do, and if you get away from any one of the little details, you’re not teaching the thing as a whole. For it is little things which, together, make the whole. This, I think, is extremely important.
+ - It takes 10 hands to score a basket.
+ - I think anyone’s success depends on working hard, Industriousness and Enthusiasm, enjoying what you are doing. You can’t work your best if you’re not enjoying what you are doing. No way you can force yourself to.
+ - Well, your greatest joy definitely comes from doing something for another, especially when it was done with no thought of something in return.
+ - People want to believe you are sincerely interested in them as a person, not just what they can do for you.
+ - The main ingredient of stardom is the rest of the team.
+ - A leader must listen to those under their supervision.
+ - Effective leaders are, first and foremost, good teachers. We’re in the education business.
+ - Material possessions, winning scores, and great reputations are meaningless in the eyes of the Lord, because He knows what we really are and that is all that matters.
+ - Never allow anyone else to define your success.
+ - When you choose to become part of a team, you cease to exist as an individual.
+ - We should never let ambition cause us to sacrifice our integrity or diminish our efforts in other areas. However, we need to remember that we never reach a serious goal unless we have the intention of doing so.
+ - First be the best and then be first.
+ - Mix idealism with realism and add hard work. This will often bring much more than you could ever hope for.
+ - 1. Be on time. 2. Never criticize a teammate. 3. Never use profanity.
+ - I never yelled at my players much. That would have been artificial stimulation, which doesn’t last very long. I think it’s like love and passion. Passion won’t last as long as love. When you are dependent on passion, you need more and more of it to make it work. It’s the same with yelling.
+ - Losing does not make you a failure; it is when you blame someone for losing when you become a failure.
+ - Lead, don’t drive. And give credit. Don’t blame. If an officer on your team suggested something and it worked well, give them credit. If it doesn’t work well, you take the blame because you made the decision.
+ - Being yourself; not acting. You therefore can function near your own level of competence. Satisfy you own expectations rather than those of others.
+ - Nothing can give you greater joy than doing something for another.
+ - Success may result in winning, but winning does not necessarily mean you are a success.
+ - Over-coaching can be more harmful than under-coaching. Keep it simple!
+ - You never fail if you know in your heart that you did the best of which you are capable. I did my best. That is all I could do. Are you going to make mistakes? Of course. But it is not failure if you make the full effort.
+ - If pursuing material things becomes your only goal, you will fail in so many ways. Besides, in time all material things go away.
+ - If I were ever prosecuted for my religion, I truly hope there would be enough evidence to convict me.
+ - Remember, results aren’t the criteria for success – it’s the effort made for achievement that is most important.
+ - Thou didst thy best, that is success.
+ - A knowledge of and the ability to properly and quickly execute the fundamentals. Be prepared and cover every little detail.
+ - The purpose of discipline is not to punish, but to correct.
+ - The individual who is mistake-free is also probably sitting around doing nothing. And that is a very big mistake.
+ - Make your “yes” mean yes, and your “no” mean no.
+ - All change may not be progress, but all progress is the result of change.
+ - Acquire peace of mind by making the effort to become the best of which you are capable.
+ - There are many things that are essential to arriving at true peace of mind, and one of the most important is faith, which cannot be acquired without prayer.
+ - Don’t beat yourself. That’s the worst kind of defeat you’ll ever suffer.
+ - Sincerity may not help us make friends, but it will help us keep them.
+ - An effective leader allows exceptions to the rule for exceptional results or when circumstance demands.
+ - We must be challenged to improve, and adversity is the challenger.
+ - I don’t believe in praying to win.
+ - You better play together as a team or you sit.
+ - Winning breeds winning.
+ - I constantly caution our teams: ‘Play your game, just play your game. Eventually, if you play your game, stick to your style, class will tell in the end.’ This does not mean that we will always outscore our opponent, but it does insure that we will not beat ourselves.
+ - Any structure must have a strong foundation. The cornerstones anchor the foundation. For some reason the cornerstones that I chose to begin with I never changed.
+ - We are all equal in that we can all strive to become the best we are capable of becoming. We can always improve but we shouldn’t compare ourselves to others. We get in trouble when we start trying to measure up to someone else.
+ - Why do we dread adversity when we know that facing it is the only way to become stronger, smarter, better?
+ - Your energy and enjoyment, drive and dedication will stimulate and greatly inspire others.
+ - We’re all imperfect and we all have needs. The weak usually do not ask for help, so they stay weak. If we recognize that we are imperfect, we will ask for help and we will pray for the guidance necessary to bring positive results to whatever we are doing.
+ - Surround yourself with people strong enough to change your mind.
+ - Without organization and leadership toward a realistic goal, there is no chance of realizing more than a small percentage of your potential.
+ - Intensity makes you stronger. Emotionalism makes you weaker.
+ - You cannot antagonize and be a positive influence, and you will antagonize when you discipline through emotion.
+ - Forget favors given; remember those received.
+ - Success is mine when I work my hardest to become my best, and I alone determine whether I do so.
+ - The two hardest things to handle in life are failure and success.
+ - I found the bench to be the greatest ally when I had to make individuals comply with what was best for the team.
+ - Goals should be difficult to achieve because those achieved with little effort are seldom appreciated, give little personal satisfaction, and are often not very worthwhile. There is a price to be paid for achieving anything of significance.
+ - The man who is afraid to risk failure seldom has to face success.
+ - Being your best when your best is needed. The ability to enjoy challenges when things become difficult and to derive exhilaration from them.
+ - One of the greatest motivating factors is the pat on the back, although with some individuals, you have to make the pat a little lower or a little harder.
+ - When the legs go, the heart soon follows.
+ - Conditioning is essential to success in basketball.
+ - I’d rather have a lot of talent and a little experience than a lot of experience and a little talent.
+ - Adversity is the state in which man most easily becomes acquainted with himself, being especially free of admirers then.
+ - What you are as a person is far more important than what you are as a basketball player.
+ - You control the terms of the conflict. Make them play your game. Don’t try to play theirs.
+ - Class is an intangible quality which commands, rather than demands, the respect of others.
+ - The life lessons taught by John Wooden have become legend. Here’s a collection of some of the greatest ‘Woodenisms.’
+ - Not everyone is equipped to be a leader, but in a sense, everyone is a leader to someone, even though you’re not equipped. I think parents are a leader to youngsters, teacher are leaders, coaches are leaders, businessmen are leaders.
+ - You can lose when you outscore somebody in a game, and you can win when you’re outscored.
+ - Many leaders don’t listen, and it is one of the greatest methods we have of learning. You need to listen to those under your supervision and to those who are above you.
+ - You have to work hard, and you have to enjoy what you’re doing. If you don’t enjoy it, no matter how hard you seem to work, you’re not going to be working as hard as you can because you’re not enjoying it.
+ - Make each day a masterpiece. Don’t think your best days are out there somewhere. Why not today? Why can’t today be a great day? It can if you believe it will.
+ - The score will take care of itself when you take care of the effort that precedes the score.
+ - Work without joy is drudgery. Drudgery does not produce champions, nor does it produce great organizations.
+ - Don’t be afraid to fail. The greatest failure of all is failure to act when action is needed. Use the information that you’ve acquired in the past through the experiences you’ve had and act with self-control – but act.
+ - Well, if you’re true to yourself you’re going to be true to everyone else.
+ - You must believe in what you’re doing, that what you’re doing is the proper thing, the right thing. And you must have faith that things will end up as they should, which doesn’t mean as you want them to, but things will work out as they should.
+ - When people ask me now if I miss coaching UCLA basketball games, the national championships, the attention, the trophies, and everything that goes with them, I tell them this: I miss the practices.
+ - Winning games, titles and championships isn’t all it’s cracked up to be, but getting there, the journey, is a lot more than it’s cracked up to be.
+ - I believe we are most likely to succeed when ambition is focused on noble and worthy purposes and outcomes rather than on goals set out of selfishness.
+ - Reverse the ball one time for a good shot, two times for a great shot, three times for a layup.
+ - The player who puts the ball through the hoop has ten hands.
+ - Be slow to correct and quick to commend.
+ - It’s important to keep trying to do what you think is right no matter how hard it is or how often you fail. Never stop trying.
+ - My assistants and I often would spend more time planning a practice than the actual practice itself.
+ - You’d like to see your team reasonably happy, but that’s not your job. Gain their respect and get them to accept their roles.
+ - Never complain about the officiating. It does no good. During the game I don’t want to be fighting two opponents.
+ - When I am through learning, I am through.
+ - The most important thing in the world is family and love.
+ - A good banker isn’t careless with pennies; a good leader isn’t sloppy about details.
+ - I would not tolerate profanity from anyone, anytime. I’d blow the whistle, pull you from the court and put you on the bench and talk to you before I would put you back in.
+ - Ten strong horses could not pull an empty baby carriage if they worked independently of each other.
+ - Being true to ourselves doesn’t make us people of integrity. Charles Manson was true to himself, and as a result, he rightly is spending the rest of his life in prison. Ultimately, being true to our Creator gives us the purest form of integrity.
+ - Working with others makes us much more than we could ever become alone.
+ - In spite of all that doctors know, and their studies never end, the best cure of all when spirits fall is a kind note from a friend.
+ - I think that in any group activity – whether it be business, sports, or family – there has to be leadership or it wont be successful.
+ - Do your best every day. Live each day as if it’s your masterpiece.
+ - Never be disagreeable just because you disagree.
+ - Promise yourself to make all your friends know there is something in them that is special and that you value.
+ - A mentor must always guide, never push. It was my job to listen to them, offer my perspective, and encourage them to pursue the ideals they believed to be true.
+ - Since the most important responsibility of a coach in regard to the actual playing of the game is to teach his players properly and effectively to execute the various fundamentals of the game, he is first of all a teacher.
+ - The important things to me are your faith, your family and your friends. If you have that, you have everything.
+ - Selfishness is the greatest challenge for a coach. Most players are more concerned with making themselves better than the team.
+ - Profound responsibilities come with teaching and coaching. You can do so much good–or harm. It’s why I believe that next to parenting, teaching and coaching are the two most important professions in the world.
+ - If I did only what I wanted to do, I would not be obedient to the Creator. Sometimes He wants us to do certain things that we may not feel like doing. When it comes to what God asks of us, we need more than good intentions we need to follow through fully.
+ - It is most difficult, in my mind, to separate any success, whether it be in your profession, your family, or as in my case, in basketball, from religion.
+ - Place the team above yourself always.
+ - Honors are very fleeting, just as fame is; cherish friendship more.
+ - Consideration for others brings many things.
+ - Cultivate the ability to make decisions and think alone. Do not be afraid of failure, but learn from it.
+ - Promise yourself that you will talk health, happiness, and prosperity as often as possible.
+ - I do not want players who do not have a keen desire to win and do not play hard and aggressively to accomplish that objective.
+ - Some of my greatest pleasures have come from finding ways to overcome obstacles.
+ - Be more concerned with your character than your reputation.
+ - It is harmful to compare yourself to others. Others will do that for you.
+ - Motivating through fear may work in the short term to get people to do something, but over the long run I believe personal pride is a much greater motivator. It produces far better results that last for a much longer time.
+ - The ability to see the good in others and the bad in ourselves is perfect vision.
+ - We can become great in the eyes of others, but we’ll never become successful when we compromise our character and show disloyalty toward friends or teammates. The reverse is also true: No individual or team will become great without loyalty.
+ - I always talked to my players about today. It’s the only day that matters.
+ - If you let social activities take precedence over your academic activities, then you will soon lose your basketball activities.
+ - It’s always about focusing not on the mistakes but on the lessons learned from them.
+ - One of the greatest motivating things that a coach has is the bench. They all love to play, all of them. You sit them on the bench, and they come around pretty good.
+ - In life, worthwhile accomplishments and acquisitions take time. Usually the better the reward, the more time it takes to acquire it.
+ - Never try to be better than someone else. Learn from others, and try to be the best you can be. Success is the by-product of that preparation.
+ - It is impossible to attain proper physical condition without being sound both mentally and morally.
+ - Condition comes from hard work during practice and proper mental and moral conduct between practices.
+ - The true athlete should have character, not be a character.
+ - If we, as coaches, aren’t teachers, we are nothing.
+ - We can plan a roadtrip or a workday down to the last detail but the unexpected will always arise. If we are not malleable, we will get left behind.
+ - You can respect a person without necessarily liking that individual.
+ - I always stress condition with my basketball players. I don’t mean physical condition only. You cannot attain and maintain physical condition unless you are morally and mentally conditioned.
+ - When we aren’t alert, we miss opportunities to improve ourselves. We should always watch for circumstances or situations that can help or harm us and be eager to learn from these encounters.
+ - It isn’t about what you do, but how you do it.
+ - I would spend almost as much time planning a practice as conducting it. Everything was planned out each day.
+ - I found golf was too time consuming, but I did enjoy it.
+ - I don’t believe in looking back. If you make a decision that you think is the proper one at a time, then that’s the correct decision.
+ - I’m not going to say I was opposed to the Vietnam War. I’m going to say I’m opposed to war. But I’m also opposed to protests that deny other people their rights.
+ - You can’t make good decisions that are going to be meaningful, productive, when you lose control, and you have to maintain mental control, emotional control and to be able to perform physically up to your own particular level of competency; you have to keep your emotions under control.
+ - A gifted player, who is not a team player, will ultimately hurt the team.
+ - Everything we know, we learned from someone else!
+ - When you give total effort – everything you have – the score can never make you a loser. And when you do less, it can’t somehow magically turn you into a winner.
+ - You never fail if you know in your heart that you did the best of which you are capable.
+ - Real wealth comes to the person who learns that we are paid best for the things we do for nothing.
+ - Dwelling in the past prevents doing something in the present.
+ - Mentors are available at all stages of your leadership life – early, middle and late. Seek them out and listen; absorb their knowledge and use it.
+ - Whether you know it or not, whether you like it or not, the habits you are developing now will be with you for the rest of your life.
+ - The close games are usually lost, rather than won. What I mean by that is games are mostly won because of the opponent making mistakes during crucial moments.
+ - I’m glad I was a teacher.
+ - Decisions are more apt to be accepted when you’ve listened to suggestions first. I wanted them to see the reason behind what I asked of them, not to do things just because I said so.
+ - I believe correcting is the positive approach. I believe in the positive approach. Always have.
+ - I wanted my players to always be searching, especially for truth. I wanted them to know what they believed and be able to defend it. Truth will always stand the test of scrutiny.
+ - I don’t think I was a fine game coach I think I was a good practice coach.
+ - It is important for us to see that our mentors are human and therefore fallible; it makes our own shortcomings more tenable.
+ - Being a role model is the most powerful form of educating. Youngsters need good models more than they need critics. It’s one of a parent’s greatest responsibilities and opportunities.
+ - Generally speaking, individual performances don’t win basketball games.
+ - You get ideas across better through listening and the pat-on-the-back method than you do with a kick on the pants.
+ - Be true to yourself. Be true to those you lead.
+ - Too often, we just ask for help instead of really giving thanks for the many things that we’ve had and are so helpful to us that we did nothing to deserve, so we should give thanks each and every day and pray for guidance in helping us along the proper path.
+ - Always think of passing the ball before shooting it.
+ - When you see a successful individual, a champion, you can be very sure that you are looking at an individual who pays great attention to the perfection of minor details.
+ - Dictators lead through fear; good coaches do not.
+ - I’ve never stopped trying to do what’s right. I’m not doing it to earn favor with God. I’m doing it because it’s the right thing to do.
+ - Winning and losing aren’t all they’re cracked up to be, but the trip to the destination is.
+ - Once you become a good person, then you have a chance of becoming a good basketball player.
+ - A player who makes a team great is better than a great player.
+ - The athlete who says that something can’t be done should never interrupt the one who’s doing it.
+ - Character is more important than any other leadership trait.
+ - I like to spend time in the past, with the things that have been important to me.
+ - He who truly seeks God has found Him.
+ - Those of us who have been blessed with worldly success have an even greater responsibility to make an impact with our time, talents, and resources.
+ - If I were a young coach today, I would be extremely careful in selecting assistants.
+ - You must have respect, which is a part of love, for those under your supervision. Then they will do what you ask and more.
+ - I continually stress to my players that all I expect from them at practice and in the games is their maximum effort.
+ - Whatever you’re doing, you must have patience.
+ - Promise to wear a cheerful appearance at all times and give every person you meet a smile.
+ - It matters not the subject taught, nor all the books on all the shelves, What matters most, yes most of all, is what the teachers are themselves.
+ - I’d be satisfied just coaching in high school. I turned down a number of colleges when I was teaching in South Bend, Indiana, before I went into the service. I honestly believe that if I hadn’t enlisted in the service, I would never have left high school teaching. I’m sure I would have never left.
+ - Just do the best you can. No one can do more than that.
+ - The person who is afraid to risk failure seldom has to face success. I expected my players to make mistakes, as long as they were mistakes of commission. A mistake of commission happens when you are doing what should be done but don’t get the results you want.
+ - No one is an overachiever. How can you rise above your level of competency? Everyone is an underachiever to different degrees. The harder you work, the more luck you will have.
+ - Wisdom subdues bigotry.
+ - The greatest ally you have to get things working well and the players performing as a team is the bench. Don’t be afraid to use it, either for the star player or anyone else.
+ - The better conditioned team will probably win in the long run.
+ - In my opinion, being an effective leader requires being an effective listener. The most productive leaders are usually those who are consistently willing to listen and learn.
+ - We can have no progress without change, whether it be basketball or anything else.
+ - I am not a strategic coach; I am a practice coach.
+ - I think permitting the game to become too physical takes away a little bit of the beauty.
+ - Mistakes come from doing, but so does success.
+ - People ask me if I’d permit fancy things, like dunks. Well, if they did dunk, it was with no fancy flair. No behind-the-back dribbles or passes unless necessary. If it was for show, you were on the bench.
+ - Don’t permit fear of failure to prevent effort.
+ - Good players can take coaching; great players can take coaching and learn.
+ - With the experience to judge, one need not pre-judge.
+ - The outstanding coach is a teacher that gets all his squad to accept the role that he considers to be the most important for the welfare of all.
+ - Do passing drills that come from your offense.
+ - As I grow older, I appreciate things that I didn’t appreciate much when I was younger. I am thankful more than I used to be. I’ve been reasonably healthy, and I feel blessed. And each morning I can think, this is going to be a good day!
+ - Constantly be aware and observing. Always seek to improve yourself and the team.
+ - You may be better than the rest, but you are not a success until you have made the effort to become the best you can be.
+ - The problem with new is you don’t have time for the old ones.
+ - For an athlete to function properly, he must be intent. There has to be a definite purpose and goal if you are to progress. If you are not intent about what you are doing, you aren’t able to resist the temptation to do something else that might be more fun at the moment.
+ - I seldom was ever off my seat on the bench during the game.
+ - You have success within. It’s up to you to bring it out.
+ - My eyesight is not nearly as good. My hearing is probably going away. My memory is slipping too. But I’m still around.
+ - While you, the leader, can teach many things, character is not taught easily to adults who arrive at your desk lacking it. Be cautious about taking on reclamation projects regardless of the talent they may possess. Have the courage to make character count among the qualities you seek in others.
+ - Each of us has a huge capacity to learn and to achieve. Being ever alert makes the task of becoming all we are capable of becoming so much easier.
+ - Never be thrown off stride in how you behave or what you believe in because of outside events.
+ - I never met a person from whom I did not learn something.
+ - Too many people look on outscoring someone as winning, I never tried to get that across to my players.
+ - Passion is temporary. It doesn’t last long. Love is enduring. And that’s the important thing. If we all had love in our lives to the degree that we should, it would be much happier.
+ - Defense is a definite part of the game, and a great part of defense is learning to play it without fouling.
+ - Nobody is a real loser-until they start blaming somebody else.
+ - How you run the race – your planning, preparation, practice, and performance – counts for everything. Winning or losing is a by-product, and aftereffect, of that effort.
+ - An effective leader develops the ability to correctly identify the pertinent detail or details – incidentals in a market, industry or sport that might create an incremental advantage.
+ - Real happiness comes from the things that can not be taken away from you.
+ - I like to give opinions, not suggestions.
+ - When everyone has good players, teaching will be a telling difference.
+ - No one can really honestly be the very best, no one.
+ - Opponents are working very hard to defeat us. Let’s not do it for them by defeating ourselves from within.
+ - The team is the star, never an individual player.
+ - You’ve never heard of them- and you never will .
+ - I was built up from my dad more than anyone else.
+ - Every person under your supervision is different. They’re all different. They’re identical in most ways, but not in all ways. You have to study and analyze every individual under your supervision and try to work with them in a way that will be most productive.
+ - We may not be the best conditioned team in the country, but our players think they are.
+ - I’m no wizard, and I don’t like being thought of in that light at all. I think of a wizard as being some sort of magician or something, doing something on the sly or something, and I don’t want to be thought of in that way.
+ - I also wanted my basketball players to know that I really cared about them. Forget basketball; as a person, I cared, I cared about their family.
+ - We are many, but are we much?
+ - If there’s anything you could point out where I was a little different, it was the fact that I never mentioned winning.
+ - If a player’s not doing the things he should, put him on the bench. He’ll come around.
+ - Our titles would not have been possible without the unselfishness displayed by all our teams, the team wins, not the individuals.
+ - I talked to the players and tried to make them aware of what was good and bad, but I didn’t try to run their lives.
+ - Promise to think only the best, to work only for the best, and to expect only the best from yourself and others.
+ - Friendship is two-sided. It isn’t a friend just because someone’s doing something nice for you. That’s a nice person. There’s friendship when you do for each other. It’s like marriage – it’s two-sided.
+ - Although I wanted my players to work to win, I tried to convince them they had always won when they had done their best.
+ - When you get to be 95, travel doesn’t come as easily.
+ - To win once you must have talent, but to win again you must have character.
+
+446 quotes

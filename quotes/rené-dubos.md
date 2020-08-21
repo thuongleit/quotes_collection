@@ -1,0 +1,37 @@
+ - Each human being is unique, unprecedented, unrepeatable.
+ - Man not only survives and functions in his environment, he shapes it and he is shaped by it.
+ - Human diversity makes tolerance more than a virtue; it makes it a requirement for survival.
+ - A sense of continuity with the rest of creation is a form of religious experience essential to sanity.
+ - Human destiny is bound to remain a gamble, because at some unpredictable time and in some unforeseeable manner nature will strike back.
+ - To ward off disease or recover health, people as a rule find it easier to depend on healers than to attempt the more difficult task of living wisely.
+ - The earth is literally our mother, not only because we depend on her for nurture and shelter but even more because the human sepcies has been shaped by her in the womb of evolution. Our salvation depends upon our ability to create a religion of nature.
+ - Sometimes the more measurable drives out the most important.
+ - The most important pathological effects of pollution are extremely delayed and indirect.
+ - There is a demon in technology. It was put there by man and man will have to exorcise it before technological civilization can achieve the eighteenth-century ideal of humane civilized life.
+ - The belief that we can manage the Earth and improve on Nature is probably the ultimate expression of human conceit, but it has deep roots in the past and is almost universal.
+ - Man could escape danger only by renouncing adventure, by abandoning that which has given to the human condition its unique character and genius among the rest of living things.
+ - There is an unbroken continuum from the wisdom of the body to the wisdom of the mind, from the wisdom of the individual to the wisdom of the race.
+ - Gauss replied, when asked how soon he expected to reach certain mathematical conclusions, that he had them long ago, all he was worrying about was how to reach them!
+ - Man shapes himself through decisions that shape his environment.
+ - Wherever human beings are concerned, trend is not destiny.
+ - Nature always strikes back. It takes all the running we can do to remain in the same place.
+ - What happens in the mind of man is always reflected in the disease of his body.
+ - Clearly, health and disease cannot be defined merely in terms of anatomical, physiological, or mental attributes. Their real measure is the ability of the individual to function in a manner acceptable to himself and to the group of which he is a part.
+ - It is not man the ecological crisis threatens to destroy but the quality of human life.
+ - It is a disturbing fact that Western civilization, which claims to have achieved the highest standard of health in history, finds itself compelled to spend ever-increasing sums for the control of disease.
+ - The word “wilderness” occurs approximately three hundred times in the Bible, and all its meanings are derogatory.
+ - Eradication of microbial disease is a will-o’-the-wisp; pursuing it leads into a morass of hazy biological concepts and half truths.
+ - Human life implies adventure, and there is no adventure without struggles and dangers.
+ - Life is short, the art is long, the problems pressing.
+ - Each civilization has its own kind of pestilence and can control it only by reforming itself.
+ - Men are naturally most impressed by diseases which have obvious manifestations, yet some of their worst enemies creep on them unobtrusively.
+ - Human life is now molded to a large extent by the changes that man has brought about in his external environment and by his attempts at controlling body and soul.
+ - Social evolution may be the result of intention, but it rarely, if ever, produces the result intended.
+ - One may wonder indeed whether the pretense of superior health is not itself rapidly becoming a mental aberration.
+ - With reference to life there is not one nature; there are only associations of states and circumstances, varying from place to place and from time to time.
+ - Whatever his inhibitions and tastes, Western man believes in the natural holiness of seminudism and raw vegetable juice, because these have become for him symbols of unadultered nature.
+ - Biologically, man is still the great amateur of the animal kingdom; he is unique in his lack of anatomical and physiological specialization.
+ - In man, at least, satisfaction is commonly followed by boredom.
+ - The very process of living is a continual interplay between the individual and his environment, often taking the form of a struggle resulting in injury or disease.
+
+35 quotes

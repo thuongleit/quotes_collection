@@ -1,0 +1,21 @@
+ - Exercising adaptive leadership is about giving meaning to your life beyond your own ambition.
+ - Conflict is the primary engine of creativity and innovation. People don’t learn by staring into a mirror; people learn by encountering difference.
+ - Attention is the currency of leadership.
+ - What people resist is not change per se, but loss.
+ - But to practice leadership, you need to accept that you are in the business of generating chaos, confusion, and conflict.
+ - Worry not that your child listens to you; worry most that they watch you.
+ - Conflict is the primary engine of creativity and innovation.
+ - Knowing how the environment is pulling your strings and playing you is critical to making responsive rather than reactive moves.
+ - Progress on problems is the measure of leadership; leaders mobilize people to face problems, and communities make progress on problems because leaders challenge them and help them to do so.
+ - The activity of interpreting might be understood as listening for the ’song beneath the words.
+ - And leadership then is about mobilizing and engaging the people with the problem rather than trying to anesthetize them so you can go off and solve it on your own.
+ - Your inspiration taps hidden reserves of promise that sustain people through times that induce despair. You enable people to envision a future that sustains the best from their past while also holding out new possibilities.
+ - The improvisational ability to lead adaptively relies on responding to the present situation rather than importing the past into the present and laying it on the current situation like an imperfect template.
+ - Values are shaped and refined by rubbing against real problems, and people interpret their problems according to the values they hold.
+ - Stay diagnostic even as you take action.
+ - Your behavior reflects your actual purposes.
+ - If you find what you do each day seems to have no link to any higher purpose, you probably want to rethink what you’re doing.
+ - Yesterday’s adaptations are today’s routines.
+ - I think that notion of leadership is bankrupt.
+
+19 quotes

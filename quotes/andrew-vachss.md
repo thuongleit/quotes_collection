@@ -1,0 +1,43 @@
+ - It’s the family you choose that counts.
+ - When you hunt predators, the best camouflage is weakness.
+ - The worst place to be is in the middle. When elephants fight, the grass gets trampled.
+ - Cats are the lap-dancers of the animal world. Soon as you stop shelling out, they move on, find another lap. They’re furry little sociopaths. Pretty and slick – in love with themselves. When’s the last time you saw a seeing-eye cat?
+ - Children know the truth: love is not an emotion, love is behavior.
+ - A free press doesn’t mean it’s not a tame press.
+ - A kid in an abusive home has far fewer rights than any POW. There is no Geneva Convention for kids.
+ - I want to disabuse people of the idea that knowledge is power. Knowing how to get to Detroit is not the same thing as having the bus fare.
+ - I’m in pursuit of what cannot be achieved: perfection.
+ - Journalism is what maintains democracy. It’s the force for progressive social change.
+ - Journalism is the protection between people and any sort of totalitarian rule. That’s why my hero, admittedly a flawed one, is a journalist.
+ - Evil is a matter of choice. Those people who have been victimized and refuse to imitate their oppressors are in my mind the greatest heroes we have.
+ - Most investigators don’t even know what the word means. You stop the cops from using informants and the only crimes they’d ever solve would be those by deranged postal workers who come to work once too often.
+ - From the very second that two people sat together around a fire in the forest, there was another human out there who felt better in the dark.
+ - Stealing to eat ain’t criminal – stealing to be rich is.
+ - If love would die along with death, this life wouldn’t be so hard.
+ - The third person narrator, instead of being omniscient, is like a constantly running surveillance tape.
+ - Even if sheep could talk, they’d never ask questions.
+ - Fear is an enemy that can be killed only at close range. The closest range of all is intimacy. The deeper the fear is embedded in one’s spirit, the more vulnerable it is.
+ - Building a mechanical device for its appearance is like putting lace on a bowling ball.
+ - Two rules: You enter without breaking. And you remember that nobody misses what you don’t take.
+ - Victimizers of children are the enemies of any so-called society.
+ - A moral society will not set standards for becoming a parent, but it will establish irreducible minimums for maintaining that sacred status.
+ - The Bowery station on the J line is what happens to a neighborhood once politicians realize the people who live there don’t vote.
+ - Max Allan Collins blends fact and fiction like no other writer.
+ - I don’t understand people whose gratification is a BMW. You don’t know what joy is until you see a kid who was tortured get adopted by a family.
+ - People who don’t have much get ugly about giving up the little they have left.
+ - He said when the Lord made people He made them all the same for starters. But life marks people. If you know the way, you can read them like maps.
+ - I think people should be consumers of journalism.
+ - The idea that you’re not a writer until you’re published is a lie.
+ - Roots are nice, but a tree can’t run.
+ - Information is the hardest currency.
+ - I don’t sign contracts for my books.
+ - The more bullets flying, the less accurate each individual slug has to be.
+ - People are pushing against the fabric of society all the time.
+ - I believe my publisher has shown a great deal of faith in me over a lot of years but I’m not prepared to be so arrogant to say that the long-term literary value of my work would compensate them for a financial failure.
+ - A dog is like a person – he needs a job and a family to be what he’s meant to be.
+ - Camouflage doesn’t help when the other guy is willing to defoliate the whole jungle.
+ - It isn’t much use writing slogans on a wall if you plan to total the building.
+ - No politician is threatened by the child protective constituency, because it does not exist.
+ - The Humane Society of America thinks Michael Vick should have a dog. I think whoever’s in charge there should have a lobotomy.
+
+41 quotes

@@ -1,0 +1,31 @@
+ - I believe I’m a born winner. I always think about winning.
+ - I can do what I want. And I always do, do what I want.
+ - I’m not a big fan of being a victim. I don’t like getting beaten up.
+ - It’s going to be fun watching this robot start malfunctioning.
+ - Put all your eggs in one basket. Then you’re less likely to drop that basket.
+ - I’m too fast, too sexy and too talented to be blown away by a large, slow robot from the Ukraine.
+ - They changed the press conference, they are trying to change the time of the weigh-in. They are trying to mess with me, but what they don’t realize is that they are only fueling me to bring more hurt.
+ - I had to beat him up in front of everybody for threatening me.
+ - He is the ugliest thing I have ever seen. I have watched Lord of the Rings and films with strange looking people, but for a human being to look like he does is pretty shocking.
+ - I normally get paid tens of millions of pounds to fight and I ended up fighting for free. I don’t like fighting for free.
+ - In between training sessions, I’ll often watch DVDs of King Kong, Godzilla or Frankenstein, just to keep my mind on the task in hand and remind myself of the magnitude of the challenge.
+ - To be a successful boxer, the last thing you need to be doing is turning up to the gym stoned. You’re going to get beaten up if you do that.
+ - Maccarinelli thinks he can use me to make a name for himself, but that is not going to happen. He has made his fame by fighting nobodies. I’ve fought all the way to the top against top contenders.
+ - The only thing on my mind is getting into that ring and destroying a boxing myth, someone who has reached a level of infamy through doing a number of stupid things.
+ - If someone burgles your house, and you knock them out, are you gonna apologize for knocking them out? No you’re not, you’re gonna stomp on their head, just like any other normal person would.
+ - He’s got one of the best chins I’ve ever hit in my life. I was catching him and he was smiling at me, he was eating them. He’s a great fighter, he’ll be champion one day.
+ - Amir Khan will come back and he will win back the world title because I know the guy personally, and I know what he’s made off. There’s no quit in this guy.
+ - Mum, Vitali just sent me a text, would you pass me a new pair of panties.
+ - Enzo get up you’re making me look bad.
+ - They may be big in Switzerland, but so are yodellers, and nobody wants to watch them fight. Heavyweight title fights should be huge events, not an afterthought in a country most famous for producing chocolate.
+ - I knock people out. As soon as I land my shots on him, you will see the difference between class and hype. He’s been built up and he believes the hype, but I will beat reality into him.
+ - He needs to be punished because the law hasn’t punished him. He’s never done any hard time.
+ - The Klit brothers should first fight each other, and the winner should fight me.
+ - I said that I was gonna smash him in three rounds, and that’s what I did.
+ - I threw about 16 punches in 3 seconds. It was some Bruce Lee speed!
+ - You’re going to get violated in that ring. I am going to close the curtain on the joke that is the Audley Harrison show.
+ - Chisora’s not a nice man, not a nice human being.
+ - He could’ve had Jesus, Buddha, he could have had every God in his corner, it wouldn’t have helped him against me.
+ - If I had a hotdog in my hand, he would’ve had tomato ketchup on his face.
+
+29 quotes

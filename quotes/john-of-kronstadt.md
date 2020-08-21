@@ -1,0 +1,29 @@
+ - Physician, heal thyself. Teacher, teach yourself.
+ - Christ taught us truth; the Devil teaches us falsehood, and strives in every way to contradict every truth; devising various calumnies against it.
+ - When you are praying alone, and your spirit is dejected, and you are wearied and oppressed by your loneliness, remember then, as always, that God the Trinity looks upon you with eyes brighter than the sun; also all the angels, your own Guardian Angel, and all the Saints of God.
+ - A Christian must always be kind, gracious, and wise in order to conquer evil by good.
+ - Love every man in spite of his falling into sin. Never mind the sins, but remember that the foundation of the man is the same – the image of God.
+ - Love does not reflect. Love is simple. Love never mistakes. Likewise believe and trust without reflection, for faith and trust are also simple; or better: God, in whom we believe and in whom we trust, is an incomplex Being, as He is also simply love.
+ - Do not despise any man, however poor he may be; but behave with full respect and kindness to every well-intentioned man, especially to the poor, as to our members worthy of compassion – or, rather, to members of Christ – otherwise you will cruelly wound your soul.
+ - Our faith, trust, and love are proved and revealed in adversities, that is, in difficult and grievous outward and inward circumstances, during sickness, sorrow, and privations.
+ - Remember that God, during your prayers, is watching for your affirmative answer to the question which He is inwardly asking you: ‘Do you believe I am able to do this?’ To which question you must from the depth of your heart reply, ‘Yes, Lord’
+ - Our wickedness shall not overpower the unspeakable goodness and mercy of God; our dullness shall not overpower God’s wisdom, nor our infirmity God’s omnipotence.
+ - Never confuse the person, formed in the image of God, with the evil that is in him: because evil is but a chance misfortune, an illness, a devilish reverie. But the very essence of the person is the image of God, and this remains in him despite every disfigurement.
+ - Evil and faults are corrected by good, by love, kindness, meekness, humility, and patience.
+ - Leave all human injustices to the Lord, for God is the Judge, but as to yourself, be diligent in loving everybody with a pure heart...
+ - God is nearer to us than any man at every time. He is nearer to me than my raiment, nearer than the air or light, nearer than my wife, father, mother, daughter, son, or friend. I live in Him, soul and body. I breathe in Him, think in Him, feel, consider, intend, speak, undertake, work in Him.
+ - At every step there is a pretext for enmity against our brother.
+ - Your own malice is the bitterest of all evils. Is it then possible to correct malice by means of evil? Having a beam in your own eye, can you pull out the mote from the eye of another?
+ - In prayer and in every work of your life avoid suspicious ness, doubt and diabolical imaginations. Let your spiritual eye be single, in order that the whole body of your prayer, of your works and of your life may be light.
+ - Do not be vexed with those who show pride, or malice, effeminacy, and impatience in their intercourse with you, or others, but, remembering that you yourself are subject to the same and greater sins and passions, pray for them and be meek with them.
+ - Your Lord is a God of mercy and bountifulness: be a source of mercy and bountifulness to your neighbors. If you will be such, you will find salvation yourself with everlasting glory.
+ - The longer we remain without confessing, the worse it is for us, the more entangled we become in the bonds of sin, and therefore the more difficult it is to give an account.
+ - The Lord is the accomplishment of everything good that I think, feel and do.
+ - O, how easy it would appear to be to live in simplicity and love, and yet how difficult it is for our corrupt hearts to live in love!
+ - Divine service, being the high contemplation of the mind, is at the same time, and pre-eminently, the peace, the sweetness and blessedness of the heart.
+ - It is necessary to rouse the heart to pray, otherwise it will become quite dry. The attributes of prayer must be: love of God, sincerity, and simplicity.
+ - Wherefore is this? Because our common enemy, the Devil, endeavours with all his might to oppose the intentions of the God-man, Christ. He endeavours to do everything in opposition to what Christ did and does.
+ - It would seem, after this, that even when living upon earth we must live as if in the heavenly kingdom, dwelling there in anticipation by hope. But in reality, for the greater part, the contrary is the case. Men cling with their whole being to the earth and everything earthly.
+ - The Saviour and the Comforter, two Persons of the Godhead: the One ever saves from sins, and the Other comforts him who is saved. Their very names are taken from their deeds, and are always actually justified. He comforts! The Holy Spirit comforts the believing soul, as a mother comforts her child.
+
+27 quotes

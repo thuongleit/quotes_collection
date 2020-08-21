@@ -1,0 +1,79 @@
+ - What a long strange trip it’s been.
+ - Sometimes the lights all shining on me, other times I can barely see. Lately it occurs to me what a long strange trip it’s been.
+ - You do not merely want to be considered just the best of the best. You want to be considered the only one who does what you do.
+ - There is a road, no simple highway, between the dawn and the dark of night, and if you go, no one may follow, that path is for your steps alone.
+ - We’re like licorice. Not everybody likes licorice, but the people who like licorice really like licorice.
+ - To get really high is to forget yourself. And to forget yourself is to see everything else. And to see everything else is to become an understanding molecule in evolution, a conscious tool of the universe.
+ - I think The Grateful Dead kind of represents the spirit of being able to go out and have an adventure in America at large.
+ - You don’t want to be the best at what you do, you want to be the only one.
+ - You ain’t gonna learn what you don’t wanna know.
+ - Run faster, jump higher, reach farther, and you’ll always win!
+ - Nothing left to do but smile.
+ - Live life expecting the worst, hoping for the best, and living for the future!
+ - We didn’t invent the Grateful Dead, the crowd invented the Grateful Dead. We were just in line to see what was going to happen.
+ - I equate Deadheads to people that like black licorice. There aren’t many people that like black licorice, but the ones that do, REALLY REALLY like it! Or buttermilk, or whatever.
+ - You need music, I don’t know why. It’s probably one of those Joe Campbell questions, why we need ritual. We need magic, and bliss, and power, myth, and celebration and religion in our lives, and music is a good way to encapsulate a lot of it.
+ - We would all like to be able to live an uncluttered life, a simple life, a good life.
+ - The sun will shine in my back door one day...
+ - Listen to the river sing sweet songs to rock my soul.
+ - We’ve been trying to sell out for years, nobody’s buying!
+ - Truth is something you stumble into when you think you’re going someplace else.
+ - Every silver lining has a touch of grey.
+ - Too much of a good thing is just about right.
+ - Somebody has to do something, and it’s just incredibly pathetic that it has to be us.
+ - What is life but being conscious? And good and evil are manifestations of consciousness. If you reject one, you’re not getting the whole thing that’s there to be had.
+ - We were very fortunate to have a a little time in history when LSD was still legal and were able to experiment with drugs just like we were doing with music.
+ - Constantly choosing the lesser of two evils is still choosing evil.
+ - I think it’s too bad that everybody’s decided to turn on drugs, I don’t think drugs are the problem. Crime is the problem. Cops are the problem. Money’s the problem. But drugs are just drugs.
+ - Stuff that’s hidden and murky and ambiguous is scary because you don’t know what it does.
+ - I sat down to my supper, twas a bottle of red whiskey.
+ - I mean, whatever kills you kills you, and your death is authentic no matter how you die.
+ - All I know is, if you listen to society, you’ll never get anywhere!
+ - Nobody stopped thinking about those psychedelic experiences. Once you’ve been to some of those places, you think, ‘How can I get back there again but make it a little easier on myself?’
+ - Either you were a hoodlum, or you were a puddle on the sidewalk.
+ - It’s pretty clear now that what looked like it might have been some kind of counterculture is, in reality, just the plain old chaos of undifferentiated weirdness.
+ - Run faster, jump higher, reach farther, and you’ll always win! live life expecting the worst, hoping for the best, and living for the future! Somebody has to do something, and it’s just incredibly pathetic that it has to be us.
+ - For me, the lame part of the Sixties was the political part, the social part. The real part was the spiritual part.
+ - Done time in the lock-up, done time on the streets. Done time on the upswing, and time in defeat. I know what I’m askin’. I know it’s a lot. Just to say that I love you. Believe it or not.
+ - America is still mostly xenophobic and racist. That’s the nature of America, I think.
+ - Cats on the bandstand, give them each a big hand, anyone who sweats like that must be all right.
+ - Don’t tell me this town ’aint got no heart.
+ - Whistle through your teeth and spit cuz, it’s Alright.
+ - I Don’t Think There’s A Good Excuse For Being Unhappy. I’m Not Particularly Unhappy, But I Know What Pain Is. I think That Life Is Characterized By Pain, Partly. Part Of The Way You Can Tell You’re Alive Is By How Much Pain You’re Experiencing, Or How Little...
+ - I have all the patience in the world about Sirens. For me it’s not a Grateful Dead project, it’s a Me project.
+ - And for me there’s still more material than 20 lifetimes that I can use up.
+ - In folk music, I’ve always been fond of the fragment. The song that has one verse. And you don’t know anything about the characters, you don’t know what they’re doing, but they’re doing something important. I love that. I’m really a sucker for that kind of song.
+ - If the thunder don’t get ya then the lightning will.
+ - Our strong suit is what we do, and our audience.
+ - But audio is a component of video, so there’s always been that anyway, and although we’ve never expressed a visual side apart from the Grateful Dead movie, I don’t find it that remote, you know what I mean? It’s a departure of sorts, but it’s like a first cousin.
+ - If you’re able to enjoy something, to devote your life to it or a reasonable amount of time and energy, it will work out for you.
+ - I’m shopping around for something to do that no one will like.
+ - I read somewhere that 77 per cent of all the mentally ill live in poverty. Actually, I’m more intrigued by the 23 per cent who are apparently doing quite well for themselves.
+ - If we had any nerve at all, if we had any real balls as a society, or whatever you need, whatever quality you need, real character, we would make an effort to really address the wrongs in this society, righteously.
+ - If you assume you haven’t learned anything yet, there’s no reason your playing can’t stay dynamic all your life.
+ - And Warner Bros. seems to be pretty much into re-releasing all of their catalog. So there’s the Warner Bros. stuff and the stuff that we have control over, we’re gradually re-releasing it. Some stuff we don’t have control over.
+ - And there’s a lot of that stuff with people bringing their kids, kids bringing their parents, people bringing their grandparents – I mean, it’s gotten to be really stretched out now. It was never my intention to say, this is the demographics of our audience.
+ - I don’t think that Slaughterhouse-Five was successful movie material. In fact, Vonnegut’s books mostly I don’t feel are movie material.
+ - So we are pretty convinced we don’t want to play huge stadiums unless we can play them well.
+ - It’s a joke. Greed and the desire to take drugs are two separate things. If you want to separate the two, the thing you do is make drugs legal. Accept the reality that people do want to change their consciousness, and make an effort to make safer, healthier drugs.
+ - The real problems are cultural. The problems of the people who take drugs as a cultural trap – I think there’s a real problem there, the crack stuff, the hopelessness of the junkie. The urban angst.
+ - What we do is as American as lynch mobs. America has always been a complex place.
+ - See, there’s only two theaters, man that are set up pretty groovy all around for music and for smooth stage changes, good lighting and all that – the Fillmore and The Capitol Theatre. And those are the only two in the whole country.
+ - But hey, when you live in Watts, you need a little smack to get by, you know what I mean? You need something soft and comfortable in your life, ’cause you’re not going to get it from what’s around you. And society isn’t going to give it to you.
+ - Hunter can write a melody and stuff like that, but his forte is lyrics. He can write a serviceable melody to hang his lyrics on, and sometimes he comes up with something really nice.
+ - I’m not trying to clock scores in this lifetime, it’s just that things are better now than they were like five, ten years ago. Music has gotten a lot better. There’s a lot of people who are committed to – soulfully.
+ - The bigger issue, was the whole takeover of the food industry by big corporations.
+ - Death comes at you no matter what you do in this life, and to equate drugs with death is a facile comparison.
+ - And the live show is still our main thing.
+ - Yeah, I think we have to. If we want our shows to be – if we want the quality of the shows to be good, and we want the energy to be high, and if we want to be in good enough physical shape to do them, and not exhaust ourselves on the road, and not get stale, we have to pace.
+ - We’re not uncomfortable with it, and we’ve already been through enough of the music business where I’m not really worried that commercial success is going to in some way – we’re already past saving, you know what I mean? It’s too late for us.
+ - So it’s one of those things where we have to – our problem is pacing ourselves and still reaching a large enough number of our audience. Because we don’t want to burn the audience. And we don’t want to be excluding anybody.
+ - You have to get past the idea that music has to be one thing. To be alive in America is to hear all kinds of music constantly: radio, records, churches, cats on the street, everywhere music. And with records, the whole history of music is open to everyone who wants to hear it.
+ - What’s been great about the human race gives you a sense of how great you might get, how far you can reach.
+ - And as far as I’m concerned, it’s like I say, drugs are not the problem. Other stuff is the problem.
+ - The alternate media are becoming important and viable alternatives to playing live. Records, videos, that kind of thing. They’re going to start to count for something. Because there’s only a limited amount of us-time available to us.
+ - And when you don’t have to talk to the person next to you, that’s real clean. Takes a certain thing not to try to keep anything up, not to have to entertain one another.
+ - I mean, just because you’re a musician doesn’t mean all your ideas are about music. So every once in a while I get an idea about plumbing, I get an idea about city government, and they come the way they come.
+ - I don’t know why, it’s the same reason why you like some music and you don’t like others. There’s something about it that you like. Ultimately I don’t find it’s in my best interests to try and analyze it, since it’s fundamentally emotional.
+
+77 quotes

@@ -1,0 +1,26 @@
+ - Things that are complex are not useful, Things that are useful are simple.
+ - When I see Bin Laden with his AK-47, I got nervous. But what can I do, terrorists aren’t fools: they too chose the most reliable guns.
+ - My work is my life, and my life is my work. I invented this assault rifle to defend my country. Today, I am proud that it has become for many synonymous with liberty.
+ - I wanted to invent an engine that could run for ever. I could have developed a new train, had I stayed in the railway. It would have looked like the AK-47 though.
+ - The fact that people die because of an AK-47 is not because of the designer, but because of politics.
+ - My spiritual pain is unbearable. I keep having the same unsolved question: if my rifle claimed people’s lives, then can it be that I a Christian and an Orthodox believer, was to blame for their deaths?
+ - I had to gain experience as I did not have a technical education.
+ - Before attempting to create something new, it is vital to have a good appreciation of everything that already exists in this field.
+ - I would prefer to have invented a machine that people could use and that would help farmers with their work – for example a lawnmower.
+ - I have continued to work at different things, and rebuilt my home all by myself. I did it for the sake of satisfaction at doing something. I did it because I happened to be where I was.
+ - Life can make you do many things, even kiss a man with a runny nose.
+ - I created a weapon to defend the borders of my motherland. It’s not my fault that it’s being used where it shouldn’t be. The politicians are more to blame for this.
+ - I am still ready to shake hands with anyone who designs a better assault rifle than mine.
+ - Then it was like a genie out of the bottle and it began to walk all on its own and in directions I did not want.
+ - I’m proud of my invention, but I’m sad that it is used by terrorists.
+ - It is the Germans who are responsible for the fact that I became a fabricator of arms. If not for them, I would have constructed agricultural machines.
+ - It is painful for me to see when criminal elements of all kinds fire from my weapon.
+ - Life is composed of different inventions.
+ - I tried a dozen different modifications that were rejected. But they all served as a path to the final design.
+ - I’ve always wanted to improve and expand on the good name of my weapon by doing good things.
+ - I sleep well. It’s the politicians who are to blame for failing to come to an agreement and resorting to violence.
+ - I was trying to perform as best as possible. I was a boy at the time, but worked well with the sickle.
+ - Man keeps inventing things all the time.
+ - I was probably born with some designing abilities.
+
+24 quotes

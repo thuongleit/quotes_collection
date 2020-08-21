@@ -1,0 +1,38 @@
+ - In a democracy people get the leaders they deserve.
+ - The great fault in women is to desire to be like men.
+ - The whole earth, perpetually steeped in blood, is nothing but an immense altar on which every living thing must be sacrificed without end, without restraint, without respite until the consummation of the world, the extinction of evil, the death of death.
+ - Wherever an altar is found, there civilization exists.
+ - Man is so muddled, so dependent on the things immediately before his eyes, that every day even the most submissive believer can be seen to risk the torments of the afterlife for the smallest pleasure.
+ - Every country has the government it deserves.
+ - Every individual or national degeneration is immediately revealed by a directly proportional degradation in language.
+ - Man is insatiable for power; he is infantile in his desires and, always discontented with what he has, loves only what he has not. People complain of the despotism of princes; they ought to complain of the despotism of man.
+ - All grandeur, all power, and all subordination to authority rests on the executioner: he is the horror and the bond of human association. Remove this incomprehensible agent from the world and at that very moment order gives way to chaos, thrones topple and society disappears.
+ - What is needed is not a revolution in the opposite direction, but the opposite of a revolution.
+ - All pain is a punishment, and every punishment is inflicted for love as much as for justice.
+ - If there was no moral evil upon earth, there would be no physical evil.
+ - Man’s destructive hand spares nothing that lives; he kills to feed himself, he kills to clothe himself, he kills to adorn himself, he kills to attack, he kills to defend himself, he kills to instruct himself, he kills to amuse himself, he kills for the sake of killing.
+ - Man in general, if reduced to himself, is too wicked to be free.
+ - To know how to wait. It is the great secret of success.
+ - Genius does not seem to derive any great support from syllogisms. Its carriage is free; its manner has a touch of inspiration. We see it come, but we never see it walk.
+ - I do not know what the heart of a rascal may be, but I know what is in the heart of an honest man; it is horrible.
+ - Christianity was preached by ignorant men and believed by servants, and that is why it resembles nothing ever known.
+ - It is not the mediocrity of women’s education which makes their weakness; it is their weakness which necessarily causes their mediocrity.
+ - In the whole vast dome of living nature there reigns an open violence, a kind of prescriptive fury which arms all the creatures to their common doom: as soon as you leave the inanimate kingdom you find the decree of violent death inscribed on the very frontiers of life.
+ - What a miserable world! – trouble if we love, and trouble if we do not love.
+ - In the works of man, everything is as poor as its author; vision is confined, means are limited, scope is restricted, movements are labored, and results are humdrum.
+ - A constitution that is made for all nations is made for none.
+ - We are tainted by modern philosophy which has taught us that all is good, whereas evil has polluted everything and in a very real sense all is evil, since nothing is in its proper place.
+ - Nothing is necessary except God, and nothing is less necessary than pain.
+ - There is no easy method of learning difficult things. The method is to close the door, give out that you are not at home, and work.
+ - It is one of man’s curious idiosyncrasies to create difficulties for the pleasure of resolving them.
+ - There is no philosophy without the art of ignoring objections.
+ - Reason speaks in words alone, but love has a song.
+ - I don’t know what a scoundrel is like, but I know what a respectable man is like, and it’s enough to make one’s flesh creep.
+ - We are all bound to the throne of the Supreme Being by a flexible chain which restrains without enslaving us. The most wonderful aspect of the universal scheme of things is the action of free beings under divine guidance.
+ - There is no man who desires as passionately as a Russian. If we could imprison a Russian desire beneath a fortress, that fortress would explode.
+ - False opinions are like false money, struck first of all by guilty men and thereafter circulated by honest people who perpetuate the crime without knowing what they are doing.
+ - The concept of number is the obvious distinction between the beast and man. Thanks to number, the cry becomes a song, noise acquires rhythm, the spring is transformed into a dance, force becomes dynamic, and outlines figures.
+ - The concept of number is the obvious distinction between the beast and man.
+ - Women have a genius for love; men can only learn the art indifferently.
+
+36 quotes

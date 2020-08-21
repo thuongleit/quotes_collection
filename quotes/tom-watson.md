@@ -1,0 +1,22 @@
+ - I’m no genius, but I’m smart in spots, and I stay around those spots.
+ - In other words, I realized that for IBM to become a great company it would have to act like a great company long before it ever became one.
+ - Sometimes thinking too much can destroy your momentum.
+ - All the problems of the world could be settled easily if men were only willing to think.
+ - No other game combines the wonder of nature with the discipline of sport in such carefully planned ways. A great golf course both frees and challenges a golfer’s mind.
+ - Sometimes you have to lose major championships before you can win them. It’s the price you pay for maturing. The more times you can put yourself in pressure situations, the more times you compete, the better off you are.
+ - I’d rather fight 100 structure fires than a wildfire. With a structure fire you know where your flames are, but in the woods it can move anywhere; it can come right up behind you.
+ - After playing Ballybunion for the first time, a man would think that the game of golf originated here.
+ - Confidence in golf means being able to concentrate on the problem at hand with no outside interference.
+ - Ballybunion is the course on which many golf architects should live and play on before they build golf courses.
+ - This game is so elusive. You try to maintain the peaks and level up the valleys.
+ - I learned how to win by losing and not liking it.
+ - There is no surer or more painful way to learn a rule than to be penalized once for breaking it.
+ - Muirfield without a wind is like a lady undressed. No challenge.
+ - My golf swing is a bit like ironing a shirt. You get one side smoothed out, turn it over and there is a big wrinkle on the other side. Then you iron that one out, turn it over and there is yet another wrinkle.
+ - Golf will grow so long as it’s fun.
+ - If a course needs to be in great condition to be played effectively, then the design strategy is flawed.
+ - The person I fear most in the last two rounds is myself.
+ - A lot of guys who have have never choked, have never been in the position to do so.
+ - Having played the Old Course many times since my first visit in 1981, I am now of the opinion it is one of the best and most beautiful tests of links golf anywhere in the world.
+
+20 quotes

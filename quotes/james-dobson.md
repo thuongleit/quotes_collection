@@ -1,0 +1,66 @@
+ - No man stands so tall as when he stoops to help a child.
+ - Touching Hearts, Changing Lives.
+ - My legacy doesn’t matter. It isn’t important that I be remembered. It’s important that when I stand before the Lord, he says, ‘Well done, good and faithful servant.’ I want to finish strong.
+ - There is nothing more important than parents passing on a generational legacy of faith and values to their children.
+ - Respect is intended to operate on a two-way street.
+ - Children represent God’s most generous gift to us.
+ - Don’t marry the person you think you can live with; marry only the individual you think you can’t live without.
+ - Trust involves letting go and knowing God will catch you.
+ - A child identifies his parents with God, whether or not the adults want that role. Most children ‘see’ God the way they perceive their earthly fathers.
+ - It will always hurt to be laughed at, snubbed, ignored or attacked by others. But I would remind you that the human personality grows through adversity, provided it is not crushed in the process.
+ - The final heartbeat for the Christian is not the mysterious conclusion to a meaningless existence. It is, rather, the grand beginning to a life that will never end.
+ - Don’t throw away your friendship with your teenager over behavior that has no great moral significance. There will be plenty of real issues that require you to stand like a rock. Save your big guns for those crucial confrontations.
+ - The footsteps a child follows are most likely to be the ones his parents thought they covered up.
+ - A good marriage is not one where perfection reigns: it is a relationship where a healthy perspective overlooks a multitude of “unresolvables.”
+ - One of the most important responsibilities in the Christian life is to care about others, smile at them, and be a friend to the friendless.
+ - God does not need our money. But you and I need the experience of giving it.
+ - Show me a husband who keeps his thoughts to himself, and I will show you a frustrated wife.
+ - A boy or girl who knows that love abounds at home will not resent well-deserved punishment. One who is unloved or ignored will hate any form of discipline.
+ - You have to work to keep love alive; you have to protect it and maintain it, just like you would a delicate flower.
+ - Conceit is a weird disease – it makes everybody sick except the guy who has it.
+ - Marriage succeeds only as lifetime commitment with no escape clauses.
+ - We human beings can survive the most difficult of circumstances if we are not forced to stand alone.
+ - If homes are going to survive, it will be because husbands and fathers again place their families at the highest level on their system of priorities.
+ - It is impossible to overstate the need for prayer in the fabric of family life.
+ - Clearly, the Scripture tells us that we lack the capacity to grasp God’s infinite mind or the way He intervenes in our lives. How arrogant of us to think otherwise! Trying to analyze His omnipotence is like an amoeba attempting to comprehend the behavior of man.
+ - To those who say Ted Bundy should burn forever in eternity I would only say, so should I, so should all of us...
+ - If you’re going through difficult times today, hold steady. It will change soon. If you are experiencing smooth sailing and easy times now, brace yourself. It will change soon. The only thing you can be certain of is change.
+ - When you let people put you up on a pedestal, you step one step in any direction, and you’re going to go down.
+ - God’s Heart is especially tender toward the downtrodden and the defeated. He knows your name and He has seen every tear you have shed.
+ - Loving discipline encourages a child to respect other people and live as a responsible, constructive citizen.
+ - Morality and immorality are not defined by man’s changing attitudes and social customs. They are determined by the God of the universe, whose timeless standards cannot be ignored with impunity.
+ - Authority is God ordained, but authoritarianism and raw power, in almost all forms, is dangerous.
+ - Great beginnings are not as important as the way one finishes.
+ - When these parenting years have passed, something precious will have flickered and gone out of my life. Thus, I am resolved to enjoy every day that remains in this fathering era.
+ - Children are not casual guests in our home. They have been loaned to us temporarily for the purpose of loving them and instilling a foundation of values on which their future lives will be built.
+ - The right to criticize must be earned, even if the advice is constructive in nature.
+ - Extreme independence is as destructive to a relationship as total dependence.
+ - Can’t you see the Creator of the universe, who understands every secret, every mystery, sitting patiently and listening to a four-year-old talk to Him? That’s a beautiful image of a father.
+ - Those who control what young people are taught, and what they experience – what they see, hear, think, and believe – will determine the future course for the nation.
+ - We are so busy giving our children what we never had that we forget to give them what we did have.
+ - The universe and everything in it will someday pass away and be made new by the Creator. Therefore, the events of today that seem so important are not really very significant, except for those matters that will survive the end of the universe.
+ - My dad and I hunted and fished together. How could I get angry at this man who took the time to be with me?
+ - It is our uniqueness that gives freshness and vitality to a relationship.
+ - If you let a child know that you think he is lazy, sloppy, untruthful, unpleasant, and thoughtless, he’ll probably prove you are right. Obviously, it is much better to make him stretch to reach a positive image than stoop to match one at ground level.
+ - Those who are the happiest are not neccessarily those for whom life has been easiest.
+ - There are very few certainties that touch us all in this mortal experience, but one of the absolutes is that we will experience hardship and stress at some point.
+ - God has called us to be His representatives in our nation and in our world. Select candidates who represent your views and work for their election.
+ - We Americans are living a lifestyle of exhaustion. We don’t have time for ourselves, much less for each other and our children.
+ - Prayer and dependence on God has been our history. How unfortunate it is now that an unaccountable and unelected and misguided judge from Wisconsin, Judge Barbara Crabb, has declared National Days of Prayer – established by the Congress – to be unconstitutional.
+ - One of the first things you and your fiance need to develop is a meaningful prayer life even before the wedding. My wife, Shirley, and I did that, and the time we have spent on our knees has been the stabilizing factor throughout nearly forty years of marriage.
+ - If traditional marriage is not the law of the land, the institution of the family will cease to exist.
+ - Homosexuals can be, you know, committed to each other. And they have freedom to behave in the ways that they do, but they cannot be a family. They cannot be married. I mean, virtually every culture in the history of the world has considered marriage to be between one woman and one man.
+ - If two men or two women can marry, then there is no way a court could deny three men and two women or any combination thereof.
+ - My observation is that women are merely waiting for their husbands to assume leadership.
+ - I’m certain that most couples expect to find intimacy in marriage, but it somehow eludes them.
+ - Faith in God – life can never take you by surprise again.
+ - Should Sen. McCain capture the nomination as many assume, I believe this general election will offer the worst choices for President in my lifetime. I certainly can’t vote for Hillary Clinton or Barack Obama based on their virulently anti-family policy positions.
+ - I’m still heard on 1,500 radio stations across North America every day, about 220 million people a day in 150 countries.
+ - I would not vote for John McCain under any circumstances.
+ - Although individual temperaments vary, boys are designed to be more assertive, audacious, and excitable than girls are.
+ - Homosexuals are not monogamous. They want to destroy the institution of marriage. It will destroy marriage. It will destroy the Earth.
+ - It is deeply moving, powerful, and disturbing. A film that must be seen.
+ - A disturbing prospect looms before us as Americans consider the possibility of a second term for President Barack Obama. Millions of conservatives who revere the Constitution, with its guarantees of freedom and limited government, have watched with alarm as the campaign season has unfolded.
+ - The United States has been from the beginning greatly influenced and primarily influenced by the Judeo-Christian system of values.
+
+64 quotes

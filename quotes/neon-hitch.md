@@ -1,0 +1,23 @@
+ - I don’t follow the rules. That’s kind of how I do everything.
+ - I believe in magic, and having a vision. The tough times made me a warrior. I work hard.
+ - I’ve lived in many things – boats, caravans, and buses. I’ve been homeless, I’ve had no money: everything. But I believe in magic, and having a vision. The tough times made me a warrior. I work hard.
+ - My background sets me apart. I’ve never been able to relate to many people. I’ve always been the outcast child.
+ - You should hear what my parents wanted to call me. It was between Brown Rice, Neon Hitch and Z. Ziggurat Zanzibar Zandorf. I’m not joking. Imagine fitting that on my passport!
+ - My ancestors are all crazy. My great-great-granddad, he was the last man to live in a cave in Nottingham.
+ - I like to be wild, and I like to do wild, crazy things. I need excitement. At all times. Normal is not my type.
+ - I don’t believe in trying to be somebody you’re not – just be a bigger, better version of yourself.
+ - My family traveled with a whole community to European festivals. My mum did gymnastics, freak show performances, and swung fire in the circus, so I followed her footsteps.
+ - The day I was born, my house burnt down; the day I left home, the Twin Towers burnt down; and I lived in a jungle in India at 15.
+ - I think redheads have more fun than blondes.
+ - I love to experiment with fashion. A lot of my inspiration comes from my mom. She is fearless with fashion! I love colors and anything daring.
+ - My dad brought me Michael Jackson and Madonna and said, “This is ALL you need to know!”
+ - I have a little gypsy palace here in New York. It’s all mirrors, and I have my own garden. It’s so secluded – the closest thing to a caravan I could find!
+ - As for today’s music, Nicki Minaj is killing it. She’s an amazing artist.
+ - Through my music, I’ve found a place in the world where I’m accepted, so I’m happy.
+ - I’m out here to represent the gingers, the gypsies, and the outcasts. Because I am all of the above, and I’m all about having a great time.
+ - I was always a bit of a showgirl; it was in my blood. I never thought I would have a career as a singer, though.
+ - The Beatles are my number one – I think everything they did was amazing!
+ - I’m a free spirit and that definitely comes from my upbringing, so it’s definitely shaped me as an artist.
+ - The trapeze was my first love. To me, it’s normal. It’s all I’ve ever known.
+
+21 quotes

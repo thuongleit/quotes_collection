@@ -1,0 +1,38 @@
+ - Consciousness is what makes the mind-body problem really intractable.
+ - What is it like to be a bat? What is it like for a bat to be a bat?
+ - The more details we learn about the chemical basis of life and the intricacy of the genetic code, the more unbelievable the standard historical account becomes.
+ - Humans are addicted to the hope for a final reckoning, but intellectual humility requires that we resist the temptation to assume that tools of the kind we now have are in principle sufficient to understand the universe as a whole.
+ - Life may be not only meaningless but absurd.
+ - Philosophy is the childhood of the intellect, and a culture that tries to skip it will never grow up.
+ - If sub specie aeternitatis there is no reason to believe that anything matters, then that does not matter either, and we can approach our absurd lives with irony instead of heroism or despair.
+ - Perhaps the belief in God is the belief that the universe is intelligible, but not to us.
+ - It isn’t just that I don’t believe in God, and naturally, hope there is no God. I don’t want there to be a God; I don’t want the universe to be like that.
+ - Everything, living or not, is constituted from elements having a nature that is both physical and nonphysical – that is, capable of combining into mental wholes. So this reductive account can also be described as a form of panpsychism: all the elements of the physical world are also mental...
+ - Altruism itself depends on a recognition of the reality of other persons, and on the equivalent capacity to regard oneself as merely one individual among many.
+ - It seems to me that, as it is usually presented, the current orthodoxy about the cosmic order is the product of governing assumptions that are unsupported, and that it flies in the face of common sense.
+ - If we tried to rely entirely on reason, and pressed it hard, our lives and beliefs would collapse – a form of madness that may actually occur if the inertial force of taking the world and life for granted is somehow lost. If we lose our grip on that, reason will not give it back to us.
+ - A person may be greedy, envious, cowardly, cold, ungenerous, unkind, vain, or conceited, but behave perfectly by a monumental act of the will.
+ - I should not really object to dying were it not followed by death.
+ - I’m not sure I understand how responsibility for our choices makes sense if they are not determined.
+ - Common sense doesn’t have the last word in ethics or anywhere else, but it has, as J. L. Austin said about ordinary language, the first word: it should be examined before it is discarded.
+ - Materialism is incomplete even as a theory of the physical world, since the physical world includes conscious organisms among its most striking occupants.
+ - There is a tendency to seek an objective account of everything before admitting its reality.
+ - Eventually, I believe, current attempts to understand the mind by analogy with man-made computers that can perform superbly some of the same external tasks as conscious beings will be recognized as a gigantic waste of time.
+ - Absurdity is one of the most human things about us: a manifestation of our most advanced and interesting characteristics.
+ - Without consciousness the mind-body problem would be much less interesting. With consciousness it seems hopeless.
+ - The universe has become not only conscious and aware of itself but capable in some respects of choosing its path into the future – though all three, the consciousness, the knowledge, and the choice, are dispersed over a vast crowd of beings, acting both individually and collectively.
+ - It is prima facie highly implausible that life as we know it is the result of a sequence of physical accidents together with the mechanism of natural selection.
+ - Each of our lives is a part of the lengthy process of the universe gradually waking up and becoming aware of itself.
+ - Leading a human life is a full-time occupation, to which everyone devotes decades of intense concern.
+ - If I thought that everything I did was determined by my circumstancse and my psychological condition, I woudl feel trapped.
+ - To look for a single general theory of how to decide the right thing to do is like looking for a single theory of how to decide what to believe.
+ - The inclusion of consequences in the conception of what we have done is an acknowledgement that we are parts of the world, but the paradoxical character of moral luck which emerges from this acknowledgement shows that we are unable to operate with such a view, for it leaves us with no one to be.
+ - Any reductionist program has to be based on an analysis of what is to be reduced. If the analysis leaves something out, the problem will be falsely posed.
+ - A theory of motivation is defective if it renders intelligible behaviour which is not intelligible.
+ - I conceive ethics as a branch of psychology.
+ - If life is not real, life is not earnest, and the grave is its goal, perhaps it’s ridiculous t otake ourselves so seriously.
+ - Everyone is entitled to commit murder in the imagination once in a while, not to mention lesser infractions.
+ - If you want the truth rather than merely something to say, you will have a good deal less to say.
+ - Once we see an aspect of what we or someone else does as something that happens, we lose our grip on the idea that it has been done and that we can judge the doer and not just the happening.
+
+36 quotes

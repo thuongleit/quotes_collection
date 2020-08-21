@@ -1,0 +1,21 @@
+ - You don’t get unity by ignoring the questions that have to be faced.
+ - We have been getting ready to recycle more e-waste by investing in infrastructure, providing grants to local government and working with industry.
+ - You’ll be much more successful if you follow your dreams and follow your passions.
+ - Defence is our best attack.
+ - Grace Portolesi is a strong, assertive passionate young woman and she is precisely the sort of person I want in my cabinet and she will have a senior role.
+ - There is an opportunity for us to renew ourselves. There’s an opportunity for us to leave the past behind and present something different for the future.
+ - One thing we do know about the threat of climate change is that the cost of adjustment only grows the longer it’s left unaddressed.
+ - Civility is perhaps a quaint notion but civility in Parliament is something we should always strive to uphold.
+ - I think there is a case for strong action and intervention when there is criminality and when the leaders are corrupt or behaving in a criminal fashion.
+ - People want the freedom. They want to be able to shop. If you don’t like the shop trading hours and you’re a shop owner, you don’t have to open.
+ - South Australia has transformed. There has been a range of changes to our economy over the past 10 years in which we have genuinely set ourselves up for the future. I think we have to start behaving like that’s real and project a quiet confidence in the future of our state.
+ - Everybody has to make their own decisions about how they choose to behave.
+ - If you present good government, then elections look after themselves.
+ - We are all in this together. We want to have, I suppose, a single point of entry so that anyone coming near a disability service can get a very complete picture. Government needs to understand that picture, and we need to be able to offer somebody a one-stop shop.
+ - Obviously any export of uranium to India could only occur within an appropriate international framework to be negotiated by the commonwealth government.
+ - We know that defence work results in more than great defence hardware – it can drive innovation and advances in all areas of our life.
+ - Our commitment to defence goes beyond this. It’s a long-term commitment to make SA the home for Australian defence. It’s a commitment to providing the right infrastructure and the right people.
+ - All the government decisions remain and won’t be altered until I get in the role and have had a chance to discuss them with my colleagues.
+ - The two defining issues of this century are both universal but felt locally: the global water crisis and the resources boom.
+
+19 quotes

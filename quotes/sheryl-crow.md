@@ -1,0 +1,120 @@
+ - You’re my favorite mistake.
+ - As you get older, you have your tribe of women that you grow and age gracefully with and you share wisdom with. That’s your clan. That’s your family. That’s your strength.
+ - The only person who can save you is you: That going to be the thing that informed the rest of my life.
+ - I’m still the king of me.
+ - Then not everything is gonna be the way you think it oughta be. It seems like everytime I try to make it right, it all comes down on me. Please say honestly you won’t give up on me, and I shall believe.
+ - Making miracles is hard work, most people give up before they happen.
+ - It’s just a question of eliminating obstacles.
+ - No matter how chaotic it is, wildflowers will still spring up in the middle of nowhere.
+ - I am learning. I’m a slow learner. I repeat myself three times, relationship wise.
+ - We talk about defining moments, but I think nothing can define you. They’re all refining moments. You’re constantly refining yourself and refining your life.
+ - Just wondering why I feel so all alone, why I’m a stranger in my own?
+ - Music, art, writing – it gives us a sense of who we are, a sense of our history, a sense of our future and it should provide some kind of comfort. It’s not just entertainment for entertainment’s sake, it’s an investment.
+ - Lie to me, I promise to believe. Lie to me, but please don’t leave.
+ - Let’s face it, life is a constant challenge. It’s full of unexpected detours that no one but you can navigate.
+ - If you’d like to reach me, leave me alone.
+ - I know that nuclear is better than fossil fuels when it comes to carbon dioxide, but nuclear energy is by no means clean. We don’t know what to do with the waste we already have and it seems like a bad idea to me to make more when we have so many cleaner options such as wind and solar.
+ - I’m standing in the desert, waiting for my ship to come in.
+ - I don’t need to reiterate the fact that that everyone has a relationship with cancer. Whether it’s an individual-personal relationship – whether it’s with family or friends – we’ve all been touched by cancer.
+ - I’ve got no one to blame for every time I feel lame.
+ - Generally, when you let go of your vision of how something is supposed to be, the universe hands you exactly what you need.
+ - The beauty of having a producer is that you have someone who says, You’re finished.
+ - Where I fit in is confusing to me.
+ - I try to conduct my life with a little levity.
+ - I hate that word, mature, but I guess I am growing up.
+ - I have a healthy cynicism, but not anger.
+ - Life’s so full that you just take it one day at a time.
+ - You can’t be in the public eye without making mistakes and having some regrets and having people analyze everything you do.
+ - I like a good beer buzz early in the morning.
+ - Chasing dragons with plastic swords, Jack Off Jimmy everybody wants more.
+ - If you want to turn on your boyfriend, get naked and strap on an accordion.
+ - I got to learn to surf.
+ - There ain’t nothing like regret to remind you’re alive.
+ - Are you strong enough to be my man?
+ - Everybody gets high, everybody gets low, these are the days when anything goes.
+ - Took your car, drove to Texas. Sorry honey, but I suspected, you and I can’t cry anymore.
+ - I draw from my family and my friends and I feel like that small-town person. The achievements, the materialistic possessions have really become to mean less. They mean nothing.
+ - I am sweet, I am ugly, I am mean if you love me. I’ll try hard just to please you, when I say I don’t need you.
+ - The cheapest energy is the energy you don’t use in the first place.
+ - I’m singing the way that I love to sing, which is like old soul, like old Al Green. I grew up about an hour from Memphis. So all that music that I grew up with – the Stax music and early rhythm ‘n’ blues – I’m doing that. I’m actually getting out from behind my guitar and I’m singing.
+ - Don’t the wounded bird still sing?
+ - Someone like me shouldnt be diagnosed with breast cancer, thats what was going through my mind. I wasnt thinking about a diagnosis. I was just doing what I was supposed to do, which was staying on top of my mammograms. It was a shock.
+ - If compassion was the motivating factor behind all of our decisions, would our world not be a completely different place?
+ - Being an older mom, I’m super mellow with my kids. Also, “curious” and “loving.”
+ - I snore. I’ve had two or three people complain about it.
+ - That feeling of freedom, open highways of possibilities, has kind of been lost to materialism and marketing.
+ - People go through challenging moments of losing people and of having their life threatened from illness and real grief. But they get through it. And that’s the testament to the human spirit and it’s -we are fragile, but we also are divine.
+ - More than 10 million Americans are living with cancer, and they demonstrate the ever-increasing possibility of living beyond cancer.
+ - Your art kind of changes as you get older, by nature of the fact that you’re hopefully gaining wisdom and you’re starting to watch things with a better overview.
+ - All my friends say I have to get right back on the bike. And I keep saying, “Maybe not a bike!”
+ - God, I felt like hell tonight, tears of rage I cannot fight.
+ - Then when I cut my hair short, my career tanked for about four years!
+ - My yesterdays are all boxed up and neatly put away.
+ - I used to jog every day and call it my ‘gratitude run.’ I’d make my gratitude list as I ran. I never ran out of things to be grateful for. My knees aren’t what they used to be, but I still do my gratitude list every day.
+ - One of the greatest ways to stay young is to have little kids.
+ - Justice is a fading light.
+ - Beatle’s wrote the Nike song and called it macaroni.
+ - I feel like I’ve passed through a certain door in my life and that I’m standing in a different room now.
+ - Deeper than temperature and the extinction of the polar bear is the idea that we all share this beautiful, ailing planet, Democrats and Republicans alike.
+ - I think war is based in greed and there are huge karmic retributions that will follow. I think war is never the answer to solving any problems. The best way to solve problems is to not have enemies.
+ - Some women drop off the face of the earth when they get involved with a man. And that’s what it’s been like with me.
+ - The greatest hits in some weird way marks the end of something.
+ - Being diagnosed with a possibly life-threatening disease is so jarring and for me to know that God had me in his hands, I never felt alone.
+ - I think your life informs your art.
+ - You don’t bring me anything but down.
+ - I pride myself on finding balance. I love making music and I love raising my boys – I find time to make both a priority.
+ - Music commands how we feel, dictates what we experience in our feelings.
+ - Music really becomes the soundtrack to the major events to your life.
+ - I have a philosophy that everything you write doesn’t have to be good for everybody. There are going to be people that get irritated by some of the things I write-including my parents. And then there are going to be people that you draw in because of the pointedness of certain things.
+ - We are a testament to the importance of early detection and new treatments. I encourage all women everywhere to advocate for themselves and for their future. See your doctor and be proactive about your health.
+ - One night, Don Henley called, and I told him, ‘I’m washing dishes and bike shorts.’ He said, ‘It’s in the domestic exercises of life that one will find the biggest inspiration.’ And he was right.
+ - Beck said he didn’t believe in the theory of a song coming through you as if you were an open vessel. I agree with him to a certain extent.
+ - It’s interesting when I jog, how much the music makes a difference. You can pretty much count on the Foo Fighters to get your heart rate up.
+ - My first record had just broken, and these guys wanted my autograph. I thought, Oh, god, they recognize me. Turns out they thought I was Heidi Fleiss.
+ - I can always tell when people have had plastic surgery.
+ - So what if right now everything is wrong?
+ - I propose a limitation be put on how many squares of toilet paper can be used in any one sitting.
+ - I dress up with a conscience when I think you’ll be watching. I say all the right things, I don’t know what I mean.
+ - I feel like I am beginning to be a part of a musical community, but I wouldn’t say I’m a country artist because I wouldn’t want to invalidate anybody else or to even begin to be so preposterous as to think I can just skate into town and get some fans.
+ - People don’t realize that I’m really funny and I’m an excellent bridge player.
+ - I don’t set goals for myself too much, but I’m always trying to write that one great song.
+ - My sister, she says she knows Elvis.
+ - Now that I’m in my 40s, it’s much easier to be an artist. It’s good knowing that I’m not in the game to be competing with really young groups of kids on the radio. Or to, you know, make ‘beat’ music.
+ - The younger generation of performers really enjoy their success. Its like they know their moment is here right now and probably won’t be here in a few years.
+ - I try to ride my horses three times a week. It’s nice to be out in nature, where you can’t take a phone call.
+ - I didn’t get into making music for the fame aspect. There are people who do desire that.
+ - However I am is however I am. When you see me onstage or in the press, there’s not a lot of thought and calculation that goes into it.
+ - I hate how I’ve had the mantle set on my shoulders as being against the record label. We’ve had some issues, but that is the nature of business.
+ - I’ve been really, really blessed. I got to perform on stage with Bob Dylan. I’ve gotten to sing with Mick Jagger.
+ - There’s a lot of integrity with musicians; you really still aspire to grow, and be great, to be the best version of yourself you can be.
+ - I have a face I cannot show, I make the rules up as I go.
+ - I’m not much of a partier anymore. I enjoy clarity much more.
+ - Now and then it’s clear to me, that need is love, and love is need.
+ - It’s better to have three broken engagements than three divorces.
+ - I thrive on being on the road, waking up in a different place every day and having my life revolve around music. When you walk out in front of 300,000 people and pull it off, it validates you.
+ - A lot of people seem to get preoccupied with what I’m wearing as opposed to the music.
+ - We can’t be certain who the villains are cuz everyone’s so pretty, but the after party’s sure to be the wing-ding as it moves into your city.
+ - One of the things that I wound up loving about being involved with a bike racer was learning how to bike and how that really creates solitary time for you to reflect on things and nobody can get a hold of you.
+ - Steve McQueen was from a time when you didn’t know every little dirty thing about our public figures. He and James Dean were very mysterious, archetypal American heroes.
+ - I don’t spend a lot of time thinking about regrets because there’s nothing I can do.
+ - I find a lot of joy just going out and playing for people.
+ - I have a golden Lab who goes everywhere with me. He’s a great leveler.
+ - Artists have really never had any representation on Capitol Hill, because it’s not the nature of the artist to join together and make a unified presence. Those days kind of died in the ’60s.
+ - I don’t really cringe over any of my albums.
+ - A song that sounds simple is just not that easy to write. One of the objectives of this record was to try and write melodies that continue to resonate.
+ - I become more seasoned, it’s less interesting to try and compete in the pop market.
+ - Being diagnosed with cancer really opened my eyes to the fact anyone can have it and that even though we think we have control over everything in our lives, we don’t.
+ - Watch our children while they kill each other with guns they bought at Wal-Mart.
+ - The video forum for me has been a source of great consternation because once you start projecting a look to a song, it robs the listener of their ability to adopt that song and make the lyric their own.
+ - Most writers like to maintain some sort of anonymity. For me, making videos was an assault.
+ - I had the luxury of falling down a few times and picking myself up as a stronger version of myself.
+ - How the world perceives you is largely out of your control.
+ - I would never put a video in front of my kid. While I don’t use videos as a babysitter, they have come in handy on the airplane.
+ - When you tune your guitar in a different way, it lends itself to a new way of looking at your songwriting.
+ - I’m not dead. I mean, I may be getting older, but I’m not dead!
+ - As both a musician and a former teacher, I feel that music is as important to kids as reading and writing.
+ - I have been around for a long, long time. I didn’t make it ’til I was older. I went through the period when women were not getting signed, particularly if you were writing songs that were lyrically propelled.
+ - The bands that wrote the big, heroic rock songs – I really wanted to make a record like that.
+ - If it makes you happy it can’t be that bad.
+
+118 quotes

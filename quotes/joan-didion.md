@@ -1,0 +1,178 @@
+ - We are the stories we tell ourselves.
+ - We tell ourselves stories in order to live.
+ - I don’t know what I think until I write it down.
+ - I have already lost touch with a couple of people I used to be.
+ - I use an IBM Thinkpad. I just use it like a typewriter, but when I started using it in 1987, I thought I won’t be able to write anymore, so I thought I’d go back to the typewriter. But you couldn’t go back to the typewriter after using the computer.
+ - The willingness to accept responsibility for one’s own life is the source from which self-respect springs.
+ - We tell ourselves stories in order to live. We live entirely by the impression of a narrative line upon disparate images, the shifting phantasmagoria, which is our actual experience.
+ - To free us from the expectations of others, to give us back to ourselves – there lies the great, singular power of self-respect.
+ - When the ground starts moving, all bets are off.
+ - Self-respect is a question of recognizing that anything worth having has a price.
+ - Read, learn, work it up, go to the literature. Information is control.
+ - Life changes in the instant. The ordinary instant.
+ - Grief turns out to be a place none of us know until we reach it.
+ - That was the year, my twenty-eighth, when I was discovering that not all of the promises would be kept, that some things are in fact irrevocable and that it had counted after all, every evasion and every procrastination, every mistake, every word, all of it.
+ - I write entirely to find out what I’m thinking, what I’m looking at, what I see and what it means. What I want and what I fear.
+ - Grammar is a piano I play by ear.
+ - We write to discover what we think.
+ - New York was no mere city. It was instead an infinitely romantic notion.
+ - You have to pick the places you don’t walk away from.
+ - There’s a point when you go with what you’ve got. Or you don’t go.
+ - Keepers of private notebooks are a different breed altogether, lonely and resistant rearrangers of things, anxious malcontents, children afflicted apparently at birth with some presentiment of loss.
+ - The impulse to write things down is a peculiarly compulsive one, inexplicable to those who do not share it.
+ - A place belongs forever to whoever claims it hardest, remembers it most obsessively, wrenches it from itself, shapes it, renders it, loves it so radically that he remakes it in his own image.
+ - Writers are only rarely likable.
+ - We forget all too soon the things we thought we could never forget. We forget the loves and the betrayals alike, forget what we whispered and what we screamed, forget who we were.
+ - Life changes fast. Life changes in the instant. You sit down to dinner and life as you know it ends.
+ - Grief, when it comes, is nothing we expect it to be. Grief has no distance. Grief comes in waves, paroxysms, sudden apprehensions that weaken the knees and blind the eyes and obliterate the dailiness of life.
+ - Had I been blessed with even limited access to my own mind there would have been no reason to write.
+ - That no one dies of migraine seems, to someone deep into an attack, an ambiguous blessing.
+ - If you want to understand what you’re thinking, you kind of have to work it through and write it. And the only way to work it through, for me, is to write it.
+ - In the early years, you fight because you don’t understand each other. In the later years, you fight because you do.
+ - Writing is the act of saying “I,” of imposing oneself upon other people, of saying “listen to me, see it my way, change your mind.”
+ - I know something about dread myself, and appreciate the elaborate systems with which some people fill the void, appreciate all the opiates of the people, whether they are as accessible as alcohol and heroin and promiscuity or as hard to come by as faith in God or History.
+ - I wanted to be an oceanographer, actually. It’s a way of going underwater. I’ve always been interested in how deep it was, you know.
+ - The fear is for what is still to be lost.
+ - We are well advised to keep on nodding terms with the people we used to be, whether we find them attractive company or not.
+ - He was an outsider who lived by his ability to manipulate the inside.
+ - Was there ever in anyone’s life span a point free in time, devoid of memory, a night when choice was any more than the sum of all the choices gone before?
+ - The wind shows us how close to the edge we are.
+ - The apparent ease of California life is an illusion, and those who believe the illusion will live here in only the most temporary way.
+ - It is often said that New York is a city for only the very rich and the very poor. It is less often said that New York is also, at least for those of us who came there from somewhere else, a city for only the very young.
+ - A single person is missing for you, and the whole world is empty.
+ - Grief, when it comes, is nothing like we expect it to be.
+ - You aren’t sure if you’re making the right decision – about anything, ever.
+ - I was in love with New York. I do not mean ‘love’ in any colloquial way, I mean that I was in love with the city, the way you love the first person who ever touches you and never love anyone quite that way again.
+ - The future always looks good in the golden land, because no one remembers the past.
+ - People tend to forget that my presence runs counter to their best interests. And it always does. That is one last thing to remember. Writers are always selling somebody out.
+ - Marriage is memory, marriage is time. Marriage is not only time: it is also, parodoxically, the denial of time.
+ - What makes Iago evil? Some people ask. I never ask.
+ - It is easy to see the beginnings of things, and harder to see the ends.
+ - In terms of work, I never felt that I’ve done it right. I always want to have done it differently, to have done it better, a different way.
+ - I need an hour alone before dinner, with a drink, to go over what I’ve done that day. I can’t do it late in the afternoon because I’m too close to it. Also, the drink helps. It removes me from the pages.
+ - I did consider marriage and motherhood extreme and doomed commitments. Not out of any experience of them as such, but it was simply the way I looked at things.
+ - Let me tell you one thing about why writers write: had I known the answer to any of these questions I would never have needed to write a novel.
+ - California: The west coast of Iowa.
+ - Information is control.
+ - To cure jealousy is to see it for what it is, a dissatisfaction with self.
+ - To cure jealousy is to see it for what it is, a dissatisfaction with self, an impossible claim that one should be at once Rose Bowl princess, medieval scholar, Saint Joan, Milly Theale, Temple Drake, Eleanor of Aquitaine, one.
+ - Memory fades, memory adjusts, memory conforms to what we think we remember.
+ - Innocence ends when one is stripped of the delusion that one likes oneself.
+ - Short stories demand a certain awareness of one’s own intentions, a certain narrowing of the focus.
+ - I am a writer. Imagining what someone would say or do comes to me as naturally as breathing.
+ - I have not been the witness I wanted to be.
+ - Quite often you want to tell somebody your dream, your nightmare. Well, nobody wants to hear about someone else’s dream, good or bad; nobody wants to walk around with it. The writer is always tricking the reader into listening to the dream.
+ - Everything goes. I am working very hard at not thinking about how everything goes.
+ - Anything worth having has its price.
+ - I’ve never been keen on open adoption. It doesn’t seem to solve the main problem with adoption, which is that somebody feels she was abandoned by someone else.
+ - My writing is a process of rewriting, of going back and changing and filling in. in the rewriting process you discover what’s going on, and you go back and bring it up to that point.
+ - I learned early to keep death in my line of sight, keep it under surveillance, keep it on cleared ground and away from any brush where it might coil unnoticed.
+ - I know what the fear is. The fear is not for what is lost. What is lost is already in the wall. What is lost is already behind the locked doors. The fear is for what is still to be lost.
+ - There is always a point in the writing of a piece when I sit in a room literally papered with false starts and cannot put one word after another and imagine that I have suffered a small stroke, leaving me apparently undamaged but actually aphasic.
+ - I have never started a novel – I mean except the first, when I was starting a novel just to start a novel – I’ve never written one without rereading Victory. It opens up the possibilities of a novel. It makes it seem worth doing.
+ - Novels are almost like music or poetry – they just come to me in simple sentences, whereas I think my pieces get more and more complex ever since I’ve started using a computer.
+ - I never actually learned the rules of grammar, relying instead only on what sounded right.
+ - I know why we try to keep the dead alive: we try to keep them alive in order to keep them with us.
+ - Writing nonfiction is more like sculpture, a matter of shaping the research into the finished thing.
+ - Memories are what you no longer want to remember.
+ - It occurs to me that we allow ourselves to imagine only such messages as we need to survive.
+ - We all have the same dreams.
+ - The last sentence in a piece is another adventure. It should open the piece up.
+ - The impulse for much writing is homesickness. You are trying to get back home, and in your writing you are invoking that home, so you are assuaging the homesickness.
+ - To have that sense of one’s intrinsic worth which constitutes self-respect is potentially to have everything.
+ - Some of us who live in arid parts of the world think about water with a reverence others might find excessive.
+ - When you’re writing fiction, you don’t have notes necessarily. You don’t carve it, it’s not like a piece of sculpture, it’s more like water color.
+ - There’s a general impulse to distract the grieving person – as if you could.
+ - Was it only by dreaming or writing that I could find out what I thought?
+ - I don’t have a very clear idea of who the characters are until they start talking.
+ - Nonfiction is more personal for me. It’s more personal in that it’s more direct, and actually it’s always been more direct, even when I first started doing pieces.
+ - I’m totally in control of this tiny, tiny world right there at the typewriter.
+ - Of course, you always think about how it will be read. I always aim for a reading in one sitting.
+ - I read so ravenously that I would read through whole categories. I was crazy about reading biographies. I think biographies are very urgent to children.
+ - It’s hard to find a book that’s safe to write. Because one always goes to dark or difficult places.
+ - I lead a very conventional life.
+ - Vegas is the most extreme and allegorical of American settlements, bizarre and beautiful in its venality and in its devotion to immediate gratification.
+ - Aging and its evidence remain lifes most predictable events, yet they also remain matters we prefer to leave unmentioned, unexplored.
+ - Late afternoon on the West Coast ends with the sky doing all its brilliant stuff.
+ - I don’t think anybody feels like they’re a good parent. Or if people think they’re good parents, they ought to think again.
+ - California is a place in which a boom mentality and a sense of Chekhovian loss meet in uneasy suspension.
+ - Becoming a parent is actually terrifying. A lot of people have that feeling about their dogs. And if you’re the kind of person who’s going to have that feeling about a dog you’re definitely going to have that about a child.
+ - I work every day. Sometimes I don’t accomplish anything every day, but if I don’t work every day, I get depressed and get afraid to start again. So I do something every day.
+ - Of course great hotels have always been social ideas, flawless mirrors to the particular societies they service.
+ - The ability to think for one’s self depends upon one’s mastery of the language.
+ - Why do you always have to be right. Why do you always have to have the last word. For once in your life just let it go.
+ - One thing in my defense, not that it matters: I know something Carter never knew, or Helene, or maybe you. I know what “nothing” means, and keep on playing.
+ - The writer is always tricking the reader into listening to their dream.
+ - On the August night in 1933 when General Gerardo Machado, then president of Cuba, flew out of Havana into exile, he took with him five revolvers, seven bags of gold, and five friends, still in their pajamas.
+ - We look for the sermon in the suicide, for the social or moral lesson in the murder of five. We interpret what we see, select the most workable of the multiple choices.
+ - I have always wanted a swimming pool and never had one.
+ - Tuesday, September 11, 2001, dawned temperate and nearly cloudless in the eastern United States.
+ - I closed the box and put it in a closet. There is no real way to deal with everything we lose.
+ - The secret point of money and power in America is neither the things that money can buy nor power for power’s sake but absolute personal freedom, mobility, privacy.
+ - Only the dying man can tell how much time he has left.
+ - I mean maybe I was holding all the aces, but what was the game?
+ - Water is important to people who do not have it, and the same is true of control.
+ - A young woman with long hair and a short white halter dress walks through the casino at the Riviera in Las Vegas at one in the morning. It was precisely this moment that made Play It As It Lays begin to tell itself to me.
+ - What does it cost to lose those weeks, that light, the very nights in the year preferred over all others? Can you evade the dying of the brightness? Or do you evade only its warning? Where are you left if you miss the message the blue nights bring?
+ - Time is the school in which we learn.
+ - You had to feel the swell change. You had to go with the change. He told me that. No eye is on the sparrow but he did tell me that.
+ - The fancy that extraterrestrial life is by definition of a higher order than our own is one that soothes all children, and many writers.
+ - Nothing I read about grief seemed to exactly express the craziness of it; which was the interesting aspect of it to me – how really tenuous our sanity is.
+ - I do have a strong sense of an order in the universe.
+ - Ask anyone committed to Marxist analysis how many angels on the head of a pin, and you will be asked in return to never mind the angels, tell me who controls the production of pins.
+ - Marriage is memory, marriage is time.
+ - Hand that on parting squeezes your shoulder, salutes the small of your back.
+ - I recognize a lot of the things I’m going through. Like, I lose my temper a lot and I become unhinged and kind of hysterical.
+ - In the absence of a natural disaster we are left again to our own uneasy devices.
+ - I know why we try to keep the dead alive: we try to keep them alive in order to keep them with us. I also know that if we are to live ourselves there comes a point at which we must relinquish the dead, let them go, keep them dead.
+ - I don’t write for catharsis; I have to write to understand.
+ - When I’m working on a book, I constantly retype my own sentences. Every day I go back to page one and just retype what I have. It gets me into a rhythm.
+ - I think nobody owns the land until their dead are in it.
+ - I know what “nothing” means, and keep on playing.
+ - Strength is one of those things you’re supposed to have. You don’t feel that you have it at the time you’re going through it.
+ - We imagined we knew everything the other thought, even when we did not necessarily want to know it, but in fact, I have come to see, we knew not the smallest fraction of what there was to know.
+ - One of the things that happens to people in grief is they secretly think they’re crazy, because they realize they are thinking things that don’t make sense.
+ - I never had much interest in being a child. As a way of being it seemed flat, failed to engage.
+ - Writers are always selling somebody out.
+ - I always want everything read in one sitting. If they can’t read it in one sitting, you’re going to lose the rhythm of it. You’re going to lose the shape of it.
+ - To shift the structure of a sentence alters the meaning of that sentence, as definitely and inflexibly as the position of a camera alters the meaning of the object photographed.
+ - Once I get over maybe a hundred pages, I won’t go back to page one, but I might go back to page fifty-five, or twenty, even. But then every once in a while I feel the need to go to page one again and start rewriting.
+ - We forget all too soon the things we thought we could never forget.
+ - What’s so hard about that first sentence is that you’re stuck with it. Everything else is going to flow out of that sentence. And by the time you’ve laid down the first two sentences, your options are all gone.
+ - I don’t lead a writer’s life. And I think that can be a source of suspicion and irritation to some people.
+ - For however dutifully we record what we see around us, the common denominator of all we see is always, transparently, shamelessly, the implacable I.
+ - We live entirely, especially if we are writers, by the imposition of a narrative line upon disparate images.
+ - Americans are uneasy with their possessions, guilty about power, all of which is difficult for Europeans to perceive because they are themselves so truly materialistic, so versed in the uses of power.
+ - I myself love to read those Victorian novels which go on and on, and you don’t read them in one sitting. You might read one over the course of a summer, but that isn’t what I want to write.
+ - The minute you start putting words on paper you’re eliminating possibilities.
+ - Most death now happens in hospitals. It’s been medicalized. It happens away from where we deal with it directly. And that’s a huge change. At the beginning of the 20th century most people died at home. Death was much more common.
+ - Let me just be in the ground. Let me just be in the ground and go to sleep.
+ - What you’re normally doing as a writer is trying to find the narrative.
+ - It Was Once Suggested to Me that, as an Antidote to Crying, I Put My Head in a Paper Bag.
+ - When I am near the end of a book, I have to sleep in the same room with it.
+ - I can’t imagine writing if I didn’t have a reader. Any more than an actor can imagine acting without an audience.
+ - It’s just a deep pleasure to read something you’ve written yourself – if and when you like it.
+ - I came into adult life equipped with an essentially romantic ethic.
+ - There’s a lot of landscape I never would have described if I hadn’t been homesick. The impulse was nostalgia.
+ - There was a level on which I believed that what had happened remained reversible.
+ - Novels are like paintings, specifically watercolors. Every stroke you put down you have to go with. Of course you can rewrite, but the original strokes are still there in the texture of the thing.
+ - Details are our business as writers. Your heart leaps when you see a detail that can go somewhere.
+ - My only advantage as a reporter is that I am so physically small, so temperamentally unobtrusive, and so neurotically inarticulate that people tend to forget that my presence runs counter to their best interests.
+ - There must be times when everybody writes when they feel they’re evading writing.
+ - And I have learned now to live with it, learned when to expect it, how to outwit it, even how to regard it, when it does come, as more friend than lodger. We have reached a certain understanding, my migraine and I.
+ - A pool is, for many of us in the West, a symbol not of affluence but of order, of control over the uncontrollable. A pool is water, made available and useful, and is, as such, infinitely soothing to the western eye.
+ - Something I’ve always known about the screen is that if it’s anything in the world, it’s literal. It’s so literal that there’s a whole lot you can’t do because you’re stuck with the literalness of the screen. The stage is not literal.
+ - If you aren’t aware of the reader, you’re working in a vacuum.
+ - I was no longer, if I had ever been, afraid to die: I was now afraid not to die.
+ - You think you have some stable talent which will show no matter what you’re writing, and if it doesn’t seem to be getting across to the audience once, you can’t imagine that moment when it suddenly will.
+ - Mourning has its place but also its limits.
+ - You have to make sure you have the characters you want. That’s really the most complicated part.
+ - Burroughs’s voice is hard, derisive, inventive, free, funny, serious, poetic, indelibly American.
+ - I could talk more directly in a nonfiction voice than I could in fiction.
+ - I hadn’t thought that I was generally a pack rat, but it turns out I am.
+ - My own fantasies of what life would be like at 24 tended to the more spectacular.
+ - I’ve always been fascinated with marine geography and how deep things are. I was spellbound by the tsunami, for example, by the actual maps. There is just something about the unseen bottom of the sea that has always fascinated me, how deep is it.
+ - Somehow writing has always seemed to me to have an element of performance.
+ - Before I’d written movies, I never could do big set-piece scenes with a lot of different speakers – when you’ve got twelve people around a dinner table talking at cross purposes. I had always been impressed by other people’s ability to do that.
+
+176 quotes

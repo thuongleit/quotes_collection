@@ -1,0 +1,104 @@
+ - The keys to brand success are self-definition, transparency, authenticity and accountability.
+ - Technology is teaching us to be human again.
+ - Make the customer the hero of your brand’s story.
+ - The future of profit is purpose.
+ - Like all technology, social media is neutral but is best put to work in the service of building a better world.
+ - Ensure your employees understand what your brand stands for so they can be your first line of word-of-mouth advertising.
+ - Define what your brand stands for, its core values and tone of voice, and then communicate consistently in those terms.
+ - The simple act of saying ‘thank you’ is a demonstration of gratitude in response to an experience that was meaningful to a customer or citizen.
+ - Brands must become architects of community.
+ - More than ever before, consumers have the ability to unify their voices and coalesce their buying power to influence corporate behaviors.
+ - If a brand genuinely wants to make a social contribution, it should start with who they are, not what they do. For only when a brand has defined itself and its core values can it identify causes or social responsibility initiatives that are in alignment with its authentic brand story.
+ - Many corporate leaders and employees have the right intentions, but it can be overwhelming when you consider how everything is affected from leadership styles, to organizational structure, to employee engagement, to customer service an marketplace.
+ - Effectively, change is almost impossible without industry-wide collaboration, cooperation and consensus.
+ - Creating a better world requires teamwork, partnerships, and collaboration, as we need an entire army of companies to work together to build a better world within the next few decades. This means corporations must embrace the benefits of cooperating with one another.
+ - Social media is not about the exploitation of technology but service to community.
+ - The leverage and influence social media gives citizens are rapidly spreading into the business world.
+ - Social media is not an end in itself. It’s just another tool to reach people.
+ - One of the greatest challenges companies face in adjusting to the impact of social media, is knowing where to start.
+ - The currency of universal values make brands innately sharable.
+ - Social media demands a lot of us on top of our already demanding lives. So let’s disconnect as we need to and renew our interest and ourselves.
+ - The role of social media is critical because it helps to spread cognitive dissonance by connecting thought leaders and activists to ordinary citizens rapidly expanding the network of people who become willing to take action.
+ - When people align around shared political, social, economic or environmental values, and take collective action, thinking and behaviour that compromises the lives of millions of people around the world can truly change.
+ - Your computer needn’t be the first thing your see in the morning and the last thing you see at night.
+ - However, it was the great 18th century social philosophers John Locke, Thomas Hobbes, and Jean-Jacques Rousseau who brought the concept of a social contract between citizens and governments sharply into political thinking, paving the way for popular democracy and constitutional republicanism.
+ - Through their own actions, customers can hold companies responsible to higher standards of social responsibility. Through collective action, they can leverage their dollars to combat the force of those investors who myopically pursue profits at the expense of the rest of society.
+ - Social media companies must combine their mastery of the latest in real-time, location based or augmented reality technologies in the service of clear and consistent storytelling.
+ - In the coming years, if not sooner, social media will become a powerful tool that consumers will aggressively use to influence business attitudes and force companies into greater social responsibility – and, I suggest, move us towards a more sustainable practice of capitalism.
+ - What today’s business reality makes clear is that brands cannot survive in a society that is failing economically, socially, ethically, and morally.
+ - Brands must empower their community to be change agents in their own right. To that end, they need to take on a mentoring role. This means the brand provides the tools, techniques and strategies for their customers to become more effective marketers in achieving their own goals.
+ - Everyone living under the social contract we call democracy has a duty to act responsibly, to obey the laws, and to abandon certain types of self-interested behaviors that conflict with the general good.
+ - Brands are facing a new competitive landscape in which self-definition, core values and purpose will increasingly define their ability to reach customers that only allow what is meaningful in their lives to pass through their filter.
+ - If a brand wants to build social communities, capital and influence, it must become the chief celebrant of its community, not its celebrity. This simple shift in approach unlocks enormous transformative potential for brands.
+ - Consumers desiring a better world have already achieved some successes in this regard, helping to transform several industries from the ground up.
+ - Transforming a brand into a socially responsible leader doesn’t happen overnight by simply writing new marketing and advertising strategies. It takes effort to identify a vision that your customers will find credible and aligned with their values.
+ - Non-disclosure in the Internet Age is quickly perceived as a breach of trust. Government, corporations and each of us as individuals must recalibrate how we live and share our lives appropriate to the information now available and the expectations of others.
+ - As any speaker will tell you, when you address a large number of people from a stage, you try to make eye contact with people in the audience to communicate that you’re accessible and interested in them.
+ - Integrate purpose into your for-profit business model through a long term commitment to a cause that is aligned with your core values and those of your community.
+ - The framing of how we relate to each other within and across social media platforms will continue to become more sophisticated and nuanced in their expression of how we structure our relationships in our real world lives.
+ - As a function of the easy access to information provided by the Internet, and the ease with which it can be shared thanks to social media, consumers are now better informed as to the behavior of brands and the multiple global crises we face.
+ - Executives can no longer hide behind the corporate veil. They need to be accountable for what their companies do, because entities are responsible for socially irresponsible behavior.
+ - Business practices and how we treat the planet are also in desperate need of re-humanization.
+ - Let’s hope brands recognize that the true power of this technology is not its reach but its ability to communicate substance that adds meaning to our lives. Otherwise, brands will be investing in technology that consumers simply won’t buy.
+ - The new dynamics between brands and consumers, driven by social media, are proving to be a powerful impetus for change.
+ - For decades, media companies have largely controlled the tools through which consumers were told what to buy, wear or think. Now consumers possess the same ability to produce, distribute and curate content and distribute it to their peers in real time across social media platforms.
+ - Find the human in the technology. The currency marketers trade in has not changed even if the methods have. Emotion is what we exchange.
+ - When a positive exchange between a brand and customers becomes quantifiable metrics, it encourages brand to provide better service, customer service to do a better job, and consumers to actively show their gratitude.
+ - The United States is at a critical juncture in time. Our government is riddled with historic debt, and the limited resources of philanthropic and non-profit efforts cannot meet the scale of social challenges we face with necessary force.
+ - We now see numerous examples of brands working together to address issues such as environmental degradations, climate control, pollution, poverty and disease.
+ - There is a fundamental shift that social media necessitates in business today – the need to transition from ‘Me First’ to ‘We First’ thinking.
+ - Non-profits must become deeply engaged in the ways that their donor communities are using social technology.
+ - The creative destruction that social media is currently unleashing will change more than technology or the leader board of the Fortune 100. It is driving a qualitative shift in the nature of relationships between brands and their customers.
+ - Done correctly, everyone from individual speakers to large organizations can inspire citizens and customers to spread a message using their own social channels, and in so doing, inspire countless supporters to build their reputation, profits and social impact.
+ - Ultimately, it’s possible that social media platforms will be designed as templates that the users themselves customize in terms of the best way to express their community and experience of life, and brands will have to simply follow suit.
+ - Any institution faces two basic choices if they hope to spark new ideas. One is to leverage the brains trust within their organization by creating a special event dedicated to new thinking. The other is to look outside themselves to stimulate solutions.
+ - For a truly effective social campaign, a brand needs to embrace the first principles of marketing, which involves brand definition and consistent storytelling.
+ - As we approach each of the great social challenges of our time we must acknowledge that old thinking will not provide the new solutions we need. These solutions will be uncomfortable, hard to sell and risky to execute. But the cost of not doing so is even greater.
+ - A social contract is the way out of this dilemma for corporations that want to lead in the 21st century by showing consumers how seriously they take customer loyalty and goodwill.
+ - When thinking through who to bring together to generate new ideas, it is more effective to combine specialists from very different and unrelated disciplines rather than a variety of people with different skills sets in the same field.
+ - The most impactful way consumers can assert their power is to become mindful shoppers, giving their dollars only to socially responsible companies. In today’s world of social media and smart phones, this is easy to do.
+ - In the social business marketplace, brands that hope to build loyal and growing communities do so most effectively when they demonstrate their core values and allow a community to build and engage around it.
+ - Not since the digital revolution in the early ’90s has technology placed such a comprehensive burden on business, employees and individuals to reinvent their business plans, services and products, and themselves to keep pace with the changing marketplace.
+ - Since most corporate competitors have the same problems with sustainability and social reputation, it’s worth trying to solve them together.
+ - There are many individuals, companies and even countries operating in what I call a ‘me first’ mentality, which is effectively a purely competitive approach to life, treating the planet as if it has infinite resources and pitting one country against another for supremacy.
+ - The false separation between living and giving must end.
+ - Corporate America cannot afford to remain silent or passive about the downward spiral we are undergoing. It cannot turn a blind eye to how difficult the experience of life is for so many of their customers.
+ - And if you look at the reality in the United States, where you have more than 40 million people below the poverty line and 42 million on food stamps, and then you look at poverty around the world, clearly the way we’re running the engine of capitalism is not serving us well.
+ - The private sector must play a role in ensuring the prosperity and health of the people who comprise its market. It is time for the private sector to become a proactive partner contributing to the efforts of governments and philanthropies.
+ - Consumers around the world are more aware of the multiple global crises we face than ever before, thanks to information found on the Internet.
+ - Gluttony might be innocuous were it not for the fact that gluttons tend to disregard whether their self-serving behaviors harm anyone else. We don’t need to look far and wide to find examples of gluttonous behavior, as they are numerous throughout the history of capitalism.
+ - There is an overwhelming amount of information available to us all on the web each day, not to mention what is shared with us by our family, friends, fans, and followers. This necessitates the need to filter through all that information and to decide for ourselves where to put our attention.
+ - How well you tell your story determines how well your customers tell your story.
+ - There’s an adage that is an apt description of the new dynamic at work between brands and consumers connected through social media: People support what they help to build. But now that many brands are launching community-driven cause marketing campaigns, the challenge becomes what to do next?
+ - As more people use social media to tell the story of the future, the wants and needs of more people will be reflected.
+ - Accept that the moment you buy your latest iPad, iPhone, tablet, app or game it will be promptly followed by a vastly improved and sleeker looking version.
+ - By linking with friends and ultimately strangers and building those relationships, social media is reweaving the social fabric that can then be used to scale your non-profit efforts.
+ - It is a truly powerful phenomenon when a brand makes a stand for what it believes in.
+ - Corporate executives need to re-frame their responsibilities to include the interests of all the stakeholders in society at large; not just shareholders, but also employees, the citizens of our communities, and those who care about the environment.
+ - The companies that make meaningful contributions while also listening to the voices of others are the ones that will genuinely engage their community, who will then go to work for them.
+ - Consumers want a better world, not just better widgets.
+ - There is a growing awareness among brands that in order to participate in conversations that are taking place across social networks, they must join these discussions on the basis of something that is meaningful to their customers.
+ - As we all know, lasting relationships can’t be rushed.
+ - A world in which government is burdened by historic debt, philanthropy has limited resources, and the private sector is only interested in its own personal gain is simply unsustainable.
+ - When something works for you or another brand, ask yourself, ‘Why?’ Then don’t copy it but think about what you can do that’s unique to you and better.
+ - Work with your competitors when the interest of the community and planet are at stake.
+ - How much do you as a consumer value a positive experience with a brand or its customer service department? How willing are you to share that with your friends? How inclined are you to let that person know that you’re interaction with them was positive?
+ - Some critics have challenged what the return on investment is for engagement in social media. Others have complained that the metrics don’t exist to demonstrate value.
+ - The social business marketplace is effectively forcing brands to engage with consumers on the basis of something that is meaningful to them. More often than not, this takes the form of some core value that finds expression in a non-profit cause.
+ - Brands must be very specific in their choice of social media platforms through which to communicate their CSR or cause messaging.
+ - Without question, CEOs, executives and employees in companies in the United States and around the world have rallied to face the challenge of a social media marketplace.
+ - Refuse to accept the belief that your professional relevance, career success or financial security turns on the next update on the latest technology. Sometimes it’s good to put the paddle down and just let the canoe glide.
+ - Companies, to date, have often used the excuse that they are only beholden to their shareholders, but we need shareholders to think of themselves as stakeholders in the well being of society as well.
+ - Social technology gives leaders a vital new platform with which to connect their companies to the myriad stakeholders who have an interest in their well being.
+ - Millions of people are falling out of the middle class into the ranks of the poor.
+ - Brands are faced with the daily challenge of massively scaling their outreach in order to build personal relationships. While this may seem like a contradiction in terms, it becomes much more possible when brands shift from push to pull dynamics in their marketing.
+ - Concerned consumers are realizing that they can use social media to organize themselves around shared values to start effective movements. Social media gives them a sounding board to share ideas, as well as a means to punish irresponsible corporate behaviors.
+ - The question remains: which brands will commit to creating a private sector pillar of social change, and which will become casualties of their own outdated thinking?
+ - CEOs must embrace the role of serving as the public face of the company to their customer community and the marketplace at large.
+ - Consumers now have a voice. And the fact that consumers can be creators, producers and distributors means they can push back against brands to punish them for their socially irresponsible behavior or reward them for their responsible behavior.
+ - What is sure is that technological change is accelerating in all directions and, like children playing in a fountain, consumers are reveling in the experience.
+ - The way customers relate to brands and how profit is generated has changed so dramatically almost every professional is being challenged to reconsider what they do in order to stay relevant.
+ - Too many brands treat social media as a one way, broadcast channel, rather than a two-way dialogue through which emotional storytelling can be transferred.
+ - As a speaker, business leader or marketer of any type, the onus is now on each of us to become equally capable of communicating very personally with a seemingly endless number of people connected by social technologies.
+
+102 quotes

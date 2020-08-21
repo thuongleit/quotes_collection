@@ -1,0 +1,176 @@
+ - If you realized how powerful your thoughts are, you would never think a negative thought.
+ - Life is like a mirror. Smile at it and it smiles back at you.
+ - You are within God. God is within you.
+ - Prayer is a concentration of positive thoughts.
+ - Live in the present. Do the things that need to be done. Do all the good you can each day. The future will unfold.
+ - The world is like a mirror; if you smile at it, it smiles at you. I love to smile, and so in general, I definitely receive smiles in return.
+ - You can visualize God’s light each day and send it to someone who needs help. Your divine nature must reach out and touch the divine nature of another. Within you is the light of the world, it must be shared with the world.
+ - There is great freedom in simplicity of living.
+ - Anything you cannot relinquish when it has outlived its usefulness possesses you, and in this materialistic age a great many of us are possessed by our possessions.
+ - We are all cells in the same body of humanity.
+ - After you have found inner peace you have endless energy – the more you give, the more you receive. After you have found your calling, you work easily and joyously. You never get tired.
+ - Think about all the good things of your life. Never think about your difficulties. Forget yourself, and concentrate on being of service as much as you can in this world, and then, having lost your lower self in a cause greater than yourself, you will find your higher self: your real self.
+ - I don’t eat junk foods and I don’t think junk thoughts.
+ - Overcome evil with good, falsehood with truth, and hatred with love. The message isn’t new, but we haven’t learned to live it yet.
+ - People sometimes ask me if I do not feel lonely on holidays. How can I feel lonely when I live in the constant awareness of God’s presence? I love and I enjoy being with people, but when I am alone I enjoy being alone with God.
+ - Keep your feet on the ground and your thoughts at lofty heights.
+ - For light I go directly to the Source of light, not to any of the reflections.
+ - The ideal society has yet to be built – one which balances nicely collective well-being and individual well-being.
+ - Pure love is a willingness to give without a thought of receiving anything in return.
+ - We worship God, but have no faith in the workings of God’s laws of love. The world awaits the living of the law of love, which will reach the divine within all human beings and transform them.
+ - People have found inner peace by losing themselves in a cause larger than themselves. Finding inner peace means coming from the self-centered life into the life centered.
+ - Remember that no one can hurt you except yourself. If someone does a mean thing to you, that person is hurt. You are not really hurt unless you become embittered, or unless you become angry and perhaps do a mean thing in return.
+ - Humanity has only scratched the surface of its real potential.
+ - What we usually call human evolution is the awakening of the divine nature within us.
+ - A life without problems would be a barren existence, without the opportunity for spiritual growth.
+ - I feel a complete protection on my pilgrimage. God is my shield. There are no accidents in the Divine Plan nor does God leave us unattended. No one walks so safely as those who walk humbly and harmlessly with great love and great faith.
+ - There is no glimpse of the light without walking the path. You can’t get it from anyone else, nor can you give it to anyone. Just take whatever steps seem easiest for you, and as you take a few steps it will be easier for you to take a few more.
+ - Looking through the eyes of the divine nature you see the essence within the manifestation, the creator within the creation, and it is a wonderful, wonderful world!
+ - We should never underestimate the great power of the way of love which reaches that spark of good in the other person, always there no matter how deeply buried, and the person is disarmed.
+ - When we attempt to isolate another we only isolate ourselves. We are all God’s children and there are no favorites. God is revealed to all who seek; God speaks to all who will listen. Be still and know God.
+ - There is a criterion by which you can judge whether the thoughts you are thinking and the things you are doing are right for you. The criterion is: Have they brought you inner peace?
+ - When you feel the need for a spiritual lift, try getting to bed early and get up early to have a quiet time at dawn. Then carry the serene ‘in tune’ feeling that comes to you into your day, no matter what you may be doing.
+ - I pray without ceasing now. My personal prayer is: Make me an instrument which only truth can speak.
+ - Fountain of Love my source is in thee – Loving thy will my spirit is free – Beautiful day when all of us see – The hope of the world is Love!
+ - I don’t eat junk foods and I don’t think junk thoughts! Let me tell you, junk thoughts can destroy you even more quickly than junk food. Junk thoughts are something to be wary of.
+ - Do not believe in me or any other teacher, rather trust in your own inner voice. This is your guide, this is your teacher. Your teacher is within not without. Know yourself, not me!
+ - The fear habit is very detrimental because you attract the things you fear. If we have any fear we need to get rid of it.
+ - Never underestimate the power of a loosely knit group working for a good cause. All of us who work for peace together, all of us who pray for peace together, are a small minority, but a powerful spiritual fellowship. Our power is beyond our numbers.
+ - We have all the light we need, we just need to put it in practice.
+ - Anything you strive to hold captive will hold you captive, and if you desire freedom you must give freedom.
+ - When you have constant communion with God, a constant receiving from within, there is never any doubt; you know your way. You become an instrument through which the job is done, therefore you have no feeling of self-achievement.
+ - Worry is useless mulling over of things we cannot change. Worry is not concern, which would motivate you to do everything possible in a situation.
+ - If you think you can’t do something, you can’t. But if you think you can, you may be surprised to discover that you can.
+ - We limit ourselves by thinking things can’t be done. Many think peace in the world is impossible – many think that inner peace cannot be attained. It is the one who doesn’t know it can’t be done who does it!
+ - Every good that you do, every good that you say, every good thought you think, vibrates on and on and never ceases. The evil remains only until it is overcome by good, but the good remains forever.
+ - The pain and suffering that comes to us has a purpose in our lives-it is trying to teach us something. We should look for its lesson.
+ - My inner peace remains in spite of any outward thing. Only insofar as I remain in harmony can I draw others into harmony, and so much more harmony is needed before the world can find peace.
+ - It is not through judgment that the good in people can be reached, but through love and faith.
+ - I shall remain a wanderer until mankind has learned the way of peace.
+ - Just concentrate on thinking and living and acting in harmony with God’s laws and inspiring others to do likewise.
+ - The simplified life is a sanctified life, Much more calm, much less strife. Oh, what wondrous truths are unveiled- Projects succeed which had previously failed. Oh, how beautiful life can be, Beautiful simplicity.
+ - Live according to your highest light and more light will be given.
+ - Inner peace is found by facing life squarely, solving its problems, and delving as far beneath its surface as possible to discover its verities and realities.
+ - The simplification of life is one of the steps to inner peace.
+ - People allow themselves to be slaves of their bad habits and society’s bad habits – but they have free will, and if they wish to be free they can.
+ - Religion is not an end in itself. One’s union with God is the ultimate goal.
+ - If you feed a man a meal, you only feed him for a day-but if you teach a man to grow food, you feed him for a lifetime.
+ - You might say that science operates pragmatically and religion by divine guidance. If valid, they would reach the same conclusions but science would take a lot longer.
+ - Constantly through thought you are creating your inner conditions and helping to create the conditions around you. So keep your thoughts on the positive side, think about the best that could happen, think about the good things you want to happen.
+ - At a simple level, good is that which helps people-evil is that which hurts people. At a higher level, good is that which is in harmony with divine purpose-evil is that which is out of harmony with divine purpose.
+ - Many people who say they have financial problems really mean that they want more than they need.
+ - I shall not accept more than I need while others in the world have less than they need.
+ - Real peace is more than the absence of war; it is an absence of the causes of war.
+ - The lesson of the way of love is that evil can only be overcome by good. We don’t need to reach out and tear down the things that are evil because nothing which is contrary to the law of love can endure.
+ - Unnecessary possessions are unnecessary burdens. If you have them, you have to take care of them! There is great freedom in simplicity of living. It is those who have enough but not too much who are the happiest.
+ - One little person, giving all of her time to peace, makes news. Many people, giving some of their time, can make history.
+ - It’s the one who doesn’t know it can’t be done who does it!
+ - I wish that every child could have growing space because I think children are a little like plants. If they grow too close together, they become thin and sickly and never obtain maximum growth. We need room to grow.
+ - You can find God if you will only seek – by obeying divine laws, by loving people, by relinquishing self-will, attachments, negative thoughts and feelings. And when you find God it will be in stillness. You will find God within.
+ - Visualize a golden light within you and spread it out. First to those about you – your circle of friends and relatives – and then gradually to the world. Keep on visualizing God’s golden light surrounding our earth.
+ - I would like to emphasize again that right prayer leads to right action, that faith without works is dead. An excellent way to put thoughts into action is to write a letter for peace.
+ - Ultimate peace begins within; when we find peace within there will be no more conflict, nor more occasion for war.
+ - I considered myself liberated long before it became the fashion. First I liberated myself from debilitating habits, and went on to free myself of combative, aggressive thoughts. I have also cast aside any unnecessary possessions. This, I feel, is true liberation.
+ - We are all cells in the body of humanity – all of us, all over the world. Each one has a contribution to make, and will know from within what this contribution is.
+ - I’ve met a few people who had to change their jobs in order to change their lives, but I’ve met many more people who merely had to change their motive to service in order to change their lives.
+ - Your lower self sees you as the center of the universe- your higher self sees you as a cell in the body of humanity.
+ - When you make people angry, they act in accordance with their baser instincts, often violently and irrationally. When you inspire people, they act in accordance with their higher instincts, sensibly and rationally. Also, anger is transient, whereas inspiration sometimes has a life-long effect.
+ - The price of peace is to abandon greed and replace it with giving, so that none will be spiritually injured by having more than they need while others in the world still have less than they need.
+ - It is my mission as a pilgrim to act as a messenger expressing spiritual truths. It is a task which I accept joyfully, and I desire nothing in return, neither praise or glory, nor the glitter of silver and gold. I simply rejoice to be able to follow the whisperings of a Higher Will.
+ - If you did not face problems you would just drift through life. It is through solving problems in accordance with the highest light we have that inner growth is attained.
+ - Unnecessary possessions are unnecessary burdens.
+ - Most of us fall short much more by omission than by commission. While the world perishes we go our way: purposeless, passionless, day after day.
+ - If you give your life as a prayer, you intensify the prayer beyond all measure.
+ - It’s very important to get your desires centered so you will desire only to do God’s will for you. You can come to the point of oneness of desire, just to know and do your part in the Life Pattern. When you think about it, is there anything else as really important to desire?
+ - The best way to come to terms with anything that is out of harmony is never to fear it – that gives it power. Bring good influences to bear upon it; make yourself a good example.
+ - Almost all fear is fear of the unknown. Therefore, what’s the remedy? To become acquainted with the things you fear.
+ - Make food a very incidental part of your life by filling your life so full of meaningful things that you’ll hardly have time to think about food.
+ - The purpose of problems is to push you toward obedience to God’s laws, which are exact and cannot be changed. We have the free will to obey them or disobey them. Obedience will bring harmony, disobedience will bring you more problems.
+ - I walk until given shelter, fast until given food. I don’t ask – it’s given without asking. Aren’t people good! There’s a spark of good in everybody, no mater how deeply it may be buried. It’s waiting to govern your life gloriously.
+ - Be willing to face life squarely and get down beneath the surface of life where the verities and realities are to be found.
+ - If you realize that those who do mean things are psychologically ill, your feelings of anger will turn to feelings of pity.
+ - There is a spark of good in everybody, no matter how deeply it may be buried. It is the real you.
+ - When societies are out of harmony, problems develop within the society – collective problems. Their purpose is to push the whole society toward harmony.
+ - It takes quite a while for the living to catch up with the believing, but of course it can. As we live up to the highest light we have, more light is given.
+ - If you don’t have enough you won’t be happy. Neither are you happy if you have too much. It is those who have enough but not too much who are the happiest.
+ - Most human beings only scratch the surface of their real potential. They have no idea what they’re capable of.
+ - If you know but do not do, you are a very unhappy person indeed.
+ - You’re in a much better position to talk with people when they approach you than when you approach them.
+ - People have the most control over their affairs at the grass-roots level. Anything that can be fairly and efficiently handled at a grass-roots level should be thus handled, and only delegated to a higher authority when necessary.
+ - Before the tongue can speak, it must have lost the power to wound.
+ - World peace will never be stable until enough of us find inner peace to stabilize it.
+ - We are that which activates the body.
+ - The valid research for the future is on the inner side, on the spiritual side.
+ - Let us help the phoenix to rise from the ashes; let us help lay the foundation for a new renaissance; let us help to accelerate the spiritual awakening until it lifts us into the golden age which would come.
+ - Evil cannot be overcome by more evil. Evil can only be overcome by good. It is the lesson of the way of love.
+ - If democracy is control by the people, as it is supposed to be, it is the right form of government. I believe in a complete democracy – individual, political, social, economic. If we really had that, which we don’t now, it would be in harmony with divine purpose.
+ - A pilgrim is a wanderer with purpose.
+ - I have faith that God will care for me, and God does provide my needs. I don’t in any way feel insecure because I don’t know where I will sleep at night, where or when I will eat next. When you have spiritual security, you have no more feeling of need for material security.
+ - I am constantly thankful. The world is so beautiful, I am thankful. I have endless energy, I am thankful. I am plugged into the source of Universal Supply, I am thankful. I am plugged into the source of Universal Truth, I am thankful. I have this constant feeling of thankfulness, which is a prayer.
+ - Life is a mixture of successes and failures. May you be encouraged by the successes and strengthened by the failures. As long as you never lose faith in God, you will be victorious over any situation you may face.
+ - Religion is to be used as a stepping stone to God but it must never be used as a tower to hold one aloft from others. We are all cells in the body of humanity. When anyone attempts to isolate another, they only isolate themselves more.
+ - My mission is to help promote peace by helping others to find inner peace. If I can find it, you can too. Peace is an idea whose time has come.
+ - Religion is not an end in itself. One’s union with God is the ultimate goal. There are so many religions because immature people tend to emphasize trivial differences instead of important likenesses. Differences between faiths lie in creeds and rituals rather than in religious principles...
+ - Humanity can only improve as people improve. When you have improved your life, you can inspire those around you to want to improve their lives. Remember that a few in harmony with God’s will are more powerful than multitudes out of harmony.
+ - It isn’t enough just to do right things and say right things, you must also think right things before your life can come into harmony.
+ - Many people profess Christianity. Very few live it-almost none. And when you live it people may think you’re crazy. It has been truthfully said that the world is equally shocked by one who repudiates Christianity as by one who practices it.
+ - Faith is a belief in things that your senses have not experienced and your mind does not understand, but you have touched them in other ways and have accepted them. It is easy for one to speak of faith; it is another thing to live it.
+ - When you perceive that problems serve a purpose in your life, you will recognize that problems are opportunities in disguise.
+ - I have chosen the positive approach – instead of stressing the bad things which I am against, I stress the good things which I am for.
+ - To attain inner peace you must actually give your life, not just your possessions. When you at last give your life – bringing into alignment your beliefs and the way you live then, and only then, can you begin to find inner peace.
+ - If you are not radiant with joy and friendliness, if you are not filled to overflowing with love and goodwill for all beings and all creatures and all creation, one thing is certain: you do not know God!
+ - Just as a human soul that faces great difficulties also faces great opportunities for spiritual growth, so a human society that faces destruction also faces the opportunity to enter a period of renaissance. I think that, barring an accident, the wish to survive will keep us from a nuclear war.
+ - Are you a slave to your self-centered nature or does your divine nature guide your life? Do you kow that every moment of your life you’re creating through thought? You create your own inner condition; you’re helping create the conditions around you.
+ - To the world I may seem very poor, walking penniless and wearing or carrying in my pockets my only material possessions, but I am really very rich in blessings which no amount of money could buy – health and happiness and inner peace.
+ - You must give if you want to receive. Let the center of your being be one of giving, giving, giving. You can’t give too much, and you will discover you cannot give without receiving.
+ - The motive, if you are to find inner peace, must be an outgoing motive. Service, of course-service. Giving, not getting. Your motive must be good if your work is to have good effect. The secret of life is being of service.
+ - You have much more power when you are working for the right thing than when you are working against the wrong thing. And, of course, if the right thing is established wrong things will fade away of their own accord.
+ - We spend a great deal of time telling God what we think should be done, and not enough time waiting in the stillness for God to tell us what to do.
+ - If you recognize that all of your inner hurts are caused by your own wrong actions or your own wrong reactions or your own wrong inaction, then you will stop hurting yourself.
+ - You have endless energy only when you are working for the good of the whole – you have to stop working for your little selfish interests. That’s the secret of it. In this world you are given as you give.
+ - People have had to make up for their spiritual impoverishment by accumulating material things. When spiritual blessings come, material blessings seem unimportant. As long as we desire material things this is all we receive, and we remain spiritually impoverished.
+ - When you do something for world peace, peace among groups, peace among individuals, or your own inner peace, you improve the total peace picture.
+ - Evil can be helped to fade away more quickly if we remain in obedience to the Law of Love – evil must be overcome with good.
+ - There is a magic formula for resolving conflicts. It is this: Have as your objective the resolving of the conflict, not the gaining of advantage. There is a magic formula for avoiding conflicts. It is this: Be concerned that you do not offend, not that you are not offended.
+ - Life is a series of tests; but if you pass your tests, you look back upon them as good experiences.
+ - What people really suffer from is immaturity. Among mature people war would not be a problem – it would be impossible.
+ - I felt a complete willingness, without any reservations, to give my life, to dedicate my life to service. I tell you, it’s a point of no return. After that, you can never go back to completely self-centered living.
+ - When we hear a prediction of some disaster we need to throw the entire weight of our positive thought in the opposite direction!
+ - Take out the kernel of spiritual truth with any faith, and what is left is dogma.
+ - If you have a negative thought about a world situation, dwell upon the best that could happen in that situation.
+ - If your life is in harmony, then your life is full and good, but not overcrowded. If it is overcrowded, you are doing more than is right for you, more than is your job to do in the total scheme of things.
+ - I began my pilgrimage on the first of January in 1953. It is my spiritual birthday of sorts. It was a period in which I was merged with the whole. No longer was I a seed buried under the ground, but I felt as a flower reaching out effortlessly toward the sun.
+ - Knowing that all things contrary to God’s laws are transient, let us avoid despair and radiate hope for a warless world.
+ - As I lived up to the highest light I had, higher and higher light came to me.
+ - If you do not yet know where you fit, I suggest you try seeking it in receptive silence. I used to walk amid the beauties of nature, just receptive and silent, and wonderful insights would come to me.
+ - We need a Peace Department in our national government to do extensive research on peaceful ways of resolving conflicts. Then we can ask other countries to create similar departments.
+ - When I began my pilgrimage I left the Los Angeles area without a cent, having faith that God would provide me with everything I needed. Although I have never asked for anything, God has provided me with everything along the way. Without ever asking for anything I’ve been supplied.
+ - If we fear nothing and radiate love, we can expect good things to come.
+ - No one can find inner peace except by working, not in a self- centered way, but for the whole human family.
+ - Peace and freedom! These things shall be! How soon these things shall be – whether now or whether after great destruction and new beginnings and eons of time – is up to us!
+ - Blessed are they who translate every good thing they know into action – even higher truths shall be revealed to them.
+ - All of us can work for peace. We can work right where we are, right within ourselves, because the more peace we have within our own lives, the more we can reflect into the outer situation.
+ - When love fills your life all limitations are gone. The medicine this sick world needs so badly is love.
+ - Spiritual truth should never be sold – those who sell it injure themselves spiritually.
+ - Praying without ceasing is not ritualized, nor are there even words. It is a constant state of awareness of oneness with God.
+ - All who act upon their highest motivations become a power for good. Know that every right thing you do – every good word you say – every positive thought you think – has a good effect.
+ - Never think of any right effort as being fruitless. All right effort bears fruit, whether we see the results or not.
+ - Worry is a useless mulling over of things we cannot change.
+ - We people of the world need to find ways to get to know one another – for then we will recognize that our likenesses are so much greater than our differences, however great our differences may seem. Every cell, every human being, is of equal importance and has work to do in this world.
+ - A few really dedicated people can offset the ill effects of masses of out-of-harmony people, so we who work for peace must not falter.
+ - There should be intensive research of all forms of clean energy – sun power, wind power, water power including wave power. In some places thermal energy is available. I stayed on a ranch which, with solar panels and two windmills, provided its own energy.
+ - Although others may feel sorry for you, never feel sorry for yourself: it has a deadly effect on spiritual well-being. Recognize all problems, no matter how difficult, as opportunities for spiritual growth, and make the most of these opportunities.
+ - I deal with spiritual truth which should never be sold and need never be bought. When you are ready it will be given.
+ - A loving and kindly approach works between individuals, it works between groups and it would work between nations if nations had the courage to try it.
+ - Then there is the way that was taught two thousand years ago – of overcoming evil with good, which is my way, the way Jesus taught. Never loose faith: God’s way is bound to prevail in the end.
+ - In order to help usher in the golden age we must see the good in people. We must know it is there, no matter how deeply it may be buried. Yes, apathy is there and selfishness is there – but good is there also. It is not through judgment that the good can be reached, but through love and faith.
+ - The way of peace is the way of love. Love is the greatest power on earth. It conquers all things...
+ - Do not suppress it – that would hurt you inside. Do not express it – this would not only hurt you inside, it would cause ripples in your surroundings. What you do is transform it.
+ - I believe that the means you use will determine the end you receive.
+ - Collective problems must be solved by all of us, collectively, and no one finds inner peace who avoids doing his or her share in the solving of collective problems.
+ - People see themselves as the center of the universe and judge everything as it relates to them.
+ - If only you could see the whole picture, if you knew the whole story, you would realize that no problem ever comes to you that does not have a purpose in your life, that cannot contribute to your inner growth.
+ - My appointed work is to awaken the divine nature that is within.
+ - There is something to that old saying that hate injures the hater, not the hated.
+
+174 quotes

@@ -1,0 +1,129 @@
+ - Sometimes I feel I’m living a meaningless life, and I get frightened.
+ - I didn’t jump onto anyone else’s coattail and ride their wave.
+ - Hey, I’m a human being also.
+ - My dad is a motorcycle guy, not some Hollywood dude.
+ - I am trying to impress myself. I have yet to do it.
+ - It’s really easy to fall for someone on-set, but in the end you know, it’s a representative and it’s not really them.
+ - You can prepare all you want, but if you never roll the dice you’ll never be successful.
+ - I go to sleep at night, and I feel like I just dreamed the whole day.
+ - Nobody makes movies like Oliver Stone.
+ - When a gust of wind hits a broken bone, you feel it.
+ - Copying isn’t particularly creative work. Being inspired by someone else’s idea to produce something new and different IS creative work.
+ - My parents are retired, basically.
+ - Old Americana vintage gangster stuff has a fantastical feel; it feels less dirty in a way. It feels like the opera of crime.
+ - Adversity has a way of introducing a man to himself.
+ - I wasn’t cocky, just confident; I went to an all black school, a white kid.
+ - I’ve never been able to learn from other people’s mistakes – I’m not that smart – so I usually learn by trial by fire.
+ - My mom is the backbone not just of my family but of many families.
+ - I was in a relationship with a girl I loved for three years. Where do you go after three years? Then you’ve got to start thinking about other things, and I’m too young to think about those things.
+ - I feel like I’m really honest in my interviews, to a fault. I’ve lost friends over it. Major friends. And I’m heartbroken about that.
+ - To my mind, talent doesn’t really exist.
+ - I don’t have to live this lavish lifestyle.
+ - I grew up around a lot of aggressive guys. My parents used to take me to AA meetings when I was very young. So I know aggression, I know insanity.
+ - I’m a little territorial and defensive.
+ - I think there’s a form of honesty, because I used to be very honest with the press, and then it backfired on me, and I understood it.
+ - I didn’t know my dad for a long time. My dad was on drugs and my dad was at the VA Hospital, my dad was off in his own world selling drugs or using them or there would be crack heads in the house or whatever it would be.
+ - The comic book world is a tough business.
+ - We’re living through the twilight of American economic dominance.
+ - People are still emulating the old fashioned criminal.
+ - I’m just selfish. I have to be for what I do.
+ - My mom is at my house every day, and she nags me about everything, especially hygiene.
+ - You have to be a master to teach.
+ - My life is okay, my life is pretty good.
+ - I’m not a strikingly handsome guy, but I’m in movies.
+ - A relationship to me is never about the romance.
+ - I love doing stuff that I haven’t done before. That’s the goal: To keep reinventing myself.
+ - I’m trying to find a way to eat up time without being destructive, ’cause that’s my go-to, it seems.
+ - All of the things that have happened in my life have been self-propelled. I can’t blame anybody else or point a finger at anybody.
+ - Have you ever noticed how most critics disagree with the public? That should tell you a lot about critics.
+ - When the ship is sinking and you’re forced to choose sides, the new solution is to jump from island to island to island. You don’t have to pick.
+ - I like the dark, mysterious, maybe even gothic type girls. They have to have a good personality too! I’m very picky!
+ - I’m not an Adonis, that’s for damn sure. I’ve never really thought of myself that way, and it doesn’t matter to me. My favorite actors aren’t Adonises. Dustin Hoffman is a flawed-looking man; he’s amazing to me. Tom Hanks is flawed-looking; people love him. Same with Gene Hackman.
+ - I think penguins are the most human of all the birds, which may be why people love them. They’re cute, they stand upright and they look like they’re wearing tuxedos.
+ - You can’t buy back your respect; you can’t buy back your career. You only get one, so I don’t want to mess that up.
+ - I hated golf when we first started, but a big part of the training process was falling in love with this sport, so I went on tour with the UCLA Team.
+ - No, I come for a hippy lifestyle, it’s very open; my parents are both hippies.
+ - Now my dad is with me, traveling with me and a big part of this whole thing is I like to mix it up a little bit, you know. Who gets to take their father on a private jet across the country and stay in first class hotels? So we’re enjoying it, but I’d stop if it’s not possible.
+ - But this is a little different. This is the adult acting. This is a different crowd. It’s more work and more good work. That’s it. People will have their opinion regardless.
+ - I used to dirt bike a lot. I can’t do that anymore. Can’t eat a whole lot of chocolate anymore, either. I can’t be in ‘Indiana Jones’ and be a fatso!
+ - Talent is to actors what luck is to card players. Its not really anything; its just a fictitious word that people have created and labeled things. Talent is like, you know, I never really believed in talent, I believed in drive and determination and preparation, but talent is sort of like luck.
+ - A lot of people like to think that golf is a lazy man’s sport. Or it’s a rich man’s sport, or it’s a sport that they can’t be involved in.
+ - I drink protein shakes nonstop – three or four a day – and I run a lot, so you get rid of the bad carbs and keep the rest so you have the energy to make it through.
+ - I come from divorce. I’m only doing marriage once. It’s not a game for me.
+ - I’ve learned to be more reserved, watch what I’m saying; I got in a little bit of trouble. People tell me ‘Never lose that, never lose that,’ but then I get in trouble so I have to lose it. I’m trying to keep a little bit; I’m never going to lose who I am, I just gotta tone it down a little bit.
+ - If I could meet my mother and marry her, I would. I would be with my mother now, if she weren’t my mother, as sick as that sounds.
+ - They’re very, uh, you know, I don’t come from the suburbs and a jolly, Disney type of lifestyle. I come from something totally different. And they’re cool and bare minimum so it’s not always a money issue for me.
+ - I was planning on going to Yale to theater school.
+ - Probably the sexiest woman I know is my mother.
+ - If people perceive you as a good actor then they’ll wish for you to be a good actor and they’ll root for you when they watch you, but if you come out and you’re going to clubs every night people don’t root for you anymore.
+ - Any time you’re a type, your career’s over.
+ - I don’t know, I just want to be happy. I could be in a hole somewhere. Or I could completely lose it and be some hippy living in the woods with my dad.
+ - And yeah, my handicap was down to a 10 when we were at the thick of it. I trained for six or seven months, golfing every day for six hours, seven days a week, with eight trainers. It was intense.
+ - It’s good filmmaking when you don’t have to say anything and you can still tell the story.
+ - I got accepted at Yale but never went.
+ - I was always raised on cowboy films, and then when I could start making choices about the movies I wanted to watch I found myself wanting to watch gangster films which were slightly more sophisticated than the baseline stuff that was in westerns.
+ - I got to grow up in a situation where drugs were demonic. To watch your dad go through heroin withdrawal is something that would keep you from doing any of that yourself.
+ - To be able to sit in Donald Trump’s apartment and talk about the future of corporate real estate was amazing.
+ - If you can mix Hilary Duff and Gary Oldman into the same actor, that’s my goal. I know it’s strange to think about, but that’s the goal.
+ - I turned down a scholarship to Yale. The problem with college is that there’s a tendency to mistake preparation for productivity. You can prepare all you want, but if you never roll the dice you’ll never be successful.
+ - My first car, I got it in an auction at my temple. It was an ’86 Volvo that I got for 500 bucks, and then wound up throwing $10,000 into the stereo system and put TVs in the foot rests. It was the most ridiculous Volvo you’d ever seen, but I had never had money before and I was out of my mind.
+ - We did this two-week boot camp before we filmed the movie. I got to know everybody in the group and we became friends. We got really tight throughout those two weeks.
+ - People were going to geometry class and I was swimming through vats of chili on ‘Even Stevens.’ It was like a dream!
+ - And if you’re a golfer and you watch a golf film and Matt Damon swing, and it’s not great, then you’re not going to believe in the golf story, you’re not going to believe in the rest of the film. That’s the whole movie, so if that swing looks like crap, the movie’s crap.
+ - The big thing for actors is the level of commitment. So, if you know something’s already happened, there’s not a whole lot of whys and hows that go down. You just innately commit ’cause it happened. It does help with commitment.
+ - I’ve spent more on my Dodger tickets that I did on my car.
+ - I think I’m prone to not being a good guy in relationships.
+ - My family’s lineage is five generations of artists who never made it.
+ - I’d love to go to school and have a normal life, but I don’t see any professor at Yale being able to teach me more than Steven Spielberg.
+ - My family, my parents are hippies.
+ - And I’m not a personality; otherwise I’d be coming out with an album, performing on MTV. All that stuff is possible and I can do that tomorrow. I just have no need.
+ - I think, my generation, it’s hard to have hope when you got a $700-trillion derivatives debt to pay and a bubble about to explode and $500 trillion worth of GDP.
+ - What’s cool is when you’re able to give your audience imagination and you don’t have to cage them in like animals.
+ - I think every young actor in Los Angeles went up for that role. It was between Frankie Muniz and me, and he pulled out, so I got the role.
+ - I’m an individual, and I have opinions.
+ - The hardest thing in acting is going from child actor to adult actor. It’s taken me a long time.
+ - I’ve had to deal with all different types of situations – positive and negative and extremes of both.
+ - I have a hard time with free time.
+ - When you’re working with the best of the best, I’m not gonna put that on hold so I can work with people who studied the best of the best.
+ - I enjoy what I’m able to give my family.
+ - None of my friends were ever as broke as I was.
+ - I trained more than anybody ever in a golf film ever made – my swing is pretty hot.
+ - I became a Christian man in a very real way. I could have just said the prayers that were on the page, but it was a real thing that really saved me. And you can’t identify unless you’re really going through it. It’s a full-blown exchange of heart, a surrender of control.
+ - My generation will actually be the first generation that is tamer than the one that came before it, and it will probably be poorer; less fun and less money.
+ - I’ve learned a great deal about a certain type of filmmaking. But I have ambitions toward another type of filmmaking that I haven’t been allowed to engage in yet.
+ - Respected, I almost want to be revered, that’s what I’m chasing.
+ - I’m a video game fan, and I always thought it would be cool to be able to control a character.
+ - No, I was an unknown when I walked in that room. He didn’t know who I was from a fly on the wall.
+ - As an actor, the minute you start getting real in interviews, you lose mystery.
+ - There’s never been a parent in my life.
+ - When you look at golf films before us they’re all – garbage or satire. A lot of sports films tend to vilify the opposition. Where the opposition becomes this big angry monster, so big you can’t beat him.
+ - I didn’t read the book on how to be a well-adjusted celebrity.
+ - I’m only going to work now when I’m terrified.
+ - There’s no room for being a visionary in the studio system. It literally cannot exist.
+ - Agents are used to the parents pimping. They’re not used to the kid pimping.
+ - Well, you don’t make any demands to Steven Spielberg.
+ - Most actors on most days don’t think they’re worthy.
+ - You never really meet a human being until you live with them or know them for awhile, so this is my clown and they understand that and so these interviews don’t bother them.
+ - I just wish the crowd I was associated with was more passionate about what they were doing and less consumed with the commerce of the art form.
+ - This is hands down the biggest, most exciting thing I’ve ever been involved with in my life. I can only compare it to my Bar Mitzvah.
+ - Every actor chooses their story at the beginning.
+ - To be an actor, a true actor, you have to be brokenhearted.
+ - The best movies are simple.
+ - I think envy motivates a lot of people.
+ - I want my audience to know me for my work, not because of who I’m dating or what drugs I’m on or what club I went to.
+ - Animation has completely changed, and I’ve always been a big fan.
+ - I was the only white kid in my neighborhood for most of my youth even in high school, so reverse racism was just as apparent as racism.
+ - It’s very weird because the ‘It’ guy usually is not the ‘It’ guy next year or even a guy that anyone is talking about.
+ - I got kicked out of every school I ever went to.
+ - I would like to be George Clooney diplomatic. I just don’t have the wherewithal yet or the inner serenity.
+ - There’s a form of selling out. It’s necessary. You have to become edible for people in Texas. You have to become edible for the Christian right, for mass audiences.
+ - I am a season ticket holder to Dodger games. I go to every Dodger game I can go to. Every single one.
+ - Every time you make a movie it’s an adventure.
+ - Clubs are so lame. Nobody even dances at these clubs. They stand around and get drunk and they schmooze. There is no enjoyment factor.
+ - Literature is an easier way to study acting, because then you can take any kind of spin.
+ - I understand why marriages break up over golf. I can’t even talk about my own handicap because it’s too upsetting.
+ - If I have enough money to eat I’m good.
+ - There is no grand strategy. My sensibilities push me in a certain direction. Other actors have different sensibilities. That’s all. I think it really is that simple. There’s no grand strategy. There are so many variables that I have no control over. I sign on to movies I want to watch, as a fan.
+ - The big thing for actors is the level of commitment.
+
+127 quotes

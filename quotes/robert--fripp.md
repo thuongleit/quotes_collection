@@ -1,0 +1,53 @@
+ - Music is the wine that fills the cup of silence. ~~Robert Fripp
+ - There are no mistakes, save one: the failure to learn from a mistake. ~~Robert Fripp
+ - Discipline is never an end in itself, only a means to an end. ~~Robert Fripp
+ - Me and a book is a party. Me and a book and a cup of coffee is an orgy. ~~Robert Fripp
+ - Music is the cup that holds the wine of silence. Sound is that cup, but empty. Noise is that cup, but broken. ~~Robert Fripp
+ - What we hear is the quality of our listening. ~~Robert Fripp
+ - Music so wishes to be heard that it sometimes calls on unlikely characters to give it voice. ~~Robert Fripp
+ - Understanding is simple. Knowing is complicated. ~~Robert Fripp
+ - The quality of artistry is the capacity to assume innocence at will, the quality of experiencing innocence as if for the first time. ~~Robert Fripp
+ - We know others to the extent that we know ourselves. ~~Robert Fripp
+ - My life as a professional musician is a joyless exercise in futility. ~~Robert Fripp
+ - When music appears which only King Crimson can play, then, sooner or later, King Crimson appears to play the music. ~~Robert Fripp
+ - Now, if King Crimson accepts responsibility for innovating its own tradition, you can’t accept responsibility for the audience. And there is an enormous tangible weight of expectation, which comes from an audience attending a King Crimson concert. ~~Robert Fripp
+ - Use your ears to record and your eyes to video. ~~Robert Fripp
+ - If an apprentice does not hear what a master hears, is then that quality not present in the music? Yes and no. In the world in which the apprentice lives no. ~~Robert Fripp
+ - Performance is a vehicle for entering different worlds of experiencing. ~~Robert Fripp
+ - Linguistic philosophers continue to argue that probably music is not a language, that is in the philosophical debate. Another point of view is to say that music is a very profound language. ~~Robert Fripp
+ - In strange and uncertain times such as those we are living in, sometimes a reasonable person might despair. But hope is unreasonable and love is greater even than this. May we trust the inexpressible benevolence of the creative impulse. ~~Robert Fripp
+ - What has changed in 40 years? It’s very simple: 40 years ago there was a market economy. Today there is a market society – today everything, including ethics, has a price. ~~Robert Fripp
+ - When a record company makes a mistake, the artist pays for it. When a manager makes a mistake, the artist pays for it. When the artist makes a mistake, the artist pays for it. ~~Robert Fripp
+ - The science is in knowing; the art in perceiving. ~~Robert Fripp
+ - Expectation closes the door to what is happening in the moment. ~~Robert Fripp
+ - Then certainly for a musician timing becomes something that is immediately accessible as a concept, because it’s a necessity in ones everyday performance. ~~Robert Fripp
+ - Music can be transformative, utterly transformative. The act of music is utterly transformative. ~~Robert Fripp
+ - The aim is freedom conscience and truth. ~~Robert Fripp
+ - Usually people think that it is the musicians who create the music, but in fact it is music who creates the musicians. ~~Robert Fripp
+ - I couldn’t concentrate on music. So I made the choice to give up my career as a musician in the frontline to deal with the business. ~~Robert Fripp
+ - In terms of an identity, an identity reflects an individuality, by definition. And, if there is a quality present, it is recognizable and it can be named. If you can’t name it, it means you don’t recognize it. ~~Robert Fripp
+ - A mistake is always forgivable, rarely excusable and always unacceptable. ~~Robert Fripp
+ - The way we describe our world shows how we think of our world. How we think of our world governs how we interpret our world. How we interpret our world directs how we participate in the world. How we participate in the world shapes the world. ~~Robert Fripp
+ - The concern of the musician is to play the music. It is there demanding to be given sound to. ~~Robert Fripp
+ - Purely by hard work, one can become an artist. ~~Robert Fripp
+ - Michael Giles the first drummer of King Crimson, never agreed to the name King Crimson. But then, if you’d knew Michael, you would know he didn’t agree to the album cover either. So maybe Michael didn’t agree to the point of definition with many things. ~~Robert Fripp
+ - What is necessary is possible, what we want is expensive. What is unnecessary is unlikely. ~~Robert Fripp
+ - According to USA today, the average length of an attention span of a man in America is 23 minutes. ~~Robert Fripp
+ - To me, Bill’s musical heart is in Earthworks, in the jazz they are playing, in the acoustic kit. ~~Robert Fripp
+ - The spoken form is in fact a very restrained representation of what is possible in the musical language. ~~Robert Fripp
+ - So, you can set up an orchestra down this end of the railway station playing one particular area, and simultaneously at the other end something completely different going on. And in the middle they meet, or not, depending. ~~Robert Fripp
+ - My life has improved so much since I stopped doing interviews. ~~Robert Fripp
+ - If the audience doesn’t hear what is going on, is it going on? ~~Robert Fripp
+ - However, in modern conceptual frameworks there is a more sophisticated view. I would say that the act of music exists in several worlds simultaneously. ~~Robert Fripp
+ - I’m not really interested in music. Music is just a means of creating a magical state. ~~Robert Fripp
+ - Music never goes away. It is always available, but we’re not always available for music. ~~Robert Fripp
+ - And if you are playing in several meters at once, there has to be a – not a rigid – but there definitely has to be a reference to a common pulse in the band. ~~Robert Fripp
+ - But above that, most mature adults can hold their attention on something for 45 minutes, whether they like it or not. But above that requires training. ~~Robert Fripp
+ - I recommend my students not to be professional unless they really have to be. I tell them, ‘If you love music, sell Hoovers or be a plumber. Do something useful with your life.’ ~~Robert Fripp
+ - There is a difference between being a timekeeper and keeping the pulse or being in step with the pulse in the band. ~~Robert Fripp
+ - Beginner’s luck is great for beginners. ~~Robert Fripp
+ - If a professional musician in a symphony orchestra is playing Beethoven. But this particular orchestra have played this particular chestnut so many times, they can play it in their sleep. Does the genius remain present in the music or not? ~~Robert Fripp
+ - If you are playing repertoire material, you’re stuck. There’s not huge amounts you can do. ~~Robert Fripp
+ - Business logic and musical logic are utterly incompatible. ~~Robert Fripp
+
+51 quotes

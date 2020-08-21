@@ -1,0 +1,38 @@
+ - I’m a straightforward person. I like to be direct with people.
+ - Buying a home today is a complex process, but that in no way excuses home buyers from their obligation for due diligence.
+ - Regulation needs to catch up with innovation.
+ - India is a vibrant nation whose strength lies in its commitment to equal rights and to speech, religious and economic freedoms that enrich the lives of all citizens. India is not only the world’s largest democracy; it is also a secular, pluralistic society committed to inclusive growth.
+ - I have great, great confidence in our capital markets and in our financial institutions. Our financial institutions, banks and investment banks, are strong. Our capital markets are resilient. They’re efficient. They’re flexible.
+ - In just about every area of society, there’s nothing more important than ethics.
+ - There is no way to stabilize the markets other than through government intervention.
+ - I believe that the root cause of every financial crisis, the root cause, is flawed government policies.
+ - There is a very real danger that financial regulation will become a wolf in sheep’s clothing.
+ - Economic growth and environmental protection are not at odds. They’re opposite sides of the same coin if you’re looking at longer-term prosperity.
+ - A Fed loan to Lehman Brothers would not have prevented a bankruptcy.
+ - It’s a safe banking system, a sound banking system. Our regulators are on top of it. This is a very manageable situation.
+ - I never once considered that it was appropriate to put taxpayer money on the line in resolving Lehman Brothers.
+ - When you have a big, ugly problem, there’s never going to be a neat, elegant solution that is totally painless or without a cost.
+ - My preference is for the Federal Reserve to be the systemic risk regulator, because the responsibility for identifying and limiting potential problems is a natural complement to its role in monetary policy.
+ - For market discipline to constrain risk effectively, financial institutions must be allowed to fail. Under optimal financial regulatory and financial system infrastructures, such a failure would not threaten the overall system.
+ - An open, competitive, and liberalized financial market can effectively allocate scarce resources in a manner that promotes stability and prosperity far better than governmental intervention.
+ - One of the most constant aspects of American life is change – and nowhere is it more evident than in our financial markets.
+ - The worst is likely to be behind us.
+ - Anticompetitive practices hurt Chinese private firms nearly as much as foreign ones.
+ - I have relied on prayer for health care all of my life.
+ - As a child, I could beat most kids in sprints, but overall, wrestling was the most natural sport for me. In fact, I was a pretty good high school wrestler. I was unusually quick and strong.
+ - What I’ve said repeatedly is, ‘I think the auto industry is a very important industry.’
+ - China needs a currency that reflects underlying economic fundamentals.
+ - As the Indian government has embraced greater economic openness, the creativity and expertise of the Indian workforce has been unleashed onto the world economic stage.
+ - Well, as you know, we’re working through a difficult period in our financial markets right now as we work off some of the past excesses. But the American people can remain confident in the soundness and the resilience of our financial system.
+ - China saves too much, produces too much, sells too much to Americans and consumes too little.
+ - I think all governments engage in intelligence gathering vis-a-vis other governments.
+ - Our overriding goal in restructuring our financial architecture should be that taxpayers never again have to save a failing financial institution.
+ - I’ve always said, ‘I don’t want to be irrelevant.’
+ - As a Christian Scientist, I don’t go to doctors and get diagnoses.
+ - Even if you don’t have the authorities – and frankly I didn’t have the authorities for anything – if you take charge, people will follow.
+ - One of the things I enjoy the most is fishing.
+ - It is the policy of the federal government to use all resources at its disposal to make our financial system stronger.
+ - I didn’t get the charm gene.
+ - In China, export lobbies have fought for policies that favor their interests and limit foreign competition.
+
+36 quotes

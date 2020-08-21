@@ -1,0 +1,104 @@
+ - You either kiss the future or the past goodbye.
+ - I’m the greatest in this world.
+ - Drumming is my middle name.
+ - I’m not going to say anything because nobody believes me when I do.
+ - I think we should have understanding and love and peace. I mean, peace and love has been my situation. You hear that in the song. I’m trying to promote that now: peace and love and understanding.
+ - I don’t talk about myself in the third person, and I laugh at people who do.
+ - Peace and love, peace and love!
+ - That’s all drugs and alcohol do, they cut off your emotions in the end.
+ - The drummer’s always going to be there. They’re the floor of the whole deal and everyone can stand up on you.
+ - I hate click tracks. I’m to busy in the click track to feel my own heart rhythm, my own soul beat.
+ - Last night I had a peace dream...
+ - I hope the fans will take up meditation instead of drugs.
+ - I mean, women are very important to me. I don’t know, they just drive me crazy.
+ - I am truly grateful. I’m a grateful human being.
+ - I’m not sleeping with all the women I appear with.
+ - John had Julian and I had Zak so we’d try to do the fatherly things. We’d try to do manly things too; we’d go to the pub and bring Maureen and Cynthia a Babycham or something- a real Liverpool attitude.
+ - I like Beethoven, especially the poems.
+ - A lot of the players I’m with, thank God, we’re all still vertical. We’ve lost so many great players through the years, and we’re still standing, as Elton John says.
+ - Roy Orbison was the only act that The Beatles didn’t want to follow.
+ - The trouble with leaving your feet on the ground is you never get to take your pants off.
+ - No, no, no, I don’t snort no more, I’m tired of waking up on the floor. No thank you please, it only makes me sneeze, then it makes it hard to find the door.
+ - Everything government touches turns to crap.
+ - Of course I’m ambitious. What’s wrong with that? Otherwise you sleep all day.
+ - I feel the older I get, the more I’m learning to handle life. Being on this quest for a long time, it’s all about finding yourself.
+ - I want to deal with what’s in front of me now to the best of my abilities, and sometimes that’s not very good. But a lot of the days it is really great.
+ - I don’t like talking. It’s how I’m built. Some people gab all day and some play it smogo. I don’t mind talking or smiling, it’s just I don’t do it very much. I haven’t got a smiling face or a talking mouth.
+ - I’d like to be in a man band, but with Paul McCartney, Ringo Starr and Keith Richards. We’d have a rocky edge.
+ - It all comes down to who you crucify, you either kiss the past or future good-bye.
+ - The Beatles were just four guys that loved each other. That’s all they’ll ever be.
+ - Beatles, women and children first!
+ - I’m warning you with peace and love I have too much to do. So no more fan mail. Thank you, thank you. And no objects to be signed, nothing. Peace and love, peace and love.
+ - I mean, I was born the day war broke out, but I don’t remember all the bombs though they did actually break up Liverpool, you know. I remember when I was a little older, there was big gaps in all the streets where houses used to be. We used to play over them.
+ - I am a big Beatles fan. And, you know, unbeknownst to anyone, I used to be one. But I have no problems of putting titles and lines from other songs in my songs, because they’re great lines and great titles.
+ - Believe me, I wish this song was yours instead of mine.
+ - America: It’s like Britain, only with buttons.
+ - I’m nervous ahead of every gig. I feel like running away three seconds before I’m due on stage. But I’m all right as soon as I get the mic in my hand.
+ - At the end of the day, I can end up just totally wacky, because I’ve made mountains out of molehills. With meditation, I can keep them as molehills.
+ - From 13, I wanted to play drums. I wanted to play with good people and I’m still doing it. I still love it so that’s why I do it.
+ - Fondest memory of being a Beatle: Having three brothers.
+ - My occupation is syncopation. But, every time, my syncopation is different, because I can never play the same fill twice. I just can’t, never have been able to.
+ - The White Album is important to me for different reasons. One – I had left the band on the White Album.
+ - I’ve never broken a bone in my life, or in my body.
+ - People only look at me as a Beatle but my friends look at me as a whole person. That’s how life works, but it’s not bugging me anymore.
+ - I couldn’t put my finger on one reason why we broke up. It was time, and we were spreading out. They were spreading out more than I was. I would’ve stayed with the band.
+ - I never take it as any real pressure. It’s like my son. I only gave him one lesson. When I went to give him the second one he said, ‘Oh, I can do that dad.’ I said, ‘Now you’re on your own.’
+ - You’re like the devil with horns in your head, the only way I’ll get you is to get you in bed.
+ - People in Liverpool don’t move very far, you know.
+ - I am, I definitely am. I’m really excited about that...
+ - I was in George Martin’s studio in Amsterdam and he was telling me, ‘They come in here and it takes them three days to do a bass line.’ Well I’m not from that era.
+ - Being in The Beatles was a short, incredible period of my life. I had 22 years leading up to it, and it was all over eight years later.
+ - I made all my mistakes playing with people.
+ - I feel as though that was someone else playing. I was possessed!
+ - The main thing is not to be afraid of that, to get to a place where you’ll go gracefully, not screaming and kicking up a fuss.
+ - They said do what you want, because if we don’t like it, no-one will hear it.
+ - I like playing with a live band and I’ve got my act and we’re fine.
+ - I hate click tracks. A lot of people I know like to use click tracks. Like my son is perfect on the click tracks. It makes me to edgy.
+ - I’ve never really done anything to create what has happened. It creates itself. I’m here because it happened. But I didn’t do anything to make it happen apart from saying ‘Yes’
+ - I’m on my feet and I’m doing what I love to do, and I’m in a profession, as a musician, where we can go on for as long as we can go on.
+ - When I was thirteen I only wanted to be a drummer.
+ - I never studied anything, really. I didn’t study the drums. I joined bands and made all the mistakes onstage.
+ - Gene Autry was the most. It may sound like a joke – Go and have a look in my bedroom, It’s covered with Gene Autry posters. He was my first musical influence.
+ - If you made a record, I’d probably pick out tracks that I like and download that. That’s just how it is.
+ - I’d like to end up sort ofunforgettable.
+ - If you could play, I’d play with you all night. But if I’m just playing by myself, it gets boring pretty quick.
+ - I used to wear different rings when I first got called Ringo in about 19, about, umm, ’59 I got called Ringo.
+ - I was the new boy. It was like joining a new class at school where everybody knows everybody else but me.
+ - Gaps can be very emotional. I mean, that’s in my drumming. When I drum, you know, I don’t need to drum all over the track. I play with the singer and I can back off.
+ - So this is America. They must be out of their minds.
+ - I love being in a band. I love playing with other human beings. I’ve never practiced drums unless there was another human being in the room.
+ - I’m always good for starting a bit of a tune and the first verse, but after that I just can never go anywhere. It takes me years, that’s why I’m so slow.
+ - I’ve never had any big ideas about being the solo.
+ - We will miss George for his sense of love, his sense of music and his sense of laughter.
+ - I think the most exciting thing is that you expect people our age to know the music, but actually a lot of kids know the music, and if anything is left, we have left really good music, and that’s the important part, not the mop-tops or whatever.
+ - Take a dose of rock and roll, and wash it down with cool clear soul.
+ - For me, I want to get across the stage to the people. I want to point at you, thirty, forty rows back, and you know I’m pointing at you, and we’re having a laugh and getting it together.
+ - I don’t particularly like messages, because everybody takes whatever they take from whatever.
+ - Well, I’m getting happier all the time, which is very nice.
+ - We thought we’d be really big in Liverpool.
+ - I met The Beatles while we were playing in Germany. We’d seen them in Liverpool, but they were a nothing little band then, just putting it together. In fact, they weren’t really a band at all.
+ - When you’re in a band – before it got to grunge – you dressed the bit. So yeah, I’ve always had an attitude with the clothes.
+ - And so we went away to play, and we’d come back to Liverpool. And while we were doing this – ’cuz we did it for two years. And then we’d go to Germany, and that’s where I met the Beatles.
+ - The kids are interested in the music of them. They’re not interested in mop-tops and Beatle boots and crazy suits. It’s all down to the music now – that’s what they hear, and that’s what they love.
+ - I am the best rock drummer on the planet.
+ - The business is so driven by money, everyone’s trying to get it right.
+ - I’ve always felt that a space is as good as a fill.
+ - I learned to knit in hospital. They give you stuff to do to keep you busy because you’re so ill.
+ - I don’t collect any memorabilia. I wish I’d have kept everything I had. But who knew you had to keep it. Just gave it away. And we lost so much and we didn’t look after a lot of it.
+ - They paint you red before they sacrifice you. It’s a different religion from ours – I think.
+ - I’ve never gone to the bedroom when I was starting out and practiced away.
+ - I’ve never been able to sit round on my own and play drums, practice in the back room, never been able to. I’ve always played with other musicians. It’s how I play, there’s no joy for me in playing on my own, bashing away. I need a bass, a piano, guitar, whatever, and then I can play.
+ - I know when I feel good when I play. There’s a closeness with musicians you only get from playing live, even in the studio it’s still playing live. For me, it’s what expands my soul.
+ - I’m like everyone else, on the stage it’s good. Not too much fun in the hotel or the airplane or the bus, but you got to do it.
+ - I think I’m more prolific in the songwriting.
+ - There’s a woman in the United States who predicted the plane we were traveling on would crash. Now, a lot of people would like to think we were scared into saying a prayer. What we did actually – we drank.
+ - I’ve always been playing with other people, and that’s how I learned. I got a kit of drums I couldn’t play, but I also knew a guitarist and a friend of mine played bass and could teach us bass, and we just played. And I learned...
+ - Wake up meat head, don’t pretend that you are dead.
+ - We’d get in the car and i’d look over at John and say ‘Christ. Look at you. You’re a bloody phenomenon!’ and just laugh because it was only him.
+ - I get on with kids and I feel that’s because I am one.
+ - Ten years from now, it’ll all be the blues because that’s the only speed I’ll be able to play.
+ - I’ve said this over and over again, but I love being in a band.
+ - I’m a musician and I’m really blessed, because in my life if I can hold the sticks, I can play.
+ - The second side of Abbey Road is my favorite.
+
+102 quotes

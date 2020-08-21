@@ -1,0 +1,25 @@
+ - I hate Christmas, really. I don’t really give presents away or expect any.
+ - You can’t improvise if you are tense. Or thinking too much. You have to really let it go.
+ - Acknowledgement: Understanding and compassion for others and their suffering is the next step. Put yourself in the shoes of people who don’t have the luxury of being wasteful.
+ - Mindfulness of the resources we have and respect for where we live, eat, and sleep is a good starting point. Being conscious of your consumption, what goes in and out, will help cut down on wastefulness.
+ - I love the look of buffed nails. They look neat and chic without actually having to paint your nails-and it takes no time!
+ - When you empower women and help them thrive, you help their communities thrive. Women shoulder the burden disproportionately.
+ - When I was younger, I was one of the few girls in the neighborhood who could break dance. That’s kind of my local, ghetto-celebrity claim to fame.
+ - I think when you’re in love with someone, it reveals a lot about yourself. You either rise to your highest highs or you stoop to your lowest lows.
+ - Sometimes, we are dealing with our own troubles and feel that we don’t have the resources to help one another. Or simply, we just don’t know what to do.
+ - Camo never goes out of style as far as I’m concerned.
+ - My husband’s a stunt man, and he dragged me to stunt driving school with him because I hate driving and he felt that it would help to make me feel more comfortable. And it did in certain ways, and in certain ways I’m still not.
+ - Being involved with Oxfam has really opened my eyes to the world at large and the suffering of others. But my background and my life experience are what have allowed me to understand how interconnected we all are. I believe one person suffering reverberates throughout the world.
+ - My grandmother instilled in me two important lessons: I was just as good as anyone else, and education was my salvation. Fortunately, I was able to get scholarships to excellent schools, but I was one of the lucky ones. All of this is what draws me to anti-poverty organizations like Oxfam.
+ - I don’t have children of my own so I can’t say I know the plight of being a parent, but I can kinda understand some of the complexities of it.
+ - If it gets to the point where I actually physically cannot have a child, there’s plenty of children in the world that need a stable home and loving parent. I’m so down for adoption.
+ - Women are the harshest critics of other women.
+ - I love flowy hippie dresses.
+ - It’s been encouraging to hear the pope talking about climate change and take it away from being a political issue to being one of survival.
+ - I kind of do high-low style a lot.
+ - With all this talk of Going Green, Buying Green, Living Green, and Green being the new whatever, I’ve come to realize that, although we had no green, my grandmother was actually the ‘greenest’ person I’ve ever known.
+ - It feels good to know you contributed positively to another’s life, to their happiness, to their survival. It gives us a sense of purpose.
+ - I’ve always said that if anything – whether it was film or television – was something I responded to, then I was open to it.
+ - Life doesn’t always end up with a bow wrapped around it.
+
+23 quotes

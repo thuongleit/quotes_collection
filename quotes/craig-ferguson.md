@@ -1,0 +1,308 @@
+ - It takes a long time to become a lawyer because you need three things – a bachelor’s degree, a law degree, and a desire to worship Satan.
+ - I’m gonna enjoy being old I think I’ll be awesome at it.
+ - I think sometimes that people think brave means not being afraid, which of course it doesn’t mean that at all. It means that you’re afraid, but you move past that and do it anyway, do what you think is right.
+ - There’s something spiritual in hard work. Spirituality isn’t all aromatherapy and scented candles.
+ - Change is the law of God’s mind and resistance to it is the source of all pain.
+ - They were singing, Gillette, the best a man can get, with a lot of guys hugging their fathers and sailing and riding bikes. I suddenly felt a long way from the best a man could get and I thought it would be nice to get from there to the best.
+ - If I start giving people what they like I’ll turn into one of them and I don’t want to be one of them I want to be one of me.
+ - You gotta laugh because if you didn’t you’d cry.
+ - It is Veterans Day, when we honor everyone who served in all of the campaigns. We honor them with dignity and respect, and of course mattress sales and tire discounts.
+ - Appear tougher or cooler or funnier than you feel and there is a chance you’ll make it.
+ - If you don’t vote, you’re a moron.
+ - Love at first sight is not rare, in fact it is extremely common, it happens to some people a few times a year. The feeling of what if when meeting the eyes of a stranger can be love unrecognized.
+ - President Obama said that we rely too much on gadgets. He gave a passionate speech about technology, but he had to stop when the teleprompter broke.
+ - I don’t drink anymore for Cinco de Mayo. I celebrate with Mexican food, or as it’s known in Mexico: ‘food.’
+ - Italian women are some of the most beautiful in the world. This is why the Vatican is in Italy. If a man can walk across Italy and retain his celibacy, he’s got what it takes to be a priest – or an interior decorator.
+ - Tomorrow is your future’s yesterday.
+ - I haven’t had a drink in thirteen years, but occasionally I’m tempted to have one beer. The problem is that if I have that one beer, I wake up in Tijuana four days later with a tattoo and a sore ass.
+ - There’s just a feeling you get from certain things you do in life that just kind of feel pure and independent of what’s actually, physically, going on.
+ - These days, teachers have it rough. Kids can be hyperactive, disobedient, and obnoxious. It must feel like being locked in a room of drunk midgets.
+ - I have a deep and profound mistrust of all politicians.
+ - I’m not so much a dragon slayer, more a dragon annoyer – I’m a dragon irritater.
+ - The Universe is very, very big.
+ - Occasionally, when I lived in London, I would have sex with a girl from an aristocratic family. I always enjoyed doing to them what their ancestors did to my country.
+ - When I stopped drinking, it was only because I thought if I don’t stop, I’m going to die.
+ - That’s here on CBS, where the ‘C’ stands for ‘Classy’ and the ‘BS’ speaks for itself.
+ - I think I’m just someone that just tries to get by. I’m kind of – if it was during the Second World War, I’d be a black marketeer, I think.
+ - If I have a near-beer, I’m near beer. And if I’m near beer, I’m close to tequila. And if I’m close to tequila, I’m adjacent to cocaine.
+ - Sober alkies are often asked: When did you hit rock bottom? but a more informed question might be: How many times did you hit rock bottom?
+ - I didn’t say no because between safety and adventure I choose adventure.
+ - BP CEO Tony Hayward said recently, ‘No one wants this thing over more than I do. I’d like my life back.’ Tony, I’m so sorry you had your summer disrupted. I’d buy you a drink, but you’d probably spill that too and make me clean it up.
+ - Whether I or anyone else accepted the concept of alcoholism as a disease didn’t matter; what mattered was that when treated as a disease, those who suffered from it were most likely to recover.
+ - Don’t protest outside of a rich man’s house in the daytime, you’ll just scare the maid, and that’s Arnold Schwarzenegger’s job.
+ - Thanks cows. I appreciate your tastiness.
+ - I was 15 years old when I was in this band; we were called Stag. We used to wear spandex pants and no underwear – we looked like marbles smugglers.
+ - I love the United States. I have applied for citizenship. I want to take the oath of allegiance on TV.
+ - Andy Warhol said that in the future everyone will be famous for 15 minutes. Facebook is exactly like that except you’re not really famous and your 15 minutes goes on forever.
+ - During the cold war, West Berlin was an exclave – a tiny outpost of liberalism surrounded by people who want to crush it. It was like Austin, Texas.
+ - According to a new study, our email is not as safe as we thought. How do they know this? They’ve been reading my email.
+ - Great, as long as you’re happy.
+ - Harry Potter, he sends a message on Owl Mail while us poor old muggles have to make do with instantaneous emails and texting. Oh, if only we could be like you Harry Potter, with your four day owl delivery!
+ - If the Fed ceases hiking, against the backdrop of still rising commodity prices, then the Australian dollar will have few reasons for resisting any topside advances.
+ - I think the scores for Olympic gymnastics are affected by what countries the judge and the gymnast are from. That’s wrong. That type of political pandering isn’t meant for gymnastic Olympic events. It’s meant for the Supreme Court.
+ - In some countries Women’s Day is a national holiday and men give women flowers. In America Women’s Day falls on another holiday, Mardi Gras, where men give women beads in the respectful and post-feminist desire to see their naked boobies.
+ - Here in Los Angeles, school’s out for summer. For thousands of school kids, this is the first week of summer vacation. And for thousands of parents, it’s the first week of hell.
+ - Sometimes people think you’re smart if you question the status quo, if nothing else.
+ - I got sober. I stopped killing myself with alcohol. I began to think: ‘Wait a minute – if I can stop doing this, what are the possibilities?’ And slowly it dawned on me that it was maybe worth the risk.
+ - An 83-year-old male prostitute was arrested. Police say he only charged $20 an hour, but for most of that time, he just talked about his grandkids.
+ - If a man doesn’t know how to dance he doesn’t know how to make love, there I said it!
+ - A junkie will steal your purse, and then help you look for it.
+ - I realize that I am not a journalist. So anything I say is not important.
+ - I dropped out of high school when I was 16, after I had a huge argument with my English teacher over the meaning of the word ‘existentialism.’
+ - Twas the night before Thanksgiving.
+ - Betty White met with President Obama at the White House. President Obama invited Betty personally because she’s great with animals. And the president’s still having a tough time house-training Joe Biden.
+ - Don’t hit women. Never, ever, ever.
+ - I think people are as individual as snowflakes, they kinda look alike but no two are the exactly the same, and all classification is the root of prejudice.
+ - Sometimes, in order to follow one’s heart, one must do the wrong thing. Now, I’m not absolving anyone of their actions; you have to be responsible for your actions, sick or well, you have to be, you just have to be. All of us are accountable.
+ - I don’t just like sexual double entendres I love them, I stroke them, I milk them, I spank them when they’re naughty.
+ - Halloween’s eve is also known as mischief night. Kids are supposed go around playing pranks tonight. That’s great, just what teenagers need – another excuse to be jerks.
+ - Everything went smoothly at the sailing events today, except for the British team. They forgot to bring limes and they all got scurvy.
+ - I do a show. It comes on late at night on TV. And if that means I’m a late-night talk show host, then I guess I am, but in every other regard I resign my commission, I don’t care for it.
+ - He will know from and early age that failure is not disgrace. It’s just a pitch that you missed, and you’d better get ready for the next one. The next one might be the shot heard round the world. My son and I are Americans, we prepare for glory by failing until we don’t.
+ - I am the Saudi Arabia of unhappiness. I have so many reserves of misery that you wouldn’t understand. I actually think that’s part of why I connect with Canadians. I think they understand grinding misery underneath.
+ - Ros was dead. He had loved heroin more than it loved him. I was shocked beyond imagining; he was the first of my friends to fall.
+ - The Afghan government is as corrupt as a prostitute with a law degree.
+ - There is no Thanksgiving back in the old country where I come from. You know why? Because being thankful is a sin.
+ - I think we look back at times past with fondness because we were younger. Life had not yet begun pecking away at our innocence like buzzards on fresh road kill.
+ - The first day of spring is known as the vernal equinox. The equinox is special. It only happens twice a year, like a good night in ratings for NBC.
+ - They say give a man a fish and he’ll eat for a day. But teach a man to fish and he’ll get his own show on the Discovery Channel.
+ - Even the incorruptible are corruptible if they cannot accept the possibility of being mistaken. Infallibility is a sin in any man. All laws can be broken and are. Often.
+ - I think holidays create so much pressure because people feel they should be having a good time. But you shouldn’t.
+ - The views expressed by Me are in no way endorsed by CBS any of its allied companies or in fact Me.
+ - You can never talk religion on network TV. It makes too many people angry. You can talk about sex.
+ - Sarah Palin. Remember Sarah Palin? She is adorable. She is back on the campaign trail. Really. She’s going to campaign in the Senate runoff in Georgia. As soon as she finds out where Georgia is.
+ - From this moment on I’d dedicate my life to rock and roll and take as many drugs as possible. What could possibly go wrong?
+ - The sexy magazine in Britain in that time was called Club International. Club International: It was about as international as the International House of Pancakes. It should have been called Naked Cockney Girls with Scurvy.
+ - I’ve been running my whole life. Running into bars, running around the world. But when you have a child, you can’t run. That was a revelation.
+ - Oh Satan you’re a wily one.
+ - My pilot’s license. I’m proud of that.
+ - Sometimes my pathology just spills out into the camera doesn’t it?
+ - I became a terrible drunk or alcoholic – or a good one depending on your point of view.
+ - Divorce lawyers stoke anger and fear in their clients, knowing that as long as the conflicts remain unresolved the revenue stream will keep flowing.
+ - Sarah Palin has managed to use her failed vice presidential run to put herself in a position of power and influence. Joe Biden won the race and he hasn’t been able to put himself in a position of power and influence.
+ - Even a chameleon needs the proper amount of suction.
+ - I try and live my life in bite-size chunks.
+ - You know when you’re a kid and you think, ‘Oh no, I’ve got double math, this is never gonna end,’ but then it ends, and it’s like it never happened? That’s like life.
+ - Evil does not question itself. Only Hope questions itself.
+ - Al Qaeda has declared war on the Somali pirates. That is awesome! Evil against evil. Like Alien versus Predator or Cheney versus his lawyer.
+ - Canada is not the party. Its the apartment above the party.
+ - I’ve got mixed feelings about poetry cause done well poetry is fantastic. But not many people are capable of doing it well. I think you should have some kind of license to perform poetry. A poetic license perhaps.
+ - Every year law schools churn out thousands of lawyers. We don’t need any more lawyers. We need more lawyers like we need more talk-show hosts.
+ - Ocean’s 13 is all about cool people having a good time, and who doesn’t want to see that? Well you, apparantly, ’cause you’re watching me.
+ - A dozen swimming events have already been completed in the Olympic competition. I wonder where they got the name ‘Speedo.’ It doesn’t sound like a bathing suit, it sounds like a breakfast cereal for meth addicts.
+ - I think that clearly it has an influence, to be coming of age during the punk rock era, to come from a difficult and sporadically violent background, to have been in and out of such chaos, I think it actually helps. But I don’t know for sure.
+ - When I went out on tour as Bing Hitler I would hook up with Lenny and we’d get drunk together. He was always very supportive. He was a big star and a lot of what he said to me had power and impact. Apart from that, I just like him.
+ - Aphrodisiacs come in many forms: food, drink, the internet...
+ - The Danes are causing a bit of trouble. The kingdom of Denmark claimed the North Pole as their own. Hey, you can’t just reach out and take something if you want it, Denmark. That’s Russia’s job.
+ - I realized women and humor were linked very closely.
+ - I didn’t flee a dictator or swim an ocean to be an American like some do. I just thought long and hard about it.
+ - Former president George W. Bush released his new memoir. By the way, ‘memoir’ is just a fancy word for ’a bunch of stuff that happened to me.
+ - Time is only linear for engineers and referees.
+ - It’s very interesting to know what people are doing while you’re working on late-night television.
+ - I’ve started looking at my own father a bit funny. He assures me, though, that I really am the son of a Scottish postman.
+ - With good parody, you have to be smarter that the people you’re parodying.
+ - Osama bin Laden’s death has been in the news all day. Leftish stations are going, ‘President Obama saves the world.’ Stations on the right are going, ‘Obama kills fellow Muslim.’
+ - Welcome back, my cheeky wee monkeys.
+ - In Los Angeles on Black Friday, a woman pepper sprayed Wal-Mart shoppers who tried to cut in line. The police acted fast by immediately hiring her to get rid of peaceful protesters outside banking institutions all across the United States.
+ - Equestrian and sailing are sports for people growing up on the mean streets of Connecticut.
+ - Cannabis always made me paranoid; I felt like people were watching me. And now I’m sober, and I’ve got this talk show in the middle of the night on CBS, and I now know that no one is watching me.
+ - I proved to my own satisfaction that I am madder than I think.
+ - Thank heaven Election Day is over. No more campaign ads, no more mud-slinging, no more candidates pretending they’re straight. It’s over!
+ - Anyone who’s just driven 90 yards against huge men trying to kill them has earned the right to do Jazz hands.
+ - Confession is a sacred rite enhanced by allegory, exaggeration, and lies.
+ - By the power of Steven Wright’s Beard!
+ - Personally, I hope he doesn’t get out of the campaign. I need Rick Perry. I don’t want to spend the next year trying to do jokes about Mitt Romney.
+ - I always appreciated my teachers. When I was 16, I gave them the greatest gift I could think of. I dropped out of school.
+ - Now, I know Obama was trying to take the long view, but talking about solar energy in the middle of the oil spill is like watching your house engulfed in flames and saying, ‘We really should change the curtains.’
+ - I have no ambitions beyond being comfortable in what I do for a living – and earning a living.
+ - I can’t wait to see the debate between Ryan and Joe Biden. Biden is said to be already trying out different strategies. So far the one that Obama likes is where Biden pretends to have food poisoning and they cancel the debate.
+ - I don’t know much about the Supreme Court. If it’s anything like the Supreme Taco, it’s like a regular court, but with extra sour cream.
+ - A friend of mine that I was in a band with started me on Kafka, which in turn led to Camus and Sartre.
+ - I used to love going fishing. I think it was really about the clothes. Nothing says real man like a vest with 38 pockets and a mesh hat with hooks in it.
+ - Rush Limbaugh says if the health care bill passes, he will leave the country. The Democrats are upset, because if they knew that, they would have passed the bill years ago.
+ - I like football. I find its an exciting strategic game. Its a great way to avoid conversation with your family at Thanksgiving.
+ - CBS announced they’re canceling As The World Turns. Don’t worry though, if you’re addicted to the twisted plots, the intrigue, the illicit sex, you can still watch golf.
+ - I think commercialism helps Christmas and I think that the more capitalism we can inject into the Christmas holiday the more spiritual I feel about it.
+ - Nothing says romance like hobos, martyrs and decapitations.
+ - I am probably a pseudo-intellectual.
+ - Remember the band, Flock of Seagulls? They had their van stolen. I was like, They still have a van?
+ - Some people take the spelling bee very seriously. These people are called “parents of children in the spelling bee.” They’re trying to make up for their own childhood of crushed dreams and misspelled words.
+ - A new restaurant here in Southern California requires women to wear high heels. I’m outraged! This is sexist! Why just the women?
+ - These days, young people watch TV on smartphones and computers. Young people with an actual TV set are harder to find than a picture of Anthony Weiner with his clothes on.
+ - I used to psych myself up before the show and now I do the complete opposite: I psych myself down. It’s 12:30 at night, you don’t want some guy yelling at you. You want some guy just talking to you.
+ - World War Z is out today. The big zombie movie. The trailer looks scary. You see hordes of bodies climbing and rolling over each other. It’s like Black Friday at the mall.
+ - Pies were invented 12,000 years ago by the Egyptians. It was an easy way to preserve food that would be carried over long distances. They were like ancient Slim Jims.
+ - Director Oliver Stone says he’s going to make a movie about Vladimir Putin. I can’t believe anyone would want to work with that insane communist. And Putin is a little crazy as well.
+ - Donald Trump showed his birth certificate to reporters. Who cares about his birth certificate? I want to know if that thing on his head has had its vaccinations.
+ - A casino in South Dakota was robbed by a man dressed as a mummy. The police described the suspect as anywhere between 25 and 8,000 years old.
+ - New iPod. It looks like an iPhone but it can’t make phone calls. So its really just an iPhone.
+ - If it doesn’t work, at least it will be an interesting train wreck.
+ - I’m careful with money.
+ - The Bible has been through at least half a dozen translations by the time you read it. Plus, when the word of God is infected by the hand of man, that is, written down, it is tainted.
+ - The truth is, you win the Lotto. That’s really how you have to approach it. You’re a lottery winner when you get a sitcom and it goes.
+ - There’s a commercial break coming and I’m very excited about it and you know why? Because that’s what keeps daddy in suits.
+ - I think when you become a parent you go from being a star in the movie of your own life to the supporting player in the movie of someone else’s.
+ - I love zombies. If any monster could Riverdance, it would be zombies.
+ - People sometimes say to me: “Craig, get out of my garden.”
+ - This is my first week as an American citizen. It’s amazing. Now I can vote in the general election – and for American Idol.
+ - President Obama announced his re-election campaign, though it’s not really a surprise. He did all the things that make it official: He filed the paperwork, redesigned his website, and printed another fake birth certificate.
+ - The virus in the movie ‘Contagion’ is based on the bird flu which came out of nowhere back in 2008. Everyone thought it was going to change the way we live and it just faded away. Wait a minute, I’m talking about President Obama.
+ - The Smurfs 2 is a great movie. The Smurfs are tiny little creatures that everybody loves. They’re like Justin Bieber – minus the part about everybody loving him.
+ - The problem with suicide is that it seems so flamboyant. It’s camp. You have to be a bit of a drama queen to ever seriously consider it.
+ - The first ads for medical marijuana have started airing on television in California. The ads are quite expensive. It costs a lot of money to buy 30 seconds during ‘Spongebob Squarepants.’
+ - Lance Armstrong admitted he used performance-enhancing drugs throughout his career. He confessed in front of the most respected judge in the land, Oprah Winfrey.
+ - I remember talking to someone early on after I was sober about how I suddenly felt awkward at parties. They said, ‘Well, you’re supposed to. Everyone feels awkward at parties.’ It’s an appropriate feeling to feel.
+ - Its easier to feel a little more spiritual with a couple of bucks in your pocket.
+ - For my birthday that year Anne gave me an inflatable atlas globe, along with a birthday card in which she wrote: I give you the world. Have fun blowing it up.
+ - Don’t ever rope me in as a late-night talk show host. I don’t want to be one.
+ - Stoners just got a powerful new ally in the fight to legalize marijuana – conservative broadcaster Pat Robertson. He said it’s time to ‘you know, legalize it, tax it, and keep it away from Mel Gibson.’
+ - I don’t see my show as a stepping stone to something else like some people, who get a job then have a foot out the door looking for their next job.
+ - The new Pope, Cardinal Jorge Mario Bergoglio, is now Pope Francis the 1st. Francis was not his first choice for a name. But the Vatican wisely talked him out of Pope Boo Boo.
+ - North Korea announced that they have nuclear weapons and they have no plans to give them up. The White House, acting quickly, announced their plan to invade Iran.
+ - The rain is giving much needed relief to California’s crops. By that I mean ‘marijuana.’
+ - Happy Cinco de Mayo. If you don’t know what that means, maybe you’re a little out of touch – or maybe you’re the governor of Arizona.
+ - It may be that the fear contains information. Something can be interesting if you get to the other side of that fear.
+ - It’s a great day for America, everybody! It’s Monday, woo.
+ - If we are now holding late-night talk-show hosts to the same moral accountability as we hold politicians or clergymen, I’m out. I’m gone.
+ - I don’t like my politicians entertaining me and I don’t like my entertainers politicianing me.
+ - I think comedy comes more from a low sense of self-esteem, and I certainly have that.
+ - Today Monopoly added a new game piece: the cat. The new piece was chosen after weeks of online voting. Is that a surprise? Whenever there’s a vote for something on the Internet, the cat always wins.
+ - They’ve found a link between chemicals in shampoo and obesity. If you’re eating shampoo, your weight is the least of your concerns.
+ - Mark Zuckerberg was named Time’s Person of the Year. I’m sorry if you don’t recognize the name. A magazine is something people used to read.
+ - Stand by your bed and salute me.
+ - Laughter separates us from despair, and gives us a chance at love.
+ - I have that hypocrisy of a parent in that I’m like,’Come on, you’ve got to toughen up at the same time let me take care of that for you.
+ - I did have a love for literature that overpowered my hatred of the people who taught it, and I think because I had no respect for the teachers, their attitude didn’t poison the writing that I was discovering for myself.
+ - I hated the summer jobs I had when I was a teenager. They were so mundane and repetitious, they deadened my soul. On the bright side, it was good training for this job.
+ - Here at CBS, spring also means March Madness. I love the name March Madness. I’m glad the PC police haven’t made us change March Madness to early spring psychosis.
+ - Climate change is a serious problem. We all need to do what we can. Unless that means I’ve got to change stuff. Then I’m not doing it.
+ - Democrats in state legislatures are at their lowest level since the 1920s. President Obama has a can’t-miss strategy to save the party in 2016. He’s leaving.
+ - Justin Bieber’s tour bus was stopped by Canadian border patrol agents. And they found marijuana. The agents said Bieber was a disgrace to Canada and should never come back. Then they found the marijuana.
+ - I’m always a bit shy around evil people...
+ - Old people really do have a secret though. You wanna know what it is? Luck.
+ - Pseudoscience describes theories that sound like science but are actually just made up, like aromatherapy or biorhythms or love.
+ - Last night on the show I had Olympics fever. Unfortunately, it’s getting worse. That’s not good. I have to call my doctor if my torch burns for more than four hours.
+ - In the past I’ve been hard on the vegans. I’ve called them Prius-driving fascists, but now I am one of them. I have been turned to the dark side.
+ - For the first time in history, Congress has 100 women in it. Congratulations. Welcome to modern times, America. It’s great having 100 women in Congress. Unless you’re in line for the congressional bathroom.
+ - The nation of Iran is threatening to sue the makers of the movie Argo. They say the movie was an unrealistic portrayal of their country. You can’t do that! That would be like Scotland suing over the movie Shrek.
+ - You know who sang at Rush Limbaugh’s wedding? Elton John! According to Rush, gay people can sing at weddings. Just not their own.
+ - If you watch cooking shows on cable, they have lots of British people. Because when you think good cooking, you immediately think Britain.
+ - Here in California, we passed a law against texting while driving. But there’s no law preventing you from writing a letter while driving.
+ - This book could scare them. The sex, the violence, the dream sequences and the iconoclasm – I think a lot of people are uncomfortable with that. I understand that. It was very uncomfortable to write some of it.
+ - Apple released the upgraded version of the iPhone 4, called the iPhone 4S. I think the S stands for suckers.
+ - Being guilty tends to engender feelings of guilt.
+ - Everything I think of now is too rude to actually say.
+ - HD doesn’t mean anything to me. It’s a technical thing. It’s like demographics. A lot of people know about it.
+ - In the 1970s vampires were pretty boring. The scariest vampire was Count Chocula. One bite of Count Chocula and you were cursed with Type 2 diabetes.
+ - People are saying that Anderson Cooper could be the new Oprah. And then these people are struck by lightning.
+ - The difference between a broadcaster and a host is that a host tells stories and dumb jokes, but a broadcaster can articulate deeper like, you know – things and stuff.
+ - That’s why I believe in a Constitution which separates church from state. I’ve seen what happens when they get in cahoots.
+ - People spend thousands of dollars trying to keep their teeth straight. I just hope we can live in a world where we accept gay teeth.
+ - My mother was tickled and I think kind of proud when my father got hit on my an attractive middle-aged Asian lady who hadn’t noticed he was with his family. He was certainly pleased about it.
+ - If you know anything about me – and, if you do, I’m sorry that your life turned out like that.
+ - After all this time I found that the novel is in fact punk rock.
+ - I don’t know now if I’m funny. I just keep talking and hope that I hit something that’s funny.
+ - Well, everyone, welcome to Shark Week. Oh that’s on CBS and there’s been a lot of cutbacks, so it’s just Friday night for a couple of minutes. And we don’t have any sharks, just an immigrant with a puppet. Hey, but it’s a start!
+ - I’m a terrible interviewer. I’m not a journalist – although I have a Peabody Award – and I’m not really a late-night host. What I am is honest.
+ - I’ve got young kids, so it suits me to do a job which keeps me in town right now.
+ - Some people watching CNN were so shocked they started rioting. No, I’m kidding. No one watches CNN.
+ - Anyway, if you needed something really dangerous, get a gun. It’s easy, it’s cheap, and it’s the American way.
+ - The three drunkest cities in America: Fresno, Riverside, and whatever Mel Gibson is driving through.
+ - The worst gift I was given is when I got out of rehab that Christmas; a bottle of wine. It was delicious.
+ - I don’t know why some people get worked up about gay people marrying. It’s not gay people who are ruining the sanctity of marriage, it’s celebrities.
+ - Every year there’s a jury at the Cannes Film Festival. Getting on the jury is very competitive in France. Not because the French love cinema, but because they love to judge.
+ - It’s fantastic that Congress has an increasing number of women. Experts call an increasingly female presence in a previously male space ‘the Bruce Jenner effect.’
+ - According to a new study, Hawaii is the happiest place in America to live. And I thought it was just a great place to pretend you were born in.
+ - Democrats are calling Christine O’Donnell ‘the Sarah Palin of the East.’ Really? She’s a loud, emotionally unstable woman from Delaware. That’s not Sarah Palin, that’s Joe Biden.
+ - Other than the laws of physics, rules have never really worked out for me.
+ - The devil is not abroad at night in the form of a cat or a wolf or any other animal. He lives eternally in the hearts of men.
+ - I’m so excited about the new iPad, I just iPeed my iPants.
+ - From 1934 to 1963, the biggest criminals in America ended up on Alcatraz. Nowadays they end up on Wall Street.
+ - I knew that I had been partially right in the storeroom above the bar on Christmas Day. Whoever I had become had to die.
+ - Historically, when Americans don’t know what to do next, they go to Paris. Benjamin Franklin is like: ‘What am I going to do now? I’ll go to Paris!’
+ - Sometimes they would just pay me to stay home and not do anything else, which sounds fantastic but doesn’t do much for your ego. Its probably a little like getting alimony-the money is nice but has a nasty aftertaste.
+ - I do love America. And LA is a very short commute to America its like half an hour on the plane.
+ - The meeting with Prince William took place at the White House because Prince William wanted to see where the president spent his days, but the golf course was covered in snow.
+ - I don’t think there’s anything wrong with telling the truth. I know it isn’t fashionable.
+ - I’m a vulgar lounge entertainer, I don’t need to wear a tie.
+ - Look, there is nothing you can say about this show that I don’t already know.
+ - I hope what I do has an art to it, and as an artist you have to try new things and keep yourself entertained.
+ - Oprah’s quitting in 2011. Now we know why the Mayans ended their calendar in 2012.
+ - Every day I ran to that book like it was a bottle of whiskey and crawled inside because it was a world that I had at least some control over, and slowly, in time, it began to take shape.
+ - I had lived in fear of the fabled terrifying visions that assail chronic drinkers, but which had not yet attacked me.
+ - I said that the only way I could have a band that would work in the format of my show is if the band were crap. So if I have a band they’d have to really suck.
+ - For a while, some schools across the country were banning spelling bees. For obvious reasons, of course – steroids.
+ - It’s a great day for Sarah Palin. She was hired as a commentator for Fox News. She signed a multi-year contract, which means she’ll probably quit after a year.
+ - That’s the thing about terrorism – it works. Especially for the terrorists – they might not get what they want but it feels damn good trying.
+ - I have a beard. Just not on my face...
+ - You know who they’re blaming for global warming now? This is true. Fat people.
+ - Clay Aiken ran for Congress in North Carolina. But he didn’t make it. Clay Aiken is famous for coming in second in a TV popularity contest that most people got fed up with years ago. He also lost on ‘American Idol.’
+ - The whole idea of re-releasing old movies does bother me a little bit. If they’re going to re-release an old movie, I should be able to get in with my old ticket.
+ - I do a public access show with puppets. Puppets called actors, TV and movie stars.
+ - I salute Rick Perry for the way he’s trying to overcome this. Today he came out and said he’s not one of those slick politicians, that this just shows his human side, and some third excuse he can’t remember.
+ - Acid gave me a clinical, unblinking look at madness, and I discovered I wasn’t brave enough to be insane.
+ - The 3-D effects in “Star Wars” are so realistic, you can actually see George Lucas reaching from the screen and taking the money from your wallet.
+ - I think I’ll be Scottish in every movie I write. They always try to talk me out of it, but Woody Allen is always a nebbish New Yorker. Why shouldn’t I be a goofy Glaswegian?
+ - If you absolutely believe that what you do is right, you’re bullet-proof.
+ - 114 isn’t as old as it used to be they say its the new 104.
+ - You clap. The Censor wakes up. We all get into trouble.
+ - Whoever I had become had to die.
+ - I have to do a show which is of interest to me, or else I’m lost.
+ - I grew up in Scotland in the 1970s. There was not much money. The most popular Christmas toy was probably a potato.
+ - Being funny is a gift, and, when done well, is an art form.
+ - I know that’s not the right accent, but I can’t do the right accent. It’s either the wrong accent or another Octomom joke.
+ - I found the prospect daunting, but somehow comforting, too, because the counselors insisted it could be done, and, after all, many of them were recovering alcoholics themselves.
+ - You should never protest outside a rich guy’s home during the day because he’s not there. He’s at work grinding the faces of the poor.
+ - When in doubt about who’s to blame. Blame the English.
+ - Now that healthcare is guaranteed, I’m frying everything I eat. Fried food and cigarettes.
+ - Late night is no different than making a film, really, except that it’s faster, and if you do a crap one, you can do a better one tomorrow. Writing a novel and doing stand-up – that stuff is very similar.
+ - Jeb Bush announced today on the Internet that he may run for president. The next presidential election could be Bush vs. Clinton. It will be like 1992 all over again except I won’t be in rehab.
+ - The queen banishes Snow White because of her beauty. But the dwarves help Snow White because they’re smitten by that very beauty. It teaches kids an important lesson: Nothing matters except for your looks.
+ - I only like sports that Bond villains played.
+ - Is it really that important? It’s just television, for God’s sake. It’s not medicine or something.
+ - It turns out that speeding irresponsibly in a large truck, placing personal wealth ahead of the welfare of others, is one of the greatest sins in the Universe...
+ - I think comedy as an art involves the audience as a participant as much as is involves the artist.
+ - The idea of having Australians upset at me is just awful.
+ - The world can be such a fright, but it belongs to us tonight.
+ - There is a new survey out about the happiest professions. I think the whole premise is flawed. You’re supposed to find true happiness outside of work. From friends, family, and YouTube videos of old people falling down.
+ - I wanted to be a rock star.
+ - I’m reading a book, because I’m brainy. No, it is a book – if you don’t know, it is like a blog except bigger.
+ - My father had a very unusual psychic ability, he could detect water. It’s called divining. He would use a Y-shaped U-branch, and he could find water with that, which is a very impressive skill in a country where it rains 365 days of the year.
+ - I would prefer as a viewer to watch the mistakes. I am my own blooper reel, as it happens.
+ - Things were very different back in 1992. There was unrest in the Middle East, we had a gridlocked Congress, and everybody was talking about Bill Cosby.
+ - Another one of President Barack Obama’s nominees is having tax issues, which proves one thing: The Democrats like raising the taxes, but they hate paying them.
+ - It is a great day for the great state of Texas. The last person being tested for Ebola has come back clean. So Texas is now Ebola free. This was a big week for them. They’re now free of Ebola – and Democrats.
+ - I aim to please. I’m nothing if not a vaudevillian.
+ - Insiders say Obama’s pretty comfortable around actors. He should be. He has been ‘acting’ like he was born in Hawaii for a long time.
+ - It’s tricky turning a book into a movie. Sometimes people love the book so much that no adaptation lives up to what they imagined. You can avoid that disappointment by never, ever reading books.
+ - She still cared for me, and the best way I could make amends to her was to be happy. I do have a knack for finding great women.
+ - Bush’s memoir is 512 pages. To be fair, 200 of those pages are just games and puzzles.
+ - It’s a book. It’s mine. And it’s done.
+ - You know, your whole life you’re concerned about money for this and that. And then you don’t have to worry about it, so you worry about other stuff.
+ - A new survey says one in three adults will be dressing up for Halloween. As for me, I’m not going to do anything. I’m going as Congress.
+ - If Scotland and America go to war, I’m afraid I’ve already sworn in.
+ - You know, I think there’s a good rule of thumb here: Don’t take nutritional advice from other species.
+ - I just do my thing and try each show to be more honest about why I am and who I am. It’s quite tricky and actually nerve-racking to do that. It’s kind of a happy train wreck.
+ - For me, comedy should have a certain amount of joy in it. It should be about attacking the powerful – the politicians, the Trumps, the blowhards – going after them. We shouldn’t be attacking the vulnerable.
+ - I found out it is just as hard to make a movie that you are not proud of as it is to make one you love.
+ - All they teach you in drama school is how to do stage fights and be a pain in rehearsals.
+ - The White House announced plans to begin normalizing relations with Cuba – this as we’re awkwardizing relations with Russia.
+ - I don’t get emails from my corporate overlords.
+ - Technically my dog’s naked most of the time. Except halloween, when I dress him up as Liza Minelli.
+ - Wikipedia celebrates its 12th birthday today. Of course, I have no idea if it’s true. I read it on Wikipedia.
+ - I’m hooked on email. That’s right, kids, I’m one of you.
+ - It seemed that I performed better sober than drunk. Who knew?
+ - Dell Computers announced they’re releasing a competitor for the iPad. Now it is, in fact, a great alternative for people who already have an iPad, but are fed up with it working all the time.
+ - Much of television has been homogenized in the desire to avoid annoying or upsetting people.
+ - I’m not aware of having a creepy laugh, but apparently I do.
+ - At CBS, I’m in your house. I’m mindful of that. When I do standup, you’re in my home and I can say what I want to.
+ - Santa blows all these shipping companies away. He delivers more than 2 billion packages in just 24 hours. He does it by sleigh. He doesn’t use tracking numbers and doesn’t use trucks. He just uses midgets and a giant bag.
+ - This story is true. Of course, there are many lies therein and most of it did not happen, but it’s all true. In that sense it is deeply religious, perhaps even biblical.
+ - I enjoy bathing, as many Europeans don’t.
+ - Wait! Don’t applaud my cheapness! I’ve got other crap I need help with!
+ - Here’s a tip for all you aspiring young comics: Don’t beat up the customers. It is very difficult to get laughs from an audience when you’ve actually drawn blood from one of their number. It kills the mood.
+ - I watched the Republican debate. At one point, the candidates said there are no classes in America, a point then hotly debated by all six rich white guys that were there.
+ - Being an American is something I wanted to be for a very long time, probably since I saw the moon landing when I was a child.
+ - The ‘Star Wars’ movie is coming out. Disney has kept the details of the movie under wraps because they’re not Sony.
+
+306 quotes

@@ -1,0 +1,57 @@
+ - The idea that some lives matter less is the root of all that is wrong with the world.
+ - The essence of global health equity is the idea that something so precious as health might be viewed as a right.
+ - Equity is the only acceptable goal.
+ - I’m not an austere person.
+ - If access to health care is considered a human right, who is considered human enough to have that right?
+ - We want to be on the winning team, but at the risk of turning our backs on the losers, no, it is not worth it. So we fight the long defeat.
+ - 60% of workers surveyed said if their employer took action to support the mental wellbeing of all staff, they would feel more loyal, motivated, committed and be likely to recommend their workplace as a good place to work.
+ - That’s when I feel most alive, when I’m helping people.
+ - The model of the teaching hospital, which links research to teaching and service is what’s missing in global health.
+ - I mean, everybody should have access to medical care. And, you know, it shouldn’t be such a big deal.
+ - The world is full of miserable places. One way of living comfortably is not to think about them or, when you do, to send money.
+ - Anywhere you have extreme poverty and no national health insurance, no promise of health care regardless of social standing, that’s where you see the sharp limitations of market-based health care.
+ - If I am hungry, that is a material problem; if someone else is hungry, that is a spiritual problem.
+ - What I can argue is that no one should have to die of a disease that is treatable.
+ - You can’t have public health without a public health system. We just don’t want to be part of a mindless competition for resources. We want to build back capacity in the system.
+ - People call me a saint and I think, I have to work harder. Because a saint would be a great thing to be.
+ - It is very expensive to give bad medical care to poor people in a rich country.
+ - The biggest public health challenge is rebuilding health systems. In other words, if you look at cholera or maternal mortality or tuberculosis in Haiti, they’re major problems in Haiti, but the biggest problem is rebuilding systems.
+ - I’m one of six kids, and the eight of us lived for over a decade in either a bus or a boat.
+ - But if you’re asking my opinion, I would argue that a social justice approach should be central to medicine and utilized to be central to public health. This could be very simple: the well should take care of the sick.
+ - The only way to do the human rights thing is to do the right thing medically.
+ - With rare exceptions, all of your most important achievements on this planet will come from working with others- or, in a word, partnership.
+ - For me, an area of moral clarity is: you’re in front of someone who’s suffering and you have the tools at your disposal to alleviate that suffering or even eradicate it, and you act.
+ - You can’t have public health without working with the public sector. You can’t have public education without working with the public sector in education.
+ - Haiti is always talking about decentralization and nothing has been so obvious, perhaps a weakness, as the centralized nature of Haitian society as being revealed by the earthquake. I mean, they lost all these medical training programs because they didn’t have them anywhere else.
+ - Ebola has not yet come into contact with modern medicine in West Africa. But when protocols for the provision of high quality supportive care are followed, the case fatality rate for Ebola may be lower than 20 percent.
+ - I think we will see better vaccines within the next 15 years, but I’m not a scientist and am focused on the short-term – what will happen in the interim.
+ - There is nothing wrong with underlining personal agency, but there is something unfair about using personal responsibility as a basis for assigning blame while simultaneously denying those who are being blamed the opportunity to exert agency in their lives.
+ - Civil and political rights are critical, but not often the real problem for the destitute sick. My patients in Haiti can now vote but they can’t get medical care or clean water.
+ - The poorest parts of the world are by and large the places in which one can best view the worst of medicine and not because doctors in these countries have different ideas about what constitutes modern medicine. It’s the system and its limitations that are to blame.
+ - I critique market-based medicine not because I haven’t seen its heights but because I’ve seen its depths.
+ - I can’t sleep. There’s always somebody not getting treatment. I can’t stand that.
+ - Again, conventional Catholicism does not much appeal to me.
+ - Some people talk about Haiti as being the graveyard of development projects.
+ - It is clear that the pharmaceutical industry is not, by any stretch of the imagination, doing enough to ensure that the poor have access to adequate medical care.
+ - In an age of explosive development in the realm of medical technology, it is unnerving to find that the discoveries of Salk, Sabin, and even Pasteur remain irrelevant to much of humanity.
+ - I feel it’s part of my job to make the problems of the poor compelling.
+ - I’ve been impressed, over the last 15 years, with how often the somewhat conspiratorial comments of Haitian villagers have been proven to be correct when the historical record is probed carefully.
+ - We’ve taken on the major health problems of the poorest – tuberculosis, maternal mortality, AIDS, malaria – in four countries. We’ve scored some victories in the sense that we’ve cured or treated thousands and changed the discourse about what is possible.
+ - The idea that because you’re born in Haiti you could die having a child. The idea that because you’re born in you know Malawi your children may go to bed hungry. We want to take some of the chance out of that.
+ - In fact, it seems to me that making strategic alliances across national borders in order to treat HIV among the world’s poor is one of the last great hopes of solidarity across a widening divide.
+ - I think that looking forward it’s easy to imagine more constructive help for Haiti.
+ - I think, sometimes, that I’m going nuts, and that perhaps there is something good about blocking clean water for those who have none, making sure that illiterate children remain so, and preventing the resuscitation of the public health sector in the country most in need of it. Lunacy is what it is.
+ - But as for activism, my parents did what they could, given the constraints, but were never involved in the causes I think of when I think of activists.
+ - The thing about rights is that in the end you can’t prove what should be considered a right.
+ - The human rights community has focused very narrowly on political and civil rights for many decades, and with reason, but now we have to ask how can we broaden the view.
+ - Since I do not believe that there should be different recommendations for people living in the Bronx and people living in Manhattan, I am uncomfortable making different recommendations for my patients in Boston and in Haiti.
+ - I recommend the same therapies for all humans with HIV. There is no reason to believe that physiologic responses to therapy will vary across lines of class, culture, race or nationality.
+ - I can’t think of a better model for Haiti rebuilding than Rwanda.
+ - I would say that, intellectually, Catholicism had no more impact on me than did social theory.
+ - I’ve been asked a lot for my view on American health care. Well, ‘it would be a good idea,’ to quote Gandhi.
+ - We have to design a health delivery system by actually talking to people and asking, ‘What would make this service better for you?’ As soon as you start asking, you get a flood of answers.
+ - Everybody should be interested in access to primary and secondary education for everybody.
+ - If you look just at the decades after 1934, you know it’s hard to point to really inspired and positive support from outside of Haiti, to Haiti, and much easier to point to either small-minded or downright mean-spirited policies.
+ - At the same time, it is obvious that clinicians in Haiti are faced with different, and, in fact, greater, challenges when attempting to treat complications of HIV disease.
+
+55 quotes

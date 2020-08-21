@@ -1,0 +1,29 @@
+ - Nothing gets a bigger laugh than when you refer to things like ethics or human rights.
+ - I was immature the way I handled the business. I saw myself as a tribune of the people.
+ - I’ve seen people with a tremendous amount of educational background in the field not turn out to be terribly good actors, and I’ve seen people with no education in the field turn out to be people that I admire quite a bit.
+ - I think it’s good to meet smart people and talk.
+ - Anyone who devotes time and attention to what makes people tick, to me, is a smart person.
+ - Nobody has a franchise on what is good.
+ - Artists speak the truth to the public without fear of retribution or damage to their careers.
+ - If you don’t think you want to go on a train and read the paper every day and work from nine to six at night, there was something about the uncertainty when I was younger which was very attractive.
+ - It’s not like I’m the most famous person in the world.
+ - I do believe all actors are smart.
+ - I saw and I met a lot of people who were in the field. It also provided a context in which I came to respect what the actor did, because I saw how difficult it actually was to do.
+ - For about the first ten years of my career, I wasn’t terribly motivated.
+ - The twentieth century has exhibited a barbarism and lack of respect for human life on a massive scale just about unknown before.
+ - Involvement in public affairs is a legitimate use of celebrity.
+ - But why should I run for office and lose what little influence I have?
+ - Then I realized that to be really good at this requires a lot of energy and concentration and skill.
+ - I kind of have a dilettantish spirit about me.
+ - I kind of dwindled into acting.
+ - I don’t even like to use the word relationship. I don’t know what it means.
+ - But some actors I have met possess an intelligence that I can only dream of. It’s about character, it’s about behavior. They understand things about people that I simply don’t see.
+ - You have to think an awful lot about your motivations or people’s behavioral intentions or what their body language can indicate or what’s really going on or what makes people sometimes do, sometimes, the irrational things they do.
+ - I still think I’m going to do something else when I grow up.
+ - I think you have an obligation to be an optimist. Because if you’re not, nothing will change.
+ - If I don’t see my kids for six days, I start to get withdrawal pains.
+ - Acting is not about knowing all this stuff; it’s about character.
+ - In Europe, people in the arts are considered part of the intelligentsia; they are considered part of the elite.
+ - I had no desire from an early age to be on the stage.
+
+27 quotes

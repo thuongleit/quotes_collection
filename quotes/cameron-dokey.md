@@ -1,0 +1,32 @@
+ - Keep what you hold in your heart safe and strong.
+ - Sometimes, pushing against change only makes it push back twice as hard. But even the most bitter fruit may contain something sweet at its core. A taste you would never have encountered if you had not been willing to endure the bitter first.
+ - Yet even the brightest of sunrises must come to an end.
+ - Even the most straightforward of paths could turn out to be more complicated than it seemd at first.
+ - Over and over, we start our own tales, compose our own stories, whether our lives are short or long. Until at last all our beginnings come down to just one end, and the tale of who we are is done.
+ - Darkness may cover light, but that is not the same thing as putting it out. Whereas, to overcome darkness, all light need do is to exist.
+ - All of us show many faces to the world. No one shows her true face all of the time. To do that would be dangerous, for what is seen can also be known.
+ - If you have to ask, you’ve never been in love. More than that, you’ve never had your feelings hurt by the one you want to trust and cherish you most of all.
+ - I suppose when the things that give you bad dreams live inside you, there’s no point in trying to stop them. They’re going to come out whenever they decide it is their time. Better just to close your eyes and hold on tight, the faster to get the things you fear to go back to sleep themselves.
+ - Little princess, lovely as the dawn, well named Aurore.
+ - How much easier my life would be if I did not love you! I thought. How much less painful, but how much plainer. How much less color there would be in the world.
+ - As long as a thing is unknown, it belongs to us in a way that well-known things do not. For we have the opportunity to fill the empty, unknown spaces for ourselves, and in them there is room for imagination and for hope.
+ - I am free to choose my own actions. Indeed, like everyone else, I must be so. A good act that is compelled is not goodness at all, but merely force.
+ - That is what love is I thought. A possibility that becomes a choice. A choice you keep making over and over. Day after day. Year after year. Time after time.
+ - I have not led an ordinary life, nor a life that would suit everyone. I took great risks, but because I did, I also earned great reward. I found the way to show my true face freely, without fear. Because of this, I found true love.
+ - A will to be unkind is like a sickness. It can be healed or driven out. But to be unkind because you are thoughtless is the worst kind of blindness: difficult to cure, because you cannot see the fault even as you commit it.
+ - Five is for five heartbeats, the length of time it takes to breathe in or out. For that is how quickly a life may change, for better or for ill. The time it takes to make up, or change, your mind.
+ - Love cannot thrive simply by being offered. Sooner or later it must be accepted and reciprocated. It must be seen for what it is and nourished according to its needs, or it will die.
+ - Love so joyfully and freely given can never be taken away. It is never truly gone.
+ - Maybe all young men who love us become knights in shining armor when we love them back.
+ - I think the worst part is that when you know you dream another person’s dream, you can never truly feel at peace. Never truly trust yourself. If you carry around somebody else’s nightmare, who knows what else your insides might hide or when it might come out?
+ - I had to cease to mourn what could never be and make the most of what was possible. And I would begin doing that by trying to mend the hurts of the past.
+ - Thinking about dark and troublesome things, wondering when they’ll come to pay you a visit, turns out to be the very best way to call them to your side.
+ - For in hope’s absence, a miracle arrived.
+ - True love comes when it will, not when it’s called.
+ - For surely a king is first a man. And so it must follow that a king does as all men do: the best he can.
+ - My playing had called to another human being at last. Surely, she could be no other than my own true love. Slowly, I got to my feet. Speak to me, I thought. And as if she’d heard me, the young woman’s lips parted and she spoke thus: Have you lost your mind?
+ - How did you explain a thing it had not occurred to you to question? A thing you just knew, clear through to your soul?
+ - Really believing in “once upon a time”. Believing that it will draw you in, take you with me to a place you’ve never been before.
+ - Remember that yours is not the only heart that may be wishing for love.
+
+30 quotes

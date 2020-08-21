@@ -1,0 +1,68 @@
+ - Aim for the moon. If you miss, you may hit a star.
+ - Be careful the environment you choose for it will shape you; be careful the friends you choose for you will become like them.
+ - Success is achieved and maintained by those who try and keep trying.
+ - Thinking will not overcome fear but action will.
+ - Whatever the mind of man can conceive and believe, it can achieve.
+ - Try, try, try, and keep on trying is the rule that must be followed to become an expert in anything.
+ - All I want to do is change the world.
+ - Have the courage to say no. Have the courage to face the truth. Do the right thing because it is right. These are the magic keys to living your life with integrity.
+ - Truth will always be truth, regardless of lack of understanding, disbelief or ignorance.
+ - Regardless of who you are or what you have been, you can be what you want to be.
+ - All personal achievement starts in the mind of the individual. Your personal achievement starts in your mind. The first step is to know exactly what your problem, goal or desire is.
+ - You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success – or are they holding you back?
+ - There is little difference in people, but that little difference makes a big difference. The little difference is attitude. The big difference is whether it is positive or negative.
+ - There is little difference in people, but that little difference makes a big difference. The little difference is attitude. The big difference is whether it is positive or negative.
+ - Tell everyone what you want to do and someone will want to help you do it.
+ - Definiteness of purpose is the starting point of all achievement.
+ - Your most precious, valued possessions and your greatest powers are invisible and intangible. No one can take them. You, and you alone, can give them.
+ - Everyone who achieves success in a great venture, solves each problem as they came to it. They helped themselves. And they were helped through powers known and unknown to them at the time they set out on their voyage. They keep going regardless of the obstacles they met.
+ - When you discover your mission, you will feel its demand. It will fill you with enthusiasm and a burning desire to get to work on it.
+ - Like success, failure is many things to many people. With positive mental attitude, failure is a learning experience, a rung on the ladder, a plateau at which to get your thoughts in order and prepare to try again.
+ - If you are really thankful, what do you do? You share.
+ - To be energetic, act energetic.
+ - Sales are contingent upon the attitude of the salesman – not the attitude of the prospect.
+ - Little hinges swing big doors.
+ - You affect your subconscious mind by verbal repetition.
+ - You will receive abundance for your giving. The more you give, the more you will have!
+ - When we direct our thoughts properly, we can control our emotions.
+ - Big doors swing on little hinges.
+ - Keep your mind on your objective, and persist until you succeed. Study, think, and plan.
+ - I feel healthy! I feel happy! I feel terrific!
+ - Have the courage to face the truth.
+ - To every disadvantage there is a corresponding advantage.
+ - Prayer is mans greatest power!
+ - The natural law of inertia: Matter will remain at rest or continue in uniform motion in the same straight line unless acted upon by some external force.
+ - If you cannot save money, the seeds of greatness are not in you.
+ - No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto.
+ - When life hands you a lemon, squeeze it and make lemonade.
+ - To be happy, make other people happy.
+ - Self-suggestion makes you master of yourself.
+ - When you do the wrong thing, knowing it is wrong, you do so because you haven’t developed the habit of effectively controlling or neutralizing strong inner urges that tempt you, or because you have established the wrong habit and don’t know how to eliminate them effectively.
+ - What the mind of man can conceive and believe, the mind of man can achieve with Positive Mental Attitude. It is a form of self-suggestion. It is a self-motivator to success. When it becomes a part of you, you dare to aim higher.
+ - All personal achievement starts in the mind of the individual.
+ - The choice is yours. You hold the tiller. You can steer the course you choose in the direction of where you want to be – today, tomorrow, or in a distant time to come.
+ - Every great man, every successful man, no matter what the field of endeavor, has known the magic that lies in these words: every adversity has the seed of an equivalent or greater benefit.
+ - Events tend to recur in cycles.
+ - It takes less work to succeed than to fail.
+ - Enthusiasm is the electric current that keeps the engine of life going at top speed.
+ - If there is something to gain and nothing to lose by asking, by all means ask!
+ - You always do what you want to do. This is true with every act. You may say that you had to do something, or that you were forced to, but actually, whatever you do, you do by choice. Only you have the power to choose for yourself.
+ - I think there is something, more important than believing: Action! The world is full of dreamers, there aren’t enough who will move ahead and begin to take concrete steps to actualize their vision.
+ - Success is achieved and maintained by those who try, and keep trying, for there is nothing to lose by trying and a great deal to gain if successful. By all means TRY! Do it NOW!!!
+ - Be generous! Give to those you love; give to those who love you; give to the fortunate; give to the unfortunate – yes, give especially to those to whom you don’t want to give. You will receive abundance for your giving. The more you give, the more you will have!
+ - The reason so few people are successful is no one has yet found a way for someone to sit down and slide uphill.
+ - Instead of believing the world is plotting to do you harm, choose to believe the world is plotting to do you good. Instead of seeing every difficult challenging event as a negative, see it for what it could be – something that is meant to enrich you, empower you, or advance your causes.
+ - It is interesting to note that life never leaves us stranded. If life hands us a problem, it hands us also the abilities with which to meet the problem.
+ - Are the things around you helping you toward success, or are they holding you back?
+ - There’s a great joy in my giving. It’s thrilling. It’s exhilarating. It’s important to be a part of sharing. It is my love. It is my joy.
+ - To solve a problem or to reach a goal, you don’t need to know all the answers in advance. But you must have a clear idea of the problem or the goal you want to reach.
+ - We have a problem. ‘Congratulations.’ But it’s a tough problem. ‘Then double congratulations.’
+ - When you know principles that can motivate you, you will then know principles that can motivate others. Conversely, when you know principles that can motivate others, you will then know principles that can motivate you.
+ - When our attitude towards ourselves is big, and our attitude toward others is generous and merciful, we attract big and generous portions of success.
+ - So many fail because they don’t get started – they don’t go. They don’t overcome inertia. They don’t begin.
+ - If you employed study, thinking, and planning time daily, you could develop and use the power that can change the course of your destiny.
+ - Bondage is – subjection to external influences and internal negative thoughts and attitudes.
+ - You too can determine what you want. You can decide on your major objectives, targets, aim and destination.
+ - What contemptible scoundrel has stolen the cork to my lunch?
+
+66 quotes

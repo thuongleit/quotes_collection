@@ -1,0 +1,110 @@
+ - If opportunity doesn’t knock, build a door.
+ - Laughter is an instant vacation.
+ - Laughter is the best medicine in the world.
+ - My doctor told me that jogging could add years to my life. I think he was right. I feel ten years older already.
+ - A good wife always forgives her husband when she’s wrong.
+ - Some kids want to know why the teachers get paid when it’s the kids who have to do all the work.
+ - I live to laugh, and I laugh to live.
+ - I’d rather be a could-be if I cannot be an are; because a could-be is a maybe who is reaching for a star. I’d rather be a has-been than a might-have-been, by far; for a might have-been has never been, but a has was once an are.
+ - They’ve finally come up with the perfect office computer. If it makes a mistake, it blames another computer.
+ - If evolution really works, how come mothers only have two hands?
+ - My wife and I were shopping for the whole family. In the music department my wife said, “Let’s get your nephew a set of drums. That’s what your brother did to us last year.”
+ - There are a lot of things money can’t buy. Not one of them is on my son’s list.
+ - The human brain is special. It starts working as soon as you get up and it doesn’t stop until you get to school.
+ - Marriage is one of the few institutions that allow a man to do as his wife pleases.
+ - Just remember, golf is flog spelled backwards.
+ - I made a terrible mistake last Christmas. My wife made me swear that I wouldn’t give her a fancy gift. And I didn’t.
+ - My wife and I have a perfect understanding. I don’t try to run her life, and I don’t try to run mine.
+ - Most attorneys practice law because it gives them a grand and glorious feeling. You give them a grand – and they feel glorious.
+ - The problem with life is, by the time you can read women like a book, your library card has expired.
+ - My wife calls our waterbed the Dead Sea.
+ - A man falls down a flight of stairs and somebody rushes over to him and asks, Did you miss a step? No, he answers, I hit every one of them!
+ - Valentine’s Day is the day when you remember that Cupid was a lousy shot.
+ - A young man fills out an application for a job and does well until he gets to the last question, “Who Should we notify in case of an accident?” He mulls it over and then writes, “Anybody in sight!”
+ - Our tree was so puny we used orthopedic bulbs.
+ - The Post Office is very careful nowadays. When they get a package marked “Fragile,” they throw it underhand.
+ - It’s amazing how fast later comes when you buy now!
+ - When I was in school, one of my teachers was crazy about me. I once heard her tell another teacher, “I wish he was my kid for one day!”
+ - My son really has the spirit of Valentine’s Day. When he was in college, he used to send his mother a heart-shaped box of laundry.
+ - Talk about cheap – on Christmas Eve, my neighbour shoots off three blanks and tells his kids Santa Claus just committed suicide.
+ - I gave my wife a gift certificate for Christmas. She ran out to exchange it for a bigger size.
+ - You’re aging when your actions creak louder than your words.
+ - If you hire relatives, you’ll have a payroll that won’t quit.
+ - My son asked for very little – a kickstand, with a motorcycle attached.
+ - My son gave me a nice bottle of cologne – Eau de Owe.
+ - I have a brother who is afraid to go to sleep, he dreams he’s working.
+ - On Valentine’s Day, I wired flowers for my mother-in-law, but she found the fuse.
+ - We inherit a lot from our parents: mom’s eyes, dad’s chin, and the attitude of whichever parent isn’t punishing you at the moment. All of those things we have our mom’s to thank for.“If evolution really works, how come mothers only have two hands?”
+ - My brother applied for work, but was told by the company that it had more employees than it needed. My brother said, “Don’t worry. The little bit of work I do won’t be noticed !!!”
+ - My sister-in-law found a real surprise in her stockings – my brother.
+ - Money can’t buy you happiness. It just helps you look for it in more places.
+ - Folk who don’t know why America is the Land of Promise should be here during an election campaign.
+ - A thing of beauty is a job forever.
+ - Santa is having a tough time this year. Last year he deducted eight billion for gifts, and the IRS wants an itemized list.
+ - It was a tough school. The kids on the debating team took steroids!
+ - In Washington, a man gets up to speak and doesn’t say a thing, and the other men disagree with him for three hours.
+ - Nowadays, when a speaker tells the graduates that the future is theirs – is that a promise or a threat?
+ - My son has a big Christmas problem – what do you buy for a father who has everything and you’re using it?
+ - Committee – a group of men who keep minutes and waste hours.
+ - All my wife wanted for Valentine’s Day was a little card – American Express.
+ - I just read about a schoolteacher who got hurt. She was grading papers on a curve!
+ - He was such a bad writer, they revoked his poetic license.
+ - Jews don’t drink much because it interferes with their suffering.
+ - I take New Years with a grain of salt and three aspirins.
+ - I bought my son a bat for Christmas. On New Year’s it flew away.
+ - For every studen with a spark of brilliance, there are about ten with ignition trouble.
+ - This is how it is today: The teachers are afraid of the principals. The principals are afraid of the superintendents. The superintendents are afraid of the board of education. The board is afraid of the parents. The parents are afraid of the children. The children are afraid of nothing!
+ - I don’t mind personal insults, but when you insult the jokes that I tell you’re insulting Fred Allen, Bob Hope, Burns and Allen, Trevor McGee and Molly Picon.
+ - One of those Christmas songs says, “You better not shout, you better not cry, you better not pout.” How’s my wife going to get along?
+ - Your marriage is in trouble if your wife says, ‘You’re only interested in one thing,’ and you can’t remember what it is.
+ - I can’t tell you his age, but when he was born the wonder drug was Mercurochrome.
+ - It’s always consoling to know that today’s Christmas gifts are tomorrow’s garage sales.
+ - I bought my mother-in-law a beautiful chair for Christmas, but she won’t let me plug it in.
+ - A man is hit by a car while crossing a Beverly Hills street. A woman rushes to him and cradles his head in her lap, asking, Are you comfortable? The man answers, I make a nice living.
+ - You look like a normal person, if you can find a normal person who wants to look like that.
+ - Every year my boss used to give me a bottle of expensive brandy because I’d told him that my doctor suggested a drink once in a while. This year my boss gave me the name of a new doctor.
+ - I gave my wife a twenty-five-dollar gift certificate. She used it as a down payment on a mink coat.
+ - Valentine’s Day is like Armistice Day – you declare a truce.
+ - Why are we honoring this man? Have we run out of human beings?
+ - Who says we didn’t have controversial subjects on TV back in my time? Remember Bonanza? It was about three guys in high heels living together.
+ - I bought an ideal gift for my mother-in-law – a battery-operated mouth.
+ - I like to do things for my wife on Valentine’s Day. I open the door for her when she puts laundry in the washing machine.
+ - I know why superman left krypton. Earth was the only place where he could get steriods!
+ - In the suburbs it’s hard to buy your Christmas gifts early in the year. You never know who your friends will be in December.
+ - This man’s wife told him, “For Christmas, surprise me.” On Christmas Eve he leaned over where she was sleeping and said, “Boo!”
+ - They’ve got plastic Christmas trees now. They’re hard to tell from the real aluminum ones.
+ - My wife sent me a Valentine card that said, “Take my heart, take my lips, take my soul.” That’s just like her. She kept the good parts for herself.
+ - My wife wants something foreign for Christmas – like a Mexican divorce.
+ - I never stole a joke in my life. I just find them before they’re lost.
+ - Now that doctors have stopped making house calls, lots of patients now have to die without their help.
+ - War toys are scary. They have a rocket launcher with a bayonet attached, in case you miss.
+ - I don’t date women my age. There aren’t any.
+ - At eighty-two, I feel like a twenty-year-old, but, unfortunately, there’s never one around.
+ - I feel like Zsa Zsa Gabor’s sixth husband. I know what I’m supposed to do, but I don’t know how to make it interesting.
+ - At the Christmas party, the secretary with the long red hair ate three pickles, and four salesmen panicked.
+ - I just bought a great gift for my boss – a leaky ant farm.
+ - One teacher recently retired with a half-million dollars after 30 years of working hard, caring, dedicating herself and totally immensing herself in the problems of the students. That gave her $50. The rest of the money came from the death of a rich uncle.
+ - I was in a department store and I saw a weird-looking gadget. I asked the young saleslady what it was. She answered, “It doesn’t do anything. It’s just a Christmas gift.”
+ - I bought a Christmas tree for twenty dollars. When I came home the next day, my wife was wearing it in her hair.
+ - The only thing that can break a piece of Valentine candy is another piece of Valentine candy.
+ - My wife can’t figure out what to buy me. What do you give a man who’s had everything up to here?
+ - An adult western is where the hero still kisses his horse at the end, only now he worries about it.
+ - I like to think of myself as the middleman between Fred Allen and Henny Youngman.
+ - Do you want to feel insecure? Count the number of Christmas cards you sent out, and then count those you received.
+ - Do you realise that Eve was the only woman who ever took a man’s side?
+ - I wanted to get the guy who works next to me in the office something he really wants, but how do you wrap up a saloon?
+ - Our local department store had two Santas – one for regular kids and one for kids who wanted ten toys or less.
+ - For Christmas the just came out with a battery-operated battery. But the batteries aren’t included.
+ - She was nice to him on Valentine’s Day. She gave him a heart-shaped rash.
+ - What an orchestra! They just sit there, but their minds are thousands of miles away with their bookies.
+ - At Christmas you can get real bargains. I saw one item marked down ten dollars. It was a yacht.
+ - It’s rough to go through life with your contents looking as if they settled during shipping.
+ - I bought my son an indestructible toy. Yesterday he left it in the driveway. It broke my car.
+ - The last time I saw Marilyn was in late 1959, when I appeared in Let’s Make Love at Fox. The wide-eyed Marilyn I had first known was gone. This Marilyn was more beautiful than ever.
+ - I bought my kid an educational toy to help him make it through life. No matter how you put it together, it’s wrong.
+ - She wanted an Italian sports car – with the sport still in it.
+ - Sir, I didn’t deserve the grade you gave me on this test. Do you know a lower one?
+ - My wife is a real Puritan. She thinks licking the stamp on the envelope of a Valentine is foreplay.
+ - Valentine’s Day – a nice holiday because it’s the first day of the rest of your wife.
+
+108 quotes

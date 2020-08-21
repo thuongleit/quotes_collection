@@ -1,0 +1,104 @@
+ - The first step toward tolerance is respect and the first step toward respect is knowledge.
+ - Diversity doesn’t mean black and white only.
+ - The genius is making a way out of no way.
+ - I’m a tech geek. Whenever I read about something new, I think to myself, How can I take this and make it black?
+ - My family and our neighbors and friends thought of Africa and its Africans as extensions of the stereotyped characters that we saw in movies and on television in films such as ‘Tarzan’ and in programs such as ‘Ramar of the Jungle’ and ‘Sheena, Queen of the Jungle.’
+ - It’s fascinating how life works.
+ - The Western stereotype of Africa and its black citizens as devoid of reason and, therefore, subhuman was often shared by white master and black ex-slave alike.
+ - My goal is to get everybody in America to do their family tree.
+ - It’s not white versus black any more, it’s haves versus have-nots. Unless the black middle-classes unite to promote the interests of the black underclass, tension between them is inevitable. What we, the black middle class have to do, is think of a strategy to avert that.
+ - Everything my mother and father did was designed to put me where I am.
+ - In 1957, when I was in second grade, black children integrated Central High School in Little Rock, Arkansas. We watched it on TV. All of us watched it. I don’t mean Mama and Daddy and Rocky. I mean all the colored people in America watched it, together, with one set of eyes.
+ - I want to be black, to know black, to luxuriate in whatever I might be calling blackness at any particular time, but to do so in order to come out on the other side, to experience a humanity that is neither colorless nor reducible to color.
+ - People who own property feel a sense of ownership in their future and their society. They study, save, work, strive and vote. And people trapped in a culture of tenancy do not.
+ - Censorship is to art as lynching is to justice.
+ - Brazil is the second blackest nation in the world.
+ - For as long as I can remember, I have been passionately intrigued by ‘Africa,’ by the word itself, by its flora and fauna, its topographical diversity and grandeur; but above all else, by the sheer variety of the colors of its people, from tan and sepia to jet and ebony.
+ - No one thinks of Mexico and Peru as black. But Mexico and Peru together got 700,000 Africans in the slave trade. The coast of Acapulco was a black city in the 1870s. And the Veracruz Coast on the gulf of Mexico and the Costa Chica, south of Acapulco are traditional black lands.
+ - I want to be a figure for prison reform. I think that the criminal justice system is rotten.
+ - There are just so many stories that are buried on family trees.
+ - The precise form of an individual’s activity is determined, of course, by the equipment with which he came into the world. In other words, it is determined by his heredity.
+ - In America one drop of black ancestry makes you black. In Brazil, it’s almost as if one drop of white ancestry makes you white.
+ - If you don’t tell your stories, other people will tell their story about you. It’s important that we nurture and protect these memories. Things change. Existence means change.
+ - My father, if anything, first and last, was a man of words. He loved stories; he didn’t live for stories, exactly, but I think he lived through stories. I think, like many writers, he loved stories about things he had experienced as much as, if not more than, he loved the experiences themselves.
+ - The Dominican Republic says ‘We’re black behind the ears.’ And in Mexico, ‘there’s a black grandma in the closet.’ They know, they’ve just been intermarrying for a long time. But if we did the DNA of everyone in Mexico a whole lot of people would have a whole lot of black in them.
+ - If you share a common ancestor with somebody, you’re related to them. It doesn’t mean that you’re going to invite them to the family reunion, but it means that you share DNA. I think it’s fascinating.
+ - America is the greatest nation ever founded. The ideals are the greatest ever espoused in human history, and we just need the country to live up to them. But what I worry about are the 1 million black men in the prison system.
+ - It’s very lonely being a prominent black intellectual at an institution where you’re the only prominent black intellectual. That was the model that was followed in the late 60s when black studies started. You’d get one here and one there and one here, like Johnny Appleseed.
+ - Keeping the Union together, freeing slaves and being assassinated all added up to creating ‘Lincoln the myth.’ He overcame a lot of his own prejudices and became what many would consider the first black man’s president.
+ - The most ironic outcome of the black Civil Rights movement has been the creation of a new black middle class which is increasingly separate from the black underclass.
+ - In America one drop of black ancestry makes you black.
+ - Ending the slave trade was contrary to British economic interests. For all its limitations and hypocrisies – British slavery itself, of course, still continued to exist – I still think it was a great moment in human history.
+ - Color categories are on steroids in Latin America. I find that fascinating. It’s very difficult for Americans, particularly African-Americans to understand or sympathize with.
+ - Patriotism is best exemplified through auto-critique.
+ - So, Mexico, Brazil, they wanted their national culture to be ‘blackish’ – really brown, a beautiful brown blend. And finally, I discovered that in each of these societies the people at the bottom are the darkest skinned with the most African features.
+ - My father and I made genetics history. We were the first African-Americans and the first father and son anywhere to have their genomes sequenced.
+ - So many people of color who made major contributions to American history have been trapped in the purgatory of history.
+ - I think literacy is everything.
+ - It is the black poet who bridges the gap in tradition, who modifies tradition when experience demands it, who translates experience into meaning and meaning into belief.
+ - Let’s face it – think of Africa, and the first images that come to mind are of war, poverty, famine and flies. How many of us really know anything at all about the truly great ancient African civilizations, which in their day, were just as splendid and glorious as any on the face of the earth?
+ - It’s important to debunk the myths of Africa being this benighted continent civilized only when white people arrived. In fact, Africans had been creators of culture for thousands of years before. These were very intelligent, subtle and sophisticated people, with organized societies and great art.
+ - The thing about living in a village at the foot of a mountain is that the world for you becomes, without thinking about it, self-contained. People are of two kinds, really: from the Valley, and from Elsewhere.
+ - The bottom line is that Wanda Sykes has the longest continuously documented family tree of any African-American we have ever researched.
+ - Conspiracy theories are an irresistible labor-saving device in the face of complexity.
+ - Each individual has a responsibility to get out of bed, learn their ABCs, learn your math tables, not use race and racism as an excuse.
+ - In America there is institutional racism that we all inherit and participate in, like breathing the air in this room – and we have to become sensitive to it.
+ - Learning to sing one’s own songs, to trust the particular cadences of own’s voices, is also the goal of any writer.
+ - You have to have a canon so the next generation can come along and explode it.
+ - There haven’t been fundamental structural changes in America. There’s been a very important symbolic change and that is the election of Barack Obama. But the only black people who truly live in a post-racial world in America all live in a very nice house on 1600 Pennsylvania Avenue.
+ - My father lived to be 97 and played bridge every day up to the end, so I’ve got a 50 percent chance of living a long life like him.
+ - Ever since I watched ‘Roots,’ I’ve dreamed of tracing my African ancestry and helping other people do the same.
+ - I want to get into the educational DNA of American culture. I want 10 percent of the common culture, more or less, to be black.
+ - The African American’s relationship to Africa has long been ambivalent, at least since the early nineteenth century, when 3,000 black men crowded into Bishop Richard Allen’s African Methodist Episcopal Church in Philadelphia to protest noisily a plan to recolonize free blacks in Africa.
+ - When Europeans came upon real ruined cities they refused to believe that they had been built by Africans. Here the past has been distorted and denied.
+ - The first slave to read and write was the first to run away.
+ - People are afraid, and when people are afraid, when their pie is shrinking, they look for somebody to hate. They look for somebody to blame. And a real leader speaks to anxiety and to fear and allays those fears, assuages anxiety.
+ - In fact, the class divide in the black community is now seen by some as a permanent aspect of our existence.
+ - The act of writing for the slave constituted the act of creating a public, historical self, not only the self of the individual author but also the self, as it were, of the race.
+ - I have no plans to slow down.
+ - No white racist makes you get pregnant when you are a black teenager.
+ - That’s what I mean by being bilingual: comfortable in your skin, comfortable with all parts of who you are.
+ - I rebel at the notion that I can’t be part of other groups, that I can’t construct identities through elective affinity, that race must be the most important thing about me. Is that what I want on my gravestone: Here lies an African American?
+ - In the old days, you lived in one neighborhood, you knew all your neighbors and your daughter married the guy next door. That was social and economic progress. That model is gone now. We also had a world order that was fraught but fairly stable.
+ - Because Lincoln is so closely identified with what it is to be American, everyone wants to claim him, to rewrite his story to satisfy their own particular needs.
+ - We can’t all work in the inner city. And, I don’t even think that it is incumbent upon an African-American intellectual to be concerned in their work with problems of race and class. It’s just one of the things, that we here at the DuBois Institute, are concerned about.
+ - Cuba is like going to a whole other planet. It’s so different but it’s so similar to the United States, to Miami. It’s like a doppelgaenger. It’s the mirror image. And I have no doubt, that once Cuba becomes democratic, that it will be the favorite tourist destination for Americans.
+ - The sad truth is that without complex business partnerships between African elites and European traders and commercial agents, the slave trade to the New World would have been impossible, at least on the scale it occurred.
+ - If America has a civic religion, the First Amendment is its central article of faith.
+ - Lincoln would love the fact that Obama is such a great conciliator, trying to transcend ideology.
+ - If Martin Luther King came back, he’d say we need another civil rights movement built on class not race.
+ - Wherever you go in the history of America, there have been Black people making contributions, but their contributions have been obscured, lost, buried.
+ - One principle I’ve been fighting for that doesn’t endear me to a lot of people is that black people can be just as complicated and screwed up as white people. Our motives can be just as base and violent. Suffering does not necessarily ennoble you.
+ - I don’t think the riots derailed the civil rights movement.
+ - My father was the funniest man I ever met. He made Redd Foxx look like an undertaker.
+ - Fortunately, in President Obama, the child of an African and an American, we finally have a leader who is uniquely positioned to bridge the great reparations divide.
+ - Instill respect for teachers.
+ - A more humane form of capitalism is about the best I think we can get. Which might sound very reformist or conservative, but that’s basically where I am.
+ - It turns out one of my ancestors fought in the Continental Army, so I was inducted into the Sons of the American Revolution.
+ - One must learn how to be black in America.
+ - We really invented the genre of tracing family trees and going back as far as we could on the paper trail. When the paper trail disappeared, we used DNA analysis. The technology was just being invented that allowed you to trace ancestry through DNA.
+ - I would like to do a series about sequencing the human genome, and also analyze more human diversity among other ethnic groups – a ‘Faces of America 2.’
+ - I didn’t feel particularly close to my father.
+ - I’m looking forward to the time when we all look like Polynesians.
+ - It’s no surprise that White people say things when they are together about Black people.
+ - Most black leaders, whether left, right or center, from Frederick Douglas and Martin Delaney on in the middle of the 19th century have not even wondered about the merits of the capitalist system.
+ - Suffering does not necessarily ennoble you.
+ - What’s fascinated me from the time I was a little kid was the way we construct our lives through stories.
+ - Since the day Martin Luther King was killed, the black middle classes have almost quadrupled, but the percentage of black children living on or below the poverty line is almost the same.
+ - An impressively researched and documented collection of the finest thought produced by writers throughout the African Diaspora. A magnificent achievement.
+ - I thought, “why don’t we be innovative and create something nobody had ever done before?” It was a huge hit and we immediately did a sequel with Chris Rock, Morgan Freeman, Tina Turner and Maya Angelou.
+ - First we have to recognize that the cause of poverty is both structural and behavioral. And the first thing about the behavior part is that we need a moral revolution within the African American community. Look – no white racist makes you get pregnant when you are a black teenager.
+ - The Right insists that anyone can escape poverty by working hard but that is simply not the case.
+ - You have a diasporic black world, and the only way to put it back together again is symbolic. It’s like Humpty Dumpty. Whoever could edit the ‘Encyclopedia Africana’ would provide symbolic order to the fragments created over the past 500 years. That is a major contribution.
+ - All historians generalize from particulars. And often, if you look at a historian’s footnotes, the number of examples of specific cases is very, very small.
+ - The thing about black history is that the truth is so much more complex than anything you could make up.
+ - Lincoln had a tremendous capacity for personal growth – more than any other American President.
+ - There are two things that have always haunted me: the brutality of the European traders and the stories I’ve heard about Africans selling other Africans into slavery.
+ - Politicians will not put forth programs aimed at the problems of poor blacks while their turnout remains so low.
+ - You notice patterns. White guests often are mortified – that word again – when they learn their ancestors owned slaves. But I’ve never had a black guest who was upset to learn about white ancestry that probably involved forced sexual relations.
+ - Insofar as we, critics of the black tradition, master our craft, we serve both to preserve our own traditions and to shape their direction. All great writers demand great critics.
+ - We can revolutionize the attitude of inner city brown and black kids to learning. We need a civil rights movement within the African-American community.
+ - Well, certainly one of the ironies of the success of affirmative action is that the middle class within the black community no longer lives within ‘black community’ by and large.
+ - Dr. King’s Nobel Prize had a more powerful transforming effect on him than I think he realized at the time.
+
+102 quotes

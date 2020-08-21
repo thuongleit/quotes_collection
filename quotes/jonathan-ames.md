@@ -1,0 +1,45 @@
+ - Oh, God, I don’t know what’s more difficult, life or the English language.
+ - I have very few hobbies. In fact, I have no hobbies.
+ - I am always the source of the worst rumors about myself.
+ - People don’t expect too much from literature. They just want to know they’re not alone with being confused.
+ - I live for coincidences. They briefly give to me the illusion or the hope that there’s a pattern to my life, and if there’s a pattern, then maybe I’m moving toward some kind of destiny where it’s all explained.
+ - I’ve always been intrigued by Stockholm Syndrome. Reminds me of my childhood.
+ - I hid my underwear beneath a parked Peugeot.
+ - For me, books have always been a way to feel less alone while being alone. Perhaps if I was depressed and isolated, just communicating with these authors through their sentences helped me.
+ - Even when I was living below the poverty line as a novelist, I was still living better than 99.5% of the human population of the world. But in my little, soft realm of trying to amuse a few dozen middle-class people with my books and articles, I did struggle to survive in my own way.
+ - I don’t really recognise success. I don’t see myself as on an upwardly mobile trajectory. I see myself as on the edge of a cliff about to fall off.
+ - I was aware that I was acting atrociously but I couldn’t stop myself. Rarely had I behaved in such a manner. But I guess when we’re feeling lonely in life, we attack those who actually do love us. It’s one of the things that characterizes human nature and can be summed up in one word: FLAWED.
+ - Don’t hold me to anything in the book. I’m a waffler. I like wafflers. They said John Kerry was a waffler, but I admired him for that – showed he could change his mind.
+ - Having a show get canceled is like, ‘Oh, you have caviar between your teeth,’ you know what I mean? Because you had a show in the first place.
+ - Unfortunately, I’m one of those idiots who knows everything about health and is in a constant state of alarm, and yet I continue to do everything I shouldn’t do.
+ - I need to stay in the present and use that new-age mantra: ‘I’m okay right now.’ But I worry about all the things I’m failing at every moment.
+ - For me, the past is dead. Can’t go back.
+ - For me, books have always been a way to feel less alone while being alone.
+ - How terrible to be alcoholic. You just want to quietly soothe and maybe poison yourself, but you end up poisoning those around you as well, like trying to commit suicide with a gas oven and unwittingly murdering your neighbors.
+ - I grew up in northern New Jersey – the banlieue of New York – and I now live in Brooklyn. I am separated from my parents by about 50 miles, but really there is almost no distance between us. I speak to them nearly every day.
+ - There’s no shortage of material in life.
+ - I’m on the verge of a total breakdown. Sciatica. Taxes. Cars. Fleas, possibly. It’s an absurd existence.
+ - Then again, the name, the associations with a writer’s name, can add to the reader’s entertainment and pleasure.
+ - I promote my own self-hatred.
+ - The work changes the way your face changes and ages – it just does. Also, I have very little connection to anything I’ve written. I move on. We all move on.
+ - No one I interact with – except maybe for family and strangers at the Russian baths and other weird places I may go to – is just friends or lovers with me: they also know something of my writing and this distorts their take on me.
+ - Something has happened where you almost never grow up in America. Maybe it’s the greater wealth.
+ - I’ve always been inspired by Don Quixote as a role model of sorts, of the power of books to sort of make you insane in maybe a beautiful way.
+ - I don’t laugh that much, but I do like humorous books, and I like to entertain readers that way.
+ - I’m actually much more shy and self-conscious than people’s perception of me.
+ - Mostly I have to try to censor myself so as not to write things that will hurt other people, or that will go too far.
+ - The reason it’s hard for me to tweet is I don’t want to pronounce anything, and Twitter is for pronouncing.
+ - I started puberty very late. I was nearly sixteen. And for complicated reasons this late arrival of my puberty caused me to stop playing competitive tennis. But before my puberty problem, I had trouble with my lower back and with my left testicle.
+ - As a child, I wanted to be an athlete, a professional tennis player or something like that.
+ - I’ve really never written about my relationships, or things like that. I wouldn’t want to divulge things that were too private.
+ - I don’t like to publicly acknowledge being a Jew.
+ - A lot of writing is a form of seeing – putting down what you see in terms of action and landscape.
+ - I don’t really know the person who wrote the things I wrote. I kind of know him, but I change so much all the time that it’s like I start fresh over and over and over and over. Writing-wise and life-wise.
+ - It’s hard for me to think of writing a novel, because it takes so long.
+ - To write about a place, you have to live there.
+ - I drink coffee. Without coffee, I probably couldnt write.
+ - It’s hard to leave New York: this is where my friends are, my parents are. It is so vital. The whole world seems to look to New York.
+ - I am part of a vast generation of people who perpetually live as if they just graduated from college.
+ - There are so many talented young writers named Jonathan, with whom by comparison I suffer terribly.
+
+43 quotes

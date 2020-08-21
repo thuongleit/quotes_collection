@@ -1,0 +1,43 @@
+ - Black is always elegant. It is the most complete colour in the whole world, made of all the colours in the palette.
+ - I tried to never exclude people. I know what it means to be left out.
+ - I come from a very poor family, with sisters. I never really knew my father, so I miss this strong image of a man in my life.
+ - I brought a lot of the codification of womenswear to menswear. Why? Because when I was a child, I was wearing women’s clothes adjusted to me.
+ - Seduction is about intelligence and wit. Someone who makes me laugh has every chance to seduce me.
+ - Religion and love don’t have a price, don’t have a gender, a skin color, nothing. We are all on the same plate.
+ - One thing my mom didn’t want any of us to do was to cry or to complain about life. Every day and night, even when we didn’t have much food, we would pray together. And that for me was a beautiful moment. The fact of being poor didn’t really hurt me.
+ - Even though I had a fantastic family, I always felt lonely – not lonely in the melancholic way but knowing that, to really survive, I have to do everything for myself. I had to work and study, and I was out in the street really surviving, bringing food back home.
+ - When I was far away, when I prayed every night, I felt I was very near with my heart, with my brain, to my sisters and my mom.
+ - I’m very faithful to myself. When you do things that are true it just comes out quite instinctively.
+ - When I was 12, I used to dress as a woman in the house. At the time, cross-dressing was a big taboo in Italy. It was better to have a son who was a drug addict than a cross-dresser.
+ - I had only two girlfriends. I didn’t have many friends because I was staying at home and dreaming – drawing and dreaming.
+ - I remember that my sisters gave me this beautiful, like, empty book for Christmas. And I would draw all these beautiful women. Most of the time it was mermaids and a Minotaur: half human, half animal. I used to be obsessed with Minotaurs when I was a child.
+ - I’m very well off but I can stay with normal people. I can do a super-luxury life, but I can do a very normal life and I’m not scared.
+ - I used to hate to go to school, because when it was Friday afternoon and everybody was finished school, I knew I was going to work Saturday and Sunday.
+ - My definition of beauty is something between extremely ugly and extremely fantastic.
+ - In Italy, especially in ’70s and ’80s, there was a lot of racism between north and south. And my mom immigrated from the south to the north, from Puglia, the heel of Italy. But what made me feel different was society, not my family.
+ - My mom and my sisters were amazing; they always see the good in people. My mom, she doesn’t know how to write and read much, but she’s one of the most fantastic women I’ve met in my life.
+ - At the beginning, I didn’t see what Givenchy could give my career. It was like, “Okay, I’ll do it for the money for a few years to help my mom and my sisters.”
+ - I’ve always been obsessed with things that are half animal and half human – like mermaids and Minotaurs – because they are trapped in an animal body. And I felt trapped in my own life.
+ - To leave Italy at 17 without money and go to a country like England is very rare; Italians stay with the family until 30, 35. But I couldn’t stand to live in this box anymore. I was getting bigger, and the box was getting smaller.
+ - I didn’t invent hot water. But when I approach menswear, I do it in a very honest way. And my menswear and womenswear are very similar, in the sense that I put men in leggings and lace shirts.
+ - I always think about the streets because that’s where I come from and that’s where I’m going to die one day. That is my life.
+ - My relationship with religion is very strong because it was my hope, and it gave me two things very important in my life. It gave me the belief and it gave me a point to reach: Don’t do something bad to the people next to you.
+ - I suffered a lot when there was, like, a birthday party and I was not invited. Not because I was ugly or stupid; I was not invited because the parents would say to the kids, “Don’t invite him, because he’s poor and he comes from the south of Italy, and he can’t give you nothing.”
+ - Anything I do, I do with my heart. This is why I sometimes get very upset or sometimes get very personal when I’m working.
+ - This is why I decided to work with Nike, too, because it is even more mass-market than Givenchy and could make entry-price shoes and make people dream to be part of the journey.
+ - Couture was only for rich people. Givenchy was for rich people. A bag cost 5,000 euro; a coat cost 10,000 euro. In the beginning, I couldn’t react. I was just working like a machine, because I wanted to make the house happy.
+ - In the beginning I didn’t want to do a menswear collection. It felt a little forced. And then I found that it was an amazing world.
+ - I am interested in beauty when it has something special and mysterious.
+ - I can give a beautiful present, and that may change the lives of people around me.
+ - When I started at 9, I was working with plaster. I worked with a florist. It was a little illegal for kids to work. They would give you tips because they couldn’t really give you wages.
+ - We didn’t have a television, so we sat around the table, and me and my sisters and my mom would do these jobs, like, a penny for a piece, you know, these paper jobs. You know, what really saved me as a human today is my sisters and my mom.
+ - My life has changed financially and I have a name, but I try to never forget people on my journey.
+ - People’s wardrobes in history are something that society and culture imposed. But sexuality is not about the way you dress.
+ - I’ve got what I want, and I’ve got the luck to express myself and to be paid and to do what I do as a creative person.
+ - I think my heart is in a very good place. And I think this is why I’m achieving what I’ve been asking to do in the universe for so long.
+ - I’ve had this sensibility since I was a child. If there was a black boy in the school, I was the friend. If there was an effeminate guy, I was the friend. If there was somebody who was poor like me, I was the friend.
+ - I didn’t know I was going to become a designer; I was going to become a successful person, but I really wanted to be free.
+ - Every two to three weeks, I was changing around my room. My room was made out of nothing, basically – a magazine, a little radio, a little bed – and I had the sensibility to put things together and match things in a certain way so that they were very special.
+ - No matter how much people in fashion think we’re so cool and avant-garde, for most fashion people, creativity is quite taboo.
+
+41 quotes

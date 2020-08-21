@@ -1,0 +1,36 @@
+ - Find something to believe in, and find it for yourself. And when you do – pass it on to the future.
+ - Building the future, and keeping the past alive – are one and the same thing.
+ - Games are a way of escaping reality – that’s why you need heroic factor.
+ - The human body is supposed to be 70 percent water. I consider myself 70 percent film.
+ - I want my games to teach a message about life, by presenting situations where the answer isn’t a clear yes or no.
+ - War buddies don’t exist in the meeting room. It’s a battle between a lot of different officers. Some continue fighting when they don’t realize that they have been shot.
+ - We really feel the fact of our mortality after we turn forty years old.
+ - Game creation keeps on expanding, just like the Universe. That is why I keep making games.
+ - What I’m doing is creating a game. I’m not making a movie. To make the game more enjoyable and captivating, and to make the player feel like he’s present in that setting, we need the cinematic element.
+ - I was born in Japan and raised in Japan, but those are the only things that make me Japanese, I’ve grown up reading books from all over.
+ - I want to show people how there are variations and different interpretations of good and evil.
+ - As a creator, I always want to betray fans expectations.
+ - When a man is hit by Friendly Fire, his blood pressure lowers and his morale sinks. I have been hit by Friendly Fire in my heart. Sighs spill from my body instead of blood.
+ - I respect Shigeru Miyamoto, so there will be a lot of mushrooms in Metal Gear Solid 3. But you cannot eat turtles.
+ - My unlimited desire to create stuff surpasses the advancement in hardware power.
+ - My past identity separates from me and remains in the past; he becomes someone else. Is memory really as insubstantial as the fragments of information that we store in our heads?
+ - Another world exists that I must experience. A genus of people exists who I must meet. I must inhale the air they breathe – share their world at all costs.
+ - I can see how everything relates to everything else when I think that nothing is merely coincidental. If everything that happens is inevitable, then the world is connected and whole.
+ - It’s not wether you were right or wrong, but how much faith you were willing to have – that decides the future.
+ - Super Mario Bros. is equivalent to the Big Bang of our gaming universe. If it were not for this blindingly spectacular creation, digital entertainment as we know it today would not exist.
+ - This may sound pretentious, but I don’t like being thought of as ‘the Metal Gear guy.’ There’s a lot more I can do.
+ - Humanity needs more than merely information. We express original ideas, humor, and our personal wills. We express passions and emotions. A person’s point of view conveys all of these aspects of identity.
+ - My problem is that whenever I shoot, I do it Bruce Willis “Die Hard” style – in a very cinematic fashion.
+ - You have to be very careful when you’re working on a sequel, because it has to be a continuation of what you did before.
+ - It’s nice to wear a suit once in a while. It can restrict some body movement, but it makes me feel as though I’m part of society. I feel a sense of security because I’ve conformed to the standards of the rest of the world.
+ - Genetic engineering is a result of science advancement, so I don’t think that in itself is bad.
+ - There are so many books and movies I like I never mention specific ones.
+ - What’s troubling is that because the camera is 3D, the northern part of the screen isn’t necessarily north anymore. So the jungle transforms into the true meaning of a jungle. For someone with no sense of direction like myself, I get lost in the caves every time.
+ - People are satisfied with making minor upgrades and tweaking things here and there – as long as that’s the landscape, it will keep on happening. I don’t see a problem necessarily, but at the same time it is nice to see new things come.
+ - I want to reassure fans that I am 100% involved and will continue working on Metal Gear Solid V: The Phantom Pain; I’m determined to make it the greatest game I’ve directed to date. Don’t miss it!
+ - Japanese gamers aren’t really into action games right now. They’re into role-playing or strategy games with a lot of stats, but action titles are still really popular across the US and Europe.
+ - At Disneyland, you never go backstage – even when youre in the bathroom.
+ - I usually wear casual clothes to the office. I wear a suit maybe two or three times a month, and usually only when I need to meet with the head office.
+ - We might compare each day’s decisions with the work of steering a boat. Our efforts will result in nebulous confusion if we make a wrong move at any point, even if it’s only a small tack to the side. We absolutely cannot afford carelessness, lest we risk becoming lost ourselves.
+
+34 quotes

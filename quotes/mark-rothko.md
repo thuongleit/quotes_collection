@@ -1,0 +1,38 @@
+ - I don’t express myself in my paintings. I express my not-self.
+ - Silence is so accurate.
+ - A painting is not a picture of an experience, but is the experience.
+ - The most interesting painting is one that expresses more of what one thinks than of what one sees.
+ - There is more power in telling little than in telling all.
+ - To me art is an adventure into an unknown world, which can be explored only by those willing to take the risk.
+ - There is only one thing I fear in life, my friend: One day, the black will swallow the red.
+ - There is no such thing as good painting about nothing.
+ - Look, it’s my misery that I have to paint this kind of painting, it’s your misery that you have to love it, and the price of the misery is thirteen hundred and fifty dollars.
+ - This world of the imagination is fancy-free and violently opposed to common sense.
+ - If you are only moved by color relationships, you are missing the point. I am interested in expressing the big emotions – tragedy, ecstasy, doom.
+ - I’m interested only in expressing basic human emotions. And the fact that a lot of people break down and cry when confronted with my pictures shows that I can communicate these basic human emotions.
+ - A picture lives by companionship, expanding and quickening in the eyes of the sensitive observer.
+ - We favor the simple expression of the complex thought. We are for the large shape because it has the impact of the unequivocal. We wish to reassert the picture plane. We are for flat forms because they destroy illusion and reveal truth.
+ - Without monsters and gods, art cannot enact a drama.
+ - It is really a matter of ending this silence and solitude, of breathing and stretching one’s arms again.
+ - The abstract artist has given material existence to many unseen worlds and tempi.
+ - The people that weep before my paintings are having the same religious experience that I had when I painted it.
+ - You think my paintings are calm, like windows in some cathedral? You should look again. I’m the most violent of all the American painters. Behind those colours there hides the final cataclysm.
+ - The romantics were prompted to seek exotic subjects and to travel to far off places. They failed to realize that, though the transcendental must involve the strange and unfamiliar, not everything strange or unfamiliar is transcendental.
+ - I’m not an abstractionist. I’m not interested in the relationship of color or form or anything else. I’m interested only in expressing basic human emotions: tragedy, ecstasy, doom, and so on.
+ - Pictures must be miraculous: the instant one is completed, the intimacy between the creation and the creator is ended.
+ - While the authority of the doctor or plumber is never questioned, everyone deems himself a good judge and an adequate arbiter of what a work of art should be and how it should be done.
+ - I use colors that have already been experienced through the light of day and through the state of mind of the total man. In other words, my colors are not colors that are laboratory tools which are isolated from all accidentals or impurities so that they have a specified identity or purity.
+ - The reason for my painting large canvases is that I want to be intimate and human.
+ - With us the disguise must be complete. The familiar identity of things has to be pulverized in order to destroy the finite associations with which our society increasingly enshrouds every aspect of our environment.
+ - Many of those who are driven to this life are desperately searching for those pockets of silence where we can root and grow.
+ - Art to me is an anecdote of the spirit, and the only means of making concrete the purpose of its varied quickness and stillness.
+ - My art is not abstract, it lives and breathes.
+ - Small pictures since the Renaissance are like novels; large pictures are like dramas in which one participates in a direct way.
+ - We assert that the subject is crucial and only that subject matter is valid which is tragic and timeless.
+ - A picture lives by companionship, expanding and quickening in the eyes of the sensitive observer. It dies by the same token. It is therefore risky to send it out into the world. How often it must be impaired by the eyes of the unfeeling and the cruelty of the impotent.
+ - It is a widely accepted notion among painters that it does not matter what one paints as long as it is well painted. This is the essence of academicism.
+ - And last, it may be worthwhile trying to hang something beyond the partial wall because some of the pictures do very well in a confined space.
+ - If you are moved only by the color relationships, then you miss the point.
+ - I also hang the pictures low rather than high, and particularly in the case of the largest ones, often as close to the floor as is feasible, for that is the way they are painted.
+
+36 quotes

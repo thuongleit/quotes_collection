@@ -1,0 +1,146 @@
+ - When people ask me if I went to film school I tell them, ‘no, I went to films.’
+ - Violence is fun, man.
+ - I steal from every movie ever made.
+ - I didnt go to film school, i went to films.
+ - If a Million People See My Movie, I Hope They See a Million Different Movies.
+ - If you just love movies enough, you can make a good one.
+ - If you want to make a movie, make it. Don’t wait for a grant, don’t wait for the perfect circumstances, just make it.
+ - I try not to get analytical in the writing process. I try to just kind of keep the flow from my brain to my hand as far as the pen is concerned and go with the moment and go with my guts.
+ - If my answers frighten you then you should cease asking scary questions.
+ - To me, movies and music go hand in hand. When I’m writing a script, one of the first things I do is find the music I’m going to play for the opening sequence.
+ - I don’t judge my characters, and that’s my job not to judge them.
+ - Dogs got personality. Personality goes a long way.
+ - I’ve always equated the writing process with editing, sort of like when I get through editing the movie, that’s like my last draft of the screenplay.
+ - And I will strike down upon thee with great vengeance and furious anger those who attempt to poison and destroy my brothers. And you will know my name is the Lord when I lay my fingers upon thee!
+ - Just because you are a character doesn’t mean you have character.
+ - Don’t write what you think people want to read. Find your voice and write about what’s in your heart.
+ - I’m a historian in my own mind.
+ - I want to top expectations. I want to blow you away.
+ - I’ll write for a while and then I’ll find an appropriate song and in a weird way the music will keep me in the mood. I find music to define the mood of the movie, the rhythm the movie is going to play in.
+ - I am a writer, I deal in words. There is no word that should stay in word jail, every word is completely free. There is no word that is worse than another word. It’s all language, it’s all communication.
+ - Emotion will always win over coolness and cleverness. It’s when a scene works emotionally and it’s cool and clever, then it’s great. That’s what you want.
+ - A writer should have this little voice inside of you saying, Tell the truth. Reveal a few secrets here.
+ - All my movies are achingly personal.
+ - You don’t have to know how to make a movie. If you truly love cinema with all your heart and with enough passion, you can’t help but make a good movie.
+ - The good ideas will survive.
+ - To be a novelist, all I need is a pen and a piece of paper.
+ - I don’t think there’s anything to be afraid of. Failure brings great rewards – in the life of an artist.
+ - In real life there are no bad guys. Everybody just has their own perspective.
+ - I am not going to tell you how I believe, but I do believe in God.
+ - There’s only one list that’s more illustrious than the list of directors who won the Palme d’Or. It’s the list of directors who didn’t.
+ - If I really considered myself a writer, I wouldn’t be writing screenplays. I’d be writing novels.
+ - You can’t write poetry on the computer.
+ - I’ve always considered myself a filmmaker who writes stuff for himself to do.
+ - I’m not writing novels, the screenplays are my novels, so I’m gonna write it the best that I can. If the movie never gets made, it’d almost be okay because I did it. It’s there on the page.
+ - I write movies about mavericks, about people who break rules, and I don’t like movies about people who are pulverised for being mavericks.
+ - If you’re trying to drop ten pages from a screenplay, it hurts like hell, but if you just put it away for a month and then take it out, you can do it just like that!
+ - I couldn’t spell anything. I couldn’t remember anything, but I could go to a movie and I knew who starred in it, who directed it, everything.
+ - If I’m doing my job right, then I’m not writing the dialogue; the characters are saying the dialogue, and I’m just jotting it down.
+ - Violence is one of the most fun things to watch.
+ - The way I write is really like putting one foot in front of the other. I really let the characters do most of the work, they start talking and they just lead the way.
+ - There are a lot of bad screenplays so if you write a good screenplay people are going to respond to it.
+ - When I’m writing something, I try not to get analytical about it as I’m doing it, as I’m writing it.
+ - The children despise their parents until the age of when they suddenly become just like them – thus preserving the system.
+ - Novelists have always had complete freedom to pretty much tell their story any way they saw fit. And that’s what I’m trying to do.
+ - To me, truth is the big thing. Constantly you’re writing something and you get to a place where your characters could go this way or that and I just can’t lie. The characters have gotta be true to themselves.
+ - I like it when somebody tells me a story, and I actually really feel that that’s becoming like a lost art in American cinema.
+ - I’m very happy with the way I write. I think I do it good. But I’ve never really considered myself a writer.
+ - Violence in real life is terrible; violence in movies can be cool. It’s just another colour to work with.
+ - When you gotta go out and make a movie to pay for the kid’s private school and for the three ex-wives, don’t talk to me about your artistry. It’s their job. It’s not my job. It’s my calling.
+ - Just because I was at an anti-police brutality protest, doesn’t mean I’m anti-police. We want justice, but stop shooting unarmed people.
+ - I don’t want to be an old-man filmmaker, making old-man movies, and I don’t want to be the one not to know when to leave the party.
+ - Something stopped me in school a little bit. Anything that I’m not interested in, I can’t even feign interest.
+ - You know what the funniest thing about Europe is? It’s the little differences.
+ - I don’t believe in elitism. I don’t think the audience is this dumb person lower than me. I am the audience.
+ - I surprised myself, that I was in the tissue of the character enough, that I could actually come up with something that I didn’t actually feel or didn’t believe.
+ - One of the things about writing a novel is you can do it any way you want. It’s your voice that’s important and I see absolutely no reason why a screenplay can’t be the same. It makes it a hell of a lot easier when you’re the writer and the director.
+ - You name any horrific thing, and I can make a joke out of it.
+ - Sergio Leone was a big influence on me because of the spaghetti westerns.
+ - Everything I learned as an actor, I have basically applied to writing.
+ - I won’t even think about acting in a role where I didn’t do a back story for a character.
+ - Batman is not a very interesting character. For any actor. There is simply not much to play. I think Michael Keaton did it the best, and I wish good luck to Ben Affleck. But, you know who would have made a great Batman? Alec Baldwin in the ’80s.
+ - CGI has fully ruined car crashes. Because how can you be impressed with them now? When you watch them in the ’70s, it was real cars, real metal, real blasts. They’re really doing it and risking their lives.
+ - Critics don’t want to see directors they like make too much of a left turn. That’s good for criticism.
+ - I’m not a Hollywood basher because enough good movies come out of the Hollywood system every year to justify its existence, without any apologies.
+ - He musta thought it was white boy day. It ain’t white boy day, is it?
+ - If you love cinema as much as I do, and not many people do, and if you are focused and actually have something to offer, you will get somewhere with it.
+ - I hope to give you at least 15 more years of movies. I’m not going to be this old guy that keeps cranking them out. My plan is to have a theater by that time in some small town and I will be the manager this crazy old movie guy.
+ - I always do an all-night horror marathon on Saturdays where we start at seven and go until five in the morning.
+ - To me, Godard did to movies what Bob Dylan did to music: they both revolutionized their forms.
+ - I have loved movies as the number one thing in my life so long that I can’t ever remember a time when I didn’t.
+ - I’ve always wanted to work with Warren Beatty.
+ - Sure, and that’s the cool thing about DVD: you can pack stuff on the disc that would’ve been too much for the big screen because actually it would’ve only interested yourself and a bunch of fanboys, who wanna know everything.
+ - I laugh all the time. I’m an easy laugher. You can find me on any set, because I’m always laughing.
+ - I am a genre lover – everything from spaghetti western to samurai movie.
+ - I don’t think Pulp Fiction is hard to watch at all.
+ - To me, torture would be watching sports on television.
+ - I definitely have some colleagues that I respect, and we get together from time to time. But I actually have just like genuine friends.
+ - Everybody always talks about the science fiction genre, in particular, which always makes me think about people in spaceships. I can appreciate that, but that’s not really where I think my dramatist aspect lies.
+ - Movies are not about the weekend that they’re released, and in the grand scheme of things, that’s probably the most unimportant time of a film’s life.
+ - If I wasn’t a film-maker, I’d be a film critic. It’s the only thing I’d be qualified to do.
+ - You should be semi-embarrasse d about certain people seeing your movie.
+ - I loved history because to me, history was like watching a movie.
+ - I like my song-sequences in my movies, but one of the things I like about them, is I get in and I get out.
+ - I’m a big collector of vinyl – I have a record room in my house – and I’ve always had a huge soundtrack album collection.
+ - I was trying to do like a Spaghetti Western but using World War II iconography.
+ - I want to have the fun of doing anime and I love anime, but I can’t do storyboards because I can’t really draw and that’s what they live and die on.
+ - The next movie will be in Mandarin. I enjoyed shooting all the Japanese stuff in Kill Bill so much that this whole film will be entirely in Mandarin.
+ - It’s nice to get invited to the parties and to be able to hobnob and celebrate a job well done with your colleagues.
+ - I’ve always said Thomas Edison invented the movie camera to show people killing and kissing.
+ - Suddenly, Westerns, which were our action films and what the working man went to see to blow off steam and have a good time, became boring to most people growing up from the Eighties on, because they’re kind of pastoral.
+ - It’s a standard staple in Japanese cinema to cut somebody’s arm off and have red water hoses for veins, spraying blood everywhere.
+ - Movies are my religion and God is my patron. I’m lucky enough to be in the position where I don’t make movies to pay for my pool. When I make a movie, I want it to be everything to me; like I would die for it.
+ - I hate The Confederate cause. I’ve always felt that they are our Nazis and the rebel flag was our swastika.
+ - My plan is to have a theatre in some small town or something and I’ll be manager. Ill be the crazy old movie guy.
+ - I love Elmore Leonard. To me, True Romance is basically like an Elmore Leonard movie.
+ - I always knew I wanted to do a Western. And trying to think of what that would be, I always figured that if I did a Western, it would have a lot of the aesthetics of Spaghetti Westerns, because I really like them.
+ - If I’ve made it a little easier for artists to work in violence, great! I’ve accomplished something.
+ - I’ve never used High Definition video, never, ever, ever, ever, ever. And I never will. I can’t stand that crap.
+ - But can I tell the genuine-article Italian from the poseur Italian? No. To me they all seem like poseurs.
+ - I want do a Mandarin language movie. It’ll probably be the next movie I do after the one I do next.
+ - My parents said, Oh, he’s going to be a director someday. I wanted to be an actor.
+ - I’m not a huge big fan of music video.
+ - I was just this video-store guy and now I was actually making movies and stuff.
+ - One can be inclined to just say, “F this political correctness! I don’t have time for that!”
+ - Spaghetti Westerns are really brutal and operatic with a surreal quality to the violence.
+ - My only obligation is to my characters. And they came from where I have been.
+ - I don’t really consider myself an American filmmaker like, say, Ron Howard might be considered an American filmmaker. If I’m doing something and it seems to me to be reminiscent of an Italian giallo, I’m gonna to do it like an Italian giallo.
+ - I’ve always thought John Travolta is one of the greatest movie stars Hollywood has ever produced.
+ - My mom took me to see Carnal Knowledge and The Wild Bunch and all these kind of movies when I was a kid.
+ - As a writer, I demand the right to write any character in the world that I want to write. I demand the right to be them, I demand the right to think them and I demand the right to tell the truth as I see they are.
+ - I cannot get myself interested in video games. I’ve been given video game players and they just sit there connected to my TVs gathering dust until eventually I unplug them so I can put in another special-region DVD player.
+ - If I’m on an airplane, a Kate Hudson movie is what I’m looking for. I’ll sit there and I’ll cry. I think it’s the altitude or something like that.
+ - To me, America is just another market.
+ - I wasn’t trying to top Pulp Fiction with Jackie Brown. I wanted to go underneath it and make a more modest character study movie.
+ - I do like putting scenario and story first, and I actually like masking whatever I want to say in the guise of genre.
+ - I’m very much a man of the moment. I can think about an idea for a year, two years, even four years all right, but what ever is going on with me the moment I write is gonna work it’s way into the piece.
+ - I don’t have any bone to pick with critics. In fact, if I wasn’t a filmmaker I would probably be a film critic. Most of my bone is I would be a better film critic than most of the film critics I read.
+ - A movie doesn’t have to do everything. A movie just has to do a couple of things. If it does those things well and gives you a cool night at the movies, an emotion, that’s good enough.
+ - I’ve always thought my soundtracks do pretty good, because they’re basically professional equivalents of a mix tape I’d make for you at home.
+ - What the internet has done is destroy film criticism. I would never have guessed that the profession of film criticism would be going the way of the dodo bird.
+ - Hamburgers! The corner-stone of any nutritious breakfast.
+ - I was kind of excited about going to jail the first time and I learnt some great dialogue.
+ - Violence is a form of cinematic entertainment.
+ - I’m not saying it’s a bad thing to do, but when you try to deal with prescient themes in the present, that is what you’re doing.
+ - I actually think one of my strengths is my storytelling.
+ - I really become the characters when I’m writing them. I’ll become one or two of them more than others, I’m consistent that way.
+ - The easiest way to kill a cult is to make that cult accessible.
+ - As a viewer, the minute I start getting confused, I check out of the movie. Emotionally, I’m severed.
+ - I don’t have to play the song all the way to the very end – I use it while it’s good and while it’s cool and while it’s exciting, and then I get out.
+ - It’s very important that every movie I do makes money because I want the people that had the faith in me to get their money back.
+ - I totally have no love for that whole romance for that Antebellum time period.
+ - I don’t believe in putting in music as a band aid to get you over some rough parts or bad film making. If it’s there it’s got to add to it or take it to another level.
+ - Particularly as a writer, it is my job to ignore social critics, or the response that social critics might have when it comes to the opinions of my characters, the way they talk, or anything that can happen to them.
+ - If there is something magic about the collaborations I have with actors it’s because I put the character first.
+ - I’m a human being with a conscience, and when I see murder, I cannot stand by, and I have to call the murdered the murdered, and I have to call the murderers the murderers.
+ - Pigs are filthy animals. I don’t eat filthy animals.
+ - I look at ‘Death Proof’ and realize I had too much time.
+ - When I make a movie, I want it to be everything to me; like I would die for it.
+ - I am doing what I’m doing, and if you don’t like it, don’t go see it.
+ - One thing I don’t understand is that average American movie-goers cannot watch a movie for three hours, yet they’ll watch a stupid, boring, horrific football game for four hours. Now, that is boredom at its most colossal.
+ - That’s how it always is with me: the thing that sets me down to start writing is usually not what I end up doing. Because, as much as I love genre, and I try to deliver the goods, I go off from it. I go do my own thing.
+ - Reservoir Dogs is a small film, and part of its charm was that it was a small film. I’d probably make it for $3 million now so I’d have more breathing room.
+ - Unfortunately, every time I have somebody play an instrument, it’s always like, they don’t know how to do it.
+ - If the film is nominated for awards, and even if it wins them, it doesn’t make the movie any better, just as if it’s ignored that doesn’t make the movie any worse.
+
+144 quotes

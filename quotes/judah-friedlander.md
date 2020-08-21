@@ -1,0 +1,21 @@
+ - I’m an extra dark black belt in ping pong.
+ - I’m actually banned from the Himalayas, because I’m too good at yoga.
+ - I do uphill skiing; I don’t do downhill skiing. I think that’s for nerd amateurs.
+ - Stand-up comedy is the most relaxing thing I do. If I want to unwind and de-stress, I go out and do stand-up, often several shows in a night.
+ - I don’t consider lacrosse a sport. To me that’s just a frat activity that got out of hand.
+ - You jump on a bike and start peddling. You fall down and you get up again. I’ve always been a ‘learn by doing’ kind of guy.
+ - I am the greatest marital artist in the world.
+ - Math and reading are my only weaknesses – other than that, Im perfect.
+ - As a comedian, I think you need to keep things real.
+ - I don’t live in a fancy neighborhood.
+ - Tina Fey is really cool. She’s so mellow and laid back.
+ - I like hanging out at non-showbizzy places.
+ - I never got into things to be famous. Sometimes its fun, sometimes its annoying.
+ - I think I’ve proven with my career that I can play a wide variety of characters. Yet, I still get typecast as the crazy slob guy. That’s how it always works.
+ - I actually went to film school, but I didnt like it. Im basically self-taught.
+ - In Manhattan, I often do two or three or more shows a night, so I’m always working on new material.
+ - I’m a big Pacino fan. He’s a great actor: so much passion and intensity.
+ - I had not met Tina Fey before I auditioned for 30 Rock. Some people think were old friends from Second City days. I had always been a fan of Tinas. But I actually never planned on being in a sitcom.
+ - I sort of have to self-censor sometimes.
+
+19 quotes

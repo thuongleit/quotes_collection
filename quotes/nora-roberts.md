@@ -1,0 +1,271 @@
+ - If you don’t ask, the answer is always no.
+ - If you don’t go after what you want, you’ll never have it. If you don’t ask, the answer is always no. If you don’t step forward, you’re always in the same place.
+ - There’s no reward without work, no victory without effort, no battle won without risk.
+ - If you don’t go after what you want, you’ll never have it.
+ - If you don’t step forward, you’re always in the same place.
+ - A writer never finds the time to write. A writer makes it. If you don’t have the drive, the discipline, and the desire, then you can have all the talent in the world, and you aren’t going to finish a book.
+ - You can fix anything but a blank page.
+ - The most important thing in writing is to have written. I can always fix a bad page. I can’t fix a blank one.
+ - Sex might satisfy, food might fuel, love might sustain, but without coffee, what is the point?
+ - Love without trust? It’s not love at all.
+ - People and relationships never stop being a work in progress.
+ - Things have a way of falling into place.
+ - If something isn’t special, then it’s ordinary.
+ - Half full, half empty, what the hell difference does it make? If there’s something in the damn glass, drink it.
+ - We make destiny with every turn, every choice.
+ - I wouldn’t waste a day, not an hour, not a moment. Take what you want and damn caution. Live, enjoy. Feed ravenously. Or the biggest regret you’ll have at the end of your life is wasted time.
+ - I said, you’re the beat of my heart, the breath in my body, the light in my soul.
+ - I know you love me, but I don’t know why. I look at you and I just can’t get why it’s me. Every time I get my balance, I lose it again. Because it shouldn’t be me, and I think it’d kill me if you ever figured that out.
+ - Magic exists. Who can doubt it, when there are rainbows and wildflowers, the music of the wind and the silence of the stars? Anyone who has loved has been touched by magic. It is such a simple and such an extraordinary part of the lives we live.
+ - I guess money can’t buy happiness if you shop in the wrong places.
+ - Sometimes I just want to gobble you whole, eat you alive. You’re so gorgeous. You’re so beautiful.
+ - It’s hard to resist a bad boy who’s a good man.
+ - Love and magic have a great deal in common. They enrich the soul, delight the heart. And they both take practice.
+ - Nature will kill you without a minute’s thought, and in nastier ways than a crazy guy with agun. It doesn’t make her any less beautiful.
+ - Nothing worthwhile is ever without complications.
+ - Somethings in life are out of your control. you can make it a party or a tragedy. Or, you could refuse to take the next step. You could refuse to take what you wanted most because you’re afraid some day you might lose it.
+ - Love is not enough. But, it is the rock on which all else stands.
+ - Life is full of circles.
+ - We’re all victims of what life deals out. It’s how we handle it that’s important.
+ - Be yourself. Be true to that, to your heart. Patience. See what happens if you step back instead of bounding forward.
+ - I fear feeling my heart break a second time, because I’m not sure I could survive it. I’d rather live alone than risk the pain.
+ - I’ve been happy alone and I’ve been unhappy without you. I never wanted to depend on anyone, or to let myself care so much I could be made unhappy. But I depend on you and I love you.
+ - Pretending the past doesn’t exist is as bad as living in it.
+ - We make our own choices and we’re each responsible for them. Blame and credit belong to the individual. You haven’t the right to claim either from someone else.
+ - Love is very funny business. And sex – well, let’s face it, sex is hysterical.
+ - Sometimes a wind comes up, blows you off course. You’re not ready for it, but if you’re lucky, you end up in a more interesting place than you’d planned.
+ - The man was useless as tits on a bull, but he didn’t deserve to die like that.
+ - Holding onto something that’s gone only makes a sickness inside.
+ - You’re excuses are so lame they’re limping...
+ - And still she felt more confident at the prospect of taking on the Russian Mafia than she did attending a backyard barbecue.
+ - Some things in life are out of your control. You can make it a party or a tragedy.
+ - The man that put that hurt look in your eyes, could be worth everything, or nothing at all.
+ - Into the night, in the dark, he lay beside her, listening to her breathe. He knew the varied and sundry reasons a man would kill. But none were more fierce, none were more vital than to hold safe what he loved.
+ - I generally write a first draft that’s pretty lean. Just get the story down.
+ - Tell him I took the cat.
+ - Nothing ever seems too bad, too hard or too sad when you’ve got a Christmas tree in the living room. All those presents under it, all that anticipation. Just a way of saying there’s always light and hope in the world.
+ - Courage comes in different forms. There’s strength – that’s the muscle. But love’s the heart. When you put them together, you can do anything.
+ - Why would I kill someone I don’t know, when I know so many people who irritate me, and havent’t killed any of them?
+ - When something comes easy, you usually let it go the same way.
+ - There was nothing like a Saturday – unless it was the Saturday leading up to the last week of school and into summer vacation. That of course was all the Saturdays of your life rolled into one big shiny ball.
+ - She surrounded herself with books at work and at home. Her living space was a testament to her first and abiding love with shelves jammed with books tables crowded with them. She saw them not only as knowledge entertainment comfort even sanity but as a kind of artful decoration.
+ - I don’t think you can write – at least not well – if you don’t love stories, love the written word.
+ - I promised myself that no matter where I went, what I did, I’d never take anything for granted again.
+ - What’s the point of playing if winning isn’t the goal?
+ - I hate patience. Slows everything down.
+ - Broken hearts healed. Maybe the cracks were always there, like thin scars, but they healed. People lived and worked, laughed and ate, walked and talked with those cracks For many, even the scars healed and they loved again.
+ - He trailed off as he saw the books. Piles and stacks of them beside the sofa, another stack on the coffee table, a sea of them on her dining table. Jesus Christ, Dane, you need treatment.
+ - When the going gets tough, the tough eat ribs.
+ - Don’t give up on your own happy-evers.
+ - I won’t consider getting horizontal with someone I can barely tolerate when we’re vertical.
+ - Feeling too much is a hell of a lot better than feeling nothing.
+ - Winning can be addictive.
+ - You want safe? Find a nice puppy you can train to come heel. Love’s supposed to be scary. Because if there’s no fear, there’s no thrill.
+ - I don’t kick a man when he’s down, unless I’m the one who put him down in the first place. I don’t put him down unless he deserves it. And I don’t break my word if I give it. So I’ll give you my word.
+ - You didn’t hurt me, the situation did. And now that I know why I felt that way, it won’t hurt.
+ - When somebody walks out, it leaves a hole in you. Some people fill it up, the good and the bad, and get on that way. Some people leave it open, maybe long enough to heal, maybe too long, picking at it now and then so it doesn’t heal all the way.
+ - I don’t think you tell someone you love them because you expect something. I think you tell them because you have something to give.
+ - If you love someone, when it’s the most real, the most important thing in your life, it’s not enough to coast. You need to dig in those footers, start building on that base. You want something to last, you put your back into it.
+ - Two women can’t share a house comfortably, no matter how fond they might be of each other. It’s got to be one woman’s kitchen.
+ - You can’t write well what you don’t read for pleasure. If it doesn’t entertain you, it’s not going to entertain anyone else.
+ - Once she’d been a victim- helpless, used, and broken. Now, she was a warrior.
+ - People who say not to speak ill of the dead are hypocrites, because you can take it ot the bank they’re thinking ill.
+ - I had the blood and fire rule when my boys were young. You know, unless it’s blood or fire, don’t bother me.
+ - So does that mean you’re going to fall in love with me again? What makes you think i ever stopped?
+ - Couples take care of each other, Clare, that’s what makes them a couple. And couples tell each other when something happens that scares them.
+ - Why don’t you put your ego down for a while, Justin. It must be getting heavy.
+ - A woman who can threaten your life before breakfast is the only sort of woman worth having.
+ - Laurel: I don’t need a ring or a license, or a spetacular white dress. It’s not marriage so much, or at all really, that matters. It’s the promise. It’s the knowing someone wants me to be part of his life. Someone loves me, that I’m the one for him. That’s not just enough, it’s everything.
+ - Once love found you it clung, no matter how much you tried to shake it off.
+ - No. No, I don’t believe you’d betray me with her. I don’t believe you’d cheat on me. But I’m afraid, and I’m sick in my heart that you might look at her, then at me. And regret.
+ - There are no dead ends, just detours.
+ - Do you see that out there? The strange, unfamiliar light? It’s called the sun. Let’s go get us a little.
+ - I’d rather lie bare-assed naked on the sidewalk and be trampled by tourists from South Dakota than be an accountant.
+ - Why is it you think you’ll live forever and why do you want to, I’d like to know, when you deny yourselves so many of the basic pleasures in life?
+ - Change was as much about loss as gain, about giving something up even as you reached for something new or different. The world was opening up, not closing in.
+ - A relationship isn’t something that has to be created in a day or perfected in a day. Part of the game is to keep working on it. It’s something that’ll always be just a little flawed.
+ - Listen carefully. I’d crush you like a bug for causing my wife one single moment of pain. Believe it. Fear it.
+ - Eve: Anyway, thanks for riding to the rescue. You need a white hat. Good guys wear white, right? Roarke: I look better in black.
+ - I think she was the love of his life. When you’ve got one of those, it does stuff to you. It makes you think about them even when you’re doing routine things. It makes you want to protect them, to make them happy and safe.
+ - Those big blue eyes were swimming, and he was afraid that if the first tear fell, he would break and carry her off anywhere she wanted to go.
+ - I think those who have impact and influence over us are often unaware.
+ - Wouldn’t it be nice if everything balanced in the world? If right came out on top and wrong was punished. It sure would be simple.
+ - My boyfriend and I are badasses.
+ - It does not make you less of a woman to need a man. To need one to exist, yes, this is nonsense. To need one to give one scope and importance, this is dishonest. But to need a man, one man, to bring joy and passion? This is life.
+ - Don’t ‘honey’ me in that southern-fried twang.
+ - Actually, I find it great fun to develop family series with lots of characters.
+ - It takes a lot of spine and stomach to make yourself into something when no one gives you a foundation.
+ - Whatever you remember, or feel, you need to know that whatever they were they did one worthwhile thing in their miserable lives. And that was you. Whatever they were, they couldn’t destroy that. They couldn’t stop you from becoming.
+ - Roarke’s brow cocked as he noted Casto take in the black satin that slithered over Eve’s body. In the manner of men or unfriendly male dogs, Roarke showed his teeth.
+ - I feel something for you, some dangerous thing, some volatile thing.
+ - You’re the love of my life. I don’t care how corny that sounds. You’re the start of it, and the end of it. And you’re the best of it.
+ - Potholes and bumps? Welcome to the world. Every road gas them. They’re there to be navigated, avoided, driven over, or through to the other side. Don’t keep driving into the pothole.
+ - It was best not to think, not to analyze. It was best to accept and act.
+ - Dolls are like small dead people.
+ - Love didn’t run on logic. It didn’t follow neat lines or a list of priorities.
+ - I need to write to be happy.
+ - Decisions made quickly were almost always regretted quickly.
+ - I love you. I don’t know when it started, years ago or weeks. But I know my heart’s lost to you, and I wouldn’t have it another way. You’re what I want, all there is of you.
+ - I’ve found out that falling in love doesn’t have anything to do with time. It can take a year or an instant. It happens when it’s ready to happen.
+ - Everything I know, I learned from dogs.
+ - Love’s scary, and sometimes it’s transient. But it’s worth the risks and the nerves. It’s even worth the pain.
+ - Getting a room’s not always enough. Sometimes you gotta close the door.
+ - I decided to write category romance as I’d recently discovered them, and enjoyed them.
+ - Magic is. But its power is nothing beside love. – Prince Carrick.
+ - When I left, it was for you. Coming back was for you. There’s nothing you can say, nothing you can do that would make me leave you again.
+ - It’s an exceptional thing to have someone in your life who knows and understands you so well. Who loves who you are. A very exceptional thing.
+ - If that isn’t typical male stupidity! If something doesn’t work, kick it or swear at it!
+ - Moments came and went, she thought. It was love that bound them together into a life.
+ - Evil cannot and will not be vanquished by evil. Dark will only swallow dark and deepen. The good and the light are the keenest weapons.
+ - If you tell me I’m sensible in addition to normal and wise, I’m going to punch you in the stomach.
+ - And yet, anything real, anything strong, was never easy. She’d been taught from an early age that the things that mattered most were the hardest to obtain.
+ - If sex is dignified it’s not being done right.
+ - Caroline Waverly: Sometimes we hurt more for what might have been than for what is.
+ - I loved the process of writing.
+ - He was one of the many toads you have to go through to find the prince.
+ - Love can really screw you up before you learn to live with it.
+ - She was the only woman he was afraid he would beg for.
+ - I read a lot – and I read a variety of genres.
+ - Niall: We’re tossed by the winds of fate. Once we end where they blow us, we make of ourselves that we will.
+ - Action, reaction, motivation, emotion, all have to come from the characters. Writing a love scene requires the same elements from the writer as any other.
+ - Give them your brains, girl, never your guts.
+ - The tune was sad, as the best of Ireland was, melancholy and lovely as a lover’s tears.
+ - The man’s got more money than God, and he sends you a bag of coffee?
+ - Memories are nice little possessions. As long as you don’t ignore the present when you take them out to play.
+ - There were too many idiot men in the world, to her way of thinking. And most of them ended up bumping up against stubborn women.
+ - Planting a flower’s like opening a book, because either way you’re starting something. And your garden’s your library.
+ - It was a joint, which put it one slippery step up from a dive.
+ - It’s about us. It’s about trust.
+ - Why were there no buoys in life to show you the way?
+ - I would hope that my writing’s cleaner than it was when I started.
+ - There is no disgrace in staying behind, not when it’s the right thing.
+ - That was the biggest problem with getting used to someone, she thought. You were lonely when they weren’t there.
+ - You’re going to be unemployed if you really think you just have to sit around and wait for the muse to land on your shoulder.
+ - People tell their children there are no monsters in the world. They tell them that because they believe it, or they want the child to feel safe. But there are monsters, Luke, all the more frightening because they look like people.
+ - Ireland is a land of poets and legends, of dreamers and rebels. All of these have music woven through and around them. Tunes for dancing or for weeping, for battle or for love.
+ - She was singed, bleeding, bruised, and furiously alive.
+ - The wounded recognized the wounded.
+ - He’d done as he’d pleased and even had often enjoyed long runs of luck where he hadn’t been caught. But the luckiest moment of his life had been being caught.
+ - What kind of a maniac needed over five thousand plates?
+ - Up to this point your life has pretty much sucked. You’re not responsible for that. But you are responsible for what happens from here on.
+ - You can’t argue with math, Carter. You’ll always lose.
+ - Every writer needs an editor. I don’t care how good you are or think you are.
+ - Love birds don’t always sing pretty tunes.
+ - Life is like a moustache. It can be wonderful or terrible. But it always tickles.
+ - Don’t say hit and mountain in the same sentence.
+ - My fondest wish, I suppose, would be to die at the keyboard right after finishing a book, perhaps with a little time off to have some really good sex. It’s not, ‘Oh, thank God, this is book No. 250. I can die now.’
+ - People in hell want snowcones.
+ - A ghra. A amhain. My love. My only.
+ - Better, Cilla thought, to be alone on a quiet night than to be alone in a crowd. Much better.
+ - Good fiction creates its own reality.
+ - I saw you standing on a veranda you’d built with your own hands. And I loved you.
+ - I’d rather be screwed up with you than smooth with anybody else.
+ - Grudges are bridges with faulty spans. Falling off one is a lot more rewarding than getting stuck on the other side.
+ - Ive gotten to know a number of readers from being online, and really treasure the time Ive spent with them.
+ - Today should always be outlawed in favor of tomorrow.
+ - She wants to learn how to handle a gun. Well, I want George Clooney naked in my bed, but I haven’t attempted kidnapping. Yet.
+ - I do indeed write on the road. My laptop goes with me everywhere.
+ - Tom: If you love with kindness, even when you can’t love with permanence, you’ll deserve the one who’s worthy along that path for you.
+ - Life is never as long as we want it to be, and wasted time can never be recovered.
+ - Because when you hate something, you stop doing it.
+ - I’m still picking pockets – I just do it as legally as I can. Being married to a cop limits certain activities.
+ - You bring the color and the life. It’s a lucky man who is offered that color and life, and a wise one who values it.
+ - Certainly the plagiarism, and dealing with the fallout of it, was the most difficult thing I’ve ever faced since I started writing.
+ - One of my greatest pleasures is falling into a story someone else has written.
+ - Dinner’s in one hour. If you’re not back, sitting at the table, I’ll beat you all unconscious with a spatula.
+ - Look, if some guy dressed in his mother’s clothes breaks in, fight him off until I get my pants back on.
+ - He decided there was no point in telling her he’d looked in the fridge and seen none of these things. There’d just be some variation of his mother’s standard crack about Male Refrigeration Blindness Syndrome.
+ - There it was, Eve supposed. There was the answer to why people got tangled up with people. Because when you were down, when you were wallowing, someone you mattered to would ask if you were okay.
+ - I don’t base any character on a real person, and really don’t do composites either. I make them up.
+ - I think things happen between people for a reason.
+ - Did they know – the young and fearless – what a miraculous thing it was to have all of anyone?
+ - That woman doesn’t have the sense God gave a retarded flea.
+ - I think sometimes fate cuts you a break. Like it says, okay, you’ve had enough of that crap, so it’s time you fell into something nice. See what you make out of it.
+ - I hope that’s true, because I figured out why I’d never finished it, what I was waiting for. I was waiting for you, Clare. For them. For us. I want to finish it up for you, for them, for us.
+ - Roarke: The bodies of the three men were found floating in the Chattahoochee River. Eve: I think it’d be embarrassing to be dead in the Hoochie-Coochie River. Roarke: Chattahoochee Eve: What’s the difference? Roarke: Quite a bit, I’d think.
+ - If love doesn’t make a fool of us, what will?
+ - I find I use the Internet more and more. It’s just an invaluable tool. I do most of my research on the Net now – and certainly do the bulk of my communicating through email.
+ - In the summer of 80, Silhouette bought my first book.
+ - You don’t find time to write. You make time. It’s my job.
+ - When you reach for the stars, you lose blood and tears. That’s something you should remember.
+ - If you write in category, you write knowing there’s a framework, there are reader expectations.
+ - To fate and the strange way that it twists us all together.
+ - The simple and most complex answer is love.
+ - Mary Stewart will always be my goddess. I can pick up one of her early books – one I’ve read a dozen times – and still slide right into the story.
+ - She walked with a ghost of herself, one full of potential and possibility. One who was fearless. Where had that girl gone?
+ - Anyone that has character leaves a mark on another. Would you like to leave the world without making a ripple?
+ - Are you telling me you’re cooking me dinner?- Regan Its the quickest way, without physical contact, to get a woman into bed. The kitchen through there?
+ - Not everything you wanted, deep inside, worked out.
+ - But when two people feel something, they ought to respect that enough to figure it out.
+ - Three weeks hadn’t changed Cop Central. The coffee was still poisonous, the noise abominable, and the view out of her stingy window was still miserable. She was thrilled to be back.
+ - If people let other people alone, people would be better off. It’s always people that screw things up for people anyway.
+ - I want you to take note, Commander, that turning in my badge would be like cutting off my arm. But if it comes down to a choice between the job and my marriage, then I lose the arm.
+ - That’s possible to likely. We’re involved, you and me. I’m telling you what I’m going to do because I figure when people are involved, when they matter, they tell each other.
+ - You have to trust or you’re only living half a life.
+ - He wanted to heave the glasses against the wall. Break them, break everything he could reach. Beat it, rend it. He stared out the window, imagined the city in flames, consumed to ashes. And still it wasn’t enough.
+ - Why couldn’t the merciful God turn down the sunlight so it wasn’t blasting like a red furnace against his aching eyes? Because he’d worshipped the god of beer, thats why. He’d broken a commandment and worshipped the false and foamy god of beer. And now he was being punished.
+ - In all the illusions, you’re the only truth that I need.
+ - She, as no other ever could, reached every corner of his heart. His joy, and his salvation.
+ - Roarke cares very much for Beth and for me, and a few select others. But loves? I’m not sure he’d let himself risk quite that unstable an emotion.
+ - Body adornments show that we’re aware of our bodies and expect others to be aware as well.
+ - Make a life with me, one that comes from love, one that I can watch grow in you. Only a fool would believe that what comes from what we have together would be anything but beautiful.
+ - And each book has to receive your best effort every single time. No slacking.
+ - I do not feel obliged in my reading. I read to be entertained and to relax, and to go into another world, not because it’s good for me.
+ - Necessity is often the mother of balls.
+ - When we grow up, we lose the talent for loving without restrictions.
+ - I want to keep you, till the end of days.
+ - You’re going to blow his socks off!
+ - Didn’t people consider what could happen if armies of farm animals united in revolt?
+ - Men shake hands after they beat each other up; we eat chocolate.
+ - The worst, the very worst requirement of friendship, in Eve Dallas’s opinion, was sitting through an entire evening of childbirth classes. What went on there – the sights, the sounds, the assault on all the senses – turned the blood cold.
+ - The most important aspect of any story, to me, is character.
+ - We all look. The lucky find.
+ - Laying a hand on his heart, she timed its beats to her own. And knew the truest magic was there.
+ - I don’t fiddle or edit or change while I’m going through that first draft.
+ - God is dead and I am his replacement.
+ - The very young and the very old often saw what others could not. Or would not.
+ - Every single book is a challenge.
+ - I’d suggest putting your head between your knees, but I think that’s physically impossible for you at the moment.
+ - Happy Fuller: Somehow you always love in a special way the one who gives you the most grief.
+ - I wonder if you can understand, I never really knew what it was to want, until you.
+ - Men are boys in bigger packages.
+ - If you can’t dance on it, it isn’t coffee.
+ - Grab it while you can because tomorrow could suck you dry.
+ - Parker: She believed, absolutely, that each person, each heart, had a counterpart – had a mate. A rightness. She’d always believed it, and understood that unshakable belief was a reason she was good at what she did.
+ - I long for typical days, but rarely get them any more.
+ - Love makes saints or sinners out of men.
+ - A good story’s like a door, and you can go through it whenever you need to. After you’ve read it or seen it or heard it, you can still go back through it. Once it’s yours, it’s always yours.
+ - He had realised that most vital of humanities. he had touched lives. And he had raised three boys that no one had wanted into men.
+ - I’d always loved to read – and come from a family of readers – but I never thought about writing as a career.
+ - I believe strongly in writing groups such as Romance Writers Of America that offer support, information and networking.
+ - It looks like Armani and Cartier went to war.
+ - You spend your life getting walked on, you learn to recognize the tread.
+ - A woman with romance in her life lived as grandly as a queen, because her heart was treasured.
+ - My mother says happy ever after’s a bunch of bull.
+ - Shannon: Only the living suffered. Only they were riddled with guilt and regret and unanswered questions.
+ - She could and had faced an armed laser in the hands of a mad mutant mercenary with less fear than she faced such unswerving emotion.
+ - Why couldn’t she have this, just enjoy this, without creating obstacles, digging up problems, worrying about mistakes, about tomorrow’s? Why let the maybe’s, the what if’s, the probabilities spoil something so lovely?
+ - Love meant different things to different people.
+ - Fate. You could never anticipate it.
+ - There’s an oatmeal cookie in there. I see no reason for the existence of oatmeal, particularly in cookies.
+ - Anything worth anything can be found in books.
+ - You mess with one Quinn, you mess with them all.
+ - We’re not blank slates. What we’ve done, what we’ve survived all go into us.
+ - I have no idea why it apparently takes three grown men to cook some hamburgers. One to cook, one to kibbitz, and one to insult the other two.
+ - If I can make you unhappy, then I can make you happy as well.
+ - Every writer has to figure out what works best – and often has to select and discard different tools before they find the one that fits.
+ - But Roarke doesn’t feel weird about it. He’s full of it, the love, I mean. And when he loves me, things that never worked in me did – do. It was easier when they didn’t work, but it’s better when they do. You know?
+ - Aidan to Jude: What’s wrong with running away if where you were didn’t suit you? Doesn’t it follow you’re funning to something else? Something that does suit you?
+ - Why are you always smiling? What do you know?
+ - Survivors lived with their mistakes.
+ - You have to believe in it to get it...
+ - Life has very little even ground.
+ - I’ve wanted to be with you when I didn’t have the right to.
+ - For over a year I continued to submit mss, and have them rejected – the last few with rejection letters indicated the story was pretty good, but I was American.
+ - I don’t believe for one moment you can write well what you wouldn’t read for pleasure.
+ - Lots of people think things would be better some other way. That’s why the world’s lousy with theme parks.
+ - Something your father wouldn’t have told you, he began. Taking blood, it leaves a mark on you. No matter how it’s done, or how it’s justified, it leaves a mark that goes in deep. Be sure you’re willing to wear that mark before you take the blood.
+ - You can’t just hope for happy endings. You have to believe in them. Then do the work, take the risks.
+ - Once you considered failure you were one step farther away from success.
+
+269 quotes

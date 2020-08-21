@@ -1,0 +1,37 @@
+ - We have such an amazing future ahead of us.
+ - I have nobody. I have surrounded myself with people who are fake just because I need to talk to somebody.
+ - Follow your heart and don’t question it, no matter where it tells you to go It will open up a world of experiences you can’t even imagine.
+ - Drama sells more than the truth.
+ - I think my mother is my biggest influence. There are so many things I hate about her but at the same time I’m thankful for her. All I know is that when I’m a parent I want to be just like my mom. I can talk to my mom more than any of my friends could talk to their parents.
+ - Part of being young is making mistakes.
+ - Young people need to vote. They need to get out there. Every vote counts. Educate yourself too. Don’t just vote. Know what you’re voting for, and stand by that.
+ - My boyfriend, who I love to death – he’s only 17 so he’s the youngest guy I’ve ever dated – he just moved here from Hawaii to be with me and I met him when I was 10. Anyway, in Hawaii they have such a different mentality and different priorities.
+ - My little brother is autistic, so I would love to be involved in a charity for autism, but I haven’t found the right one yet.
+ - Just because you’re part of ‘Twilight’ does not mean you’re a superstar. It means that you’re given the opportunity to maybe become one later if you work hard. Once fandom goes away, which it will very soon, it’s all about having your priorities straight and working hard.
+ - My mom can’t defend herself to the world. She is such an amazing woman, with such an open heart. It’s a real hard line, and I crossed it. I took everyone’s life story and assumed it would be a great thing to put on screen. I was being selfish and I feel so horrible about it. I feel so guilty.
+ - In middle school, we are all so damn insecure. It was the worst time for me, really destructive, like slapping myself across the face but loving it. Now I have to be an adult and change myself. I have to be a bigger person.
+ - I’ve done a lot of independent travelling, which hasn’t been the best career choice, but it’s been a really great life choice.
+ - I learned how to change a cloth diaper on a raccoon, i was maybe 8 or 9.
+ - Having people wait outside of my house sort of gives me a panic attack. I’m a believer in the concept that people should not be followed and photographed everywhere.
+ - I don’t want any special powers. I’m powerless. I wouldn’t want to see into the future, I wouldn’t want to know what anyone was thinking, ever! And I don’t want to relive my past.
+ - I enjoy feeling physically strong, so maybe I’d like to be able to lift a building and launch it at someone.
+ - I think so many young girls get caught up in the challenge of being with somebody who’s dangerous, who’s bad, who’s enticing, who’s all of those things, and you forget what it’s like to enjoy simple love.
+ - I’ve always loved music and felt connected to it, but was too afraid to explore that avenue.
+ - Some of the greatest moments in life come from moments that are incomplete.
+ - With girls, friendships are hard because you have to learn to get to a maturity level to love them but not want to be them.
+ - I definitely think that females have a harder time. It’s a lot harder to be a girl because you’re always in your head. I’ve heard my brother go and take it out on the football as he says. Whereas girls would rather sit down and over think things.
+ - Jackson plays a broken guitar because he’s in love with it, and doesn’t want to fix it, I think. It’s so broken.
+ - People send everyone hate mail. That’s the way the world works right now, I’m nothing special.
+ - We live in a world where sort of nothing is shocking anymore.
+ - Before ‘Twilight,’ occasionally I would get the ‘Hey are you that girl from that movie?’ but no one knew my first and last name. The fans of the saga are amazing, and it’s very flattering.
+ - If I can have the opportunity to go into an editing room, it’s like the golden ticket for me. All I want is to learn about everything else in the filmmaking process. I just directed a music video which just came out and that’d sort of be the area of the field that I’m going to move into, I hope.
+ - Junior high is so much worse than high school because at least in high school different is more accepted, celebrated actually: all the girls with blue hair and gothic Hello Kitty backpacks.
+ - The frenzy of the little-girl culture is something very unique, and I can only say that because I was one. The obsession – I can’t really explain it. Everything is heightened to the maximum.
+ - I just wrapped ‘Eclipse’ yesterday and the last scene we shot is probably my favorite thus far. I finally got to tell my story, in a very gentle yet elaborate way.
+ - At the end of the day, that’s our sole purpose and our sole reason for existing, is to love somebody else.
+ - Tina Fey could run this country before Sarah Palin could!
+ - I have friends come over and we read plays out loud and I make paintings and I just do things all the time just so I don’t ever feel like I’m sitting around.
+ - When you’re playing a character in a book, there’s already a lot of pressure because all of the millions of people who have read the series have been able to envision and become very attached to the characters.
+ - I’m just a believer in keeping all of the creative brain cells moving and working even when you’re not working because the inevitable loneliness and boring drought in the actor’s world, it can eat you alive.
+
+35 quotes

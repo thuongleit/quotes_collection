@@ -1,0 +1,22 @@
+ - Once a champion, always a champion.
+ - Leadership is the other side of the coin of loneliness, and he who is a leader must always act alone. And acting alone, accept everything alone.
+ - History isn’t through with me yet.
+ - There are many things we do not want in this world. Let us not just mourn them; let us change them.
+ - Some people say the president is incapable of enforcing the law. Let them say that once more and I will set the tanks on them.
+ - It is not a choice of life, it is a choice of death. If this is life, I’d rather die.
+ - I often wonder what I will be remembered in history for. Scholar? Military hero? Builder?
+ - Little boys have amazing minds.
+ - I claim the right not to incriminate myself.
+ - History should not be left to the historians. Rather, be like Churchill. Make history, and then write it.
+ - Elect me as your congressman today, I promise you an Ilocano president in 20 years.
+ - No matter how strong and dedicated a leader may be, he must find root and strength amongst the people. He alone cannot save a nation. He may guide, he may set the tone, he may dedicate himself and risk his life, but only the people may save themselves.
+ - Of what good is democracy if it is not for the poor?
+ - I have committed many sins in my life. But stealing money from the government, from the people, is not one of them.
+ - It is easier to run a revolution than a government.
+ - We love your adherence to democratic principles and to democratic processes.
+ - The challenge to America is to extend to Asia the defensive shield of American power in forms consonant with Asian freedom and self-respect.
+ - We cannot and we will not negotiate with terrorists. We have nothing but contempt for them. To conciliate differences with these people without them changing their objectives is to condemn our Republic to ultimate strangulation and death.
+ - I was reminded as I was reviewing my life, that I have been in too many conflicts, too many wars, political battles, military battles, civil strifes in government. And always one lesson stands out and that is, those whom you fight most passionately often turn out to be your best friends.
+ - The permissiveness of society must be balanced with authoritativene ss.
+
+20 quotes

@@ -1,0 +1,150 @@
+ - Ideas are easy. Implementation is hard.
+ - Sales fixes everything.
+ - The hardest thing about getting started, is getting started.
+ - The companies that are successful, they start out to make meaning, not to make money.
+ - And this is the beginning of the end.
+ - The best reason to start an organization is to make meaning; to create a product or service to make the world a better place.
+ - Better to fail at doing the right thing than to succeed at doing the wrong thing.
+ - The goal is to provide inspiring information that moves people to action.
+ - If you make meaning, you’ll make money.
+ - Entrepreneur is not a job title. It is a state of mind of people who want to alter the future.
+ - Don’t ask people to do something you wouldn’t.
+ - If you have more money than brains, you should focus on outbound marketing, If you have more brains than money, you should focus on inbound marketing.
+ - The root of great companies is make meaning vs. make money.
+ - Think different in order to change the rules. By definition, if you don’t change the rules you aren’t a revolutionary, and if you don’t think different, you won’t change the rules.
+ - Steve Jobs has a saying that A players hire A players; B players hire C players; and C players hire D players. It doesn’t take long to get to Z players. This trickle-down effect causes bozo explosions in companies.
+ - Want to change the world? Upset the status quo? This takes more than run-of-the-mill relationships. You need to make people dream the same dream that you do.
+ - A good idea is about ten percent and implementation and hard work, and luck is 90 percent.
+ - One must understand what people are thinking, feeling and believing in order to enchant them.
+ - You have to sit by the side of a river a very long time before a roast duck will fly into your mouth.
+ - Eat like a bird, poop like an elephant.
+ - Crowdsourcing is a great way to approach creation because in any given point there’s always somebody on the Internet who knows something better than you do.
+ - Some things need to be believed to be seen.
+ - When you give people too many choices it makes them hesitate and not buy stuff.
+ - Do you know what the difference is between PR and advertising? Advertising is when you say how great you are. PR is when other people say how great you are. PR is better.
+ - The Future belongs to those who can spread ideas.
+ - If you start out to solely make money, you will attract the wrong kind of employees.
+ - Just be nice, take genuine interest in the people you meet, and keep in touch with people you like. This will create a group of people who are invested in helping you because they know you and appreciate you.
+ - Simple and to the point is always the best way to get your point across.
+ - How fast you are moving is more important than where you are.
+ - When I finally got a management position, I found out how hard it is to lead and manage people.
+ - Evangelism is selling a dream.
+ - The hard part is implementing the decision, not making it.
+ - Every person has the ability to improve the life of someone else.
+ - The essence of evangelism is to passionately show people how you can make history together.
+ - There are two types of people on social media: people who want more followers, and liars.
+ - If you must use more than ten slides to explain your business, you probably don’t have a business.
+ - Money is not the sole or most powerful motivation for many people. A higher and tougher test is to look back and see how you’ve made the world a better place.
+ - High achievers tend to have major weaknesses. People without major weaknesses tend to be mediocre.
+ - The real question is who will innovate.
+ - Greatness is won, not awarded.
+ - The most powerful sign is that your work no longer enchants you – it’s not deep, delightful, and mutually satisfying. When this happens, it may be time to look for new challenges.
+ - My theory is that when you’re young, you should work eighty hours a week to create a product or service that changes the world.
+ - People are free or cheap. Marketing: using Twitter or blogs. Cheap or free. Infrastructure: call up Amazon, call up Rackspace, terabytes of data in the clouds, thousand dollars, two thousand dollars.
+ - Entitlement is the opposite of enchantment.
+ - For me writing is as close to being an engineer as possible.
+ - I travel all the time.
+ - If you’re an entrepreneur and you think that the president makes a difference to your business, you should stay at your current job.
+ - Provide good content and you’ll earn the right to promote your product.
+ - Leverage your brand. You shouldn’t let two guys in a garage eat your shorts.
+ - Companies should always want to delight their customers.
+ - It’s hard to build community around mediocre and mundane writing.
+ - If you don’t toot your own horn, don’t complain that there’s no music.
+ - Patience is the art of concealing your impatience.
+ - If achieving success were easy, more people would do it.
+ - It’s just as valuable to curate content as it is to create it.
+ - I think that no one, or very few, are born as good presenters. It’s a skill that you learn.
+ - I do have a peripatetic and active intellectual curiosity.
+ - If you have to put someone on a pedestal, put teachers. They are society’s heroes.
+ - Let yourself be enchanted in small ways.
+ - If you want to make a good first impression, smile at people. What does it cost to smile? Nothing. What does it cost not to smile? Everything, if not smiling prevents you from enchanting people.
+ - Instant success are seldom instant and if you talk to the people behind these successes, you’ll find out that they came after months of fear, uncertainty and confusion along with a flagrant lack of adoption.
+ - Inoculate yourself from dangerous bozos.
+ - I’m a lousy predictor of the future.
+ - You need to save some mental, physical, and emotional resources for enhancing your product after you ship. A revolution is a triathlon, not a hundred-yard dash-it requires long distance stamina and multiple skills such as creating, churning, and evangelizing.
+ - You say: “I’m a blue sky thinker.” Investor thinks: “You have no business model, and you don’t know how to ship.”
+ - The first 90 percent of a revolution is creating the product or service; the second 90 percent is evangelizing it. At the beginning of a revolution, you need evangelists, not sales, because leverage spreads news.
+ - Everything you want is cheap or free. If you went to a venture capitalist and said: “I need money to buy tools.” You flunked the IQ test, I mean every tool that you need is free!
+ - When you enchant people, your goal is not to make money from them or to get them to do what you want, but to fill them with great delight.
+ - A magnificent cause can overcome a prickly personality, but your ability to enchant people increases if they like you, so you should aspire to both. You’ll know that you’re likeable when you can communicate freely, casually, and comfortably with people.
+ - Doing, not learning to do, is the essence of entrepreneurship.
+ - You’ll learn that the key to a great book is editing-grindin g, buffing, and polishing-not writing.
+ - The more popular a person thinks he is in the blogosphere, the thinner his skin and the thicker his hypocrisy. This should be exactly the opposite: the higher you go the thicker the skin and thinner the hypocrisy.
+ - Companies can add value and simultaneously promote themselves if their product or service truly improves the lives of their customers. I mean really improve lives, not wishful thinking, rationalization. That’s the acid test.
+ - At the end of my life, is it better to say that I empowered people to make great stuff, or that I died with a net worth of $10 billion? Obviously I’m picking the former, although I would not mind both.
+ - Most venture capitalists won’t read a business plan unless the entrepreneur is introduced to them by a contact.
+ - You really can’t spend money on socail media unless you really try. Socia media is really more about effort than expense.
+ - It’s easy to say that entrepreneurs will create jobs and big companies will create unemployment, but this is simplistic. The real question is who will innovate.
+ - Writing is one way to achieve enchantment.
+ - You need to earn the right to promote.
+ - Pursue joy, not happiness. This is probably the hardest lesson of all to learn. It probably seems to you that the goal in life is to be happy. Oh, you maybe have to sacrifice and study and work hard, but, by and large, happiness should be predictable.
+ - The angels started singing, the clouds parted, it was a religious experience. I’ve never had the same reaction to a product, not in 25 years.
+ - I don’t “need” the rush to be happy. I’d be perfectly happy without the attention and action.
+ - Smart, well-meaning people get it wrong when they start believing that the world owes them something and that the rules are different for them.
+ - When you’ve worked hard and done well and walked through that doorway of opportunity, you do not slam it shut behind you.
+ - Hockey is the only thing that I’m not good at that I love.
+ - The record of what you do is forever recoverable because of Google. The lofty upside and scary downside makes reciprocity more important than ever. This is all good because it makes people think more before they do something that reduces their trustworthiness.
+ - An editor who is a mentor, advisor, and psychiatrist. Don’t kid yourself-a good editor will make your book better.
+ - Take my word for it: More people will like you if you believe that people are good until proven bad.
+ - While we’re living, we need to get over ourselves and accept others if we want to enchant people.
+ - Enchantment can be done with writing but I think enchantment is basically a prospective or an operating system for life. That you can enchant a person who is assigning your airplane seat, your hotel room, your waiter, your waitress.
+ - If you’re in enough places at enough times, then some of them are bound to be the right ones.
+ - The key to evangelism is a great product. It is easy, almost unavoidable, to catalyze evangelism for a great product. It is hard, almost impossible, to catalyze evangelism for crap.
+ - Not many people agree with what I do.
+ - Second, you need to spread the large amount of information knowledge that you’ve gained-pooping like an elephant. This means sharing information and discoveries with your fellow employees and occasionally even with your competitors.
+ - I’ve always wanted to be a professional golfer. So what if you always wanted to be an entrepreneur?
+ - The self-edited author is as foolish as the self-medicated patient.
+ - Arguably, in business books, I don’t think there’s much that has never been said before.
+ - It’s a very valuable skill to succeed in life whether you work for a startup or a Fortune 500 company.
+ - My books are always tactical, bullet lists, this is what you need to do because I’m trying to appeal to people who are trying to change the world and they need checklists.
+ - There was no “decision” per se to re-position myself. I simply decided that I wanted to write a book that would help people influence others.
+ - Defy the crowd. The crowd isn’t always wise. It can also lead you down a path of silliness, sub-optimal choices, and downright destruction. Enchantment is as necessary for people to diverge from a crowd as it is to get people to join one.
+ - Disorganizatio n is the enemy of good writing.
+ - There is only one Steve Jobs, but if you want a shot at being the next Steve Jobs, learn to communicate using stories, demos, and pictures.
+ - This is the beauty of social media: it helps you find people and then you can contact them fast and inexpensively.
+ - Writing is therapeutic. It helps you cope with issues that seem gargantuan at the time. The process of expressing yourself about a problem, editing your thoughts, and writing some more can help you control issues that you face.
+ - The mark of a good conversationalist is not that you can talk a lot. The mark is that you can get others to talk a lot. Thus, good schmoozer’s are good listeners, not good talkers.
+ - The secret of evangelism is Guy’s golden touch – whatever is gold, Guy touches. That’s very different than saying whatever Guy touches turns gold.
+ - Pursuing your passions makes you more interesting, and interesting people are enchanting.
+ - Create something, sell it, make it better, sell it some more and then create something that obsoletes what you used to make.
+ - Knowledge is great. Competence is great. But the combination of both encourages people to trust you and increases your powers of enchantment. And in this world, the combination is a breath of fresh air.
+ - The first good reason to write a book is to add value to people’s lives.
+ - Entrepreneurship is not for everyone.
+ - Enchantment is the purest form of sales.
+ - I merely consider myself a father, and one role of a father is to provide financial resources for his family.
+ - My real mantra for my life is “empower others”.
+ - I don’t want to make more friends. I have four kids, I have plenty of friends, and all the personal relationships I need.
+ - You know in a startup, you only need three people. You need someone who can make something. You need someone who can sell it. And you need someone to collect the money. That’s the only three roles in a startup. So which one are you?
+ - To say that Windows 95 is just like the Mac is like finding a potato in the shape of Jesus and thinking you have witnessed the second coming.
+ - Jolt is for Windows programmers. It’s typical IBM PC: it goes in brown and comes out yellow. Mountain Dew is for Macintosh programmers: it goes in yellow and comes out yellow. It’s WYSIWYP.
+ - If you just enchanted one person per day, you would make a big dent in the universe.
+ - The two most important things about people on a revolutionary team are their ability and passion. Their educational level or work experience is meaningless – most of the engineers who did ground-breaking work of the Macintosh design didn’t even graduate from college.
+ - Accept diversity and don’t take any crap.
+ - Revolutionary products don’t fail because they are shipped too early. They fail because they aren’t revised fast enough.
+ - If you look at my Twitter feed it is 99% links, but 1% is me responding and 1% of a big number is a big number.
+ - You have to start with the basic premise that you need to know what your competition is doing.
+ - Don’t be discouraged by the size of your network – inspire one person and you are doing good.
+ - At the end of the day in business, it’s not about peer review and getting into a scientific journal. You either increase sales, or not.
+ - Luck favors the people who are willing to grind it out.
+ - Original visions are often wrong. Companies have to morph as they learn what customers don’t want.
+ - Everyone is passionate about something. It’s your job to find out what it is.
+ - Looking back on my own career, I’ve come to the conclusion that too much money is worse than too little.
+ - Just do what’s right for the customer, and you’ll be okay.
+ - Someone once said that death is God’s way of telling you to slow down. I do enjoy what I do, and the secret of my success is the willingness to grind work out.
+ - A successful self-publisher must fill three roles: Author, Publisher, and Entrepreneur – or APE.
+ - I want to know which idea you’re going to kill yourself trying to make successful, not which ideas have crossed your idle mind.
+ - It doesn’t matter whether the Dow is 5000 or 50,000. If you’re an entrepreneur, there is no bad time to start a company.
+ - For startups, SM is now crucial: it has never been cheaper and easier to reach one’s customers. Entrepreneurs should thank God for Twitter, Facebook...
+ - I learned how difficult it is to self-publish a book. It’s complex, it’s confusing, it’s idiosyncratic.
+ - Go APE: Author a great book, Publish it quickly, and Entrepreneur your way to success. Self-publishing isn’t easy, but it’s fun and sometimes even lucrative. Plus, your book could change the world.
+ - Customers can tell you how to evolve a product, but they can’t show you how to make a leap.
+ - Remember that nobodies are the new somebodies.
+ - I have four kids in a private school who have not yet entered college. Their tuition is what keeps me motivated. Life is simple sometimes.
+ - Social media allows me to pick my times for social interaction.
+ - Writing a book isn’t an easy process nor is it always enjoyable, but it is one of life’s most satisfying achievements.
+ - The desire to change the world is a tremendous advantage as you travel down the difficult path ahead because focusing on a lofty goal is more energizing and attracts more talent than simply making a buck.
+ - For me, while writing I am an engineer, so if I decide to change the format, I want to add a section, to move a section, reorganize the section, anything I want to do, I just boot words, and I do what I want to do. So, I feel completely empowered when I’m a writer.
+ - Social media puts reciprocity on steroids because now you can reach more people in more ways to do more things for them faster and at lower expense. Positive word about your reciprocity can spread faster than ever.
+ - Revolutionary leaders have to care more about what they think of themselves than what the world thinks of them.
+
+148 quotes

@@ -1,0 +1,41 @@
+ - At the end of the day, all you can hope for is to go on. The older I get, the more I realize that just keeping on keeping on is what life’s all about.
+ - The best thing you can learn from the worst times of your life is that it always gets better. It may take a month, a year, a decade, but it will get better if you leave yourself open to it.
+ - The heart of a city Is the soul of a man It winds like a river Through the heart of the land They can tear down a building They can tear down a park They can strike at a symbol But they can’t strike the heart.
+ - I learned the truth at seventeen, That love was meant for beauty queens, And high school girls with clear skinned smiles, Who married young and then retired.
+ - Truth is not the enemy and whatever does not kill us, sets us free.
+ - Those of us with ravaged faces, lacking in the social graces, desperately remained at home, inventing lovers on the phone.
+ - Once you’re halfway home, you know that you can probably get the rest of the way there.
+ - The money when you’re having a hit is great, but money can be taken from you. What can’t be taken from you is the talent and the effect your work has.
+ - I don’t pretend to be an expert on intellectual property law, but I do know one thing. If a music industry executive claims I should agree with their agenda because it will make me more money, I put my hand on my walletand check it after they leave, just to make sure nothing’s missing.
+ - I feel I was born with the music coming to me, and that’s not something to be wasted.
+ - It seems to be part of the human condition to need someone you can look down on. I still don’t get that one.
+ - I think one of the reasons musicians keep doing what they do and writers keep doing what they do, is that we’re totally unsuited for anything else. And I for one am much too lazy.
+ - At the end of the day, if you don’t have a record contract, a studio or a guitar, you can still write songs. You’re still an artist. That’s something no one can take away.
+ - Did you have an awesome time? Did you drink awesome shooters, listen to awesome music, and then just sit around and soak up each others awesomeness?
+ - I love seeing teachers outside of school. It’s like seeing a dog walk on its hind legs.
+ - There will always be those people who are just backward and ignorant. There will always be those people. They need somebody to feel superior to.
+ - I mean, I would love to have the career Joan Baez is having in Europe right now, but God knows I don’t begrudge her that career.
+ - I think I grew up, stopped worrying about what people thought of me, and whether things were going to turn out OK. I’m concentrating on doing the best work I can do and letting it go at that.
+ - Some people would rather stay ignorant and self-satisfied.
+ - Artists are taught to be humble about their impact, especially in folk music. It’s so ingrained that I have a hard time even thinking I had any impact other than what a normal hit song would have.
+ - I know just enough Japanese to get by if I get lost and greet an audience properly, just from having a lot of Japanese friends and being there over the years.
+ - It’s what I do well – I write about things that make people uncomfortable. That’s probably the only thing I do better than my peers.
+ - It’s neat to have finally reached a point where I can accept what I was and what I am.
+ - I want to do some fiction writing, I’ve had some pretty good luck with short stories, I’d like to do a couple of larger things.
+ - I’m a huge Peter Mayer fan, but only when I don’t feel like killing him for being so good. I love Peter’s work, though it irritates me that he plays so much better than I do. If I rocked half as hard as Peter does, I’d own the world by now.
+ - Dreams were all they gave for free to ugly duckling girls like me.
+ - I was one of I think three white girls in my school. So, I was very much an outsider. And plus I was Jewish and all of my friends were black and Baptist because they listen to the coolest music. We were all listening to Ray Charles and what was then called race music.
+ - I had a vague idea of the song’s impact in the ’60s, but that was tempered by the hate mail and threats I was receiving. It was only about ten years ago, when I finally put it back in my show because so many people were asking for it, that I understood ‘Society’s Child’ real impact.
+ - When you’re young, the goal is to have a hit. You get a little older and the goal becomes to get to make another record.
+ - Libraries are a hallmark of a civilized culture, and librarians represent that culture to all facets of society.
+ - I played for anybody and everybody from the time I started playing guitar, when I was 10 or 11.
+ - That’s an amazing moment, the first time you hear yourself on radio. It’s still thrilling.
+ - I bought all my friends guitars and I had a good time with my money. But then one day the IRS came knocking.
+ - I was interviewed for a Grammy television show, and they asked me about Nashville, and I talked for three minutes and when I finished, I was teared up. The whole room was crying. Nashville has given me a home, where I never had a home before.
+ - When people used to call me a political writer, it was kind of confusing because I was always much more interested in the social end of things which hinges on the political, but it isn’t really part of it.
+ - I’ve always been an avid reader. If I don’t have a book in the car, I’ll stop and pick one up just to have something to read. I don’t even remember learning to read.
+ - Going off the road just leaves me more time to be a writer.
+ - I started ‘Society’s Child’ on a bus in East Orange as I was going home from school. I saw a black and white couple sitting there and started thinking about it.
+ - I gave guitar lessons. I tried to join bands. My mom always said it was obvious that nothing was going to stop me.
+
+39 quotes

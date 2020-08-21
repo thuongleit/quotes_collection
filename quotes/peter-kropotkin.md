@@ -1,0 +1,47 @@
+ - Competition is the law of the jungle, but cooperation is the law of civilization.
+ - Where there is authority, there is no freedom.
+ - The hopeless don’t revolt, because revolution is an act of hope.
+ - Everywhere you will find that the wealth of the wealthy springs from the poverty of the poor.
+ - The two great movements of our century – towards Liberty of the individual and social co-operation of the whole community – are summed up in Anarchist-Communism.
+ - Think about the world you want to live and work in. What do you need to know to build the world? Demand that your teachers teach you that.
+ - As an anarchist, I cannot reconcile myself to any government.
+ - Revolutions, we must remember, are always made by minorities.
+ - Idlers do not make history: they suffer it!
+ - Educated men – “civilized,” as Fourier used to say with disdain – tremble at the idea that society might some day be without judges, police, or gaolers.
+ - Freedom of the press, freedom of association, the inviolability of domicile, and all the rest of the rights of man are respected so long as no one tries to use them against the privileged class. On the day they are launched against the privileged they are overthrown.
+ - In existing States a fresh law is looked upon as a remedy for evil. Instead of themselves altering what is bad, people begin by demanding a law to alter it.
+ - When we ask for the abolition of the State and its organs we are always told that we dream of a society composed of men better than they are in reality. But no; a thousand times, no. All we ask is that men should not be made worse than they are, by such institutions!
+ - Lenin is not comparable to any revolutionary figure in history. Revolutionaries have had ideals. Lenin has none.
+ - Of all parties I now see only one party- The Anarchist- which respects human life, and loudly insists upon the abolition of capital punishment, prison torture and punishment of man by man altogether.
+ - Prisons are universities of crime, maintained by the state.
+ - The law has no claim to human respect. It has no civilizing mission; its only purpose is to protect exploitation.
+ - A national movement, which does not include in its platform the demand for an economical change advantageous to the masses has no chance of success unless supported by foreign aid.
+ - True progress lies in the direction of decentralization, both territorial and functional, in the development of the spirit of local and personal initiative, and of free federation from the simple to the compound, in lieu of the present hierarchy from the centre to the periphery.
+ - America is just the country that how all the written guarantees in the world for freedom are no protection against tyranny and oppression of the worst kind. There the politician has come to be looked upon as the very scum of society.
+ - It is only those who do nothing who makes no mistake.
+ - Waste of time is the leading feature of our present education. Not only are we taught a mass of rubbish, but what is not rubbish is taught so as to make us waste over it as much time as possible.
+ - Struggle so that all may live this rich, overflowing life. And be sure that in this struggle you will find a joy greater than anything else can give.
+ - The law is an adroit mixture of customs that are beneficial to society, and could be followed even if no law existed, and others that are of advantage to a ruling minority, but harmful to the masses of men, and can be enforced on them only by terror.
+ - Men passionately desire to live after death, but they often pass away without noticing the fact that the memory of a really good person always lives. It is impressed upon the next generation, and is transmitted again to the children. Is that not an immortality worth striving for?
+ - He objected, though, to indiscriminate reading. ‘One must have some question,’ he wrote, ’addressed to the book one is going to read.
+ - Poverty, the existence of the poor, was the first cause of riches.
+ - It is often said that Anarchists live in a world of dreams to come, and do not see the things which happen today. We do see them only too well, and in their true colors, and that is what makes us carry the hatchet into the forest of prejudice that besets us.
+ - You reason like the king, who, being sent across the frontier, called out, ‘What will become of my poor subjects without me?’
+ - The mutual-aid tendency in man has so remote an origin, and is so deeply interwoven with all the past evolution of the human race, that is has been maintained by mankind up to the present time, notwithstanding all vicissitudes of history.
+ - It is only by the abolition of the State, by the conquest of perfect liberty by the individual, by free agreement, association, and absolute free federation that we can reach Communism – the possession in common of our social inheritance, and the production in common of all riches.
+ - No evolution is accomplished in nature without revolution. Periods of very slow changes are succeeded by periods of violent changes. Revolutions are as necessary for evolution as the slow changes which prepare them and succeed them.
+ - I understand regicide as a means of obtaining vengeance for the ruin of our lives, but regicide as a means of obtaining political freedom I could never understand.
+ - War is the usual condition of Europe.
+ - Have not prisons – which kill all will and force of character in man, which enclose within their walls more vices than are met with on any other spot of the globe – always been universities of crime?
+ - My brother could not write about trifles. Even in society he became animated only when some serious discussion was engaged in, and he complained of feeling ‘a dull pain in the brain’ – a physical pain, as he used to say – when he was with people who cared only for small talk.
+ - When we have but the will to do it, that very moment will Justice be done: that very instant the tyrants of the Earth shall bite the dust.
+ - If you want to know the people of a nation, I am sure you can judge a great deal more about them from their cooking and eating traditions than you can from the words and actions of their public officials.
+ - All this we see, and, therefore, instead of inanely repeating the old formula, Respect the law, we say, Despise law and all its Attributes! In place of the cowardly phrase, Obey the law, our cry, is Revolt against all laws!
+ - The State is only one of the forms assumed by society in the course of history. Why then make no distinction between what is permanent and what is accidental?
+ - The immense and ever increasing sums which the state wrings from the people are never enough for it; it mortgages the income of future generations, and steers resolutely toward bankruptcy.
+ - We take men for what they are worth – and that is why we hate the government of man by man, and that we work with all our might – perhaps not strong enough – to put an end to it.
+ - When one has talent, everything contributes to its development.
+ - The moral sense is a natural faculty in us like the sense of smell or of touch.
+ - While in the course of ages the nucleus of social custom inscribed in law has been subjected to but slight and gradual modifications, the other portion has been largely developed in directions indicated by the interests of the dominant classes, and to the injury of the classes they oppress.
+
+45 quotes

@@ -1,0 +1,59 @@
+ - You don’t have to be famous to live out your own red carpet moment.
+ - Style is a way to say who you are without having to speak.
+ - It’s better to have fewer things of quality than too much expendable junk.
+ - I think every woman should have leopard, but not every woman will wear leopard. You have to have courage to wear leopard.
+ - I see BOLD accessories as a woman’s armor.
+ - I always say that I don’t like it when people follow trends too much, just because it is on the runway. I think what you wear really does need to reflect what your own personal style is.
+ - In my mind, being overdressed is not a bad thing at all. What’s the worst case scenario? That you are the best-dressed person in the room? Who cares!
+ - I’m not trying to set the world on fire; I just want to make really beautiful clothes that women want to wear, can afford, and can really see themselves in.
+ - Picking your favourite look is like picking your favourite child! I get so emotionally attached to each one.
+ - Just throw me in my coffin now with these earrings on.
+ - I am a child of the ’70s, so I love classic rock – Bob Dylan, The Rolling Stones, Led Zeppelin, Van Morrison, and I also love Coldplay.
+ - I’m a Virgo and I’m more – I don’t want to say ‘negative’ – but I’m the girl who thinks no one’s coming to my birthday party, no one’s buying my clothes, no one’s reading my book, no one’s watching my show – that’s just how I think.
+ - I’m a textbook definition of that perfectionist girl who has huge expectations of herself.
+ - I will always think of myself as that girl that is 22 starting and really excited about everything and wanting to be amazing at everything. I always wanted to be the best stylist. That was it.
+ - Accessories are everything. To me, they’re more important than the clothes.
+ - My dad is an unbelievable entrepreneur who balanced his life as a father and a president of two very successful companies.
+ - Every other day there’s something – I’m dealing drugs, I’m starving people. I have never done a drug in my life.
+ - Celebrities are just like us and like any of your friends. I love working with people.
+ - I don’t come from a family of slackers, but I do come from a family of doers.
+ - Here’s my rule about shoes, buy them.
+ - Girls, to me, growing up were very, very petty and didn’t want me to succeed and didn’t want the best for me.
+ - Every day I ask my husband, ‘Is it possible to over kiss your child?’ I literally think I kiss him 200 times in a day. It’s not normal!
+ - I believe fantasy and dreaming can be made a reality. You don’t have to be rich. You don’t have to be a VIP.
+ - All those things they say about a baby changing your perspective – it does!
+ - The worst thing you could ever get is people who think they know everything.
+ - I always carry a Tom Ford lipstick and Tachta face blotters to get me through the day.
+ - Truthfully, I’ve never seen myself as being too thin. Sometimes I’ll look at photos and be like, ‘Oh, that’s not a good look.’ But generally speaking, I’m not too thin.
+ - If my client calls me and says, ‘I’m going to a friend’s premiere,’ I’ll say, ‘Come over and let’s do something cute.’ And I won’t bill them for that.
+ - I did not have a van, or wear Birkenstocks and tie-dyes.
+ - I know some people say that high fashion should not be worn at synagogue. I, on the other hand, think that it is of the utmost importance that the Goldbergs from down the street see you in the new Chanel Fall 2010 Yom Kippur line.
+ - I am definitely a perfectionist, and I do like things a certain way. But as I have got older, I would say that I am a little bit less of a control freak.
+ - I started styling people when I was just eight years old, without even knowing what a stylist was.
+ - When you look like you stepped out of a catalog, that’s never good. People shouldn’t succumb to trend, they should interpret trend.
+ - No one wants to stay in the tabloids. But it’s actually not a terrible place to start.
+ - Sexiness should not be overt. Something shapeless that drapes across your hip, hangs off the shoulder; something that cowls in the front, drapes low in the back, that’s sexy.
+ - I would wear a turban to Whole Foods.
+ - What happens style wise behind closed doors, in your home, shouldn’t be incidental. Home isn’t just where you stow your things or sack out for the night. It should be your private escape.
+ - I think, as a working mom, I have to dress myself differently now. I used to wear very kind of precious clothes. Now I wear more black.
+ - I wear things that kind of can look good for extended periods of time – fabrics that don’t wrinkle, things that don’t stain very easily.
+ - It’s really unfair to working women in America who read celebrity news and think, ‘Why can’t I lose weight when I’ve had a baby?’ Well, everyone you’re reading about has money for a trainer and a chef. That doesn’t make it realistic.
+ - I keep saying I’m going to cut back on styling, but it’s hard to give up.
+ - You have to interpret what’s hot to make it work on yourself. If tweed suits are in, but you’re not a suit kind of girl, wear the jacket with jeans and a pair of Converses.
+ - You can’t get dressed without good hair.
+ - Everyone wants to be a stylist. If you know that’s your calling, then you need to intern as much a humanly possible. You need to go to fashion school if you can.
+ - I think that sexiness should be in the subtleties.
+ - I would do fragrance. I’m a fragrance fanatic.
+ - I’m not a tough boss in that I don’t raise my voice, I don’t freak out, and I don’t have a temper most of the time.
+ - I love Fall Fashion Week because it means lots of layering, long sweaters and vintage coats.
+ - We’ve had Audrey Hepburn, we’ve had Twiggy, we’ve had Veruschka, we’ve had Kate Moss. I’m trying to figure out why I am to blame for skinniness.
+ - As great as it is, ‘Vogue’ won’t change a designer’s business. But if an unknown brand is worn by a certain person in a tabloid, it will be the biggest designer within a week.
+ - All of my clients have athletic or curvy, healthy bodies.
+ - I don’t think that people should wear dresses two sizes too small. I just think that sexiness is better left to the imagination. It’s just more tasteful.
+ - I’ve always been obsessed with style and glamor and if I want anyone to get anything out of my book, it’s how we can all have them in our lives.
+ - I think in spring, we don’t want to wear makeup, we don’t want to wear a ton of clothes, we just want everything to be easier.
+ - You want to look great under your clothes and obviously without clothes.
+ - As far as I can remember, every dime I ever had went to something extravagant. I would rather spend more, buy fewer items and have them forever.
+ - The thing that I really look for in people is enthusiasm and excitement and, not to sound really sappy, that fire in their eyes.
+
+57 quotes

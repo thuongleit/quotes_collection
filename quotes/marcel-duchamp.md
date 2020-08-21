@@ -1,0 +1,67 @@
+ - Not all artists are Chess players, but all Chess players are artists.
+ - Destruction is also creation.
+ - I don’t believe in art. I believe in artists.
+ - There is no solution, for there is no problem.
+ - I force myself to contradict myself in order to avoid conforming to my own taste.
+ - Chess is a sport. A violent sport.
+ - Humor is the only reason to live.
+ - As soon as we start putting our thoughts into words and sentences everything gets distorted, language is just no damn good – I use it because I have to, but I don’t put any trust in it. We never understand each other.
+ - The artist performs only one part of the creative process. The onlooker completes it, and it is the onlooker who has the last word.
+ - The Chess pieces are the block alphabet which shapes thoughts; and these thoughts, although making a visual design on the chessboard, express their beauty abstractly, like a poem.
+ - I feel shame, not for the wrong things I have done, but for the right things that I have failed to do.
+ - What I have in mind is that art may be bad, good or indifferent, but, whatever adjective is used, we must call it art, and bad art is still art in the same way that a bad emotion is still an emotion.
+ - Chess players are madmen of a certain quality, the way the artist is supposed to be, and isn’t, in general.
+ - Artmaking is making the invisible, visible.
+ - Anything is art if an artist says it is.
+ - Unless a picture shocks, it is nothing.
+ - Aesthetic delectation is the danger to be avoided.
+ - It’s not what you see that is art. Art is the gap.
+ - I am interested in ideas, not merely in visual products.
+ - To all appearances, the artist acts like a mediumistic being who, from the labyrinth beyond time and space, seeks his way out to a clearing.
+ - Since a three-dimensional object casts a two-dimensional shadow, we should be able to imagine the unknown four-dimensional object whose shadow we are. I for my part am fascinated by the search for a one-dimensional object that casts no shadow at all.
+ - The creative act is not performed by the artist alone; the spectator brings the work in contact with the external world by deciphering and interpreting its inner qualifications and thus adds his contribution to the creative act.
+ - I think there is a great deal to the idea of not doing a thing, but that when you do a thing, you don’t do it in five minutes or in five hours, but in five years.
+ - Art has the lovely habit of ruining all artistic theories.
+ - I consider painting as a means of expression, not as a goal.
+ - You cannot define electricity. The same can be said of art. It is a kind of inner current in a human being, or something which needs no definition.
+ - I have drawn people’s attention to the fact that art is a mirage. A mirage, just like the oasis that appears in the desert. It is very beautiful, until the moment when you die of thirst, obviously. But we do not die of thirst in the field of art. The mirage has substance.
+ - In New York in 1915 I bought at a hardware store a snow shovel on which I wrote in advance of the broken arm .
+ - If a shadow is a two-dimensional projection of the three-dimensional world, then the three-dimensional world as we know it is the projection of the four-dimensional Universe.
+ - Art is like a shipwreck; it’s every man for himself.
+ - Art has absolutely no existence as veracity, as truth.
+ - I’ve decided that art is a habit-forming drug. That’s all it is, for the artist, for the collector, for anybody connected with it.
+ - It is the spectators who make the pictures.
+ - Among our articles of lazy hardware, I recommend the faucet that stops dripping when no one is listening to it.
+ - Since the tubes of paint used by the artist are manufactured and ready made products we must conclude that all the paintings in the world are ‘readymades aided’ and also works of assemblage.
+ - Three or four drops of height have nothing to do with savageness.
+ - I don’t care about the word ‘art’ because it has been so discredited. So I want to get rid of it. There is an unnecessary adoration of ‘art’ today.
+ - The only thing that is not art is inattention.
+ - All this twaddle, the existence of God, atheism, determinism, liberation, societies, death, etc., are pieces of a chess game called language, and they are amusing only if one does not preoccupy oneself with ’winning or losing this game of chess.
+ - In the last analysis, the artist may shout from all the rooftops that he is a genius; he will have to wait for the verdict of posterity.
+ - It’s true, of course, humor is very important in my life, as you know. That’s the only reason for living, in fact.
+ - In the creative act, the artist goes from intention to realization through a chain of totally subjective reactions.
+ - In my day artists wanted to be outcasts, pariahs. Now they are all integrated into society.
+ - Art is not about itself but the attention we bring to it.
+ - I believe that the artist doesn’t know what he does. I attach even more importance to the spectator than to the artist.
+ - The curious thing about that moustache and goatee is that when you look at the Mona Lisa it becomes a man. It is not a woman disguised as a man; it is a real man, and that was my discovery, without realising it at the time.
+ - My idea was to chose an object that wouldn’t attract me, either by its beauty or by its ugliness. To find a point of indifference in my looking at it, you see.
+ - The life of an artist is like the life of a monk, a lewd monk if you like, very Rabelaisian. It is an ordination.
+ - I was interested in ideas, not in visual products. I wanted to put painting again in the service of the mind.
+ - The most interesting thing about artists is how they live.
+ - I’m not at all sure that the concept of the readymade isn’t the most important single idea to come out of my work.
+ - All decisions in the artistic execution of the work rest with pure intuition and cannot be translated into a self-analysis.
+ - I am still a victim of chess. It has all the beauty of art – and much more. It cannot be commercialized. Chess is much purer than art in its social position.
+ - An abstract painting need in 50 years by no means look “abstract” any longer.
+ - No, the thing to do is try to make a painting that will be alive in your own lifetime.
+ - It’s the viewer that makes the work.
+ - Living is more a question of what one spends than what one makes.
+ - Do unto others as they wish, but with imagination.
+ - This concern which interests us more than anything else: the blurring of the distinction between art and life.
+ - The word ‘art’ interests me very much. If it comes from Sanskrit, as I’ve heard, it signifies ’making.
+ - I was poking fun at myself most of all.
+ - My art would be that of living: each moment, each breath is a work inscribed nowhere.
+ - The individual, man as a man, man as a brain, if you like, interests me more than what he makes, because I’ve noticed that most artists only repeat themselves.
+ - I believe that a picture, a work of art, lives and dies just as we do...
+ - Chess can be described as the movement of pieces eating one another.
+
+65 quotes

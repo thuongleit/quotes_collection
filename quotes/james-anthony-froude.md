@@ -1,0 +1,94 @@
+ - Wild animals never kill for sport. Man is the only one to whom the torture and death of his fellow creatures is amusing in itself.
+ - We enter the world alone, we leave the world alone.
+ - Mistakes are often the best teachers.
+ - Experience teaches slowly, and at the cost of mistakes.
+ - If you think you can temper yourself into manliness by sitting here over your books, it is the very silliest fancy that ever tempted a young man to his ruin. You cannot dream yourself into a character; you must hammer and forge yourself one.
+ - We call heaven our home, as the best name we know to give it.
+ - We read the past by the light of the present, and the forms vary as the shadows fall, or as the point of vision alters.
+ - Just laws are no restraint upon the freedom of the good, for the good man desires nothing which a just law will interfere with.
+ - I believe in God, not because the Bible tells me that he is, but because my heart tells me so; and the same heart tells me we can only have His peace with us if we love Him and obey Him, and that we can only he happy when we each love our neighbour better than ourselves.
+ - Sacrifice is the first element of religion, and resolves itself in theological language into the love of God.
+ - The solitary side of our nature demands leisure for reflection upon subjects on which the dash and whirl of daily business, so long as its clouds rise thick about us, forbid the intellect to fasten itself.
+ - I am convinced with Plato, with St. Paul, with St. Augustine, with Calvin, and with Leibnitz, that this universe, and every smallest portion of it, exactly fulfils the purpose for which Almighty God designed it.
+ - Of all the evil spirits abroad at this hour in the world, insincerity is the most dangerous.
+ - We cannot live on probabilities. The faith in which we can live bravely and die in peace must be a certainty, so far as it professes to be a faith at all, or it is nothing.
+ - Carelessness is inexcusable, and merits the inevitable sequence.
+ - Ignorance is the dominion of absurdity.
+ - The moral of human life is never simple, and the moral of a story which aims only at being true to human life cannot be expected to be any more so.
+ - History is a voice forever sounding across the centuries the laws of right and wrong. Opinions alter, manners change, creeds rise and fall, but the moral law is written on the tablets of eternity.
+ - As we advance in life, we learn the limits of our abilities.
+ - The trials of life will not wait for us. They come at their own time, not caring much to inquire how ready we may be to meet them.
+ - Men are made by nature unequal. It is vain, therefore, to treat them as if they were equal.
+ - The war of good and evil is mightiest in mightiest souls, and even in the darkest time the heart will maintain its right against the hardest creed.
+ - Instead of man to love, we have a man-god to worship. From being the example of devotion, he is its object; the religion of Christ ended with his life, and left us instead but the Christian religion.
+ - You cannot reason people into loving those whom they are not drawn to love; they cannot reason themselves into it; and there are some contrarieties of temper which are too strong even for the obligations of relationship.
+ - Truth only smells sweet forever, and illusions, however innocent, are deadly as the canker worm.
+ - The secret of a person’s nature lies in their religion and what they really believes about the world and their place in it.
+ - Crime is not punished as an offense against God, but as prejudicial to society.
+ - Life is change, to cease to change is to cease to live; yet if you may shed a tear beside the death-bed of an old friend, let not your heart be silent on the dissolving of a faith.
+ - The best that we can do for one another is to exchange our thoughts freely; and that, after all, is about all.
+ - Look not to have your sepulchre built in after ages hy the same foolish hands which still ever destroy the living prophet. Small honour for you if they do build it; and may be they never will build it.
+ - I cut a hole in my heart and wrote with the blood .
+ - Morality, when vigorously alive, sees farther than intellect, and provides unconsciously for intellectual difficulties.
+ - The Providence that watches over the affairs of men works out of their mistakes, at times, a healthier issue than could have been accomplished by their wisest forethought.
+ - Where all are selfish, the sage is no better than the fool, and only rather more dangerous.
+ - The superstition of science scoffs at the superstition of faith.
+ - Justice without wisdom is impossible.
+ - Experience is no more transferable in morals than in art.
+ - True greatness is the most ready to recognize and most willing to obey those simple outward laws which have been sanctioned by the experience of mankind.
+ - I could never fear a God who kept a hell prison-house. No, not though he flung me there because I refused. There is a power stronger than such a one; and it is possible to walk unscathed even in the burning furnace.
+ - In everyday things the law of sacrifice takes the form of positive duty.
+ - There are epidemics of nobleness as well as epidemics of disease.
+ - Women’s eyes are rapid in detecting a heart which is ill at ease with itself, and, knowing the value of sympathy, and finding their own greatest happiness not in receiving it, but in giving it, with them to be unhappy is at once to be interesting.
+ - We are complex, and therefore, in our natural state, inconsistent, beings, and the opinion of this hour need not be the opinion of the next.
+ - Fear is the parent of cruelty.
+ - The practical effect of a belief is the real test of its soundness. Where we find a heroic life appearing as the uniform fruit of a particular mode of opinion, it is childish to argue in the face of fact that the result ought to have been different.
+ - Nature is not a partisan, but out of her ample treasue house she produces children in infinite variety, of which she is equally the mother, and disowns none of them...
+ - Charity is from person to person; and it loses half, far more than half, its moral value when the giver is not brought into personal relation with those to whom he gives.
+ - To tell men that they cannot help themselves is to fling them into recklessness and despair.
+ - Men think to mend their condition by a change of circumstances. They might as well hope to escape from their shadows.
+ - What is called virtue in the common sense of the word has nothing to do with this or that man’s prosperity, or even happiness.
+ - Woe to the unlucky man who as a child is taught, even as a portion of his creed, what his grown reason must forswear.
+ - Man is a real man, and can live and act manfully in this world, not in the strength of opinions, not according to what he thinks, but according to what he is .
+ - No person is ever good for much, that hasn’t been swept off their feet by enthusiasm between ages twenty and thirty.
+ - The essence of true nobility is neglect of self. Let the thought of self pass in, and the beauty of a great action is gone, like the bloom from a soiled flower.
+ - Once, once for all, if you would save your heart from breaking, learn this lesson once for all you must cease, in this world, to believe in the eternity of any creed or form at all. Whatever grows in time is a child of time, and is born and lives, and dies at its appointed day like ourselves.
+ - A person possessed with an idea cannot be reasoned with.
+ - The moral system of the universe is like a document written in alternate ciphers, which change from line to line.
+ - There is always a part of our being into which those who are dearer to us far than our own lives are yet unable to enter.
+ - There are at bottom but two possible religions – that which rises in the moral nature of man, and which takes shape in moral commandments, and that which grows out of the observation of the material energies which operate in the external universe.
+ - The essence of greatness is neglect of the self.
+ - I think there is a spiritual scent in us which feels mischief coming, as they say birds scent storms.
+ - I have long been convinced that the Christian Eucharist is but a continuation of the Eleusinian mysteries. St Paul, in using the word teleiois, almost confirms this.
+ - Morality rests upon a sense of obligation; and obligation has no meaning except as implying a Divine command, without which it would cease to be.
+ - I cannot think the disputes and jealousies of Heaven are tried and settled by the swords of earth.
+ - The endurance of the inequalities of life by the poor is the marvel of human society.
+ - The better one is morally the less aware they are of their virtue.
+ - Those who seek for something more than happiness in this world must not complain if happiness is not their portion.
+ - Scepticism, like wisdom, springs out in full panoply only from the brain of a god, and it is little profit to see an idea in its growth, unless we track its seed to the power which sowed it.
+ - Fling away your soul once for all, your own small self; if you will find it again. Count not even on immortality.
+ - A single seed of fact will produce in a season or two a harvest of calumnies; but sensible men will pay no attention to them.
+ - Where nature is sovereign, there is no need of austerity and self-denial.
+ - Philosophy goes no further than probabilities, and in every assertion keeps a doubt in reserve.
+ - Instruction does not prevent wasted time or mistakes; and mistakes themselves are often the best teachers of all.
+ - For me this world was neither so high nor so low as the Church would have it; chequered over with its wild light shadows, I could love it and all the children of it, more dearly, perhaps, because it was not all light.
+ - Nature is less partial than she appears, and all situations in life have their compensations along with them.
+ - We live merely on the crust or rind of things.
+ - Our thoughts and our conduct are our own.
+ - In every department of life – in its business and in its pleasures, in its beliefs and in its theories, in its material developments and in its spiritual connections – we thank God that we are not like our fathers.
+ - I scarcely know a professional man I can like, and certainly not one who has been what the world calls successful, that I should the least wish to resemble.
+ - We must have the real thing before we can have a science of a thing.
+ - The practical effect of a belief is the real test of its soundness.
+ - It is ill changing the creed to meet each rising temptation. The soul is truer than it seems, and refuses to be trifled with.
+ - Human improvement is from within outward.
+ - Superior strength is found in the long run to lie with those who had right on their side.
+ - To deny the freedom of the will is to make morality impossible.
+ - The first duty of an historian is to be on guard against his own sympathies.
+ - To be happy is not the purpose for which you are placed in this world.
+ - High original genius is always ridiculed on its first appearance; most of all by those who have won themselves the highest reputation in working on the established lines. Genius only commands recognition when it has created the taste which is to appreciate it.
+ - A dreamer he was, and ever would be. Yet dreaming need not injure us, if it do but take its turn with waking; and even dreams themselves may be turned to beauty, by favoured men to whom nature has given the powers of casting them into form.
+ - The soul of man is not a thing which comes and goes, is builded and decays like the elemental frame in which it is set to dwell, but a very living force, a very energy of God’s organic will, which rules and moulds this universe.
+ - Our human laws are but the copies, more or less imperfect, of the eternal laws, so far as we can read them.
+ - Courage is, on all hands, considered as an essential of high character.
+
+92 quotes

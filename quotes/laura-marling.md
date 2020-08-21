@@ -1,0 +1,44 @@
+ - Why fear death? Be scared of living.
+ - I’m not religious, I’m not romantic and I live purely by logic. I make every decision by logic and sometimes that leads me to the right and sometimes to the wrong decision.
+ - I need some isolation, it’s necessary to me, that’s just who I am. I need to be left alone.
+ - I think I’ll feel out of place wherever I go on earth, forever. But that’s fine. I have to make my peace with that.
+ - I love the way you can fall in love with a piece of literature; how words alone can get your heart doing that.
+ - People don’t appreciate music any more. They don’t adore it. They don’t buy vinyl and just love it. They love their laptops like their best friend, but they don’t love a record for its sound quality and its artwork.
+ - I feel increasingly like age is very irrelevant. Quite often, cynicism is confused with wisdom, and my scorn is confused with a knowing, which I don’t have.
+ - Lover please do not fall to your knees it’s not like I believe in everlasting love.
+ - I made an important decision, which was to pursue happiness. Rather than accept unhappiness. That’s why I’m here, and it’s great. I’m in a very good place in my life.
+ - I’ve always loved books by the Bronte sisters. I love Jane Austen, too. I’m more influenced by people like her than by pop culture.
+ - I get up, go and get a coffee, and go do the crossword – I’m loyal to one particular paper, the ‘Guardian’ – and that’s my idea of a perfect morning.
+ - I think everybody who relates to music is kind of isolated. It’s lonely. Everyone who uses the creative side of their brain is that much removed from reality. They are looking for answers wherever they can find them.
+ - I find it dull when my heart meets my mind.
+ - Age is relative. Experience is relative. And I think often intensity is confused with maturity.
+ - I thought ‘I wonder what will happen if I try and root myself somewhere?’ Look back over the past eight years.
+ - The romanticised life, where all the great poetry and music and art of the world comes from, is great but it requires a lot of self-indulgence.
+ - It took a lot of time and practice for me to realise that there’s no point trying to be something you’re not.
+ - I was an incredibly misanthrope. I couldn’t relate to people my age, and I’m not sure why, as I wasn’t particularly smart or interesting.
+ - My reaction to everything in life is when it gets a bit complicated to water it down and make it simple again.
+ - I remember my father playing me Same Situation when I was a nipper, and saying how nobody since has done melodies as well as Joni Mitchell. I concur. The thing that most affected me was just her resonance, and that is something she must have been born with.
+ - I definitely tell things at arm’s length but that is conscious. No part of me wants everybody to know what’s going on.
+ - I am quite competitive. In stupid things like card games.
+ - People think I look odd onstage. But the way I deal with being incredibly nervous is by concentrating really hard.
+ - Oh! To not need cognitive justification for every single thing. Wouldn’t that be a life?
+ - I like living in the city, but I like being able to get out of it as and when I like.
+ - When a song wants to be written, it will be written.
+ - I’m incredibly neurotic and a control freak. I like the thought that if there’s going to be anyone to blame it’s going to be me.
+ - There’s huge amounts of nonsense that goes with everything surrounding music and art. All the things you have to do promote yourself – there’s huge amounts of nonsense.
+ - I do so hate to be forced to be anything than other than what I am.
+ - No one starts playing my kind of music to make a fortune. But I do want to keep doing what I do and I do want to continue selling records. And I would, eventually, quite like some money.
+ - I know how ridiculous this sounds because of the job I do but I don’t believe in romanticism and make-believe.
+ - My songs are not pretty. They’re what I call optimistic realism.
+ - I think your most intimate thoughts are only honest when they’re in your head.
+ - I speak because I can to anyone I trust enough to listen.
+ - I’m a lot more observational than personal in my writing. My writing is mostly a lot of questions without answers.
+ - Now that I’m feeling the responsibilities of adulthood, the choices we make become an incredible weight.
+ - I’d like to make music for as long as I can; it feels like something I need to do.
+ - All my songs come from me because I only seem able to write about myself and my experiences.
+ - I’d prefer to be good, but I’m not always. I struggle.
+ - I don’t need to sell tons of records, but I want longevity. I want to make music for the rest of my life.
+ - I feel like I’m creeping closer to finding the situation that triggers songwriting, which is obviously an extreme of an emotion.
+ - I feel sometimes that I’m in a constant state of being lost in translation, and I guess that why I write songs.
+
+42 quotes

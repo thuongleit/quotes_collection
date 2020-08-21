@@ -1,0 +1,49 @@
+ - Life happens. Adapt. Embrace change, and make the most of everything that comes your way.
+ - Dreams are reality waiting to happen.
+ - Live like you’re at the bottom, even if you’re at the top.
+ - Having haters is just a part of the business, and the more haters you have, the more people like you – thats how I view it, because I try to see the positive in things.
+ - There’s always some way to find hope. Remember that.
+ - Don’t touch my muscles.
+ - You have to keep your long hair.
+ - I had an emotional breakdown since I really had no idea what diabetes was all about. I wondered, ‘why me?’ Then I asked myself, ‘why not me?’ and realized that I might be able to help other kids with diabetes.
+ - Don’t let the world around you defeat the belief within you.
+ - Having an open dialogue, in any creative atmosphere, is really important to feeling free to tell the story the best way you can.
+ - It’s the hope for all the hopeless in the worst of trying times.
+ - I always had a knack for putting the peanut butter on the bread. My brother Kevin knew how to spread the jelly around real good. When we found out Joe could cut off the crusts, well, that’s when we knew we had something special.
+ - My pick up line is: Slow down sugar, cause I’m a diabetic!
+ - Stop hoping, start believing.
+ - I’ve always been a bit insecure about my smile, but its days like these where all I wanna do is smile.
+ - I like looking at the stars on a clear night.
+ - You know, so often we think we have each step figured out. And then when one thing doesn’t go our way, we begin to question, we being to fear what our next step will be.
+ - When I was in school, my former roommate went through hazing. I heard the stories, but I don’t think I’ve seen a movie that captures the stuff that goes on.
+ - I got to sing with the Boss, Sting, Pink and John Legend and all of those people. It felt like the pinnacle, and then I got the call. I cried, actually and I called my dad, it was really cool.
+ - Jonas Brothers fans are a force to be reckoned with.
+ - I’m really open to just about anything but I think the real dream is to be able to write my own thing.
+ - You’ve got to avoid situations that make you uncomfortable.
+ - It sounds funny, but my biggest fear is that I’m not perfect. I’m a perfectionist, and I get upset when things go wrong or when I don’t do well. I used to be very uptight, but I’ve learned to loosen up.
+ - I’ve fallen in love with baseball.
+ - It doesn’t matter if the world is pulling you down. With Christ you have everything.
+ - I’m not going to lie about it. I carry a satchel too. It’s like a man purse. It’s a whole thing.
+ - Being you is the only thing worth spotlighting.
+ - I thought the popular kids were the cool kids. I got caught up in that, and it was bogus. School is about finding who you are because thats more important than not being yourself.
+ - Yo, thats illogical I cant have it!
+ - I know that each and everyone of you have felt, at one point, like you couldn’t go on. But then you found hope. There’s always a way to find hope. Remember that.
+ - Taylor Swift is great for a night out as it involves a lot of tequila. With her it’s all about good friends and celebrating friendship, it’s such a positive environment to be a part of. She’s great.
+ - I love pizza; you cant really go wrong with pizza.
+ - I think that this stage in my life is really, for a lot of reasons, pretty incredible. Being a solo artist and trying to take these bold steps on my own.
+ - Although I really like the people I travel with, family is just different, and having them around at all times is a really nice thing – and a luxury.
+ - I’ll respond to your text message, baby.
+ - Sometimes there’s something that you need a few takes to get it and if it takes 15 takes, it takes 15 takes. It really depends.
+ - I think the community that you’re in really can define your ability to be at peace with your circumstances.
+ - Find things you’re passionate about, and find others who are as passionate as you are and will focus on giving you an opportunity to shine and to have your moment where you can be in front of others to show what you can do.
+ - As an actor, rejection is a big part of it, and I’ve had a lot of it. So when there’s something that you really want to do, it’s so great to have someone to be a part of a team as great as this team is.
+ - I think you are the best you can be when you feel free, when you feel open. So I think keeping that mentality, keeping positive, is key.
+ - I think the differences between men and women, it’s kind of hard to define what those are and the challenges, what they are. I think there are challenging things for everybody.
+ - I love music, it kind of comes naturally and has always been a part of my world.
+ - Acting has always been a passion of mine, so any opportunity that allows me to do that is definitely of interest to me.
+ - I think I like a challenge. I try to find projects that will push me in a new way and help me grow.
+ - I feel the most connected to my art when it comes from my real life and hopefully the audience feels that.
+ - High school is about finding who you are, because that’s more important than trying to be someone else.
+ - I just want to keep pushing things and growing, and we’ll see what happens.
+
+47 quotes

@@ -1,0 +1,23 @@
+ - When I first met you, that’s what I remember. I looked up at the sky and thought, I’m going to love this person because even the sky looks different.
+ - It’s not easy to be Light when you’ve been Dark. It’s almost too much to ask anyone. -Macon Ravenwood.
+ - I am powerful because of who and what I am. Not because of who I am not.
+ - I guess this was what it felt like to love someone and feel like you had lost them. Even when you were still holding them in your arms.
+ - Claim yourself.
+ - In the end, the Wheel crushes us all.
+ - Jump or stay in the boat.
+ - There are more reasons for people’s actions than the number of actions that are actually set in motion.
+ - He saved the world, but he shattered mine.
+ - All that destiny garbage. Nobody can decide what happens to you. Nobody but you.
+ - The things that are the most valuable are often the ones you don’t even know exist. – Xavier, The Gatekeeper.
+ - Darkness does not leave us easily as we would hope.
+ - Old paper, which my mom used to say was the smell of time itself.
+ - These things are difficulties, not impossibilities. – Macon.
+ - Ant Prune was holding one of the squirrels in her hand. ‘And once a day, we have ta clean their little private parts with a Q-tip, so they’ll learn ta clean themselves.’ That was a visual I didn’t need.
+ - For me a book has always been a chance to reach out and connect to someone and not be alone.
+ - She yanked my plate away and took it to the sink. She rinsed some bones that looked like pork shoulder, which was weird since we’d had chicken tonight.
+ - Ro trails his hands against the wall as he walks. The archivists look at him as he passes. Ro is good at irritating people; he’ll find the one thing you don’t want him to do, and do it every time. It’s one of his many gifts.
+ - Sports section and a sticky bun. Know what that means.
+ - Feelings are memories. Memories are also feelings.
+ - I haven’t left a mark on the world, but is that so bad? Considering how deeply the world has marked me?
+
+21 quotes

@@ -1,0 +1,116 @@
+ - Confucius say, man with hand in pocket feel cocky all day.
+ - Love will find a way against time itself.
+ - I’d stop the world from spinning for you.
+ - I’m losing my mind without you.
+ - I’ve always seen you, angel. From the moment you found me, I’ve seen nothing but you.
+ - I can’t live without my smartphone, but I really geek on coding. It’s not so much technology that I like, but puzzle solving.
+ - I’ve died and gone to heaven.
+ - I am obsessed with you, angel. Addicted to you. You’re everything i’ve ever wanted or needed, everything i’ve dreamed of. You’re everything. I live and breathe you. For you.
+ - I’d wait forever for you, as long as you’re mine.
+ - Day One of my life was the day I met you.
+ - I’ll do whatever you want, whatever you need. Anything. Just take me back.
+ - I want you too much. I want you with me, in my life, in my bed. If i can have that, nothing else matters.
+ - I’ll catch you angel, i’ll always catch you.
+ - I go out of my way to make sure you don’t have any reason to feel jealous, but when you do get possessive, I like it. I want you to fight for me. I want you to care that much. I want you crazy about me. But possessiveness without trust is hell. If you don’t trust me, we’ve got nothing.
+ - You think you can say a few words and end us? There is no end, Eva.
+ - Dark and Dangerous. And all mine.
+ - There was nothing so attractive as a powerful, handsome, and self-assured man.
+ - I look at you, angel, and I want you so badly. I want to be with you, listen to you, talk to you. I want to hear you laugh and hold you when you cry. I want to sit next to you, breathe the same air, share the same life. I want to wake up to you like this every day forever. I want you.
+ - Angel, a crowd of millions couldn’t hide you from me. I found you once. I’ll always find you.
+ - You’re the greatest risk I’ve ever taken. And the greatest reward.
+ - There wasn’t a second that passed when you weren’t on my mind. You own me, Eva. Wherever I am, whatever I’m doing, I belong to you.
+ - Contentment and happiness didn’t exist in my life for more than a few moments at a time, and they were really only illusionary. There was always something hidden. Lying in wait to spring up and ruin everything.
+ - If souls could be mated with wishes, ours would be inextricably entwined.
+ - He was my drug, and I had no desire to kick the habit.
+ - People get over love. They can live without it, they can move on. Love can be lost and found again. But that won’t happen for me. I won’t survive you, Eva.
+ - I know it’s not fair to ask you to be with me when we can’t even sleep in the same bed, but I’ll love you better than anyone else could. I’ll take care of you and make you happy. I know I can.
+ - When I propose, angel, trust me, you’ll know it.
+ - His smile was like lightning in the darkness, blinding and beautiful and mysterious, and I wanted him so badly it was physically painful.
+ - Reminds me of the red dress you wore the first time I had you. That was it for me, you know. You devastated me. There was no coming back from that.
+ - You’re my wife, Eva. I don’t care if anyone else knows it or not, I know it. And I want to come home to you, have coffee in the morning with you, zip up the back of your dresses, and unzip them at night.
+ - I can let you in, Eva. I’m trying. But your first response when I screw up is to run away. You do it every time and I can’t stand feeling like any moment I’m going to do or say something wrong and you’re going to bolt.
+ - If you don’t open up, we’re going to lose each other down the road.
+ - You’re not the only one who can get possessive. I’m very proprietary about what’s mine.
+ - I can’t think. I can’t work or sleep. My body aches for you. I can make you want me again. Let me try.
+ - Romance isn’t in my repertoire, Eva. But a thousand ways to make you come are. Let me show you.
+ - Endeavors that help me satisfy you, my goddess of desire, pleasure, and corny one-liners.
+ - I’d rather argue with you, angel, than laugh with anyone else.
+ - I can still feel you, Eva. Still taste you. I’ve been hard since you left, through two meetings and one teleconference. You’ve got the advantage, state your demands.
+ - Gideon woke up ready to conquer the world, and he liked to start that domination with me. How lucky was I?
+ - I’ve never worked so hard for anything in my life as I have for you.
+ - The world would be a very sad place if readers could only love one story.
+ - Goddamn it. Wait for me, Eva. I waited my whole life for you.
+ - Your craving should be for me, angel, not an orgasm. For my body, my hands. Eventually, you won’t be able to come without my skin touching yours.
+ - I keep what’s mine, and I do not share.
+ - Sometimes I wanted to believe something so badly, I deliberately manufactured excuses and ignored painful reality.
+ - I thought we’d turned a corner. Maybe we did, but we hit a brick wall anyway.
+ - I want love and I won’t settle for less.
+ - It was the nature of our relationship to be lusty and emotional, earthy and raw. The trust that held us together also opened us up to each other in ways that made us both vulnerable and dangerous. And it would get worse before it got better.
+ - I’m still not sure I didn’t hallucinate the conversation while overdosing on his pheromones.
+ - He was the kind of guy that made a woman want to rip his shirt open and watch the buttons scatter along with her inhibitions.
+ - Actually, you know what? You keep thinking I’m God’s gift to women, angel. It’s better for me if you believe I’m the best you can get.
+ - There was always something hidden. Lying in wait to spring up and ruin everything.
+ - It’s a full time job with a part-time companion.
+ - You have a transportation fetish. I have a Gideon fetish. It’s been weeks.
+ - It’s probably best for me to work off some energy before I get you naked. I’m sure you’d like to be able to walk tomorrow.
+ - Don’t. Tell me when, then. And before you say never, take a good look at me and tell me if you see a man who’s easily deterred.
+ - I don’t need anything else. I get out of bed every morning and face the world because you’re in it.
+ - Baby girl, Cross is a tsunami.
+ - You didn’t see him watching you dance with your dad. His eyes got all shiny. I thought he was going to cry. And on the way up here, in the elevator, he tried to play it off, but I could totally tell he was nervous.
+ - The only way I’m keeping my hands off her is if I’m dead. Find another way to fix us.
+ - I couldn’t imagine that I’d ever fall in love again like I had with Gideon. For better or worse, he was my soulmate. The other half of me. In many ways, he was my reflection.
+ - There were thousands of women in New York alone who could replace me in his life, but there was only one Gideon Cross.
+ - Gideon was a force of nature, his magnetic self-possession so powerful it put everyone around him in his shadow. I saw flashes of it every day and was awed by it, but not nearly as much as I was by the charming, wryly amusing lover I had entirely to myself in our private moments together.
+ - I found myself pinned to the hallway wall by six feet, two inches of hard, hot male.
+ - There wasn’t a woman alive who could resist a man who paid attention to her, who made her feel like she was the only other person in his world.
+ - My domineering lover made no apologies for his caveman tendencies.
+ - His kisses were gifts. He kissed with everything he had, with power and passion and hunger and love. He held nothing back, giving everything, exposing everything.
+ - I love you. Still not the right word, but i know you want to hear it.
+ - The idea I’d been toying with fully formed in my mind. “I’m plotting.” “oh?” His mouth curved in a wicked grin. “Do Tell.” Chapter 5 pg. 50.
+ - Most suits made the man. Gideon did things to a three-piece suit that should’ve been illegal.
+ - I didn’t know I was looking for anything until I saw you.
+ - Gideon was an untamed animal behind closed doors, a lover who bared me to the soul every time he made love to me.
+ - Angel, getting you off is ninety-nine percent of the fun for me.
+ - As for discipline and rules, I confess, I’ve never been good with either.
+ - As a writer, it’s disheartening to write books that you pour your soul into and not have them distributed widely enough to find their audience.
+ - I’m not giving you any options here. We’re doing this, Eva. Enjoy your last remaining hours as a single woman.
+ - He could shred me so easily. A few words, a desperate look, and I was cut wide open.
+ - If I was any more pleased with you, I would lose what little remains of my sanity.
+ - What I want is for both of us to feel safe. What you and I have together shouldn’t be draining us like this. It should be the one rock-solid thing we both count on.
+ - You’ve got to have as many good times as bad, or it all becomes too painful and too much work.
+ - Ive been told by readers that they love how my heroes fall in love fast, first, and with conviction.
+ - I want to sympathize, I do, but the love triangle is just too delicious. The determined rock star and the possessive billionaire. Rawr.
+ - The world would see the beauty of the packaging, but only I knew the man inside it and how precious he was. His intimate smiles and his deep husky laugh, the gentleness of his touch and the ferocity of his passion were all reserved for me.
+ - I loved the way he kissed me, as if he had to, as if he’d go crazy if he didn’t and had nearly waited too long.
+ - I supposed, perhaps, you miss the promise of what could have been, while at the same time you are grateful that what it was instead is over.
+ - Because of you, the world makes sense to me in a way it didn’t before. I have a place now, with you.
+ - If you crave something, I’ll be the one to give it to you. All of your needs, Eva, are mine to fulfill. Whatever it costs me.
+ - What is it with you, sex, and modes of transportation?
+ - Why can men be boys all of their lives, but we women must grow old while we are yet young?
+ - I require distance from the past in order to grasp the future.
+ - I’ve learned to allow myself the room to fall in love with what I’m writing.
+ - Maybe there were people out there whose love could survive anything, but mine was fragile. It needed to be nurtured in order to thrive and grow.
+ - More like Cross blew your circuits during one of his sexathons. Still can’t get over that man’s stamina. Wish he’d swing my way and wear me out.
+ - You put your hand on Corinne’s back like this again and I’m breaking your fingers.
+ - If you leave, we lose and our pasts win.
+ - The thing about nightmares was that you couldn’t prepare for them. They sneaked up on you when you were most vulnerable.
+ - My heroines, more often than not, are the ones who are troubled and resistant.
+ - If I owned Gideon, he possessed me. I couldn’t imagine belonging to anyone else.
+ - I love connecting with readers!
+ - I love being with you. When we’re not together, i wish we were.
+ - Thanks for the reminder that i have to hit the gym today. I have’nt worked out in days. Unless one counted mattress gymnastics!!!
+ - We knew our strengths and played up our assets. But we couldn’t see what made us unique enough for someone to really love us.
+ - Heaven with my angel. It doesn’t get any better than this.
+ - Your kisses are mine.
+ - What would I do without you? You’re never going to find out.
+ - The only way for a women to get my attention is to be you.
+ - When a story captures me, it comes quickly and easily.
+ - Gideon was a man who’d lived an entirely solitary life, and yet he’d accepted me into it so completely that he could envision a future I was afraid to imagine. I was so scared I’d only be setting myself up for a heartbreak I couldn’t survive.
+ - I had to bite back a laugh. “Cary Taylor. Loving you isn’t a character defect.” Chapter 12, pg 213.
+ - There’s nothing like a little Gideon therapy to make things look up.
+ - We’ll never be over, Eva.
+ - Even she agreed that a woman had a right to chocolate.
+ - Gideon knew exactly what I liked. Not because I’d told him, but because he paid attention to everything about me.
+ - He was impossibly gorgeous. I had trouble taking it in at times.
+
+114 quotes

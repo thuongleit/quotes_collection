@@ -1,0 +1,67 @@
+ - We are unraveling our navels so that we may ingest the sun. We are not afraid of the darkness. We trust that the moon shall guide us. We are determining the future at this very moment. We know that the heart is the philosopher’s stone. Our music is our alchemy.
+ - Come, my love, we have oceans to sail.
+ - Vulnerability is power.
+ - Jay Z and President Bush have a lot in common, that same brash confidence.
+ - I have a very family-like connection to hip-hop, which is why it frustrates me so much.
+ - I’m very excited about the resurgence of vinyl which seems to parallel a growing interest in live performance.
+ - What’s wrong with hip-hop is the system that controls the definition of it. There needs to be more balance on the airwaves.
+ - We cannot continually barricade ourselves under some falsified idea of race, because our idea of blackness and race is simply reactionary. Africans didnt walk around Africa being black and proud, they walked around proud.
+ - The role that theater has placed in enhancing consciousness and moving systems ahead. I think of what South African theater meant for the apartheid movement, for example. I think of what music has meant for so many social movements across time.
+ - They say that I am a poet I wonder what they would say if they saw me from the inside I bottle emotions and place them into the sea for others to unbottle on distant shores I am unsure as to whether they ever reach and for that matter as to whether I ever get my point across or my love.
+ - The hero is the person who’s afraid to run away.
+ - When I can feel you breathing into me i, like a stone gargoyle atop some crumbling building, spring to life a resuscitated angel.
+ - Fax me a fact, and I’ll telegram a hologram.
+ - My father’s a preacher, my mother’s a teacher, thus I rhyme.
+ - American culture is often so self-consumed that we often think that our problems are just our problems.
+ - You change the beat up, you might change the way people dance to the music. If you change the way they move, maybe they’ll think about it differently.
+ - Why shouldn’t rap be esoteric, able to take in current events, history and criticism? I guess it’s this old idea of containment – that rappers, because they’re black, can’t and shouldn’t aspire to look outside the ghetto for influence.
+ - Dying is something you have no control over. Why waste your life being afraid of it?
+ - Some rather seek up high Than dig and grind that inner truth.
+ - I remember back in the day when Chuck D called hip-hop the ‘black people’s CNN.’ Well now, hip-hop is more like Fox News. It’s biased, and highly suspect.
+ - The wind is the moon’s imagination wandering.
+ - For all the ghosts and corpses that shall never know the breath of our children so long for the sacrifice and endurance of our mothers and the sustained breath of our fathers we live.
+ - Art itself is underserved when we don’t realize the power of it.
+ - More people than ever are slowly but surely turning their ears toward poetry.
+ - There is no music more powerful than hip-hop. No other music so purely demands an instant affirmative on such a global scale. When the beat drops, people nod their heads, “yes,” in the same way that they would in conversation with a loved one, a parent, professor, or minister.
+ - A lie preserved in stained glass doesn’t make it more true.
+ - I dance for no reason, for reasons you can’t dance, Call me an activist of intellectualized circumstance You can’t learn my steps until you unlearn your thoughts Spirit, soul, can’t be store-bought.
+ - I surrendered my beliefs and found myself at the tree of life injecting my story into the veins of leaves only to find that stories like forests are subject to seasons.
+ - There is nothing more negligent than attempting to address a problem one finds on a branch than by censoring the leaves.
+ - Fax me a fact and I’ll telegram a hologram or telephone the son of man and tell him he is done. Leave a message on his answering machine telling him there are none. God and I are one. Times moon. Times star. Times sun. The factor is me. You remember me.
+ - Legislation won’t necessarily start a riot. But the right song can make someone pick up a chair.
+ - I’ve never believed it’s really so important that you conform to the ways of the system in order to beat the system. I think that the system follows a great deal.
+ - Two autumns and I have not changed enough.
+ - I think it’s misleading to think that art is only there for escapism, only there for our dreams of being rich and f – king whoever we wanna f – k.
+ - You can travel through literature, and you can expand your mind through literature. It’s so cheap to buy that kind of ticket.
+ - Hip-hop is too young to put a definition on it.
+ - There’s so much to be found in literature, especially if you don’t have the money to travel or the means to get out of your neighborhood or get off work.
+ - Music has always pushed ahead social movements and can do much more than just dumb down a populace.
+ - I think we fool ourselves and really negate a great deal of history if we think that the oral history of poetry is shorter than the written history of poetry. It’s not true. Poetry has a longer oral tradition than it does written.
+ - I have offered myself to the inkwell of the wordsmith that I might be shaped into new terms of being.
+ - I am hoping for peaceful transition into a new age. Obama has already played a great role in initiating us into that vision. If he were to be harmed in any way, it would spawn the birth of a million Obamas.
+ - I think that good writing is based on good reading. Maybe it’s not about writing today, maybe it’s about reading today. Maybe it’s about finding the sort of book you would never read.
+ - I have an acquired taste for language, yet it is seldom an actual focus of mine.
+ - What I’m aiming to do within hip-hop is to point out that the music itself is powerful; it reaches so many people.
+ - Hip-hop is still cool at a party. But to me, hip-hop has never been strictly a party; it is also there to elevate consciousness.
+ - I feel that people need to be jolted out of their comfort zones.
+ - It’s crazy when you see very little reflection between what’s played on the radio and what people are talking about in the streets. It lets you know how far off we are from a real movement.
+ - The only reason I’ve been so critical of hip-hop is because I’ve always been aware of the effect that it has, and the reflection that it gives of the African-American community.
+ - I was fed by the music I listened to as a kid. Hip-hop fed me psychologically, spiritually, politically. I learned from that music.
+ - I don’t really believe in writer’s block or anything like that. If I’m not feeling words, I may pick up an instrument and play with sounds or delve into different types of creativity and expression.
+ - The music aids the message, it’s there to punctuate and abbreviate and shape the silence.
+ - I was always making up rhymes. But I never thought that poetry would become my life.
+ - I want to connect music to its highest power – which is heightening consciousness and affecting people’s reality. That can’t be done in normal ways, not according to my experience.
+ - I think everything has its place. So if the ideas or the fluidity isn’t coming in writing, maybe it’s related to ingestions.
+ - The downfall of the industry seems to actually be good for art. I think the industry will find their way once the focus shifts from its greed-based origins, downsizes, and begins to support creative visions that speak to our times and shifting ideals.
+ - It was always important to me to be that kid who could rock the party as well as rock the English professor’s mind.
+ - Art can play a major role. I look at art as an alternative source of energy, the same way we might look at wind or solar or lithium batteries.
+ - The most powerful political voices are those with a different way of seeing and processing the world and the sounds that emanate from it.
+ - I think art can really serve to inspire a movement – and, of course, it has in the past. The Civil Rights movement wouldn’t have the same resonance without the songs from everyone from Pete Seeger to Odetta to James Brown.
+ - I’ve always been inspired by a lot of work coming out of the UK.
+ - We all have different relationships with music. But the music is always there.
+ - I used to have weird practices in crowded used-book stores in New York where I’d go in and just stomp my foot and see what fell from the shelf. And of course, because it’s an unexpected encounter, there’s always some magic that comes from it.
+ - I didn’t ever want to make a rap album. I considered it too limiting. Now that’s exactly what I’ve gone and done.
+ - If we’re gonna progress as a people we are going to realise that, as one of my favourite poets says, the other is a lie. There are no other people. Race is a social construct.
+ - I think it’s a mistake where rap music is these days. It doesn’t seem to be able to look out of the ghetto and that’s ultimately unfortunate, because it defines our limitations.
+
+65 quotes

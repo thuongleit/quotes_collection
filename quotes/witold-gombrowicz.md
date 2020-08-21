@@ -1,0 +1,25 @@
+ - Foolishness is a twin sister of wisdom.
+ - I became bold because I had absolutely nothing to lose: neither honors, nor earnings, nor friends. I had to find myself anew and rely only on myself, because I could rely on no one else. My form is my solitude.
+ - Beauty beheld in solitude is even more lethal.
+ - Not surprisingly, because too much attention to one object leads to distraction, this one object conceals everything else, and when we focus on one point on the map we know that all other points are eluding us.
+ - I didn’t go to the lectures. My valet, who was more distinguished than I, went instead.
+ - Serious literature does not exist to make life easy but to complicate it.
+ - The difference between western and eastern intellectuals is that the former have not been kicked in the ass enough.
+ - Don’t be fooled by your own wisdom.
+ - Man does not fear death, only the suffering.
+ - You, oh mature ones, keep company solely with other mature ones, and your maturity is so mature that it can only chum up with maturity!
+ - There were three of us; Witkiewicz, Bruno Schulz, and myself – the three muskateers of the Polish avant-garde between the wars. Only Witkiewicz remains to be discovered.
+ - Any artist who respects himself ought to be, and in every sense of the term, an emigre.
+ - Our element is unending immaturity.
+ - Great poetry must be admired, because it is great and because it is poetry, and so we admire it.
+ - Man is profoundly dependent on the reflection of himself in another man’s soul, be it even the soul of an idiot.
+ - I am a collection of the family’s body parts.
+ - It is in the prime of youth that man sinks into empty phrases and grimaces. It’s in this smithy that our maturity is forged.
+ - Against the background of general freakishness the case of my particular freakishness was lost.
+ - A universal style is one that knows how to embrace lovingly those not quite developed.
+ - To contradict, even in little matters, is the supreme necessity of art today.
+ - I am reading Sienkiewicz. What tormenting reading. What a powerful genius! And there never was such a first-rate writer of the second-rate class.
+ - Wherever I see some mystique, be it virtue or family, faith or fatherland, there I must commit some indecent act.
+ - A brilliant liar; he has total recall.
+
+23 quotes

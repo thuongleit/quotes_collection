@@ -1,0 +1,48 @@
+ - The Internet has changed the way we communicate with each other, the way we learn about the world and the way we conduct business.
+ - Trade wars arent started by countries appealing to respected, independent trade authorities. Rather, trade wars begin when one country decides to violate international trade rules to undercut another countrys industries.
+ - Fixing health care and fixing the economy are two sides of the same coin.
+ - For those who believe executive branch officials will voluntarily interpret their surveillance authorities with restraint, I believe it is more likely that I will achieve my life-long dream of playing in the NBA.
+ - The Internet has become an integral part of everyday life precisely because it has been an open-to-all land of opportunity where entrepreneurs, thinkers and innovators are free to try, fail and then try again.
+ - There is an old saying that all roads lead to Rome. It seems the administration so often clearly believes that no matter what the evidence was at any particular time, essentially everything led to Saddam Hussein.
+ - Americans are free to choose everything from what they eat, drive and watch on TV to the President of the United States. Yet, when it comes to allowing Americans to choose the health insurance that works best for them and their family, the freedom to choose suddenly becomes un-American.
+ - For Operation Desert Shield and Desert Storm, 267,300 reserve component service men and women were called to service.
+ - I don’t care who you love. If you love this country enough to risk your life for it, you shouldn’t have to hide who you are.
+ - Under the Healthy Americans Act, you’re in charge of your health care – not your employer. If you lose your job, change jobs or just can’t find a job, your health insurance is guaranteed to stick with you.
+ - Men and women who have served in harm’s way experience higher rates of divorce and suicide. Many battle the debilitating effects and stigma associated with Post Traumatic Stress Disorder.
+ - When I was 27 years old, I organized legal aid clinics to help low-income seniors. It was a life-altering experience.
+ - The idea of a federal betting parlor on atrocities and terrorism is ridiculous and it’s grotesque.
+ - Gasoline prices are soaring through the stratosphere, and the Federal Trade Commission, which is supposed to be standing up for the consumer, ought to stop playing footsie with the oil companies and take steps to protect the American people.
+ - The ethics laws do not let us tap out the truth in Morse code.
+ - If China is helping its domestic industries charge an artificially low price for solar panels and other environmental goods, then China is violating international trade rules that it agreed to when it became a member of the World Trade Organization.
+ - It’s time to look beyond the budget ax to assure access to health care for all. It’s time to look for bipartisan solutions to the problems we can tackle today, and to work together for tomorrow – building a health care system that works for all Americans.
+ - The president has the authority to end this dragnet surveillance immediately.
+ - Even under the best of circumstances, the road back from war is difficult.
+ - I think we have to ask this administration, and the President specifically, about using their political capital now to stand up for the American consumer who is getting clobbered by these gasoline and oil prices.
+ - The KXL pipeline would make it easy and cost effective for oil producers in Canada to transport oil to the Gulf of Mexico where it could be shipped to customers – not just in the United States – but around the world.
+ - Let’s hold insurance companies accountable the right way by making them put their whole customer base on the line.
+ - I’ve written and passed laws to give Medicare beneficiaries access to life saving cancer drugs and to ensure that seniors don’t have to give up the prospect of a cure when they go into hospice care.
+ - It is hard to see Judge Roberts as a judicial activist who would place ideological purity or a particular agenda above or ahead the need for thoughtful legal reasoning.
+ - Right now, there are a limited number of customers for Canadian oil. Due to simple geography – and without the pipeline – it’s really only cost effective for Canadian oil producers to sell their oil to North American customers, mostly American Midwesterners.
+ - As Members of Congress we can now engage with our constituents via online innovations like the Huffington Post, while a small business in rural Oregon can use the Internet to find customers around the world.
+ - You have an always-expanding, omnipresent surveillance state that’s constantly chipping away at the liberties and freedoms of law-abiding Americans.
+ - Oregonians aren’t the only ones who recognize the extraordinary service and sacrifice of their state’s National Guard.
+ - Until relatively recently, law enforcement’s ability to determine an individual’s location and track their movements was largely limited to natural human powers of observation.
+ - I agree with just about everyone in the reform debate when they say ‘If you like what you have, you should be able to keep it.’ But the truth is that none of the health reform bills making their way through Congress actually delivers on that promise.
+ - How can it be, in a country as strong and rich as this one, that tens of thousands of Americans who need legal representation are turned away every year because their government won’t support the very program designed to help them?
+ - When the American people find out how their government has secretly interpreted the Patriot Act, they will be stunned and they will be angry.
+ - The Bush administration did stop filling the reserve in 2002 when it helped the oil industry. Now they should do it to help the consumer.
+ - It’s correct that I wanted health reform to do more to create choices and promote competition.
+ - It took a little over a decade to build a coalition strong enough to beat the insurance companies, but in 1990, then Senator Tom Daschle and I passed a law regulating the private market for supplemental Medicare insurance policies.
+ - I think if progressives stay at this, continue at the grassroots level to make the case that all Americans should have choice, all Americans ought to be able to hold insurance companies accountable, I think we will have 60 votes in the United States Senate for a strong bill.
+ - Because of the Korean free trade agreement, South Koreans who want Oregon blueberries are gonna see their prices go down because we will be getting rid of a 45 percent tariff on this Oregon product.
+ - In today’s world, it is shortsighted to think that infectious diseases cannot cross borders. By allowing developing countries access to generic drugs, we not only help improve health in those nations, we also help ourselves control these debilitating and often deadly diseases.
+ - This house better get cleaned up in six months. The swamp is going to have to be drained pretty quickly.
+ - When the Veterans Affairs Department implemented a program to provide home-based health care to veterans with multiple chronic conditions – many of the systems most expensive patients to treat – they received astounding results.
+ - More customers for Canadian oil means that Canadian producers can charge more for their oil, which then means that American businesses and consumers will pay more for oil.
+ - I think I’ve got the best job around.
+ - If we are going to have a health care program that works for all Americans, we are going to have to get beyond the blame game.
+ - With a host of proposals on the table and a President examining new ideas for health reform, we have an obligation to give real reform our best shot.
+ - Many health care providers, particularly physicians in rural and urban areas, are leaving the Government programs because of inadequate reimbursement rates.
+ - Congress should consult experts and consider alternatives and make 100% sure that any step it takes to police the Internet doesn’t change the Internet as we know it.
+
+46 quotes

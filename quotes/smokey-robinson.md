@@ -1,0 +1,60 @@
+ - Songwriting is my gift from God.
+ - I’ve got sunshine on a cloudy day.
+ - Mistakes, I know I’ve made a few. But I’m only human, you’ve made mistakes, too.
+ - I don’t like you, but I love you.
+ - A taste of honey is worse than none at all.
+ - I always try to write a song, I never just want to write a record. Originally I was not writing songs for myself. Songwriting is my gift from God.
+ - Put your trust in me, let this love be. This is for real, let time stand still.
+ - People say I’m the life of the party Because I tell a joke or two Although I might be laughing loud and hearty Deep inside I’m blue So take a good look at my face You’ll see my smile looks out of place If you look closer, it’s easy to trace The tracks of my tears...
+ - Once you’re a Motown artist, you’re always a Motown artist.
+ - I will bring you a flower from the floor of the sea to wear in your hair.
+ - They don’t tell you this in school, Everybody plays the fool.
+ - Though you treat me badly, I love you madly.
+ - Now if I appear to be carefree it’s only to camouflage my sadness. In order to keep my pride I try to cover the hurt with a show of gladness.
+ - There’s some sad things known to man, but ain’t too much sadder than, the tears of a clown when noones around.
+ - Pretty girls come a dime a dozen, try to find one who’s gonna give you true loving.
+ - As human beings, we’re very materialistic and have all this stuff – furs and cars and diamonds and money.
+ - I will build you a castle with a tower so high it reaches the moon.
+ - Baby, let’s cruise, let’s flow, let’s glide.
+ - Originally I was not writing songs for myself.
+ - My mother was a churchgoing lady, so I always heard about God at home.
+ - As a kid, this is what I wanted my life to be. Not in my wildest dreams did I ever dare to dream that it would be this.
+ - If I hear one of my songs by anybody, it’s a dream come true every time for me as a songwriter, because I want to write a song, I want to write a song that the world can sing and will always sing.
+ - Drugs are in every walk of life – doctors, lawyers, preachers, the guy who works for IBM, teenagers on the street, teenagers in school.
+ - Just like Pagliacci did, I try to keep my surface hid. Smiling in the crowd I try, but in a lonely room I cry.
+ - You know what, I’m probably one of the most blessed people there’s ever been, and I thank God for it.
+ - People still look at Michael Jackson as being a Motown artist.
+ - That’s what love is made of, snakes, snails, and puppy dog tails, sugar, spice, and everything nice.
+ - Everybody has their own soul.
+ - She may be cute, but she’s just a substitute.
+ - With a heart that is truthful, keeping you youthful.
+ - Before you ask some girl for her hand now, keep your freedom for as long as you can now. My Mama told me, you better shop around.
+ - Hickory dickory dock, I just want to be your clock. Just set me for a lifetime, and I’ll wake you up every morning.
+ - Once you’re a Motown artist, that’s your stigmatism, and I was there from the very first day.
+ - Even if I don’t release it myself, somebody else might hear it and want to record it. When you write a song, it gives it that potential.
+ - I love hearing my music, I love hearing it by other people. I hope it will always be played.
+ - You are most certainly the inspiration for all of today’s rock ‘n’ roll guitarists. Your music is timeless.
+ - The only thing you’re taking out of here is your spirit and your soul, so we need to be conscious to try and develop that part of ourselves, because we’re all spiritual creatures.
+ - If you feel like loving me, if you’ve got the notion, I second that emotion.
+ - So I wanted to sing inspirational music, and that’s exactly how I approached it – only the words have been changed to declare my relationship with God.
+ - Ron White was not one of the very first original members of the Motown staff, but eventually he was.
+ - We’re very physical creatures, and we worry about how we look sometimes more than our spiritual selves.
+ - You know what, life is full of temptations.
+ - I’m blessed, because I enjoy every part of my life. I enjoy writing songs. I’ve been trying to write songs since I was five years old.
+ - Motown will always be a heavy-duty part of my life because those are my roots.
+ - We’re all going to be victims of temptation at several points in our lives.
+ - When you write a song, a song has longevity.
+ - And I can say this, most of the people who have recorded my songs are songwriters themselves.
+ - There are very few courses around Detroit I haven’t played.
+ - I don’t ever balk at being considered a Motown person, because Motown is the greatest musical event that ever happened in the history of music.
+ - Beethoven was just music, and it didn’t matter if he could hear it or not – he could feel it. He could hear it in his mind. He could write it down hearing it in his mind. He was just music. Yeah, he’s one of my favorite writers of all times.
+ - There is nothing that means more to a woman than a love she can count on.
+ - When someone picks up one of my songs and records it, I’m a flattered man, it’s a blessing to me.
+ - One thing I can say about the Motown acts is that we were a family. That’s not a myth.
+ - I really haven’t strayed too far, musically, from my roots.
+ - I’ve never been to rehab, I’ve never been to psychotherapy or the doctor or anything like that. I went to a church and I was prayed for, and I’ve always had a great relationship with God.
+ - I’ve been speaking at churches for years, as well as juvenile jails, rehabs and hospitals, and I always talk about my faith. That is a declaration of my relationship with God.
+ - There’s so many wonderful gospel people out there, and I don’t necessarily want to compete with those people.
+ - If some of those people who wanted to ban Beethoven’s music could hear the music that’s being played today, wow, what would they do, man?
+
+58 quotes

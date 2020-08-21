@@ -1,0 +1,144 @@
+ - Ignite, my love. Ignite.
+ - Time goes on even when we do not.
+ - Moving forward is the only way to survive.
+ - And if you insist on continuing to make assumptions about my character, I’ll advise you only this: assume you will always be wrong.
+ - Books are easily destroyed. But words will live as long as people can remember them.
+ - I spent my life folded between the pages of books. In the absence of human relationships I formed bonds with paper characters.
+ - Come back to life, love. I’ll be here when you wake up.
+ - In a world where there is so much to grieve and so little good to take? I grieve nothing. I take everything.
+ - Nothing in this life will ever make sense to me but I can’t help but try to collect the change and hope it’s enough to pay for our mistakes.
+ - Love is a heartless bastard.
+ - Raindrops are my only reminder that clouds have a heartbeat. That I have one, too.
+ - I think if I freeze myself I can freeze the pain.
+ - I’m oxygen and he’s dying to breathe.
+ - I have a heart, says science, but I am a monster, says society.
+ - Hope. It’s like a drop of honey, a field of tulips blooming in the springtime. It’s a fresh rain, a whispered promise, a cloudless sky, the perfect punctuation mark at the end of a sentence. And it’s the only thing in the world keeping me afloat.
+ - There’s very little I wouldn’t do for you.
+ - Hope can make people do terrible things.
+ - I want you, I want all of you. I want you inside and out and catching your breath and aching for me like I ache for you.
+ - You deserve to live. You deserve to be alive.
+ - I want to trust but it scares the skin off my bones.
+ - Sticks and stones keep breaking my bones but these words, these words will kill me.
+ - That this girl would know exactly how to shatter me.
+ - Hope will break your heart all over again.
+ - Aaron Warner Anderson, chief commander and regent of Sector 45, son of the supreme commander of The Reestablishment. He has a soft spot for fashion.
+ - I am nothing more than the consequence of catastrophe.
+ - All I ever wanted was to reach out and touch another human being not just with my hands but with my heart.
+ - I am a being comprised of letters, a character created by sentences, a figment of imagination formed through fiction.
+ - Every butterfly in the world has migrated to my stomach.
+ - This girl is destroying me. A girl who has spent the last year in an insane asylum. A girl who would try to shoot me dead for kissing her. A girl who ran off with another man just to get away from me. Of course this is the girl I would fall for. I close a hand over my mouth. I am losing my mind.
+ - I can do anything I want. Be with anyone I want. And it’ll be my choice.
+ - Because the more I discover about him, the fewer excuses I have to push him away. He’s unraveling before me, becoming something entirely different; terrifying me in a way I never could’ve expected.
+ - There will be a bird today. It will be white with streaks of gold like a crown atop its head. It will fly.
+ - I want to smash this concrete world into oblivion. I want to be bigger, better, stronger. I want to be the bird that flies away.
+ - I love walking into a bookstore. It’s like all my friends are sitting on shelves, waving their pages at me.
+ - Hope is hugging me, holding me in its arms, wiping away my tears and telling me that today and tomorrow and two days from now I will be just fine and I’m so delirious I actually dare to believe it.
+ - It’s the kind of kiss that inspires stars to climb into the sky and light up the world.
+ - If it were nothing but sexual attraction I’m sure I would not suffer such unbearable humiliation. But I wanted so much more than her body.
+ - He’s standing right in front of me and I miss him like I haven’t seen him in years.
+ - I want your mind. Your strength. I want to be worth your time.
+ - Because I want her. Now. Here. Everywhere. I want nothing between us. I want her clothes off and the lights on and I want to study her. I want to unzip her out of this dress and take my time with every inch of her.
+ - My mind is a warehouse of carefully organized human emotions. I lock away the things that do not serve me.
+ - My words wear no parachutes as they fall out of my mouth.
+ - Do you never get exhausted being so wholly unbearable? You have as much charisma as the rotting innards of unidentified roadkill.
+ - Tattoos, for example, are very hard to forget. I think there’s something about the impermanence of life these days that makes it necessary to etch ink into our skins. It reminds us that we’ve been marked by the world, that we’re still alive. That we’ll never forget.
+ - I clench my fists and try not to scream and I tuck my friends in my heart and revenge I think has never looked so sweet.
+ - The words get easier the moment you stop fearing them.
+ - My life is four walls of missed opportunities poured in concrete molds.
+ - Can you hear my heart? I want to ask him. I want you to make a list of all your favorite things, and I want to be on it.
+ - The world is a mess and I want to laugh because all I can think is how horrible and beautiful it is.
+ - He looks away. And he smiles. Its the kind of smile that makes me forget how to do everything but blink and blink and I don’t understand what’s happening to me. I don’t know why I cant convince my eyes to find something else to focus on. I don’t know why my heart is losing its mind.
+ - I almost forget that she still hates me, despite how hard I’ve fallen for her. And I’ve fallen. So hard. I’ve hit the ground.
+ - One word, two lips, three four five fingers form a fist. One corner, two parents, three four five reasons to hide. One child, two eyes, three four seventeen years of fear. A broken broomstick, a pair of wile faces, angry whispers, locks on my door.
+ - Sometimes I wish I could step outside of myself for a while. I want to leave this worn body behind, but my chains are too many, my weights too heavy.
+ - People seldom realize that they tell lies with their lips and truths with their eyes all the time.
+ - Hope in this world bleeds out of the barrel of a gun.
+ - Someone picked up the sun and pinned it to the sky again, but every day it hangs a little lower than the day before. It’s like a negligent parent who only knows one half of who you are. It never sees how its absence changes people. How different we are in the dark.
+ - I touch the tip of my finger to his lips. “There are secrets in here,” I say. “I want them out.” He tries to bite my finger. I steal it back.
+ - And we are quotation marks, inverted and upside down, clinging to one another at the end of this life sentence. Trapped by lives we did not choose.
+ - I want to study the secrets tucked between his elbows and the whispers caught behind his knees. I want to follow the lines of his silhouette with my eyes and the tips of my fingers. I want to trace rivers and valleys along the curved muscles of his body.
+ - I’m falling apart and into his heart and I’m a disaster.
+ - Insane for your sweet, sweet love!
+ - Watching her talk to someone else made me crazy. I was jealous. Ridiculous. I wanted her to know me; I wanted her to talk to me. And I felt it then: this strange, inexplicable sense that she might be the only person in the world I could really care about.
+ - I love you exactly as you are.
+ - Sometimes I wish I never had to sleep. Sometimes I think that if I stay very, very still, if I never move at all, things will change. I think if I freeze myself I can freeze the pain. Sometimes I won’t move for hours. I will not move an inch. If time stands still nothing can go wrong.
+ - God, Juliette, I’d follow you anywhere. You’re the only good thing left in this world.
+ - The tattoo is just setting below his hp bone. H e l l i s e m p t y a n d a l l t h e d e v i l s a r e h e r e I kiss my way across the words. Kissing away the devils. Kissing away the pain.
+ - The sun drops into the ocean and splashes browns and red and yellows and oranges into the world outside my window.
+ - We are synonyms but not the same.
+ - Son of a motherless goat!
+ - I’ve been screaming for years and no one has ever heard me.
+ - We can hide in a cupboard under the stairs our whole life and it’ll still find us. Death will show up wearing an invisible cloak and it will wave a magic wand and whisk us away when we least expect it.
+ - The soldiers stomp stomp stomp through the rain, crushing leaves and fallen snow under their feet. Their hands are wrapped in gloves wrapped around guns that could put a bullet through a million possibilities.
+ - I’ve come to believe that the most dangerous man in the world is the one who feels no remorse. The one who never apologizes and therefore seeks no forgiveness. Because in the end it is our emotions that make us week, not our actions.
+ - All I know next are his arms, the desperate edge to his voice when he says my name, and I’m unraveling in his embrace, I’m frayed and falling apart and I’m making no effort to control the tremors in my bones and he’s so hot his skin is so hot and I don’t even know where I am anymore.
+ - Girls are always talking about electricity in their romance, but none are too happy to actually be electrocuted, apparently. Bloody confusing, is what it is.
+ - His lips soften into a smile that cracks apart my spine. He repeats my name like the word amuses him. Entertains him. Delights him. In seventeen years no one has said my name like that.
+ - Warner’s head is on my lap. His face is smooth and calm and peaceful in a way I’ve never seen it and I almost reach out to stroke his hair before I remember exactly how awkward this actually is.
+ - I’m wondering how many more mistakes I’ll have to make before things finally fall into place. If they ever will.
+ - I’d really rather die than eat your food and listen to you call me love.
+ - Warner was supposed to be dead. Warner was supposed to be dead because I was supposed to have shot him but no one supposed I’d need to know how to fire a gun so now I suppose he’s come to find me. He’s come to fight. For me.
+ - I want to scream, sometimes, I want to collapse, sometimes, I want to die knowing that I’ve known what it was like to live with this kiss, this heart, this soft soft explosion that makes me feel like I’ve taken a sip of the sun...
+ - I am nothing but novocaine. I am numb, a world of nothing, all feeling and emotion gone forever. I am a whisper that never was.
+ - Hope is a pocket of possibility. I’m holding it in my hand.
+ - Hate looks like everybody else until it smiles.
+ - My heart is pounding so hard I’m surprised it’s not bleeding.
+ - I feel like I’ve been split open and stuffed with sunshine.
+ - Hanging out with you has made me weird, J. All I do is sit around thinking about my feelings these days. Thanks for that.
+ - Because when I said I wanted to touch the moon you took my hand, held me close, and taught me how to fly.
+ - If you hide your heart, he will never be able to take it from you.
+ - I’m wearing dead cotton on my limbs and a blush of roses on my face.
+ - You are moody. It’s always ‘Shut up, Kenji.’ ‘Go to sleep, Kenji.’ ‘No one wants to see you naked, Kenji.’ When I know for a fact that there are thousands of people who would love to see me naked –.
+ - Sometimes a book isn’t a heartbreaking work of staggering genius. Sometimes it’s the only story you knew how to tell.
+ - My body is a carnivorous flower, a poisonous houseplant, a loaded gun with a million triggers and he’s more than ready to fire.
+ - Kenji is a walking paradox of Unflinchingly Serious Person and 12-Year-Old Boy Going Through Puberty all rolled into one.
+ - Hate looks just like everybody else until it smiles. Until it spins around and lies with lips and teeth carved into the semblance of something too passive to punch.
+ - Find me a cure for these tears, I’d really like to exhale for the first time in my life.
+ - It’s hot rain and humid days and broken thermostats. It’s screaming and raging steam engines and wanting to take your clothes off just to feel a breeze. It’s the kind of kiss that makes you realize oxygen is overrated.
+ - I hate the lackadaisical ennui of a sun too preoccupied with itself to notice the infinite hours we spend in its presence.
+ - His eyes are two buckets of rainwater: deep, fresh, clear. Hurt.
+ - He’s a hot bath, a short breath, five days of summer pressed into five fingers writing stories on my body.
+ - He leaves less than a foot of space between us and I’m 10 inches away from spontaneous combustion.
+ - The small hand of a clock taps me at one and two, three and four, whispering hello, get up, stand up, it’s time to wake up wake up “Wake up,” he whispers.
+ - Life is a bleak place. Sometimes you have to learn how to shoot first.
+ - You know, you have a really strange way of telling me you’re attracted to me.
+ - Good God, I have taken leave of my senses. I never thank Delalieu. I’ve likely given the poor man a heart attack.
+ - I peek up at his features, at the crooked grin i want to savor, at the color in his eyes i’d use to paint a million pictures.
+ - He takes my hand. Intertwines our fingers. Offers me a smile that manages to kiss my heart.
+ - Every vertebra, every knuckle, both kneecaps, both hips. I am a pile of bones on the floor and no one knows it but me. I am a broken skeleton with a beating heart.
+ - My face is in his hands and my lips are at his lips and he’s kissing me and I’m oxygen and he’s dying to breathe.
+ - Only an idiot would rely on the energy of a bean or a leaf to stay awake throughout the day.
+ - It’s just a whisper of a kiss but something collapses in my skull. It’s a feather-light brush of his mouth against my skin in a place I can’t quite see. It’s my mind speaking in a thousand different languages I don’t understand.
+ - People can think whatever they like. I don’t desire their validation.
+ - A handful of letters doesn’t always make a word, love.
+ - We’re here, and it’s nighttime. So according to my calculations, we must not have done anything stupid.
+ - His lips are so close to my ear I’m water and nothing and everything and melting into a wanting so desperate it burns as I swallow it down.
+ - I will give no one the satisfaction of my death.
+ - I study every quivering branch, every imposing soldier, every window I can count. My eyes are two professional pickpockets, stealing everything to store away in my mind.
+ - Friendship is not a thing I have ever experienced. Not as a child, and not as I am now.
+ - In just two days, one girl has managed to cripple me.
+ - I promise myself then, in that moment, that I will hold him forever, just like this, until all the pain and torture and suffering is gone, until he’s given a chance to live the kind of life where no one can wound him this deeply ever again.
+ - Why sleep when there are books to read.
+ - I have officially, absolutely collapsed inside.
+ - This must be how I broke through the concrete in Warner’s torture chamber. Which means I still have no idea how I broke through the concrete in Warner’s torture chamber.
+ - My eyes are two professional pickpockets, stealing everything away in my mind. I lose track of the minutes we trample over.
+ - I wish someone would remind me how to breathe.
+ - I do know that I don’t want to wake him. We were up very late last night.
+ - Torture is not torture when there’s any hope of relief.
+ - He looks up, so slowly, gold lashes lifting to reveal more sadness and beauty that I’ve ever seen in the same moment. I didn’t know a person could convey so much with just one look. There’s extraordinary pain in him. Extraordinary passion.
+ - I have an extremely low threshold for disorder; it offends my very being.
+ - They say there were birds who used to soar through the skies like planes. It seems strange that a small animal could achieve anything as complex as human engineering, but the possibility is too enticing to ignore.
+ - Twice. Once for Adam. Once for Warner.
+ - 1,320 seconds walk into the room before he does.
+ - There is a distinct flavor of panic lodged somewhere underneath my tongue and I’m fighting to remember where it came from.
+ - I like when he tells me that he likes the way I feel because it goes against what I’ve heard my entire life and I wish I could put his words in my pocket just to touch them once in a while and remind myself that they exist.
+ - It’s only when he finds my face that he meets my gaze; I step into the sea of blue in his eyes, dive right in and drown.
+ - Ah, Ms. Ferrars. I don’t know what you hope to accomplish by sitting in the corner.
+ - But I’m shocked by the tenderness in his voice. The sincerity with which he wants to know. He’s like a feral dog, crazed and wild, thirsty for chaos, simultaneously aching for recognition and acceptance. Love.
+ - And some days I wonder why I insist on keeping myself alive.
+ - They say our world used to be green. Our clouds used to be white. Our sun was always the right kind of light.
+ - I tuck caution into my pocket and hope I can reach for it if I need to.
+ - I don’t know much about anything in this world but I do know how to read the book written in his eyes.
+ - The sky is raining bricks right into my skull.
+
+142 quotes

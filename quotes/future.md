@@ -1,0 +1,42 @@
+ - Nothing we do can change the past, but everything we do changes the future. ~~Ashleigh Brilliant
+ - The future starts today, not tomorrow. ~~Pope John Paul II
+ - Anyone who fights for the future, lives in it today. ~~Ayn Rand
+ - Our history is not our destiny. ~~Alan Cohen
+ - Our task is not to fix blame for the past, but to fix the course for the future. ~~John F. Kennedy
+ - Your time is too valuable, your destiny is too great, and your future is too bright to waste a single moment. Be a now person. ~~Joel Osteen
+ - Education is the way to move mountains, to build bridges, to change the world. Education is the path to the future. I believe that education is indeed freedom. ~~Oprah Winfrey
+ - Long range planning does not deal with future decisions, but with the future of present decisions. ~~Peter F. Drucker
+ - The time is now, the place is here. Stay in the present. You can do nothing to change the past, and the future will never come exactly as you plan or hope for. ~~Dan Millman
+ - The future is not an inheritance, it is an opportunity and an obligation. ~~William J. Clinton
+ - I don’t know what the future may hold, but I know who holds the future. ~~Ralph Abernathy
+ - One must care about a world one will not see. ~~Bertrand Russell
+ - Every man gotta right to decide his own destiny. ~~Bob Marley
+ - Let the future tell the truth, and evaluate each one according to his work and accomplishments. The present is theirs; the future, for which I have really worked, is mine. ~~Nikola Tesla
+ - I like the dreams of the future better than the history of the past. ~~Thomas Jefferson
+ - Change is not merely necessary to life – it is life. ~~Alvin Toffler
+ - Yesterday’s just a memory, tomorrow is never what it’s supposed to be. ~~Bob Dylan
+ - Why didn’t I learn to treat everything like it was the last time. My greatest regret was how much I believed in the future. ~~Jonathan Safran Foer
+ - But the only possible guarantee of the future is responsible behavior in the present. ~~Wendell Berry
+ - The main goal of the future is to stop violence. The world is addicted to it. ~~Bill Cosby
+ - If you are truly present and know how to take care of the present moment as best you can, you are doing your best for the future already. ~~Nhat Hanh
+ - It’s tough to make predictions, especially about the future. ~~Yogi Berra
+ - The future belongs to those who give the next generation reason for hope. ~~Pierre Teilhard de Chardin
+ - Tomorrow belongs to those of us who conceive of it as belonging to everyone; who lend the best of ourselves to it, and with joy. ~~Audre Lorde
+ - You are always free to change your mind and choose a different future, or a different past. ~~Richard Bach
+ - Change your life today. Don’t gamble on the future, act now, without delay. ~~Simone de Beauvoir
+ - I believe that children are our future. Teach them well and let them lead the way. Show them all the beauty they possess inside. ~~Whitney Houston
+ - Within the child lies the fate of the future. ~~Maria Montessori
+ - The human race is challenged more than ever before to demonstrate our mastery, not over nature but of ourselves. ~~Rachel Carson
+ - Every tomorrow has two handles. We can take hold of it with the handle of anxiety or the handle of faith. ~~Henry Ward Beecher
+ - Never be afraid to trust an unknown future to a known God. ~~Corrie ten Boom
+ - To line only for some unknown future is superficial. ~~Abdul Kalam
+ - The planets are lining up, bringing brighter days. ~~Michael Jackson
+ - The true felicity of life is to be free from anxieties and pertubations; to understand and do our duties to God and man, and to enjoy the present without any serious dependence on the future. ~~Seneca the Younger
+ - I don’t think the human mind can comprehend the past and the future. They are both just illusions that can manipulate you into thinking theres some kind of change. ~~Bob Dylan
+ - There must be a better way to make the things we want, a way that doesn’t spoil the sky, or the rain or the land. ~~Paul McCartney
+ - Before another century is done it will be hard for people to imagine a time when humanity was confined to one world, and it will seem to them incredible that there was ever anybody who doubted the value of space and wanted to turn his or her back on the Universe. ~~Isaac Asimov
+ - If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience. ~~Robert Fulghum
+ - Don’t hurry anything. Don’t worry about the future. Don’t worry about what progress you’re making. Just be entirely content to be aware of what is. ~~Alan Watts
+ - It makes no sense to invest in fossil fuel companies that undermine our future. ~~Desmond Tutu
+
+40 quotes

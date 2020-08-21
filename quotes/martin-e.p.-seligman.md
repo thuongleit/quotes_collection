@@ -1,0 +1,54 @@
+ - Learned helplessness is the giving-up reaction, the quitting response that follows from the belief that whatever you do doesn’t matter.
+ - Psychology is much bigger than just medicine, or fixing unhealthy things. Its about education, work, marriage – its even about sports. What I want to do is see psychologists working to help people build strengths in all these domains.
+ - Positive, optimistic sales people sell more than pessimistic sales people.
+ - The good life is using your signature strengths every day to produce authentic happiness and abundant gratification.
+ - Well-being cannot exist just in your own head. Well-being is a combination of feeling good as well as actually having meaning, good relationships and accomplishment.
+ - Life inflicts the same setbacks and tragedies on the optimist as on the pessimist, but the optimist weathers them better.
+ - Habits of thinking need not be forever. One of the most significant findings in psychology in the last twenty years is that individuals choose the way they think.
+ - Optimism is a tool with a certain clear set of benefits: it fights depression, it promotes achievement and produces better health.
+ - You go into flow when your highest strengths are deployed to meet the highest challenges that come your way.
+ - Changing the destructive things you say to yourself when you experience the setbacks that life deals all of us is the central skill of optimism.
+ - When well-being comes from engaging our strengths and virtues, our lives are imbued with authenticity.
+ - The aim of Positive Psychology is to catalyze a change in psychology from a preoccupation only with repairing the worst things in life to also building the best qualities in life.
+ - Success requires persistence, the ability to not give up in the face of failure. I believe that optimistic explanatory style is the key to persistence.
+ - There is one aspect of happiness that’s been well studied, and it’s the notion of flow. Ask yourselves, when for you does time stop? When are you truly at home, wanting to be no place else?
+ - Not only do happy people endure pain better and take more health and safety precautions when threatened, but positive emotions undo negative emotions.
+ - Just as the good life is something beyond the pleasant life, the meaningful life is beyond the good life.
+ - If we just wanted positive emotions, our species would have died out a long time ago.
+ - Habits of pessimism lead to depression, wither achievement, and undermine physical health. The good news is that pessimism can be unlearned, and that with its removal depression, underachievement, and poor health can be alleviated.
+ - When we take time to notice the things that go right – it means we’re getting a lot of little rewards throughout the day.
+ - Optimism is invaluable for the meaningful life. With a firm belief in a positive future, you can throw yourself into the service of that which is larger than you are.
+ - Positive thinking is the notion that if you think good thoughts, things will work out well. Optimism is the feeling of thinking things will be well and be hopeful.
+ - Psychology should be just as concerned with building strength as with repairing damage.
+ - To be a virtuous person is to display, by acts of will, all or at least most of the six ubiquitous virtues: wisdom, courage, humanity, justice, temperance, and transcendence.
+ - In a society in which individualism is becoming rampant, people more and more believe that they are the center of the world. Such a belief system makes individual failure almost inconsolable.
+ - What are the enabling conditions that make human beings flourish? How do we get from zero to plus five?
+ - Some find that very optimistic people have benign illusions about themselves. These people may think they have more control, or more skill, than they actually do. Others have found that optimistic people have a good handle on reality. The jury is still out.
+ - We’re not prisoners of the past.
+ - People who believe they cause good things tend to like themselves better than people who believe good things come from other people or circumstances.
+ - One of the things psychologists used to say was that if you are depressed, anxious or angry, you couldn’t be happy. Those were at opposite ends of a continuum. I believe that you can be suffering or have a mental illness and be happy – just not in the same moment that you’re sad.
+ - When it comes to our health, there are essentially four things under our control: the decision not to smoke, a commitment to exercise, the quality of our diet, and our level of optimism. And optimism is at least as beneficial as the others.
+ - The optimistic style of explaining good events is the opposite of that used for bad events: It’s internal rather than external.
+ - Finding temporary and specific causes for misfortune is the art of hope: Temporary causes limit helplessness in time, and specific causes limit helplessness to the original situation.
+ - Self-esteem cannot be directly injected. It needs to result from doing well, from being warranted.
+ - The pleasant life: a life that successfully pursues the positive emotions about the present, past, and future.
+ - By activating an expansive, tolerant, and creative mindset, positive feelings maximize the social, intellectual, and physical benefits that will accrue.
+ - Doing a kindness produces the single most reliable momentary increase in well-being of any exercise we have tested.
+ - Reaching beyond where you are is really important.
+ - Curing the negatives does not produce the positives.
+ - The belief that we can rely on shortcuts to happiness, joy, rapture, comfort, and ecstasy, rather than be entitled to these feelings by the exercise of personal strengths and virtues, leads to legions of people who, in the middle of great wealth, are starving spiritually.
+ - Once a depressed person becomes active and hopeful, self-esteem always improves. Bolstering self-esteem without changing hopelessness, without changing passivity, accomplishes nothing.
+ - I believe that traditional wisdom is incomplete.
+ - In your own life, you should take particular care with endings, for their color will forever tinge your memory of the entire relationship and your willingness to reenter it.
+ - There are physical characteristics which are inherited. These include things like good looks, high intelligence, physical coordination. These attributes contribute to success in life, and success in life is a determinant of optimism.
+ - On the relationship side, if you teach people to respond actively and constructively when someone they care about has a victory, it increases love and friendship and decreases the probability of depression.
+ - I’m trying to broaden the scope of positive psychology well beyond the smiley face. Happiness is just one-fifth of what human beings choose to do.
+ - Whether or not we have hope depends on two dimensions of our explanatory style; pervasiveness and permanence.
+ - The clearer the rules and the limits enforced by parents, the higher the child’s self-esteem. The more freedom the child had, the lower his self-esteem.
+ - The Fundamentalist Religions simply seem to offer more hope for a brighter future than do the more liberal, humanistic ones.
+ - Flow occurs in your life when your highest skills are matched to challenges that quite exactly meet them.
+ - On the other hand, permanent causes produce helplessness far into the future, and universal causes spread helplessness through all your endeavors.
+ - What determines how much time and deliberate practice a child is willing to devote to achievement? Nothing less than her character.
+ - Finding permanent and universal causes for misfortune is the practice of despair...
+
+52 quotes

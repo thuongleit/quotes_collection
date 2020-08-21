@@ -1,0 +1,29 @@
+ - The world still hasn’t seen the best of Sean Paul.
+ - Dancehall music is perceived as party music, which it is because of the rhythm, but there are messages that do come through or a purpose of an artist saying something to the world. People usually don’t get the messages because of the partying.
+ - Every time you think a negative thought, it’s one step in the wrong direction, for me.
+ - Please remember we all come from the same one and we will all return to that one, so there is no reason for fighting.
+ - Better to have tried and failed than to have never tried at all. Whoever came up with that phrase I wanted his greasy head on a silver platt.
+ - Sometimes you have to take a break from being a crazy kid. You can’t be doing that all the time. Sometimes you just have to pay respect to your own simple-ness.
+ - I got the right temperature for shelter you from the storm.
+ - I don’t want to do something unproductive with my time, so I decided to do something musical. So it felt good to say, ‘Yeah, I’m producing.’ It gave me a fresh vibe – inspiring in a different way.
+ - I think kids should have a mentor and a role model, but that they shouldn’t take one person’s opinion to be what we call final assessment or judgment about how life is supposed to be.
+ - My flow follows sometimes what’s going on in the hip-hop industry even though I’m speaking Jamaican patois.
+ - Dancehall is just like hip-hop in that it doesn’t always talk about bling; it talks about conscious issues.
+ - I have carried my Jamaican Flag with pride around the world to share my culture and experience with others because I seek Balance which is what I believe life is all about.
+ - My lyrics come from my experiences growing up in life, trying to find out and express who I am. That’s basically it. I’m not trying to be a prophet or anything like that. I’m just reflecting on life.
+ - I love the idea of the street vibe, having folks together, out in the street at midnight.
+ - With everything that’s thrown at you, whether it be problems at home, problems at work – whatever – basically, if you remain positive, you can see your way out of that.
+ - I’ve been approached by many different people, but I don’t really want to be known as a collaboration dude.
+ - I’m still working on my career, still trying to learn from other artistes and develop my skills and my style.
+ - I remember being a bathtub singer. You know, the type that sings and everybodys like, Shut up.
+ - I feel like I have things to say. And that’s what I’m looking forward to.
+ - If you like my music and it brings you emotions whether Joy or Pain, I feel I have done my part to give you insight from my perspective and that it continues. I think music suppose to bring us all together and I am glad I can take you along on this journey.
+ - I like music when it makes you feel.
+ - Music tells you about the artist and what they were thinking about at the time, because the person has to think about it to sing it.
+ - It’s about ladies, as usual. I’m telling the ladies I got the right temperature to keep them warm.
+ - LTO ultrium is adaptable and scalable backup tape format and its technology is continuously enhanced by its manufacturers to address the growing needs and requirements of the server environments of midrange to the enterprise class.
+ - I know some very political people who rap, and they say very political things and they’ll never get a deal.
+ - I would like to work with anyone in the business who wants to give respect back to the Jamaican vibe.
+ - I do feel I have a responsibility to the youths. For real.
+
+27 quotes

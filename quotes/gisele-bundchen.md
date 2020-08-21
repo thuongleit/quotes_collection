@@ -1,0 +1,41 @@
+ - When I’m weak, you can be strong; when I’m strong, you can be weak. That’s what I believe marriage is.
+ - I’m not afraid of working hard at anything, whatever it is. I just always want to be the best that I can.
+ - Sometimes when you are a great mom, you’re not so great at your job. And then when you’re good at your job, you’re not so great of a mom or a good wife. It’s a dance that never stops. But it’s beautiful.
+ - Some people start modeling because they want to be models and they want the parties and the recognition, and then there are people like me. I come from a simple family, and for me getting into modeling was a chance to make money and create a business.
+ - When I walk down the runway, my main goal is to not think about the people watching. The idea of all eyes on me would make me too uncomfortable. As I step on the runway, I take a deep breath, focus on a point in the distance, and go!
+ - Beauty is something inside of us. If you love yourself and accept yourself, that shows on the outside. Beauty is an act-it’s how you carry yourself.
+ - As long as I’m a good person and I do things from the heart, that’s all that matters.
+ - My two grandmothers both died of cancer, so I understand how painful and difficult this disease is on the entire family. My first grandmother passed away from bone cancer when I was about 10. It was really horrible. I remember the whole process like it was yesterday.
+ - My dream was to be either a volleyball player or a veterinarian.
+ - I want to get a farm where I am going to live for the rest of my life. I like the idea of a secluded place.
+ - I feel like when people judge me they’re not judging me, because they don’t know who I am.
+ - I don’t like Paris so much, and it’s only eight shows. I mean, don’t tell them that, of course. But everyone always thinks they’re so important. And I’m sure they are. But to me, my happiness is more important.
+ - My husband cannot f-ing throw the ball and catch the ball at the same time.
+ - If you have your wife, and you are proud of something she’s done, wouldn’t you go and support her in something? That is what I was trying to do.
+ - I did kung fu up until two weeks before Benjamin was born, and yoga three days a week. I think a lot of people get pregnant and decide they can turn into garbage disposals. I was mindful about what I ate, and I gained only 30 pounds.
+ - I want to have a big family. My parents have been together for 36 years, and that is what I want. I am in that place. It’s all good in that part of my life. It’s one part of my life that I’m learning about every day. I’ve been challenged a lot by it, but it’s the most rewarding part.
+ - The first is wake up in the morning and be grateful you are here, alive and healthy. And the second is: Give.
+ - He’s very close to his family His parents have been married 40 years. He’s got a pure heart. That’s all that matters – he’s got the purest heart. I feel grateful because I have a lot of love in my life. I found the person I’m sharing my life with. I have a good man.
+ - I love outdoor sports, like volleyball, and I play them whenever I can.
+ - I love kids. It’s amazing that I have the opportunity to hang out with my stepson all the time.
+ - Because I had my family, I felt like I could be a bird and fly and experience and do. Because I had roots somewhere, I knew that they would love me no matter what, and I could always go back home and they were going to love me.
+ - I’m a woman trying to balance family, work and friends like so many others out there.
+ - Some people here think they don’t have to breastfeed, and I think, ‘Are you going to give chemical food to your child, when they are so little?’ There should be a worldwide law, in my opinion, that mothers should breastfeed their babies for six months.
+ - My complexion is delicate, so I have to use things that won’t irritate it. I switch moisturisers often.
+ - I feel like life is so special and so great, every year I feel like I learn more, and I grow, and I think it’s exciting to grow up.
+ - I cannot put this poison on my skin. I do not use anything synthetic.
+ - There’s a button that goes On and I’m On. And when I go On, there is almost no me; there is just a character who is doing all this.
+ - I’m not an actress, you know. I don’t know what’s going on. And I’m supposed to be the villain.
+ - I’m very interested in charities. I help a lot of different charities.
+ - I’d be lying if I said, ‘No,’ to wanting a lot of kids.
+ - To be a mother is a magical experience. The whole body is transformed by this.
+ - Everyone has an hour in their day to go and do something for somebody else; I don’t care how busy they are.
+ - In 1996, the possibility of going to New York came up. From then on, I started searching for opportunities on the international market and the plane became my home.
+ - Love is something that grows, that comes from nourishment; it builds.
+ - No matter how many shows I’ve done, as soon as they say it’s time to start, I get that nervous sensation and feel like I have to pee. So that’s where my mind is. That and making it to the end of the runway and back as fast as I can.
+ - Everybody learns from traveling. I think we all do.
+ - I am not used to doing naked shoots but when you trust the photographer and the crew, you know it won’t be vulgar.
+ - I am a huge fan of big cotton underpants; they’re comfortable. I wear them every day.
+ - I have to come first, because then everyone benefits.
+
+39 quotes

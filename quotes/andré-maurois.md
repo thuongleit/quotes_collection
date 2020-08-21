@@ -1,0 +1,103 @@
+ - Business is a combination of war and sport.
+ - If you create an act, you create a habit. If you create a habit, you create a character. If you create a character, you create a destiny.
+ - Sincerity is glass, discretion is diamond.
+ - Without a family, man, alone in the world, trembles with the cold.
+ - Men fear silence as they fear solitude, because both give them a glimpse of the terror of life’s nothingness.
+ - Growing old is no more than a bad habit which a busy person has no time to form.
+ - Art is an effort to create, beside the real world, a more humane world.
+ - In literature as in love, we are astonished at what is chosen by others.
+ - A successful marriage is an edifice that must be rebuilt every day.
+ - The art of reading is in great part that of acquiring a better understanding of life from one’s encounter with it in a book.
+ - The effectiveness of work increases according to geometric progression if there are no interruptions.
+ - Above all things, never be afraid. The enemy who forces you to retreat is himself afraid of you at that very moment.
+ - He who wants to do everything will never do anything.
+ - Old age is far more than white hair, wrinkles, the feeling that it is too late and the game finished, that the stage belongs to the rising generations. The true evil is not the weakening of the body, but the indifference of the soul.
+ - Advice is always a confession.
+ - Memory is a great artist. For every man and for every woman it makes the recollection of his or her life a work of art and an unfaithful record.
+ - Writing is a difficult trade which must be learned slowly by reading great authors; by trying at the outset to imitate them; by daring then to be original; by destroying one’s first productions.
+ - We can talk frankly about our defects only to those who recognise our qualities.
+ - An old man, having retired from active life, regains the gaity and irresponsibility of childhood. He is ready to play, he cannot run with his son, but he can totter with his grandson. Our first and last steps have the same rhythm.
+ - We appreciate frankness from those who like us. Frankness from others is called insolence.
+ - An unsatisfied woman requires luxury, but a woman who is in love with a man will lie on a board.
+ - A friend loves you for your intelligence, a mistress for your charm, but your family’s love is unreasoning; you were born into it and are of its flesh and blood. Nevertheless it can irritate you more than any group of people in the world.
+ - The art of growing old is the art of being regarded by the oncoming generations as a support and not as a stumbling-block.
+ - Like a bird, when his cage is opened, stays on his perch, dazzled by freedom, the postponed traveler does not see that his cage, with its bars of anxiety, it is open.
+ - Either the soul is immortal and we shall not die, or it perishes with the flesh, and we shall not know that we are dead. Live, then, as if you were eternal.
+ - A true woman loves a strong man because she knows his weaknesses. She protects as much as she is protected.
+ - A great writer has a high respect for values. His essential function is to raise life to the dignity of thought, and this he does by giving it a shape.
+ - We owe to the Middle Ages the two worst inventions of humanity – romantic love and gunpowder.
+ - A gentleman is never in a hurry.
+ - For intelligent people, action often means escape from thought, but it is a reasonable and a wise escape.
+ - He who has found a good wife has found great happiness, but a quarrelsome woman is like a roof that lets in the rain.
+ - We don’t go to school to learn, but to be soaked in the prejudices of our class, without which we should be useless and unhappy.
+ - The longer the road to love, the keener is the pleasure.
+ - Learning is nothing without cultivated manners, but when the two are combined in a woman, you have one of the most exquisite products of civilization.
+ - People are what you make them. A scornful look turns into a complete fool a man of average intelligence. A contemptuous indifference turns into an enemy a woman who, well treated, might have been an angel.
+ - A marriage without conflicts is almost as inconceivable as a nation without crises.
+ - Woman’s great strength lies in being late or absent. Presence immediately reveals the weak points of our beloved; when she is absent she become one of the sylph-like figures of our adolescence whom we endowed with perfection.
+ - Lost Illusion is the undisclosed title of every novel.
+ - The clear and simple words of common usage are always better than those of erudition. The jargon of the philosophers not seldom conceals an absence of thought.
+ - Novelty, the most potent of all attractions, is also the most perishable.
+ - A man cannot free himself from the past more easily than he can from his own body.
+ - The first recipe for happiness is: avoid too lengthy meditation on the past.
+ - We don’t love a woman for what she says, we like what she says because we love her.
+ - Men and women are not born inconstant: they are made so by their early amorous experiences.
+ - Genius consists of equal parts of natural aptitude and hard work.
+ - British conversation is like a game of cricket or a boxing match; personal allusions are forbidden like hitting below the belt, and anyone who loses his temper is disqualified.
+ - A happy marriage is a long conversation which always seems too short.
+ - Our minds have unbelievable power over our bodies.
+ - A great statesman, like a good housekeeper, knows that cleaning has to be done every morning.
+ - To reason with poorly chosen words is like using a pair of scales with inaccurate weights.
+ - When you become used to never being alone, you may consider yourself Americanised.
+ - Old age diminishes our strength; it takes away our pleasures one after the other; it withers the soul as well as the body; it renders adventure and friendship difficult; and finally it is shadowed by thoughts of death.
+ - Two human beings anchored to one another are like two ships shaken by waves; their carcases collide with one another and creak.
+ - Medicine is a very old joke, but it still goes on.
+ - The greedy search for money or success will almost always lead men into unhappiness. Why? Because that kind of life makes them depend upon things outside themselves.
+ - Time is a factor in all action. An imperfect scheme put into action at the proper time is better than a perfect one accomplished too late.
+ - The minds of different generations are as impenetrable one by the other as are the monads of Leibniz.
+ - Modesty and unselfishness – these are the virtues which men praise – and pass by.
+ - Smile, for everyone lacks self-confidence and more than any other one thing a smile reassures them.
+ - Experience is valuable only when it has brought suffering and when the suffering has left its mark upon both body and mind.
+ - The reading of a fine book is an uninterrupted dialogue in which the book speaks and our soul replies.
+ - If you value a man’s regard, strive with him. As to liking, you like your newspaper – and despise it.
+ - It is better to teach a few things perfectly than many things indifferently.
+ - Almost all great writers have as their motif, more or less disguised, the passage from childhood to maturity, the clash between the thrill of expectation and the disillusioning knowledge of truth. ‘Lost Illusion’ is the undisclosed title of every novel.
+ - The really great novel tends to be the exact negative of its author’s life.
+ - There are very few really brilliant men who have not had at least one madman among their ancestors.
+ - Love born of anxiety resembles a thorn shaped so that efforts to pull it out of one’s flesh merely cause it to penetrate more deeply therein.
+ - To be witty is not enough. One must possess sufficient wit to avoid having too much of it.
+ - Information is not culture. In the mind of a truly educated person, facts are organized, and they make up a living world in the image of the world of reality.
+ - We console ourselves with several friends for not having found one real one.
+ - Few are they who have never had a chance to achieve happiness- and fewer those who have taken that chance.
+ - It is restful to leave one’s home; not because traveling does not entail varied and difficult daily actions, but because it removes our responsibilities.
+ - A great man’s manias must be respected, because the time required to combat them is too precious to waste.
+ - Live as if you were eternal.
+ - Style is the hallmark of a temperament stamped upon the material at hand.
+ - Style is the outcome of constraint.
+ - If, in New York, you arrive late for an appointment, say, “I took a taxi”.
+ - What men call friendship is only social intercourse, an exchange of favours and good offices; it comes down to a commercial dealing in which self-esteem always expects to profit.
+ - The difficult part in an argument is not to defend one’s opinion but rather to know it.
+ - Self-pity comes so naturally to all of us. The most solid happiness can be shaken by the compassion of a fool.
+ - Self-pity comes so naturally to all of us.
+ - Happiness flourishes where there is happiness.
+ - Every ten years you should delete from your mind a few ideas that your experience has proven to be false.
+ - Marriage makes a man more vulnerable by doubling the expanse of sail exposed to the tempests of social life.
+ - No one can be profoundly original who does not avoid eccentricity.
+ - One has very little influence upon one’s children. Their characters are what they are and one can do nothing to change them.
+ - Housekeeping in common is for women the acid test.
+ - If men could regard the events of their own lives with more open minds, they would frequently discover that they did not really desire the things they failed to obtain.
+ - To feminine eyes a man’s prestige, or his fame, envelops him in a luminous haze which obscures his faults. The triumphs of an aviator, an actor, a football player, an orator are often responsible for the beginning of a love affair.
+ - People are discontent; men are troubled; and the literature is excellent.
+ - Only passions can raise a man above the level of the animal.
+ - There are certain persons for whom pure Truth is a poison.
+ - I knew a man who had been virtually drowned and then revived. He said that his death had not been painful.
+ - Inspiration in matters of taste will not come twice.
+ - To desire to be perpetually in the society of a pretty woman until the end of one’s days, is as if, because one likes good wine, one wished always to have one’s mouth full of it.
+ - It is not events and the things one sees and enjoys that produce happiness, but a state of mind which can endow events with its own quality, and we must hope for the duration of this state rather than the recurrence of pleasurable events.
+ - If you create a character, you create a destiny.
+ - Conversation would be vastly improved by the constant use of four simple words: I do not know.
+ - All of us, from time to time, need a plunge into freedom and novelty, after which routine and discipline will seem delightful by contrast.
+ - The most important quality in a leader is that of being acknowledged as such. All leaders whose fitness is questioned are clearly lacking in force.
+ - There are deserts in every life, and the desert must be depicted if we are to give a fair and complete idea of the country.
+
+101 quotes

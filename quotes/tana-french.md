@@ -1,0 +1,59 @@
+ - My father told me once that the most important thing every man should know is what he would die for.
+ - Take what you want and pay for it, says God. You can have anything you want, as long as you accept that there is a price and you will have to pay it.
+ - For a moment, I felt as if the universe had turned upside down and we were falling softly into an enormous black bowl of stars, and I knew, beyond any doubt, that everything was going to be alright.
+ - This girl: she bent reality around her like a lens bending light, she pleated it into so many flickering layers that you could never tell which one you were looking at, the longer you stared the dizzier you got.
+ - I had been right: freedom smelled like ozone and thunderstorms and gunpowder all at once, like snow and bonfires and cut grass, it tasted like seawater and oranges.
+ - What I am telling you, before you begin my story, is this – two things: I crave truth. And I lie.
+ - Only teenagers think boring is bad. Adults, grown men and women who’ve been around the block a few times, know that boring is a gift straight from God. Life has more than enough excitement up its sleeve, ready to hit you with as soon as you’re not looking, without you adding to the drama.
+ - Sarte was right, Hell is other people.
+ - Sometimes, when you’re close to someone, you miss things. Other people can see them, but you can’t.
+ - Don’t you ever feel that – that you just need to get away? From everything? That it’s all too much?
+ - My memories of them had rubbed thin with overuse, worn to frail color transparencies flickering on the walls of my mind.
+ - But give me more credit than that. Someone else may have dealt the hand, but I picked it up off the table, I played every card, and I had my reasons.
+ - Some people are little Chernobyls, shimmering with silent, spreading poison: get anywhere near them and every breath you take will wreck you from the inside out.
+ - I am not good at noticing when I’m happy, except in retrospect.
+ - I had learned early to assume something dark and lethal hidden at the heart of anything I loved. When I couldn’t find it, I responded, bewildered and wary, in the only way I knew how: by planting it there myself.
+ - Ireland is such a young society. The British were the ruling class up until they left about a hundred years ago, and we’ve been trying to work out what our class hierarchy is ever since.
+ - Most people are only too delighted to wreck each other’s heads. And for the tiny minority who do their pathetic best not to, this world is going to go right ahead and make sure they do it anyway.
+ - I am, of course, romanticizing; a chronic tendency of mine.
+ - I don’t do that kind of negativity. If you put your energy into thinking about how much the fall would hurt, you’re already halfway down.
+ - I have always been caught by the pull of the unremarkable, by the easily missed, infinitely nourishing beauty of the mundane.
+ - The thing about being a mystery writer, what marks a mystery writer out from a chick lit author or historical fiction writer, is that you always find a mystery in every situation.
+ - You don’t have to like your family, you don’t even have to spend time with them, to know them right down to the bone.
+ - If you rewrite a paragraph fifty times and forty-nine of them are terrible, that’s fine; you only need to get it right once.
+ - I wanted to tell her that being loved is a talent too, that it takes as much guts and as much work as loving; that some people, for whatever reason, never learn the knack.
+ - I had always felt that I was an observer, never a participant; that I was watching from behind a thick glass wall as people went about the business of living – and did it with such ease, with a skill that they took for granted and that I had never known.
+ - People you knew when you were teenagers, the ones who saw your stupidest haircut and the most embarrassing things you’ve done in your life, and they still cared about you after all that: they’re not replaceable, you know?
+ - I can’t explain the alchemy that transmuted one evening into the equivalent of years held lightly in common. The only way I can put it is that we recognized, too surely even for surprise, that we shared the same currency.
+ - We were still at the age when girls are years older than guy, and the guys grow up by doing their best when the girls need them to.
+ - I came from a house full of books, so I took reading for granted. I was an outdoorsy little kid, too, so I got the best of both worlds by taking books up trees and reading there.
+ - When you’re too close to people, when you spend too much time with them and love them too dearly, sometimes you can’t see them.
+ - Over time, the ghosts of things that happened start to turn distant; once they’ve cut you a couple of million times, their edges blunt on your scar tissue, they wear thin. The ones that slice like razors forever are the ghosts of things that never got the chance to happen.
+ - When I was acting, I got trained in creating a character as a three-dimensional person. If you’re doing it right you should be able to draw an audience into the character’s world and make them feel their fears.
+ - Being easily freaked out comes with its own special skill set: you develop subtle tricks to work around it, make sure people don’t notice. Pretty soon, if you’re a fast learner, you can get through the day looking almost exactly like a normal human being.
+ - When we can’t see a pattern, we fit pieces together until one takes shape, because we have to.
+ - I’ve got this theory that human beings are innately religious; we have a belief system. It doesn’t have to be a theist form, necessarily. But we need a belief system, some framework on which to hang our behavior.
+ - Don’t get discouraged if you’re hammering away at a sentence or a paragraph or a chapter, and it keeps coming out wrong. You’re allowed to get it wrong, as many times as you need to; you only need to get it right once.
+ - I hate nostalgia, it’s laziness with prettier accessories...
+ - Everyone else we knew growing up is the same: image of their parents, no matter how loud they told themselves they’d be different.
+ - I like writing about big turning points, where professional and personal lives coalesce, where the boundaries are coming down, and you’re faced with a set of choices which will change life forever.
+ - Maybe she, like me, would have loved the tiny details and inconveniences even more dearly than the wonders, because they are the things that prove you belong.
+ - I’m still very much in the apprentice stage of writing. I read somewhere that you need to write a million words before you know what you’re doing – so I’m headed that way, but I’m nowhere near there.
+ - I wasn’t sure I could make it through another hour of his company without throwing my stapler at his head.
+ - There was a time when I believed I was the redeemed one, the boy borne safely home on the ebb of whatever freak tide carried Peter and Jamie away. Not any more. In ways too dark and crucial to be called metaphorical, I never left that wood.
+ - Time works so hard for us, if only we can let it.
+ - Her forehead was a maze of anxious little grooves, from a lifetime of wondering about whether everyone within range was OK.
+ - I found out early that you can throw yourself away, missing what you’ve lost.
+ - I thought I could never write a proper book; I’d never done it before. But I thought I could write a sequence. Then I had a chapter. The next thing I knew I was turning acting down.
+ - We think about mortality so little, these days, except to flail hysterically at it with trendy forms of exercise and high-fiber cereals and nicotine patches.
+ - I love writing. I feel ridiculously lucky that this is what I get to do all day.
+ - With acting, you have to depend on somebody else to decide if you are allowed to work. You can spend weeks and months when you are not acting at all.
+ - I used to think I sewed us together at the edges with my own hands, pulled the stitches tight and I could unpick them any time I wanted. Now I think it always ran deeper than that and farther, underground; out of sight and way beyond my control.
+ - Both back when I was acting and now that I’m writing, I’ve always wanted the same thing out of my career: to be able to get up in the morning and do what I love doing.
+ - One of my da’s tragedies was always the fact that he was bright enough to understand just how comprehensively he had shat all over his life.
+ - Privately, I consider religion to be a load of bollocks, but when you have a sobbing five year old wanting to know what happened to her hamster, you develop an instant belief in anything that dissolves some of the heartbreak off her face.
+ - If you’re writing a scene for a character with whom you disagree in every way, you still need to show how that character is absolutely justified in his or her own mind, or the scene will come across as being about the author’s views rather than about the character’s.
+ - Some people should never meet.
+ - Here’s a little tip for you. If you don’t like being called a murderer, don’t kill people.
+
+57 quotes

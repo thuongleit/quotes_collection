@@ -1,0 +1,73 @@
+ - There are no happy endings. Endings are the saddest part, So just give me a happy middle And a very happy start.
+ - If you are a dreamer come in.
+ - She had blue skin, And so did he. He kept it hid And so did she. They searched for blue Their whole life through, Then passed right by- And never knew.
+ - The Voice There is a voice inside of you That whispers all day long, “I feel this is right for me, I know that this is wrong.” No teacher, preacher, parent, friend Or wise man can decide What’s right for you – just listen to The voice that speaks inside.
+ - And all the colors I am inside have not been invented yet.
+ - If you are a dreamer come in If you are a dreamer a wisher a liar A hoper a pray-er a magic-bean-buyer If youre a pretender com sit by my fire For we have some flax golden tales to spin Come in! Come in!
+ - Underneath my outside face There’s a face that none can see. A little less smiley, A little less sure, But a whole lot more like me.
+ - But all the magic I have known I’ve had to make myself.
+ - There is a place where the sidewalk ends, And before the street begins, And there the grass grows soft and white, And there the sun burns crimson bright, And there the moon-bird rests from his flight To cool in the peppermint wind.
+ - Early bird Oh, if you’re a bird, be an early bird And catch the worm for your breakfast plate. If you’re a bird, be an early bird – But if you’re a worm, sleep late.
+ - There is a place where the sidewalk ends.
+ - How many slams in an old screen door? Depends how loud you shut it. How many slices in a bread? Depends how thin you cut it. How much good inside a day? Depends how good you live ’em. How much love inside a friend? Depends how much you give ’em.
+ - It’s amazing the difference A bit of sky can make.
+ - I’d rather play tennis than go to the dentist. I’d rather play soccer than go to the doctor. I’d rather play Hurk than go to work. Hurk? Hurk? What’s Hurk? I don’t know but it MUST be better than work!
+ - And the tree was happy.
+ - If the track is tough and the hill is rough, THINKING you can just ain’t enough!
+ - I asked the Zebra, are you black with white stripes? Or white with black stripes? And the zebra asked me, Are you good with bad habits? Or are you bad with good habits?
+ - No teacher, preacher, parent, friend, or wise man can decide what’s right for you.
+ - Don’t be dependent on anyone else. I want to go everywhere, look at, and listen to everything. You can go crazy with some of the wonderful stuff there is in life.
+ - The Yesees said yes to anything That anyone suggested. The Noees said no to everything Unless it was proven and tested. So the Yesees all died of much too much And the Noees all died of fright, But somehow I think the Thinkforyourselfees All came out all right.
+ - Anything can happen, child. Anything can be.
+ - Listen to the voice that speaks inside.
+ - A spider lives inside my head Who weaves a strange and wondrous web Of silken threads and silver strings To catch all sorts of flying things, Like crumbs of thoughts and bits of smiles And specks of dried-up tears, And dust of dreams that catch and cling For years and years and years...
+ - I know a way to stay friends forever, There’s really nothing to it, I tell you what to do, And you do it.
+ - Thanksgiving dinner’s sad and thankless. Christmas dinner’s dark and blue. When you stop and try to see it From the turkey’s point of view.
+ - When I am gone what will you do? Who will write and draw for you? Someone smarter – someone new? Someone better – maybe YOU!
+ - Although I cannot see your face As you flip these poems awhile, Somewhere from some far-off place I hear you laughing – and I smile.
+ - TREE HOUSE A tree house, a free house, A secret you and me house, A high up in the leafy branches Cozy as can be house. A street house, a neat house, Be sure to wipe your feet house Is not my kind of house at all- Let’s go live in a tree house.
+ - Once there was a tree, and she loved a little boy.
+ - He wasted his wishes on wishing.
+ - I was always prepared for success but that means that I have to be prepared for failure, too.
+ - My beard grows down to my toes, I never wears no clothes, I wraps my hair Around my bare, And down the road I goes.
+ - At night my mind does not much care if what it thinks is here or there. It tells me stories, it invents and makes up things that don’t make sense. I do not know why it does this stuff. The real world seems quite weird enough.
+ - G’bye, I’m going out to play!
+ - Talked my head off Worked my tail off Cried my eyes out Walked my feet off Sang my heat out So you see, There’s really not much left of me.
+ - This bridge will take you halfway there – the last few steps you will have to take yourself.
+ - To me, freedom entitles you to do something, not to not do something.
+ - Let us leave this place where the smoke blows black And the dark street winds and bends. Past the pits where the asphalt flowers grow We shall walk with a walk that is measured and slow, And watch where the chalk-white arrows go To the place where the sidewalk ends.
+ - When the light turns green, you go. When the light turns red, you stop. But what do you do when the light turns blue with orange and lavender spots?
+ - So please get your rags And your polishing jars, Somebody has to go polish the stars.
+ - We can’t hold hands – Someone might see. Won’t you please Hold toes with me?
+ - My skin is kind of sort of brownish pinkish yellowish white. My eyes are greyish blueish green, but I’m told they look orange in the night. My hair is reddish blondish brown, but its silver when its wet, and all the colors I am inside have not been invented yet.
+ - We’re all worth the same When we turn off the light.
+ - I believe that if you don’t want to do anything, then sit there and don’t do it, but don’t expect people to hand you a corn beef sandwich and wash your socks for you and unzip your fly for you.
+ - Each time I see the Upside-Down Man Standing in the water, I look at him and start to laugh, Although I shouldn’t oughtter. For maybe in another world Another time Another town, Maybe HE is right side up And I am upside down.
+ - Tell me I’m clever, Tell me I’m kind, Tell me I’m talented, Tell me I’m cute, Tell me I’m sensitive, Graceful and wise, Tell me I’m perfect – But tell me the truth.
+ - And he didn’t really know where he was going, but he did know he was going somewhere, because you really have to go somewhere, don’t you?
+ - Magic Sandra’s seen a leprechaun, Eddie touched a troll, Laurie danced with witches once, Charlie found some goblins gold. Donald heard a mermaid sing, Susy spied an elf, But all the magic I have known I’ve had to make myself.
+ - FROZEN DREAM I’ll take the dream I had last night And put it in my freezer, So someday long and far away When I’m an old grey geezer, I’ll take it out and thaw it out, This lovely dream I’ve frozen, And boil it up and sit me down A dip my old cold toes in.
+ - If you’re nasty, I won’t fight. If you’re rough, well that’s just you. If you’re mean, that’s alright too. Whatever you are is all okay. I don’t like you anyway.
+ - How much good inside a day? Depends how good you live ’em.
+ - I was so lucky that I didn’t have anyone to copy, be impressed by. I had developed my own style, I was creating before I knew there was a Thurber, a Benchley, a Price and a Steinberg. I never saw their work until I was around thirty.
+ - What did the carrot say to the wheat? Lettuce rest, I’m feeling beet.
+ - Runny’s Nicpic One day Runny Babbit Met little Franny Fog. He said, “Let’s have a nicpic Down by the lollow hog.” He brought some cutter bookies, Some teanuts and some pea. And what did Franny Fog bring? Her whole fog framily.
+ - So I’m all of love that could make it today.
+ - This boat that we just built is just fine – And don’t try to tell us it’s not The sides and the back are divine – It’s the bottom I guess we forgot.
+ - Never explain what you do. It speaks for itself. You only muddle it by talking about it.
+ - INVISIBLE BOY And here we see the invisible boy In his lovely invisible house, Feeding a piece of invisible cheese To a little invisible mouse. Oh, what a beautiful picture to see! Will you draw an invisible picture for me?
+ - If you’re behind the times, they won’t notice you. If you’re right in tune with them, you’re no better than they are, so they won’t care much for you. Be just a little ahead of them.
+ - I can be someone’s and still be my own.
+ - I’m making a list I’m making a list of things I must say For politeness, And goodness and kindness and gentleness Sweetness and rightness: Hello Pardon me How are you? Excuse me Bless you May I? Thank you Goodbye If you know some that I’ve forgot, Please stick them in you eye!
+ - People are always giving you credit for really wanting to say more than you said.
+ - Ricky was “L” but he’s home with the flu, Lizzie, our “O,” had some homework to do, Mitchell, “E” prob’ly got lost on the way, So I’m all of the love that could make it today.
+ - I would hope that people, no matter what age, would find something to identify with in my books, pick one up and experience a personal sense of discovery. That’s great. But for them, not for me.
+ - Whatever you are is all okay. I don’t like you anyway.
+ - Imagine – four years you could have spent travelling around Europe meeting people, or going to the Far East of Africa or India, meeting people, exchanging ideas, reading all you wanted to anyway, and instead I wasted it at Roosevelt.
+ - I myself do not believe in explaining anything.
+ - Don’t know where he’s going but sees where he’s been.
+ - If you want to find out what a writer or a cartoonist really feels, look at his work. That’s enough.
+ - Stand-up comics reflect less of a visual humor and more of a commentary.
+ - You’d better get your laugh while you’re making your point, or you won’t be doing it very long.
+
+71 quotes

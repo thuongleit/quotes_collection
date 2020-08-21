@@ -1,0 +1,51 @@
+ - Respect is more than giving consideration of one’s feelings. It is showing common courtesy for another human being.
+ - I’ve learned It’s the important little baby steps, which teaches us, how to grow. Moving up just one small notch, will help us more, than we know.
+ - I have never described the time I was in Doctor Who as anything except a kind of ecstatic success, but all the rest has been rather a muddle and a disappointment. Compared to Doctor Who, it has been an outrageous failure really – it’s so boring.
+ - Friends are like Lighthouses, with the sources of light coming from their hearts.
+ - It’s the end – but the moment has been prepared for.
+ - I am a one success man.
+ - To be adored is something I recommend.
+ - Some Christmas tree ornaments do more than glitter and glow, they represent a gift of love given a long time ago.
+ - Keepers of light carry invisible candles of hope, touching hearts and illuminating the souls of friends.
+ - You know, you’re a classic example of the inverse ratio between the size of the mouth and the size of the brain.
+ - Precious moments are small elements of time, we show and share love and kindness, with those we care about.
+ - A True Friend who leaves heart felt messages, can be a lighthouse to others, sharing light and truth, which comes from their heart.
+ - Loving friends let kindness grow in their hearts, creating a oneness with their souls.
+ - Brighten someone’s by adding a spoon full of kindness.
+ - I think quite often a fate worse than death is life – for lots of people.
+ - Being Doctor Who, I used to look at the clock and know at half past four we were going to stop rehearsing – and that was a sad moment for me because I wanted to stay in this beautiful, unreal world.
+ - I’m obsessive about the kind of melodrama of getting through the days and trying to make them good and funny and a happy experience. But my feeling towards the fans is that they delivered me from darkness.
+ - Life is like the rungs on a ladder. The reason they are placed so close together is that we can learn to take baby steps and reach our destinations safely.
+ - Politicians are just Daily Mail journalists writ large, aren’t they? They’re always telling us what’s going to happen, and we know they don’t know!
+ - One longs to be funny, to make people laugh. Laughter is such a sign of approval, isn’t it?
+ - We are pre-disposed for fantasy, there is a natural impulse for human beings to want to get off their heads or out of their heads in something in a substance or a drink or an idea or a religion which will comfort them and make life exciting.
+ - When judging others it’s the intangibles that we often miss.
+ - I’m really not an actor of any kind. I’ve always seen myself as an entertainer, someone who makes people laugh. That’s all I’ve ever wanted to do. ‘Doctor Who’ has always just been me, really.
+ - From soul to soul, and heart to heart. May you be blessed, I wish to impart.
+ - The older I get, the older old is.
+ - Most drama in our lives is really rather squalid.
+ - We have newsreaders behaving like actors, lowering their voices if it’s a sad story, as if we didn’t know it’s a sad story. There isn’t a single cool newsreader.
+ - Well, I think people don’t recognise my face because I’m so much older now, but it is astonishing that people can recognise a voice. I do sometimes get recognised, and indeed a lot of people do come and see me.
+ - A great tribute, is expressing the great love for a Grandmother we share with our children.
+ - I think people can believe in anything.
+ - I used to always be putting my hat on children being photographed and then getting home and discovering I was riddled with lice. That used to happen very, very regularly. I used to get headlice all the time.
+ - The Old Testament is my favourite science fantasy reading.
+ - I’ve never ever read a script. I really must read Macbeth, because I was in it once. I got a lot of laughs in that, I can tell you.
+ - My capacity as a monk was to passionately believe utter nonsense, and when you’re an actor you have to do the same thing. Also, Christianity used to have a lot to do with self-loathing and an acceptance of criticism and things like that which is terribly important for actors.
+ - Plenty of clever children have to pretend to be not clever or else they get bullied by the thick.
+ - The thing is I’m very interested in bad taste, as anyone who’s ever seen me perform or had dinner with me would know.
+ - I really think that reading a whole script is kind of prying and neurotic, don’t you?
+ - I was cutting and threading pipe in the tunnels to get water into the shower rooms for athletics. I was repairing old metal windows, fixing cement walls where rain was coming through, and drying out the maple gym floors in hopes of removing the warping.
+ - I don’t watch television. I know better than that.
+ - The success of a close friend is often wounding, especially if he has been poor for so long.
+ - It’s funny, in literature no one ever goes to the lavatory.
+ - I never read the scripts at all carefully and never wanted to know what was going on, because i felt that being a benevolent alien, that’s the way it should be.
+ - I’m the only man in London that ‘Don’t talk to strange men’ doesn’t apply to.
+ - I’ve been involved in one or two successes in classical plays but nothing to touch the excitement and the glamour and the gratification of being a children’s hero for so long.
+ - Actors are able to trick themselves into treating anything as if it’s fantastic. It’s a kind of madness really.
+ - Well, I think if more people had more applause, it would make them feel better. I often give my wife a round of applause. If the meal is very good I give her a standing ovation.
+ - Strive to have sunshine in our hearts each day. It will greatly improve our outlook.
+ - It was actually, ‘Where ever there is television, there is poor old shagged out Tom Baker running across the rocks and punting down the river.’
+ - I wasnt interested in novelty. I was looking for good drama.
+
+49 quotes

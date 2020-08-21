@@ -1,0 +1,397 @@
+ - The earth has music for those who listen.
+ - Those who do not remember the past are condemned to repeat it.
+ - The wisest mind has something yet to learn.
+ - A child educated only at school is an uneducated child.
+ - Depression is rage spread thin.
+ - Graphic design is the paradise of individuality, eccentricity, heresy, abnormality, hobbies and humors.
+ - A simple life is its own reward.
+ - The world is not respectable; it is mortal, tormented, confused, deluded forever; but it is shot through with beauty, with love, with glints of courage and laughter; and in these, the spirit blooms timidly, and struggles to the light amid the thorns.
+ - The Difficult is that which can be done immediately; the Impossible that which takes a little longer.
+ - Repetition is the only form of permanence that Nature can achieve.
+ - An artist is a dreamer consenting to dream of the actual world.
+ - A country without a memory is a country of madmen.
+ - Man is not made to understand life, but to live it.
+ - The great difficulty in education is to get experience out of ideas.
+ - People never believe in volcanoes until the lava actually overtakes them.
+ - Familiarity breeds contempt only when it breeds inattention.
+ - There is no cure for birth and death save to enjoy the interval.
+ - Habit is stronger than reason.
+ - Happiness is the only sanction of life; where happiness fails, existence remains a mad and lamentable experiment.
+ - The habit of looking for beauty in everything makes us notice the shortcomings of things, our sense, hungry for complete satisfaction, misses the perfection it demands.
+ - Nietzsche was personally more philosophical than his philosophy. His talk about power, harshness, and superb immorality was the hobby of a harmless young scholar and constitutional invalid.
+ - Eternal vigilance is the price of knowledge.
+ - Poetry is an attenuation, a rehandling, an echo of crude experience; it is itself a theoretic vision of things at arm’s length.
+ - Wisdom comes from disillusionment.
+ - Everything in nature is lyrical in its ideal essence, tragic in its fate, and comic in its existence.
+ - The Universe, so far as we can observe it, is a wonderful and immense engine; its extent, its order, its beauty, its cruelty, makes it alike impressive.
+ - The muffled syllables that Nature speaks Fill us with deeper longing for her word; She hides a meaning that the spirit seeks, She makes a sweeter music than is heard.
+ - We must welcome the future, remembering that soon it will be the past; and we must respect the past, remembering that it was once all that was humanly possible.
+ - The young man who has not wept is a savage, and the older man who will not laugh is a fool.
+ - Sanity is madness put to good use.
+ - A man is morally free when, in full possession of his living humanity, he judges the world, and judges other men, with uncompromising sincerity.
+ - Intelligence is quickness in seeing things as they are.
+ - For gold is tried in the fire and acceptable men in the furnace of adversity.
+ - Is it indeed from the experience of beauty and happiness, from the occasional harmony between our nature and our environment, that we draw our conception of the divine life.
+ - There is wisdom in turning as often as possible from the familiar to the unfamiliar: it keeps the mind nimble, it kills prejudice, and it fosters humor.
+ - Skepticism is the chastity of the intellect.
+ - A man’s feet should be planted in his country, but his eyes should survey the world.
+ - An artist may visit a museum but only a pedant can live there.
+ - Theory helps us to bear our ignorance of facts.
+ - We need sometimes to escape into open solitudes, into aimlessness, into the moral holiday of running some pure hazard in order to sharpen the edge of life, to taste hardship, and to be compelled to work desperately for a moment at no matter what.
+ - History is a pack of lies about events that never happened told by people who weren’t there.
+ - To fight is a radical instinct; if men have nothing else to fight over they will fight over words, fancies, or women, or they will fight because they dislike each other’s looks, or because they have met walking in opposite directions.
+ - Never build your emotional life on the weaknesses of others.
+ - Oaths are the fossils of piety.
+ - The world is a perpetual caricature of itself; at every moment it is the mockery and the contradiction of what it is pretending to be.
+ - One’s friends are that part of the human race with which one can be human.
+ - Knowledge is not eating, and we cannot expect to devour and possess what we mean. Knowledge is recognition of something absent; it is a salutation, not an embrace.
+ - Nonsense is so good only because common sense is so limited.
+ - There are books in which the footnotes, or the comments scrawled by some reader’s hand in the margin, are more interesting than the text. The world is one of those books.
+ - If all art aspires to the condition of music, all the sciences aspire to the condition of mathematics.
+ - For Shakespeare, in the matter of religion, the choice lay between Christianity and nothing. He chose nothing.
+ - The unforgivable sin is the refusal to pardon.
+ - The mass of mankind is divided into two classes, the Sancho Panza’s who have a sense for reality, but no ideals, and the Don Quixote’s with a sense for ideals, but mad.
+ - Knowledge of what is possible is the beginning of happiness.
+ - Chaos is a name for any order that produces confusion in our minds.
+ - It would hardly be possible to exaggerate man’s wretchedness if it were not so easy to overestimate his sensibility.
+ - There is no dunce like a mature dunce.
+ - Skepticism is a discipline fit to purify the mind of prejudice and render it all the more apt, when the time comes, to believe and to act wisely.
+ - To me, it seems a dreadful indignity to have a soul controlled by geography.
+ - Language is like money, without which specific relative values may well exist and be felt, but cannot be reduced to a common denominator.
+ - The little word is has its tragedies: it marries and identifies different things with the greatest innocence; and yet no two are ever identical, and if therein lies the charm of wedding them and calling them one, therein too lies the danger.
+ - Religion is indeed a convention which a man must be bred in to endure with any patience; and yet religion, for all its poetic motley, comes closer than work-a-day opinion to the heart of things.
+ - The line between what is known scientifically and what has to be assumed in order to support knowledge is impossible to draw. Memory itself is an internal rumour.
+ - I leave you but the sound of many a word In mocking echoes haply overheard, I sang to heaven. My exile made me free, from world to world, from all worlds carried me.
+ - Existence is a miracle, and, morally considered, a free gift from moment to moment.
+ - Beware of long arguments and long beards.
+ - Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.
+ - Skepticism is the chastity of the intellect, and it is shameful to surrender it too soon or to the first comer.
+ - If a man really knew himself he would utterly despise the ignorant notions others might form on a subject in which he had such matchless opportunities for observation.
+ - Religions are the great fairy tales of conscience.
+ - People are usually more firmly convinced that their opinions are precious than that they are true.
+ - It is characteristic of spontaneous friendship to take on first, without enquiry and almost at first sight, the unseen doings and unspoken sentiments of our friends; the parts known give us evidence enough that the unknown parts cannot be much amiss.
+ - It is always pleasant to be urged to do something on the ground that one can do it well.
+ - Man is a gregarious animal, and much more so in his mind than in his body. He may like to go alone for a walk, but he hates to stand alone in his opinions.
+ - Our knowledge is a torch of smoky pine That lights the pathway but one step ahead Across a void of mystery and dread.
+ - There is no cure for birth and death save to enjoy the interval. The dark background which death supplies brings out the tender colours of life in all their purity.
+ - Trust the man who hesitates in his speech and is quick and steady in action, but beware of long arguments and long beards.
+ - Facts are all accidents. They all might have been different. They all may become different. They may all collapse altogether.
+ - American life is a powerful solvent. It seems to neutralize every intellectual element, however tough and alien it may be, and to fuse it in the native good will, complacency, thoughtlessness, and optimism.
+ - Real unselfishness consists in sharing the interests of others.
+ - To be interested in the changing seasons is a happier state of mind than to be hopelessly in love with spring.
+ - The need of exercise is a modern superstition, invented by people who ate too much and had nothing to think about.
+ - I have no axe to grind; only my thoughts to burnish.
+ - In a moving world readaptation is the price of longevity.
+ - Columbus found a world, and had no chart save one that Faith deciphered in the skies.
+ - In Greece wise men speak and fools decide.
+ - Beauty as we feel it is something indescribable; what it is or what it means can never be said.
+ - That life is worth living is the most necessary of assumptions, and were it not assumed, the most impossible of conclusions.
+ - Memory itself is an internal rumour.
+ - Do not have evil-doers for friends, do not have low people for friends: have virtuous people for friends, have for friends the best of men.
+ - The soul, too has her virginity and must bleed a little before bearing fruit.
+ - The truth is cruel, but it can be loved, and it makes free those who have loved it.
+ - To know what people really think, pay regard to what they do, rather than what they say.
+ - Society is like the air, necessary to breathe but insufficient to live on.
+ - Parents lend children their experience and a vicarious memory; children endow their parents with a vicarious immortality.
+ - I like to walk about among the beautiful things that adorn the world; but private wealth I should decline, or any sort of personal possessions, because they would take away my liberty.
+ - Before he sets out, the traveler must possess fixed interests and facilities to be served by travel.
+ - To be an American is of itself almost a moral condition, an education, and a career.
+ - Life is not a spectacle or a feast; it is a predicament.
+ - Gnomic wisdom, however, is notoriously polychrome, and proverbs depend for their truth entirely on the occasion they are applied to. Almost every wise saying has an opposite one, no less wise, to balance it...
+ - Art is the response to the demand for entertainment, for the stimulation of our senses and imagination, and truth enters into it only as it subserves these ends.
+ - Unmitigated seriousness is always out of place in human affairs.
+ - To delight in war is a merit in the soldier, a dangerous quality in the captain, and a positive crime in the statesman.
+ - The love of all-inclusiveness is as dangerous in philosophy as in art.
+ - The highest form of vanity is love of fame.
+ - Prayer is not a substitute for work; it is an effort to work further and be efficient beyond the range of one’s powers.
+ - In the concert of nature it is hard to keep in tune with oneself if one is out of tune with everything else.
+ - A conception not reducible to the small change of daily experience is like a currency not exchangeable for articles of consumption; it is not a symbol, but a fraud.
+ - History is always written wrong, and so always needs to be rewritten.
+ - Let a man once overcome his selfish terror at his own infinitude, and his infinitude is, in one sense, overcome.
+ - One real world is enough.
+ - Our dignity is not in what we do, but what we understand.
+ - A dream is always simmering below the conventional surface of speech and reflection.
+ - Bid, then, the tender light of faith to shine By which alone the mortal heart is led Unto the thinking of the thought divine.
+ - Columbus gave the world another world.
+ - The diseases which destroy a man are no less natural than the instincts which preserve him.
+ - Almost every wise saying has an opposite one, no less wise, to balance it.
+ - Nothing so much enhances a good as to make sacrifices for it.
+ - Wisdom lies in taking everything with good humor and a grain of salt.
+ - History is nothing but assisted and recorded memory.
+ - Old age is as forgetful as youth, and more incorrigible; it displays the same inattentiveness to conditions; its memory becomes self-repeating and degenerates into an instinctive reaction, like a bird’s chirp.
+ - Each religion, so dear to those whose life it sanctifies, and fulfilling so necessary a function in the society that has adopted it, necessarily contradicts every other religion, and probably contradicts itself.
+ - You and I possess manifold ideal bonds in the interests we share; but each of us has his poor body and his irremediable, incommunicable dreams.
+ - Fear first created the gods.
+ - Tolerated people are never conciliated. They live on, but the aroma of their life is lost.
+ - In the contemplation of beauty we are raised above ourselves, the passions are silenced and we are happy in the recognition of a good that we do not seek to possess.
+ - The pint would call the quart a dualist, if you tried to pour the quart into him.
+ - The body is an instrument, the mind its function, the witness and reward of its operation.
+ - Nothing can be meaner than the anxiety to live on, to live on anyhow and in any shape; a spirit with any honor is not willing to live except in its own way, and a spirit with any wisdom is not over-eager to live at all.
+ - The combative instinct is a savage prompting by which one man’s good is found in another’s evil.
+ - It takes patience to appreciate domestic bliss; volatile spirits prefer unhappiness.
+ - The same battle in the clouds will be known to the deaf only as lightning and to the blind only as thunder.
+ - Every real object must cease to be what it seemed, and none could ever be what the whole soul desired.
+ - I believe in general in a dualism between facts and the ideas of those facts in human heads.
+ - There is nothing sacred about convention; there is nothing sacred about primitive passions or whims; but the fact that a convention exists indicates that a way of living has been devised capable of maintaining itself.
+ - Oxford, the paradise of dead philosophies.
+ - Self-assurance is contemptible and fatal unless it is self-knowledge.
+ - The best men in all ages keep classic traditions alive.
+ - The strongest feelings assigned to the conscience are not moral feelings at all; they express merely physical antipathies.
+ - Beauty is objectified pleasure.
+ - Art like life, should be free, since both are experimental.
+ - Though the heart wear the garment of its sorrow And be not happy like a naked star, Yet from the thought of peace some peace we borrow, Some rapture from the rapture felt afar.
+ - People who feel themselves to be exiles in this world are mightily inclined to believe themselves citizens of another.
+ - A great man need not be virtuous, nor his opinions right, but he must have a firm mind, a distinctive luminous character.
+ - The human mind is not rich enough to drive many horses abreast and wants one general scheme, under which it strives to bring everything.
+ - The passions grafted on wounded pride are the most inveterate; they are green and vigorous in old age.
+ - The Soul is the voice of the body’s interests.
+ - Reason in my philosophy is only a harmony among irrational impulses.
+ - Sanctity and genius are as rebellious as vice.
+ - The Fates, like an absent-minded printer, seldom allow a single line to stand perfect and unmarred.
+ - The true Christian is in all countries a pilgrim and a stranger.
+ - The God to whom depth in philosophy bring back men’s minds is far from being the same from whom a little philosophy estranges them.
+ - Government is the political representative of a natural equilibrium, of custom, of inertia; it is by no means a representative of reason.
+ - Heaven is to be at peace with things.
+ - Fanaticism consists of redoubling your effort when you have forgotten your aim.
+ - Music is essentially useless, as life is; but both have an ideal extension which lends utility to its conditions.
+ - Tomes of aesthetic criticism hang on a few moments of real delight and intuition.
+ - As widowers proverbially marry again, so a man with the habit of friendship always finds new friends.
+ - To drink in the spirit of a place you should be not only alone but unhurried.
+ - For an idea ever to be fashionable is ominous, since it must afterwards be always old fashioned.
+ - Art supplies constantly to contemplation what nature seldom affords in concrete experience – the union of life and peace.
+ - Guard you thoughts as you would your wallet. Habit is stronger than reason.
+ - Reason and happiness are like other flowers; they wither when plucked.
+ - It is a new road to happiness, if you have strength enough to castigate a little the various impulses that sway you in turn.
+ - It is true that I am carrying out various methods of treatment recommended by doctors and dentists in the hope of dying in the remote future in perfect health.
+ - We crave support in vanity, as we do in religion, and never forgive contradictions in that sphere.
+ - We should have to abandon our vested illusions, our irrational religions and patriotisms.
+ - All spiritual interests are supported by animal life.
+ - To turn events into ideas is the function of literature.
+ - Religion is the natural reaction of the imagination when confronted by the difficulties in a truculent world.
+ - To reform means to shatter one form and to create another; but the two sides of this act are not always equally intended nor equally successful.
+ - Advertising is the modern substitute for argument; its function is to make the worse appear the better.
+ - There is nothing to which men, while they have food and drink, cannot reconcile themselves.
+ - The truth properly means the sum of all true propositions, what omniscience would assert, the whole ideal system of qualities andrelations which the world has exemplified or will exemplify. The truth is all things seen under the form of eternity.
+ - The irrational in the human has something about it altogether repulsive and terrible, as we see in the maniac, the miser, the drunkard or the ape.
+ - Imagination is potentially infinite. Though actually we are limited to the types of experience for which we possess organs, those organs are somewhat plastic. Opportunity will change their scope and even their center.
+ - Men almost universally have acknowledged providence, but that fact has had no force to destroy natural aversions and fears in the presence of events.
+ - Sometimes we have to change the truth in order to remember it.
+ - Nothing is inherently and invincibly young except spirit. And spirit can enter a human being perhaps better in the quiet of old age and dwell there more undisturbed than in the turmoil of adventure.
+ - Perhaps the only true dignity of man is his capacity to despise himself.
+ - Man is a fighting animal; his thoughts are his banners, and it is a failure of nerve in him if they are only thoughts.
+ - What brings enlightenment is experience, in the sad sense of this word – the pressure of hard facts and unintelligible troubles, making a man rub his eyes in his waking dream, and put two and two together. Enlightenment is cold water.
+ - The word experience is like a shrapnel shell, and bursts into a thousand meanings.
+ - There is a kind of courtesy in skepticism. It would be an offense against polite conventions to press our doubts too far.
+ - In unphilosophical minds any rare or unexpected thing excites wonder, while in philosophical minds the familiar excites wonder also.
+ - Nature is like a beautiful woman that may be as delightfully and as truly known at a certain distance as upon a closer view; as to knowing her through and through; that is nonsense in both cases, and might not reward our pains.
+ - Philosophers are as jealous as woman; each wants a monopoly of praise.
+ - It is rash to intrude upon the piety of others: both the depth and the grace of it elude the stranger.
+ - An ideal cannot wait for its realization to prove its validity.
+ - Injustice in this world is not something comparative; the wrong is deep, clear, and absolute in each private fate.
+ - Love, whether sexual, parental, or fraternal, is essentially sacrificial, and prompts a man to give his life for his friends.
+ - To be happy you must have taken the measure of your powers, tasted the fruits of your passion, and learned your place in the world.
+ - Whoever it was who searched the heavens with a telescope and found no God would not have found the human mind if he had searched the brain with a microscope.
+ - There is nothing sweeter than to be sympathized with.
+ - What religion a man shall have is a historical accident, quite as much as what language he shall speak.
+ - The brute necessity of believing something so long as life lasts does not justify any belief in particular.
+ - My atheism, like that of Spinoza, is true piety towards the universe and denies only gods fashioned by men in their own image, to be servants of their human interests.
+ - Not to believe in love is a great sign of dullness. There are some people so indirect and lumbering that they think all real affection rests on circumstantial evidence.
+ - Catastrophes come when some dominant institution, swollen like a soap-bubble and still standing without foundations, suddenly crumbles at the touch of what may seem a word or idea, but is really some stronger material source.
+ - Beauty is a pledge of the possible conformity between the soul and nature, and consequently a ground of faith in the supremacy of the good.
+ - Our occasional madness is less wonderful than our occasional sanity.
+ - The working of great institutions is mainly the result of a vast mass of routine, petty malice, self interest, carelessness and sheer mistake. Only a residual fraction is thought.
+ - There is no right government except good government.
+ - Since barbarism has its pleasures it naturally has its apologists.
+ - Before you contradict an old man, my fair friend, you should endeavor to understand him.
+ - The sophisticated concern about art sinks before a spontaneous love of reality, and I thank the photograph for being so transparent a vehicle for things...
+ - Life is judged with all the blindness of life itself.
+ - Historical investigation has for its aim to fix the order and character of events throughout past time and in all places. The task is frankly superhuman.
+ - What renders man an imaginative and moral being is that in society he gives new aims to his life which could not have existed in solitude : the aims of friendship, religion, science, and art .
+ - Wealth, religion, military victory have more rhetorical than efficacious worth.
+ - Faith in the supernatural is a desperate wager made by man at the lowest ebb of his fortunes.
+ - America is the greatest of opportunities and the worst of influences.
+ - Lovely promise and quick ruin are seen nowhere better than in Gothic architecture.
+ - Even under the most favorable circumstances no mortal can be asked to seize the truth in its wholeness or at its center.
+ - To understand oneself is the classic form of consolation; to elude oneself is the romantic.
+ - The idea of Christ is much older than Christianity.
+ - Old places and old persons in their turn, when spirit dwells in them, have an intrinsic vitality of which youth is incapable, precisely, the balance and wisdom that come from long perspectives and broad foundations.
+ - There is a prodigious selfishness in dreams: they live perfectly deaf and invulnerable amid the cries of the real world.
+ - The tide of evolution carries everything before it, thoughts no less than bodies, and persons no less than nations.
+ - It is veneer, rouge, aestheticism, art museums, new theaters, etc. that make America impotent. The good things are football, kindness, and jazz bands.
+ - If artists and poets are unhappy, it is after all because happiness does not interest them.
+ - Man is as full of potential as he is of importance.
+ - Man’s most serious activity is play.
+ - Ideal society is a drama enacted exclusively in the imagination.
+ - Plasticity loves new moulds because it can fill them, but for a man of sluggish mind and bad manners there is decidedly no place like home.
+ - To call war the soil of courage and virtue is like calling debauchery the soil of love.
+ - The Bible is a wonderful source of inspiration for those who don’t understand it.
+ - The theatre, for all its artifices, depicts life in a sense more truly than history, because the medium has a kindred movement to that of real life, though an artificial setting and form.
+ - The aim of education is the condition of suspended judgment on everything.
+ - Perhaps the universe is nothing but an equilibrium of idiocies.
+ - Eloquence is a republican art, as conversation is an aristocratic one.
+ - Experience is a mere whiff or rumble, produced by enormously complex and ill-deciphered causes of experience; and in the other direction, experience is a mere peephole through which glimpses come down to us of eternal things.
+ - Nothing you can lose by dying is half as precious as the readiness to die, which is man’s charter of nobility.
+ - Friends need not agree in everything or go always together, or have no comparable other friendships of the same intimacy.
+ - Art is a delayed echo.
+ - Many possessions, if they do not make a man better, are at least expected to make his children happier; and this pathetic hope is behind many exertions.
+ - Music is a means of giving form to our inner feelings, without attaching them to events or objects in the world.
+ - A grateful environment is a substitute for happiness. It can quicken us from without as a fixed hope and affection, or as the consciousness of a right life, can quicken us from within.
+ - Character is the basis of happiness and happiness the sanction of character.
+ - Never have I enjoyed youth so thoroughly as I have in my old age.
+ - He thinks he believes only what he sees, but he is much better at believing than at seeing.
+ - The effort of art is to keep what is interesting in existence, to recreate it in the eternal.
+ - Spirituality lies in regarding existence merely as a vehicle for contemplation, and contemplation merely a vehicle for joy.
+ - Nature in denying us perennial youth has at least invited us to become unselfish and noble.
+ - Popular poets are the parish priests of the Muse, retailing her ancient divinations to a long since converted public.
+ - I like to walk about amidst the beautiful things that adorn the world.
+ - To knock a thing down, especially if it is cocked at an arrogant angle, is a deep delight of the blood.
+ - America is a young country with an old mentality.
+ - Boston is a moral and intellectual nursery always busy applying first principals to trifles.
+ - There is nothing impossible in the existence of the supernatural: its existence seems to me decidedly probable.
+ - Animals are born and bred in litters. Solitude grows blessed and peaceful only in old age.
+ - Periods of tranquillity are seldom prolific of creative achievement. Mankind has to be stirred up.
+ - In each person I catch the fleeting suggestion of something beautiful and swear eternal friendship with that.
+ - Docility is the observable half of reason.
+ - The fly that prefers sweetness to a long life may drown in honey.
+ - The spirit’s foe in man has not been simplicity, but sophistication.
+ - If clearness about things produces a fundamental despair, a fundamental despair in turn produces a remarkable clearness or even playfulness about ordinary matters.
+ - Culture is on the horns of this dilemma: if profound and noble it must remain rare, if common it must become mean.
+ - A fanatical imagination cannot regard God as just unless he is represented as infinitely cruel.
+ - What is false in the science of facts may be true in the science of values.
+ - Work and love these are the basics; waking life is a dream controlled.
+ - All living souls welcome whatever they are ready to cope with; all else they ignore, or pronounce to be monstrous and wrong, or deny to be possible.
+ - That fear first created the gods is perhaps as true as anything so brief could be on so great a subject.
+ - The vital straining towards an ideal, definite but latent, when it dominates a whole life, may express that ideal more fully than could the best chosen words.
+ - Civilization is perhaps approaching one of those long winters that overtake it from time to time. Romantic Christendom – picturesque, passionate, unhappy episode – may be coming to an end. Such a catastrophe would be no reason for despair.
+ - In any close society it is more urgent to restrain others than to be free oneself. Hence the tendency for the central authority to absorb and supersede such as are local or delegated.
+ - Fun is a good thing but only when it spoils nothing better.
+ - Children are natural mythologists: they beg to be told tales, and love not only to invent but to enact falsehoods.
+ - To condemn spontaneous and delightful occupations because they are useless for self-preservation shows an uncritical prizing of life irrespective of its content.
+ - The works of nature first acquire a meaning in the commentaries they provoke.
+ - If you prefer illusions to realities, it is only because all decent realities have eluded you and left you in the lurch; or else your contempt for the world is mere hypocrisy and funk.
+ - There is no greater stupidity or meanness than to take uniformity for an ideal, as if it were not a benefit and a joy to a man, being what he is, to know that many are, have been, and will be better than he.
+ - The philosophy of the common man is an old wife that gives him no pleasure, yet he cannot live without her, and resents any aspersions that strangers may cast on her character.
+ - The lover knows much more about absolute good and universal beauty than any logician or theologian, unless the latter, too, be lovers in disguise.
+ - The mind of the Renaissance was not a pilgrim mind, but a sedentary city mind, like that of the ancients.
+ - Miracles are propitious accidents, the natural causes of which are too complicated to be readily understood.
+ - Each religion necessarily contradicts every other religion, and probably contradicts itself. Religions, like languages, are necessary rivals. What religion a man shall have is a historical accident, quite as much as what language he shall speak.
+ - A body seriously out of equilibrium, either with itself or with its environment, perishes outright. Not so a mind. Madness and suffering can set themselves no limit.
+ - The hunger for facile wisdom is the root of all false philosophy.
+ - It is war that wastes a nations wealth, chokes its industries, kills its flower, narrows its sympathies, condemns it to be governed by adventurers, and leaves the puny, deformed, and unmanly to breed the next generation.
+ - Philosophy is a more intense sort of experience than common life is, just as pure and subtle music, heard in retirement, is something keener and more intense than the howling of storms or the rumble of cities.
+ - Religion is the love of life in the consciousness of impotence.
+ - Prayer, among sane people, has never superseded practical efforts to secure the desired end.
+ - The man who would emancipate art from discipline and reason is trying to elude rationality, not merely in art, but in all existence.
+ - It takes a wonderful brain and exquisite senses to produce a few stupid ideas.
+ - Truth is a jewel which should not be painted over; but it may be set to advantage and shown in a good light.
+ - Those who cannot remember the pastare condemned to repeat it. or: Those who have never heard of good system development practice are condemned to reinvent it.
+ - What better comfort have we, or what other Profit in living Than to feed, sobered by the truth of Nature, Awhile upon her beauty, And hand her torch of gladness to the ages Following after?
+ - My soul hates the fool whose only passion is to live by rule.
+ - The degree in which a poet’s imagination dominates reality is, in the end, the exact measure of his importance and dignity.
+ - Intolerance is a form of egotism, and to condemn egotism intolerantly is to share it.
+ - With an artist no sane man quarrels, any more than with the colour of a child’s eyes.
+ - Love is a brilliant illustration of a principle everywhere discoverable: namely, that human reason lives by turning the friction of material forces into the light of ideal goods.
+ - We do right enough darling, if we go wrong together.
+ - In this world we must either institute conventional forms of expression or else pretend that we have nothing to express; the choice lies between a mask and a figleaf.
+ - To be brief is almost a condition of being inspired.
+ - Those who speak most of progress measure it by quantity and not by quality.
+ - A soul is but the last bubble of a long fermentation in the world.
+ - When all beliefs are challenged together, the just and necessary ones have a chance to step forward and re-establish themselves alone.
+ - To keep beauty in its place is to make all things beautiful.
+ - A man’s memory may almost become the art of continually varying and misrepresenting his past, according to his interest in the present.
+ - To substitute judgments of fact for judgments of value is a sign of pedantic and borrowed criticism.
+ - To attempt to be religious without practicing a specific religion is as possible as attempting to speak without a specific language.
+ - The constant demands of the heart and the belly can allow man only an incidental indulgence in the pleasures of the eye and the understanding.
+ - Experience seems to most of us to lead to conclusions, but empiricism has sworn never to draw them.
+ - By nature’s kindly disposition most questions which it is beyond a man’s power to answer do not occur to him at all.
+ - The fact of having been born is a bad augury for immortality.
+ - For a man who has done his natural duty, death is as natural as sleep.
+ - Matters of religion should never be matters of controversy. We neither argue with a lover about his taste, nor condemn him, if we are just, for knowing so human a passion.
+ - Professional philosophers are usually only apologists: that is, they are absorbed in defending some vested illusion or some eloquent idea. Like lawyers or detectives, they study the case for which they are retained.
+ - It is right to prefer our own country to all others, because we are children and citizens before we can be travellers or philosophers.
+ - Philosophers are very severe towards other philosophers because they expect too much.
+ - Beautiful things, when taste is formed, are obviously and unaccountably beautiful.
+ - Proofs are the last thing looked for by a truly religious mind which feels the imaginary fitness of its faith.
+ - I have imagination, and nothing that is real is alien to me.
+ - When men and women agree, it is only in their conclusions; their reasons are always different.
+ - Every nation thinks its own madness normal and requisite; more passion and more fancy it calls folly, less it calls imbecility.
+ - The living have never shown me how to live.
+ - A musical education is necessary for musical judgement. What most people relish is hardly music; it is rather a drowsy reverie relieved by nervous thrills.
+ - The more rational an institution is the less it suffers by making concessions to others.
+ - The Bible is literature, not dogma.
+ - There is no greater stupidity or meanness than to take uniformity for an ideal.
+ - Time is like an enterprising manager always bent on staging some new and surprising production, without knowing very well what it will be.
+ - Nature drives with a loose rein and vitality of any sort can blunder through many a predicament in which reason would despair.
+ - The mediocrity of everything in the great world of today is simply appalling. We live in intellectual slums.
+ - The tendency to gather and to breed philosophers in universities does not belong to ages of free and humane reflection: it is scholastic and proper to the Middle Ages and to Germany.
+ - The profoundest affinities are those most readily felt.
+ - Science is nothing but developed perception, interpreted intent, common sense rounded out and minutely articulated.
+ - The dreamer can know no truth, not even about his dream, except by awaking out of it.
+ - The loftiest edifices need the deepest foundations.
+ - Nothing can so pierce the soul as the uttermost sigh of the body.
+ - Most men’s conscience, habits, and opinions are borrowed from convention and gather continually comforting assurances from the same social consensus that originally suggested them.
+ - The traveller must be somebody and come from somewhere, so that his definite character and moral traditions may supply an organ and a point of comparison for his observations.
+ - Music is essentially useless, as is life.
+ - Nothing is really so poor and melancholy as art that is interested in itself and not in its subject.
+ - Nothing can be meaner than the anxiety to live on, to live on anyhow and in any shape.
+ - What is more important in life than our bodies or in the world than what we look like?
+ - The arts must study their occasions; they must stand modestly aside until they can slip in fitly into the interstices of life.
+ - Manhood and sagacity ripen of themselves; it suffices not to repress or distort them.
+ - Artists have no less talents than ever, their taste, their vision, their sentiment are often interesting; they are mighty in their independence and feeble only in their works.
+ - Thought is essentially practical in the sense that but for thought no motion would be an action, no change a progress.
+ - Nothing can be lower or more wholly instrumental than the substance and cause of all things.
+ - It is a great advantage for a system of philosophy to be substantially true.
+ - It is not society’s fault that most men seem to miss their vocation. Most men have no vocation.
+ - It would repel me less to be a hangman than a soldier, because the one is obliged to put to death only criminals sentenced by the law, but the other kills honest men who like himself bathe in innocent blood at the bidding of some superior.
+ - Chaos is perhaps at the bottom of everything.
+ - The profoundest affinities are the most readily felt; they remain a background and standard for all happiness and if we trace them out we succeed.
+ - Mortality has its compensations; one is that all evils are transitory, another that better times may come.
+ - It is wisdom to believe the heart.
+ - Philosophy may describe unreasoning, as it may describe force; it cannot hope to refute them.
+ - A friend’s only gift is himself.
+ - At best, the true philosopher can fulfil his mission very imperfectly, which is to pilot himself, or at most a few voluntary companions who may find themselves in the same boat.
+ - The only kind of reform usually possible is reform from within; a more intimate study and more intelligent use of the traditional forms.
+ - The primary use of conversation is to satisfy the impulse to talk.
+ - Skepticism, like chastity, should not be relinquished too readily.
+ - I feel so much the continual death of everything and everybody, and have so learned to reconcile myself to it, that the final and official end loses most of its impressiveness.
+ - Half our standards come from our first masters, and the other half from our first loves.
+ - A sanctity hangs about the sources of our being, whether physical, social, or imaginary.
+ - Man has an inexhuastible faculty for lying, especially to himself.
+ - There are three traps that strangle philosophy: The church, the marriage bed, and the professor’s chair.
+ - Music contains a whole gamut of experience, from sensuous elements to ultimate intellectual harmonies.
+ - Better not be a hero than work oneself up into heroism by shouting lies.
+ - Nietzsche said that the earth has been a madhouse long enough. Without contradicting him we might perhaps soften the expression, and say that philosophy has been long enough an asylum for enthusiasts.
+ - If pain could have cured us we should long ago have been saved.
+ - Nothing is so irrevocable as mind.
+ - All beauties are to be honored, but only one embraced.
+ - Society itself is an accident to the spirit, and if society in any of its forms is to be justified morally it must be justified at the bar of the individual conscience.
+ - It is a revenge the devil sometimes takes upon the virtuous, that he entraps them by the force of the very passion they have suppressed and think themselves superior to.
+ - All language is rhetorical, and even the senses are poets.
+ - It is one thing to lack a heart and another to possess eyes and a just imagination.
+ - I believe in the possibility of happiness, if one cultivates intuition and outlives the grosser passions, including optimism.
+ - The existence of any evil anywhere at any time absolutely ruins a total optimism.
+ - The superiority of the distant over the present is only due to the mass and variety of the pleasures that can be suggested, compared with the poverty of those that can at any time be felt.
+ - Uselessness is a fatal accusation to bring against any act which is done for its presumed utility, but those which are done for their own sake are their own justification.
+ - To be bewitched is not to be saved, though all the magicians and aesthetes in the world should pronounce it to be so.
+ - Religion should be disentangled as much as possible from history and authority and metaphysics, and made to rest honestly on one’s fine feelings, on one’s indomitable optimism and trust in life.
+ - It is easier to make a saint out of a libertine than out of a prig.
+ - Emotion is primarily about nothing and much of it remains about nothing to the end.
+ - It is a great bond to dislike the same things.
+ - Rejection is a form of self-assertion. You have only to look back upon yourself as a person who hates this or that to discover what it is that you secretly love.
+ - It is possible to be a master in false philosophy, easier, in fact, than to be a master in the truth, because a false philosophy can be made as simple and consistent as one pleases.
+ - Men have feverishly conceived a heaven only to find it insipid, and a hell to find it ridiculous.
+ - Profound skepticism is favorable to conventions, because it doubts that the criticism of conventions is any truer than they are.
+ - The world is so ordered that we must, in a material sense, lose everything we have and love, one thing after another, until we ourselves close our eyes.
+ - It is in rare and scattered instants that beauty smiles even on her adorers, who are reduced for habitual comfort to remembering her past favours.
+ - Well-bred instinct meets reason halfway.
+ - Love is at once more animal than friendship and more divine...
+ - Men become superstitious, not because they have too much imagination, but because they are not aware that they have any.
+ - All the doctrines that have flourished in the world about immortality have hardly affected man’s natural sentiment in the face of death.
+ - Religion in its humility restores man to his only dignity, the courage to live by grace.
+ - A way foolishness has of revenging itself is to excommunicate the world.
+ - Saints cannot arise where there have been no warriors, nor philosophers where a prying beast does not remain hidden in the depths.
+ - The quality of wit inspires more admiration than confidence.
+ - Each religion, by the help of more or less myth, which it takes more or less seriously, proposes some method of fortifying the human soul and enabling it to make its peace with its destiny.
+ - Tyrants are seldom free; the cares and the instruments of their tyranny enslave them.
+
+395 quotes

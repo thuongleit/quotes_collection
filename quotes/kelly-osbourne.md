@@ -1,0 +1,39 @@
+ - If you haven’t felt like quitting, your dreams aren’t big enough!
+ - I say find one true friend to help you get through the tough times.
+ - Even now I don’t consider myself skinny, but I have put a lot of hard work into my body over the years, and in the process, I’ve really learned to love myself.
+ - I’d be the best mum ever. I would. I’ve got great training from my mum.
+ - I can’t lie, I did a lot of really, really stupid things, and it was because it was my way of crying for help.
+ - My brother is the one that gives me the strength – if he’s not strong, I’m not.
+ - I’m not one of those people who are desperate to get married.
+ - I was called fat and ugly in the press almost my entire life. I understand that being judged by others comes with the territory, but it broke my heart and ruined my self-esteem.
+ - I don’t really care what people think about my hair. It’s my hair, so why should they care? Ooh, that rhymed.
+ - If I am going to be the future bloody Queen of England I’m going to wear that dress once because I’m giving up the rest of my life, all of my privacy. At least I can get a new dress every day!
+ - Dress how you feel and love what you wear because at the end of the day you have got to wear and feel great in it.
+ - A trick I’ve learned is to eat just a little bit of something that has no carbs and no sugar in it before you go to sleep because it keeps your metabolism going.
+ - The truth is, when girls are mean to you or make fun of you, it’s because there’s something wrong with them.
+ - I’m an emotional eater. When I get upset, my diet goes out the window.
+ - I call myself a FFP: former fat person, and when you’re an FFP, you will always see in yourself what people used to bully you for.
+ - They say you should never eat before you go to bed, but I’ve found just having a tiny little snack – like half an apple or something like that – before you go to sleep really helps.
+ - It’s so easy for me to fall back into depression. I think it comes with having money. I don’t have to work. I could be sitting bored and depressed at home with a bag on my head.
+ - I still find it tough to be around girls because I always say the wrong thing. If a friend asks me if I look fat in something, I’ll be honest and say ‘Yeah’ when she does.
+ - I think my mum has the foulest mouth of anyone I’ve ever met.
+ - It’s funny that all these goths paint their faces with such white make-up and that is the actual colour of my skin, I am that pale!
+ - After being called cherubic and chubby, I’m rocking a bikini!
+ - I took more hell for being fat than I did for being an absolute raging drug addict. I will never understand that.
+ - I feel good in my own skin because I’ve accepted the fact that I’m me. That’s what’s so great about being alive and being on this planet: Everybody’s different.
+ - To wake up in England and have the newspaper on your front door with a headline that says, ‘Ozzie’s Beach Whale of a Daughter,’ doesn’t really do much for your self-esteem at all.
+ - To fill the shoes of rock ‘n’ roll, because of the family I have, is a really hard thing.
+ - Pilates is amazing, my posture is so much better and I’m even starting to get muscles on my tummy – it’s incredible.
+ - I think I take my style from all walks of life, and all generations and decades of life as well. I love mixing ’50s with ’80s and classic with punk.
+ - I’ve done a lot of growing up since the age of 16 and I really wanted that to be reflected in my music.
+ - I just think you would never kill and cut up a human to wear so why do it to animals? I just think it’s horrible, I would never wear fur, although I guess if it was a really vintage piece you might just get away with it.
+ - I don’t really like wearing bikinis. And if you don’t either, don’t make yourself.
+ - Sometimes it’s other people’s voices you have to shut out.
+ - Women are so unforgiving of themselves. We don’t recognize our own beauty because we’re too busy comparing ourselves to other people.
+ - I’m giving everyone involved 24 hours to make it right or the world will hear how I really feel.
+ - I didn’t know that anything was wrong with me until the media got involved in my life.
+ - I hate the word gothic but I would like to try doing something like that. A gothic sound, not rock, but gothic. There’s a difference.
+ - I guess I have friends around me but when you’re paying them can they ever really be true friends?
+ - I go on the Internet and look at old pictures of myself, because it is the best reminder of how far I have come and where I do not want to be.
+
+37 quotes

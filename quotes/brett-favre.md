@@ -1,0 +1,81 @@
+ - As you get older, you look at things differently.
+ - Injuries obviously change the way you approach the game.
+ - Nothing, for the most part, surprises me anymore.
+ - You’re only as good as your last pass.
+ - I’ve seen a lot of people jump on and off my bandwagon.
+ - Every day is not perfect.
+ - Maybe I’m old-school, but I always thought you honor a contract.
+ - If I’m going to play, it’s going to be 100-percent commitment.
+ - Every day is not perfect. You have your bad days and good days just like anyone else. You do not want to talk to people sometimes. It is normal.
+ - Life deals you a lot lessons, some people learn from it, some people don’t.
+ - If I were to make a list, I would include the interceptions, the sacks, the really painful losses. Those times when I’ve been down, when I’ve been kicked around, I hold on to those. In a way those are the best times I’ve ever had, because that’s when I’ve found out who I am. And what I want to be.
+ - There are those people who are in your corner no matter what, you can’t do any wrong, even when you do wrong. And then there are those people that no matter what you do they are going to dislike you and that’s not going to change.
+ - Every game I’ve ever played, regardless if it was pre-season or Super Bowl, meant the same to me, and I laid it all on the line.
+ - I don’t worry anymore about where’s the big hangout Tuesday night, Friday. Couldn’t tell you and no one comes to me for advice anymore in those areas anymore, so real boring I would say.
+ - I’d like to think, eight years ago, I was pretty humble and modest. But I think, with each year, you get more modest, more humble, more appreciative. The off the field tragedies put things in better perspective, but life happens to everybody, and I think we all just try to do the best we can.
+ - I’m thankful for all the things that this job has given me and my family. But probably the thing that I am most proud of throughout my career is that, not only myself, but my family and the people around me have just been regular people, which we are.
+ - Yip cabbage on three!
+ - Even in past years, when I wasn’t in the Super Bowl, I wished I was.
+ - I knew I needed surgery and I didn’t want to have it and I ended up having it.
+ - It’s all about chemistry. Talent alone won’t get it done.
+ - You have to believe you’re great. You have to have an air about you. My success wasn’t because I was a great talent, but because I wanted it more than anybody else. Every minute I step on that field, I want to prove I’m the best player in the league.
+ - I don’t really care what’s going on I just care about getting my job done the best that I can possibly do and deal with the other things in my life that take a lot of time and a lot of thought.
+ - It’s not so much about killing an animal, it’s being at peace and you don’t have to worry about all the other things that go on. That’s a couple of hours a week that you get to escape but it’s nice to do that.
+ - You’re never guaranteed about next year. People ask what you think of next season, you have to seize the opportunities when they’re in front of you.
+ - I’ve always been a Packer, always will be a Packer.
+ - I can’t believe I survived, not only my life, but I am still playing football ’cause half of those eight or nine years I don’t even remember.
+ - I’m proud of everything I’ve done.
+ - I know I can still play, but it’s like I told my wife, I’m just tired mentally. I’m just tired.
+ - In the NFL a lot of times everyone gets caught up in the business side of things. For them it’s all about money and it really leaves a sour taste in your mouth.
+ - I think my stubbornness, hardheadedness and stupidity is what has allowed me to play for 20 years.
+ - You can lose a game but, I see guys every week including myself, you lose a game, it’s a tough loss, you’re down, two weeks later you forgot about it. You know it’s amazing how down you were, but all of the sudden you’re like it never happened.
+ - Well family is obviously the most important. There was a time when I thought football was the most important.
+ - Sure, sometimes guys pass you up in salary, and maybe it’s a lesser player, but it’s all based on what a team has as far as value in that person.
+ - Just, you never know what the next day is going to bring. That goes for football, goes for off the field, and I gave up a long time ago trying to predict the future and trying to deal with things I couldn’t deal with.
+ - I grew up a Saints fan, an hour from the Superdome.
+ - The party now is having my kids laugh and my wife laugh and my teammates. I want them to see me have fun and put it in a different way.
+ - My job is to throw passes and be a leader.
+ - The town, the team, it’s a family. That has helped. For some people who have had to deal with some of the problems I have had to deal with don’t have football as an out.
+ - You know, I’ve had my ups and downs.
+ - Sometimes you get caught up in what’s going on around you. The reality is that you are just a regular person. At some point, the career will be over, the bright lights turn off. That can come back to haunt you if you’re not just a regular guy.
+ - I’ve always shown up, always been prepared. Everything I do comes back to the example I want to set.
+ - I know I’m not doing myself any favors by continuing to play.
+ - I think every player should think that he’s a difference maker.
+ - It’s been six years since I have had a drink and I have two girls, and my priorities are a lot different now and I just can’t believe I was that guy. And I would not go back, I would not trade the way I am now for anything.
+ - The way I played the game, the way I live my life, is very emotional.
+ - In this case, I realize that, unlike when I was 22 years old, I realize now that football will not go on forever, it is a small part of your life.
+ - That’s kind of how I approach life and football; why dwell on something that’s hasn’t happened.
+ - I’m pretty boring really.
+ - Well I would say that we’re regular people first of all and we’re normal and it’s obvious by some of the things that have happened just because our name is famous we’re not immune to tragedy.
+ - God, he deals you blows that at sometimes you think you can’t handle and in the last year there have been things that we thought we couldn’t handle but we’ve dealt with it up until this point.
+ - If I can change than anyone can change. I promise you that.
+ - Because after my first year I had a lot of success, took everybody by storm, came back the next year thought it was easy and didn’t have near the season I had the previous year. It was kind of a wake-up call. And so, life goes on.
+ - I love doing what I do.
+ - Wisconsin’s a special place.
+ - There was a time when all I cared about was the next game, the next party, the next tee time.
+ - I think people have all faced decisions at times where you never know.
+ - I consider myself more of a loner now and I think when you get older, especially in this game, and just talking with other players who have come and gone, I see what they were saying when I was a young guy in the locker room.
+ - With each game I play, each season I play, everyone would agree with me, I’m running out of chances.
+ - I didn’t know what to expect coming into this year. There were a lot of question marks, and I think that’s obvious now. Can we overcome it? Time will tell.
+ - I’d write over and over, ‘I will not throw into coverage.’
+ - Well even before she was diagnosed with the cancer, I would have said that she was a lot tougher than me and most guys would probably say that about their wives and it’s probably true in most cases.
+ - It’s been a wonderful career, I couldn’t ask for anything more.
+ - I consider adversity being good sometimes you know.
+ - I really believe this team has a lot of potential – whether it’s this year or in years to come, I don’t know.
+ - You know I used to listen to music a lot more.
+ - In my situation, unlike some players who retire because they have no choice – either teams don’t want them or injuries have caused them to retire, and they just can’t do it – for me, I really had never thought I would give out mentally before I gave out physically, but I think that was the case.
+ - Most talented players don’t always succeed. Some don’t even make the team. It’s more what’s inside.
+ - The good teams are good at what they do.
+ - I don’t need to have a retirement, retire your jersey, all that stuff to solidify my career.
+ - In spite of reports about playing with various teams, I’m enjoying retirement with my family and have no plans to play football.
+ - Obviously talent gets you to a certain point, but it’s what you do with it, how you handle.
+ - There wasn’t a better teacher or mentor out there than Reggie White, on or off the field.
+ - I accomplished so many things, so early in my career.
+ - I may be a successful football player, but I feel like such a failure.
+ - I think the 16 years that I spent in Green Bay speaks for itself.
+ - It’s fun leading this offense. I don’t think we’ve hit our peak.
+ - If you grew up in a household with a football coach who looks like a drill sergeant, you would think you would be tough.
+ - I know it’s not a one man team win or lose.
+ - My wife, she still gives me a hard time, and says I hunt too much or I like to play golf too much. And she’s probably right, but it sure beats some of the things I used to do.
+
+79 quotes

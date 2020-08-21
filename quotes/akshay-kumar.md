@@ -1,0 +1,34 @@
+ - I do not hold God ransom to my success; whatever is his will is my way. I stand by moments; I do not stand by time.
+ - When you taste super-success after tasting super-failure, there is huge relief.
+ - I do not stick to rules when cooking. I rely on my imagination.
+ - I’m not hungry for success. I am only hungry for good work, and that is how it is with most superstars. Every day I tell myself how fortunate I am to be where I am.
+ - I enjoy the risk of bungee-jumping. I used to pay money to do it. Now, it’s the opposite. I get paid to do action.
+ - Work is work, but family is for life. That’s what really matters to me.
+ - I have never believed in being part of any one group or camp.
+ - I could break bricks with my hands when I was 12.
+ - It takes two hands to clap! I cannot be solely blamed for what happened in my relationships! If things soured, it happened because of both parties. Not just me!
+ - I’m a realist. Where I come from, ‘phenomenons’ don’t exist. I’m from a land where people make mistakes and try again, harder, faster; where negativity is not an option.
+ - I’m glad that I’m being acclaimed as an actor. Today, when my hard work has paid off I can chill out about it.
+ - My love for sports will never die. I love martial arts and I want to promote it in whichever way I can. I am a fighter first, then an actor.
+ - I savour the adulation and love I have been getting from my fans and the blessings of elders in my family. Fourteen years have given me a lot and I can’t thank God and the industry enough.
+ - The day I take either my body or my work for granted will be the day you hear that I’ve smashed every inch of myself to pieces.
+ - Playing a prisoner of war trapped in Pakistan for three years was a novelty for me. We made sure that we didn’t talk about India versus Pakistan but about the emotions of people on both sides and how terrorism affects us all.
+ - On every birthday, I ask my wife, ‘What would you like this year?’ and her instant reply is, ‘Diamonds! Diamonds! Diamonds!’ I’m always living in hope that one day she’ll say she just wants me!
+ - IIFA is always involved in charity, and that’s why it’s a great thing that I am a part of IIFA and will continue to work along with them.
+ - It feels wonderful to be go back to the 1940s and recreate the whole era through my clothes, voice and body language. I am tired of playing the larger-than-life hero.
+ - I’d never do a film that would hurt anyone’s sentiments, be it Indian or not.
+ - Each one of us has his own place in the industry. I’ve been able to prove that you don’t necessarily have to be a Khan to be successful!
+ - For a guy who used to steal watches on the streets of Chandni Chowk for kicks, I surely think my success at the age of 22 was pretty early!
+ - I see the friends I made over the years who have become family today, people I became acquainted with who have achieved so much in their lives. They taught me something with each meeting.
+ - I always check my harness before I do a stunt; I test-drive the cars I have to race or explode; I’m present at all pyrotechnical rehearsals; and I walk through everything step-by-step. No man should put their life in someone else’s hands unless they have covered their own safety from all angles.
+ - Kareena Kapoor is my lucky charm.
+ - I’ll do at least one action film every year because of my fans. This is my promise to them.
+ - Bachchan has been in the film industry over 35 years and he is the real king. There are many who are around for 15-20 years and like to call themselves king. There is only one king and he is Amitabh Bachchan.
+ - I’m an athletic actor. I’m known for my action; I’m a guy who does my own stunts on screen.
+ - Linen is good because it looks trendy and at the same time it’s very comfotable.
+ - It drives me nuts how I rely on my wife for everything. I can’t imagine a day without her!
+ - I’m glad that my films have been consistently faring well rather than one stray Friday!
+ - I have finally become a husband and I am genuinely enjoying every moment of it.
+ - Why bother with Google when I have a wife who knows everything about everything!
+
+32 quotes

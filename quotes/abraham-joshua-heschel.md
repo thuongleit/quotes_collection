@@ -1,0 +1,129 @@
+ - When I was young, I admired clever people. Now that I am old, I admire kind people.
+ - Indifference to evil is more insidious than evil itself. It is a silent justification affording evil acceptability in society.
+ - We are closer to God when we are asking questions than when we think we have the answers.
+ - Faith like Job’s cannot be shaken becasue it is the result of having been shaken.
+ - Self-respect is the root of discipline: The sense of dignity grows with the ability to say no to oneself.
+ - Prayer cannot bring water to parched fields, or mend a broken bridge, or rebuild a ruined city; but prayer can water an arid soul, mend a broken heart, and rebuild a weakened will.
+ - When I marched with Martin Luther King in Selma, I felt my legs were praying.
+ - The Sabbath is not for the sake of the weekdays; the weekdays are for the sake of Sabbath. It is not an interlude but the climax of living.
+ - Racism is man’s gravest threat to man – the maximum of hatred for a minimum of reason.
+ - It is gratefulness which makes the soul great.
+ - There is no specialized art of prayer. All of life must be a training to pray. We pray the way we live.
+ - Awe enables us to see in the world intimations of the divine, to sense in small things the beginning of infinite significance, to sense the ultimate in the common and the simple, to feel in the rush of the passing the stillness of the eternal.
+ - Self-respect is the fruit of discipline.
+ - Speech has power. Words do not fade. What starts out as a sound, ends in a deed.
+ - The task of life is to face sacred moments.
+ - Our concern is not how to worship in the catacombs but how to remain human in the skyscrapers.
+ - Solitude is a necessary protest to the incursions and the false alarms of society’s hysteria, a period of cure and recovery.
+ - The hour calls for moral grandeur and spiritual audacity.
+ - Wonder, or radical amazement, is a way of going beyond what is given in thing and thought, refusing to take anything for granted, to regard anything as final. It is our honest response to the grandeur and mystery of reality our confrontation with that which transcends the given.
+ - Knowledge-like the sky- is never private property. No teacher has a right to withhold it from anyone who asks for it. Teaching is the art of sharing.
+ - In any free society where terrible wrongs exist, some are guilty – all are responsible.
+ - The course of life is unpredictable no one can write his autobiography in advance.
+ - I did not ask for success; I asked for wonder.
+ - Just to be is a blessing. Just to live is holy.
+ - You must build your life as if it were a work of art.
+ - For many of us the march from Selma to Montgomery was about protest and prayer. Legs are not lips and walking is not kneeling. And yet our legs uttered songs. Even without words, our march was worship. I felt my legs were praying.
+ - The primary purpose of prayer is not to make requests. The primary purpose is to praise, to sing, to chant. Because the essence of prayer is a song, and man cannot live without a song. Prayer may not save us. But prayer may make us worthy of being saved.
+ - Things, when magnified, are forgeries of happiness.
+ - It is of the essence of virtue that the good is not to be done for the sake of a reward.
+ - A religious man is a person who holds God and man in one thought at one time, at all times, who suffers harm done to others, whose greatest passion is compassion, whose greatest strength is love and defiance of despair.
+ - As civilization advances, the sense of wonder declines. Such decline is an alarming symptom of our state of mind. Mankind will not perish for want of information; but only for want of appreciation.
+ - To become aware of the ineffable is to part company with words.
+ - God is not nice. God is not an uncle. God is an earthquake.
+ - The beginning of our happiness lies in the understanding that life without wonder is not worth living.
+ - Forfeit your sense of awe, let your conceit diminish your ability to revere, and the universe becomes a market place for you.
+ - Few are guilty, but all are responsible.
+ - Faith is not the clinging to a shrine but an endless pilgrimage of the heart.
+ - Everything is phenomenal; everything is incredible; never treat life casually. To be spiritual is to be amazed.
+ - The issue of prayer is not prayer; the issue of prayer is God. One cannot pray unless he has faith in his own ability to accost the infinite, merciful, eternal God.
+ - When religion speaks only in the name of authority rather than with the voice of compassion, its message becomes meaningless.
+ - To pray is to take notice of the wonder, to regain a sense of the mystery that animates all beings, the divine margin in all attainments.
+ - Man’s sin is in his failure to live what he is. Being the master of the earth, man forgets that he is the servant of God.
+ - Prayer is not a stratagem for occasional use, a refuge to resort to now and then. It is rather like an established residence for the innermost self. All things have a home: the bird has a nest, the fox has a hole, the bee has a hive. A soul without prayer is a soul without a home.
+ - The work on weekdays and the rest on the seventh day are correlated. The Sabbath is the inspirer, the other days the inspired.
+ - It is dangerous to take human freedom for granted, to regard it as a prerogative rather than as an obligation, as an ultimate fact rather than as an ultimate goal. It is the beginning of wisdom to be amazed at the fact of our being free.
+ - Celebration is a confrontation, giving attention to the transcendent meaning of one’s actions.
+ - How embarrassing for man to be the greatest miracle on earth and not to understand it!
+ - The true meaning of existence is disclosed in moments of living in the presence of God.
+ - The awe of God is wisdom.
+ - We worship God through our questions.
+ - The road to the sacred leads through the secular.
+ - To be is to stand for.
+ - Prayer is our humble answer to the inconceivable surprise of living.
+ - There is happiness in the love of labor, there is misery in the love of gain.
+ - Life without commitment is not worth living.
+ - Wonder or radical amazement is the chief characteristic of the religious man’s attitude toward history and nature.
+ - A prophet’s true greatness is his ability to hold God and man in a single thought.
+ - God is everywhere or nowhere, the father of all people or of none, concerned about everything or nothing. Only in His presence shall we learn that the glory of humankind is not in its will to power but in its power of compassion.
+ - We can never sneer at the stars, mock the dawn, or scoff at the totality of being.
+ - Prayer begins at the edge of emptiness.
+ - Spiritual life begins to decay when we fail to sense the grandeur of what is eternal in time.
+ - The man who has not suffered – what does he know anyway?
+ - I am commanded therefore I am.
+ - There is a realm of time where the goal is not to have but to be, not to own but to give, not to control but to share, not to subdue but to be in accord. Life goes wrong when the control of space, the acquisition of things of space, becomes our sole concern.
+ - Worship is a way of seeing the world in the light of God.
+ - The problem to be faced is: how to combine loyalty to one’s own tradition with reverence for different traditions.
+ - The supremacy of expediency is being refuted by time and truth. Time is an essential dimension of existence defiant of man’s power, and truth reigns in supreme majesty, unrivaled, inimitable, and can never be defeated.
+ - A test of a people is how it behaves toward the old. It is easy to love children. Even tyrants and dictators make a point of being fond of children. But the affection and care for the old, the incurable, the helpless are the true gold mines of a culture.
+ - We do not step out of the world when we pray; we merely see the world in a different setting. The self is not the hub but the spoke of the revolving wheel. It is precisely the function of prayer to shift the center of living from self-consciousness to self-surrender.
+ - This is one of the goals of the Jewish way of living: to experience commonplace deeds as spiritual adventures, to feel the hidden love and wisdom in all things.
+ - The tragedy of religion is partly due to its isolation from life, as if God could be segregated.
+ - In prayer we shift the center of living from self-consciousness to self-surrender.
+ - Pagans exalt sacred things, the Prophets extol sacred deeds.
+ - Proximity to the crowd, to the majority view, spells the death of creativity. For a soul can create only when alone, and some are chosen for the flowering that takes place in the dark avenues of night.
+ - Awareness of the divine begins with wonder.
+ - Man is a messenger who forgot the message.
+ - We can all do our share to redeem the world in spite of all absurdities and all frustrations and all disappointments.
+ - In the midst of our applauding the feats of civilization, the Bible flings itself like a knife slashing our complacency; remind us that God, too, has a voice in history.
+ - The essence of man is not what he is, but in what he is able to be.
+ - The worship of reason is arrogance and betrays a lack of intelligence. The rejection of reason is cowardice and betrays a lack of faith.
+ - Wise criticism always begins with self-criticism.
+ - Religion has become an impersonal affair, an institutional loyalty. It survives on the level of activities rather than in the stillness of commitment.
+ - Every little deed counts.
+ - Much of what the Bible demands can be comprised in one imperative: Remember!
+ - The test of love is in how one relates not to saints and scholars but to rascals.
+ - We must first peer into the darkness, feel strangled and entombed in the hopelessness of living without God, before we are ready to feel the presence of His living light.
+ - Faith is an awareness of divine mutuality and companionship, a form of communion between God and man. It is not a psychical quality, something that exists in the mind only, but a force from the beyond.
+ - To serve does not mean to surrender but to share.
+ - All action is vicarious faith.
+ - God is not a hypothesis derived from logical assumptions, but an immediate insight, self-evident as light. He is not something to be sought in the darkness with the light of reason. He is the light.
+ - We worry a great deal about the problem of church and state. Now what about the church and God? Sometimes there seems to be a greater separation between the church and God than between the church and state.
+ - Acceptance is appreciation, and the high value of appreciation is such that to appreciate appreciation seems to be the fundamental prerequisite for survival. Mankind will not die for lack of information; it may perish for lack of appreciation.
+ - I have one talent, and that is the capacity to be tremendously surprised, surprised at life, at ideas. This is to me the supreme Hasidic imperative: Don’t be old. Don’t be stale.
+ - The idea of dependence is an explanation, whereas self-sufficiency is an unprecedented, nonanalogous concept in terms of what we know about life within nature. Is not self-sufficiency itself insufficient to explain self-sufficiency?
+ - Ultimately there is no power to narcissistic, self-indulgent thinking. Authentic thinking originates with an encounter with the world.
+ - There is a built-in sense of indebtedness in the consciousness of man, an awareness of owing gratitude, or being caled upon at certain moments to reciprocate, to answer, to live in a way which is compatible with the grandeur and mystery of living.
+ - To pray is to dream in league with God, to envision His holy visions.
+ - There are few ideas in the world of thought which contain so much spiritual power as the idea of the Sabbath. Aeons hence, when of many of our cherished theories only shreds will remain, that cosmic tapestry will continue to shine.
+ - Human being is both being in the world and living in the world. Living involves responsible understanding of one’s role in relation to all other beings. For living is not being in itself, but living of the world, affecting, exploiting, consuming, comprehending, deriving, depriving.
+ - Those of faith who plant sacred thoughts in the uplands of time, the secret gardeners of the Lord in mankind’s desolate hopes, may slacken and tarry but rarely betray their vocation.
+ - Only those will apprehend religion who can probe its depth, who can combine intuition and love with the rigor of method.
+ - He who is satisfied has never truly craved, and he who craves for the light of God neglects his ease for ardor.
+ - The issue of prayer is not prayer; the issue of prayer is God.
+ - Philosophy, to be relevant, must offer us a wisdom to live by.
+ - When we pray, we bring G-d into the world.
+ - All that is left is to us is our being horrified at the loss of our sense of horror.
+ - To sing means to sense and to affirm that the spirit is real and that its glory is present.
+ - All events are secretly interrelated; the sweep of all we are doing reaches beyond the horizon of our comprehension.
+ - The higher goal of spiritual living is not to amass a wealth of information, but to face sacred moments.
+ - Faith opens our hearts for the entrance of the holy. It is almost as though God were thinking for us.
+ - We may not know whether our understanding is correct, or whether our sentiments are noble, but the air of the day surrounds us like spring which spreads over the land without our aid or notice.
+ - In a controversy, the instant we feel anger, we have already ceased striving for truth and have begun striving for ourselves.
+ - Then comes the insight that All is God. One still realizes that the world is as it was, but it does not matter, it does not affect one’s faith.
+ - Being is transcended by a concern for being. Our perplexity will not be solved by relating human existence to a timeless, subpersonal abstraction which we call essence. We can do justice to human being only by relating it to the transcendent care for being.
+ - It is not enough for me to ask question; I want to know how to answer the one question that seems to encompass everything I face: What am I here for?
+ - God is either of no importance, or of supreme importance.
+ - To be spiritual is to be amazed.
+ - Being points beyond itself. Accustomed to think in terms of space, the expression “being points beyond itself” may be taken to denote a higher point in space. What is meant, however, is a higher category than being: the power of maintaining being.
+ - The riches of the soul are stored up in its memory. this is the test of character, not whether a man follows the daily fashion, but whether the past is alive in his present.
+ - A soul can create only when alone...
+ - There are no two hours alike. Every hour is unique and the only one given at the moment, exclusive and endlessly precious. Judaism teaches us to be attached to holiness in time; to learn how to consecrate sanctuaries that emerge from the magnificent stream of a year.
+ - Self-sufficiency, independence, the capacity to stand apart, to differ, to resist, and to defy-all are modes of being human.
+ - Wonder rather than doubt is the root of all knowledge.
+ - Never once in my life did I ask God for success or wisdom or power or fame. I asked for wonder, and he gave it to me.
+ - Sometimes we wish the world could cry and tell us about that which made it pregnant with fear-filling grandeur. Sometimes we wish our own heart would speak of that which made it heavy with wonder.
+ - Faith is something that comes out of the soul. It is not an information that is absorbed but an attitude, existing prior to the formulation of any creed.
+ - To abstain completely from all enjoyments may be easy. Yet to enjoy life and retain spiritual integrity – there is the challenge.
+
+127 quotes

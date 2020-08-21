@@ -1,0 +1,47 @@
+ - You can’t go wrong with fish and chips.
+ - The way things are does not determine the way they ought to be.
+ - Whether you’re a libertarian liberal or a more egalitarian liberal, the idea is that justice means being non-judgmental with respect to the preferences people bring to public life.
+ - The simplest way of understanding justice is giving people what they deserve. This idea goes back to Aristotle. The real difficulty begins with figuring out who deserves what and why.
+ - A better way to mutual respect is to engage directly with the moral convictions citizens bring to public life, rather than to require that people leave their deepest moral convictions outside politics before they enter.
+ - I find this in all these places I’ve been travelling – from India to China, to Japan and Europe and to Brazil – there is a frustration with the terms of public discourse, with a kind of absence of discussion of questions of justice and ethics and of values.
+ - My argument is not that we must never intervene in nature. My argument is that there is a moral difference between intervention for the sake of health, to cure or prevent disease, and intervention for the sake of achieving a competitive edge for our kids in a consumer society.
+ - What I really want for my children is that they be loved and that they be happy and that they lead a good life.
+ - I grew up in a Jewish family, and we have raised our children in a Jewish tradition. Religion gives a framework for moral enquiry in young minds and points us to questions beyond the material.
+ - Very often when we aim at the best, or what we may think is the best for our children, we aim really at lesser things, such as getting into a certain college.
+ - A market economy is a tool – a valuable and effective tool – for organizing productive activity. A market society is a way of life in which market values seep into every aspect of human endeavour. It’s a place where social relations are made over in the image of the market.
+ - Markets are useful instruments for organizing productive activity. But unless we want to let the market rewrite the norms that govern social institutions, we need a public debate about the moral limits of markets.
+ - The most fateful change that unfolded during the past three decades was not an increase in greed. It was the expansion of markets, and of market values, into spheres of life where they don’t belong.
+ - To argue about justice is unavoidably to argue about virtues, about substantive moral and even spiritual questions.
+ - If we go too far down the road of choosing the genetic traits of children, my worry is that parenting will be less a kind of school for humility than it should be, and we will become too accustomed to regarding children as instruments of our ambition and of our desires.
+ - Democracy does not require perfect equality, but it does require that citizens share a common life. What matters is that people of different backgrounds and social positions encounter one another, and bump up against one another, in the course of ordinary life.
+ - Parenthood is a school for humility. We can’t choose the precise traits of our children, and that is morally important. It teaches us what William May, a theologian whom I greatly admire, calls “an openness to the unbidden.”
+ - The relief of suffering is a great good. The curing of illness and disease – these are great human goods. This is the mission of medicine.
+ - Democracy does not require perfect equality, but it does require that citizens share in a common life.
+ - It’s possible to make sense of what’s morally at stake in an appreciation of the gift of life, or the gift of a child, without necessarily presupposing that there is a giver. What matters is that the gift – in this case, the child – not be wholly our own doing, our own product.
+ - Some parents expend great efforts to get their kids into the right nursery school or the right preschool, with the thought that that will set them on the path to success, to competitive success especially.
+ - One can imagine a kind of hormonal arms race or genetic arms race, whether it’s to do with height or IQ, conceivably, in the future. So it’s limitless, and that’s another of the features that sets it apart from medical intervention.
+ - I am trying to get at the moral arguments and the ethical status of various attempts at enhancement, or genetic engineering, or the bid for designer children. But there are implications for society at large.
+ - Aiming at health, restoring health – that is a goal that is both morally important and limited, because it aims at the restoration of normal human functioning, which is an important part of human flourishing.
+ - The norm of unconditional parental love, I think, depends on the fact that we don’t pick and choose the traits of our children in the way that we pick and choose the features of a car we might order, or a consumer good.
+ - I’m a supporter of embryonic stem cell research. I do think there are very important moral and also religious questions at stake in the debate over embryonic stem cell research.
+ - I think part of being a parent, to love one’s child, is to accept them as they come – not to see them as instruments of our ambition or as creatures to be molded, as if they were themselves commodities.
+ - One of the ways in which parenting is a learning experience and an opportunity for moral growth is that we learn as parents that we don’t choose the kind of child that we have.
+ - It is true that the Jewish tradition emphasizes the moral mandate to save life. It also has a different position from the Catholic Church on the moral status of the embryo. It has a more developmental view of when human life, in the sense of personhood, begins than does the Catholic Church.
+ - One of the appeals of markets, as a public philosophy, is they seem to spare us the need to engage in public arguments about the meaning of goods. So markets seem to enable us to be non-judgmental about values. But I think that’s a mistake.
+ - What intrigued me most was not the technology as such but the questions about the human goods, the fundamental human values and virtues that are raised by debates over biotechnology.
+ - In most of our lives, we are accustomed to aiming at mastery and control and dominion- – over nature, over our lives, over our jobs, over our careers, over the goods that we buy.
+ - I do not argue that nature is sacrosanct in the sense that we must never tamper with nature. That would disempower, really, all of medicine. That would mean that we can’t combat dread diseases – malaria, polio, all of which are given by nature, if one thinks about it.
+ - I think too often in our society parents, who may have good impulses, overreach and try to mold and shape and direct their child.
+ - There are some religious traditions that view human beings as participants in creation. This is true of the Jewish tradition, from which I come.
+ - I think very often when we think we are aiming at the best for our children, what we are really doing is trying to position them for competitive success in an intensely driven kind of society. I’m not sure that always leads to the good life or to happiness.
+ - I do think it is very important that the religious communities do try to bring their teachings and their insights to bear on the stem cell debate and on the debate about genetic engineering.
+ - I have a broad but not an expert or scholarly background in the Jewish tradition. I’ve tried to learn what I can from childhood, but I am not an expert on Jewish teachings.
+ - There is a tendency to think that if we engage too directly with moral questions in politics, that’s a recipe for disagreement, and for that matter, a recipe for intolerance and coercion.
+ - I almost became a political journalist, having worked as a reporter at the time of Watergate. The proximity to those events motivated me, when I wound up doing philosophy, to try to use it to move the public debate.
+ - Aiming at giving our kids a competitive edge in a consumer society – that, in principle, is a goal that is limitless.
+ - There are really exercises in a kind of consumerist ethic that I think don’t have the same moral weight as medicine or health.
+ - The majority of American states had laws by the 1930s that allowed for forced sterilization of socially undesirable categories of people, so-called feeble-minded, for example, and with Hitler culminating in genocide.
+ - I think it would be a great tragedy to devote medical resources and genetic technological breakthroughs to purposes that are not to do with health or medicine, but instead are to do with satisfying the desires that are created by the consumer society.
+ - When I arrived at Harvard, I wanted to design a course in political theory that would have interested me, back when I was started out, in a way that the standard things didn’t.
+
+45 quotes

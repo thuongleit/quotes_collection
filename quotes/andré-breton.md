@@ -1,0 +1,67 @@
+ - Love is when you meet someone who tells you something new about yourself.
+ - My wish is that you may be loved to the point of madness.
+ - Surrealism is based on the belief in the omnipotence of dreams, in the undirected play of thought.
+ - Of all those arts in which the wise excel, Nature’s chief masterpiece is writing well.
+ - Leave everything. Leave Dada. Leave your wife. Leave your mistress. Leave your hopes and fears. Leave your children in the woods. Leave the substance for the shadow. Leave your easy life, leave what you are given for the future. Set off on the roads.
+ - Tell me whom you haunt and I’ll tell you who you are.
+ - Life’s greatest gift is the freedom it leaves you to step out of it whenever you choose.
+ - It was in the black mirror of anarchism that surrealism first recognised itself.
+ - Trust in the inexhaustible character of the murmur.
+ - All my life, my heart has yearned for a thing I cannot name.
+ - At the word witch, we imagine the horrible old crones from Macbeth. But the cruel trials witches suffered teach us the opposite. Many perished precisely because they were young and beautiful.
+ - Words make love with one another.
+ - The art of Frida Kahlo is a ribbon around a bomb.
+ - The purest surrealist act is walking into a crowd with a loaded gun and firing into it randomly.
+ - Nothing that surrounds us is object, all is subject.
+ - I love you on the surface of seas Red like the egg when it is green.
+ - If I place love above everything, it is because for me it is the most desperate, the most despairing state of affairs imaginable.
+ - The mind which plunges into Surrealism, relives with burning excitement the best part of childhood.
+ - Beauty will be convulsive or will not be at all.
+ - There are fairy stories to be written for adults. Stories that are still in a green state.
+ - The simplest Surrealist act consists of dashing down into the street, pistol in hand, and firing blindly, as fast as you can pull the trigger, into the crowd.
+ - Dada is a state of mind.
+ - The man who cannot visualize a horse galloping on a tomato is an idiot.
+ - The clouds were disappearing rapidly, leaving the stars to die. The night dried up.
+ - May night continue to fall upon the orchestra.
+ - To reduce the imagination to a state of slavery – even though it would mean the elimination of what is commonly called happiness – is to betray all sense of absolute justice within oneself. Imagination alone offers me some intimation of what can be.
+ - The imaginary is what tends to become real.
+ - Who am I? If this once I were to rely on a proverb, then perhaps everything would amount to knowing whom I ‘haunt.’
+ - Objects seen in dreams should be manufactured and put on sale.
+ - The simplest act of surrealism is to walk out into the street, gun in hand, and shoot at random.
+ - Words have finished flirting. Now they are making love.
+ - Every time you date someone with an issue that you have to work to ignore, you’re settling.
+ - I am the soul in limbo.
+ - We all love conflagrations. When the sky changes color, it is a dead man’s passing.
+ - I believe in the future resolution of these two states, dream and reality, which are seemingly so contradictory, into a kind of absolute reality, a surreality, if one may so speak.
+ - Surrealism will usher you into death, which is a secret society. It will glove your hand, burying therein the profound M with which the word Memory begins.
+ - I could spend my whole life prying loose the secrets of the insane. These people are honest to a fault, and their naivety has no peer but my own.
+ - A work of art has value only if tremors of the future run through it...
+ - Perhaps I am doomed to retrace my steps under the illusion that I am exploring, doomed to try and learn what I should simply recognize, learning a mere fraction of what I have forgotten.
+ - It is impossible for me to envisage a picture as being other than a window, and why my first concern is then to know what it looks out on.
+ - There is no use being alive if one must work. The event from which each of us is entitled to expect the revelation of his own life’s meaning – that event which I may not yet have found, but on whose path I seek myself – is not earned by work.
+ - Keep reminding yourself that literature is one of the saddest roads that leads to everything.
+ - There is By my leaning over the precipice Of your presence and your absence in hopeless fusion My finding the secret Of loving you Always for the first time.
+ - If surrealism ever comes to adopt a particular line of moral conduct, it has only to accept the discipline that Picasso has accepted and will continue to accept.
+ - Artistic imagination must remain free. It is by definition free from any fidelity to circumstances, especially to the intoxicating circumstances of history.
+ - The important thing is that man is lost in time, in the moment that immediately precedes him – which only attests, by reflection, to the fact that he is lost in the moment that follows.
+ - What is admirable about the fantastic is that there is no longer anything fantastic: there is only the real.
+ - When will the arbitrary be granted the place it deserves in the formation of works and ideas?
+ - No one who has lived even for a fleeting moment for something other than life in its conventional sense and has experienced the exaltation that this feeling produces can then renounce his new freedom so easily.
+ - No rules exist, and examples are simply life-savers answering the appeals of rules making vain attempts to exist.
+ - Nothing retains less of desire in art, in science, than this will to industry, booty, possession.
+ - I insist on knowing the names, on being interested only in books left ajar, like doors; I will not go looking for keys.
+ - It is living and ceasing to live that are imaginary solutions. Existence is elsewhere.
+ - For me, the single word “God” suggests everything that is slippery, shady, squalid, foul, and grotesque.
+ - How small these rescued tides appear! Earthly delights flow in torrents. Each object offers paradise.
+ - It will in the end, be admitted that everything, in effect is an image and that the least object which has no symbolic role assigned to it is capable of standing for absolutely anything.
+ - One can understand why Surrealism was not afraid to make for itself a tenet of total revolt, complete insubordination, of sabotage according to rule, and why it still expects nothing save from violence.
+ - I believe in the pure Surrealist joy of the man who, forewarned that all others before him have failed, refused to admit defeat, sets off from watever point he chooses, along any other pat save a reasonable one, and arrives wherever he can.
+ - Everything tends to make us believe that there exists a certain point of the mind at which life and death, the real and the imagined, past and future, the communicable and the incommunicable, high and low, cease to be perceived as contradictions.
+ - What one hides is worth neither more nor less than what one finds. And what one hides from oneself is worth neither more nor less than what one allows others to find.
+ - It is hard not to see into the future, faced with today’s blind architecture – a thousand times more stupid and more revolting than that of other ages. How bored we shall be inside!
+ - The mind, placed before any kind of difficulty, can find an ideal outlet in the absurd. Accommodation to the absurd readmits adults to the mysterious realm inhabited by children.
+ - It is more or less a given that nothing is less favorable to clairvoyance than the bright sun: physical light and mental light coexist on very poor terms.
+ - There is nothing with which it is so dangerous to take liberties as liberty itself.
+ - In the world we live in everything militates in favor of things that have not yet happened, of things that will never happen again.
+
+65 quotes

@@ -1,0 +1,27 @@
+ - I don’t expect everybody to like me. If you try to please everybody, by changing your position and your personality, every time you do that you lose a little bit of yourself.
+ - I was a prosecutor for many years, I’m a crime victim myself, and I’ve tried so many cases I don’t even know how many anymore.
+ - My father was a railroad man his entire life; 43 years for Southern Railroad.
+ - After I lost my fiance, it seemed like it would be better to always be alone than to risk being hurt again.
+ - I think all politicians lie.
+ - I don’t believe love goes away just because you’re buried in a casket.
+ - I have faith in the jury system.
+ - If you are moneyed or educated, you will get a different sentence than someone who is not.
+ - I always thought that was one of the single most important things a prosecutor could do is to seek justice for the families of victims.
+ - If I listened to my critics, I would still be at home under my bed right now.
+ - I really like my doctors. Some of them I love. I trust them.
+ - Well, of course I think people can be forgiven. But our justice system is not set up to dispense forgiveness. You can go to the local priest for that.
+ - I often get too emotionally involved in my cases.
+ - I think the truth is black-and-white .
+ - Court TV will always hold a special place in my heart, and I will always look back at my time there with great gratitude and affection.
+ - I majored in Shakespearean studies at a very tiny school in Georgia.
+ - I would have liked to personally have prosecuted Scott Peterson.
+ - It’s hard for me to believe someone could harm a child.
+ - I don’t like juries having the wool pulled over their eyes. I don’t think that’s what the Constitution is about.
+ - I was in the courtroom prosecuting violent felonies for well over a decade.
+ - I do not favor the gag order.
+ - I don’t really want to have any part of getting guilty people off.
+ - Believe it or not, there are people who want to be on juries.
+ - I have ‘To Kill A Mockingbird’ signed by Harper Lee. That is my prized possession.
+ - I was 47 when I got pregnant. I’d been trying for a couple of years and thought it would never happen.
+
+25 quotes

@@ -1,0 +1,50 @@
+ - I was listening to a lot of Norwegian black metal and death metal. There’s a great history to Norwegian black metal. That music is very dark and violent, but it’s also beautiful.
+ - It’s very scary to allow the world to see you.
+ - I usually get my lyrics when I let my mind wander, when you’re not really awake, but not yet fully asleep. I keep an open notebook by my bed and then just write whatever comes to me.
+ - For me, the dumbest rule is that you can’t chew gum in school. For some reason, chewing gum for me gets my brain going.
+ - I would go into periods of depression in my life, and I would feel so alone. I felt that there was no one who understood how I felt, either on TV or in music, and writing really helped me change what I thought and how I felt about myself.
+ - I have a sister and her name is Mimsy, like from ‘Alice in Wonderland,’ so we’ve got some strange names in our family.
+ - I think that fashion is very important for me and I think that it’s a wonderful means of self-expression.
+ - Clothing totally changes my perception of how I feel about myself depending on what it is that I’m wearing.
+ - In the past I’ve been very into the falling part, very into the swimming in the dark, deep emotional water. ‘Rampart’ I really went into it and it took me three times as long to get out of that depression as it did to just do the scenes. I had to learn to give it my all and then go home and laugh.
+ - Maybe you’re not perfect, but you’re willing to actually look at yourself and take some kind of accountability. That’s a change. It might not mean that you can turn everything around, but I think there’s something incredibly hopeful about that.
+ - You have to be really comfortable with yourself because people are going to tell you that you’re eyes are too brown or you’re this or you’re that. And if you’re not comfortable with yourself, you could get pretty freaked out.
+ - Surrounding myself with women of different backgrounds and on different paths and in different stages of their lives has become so valuable to me.
+ - I had a tough time fitting in, as I guess most kids do. I felt like school was kind of a grand opportunity to figure yourself out and to figure out what you wanted.
+ - I think that usually I’m just drawn to something that’s different from something that I’ve done previously. Whatever makes me feel something. Whatever makes me excited and connected to it.
+ - I think the interesting aspect of life is that you’re always sort of in the middle. You’re never the youngest and you’re never the oldest.
+ - I’m looking for something to laugh over. After long enough, your body just needs to keep the hydration. You can’t keep crying it out.
+ - I have a lot of different influences. Everything from Maroon 5, Gwen Stefani, The Clash, Kanye West – just a lot of different artists.
+ - Sometimes you pick up on the myth and it’s just an accident. I think it comes naturally out of people, and some people are aware of it.
+ - I think more things are becoming socially acceptable. I think that just by having more media, whether that’s TV or Internet, we’re able to see more things.
+ - I think it starts to feel really redundant when you start to do something the same way over and over again. I don’t think it’s good to become so dependent on a certain writing process.
+ - You know how it is when you put on your best friend’s shirt. You feel weird, even if everyone tells you that it looks good. You know that it isn’t right.
+ - There’s nothing I’d say that keeps me awake at night, but I think that when you’re working with a group of people that are so beyond talented that, every day, you wake up going, “All right, I gotta fight to stay at the same level as these people,” that’s what makes it fun.
+ - I know that I’m an actor and I guess I could kind of put on an act, but it takes so much more time to be someone you are not. I feel so much better just being comfortable with myself and hopefully girls will accept that.
+ - Sometimes I laugh with my parents, and sometimes I yell at them, and both are therapeutic.
+ - I was the type of person that would show a PowerPoint presentation about why I should do something versus crying and screaming over it.
+ - I’m so used to swimming with the piranhas. And they’re really not that bad.
+ - Instruments fascinate me because they’re completely awkward. When I picked up a guitar for the first time I was like, “What is this?” because it’s so foreign and unknown.
+ - I think that, especially as the kids are growing up, they have so much stuff going on in their own lives, they don’t really know how much they’re looking at their mom as the big problem.
+ - I wasn’t interested in going to the school dances. I wasn’t interested in going to the football games. What I wanted was to be in my room painting my walls and doing weird stuff. That’s what I wanted and I got to do what I wanted, so that, to me, is my high school experience.
+ - I think that I write about stuff that others don’t write about. I don’t have a bunch of love songs cuz I don’t really have much boy experience. I just write about what I am actually going through in my real life.
+ - I started acting in second grade – my first role was in the Thanksgiving play. I was the Indian chasing the turkey. All the other mom’s encouraged my mom to get me into acting after that.
+ - The experience of making a movie, you start to see it everywhere. It’s just this amazing mechanism that your brain does because it just so badly wants to be helpful and keep all the information that you need as accessible as possible.
+ - I only write about stuff I know. I don’t have a lot of experience with boys and stuff so I write a lot of songs about interesting and strange subjects that people wouldn’t write songs about.
+ - Singing is an incredible expression and something that is important to me, but where I feel comfortable with how much I reveal about myself is acting. I enjoy the characters, the costumes, the wigs and just being a chameleon.
+ - I didn’t go to prom – I was homeschooled.
+ - I was home-schooled ’cause I wanted to be an actor. I would spend all day watching movies, trying to get through calculus.
+ - I didn’t have a regular school experience and wanted a more abstract way of learning. I started exploring in lots of different creative ways. It gave me the opportunity to travel and play music, so it was good for me.
+ - I was 3 when I told my mom that I knew what my dharma was and that I wanted to be an actor.
+ - I feel like the movie is reminding people of who they are, which is what I think all great art does.
+ - There’s obviously something that feels very good about being with a new filmmaker who’s very excited, but I also think there’s something very comforting in a director who’s been around a few times. Both have their pros and cons.
+ - It’s really hard to see yourself and to recognize that you are a human being like everybody else. You just think everybody’s judging you.
+ - I’m learning with the older that I get that some feelings are just universal and that I’m not the only one who hates their hair or their life at times.
+ - I know how to have a conversation, but I’ve never done improv. I’ve never taken improv classes.
+ - I really love both acting and singing equally.
+ - Whenever you want something that you’re not going to get, suddenly the whiney 3-year-old comes out in you.
+ - There is beauty in living in a small space, as a child. Some aspects of it are so beautiful, and it’s so nice to not see the darkness. But then, in other ways, there’s a whole range of experience that’s being missed because of it.
+ - I was home-schooled, was always very close with my mom and was very straight-laced and square. I was never the rebellious one, and I never threw hissy fits.
+ - It’s hard when I get to the end of the movie and am held hostage and am supposed to be very upset and the funniest things I’ve ever heard in my life are coming out. All I can do is pretend there’s something really important behind me to hide my face from it.
+
+48 quotes

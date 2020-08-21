@@ -1,0 +1,42 @@
+ - Sociology and anthropology are not disciplines which take easily to situations where people are able to live out their fantasies, not just in the symbolic action of ritual, but in the concrete theater of society at large.
+ - In an underdeveloped country don’t drink the water. In a developed country don’t breathe the air.
+ - Critics? Don’t talk to me of critics! You think some jackanapes journalist, his soul eaten away by the maggots of jealousy and failure, has anything worthwhile to say of art? I don’t.
+ - Seattle is this curious liberal island.
+ - Seattle is not an overly friendly city. It is a civil city, but not altogether friendly. People from outside mistake the civility for friendliness. Seattle is full of people who have their own lives to live. They won’t waste their time being friendly. But they are civil.
+ - Life, as the most ancient of all metaphors insists, is a journey; and the travel book, in its deceptive simulation of the journey’s fits and starts, rehearses life’s own fragmentation. More even than the novel, it embraces the contingency of things.
+ - At night, what you see is a city, because all you see is lights. By day, it doesn’t look like a city at all. The trees out-number the houses. And that’s completely typical of Seattle. You can’t quite tell: is it a city, is it a suburb, is the forest growing back?
+ - I ain’t sleeping. I’m just taking a good look at the insides of my eyelids.
+ - Seattle was built out on pilings over the sea, and at high tide the whole city seemed to come afloat like a ship lifting free from a mud berth and swaying in its chains.
+ - Trouble defies the law of gravity. It’s easier to pick up than to drop.
+ - Good travel books are novels at heart.
+ - The city has always been an embodiment of hope and a source of feeling guilt; a dream pursued, and found vain, wanting, and destructive.
+ - It always seems to me odd to call a place a wilderness when every wilderness area in the US bristles with rules and regulations as to how you can behave, what you’re allowed to do, and is patrolled by armed rangers enforcing the small print. They’re parks, of course, not wildernesses at all.
+ - Spells of acute loneliness are an essential part of travel. Loneliness makes things happen.
+ - Heartbreak comes in different sizes, and the departure of an 18-year-old child for a far college has to be treated as a very benign form of the disease.
+ - Over emphatic negatives always suggest that what is being denied may be what is really being asserted.
+ - There’s an enduring American compulsion to be on the side of the angels. Expediency alone has never been an adequate American reason for doing anything. When actions are judged, they go before the bar of God, where Mom and the Flag closely flank His presence.
+ - In the city one clings to nostalgic and unreal signs of community, takes forced refuge in codes, badges and coteries; the city’s life, of surfaces and locomotion, usually seems too dangerous and demanding to live through with any confidence.
+ - The north-south line of ‘the mountains,’ meaning the Cascade Range, forty miles east of Seattle, is a rigid political frontier.
+ - Books admitted me to their world open-handedly, as people for their most part, did not. The life I lived in books was one of ease and freedom, worldly wisdom, glitter, dash and style.
+ - I loved the audacity of that American principle which says. When life gets tainted or goes stale, junk it! Leave it behind! Go West!
+ - I’ve taught the better class of tourist both to see and not to see; to lift their eyes above and beyond the inessentials, and thrill to our western Nature in her majesty.
+ - In novels and autobiographies, the first positive move that the immigrant makes towards assimilation is to buy himself a suit of city clothes.
+ - Interstate highways dull the reality of place and distance almost as effectively as jetliners do: I loathe their scary monotony.
+ - All this piling up of one technology on top of another-railroad on steamboat, interstate highway on railroad, hydroelectric dam on watermill-had reduced the Mississippi from a wonder of nature to this sluggish canal on the wrong side of the tracks.
+ - If we live inside a bad joke, it is up to us to learn, at best and worst, to tell it well.
+ - Travel. It was an intransitive verb. It didn’t involve any destinations. It was going to the going’s sake, to be anywhere but where you were, with motion itself as the only object.
+ - The only book by a modern president that bears serious comparison with Obama’s ‘Dreams From My Father’ is Jimmy Carter’s short campaign autobiography, ‘Why Not the Best?,’ published in 1975.
+ - Simply as a writer of books I’m thrilled and proud that Seattle should have raised, on a public vote, sufficient money to build a central library, and moreover to rebuild every other library in the city: 28 of them.
+ - Because Washington state now votes by mail, elections here tend to play out, at an agonizingly slow speed, over many days and, sometimes, weeks.
+ - It’s been so long since a talented writer last occupied the White House; no wonder, then, that American writers have been among the most prominent of all the demographic groups claiming a piece of Barack Obama for themselves.
+ - To the newcomer who has not learned its language, a large city is a chaos of details, a vast Woolworths store of differently colored, simlarly priced objects.
+ - Inaugurals conventionally start with a history lesson and finish with a prayer.
+ - Every White House has had its intellectuals, but very few presidents have been intellectuals themselves – Thomas Jefferson, John Adams, Woodrow Wilson, the list more or less stops there.
+ - The Falklands held a mirror up to our own islands, and it reflected, in brilliantly sharp focus, all our injured belittlement, our sense of being beleaguered, neglected and misunderstood.
+ - Democrats inhabit the low shores of Puget Sound, mostly on its eastern side, in a ragged trail of port-cities that stretches from Bellingham, close to the Canadian border, through Everett, Seattle, and Tacoma, to Olympia, the state capital, at the southern end of the sound.
+ - When New Yorkers tell one about the dangers of their city, the muggings, the dinner parties to which no one turns up for fear of being attacked on the way, the traffic snarl-ups, the bland indifference of the city cops, they are unmistakably bragging.
+ - The trouble with ghostwriting is that it raises the issue of whether the president is in a state of diminished responsibility for what he says. Does he actually grasp the implications of the words he speaks?
+ - Lincoln, steeped in the Bible and Shakespeare, set an impossibly high bar for presidential prose.
+ - No president has come near to rivaling Lincoln as a writer.
+
+40 quotes

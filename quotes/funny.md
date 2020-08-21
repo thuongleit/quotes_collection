@@ -1,0 +1,28 @@
+ - Why join the navy if you can be a pirate? ~~Steve Jobs
+ - The real trouble with reality is that there is no background music. ~~Anonymous
+ - The road to success is always under construction. ~~Lily Tomlin
+ - I need a six month vacation twice a year. ~~Anonymous
+ - Always forgive your enemies; nothing annoys them so much. ~~Oscar Wilde
+ - If at first you don’t succeed, destroy all evidence that you tried. ~~Steven Wright
+ - The best way to appreciate your job is to imagine yourself without one. ~~Oscar Wilde
+ - The trouble with being in the rat race is that even if you win, you’re still a rat. ~~Lily Tomlin
+ - Never try to teach a pig to sing; it wastes your time and it annoys the pig. ~~Robert A. Heinlein
+ - The best things in life are free. The second best are very expensive. ~~Coco Chanel
+ - A successful man is one who can lay a firm foundation with the bricks others have thrown at him. ~~David Brinkley
+ - The only place success comes before work is in the dictionary. ~~Vince Lombardi
+ - Dear Karma, I have a list of people that you missed. ~~Anonymous
+ - The road to success is dotted with many tempting parking spaces. ~~Will Rogers
+ - Give a man a fire and he’s warm for a day, but set fire to him and he’s warm for the rest of his life. ~~Terry Pratchett
+ - Money can’t buy you happiness but it does bring you a more pleasant form of misery. ~~Spike Milligan
+ - Due to budget cuts the light at the end of the tunnel has been turned off. ~~Aaron Paul
+ - Monday is an awful way to spend 1/7 of your life. ~~Steven Wright
+ - I’d kill for a Nobel Peace Prize. ~~Steven Wright
+ - If I had asked people what they wanted, they would have said faster horses. ~~Henry Ford
+ - Success in almost any field depends more on energy and drive than it does on intelligence. This explains why we have so many stupid leaders. ~~Sloan Wilson
+ - The successful man is the one who finds out what is the matter with his business before his competitors do. ~~Roy L. Smith
+ - Accomplishing the impossible means only that the boss will add it to your regular duties. ~~Doug Larson
+ - Don’t worry about people stealing your ideas. If your ideas are any good, you’ll have to ram them down people’s throats. ~~Howard Aiken
+ - If toast always lands butter-side down, and cats always land on their feet, what happens if you strap toast on the back of a cat and drop it? ~~Steven Wright
+ - Work expands so as to fill the time available for its completion. ~~Parkinson's law
+
+26 quotes

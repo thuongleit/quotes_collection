@@ -1,0 +1,85 @@
+ - The world doesn’t just disappear when you close your eyes, does it?
+ - The thrill of coming home has never changed.
+ - Just because there are things I don’t remember, doesn’t mean my actions are meaningless. The whole world doesn’t just disappear when you close your eyes, does it?
+ - I suffer from overheating quite easily.
+ - If I’m exhausted, physically and particularly emotionally, I can’t tell what’s good and I can’t tell what’s bad and I’m useless.
+ - I always look at films as real stories with real people in real situations. That’s why I struggle with the whole notion of calling someone the ‘good guy’ or the ‘bad guy,’ because I think we all have potential to do good things and all have the potential to do bad things.
+ - There’s a sense of humor within the Australian culture that prevails when one is in a rather difficult situation.
+ - A lot of people are going to hate me for saying this, but one of my least favorite kinds of music, or the kind of music that I feel I’ve so got out of my system, is musicals music.
+ - I’m happy in a silent world – well, not a silent world but one that relies on – I’m in a pretty physical actor I suppose anyway, and I just don’t – I don’t struggle that idea of emotional expression just because there aren’t words to explain yourself.
+ - A movie that gets a PG-13 rating can show someone running down a street killing 27 people. And there are no repercussions.
+ - My problem is I’m an addictive personality. I can’t have one coffee. I can’t eat one piece of chocolate.
+ - Australia’s not so bad with me, really, people are pretty cool with me at home, but in England it feels a little bit scary.
+ - English is no problem for me because I am actually English. My whole family are English; I was brought up listening to various forms of the English accent.
+ - When you’ve had a relationship with anybody in your life and you both know what that relationship is, you don’t have to do anything to prove to anybody that you’ve had that relationship. It just exists.
+ - Having a partner who has nothing to do with Hollywood helps keep things in perspective.
+ - I feel I do my best work when it’s all there on the page, and I feel that the character is very vivid as I read the script and I’m not having to create stuff and trying to cobble together something. If I have to do that, then I don’t entirely trust what I’m doing.
+ - I had to put the word out to people that I didn’t cost a fortune, and I was prepared to work at home. Because that’s the assumption: “Well, he lives in America now, we can’t afford him, we won’t bother.”
+ - Because in Australia we’re so inundated with American culture, television, this that and the other, everyone in Australia can do an American accent. It’s just second nature.
+ - Comic-strip stuff isn’t really my cup of tea, really.
+ - I find it really difficult to even articulate things that I’ve done in the past. I express myself through the characters that I play, not through the articulation of them later.
+ - Every time you say yes to a film there’s a certain percentage of your yes that has to do with the director, a certain percentage to do with the story, a certain percentage with the character, the location, etc...
+ - You meet these people who are confident all the time. They annoy me. And I wonder if it’s because I’m envious or if it’s because they’re shallow.
+ - I don’t believe in God, but the thing I do believe in is that we’re all connected.
+ - I’m definitely not non-chalant. I have to leave nonchalant at home when I’m working on something, otherwise I just don’t feel like I’m committed, and I’ve gotta be fully committed.
+ - It’s really interesting making films and actually seeing the life that they have in the subsequent years and seeing which ones stand up over time and which ones sort of fade away.
+ - I’ll have a different answer tomorrow that I do today.
+ - When I read something, I want to be surprised. So I read something and go, “Wow, I never, ever would have thought of playing this kind of role. This is exciting me, let’s go do this.”
+ - You would think that with ten super-famous people in one movie, it’s gonna be ten times more popular or viewed, but on some level, they can cancel each other out.
+ - Growing up, I was a kid pretending to be an adult.
+ - I reckon it’s more of an external perspective that on some level you really can control and dictate how your career’s going to go.
+ - I’ve been asked to do action-oriented movies in the past and they just haven’t been right for me.
+ - I think that you can say something in one line with a look that you might need three lines on a page for normally.
+ - If it’s a great role or a great film, then you’re happy to be a part of it.
+ - I’m far more comfortable in my 40s than I ever was.
+ - I don’t want to make a habit of just playing small roles, because I really enjoy the process of being part of a film and staying on it for the length of time that everybody else is as well.
+ - I want to bring something different to every film. I get a bit tired of actors who kind of are the same character in every film that they do.
+ - I can be completely indulgent and spend as many hours and days or weeks as I like on one thing. Writing music and sitting in my studio, just pottering with ideas, it’s a lot more personal and creative for me, I don’t feel restricted.
+ - When I go to a movie, I’m always thrilled if I’ve seen an actor do something and I didn’t realize until the end of the movie that that was that person. I love that.
+ - I think a lot of actors take on fun roles and then they’re lazy or flippant with them. I just can’t do that.
+ - I am geared towards communicating on a female level.
+ - It’s funny, though, with films, because you can incorporate a variety of elements, and sometimes that can work for you and sometimes I think it can work against you.
+ - I grew up with such an affinity to cats. I adore the way that they think and operate.
+ - I have a real love of sound and the shape of the sound. I’m a musician, and I’m fascinated with the effects of sound, and tone, and pitch and melody and all that sort of stuff.
+ - The thing I’ve come to learn is that what’s great about small independent films is the intimacy and the communication that occurs when you’re making them.
+ - You never really know what the director has got in his mind as far as the scene visually and art direction wise.
+ - Doing that hunt scene was really quite demanding. I actually broke a rib during that scene. And then all the scenes after that became quite challenging, just breathing and laughing.
+ - I grew up doing musicals. I’ve done so many musicals in my life, I kind of got them out of my system. But, I certainly would be open to them. Rocky Horror Show is a big favorite of mine.
+ - I really enjoy doing things that are more subtle and close to home – and literally close to home.
+ - I do like a variety of things so I’m always interested in finding something that I haven’t done before, if possible, to whatever degree that sometimes changes, and how much is something now that I wouldn’t have a year ago but sort of based on what I’ve done recently as well.
+ - Working on a studio picture, I can’t help but be aware of all the political stuff that’s going on. I have to work to be able to survive, in a sense.
+ - If you look at the films that I’ve done generally, you would probably get an idea of what I’m most interested in, and if ever I do something unusual like a science fiction film or an action film or a comedy or something, then that to me feels like a step to the side to do something different.
+ - I don’t enjoy movies in 3D. I find I can’t engage with the story as well.
+ - I think when people are repressing things, or burying things, that can manifest in all sorts of ways.
+ - The first thing I need to get sorted out before I can then move forward, before I can feel any confidence whatsoever, is the voice.
+ - I’ve not often been a man of many words. I’ve never considered myself to be overly articulate. I do feel more comfortable acting something out than I do explaining something or whatever.
+ - I do like a variety of things so I’m always interested in finding something that I haven’t done before.
+ - I tend to project my father figure onto any director that I’m working with, or mother, if I’m working with a female, or it can be confused.
+ - I’m never there enough to really keep up with what’s going on in the Australian film industry. I just try and be part of it as much as I can.
+ - I didn’t know what the path was that I wanted to be as an actor, to be honest. I’ve been doing a lot of theater since I was a kid, so I was just sort of taking opportunities.
+ - Even though I’ve done a lot it also feels like I haven’t done a lot. I’ve sort of popped in for supporting roles in things, and that’s been really delightful.
+ - I don’t feel I’m making a conscious effort to go more commercial.
+ - The funny thing is, because I was doing a lot of theater when I was a kid, and a lot of that was musical theater, as I got older I became more interested in acting as a separate entity and music as a separate entity, like songwriting and production and recording and playing music.
+ - I don’t have many friends.
+ - I always think the really unfortunate thing about the Australian film industry is its lack of momentum. And I don’t mean this in a derogatory way. I’m always wanting it to pick up momentum, and I’m wondering if that’s even possible.
+ - A lot of action characters are a little bit too serious as well. They take themselves a bit too seriously, which I don’t find particularly interesting, whereas I like the fact that there was at least some humor in this because really it’s a piece of entertainment.
+ - The majority of people who join law enforcement are doing it for good, moral reasons, but then there are the few who get through, where you go, ‘Whoa, hold on a second. What’s this guy doing here?’
+ - I went through a period where I just wanted to punch everybody. Since then, I’ve had a lot of therapy and I’ve figured a lot of things out.
+ - I really enjoy a variety of different work, and what I’ve just done may sometimes determine what I choose to do next.
+ - I used to work out in the gym a lot when I was younger. I was a competition body builder when I was 16 or something crazy like that for a short period of time. So, the gym is quite familiar and I know what I’m doing there.
+ - Memory isn’t the facts, it’s just a record you keep to yourself. With the facts, memory is useless.
+ - I don’t understand the actor that chooses to play the same role in everything all the time.
+ - It’s interesting playing something that the audience doesn’t fully know.
+ - Choosing work is an interesting thing. It’s a balance between what’s available and what you’ve always got in the back of your mind – that awful, strange thing that seems to have to exist in this industry, of what will give you “exposure.”
+ - I can be fairly optimistic, but I’m probably more a realist, I think. I mean, optimism’s an interesting quality, isn’t it, because I’m always slightly dubious as to what’s behind it?
+ - I never really enjoyed the fame stuff.
+ - I think as an actor, or any artist, you move with your moods and you express what’s going on for you, and you answer to that voice within that’s calling for particular things.
+ - I do have aspirations when it comes to directing, I suppose, but in a sort of a vague way. It would probably come about if I found a project that I really felt passionate about.
+ - There’s many more films being made in America than there are in Australia. You make four hundred and fifty films a year, we make twenty-five.
+ - Ultimately the most challenging thing, always, is to just be convincing.
+ - There’s something about the American sensibility that kind of hails people in the public eye. You have a star system. You have that kind of thing where you say, “Good on you for doing that.”
+ - You do feel kind of nervous about any film you take on.
+ - You can have a great time on a film and the chemistry can seem great but then you look at the finished film and it just doesn’t quite gel, something doesn’t quite work.
+ - I’m constantly trying to be as original as I can.
+
+83 quotes

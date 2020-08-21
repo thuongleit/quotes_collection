@@ -1,0 +1,90 @@
+ - But just because it burns doesn’t mean you’re gonna die. You’ve gotta get up and try, try, try.
+ - We’re not broken, just bent, and we can learn to love again.
+ - You can’t move mountains by whispering at them.
+ - Once you figure out what respect tastes like, it tastes better than attention. But you have to get there.
+ - Change the voices in your head. Make them like you instead.
+ - Charting your own course isn’t just more necessary than ever before. It’s also much easier – and much more fun.
+ - Sometimes it takes a tragedy to bring people together, Other times it just takes music.
+ - I’m pretty confident and, at the same time, I’m pretty insecure. I’m like a walking conflict.
+ - I’ve always felt that animals are the purest spirits in the world. They don’t fake or hide their feelings, and they are the most loyal creatures on Earth. And somehow we humans think we’re smarter-what a joke.
+ - I don’t think imitation is the highest form of flattery, I think it’s annoying.
+ - Why do we fall in love so easy, even when it’s not right?
+ - Pretty, pretty please, don’t you ever ever feel like you’re less than, less than perfect.
+ - We hate so fast and we love too slow.
+ - I don’t try to be candy coated. I don’t try to walk on eggshells. I am what I am. Love me or hate me.
+ - Mistaken, always second guessing, underestimated, look I’m still around.
+ - When you have a dark side, nothing is ever as good as it seems.
+ - I’m try-sexual. I’ll try anything once.
+ - My definition of stupid is wasting your opportunity to be yourself because I think everybody has a uniqueness and everybody’s good at something.
+ - Raise your glass if you are wrong in all the right ways.
+ - Right from the start, you were a thief, you stole my heart.
+ - Women have fought so long and hard for our rights and equality, and now all our attention is put on being a size 0.
+ - I sing my life. It’s like I’m having group therapy 350 days a year, and the people who come to the show get that, and they’re there for that – whether it’s to be lifted up, or to be lifted out, or just entertained or inspired, or to feel not so alone.
+ - I’m very much in the trenches, and I don’t live in the lap of luxury. I come from a working-class military family. We watch the news and read the paper and vote, so there’s always something to be upset about. I always have a certain amount of angst in my back pocket.
+ - The problem was, I was labeled as trouble – so I was like, ‘Trouble? I’ll show you trouble. You want trouble, well here it is!’ No matter what label they give you, the best thing you can do is prove them wrong.
+ - A lot of people have problems with public confrontation, but it doesn’t worry me at all. I can handle myself. I know my martial arts.
+ - I have never really encountered anybody that was rude to me. Well, not to my face anyway.
+ - I see you try to hurt me bad. Don’t know what you’re up against. Maybe you should reconsider; come up with another plan. Cause you know I’m not that kinda girl. I’ll just get back up again.
+ - The willow is my favorite tree. I grew up near one. It’s the most flexible tree in nature and nothing can break it – no wind, no elements, it can bend and withstand anything.
+ - True beauty is knowing who you are and what you want and never apologizing for it.
+ - You hear people say it all the time, how life changes so drastically. But you can’t possibly grasp how beautiful that is until you have your child.
+ - I’d rather bleed with cuts of love than live without any scars.
+ - I’ve learned I’m not lying by not saying anything, so I just don’t say it anymore.
+ - The only problems I’ve ever had with being honest is telling people how I feel about them or saying how I feel about other people.
+ - I dedicate my love and whole heart this Memorial Day to my Dad, a soldier, who like many others, suffers in silence with pride and honor.
+ - This life gets lonely when everybody wants something.
+ - I like feeling strong. It keeps my mental floor higher.
+ - My mom has always wished me a daughter just like me.
+ - To experience the good you have to have seen the bad; plus it makes you appreciate blessings more. Tough times taught me to be a fighter.
+ - My dad raised me with some good advice: ‘Always tell the truth. Always shoot from the hip. You might not have many friends, but you’ll never have enemies, because people will always know where you’re coming from.’
+ - My definition of freedom is knowing who you are, and then being it. No matter what anyone else is doing. And naked parties of course.
+ - My fans mean more to me than they will ever know. I call these people my friends and my confidence and if they are here to see me and they are here to support me, then that’s all I need in life.
+ - I’m not barbie, and im alright with that.
+ - If I wasted my time trying to be like everybody else when I was 10 and 11, I wouldn’t be me today. So if you are gonna be the future rockstars, the future somebody, whatever you wanna be then you’re wasting your time trying to be somebody else, because you’ll never get to you.
+ - I’m taking my rats. Those are my friends for the tour. Thelma and Louise. They’re so cute.
+ - Consumerism diverts us from thinking about women’s rights, it stops us from thinking about Iraq, it stops us from thinking about what’s going on in Africa – it stops us from thinking in general.
+ - Seems it’s my destiny for love to cause me misery.
+ - I can turn heartbreak into songs that help other people.
+ - For so long, I was searching for something to be proud of. But at a certain point, I realized, ‘Wait, I’m doing what I want to be doing. I’m not wanting to do it; I’m doing it.’ And that’s awesome.
+ - In my experience the best way to beat depression is to get involved in something inspiring.
+ - I change my mind so much I need two boyfriends and a girlfriend.
+ - Sexy doesn’t have to come with the price tag of being dumb.
+ - I’m very involved with PETA – People for Ethical Treatment of Animals – and Greenpeace and a lot of women’s shelter and clothing giveaways.
+ - On her daughter: And she’s going through all these changes. You know, it’s just crazy times.
+ - Cameron Diaz was so cute at the MTV Movie Awards when she pulled her skirt up and wiped her armpits.
+ - I’m cool. I don’t need to be skinny. I like to be strong.
+ - I know I should stop smoking, but it scares me. I mean, what would I turn to next?
+ - My mom took all of my behavior personally. Everything I did she thought it was an act of rebellion against her. But it was just me being me.
+ - I’ve always loved to prove people wrong. I want to be able to cross color lines, because in music, there really is no barrier.
+ - I was a very defensive kid ’cause I was really sensitive underneath and didn’t want people to know. So I came off as very tough and very angry.
+ - I just get bored easily. As I’m sure other people do too.
+ - Long-term relationships are an everyday choice. It’s harder to be in a marriage than it is to bounce from one relationship to the next.
+ - My favorite books, art pieces, films, and music, always have something jarring about them.
+ - The aggressive side of me comes across in my music, but I’m just a sweet girl.
+ - I’ve always felt like the underdog, and I’m comfortable with that label.
+ - People are always like, Why did you and husband Carey Hart get back together? Well, we weren’t done. And now we have Willow, so we’ll never be done.
+ - My mum and I have an incredible friendship now after a mixture of pain, honesty, unconditional love and a long break from each other.
+ - For the first few years we paid all the bills first and divided what was left as salary. Sometimes that was $50 a week.
+ - I’m never the kind of person who’s sitting at home reading the charts and basing how I feel about myself or even my career on stats. I’ve always based it on, ‘Am I doing the best that I can do?’
+ - I’m such a control freak, and it’s very hard for me to lose my inhibitions without something chemical inside me.
+ - There’s something about breaking up with someone – you just look hotter than you ever did before.
+ - Big productions, to me, are great – like, I love going to Vegas and seeing shows – but I think that sometimes it’s distracting, especially when you are there to listen to the music.
+ - I have to speak for myself. As far as videos go – casting, the artwork, everything – I’m completely hands-on. You have to be if you want your points across.
+ - Cutting, and suicide, two very different symptoms of the same problem, are gaining on us. I personally don’t know a single person who doesn’t know at least two of these victims personally.
+ - I turned down Prince William’s invitation for me to sing at his birthday bash because he was spearing animals in Africa and bringing publicity to it, and I thought that was pretty disgusting!
+ - Sage is cleansing and sacred.
+ - My stage show is raw and unpredictable.
+ - I’m about to make people forget about Madonna.
+ - I decided at 15 that I didn’t want to be one of those artists that gets up and sings love songs they don’t mean. I decided that I was going to be me to the fullest extent, that my songs were going to reflect relationships I’ve had, things I’ve been through, and even the stuff I’m embarrassed about.
+ - There are 50 new tabloids every year, and I’m in them, and I read them, and I do stupid things.
+ - I’ve been asked to do ‘American Idol’ and ‘X Factor.’ I’m an Ed McMahon kind of girl. ‘Star Search?’ I’m in, all day long. It felt more authentic, and the market wasn’t oversaturated with karaoke contests.
+ - I love the shows that are in dingy little dark clubs, smoky, no production whatsoever.
+ - It takes a lot of people years to turn a negative into a positive. It takes me, like, an album.
+ - I think you learn more about yourself in the context of a relationship than you can outside of it.
+ - Carey’s had though times as well, so between the two of us, it’s perfect.
+ - Record companies, I found out, can put out compilations without your permission.
+ - I’d love to have time to do my hair, honestly. I’d love to be Victoria Beckham just for one day – to look that good. But I can’t.
+ - You can’t be creative when you’re completely happy.
+ - My parents divorced, and I didn’t have much of a daddy growing up.
+
+88 quotes

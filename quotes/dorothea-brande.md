@@ -1,0 +1,23 @@
+ - Act as though it is impossible to fail.
+ - Act boldly and unforeseen forces will come to your aid.
+ - All that is necessary to break the spell of inertia and frustration is this: Act as if it were impossible to fail. That is the talisman, the formula, the command of right-about-face which turns us from failure towards success.
+ - If you can discover what you like, if you can discover what you truly believe about most of the major matters of life, you will be able to write a story which is honest and original and unique.
+ - So long as new ideas are created, sales will continue to reach new highs.
+ - There are seeds of self-destruction in all of us that will bear only unhappiness if allowed to grow.
+ - Criticism and rejection are not personal insults, but your artistic component will not know that. It will quiver and wince and run to cover, and you will have trouble in luring it out again to observe and weave tales and find words for all the thousand shades of feeling that go to make up a story.
+ - The genius keeps all his days the vividness and intensity of interest that a sensitive child feels in his expanding world.
+ - By going over your day in imagination before you begin it, you can begin acting successfully at any moment.
+ - Old habits are strong and jealous.
+ - Hitch your unconscious mind to your writing arm.
+ - A problem is often half-solved when it is clearly stated.
+ - The only difference between a problem and a solution is that people understand the solution.
+ - The games of the ancient Greeks were, in their original institutions, religious solemnities.
+ - Proverbs are for the most part rules of moral, or, still more properly, of prudential conduct.
+ - Writing calls on unused muscles and involves solitude and immobility.
+ - The worst effect of party is its tendency to generate narrow, false, and illiberal prejudices, by teaching the adherents of one party to regard those that belong to an opposing party as unworthy of confidence.
+ - Most writers flourish greatly on a simple, healthy routine with occasional time off for gaiety.
+ - In matching your wits against yourself you take on the shrewdest and wiliest antagonist you can have, and consequently a victorious outcome in this duel of wits brings a great feeling of triumph.
+ - The most enviable writers are those who, quite often unanalytically and unconsciously, have realized that there are different facets to their nature and are able to live and work with now one, now the other...
+ - Fiction supplies the only philosophy that may readers know; it establishes their ethical, social, and material standards; it confirms them in their prejudices or opens their minds to a wider world.
+
+21 quotes

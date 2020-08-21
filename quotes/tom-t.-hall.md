@@ -1,0 +1,43 @@
+ - It’s Faster horses, Younger women, Older whiskey and More money.
+ - I was quite a reader before I became a writer.
+ - God bless little children while they’re still too young to hate.
+ - Me and Jesus got our own thing going on. We don’t need anybody to tell us what it’s all about.
+ - I love coffee in a cup, little fuzzy pups, bourbon in a glass, and grass.
+ - I love winners when they cry, losers when they try.
+ - It is so important for me to try, and having tried I look back on failure and success as if it were all the same.
+ - Young kids are doing the same thing I did, but they’re doing it differently. They don’t do brain surgery the way they used to do it either.
+ - My theory is if you have a religion, it’s a good one. Because some people don’t have any at all.
+ - I took up a sort of a hobby of just hanging around the local library. I’d pick out an author and I would read all their books.
+ - The first time with artistic endeavors is, if it’s working, it was your idea, and if it’s not, it’s somebody else’s idea.
+ - Songwriting is as much a craft as a talent.
+ - The enticing allure of Nashville is that there is always something new coming down the pike. Put this record on and you’ll hear footsteps.
+ - I never hid out. I was never big enough a star.
+ - I never fixed a story. I didn’t make judgments, I let the listener make judgments. When I got to the end of the story, if it had a moral, I let the listener find it.
+ - A song is a poem set to music.
+ - I don’t know why songwriters struggle. They have to, I guess. If you’re a young songwriter, quit struggling. It makes you look bad.
+ - Is this really Butte, Montana, or just existential blues?
+ - I have my own religion. I’m sort of one-quarter Baptist, one-quarter Catholic, one-quarter Jewish.
+ - It used to be that youd have a song recorded by a major country artist and if it was a hit, you could buy a car. Now you can buy a dealership.
+ - If Barbara Walters was interviewing me, I’d figure her career was as dead as mine!
+ - The way you look for songs, you find yourself looking for little signals and clues about life and how things are.
+ - Old dogs care about you, even when you make mistakes.
+ - I had the notion that I wanted to write the great dirty American novel, so I went to Roanoke College on the GI Bill.
+ - The best compliment I ever had is, one day I was in Nashville, some disc jockey said, Hey, that sounds like a Tom T. Hall song. Up until then there hadn’t been any such thing.
+ - A monkey was the President, though maybe not the first. And there was peace and harmony throughout the universe.
+ - I’m a very comfortable and happy-go-lucky old man. I never wanted to be great, because I’d just get worried.
+ - My best album is called In Search Of A Song. That was my best shot right there. My finest hour, as they say. I could listen to the whole thing all the way through. There’s nothing really crammed into it.
+ - Religion is a strange, wonderful thing. More crimes have been committed in the name of righteousness than any other notion.
+ - The first guy who came up with the concept of religion was sitting out under a tree. I’m sure of that.
+ - She gave her heart to Jethro and her body to the whole wide world.
+ - Nobody knows a hit before it’s a hit.
+ - After I retired and came off the road, I gathered up all my musical instruments and suddenly, I wanted them all to be perfect.
+ - People think because you’re private, you have something you don’t want them to know.
+ - I am a fan of history.
+ - This generation should entertain this generation. It’s only fair. When I was a kid, I mowed the lawn. Now, somebody else’s kid can mow the lawn.
+ - Make your melodies simple enough so that the average person can hum them.
+ - I knew a lot of chords, but they weren’t the chords that came with the melody that came with the idea I had for the song. Melodies are simple things. If you see a train wreck, there’s a melody. If you see a little daisy blowing in the breeze, there’s a melody.
+ - I have had hundreds of people work for me over the years, and I don’t think I ever fired anybody.
+ - When you retire, it’s a place in life, a part of the journey. You just don’t quit work; you develop an attitude where you can do what you please.
+ - I was well traveled, and I created this illusion of literacy through reading and writing. I wrote a book of short stories.
+
+41 quotes

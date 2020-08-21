@@ -1,0 +1,32 @@
+ - When the night has come and the land is dark and the moon is the only light we see. No, I won’t be afraid, no, I won’t be afraid, just as long as you stand, stand by me.
+ - I’m a songwriter. So I’m OK. But when I wrote “Stand By Me” as a song and to know that the song will probably be here for hundred and hundreds of years to come, it’s great, you know. And it was just simple lyrics.
+ - I still perform it in all my shows. I’ll do it as long as I’m breathing. I’m so proud it has stood the test of time.
+ - I always felt I never chose music, it chose me.
+ - You take a chance to do something and you realize in your heart it’s either going to be the greatest thing that ever happened or the worst thing that ever happened. It won’t be an in between, I almost made a hit. It will be an instant flop or an instant success.
+ - I don’t care what studio I’m in, I don’t care what producers is producing it and I don’t care what song it is because they taught me those things I feel so protected wherever I go as far as music.
+ - Most black singers like to slow the word down and, and go directly to your heart. They’re not interested in your ears, we just want to go directly to your heart.
+ - It doesn’t take me long to write songs.
+ - If you just concentrate on what you’re doing and allow yourself to actually enjoy and let your feelings come out, whatever the tempos, whatever the rhythms, whatever the songs, 9 out of 10 times it will work.
+ - The industry now wants to be in charge of everything.
+ - One of the hardest things in the world is to perform on record and get someone to enjoy and feel what you’re doing. It’s unlike, like TV you can, you can fake it with the face and the crying and the bits. Recording is completely different.
+ - It’s a different thing when you go into a studio and you record with the intent of going somewhere and you’re marketing yourself for that direction.
+ - Those things don’t happen today. I feel sorry for the kids in the industry today. They have on sunglasses, eat caviar in jet planes, but they’ll never know the true feeling that we did.
+ - Of course, the kids who had never heard of a person called Ben E. King were then aware of the name associated with the song. That gave a tremendous lift to me as an artist.
+ - Yeah. I’m amateurish. I can play enough to write a song, or strum on a little guitar to write out a song. But, I don’t play well at all. I wouldn’t even attempt for a second to play in public.
+ - I never even visualized for a second doing what I’m doing.
+ - I do a lot of Vegas work and work with the comedians.
+ - When I got involved with The Five Crowns who later became The Drifters, and we got this hit record, I still was looking at this as kind of a fun thing.
+ - I enjoyed singing, I loved song writing, I loved recording. All those things that involves with creating music was great.
+ - One minute we can be in a small club, the next minute we can be in a coliseum, and the next minute we can be in a small auditorium. It varies, depending on the promoter, the budget, and the travelling distance.
+ - The Phil Spector that I would meet has always been a nice, quiet, little guy who’s very serious about his work; obviously you can tell that because each and everything he’s ever done has always been charted.
+ - I still think my whole career was accidental. I didn’t pursue it. I feel like I’m cheating sometimes.
+ - You’re writing it is how you feel. And when you’re finished you put your signature on it and you mail it off and that’s it. And that’s how “Stand By Me” was really.
+ - I do like what Alicia Keys and John Legend are doing. With their music, you keep your clothes on.
+ - Yeah. I’ve been pretty fortunate to travel I guess, all around the place.
+ - It never dawned on me at any particular time of my life that people are paid tremendous money to sing.
+ - If there’s anything about the business that I love and that I’m extremely happy about, is that my career started at that time and that I met some of the greatest entertainers at that time and some are still here.
+ - And, because there was an honesty about all that was going on. It connected with the people in the street.
+ - Many times I’ve gone on tours with Paul Anka. He would have someone sitting behind him to keep people from even talking to him. You were almost in a little restricted area there.
+ - A singer has got a different attitude, they’re they’re so whacked out they don’t know what they’re doing half the time. Singers, they don’t, they’re spoiled too.
+
+30 quotes

@@ -1,0 +1,160 @@
+ - Knowledge is Power. Ignorance is Bliss. But curiosity – even if it had killed the cat – is king.
+ - Breaking rules isn’t bad when what you’re doing is more important than the rule itself.
+ - Growing up is hard. Otherwise everyone would do it.
+ - If it was up to me, I’d choose the hard path with the easy ending, not the easy path with the hard end.
+ - You can trust me to keep my word. I always keep my word, promises or threats.
+ - Music moves society more than most people realize. In my opinion, it’s a soft manipulator of influence and change.
+ - Endings are not always bad. Most times they’re just beginnings in disguise.
+ - I could sit and watch nature documentaries with Jenks and the kids the rest of the night if I wanted. And trust me, watching a dozen pixies scream as a crocodile chomped on a zebra was something not to be missed. They invariably cheered for the crocodile, not the zebra.
+ - Listen before you draw your battle lines, lest you alienate your allies.
+ - It’s easier to find a way to make money at something you love than to learn to love a job that you can make money at.
+ - A devious spark lit through Al, making me smile. One way. It costs too much, he said. “There’s no inflation in the ever-after, Al.” Call it a recession then. One way.
+ - You just click your heels and think there’s no place like being pwned.
+ - Coffee. I could smell coffee. Coffee would make everything better.
+ - Who’s going to keep them from wiping us out species by species? Not me. We aren’t prepared for a new demographic of magic-using humans who are sadistic, power hungry, don’t like Inderlanders, and see genocide as an acceptable form of communication.
+ - I’ll wait for you under the bluebells. I’ll be there always.
+ - Money drives the world, but when everything falls apart to leave the underpinnings of our life bare to the scrutiny of critics and thieves, the only thing remaining, the only thing that can’t be taken away, is the love you hold for the people you care about.
+ - You had this all planned, didn’t you?? I accused. ‘Thought you could come in here and seduce me like you do everyone else?’ It wasn’t as if I could be angry, lying atop him as I was, but I tried.
+ - I just want my name back so my life can go back to chaotic and weird instead of chaotic and desperate.
+ - The mistakes don’t matter. It’s what you do when you mess up that does.
+ - And while seeing Trent in his tighty-whities would make my decade, I’d found out long ago that I couldn’t stay mad at a man wearing nothing but underwear. They looked so charmingly vulnerable.
+ - Hate is all that keeps us alive when love is gone. You’re almost there. Not quite ready to let it go yet.
+ - Go to sleep, baby, Mama will sing. Of blue butterflies, and dragonfly wings. Moonlight and sunbeams, raiment so fine. Silver and gold, for baby of mine. Go to sleep, baby. Sister will tell, of wolves and of lambs, and demons who fell.
+ - Though no one had been buried here for almost thirty years, the grass was mown by yours truly. I felt a tidy graveyard made a happy graveyard.
+ - I’d given up on the white picket fence after Kisten had died – finding out my kids would be demons was the nail in the coffin.
+ - A compassion swirled form nowhere in the high I was lost in. She needed me. She needed me to accept her for what she was. And when I realized that I had it within myself to give her at least this small part of me, the last of my fear melted away.
+ - Lately I’d begun carrying pain amulets in my bag, like some people have breath mints.
+ - But why allow someone to make a bad choice when a little information might engender a better one? It’s hard to wake up and see the sun if the blinds are pulled.
+ - She smiled with the warmth of a penguin.
+ - His eyes met mine at the soft touch, and a chime seemed to shake the ley line, realigning the universe. He was mine.
+ - Maybe he thinks he can rescue me? No one is that stupid.
+ - Jenks kept me alive for two years through two death threats, a crazy banshee, and at least two serial killers. Its about time I return the favor! And if I can’t, then I can sit by his bed and hold his hand as he dies, ’cause I’ve had plenty of practice doing that, too!
+ - The warm dampness of her breath made me shiver at the mix of the familiar and the unknown, with a soft exhalation she shifted her head and her lips found my collarbone, teasingly shy of my old scar. Tendrils pulsed in time with my heart, building on the ones before to an unseen height.
+ - A demon was asking me what I wanted. My eyes flicked to Al, and he shrugged. “What do you want?” he said softly.
+ - Why aren’t you afraid of me? I’ve seen my death, and you’re not it.
+ - You have such interesting thoughts. No wonder witches are ephemeral. You drive yourself crazy. You should simply do what you want without the soul-searching. It will be easier in the long run, Rachel Mariana Morgan.
+ - His attitude, though always bad, has changed since he helped me prep the Pandora charm for Morgan. He thinks I’m falling for her, as ridiculous as that sounds, and he might be tempted to take matters into his hands.
+ - How many mistakes can one life survive?
+ - Algaliarept varied its shape, sifting through my mind without me even knowing to choose what scared me the most. Once it had been Ivy. Then Kisten – until I had pinned him in an elevator in a foolish moment of vampire-induced passion. It’s hard to be scared of someone after you’ve French-kissed him.
+ - Maybe if I didn’t say anything about what happened, we could get back to the way we were. Ignoring a problem was a perfectly acceptable way to deal with it, as long as both people agree never to bring it up again.
+ - The undead did not love, but they remembered love with a savage loyalty.
+ - One person can’t hold anything, but two can have the world...
+ - She’s not much of a team player, more of a team yeller.
+ - I sighed. I hated the maze of bureaucracy with a passion, but I’ve found the best way to deal with it is to smile and act stupid. That way, no one gets confused.
+ - You bet your Grannie’s Panties I will.
+ - He didn’t want Lucy to grow up feeling alone, surrounded by everything and having nothing.
+ - Hovering near panic, trying to focus but finding it hard to open my eyes. My heart was pounding. I couldn’t get enough air, and I couldn’t find the desire to push her away.
+ - Married pixy, I told myself, forcing my eyes back to the shelf of ceramic animals. Fifty-four kids. Beautiful wife, sweet as sugar, who would kill me in my sleep while apologizing for it.
+ - My eyes widened at the ball of orange fluff squeezing out from under the counter, blinking and stretching. I looked again, not believing. “It’s a cat,” I said, winning the Pulitzer prize for incredible intellect.
+ - Al was looking at me in disbelief. “Not your lover?” “No.” “But he is Rachel candy,” Al said, his confusion too honest to be faked.
+ - Don’t fall into the trap of having to have everything perfect to write or wait until the mood strikes you. If you want it as a job, treat it like a job, and just as you don’t go to work only when you feel like it, you have to condition yourself to sit and write even when the ideas don’t flow.
+ - He wanted that again, that feeling of standing with her against all odds and succeeding. He wanted it so bad, he was going to risk destroying everything he and his father had worked for.
+ - Boots and leather jackets were strewn on her bed, and what looked like a new knife set. She’d taken a class last winter and was dying to try them out legally on someone.
+ - I was having coffee with my bodyguard. I didn’t expect to be hunting bad guys until later. Leather before sundown is tacky.
+ - People ask me what I do in my spare time, and I look at them blankly, truly believing that I don’t even have spare time, and if I did, I’d probably use it for something mundane, like chipping away at the mound of laundry rising to dangerous proportions in the back room.
+ - Nothing is so hard that it can’t be found by searching.
+ - Ford put a hand to his head. “Back up. Back up!” he cried. “You’re too close.” Heart pounding, I looked at the eight feet between us and pressed into the fridge. “I think he meant for the ghost to back up,” Jenks said dryly.
+ - Her tiny hand gripped mine with a surprising warmth, and in a shocking wash of emotion, I felt everything I knew shift. The scent of cinnamon and baby powder hit me, and as my eyes widened, my heart melted, making room for her.
+ - The demon had trouble remembering what she was doing, but she was powerful, sort of the crazy Wendy of the lost lord-of-the-flies boys.
+ - HAPA was like mint. You could rip it up, and six months later, it was back, healthier than ever. Mint smelled better, though, and you could make juleps out of it. I don’t know what I could make out of HAPA. Compost, maybe.
+ - Rachel knew what she was doing. And when she didn’t, she could improvise on the fly, coming up with options that left a lot of collateral damage but usually only hurt herself, not the people around her. It was one of the things he would never admit that he admired about her.
+ - Happy endings were never handed out. You had to fight for them, earn them with bruised hearts and sacrifices.
+ - That’s why I want you there, he said. You’re unpredictable, and that can be the difference between success and failure. Most people make decisions in anger, fear, love, or obligation. You make decisions to irritate people.
+ - Al was cruel, vindictive, angry, elegant, powerful. He gave me strength, he gave me wisdom, not only about magic, but about myself. He was a lot like Trent, only harsher around the edges.
+ - Welcome home, Rachel mariana Morgan, he said, his goat-slitted eyes holding a new, dangerous light. It’s a pleasure to finally meet you.
+ - I felt sick. Buying Kisten’s and my safety from Piscary was so wrong. But it was either that or deal with a demon, and I’d rather keep my soul clean and let my morals get dingy.
+ - Relief spilled into me. He wanted to live. He just didn’t know how.
+ - Trent and Ellasbeth did the nasty? Ewwww!
+ - Minias smiled. Great. Another charming demon. I sort of prefer the insane ones.
+ - You need a new hobby, Rachel. Something other than nasty little men with visions of world domination.
+ - Jenks made a move to follow, probably forgetting he didn’t have wings anymore. He leaned forward and fell to the floor, face first. “Jenks!” I shouted when he hit with a dull smack and started swearing.
+ - Like the end of a picnic, all the weenies will be roasted.
+ - Tension pulled my eyes open when her fingers traced a trail down my neck. Sensation blossomed, and I threw my head back and sucked in the air. Her arm slipped around my waist, catching me before I fell.
+ - Wayde yelled, and I hit him again, adrenaline pulling a scream of outrage from me. He went quiet, and I held my breath to make sure I could hear him breathing. I suppose I could have used my magic on him, but this was a lot more satisfying.
+ - Jenks squinted at me, and when Trent nodded, the pixy gestured sourly to Bis to get on with it. A four inch man ruled us all.
+ - You think Ivy’s a planner? She has nothing on a motivated elf with too much money.
+ - Apparently their numerous tattoos gave them protection against the cold as they had no coats.
+ - Hey, ah, does anyone want a cookie or something? Oh yeah. A cookie. That would make everything better. Dunked in a shot of tequila, maybe? Or better yet, just the bottle? Yeah, that ought to do it.
+ - I want one thing I can point to and say, ‘that is good, and it’s a part of me.’
+ - She just threatened to throw the next man who shoots at you out the window. Megan is awake. She offered to help. God, Trent, what is it with you and women?
+ - Life was going on, and no one but a handful of people cared if I lived or died.
+ - Just so you know, I’ve trusted you since camp.
+ - Was using “dead-man’s-toe” morally okay if the man’s relatives had knowingly sold him for parts?
+ - I never considered I might make a career out of writing as I was going to school, so when I did turn my attentions that way, I was very ill prepared, having only what I read as a guide, and no formal training whatsoever. I credit that very ignorance with a great deal of my success.
+ - Memories of ice and Trent surfaced, and I wrapped my arms around my middle. I had saved him, and he had saved me. What was wrong with us?
+ - You think my kids just popped out of the ground?
+ - Have you been sniffing fairy farts?
+ - There were no more choices, no more options, no more clever ways out of a tough situation. And the rush, I realized in a brutal wash of despair, is a false god I’ve chased my entire life. One that cost me everything in the blind search for sensation. My entire existence amounted to nothing.
+ - I frowned, wondering if Trent would mind being the size of a fairy for a day. He could talk to the newest tenants in his garden.
+ - Good Lord, I thought, squinting at the bright glare of a late-July morning. No wonder I slept through this. It was noisy with shrieking birds, and already hot.
+ - His right ear still held both studs, and I wondered who had the missing earring. I would have asked, but was afraid he’d tell me Ivy had it.
+ - Death and blood didn’t turn on a vampire. Fear and the chance to take blood did. There was a difference.
+ - I thought it odd that the woman was over a thousand years old but thought the microwave was primitive.
+ - I will compensate all your one-inch, two-inch losses because I know how important every inch is to you aged, decrepit men.
+ - I’d never seen a man who could outshop me, but Jenks was a master.
+ - I wish I could say I write 9-5. It’s usually more like 8-6, every day but the weekends.
+ - I thought Trent should get over his pixy paranoia and admit he had an eerie attraction to them, like every other pure-blood elf I’d met. So he liked pixies. I liked double-crunch ice cream, but you didn’t see me avoiding it in the grocery store.
+ - Confused, I asked, “The coven’s what?” “Plumber,” Ivy said, looking pale as she leaned on Glenn. “You know. Stops leaks?” Oh goodie. I’m a leak.
+ - My mother isn’t crazy. She simply has a harder time than most reconciling her reality with everyone else’s reality.
+ - Sure, it was nice now, but eventually there would be running and screaming and blood on the floor.
+ - I’ve found that when I’m having trouble solidifying a character or a scene, that music will often free my subconscious just that last little bit to allow me to move forward, and often it’s in a direction that I didn’t expect, but is 100 percent true to the character.
+ - She was only a year old, but elves grew up fast. Not like witches, who Jenks swore were not able to be on their own until they were thirty. Ahem.
+ - See, this was why I liked coffee. You couldn’t screw up making coffee. Even the bad stuff was good.
+ - Rachel candy.
+ - But I knew Nick. He was too ugly to die.
+ - Nick as in my former boyfriend Nick. Ex-rat, ex-boyfriend, ex-alive if I ever got hold of him Nick.
+ - Looking at everything, I started to feel nauseous, as if the seventies had taken refuge here against extinction and were preparing to take over the world.
+ - It is not always what we do, Sa’han, but who we love that makes us who we are. Quen.
+ - For all his sourness, he was ruled by his heart.
+ - Anything worth having is going to be hard.
+ - I pushed him away, catching Lee’s awe that I was not only standing with a demon outside a circle, but that Al was treating me like an equal. Or maybe a favorite pet, I amended as Al caught me when I started to tilt.
+ - I said school starts tomorrow. I didn’t say I was going to be there.
+ - I sat for a moment, figuring things out, then decided to stay there. If I was on the floor, I couldn’t fall down.
+ - As the joke goes, you don’t have to be faster than the wolf chasing you, just faster than everyone else running away.
+ - We were innocent once. How could it have gone so bad?
+ - Tinks titties Rache Jenks.
+ - I turned back to the mirror, seeing that there were no lines on it. It was empty. “What happened to my mirror?” I said, bewildered. Then realizing that I was looking at the back of the dumb thing, I swore and turned it over.
+ - Tagged by a whiny little vamp. Rache, take this sword and stick it in me. Just go and stick it in me. I’m a back-drafted, crumpled-winged, dust-caked, dew-assed excuse of a backup. Worthless as a pixy condom. Taken down by my own partner. Just tape my ass shut and let me fart out my mouth.
+ - Piscary killed people, but he didn’t have the concept of pity or remorse. It would be like telling a shark he was a bad fish and to stop eating people. But Trent? He knew he was doing wrong, and he did it anyway.
+ - Teens like a lot of the same things adults do: smart people doing amazing things against awful odds.
+ - Somehow I found him. Somehow I found Al’s sarcastic thoughts, bitter and old. Tired, angry, bored. Alone.
+ - A clipboard and a hard hat could get you just about anywhere.
+ - Rachel, you summon demons. You’re good at it. Get over it, then find a way to make it work for you. It’s not going to go away.
+ - The car was full of unhappy people heading west. It was the Great American Family Road Trip, all right. Whaaa-hoo!
+ - I was cold, hungry, and in a hole in the ground. But at least I had my elven porn, damnit!
+ - She’s not your type. Since when do I have a type?
+ - Numb, I took the perfectly browned puff. Okay. Let me see if I have this right. Al provokes me into defending myself. I nearly kill him. Then Newt tries to kill me, thinking I’m Ku’Sox. Al stops her, saving my life. And now we’re all going to have s’mores together?
+ - I grew up reading SF in the 70s and 80s, and I like fast, thought-provoking plots that take you places in fully realized worlds.
+ - You look like the vamp who bled the cat.
+ - Shouts of dismay rose as the red flesh splattered against the table. It was only a tomato, but one would think I was pulping a decaying heart by the noise the big, strong FIB officers were making.
+ - Maybe I could be friends with a ghost. I wouldn’t be able to kill him.
+ - Sure, he had a wife and fifty-four kids, but he looked like a college freshman. A yummy college freshman majoring in Oh-my-god-I-gotta-get-me-some-of-that.
+ - Of course I’m shielding her, you broken feather!
+ - There is black. There is white. Gray is a cowardly excuse to mix our wants with our needs.
+ - Puppy presents on the rug. This sucked.
+ - I suddenly realized that a bunch of my friends needed babysitters and vowed to start screening my calls.
+ - Together we made our way from the service entrances in back to the front, Jenks shedding clothes and handing them to me to stuff in my bag every few yards. It was terribly distracting, but I managed to avoid running into the Dumpsters and recycling bins.
+ - Making a spell is easy. It’s trusting you did it right that’s hard.
+ - Rose to Rachel: You cry you get angry then you do something about it.
+ - Join us next time for Days of the Undead when Rachel learns her long lost brother is really a crown prince from outer space.
+ - What was it with me and organized beatings, anyway?
+ - Being poor is not an indication of potential or worth. It’s a lack of resources.
+ - Oh, I’m sorry. Did I interrupt some sort of dominance foreplay?
+ - Dead Witch Walking is basically a modern-day witch living in Cincinnati.
+ - I staggered backward-her one hand gripping my shoulder, the other still holding my wrists behind her-and she followed until my back hit the wall.
+ - I meant I’m not afraid of love being difficult. If it was easy, then everyone would find it.
+ - Adjustment? She called that an adjustment? How about I adjust her right out of existence?
+ - I have to save the world tomorrow, and I don’t even know what I’m going to wear yet. – Rachel Morgan.
+ - Your welcome means more to me, Ivy Alisha Tamwood, than a thousand souls. Watching Rachel work is a wonder of one catastrophe after another.
+ - So I’ve seen my boys do that a hundred times with the neighboring pixy girls. Give her their favorite seed and be too flustered to tell her what it was.
+ - They weren’t idiots, but I attracted trouble that just begged me to beat it into submission.
+ - All I’d have to do then was roll with the consequences of inviting dewinged, fanged fairies into Trent’s backyard. God, they were savage looking. Served him right.
+ - I do so like all-encompassing words. Verb, adjective, noun. Yes, you are shitted.
+ - We all watched Al open the door. Turning, he waved to us, then passed the threshold. The door shut behind him. I waited for something to happen. Nothing did. “This isn’t good,” Quen said. I choked back my burst of laughter, knowing it would come out sounding hysterical.
+ - The cookie maker needs someone to look out for him.
+ - You cannot thrash the person who makes you coffee. It’s a rule somewhere.
+ - The gentle sound of her words became the shushing of my blood in my head, and I listened, hovering on the edge of consciousness, bathed in the oblivion of whatever drug they had given me.
+ - Elves apparently had a short childhood. Not like witches, who seemed to take forever to grow up, according to Jenks.
+ - It’s a cat. Boy, you couldn’t slip anything past me tonight.
+
+158 quotes

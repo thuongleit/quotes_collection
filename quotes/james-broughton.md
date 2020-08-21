@@ -1,0 +1,36 @@
+ - The only limits are, as always, those of vision.
+ - And to Shakespeare I owe my vision of the world as a theater, wherein all humans are acting out their parts.
+ - Life is adventure, not predicament.
+ - At every crossroad, be prepared to bump into wonder.
+ - Follow your own weird.
+ - Poetry for me is as much a spiritual practice as sexual ecstasy is.
+ - You’re closer to your glory leaping an abyss than re-upholstering a rut.
+ - Ultimately I have learned more about poetry, from music and magic than from literature.
+ - True delicacy is not a fragile thing.
+ - I had a toy theater and a magic lantern, and when I was eight I built a stage for theatricals in the attic.
+ - I often start writing in order to excite an expansive emotion.
+ - We are all participants in the marvelous.
+ - Most poets, like most people, try hard to be like someone they admire or they are possessed with an image of what they ought to be.
+ - Adversity is a stimulus.
+ - I never wanted to dilute my private passion for the art by airing and arguing it in public.
+ - Most poets in their youth begin in adolescent sadness. I find it more rewarding to end in gladness.
+ - In the world of poetry there are would-be poets, workshop poets, promising poets, lovesick poets, university poets, and a few real poets.
+ - Consciousness is the glory of creation.
+ - Everything that ever happened is still happening. Past, present and future keep happening in the eternity which is Here and Now.
+ - Acclaim is a distraction.
+ - My films are an extension of my poetry, using the white screen like the white page to be filled with images.
+ - My major aim in writing is to set out flags and issue wake-up calls.
+ - My earliest poems sing of the absolute necessity of allowing love to invade and pervade one’s life. That can make the miracle happen in reality. Try it.
+ - If bitterness wants to get into the act, I offer it a cookie or a gumdrop.
+ - Being identified as a poet in France or Denmark or India one is greeted with gracious respect.
+ - A born poet knows in his cradle that a poetic life is the only life worth living.
+ - It was as important to live poetically as to write poems.
+ - The quietest poetry can be an explosion of joy.
+ - Dance, vaudeville, drama, movies – as a child I loved everything that went on in a theater.
+ - Life’s major challenge: getting reborn often enough.
+ - I like things which appear fragile but are tough inside.
+ - I tried to stir the imagination and enthusiasms of students to take risks, to do what they were most afraid of doing, to widen their horizons of action.
+ - For me a poem has to sing out of itself and the lilt of it carries the magic.
+ - Work in the theater sharpened my verse and my cinema.
+
+34 quotes

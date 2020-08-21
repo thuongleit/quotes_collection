@@ -1,0 +1,351 @@
+ - Don't follow the crowd, let the crowd follow you.
+ - You may have to fight a battle more than once to win it.
+ - Being powerful is like being a lady. If you have to tell people you are, you aren't.
+ - The problem with socialism is that you eventually run out of other people's money.
+ - I wasn't lucky, I deserved it.
+ - Look at a day when you are supremely satisfied at the end. It's not a day when you lounge around doing nothing; it's a day you've had everything to do and you've done it.
+ - If you set out to be liked, you will accomplish nothing.
+ - I am extraordinarily patient, provided I get my own way in the end.
+ - I do not know anyone who has gotten to the top without hard work. That is the recipe. It will not always get you to the top, but it will get you pretty near.
+ - If you just set out to be liked, you will be prepared to compromise on anything at anytime, and would achieve nothing. 
+ - Disciplining yourself to do what you know is right and important, although difficult, is the highroad to pride, self-esteem, and personal satisfaction.
+ - Plan your work for today and every day, then work your plan.
+ - Do you know that one of the great problems of our age is that we are governed by people who care more about feelings than they do about thoughts and ideas.
+ - In politics, If you want anything said, ask a man. If you want anything done, ask a woman.
+ - I always cheer up immensely if an attack is particularly wounding because I think, well, if they attack one personally, it means they have not a single political argument left.
+ - We will stand on principle or we will not stand at all.
+ - When I'm out of politics I'm going to run a business, it will be called rent-a-spine.
+ - It used to be about trying to do something. Now it's about trying to be someone.
+ - A leader is someone who knows what they want to achieve and can communicate that.
+ - Don’t Cry For Me, Argentina.
+ - I fight on. I fight to win.
+ - What is success? I think it is a mixture of having a flair for the thing that you are doing; knowing that it is not enough, that you have got to have hard work and a certain sense of purpose.
+ - Standing in the middle of the road is very dangerous; you get knocked down by the traffic from both sides.
+ - If you want to cut your own throat, don’t come to me for a bandage.
+ - The desire to win is born in most of us. The will to win is a matter of training. The manner of winning is a matter of honour.
+ - No great goal was ever easily achieved.
+ - I do not know anyone who has got to the top without hard work.
+ - The larger the slice taken by government, the smaller the cake available for everyone.
+ - Socialists cry “Power to the people”, and raise the clenched fist as they say it. We all know what they really mean – power over people, power to the State.
+ - Economics are the method; the object is to change the soul.
+ - Europe was created by history. America was created by philosophy.
+ - Defeat? I do not recognize the meaning of the word.
+ - I want my money back!
+ - A world without nuclear weapons would be less stable and more dangerous for all of us.
+ - The price of freedom is still, and always will be, eternal vigilance.
+ - I started out in life with two great advantages: No money and good parents.
+ - The feminists hate me, don’t they? And I don’t blame them. For I hate feminism. It is poison.
+ - The government has no money of its own. It’s all your money.
+ - When all the objectives of government include the achievement of equality – other than equality before the law – that government poses a threat to liberty.
+ - Hope is no basis for a defense policy.
+ - There is no such thing as society.
+ - Europe will never be like America. Europe is a product of history. America is a product of philosophy.
+ - That is what capitalism is: a system that brings wealth to the many, not just the few.
+ - Ronald Reagan won the Cold War without firing a shot.
+ - To wear your heart on your sleeve isn’t a very good plan; you should wear it inside, where it functions best.
+ - I love argument, I love debate. I don’t expect anyone just to sit there and agree with me, that’s not their job.
+ - History has taught us that freedom cannot long survive unless it is based on moral foundations. You can get the economics right, but in addition liberty must be cultivated as a moral quality.
+ - In my view dictators do not surrender. They have to be well and truly defeated.
+ - In order to unscramble some eggs the leader gotta have some balls.
+ - It may be the cock that crows, but it is the hen that lays the eggs.
+ - People from my sort of background needed grammar schools to compete with children from privileged homes like Shirley Williams and Anthony Wedgwood Benn.
+ - I’ll stay until I’m tired of it. So long as Britain needs me, I shall never be tired of it.
+ - In a system of free trade and free markets poor countries – and poor people – are not poor because others are rich. Indeed, if others became less rich the poor would in all probability become still poorer.
+ - No one would remember the Good Samaritan if he’d only had good intentions; he had money as well.
+ - Unless we change our ways and our direction, our greatness as a nation will soon be a footnote in the history books, a distant memory of an offshore island, lost in the mist of time like Camelot, remembered kindly for its noble past.
+ - You don’t win by just being against things, you only win by being for things and making your message perfectly clear.
+ - Our children need strong families raising them with sturdy virtues, not to be smothered in the cold arms of the state.
+ - Failure? The possibilities do not exist.
+ - If we open our hearts to God, He has promised to work within us.
+ - Free enterprise has enabled the creative and the acquisitive urges of man to be given expression in a way which benefits all members of society. Let free enterprise fight back now, not for itself, but for all those who believe in freedom.
+ - Many of our troubles are due to the fact that our people turn to politicians for everything.
+ - Inflation is the parent of unemployment and the unseen robber of those who have saved.
+ - If my critics saw me walking over the Thames they would say it was because I couldn’t swim.
+ - Choice is the essence of ethics: if there were no choice there would be no ethics, no good, no evil; good and evil have meaning only insofar as man is free to choose.
+ - When you take into public ownership a profitable industry the profits soon disappear. The goose that laid the golden eggs goes broody. State geese are not great layers.
+ - Socialism lays an bad egg by killing the capitalism that lays the golden eggs.
+ - It is not the creation of wealth that is wrong, but the love of money for its own sake.
+ - One of my favourite quotations is: ‘That which thy father bequeathed thee, earn it anew, if thou wouldst possess it.’
+ - You turn if you want to. The Lady’s not for turning.
+ - Most women defend themselves. It is the female of the species-it is the tigress and lioness in you which tends to defend when attacked.
+ - Of course it’s the same old story. Truth usually is the same old story.
+ - A man may climb Everest for himself, but at the summit he plants his country’s flag.
+ - It’s a funny old world.
+ - Our aim is to make tax collecting a declining industry.
+ - I believe in the acceptance of personal responsibility, freedom of choice, and the British Empire, which took freedom and the rule of law to countries which would never have known it otherwise.
+ - When will Labour learn that you cannot build Jerusalem in Brussels.
+ - We had to fight the enemy without in the Falklands. We always have to be aware of the enemy within, which is much more difficult to fight and more dangerous to liberty.
+ - All attempts to destroy democracy by terrorism will fail. It must be business as usual.
+ - I owe nothing to Women’s Lib.
+ - Remember, George, this is no time to go wobbly.
+ - Business success isn’t just a selfish aim. Profits spread beyond those who make them and bring jobs and prosperity.
+ - What happened in Russia in 1917 wasn’t a revolution – it was a coup d’etat.
+ - I’m either the witch or Lady Macbeth of English politics, but someone gotta wear the pants in England when others wearing kilts.
+ - Dictators can be deterred, they can be crushed-but they can never be appeased.
+ - Socialists don’t like ordinary people choosing, for they might not choose socialism.
+ - In my lifetime all our problems have come from mainland Europe and all the solutions have come from the English-speaking nations across the world.
+ - Putting the World to Rights.
+ - This business of the working class is on its way out I think. After all, aren’t I working class? I work jolly hard, I can tell you.
+ - Never flinch. Make up your own mind and do it.
+ - You don’t tell deliberate lies, but sometimes you have to be evasive.
+ - I am always on the job.
+ - The Russians put guns before butter. We put just about everything before guns.
+ - We have not successfully rolled back the frontiers of the state in Britain, only to see them re-imposed at a European level with a European super-state exercising a new dominance from Brussels.
+ - If you have a sense of purpose and a sense of direction, I believe people will follow you. Democracy isn’t just about deducing what the people want. Democracy is leading the people as well.
+ - It will be years – not in my time – before a woman will become Prime Minister.
+ - The application of collective guilt, running from one generation to another, is a dangerous doctrine which would leave few modern nations unscathed.
+ - We speak of peace, yes, but whose peace? Poland’s? Bulgaria’s? The peace of the grave?
+ - There is a nonsense about intelligent women not being beautiful.
+ - Citizenship should be based on those who have a close and real relationship with this country and its inhabitants.
+ - We had to do what we had to do – Britain is great again.
+ - If it’s me against 48, I feel sorry for the 48.
+ - Young people ought not to be idle, it is very bad for them.
+ - Rooster, maybe well crows, but the eggs still bears the chicken.
+ - I was turned out because I said to Europe no, no, no. That no, no, no has now turned into yes, yes. Two yes’s not three because he got the Social Chapter out and he’s reserved his position on the single currency.
+ - To cure the British disease with socialism was like trying to cure leukaemia with leeches.
+ - As prime minister, I worked closely with Ronald Reagan for eight of the most important years of all our lives. We talked regularly both before and after his presidency. And I have had time and cause to reflect on what made him a great president.
+ - The National Health Service is safe with us. The principle of adequate healthcare should be provided for all regardless of ability to pay must be the function of any arrangements for financing the NHS. We stand by that.
+ - Consensus is the negation of leadership.
+ - I came to office with one deliberate intent: to change Britain from a dependent to a self-reliant society – from a give-it-to-me, to a do-it-yourself nation. A get-up-and-go, instead of a sit-back-and-wait-for-it Britain.
+ - There is nothing inevitable about rising unemployment.
+ - It pays to know the enemy – not least because at some time you may have the opportunity to turn him into a friend.
+ - Let our children grow tall and some taller than others if they have it in them to do so.
+ - Our judgement is that the presence of the Royal Marines garrison is sufficient deterrent against any possible aggression.
+ - Leadership is about having principles. A leader must have a vision and principles that will endure for all time and must always be true to these principles, applying them to changing circumstances.
+ - Remember the ‘Parable of the Talents’ in the New Testament? Christ exhorts us to be the best we can be by developing our skills and abilities, by succeeding in all our tasks and endeavors. What better description can there be of capitalism?
+ - There is little hope for democracy if the hearts of men and women in democratic societies cannot be touched by a call to something greater than themselves.
+ - Good Conservatives always pay their bills. And on time. Not like the Socialists who run up other people’s bills.
+ - We are not prepared to consider special category status for certain groups of people serving sentences for crime. Crime is crime is crime, it is not political.
+ - The wisdom of hindsight, so useful to historians and indeed to authors of memoirs, is sadly denied to practicing politicians.
+ - I’m not a good butcher but I’ve had to learn to carve the joint. People expect a new look.
+ - Making change tolerable is one of the duties of Government.
+ - We shall take whatever action is necessary to contain the growth of the money supply. The government, unlike so many of its predecessors, will face up to economic realities.
+ - The Government wants a peaceful settlement. But we totally reject a peaceful sell-out.
+ - What is right for the family is right for Britain.
+ - The woman’s mission is not to enhance the masculine spirit, but to express the feminine; hers is not to preserve a man-made world, but to create a human world by the infusion of the feminine element into all of its activities.
+ - If your only opportunity is to be equal then it is not opportunity.
+ - Socialism is in no way a curate’s egg.
+ - I still want to play in it, maybe when I absolutely think I have no chance of playing in it my view might change but I doubt it because it just doesn’t interest me.
+ - I calculate that I was responsible for proposing the elevation to the Lords of some 214 of its present numbers.
+ - I am in politics because of the conflict between good and evil, and I believe that in the end good will triumph.
+ - Life’s greatest reward is life itself.
+ - There might be new technology, but technological progress itself was nothing new – and over the years it had not destroyed jobs, but created them.
+ - Forget that I’m a woman. Forget the accusations that I am a Right Winger demanding privilege – I had precious little privilege in my early years.
+ - I shan’t be pulling the levers there but I shall be a very good back-seat driver.
+ - The secret of happiness is to live within your income and pay your bills on time.
+ - Democratic nations must try to find ways to starve the terrorist and the hijacker of the oxygen of publicity on which they depend.
+ - Peace is hard work and we must not allow people to forget it.
+ - I seem to smell the stench of appeasement in the air.
+ - What Britain needs is an iron lady.
+ - I will not change just to court popularity.
+ - Pennies do not come from heaven. They have to be earned here on earth.
+ - Platitudes? Yes, there are platitudes. Platitudes are there because they are true.
+ - If a woman like Eva Peron with no ideals can get that far, think how far I can go with the ideals that I have.
+ - Socialist governments traditionally do make a financial mess. They always run out of other people’s money. It’s quite a characteristic of them.
+ - The Prime Minister is stealing our clothes but he is going to look pretty ridiculous walking around in mine.
+ - It must be a conviction Government. As Prime Minister I could not waste time having internal arguments.
+ - I don’t want to fight any wars; if you can get them off before we get there, you do it, but off they go.
+ - A quick cure is a quack cure.
+ - You and I come by road or rail, but economists travel on infrastructure.
+ - You do not achieve anything without trouble, ever.
+ - I don’t know what I would do without Whitelaw. Everyone should have a Willy.
+ - No generation has a free hold on this earth. All we have is a life tenancy-with a full repairing lease.
+ - Advisers advise, and ministers decide.
+ - First you win the argument, then you win the vote.
+ - I am not hard – I’m frightfully soft. But I will not be hounded.
+ - The spirit of envy can destroy; it can never build.
+ - My job is to stop Britain from going red.
+ - Let us never forget this fundamental truth: The State has no source of money other than the money people themselves earn.
+ - I can’t help to spit nails when just thinking about Trade Unions.
+ - Marxists get up early to further their cause. We must get up even earlier to defend our freedom.
+ - If you are guided by opinion polls, you are not practicing leadership – you are practicing followership.
+ - Terrorism thrives on a free society. The terrorist uses the feelings in a free society to sap the will of civilization to resist. If the terrorist succeeds, he has won and the whole of free society has lost.
+ - I was asked whether I was trying to restore Victorian values. I said straight out I was. And I am.
+ - You cannot make an omelet without breaking some balls.
+ - It seems like cloud cuckoo land. If anyone is suggesting that I would go to Parliament and suggest the abolition of the Pound Sterling – no! We have made it quite clear that we will not have a single currency imposed upon us.
+ - It is in a country’s interests to keep faith with its allies. States in this sense are like people. If you have a reputation for exacting favors and not returning them, the favours dry up.
+ - Russia is bent on world domination.
+ - To accuse me of being too inflexible is poppycock.
+ - We have become a grandmother.
+ - Being democratic is not enough, a majority cannot turn what is wrong into right. In order to be considered truly free, countries must also have a deep love of liberty and an abiding respect for the rule of law.
+ - There’s no such thing as entitlement, unless someone has first met an obligation.
+ - Please don’t use the word tough. People might get the impression that I don’t care. And I do care, very deeply. Resilient, I think.
+ - I exercise my right as a free citizen to spend my own money in my own way, so that I can go on the day, the time, to the doctor I choose and get out fast.
+ - We should not expect the state to appear in the guise of an extravagant good fairy at every christening, a loquacious companion at every stage of life’s journey, and the unknown mourner at every funeral.
+ - I went to Oxford University – but I’ve never let that hold me back.
+ - Occupied Falklands are the thorn in my balls.
+ - If there is one instance in which a foreign policy I pursued met with unambiguous failure, it was my policy on German reunification.
+ - I had the patriotic conviction that, given great leadership of the sort I heard from Winston Churchill in the radio broadcasts to which we listened, there was almost nothing that the British people could not do.
+ - Just rejoice at the news and congratulate our armed forces and the Marines. Rejoice!
+ - When you’ve spent half your political life dealing with humdrum issues like the environment, it’s exciting to have a real crisis on your hands.
+ - I want a capital-earning democracy. Every man and woman a capitalist. Housing is the start. If you’re a man or woman of property, you’ve got something. So every man a capitalist, and every man a man of property.
+ - We have made too much of one or two people, and we think that they can win or lose elections for us. Don’t be depressed if one particular person transgresses. It doesn’t lose an election unless the Party loses faith in itself.
+ - If someone is confronting our essential liberties, if someone is inflicting injuries and harm, by God I’ll confront them!
+ - There is no such thing as society: there are individual men and women, and there are families.
+ - To be free is better than to be unfree – always. Any politician who suggests the opposite should be treated as suspect.
+ - Those who imagine that a politician would make a better figurehead than a hereditary monarch might perhaps make the acquaintance of more politicians.
+ - The European single currency is bound to fail, economically, politically and indeed socially, though the timing, occasion and full consequences are all necessarily still unclear.
+ - I usually make up my mind about a man in ten seconds, and I very rarely change it.
+ - The lesson is clear. Inflation devalues us all.
+ - The Labour Party believes in turning workers against owners; we believe in turning workers into owners.
+ - It took us a long time to get rid of the effects of the French Revolution 200 years ago. We don’t want another one.
+ - Nothing is more obstinate than a fashionable consensus.
+ - People are really rather afraid that this country might be rather swamped by people with a different culture.
+ - Any woman who understands the problems of running a home will be nearer to understanding the problems of running a country.
+ - There can be no liberty unless there is economic liberty.
+ - No woman in my time will be prime minister or chancellor or foreign secretary – not the top jobs. Anyway, I wouldn’t want to be prime minister; you have to give yourself 100 percent.
+ - I never hugged him, I bombed him.
+ - Let us, then, draw together in the name, not of jingoism, but of justice.
+ - Any leader has to have a certain amount of steel in them, so I am not that put out being called the Iron Lady.
+ - I hope we shall see more ande more women combining marriage and a career. Prejudice against this dual role is not confined to men. I regret to say, it comes from our own sex.
+ - We do not achieve happiness or salvation in isolation from each other but as members of society.
+ - You can’t lead from the crowd.
+ - Successful entrepreneurship is ultimately a matter of flair. But there is also a fund of practical knowledge to be acquired and, of course, the right legal and financial framework has to be provided for productive enterprise to develop.
+ - We Conservatives hate unemployment.
+ - We’re saying to anyone who dares to attack us, Do not do it, you couldn’t win, the result would be devastating! I think you’re saying the same.
+ - The battle for women’s rights has been largely won.
+ - They are all a rotten lot. Schmidt and the Americans and we are the only people who would do any standing up and fighting if necessary.
+ - It is absolutely right that President Reagan considers SDI and thank goodness people considered nuclear research before the last war.
+ - It is no exaggeration to describe plain English as a fundamental tool of government.
+ - Every family should have the right to spend their money, after tax, as they wish, and not as the government dictates. Let us extend choice, extend the will to choose and the chance to choose.
+ - Freedom will destroy itself if it is not exercised within some sort of moral framework, some body of shared beliefs, some spiritual heritage transmitted through the Church, the family, and the school.
+ - Do you think you would ever have heard of Christianity if the Apostles had gone out and said, ‘I believe in consensus?’
+ - I can’t bear Britain in decline. I just can’t.
+ - It’s okay, Chancellor, you can touch them. Sometimes I just strip down to a tank top and stare at these guns in front of a mirror all day long.
+ - For every idealistic peacemaker willing to renounce his self-defence in favour of a weapons-free world, there is at least one warmaker anxious to exploit the other’s good intentions.
+ - I don’t mind how much my Ministers talk, so long as they do what I say.
+ - Constitutions have to be written on hearts, not just paper.
+ - I have made it quite clear that a unified Ireland was one solution that is out. A second solution was a confederation of two states. That is out. A third solution was joint authority. That is out-that is a derogation of sovereignty.
+ - I want to get totally rid of class distinction. As someone put it one of the papers this morning: Marks and Spencer have triumphed over Karl Marx and Engels.
+ - Working hard may not make you rich, but it should make you successful.
+ - It is always important in matters of high politics to know what you do not know. Those who think that they know, but are mistaken, and act upon their mistakes, are the most dangerous people to have in charge.
+ - I do wish I had brought my cheque book. I don’t believe in credit cards.
+ - How thin is the crust of order over the fires of human appetite and the lust for naked power.
+ - I believe that the royal family are a focus of patriotism, of loyalty, of affection and of esteem. That is a rare combination, and we should value it highly.
+ - Let’s make it clear: the Conservative Party has no plans for new NHS charges.
+ - A democratic Europe of nation states could be a force for liberty, enterprise and open trade. But, if creating a United States of Europe overrides these goals, the new Europe will be one of subsidy and protection.
+ - America, my friends, is the only country in the world actually founded on liberty – the only one. People went to America to be free.
+ - New technology is the true friend of full employment; the indispensable ally of progress; and the surest guarantee of prosperity.
+ - Obsolete weapons do not deter.
+ - When you stop a dictator, there are always risks. But there are greater risks in not stopping a dictator.
+ - I am an ally of the United States. We believe the same things, we believe passionately in the same battle of ideas, we will defend them to the hilt. Never try to separate me from them.
+ - The Kosovo campaign was a just and necessary war. And I believe that Blair – of whom I have many criticisms – in this case showed real determination in conducting it.
+ - Whether manufactured by black, white, brown or yellow hands, a widget remains a widget – and it will be bought anywhere if the price and quality are right. The market is a more powerful and more reliable liberating force than government can ever be.
+ - There are no personal sympathies in politics.
+ - All corporatism – even when practised in societies where hard work, enterprise and cooperation are as highly valued as in Korea – encourages inflexibility, discourages individual accountability, and risks magnifying errors by concealing them.
+ - The election of a man committed to the cause of freedom and the renewal of America’s strength has given encouragement to all those who love liberty.
+ - There is much to be said for trying to improve some disadvantaged people’s lot. There is nothing to be said for trying to create heaven on earth.
+ - I don’t think there will be a woman prime minister in my lifetime.
+ - Political success is a good deal pleasanter than political failure, but it too brings its problems.
+ - When hecklers stand up, I get a mental jump for joy. It gives me something to get my teeth into – and the audiences love it.
+ - Women have plenty of roles in which they can serve with distinction: some of us even run countries. But generally we are better at wielding the handbag than the bayonet.
+ - When government does its job properly people are free to do theirs.
+ - To me, consensus seems to be the process of abandoning all beliefs, principles, values and policies. So it is something in which no one believes and to which no one objects.
+ - I like Mr Gorbachev, we can do business together.
+ - I have very strong views about Europe. We’re quite the best country. We rescued them. We’re not going to get entangled with them. We’ve got to keep our own independence. Is that clear?
+ - The habit of ubiquitous interventionism, combining pinprick strikes by precision weapons with pious invocations of high principle, would lead us into endless difficulties. Interventions must be limited in number and overwhelming in their impact.
+ - Most women are far more intelligent than people give them credit for.
+ - The desire to achieve grand utopian plans often poses a grave threat to freedom.
+ - During my lifetime most of the problems the world has faced have come, in one fashion or other, from mainland Europe, and the solutions from outside it.
+ - We need a free economy not only for the renewed material prosperity it will bring, but because it is indispensable to individual freedom, human dignity and to a more just, more honest society.
+ - I just owe almost everything to my father and it’s passionately interesting for me that the things that I learned in a small town, in a very modest home, are just the things that I believe have won the election.
+ - I applaud strong government, but not overweening government sustained by cronies, ciphers and a personality cult.
+ - The patronage state is an arrogant state. It assumes it can spend your money better than you do. Yet it expects you to work for it in the first place.
+ - Personal virtue is no substitute for political hard-headedness.
+ - The real case against socialism is not its economic inefficiency, though on all sides there is evidence of that. Much more fundamental is its basic immorality.
+ - I couldn’t live without work. That’s what makes me so sympathetic towards those people who are unemployed. I don’t know how they live without working.
+ - I am not immortal, but I’ve got a lot left in me yet.
+ - It’s the Labour Government that have brought us record peacetime taxation. They’ve got the usual Socialist disease – they’ve run out of other people’s money.
+ - I am not a consensus politician. Im a conviction politician.
+ - As the former dissident Vladimir Bukovsky one remarked – referring to the Russian proverb to the effect that you cannot make an omlette without breaking eggs – he had seen plenty of broken eggs, but had never tasted any omlette.
+ - The messages on our banners in 1979 – freedom, opportunity, family, enterprise, ownership – are now inscribed on the banners in Leipzig, Warsaw, Budapest and even Moscow.
+ - Naturally, it is with some temerity that the pupil speaks before the master, because you know more about the Common Market than anybody.
+ - If you lead a country like Britain, a strong country, a country which has taken a lead in world affairs in good times and in bad, a country that is always reliable, then you have to have a touch of iron about you.
+ - We must not fall into the trap of projecting our own morality onto the Soviet leaders. They do not share our aspirations, they are not constrained by our ethics, they always consider themselves exempt from the rules that bind other states.
+ - The Third World is very much like the First World – just poorer: what works for the West will work for the rest as well.
+ - John Gummer just did not have the political clout or credibility to rally the troops. I had appointed him as a sort of nightwatchman, but he seemed to have to sleep on the job.
+ - To the extent that the West is to blame at all for the ills of the Third World it is to the extent that the West created Marx and his successors, among whom must be numbered many of those who advised the Third World leaders in post-war years.
+ - I’ve got a woman’s ability to stick to a job and get on with it when everyone else walks off and leaves it.
+ - Wars are not caused by the buildup of weapons. They are caused when an aggressor believes he can achieve his objectives at an acceptable price.
+ - We are a British nation with British characteristics. Every country can take some small minorities and in many ways they add to the richness and variety of this country. The moment the minority threatens to become a big one, people get frightened.
+ - I’ve learned one thing in politics. You don’t take a decision until you have to.
+ - We must not fall into the mistake of thinking that it is America that trades with Taiwan or Europe that trades with Asia. The truth is that it is American companies that trade with Taiwanese companies.
+ - People think that at the top there isn’t much room. They tend to think of it as an Everest. My message is that there is tons of room at the top.
+ - Never in the history of human credit has so much been owed.
+ - Israel must never be expected to jeopardize her security: if she was ever foolish enough to do so, and then suffered for it, the backlash against both honest brokers and Palestinians would be immense – ‘land for peace’ must also bring peace.
+ - I’m also very much aware that it is you who brought democracy to Chile, you set up a constitution suitable for democracy, you put it into effect, elections were held, and then, in accordance with the result, you stepped down.
+ - Isn’t a policy of conventional weapons, with the terrible bombs raining down, with the missiles, with the aircraft, with the submarines, with the torpedoes, with the tanks, with chemical weapons – isn’t that based on the possibility of threat?
+ - I love his music because he was my generation. But then again, Elvis is everyone’s generation, and he always will be.
+ - If a Tory does not believe that private property is one of the main bulwarks of individual freedom, then he had better become a socialist and have done with it.
+ - The acid test of politics is not what you say at the hustings, but what you actually do in government.
+ - I am an undiluted admirer of American values and the American dream and I believe they will continue to inspire not just the people of the United States but millions across the face of the globe.
+ - Freedom under the law must never be taken for granted.
+ - You will only succeed if you know that what you are doing is right and you know how to bring out the best in people.
+ - We do not believe that if you cut back what government does you diminish its authority. On the contrary, a government that did less, and therefore did better, would strengthen its authority.
+ - We should see to it that our people are steeped in a real knowledge and understanding of our national culture.
+ - Tyranny must not prevail.
+ - We intend freedom and justice to conquer. Yes, we do have a creed and we wish others to share it. But it is not part of our policy to impose our beliefs by force or threat of force.
+ - We should not underestimate the enormity of the task which lies ahead. But little can be achieved without sound money. It is the bedrock of sound government.
+ - Once a woman is made man’s equal, she becomes his superior.
+ - I’ve got my teeth into him, and I’m not going to let go.
+ - We were told our campaign wasn’t sufficiently slick. We regard that as a compliment.
+ - There are always dangers about. Therefore you must always keep your defences strong.
+ - Reagan did not suffer from the dismal plague of doubts which has assailed so many politicians in our times and which has rendered them incapable of clear decisions.
+ - I believe our way of life is infinitely superior for every human being than any which the Communist creed can offer.
+ - I do not understand the unilateralists. If they hated nuclear weapons as much as I do they would want them down in the world as a whole. I am the true disarmer, I keep peace and freedom and justice with it.
+ - If you go into what I call a bubble boom, every bubble bursts.
+ - There are some remarkable parallels between basketball and politics. Michael Jordan has already mastered the skill most needed for political success: how to stay aloft without visible means of support.
+ - The accumulation of wealth is a process which is of itself morally neutral. True, as Christianity teaches, riches bring temptations. But then so does poverty.
+ - I do believe that political arrangements which are based upon violence, intimidation and theft will eventually break down – and will deserve to do so.
+ - We simply cannot delegate the exercise of mercy and generosity to others.
+ - I will not stagger from expedient to expedient.
+ - One hopes to achieve the zero option, but in the absence of that we must achieve balanced numbers.
+ - There are too few rich and too few profits.
+ - We are very fortunate to have someone else’s weapons stationed on our soil, to fight those targeted on us.
+ - I would not wish to be Prime Minister, dear.
+ - Home is where you come to when you’ve got nothing better to do.
+ - I remain totally convinced that when children are young, however busy we may be with the practical duties inside the home, themost important thing of all is to devbote enoughh time and care to their needs and problems.
+ - Object to merit and distinction, and you’re setting your face against quality, independence, originality, genius against all the richness and variety of life. When you hold back the successful, you penalize those who need help.
+ - The battle for women’s rights has largely been won. The days when they were demanded and discussed in strident tones should be gone forever. I hate those strident tones we hear from some Women’s Libbers.
+ - Ronald Reagan knew his own mind. He had firm principles – and, I believe, right ones. He expounded them clearly, he acted upon them decisively.
+ - I think perhaps we manage our revolutions much more quietly in this country.
+ - Never believe that technology alone will allow America to prevail as a superpower.
+ - The mission of this government is much more than the promotion of economic progress. It is to renew the spirit and solidarity of the nation.
+ - When you hold back the successful, you penalize those who need help.
+ - It is not the business of politicians to please everyone.
+ - I owe a great deal to the church for everything in which I believe. I am very glad that I was brought up strictly. I was a very serious child. There was not a lot of fun and sparkle in my life.
+ - I think, historically, the term ‘Thatcherism’ will be seen as a compliment.
+ - As a motive for terror, religion has more often than not required a good deal of lubrication by lucre.
+ - The United States is contributing massively to the defence of Europe and we should be very grateful.
+ - There are too many people who imagine that there is something sophisticated about always believing the best of those who hate your country, and the worst of those who defend it.
+ - The first step in calculating which way to go is to find out where you are.
+ - The West as a whole in the early 1990s become obsessed with a ‘peace dividend’ that would be spent over and over again on any number of soft-hearted and sometimes soft-headed causes. Politicians forget that the only real peace dividend is peace.
+ - I believe we should continue to have a partnership of national states each retaining the right to protect its vital interests, but developing more effectively than at present the habit of working together.
+ - You know the critical thing with the Communist countries is Communism, which by definition consists of control by the government.
+ - Everything a politician promises at election time has to be paid for either by higher taxation or by borrowing.
+ - I am not a compromiser on fundamentals.
+ - We went back on a very similar manifesto to things I believe in. The difference is that after eighteen months to two years he did the biggest U-turn on policy of all time and started to go the wrong way. In the end, that cost us the next election.
+ - Their pitiless ideology only survives because it is maintained by force. But the day comes when the anger and frustration of the people is so great that force cannot contain it. Then the edifice cracks: the mortar crumbles.
+ - No Western nation has to build a wall round itself to keep its people in.
+ - In those days one advantage of being a woman was that there was a basic courtesy towards us on which we could draw – something which today’s feminists have largely dissipated.
+ - Whether it is in the United States or in mainland Europe, written constitutions have one great weakness. That is that they contain the potential to have judges take decisions which should properly be made by democratically elected politicians.
+ - I have the money and they won’t get their hands on it.
+ - I wouldn’t be worth my salt if I weren’t attracting some controversy and criticism. Everyone in the world who has done something in life has attracted criticism.
+ - This lady is not for turning.
+ - You can present people with ideas they may come to believe in, and as a result of them they will act, if they have the opportunities. Presenting people with opportunities is part of what politics is about.
+ - Whether at home or abroad, the task of statesman is to work with human nature warts and all, and to draw on instincts and even prejudices that can be turned to good purpose. It is never to try to recreate Mankind in a new image.
+ - And what a prize we have to fight for: no less than the chance to banish from our land the dark divisive clouds of Marxist socialism.
+ - We need to create a mood where it is everywhere thought morally right for as many people as possible to acquire capital.
+ - In the Conservative Party we have no truck with outmoded Marxist doctrine about class warfare. For us it is not who you are, who your family is or where you come from that matters, but what you are and what you can do for your country that counts.
+ - One of the things being in politics has taught me is that men are not a reasoned or reasonable sex.
+ - I might have preferred iron, but bronze will do. It won’t rust. And, this time I hope, the head will stay on.
+ - I can cope with nine of them, so they ought to be able to stand one of me. They could end the tiresomeness and stubbornness by giving me what I want.
+ - But if Saddam had been in a position credibly to threaten America or any of its allies – or the coalition’s forces – with attack by missiles with nuclear warheads, would we have gone to the Gulf at all?
+ - We introduced the Community Charge. I still call it that. I like the Poles – I never had any intention of taxing them.
+ - Had I faltered we would have neither the success nor the international reputation we have. Yet when a woman is strong she is strident. If a man is strong, he’s a good guy.
+ - I have never knowingly made a non-controversial speech in my life.
+ - I think Essex Man will vote for a Conservative Government.
+ - Bribing regimes to comply with requirements which they should have acknowledged in the first place is not a process that appeals to me.
+ - It is one of the great weaknesses of reasonable men and women that they imagine that projects which fly in the face of commonsense are not serious or being seriously undertaken.
+
+349 quotes

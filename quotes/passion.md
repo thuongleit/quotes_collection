@@ -1,0 +1,42 @@
+ - Live with passion! ~~Tony Robbins
+ - No Alarm Clock Needed. My Passion Wakes Me. ~~Eric Thomas
+ - Skills are cheap. Passion is priceless. ~~Gary Vaynerchuk
+ - Let the world know why you’re here, and do it with passion. ~~Wayne W. Dyer
+ - When you have passion for something you find a way to make it happen – this is the panacea to success. ~~Zig Ziglar
+ - If you don’t have a passion, you’ll give up. ~~Steve Jobs
+ - Passion is the bridge that takes you from pain to change. ~~Frida Kahlo
+ - Passion drives perfection. ~~Rick Warren
+ - Always go with your passions. Never ask yourself if it’s realistic or not. ~~Deepak Chopra
+ - Passion is the genesis of genius. ~~Tony Robbins
+ - Rest in reason. Move in Passion. ~~Khalil Gibran
+ - If you can’t figure out your purpose, figure out your passion. For your passion will lead you right into your purpose. ~~T.D. Jakes
+ - Take your passion and make it happen. ~~Irene Cara
+ - Do your best at every job. Don’t sleep! Success generates more success so be hungry for it. Hire good people with a passion for excellence. ~~Steve Jobs
+ - Passion is contagioius. ~~Gary Vaynerchuk
+ - The only differentiator in the game is your passion and your hustle. ~~Gary Vaynerchuk
+ - Most people know what to do, but they don’t do what they know – because they haven’t found their inner drive. Their passion. ~~Tony Robbins
+ - Passion will move men beyond themselves, beyond their shortcomings, beyond their failures. ~~Joseph Campbell
+ - Success is born out of faith, an undying passion, and a relentless drive. ~~Stephen Curry
+ - Anything can happen if you are willing to put in the work and remain open to the possibility. Dreams are realized by effort, determination, passion and staying connected to that sense of who you are. ~~Michael Jordan
+ - It’s better to get lost in the passion than to lose the passion. ~~Soren Kierkegaard
+ - Chase your passion, not your pension. ~~Denis Waitley
+ - One can steal ideas, but no one can steal execution or passion. ~~Tim Ferriss
+ - Vision is a picture of the future that produces passion. ~~Bill Hybels
+ - True learning takes energy, passion and a burning desire. ~~Robert T. Kiyosaki
+ - Love your family, work super hard, live your passion. ~~Gary Vaynerchuk
+ - The undisciplined are slaves to moods, appetites and passions. ~~Stephen R. Covey
+ - True passion attracts. If you have passion in your business, the right people will be attracted to your team. ~~Robert T. Kiyosaki
+ - Paradise is to love many things with a passion. ~~Pablo Picasso
+ - Patience and time do more than strength or passion. ~~Jean de La Fontaine
+ - America is not a mere body of traders; it is a body of free men. Our greatness is built upon our freedom – is moral, not material. We have a great ardor for gain; but we have a deep passion for the rights of man. ~~Woodrow Wilson
+ - If a leader doesn’t convey passion and intensity then there will be no passion and intensity within the organization and they’ll start to fall down and get depressed. ~~Colin Powell
+ - The beauty of a woman is not in a facial mode but the true beauty in a woman is reflected in her soul. It is the caring that she lovingly gives the passion that she shows. The beauty of a woman grows with the passing years. ~~Audrey Hepburn
+ - If God gives you something you can do, why in God’s name wouldn’t you do it? ~~Stephen King
+ - Love is a smoke made with the fume of sighs. ~~William Shakespeare
+ - The true lover of knowledge naturally strives for truth, and is not content with common opinion, but soars with undimmed and unwearied passion till he grasps the essential nature of things. ~~Plato
+ - Being the richest man in the cemetery doesn’t matter to me. Going to bed at night saying we’ve done something wonderful, that’s what matters to me. ~~Steve Jobs
+ - Don’t just show kindness in passing or to be courteous. Show it in depth, show it with passion, and expect nothing in return. Kindness is not just about being nice; it’s about recognizing another human being who deserves care and respect. ~~Colin Powell
+ - The absurd hero’s refusal to hope becomes his singular ability to live in the present with passion. ~~Albert Camus
+ - A strange passion is moving in my head My heart has become a bird which searches in the sky. Every part of me goes in different directions. Is it really so that the one I love is Everywhere? ~~Rumi
+
+40 quotes

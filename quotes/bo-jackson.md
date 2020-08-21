@@ -1,0 +1,63 @@
+ - Set your goals high, and don’t stop till you get there.
+ - I always wanted to be a pilot.
+ - I’ll never worry about not being successful. I’ll just take it one day at a time, one season at a time. And play as hard as I can.
+ - Don’t put off until tomorrow the loving words you can say today.
+ - Don’t run too fast through life. You only have one.
+ - I am my own person. What I’m doing, I’m happy with it. I’m doing what I want to.
+ - Don’t plan to repent at the 11th hour – you may die at 10:30.
+ - It’s all about the attitude, gut, heart and determination to go out and give 120% every time to try and help the team win.
+ - I was a pitcher, shortstop and outfielder, and the Yankees tried to sign me out of high school as a first-round draft pick in 1981. I turned them down to go to college.
+ - If my mother put on a helmet and shoulder pads and a uniform that wasn’t the same as the one I was wearing, I’d run over her if she was in my way. And I love my mother.
+ - Don’t sell yourself short because without that you can’t go far in life because after sports the only thing you know is sports and you can’t do anything else with that.
+ - It occurred to me in my junior year of high school. I got my first letter from a big college. I still have that letter to this day – a letter from Indiana.
+ - I would say my greatest achievement in life right now – my greatest achievement period is – and I’m still trying to achieve it – is to be a wonderful father to my kids.
+ - I also tell them that your education can take you way farther than a football, baseball, track, or basketball will – that’s just the bottom line.
+ - Baseball and football are very different games. In a way, both of them are easy. Football is easy if you’re crazy as hell. Baseball is easy if you’ve got patience. They’d both be easier for me if I were a little more crazy – and a little more patient.
+ - I wanted to stay close enough so mom could see me play – where I could go home if I needed to.
+ - I’ve taken up golf in the past five or six years, and most of the time there aren’t too many people out there that can drive a ball further than I can.
+ - In baseball, I was a pitcher, which I hated because there was no action there.
+ - I’m the type of person, I cross the bridges once I get to ’em. I don’t try to plan my life three, four months in advance, because you don’t know if tomorrow’s promised to you.
+ - I was always the fastest and strongest kid in my school so events like the 100 meter and discus throwing attracted me. I could throw the discus for great distance s without the proper spin and throw technique.
+ - I taught myself how to pole vault in one day. The next day I entered a meet to pole vault and won it all for the state of Alabama.
+ - My favorite driver is always either the bad guy or the underdog.
+ - It is better to give a lick than receive one.
+ - Back before I injured my hip, I thought going to the gym was for wimps.
+ - If I miss anything about the sport, it’s the camaraderie of old teammates.
+ - I have been a fan all my life, but now I have been out of football for over 10 years, and out of baseball for a little over six years and I don’t go to games.
+ - I took a lot of things for granted – especially how I treated my body.
+ - My workout was running down fly balls, stealing a base, or running for my life on the football field.
+ - I have always been an avid bike rider. Even before I became an avid bike rider, I was an avid bike stealer when I was a kid. I am very educated on bikes.
+ - Football is easy if you’re crazy as hell.
+ - The way strength and conditioning has helped me now is that I make it a point to go to the gym everyday if I can.
+ - Growing up as a kid, the back of my house faced a little community airport about four or five miles from my house.
+ - But now, I get up every morning and go to the gym because I don’t like waking up stiff or in pain and wondering if my hip is going to hurt me.
+ - Well, back when I was training, probably the only nutritious thing on the market was Gatorade – that’s all that we knew.
+ - I guarantee you that’s what Jeff Gordon does. He uses everything the fans throw at him to stoke his fire and it drives him to be better at what he does.
+ - My confidence and drive to go play came when I realized how gifted I was at such a young age and how much bigger my build was than the kids my age.
+ - I hate to blow my own horn, but I gave a lot of people fits.
+ - I have no problem with my hips – I can still do the things that I used to do. I can run, I’m just not the fastest person on the field anymore.
+ - The only people I know getting in high places by running their mouth are politicians.
+ - It is better to give a lick than receive one. If anybody got in my way, I tried to run right through them.
+ - Just let me do what I’m doing, and then when all of this is up, then you can say how my career was. Don’t try to sum up my career in one or two seasons. Let me finish it first.
+ - By doing that and being very competitive, the grown-ups started telling me even back before I started playing organized ball that I was too physical and too advanced for the kids my own age.
+ - So you have to be more mentally focused in baseball.
+ - I am a firm believer in if you can’t get it the old fashioned way, you don’t need it.
+ - Whenever I wasn’t watching the planes, I was playing community baseball, football, or something like that.
+ - I was always active – I went from baseball to football. I didn’t have time to work out.
+ - You have a lot of people on the run and really don’t have time to sit down and eat a balanced meal.
+ - You practice Monday through Friday in college, or Monday through Saturday in the pro’s – and then you just go out and knock somebody’s head off.
+ - I grew up in a tough neighborhood where a lot of kids were older than me. The older kids decided to pick me on me starting when I was about 6 and it didn’t take me long to take a stand for myself.
+ - So, baseball is probably more physical of the two mentally.
+ - If you have four years to complete your college education, do it.
+ - I think everyone would love to see Jeff Gordon lose or get run into the wall, but I think he uses that – similar to me.
+ - Really, it’s not harder to train for them because once baseball starts you play everyday almost.
+ - When I was a kid, everybody in the neighborhood picked me to be the one in jail or be in the cemetery by the time I was 20.
+ - But now in this day and age, people are more prone to go out to try new things to enhance their performance on the field – to enhance their physical appearance.
+ - The first game was against Wake Forrest – I’ll never forget that game.
+ - I love going out and doing new things.
+ - So, I got a lot of recruitment letters from track.
+ - The only thing I would change is during the summer – when I was working my summer job, if I was smart, I would have taken flying lessons at Auburn.
+ - I’ve always played with kids that were five, six, seven years older than me.
+ - I was the type of guy that used to get up in the morning and go out and just out run everybody on the field without stretching or warming up or anything.
+
+61 quotes

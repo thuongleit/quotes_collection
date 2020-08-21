@@ -1,0 +1,100 @@
+ - Why do people measure life by the years instead of how good the years were?
+ - I drink diet coke so I can eat regular cake.
+ - I’m not fat. I’m fluffy!
+ - You know, a lot of people think that just ’cause you work out, lift weights, eat right, and do what people tell you to do that you’ll live a long live, maybe you will. But, why do people measure life by the years instead about how good the years were.
+ - When you go to Hawaii, it’s all about “Aloha.” It means hello, goodbye and I love you.
+ - I learned early on, stay away from politics, stay away from religion and don’t talk about sports. Those three right there will get you in trouble.
+ - I love Australia. First of all, everyone is so nice. The people are down to Earth, and they like having fun with you.
+ - I don’t want to die tomorrow knowing I could’ve had a piece of cake tonight.
+ - I’m not on a diet. And it’s funny cause people go ‘Well, then why do you drink diet soda?’ So I can eat regular cake.
+ - I’m not fat. It’s just my awesomeness swelling up inside of me.
+ - There’s 5 levels of fatness! Fluffy is one of the levels. There’s big, healthy, husky, fluffy and damn.
+ - Wearing a Hawaiian shirt, you don’t ever come across as offensive. Nobody sees you as a threat. You see someone in a Hawaiian shirt, and you are like ‘this guy is ready to party.’
+ - I’m always ready for TV. I don’t have to edit my jokes – when you work clean, you can work anywhere.
+ - We can choose our family. We can’t choose our relatives.
+ - I started riding the whole ‘fluffy’ train, and it’s a cute word and socially a lot more acceptable than someone saying is fat or obese. If you call a girl ‘fat,’ yo, she’ll raise hell, but if you say, ‘Aw girl, look at you, you’re fluffy,’ there’s almost a sexy appeal to it.
+ - As far as guys who perform onstage, I love Chris Rock. I’m kind of jaded on everyone else.
+ - The Ford Flex is a really, really cool car. You get inside and you have so much headroom and it’s really comfortable to drive and it’s real techy inside. You look at the screen and it’s blue and you’ve got all kinds of controls. Everything is digital.
+ - Life is measured by how you lived it, not by the years.
+ - Drama is not my passion. If I do it, it’s for a check. It’s not what I want to do. Comedy’s my thing. Stand up’s my thing. Everything that comes from that is frosting on the cake.
+ - Some people can handle alcohol. You know who you are. Some people can’t handle alcohol. The police know who you are.
+ - Anything is possible as long as you’re focused, determined and you really want to do it.
+ - You can’t be bad ass in a car that kills gas like I kill tacos.
+ - I just like The Little Mermaid cartoon. Say what you want. I have a fish tank, it’s a long story. I have a fascination with the ocean, and you put a hot chick in there, it just adds more to it! I liked The Little Mermaid. It’s a cool movie. It’s one of those I watch over and over again.
+ - I’m never home. I miss birthdays. I miss holidays. I miss anniversaries. I miss special moments. I’m not always there for important times, because I’m out on the road trying to make people laugh. I give up my privacy. I give up the ability to walk somewhere and relax.
+ - People think if you have money, it’ll fix the problems, but it creates different ones.
+ - Every night, it’s a bakery on the bus. It’s a curse, because I talk about how much I love cake, people bring me cake. And now I just found out I’m diabetic, so I’m like, are you kidding me?!
+ - You live by the cake, you die by the cake.
+ - I just know you can not be on top forever. There’s always going to be the next guy, and if I’m going to go down, I’d like to know I helped the next guy take my spot. You can’t prevent the inevitable, but you can join the ship.
+ - With all the classes they offer at school, how come they don’t have one for common sense?
+ - You gotta live life before you can talk about it. Sometimes when things don’t work out in life, they work out on stage.
+ - I’m a big boy, but I can get jiggy with it. Ladies, I will go to dance clubs, and I will tear it up hardcore for a good 30 seconds.
+ - And I don’t want you thinking that my girlfriend is a bad person. She is an amazing woman, the fact that I only have seven stories about her in eight years, says a lot. You know, don’t get me wrong, five of them happened this year, but that’s still way below the bar, you know what I am saying.
+ - I’ll walk up to a woman, I’ll say the first thing that comes to mind: ‘Hey, you hungry?’
+ - Me racist? The only race I hate is the one you have to run.
+ - I eat a lot of junk food, because that’s what’s usually available at 1:00am when I’m all done working.
+ - Some comics don’t like it when people talk during the set, and it does get a little bit annoying after awhile, but I basically let people dictate what jokes I’m going to do.
+ - I had to travel half way across the world to be called an American.
+ - I’m all about showing people that I’m a little messed up, I have a lot of the same problems you have. By exposing myself and putting myself out there, people can relate to me and my act won’t grow stale. I mean, nobody wants to hear a comedian say, ‘Life is great.’
+ - Connecting with people is not hard. I love the interaction and the feedback after shows. It does take some time, but the fans appreciate it which makes it worth it.
+ - If you Google the word “fluffy,” I’m the first thing that pops up. It’s me, dogs and rabbits.
+ - I got off the plane – I was walking and cooking at the same time.
+ - Social media has definitely changed the game for me. I am able to connect to my fans on twitter and interact with them, daily. YouTube has been a game changer as well – people around the world have been exposed to my comedy through my YouTube channel.
+ - Home in bed listening to the rain getting ready to order a pizza. Sounds like a song til the last part.
+ - It’s because you alienate half the room talking about sports. Half the crowd will be against you no matter what you say.
+ - When I was a kid I did impressions and funny voices a lot. When I was telling a story I would use the voices to make it more entertaining.
+ - I have very nice cars. I never get to drive them, because I’m never home.
+ - I get a lot of influence from pro wrestling. People are like, ‘Oh, it’s fake.’ But it’s not about whether the guy wins or loses, it’s about how he entertains you the whole time you’re watching.
+ - Being on TV sucks. It’s a lot of work. You memorize scripts and then you show up and they change everything. I’m a control freak. When I’m doing stand-up, I say what I want and then I get instant feedback.
+ - I never go perform somewhere alone. I’ve done that since day one. I’ve always taken other comics with me.
+ - I don’t have to worry about writing jokes. I just tell stories about things that have happened to me. As long as I’m alive and I’m living and I’m experiencing different things every day, the show will always change.
+ - I’m a comedian who happens to be Latino. What’s the difference? The difference is, my special will air on Comedy Central, not Telemundo.
+ - Understand that you don’t know it all. You don’t know anything yet. What you’ve been taught is great, but always go with common sense. And don’t marry your first love.
+ - You know what I learned about Hawaiians? They’re just blown up Mexicans!
+ - I don’t get controversial, I don’t get political and I don’t tell you what to do with your life. I just go out there and tell some stories, and people can relate.
+ - As a comedian, especially one that works as much as I do, there is a lot of sacrifice. People don’t see that I’m away from my family 46 weeks out of the year. I miss all the birthdays and anniversaries and holidays.
+ - My material never comes out verbatim every time. I always tweak in a line, or tweak away a line, gain a couple tags or lose a couple tags. The timing is always off.
+ - Comedy is my passion. I’m going to do this until I drop.
+ - Hanging out with comics, all they did was make fun of me.
+ - I was very dirty; I was a very dirty comic. There was no way I would have gotten on TV with the act I had when I first started.
+ - Early on when I started talking about my weight, it was self-deprecating; everything was a joke.
+ - I want to be known as a funny comic not just a funny Latino comic. I want to be able to go everywhere and anywhere.
+ - Honestly, I really don’t like acting. I don’t enjoy it. What I do like is going to a movie theatre and seeing my face on a poster. I like seeing my name on a poster. That is cool.
+ - Be personal, and original. Try to work clean. Stay away from topical material, as it does not allow you to craft it to make it better for later. And always remember that it is the fans who will make you or break you.
+ - I went up on stage, and said, “Why did the chicken cross the road? To check out the chicks.” I was a genius at 10. Try telling that at 21, and you look hacky and stupid. That was the only joke I’ve ever told. Everything since has been character voices, doing impressions or just telling stories.
+ - As long as you have a director, that’s your feedback. It’s the director telling you, “Okay. That was great! Okay. Can we add a little? Can you tweak it like this? Can you make it more high pitched? Can you give it a little growl?”
+ - That’s one thing about my shows. I tell people, I’m not a comedian, I’m just a really funny reporter. I put my life out there and make it entertaining. By putting it out there, it helps me to deal with it, you know, so I don’t snap and so I don’t go off the handle when I get home.
+ - If I’m drinking I can either be the nicest guy ever or I’m the guy you should leave alone.
+ - I bought a Hummer before I bought a house, and then I bought a house. Every year, everything doubled. The work was doubling. The money was doubling. The popularity was doubling.
+ - I found that laughter was a form of acceptance, and I really enjoyed that and I just – I crave it.
+ - I have always been told that I was a funny, entertaining person and have always been told to give comedy a try.
+ - I’m a big guy, but I’m really simple with the food. I’ll hit the In-N-Out or just the regular buffets.
+ - The only way I will do a sitcom is if it’s hurled at me, and I don’t have to work for it.
+ - I see a Latino comic as someone who can only perform for Latino audiences. I cross the board.
+ - I know what it’s like to have a family and not have insurance and really need it. As a comic, insurance was one of those sacrifices I made early on until I could afford it.
+ - When you’re a comedian, the Holy Grail is an hour long HBO special.
+ - Comedians do movies and TV so that when they tour, they sell out. That’s the goal: To get popular enough so the place is packed.
+ - TV show’s really quick. You’re in, you’re out. A film usually takes a lot longer. However, a voiceover is very much like TV in the sense that it’s really quick. For example, I did the movie Planes in one day.
+ - A lot of the comedians nowadays just do comedy as a stepping stone. Take for example Dane Cook. The guy is huge. The main reason he got into it is to do what he is doing now: film and television work.
+ - I wanted to be a comedian, and this is what I’m doing. If I can keep this going, I’m happy.
+ - I’m always very happy to talk to people. I relate to people, and the guy on stage is very much the guy that’s off stage. People know when it’s fake.
+ - You wonder why I only talk about my personal life. But that’s all I’ve ever done.
+ - TV and film for me are not as exciting as the live stand-up show and getting the immediate reaction of the crowd. TV is a lot of hurry up and wait for your shot and less immediate reaction from people.
+ - I was not the popular kid in school.
+ - When I go to dance clubs, I always dance with big girls, so we finish at the same time.
+ - Make sure you’re doing impressions of people that are still relevant, and that everyone knows. Red Skelton impressions are a little outdated.
+ - I try not to get political, I don’t want to get religious, I don’t want to get controversial, I just want to have a show that relates to everybody.
+ - Believe it or not, I’ve got a really bad metabolism. One burger and I’m done. I’m not a guy that puts away 10 burgers.
+ - I almost bought a DeLorean the other day just because. If I see something that I think is cool and I like it, I’ll go for it.
+ - Drinking can bring out a dude that has some issues.
+ - Finding places to perform was definitely the biggest challenge. Trying to find my voice over the years was a big thing because when I started I was just doing characters and impressions and that was it.
+ - I go on the road all the time, but I’m only performing for two hours a night, and then I’ll do a meet-and-greet, and then I’ll get a bite to eat, get drunk, pass out, wake up the next day, sleeping the next day, sleeping off the hangover, and then I’m in the next city.
+ - I know enough football to know that’s funny!
+ - I see a lot of nice hotels, but I never really get to enjoy the cities, because I have to be on a plane the next day.
+ - I want to get so famous that I don’t have to wake up in the morning. It’ll probably never happen.
+ - Stand-up is not just an American thing anymore. It’s global. In some places, stand-up comedy is brand new. South Africa has only had a scene for 15 years.
+ - For about three years I was performing at one bar in East Los Angeles that was like a mean dive bar. You’re in there performing for drunks or bikers, not the most flattering people. I think it helped build my confidence, because you have to get their attention, then make them laugh.
+ - My favorite people to have fun with are police officers ’cause they’re so serious, you know.
+ - Kids, man, they’re way too honest. They’re like mini-alcoholics.
+
+98 quotes

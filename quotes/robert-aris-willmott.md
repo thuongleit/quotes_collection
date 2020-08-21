@@ -1,0 +1,41 @@
+ - Education is the apprenticeship of life.
+ - The exhibition of real strength is never grotesque. Distortion is the agony of weakness. It is the dislocated mind whose movements are spasmodic.
+ - Newton found that a star, examined through a glass tarnished by smoke, was diminished into a speck of light. But no smoke ever breathed so thick a mist as envy or detraction.
+ - A first book has some of the sweetness of a first love.
+ - To study history is to study literature.
+ - The discovery of one star is the promise of another.
+ - Occasionally a single anecdote opens a character; biography has its comparative anatomy, and a saying or a sentiment enables the skilful hand to construct the skeleton.
+ - Genius finds its own road and carries its own lamp.
+ - The drama embraces and applies all the beauties and decorations of poetry. The sister arts attend and adorn it. Painting, architecture, and music are her handmaids. The costliest lights of a people’s intellect burn at her show. All ages welcome her.
+ - What philosopher of the schoolroom, with the mental dowry of four summers, ever questions the power of the wand that opened the dark eyes of the beautiful princess, or subtracts a single inch from the stride of seven leagues?
+ - Whatever is pure is also simple. It does not keep the eye on itself. The observer forgets the window in the landscape it displays. A fine style gives the view of fancy – its figures, its trees, or its palaces, – without a spot.
+ - The fame of a battlefield grows with its years; Napoleon storming the Bridge of Lodi, and Wellington surveying the towers of Salamanca, affect us with fainter emotions than Brutus reading in his tent at Philippi, or Richard bearing down with the English chivalry upon the white armies of Saladin.
+ - The light of genius never sets, but sheds itself upon other faces, in different hues of splendor. Homer glows in the softened beauty of Virgil, and Spenser revives in the decorated learning of Gray.
+ - In literature and art memory is a synonym for invention. It is the life-blood of imagination, which faints and dies when the veins are empty.
+ - The drama is the book of the people.
+ - No canvas absorbs colour like memory.
+ - Every fresh acquirement is another remedy against affliction and time.
+ - Criticism must never be sharpened into anatomy. The delicate veins of fancy may be traced, and the rich blood that gives bloom and health to the complexion of thought be resolved into its elements. Stop there. The life of the imagination, as of the body, disappears when we pursue it.
+ - The advice of a scholar, whose piles of learning were set on fire by imagination, is never to be forgotten. Proportion an hour’s reflection to an hour’s reading, and so dispirit the book into the student.
+ - Of many large volumes the index is the best portion and the usefullest. A glance through the casement gives whatever knowledge of the interior is needful. An epitome is only a book shortened; and as a general rule, the worth increases as the size lessens.
+ - A discursive student is almost certain to fall into bad company. Ten minutes with a French novel or a German rationalist have sent a reader away with a fever for life.
+ - A good reader is nearly as rare as a good writer. People bring their prejudices, whether friendly or adverse. They are lamp and spectacles, lighting and magnifying the page.
+ - It is the empiric who never fails.
+ - Some gifted adventurer is always sailing round the world of art and science, to bring home costly merchandise from every port.
+ - We waste the power in impatience which, if, otherwise employed, might remedy the evil.
+ - Taste is improved by cultivation.
+ - Whatever is beautiful is also profitable.
+ - The amplest knowledge has the largest faith. Ignorance is always incredulous. Tell an English cottager that the belfries of Swedish churches are crimson, and his own white steeple furnishes him with a contradiction.
+ - Taste is often one of the aspects of fashion.
+ - It is only dislocated minds whose movements are spasmodic.
+ - Honest fiction may be made to supplement the pulpit.
+ - It is supposable that, in the eyes of angels, a struggle down a dark lane and a battle of Leipsic differ in nothing but excess of wickedness.
+ - Genius is nourished from within and without.
+ - A cultivated reader of history is domesticated in all families; he dines with Pericles, and sups with Titian.
+ - The ponderous tomes are bales of the mind’s merchandise.
+ - Attention makes the genius; all learning, fancy, science and skills depend upon it. Newton traced his discoveries to it. It builds bridges, opens new worlds, heals diseases, carries on the business of the world. Without it taste is useless, and the beauties of literature unobserved.
+ - Some imitation is involuntary and unconscious.
+ - Winckelmann wished to live with a work of art as a friend. The saying is true of pen and pencil. Fresh lustre shoots from Lycidas in a twentieth perusal. The portraits of Clarendon are mellowed by every year of reflection.
+ - Talents, to strike the eye of posterity, should be concentrated. Rays, powerless while they are scattered, burn in a point.
+
+39 quotes

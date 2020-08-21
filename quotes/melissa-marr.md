@@ -1,0 +1,72 @@
+ - Happiness is a choice.
+ - Going backwards is never an option.
+ - Love makes you foolish. It makes you throw every bit of logic away, do stupid things, dangerous things.
+ - What does it mean when nightmares dream of peace? When shadows wish for light?
+ - Life is too short to read books that I’m not enjoying.
+ - I’m still yours, though. That won’t ever change, Shadow Girl.
+ - He looked good, like sin in a suit.
+ - Not Expecting, but hoping. Always hoping.
+ - I was the girl in the black leather jacket with the black fingernails, picked up after school by guys with loud cars and motorcycles. I carried straight-A grades, but I had a little trouble with rules. I tended to have a bit of an authority problem.
+ - Sometimes being human sucks.
+ - I like to read the ending first.
+ - Like chaos in a glass cage.
+ - And sometimes you meet someone who doesn’t see you any differently if you tell them. That is everything.
+ - Talking won’t change it. But sometimes it was what she wanted most, to tell someone; often, though, she just wanted to escape those horrid feelings, to escape herself, so there was no pain, no fear, no ugliness.
+ - Sometimes love means letting go when you want to hold on tighter.
+ - He’d given her his vow: to take care of her, to keep her from hurt or pain, from wanting for anything. Her leaving didn’t negate his promises; they weren’t conditional.
+ - I don’t know if you realize it or not, but your sudden devotion to her is creepy.
+ - If he took her into his arms, he would keep her. He wouldn’t let her suffer the way the other mortals had when he’d left them. He would keep her, with his court’s permission or without it. Irial wouldn’t take her, and Keenan wouldn’t stand between them.
+ - A clear division between good and evil, right and wrong, would simplify everything, but life was rarely simple.
+ - Chase away sorrow by living.
+ - Writing is not just the technical act of your fingers on the keyboard. Writing is living.
+ - Trust your instincts, trust your judgment.
+ - As a lifelong romance reader, its always satisfying to get to talk to other romance readers!
+ - You’re not weak at all. Wounded, but that’s nothing to be ashamed of.
+ - I still dream that it was you. No matter how many times I’ve looked, in my dreams it’s always been you who were meant to be my queen.
+ - We are what we are, neither a good or as bad as others paint us. And what we are doesn’t change how truly we feel, only how free we are to follow those feelings.
+ - Faeries are equally loyal and deceitful.
+ - I didn’t drown. I didn’t break.
+ - Seth gave her that: a private space to believe in the illusion of normalcy.
+ - Were you hoping for a quest? A seemingly impossible task that you could relay to your queen afterward? Would you like to tell her that you found and slayed the dragon for love of her? -Queen Sorcha.
+ - It wasn’t the tattoo that had changed her, had given her repossession of her body. It was her actions, her choices. It was finding the path when it looked like there weren’t any paths to be found.
+ - Then he kissed her, not just a brush of lips as she’d done, but a kiss a kiss that scalded her tongue. The tree burst into full blooms. The garden fluttered around her. A riot of flowers shot out of the earth. She was mud-covered as he pulled back.
+ - And he was gone before she could think clearly enough to explain that her yes was a Yes, I’ll marry you.
+ - You don’t have to do those things. You don’t have to become a hero, Seth.
+ - I was very afraid to write a novel – it was a dream for a very long time, and it was one of the few things that I was afraid to try.
+ - She was afraid, but she couldn’t just sit around waiting for someone to save her. She had to try to save herself, try to figure it out.
+ - And he smiled at her, truely smiled- wicked and lovely...
+ - He was an answer to a question she’d forgotten to ask.
+ - Love is a mistake when we’re all going to die any day now.
+ - I am Devlin, brother and advisor to the High Queen, assassin, and keeper of order.
+ - You already gave me forever, Aislinn. I’m asking for a chance at right now.
+ - Maybe the girl would get strong enough to withstand an ink exchange with one of the chosen faeries. If not, he could always give her to one of the weaker fey. It seemed a shame to waste a lovely broken toy.
+ - Some mortals – like you – are already half in love with death. It is who you are, and I’ll not make it harder on you by telling you things you don’t need to know. Ask me again when you die. Then I’ll tell you everything, anything, nothing.
+ - Some things are more important than safety.
+ - Sleep well, and stay where I put you.
+ - He didn’t slam the door, didn’t rage, didn’t weep, he simply left.
+ - They’ve been stealing mortals away for centuries, but they can’t have you.
+ - He leaned back for a moment to tug her shirt down her arms, with the same wicked, lovley smile that had first stolen her breath years ago.
+ - Loving someone meant letting them be who they were, not caging them.
+ - It was the only way he knew to protect the court, the faery, and the only mortal who’d ever mattered to him.
+ - By every mortal standard, the worst faeries in the world were those in the Dark Court. They fed on the baser emotions; they engaged in activities that the other-also amoral-faery courts repudiated. They were also the only ones she truly trusted or understood.
+ - The world is too fascinating to limit yourself to one path or one sort of people.
+ - I’d stop anyone from taking that smile from you. I would, if I were allowed.
+ - Discord says it’s a good idea. That’s comforting.
+ - I don’t know why certain people shine for others. I don know why you and not someone else.
+ - Love ans desire aren’t the same.
+ - Over a four-month period, I sat down and wrote every day. And then there was a novel, and all of a sudden, there were agents and offers.
+ - I don’t know what I am, but this isn’t happiness.
+ - As if fixing the little errors would made the big stuff manageable.
+ - In the end mortals always expired before faeries. They were such finite creatures. Their first heartbeat and breath were but a blink from death. To add the weight of nourishing his insatiable court in a time of peace was to hasten that unconscionably.
+ - You need to face what you’re running from.
+ - I eventually realized that good things wouldnt happen to me if I didnt make the right choices.
+ - Will you be my forever, Donia?
+ - Choose to be happy. It is what we have all done.
+ - I want to say that I really appreciate that readers are willing to work with my tendency to write in several different genres and for different age groups.
+ - That’s what the court needs-a happy king, a king who can’t stop dreaming of being lost in someone who wants to be just as lost. Tell me you’ll let me get lost in you.
+ - Stab one or two healers, and everyone overreacts.
+ - I was thinking it was worth the risk if it meant forever with my faery girlfriend.
+ - Love can give a person strength to break through glamours and magicks.
+ - You are the one who gives me reason to wake in the mornings, who infuriates me, who enrages me, who enthralls me. You are my passion, my fury, my soul. Shall i explain further?
+
+70 quotes

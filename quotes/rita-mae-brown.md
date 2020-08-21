@@ -1,0 +1,201 @@
+ - Never hope for it more than you work for it.
+ - Good judgment comes from experience, and experience comes from bad judgment.
+ - Happiness is pretty simple: someone to love, something to do, something to look forward to.
+ - Language is the road map of a culture. It tells you where its people come from and where they are going.
+ - About all you can do in life is be who you are. Some people will love you for you. Most will love you for what you can do for them, and some won’t like you at all.
+ - The statistics on sanity are that one out of every four people is suffering from a mental illness. Look at your 3 best friends. If they’re ok, then it’s you.
+ - The reward for conformity is that everyone likes you but yourself.
+ - The price of dishonesty is self-destruction.
+ - Don’t hope more than you’re willing to work.
+ - One of the keys to happiness is a bad memory.
+ - I still miss those I loved who are no longer with me but I find I am grateful for having loved them. The gratitude has finally conquered the loss.
+ - Life is unjust, people can be cruel, and yet if you harden your heart, you will lose what little love there is in this world.
+ - Sorrow is how we learn to love. Your heart isn’t breaking. It hurts because it’s getting larger. The larger it gets, the more love it holds.
+ - If it weren’t for the last minute, nothing would get done.
+ - To have meaningful work is a tremendous happiness.
+ - Tennis is physical chess.
+ - Language exerts hidden power, like the moon on the tides.
+ - You can love more than one person at a time, and I don’t give a damn what the self-help books say.
+ - Morals are private. Decency is public.
+ - People are like tea bags; you never know how strong they’ll be until they’re in hot water. In times of trouble, you not only discover what you truly believe but whether or not you can act on your beliefs.
+ - If you’re afraid to die, you’re afraid to live. You can’t have one without the other.
+ - Lead me not into temptation; I can find the way myself.
+ - Creativity comes from trust. Trust your instincts. And never hope more than you work.
+ - An army of lovers shall not fail.
+ - A life of reaction is a life of slavery, intellectually and spiritually. One must fight for a life of action, not reaction.
+ - Alcohol is an allergy of the body and an obsession of the mind.
+ - So much of life is happenstance. It makes me laugh when I go to a bookstore and see all those titles about controlling your life. You’re lucky if you can control your bladder.
+ - If you can’t raise consciousness, at least raise hell.
+ - I’ve met many irresponsible people in my life but never an irresponsible cat.
+ - We have the ability to be the Athens of modern times as opposed to the militaristic Sparta. I remind you that the Athenians wrote poetry. The Spartans did not.
+ - It doesn’t matter to me. We’re still cousins in our own way. Blood’s just something old people talk about to make you feel bad.
+ - Art is moral passion married to entertainment. Moral passion without entertainment is propaganda, and entertainment without moral passion is television.
+ - A peacefulness follows any decision, even the wrong one.
+ - Gossip is irresponsible communication.
+ - Pain isn’t always the enemy.
+ - If the world were a logical place, men would ride side saddle.
+ - English is weak in describing emotional states or intensities of interpersonal relationships.
+ - One must fight for a life of action, not reaction.
+ - Put your money in your head, that way no one can take it from you.
+ - Novels, like human beings, usually have their beginnings in the dark.
+ - Every day you’re alive and someone loves you is a miracle.
+ - I believe in a lively disrespect for most forms of authority.
+ - I finally figured out the only reason to be alive is to enjoy it.
+ - Loving’s pretty easy. It’s letting someone love you that’s hard.
+ - Every action is either strong or weak, and when every action is strong we are successful.
+ - Humor comes from self-confidence.
+ - Content without style is propaganda or adolescence. Style without content is decadence.
+ - To love without role, without power plays, is revolution.
+ - If critics want to help me, let them come sit next to me while I’m writing.
+ - What’s the point of prolonging your life if you don’t enjoy it? It’s your body. Do whatever you want with it. Better to wear out than rust over.
+ - Mother love is the most powerful, the most irrational force on earth, even more powerful than sexual love. However, one does lead to the other, so best not to spurn the former.
+ - Dean: Don’t you find that somewhat of an aberration? Doesn’t this disturb you my dear? After all, it’s not normal. Molly: I know it’s not normal for people in this world to be happy, and I’m happy.
+ - Sport strips away personality, letting the white bone of character shine through. Sport gives players an opportunity to know and test themselves.
+ - In America sex is an obsession. In Europe it’s a fact of life.
+ - You can’t be truly rude until you understand good manners.
+ - I believe you are your work. Don’t trade the stuff of your life, time, for nothing more than dollars. That’s a rotten bargain.
+ - Dying’s not so bad. At least I won’t have to answer the telephone.
+ - In America the word revolutionary is used to sell pantyhose.
+ - I hate the telephone. I think the lowest circle of hell is reserved for Alexander Graham Bell.
+ - Women who love women are Lesbians. Men, because they can only think of women in sexual terms, define Lesbian as sex between women.
+ - I became a lesbian because of women, because women are beautiful, strong, and compassionate.
+ - Women need to feel loved and men need to feel needed.
+ - I love literature, the English language and storytelling. I also have thirty horses and seventy foxhounds to feed.
+ - If Michaelangelo were a heterosexual, the Sistine Chapel would have been painted basic white and with a roller.
+ - Monogamy is contrary to nature but necessary for the greater social good.
+ - He unzipped his pants and his brains fell out.
+ - I don’t believe in straight or gay. I really don’t. I think we’re all degrees of bisexual.
+ - I used to think romantic love was a neurosis shared by two, a supreme foolishness. I no longer think that. There’s nothing foolish in loving anyone. Thinking you’ll be loved in return is what’s foolish.
+ - Familiarity breeds consent.
+ - Language is decanted and shared. If only one person is left alive speaking a language – the case with some American Indian languages – the language is dead. Language takes two and their multiples.
+ - A narcissism shared by two.
+ - Lesbianism, politically organized, is the greatest threat that exists to male supremacy.
+ - Whoever heard of a neurotic frog? Where do humans get off thinking they’re the pinnacle of evolution?
+ - When God made man she was practicing.
+ - One thing Mom taught me, “You’re going to be dead a long time, so do it now!”
+ - While cats can be infuriating, little old women in fur coats, they make me laugh. Of course, dogs, horses and my highly social chickens are dear to me, too.
+ - No one remembers her beginnings. Mothers and aunts tell us about infancy and early childhood, hoping we won’t forget the past when they had total control over our lives and secretly praying that because of it, we’ll include them in our future.
+ - The process of writing, any form of creativity, is a power intensifying life.
+ - Never measure literature by accounting statistics. A quarter of working authors earn less than $1,000.
+ - I believe all literature started as gossip.
+ - Sex is a pleasurable exercise in plumbing, but be careful or you’ll get yeast in your drain tap.
+ - Creative people do not belong in the university because the process is antithetical to the analytical process so necessary for proper scholarship.
+ - Leroy bet me I couldn’t find a pot of gold at the end, and I told him that was a stupid bet because the rainbow was enough.
+ - You sell a screenplay like you sell a car. If someone drives it off a cliff, that’s it.
+ - A deadline is negative inspiration. Still, it’s better than no inspiration at all.
+ - Where there is no faith, devils are a necessity.
+ - We animals live life in all its glorious uncertainty. Why do politicians think they can control events?
+ - There are more differences between poor people than between middle-class people.
+ - Some people live life and others talk about it.
+ - Adjectives are the curse of America.
+ - Mother believed in enjoying herself. Aunt Mimi believed in enjoying herself, then feeling guilty about it.
+ - We all want to leave our children the Garden of Eden and we wind up giving them hardscrabble.
+ - No animal on the face of the earth could conceive of taxation. You and I work roughly six months a year to pay our local, state and federal taxes. If nothing else, this should convince you that animals are smarter than people.
+ - I think of birth as the search for a larger apartment.
+ - Not until my middle thirties did I consider myself a novelist.
+ - I no longer idolize reason. I have come to accept that ninety percent of what we do is irrational and that we spend what little rational thought we have in justifying our irrationality.
+ - I believe that we often disguise pain through ritual and it may be the only solace we have.
+ - Don’t ask to live in tranquil times. Literature doesn’t grow there.
+ - When Mother died I was both freed and abandoned, as are we all at this profound juncture in our lives.
+ - I believe every change any word has undergone probably originated in ignorance.
+ - He tried to drown his troubles but they knew how to swim.
+ - Possession of a secret is no guarantee of its truth.
+ - Computer dating? It’s terrific if you’re a computer!
+ - About all you can do in life is be who you are.
+ - Political elections are not life and death.
+ - Never, ever underestimate your readers. Everything you do registers.
+ - Do not judge. Never presume to judge another human being anyway. That’s up to heaven.
+ - Death is a greatly overrated experience. I hated Mother’s and I’m not looking forward to my own. Apart from the sorrow there are the bills to be paid. Nobody dies for free.
+ - All creatures tread across the rubble of ruined civilizations. The trick is to keep moving. No animal ever goes about dispensing shallow compassion.
+ - Femininity and masculinity are social constructs. Female and male are biological. We don’t have to learn to be men or women but we do have to learn to be ladies and gentlemen.
+ - Love is the wild card of existence.
+ - I believe in art that conceals art.
+ - Armies are dependent on youthful male ignorance.
+ - What’s the point of being a lesbian if a woman is going to look and act like an imitation man?
+ - I’m not a person who worries too much about what I’ve done.
+ - Golf is an expensive way to make yourself miserable.
+ - Education is a wonderful thing. If you couldn’t sign your name you’d have to pay cash.
+ - Intuition is a suspension of logic due to impatience.
+ - Hollywood called just as I crested thirty. My novels did not and still do not interest them, but my writing ability did.
+ - The only people are those who don’t love anybody.
+ - Whenever I doubt the existence of God or the Goddess, I look at horses. Only God could have made a horse.
+ - For you to be successful, sacrifices must be made. It’s better that they are made by others but failing that, you’ll have to make them yourself.
+ - While the angels, all pallid and wan, Uprising, unveiling, affirm That the play is the tragedy, “Man”, And its hero the Conqueror Worm.
+ - I had to learn the image is not the word, which is a jolt for a literary soul. But it has served me well in terms of understanding plot, in terms of watching actors develop characters.
+ - No government has the right to tell its citizens when or whom to love.
+ - Self-pity is the simplest luxury.
+ - Once you know what women are like, men get kind of boring. I’m not trying to put them down, I mean I like them sometimes as people, but sexually they’re dull.
+ - Today we live in a society suffering from ethical rickets.
+ - Recognition of function always precedes recognition of being.
+ - Book tours are like boot camp but with little sleep and less food.
+ - It’s an act of faith to be a writer in a post literate world.
+ - Gossip is irresponsible communication. Irresponsible because it is at the expense of another person who is not there to defend herself. Irresponsible because it is not constructive: it helps no one, least of all the person being gossiped about.
+ - Oh well, maybe the only beauty left in cities is in the oil slicks on the road and maybe there isn’t any beauty left in the people who live in these places.
+ - As a woman, I find it very embarrassing to be in a meeting and realize I’m the only one in the room with balls.
+ - Gambling operates under the premise that greed can be satisfied by luck.
+ - One survey found that ten percent of Americans thought Joan of Arc was Noah’s wife.
+ - The human animal dances wildest on the edge of the grave.
+ - Never let anyone or any social attitude stand in the way of your productivity.
+ - I write poetry. It comes naturally to me, but from a technical point of view it forces me to pay close attention to language and to scan.
+ - Guilt is a Jewish invention improved upon by Christians for the last two thousand years.
+ - In art as in politics we must deal with people as they are not as we wish them to be. Only by working with the real can you get closer to the ideal.
+ - Consider the “new” woman. She’s trying to be Pollyanna Borgia, clearly a conflict of interest. She’s supposed to be a ruthless winner at work and a bundle of nurturing sweetness at home.
+ - American hunting is quite different from English hunting because we don’t hunt to kill. Even if I wanted to kill a fox, I couldn’t. They’re too smart and they have too many ways to escape me, whereas they don’t in England.
+ - Nothing is unnatural – just untried.
+ - Two wrongs don’t make a right. No, but three will get you back on the freeway!
+ - Mothers have a habit of proving right except you don’t find that out until you’re the age your mother was when she gave you the advice.
+ - Tennis, imprisoned within fixed boundaries, a patch of an acre, a green rectangle, tries the human soul. A tennis court is like a coffin, only larger.
+ - Show me a writer, any writer, who hasn’t suffered and I’ll show you someone who writes in pastels as opposed to primary colors.
+ - Writers will happen in the best of families.
+ - Oppression works in such a way that it holds every person responsible for the acts of any wrongdoer of the oppressed group.
+ - People aren’t grapes – you can’t weigh them in a bunch, but I guess it’s easier than dealing with people as individuals.
+ - Divorce is the one human tragedy that reduces everything to cash.
+ - There hasn’t been a day in my life since I started Latin in ninth grade that I haven’t benefited by the lives of the ancients.
+ - Virginia Woolf said that writers must be androgynous. I’ll go a step further. You must be bisexual.
+ - The dead are the only people to have permanent dwellings.
+ - The owner of Mojo’s was a suicide blonde, dyed by her own hand.
+ - There’s a thin line between collectivity and chaos...
+ - I think gay people are like blondes: There’re fewer of them but they have more fun.
+ - In sports, as in love, one can never pretend.
+ - So often the truth is told with hate, and lies are told with love.
+ - I believe the true function of age is memory. I’m recording as fast as I can.
+ - Aunt Mimi possessed a horror of silence, which she battled with endless chat. The Typhoid Mary of the Telephone started her calls at 6:30 each morning.
+ - My lesbianism is an act of Christian charity. All those women out there praying for a man, and I’m giving them my share.
+ - I think you can judge the level of success for any group of people by the reaction against it.
+ - Why can’t peace be a single overriding common purpose: why do we wait for a crisis to pull us together? Let’s pull together for peace.
+ - People who care for you inevitably become beautiful.
+ - Youth moves out, leaving no forwarding address. No matter how you try, you can’t reach that person again or that place.
+ - Life matters more than any painting, novel, film, or great big diamond.
+ - I am a comic writer, which means I get to slay the dragons, and shoot the bull.
+ - I think in the years to come what Reagan will be remembered for is that he had the chance to stop the plague and he chose not to because the ‘right people’ were dying.
+ - Seriousness is the refuge of the shallow. There are events and personal experiences that call forth seriousness but they are fewer than most of us think.
+ - Dad could charm a dog off a meat wagon.
+ - If you like my novels, I commend your good taste.
+ - All decisions are made on insufficient evidence.
+ - Knowing Latin and having two years of Attic Greek gave me the strong foundation upon which I’ve built a career. I think the classical training, more than anything, has provided me with longevity.
+ - If you don’t like my book, write your own.
+ - Would it upset men if they found out we weren’t different? Are we? Aren’t we? Damned if I know.
+ - Cats and dogs believe politicians are like cemetery caregivers; they are on top of everyone, but nobody listens.
+ - I don’t want to die. I think death is a greatly overrated experience.
+ - I don’t expect executives to be creative but I do expect them to have courage.
+ - There are very few people who are creative and imaginative. Therefore, fiction is difficult for people to embrace.
+ - It’s still easier to take a blow from outside than it is to be disgusted with myself for not taking a stand. I don’t know how people can live and not fight back but apparently millions do. They must hate themselves.
+ - It’s a big jump from smart to motherwit.
+ - England is an aquarium, not a nation.
+ - It really doesn’t take brains to be a politician as much as it takes stomach. Both would be nice, but in America we have accepted diminishing returns in this arena.
+ - Trouble is said to be good for an artist’s soul but almost never is.
+ - I can only say I wish I had slept with everyone I am accused of.
+ - The human animal varies from class to class, culture to culture. In one way we are consistent: We are irrational.
+ - Pornography exists for the lonesome, the ugly, the fearful – it’s made for the losers.
+ - I think the reason I choose the comic approach so often is because it’s harder, therefore affording me the opportunity to show off.
+ - The real reason Milton went blind was to avoid reading unsolicited manuscripts.
+ - I’ve got splinters in my nose from the best publishing doors in town.
+ - You’re nothing in America if you don’t have debt.
+ - Divorce: fission after fusion.
+ - The last thing I have to say is that ice is the past tense of water. I’ve always wanted to write that sentence and now I have.
+ - Money and writing appear to be mutually exclusive.
+ - I earned two Emmy nominations for writing, and two of the shows I had written were nominated for best in their category.
+ - The only good thing ever done by a committee was the King James version.
+ - Writers are the moral purifiers of the culture. We may not be pure ourselves but we must tell the truth, which is a purifying act.
+
+199 quotes

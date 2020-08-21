@@ -1,0 +1,144 @@
+ - Nothing is impossible, the word itself says ‘I’m possible’!
+ - The most important thing is to enjoy your life, to be happy. It’s all that matters.
+ - I believe in pink. I believe that laughing is the best calorie burner. I believe in kissing, kissing a lot. I believe in being strong when everything seems to be going wrong. I believe that happy girls are the prettiest girls. I believe that tomorrow is another day and I believe in miracles.
+ - For beautiful eyes, look for the good in others; for beautiful lips, speak only words of kindness; and for poise, walk with the knowledge that you are never alone.
+ - Happy girls are the prettiest.
+ - Anyone who does not believe in miracles is not a realist.
+ - I'm an introvert. I love being by myself, love being outdoors, love taking a long walk with my dogs and looking at the trees, flowers, the sky.
+ - Beauty is being the best possible version of yourself, inside and out.
+ - True friends are families which you can select.
+ - I don’t want to be alone, I want to be left alone.
+ - Paris is always a good idea.
+ - You can tell more about a person by what he says about others than you can by what others say about him.
+ - People, even more than things, have to be restored, renewed, revived, reclaimed, and redeemed; never throw out anyone.
+ - The best thing to hold onto in life is each other.
+ - The beauty of a woman is not in a facial mode but the true beauty in a woman is reflected in her soul. It is the caring that she lovingly gives the passion that she shows. The beauty of a woman grows with the passing years.
+ - I believe in miracles.
+ - As you grow older, you will discover that you have two hands, one for helping yourself, the other for helping others.
+ - The beauty of a woman must be seen from in her eyes, because that is the doorway to her heart, the place where love resides.
+ - When you have nobody you can make a cup of tea for, when nobody needs you, that's when I think life is over.
+ - If I get married, I want to be very married.
+ - Never regret anything that makes you smile.
+ - My greatest ambition is to have a career without becoming a career woman.
+ - Let's face it, a nice creamy chocolate cake does a lot for a lot of people; it does for me.
+ - True beauty in a woman is reflected in her soul.
+ - Life is a party. Dress for it.
+ - Make-up can only make you look pretty on the outside but it doesn’t help if your ugly on the inside. Unless you eat the make-up.
+ - To plant a garden is to believe in tomorrow.
+ - Your heart just breaks, that's all. But you can't judge or point fingers. You just have to be lucky enough to find someone who appreciates you.
+ - I believe in being strong when everything seems to be going wrong.
+ - Only the absolutely determined people succeed.
+ - Elegance is the only beauty that never fades.
+ - Cheating on a good woman is like choosing trash over treasure.
+ - My greatest victory has been to be able to live with myself, to accept my shortcomings. I’m a long way from the human being I’d liked to be, but I’ve decided I’m not so bad after all.
+ - To pull off any look, wear it with confidence.
+ - Always be a first-rate version of yourself.
+ - No matter where you run, you just end up running into yourself.
+ - I was born with an enormous need for affection, and a terrible need to give it.
+ - I believe, every day, you should have at least one exquisite moment.
+ - When I wear a silk scarf I never feel so definitely like a woman, a beautiful woman.
+ - I believe that tomorrow is another day and I believe in miracles.
+ - Ricorda, se hai bisogno di una mano la troverai alla fine del tuo braccio. Remember, if you need a hand you’ll find it at the end of your arm.
+ - To have beautiful lips, say beautiful things. To have beautiful eyes, look at people and see the good in them.
+ - Laughing is the best calorie burner.
+ - I don’t take my life seriously, but I do take what I do – in my life – seriously -.
+ - To be happy – that’s all that matters.
+ - A woman can be beautiful as well as intellectual.
+ - Whatever you love most, you fear you might lose, you know it can change. Why do you look from left to right when you cross the street? Because you don’t want to get run over. But, you still cross the street.
+ - I love people who make me laugh!
+ - Living is like tearing through a museum. Not until later do you really start absorbing what you saw, thinking about it, looking it up in a book, and remembering – because you can’t take it in all at once.
+ - I don’t need a bedroom to prove my womanliness. I can convey just as much sex appeal picking apples off a tree or standing in the rain.
+ - You have to look at yourself objectively. Analyze yourself like an instrument. You have to be absolutely frank with yourself. Face your handicaps, don’t try to hide them. Instead, develop something else.
+ - Everything I learned I learned from the movies.
+ - Happiness is health and a short memory!
+ - Who thinks you’re as fantastic as your dog does?
+ - There is a shade of red for every woman.
+ - If we are meant to “love thy neighbor as theyself,” then surely we should love the world’s children as our own.
+ - On the one hand maybe I’ve remained infantile, while on the other I matured quickly, because at a young age I was very aware of suffering and fear.
+ - Take care of the small circle around you. When you have succeeded with them, then move outwards, one small step at a time.
+ - The beauty of a woman is not in the clothes she wears, the figure that she carries or the way she combs her hair.
+ - For beautiful hair, let a child run his or her fingers through it once a day.
+ - I have to be alone very often. I’d be quite happy if I spent from Saturday night until Monday morning alone in my apartment. That’s how I refuel.
+ - Why change? Everyone has his own style. When you have found it, you should stick to it.
+ - If I’m honest I have to tell you I still read fairy-tales and I like them best of all.
+ - If you ever need a helping hand, it is at the end of your arm. As you get older you must remember you have a second hand. The first one is to help yourself. The second hand is to help others.
+ - Taking care of children has nothing to do with politics. I think perhaps with time, instead of there being a politicisation of humanitarian aid, there will be a humanisation of politics.
+ - Good things aren’t supposed to just fall into your lap. God is very generous, but He expects you to do your part first.
+ - I will not rest until no child goes hungry. All is possible.
+ - I don’t believe in collective guilt, but I do believe in collective responsibility.
+ - A quality education has the power to transform societies in a single generation, provide children with the protection they need from the hazards of poverty, labor exploitation and disease, and given them the knowledge, skills, and confidence to reach their full potential.
+ - Giving is living. If you stop wanting to give, there’s nothing more to live for.
+ - I decided, very early on, just to accept life unconditionally; I never expected it to do anything special for me, yet I seemed to accomplish far more than I had ever hoped. Most of the time it just happened to me without my ever seeking it.
+ - Ive had my share of difficult moments, but whatever difficulties Ive gone through, Ive always gotten a prize at the end.
+ - I love people who make me laugh. I honestly think it’s the thing I like most, to laugh. It cures a multitude of ills. It’s probably the most important thing in a person.
+ - Never throw out anyone.
+ - It always boils down to the same thing – not only receiving love, but desperately needing to give it.
+ - There are more important things than outward appearance. No amount of makeup can cover an ugly personality.
+ - I have no illusions about my looks. I think my face is funny.
+ - The ‘Third World’ is a term I don’t like very much, because we’re all one world. I want people to know that the largest part of humanity is suffering.
+ - Pick the day. Enjoy it– to the hilt.
+ - What would be awful would be to die and look back miserably – seeing only the bad things, the opportunities missed, or what could have been.
+ - I realize that most of us live on the skin – on the surface – without appreciating just how wonderful it is simply to be alive at all.
+ - I’ve been lucky. Opportunities don’t often come along. So, when they do, you have to grab them.
+ - Some people dream of having a big swimming pool. With me, it’s closets.
+ - It’s that wonderful old-fashioned idea that others come first and you come second. This was the whole ethic by which I was brought up. Others matter more than you do, so ‘don’t fuss, dear; get on with it.’
+ - As a matter of fact, I rather feel like expressing myself now.
+ - For lovely eyes, seek out the good in people.
+ - It is too much to hope that I shall keep up my success. I don’t ask for that. All I shall do is my best- and hope.
+ - Promise me one thing: don’t take me home until I’m drunk – very drunk indeed.
+ - I’m half-Irish, half-Dutch, and I was born in Belgium. If I was a dog, I’d be in a hell of a mess!
+ - When the chips are down, you are alone, and loneliness can be terrifying. Fortunately, I’ve always had a chum I could call. And I love to be alone. It doesn’t bother me one bit. I’m my own company.
+ - There must be something wrong with those people who think Audrey Hepburn doesn’t perspire, hiccup or sneeze, because they know that’s not true. I n fact, I hiccup more than most.
+ - I was asked to act when I couldn’t act. I was asked to sing ‘Funny Face’ when I couldn’t sing, and dance with Fred Astaire when I couldn’t dance – and do all kinds of things I wasn’t prepared for. Then I tried like mad to cope with it.
+ - I may not always be offered work, but I’ll always have my family.
+ - I never expected to be a star, never counted on it, never even wanted it. Not that I didn’t enjoy it all when it happened.
+ - I lack self-confidence. I don’t know whether I shall ever get it. Perhaps it is better to be unsure of your self, as I am. But it is very tiring.
+ - You can only hope to get a combination of happy work and a happy life.
+ - I don’t want to own anything until I find a place where me and things go together. I’m not sure where that is but I know what it is like. It’s like Tiffany’s.
+ - Since the world has existed, there has been injustice. But it is one world, the more so as it becomes smaller, more accessible. There is just no question that there is more obligation that those who have should give to those who have nothing.
+ - And I always heard people in New York never get to know their neighbors.
+ - I never thought I’d land in pictures with a face like mine.
+ - In Holland and Belgium, and afterwards in England, my happiest moments were in the country. I’ve always had a passion for the outdoors, for trees, for birds and flowers.
+ - Can I have a silk nightgown with rosebuds on it?
+ - Thursday? Oh no, it can’t be! It’s too gruesome.
+ - For my whole life, my favorite activity was reading. It’s not the most social pastime.
+ - We all want to be loved, don’t we? Everyone looks for a way of finding love. It’s a constant search for affection in every walk of life.
+ - My look is attainable. Women can look like Audrey Hepburn by flipping out their hair, buying the large sunglasses, and the little sleeveless dresses.
+ - For me the only things of interests are those linked to the heart.
+ - Is there anything more important than a child?
+ - And the beauty of a woman, with passing years only grows!
+ - I am proud to have been in a business that gives pleasure, creates beauty, and awakens our conscience, arouses compassion, and perhaps most importantly, gives millions a respite from our so violent world.
+ - I tried always to do better: saw always a little further. I tried to stretch myself.
+ - If you lead a simple life, and that story is written, then that story will not satisfy. It needs an angle. Suppose there is no angle?
+ - Whatever a man might do, whatever misery or heartache your children might give you – and they give you a lot – however much your parents irritate you – it doesn’t matter because you love them.
+ - You can always tell what kind of a person a man really thinks you are by the earrings he gives you.
+ - You mustnt give your heart to a wild thing. The more you do, the stronger they get.
+ - Have we forgotten about the children, and thus forsaken the next generation?
+ - To be beautiful lips – say kind words. To my eyes were beautiful – radiate good. A woman’s beauty is not in the clothes, not in its shape or hairstyle. Beauty woman in her eyes, because the eyes – is the gateway to the heart, where love lives.
+ - Success is like reaching an important birthday and finding you’re exactly the same.
+ - Well, it’s nice being top banana in the shock department.
+ - There is a science of war, but how strange that there isn’t a science of peace. There are colleges of war; why can’t we study peace?
+ - For attractive lips, speak words of kindness.
+ - I speak for those children who cannot speak for themselves, children who have absolutely nothing but their courage and their smiles, their wits and their dreams.
+ - I have always had a reputation for being frugal – less kind people might call me cheap. But my interest in building up a nest egg goes back to those days in Arnhem when I learned that money can grow, just like trees.
+ - Actually, depravity can be terribly boring if you don’t smoke or drink.
+ - Each, in its own way, was unforgettable. It would be difficult to – Rome! By all means, Rome. I will cherish my visit here in memory as long as I live.
+ - I believe in kissing, kissing a lot.
+ - I hope for better things, and I thank God the world is also full of people who want to be genuine and kind.
+ - The most important thing is growing old gracefully.
+ - Living is like tearing through a museum.
+ - I heard a definition once: Happiness is health and a short memory! I wish I’d invented it, because it is very true.
+ - I never think of myself as an icon. What is in other people’s minds is not in my mind. I just do my thing.
+ - There is more to sex appeal than just measurements.
+ - If I blow my nose, it gets written all over the world.
+ - There are certain shades of limelight that can wreck a girl’s complexion.
+ - I have a long-lasting gratitude and trust for what UNICEF does.
+ - Fewer things are lovelier to me than a full-blown rose when it opens up its heart.
+ - The more there is, the less I want. The more man flies to the moon, the more I want to look at a tree.
+ - If my world were to cave in tomorrow, I would look back on all the pleasures, excitements and worthwhilenesses I have been lucky enough to have had. Not the sadness, not my miscarriages or my father leaving home, but the joy of everything else. It will have been enough.
+ - As much as I loved the art and discipline of the dance, it didn’t love me!
+ - I probably hold the distinction of being one movie star who, by all laws of logic, should never have made it. At each stage of my career, I lacked the experience.
+ - I’ve always had- how shall I say it? -the prize at the end. My whole life shows that.
+ - Work as hard as you can, whatever you do, and try to spread generosity of spirit.
+
+142 quotes

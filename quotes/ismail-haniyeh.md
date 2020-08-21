@@ -1,0 +1,29 @@
+ - We came to say, the Quran is our constitution, we are committed to God and his holy book. God willing, should they try to carry out their crime against the Quran, God will tear their state apart and they will become God’s lesson to anyone who tries to desecrate the holy book.
+ - Some people think that the truth can be hidden with a little cover-up and decoration. But as time goes by, what is true is revealed, and what is fake fades away.
+ - The Hamas movement will lead Intifada after Intifada until we liberate Palestine – all of Palestine, Allah willing.
+ - Israel no longer has allies in Egypt and in Tunisia, we are saying to the Zionist enemies that times have changed and that the time of the Arab Spring, the time of the revolution, of dignity and of pride has arrived.
+ - Anybody who asks for democracy to be introduced should respect the results of democracy.
+ - Getting rid of Bin Laden is good for the cause of peace worldwide but what counts is to overcome the discourse and the methods – the violent methods – that were created and encouraged by Bin Laden and others in the world.
+ - The victory of Hamas is not only based on the corruption of the Palestinian Authority. Hamas has a vision and a program, and this is the reason why the Palestinian people chose Hamas. However, there is no doubt that the corruption helped Hamas’s victory.
+ - I salute all the nations of the Arab Spring and I salute the heroic people of Syria who are striving for freedom, democracy and reform.
+ - Doesn’t the world see the suffering of millions of Palestinians who have been living in exile around the world or in refugee camps for the past 60 years? No state, no home, no identity, no right to work. Doesn’t the world see this injustice?
+ - The answer is to let Israel say it will recognize a Palestinian state along the 1967 borders, release the prisoners, and recognize the rights of the refugees to return to Palestine. Hamas will have a position if this occurs.
+ - We promise you that we will not cede a single part of Palestine, we will not cede Jerusalem, we will continue to fight and we will not lay down our arms.
+ - The Palestinian people do not beg the world for a state, and the state can’t be created through decisions and initiatives. States liberate their land first and then the political body can be established.
+ - When the Israeli leaders launched their expansionist war in June 1967 they never envisaged that 40 years later they would still be haunted by the consequences.
+ - We are pushing towards the dream of having our independent state with Jerusalem as its capital. If there is a real project that aims to resolve the Palestinian cause on establishing a Palestinian state on 1967 borders, under full Palestinian sovereignty, we will support it.
+ - The increasing mistrust between the Arab-Muslim peoples and the western world is rooted in the conflict in Palestine.
+ - The Europeans and Americans have said the martyrdom operations are why Hamas has been put on the terrorist list. But now these operations have stopped. Did they then remove Hamas from the list of terrorist organisations? We do not launch wars. We are people resisting occupation.
+ - We urge you to understand the Palestinian reality, and not to rush in and impose conditions and demands that ignore this reality and increase the suffering of the people.
+ - We don’t have a state, neither in Gaza nor in the West Bank. Gaza is under siege and the West Bank is occupied. What we have in the Gaza Strip is not a state, but rather a regime of an elected government. A Palestinian state will not be created at this time except in the territories of 1967.
+ - Today three-quarters of the Palestinian people are displaced: there are 5 million Palestinian refugees throughout the world.
+ - The liberals and free people of the world will not like to see the Palestinian people living under siege. We have received indications from the international community that they will not stop their aid.
+ - I ask the American administration not to participate in any resolution that will double the suffering of the Palestinian people. I am convinced that the American people would not want to see the Palestinians suffer the way they do.
+ - Tens of thousands have been killed or wounded by the Israeli army since 1967. During 2006, the number of Palestinians killed reached 650. Since the beginning of the Israeli occupation in 1967, more than 650,000 Palestinians have been detained by Israel – about 40% of the male population.
+ - In addition to removing our democratically elected government, Israel wants to sow dissent among Palestinians by claiming that there is a serious leadership rivalry among us. I am compelled to dispel this notion definitively.
+ - We repeat today that we are with the establishment of a Palestinian state on any liberated part of Palestinian land that is agreed upon by the Palestinian people, without recognizing Israel or conceding any inch of historical Palestine.
+ - The underlying problem remains the Israeli occupation of Palestinian land and the continuing Israeli assaults against our people.
+ - Which Israel should we recognize? The Israel of 1917; the Israel of 1936; the Israel of 1948; the Israel of 1956; or the Israel of 1967? Which borders and which Israel? Israel has to recognize first the Palestinian state and its borders and then we will know what we are talking about.
+ - Every Palestinian family feels the effects of the international embargo. But the more the pressure on the government grows, the more support we receive, both from the Palestinian street and from the Arab and Islamic world.
+
+27 quotes

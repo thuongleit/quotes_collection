@@ -1,0 +1,105 @@
+ - There was another life that I might have had, but I am having this one.
+ - If you are under the impression you have already perfected yourself, you will never rise to the heights you are no doubt capable of.
+ - We took away your art because we thought it would reveal your souls. Or to put it more finely, we did it to prove you had souls at all.
+ - Memories, even your most precious ones, fade surprisingly quickly. But I don’t go along with that. The memories I value most, I don’t ever see them fading.
+ - Love isn’t about when you first meet. It’s about the many, many years you spend together, when you’re trying to keep that flame burning.
+ - I keep thinking about this river somewhere, with the water moving really fast. And these two people in the water, trying to hold onto each other, holding on as hard as they can, but in the end it’s just too much. The current’s too strong. They’ve got to let go, drift apart.
+ - What is pertinent is the calmness of beauty, its sense of restraint. It is as though the land knows of its own beauty, its own greatness, and feels no need to shout it.
+ - We all live inside bodies that will deteriorate. But when you look at human beings, they’re capable of very decent things: love, loyalty. When time is running out, they don’t care about possessions or status. They want to put things right if they’ve done wrong.
+ - Don’t you wonder sometimes, what might have happened if you tried?
+ - What I’m not sure about, is if our lives have been so different from the lives of the people we save. We all complete. Maybe none of us really understand what we’ve lived through, or feel we’ve had enough time.
+ - It was like when you make a move in chess and just as you take your finger off the piece, you see the mistake you’ve made, and there’s this panic because you don’t know yet the scale of disaster you’ve left yourself open to.
+ - The evening’s the best part of the day. You’ve done your day’s work. Now you can put your feet up and enjoy it.
+ - It had never occurred to me that our lives, which had been so closely interwoven, could unravel with such speed.
+ - I like the fact that by mimicking the way memory works, a writer can actually write in a fluid way – one solid scene doesn’t have to fall on another solid scene, you can just have a fragment that then dovetails into another one that took place 30 years apart from it.
+ - Indeed – why should I not admit it? – in that moment, my heart was breaking.
+ - You say you’re sure? Sure that you’re in love? How can you know it? You think love is so simple?
+ - When you become a parent, or a teacher, you turn into a manager of this whole system. You become the person controlling the bubble of innocence around a child, regulating it.
+ - I can’t even say I made my own mistakes. Really – one has to ask oneself – what dignity is there in that?
+ - I want my words to survive translation.
+ - Your life must now run the course that’s been set for it.
+ - An artist’s concern is to capture beauty wherever he finds it.
+ - And if these incidents now seem full of significance and all of a piece, it’s probably because I’m looking at them in the light of what came later...
+ - I’m interested in memory because it’s a filter through which we see our lives, and because it’s foggy and obscure, the opportunities for self-deception are there. In the end, as a writer, I’m more interested in what people tell themselves happened rather than what actually happened.
+ - Every country should have a strong literary tradition of its own at the center, but it should also have an interest in other countries.
+ - I really have to think of the things fiction can do that film can’t and play to the strengths of the novel. With a novel you can get right inside somebody’s head.
+ - If you look at my last songs and first short stories, there is a real connection between them.
+ - Poor creatures. What did we do to you? With all our schemes and plans?
+ - The fantasy never got beyond that – I didn’t let it – and though the tears rolled down my face, I wasn’t sobbing or out of control. I just waited a bit, then turned back to the car, to drive off to wherever it was I was supposed to be.
+ - All children have to be deceived if they are to grow up without trauma.
+ - There is certainly a satisfaction and dignity to be gained in coming to terms with the mistakes one has made in the course of one’s life.
+ - When a man induces his wife to turn suspicious thoughts against her own father, then that is surely cause enough for resentment.
+ - I think of my pile of old paperbacks, their pages gone wobbly, like they’d once belonged to the sea.
+ - Maybe all of us at Hailsam had little secrets like that – little private nooks created out of thin air where we could go off alone without fears and longing.
+ - If you go to Tokyo, I think it becomes very obvious that there’s this almost seamless mixture of popular culture and Japanese traditional culture.
+ - Sometimes I get so immersed in my own company, if I unexpectedly run into someone I know, it’s a bit of a shock and takes me a while to adjust.
+ - Perhaps it is indeed time I began to look at this whole matter of bantering more enthusiastically. After all, when one thinks about it, it is not such a foolish thing to indulge in – particularly if it is the case that in bantering lies the key to human warmth.
+ - All you decent, well-meaning gentlemen, let me ask you, have you any idea what sort of place the world is becoming all around you? The days when you could act out of your noble instincts are over. Except of course, you here in Europe don’t yet seem to know it.
+ - I discovered that my imagination came alive when I moved away from the immediate world around me.
+ - You’re always in a rush, or else you’re too exhausted to have a proper conversation. Soon enough, the long hours, the traveling, the broken sleep have all crept into your being and become part of you, so everyone can see it, in your posture, your gaze, the way you move and talk.
+ - There was surely nothing to indicate at the time that such evidently small incidents would render whole dreams forever irredeemable.
+ - I wouldn’t want to try to adapt something of my own. It would be like going back to school and doing all my exams again.
+ - Many of our deepest motives come, not from an adult logic of how things work in the world, but out of something that is frozen from childhood.
+ - What is pertinent is the calmness of that beauty, its sense of restraint.
+ - It is one of the enjoyments of retirement that you are able to drift through the day at your own pace, easy in the knowledge that you have put hard work and achievement behind you.
+ - She always wanted to believe in things.
+ - I don’t think it’s any fun, even if you are one of the most respected authors in the world like Margaret Atwood, to keep being nominated and not win.
+ - The problem, as I see it, is that you’ve been told and not told. You’ve been told, but none of you really understand, and I dare say, some people are quite happy to leave it that way.
+ - After all, what can we ever gain in forever looking back and blaming ourselves if our lives have not turned out quite as we might have wished?
+ - One is not struck by the truth until prompted quite accidentally by some external event.
+ - And I’m a Hailsham student – which is enough by itself sometimes to get people’s backs up.
+ - There’s a practical problem about time and energy, and a more subtle problem of what it does to a writer’s head, to continually analyze why they write, where it all comes from, where it’s going to.
+ - I think it’s quite difficult to understand what kind of life a writer leads. They might be millionaires, or they might be starving people.
+ - Perhaps one day, all these conflicts will end, and it won’t be because of great statesmen or churches or organisations like this one. It’ll be because people have changed. They’ll be like you, Puffin. More a mixture. So why not become a mongrel? It’s healthy.
+ - I felt slightly superior to student politics, for instance. I had no reason to think this, but I thought of myself as slightly more seasoned. I became quite cynical talking to my student friends.
+ - She might be a great person, but life’s so much bigger than just loving someone.
+ - Memory is quite central for me. Part of it is that I like the actual texture of writing through memory.
+ - I find Japanese books quite baffling when I read them in translation. It’s only with Haruki Murakami that I find Japanse fiction that I can understand and relate to. He’s a very international writer.
+ - People were incredibly kind to our family and went out of their way to help.
+ - To see the best before I have properly begun would be somewhat premature.
+ - I realised, of course, that other people used these roads; but that night, it seemed to me these dark byways of the country existed just for the likes of us, while the big glittering motorways with their huge signs and super cafes were for everyone else.
+ - Now naturally, like many of us, I have a reluctance to change too much of the old ways.
+ - Even at the time, I realised this couldn’t be right, that this interpretation didn’t fit with the rest of the lyrics. But that wasn’t an issue with me. The song was about what I said, and I used to listen to it again and again, on my own, whenever I got the chance.
+ - There comes a point when you can more or less count the number of books you’re going to write before you die.
+ - There are things I am more interested in than the clone thing. How are they trying to find their place in the world and make sense of their lives? To what extent can they transcend their fate? As time starts to run out, what are the things that really matter?
+ - Everything might scatter. You might be right. I suppose it’s something we can’t easily get away from. People need to feel they belong. To a nation, to a race. Otherwise, who knows what might happen? This civilisation of ours, perhaps it’ll just collapse. And everything scatter, as you put it.
+ - Memory, I realize, can be an unreliable thing; often it is heavily coloured by the circumstances in which one remembers.
+ - Because maybe, in a way, we didn’t leave it behind nearly as much as we might once have thought. Because somewhere underneath, a part of us stayed like that: fearful of the world around us, and no matter how much we despised ourselves for it – unable quite to let each other go.
+ - I think there is a huge difference between writers who have very big sales, and writers who have small sales. Even writers with very high reputations, even Nobel prize winners, often sell in very low figures.
+ - I think jogging is bad for your health. All that pressure on the knees and back cannot be good for you.
+ - What I wished more than anything was that the thing hadn’t happened at all, and I thought that by not mentioning it I’d be doing everyone else a favor.
+ - What is difficult is the promotion, balancing the public side of a writer’s life with the writing. I think that’s something a lot of writers are having to face. Writers have become much more public now.
+ - When I was younger, I didn’t read that much. I was more interested in film and music. Now I’m curious. I want to know what it’s all about.
+ - I grew up in Britain before it became a multicultural place, so in many ways I have a nostalgia for an England that’s vanished – the England of my childhood has actually disappeared.
+ - If you were a boy and a girl and you were in love with each other, really, properly in love, and if you could show it, then the people who run Hailsham, they sorted it out for you. They sorted it out so you could have a few years together before you began your donations.
+ - One need hardly dwell on the catastrophic possibility of uttering a bantering remark only to discover it wholly inappropriate.
+ - What interests me is the surprising enormous extent to which most people accept the fate that’s been given to them, and find some dignity.
+ - The Booker triumph of Graham Swift’s moving, effortlessly profound Last Orders is a vindication of the quiet, much-misunderstood path this fine writer chose to take after the brilliance of Waterland more than ten years ago.
+ - I want my words to survive translation. I know when I write a book now I will have to go and spend three days being intensely interrogated by journalists in Denmark or wherever. That fact, I believe, informs the way I write – with those Danish journalists leaning over my shoulder.
+ - I started as a songwriter and wanted to be like Leonard Cohen. I’ve always seen my stories as enlarged songs.
+ - Now when I look back to the Guildford of that time, it seems far more exotic to me than Nagasaki.
+ - You need to remember that. If you’re to have decent lives, you have to know who you are and what lies ahead of you, every one of you.
+ - I couldn’t speak Japanese very well, passport regulations were changing, I felt British and my future was in Britain. And it would also make me eligible for literary awards. But I still think I’m regarded as one of their own in Japan.
+ - As with a wound on one’s own body, it is possible to develop an intimacy with the most disturbing of things.
+ - As a writer, I’m more interested in what people tell themselves happened rather than what actually happened.
+ - Our family arrived in England in 1960. At that time I thought the war was ancient history. But if I think of 15 years ago from now, thats 1990, and that seems like yesterday to me.
+ - My friends and I took songwriting very, very seriously. My hero was and still is Bob Dylan, but also people like Leonard Cohen and Joni Mitchell and that whole generation.
+ - I don’t have a deep link with England like, say, Jonathan Coe or Hanif Kureishi might demonstrate. For me, it is like a mythical place.
+ - Throughout my career I’ve struggled to encourage people to read my books on a more metaphorical level. I’m less attached to my settings than, for example, Saul Bellow. The setting of a novel for me is just a part of the technique. I choose it at the end.
+ - I think I had actually served my apprenticeship as a writer of fiction by writing all those songs. I had already been through phases of autobiographical or experimental stuff.
+ - So why not become a mongrel? It’s healthy.
+ - I spent ages figuring out things like viewpoint, how you tell the story, and so on.
+ - Screenplays I didn’t really care about, journalism, travel books, getting my writer friends to write about their dreams or something. I just determined to write the books I had to write.
+ - The world is crawling with authors touring now. They’re like performance artists.
+ - I like novelists who can create other interesting worlds.
+ - It was like being given a maths problem when your brain’s exhausted, and you know there’s some far-off solution, but you can’t work up the energy even to give it a go. Something in me just gave up.
+ - When I see films made from books, I make a huge effort not to remember the book. It’s important to see the film as a film.
+ - I was a little concerned that a lot of people thought I wrote Merchant Ivory movies. I also thought if I was ever going to write something strange and difficult, that was the time.
+ - My donors have always tended to do much better than expected.
+ - People aren’t quite sure what it means when a book is a Booker Prize winner. They’re not quite sure what is being recommended, what literary values it stands for, because every year it stands for something different.
+ - I had been plunged into a different world. I found myself spending half my time answering weird questions on book tours in the Midwest. People would stand up and explain to me the situation in their office and ask me whether they should resign or not.
+ - Its was one of those events which at a crucial stage in one’s development arrive to challenge and stretch one to the limit of one’s ability and beyond, so that thereafter one has a new standard by which to judge oneself.
+ - I’ve always had a great fondness for English detective fiction such as Agatha Christie and Dorothy Sayers.
+ - You have to accept that sometimes that’s how things happen in this world. People’s opinions, their feelings, they go one way, then the other. It just so happens you grew up at a certain point in this process.
+
+103 quotes

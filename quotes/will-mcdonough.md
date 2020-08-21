@@ -1,0 +1,23 @@
+ - The future is electronic. It’s radio, television and the Internet; it’s not really newspapers anymore.
+ - One of my first jobs was at the Boston Globe. I worked in the sports department six months a year. When I was ready to graduate, the sports editor gave me a job as a schoolboy sports writer.
+ - Pete Rozelle used television to get the game to the American public by creating the Super Bowl and making it the biggest sporting event in the world.
+ - I think the greatest all-around athlete ever was Jim Brown. He played lacrosse, basketball and ran track at Syracuse. He played professional football for the Browns.
+ - I don’t think the players play with the same desire they once did.
+ - I don’t think we use television the way we should or the way the inventors intended.
+ - When I started at the Globe 40 years ago, there were seven newspapers in Boston and now there are only two. There were only three or four television stations in Boston and now there are a dozen.
+ - There aren’t enough good journalists. There are too many who really weren’t groomed to be reporters and, as a result, some of the reporting is shallow.
+ - I’ve been very fortunate to be involved in all the Super Bowls, to see some World Series, to cover heavyweight championship fights; I’ve been to the Olympics and seen every sporting event there is.
+ - The wonderful thing about television is the immediate impact of pictures of current events.
+ - I received $100 per week when I started working at the Globe after graduation.
+ - I don’t think there is enough educational programming, but unfortunately, television is built around advertising and those shows don’t get the big ratings.
+ - I think money in general hurts all sports.
+ - The one good thing about television is the money; you can make a lot more money than in newspapers.
+ - I predict that many teams will go out of business and the size of the leagues will be greatly reduced.
+ - I think almost every newspaper in the United States has lost circulation due to the Internet. I also think the Internet will lead to a lot of plagiarism in journalism.
+ - Overall, I think Michael Jordan is the greatest athlete in any particular sport. He dominated the game for the Chicago Bulls and brought the NBA to its greatest peak of popularity.
+ - I was fortunate to be part of a very successful show on CBS in 1986. I switched to NBC for eight years and through these experiences have gotten terrific insight into television; it’s a fascinating medium.
+ - The ability of players to jump teams when their contracts are up has hurt fan loyalty.
+ - Muhammad Ali is a combination of personality and athlete who is probably better known around the world than any other. He became a great hero.
+ - I think we’ll always have newspapers, but they’ll lose influence.
+
+21 quotes

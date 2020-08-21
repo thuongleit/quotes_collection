@@ -1,0 +1,105 @@
+ - Today a reader, tomorrow a leader.
+ - If you have knowledge, let others light their candles in it.
+ - Nature provides exceptions to every rule.
+ - Very early, I knew that the only object in life was to grow.
+ - Pain has no effect but to steal some of my time.
+ - Men for the sake of getting a living forget to live.
+ - I accept the universe!
+ - The civilized man is a larger mind but a more imperfect nature than the savage.
+ - The mind is not, I know, a highway, but a temple, and its doors should not be carelessly left open.
+ - Beware the mediocrity that threatens middle age, its limitation of thought and interest, its dullness of fancy, its too external life, and mental thinness.
+ - Give me truth; cheat me by no illusion.
+ - Truth is the nursing mother of genius. No man can be absolutely true to himself, eschewing cant, compromise, servile imitation, and complaisance without becoming original.
+ - When the intellect and affections are in harmony; when intellectual consciousness is calm and deep; inspiration will not be confounded with fancy.
+ - We need to hear the excuses men make to themselves for their worthlessness.
+ - Everywhere the fatal spirit of imitation, of reference to European standards, penetrates and threatens to blight whatever of original growth might adorn the soil.
+ - There is some danger lest there be no real religion in the heart which craves too much daily sympathy.
+ - How many persons must there be who cannot worship alone since they are content with so little.
+ - Tragedy is always a mistake; and the loneliness of the deepest thinker, the widest lover, ceases to be pathetic to us so soon as the sun is high enough above the mountains.
+ - There are noble books but one wants the breath of life sometimes. And I see no divine person. I myself am more divine than any I see I think that is enough to say about them...
+ - As to marriage, I think the intercourse of heart and mind may be fully enjoyed without entering into this partnership of daily life.
+ - The use of criticism, in periodical writing, is to sift, not to stamp a work.
+ - Those have not lived who have not seen Rome.
+ - I now know all the people worth knowing in America, and I find no intellect comparable to my own.
+ - Man is not made for society, but society is made for man. No institution can be good which does not tend to improve the individual.
+ - Harmony exists no less in difference than in likeness, if only the same key-note govern both parts.
+ - The Arabian horse will not plough well, nor can the plough-horse be rode to play the jereed.
+ - It is so true that a woman may be in love with a woman, and a man with a man. It is pleasant to be sure of it, because it is undoubtedly the same love that we shall feel when we are angels...
+ - There are noble books but one wants the breath of life sometimes.
+ - With the intellect, I always have-always shall overcome, but that is not half of the work of life. The life-oh my God-shall the life never be sweet?
+ - There exists in the minds of men a tone of feeling toward women as toward slaves.
+ - Truth is the nursing mother of genius.
+ - Nature seems to have poured forth her riches so without calculation, merely to mark the fullness of her joy.
+ - Amid all your duties, keep some hours to yourself.
+ - Not one man, in the million, shall I say? no, not in the hundred million, can rise above the belief that woman was made for man...
+ - Our capacities, our instincts for this our present sphere are but half developed. Let us be completely natural; before we trouble ourselves with the supernatural.
+ - Drudgery is as necessary to call out the treasures of the mind, as harrowing and planting those of the earth.
+ - Preparations are good in life, prologues ruinous.
+ - This is the method of genius, to ripen fruit for the crowd by those rays of whose heat they complain.
+ - Our desires, once realized, haunt us again less readily.
+ - A house is no home unless it contains food and fire for the mind as well as for the body. For human beings are not so constituted that they can live without expansion. If they do not get it in one way, they must in another, or perish.
+ - Wine is earth’s answer to the sun.
+ - I am suffocated and lost when I have not the bright feeling of progression.
+ - Beware of over-great pleasure in being popular or even beloved.
+ - Let every woman, who has once begun to think, examine herself.
+ - What concerns me now is that my life be a beautiful, powerful, in a word, a complete life of its kind.
+ - It seems that it is madder never to abandon one’s self than often to be infatuated; better to be wounded, a captive and a slave, than always to walk in armor.
+ - For precocity some great price is always demanded sooner or later in life.
+ - In order that she may be able to give her hand with dignity, she must be able to stand alone.
+ - Two persons love in one another the future good which they aid one another to unfold.
+ - Genius will live and thrive without training, but it does not the less reward the watering pot and the pruning knife.
+ - There is no wholly masculine man, no purely feminine woman.
+ - The especial genius of women I believe to be electrical in movement, intuitive in function, spiritual in tendency.
+ - It is a vulgar error that love, a love, to woman is her whole existence; she is born for Truth and Love in their universal energy.
+ - Only the dreamer shall understand realities, though in truth his dreaming must be not out of proportion to his waking.
+ - Union is only possible to those who are units. To be fit for relations in time, souls, whether of man or woman, must be able to do without them in the spirit.
+ - Plants of great vigor will almost always struggle into blossom, despite impediments. But there should be encouragement, and a free genial atmosphere for those of more timid sort, fair play for each in its own kind.
+ - It is astonishing what force, purity, and wisdom it requires for a human being to keep clear of falsehoods.
+ - To one who has enjoyed the full life of any scene, of any hour, what thoughts can be recorded about it seem like the commas and semicolons in the paragraph-mere stops.
+ - Art can only be truly art by presenting an adequate outward symbol of some fact in the interior life.
+ - We would have every arbitrary barrier thrown down. We would have every path laid open to women as freely as to men. If you ask me what offices they may fill, I reply-any. I do not care what case you put; let them be sea captains, if you will.
+ - Tremble not before the free man, but before the slave who has chains to break.
+ - Male and female represent the two sides of the great radical dualism. But in fact they are perpetually passing into one another. Fluid hardens to solid, solid rushes to fluid. There is no wholly masculine man, no purely feminine woman.
+ - The life of the soul is incalculable.
+ - A great work of Art demands a great thought or a thought of beauty adequately expressed. – Neither in Art nor Literature more than in Life can an ordinary thought be made interesting because well-dressed.
+ - The character and history of each child may be a new and poetic experience to the parent, if he will let it.
+ - Who can ever be alone for a moment in Italy? Every stone has a voice, every grain of dust seems instinct with spirit from the Past, every step recalls some line, some legend of long-neglected lore.
+ - Beware of over-great pleasure in being popular or even beloved. As far as an amiable disposition and powers of entertainment make you so, it is a happiness; but if there is one grain of plausibility, it is poison.
+ - Woman is born for love, and it is impossible to turn her from seeking it.
+ - Next to invention is the power of interpreting invention; next to beauty the power of appreciating beauty.
+ - I stand in the sunny noon of life. Objects no longer glitter in the dews of morning, neither are yet softened by the shadows of evening.
+ - The soul of the great musician can only be expressed in music.
+ - Reverence the highest, have patience with the lowest. Let this day’s performance of the meanest duty be thy religion. Are the stars too distant, pick up the pebble that lies at thy feet, and from it learn the all.
+ - While any one is base, none can be entirely free and noble.
+ - Put up at the moment of greatest suffering a prayer, not for thy own escape, but for the enfranchisement of some being dear to thee, and the sovereign spirit will accept thy ransom.
+ - All greatness affects different minds, each in its own particular kind, and the variations of testimony mark the truth of feeling.
+ - I should never stand alone in this desert world, but that manna would drop from heaven, if I would but rise with every rising sun to gather it.
+ - What a difference it makes to come home to a child!
+ - The man of science dissects the statement, verifies the facts, and demonstrates connection even where he cannot its purpose.
+ - But the golden-rod is one of the fairy, magical flowers; it grows not up to seek human love amid the light of day, but to mark to the discerning what wealth lies hid in the secret caves of earth.
+ - Whatever the soul knows how to seek, it cannot fail to obtain.
+ - If anything can be invented more excruciating than an English Opera, such as was the fashion at the time I was in London, I am sure no sin of mine deserves the punishment of bearing it.
+ - Be what you would seem to be.
+ - Life is richly worth living, with its continual revelations of mighty woe, yet infinite hope; and I take it to my breast.
+ - Essays, entitled critical, are epistles addressed to the public, through which the mind of the recluse relieves itself of its impressions.
+ - How anyone can remain a Catholic – I mean who has ever been aroused to think, and is not biased by the partialities of childish years – after seeing Catholicism here in Italy I cannot conceive.
+ - Man can never come up to his ideal standard. It is the nature of the immortal spirit to raise that standard higher and higher as it goes from strength to strength, still upward and onward. The wisest and greatest men are ever the most modest.
+ - No temple can still the personal griefs and strifes in the breasts of its visitors.
+ - The public must learn how to cherish the nobler and rarer plants, and to plant the aloe, able to wait a hundred years for it’s bloom, or it’s garden will contain, presently, nothing but potatoes and pot-herbs.
+ - All great expression, which on a superficial survey seems so easy as well as so simple, furnishes after a while, to the faithful observer, its own standard by which to appreciate it.
+ - Would that the simple maxim, that honesty is the best policy, might be laid to heart; that a sense of the true aim of life might elevate the tone of politics and trade till public and private honor become identical.
+ - A man who means to think and write a great deal must, after six and twenty, learn to read with his fingers.
+ - I know of no inquiry which the impulses of man suggests that is forbidden to the resolution of man to pursue.
+ - It was not meant that the soul should cultivate the earth, but that the earth should educate and maintain the soul.
+ - Every fact is impure, but every fact contains in it the juices of life. Every fact is a clod, from which may grow an amaranth or a palm.
+ - You see how wide the gulf that separates me from the Christian church.
+ - Be what you would seem to be – or, if you’d like it put more simply – a house is no home unless it contains food and fire for the mind as well as the body.
+ - Some degree of expression is necessary for growth, but it should be little in proportion to the full life.
+ - The only woman to whom it has been given to touch what is decisive in the present world and to have a presentiment of the world of the future.
+ - We cannot have expression till there is something to be expressed.
+ - Artists are always young.
+ - Spirits that have once been sincerely united and tended together a sacred flame, never become entirely stranger to one another’s life.
+ - The Greeks saw everything in forms which we are trying to ascertain as law, and classify as cause.
+ - I find no intellect comparable to my own.
+
+103 quotes

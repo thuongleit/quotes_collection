@@ -1,0 +1,22 @@
+ - Give me your tired, your poor, Your huddled masses yearning to breathe free, The wretched refuse of your teeming shore. Send these, the homeless, tempest-tossed, to me: I lift my lamp beside the golden door.
+ - Give me your tired, your poor, Your huddled masses yearning to breathe free.
+ - Until we are all free, we are none of us free.
+ - Not like the brazen giant of Greek fame, With conquering limbs astride from land to land; Here at our sea-washed, sunset gates shall stand A mighty woman with a torch, whose flame Is the imprisoned lightning, and her name Mother of exiles.
+ - I seem to have always one little window looking but into life.
+ - The Jewish problem is as old as history, and assumes in each age a new form. The life or death of millions of human beings hangs upon its solution; its agitation revives the fiercest passions for good and for evil that inflame the human breast.
+ - My own curiosity and interest are insatiable.
+ - Still ours the dance, the feast, the glorious Psalm, The mystic lights of emblem, and the Word.
+ - No man had ever heard a nightingale, When once a keen-eyed naturalist was stirred To study and define – what is a bird.
+ - When angels visit earth, the messengers Of God’s decree, they come as lightning, wind: Before the throne, they all are living fire.
+ - The soul, at peace, reflects the peace without, Forgetting grief as sunset skies forget The morning’s transient shower.
+ - Thou two-faced year, Mother of Change and Fate...
+ - Life’s sharpest rapture is surcease of pain.
+ - The little and the great are joined in one By God’s great force. The wondrous golden sun Is linked unto the glow-worm’s tiny spark; The eagle soars to heaven in his flight; And in those realms of space, all bathed in light, Soar none except the eagle and the lark.
+ - Poetry must be simple, sensuous, or impassioned.
+ - Jews are the intensive form of any nationality whose language and customs they adopt.
+ - Naught is too small and soft to turn and sting.
+ - There is no comfort looking forth nor back, The present gives the lie to all her past.
+ - Let our first care today be the re-establishment of our physical strength, the reconstruction of our national organism, so that in future, where the respect due to us cannot be won by entreaty, it may be commanded, and where it cannot be commanded, it may be enforced.
+ - I am never going to write for the sake of writing.
+
+20 quotes

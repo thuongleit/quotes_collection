@@ -1,0 +1,103 @@
+ - Better think while it’s still legal.
+ - You don’t have to believe everything you think.
+ - Peace and Blessings manifest with every lesson learned. If your knowledge were your wealth then it would be well earned.
+ - Time to eliminate things that no longer evolve me.
+ - I’m a Pisces, so I’m a very closed-book kind of person.
+ - In the morning, instead of saying to yourself, ‘I got to wake up’ say ‘I get to wake up!’
+ - I think people who vibrate at the same frequency, vibrate toward each other. They call it – in science – sympathetic vibrations.
+ - If you invite negativity in, you have to feed it and hang out with it. Best not to invite it in.
+ - I know that I want to concentrate more on my inside-pretty than my outside-pretty, because thats gonna go away. But if your inside is beautiful, it never wears away. The light always shows on the outside if you are striving to be good inside.
+ - Don’t let anybody infiltrate your dream.
+ - I’m only in competition with my last level.
+ - I planned my success. I knew it was going to happen.
+ - I try to be honest and I keep moving.
+ - Art is the absence of fear.
+ - Vegan food is soul food in its truest form. Soul food means to feed the soul. And, to me, your soul is your intent. If your intent is pure, you are pure.
+ - I really can’t say what inspires me the most, because I’m inspired by just about everything. My feelings and relationships, my family, Scooby-Doo. Opinion of my work. Everything. Not just one thing.
+ - When you’re performing, you’re creating a moment.
+ - If you make a decision, a pact with someone, your friend, you should say, ‘I’m gonna do this,’ and you should stick to it.
+ - I’d rather see a person with a natural mind and processed mind than a processed mind and a natural head.
+ - I encourage breaking free of self inflicted holding pens. I encourage the use of intelligence in every decision. I encourage creating.
+ - He definitely does what a partner is supposed to do, that is, evolve you.
+ - I grew up listening to old soul.
+ - A home birth is about being able to create exactly what you want, because it’s such a violent moment inside of the body that you want everything else to be as beautiful as it can be.
+ - I was born to make mistakes, I ain’t scared to take the weight.
+ - I don’t read music or anything, so when I produce, I go basically by ear.
+ - The light always shows on the outside if you are striving to be good on the inside.
+ - The wise healer endures the pain. Cry. Tears bring joy.
+ - They usually have a piano in every nursing home, and I always wanted to perform for whoever would listen when I learned something. I grew to understand very early that a lot of these people who are in nursing homes are elderly and don’t have a lot of things that give them joy from day to day.
+ - We as Black people have to tell our own stories. We have to document our history. When we allow someone else to document our history the history becomes twisted and we get written out. We get our noses blown off.
+ - I don’t think it matters what school you go to, but I think it’s important for parents to be involved. And to know that when school stops, learning continues, and to continue teaching at home.
+ - People are uncomfortable with sexuality that’s not for male consumption.
+ - I mean thats a big part of our existence here on earth, the personal relationship we have with the person that we love, with the person that we make love to, with the person that we share our lives with. We expect a lot of things back from our loved one, and the lesson is to accept and not expect.
+ - My work as a doula also extends all the way to the end of life. I sit at the bedsides of people who are passing on in hospices or nursing homes, for the people and families who want that kind of thing.
+ - I’m pretty mutable as a human being, period – if you put me on Pluto, I can figure it out.
+ - I’m a recovering undercover over-lover.
+ - I don’t want to think too much about how I’m carving and what I’m carving – you are just carving away the excess clay and there’s a piece underneath there. And it’s kind of like getting out of the way. Maybe that’s what the commonality is: It’s getting out of the way so that the art can speak.
+ - I just keep going. When the water’s too still, I start splashing around and things jump out of the water.
+ - I thought the Billie Holiday comparison was beautiful. I think, Wow, what a wonderful, creative, helpful spirit. She’s someone who wanted to help others by sharing her emotion. That’s what I do, too, so I think that’s a great comparison.
+ - So the most natural thing to me is to stay as pure to or real to or close to who I am as possible.
+ - I really enjoy being the child’s ‘welcoming committee’ and to help someone usher his or her spirit into the world in a very peaceful way is very effortless to me.
+ - What a frequency What a voice. I love Bilal. I couldn’t imagine a music world without his voice.
+ - Hip-hop was created out of necessity. We needed to create some digitized things to help us understand what we were feeling.
+ - Hip-Hop is bigger than the government.
+ - No one chooses to raise children alone.
+ - But now I realize that this record business really needs me. No one else is trying to take a chance or do something different.
+ - Oh, yeah, I see the world differently now. Actually, when I first had the baby, I was breast-feeding him for two years straight. So we were together for two years of his life, every single day, all hours of the day. So I was two people, and I eventually morphed back into one.
+ - My eyes are green, Cause I eat a lot of vegetables, It don’t have nothing to do with your new friend.
+ - People who say that music is dead or hip-hop is dead are refusing to evolve.
+ - Hopefully my music is medicine, some type of antidote for something or some kind of explanation or just to feel good.
+ - Be you. Make sure you’re saying something when you’re saying something. It’s important to sound like you, to feel like you, to be like you. Be you.
+ - The Man That Knowz Something Knowz That He Knowz Nothing At All.
+ - I’m in training to become a midwife. I’m almost there and before I know it I’ll be able to open my own practice, if that’s what I desire.
+ - We lock ourselves into our own philosophies, our own religions, our own walks of life, and if we fail, we condemn ourselves and then we get sick.
+ - We literally just finished making this gown 20 minutes ago. I love it. It’s my favorite color.
+ - It’s weird, but if I decide to do an album, then the ideas start fitting themselves together. I consider myself a nice, slow burn. Plus, it’s not a race. And I have a lot to share.
+ - Some people come up and ask for an autograph and don’t even look at me. They’re like, ‘Here, do it.’ That don’t bother me, but it doesn’t open my heart.
+ - Whereas I want everything to be peaceful during a birth, I take the total opposite approach when I’m helping someone come to terms with leaving this place – I play Richard Pryor records.
+ - I’m a woman who has gone through many heartaches, enough to dedicate my whole life to trying to figure them out.
+ - What opens my heart is when my son wakes me up in the morning, nudging me and saying, ‘Mommy, mommy!’
+ - We’re all friends, inside the music and outside the music. I mean, we don’t sound anything alike, we don’t approach our music anything alike, but we come from the same genuine place. We want our music to be real and we don’t want to compromise our art.
+ - What singing means to me, I never did consider myself a singer, I just let people watch me feel music and how it comes through me. I’ve worked on it and practiced a lot. I mean, music, I dance to it, and singing is just one way of getting it out of me.
+ - Erykah Badu projects don’t even sound like Erykah Badu projects. I don’t even have one album that sounds like another one of my albums.
+ - I believed in myself, and I’ve always worked very, very hard as an artist, and I am an artist in every sense of the word.
+ - I’m kind of a recluse when it comes to going outside.
+ - From then on, I realized this is what I want to do, what I’m supposed to do: Giving energy and receiving it back through applause. I love it. That’s my world. I love it. I enjoy it. I live for it.
+ - Breathing becomes really easy when you’re laughing. It kick starts that feeling of joy.
+ - During childbirth and hospice I’ll sing gospel songs that my grandma taught me when I was younger, or something I’ve made up, or I’ll hum. I just play things that I think the audience will like.
+ - I love to leave the interpretation of my music up to the listener. It’s fun to see what they’ll say it is.
+ - I love watching Rihanna in fashion. I like to see her take chances and risks. I like seeing Naomi Campbell in the forefront. They’re both women who stand out and use their bodies as canvases to introduce this functional art to the world. They carry it in a way that is very inspiring.
+ - I’m not trying to win an award for being the best vegetarian, just want to be healthy. Take a salt bath. Do things that my parents were never able to do. I’m blessed to do anything I want, so I decide to take the best care of my body and my family in the same way. Holistically. Vitally.
+ - When I get ready to do an album, that means I have something to say for the sake of words, and I listen back to all of the things I’ve been creating and pull things from out of the air to go with them. It’s almost like I start creating the album before I even think about creating it.
+ - I’m just being who I am and expressing myself as everyone else does.
+ - Poor is the new black.
+ - I have so much music that I do. Just like how a visual artist is always sketching something but they might not share it, I’m always writing songs or coming up with melodic lines on piano or guitar. It’s therapy. It’s always happening.
+ - Whenever I think about funk music, it has a look – and that’s how it sounds.
+ - A lot of people have dementia, which is great, because then they don’t recognize me.
+ - I’m only in competition with my last level. It don’t have nothing to do with music or anything. And the last level is hard competition, the last place you were.
+ - My truth is relevant and my songs are relevant, but I have to recalibrate myself and speed up my vibrations so that I can communicate with the voice of this generation.
+ - When it comes to fashion or any high art, you have to have a combination of delicacy, along with taste.
+ - I knew it would happen. I knew I’d be No. 1. I’m a new artist; I don’t know the rules. Nobody told me it wouldn’t happen.
+ - I view my hair and clothes as functional art...
+ - All of my children are the same way I am. They’re little artists too, in their own ways.
+ - Marvin Gaye is one of my favorite revolutionaries. He spoke from his heart, his mind. That’s what I want to do.
+ - I actually started writing it because I was inspired by my own personal growth.
+ - I can be Erykah the human being more than the celebrity.
+ - Even if the project requires you to have all the ducks in a line, I can’t do that. I don’t create way.
+ - I consider my musical ability to be a gift from the Creator. It’s not that I try to work hard or nothing like that, it’s a gift, it was given to me, and I appreciate it.
+ - What draws me to a project is how sympathetic I am toward it, so that I can relax into it and give up myself.
+ - When people are going on to the next plateau of whatever this thing is called life, I also want them to breathe easily, even if it’s the last one they take here with us. I guess I’m the welcoming committee and ushering committee.
+ - We were all born, and we all came to the music business with everything we had. Some of us just don’t get a chance. Now there’s a lot of other people like myself, indeed, who are getting heard worldwide. That gives other artists a chance.
+ - If you want to relate to a certain audience or generation, you have to speak their language. I truly believe that.
+ - I’ll dabble here and there in different forms of the art, but the label has me locked down like a slave so, of course, I’ll be doing albums during this time.
+ - My style is a little masculine, and what I loved about Pyer Moss was how well he can make a blazer, the looseness of those pants, or color palette that he chooses from season to season.
+ - Personally, I don’t choose any particular religion or symbol or group of words or teachings to define me. That’s between me and the most high. You know, my higher self. The Creator.
+ - Im a hip-hopper, and its something you live and do. It makes me angry that were misrepresented, that were being killed every day by one another, by the government, by the food we eat, the choices we make. It makes me angry because it doesnt have to be that way and it is.
+ - I love putting the music together. It’s like art.
+ - I don’t plan how many people I work with. I don’t charge anything. It’s for my own learning, and I just enjoy being the welcoming committee. I became a doula by default.
+ - I think what makes people think that is because of things people write. It really doesn’t have anything to do with the artist.
+ - I’m a performance artist first; I’m a recording artist second.
+ - The reason why you don’t see people looking like me is because I don’t encourage that. I encourage you to be you.
+ - I’ve had two children. I’ve had three boyfriends. I’ve had a lot of things happen that can change your opinions and values and philosophies.
+
+101 quotes

@@ -1,0 +1,86 @@
+ - How one encounters reality is a choice.
+ - Being is only Being for Dasein.
+ - Tell me how you read and I’ll tell you who you are.
+ - Language is the house of Being. In its home man dwells. Those who think and those who create with words are the guardians of this home.
+ - Only a god can save us.
+ - If I take death into my life, acknowledge it, and face it squarely, I will free myself from the anxiety of death and the pettiness of life – and only then will I be free to become myself.
+ - Every man is born as many men and dies as a single one.
+ - Questioning is the piety of thought.
+ - Making itself intelligible is suicide for philosophy.
+ - Nothing is everything that doesn’t happen at this very moment.
+ - Dasein is a being that does not simply occur among other beings. Rather it is ontically distinguished by the fact that in its being this being is concerned about its very being. Thus it is constitutive of the being of Dasein to have, in its very being, a relation of being to this being.
+ - A boundary is not that at which something stops, but that from which something begins.
+ - The essence of technology is by no means anything technological.
+ - Why are there beings at all, instead of Nothing?
+ - A person is neither a thing nor a process but an opening through which the Absolute can manifest.
+ - Temporality temporalizes as a future which makes present in the process of having been.
+ - Longing is the agony of the nearness of the distant.
+ - Everyone is the other and no one is himself.
+ - Thinking begins only when we have come to know that reason, glorified for centuries, is the stiff-necked adversary of thought.
+ - We should never allow our fears or the expectations of others to set the frontiers of our destiny.
+ - We make a space inside ourselves, so that being can speak.
+ - The most thought-provoking thing in our thought-provoking time is that we are still not thinking.
+ - Philosophy will not be able to effect an immediate transformation of the present condition of the world. This is not only true of philosophy, but of all merely human thought and endeavor.
+ - To dwell is to garden.
+ - Only if we are capable of dwelling, only then can we build.
+ - What seems natural to us is probably just something familiar in a long tradition that has forgotten the unfamiliar source from which it arose. And yet this unfamiliar source once struck man as strange and caused him to think and to wonder.
+ - So long as we represent technology as an instrument, we remain held fast in the will to master it.
+ - The question concerning technology is the question concerning the constellation in which revealing and concealing, in which the coming to presence of truth, comes to pass.
+ - We should live totally in the face of the night and of the Evil.
+ - Understanding of being is itself a determination of being of Da-sein.
+ - We do not say: Being is, time is, but rather: there is Being and there is time.
+ - The possible ranks higher than the actual.
+ - To think is to confine yourself to a single thought that one day stands still like a star in the world’s sky.
+ - The relationship between man and space is none other than dwelling, strictly thought and spoken.
+ - The human being is not the lord of beings, but the shepherd of Being.
+ - True time is four-dimensional.
+ - The Fuhrer alone is the present and future German reality and its law. Learn to know ever more deeply: from now on every single thing demands decision, and every action responsibility.
+ - Profound boredom, drifting here and there in the abysses of our existence like a muffling fog, removes all things and men and oneself along with it into a remarkable indifference. This boredom reveals being as a whole.
+ - In Nietzsche’s view nihilism is not a Weltanschauung that occurs at some time and place or another; it is rather the basic character of what happens in Occidental history.
+ - The world, in resting upon the earth, strives to surmount it. As self-opening it cannot endure anything closed. The earth, however, as sheltering and concealing, tends always to draw the world into itself and keep it there.
+ - When modern physics exerts itself to establish the world’s formula, what occurs thereby is this: the being of entities has resolved itself into the method of the totally calculable.
+ - Transcendence constitutes selfhood.
+ - Man acts as though he were the shaper and master of language, while in fact language remains the master of man.
+ - To be a poet in a destitute time means: to attend, singing, to the trace of the fugitive gods. This is why the poet in the time of the world’s night utters the holy.
+ - We do not “have” a body; rather, we “are” bodily.
+ - The small are always dependent on the great; they are “small” precisely because they think they are independent. The great thinker is one who can hear what is greatest in the work of other “greats” and who can transform it in an original manner.
+ - Dwelling is not primarily inhabiting but taking care of and creating that space within which something comes into its own and flourishes.
+ - Time is not a thing, thus nothing which is, and yet it remains constant in its passing away without being something temporal like the beings in time.
+ - Being and time determine each other reciprocally, but in such a manner that neither can the former – Being – be addressed as something temporal nor can the latter – time – be addressed as a being.
+ - Is the earth in our head? Or do we stand on the earth?
+ - I know that everything essential and great originated from the fact that the human being had a homeland and was rooted in tradition.
+ - In no way can it be uttered, as can other things, which one can learn. Rather, from out of a full, co-existential dwelling with the thing itself – as when a spark, leaping from the fire, flares into light – so it happens, suddenly, in the soul, there to grow, alone with itself.
+ - In order to remain silent Da-sein must have something to say.
+ - To think Being itself explicitly requires disregarding Being to the extent that it is only grounded and interpreted in terms of beings and for beings as their ground, as in all metaphysics.
+ - Being-alone is a deficient mode of being-with; its possibility is a proof for the latter.
+ - Nevertheless, the ultimate business of philosophy is to preserve the force of the most elemental words in which Dasein expresses itself, and to keep the common understanding from levelling them off to that unintelligibility which functions in turn as a source of pseudo-problems.
+ - In everything well known something worthy of thought still lurks.
+ - If in Nietzsche’s thinking the prior tradition of Western thought is gathered and completed in a decisive respect, then the confrontation with Nietzsche becomes one with all Western thought hitherto.
+ - The average, vague understanding of being can be permeated by traditional theories and opinions about being in such a way that these theories, as the sources of the prevailing understanding, remain hidden.
+ - The relation of feeling toward art and its bringing-forth can be one of production or one of reception and enjoyment.
+ - We would like only, for once, to get to where we are already.
+ - The German language speaks Being, while all the others merely speak of Being.
+ - We name time when we say: every thing has its time. This means: everything which actually is, every being comes and goes at the right time and remains for a time during the time allotted to it. Every thing has its time.
+ - There is no such thing as an empty word, only one that is worn out yet remains full.
+ - Time-space as commonly understood, in the sense of the distance measured between two time-points, is the result of time calculation.
+ - Everyone is the other, and no one is himself. The they, which supplies the answer to the who of everyday Da-sein, is the nobody to whom every Da-sein has always already surrendered itself, in its being-among-one-another.
+ - And so man, as existing transcendence abounding in and surpassing toward possibilities, is a creature of distance. Only through the primordial distances he establishes toward all being in his transcendence does a true nearness to things flourish in him.
+ - As the ego cogito, subjectivity is the consciousness that represents something, relates this representation back to itself, and so gathers with itself.
+ - The poets are in the vanguard of a changed conception of Being.
+ - The will to mastery becomes all the more urgent the more technology threatens to slip from human control.
+ - The human body is essentially something other than an animal organism.
+ - From our human experience and history, at least as far as I am informed, I know that everything essential and great has only emerged when human beings had a home and were rooted in a tradition. Today’s literature is, for instance, largely destructive.
+ - Agriculture is now a motorized food industry, the same thing in its essence as the production of corpses in the gas chambers and the extermination camps, the same thing as blockades and the reduction of countries to famine, the same thing as the manufacture of hydrogen bombs.
+ - The critique of the highest values hitherto does not simply refute them or declare them invalid. It is rather a matter of displaying their origins as impositions which must affirm precisely what ought to be negated by the values established.
+ - But every historical statement and legitimization itself moves within a certain relation to history.
+ - Whatever can be noted historically can be found within history.
+ - We still by no means think decisively enough about the essence of action.
+ - We ourselves are the entities to be analyzed.
+ - A giving which gives only its gift, but in the giving holds itself back and withdraws, such a giving we call sending.
+ - The song still remains which names the land over which it sings.
+ - Pessimism negates the existing world. Yet its negating is ambiguous. It can simply will decay and nothingness, but it can also renounce what exists and thus open a path for a new formation of the world.
+ - I take great pleasure, every day, in seeing my work deeply rooted in our native soil.
+ - A man’s first bond is that which ties him into the national community.
+ - But what is great can only begin great.
+
+84 quotes

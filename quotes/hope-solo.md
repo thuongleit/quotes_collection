@@ -1,0 +1,84 @@
+ - My life is a beautiful struggle.
+ - I try to live my life one day at a time, and if I look too far in advance, I get really stressed.
+ - There are no shortcuts. If you feel good, you’ll look good, you’ll play good. Work hard every day. No matter what your strengths and weaknesses, there’s no substitute for hard work.
+ - I am proud of who I am, and nobody’s going to steal that.
+ - If you truly expect to realize your dreams, abandon the need for blanket approval. If conforming to everyone’s expectations is the number one goal, you have sacrificed your uniqueness, and therefore your excellence.
+ - One thing I’ve learned in life is that I can speak for myself, that I can fight my own battles. I don’t like anyone telling me how I’m supposed to feel or think or what I’m supposed to say.
+ - My family doesn’t do happy endings. We do sad endings or frustrating endings or no endings at all. We are hardwired to expect the next interruption or disappearance or broken promise.
+ - There are so many different walks of life, so many different personalities in the world. And no longer do you have to be a chameleon and try and adapt to that environment – you can truly be yourself.
+ - I live for competition. It makes my life complete.
+ - Unfortunately, people think I’m negative and bitter all the time, and that’s not the case.
+ - It’s a complicated thing, knowing how much pain my father caused in my life and the lives of others whom I love, yet still holding love for him in my heart. No matter what he did, he was my father. He helped create the person I am.
+ - I am going to be a professional soccer player.
+ - True heros are made of hard work and integrity.
+ - I take everything with a grain of salt.
+ - I just want to stay in my hotel room, read my book. I enjoy that private time.
+ - I think it’s my personality to overcome things, learn from them and become stronger, both personally and professionally. To be honest, I welcome those hardships.
+ - It was hard. I came to grips with a lot of difficulties that I’ve overcome. Each challenge kind of makes you who you are. It wasn’t always a good thing. I have my own struggles in my life because of the things I was forced to overcome.
+ - I never go on Facebook! I like, haven’t confirmed anybody to be my friend on Facebook. I have lots of friends; I’m just really bad at Facebook.
+ - I have an attitude. It’s what I do. I’m edgy. I have an attitude.
+ - Every athlete acquires routines as a way to help control nerves.
+ - I carry my iPod everywhere. My favorite group is the John Butler Trio, an Australian jam band. The lead singer and guitarist writes amazing lyrics.
+ - My personal life is in the spotlight, but people say what they want to say. The truth isn’t in the spotlight, I should say. I’m in the spotlight, but not the truth.
+ - I travel a lot and rarely make it home to Seattle.
+ - In truth, 2007 was the hardest year of my life. I lost my best friend. I lost my father.
+ - I’ve been through a lot of things in my personal and family life. That turned me into a fighter. I always strive to be the best I possibly can.
+ - I don’t just want to focus on soccer, soccer, soccer. You’re going to look back 20 years from now and of course you’re going to remember the games. But I’m going to remember seeing my family in the stands.
+ - I know I can’t dance. I am the worst dancer. I have no rhythm. I just do step-and-snap. I love it in the privacy of my own home and every once in a while at a club. But singing and dancing are my two greatest fears.
+ - I played soccer all my life and I used to think growing up that they put the fat kid in goal or they put the kid that wasn’t good with the ball at their feet in goal and I never wanted to do goalkeeper, I was always the goal scorer.
+ - No one wants to lose, period. It should hurt, it should sting, and you don’t want to feel that feeling again.
+ - You’re not going to be liked by everybody when you speak the truth. I don’t speak the truth to put people down; I don’t speak the truth to show disrespect.
+ - I don’t need a captain’s band to lead a team to victory.
+ - I burn so many calories when I work out that I don’t really count calories or necessarily try and stay away from anything.
+ - You’re always going to survive the pain of loss. I can live with that confidence inside of me.
+ - I think people have different definitions of team unity. My definition is doing whatever it takes to win, what makes a great team; it’s performance on the field, respect on the field.
+ - Nobody really knows who I am, where I came from, what’s in my heart, why I believe in the things I believe, what I see behind the scenes and they don’t see.
+ - I am pushed by my critics. I don’t want to say I want to prove them wrong, but it pushes me on the field to play with a chip on my shoulder, and I play best when I have a chip on my shoulder.
+ - My father was never around. But I glorified my father, and I was always daddy’s little girl. He was my first soccer coach.
+ - I’ve learned that winning isn’t everything, and it’s more about the journey. But at the end of the day, I just want to stand on the podium with the gold medal.
+ - A lot of people think I’m naturally confident. I am not naturally confident!
+ - With each year that’s gone by, and as I grow up and get older, I’ve become more mature, of course, but you have a sense of who you are, and you find confidence in that.
+ - I like to read books and be alone; I’m not social butterfly person.
+ - I need a life outside of soccer. So I very much welcome, you know, new love interests and dating and friends and family.
+ - When I was younger, I was a complete tomboy. Then in college I started emerging out of the tomboy stage and dressing differently.
+ - I think people who don’t have conflict in their lives are just trying to please people and not really living life to the fullest.
+ - Everybody should be affected by their own realities in their own lives, their own struggles in their own lives. It makes us who we are, and we all know that.
+ - Growing up, I felt insecure about my build. I didn’t feel very feminine. But as time went on, I learned to completely embrace my body.
+ - I love pedicures. And, yes, I have a ton of shoes.
+ - I never felt the same passion for the game in the States and there were a lot of headaches, a lot of obstacles to overcome – it didn’t just run itself for the love of the game because soccer is not the No. 1 sport as it is in Europe.
+ - I don’t just want to focus on soccer, soccer, soccer.
+ - My father showed me so much love. He showed my brother so much love.
+ - I played in Europe and it was a great experience, not just because of my team-mates and the coaches we had, but from the fans and the city itself – I played in Gothenburg and I played in Lyon and soccer was everywhere.
+ - I wear my dad’s cross. It’s very important to me. I hang it in my locker before each game.
+ - Speech is the image of actions.
+ - My life goes in four-year cycles. The World Cup is every four years and the Olympics are every four years.
+ - Being responsible and taking care of your body is truly how you make your pay cheque, how you excel and succeed in your lifelong goals, so for me it’s just an everyday lifestyle.
+ - I’ve had marriage proposals, invitations to military balls and even a few prom offers from 18-year-old boys.
+ - I have no personal beef with Brandi Chastain. There’s nothing personal.
+ - My No. 1 goal, and what I’ve spent my entire life striving to achieve is to win a World Cup. I want to retire so badly with that World Cup, but if I don’t, then I’ll retire knowing that I’ve done everything I could to get it.
+ - I usually tell people I watch like ’24 and ‘Prison Break.’
+ - I hate the cliche of ‘just have fun,’ but what I’ve seen in today’s sports, especially with parents, is they put so much pressure on the kids.
+ - I’ve always been a fan of Justin Timberlake.
+ - I’m just going to embrace every experience.
+ - I have a problem with players who don’t take the loss personally. At a professional level you should – it’s our job, it’s our livelihood, it’s who we are at this level. Every loss should be taken that personal.
+ - All my life, since the time I was little, has been a long distraction. At least that is the way some people want to perceive it, but for me, it’s given me a lot of strength.
+ - It’s clear that women athletics are pretty far behind in every way. In terms of facilities, how much we make, everything.
+ - You can predict all you want, but everybody knows what predictions get you.
+ - On a global stage, I have respect in the goalkeeping world.
+ - I couldn’t have been a great goalkeeper without power, agility and quickness.
+ - It took putting one foot in front of the other every single day to get through it to the point where I made it back on the team and won a gold medal in 2008.
+ - Athletes are extremists. When they’re training, it’s laser focus.
+ - I think every athlete has their window of opportunity, and you just have to jump on it. You never know when it can end. So I’m just trying to live large while I have the opportunity.
+ - When I did ‘Dancing With the Stars,’ everyone in Hollywood was saying I had too much muscle.
+ - I think the concept of seeking fame and fortune in women’s football in the States is a bit idyllic.
+ - London 2012 is all about winning a medal. Not just any medal, the gold medal.
+ - My entire purpose is trying to be the best in the game, and if that exudes beauty too, that’s pretty powerful.
+ - Female athletes are supposed to be toned down. You’re always supposed to talk about the team and never stand out.
+ - You know journalists. You know the media. They are going to hang on to anything negative they possibly can.
+ - Of course Seattle loves soccer. You can see from the men’s Seattle Sounders team.
+ - I think at an early age I learned not to judge people.
+ - In front of the world, all of a sudden I’m a great athlete and I’m put into an environment with 25 other women and I’m expected to go to team meals, team functions.
+ - As women professional athletes, you have to have respect for every player and individual. Beyond that, it doesn’t matter what your interests are. People can have their own lives.
+ - When the Olympics and World Cups come around, that’s when you see the real outpouring of support that there really is for female football.
+
+82 quotes

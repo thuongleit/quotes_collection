@@ -1,0 +1,38 @@
+ - Faith and prayer are the vitamins of the soul; man cannot live in health without them.
+ - I sing God’s music because it makes me feel free. It gives me hope. With the blues, when you finish, you still have the blues.
+ - I close my eyes when I sing so I can feel the song better.
+ - My hands, my feet, I throw my whole body to say all that is within me.
+ - Everybody needs somebody.
+ - You’re blessed if you have the strength to work.
+ - Time is important to me because I want to sing long enough to leave a message. I’m used to singing in churches where nobody would dare stop me until the Lord arrives!
+ - The mind and the voice by themselves are not sufficient.
+ - Anybody singing the blues is in a deep pit yelling for help.
+ - If you don’t like Louis Armstrong, you don’t know how to love.
+ - I hope to bring people to God with my songs.
+ - If you believe in God, He will open the windows of heaven and pour blessings upon you.
+ - Gospel songs are the songs of hope. When you sing gospel you have the feeling there is a cure for what’s wrong, but when you are through with the blues, you’ve got nothing to rest on.
+ - It is easy to be independent when you’ve got money. But to be independent when you haven’t got a thing, that’s the Lord’s test.
+ - Gospel music rhythms are not African in origin, although I know that’s what the jazz experts say.
+ - Baby, black promoters oppressed me before white promoters ever got hold of me. Don’t talk skin to me.
+ - I don’t worry too much about the script, I just ad lib, like Pearl Bailey.
+ - If you want me to sing this Christmas song with the feeling and the meaning, you better see if you can locate that check.
+ - The old Devil gets mad when you’re trying to do good. Pray that God will move the stumbling blocks.
+ - Gospel music in those days of the early 1930s was really taking wing. It was the kind of music colored people had left behind them down South and they liked it because it was just like a letter from home.
+ - Someday the sun is going to shine down on me in some faraway place.
+ - The Lord doesn’t like us to be dead. Be alive. Sometimes I dance to the glory of the Lord, because He said so.
+ - God can make you anything you want to be, but you have to put everything in his hands.
+ - Sometimes you ask God for something and you don’t know what you’re asking.
+ - This is the place to see the stars – Hollywood Bowl.
+ - When you sing gospel you have a feeling there is a cure for what’s wrong.
+ - How can you sing of amazing grace and all God’s wonders without using your hands?
+ - Without a song, each day would be a century.
+ - When you are through with the blues, you’ve got nothing to rest on.
+ - Money just draws flies.
+ - Blues are the songs of despair, but gospel songs are the songs of hope.
+ - One thing about playing the real jazz is that you can’t count it.
+ - The trouble with records is that they’re too short.
+ - Put your mind on the gospel. And remember – there’s one God for all.
+ - I’ll come to any benefit if I see SCLC get all the money.
+ - They thought I was a success as soon as I started paying the bills.
+
+36 quotes

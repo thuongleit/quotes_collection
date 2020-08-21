@@ -1,0 +1,22 @@
+ - When man continues to destroy nature, he saws the very branch on which he sits since the rational protection of nature is at the same time the protection of mankind.
+ - My childhood in Corfu shaped my life. If I had the craft of Merlin, I would give every child the gift of my childhood.
+ - A house is not a home until it has a dog.
+ - Erosion, desertification, and pollution have become our lot. It is a weird form of suicide, for we are bleeding our planet to death.
+ - Until we consider animal life to be worthy of the consideration and reverence we bestow upon old books and pictures and historic monuments, there will always be the animal refugee living a precarious life on the edge of extermination, dependent for existence on the charity of a few human beings.
+ - Each day had a tranquility a timelessness about it so that you wished it would never end. But then the dark skin of the night would peel off and there would be a fresh day waiting for us glossy and colorful as a child’s transfer and with the same tinge of unreality.
+ - There is no first world and third world. There is only one world, for all of us to live and delight in.
+ - Animals generally return the love you lavish on them by a swift bite in passing-not unlike friends and wives.
+ - Zoos should concentrate more on the preservation side of things.
+ - I can’t be expected to produce deathless prose in an atmosphere of gloom and eucalyptus.
+ - By neglecting our garden, we are storing up for ourselves, in the not very distant future, a world catastrophe as bad as any atomic war, and we are doing it with all the bland complacency of an idiot child chopping up a Rembrandt with a pair of scissors.
+ - Aspirin is so good for roses, brandy for sweet peas, and a squeeze of lemon-juice for the fleshy flowers, like begonias.
+ - As I watched the pulsing fire among the trees and heard the beat of the drum merge and tremble with the voices, forming an intricate pattern of sound, I knew that someday I would have to return or be haunted forever by the beauty and mystery that is Africa.
+ - Tea would arrive, the cakes squatting on cushions of cream, toast in a melting shawl of butter, cups agleam and a faint wisp of steam rising from the teapot shawl.
+ - All over the world the wildlife that I write about is in grave danger. It is being exterminated by what we call the progress of civilization.
+ - We stared at the odd garment and wondered what it was for. ‘What is it?’ asked Larry at length. ‘It’s a bathing costume, of course,’ said Mother. ‘What on earth did you think it was?’ ‘It looks like a badly skinned whale,’ said Larry, peering at it closely.
+ - What fools we are, eh? What fools, sitting here in the sun, singing. And of love, too! I am too old for it and you are too young, and yet we waste our time singing about it. Ah, well, let’s have a glass of wine, eh?
+ - Right in the Hart of the Africn Jungel a small wite man lives. Now there is one xtrordenry fackt about him that he is the frind of all animals.
+ - They were maps that lived, maps that one could study, frown over, and add to; maps, in short, that really meant something.
+ - I do wish you wouldn’t argue with me when I’m knitting.
+
+20 quotes

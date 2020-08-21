@@ -1,0 +1,28 @@
+ - When the sun is shining I can do anything; no mountain is too high, no trouble too difficult to overcome.
+ - Never underestimate the power of dreams and the influence of the human spirit. We are all the same in this notion: The potential for greatness lives within each of us.
+ - I ran and ran and ran every day, and I acquired this sense of determination, this sense of spirit that I would never, never give up, no matter what else happened.
+ - I’m in my prime. There’s no goal too far, no mountain too high.
+ - The potential for greatness lives within each of us.
+ - Believe me, the reward is not so great without the struggle.
+ - Winning is great, sure, but if you are really going to do something in life, the secret is learning how to lose.
+ - My doctors told me I would never walk again. My mother told me I would. I believed my mother.
+ - I don’t know why I run so fast. I just run.
+ - I knew that whatever I set my mind to do. I could do.
+ - I believe in me more than anything in this world.
+ - The triumph can’t be had without the struggle. And I know what struggle is. I have spent a lifetime trying to share what it has meant to be a woman first in the world of sports so that other young women have a chance to reach their dreams.
+ - I tell them that the most important aspect is to be yourself and have confidence in yourself.
+ - My mother taught me very early to believe I could achieve any accomplishment I wanted to. The first was to walk without braces.
+ - No matter what great things you accomplish, somebody helps you.
+ - Sometimes it takes years to really grasp what has happened to your life.
+ - When I was going through my transition of being famous, I tried to ask God, why was I here? What was my purpose? Surely, it wasn’t just to win three gold medals. There has to be more to this life than that.
+ - I would be disappointed if I were remembered as a runner because I feelthat my contribution to the youth of America has far exceeded the woman who was the Olympic champion.
+ - What do you do after you are world-famous and nineteen or twenty and you have sat with prime ministers, kings and queens, the Pope? Do you go back home and take a job? What do you do to keep your sanity? You come back to the real world.
+ - I thought I’d never get to see that. Florence Griffith Joyner – every time she ran, I ran.
+ - I loved the feeling of freedom in running, the fresh air, the feeling that the only person I’m competing with is me.
+ - I don’t consciously try to be a role model, so I don’t know if I am or not. That’s for other people to decide.
+ - By the time I was 12 I was challenging every boy in our neighborhood at running, jumping, everything.
+ - The feeling of accomplishment welled up inside of me, three Olympic gold medals. I knew that was something nobody could ever take away from me, ever.
+ - But when you come from a large, wonderful family, there’s always a way to achieve your goals.
+ - It doesn’t matter what you’re trying to accomplish. It’s all a matter of discipline. I was determined to discover what life held for me beyond the inner-city streets.
+
+26 quotes

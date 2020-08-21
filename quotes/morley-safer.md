@@ -1,0 +1,32 @@
+ - The helicopter is a fine way to travel, but it induces a view of the world that only God and CEOs share on a regular basis.
+ - I am not in this business as a calling. I don’t do what I do to right any wrongs.
+ - What has reality shows got to do with reality? It is beyond unreality; there is nothing real about it.
+ - I would trust citizen journalism as much as I would trust citizen surgery.
+ - Arrogance and snobbism live in adjoining rooms and use a common currency.
+ - Reality TV is sleazy, it is manipulative. It is as momentary as anything in popular culture.
+ - You can never have enough garlic. With enough garlic, you can eat The New York Times.
+ - BBC Radio is a never-never land of broadcasting, a safe haven from commercial considerations, a honey pot for every scholar and every hare-brained nut to stick a finger into.
+ - I really don’t care what movie stars have to say about life.
+ - In his lifetime the great French impressionist painter Corot painted 2000 canvases. Of that number, 3000 are in the United States.
+ - I think it has sullied his presidency. As brilliant a politician as Bill Clinton is, as magnetic a personality as he can be, there is one little screw loose somewhere.
+ - I did three tours in Vietnam. I guess a total of about almost two years.
+ - Some people, you have to grit your teeth in order to stay in the same room as them, but you get on and ask the questions you assume most of the people watching want to ask.
+ - In many ways when Jerry Ford pardoned Nixon, in a certain way, he did speak for the country.
+ - Who knows who will be on board? A couple of spies, for sure. At least one grand duke; a few beautiful woman, no doubt very rich and very troubled. Anything can happen and usually does on the Orient Express.
+ - We are on Sunday night because that is where they put us 30-odd years ago. I think we became a habit.
+ - Pilgrims who are looking for a cure are soon looking for a curio.
+ - Don may yawn at the idea, which he often does, but the great thing about Don, he has confidence in me and Mike and Ed and Leslie and Steve, that we’re not going go out and do stories that will put people to sleep.
+ - Killing is the payoff of war.
+ - You can be a great president and be ridden with flaws. Of course we know that.
+ - It is always disarming to treat with the enemy, so to speak.
+ - The Bush Cabinet is quite interesting, there are no flashy people in there. No stars. They all seem quite focused and serious and knowledgeable about the areas to which they have been appointed.
+ - Whenever it’s suggested that our sponsors have some kind of influence or control of what we cover in some kind of censorship through financial pressure, it’s rubbish. That’s never happened.
+ - Clinton’s pardoning of Marc Rich was off-the-wall.
+ - The Republicans learned well from Bill Clinton.
+ - When I did that interview with Hepburn, the only ground rule was, you did not discuss Spencer Tracy. Spencer Tracy’s widow is still alive, and she respected that.
+ - After four or five different wars, I grew weary of that work, partly because in an open war, open to coverage, as Vietnam was, it’s not that difficult, really.
+ - A lot of sponsors over the years have left us. They’ve all come back. But they chose to leave us for a while because of stories we have done about them or their products or their friend’s products or whatever.
+ - Parents like the idea of kids, they just don’t like their kids.
+ - What does it say about us that people who are considered defective are instinctively caring and compassionate?
+
+30 quotes

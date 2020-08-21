@@ -1,0 +1,61 @@
+ - I love eating junk food. I’m a huge snacker, chips and candy.
+ - Well, I’m not here to live up to anyone else’s expectations-I’m here to live up to mine.
+ - Suffering produces Character, and Character produces Hope, and Hope does not disappoint us.
+ - Having small group once a week gives me a lot of encouragement and accountability. Even though I go to church, I don’t really know many people there, but my real community is my small group.
+ - From the sense of being an ambassador for Jesus Christ, hopefully, through my story and through all the improbables and the miracles that happened in my life, people are inspired or at least a little bit warmer to the idea of exploring who Jesus is.
+ - Sometimes you come up against a mountain and you end up making the mountain seem bigger than God.
+ - My best career decision was probably not giving up when I wanted to. God as well as my family and friends were there for me during my toughest times.
+ - I just really, really, really hate to lose. Really.
+ - I get scared of a lot of attention. I get scared of the spotlight. And I’m not talking about on the basketball court.
+ - I think right now the way society’s going, I think role models are important, and kids need direction. If I didn’t have that direction growing up, who knows what I could be doing, because I’ve been lost many times in my life, and I’ve had to have someone guide me back on the right path.
+ - I love my family, I love my relatives. One special request I have is for the media back in Taiwan to kind of give them their space because they can’t even go to work without being bombarded and people following them.
+ - If you look back at my story, it doesn’t matter where you look, but God’s fingerprints are all over the place.
+ - You can try to call it coincidence, but at the end of the day, there are 20, 30 things when you combine them all that had to happen at the right time in order for me to be here. That’s why I call it a miracle.
+ - Faith, family, academics and then sports was the order of priorities in my family. My parents really stuck to these principles when raising me and my two brothers. As long as we took care of everything, they let us play as much basketball as we wanted.
+ - My identity is in Christ, not in basketball.
+ - It’s really important to me to go to church, which is sometimes tough when I get back from road trips late on Saturday night, but I try to make it a priority to go every week.
+ - With pro-gaming that’s one of the toughest parts – living game to game.
+ - My first dunk ever was in middle school. We were playing, me and my church friends, and I dunked it, and I swear I could not sleep that night.
+ - All these people, all these things came into my life, and they’re all blessings from God. And now that I look back, I realize that these are His fingerprints all over my story.
+ - This is my dream being lived out and I’m so thankful for that.
+ - I just think in order for someone to understand my game, they have to watch me more than once, because I’m not going to do anything that’s extra flashy or freakishly athletic.
+ - In many ways, the longer I live, I understand that there are so many things outside my control. That’s why I believe faith is such a big part of the story. There are so many things that were orchestrated by God, that were put into place to make this perfect storm, that created Linsanity.
+ - I have an economics degree with a minor in sociology. The reason I have that is because I want to do a ministry in urban areas and help with underprivileged kids.
+ - I’m a playmaker. I’m always attacking the rim and have somewhat of a reckless style. I try to be everywhere at once.
+ - I was a big Michael Jordan fan growing up. I don’t feel my game resembles his though.
+ - I’m not playing for other people; if I start thinking in those terms I would put too much pressure on myself. I play basketball because that is what I love to do.
+ - The change that I never fall into is the, ‘I’m-above-you-look-at-me-do-stuff-for-me change.’ The change that I’m hoping I get to is where I become wiser, smarter – where I put myself in situations that don’t have a huge potential for disaster.
+ - Coming out of college into the draft, being Asian-American and being from Harvard, that’s not going to be an advantage because of stereotypes.
+ - For me, when I get knocked down, I really try to get back up and go at it again. I don’t like to give up.
+ - The first time I went to Taiwan, there were cameras, paparazzi, TV stations outside my hotel twenty-four hours a day nonstop.
+ - Stuff about me dating Kim Kardashian – I have no idea where that came from and all these other rumors. I don’t think I’m that type.
+ - If I had a day to myself I would just play video games with my brothers.
+ - It seems like everybody’s perception of me is very bipolar. To one group, it’s overpaid, overrated; to another group, it’s underpaid, underrated, underdog. It’s funny to me because there’s no real balance.
+ - I speak Mandarin and can read and write a little. I took a few classes at Harvard to get better in my reading and writing skills.
+ - I’m not like the next Michael Jordan, but I’m also not what everyone saw me as before I started playing in the NBA, either.
+ - I’ve always been a target. Everyone looks me and says, ‘I’m not going to let that Asian kid embarrass me. I’m going to go at him.’ That’s how it’s been my whole life.
+ - I’m not playing to prove anything to anybody.
+ - I was playing garbage minutes the first two to three weeks. There was definitely a little bit of ‘what’s going on?’ in my prayers.
+ - I’ve learned that social media and our private lives, you know, our private lives are not so private anymore, so it takes a little bit of getting used to.
+ - My family used to call me an oversized kid and I think that’s pretty accurate in some ways.
+ - New York is fast paced, with enthusiastic fans and lots of media attention. Houston’s slower paced, and there’s more of a southern culture to the city. But both cities have unbelievable food.
+ - And people are always saying he deceptively quick, deceptively athletic, and I don’t know if that’s just because I’m Asian or what it is, but obviously there’s going to be stereotypes that you have to fight.
+ - I’ve learned how to be open and bold about my faith, but in terms of my influence, I just try to lead in a godly way. What that means for me is to serve them, whether it’s just doing the dirty work, like cleaning up sweat on the floor, or deferring to other people, or carrying equipment bags.
+ - It’s the off-the-court spotlight in terms of having people look at you in terms of analyzing every little thing you do in your life, or having less privacy in your day-to-day activities, that’s an area I need to get more accustomed to.
+ - With all the media attention, all the love from the fans, I felt I needed to prove myself. Prove that I’m not a marketing tool, I’m not a ploy to improve attendance. Prove I can play in this league. But I’ve surrendered that to God. I’m not in a battle with what everybody else thinks anymore.
+ - I’m very humbled and honored. I’m very thankful to the Asian-American Community for all their support!
+ - Tim Tebow is one of my biggest inspirations. I actually want to be able to do some of the things that he does in terms of the amount of charity work and the non-profit work, and the way he impacts people off the field. I think that is what is most inspiring to me about him.
+ - I would be a pastor. It is something I think about doing when my playing days are over.
+ - Not sure if that will benefit me or hurt me, but I know I have the skills and am ready to play in the NBA regardless of my ethnicity.
+ - When I’m on the court, I try to play with all my emotion and heart.
+ - People are moved by my story, but they’re only moved by my story because of what I do on the court.
+ - I have worked out with the Thunder, Lakers, Knicks, Grizzlies, Spurs, and a few others before the draft. I have worked out primarily against shorter and supposedly faster players in these workouts.
+ - Trying to make the NBA is one of the very few areas where a Harvard degree won’t necessarily help.
+ - I absolutely would not have liked playing in Spain or somewhere like that, so I was just gonna do it a year. Then I was gonna be done.
+ - You have to be wired a certain way to be a professional basketball player, and the way my body grew, something happened genetically that allowed me to become a lot more explosive.
+ - I’m going to be honest, playing in D-League games is tough.
+ - I just try to play as hard as I can every possession. If you’re aware and you’re high-energy, the ball will eventually bounce your way and you’ll be able to make plays.
+ - I just try to make sure that when I get there on the floor, I play as hard as I can and try to do everything I can to help the team win.
+ - I want to be a representative and be a role model for the Asian American community.
+
+59 quotes

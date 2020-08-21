@@ -1,0 +1,22 @@
+ - Define your times. Treasure your calling. Pray without ceasing. The terrors of the age are less than the grandeur of the Christ within you.
+ - Beware, O earth, the prophet who claims to know the time but never wears a watch.
+ - Love is substance; Lust, illusion. Only in the surge of passion do the two mingle in confusion.
+ - Life found itself alive and somehow knew its opposite was death. We are ever being born, or dying, and the thrill of choosing is ours. Only once, must we be born without our own consent. Only once, must we die without our own permission.
+ - We humans are a hungry lot. We are driven by a craving to know who we are. Yet who we are is embedded in the heart of a holy God. Unless we seek for ourselves in the epicenter of God’s grace, we will be forever condemned to walk the arid edges of self-understanding.
+ - Those who fervently love God are intoxicated by His warmth and live out their addiction like moths drawn to a flame.
+ - Tripping is embarrassing, but I have learned that where we stumble is the place we dig for gold – where we trip is where the treasure lies.
+ - It is not such a fiercesome thing to lead once you see your leadership as part of God’s overall plan for His world.
+ - The world is poor because her fortune is buried in the sky and all her treasure maps are of the earth.
+ - Humanity is fickle. They may dress for a morning coronation and never feel the need to change clothes for an execution in the afternoon. So Triumphal Sundays and Good Fridays always fit comfortably into the same April week.
+ - With love that knew no fear, the Singer caught his torment, wrapped it all in song and gave it back to him as peace.
+ - A passion to obey Christ is born out of our relationship with him. The more we love him, the more we want him to be a part of our affairs.
+ - Death is a confirmation of the believer’s creed. For the skeptic it is discovery, immense and late.
+ - The lips know only shallow tunes.
+ - After eating the world’s bread, we wake each morning to remember: We are still hungry. Seek a better loaf. Eat, and never die. Taste, savor, and be filled forever.
+ - We must look to Mary’s example to know how to deal with the glorious impossibilities of God. Look how she turned the world upside down by making one simple statement.
+ - Imagination must constantly run on a new track or it becomes lifeless. A living imagination is essential to prayer.
+ - With what dread and apprehension we entrust important jobs into the hands of others. Imagine the love of a needless God who is willing to want our work.
+ - One of the great things silence does, it gives us a new concept of God.
+ - Becoming a great preacher, like becoming a great artist, requires a life commitment.
+
+20 quotes

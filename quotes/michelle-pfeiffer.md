@@ -1,0 +1,64 @@
+ - I’m a Taurus. To the bone.
+ - I’m afraid to be alone, I’m afraid not to be alone. I’m afraid of what I am, what I’m not, what I might become, what I might never become. I don’t want to stay at my job for the rest of my life, but I’m afraid to leave. And I’m just tired, you know? I’m just so tired of being afraid.
+ - You can have it all, but you can’t do it all.
+ - When you’re young and have a dream, it’s pretty simplistic. You don’t think about or have any way of knowing everything it can be, and anticipate that.
+ - I guess I sort of just feel like I am lucky.
+ - People make a lot of jokes about the empty nest. Let me tell you, it is no laughing matter. It is really hard.
+ - You know, the more you can meet people from different walks of life, the better it is for you. I think the more you can create situations and experiences that give you new perspective, the better.
+ - Love humiliates you. Hatred cradles you.
+ - I find the less you focus on your flaws, the better off you are. Be yourself and be glad of who you are.
+ - I don’t know if it’s naivete or just narcissism, but I start out with this notion that I can do anything. It’s not until I get into it that I realize what I’ve thrown myself into, and then I will do anything not to humiliate myself. And that, I think, is the secret to my success.
+ - My favorite food in the world is Mexican food. I’m not a dessert person. I’m more of a crunchy, salty girl. I could live on chips and salsa. I would take a Mexican meal over some fancy French cuisine anytime.
+ - Just standing around looking beautiful is so boring.
+ - If you think hitting 40 is liberating, wait until you hit 50; and I was surprised at how liberating it was. The anticipation of something is always much worse than the reality.
+ - One of the things I love most about acting is just disappearing in the role, as much as I can. I think that’s one of the things that intrigued me about it.
+ - Honestly, depending on what stage I’m at in my life, my opinion on plastic surgery changes. I’ve never been against plastic surgery – I’m against bad plastic surgery. I’m against the overuse of plastic surgery.
+ - My grandmother raised five children during the Depression by herself. At 50, she threw her sewing machine into the back of a pickup truck and drove from North Dakota to California. She was a real survivor, so that’s my stock. That’s how I want my kids to be too.
+ - I relax by taking my bicycle apart and putting it back together again.
+ - Just when you think you’ve got your kids figured out, they change on you. For somebody who’s controlling, you can’t control it. Of course, I don’t think I’m controlling, but that’s what I’ve been told!
+ - I don’t believe men want women to have grotesque plastic surgery or be undernourished and bony. All the plastic surgery in the world can’t stop you getting older.
+ - I even had breasts that had mechanisms that could make them droop. It was a shock in the beginning. Talk about special effects!
+ - Even though I don’t feel I need approval, it’s still important to me to give a good performance. I’m hard on myself.
+ - And I’m a really happy person, I enjoy life. I think you see that on people. I think there’s nothing more aging than misery.
+ - I’ve never met a person who has more integrity than my husband. I respect that. There’s his humor and intelligence, too, and he’s really cute, all those things – but if you don’t respect your partner, you’ll get sick of him.
+ - Like all parents, my husband and I just do the best we can, hold our breath and hope we’ve set aside enough money for our kid’s therapy.
+ - It takes years for me to trust; I know that about myself. A lot of it is because I am so private, and so reluctant to make myself vulnerable.
+ - I don’t think it’s easy for women to watch themselves age. And I think it’s obviously doubly hard to grow older when you are a public figure and you constantly have to see your image all the time, and people are constantly pointing it out.
+ - When I was very young I never thought I was attractive, because I was a tomboy and I was always the biggest girl in the class.
+ - Well, I’m very stubborn. I think I have common sense; I’m probably at times a bit tunnel-visioned, but I’m strong.
+ - Ultimately, I believe the only secret to a happy marriage is choosing the right person. Life is a series of choices, right?
+ - You have a choice. It may not be a choice you like, but it is still a choice.
+ - For me, getting comfortable with being famous was hard – that whole side of it, the loss of anonymity, the loss of privacy. Giving up that part of your life and not having control of it.
+ - I act for free, but I demand a huge salary as compensation for all the annoyance of being a public personality. In that sense, I earn every dime I make.
+ - I was considered the black sheep of the family, neighbours didn’t want their kids playing with me.
+ - I feel less pressure to dress youthfully. I’m 50 and everyone knows I’m 50 – who are you kidding? Jeans are my uniform. I have about 15 pairs.
+ - I like understanding what’s underneath, what’s really motivating people. When I was younger, I wanted to be a psychiatrist, so I think it has to do with that.
+ - I look like a duck. It’s the way my mouth curls up, or my nose tilts up. I should have played Howard the Duck.
+ - I do find comedy difficult. I don’t know why. Maybe I think about it too much. There’s a tremendous amount of pressure to be funny.
+ - It’s simple. Eat well, exercise and get lots of sleep but make sure you indulge occasionally. At my age, I think, what the hell, and eat a Krispy Kreme doughnut !
+ - There have been people in my life who have told me I have to put myself out there more. But it’s so hard for me to do that.
+ - I do portraits. I usually do live models in a class environment, but I’ve been painting at home more. I really love the human form, and I love faces. I’ve tried to do landscapes a few times.
+ - The value of a good education has never left me.
+ - It’s harder to live the way I live. There are certain places I like to shop and eat where I simply don’t go. The paparazzi follow you.
+ - Everybody is vulnerable to being in relationships where they get fooled. I’m no different. It’s just human nature.
+ - Somewhere along the line I made the switch and was able to look at the bright side rather than the dark sida all the time. Now I look at everything I have and think how lucky I am.
+ - When I wasn’t working I didn’t know what to do with myself and sort of didn’t exist, in a way, when I wasn’t working, so I was like two different people. I am not like that anymore.
+ - My walk is consistently made fun of.
+ - I’m good at disguising my feelings.
+ - When I go to work and when I’m in the public eye, I take much better care of myself. Because when I’m not working, I do indulge more.
+ - There’s always an imbalance with actors and actresses in the industry. And I think because there are just fewer movies overall being made, it’s that trickle down effect.
+ - My kids would probably say that I’m too strict. They probably would say that, and I try not to be, but I’m probably more on the conservative end of that. At the same time, I know full well that ultimately I don’t really have control over them.
+ - I still think people will find out that I’m really not very talented. I’m really not very good. It’s all been a big sham.
+ - I have days when I just feel I look like a dog.
+ - I worked so hard for so long – I did a lot of movies. I also worked a lot when my kids were smaller, before they were in school.
+ - I probably would like to do more than I do, because I love working, but I can’t work more than I work because I have to do some facetime with the family, and the work that I do is just all-encompassing.
+ - I’m a perfectionist, so I can drive myself mad – and other people, too. At the same time, I think that’s one of the reasons I’m successful. Because I really care about what I do.
+ - Where I came from, the idea of going into show business was just ridiculous; in fact I didn’t tell anybody because I knew people would laugh at me. So I sort of snuck around and got some pictures and got a resume together and, of course, lied and said I did all kinds of things I didn’t do.
+ - I say really stupid things sometimes. When I go back and watch some of my old interviews from when I was younger, I just cringe.
+ - I was kind of surprised to learn how controlling I am. I never thought of myself in that way. I think the root of the control issues is usually fear, because you want to know what’s going to be happening at any given moment.
+ - I do think that, at one time, being an actress was the equivalent almost of being a prostitute. It garnered roughly the same respect. That’s changed a lot, thank goodness.
+ - Most people in the world have seen more of me on-screen than my kids have.
+ - You know, when I am working, I take really, really good care of myself. I eat really well, and I exercise, and again, I have this team of people pulling me together every day.
+ - There is no question that the older you get, the fewer good roles there are.
+
+62 quotes

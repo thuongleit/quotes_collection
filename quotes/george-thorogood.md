@@ -1,0 +1,33 @@
+ - Everybody funny, now you funny too.
+ - I drink alone. Yeah, with nobody else. You know when I drink alone, I prefer to be by myself.
+ - Classic Rock radio gave us our longevity.
+ - I guess a good song is a good song is a good song, ya know.
+ - I make a rich woman beg, I’ll make a good woman steal. I’ll make an old woman blush, and make a young woman squeal.
+ - Every morning just before breakfast I don’t want no coffee or tea, just me and my good Buddy Wieser, that’s all I ever need.
+ - The other day I got invited to a party, but I stayed home instead. Just me and my pal Johnny Walker and his brothers Black and Red.
+ - You can’t rely on luck. I’ve had some stages in my career where I’ve said we’re going to wing it, and we’ve always ended up in trouble.
+ - I was a big J. Geils fan, a Steppenwolf fan and a Savoy Brown fan.
+ - Rock and roll never sleeps. It just passes out.
+ - Look at Gleason in The Honeymooners. He was humorous but the way he lived wasn’t really humorous. He was a bus driver. Who wants to be a bus driver? He didn’t have any money and he was not famous. But despite that, the show is humorous.
+ - When people come to the show they think we are a legendary band because they hear us on Classic Rock radio all the time. It is psychological. That’s okay – I’m down with that.
+ - Every time the guys were knocked out by my guitar playing and the girls were knocked out by the type of songs I did. That set us apart from the average blues band.
+ - There is no doubt in my mind who is number one – I have always been number one.
+ - When I walk the streets, kings and queens step aside, every woman I meet, they all stay satisfied.
+ - My parents taught me what life is about, so I grew up the type they warned me about.
+ - This music has been around since before the beard on Moses. I happed to do it very well and I happen to have a lot of groovy songs that I know people are going to dig. I know more about it than you do.
+ - They said my friends were just an unruly mob, and I should get a hair cut and get a new job.
+ - If you don’t start drinking, I’m gonna leave.
+ - Whatever title you want to lay on me is fine. I am still working; you know what I’m saying?
+ - I didn’t live in the world of disco or the world of the Eagles.
+ - There are now grandmothers and grandfathers coming to see us because they are of that age, they grew up in the ’50s and ’60s and they bring their sons and their daughters to hear the songs they heard when they were young.
+ - Radio is paid by advertising. They decide what songs to play that’ll keep people listening. And that’s what promoters and the Classic Rock people do.
+ - I really, really, really, really, really, really, really like girls.
+ - All I have is my performance, I try to feed in the best of everything that I could possibly do into those 90 minutes and to make a live entertainment show out of it.
+ - I know I’m not going to sing like Aretha Franklin or Elvis Presley or any of those people.
+ - Rounder Records decided to call the album Move It On Over, much to my chagrin but they knew what they were doing. It took off and to this day I can’t figure out why.
+ - Led Zeppelin, they still rule the airwaves. I hear Zeppelin every day, and they’ve been around since ’69. So the people who grew up with that still listen to that, and now their children listen to it.
+ - On the day I was born, the nurses gathered around, to gaze in wide wonder at the joy they had found.
+ - I’m more of a rhythmic player. My soloing is pretty much limited to playing slide guitar.
+ - Not to this extent but from day one I had an awful lot of confidence when I got started.
+
+31 quotes

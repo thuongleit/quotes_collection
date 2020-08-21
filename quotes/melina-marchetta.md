@@ -1,0 +1,191 @@
+ - It’s funny how you can forget everything except people loving you. Maybe that’s why humans find it so hard getting over love affairs. It’s not the pain they’re getting over, it’s the love.
+ - Promise me you’ll never stop dreaming.
+ - Hold my hand because I might disappear.
+ - Don’t believe in God. Love the world just the way it is.
+ - Because today, I think I’m leaning on the side of wonder.
+ - If we forget who we lost, then we forget who we once were, and if we forget who we once were, we lose sight of who we are now.
+ - A blind man can see what she feels for you and you for her. Your souls are not merely entwined; they are fused.
+ - Our spirit is mightier than the filth of our memories.
+ - I heard your song the moment we were born. And years later, it dragged me back from the lake of the half-dead when all I wanted to do was die. Each time someone tried to kill me, it sang its tune and gave me hope.
+ - Whatever is now covered up will be uncovered and every secret will be made known.
+ - Your problems are out there. But they’re small. They only grow out of proportion when they climb inside your head.
+ - You know what? You didn’t do anything wrong. I did. It’s this dumb thing I do. I look into things and see more than I’m supposed to.
+ - Do something that scares you everyday.
+ - I live on the Jellicoe Road. Where trees make canopies over-head and where you can sit at the top of them and see forever.
+ - And when you’d finished running you’d be thousands of miles away from people who love you and your problem would still be there except you’d have nobody to help you.
+ - You go shake your foundations, Will. I think it’s about time I saved myself.
+ - Comfort zones are overrated. They make you lazy.
+ - Be prepared for the worst, my love, for it lives next door to the best.
+ - It’s all a bit of a gamble, mate. That’s all I can promise you. And we never get to see what that other life would have looked like if we don’t take chances.
+ - I’m beginning to realize that things don’t turn out the way you want them to. And sometimes, when they don’t they can turn out just a little bit better.
+ - When I turn around, he cups my face in his hands and he kisses me so deeply that I don’t know who is breathing for who, but his mouth and tongue taste like warm honey. I don’t know how long it lasts, but when I let go of him, I miss it already.
+ - I need voices of reason and of hysteria and of empathy. I need to have an Alanis moment. I need advice from Elizabeth Bennett. I need Tim Tams and comfort food.
+ - According to Dickens, the first rule of human nature is self-preservation and when I forgive him for writing a character as pathetic as Oliver Twist, I’ll thank him for the advice.
+ - Because without our language, we have lost ourselves. Who are we without our words?
+ - Because photos are testimony that someone did live. A reminder of past we may have loved or hated. A piece of our lives.
+ - I think we’re made up of all these different pieces and every time someone goes, you’re left with less of yourself.
+ - He took my hand, made me stand on the branch and asked, “What can you see from here?” “Nothing” I said, “Know what I can see? From this distance everything is so bloody perfect”.
+ - If I want more, I need to go and get it, demand it, take hold of it with all my might, and do the best I can with it.
+ - Because being so dependent on people scares me.
+ - When it was over, she gathered him in her arms. And told him the terrible irony of her life. That she had wanted to be dead all those years while her brother had been alive. That had been her sin. And this was her penance. Wanting to live when everyone else seemed dead.
+ - What kind of freak is this kid who’s giggling hysterically with the girls in the neighbouring beds, each with a crush on the other for being the same age when the rest of the world seems so old?
+ - Causing a riot is what I do best.
+ - It is what a man does for strangers that counts more than what he does for his family.
+ - You were never able to break her. She is the stone of this kingdom.
+ - From this distance everything is so bloody perfect.
+ - To have somone hold you could be the greatest medicine of all.
+ - She comes from the school of getting it out of your system, whereas he comes from the school of stewing over it.
+ - Why do I feel like something’s missing in my life without them and they don’t feel the same about me?
+ - And life goes on, which seems kind of strange and cruel when you’re watching someone die.
+ - But grieving people are selfish. They won’t let you comfort them and they say you don’t understand and they make you feel useless when all your life you’ve been functional to them.
+ - It’s my birthday today. I’m not 17 anymore. The 17 Janis Ian sang about where one learns the truth. But what she failed to mention is that you keep on learning truths after 17 and I want to keep on learning truths till the day I die.
+ - Josie, life is not a Mills and Boon book. People fall out of love. People disappoint other people and they find it very hard to forgive.
+ - Do you love me?’ he asked instead. ‘Because if you don’t, I’d wait until you did. I’d wait weeks and months and years.
+ - It’s too late. Seventeen-year-olds don’t need fathers. Oh god. I’m thirty-four years old and I need a father. I can’t even begin to think what my daughter needs.
+ - People with lost personalities will suffer a great deal more than those with lost virginities.
+ - I’m scared I’m going to spend the rest of my life in a state of yearning, regardless of where I am.
+ - I never thought meeting you would be this boring. I thought we’d put our Italian emotion into gear and scream the place down. I never expected indifference.
+ - The idea that God works in mysterious ways is rubbish. There’s nothing mysterious about his ways. They’re premeditated and slightly conniving, and they place you in an impossible situation.
+ - The people I’m stuck with in my life now aren’t sucking the life out of me, they just suck.
+ - Living is the challenge. Not dying. Dying is so easy. Sometimes it only takes ten seconds to die. But living? That can take you eighty years and you do something in that time.
+ - And life goes on, which seems kind of strange and cruel when you’re watching someone die. But there’s a joy and an abundance of everything, like information and laughter and summer weather and so many stories.
+ - Simple dreams are the hardest to come true.
+ - The truth doesn’t set you free, you know. It makes you feel awkward and embarrassed and defenseless and red in the face and horrified and petrified and vulnerable.
+ - Sometimes I feel like a junkie. One minute something happens in my life and I’m flying. Next minute I take a nose-dive and just as I’m about to hit the ground with full force something else will have me flying again.
+ - She’s tired and leans her head on his shoulder, which is the resting place for all their heads, but when Justine and Siobhan and Francesca use his body so shamelessly he doesn’t feel the need to turn his head and press his mouth against their hair.
+ - She asked me what type of contraceptive I use. Underwear. Keeping it on prevents pregnancy.
+ - A home to come back to every day of their lives. Where they would all belong or long to be. A place on the Jellicoe Road.
+ - God knows what possessed me, but having that science book in my hand propelled me to immediate action. So I hit her with it.
+ - I think I’m a bit in love with these girls. They make me feel giddy. Like I haven’t a care in the world. Like I’m fearless. Like I used to be.
+ - He took a deep breath and closed his eyes. “Okay, would you like pizza?” “I don’t think you deserve my company but I feel sorry for you so I’ll say yes.” “God help me,” he said, half under his breath.
+ - For reasons he couldn’t understand a sadness came over him and it was then he saw the girl standing on the other side of the dirt road, her eyes pools of absolute sorrow, her light brown hair glowing in the splinters of sunlight that forced their way through the trees.
+ - About my first memory, sitting on the shoulders of a giant who I know can only be my father. Of touching the sky. Of lying between two people who read me stories of wild things and journeys with dragons, the soft hum of their voices speaking of love and serenity. See, I remember love.
+ - I’m very disturbed to find out that the leader of the Townies has a soul and I’m beginning to develop a bit of a crush on him.
+ - One of Sir Topher’s rules was to never indulge in sentimentality, never return for what was left behind.
+ - I don’t want to let go, because tonight I’m not looking for anything more than being part of him. Because being part of him isn’t just anything. It’s kind of everything.
+ - Just ask how I’m feeling, I want to say. Just ask and I may tell you. But no one does.
+ - When one is silent, those around speak even more.
+ - Then I choose to drown. In hope. Rather than float into nothing.
+ - I think that we vote, not to get the best party in, but to keep the worst party out.
+ - And we all end up where we started.
+ - You can’t think for other people. Nor can you feel for them or be them. They have to do that for themselves.
+ - Everything is evil that humans can’t control or conquer.
+ - Mama says that satisfaction isn’t what I should search for. Respect is. Respect? I detest that word. Probably because in this world you have to respect the wrong people for the wrong reasons.
+ - He knows bad days. Bad days take him completely by surprise. They make him not trust the good days because it’s likely something is lurking twenty-four hours away.
+ - I still wake with your name on my lips every morning.
+ - Never underestimate the value of knowing another’s language. It can be far more powerful than swords and arrows.
+ - I do not believe that the desires of young boys cause catastrophic events. The actions of humans do.
+ - It’s Thursday afternoon, and we have sports. These are the choices for the girls: watching an invitational cricket game; studying in one of the classrooms; or watching the senior rugby league. As you can imagine, I’m torn.
+ - Where did this come from? Do you know what this is? Luca is going to sneak out of bed in the middle of the night and squirt it on his tongue. It’s like drugs for ten-year-olds. Today it’s Ice Magic. Tomorrow, heroin.
+ - This is what I know. I look like my father. My father disappeared when he was seventeen years old. Hannah once told me that there is something unnatural about being older than your father ever got to be. When you can say that at the age of seventeen, it’s a different kind of devastating.
+ - We just have to learn to meet each other halfway okay?
+ - Some of us weren’t born for rewards, Froi. We were born for sacrifices.
+ - Then he holds her and for a moment I hear total silence; that totally silent part of a cry that announces that the most horrible grief is going to follow. And it does, and he’s muffling it, but I can hear and I want someone to come over and jab her with a sedative because its pitch pierces my soul.
+ - You’re the father of the person who is my life.
+ - She gently placed his hand against the beating pulse of her heart. Always, always it beat out of control, and he held his hand to it until he felt it perfectly match his.
+ - Best way to find the weakness of the enemy is to understand their ways.
+ - Phaedra of Alonso’s death was a never-ending pain that gnawed at his insides. It made him a prisoner in his own cottage.
+ - It’s like you have a plan and someone comes along and makes you want to change it all, but you still like your first plan, no matter how fantastic the second one makes you feel.
+ - Is a person worth more because they have someone to grieve for them?
+ - She was the most beautiful woman in the world. If she was alive I’d probably be a better person.
+ - Do you think I don’t want him to be gone more than you do? I do. Because I need to know that I can still breathe properly when he’s not around. If something happens to him, I have to know that I won’t fall apart...
+ - Maybe she’d always been there. Maybe strangers enter your heart first and then you spent the rest of your life searching for them.
+ - I would pick them when they bloomed. And when she called me home for supper, I’d place them in her hair and the contrast would take my breath away.
+ - How can you just forget a person completely until the moment you see his face again?
+ - Don’t let me outlive this woman. Don’t let me exist one moment without her.
+ - Fifteen minutes later I was an expert. That’s all you need. I think I was even getting the upper hand, which is very simple with a guy. Anything seems to turn them on.
+ - Trevanion wrapped his arm around his son’s neck like shepherd’s hook and dragged him along playfully. when he let go, Finnikin thought he would have liked his father to hold on a moment longer.
+ - What is it? A prize or something? No. It’s not a prize and I’m not a prize. But it’s mine. It belongs to me and I can only give it away once, and I want to be so sure when it happens. I don’t want to say that the first time for me was bad or it didn’t mean a thing.
+ - Girls under the age of fourteen are the most frightening creatures I have ever come across. – Jonah Griggs.
+ - As I walk back to the school on my own, I realise I’m crying. So I go back to the stories I’ve read about the five and I try to make sense of their lives because in making sense of theirs, I may understand mine.
+ - Maybe memories should be left the way they are.
+ - The two horsewomen of the apocalypse still win, despite their dwindling numbers.
+ - In the end, the sum of my vices is all me.
+ - Unexpectedly, a fierce sense of protectiveness comes over me. Except I fight it back because I can hardly look after myself these days.
+ - See, I remember love. That’s what people don’t understand.
+ - In the games of queens and kings, we leave our dreams at the door and we make do with what we have. Sometimes if we’re fortunate, we still manage to have a good life.
+ - I ran away one day. He was running in the same direction.
+ - If something happened to me, whose face will be on the front page of the paper begging for me? Is a person worth more because they have someone to grieve for them?
+ - You’re going to set us all on fire, you homicidal feral fruitcake.
+ - I think if I’m ever asked to recall what Year 12 was all about, I’ll remember it as one big cappuccino experience.
+ - He bursts out laughing. It’s short, as if he regretted allowing me to make him laugh, but the satisfaction’s already mine.
+ - I recognise Santangelo’s dad, who saves police brutality for when he gets to his son.
+ - We look at each other for a moment and for once I feel awkward. It’s not that I’m not into humility; I’ve just never had to practise it.
+ - Imagine who she would be if we unleashed her onto the world. I think she would rip the breath from all of us.
+ - He just watched the way Finnikin’s hands rested on Evanjalin’s neck and he rubbed his thumb along her jaw and the way his tongue seemed to disappear inside her mouth as if he needed a part of her to breathe himself.
+ - I would rather die than ever see you suffering this way. I don’t want you or any child I ever have or any woman I ever love to go through or feel what you’re going through, but it’s happened and I don’t know what to do.
+ - Because being part of him isn’t just anything. It’s kind of everything.
+ - He knew he should have counted. It was the rule to count to ten in his head before he opened his mouth. It was the rule to count to ten if he wanted to smash a man in the face for saying something he didn’t like. It was the rule to count to ten if instinct wasn’t needed, but common sense was.
+ - Balthazar pledged to die defending his royal house of Lumuatere. Finnikin swore to be their protector and guide for as long as he lived. Lucian vowed he would be the light whom they traveled toward in times of need.
+ - Everyone had told him to be strong for her, but Finnikin didn’t know how to be strong for himself.
+ - And at that moment Jude thought something that he would never forgive himself for. He wished that he had never met any of them.
+ - A clean house will result in peace in the Middle East as well.
+ - I’m not interested in those who do me wrong. There’s not enough time in the day for them.
+ - Up in the distance the whistle of the wind sang to her from the mountain. From Lucian’s mountain. It beckoned and taunted and she wanted to run towards it. To be enveloped in its coat of fleece and to hear its safe sounds.
+ - It’s against the rules of humanity to believe there is nothing we can do.
+ - There are worse things than a lie and there are better things than the truth!
+ - I want to tell him that deep down each time Hannah looked at him she was grateful it was him because Jude did something that the others didn’t. He came back for her.
+ - See them together and you will feel a force that will take your breath away.
+ - Lucian was beginning to get used to hearing her small observations at night. More than anything, he realized he liked her voice in the dark. It made him feel less lonely.
+ - She misses him more now than when he was away.
+ - I love it when you’re demented like this.
+ - Froi saw the foolishness of dreamers, and he decided he’d like to die so foolish. With a dream in his heart about the possibilities, rather than a chain of hopelessness.
+ - This isn’t romance. This isn’t a declaration of love or affirmation of friendship. This is something more.
+ - Somehow, even in the worst of times, the tiniest fragments of good survive. It was the grip in which one held those fragments that counted.
+ - I look over to the other side of the road and watch Griggs as he walks. It’s a lazy walk but so full of confidence that you want to be standing behind him all the way.
+ - They either don’t get it or don’t want to. Maybe I’m just not selling it well.
+ - That someone can want something out of another person who gives absolutely nothing in return astounds me.
+ - My father took one hundred and thirty-two minutes to die.
+ - A very underestimated part of the world, The Entrance is.
+ - He watched as Finnikin swung onto the horse, his sleeve stained with blood. Froi liked the way Finnikin reached behind him and took Evanjalin’s hand, placing it around his waist. It made everything seem normal because Finnikin always wanted to touch her.
+ - And then their voices stopped and their souls stood still and they ceased being who they had been. Because who they were had always been determined by him.
+ - And being that happy makes me feel guilty. Because I shouldn’t be. Not while my mum is feeling the way she is. How I can dare to be happy is beyond me, and I hate my guts for it.
+ - Those full of fear were the most dangerous of people.
+ - I’ve been passionate about two things in my life. One was Christina Alibrandi. The other is Josephine Alibrandi.
+ - Love’s easy. It kind of comes with the territory. But liking is another story.
+ - I’m sick and tired of you people living interstate and overseas from people you want to be with. You’re ruining my life! All of you!
+ - Oh, you’ve outdone me twice now, you queen of forgiveness. The ring’s a promise of peace and I’m greedy with hope. It’s a song that we sing in a tongue that we share. And though you say it’s a gift from a king to a king, I say it’s a sign from a queen to a queen.
+ - You’re good enough, Jacob.
+ - There’s not much you need to know about the world. Except how to use a sword and trust very few.
+ - It’s like geographical humor. You just don’t get it unless you were there.
+ - I look around for the counter that sells my scent, but I’m so petrified that if I spray it in the air, nothing will come out. And then Mia’s scent seems to fade away and everything else fades away with it and I know that all I have to do to recapture it is press the spray button again.
+ - I don’t despise you for what you allowed to happen to me. I despise you because when I was released, you refused to be found and I needed you more than anything in my life. Not to mend my broken bones, Arjuro. I needed my brother to mend my broken spirit.
+ - Someone asked us later, “Didn’t you wonder why no one came across you sooner?” Did I wonder? When you see your parents zipped up in black body bags on the Jellicoe Road like they’re some kind of garbage, don’t you know? Wonder dies.
+ - Just say up on the hill is the meaning of life and someone knew it and they wanted everyone else to enjoy it. So they put a red vinyl sofa up there.
+ - Strange? I don’t think that word comes anywhere near it. My troops are on an overnight camp three hundred kilometres away from here. I had to sleep at the Santangelo penitentiary for pre-pubescent girls.
+ - Silence is not just about secrecy, Your Majesty. It is grief and it is shame.
+ - Sometimes Webb believed that he would never experience a better feeling than when he was looking at her, would never see anything or anybody bursting with more life and spirit. Sometimes he felt he needed to inhale it and place it in a storage area in his soul. Just in case.
+ - They separate us into groups. The Ringleaders and the Others. I belong to the Ringleaders because my weak, pathetic, traitorous, fundamentally base peers point to me when someone asks them who is in charge.
+ - It’s called peaceful coexistence, Santangelo. You should try it and if it works we may sell the idea to the Israelis and Palestinians.
+ - But you pashed Jonah Griggs and he’s the leader of the enemy.
+ - Woman, I’m trying to fight here! Or has that escaped your attention?
+ - But then Froi looked back to where his work lay unfinished and it made him sad because there had been something about the touch of earth in his hands that made him feel worthwhile.
+ - She knows that feeling too. Of believing that each time someone says her name, it’s to tell her that something bad has happened.
+ - You list the dead. You tell the stories of the past. You write about the catastrophes and the massacres. What about the living, Finnikin? Who honors them?
+ - When I grow, I’m going to be my mother.
+ - I think you’ll just have to wait for that Loser of the Month tiara a little while longer while I wear it, with pride, around my neighborhood.
+ - Froi heard Zabat’s voice echo over and over again throughout the gorge. Wonderful. The gods had found a way of multiplying the idiot’s voice.
+ - I’m frightened that one morning there will not be enough to keep me going.
+ - The next night he asked Jonah if he could take $9.49 out of Jonah’s secret stash that only Danny and his mum and Jack knew about. Jonah kept it in his sock drawer next to a photograph of Jonah and a girl with sad eyes, taken in one of those railway station photo booths.
+ - If there was one weapon he had against these savages, it was not acknowledging their existence.
+ - No. But it’s like the argument ‘don’t donate to third-world countries because the money mightn’t get to them.’ People only say that because it makes them feel better about the fact that they do nothing.
+ - When a woman has not received much flattery in her life, she will be seduced.
+ - Quintana of Charyn’s body was a map of hatred.
+ - They always prided themselves on looking youthful. “Forty’s the new thirty,” they’d joke. Until heartbreak and grief enter your life, and then forty’s the new one hundred.
+ - Oh God, Frankie, I breathe in rhythm with that man. You think that’s not my flesh and blood after all these years?
+ - It still amazes him how they could have been misled by her personality in Year Eleven. It’s what depression does to a person, it changes them completely.
+ - What are you so sad about? We’re going to know him for the rest of our lives.
+ - And it was this image that was stamped on the hearts and minds of all who were present that day. Of Froi of the Exiles holding the future of Lumatere in his hands.
+ - Land?? Froi whispered. ‘You’re giving them land? I’m not worth the valley.’ ‘You’re worth a kingdom,’ Finnikin said, turning back to the crowd.
+ - And suddenly I know I have to go. But this time without being chased by the Brigadier, without experiencing the kindness of a postman from Yass, and without taking along a Cadet who will change the way I breath for the rest of my life.
+ - Do you want to know something about tyrants? When faced with death, they weep and they beg just like the rest of us.
+ - When he wins the bet, I tell Griggs that it will take me a lifetime to save up two trillion dollars and he tells me that he’s only giving me seventy years.
+ - Tom always did anger well. Hid it well, but showed it even better.
+ - You just have to belong. Long to be.
+ - You can’t go around feeling too much.
+ - How unladylike of you to mention such a thing.
+ - If I did something to hurt Frankie and she said that I was never getting near her heart again, I’d spent the rest of my life trying anyway. That’s the difference between you and me, Tom. I’d go back to the moment it all fell apart and I’d start there.
+ - City people. They may know how to street fight but they don’t know how to wade through manure.
+ - I want to be sitting in front of my computer, where you can press a button to block out your junk mail. These two are my junk mail.
+
+189 quotes

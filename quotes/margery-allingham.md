@@ -1,0 +1,29 @@
+ - Waiting is one of the great arts.
+ - There are only two kinds of men who become dentists. The ones who love it and ones who get miserable. Think round and you’ll see I’m right.
+ - A genuine coincidence always means bad luck for me; it’s my only superstition.
+ - I write every paragraph four times – once to get my meaning down, once to put in anything I have left out, once to take out anything that seems unnecessary, and once to make the whole thing sound as if I had only just thought of it.
+ - The optimism of a healthy mind is indefatigable.
+ - I am one of those people who are blessed, or cursed, with a nature which has to interfere. If I see a thing that needs doing I do it.
+ - If one cannot command attention by one’s admirable qualities one can at least be a nuisance.
+ - Self-satisfaction is the state of mind of those who have the happy conviction that they are not as other men.
+ - Chemists employed by the police can do remarkable things with blood. They can weave it into a rope to hang a man.
+ - The process of elimination, combined with a modicum of common sense, will always assist us to arrive at the correct conclusion with the maximum of possible accuracy and the minimum of hard labor. Which being translated means: I guessed it.
+ - Outrage, combining as it does shock, anger, reproach, and helplessness, is perhaps the most unmanageable, the most demoralizing of all the emotions.
+ - People don’t alter. They may with enormous difficulty modify themselves, but they never really change.
+ - When one kicks over a tea table and smashes everything but the sugar bowl, one may as well pick that up and drop it on the bricks, don’t you think?
+ - One policeman may be a friend, but two are the Law.
+ - A great deal has been written about the forthrightness of the moderns shocking the Victorians, but there is no shock like the one which the forthrightness of the Victorians can give a modern.
+ - It’s easy enough to make the truth look silly. A man never seems more foolish-like than he does when he’s speaking his whole mind and heart.
+ - There are, fortunately, very few people who can say that they have actually attended a murder.
+ - When the habitually even-tempered suddenly fly into a passion, that explosion is apt to be more impressive than the outburst of the most violent amongst us.
+ - He did not arrive at this conclusion by the decent process of quiet, logical deduction, nor yet by the blinding flash of glorious intuition, but by the shoddy, untidy process halfway between the two by which one usually gets to know things.
+ - It was a little skirmish across a century.
+ - I believe that an author who cannot control her characters is, like a mother who cannot control her children, not really fit to look after them.
+ - Love so seldom means happiness.
+ - It is always difficult to escape from youth; its hopefulness, its optimistic belief in the privileges of desire, its despair, and its sense of outrage and injustice at disappointment, all these spring on a man inflicting indelicate agony when he is no longer prepared.
+ - Of all the band of personal traitors the sense of humor is the most dangerous.
+ - She rose and followed her bust from the room.
+ - Beware of anger. It is the most difficult to remove of all the hindrances. But it is the alcohol of the body, you know, and the devil of it is that it deadens the perceptions.
+ - Good doctors get a mechanic’s pleasure in making you tick over.
+
+27 quotes

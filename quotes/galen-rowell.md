@@ -1,0 +1,24 @@
+ - You only get one sunrise and one sunset a day, and you only get so many days on the planet. A good photographer does the math and doesn’t waste either.
+ - My interest in photography did not begin with books or mentors, or with any burning desire to see the world through a camera. It evolved from an intense devotion to mountains and wilderness that eventually shaped all the parts of my life and brought them together.
+ - And most of my early pictures failed but about one in a 100 somehow looked better than what I saw.
+ - I find it some of the hardest photography and the most challenging photography I’ve ever done. It’s a real challenge to work with the natural features and the natural light.
+ - My first thought is always of light.
+ - When the magic hour arrives, my thoughts center on light rather than on the landscape. I search for perfect light, then hunt for something earthbound to match with it.
+ - Small, portable digital cameras that exceed the performance of an off-the-shelf Nikon using 35mm slide film are further away from current reality than the proposed NASA manned Mars mission, although I expect both to happen sometime during my lifetime.
+ - When the light is right and everything is working for me, I feel as tense as when making a difficult maneuver high on a mountain. A minute – and sometimes mere seconds – can make the difference between a superb image and a mundane one.
+ - My advice for climbers or photographers is to really tune into your own passions and not just what other people are doing or aren’t doing. Figure out what works for you, what turns you on, what gives you the greatest amount of energy and feeling of satisfaction.
+ - A lot of people think that when you have grand scenery, such as you have in Yosemite, that photography must be easy.
+ - The most interesting parts of the natural world are the edges, places where ocean meets land, meadow meets forest, timberline touches the heights.
+ - Often when I walked alone in the mountains, I tried to make sense out of the two halves of my life. What went on in the city during the week seemed chaotic and unrelated to the events in my mountain world.
+ - I think landscape photography in general is somewhat undervalued.
+ - There is no question that photography has played a major role in the environmental movement.
+ - We mountaineers always live with the feeling that we came on the scene too late.
+ - I began to realize that the camera sees the world differently than the human eye and that sometimes those differences can make a photograph more powerful than what you actually observed.
+ - Ever since the 1860s when photographers travelled the American West and brought photographs of scenic wonders back to the people on the East Coast of America we have had a North American tradition of landscape photography used for the environment.
+ - When I go to the mountains, I intuitively know my place in the world much better through these experiences. The more intense they are, the better I know myself, and the more I am able to challenge myself.
+ - Memory selects single important images, just as the camera does. In that manner both are able to isolate the highest moments of living.
+ - Today, I’m very careful not to mention very specific locations when I write or give captions.
+ - The landscape is like being there with a powerful personality and I’m searching for just the right angles to make that portrait come across as meaningfully as possible.
+ - Theres no question that photographs communicate more instantly and powerfully than words do, but if you want to communicate a complex concept clearly, you need words, too.
+
+22 quotes

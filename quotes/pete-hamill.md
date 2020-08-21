@@ -1,0 +1,23 @@
+ - For those without money, the road to the treasure house of the imagination begins at the public library.
+ - Don’t tell me about the world. Not today. It’s springtime and they’re knocking baseball around fields where the grass is damp and green in the morning and the kids are trying to hit the curve ball.
+ - The culture of drink endures because it offers so many rewards: confidence for the shy, clarity for the uncertain, solace to the wounded and lonely, and above all, the elusive promises of friendship and love.
+ - He tried to imagine the sound of the color red.
+ - Writing is the hardest work in the world not involving heavy lifting.
+ - I don’t ask for the meaning of the song of a bird or the rising of the sun on a misty morning. There they are, and they are beautiful.
+ - My ambition was to embrace those general qualities that Ernest Hemingway, a former newspaperman, once said should be present in all good books: ‘the good and the bad, the ecstasy, the remorse and sorrow, the people and the places and how the weather was.’
+ - In the end, the only thing the true New Yorker knows about New York is that it is unknowable.
+ - Human beings want to know too much abut each other, and that’s why there are so many lies.
+ - The only way to fight nostalgia is to listen to somebody else’s nostalgia.
+ - More than anything, it’s a game of innocence. Politicians may come and go, but they always get booed at the ballpark.
+ - Frank Sinatra was the voice of the 20th-century American city.
+ - The best newspapermen I know are those most thrilled by the daily pump of city room excitements; they long fondly for a good murder; they pray that assassinations, wars, catastrophes break on their editions.
+ - There is a growing feeling that perhaps Texas is really another country, a place where the skies, the disasters, the diamonds, the politicians, the women, the fortunes, the football players and the murders are all bigger than anywhere else.
+ - The goal is to be both disciplined and loose, so that the writing does not turn into a task or a chore. To leave myself behind, along with the mechanics, and disappear into the lives of my characters.
+ - There are 10,000 books in my library, and it will keep growing until I die. This has exasperated my daughters, amused my friends and baffled my accountant. If I had not picked up this habit in the library long ago, I would have more money in the bank today; I would not be richer.
+ - Say what you will about him Ed Koch is still the best show in town.
+ - Today there are a lot of novelists who seem to be writing to be reviewed, not read.
+ - This is truly marvelous work full of mystery, nostalgia, joy, The Color of Whimsy.
+ - It’s odd being an American now. Most of us are peaceful, but here we are again, in our fifth major war of this century.
+ - The library is a place where most of the things I came to value as an adult had their beginnings.
+
+21 quotes

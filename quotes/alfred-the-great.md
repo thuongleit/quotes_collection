@@ -1,0 +1,22 @@
+ - For man is man and master of his fate.
+ - I am a part of all whom I have met.
+ - Science moves, but slowly, slowly, creeping on from point to point.
+ - The saddest thing about any man is that he be ignorant, and the most exciting thing is that he knows.
+ - Ring out false pride in place and blood, The civic slander and the spite; Ring in the love of truth and right, Ring in the common love of good. Ring out old shapes of foul disease; Ring out the narrowing lust of gold; Ring out the thousand wars of old, Ring in the thousand years of peace.
+ - He promoted the education of the parish clergy and wrote: He seems to me a very foolish man, and very wretched, who will not increase his understanding while he is in the world, and ever wish and long to reach that endless life where all shall be made clear.
+ - Food over flame burns, food over heat cooks.
+ - O hard, when love and duty clash!
+ - The greater the man the greater the courtesy.
+ - I desire to leave to the men that come after me a remembrance of me in good works.
+ - I embrace the purpose of God and the doom assigned.
+ - When the Sun Clearest shineth Serenest in the heaven, Quickly are obscured All over the earth Other stars.
+ - Doom very evenly! Do not doom one doom to the rich; another to the poor! Nor doom one doom to your friend; another to your foe!
+ - It becomes no man to nurse despair, but, in the teeth of clenched antagonisms, to follow up the worthiest till he die.
+ - All things have rest: why should we toil alone, We only toil, who are the first of things.
+ - The Christmas bells from hill to hill Answer each other in the mist.
+ - The vow that binds too quickly snaps itself.
+ - Ah, why should life all labor be?
+ - All the youth now in England of free men, who are rich enough to be able to devote themselves to it, be set to learn as long as they are not fit for any other occupation, until they are able to read English writing well.
+ - He clasps the crag with crooked hands; Close to the sun in lonely lands, Ringed with the azure world, he stands. The wrinkled sea beneath him crawls; He watches from his mountain walls, And like a thunderbolt he falls.
+
+20 quotes

@@ -1,0 +1,95 @@
+ - Should have. Would have. Could have. Didn’t.
+ - Someday, we’ll run into each other again, I know it. Maybe I’ll be older and smarter and just plain better. If that happens, that’s when I’ll deserve you. But now, at this moment, you can’t hook your boat to mine, because I’m liable to sink us both.
+ - Let’s stay young forever. Young, stupid, and pretty. Sounds like a plan, don’t you think?
+ - Why do two people fall in love? It’s a mystery.
+ - But I believe good things happen everyday. I believe good things happen even when bad things happen. And I believe on a happy day like today, we can still feel a little sad. And that’s life, isn’t it?
+ - It’s difficult to ever go back to the same places or people. You turn away, even for a moment, and when you turn back around, everything’s changed.
+ - In the end, the end of a life only matters to friends, family, and other folks you used to know. For everyone else, it’s just another end.
+ - You tell a kid he doesn’t like to read, and he’ll believe you.
+ - You can’t avoid orphan stories, child. Every story is an orphan story. We are all orphaned sooner or later.
+ - We are not quite novels. We are not quite short stories. In the end, we are collected works.
+ - A place isn’t a place until it has a bookstore.
+ - Wounds are like water set to boil – they heal best left unwatched...
+ - My brain said no. But my heart!
+ - People, you’ll find, aren’t usually all good or bad. Sometimes they’re just a little bit good and a whole lot bad. And sometimes they’re mostly good with a dash of bad. And most of us, well, we fall in the middle somewhere.
+ - They should tell you when you’re born: have a suitcase heart, be ready to travel.
+ - It was such a sweet, sad song with such sweet, sad lyrics. Old-fashioned a little, but also timeless.
+ - A life isn’t measured in hours and minutes. It’s the quality, not the length.
+ - Death is a state of mind – many people on Earth spend their entire lives dead.
+ - I’m allergic to sad memories. It’s the worst.
+ - I let myself feel good and sorry for myself, but only for a second. Daddy always said that the most useless of all human emotions was self-pity.
+ - On Elsewhere we fool ourselves into thinking we know what will be just because we know the amount of time we have left. We know this, but we never really know what will be. We never know what will happen...
+ - And when she dreams, she dreams of a girl who was lost at sea but one day found the shore.
+ - Oh, all stories are the same, aren’t they? Men and women fall in love or out of love. People are born; people die. It al ends happily or it all ends sadly, and the difference matters only to the people involved.
+ - Diving is a leap of faith plus gravity.
+ - We aren’t the things we collect, acquire, read. We are, for as long as we are here, only love. The things we loved. The people we loved. And these, I think these really do live on.
+ - I have so much paperwork. I’m afraid my paperwork has paperwork.
+ - Betty inhales sharply, ‘It’s just I thought I had lost you forever.’ Oh, Betty, don’t you know there’s no such thing as forever?
+ - No one actually needs another person or another person’s love to survive. Love is when we have irrationally convinced ourselves that we do.
+ - There is no difference in quality between a life lived forward and a life lived backwards, she thinks. She had come to love this backward life. It was, after all, the only life she had.
+ - Daddy always said the only thing worth begging for was your life, but maybe he was wrong. Maybe sometimes your love is a little bit worth begging for, too.
+ - I can promise you books and conversation and all my heart.
+ - On, there are so many lives. How we wish we could live them concurrently instead of one by one by one. We could select the best pieces of each, stringing them together like a strand of pearls. But that’s not how it works. A human life is a beautiful mess.
+ - It was strange, really. A couple months ago, I had thought I couldn’t live without him. Apparently I could.
+ - It’s like when you take a trip with someone you don’t know very well. Sometimes, you can get very close very quickly, but then after the trip is over, you realize all that was a false sort of closeness. An intimacy based on the trip more than the travelers.
+ - Saying you’re through with romance is like saying you’re done with living, Betty. Life is better with a little romance, you know.
+ - Love stories are written in millimeters and milliseconds with a fast, dull pencil whose marks you can barely see, they are written in miles and eons with a chisel on the side of a mountiantop.
+ - People are capable of great, great change during the span of one lifetime. And women even more than men.
+ - The truth is, sometimes too much can happen in a relationship, and then there’s nothing anyone can do or say. It’s broken.
+ - Tragedy is when someone ends up dead. Everything else is just a bump in the road. For the record, that was something Daddy used to say.
+ - I did learn something about insanity while I was down there. People go crazy, not because they are crazy, but because it’s the best available option at the time.
+ - The words you can’t find, you borrow.
+ - Sometimes books don’t find us until the right time.
+ - Eye contact made people think you were being truthful even if you weren’t.
+ - Daddy always said you only explained things to the people that actually mattered.
+ - It was a nice day, and I don’t mean that it was sunny either. It was humid and not too cool, like winter was getting annoyed with itself and wanted it to be spring just as much as everyone else.
+ - I wondered if the person who really loves you is the person who knows all your stories, the person who WANTS to know all your stories.
+ - It’s a weakness to apologize before hearing what the other person’s grievances are. You don’t want to end up creating new grievances where there were none to begin with. Another Daddy-ism, if you hadn’t already guessed.
+ - The scent is sweet and meloncholy. A bit like dying, a bit like falling in love.
+ - It’s a tragic fact to die in an accident.
+ - There’s a pleasure to loving someone even when you know there’s no chance in them loving you back. The pain I felt let me know I was still alive.
+ - But I wondered if all this kissing was a bad habit with him and me. The thing we did with our mouths instead of talking.
+ - You know everything you need to know about a person from the answer to the question, What is your favorite book?
+ - And I was crying for gravity. It had sent me down the stairs, and I’d thought that meant something, but maybe it was just the direction that all things tend to flow.
+ - I don’t believe in writer’s block.
+ - Violence should not always beget more violence.
+ - He kissed me, though not in a sexy way. Gentle. Tender.
+ - That Woman is in love with her own grief.
+ - In you, I found infinity. In you, I was reborn.
+ - I do believe that food lobbies exert enormous, at times insidious, power over what we eat, that our water supplies are not being protected as much as they probably should be and that, in general, people are more interested in smart phones than museums.
+ - Intimacy doesn’t have all that much to do with backseats of cars. Real intimacy is brushing your teeth together.
+ - He told me that love was the only thing that really mattered in the world.
+ - If you are going to forgive a person, Liz decides, it is best to do it sooner rather than later. Later, Liz knows from experience, could be sooner than you thought.
+ - My heart was a little bit broken, but I still had to go to school. I buttoned my dress shirt over it and my winter coat, too. I hoped it didn’t show too much.
+ - I was crying a little for the boy I had wanted him to be and the boy he hadn’t turned out to be.
+ - My beautiful Win. I wanted to kiss him on every last broken place, but his mother and my lawyer were there. So, instead I started to cry.
+ - It was odd to have something so personal out there in that way, but the good thing about art is that no one necessarily knows what you mean by it anyway.
+ - It was funny how dad was more honest in a book that anyone in the world could pick up and read than he could be talking to me. Or maybe it was sad. One or the other. Sometimes it’s hard to tell.
+ - Covers matter. In my experience, a different cover can make you think you’re reading an entirely different book.
+ - In a way, whoever you know in a certain place defines that place for you.
+ - But then again maybe “I will” is nicer. It has a future in it.
+ - When I was in my twenties and broke, I’d buy books before food. A meal will sustain you for a few hours, a good book will sustain you for life.
+ - It’s when you don’t need something that you tend to lose it.
+ - I met a travler from an ancient land.
+ - The casualities seemed to go on and on. Just when I thought I was done losing her, I would find yet another way to love her all over again.
+ - Before I liked to write, I liked to type. I remember visiting my grandmother Adele in Ponce Inlet, Florida, when I was three years old, and she had an IBM electric typewriter.
+ - Each period had required me to be a slightly different person, and that was exhausting. I wondered if school had always felt this way and whether it was like this for everone.
+ - There’s a strange sort of quiet when you’re dying. It’s as if you’re in a glass room, and the walls keep getting thicker and thicker.
+ - When I was around eight, I learned how to touch-type at school, and I received a computer as a present. I started writing plays, and for many years I thought I would be a playwright.
+ - Ask two people to tell you anything, you’ll get two versions. Even easy things like directions, let alone important or semi-controversial topics like why a fight started or what a person was generally like. If you don’t know something for yourself, you just can’t be sure.
+ - Life used to move much more quickly when I was a girl. We needed to abbreviate just to keep up.
+ - Well, for one, you have to remember not to scream. Once you have their attention, whispering is much more effective. Screaming ghosts scare people, you know.
+ - Sometimes things seem so unbearable in the middle of the night, don’t they? In the middle of the night, we’re all such children.
+ - It wasn’t even 8:00 yet. Pretty early for such deep thoughts.
+ - I don’t think I would have minded you being the keeper of my secrets.
+ - Maybe if I’d been braver in that moment, I would have cried.
+ - Did you know that there are over three hundred words for love in canine?
+ - But in my defense, I knew enough about her to know I wanted to know everything else; I knew as much about her as she wanted me to know; I knew as much about her as anyone ever knows about anyone. And isn’t love just curiosity at the beginning anyway?
+ - In life, Jane reflected, the most interesting things tend to happen when you’re on your way to do something else.
+ - The things we respond to at twenty are not necessarily the same things we will respond to at forty and vice versa. This is true in books and also in life.
+ - It is a lie that people who love each other must know everything about each other. Love must occasionally allow for a gap.
+ - The theme of the dance was “Great Romances,” or some such nonsense. There were projections of supposedly great couples from the past on the walls of the gym. Romeo and Juliet, Antony and Cleopatra, Hermione and Ron, Bonnie and Clyde, etc.
+ - The only love she inspires is the canine kind.
+ - It’s sad when you think about it, but also kind of beautiful.
+
+93 quotes

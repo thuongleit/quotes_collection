@@ -1,0 +1,44 @@
+ - Stand up and walk. Move forward.
+ - Humankind cannot gain something without first giving something in return. To obtain, something of equal value must be lost. This is Alchemy’s First Law of Equivalent Exchange. In those days, we really believed that to be the world’s one, and only, truth.
+ - To obtain something, something of equal value must be lost.
+ - A lesson without pain is meaningless. For you cannot gain something without sacrificing something in return...
+ - Nothing’s perfect, the world’s not perfect. But it’s there for us, trying the best it can; that’s what makes it so damn beautiful.
+ - Greed may not be good, but it’s not so bad either. You humans think greed is just for money or power, but everyone wants something they can’t have.
+ - Stand up and walk. Move on. After all, you have perfect legs to stand on.
+ - Believe in yourself. Pick a path that you, deep down in your soul, won’t be ashamed of.
+ - It’s a cruel and random world, but the chaos is all so beautiful.
+ - Stand up and walk. Keep moving forward. You’ve got two good legs. So get up and use them. You’re strong enough to make your own path.-Edward Elric.
+ - If there’s no door, then I’ll make one!
+ - Men should be buff! Women should be vavoom!
+ - Even when our eyes are closed, there’s a whole world that exists outside ourselves and our dreams.
+ - Enduring and forgiving are two different things. You must not forgive the cruelty of this world. It’s our duty as human beings to be angry at injustice. But we must also endure it. Because someone must sever this chain of hatred.
+ - Well, it’s like that myth about the hero. He made wings out of wax so he could fly, but when he got too close to the Sun, to God, the wax melted and he crashed to the ground.
+ - What?! I’m not small! It’s the world that’s too big!!
+ - Damn it, there are so many idiots whose asses I have to kick! I’ll have to start carrying a list just to keep track of ’em all!
+ - It’s ironic that as scientists that don’t believe in god, were the ones that are closest to god.
+ - When I, who is called a “weapon” or a “monster”, fight a real monster, I can fully realize that I am just a “human”.
+ - There are many questions in this world that have no answers.
+ - We’re going to start walking again. We can’t stand still, you know. Not as long as we’re still alive.
+ - And now, I’m thinking again, isn’t there something we can do about something we can’t do anything about?
+ - The two brothers who sought to get their only family back, to feel her warmth, one lost his last family member and the other could never feel warmth again. The one who wanted her baby back lost chance of having one again, And the one who had a vision to see his country change became blind.
+ - Bloodshed begets bloodshed. Hatred begits hatred.
+ - Al: So what’s your strategy? Ed: I told you, a fist in his face!
+ - The Homunculi may have started the war, but we were the ones who carried it out.
+ - Fool! Nothing but black ink runs through my veins!
+ - Friends are connected by their souls, you can’t just rinse something out that has been deeply instilled into your sou.
+ - All right people, listen up! If you’ve got a family back home waiting for you or if you just want to save your own skin, turn around and walk away. Also, women! I have no intention of fighting any women!
+ - Father: Why did you not become mine God!? God: Because you did not believe in me.
+ - Do you wanna play? Everyone’s dead, so I got bored. Did you come to play with me? – Wrath.
+ - No fair, sky. I’m the one who feels like crying.
+ - He died in the middle of our conversation. How rude...
+ - Dogs are actually very smart, it’s just that they’re rather clumsy, but it’s this trait that makes humans attracted to them and why I love dogs so much.
+ - But even so, we’re not devils, let alone gods. We’re human. We’re human!
+ - I’m tired of this. It’s like, just when I think our goal is within reach, it slips right through our fingers. It’s happened time and again. Now, when we finally in our grasp, the truth slaps us in the face.
+ - Manga is a very entertaining cultural form, made of many totally different genres. Don’t restrict yourself with a single style of manga. I would be delighted to be your springboard, but try to read as much as you can in order to branch out!
+ - Is it alright to believe in the future where everyone can live in happiness?
+ - I draw manga, therefore I am!
+ - Your hands weren’t meant to take peoples lives. They were meant to save them.
+ - The “Wet Tongue Gets Stuck To A Frozen Flagpole” attack!
+ - What, exactly, is the happiness that can be earned by turning away from reality?
+
+42 quotes

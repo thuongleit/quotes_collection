@@ -1,0 +1,24 @@
+ - The root of oppression is the loss of memory.
+ - Snowflakes, leaves, humans, plants, raindrops, stars, molecules, microscopic entities all come in communities. The singular cannot in reality exist.
+ - Indians think it is important to remember, while Americans believe it is important to forget.
+ - Medicine people are truly citizens of two worlds, and those who continue to walk the path of medicine power learn to keep their balance in both the ordinary and the non-ordinary worlds...
+ - For the American Indian, the ability of all creatures to share in the process of ongoing creation makes all things sacred.
+ - True shamans live in a world that is alive with what is to rationalist sight unseen, a world pulsing with intelligence.
+ - As long as we avoid the creative, we are condemned to reaction.
+ - Healing the self means committing ourselves to a wholehearted willingness to be what and how we are-beings frail and fragile, strong and passionate, neurotic and balanced, diseased and whole, partial and complete, stingy and generous, twisted and straight, storm-tossed and quiescent, bound and free.
+ - In America, law substitutes for custom.
+ - We are the land. To the best of my understanding, that is the fundamental idea that permeates American Indian life...
+ - The hoop dancer dances within what encircles him, demonstrating how the people live in motion within the circling spirals of time and space. They are no more limited than water and sky. At green corn dance time, water and sky come together, in Indian time, to make rain.
+ - Breath is life, and the intermingling of breaths is the purpose of good living. This is in essence the great principle on which all productive living must rest, for relationships among all the beings of the universe must be fulfilled; in this way each individual life may also be fulfilled.
+ - America does not seem to remember that it derived its wealth, its values, its food, much of its medicine, and a large part of its “dream” from Native Americans.
+ - The shadows cannot speak.
+ - Hoop Dancer is a rendering of my understanding of the process by which one enters into timelessness – that place where one is whole.
+ - The Indians used to be the only inhabitants of the Americas, but times change. Having perceived us as belonging to history, they are free to emote over us, to re-create us in their history-based understanding, and dismiss our present lives as archaic and irrelevant to the times.
+ - An odd thing occurs in the minds of Americans when Indian civilization in mentioned: little or nothing.
+ - Human beings need to belong to a tradition and equally need to know about the world in which they find themselves.
+ - Idealization of a group is a natural consequence of separation from the group; in other words, it is a by-product of alienation.
+ - It’s a little-known linguistic curiosity that the name Jehovah or Jaweh is the same name as Eve; Havva, the counterpart name in Farsi, the language spoken by the Persians, means either Jaweh or Eve.
+ - In the native world, major gods come in trios, duos, and groups. It is the habit of non-natives to discover the supreme being, the one and only head god, a habit lent to them by monotheism.
+ - We are the women of daylight; of clocks and steel foundries, of drugstores and streetlights, of superhighways that slice our days in two. Our dreams are pale memories of themselves, and nagging doubt is the false measure of our days.
+
+22 quotes

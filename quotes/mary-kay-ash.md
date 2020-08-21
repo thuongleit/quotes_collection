@@ -1,0 +1,92 @@
+ - Fake it till you make it.
+ - Don’t limit yourself. Many people limit themselves to what they think they can do. You can go as far as your mind lets you. What you believe, remember, you can achieve.
+ - Your attitude determines your altitude. It really is true that If you think you can, you can; and if you think you can’t – you’re right.
+ - For every failure, there’s an alternative course of action. You just have to find it. When you come to a roadblock, take a detour.
+ - What you believe, you can achieve.
+ - A mediocre idea that generates enthusiasm will go further than a great idea that inspires no one.
+ - Never give up, because you never know if the next try is going to be the one that works.
+ - God first, family second, career third.
+ - The first step is the hardest – making a commitment to yourself, for yourself.
+ - Dare to grow into your dreams and claim this as your motto: Let it be me.
+ - The only difference between successful people and unsuccessful people is extraordinary determination.
+ - Be a dreamer. Have a sense of greatness. It has been said that if you can dream it, you can do it. And I believe that. Before your dream can become a reality, you have to see it in your own mind; see its fulfillment, whatever it may be.
+ - You can eat an elephant one bit at a time.
+ - It is far better to be exhausted from success than to be rested from failure.
+ - Everyone has an invisible sign hanging from their neck saying, ‘Make me feel important.’ Never forget this message when working with people.
+ - You can go as far as your mind lets you.
+ - Never forget, your family should always have priority over your work.
+ - We fall forward to succeed.
+ - Pretend that every single person you meet has a sign around his or her neck that says, ‘Make me feel important.’ Not only will you succeed in sales, you will succeed in life.
+ - Do not desire to fit in. Desire to lead.
+ - Everyone wants to be appreciated, so if you appreciate someone, don’t keep it a secret.
+ - Most people live and die with their music still unplayed. They never dare to try.
+ - Everyone has obstacles to overcome, but those with great faith can conquer whatever stands in the way.
+ - Even the smallest achievements pave a way to great success.
+ - Left unattended, problems only intensify.
+ - In absence of clearly defined goals, we become strangely loyal to performing daily acts of trivia.
+ - Leaders teach. They motivate. They care. Leaders make sure that the way to success is always broad enough and straight enough for others to follow.
+ - Give yourself something to work toward – constantly.
+ - Fear is faith that it won’t work.
+ - Don’t let the negatives of life control you. Rise above them. Use them as your stepping stones to go higher than you ever dreamed possible.
+ - Before you ever receive the wonderful treasures of a happy life, you must first give. Give of yourself. Be of service to others. Only what you give can be multiplied back into your own life.
+ - Ideas are a dime a dozen. People who implement them are priceless.
+ - Every achievement, big or small, begins in your mind.
+ - My goal in life is to live my life in such a way that when I die, someone can say, she cared.
+ - A good goal is like a strenuous exercise – it makes you stretch.
+ - My company mascot is the bumblebee. Because of its tiny wings and heavy body, aerodynamically the bumblebee shouldn’t be able to fly. But the bumblebee doesn’t know that, so it flies anyways.
+ - One of the secrets of success is to refuse to let temporary setbacks defeat us.
+ - No matter how busy you are, you must take time to make the other person feel important.
+ - People are definitely a company’s greatest asset. It doesn’t make any difference whether the product is cars or cosmetics. A company is only as good as the people it keeps.
+ - Real strength entails being considerate and supportive of people’s feelings.
+ - Honesty is the cornerstone of all success, without which confidence and ability to perform shall cease to exist.
+ - When you come to a roadblock, take a detour.
+ - My definition of happiness is having something to do what you love to do, someone to love, and something to look forward to.
+ - God did not have time to make a nobody, so you’re a somebody.
+ - There is a way; Up, Around, Over or Through.
+ - When you reach an obstacle, turn it into an opportunity. You have the choice.
+ - Every silver lining has a cloud.
+ - Sandwich every bit of criticism between two layers of praise.
+ - Criticize the act, not the person.
+ - Some of the most successful people managers are also the best listeners.
+ - We must have a theme, a goal, a purpose in our lives.
+ - You are the only boss you have. And I want you to be the most demanding boss that you can be. If you really want to make a success of this business, then you must put yourself on a schedule.
+ - Those who are blessed with the most talent don’t necessarily outperform everyone else. It’s the people with follow-through who excel.
+ - We treat our people like royalty. If you honor and serve the people who work for you, they will honor and serve you.
+ - Think in terms of what’s good for the other person and success will seek you out.
+ - An average person with average talents and ambition and average education, can outstrip the most brilliant genius in our society, if that person has clear, focused goals.
+ - Some people drift through their entire life. They do it one day at a time, one week at a time, one month at a time. It happens so gradually they are unaware of how their lives are slipping away until it’s too late.
+ - We must have a theme, a goal, a purpose in our lives. If you don’t know where you’re aiming, you don’t have a goal. My goal is to live my life in such a way that when I die, someone can say, she cared.
+ - One intense hour is worth a dreamy day.
+ - Individuals sometimes feel insignificant and doubt that one person can really make a difference in this world. Well, believe me, one person can.
+ - You can have anything in this world you want, if you want it badly enough and you’re willing to pay the price.
+ - Faith is a twenty-four hour a day commitment.
+ - Nothing wilts faster than a laurel rested upon.
+ - I believe every person has the ability to achieve something important, and with that in mind I regard everyone as special.
+ - I believe that in order to be a good leader you must understand the value of praising people to success.
+ - If you’re good to your staff when things are going well, they’ll rally when times go bad.
+ - Dare to risk public criticism.
+ - In fact, depending on how much you earn, you can afford to pay somebody to do almost anything you don’t like to do.
+ - Listen long enough and the person will generally come up with an adequate solution.
+ - Hope is wishing for something to come true. Faith is belief that it will come true. Believe that for every problem God gives you, He will also provide you with a solution.
+ - If I’m talking to someone in a crowded room, I try to make this person feel as though we’re the only ones present. I shut out everything else. I look directly at the person. Even if a gorilla were to walk into the room, I probably wouldn’t notice it.
+ - The greatest polution problem we face today is negativity.
+ - So many women just don’t know how great they really are. They come to us all vogue outside and vague on the inside.
+ - Central banks don’t have divine wisdom. They try to do the best analysis they can and must be prepared to stand or fall by the quality of that analysis.
+ - You cannot keep determined people for success.
+ - Sometimes listening itself may not be enough-some people must be prodded if you are to find out what they’re thinking.
+ - People will support that which they help to create.
+ - What’s interesting about subscribing to a life of giving is that you become addicted.
+ - If you are an entrepreneur planning to start your own company, I can’t think of a better place to begin than by operating your business by the Golden Rule. Make this a high priority; never make a decision that contradicts the Golden Rule.
+ - While clothes may not make the woman, they certainly have a strong effect on her self-confidence, which, I believe, does make the woman.
+ - A risk-taking environment starts at the top of a corporation. If the CEO doesn’t have this spirit, chances are you won’t find it anywhere else in the organization.
+ - I’ve often said that we are doing something far more important than just selling cosmetics; we are changing lives.
+ - Return telephone calls promptly but be judicious about the time spent on the phone.
+ - Left eyebrow raised, right eyebrow raised.
+ - A woman who will tell her age, will tell anything.
+ - There’s a big difference between a decisive manager and a tyrant.
+ - Bear in mind that beauty is individual and personal, that the look and feeling you’re after is one with which you can be comfortable each and every day of your life.
+ - By trying to live Christmas 12 months a year, we CAN make this world a better place to live – for others and for ourselves.
+ - I believe that you should praise people whenever you can; it causes them to respond as a thirsty plant responds to water.
+ - I wasn’t that interested in the dollars-and-cents part of business. My interest in starting Mary Kay Inc. was to offer women opportunities that didn’t exist anywhere else.
+
+90 quotes

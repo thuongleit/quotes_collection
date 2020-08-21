@@ -1,0 +1,41 @@
+ - What the world needs most is openness: Open hearts, open doors, open eyes, open minds, open ears, open souls.
+ - We must move as quickly as possible to a one-world government; a one-world religion; under a one world leader.
+ - Looking behind, I am filled with gratitude. Looking forward, I am filled with vision. Looking upwards, I am filled with strength. Looking within, I discover peace.
+ - Keep the warmth of the sun in your heart.
+ - Know yourself. Feel yourself. Love yourself. Respect yourself. Take good care of yourself. You are your most precious possession on Earth.
+ - To forgive is the highest, most beautiful form of love. In return, you will receive untold peace and happiness.
+ - When I was a child, I spoke like a child. When I was an adult, I no longer spoke like a child. When I became old and wise, I spoke again like a child. I wish I had spoken all my life like a child.
+ - Decide to forgive: For resentment is negative; resentment is poisoning; resentment diminishes and devours the self.
+ - Honor the sacred. Honor the Earth, our Mother. Honor all with whom we share the Earth Walk in balance and beauty.
+ - Help me always to speak the truth quietly, to listen with an open mind when others speak, and to remember the peace that may be found in silence.
+ - Do you eat decayed food? No. Well, don’t feed your mind with decayed books. Be as careful with the nutrition of your mind as you are with the nutrition of your body.
+ - Treat every moment of your life with Divine respect. Love passionately your God-given miraculous life.
+ - The example of parents is the greatest teacher. Parents must stand out as models of happiness to their children.
+ - Adults are the first and foremost teachers of love, peace, truth, tolerance, happiness and spirituality to their children. No school on Earth can ever replace them.
+ - Dream always of a peaceful, warless, disarmed world.
+ - No university on Earth gives master’s degrees of living, of happiness. How strange! We seem to be missing the essential, the all-encompassing knowledge for which universities were originally created!
+ - The people are craving for a better world. Let us mobilize them as co-workers for a better world.
+ - I want my life to be a hymn to the Creator.
+ - I am happy with my past, my present and my future. All three are miraculous building blocks of my beloved, wonderful life.
+ - Think with your heart. See with your heart. Hear with your heart. Feel with your heart. Act with your hear. Speak with your heart. For love is the highest, most powerful, durable human capacity.
+ - Open your eyes, mind and heart to the astonishing miracles of life, to the beauty surrounding you, to the uniqueness of your being, to the wonders you can achieve.
+ - Spirituality is a flower with a thousand petals: every act, every thought, every talk, every movement of our heart is a part of it.
+ - Teachers, parents and school administrators: Today’s teachers can create a Planet of Peace. The communication process you will learn by reading Nonviolent Communication is the cornerstone.
+ - War is a sin. War is the highest degree of immorality. War is inhuman insanity for it kills sacred human lives wholesale. How can there still be any war on our miraculous planet?
+ - If you do not decide to be happy, very few people can make you happy. If you decide to be happy, very few people can make you unhappy.
+ - Be an instrument, a multiplier of God’s blessings.
+ - Only the unity of all can bring the well-being of all.
+ - Believe in the immortality and everlasting effects of your goodness.
+ - Encourage your trillions of faithful little cells through joy, happiness and confidence. Thank them, talk to them, sing to them.
+ - So at the request of educators I wrote the World Core Curriculum, the product of the United Nations, the meta-organism of human and planetary evolution.
+ - And what I discovered in my life is that, if you have a dream, it almost always comes true, but you have to stick to it. You have to believe very deeply in it, and the forces of the universe are helping you.
+ - I am as great as the thoughts I conceive. I am as great as the Universe I perceive. I am as great as the love of my heart. I am as great as the God in my Soul.
+ - The more you give, the more good things come to you.
+ - Why should the search for happiness be only or essentially material and mental? Aren’t there untold riches too in the moral, the sentimental and the spiritual realms?
+ - There are thousands of books on the joy of gardening and cooking. Alas, there are only few on the joy of living.
+ - There is no greater learning process than to teach.
+ - If heads of states fail to seize the opportunity of our entry into the third millennium to provide for a better government of planet Earth, history will not forgive them – if there is a history.
+ - Little by little a planetary prayer book is thus being composed by an increasingly united humanity seeking its oneness. Once again, but this time on a universal scale, humankind is seeking no less than its reunion with ‘divine,’ its transcendence into higher forms of life.
+ - Walk through life as a Blessed Person and a Miracle Maker.
+
+39 quotes

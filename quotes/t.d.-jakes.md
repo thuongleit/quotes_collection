@@ -1,0 +1,34 @@
+ - When people walk away from you, let them go. Your destiny is never tied to anyone who leaves you, and it doesn’t mean they are bad people. It just means that their part in your story is over.
+ - Excellence requires discomfort.
+ - If you can’t figure out your purpose, figure out your passion. For your passion will lead you right into your purpose.
+ - Your words will tell others what you think. Your actions will tell them what you believe.
+ - You cannot embrace your destiny if you do not let go of your history.
+ - Never make a permanent decision based on a temporary storm.. No matter how raging the billows are today, remind yourself: “This too shall pass!”
+ - If you think down, you will go down. If you think up, you will go up. You’ll always travel in the direction of your thinking.
+ - Surround yourself with people whose definition of you is not based on your history, but your destiny.
+ - Too many people want the appearance of winning rather than the practices and hard work that create a true champion.
+ - Face the giants in your life, slay them, and move on. Do not be daunted by the mistakes and failures in your life.
+ - Come hell or high water you will never take me back to the place I was before. I have been through too much to let life whoop me again. My faith is stronger than it’s ever been, my mind is more tenacious than it’s ever been, my soul is more absolute.
+ - Being angry is human. Staying angry is foolish.
+ - There is no room for God in a mind that’s full of self.
+ - I found out that the things that hurt us the most can become the fuel and the catalyst that propel us toward our destiny. It will either make you bitter or it will make you better.
+ - When you begin to realize that your past does not necessarily dictate the outcome of your future, then you can release the hurt. It is impossible to inhale new air until you exhale the old.
+ - The most dangerous thing in the world is to have no purpose.
+ - Some of the best people with whom you can have a relationship are the people who challenge your thinking.
+ - Don’t allow your past or present condition to control you. It’s just a process that you’re going through to get you to the next level.
+ - The enemy doesn’t care how many days you live as long as you don’t live in the days you have.
+ - God has invested entirely too much in you for you to be comfortable in anything less than you were created to be.
+ - If you have achieved any level of success, then pour it into someone else. Success is not success without a successor.
+ - We have a tendency to want the other person to be a finished product while we give ourselves the grace to evolve.
+ - We think that forgiveness is weakness, but it’s absolutely not; it takes a very strong person to forgive.
+ - Each day is God’s gift to you. What you do with it is your gift to Him.
+ - No woman wants to be in submission to a man who isn’t in submission to God!
+ - Forgiveness is about empowering yourself, rather than empowering your past.
+ - Never make a permanent decision about a temporary situation.
+ - Sometimes what makes us insecure and vulnerable becomes the fuel we need to be overachievers. The antidote for a snakebite is made from the poison, and the thing that made you go backward is the same force that will push you forward.
+ - You’d be surprised at the things that look great on the outside but are dysfunctional on the inside. Be sure to function as good as you look
+ - Its not over, until the Lord says its over.
+ - We are the people that we have been waiting for and no one else is coming.
+ - Blame unto others only as you would first blame yourself.
+
+32 quotes

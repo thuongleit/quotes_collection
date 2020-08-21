@@ -1,0 +1,38 @@
+ - It’s just the end of some things. And the beginning of others.
+ - Time to stop crying, time to get her act together and do something. Time to move beyond the pity party.
+ - I know i’ll screw up. But i’ll keep trying, as long as you let me.
+ - Read if you believe.
+ - And then they kiss. Slowly, gently. Because with the right person, sometimes kissing feels like healing.
+ - Once you read something, you can’t erase it from your brain.
+ - There’s just no happily ever after in Janie’s book. But they both know there is something. Something good between them. There is respect. And there is depth. Unslefishness. An understanding between them that surpasses a hell of a lot else. And there’s that love thing.
+ - With the notebook resting ominuslously on Janie’s bed, Janie procrastinates. Does her homework first. And pours herself a bowl of ceral. Breakfast – one of the five most important meals of the day. Not to be skipped.
+ - Go force your condescending man-logic on the next house. You can go now.
+ - Carrie doesn’t seem to talk about anything with sharp edges. Maybe she’s afraid they might poke her and then she’d burst.
+ - No rash decisions. No big commitments. Each day as it comes.
+ - If you want to touch me, Kendall, touch me. Don’t hide behind those little girl slaps.
+ - The thought of being with Shay Wilder makes me want to gouge my eyes out with a butter knife.
+ - I highly regret this day in advance.
+ - Just stand. Bend. Balance.
+ - It’s the intent, not the word, that makes something harsh.
+ - You – best secret boyfriend ever.
+ - Janie calls Cabel. “Hi, uh, Mom,” she says. Cabel snorts. “Hello, dear. Did you make it through the blizzard?” “Yeah. Barely.” Janie grins into the phone.
+ - A trapped soul waits for redemption. It waits. And waits. For her to take her last breath.
+ - She gets to school late. Bashful gives her a tardy, and won’t reconsider. Janie always hated Bashful. Stupidest. Dwarf. Ever.
+ - Maybe you don’t have to remember something for it to be true. For it to exist.
+ - Because there’s no way on earth she’s going to make it through college unless she grows some serious ovaries and turns this train wreck around.
+ - Feels like I’m in a play and I don’t know all my lines.
+ - She sits in the driveway, freezing, for thirty-six minutes. Arguing with herself. Because she thinks she’s in love with him too. And there are two ways she can be a fool in love right now. She chooses the harder one. And knocks on the door.
+ - He kisses her. She kisses him. They kiss.
+ - But then you slammed a door handle into my gut. And when a girl does that to a guy; it means she likes him.
+ - They have an unusual relationship. And when things are good, it’s magic.
+ - He moves like a dancer.
+ - There’s something about a guy who admits he’s a jerk that makes him forgiveable.
+ - Janie’s hip buzzes again. Maybe she’ll have to have her whole leg amputated, she thinks sadly. That would really suck.
+ - Dreams happen in the strangest places. Watch for them.
+ - Janie. Does not like. To be called. Buffy.
+ - With practice, you will master your own dreams.
+ - They linger near the back door, forehead to forehead and curved like statues as their lips whisper and brush together.
+ - If you believe you can read you can.
+ - Jacian Obregon. It sounds like a melody. Or a tragedy.
+
+36 quotes

@@ -1,0 +1,26 @@
+ - Flexibility is a requirement for survival.
+ - If you don’t execute your ideas, they die.
+ - Remember the two benefits of failure. First, if you do fail, you learn what doesn’t work; and second, the failure gives you the opportunity to try a new approach.
+ - Most people think of success and failure as opposites, but they both are products of the same process.
+ - It’s easy to come up with new ideas; the hard part is letting go of what worked for you two years ago, but will soon be out-of-date.
+ - Everyone has a ‘risk muscle.’ You keep it in shape by trying new things. If you don’t, it atrophies. Make a point of using it at least once a day.
+ - Life is like a maze in which you try to avoid the exit.
+ - Most brilliance arises from ordinary people working together in extraordinary ways.
+ - It’s important for the explorer to be willing to be led astray.
+ - Look for the second right answer.
+ - Take advantage of the ambiguity in the world. Look at something and think what else it might be.
+ - We grow up thinking that the best answer is in someone else’s brain. Much of our education is an elaborate game of ‘guess what’s in the teacher’s head?’ What the world really needs to know right now is what kind of dreams and ideas are in your head.
+ - Am I Getting Lazy? Am I Too Busy? Am I Becoming Arrogant? Am I Getting Timid? If you answer ‘yes’ to any one of these questions, that’s your warning to Kick that attitude!
+ - Most burning issues generate far more heat than light.
+ - New ideas are not born in a conforming environment.
+ - Knowledge is the stuff from which new ideas are made. Thus, the real key to being creative lies in what you do with your knowledge.
+ - There is a close relationship between the “ha-ha” of humor and the “aha!” of discovery.
+ - When everyone thinks alike, no one is doing very much thinking.
+ - Here’s my advice: Go ahead and be whacky. Get into a crazy frame of mind and ask what’s funny about what you’re doing.
+ - The worlds of thought and action overlap. What you think has a way of becoming true.
+ - It’s difficult to get your creative juices flowing if you’re always being practical, following rules, afraid to make mistakes, not looking into outside areas, or under the influence of any of the other mental locks.
+ - If you make an error, use it as a stepping stone to a new idea you might not have otherwise discovered.
+ - Going to a junkyard is a sobering experience. There you can see the ultimate destination of almost everything we desired.
+ - What excuses stand in your way? How can you eliminate them?
+
+24 quotes

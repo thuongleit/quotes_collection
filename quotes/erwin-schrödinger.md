@@ -1,0 +1,43 @@
+ - The task is not to see what has never been seen before, but to think what has never been thought before about what you see everyday.
+ - The total number of minds in the universe is one.
+ - Consciousness cannot be accounted for in physical terms. For consciousness is absolutely fundamental. It cannot be accounted for in terms of anything else.
+ - Consciousness is a singular for which there is no plural.
+ - The multiplicity is only apparent. This is the doctrine of the Upanishads. And not of the Upanishads only. The mystical experience of the union with God regularly leads to this view, unless strong prejudices stand in the West.
+ - Science cannot tell us a word about why music delights us, of why and how an old song can move us to tears.
+ - In an honest search for knowledge, you quite often have to abide by ignorance for an indefinite period.
+ - I don’t like it, and I’m sorry I ever had anything to do with it.
+ - I know not whence I came, nor whither I go, nor who I am.
+ - The organism feeds on negative entropy.
+ - Consciousness is a singular of which the plural is unknown. There is only one thing and that which seems to be a plurality is merely a series of different aspects of this one thing, produced by a deception, the Indian maya, as in a gallery of mirrors.
+ - Multiplicity is only apparent, in truth, there is only one mind...
+ - Quantum physics thus reveals a basic oneness of the universe.
+ - The scientist only imposes two things, namely truth and sincerity, imposes them upon himself and upon other scientists.
+ - Matter and energy seem granular in structure, and so does “life”, but not so mind.
+ - We must not wait for things to come, believing that they are decided by irrescindable destiny. If we want it, we must do something about it.
+ - The great revelation of the quantum theory was that features of discreteness were discovered in the Book of Nature, in a context in which anything other than continuity seemed to be absurd according to the views held until then.
+ - What we observe as material bodies and forces are nothing but shapes and variations in the structure of space.
+ - For eternally and always there is only one now, one and the same now; the present is the only thing that has no end.
+ - The sensation of colour cannot be accounted for by the physicist’s objective picture of light-waves.
+ - I belong to those theoreticians who know by direct observation what it means to make a measurement. Methinks it were better if there were more of them.
+ - Every man’s world picture is and always remains a construct of his mind and cannot be proved to have any other existence.
+ - No self is of itself alone.
+ - The present is the only things that has no end.
+ - The essential feature of statistics is a prudent and systematic ignoring of details.
+ - The world is given to me only once, not one existing and one perceived. Subject and object are only one. The barrier between them cannot be said to have broken down as a result of recent experience in the physical sciences, for this barrier does not exist.
+ - If you cannot – in the long run – tell everyone what you have been doing, your doing has been worthless.
+ - Thus you can throw yourself flat on the ground, stretched out upon mother earth, with the certain conviction that you are one with her and she with you.
+ - If a man never contradicts himself, the reason must be that he virtually never says anything at all.
+ - The world is a construct of our sensations, perceptions, memories. It is convenient to regard it as existing objectively on its own. But it certainly does not become manifest by its mere existence.
+ - For a solitary animal egoism is a virtue that tends to preserve and improve the species: in any kind of community it becomes a destructive vice.
+ - Whence come I and whither go I? That is the great unfathomable question. Science has no answer to it.
+ - A careful analysis of the process of observation in atomic physics has shown that the subatomic particles have no meaning as isolated entities, but can only be understood as interconnections between the preparation of an experiment and the subsequent measurement.
+ - The world is given to me only once, not one existing and one perceived. Subject and object are only one.
+ - Our perceiving self is nowhere to be found in the world-picture, because it itself is the world-picture.
+ - An animal that embarks on forming states without greatly restricting egoism will perish.
+ - If we are going t stick to this damned quantum-jumping, then I regret that I ever had anything to do with quantum theory.
+ - If all this damned quantum jumping were really here to stay, I should be sorry, I should be sorry I ever got involved with quantum theory.
+ - The material world has only been constructed at the price of taking the self, that is, mind, out of it, removing it; mind is not part of it...
+ - Our mind, by virtue of a certain finite, limited capability, is by no means capable of putting a question to Nature that permits a continuous series of answers. The observations, the individual results of measurements, are the answers of Nature to our discontinuous questioning.
+ - The mathematical framework of quantum theory has passed countless successful tests and is now universally accepted as a consistent and accurate description of all atomic phenomena.
+
+41 quotes

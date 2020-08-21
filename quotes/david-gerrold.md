@@ -1,0 +1,39 @@
+ - Life is hard. Then you die. Then they throw dirt in your face. Then the worms eat you. Be grateful it happens in that order.
+ - The single most important lesson of effective communication is this: Focus on clarity. Concentrate on precisions. Don’t worry about constructing beautiful sentences. Beauty comes from meaning, not language. Accuracy is the most effective style of all.
+ - Understanding the laws of nature does not mean that we are immune to their operations.
+ - You cannot avoid mortality. But you can choose your way of meeting it. And that is the most that any man can hope for.
+ - The problem with the gene pool is that there’s no lifeguard.
+ - The secret of the universe is this: The universe doesn’t care. That part of the job is yours.
+ - Death comes black and hard, rushing down on me from the future, with no possible chance of escape.
+ - Study what you love, and youll never have to work a day in your life. Itll be one great adventure.
+ - Life is full of little surprises. Time travel is full of big ones.
+ - Theres two tiers of science fiction: the McDonalds sci-fi like Star Trek, where they have an adventure and solve it before the last commercial, and there are books that once youve read, you never look at the world the same way again.
+ - You will find it easiest to ride the avalanche in the direction it already travels.
+ - If you’re passing the buck, don’t ask for change.
+ - Most people say they want justice, but they don’t really want justice. They want revenge. They want to see the pain spread around equally.
+ - I have memories – but only a fool stores his past in the future.
+ - I think I exist, therefore I exist. I think.
+ - The fifties are a peaceful time, a quiet sleeping time between two noisy bursts of years, a blue and white time filled with sweet yellow days, music and bright smelling memories.
+ - Contentment is the continuing act of accepting the process of your own life.
+ - A work of art is an act of love. Critics are crab lice.
+ - To say that a writer’s hold on reality is tenuous is an understatement-it’s like saying the Titanic had a rough crossing. Writer’s build their own realities, move into them and occasionally send letters home. The only difference between a writer and a crazy person is that a writer gets paid for it.
+ - I’m all in favor of keeping dangerous weapons out of the hands of fools. Let’s start with typewriters.
+ - You can tell a lot about a civilization by the quality of the people found in its jails.
+ - Of course life is bizarre, the more bizarre it gets, the more interesting it is. The only way to approach it is to make yourself some popcorn and enjoy the show.
+ - The jingling of a fat purse always commands the world.
+ - True genius can be identified by the fact that its expression changes the world into something it has never been before.
+ - Doesn’t anybody ever want to talk about anything else besides ‘Star Trek?’ There were 79 episodes of the series; there were 55 different writers. I was only one of them.
+ - Imagine yourself in the scene. See what there is to be seen. Listen to the sounds. Touch the world. Smell the air. Taste it. Use all of your senses. Then evoke those experiences for the reader. If you give the audience the flavor, they’ll flesh out the moment in their own imaginations.
+ - When I was a kid, my favorite movies were the George Pal version of ‘War Of The Worlds,’ ‘Them,’ and ‘Invasion of the Body Snatchers.’ Those movies were scary! They haunted my nightmares for years, so when I started writing, I wanted to write a story that was just as big and just as scary.
+ - I’m frustrated with Hollywood and television and the movies because they see science fiction as an excuse for eye candy, for lots of great special effects.
+ - It’s almost always dangerous to be right too soon.
+ - The human race never solves any of its problems, it only outlives them.
+ - Life has a peculiar habit – once established, it stays. Sometimes it even thrives.
+ - Incompetency fed on itself.
+ - Adolescence is that time in your life when you discover your ability to be depressed.
+ - Morality – like velocity – is relative. The determination of it depends on what the objects around you are doing. All one can do is measure one’s position in relation to them; never can one measure one’s velocity or morality in terms of absolutes.
+ - Only people who haven’t lived through a war advocate it so eagerly.
+ - I had always been fascinated by the whole idea that Australia was this different ecology and that when rabbits and prickly pears and other things from Europe were introduced into Australia, they ran amok.
+ - Tomorrow is going to be different than yesterday, it’s going to be a lot different.
+
+37 quotes

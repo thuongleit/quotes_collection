@@ -1,0 +1,35 @@
+ - The idea of equal rights was in the air.
+ - A wife should no more take her husband’s name than he should hers. My name is my identity and must not be lost.
+ - It is very little to me to have the right to vote, to own property, etc., if I may not keep my body, and its uses, in my absolute right.
+ - If a woman earned a dollar by scrubbing, her husband had a right to take the dollar and go and get drunk with it and beat her afterwards. It was his dollar.
+ - The road before us is shorter than the road behind.
+ - I was a woman before I was an abolitionist. I must speak for the women.
+ - I expect some new phases of life this summer, and shall try to get the honey from each moment.
+ - Henceforth the leaves of the tree of knowledge were for women, and for the healing of the nations.
+ - We ask only for justice and equal rights-the right to vote, the right to our own earnings, equality before the law.
+ - I believe that the influence of woman will save the country before every other power.
+ - In education, in marriage, in religion, in everything, disappointment is the lot of women. It shall be the business of my life to deepen this disappointment in every woman’s heart until she bows down to it no longer.
+ - If, while I hear the wild shriek of the slave mother robbed of her little ones, I do not open my mouth, am I not guilty?
+ - I think, with never-ending gratitude, that the young women of today do not and can never know at what price their right to free speech and to speak at all in public has been earned.
+ - Now all we need is to continue to speak the truth fearlessly, and we shall add to our number those who will turn the scale to the side of equal and full justice in all things.
+ - Oh, I wish it were in my power to put men in the place of fashionable women for one six months! They should curl their hair, consult the milliner, make spongecake, do a little embroidery, wear long skirts, and dress so tightly that they could scarcely breathe.
+ - Too much has already been said and written about women’s sphere. Leave women, then, to find their sphere.
+ - We must be true to each other.
+ - The great majority of women are more intelligent, better educated, and far more moral than multitudes of men whose right to vote no man questions.
+ - I think God rarely gives to one man, or one set of men, more than one great moral victory to win.
+ - To make the public sentiment on the side of all that is just and true and noble is the highest use of life.
+ - Make the world better.
+ - The widening of woman’s sphere is to improve her lot. Let us do it, and if the world scoff, let it scoff if it sneer, let it sneer.
+ - It is time we gave man faith in woman – and, still more, woman faith in herself.
+ - We have every reason to rejoice when there are so many gains and when favorable conditions abound on every hand. The end is not yet in sight, but it can not be far away. The road before us is shorter than the road behind.
+ - Our victory is sure to come, and I can endure anything but recreancy to principle.
+ - But I do believe that a woman’s truest place is in a home, with a husband and with children, and with large freedom, pecuniary freedom, personal freedom, and the right to vote.
+ - In Massachusetts, where properly qualified ‘persons’ were allowed to practice law, the Supreme Court decided that a woman was not a ‘person,’ and a special act of the legislature had to be passed before Miss Lelia Robinson could be admitted to the bar. But today women are lawyers.
+ - Leave women to find their sphere.
+ - All over this land women have no political existence. Laws pass over our heads that we can not unmake. Our property is taken fromus without our consent. The babes we bear in anguish and carry in our arms are not ours.
+ - Every new truth has its birth-place in a manger, lives thirty years, is crucified, and then deified.
+ - I return my tax bill without paying it. My reason for doing so is that women suffer taxation yet have not representation.
+ - I know not what you believe of God, but I believe He gave yearnings and longings to be filled, and that He did not mean all our time should be devoted to feeding and clothing the body.
+ - It is not quite the same when we are seventy-two as when we are twenty-seven; still I am glad of what is left, and wish we might both hold out till the victory we have sought is won, but all the same the victory is coming. In the aftertime the world will be the better for it.
+
+33 quotes

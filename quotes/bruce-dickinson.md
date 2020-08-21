@@ -1,0 +1,51 @@
+ - Nothing lasts forever but the certainty of change.
+ - My dad always told me, ‘I don’t care what you do. Just aim to be the best at it. Even if it’s the world’s best window cleaner.’
+ - Life is too short to do the things you don’t love doing.
+ - If heavy metal bands ruled the world, we’d be a lot better off.
+ - We’re better than Metallica. We’re better musicians, better players. Put it this way, they can try to walk onstage after an Iron Maiden show if they want.
+ - Engineering stimulates the mind. Kids get bored easily. They have got to get out and get their hands dirty: make things, dismantle things, fix things. When the schools can offer that, you’ll have an engineer for life.
+ - Tyranny of freedom is do what you like. There’s a world gone crazy, cause it can’t say no.
+ - I find that fencing and training give me more stamina and help me deal with the craziness of being on the road so much.
+ - Everything you need to know about Iron Maiden is onstage.
+ - Engineering stimulates the mind.
+ - If it all just happens like this for the rest of my life, it’s going to be one endless Groundhog Day. I determined that I was not prepared to submit to this regime, so I thought I had to do something about it.
+ - Don’t ask me to put up a shelf, but I love engineering.
+ - I guess it was the first time I really thought about leaving. I don’t just mean Iron Maiden, I mean quitting music altogether. I just thought, ‘Nothing is worth feeling like this for.’ I began to feel like I was a piece of machinery, like I was part of the lighting rig.
+ - With the Internet, bands can come and go every five minutes and the music looks disposable.
+ - Some of Eminem’s rap songs kind of have the teenage love songs like the fifties love songs. It’s kind of like domestic drama set to music. He is really good storyteller.
+ - Best two rock voices I’ve heard in a last few years both have been from grunge bands: it’s Eddie Vedder and the other one is Chris Cornell from Soundgarden.
+ - The mystical poetry of William Blake’s artwork also forms the basis for the album cover.
+ - Apart from death and taxes, the one thing that’s certain in this life is that I’ll never be a fashion icon.
+ - Iron Maiden is an institution, and I’m delighted that I’m involved in it, but there was a time that I wasn’t delighted so I quit.
+ - I shall refract myself, yes, I shall no longer be known as the prism.
+ - I think the best way to find out about something is to try to do it to the max. A lot of people take up a hobby or sport and then find an excuse not to carry on with it. Once I start something, I won’t stop until I’m as good at it as I’ll ever be.
+ - A few of these interviews have gone slightly awry, because every now and again there has been the odd conflict of interest between interviews because of the Iron Maiden record, and I am a bit long-winded.
+ - When I was in employment as a regular line pilot, I used to take unpaid leave to go on tour with Iron Maiden. I got lucky – they let me off.
+ - I was an accident – my mum was only 16 when she had me.
+ - Teachers need to be more inspirational. But it’s also up to engineering to make itself more interesting.
+ - Business is just about enabling human beings, nothing more, nothing less. Businesses need to recognize this fundamental fact.
+ - I guess that the salary that they get when they are working with me is, like, it beats working at McDonalds, so it has got some things going for it.
+ - I’m not going to do any more solo touring.
+ - My son is in a band, and he’s a singer, and his vocals they’re screaming-growling stuff and he’s got a pretty reasonable voice. Yet he practices really hard to get the screaming-growling thing without losing that voice every five minutes. So I’m, like, ‘Hats off to you.’
+ - Rock music should be gross: that’s the fun of it. It gets up and drops its trousers.
+ - I’m very good at daydreaming. Ask any of my schoolteachers.
+ - Anybody auditions for X-Factor it’s because they want to be famous, not because they are artists.
+ - I’m trying to be as green as I can. As an airline pilot, I have a carbon footprint that’s a size 10, so it’s pretty hard.
+ - I never intended to become a professional pilot. But, as I became more curious about aircraft, and, well, not being John Travolta, I realized that the only way I was ever going to fly a jet is if I got a job.
+ - Major labels blow all their money massively and blame it on the band.
+ - My aim as a frontman is always to try and shrink the venue, if you can, to turn that football stadium into the world’s smallest club. At least you have to try.
+ - Life on the road can get a little one-dimensional. I didn’t want to reach 40 and have to say all I’d done was look out the window of a tour bus and get drunk.
+ - The more guitars we have onstage the better, as I’m concerned.
+ - I don’t like being recognised, I have no interest in being famous at all, I just do what I do. If I could be like Captain Kirk and beam myself up and then beam myself down, I would!
+ - I do like Marylin Manson, actually. I think, he’s very talented and he did make some great music.
+ - I enjoy making solo albums because over the years it’s evolved into more of a genuine personal expression of story-telling and day dreams, and I work in a way that has more control.
+ - I don’t have interns. I don’t have a manager. I don’t have assistants. I don’t have a secretary. I can’t figure out Outlook Express. I’m the worst person in the world answering e-mails, and my phone is probably the oldest, most battered phone you can find. So I just talk to people.
+ - One of my earliest ventures was when I was nine years old. I realized there was a shortage of pencils at school, so I started Rent-a-Pencil. But I made a fundamental mistake. Everybody stole my pencils.
+ - The celebrity thing, I mean, Lindsay Lohan – what’s she for? I look at that and throw my hands up in despair.
+ - Well, yeah, sometimes I get a little too creative.
+ - South Wales is a hub of aviation.
+ - In my teenage years I was put off the idea of a career in flying, because I’d convinced myself that you had to be a boffin with degrees in maths and physics, which were my weakest subjects.
+ - When I write with Maiden, then I write only with the guys in Maiden, we don’t do songs from outside people.
+ - I’ve been to the Reading festival twice before-as a punter, though I stayed backstage in the hospitality tent!
+
+49 quotes

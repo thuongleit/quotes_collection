@@ -1,0 +1,42 @@
+ - Just because you are the boss doesn’t mean you are the source of all knowledge. ~~Jack Welch
+ - A good boss makes his men realize they have more ability than they think they have so that they consistently do better work than they thought they could. ~~Charles Erwin Wilson
+ - Every boss started as a worker. ~~Rick Ross
+ - Good thinkers are always in demand. A person who knows how may always have a job, but the person who knows why will always be his boss. ~~John C. Maxwell
+ - There is only one boss: the customer. And he can fire everybody in the company, from the chairman on down, simply by spending his money somewhere else. ~~Sam Walton
+ - The boss inspires fear; the leader inspires enthusiasm. ~~John C. Maxwell
+ - Bosses push, Leaders pull. Real leadership is servant leadership. ~~Dave Ramsey
+ - Your own mental attitude is your real boss. ~~Napoleon Hill
+ - To help others develop, start with yourself! When the boss acts like a little god and tells everyone else they need to improve, that behavior can be copied at every level of management. Every level then points out how the level below it needs to change. The end result: No one gets much better. ~~Marshall Goldsmith
+ - By faithfully working eight hours a day you may eventually get to be boss and work twelve hours a day. ~~Robert Frost
+ - In the past a leader was a boss. Today’s leaders must be partners with their people. They no longer can lead solely based on positional power. ~~Kenneth H. Blanchard
+ - I’m just ’bout that action boss. ~~Marshawn Lynch
+ - Being your own boss is much superior to working for the man. Including working for your father. ~~Nolan Bushnell
+ - The government, which was designed for the people, has got into the hands of the bosses and their employers, the special interests. An invisible empire has been set up above the forms of democracy. ~~Woodrow Wilson
+ - Now, if your boss is a sadist, then you have a big problem. In that case, fire your boss and get a new job. ~~Donald Trump
+ - Divine love is the sublime boss of the universe. ~~John Muir
+ - The joy about the recording is that you are your own boss. You don’t have a director telling you how to do it. ~~Jim Dale
+ - The person who knows how will always have a job. The person who knows why will always be his boss. ~~Alanis Morissette
+ - I let ballplayers yell back at me because I wasn’t trying to prove I’m boss. I know I’m boss. ~~Al McGuire
+ - Bob arum is Manny Pacquiao’s boss, Floyd Mayweather is his own boss. ~~Floyd Mayweather, Jr.
+ - People ask the difference between a leader and a boss. The leader leads, and the boss drives. ~~Theodore Roosevelt
+ - The speed of the boss is the speed of the team. ~~Lee Iacocca
+ - I would be a billionaire if I was looking to be a selfish boss. That’s not me. ~~Alfred North Whitehead
+ - No man goes before his time – unless the boss leaves early. ~~Groucho Marx
+ - Accomplishing the impossible means only that the boss will add it to your regular duties. ~~Doug Larson
+ - Being the boss anywhere is lonely. Being a female boss in a world of mostly men is especially so. ~~Robert Frost
+ - If you think your teacher is tough, wait till you get a boss. ~~Bill Gates
+ - It’s always better to deliver the news yourself rather than allow your boss to be surprised. ~~Mary Cheney
+ - In my house I’m the boss, my wife is just the decision maker. ~~Woody Allen
+ - Even the frankest and bravest of subordinates do not talk with their boss the same way they talk with colleagues. ~~Robert K. Greenleaf
+ - It is reassuring for people to feel they have a boss, someone who knows the answers and has charted the course. ~~George Cukor
+ - Well, what I tried to do is to just listen to my voice, because my voice is my boss. She decides. ~~Cecilia Bartoli
+ - The first thing the secretary types is the boss. ~~Donald Trump
+ - A different world cannot be built by indifferent people. ~~Peter Marshall
+ - There is only one boss. The customer. ~~Sam Walton
+ - A Boss in Heaven is the best excuse for a boss on earth, therefore If God did exist, he would have to be abolished. ~~Mikhail Bakunin
+ - Management by objective works – if you know the objectives. Ninety percent of the time you don’t. ~~Peter F. Drucker
+ - It is more important to click with people than to click the shutter. ~~Alfred Eisenstaedt
+ - Don’t blame the boss. He has enough problems. ~~Donald Rumsfeld
+ - The unfortunate thing about working for yourself is that you have the worst boss in the world. I work every day of the year except at Christmas, when I work a half day. ~~David Eddings
+
+40 quotes

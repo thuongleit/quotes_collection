@@ -1,0 +1,30 @@
+ - I am not African because I was born in Africa but because Africa was born in me.
+ - Action without thought is empty. Thought without action is blind.
+ - It is clear that we must find an African solution to our problems, and that this can only be found in African unity. Divided we are weak; united, Africa could become one of the greatest forces for good in the world.
+ - We face neither East nor West: we face forward.
+ - Africa is one continent, one people and one nation.
+ - The independence of Ghana is meaningless unless it is linked-up with the total liberation of the African Continent.
+ - Africa is a paradox which illustrates and highlights neo-colonialism. Her earth is rich, yet the products that come from above and below the soil continue to enrich, not Africans predominantly, but groups and individuals who operate to Africa’s impoverishment.
+ - The result of neo-colonialism is that foreign capital is used for the exploitation rather than for the development of the less developed parts of the world. Investment under neo-colonialism increases rather than decreases the gap between the rich and poor countries of the world.
+ - Those who would judge us merely by the heights we have achieved would do well to remember the depths from which we started.
+ - We all want a United Africa, United not only in our concept of what unity connotes, but united in our common desire to move forward together in dealing with all the problems that can best be solved only on a continental basis.
+ - It is far better to be free to govern or misgovern yourself than to be governed by anybody else.
+ - Long before many of us were even conscious of our own degradation, Marcus Garvey fought for African national and racial equality.
+ - We have awakened. We will not sleep anymore. Today, from now on, there is a new African in the world!
+ - Of all literature I studied, the book that did more than any other to fire my enthusiasm was Philosophy and Opinions of Marcus Garvey.
+ - It is only the ending of capitalism, colonialism, imperialism and neocolonialism and the attainment of world communism that can provide the conditions under which the RACE question can finally be abolished and eliminated.
+ - The forces that unite us are intrinsic and greater than the superimposed influences that keep us apart.
+ - Freedom is not something that one people can bestow on another as a gift. Thy claim it as their own and none can keep it from them.
+ - A State in the grip of neo-colonialism is not master of its own destiny. It is this factor which makes neo-colonialism such a serious threat to world peace.
+ - It is far easier for the proverbial camel to pass through the needle’s eye, hump and all, than for an erstwhile colonial administration to give sound and honest counsel of a political nature to its liberated territory.
+ - The best way of learning to be an independent sovereign state is to be an independent sovereign state.
+ - We prefer self-government with danger to servitude in tranquility.
+ - Revolutions are brought about by men, by men who think as men of action and act as men of thought.
+ - The masses of the people of Africa are crying for unity.
+ - The traditional face of Africa includes an attitude towards man which can only be described as being socialist.
+ - The essence of neo-colonialism is that the State which is subject to it is, in theory, independent and has all the outward trappings of international sovereignty. In reality its economic system and thus its political policy is directed from outside.
+ - As far as i am concerned, i am in the knowledge that death can never extinguish the torch which i have lit in Ghana and Africa. Long after i am dead and gone, the light will continue to burn and be borne aloft, giving light and guidance to all people.
+ - Capitalism is a development by refinement from feudalism, just as feudalism is development by refinement from slavery. Capitalism is but the gentlemen’s method of slavery.
+ - All people of African descent, whether they live in North or South America, the Caribbean, or in any part of the world are Africans and belong to the African nation.
+
+28 quotes

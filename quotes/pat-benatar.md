@@ -1,0 +1,44 @@
+ - Love is a battlefield.
+ - We live and learn from our mistakes, the deepest cuts are healed by faith.
+ - You can’t change the past so don’t let it haunt you. You can change the future but first you’ve got to want to.
+ - We can’t afford to be innocent, stand up and face the enemy. It’s a do or die situation, we will be invincible.
+ - Everything must change, everything must move forward.
+ - We’ll just play it cool, like Elvis at 19.
+ - You’re a heartbreaker, dream maker, love taker, don’t you mess around with me.
+ - When you have children your life – this is my job and that’s my life. So it’s a totally different thing. They’re my priority, they have to be, and they always will be. I have to do them first. So this always gets pushed in the back.
+ - I read somewhere that we are all more than we know. And I really believe that. Everybody is worth something, and think of all the amazing things that you could be to each other, to people you don’t even know, of all the things that you could accomplish.
+ - Everything changes all the time, and unfortunately, everyone who knows what you do by buying records only hears a small amount of what’s going on in your life.
+ - My most important inspirational job that I do is raising those kids. That’s my job. And that’s where my ambition goes. But I have a life. I’m not only their mother. I’m still who I was before, I just don’t get to be it all the time.
+ - Before I put another notch in my lipstick case, you better make sure you put me in my place.
+ - Once I had kids, my whole attitude changed. I was like, “You make a spinal cord from scratch and we’ll talk.”
+ - With the power of conviction, there is no sacrifice.
+ - You shouldn’t have to pay for your love with your bones and your flesh.
+ - If you’re retired, it’s a blessing. You know, if you want to keep working and doing what you want to do, it’s not a blessing as all – it’s a curse.
+ - I love Katy Perry, she is a wonderful pop singer.
+ - I play ten, twelve weeks out of the year, five times a week, and I really still love to do it. But that’s not what I’m interested in doing now. Even though I love it.
+ - I have different reasons for the way that I react to things now that I have kids. It’s not about me, it’s about my children going out into this world that makes me say, “What the hell are you all doing?” I have to put them out there, and then I have to worry.
+ - I can’t stand what people do to each other. I think we’re brilliant as a species. I think we are amazing. I think that God is incredible, that He just gave us everything. Everything in our face. Everything for us to use. And sometimes we’re such shitheads. And it makes me crazy.
+ - You don’t want to trash what you’ve done; that’s your history.
+ - People’s lives change dramatically over such a long time period, and I think that if you’re still vital, and you’re still interested in writing and things like that, of course your music evolves and reflects where you are in your life.
+ - First of all, I’m pretty private about my personal life.
+ - It’s really hard to make records and concentrate and have a free mind, because I have this whole other life. If you don’t have kids it’s a whole other thing. I think you can be fifty and still have a rock and roll lifestyle; you can still perpetuate that.
+ - There are so many young women coming up through the ranks. Adele is an amazing singer. Beyonce has great stage presence. She’s just a beautiful woman. I love how everyone has just taken charge of their lives and careers.
+ - Everything that we do I pretty much want to be organic, so if that happens, then that’s okay with me. But I’m not interested in trying to re-create what once was. That doesn’t interest me; it’s boring.
+ - Love and pain become one and the same in the eyes of a wounded child...
+ - I love “Heartbreaker.” “Heartbreaker” stands up for me still. It still works to me. The sentiment is still timely and it just works. But I don’t want to do that again. I’m not interested in re-creating that. That was great and I’ll just leave it there.
+ - The great times were never as great as they seem in the rearview mirror.
+ - At fifty. I thought I would be done. I thought I’d be finished by now. So I have no idea. I just leave it.
+ - I felt I had a responsibility to do the right thing. And then I wanted to do the right thing by my family and there was no handbook.
+ - I spent most of my adult life as someone’s mother and the rest of my life trying to make sure that children are safe. So this to me is – we wrote Hell Is For Children in 1979.
+ - I never looked at people or singing as commodities.
+ - You’re the Picasso of pain.
+ - But the soul of touring and the heart of it is basically every day is like putting up a circus tent.
+ - I wasn’t a visionary but I literally had my finger on the pulse of the women of America.
+ - I wasn’t interested in fabricating things and altering what I did to make hit records.
+ - I don’t care who’s on the label, because I have a job to do.
+ - When the first record came out, I’d go down to radio stations pretty much every day to get the record played, and I would walk in and they’d tell us how much they loved the record, but they weren’t sure how much they could play it because they were already playing a girl.
+ - I like Lady Gaga because I like that she pushes the envelope.
+ - Of course, you’re not making records in a vacuum. I’m not making them for myself. It would be nice if I could get more people to hear them. But if I have to sell my soul to the devil to do it, I won’t.
+ - It was very difficult when I was trying to figure out how to have a marriage and babies and do this at the same time. There was no handbook. You were making it up as you went along.
+
+42 quotes

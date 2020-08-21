@@ -1,0 +1,29 @@
+ - You make the movie through the cinematography – it sounds quite a simple idea, but it was like a huge revelation to me.
+ - I’ve always admired the tradition of storytellers who sat in the public market and told their stories to gathered crowds. They’d start with a single premise and talk for hours – the notion of one story, ever-changing but never-ending.
+ - Movies are not scripts – movies are films; they’re not books, they’re not the theatre.
+ - In marketing, the familiar is everything.
+ - Any change in form produces a fear of change, and that has accelerated. Marketing is the death of invention, because marketing deals with the familiar.
+ - The rules are learnt in order to be broken, but if you don’t know them, then something is missing.
+ - Some people are very lucky, and have the story in their heads. I’ve never storyboarded anything. I like the idea of chance. What makes God laugh is people who make plans.
+ - We’re all influenced by everything unless we’re locked in an empty room.
+ - There was a village watercolour society and they’d come and paint in my field. I watched them from the window, the way they would struggle this way and that to find the perfect moment. God has made every angle on that beautiful, and I felt that tremendously.
+ - Children’s finger-painting came under the arts, but movies didn’t.
+ - My father was an extraordinary man.
+ - In life, we all learn from everyone.
+ - Mirrors are the essence of movies.
+ - Youth is so exciting. It’ll take over. I don’t want to be swept away. I want to be with the taking-over people, right to the end.
+ - Too many films today feel formulaic and familiar. I prefer it when the familiar is made to feel strange.
+ - Movies which set out to be ‘commercial’ usually have an artificial look about them-a certain waxlike quality. They allow for no failure, no moment of mistake.
+ - The great difference between screen acting and theatre acting is that screen acting is about reacting – 75% of the time, great screen actors are great reactors.
+ - When a book is just a plot, you know, two men fight for the love of a woman in a wild frontier, I immediately ask, ‘Why?’
+ - I was very glad later when I was directing that I wasn’t in the hands of a cinematographer and hoping that he would do it well. I would know what he was doing, and we could discuss how that scene would look.
+ - They think something’s gone wrong, but in Don’t Look Now, for instance, one scene was made by a mistake. It’s the scene where Donald Sutherland goes to look for the policeman who’s investigating the two women.
+ - I’ve always felt that, although Truffaut was greatly revered and admired, at the same time, in terms of film and how much he loved film, he was underestimated.
+ - I’ve always thought there was something very marvelous and magical about mirrors, and that they are connected to memory as well.
+ - Years ago I had a house in Sussex, it was like Arcadia, with an old Victorian bridge, a pond and the Downs.
+ - Marketing is a very good thing, but it shouldn’t control everything. It should be the tool, not that which dictates.
+ - Oscars are won with two or three shots only, because if it’s really beautifully photographed, you don’t really notice it until the astounding moment emphasizes it.
+ - We all have our beliefs or our agnosticism.
+ - But in marketing, the familiar is everything, and that is controlled by the studio. That is reaching its apogee now.
+
+27 quotes

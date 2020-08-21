@@ -1,0 +1,39 @@
+ - Victory over fear is the first spiritual duty of man.
+ - Death, that final evil, is one of the paths to eternity. Endless life in the conditions of our existence would be a nightmare.
+ - Every single human soul has more meaning and value than the whole of history.
+ - The overwhelming majority of people, including Christians, are materialists. They do not believe in the power of spirit. They believe only in material power.
+ - Creativity is the mystery of freedom.
+ - Dostoevsky – is not a realist as an artist, he is an experimentator, a creator of an experimential metaphysics of human nature.
+ - Time is the product of changing realities, beings, existences.
+ - The enslaving of the other is also the enslaving of the self.
+ - Bread for myself is a material question. Bread for my neighbor is a spiritual one.
+ - Utopias now appear much more realizable than one used to think. We are now faced with a different new worry: How to prevent their realization.
+ - Creative experience foreshadows a new Heaven and a new Earth.
+ - It is imperative to bear in mind that human creativity is not a claim or a right on the part of man, but God’s claim on and call to man. God awaits man’s creative act, which is the response to the creative act of God.
+ - In every artistic activity a new world is created, the cosmos, a world enlightened and free.
+ - Creativeness is liberation from slavery. Man is free when he finds himself in a state of creative activity. Creativeness leads to ecstasy of the moment. The products of creativeness are within time, but the creative act itself lies outside time.
+ - I never remain passive in the process of reading: while I read I am engaged in a constant creative activity, which leads me to remember not so much the actual matter of the book as the thoughts evoked in my mind by it, directly or indirectly.
+ - So great is the worth of Dostoevsky that to have produced him is by itself sufficient justification for the existence of the Russian people in the world: and he will bear witness for his country-men at the last judgement of the nations.
+ - The Russian yearning for the meaning of life is the major theme of our literature, and this is the real point of our intelligentsia’s existence.
+ - The meaning of conservatism is not that it impedes movement forward and upward, but that it impedes movement backwards and downwards – to chaotic darkness and the return to a primitive state.
+ - Every moral act of love, of mercy, and of sacrifice brings to pass the end of the world where hatred, cruelty, and selfishness reign supreme.
+ - Creativity is the supreme mystery of life, the mystery of the appearance of something new, hitherto unknown, derived from nothing, proceeding from nothing, born of nothing other...
+ - The will to originality is not the will to be peculiar and unlike anybody else; it means the desire to derive one’s consciousness from its primary source.
+ - Freedom is the power to create out of nothing, the power of the spirit to create out of itself.
+ - Conscience is the spiritual, supernatural principle in man, and it is not of social origin at all. It is rather the perversion and confusion of conscience that is of social origin.
+ - The creation of the world is not only a process which moves from God to humanity. God demands newness from humanity; God awaits the works of human freedom.
+ - Self-realization is a process of permanent auto-creation, an elaboration of the new man at the expense of the old.
+ - Objectification is above all exteriorization, the alienation of spirit from itself.
+ - In creativity the way will be found for subject to pass into object, the identity of subject with object will be restored. All the great creators have foreseen this turning-point. Today, in the depths of culture itself and in all its separate spheres, this crisis of creativity is ripening.
+ - Perhaps the saddest thing to admit is that those who rejected the Cross have to carry it, while those who welcomed it are so often engaged in crucifying others.
+ - The bourgeois takes economic power very seriously, and often worships it quite unselfishly.
+ - We find the most terrible form of atheism, not in the militant and passionate struggle against the idea of God himself, but in the practical atheism of everyday living, in indifference and torpor. We often encounter these forms of atheism among those who are formally Christians.
+ - Denial of Russia in the name of humanity it is – robbing humanity.
+ - The Church is simply the path of history, and not the actual kingdom of God.
+ - God is a reality of spirit He cannot be conceived as an object, not even as the very highest object. God is not to be found in the world of objects.
+ - We are standing on the threshold of a world-epoch of religious creativeness, on a cosmic divide.
+ - I do not think discursively. It is not so much that I arrive at truth as that I take my start from it.
+ - True life is creativity, not development: it is the freedom for creative acts, for creative fire, rather than necessity and the heaviness of congealing self-perfection.
+ - It is beyond dispute that the state exercises very great power over human life and it always shows a tendency to go beyond the limits laid down for it.
+
+37 quotes

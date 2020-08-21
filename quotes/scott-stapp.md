@@ -1,0 +1,26 @@
+ - I always believed in God and Christ, but I was in rebellion – trying to make my relationship with God fit into my life instead of making my life fit in with him. I was stubborn.
+ - I hear a thunder in the distance; see a vision of the cross. I feel the pain that was given on a sad day of loss. Only He holds the key: a light to free me from my burden and grant me life eternally.
+ - I’d fired anyone who was involved with Creed. I didn’t want anything to do with the music business. The entire press and industry hated me, so what was the point?
+ - You can sell millions of records, be showered with all this love and admiration and still feel despised and unwanted. That’s what I felt. I’ve made a lot of mistakes I’m not proud of.
+ - When something like that happens, people want to try to find some dirt and make it more of a soap opera. But I think we both walked away with the door still open, if we want to do something together again. So yeah, I would call it a friendly break-up.
+ - The Christian community latched onto a lot of my music, because there were a lot of things about my struggle they related to. But I didn’t really want to come out and be identified as a Christian, because I didn’t want to be a hypocrite, because my life wasn’t right.
+ - The story of my life is profoundly unclear. It is a rock-and-roll story and, at the same time, a story of my walk with Christ. The two are melded together in ways both unpredictable and unsure.
+ - There comes a point with any collaboration like that where you start having other interests creatively. I was moving in one direction musically, and as a guitar player, Mark wanted to move in another direction. That was essentially the reason we broke up.
+ - I started making some proper decisions, getting things in order. It’s kind of like cleaning up your house. I was looking for direction for what God wanted me to do – and that’s when I got a call about The Passion.
+ - I’m still going to make mistakes, but I don’t have any problems with publicly professing my faith now. It just took me a long time to get to the right place in my relationship with Christ.
+ - My problems were not what ended Creed.
+ - Strip clubs are the only place the band can go if we want to have a drink. You’re left alone because the last thing the people there care about is us.
+ - I was emotionally and spiritually dried up, so I was just searching for God.
+ - I was a Christian in Creed, but nobody ever asked me.
+ - Creed’s sound is my sound.
+ - Sure I hear what people say. But the only opinions I care about are from the fans.
+ - I think everything worked out the way it was supposed to. Mark’s happier. I’m sober. There are still phone calls to be made, people I need to say something to. But everyone from Creed who I’ve offended or hurt, I ask for their forgiveness.
+ - I wouldn’t doubt it if the CIA is behind Alcoholics Anonymous.
+ - And it took me, since I was 17 and left home, running from God, to now, as a 30-year-old man, when I honestly feel like I’ve come full circle and my heart’s finally in the right place.
+ - It just took all of that to come to a screeching halt, to get to the point of having nothing, for me to finally realize, Hey, what are you fighting with this for? Until then, I hadn’t claimed my faith as my own; I had just grown up with it.
+ - I was raised in a climate where I believed in God because I was afraid of going to hell – and I didn’t think that was the right way to fall in love with somebody.
+ - Creed was ended by egos and people wanting to do their own thing and poor decision-making.
+ - Now, there are people that are Christian artists, because they have a purpose to be evangelical for Christ. I don’t feel I’ve been called to that yet. Now, that could change. There’s no telling what kind of call God will put on my life.
+ - I remember desperately trying to convince my wife that what I was believing was real – that I was being followed, that I was involved in some type of mind-control experiment. I couldn’t understand why she couldn’t believe me.
+
+24 quotes

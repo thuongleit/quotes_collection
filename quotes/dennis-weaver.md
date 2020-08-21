@@ -1,0 +1,25 @@
+ - We don’t have to sacrifice a strong economy for a healthy environment.
+ - Business must be the solution, not the problem.
+ - When I was a kid, we never heard of smog, ozone depletion, acid rain, green house gasses.
+ - Changing mass consciousness is an individual responsibility.
+ - When we realize we can make a buck cleaning up the environment, it will be done!
+ - We’re the only species that have crapped up the planet and the only species that can clean it up.
+ - The wise person understands that his own happiness must include the happiness of others.
+ - Years ago on the set of Gunsmoke I read the book The Holy Science. Since then I have not eaten meat.
+ - If we had a hydrogen economy worldwide, every nation on earth could create its own energy source to support its economy, and the threat of war over diminishing resources would just evaporate.
+ - The earth is a tremendous gift. There is nothing else like it in the known universe. I want to leave it the way I found it.
+ - War is usually fought over diminishing resources, particulary those that we perceive to be extremely valuable.
+ - Practically every environmental problem we have can be traced to our addiction to fossil fuels, primarily oil.
+ - The premise is simple: One economy and one environment, and they’re interdependent.
+ - The Age of Oil has really exhausted its usefulness, and it has actually become a danger to our lives and our ability to survive on the planet.
+ - If we were driving pure hydrogen automobiles, that automobile would actually help clean up the air because the air coming out of the exhaust would be cleaner than the air going into the engine intake.
+ - Business has to change the way it does business, or we will make no significant changes in the way we relate to the earth.
+ - There can be no lasting peace, no security, nor can we as human beings begin to touch our full potential, as long as hunger overwhelms the human spirit around this planet.
+ - We should be able to support our own economy within our own borders.
+ - It’s not an if – we’re going to have to change. Oil is simply going to be gone.
+ - It’s fun to be a little bit different in the world, to make a few new trails of your own.
+ - Coming back to a television series puts you back in the limelight and gives you a platform for your ideas. If you’re not acting on a series, you don’t get the ability to communicate to people.
+ - Whatever we’ll be forced to do later, we should be doing now.
+ - I feel responsible; I feel I’ve got to do something that will leave the kids a place where they can live healthy, safe, productive, creative and prosperous lives.
+
+23 quotes

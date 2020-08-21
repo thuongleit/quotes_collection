@@ -1,0 +1,28 @@
+ - I’ve always subscribed to an old Chinese proverb that the palest ink is better than the best memory.
+ - All things and all people in life have to sink or swim on their own merits, not their reputation; that just as a wise man can say a foolish thing, a fool can say something wise.
+ - This is America, not a banana republic.
+ - My only master and my only mistress are the facts and objectivity. I have no others.
+ - Waiting for the conspiracy theorists to tell the truth is a little like leaving the front-porch light on for Jimmy Hoffa.
+ - You might not agree with me, but I always offer a lot of support.
+ - The Florida Supreme Court wanted all the legal votes to be counted. The United States Supreme Court, on the other hand, did not want all the votes to be counted.
+ - One thing I have seen over and over again in life is that there is virtually no correlation between intelligence and common sense. IQ doesn’t seem to translate that way.
+ - The discrepancy or contradiction is the entire story. And being the entire story, it by itself discredits the entire twenty-six volumes of the Warren Commission. Nothing else has to be shown or even argued.
+ - Winning is often simply getting up off the ground one more time than your opponent.
+ - A national legal organization is giving very serious thought to using The Betrayal of America as a legal basis for asking the House Judiciary Committee to institute impeachment proceedings against these five justices.
+ - A very beautiful honey blonde, Sharon Tate, looked into the eyes of the man who the evidence shows just four and a half months later would order her tragic and violent death.
+ - I lost court cases and misdemeanor juries, but of felony jury trials I was successful 105 of 106 times.
+ - The felonious five in their Supreme Court decision never said Gore did anything improperly in Florida.
+ - The ruling in the Paula Jones case is so silly.
+ - One could safely say that David Lifton took folly to an unprecedented level. And considering the monumental foolishness of his colleagues in the conspiracy community, that’s saying something.
+ - And I believe the truth is mighty, and shines by its own light.
+ - Incidentally, Boies, I’m sure, is a very fine lawyer.
+ - It’s my view that any conservative who loves his country has to be extremely concerned.
+ - It’s unbelievable, there’s a book out attacking Gore, when he’s the most unfortunate loser in political history.
+ - I view myself primarily as a trial lawyer who happens to be writing, as opposed to a writer who happens to be a trial lawyer, so the audience is like a jury to me.
+ - Within the pages of The Betrayal of America I prove that these justices were absolutely up to no good, and they deliberately set out to hand the election to George Bush.
+ - One of the people that wrote a forward to my book is Gerry Spence, whom I admire. Gerry is a friend of mine, and Gerry’s perhaps the leading criminal defense attorney in the country.
+ - I don’t like mansions. They depress me. In fact, I even feel sorry for a rich husband and wife living in a forty-room mansion. They’re obviously searching for something they don’t have, such as happiness or the respect of others.
+ - These people have elevated audacity to symphonic and operatic levels. The Florida Supreme Court relied on new law to resolve the election dispute down there.
+ - I may have implied on several occasions to several different people that I may have been Jesus Christ, but I haven’t decided yet what I am or who I am.
+
+26 quotes

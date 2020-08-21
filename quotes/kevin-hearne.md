@@ -1,0 +1,52 @@
+ - Winning ugly is still winning.
+ - There is always a price to pay for badassery. Neo was a badass in the Matrix and the Matrix Reloaded, but the price he had to pay was The Matrix Revolutions.
+ - Depression is a prison to which you have the key except you never think to look for it.
+ - Monty Python is like catnip for nerds. Once you get them started quoting it, they are constitutionally incapable of feeling depressed.
+ - When in doubt, blame the dark elves.
+ - On a Creep Scale from Hello Kitty to Cthulhu, I award it a Freddy Krueger. Granuaile MacTiernan.
+ - As any war veteran will tell you, there is a vast difference between preparing for battle and actually facing battle for the first time.
+ - The point is, Mrs. MacDonagh, that the universe is exactly the size that your soul can encompass. Some people live in extremely small worlds, and some live in a world of infinite possibility.
+ - I didn’t respond, because naked people never win arguments.
+ - Silly dark elves. Earth is for Druids.
+ - Now go and stake some vamps. Especially the sparkly emo ones.
+ - There are some sights that, once seen, can never be unseen. They replay themselves on a loop in your mind’s home-theatre system with Dolby surround sound until you’re so desperate to be rid of them that you’ll resort to other loops simply to dislodge them for a while.
+ - I would never behave with so little dignity. Nor would I wish to be confronted in such a manner by anyone else. Vampires inspire screams, not squees. Involuntary urination is common, I grant, but it properly flows from a sense of terror, not an ecstatic sense of hero worship.
+ - Oh, I know. They’re dwarfs pretending to be elves. No, they’re not dwarfs either. Okay, okay, they’re “little people,” I’m sorry! Can’t believe I have to be politically correct when you’re the only one who can hear me.
+ - That’s right, there’s free beer in Irish paradise. Everyone’s jealous.
+ - I had my own dump truck of bad karma waiting for me somewhere ahwad. I had certainly earned it, but I raced to avoid it if I could; there was no way I wanted to fell that.
+ - Druid log July 15: Dark elves are not only quick and efficient killers, but creative and pyrotechnically inclined ones.
+ - He will spit you and roast you with rosemary, and we will all sample your flesh tonight. Tomorrow you will be shat out into the snow. Your diplomacy is bold and edgy, sir.
+ - People used to say obvious things ironically or as a form of understatement, but in the last few decades they seem to say it with a sense of discovery, and it worries me.
+ - My mouth gaped and I think I might have whimpered. The Norns had obliterated him completely – a creature they’d known for centuries – because of me. It was like watching Rudolph get shot by Santa Claus.
+ - Let me tell you, people go on and on about what a great idea electricity was, but I’m going to put toilet paper right next to the wheel and say those are the best ideas anyone’s ever had. Scoff at it if you will, but try living for two millennia without it and then we’ll talk.
+ - I yawned and stretched luxuriously in the morning. I make noises when I stretch because it feels ten times better than stretching silently.
+ - Sweet Honey of Dagda, now I was babbling.
+ - Turns out that once you kill a god, people want to talk to you. Paranormal insurance salesmen with special “godslayer” term life policies. Charlatan’s with “godproof” armor and extraplanar safe houses for rent. But most notably, other gods...
+ - Icy glares from vampires are far icier than icy glares from people and when the vampire giving you an icy glare is originally from Iceland, you’re confronted with the archetypal origin of the term, and you shouldn’t be surprised if your core body temperature drops a few degrees.
+ - Gods can screw anything and anybody. For reference, see history. Atticus O’Sullivan.
+ - Whoa. He had ghouls on speed dial. My lawyer kicks so much ass.
+ - She switched from ecstasy to embarrassment at about Mach five.
+ - I’m not a proper anything. Majoring in philosophy kind of turns positive assertions into maybes.
+ - I tend to vacillate between belief systems. Right now I’m kind of checking out the whole buffet, you know, and maybe in a little while I’ll decide on what I want to put on my plate and chow down on.
+ - When he said to give him the sword, I don’t think he meant for you to stick it in his guts.
+ - The tendency of modern American women to exclaim ‘Hiiiiiiiiiiii!’ in soprano octaves and hug each other upon sight can be disconcerting to those unfamiliar with it.
+ - Wooo!’ he said, slamming his shot glass down and coughing a bit. ‘That’s good stuff.’ I agreed heartily. ‘Shall we do another one?’ I asked. ‘Oh no,’ Jesus said quietly, his eyes growing round. ‘This is one of those situations where I have to stop and ask myself, what would I do?
+ - You are telling me that your lawyer is a bloodsucking vampire?
+ - You will respect my authori-tah!? Oberon said, in a passable imitation of Eric Cartman. I reminded him that I needed to concentrate. Sometimes dogs forget; they just get too excited.
+ - But now that she was my apprentice, every such thought caused a guilty twitch in my neck, as if someone had dropped a sleek, stinky ferret there. Guilt ferrets are bastards.
+ - Tell her I am Peace Dawg but I think her cats are closely allied with The Man. I’m going to stick it to them.
+ - Awesome! I’d just bullied Jesus into doing a shot with me. Nobody would ever believe it, but I didn’t care. We ordered the insanely expensive stuff, seventy-five dollars for a 1.75-ounce pour of premium Irish whiskey, because if you’re doing a shot with Jesus, you don’t buy him scotch.
+ - She thinks petting me is an honor. This is an unexpected position to take for a goddess of slaughter, but I applaud her defiance of convention.
+ - Anyone who’s ever tried to tangle with a teddy bear cholla knows there’s a whole lot more bear than teddy to it.
+ - I can’t spend too much time in the forests because I invariably leave traces-ridiculously happy trees, basically, since I’m the last Druid in the world and they tend to geek out like Joss Whedon fans when I show up.
+ - Yes and I appreciate it. But this is going to be difficult enough without running my words through a filter of illiteracy.
+ - What do you know? She liked to be told she was scary. Kinky.
+ - She didn’t go all fangirl on anyone, but I suspect that’s only because none of them bore the slightest resemblance to Nathan Fillion.
+ - If I waved that in front of a museum curator, he’d promptly lose control of his salivary glands.
+ - You don’t need to say any special incantation or sacrifice a stray cat or something first?
+ - He was a god of rock. He nearly solved all the world’s problems with nothing but power chords and anguished cries into a microphone.
+ - Wisdom eludes me yet, but foolishness I captured long ago and to this day it is my constant companion, though many people consider me wise.
+ - Dude. If that was a Shakespearean quote duel, he just kicked your ass.
+ - Mr. Tall, Blonde and Lightning.
+
+50 quotes

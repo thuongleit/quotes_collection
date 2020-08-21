@@ -1,0 +1,67 @@
+ - Where there is love, nothing is too much trouble and there is always time.
+ - To be a Baha’i simply means to love all the world; to love humanity and try to serve it; to work for universal peace and universal brotherhood.
+ - Be calm, be strong, be grateful, and become a lamp full of light, that the darkness of sorrows be annihilated, and that the sun of everlasting joy arise from the dawning-place of heart and soul, shining brightly.
+ - Sometimes I want to ask God why He allows poverty, famine, and injustice when He could do something about it, but I’m afraid he might just ask me the same question.
+ - Let us have love and more love; a love that melts all opposition, a love that conquers all foes, a love that sweeps away all barriers, a love that aboundeth in charity, a large-heartedness, tolerance, forgiveness and noble striving, a love that triumphs over all obstacles.
+ - Love everybody, serve everybody.
+ - The diversity in the human family should be the cause of love and harmony, as it is in music where many different notes blend together in the making of a perfect chord.
+ - If you desire with all your heart, friendship with every race on earth, your thought, spiritual and positive, will spread; it will become the desire of others, growing stronger and stronger, until it reaches the minds of all men.
+ - When a man turns his face to God he finds sunshine everywhere.
+ - If we are not happy and joyous at this season, for what other season shall we wait and for what other time shall we look?
+ - The intellect is good but until it has become the servant of the heart, it is of little avail.
+ - Love ye all religions and all races with a love that is true and sincere and show that love through deeds...
+ - Service to humanity is service to God. Let the love and light of the Kingdom radiate through you until all who look upon you shall be illumined by its reflection. Be as stars, brilliant and sparkling in the loftiness of their heavenly station.
+ - To attain eternal happiness one must suffer. He who has reached the state of self-sacrifice has true joy. Temporal joy will vanish.
+ - Truthfulness is the foundation of all the virtues of mankind.
+ - The pure heart is one that is entirely cut away from self. To be selfless is to be pure.
+ - The home of Religion is the heart.
+ - Love is the spirit of life unto the adorned body of mankind, the establisher of true civilization in this mortal world, and the shedder of imperishable glory upon every high-aiming race and nation.
+ - Every kind of knowledge, every science, is as a tree: if the fruit of it be the love of God, then is it a blessed tree, but if not, that tree is but dried-up wood, and shall only feed the fire.
+ - My heart is in a constant state of thanksgiving.
+ - Love is the most great law that ruleth this mighty and heavenly cycle, the unique power that bindeth together the divers elements of this material world, the supreme magnetic force that directeth the movements of the spheres in the celestial realms.
+ - Love gives life to the lifeless. Love lights a flame in the heart that is cold. Love brings hope to the hopeless and gladdens the hearts of the sorrowful. In the world of existence there is indeed no greater power than the power of love.
+ - Man is in reality a spiritual being and only when he lives in the spirit is he truly happy.
+ - Let them at all times concern themselves with doing a kindly thing for one of their fellows, offering to someone love, consideration, thoughtful help.
+ - Joy gives us wings! In times of joy our strength is more vital, our intellect keener, and our understanding less clouded. We seem better able to cope with the world and to find our sphere of influence.
+ - The spirit does not need a body, but the body needs spirit, or it cannot live. The soul can live without a body, but the body without a soul dies.
+ - If love and agreement are manifest in a single family, that family will advance, become illumined and spiritual.
+ - If some one commits an error and wrong toward you, you must instantly forgive him.
+ - The most important principle of divine philosophy is the oneness of the world of humanity, the unity of mankind, the bond conjoining East and West, the tie of love which blends human hearts.
+ - If religious beliefs and opinions are found contrary to the standards of science they are mere superstitions and imaginations.
+ - Help along one another’s projects and plans.
+ - If a man has ten good qualities and one bad one, to look at the ten and forget the one, and if a man has ten bad qualities and one good one, to look at the one and forget the ten.
+ - It is good to laugh. Laughter is spiritual relaxation.
+ - Man is not intended to see through the eyes of another, hear through another’s ears nor comprehend with another’s brain. Each human creature has individual endowment, power and responsibility in the creative plan of God.
+ - The gift of God to this enlightened age is the knowledge of the oneness of mankind and of the fundamental oneness of religion. War shall cease between nations, and by the will of God the Most Great Peace shall come; the world will be seen as a new world, and all men will live as brothers.
+ - The wisdom of the appearance of the spirit in the body is this: the human spirit is a Divine Trust, and it must traverse all conditions, for its passage and movement through the conditions of existence will be the means of its acquiring perfections.
+ - Behold a candle, how it gives its light. It weeps its life away drop by drop in order to give forth its flame of light.
+ - Beware of prejudice; light is good in whatsoever lamp it is burning; a rose is beautiful in whatever garden it may bloom.
+ - Let’s be wise as the silence, strong as the wind, useful as the light; let’s make of our lips a censer of the virtues.
+ - Truthfulness is the foundation of all virtues of the world of humanity. Without truthfulness, progress and success in all the worlds of God are impossible for a soul. When this holy attribute is established in man, all the divine qualities will also become realized.
+ - The body of the human world is sick. Its remedy and healing will be the oneness of the kingdom of humanity. Its life is the Most Great Peace. Its illumination and quickening is love. Its happiness is the attainment of spiritual perfections.
+ - Until the reality of equality between man and woman is fully established and attained, the highest social development of mankind is not possible.
+ - Anyone can live contentedly in circumstances of ease and comfort, health and well-being gratification and felicity; but to remain happy and contented in the face of difficulty, hardship and the onslaught of disease and sickness-this is an indication of nobility.
+ - In the world of existence there is no more powerful magnet than the magnet of love.
+ - I beseech you, one and all, to add your prayers to mine to the end that war and bloodshed cease, and that love, friendship, peace and unity reign in the world.
+ - The reality of man is his thought, not his material body. The thought force and the animal force are partners. Although man is part of the animal creation, he possesses a power of thought superior to all other created beings.
+ - We declare that love is the cause of the existence of all phenomena and that the absence of love is the cause of disintegration or non-existence.
+ - If religion becomes a cause of dislike, hatred and division it were better to be without it...
+ - If others hurl their darts against you, offer them milk and honey in return; if they poison your lives, sweeten their souls.
+ - In some respects woman is superior to man. She is more tender-hearted, more receptive, her intuition is more intense.
+ - An humble man without learning, but filled with the Holy Spirit, is more powerful than the most nobly-born profound scholar without that inspiration. He who is educated by the Divine Spirit can, in his time, lead others to receive the same Spirit.
+ - Love manifests its reality in deeds, not only in words-these alone are without effect.
+ - Strive with all your hearts, raise up your voices and shout, until this dark world be filled with light.
+ - Man is under all conditons immersed in a sea of God’s blessings. Therefore, be thou not hopeless under any circumstances, but rather be firm in thy hope.
+ - To promote knowledge is thus an inescapable duty imposed on every one of the friends of God.
+ - The mere size of the brain has been proved to be no measure of superiority. The woman has greater moral courage than the man; she has also special gifts which enable her to govern in moments of danger and crisis. If necessary she can become a warrior.
+ - There is but one power which heals – that is God. The state or condition through which the healing takes place is the confidence of the heart. By some this state is reached through pills, powders, and physicians. By others through hygiene, fasting, and prayer. By others through direct perception.
+ - In this sacred Dispensation conflict and contention are in no wise permitted.
+ - There is no contradiction between true religion and science.
+ - The time has come for humanity to hoist the standard of the oneness of the human world, so that dogmatic formulas and superstitions may end.
+ - Woman must especially devote her energies and abilities toward the industrial and agricultural sciences, seeking to assist mankind in that which is most needful. By this means she will demonstrate capability and ensure recognition of equality in the social and economic equation.
+ - And now one of the greatest and most fundamental principles of the Cause of God is to shun and avoid entirely the Covenant-breakers, for they will utterly destroy the Cause of God, exterminate His Law and render of no account all efforts exerted in the past.
+ - Close investigation will show that the primary cause of oppression and injustice, of unrighteousness, irregularity and disorder, is the people’s lack of religious faith and the fact that they are uneducated.
+ - Man is not man simply because of bodily attributes. The standard of divine measure and judgment is his intelligence and spirit.
+ - Humanity has emerged from its former degrees of limitation and preliminary training. Man must now become imbued with new virtues and powers, new moralities, new capacities. New bounties, bestowals and perfections are awaiting and already descending upon him.
+
+65 quotes

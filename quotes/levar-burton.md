@@ -1,0 +1,30 @@
+ - If we marry educational technology with quality, enriching content, that’s a circle of win.
+ - For me, literacy means freedom. For the individual and for society.
+ - Maturity is a series of shattered illusions.
+ - I fly my geek flag proudly. Absolutely.
+ - I feel like I have been able to notice throughout the incremental march of history during the course of my own lifetime patterns emerging, and there’s a sort of a rubber band effect that happens where social growth and change is concerned.
+ - I think reading is part of the birthright of the human being.
+ - In a society that functions optimally, those who can should naturally want to provide for those who can’t. That’s how it’s designed to work. I truly believe we’re here to take care of one another.
+ - After many years of training myself, strong emotions are now a trigger for me to look at something. I think that all emotions are triggers for us to grow in our level of consciousness.
+ - There would be no Star Trek unless there were transporter malfunctions.
+ - We can’t afford to sacrifice another generation of American children to bureaucratic politics. We’ve got to get it done. The future, the health, the life – our nation depends on it and it’s just foolish to think or act otherwise.
+ - All literature is political.
+ - Jim Carrey can do anything he wants, right? There are guys like that. I’m not one of those guys, so my career has been cobbled together with what the universe has put in front of me.
+ - Reading a hard copy book, and reading a book on an iPad are slightly different experiences. What they both have in common though is that you must engage your imagination in the process.
+ - We have an amazing advantage right now in that we have developed technology that is so sexy, so engaging for kids.
+ - I genuinely believe we have an opportunity to revolutionize how we educate our children.
+ - I’ve always been interested in gadgets and technology and I’ve always been a reader.
+ - As long as we are engaged in storytelling that moves the culture forward, it doesn’t matter what format it is.
+ - And it’s here and it’s ready and we can really revolutionize the way we educate our children with tablet computers, and I’m committed to doing whatever I can to speaking to whomever I can to send this signal – to pound this message home. Now is the time.
+ - I’m excited to see how current and future technologies revolutionize the way we learn.
+ - I have always been a fan of ‘Star Trek.’ I love Gene Roddenberry’s vision of the future.
+ - Libraries do one thing that no other institution does and that’s provide access to all.
+ - I’m enormously proud of the fact that Star Trek has really not just sparked an interest, but encouraged, a few generations of people to go into the sciences.
+ - We had to figure out how to produce books in a cost-effective way.
+ - The unvarnished truth is that we have spent the last decade funding the machinery of war, and our children have been sacrificed.
+ - I get most of my news updates from electronic and social media.
+ - You can break down anything for a child, and you have to know what your child is ready for and what your child is not.
+ - For me, a good children’s book is a good children’s book is a good children’s book.
+ - It’s definitely true that there are a lot of the devices we used on ‘Star Trek,’ that came out the imagination of the writers, and the creators that are actually in the world today.
+
+28 quotes

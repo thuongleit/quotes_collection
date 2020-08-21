@@ -1,0 +1,21 @@
+ - I lived for music since I could think.
+ - I am a forward-looking person and live in the moment to build for the future.
+ - I’ve got to where I am in life not because of something I brought to the world but through something I found – the wealth of African culture.
+ - When I left South Africa in 1960 I was 20 years old. I wanted to try to get an education, and music education was not available for me in South Africa.
+ - When people campaign for positions, they promise people all kinds of things.
+ - I don’t think any musician ever thinks about making a statement. I think everybody goes into music loving it.
+ - I grew up with protests, marches, demonstrations, struggle. But I come from a clan of community workers.
+ - I don’t think what I do is influenced by suffering. I come from a talented people who are prolific in music and dance.
+ - I just came from South Africa, a place that had been in a perpetual uprising since 1653, so the uprising had become a way of life in our culture and we grew up with rallies and strikes and marches and boycotts.
+ - Africa has been troubled for a long time – well, the world has been troubled ever since I was born.
+ - I’ve always stood on one fact – that all over the world, there are only two things, the Establishment and the poor people. The poor people are a massive majority and across the world they are exploited in different kinds of ways. The Establishment depends on exploiting raw materials and the poor.
+ - The Afro-American experience is the only real culture that America has. Basically, every American tries to walk, talk, dress and behave like African Americans.
+ - In my view, Africa’s real problems are cultural.
+ - To tell you the truth, man, we spend most of the time travelling in hotels, in festivals, in concert halls, clubs, airports. The most unenjoyable part is all the security at airports.
+ - All my experiences removed geography from my world.
+ - I think it is incumbent on all human beings to oppose injustice in every form.
+ - I’m travelling more than ever. I don’t have the answer as to why, but the demand seems to have grown as I’ve got older.
+ - It’s obvious that the rest of the world loves high African culture – African culture, period.
+ - I always make the joke that I go home, to one of my homes, to go and do laundry so I can go on the road again.
+
+19 quotes

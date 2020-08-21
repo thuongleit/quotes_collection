@@ -1,0 +1,45 @@
+ - It’s not really about the competition. Your biggest challenge in a race is yourself. You’re often racing against time. You’re frequently running everything through your mind. You’re always competing against preconceived ideas. It’s not really the person next to you that you worry about.
+ - The first mile is mental. The rest are all heart.
+ - Don’t just tell your kids to be active and to get outside and play. Lead by example.
+ - The things you learn from sports – setting goals, being part of a team, confidence – that’s invaluable. It’s not about trophies and ribbons. It’s about being on time for practice, accepting challenges and being fearful of the elements.
+ - At the end of a marathon, it’s going to hurt whether you’re speeding up or slowing down. You may as well push.
+ - I love to swim. When I jump in the water, I feel like I’m 12 years old again. It’s really funny how it does that to me.
+ - It’s hard to go out and practice every single day, and you get really tired. But you have to believe in yourself.
+ - There is nothing in this world that I love more than my family. To be able to share the joy of running with them at the Runner’s World Half Marathon and Running Festival where we can all participate together is as close as you can get to a perfect weekend.
+ - I don’t care how much you’re working out; when you go to put on that bikini, you’re like, ‘Oh no!’
+ - I love to run, but training can be hard, especially with a family and a crazy travel schedule. I often do sprints with my kids, where they bike and I run along side them so we can ‘race’ each other for a quarter-mile or shorter repeats.
+ - I enjoyed every bit of my swimming career. I think that’s the most important advice – to enjoy what you do.
+ - I have so much to learn when it comes to running. I just don’t ever want it to feel like a chore. When I choose to sign up for a race or go out for a run, it’s to make myself feel good, and I almost always do.
+ - I think some parents fall into a trap, teaching their kids that everything is always perfect and everyone is always a winner.
+ - I was a die-hard, obsessed fan of Michael Jordan. I’d take his posters with me to away meets, I’d walk out on the deck in my Air Jordans before I swam, I’d write 23 on my cap. I’m just a huge Jordan fan.
+ - I’ve been barefoot most of my life: either flip flops or barefoot on the pool deck. Although you’d think that would make me a good candidate for barefoot running, that doesn’t work with me.
+ - Sports have always been a huge part of my life and my conversations. It is a thrill and an honor to be a part of this ground-breaking show. I am a competitor at heart, but a true sports fan to my core.
+ - Thinking about your training should put a smile on your face. As cliche as it sounds, you are worth all the time and energy you’ve put in. Unleash your emotions with a cheer, or even a signature roar, after a tough workout.
+ - Here’s what I’ve learned about eating healthy when you’re busy: It’s all about preparation. Make your snacks on Sunday, and you will be good to go until Thursday or so.
+ - When I was training for the Olympics, I didn’t eat the way I should have. I missed out on much-needed protein and opted for every easy carb.
+ - The kids know what I’m doing when I exercise, and that’s powerful. So don’t just tell your kids to go play outside. Take a moment off your computer, put on your tennis shoes, hop outside and help them start their game and run off some energy.
+ - Protein is important and hard for me to get in a hurry. We’re busy. I don’t always remember to thaw the chicken for dinner. I always have eggs, and they’re light and satisfying. I never feel stuffed at the end of it.
+ - I worked at this place called Water World; it was a waterslide park. My brother and my dad framed my first paycheck from this place – which was for $0.00 dollars – because I didn’t even make enough to cover the cost of my uniform!
+ - You can’t go wrong with some nuts. The key word is ‘some.’ Eat them one at a time, not by the handful.
+ - That’s what I love about running – I feel like we all celebrate each other. Even if you’re racing somebody at the finish, it’s like you’re in it together.
+ - Swimming is great because there are levels of goals. First, when I was four, it was making it to the other end and overcoming the fear of standing up in front of everybody at a swim meet because I was such a shy kid.
+ - I slice up a ton of cucumbers, celery, carrots and red and yellow peppers. Keep them in your fridge so you always have something handy to curb your snack attack.
+ - Quite simply, my diet has and will always be everything in moderation. People look at Olympic athletes and think they must cut out all those things everyone else indulges in, and speaking for myself, I never did.
+ - The more sleep you get in before the clock turns midnight, the more rested you feel no matter what time your alarm goes off.
+ - As a woman, you need to take control of your health. There’s no harm in going in and getting checked out. Eventually, you have to ask yourself: ‘Do I want to live at 100% or 80%?’
+ - Boston is the cream of the crop of the marathon world. It has such history that you feel such honor just being a part of it. All the other races have pacers to get you to a Boston qualifying time.
+ - When people say, ‘Hey, wanna come to our house for dinner?’ I say, ‘Yeah, what should I bring?’ They say, ‘How about the dessert?’ I just don’t skimp on the dessert. I make it the yummy way it should be made, and then I just don’t eat the whole pan.
+ - For me, music makes my smile brighter during my workouts. It adds that extra something that motivates me to go further or work harder!
+ - For as long as I wanted to swim, I also wanted to do something on TV. My best friend in high school, we used to pretend like we had a TV show, and we had this dream of being the next ‘Kate Allie.’ Having that kind of a shtick.
+ - I grew up in northern California, where it was consistently in the hundreds in the summertime. My dad didn’t think he should have to turn on the air conditioning when we had a swimming pool in our backyard; it was our built-in air conditioner.
+ - A great way to get all the right nutrients is to make a colorful plate – mix of good vegetables, carbohydrates, and protein. If you notice all your vegetables are green, change it up and add another color for a variety of benefits in one meal.
+ - Indoor pools just don’t seem as inviting to me.
+ - When I was younger, I would eat everything.
+ - It really was my brother who got me involved in swimming. I wanted to be just like him and do everything he was doing.
+ - I started swimming when I was four because my brother wanted to join a swim team, and I wanted to do what he did. They said I had to be six, but if I could swim a lap, then I could participate. So I swam a lap, and the rest is history.
+ - At 4, I joined a summer rec team called the Sugar Bears.
+ - Daily repetition matters when a kid is learning to swim. It can be 20 minutes in a lesson or an hour practicing for a couple of weeks.
+ - Preparing mentally takes more out of you than the physical aspect of it.
+ - Honestly, if I can plan out a few meals ahead of time, I feel much more organized.
+
+43 quotes

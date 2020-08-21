@@ -1,0 +1,502 @@
+ - There is no friend as loyal as a book.
+ - There is nothing noble in being superior to your fellow man; true nobility is being superior to your former self.
+ - Courage is grace under pressure.
+ - Happiness in intelligent people is the rarest thing I know.
+ - There is nothing to writing. All you do is sit down at a typewriter and bleed.
+ - We’re stronger in the places that we’ve been broken.
+ - All you have to do is write one true sentence. Write the truest sentence that you know.
+ - Worry a little bit every day and in a lifetime you will lose a couple of years. If something is wrong, fix it if you can. But train yourself not to worry: Worry never fixes anything. 
+ - We are all broken, that’s how the light gets in.
+ - Write hard and clear about what hurts. 
+ - The best way to find out if you can trust somebody is to trust them.
+ - Every man’s life ends the same way. It is only the details of how he lived and how he died that distinguish one man from another.
+ - Cowards die a thousand deaths, but the brave only die once.
+ - As a writer, you should not judge, you should understand.
+ - It is good to have an end to journey toward; but it is the journey that matters, in the end.
+ - Show the readers everything, tell them nothing.
+ - The world breaks everyone, and afterward, some are strong at the broken places.
+ - The most painful thing is losing yourself in the process of loving someone too much, and forgetting that you are special too.
+ - In order to write about life first you must live it.
+ - The hard part about writing a novel is finishing it.
+ - The rain will stop, the night will end, the hurt will fade. Hope is never so lost that it can’t be found.
+ - But man is not made for defeat. A man can be destroyed but not defeated.
+ - Never delay kissing a pretty girl or opening a bottle of whiskey.
+ - The first and final thing you have to do in this world is to last it and not be smashed by it.
+ - I love you for all that you are, all that you have been, all that you’re yet to be.
+ - Go all the way with it. Do not back off. For once, go all the goddamn way with what matters.
+ - If you are lucky enough to have lived in Paris as a young man, then wherever you go for the rest of your life, it stays with you, for Paris is a moveable feast.
+ - I love sleep. My life has the tendency to fall apart when I’m awake, you know?
+ - Now is no time to think of what you do not have. Think of what you can do with that there is.
+ - We are all apprentices in a craft where no one ever becomes a master.
+ - I like to listen. I have learned a great deal from listening carefully. Most people never listen.
+ - Today is only one day in all the days that will ever be. But what will happen in all the other days that ever come can depend on what you do today. It’s been that way all this year. It’s been that way so many times. All of war is that way.
+ - Write drunk; edit sober.
+ - Live the full life of the mind, exhilarated by new ideas, intoxicated by the Romance of the unusual.
+ - The best people possess a feeling for beauty, the courage to take risks, the discipline to tell the truth, the capacity for sacrifice. Ironically, their virtues make them vulnerable; they are often wounded, sometimes destroyed.
+ - You are so brave and quiet I forget you are suffering.
+ - The world breaks everyone and afterward many are strong at the broken places. But those that will not break it kills. It kills the very good and the very gentle and the very brave impartially. If you are none of these you can be sure it will kill you too but there will be no special hurry.
+ - Night is always darker before the dawn and life is the same, the hard times will pass, every thing will get better and sun will shine brighter then ever.
+ - When you stop doing things for fun you might as well be dead.
+ - Never mistake motion for action.
+ - There are only three sports: bullfighting, motor racing, and mountaineering; all the rest are merely games.
+ - Listen now. When people talk listen completely. Don’t be thinking what you’re going to say. Most people never listen. Nor do they observe.
+ - Life is pain, so live it up while you can.
+ - Isn’t it pretty to think so.
+ - The only kind of writing is rewriting.
+ - To hell with them. Nothing hurts if you don’t let it.
+ - Every day is a new day. It is better to be lucky. But I would rather be exact. Then when luck comes you are ready.
+ - The world is a fine place and worth the fighting for and I hate very much to leave it.
+ - Write as well as you can and finish what you start.
+ - There is no hunting like the hunting of man, and those who have hunted armed men long enough and liked it, never care for anything else thereafter.
+ - Do not worry. You have always written before and you will write now.
+ - The only thing that can ruin a good day is people.
+ - Man is not made for defeat.
+ - I drink to make other people more interesting.
+ - All thinking men are atheists.
+ - I’m tired of everybody. Please forgive me.
+ - Work every day. No matter what has happened the day or night before, get up and bite on the nail.
+ - Wine is the most civilized thing in the world.
+ - Any man’s life, told truly, is a novel...
+ - The things of the night cannot be explained in the day, because they do not then exist.
+ - Writing, at its best, is a lonely life.
+ - Use short sentences. Use short first paragraphs. Use vigorous English. Be positive, not negative.
+ - There will always be people who say it does not exist because they cannot have it. But I tell you it is true and that you have it and that you are lucky even if you die tomorrow.
+ - An intelligent man is sometimes forced to be drunk to spend time with his fools.
+ - I am always in love.
+ - No subject is terrible if the story is true, if the prose is clean and honest, and if it affirms courage and grace under pressure.
+ - A cat has absolute emotional honesty: human beings, for one reason or another, may hide their feelings, but a cat does not.
+ - Never go on trips with anyone you do not love.
+ - You’re not a moron. You’re only a case of arrested development.
+ - And you’ll always love me won’t you? Yes And the rain won’t make any difference? No.
+ - I never knew of a Morning in Africa when I woke up and was not happy.
+ - For sale. Baby shoes. Never worn.
+ - Good writing is good conversation, only more so.
+ - About morals, I know only that what is moral is what you feel good after and what is immoral is what you feel bad after.
+ - When writing a novel a writer should create living people; people not characters. A character is a caricature.
+ - London is a riddle. Paris is an explanation.
+ - Easy writing makes hard reading.
+ - Strong in all the Broken Places.
+ - A man does not exist until he is drunk.
+ - As you get older it is harder to have heroes, but it is sort of necessary.
+ - Write the story, take out all the good lines, and see if it still works.
+ - Why, darling, I don’t live at all when I’m not with you.
+ - Humility is not disgraceful, and carries no loss of true pride.
+ - But life isn’t hard to manage when you’ve nothing to lose.
+ - Today is only one day in all the days that will ever be.
+ - Let him think that I am more man than I am and I will be so.
+ - It’s silly not to hope. It’s a sin he thought.
+ - My writing is nothing, my boxing is everything.
+ - My only regret in life is that I did not drink more wine.
+ - All modern American literature comes from one book by Mark Twain called Huckleberry Finn.
+ - Most people never listen.
+ - No animal has more liberty than the cat, but it buries the mess it makes. The cat is the best anarchist.
+ - I decided to stop drinking with creeps. I decided to drink only with friends. I’ve lost 30 pounds.
+ - I’m not brave any more darling. I’m all broken. They’ve broken me.
+ - Fortunately I have never learned to take the good advice I give myself nor the counsel of my fears.
+ - Everything that a painter did or that a writer wrote was a part of his training and preparation for what he was to do.
+ - I mistrust all frank and simple people, especially when their stories hold together.
+ - The best ammunition against lies is the truth, there is no ammunition against gossip. It is like a fog and the clear wind blows it away and the sun burns it off.
+ - It is by riding a bicycle that you learn the contours of a country best, since you have to sweat up the hills and coast down them.
+ - Drinking wine was not a snobbism nor a sign of sophistication nor a cult; it was as natural as eating and to me as necessary...
+ - War is a crime. Ask the Infantry and ask the dead.
+ - If two people love each other there can be no happy end to it.
+ - Going to another country doesn’t make any difference. I’ve tried all that. You can’t get away from yourself by moving from one place to another. There’s nothing to that.
+ - By then I knew that everything good and bad left an emptiness when it stopped. But if it was bad, the emptiness filled up by itself. If it was good you could only fill it by finding something better.
+ - My big fish must be somewhere.
+ - I didn’t want to kiss you goodbye – that was the trouble – I wanted to kiss you good night – and there’s a lot of difference.
+ - The shortest answer is doing the thing.
+ - When I saw my wife again standing by the tracks as the train came in by the piled logs at the station, I wished I had died before I had ever loved anyone but her.
+ - My aim is to put down on paper what I see and what I feel in the best and simplest way.
+ - Poor Faulkner. Does he really think big emotions come from big words? He thinks I don’t know the ten-dollar words. I know them all right. But there are older and simpler and better words, and those are the ones I use.
+ - It’s none of their business that you have to learn how to write. Let them think you were born that way.
+ - They wrote in the old days that it is sweet and fitting to die for one’s country. But in modern war, there is nothing sweet nor fitting in your dying. You will die like a dog for no good reason.
+ - There are only two places in the world where we can live happy: at home and in Paris.
+ - When people talk, listen completely. Most people never listen.
+ - The educated man is the man who can do something. The quality of his work marks the degree of his education.
+ - No one you love is ever truly lost.
+ - The circus is the only fun you can buy that is good for you.
+ - There is no rule on how to write. Sometimes it comes easily and perfectly; sometimes it’s like drilling rock and then blasting it out with charges.
+ - Being against evil doesn’t make you good.
+ - I don’t want to be your friend, baby. I am your friend.
+ - Live it up so you can write it down.
+ - I was a little drunk. Not drunk in any positive sense but just enough to be careless.
+ - Remember everything is right until it’s wrong. You’ll know when it’s wrong.
+ - Would you please please please please please please please stop talking?
+ - The smallest coffins are the heaviest.
+ - You cannot stop trusting people in life but I have learned to be a little bit careful. The way to make people trust-worthy is to trust them.
+ - For what are we born if not to aid one another?
+ - No, that is the great fallacy: the wisdom of old men. They do not grow wise. They grow careful.
+ - I can’t stand it to think my life is going so fast and I’m not really living it.
+ - You must be prepared to work always without applause.
+ - To be successful in writing, use short sentences.
+ - I love you and I always will and I am sorry. What a useless word.
+ - Once in Africa I lost the corkscrew and we were forced to live off food and water for weeks.
+ - The best way is always to stop when you are going good and when you know what will happen next. If you do that every day when you are writing a novel you will never be stuck. That is the most valuable thing I can tell you so try to remember it.
+ - I drank a bottle of wine for company. It was Chateau Margaux. It was pleasant to be drinking slowly and to be tasting the wine and to be drinking alone. A bottle of wine was good company.
+ - It is awfully easy to be hard-boiled about everything in the daytime, but at night it is another thing.
+ - The fools think I am writing algebra but what I am really writing is geometry.
+ - I always try to write on the principle of the iceberg. There is seven-eighths of it underwater for every part that shows.
+ - To hell with luck. I’ll bring the luck with me.
+ - The man who has begun to live more seriously within begins to live more simply without.
+ - Religion is the opium of the poor.
+ - A wine shop was open and I went in for some coffee. It smelled of early morning, of swept dust, spoons in coffee-glasses and the wet circles left by wine glasses.
+ - The only thing that could spoil a day was people. People were always the limiters of happiness except for the very few that were as good as spring itself.
+ - I had an inheritance from my father, It was the moon and the sun. And though I roam all over the world, The spending of it’s never done.
+ - Because Fascism is a lie, it is condemned to literary sterility. And when it is past, it will have no history, except the bloody history of murder.
+ - Writing and travel broaden your ass if not your mind and I like to write standing up.
+ - Most people were heartless about turtles because a turtle’s heart will beat for hours after it has been cut up and butchered. But the old man thought, I have such a heart too.
+ - A bottle of wine was good company.
+ - You’ll ache. And you’re going to love it. It will crush you. And you’re still going to love all of it.
+ - All my life I’ve looked at words as though I were seeing them for the first time.
+ - Any man who eats dessert is not drinking enough.
+ - The story was writing itself and I was having a hard time keeping up with it.
+ - When I am working on a book or a story I write every morning as soon after the first light as possible. There is no one to disturb you and it is cold and you warm as you write.
+ - They say the seeds of what we will do are in all of us, but it always seemed to me that in those who make jokes in life the seeds are covered with better soil and with a higher grade of manure.
+ - Every day above earth is a good day.
+ - You make your own luck, Gig. You know what makes a good loser? Practice.
+ - To be able to say: I loved this person, we had a hell of a nice time together, it’s over but in a way it will never be over and I do know that I for sure loved this person, to be able to say that and mean it, that’s rare. That’s rare and valuable.
+ - When I saw her I was in love with her. Everything turned over inside of me. She looked toward the door, saw there was no one, then she sat on the side of the bed and leaned over and kissed me.
+ - I was blown up while we were eating cheese.
+ - The real reason for not committing suicide is because you always know how swell life gets again after the hell is over.
+ - He was just a coward and that was the worst luck any many could have.
+ - You did not kill the fish only to keep alive and to sell for food, he thought. You killed him for pride and because you are a fisherman. You loved him when he was alive and you loved him after. If you love him, it is not a sin to kill him. Or is it more?
+ - For a true writer each book should be a new beginning, where he tries again for something that is beyond attainment.
+ - One cat just leads to another.
+ - You don’t have to destroy me. Do you? I’m only a woman who loves you and wants to do what you want to do. I’ve been destroyed two or three times already. You wouldn’t want to destroy me again, would you?
+ - If the others heard me talking out loud they would think that I am crazy. But since I am not, I do not care.
+ - Always do sober what you said you’d do drunk. That will teach you to keep your mouth shut.
+ - Everyone my age had written a novel and I was still having difficulty writing a paragraph.
+ - I wish I had died before I ever loved anyone but her.
+ - Work could cure almost anything.
+ - French is the language of diplomacy. Spanish is the language of bureaucracy.
+ - All cowardice comes from not truly loving, or at least, not loving well.
+ - No one should be alone in their old age, he thought.
+ - You have it now and that is all your whole life is; now. There is nothing else than now. There is neither yesterday, certainly, nor is there any tomorrow.
+ - Read anything I write for the pleasure of reading it. Whatever else you find will be the measure of what you brought to the reading.
+ - If a writer knows enough about what he is writing about, he may omit things that he knows. The dignity of movement of an iceberg is due to only one ninth of it being above water.
+ - I would write one true sentence, and then go on from there.
+ - The road to Hell is paved with unbought stuffed dogs.
+ - This beer is good for you. This is draft beer. Stick with the beer. Let’s go and beat this guy up and come back and drink some more beer.
+ - Wine is one of the most civilized things in the world and one of the most natural things of the world that has been brought to the greatest perfection, and it offers a greater range for enjoyment and appreciation than, possibly, any other purely sensory thing.
+ - I always worked until I had something done and I always stopped when I knew what was going to happen next. That way I could be sure of going on the next day.
+ - Anyone who says he wants to be a writer and isn’t writing, doesn’t.
+ - I loved you when I saw you today and I loved you always but I never saw you before.
+ - I’ve been wondering about Dostoyevsky. How can a man write so badly, so unbelievably badly, and make you feel so deeply?
+ - Oh, darling, you will be good to me, won’t you? Because we’re going to have a strange life.
+ - How lazily the sun goes down in Granada, it hides beneath the water, it conceals in the Alhambra!
+ - Time is the least thing we have.
+ - Home is where the heart is, home is where the fart is. Come let us fart in the home. There is no art in a fart. Still a fart may not be artless. Let us fart and artless fart in the home.
+ - You may talk. And I may listen. And miracles might happen.
+ - Every damn thing is your own fault, if you are any good.
+ - After writing a story I was always empty and both sad and happy, as though I had made love.
+ - And how much better to die in all the happy period of undisillusioned youth, to go out in a blaze of light, than to have your body worn out and old and illusions shattered.
+ - If my Valentine you won’t be, I’ll hang myself on your Christmas tree.
+ - But Paris was a very old city and we were young and nothing was simple there.
+ - Religion is like an ice cold whiskey on a hot day.
+ - I’m not unfaithful, darling. I’ve plenty of faults but I’m very faithful. You’ll be sick of me I’ll be so faithful.
+ - You can write any time people will leave you alone and not interrupt you. Or rather you can if you will be ruthless enough about it. But the best writing is certainly when you are in love.
+ - There are some things which cannot be learned quickly, and time, which is all we have, must be paid heavily for their acquiring.
+ - When you work hard all day with your head and know you must work again the next day what else can change your ideas and make them run on a different plane like whisky?
+ - It is good that we do not have to try to kill the sun or the moon or the stars. It is enough to live on the sea and kill our true brothers.
+ - Perhaps I should not have been a fisherman, he thought. But that was the thing that I was born for.
+ - Prose is architecture, not interior decoration, and the Baroque is over.
+ - I’m always reading books-as many as there are. I ration myself on them so that I’ll always be in supply.
+ - If a writer stops observing he is finished. Experience is communicated by small details intimately observed.
+ - He rested sitting on the un-stepped mast and sail and tried not to think but only to endure.
+ - My father was a deeply sentimental man. And like all sentimental men, he was also very cruel.
+ - You’re beautiful, like a May fly.
+ - You won’t do our things with another girl, or say the same things, will you?
+ - We ate well and cheaply and drank well and cheaply and slept well and warm together and loved each other.
+ - It was considered a virtue not to talk unnecessarily at sea...
+ - I felt the death loneliness that comes at the end of every day that is wasted in your life.
+ - I rewrote the ending of ‘Farewell to Arms’ 39 times before I was satisfied.
+ - You are killing me, fish, the old man thought. But you have a right to. Never have I seen a greater, or more beautiful, or a calmer or more noble thing than you, brother.
+ - My working habits are simple: long periods of thinking, short periods of writing.
+ - I learned never to empty the well of my writing, but always to stop when there was still something there in the deep part of the well, and let it refill at night from the springs that fed it.
+ - I still need more healthy rest in order to work at my best. My health is the main capital I have and I want to administer it intelligently.
+ - When you love you wish to do things for. You wish to sacrifice for. You wish to serve.
+ - But did thee feel the earth move?
+ - I know now that there is no one thing that is true – it is all true.
+ - There is no such thing as great writing – there is only great re-writing!
+ - Details make stories human, and the more human a story can be, the better.
+ - There are many who do not know they are fascists but will find it out when the time comes.
+ - Imagination? It is the one thing beside honesty that a good writer must have. The more he learns from experience the more he can imagine.
+ - What is moral is what you feel good after.
+ - He would lie in the bed and finally, with daylight, he would go to sleep. After all, he said to himself, it is probably only insomnia. Many must have it.
+ - The good parts of a book may be only something a writer is lucky enough to overhear or it may be the wreck of his whole damn life – and one is as good as another.
+ - I write description in longhand because that’s hardest for me and you’re closer to the paper when you work by hand, but I use the typewriter for dialogue because people speak like a typewriter works.
+ - Find the best writers, pay them to write, and avoid typos at all costs.
+ - The great thing is to last and get your work done and see and hear and learn and understand; and write when there is something that you know; and not before, and not too damned much after.
+ - When you have a child, the world has a hostage.
+ - The sea is the same as it has been since before men ever went on it in boats.
+ - You love a lot of things if you live around them, but there isn’t any woman and there isn’t any horse, nor any before nor any after, that is as lovely as a great airplane.
+ - Everyone behaves badly – given the chance.
+ - Nobody knows what’s in him until he tries to pull it out. If there’s nothing, or very little, the shock can kill a man.
+ - You can write anytime people will leave you alone and not interrupt you.
+ - Dying is a very simple thing. I’ve looked at death and really I know. If I should have died it would have been very easy for me. Quite the easiest thing I ever did. But the people at home do not realize that. They suffer a thousand times more.
+ - Everything about him was old except his eyes and they were the same color as the sea and were cheerful and undefeated.
+ - There is no lonelier man in death, except the suicide, than that man who has lived many years with a good wife and then outlived her. If two people love each other there can be no happy end to it.
+ - I do not need to get used to your silence. I already know it. I quite possibly love all of it.
+ - We have very primative emotions. It’s impossible not to be competitive. Spoils everything, though.
+ - Why did they make birds so delicate and fine as those sea swallows when the ocean can be so cruel?
+ - The world was not wheeling anymore. It was just very clear and bright and inclined to blur at the edges.
+ - To make war all you need is intelligence. But to win you need talent and material.
+ - The house was built on the highest part of the narrow tongue of land between the harbor and the open sea. It had lasted through three hurricanes and it was built solid as a ship.
+ - Optimism can keep a fool from accepting failure.
+ - Madame, all stories, if continued far enough, end in death, and he is no true-story teller who would keep that from you.
+ - My life used to be full of everything. Now if you aren’t with me I haven’t a thing in the world.
+ - I hate a cramp, he thought. It is a treachery of one’s own body.
+ - Once we have a war there is only one thing to do. It must be won. For defeat brings worse things than any that can ever happen in war.
+ - How did we go bankrupt? Two ways. Slowly, and then all of a sudden.
+ - You know I don’t love any one but you. You shouldn’t mind because some one else loved me.
+ - The bicycle riders drank much wine, and were burned and browned by the sun. They did not take the race seriously except among themselves.
+ - I am drunk, seest thou? When I am not drunk I do not talk. You have never heard me talk much. But an intelligent man is sometimes forced to be drunk to spend his time with fools.
+ - Critics are men who watch a battle from a high place then come down and shoot the survivors.
+ - When you start to live outside yourself, it’s all dangerous.
+ - All things truly wicked start from innocence.
+ - Ascensions into heaven are like falling leaves sad and happy all at the same time Going away isn’t really sad especially when your going enables a new kind of presence to be born.
+ - Up the road, in his shack, the old man was sleeping again. He was still sleeping on his face and the boy was sitting by him watching him. The old man was dreaming about the lions.
+ - A severed femoral artery empties itself faster than you can believe.
+ - If the reader prefers, this book may be regarded as fiction. But there is always the chance that such a book of fiction may throw some light on what has been written as fact.
+ - Luck is a thing that comes in many forms and who can recognize her?
+ - I wanted to try this new drink: That’s all we do, isn’t it – look at things and try new drinks?
+ - So this was how you died, in whispers that you did not hear.
+ - No horse named Morbid ever won a race.
+ - It’s harder to write in the third person but the advantage is you move around better.
+ - In the early morning on the lake sitting in the stern of the boat with his father rowing, he felt quite sure that he would never die.
+ - You belong to me and all Paris belongs to me and I belong to this notebook and this pencil.
+ - There are two kinds of stories, the ones you live and the ones you make up. And nobody knows the difference, and I don’t ever tell which is which.
+ - Got tight on absinthe last night. Did knife tricks.
+ - Got tight last night on absinthe and did knife tricks. Great success shooting the knife underhand into the piano. The woodworms are so bad and eat hell out of all the furniture that you can always claim the woodworms did it.
+ - Love is something that hangs up behind the bathroom door and smells of Lysol.
+ - Some other places were not so good but maybe we were not so good when we were in them.
+ - In the morning there was a big wind blowing and the waves were running high up on the beach and he was awake a long time before he remembered that his heart was broken.
+ - I was always a lonely person when I was with everyone.
+ - God knows I didn’t mean to fall in love with her.
+ - For a long time now I have tried simply to write the best I can. Sometimes I have good luck and write better than I can.
+ - I know the night is not the same as the day: that all things are different, that the things of the night cannot be explained in the day, because they do not then exist, and the night can be a dreadful time for lonely people once their loneliness has started.
+ - You’ve such a lovely temperature.
+ - Don’t you ever get the feeling that all your life is going by and you’re not taking advantage of it? Do you realize you’ve lived nearly half the time you have to live already?
+ - There are the two curses of Spain, the bulls and the priests.
+ - The thing is to become a master and in your old age to acquire the courage to do what children did when they knew nothing.
+ - Love is infinitely more endurable than hate.
+ - People fall in love, but have to climb out.
+ - I thought that all generations were lost by something and always had been and always would be.
+ - That terrible mood of depression of whether it’s any good or not is what is known as The Artist’s Reward.
+ - As long as you can start, you are all right. The juice will come.
+ - Why do old men wake so early? Is it to have one longer day?
+ - If you stop complaining and asking for what you never will get, you will have a good life. A good life is not measured by any biblical span.
+ - Let’s not talk about how I am. It’s a subject I know too much about to want to think about anymore.
+ - In a power hungry, power worshipping society, men label themselves atheist.
+ - Never write about a place until you’re away from it, because that gives you perspective.
+ - This was the price you paid for sleeping together. This was the end of the trap. This was what people got for loving each other.
+ - The people that I liked and had not met went to the big cafes because they were lost in them and no one noticed them and they could be alone in them and be together.
+ - I did not care what it was all about. All I wanted to know was how to live in it. Maybe if you found out how to live in it you learned from that what is was all about.
+ - Don’t do what you sincerely don’t want to do. Never confuse movement with action.
+ - Once writing has become your major vice and greatest pleasure only death can stop it.
+ - He saw the girl watching him and he smiled at her. It was an old smile that he had been using for fifty years, ever since he first smiled...
+ - I would take anything I love and throw it off the highest cliff you ever saw and not wait to hear it bounce.
+ - Fascism is a lie told by bullies.
+ - God knows, people who are paid to have attitudes toward things, professional critics, make me sick; camp-following eunuchs of literature.
+ - I love thee and thou art so lovely and so wonderful and so beautiful and it does such things to me to be with thee that I feel as though I wanted to die when I am loving thee.
+ - I don’t. I don’t want anybody else to touch you. I’m silly. I get furious if they touch you.
+ - Intelligence is so damn rare and the people who have it often have such a bad time with it that they get bitter or propagandistic and then it’s not much use.
+ - I kissed her hard and held her tight and tried to open her lips; they were closed tight.
+ - I suppose if a man has something once, always something of it remains.
+ - Some people, when they hear an echo, think they originated the sound.
+ - Keep right on lying to me. That’s what I want you to do.
+ - All stories, if continued far enough, end in death.
+ - I read my own books sometimes to cheer me when it is hard to write, and then I remember that it was always difficult, and how nearly impossible it was sometimes.
+ - Some lived in it and never felt it but he knew it all was nada y pues nada y nada y pues nada.
+ - Our nada who art in nada, nada be thy name thy kingdom nada thy will be nada in nada as it is in nada. Give us this nada our daily nada and nada us our nada as we nada our nadas and nada us not into nada but deliver us from nada; pues nada. Hail nothing full of nothing, nothing is with thee.
+ - I am like a blind pig when I work.
+ - I may not be as stong as I think, but I know many tricks and I have resolution.
+ - Never think that war, no matter how necessary, nor how justified, is not a crime.
+ - Don’t you drink? I notice you speak slightingly of the bottle. I have drunk since I was fifteen and few things have given me more pleasure.
+ - All I know is that young boys sleep late and hard.
+ - But I think the Great DiMaggio would be proud of me today.
+ - The better the writers the less they will speak about what they have written themselves.
+ - No weapon has ever settled a moral problem. It can impose a solution but it cannot guarantee it to be a just one.
+ - We thought of wine as something as healthy and normal as food and also as a great giver of happiness and well being and delight.
+ - Hombre, there are bodegas open all night long.
+ - What I learned constructive about women is that no matter how old they get, always think of them the way they were on the best day they ever had.
+ - All our words from loose using have lost their edge.
+ - We have come out of the time when obedience, the acceptance of discipline, intelligent courage and resolution were most important, into that more difficult time when it is a man’s duty to understand his world rather than simply fight for it.
+ - No tears in the writer, no tears in the reader.
+ - A writer should write what he has to say and not speak it.
+ - But Paris was a very old city and we were young and nothing was simple there, not even poverty, nor sudden money, nor the moonlight, nor right and wrong nor the breathing of someone who lay beside you in the moonlight.
+ - You never understand anybody that loves you.
+ - All a man has is pride. Sometimes you have it so much it is a sin. We have all done things for pride that we knew were impossible. We didn’t care. But a man must implement his pride with intelligence and care.
+ - I am thee and thou art me and all of one is the other.
+ - Everything you have is to give. Thou art a phenomenon of philosophy and an unfortunate man.
+ - Don’t you like to write letters? I do because it’s such a swell way to keep from working and yet feel you’ve done something.
+ - Hesitation increases in relation to risk in equal proportion to age.
+ - Everything that’s innocent to us is crazy to them.
+ - The one who is doing his work and getting satisfaction from it is not the one the poverty bothers.
+ - For a war to be just three conditions are necessary – public authority, just cause, right motive.
+ - Drinking is a way of ending the day.
+ - There isnt always an explanation for everything.
+ - There can be no great literature in America until her writers have learned to trust her implicitly and love her devoutly.
+ - Things may not be immediately discernible in what a man writes, and in this sometimes he is fortunate; but eventually they are quite clear and by these and the degree of alchemy that he possesses he will endure or be forgotten.
+ - Though there is one part of writing that is solid and you do it no harm by talking about it, the other is fragile, and if you talk about it, the structure cracks and you have nothing.
+ - However you make your living is where your talent lies.
+ - Each day of not writing, of comfort, of being that which he despised, dulled his ability and softened his will to work so that, finally, he did no work at all.
+ - If a writer stops observing, he is finished.
+ - The echoes of beauty you’ve seen transpire, Resound through dying coals of a campfire.
+ - Never sit a table when you can stand at the bar.
+ - When spring came, even the false spring, there were no problems except where to be happiest.
+ - I would walk along the quais when I had finished work or when I was trying to think something out. It was easier to think if I was walking and doing something or seeing people doing something that they understood.
+ - Paris is so very beautiful that it satisfies something in you that is always hungry in America.
+ - A person with increasing knowledge and sensory education may derive infinite enjoyment from wine.
+ - This was a big storm and he might as well enjoy it. It was ruining everything, but you might as well enjoy it.
+ - In every port in the world, at least two Estonians can be found.
+ - When you have shot one bird flying you have shot all birds flying. They are all different and they fly in different ways but the sensation is the same and the last one is as good as the first.
+ - She is kind and very beautiful. But she can be so cruel and it comes so suddenly and such birds that fly, dipping and hunting, with their small sad voices are made too delicately for the sea.
+ - Summer is a discouraging time to work – you don’t feel death coming on the way it does in the fall when the boys really put pen to paper.
+ - There is no night life in Spain. They stay up late but they get up late. That is not night life. That is delaying the day.
+ - But after I got them to leave and shut the door and turned off the light it wasn’t any good. It was like saying good-by to a statue. After a while I went out and left the hospital and walked back to the hotel in the rain.
+ - You’ll lose it, if you talk about it.
+ - I wish I could write well enough to write about aircraft. Faulkner did it very well in Pylon but you cannot do something someone else has done though you might have done it if they hadn’t.
+ - No catalogue of horrors ever kept men from war. Before the war you always think that it’s not you that dies. But you will die, brother, if you go to it long enough.
+ - This looking and not seeing things was a great sin, I thought, and one that was easy to fall into. It was always the beginning of something bad and I thought that we did not deserve to live in the world if we did not see it.
+ - Have faith in the Yankees my son. Think of the great DiMaggio.
+ - I am so in love with you that there isn’t anything else.
+ - You’re my religion. You’re all I’ve got.
+ - You could omit anything if you knew that the omitted part would strengthen the short story and make people feel something more than they understood.
+ - Romance was a game, like bridge, in which you said things instead of playing cards. Like bridge you had to pretend you were playing for money or playing for some stakes.
+ - Good dialogue is not real speech-it’s the illusion of real speech.
+ - And bed, he thought. Bed is my friend. Just bed, he thought. Bed will be a great thing. It is easy when you are beaten, he thought. I never knew how easy it was. And what beat you, the thought.
+ - In order to be a great writer a person must have a built-in, shockproof crap detector.
+ - There were many words that you could not stand to hear and finally only the names of places had dignity. Abstract words such as glory, honor, courage, or hallow were obscene.
+ - Everybody has strange things that mean things to them. You couldn’t help it.
+ - Only one marriage I regret. I remember after I got that marriage license I went across from the license bureau to a bar for a drink. The bartender said, “What will you have, sir?” And I said, “A glass of hemlock.”
+ - Remember to get the weather in your damn book-weather is very important.
+ - He’ll never be frightened. He knows too damn much.
+ - We need more true mystery in our lives Hem- he said. The completely unambitious writer and the really good unpublished poem are the things we lack most. There is of course the problem of sustenance.
+ - He did not say that because he knew that if you said a good thing it might not happen.
+ - It’s all nonsense. It’s only nonsense. I’m not afraid of the rain. I am not afraid of the rain. Oh, oh, God, I wish I wasn’t.
+ - The fact that I am interrupting serious work to answer these questions proves that I am so stupid that I should be penalized severely. I will be. Don’t worry.
+ - But perhaps he had enough animal strength and detached intelligence that he could make another start.
+ - Mr. Barnes, it is because I have lived very much that now I can enjoy everything so well.
+ - The most beautiful fighting machine I have ever seen.
+ - Abstract words such as glory, honor, courage, or hallow were obscene beside the concrete names of villages, the numbers of roads, the names of rivers, the numbers of regiments and the dates.
+ - Poor Faulkner. Does he really think big emotions come from big words?
+ - The only decent bone in her body was mine.
+ - Hunger is good discipline.
+ - Rush, that most exciting perversion of life, the necessity of accomplishing something in less time than should be truly allowed for its doing.
+ - I try not to borrow, first you borrow then you beg.
+ - Worry destroys the ability to write. Ill health is bad in the ratio that it produces worry which attacks your subconscious and destroys your reserves.
+ - But you always fall for somebody else and then it’s all right. Fall for them but don’t let them ruin you.
+ - That seemed to handle it. That was it. Send a girl off with one man. Introduce her to another to go off with him. Now go and bring her back. And sign the wire with love. That was it all right. I went in to lunch.
+ - Somebody just back of you while you are fishing is as bad as someone looking over your shoulder while you write a letter to your girl.
+ - Oh, now, now, now, the only now, and above all now, and there is no other now but thou now and now is thy prophet.
+ - I kept this to remind me of you trying to brush away the Villa Rossa from your teeth in the morning, swearing and eating aspirin and cursing harlots. Every time I see that glass I think of you trying to clean your conscience with a toothbrush.
+ - You ought to dream. All our biggest businessmen have been dreamers.
+ - Nobody ever lives their life all the way up except bullfighters.
+ - A writer without a sense of justice or injustice would be better off editing the yearbook for a school for exceptional children.
+ - Never write about a place until you’re away from it, because it gives you perspective. Immediately after you’ve seen something you can give a photographic description of it and make it accurate. That’s good practice, but it isn’t creative writing.
+ - A serious writer is not to be confounded with a solemn writer. A serious writer may be a hawk or a buzzard or even a popinjay, but a solemn writer is always a bloody owl.
+ - The clouds were building up now for the trade wind and he looked ahead and saw a flight of wild ducks etching themselves against the sky over the water, then blurring, then etching again and he knew no man was ever alone on the sea.
+ - Out of all the things you could not have there were some things that you could have and one of those was to know when you were happy and to enjoy all of it while it was there and it was good.
+ - One cat just leads to another. The place is so damned big it doesn’t really seem as though there were many cats until you see them all moving like a mass migration at feeding time.
+ - Decadence is a difficult word to use since it has become little more than a term of abuse applied by critics to anything they do not yet understand or which seems to differ from their moral concepts.
+ - Fear of death increases in exact proportion to increase in wealth.
+ - There isn’t any me. I’m you. Don’t make up a separate me.
+ - Eschew the monumental. Shun the Epic. All the guys who can paint great big pictures can paint great small ones.
+ - In war, one cannot say what one feels.
+ - It wasn’t by accident that the Gettysburg address was so short. The laws of prose writing are as immutable as those of flight, of mathematics, of physics.
+ - A writer is like a gypsy. He owes no allegiance to any government. If he is a good writer he will never like any government he lives under. His hand should be against it and its hand will always be against him.
+ - A writer should be of as great probity and honesty as a priest of God. He is either honest or not, as a woman is either chaste or not, and after one piece of dishonest writing he is never the same again.
+ - Anyone can be a fisherman in May.
+ - Do you know how an ugly woman feels? Do you know what it is to be ugly all your life and inside to feel that you are beautiful? It is very rare.
+ - Wearing down seven number two pencils is a good day’s work.
+ - Wars are caused by undefended wealth.
+ - I had seen nothing sacred, and the things that were glorious had no glory and the sacrifices were like the stockyards at Chicago if nothing was done with the meat except to bury it.
+ - Switzerland is a small, steep country, much more up and down than sideways, and is all stuck over with large brown hotels built on the cuckoo clock style of architecture.
+ - Experiencing differences is crucial to the human condition. Especially when that difference is over the head, blower powder.
+ - Wars are Spinach. Life in general is the tough part. In war all you have to do is not worry and know how to read a map and co-ordinates.
+ - America is the land of wide lawns and narrow minds.
+ - Part of you died each year when the leaves fell from the trees and their branches were bare against the wind and the cold, wintry light.
+ - The game of golf would lose a great deal if croquet mallets and billiard cues were allowed on the putting green.
+ - I used to play cello. My mother kept me out of school a whole year to study music and counterpoint. She thought I had ability, but I was absolutely without talent.
+ - It is impossible to believe the emotional and spiritual intensity and pure, classic beauty that can be produced by a man, an animal, and a piece of scarlet serge draped over a stick.
+ - You can wipe out your opponents. But if you do it unjustly you become eligible for being wiped out yourself.
+ - Bullfighting is the only art in which the artist is in danger of death and in which the degree of brilliance in the performance is left to the fighter’s honor.
+ - Oh, darling, I’ve been so miserable.
+ - Creation’s probably overrated. After all, God made the world in only six days and rested on the seventh.
+ - Something, or something awful or something wonderful was certain to happen on every day in this part of Africa.
+ - And who understands? Not me, because if I did I would forgive it all.
+ - Writing is the clumsy attempt to find symbols for wordlessness.
+ - But in the night he woke and held her tight as though she were all of life and it was being taken from him. He held her feeling she was all of life there was and it was true.
+ - Your blood coagulates beautifully.
+ - His talent was as natural as the pattern that was made by the dust on a butterfly’s wings. At one time he understood it no more than the butterfly did and he did not know when it was brushed or marred.
+ - Enjoying living was learning to get your money’s worth and knowing when you had it.
+ - It is one thing to be in the proximity of death, to know more or less what she is, and it is quite another thing to seek her.
+ - Failure and well-disguised cowardice are more human and more beloved.
+ - I have a rotten habit of picturing the bedroom scenes of my friends.
+ - The English talked with inflected phrases. One phrase to mean everything.
+ - My training was never to drink after dinner nor before I wrote nor while I was writing.
+ - War is not won by victory.
+ - Write the best story that you can and write it as straight as you can.
+ - I felt very lonely when they were all there.
+ - Life is the best left hooker I ever saw, although some say it was Charlie White of Chicago.
+ - Shooting gives me a good feeling. It is faster than baseball and you are out on one strike.
+ - As in no other form of lute or combat, the conditions are such; the winner takes nothing, neither his ease, nor his pleasure, nor any notion of glory, nor if he wins far enough, will he find anything within himself.
+ - The cat has complete emotional honesty – an attribute not often found in humans.
+ - How little we know of what there is to know.
+ - A big lie is more plausible than truth.
+ - If you’re looking for messages, try Western Union.
+ - In the fall the war was always there but we did not go to it any more.
+ - All good books are alike in that they are truer than if they really happened and after you are finished reading one you feel that it all happened to you and after which it all belongs to you.
+ - The old man looked at him with his sun-burned, confident loving eyes.
+ - Find what gave you emotion; what the action was that gave you excitement. Then write it down making it clear so that the reader can see it too. Prose is architecture, not interior decoration, and the Baroque is over.
+ - For a poet he threw a very accurate milk bottle.
+ - And if there is not any such thing as a long time, nor the rest of your lives, nor from now on, but there is only now, why then now is the thing to praise and I am very happy with it.
+ - No writer who knows the great writers who did not receive the Prize can accept it other than with humility. There is no need to list these writers. Everyone here may make his own list according to his knowledge and his conscience.
+ - He had loved too much, demanded too much, and he wore it all out.
+ - Do not think about sin, he thought. There are enough problems now without sin. Also I have no understanding of it.
+ - There is a mystery in all great writing and that mystery does not dissect out. It continues and is always valid.
+ - He had always known what I did not know and what, when I learned it, I was always able to forget. But I did not know that then, although I learned it later.
+ - That is what we are supposed to do when we are at our best – make it all up – but make it up so truly that later it will happen that way.
+ - We wait always for something that does not come.
+ - Real seriousness in regard to writing is one of two absolute necessities. The other, unfortunately, is talent.
+ - I have noticed that doctors who fail in the practice of medicine have a tendency to seek one another’s company and aid in consultation.
+ - No one ever stopped when they were winning.
+ - Practice any faith you wish. Got a ball field up the island where you can practice. I’ll give the Deity a fast one high and inside if he crowds the plate.
+ - There are many good fishermen and some great ones. But there is only one you.
+ - He was violating the second rule of the two rules for getting on well with people that speak Spanish; give the men tobacco and leave the women alone.
+ - You never kill anyone you want to kill in a war, he said to himself.
+ - I am glad we do not have to try to kill the stars.
+ - Some people show evil as a great racehorse shows breeding. They have the dignity of a hard chancre.
+ - It was strange how easy being tired enough made it.
+ - I’m not going to get into the ring with Tolstoy.
+ - Why must all of the operations in life be performed without an anesthetic?
+ - A beautiful vacuum filled with wealthy monogamists, all powerful and members of the best families all drinking themselves to death.
+ - As to Hemingway, I read him for the first time in the early ’forties, something about bells, balls and bulls, and loathed it.
+ - You should only read what is truly good or what is frankly bad.
+ - Hail nothing full of nothing, nothing is with thee.
+ - All bad writers are in love with the epic.
+ - We all take a beating every day, you know, one way or another.
+ - I never had to choose a subject – my subject rather chose me.
+ - I did not understand them but they did not have any mystery, and when I understood them they meant nothing to me. I was sorry about this but there was nothing I could do about it.
+ - If he wrote it, he could get rid of it. He had gotten rid of many things by writing them.
+ - Before you quit, you have to try.
+ - In those days, there was no money to buy books.
+ - There was no really good true war book during the entire four years of the war. The only true writing that came through during the war was in poetry. One reason for this is that poets are not arrested as quickly as prose writers.
+ - Having books published is very destructive to writing. It is even worse than making love too much. Because when you make love too much at least you get a damned clarte that is like no other light. A very clear and hollow light.
+ - Nobody that ever left their own country ever wrote anything worth printing. Not even in the newspapers.
+ - The brave dies perhaps two thousand deaths if he’s intelligent. He simply doesn’t mention them.
+ - I would not have thought of eating a meal without drinking a beer.
+ - Everybody is friends when things are bad enough.
+ - They arrested us after breakfast.
+ - I decided that I would write one story about each thing that I knew about.
+ - Defense is the stronger form with the negative object, and attack the weaker form with the positive object.
+ - When you give power to an executive you do not know who will be filling that position when the time of crisis comes.
+ - It is a hell of a thing to be hungry in your own house.
+ - In stating as fully as I could how things really were, it was often very difficult and I wrote awkwardly and the awkwardness is what they called my style. All mistakes and awkwardness are easy to see, and they called it style.
+ - Why should anybody be interested in some old man who was a failure?
+ - To have come on all this new world of writing, with time to read in a city like Paris where there was a way of living well and working, no matter how poor you were, was like having a great treasure given to you.
+ - Writing is something that you can never do as well as it can be done. It is a perpetual challenge and it is more difficult than anything else that I have ever done.
+ - It’s a town you come to for a short time.
+
+500 quotes

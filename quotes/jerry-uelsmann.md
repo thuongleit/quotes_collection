@@ -1,0 +1,27 @@
+ - Photography is just light remembering itself.
+ - The camera basically is a license to explore.
+ - The anticipation of discovering new possibilities becomes my greatest joy.
+ - It is the illusion of knowledge, not ignorance, that keeps one from growing.
+ - I have gradually confused photography and life and as a result of this I believe I am able to work out of myself at an almost precognitive level.
+ - The camera is a fluid way of encountering that other reality.
+ - My creative process begins when I get out with the camera and interact with the world. A camera is truly a license to explore. There are no uninteresting things. There are just uninterested people.
+ - The simple act of having a camera, not a cell phone, but a camera-camera, there’s a kind of a heightened perceptional awareness that occurs. Like, I could walk from here to the highway in two minutes, but if I had a camera, that walk could take me two hours.
+ - I have gradually confused photography with life.
+ - The goal of the artist is not to resolve life’s mysteries, but to deepen them.
+ - When the entire process becomes a prescribed ritual that does not allow for spontaneous variations and reactions, the vitality of the medium and our relation to it suffers.
+ - The creative process can sustain itself throughout the entire celebration of photography.
+ - Let us not be afraid to allow for post-visualization. By post-visualization I refer to the willingness on the part of the photographer to revisualize the final image at any point in the entire photographic process.
+ - I try to begin working with no preconceived ideas.
+ - I think of my photographs as being obviously symbolic, but not symbolically obvious.
+ - Of course, in order to make art, the frustration of not working has to be greater than the frustration of working.
+ - It’s equally hard and labor intensive to create an image on the computer as it is in a darkroom. Believe me.
+ - In the arts there are many right answers.
+ - All knowledge is self-reflective.
+ - My visual quest is driven by a desire to create a universe capable of supporting feelings and ideas.
+ - I’m really very concerned with helping to create an attitude of freedom and daring toward the craft of photography.
+ - I think of many of my photographs as being obviously symbolic but not symbolically obvious. There isn’t any specific correlation between the symbols in this image and any content that I have in mind.
+ - Editions made sense when people worked with engravings where the plate wore down as prints were made. An early number of the edition had slightly better quality. But that’s not the case with photography. To me, it’s a false way of creating value.
+ - The truth is that one is more frequently blessed with ideas while working.
+ - I’ve learned over the years that when you get a clue to another possibility to follow it through...
+
+25 quotes

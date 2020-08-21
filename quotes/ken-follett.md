@@ -1,0 +1,66 @@
+ - Hard work should be rewarded by good food.
+ - Fear could paralyse. Action was the antidote.
+ - She loved him because he had brought her back to life. She had been like a caterpillar in a cocoon, and he had drawn her out and shown her that she was a butterfly.
+ - Culture clash is terrific drama.
+ - It’s great that in the German language I’ve sold almost 30 million books. Isn’t that amazing?
+ - But desperate people find courage.
+ - The most expensive part of building is the mistakes.
+ - Having faith in God did not mean sitting back and doing nothing. It meant believing you would find success if you did your best honestly and energetically.
+ - Proportion is the heart of beauty.
+ - I enjoy learning technical details.
+ - World War II is the greatest drama in human history, the biggest war ever and a true battle of good and evil. I imagine writers will continue to get stories from it, and readers will continue to love them, for many more years.
+ - The thriller is the most popular literary genre of the 20th century.
+ - Trusting someone was like holding a little water in your cupped hands – it was so easy to spill the water, and you could never get it back.
+ - I aim to be translucent, so you don’t notice the words, just their meaning. I haven’t much insight into people’s motivations.
+ - President Wilson says a leader must treat public opinion the way a sailor deals with the wind, using it to blow the ship in one direction or another, but never trying to go directly against it.
+ - I could fall for you in a heartbeat.
+ - The duck swallows the worm, the fox kills the duck, the men shoot the fox, and the devil hunts the men.
+ - Hunger is the best seasoning.
+ - In my books, women often solve the problem. Even if the woman is not the hero, she’s a strong character. She does change the plot. She’ll often rescue the male character from some situation.
+ - Man who betrayed you once would betray you twice.
+ - To someone standing in the nave, looking down the length of the church toward the east, the round window would seem like a huge sun exploding into innumerable shards of gorgeous color.
+ - The CIA’s research program is described in a book called The Search for the Manchurian Candidate.
+ - The research is the easiest. The outline is the most fun. The first draft is the hardest, because every word of the outline has to be fleshed out. The rewrite is very satisfying.
+ - My favorite period is World War II, and I’m in the middle of writing my fourth novel set in that era.
+ - James Bond is quite serious about his drinks and clothing and cigarettes and food and all that sort of thing. There is nothing wry or amused about James Bond.
+ - Why did people manufacture trouble when there was already so much of it in the world?
+ - What news? There’s nothing to tell. I’m a nun.
+ - I might not be a good socialist, any more than I’m a good Christian, but I am one.
+ - I like reading history, and actually most authors enjoy the research part because it is, after all, easier than writing.
+ - There was a very serious communist strain among American intellectuals before the war. America was a more tolerant place in those days, and Communists were not treated as pariahs. That ended with the McCarthy era.
+ - There is a real connection between Philosopy and fiction.
+ - The boundary between philosophy and fiction is not as clear cut as you may think and the two definitely interact...
+ - Why was it, Lloyd wondered, that the people who wanted to destroy everything good about their country were the quickest to wave the national flag?
+ - Most of my stories have some basis in fact.
+ - I use a professional researcher in New York who does all the legwork, all that stuff which would take me days and weeks of calling, waiting for people to call back.
+ - I like to create imaginary characters and events around a real historical situation. I want readers to feel: OK, this probably didn’t happen, but it might have.
+ - But the lesson of Abraham’s story is that God demands the best we have to offer, that which is most precious to us.
+ - There is no point in asking a man a question until you have established whether he has any reason to lie to you.
+ - We all now tell stories by cutting from one dramatic scene to the next, whereas Victorian novelists felt free to write long passages of undramatic summary.
+ - Jack Reacher is a brilliant movie.
+ - It was an odd thing to do, to stand in a street in the hope of seeing someone who hardly knew him, but he did not want to move.
+ - For success, the author must make the reader care about the destiny of the principals, and sustain this anxiety, or suspense, for about 100,000 words.
+ - Nevertheless, the book gave Jack a feeling he had never had before, that the past was like a story, in which one thing led to another, and the world was not a boundless mystery, but a finite thing that could be comprehended.
+ - He had been granted his life’s wish-but conditionally.
+ - I read mostly fiction, a lot of 19th-century novels.
+ - After a certain point, most people, including editors, will tell you everything you do is great.
+ - Without books I would not have become a vivacious reader, and if you are not a reader you are not a writer.
+ - It was the most romantic plane ever made.
+ - A baby was like a revolution, Grigori thought: you could start one, but you could not control how it would turn out.
+ - Knotty theological questions are the least worrying of problems to me. Why? Because they will be resolved in the hereafter, and meanwhile they can be safely shelved.
+ - In both cases, weakness and scruples had defeated strength and ruthlessness.
+ - Everybody takes what they life from the teachings of the church, and ignores the parts that don’t suit them.
+ - Thrillers have been traditionally very masculine books; the women characters often rather decorative.
+ - I want to tell a story that makes the reader always want to see what will happen next.
+ - When you’re thinking, please remember this: excessive pride is a familiar sin, but a man may just as easily frustrate the will of God through excessive humility.
+ - His aim was the glory of God, but the glory of Philip pleased him too.
+ - I imagined it. I wrote it. But I guess I never thought I’d see it.
+ - I wanted to be some kind of captain of industry. Then I wanted to be in advertising, and then I wanted to be a newspaper reporter.
+ - I started writing stories in my spare time.
+ - One of the hardest things for me, now that I’m famous, is finding people who can read my stuff and give me an honest critique.
+ - An awful lot of thriller writers write women rather badly. So just doing it OK gets a lot of credit.
+ - I don’t think there’s any great mystery to writing female characters, so long as you talk to them. If you lived in a monastery and never met any women, maybe it would be difficult.
+ - Movies have influenced all writers, not just thriller writers.
+ - A very good editor is almost a collaborator.
+
+64 quotes

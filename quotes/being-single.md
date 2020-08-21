@@ -1,0 +1,42 @@
+ - Single life is so overrated. It sucks. ~~Rihanna
+ - I love being single. I can come and go as I please and stay out as late as I want to. ~~Eric Dickerson
+ - As a body everyone is single, as a soul never. ~~Hermann Hesse
+ - Don’t keep a man guessing too long – he’s sure to find the answer somewhere else. ~~Mae West
+ - Best be yourself, imperial, plain, and true. ~~Robert Browning
+ - You could be married and bored or single and lonely. Ain’t no happiness nowhere. ~~Chris Rock
+ - I never found a companion that was so companionable as solitude. ~~Henry David Thoreau
+ - One thing life has taught me: if you are interested, you never have to look for new interests. They come to you. When you are genuinely interested in one thing, it will always lead to something else. ~~Eleanor Roosevelt
+ - Being single is about celebrating and appreciating your own space that you’re in. ~~Kelly Rowland
+ - If you have to ask someone to change, to tell you they love you, to bring wine to dinner, to call you when they land, you can’t afford to be with them. ~~Sloane Crosley
+ - An unfulfilled vocation drains the color from a man’s entire existence. ~~Honoré de Balzac
+ - It is quite lovely being single, and I much prefer it. ~~Anna Held
+ - I regard romantic comedies as a subgenre of sci-fi, in which the world operates according to different rules than my regular human world. ~~Mindy Kaling
+ - Marriage is the only adventure open to the cowardly. ~~Voltaire
+ - If God had wanted me otherwise, He would have created me otherwise. ~~Johann Wolfgang von Goethe
+ - The part that’s difficult is being single, at 41, after 10 years of marriage and two kids. That’s like having a bunch of money in a currency of a country that doesn’t exist anymore. ~~Louis C.K.
+ - Being single can pave the way for new opportunities. ~~Selena Gómez
+ - Ever since college, I make friends. They get married. I lose friends. ~~Chuck Palahniuk
+ - If we be doomed to marry, we marry; if we be doomed to remain single we do. ~~Thomas Hardy
+ - There lurks, perhaps, in every human heart a desire of distinction, which inclines every man first to hope, and then to believe, that Nature has given him something peculiar to himself. ~~Samuel Johnson
+ - I like going out and I like being single, but a growing part of me would rather just stay home, cook food with someone I really like, and do nothing. ~~Aziz Ansari
+ - Let us forget with generosity those who cannot love us. ~~Pablo Neruda
+ - Don’t ask for guarantees. And don’t look to be saved in any one thing, person, machine, or library. Do your own bit of saving, and if you drown, at least die knowing you were heading for shore. ~~Ray Bradbury
+ - What is it like being single? I like it! I like starting each day with a sense of possibility. And I’m optimistic, because everyday I get a little more desperate. And desperate situations yield the quickest results. ~~Michael Scott
+ - Know that everything is in perfect order whether you understand it or not. ~~Guy Finley
+ - When you’re under audit, you don’t give your papers. An audit is – I have been under audit for so many years. Every year, I get audited. For, I think, over 10 years, maybe even 12 years, I have been audited. And I think it’s very fair. And I think I’m being singled out. ~~Donald Trump
+ - Whoever starts out toward the unknown must consent to venture alone. ~~André Gide
+ - Single women have a dreadful propensity for being poor. Which is one very strong argument in favor of matrimony. ~~Jane Austen
+ - The flower which is single need not envy the thorns that are numerous. ~~Rabindranath Tagore
+ - If I follow the inclination of my nature, it is this: beggar-woman and single, far rather than queen and married. ~~Elizabeth I
+ - Things usually make sense in time, and even bad decisions have their own kind of correctness. ~~Miranda July
+ - People should get married because they have finally seen the folly of being single: “Oh, this is all just kind of a bad magic trick. I just keep bending over to reach for this wallet on a string. How much longer am I gonna do that?” ~~Jerry Seinfeld
+ - I’m really enjoying being single. I’m not even looking to meet anybody, which is so freeing. ~~Candace Bushnell
+ - I think it will be better when I get involved with someone again, because I made this time for me. I haven’t really been single for a while, and I think it’s been good for me, to lose the fear to be like this. ~~Penelope Cruz
+ - My mom always said I liked to stir the pot with a glittering spoon. ~~Kris Carr
+ - Only if the computers really love each other. ~~Groucho Marx
+ - He who travels in search of something which he has not got, travels away from himself and grows old even in youth among old things. ~~Ralph Waldo Emerson
+ - All the mistakes I make arise from forsaking my own station and trying to see the object from another person’s point of view. ~~Ralph Waldo Emerson
+ - The sandwich he made was bologna and cheese, his favorite. All the sandwiches he made were his favorites; that was one of the advantages of being single. ~~Stephen King
+ - Women are realizing it more and more knowing that they don’t have to settle with a man just to have that child. Times have changed and that is also what is amazing is that we do have so many options these days. ~~Jennifer Aniston
+
+40 quotes

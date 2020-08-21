@@ -1,0 +1,502 @@
+ - Those who dare to fail miserably can achieve greatly.
+ - We choose to go to the moon in this decade and do the other things. Not because they are easy, but because they are hard.
+ - If not us, who? If not now, when?
+ - Do not pray for easy lives. Pray to be stronger men.
+ - Forgive your enemies, but never forget their names.
+ - Children are the world’s most valuable resource and its best hope for the future.
+ - One person can make a difference, and everyone should try.
+ - Efforts and courage are not enough without purpose and direction.
+ - To those whom much is given, much is expected.
+ - My fellow Americans, ask not what your country can do for you, ask what you can do for your country.
+ - Those who make peaceful revolution impossible will make violent revolution inevitable.
+ - Change is the law of life.
+ - Things do not happen. Things are made to happen.
+ - The rising tide lifts all the boats.
+ - Change is the law of life. And those who look only to the past or present are certain to miss the future.
+ - We must find time to stop and thank the people who make a difference in our lives.
+ - The time to repair the roof is when the sun is shining.
+ - Man will be what he was born to be: free and independent.
+ - There are risks and costs to action. But they are far less than the long range risks of comfortable inaction.
+ - Conformity is the jailer of freedom and the enemy of growth.
+ - Leadership and learning are indispensable to each other.
+ - Civility is not a sign of weakness.
+ - As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.
+ - Physical fitness is not only one of the most important keys to a healthy body, it is the basis of dynamic and creative intellectual activity.
+ - Let us not seek the Republican answer or the Democratic answer, but the right answer. Let us not seek to fix the blame for the past. Let us accept our own responsibility for the future.
+ - Nothing compares to the simple pleasure of a bike ride.
+ - A boy spends his time finding a girl to sleep with. A real man spends his time looking for the one worth waking up to.
+ - Tolerance implies no lack of commitment to one’s own beliefs. Rather it condemns the oppression or persecution of others.
+ - If a free society cannot help the many who are poor, it cannot save the few who are rich.
+ - Let us never negotiate out of fear. But let us never fear to negotiate.
+ - There is nothing more certain and unchanging than uncertainty and change.
+ - Once you say you’re going to settle for second, that’s what happens to you in life.
+ - All of us do not have equal talent, but all of us should have an equal opportunity to develop our talent.
+ - And with privilege goes responsibility.
+ - Victory has a thousand fathers, but defeat is an orphan.
+ - Most cities are nouns. New York’s a verb.
+ - Man is still the most extraordinary computer of all.
+ - I will splinter the CIA into a thousand pieces and scatter it into the winds.
+ - When written in Chinese, the word ‘crisis’ is composed of two characters. One represents danger and the other represents opportunity.
+ - We celebrate the past to awaken the future.
+ - The goal of education is the advancement of knowledge and the dissemination of truth.
+ - Life isn’t fair. In never was and never will be.
+ - We are tied to the ocean. And when we go back to the sea, whether it is to sail or to watch – we are going back from whence we came.
+ - If we cannot now end our differences, at least we can help make the world safe for diversity.
+ - No matter how big the lie; repeat it often enough and the masses will regard it as the truth.
+ - Without debate, without criticism no administration and no country can succeed and no republic can survive.
+ - Never let your fears hold you back from pursuing your hopes.
+ - The human mind is our fundamental resource.
+ - Physical Fitness is the basis for all other forms of excellence.
+ - A man may die, nations may rise and fall, but an idea lives on.
+ - I’m an idealist without illusions.
+ - Our task is not to fix blame for the past, but to fix the course for the future.
+ - The problems with this world cannot possibly be solved by sceptics or cynics whose horizons are limited by the obvious realities. We need people who can dream of things that never were.
+ - Real men stay faithful. They don’t have time to look for other women because they’re too busy looking for new ways to love their own.
+ - We must use time as a tool, not as a couch.
+ - According to the ancient Chinese proverb, A journey of a thousand miles must begin with a single step.
+ - Every area of trouble gives out a ray of hope; and the one unchangeable certainty is that nothing is certain or unchangeable.
+ - Anyone who can solve the problems of water will be worthy of two Nobel prizes – one for peace and one for science.
+ - Our most basic common link is that we all inhabit this planet. We all breathe the same air. We all cherish our children’s future. And we are all mortal.
+ - If we are strong, our strength will speak for itself. If we are weak, words will be of no help.
+ - Intelligence and skill can only function at the peak of their capacity when the body is healthy and strong.
+ - Our problems are man-made, therefore they may be solved by man. And man can be as big as he wants. No problem of human destiny is beyond human beings.
+ - Food is strength, and food is peace, and food is freedom, and food is a helping hand to people around the world whose good will and friendship we want.
+ - We must seek, above all, a world of peace; a world in which peoples dwell together in mutual respect and work together in mutual regard.
+ - Sincerity is always subject to proof.
+ - Everywhere immigrants have enriched and strengthened the fabric of American life.
+ - So let us begin anew – remembering on both sides that civility is not a sign of weakness, and sincerity is always subject to proof.
+ - Peace is a daily, a weekly, a monthly process, gradually changing opinions, slowly eroding old barriers, quietly building new structures.
+ - We must abolish nuclear weapons, or they will abolish us.
+ - We can have faith in the future only if we have faith in ourselves.
+ - Liberty without Learning is always in peril and Learning without Liberty is always in vain.
+ - The earth, the sea and air are the concern of every nation. And science, technology, and education can be the ally of every nation.
+ - Let every nation know, whether it wishes us well or ill, that we shall pay any price, bear any burden, meet any hardship, support any friend, oppose any foe to assure the survival and the success of liberty.
+ - The best road to progress is freedom’s road.
+ - The farmer is the only man in our economy who buys everything at retail, sells everything at wholesale, and pays the freight both ways.
+ - World peace, like community peace, does not require that each man love his neighbor – it requires only that they live together with mutual tolerance, submitting their disputes to a just and peaceful settlement.
+ - The future promise of any nation can be directly measured by the present prospects of its youth.
+ - Time and the world do not stand still. Change is the law of life.
+ - Partnership is not a posture but a process-a continuous process that grows stronger each year as we devote ourselves to common tasks.
+ - Never before has man had such a great capacity to control his own environment, to end hunger, poverty and disease, to banish illiteracy and human misery. We have the power to make the best generation of mankind in the history of the world.
+ - The cost of freedom is always high, but Americans have always paid it. And one path we shall never choose, and that is the path of surrender, or submission.
+ - I know there is a God – I see the storm coming and I see his hand in it – if he has a place then I am ready – we see the hand.
+ - The ancient Greek definition of happiness was the full use of your powers along lines of excellence.
+ - Here on earth, God’s work must surely be our own.
+ - The ignorance of one voter in a democracy impairs the security of all.
+ - Only an educated and informed people will be a free people.
+ - When power leads man toward arrogance, poetry reminds him of his limitations. When power narrows the area of man’s concern, poetry reminds him of the richness and diversity of existence. When power corrupts, poetry cleanses.
+ - Failure has no friends.
+ - The only reason to give a speech is to change the world.
+ - Just because we cannot see clearly te end of the road, that is no reason for not setting out on the essential journey.
+ - A nation reveals itself not only by the men it produces but also by the men it honors, the men it remembers.
+ - The Chinese use two brush strokes to write the word ‘crisis.’ One brush stroke stands for danger; the other for opportunity. In a crisis, be aware of the danger – but recognize the opportunity.
+ - Automation does not need to be our enemy. I think machines can make life easier for men, if men do not let the machines dominate them.
+ - The Greeks understood that mind and body must develop in harmounious proportions to produce a creative intelligence.
+ - Mankind must put an end to war before war puts an end to mankind.
+ - The only unchangable certainty in life is that nothing is unchangable or certain.
+ - I think the success of any school can be measured by the contribution the alumni make to our national life.
+ - We are not here to curse the darkness, but to light the candle that can guide us through that darkness to a safe and sane future.
+ - Geography has made us neighbors. History has made us friends. Economics has made us partners, and necessity has made us allies. Those whom God has so joined together, let no man put asunder.
+ - There will always be dissident voices heard in the land, expressing opposition without alternatives, finding fault but never favor, perceiving gloom on every side and seeking influence without responsibility.
+ - The greater our knowledge increases the more our ignorance unfolds.
+ - It is time for a new generation of leadership, to cope with new problems and new opportunities. For there is a new world to be won.
+ - Everything changes but change itself.
+ - Communism has never come to power in a country that was not disrupted by war or corruption, or both.
+ - Those who foolishly sought power by riding the back of the tiger ended up inside.
+ - Politics is a jungle-torn between doing the right thing and staying in office.
+ - The United States has to move very fast to even stand still.
+ - There’s a plot in this country to enslave every man, woman, and child. Before I leave this high and noble office, I intend to expose this plot.
+ - If more politicians knew poetry, and more poets knew politics, I am convinced the world would be a little better place in which to live.
+ - But why, some say, the moon? Why choose this as our goal? And they may well ask; why climb the highest mountain? Why, 35 years ago, fly the Atlantic? Why does Rice play Texas?
+ - The rights of every man are diminished when the rights of one man are threatened.
+ - All free men, wherever they may live, are citizens of Berlin. And therefore, as a free man, I take pride in the words ‘Ich bin ein Berliner!’
+ - Our problems are man-made, therefore they may be solved by man.
+ - We are under exercised as a nation. We look instead of play. We ride instead of walk. Our existence deprives us of the minimum of physical activity essential for healthy living.
+ - When asked what I am most proud of, I stick out my chest, hold my head high and state proudly, ‘I served in the United States Navy!’
+ - As they say on my own Cape Cod, a rising tide lifts all the boats. And a partnership, by definition, serves both partners, without domination or unfair advantage. Together we have been partners in adversitylet us also be partners in prosperity.
+ - Hold fast to the best of the past and move fast to the best of the future.
+ - In a time of domestic crisis, men of goodwill and generosity should be able to unite regardless of party or politics.
+ - We dare not forget that we are the heirs of that first revolution.
+ - It is time for a new generation of leadership.
+ - Not every child has an equal talent or an equal ability or equal motivation, but they should have the equal right to develop their talent and their ability and their motivation, to make something of themselves.
+ - The very word ‘secrecy’ is repugnant in a free and open society; and we are as a people inherently and historically opposed to secret societies, to secret oaths, and to secret proceedings.
+ - Be strong and of good courage; be not afraid, neither be thou dismayed.
+ - We want to be first; not first if, not first but; but first!
+ - Success has many fathers.
+ - We believe that if men have the talent to invent new machines that put men out of work, they have the talent to put those men back to work.
+ - The American, by nature, is optimistic. He is experimental, an inventor and a builder who builds best when called upon to build greatly.
+ - First I believe that this Nation should commit itself to achieving the goal, before this decade is out, of landing a man on the Moon.
+ - Justice delayed is democracy denied.
+ - Economic growth without social progress lets the great majority of the people remain in poverty, while a privileged few reap the benefits of rising abundance.
+ - In a time of turbulence and change, it is more true than ever that knowledge is power.
+ - There are three things in life which are real: God, human folly and laughter. Since the first two are beyond our comprehension, we must do what we can with the third.
+ - Democracy may not be perfect, but at least I don’t have to build a wall to keep my people in.
+ - It is our task in our time and in our generation, to hand down undiminished to those who come after us, as was handed down to us by those who went before, the natural wealth and beauty which is ours.
+ - The unity of freedom has never relied on uniformity of opinion.
+ - Harvard gave me an education, but Junior Chamber gave me an education for life.
+ - With a good conscience our only sure reward, with history the final judge of our deeds, let us go forth to lead the land we love, asking his blessing and his help, but knowing that here on earth God’s work must truly be our own.
+ - Certain other societies may respect the rule of force – we respect the rule of law.
+ - We have the power to make this the best generation of mankind in the history of the world or to make it the last.
+ - Never have the nations of the world had so much to lose, or so much to gain. Together we shall save our planet, or together we shall perish in its flames.
+ - The Jewish people, ever since David slew Goliath, have never considered youth as a barrier to leadership.
+ - Domestic policy can only defeat us; foreign policy can kill us.
+ - The only significance of analyzing the past is that it does give us some key to the future.
+ - Let us resolve to be masters, not the victims, of our history, controlling our own destiny without giving way to blind suspicions and emotions.
+ - The great enemy of the truth is very often not the lie, deliberate, contrived and dishonest, but the myth, persistent, persuasive and unrealistic.
+ - History is a relentless master. It has no present, only the past rushing into the future. To try to hold fast is to be swept aside.
+ - The US Airforce assures me that UFO’s pose no threat to National Security.
+ - Let us think of education as the means of developing our greatest abilities, because in each of us there is a private hope and dream which, fulfilled, can be translated into benefit for everyone and greater strength of the nation.
+ - If art is to nourish the roots of our culture, society must set the artist free to follow his vision wherever it takes him.
+ - Freedom is indivisible, and when one man is enslaved, all are not free.
+ - For to save mankind’s future freedom, we must face up to any risk that is necessary. We will always seek peace – but we will never surrender.
+ - History will never accept difficulties as an excuse.
+ - A country is as strong, really, as its citizens. And I think that mental and physical health – mental and physical vigor – go hand in hand.
+ - The American Labor Movement has consistently demonstrated its devotion to the public interest. It is, and has been, good for all America.
+ - Great crisis produce great men and great deeds of courage.
+ - Let both sides explore what problems unite us instead of belaboring those problems which divide us.
+ - Democracy is never a final achievement. It is a call to an untiring effort.
+ - Forbidden fruit tastes sweet, but its aftertaste is bitter.
+ - We, the people, are the boss, and we will get the kind of political leadership, be it good or bad, that we demand and deserve.
+ - Divided, there is little we can do. Together, there is little we cannot do.
+ - Compromise does not mean cowardice.
+ - The freedom of the city is not negotiable. We cannot negotiate with those who say, ‘What’s mine is mine and what’s yours is negotiable.’
+ - The supreme reality of our time is the vulnerability of our planet.
+ - The problem of power is how to achieve its responsible use rather than its irresponsible and indulgent use; of how to get men of power to live for the public rather than off the public.
+ - Foreign aid is a method by which the United States maintains a position of influence and control around the world.
+ - When we got into office, the thing that surprised me most was to find that things were just as bad as we’d been saying they were.
+ - For plague and pestilence, plunder and pollution, the hazards of nature and the hunger of children are the foes of every nation. The earth, the sea and the air are the concern of every nation.
+ - Our progress as a nation can be no swifter than our progress in education. The human mind is our fundamental resource.
+ - This country cannot afford to be materially rich and spiritually poor.
+ - The basis of effective government is public confidence, and that confidence is endangered when ethical standards falter or appear to falter.
+ - Knowledge of the oceans is more than a matter of curiosity. Our very survival may hinge upon it.
+ - We need men who can dream of things that never were.
+ - A nation that is afraid to let its people judge the truth and falsehood in an open market is a nation that is afraid of its people.
+ - Moral courage is more a rare commodity than bravery in a battle or great intelligence.
+ - Let us welcome controversial books and controversial authors.
+ - I would rather be accused of breaking precedents than breaking promises.
+ - It might be said now that I have the best of both worlds. A Harvard education and a Yale degree.
+ - In the long history of the world, only a few generations have been granted the role of defending freedom in its hour of maximum danger. I do not shrink from this responsibility – I welcome it.
+ - We must never forget that art is not a form of propaganda; it is a form of truth.
+ - The most powerful single force in the world today is neither Communism nor Capitalism, neither the H-bomb nor the guided missile – it is man’s eternal desire to be free and independent.
+ - Life in freedom is not easy, and democracy is not perfect.
+ - We live in a hemisphere whose own revolution has given birth to the most powerful force of the modern age; the search for freedom and self fulfillment of man.
+ - Our goal is not victory of might but the vindication of right – not peace at the expense of freedom, but both peace and freedom, here in this hemisphere and, we hope, around the world. God willing, that goal will be achieved.
+ - Diplomacy and defense are not substitutes for one another. Either alone would fail.
+ - In that case, there is no time to lose. Plant it this afternoon!
+ - Sailing has given me some of the most pleasant and exciting moments of my life. It also has taught me something of the courage, resourcefulness, and strength of men who sail the seas in ships.
+ - Let both sides seek to invoke the wonders of science instead of its terrors. Together let us explore the stars, conquer the deserts, eradicate disease, tap the ocean depths, and encourage the arts and commerce.
+ - Libraries should be open to all – except the censor.
+ - When power corrupts, poetry cleanses.
+ - We go into space because whatever mankind must undertake, free men must fully share.
+ - Show me a man with a great golf game, and I’ll show you a man who has been neglecting something.
+ - The very word Secrecy is repugnant in a free and open society.
+ - There is too little public recognition of how much we all depend upon farmers as stewards of our soil, water and wildlife resources.
+ - Race has no place in American life or law.
+ - Peace is a process, a way of solving problems.
+ - The state is the servant of the citizen, and not his master.
+ - We in this country, in this generation, are, by destiny rather than choice, the watchmen on the walls of world freedom.
+ - The great revolution in the history of man, past, present and future, is the revolution of those determined to be free.
+ - Those who do nothing are inviting shame as well as violence. Those who act boldly are recognizing right as well as reality.
+ - If I don’t have a woman every three days or so I get a terrible headache.
+ - It is not our wealth that built our roads, but it is our roads that built our wealth.
+ - Our privileges can be no greater than our obligations. The protection of our rights can endure no longer than the performance of our responsibilities.
+ - It takes two to make peace.
+ - I think the American people expect more from us than cries of indignation and attack. The times are too grave, the challenge too urgent, and the stakes too high – to permit the customary passions of political debate.
+ - The rights of man come not from the generosity of the state but from the hand of God.
+ - Bullfight critics row on row Fill the enormous Plaza de toros But only one is there who knows And he is the one who fights the bull.
+ - No one gains from fair employment law and legislation if there is no employment to be had.
+ - We don’t want to be like the leader in the French Revolution who said There go my people, I must find out where they are going so I can lead them.
+ - We will neglect our cities to our peril, for in neglecting them we neglect the nation.
+ - There is an old saying that the course of civilization is a race between catastrophe and education. In a democracy such as ours, we must make sure that education wins the race.
+ - Let the word go forth from this time and place, to friend and foe alike, that the torch has been passed to a new generation of Americans – born in this century, tempered by war, disciplined by a hard and bitter peace.
+ - I want every American to be free to stand up for his rights, even if sometimes he has to sit down for them.
+ - Political sovereignty is but a mockery without the means of meeting poverty and illiteracy and disease. Self-determination is but a slogan if the future holds no hope.
+ - Immigration policy should be generous; it should be fair; it should be flexible. With such a policy we can turn to the world, and to our own past, with clean hands and a clear conscience.
+ - I am not so much concerned with the right of everyone to say anything he pleases as I am about our need as a self-governing people to hear everything relevant.
+ - No President should fear public scrutiny of his program. For from that scrutiny comes understanding; and from that understanding comes support or opposition and both are necessary.
+ - I was born an American, I live like an American, I will die an American.
+ - Mothers all want their sons to grow up to be president, but they don’t want them to become politicians in the process.
+ - Ask not that the journey be easy; ask instead that it be worth it.
+ - If the self-discipline of the free cannot match the iron discipline of the mailed fist, in economic, political, scientific, and all the other kinds of struggles, as well as the military, then the peril to freedom will continue to rise.
+ - Only in winter can you tell which trees are truly green. Only when the winds of adversity blow can you tell whether an individual or a country has steadfastness.
+ - Remember that our nation’s first great leaders were also our first great scholars.
+ - Any danger spot is tenable if men, brave men, will make it so.
+ - You never know what’s hit you. A gunshot is the perfect way.
+ - The highest duty of the writer, the composer, the artist, is to remain true to himself and to let the chips fall where they may.
+ - Nor problem of human destiny is beyond human beings.
+ - There’s an old saying. Never send a boy to do a man’s job, send a lady.
+ - The efforts of governments alone will never be enough. In the end, the people must choose and the people must help themselves.
+ - Where nature makes natural allies of us all, we can demonstrate that beneficial relations are possible even with those with whom we most deeply disagree-and this must someday be the basis of world peace and world law.
+ - I look forward to a great future for America – a future in which our country will match its military strength with our moral restraint, its wealth with our wisdom, its power with our purpose.
+ - It is in the American tradition to stand up for one’s rights – even if the new way to stand up for one’s rights is to sit down.
+ - A great change is at hand, and our task, our obligation, is to make that revolution, that change, peaceful and constructive for all.
+ - It is insane that two men, sitting on opposite sides of the world, should be able to decide to bring an end to civilization.
+ - War and hunger and ignorance and despair know no religious barriers.
+ - The world is very different now. For man holds in his mortal hands the power to abolish all forms of human poverty, and all forms of human life.
+ - In our democracy every young person should have an equal opportunity to obtain a higher education, regardless of his station in life or financial means.
+ - I have said that control of arms is a mission that we undertake particularly for our children and our grandchildren and that they have no lobby in Washington.
+ - For one true measure of a nation is its success in fulfilling the promise of a better life for each of its members. Let this be the measure of our nation.
+ - Our most basic common link is that we all inhabit this small planet.
+ - What’s the use of being Irish if the world doesn’t break your heart?
+ - A child miseducated is a child lost.
+ - A wall is a hell of a lot better than a war.
+ - So, let us not be blind to our differences – but let us also direct attention to our common interests and to the means by which those differences can be resolved.
+ - It was involuntary. They sank my boat.
+ - It is an unfortunate fact that we can secure peace only by preparing for war.
+ - All my life Ive known better than to depend on the experts. How could I have been so stupid, to let them go ahead?
+ - We believe that when men reach beyond this planet, they should leave their national differences behind them.
+ - Struggle for freedom. Where people are denied the right of choice, recourse to such struggle is the only means of achieving their liberties.
+ - America has tossed its cap over the wall of space.
+ - We are not afraid to entrust the American people with unpleasant facts, foreign ideas, alien philosophies, and competitive values.
+ - We prefer world law in the age of self-determination to world war in the age of mass extermination.
+ - We can say with some assurance that, although children may be the victims of fate, they will not be the victims of our neglect.
+ - Nuclear weapons are so destructive and ballistic missiles are so swift, that any substantially increased possibility of their use or any sudden change in their deployment may well be regarded as a definite threat to peace.
+ - The weapons of war must be abolished before they abolish us.
+ - Since the time of the ancient Greeks, we have felt that there was a close relationship between a strong vital mind and physical fitness.
+ - If anyone is crazy enough to want to kill a president of the United States, he can do it. All he must be prepared to do is give his life for the president’s.
+ - The Federal Government is the people and the budget is a reflection of their need.
+ - We stand for freedom. That is our conviction for ourselves; that is our only commitment to others.
+ - If men and women are in chains anywhere in the world, then freedom is endangered everywhere.
+ - If I had to live my life over again, I would have a different father, a different wife and a different religion.
+ - If you want to truly understand something, try to change it.
+ - Someone always needs rescuing, yet there’s only one person who ever seems to understand you. It’s a lot like being Lassie.
+ - Art is the great democrat, calling forth creative genius from every sector of society, disregarding race or religion or wealth or color.
+ - I do not say that all men are equal in their ability, character and motivation. I do say that every American should be given a fair chance to develop all the talents they may have.
+ - Peace need not be impracticable, and war need not be inevitable.
+ - I have a nice home, the office is close by, and the pay is good.
+ - For if Freedom and Communism were to compete for mans allegiance in a world at peace, I would look to the future with ever increasing confidence.
+ - All of us in the Senate live in an iron lung-the iron lung of politics, and it is no easy task to emerge from that rarified atmosphere in order to breathe the same fresh air our constituents breathe.
+ - My experience in government is that when things are non-controversial and beautifully coordinated, there is not much going on.
+ - Our Constitution wisely assigns both joint and separate roles to each branch of the government; and a President and a Congress who hold each other in mutual respect will neither permit nor attempt any trespass.
+ - In serving his vision of the truth, the artist best serves his nation.
+ - We would like to live as we once lived, but history will not permit it.
+ - We had a dog who was named Pushinka, who was given to my father by a Soviet official. And we trained that dog to slide down the slide we had in the back of the White House. Sliding the dog down that slide is probably my first memory.
+ - War will exist until that distant day when the conscientious objector enjoys the same reputation and prestige that the warrior does today.
+ - There are many people in the world who really don’t understand-or say they don’t-what is the great issue between the free world and the Communist world. Let them come to Berlin!
+ - A young man who does not have what it takes to perform military service is not likely to have what it takes to make a living. Today’s military rejects include tomorrow’s hard-core unemployed.
+ - Lower rates of taxation will stimulate economic activity and so raise the levels of personal and corporate income as to yield within a few years an increased – not a reduced – flow of revenues to the federal government.
+ - I am fully aware of the fact that the Democratic Party, by nominating someone of my faith, has taken on what many regard as a new and hazardous risk.
+ - The Civil Rights movement should thank God for Bull Connor. He’s helped it as much as Abraham Lincoln.
+ - For without belittling the courage with which men have died, we should not forget those acts of courage with which men have lived.
+ - Our labor unions are not narrow, self-seeking groups. They have raised wages, shortened hours, and provided supplemental benefits. Through collective bargaining and grievance procedures, they have brought justice and democracy to the shop floor.
+ - Whatever one’s religion in his private life may be, for the officeholder, nothing takes precedence over his oath to uphold the Constitution and all its parts – including the First Amendment and the strict separation of church and state.
+ - Blight has descended on our regulatory agencies – and a dry rot, beginning in Washington, is seeping into every corner of America – in the payola mentality, the expense account way of life, the confusion between what is legal and what is right.
+ - The energy, the faith, the devotion which we bring this endeavor will light our bounty and all who serve it, and the glow from that fire can truly light the world.
+ - The war against hunger is truly mankind’s war of liberation.
+ - Sometimes party loyalty asks too much.
+ - The basic problems facing the world today are not susceptible to a military solution.
+ - The wave of the future is not the conquest of the world by a single dogmatic creed but the liberation of the diverse energies of free nations and free men.
+ - No responsibility of government is more fundamental than the responsibility of maintaining the highest standard of ethical behavior for those who conduct the public business.
+ - I am sorry to say that there is too much point to the wisecrack that life is extinct on other planets because their scientists were more advanced than ours.
+ - The exploration of space will go ahead, whether we join in it or not, and it is one of the great adventures of all time, and no nation which expects to be the leader of other nations can expect to stay behind in this race for space.
+ - There is a connection, hard to explain logically but easy to feel, between achievement in public life and progress in the arts.
+ - Word to the Nation: Guard zealously your right to serve in the Armed Forces, for without them, there will be no other rights to guard.
+ - A life of complete leisure is the hardest work of all.
+ - Only in the case of the Negro has the melting pot failed to bring a minority into the full stream of American life.
+ - You can milk a cow the wrong way once and still be a farmer, but vote the wrong way on a water tower and you can be in trouble.
+ - There is always inequality in life. Some men are killed in a war and some men are wounded and some men never leave the country. Life is unfair.
+ - There are only two realities in life: death and laughter. We can do nothing to change the former, so we might as well do all we can to save the latter.
+ - Politics is like football; if you see daylight, go through the hole.
+ - It’s only when they join together in a forward movement that this country moves ahead...
+ - Our growing softness, our increasing lack of physical fitness, is a menace to our security.
+ - This is not the land of my birth, but it is the land for which I hold the greatest affection, and I certainly will come back in the springtime.
+ - But however close we sometimes seem to that dark and final abyss, let no man of peace and freedom despair. For he does not stand alone.
+ - When I was growing up I had three wishes. I wanted to be a Lindbergh-type hero, learn Chinese, and become a member of The Algonquin Round Table.
+ - The deadly arms race, and the huge resources it absorbs, have too long overshadowed all else we must do. We must prevent that arms race from spreading to new nations, to new nuclear powers and to the reaches of outer space.
+ - I am grateful to those Members of Congress who worked so diligently to guide the Equal Pay Act through. It is a first step. It affirms our determination that when women enter the labor force they will find equality in their pay envelopes.
+ - I believe in human dignity as the source of national purpose, human liberty as the source of national action, the human heart as the source of national compassion, and in the human mind as the source of our invention and our ideas.
+ - An economy hampered by restrictive tax rates will never produce enough jobs or enough profits.
+ - There is danger that totalitarian governments, not subject to vigorous popular debate, will underestimate the will and unity of democratic societies where vital interests are concerned.
+ - I’m 43 years old and I’m the healthiest candidate for the Presidency of the United States. You’ve travelled with me enough to know that I’m not going to die in office.
+ - To be courageous requires no exceptional qualifications, no magic formula, no special combination of time, place, and circumstance. It is an opportunity that sooner or later is presented to us all.
+ - We will not prematurely or unnecessarily risk the costs of a worldwide nuclear war in which even the fruits of victory would be ashes in our mouth – but neither shall we shrink from that risk any time it must be faced.
+ - The purpose of foreign policy is not to provide an outlet for our own sentiments of hope or indignation; it is to shape real events in a real world.
+ - To state the facts frankly is not to despair the future nor indict the past. The prudent heir takes careful inventory of his legacies and gives a faithful accounting to those whom he owes an obligation of trust.
+ - Now let me make it clear that I believe there can only be one defense policy for the United States and that is summed up in the word ‘first.’ I do not mean first, but. I do not mean first, when. I do not mean first, if. I mean first -period.
+ - The credit of success is claimed by all, while a disaster is attributed to one alone.
+ - There has also been a change – a slippage – in our intellectual and moral strength. Seven lean years of drouth and famine have withered a field of ideas.
+ - Lofty words cannot construct an alliance or maintain it; only concrete deeds can do that.
+ - I hope that no American will waste his franchise and throw away his vote by voting either for me or against me solely on account of my religious affiliation. It is not relevant.
+ - Art establishes the basic human truths which must serve as the touchstone of our judgement.
+ - Political action is the highest responsibility of a citizen.
+ - I am the one person who can truthfully say, I got my job through the New York Times.
+ - If at times our actions seem to make life difficult for others, it is only because history has made life difficult for us all.
+ - To further the appreciation of culture among all the people, to increase respect for the creative individual, to widen participation by all the processes and fulfillments of artthis is one of the fascinating challenges of these days.
+ - The courage of life is often a less dramatic spectacle than the courage of a final moment; but it is no less a magnificent mixture of triumph and tragedy.
+ - And a revolution of automation finds machines replacing men in the mines and mills of America, without replacing their incomes or their training or their needs to pay the family doctor, grocer and landlord.
+ - An artist’s working life is marked by intensive application and intense discipline.
+ - To each of us is entrusted the heavy responsibility of guiding the affairs of a democratic nation founded on Christian ideals.
+ - What really counts is not the immediate act of courage or of valor, but those who bear the struggle day in and day out – not the sunshine patriots but those who are willing to stand for a long period of time.
+ - A medical revolution has extended the life of our elder citizens without providing the dignity and security those later years deserve.
+ - We have all seen these circus elephants complete with tusks, ivory in their head and thick skins, who move around the circus ring and grab the tail of the elephant ahead of them.
+ - The processes of growth are gradual, bearing fruit in a decade, not a day.
+ - Genuine peace must be the product of many nations, the sum of many acts. It must be dynamic, not static, changing to meet the challenge of each new generation. For peace is a process-a way of solving problems.
+ - Of all the multitudes who throughout history have spoken for human dignity in times of great suffering and loss, no voice is more compelling than that of Anne Frank.
+ - For I can assure you that we love our country, not for what it was, though it has always been great – not for what it is, though of this we are deeply proud – but for what it someday can, and, through the efforts of us all, someday will be.
+ - Persons are judged to be great because of the positive qualities they possess, not because of the absence of faults.
+ - Our children and grandchildren are not merely statistics towards which we can be indifferent.
+ - Every dollar released from taxation that is spared or invested will help create a new job and a new salary.
+ - If this capsule history of our progress teaches us anything, it is that man, in his quest for knowledge and progress, is determined and cannot be deterred.
+ - If scientific discovery has not been an unalloyed blessing, if it has conferred on mankind the power not only to create but also to annihilate, it has at the same time provided humanity with a supreme challenge and a supreme testing.
+ - We must start now to provide additional stimulus to the modernization of American industrial plants I shall propose to the Congress a new tax incentive for businesses to expand their normal investment in plant and equipment.
+ - The high office of the President has been used to foment a plot to destroy the American’s freedom and before I leave office, I must inform the citizens of this plight.
+ - Be aware of danger-but recognize the opportunity.
+ - Aggressive conduct, if allowed to go unchecked and unchallenged, ultimately leads to war.
+ - Wherever there is smoke there is a good smoke machine.
+ - If we fail to encourage physical development and prowess, we will undermine our capcity for thought, for work, and for use of those skills vital to an expanding and complex America.
+ - For only when our arms are sufficient beyond doubt can we be certain beyond doubt that they will never be employed.
+ - In giving rights to others which belong to them, we give rights to ourselves and to our country.
+ - There is, of course, a legitimate argument for some limitation upon immigration. We no longer need settlers for virgin lands, and our economy is expanding more slowly than in the nineteenth and early twentieth centuries.
+ - I must say that though other days may not be so bright, as we look toward the future, that the brightest days will continue to be those we spent with you here in Ireland.
+ - A committee is twelve men doing the work of one.
+ - No one has been barred on account of his race from fighting or dying for America, there are no white or colored signs on the foxholes or graveyards of battle.
+ - The time is not far off when many nations in many parts of the world of many political shades and commitments will possess nuclear or even thermonuclear weapons.
+ - If there is one path above all others to war, it is the path of weakness and disunity.
+ - The world was not meant to be a prison in which man awaits his execution.
+ - The only valid test of leadership is the ability to lead, and lead vigorously.
+ - Israel will endure and flourish. It is the child of hope and the home of the brave.
+ - Israel was not created in order to disappear. Israel will endure and flourish.
+ - Whether they be young in spirit, or young in age, the members of the Democratic Party must never lose that youthful zest for new ideas and for a better world, which has made us great.
+ - The margin is narrow, but the responsibility is clear.
+ - This country was founded by men and women who were dedicated or came to be dedicated to two propositions; first, a strong religious conviction, and secondly a recognition that this conviction could flourish only under a system of freedom.
+ - While we cannot guarantee that we shall one day be first, we can guarantee that any failure to make this effort will make us last.
+ - Our alliance is born, not of fear, but of hope. It is an alliance that advances what we are for, as well as opposes what we are against.
+ - Just as I went into politics because Joe died, if anything happened to me tomorrow, my brother Bobby would run for my seat in the Senate. And if Bobby died, Teddy would take over for him.
+ - The leadership of the American Legion has not had a constructive thought for the benefit of this country since 1918.
+ - A police state finds that it cannot command the grain to grow.
+ - Arms alone are not enough to keep the peace. It must be kept by men.
+ - I look forward to an America which will not be afraid of grace and beauty.
+ - I am the man who accompanied Jacqueline Kennedy to Paris, and I have enjoyed it.
+ - There can be no progress if people have no faith in tomorrow.
+ - For a subject worked and reworked so often in novels, motion pictures, and television, American Indians remain probably the least understood and most misunderstood Americans of us all.
+ - I think ‘Hail to the Chief’ has a nice ring to it.
+ - You’re in there with me. Personally.
+ - Democracy is the superior form of government, because it is based on a respect for man as a reasonable being.
+ - A tired nation, said David Lloyd George, is a Tory nation, and the United States today cannot afford to be either tired or Tory.
+ - The fact that we live in a world that moves crisis by crisis does not make a growing interest in outdoor activities frivolous, or ample provision for them unworthy of the nation’s concern.
+ - A nation can be no stronger abroad than she is at home. Only an America which practices what it preaches about equal rights and social justice will be respected by those whose choice affects our future.
+ - Khrushchev reminds me of the tiger hunter who has picked a place on the wall to hang the tiger’s skin long before he has caught the tiger. This tiger has other ideas.
+ - The complacent, the self-indulgent, the soft societies are about to be swept away with the debris of history.
+ - Our economy today depends upon women in the labor force. One out of three workers is a woman. Today, there are almost 25 million women employed, and their number is rising faster than the number of men in the labor force.
+ - Freedom is not merely a word or an abstract theory, but the most effective instrument for advancing the welfare of man.
+ - While we shall negotiate freely, we shall not negotiate freedom.
+ - Suspicion on one side breeds suspicion on the other, and new weapons beget counter-weapons.
+ - The science of weapons and war has made us all one world and one human race with one common destiny.
+ - Above all, we are coming to understand that the arts incarnate the creativity of a free people.
+ - The guiding principle of this Nation has been, is now, and ever shall be IN GOD WE TRUST.
+ - And only the very courageous will be able to keep alive the spirit of individualism and dissent which gave birth to this nation, nourished it as an infant, and carried it through its severest tests upon the attainment of its maturity.
+ - Let us make it clear that we will never turn our backs on our steadfast friends in Israel, whose adherence to the democratic way must be admired by all friends of freedom.
+ - I think it is appropriate that we pay tribute to this great constitutional principle which is enshrined in the First Amendment of the Constitution: the principle of religious independence, of religious liberty, of religious freedom.
+ - Now we have a problem in making our power credible, and Vietnam is the place.
+ - Those whom nature hath so joined together, let no man put asunder.
+ - Richard Cromwell was not fit to wear the mantle of his uncle.
+ - I know my Republican friends were glad to see my wife feeding an elephant in India. She gave him sugar and nuts. But of course the elephant wasn’t satisfied.
+ - In a very real sense, it will not be one man going to the moon it will be an entire nation. For all of us must work to put him there.
+ - We have become more and more not a nation of athletes but a nation of spectators.
+ - The present tax codes inhibit the mobility and formation of capital, add complexities and inequities which undermine the morale of the taxpayer, and make tax avoidance rather than market factors a prime consideration in too many economic decisions.
+ - I hear it said that West Berlin is militarily untenable – and so was Bastogne, and so, in fact, was Stalingrad. Any danger spot is tenable if men – brave men – will make it so.
+ - I would encourage every American to walk as often as possible. It’s more than healthy; it’s fun.
+ - Irrational barriers and ancient prejudices fall quickly when the question of survival itself is at stake.
+ - There is, in addition to a courage with which men die; a courage by which men must live.
+ - Science contributes to our culture in many ways, as a creative intellectual activity in its own right, as the light which has served to illuminate man’s place in the universe, and as the source of understanding of man’s own nature.
+ - I see little more important to the future of our country and our civilization than the full recognition of the place of the artist.
+ - I suppose if you could have only one thing, it would be that-energy. Without it, you haven’t got a thing.
+ - While they came from a variety of religious backgrounds and held a wide variety of religious beliefs, each of our presidents in his own way has placed a special trust in God.
+ - But I think it is also important that we pay tribute and acknowledge another great principle, and that is the principle of religious conviction. Religious freedom has no significance unless it is accompanied by conviction.
+ - The poet and the politician have this in common: their greatness depends on the courage with which they face the challenges of life.
+ - Sure it’s a big job; but I don’t know anyone who can do it better than I can.
+ - Football today is far too much a sport for the few who can play it well; the rest of us, and too many of our children, get out exercise from climbing up the seats in stadiums, or from walking across the room to turn on our television sets.
+ - Peace does not rest in charters and covenants alone. It lies in the hearts and minds of the people.
+ - I think this is the most extraordinary collection of talent, of human knowledge, that has ever been gathered at the White House – with the possible exception of when Thomas Jefferson dined alone.
+ - My brother Bob doesn’t want to be in government – he promised Dad he’d go straight.
+ - Washington is a city of Southern efficiency and Northern charm.
+ - In a world of danger and trial, peace is our deepest aspiration.
+ - Neither smiles nor frowns, neither good intentions nor harsh words, are a substitute for strength.
+ - The basis of self-government and freedom requires the development of character and self-restraint and perseverance and the long view. And these are qualities which require many years of training and education.
+ - Do you realize the responsibility I carry? I’m the only person standing between Richard Nixon and the White House.
+ - Last year, more Americans went to symphonies than went to baseball games. This may be viewed as an alarming statistic, but I think that both baseball and the country will endure.
+ - We must create world-wide law and law enforcement as we outlaw world-wide war and weapon.
+ - The world has been close to war before – but now man, who has survived all previous threats to his existence, has taken into his mortal hands the power to exterminate the entire species some seven times over.
+ - Wealth is the means, and people are the ends. All our material riches will avail us little if we do not use them to expand the opportunities of our people.
+ - Truth is a tyrant-the only tyrant to whom we can give our allegiance. The service of truth is a matter of heroism.
+ - The mere absence of war is not peace.
+ - Whatever the political affiliation of our next President, whatever his views may be on all the issues and problems that rush in upon us, he must above all be the chief executive in every sense of the word.
+ - I don’t think the intelligence reports are all that hot. Some days I get more out of the New York Times.
+ - While much remains to be done to achieve full equality of economic opportunity-for the average woman worker earns only 60 percent of the average wage for men-this legislation is a significant step forward.
+ - We must recognize that every nation determines its policies in terms of its own interests.
+ - The United States of America has no intention of finishing second in space. This effort is expensive-but it pays its way for freedom and for America.
+ - Unless liberty flourishes in all lands, it cannot flourish in one.
+ - The voters selected us, in short, because they had confidence in our judgement and our ability to exercise that judgement from a position where we could determine what were their own best interest, as a part of the nation’s interest.
+ - What church I go to on Sunday, what dogma of the Catholic Church I believe in, is my business; and whatever faith any other American has is his business.
+ - At the start of 2005 the idea of downloading a song to a mobile phone was an idea, by the end of the year it was a reality.
+ - There comes a point where you see no evidence that the carrot and diplomacy are working.
+ - Mr. Nixon has, in the last seven days, called me an economic ignoramus, a Pied Piper, and all the rest. I’ve just confined myself to calling him a Republican. But he says that is getting low.
+ - There is nothing, I think, more unfortunate than to have soft, chubby, fat-looking children who go to watch their school play basketball every Saturday and regard that as their weeks exercise.
+ - No government or social system is so evil that its people must be considered as lacking in virtue.
+ - No sane society chooses to commit national suicide.
+ - We hold the view that the people make the best judgment in the long run.
+ - My call is not to those who believe they belong to the past. My call is to those who believe in the future.
+ - Easy money, sudden fortunes, increasingly powerful political machines and blatant corruption transformed much of the nation; and the Senate, as befits a democratic legislative body, accurately represented the nation.
+ - Our nation is founded on the principal that observance of the law is the eternal safeguard of liberty and defiance of the law is the surest road to tyranny.
+ - In America there must be only citizens, not divided by grade, first and second, but citizens, east, west, north, and south.
+ - Anyone who is honestly seeking a job and can’t find it, deserves the attention of the United States government, and the people.
+ - Abroad, the balance of power is shifting. There are new and more terrible weapons – new and uncertain nations – new pressures of population and deprivation.
+ - Our responsibility is one of decision, for to govern is to choose.
+ - While we shall never weary in the defense of freedom, neither shall we ever abandon the pursuit of peace.
+ - To sound the alarm is not to panic but to seek action from an aroused public.
+ - I’m always rather nervous about how you talk about women who are active in politics, whether they want to be talked about as women or as politicians.
+ - Self-government requires qualities of self-denial and restraint.
+ - Let us not seek the Republican answer.
+ - No man who enters upon the office to which I have succeeded can fail to recognize how every president of the United States has placed special reliance upon his faith in God.
+ - We cannot be satisfied with things as they are. We cannot be satisfied to drift, to rest on our oars, to glide over a sea whose depths are shaken by subterranean upheavals.
+ - Let’s not talk so much about vice. I’m against vice in all forms.
+ - And this Nation, for all its hopes and all its boasts, will not be fully free until all its citizens are free.
+ - The new and terrible dangers which man has created can only be controlled by man.
+ - I have asked the secretary of the treasury to report by April 1 on whether present tax laws may be stimulating in undue amounts the flow of American capital to the industrial countries abroad through special preferential treatment.
+ - We shall be judged more by what we do at home than what we preach abroad.
+ - I was never accepted into certain parts of New England society because my grandfather was an Irish barkeep.
+ - A nation which has forgotten the quality of courage which in the past has been brought to public life is not as likely to insist upon or regard that quality in its chosen leaders today – and in fact we have forgotten.
+ - I know few significant questions of public policy which can safely be confided to computers. In the end, the hard decisions inescapably involve imponderables of intuition, prudence, and judgment.
+ - The basis of effective government is public confidence.
+ - When things don’t go well they like to blame presidents; and that’s something that presidents are paid for.
+ - Whether I serve one or two terms in the Presidency, I will find myself at the end of that period at what might be called the awkward age-too old to begin a new career and too young to write my memoirs.
+ - It is no contradiction – the most important single thing we can do to stimulate investment in today’s economy is to raise consumption by major reduction ofindividualincometaxrates.
+ - Every American ought to have the right to be treated as he would wish to be treated, as one would wish his children to be treated. This is not the case.
+ - There is no city in the United States in which I can get a warmer welcome and fewer votes than Columbia, Ohio.
+ - Is this Nation stating it cannot afford to spend an additional $600 million to help the developing nations of the world become strong and free and independentan amount less than this countrys annual outlay for lipstick, face cream, and chewing gum?
+ - I am not the Catholic candidate for President. I am the Democratic Party’s candidate for President, who happens also to be a Catholic.
+ - I do not speak for my church on public matters; and the church does not speak for me.
+ - Disarmament without checks is but a shadow – and a community without law is but a shell.
+ - Peaceful circulation has been interupted by barbed wire and concrete blocks. For a city or a people to be truly free, they must have the secure right, without economic, political or police pressure, to make their own choices and live their own lives.
+ - The function and responsibility of the President is to set before the American people the unfinished business, the things we must do if we are going to succeed as a nation.
+ - A Canadian newspaperman said yesterday that this is the President’s “Easter egghead roll on the White House lawn.” I want to deny that!
+ - The Federal Budget can and should be made an instrument of prosperity and stability, not a deterrent to recovery.
+ - It is true that my predecessor did not object, as I do, to pictures of one’s golf skill in action. But neither, on the other hand, did he ever bean a Secret Serviceman.
+ - The pay is good and I can walk to work.
+ - Any system of government will work when everything is going well. It’s the system that functions in the pinches that survive.
+ - I believe in a president whose religious views are his own private affair, neither imposed by him upon the nation, or imposed by the nation upon him as a condition to holding that office.
+ - Every time that we try to lift a problem from our own shoulders, and shift that problem to the hands of the government, to the same extent we are sacrificing the liberties of our people.
+ - If this nation is to be wise as well as strong, if we are to achieve our destiny, then we need more new ideas for more wise men reading more good books in more public libraries.
+ - If all of you had voted the other way – there’s about 5500 of you here tonight – I would not be the President of the United States.
+ - We are inclined to think that if we watch a football game or a baseball game, we have taken part in it.
+ - I can’t see that it’s wrong to give him a little legal experience before he goes out to practice law.
+ - I do not belive that Washington should do for the people wha they can do for themselves through local and private effort.
+ - If you face a man’s job, find a woman!
+ - Where else, in a non-totalitarian country, but in the political profession is the individual expected to sacrifice all-including his own career-for the national good?
+ - When you have seven percent unemployed, you have ninety-three percent working.
+ - In seeking the help of the Congress and our countrymen, I pledged no easy answers. I pledged, and asked, only toil and dedication. These the Congress and the people have given in good measure.
+ - We support the security of both Israel and her neighbors.
+ - Lets talk to one another instead of about one another.
+ - I can assure you that every degree of mind and spirit that I possess will be devoted to the long-range interests of the United States and to the cause of freedom around the world.
+ - Will Rogers once said it is not the original investment in a Congressman that counts; it is the upkeep.
+ - The most ideal approach to advance is the way of opportunity.
+ - I just received the following wire from my generous Daddy; Dear Jack, Don’t buy a single vote more than is necessary. I’ll be damned if I’m going to pay for a landslide.
+ - I can evade questions without help; what I need is answers.
+ - The great free nations of the world must take control of our monetary problems if these problems are not to take control of us.
+ - I am flatly opposed to appointment of an ambassador to the Vatican. Whatever advantages it might have in Rome – and I’m not convinced of these – they would be more than offset by the divisive effect at home.
+ - As science, of necessity, becomes more involved with itself, so also, of necessity, it becomes more international. I am impressed to know that of the 670 members of this Academy.
+ - When I ran for Presidency of the United States, I knew that this country faced serious challenges, but I could not realize – nor could any man realize who does not bear the burdens of this office – how heavy and constant would be those burdens.
+ - The United States, as the world knows, will never start a war.
+ - The American presidency will demand more than ringing manifestos issued from the rear of the battle. It will demand that the President place himself in the very thick of the fight; that he care passionately about the fate of the people he leads .
+
+500 quotes

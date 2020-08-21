@@ -1,0 +1,236 @@
+ - The world says love yourself, grab all you can, follow your heart. Jesus says deny yourself, grab your cross and follow me.
+ - Our greatest fear should not be of failure but of succeeding at things in life that don’t really matter.
+ - True love requires sacrifice.
+ - He wants all or nothing. The thought of a person calling himself a ‘Christian’ without being a devoted follower of Christ is absurd.
+ - Jesus said go and make disciples, but so often we just sit and make excuses.
+ - Lukewarm people call ‘radical’ what Jesus expected of all His followers.
+ - Worry implies that we don’t quite trust God is big enough, powerful enough, or loving enough to take care of what’s happening in our lives.
+ - The point of your life is to point to Him. Whatever you are doing, God wants to be glorified, because this whole thing is His.
+ - We never grow closer to God when we just live life. It takes deliberate pursuit and attentiveness.
+ - But God doesn’t call us to be comfortable. He calls us to trust Him so completely that we are unafraid to put ourselves in situations where we will be in trouble if He doesn’t come through.
+ - Having faith often means doing what others see as crazy.
+ - Has your relationship with God changed the way you live your life?
+ - We are here to love. Not much else matters.
+ - The irony is that while God doesn’t need us but still wants us, we desperately need God but don’t really want Him most of the time.
+ - I have one reason why you should walk away from that temptation right now. One reason: God. Is. Better.
+ - A disciple is a disciple maker.
+ - The disciples obey because that’s what people do when someone rises from the dead and gives instructions.
+ - Lukewarm people do not live by faith; their lives are structured so that they don’t have to.
+ - Let us be eager to leave what is familiar for what is true.
+ - We need to be more concerned about who we are before God than our reputation before people.
+ - Marriage is one of the most humbling, sanctifying journeys you will ever be a part of. It forces us to wrestle with our selfishness and pride. But it also gives us a platform to display love and commitment.
+ - Following Christ isn’t something that can be done halfheartedly or on the side. It is not a label we can display when it is useful. It must be central to everything we do and are.
+ - Jesus didn’t say that if you wanted to follow Him you could do it in a lukewarm manner. He said, ‘Take up your cross and follow Me.’
+ - God doesn’t call us to be comfortable. He calls us to trust Him.
+ - God’s presence is all that matters.
+ - Life is about Jesus. We are not here to tell our story, but His.
+ - When I am consumed by my problems-stressed out about my life, my family, and my job-I actually convey the belief that I think the circumstances are more important than God’s command to always rejoice.
+ - Isn’t it a comfort to worship a God we cannot exaggerate?
+ - God is calling you to a passionate love relationship with Himself. The answer to religious complacency isn’t working harder at a list of do’s and don’ts-it’s falling in love with God.
+ - If you want to see the big stuff that God has, you’ve got to take some risk and trust only in the Gospel.
+ - If life is a river, then pursuing Christ requires swimming upstream. When we stop swimming, or actively following Him, we automatically begin to be swept downstream.
+ - We are each given different gifts and talents by our Master. The thing that matters most is how we use what we have been given, not how much we make or do compared to someone else. What matters is that we spend ourselves.
+ - You find that the things you let go of while following Jesus were the things that were going to destroy you in the end.
+ - God has allowed hard things in your life so you can show the world that your God is great and that knowing Him brings peace and joy, even when life is hard.
+ - True faith manifests itself through our actions.
+ - James 2:19- ‘You believe there is one God. Good! Even the demons believe that- and shudder.’ God doesn’t just want us to have good theology; He wants us to know and love Him.
+ - God never breaks His promises.
+ - Something is wrong when our lives make sense to unbelievers.
+ - God didn’t just give a little for us; He gave His best. He gave Himself.
+ - Lukewarm people don’t really want to be saved from their sin; they want only to be saved from the penalty of their sin.
+ - I don’t want my life to be explainable without the Holy Spirit.
+ - As I see it, a lukewarm Christian is an oxymoron; there is no such thing. To put it plainly, churchgoers who are ‘lukewarm’ are not Christians. We will not see them in heaven.
+ - The way we live out our days is the way we will live our lives.
+ - We live in a time when Christians need to be told that they are supposed to live like Christ. That’s Weird.
+ - Christians are like manure: spread them out and they help everything grow better, but keep them in one big pile and they stink horribly.
+ - The Bible teaches that true joy is formed in the midst of the difficult seasons of life.
+ - Due to our consumer mindset, people are prone to jump from church to church, which weakens the church overall.
+ - My love for prayer was an answer to prayer.
+ - When it’s hard and you are doubtful, give more.
+ - Why would we need to experience the Comforter if our lives are already comfortable?
+ - Salvation is all about the grace of God. There is absolutely nothing that you can do to save yourself or earn God’s favor.
+ - Heavenly Father, thank You so much for Your grace. Your forgiveness is SO good that I struggle with believing it at times. Thank You for rescuing me from myself and giving me Your Holy Spirit. Your love is better than life.
+ - We often think of prayer as a means to an end. Prayer is the goal.
+ - Our lack of intimacy is due to our refusal to unplug and shut off communication from all others so we can be alone with Him.
+ - When we work for Christ out of obligation, it feels like work. But when we truly love Christ, our work is a manifestation of that love, and it feels like love.
+ - Sometimes we shrink from leadership because our pride makes us afraid of failure. That’s not humility.
+ - True faith means holding nothing back; it bets everything on the hope of eternity.
+ - The God who loans you life sees your every move, hears each word you speak, knows your every thought. You are seen by God. Noticed. Known.
+ - The church becomes irrelevant when it becomes purely a human creation. We are not all we were made to be when everything in our lives and churches can be explained apart from the work and presence of the Spirit of God.
+ - Lukewarm people will serve God and others, but there are limits to how far they will go or how much time, money, and energy they are willing to give.
+ - It is true that God may have called you to be exactly where you are. But, it is absolutely vital to grasp that he didn’t call you there so you could settle in and live your life in comfort and superficial peace.
+ - My pride and immaturity caused me to make things more of a struggle than they had to be. I can always blame others or circumstances, but the truth was that my own sinful pride led to more stress than anything else.
+ - What are you doing right now that requires faith?
+ - The greatest knowledge we can ever have is knowing God treasures us.
+ - There is nothing better than giving up everything and stepping into a passionate love relationship with God, the God of the universe who made galaxies, leaves, laughter, and me and you.
+ - We don’t get to decide who God is.
+ - The wise man comes to God without saying a word and stands in awe of Him.
+ - I’ve got this amazing relationship with God that is better than life, itself, so marvelous, so wonderful that everything else can fall apart and I’m okay.
+ - It’s much less demanding to think about God’s will for your future than it is to ask Him what He wants you to do in the next ten minutes.
+ - God is compassionate and just, loving and holy, wrathful and forgiving. WE can’t sideline His more difficult attributes to make room for the palatable ones.
+ - God exists outside of time, and since we are within time, there is no way we will ever totally grasp that concept.
+ - The stress that some of us feel – it’s a lack of faith, it really is.
+ - God interrupt whatever we are doing so that we can join You in what You’re doing.
+ - He measures our lives by how we love.
+ - A relationship with God simply cannot grow when money, sins, activities, favorite sports teams, addictions, or commitments are piled up on top of it.
+ - In the midst of our failed attempts at loving Jesus, His grace covers us.
+ - Not being able to understand God is frustrating, but it is ridiculous for us to think we have the right to limit God to something we are capable to comprehending.
+ - Yes, it is God who works in you. And, yes, there is work for you to do. Yes, the Spirit empowers you to do the work. And, yes, you do the work.
+ - God’s definition of what matters is pretty straightforward. He measures our lives by how we love.
+ - Making disciples isn’t about gathering pupils to listen to your teaching. The real focus is not on teaching people at all–the focus is on loving them.
+ - People who are obsessed are raw with God; they do not attempt to mask the ugliness of their sins or their failures. Obsessed people don’t put it on for God; He is their safe place, where they can be at peace.
+ - Proclaiming the gospel to a lost world cannot be just another activity to add to the church’s crowded agenda. It must be central to who we are. It forms our identity.
+ - Giving that is not motivated by love is worth nothing.
+ - Being in war together may be what keeps us from being at war with each other. Rather than neglecting the battle to work on your marriage, maybe the best thing for your marriage is to enter the battlefield together.
+ - Lukewarm people think about life on earth much more often than eternity in heaven.
+ - Only the Holy Spirit can give you the power to not think about yourself, to set you free from yourself.
+ - Our lives should be more than just focusing on our marriage but on focusing our marriage toward what God’s mission is for us as a couple.
+ - God gave me the same power He gave Jesus. I ask myself daily, Why do I waste such a priceless gift?
+ - When we become overly concerned about our appearance, our spiritual reputation, our coolness, and our acceptance, we are living as citizens of this world rather than as ambassadors.
+ - People who are obsessed with Jesus give freely and openly without censure. Obsessed people love those who hate them and who can never love them back.
+ - God is the only true Giver, and He needs nothing from us. But still He wants us. He gave us life so that we might seek and know Him.
+ - Many Spirit-filled authors have exhausted the thesaurus in order to describe God with the glory He deserves. His perfect holiness, by definition, assures us that our words can’t contain Him. Isn’t it a comfort to worship a God we cannot exaggerate?
+ - Grace is when you should be totally punished but are blessed for no reason.
+ - People accuse me of going overboard preparing for my first ten million years in eternity; in my opinion, people go overboard in worrying about their last ten on earth.
+ - Our God listens to us. Our God is a living God. He’s not a block of wood you made up that’s not going to answer you. My God listens to me. He answers me.
+ - Luke warm people are continually concerned with playing it safe; they are slaves to the god of control. This focus on safe living keeps them from sacrificing and risking for God.
+ - Are we in love with God or just His stuff?
+ - Following Jesus is not about diligently keeping a set of rules or conjuring up the moral fortitude to lead good lives. It’s about loving God and enjoying Him.
+ - We have become dangerously comfortable- believers ooze with wealth and let their addictions to comfort and security numb the radical urgency of the gospel.
+ - God has given you this good stuff so that you can show the world a person who enjoys blessings, but who is still totally obsessed with God.
+ - It’s pride, plain and simple, that keeps me from giving God all the glory and keeping some of it for myself. It is a battle we all fight in some form or another, some of us daily or even hourly.
+ - It’s a pretty crazy task to try to describe God “quickly.” Everything starts with a healthy fear of Him.
+ - Joy is something that we have to choose and then work for.
+ - In the craziness of our world, it takes tremendous effort to find a quiet place. It takes time to quiet your mind and your heart before the Lord.
+ - God wants to change us so much that it intrigues others.
+ - People see only my actions. Instead, if I focus on Christ with thanksgiving, people see Him.
+ - Don’t fall into the trap of studying the Bible without doing what it says.
+ - A key to everything is surrender – to really come before the Lord and say, ‘I will literally stay here as long as you want me to stay’ or ‘God, I will really go anywhere on the earth.’
+ - People who are obsessed with Jesus aren’t consumed with their personal safety and comfort above all else. Obsessed people care more about God’s kingdom coming to this earth than their own lives being shielded from pain or distress.
+ - Whatever God’s reasons for such diversity, creativity, and sophistication in the universe, on earth, and in our own bodies, the point of it all is His glory. God’s art speaks of Himself, reflecting who He is and what He is like.
+ - It is not scientific doubt, not atheism, not pantheism, not agnosticism, that in our day and in this land is likely to quench the light of the gospel. It is a proud, sensuous, selfish, luxurious, church-going, hollow-hearted prosperity.
+ - I believe He wants us to love others so much that we go to extremes to help them.
+ - Hell is the backdrop that reveals the profound and unbelievable grace of the cross. It brings to light the enormity of our sin and therefore portrays the undeserved favor of God in full color.
+ - If I were Satan and my ultimate goal was to thwart God’s kingdom and purposes, one of my main strategies would be to get churchgoers to ignore the Holy Spirit.
+ - In our world, where hundreds of things distract us from God, we have to intentionally and consistently remind ourselves of Him.
+ - When the church really takes on the humble characteristics of Christ, that’s going to lead to revival.
+ - Lukewarm people love others but do not seek to love others as much as they love themselves.
+ - You have access to the Tent Of Meeting.
+ - It’s easy to write for God and about God, because what a thrill to remind the church that the Holy Spirit of God is in you. What a rush! What an amazing blessing!
+ - Stress says that the things we are involved in are important enough to merit our impatience, our lack of grace toward others, or our tight grip of control.
+ - Allow God to be as creative with you as He is with each of us.
+ - We have to learn how to control our minds. We have to learn self-control.
+ - God specifically created us to be like Him. This is impossible to wrap our minds around, but God created us like Him in some respect and then set us in the midst of this world to represent Him!
+ - We are a culture that relies on technology over community, a society in which spoken and written words are cheap, easy to come by, and excessive. Our culture says anything goes; fear of God is almost unheard of. We are slow to listen, quick to speak, and quick to become angry.
+ - My only prayer for my time with you is, “God I just want these men and women to long for you.”
+ - We have control over our prayer life, our relationship with Jesus.
+ - Jesus evidently hates it when we tear into our brothers or sisters with demeaning words, words that fail to honor the people around us as the beautiful image-bearing creatures that they are.
+ - There are periods that we forget that in the pursuit of fruit, that if we just abide in Him, then fruitfulness is a guarantee.
+ - We have to believe it enough that it changes how we live.
+ - When I don’t think biblically, I go nuts. I just go, ‘This is crazy.’
+ - There’s no sense in improving your marriage until you are secure with God.
+ - For a person to be truly discipled and growing in their faith, they need more than one person discipling them.
+ - God’s art speaks of Himself, reflecting who He is and what He is like.
+ - In reality, not one of us will ever be worthy. It is useless to attempt earning it; you’ll never feel ready. It is unknown and uncomfortable. But there really is a God who forgives everything and loves endlessly.
+ - The enemy just hates our prayers.
+ - God is not just one thing we add to the mix called life. He wants an invitation from us to permeate everything and every part of us.
+ - Refusing to teach a passage of Scripture is just as wrong as abusing it.
+ - What evidence do you have that you know Jesus?
+ - Parents are supposed to instruct their kids. It doesn’t mean they necessarily have that gift of teaching.
+ - I don’t want to keep crawling when i have the ability to fly.
+ - Solomon warned us not to rush into God’s presence with words. That’s what fools do. And often, that’s what we do.
+ - Obsessed people are more concerned with obeying God than doing what is expected or fulfilling the status quo. A person who is obsessed with Jesus will do things that don’t always make sense in terms of success or wealth on this earth.
+ - The fact is, I need God to help me love God. And if I need His help to love Him, a perfect being, I definitely need His help to love other, fault-filled humans.
+ - Some people say I would love to take a selfie with Moses. Do you understand the gap between Moses and God?
+ - God is love, but He also defines what love is. We don’t have the license to define love according to our standards.
+ - People who are obsessed with Jesus live lives that connect them with the poor in some way or another. Obsessed people believe that Jesus talked about money and the poor so often because it was really important to Him.
+ - God has not had an identity crisis. He knows that he is Great and deserves to be the center of our lives.
+ - I love staring out toward the ocean and away from anything manmade.
+ - Both worry and stress reek of arrogance.
+ - I’ve grown up in a generation that questions God for setting boundaries. Does He have the right to set boundaries? I’ve grown up in a generation that thinks where meeting with a God is an ordinary thing.
+ - The very fact that a holy, eternal, all-knowing, all-powerful, merciful, fair, and just God loves you and me is nothing short of astonishing.
+ - We have a God who is a Creator, not a duplicator.
+ - It hit me that the students were talking about me, not God. I was standing before a holy God and robbing Him of the glory that was rightfully His.
+ - I love being in the ocean. I love the unpredictability of it- size of wave, animals you see, etc.
+ - Can you worship a God who isn’t obligated to explain His actions to you? Could it be your arrogance that makes you think God owes you an explanation?
+ - God never excuses sin. And He is always consistent with that ethic. Whenever we start to question whether God really hates sin, we have only to think of the cross, where His Son was tortured, mocked, and beaten because of sin. Our sin.
+ - Pray with reverence, not half-heartedness.
+ - God is the only being who is good, and the standards are set by Him. Because God hates sin, He has to punish those guilty of sin. Maybe that’s not an appealing standard. But to put it bluntly, when you get your own universe, you can make your own standards.
+ - I confess to you guys, I confess to the church, I know I have backed away from certain things because of my arrogance. I thought I could attract more people to Jesus by hiding certain things about him.
+ - Do you understand that it’s impossible to please God in any way other than wholehearted surrender?
+ - I want to train my kids so where they are the only believers they can stand on their own two feet and teach others.
+ - When we love God because we feel we should love Him, instead of genuinely loving out of our true selves, we have forgotten who God really is.
+ - What makes worship amazing is the object of our worship.
+ - As we begin to focus more on Christ, loving Him and others becomes more natural. As long as we pursuing Him, we satisfied in Him. It is when we stop actively loving Him that we find ourselves restless and gravitating toward other means of fulfillment.
+ - Christianity was simple: fight your desires in order to please God.
+ - I want to live so that I am truly submitted to the Spirit’s leading on a daily basis. Christ said its better for us that the Spirit came and I want to live like that is true. I don’t want to keep crawling when I have the ability to fly.
+ - A person who is obsessed is characterized by committed, settled, passionate love for God, above and before every other thing and every other being.
+ - Without action and fruit, all the theology in the world has little meaning.
+ - A person who is obsessed thinks about heaven frequently. Obsessed people orient their lives around eternity; they are not fixed only on what is here in front of them.
+ - Where it gets weird is that nowadays there are millions of people on this earth who call themselves followers of Jesus, but their lives look nothing like His, and they’re not obeying the things that He called them to do.
+ - The greatest good on this earth is God.
+ - If God cared only about religious activities, then the Pharisees would have been heroes of the faith.
+ - Why is it that we believe God’s promises of blessing but not his promises of punishment?
+ - Trust whatever He has for you. It will be better than anything you can plan for yourself.
+ - Which is more messed up- that we have so much compared to everyone else, or that we don’t think we’re rich? That on any given day, we might flippantly call ourselves ‘broke’ or ‘poor?’ We are neither of those things. We are rich. Filthy rich.
+ - Every year in my life, I trust fewer and fewer people.
+ - Some of you could be worshipping God but you’re playing with a video game.
+ - I sometimes struggle with how to properly respond to God’s magnitude in a world bent on ignoring or merely tolerating Him. But know this: God will not be tolerated. He instructs us to worship and fear Him.
+ - To call someone a Christian simply because he does some Christian-y things is giving false comfort to the unsaved.
+ - My biggest concern for this generation is your inability to focus, especially in prayer.
+ - The world needs Christians who don’t tolerate the complacency of their own lives.
+ - Do you want to see God more than you desire security?
+ - Lukewarm living and claiming Christ’s name simultaneously is utterly disgusting to God.
+ - You’ve got to do some work now. Make every effort to supplement your faith with virtue. Virtue is about moral excellence.
+ - It’s not that there aren’t a million other things to learn about God, but He says you’ve got to start with the fear of the Lord because that’s the beginning of wisdom.
+ - If life were stable, I’d never need God’s help.
+ - Multi-tasking is keeping me from whole-hearted worship.
+ - If I have a script, I tend to stick to it even if God may be leading me elsewhere in the moment.
+ - God cares more about your obedience to His Spirit’s leading TODAY than what you will do next year.
+ - But hey, if that’s too much to ask, tell them to just become Christians – you know, the people who get to go to heaven without having to commit to anything.
+ - Trying harder doesn’t work for me. Slowly I’ve learned to pray for God’s help and He has become my greatest love and desire.
+ - Christians today like to play it safe. We want to put ourselves in situations where we are safe ‘even if there is no God.’ But if we truly desire to please God, we cannot live that way.
+ - What is amazing is how we treat a meeting with God as ordinary or burdensome.
+ - As a culture, were so worried about whats going to happen to us 30 years from now that we are not taking care of our brothers and sisters who need help today.
+ - I really believe it’s time for some of us to stop apologizing for God and start apologizing to Him for being embarrassed by the ways He has chosen to reveal Himself.
+ - Just as you did not come to Christ on your own, neither will you remain in Christ on your own.
+ - When loving Him becomes obligation, one of the many things we have to do, we end up focusing even more on ourselves.
+ - Because when you’re wildly in love with someone, it changes everything.
+ - I could be wrong about salvation. I could be wrong about a lot of things.
+ - One of my biggest fears – maybe my biggest weakness as a Christian – is that I have a hard time going up to a stranger and talking to them about Jesus.
+ - This book is written for those who want more Jesus. It is for those who are bored with what American Christianity offers. It is for those who don’t want to plateau, those who would rather die before their convictions do.
+ - The best things in life are gifts from the One who steadfastly loves us. But an important question to ask ourselves is this: are we in love with God or just His stuff?
+ - Fear of God failing us leads us to “cover for God.” This means we ask, expect, and are satisfied with less.
+ - Doesn’t every encounter with God only cause us to thirst for Him more?
+ - Even in my own church I heard the words, ‘Francis Chan’ more than I heard the words, ‘Holy Spirit.’
+ - Your problems are not just your problems. Ultimately, they belong to the church body that God has placed you in.
+ - From start to finish, this movie is obviously about God. He is the main character. How is is possible that we live as though it is about us?
+ - We need to stop giving people excuses not to believe in God.
+ - If one person “wastes” away his day by spending hours connecting with God, and the other person believes he is too busy or has better things to do than worship the Creator and Sustainer, who is the crazy one?
+ - There are just certain times I sense the Lord is wanting me to write, and so I write.
+ - Show true religion, cause words don’t relieve.
+ - Honestly, when I read the Scriptures, I really believe the Lord puts a heart in us when we become believers.
+ - With my natural communication abilities, I could probably gather a crowd even without the Spirit.
+ - I’ve never felt a need to really respond to someone else’s writing.
+ - Churches we build only by our own efforts and not in the strength of the Spirit will quickly collapse when we don’t push and prod people along.
+ - I was raised Christian after age 5, but I didn’t really understand it until high school. A friend of mine invited me to his youth group. There I heard the gospel, understood it, and accepted it.
+ - The message of the Bible is not about God in Heaven who wants to take from you. It’s about God who wants to give to you.
+ - Do you love this God who is everything, or do you just love everything He gives you?
+ - We have got to make disciples. Fun nights and pizza nights are not going to sustain us.
+ - I don’t want Him to return and find me sitting in a theater.
+ - I had come out of a church that was filled with petty arguments and hatred. I just wanted to meet with some friends and worship with them.
+ - He does not have to know us so well, but He chooses to.
+ - Christ can come back at any time so the one thing you want to have in your life is a focused prayer time.
+ - Nothing compares to being truly, exuberantly wanted by your children.
+ - We live in a world where people say that you can believe anything you want about God.
+ - We are most alive when we are loving and actively giving ourselves because we were made to do these things.
+ - Jesus asks for everything, but we try to give Him less.
+ - God is so clear in spelling out His attributes in scripture in order that others would know what He is really like.
+ - I don’t want to lose the awe we get to help another human being.
+ - The idea of holding back certainly didn’t come from Scripture.
+ - I want to see people do more than simply raise their hand when they come to Christ. Where are the totally changed lives?
+ - There will be people who will teach for the sake of greed or for the sake of ego. So watch their lives. Do they look and act like Jesus?
+ - If you really want to experience God, go and make disciples.
+ - Don’t believe something just because you want to, and don’t embrace an idea just because you’ve always believed it. Believe what is biblical. Test all your assumptions against the precious words God gave us in the Bible.
+
+234 quotes

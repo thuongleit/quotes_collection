@@ -1,0 +1,38 @@
+ - I think you can do something bad, and it doesn’t make you a bad person. We are not defined by any one choice. We are the sum of our experiences, and we can make a bad choice and turn around and do better.
+ - Listen, the obvious thing to remember is without dark, there is no light, and without light, there is no dark.
+ - Kissing scenes with a boy or a girl, they’re awkward. There’s nothing sexy about it. There’s a lot of people standing around.
+ - I use only essential oils for perfumes.
+ - Infidelity is horrible – there’s nothing worse than that; it’s devastating.
+ - I don’t remember, at 19, someone giving me a golden key and saying, ‘Welcome to Hollywood; which job would you like?’
+ - My musical taste is like a 16-year-old girl’s when it comes to working out – Rihanna, Black Eyed Peas, Miley Cyrus. I love it all!
+ - The end of anything is not fun because there’s a nostalgia to it and everything else. Even the end of a bad relationship can feel so, so, so sad.
+ - I love to wear dresses when I’m pregnant.
+ - Maternal health remains a staggering challenge, particularly in the developing world. Globally, a woman dies from complications in childbirth every minute.
+ - I was always the girl who had that baby face.
+ - I don’t know if it’s ever OK for someone to be selfish. Perhaps there’s a time and place to be self-centered, but I think selfish never wins the race.
+ - There are all kinds of sexualities. There are all kinds of ways that people express their sexuality.
+ - I was never a rail-thin person.
+ - A lunch date is more fun than a dinner date; you’re not tired. It’s a secret that not a lot of other parents told me about.
+ - Being a mom has been my most important job to date, and I take my job very seriously, and I have a lot of fun doing it.
+ - My husband always smells good to me.
+ - I’ve braved the red carpet when I didn’t feel comfortable, and when I look at the pictures, it always shows!
+ - I love what I do and I think it shows. As my kids get older, they can see me as a mom who loves working.
+ - My heart gets very tender when it comes to playing someone who has wronged someone else. I almost feel like it’s easier for me to play having been wronged than it is to actually feel like you had an active part in hurting someone.
+ - I’ll never give up my Dior mascara.
+ - I love the surprise element of being a mom.
+ - I am a very hopeful person.
+ - I don’t have slim children. I have hearty ones.
+ - It’s not a guy and a girl, or a girl and a girl or a guy and a guy – it’s a relationship.
+ - I’m very active when I’m not pregnant, but I think fitness should be a natural part of your life, not something you have to force yourself to do.
+ - To be honest, makeup is a big part of what I do for a living.
+ - I got a Cabbage Patch doll from my mom when they were impossible to get. She later told me that she had to buy it off the black market. That was the best!
+ - I’ve always had to work hard for what I’ve got and to stay where I was.
+ - It’s never bad to be liked, and who doesn’t feel good being liked, but that can’t be your end game goal.
+ - I do think that with any kind of infidelity, on some level – unless you’re dealing with a sociopath – there’s always a reason.
+ - Ingredients should not read like a chemistry experiment!
+ - The only thing I never have unless I’m pregnant is heartburn.
+ - As an actor, you wouldn’t be able to play a character if you were worried about the reaction to what you’re doing.
+ - I’m a Midwesterner! Not being able to have a cheeseburger once in a while would be torture!
+ - I just saw a guy filling up his gas tank with one hand and smoking with the other. Seriously?
+
+36 quotes

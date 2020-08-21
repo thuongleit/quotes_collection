@@ -1,0 +1,31 @@
+ - I would not kill my enemies, but I will make them get down on their knees. I will, I can, I must.
+ - Don’t come to me with your troubles. I have to work for my money and you are young enough to work too. If you can’t make enough money to live on you can jump out of the window or drown yourself.
+ - What is there in life if you do not work? There is only sensation, and there are only a few sensations – you cannot live on them. You can only live on work, by work, through work. How can you live with self-respect if you do not do things as well as lies in you?
+ - Only my dogs will not betray me.
+ - It’s a terrible thing to go through life thinking that you have a rock on your side when you haven’t.
+ - An opera begins long before the curtain goes up and ends long after it has come down. It starts in my imagination, it becomes my life, and it stays part of my life long after I’ve left the opera house.
+ - ART is domination. It’s making people think that for that precise moment in time there is only one way, one voice. Yours.
+ - To sing is an expression of your being, a being which is becoming.
+ - First I lost weight, then I lost my voice, and now I’ve lost Onassis.
+ - When the curtain rises, the only thing that speaks is courage.
+ - Real friends are very special, but you have to be careful because sometimes you have a friend and you think they are made of rock, then suddenly you realise they’re only made of sand.
+ - I belong to the givers. I want to give a little happiness even if I haven’t had much for myself. Music has enriched my life and, hopefully – through me, a little – the public’s. If anyone left an opera house feeling more happy and at peace, I achieved my purpose.
+ - I admire Tebaldi’s tone; it’s beautiful – also some beautiful phrasing. Sometimes, I actually wish I had her voice.
+ - I am not an angel and do not pretend to be. That is not one of my roles. But I am not a devil, either. I am a woman and a serious artist, and I would like so to be judged.
+ - Some say I have a beautiful voice, some say I have not. It is a matter of opinion. All I can say, those who don’t like it shouldn’t come to hear me.
+ - Paris dictates fashion to the whole world.
+ - I was always too mature for my age – and not very happy. I had no young friends. I wish I could go back to those days. If I could only live it all again, how I would play and enjoy other girls. What a fool I was.
+ - Only when I was singing did I feel loved.
+ - Love is so much better when you are not married.
+ - On stage, I am in the dark.
+ - I don’t need the money, dear. I work for art.
+ - I will not be sued! I have the voice of an angel!
+ - I cannot switch my voice. My voice is not like an elevator going up and down.
+ - I want to be a mature artist with a different kind of thinking.
+ - My poor sight gives me an advantage. I can’t see the people in the audience who are scratching their heads while I am lost in my role and giving everything I have to the drama.
+ - Women are not pals enough with men, so we must make ourselves indispensable. After all, we have the greatest weapon in our hands by just being women.
+ - When I did not become enemies, then I understand that there was nothing standing.
+ - The public is a monster and that is why I am not eager to return to the stage.
+ - I don’t know what happens to me on stage. Something else seems to take over.
+
+29 quotes

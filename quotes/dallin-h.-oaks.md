@@ -1,0 +1,90 @@
+ - I say, choose faith. Choose faith over doubt, choose faith over fear, choose faith over the unknown and the unseen, and choose faith over pessimism.
+ - When we have faith in the Lord Jesus Christ, we must have trust in him. We must trust him enough that we are content to accept his will, knowing that he knows what is best for us.
+ - Desires dictate our priorities, priorities shape our choices, and choices determine our actions.
+ - Love is the most powerful force in the world.
+ - Man’s laws cannot make moral what God has declared immoral.
+ - We have to forego some good things in order to choose others that are better or best because they develop faith in the Lord Jesus Christ and strengthen our families.
+ - Following Christ is not a casual or occasional practice but a continuous commitment and way of life that applies at all times and in all places.
+ - A good marriage does not require a perfect man or a perfect woman. It only requires a man and a woman committed to strive together toward perfection.
+ - The intensity of our desire to share the gospel is a great indicator of the extent of our personal conversion.
+ - When we understand our relationship to God, we also understand our relationship to one another.
+ - Materialism, which gives priority to material needs and objects, is obviously the opposite of spirituality.
+ - In order to ask with real intent or to act with full purpose of heart, we must always make an accompanying commitment.
+ - You can never get enough of what you don’t need, because what you don’t need won’t satisfy you.
+ - It’s amazing how much you can get done if you don’t worry about who gets the credit.
+ - Priesthood power blesses all of us. Priesthood keys direct women as well as men, and priesthood ordinances and priesthood authority pertain to women as well as men.
+ - We are cast as combatants in the war between truth and error. There is no middle ground. We must stand up for truth, even while we practice tolerance and respect for beliefs and ideas different from our own and for the people who hold them.
+ - When we have a vision of what we can become, our desire and our power to act increase enormously.
+ - When we give thanks in all things, we see hardships and adversities in the context of the purpose of life.
+ - I testify of our Savior, Jesus Christ, whose teachings and example we seek to follow. He invites all of us who are heavy laden to come unto Him, to learn of Him, to follow Him, and thus to find rest to our souls.
+ - It’s wrong to criticize leaders of the church, even if the criticism is true.
+ - The principles stated in the proclamation on the family are a beautiful expression of this gospel culture.
+ - Adversities are temporary. What is permanent is what we become by the way we react to them.
+ - Those who enjoy the blessings of liberty under a divinely inspired constitution should promote morality, and they should practice what the Founding Fathers called civic virtue.
+ - The healing power of the Lord Jesus Christ-whether it removes our burdens or strengthens us to endure and live with them like the Apostle Paul-is available for every affliction in mortality.
+ - Testimony is to know and to feel, Conversion is to do and to become.
+ - Service is an imperative for those who worship Jesus Christ and a covenant obligation of those who belong to his Church.
+ - All of us should banish hateful communications and practice civility for differences of opinion.
+ - If you wish to marry well, inquire well.
+ - I believe many of us are overnourished on entertainment junk food and undernourished on the bread of life.
+ - We gain or strengthen a testimony by bearing it.
+ - What does it mean to be true to the faith? That word true implies commitment, integrity, endurance, and courage.
+ - When all other hope is gone, our Father in Heaven provides the Lamb of God, and we are saved by his sacrifice.
+ - Having descended beneath it all, He is perfectly positioned to lift us.
+ - The greatest power God has given to His sons cannot be exercised without the companionship of one of his daughters, because only to his daughters has God given the power to be a creator of bodies so that God’s design and the great plan might meet fruition.
+ - Through the lens of spirituality, we see all the commandments of God as invitations to blessings.
+ - To achieve our eternal destiny, we will desire and work for the qualities required to become an eternal being.
+ - I am unpersuaded that relative poverty and hard work are greater adversities than relative affluence and free time.
+ - We must seek to be firmly rooted and converted to the gospel of Jesus Christ.
+ - Most angelic communications are felt or heard rather than seen.
+ - And so we understand that the atonement of Jesus Christ gives us the opportunity to overcome spiritual death that results from sin, and, through making and keeping sacred covenants, to have the blessings of eternal life.
+ - Service that is given with little or no thought of personal advantage is an ideal to pursue for a lifetime.
+ - Become what our Heavenly Father desires you to become.
+ - The purpose of the gospel is to transform common creatures into celestial citizens, and that requires change.
+ - Well-taught doctrines and principles have a more powerful influence on behavior than rules.
+ - The church doesn’t seek apologies and we don’t give them.
+ - Healing blessings come in many ways, each suited to our individual needs, as known to Him who loves us best. Sometimes a ‘healing’ cures our illness or lifts our burden. But sometimes we are ‘healed’ by being given strength or understanding or patience to bear the burdens placed upon us.
+ - Given love and opportunity, every child and adult can recover. All who know this and have the capacity to help others should assist as they can.
+ - When I was 66, my wife June died of cancer. Two years later – a year and a half ago – I married Kristen McMain, the eternal companion who now stands at my side.
+ - Let us remember that desires dictate our priorities, priorities shape our choices, and choices determine our actions. In addition, it is our actions and our desires that cause us to become something, whether a true friend, a gifted teacher, or one who has qualified for eternal life.
+ - We should seek after spiritual gifts. They can lead us to God. They can shield us from the power of the adversary. They can compensate for our inadequacies and repair our imperfections.
+ - The nature and extent of profanity and vulgarity in our society is a measure of its deterioration.
+ - In the acquisition of Sacred knowledge, scholarship and reason are not alternatives to revelation. They are a means to an end, and the end is revelation from God.
+ - The most powerful teaching of children is by the example of their parents.
+ - The ultimate treasures on earth and in heaven are our children and our posterity.
+ - To avoid all possibility for error is to avoid all possibility for growth.
+ - Let us all improve our personal behavior and redouble our efforts to protect our loved ones and our environment from the onslaught of pornography.
+ - I just didn’t spend enough time with my job.
+ - The commandment to avoid contention applies to those who are right as well as those who are wrong.
+ - As children of God, knowing of His great love and His ultimate knowledge of what is best for our eternal welfare, we trust in Him. The first principle of the gospel is faith in the Lord Jesus Christ, and faith means trust.
+ - The gospel of Jesus Christ is the brightest light and the only hope for this darkened world.
+ - There is not a right and a wrong answer to every question.
+ - The possession of wealth is not a mark of Heavenly favor and their absence is not evidence of Heavenly disfavor.
+ - Though we disagree, we should not be disagreeable.
+ - The word sharing affirms that we have something extraordinarily valuable and desire to give it to others for their benefit and blessing.
+ - Our lives of service and sacrifice are the most appropriate expressions of our commitment to serve the Master and our fellowmen.
+ - Our Savior gave Himself in unselfish service. He taught that each of us should follow Him by denying ourselves of selfish interests in order to serve others.
+ - Plan specifically so you can implement flexibly.
+ - Young people, if you honor your fathers, you will love them, respect them, confide in them, be considerate of them, express appreciation for them, and demonstrate all of these things by following their counsel in righteousness and by obeying the commandments of God.
+ - Let us give thanks for what we are and for the circumstances God has given us for our personal journey through mortality.
+ - Forgiving is divine. Plead for the guidance of the Spirit of the Lord to forgive wrongs, to overcome faults, and to strengthen relationships.
+ - Whoever functions in an office or calling received from one who holds priesthood keys exercises priesthood authority in performing her or his assigned duties.
+ - Establish in the mind of a young person the powerful idea that he or she is a child of God, and you have given self-respect and motivation to move against the problems of life.
+ - The most effective missionsries always act out of love.
+ - Alcohol is the number one addictive drug in our day.
+ - Service to mankind must ever be the ideal of this great university. It was established in the name of Jesus Christ, who gave his life that all men might live.
+ - Even as we seek to be meek and to avoid contention, we must not compromise or dilute our commitment to the truths we understand.
+ - We should recognize that the Lord will speak to us through the Spirit in His own time and in His own way.
+ - Religious insights and values are just as important today as they were 50 or 100 years ago.
+ - We should recognize the reality that just because something is good is not sufficient reason for doing it. The number of good things we can do far exceeds the time available to accomplish them.
+ - Pray that you will have good and correct attitudes about all your experiences – be they good or bad.
+ - Those who are used to a clergy take very lightly those who do not have a formal divinity degree: like Paul and Peter and James and John.
+ - Faith is developed in a setting where we cannot see ahead.
+ - If our bodies are sick, we seek to heal them. We do not give up. The same thing should be true of our marriages.
+ - Spirituality is not a function of occupation or calling. A scientist may be more spiritual than a theologian; a teacher may be more spiritual than an officer. Spirituality is determined by personal outlook and priorities. It is evident in our words and actions.
+ - Loving-kindness is required, but a follower of Christ-just like the Master-will be firm in the truth.
+ - My experiences taught me firsthand that when a person is not performing well, there are many possible reasons, some not of his own choosing.
+ - Our earliest efforts will be heard with joy by our Heavenly Father, however they are phrased.
+ - It is not enough that we are under call or even that we are going in the right direction. The timing must be right.
+
+88 quotes

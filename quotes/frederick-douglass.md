@@ -1,0 +1,155 @@
+ - Without a struggle, there can be no progress.
+ - Knowledge makes a man unfit to be a slave.
+ - It is easier to build strong children than to repair broken men.
+ - Once you learn to read, you will be forever free.
+ - I prefer to be true to myself, even at the hazard of incurring the ridicule of others, rather than to be false, and to incur my own abhorrence.
+ - Education means emancipation. It means light and liberty. It means the uplifting of the soul of man into the glorious light of truth, the light by which men can only be made free.
+ - A gentleman will not insult me, and no man not a gentleman can insult me.
+ - You are not judged by the height you have risen, but from the depth you have climbed.
+ - Where justice is denied, where poverty is enforced, where ignorance prevails, and where any one class is made to feel that society is an organized conspiracy to oppress, rob and degrade them, neither persons nor property will be safe.
+ - Power concedes nothing without a demand. It never did and it never will.
+ - I would unite with anybody to do right and with nobody to do wrong.
+ - To suppress free speech is a double wrong. It violates the rights of the hearer as well as those of the speaker.
+ - I prayed for freedom for twenty years, but received no answer until I prayed with my legs.
+ - I didn’t know I was a slave until I found out I couldn’t do the things I wanted.
+ - I had as well be killed running as die standing.
+ - The white man's happiness cannot be purchased by the black man's misery.
+ - No man can put a chain about the ankle of his fellow man without at last finding the other end fastened about his own neck.
+ - The soul that is within me no man can degrade.
+ - The opposite of compromise is character.
+ - People might not get all they work for in this world, but they must certainly work for all they get.
+ - It is not light that we need, but fire; it is not the gentle shower, but thunder. We need the storm, the whirlwind, and the earthquake.
+ - What to the Slave is the 4th of July.
+ - In the struggle for justice, the only reward is the opportunity to be in the struggle. You can’t expect that you’re going to have it tomorrow. You just have to keep working on it.
+ - A slave is someone who sits down, and waits for someone to free them.
+ - Right is of no Sex-Truth is of no Color-God is the Father of us all, and we are all Brethren.
+ - You have seen how a man was made a slave; you shall see how a slave was made a man.
+ - One and God make a majority.
+ - The limits of tyrants are prescribed by the endurance of those whom they oppose.
+ - When a great truth once gets abroad in the world, no power on earth can imprison it, or prescribe its limits, or suppress it. It is bound to go on till it becomes the thought of the world.
+ - No man can be truly free whose liberty is dependent upon the thought, feeling and action of others, and who has himself no means in his own hands for guarding, protecting, defending and maintaining that liberty.
+ - Liberty is meaningless where the right to utter one’s thoughts and opinions has ceased to exist. That, of all rights, is the dread of tyrants. It is the right which they first of all strike down.
+ - This Fourth of July is yours, not mine. You may rejoice, I must mourn.
+ - I know of no rights of race superior to the rights of humanity.
+ - Those who profess to favor freedom, and yet depreciate agitation, are men who want crops without plowing up the ground.
+ - A man’s rights rest in three boxes: the ballot box, the jury box, and the cartridge box.
+ - What is possible for me is possible for you.
+ - Freedom is a road seldom traveled by the multitude.
+ - Liberty for all; chains for none.
+ - When men sow the wind it is rational to expect that they will reap the whirlwind.
+ - Our destiny is largely in our hands.
+ - There is no negro problem. The problem is whether the American people have loyalty enough, honor enough, patriotism enough, to live up to their own constitution.
+ - Some know the value of education by having it. I know it’s value by not having it.
+ - We have to do with the past only as we can make it useful to the present and the future.
+ - There is a class of people who seem to think that if a man should fall overboard into the sea with a Bible in his pocket it would hardly be possible to drown. I prayed for twenty years but received no answer until I prayed with my legs.
+ - What, to the American slave, is your Fourth of July? I answer: A day that reveals to him, more than all other days of the year, the gross injustices and cruelty to which he is the constant victim. To him your celebration is a sham.
+ - A man is worked on by what he works on.
+ - The life of the nation is secure only while the nation is honest, truthful, and virtuous.
+ - In a composite nation like ours, as before the law, there should be no rich, no poor, no high, no low, no white, no black, but common country, common citizenship, equal rights and a common destiny.
+ - A battle lost or won is easily described, understood, and appreciated, but the moral growth of a great nation requires reflection, as well as observation, to appreciate it.
+ - You degrade us and then ask why we are degraded. You shut our mouths and ask why we don’t speak. You close your colleges and seminaries against us and then ask why we don’t know.
+ - Neither we, nor any other people, will ever be respected till we respect ourselves and we will never respect ourselves till we have the means to live respectfully.
+ - The thing worse than rebellion is the thing that causes rebellion.
+ - A man without force, is without the essential dignity of humanity. Human nature is so constituted, that it cannot honor a helpless man, although it can pity him.
+ - A man’s character always takes its hue, more or less, from the form and color of things about him.
+ - The sunlight that has brought life and healing to you has brought stripes and death to me. This Fourth of July is yours, not mine.
+ - Oppression makes a wise man mad.
+ - At a time like this, scorching irony, not convincing argument, is needed.
+ - I recognize the Republican party as the sheet anchor of the colored man’s political hopes and the ark of his safety.
+ - It is better to be part of a great whole than to be the whole of a small part.
+ - Opportunity is important but exertion is indispensable.
+ - In life you don’t get everything you pay for, but you must pay for everything you get.
+ - It was unlawful, as well as unsafe, to teach a slave to read.
+ - The Constitution of the United States knows no distinction between citizens on account of color. Neither does it know any difference between a citizen of a state and a citizen of the United States.
+ - Find out just what any people will quietly submit to and you have the exact measure of the injustice and wrong which will be imposed on them.
+ - A little learning, indeed, may be a dangerous thing, but the want of learning is a calamity to any people.
+ - For of all slaveholders with whom I have ever met, religious slaveholders are the worst. I have ever found them the meanest and basest, the most cruel and cowardly, of all others.
+ - Educate your sons and daughters, send them to school, and show them that beside the cartridge box, the ballot box, and the jury box, you also have the knowledge box.
+ - The man who will get up will be helped up; and the man who will not get up will be allowed to stay down.
+ - Intelligence is a great leveler here as elsewhere.
+ - A great man, tender of heart, strong of nerve, boundless patience and broadest sympathy, with no motive apart from his country.
+ - Man’s greatness consists in his ability to do and the proper application of his powers to things needed to be done.
+ - We succeed, not alone by the laborious exertions of our faculties, be they small or great, but by the regular, thoughtful and systematic exercise of them.
+ - In all the relations of life and death, we are met by the color line.
+ - Slaves sing most when they are most unhappy. The songs of the slave represent the sorrows of his heart; and he is relieved by them, only as an aching heart is relieved by its tears.
+ - He who would be free must strike the first blow.
+ - I glory in conflict that I may hereafter exult in victory.
+ - Civil war was not a mere strife for territory and dominion, but a contest of civilization against barbarism.
+ - We are free to say that in respect to political rights, we hold women to be justly entitled to all we claim for men.
+ - Slaves were expected to sing as well as to work. A silent slave was not liked, either by masters or overseers.
+ - Fugitive slaves were rare then, and as a fugitive slave lecturer, I had the advantage of being the first one out.
+ - The silver trump of freedom had roused my soul to eternal wakefulness. Freedom now appeared, to disappear no more forever. It was heard in every sound, and seen in every thing.
+ - Men are whipped oftenest who are whipped easiest.
+ - Praying for freedom never did me any good til I started praying with my feet.
+ - Instead of the bright, blue sky of America, I am covered with the soft, grey fog of the Emerald Isle. I breathe, and lo! the chattel becomes a man.
+ - Men and women, old and young, married and single, were ranked with horses, sheep, and swine.
+ - I expose slavery in this country, because to expose it is to kill it. Slavery is one of those monsters of darkness to whom the light of truth is death.
+ - Truth is proper and beautiful in all times and in all places.
+ - To make a contented slave it is necessary to make a thoughtless one. It is necessary to darken the moral and mental vision and, as far as possible, to annihilate the power of reason.
+ - Shields Green was not one to shrink from hardships or dangers. He was a man of few words, and his speech was singularly broken; but his courage and self-respect made him quite a dignified character.
+ - As those who believe in the visibility of ghosts can easily see them, so it is always easy to see repulsive qualities in those we despise and hate.
+ - Beat and cuff your slave, keep him hungry and spiritless, and he will follow the chain of his master like a dog. Feed and clothe him well, work him moderately, surround him with physical comfort and dreams of freedom intrude.
+ - Who would be free themselves must strike the blow. Better even to die free than to live slaves.
+ - I love the religion of Christianity – which cometh from above – which is a pure, peaceable, gentle, easy to be entreated, full of good fruits, and without hypocrisy.
+ - What I ask for the Negro is not benevolence, not pity, not sympathy, but simply justice.
+ - Experience proves that those are oftenest abused who can be abused with the greatest impunity. Men are whipped oftenest who are whipped easiest.
+ - I do not think much of the good luck theory of self-made men. It is worth but little attention and has no practical value.
+ - A man who will enslave his own blood, may not be safely relied on for magnamity.
+ - I have observed this in my experience of slavery, that whenever my condition was improved, instead of increasing my contentment; it only increased my desire to be free, and set me thinking of plans to gain my freedom.
+ - American labor rights activist, on activities of the National Farm Workers Association Human law may know no distinction among men in respect of rights, but human practice may.
+ - The ballot is the only safety.
+ - Poverty, ignorance and degradation are the combined evils, these constitute the social disease of the free colored people of the US.
+ - Every tone was a testimony against slavery, and a prayer to God for deliverance from chains.
+ - The more I read, the more I was led to abhor and detest my enslavers.
+ - You have to take power. No one gives it.
+ - Interpreted as it ought to be interpreted, the constitution is a Glorious Liberty Document!
+ - If I have advocated the cause of the Negro, it is not because I am a Negro, but because I am a man.
+ - It is the mission of the printer to diffuse light and knowledge by a judicious intermingling of black with white.
+ - The simplest truths often meet the sternest resistance and are slowest in getting general acceptance.
+ - Going to live at Baltimore laid the foundation, and opened the gateway, to all my subsequent prosperity.
+ - To drag a man in fetters into the grand illuminated temple of liberty, and call upon him to join you in joyous anthems, were inhuman mockery and sacrilegious irony.
+ - The silver trump of freedom roused in my soul eternal wakefulness.
+ - I know no class of my fellowmen, however just, enlightened, and humane, which can be wisely and safely trusted absolutely with the liberties of any other class.
+ - Did John Brown fail? John Brown began the war that ended American slavery and made this a free Republic.
+ - Our community belongs to us and whether it is mean or majestic, whether arrayed in glory or covered in shame, we cannot but share its character and destiny.
+ - The thought of only being a creature of the present and the past was troubling. I longed for a future too, with hope in it. The desire to be free, awakened my determination to act, to think, and to SPEAK.
+ - I could, as a free man, look across the bay toward the Eastern Shore where I was born a slave.
+ - Allow us the dignity to fight for our own freedom.
+ - I have no accurate knowledge of my age, never having seen any authentic record containing it.
+ - The relation between the white and colored people of this country is the great, paramount, imperative, and all-commanding question for this age and nation to solve.
+ - Immense wealth, and its lavish expenditure, fill the great house with all that can please the eye, or tempt the taste. Here, appetite, not food, is the great desideratum.
+ - A war undertaken and brazenly carried for the perpetual enslavement of the colored men, calls logically and loudly for the colored men to help suppress it.
+ - Though conscious of the difficulty of learning without a teacher, I set out with high hope, and a fixed purpose, at whatever cost of trouble, to learn how to read.
+ - Viewed from the genuine abolition ground, Mr. Lincoln seemed tardy, cold, dull, and indifferent; but measuring him by the sentiment of his country, a sentiment he was bound as a statesman to consult, he was swift, zealous, radical, and determined.
+ - Abolition of slavery had been the deepest desire and the great labor of my life.
+ - The man who is right is a majority. He who has God and conscience on his side, has a majority against the universe.
+ - Yet people in general will say they like colored men as well as any other, but in their proper place.
+ - Power concedes nothing without demand. It never has and never will. Show me the exact amount of wrong and injustices that are visited upon a person and I will show you the exact amount of words endured by these people.
+ - I hear the mournful wail of millions!
+ - Now, take the Constitution according to its plain reading, and I defy the presentation of a single pro-slavery clause in it. On the other hand it will be found to contain principles and purposes, entirely hostile to the existence of slavery.
+ - America is false to the past, false to the present, and solemnly binds herself to be false to the future.
+ - The Federal Government was never, in its essence, anything but an anti-slavery government.
+ - Mr. Lincoln was not only a great President, but a great man – too great to be small in anything. In his company I was never in any way reminded of my humble origin, or of my unpopular color.
+ - Every one of us should be ashamed to be free while his brother is a slave.
+ - Heaven’s blessing must attend all, and freedom must soon be given to the pining millions under a ruthless bondage.
+ - This war, disguise it as they may, is virtually nothing more or less than perpetual slavery against universal freedoms.
+ - Let us render the tyrant no aid.
+ - They who study mankind with a whip in their hands will always go wrong.
+ - A government, founded on impartial liberty, where all have a voice and a vote, irrespective of color or of sex – what is there to hinder such a government from standing firm.
+ - Fortune may crowd a man’s life with fortunate circumstances and happy opportunities, but they will, as we all know, avail him nothing unless he makes a wise and vigorous use of them.
+ - I escaped from slavery and became a leading abolitionist and speaker.
+ - The more men you make free, the more freedom is strengthened, and the more men you give an interest in the welfare and safety of the State, the greater is the security of the State.
+ - From the first I saw no chance of bettering the condition of the freedman until he should cease to be merely a freedman and should become a citizen.
+ - No people to whom liberty is given can hold it as firmly and wear it as grandly as those who wrench their liberty from the iron hand of the tyrant.
+ - It’s a poor rule that won’t work both ways.
+ - The law on the side of freedom is of great advantage only when there is power to make that law respected.
+ - Slaves are generally expected to sing as well as to work.
+ - I am a Republican, a black, dyed in the wool Republican, and I never intend to belong to any other party than the party of freedom and progress.
+ - There are at present many Coloured men in the Confederate Army doing duty not only as cooks, servants and labourers, but real soldiers, having muskets on their shoulders, and bullets in their pockets.
+ - Let us render the tyrant no aid; let us not hold the light by which he can trace the footprints of our flying brother.
+ - My hopes were never brighter than now.
+ - A man, at times, gets something for nothing, but it will, in his hands, amount to nothing.
+ - The District of Columbia is the one spot where there is no government for the people, of the people and by the people.
+ - If we ever get free from all the oppressions and wrongs heaped upon us, we must pay for their removal. We must do this by labor, by suffering, by sacrifice, and, if needs be, by our lives, and the lives of others.
+
+153 quotes

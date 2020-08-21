@@ -1,0 +1,42 @@
+ - A good teacher can inspire hope, ignite the imagination, and instill a love of learning. ~~Brad Henry
+ - Teaching that impacts is not head to head, but heart to heart. ~~Howard G. Hendricks
+ - People learn the most when teaching others. ~~Peter F. Drucker
+ - No one rises to low expectations. ~~Les Brown
+ - While we teach, we learn. ~~Seneca the Younger
+ - The goal of education is the advancement of knowledge and the dissemination of truth. ~~John F. Kennedy
+ - Teaching is listening, learning is talking. ~~Deborah Meier
+ - I’m not a teacher: only a fellow traveler of whom you asked the way. I pointed ahead – ahead of myself as well as you. ~~George Bernard Shaw
+ - If you’re teaching today what you were teaching five years ago, either the field is dead or you are. ~~Noam Chomsky
+ - It is not enough to have a good mind; the main thing is to use it well. ~~René Descartes
+ - We learn by teaching. ~~James Howell
+ - Give the pupils something to do, not something to learn; and the doing is of such a nature as to demand thinking; learning naturally results. ~~John Dewey
+ - What a child can do today with assistance, she will be able to do by herself tomorrow. ~~Lev S. Vygotsky
+ - Education sows not seeds in you, but makes your seeds grow. ~~Khalil Gibran
+ - The best learning I had came from teaching. ~~Corrie ten Boom
+ - A teacher who cannot explain any abstract subject to a child does not himself thoroughly understand his subject; if he does not attempt to break down his knowledge to fit the child’s mind, he does not understand teaching. ~~Fulton J. Sheen
+ - All teaching and all intellectual learning come about from already existing knowledge. ~~Aristotle
+ - The greatest medicine of all is teaching people how not to need it. ~~Hippocrates
+ - The idea of karma is that you continually get the teaching that you need to open your heart. ~~Pema Chödrön
+ - Teaching is more than imparting knowledge, it is inspiring change. ~~William Arthur Ward
+ - Learning never exhausts the mind. ~~Leonardo da Vinci
+ - We have nothing to fear for the future, except as we shall forget the way the Lord has led us, and His teaching in our past history. ~~Ellen G. White
+ - The objective of education is learning, not teaching. ~~Russell L. Ackoff
+ - Psychiatry is the art of teaching people how to stand on their own feet while reclining on couches. ~~Sigmund Freud
+ - Teaching is a great way to keep learning. ~~Matthea Harvey
+ - I have a passion for teaching kids to become readers, to become comfortable with a book, not daunted. Books shouldn’t be daunting, they should be funny, exciting and wonderful; and learning to be a reader gives a terrific advantage. ~~Roald Dahl
+ - Take the attitude of a student, never be too big to ask questions, never know too much to learn something new. ~~Og Mandino
+ - The things taught in schools and colleges are not an education, but the means to an education. ~~Ralph Waldo Emerson
+ - Trials teach us what we are; they dig up the soil, and let us see what we are made of. ~~Charles H. Spurgeon
+ - Adventure is worthwhile in itself. ~~Amelia Earhart
+ - Curiosity is the wick in the candle of learning. ~~William Arthur Ward
+ - Psychology is a science, and teaching is an art; and sciences never generate arts directly out of themselves. ~~William James
+ - A fool sees not the same tree that a wise man sees. ~~William Blake
+ - Education is an admirable thing, but it is well to remember from time to time that nothing that is worth knowing can be taught. ~~Oscar Wilde
+ - From what we get, we can make a living; what we give, however, makes a life. ~~Arthur Ashe
+ - Knowledge is of two kinds. We know a subject ourselves, or we know where we can find information upon it. ~~Samuel Johnson
+ - What we need is more people who specialize in the impossible. ~~Theodore Roethke
+ - Teaching, may I say, is the noblest profession of all in a democracy. ~~Kurt Vonnegut
+ - We must not confuse dissent with disloyalty. When the loyal opposition dies, I think the soul of America dies with it. ~~Edward R. Murrow
+ - It is time for parents to teach young people early on that in diversity there is beauty and there is strength. ~~Maya Angelou
+
+40 quotes

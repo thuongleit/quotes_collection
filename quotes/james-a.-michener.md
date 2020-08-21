@@ -1,0 +1,77 @@
+ - Scientists dream about doing great things. Engineers do them.
+ - I love writing. I love the swirl and swing of words as they tangle with human emotions.
+ - If you reject the food, ignore the customs, fear the religion and avoid the people, you might better stay at home.
+ - Don’t put off for tomorrow what you can do today because if you enjoy it today, you can do it again tomorrow.
+ - We are never prepared for what we expect.
+ - Character consists of what you do on the third and fourth tries.
+ - I’m not a very good writer, but I’m an excellent rewriter.
+ - A nation becomes what its young people read in their youth. Its ideals are fashioned then, its goals strongly determined.
+ - An age is called Dark not because the light fails to shine, but because people refuse to see it.
+ - Never forget, son, when you represent Texas, always go first class.
+ - If your book doesn’t keep you up nights when you are writing it, it won’t keep anyone up nights reading it.
+ - The dead are dead but they rely on us to fulfill their hopes.
+ - If a man happens to find himself, he has a mansion which he can inhabit with dignity all the days of his life.
+ - I do believe that everyone growing up faces differential opportunities. With me, it was books and travel and some good teachers.
+ - The really great writers are people like Emily Bronte who sit in a room and write out of their limited experience and unlimited imagination.
+ - America is a nation with many flaws, but hopes so vast that only the cowardly would refuse to acknowledge them.
+ - All I can do is play the game the way the cards fall.
+ - The job of a storyteller is to tell stories, and I have concentrated on that obligation.
+ - When I was a child in the Navy during World War II, I was perennially grateful to the armed services libraries for having on hand a good supply of those pocket books, which were so common in that period. I must have read a couple hundred of them, and they did a lot to save my sanity.
+ - I’ve spent my life trying to be better than I was, and I am a brother to all who share the same aspiration.
+ - The permanent temptation of life is to confuse dreams with reality. The permanent defeat of life comes when dreams are surrendered to reality.
+ - I think young people ought to seek that differential experience that is going to knock them off dead center. I was a typical American school boy. I happened to get straight A’s and be pretty good in sports. But I had no great vision of what I could be. And I never had any yearning.
+ - The sense of belonging is one of the great gifts men get in battle.
+ - No invader has ever conquered the heart of Poland, that spirit which is the inheritance of sons and daughters, the private passion of families and the ancient, unbreakable tie to all those who came before.
+ - On 24 October 1944 Planet Earth was following its orbit about the sun as it has obediently done for nearly five billion years.
+ - It takes courage to know when you ought to be afraid.
+ - There are no insoluble problems. Only time-consuming ones.
+ - I think the bottom line is that if you get through a childhood like mine, it’s not at all bad. Obviously, you come out a pretty tough turkey, and you have had all the inoculations you need to keep you on a level keel for the rest of your life. The sad part is, most of us don’t come out.
+ - Writers turn dreams into print.
+ - I was once asked if I’d like to meet the president of a certain country. I said, “No, but I’d love to meet some sheepherders.” The sheepherders, farmers and taxi drivers are often the most interesting people.
+ - It heartens me to think of Verdi who composed thundering operas in his eighties; Michelangelo who did fine work in his ninetieth year, and Titian, who painted better than ever in his one hundredth.
+ - When this is over, I’m not going to be the same guy. I’m going to live as if I were a great man.
+ - Rampaging horsemen can conquer; only the city can civilize.
+ - As a younger man I wrote for eight years without ever earning a nickel which is a long apprenticeship, but in that time I learned a lot about my trade.
+ - Things are going to go wrong, and I think we are false to life if we don’t portray it. But there is also the hope that some lucky clown is going to come along and stumble into the gold mine. And I think you are also entitled to hold out that hope.
+ - I had been educated with free scholarships. I went to nine different universities, always at public expense, and when you have that experience, you are almost obligated to give it back. It’s as simple as that.
+ - For this is the journey that men and women make, to find themselves. If they fail in this, it doesn’t matter much else what they find.
+ - You don’t fight to protect warships or old men. Like the book says, you fight to save your civilization. And so often it seems that civilization is composed mainly of the things women and children want.
+ - I think young people ought to seek the experience that is going to knock them off center.
+ - First buy a cowboy hat and boots. Then you’re on your way to being a Texan.
+ - It was the silent time before dawn, along the shores of what had been one of the most beautiful lakes in southern Africa.
+ - I have never thought of myself as a good writer. Anyone who wants reassurance of that should read one of my first drafts. But I’m one of the world’s great rewriters.
+ - No man leaves where he is and seeks a distant place unless he is in some respect a failure.
+ - Religious hatreds ought not to be propagated at all, but certainly not on a tax-exempt basis.
+ - It is difficult to be king when the gods are changing.
+ - Animals form an inalienable fragment of nature, and if we hasten the disappearance of even one species, we diminish our world and our place in it.
+ - Public libraries have been a mainstay of my life. They represent an individual’s right to acquire knowledge; they are the sinews that bind civilized societies the world over. Without libraries, I would be a pauper, intellectually and spiritually.
+ - I was brought up in the great tradition of the late nineteenth century: that a writer never complains, never explains and never disdains.
+ - The extreme geniality of San Francisco’s economic, intellectual and political climate makes it the most varied and challenging city in the United States.
+ - I was a Navy officer writing about Navy problems and I simply stole this lovely Army nurse and popped her into a Navy uniform, where she has done very well for herself.
+ - I was surprised when shortly after New Year’s Day of 1983, the Governor of Texas summoned me to his office, because I hadn’t been aware that he knew I was in town.
+ - The decent thing to do is to get rid of some of this money.
+ - A writer can make a fortune in America, but he can’t make a living.
+ - The rules seem to be these: If you have written a successful novel, everyone invites you to write short stories. If you have written some good short stories, everyone wants you to write a novel. But nobody wants anything until you have already proved yourself by being published somewhere else.
+ - If a young aspirant had a modicum of skill and a busy typewriter she or he would sooner or later get a foothold in one of the magazines and a leaping start on the ladder upward.
+ - If I were a young man, I would not hesitate at writing anything to get into print, except pornography.
+ - I wondered how a man ever got an English girl into bed. What did they do with her hockey stick?
+ - Contrary to what people think, I slave over my books.
+ - In a small Polish farm community, during the fall planting season of 1981, events occurred which electrified the world, sending reverberations of magnitude to capitals as diverse as Washington, Peking and especially Moscow.
+ - About a billion years ago, long before the continents had separated to define the ancient oceans, or their own outlines had been determined, a small protuberance jutted out from the northwest corner of what would later become North America.
+ - During my lifetime I have met dozens of writers and photographers in dozens of different countries. But I have encountered no one who could both write and photograph with the artistry of Robert Vavra.
+ - Creative geniuses are a slap-happy lot. Treat Them with respect.
+ - I have only one bit of advice to beginning writers: be sure your novel is read by Rodgers and Hammerstein.
+ - Russia, France, Germany and China. They revere their writers. America is still a frontier country that almost shudders at the idea of creative expression.
+ - I am terrified of restrictive religious doctrine, having learned from history that when men who adhere to any form of it are in control, common men like me are in peril.
+ - No idea is ever dead until those who believe in it say it’s dead.
+ - You write that first draft really to see how it’s going to come out.
+ - You have to be eligible for luck to strike, and I think that’s a matter of education and preparation, and character and all the other solid attributes that sometimes people laugh at.
+ - As a writer I have persisted in my uncertainty, alternating between novels which could charitably be considered literature and world reporting which by another stretch of objective standards might be called history.
+ - I never wrote anything that was published until I was forty.
+ - Many people who want to be writers don’t really want to be writers. They want to have been writers. They wish they had a book in print.
+ - Only another writer, someone who had worked his heart out on a good book which sold three thousand copies, could appreciate the thrill that overcame me one April morning in 1973 when Dean Rivers of our small college in Georgia appeared at my classroom door.
+ - The arrogance of the artist is a very profound thing, and it fortifies you.
+ - I think the crucial thing in the writing career is to find what you want to do and how you fit in. What somebody else does is of no concern whatever except as an interesting variation.
+ - They were a group of two dozen nurses completely surrounded by 100,000 unattached American men.
+
+75 quotes

@@ -1,0 +1,25 @@
+ - You only get one shot at a second chance.
+ - I have two secret weapons – my legs, my arms and my brain.
+ - I’m willing to deal with the consequences and accept responsibility for my actions.
+ - What I did, you know, being away from my family, letting so many people down. I let myself down, not being out on the football field, being in a prison bed, in a prison bunk, writing letters home, you know. That wasn’t my life.
+ - If it’s meant to be for you, it’s going to happen.
+ - It was hard to get away from all of the people that I thought had my best interest at heart, and they really didn’t.
+ - I don’t think the NFL has ever seen the likes of me, a quarterback who moves the way I do and throws the way I do. I’m not saying that with arrogance or anything. That is just how I feel.
+ - Sometimes as a man, you fear what you can’t see. Nobody can predict the future. You don’t know what’s going to happen. Tomorrow’s not promised. The only thing you can do is live your life, hope for the best, continue to have faith, believe in yourself.
+ - Forever. My brother is not a bad person. The best thing for Marc now is leaving college, getting away from a bunch of people he was around every day. Now he’ll have a chance to play in the NFL and have somebody who can be there with him and can guide him in the right direction.
+ - People respect me; I respect them. I’ll never change. I realize who I am.
+ - Sports kept me off the streets. It kept me from getting into what was going on, the bad stuff.
+ - I miss dogs, man. I always had a family pet, always had a dog growing up. It was almost equivalent to the prison sentence, having something taken away from me for three years. I want a dog just for the sake of my kids, but also me. I miss my companions.
+ - During my time in prison, I told myself that I wanted to be a part of the solution and not the problem.
+ - I know I’m good. I know I got game.
+ - It’s good to have critics because that’s what motivates you and helps you take your game to another level.
+ - I would like to own a dog in the future. I think it would be a big step for me in the rehabilitation process.
+ - I’m probably better than I ever was in my career, as far as the mental aspect of the game.
+ - Use me as an example of an instrument of change.
+ - Once I decided football was the way for me, there was no looking back. Nothing was going to distract me.
+ - I know I can still play at a high level.
+ - I trust my arm as much as I trust my legs.
+ - Everybody who knows me knows how I get down.
+ - I have always been an outstanding football player, I have always had uncanny abilities, great arm strength, an immense ability to play the game from a quarterback standpoint. The problem was that I wasn’t given the liberty to do certain things when I was young.
+
+23 quotes

@@ -1,0 +1,53 @@
+ - See what no one else sees. See what everyone chooses not to see – out of fear, conformity, or laziness. See the whole world anew each day.
+ - Spread joy. Chase your wildest dreams.
+ - The purpose of a doctor or any human in general should not be to simply delay the death of the patient, but to increase the person’s quality of life.
+ - If you focus on the problem, you can’t see the solution. Never focus on the problem.
+ - The most radical act anyone can commit is to be happy.
+ - Humor is an antidote to all ills.
+ - Laughter boosts the immune system and helps the body fight off disease, cancer cells as well as viral, bacterial and other infections. Being happy is the best cure of all diseases!
+ - You’ve got to know what you want. This is central to acting on your intentions. When you know what you want, you realize that all there is left then is time management. You’ll manage your time to achieve your goals because you clearly know what you’re trying to achieve in your life.
+ - Excellence in health means devoting your life to ending poverty.
+ - For me, spiritual means love in action. So if you are working for love, then you are a spiritual person.
+ - Please give your life to peace, justice and care.
+ - I love you without knowing how, why, or even from where.
+ - Every human being has an impact on another.
+ - When I was a girl I would look out my bedroom window at the caterpillars; I envied them so much. No matter what they were before, no matter what happened to them, they could just hide away and turn into these beautiful creatures that could fly away completely untouched.
+ - One cannot separate the health of the individual from the health of the community, from the health of the world.
+ - The role of a clown and a physician are the same – it’s to elevate the possible and to relieve suffering.
+ - I am a Doctor, but above all else I consider myself an activist for peace, justice and care for all people.
+ - At the age of 18, I made up my mind to never have another bad day in my life. I dove into a endless sea of gratitude from which I’ve never emerged.
+ - We need each other, deeper than anyone ever dares to admit even to themselves. I think it is a genetic imperative that we huddle together and hold on to each other. There is no question in my mind that there is nothing else in life, really, than friendship.
+ - I’d say that I think the most revolutionary act that you can commit in our society today is to be happy.
+ - The value of friendship and just deep human contact grows out of giving.
+ - The reason adults should look as though they are having fun, is to give kids a reason to want to grow up.
+ - We can never get a re-creation of community and heal our society without giving our citizens a sense of belonging.
+ - I think my government are fascists. I feel that if we don’t change from a society that worships money and power over to one that worships compassion and generosity, there is no hope for human survival this century.
+ - I want to live in a world where people become famous because of their work for peace and justice and care. I want the famous to be inspiring; their lives an example of what every human being has it in them to do – act from love!
+ - Nature tops the list of potent tranquilizers and stress reducers. The mere sound of moving water has been shown to lower blood pressure.
+ - I like giving. Doing something for somebody else feels good.
+ - When I hear real faithful people – whether it’s a real Christian, or a real Buddhist, or a real Muslim – I hear them use the language I use for a friend. So my metaphor for God is friend.
+ - Because we are interested in promoting wellness, we will integrate medicine with performing arts, arts and crafts, agriculture, recreation, nature, and social service.
+ - When a dream takes hold of you, what can you do? You can run with it, let it run your life, or let it go and think for the rest of your life about what might have been.
+ - Nothing I study makes me think we will survive this century. And yet why am I so happy? Because it’s not too late. Just get off your ass and work for revolution.
+ - Please live a healthy life – medicine is an imperfect science.
+ - It’s such a paradox for them to say, “Oh, my God, I’ve thrown away my life,” and continue to do that for the last month of their life. I shake them, physically shake them, and say, “What about now? What about now?”
+ - People crave laughter as if it were an essential amino acid.
+ - I’m great at a deathbed. I’ve never given tranquillisers or psychiatric medicine. I’ve given love and fun and creativity and passion and hope, and these things ease suffering.
+ - Givers get trust quicker than other people. People trust generous people.
+ - Waiting in line is a great opportunity to meet people, daydream, or play.
+ - All the messages our kids are getting is money-taking, not giving.
+ - Jump for joy as we accomplish the dreams we adore.
+ - The Gesundheit Institute is a pie in the face of greed – by taking the most expensive thing in America, health care, and giving it away for free.
+ - I’m a raging leftist political activist. I’ve never had a spiritual thought in my life related to God. I’m clear that that’s a human invention.
+ - Unlike a lot of people, I don’t feel powerless. I know I can do something. But anyone can do something, it’s not about being special. It’s about deciding to do it – to dive into work for peace and justice and care for everybody on the planet.
+ - My first reaction was that the adult world was fake and liars and basically worked for money and power. I didn’t want to live in that world, so I spent a year, aged 17 to 18, trying to kill myself. I didn’t want to live in a world of violence and injustice.
+ - I am extremely intentional in making the environment around me playful and loving. I have great skill in that area.
+ - I’ve never made a penny being a doctor, so that makes it not a job. My sense of a doctor is that one is a presence caring for health. So I’m never not a doctor. People call me from all over the world who are hurting, and I care for them. Chatting is what more people want than anything.
+ - Every problem in history is due to men, so I’m basically asking for humanity to nest itself in a feminine culture, probably for the next 1,000 years.
+ - We men should be ashamed of ourselves. I think 85 percent of men are dangerous to women. We need to change to a values system nested in compassion and generosity, and women have carried that torch throughout history.
+ - For most of human history, we lived communally in groups, and it was part of the security and nature of groups to help each other and groom each other.
+ - What I really want is a world where no one alive can remember what the word ‘war’ means. That’s my goal.
+ - We have to end the capitalist system. We have to make love our value. You are rich when you love and you are rich when you are giving away your time and what you have to help other people.
+ - People like givers, people want to help givers. I get stuff all the time.
+
+51 quotes

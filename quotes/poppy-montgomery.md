@@ -1,0 +1,21 @@
+ - I’m the girliest girl you’ll ever meet.
+ - I always try to make things fun.
+ - When I get it into my head that I want to do something, I do it.
+ - I’m outspoken and I’m headstrong.
+ - I have spent too long training myself to speak with an American accent, it’s ingrained. I spend 16 hours a day on set speaking with an American accent. Now, when I try to speak with an Aussie accent, I just sound like a caricature of myself.
+ - Women are supposed to want to settle down and have a family. That’s not for me.
+ - When you spend seven years with a group of people and suddenly you’re not together, it’s very jarring.
+ - Every rule should be broken at least one time.
+ - There is nothing that anyone can say to prepare you for childbirth. Each woman’s experience is so different; you never know how it will be for you!
+ - When it comes to guys, make sure you are treated like a princess, always.
+ - I got expelled from every school I went to in Sydney.
+ - I love men – everything about them: the way they look, the way they smell, the way they feel. I love their minds.
+ - Exercise makes me a better parent. I’m calmer and happier.
+ - Hollywood’s full of transients. Everybody comes from somewhere else.
+ - I should have been a stuntwoman.
+ - You can make all the birth plans in the world, but at the end of the day – go with the flow.
+ - Maybe I’m secretly in my soul a method actor.
+ - I talk about being Australian a lot.
+ - I was never tomboyish. I loved Barbies. It’s just the way I grew up.
+
+19 quotes

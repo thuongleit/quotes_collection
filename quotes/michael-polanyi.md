@@ -1,0 +1,26 @@
+ - We know more than we can tell.
+ - While tacit knowledge can be possessed by itself, explicit knowledge must rely on being tacitly understood and applied. Hence all knowledge is either tacit or rooted in tacit knowledge. A wholly explicit knowledge is unthinkable.
+ - I shall suggest, on the contrary, that all communication relies, to a noticeable extent on evoking knowledge that we cannot tell, and that all our knowledge of mental processes, like feelings or conscious intellectual activities, is based on a knowledge which we cannot tell.
+ - The first thing to make clear is that scientists, freely making their own choice of problems and pursuing them in the light of their own personal judgment, are in fact co-operating as members of a closely knit organization.
+ - Personal participation is the universal principle of knowing.
+ - The information in DNA could no more be reduced to the chemical than could the ideas in a book be reduced to the ink and paper: something beyond physics and chemistry encoded DNA.
+ - Human beings exercise responsibilities within a social setting and a framework of obligations which transcend the principle of intelligence.
+ - We could not, for example, arrive at a principle like that of entropy without introducing some additional principle, such as randomness, to this topography.
+ - Discoveries are made by pursuing possibilities suggested by existing knowledge.
+ - So long as we use a certain language, all questions that we can ask will have to be formulated in it and will thereby confirm the theory of the universe which is implied in the vocabulary and structure of the language.
+ - Of course language manifests a belief only if we use its words with the implied acceptance of their appositeness.
+ - No inanimate object is ever fully determined by the laws of physics and chemistry.
+ - The process of philosophic and scientific enlightenment has shaken the stability of beliefs held explicitly as articles of faith.
+ - These maxims and the art of interpreting them may be said to constitute the premisses of science but I prefer to call them our scientific beliefs. These premisses or beliefs are embodied in a tradition, the tradition of science.
+ - Admittedly, scientific authority is not distributed evenly throughout the body of scientists; some distinguished members of the profession predominate over others of a more junior standing.
+ - My title is intended to suggest that the community of scientists is organized in a way which resembles certain features of a body politic and works according to economic principles similar to those by which the production of material goods is regulated.
+ - But even physics cannot be defined from an atomic topography.
+ - And the actual achievements of biology are explanations in terms of mechanisms founded on physics and chemistry, which is not the same thing as explanations in terms of physics and chemistry.
+ - Our reliance on the validity of a scientific conclusion depends ultimately on a judgment of coherence; and as there can exist no strict criterion for coherence, our judgment of it must always remain a qualitative, nonformal, tacit, personal judgment.
+ - A free society is regarded as one that does not engage, on principle, in attempting to control what people find meaningful, and a totalitarian society is regarded as one that does, on principle, attempt such control.
+ - I hold that the propositions embodied in natural science are not derived by any definite rule from the data of experience, and that they can neither be verified nor falsified by experience according to any definite rule.
+ - But the system of prices ruling the market not only transmits information in the light of which economic agents can mutually adjust their actions, it also provides them with an incentive to exercise economy in terms of money.
+ - Theories of evolution must provide for the creative acts which brought such theories into existence.
+ - Admittedly, the body of scientists, as a whole, does uphold the authority of science over the lay public. It controls thereby also the process by which young men are trained to become members of the scientific profession.
+
+24 quotes

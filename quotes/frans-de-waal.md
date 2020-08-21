@@ -1,0 +1,78 @@
+ - Human morality is unthinkable without empathy.
+ - You need to indoctrinate empathy out of people in order to arrive at extreme capitalist positions.
+ - To endow animals with human emotions has long been a scientific taboo. But if we do not, we risk missing something fundamental, about both animals and us.
+ - I think we need to start thinking about grounding our moral systems in our biology.
+ - Darwin wasn’t just provocative in saying that we descend from the apes – he didn’t go far enough. We are apes in every way, from our long arms and tailless bodies to our habits and temperament.
+ - Religions have a strong binding function and a cohesive element. They emphasize the primacy of the community as opposed to the individual, and they also help set one community apart from another that doesn’t share their beliefs.
+ - Humans have a lot of pro-social tendencies.
+ - The sturdiest pillars of human morality are compassion and a sense of justice.
+ - If we look straight and deep into a chimpanzee’s eyes, an intelligent self-assured personality looks back at us. If they are animals, what must we be?
+ - We are territorial, power-hungry and even more brutal than chimpanzees.
+ - Female bonobos form a strong sisterhood. They rule through female solidarity.
+ - The thinking is that we started evolving language not by speaking but by gesturing.
+ - Although elephants are far more distantly related to us than the great apes, they seem to have evolved similar social and cognitive capacities.
+ - I am personally not against keeping animals at zoos, as they serve a huge educational purpose, but treating them well and with respect seems the least we could do, and with ‘we’ I mean not just zoo staff, but most certainly also the public.
+ - I describe in ‘Chimpanzee Politics’ how the alpha male needs broad support to reach the top spot. He needs some close allies and he needs many group members to be on his side.
+ - It wasn’t God who introduced us to morality; rather, it was the other way around. God was put into place to help us live the way we felt we ought to.
+ - Most exotic animals are not particularly interested in people, which makes it hard to provoke them. Human-rearing gets them used to and sometimes imprinted on humans, which makes them potentially dangerous.
+ - Octopuses have hundreds of suckers, each one equipped with its own ganglion with thousands of neurons. These ‘mini-brains’ are interconnected, making for a widely distributed nervous system. That is why a severed octopus arm may crawl on its own and even pick up food.
+ - Male bonobos really don’t fit the human male ideal.
+ - The development of family entities enables men to cooperate far more effectively. Instead of constantly competing for the women with other men, each man essentially has a partner assigned to him, one with whom he can establish a family.
+ - War is evitable if conditions are such that the costs of making war are higher than the benefits.
+ - In humans, the family prevents infanticide. Next to language, the core family, consisting of a mother, a father and children, is the greatest difference between us and other primates.
+ - Dogmatists have one advantage: they are poor listeners.
+ - Empathy as a complex emotion is different. It requires awareness of the other person’s feelings and of one’s own reactions. The appropriate reaction may not be to cry when another person cries, but to reassure them, or even to leave them alone.
+ - Religion may have become a codification of morality, and it may fortify it, but it’s not the origin of it.
+ - Unlike the primate hand, the elephant’s grasping organ is also its nose. Elephants use their trunks not only to reach food but also to sniff and touch it. With their unparalleled sense of smell, the animals know exactly what they are going for. Vision is secondary.
+ - After World War II it was decided that, in order to prevent the Germans and the French from having another war, it would be better to tie them together into one economic pact so they would invest in each other and have mutual stakes. Until now, that has worked to prevent warfare between the two.
+ - It is hard to get animals which normally pay little attention to each other to do things together. One can teach dolphins to jump simultaneously out of the water precisely because they show similar behavior spontaneously, but try to make two domestic cats jump together and you will fail.
+ - In Africa, we have the bush meat trade, which means that, on a very large scale, animals are being killed in the forests and sold in the cities as a luxury food.
+ - Personally, I think it is possible to build a society that is moral on a nonreligious basis, but the jury is still out on that.
+ - When it comes to social interaction, the chimpanzees appear to be just as intelligent as we are.
+ - People want to work with somebody who feels shame, who worries about the perceptions of others. Dishonesty is something we don’t like in others.
+ - The chimpanzees could tear me apart in no time. They’re many times stronger than we are.
+ - If I were God, I’d work on the reach of empathy.
+ - If you look at national economies today, for example, the American economy, the European economy, the Indians, the Chinese, we’re all tied together. If one of them sinks, the rest are going to sink with them and if one floats, the rest are lifted up. I find that very interesting.
+ - When someone brutally kills someone else, we call him “animalistic.” But we consider ourselves “human” when we give to the poor.
+ - We justify the inequalities by saying some people are just better and smarter than others and the strong should survive and the poor can die off.
+ - We are by far the most contradictory of all primates. An animal with this much internal conflict has never lived on this earth.
+ - Wild groups of chimpanzees attack their enemies like gangs. What they completely lack, precisely because of their strong territorial behavior, is a friendly relationship with their neighbors.
+ - The intuitive connection children feel with animals can be a tremendous source of joy. The unconditional love received from pets, and the lack of artifice in the relationship, contrast sharply with the much trickier dealings with members of their own species.
+ - The possibility that empathy resides in parts of the brain so ancient that we share them with rats should give pause to anyone comparing politicians with those poor, underestimated creatures.
+ - The evolutionary struggle for survival is really a self-serving series of blows and stabs, and yet it can lead to extremely social animals like dolphins, wolves or, for that matter, primates.
+ - As far as the environment is concerned, I am becoming pessimistic because I do not see anybody stepping up and taking the long view approach. It seems like we’re stuck in a tragedy of the commons where everyone is trying to contribute as little as possible to get out of this situation.
+ - Armies are a purely human invention. Most soldiers who go to war nowadays don’t even do it because they’re inherently aggressive.
+ - Science is not inherently good.
+ - Bonobo studies started in the ’70s and came to fruition in the ’80s. Then in the ’90s, all of a sudden, boom, they ended because of the warfare in the Congo. It was really bad for the bonobo and ironic that people with their warfare were preventing us from studying the hippies of the primate world.
+ - Chimpanzees, typically, kiss and embrace after fights. They first make eye contact from a distance to see the mood of the others. Then they approach and kiss and embrace.
+ - Morality, after all, has nothing to do with selflessness. On the contrary, self-interest is precisely the basis of the categorical imperative.
+ - Male chimpanzees have an extraordinarily strong drive for dominance. They’re constantly jockeying for position.
+ - The more self-aware an animal is, the more empathetic it tends to be.
+ - I’m personally a nonbeliever, so I’m struggling with if we really need religion.
+ - There’s actually a lot of evidence in primates and other animals that they return favors.
+ - If both parties have a stake in the other, the chances of them killing each other are going to be reduced.
+ - Socialism cannot function, because its economic reward structure is contrary to human nature.
+ - Studies of reconciliation in primates have demonstrated that if the relationship value increases between two parties they are more willing to make peace.
+ - If you want to design a successful human society, you need to know what kind of animal we are. Are we a social animal or a selfish animal? Do we respond better when we’re solitary or living in a group?
+ - The primate laugh is given in playful contexts, and as such has a strong similarity to the human laugh.
+ - The hamadryas baboon is a harem holder where one male mates with multiple females.
+ - It is well known that apes in the wild offer spontaneous assistance to each other, defending against leopards, say, or consoling distressed companions with tender embraces.
+ - The original form is the contagion of fear and alarm. You’re in a flock of birds. One bird suddenly takes off. You have no time to wait and see what’s going on. You take off, too. Otherwise, you’re lunch.
+ - Competitiveness is just as much a part of our nature as empathy. The ideal, in my view, is a democratic system with a social market economy, because it takes both tendencies into account.
+ - Future benefits rarely figure in the minds of animals.
+ - We, who think like animals living in small groups, must structure a global world. We believe in universal human rights and believe racism and war are wrong. On the other hand, it is our nature to be cooperative and loving almost exclusively with the members of the group to which we feel we belong.
+ - When we are bad, we are worse than any primate that I know. And when we are good, we are actually better and more altruistic than any primate that I know.
+ - There is little evidence that other animals judge the appropriateness of actions that do not directly affect themselves.
+ - The fact that the apes exist and that we can study them is extremely important and makes us reflect on ourselves and our human nature. In that sense alone, you need to protect the apes.
+ - I was raised Catholic. Not just a little bit Catholic, like my wife, Catherine. When she was young, many Catholics in France already barely went to church, except for the big three: baptism, marriage, and funeral. And only the middle one was by choice.
+ - We would much rather blame nature for what we don’t like in ourselves than credit it for what we do like.
+ - I call the notion that we are nothing but killer apes the Beethoven fallacy. Beethoven was disorganized and messy, and yet his music is the epitome of order.
+ - The role of inequity in society is grossly underestimated. Inequity is not good for your health, basically.
+ - Perhaps it’s just me, but I am wary of any persons whose belief system is the only thing standing between them and repulsive behavior.
+ - A chimpanzee who is really gearing up for a fight doesn’t waste time with gestures but just goes ahead and attacks.
+ - Empathy probably started out as a mechanism to improve maternal care. Mammalian mothers who were attentive to their young’s needs were more likely to rear successful offspring.
+ - I have often noticed how primate groups in their entirety enter a similar mood. All of a sudden, all of them are playful, hopping around. Or all of them are grumpy. Or all of them are sleepy and settle down. In such cases, the mood contagion serves the function of synchronizing activities.
+ - You should know as much as you can about the human species if you have a hand in designing human society.
+ - To neglect the common ground with other primates, and to deny the evolutionary roots of human morality, would be like arriving at the top of a tower to declare that the rest of the building is irrelevant, that the precious concept of “tower” ought to be reserved for the summit.
+
+76 quotes

@@ -1,0 +1,73 @@
+ - Timing, perseverance, and ten years of trying will eventually make you look like an overnight success.
+ - Even the simplest tools can empower people to do great things.
+ - If you take an idea and just hold it in your head, you unconsciously start to do things that advance you toward that goal.
+ - Success isn’t guaranteed, but failure is certain if you aren’t truly emotionally invested in your work.
+ - When you hand good people possibility, they do great things.
+ - Willingness to take risks is the path to success.
+ - Constraint inspires creativity. When our backs are against the wall we come up with some amazing things.
+ - There’s no such thing as a superhero, but together we can spin the world in a new direction.
+ - Inventing your dream is the first and biggest step toward making it come true.
+ - In any leadership position, you’re always going to be disappointing somebody.
+ - Embrace your constraints.
+ - Opportunity is manufactured.
+ - If you make the opportunity, you’ll be first in position to take advantage of it.
+ - Design is a career where you learn creative decision making.
+ - Creativity comes from constraint.
+ - In order to succeed spectacularly you have to be willing to fail spectacularly.
+ - The reason I really started running was for meditative purposes. I would pick some problem to have in my head while running.
+ - I’m curious about writing in the age of online publishing. Because nobody cares about good writing online.
+ - You can shut down a service, and yet people will find ways to communicate.
+ - I haven’t been paying attention to politics long enough to have really smart opinions.
+ - People first. Technology second.
+ - Creativity is a renewable resource. Challenge yourself every day. Be as creative as you like, as often as you want, because you can never run out. Experience and curiosity drive us to make unexpected, offbeat connections. It is these nonlinear steps that often lead to the greatest work.
+ - You have to have an emotional investment in what you’re doing. If you don’t love what you’re doing, failure is pretty much guaranteed.
+ - A Twitter update is simple and fast and gets the information and news, and it spreads it very quickly, and it can contain links so you can then link to this whole context of information.
+ - The two things I use the most are the MacBook Air and my iPhone. Those are my two most-used gadgets that are dented, scratched and smashed.
+ - Positive culture comes from being mindful, and respecting your coworkers, and being empathetic.
+ - We hired a CSR person at Twitter, years before we hired our first sales person, to make sure we had a culture and impact of doing good.
+ - You curate information that you want to receive. It’s a lot different because I’m not asking you if it’s okay, I’m just saying I’m following your updates. That’s why I don’t think of Twitter as a social network.
+ - Constraint inspires creativity.
+ - Twitter provides a great amount of timely information, but we still need those people to fill out the rest of the story and the context.
+ - The normal press cycle is to put a company on a pedestal and then knock it down. It’s much more interesting that way.
+ - Even though running is physically straining, it’s mentally refreshing. Especially when you feel like you’ve accomplished something.
+ - The determination that led me to create a new sports team taught me an important lesson: opportunity is manufactured.
+ - When a plane lands in the Hudson and there’s a Twitter user on the ferry taking a picture of it, Boom. That’s it. The water is still splashing. Here’s the photo of the thing.
+ - A personal belief is that if you’re not personally invested in what you’re working on, you’ll fail.
+ - Creativity is an infinitely renewable resource – you are not going to run out of it – so don’t be afraid to use it.
+ - Doing startups is all about making mistakes.
+ - People are watching TV, they’re watching some clips on their iPhone. I mean, some folks are sitting there on the iPhone, watching the Colbert Report, and meanwhile there’s a huge plasma TV right in front of them that they could be watching it on.
+ - We can figure it out, it’s not like we all have a disease.
+ - I’ve probably overused this analogy of a flock of birds moving around an object in flight, but, in reality, it’s so simple, real time communication of individuals that allow for this super organism type of organism to happen.
+ - When you think about Twitter, there are people all around the world reporting twenty-four seven, every second. They’re reporting what they’re seeing and what’s happening around them. So there’s a lot of potential for breaking news.
+ - I realized ceativity is a renewable resource. You never run out of good ideas.
+ - We can break news really fast. When an earthquake happens, there are people Twittering about it.
+ - I don’t think of Twitter as a social network. I think of it as a messaging system that has a lot of social components to it.
+ - It’s important to credit the brave people that take chances to stand up to regimes. They’re the star.
+ - I’ve seen people twitter in haiku only.
+ - I knew Mac pretty well. I’d used them when I was younger.
+ - With Twitter, it’s as easy to unfollow as it is to follow.
+ - There’s a lot of social input when you put these things out there. People’s ideas cross with other people’s thoughts.
+ - I’d dropped out of college to start design thing.
+ - I think Twitter has brought something totally new to the table.
+ - I think of Twitter as a messaging system that you didn’t know you needed until you had it. Think about when cell phones first started coming out. People said, “Why would I carry my phone around?” And now you’ll drive back to your house thirty miles if you forget your cell phone.
+ - I started out as an artist, and I continue to think of myself as an artist first, and a technologist and entrepreneur after that.
+ - If people are passionate about your product, whether it’s because they’re hating or loving it, those are both good scenarios.
+ - I never even graduated college. I never finished learning, as it were, and I have a psychological need to be in a learning environment at all times.
+ - This idea that the open exchange of information can have a positive global impact is being proven over and over again around the world nearly on a daily basis – and for Secretary Clinton to recognize that, I think, is a huge step.
+ - When I studied graphic design, I learned a valuable lesson: There’s no perfect answer to the puzzle, and creativity is a renewable resource.
+ - I got an idea: people like news why don’t we write the news down on a piece of paper, and we’ll gas them up and drive them to everyone’s house. I mean, if you were going to say that now, it doesn’t sound like a great idea, because there are other ways you can distribute the news.
+ - I mean, even when it’s really simple, there’s so much amazing beautiful creativity that can come out of that.
+ - The most rewarding thing for me has been this affirmation for me that people are basically good and smart, and if you give them a simple tool that allows them to exhibit that behavior, they’ll prove it to you every single day.
+ - I mean just look at haiku, the idea of it. We want to focus on that singularity, on that simplicity, but we still want to add features and add value, but we want to do it in a way that fits in with that mentality of simplicity. You have to spend a lot of time thinking about it.
+ - The thing that excites me, and the thing that excited me about Twitter, is the idea of a flock of birds moving around an object in flight.
+ - Both my wife and I have a lot of compassion for animals in general.
+ - I was writing and developing software for alumnae to be able to connect and communicate.
+ - Investors are employees you can never hire. We made sure to pick investors that thought like us.
+ - We actually created Twitter and Odeo at the same time. When we realized we didn’t really want to be running Odeo anymore we looked around for anyone who wanted to buy Odeo, but not acquire us as a technology. But people aren’t as interested in that.
+ - We did Twitter, and Twitter grew so fast, and in 2006 we spun it out into Twitter, Inc.
+ - You have to think for an email. What’s the subject? What’s it about? It takes two seconds to think about that. So you have to think, Is this a work thing or a social thing? Which? Then you get into a situation that you don’t want to be in, because then people are thinking about it too much.
+ - I thought I was going to stay at Google, because it was a great place to work.
+ - We didn’t have anything before Twitter that allowed a group of people roaming around a city to communicate instantly, in real time, and in a coordinated way, in a group.
+ - I think we definitely want to focus on the simplicity aspect because it’s something that’s built into the culture even here at Twitter. Constraints inspire creativity.
+
+71 quotes

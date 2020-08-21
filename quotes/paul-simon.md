@@ -1,0 +1,152 @@
+ - Listen to the sound of silence.
+ - The words of the prophets are written on the subway walls and tenements halls and whispered in the sounds of silence.
+ - Mama, don’t take my Kodachrome away.
+ - Much of songwriting is simply a mystery.
+ - And a rock feels no pain; And an island never cries.
+ - I’ve got nothing to do today but smile.
+ - I have my books And my poetry to protect me; I am shielded in my armor, Hiding in my room, safe within my womb. I touch no one and no one touches me. I am a rock, I am an island.
+ - One man’s ceiling is another man’s floor.
+ - Life I love you, all is groovy.
+ - All lies and jests, still a man hears what he wants to hear and disregards the rest.
+ - All God requires from us is to enjoy life and love. That’s the whole point.
+ - So I’ll continue to continue to pretend my life will never end, and flowers never bend with the rainfall.
+ - Why am I so soft in the middle when the rest of my life is so hard?
+ - I don’t know what I’m going to write when I begin to write. It feels like you are walking down a path, but you can’t see around the bend and you don’t know where you are going to go, which is fun.
+ - There must be 50 ways to leave your lover.
+ - These are the days of miracle and wonder.
+ - Blessed are the sat upon, spat upon, ratted on.
+ - The thought that life could be better is woven indelibly into our hearts and our brains.
+ - Don’t want to end up a cartoon in a cartoon grave yard.
+ - Improvisation is too good to leave to chance.
+ - The leaves that are green turn to brown. And they wither with the wind. And they crumble in your hand.
+ - She said a good day ain’t got no rain She said a bad day is when I lie in the bed And I think of things that might have been.
+ - Music is forever; music should grow and mature with you, following you right on up until you die.
+ - I like working with sound; sound and rhythm. I like the abstract more than “What does that mean?” Nobody ever says to you, “Why did you use a harmonium?” Or “What is that ringing sound that occurs here?” The questions are always “What does that song mean?” or “What were you trying to say here?”
+ - Losing love is like a window in your heart...
+ - I don’t like fashion. It’s very heartless.
+ - Who am I to blow against the wind?
+ - Believing I had supernatural powers, I slammed into a brick wall.
+ - There is a moment, a chip in time, when leaving home is the lesser crime.
+ - I’ve got a reason to believe we all be received in Graceland, Graceland, Memphis Tennessee.
+ - There’s something about the sound of a train that’s very romantic and nostalgic and hopeful.
+ - Time it was And what a time it was, it was A time of innocence A time of confidences Long ago it must be I have a photograph Preserve your memories They’re all that’s left you.
+ - I met my old lover on the street last night. She seemed so glad to see me, I just smiled. Then we talked about some old times and we drank ourselves some beers, still crazy after all these years.
+ - I think Bridge Over Troubled Water was a very good song. Artie sang it beautifully. The Boxer was a really nice record. But I don’t think I’ve written any great songs.
+ - Nor is it strange That after changes upon changes, we are more or less the same.
+ - I’m going to Graceland, for reasons I cannot explain. There’s some part of me wants to see Graceland. And I may be advised to defend every love, every ending, or maybe there’s no obligations now. Maybe I’ve a reason to believe we all will be received in Graceland.
+ - As long as you have capital punishment there is no guarantee that innocent people won’t be put to death.
+ - The abstract music is just more interesting because it doesn’t really have anything to say, but if it is good, it creates thoughts and feelings, and I enjoy that. For me, once the music creates those thoughts and feelings, I begin to write a song about it.
+ - Take two bodies and you twirl them into one, their hearts and their bones, and they won’t come undone.
+ - I don’t think that Simon and Garfunkel as a live act compares to Simon and Garfunkel as a studio act.
+ - Just slip out the back, Jack, make a new plan, Stan, you don’t need to be coy, Roy, just get yourself free. Hop on the bus, Gus, you don’t need to discuss much, just drop off the key, Lee, and get yourself free.
+ - After all those years of automatic success, you don’t get nervous any more. It’s really necessary to be nervous and be a little bit frightened. It pumps the adrenalin into you and you really get down there and try.
+ - I get the news I need on the weather report And I have nothing to do today but smile.
+ - I try to open up my heart as much as I can and keep a real keen eye out that I don’t get sentimental. I think we’re all afraid to reveal our hearts. It’s not at all in fashion.
+ - Faith is an island in the setting sun, But proof is the bottom line for everyone.
+ - Who’s gonna love you when your looks are gone?
+ - People often called us perfectionists, but we were not looking for perfection. We were looking for some kind of magic in the music.
+ - I was eating in a Chinese restaurant downtown. There was a dish called Mother and Child Reunion. It’s chicken and eggs. And I said, I gotta use that one.
+ - The only time that love is an easy game is when two other people are playing it.
+ - Medicine is magical and magical is art, the boy in the bubble, and the baby with the baboon heart.
+ - When I look back at all the crap I learned in high school, it’s a wonder I can think at all.
+ - I have my books and my poetry to protect me.
+ - I want to rid my heart of envy, and cleanse my soul of rage before I’m through.
+ - Lord, I am a surgeon and music is my knife. It cuts away my sorrow and purifies my life.
+ - The death penalty is reserved for people who do not.
+ - Two times two is twenty-two, four times four is forty-four. When numbers get serious, they leave a mark on your door.
+ - I met my old lover on the street last night, she seemed glad to see me.
+ - Anybody can do bad work, but not everybody does good work.
+ - And I must be what I must be and face tomorrow.
+ - I feel I should try to reveal. When you hit it right, you produce an emotional response in the listener that can be cathartic. When you’re wrong, you’re soppy, sentimental.
+ - The students of Gallaudet have sent a powerful message across this country!
+ - Given all the facts that I’m young and I’m in good health and I’m famous – that I have talent, I have money – given all these facts, I want to know why I’m so unhappy.
+ - Someone told me it’s all happening at the zoo.
+ - My life so common it disappears and sometimes even music cannot substitute for tears.
+ - Then she kissed me and I realized she probably was right, there must be fifty ways to leave your lover.
+ - Was a sunny day, not a cloud in the sky. Not a negative word was heard.
+ - A fundamental requirement, overriding any other for this job, is an understanding of deafness-what it is and how it affects the educational experience.
+ - And you read your emily dickinson, And I my robert frost. And we note our place with bookmarkers That measure what weve lost.
+ - I lived in an attached house. My father used to drive into the wrong driveway all the time. He’d say, Damn it, how do you tell one of these houses from another?
+ - How much can you do with two voices? You can sing thirds or you can sing fifths or you can do a background harmony.
+ - It’s very helpful to start with something that’s true. If you start with something that’s false, you’re always covering your tracks. Something simple and true, that has a lot of possibilities, is a nice way to begin.
+ - It’s pointless to be critical of your stuff once it’s done. I don’t spend a lot of time agonising over it. It’s of no importance once it’s finished.
+ - Breakdowns come, and breakdowns go.
+ - Cecilia was made in a living room on a Sony. It was like a little piece of magical fluff, bur it works. El Condor Pasa a Los Incas record that I love. Bridge is a very strong melodic song.
+ - I don’t consider myself to be a major talent, so the only solace I can take is to hope I’m growing.
+ - Mrs. Robinson is a little dated now, but it has nothing to do with Joe DiMaggio.
+ - Facts can be turned into art if one is artful enough.
+ - I don’t very often think I’ve done a good job. I don’t like the majority of what I do. I shouldn’t say I don’t like it, but I’m not satisfied with almost everything that I do.
+ - I don’t feel any pressure from fans. But I’m always in some kind of state of emotional turmoil. I would not describe myself as happy-go-lucky. That’s not to say that I’m not happy.
+ - It’s outrageous to line your pockets off the misery of the poor; It’s outrageous, the crimes some human beings must endure...
+ - I always get very calm with baseball.
+ - The degree of customization possible through your Preferences screens is awesome.
+ - The more I get to thinking, the less I tend to laugh.
+ - It’s actually very difficult to make something both simple and good.
+ - Someone could walk into this room and say your life is on fire.
+ - You have underestimated my power, as you will shortly discover.
+ - If you can get humor and seriousness at the same time, you’ve created a special little thing, and that’s what I’m looking for, because if you get pompous, you lose everything.
+ - If you’ll be my body guard, I can be your long lost pal.
+ - I would not be convicted by a jury of my peers, still crazy after all these years.
+ - I’m always going forward toward something, and that something is usually an album, because I like to record. I probably like to record more than I like to write.
+ - Serious numbers will speak to us always.
+ - I think I have a superior brain and an inferior stature, if you really want to get brutal about it.
+ - The words come. Usually, it’s a long time before they come. And then when they start to come, it doesn’t take so long for it to be finished. It takes a long time to begin. And then it sort of gets finished.
+ - I didn’t get how big it was until I went home, turned on the television and saw it on all the news, and later that night on the front pages of all the newspapers. Then I got it.
+ - Having a track record to live up to and the history of successes had become a hindrance. It becomes harder to break out of what people expect you to do.
+ - The phrasing didn’t work as well.
+ - My voice is my improvisational instrument, the melody instrument. The guitar is harmonic structure. I’m not a good enough guitarist to improvise on it.
+ - They’ve got a wall in China, it’s a thousand miles long. To keep out the foreigners, they made it strong. And I’ve got a wall around me, you can’t even see.
+ - Every time the industry gets powerful, and corporate thinking dominates what the music is, then the music really pales.
+ - How can you live in the Northeast?
+ - There are two sorts of people in the world: Those who listen and those who are thinking about what they are going to say next.
+ - We work our jobs, collect our pay, believe were gliding down the highway, when in fact we’re slip sliding away.
+ - A phenomenon occurs but because you’re in the middle of it, you just think it’s your life-until it’s over. And then you look back and say, What an unusual thing happened to me in the ’60s.
+ - Elvis was the reason I picked up the guitar.
+ - To get the stuff out of you, especially if what you’re dealing with is yourself, requires you to open up and touch tender spots. You have to be anesthetized a little bit.
+ - We had many more points of agreement than we had points of difference, but we did differ, and the bigger we got, the more insistent we got that each one of us should have his way.
+ - Although I was able to study music with teachers, I never studied lyric writing. I read poetry, and I read other lyricists. But they were never writing in the style or the form that I was interested in.
+ - When I was 15, I made a solo record. It made Artie very unhappy. He looked upon it as something of a betrayal.
+ - I rate each album as better than the last one. That’s how I see it.
+ - It was the year of the Beatles, it was the year of the Stones, it was 1964.
+ - Artie is a singer, and I’m a writer and player and a singer. We didn’t work together on a creative level and prepare the songs. I did that.
+ - Justice Stevens is one of those who are most sensitive to the least powerful in our society.
+ - My whole artistic life has always been about change, change, change, move on, move on. It’s the only thing I find interesting.
+ - Not every song I write is ecstasy. And it can happen only one time. After that, when you sing the same melody and words, it’s pleasure, but you don’t get wiped out.
+ - People ask how I feel about getting old. I tell them I have the same question. I’m learning as I go.
+ - Anthony Heilbut has been a guide and a mentor to me. I know of no one who has the love and depth of knowledge of this extraordinary author.
+ - I don’t believe what the papers are saying They’re just out to capture my dime, Exaggerating this, exaggerating that.
+ - I suppose an artist takes the elements of his life and rearranges them and then has them perceived by others as though they were the elements of their lives.
+ - It was easier than explaining DiMaggio’s use as a metaphor.
+ - Hide it in a hiding place where no one ever goes Put it in your pantry with your cupcakes.
+ - I see a correlation between short stories and songs, because of their length and for what they’re meant to evoke. Combine certain words with melodies and it all becomes very moving.
+ - These are the days of lasers in the jungle, staccato signals of constant information...
+ - One of the things that upset me was some of the criticism leveled at Simon and Garfunkel. I always took exception to it, but actually I agree with a lot of it.
+ - We’ve survived by believing our life is going to get better.
+ - When I was a young reporter, the great vice among journalists was whiskey. Today, it’s cynicism.
+ - Jay Ashby is simply a great musician!
+ - We got on American Bandstand, where kids would dance to a record and then rate it. We called ourselves Tom and Jerry. I was Jerry.
+ - The public hungers to see talented young people kill themselves.
+ - By the time I was 12 or 13, I felt that I was special, because I could play the guitar and write songs.
+ - I’m more interested in what I discover than what I invent.
+ - The Wisdom is old, the Koran is old, the Bible is old. Disagreements? Work ’em out.
+ - The dialogue between what’s going on in the world and what’s going on internally seems to be a natural thing – well, it’s natural to me, anyway, to have these thoughts.
+ - Couple in the next room bound to win a prize, they’ve been going at it all night long.
+ - The risk of failure is part of the fun of what I do.
+ - Artie travels all the time. The rehearsals were just miserable. Artie and I fought all the time. He didn’t want to do the show with my band; he just wanted me on acoustic guitar.
+ - You know, life is what you make of it- so beautiful or so what.
+ - You want to be a writer, don’t know how or when? Find a quiet place, use a humble pen.
+ - We were always able to sing and blend well together; that’s our gift. But aside from that, we’re really two different guys.
+ - I question what emotion Manilow touches. People are entertained by him. But are they emotionally moved? I don’t believe anything that Barry Manilow sings.
+ - I stepped outside to smoke a J and when I came back to the room, everybody just seemed to move.
+ - Maybe I think too much for my own good.
+ - The record company stay out of my way. Whenever the record is finished, they take it.
+ - Every generation throws a hero up the pop charts.
+ - A songwriter’s supreme challenge is being complex and simple at the same time.
+ - Being an artist doesn’t mean that you’re a good artist. That was the bargain I first made with myself: I’d say, I’m an artist, but I’m not really very good.
+ - We’re living in a certain time, and we’re aware of it. And that’s part of what we’re aware of, along with our own personal aches and pains.
+ - I sort of recognize it, as opposed to shaping it. Oh, that’s a good idea, that’s a good line. I wonder where I can use that. And when you get into a rhyme group like ‘not,’ you got a lot of rhymes, you got a lot of choices. The more you do it, the luckier you get.
+ - When I began making my own albums, the songs became funkier. They were more about the streets.
+ - Where have you gone, Joe DiMaggio? A nation turns its lonely eyes to you.
+ - I would be willing to do almost anything to make Art happy. I care about our friendship. The only thing I won’t do is change the essence of my work.
+
+150 quotes

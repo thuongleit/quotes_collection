@@ -1,0 +1,42 @@
+ - Do what you love and success will follow. Passion is the fuel behind a successful career. ~~Meg Whitman
+ - Kill time and you will kill your career. ~~B.C. Forbes
+ - The difference between a job and a career is the difference between forty and sixty hours a week. ~~Robert Frost
+ - Just write every day of your life. Read intensely. Then see what happens. Most of my friends who are put on that diet have very pleasant careers. ~~Ray Bradbury
+ - Whether you want to uncover the secrets of the universe, or you just want to pursue a career in the 21st century, basic computer programming is an essential skill to learn. ~~Stephen Hawking
+ - A job is how you make money. A career is how you make your mark. A calling is how you acknowledge a higher vision, whatever it may be. ~~Deepak Chopra
+ - The true purpose of education is to make minds, not careers. ~~Chris Hedges
+ - Design is a career where you learn creative decision making. ~~Biz Stone
+ - Keep interested in your own career, however humble; it is a real possession in the changing fortunes of time. ~~Max Ehrmann
+ - Choose a career you love and you will never have to go to work. ~~Denis Waitley
+ - Climbing to the top demands strength, whether it is to the top of Mount Everest or to the top of your career. ~~Abdul Kalam
+ - Great teamwork is the only way we create the breakthroughs that define our careers. ~~Pat Riley
+ - How you earn your money and build your career is how you earn your destiny and build your legacy. ~~Robert T. Kiyosaki
+ - I wouldn’t count it out, but right now I feel like my career is still just starting. The best years are yet to come. ~~Phil Ivey
+ - My career is my girlfriend. ~~Aaron Carter
+ - From the beginning of your career until the end, you have people telling you, you can’t do something or you’re only going to get so far. That either drives you to be become the best or it stops you at the stipulations that other people have for you. ~~Dominick Cruz
+ - People are afraid of things they don’t understand. They don’t know how to relate. It threatens their security, their existence, their career, image. ~~Bill Laswell
+ - I only wish to climb even higher during the rest of my career bc with the power of Team Grimmie, I won’t stop. ~~Christina Grimmie
+ - What I love about the gay thing is that every single person I type into Google, it doesn’t matter if it’s Florence Welch, anybody, if you are not being called gay you don’t have a career. That’s my theory! ~~Daniel Radcliffe
+ - I had to walk away from America, and say goodbye to the biggest part of my career, because I knew otherwise my demons would get the better of me. ~~George Michael
+ - Throughout my chess career I sought out new challenges, looking for things no one had done before. ~~Garry Kasparov
+ - Faithful servants never retire. You can retire from your career, but you will never retire from serving God. ~~Rick Warren
+ - At some point in your career, someone is going to tell you, “This stove is hot. Do not touch this stove.” And the weird thing is, you’ll want to touch it. But resist that urge, man. ~~Leonardo DiCaprio
+ - It’s time to question a job or career move when it seems like most energy is devoted to making things appear other than what they really are. ~~Alan Watts
+ - Making a living is not the same thing as making a life. ~~Maya Angelou
+ - God first, family second, career third. ~~Mary Kay Ash
+ - Life is a mission, not a career. ~~Stephen R. Covey
+ - Believe in yourself and back yourself to come out on top. A fulfilling career is waiting for those brave enough to find it. ~~Richard Branson
+ - Almost every problem people face in their careers and other aspects of their lives – such as failed diets, marriages, and financial problems – are all the result of not taking enough action. ~~Grant Cardone
+ - Whatever the problem, be part of the solution. Don’t just sit around raising questions and pointing out obstacles. ~~Tina Fey
+ - Mr. Franz, I think careers are a 20th century invention and I don’t want one. ~~Jon Krakauer
+ - The most important career decision you’ll make is who your life partner is. ~~Sheryl Sandberg
+ - Don’t confuse having a career with having a life. ~~Hillary Clinton
+ - Your career is what you’re paid for. Your calling is what you’re made for. ~~Steve Harvey
+ - The biological clock and the career clock are in total conflict with each other. ~~Indra Nooyi
+ - I don’t believe that the public knows what it wants; this is the conclusion that I have drawn from my career. ~~Charlie Chaplin
+ - Do not worry about your career. Concern yourself with your vocation, and that is to be lovers of Jesus. ~~Mother Teresa
+ - My life, my career has been like a roller coaster. I’ve either been an enormous success or just a down-and-out failure. ~~Judy Garland
+ - Marriage is a career which brings about more benefits than many others. ~~Simone de Beauvoir
+ - My advice to any young person at the beginning of their career is to try to look for the mere outlines of big things with their fresh, untrained and unprejudiced mind. ~~Hans Selye
+
+40 quotes

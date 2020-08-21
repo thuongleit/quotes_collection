@@ -1,0 +1,66 @@
+ - Love your enemies, bless them that curse you, do good to them that hate you.
+ - If I looked in the mirror someday and saw no dark circles under my eyes, I would probably look better. I just wouldn’t look like me.
+ - Oh my dear, idealists are the cruelest monsters of them all.
+ - Being a nerd, which is to say going too far and caring too much about a subject, is the best way to make friends I know.
+ - We are flawed creatures, all of us. Some of us think that means we should fix our flaws. But get rid of my flaws and there would be no one left.
+ - You know, it’s always good to have a synonym just for variety.
+ - My lips are chapped from the winds of change.
+ - I no longer drink nearly as much as I used to but, still, my motto is Sine coffea nihil sum. Without coffee, I’m nothing.
+ - When I think about my relationship with America, I feel like a battered wife: Yeah, he knocks me around a lot, but boy, he sure can dance.
+ - Behind every bad law, a deep fear.
+ - History is full of really good stories. That’s the main reason I got into this racket: I want to make the argument that history is interesting.
+ - Buffy’s high school was built on top of a vortex of evil, the Hellmouth. And whose wasn’t?
+ - I’m not really the scented envelope kid of girl, preferring instead to send yellow Jiffy-lite mailers packed with whatever song is on my mind.
+ - But when I am around strangers, I turn into a conversational Mount St. Helens. I’m dormant, dormant, quiet, quiet, old-guy loners build log cabins on the slopes of my silence and then, boom, it’s 1980. Once I erupt, they’ll be wiping my verbal ashes off their windshields as far away as North Dakota.
+ - The only thing more dangerous than an idea is a belief. And by dangerous I don’t mean thought-provoking. I mean: might get people killed.
+ - While I gave up God a long time ago, I never shook the habit of wanting to believe in something. So I replaced my creed of everlasting life with life, liberty, and the pursuit of happiness.
+ - The modern mocha is a bittersweet concoction of imperialism, genocide, invention, and consumerism served with whipped cream on top.
+ - Along with voting, jury duty, and paying taxes, goofing off is one of the central obligations of American citizenship.
+ - One night last summer, all the killers in my head assembled on a stage in Massachusetts to sing show tunes.
+ - There are freaky talking mannequins in the Salem Witch Museum that recite the Lord’s Prayer and while they do resemble shrunken apples they nevertheless help the visitor understand how hard it must have been for the condemned to say the line about forgiving those who trespass against us.
+ - You know you’ve reached a new plateau of group mediocrity when even a Canadian is alarmed by your lack of individuality.
+ - The true American patriot is by definition skeptical of the government.
+ - The Declaration of Independence, the Constitution, the Civil War-when I really think about them they all seem about as likely as the parting of the Red Sea.
+ - I haven’t decided if he deserved to eat bread made out of sticks or live in a rancid puddle, probably because I haven’t made up my mind whether anyone deserves such treatment, though I suspect that the day a person gives up on the Geneva Conventions is the day a person gives up on the human race.
+ - Presidents and presidential assassins are like Las Vegas and Salt Lake City. Even though one city is all about sin and the other is all about salvation, they are identical, one-dimensional company towns built up by the sheer will of true believers.
+ - Relics are treasured as something close to the divine.
+ - American history is a quagmire, and the more one knows, the quaggier the mire gets.
+ - I probably am a cranky writer, but I am actually a fairly nice, normal person. Since I’m a grouchy writer, of course I have friends whose books are doing way better than mine.
+ - History is one war after another with a bunch of murders and natural disasters in between.
+ - Why is America the last best hope of Earth? What if it’s Liechtenstein? Or, worse, Canada?
+ - Dig deep into its communitarian ethos and it reads more like an America that might have been, an America fervently devoted to the quaint goals of working together and getting along. Of course, this America does exist. It’s called Canada.
+ - Listening to the radio every day for an entire year was a prison sentence. It was the most depressing, annoying, debilitating project I have ever undertaken, and I have a master’s degree in art history.
+ - Not that I want the current president killed. I will, for the record and for the FBI agent assigned to read this and make sure I mean no harm, clearly state that while I am obsessed with death, I am against it.
+ - I didn’t come from any kind of academic background, but I lived in a college town and I knew people who weren’t without pretense. There was this idea in the town that if something was European it would be good.
+ - I discovered that Robert Todd Lincoln was there for each of the first three assassinations. I wanted to write about the Lincoln Memorial, so when I found out he had attended its dedication, that helped focus it further.
+ - I’m a big fan of editing and keeping only the interesting bits in.
+ - The only thing more dangerous than an idea is a belief.
+ - My ideal picture of citizenship will always be an argument, not a sing-along.
+ - Once or twice a day, I am enveloped inside what I like to call the Impenetrable Shield of Melancholy. This shield, it is impenetrable. Hence the name. I cannot speak. And while I can feel myself freeze up, I can’t do anything about it.
+ - I loved that these two guys argued with each other as if movies actually mattered. Nobody I knew talked about movies that way, but Siskel and Ebert took each movie as it came and talked about whether it was a success on its own terms.
+ - In death, you get upgraded into a saint no matter how much people hated you in life.
+ - I still believe in public radio’s potential. Because it’s the one mass medium that’s still crafted almost entirely by true believers.
+ - That’s what I like to call him, “the current president.” I find it difficult to say or type his name, George W. Bush. I like to call him “the current president” because it’s a hopeful phrase, implying that his administration is only temporary.
+ - Even writers need relief from words.
+ - The whole point of Louis Armstrong is that no one can really figure him out. There was a while where I thought you could try.
+ - Except for the people who were there that one day they discovered the polio vaccine, being part of history is rarely a good idea. History is one war after another with a bunch of murders and natural disasters in between.
+ - I guess if I had to pick a spiritual figurehead to possess the deed to the entirety of Earth, I’d go with Buddha, but only because he wouldn’t want it.
+ - Abraham Lincoln freed the slaves, Robert Lincoln bought a nice ski lodge.
+ - I hated the lost colony; in second grade, we were doing American History, and they said, We don’t know what happened to them. That drove me nuts. That lost colony drove me crazy.
+ - A couple of times he called the second he’d finished reading a novel and just had to tell me about it, and I know it sounds hokey and librarianish to say so, but I just swooned when he did that.
+ - Assassins and presidents invite the same basic question: Just who do you think you are?
+ - Part of the success of This American Life, I think, is due to the fact that none of us sound like we should be on the radio. We don’t sound professional; we sound like people you would know.
+ - That’s what we Americans do when we find a place that’s really special. We go there and act exactly like ourselves. And we are a bunch of fun-loving dopes.
+ - I get younger people who watch Conan or The Daily Show, but before that it was mostly people who knew me from public radio. Those people are kind of old.
+ - No one I know actually reads what I write, so thank heavens for you strangers.
+ - There are two kinds of people in the world: the kind who alphabetize their record collections, and the kind who don’t.
+ - Like Lincoln, I would like to believe the ballot is stronger than the bullet. Then again, he said that before he got shot.
+ - My audience is going to die before I do.
+ - The only people who know about me are people who would know about me.
+ - Most people don’t like to talk about violent historical death.
+ - What are you hiding? No one ever asks that.
+ - Winthrop and his shipmates and their children and their children’s children just wrote their own books and pretty much kept their noses in them up until the day God created the Red Sox.
+ - Radio is the playground of coincidence.
+ - Jesus and Lincoln, Moses and Jefferson can seem so long gone, so unbelievable, so dead.
+
+64 quotes

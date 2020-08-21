@@ -1,0 +1,43 @@
+ - If you’re fail to prepare, you’re prepared to fail.
+ - If you have a lane, you have a chance.
+ - It has nothing to do with swimming. That happens to be my sport. I’m trying to see how far I can go.
+ - Life is true to form, records are meant to be broken.
+ - We all love to win, but how many people love to train?
+ - Life is everchanging, if you cease to change, you cease to live.
+ - In my day, at 12 years old, which was 38 years ago, we worked out in summer months for two and a half hours. Today someone in that age group might work out for four hours, two hours in the morning and two at night.
+ - By making a comeback, I’m changing the attitude of people toward me. If I’d known that people would react so enthusiastically, I’d have done it years ago.
+ - I went through a lifestyle change when I dropped 40 pounds. Taking care of my diet was the first thing I did.
+ - Well my thoughts on American swimming are that our prospects look favorable, but we may not have as strong a showing in the gold medal count as in previous Olympics. But I am not coaching.
+ - And if you have high cholesterol, you would feel the same as if you had low cholesterol because there are no side effects, no symptoms of having high cholesterol.
+ - I always wanted to be a dentist from the time I was in high school, and I was accepted to dental school in the spring of 1972. I was planning to go, but after the Olympics there were other opportunities.
+ - There’s a difference between over-training and over-exercising. Over-training can be you’re trying to do something at high performance, but when you’re over-exercising it just means that you don’t have a life. And there are obviously people who go to that extreme.
+ - Swimming isn’t everything, winning is.
+ - So in my mind I own a lot of house records still.
+ - I am not qualified to talk about the diet. Simply because I am not a dietician.
+ - I just tried to keep my cool and continue with my race plan: to win.
+ - I swam my brains out.
+ - I got beat real hard and heavy in the Olympic Games in 1968 by a guy who swam an incredible race one time in his whole life, but he did it right at the right time. I’d like to be that guy now. Maybe that’s what I’m going to have to pull out of my hat to make the Olympic team.
+ - I wasn’t able to lower my cholesterol so they put me on a statin drug. It is called lipitor. I was able to lower my level in about 30 days from above 300 to below 200.
+ - As a kid, chess was the first thing I studied in a structured way that helped me gain the discipline to study medicine and become successful doctor.
+ - I’m trying to do the best I can. I’m not concerned with tomorrow, but with what goes on today.
+ - In everyday life there is always manana. There is no urgency.
+ - The only side effect of too much training is that you get into better shape. There is nothing wrong with that.
+ - My biggest loss was the Olympics. I just can’t forget losing. I never will.
+ - I walked away from the sport for 17 years, then started swimming again recently in a master’s program.
+ - What it is saying is that someone who was a world champion and who takes care of himself with a 17-year rest and applies the proper training techniques and perseverance could be successful.
+ - I am going to sit there and watch Michael Phelps break my record anonymously? That’s almost demeaning to me. It is not almost – it is.
+ - Everyone loves to be loved.
+ - If he wins seven golds and ties what I did, then it would be like I was the first man on the moon and he became the second. If he wins more than seven, then he becomes the first man on Mars. We’d both be unique.
+ - Because a known fact is better than an unknown fact.
+ - Yes, I believe that the art of winning is through intimidation, and not necessarily do you have to speak about it.
+ - When I went to the Olympics, I had every intention of shaving the moustache off, but I realized I was getting so many comments about it – and everybody was talking about it – that I decided to keep it.
+ - One of the most difficult things for people who have been successful in sports is adapting to the daily world where you can’t get an answer from someone until 5 o’clock tomorrow. There is always an excuse. Living 40 or 50 years like that doesn’t get too exciting after a while.
+ - Past performance speaks a tremendous amount about one’s ability and likelihood for success.
+ - There are times I might coach one or two workouts a year when the regular coach gets caught in traffic.
+ - If you want to be Mark Spitz then go for it. If you want to be Michael Phelps then you’ll have to work for it. Nobody should wake up to a lower expectation of themselves.
+ - Do any exercise you want as long as you’re willing to do it. You see gym equipment on TV advertisements all the time, but guess what? It’s only good if you actually use it.
+ - The pool is terrible, but that doesn’t have much to do with my record swims. That’s all mental attitude.
+ - I’m at the depot, and I’m not going anywhere. That’s better to deal with than having to deal with the unknown. And the unknown is they don’t want to fail. They don’t want to pay the price unless there’s a guarantee they’re going to get there.
+ - If you are relaxing and subconsciously thinking about your coming race, you are going to perform at just about 100 percent efficiency.
+
+41 quotes

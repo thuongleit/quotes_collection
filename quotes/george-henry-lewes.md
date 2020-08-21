@@ -1,0 +1,87 @@
+ - Sincerity is moral truth.
+ - Insincerity is always weakness; sincerity even in error is strength.
+ - Originality is independence, not rebellion; it is sincerity, not antagonism.
+ - The magic of the pen lies in the concentration of your thoughts upon one object.
+ - The air is crowded with birds – beautiful, tender, intelligent birds – to whom life is a song.
+ - Heart and Brain are the two lords of life. In the metaphors of ordinary speech and in the stricter language of science, we use these terms to indicate two central powers, from which all motives radiate, to which all influences converge.
+ - The only cure for grief is action.
+ - As all Art depends on Vision, so the different kinds of Art depend on the different ways in which minds look at things.
+ - In all sincere speech there is power, not necessarily great power, but as much as the speaker is capable of.
+ - Ideas are forces; our acceptance of one determines our reception of others.
+ - Mathematicians do not write for the circulating library.
+ - A cell is regarded as the true biological atom.
+ - Remember that every drop of rain that falls bears into the bosom of the earth a quality of beautiful fertility.
+ - In the air we breathe, in the water we drink, in the earth we tread on, Life is every where. Nature lives: every pore is bursting with Life ; every death is only a new birth, every grave a cradle.
+ - Character is built out of circumstances. From exactly the same materials, one man builds palaces, while another builds hovels.
+ - Speak for yourself and from yourself, or be silent.
+ - Shakespeare is a good raft whereon to float securely down the stream of time; fasten yourself to that and your immortality is safe.
+ - There are occasions when the simplest and fewest words surpass in effect all the wealth of rhetorical amplification.
+ - To love is for the Soul to choose a companion, and travel with it along the perilous defiles and winding ways of life; mutually sustaining, when it is rugged with obstructions, and mutually rejoicing, when rich broad plains and sunny slopes make journeying delight.
+ - The delusions of self-love cannot be prevented, but intellectual misconceptions as to the means of achieving success may be corrected.
+ - The prosperity of a book lies in the minds of readers. Public knowledge and public taste fluctuate; and there come times when works which were once capable of instructing and delighting thousands lose their power, and works, before neglected, emerge into renown.
+ - Over the meeting of the lovers I draw a veil. The burst of rapture with which they clasped each other in a wild embrace – the many inquiries – the fond regrets and thrilling hopes – it is out of my power to convey. Let me, therefore, leave them to their happiness.
+ - It is not enough that a man has clearness of vision, and reliance on sincerity, he must also have the art of expression, or he will remain obscure.
+ - Endeavour to be faithful, and if there is any beauty in your thought, your style will be beautiful; if there is any real emotion to express, the expression will be moving.
+ - The true function of philosophy is to educate us in the principles of reasoning and not to put an end to further reasoning by the introduction of fixed conclusions.
+ - Books have become our dearest companions, yielding exquisite delights and inspiring lofty aims.
+ - Imagination is not the exclusive appanage of artists, but belongs in varying degrees to all men.
+ - Except in the rare cases of great dynamic thinkers whose thoughts are as turning-points in the history of our race, it is by Style that writers gain distinction, by Style they secure their immortality.
+ - A man may be buoyed up by the efflation of his wild desires to brave any imaginable peril; but he cannot calmly see one he loves braving the same peril; simply because he cannot feel within turn that which prompts another. He sees the danger, and feels not the power that is to overcome it.
+ - Genius is rarely able to give any account of its own processes.
+ - Many a genius has been slow of growth. Oaks that flourish for a thousand years do not spring up into beauty like a reed.
+ - The spontaneous tendency to invoke a Final Cause in explanation of every difficulty is characteristic of metaphysical philosophy. It arises from a general tendency towards the impersonation of abstractions which is visible throughout History.
+ - The mathematician who is without value to mathematicians, the thinker who is obscure or meaningless to thinkers, the dramatist who fails to move the pit, may be wise, may be eminent, but as an author he has failed.
+ - Love is blind; couch not his eyes.
+ - Good writers are of necessity rare.
+ - Science is the systematic classification of experience.
+ - We must never assume that which is incapable of proof.
+ - When a man fails to see the truth of certain generally accepted views, there is no law compelling him to provoke animosity by announcing his dissent.
+ - Literature delivers tidings of the world within and the world without.
+ - Murder, like talent, seems occasionally to run in families.
+ - The real people of genius were resolute workers not idle dreamers.
+ - Those works alone can have enduring success which successfully appeal to what is permanent in human nature – which, while suiting the taste of the day, contain truths and beauty deeper than the opinions and tastes of the day.
+ - The intensity of vision in the artist and of vividness in his creations are the sole tests of his imaginative power.
+ - All great authors are seers.
+ - Individual experiences being limited and individual spontaneity feeble, we are strengthened and enriched by assimilating the experience of others.
+ - To write much, and to write rapidly, are empty boasts. The world desires to know what you have done, and not how you did it.
+ - Language, after all, is only the use of symbols, and Art also can only affect us through symbols.
+ - The art of writing is not, as many seem to imagine, the art of bringing fine phrases into rhythmical order, but the art of placing before the reader intelligible symbols of the thoughts and feelings in the writer’s mind.
+ - Personal experience is the basis of all real literature.
+ - In Science the paramount appeal is to the Intellect-its purpose being instruction; in Art, the paramount appeal is to the Emotions-its purpose being pleasure.
+ - If the members of a class do not understand – if those directly addressed fail to listen, or listening, fail to recognize a power in the voice – surely the fault lies with the speaker, who, having attempted to secure their attention and enlighten their understandings, has failed in the attempt.
+ - A man may be variously accomplished, and yet be a feeble poet.
+ - There are many justifications of silence; there can be none of insincerity.
+ - If you feel yourself to be above the mass, speak so as to raise the mass to the height of your argument.
+ - Literature is at once the cause and the effect of social progress.
+ - Whatever lies beyond the limits of experience, and claims another origin than that of induction and deduction from established data, is illegitimate.
+ - No man was ever eloquent by trying to be eloquent, but only by being so.
+ - The opinion of the majority is not lightly to be rejected; but neither is it to be carelessly echoed.
+ - It is unhappily true that much insincere Literature and Art, executed solely with a view to effect, does succeed by deceiving the public.
+ - In its happiest efforts, translation is but approximation, and its efforts are not often happy. A translation may be good as translation, but it cannot be an adequate reproduction of the original.
+ - Whatever you believe to be true and false, that proclaim to be true and false; whatever you think admirable and beautiful, that should be your model, even if all your friends and all the critics storm at you as a crotchet-monger and an eccentric.
+ - Books minister to our knowledge, to our guidance, and to our delight, by their truth, their uprightness, and their art.
+ - The artist is called a creator...
+ - Philosophy and Art both render the invisible visible by imagination.
+ - To one man a stream is so much water-power, to another a rendezvous for lovers.
+ - Science is not addressed to poets.
+ - To some men popularity is always suspicious. Enjoying none themselves, they are prone to suspect the validity of those attainments which command it.
+ - All bad Literature rests upon imperfect insight, or upon imitation, which may be defined as seeing at second-hand.
+ - The discoverer and the poet are inventors; and they are so because their mental vision detects the unapparent, unsuspected facts, almost as vividly as ocular vision rests on the apparent and familiar.
+ - It will often be a question when a man is or is not wise in advancing unpalatable opinions, or in preaching heresies; but it can never be a question that a man should be silent if unprepared to speak the truth as he conceives it.
+ - The great desire of this age is for a doctrine which may serve to condense our knowledge, guide our researches, and shape our lives, so that conduct may really be the consequence of belief.
+ - A man must be himself convinced if he is to convince others. The prophet must be his own disciple, or he will make none. Enthusiasm is contagious: belief creates belief.
+ - All good Literature rests primarily on insight.
+ - It is always understood as an expression of condemnation when anything in Literature or Art is said to be done for effect; and yet to produce an effect is the aim and end of both.
+ - Vehemence without feeling is but rant.
+ - Among the many strange servilities mistaken for pieties, one of the least lovely is that which hopes to flatter God by despising the world, and vilifying human nature.
+ - Every one who has seriously investigated a novel question, who has really interrogated Nature with a view to a distinct answer, will bear me out in saying that it requires intense and sustained effort of imagination.
+ - No man ever made a great discovery without the exercise of the imagination.
+ - No deeply rooted tendency was ever extirpated by adverse judgment. Not having originally been founded on argument, it cannot be destroyed by logic.
+ - If a work of art is placed before me, I believe I can enjoy it; but I do not overlook the fact, that Art is one thing, another thing Amusement; and that people do like amusements, and will run after it.
+ - The history of the race is but that of the individual “writ large”.
+ - The public can only be really moved by what is genuine.
+ - In complex trains of thought signs are indispensable.
+ - The object of Literature is to instruct, to animate, or to amuse.
+ - I am suspicious without a motive, and jealous without love; although I feel I ought to love since I desire to be loved.
+
+85 quotes

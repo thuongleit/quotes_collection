@@ -1,0 +1,66 @@
+ - It’s not an adventure until something goes wrong.
+ - True adventure begins when everything goes wrong.
+ - There’s no difference between a pessimist who says, “Oh it’s hopeless, so don’t bother doing anything.” and an optimist who says, “Don’t bother doing anything, it’s going to turn out fine anyways. Either way, nothing happens.”
+ - The revolution starts at the bottom.
+ - The hardest thing in the world is to simplify your life; it’s so easy to make it complex.
+ - Going back to a simpler life based on living by sufficiency rather than excess is not a step backward. Rather, returning to a simpler way allows us to regain our dignity, puts us in touch with the land, and makes us value human contact again.
+ - How you climb a mountain is more important than reaching the top.
+ - Going back to a simpler life is not a step backwards.
+ - Fear of the unknown is the greatest fear of all.
+ - To do good, you actually have to do something.
+ - The whole purpose of an adventure is to gain some spiritual or emotional insight. When you compromise the process, you compromise the gain.
+ - Real adventure is defined best as a journey from which you may not come back alive, and certainly not as the same person.
+ - The word adventure has gotten overused. For me, when everything goes wrong – that’s when adventure starts.
+ - There’s a movement for simplifying your life: purchase less stuff, own a few things that are very high quality that last a long time, and that are multifunctional.
+ - My favorite quote about entrepreneurship is that to understand an entrepreneur, you should study a juvenile delinquent. They’re both saying: “This sucks and I’m going to do it another way.” You have to want to break the rules and prove that your way works.
+ - I drive old cars, all my Patagonia clothes are years and years old, I hardly have anything new. I try to lead a very simple life. I am not a consumer of anything. And I much prefer sleeping on somebody’s floor than in a motel room.
+ - Surfing and climbing are both useless sports. You get to be conquistadors of the useless. You climb to the summit and there is nothing there. And you could hike to the top from another direction. How you get there is the important part. It’s the same with surfing.
+ - You have a whole life in the outdoors, you realize you have a sense of responsibility to protect these wild places.
+ - Hiring people with diverse backgrounds brings in a flexibility of thought and openness to new ways of doing things, as opposed to hiring clones from business schools who have been taught a codified way of doing business.
+ - Everything we make pollutes. The most responsible thing we can do is to make each product as well as we know how so it lasts as long as possible.
+ - Evil doesn’t have to be an overt act; it can be merely the absence of good. If you have the ability, the resources, and the opportunity to do good and you do nothing, that can be evil.
+ - Traveling is my form of self-education. Every stream I fish now is not as good as it used to be. Traveling is my form of self-education. Every stream I fish now is not as good as it used to be. If you keep your eyes open as you travel around, you realize we are destroying this planet.
+ - Profit is what happens when you do everything else right.
+ - The goal of climbing big, dangerous mountains should be to attain some sort of spiritual and personal growth, but this won’t happen if you compromise away the entire process.
+ - Traveling is my form of self-education.
+ - I purposely try to hire people who are really self-motivated and good at what they do, and then I just leave them alone.
+ - We’re a part of nature. As we destroy nature, we destroy ourselves. It’s a selfish thing to want to protect nature.
+ - No young kid growing up dreams of someday becoming a businessman. He wants to be a fireman, a sponsored athlete or a forest ranger The Lee Iacoccas, Donald Trumps, and Jack Welchs of the business world are heroes to no one except other businessmen with similar values.
+ - I’ve accepted the fact that there’s a beginning and end to everything. All species are born, evolve, and then die off. We’re going through the 6th great extinction and the large mammals are going first and, you know what – we’re large mammals!
+ - Who are businesses really responsible to? Their customers? Shareholders? Employees? We would argue that it’s none of the above. Fundamentally, businesses are responsible to their resource base. Without a healthy environment there are no shareholders, no employees, no customers and no business.
+ - If you want to understand the entrepreneur, study the juvenile delinquent. The delinquent is saying with his actions, ‘This sucks, I’m going to do my own thing.’
+ - Once you educate yourself, you’re left with choices.
+ - I think risk is important. I don’t care if it’s a great financial risk or a physical risk. You only get out of something what you put into it and the fact that you are willing to risk something means that you are going to get a lot more out of it.
+ - Yeah, leading an examined life, I always say, is a pain in the ass. It adds an element of complexity to business that most businessmen don’t want to hear about. They just want to call a fabric manufacturer, and say, “Hey, give us 10,000 yards of shirting.”
+ - Mainly, my job is to be on the outside and bring ideas into the company and forge change. Most people hate change – it’s threatening. I thrive on it.
+ - We choose to believe that the granite is alive. If life is movement, then rock – with its atoms flying around like stars in cosmos – is alive.
+ - The solution may be for a lot of the world’s problems is to turn around and take a forward step. You can’t just keep trying to make a flawed system work.
+ - The secret to happiness is to be working at your passion. If you want to be miserable, lead a desperate life like everybody else where they drag their asses to work everyday because they hate their job.
+ - Remember: if you take bivouac equipment along, you will bivouac...
+ - I say the last 10 percent of the way to perfection takes so much of your life that it isn’t worth the effort. This overzealous attitude is what creates religious fanatics, body Nazis, and athletes who are exceedingly dull to converse with.
+ - You climb to the summit and there is nothing there...
+ - We’re not citizens anymore. We’re consumers. That’s what we’re called. It’s just like being an alcoholic and being in denial that you’re an alcoholic. We’re in denial that each and every one of us is the problem. And until we face up to that, nothing’s going to happen.
+ - Hire extremely independent, intelligent, and passionate people, not necessarily “experts.” Maybe three or four of my employees have MBAs, and those guys aren’t necessarily at the top of the food chain.
+ - I believe the accepted model of capitalism that demands endless growth deserves the blame for the destruction of nature, and it should be displaced. Failing that, I try to work with those companies and help them change the way they think about our resources.
+ - It’s okay to be eccentric if you’re rich; otherwise you’re just crazy.
+ - Is climbing, as a passion and as a sport, better off now than it was in the past? We can do harder climbs now in faster times – techniques are more refined and equipement more sophisticated – but are we really any better off?
+ - One thing I did not want to change, even if we got serious, work had to be enjoyable on a daily basis. We all had to come to work on the balls of our feet and go up the stairs two at a time.
+ - You have to remember this was the ’60s, when climbing was dangerous and sex was safe.
+ - I wanted to distance myself from those pasty faced corpses in suits I saw in airline magazine ads. If I was going to become a businessman, I was going to do it on my own terms.
+ - The climbing as a whole is not very esthetic or enjoyable; it is merely difficult.
+ - Most of the damage we cause to the planet is the result of our own ignorance.
+ - The rules of the game must be constantly updated to keep up with the expanding technology. Otherwise we overkill the classic climbs and delude ourselves into thinking we are better climbers than the pioneers.
+ - The reason it was so scary was that there was only one climber capable of rescuing us, and that was Layton Kor, and he was in Colorado.
+ - The future of Yosemite climbing lies not in Yosemite, but in using the new techniques in the great granite ranges of the world.
+ - I’m the company philosopher and the burr in the saddle. I’m the one who says we need to try harder, improve the quality of our products, become a part of the political process, help elect people who are good for the environment.
+ - Nature doesn’t like empires. It doesn’t like accumulation in one place, it doesn’t like monoculture. It’s always trying to make diverse species. It wants to spread everything out. And we’re constantly trying to hold everything in.
+ - You ask me about the past, you ask me about the future, the only way to be happy is to be living right now.
+ - Everything we personally own that’s made, sold, shipped, stored, cleaned, and ultimately thrown away does some environmental harm every step of the way, harm that we’re either directly responsible for or is done on our behalf.
+ - So all of these companies that are going for the big growth, if it continues for any length of time, will outlast their resources and outlast their customers and go belly-up. And that’s why these huge companies have massive layoffs all the time.
+ - During the sixties, all the risk-type sports were very popular, because everybody was rebelling against their parents, or rebelling against the whole system. But those days are over. This is the day of conservatism.
+ - A real capitalist knows that $10 given today does a lot more good than $100 given 10 years from now.
+ - But I’m really trying to run this company like it is going to be here a hundred years from now. That’s what’s important.
+ - The more I make the more I can give away.
+ - The most important thing is to get the fish in quickly and leave it in the water. Forget the hero pose.
+
+64 quotes

@@ -1,0 +1,42 @@
+ - Nobody can give you freedom. Nobody can give you equality or justice or anything. If you’re a man, you take it. ~~Malcolm X
+ - Conservation is a great moral issue, for it involves the patriotic duty of insuring the safety and continuance of the nation. ~~Theodore Roosevelt
+ - Any society that would give up a little liberty to gain a little security will deserve neither and lose both. ~~Benjamin Franklin
+ - The world is a dangerous place to live, not because of the people who are evil, but because of the people who don’t do anything about it. ~~Albert Einstein
+ - The Constitution is not an instrument for the government to restrain the people, it is an instrument for the people to restrain the government – lest it come to dominate our lives and interests. ~~Patrick Henry
+ - When men yield up the privilege of thinking, the last shadow of liberty quits the horizon. ~~Thomas Paine
+ - It is necessary for the welfare of the nation that men’s lives be based on the principles of the Bible. No man, educated or uneducated, can afford to be ignorant of the Bible. ~~Theodore Roosevelt
+ - Before I refuse to take your questions, I have an opening statement. ~~Ronald Reagan
+ - No man is above the law and no man is below it: nor do we ask any man’s permission when we ask him to obey it. ~~Theodore Roosevelt
+ - First of all, let me assert my firm belief that the only thing we have to fear is fear itself – nameless, unreasoning, unjustified terror which paralyzes needed efforts to convert retreat into advance. ~~Franklin D. Roosevelt
+ - Be sincere; be brief; be seated. ~~Franklin D. Roosevelt
+ - I know there is a God – I see the storm coming and I see his hand in it – if he has a place then I am ready – we see the hand. ~~John F. Kennedy
+ - It behooves us then to humble ourselves before the offended Power to confess our national sins and to pray for clemency and forgiveness... ~~Abraham Lincoln
+ - If you want total security, go to prison. There you’re fed, clothed, given medical care and so on. The only thing lacking... is freedom. ~~Dwight D. Eisenhower
+ - Heroism is not only in the man, but in the occasion. ~~Calvin Coolidge
+ - Never take counsel of your fears. ~~Stonewall Jackson
+ - War is an ugly thing, but not the ugliest of things. The decayed and degraded state of moral and patriotic feeling which thinks that nothing is worth war is much worse. ~~John Stuart Mill
+ - The time is near at hand which must determine whether Americans are to be free men or slaves. ~~George Washington
+ - The American, by nature, is optimistic. He is experimental, an inventor and a builder who builds best when called upon to build greatly. ~~John F. Kennedy
+ - To say that any people are not fit for freedom, is to make poverty their choice, and to say they had rather be loaded with taxes than not. ~~Thomas Paine
+ - Education is not a problem. Education is an opportunity. ~~Lyndon B. Johnson
+ - To make us love our country, our country ought to be lovely. ~~Edmund Burke
+ - Don’t expect to build up the weak by pulling down the strong. ~~Calvin Coolidge
+ - Politicians are the lowest form of life on earth. Liberal Democrats are the lowest form of politicians. ~~George S. Patton Jr.
+ - If it looks like a duck, and quacks like a duck, we have at least to consider the possibility that we have a small aquatic bird of the family anatidae on our hands. ~~Douglas Adams
+ - A nation that destroys its soils destroys itself. Forests are the lungs of our land, purifying the air and giving fresh strength to our people. ~~Franklin D. Roosevelt
+ - I think Americans are very patriotic. ~~Arnold Schwarzenegger
+ - Those who profess to favor freedom, and yet depreciate agitation, are men who want crops without plowing up the ground. ~~Frederick Douglass
+ - Man’s greatness consists in his ability to do and the proper application of his powers to things needed to be done. ~~Frederick Douglass
+ - If you can’t get them to salute when they should salute and wear the clothes you tell them to wear, how are you going to get them to die for their country? ~~George S. Patton Jr.
+ - All free men, wherever they may live, are citizens of Berlin. And therefore, as a free man, I take pride in the words ‘Ich bin ein Berliner!’ ~~John F. Kennedy
+ - My fellow Americans, our long national nightmare is over. ~~Gerald R. Ford
+ - In the beginning, all the world was America. ~~John Locke
+ - Find out just what any people will quietly submit to and you have the exact measure of the injustice and wrong which will be imposed on them. ~~Frederick Douglass
+ - I am an American; free born and free bred, where I acknowledge no man as my superior, except for his own worth, or as my inferior, except for his own demerit. ~~Theodore Roosevelt
+ - Thomas Jefferson once said, ‘We should never judge a president by his age, only by his works.’ And ever since he told me that, I stopped worrying. ~~Ronald Reagan
+ - Men speak of natural rights, but I challenge any one to show where in nature any rights existed or were recognized until there was established for their declaration and protection a duly promulgated body of corresponding laws. ~~Calvin Coolidge
+ - Can’t wait for tomorrow when I get to exercise my patriotic duty as an American: Complaining about how long it’s taking to VOTE. ~~Stephen Colbert
+ - Freedom is the oxygen of the soul. ~~Moshe Dayan
+ - Above all, we must realize that no arsenal, or no weapon in the arsenals of the world, is so formidable as the will and moral courage of free men and women. It is a weapon our adversaries in today's world do not have. ~~Ronald Reagan
+
+40 quotes

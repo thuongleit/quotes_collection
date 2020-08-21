@@ -1,0 +1,48 @@
+ - You know they say money can’t buy happiness. Give me 50 bucks and watch me smile.
+ - Its amazing that Lou Ferrigno can talk with fifty pounds of cracker in his mouth.
+ - If you’re poor and you do something stupid, you’re nuts. If you’re rich and do something stupid, you’re eccentric.
+ - Its a dog eat dog world, and Mr. Perfect is a Milk Bone.
+ - You don’t have to yell at me Schiavone. I’m not blind!
+ - Remember folks, fish are like relatives. After two days, they stink.
+ - You’d have a good voice, if it ever came out of your throat.
+ - You’re 83? Really? You don’t look it. I would’ve guessed 81 or 82.
+ - I know all about cheating. I’ve had six very successful marriages.
+ - You win some and you lose some. Unless you’re Virgil, then you lose them all.
+ - North Dakota State. What do you have to do there to graduate? Milk a cow with your left hand?
+ - By the time The Iron Sheik gets to the ring, it will be Wrestlemania 37!
+ - The two things that scare me most about wrestling fans is that they’re allowed to vote and allowed to reproduce.
+ - There’s nothing better than a good, blind referee.
+ - I’m a legend in this sport. If you don’t believe me, ask me.
+ - Oh, I knew he was gonna do that. I just knew he was gonna do that. He don’t need Jannetty. I told you that off and on.
+ - Janetty tried to dive through the window to escape, what an act of cowardice.
+ - Tito Santana is like a cue-ball. The more you strike him, the more english you get out of him.
+ - To Jim Duggan, taking a shower is a high risk maneuver.
+ - He’s the only man I know of who can hide his own easter eggs.
+ - Are there any swamps in Oklahoma? Yes, there is. It’s called Tulsa.
+ - What are you doing, looking at me with one eye and chasing a fly with the other?
+ - I asked Stu Hart earlier. I said, ‘Stu, you gotta be proud of your boys.’ He said, ‘I have boys?’
+ - This guy makes coffee nervous.
+ - Dusty Rhodes and Sapphire. They’re a lovely twosome, or threesome, or foursome, or twenty-fifthsome.
+ - And for those of you that dropped out of high school, remember the famous phrase: ‘Do you want fries with that?’
+ - You can win, it’ll just cost you some money.
+ - The bad thing about the Bushwhackers is that win, lose, or draw, you gotta have everything you got on fumigated.
+ - Stu Hart trained all his kids – only three of them use the litter box.
+ - If you ever had your moon salted you’d know how painful that could be.
+ - Obviously some cheap motel is missing a shower curtain.
+ - I heard a rumor that your mom and dad ran away from home.
+ - When’s the last time you went into a barber shop and saw everyone there unconsious?
+ - It’s very hard to get out of this hold, that’s why you either have to scoot backwards, move forwards, or try to get up.
+ - Have you ever been to Glens Falls? The city limits signs are on the same post.
+ - Just look at the way he hangs in mid air!
+ - He’s not pointing to anybody, he’s showing off how high he can count!
+ - When The Phenoix Suns are missing two basketballs, they’ll know where to look!
+ - I’d love to be popular in Barcelona. That sounds like a fun job.
+ - He looks like something that fell out of a deck of cards!
+ - Hawaii’s the 50th state? I thought it was a suburb of Guam.
+ - There’s the downtown area of Tupelo. Did you see the skyscrapers? Two stories.
+ - The money’s the same, whether you earn it or scam it.
+ - Once you wrestke Rikki Atakki, an hour later you want to wrestle him again.
+ - They’re living proof that the 3 stooges had children.
+ - There’s a counter for every hold and a hold for every counter, and a lunch counter for every person that you know Schivone.
+
+46 quotes

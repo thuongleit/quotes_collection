@@ -1,0 +1,129 @@
+ - The best way to make your dreams come true is to wake up.
+ - Love is being stupid together.
+ - A great man is one who leaves others at a loss after he is gone.
+ - Poetry is to prose as dancing is to walking.
+ - The purpose of psychology is to give us a completely different idea of the things we know best.
+ - Sometimes I think, sometimes I am .
+ - A difficulty is a light. An insurmountable difficulty is a sun.
+ - Power without abuse loses its charm.
+ - God made everything out of nothing, but the nothingness shows through.
+ - Every beginning is a consequence – every beginning ends some thing.
+ - One should be light like a bird, and not like a feather.
+ - Politeness is organized indifference.
+ - What golden hour of life, what glittering moment will ever equal the pain its loss can cause?
+ - We are enriched by our reciprocate differences.
+ - To see is to forget the name of the thing one sees.
+ - Science is a collection of successful recipes.
+ - An artist never really finishes his work, he merely abandons it.
+ - Serious people have few ideas. People with ideas are never serious.
+ - Everything changes but the avant-garde.
+ - Let us enrich ourselves with our mutual differences.
+ - An attitude of permanent indignation signifies great mental poverty. Politics compels it votaries to take that line and you can see their minds growing more impoverished every day, from one burst of righteous indignation to the next.
+ - History is the science of what never happens twice.
+ - A man’s true secrets are more secret to himself than they are to others.
+ - We hope vaguely but dread precisely.
+ - Breath, dreams, silence, invincible calm, you triumph.
+ - Every social system is more or less against nature, and at every moment nature is at work to reclaim her rights.
+ - To enter into your own mind you need to be armed to the teeth.
+ - Science means simply the aggregate of all the recipes that are always successful. All the rest is literature.
+ - An intelligent woman is a woman with whom one can be as stupid as one wants.
+ - Man is only man at the surface. Remove the skin, dissect, and immediately you come to machinery.
+ - Having precise ideas often leads to a man doing nothing.
+ - The trouble with our times is that the future is not what it used to be.
+ - If the Ego is hateful, Love your neighbor as yourself becomes a cruel irony.
+ - To penetrate one’s being, one must go armed to the teeth.
+ - Our most important thoughts are those that contradict our emotions.
+ - We need to wake up from a thought that lasts too long.
+ - One had to be a Newton to notice that the moon is falling, when everyone sees that it doesn’t fall.
+ - The universe is built on a plan the profound symmetry of which is somehow present in the inner structure of our intellect.
+ - Oh, hasten not this loving act, Rapture where self and not-self meet: My life has been the awaiting you, Your footfall was my own heart’s beat.
+ - Fidelity to meaning alone in translation is a kind of betrayal.
+ - No work of art is ever completed, it is only abandoned.
+ - Just as water, gas, and electricity are brought into our houses from far off to satisfy our needs in response to a minimal effort, so we shall be supplied with visual or auditory images, which will appear and disappear at a simple movement of the hand, hardly more than a sign.
+ - A bad poem is one that vanishes into meaning.
+ - The power of verse stems from an indefinable harmony between when it says and what it is.
+ - My soul is nothing now but the dream dreamt by matter struggling with itself!
+ - The great virtues of the German people have created more evils than idleness ever did vices.
+ - We must always apologize for talking painting.
+ - Nothing beautiful can be summarized.
+ - Whoever wants to accomplish great things must devote to a lot of profound thought to details.
+ - I thought it necessary to study history, even to study it deeply, in order to obtain a clear meaning of our immediate time.
+ - It is a sign of the times, and not a very good sign, that these days it is necessary and not only necessary but urgent to interest minds in the fate of Mind, that is to say, in their own fate.
+ - The folly of mistaking a paradox for a discovery, a metaphor for a proof, a torrent of verbiage for a spring of capital truths, and oneself for an oracle, is inborn in us.
+ - Stupidity is not my strong suit.
+ - There is a difference if we see something with a pencil in our hand or without one.
+ - War: a massacre of people who don’t know each other for the profit of people who know each other but don’t massacre each other.
+ - God created man and, finding him not sufficiently alone, gave him a companion to make him feel his solitude more keenly.
+ - If the state is strong, it crushes us. If it is weak, we perish.
+ - To be sincere means to be the same person when one is with oneself; that is to say, alone – but that is all it means.
+ - Long years must pass before the truths we have made for ourselves become our very flesh.
+ - Follow the path of your aroused thought, and you will soon meet this infernal inscription: There is nothing so beautiful as that which does not exist.
+ - Books have the same enemies as people: fire, humidity, animals, weather, and their own content.
+ - Thought must be hidden in the verse like nutritional virtue in a fruit.
+ - Nothing is more natural than mutual misunderstanding; the contrary is always surprising. I believe that one never agrees on anything except by mistake, and that all harmony among human beings is the happy fruit of an error.
+ - History justifies whatever we want it to. It teaches absolutely nothing, for it contains everything and gives examples of everything.
+ - It would be impossible to “love” anyone or anything one knew completely. Love is directed towards what lies hidden in its object.
+ - A businessman is a hybrid of a dancer and a calculator.
+ - The advantage of the incomprehensible is that it never loses its freshness.
+ - Our judgments judge us, and nothing reveals us, exposes our weaknesses, more ingeniously than the attitude of pronouncing upon our fellows.
+ - Advertising has annihilated the power of the most powerful adjectives.
+ - It is a law of nature that we defend ourselves from one affection only by means of another.
+ - To write regular verses destroys an infinite number of fine possibilities, but at the same time it suggests a multitude of distant and totally unexpected thoughts.
+ - My hand feels touched as well as it touches; reality says this, and nothing more.
+ - The dog has made man their God, if the dog was an atheist, it would be perfect.
+ - The future, like everything else, is no longer quite what it used to be.
+ - The world acquires value only through its extremes and endures only through moderation; extremists make the world great, the moderates give it stability.
+ - What is simple is wrong, and what is complicated cannot be understood.
+ - Poems are never finished – just abandoned.
+ - A work is never completed except by some accident such as weariness, satisfaction, the need to deliver, or death: for, in relation to who or what is making it, it can only be one stage in a series of inner transformations.
+ - What Degas called ‘a way of seeing’ must consequently bear a wide enough interpretation to include way of being, power, knowledge, and will.
+ - A poet’s work consists less in seeking words for his ideas than in seeking ideas for his words and predominant rhythms.
+ - We are wont to condemn self-love; but what we really mean to condemn is contrary to self-love. It is that mixture of selfishness and self-hate that permanently pursues us, that prevents us from loving others, and that prohibits us from losing ourselves.
+ - Photography invites one to give up any attempt to delineate such things as can delineate themselves.
+ - Talent without genius isn’t much, but genius without talent is nothing whatsoever.
+ - Great things are accomplished by those who do not feel the impotence of man. This is a precious gift.
+ - Beware of what you do best; its bound to be a trap.
+ - Thanks to photography, the eye grew accustomed to anticipate what it should see and to see it; and it learned not to see nonexistent things which, hitherto, it had seen so clearly.
+ - Man’s great misfortune is that he has no organ, no kind of eyelid or brake, to mask or block a thought, or all thought, when he wants to.
+ - That which has been believed by everyone, always and everywhere, has every chance of being false.
+ - Every man expects some miracle – either from his mind or from his body or from someone else or from events.
+ - Whatever we succeed in doing is a transformation of something we have failed to do. Thus, when we fail, it is only because we have given up.
+ - My poems mean what people take them to mean.
+ - Great things are accomplished by men who are not conscious of the impotence of man. Such insensitiveness is precious. But we must admit that criminals are not unlike our heroes in this respect.
+ - The history of thought may be summed up in these words: it is absurd by what it seeks and great by what it finds.
+ - Growing nations should remember that, in nature, no tree, though placed in the best conditions of light, soil, and plot, can continue to grow and spread indefinitely.
+ - All nations have present, or past, or future reasons for thinking themselves incomparable.
+ - Peace is a virtual, mute, sustained victory of potential powers against probable greeds.
+ - The “determinist” swears that if we knew everything we should also be able to deduce and foretell the conduct of every man in every circumstance, and that is obvious enough. But the expression “know everything” means nothing.
+ - The most ridiculous were those who, on their own authority, made themselves the judges and justices of the tribe. They seemed never to suspect that our judgments judge us, and that nothing exposes our weaknesses and reveals ourselves more naively than the attitude of pronouncing upon our neighbors.
+ - Conscience reigns but it does not govern.
+ - In poetry everything which must be said is almost impossible to say well.
+ - Do you not realise that dance is the pure act of metamorphosis?
+ - A man is a poet if difficulties inherent in his art provide him with ideas; he is not a poet if they deprive him of ideas.
+ - Poe is the only impeccable writer. He was never mistaken.
+ - The only truths which are universal are those gross enough to be thought so.
+ - A man is infinitely more complicated than his thoughts.
+ - Politics is the art of preventing people from busying themselves with what is their own business.
+ - We civilizations now know ourselves mortal.
+ - Order always weighs on the individual. Disorder makes him wish for the police or for death. These are two extreme circumstances in which human nature is not at ease.
+ - A real writer can be recognized by the fact he doesn’t find words. Therefore he must search for them and while doing that, he finds better ones.
+ - Science is feasible when the variables are few and can be enumerated; when their combinations are distinct and clear. We are tending toward the condition of science and aspiring to do it. The artist works out his own formulas; the interest of science lies in the art of making science.
+ - Liberty is the hardest test that one can inflict on a people. To know how to be free is not given equally to all men and all nations.
+ - If disorder is the rule with you, you will be penalized for installing order.
+ - To hit someone means to adopt his point of view.
+ - A man who is ‘of sound mind’ is one who keeps the inner madman under lock and key.
+ - The mind has transformed the world, and the world is repaying it with interest. It has led man where he had no idea how to go.
+ - Two dangers constantly threaten the world: order and disorder.
+ - In most cases, when the lion, weary of obeying its master, has torn and devoured him, its nerves are pacified and it looks round for another master before whom to grovel.
+ - If what has happened in the one person were communicated directly to the other, all art would collapse, all the effects of art would disappear.
+ - Man cannot bear his own portrait. The image of his limits and his own determinacy exasperates him, drives him mad.
+ - It seems to me that the soul, when alone with itself and speaking to itself, uses only a small number of words, none of them extraordinary.
+ - The only treaties that ought to count are those which would effect a settlement between ulterior motives.
+ - What one wrote playfully, another reads with tension and passion; what one wrote with tension and passion, another reads playfully.
+ - In the physical world, one cannot increase the size or quantity of anything without changing its quality. Similar figures exist only in pure geometry.
+ - The mere notion of photography, when we introduce it into our meditation on the genesis of historical knowledge and its true value, suggests the simple question: Could such and such a fact, as it is narrated here, have been photographed?
+ - The folly of mistaking oneself for an oracle is built right into us.
+ - Though completely armed with knowledge and endowed with power, we are blind and impotent in a world we have equipped and organized-a world of which we now fear the inextricable complexity.
+ - A limited vocabulary, but one with which you can make numerous combinations, is better than thirty thousand words that only hamper the action of the mind.
+
+127 quotes

@@ -1,0 +1,110 @@
+ - If you work hard, it will pay off in the end.
+ - Follow your dreams. If you have a goal, and you want to achieve it, then work hard and do everything you can to get there, and one day it will come true.
+ - Life changes very quickly in a very positive way if you let it.
+ - Setbacks motivate me.
+ - You are only limited to what you push yourself to, you know? You can always get better.
+ - When you fall, get right back up. Just keep going, keep pushing it.
+ - When you fall down, just get up again.
+ - I’d like to keep my personal life private. In reality, I know that’s not possible. In the present, I’m trying to pretend it’s possible.
+ - If you go around being afraid, you’re never going to enjoy life. You have only one chance, so you’ve got to have fun.
+ - I want to keep pushing the limits to see what’s possible. That’s the nice thing about ski racing – no one is stopping you from going faster.
+ - It’s sexy and beautiful to be strong.
+ - Be proud of yourself when you do keep going!
+ - The Olympics are what I work for. They’re why I spend so much time in the gym.
+ - When my parents were getting divorced, I just said to myself, ‘Go to sleep, and tomorrow you can go skiing.’ I cried myself to sleep, and in the morning I was up on the mountain, and I was good.
+ - I feel like, with ski racing, you need to have a short memory. You crash all the time, and sometimes it’s a really bad one, but sometimes it’s not so bad.
+ - I’m never tired of winning, and I’m never tired of skiing.
+ - I love ‘Saturday Night Live,’ and it’s such a funny show. I don’t know if I’m funny enough to be on it but definitely would be interested in doing it.
+ - Everything about my life seemed so perfect to people. But I struggle like everyone else.
+ - Mascara is my go-to product before stepping out of the house.
+ - It’s so important for kids to get involved with sports in general at a young age.
+ - If you work so hard to reach your goal but you lose your pole in the very last run, that’s hard to take.
+ - I’m not an idiot; I try not to look, but I see what people say about me on Facebook. I see other things written. But I don’t care.
+ - In the end, it’s a mental maturity to let your best come out.
+ - My mom is really tough.
+ - People get nervous driving around corners, thinking they’re going to tip over. But you can go soooo much faster through the curves than you realize.
+ - My childhood dream was to win the Olympics, and I’ve done that. Everything else is icing on the cake.
+ - Tiger Woods makes me a better athlete.
+ - Being on one crutch to no crutches is a huge difference.
+ - I wouldn’t change being married. It was good for me, and I was happy for a period of time, and I learned a lot about myself.
+ - I don’t want to leave skiing early. I want to feel like I’ve done everything I can do.
+ - I always channeled what I felt emotionally into skiing – my insecurities, my anger, my disappointment. Skiing was always my outlet, and it worked.
+ - My mom is positive and optimistic.
+ - I’ve never once heard my mom complain about her stroke.
+ - I remember when I met Picabo Street, you know, how in awe I was of her and how much she inspired me, and I really hope to be that for young kids.
+ - Olay BB Cream is a lifesaver, and I wear it every day while I train and compete. Twenty-four-hour hydration and sheer color helps me look flawless even when faced with that unforgiving Jumbotron!
+ - I’m proud to be part of any Olympic team.
+ - I enjoyed trying everything. I’d never get a chance to try fencing or archery if it wasn’t for this. It was really fun experience.
+ - I think the most important thing in skiing is you have to be having fun. If you’re having fun, then everything else will come easy to you.
+ - I take risks – that’s my life on the slopes and off.
+ - There is a dessert dish in Austria called Kaiserschmarrn – it’s kind of like a sweet raisin pancake with eggs and sugar. It’s definitely not something I can eat often, but if I’ve done well at a race, sometimes that’s my celebration treat!
+ - Even growing up, I was always the helper-outer, the sous-chef to my parents.
+ - I find folding laundry very relaxing.
+ - When I get on the World Cup tour, I’m kind of disconnected from the world. I just kind of get wrapped up in my world and wrapped up in trying to ski fast every day, and I forget about everything else.
+ - I never thought my face would be on the cover of a Red Bull Six Pack.
+ - I’ve been to a lot of photo shoots, and I see these girls that are just really thin. They’re not healthy. They don’t work out.
+ - I hate being helpless, and I hate having to ask people to do things for me.
+ - Ski racing is not about how much you weigh. If weight was the key, everybody would be sucking down food.
+ - Golf is all about patience – one tournament is four days long, 18 holes a day.
+ - I love the cowbell. I think it’s awesome. My family got the cowbell app on their iPhones. It’s a classic part of ski racing.
+ - Since childhood, sports has been one of the most important influences in my life.
+ - I’m not trying to race the whole men’s tour; I just want to race one time. If you know me, which most people on the World Cup do, they know that this is a legitimate goal of mine and not a publicity stunt.
+ - Anytime you’re on the podium, it’s good.
+ - It seems kind of silly, but it’s really nice to chill in the kitchen with a friend and bake. It relaxes me, and mixing is probably my favorite part.
+ - Today it was win or lose. But my victory yesterday and the downhill globe boosted my confidence. My record in Cortina was also a liberation.
+ - I don’t really believe that you need to be married to someone to be their life partner.
+ - Trying to coordinate everything, it can be really hard to balance.
+ - I don’t know where I’m supposed to meet a boyfriend. It’s weird.
+ - I have a little Nintendo DS, and I play these brain games that are supposed to stimulate your mind.
+ - My crazy training-and-competition schedule leaves very little time to focus on my hair.
+ - I have a race routine. I have a team of people helping me. I have winning habits. I believe in myself. I have balance in my life.
+ - When you’re young, you develop ways to win, and you think they will always work, but then you get to the top, competing against the other top athletes, and sometimes things don’t work.
+ - I snack on fruit and nuts. In the middle of my long workouts, I’ll have a protein shake.
+ - I get up early, but it doesn’t mean I like getting up early.
+ - You start seeing all of the athlete profiles on NBC, and whenever the Summer Olympics come up, I feel like I share the same experience with the Summer Olympians.
+ - I feel like winning a world championship was a hurdle I had to get over.
+ - For someone to say I am overweight is completely ridiculous.
+ - I did gymnastics when I was a kid. I wasn’t very good at it.
+ - Records are the only thing that remain of an athlete, the only thing that people will remember. If I want to ensure that people don’t forget me, I can only stop once I’ve set the bar as high as possible for anyone coming after me.
+ - Unfortunately, we both lead incredibly hectic lives that force us to spend a majority of our time apart. I will always admire and respect Tiger. He and his beautiful family will always hold a special place in my heart.
+ - I never felt sidelined, I was supported by my friends, my family and my team. I always knew I could do it. I had confidence in myself.
+ - Divorce doesn’t fit my cookie-cutter image.
+ - I don’t give up easily. I have plans to be around for a while.
+ - It’s difficult to be at events with a room full of women who weigh half as much as you do.
+ - I’m not trying to get five medals. I’m not trying to be Michael Phelps.
+ - I want to be known for my athletic achievements, not my celebrity.
+ - An overall title is one of the biggest things you can win in our sport.
+ - I ski very aggressively, and the angles that I create with my body are similar to some of the male racers.
+ - I can’t picture myself being the people I always looked up to.
+ - I always ate healthy, but it wasn’t scientific. Now it’s a high-protein diet and no carbohydrates. I have more consistent energy, and I don’t get tired after a meal. It does take a very detailed meal plan.
+ - In the winter, I’m always in Europe. July and September are New Zealand and Chile camps. I’m always on the road.
+ - Skiing takes so much out of me, and when I start a family, I want to do it 100%.
+ - Athletics at the highest level is a sport within a sport.
+ - Facebook and Twitter have changed how people follow ski racing. In past Olympics, you couldn’t stay in touch with the fan base that followed you during the Olympics. They thought they had to wait four years to reconnect.
+ - Ninety percent of the day is working out. Sometimes I get my nails done and go to the grocery store.
+ - I enjoy just showing people other sides of me, especially everyone always sees me in my helmet and ski suit. It’s nice to just show everyone me, just me in my everyday clothes or just me in high heels or just me not in my ski gear, basically.
+ - I want to show America who I am and inspire young kids.
+ - Everyone knows marriage is tough.
+ - I really like figure skating.
+ - You have to be a little crazy to be a downhill skier.
+ - Making ski racing fun and engaging for kids and families is an exciting opportunity and a real passion of mine.
+ - I want to ski as long as I can.
+ - You can get a big gust of wind, and your Olympics are over.
+ - I use men’s skis because, honestly, they work better for me. They’re longer, they’re stiffer, they’re harder to turn – but at the same time, they’re much more stable.
+ - Life’s short, you know? Especially as an athlete. Your career is very short, and you use the opportunities that you have because you’re not going to have them again.
+ - Vail Resorts School of Shred program is a great way to help encourage kids to stay active by getting them outside and on the mountain.
+ - Just in general, staying healthy and active is important.
+ - Everyone saw me on TV or read articles, and it was all about my great marriage, the white picket fence, all this success and my perfect life. But behind the scenes, it was a struggle.
+ - When I train against men, I always find that I push myself harder to my absolute maximum.
+ - Setbacks help you to concentrate.
+ - I won’t lie – I picked up the occasional gossip magazine in the past because I thought that maybe 5 to 10 percent of it was true. Now I think it’s zero percent.
+ - I can be normal by myself; no one notices me.
+ - There are times when one certain snow condition is great for one particular brand of skis.
+ - I wish it didn’t take soooooo much to get physically to where I need to be.
+ - Especially when I’m in the gym, I get really motivated by hip-hop.
+ - Medals are decided by hundredths of a second, so I need assurance that my vision is perfect every time I compete, no matter what the conditions.
+ - I don’t know if I’ll ever get used to the idea that strangers know who I am. I don’t know if I want to.
+ - The history of skiing is important to me.
+ - I try to eat on the healthier side, but baked goods are hard to resist. I just love sweet things.
+
+108 quotes

@@ -1,0 +1,124 @@
+ - If it wasn’t hard, everyone would do it. It’s the hard that makes it great.
+ - Houston, we have a problem.
+ - I know what I have to do now, I’ve got to keep breathing because tomorrow the sun will rise. Who knows what the tide could bring?
+ - Believing is seeing and seeing is believing.
+ - Dear God, thank you for my life. I forgot how big and wonderful it is.
+ - Shake it off and move on.
+ - If things were easy to find, they wouldn’t be worth finding.
+ - I’m not a smart man, but I know what love is.
+ - Life is like a box of choclates. You never know what you goanna get.
+ - A hero is somebody who voluntarily walks into the unknown.
+ - Saying no to something is actually much more powerful than saying yes.
+ - Never give up because you never know what the tide will bring in the next day.
+ - Are you crying? There’s no crying. There’s no crying in baseball.
+ - The only way you can truly control how you are seen is by being honest all the time.
+ - Help, and you will make a huge impact in the life of the street, the town, the country and our planet. If only one out of four of each one hundred of you choose to help on any given day, in any given cause, incredible things will happen in the world you live in.
+ - For some people, I will be Forrest Gump for the rest of my life. But that’s OK; that’s a good thing.
+ - It’s not a mid-life crisis. It’s a mid-life disaster. A mid-life crisis is when you wake up with everything and you go “I have everything but I’m still unhappy.”
+ - Some people go to bed at night thinking, ‘That was a good day.’ I am one of those who worries and asks, ‘How did I screw up today?’
+ - There’s a difference between solitude and loneliness. I can understand the concept of being a monk for a while.
+ - Everybody has something that chews them up and, for me, that thing was always loneliness. The cinema has the power to make you not feel lonely, even when you are.
+ - From now on we live in a world where man has walked on the Moon. It’s not a miracle; we just decided to go.
+ - Mama always said, dying was a part of life. I sure wish it wasn’t.
+ - This is what we storytellers do. We restore order with imagination.
+ - I think it’s better to feel good than to look good.
+ - What we’re doing with Band of Brothers is trying to put it into human terms, so it is not just a flickering, black and white myth on a screen, it is a resonant story. I want the audience to recognize themselves in these men. They’re not just mythic heroes.
+ - I am who I am, and I think I have a good nature, by and large. But if someone takes advantage of that good nature, well then, you know, I’m not that nice a guy.
+ - Larger-than-life characters make up about .01 percent of the world’s population.
+ - I come from the school of That Horse is Not Dead.
+ - The truth is that everyone pays attention to who’s number one at the box office. And none of it matters, because the only thing that really exists is the connection the audience has with a movie.
+ - I have high blood sugars, and Type 2 diabetes is not going to kill me. But I just have to eat right, and exercise, and lose weight, and watch what I eat, and I will be fine for the rest of my life.
+ - Yeah! I got type-two diabetes! I’m sure there’s going to be some media scandal now, saying I got it because I gained and lost weight for movie parts or something – but I doubt that.
+ - My favorite traditional Christmas movie that I like to watch is All Quiet on the Western Front. It’s just not December without that movie in my house.
+ - The power of the individual is as powerful as the universe is infinite.
+ - We are still in the position of waking up and having a choice. Do I make the world better today somehow, or do I not bother?
+ - When I was 21 years old, I had a job playing Santa Claus in a shopping centre in Sacramento. I was rail thin, so it’s not like I was a traditional Santa Claus even then. I had a square stomach; that was the shape of the sofa cushion that I had stuffed into my pants.
+ - I love my family and I love my kids, but when the moments come, it’s not as though you can just substitute your own life with what you’re doing on film. You have to go to some other place where it’s bigger than your own life.
+ - Prior to Saving Private Ryan I never worked with men. I was always working with some babe, and it was always about falling in love, and it just got turned around. I’m not looking for any particular kind of story. I wait until it comes across my desk.
+ - I don’t follow football, I just love the name Aston Villa. Here in England you have other footballing entities like Manchester and Arsenal and Chelsea.
+ - I think 80 percent of the population are really great, caring people who will help you and tell you the truth. That’s just the way it is. And I think 20 percent of the population are crooks and liars. It’s just a fact.
+ - As an actor I am always waiting for my luck to run out.
+ - We are all God’s animated cartoons.
+ - Even the simplest choice can make a jaw-dropping difference in our world.
+ - But the battles against loneliness that I fought when I was 16 are very different from those I fought when I was 27, and those are very different from the ones I fight at 44.
+ - You don’t necessarily go in to talk to the person to try to find some secret key to the lock.
+ - You have to adhere to a philosophy that the life unexamined is not worth living, because otherwise you’re just living from day to day and you don’t have any real sense of yourself or where you are.
+ - My doctor said, ‘If you can weigh what you weighed in high school, you’ll essentially be healthy and not have Type 2 diabetes.’ Well, I’m gonna have Type 2 diabetes, because there is no way I can weigh as much as I did in high school.
+ - The nature of the movies is different than it was five years ago, and they’re all driven by the possibilities of CGI, which means you can make anything happen on screen that you can possibly desire.
+ - In the 1998 Oscars, I found myself in the bathroom in a stall, next to Tom Selleck. So I leaned over and I said ’looks like we’re a couple of peeing Toms. His angry silence is something I’ll never forget.
+ - If you have to have a job in this world, a high-priced movie star is a pretty good gig.
+ - Mama always had a way of explaining things so I could understand them.
+ - I do not want to admit to the world that I can be a bad person. It is just that I don’t want anyone to have false expectations. Moviemaking is a harsh, volatile business, and unless you can be ruthless, too, there’s a good chance that you are going to disappear off the scene pretty quickly.
+ - I’m not interested in doing something edgy with a capital E just so everyone knows, ‘Oh, OK, now he’s showing us he can do edgy.’
+ - The prejudice surrounding AIDS exacts a social death which precedes the actual physical one.
+ - Growing up in northern California has had a big influence on my love and respect for the outdoors. When I lived in Oakland, we would think nothing of driving to Half Moon Bay and Santa Cruz one day and then driving to the foothills of the Sierras the next day.
+ - Help and you will abolish apathy-the void that is so quickly filled by ignorance and evil.
+ - And then it was like, wait, you can go to college and study theater? And act in plays? This is almost a racket, you know. And then when the opportunity came along to do it professionally, I thought I’d won the lottery.
+ - No journalist has ever been in my house and no photographs have ever been taken of where I live. I don’t parade my family out for display, which is the way it will stay.
+ - In the creative process you come to loggerheads and you just have to keep the process moving forward, even if that requires jumping on a plane and flying to London. It’s a good thing it’s fun, otherwise it would be too much work.
+ - It’s always a combination of physics and poetry that I find inspiring. It’s hard to wrap your head around things like the Hubble scope.
+ - I have gone through so many examinations of what a hero is, between the World War II stuff and the astronaut stuff.
+ - I understand the concept of optimism. But I think with me what you get is a lack of cynicism.
+ - When you try to bring a story to life, it starts in your head and you see possibilities for it, but it’s just one damn thing after another.
+ - When you’re on the open sea and you drop 10, 12 feet and your stomach goes up around your neck – that’s when you have problems.
+ - But actors with political views are a dime a dozen.
+ - Oprah Winfrey today you are surrounded by nothing but love.
+ - I know the Pope is opposed to the use of condoms. All I can say is, I am a spiritual man and I’ve been happily married for 21 years. I don’t even know what a condom is anymore.
+ - I always wanted to play Lestrade of Scotland Yard ’cause he’s a buffoon that gets to wear a uniform. I thought that would be fun.
+ - If you can feel like a good man in your 40s, you can feel like a better man in your 50s, a Superman in your 60s, and maybe a Spider-Man in your 70s.
+ - An animatic is a process where every voice and every sound effect is added to rough animated drawings and it lasts exactly as long as the final movie. So you actually get to go into a screening room with the rest of the cast and you get to see it all at the same time.
+ - At the end of the day it’s got to be a good movie, it’s got to be a funny movie, and it’s got to make people think, ‘Hey, I couldn’t have spent my time any better.’
+ - As a young man, even if I was going to see a play or a film by myself, I didn’t feel like I was alone. There was something that was unfolding up there that brought me into it. And I recognised that. For those two hours, it made me feel like I belonged to something really good.
+ - My wife keeps on telling me my worst fault is that I keep things to myself and appear relaxed. But I am really in a room in my own head and not hearing a thing anyone is saying.
+ - I love what I do for a living, it’s the greatest job in the world, but you have to survive an awful lot of attention that you don’t truly deserve and you have to live up to your professional responsibilities and I’m always trying to balance that with what is really important.
+ - If you look at romantic comedies as pieces of commerce, the audience is looking for wish fulfillment.
+ - My wife and I, we met making a movie. This is not just our job, it’s our life. It’s what we do naturally whether we’re working together or not.
+ - Human beings do things for a reason, even if sometimes it’s the wrong reason.
+ - Eating everything you want is not that much fun. When you live a life with no boundaries, there’s less joy. If you can eat anything you want to, what’s the fun in eating anything you want to?
+ - Reading a script is usually as exciting as reading a boilerplate legal document, so when you read one that makes you feel as if you’re seeing the movie, you know it’s something different.
+ - It just so happens that my body type and my lifestyle gives me a preclusion for high blood sugars.
+ - Every job requires a certain riding of a horse.
+ - If I was to direct Ron Howard, I guarantee you, I would put him through a living hell every day. I would demand so much of him. We wouldn’t quit until he leaves the set crying. Weeping! Spent!
+ - As a boy Id often spend my days biking on riverbeds and arroyos and come home exhausted. I realize now how much I took for granted having the natural world so close at hand. It wasnt until I moved away, first to New York and then to Los Angeles, that I realized how much I missed the outdoors.
+ - But look, I was born in 1956, the peak year for births in US history. I think I’m very representative of many of the thought processes my generation have been through and, by and large, people of my age have had their imprint planted on the consciousness of western society for a long time.
+ - E-mail is far more convenient than the telephone, as far as I’m concerned. I would throw my phone away if I could get away with it.
+ - Acting still rings my bell as much as it did in high school. Plus, I can now indulge my interests as a producer as well. My work is more fun than fun but, best of all, it’s still very scary. You are always walking some kind of high wire.
+ - But I also think all of the great stories in literature deal with loneliness. Sometimes it’s by way of heartbreak, sometimes it’s by way of injustice, sometimes it’s by way of fate. There’s an infinite number of ways to examine it.
+ - I just know that every man I kill the farther away from home I feel.
+ - I would not want to live in a country that would have me as a leader in any sort of political bent.
+ - There was a period of time in Los Angeles when I wondered if I was just going to lose everything.
+ - I’m lucky enough to be able to make only movies I’m interested in seeing. That has to be an instinctive thrust. The audience knows when you’re faking it. They can hang any kind of moniker they want on me.
+ - One thing that was amazing about World War II was that everybody signed up for the duration plus six months. Fliers got to leave combat after 25 missions, or 35 missions, but other than that, you were in it. You were part of the great effort, until, oh boy, six months after it was over.
+ - Directing is a constant test of your communicative powers. You’re constantly trying to explain people your vision of what you want and steer these tiny little details into a cohesive thing.
+ - And I’m not apolitical – I’m very specific in my politics. But a lot of the time it’s nobody’s business unless you’re over at my house having dinner.
+ - I will entertain anything; it doesn’t matter. You know, it’s not obviously about the price, it’s not about who, it’s kind of about when and what. It’s material, that’s all.
+ - I think I’m lucky that I had kids as spread out as much as I did, ’cause my son, my oldest, was born when I was 21. And my youngest is 15 now. He was born when I was 40, you know?
+ - The year I was born, 1956, was the peak year for babies being born, and there are more people essentially our age than anybody else. We could crush these new generations if we decided too.
+ - You cannot look up at the night sky on the Planet Earth and not wonder what it’s like to be up there amongst the stars. And I always look up at the moon and see it as the single most romantic place within the cosmos.
+ - I don’t ask for much. I don’t ask to be rich, and I don’t ask to be famous, and I don’t ask to play center field for the New York Yankees. I just want to get married and have a wife, and a house, and I want to have a kid, and I want to go see him be a tooth in the school play!
+ - The nature of motion capture is only going to work for certain films. It’s not going to put any other type of movies out of business.
+ - I’ve talked to a number of actors who have gained weight for roles, and just the sheer physical toll it puts on one’s knees and shoulders – no one wants to do it again. I’m 57 and I don’t think I’m going to take on any job or go on vacation again and see to it that I can gain 30 pounds.
+ - Help publicly. Help privately. Help make sense where sense has gone missing. Help science to solve and faith to soothe. Help, and you will abolish apathy-the void that is so quickly filled by ignorance and evil.
+ - In your mid-30s, it’s time to start playing guys of compromise. And as you get older, men of bitter compromise.
+ - College isn’t necessary for everybody and it’s only from what you put into it what you go there for.
+ - If you’re funny, if there’s something that makes you laugh, then every day’s going to be okay.
+ - The same way that I know that I’ll never do a movie as good or as celebrated as ‘Forrest Gump,’ I know that I’ll never do a movie as bad as ‘Bonfire of the Vanities.’
+ - There isn’t any great mystery about me. What I do is glamorous and has an awful lot of white-hot attention placed on it. But the actual work requires the same discipline and passion as any job you love doing, be it as a very good pipe fitter or a highly creative artist.
+ - I had to say no to ‘Fantasy Island’ back when I was doing ‘Bosom Buddies.’
+ - I’ve made over 20 movies, and 5 of them are good.
+ - My job has always been to hold a mirror up to nature.
+ - I don’t cause riots, but I do cause confusion. People freeze when they spot me.
+ - Tweeting is like sending out cool telegrams to your friends once a week.
+ - All the kids are gone. It’s the greatest thing that has ever happened to Mr. and Mrs. Tom Hanks. I’ll tell you that right now. Second greatest after having the kids in the first place. When they go, holy smoke, it’s like you’re dating again. It’s fantastic. Also, we were doing an awful lot of work.
+ - Repertory theater is all about being part of the whole, one of the many colors in this vast palette.
+ - I went to college because I didn’t have anywhere else to go and it was a fabulous hang. And while I was there I was exposed to this world that I didn’t know was possible.
+ - Being politically correct means always having to say you’re sorry. Believe me, the power and pleasure and the emotion of this moment is a constant speed of light.
+ - There is something basic about protecting land by taking it off the market. People should be able to enjoy where they live while at the same time protect the plants and animals around them.
+ - The “Toy Story” films accomplish what timeless classics aim for – innocent characters who face an endless trail of adventures.
+ - I want to have a good time myself. I don’t want to dread going to work no matter what the gig is. I think, selfishly, I will make sure that I have a good time; how about that?
+ - But television, when I was doing it, was all about scoring. You had to make these jokes bang, do whatever you could to make the material really pop. And if it didn’t, there was something wrong with the material, or with you.
+ - If they could offer up a way to go to the moon that wouldn’t kill you, I’d sign up.
+ - When I was growing up, everybody in charge, my parents and teachers, had all survived the war, and they talked about the war like it was the Kraken – you know, this huge beast that roamed the earth during their formative years.
+ - Making a film is to make sure that everybody looks forward to coming to work.
+
+122 quotes

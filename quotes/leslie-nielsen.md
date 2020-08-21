@@ -1,0 +1,30 @@
+ - Like a midget at a urinal I was going to have to stay on my toes.
+ - Do your part to silence gossip – don’t repeat it.
+ - Truth hurts. Maybe not as much as jumping on a bicycle with the seat missing, but it hurts.
+ - I’m sure that we can handle this situation maturely, just like the responsible adults that we are. Isn’t that right, Mr. Poopy Pants?
+ - I’ve finally found my home – as Lt. Frank Drebin.
+ - Doing nothing is very tough to do because you never know when you’re finished. The upside is that from the moment you wake up in the morning, you’re on the job.
+ - The actual distance a bad golfer is going to hit the ball with any club obviously depends on many factors, not the least of which is whether the ball was actually hit at all.
+ - Are you having problems hearing? If so, those around you already know it. Hearing loss is no laughing matter, so don’t be a punchline.
+ - When you see Charlie Chaplin, he stays funny. He doesn’t become drama, and so what really seems to endure is comedy.
+ - Any sport that comes from Scotland is good!
+ - There’s an old saying that God exists in your search for him. I just want you to understand that I ain’t looking.
+ - It’s been dawning on me slowly that for the past 35 years I have been cast against type, and I’m finally getting to do what I really wanted to do.
+ - I don’t think anybody can really sit down and decide that their mission in life is to make people think. I think their mission in life is to leave people alone!
+ - The reason there’s a question mark on my front door is just in case I forget my address.
+ - Yes, it’s true, I’ve been called the Laurence Olivier of spoofs. I guess that would make Laurence Olivier the Leslie Nielsen of Shakespeare.
+ - I have always loved science fiction. One of my favorite shows is ‘Star Trek.’ I like the trips, where it drops my mind off, because they give you a premise and all of a sudden, you say, ‘Oh!’ and I’m fascinated by it.
+ - Those who the gods seek to destroy first, learn how to play golf.
+ - The reason they call if ‘golf’ is that all the other 4 letter words were used up.
+ - It’s not really that I’ve been an advocate for hearing aids for a long time, it’s just that I’ve been losing my hearing for a long time! So it’s actually very important for me because I’m actually hearing impaired and I simply want to hear better!
+ - Sometimes integrity is a punch in the face.
+ - I like that kind of ‘straight-faced’ comedy. I like to be straight-faced and outrageous.
+ - One thing a person won’t do when he’s laughing is try to beat you up.
+ - I love comedy and I hope I never stop doing it.
+ - I’m a professional actor. If I was a plumber, I wouldn’t just do my plumbing in Beverly Hills bathrooms; I’d like to install air conditioning units and a few other things.
+ - I really have to keep an eye on myself, because sometimes I think I might say something important.
+ - I played a lot of leaders, autocratic sorts; perhaps it was my Canadian accent.
+ - The violence or the vaudeville style of comedy is a technique all by itself. You get up there, and you are a comedian, and you’re doing one thing. That is, you’re going to make the audience laugh.
+ - Shirley! Don’t call me Shirley!
+
+28 quotes

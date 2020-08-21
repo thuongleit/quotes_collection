@@ -1,0 +1,151 @@
+ - We have nothing to fear for the future, except as we shall forget the way the Lord has led us, and His teaching in our past history.
+ - The strongest argument in favor of the gospel is a loving and lovable Christian.
+ - Every act, every deed of justice and mercy and benevolence, makes heavenly music in Heaven.
+ - Talents used are talents multiplied.
+ - Our heavenly Father has a thousand ways to provide for us, of which we know nothing.
+ - Unceasing prayer is the unbroken union of the soul with God, so that life from God flows into our life; and from our life, purity and holiness flow back to God.
+ - A person whose mind is quiet and satisfied in God is in the pathway to health.
+ - The things of nature are the Lord’s silent ministers, given to us to teach us spiritual truths. They speak to us of the love of God and declare the wisdom of the great Master Artist.
+ - Morning exercise, walking in the free, invigorating air of heaven, or cultivating flowers, small fruits, and vegetables, is the surest safeguard against colds, coughs, congestion of the brain, inflammation of the liver, the kidneys, and the lungs, and a hundred other diseases.
+ - Who can measure the love Christ felt for a lost world, as he hung upon the cross, suffering for the sins of guilty men? This love was immeasurable. It was infinite.
+ - If the life we live in this world is wholly for Christ, it is a life of daily surrender.
+ - Fixed principles of truth are the only safeguard for youth.
+ - Heaven is all health.
+ - The people are hungry for the bread of life. Do not offer them a stone.
+ - Nature is the mirror of divinity.
+ - The words of the Bible, and the Bible alone, should be heard from the pulpit.
+ - Next to the Bible, nature is to be our great lesson book.
+ - The name ‘Seventh-day Adventist’ carries the true features of our faith in front and will convict the inquiring mind. Like an arrow from the Lord’s quiver, it will wound the transgressors of God’s law, and will lead to repentance toward God, and faith in our Lord Jesus Christ.
+ - When music is allowed to take the place of devotion and prayer, it is a terrible curse. Young people assemble together to sing, and, although professed Christians, frequently dishonor God and their faith by their frivolous conversation and their choice of music.
+ - All spiritual things are to be treated with sacred dignity. Humility and meekness are in accordance with the life of Christ, but they are to be shown in a dignified way.
+ - True love is not a strong, fiery, impetuous passion. It is, on the contrary, an element calm and deep. It looks beyond mere externals, and is attracted by qualities alone. It is wise and discriminating, and its devotion is real and abiding.
+ - God’s promises are all on condition of humble obedience.
+ - In the prayer of faith there is a divine science; it is a science that everyone who would make his lifework a success must understand.
+ - Look up, look up, and let your faith continually increase. Let this faith guide you along the narrow path that leads through the gates of the city into the great beyond, the wide, unbounded future of glory that is for the redeemed.
+ - All who in this world render true service to God or man receive a preparatory training in the school of sorrow. The weightier the trust and the higher the service, the closer is the test and the more severe the discipline.
+ - If you lose Heaven, you lose everything; if you gain Heaven, you gain everything.
+ - Music is made one of Satan’s most attractive agencies to ensnare souls; but, when turned to a good account, it is a blessing. When abused, it leads the unconsecrated to pride, vanity, and folly.
+ - Remember that you will never reach a higher standard than you yourself set. Then set your mark high, and step by step, even though it be by painful effort, by self-denial and sacrifice, ascend the whole length of the ladder of progress.
+ - True love is a high and holy principle, altogether different in character from that love which is awakened by impulse and which suddenly dies when severely tested.
+ - Why the Christian life is so difficult to many is because they have a divided heart. They are double-minded, which makes them unstable in all their ways.
+ - The closer you come to Jesus, the more faulty you will appear in your own eyes; for your vision will be clearer, and your imperfections will be seen in broad and distinct contrast to His perfect nature.
+ - We are all woven together in the great web of humanity, and whatever we can do to benefit and uplift others will reflect in blessing upon ourselves.
+ - The young are in great danger. Much evil results from their light and trifling reading. Much time is lost which should be spent in useful employment. Some would even deprive themselves of sleep that they might finish some ridiculous love story.
+ - There is no exercise that can take the place of walking. by it the circulation of the blood is greatly improved. Walking, in all cases where it is possible, is the best remedy for the diseased bodies, because in this, all of the organs of the body are brought into use.
+ - Talk unbelief, and you will have unbelief; but talk faith, and you will have faith. According to the seed sown will be the harvest.
+ - Singing is as much an act of worship as is prayer.
+ - Be what you wish your children to be. Parents have perpetuated by precept and example their own stamp of character to their posterity.
+ - Prayer is the opening of the heart to God as to a friend. Not that it is necessary in order to make known to God what we are, but in order to enable us to receive Him. Prayer does not bring God down to us, but brings us up to Him.
+ - God has set up a high standard of righteousness. He has made plain a distinction between human and divine wisdom. All who work on Christ’s side must work to save, not to destroy.
+ - The last rays of merciful light, the last message of mercy to be given to the world, is a revelation of His character and love. The children of God are to manifest His glory. In their own life and character they are to reveal what the grace of God has done for them.
+ - The hope of eternal life is not to be taken up upon slight grounds. It is a subject to be settled between God and your own soul; settled for eternity. A supposed hope, and nothing more, will prove your ruin.
+ - Those who use tobacco, tea and coffee should lay these idols aside, and put their cost into the treasury of the Lord.
+ - Whatever attracts the mind from God, whatever draws the affections away from Christ, is an enemy to the soul.
+ - The life of Christ was a life of humble simplicity, yet how infinitely exalted was his mission. Christ is our example in all things.
+ - A Christian reveals true humility by showing the gentleness of Christ, by being always ready to help others, by speaking kind words and performing unselfish acts, which elevate and ennoble the most sacred message that has come to our world.
+ - Don’t you quote Sister White. I don’t want you ever to quote Sister White until you get your vantage ground where you know where you are. Quote the Bible. Talk the Bible. It is full of meat, full of fatness. Carry it right out in your life, and you will know more Bible than you know now.
+ - It is important that we relish the food we eat. If we cannot do this, but eat mechanically, our food does not do us that good it should, and we fail to be nourished and built up by it as we otherwise would be, if we could enjoy the food we take into the stomach.
+ - The sin which is indulged to the greatest extent, which separates us from God and produces so many spiritual disorders, and which are contagious, is selfishness.
+ - Every man who praises himself brushes the luster from his best efforts.
+ - As the flower turns to the sun, that the bright beams may aid in perfecting its beauty and symmetry, so should we turn to the Sun of Righteousness, that Heaven’s light may shine upon us, that our character may be developed in to the likeness of Christ.
+ - In the matchless gift of His Son, God has encircled the whole world with an atmosphere of grace as real as the air which circulates around the globe. All who chose to breathe this life-giving atmosphere will live and grow up to the stature of men and women in Christ Jesus.
+ - We must let patience have its perfect work, remembering that there are precious promises in the Scriptures for those who wait upon the Lord.
+ - All our words and acts are passing in review before God.
+ - Whatsoever is done out of pure love, be it ever so little or contemptible in the sight of men, is wholly fruitful; for God measures more with how much love one worketh, than the amount he doeth.
+ - The Saviour would have passed through the agony of Calvary that one might be saved in His kingdom. He will never abandon one for whom He has died.
+ - The Jews did not go into darkness all at once. It was a gradual work, until they could not discern the gift of God in sending his Son.
+ - God has a church upon the earth, who are His chosen people, who keep His commandments. He is leading, not stray offshoots, not one here and one there, but a people. The truth is a sanctifying power, but the church militant is not yet the church triumphant...
+ - We need no fanciful teaching regarding the personality of God. What God desires us to know of Him is revealed in His word and His works. The beautiful things of nature reveal His character and His power as Creator.
+ - Turn, O backsliding children, saith the Lord; for I am married unto you.
+ - The young among us are, as a general thing, allied to the world. But few maintain a special warfare against the internal foe. But few have an earnest, anxious desire to know and do the will of God.
+ - Those who are devoted to amusements; who love the society of those who love pleasure, have an aversion to religious exercises.
+ - The stomach, when we lie down to rest, should have its work done, that it may enjoy rest, as well as other portions of the body. The work of digestion should not be carried on through any period of the sleeping hours.
+ - None are so sinful that they cannot find strength, purity, and righteousness in Jesus, who died for them.
+ - It is the chief joy of all holy beings to witness the joy and happiness of those around them.
+ - Ministers should impress upon the people the necessity of individual effort. No church can flourish unless its members are workers. The people must lift where the ministers lift.
+ - All the riches of the world are not of sufficient value to redeem one perishing soul.
+ - We must not think, “Well, we have all the truth, we understand the main pillars of our faith, and we may rest on this knowledge.” The truth is an advancing truth, and we must walk in the increasing light.
+ - I would warn my brethren and sisters to never flatter persons because of their ability; for they cannot bear it. Self is easily exalted, and in consequence, persons lose their balance.
+ - Sisters, when about their work, should not put on clothing which would make them look like images to frighten the crows from the corn. It is more gratifying to their husbands and children to see them in a becoming, well-fitting, attire, than it can be to merely visitors or strangers.
+ - Satan has many helpers.
+ - Christian sisters should not at any time dress extravagantly, but at all times dress as neat, modest, and healthful, as their work will allow.
+ - When will the church do her appointed work? She is represented as an angel of light, flying through heaven with the everlasting gospel to be proclaimed to the world. This represents the speed and directness with which the church is to prosecute her work.
+ - Youth without beauty is half a prize.
+ - Ministers should not pray so loud, and long, as to exhaust the strength. It is not necessary to weary the throat and lungs in prayer. God’s ear is ever open to hear the heart-felt petitions of his humble servants, and he does not require them to wear out the organs of speech in addressing him.
+ - It is right to love beauty and to desire it; but God desires us to love and seek first the highest beauty, that which is imperishable. No outward adorning can compare in value or loveliness with that “meek and quiet spirit.”
+ - Those who are preparing for the coming of Christ should be sober, and watch unto prayer, for our adversary, the Devil, goeth about like a roaring lion, seeking whom he may devour; whom we are to resist steadfast in the faith.
+ - I prize my seamstress, I value my copyist; but my cook, who knows well how to prepare the food to sustain life, and nourish brain, bone, and muscle, fills the most important place among the helpers in my family.
+ - Gather every promise. This is Jesus, the life of every grace, the life of every promise, the life of every ordinance, the life of every blessing.
+ - So long as He lived among men, our Saviour shared the lot of the poor. He knew by experience their cares and hardships, and He could comfort and encourage all humble workers.
+ - A minister of Jesus Christ should not be regardless of his attitude. If he is the representative of Jesus Christ, his deportment, his attitude, his gestures, should be of that character which will not strike the beholder with disgust.
+ - We do not mark out any precise line to be followed in diet; but we do say that in countries where there are fruits, grains, and nuts in abundance, flesh food is not the right food for God’s people.
+ - Abstemiousness in diet and control of the passions, will preserve the intellect and give mental and moral vigor, enabling men to bring all their propensities under the control of the higher powers, and to discern between right and wrong, the sacred and the common.
+ - If physical exercise were combined with mental exertion, the blood would be quickened in its circulation, the action of the heart would be more perfect, impure matter would be thrown off, and new life and vigor would be experienced in every part of the body.
+ - Religion will prove to the believer a comforter and a sure guide to the fountain of true happiness.
+ - Thread of Selfishness in Web of Life. – Deuteronomy contains much instruction regarding what the law is to us, and the relation we shall sustain to God as we reverence and obey.
+ - If Christians will obey the instructions given to them by Christ and his inspired apostles, they will adorn the religion of the Bible, and save themselves much perplexity and severe trials, which they attribute to their afflictions in consequence of believing unpopular truth.
+ - It is a religious duty for those who cook to learn how to prepare food in different ways, hygienically, for the table, so that it may be eaten with enjoyment.
+ - Perfect health depends upon perfect circulation.
+ - As we lay hold upon the truth of God, its influence must affect us. It must elevate us. It must remove from us every imperfection.
+ - In these letters which I write, in the testimonies I bear, I am presenting to you that which the Lord has presented to me. I do not write one article in the paper expressing merely my own ideas. They are what God has opened before me in vision – the precious rays of light shining from the throne.
+ - Exercise will aid in the work of digestion. Take a walk after a meal; but no violent exercise after a full meal.
+ - Flesh-meats will depreciate the blood. Cook meat with spices, and eat it with rich cakes and pies, and you have a bad quality of blood.
+ - True generosity is too frequently eaten up by prosperity and riches.
+ - It is a universal principle that whenever one refuses to use his God-given powers, these powers decay and perish.
+ - No persons professing to be Christians should enter the marriage relation until the matter has been carefully and prayerfully considered from an elevated standpoint, to see if God can be glorified by the union.
+ - The ministers of Christ should possess refinement. All uncouth manners, attitudes and gestures should be discarded, and they should encourage in themselves humble dignity of bearing.
+ - We should strive to understand the weakness of others.
+ - There are orphans that can be cared for; but this some will not venture to undertake, for it brings them work more than they care to do, leaving them but little time to please themselves.
+ - There is one straight chain of truth without one heretical sentence in that which I have written.
+ - Dying legacies are a miserable substitute for living benevolence.
+ - Why should the sons and daughters of God be reluctant to pray, when prayer is the key in the hand of faith to unlock heaven’s storehouse, where are treasured the boundless resources of Omnipotence.
+ - Ministers have received their wages, and some have their minds too much on their wages. They labor for wages, and lose sight of the sacredness and importance of the work.
+ - A kind, courteous Christian is the most powerful argument that can be produced in favor of Christianity.
+ - I desired to become a Christian, and prayed earnestly for the forgiveness of my sins. I felt a peace of mind resulting, and loved every one, feeling desirous that all should have their sins forgiven, and love Jesus as I did.
+ - The spirit of Christ is a missionary spirit.
+ - You need clear, energetic minds, in order to appreciate the exalted character of the truth, to value the atonement, and to place the right estimate upon eternal things.
+ - The righteousness by which we are justified is imputed; the righteousness by which we are sanctified is imparted. The first is our title to heaven, the second is our fitness for heaven.
+ - Lightness, jesting, and joking, can only be indulged at the expense of barrenness of soul, and the loss of the favor of God.
+ - Faith in the atonement and intercession of Christ will keep us steadfast and immovable amid the temptations that press upon us in the church militant.
+ - Many are to believe on Christ through the communication of truth by His servants. As they see the beauty of the Word of God, and as they see Jesus revealed in the lives of His children, they will praise Him with heart and soul and voice.
+ - Do not sit down in Satan’s easy chair of do-little, but arise and aim at the elevated standard which it is your privilege to attain.
+ - If you have other gods before the Lord, your heart will be turned away from serving the only true and living God, who requires the whole heart, the undivided affections. All the heart, all the soul, all the mind, and all the strength, does God require. He will accept of nothing short of this.
+ - In regard to infallibility, I never claimed it; God alone is infallible. His word is true, and in Him is no variableness, or shadow of turning.
+ - God Himself was crucified with Christ, for Christ was one with the Father.
+ - Confound not faith and feeling together. They are distinct. Faith is ours to exercise. Believe, believe. Let your faith take hold of the blessing, and it is yours by faith. Your feelings have nothing to do with this faith.
+ - Moderate exercise every day will impart strength to the muscles, which without exercise become flabby and enfeebled.
+ - There is not a point that needs to be dwelt upon more earnestly, repeated more frequently, or established more firmly in the minds of all than the impossibility of fallen man meriting anything by his own best good works. Salvation is through faith in Jesus Christ alone.
+ - Ministers of God’s choosing are engaged in a great work. They are warring not merely against men, but Satan and his angels.
+ - The stomach, liver, lungs and brain are suffering for want of deep, full inspirations of air which would electrify the blood and impart to it a bright, lively color, and which alone can keep it pure, and give tone and vigor to every part of the living machinery.
+ - My appeal to the rich is, Deal liberally with your poor brethren, and use your means to advance the cause of God. The worthy poor, who are made poor by misfortune and sickness, deserve your especial care and help.
+ - We are not our own. We do not belong to ourselves. But we have been purchased with a dear price. We have cost an immense sum, even the sufferings and death of the Son of God.
+ - What man with a human heart, who has ever cared for domestic animals, could look into their eyes, so full of confidence and affection, and willingly give them over to the butcher’s knife? How could he devour their flesh as a sweet morsel?
+ - It is not earthly rank, nor birth, nor nationality, nor religious privilege, which proves that we are members of the family of God; it is love, a love that embraces all humanity.
+ - There shall be no more sin, neither shall there beany more death.
+ - Do not make yourself the subject of remarks either by being overdressed or by dressing in a lax, untidy manner. Act as though you knew that the eye of heaven is upon you, and that you are living under the approbation or disapprobation of God.
+ - All the food that is put into the stomach that the system cannot derive benefit from, is a burden to nature in her work.
+ - Religion does not consist in making a noise, yet when the soul is filled with the Spirit of the Lord, sweet, heart-felt praise to God glorifies him.
+ - God requires you individually to come up to the point, to make an entire surrender. Ye cannot serve God and mammon.
+ - God requires his people to shine as lights in the world. It is not merely the ministers who are required to do this, but every disciple of Christ. Their conversation should be heavenly.
+ - Love exercised while duty is neglected will make children headstrong, willful, perverse, selfish, and disobedient. If stern duty is left to stand alone without love to soften and win, it will have a similar result. Duty and love must be blended in order that children may be properly disciplined.
+ - The Bible is our rule of faith and doctrine.
+ - In Christ was united the human and the divine. His mission was to reconcile God to man, and man to God; to unite the finite with the infinite.
+ - Many have a vague idea that they must make some wonderful effort in order to gain the favor of God. But all self-dependence is vain. It is only by connecting with Jesus through faith that the sinner becomes a hopeful, believing child of God.
+ - Events in the train of prophecy that had their fulfillment away in the past are made future, and thus by these theories the faith of some is undermined.
+ - God tests and proves us by the common occurrences of life. It is the little things which reveal the chapters of the heart.
+ - But God will have a people upon the earth to maintain the Bible, and the Bible only, as the standard of all doctrines and the basis of all reforms.
+ - The masses will reject any theory, however reasonable it may be, if it lays a restriction upon the appetite.
+ - The soul that is yielded to Christ becomes His own fortress, which He holds in a revolted world, and He intends that no authority shall be known in it except His own. A soul thus kept in possession by the heavenly agencies is impregnable to the assaults of Satan.
+ - The name, Seventh-day Adventist, is a standing rebuke to the Protestant world. Here is the line of distinction between the worshipers of God, and those who worship the beast, and receive his mark. The great conflict is between the commandments of God and the requirements of the beast.
+ - Satan well knows that success can only attend order and harmonious action. He well knows that every thing connected with Heaven is in perfect order.
+ - It is a fearful mistake for us to neglect the study of the Bible to investigate theories that are misleading, diverting minds from the words of Christ to fallacies of human production.
+ - Nature utters her voice in lessons of heavenly wisdom and eternal truth.
+ - Pure air and water, cleanliness, a proper diet, purity of life, and a firm trust in God are remedies for the want of which thousands are dying; yet these remedies are going out of date because their skillful use requires work that the people do not appreciate.
+ - It is a great thing to be a child of God, and joint-heir with Jesus Christ. If this is your privilege, you will know the fellowship of Christ’s sufferings.
+ - Pure air, sunlight, abstemiousness, rest, exercise, proper diet, the use of water, trust in Divine power-these are the true remedies.
+ - The love of Christ reaches to the very depths of earthly misery and woe, or it would not meet the case of the veriest sinner. It also reaches to the throne of the eternal, or man could not he lifted from his degraded condition, and our necessities would not be met, our desires would be unsatisfied.
+ - I wish that we had much more of the Spirit of Christ and a great deal less self, and less of human opinions. If we err, let it be on the side of mercy rather than on the side of condemnation and harsh dealing.
+ - The last great delusion is soon to open before us. Antichrist is to perform his marvelous works in our sight So closely will the counterfeit resemble the true that it will be impossible to distinguish between them except by the Holy Scriptures.
+ - I lift my voice of warning against praising or flattering your ministers. I have seen the evil, the dreadful evil, of praising ministers. Never, never speak a word in the praise of ministers to their faces. Exalt God.
+
+149 quotes

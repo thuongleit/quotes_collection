@@ -1,0 +1,30 @@
+ - Some people grumble that roses have thorns; I am grateful that thorns have roses.
+ - Botany is the art of insulting flowers in Greek and Latin.
+ - Flowing water is at once a picture and a music, which causes to flow at the same time from my brain, like a limpid and murmuring rivulet, sweet thoughts, charming reveries, and melancholy remembrances.
+ - If we are to abolish the death penalty, I should like to see the first step taken by our friends the murderers.
+ - We can invent only with memory.
+ - Love in marriage should be the accomplishment of a beautiful dream, and not, as it too often is, the end.
+ - Love is the most terrible, and also the most generous of the passions; it is the only one which includes in its dreams the happiness of someone else.
+ - If there is a fruit that can be eaten raw, it is beauty.
+ - Women’s glances express what they dare not speak.
+ - Dress is the great business of all women, and the fixed idea of some.
+ - Friendship between two women is always a plot against another one.
+ - Uncertainty is the worst of all evils until the moment when reality makes us regret uncertainty.
+ - Let us try to see things from their better side: You complain about seeing thorny rose bushes; Me, I rejoice and give thanks to the gods That thorns have roses.
+ - Avoid all haste; calmness is an essential ingredient of politeness.
+ - If women only knew the extent of their power!
+ - I am thankful that thorns have roses.
+ - Almost every one flatters himself that he and his are exceptionable.
+ - All people have three characters, that which they exhibit, that which they have, and that which they think they have.
+ - A woman who writes commits two sins; she increases the number of books, and decreases the number of women.
+ - Happiness is composed of misfortunes avoided.
+ - One expresses well only the love he does not feel.
+ - Though we have two eyes, we are supplied with but one tongue. Draw your own moral.
+ - A widow is like a frigate of which the first captain has been shipwrecked.
+ - Display is like shallow water, where you can see the muddy bottom.
+ - The more the change, the more it is the same thing.
+ - I gather from a lawyer that there was a rehearsal yesterday. We haven’t a hope. I know the presiding judge too: I’ve had the misfortune to sleep with his wife. He was specially picked.
+ - Many people think that virtue consists of severity towards others.
+ - If men knew all that women think, they would be twenty times more audacious.
+
+28 quotes

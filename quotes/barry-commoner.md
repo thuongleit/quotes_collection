@@ -1,0 +1,50 @@
+ - Environmental pollution is an incurable disease. It can only be prevented.
+ - The first law of ecology is that everything is related to everything else.
+ - Air pollution is not merely a nuisance and a threat to health. It is a reminder that our most celebrated technological achievements-the automobile, the jet plane, the power plant, industry in general, and indeed the modern city itself-are, in the environment, failures.
+ - Everything is connected to everything else. Everything must go somewhere. Nature knows best. There is no such thing as a free lunch. If you don’t put something in the ecology, it’s not there.
+ - The proper use of science is not to conquer nature but to live in it.
+ - World War II had a very important impact on the development of technology, as a whole.
+ - Recycling is a good thing to do. It makes people feel good to do it. The thing I want to emphasize is the vast difference between recycling for the purpose of feeling good and recycling for the purpose of solving the trash problem.
+ - Environmental concern is now firmly embedded in public life: in education, medicine and law; in journalism, literature and art.
+ - The environmental crisis is a global problem, and only global action will resolve it.
+ - As the earth spins through space, a view from above the North Pole would encompass most of the wealth of the world – most of its food, productive machines, doctors, engineers and teachers. A view from the opposite pole would encompass most of the world’s poor.
+ - The environmental crisis arises from a fundamental fault: our systems of production – in industry, agriculture, energy and transportation – essential as they are, make people sick and die.
+ - The gap between brute power and human need continues to grow, as the power fattens on the same faulty technology that intensifies the need.
+ - What is new is that environmentalism intensely illuminates the need to confront the corporate domain at its most powerful and guarded point – the exclusive right to govern the systems of production.
+ - If you can see the light at the end of the tunnel, you are looking the wrong way.
+ - The environmental crisis is a sign that the ecosphere is now so heavily strained that its continued stability is threatened. It is a warning that we must discover the source of this suicidal drive and master it before it destroys the environment-and ourselves.
+ - In nature, no organic substance is synthesized unless there is provision for its degradation; recycling is enforced.
+ - The modern assault on the environment began about 50 years ago, during and immediately after World War II.
+ - We are in an environmental crisis which threatens the survival of this nation, and of the world as a suitable place of human habitation.
+ - For that reason the simple test of the slogan ‘Consume Less’ as a basis for social action on the environment would be to tell it to the blacks in the ghetto. The message will not be very well received for there are many people in this country who consume less than is needed to sustain a decent life.
+ - If environmentalism is a fad, it will be the last one.
+ - No action is without its side effects.
+ - Technologists practice faith too; ‘Faith that problems have solutions before having the knowledge to solve them.’
+ - When you fully understand the situation, it is worse than you think.
+ - The environmental crisis is a signal of this approaching catastrophe.
+ - Nothing ever goes away.
+ - Science is triumphant with far-ranging success, but its triumph is somehow clouded by growing difficulties in providing for the simple necessities of human life on earth.
+ - Environmental quality was drastically improved while economic activity grew by the simple expedient of removing lead from gasoline – which prevented it from entering the environment.
+ - The age of innocent faith in science and technology may be over.
+ - What is needed now is a transformation of the major systems of production more profound than even the sweeping post-World War II changes in production technology.
+ - Finally, since human beings are uniquely capable of producing materials not found in nature, environmental degradation may be due to the resultant intrusion into an ecosystem of a substance wholly foreign to it.
+ - Nothing can survive on the planet unless it is a cooperative part of larger global life.
+ - Earth Day 1970 was irrefutable evidence that the American people understood the environmental threat and wanted action to resolve it.
+ - Seen that way, the wholesale transformation of production technologies that is mandated by pollution prevention creates a new surge of economic development.
+ - In certain ways, I’m not very different than I was when I was a teenager.
+ - My entry into the environmental arena was through the issue that so dramatically – and destructively – demonstrates the link between science and social action: nuclear weapons.
+ - The AEC had at its command an army of highly skilled scientists.
+ - The most meaningful engine of change, powerful enough to confront corporate power, may be not so much environmental quality, as the economic development and growth associated with the effort to improve it.
+ - I see no reason to have my shirts ironed. It’s irrational.
+ - The AEC scientists were so narrowly focused on arming the United States for nuclear war that they failed to perceive facts – even widely known ones – that were outside their limited field of vision.
+ - If you ask what you are going to do about global warming, the only rational answer is to change the way in which we do transportation, energy production, agriculture and a good deal of manufacturing. The problem originates in human activity in the form of the production of goods.
+ - In general, any productive activity which introduces substances foreign to the natural environment runs a considerable risk of polluting it.
+ - All of the clean technologies are known, it’s a question of simply applying them.
+ - By adopting the control strategy, the nation’s environmental program has created a built-in antagonism between environmental quality and economic growth.
+ - It is simply economically impossible to require controls that even approach zero emissions.
+ - It reflects a prevailing myth that production technology is no more amenable to human judgment or social interests than the laws of thermodynamics, atomic structure or biological inheritance.
+ - In every case, the environmental hazards were made known only by independent scientists, who were often bitterly opposed by the corporations responsible for the hazards.
+ - The methods that EPA introduced after 1970 to reduce air-pollutant emissions worked for a while, but over time have become progressively less effective.
+ - After all, despite the economic advantage to firms that employed child labor, it was in the social interest, as a national policy, to abolish it – removing that advantage for all firms.
+
+48 quotes

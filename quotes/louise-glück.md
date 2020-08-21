@@ -1,0 +1,24 @@
+ - We look at the world once, in childhood. The rest is memory.
+ - Of two sisters one is always the watcher, one the dancer.
+ - I am attracted to ellipsis, to the unsaid, to suggestion, to eloquent, deliberate silence. The unsaid, for me, exerts great power: often I wish an entire poem could be made in this vocabulary. It is analogous to the unseen...
+ - The unsaid, for me, exerts great power...
+ - Birth, not death, is the hard loss.
+ - What was difficult was the travel, which, on arrival, is forgotten.
+ - I had nothing and I was still changed. Like a costume, my numbness was taken away. Then hunger was added.
+ - Intense love always leads to mourning.
+ - The love of form is a love of endings.
+ - To raise the veil. To see what you’re saying goodbye to.
+ - The soul is silent. If it speaks at all it speaks in dreams.
+ - Balm of the summer night, balm of the ordinary, imperial joy and sorrow of human existence, the dreamed as well as the lived – what could be dearer than this, given the closeness of death?
+ - The advantage of poetry over life is that poetry, if it is sharp enough, may last.
+ - At first I saw you everywhere. Now only in certain things, at longer intervals.
+ - He takes her in his arms He wants to say I love you, nothing can hurt you But he thinks this is a lie, so he says in the end You’re dead, nothing can hurt you which seems to him a more promising beginning, more true.
+ - Honor the words that enter and attach to your brain.
+ - Like a child, the earth’s going to sleep, or so the story goes. But I’m not tired, it says. And the mother says, You may not be tired but I’m tired.
+ - I think I can remember being dead. Many times, in winter, I approached Zeus. Tell me, I would ask him, how can I endure the earth?
+ - From the beginning of time, in childhood, I thought that pain meant I was not loved. It meant I loved.
+ - 17. The self ended and the world began. They were of equal size, commensurate, one mirrored the other. 18. The riddle was: why couldn’t we live in the mind. The answer was: the barrier of the earth intervened.
+ - Desire, loneliness, wind in the flowering almond – surely these are the great, the inexhaustible subjects to which my predecessors apprenticed themselves. I hear them echo in my own heart, disguised as convention.
+ - The great thing is not having a mind. Feelings: oh, I have those; they govern me.
+
+22 quotes

@@ -1,0 +1,22 @@
+ - Damaged people are dangerous. They know they can survive.
+ - That is my story, simply told. Please do not ask again. I have told you in order to issue a warning. I have been damaged. Damaged people are dangerous. They know they can survive.
+ - There is an eternal landscape, a geography of the soul; we search for its outline all our lives.
+ - Memory is never pure. And recollection is always coloured by the life lived since.
+ - A concealed truth, that’s all a lie is. Either by omission or commission we never do more than obscure. The truth stays in the undergrowth, waiting to be discovered.
+ - Very odd, old age. Always knew it would happen, if I was lucky. I just didn’t expect it so soon.
+ - Our sanity depends essentially on a narrowness of vision – the ability to select the elements vital to survival, while ignoring the great truths.
+ - We learn from tragedy. Slowly.
+ - Lucky people should hide. Pray the days of wrath do not visit their home.
+ - To appear unambitious amongst the ambitious is to invite loathing or fear. To be in the game, but not playing with intent to win, is to be the enemy.
+ - Time, for a man who has never truly felt a second of it, it not a great sacrifice.
+ - Those who do not have imaginary conversations do not love.
+ - We are here to add to the sum of human goodness. To prove the thing exists.
+ - My mother insured that a life of petty facts and dutiful farming was kept at bay by her passionate intensity, which nurtured the essential dreaminess of his nature.
+ - For why trap what is already trapped? It is only in flight that we know the freedom of the bird.
+ - I am prepared to accept from others their own version of reality. I think it is a basic freedom really, to create one’s own reality from whatever truths are available.
+ - We do have choice, but not without some agony.
+ - Poetry contains almost all you need to know about life.
+ - The passion that transforms life, and art, did not seem to be mine. But in all essentials, my life was a good performance.
+ - Poetry has never let me down. Without poetry, I would have found life less comprehensible, less bearable and infinitely less enjoyable.
+
+20 quotes

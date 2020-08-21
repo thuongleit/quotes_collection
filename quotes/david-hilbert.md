@@ -1,0 +1,37 @@
+ - We must know. We will know.
+ - Wir mussen wissen. Wir werden wissen. We must know. We will know. Inscribed on his tomb in Gilttingen.
+ - Mathematics is a game played according to certain simple rules with meaningless marks on paper.
+ - Mathematics knows no races or geographic boundaries; for mathematics, the cultural world is one country.
+ - If I were to awaken after having slept for a thousand years, my first question would be: Has the Riemann hypothesis been proven?
+ - Every kind of science, if it has only reached a certain degree of maturity, automatically becomes a part of mathematics.
+ - Sometimes it happens that a man’s circle of horizon becomes smaller and smaller, and as the radius approaches zero it concentrates on one point. And then that becomes his point of view.
+ - Physics is becoming too difficult for the physicists.
+ - No other question has ever moved so profoundly the spirit of man; no other idea has so fruitfully stimulated his intellect; yet no other concept stands in greater need of clarification than that of the infinite.
+ - He who seeks for methods without having a definite problem in mind seeks in the most part in vain.
+ - Geometry is the most complete science.
+ - The art of doing mathematics consists in finding that special case which contains all the germs of generality.
+ - Geometry, like arithmetic, requires for its logical development only a small number of simple, fundamental principles. These fundamental principles are called the axioms of geometry.
+ - One must be able to say at all times – instead of points, straight lines, and planes – tables, chairs, and beer mugs.
+ - Begin with the simplest examples.
+ - One can measure the importance of a scientific work by the number of earlier publications rendered superfluous by it.
+ - Some people have got a mental horizon of radius zero and call it their point of view.
+ - The infinite! No other question has ever moved so profoundly the spirit of man.
+ - Besides it is an error to believe that rigour is the enemy of simplicity. On the contrary we find it confirmed by numerous examples that the rigorous method is at the same time the simpler and the more easily comprehended. The very effort for rigor forces us to find out simpler methods of proof.
+ - Keep computations to the lowest level of the multiplication table.
+ - I didn’t work especially hard at mathematics at school, because I knew that’s what I’d be doing later.
+ - The arithmetical symbols are written diagrams and the geometrical figures are graphic formulas.
+ - If one were to bring ten of the wisest men in the world together and ask them what was the most stupid thing in existence, they would not be able to discover anything so stupid as astrology.
+ - We do not master a scientific theory until we have shelled and completely prised free its mathematical kernel.
+ - A mathematical problem should be difficult in order to entice us, yet not completely inaccessible, lest it mock at our efforts. It should be to us a guide post on the mazy paths to hidden truths, and ultimately a reminder of our pleasure in the successful solution.
+ - However unapproachable these problems may seem to us and however helpless we stand before them, we have, nevertheless, the firm conviction that their solution must follow by a finite number of purely logical processes.
+ - The tool which serves as intermediary between theory and practice, between thought and observation, is mathematics; it is mathematics which builds the linking bridges and gives the ever more reliable forms.
+ - Every mathematical discipline goes through three periods of development: the naive, the formal, and the critical.
+ - Mathematical science is in my opinion an indivisible whole, an organism whose vitality is conditioned upon the connection of its parts.
+ - Galileo was no idiot. Only an idiot could believe that science requires martyrdom – that may be necessary in religion, but in time a scientific result will establish itself.
+ - How thoroughly it is ingrained in mathematical science that every real advance goes hand in hand with the invention of sharper tools and simpler methods which, at the same time, assist in understanding earlier theories and in casting aside some more complicated developments.
+ - I have tried to avoid long numerical computations, thereby following Riemann’s postulate that proofs should be given through ideas and not voluminous computations.
+ - The further a mathematical theory is developed, the more harmoniously and uniformly does its construction proceed, and unsuspected relations are disclosed between hitherto separated branches of the science.
+ - As long as a branch of science offers an abundance of problems, so long it is alive; a lack of problems foreshadows extinction or the cessation of independent development.
+ - A mathematical theory is not to be considered complete until you have made it so clear that you can explain it to the first man whom you meet on the street.
+
+35 quotes

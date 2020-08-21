@@ -1,0 +1,67 @@
+ - But resist we much. We must, and we will much- about that- be committed.
+ - What do we want? Dead cops. When do we want it? Now.
+ - I am in hell already. I am in Israel.
+ - I’ve never seen an effective boycott that didn’t work.
+ - You can’t get a solution if you won’t talk to the people that have the problem. You can’t ever have healing if the patient is left out of the operation room.
+ - I’ve seen enough things to know that if you just keep on going, if you turn the corner, the sun will be shining.
+ - Getting Democrats organized is like herding cats.
+ - Don’t talk to us like we ignint!
+ - If you play the theatrics too much, you get in the way of your own cause.
+ - As I often say, we have come a long way from the days of slavery, but in 2014, discrimination and inequality still saturate our society in modern ways. Though racism may be less blatant now in many cases, its existence is undeniable.
+ - How do you make things fair?
+ - We have defeated Jim Crow, but now we have to deal with his son, James Crow Jr., esquire.
+ - I’ve seen too much in life to give up.
+ - I think drugs affect poor people and people of color more than anyone.
+ - I grew up in the 1950s and ’60s, when it was almost a holiday when a black act would go on Ed Sullivan.
+ - I always go by instinct and then wrestle with where by instinct brought me.
+ - My ordination in the Church of God in Christ was at age 9, and I later became a Baptist minister, which I am today.
+ - While the rest of the country waves the flag of Americana, we understand we are not part of that. We don’t owe America anything – America owes us.
+ - The Democratic Party hasn’t whipped anybody into a frenzy. The assumption is that the people that are marching and protesting and standing up against this don’t have enough sense to stand up for their own interests.
+ - Dr. King’s general principles are universal. But the things he confronted took place in another era.
+ - If Charlton Heston can have a constitutional right carry a rifle, why can’t grandma have a constitutional right to health care?
+ - If a cop sees a person running out of a store with a gun he’s seeing a crime. He’s not seeing a person standing.
+ - Who defines terrorists? Today’s terrorist is tomorrow’s friend.
+ - President Obama telling Americans not to panic in the wake of the Paris terror attacks.
+ - I’m a patriot in the truest sense of the word.
+ - What’s wrong with denouncing white interlopers?
+ - It was better walk with dignity than ride in shame. A lot of people in Cincinnati are saying, “Rather than have the continual problems of police brutality and economic disparity, I’m willing to make some sacrifices.” And I think that they ought to be respected for doing that.
+ - We blacks had problems in the ’60s and we solved them by marching. We’ve still got problems – let’s march.
+ - Dr. King used Gandhi’s commitment to non-violence and to passive resistance.
+ - The dream was not to put one black family in the White House, the dream was to make everything equal in everybody’s house.
+ - I think that you can’t choose leadership. You have to deal with the leadership that the people respond to.
+ - Bill Clinton strikes me as the kind of guy who goes wherever the polls lead him, rather than leading the polls.
+ - I have the right to express myself. Once we get through expressing, do we really move forward in society.
+ - It seems some have chosen to ignore or have simply forgotten the big-picture vision promoted by Dr. King and his kin.
+ - I understand deficit spending. I was born in deficit spending.
+ - Evangelicals catapulted George W. Bush back to the White House.
+ - When you’re dealing with boycotts, you don’t need everyone. You just need enough to be effective.
+ - Better to die of something than to die in old age of nothing.
+ - Life is about not where you start, but where you’re going. That’s family values.
+ - We need an amendment that gives us the right to vote protected by the federal government and the Constitution.
+ - During my 2004 presidential campaign, I was fond of saying that it was high time for the Christian right to meet the right Christians.
+ - The GOP’s freak out over Donald Trump. Just two months to Iowa, can anyone stop him?
+ - It is time to bring down the volume and bring up the program.
+ - Any use of the names of Eric Garner and Michael Brown, in connection with any violence or killing of police, is reprehensible and against the pursuit of justice in both cases.
+ - We need to make some real fundamental change from the Constitution down in this country.
+ - I can’t see how an unarmed man rejecting a drug deal ended up dead.
+ - Somebody had to bring the truth to the doorstep of this president.
+ - I do believe that the party has a bunch of elephants running around in donkey clothes.
+ - I haven’t done the things I’ve done to be in a sitcom.
+ - I’ve never done anything else in my life other than preach and be an activist. Way before I was known.
+ - Crime is going down everywhere but in the New York City Police Department.
+ - We’re not willing to give black leaders second chances because, in most cases, we’re not willing to give them first chances.
+ - I very rarely read any fiction. I love biographies; I read about all kinds of people. I love theology and some philosophy.
+ - But we believed if we kept on working, if we kept on marching, if we kept on voting, if we kept on believing, we would make America beautiful for everybody.
+ - National Action Network, the group I founded, has affiliates or chapters in over 40 cities around the country.
+ - My ministry’s always been one of social activism. I think a responsible minister must be at some levels involved in the social order.
+ - I think that any time you look at the fact that boycotts have historically led to change, whatever temporary inconvenience there may be, it in the long run leads toward, in my opinion, a better change for everybody.
+ - People working at the arenas are not just depending on one or two concerts. I think it gives a symbolic boost, as well as those shows do bring down some monetary investments in the city.
+ - I cannot imagine where we would have been without BET. Many like me who operate in black America can only get our balanced story told nationally on BET talk shows.
+ - I won vice president of my student body in high school. That doesn’t mean anything.
+ - I think first of all, the United States has got to adopt a policy of befriending and creating allies around the world...
+ - James Brown lives, as long as someone steps out of their body and dances uncontrollably.
+ - I feel that it is our moral obligation to stand and to be courageous with these families, and particularly Cindy, that have become the conscience of this nation.
+ - I wanted to say to Governor Dean, don’t be hard on yourself about hooting and hollering. If I had spent the money you did and got 18 percent, I’d still be in Iowa hooting and hollering.
+ - The United States government has the obligation to educate all young people in this country.
+
+65 quotes

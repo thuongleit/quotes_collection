@@ -1,0 +1,55 @@
+ - My dad always said that hard work beats talent when talent doesnt work hard enough.
+ - You don’t want to go right, if everyone thinks you’re going to go right. You go left, on purpose. Sometimes you can’t explain why, and you can’t explain what left looks like, but you just do it.
+ - I like to think that I’m a really strong, tough person, but I’m not. I’m a very, very needy person. I’m very insecure. I’m very impressionable. But, there is a side of me that is very put-together, very strong, very capable and very opinionated. It’s the two sides of myself.
+ - Had you told me 20 years ago this would be my life, I’d have gone “What?” and then stuck out my tongue to all the girls that were mean to me.
+ - I hate horror movies, with a passion.
+ - Every single person is a beautiful human being, and we’re lucky. That’s what gives you longevity. You have to love the people that you work with.
+ - I was addicted to the original ‘Star Trek’ when I was growing up, because of my dad. We grew up in St. Helens, Oregon and we weren’t allowed to watch a lot of TV.
+ - I’m kind of used to being around guys on set, and I grew up with a brother who treated me like I was a boy.
+ - I think that I am lucky and blessed to have the job that I have. I’m trying to create longevity. If that means that I transition and do different things at different points in my life, then that’s fine.
+ - My mom always said, ‘Marry someone smarter than yourself, Katee, because No. 1, you’re not that smart. And No. 2, then you’ll have smart babies.’
+ - I grew up watching science fiction with my dad. It was kind of our little secret. It was our bonding time as father and daughter.
+ - I loved comic books. I loved Miss Marvel. I talk about Harley Quinn all the time because I think playing villains is so much more fun than playing the good guy because who wouldn’t want to go to work and just be crazy?
+ - I think Gods wrath and purgatory are the only things keeping me on the straight and narrow. I like the idea of purgatory. Its like a cosmic do-over.
+ - Most people don’t go to work and beat up a 13-year-old. It’s a really freaky thing.
+ - Some of the craziest people I’ve met, in my life, are some of the most brilliant people I’ve met. It’s almost as if they get bored in their own brain and they have to come up with this craziness to stay interested in life.
+ - It took a week for me to be able to take the gun apart, put the gun back together, get the ammunition and load, all the while keeping my eyes down the scope, which was something I’d never had to do before.
+ - I am definitely a lot more girly that the characters that I play.
+ - I’m more of a thriller-horror fan – things that could really happen. I don’t like scary movies, the ‘Saw’ movies scare the crap out of me – I think I’ve seen two of them and I wanted to go crawl in a hole.
+ - It’s a very, very rare moment when another actor hurts you. I mean, that’s not normal.
+ - I have to remind myself constantly to not be antisocial, because I stay to myself a lot. Im a lot more introspective than my characters.
+ - Its interesting, the things you learn when youre 21. I learned never to get tattoos in the middle of shooting a movie. Because if youre not Angelina Jolie or Megan Fox, they will fire you.
+ - I think every character I play has a physicality to them, so I have to stay in some sort of shape. I’ll never be a size two. And I don’t want to be a size two.
+ - I am tired of women playing action heroes like men, because they are not men. But sometimes they are written like men.
+ - I find that in the science fiction world, you have almost more women fans than male fans and I think it’s because there’s been such a shortage of strong female characters.
+ - Some of the craziest people Ive met, in my life, are some of the most brilliant people Ive met.
+ - Every job after the first job I got was icing on the cake. This is so much fun.
+ - I famously had a huge television producer say to me one time, ‘Can you please stop doing that to your face? It’s very distracting and unattractive.’ And I was like, ‘You mean move it? Okay, sorry, I guess we’re not going to work together.’
+ - As far as acting goes, you get to a certain point where I think everyone can do the job and it comes down to a level of commitment. I think sometimes all you have to do is show up.
+ - Sometimes you have to be uncomfortable.
+ - Most of the characters I play are heavily engulfed in some sort of fantasy world.
+ - The only way that a mother would go after her own children is if she’s just completely gone and has no humanity.
+ - I grew up in Oregon so I grew up around reservations, so I’ve always kind of had this knowledge. Not a tremendous amount of knowledge, but an outsider’s knowledge of what reservation life was like.
+ - Im a bit insane when it comes to doing my own stunts and getting down and dirty. Its fun, you know? Its things I wouldnt normally do in my real life, so when I go to work and get to beat people up and shoot guns and get waterboarded, those are things I find completely interesting.
+ - There is a vulnerability that any woman has in a situation where you’re surrounded by men in an enclosed space. You learn through time different defense mechanisms, and it could be for protection, for emotional, physical, everything.
+ - I wander around in corsets in my house all the time. I’m a lot girlier than the roles I play, but I don’t believe there’s anything wrong in this business for being typecast.
+ - I get recognized so much. It happens mostly when Im in Starbucks.
+ - I think I was obsessed with the culture of riding. I got sick of having to date guys who rode motorcycles for me to be on them.
+ - I grew up watching science fiction and action movies. I love it. I absolutely love it!
+ - The first movie my dad ever showed me was Predator – I was five. And I think the second one was Jaws. I’ve has this understanding of fiction for a very, very long time but I’ve also had this thing where I’ve idolized the male action heroes because that’s what I watched with my dad.
+ - I love playing these characters that are crazy tough, though. Because I am not in real life. Not at all.
+ - Science fiction fans are awesome, they love you so much that they’ll watch anything you do, even if it’s complete crap. I never dreamed that I would go to conventions and sit down and have coffee with a Klingon. It’s so weird, but it’s my life.
+ - The moment where I realized how little I actually was, was when Dave Bautista picked me off the ground and I still wasn’t even at his pec yet. I was like, “Oh my God, this man is massive.”
+ - There’s a little bit of me in all of the characters I’ve played. I’ve never really had the opportunity to play something that’s a complete departure from me.
+ - I was such a huge Bruce Willis fan because of all the Die Hards and Arnold Schwarzenegger was like ‘the guy.’ Kindergarten Cop was filmed in my home state and I was like, “He’s awesome! Now he gets his hair cut next to me, it’s fantastic. ”
+ - Part of what I love about television is that my imagination gets to keep going. It doesn’t stop.
+ - When you take on a TV show, you give trust to people that you really just met.
+ - I think I saw “Predator” when I was six. So I knew from a very young age that it wasn’t real, but I just loved it.
+ - People don’t realize that I started in musical theater. That’s where my roots are.
+ - Normally, when I read a script, it takes me two and a half hours. I usually put it down and come back to it. So, I know if I can read a script in one sitting, it’s a fantastic script.
+ - That’s a terrifying prospect for myself, and I’m sure many other people, as well. We leave TVs on in our house. I listen to my record player, constantly, to just hear music. I’m really intrigued by the idea of solitude. I’m excited about that.
+ - Science-fiction fans are the most loyal fans in the world. It’s true. They’ll watch things that you actually should give them their money back for.
+ - I believe that if doors don’t open, make new doors. So I also have started producing quite a bit of things as well.
+ - If you can ride through Texas with somebody, which is 700 miles of just straight, flat freeway riding, then you can be friends with them forever.
+
+53 quotes

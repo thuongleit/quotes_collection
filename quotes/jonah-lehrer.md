@@ -1,0 +1,37 @@
+ - Grit is the stubborn refusal to quit.
+ - And so we keep on thinking, because the next thought might be the answer.
+ - Distance and difference are the secret tonic of creativity. When we get home, home is still the same. But something in our mind has been changed, and that changes everything.
+ - Every creative story is different. And every creative story is the same. There was nothing. Now there is something. It’s almost like magic.
+ - We need to be willing to risk embarrassment, ask silly questions, surround ourselves with people who don’t know what we’re talking about. We need to leave behind the safety of our expertise.
+ - People assume that they perceive reality as it is, that our senses accurately record the outside world. Yet the science suggests that, in important ways, people experience reality not as it is, but as they expect it to be.
+ - Creativity is a catchall term for a variety of distinct thought processes.
+ - Creativity is a spark. It can be excruciating when we’re rubbing two rocks together and getting nothing. And it can be intensely satisfying when the flame catches and a new idea sweeps around the world.
+ - You know more than you know.
+ - The answer will only arrive after we stop looking for it.
+ - Creativity is not a trait that we inherit in our genes or a blessing bestowed by the angels. It’s a skill.
+ - To have a style is to be stuck.
+ - If you’re trying to be more creative, one of the most important things you can do is increase the volume and diversity of the information to which you are exposed.
+ - When we venture beyond the edge of our knowledge, all we have is art.
+ - While human nature largely determines how we hear the notes, it is nurture that lets us hear the music.
+ - The imagination is unleashed by constraints. You break out of the box by stepping into shackles.
+ - The inconsistency of genius is a consistent theme of creativity.
+ - Like a work of art, we exceed our materials. Science needs art to frame the mystery, but art needs science so that not everything is a mystery. Neither truth alone is our solution, for our reality exists in plural.
+ - It is ironic but true: the one reality science cannot reduce is the only reality we will ever know. This is why we need art. By expressing our actual experience, the artist reminds us that our science is incomplete, that no map of matter will ever explain the immateriality of our consciousness.
+ - For too long, we’ve assumed that there is a single template for human nature, which is why we diagnose most deviations as disorders. But the reality is that there are many different kinds of minds. And that’s a very good thing.
+ - A lie told well is just as good as the truth.
+ - By the age of 3, children from wealthier households hear, on average, about 500,000 encouragements and 80,000 discouragements. The ratio is reversed in households on welfare.
+ - In fact, the only way to remain creative over time – to not be undone by our expertise – is to experiment with ignorance, to stare at things we don’t fully understand.
+ - Rejection process is not fun. It’s the red pen on the page, the discarded sketch, sometimes is the only way forward.
+ - Cities force us to interact with strangers and with the strange. They pry the mind open. And that is why they are the idea that has unleashed so many of our new ideas.
+ - I always wanted to be a scientist, I always thought I’d be a scientist, that was the narrative I was carrying around. I worked in a neuroscience lab as an undergraduate and then after, almost five years in total, but I realized I just wasn’t good at science. I didn’t have the discipline for it.
+ - Knowledge can be a subtle curse. When we learn about the world, we also learn all the reasons why the world cannot be changed. We get used to our failures and imperfections. We become numb to the possibilities of something new.
+ - Children can’t help but create: they need to put their mind on the page, they want to paint, to sculpt, to write short stories.
+ - Just because an idea is true doesn’t mean it can be proved. And just because an idea can be proved doesn’t mean it’s true.
+ - What you discover when you look at creativity from the perspective of the brain is that it is universal. We’re all creative all of the time, we can’t help but be creative.
+ - The best way to solve a problem? Try explaining it to somebody outside your field.
+ - It’s a hard thing to describe. It’s just this sense that you got something to say.
+ - I want to give people theories, I want to expose them to scientific stories that force them to re-evaluate the way they use these three pounds of meat inside their head.
+ - The one reality science cannot reduce is the only reality we will ever know.
+ - Design is the conscious imposition of meaningful order.
+
+35 quotes

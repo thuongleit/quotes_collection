@@ -1,0 +1,89 @@
+ - I do not pretend to understand the moral universe; the arc is a long one, my eye reaches but little ways; I cannot calculate the curve and complete the figure by the experience of sight, I can divine it by conscience. And from what I see I am sure it bends towards justice.
+ - Remorse is the pain of sin.
+ - Justice is the idea of God, the ideal of man, the rule of conduct writ in the nature of mankind.
+ - Want and wealth equally harden the human heart, as frost and fire are both alien to the human flesh. Famine and gluttony alike drive away nature from the heart of man.
+ - Democracy is direct self-government over all the people, for all the people, by all the people.
+ - All men need something to poetize and idealize their life a little-something which they value for more than its use, and which is a symbol of their emancipation from the mere materialism and drudgery of daily life.
+ - The joy of heaven will begin as soon as we attain the character of heaven, and do its duties.
+ - The miser, poor fool, not only starves his body, but also his own soul.
+ - Truth never yet fell dead in the streets; it has such affinity with the soul of man, the seed however broadcast will catch somewhere and produce its hundredfold.
+ - The books that help you the most are those which make you think the most.
+ - That which is called liberality is frequently nothing more than the vanity of giving.
+ - Disappointment is often the salt of life.
+ - Who escapes a duty, avoids a gain.
+ - Pride is both a virtue and a vice.
+ - Never violate the sacredness of your individual self-respect.
+ - There is no intercessor, angel, mediator, between man and God; for man can speak and God hear, each for himself. He requires no advocates to plead for men.
+ - Great success is a great temptation.
+ - The earnestness of life is the only passport to satisfaction of life.
+ - Man never falls so low that he can see nothing higher than himself.
+ - Such a large sweet fruit is a complete marriage, that it needs a very long summer to ripen in and then a long winter to mellow and season it.
+ - It is very sad for a man to make himself servant to a single thing; his manhood all taken out of him by the hydraulic pressure of excessive business.
+ - The coat of the buffalo never pinches under the arm, never puckers at the shoulders; it is always the same, yet never old fashioned nor out of date.
+ - A happy wedlock is a long falling in love.
+ - Every rose is an autograph from the hand of the Almighty God on this world about us. He has inscribed His thoughts in these marvelous hieroglyphics which sense and science have been these many thousand years seeking to understand.
+ - Nature is man’s religious book, with lessons for every day.
+ - Self-denial is indispensable to a strong character, and the highest kind comes from a religious stock.
+ - Silence is a figure of speech, unanswerable, short, cold, but terribly severe.
+ - Magnificent promises are always to be suspected.
+ - The heresy of one age is the orthodox belief and “only infallible rule” of the nest.
+ - I am conscious of eternal life.
+ - You may not, cannot, appropriate beauty. It is the wealth of the eye, and a cat may gaze upon a king.
+ - It takes a Newton to forge a Newton. What man could have fabricated a Jesus? None but a Jesus.
+ - Truth stood on one side and Ease on the other; it has often been so.
+ - Science is the natural ally of religion.
+ - The most useful is the greatest.
+ - The books that help you most are those which make you think the most. A great book that comes from a great thinker is a ship of thought, deep freighted with truth and beauty.
+ - Love of truth will bless the lover all his days; yet when he brings her home, his fair-faced bride, she comes empty-handed to his door, herself her only dower.
+ - As society advances the standard of poverty rises.
+ - I believe in the admission of women to the full rights of citizenship and share in government, on the express grounds that few women keep house so badly or with such wastefulness as chancellors of the exchequer keep the state.
+ - The diamond which shines in the Saviour’s crown shall burn in unquenched beauty at last on the forehead of every human soul.
+ - Science, also, is most largely indebted to these beauty-loving Greeks, for truth is one form of loveliness.
+ - What a joy is there in a good book, writ by some great master of thought, who breaks into beauty as in summer the meadow into grass and dandelions and violets, with geraniums and manifold sweetness.
+ - I look through the grave into heaven.
+ - Gratitude is a nice touch of beauty added last of all to the countenance. Giving a classic beauty, an angelic loveliness, to the character.
+ - Nature is God’s Old Testament.
+ - The use of great men is to serve the little men, to take care of the human race, and act as practical interpreters of justice and truth.
+ - The union of men in large masses is indispensable to the development and rapid growth of the higher faculties of men. Cities have always been the fireplaces of civilization whence light and heat radiated out into the dark cold world.
+ - The great basis of the Christian faith is compassion; do not dismiss that from your hearts, neither will your Maker.
+ - All the spaces between my mind and the mind of God are full of truths waiting to be crystallized into laws for the government of the masses.
+ - Marriages are best made of dissimilar material.
+ - No virtue fades out of mankind. Not over-hopeful by inborn temperament, cautious by long experience, I yet never despair of human virtue.
+ - There never was a great truth but it was reverenced; never a great institution, nor a great man, that did not, sooner or later, receive the reverence of mankind.
+ - Outward judgment often fails, inward judgment never.
+ - No man is so great as mankind.
+ - The miser, starving his brother’s body, starves also his own soul, and at death shall creep out of his great estate of injustice, poor and naked and miserable.
+ - Temperance is corporeal piety; it is the preservation of divine order in the body.
+ - The whole sum and substance of human history may be reduced to this maxim: that when man departs from the divine means of reaching the divine end, he suffers harm and loss.
+ - All men desire to be immortal.
+ - The duty of labor is written on a man’s body: in the stout muscle of the arm,, and the delicate machinery of the hand.
+ - Wit has its place in debate; in controversy it is a legitimate weapon, offensive and defensive.
+ - Yet, if he would, man cannot live all to this world. If not religious, he will be superstitious. IF he worship not the true God, he will have his idols.
+ - Greatness is its own torment.
+ - It seems strange that a butterfly’s wing should be woven up so thin and gauzy in the monstrous loom of nature, and be so delicately tipped with fire from such a gross hand, and rainbowed all over in such a storm of thunderous elements. The marvel is that such great forces do such nice work.
+ - Did the mass of men know the actual selfishness and injustice of their rulers, not a government would stand a year. – The world would foment with revolution.
+ - It is vain to trust in wrong; as much of evil, so much of loss, is the formula of human history.
+ - Applying good sense to religion and religion to life. This is the field in which I design to labor.
+ - Intellect is stronger than cannon.
+ - Man is the highest product of his own history. The discoverer finds nothing so grand or tall as himself, nothing so valuable to him. The greatest star is at the small end, of the telescope, – the star that is looking, not looked after nor looked at.
+ - Be not familiar with the idea of wrong, for sin in fancy mothers many an ugly fact.
+ - The lottery of honest labor, drawn by time, is the only one whose prizes are worth taking up and carrying home.
+ - Let others laugh when you sacrifice desire to duty, if they will. You have time and eternity to rejoice in.
+ - The great man is to be the servant of mankind, not they of him.
+ - What sad faces one always sees in the asylums for orphans! It is more fatal to neglect the heart than the head.
+ - It is not from the tall crowded workhouse of prosperity that men first or clearest see the eternal stars of heaven.
+ - And war-the worst form of evil!
+ - Religion without joy-it is no religion.
+ - Politics is the science of urgencies.
+ - In all the world there is nothing so remarkable as a great man, nothing so rare, nothing which so well repays study.
+ - Humanity is the Son of God.
+ - Mankind never loses any good thing, physical, intellectual, or moral, till it finds a better, and then the loss is a gain. No steps backward is the rule of human history. What is gained by one man is invested in all men, and is a permanent investment for all time.
+ - There is no college for the conscience.
+ - He prays best who, not asking God to do man’s work, prays penitence, prays resolutions, and then prays deeds – thus supplicating with heart and head and hands.
+ - I ask no risen dust to teach me immortality; I am conscious of eternal life.
+ - Genius is the father of a heavenly line, but the mortal mother, that is industry.
+ - What succeeds we keep, and it becomes the habit of mankind.
+ - For a thousand years no king in Christendom has shown such greatness or given so high a type of manly virtue.
+ - Wealth and want equally harden the human heart.
+
+87 quotes

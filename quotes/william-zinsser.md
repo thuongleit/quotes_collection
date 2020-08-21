@@ -1,0 +1,108 @@
+ - Writing is thinking on paper.
+ - Writing is thinking on paper. Anyone who thinks clearly should be able to write clearly-about any subject at all.
+ - Four basic premises of writing: clarity, brevity, simplicity, and humanity.
+ - If writing seems hard, it’s because it is hard. It’s one of the hardest things people do.
+ - Clutter is the disease of American writing. We are a society strangling in unnecessary words, circular constructions, pompous frills, and meaningless jargon.
+ - Examine every word you put on paper. You’ll find a surprising number that don’t serve any purpose.
+ - One of the saddest sentences I know is “I wish I had asked my mother about that.” Or my father. Or my grandmother. Or my grandfather. As every parent knows, our children are not as fascinated by our fascinating lives as we are.
+ - Hard writing makes easy reading. Easy writing makes hard reading.
+ - Writing is hard work. A clear sentence is no accident. Very few sentences come out right the first time, or even the third time. Remember this in moments of despair. If you find that writing is hard, it’s because it is hard. It’s one of the hardest things that people do.
+ - Clear thinking becomes clear writing; one can’t exist without the other.
+ - Believe in your own identity and your own opinions. Proceed with confidence, generating it, if necessary, by pure willpower. Writing is an act of ego and you might as well admit it. Use its energy to keep yourself going.
+ - Writers are the custodians of memory, and that’s what this chapter is about: how to leave some kind of record of your life and of the family you were born into.
+ - Decide what you want to do. Then decide to do it. Then do it.
+ - A writer will do anything to avoid the act of writing.
+ - Memoir isn’t the summary of a life; it’s a window into a life, very much like a photograph in its selective composition. It may look like a casual and even random calling up of bygone events. It’s not; it’s a deliberate construction.
+ - Good writing is lean and confident.
+ - Thought is action in rehearsal.
+ - If you write for yourself, you’ll reach all the people you want to write for.
+ - Writing and learning and thinking are the same process.
+ - Rewriting is the essence of writing well – where the game is won or lost.
+ - Keep your paragraphs short. Writing is visual – it catches the eye before it has a chance to catch the brain.
+ - Don’t say you were a bit confused and sort of tired and a little depressed and somewhat annoyed. Be tired. Be confused. Be depressed. Be annoyed. Don’t hedge your prose with little timidities. Good writing is lean and confident.
+ - If the nails are weak, your house will collapse. If your verbs are weak and your syntax is rickety, your sentences will fall apart.
+ - You’ll never make your mark as a writer unless you develop a respect for words and a curiosity about their shades of meaning that is almost obsessive. The English language is rich in strong and supple words. Take the time to root around and find the ones you want.
+ - I think a sentence is a fine thing to put a preposition at the end of.
+ - Be grateful for every word you can cut.
+ - To write a good memoir you must become the editor of your own life, imposing on an untidy sprawl of half-remembered events a narrative shape and an organizing idea. Memoir is the art of inventing the truth.
+ - Memoir is the art of inventing the truth.
+ - One of underestimated tasks in nonfiction writing is to impose narrative shape on an unwieldy mass of material.
+ - Never let anything go out into the world that you don’t understand.
+ - To defend what you’ve written is a sign that you are alive.
+ - Be wary of security as a goal. It may often look like life’s best prize. Usually it’s not.
+ - Clutter is the official language used by corporations to hide their mistakes.
+ - If you lose the dullards back in the dust, that’s where they belong. You don’t want them anyway.
+ - Never hesitate to imitate another writer. Imitation is part of the creative process for anyone learning an art or a craft. Bach and Picasso didn’t spring full-blown as Bach or Picasso; they needed models. This is especially true of writing.
+ - Be yourself and your readers will follow you anywhere. Try to commit an act of writing and they will jump overboard to get away.
+ - Writing organizes and clarifies our thoughts. Writing is how we think our way into a subject and make it our own. Writing enables us to find out what we know-and what we don’t know-about whatever we’re trying to learn.
+ - The most important sentence in any article is the first one. If it doesn’t induce the reader to proceed to the second sentence, your article is dead. And if the second sentence doesn’t induce him to continue to the third sentence, it’s equally dead.
+ - Few people realize how badly they write. Nobody has shown them how much excess or murkiness has crept into their style.
+ - Never hesitate to imitate another writer – every person learning a craft or an art needs models. Eventually you’ll find your own voice and will shed the skin of the writer you imitated.
+ - Every successful piece of nonfiction should leave the reader with one provocative thought that he or she didn’t have before. Not two thoughts, or five – just one. So decide what single point you want to leave in the reader’s mind.
+ - Scholarship hath no fury like that of a language purist faced with sludge.
+ - Writing is no respecter of blueprints.
+ - Writing is learned by imitation. If anyone asked me how I learned to write, I’d say I learned by reading the men and women who were doing the kind of writing I wanted to do and trying to figure out how they did it.
+ - No one has something original or important to say will willing we run the risk of being misunderstood; people who write obscurely are either unskilled in writing or up to mischief.
+ - A clear sentence is no accident.
+ - You learn to write by writing.
+ - Make a habit of reading what is being written today and what has been written before. Writing is learned by imitation.
+ - Good writing has an aliveness that keeps the reader reading from one paragraph to the next, and it’s not a question of gimmicks to “personalize” the author.
+ - Don’t try to visualize the great mass audience. There is no such audience – every reader is a different person.
+ - There’s no sentence that’s too short in the eyes of God.
+ - Rewriting is the essence of writing well: it’s where the game is won or lost. The idea is hard to accept. We all have emotional equity in our first draft; we can’t believe that it wasn’t born perfect. But the odds are close to 100 percent that it wasn’t.
+ - Every time you look at a blank piece of paper, you’re doing something new. You have to step onto that blank territory and remind yourself the sky didn’t fall in the last time you wrote. Writing is a question of overcoming your fears-and everybody has them.
+ - Telling a writer to relax is like telling a man to relax while being prodded for a possible hernia.
+ - Also bear in mind, when you’re choosing your words and stringing them together, how they sound. This may seem absurd: readers read with their eyes. But in fact they hear what they are reading far more than you realize.
+ - Never forget that you are practicing a craft with certain principles.
+ - Journalism is writing that first appears in any periodic journal.
+ - When you’re ready to stop, stop. If you have presented all the facts and made the point you want to make, look for the nearest exit.
+ - Abraham Lincoln and Winston Churchill rode to glory on the back of the strong declarative sentence.
+ - There’s not much to be said about the period except that most writers don’t reach it soon enough.
+ - The writers job is like solving a puzzle, and finally arriving at a solution is a tremendous satisfaction.
+ - All writing is ultimately a question of solving a problem.
+ - But nothing has replaced the writer. He or she is still stuck with the same old job of saying something that other people will want to read.
+ - The only way to learn to write is to force yourself to produce a certain number of words on a regular basis.
+ - Editors are licensed to be curious.
+ - Nobody ever stopped reading E. B. White or V. S. Pritchett because the writing was too good.
+ - Don’t try to guess what sort of thing editors want to publish or what you think the country is in a mood to read. Editors and readers don’t know what they want to read until they read it. Besides, they’re always looking for something new.
+ - Nobody told all the new e-mail writers that the essence of writing is rewriting. Just because they are writing with ease and enjoyment doesn’t mean they are writing well.
+ - Motivation clears the head faster than a nasal spray.
+ - Don’t be kind of bold. Be bold.
+ - Not every oak has to be gnarled, every detective hard-bitten. The adjective that exists solely as a decoration is a self-indulgence for the writer and an obstacle for the reader.
+ - Writing is such lonely work that I try to keep myself cheered up. If something strikes me as funny in the act of writing, I throw it in just to amuse myself. If I think it’s funny I assume a few other people will find it funny, and that seems to me to be a good day’s work.
+ - Eloquence invites us to bring some part of ourselves to the transaction.
+ - Nobody becomes Tom Wolfe overnight, not even Tom Wolfe.
+ - It is a fitting irony that under Richard Nixon, “launder” became a dirty word.
+ - As a writer I try to operate within a framework of Christian principles, and the words that are important to me are religious words: witness, pilgrimage, intention.
+ - Write about small, self-contained incidents that are still vivid in your memory. If you remember them, it’s because they contain a larger truth that your readers will recognize in their own lives. Think small and you’ll wind up finding the big themes in your family saga.
+ - The sound of the bat is the music of spring training.
+ - What I want to do is to make people laugh so that they’ll see things seriously.
+ - A writer is obviously at his most natural and relaxed when he writes in the first person. Writing is a personal transaction between two people, conducted on paper, and the transaction will go well to the extent that it retains its humanity.
+ - Most writers sow adjectives almost unconsciously into the soil of their prose to make it more lush and pretty. The sentences become longer and longer as they fill up with stately elms and graceful boughs and frisky kittens and sleepy lagoons.
+ - Many of us were taught that no sentence should begin with “but.” If that’s what you learned, unlearn it – there’s no stronger word at the start. It announces a total contrast with what has gone before, and the reader is thereby primed for the change.
+ - There are all kinds of writers and all kinds of methods, and any method that helps you to say what you want to say is the right method for you.
+ - If a good word already exists, there is no need to invent something painful.
+ - The best way to learn to write is to study the work of the men and women who are doing the kind of writing you want to do.
+ - Writing improves in direct ratio to the things we can keep out of it that shouldn’t be there.
+ - You can solve most of your writing problems if you stop after every sentence and ask: what does the reader need to know next?
+ - Writers must constantly ask: what I am trying to say? Surprisingly often, they don’t know.
+ - Finding a voice that your readers will enjoy is largely a matter of taste. Saying that isn’t much help-taste is a quality so intangible that it can’t even be defined. But we know it when we meet it.
+ - Not everybody has a talent for painting, or for the piano, or for dance. But we can write our way into the artist’s head and into his problems and solutions. Or we can go there with another writer.
+ - A writer is always working.
+ - Good writers are visible just behind their words.
+ - Probably every subject is interesting if an avenue into it can be found that has humanity and that an ordinary person can follow.
+ - Avoid the ecstatic adjectives that occupy such disproportionate space in every critic’s quiver – words like “enthralling” and “luminous.”
+ - Ultimately the product that any writer has to sell is not the subject being written about, but who he or she is.
+ - Today the outlandish becomes routine overnight. The humorist is trying to say that it’s still outlandish.
+ - Writers can write to affirm and to celebrate, or they can write to debunk and destroy; the choice is ours.
+ - Writing wasn’t easy and wasn’t fun. It was hard and lonely, and the words seldom just flowed.
+ - The writer who cares about usage must always know the quick from the dead.
+ - Dare to tell the smallest of stories if you want to generate large emotions.
+ - All writers should strive to deliver something fresh-something editors or readers won’t know they want until they see it.
+ - Much of my writing has taken the form of a pilgrimage: to sacred places that represent the best of America, to musicians and other artists who represent the best of their art.
+ - Even a poor translator couldn’t kill a style that moves with such narrative clarity.
+ - I try to make what I have written tighter, stronger and more precise, eliminating every element that’s not doing useful work. Then I go over it once more, reading it aloud, and am always amazed at how much clutter can still be cut.
+ - I have no interest in teaching writers how to sell. I want to teach them how to write. If the process is sound, the product will take care of itself, and sales are likely to follow.
+ - Readers must be given room to bring their own emotions to a piece so crammed with emotional content; the writer must tenaciously resist explaining why the material is so moving.
+
+106 quotes

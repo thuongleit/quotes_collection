@@ -1,0 +1,107 @@
+ - We’re blessed on ‘How I Met Your Mother’ to feel like we’re doing a bit of a funny playlet everyday.
+ - I regret not dancing more, just cutting loose on the dance floor. I still admire those who don’t care much about what others think of them.
+ - It’s really something for people who are approaching 30 to take a look at what that means to them. I think turning 30 is a chance to re-identify with yourself.
+ - Love is awesome and endless, but it is constantly changing its form. You love something for what it is, then it changes. But that change can make you love it even more.
+ - I’m not the best cruise ship crooner. I’m not the best karaoke guy.
+ - I like to make decisions based on things I’m interested in doing, not what seems like the next move in my quote-unquote career.
+ - I remember thinking that the rest of my life would be solo. I wasn’t weepy when I thought that – it was just a realization that I had gone this long being self-sufficient.
+ - I have an unbelievable assistant who handles all of my scheduling! It’s like a Tetris game.
+ - American Sniper focuses on a soldier with 160 kills, or as Harvey Weinstein calls it, a slow morning.
+ - I think flirting is great fun. It doesn’t mean that anything’s going to come of it but it’s fun to be told that you’re hot and that your tits look great. You all get your pens out.
+ - But magic is like pizza: even when it’s bad, it’s pretty good.
+ - I enjoy darker sardonic wit more than knock-knock jokes. I spent the first healthy chunk of my career playing all-American, pleasant, average, nice people, so it’s fun to have some complications there.
+ - In my 20s, I mostly ate burritos and nachos, with the occasional burger.
+ - Babies just change everything. You have to become super selfless and super tired and super amenable to change. They just change all the time.
+ - With the Tonys it’s a little tricky because a lot of the funnier jokes are more insider, so people watching at home may not get a Julie Taymor reference the way that New Yorkers would. So you have to figure out what comedy plays to a large audience and still respect the individuals who are there.
+ - I don’t like to be disparaging about my past roles. That’s the only taboo that I don’t like to cross.
+ - Charlie Sheen is who again? Denise is engaged?
+ - Benedict Cumberbatch is not only the best name in show business, it’s also the response you get when you ask John Travolta to pronounce Ben Affleck.
+ - Babies laughing is like opium.
+ - It PASSED! Marriage equality in NY!! Yes!! Progress!! Thank you everyone who worked so hard on this!! A historic night!
+ - I always thought filet mignon was the steak to beat, but the fat content in a rib eye is fantastic.
+ - I’m lucky that people believe me when I’m in character.
+ - I love the American musical for the simplicity of emotion that gets expressed.
+ - My parents own a restaurant in Albuquerque.
+ - I grew up being educated by Sesame Street and gained a sense of humor from The Muppet Show. I’d give my right foot to be able to do a scene or two with the Muppets.
+ - I’m not trying to climb a ladder – I’m casting a bit of a net.
+ - Parents need to be more accepting of who their kids are and less concerned about what society thinks they need to be.
+ - Starship Troopers was great. It was great fun to work on something with blue screens and big budget special effects. Denise Richards was nice to look at too, of course.
+ - I’m a big proponent of monogamous relationships regardless of sexuality, and I’m proud of how the nation is steering toward that.
+ - Theater for me is about enduring human truth. Special effects can be part of that, but when they obscure what is the reason we come to theater – to see reflections of our confounded humanity – the theater has lost its way.
+ - As an actor, you most often play relatively average parts, so to get to play extreme versions of anything, those are the most exciting parts.
+ - I don’t want to have to inadvertently find a gift and go like, “What the hell is – – oh no, that’s for me.” And then have to pretend like I’m surprised later. I won’t look. If I know where they’re hidden, I will not look. I love presents and I hate faking surprises.
+ - I do a lot of books on tape for Beverly Cleary, and another ‘Smurfs’ shout-out for that demographic.
+ - We’re in such a volatile climate right now politically. I think they didn’t want Assassins to not succeed due to popular opinion and politics, versus on its own merits. I can respect that.
+ - I think it has been a weird mistake to have people with their own music careers going on and judging people because when they’re too critical, it affects them. They don’t want to be that honest, because they need to keep their appearance up.
+ - I love the ‘So You Think You Can Dance’ show. I love it. I think it’s some of the best hours on TV.
+ - I have more artistic control in a smaller show. But it doesn’t really matter. Sometimes you can have the smallest role in the smallest production and still make a big impact.
+ - I have actual strong ideas. You just have to wait for the right timing. Timing is pretty crucial here. I can’t dedicate a lot of energy and efforts trying to, say, create a show that I want to produce while I’m currently on another show.
+ - I’ve done plenty of daredeviling – from white-water rafting to bungee jumping. But I think the most fearless was hosting the Emmy Awards. It was overwhelming, and I definitely had to leave fear at the door.
+ - I need to stop carving out four-hour chunks to do random things and go home and watch my children grow up.
+ - This next presenter is so lovely you could eat her up with a spoon.
+ - If you don’t have any ties to the music industry, you just love ‘American Idol,’ you can sit there and do exactly what you do in your living room, which is stare at them and judge them.
+ - When you call someone and ask them to do something they’ve never done before, in different mediums I think they would be inclined to pass because they’re afraid of the risk. But the creative people who populate the theater world love the challenge of new things.
+ - What defines a relationship is the work that’s involved to maintain it, and it’s constantly changing.
+ - I have a very large forehead. I have a pronounced skull. Maybe producers think that there is a lot going on up in there.
+ - I pride myself in being able to straddle demographics, and if that was said as Barney Stinson, it would mean a little different thing.
+ - I’d love to be some sort of villain in a big-budget action movie. Or a superhero franchise. That’d be rad.
+ - If I’m doing some weird tick with my mouth, or not standing still or something, I’ll be the first person to notice it, and then want to change that. I think it’s important just to maintain trajectory, to not just use your same tricks over and over.
+ - The subject of Citizenfour, Edward Snowden, could not be here for some treason.
+ - I like the tube more than the NY subway though, you’ve got cushioned seats.
+ - I’m shocked at how early everything closes here. But people start earlier. I miss the late nightlife in NYC, but then again I sing and burn so much energy in the show that it’s probably good – I get to go home and sleep.
+ - I love Buster Keaton. I was a big fan of the stunt shows at Universal Studios. I’m a huge Cirque du Soleil nut.
+ - There are so many examples of talented actors working today, no matter how they live their private lives. I’m lucky that people believe me when I’m in character.
+ - I’m a very lucky man in this chapter of my professional life, ’cause I get to do jobs with wildly different skill sets.
+ - I often feel like books find us for reasons, and we read them when we need them the most.
+ - I would not dream of taking on Tobey Maguire. Plus, he’s a talented and nice guy, and I have nothing but nice things to say about him.
+ - I felt a little green, because Shakespeare writes the thought process within the text; it was tricky not to think of what to say and then say it, and instead just deliver the lines.
+ - I think things through a lot, so I probably use my head more than my heart. That probably comes through in my acting.
+ - May I suggest a drinking game where everytime I do a ridiculously long awkward blink, someone does a shot of some kind of alcohol?
+ - I don’t stay up and rent private jets and go on yachts and whoop it up in Miami.
+ - I often teach a graduate theater seminar on Greek tragedy in performance. I usually begin by saying that no matter what technological advances occur, the wisdom of these plays will never be obsolete.
+ - I feel like with actors wanting to direct, you really only have a shot or two. You can’t just make a bunch of little independent movies, and then finally one gets noticed. You have to make a really good one right away.
+ - Thankfully I’ve been quite lucky in my career, but it’s always good to re-evaluate things and think about what else you want to do.
+ - When I auditioned for the show, I didn’t realize it was an MTV production, which is going to make for really good tunes during the episodes, if nothing else.
+ - I think when dance is mediocre, it’s painful. But when dance is really impressive, it destroys.
+ - I don’t care about my “impact” – I only care about the theater as an art form and criticism as an act of writing.
+ - A cardio-funk class – I should have at least taken one of those. But it’s always terrified me. I’m never one to be a dancer on the dance floor, even at a bar or a club.
+ - The Tonys are the once-a-year shot for all of these shows and artists who work so diligently every single performance but only for a thousand or so people at a time. This gives them the opportunity to perform to millions of people.
+ - For film, I audition just like everyone else, because it’s a different set of casting directors.
+ - I want to be able to infuse some youthful energy and comedy while appreciating the generations before.
+ - Tobey’s a mellow, cool guy. He’s just a good guy. I know that’s not the answer you want, and I don’t mean that as the political thing to say, but he’s a nice guy.
+ - I’m a games and theory kind of guy. I love puzzles, so it was fun dissecting Shakespeare’s prose.
+ - I’ve been very fortunate to go from interesting chapter to interesting chapter. I’ve always enjoyed the process and always enjoyed working more really than the end result of what it achieves. I’m more interested in doing the work.
+ - I thought the idea of ‘Smurfs’ lent itself to the 3-D environment pretty well, I think, better than some of the farm animal movies that have been done before. I was a fan of the ‘Smurfs’ and they come with their own fan base, which I thought was nice.
+ - I’m probably my biggest critic. I worry that if you spend any quality time reveling in good things then karma will slap you upside the head, so I try to stay as even keel as I’m able.
+ - Thankfully, the meat of the Tony telecast is the performances from the shows, so the awards show kind of creates itself around the season, and then I fill in based on the vibe of the season in general. I’m happy that there’ll be so many legitimately good performances on the show.
+ - You have to be careful when you’re doing an interview.
+ - I sort of pride myself in my dissatisfaction with my work. I’ve always been concerned with buying the hype, and having that make your performances suffer.
+ - I don’t know, on a sitcom, and in theatre especially, you have to really be listening to an audience. And if you’re losing them, you can hear the sniffs, and the playbills shuffling and whatnot.
+ - I love technology. I buy all of the stuff when they come out first.
+ - It’s nice to establish yourself as an actor first and a singer second. Proof is such a tremendous piece of work, and I’m incredibly lucky to be a part of it. I’m sure that the musicals will happen in the future, though.
+ - I feel like I know where I’m going. And I like where I’m going.
+ - Before babies, I worked very hard to make sure I understood my surroundings and figured out where I fit in the world, whether it was at work or in a social situation.
+ - I’ve been taking a trapeze class for the last couple of years. I’m working on my double back flip right now.
+ - As actors you don’t want to have one label. You’d rather have seven.
+ - It’s like, the more you commit, the happier the animators are; if you’re at all iffy and concerned, then it doesn’t free them up to do as much fun stuff, so you have to just go for it and, again, trust the people around you and not be seemingly guarded and numb. Throw caution to the wind a bit.
+ - I’ve been very fortunate to go from interesting chapter to interesting chapter.
+ - The discipline of live theater – doing the same perfect thing night after night, eight times a week – never ceases to amaze me.
+ - I collect puppet stuff. I have a puppet workshop in my garage. I was looking for any opportunity to be able to get very creatively involved in that world.
+ - I get to choose things that interest me as opposed to trying to get any job that will have me, which for a vast majority of actors is the case.
+ - So I’ve done my fair share of theater. I have also been very fortunate in that I’ve been able to come to New York two or three times a year just to see as many shows as possible. I think the live theater culture here is incredible.
+ - I’m in a play on Broadway, I have an animated TV show coming up, I have a few movies that just came out.
+ - I’m having a ball. I just walk in, make some funnies and walk out, no pressure.
+ - I enjoy being a hyphenate. I’ve always thought of my career as a plate spinner in the circus.
+ - My favorite time to dance is at, like, wedding receptions, when it’s all ages and everyone seems to be having fun.
+ - I’ve got no plans to be a ballet dancer at the moment.
+ - Jim Henson was the only piece of fan mail I ever wrote when I was a little kid.
+ - The theater is reaching as many different demographics as it can now.
+ - When you have twin four-year-olds, you are able to dance like a fool, often. And I do.
+ - If I wrote a musical it wouldn’t be about me. Although I do some magic, so it would probably be about a magician who appeared and re-appeared all over the place.
+ - I’m very interested in starting to produce, and direct, and have an umbrella over an entire project in the future. I’d like to have control over what the characters do. I think as an actor, you get a little too caught up in the moment-to-moment, beat-to-beat stuff to have perspective.
+ - I don’t know, but I think kids just want to be listened to, so I want to make sure I do that.
+ - It’s good to have a lot of once-in-a-lifetimes in your lifetime. If you get the chance to skydive, go skydiving. If you’re offered a part in a weird Shakespeare play in San Diego, slap on some tights and rock out some iambic pentameter.
+ - Chef’s choice is my favorite. I’m super adventurous.
+ - Mr. Steven Bochco is a very wise man. After a many-monthed nationwide search to find a precocious teenage doctor, he hired me.
+
+105 quotes

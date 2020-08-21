@@ -1,0 +1,165 @@
+ - I used to think that the brain was the most wonderful organ in my body. Then I realized who was telling me this.
+ - Not everybody hates me. Only the people who’ve met me.
+ - When I was a kid I used to pray every night for a new bicycle. Then I realised that the Lord doesn’t work that way so I stole one and asked Him to forgive me.
+ - A computer once beat me at chess, but it was no match for me at kick boxing.
+ - Some mornings, it’s just not worth chewing through the leather straps.
+ - So I’m at the wailing wall, standing there like a moron, with my harpoon.
+ - I went into the gas station, said, Fill ’er up, Harry. The guy said, Regular? I said, No, put on a gorrila suit and dance like a fairy.
+ - You don’t appreciate a lot of stuff in school until you get older. Little things like being spanked every day by a middle-aged woman: Stuff you pay good money for in later life.
+ - I pray a simple prayer every morning. It’s an ecumenical prayer. Whether you’re Catholic or Jewish or Muslim or Hindu, I think it speaks to the heart of every faith. It goes “Lord please break the laws of the universe for my convenience. Amen.”
+ - Once I posed nude for a magazine. I’ve never been back to THAT newstand.
+ - Lord please break the laws of the universe for my convenience. Amen.
+ - I’ve learned that you can’t make someone love you. All you can do is stalk them and hope they’ll panic and give in.
+ - I’m totally normal in every respect, but I have this one quirk – I can’t give out a number without laughing. It’s a problem when I’m giving my credit card number over the phone because they always think: ‘He must have just stolen it.’
+ - I have a lot more things to talk about now because I’m an adult.
+ - I used to get drunk every night until I puked. Finally I admitted, “I am a bulemic”.
+ - Women: You can’t live with them, and you can’t get them to dress up in a skimpy little Nazi costume and beat you with a warm squash or something.
+ - When I wake up in the morning, I just can’t get started until I’ve had that first, piping hot pot of coffee. Oh, I’ve tried other enemas.
+ - I discovered my wife in bed with another man, and I was crushed. So I said, ‘Get off me, you two!’
+ - Computers aren’t intelligent, they only think they are.
+ - Thinking up jokes is easy. The hard part is trying them out on stage, because you never know if they’re funny until you get there. Not one comedian in the world ever really knows.
+ - I’m from Downer’s Grove, Illinois. We had a blackout there the other day, but fortunately the police made him get back into his car before he got too far.
+ - I don’t know how electricity works. All I know is that it calms me.
+ - I took my grandmother to the emergency room. The doctor said that she was on an artificial life support system, and that although her brain was dead her heart was still beating. I though, “we’ve never had a democrat in the family before”.
+ - I was walking home one night and a guy hammering on a roof called me a paranoid little weirdo. In morse code.
+ - If an asteroid is coming toward you, you don’t have to blow it up. You just have to slow it down long enough for our country to rotate out of the way.
+ - Well, my brother says Hello. So, hooray for speech therapy.
+ - I love my family. I came home the other days. My brother’s passed-out on the couch, holding an empty bottle of sleeping pills. So I called the paramedics, and they pumped his stomach, and I think he’s learned his lesson: you know, never to take my last two sleeping pills.
+ - Every night my wife used to give me a foot massage. And my face would smell weird afterwards, but...
+ - I’m not Catholic, but I gave up picking my belly button for lint.
+ - My classmates would copulate with anything that moved, but I never saw any reason to limit myself.
+ - When I went to college, my parents threw a going away party for me, according to the letter.
+ - Ambiguity – the Devil’s volleyball.
+ - I’ve always had a special place in my heart for old women digging through garbage bins. They saved my life so many times as a baby.
+ - I got a letter from the IRS. Apparently I owe them $800. So I sent them a letter back. I said, If you’ll remember, I fastened my return with a paper clip, which according to your very own latest government pentagon spending figures will more than make up for the difference.
+ - My grandmother’s brain was dead, but her heart was still beating. It was the first time we ever had a democrat in the family.
+ - I never cheated on my wife. I took seriously those vows of celibacy.
+ - I was sick of people making fun of my hair and so I cut it off and I’ve got much more attention than ever before. It was like when Mona Lisa was stolen from the Louvre in 1906 – three times more people came to see where it used to be.
+ - Everyone, everywhere, and all the time, used to laugh at me when I was growing up. So, when I was around 18, I thought, ‘I’ll become a comedian, and then if everyone laughs at me, I’ll be famous.’ So I went on stage one night and, for the first time in my life, everyone stopped laughing at me.
+ - Coming up with a funny joke is like falling in love: It can hit you any time, anywhere. Having said that, the more you put yourself out there, the better your odds will be.
+ - Writing jokes for others is like having babies for someone else. It’s sad. Like the woman who gives up her baby but needs to be close so she secretly becomes the maid in the household.
+ - I think the whole concept of monotheism is a gift from the gods.
+ - One man’s pet-stained carpet is another man’s Twister game.
+ - I think fur looks better on an animal than on a human being. So I dress my dog in a mink teddy.
+ - Libertarians believe consenting adults have the right to do whatever they choose, except band together.
+ - Whatever happened to the good ole days, when children worked in factories?
+ - I think of my body as a temple. Or at least a relatively well-managed Presbyterian youth center.
+ - Probably the toughest time in anyone’s life is when you have to murder a loved one because they’re the devil.
+ - If you can make just one person laugh, then you are already doing better than Tony Danza.
+ - You know what I hate the most? People that imitate owls.
+ - My girlfriend told me that she was seeing another man. I told her to rub her eyes.
+ - I think my ex-girlfriend has weekly lessons with the devil on how to be more evil. I don’t know what she charges him.
+ - My dad always said, If someone hands you a lemon, make lemonade. Plus that also works wonderfully as a metaphor.
+ - Back in high school, my buddies tried to put the make on anything that moved. I told them, Why limit yourselves?
+ - I asked my girlfriend, ‘Will you marry me?’ She said, ‘We’ll have to ask my father.’ So we had a seance and Jack Ruby says, ‘Hello!’
+ - Don’t wear fur! Did you know, a single fur coat takes fifteen trees, just for the protest signs?
+ - I’ll do anything for my wife, it’s turning out.
+ - I was at a bar nursing a beer. My nipple was getting quite soggy.
+ - When I was a kid, my goodness, corporate America was a bunch of stolid white guys in gray suits trying to be serious, and now it’s stolid white guys in gray suits trying to be funny.
+ - I’m not a fatalist; even if I were, what could I do about it?
+ - Christmas seems to start earlier and earlier every year. Like, this time, it’s on December 25th.
+ - I was the kid next door’s imaginary friend.
+ - Race is still somewhat of a taboo in comedy. But if you’re a minority, then you can make fun of your own minority. And that’s a nice service that many of them provide.
+ - I saw a psychologist once because I thought I had depression. It cost me $100. When I left, I realised that there’s nothing he could have said that would cheer me up as much as if I found a $100 bill on my way home.
+ - I was at the Wal-Mart, which is where I think everybody goes eventually. If they die without Christ.
+ - I like to play chess with bald men in the park although it’s hard to find 32 of them.
+ - I love Florida. I love the beach. I love the sound of the crashing surfers against the rocks.
+ - Girls throw their panties on the stage, but rarely if ever do they fit.
+ - I used to be scared of pretty girls, until one confessed they’re just as scared of me.
+ - When I was 10, I beat up the school bully. His arms were in casts. That’s what gave me the courage.
+ - The IRS sent back my tax return saying I owed $800. I said If you’ll notice, I sent a paper clip with my return. Given what you’ve been paying for things lately, that should more than make up the difference.
+ - The Scots are a very tough people. They have drive-by headbuttings. In Glasgow a sweatband is considered a silencer.
+ - Sometimes my mother goes through my socks and underwear. I wouldn’t mind, but it tickles so much!
+ - I love to go down to the schoolyard and watch all the little children jump up and down and run around yelling and screaming. They don’t know I’m only using blanks.
+ - I’m learning Cuban. It’s like Spanish, but with fewer words for luxury items.
+ - My girlfriend said, Just buy me something crazy and expensive, something I don’t even need! So, I signed her up for radiation treatment.
+ - When I was a kid, my nickname was Mr. Baseball. Because of the stitches.
+ - I was a cute baby. My mom said when I was born they threw away the mold. Some of it grew back.
+ - But I like to swim. At high school, I tried out for the swim team. I shaved off all my body hair, and that extra burst of speed from all the bullies shouting Kill the fairy...
+ - At my lemonade stand I used to give the first glass away free and charge five dollars for the second glass. The refill contained the antidote.
+ - My sister gained 80 pounds expecting her baby. Well, you get nervous, waiting for those adoption papers to clear.
+ - I was sleeping the other night, alone, thanks to the exterminator.
+ - In our school you were searched for guns and knifes on the way in and if you didn’t have any, they gave you some.
+ - I’m not as good a swimmer as I used to be – thanks to evolution.
+ - Anger punishes the bearer’s heart. Who remains angry suffers most. For many, the search for perfection virtually guarantees it will be found, and disregarded in order to continue the search. Some mornings it just doesn’t seem worth it to gnaw through the leather straps.
+ - The battle of the sexes will never be won as long as we keep sleeping with the enemy.
+ - I was in a bar the other night, hopping from barstool to barstool, trying to get lucky, but there wasn’t any gum under any of them.
+ - I picked up a hitch hiker. You’ve got to when you hit them.
+ - Isn’t this a wonderful country? I was in Florida. I’m staying at a motel called the Three Palms. It’s run by a middle-aged couple, one of whom is missing a hand. OK! That’s what I thought, too! But they got upset when I asked.
+ - I love England. In fact, they’re getting to know me so well at Heathrow Immigration that this time I was able to completely bypass the six months rabies quarantine.
+ - I’m a great lover, I’ll bet.
+ - I read that nine out of 10 women fantasize about having an unknown man leap through their bedroom window at night and make mad, passionate love to them. Who would think with those odds, I would now be facing 150 hours of community service.
+ - I got some new underwear the other day. Well, new to me.
+ - The other night, the president gave a speech. He said, “children are our most prescious natural resource”. I thought, “let’s hope it never comes to that”.
+ - In college I was one of six males who auditioned for five male roles in a comedy play. I was the one rejected. At that moment I made up my mind never to place myself at the mercy of some pompous, goateed, black-turtleneck-shirted “should I yay him or nay him?” pantywaist ever again.
+ - I was walking down the street. something caught my eye, and dragged it fifteen feet.
+ - People come up to me and say, ‘Emo, do people really come up to you?’
+ - New York’s such a wonderful city. Although I was at the library today. The guy was very rude. I said, “I’d like a card.” He says, “You have to prove you’re a citizen of New York.” So I stabbed him.
+ - Interviewers always used to ask me about my pageboy haircut, and it drove me nuts: it almost made me suspect that there was something strange about it. So I cut off my pageboy...
+ - I was feeling a bit down, I went to a therapist a few times, at a hundred bucks a pop. But then I realized that no therapy session would ever cheer me up half as much as if I was just strolling along and found a hundred dollar bill.
+ - I tried body surfing once, but how often do you find a corpse?
+ - I was walking down fifth avenue today and I found a wallet, and I was gonna keep it, rather than return it, but I thought: well, if I lost a hundred and fifty dollars, how would I feel? And I realized I would want to be taught a lesson.
+ - Pentiums melt in your PC, not in your hand.
+ - I don’t know if I have sexual magnetism or animal magnetism, though sometimes I’ll find a squirrel stuck to my forehead.
+ - I caught my wife in bed with my best friend the other day. I was crushed. They could have waited till I’d got out.
+ - Now there’s a seven-day waiting period to buy a gun. Who can stay mad that long?
+ - My parents had very strict rules for me. Rules like, I couldn’t be home until a certain hour.
+ - When I was ten, my family moved to Downer’s Grove, Illinois. When I was twelve, I found them.
+ - I lent a friend of mine $10,000 for plastic surgery and now I don’t know what he looks like.
+ - Charlie Chaplin is the greatest artist of the 20th century. He takes me from laughter to tears in seconds. And he was one of the very first funny men. It’s like the original violins were made in Cremona and there’s never been any better since. Sometimes the best come right off the bat.
+ - I don’t know if I was put on this Earth for a purpose or not. But I’m fairly confident that I’ll be taken off of it for one.
+ - When deciding between two competing theories, always go with the one that doesn’t involve a magic spell.
+ - I’ve always kind of pushed the envelope in terms of trying to get away with things no one else was going near. I always thought of myself like a mouse trying to get cheese that no one else could get without getting their tail snipped off.
+ - All the nations of the earth must learn to live together in peace. Why be prejudiced against anyone because of their race, nationality, or creed? When there’s so many real reasons to hate others.
+ - How many people here have telekenetic powers? Raise my hand.
+ - Once I was in a restaurant and I dropped my fork on the floor, and they gave me a new fork. So I pushed my girlfriend out of her chair.
+ - I try not to talk during the day when I have a show that night. My voice is my instrument, just like a saxophonist’s instrument is his saxophone, plus also his voice, if he’s the one between tunes that makes announcements.
+ - I got a job at an amusement park. I like to make the rides more terrifying by throwing a couple of screws onto the seats.
+ - I got in a fight one time with a really big guy, and he said, ‘I’m going to mop the floor with your face.’ I said, ‘You’ll be sorry.’ He said, ‘Oh, yeah? Why?’ I said, ‘Well, you won’t be able to get into the corners very well.’
+ - Always remember the last words of my grandfather, who said: ‘A truck!’
+ - I’d be in the backyard minding my own business. The other kids would call me names, like meatball head or neo-Calvinist. I’d run after them, but lucky for them the chain would snap my neck back...
+ - I grew up in an era when strange adults would grab me on the street and say: ‘Don’t do that.’ You never see that these days. ‘Hi, we took the liberty of spanking your son.’ Oh thanks, my hand was getting worn.
+ - A friend of mine gave me a Philip Glass record. I listened to it for five hours before I realized it had a scratch on it.
+ - I’m filthy stinking rich – well, two out of three ain’t bad.
+ - They have a sign at the beach, “no glass bottles”. I think that’s so the other sand particles don’t feel like underachievers.
+ - Even the worst comic is at least somewhat entertaining, if only in a pathological way, for five minutes.
+ - They call me Good Time Emo. Because I love a good time! And my name is Emo.
+ - It’s amazing where a joke might come from. I find a lot of humour just by metaphorically turning things upside down or literally like my wife’s cat.
+ - I’ve always suffered from a complete inability to sense who’s important.
+ - When I was a kid, I slept on rubber sheets, but now, I’m a man. And I can take the wetness!
+ - I told my wife she looks sexy with black fingernails. Now she thinks I slammed the car door on her hand on purpose.
+ - I’ve always thought the best way to teach a kid not to be scared of the dark is to fill his daylight hours with as much horror as possible.
+ - I thought I was raptured up into the air today; turns out, it was just my gas oven exploding.
+ - There’s a joke in everything, the trick is finding it. The best compliment a joke can get is what Huxley said about Darwin’s theory of evolution – ‘Why didn’t I think of that?’
+ - The other day a woman came up to me and said, Didn’t I see you on television? I said, I don’t know. You can’t see out the other way.
+ - I always wanted a beautiful loving wife and she always wanted to be a citizen.
+ - I was with this girl the other night and from the way she was responding to my skillful caresses, you would have sworn that she was conscious from the top of her head to the tag on her toes.
+ - Santa Fe is fun to visit, but property there will cost you an arm and a dillo.
+ - If you’re worth over $50m you should have to dress like that guy on the Monopoly box. The super-rich shouldn’t get all the benefits of looking like a regular guy.
+ - People always ask me, ‘Where were you when Kennedy was shot?’ Well, I don’t have an alibi.
+ - I had a very close relationship with another kid when I was growing up. I was his imaginary friend.
+ - Countries are making nuclear weapons like there is no tomorrow.
+ - I asked the head musician if I could go onstage during the next break and he said sure. I got two laughs in twenty minutes, and walked out feeling more elated than I had ever felt in my entire life. The glory of that triumph contented me for two full years.
+ - I’ve been wrestling with reality for most of my life. I’m pleased to say I’ve won.
+ - He taught me never to smile, which helps me when I visit disaster sites.
+ - I’ve been at stand-up for years: after a while, you get as jaded as the proverbial gynecologist who no longer enjoys drugging and violating his patients.
+ - My mom gave me one of those cloth calendars for the kitchen. It took me three hours to sew in a dental appointment.
+ - For some reason, religious jokes seem as trivial as jokes about food or driving.
+ - I think of people as members of an audience. But an audience acts independently of every individual. It’s an organism on its own. I focus on that living hydra in the dark.
+ - Writer’s block is a myth. I never see the gardeners suffering from gardening block.
+ - Because we allow handguns. When you know someone in the crowd might be packing a rod, it can’t help but rush your timing.
+ - You should get married. When I was younger, I was into the fame and fortune, and now I realize that a loving wife and happy children – that’s life’s greatest consolation prize.
+ - Some comedians change their style, often to their advantage; but I see no reason why I can’t continue with the “urbane sophisticate” ’til the day I die.
+ - The nicest present I ever got was an exploding suppository.
+ - My dad and I, we used to play baseball. I was the catcher. Which I liked. Until one day, I saw this game on TV, and I said, Hang on, how come their catcher doesn’t have his hands tied to his ankles?
+ - The only work I ever turned down was a cable programme called Diving for Excrement.
+ - Actually, my cd was released in 1985, in return for two German missionaries and a Dutch urologist.
+ - I go to pick up a girl in a bar. I say will you go home with me? She says I don’t know, do you have cable? I say no, but the rope should work just fine.
+ - I don’t have to tell you folks about scuba diving. So, that’ll save some time.
+ - I don’t really hang out with people. I like to be by myself. In fact, I’ve been arrested a few times because I like to walk around at two or three in the morning, looking at shop windows. The cops take me to the station and fingerprint me. But I wouldn’t call that hanging out.
+ - My parents were very protective. I couldn’t even cross the street without them getting all excited, and placing bets.
+ - I give money to Unicef because I like the ‘bang for your buck’ aspect. Here’s $10, go and save 1,000 kids from blindness!
+ - Every time I see Dan Quayle I feel like buying a vowel.
+ - I once heard two ladies going on and on about the pains of childbirth and how men don’t seem to know what real pain is. I asked if either of them ever got themselves caught in a zipper.
+
+163 quotes

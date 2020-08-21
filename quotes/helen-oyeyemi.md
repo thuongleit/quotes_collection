@@ -1,0 +1,29 @@
+ - The first coffee of the morning is never, ever, ready quickly enough. You die before it’s ready and then your ghost pours the resurrection potion out of the moka pot.
+ - I love taking things out of context and playing with them and chopping up rules.
+ - I know of witches who whistle at different pitches, calling things that don’t have names.
+ - I feel like an old lady; my hero is Miss Marple.
+ - If you should find yourself in a place that is indifferent to you and there is someone there that your spirit stretches to, then that person is kin.
+ - However awful the storm of my disappointment, it’s a response that belongs to me. It’s my heart, after all. My territory, my kingdom. And since I’m the only one with the authority to surrender it, I can also take it back.
+ - Wanderer, there is no road, the road is made by walking. The poem tells me it’s no big deal that I’m not like Snow. I can be another thing; I’m meant to be another thing.
+ - Her heart was heavy because it was open, and so things filled it, and so things rushed out of it, but still the heart kept beating, tough and frighteningly powerful and meaning to shrug off the rest of her and continue on its own.
+ - You don’t return people’s smiles – it’s perfectly clear to you that people can smile and smile and still be villains.
+ - Because things grow. Wherever there is air and light and open space, things grow.
+ - And she walked away, and she walked away, and that was that, and that was that.
+ - In Narnia a girl might ring a bell in a deserted temple and feel the chime in her eyes, pure as the freeze that forces tears. Then when the sound dies out, the White Witch wakes. It was like, I want to touch you, and I can touch you, now what next, a dagger?
+ - This was a little house, with a ceiling that kept getting higher and higher, a hot place with no windows. This was anger.
+ - Would that be dangerous, to not look while being looked at?
+ - It occurred to me that I was unhappy. And it didn’t feel so very terrible. No urgency, nothing. I could slip out of my life on a slow wave like this – it didn’t matter. I don’t have to be happy. All I have to do is hold on to something and wait.
+ - It’s true that writing can give new forms to concepts that existed previously with far less clarity, but in terms of the other half of a story’s story – the way a story is received and interpreted and used – the audience plays a part in that too.
+ - I wish there was someone I could have written to after that, someone I could have written to explain how awful it was to have someone touch you, then look at you properly and change his mind.
+ - Home is where your teapots are.
+ - I collected pictures and I drew pictures and I looked at the pictures by myself. And because no one else ever saw them, the pictures were perfect and true. They were alive.
+ - I do tend to feel more connected to dead writers, perhaps because they have finished their work.
+ - I think, basically, what I’m good for is reading – a lot.
+ - Because he says he can’t stand you and you act like you can’t stand him, and whenever a man and a woman behave like that toward each other, it usually means something’s going on.
+ - I always wanted to be a writer! But I wanted to do other things, too – be a psychologist, a librarian, et cetera. Now Ive decided that reading fiction that features characters who are in those professions will do.
+ - Fairy tales, because they have a very clear structure, are easier to interfere with. Also they have this really weird logic: the kind of logic that you only really experience when youre not feeling very well, or as a child.
+ - Imagine having a mother who worries that you read too much. The question is, what is it that’s supposed to happen to people who read too much? How can you tell when someone’s crossed the line.
+ - So many times I’ve encountered people who are just kind of like, ‘Yeah, Nigeria,’ and, you know, thump their chest and seem very sure of, like, being Nigerian. And I’m just kind of, like, I wish I could be that sure.
+ - There were days when he touched the tip of her nose and it was enough, a miracle of plenty.
+
+27 quotes

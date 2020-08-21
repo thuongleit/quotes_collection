@@ -1,0 +1,33 @@
+ - Only when you are relaxed can you see what’s going on.
+ - A message I’ve been telling myself: the cinema is very conservative, and unless you have a story that satisfies you, that is within the unchallenging zone, but you love it, you can’t do it as cinema. Otherwise, you better go do it for television, which is more daring now.
+ - There are some things that are real, that you can see, that you can observe, like the moon, and grass and things. But for ideas to become real, they have to be played on your senses.
+ - With ‘Bright Star’ and with ‘The Piano,’ too, I felt a kind of sadness about it being in such a different era, because of my lack of experience with the era. And one of the ways I’d get over it is to remind myself that every film, even if it’s contemporary, creates its own world.
+ - I think women don’t grow up with the harsh world of criticism that men grow up with, we are more sensitively treated, and when you first experience the world of film-making you have to develop a very tough skin.
+ - What I have learned from my work up to now, is to try to be open, but also protect myself by not letting the good and the evil get too much importance.
+ - But short films are not inferior, just different. I think the short gives a freedom to film-makers. What’s appealing is that you don’t have as much responsibility for storytelling and plot. They can be more like a portrait, or a poem.
+ - I think that three-act fundamentalism in film culture is a problem sometimes, because it’s almost too obvious, or it’s too expected. And it’s not the only way to fill two hours, or to phrase things, or to order thoughts, or order ideas.
+ - It’s been such a deep and amazing journey for me, getting close to John Keats, and also I love Shelley and Byron. I mean, the thing about the Romantic poets is that they’ve got the epitaph of romantic posthumously. They all died really young, and Keats, the youngest of them all.
+ - My musical knowledge is so bad it’s embarrassing. When composers discuss music with someone as primitive as myself, they have to talk about it in terms of senses and emotion, rather than keys and tempo.
+ - Eight years ago, I was drawn into Keats’s world by Andrew Motion’s biography. Soon I was reading back and forth between Keats’s letters and his poems. The letters were fresh, intimate and irreverent, as though he were present and speaking. The Keats spell went very deep for me.
+ - I’m a much better filmmaker than painter. But studying it did make me visually acute and taught me lessons like being economic: Say something once and you don’t have to say it again.
+ - I’ve had a lot of different responses to my films. I got a lot of support from ‘The Piano,’ the obvious one, but it feels like an ocean, with a lot going on – the goal is to keep alive.
+ - I had this spooky psychological thing about ‘The Piano’ before it began, which was how everybody was going to go nuts on the set. Because a film tends to set up the way people are going to behave.
+ - For me, being a director is about watching, not about telling people what to do. Or maybe it’s like being a mirror; if they didn’t have me to look at, they wouldn’t be able to put the make-up on.
+ - I think this is interesting, us human creatures are capable of love, and it’s a very powerful emotion. It also can go awfully wrong.
+ - It’s harder being a woman director because on the whole women don’t have husbands or boyfriends who are willing to be wives.
+ - Women today are dealing with both their independence and also the fact that their lives are built around finding and satisfying the romantic models we grew up with.
+ - One of the things we learn in movies directed by men is what the ‘fantasy woman’ is. What we learn in movies directed by women is what real women are about. I don’t think that men see things wrong and women right, just that we do see things differently.
+ - I didn’t like England. I couldn’t take the look of the place or the style of friendship. I need more intimacy from people than is considered okay there, and I felt that my personality and my enthusiasms weren’t understood. I had to put a big lid on myself.
+ - In some ways Holy Smoke is about people’s journey to the heart.
+ - I think feature film can be quite conservative, because you have to now get audiences to come out, and it’s quite a hard thing to do. Of course, television can be conservative too.
+ - I don’t belong to any clubs, and I dislike club mentality of any kind, even feminism – although I do relate to the purpose and point of feminism. More in the work of older feminists, really, like Germaine Greer.
+ - I love it when actors come to you with a problem and you have to listen. You’d like them to just get on with it, but it often means that there’s a problem with the script.
+ - I think if it’s interesting, it’s interesting, and if it’s not, it’s not working.
+ - If you start with a good idea, you can encapsulate it in a phrase and explain it. I like high-concept films. Everyone can get hold of it. I don’t think there’s any harm in that at all.
+ - Between 18 and 26 I acted professionally, on the stage and a little bit on television. Acting is okay, but it’s quite pressurized. Then I went to England – I wanted to reinvent myself.
+ - The studio system is kind of an old boys system and it’s difficult for them to trust women to be capable.
+ - I seem to have been able to make a career out of doing what I feel like doing, so why not keep doing it? What’s corrupting is wanting to be more important. You want to be more arty – you get your identity from that. Or you get your identity out of making more money.
+ - And, I mean, I think poetry does need to be met to some extent, especially, I guess, 19th century poetry, and for me, it’s just been so worth the effort. It’s like I’m planting a garden in my head.
+ - There is a different kind of vulnerability when a woman is directing.
+
+31 quotes

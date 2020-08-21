@@ -1,0 +1,62 @@
+ - Aspirin will not bring dead hookers back to life.
+ - Everyone was laughin’. Even that deaf mute boy was breathing heavy and pointing at me. Which is laughter to their kind.
+ - When I first saw a strap on, I put it on my head and ran around like a rhino.
+ - So, I travel a lot. I hate traveling, mostly ’cause my dad used to beat me with a globe.
+ - Remember when you’re young and you think your dad is Superman? And then you grow up and realized he’s just a drunk who wears a cape.
+ - Let’s say you’re in a situation where crystal meth can help you. Like, I don’t know, you have too many teeth.
+ - Everything you do, burns calories. Getting up in the morning, 100 calories; kicking the hooker out of your bed, another 100; diapering your monkey, 35 calories; laughing at a midget, fun and 10 calories; catching your girlfriend with another guy, 2000-3000 calories, depending on backswings.
+ - Here’s a tip: never get drunk while wearing a hooded sweatshirt. You will eventually think there’s someone right behind you.
+ - I get recognized, but I’m not really a famous famous.
+ - Never drink alone, that’s what they say. But you know what? If you drink you will never be alone, alright?
+ - Is she crazy, like it says on her bracelet, or is she just looking at my sheets? I dunno!
+ - I’ve never had a surprise birthday party. I’ve had every other type of surprise. I’ve had surprise beatings, surprise drug tests, surprise daughter I think.
+ - Are you shooting webs of stupid at me?
+ - A joke is a joke, and people put too much meaning behind it. They react to it in the wrong way. I mean, you can boo or laugh, and that’s pretty much what you’re supposed to do with jokes. You’re not supposed to take it any further than that.
+ - You ever make fun of someone so much, you think you should thank them for all the good times you’ve had?
+ - Friends are important, dontcha think? Hmmm? I think so. The way I see it, you got friends, and you got your best friend, big difference. To me, a friend’s a guy who will help you move. A best friend’s a guy who will help you move a body. That’s how I look at it.
+ - Have you seen that magazine Barely Legal? That means when you look at it, you’re almost a pedophile.
+ - If you go to Germany and get drunk, at some point you will try to look up Hitler in the phone book.
+ - I have an imagination because my life is so boring that my imagination lets me get off the reality of what’s going on.
+ - Women have all the power because women have all the vaginas.
+ - I wanna get a little drunk, but I also want some pancakes.
+ - You know what my drink is? Jack Daniel’s. Yes, that is a wild man drink. That should come with bail money, you know what I’m saying? Because on Jack, you don’t know where you’re going to end up, but you know when you get there, you won’t be wearing any pants.
+ - She was drunk so I took her back to my place and we did it doggy style, not because we planned it that way, but that’s just how she passed out.
+ - The more Discovery Channel you watch, the less chance you have of ever meeting a woman. Because it fills your head with odd facts that can come out at any moment. “Hello. Did you know Hitler was ticklish? That sea otters have four nipples? Wait – don’t run away!”
+ - Every dude in here has had a fantasy about Jessica Simpson. Here’s mine: Jessica, hold your sister Ashlee so I can kick her in the throat.
+ - I don’t have a girlfriend but sometimes I like to pretend I do. I just stand in my apartment screaming No, that’s not what I said!
+ - I gotta quit smoking, doctor’s orders, and the drinking, court orders.
+ - I have a lot of pot tendencies. I’m always late, I laugh for no reason, I watch Jeopardy! with the sound off and make up my own questions.
+ - For a long time the people at my shows were sort of the Pantera-tattoo trucker guys, really cool dudes, but I don’t know what happened to them. That’s the crowd that I like, the ones that don’t get so offended just to be offended.
+ - I watch the Discovery Channel, and you know what I’ve discovered? I need a girlfriend.
+ - My gym has two-pound weights. If you’re using two-pound weights, how did you even open the door to the gym? What’s your dream? To pump up and open your mail?
+ - I love Fear Factor, but I think they’re running out of fears. It’s only a matter of time before they’re sitting around doing shots of Hepatitis C.
+ - I’m not the comic of the generation, I’m not even the funniest guy in my family.
+ - I’m a stand-up comic. Anything else I do besides that is a plus, but stand-up comedy is what I do, it’s what I’ve been doing and it’s what I’m going to keep doing.
+ - I’m a joke comic. I tell jokes. I like writing a joke, and I like when a joke works, and I like other comics who tell jokes.
+ - For me, Molly Hatchet is high school. It makes me feel like I have hair and a future.
+ - Sometimes it’s hard to tell if a joke is working or not for the first couple of minutes.
+ - Pre-mature ejaculation. Let’s talk about it. Pre-mature ejaculation. That’s a pretty fancy term for, Ooooooh Oh no. This has never happened before.
+ - Don’t get me wrong, I like to cuddle. But there is such a fine line between cuddling and holding someone down so that they can’t get away.
+ - I don’t mind a crowd’s not laughing; it’s the groans that slow down the show.
+ - Once you get offstage you’re just like everyone else, and everyone else can get into a fight.
+ - My cousin had a baby and I was watching her breastfeed for a couple of bucks, and I’ll tell you ladies: it’s amazing.
+ - Sometimes. I get recognized, but I’m not really a famous famous. I’m pretty low on the showbiz totem pole – I mean, I’m no Jon or Kate plus eight. I’m just a comic, not a baby factory.
+ - I used to do drugs, but that was way back there.
+ - You can say, ‘Can I use your bathroom?’ and nobody cares. But if you ask, ‘Can I use the plop-plop machine?’ it always breaks the conversation.
+ - I like doing stand-up and I love putting out TV specials.
+ - I’m a joke comic. I tell jokes.
+ - A lot of these kids I think are more content just to be on Facebook and the computer than they are to actually go out. They just really want to get a picture to post to their buddies, and that’s about it.
+ - I don’t think I’m a star or a celebrity or any thing like that.
+ - You gotta make your own fun. That’s right, listen to that mother of two, she knows what I’m talking about.
+ - I have no grand scheme.
+ - Why do they collect garbarge at 5am? Why? It’s garbage. It’s not going to go bad again.
+ - I keep getting these people at my shows who only know me from television. I can always tell when they’re, like, emotionally flinching when I start doing my jokes.
+ - I’m not really a music guy.
+ - I have soundtracks for a lot of stuff.
+ - Jesse Joyce is a great writer.
+ - I like doing stand-up and I love putting out TV specials. I’m not an actor though, so I don’t really have much choice in the matter.
+ - Being on the road is kind of lonely.
+ - I never wanted to be famous.
+ - I’m not like a performer type.
+
+60 quotes

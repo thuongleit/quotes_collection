@@ -1,0 +1,91 @@
+ - Some memories are unforgettable, remaining ever vivid and heart-warming!
+ - Success results when preparation meets opportunity.
+ - The simple secret is this: put your trust in the Lord, do your best, then leave the rest to Him.
+ - Kindness is the essence of greatness.
+ - As with the butterfly, adversity is necessary to build character in people. As you overcome adversity in your life, you will become stronger.
+ - Kindness is the essence of greatness and the fundamental characteristic of the noblest men and women I have known. Kindness is a passport that opens doors and fashions friends. It softens hearts and molds relationships that can last lifetimes.
+ - Sometimes the greatest love is not found in the dramatic scenes that poets and writers immortalize. Often, the greatest manifestations of love are the simple acts of kindness and caring we extend to those we meet along the path of life.
+ - You can find peace amidst the storms that threaten you.
+ - Honesty is of God and dishonesty of the devil; the devil was a liar from the beginning.
+ - Each minute is a little thing, and yet, with respect to our personal productivity, to manage the minute is the secret of success.
+ - There is within each of us a divine spark of greatness. Who knows of what we are capable if we only try?
+ - Gratitude is a mark of a noble soul and a refined character. We like to be around those who are grateful. They tend to brighten all around them. They make others feel better about themselves. They tend to be more humble, more joyful, more likable.
+ - We will never make a journey of a thousand miles by fretting about how long it will take or how hard it will be. We make the journey by taking each day step by step and then repeating it again and again until we reach our destination.
+ - Integrity means always doing what is right and good, regardless of the immediate consequences.
+ - We see ourselves as yesterday and today. Heavenly Father sees us as forever.
+ - The next time you’re tempted to groan, you might try to laugh instead. It will extend your life and make the lives of all those around you more enjoyable.
+ - True love lasts forever.
+ - Learning to endure times of disappointment, suffering, and sorrow is part of our on-the-job training. These experiences, while often difficult to bear at the time, are precisely the kinds of experiences that stretch our understanding, build our character, and increase our compassion for others.
+ - Our friends should be companions who inspire us, who help us rise to our best.
+ - Daily prayers can help us keep on the path that leads to eternal life. We are very unlikely to stray if we offer a humble, simple prayer at least each morning and evening to express thanks and to seek divine guidance.
+ - Without adversity, the butterfly would never have the strength to achieve its destiny. It would never develop the strength to become something extraordinary.
+ - I know that each of us has much to do. Sometimes we feel overwhelmed by the tasks we face. But if we keep our priorities in order, we can accomplish all that we should. We can endure to the end regardless of temptations, problems, and challenges.
+ - Because Jesus Christ suffered greatly, He understands our suffering. He understands our grief. We experience hard things so that we too may have increased compassion and understanding for others.
+ - Our integrity determines what we really are.
+ - As we come unto Christ and journey to higher ground, we will desire to spend more time in His temples, because the temples represent higher ground, sacred ground.
+ - True disciples of Jesus Christ have always been concerned for the one. Jesus Christ is our greatest example. He was surrounded by multitudes and spoke to thousands, yet He always had concern for the one.
+ - In life, you should seek the help you need. Do not depend on your own strength alone. You have never done all you can to finish a task until you have sought help from the Lord.
+ - There is no defeat except for those who give up.
+ - Great leaders communicate a vision that captures the imagination and fires the hearts and minds of those around them.
+ - Nothing Exposes our true self more than how we treat each other in the home.
+ - Gratitude is a mark of a noble soul and a refined character.
+ - If you feel that Heavenly Father is not listening to your petitions, ask yourself if you are listening to the cries of the poor, the sick, the hungry, and the afflicted all around you.
+ - Our Father in Heaven does not wish us to cower. He does not want us to wallow in our misery. He expects us to square our shoulders, roll up our sleeves, and overcome our challenges.
+ - There is no real joy that does not involve self-denial and self-discipline.
+ - In spite of discouragement and adversity, those who are happiest seem to have a way of learning from difficult times, becoming stronger, wiser and happier as a result.
+ - The most treasured and sacred moments of our lives are those filled with the spirit of love. The greater the measure of our love, the greater is our joy. In the end, the development of such love is the true measure of success in life.
+ - The Lord is well aware of our mortality. He knows our weaknesses. He understands the challenges of our everyday lives. He has great empathy for the temptations of earthly appetites and passions.
+ - Occasionally, family members treat each other with less courtesy and kindness than they do acquaintances or even strangers.
+ - Sometimes we should express our gratitude for the small and simple things like the scent of the rain, the taste of your favorite food, or the sound of a loved one’s voice.
+ - Desire, burning desire, is basic to achieving anything beyond the ordinary.
+ - Kind words not only lift our spirits in the moment they are given, but they can linger with us over the years.
+ - There is no limit to the potential of brethren working together in complete brotherhood and selflessness toward spiritual goals. The power of God working through such channels will bring unimaginable blessings to all concerned.
+ - I give thanks to my Creator for this wonderful life where each of us has the opportunity to learn lessons we could not fully comprehend by any other means.
+ - Many of the most important and life-changing moments of my life occurred when I was a young man. The lessons I learned then formed my character and shaped my destiny.
+ - Love is the greatest of all the commandments-all others hang upon it. It is our focus as followers of the living Christ. It is the one trait that, if developed, will most improve our lives.
+ - As you overcome adversity in your life, you will become stronger. Then you will be better able to help others -those who are working, in their turn, to find a safe harbor from the storms that rage about them.
+ - Please do not lose hope in the Savior and His love for you. It is constant. He promised that He would not leave us comfortless.
+ - There is a form of communication that transcends the power of words.
+ - If we approach adversities wisely, our hardest times can be times of greatest growth, which in turn can lead toward times of greatest happiness.
+ - Living the gospel does not mean the storms of life will pass us by, but we will be better prepared to face them with serenity and peace. ‘Search diligently, pray always, and be believing,’ the Lord admonished, ‘and all things shall work together for your good, if ye walk uprightly.’
+ - The faithful will know that every tear today will eventually be returned a hundredfold with tears of rejoicing and gratitude.
+ - Personal integrity implies such trustworthiness and incorruptibility that we are incapable of being false to a trust or covenant.
+ - Anything that does not draw us closer to God takes us away from him.
+ - All too often a family’s spending is governed more by their yearning than by their earning. They somehow believe that their life will be better if they surround themselves with an abundance of things. All too often all they are left with is avoidable anxiety and distress.
+ - I know why there must be opposition in all things. Adversity, if handled correctly, can be a blessing in our lives. We can learn to love it.
+ - You may feel singled out when adversity enters your life. You shake your head and wonder, ‘Why me?’
+ - Lying, stealing, and cheating are commonplace.
+ - As we look for humor, seek for the eternal perspective, understnd the principle of compensation, and draw near to our Heavenly Father, we can endure heardship and trial.
+ - Faith is not so much something we believe; faith is something we live.
+ - Perseverance is a positive, active characteristic.
+ - The way we react to adversity can be a major factor in how happy and successful we can be in life.
+ - Lambs have little chance to follow the right path if the shepherds go astray.
+ - The Lord will never forsake or abandon anyone, You may abandon him, but he will not abandon you. You never need to feel that you are alone.
+ - Nephi taught that by clinging to the word of God, as though it be a handrail, we would be able to avoid temptations and not lose our way in darkness. Thus, we would remain on the narrow path.
+ - Each person in the world is different and has their own beautiful sound in the symphony of life.
+ - Every home is a house of learning either for good or otherwise.
+ - Great sculptors and artists spend countless hours perfecting their talents. They don’t pick up a chisel or a brush and palette, expecting immediate perfection. They understand that they will make many errors as they learn, but they start with the basics, the key fundamentals first.
+ - Perfection is worth striving for, even if it is ultimately unattainable in this life.
+ - Most of us don’t mind doing what we ought to do when it doesn’t interfere with what we want to do, but it takes discipline and maturity to do what we ought to do whether we want to or not.
+ - Dates that come around every year help us measure progress in our lives. One annual event, New Year’s Day, is a time of reflection and resolution.
+ - Let us strive for personal, practical integrity in every endeavor, regardless of how mundane or inconsequential it may seem.
+ - Too many sit at the banquet table of the gospel of Jesus Christ and merely nibble at the feast placed before them. They go through the motions – attending their meetings perhaps, glancing at scriptures, repeating familiar prayers – but their hearts are far away.
+ - The more we focus on the things we don’t have, the more unhappy and more resentful we become.
+ - The place to cure most of the ills of society is in the homes of the people.
+ - A testimony of the truth of the gospel does not come the same way to all people. Some receive it in a unique, life-changing experience. Others gain a testimony slowly, almost imperceptibly until, one day, they simply know.
+ - Charity must become a fundamental state of mind and heart that guides us in all we do.
+ - The truths of the gospel do not change. If you will follow the Christ, follow his prophet, and follow his Spirit, you will always choose the right. As a result of your wise choices, your testimony will grow stronger, and great blessings of joy, happiness, and peace will be yours.
+ - We are ever on the threshold of new journeys and new discoveries. Can you imagine the excitement of the Wright brothers on the morning of that first flight? The anticipation of Jonas Salk as he analyzed the data that demonstrated a way to prevent polio?
+ - The impressions on the soul that comes from the Holy Ghost are far more significant than a vision. It is where the spirit speaks to spirit and the imprint upon the soul is far more difficult to erase.
+ - I have had the opportunity to become acquainted with many wonderful people from many walks of life. I have known rich and poor, famous and modest, wise and otherwise.
+ - Perseverance is a positive, active characteristic. It is not idly, passively waiting and hoping for some good thing to happen.
+ - Sometimes those who start out the slowest end up going the farthest.
+ - Love is the beginning, the middle, and the end of the pathway of discipleship. It comforts, counsels, cures, and consoles. It leads us through valleys of darkness and through the veil of death. In the end love leads us to the glory and grandeur of eternal life.
+ - Brothers and sisters, if only we had more compassion for those who are different from us, it would lighten many of the problems and sorrows in the world today. It would certainly make our families and the Church a more hallowed and heavenly place.
+ - Being true to one’s duty is a mark of true disciples of the Lord and the children of God. Be valiant in your duty. Stay in step. Do not fail in your most important task, that of keeping your second estate. Be true to your duty, for it will bring you to God.
+ - If television viewing choices serve as a valid measure of our society, they who choose evil surely are more numerous than they who choose good.
+ - We should strive to develop within ourselves the traits of character of the Savior.
+ - Those who make happiness the chief objective of life are bound to fail, for happiness is a by-product rather than an end in itself.
+ - As we give of our time, talents and resources to tend the needs of the sick, offer food to the hungry and teach the dependent to stand on their own, we enrich ourselves spiritually beyond our ability to comprehend.
+
+89 quotes

@@ -1,0 +1,28 @@
+ - Such is life and life is such and after all it isn’t much. First a cradle. Then a hearse. It might have been better, but it could have been worse.
+ - As you get older three things happen. The first is your memory goes, and I can’t remember the other two.
+ - You know I’ve got a chum, a smashing mate, he’s got a dog with no legs, and he calls it a cigarette. It’s true, yeah, because at nighttime he has to take it out for a drag.
+ - I was born in very sorry circumstances. Both of my parents were very sorry.
+ - I play drums, clarinet, saxophone, trumpet, french horn, piano.
+ - It was smashing working with Jerry Desmonde, he was a very nice chap.
+ - I was born in London, and went to school in Scotland – I used to be dead tired when I got home at night.
+ - All my boyhood, all I ever wanted was to be loved.
+ - My comedy is for children from three to 93. You do need a slightly childish sense of humour and if you haven’t got that, it’s very sad.
+ - I used to first go on to entertain an audience. But now I go, and this is really true – I go on to have fun with a crowd of my chums.
+ - I like consistency. If you’ve had a childhood like mine, you want some things you can rely on to stay the same.
+ - My only phobia is untidiness. My hair has to be neatly kept; my shoes are always clean. Everything has to be in a straight line, in its place.
+ - I do play drums when I’m on tour.
+ - It was absolutely thrilling to meet Laurel and Hardy, they were so nice.
+ - There are people who like just ordinary comedy fun, and making mistakes – which I do easily – and then there are people who like the falling over.
+ - In fact, one was so booked out we went from March and were to go till November, but the pantomime was booked so they transferred the show to the Prince of Wales Theatre because it was so packed out, and it ran on from there.
+ - I owe everything to the army.
+ - I can never tell a joke, I’ve always found it easier to just fall over.
+ - I’ve been extremely lucky having been in the army when I was a boy of fourteen.
+ - I don’t know nothing about communism. But I know the Albanians loved me. Same reason as anyone else loves me. Because I made them laugh.
+ - But no, I’ve just been very lucky. But I’ve worked hard, and the harder you work, the luckier you seem to get.
+ - I was in the band as a boy and was taught music and learned to compose.
+ - At my age, the radiation will probably do me good.
+ - I’ve always had a sense of humour, and I still do, so I just want to go on performing as long as I can. It’s as simple as that.
+ - I’ve got one idea I want to do for a film and you know I just enjoy myself doing bits and pieces.
+ - I’ve an idea for doing a Situation Comedy myself but its always difficult to get people to listen to you because they like to put their own ideas forward.
+
+26 quotes

@@ -1,0 +1,54 @@
+ - I like my solitude, and I’m a strong-willed person; I’m a very hard-to-be-around person sometimes, I guess.
+ - When I go on a nostalgia trip it’s not aesthetic. For me it’s about trying to recapture the smell or the feeling of something that I’ve experienced in the past personally.
+ - You don’t need to drink if you have emotional problems.
+ - I always write the first and last song of an album first, and then the middle just kind of happens.
+ - I’ve been going through some personal things that have stirred up a lot of old wounds.
+ - People roll their eyes and say, “Oh god, he’s not rich or famous.” I say it’s relative. I mean, look at me: I’m 115 pounds and I grew up without money. To me, I’m rich because I don’t have to worry about paying rent. I don’t think about money now.
+ - People say ‘I don’t want to die alone!’ But you know what, honestly? I don’t want to die with a bunch of people looking at me.
+ - I’m tired of watching attractive people trying to be ugly, struggling for authenticity. Why not be yourself?
+ - I refuse to put myself into a situation in which I have to face some kind of “I’m losing it” kind of thing. I’m not “losing it”; it’s changed. What it is is changing.
+ - The sober guy is always going to have this air of arrogance or self-righteousness, but it’s not my intention. I just knew that if I drank, I’d have a drinking problem.
+ - I think people are intimidated by me, and I don’t know why. Sometimes even my own bandmates can be intimidated, or irritated, by me.
+ - That’s what culture is based on, the passing down of a certain narrative by imitation.
+ - I’m more into Neil Young and radical honesty.
+ - The same people that always think I’m pretentious will think I’m pretentious, and the people who relate to me will continue to relate to me.
+ - In reality, I’ve probably got the lowest self-esteem of anybody I know, which has really been rubbed in my face lately in personal situations.
+ - Everything I do is 100% automation, which means I’m just doing it live.
+ - I see a lot of people doing an “‘80s thing” who weren’t even born until the ’90s.
+ - I don’t like the sound of my own voice. And, for people I don’t know, their impression of me is what they read on the internet, and they’re so far off a lot of the time.
+ - I don’t think you should make music to make music, just to show that you can. That’s the opposite of vitality.
+ - When young groups put out albums, they’re always forced to go through this cycle of touring and talking and flaunting and posturing and peacocking. Nobody makes me do that anymore.
+ - Unfortunately it’s hard for me to be a fanboy for anything these days just because I see so much music.
+ - I need punk rock. It’s the medicine for me, but it’s bitter and sickening. If you don’t need it – if you’re happy and healthy – run toward that.
+ - When I got hit by the car, I became depressed. As a result, I’ve been on antidepressants and I feel like I have no sexuality left. People complain about that side effect, but I love it. I feel outside of society.
+ - I have really low self-esteem, and it’s not easy for me to put myself on an album cover.
+ - For me, experimenting involves traditionalism.
+ - I’ve got this thing where I always kind of diss the older stuff and favor the newer stuff. I mean, it’s not just my thing; every artist or musician is like that, I guess.
+ - It was like I was asking for attention, but I didn’t really want attention.
+ - I’m working on one of the projects at a time and I’m the zone of that project. I’m not saying there’s anything wrong with this, and I might experiment with it in the future, but I’m not a fan of just random assemblages of songs at the moment.
+ - The Internet nowadays is all sensationalism, and it’s just terrifying when you’re actually experiencing it as a person.
+ - If you’re not Jay-Z, a record leaking isn’t going to affect you.
+ - Sometimes, I do have something to say, so I’ll sit there and I’ll write a song to someone – and then I just throw it away because it makes me cringe.
+ - When money and fame happen too late, it’s like pouring kerosene over a fire of self-loathing.
+ - I’ve always been interested in writing from other people’s perspectives and other gender perspectives.
+ - I’ve been used for writing rhythm guitar chords for a long time because it’s so easy to play and chords just sound good on it.
+ - When I started having a couple of beers and loosening up, I realized how many years I had wasted going back to my hotel room alone when I could have gone and just had a beer or two.
+ - I don’t have the capacity to write stuff consciously. When I do, it’s really awful.
+ - Unlike the rest of everyone I hang around with, I don’t drink, so I remember what happened after shows. And I have never hit on anyone after a show, I’m not that kind of person. Even if I was attracted to someone, I’d be too shy.
+ - We all come back to our little worlds.
+ - I don’t have anything to prove.
+ - My entire education in music was in reading interviews with bands like Stereolab and finding out about Brazilian music or a Romanian composer. You expose yourself to what people you look up to admire.
+ - I know so many people think my music is quite influenced by Animal Collective, but honestly I think maybe the factor is that we’re both influenced by the same stuff.
+ - I’m a really friendly guy, I guess, and I really like meeting people.
+ - Audiences tend to dig the earlier stuff by any given musician, and the artists themselves always tend to prefer the thing that they’re doing now.
+ - I used to be a lot more engaged on an improvisational level than other people. I was always on tour and always had a guitar in my hands, and when I went back home, my battery was at full charge. I had a lot of energy to get off, just impulses that I could draw upon.
+ - Everybody just needs to realize that when you write something you’re just in one mood. I was told I needed to write it and it was overdue; I don’t even remember what day it was.
+ - Talk to Arto Lindsay and I’m sure he’s tired of people asking him about DNA; he’s probably really into what he’s doing now, which is good stuff. I guess I probably feel like that. But I’m obviously not comparing myself to someone as iconic as that.
+ - I don’t leave my room, and all I am surrounded by are guitars and equipment, y’know? It’s not always the best place to be.
+ - I’ve always said I write albums; I don’t write random songs and then sort them out.
+ - A lot of bands wanna do something new all the time and never repeat themselves, but I’m not so interested in that. If I feel like I can do it better the second time, I’ll give it another shot.
+ - It’s made me cynical at a young age to see how overlooked certain groups I’ve admired are.
+ - You’re always as a musician trying to shock yourself or create music that’s maybe even too weird for your own taste.
+ - I want to satisfy the listener, exactly. I want to entertain the audience. I want the people to leave the show with the feeling I used to leave shows with when I was young, and I couldn’t get over it for another three or four days after it. I just kept reliving the set in my mind.
+
+52 quotes

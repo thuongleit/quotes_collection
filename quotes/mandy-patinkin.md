@@ -1,0 +1,70 @@
+ - If you stand too close to a painting – all you see are patches of color, if you stand too far back, you can’t see any of the detail.
+ - I love my work, I love the people I work with, I do the best I can.
+ - Sondheim is the Shakespeare of the musical theater world.
+ - I would go to war with words, not weapons. I would die talking before I lifted a weapon.
+ - The great love of my life is music.
+ - Everything I am came from my parents. I don’t take that much credit for who I am and what I am.
+ - My life exists in an imagined reality.
+ - Who is the bad guy? Is America possibly the bad guy?
+ - The best work I can do is to take myself as much as I can out of it and get it as simple as I can.
+ - Actually, the language in Shakespeare is wonderfully musical. You need to hear the music to connect with the words.
+ - I’m blessed. I have a 13-year-old girl’s eye and a 14 year-old boy’s eye. I’ve been given the gift of sight by people who decided to donate organs. I try to do as much organ-donor work as I can.
+ - My dream has come true, now that I have passed it on.
+ - In my prayers every day, which are a combination of Hebrew prayers and Shakespeare and Sondheim lyrics and things people have said to me that I’ve written down and shoved in my pocket, I also say the name of every person I’ve ever known who’s passed on.
+ - Comparison leads to violence.
+ - I don’t want people to sit and process the song. I want them to just let them bathe over them.
+ - I got married because I wanted to do something that was more than I understood, because my feelings were more than I understood.
+ - It is a game, the whole ball of wax is a game – your life, my life, politics, economy, hunger...
+ - People who go into the arts are often hurt people. Many are manic-depressive. Some have tried suicide and some have succeeded. It’s just part of the game. We are people who are oversensitive. That’s why we’re in this business, because of our need to communicate.
+ - Well, I’m not a critic, I’m just a worker. So, I’m always grateful for anything the critics say – good or bad.
+ - I’m just an actor. I am nothing special.
+ - My wife will tell you that if you feel my hands before I walk on for a performance, you could chill a bottle of wine.
+ - There’s not a lot of money in revenge.
+ - My sense of religion is Einstein’s sense of relativity. I don’t believe in God. I believe that energy never dies. So the possibility exists that you might be breathing in some other form of Moses or Buddha or Muhammad or Bobby Kennedy or Roosevelt or Martin Luther King or Jesus.
+ - I’m an obsessive person. I like intensity.
+ - Our actions are the ground we walk on.
+ - I try to get that across in the work, to try to, if I’m lucky, to make this world a little bit better for all of us before I check out. And that’s if I’m lucky, I don’t always get to have that privilege but I try always.
+ - Some teachers should be put in prison for the way they either take advantage of women in their classes or destroy fragile egos. Be careful who you ask to help you when you’re in the arts.
+ - I desperately want to see the day today and do the best I can not miss a shred of sunlight. It’ll be over before I know it.
+ - If you’re sick, watch funny movies.
+ - My inner motivation is to make the world a better place; the bad guy and the good guy think the same thing.
+ - When I was your age, I used to treat the crust like it was just there to hold the good stuff in. I used to leave the whole back end of it on the plate. As I got older, I learned to appreciate the crust.
+ - I think we all lose in the end because we don’t get to stay here forever.
+ - So I’m truly an actor who sings, and not a singer who acts.
+ - I’m lyrically driven, I’m not musically driven.
+ - There’s something about singing that I just love. It makes me feel freer than anything in the world.
+ - If we can’t keep our Palestinian neighbors and Muslim neighbors alive with good water and fresh air, we’ll never get them to the peace table.
+ - One of the greatest gifts that ‘Homeland’ has given me is it’s affirming on a daily basis.
+ - This is unbearable how I talk.
+ - During ‘Chicago Hope,’ I never let directors talk to me, because I was so spoiled. I started off with people like Milos Forman, Sidney Lumet, James Lapine, unbelievably gifted people. So there I was, saying, ‘Don’t talk to me, I don’t want your opinion.’ I behaved abominably.
+ - My mom was a great cook and great baker all her life.
+ - I’m a spiritual person, I’m an America, I’m a Jew, and all of those things influence every breath I take, everywhere I go.
+ - I believe there’s a common ground in what all gifted writers write. It has to do with their wish to turn darkness into light.
+ - I wanted to go to a liberal arts college, I wanted to have that experience.
+ - Everything I experience influences everything I do.
+ - I’m Jewish and I can sing and I’m alive.
+ - No one is going to beat the crap out of me more than me.
+ - I’ve been very blessed in my personal life and in my career and I have never been ungrateful for what I have.
+ - Peace in the Middle East isn’t going to be created by another war or violent act on the other side.
+ - I’m an obsessive hiker and I do it every day for two hours and it really helps me when it comes to learning songs or scripts.
+ - I can’t believe this, I’m arguing with a woman!
+ - Everyone’s entitled to their own experience.
+ - People on both sides of any conflict believe they are right, whether it’s on a TV show or in the real world.
+ - I can achieve that by personally relating the words that I am saying to something I have known in my life.
+ - I’m active in PAX, which is a gun awareness organization. We treat gun safety as a public health issue.
+ - The time it takes to get something done is the time it takes.
+ - I moved to New York to go to Julliard Drama School. Didn’t sing a single note of music.
+ - When you work on a text of a lesser quality, as the interpreter or the delivery person, you are obliged to try to fill it out as you see so many people do in lesser work.
+ - You rarely pay the rent by doing Shakespeare or Ibsen.
+ - I have no problem with violence, I have no problem playing horrible people.
+ - I try to say something about the human condition whenever I can when I’m lucky.
+ - Singing in Yiddish was a great thrill for me and came about through Joe Papp, the founder of The Public Theater.
+ - Movies were a struggle for me – they didn’t come easy.
+ - Mandy is not calm. So that’s acting. I’m acting. And, and I love playing someone calm.
+ - Now get in the cartoonishly evil vehicle and drive!
+ - If you told me I could only do one thing, I would choose live concerts.
+ - I think it’s fair to say I’m attracted to playing characters who are rather intense.
+ - I’m on the board of directors for Peace Now, which works tirelessly between the Palestinians and the Israelis to create peace in the Middle East and we’ve never been closer.
+ - When I’m on the road with concerts, people ask me to autograph my CDs, but more and more they come up with the cookbooks.
+
+68 quotes

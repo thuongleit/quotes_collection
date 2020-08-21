@@ -1,0 +1,29 @@
+ - When 99% of people doubt your idea, you’re either gravely wrong or about to make history.
+ - It’s not about ideas. It’s about making ideas happen.
+ - Self-leadership is about awareness, tolerance, and not letting your own natural tendencies limit your potential.
+ - Nothing extraordinary is achieved through ordinary means.
+ - The magic happens when you find the sweet spot where your genuine interests, skills, and opportunity intersect.
+ - Overcome the stigma of self-marketing.
+ - It’s only by saying no that you can concentrate on the things that really matter.
+ - The fact that time is ticking should motivate you to take action on your ideas.
+ - Ideas are worthless if you can’t make them happen.
+ - An idea can only become a reality once it is broken down into organized, actionable elements.
+ - When the next step is unclear, the best way to figure it out is to take action. Constant motion is the key to execution.
+ - Share ownership of your ideas. The more people who lie awake in bed thinking about your idea, the better.
+ - Most ideas are born and lost in isolation.
+ - A labor of love always pays off.
+ - You cannot ignore or completely escape the deeply ingrained short-term reward system within you. But you can become aware of what really motivates you and then tweak your incentives to sustain your long-term pursuits.
+ - Among idealists and visionaries, there is no shortage of good intent, but there’s often a shortage of discipline.
+ - The young and the ambitious share a common risk: appearing naive.
+ - Perspiration is the best form of differentiation, especially in the creative world.
+ - Success Corrupts and Limits Potential as Soon as You Start to Think You Could Do It Alone.
+ - Everything in life should be approached as a project. Every project can be broken down into just three things: Action Steps, Backburner Items, and References.
+ - Most ideas never happen. It’s an uphill battle against the status quo and our own tendencies.
+ - Creativity is, quite simply, a genuine interest combined with initiative.
+ - All great inventions emerge from a long sequence of small sparks; the first idea often isn’t all that good, but thanks to collaboration it later sparks another idea, or it’s reinterpreted in an unexpected way. Collaboration brings small sparks together to generate breakthrough innovation.
+ - While the tendency to generate ideas is rather natural, the path to making them happen is tumultuous.
+ - Today never feels like it will be history, but it will. And more likely than not, you will look back and realize that you should have known.
+ - To envision what will be, you must remove yourself from the constant concern for what already is.
+ - Rather than Surrender to Bureaucracy, take it upon yourself to break it.
+
+27 quotes

@@ -1,0 +1,25 @@
+ - Live fast, die young.
+ - Keep your standards high, and any guy who is worth it will rise to meet them.
+ - You have to do things that excite you; you have to have a passion for your work. Otherwise you’re just a face on the screen.
+ - Music gets inside you, music captures you. Music becomes your heartbeat. It’s a drug and makes you feel whatever the song’s about.
+ - I’ve always connected with music. Life’s not always what you see; it’s what going on in your head. Music is what comes out of your subconscious.
+ - I’m all for being in love and whenever I like someone, I end up pretty much completely smitten.
+ - I feel like you just need to keep writing until the writing itself just begins to take shape.
+ - Be a good-looking corpse. Leave a good-looking tattoo.
+ - I like the glamorous indie rock look, like The Libertines. But you know, without the heroin needle sticking out of my arm.
+ - When I need to think of, like, a peaceful scene or something, I think of my back garden in summertime. And whenever I hear the lawnmower next door, I always think it’s really peaceful.
+ - I grew up in a middle class English family just outside London. I wasn’t surrounded by that speedy city lifestyle, it was a little mellower.
+ - I think gardens are fantastic, and I’d love to draw and design and stuff like that. I love just planting flowers during the summer. There’s something very humble about it, and natural and beautiful.
+ - I bite my nails. I’ve been chewing on them for years. As long as you don’t chew through flesh it’s all right.
+ - I can’t stand watching myself on TV.
+ - To be respected as an actor it doesn’t help to be seen out in the clubs.
+ - This is my trademark: I rip my T-shirt. I’m into the whole showing-a-bit-of-chest-hair thing.
+ - I don’t come from a famous family and don’t have this detachment from everyday people and everyday life. I’m just doing my job and the attention that comes with it is part of the territory.
+ - I’ve got a clear line between work and real life.
+ - I’m a rock ‘n’ roll guy, really. I’m a big fan of Elvis. I got “Heartbreak Hotel” tattooed on my chest.
+ - I don’t think musicals are my thing. I’m not a big fan. Definitely have to get on the stage and do something like a straight play.
+ - I can pretty much live without fast food. I haven’t eaten McDonald’s in so long, but it’s okay.
+ - It’s very difficult to juggle two careers, unless you’re going to have someone put it all together for you. Because you’re on TV, somebody just gives you a record deal – that’s not how I’d want to get it, because it’s just not real.
+ - I don’t want to do something where I play a kid in a school. And I don’t understand these spoof movies.
+
+23 quotes

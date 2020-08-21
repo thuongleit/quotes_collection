@@ -1,0 +1,59 @@
+ - I learn things late-and only the hard way.
+ - Cats gotta scratch. Dogs gotta bite. I gotta write.
+ - It was easy not to think of my future; I didn’t have one.
+ - I don’t feel in any way obligated to remain current with the culture. I feel no social obligation whatsoever. I trust my morality in the narrow path I trek through the world as I work.
+ - Some men get the world, some men get ex-hookers and a trip to Arizona. You’re in with the former, but my God I don’t envy the blood on your conscience.
+ - I would like to provoke ambiguous responses in my readers.
+ - Tell me anything. Tell me everything. Revoke our time apart. Love me fierce in danger.
+ - Anybody who doesn’t know that politics is crime has got a few screws loose.
+ - I’ve created a narrative of the world. I live in the world – tenuously, most times. I’ve avoided the digital world.
+ - As much as I transferred my mother to Elizabeth Shore of The Black Dahlia, as much as her dad mutated into an obsession with crime in general, well, I have thought about other things throughout the years.
+ - To me, there’s nothing on earth other than women. It’s why I get out of bed every morning.
+ - I want to have enough data, so I won’t write myself into thin air, so that I can extrapolate and give you this secret human infrastructure. The only way I sate my own curiosity is to create this from scratch. There must be commanding love stories. There must be great moral cost.
+ - Some people don’t respond to civility.
+ - Dead people belong to the live people who claim them most obsessively.
+ - I like to be alone so I can write. But focus can hurt you. I don’t want to be some stress casualty in early middle age.
+ - I don’t know anybody in the underworld. I make this stuff up. I don’t know any criminals.
+ - I don’t have children. I serve the world and I serve God by living as deep within my work as I can, reveling in the language of other times and putting it forth for the world.
+ - And the only forms of socialism in the world that were then getting results – malign ones, as it was – were the Fascist and Soviet republics. Fascism is a form of socialism – you rebuild the country, you find a scapegoat, and you go from there.
+ - I am the most well-adjusted human being I know. I started out this investigation as a very happy man with a great career. I’ve got the life people dream about: I am rich, I am famous, I’ve got a fabulous marriage to an absolutely, spell-bindingly brilliant woman.
+ - When I was a kid, Eisenhower had been President forever, and all of a sudden, everything in the world was all about Jack Kennedy. I was 12, interested in politics; my father was from Massachusetts, had an accent like Kennedy.
+ - I am conservative by temperament. I disapprove of criminal activity. I am very solidly and markedly on the side of authority. The truth is I would rather err on the side of too much authority than too little.
+ - America was never innocent. We popped our cherry on the boat over and looked back with no regrets. You can’t ascribe our fall from grace to any single event or set of circumstances. You can’t lose what you lacked at conception.
+ - The truth of the matter is, you lose a parent to murder when you’re 10 years old, and in fact at the time of the murder you hate your lost parent, my mother in my case.
+ - Every one of my books is written from the viewpoint of cops, with the exception of my book Killer on the Road, which is written from the viewpoint of a serial killer.
+ - I am a master of fiction. I am also the greatest crime novelist who ever lived. I am to the crime novel in specific what Tolstoy is to the Russian novel and what Beethoven is to music.
+ - There’s none with me, although you’ve seen me before – I’m outrageous.
+ - Our shared world is humanly unquantifiable and ideologically confused. Which one of them is capable of implementing the most recognizable harm or good?
+ - I love thinking about American history, thinking about LA history. I love brooding on crime.
+ - You get up in the morning because you might meet a woman. And if you stay at home by yourself, alone, you will not meet a woman.
+ - History is a state of yearning. I yearn for Kay Lake throughout this entire thing. There’s an essay I’ve written where I talked about living in the past. There’s a whole motif in the book of then and now. And I lived there.
+ - Sometimes I’ll leave the house and go to a delicatessen down the street from me – it’s been there a million years – just because I can look at people.
+ - I’ve been tremendously moved by a bunch of odd books. Ross McDonald is very important to me. I love the Lew Archer books.
+ - I always cringe when a male friend of mine, who’s very fixated on women, puts “compatibility” at the top of his list of attributes that he would be looking for in a woman. I would replace compatibility with dialectic.
+ - As critical acclaim and response has built up, every interview I give is a chance to puncture the myth I’ve created about my work and refine it.
+ - All I want to do is make serious movies that explore social issues and turn a profit, and slip the schnitzel to Jane DePugh.
+ - I’m getting a wider circle of fans now. More women, more middle class people.
+ - My mother and I will continue on some level that I havent determined yet. I think my mothers a great character, and I have to say that giving my mother to the world has to be the biggest thrill of my writing career.
+ - I work within the framework of a very concerted, purely driven Protestant Christian mindset. I had dark early circumstances. I went inward. I have a sturdy will. I have a big heart. I’m a decent guy. And I have a great gift. It’s blunted me to the world in many ways.
+ - I am a writer. I could not afford to take 15 months off from my writing career to play detective.
+ - And you love to read, you love to escape, right?
+ - The 1950s to me is darkness, hidden history, perversion behind most doors waiting to creep out. The 1950s to most people is kitsch and Mickey Mouse watches and all this intolerable stuff...
+ - Raymond Chandler once wrote that Dashiell Hammett gave murder back to the people who really committed it.
+ - I have insane curiosity as to what happened in all these events. I will never know. I’m not a researcher. I don’t possess that kind of mind. I have a researcher who compiles the fact sheets and chronologies that allow me to write these big books of mine.
+ - We do. Or re-create the ones we have, and project. My whole life is projection.
+ - The wildest ride in modern crime novel exoticum. A novel so steeped in milieu that it feels as if you’ve blasted to mars in the grip of a demon who won’t let you go. Read this book, savor the language-it’s the last-and the most compelling word in thrillers.
+ - I’m way past the idea of using ideology or political view as a gauge of human character. I simply don’t believe it. And many people, I tend to think most people, feel that way. Since I don’t have to worry about it, I’m happy.
+ - I begin by assembling notes on characters. Large swaths of the plot become clear to me as I do this.
+ - Other people, some other writers, will win certain accolades or sell in far greater numbers than me – and I’m a legitimate best-selling author – but I live and die for the work. That’s thrilling to me. It’s thrilling that I do for others what certain writers did for me when I was a kid.
+ - Noir is dead for me because historically, I think it’s a simple view. I’ve taken it as far as it can go. I think I’ve expanded on it a great deal, taken it further than any other American novelist.
+ - Periodically I just notch up. And everyone among my colleagues thinks that Perfidia – in its accessibility, its big throbbing heart – will be the biggest notch up yet. We’ll see what happens. It’s on my ass.
+ - I wanted to portray a newly democratized, enclosed society. I wanted to show how extraordinarily fluid people are in their embrace of other human beings.
+ - As a kid, I sensed history going on all around me, but the basic thrust of it didn’t move me.
+ - I was a WASP kid going to a high school that was 99 percent Jewish and I wanted attention and I wanted to make a spectacle of myself because I couldn’t stand to be ignored.
+ - Rock and rollers can get you the youth buzz, and younger people are fanatical readers.
+ - For a much lauded writer, I’m not terribly self-absorbed. In social situations, which are difficult for me – I mean, this is an interview – I’m normally uncomfortable talking about myself.
+ - I don’t have a cellphone or a computer. I deliberately circumscribe my mental life within the periods that I write about, and the power of Perfidia is that it’s the result of complete immersion. I was there for the two years that it took me to write that book.
+ - There are a lot of Ellroy lifts, man. This guy went to school. But then there’s a willful thing that comes over me – God gives it to me – where I go, “That’s real nice, let’s just go home, pat yourself on the back, good dog, good dog, and wake up in the morning and go to work.”
+
+57 quotes

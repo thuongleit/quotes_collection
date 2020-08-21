@@ -1,0 +1,133 @@
+ - There is a sacredness in tears. They are not the mark of weakness, but of power. They speak more eloquently than ten thousand tongues. They are the messengers of overwhelming grief, of deep contrition, and of unspeakable love.
+ - Great minds have purposes; others have wishes.
+ - Christmas is a season for kindling the fire for hospitality in the hall, the genial flame of charity in the heart.
+ - Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart.
+ - Little minds are tamed and subdued by misfortune; but great minds rise above them.
+ - Villainy wears many masks; none so dangerous as the mask of virtue.
+ - There is in every true woman’s heart, a spark of heavenly fire, which lies dormant in the broad daylight of prosperity, but which kindles up and beams and blazes in the dark hour of adversity.
+ - A kind heart is a fountain of gladness, making everything in its vicinity freshen into smiles.
+ - The love of a mother is never exhausted. It never changes – it never tires – it endures through all; in good repute, in bad repute. In the face of the world’s condemnation, a mother’s love still lives on.
+ - Some minds seem almost to create themselves, springing up under every disadvantage and working their solitary but irresistible way through a thousand obstacles.
+ - There is an enduring tenderness in the love of a mother to a son that trancends all other affections of the heart.
+ - Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.
+ - A father may turn his back on his child, brothers and sisters may become inveterate enemies, husbands may desert their wives, wives their husbands. But a mother’s love endures through all.
+ - One of the greatest and simplest tools for learning more and growing is doing more.
+ - There is an emanation from the heart in genuine hospitality which cannot be described, but is immediately felt and puts the stranger at once at his ease.
+ - A woman is more considerate in affairs of love than a man; because love is more the study and business of her life.
+ - There is certain relief in change, even though it be from bad to worse! As I have often found in traveling in a stagecoach, that it is often a comfort to shift one’s position, and be bruised in a new place.
+ - Good temper, like a sunny day, sheds a ray of brightness over everything; it is the sweetener of toil and the soother of disquietude!
+ - The idol of today pushes the hero of yesterday out of our recollection; and will, in turn, be supplanted by his successor of tomorrow.
+ - It’s a fair wind that blew men to ale.
+ - The Indians with surprise found the mouldering trees of their forests suddenly teeming with ambrosial sweet; and nothing, I am told, can exceed the greedy relish with which they banquet for the first time upon this unbought luxury of the wilderness.
+ - They who drink beer will think beer.
+ - The tie which links mother and child is of such pure and immaculate strength as to be never violated.
+ - Those men are most apt to be obsequious and conciliating abroad, who are under the discipline of shrews at home.
+ - He who would greatly deserve must greatly dare.
+ - There rise authors now and then, who seem proof against the mutability of language, because they have rooted themselves in the unchanging principles of human nature.
+ - Young lawyers attend the courts, not because they have business there, but because they have no business.
+ - Christmas is here, Merry old Christmas, Gift-bearing Christmas, Day of grand memories, King of the year!
+ - A mother is the truest friend we have when trials, heavy and sudden, fall upon us; when adversity takes the place of prosperity.
+ - Jealous people poison their own banquet and then eat it.
+ - There is a serene and settled majesty to woodland scenery that enters into the soul and delights and elevates it, and fills it with noble inclinations.
+ - A mother is the truest friend we have...
+ - There is certainly something in angling that tends to produce a serenity of the mind.
+ - Marriage is the torment of one, the felicity of two, the strife and enmity of three.
+ - I have often had occasion to remark the fortitude with which women sustain the most overwhelming reverses of fortunes.
+ - An inexhaustible good nature is one of the most precious gifts of heaven, spreading itself like oil over the troubled sea of thought, and keeping the mind smooth and equable in the roughest weather.
+ - No man knows what the wife of his bosom is until he has gone with her through the fiery trials of this world.
+ - There is a majestic grandeur in tranquillity.
+ - Nothing impresses the mind with a deeper feeling of loneliness than to tread the silent and deserted scene of former throng and pageant.
+ - A few amber clouds floated in the sky without a breath of air to move them. The horizon was of a fine golden tint, changing gradually into a pure apple-green, and from that into the deep blue of the mid-heaven.
+ - From its peaceful bosom spring none but fond regrets and tender recollections.
+ - True love will not brook reserve; it feels undervalued and outraged, when even the sorrows of those it loves are concealed from it.
+ - Surely happiness is reflective, like the light of heaven.
+ - A tart temper never mellows with age, and a sharp tongue is the only edged tool that grows keener with constant use.
+ - I profess not to know how women’s hearts are wooed and won. To me they have always been matters of riddle and admiration.
+ - Every desire bears its death in its very gratification. Curiosity languishes under repeated stimulants, and novelties cease to excite and surprise, until at length we cannot wonder even at a miracle.
+ - To look upon its grass grown yard, where the sunbeams seem to sleep so quietly, one would think that there at least the dead might rest in peace.
+ - The almighty dollar, that great object of universal devotion.
+ - The youthful freshness of a blameless heart.
+ - Honest good humor is the oil and wine of a merry meeting, and there is no jovial companionship equal to that where the jokes are rather small and laughter abundant.
+ - There is a healthful hardiness about real dignity that never dreads contact and communion with others however humble.
+ - The easiest thing to do, whenever you fail, is to put yourself down by blaming your lack of ability for your misfortunes.
+ - I value this delicious home-feeling as one of the choicest gifts a parent can bestow.
+ - To one given to day-dreaming, and fond of losing himself in reveries, a sea-voyage is full of subjects for meditation; but then they are the wonders of the deep and of the air, and rather tend to abstract the mind from worldly themes.
+ - I have never found, in anything outside of the four walls of my study, an enjoyment equal to sitting at my writing desk with a clean page, a new theme, and a mind awake.
+ - The tongue is the only instrument that gets sharper with use.
+ - There was one species of despotism under which he had long groaned, and that was petticoat government.
+ - It is worthy to note, that the early popularity of Washington was not the result of brilliant achievement nor signal success; on the contrary, it rose among trials and reverses, and may almost be said to have been the fruit of defeat.
+ - After all, it is the divinity within that makes the divinity without; and I have been more fascinated by a woman of talent and intelligence, though deficient in personal charms, than I have been by the most regular beauty.
+ - He is the true enchanter, whose spell operates, not upon the senses, but upon the imagination and the heart.
+ - Speculation is the romance of trade, and casts contempt upon on all its sober realities. It renders the stock-jobber a magician, and the exchange a region of enchantment.
+ - Enthusiasts soon understand each other.
+ - It is not poverty so much as pretense that harasses a ruined man – the struggle between a proud mind and an empty purse – the keeping up of a hollow show that must soon come to an end.
+ - Believe me, the man who earns his bread by the sweat of his brow, eats oftener a sweeter morsel, however coarse, than he who procures it by the labor of his brains.
+ - The Englishman is too apt to neglect the present good in preparing against the possible evil.
+ - No man is so methodical as a complete idler, and none so scrupulous in measuring out his time as he whose time is worth nothing.
+ - The natural effect of sorrow over the dead is to refine and elevate the mind.
+ - It is but seldom that any one overt act produces hostilities between two nations; there exists, more commonly, a previous jealousy and ill will, a predisposition to take offense.
+ - Poetry is evidently a contagious complaint.
+ - It lightens the stroke to draw near to Him who handles the rod.
+ - There are moments of mingled sorrow and tenderness, which hallow the caresses of affection.
+ - There is a sacredness in tears.
+ - Nature seems to delight in disappointing the assiduities of art, with which it would rear legitimate dulness to maturity; and to glory in the vigour and luxuriance of her chance productions.
+ - Over no nation does the press hold a more absolute control than over the people of America, for the universal education of the poorest classes makes every individual a reader.
+ - Every antique farm-house and moss-grown cottage is a picture.
+ - Wit, after all, is a mighty tart, pungent ingredient, and much too acid for some stomachs; but honest good humor is the oil and wine of a merry meeting.
+ - The paternal hearth, the rallying-place of the affections.
+ - The scholar only knows how dear these silent, yet eloquent, companions of pure thoughts and innocent hours become in the season of adversity. When all that is worldly turns to dross around us, these only retain their steady value.
+ - Man passes away; his name perishes from record and recollection; his history is as a tale that is told, and his very monument becomes a ruin.
+ - A woman’s life is a history of the affections.
+ - Rising genius always shoots out its rays from among the clouds, but these will gradually roll away and disappear as it ascends to its steady luster.
+ - After all, it is the divinity within that makes the divinity without...
+ - Men are always doomed to be duped, not so much by the arts of the other as by their own imagination. They are always wooing goddesses, and marrying mere mortals.
+ - The almighty dollar, that great object of universal devotion throughout our land, seems to have no genuine devotees in these peculiar villages.
+ - Redundancy of language is never found with deep reflection. Verbiage may indicate observation, but not thinking. He who thinks much says but little in proportion to his thoughts.
+ - One point is certain, that truth is one and immutable; until the jurors all agree, they cannot all be right.
+ - Acting provides the fulfillment of never being fulfilled. You’re never as good as you’d like to be. So there’s always something to hope for.
+ - Into the space of one little hour sins enough may be conjured up by evil tongues to blast the fame of a whole life of virtue.
+ - It is almost startling to hear this warning of departed time sounding among the tombs, and telling the lapse of the hour, which, like a billow, has rolled us onward towards the grave.
+ - The dance, like most dances after supper, was a merry one; some of the older folks joined in it, and the squire himself figured down several couple with a partner, with whom he affirmed he had danced at every Christmas for nearly half a century.
+ - There is no character in the comedy of human life more difficult to play well than that of an old bachelor.
+ - Angling is an amusement peculiarly adapted to the mild and cultivated scenery of England.
+ - The very difference of character in marriage produces a harmonious combination.
+ - He who thinks much says but little in proportion to his thoughts. He selects that language which will convey his ideas in the most explicit and direct manner.
+ - What earnest worker, with hand and brain for the benefit of his fellowmen, could desire a more pleasing recognition of his usefulness than the monument of a tree, ever growing, ever blooming, and ever bearing wholesome fruit?
+ - With every exertion, the best of men can do but a moderate amount of good; but it seems in the power of the most contemptible individual to do incalculable mischief.
+ - There is a certain relief in change, even though it be from bad to worse.
+ - It was Shakespeare’s notion that on this day birds begin to couple; hence probably arose the custom of sending fancy love-billets.
+ - It was the policy of the good old gentleman to make his children feel that home was the happiest place in the world; and I value this delicious home-feeling as one of the choicest gifts a parent can bestow.
+ - In civilized life, where the happiness, and indeed almost the existence, of man depends so much upon the opinion of his fellow men, he is constantly acting a studied part.
+ - I consider a story merely as a frame on which to stretch my materials.
+ - Poetry had breathed over and sanctified the land.
+ - Washington, in fact, had very little private life, but was eminently a public character.
+ - He who wins a thousand common hearts is entitled to some renown; but he who keeps undisputed sway over the heart of a coquette is indeed a hero.
+ - Society is like a lawn, where every roughness is smoothed, every bramble eradicated, and where the eye is delighted by the smiling verdure of a velvet surface.
+ - There is a sacredness in tears. They are not the mark of weakness, but of power.
+ - Others may write from the head, but he writes from the heart, and the heart will always understand him.
+ - There are certain half-dreaming moods of mind in which we naturally steal away from noise and glare, and seek some quiet haunt where we may indulge our reveries and build our air castles undisturbed.
+ - And if unhappy in her love, her heart is like some fortress that has been captured, and sacked, and abandoned, and left desolate...
+ - The natural principle of war is to do the most harm to our enemy with the least harm to ourselves; and this of course is to be effected by stratagem.
+ - Those who are well assured of their own standing are least apt to trepass on that of others.
+ - The land of literature is a fairy land to those who view it at a distance, but, like all other landscapes, the charm fades on a nearer approach, and the thorns and briars become visible.
+ - Surely happiness is reflective, like the light of heaven; and every countenance, bright with smiles, and glowing with innocent enjoyment, is a mirror transmitting to others the rays of a supreme and ever-shining benevolence.
+ - There is a remembrance of the dead, to which we turn even from the charms of the living. These we would not exchange for the song of pleasure or the bursts of revelry.
+ - I’ve had it with you and your emotional constipation!
+ - The sorrow for the dead is the only sorrow from which we refuse to be divorced.
+ - The moan of the whip-poor-will from the hillside; the boding cry of the tree-toad, that harbinger of storm; the dreary hooting of the screechowl.
+ - The slanders of the pen pierce to the heart; they rankle longest in the noblest spirits; they dwell ever present in the mind and render it morbidly sensitive to the most trifling collision.
+ - I sometimes think one of the great blessings we shall enjoy in heaven, will be to receive letters by every post and never be obliged to reply to them.
+ - He who would study nature in its wildness and variety, must plunge into the forest, must explore the glen, must stem the torrent, and dare the precipice.
+ - There is something nobly simple and pure in a taste for the cultivation of forest trees.
+ - I am always at a loss at how much to believe of my own stories.
+ - The oil and wine of merry meeting.
+ - To occupy an inch of dusty shelf-to have the title of their works read now and then in a future age by some drowsy churchman or casual straggler, and in another age to be lost, even to remembrance. Such is the amount of boasted immortality.
+ - The only happy author in this world is he who is below the care of reputation.
+ - History is but a kind of Newgate calendar, a register of the crimes and miseries that man has inflicted on his fellow-man.
+ - It is not poverty so much as pretense that harasses a ruined man.
+ - Who ever hears of fat men heading a riot, or herding together in turbulent mobs? No – no, your lean, hungry men who are continually worrying society, and setting the whole community by the ears.
+ - There is never jealousy where there is not strong regard.
+ - By a kind of fashionable discipline, the eye is taught to brighten, the lip to smile, and the whole countenance to emanate with the semblance of friendly welcome, while the bosom is unwarmed by a single spark of genuine kindness and good-will.
+ - Too young for woe, though not for tears.
+
+131 quotes

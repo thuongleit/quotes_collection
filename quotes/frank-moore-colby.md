@@ -1,0 +1,34 @@
+ - By rights, satire is a lonely and introspective occupation, for nobody can describe a fool to the life without much patient self-inspection.
+ - Persecution was at least a sign of personal interest. Tolerance is composed of nine parts of apathy to one of brotherly love.
+ - I have found some of the best reasons I ever had for remaining at the bottom simply by looking at the men at the top.
+ - We always carry out by committee anything in which any one of us alone would be too reasonable to persist.
+ - Many people lose their tempers merely from seeing you keep yours.
+ - Clever people seem not to feel the natural pleasure of bewilderment, and are always answering questions when the chief relish of a life is to go on asking them.
+ - Persecution was at least a sign of personal interest.
+ - Every man ought to be inquisitive through every hour of his great adventure down to the day when he shall no longer cast a shadow in the sun. For if he dies without a question in his heart, what excuse is there for his continuance?
+ - Literary people are forever judging the quality of the mind by the turn of expression.
+ - Cast your cares on God; that anchor holds.
+ - Talk ought always to run obliquely, not nose to nose with no chance of mental escape.
+ - In middle life politics are not a mental acquisition; they are a temperament.
+ - Sin in this country has been always said to be rather calculating than impulsive.
+ - As wounded men may limp through life, so our war minds may not regain the balance of their thoughts for decades.
+ - The New York playgoer is a child of nature, and he has an honest and wholesome regard of whatever is atrocious in art.
+ - There ought to be some sign in a book about man, that the writer knows thoroughly one man at least.
+ - You cannot find, make or understand true friendship without having enemies.
+ - If a large city can, after intense intellectual efforts, choose for its mayor a man who merely will not steal from it, we consider it a triumph of the suffrage.
+ - Fill an author with a titanic fame and you do not make him titanic; you often merely burst him.
+ - I know of no more disagreeable sensation than to be left feeling generally angry without anybody in particular to be angry at.
+ - As crowds increase we build our forts of inattention, and the more we talk the easier it is to mean little and listen not at all.
+ - We do not mind our not arriving anywhere nearly so much as our not having any company on the way.
+ - That is the consolation of a little mind; you have the fun of changing it without impeding the progress of mankind.
+ - Women singly do a good deal of harm. Women in bulk are chastening.
+ - Every improvement in communication makes the bore more terrible.
+ - Men will confess to treason, murder, arson, false teeth, or a wig. How many of them will own up to a lack of humor?
+ - Averageness is a quality we must put up with. Men march toward civilization in column formation, and by the time the van has learned to admire the masters the rear is drawing reluctantly away from the totem pole.
+ - When temptations march monotonously in regiments, one waits for to pass.
+ - One learns little more about a man from his feats of literary memory than from the feats of his alimentary canal.
+ - Distaste sounds more emphatic when expressed as moral disapproval. With most of us the moral counterblast is nothing more than the angry rendering of a yawn.
+ - The world is a play that would not be worth seeing if we knew the plot.
+ - Politics is a place of humble hopes and strangely modest requirements, where all are good who are not criminal and all are wise who are not ridiculously otherwise.
+
+32 quotes

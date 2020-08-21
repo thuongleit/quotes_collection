@@ -1,0 +1,25 @@
+ - All perception is a gamble.
+ - To begin with, we put the proposition: pure phenomenology is the science of pure consciousness.
+ - I must achieve internal consistency.
+ - Experience by itself is not science.
+ - All consciousness is consciousness of something.
+ - The ideal of a pure phenomenology will be perfected only by answering this question; pure phenomenology is to be separated sharply from psychology at large and, specifically, from the descriptive psychology of the phenomena of consciousness.
+ - The perception of duration itself presupposes a duration of perception.
+ - Natural objects, for example, must be experienced before any theorizing about them can occur.
+ - In all the areas within which the spiritual life of humanity is at work, the historical epoch wherein fate has placed us is an epoch of stupendous happenings.
+ - Merely fact-minded sciences make merely fact-minded people.
+ - Philosophy as science, as serious, rigorous, indeed apodictically rigorous science – the dream is over.
+ - If all consciousness is subject to essential laws in a manner similar to that in which spatial reality is subject to mathematical laws, then these essential laws will be of most fertile significance in investigating facts of the conscious life of human and brute animals.
+ - Psychologically experienced consciousness is therefore no longer pure consciousness; construed Objectively in this way, consciousness itself becomes something transcendent, becomes an event in that spatial world which appears, by virtue of consciousness, to be transcendent.
+ - Philosophers, as things now stand, are all too fond of offering criticism from on high instead of studying and understanding things from within.
+ - I had to philosophize. Otherwise, I could not live in this world.
+ - Pure phenomenology claims to be the science of pure phenomena. This concept of the phenomenon, which was developed under various names as early as the eighteenth century without being clarified, is what we shall have to deal with first of all.
+ - We would be in a nasty position indeed if empirical science were the only kind of science possible.
+ - What is thematically posited is only what is given, by pure reflection, with all its immanent essential moments absolutely as it is given to pure reflection.
+ - Within this widest concept of object, and specifically within the concept of individual object, Objects and phenomena stand in contrast with each other.
+ - It just is nothing foreign to consciousness at all that could present itself to consciousness through the mediation of phenomena different from the liking itself; to like is intrinsically to be conscious.
+ - In a few decades of reconstruction, even the mathematical natural sciences, the ancient archetypes of theoretical perfection, have changed habit completely!
+ - To every object there correspond an ideally closed system of truths that are true of it and, on the other hand, an ideal system of possible cognitive processes by virtue of which the object and the truths about it would be given to any cognitive subject.
+ - Without troublesome work, no one can have any concrete, full idea of what pure mathematical research is like or of the profusion of insights that can be obtained from it.
+
+23 quotes

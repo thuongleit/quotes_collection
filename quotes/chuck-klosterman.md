@@ -1,0 +1,121 @@
+ - The message of “The Winner Takes It All” is straightforward: It argues that the concept of relationships ending on mutual terms is an emotional fallacy. One person is inevitably okay and the other is inevitably devastated.
+ - Art and love are the same thing: It’s the process of seeing yourself in things that are not you.
+ - Every relationship is fundamentally a power struggle, and the individual in power is whoever likes the other person less.
+ - If rain is God crying, I think God is drunk and his girlfriend just slept with Zeus.
+ - If you don’t have a job, you don’t have a fear of losing it. You fear having to get one.
+ - First, you must love yourself. And if you do that convincingly enough, others will love you too much.
+ - We’re all tourists, sort of. Life is tourism, sort of. As far as I’m concerned, the dinosaurs still hold the lease on this godforsaken rock.
+ - I tend to equate sadness with intelligence.
+ - Flying to me isn’t scary, it’s just incredibly boring. And I guess I have a fear of boredom, so in that regard, I’m afraid to fly.
+ - We are always dying, all the time. That’s what living is; living is dying, little by little. It is a sequenced collection of individualized deaths.
+ - I love the way music inside a car makes you feel invisible; if you plan the stereo at max volume, it’s almost like the other people can’t see into your vehicle. It tints your windows, somehow.
+ - I am ready to be alone.
+ - Why don’t I like crowds? I suppose the worst possible thing I could say is that I don’t like people, and that crowds are just collections of people. That seems like a very nihilistic way to look at the world.
+ - I hate motorcycles. Because if I hit one, even if it’s not my fault, if I’ve done nothing wrong, I’m not charged with manslaughter, he’s gonna die, because he’s on a motorcycle. So I have to live my life knowing that I killed this guy.
+ - As of right now, I am in love with her, and that love is the biggest problem in my life.
+ - The most wretched people in the world are those who tell you they like every kind of music ‘except country.’ People who say that are boorish and pretentious at the same time.
+ - In and of itself, nothing really matters. What matters is that nothing is ever in and of itself.
+ - I feel sorry for people who have to edit me. Which is why book writing is by far the most enjoyable. Really the only thing it’s based on is whether it’s good or not. No book editor, in my experience, is getting a manuscript and trying to rewrite it.
+ - People who talk about their dreams are actually trying to tell you things about themselves they’d never admit in normal conversation.
+ - Saying you like “Piano Man” doesn’t mean you like Billy Joel; it means you’re willing to go to a piano bar if there’s nothing else to do.
+ - It is important to have questionable friends you can trust unconditionally.
+ - I honestly believe that people of my generation despise authenticity, mostly because they’re all so envious of it.
+ - Being interesting has been replaced by being identifiable.
+ - Everybody is wrong about everything, just about all the time.
+ - In New York, people are unhappy on purpose, because unhappiness makes them seem more complex; in Washington DC it just sort of works out that way.
+ - It feels so exhausting to be so bad at something I loved so much.
+ - What is going to happen in the course of my day that will be an improvement over lying on something very soft, underneath something very warm, wearing only underwear, doing absolutely nothing, all by myself?
+ - This is what being alive feels like, you know? The place doesn’t matter. You just live.
+ - I almost never get lonely. I love being alone. I’m glad I’m married, and I love my wife. But there’s never been a situation in my life where my unhappiness was based on loneliness.
+ - If you can’t swim, the idea of being in nine feet of water is terrifying, much less the ocean.
+ - Real people are actively trying to live like fake people, so real people are no less fake. Every comparison becomes impractical. This is why the impractical has become totally acceptable; impracticality almost seems cool.
+ - I want fake love. But that’s all I want, and that’s why I can’t have it.
+ - Booze is the greatest of all equalizers. Rich drunks and poor drunks both pass out the same way.
+ - My mind and gut are never simpatico: Every time I think somebody likes me, she doesn’t; every time I think somebody doesn’t like me, she does. This has never changed and I’m certain it never will.
+ - In baseball and sex, cliches are usually true: pitching beats hitting, and people always want to be loved by anyone who doesn’t seem to care.
+ - If someone breaks your heart, just punch them in the face. Oh sure, it seems obvious now, but you’d be amazed at how many people don’t think of it when it’s relevant. Seriously, punch them in the face and go get some ice cream.
+ - Every generation is more influenced by technology, which is always changing faster.
+ - I once loved a girl who almost loved me, but not as much as she loved John Cusack.
+ - The strength of your memory dictates the size of your reality.
+ - Important things are inevitably cliche, but nobody wants to admit that.
+ - Internet porn makes everything more reasonable – once you’ve realized there is a massive subculture of upwardly mobile people who think it’s erotic to see an Asian woman giving a hand job to a javelina, nothing else in the world seems crazy.
+ - Sarcasm is when you tell someone the truth by lying on purpose.
+ - I was a teenager in the ’80s – and maybe I’m wrong about this – but it seemed like a bad era for movies that were scary. It was really the height of movies that were disgusting.
+ - The villain is the person who knows the most but cares the least.
+ - Soccer is like punk rock: The product is not necessarily terrible. The problem is the fan base.
+ - Styx and The Stones may break my bones but ‘More than Words’ will never hurt me.
+ - Somewhere, at some point, somehow, somebody decided that death equals credibility.
+ - If you stare long enough at anything, you will start to find similarities. The word “coincidence” exists in order to stop people from seeing meaning where none exists.
+ - Humanity takes itself too seriously. It is the world’s original sin. If cavemen had known how to laugh, history would have been different.
+ - Observing someone without context amplifies the experience. The more we know, the less we are able to feel.
+ - Science fiction tends to be philosophy for stupid people.
+ - The only people who think the Internet is a calamity are people whose lives have been hurt by it; the only people who insist the Internet is wonderful are those who need it to give their life meaning.
+ - We all eventually become whatever we pretend to hate.
+ - Perhaps we humans are still in command, and perhaps there really will be a conventional robot war in the not-so-distant future. If so, let’s roll.
+ - Gay marriage should be legalized in america because gay men are the only men who want to be married.
+ - I care about strangers when they’re abstractions, but I feel almost nothing when they’re literally in front of me.
+ - To me, fear of the future means fear of technology. I have a little bit of that. I still use it, but I kind of see technology as this harmful thing that’s so ingrained in my life that it sort of dictates and controls my relationship with it.
+ - We assume that all statements must be mild inversions of the truth, because it’s too weird to imagine people who aren’t casually lying, pretty much all the time.
+ - Without a soundtrack, human interaction is meaningless.
+ - At a magazine, everything you do is edited by a bunch of people, by committee, and a lot of them are, were, or think of themselves as writers. Part of that is because magazines worry about their voice.
+ - Necessity used to be the mother of invention, but then we ran out of things that were necessary. The postmodern mother of invention is desire; we don’t really “need” anything new, so we only create what we want.
+ - In the Far East, it’s very normal for people to wear masks in flu season. I don’t know if I’d ever do that, though, because I don’t like having things on my face.
+ - That’s like comparing apples with hermaphroditic ground sloths.
+ - I hate the point where you have to get off the ladder, or get back on. I don’t know if that’s a fear of heights, or literally a fear of falling. I want to be afraid to fall. That seems like a good fear.
+ - The biggest hurdle to writing Fargo Rock City was that I couldn’t afford a home computer – I had to get a new job so I could buy a computer. It could all change though. In five years, I could be back at some daily newspaper, which wouldn’t be so bad.
+ - I’m really an alarmist when it comes to epidemics. Swine flu now; when SARS was big, I was all freaked out about that, bird flu. That terrifies me.
+ - What’s hard to do is describe why you like something. Because ultimately, the reason things move people is very amorphous. You can be cerebral about things you hate, but most of the things you like tend to be very emotive.
+ - It has always been my belief that people are remembered for the sum of their accomplishments but defined by their singular failure.
+ - If you’re doing an interview, you need conversational tension. After you talk to them, you’re not going to have a relationship with them, they’re not going to like you, they’re not going to be your friend.
+ - Anybody who says they are a good liar obviously is not, because any legitimately savvy liar would always insist they’re honest about everything.
+ - To me, every interview, even if you love the artist, needs to be somewhat adversarial. Which doesn’t mean you need to attack the person, but you do need to look at it like you’re trying to get information that has not been written about before.
+ - Sometimes I think children are the worst people alive. And even if they’re not- even if some smiling toddler is as pure as Evian- it’s only a matter of time.
+ - I doubt that pornography has been good for the advancement of society, but I suspect it’s done wonders for the advancement of computer technology.
+ - This made her remember why people take up walking: It is because they no longer have anywhere to go.
+ - The worst thing you can do to anybody trying to be creative is to demand participation in their vision.
+ - Even eternally free people are enslaved by the process of living.
+ - Even though I wanted to experience all these things I was interested in, I couldn’t get them. So I had to think critically and culturally about what was available.
+ - Every time I learn the truth about something, I’m disappointed.
+ - It doesn’t matter what you can do if you don’t know why you’re doing it.
+ - Punk was perfect for lazy people, because anyone could do it – you didn’t even need to know how to play your instrument, assuming you knew how to plug it in. There was really no difference between Sid Vicious and anyone in London who owned a bass.
+ - The last girl I love will be someone I haven’t even met yet, probably.
+ - It’s possible this whole “Why do Latinos love Morrisey?” question will haunt us forever. Fortunately, Canadian academics are on the case.
+ - The things he did on purpose were usually no different from the mistakes he made by accident.
+ - It might sound chauvinistic, but there is a sad reality in rock music: Bands who depend on support from females inevitably crash and burn.
+ - Seeing no resolution to my existential recognition of loss, I decide to eat lunch.
+ - The falling flakes were random and without purpose; the snow was drunker than she was.
+ - I look at camping the same way I look at horror movies. All the years that humans fought to get into caves and into shelters – it almost seems sacrilegious to go outside and sleep without a roof. We work so hard to have these things!
+ - If I’m around spiders, my fear isn’t so much the spider, but my fear is that I’m somewhere rustic and that spiders are crawling around. I must be in the woods.
+ - We would sit in the living room, drink a case of Busch beer, and throw the empty cans into the kitchen for no reason whatsoever, beyond the fact that it was the most overtly irresponsible way for any two people to live.
+ - Let’s face it: Sadness and evil are always more believable than happiness and love. When a movie reviewer calls a film “realistic,” everyone knows what that means – it means the movie has an unhappy ending.
+ - I’m good at being by myself. I guess if you’re a writer you get used to that.
+ - When you’re writing for newspapers you have all these parameters. You can’t swear, you have to use short paragraphs, all that. If you stay within those parameters, you have lots of freedom because you’re writing for the next day.
+ - When I’m walking around, I’m usually drinking pop, so I can’t have a mask on. That’s why I couldn’t be a surgeon.
+ - All my friends are rock critics, so we talk about rock criticism a lot. Because of that, in order to be part of the conversation, you have to have an awareness of what the discussion is.
+ - Football allows the intellectual part of my brain to evolve, but it allows the emotional part to remain unchanged. It has a liberal cerebellum and a reactionary heart. And this is all I want from everything, all the time, always.
+ - But it goes without saying that Michael Jordan could never date Pamela Anderson. That would cause the apocalypse.
+ - Maybe I could survive in one of those resort prisons where they house white-collar criminals. I’ve always wanted to get better at tennis.
+ - You’re trying to find new ideas in people. I always think to myself, what question I am least comfortable asking the person? And then I make sure I ask it early in the interview.
+ - Book writing is a little different because, in my case, my editor is a year younger than me and basically has the same sensibility as me.
+ - Outcasts may grow up to be novelists and filmmakers and computer tycoons, but they will never be the athletic ruling class.
+ - In some ways, Halloween is much easier for women. They can just dress as sluts, and it’s kind of a costume, if they never do any other time.
+ - It’s peculiar what you remember when you’re not trying.
+ - Instead, we were given a publication called the Weekly Reader, which was like a newspaper for four-foot illiterates.
+ - Life is rarely about what happened; it’s mostly about what we think happened.
+ - If I knew I was going to die at a specific moment in the future, it would be nice to be able to control what song I was listening to; this is why I always bring my iPod on airplanes.
+ - We all believe that we are a certain kind of person, but we never know until we do something that proves otherwise, or until we die.
+ - The essays are very solipsistic and self-absorbed, I’m totally conscious of that. To me, book writing is fun, and I basically just write about things that are entertaining to myself.
+ - Anyone who claims to be good at lying is obviously bad at lying. Thus – as a writer myself – I cannot comment on whether or not writers are exceptionally good liars, because whatever I said would actually mean its complete opposite.
+ - We argued about how hard it would be to ride a bear, assuming said bear was muzzled.
+ - It was the kind of love you can only feel toward someone you don’t actually know.
+ - The essays are different because ultimately it’s things I’m interested in, and I’m really just writing about myself and using those subjects as a prism.
+ - The Sims is an escapist vehicle for people who want to escape to where they already are, which is why I thought this game was made precisely for me.
+ - Mostly, we argued about who which of us was better at arguing, and particularly about who had won the previous argument.
+ - If you’re the type of person who wants to associate exclusively with those who perfectly mirror your own ethical worldview, you’re reducing significantly the scope of your potential life experience.
+ - Americans have become conditioned to believe the world is a gray place without absolutes; this is because we’re simultaneously both cowardly and arrogant. We don’t know the answers, so we assume they must not exist.
+ - I grew up on a farm, and we didn’t have cable and only limited radio stations, so I wasn’t inundated with culture the way people in other parts of the country were. But I was really interested in it.
+ - The biggest problem in rock journalism is that often the writers main motivation is to become friends with the band. Theyre not really journalists; theyre people who want to be involved in rock and roll.
+ - The goal of being alive is to figure out what it means to be alive.
+ - I like storms. I would say I actively like stormy weather. I would not be afraid of them. I think that if I had not pursued journalism, I think storm-chasing would’ve been a really fun career.
+
+119 quotes

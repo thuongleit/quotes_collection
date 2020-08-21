@@ -1,0 +1,45 @@
+ - We have come a long way and we have a little further to go.
+ - You never let a serious crisis go to waste. And what I mean by that it’s an opportunity to do things you think you could not do before.
+ - We’re bending the law as far as we can to ban an entirely new class of guns.
+ - I think that every country presents its own particular challenges, different cultures, different histories, different religions, different people. And different ethnic make-ups in those countries present different challenges.
+ - Nearly losing my life made me want to live my life.
+ - Chick-fil-A values are not Chicago values.
+ - Banks are slowly but surely lending again, and never again will taxpayers foot the bill for Wall Street’s excesses. In case we forgot, that was the change we believed in. That was the change we fought for. That was the change President Obama delivered.
+ - I saw the president make the tough calls in the Situation Room – and today, our troops in Iraq have finally come home so America can do some nation building here at home. That was the change that we believed in. That was the change we fought for. That was the change President Obama delivered.
+ - There was no blueprint or how-to manual for fixing a global financial meltdown, an auto crisis, two wars and a great recession, all at the same time.
+ - A strong economy depends on a strong middle class, but George Bush has put the middle class in a hole, and John McCain has a plan to keep digging that hole with George Bush’s shovel.
+ - You never want a serious crisis to go to waste.
+ - As individuals, we will be judged in our lives by the totality of our actions. Not one thing will stand out. And I think that’s how we get judged by our colleagues and that’s how we get judged by the good lord.
+ - We invoke the sacrifices of our fallen heroes in the abstract, but we seldom take time to thank them individually.
+ - We’re proud of the work we’re doing to make Chicago a great city for people of all ages. Nothing’s more important than keeping in mind the needs of older adults – and how valuable a role they play in improving the city, based on their amazing collective talent and wisdom.
+ - Everybody knows they’re on the Obama team: There isn’t vice presidential vs. presidential division, there’s not a generational pull. People have internalized that this is a real moment in history.
+ - I think the most important thing for us to make judgments about is what can we really do? What can we achieve?
+ - I don’t want to go negative on Franklin Delano Roosevelt, but he didn’t pass an economic deal in the first 100 days. We have passed the largest Recovery Act in the history of the country.
+ - Rather than doing the kind of fact-checking that normally goes with a story, you ran with certain stories for not wanting to get beat. There’s a pressure that exists in your profession. I would be surprised in any honest exchange that you say that doesn’t exist.
+ - Whose leadership, whose judgment, whose values do you want in the White House when that crisis lands like a thud on the Oval Office desk?
+ - Republicans are ‘bad people who deserve a two-by-four upside their heads.’
+ - There’s no safe Republican district. You can run, but you cannot hide.
+ - The person who takes the oath of office in the next four months will shape not just the next four years, but the next forty years of our nation. In these next four years, we need proven leadership, proven judgment and proven values. America needs four more years of President Barack Obama.
+ - Deliberation is a good thing when it comes to fighting wars.
+ - Our troops are the best in the world. I have absolute confidence in the ability of the troops who are here, or additional troops, to do their part.
+ - While Mayor Daley surprised me today with his decision to not run for reelection, I have never been surprised by his leadership, dedication and tireless work on behalf of the city and the people of Chicago.
+ - President Obama made the right choice, over one million Americans are still working today. The American auto industry is not just surviving. It is thriving. Where Mitt Romney was willing to turn his back on Akron, Dayton and Toledo, Ohio, the president said, ‘I’ve got your back.’
+ - I wake up some mornings hating me too.
+ - The problem is, you have to look at Afghanistan also in a global context where we’ve canceled basically our missile defense system undercutting the Czech Republic in Poland. We’ve I think not dealt with Iran with the kind of resolve that would show that we understand the nature of that threat.
+ - Things happened there that I don’t think are the finest hours for anybody, whether it was a journalist, the legal system or, in that case of the political system, who would say that was an example of when Washington worked best.
+ - I should say the leadership’s proposal in the Senate and the House are very unpopular. And when people realize it will raise taxes, raise their insurance premiums cost and explode the deficit, they think twice about it.
+ - The fact is, Bush’s war policy has failed. It’s failed! Who better to say so than Jack Murtha?
+ - When it comes to federal elections law, Tom DeLay and his special-interest friends live by one set of rules, and everyone else lives by a very different set.
+ - I do not believe that a counterterrorism strategy all by itself, without a sufficient level of counterinsurgency, will work.
+ - I believe the record I was allowed to help establish by the side of the president was important.
+ - We need to deal with the problem of al Qaeda, make sure that they can’t have a sanctuary in Afghanistan and guarantee that we have regional stabilization and particularly focused on Pakistan.
+ - I would like to run for the mayor of the city of Chicago. That has always been an aspiration of mine even when I was in the House of Representatives.
+ - I think indeed our response on counterinsurgency needs to be finely tuned to the needs of Afghanistan. This is not Iraq. We don’t have a Sons of Iraq here. We don’t have the same divisions here that we had between Sunni and Shia.
+ - I’ve never been in a place where winning has hurt the ability to do anything.
+ - I still believe the Lewinsky investigation was way off from the focus of what Whitewater was, which turned out to be nothing at the end of the process. And I think that there were people who were determined as political opponents to not allow his presidency to succeed.
+ - Because of the president’s leadership, every American will have access to affordable, quality health care.
+ - There has to be a reform within the government that is tangible, that we can actually measure and that we have confidence is going to provide some of the differences that I think are essential to our troops to be able to carry out their mission and to the longer- term interests of our country.
+ - In the White House, you can be on the pitcher’s mound or you can be in the catcher’s position. Put points on the board. Show people you can govern. Deliver on what you said you were going to deliver on.
+ - And it’s time as a country that we have an assault weapon ban.
+
+43 quotes

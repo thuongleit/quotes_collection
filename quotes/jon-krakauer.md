@@ -1,0 +1,64 @@
+ - Happiness is only real when shared.
+ - I now walk into the wild.
+ - Its not always necessary to be strong, but to feel strong.
+ - Don’t settle down and sit in one place. Move around, be nomadic, make each day a new horizon.
+ - Mr. Franz, I think careers are a 20th century invention and I don’t want one.
+ - When you forgive, you love. And when you love, God’s light shines upon you.
+ - Some people feel like they don’t deserve love. They walk away quietly into empty spaces, trying to close the gaps of the past.
+ - We like companionship, see, but we can’t stand to be around people for very long. So we go get ourselves lost, come back for a while, then get the hell out again.
+ - But somethings in life are more important than being happy. Like being free to think for yourself.
+ - What if I were smiling and running into your arms? Would you see then what I see now?
+ - It is the experiences, the memories, the great triumphant joy of living to the fullest extent in which real meaning is found. God it’s great to be alive! Thank you. Thank you.
+ - Sometimes he tried too hard to make sense of the world, to figure out why people were bad to each other so often.
+ - Mr. Franz, I think careers are a 20th Century invention and I don’t want one. You don’t need to worry about me; I have a college education. I’m not destitute. I’m living like this by choice.
+ - That’s what was great about him. He tried. Not many do.
+ - At long last he was unencumbered, emancipated from the stifling world of his parents and peers, a world of abstraction and security and material excess, a world in which he felt grievously cut off from the raw throb of existence.
+ - Everest has always been a magnet for kooks, publicity seekers, hopeless romantics and others with a shaky hold on reality.
+ - If you want a blank spot on the map, you gotta leave the map behind.
+ - Once you believe that God is speaking directly to you, there is no discussion.
+ - I thought climbing the Devil’s Thumb would fix all that was wrong with my life. In the end, of course, it changed almost nothing. But I came to appreciate that mountains make poor receptacles for dreams.
+ - It is true that I miss intelligent companionship, but there are so few with whom I can share the things that mean so much to me that I have learned to contain myself. It is enough that I am surrounded with beauty...
+ - In climbing, having confidence in your partners is no small concern. One climber’s actions can affect the welfare of the entire team.
+ - The only person you are fighting is yourself and your stubbornness to engage in new circumstances.
+ - He was unheeded, happy, and near to the wild heart of life. He was alone and young and wilful and wildhearted, alone amid a waste of wild air and brackish waters and the seaharvest of shells and tangle and veiled grey sunlight.
+ - If you’re not a feminist, you’re part of the problem.
+ - Alaska has long been a magnet for dreamers and misfits, people who think the unsullied enormity of the Last Frontier will patch all the holes in their loves. The bush is an unforgiving place, however, that care nothing for hope or longing.
+ - It is easy, when you are young, to believe that what you desire is no less than what you deserve, to assume that if you want something badly enough, it is your God-given right to have it.
+ - You should own nothing except what you can carry on your back at a dead run.
+ - The trip was to be an odyssey in the fullest sense of the word, an epic journey that would change everything.
+ - I think part of the appeal of Antarctica is experiencing some sort of power, the forces of the natural world.
+ - It was titillating to brush up against the enigma of mortality, to steal a glimpse across its forbidden frontier. Climbing was a magnificient activity, I firmly believed, not in spite of the inherent perils, but precisely because of them.
+ - To the contrary: His life hummed with meaning and purpose. But the meaning he wrestled from existence lay beyond the comfortable path: McCandless distrusted the value of things than came easily.
+ - Children can be harsh judges when it comes to their parents, disinclined to grant clemency.
+ - The desert sharpened the sweet ache of his longing, amplified it, gave shape to it in sere geology and clean slant of light.
+ - Having stumbled upon a tolerable career, for the first time in my life I was actually living above the poverty line. My hunger to climb had been blunted, in short, by a bunch of small satisfactions that added up to something like happiness.
+ - Antarctica is a very alien environment, and you can’t survive here more than minutes if you’re not equipped properly and doing the right thing all the time.
+ - I was dimly aware that I might be getting in over my head. But that only added to the scheme’s appeal. That it wouldn’t be easy was the whole point.
+ - I understood what he was doing, that he had spent four years fulfilling the absurd and tedious duty of graduating from college and now he was emancipated from that world of abstraction, false security, parents, and material excess.
+ - I’m intrigued by fanatics – people who are seduced by the promise, or the illusion, of the absolute.
+ - Short form media is reductionist by nature.
+ - Heaven, for me, is one focused project – it’s like a weird form of autism.
+ - The endless, agonizing recycling of what might have been, soon followed by a litany of rationalizations and self-deceptions as you struggle to reconcile the void between the person you want to be and the person you fear you are...
+ - My reasoning, if one can call it that, was inflamed by the scatter shot passions of youth and a literary diet overly rich in the works of Nietzshe, Kerouac, and John Menlove Edwards...
+ - According to the moral absolutism that characterizes McCandless’s beliefs, a challenge in which a successful outcome is assured isn’t a challenge at all.
+ - Most climbers aren’t in fact deranged, they’re just infected with a particularly virulent strain of the Human Condition.
+ - I love being outdoors, being in the mountains and the desert, and my wife enjoys that too. That’s one of the things that sustain our relationship.
+ - As a means of motivating people to be cruel or inhumane-as a means of inciting evil, to borrow the vocabulary of the devout-there may be no more potent force than religion.
+ - I never studied writing, but I’d always been a reader and had a secret fantasy about being a writer.
+ - Now what is history? It is the centuries of systematic explorations of the riddle of death, with a view to overcoming death. That’s why people discover mathematical infinity and electromagnetic waves, that’s why they write symphonies...
+ - When I start any book, I have no idea what I’m going to do.
+ - But now that I was finally here, standing on the summit of Mount Everest, I just couldn’t summon the energy to care.
+ - Straddling the top of the world, one foot in China and the other in Nepal, I cleared the ice from my oxygen mask, hunched a shoulder against the wind, and stared absently down at the vastness of Tibet.
+ - Mountains make poor receptacles for dreams.
+ - At that stage of my youth, death remained as abstract a concept as non-Euclidean geometry or marriage. I didn’t yet appreciate its terrible finality or the havoc it could wreak on those who’d entrusted the deceased with their hearts.
+ - Getting to the top of any given mountain was considered much less important than how one got there: prestige was earned by tackling the most unforgiving routes with minimal equipment, in the boldest style imaginable.
+ - There is nothing glamorous or romantic about war. It’s mostly about random pointless death and misery.
+ - Common sense is no match for the voice of God.
+ - This forms the nub of a dilemna that every Everest climber eventually comes up against: in order to succeed you must be exceedingly driven, but if you’re too driven you’re likely to die.
+ - Antarctica has this mythic weight. It resides in the collective unconscious of so many people, and it makes this huge impact, just like outer space. It’s like going to the moon.
+ - I mean, how can you not be a feminist if you have a brain in your head? If you’re not a feminist, then you’re a problem.
+ - He needed his solitude at times, but he wasn’t a hermit. He did a lot of socializing. Sometimes I think it was like he was storing up company for the times when he knew nobody would be around.
+ - Almost every magazine piece I’ve ever written, I felt like I haven’t done it justice, like it was just a gloss.
+ - Military investigations are designed not to find anyone guilty.
+
+62 quotes

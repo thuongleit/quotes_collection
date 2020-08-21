@@ -1,0 +1,42 @@
+ - If I can’t be my own, I’d feel better dead.
+ - I’d like to fly, but my wings have been so denied.
+ - I’m not into religion, but I have a good grasp on my spirituality. I just believe that I’m not the greatest power on this earth. I didnt create myself, because I would have done a hell of a better job.
+ - I wish I could just hug you all, but I’m not gonna.
+ - Drugs are not the way to the light. They won’t lead to a fairy-tale life, they lead to suffering.
+ - I guess I can go anywhere I want. If only I knew where to go.
+ - It was all about music, about getting your friends to come and see you play. I don’t see that same intimacy happening very much today.
+ - My bad habits aren’t my title. My strengths and my talent are my title.
+ - I wrote about drugs, and I didn’t think I was being unsafe or careless by writing about them. I didn’t want fans to think heroin was cool. But then I’ve had fans come up to me and give me the thumbs up, telling me they’re high. That’s exactly what I didn’t want to happen.
+ - When everyone goes home, you’re stuck with yourself.
+ - We try to be real nice and friendly to people, but sometimes they take advantage of that.
+ - I don’t take part in it the way I used to-the bimbos, the free beers, free drugs, all that. That’s still there if you want it, but I don’t really seek that out any more.
+ - What do you mean, I’m a wild front man! I’m jumping all over, I do the dance moves...
+ - Whatever dramas are going on in my life, I always find that place inside my head where I see myself as the cleanest, tallest, strongest, wisest person that I can be.
+ - We write about ourselves because we know about ourselves.
+ - Sure God’s all powerful, but does he have lips?
+ - Being me is no different than being most anyone else, I guess.
+ - We survived a Slayer crowd every night for about 50 days and thought we could do about anything after that.
+ - Drugs will have a huge effect on my work for the rest of my life, whether I’m using or not.
+ - I haven’t read anything but regurgitated rumors. Nothing new, and nothing true.
+ - I started out when I was about 12, playing drums. I started singing when I was about 15.
+ - Music is the doorway that has led me to drawing, photography, and writing.
+ - Music is the career Im lucky enough to get paid for, but I have other desires and passions.
+ - I don’t think any drug that can cause brain damage, failing kidneys, hardening arteries, pain, and suffering should be made available.
+ - My bed isn’t made, I’m tired, I haven’t slept well for two weeks. I haven’t been laid in a month. I don’t have a girlfriend. I have a warrant for my arrest.
+ - I’m not doing well. Don’t try to talk about this to my sister Liz. She will know it sooner or later.
+ - I saw all the suffering that Kurt Cobain went through. I saw this real vibrant person turn into a real shy, timid, withdrawn person.
+ - There’s no huge, deep message in any of the songs. We recorded a few months of being human.
+ - Andrew Wood’s death changed things for a few weeks. I probably got even heavier into drugs after that.
+ - Every article I see is dope this, junkie that, whiskey this – that ain’t my title.
+ - There are lasting consequences for using drugs. I’ll still be paying for my prior use.
+ - At home I’m just a guy who has interests that extend far beyond music.
+ - I don’t do much else but stay in my hotel room.
+ - I found out through the Internet that I have AIDS. I learned that I was dead. Where else would I find these things?
+ - Kurt and I weren’t the closest of friends, but I knew him well enough to be devastated by his death. For such a quiet person, he was so excited about having a child.
+ - People have a right to ask questions and dig deep when you’re hurting people and things around you.
+ - A lot of power-pop comes out of LA, a lot of speed metal comes out of New York.
+ - Los Angeles, I don’t like that town. Too decadent, and it’s slimy.
+ - I was in a band when I was 15. We were a glam band. Then I couldn’t afford to buy makeup. At the time that was the thing.
+ - One of the first bands to break out of Seattle was Heart.
+
+40 quotes

@@ -1,0 +1,102 @@
+ - We all have two lives. The second one starts when we realize that we only have one.
+ - Stay hungry, stay young, stay foolish, stay curious, and above all, stay humble because just when you think you got all the answers, is the moment when some bitter twist of fate in the universe will remind you that you very much don’t.
+ - Never stop. Never stop fighting. Never stop dreaming.
+ - Never, ever, let anyone tell you what you can and can’t do. Prove the cynics wrong. Pity them for they have no imagination. The sky’s the limit. Your sky. Your limit. Now. Let’s dance.
+ - We’re all flawed heroes. Responsibility is power. Take responsibility for the consequences of your actions, and the world is yours. Everything is a choice.
+ - Make love, not war. Unless you’re Loki, in which case: do what you want.
+ - You never know what’s around the corner. It could be everything. Or it could be nothing. You keep putting one foot in front of the other, and then one day you look back and you’ve climbed a mountain.
+ - If you look at all of the villains in the course of human history, they’ve all believed, delusionally, in the virtue of their actions – every villain is a hero in his own mind.
+ - The dream is to keep surprising yourself, never mind the audience.
+ - Everythings a choice. Nobody’s born good. Nobody’s born evil. It’s always a choice.
+ - Every villain is a hero in his own mind.
+ - What’s my guilty pleasure? The thing is, I never feel guilty about pleasures.
+ - Love your life. Because your life is what you have to give.
+ - Don’t judge people on who they used to be. Allow them to be who they are now.
+ - Make sure you tell the people you love that you love them. Loudly and often. You never know when it might be too late.
+ - Life is generally pretty damn amazing if you let it be.
+ - In the end, you will always kneel.
+ - What is the best use of my time on this planet?
+ - Well, I think there are no villains in this world. There are just misunderstood heroes.
+ - Nurture your own confidence and make it real; don’t pretend to be someone you’re not.
+ - I never like to make plans. It’s nice to just hang.
+ - You look at the greatest villains in human history, the fascists, the autocrats, they all wanted people to kneel before them because they don’t love themselves enough.
+ - I try not to make plans. God always laughs at your plans. I’m going to keep the door open, and keep the page blank, and see what gets painted upon it.
+ - I wonder what the world would be like if everybody walked their talk; if word was married with deed; promises delivered by action.
+ - I think everyone should do what they love because it will never feel like work that way.
+ - If the Loki in ‘Thor’ was about a spiritual confusion – ‘Who am I? How do I belong in this world?’ – the Loki in ‘Avengers’ is, ‘I know exactly who I am, and I’m going to make this world belong to me.’
+ - I never get afraid of things, I only get excited.
+ - The best revenge against bullies is absolutely, resolutely, never to let them change who you are. Know that whatever bullies say or do – it comes from their weakness, not yours.
+ - We are what the past has made us. We are what the future will make us. Live now. Right now.
+ - Very honest, I hope. God, I don’t know. I hope I’m fun, I hope I am a good time. Spontaneous, surprising, affectionate? I hope, kind. Dancing a lot of dancing. I insist upon dancing. Anywhere. Anytime. The more dancing, the better.
+ - I think everyone should pursue their dreams. Whether you want to play football, act, sing, become a writer or whatever you have burning inside you as you’re growing up, you should pursue it.
+ - Within us there is the capacity of being anyone or anything.
+ - There’s an Iago and a Romeo within all of us. There is that lover, and there is that sociopath.
+ - Acting takes a degree of mutual trust and respect.
+ - I think we all see ourselves as the heroes in our own lives.
+ - My favourite pudding is a toss-up between cheesecake – proper, New York cheesecake – and apple crumble and custard. Custard is very important, or dark chocolate mousse. Tea: probably Earl Grey, splash of milk.
+ - The thing that keeps you grounded is doing the thing you love.
+ - I think when the world makes you feel rejected, you bite back.
+ - Just because you’re good in something doesn’t mean you’ll necessarily be good in something else. You just try and chase opportunities that you fall in love with or that inspire you and keep doing the work.
+ - I suppose my understanding of villains is that they’re just people who are infected by all of the darker instincts – that they haven’t got the discipline to make the right choices.
+ - I don’t think anyone, until their soul leaves their body, is past the point of no return.
+ - Do the work, enjoy the work, take it seriously, don’t take yourself seriously and keep your head down!
+ - Haters never win. I just think that’s true about life, because negative energy always costs in the end.
+ - I always thought of running as just dancing forward.
+ - You can’t really legislate for the decisions that your heart makes.
+ - Thor and Loki are defined by each other.
+ - Sometimes love really is just that simple.
+ - The most interesting thing about being alive is that there is no black and white; there are many shades of gray.
+ - One of the great flaws that we all share is that we think everyone else is cooler, everyone else is sexier; everyone else has all the answers. That was me too.
+ - Every time you consider a job, you have to check in with your inner compass and say, ‘Does this fit in with how I see what the work is for? Is this going to be something interesting and valuable to contribute to the world?’
+ - Fame is weird and amorphous and unpredictable.
+ - The thing about playing gods, whether you’re playing Thor and Loki or Greco Roman gods or Indian gods or characters in any mythology, the reason that gods were invented was because they were basically larger versions of ourselves.
+ - Tony Stark in ‘Iron Man’ helped wider audiences finally embrace the enormous talent of Robert Downey Jr.
+ - The learning is the heavy lifting. You need to get the words into your brain.
+ - It’s always about, somehow, finding a part of myself that is relevant, and then turning the volume up on that particular part. So, I am all of the characters I’ve ever played, and I am none of them at the same time.
+ - Out of 10 how enthusiastic a dancer am I? 11.
+ - Whenever I come back to London, which is home, I get that cosy, comfortable feeling of being home, as well as the sophistication of this city.
+ - An ant has no quarrel with a boot.
+ - I feel as though the cardboard box of my own reality has been flattened and blown open. Now I can see the edge of the world.
+ - People love escapism and there should be a place for it.
+ - When people don’t like themselves very much, they have to make up for it. The classic bully was actually a victim first.
+ - It sounds cliched, but superheroes can be lonely, vain, arrogant and proud. Often they overcome these human frailties for the greater good.
+ - If you play it straight it’s funny – the best comedy is always played straight down the middle. The adjustment is understanding from the screenplay that a moment is hilarious.
+ - I grew up watching ‘Superman.’ As a child, when I first learned to dive into a swimming pool, I wasn’t diving, I was flying, like Superman. I used to dream of rescuing a girl I had a crush on from a playground bully.
+ - I would always play the baddie, incidentally.
+ - We’re travelling through space and time, we’re dealing with gods and monsters, but at the heart of the film, from my perspective, is a family – a father, two sons, two brothers, a mother and the fractious, intimate interaction that they have.
+ - The Night Manager doesn’t exist in the post-Cold war universe, it exists much more in the modern world, I think. There is more action. The bad guys don’t have particularly political or national-political affiliations.
+ - It is so rare as an actor to be allowed the chance to revisit a role and to go back to a character that you already built, and lived inside, and understood. To take it further to another stage is a huge privilege.
+ - All acting is an act of imagination. You are simply conjuring up imaginary circumstances in your mind and responding truthfully to them.
+ - Somehow the past is a safe place to explore our collective cultural neuroses.
+ - I fundamentally believe that in the moral balance of the human race, we right ourselves. If we feel like the ship’s keel is off, we find a way to steer ourselves through the storm repeatedly.
+ - I’m not a big fan of the class system, to be honest. It feels ugly to me. If you’ve got something to say and the work is good, it doesn’t matter where you come from.
+ - I have been allowed to inhabit different shades of human nature and different colours of truth indifferent circumstances.
+ - I was so lucky because what I did in ‘Thor’ was I built the character from the ground up – the foundations of his spirit, really. He was someone who was born with an expectation that he would one day be a king, born with an entitlement.
+ - America and Europe are so different in the way they conceive of themselves and art and cinema.
+ - It’s a rare thing when you can read a script in one sitting and you haven’t looked at the watch or you’ve gone to make a cup of tea.
+ - Artists instinctively want to reflect humanity, their own and each other’s, in all its intermittent virtue and vitality, frailty and fallibility.
+ - Without revealing too much, there’s a specific skill set you need to be in Loki’s army – let me know if you have the qualifications.
+ - Quite often, most of us are defined first by our vital statistics – our sex, our height, our weight, the colour of our eyes and then we’re defined by our job.
+ - As an actor, it’s much, much easier to be really nasty to someone that you really like.
+ - In our increasingly secular society, with so many disparate gods and different faiths, superhero films present a unique canvas upon which our shared hopes, dreams and apocalyptic nightmares can be projected and played out.
+ - I don’t think I’ve ever been face to face with pure evil, so I don’t think I’ve ever seen it with my own eyes. But I do understand human frailty and I do understand the capacity of people to be intermittently noble and virtuous and fallible.
+ - Loki in ‘Thor’ is the most incredible springboard into a sort of excavation of the darker aspects of human nature. So that was thrilling, coming back knowing that I’d built the boat and now I could set sail into choppier waters.
+ - The bit I love is I really love acting, really, and the circus of being a celebrity is something I’m sort of not interested in. I find it strange.
+ - I’m an eternal realist and the success rate for being an actor is pretty low.
+ - It’s like playing tennis, you play a different rally with different people. Every actor is different and the chemistry between actors is different.
+ - I love the acting community at Cambridge. It’s really quite committed and serious, since the days of Derek Jacobi and Ian McKellen right through to Emma Thompson and Hugh Laurie.
+ - Our job is to represent the truth of human nature, whether you’re playing a tender love story that’s set in a coffee shop or whether you’re in ‘The Avengers,’ which is set in a Manhattan which is exploding.
+ - I think cruelty is just loneliness disguised as bitterness.
+ - The language of digital communication is a language we don’t understand in a way. People say the internet is like the Wild West in that it’s lawless and we haven’t worked out how to make it structured or moral.
+ - Acting is a bit like tennis in that you can’t really do it on your own.
+ - The best comedy is always played straight down the middle.
+ - It was quite a European war until 1917, when the Americans joined up. They don’t have the same sense of the loss of innocence and the cataclysmic loss of life. A whole generation was wiped out.
+ - Joanna points her camera at a section of society unused to having cameras pointed at it. But I don’t know about categorizing them in terms of class; I’m a bit wary of that. My dad is the son of a shipbuilder.
+ - At Christmas, individuals are apportioned their roles in the family script – you’re either the funny one or the sensitive one; or you either do the cooking or the washing up. And those roles aren’t easy to change.
+ - I was informed yesterday that there’s a Twitter account for my laugh. Very hard to get used to things like that. Pretty amazing.
+ - I’ve done my share of period stuff. I’m not sure why, but people say I have a period face. The bread and butter of British TV is Jane Austen adaptations and bridges and bonnets and boats and horses.
+ - I am desperate to do a comedy now.
+ - With any role, you’re extending yourself and acting out things that never happened to you.
+ - I’m an actor, and part of my joy and my curiosity about the job that I do, is that actors have the privilege of exploring human nature in different ways.
+
+100 quotes

@@ -1,0 +1,27 @@
+ - Too fast to live, too young to die.
+ - What matters is this: Being fearless of failure arms you to break the rules. In doing so, you may change the culture and just possibly, for a moment, change life itself.
+ - I’ve always embraced failure as a noble pursuit. It allows you to be anti whatever anyone wants you to be, and to break all the rules.
+ - Be childish. Be irresponsible. Be disrespectful. Be everything this society hates.
+ - There are two rules I’ve always tried to live by: turn left, if you’re supposed to turn right; go through any door that you’re not supposed to enter. It’s the only way to fight your way through to any kind of authentic feeling in a world beset by fakery.
+ - To be a flamboyant failure, that’s better than being any kind of benign success.
+ - Don’t kill the golden goose.
+ - Punk’s influence on music, movies, art, design and fashion is no longer in doubt. It is used as the measurement for what is cool.
+ - The thing about Paris, it’s a great city for wandering around and buying shoes and nursing a cafe au lait for hours on end and pretending you’re Baudelaire. But it’s not a city where you can work.
+ - Sid Vicious began the age of participation in which everyone could be the artist. Sid proved that you don’t have to play well to be the star. You can play badly, or not even at all. I endorsed that attitude. If you can’t write songs, no problem – simply steal one and change it to your taste.
+ - I left school at 16 and my mother got me a job as a trainee wine taster. But one day I followed some girls into St Martin’s art school and saw a voluptuous woman sitting on a stool being sketched. I decided to get myself fired.
+ - Through all aspects of society be it art, design, the financial markets, government, technology or communications we are witnessing unprecedented global transformation – the result of which is impossible to predict.
+ - I’ve always thought that gaming and YouTube and the web is a very post-punk extravaganza.
+ - Nothing changes and very little happens in Paris. This is a great place to work without distraction – and then I run away to New York, where I have a life!
+ - It was never about having a Mohican haircut or wearing a ripped T-shirt. It was all about destruction, and the creative potential within that.
+ - Everyone should be commended for allowing people to make disasters, to make failures – you’ve just got to be sure that it’s a magnificent failure and that, by creating a magnificent failure, you plant the seed.
+ - The popularity of punk rock was, in effect, due to the fact that it made ugliness beautiful.
+ - Rock and roll doesn’t necessarily mean a band. It doesn’t mean a singer, and it doesn’t mean a lyric, really. It’s that question of trying to be immortal.
+ - What are the politics of boredom?
+ - Stealing things is a glorious occupation, particularly in the art world.
+ - The Pistols were like my work of art. They were my canvas.
+ - I think if it doesn’t do what I say, if it doesn’t do what I want, if it isn’t politically subversive, if it isn’t sexy, if it isn’t stylish to make all that happen then it isn’t truthfully worth listening to.
+ - Try managing a junkie – especially if you’ve never been one yourself.
+ - I saw a picture of Elvis in blue lame, and thought that if I could recreate that suit and walk down the King’s Road in it, someone might pick me up and take me off on a crazy adventure.
+ - I was taught that to create anything you had to believe in failure, simply because you had to be prepared to go through an idea without any fear. Failure, you learned, as I did in art school, to be a wonderful thing. It allowed you to get up in the morning and take the pillow off your head.
+
+25 quotes

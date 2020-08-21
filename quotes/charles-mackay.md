@@ -1,0 +1,23 @@
+ - There ’s a good time coming, boys! A good time coming.
+ - Men, it has been well said, think in herds; it will be seen that they go mad in herds, while they only recover their senses slowly, and one by one.
+ - Extraordinary Popular Delusions and the Madness of Crowds.
+ - Every age has its peculiar folly: Some scheme, project, or fantasy into which it plunges, spurred on by the love of gain, the necessity of excitement, or the force of imitation.
+ - Water is the mother of the vine, the nurse and fountain of fecundity, the adorner and refresher of the world.
+ - He who has mingled in the fray of duty that the brave endure, must have made foes. If you have none, small is the work that you have done.
+ - Men of thought and men of action, clear the Way!
+ - There is no such thing as death. In nature nothing dies. From each sad remnant of decay, some forms of life arise so shall his life be taken away before he knoweth that he hath it.
+ - Of all the offspring of Time, Error is the most ancient, and is so old and familiar an acquaintance, that Truth, when discovered, comes upon most of us like an intruder, and meets the intruder’s welcome.
+ - Old Tubal Cain was a man of might In the days when earth was young.
+ - An arrow may fly through the air and leave no trace; but an ill thought leaves a trail like a serpent.
+ - Some love to roam o’er the dark sea’s foam, Where the shrill winds whistle free.
+ - War in men’s eyes shall be A monster of iniquity In the good time coming. Nations shall not quarrel then, To prove which is the stronger; Nor slaughter men for glory’s sake; – Wait a little longer.
+ - But the sunshine aye shall light the sky, As round and round we run; And the truth shall ever come uppermost, And justice shall be done.
+ - Money, again, has often been a cause of the delusion of the multitudes. Sober nations have all at once become desperate gamblers, and risked almost their existence upon the turn of a piece of paper.
+ - There’s a fount about to stream, There’s a light about to beam, There’s a warmth about to glow, There’s a flower about to blow; There’s a midnight blackness changing Into gray; Men of thought and men of action, Clear the way.
+ - Aid the dawning, tongue and pen; Aid it, hopes of honest men!
+ - Three causes especially have excited the discontent of mankind; and, by impelling us to seek remedies for the irremediable, have bewildered us in a maze of madness and error. These are death, toil, and the ignorance of the future...
+ - Nations, like individuals, cannot become desperate gamblers with impunity. Punishment is sure to overtake them sooner or later.
+ - Much as the sage may affect to despise the opinion of the world, there are few who would not rather expose their lives a hundred times than be condemned to live on, in society, but not of it – a by-word of reproach to all who know their history, and a mark for scorn to point his finger at.
+ - If happy I and wretched he, Perhaps the king would change with me.
+
+21 quotes

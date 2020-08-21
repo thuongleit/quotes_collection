@@ -1,0 +1,41 @@
+ - Don’t ask for security, ask for adventure. ~~Jim Rohn
+ - To travel is to live. ~~Hans Christian Andersen
+ - Life is an adventure, it’s not a package tour. ~~Eckhart Tolle
+ - If you think adventure is dangerous, try routine; it is lethal. ~~Paulo Coelho
+ - The greatest adventure is what lies ahead. ~~J. R. R. Tolkien
+ - Be brave. Take risks. Nothing can substitute experience. ~~Paulo Coelho
+ - Not all who wander are lost. ~~J. R. R. Tolkien
+ - It’s not an adventure until something goes wrong. ~~Yvon Chouinard
+ - To travel is to discover that everyone is wrong about other countries. ~~Aldous Huxley
+ - You the people have the power to make this life free and beautiful, to make this life a wonderful adventure... ~~Charlie Chaplin
+ - The adventure of life is to learn... ~~William Arthur Ward
+ - The adrenaline and stress of an adventure are better than a thousand peaceful days. ~~Paulo Coelho
+ - Have your adventures, make your mistakes, and choose your friends poorly – all these make for great stories. ~~Chuck Palahniuk
+ - Keep trying. Stay humble, Trust your instincts. Most importantly, act. When you come to a fork in the road, take it. ~~Yogi Berra
+ - In the universe, there are things that are known, and things that are unknown, and in between, there are doors. ~~William Blake
+ - The clearest way into the Universe is through a forest wilderness. ~~John Muir
+ - Some 80% of your life is spent working. You want to have fun at home; why shouldn’t you have fun at work? ~~Richard Branson
+ - I wanted real adventures to happen to myself. But real adventures, I reflected, do not happen to people who remain at home: they must be sought abroad. ~~James Joyce
+ - In that world, you’ll be able to rise in the morning with the spirit you had known in your childhood: that spirit of eagerness, adventure and certainty which comes from dealing with a rational universe. ~~Ayn Rand
+ - If adventures will not befall a young lady in her own village, she must seek them abroad. ~~Jane Austen
+ - I like adventures, and I’m going to find some. ~~Louisa May Alcott
+ - You can destroy your now by worrying about tomorrow. ~~Janis Joplin
+ - There are so many adventures that you miss because you’re waiting to think of a plan. To find them, look for tiny interesting choices. And remember that you are always making up the future as you go. ~~Randall Munroe
+ - Tourists don’t know where they’ve been, travelers don’t know where they’re going. ~~Paul Theroux
+ - No one realizes how beautiful it is to travel until he comes home and rests his head on his old, familiar pillow. ~~Lin Yutang
+ - Travel makes one modest. You see what a tiny place you occupy in the world. ~~Gustave Flaubert
+ - Why do you go away? So that you can come back. So that you can see the place you came from with new eyes and extra colors. And the people there see you differently, too. Coming back to where you started is not the same as never leaving. ~~Terry Pratchett
+ - I like to set myself a new adventure challenge at least once or twice a year because I love that side of my life. I love getting fit and training for it. ~~Richard Branson
+ - None but the ignorant can be bored by life. To the lovers of learning, life is pure adventure shared with adventurers. ~~Pearl S. Buck
+ - Life with Christ is a wonderful adventure. ~~Pope John Paul II
+ - All too often, the security of a mediocre present is more comfortable than the adventure of trying to be more in the future. ~~Tony Robbins
+ - My day begins with gratitude and joy. I look forward with enthusiasm to the adventures of the day, knowing that in my life, All is good. ~~Louise Hay
+ - You aren’t nearly through this adventure yet. ~~J. R. R. Tolkien
+ - I have found out that there ain't no surer way to find out whether you like people or hate them than to travel with them. ~~Mark Twain
+ - Journalism combines adventure with culture. ~~Oriana Fallaci
+ - I know not all that may be coming, but be it what it will, I’ll go to it laughing. ~~Herman Melville
+ - The adventure of the Christian life begins when we dare to do what we would never tackle without Christ. ~~William Penn
+ - The greatest adventure in life – knowing God – begins at the Cross of Christ and ends with a “Hallelujah!” ~~David Jeremiah
+ - The whole purpose of an adventure is to gain some spiritual or emotional insight. When you compromise the process, you compromise the gain. ~~Yvon Chouinard
+
+39 quotes

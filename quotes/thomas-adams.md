@@ -1,0 +1,42 @@
+ - Prevention is so much better than healing because it saves the labor of being sick.
+ - As God by creation made two of one, so again by marriage He made one of two.
+ - He who sends the storm steers the vessel.
+ - Self-righteousness is the devil’s masterpiece to make us think well of ourselves.
+ - There is no coming to heaven with dry eyes.
+ - The ambitious climb high and perilous stairs, and never care how to come down; the desire of rising hath swallowed up their fear of a fall.
+ - No man more truly loves God than he that is most fearful to offend Him.
+ - Half our virtue arises from our being out of the way of temptation.
+ - Grace comes into the soul, as the morning sun into the world; first a dawning, then a light; and at last the sun in his full and excellent brightness.
+ - Satan like a fisher, baits his hook according to the appetite of the fish.
+ - He who demands mercy and shows none ruins the bridge over which he himself is to pass.
+ - Conscience is God’s deputy in the soul.
+ - Blessed be God, I not only begin praying when I kneel down, but I do not leave off praying when I rise up.
+ - Passion costs me too much to bestow it on every trifle.
+ - That which a man spits against heaven, shall fall back on his own face.
+ - We know there is a sun in heaven, yet we cannot see what matter it is made of, but perceive it only by the beams, light and heat. Election is a sun, the eyes of eagles cannot see it, yet we may find it in the heat of vocation, in the light of illumination, in the beams of good works.
+ - The Bible is to us what the star was to the wise men; but if we spend all our time in gazing upon it, observing its motions, and admiring its splendor, without being led to Christ by it, the use of it will be lost on us.
+ - The covetous man pines in plenty, like Tantalus up to the chin in water, and yet thirsty.
+ - The hypocrite, certainly, is a secret atheist; for if he did believe there was a God, he durst not be so bold as to deceive Him to His face.
+ - Our mind is where our pleasure is, our heart is where our treasure is, our love is where our life is, but all these, our pleasure, treasure, and life, are reposed in Jesus Christ.
+ - Will you trust your five senses above the four Gospels?
+ - The covetous man is like a camel with a great hunch on his back; heaven’s gate must be made Higher and broader, or he will hardly get in.
+ - Better a holy discord than a profane concord.
+ - Let us not make the poor our friends by our alms, not our enemies by our scorns. We had better have the ears of God full of their prayers, than heaps of money in our own coffers with their curses.
+ - Even the tired horse, when he comes near home, mends pace: be good always, without weariness, but best at last; that the nearer thou comest to the end of thy days, the nearer thou mayest be to the end of thy hopes, the salvation of thy soul.
+ - Baptizing them in the name of the Father, of the Son, and of the Holy Ghost. The Father, Son, and Holy Ghost: there are three distinct persons: in the Name, not names; there is one essence.
+ - Death is as near to the young as to the old; here is all the difference: death stands behind the young man’s back, before the old man’s face.
+ - He who reforms himself, has done much toward reforming others; and one reason why the world is not reformed, is, because each would have others make a beginning, and never thinks of himself doing it.
+ - If thou wilt fly from God, the devil will lend thee both spurs and a horse.
+ - A drunkard is the annoyance of modesty, the trouble of civility, the spoil of wealth, the distraction of reason. He is the brewer’s agent, the tavern and alehouse benefactor, the beggar’s companion, the constable’s trouble, his wife’s woe, his children’s sorrow, his neighbours scoff, his own shame.
+ - Sins are so remitted, as if they had never been committed.
+ - Ever tell me of a humble heart where I see a stubborn knee.
+ - He that will be knighted must kneel for it, and he that will enter in at the strait gate must crowd for it-a gate made so on purpose, narrow and hard in the entrance, yet, after we have entered, wide and glorious, that after our pain our joy may be the sweeter.
+ - Alas! that the farthest and of all our thoughts should be the thought of our ends.
+ - Sense of sin may be often great, and more felt than grace; yet not be more than grace. A man feels the ache of his finger more sensibly than the health of his whole body; yet he knows that the ache of a finger is nothing so much as the health of the whole body.
+ - Beauty is like an almanack: if it lasts a year it is well.
+ - His father was no man’s friend but his own, and he is no man’s for else.
+ - Woman takes her being from man, man takes his well being from woman.
+ - He who is proud of his knowledge, has gout in the wrong end.
+ - A man may be so bold of his predestination, that he forget his conversation.
+
+40 quotes

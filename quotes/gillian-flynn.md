@@ -1,0 +1,91 @@
+ - I’ve suffered betrayal with all five senses. For over a year.
+ - There is an unfair responsibility that comes with being an only child – you grow up knowing you aren’t allowed to disappoint, you’re not even allowed to die.
+ - You drink a little too much and try a little too hard. And you go home to a cold bed and think, that was fine. And your life is a long line of fine.
+ - I was not a lovable child, and I’d grown into a deeply unlovable adult. Draw a picture of my soul, and it’d be a scribble with fangs.
+ - People love talking, and I have never been a huge talker. I carry on an inner monologue, but the words often don’t reach my lips.
+ - There are a million talented writers who are unpublished only because they stop writing when it gets hard.
+ - There’s something disturbing about recalling a warm memory and feeling utterly cold.
+ - A child weaned on poison considers harm a comfort.
+ - I often don’t say things out loud, even when I should. I contain and compartmentalize to a disturbing degree: In my belly-basement are hundreds of bottles of rage, despair, fear, but you’d never guess from looking at me.
+ - Most beautiful, good things were done by women people scorn.
+ - Dark sides are important. They should be nurtured like nasty black orchids.
+ - I felt a queasy mixture of relief and horror: when you finally stop an itch and realize it’s because you’ve ripped a hole in your skin.
+ - Safer to be feared than loved.
+ - The truly frightening flaw in humanity is our capacity for cruelty – we all have it.
+ - It had gotten to the point where it seemed like nothing matters, because I’m not a real person and neither is anyone else.
+ - Tampon commercial, detergent commercial, maxi pad commercial, windex commercial – you’d think all women do is clean and bleed.
+ - She’s easy to like. I’ve never understood why that’s considered a compliment – that just anyone could like you.
+ - What an indulgence it would be, to just blow off my head, all my mean spirits disappearing with a gun blast, like blowing a seedy dandelion apart.
+ - Because you can’t be as in love as we were and not have it invade your bone marrow. Our kind of love can go into remission, but it’s always waiting to return. Like the world’s sweetest cancer.
+ - Don’t be discouraged – every relationship you have is a failure, until you find the right one.
+ - I’m a true-crime addict. It’s not something I’m particularly proud of, but I can’t stop.
+ - I’d come to believe there was no food more depressing than Danish, a pastry that seemed stale upon arrival.
+ - Worries find you easily enough without inviting them.
+ - How do you keep safe when your whole day is as wide and empty as the sky?
+ - I’ve always believed clear-eyed sobriety was for the harder hearted.
+ - My brain goes very easily into the darkness. It always has. There are people who like to see what’s under the rock and people who don’t, and for some reason I’ve always been one of those to say, ‘Hey, let’s flip over that rock.’
+ - Sometimes if you let people do things to you, you’re really doing it to them.
+ - It’s a very difficult era in which to be a person, just a real, actual person, instead of a collection of personality traits selected from an endless Automat of characters.
+ - My gosh, Nick, why are you so wonderful to me?? He was supposed to say: You deserve it. I love you. But he said,‘Because I feel sorry for you.’ ‘Why?’ ‘Because every morning you have to wake up and be you.
+ - People say children from broken homes have it hard, but the children of charmed marriages have their own particular challenges.
+ - Ah, well, being conflicted means you can live a shallow life without copping to be a shallow person.
+ - Can you imagine, finally showing your true self to your spouse, your soul mate, and having him not like you? So that’s how the hating first began. I’ve thought about this a lot, and that’s where it started, I think.
+ - We weren’t ourselves when we fell in love, and when we became ourselves – surprise! – we were poison. We complete each other in the nastiest, ugliest possible way.
+ - I would have done anything to feel real again.
+ - I’m a huge fan of ghost stories, that sort of slow build, the suspense and the questioning about whether you’re imagining something or if it’s real.
+ - The face you give the world tells the world how to treat you.
+ - It’s humbling, to become the very thing you once mocked.
+ - Republicans go to Sam’s Club, Democrats go to Costco.
+ - There’s a difference between really loving someone and loving the idea of her.
+ - My dad had limitations. That’s what my good-hearted mom always told us. He had limitations, but he meant no harm. It was kind of her to say, but he did do harm.
+ - A town so suffocating and small, you tripped over people you hated every day. People who knew things about you. It’s the kind of place that leaves a mark.
+ - There’s no app for a bourbon buzz on a warm day in a cool, dark bar. The world will always want a drink.
+ - I waited patiently – years – for the pendulum to swing the other way, for men to start reading Jane Austen, learn how to knit, pretend to love cosmos, organize scrapbook parties, and make out with each other while we leer. And then we’d say, Yeah, he’s a Cool Guy.
+ - And if all of us are play-acting, there can be no such thing as a soul mate, because we don’t have genuine souls.
+ - I have a meanness inside me, real as an organ. Slit me at my belly and it might slide out, meaty and dark, drop on the floor so you could stomp on it.
+ - Coffee goes great with sudden death.
+ - I had no sympathy for drama queens.
+ - To pretend to be calm is to be calm, in a way.
+ - Ironic people always dissolve when confronted with earnestness, it’s their kryptonite.
+ - Friends see most of each other’s flaws. Spouses see every awful last bit.
+ - I like the discipline of writing a script. You can’t go into the character’s head – you have to find these creative ways to help externalize what they’re thinking.
+ - To spend a life in dreams, that sounded too lovely.
+ - Sleep is like a cat: It only comes to you if you ignore it.
+ - I assumed everything bad in the world could happen, because everything bad in the world already did happen.
+ - To be kissed on the lips by your husband is the most decadent thing.
+ - There was nothing I wanted to do more than be unconscious again, wrapped in black, gone away. I was raw. I felt swollen with potential tears, like a water balloon filled to burst. Begging for a pin prick.
+ - Everytime people said I was pretty, I thought of everything ugly swarming beneath my clothes.
+ - It’s impossible to compete with the dead. I wished I could stop trying.
+ - Love makes you want to be a better man. But maybe love, real love, also gives you permission to just be the man you are.
+ - She released her grievances like handfuls of birdseed: They are there, and they are gone.
+ - I don’t understand the point of being together if you’re not the happiest.
+ - What a generous thing that is, I realize, for a husband to try to make his wife laugh.
+ - I just think some women aren’t made to be mothers. And some women aren’t made to be daughters.
+ - My mother had always told her kids: if you’re about to do something, and you want to know if it’s a bad idea, imagine seeing it printed in the paper for all the world to see.
+ - I was raised feral, and I mostly stayed that way.
+ - The worst feeling: when you just have to wait and prepare yourself for the lie.
+ - I feel like I need to give people a note with the book that says, ‘I’m OK, no worries!’
+ - I think there is something very relatable in the idea that you hit a certain age, later in your life, where you realize you have to pick up the rug and see what’s underneath it and deal with stuff.
+ - Problems always start long before you really, really see them.
+ - To me, marriage is the ultimate mystery.
+ - I felt something loosen in me, that shouldn’t have loosened. A stitch come undone.
+ - Sometimes I think I won’t ever feel safe until I can count my last days on one hand.
+ - I can’t think of anything more crushing than slowly, over time, realizing exactly how wrong you were about someone.
+ - There are no really new stories anymore.
+ - I’m all for whatever transitions the book properly to a movie.
+ - We’re into this barrage of pop culture – you know, TV, movies, the Internet. We become creatures that we’ve made up, made of certain different flotsam from pop culture and certain different personas that are in style.
+ - Love should require both partners to be their very best at all times.
+ - I think mystery writers and thriller writers – whatever genre you want to call it – are taking on some of the biggest, most interesting kind of socioeconomic issues around in a really interesting, compelling way.
+ - Nick is like a good stiff drink: He gives everything the correct perspective.
+ - He was one of those guys who’d pronounce I’m a hugger as he came at you, neglecting to ask if the feeling was mutual.
+ - People focus on the darker female characters in my books, but for every one of those, I can also show you an equally screwed up man that no one ever comments about, or a nicer woman that no one comments about.
+ - I ached once, hard, like a period typed at the end of a sentence.
+ - I’ve always been partial to the image of liquor as lubrication, a layer of protection from all the sharp thoughts in your head.
+ - It was surprising that you could spend hours in the middle of the night pretending things were OK, and know in thirty seconds of daylight that that simply wasn’t so.
+ - To refuse has so many more consequences than submitting.
+ - Because isn’t that the point of every relationship: to be known by someone else, to be understood? He gets me. She gets me. Isn’t that the simple magic phrase?
+ - Women get consumed. Not surprising, considering the sheer amount of traffic a woman’s body experiences. Tampons and speculums. Cocks, fingers, vibrators and more, between the legs, from behind, in the mouth.
+ - My imagination is more tweaked by imagining the lives of the people who were there before us. I don’t need to give myself the willies. I’m quite good at that – I can freak myself out wherever I am.
+ - I have four or five ideas that just keep floating around and I want to kind of just let one – like a beautiful butterfly, let it land somewhere.
+
+89 quotes

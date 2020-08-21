@@ -1,0 +1,44 @@
+ - When we are aligned, everything can flow, and life and yoga becomes effortless.
+ - If you act scared, your body produces adrenaline.
+ - I don’t like talking about myself, if I’m honest.
+ - A good piece of art raises questions.
+ - One of the great things about the ‘Iron Man’ franchise is that they employ fascinating actors who don’t necessarily do action movies. Before ‘Iron Man’ you didn’t associate Robert Downey, Jr. and Gwyneth Paltrow with those kinds of films. There’s an emphasis on repartee and wit.
+ - I daydream about things I want to happen, but none of it is more complicated, most of the time, than just really hoping that the good parts and the well-written parts are the ones that turn up on my doorstep.
+ - I don’t think that anyone can really understand anything until it’s understood on a cellular, emotional level.
+ - It sounds trite, but I like telling stories.
+ - There’s always going to be a separate version of you that people will create, and you have no control over it.
+ - A floor length backless black sequined dress would be my dream dress. As for my dream date – that would have to be a young Marlon Brando!
+ - I quite enjoy cooking but I’m not consistent. I can’t follow the recipe book. If something goes well, I’ll never make it again, which is completely stupid. It’s a one-shot kind of deal.
+ - I suppose the reason why I like acting is because I’m curious about human nature, and the less I know about a character on the page, instinctively, in a way, the better.
+ - I love film acting – I’m not snobby about it. I don’t think that theater acting’s a more noble profession. I think they’re both very important. I love both. And in my dream world, I’d get to do both forever.
+ - Lentil dhal is the only thing I can cook.
+ - My childhood was very colourful, and I am very good friends with both my parents. We have no secrets.
+ - If pressed, I would say I feel British. It’s where I grew up and where I choose to live, the culture that I love, but I feel perfectly at home in America, I don’t feel like a tourist or anything.
+ - Sometimes you can incubate a character and that can take me a month just sitting on it imagining it, doing everything from sketching it to taking long walks, but sometimes you can see the character immediately. A lot of it is instinctive.
+ - I think loads of people see acting, when they’re kids, as these magical stories that just happen within the context of the film or the play or the cartoon or whatever they’re seeing. They don’t imagine that there are actually people that go and do that for a living.
+ - I used to have the most visceral response to having my photo taken. I felt like instantly bursting into tears and running out of the room. I hated all the attention, which is such a stupid thing for an actor to say.
+ - No family is sane, is it?
+ - Whenever I’m in theatre situations I will go out of my way not to talk about my father, but in the film world I can be really proud of my family and say, ‘You know what: my dad’s a really, really famous theatre director,’ because nobody has any idea.
+ - When I was 22, I thought I couldn’t wear heels because of my height.
+ - I’m very nerdy about my music, and I like interrogating people about what they put on playlists.
+ - I’m not consciously avoiding doing a lot of period drama, but I don’t really seek it out either.
+ - I think acting can be very frustrating, and there’s no experience that doesn’t make you a better actor.
+ - I’ve never been desperate to please my father.
+ - I’ve always had horrible Valentine’s Days.
+ - I read everything. I’ve always got a book on the go and I’m really nerdy about it, I get through books and don’t remember anything about them afterwards. But I read all sorts, from classic to contemporary.
+ - I was the kid that grew up watching Bette Davis films.
+ - One aspect of my mum’s personality that has influenced me is her love of Hollywood and the golden era of black-and-white films.
+ - I’ve played an awful lot of repressed people.
+ - I always look for contradiction in a character.
+ - I try and avoid thinking of strategy and I tend to stick to my gun of doing things that I like and try to avoid things that I “should” be doing, and stay true to that.
+ - I would say that maybe directors who act as well are easier with actors. I’m not saying that all directors have this, but sometimes you’ll come across a director who sort of looks at an actor a bit like a kind of untrained horse that’s been let out of the stable, like they might buck him.
+ - My mum’s American. She’s from Detroit.
+ - Of course, any job is scary, but you tackle the challenges head on and hope for the best.
+ - I can’t remember a time when I didn’t want to be an actor. It has just always been an inevitability on some level.
+ - As a child I loved ghost stories.
+ - Sometimes I can spend months doing things to make sure that my instincts work correctly, but ultimately it’s still instinctive.
+ - You either are a good director or you’re not.
+ - I don’t think that theater is the higher medium, that it’s better than film.
+ - I think for a long time it seemed like working in an art form and being a feminist meant portraying women in a perfect, angelic light. And there’s nothing feminist about that.
+
+42 quotes

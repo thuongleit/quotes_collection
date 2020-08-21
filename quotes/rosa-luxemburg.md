@@ -1,0 +1,36 @@
+ - Those who do not move, do not notice their chains.
+ - We will be victorious if we have not forgotten how to learn.
+ - Before a revolution happens, it is perceived as impossible; after it happens, it is seen as having been inevitable.
+ - There is no democracy without socialism, and no socialism without democracy.
+ - The most revolutionary thing one can do is always to proclaim loudly what is happening.
+ - Freedom is always the freedom of dissenters.
+ - Tomorrow the revolution will ‘rise up again, clashing its weapons,’ and to your horror it will proclaim with trumpets blazing: I was, I am, I shall be!
+ - Freedom is always and exclusively freedom for the one who thinks differently.
+ - Capitalism, as a result of its own inner contradictions, moves toward a point when it will be unbalanced, when it will simply become impossible.
+ - History is the only true teacher, the revolution the best school for the proletariat.
+ - Bourgeois society stands at the crossroads, either transition to socialism or regression into barbarism.
+ - The masses are in reality their own leaders, dialectically creating their own development process.
+ - The most revolutionary act is a clear view of the world as it really is.
+ - It is in the tiny struggles of individual peoples that the great movements of history are most truly revealed.
+ - The victory of socialism will not descend like fate from heaven.
+ - Marxism is a revolutionary worldview that must always struggle for new revelations.
+ - With the true artist, the social formula that he recommends is a matter of secondary importance; the source of his art, its animating spirit, is decisive.
+ - Being human means throwing your whole life on the scales of destiny when need be, all the while rejoicing in every sunny day and every beautiful cloud.
+ - Life is singing also in the sand crunching under the slow and heavy steps of the guards, when we know how to listen to it.
+ - Tomorrow the revolution will already ‘raise itself with a rattle’ and announce with fanfare, to your terror: I was, I am, I will be!
+ - Marxism must abhor nothing so much as the possibility that it becomes congealed in its current form. It is at its best when butting heads in self-criticism, and in historical thunder and lightning, it retains its strength.
+ - Bourgeois class domination is undoubtedly an historical necessity, but, so too, the rising of the working class against it. Capital is an historical necessity, but, so too, its grave digger, the socialist proletariat.
+ - The more that social democracy develops, grows, and becomes stronger, the more the enlightened masses of workers will take their own destinies, the leadership of their movement, and the determination of its direction into their own hands.
+ - The clergy, no less than the capitalist class, lives on the backs of the people, profits from the degradation, the ignorance and the oppression of the people.
+ - Freedom for supporters of the government only, for members of one party only no matter how big its membership may be is no freedom at all. Freedom is always freedom for the man who thinks differently.
+ - The working classes in every country only learn to fight in the course of their struggles.
+ - Without general elections, without freedom of the press, freedom of speech, freedom of assembly, without the free battle of opinions, life in every public institution withers away, becomes a caricature of itself, and bureaucracy rises as the only deciding factor.
+ - Only through the conscious action of the working masses in city and country can it be brought to life, only through the people’s highest intellectual maturity and inexhaustible idealism can it be brought safely through all storms and find its way to port.
+ - Only to the rude ear of one who is quite indifferent does the song of a bird seem always the same.
+ - Self-criticism, cruel, unsparing criticism that goes to the very root of the evil, is life and breath for the proletarian movement.
+ - We stand todaybefore the awful proposition: either the triumph of imperialism and the destruction of all culture, and, as in ancient Rome, depopulation, desolation, degeneration, a vast cemetery; or, the victory of socialism.
+ - Freedom only for the members of the government, only for the members of the Party – though they are quite numerous – is no freedom at all.
+ - The masses are the decisive element, they are the rock on which the final victory of the revolution will be built.
+ - The high stage of world-industrial development in capitalistic production finds expression in the extraordinary technical development and destructiveness of the instruments of war...
+
+34 quotes

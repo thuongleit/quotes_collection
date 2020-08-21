@@ -1,0 +1,32 @@
+ - Persevere and get it done.
+ - Health, happiness and success depend upon the fighting spirit of each person. The big thing is not what happens to us in life, but what we do about what happens to us.
+ - For a good life: Work like a dog. Eat like a horse. Think like a fox. And play like a rabbit.
+ - Winning is the science of being totally prepared.
+ - People of mediocre ability sometimes achieve outstanding success because they don’t know when to quit.
+ - Try not to do too many things at once. Know what you want, the number one thing today and tomorrow. Persevere and get it done.
+ - Forget the past – the future will give you plenty to worry about.
+ - Every day you waste is one you can never make up.
+ - The tougher the job, the greater the reward.
+ - The definition of success is total preparation.
+ - Losing the Super Bowl is worse than death. You have to get up the next morning.
+ - If you hate your job, don’t worry, you won’t have it for long.
+ - Every time you win, you’re reborn; when you lose, you die a little.
+ - Football is one-third offense, one-third defense, and one-third special teams.
+ - Football isn’t necessarily won by the best players. It’s won by the team with the best attitude.
+ - The idea of reasoning with terrorists without force or with appeasement is naive, and I think it’s dangerous.
+ - If you can accept defeat and open your pay envelope without feeling guilty, you’re stealing.
+ - We should favor innovation and freedom over regulation.
+ - Losers never know why they are losing. They will mention injuries, the officiating, the weather and bad breaks.
+ - I am one who believes that the people’s views and values are represented by those who they elect in the legislative branch and not unelected federal judges appointed for life.
+ - Success is what you do with your ability. It’s how you use your talent.
+ - Quit. Most men succeed because they are determined to...
+ - The street to obscurity is paved with athletes who perform great feats before friendly crowds. Greatness in major league sports is the ability to win in a stadium filled with people who are pulling for you to lose.
+ - Coaches try to beat each other from the ears up.
+ - Today the primary threat to the liberties of the American people comes not from communism, foreign tyrants or dictators. It comes from the tendency on our own shores to centralize power, to trust bureaucracies rather than people.
+ - We are so appreciative of the men and women in uniform who are protecting us, whether in Afghanistan or Iraq or on ships around the world. For our security, they are taking the offensive to the terrorists overseas.
+ - It is vital that the United States maintains open lines of communication with our allies. We must assure them of our commitment to eradicating global terrorism wherever it may reside or wherever it’s given haven.
+ - I rise today to offer a formal and heartfelt apology to all the victims of lynching in our history, and for the failure of the United States Senate to take action when action was most needed.
+ - I have always advocated for funding and programs that increase our productivity and competitiveness.
+ - What you do in the off season determines what you do in the regular season.
+
+30 quotes

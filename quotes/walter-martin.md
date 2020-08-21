@@ -1,0 +1,25 @@
+ - Text without context is pretext.
+ - Truth by definition is exclusive. If truth were all-inclusive, nothing would be false.
+ - Controversy for the sake of controversy is sin. Controversy for the sake of truth is a divine command.
+ - The moment you enlist in the army of God, you personally become a target. You need to remember that if you’re living for and walking with Jesus Christ, the powers of darkness are aligned against you.
+ - A key to strengthening spiritual muscles and enduring hardship is finding strength in the Word of God.
+ - Being in a rock band for 20 years is not the best resume for anything else.
+ - Are we willing to do for the truth what others are willing to do for a lie?
+ - However, the Bible is called the Word of God because the whole transcript is an inspired, faithful, and infallible record of what God determined essential for us to know about Himself, the cosmos in which we live, our spiritual allies and adversaries, and our fellow man.
+ - Who made God? Doesn’t matter. We are not responsible to a hypothetical maker of God but to our maker – God.
+ - The Doctrine of the Trinity teaches that within the unity of the one Godhead there are three separate persons who are coequal in power, nature, and eternity.
+ - God does say He will graciously entertain our prayers. He says that if we exercise faith, and if our request is in accordance with His will, He will hear us.
+ - What makes you a Christian is whether or not you really are in accord with biblical theology and whether you know Jesus Christ as your Saviour.
+ - I am a friend of Adventist people and a lover of truth.
+ - The very success of medicine in a material way may now threaten the soul of medicine.
+ - I feel more productive, mostly because I feel like my ass is on the line. Before I had kids, I would sit around, drink, I don’t even know what I did with myself...
+ - I thought some of Mrs. White’s material was prophetic. I felt some of her insights were extremely helpful and I regarded her as a sister in the Lord. I wasn’t out to attack Ellen White’s character.
+ - Looking back, you can romanticize the things you did back then. I also like talking about the stupid things I’ve done.
+ - It’s fun to write about myself, but I feel like I would bore people with that.
+ - A biblical false prophet was a servant of the devil attempting to lead people away from the truth.
+ - When I play stuff for my wife she’ll be like, “No, not that song. No way.”
+ - Writing about something specific, in my mind, was overwhelming, so I wrote about art because I love art and I know I can say a couple of funny things about art.
+ - Christ imparts the capacity of conquest to our lives every single day that we are willing to believe Him.
+ - In college I had to major in something, so I was like, “Okay I like art history, so I will major in that.” I never really had any ambitions to work in museums or anything, though.
+
+23 quotes

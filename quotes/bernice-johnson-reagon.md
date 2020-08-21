@@ -1,0 +1,32 @@
+ - Life’s challenges are not supposed to paralyze you, they’re supposed to help you discover who you are.
+ - If, in moving through your life, you find yourself lost, go back to the last place where you knew who you were, and what you were doing, and start from there.
+ - Today whenever women gather together it is not necessarily nurturing. It is coalition building. And if you feel the strain, you may be doing some good work.
+ - There is nowhere you can go and only be with people who are like you. Give it up.
+ - Coming up in the African-American culture, we were taught that we belonged to the universe and society was wrong in the way it dealt with us. We had to learn to express and affirm values not from the winning position.
+ - If every moment is sacred, and If you are amazed and in awe most of the time, when you find yourself breathing and not crazy, then you are in a state of constant thankfulness, worship and humility.
+ - I came out of the Civil Rights Movement, and I had a different kind of focus than most people who have just the academic background as their primary training experience.
+ - If I had been at a University I don’t think I would have been able to have the experience I had in my Smithsonian work. I don’t think I have been as successful.
+ - I went to a church where you could not sing out loud in the service until you had been saved.
+ - If we dwell in a community that is comfortable, then it’s probably not broad enough a coalition.
+ - Welcome to prekindergarten! You will not die if you discover that there are more lines out there than just your own. In fact, you’ll discover that you will have an advantage if you know more of them!
+ - I organized Sweet Honey In The Rock in 1973. The music was sanity and balance.
+ - What would you be like if you had white hair and had not given up your principles? It might be wise as you deal with coalition efforts to think about the possibilities of going for fifty years.
+ - I was at the Smithsonian for twenty years, and I’m still at the Smithsonian as a curator emeritus, and I still plan to figure out what that means for me at this point in my life.
+ - At the same time all this was happening, there was a folk song revival movement goingon, so the commercial music industry was actually changed by the Civil Rights Movement.
+ - The Smithsonian Festival of American Folklife, actually, was an effort to put something on the mall in Washington so American tourists could walk through America, and in their minds everything on the mall would be American.
+ - Personally I discovered that you could go through the academy as a young scholar, come out, and almost immediately have an impact on the academic environment.
+ - And I used to think that proof that I had religion was whether I knew how to sing all of the songs.
+ - It makes sense that whatever the topic is, it’s more compelling if you can provide the audience with a range of perspectives, and you can cross disciplines. And you don’t have to control what people take out of it.
+ - I just don’t think one person has that much to contribute to any subject.
+ - I think the Civil Rights Movement changed that trajectory for me. The first thing I did was leave school. I was suspended for my participation in Movement demonstrations in my hometown, December, 1961.
+ - I learned that if you bring black people together, you bring them together with a song. To this day, I don’t understand how people think they can bring anybody together without a song.
+ - I started graduate school in 1971, I started working at the Smithsonian in the festival in 1972. I went full-time at the Smithsonian in 1974. And I got my doctorate in 1975.
+ - The first job I had with the Smithsonian was as a field researcher among African American communities in Southwest Louisiana and Arkansas for the festival.
+ - But I’m a historian. I wasn’t interested in just being a producer, I was interested in doing research and presenting that research to a general public.
+ - In fact when Sweet Honey was ten years old it was too big for me to run, and I knew it, but I ran it for another thirteen years because I couldn’t convince other people to really do it. And this year, I’m not running it.
+ - So one of the things that happened with integration in the South is they found that the black teachers were much more educated than the white teachers.
+ - When I started graduate school I was interested in the culture of the Civil Rights Movement.
+ - Well, the first time I ran into the term religion, people were asking whether you had any. You know, some people had religion and some people didn’t have religion.
+ - The Civil Rights Movement also reaffirmed me as a singer. It taught me that singing was not entertainment, it was something else.
+
+30 quotes

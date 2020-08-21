@@ -1,0 +1,37 @@
+ - I’m living the best life that I could ever be living.
+ - There’s something magical about a woman who feels comfortable in her own skin.
+ - Most of the time I believe in letting kids go ahead and make their own mistakes – maybe even get a little hurt – and learn from them.
+ - I don’t want to say, ‘This is where I’m going to be in five years and I’m going to get there no matter what.’ I want to leave it open. I’m not a desperate actress dying to star in a B movie in a bikini.
+ - I just don’t think there’s a sunscreen that gives you enough protection.
+ - I think it’s such a blessing to be able to have a child, and good and bad, whatever you go through, it’s so worth it, and it’s such an unbelievable time – you have someone growing inside of you!
+ - I really believe in the environmental movement right now – it only takes a little effort to make a big difference.
+ - Once I started focusing on the things I wanted, they all started coming true.
+ - Women communicate with all their senses. Men don’t do that.
+ - I always loved family holidays, and I had this vision and dream as a little girl of having a big family of my own.
+ - I think with motherhood and child-rearing in general, everyone’s going to tell you how to do it and why. I’ve always said to other mothers and women when they’ve asked me, that you have to find your own way and find out what works for your family, at all costs.
+ - I’ve tried just about every crazy diet you can imagine.
+ - In the United States, viewers don’t get to see a lot of things we can show in other countries. We didn’t get to show our naked Twister game from Wild On Jamaica, but we definitely filmed it.
+ - There’s this whole assumption that girls like bad boys, but I have to disagree; I think ‘nice’ will go a long way.
+ - I don’t get stage fright, I actually love the energy, I love the spontaneity, I love the adrenaline you get in front of a live audience, it actually really works for me.
+ - I’m horrified of lobsters. And shrimp and lobsters are the cockroaches of the ocean.
+ - I don’t want to discuss my breasts with the whole world!
+ - What is age, anyway? I feel young because I’m beginning a new chapter in my life, which is so exciting!
+ - I write back to all the soldiers who write to me and send them posters and calendars.
+ - I think Halle Berry is one of the most beautiful women on the planet.
+ - I don’t have any regrets in my life actually. I think that’s a pretty good policy.
+ - I’ve always been a person that believes in eating often and eating smart, clean meals.
+ - I think a lot of women are underestimated.
+ - Whatever I’ve got going on, I play music to accompany me.
+ - Power and beauty come from a very deep place.
+ - Latin men are the most passionate men in the world – they may not be the most aggressive, but they are very passionate, very romantic.
+ - When I was a new mom, I used to think that life was going to be balanced, and I strived for that. But life is crazy!
+ - I think I’m a really hands-on mom.
+ - When I was young, I wanted to do something more low-key, like become a drummer in a rock band.
+ - A lot of cultures believe you take the placenta and you bury it and plant something.
+ - Forget all the bars and schmoozing and everybody checking out everybody else. My ideal date would be to park in a dark place, check out the stars, and have a great conversation. When all else fails, you can just make out.
+ - Hey, we all have our fear. Mine is bugs and lobsters!
+ - I’m also crazy about Pilates Plus, which I do three times a week. The class is 55 minutes, head to toe. In that short amount of time, I’ve done everything I need to do. And for a working mom, what could be better?
+ - I want to stick in live television. And I’m hoping to continue on in a second season of Rock Star. Plus, I’ve got my ‘Barely Brooke’ swimsuit line with Venus USA and my new calendar is coming out.
+ - My children keep me real and keep me honest.
+
+35 quotes

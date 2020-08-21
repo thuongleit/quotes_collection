@@ -1,0 +1,28 @@
+ - I am an unpredictable journey.
+ - My accent depends on whom I’m around.
+ - The imaginary world has always been the most fun place for me to be.
+ - The surest thing about me is that I will change my mind.
+ - If I had a great body, I’d be naked all the time.
+ - Depression is close to me, but suicide hasn’t been.
+ - I’ve just got a new house in Pacific Palisades. It’s really cute.
+ - Sometimes I miss the spirit of London, but it’s a very gray place.
+ - I look at smoking as a crutch, and as an actor I would like strip away as many crutches as possible.
+ - But Basquiat is the first thing I’ve done that I’m really proud of.
+ - I’m an illegal alien and have been for many years. If you rub my skin, I go green.
+ - When I was younger, I think I intimidated people much more because I was far more insecure.
+ - I’m lucky I had parents willing to be open and believe that an 11-year-old might know what she wanted to do. Or maybe they thought I’d find out that’s what I didn’t want to do.
+ - I was always ready to leave England for some absurd reason.
+ - The older I get, the more relaxed I am.
+ - Armani’s clothes are beautiful and modern and I love him.
+ - My parents are Italian and British. They live in Berkeley now – we all moved there four years ago.
+ - And I did a movie called Basil with Jared Leto and Christian Slater.
+ - The last three films I’ve done are about self-immolation.
+ - The weather in England can really darken your spirits.
+ - I’d come out to Los Angeles for a vacation to see a friend and just fell in love with it.
+ - I went to a private arts school. We had to wear cloaks.
+ - I’d be quite excited to play somebody British.
+ - There’s a higher form of happiness in commitment. I’m counting on it.
+ - When you work with Sir Anthony there are days when he will do a lot of takes if he’s really enjoying a scene.
+ - After I saw the first thing I ever did, I got a migraine.
+
+26 quotes

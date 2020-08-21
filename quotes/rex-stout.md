@@ -1,0 +1,81 @@
+ - There are two kinds of statistics, the kind you look up and the kind you make up.
+ - The constant petty behests of life permit few opportunities for major satisfactions, and when one is offered it should be seized.
+ - Measure your minds height by the shadow it casts.
+ - God made you and me, in certain respects, quite unequal, and it would be futile to try any interference with His arrangements.
+ - I love books, food, music, sleep, people who work, heated arguments, the United States of America, and my wife and children. I dislike politicians, preachers, genteel persons, people who do not work or are on vacation, closed minds, movies, loud noises, and oiliness.
+ - Afraid? I can dodge folly without backing into fear.
+ - The only thing I want is something I can’t have; and that is to know if, 100 years from now, people will still buy my books.
+ - We are all vainer of our luck than of our merits.
+ - Nothing is more admirable than the fortitude with which millionaires tolerate the disadvantages of their wealth.
+ - What do I believe in? Belief means faith, and there’s only one damned thing in the world I have any faith in. That’s the idea of American democracy, because it seems to me so obvious that that’s the only sensible way to run human affairs.
+ - I don’t answer questions containing two or more unsupported assumptions.
+ - All my important decisions are made for me by my subconscious. My frontal lobes are just kidding themselves that they decide anything at all. All they do is think up reasons for the decisions that are already made.
+ - A schedule broken at will becomes a mere procession of vagaries.
+ - The fricassee with dumplings is made by a Mrs. Miller whose husband has left her four times on account of her disposition and returned four times on account of her cooking...
+ - Labels are for the things men make, not for men. The most primitive man is too complex to be labeled.
+ - Opinions, from experts, cost money.
+ - No man with any sense assumes that a woman’s words mean to her exactly what they mean to him.
+ - There are two kinds of characters in all fiction, the born and the synthetic. If the writer has to ask himself questions – is he tall, is he short? – he had better quit.
+ - I have a strong moral sense – by my standards.
+ - A person who does not read cannot think. He may have good mental processes, but he has nothing to think about. You can feel for people or natural phenomena and react to them, but they are not ideas. You cannot think about them.
+ - Sarcasm is not the rapier of wit its wielders seem to believe it to be, but merely a club: it may, by dint of brute force, occasionally raise bruises, but it never cuts or pierces.
+ - There’s nothing as safe as ignorance or as dangerous.
+ - A character who is thought-out is not born, he or she is contrived. A born character is round, a thought-out character is flat.
+ - Wolfe scowled at her. I could see he was torn with conflicting emotions. A female in his kitchen was an outrage. A woman criticizing his or Fritz’s cooking was an insult. But corned beef hash was one of life’s toughest problems, never yet solved by anyone.
+ - I don’t approve of open fires. You can’t think, or talk or even make love in front of a fireplace. All you can do is stare at it.
+ - One of the hardest things to believe is that anyone will abandon the effort to escape a charge of murder. It is extremely important to suspend disbelief on that. If you don’t, the story is spoiled.
+ - A hole in the ice is dangerous only to those who go skating.
+ - MY rule is never to be rude to anyone unless you mean it.
+ - No man was ever taken to hell by a woman unless he already had a ticket in his pocket.
+ - I love to make a mistake. It is my only assurance that I cannot reasonably be expected to assume the responsibility of omniscience.
+ - Chili is one of the great peasant foods. It is one of the few contributions America has made to world cuisine. Eaten with corn bread, sweet onion, sour cream, it contains all five of the elements deemed essential by the sages of the Orient: sweet, sour, salty, pungent, and bitter.
+ - To read of a detective’s daring finesse or ingenious stratagem is a rare joy.
+ - I’m not a collector. I don’t keep letters, or books, or souvenirs. But I do keep one copy of each translation of my books into a foreign language. Have you ever seen a murder story printed in Singhalese? Wow!
+ - I understand the technique of eccentricity; it would be futile for a man to labor at establishing a reputation for oddity if he were ready at the slightest provocation to revert to normal action.
+ - I cannot agree that mountain climbing is merely one manifestation of man’s spiritual aspirations. I think instead it is a hysterical paroxysm of his infantile vanity.
+ - Only fools and philosophers waste time on the unknowable.
+ - It is always wiser, where there is a choice, to trust inertia. It is the greatest force in the world.
+ - One trouble with living beyond your deserved number of years is that there’s always some reason to live another year. And I’d like to live another year so that Nixon won’t be President. If he’s re-elected I’ll have to live another four years.
+ - A man may debar nonsense from his library of reason, but not from the arena of his impulses.
+ - I was reminding myself of the one basic rule for experts on females: confine yourself absolutely to explaining why she did what she has already done because that will save the trouble of explaining why she didn’t do what you said she would.
+ - Being broke is not a disgrace, it is only a catastrophe.
+ - The trouble with an alarm clock is that what seems sensible when you set it seems absurd when it goes off.
+ - The more you put in your brain, the more it will hold – if you have one.
+ - Sometimes it’s things that take the joy out of life, like a blowout when you’re hitting sixty or a button coming off of a shirt when you’re in a hurry, but usually it’s people.
+ - Women don’t require motives that are comprehensible to my intellectual processes.
+ - Dignities are like faces; no two are the same.
+ - Everything in a story should be credible.
+ - The requisitions of the income tax have added greatly to the attractions of mercenary crime.
+ - The incredible thing happens at the beginning of the story always, you notice, not the end. A Sherlock Holmes story is never a trick story.
+ - In a world that operates largely at random, coincidences are to be expected, but any one of them must always be mistrusted.
+ - Everyone has something they don’t want anyone to see; that is one of the functions of a home, to provide a spot to keep such things.
+ - If your ego is in good shape you will pretend you’re surprised if a National Chairman calls you to tell you his party wants to nominate you for President of the United States, but you’re not really surprised.
+ - I have never regarded myself as this or that. I have been too busy being myself to bother about regarding myself.
+ - I still can’t decide which is more fun – reading or writing.
+ - Man’s brain, enlarged fortuitously, invented words in an ambitious attempt to learn how to think, only to have them usurped by his emotions. But we still try.
+ - Subtlety chases the obvious up a never-ending spiral and never quite catches it.
+ - Every Sherlock Holmes story has at least one marvelous scene.
+ - I will ride my luck on occasion, but I like to pick the occasion.
+ - Any man who undertakes to write a play is either a damned fool or a hero, I don’t know which. When you write a book, you pull it out of the typewriter and that’s that. When you write a play you’ve got to go on with the producer and the director and the actors and the rehearsals and the...
+ - What the tongue has promised, the body must submit to.
+ - Genius is fine for the ignition spark, but to get there someone has to see that the radiator doesn’t leak and no tire is flat.
+ - There are damn few great writers and I’m not one of them. While I could afford to I played with words. When I could no longer afford that I wrote for money.
+ - As between the intolerable and the merely distasteful, I must choose the latter.
+ - As a professional writer of detective stories, I string along with the ballplayers. I love a ball game.
+ - If I’m home with no chore at hand, and a package of books has come, the television set and the chess board and the unanswered mail will have to manage without me if one of the books is a detective story.
+ - I think one or two of the later Holmes stories are among the best.
+ - There is only one object on earth that frightens me: a physicist working on a new trick.
+ - Of course the modern detective story puts off its best tricks till the last, but Doyle always put his best tricks first and that’s why they’re still the best ones.
+ - I like to walk around Manhattan, catching glimpses of its wild life, the pigeons and cats and girls.
+ - Hemingway never grew out of adolescence. His scope and depth stayed shallow because he had no idea what women are for.
+ - Bosh. I find a rival – but no, I won’t flatter myself that Tecumseh Fox would consider himself a rival of Dol Bonner – I find an eminent detective in your apartment, and that alone is enough, without adding that he is concealed in your bedroom while I am discussing my business with you...
+ - What good is an obscenity trial except to popularize literature?
+ - The brain can be hoodwinked but not the stomach.
+ - The Glass Key is better than anything Hemingway ever wrote.
+ - As I understand it, a born executive is a guy who, when anything difficult or unexpected happens, yells for somebody to come and help him.
+ - The only two kinds of books could earn an American writer a living are cookbooks and detective novels.
+ - War doesn’t mature men; it merely pickles them in the brine of disgust and dread.
+ - No man should tell a lie unless he is shrewd enough to recognize the time for renouncing it, if and when it comes, and knows how to renounce it gracefully.
+ - To say that a man is a reasoning animal is a very different thing than to say that most of man’s decisions are based on his rational process. That I don’t believe at all.
+
+79 quotes

@@ -1,0 +1,22 @@
+ - Nothing that happens on the surface of the sea can alter the calm of its depths.
+ - Sacred Activism is the fusion of the mystic’s passion for God with the activist’s passion for justice, creating a third fire, which is the burning sacred heart that longs to help, preserve, and nurture every living thing.
+ - Coming to know the hidden and forgotten Mother and the marvelous wisdom of the sacred feminine as revealed from every side and angle by the different mystical traditions is not luxury; it is, I believe, a necessity for our survival as a species.
+ - If you’re really listening, if you’re awake to the poignant beauty of the world, your heart breaks regularly. In fact, your heart is made to break; its purpose is to burst open again and again so that it can hold evermore wonders.
+ - Competition exists to choose who gets the prize when the prize can’t be shared.
+ - We are so addicted, either to materialism or to transcending material reality, that we don’t see God right in front of us, in the beggar, the starving child, the brokenhearted woman; in our friend; in the cat; in the flea. We miss it, and in missing it, we allow the world to be destroyed.
+ - When the passion of the mystic for God is married to the passion of the activist for justice, a new fire is born.
+ - Unless the human race realizes with a passion and reverence beyond thought or words its inter-being with nature, it will destroy in its greed the very environment it is itself sustained by.
+ - The very things we wish to avoid, neglect and flee from turn out to be the ‘prima materia’ from which all real growth comes.
+ - What breaks your heart, what you really love, is the thing that will sustain you. That’s what you ought to be doing.
+ - To be in a body is to hear the heartbeat of death at every moment.
+ - Unless our fundamental sacred connectedness with every being and thing is experienced deeply and enacted everywhere, religious, political, and other differences will go on creating intolerable conflict that can only increase the already dangerously high chances of our self-annihilation.
+ - What knowing the Mother means above all is daring to put love into action. The Mother herself is love-in-action, love acting everywhere and in everything to make creation possible.
+ - I have had the great good fortune of working with a true genius of yoga, Karuna Erickson, in developing a new system called Heart Yoga.
+ - The future of the world depends on the full restoration of the Sacred Feminine in all its tenderness, passion, divine ferocity, and surrendered persistence.
+ - The Mother’s knowledge of unity, her powers of sensitivity, humility, and balance, and her infinite respect for the miracle of all life have now to be invoked by each of us and practiced if the ‘masculine’ rational imbalance of our civilization is to be righted before its too late.
+ - It is up to the leader to create a healthy environment where people are not afraid to fail. Mistakes should be seen as an integral part of the organizational process. They are a normal part of striving for excellence.
+ - There are no solutions to life, but there is an experience of wholeness, of bliss, of being, of the deathlessness of the Divine Self, of Silence in all its multifacted, diamond splendor that heals all grief, all wounds, all questions.
+ - What a recovery of the wisdom of the Mother brings to all of us is the knowledge of inseparable connection with the entire creation and the wise, active love that is born from that knowledge.
+ - What we are here to do is to meet and become the person we are.
+
+20 quotes

@@ -1,0 +1,42 @@
+ - I don’t design clothes, I design dreams. ~~Ralph Lauren
+ - Dressing is a way of life. ~~Yves Saint Laurent
+ - Fashion is more art than art is. ~~Andy Warhol
+ - To pull off any look, wear it with confidence. ~~Audrey Hepburn
+ - I want to die with my blue jeans on. ~~Andy Warhol
+ - Be Royal in your Own Fashion: Act like a King to be treated. ~~Robert Greene
+ - Fashion is about dreaming and making other people dream. ~~Donatella Versace
+ - The joy of dressing is an art. ~~John Galliano
+ - When you don’t dress like everybody else, you don’t have to think like everybody else. ~~Iris Apfel
+ - Luxury must be comfortable, otherwise it is not luxury. ~~Coco Chanel
+ - The truly fashionable are beyond fashion. ~~Cecil Beaton
+ - A woman with good shoes i never ugly! ~~Coco Chanel
+ - There is a shade of red for every woman. ~~Audrey Hepburn
+ - Nothing tastes as good as skinny feels. ~~Kate Moss
+ - The life of a designer is a life of fight. Fight against the ugliness. Just like a doctor fights against disease. For us, the visual disease is what we have around, and what we try to do is cure it somehow with design. ~~Massimo Vignelli
+ - The importance of logo into today’s fashion is un! be! Lievable! ~~Karl Lagerfeld
+ - I was not designed to be forced. I will breathe after my own fashion. Let us see who is the strongest. ~~Henry David Thoreau
+ - I don’t really believe in any fashion rules. I think fashion is a form of self-expression. I think you can wear whatever you want! ~~Ariana Grande
+ - Some people think luxury is the opposite of poverty. It is not. It is the opposite of vulgarity. ~~Coco Chanel
+ - Fashion is not something that exists in dresses only. ~~Coco Chanel
+ - Great men are seldom over-scrupulous in the arrangement of their attire. ~~Charles Dickens
+ - I talk to fashion designers and say I want some money to save the rainforest, and they say, ‘Oh, I agree with you completely Vivienne. Yes, climate change, it’s definitely happening,’ but they don’t feel that they can do anything about it; they don’t even think ‘Well let’s stop it!’ ~~Vivienne Westwood
+ - Look for the woman in the dress. If there is no woman, there is no dress. ~~Coco Chanel
+ - The expression a woman wears on her face is far more important than the clothes she wears on her back. ~~Dale Carnegie
+ - Nothing makes a woman more beautiful than the belief that she is beautiful. ~~Sophia Loren
+ - The most courageous act is still to think for yourself. Aloud. ~~Coco Chanel
+ - Delete the negative; accentuate the positive! ~~Donna Karan
+ - A woman’s perfume tells more about her than her handwriting. ~~Christian Dior
+ - I decline Christianity because it is Jewish, because it is international, and because, in cowardly fashion, it preaches Peace on Earth. ~~Erich Ludendorff
+ - Vain trifles as they seem, clothes have, they say, more important offices than to merely keep us warm. They change our view of the world and the world’s view of us. ~~Virginia Woolf
+ - Your dresses should be tight enough to show you’re a woman and loose enough to show you’re a lady. ~~Edith Head
+ - Many stock options in the corporate world have worked in exactly that fashion: they have gained in value simply because management retained earnings, not because it did well with the capital in its hands. ~~Warren Buffett
+ - A beautiful dress may look beautiful on a hanger, but that means nothing. It must be seen on the shoulders, with the movement of the arms, the legs, and the waist. ~~Coco Chanel
+ - Style is the answer to everything. A fresh way to approach a dull or dangerous thing. To do a dull thing with style is preferable to doing a dangerous thing without it. To do a dangerous thing with style is what I call art. ~~Charles Bukowski
+ - Yves Saint Laurent is a young man of excellent taste; the more he copies me the more taste he displays. ~~Coco Chanel
+ - It costs a lot of money to look this cheap. ~~Dolly Parton
+ - Every jacket I make has interior pockets big enough to store a book and a sandwich and a passport. ~~Rick Owens
+ - The idea that we have the right to inflict suffering and death on other sentient beings for the trivial reasons of palate pleasure and fashion is, without doubt, one of the most arrogant and morally repugnant notions in the history of human thought. ~~Gary L. Francione
+ - Sweetheart, do not love too long: I loved long and long, And grew to be out of fashion Like an old song. ~~William Butler Yeats
+ - Sweatpants are a sign of defeat. You lost control of your life so you bought some sweatpants. ~~Karl Lagerfeld
+
+40 quotes

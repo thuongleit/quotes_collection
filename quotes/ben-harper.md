@@ -1,0 +1,107 @@
+ - It’s so hard to do and so easy to say but sometimes you just have to walk away.
+ - There’s no love like a lost love and no pain like a broken heart.
+ - Make sure the fortune that you seek is the fortune that you need.
+ - If I fall, I fall. I’ll rise up like anybody else.
+ - I knew a girl, her name was Truth. She was a terrible liar.
+ - Music is the last true voice of the human spirit. It can go beyond language, beyond age, and beyond color straight to the mind and heart of all people.
+ - I can change the world With my own two hands Make a better place With my own two hands Make a kinder place.
+ - When you have everything, you have everything to lose.
+ - Fearlessness, absolutely. Discipline. You also need open-minded creativeness that lets everything in. You never want to lose a word or a phrase, yet every one should count. Always the best language possible. And, finally, knowing when to leave it alone. Stop when it’s done.
+ - You’re definitely a different person at different stages in your life.
+ - If I’m inspired and music inspires me, then I will continue to play it.
+ - Take my hand when you are worried Take my hand when you’re alone Take my hand and let me guide you Take my hand to lead you home.
+ - If you don’t like my fire, then don’t come around. Cause I’m gonna burn one down.
+ - The world awakens on the run And will soon be earning With hopes of better days to come It’s a morning yearning.
+ - Try it first And you’ll see its a blessing And it’s not a curse.
+ - As long as someone else controls your history the truth shall remain just a mystery.
+ - I’m more afraid of falling than I am of flying high. I’m not as scared of dying as I am of growing old. Every battle has its glory and its consequence.
+ - You can run away from home But you can’t run away from your pain I sit here alone There’s always someone else to blame.
+ - Every moral has a story, every story has and end. Every battle has its glory, and its consequence.
+ - Love for me is my North Star. It’s the highest form of grace. And I love that there’s different levels and different ways of showing it, and different representations of it. Whether it’s love shown to a stranger, love to a sibling, your child, your parents, your partner.
+ - Sometimes I feel I know strangers Better than I know my friends Why must a beginning Be the means to an end? The stones from my enemies These wounds will mend But I cannot survive The roses from my friends.
+ - Now I love to feel that warm southern rain, Just to hear it fall is the sweetest sounding thing. And to see it fall on your simple country dress It’s like heaven to me I must confess.
+ - You can’t just say I love you, you have to LIVE I love you.
+ - Wish there was something that I could say or do, I can resist anything but the temptation from you. But I’d rather walk alone than chase you around, I’d rather fall myself then let you drag me on down.
+ - Forever always seems to be around when it begins, but forever never seems to be around when it ends.
+ - You look like gold. I’ve been fooled before, but now I know I’ve made the mistake in the past. But now I, now I know the difference from gold and brass.
+ - It will make a weak man mighty. it will make a mighty man fall. It will fill your heart and hands or leave you with nothing at all. It’s the eyes for the blind and legs for the lame. It is the love for hate and pride for shame. That’s the power of the gospel.
+ - I’m a living sunset, lightning in my bones.
+ - There’s no room in my life for religion. Religion is separation and segregation of God. How can you segregate the Almighty?
+ - People say, “How do you write songs?” I say, “Patience.” I may have a track that’s hot, but no words. I’ll just let it sit for years, because I know they’re going to meet. They’ll find it.
+ - We’ve all got stardust in our bones...
+ - When your whole world is shaken from all the risks we have taken, Dance with me, dance with me into the colors of the dusk.
+ - They say time will make all this go away. But it’s time that has taken my tomorrows and turned them into yesterdays.
+ - As long as the songs are strong, I think you can express yourself in any style and have it be soulful and have it be your own voice.
+ - It’s not easy for a mother and son to sing a duet. You can’t just sing about anything.
+ - I grew up listening to spiritual music, Blind Willie Johnson and folk.
+ - If you’re gonna live, then live it up. If you’re gonna give, then give it up. If you’re gonna walk the Earth, then walk it proud. If you’re gonna say the word, you got to say it loud.
+ - In my life I have been blessed In my life I have been cursed I have lived the best of times I have suffered the worst Do you know which road you’re traveling? Do you know where you want to be? With so many roads to travel, There’s just one can set you free.
+ - Genetics do play a role in how you consciously or subconsciously manifest your true self.
+ - Now that you’ve grown up You can finally learn to be a child We made it to the end of the world But we’ll never make it out alive.
+ - Of all the states of emotion I’ve ever been in, music takes me to the strongest state of emotion the quickest, of any other sort of state of mind I’ve ever been in or been put in by any substance or circumstance, music brings me to an emotional state of being faster than anything I’ve ever known.
+ - I refuse to age disgracefully in rock ‘n’ roll.
+ - Life’s the longest picture you’re ever gonna take.
+ - My head works in music, so there’s always music there.
+ - I write songs and I sing them from the deepest part of my existence and I hope they connect with the deepest part of yours.
+ - Could’ve sworn I heard you say Amen this morning, showing some kind of sign that you believe. Did it fall from your tongue without warning? Or just another trick to fall from your sleeve?
+ - With so many people to love in my life, why do I worry about one?
+ - These eyes weren’t made for crying, this love wasn’t made to waste. These arms weren’t made for battle, but to share in your embrace.
+ - The spirit is what guides my life, and I’m humbly on my knees in thanks for guidance and direction every day. But God is not something to be preached, it’s something to be lived.
+ - People who try to define their spirituality sometimes are annoying, ’cause the spirit is something you feel and let guide you and humbly respect.
+ - What enables me to believe in anything is hope.
+ - Some things You have to let be lost Some battles, some battles You have to leave unfought. Then the truth just wastes away In all we dare not say. And in all we can’t explain But I faithfully remain.
+ - Sometimes I may be totally arrogant, sometimes I may totally be the most humble guy you’ve ever met, sometimes I may be in between. But that’s life. Who isn’t like that? What’s the big deal if I had an arrogant moment.
+ - My family owns a music store in Claremont, California, called The Claremont Folk Music Center.
+ - You can kill a lot of time if you really want to put your mind to it Or leave it all behind and never really have to go through it.
+ - There’s only one proper way a song should go, but you’ve got to be patient enough to let them come together time wise. Sometimes it’s lightning in a bottle and you got the song. But oftentimes it shows up.
+ - You have to do what you believe in.
+ - The very thing that drives you, can drive you insane Got a head full of thought crimes and a number with no name Got an eleventh hour Jesus and a mouth full of blame A casket lined with silver dollars and a number with no name.
+ - It turns out that there is something more magnificent than nature. It’s love.
+ - If interviews are just interviews or if music is just music, why are we even doing it? You only get so many hours in a lifetime, man.
+ - The music is in the lead here, and a large part of this, I have no idea what I’m doing. I feel a closer bond with the craft of songwriting, stronger than I ever have.
+ - The woman in you is the worry in me.
+ - I get diminishing returns when I bore myself in an interview.
+ - I’m really looking forward to, not more of the same, but a continual growth.
+ - The Blind Boys are truly the deepest well of American musical heritage you can discover.
+ - Children come running to the truth But you’ve got to peel the skin to get the fruit And while one’s living high another’s grieving But what’s sweet by morning is bitter by the evening Oh – What’s sweet by morning is bitter by the evening.
+ - I really feel like the sky is the limit with the Innocent Criminals today.
+ - When you hear Doc Watson singing Amazing Grace, something else enters the room.
+ - My main concern when travelling around the world is finding a place to skateboard!
+ - If it comes out sounding like Dixieland jazz or classical or punk or rock or even slightly metal, that’s because that’s where I’m going to find inspiration.
+ - Every man’s actions belong to him.
+ - If you’re gonna live, then live it up.
+ - Don’t be discouraged by writer’s block. Writer’s block just means you need to listen to other music.
+ - I’m not going to do the Ben Harper house record or the Ben Harper drum ‘n’ bass record.
+ - Folk is bare bones music.
+ - I love being on the road, I love playing.
+ - Don’t let what you have to heal from blind you to how much there is to heal for.
+ - We’ve changed our reflections, but inside we’re just a child.
+ - When it comes to partnership, some humans can make their lives alone – it’s possible. But creatively, it’s more like painting: you can’t just use the same colours in every painting. It’s just not an option. You can’t take the same photograph every time and live with art forms with no differences.
+ - But I would never insult the people that love this music and I would never insult the blessing of music in my life and I would never insult myself by playing uninspired music.
+ - I’ve never made a record that didn’t sound better than what was in my head – that’s sort of my rule.
+ - I refuse to make uninspired music.
+ - I don’t know how to not become every person I walk by.
+ - That happens every time I get behind a guitar, regardless of what I’m saying, ’cause music is freedom and being free is the closest I’ve ever felt to being spiritual.
+ - Time is really for those who really need it. I mean, I deal with it. A lot of people are slaves to the second, minute hand. I can’t do that!
+ - The advice I have for new artists is this – write great songs and play them live as often as possible. Get residencies all over town and crush it.
+ - My band is the best band in the world, period. So, I insist on every song being better then it is on the record. So by the end of the tour, we have to be playing the song better then how it’s recorded.
+ - The lifetime we’ve left behind with strangers Promises and lies both have their dangers. I just can’t be wrong enough and I can’t hide for long enough So far away, but I still feel your pain.
+ - All that we can’t say is all we need to hear.
+ - Sometimes I think to talk too much about music almost cheapens it.
+ - It was a huge deal, a huge musical discovery that became life lessons learned. You can’t return from having an experience like that. The Blind Boys are truly the deepest well of American musical heritage you can discover.
+ - As a songwriter, I don’t rush. I may sit on lyrics for two years before the music hits.
+ - I want to try to not be the child that had to go through too much too young. I want to be who I am now and not who I was then.
+ - Every time feels like my first time. And I just find that the process of it feeds into one’s own self-obsession.
+ - My choice is what I choose to be.
+ - Let us burn one from end to end, and pass it over to me my friend...
+ - There’s something in everyone only they know.
+ - To go through this life and see it through – what it really is – and not be insane or addicted, is a minor miracle for anyone.
+ - The good news is at this point as I get older, the load has gotten heavier but my shoulders have gotten wider because I’ve gotten happier so it’s a damn good thing.
+ - I just want to keep doing what I feel.
+ - I really feel there’s no limitation on what this band can do in the studio or on the stage. That’s an empowering feeling – that we can bring a song to life.
+ - I want to try to be who I am today, not who I was yesterday.
+ - It just takes a pebble to bring down a good man.
+ - We figured you could download live shows for days, so we decided to go for a cream-of-the-crop approach, but not just take the best vocal or the best performances.
+ - Every single time I step into the studio, I say, ‘Can I still do this? Do I still have it? Have I ever had it?’ I suppose there’s a good amount of self-loathing that goes into any form of artisanship.
+
+105 quotes

@@ -1,0 +1,57 @@
+ - Sensuality without love is a sin; love without sensuality is worse than a sin.
+ - To be ready to fail is to be prepared for success.
+ - A belief which leaves no place for doubt is not a belief; it is a superstition.
+ - What is reasoned has nothing to do with what is reasonable.
+ - Ignorance is learned; innocence is forgotten.
+ - Tradition simply means that we need to end what began well and continue what is worth continuing.
+ - The thirst for adventure is the vent which Destiny offers; a war, a crusade, a gold mine, a new country, speak to the imagination and offer...
+ - A piece of advice always contains an implicit threat, just as a threat always contains an implicit piece of advice.
+ - To light one candle to God and another to the Devil is the principle of wisdom.
+ - The quality of a man’s mind can generally be judged by the size of his wastepaper basket.
+ - Life is a dangerous adventure, says the American, and he is half right: life is dangerous, but it’s not an adventure.
+ - To be thirsty and to drink water is the perfection of sensuality rarely achieved. Sometimes you drink water; other times you are thirsty.
+ - You can hesitate before deciding, but not once the decision is made.
+ - There are those who dance to the rhythm that is played to them, those who only dance to their own rhythm, and those who don’t dance at all.
+ - You need to have a God, a lover, and an enemy, says the poet. Exactly: you need to have three enemies.
+ - Man is a question; woman is an answer. The mistake women make today is to offer themselves as answers before being questioned.
+ - True art tries not to attract attention in order to be noticed.
+ - The only time a man thinks is when he’s alone.
+ - Happiness is always a coincidence.
+ - A woman who does not become the slave of just one man becomes the slave of all men.
+ - The man who spends all his time looking up to heaven is not always the best; in fact, he is usually the worst.
+ - If you really believe music is dangerous, you should let it go in one ear and out the other.
+ - To be young is to live in the hope of escaping youth; to be old, in the despair of having succeeded.
+ - Effort and result are never simultaneous. In art, only the result counts.
+ - You can say the opposite of something you’ve said but you can’t do the opposite of something you’ve done.
+ - Those who are scandalized by a naked body – thinks the Devil – are easy prey: they are already doomed.
+ - Drinking spirits cannot cause spiritual damage.
+ - The most original sin is not the thinker’s but the poet’s.
+ - Erik Satie does not say the opposite of Debussy; he says the same thing only the other way round.
+ - The barometer that shows “variable” is an ironic indictment of God.
+ - Who learns most from a good book is the author.
+ - The man who gets drunk in peacetime is a coward. The man who gets drunk in wartime goes on being a coward.
+ - When there is nothing to fear is the time to begin fearing everything.
+ - The novel is born of disillusionment; the poem, of despair.
+ - All true tradition usually appears revolutionary.
+ - Try not to turn your life into a race, least of all an obstacle race.
+ - In love, it is the weak who strike and the strong who caress.
+ - I fear only that which I love, says man, according to Montaigne. Woman replies: I love only that which I fear.
+ - It may be impossible to have a revolution without crimes but that does not make revolution a crime.
+ - Even if you’re not going anywhere, don’t get in the way.
+ - There are no good or bad habits. All habits are, by definition, bad.
+ - Do we have to talk in order to agree or agree in order to talk?
+ - A rocket is a reed that thinks brilliantly.
+ - Morality measured in centimeters: all mothers believe that only their daughters dance decently.
+ - An ignorance of Marx is as frequent among Marxists as an ignorance of Christ is among Catholics.
+ - Art is good but it isn’t the best.
+ - Theology is the logic of the Devil.
+ - A rocket is an experiment; a star is an observation.
+ - We say of an animal that it is intelligent, and we say the same thing of a woman; but in neither case is it usually appropriate, clearly for very different reasons.
+ - The first condition for making music is not to make a noise.
+ - Only one thing has to matter for everything to matter.
+ - When you are listening to music it is better to cover your eyes than your ears.
+ - A German immersed in any civilization different from his own loses a weight equivalent in volume to the amount of intelligence he displaces.
+ - When the English have scored a goal, they think nothing more remains to be done.
+ - A reformer knows neither how to do nor to undo.
+
+55 quotes

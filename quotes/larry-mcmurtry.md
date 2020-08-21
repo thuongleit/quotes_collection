@@ -1,0 +1,58 @@
+ - If a warrior lacked wisdom, courage alone would not keep him alive for long.
+ - Nothing good ever comes without a price.
+ - If you want one thing too much it’s likely to be a disappointment. The healthy way is to learn to like the everyday things, like soft beds and buttermilk – and feisty gentlemen.
+ - A woman’s love is like the morning dew. It’s just as likely to settle on a horse turd as a rose.
+ - If you wait, all that happens is that you get older.
+ - Incompetents invariably make trouble for people other than themselves.
+ - Writing is a form of herding. I herd words into little paragraph-like clusters.
+ - Yesterday’s gone on down the river and you can’t get it back.
+ - A man who wouldn’t cheat for a poke don’t want one bad enough. – Augustus “Gus” McCrae.
+ - It’s a fine world, though rich in hardships at times.
+ - You know Deets is like me – he’s not one to quit on a garment just because it’s got a little age – spoken by Augustus McCrae.
+ - If I had a mind to rent pigs, I’d be mighty upset. A man that likes to rent pigs won’t be stopped.
+ - Anyway, whacking a surly bartender ain’t much of a crime.
+ - The earth is mostly just a boneyard. But pretty in the sunlight.
+ - I think its a sickness to grieve too much for those who never cared a fig for you.
+ - Uva uvum vivendo varia fit.
+ - People would be bored shitless if they had to love only the good in someone they care about.
+ - Texas is rich in unredeemed dreams.
+ - It’s really quite simple. Mr. Isinglass robbed my father, destroyed my mother, exiled my brothers, and ruined me. If I catch him asleep I’ll kill him. I do hope you like this pudding. I had to ride quite a way to find the plums.
+ - From him to the stars, in all directions, there was only silence and emptiness.
+ - I suppose you set up reading the Good Book all night-spoken by Woodrow Call.
+ - The lives of happy people are dense with their own doings – crowded, active, thick. But the sorrowing are nomads, on a plain with few landmarks and no boundaries; sorrow’s horizons are vague and its demands are few.
+ - You expect far too much of a first sentence. Think of it as analagous to a good country breakfast: what we want is something simple, but nourishing to the imagination. Hold the philosophy, hold the adjectives, just give us a plain subject and verb and perhaps a wholesome, nonfattening adverb or two.
+ - Only a rank degenerate would drive 1,500 miles across Texas without eating a chicken fried steak.
+ - Occasionally the very youngness of the young moved him to charity – they had no sense of the swiftness of life, nor of its limits. The years would pass like weeks, and loves would pass too, or else grow sour.
+ - The tradition I was born into was essentially nomadic, a herdsmen tradition, following animals across the earth. The bookshops are a form of ranching; instead of herding cattle, I herd books. Writing is a form of herding, too; I herd words into little paragraph-like clusters.
+ - No illusion is more crucial than the illusion that great success and huge money buy you immunity from the common ills of mankind, such as cars that won’t start.
+ - I never met a soul in this world as normal as me.
+ - Part of the trick of being happy is a refusal to allow oneself to become too nostalgic for the heady triumphs of one’s youth.
+ - Certainly on the vast windy plain, there was plenty of nothing to be looked at.
+ - The Western notion of masculinity goes back a long way. It doesn’t allow for women, and it’s also racist – it doesn’t allow for other cultures.
+ - Maybe you can make art out of unredeemed pain, but only if you’re a genius – Dostoyevsky perhaps.
+ - The only bookstore I had was the paperback rack at the drugstore.
+ - Listening to women ain’t the fashion in this part of the country.
+ - Through my college years, topping that ridge had always given me a great sense of being home, but time had diminished the emotion and I had begun to suspect that home was less a place than an empty page.
+ - A bookman’s love of books is a love of books, not merely of the information in them.
+ - The older the violin, the sweeter the music.
+ - Mystery is underrated, and understanding is overrated.
+ - I don’t see how being married could be any worse than listening to you talk for twenty years, but that still ain’t much of a recommendation for it.
+ - Self-parody is the first portent of age.
+ - You can scare off a lot of cowboys just by looking mean, I guess.
+ - But the English are different, and they don’t know how to be other than different.
+ - Razzy was insulting me silently somehow.
+ - He had known several men who blew their heads off, and he had pondered it much. It seemed to him it was probably because they could not take enough happiness just from the sky and the moon to carry them over the low feelings that came to all men.
+ - In times of crisis human beings don’t have it in them to be rational.
+ - Backward is just not a natural direction for Americans to look – historical ignorance remains a national characteristic.
+ - I once owned a collection of 77 novels that won the Pulitzer. The only good novel of the bunch was The Grapes of Wrath.
+ - If we know anything about man, it’s that he’s not pacific. The temptation to butcher anyone considered undesirable seems to be a common temptation, not always resisted.
+ - A man that will go along with six killings is making his escape a little slow.
+ - They say money kinda melts when you take it across a border.
+ - I don’t do well with changes in my routine. I read at least three newspapers a day, for example. I’m frustrated if for some reason I can’t get ahold of all three.
+ - There isn’t a thought in my head I care to be alone with for more than five minutes.
+ - Death and worse happened on the plains.
+ - Members of the Academy are mostly urban people. We are an urban nation. We are not a rural nation. It’s not easy even to get a rural story made.
+ - The reason men are so awful is because some woman has spoiled them.
+ - Though loyal and able and brave, Pea had never displayed the slightest ability to learn from his experience, though his experience was considerable. Time and again he would walk up on the wrong side of a horse that was known to kick, and then look surprised when he got kicked.
+
+56 quotes

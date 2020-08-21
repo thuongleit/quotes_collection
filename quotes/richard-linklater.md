@@ -1,0 +1,49 @@
+ - The idea is to remain in a state of constant departure, while always arriving.
+ - Memory is a wonderful thing if you don’t have to deal with the past.
+ - Being alone is better than sitting next to a lover and feeling lonely.
+ - The trick is to combine your waking rational abilities with the infinite possibilities of your dreams. Because, if you can do that, you can do anything.
+ - Filmmakers are going to make films, just like painters are going to paint.
+ - I always think that I’m still this 13-year old boy that doesn’t really know how to be an adult, pretending to live my life, taking notes for when I’ll really have to do it.
+ - It’s disappointing to see films become pure entertainment, so that it’s not an art form.
+ - If you establish rules and play by them, the audience will buy in.
+ - Yeah, a memory’s never finished, if you really think about it.
+ - There are a million ideas in a world of stories. Humans are storytelling animals. Everything’s a story, everyone’s got stories, we’re perceiving stories, we’re interested in stories. So to me, the big nut to crack is to how to tell a story, what’s the right way to tell a particular story.
+ - Monogamy, monotony. There’s only a couple of letters...
+ - The big nut to crack is to how to tell a story, what’s the right way to tell a particular story.
+ - We all give ourselves a lot of leeway, but we want consistency from other people.
+ - No one is asking what happened to all the homeless. No one cares, because it’s easier to get on the subway and not be accosted.
+ - I worked offshore as an oil worker for a couple of years.
+ - Whatever story you want to tell, tell it at the right size.
+ - I can’t help but think that at the end of your life, when you look back, there’ll be a tone. And that tone will come from the essence of how you live your day to day what you did in that between time because that is really your life.
+ - Well, you have to keep your faith in the fact that there are a lot of intelligent people who are actively looking for something interesting, people who have been disappointed so many times.
+ - I think I got really lucky with Slacker. That was a film that probably shouldn’t have been seen.
+ - I’d be fine to make movies and have them never come out. But you have to deal with the business side. You can’t get too emotionally invested, because again, you’ve got no control. There’s going to be some huge film out that everyone goes to, and it probably won’t be mine.
+ - It’s hard to see a film one time and really “get it,” and write fully and intelligently about it. That’s a review. That’s not film criticism.
+ - Before Sunrise did very well internationally. It made as much in Italy and Korea as it did here.
+ - I’m lucky that I get to jump around, do a big-budget comedy and then a smaller film. I don’t even make a big distinction between them. No one believes this, but it’s the same. I’m the same person, trying to make it work. I just love being on a movie set. I like making movies.
+ - The rules of parenting have changed. By the modern definition, we were a generation of neglected children.
+ - In a sea of stories, find the right one to tell, and the right way to tell it.
+ - Everyone is encouraged to see their lives, the world through the eyes of the rich.
+ - I’ve always liked the minds of criminals, they seem similar to artists.
+ - I’ve always been most interested in the politics of everyday life: your relation to whatever you’re doing, or what your ambitions are, where you live, where you find yourself in the social hierarchy.
+ - When you’re trying to get laid, everything’s great, but once you’ve been with someone eight years and the future is not finite, you have time to sit and really examine every little thing that irritates you.
+ - I didn’t have any set idea of what kind of filmmaker I wanted to be. I knew I wanted to tell stories that meant something to me, but I never said I was going to be the weird, avant-garde guy.
+ - As we know from our government, the more power you have, the more of a bureaucrat you are, and the more ego you have invested in being right, the greater the odds are that you will never change your opinion.
+ - I’ve never been a guy who had more than a toe in Hollywood anyway, so my toe is more easily lopped off than most.
+ - The worst thing is that you used to be able to show interesting films on campuses. Those places are all gone.
+ - People think drama drives story, but I think the comedy is really the heart and soul.
+ - I always sensed instinctively from the earliest age that I was being lied to.
+ - I do find myself at the moment, due to the success of School of Rock, to be on people’s radar a little.
+ - The truth will only be told over a career.
+ - It’s luck that one thing works out and one doesn’t, it’s sort of happenstance.
+ - Hollywood has a way of sucking the world’s talent to it.
+ - I want to make a film about a factory worker.
+ - I did The Newton Boys and during the whole process of making the film, I may have spent a week in Los Angeles.
+ - There are so many great artists, I think, who kind of suffer from being icons, legends, acknowledged masters.
+ - It has to be very tight to seem loose.
+ - Something about Texas I’m not proud of is that our state murdered 37 people last year alone.
+ - I think you get in trouble if you make experimental big studio films.
+ - As a teenager, I wanted to write novels. By college, it was theater, plays, and then, shortly, it was film.
+ - I think maybe making films is something innate you can’t really teach to begin with.
+
+47 quotes

@@ -1,0 +1,56 @@
+ - I’ve developed a self-discipline since the time I was a child.
+ - I don’t use the phrase ‘I love you’ very often, but I say it every time I talk to my children.
+ - He’s pulling him off! The Spanish manager is pulling his captain off.
+ - Women want honesty but sometimes get upset if you are honest, so you need to know when to be honest.
+ - Real Madrid are like a rabbit in the glare of the headlights in the face of Manchester United’s attacks. But this rabbit comes with a suit of armour in the shape of two precious away goals.
+ - The Baggio brothers, of course, are not related.
+ - The worst drug of today is not smack or pot – it’s refined sugar.
+ - There are a lot of self important people who make you believe they’re artistes and high on the intelligence quotient and I’ve sat down and listened to them and just been bored.
+ - That’s a yellow card for Cazoria. So the next time he’s involved in Europe, he won’t be.
+ - A world-class playboy once told me that the key to mesmerising women is to listen to them and look deeply into their eyes.
+ - The truth of it is that women are far more logical than men.
+ - I never took the work less than serious, my work ethic is ingrained in me. But I’ve always had a sense of humor about myself.
+ - My mother was a star-struck girl from a little town in Arkansas who had gone to finishing school in New York, and whose mother had given her anything she ever wanted.
+ - I’m not saying it’s safe to go sit out in the sun all day but I don’t believe that sun is bad for you.
+ - Women love romance, but they’re not as romantic as men.
+ - Acting has always been something for me that’s been a romp. I just show up and I have a good time, and I hope that I get through the day and I can have lunch in the sun.
+ - I thought, better to get out while I’m still alive.
+ - There are two schools of thought. A manager would tell you that must make them realize you’re a dedicated actor and I took a totally different route than that. I never ever took myself seriously.
+ - A woman beautiful facially can negate all her beauty by no longer being feminine.
+ - It’s my personal opinion, and I’m not espousing it to anybody else, I think your immune system and how healthy you are determines how you react to any excess of any kind.
+ - Women don’t like men who know they’re good looking. They’d much prefer a man who doesn’t know he’s good looking.
+ - It’s always amazing to me the idiosyncrasies people end up disliking others for.
+ - Ze soldiers are very hoppy shooting ze pipples who say that ze pipples are not hoppy.
+ - Basically, I’m a shy human being. Very introverted.
+ - He caught that with the outside of his instep.
+ - Hyypia rises like a giraffe to head the ball clear.
+ - When people realize you’re not the stuffed shirt they think you are it’s such a relief and you have people who really like to be around you.
+ - What that situation really needed was a little eyebrows.
+ - I’m kind of like a relic from another era.
+ - Here’s Henry, trying to burst the bubble still further, if indeed it needs more bursting.
+ - There’s no telling what the score will be if this one goes in.
+ - It’s hard for people to get their hands around fame, because it’s heady stuff, and you have to look at it as being dangerous explosives, and you have to handle it with care.
+ - When I said they’d scored two goals, of course I meant they’d scored one.
+ - I’m not known as a singer, but in life I like to do things that are a bit beyond my reach to keep myself from slipping.
+ - It flew towards the roof of the net like a Wurlitzer.
+ - We don’t really know what Iran are capable of when the gun is put to their head.
+ - The eiderdown of this 2-0 lead is a lot more comfortable than the blanket of 1-0.
+ - I doubt anyone in Hollywood has had more ‘dates’ than me.
+ - And in reaching out and doing these new things you get into this strange kind of shape where you are better off than if you were just resting, because you’re using things that wouldn’t otherwise be mute.
+ - Democracy, if it meant what our forefathers said, that would be great, but unfortunately it’s been corrupted by this funding and funding of campaigns. There’s a much better way to do it. There could be a small amount of money given by every taxpayer to be dedicated to candidates.
+ - A lot of actors flame out.
+ - I always adored Cary Grant. I was fascinated by him. But I could never get too close to him.
+ - I can tan quickly. What takes people hours to do, I can tan in half an hour.
+ - I always felt people who took themselves seriously were kind of boring.
+ - I consume an enormous number of books, but they’re always on a particular subject because I’m obsessive.
+ - Once, as an experiment, I travelled around the world with a single suit. Before I left, I went to a tailor in Savile Row and asked him to make me a suit that I could wear in any climate and which I could use as a tuxedo, a dinner jacket, a lounge suit and a blazer.
+ - Referee Norlinger is outstanding in the sense that he stands out.
+ - The midfield are like a chef, trying to prise open a stubborn oyster to get at the fleshy meat inside.
+ - Democracy has now become corrupted by the nature of the funders.
+ - While I put forth the suntan and the teeth and the cavalier attitude, I’ve survived under the worst of eras and times, and I’ve always had a good time doing it, because I never really took myself seriously, nor did I take life seriously because it is already terribly serious.
+ - I’m not somebody who runs from the press. I’m not coy. I appreciate the press I’ve had over the years.
+ - I’ve never turned down an autograph request. I’ve never not taken a picture with someone.
+ - Shay Given almost single-handedly won the match for Newcastle against Everton, although obviously he didn’t score the goals.
+ - I’m my own doctor. I have a group of people who call me up on a weekly basis. I’m a ‘doctor’ without a license.
+
+54 quotes

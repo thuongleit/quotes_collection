@@ -1,0 +1,111 @@
+ - I have sold my soul to the devil.
+ - Belief is self-knowing. Even Yoda out of Star Wars said, do or do not. There is no ‘try’
+ - If a vacuum cleaner salesman rings your front door, he will be selling HIMSELF first. The vacuum cleaner is secondary.
+ - I don’t wait for the calendar to figure out when I should live life.
+ - There are many really stupid ideas that wind up being brilliant, if you can implement them.
+ - I love money, I love women, I like to work hard and I don’t use drugs.
+ - Within the perfect situation, not everything is perfect.
+ - Walk amongst the natives by day, but in your heart be Superman.
+ - With just a little effort, life can be more or less exceptionally tolerable.
+ - It’s hard to see your destination when you’re focused on the cracks in the sidewalk.
+ - It’s better to be an octopus than a fish. If an octopus loses a tentacle to a predator, the octopus will survive with seven tentacles left for itself.
+ - You need to eat, but you don’t really need to eat filet mignon every night or buy bottles of champagne at a thousand a pop.
+ - Life is too short to have anything but delusional notions about yourself.
+ - Being a Jew, you realize your strongest weapon is your mind.
+ - Trees acquire strength by growing slowly and flexing with the pressures of nature. Us too...
+ - You can’t start motoring up life’s road until you get your buns in gear.
+ - The makeup is simply an extension of the personality and colors, clothing, makeup all express something.
+ - Never underestimate the power of being popular in pop culture. You have to be able to do something. You can have a good seat at the restaurant, but you still have to pay for the meal. Fame is important, but to be rich is more important.
+ - Don’t believe bands who say it’s all about the fans and they want to give their music away for free. The result is they will continue to live in their mother’s basement.
+ - You can’t go through life and leave things the way they are. We can all make a difference, and if I die today, I know I made a difference.
+ - Get rid of the friends who want you to spend your whole day doing nothing with them. They’re not your friends. They’re your enemies.
+ - I don’t wanna go on vacation. There’s nothing about it that appeals to me. People look forward to doing that; I look forward to getting up every day and doing something.
+ - When you really think about it, I’m not delusional enough to think that what I do is important to life as we know it on this planet. No. But neither is what you do.
+ - I’d like to think that the boring lady who’s talking to me now is a lot sexier and more interesting than the one who’s doing NPR. You know, studious and reserved, and – I bet you’re a lot of fun at a party.
+ - What we have is pretty meaningless. It’s what we are that counts.
+ - I would urge all bands that say they only care about credibility and don’t care about money to send Gene Simmons every dollar that they don’t want. I’d be happy to take it off them.
+ - Rock bands are a lot like football teams: If a guy is on drugs and messes up, get someone else who’s proud to wear the uniform and be part of the team.
+ - Rock is about finding who you are. You don’t necessarily have to play your instrument very well at all. You can just barely get by and you can be in a rock band.
+ - Unless you took courses in architecture, engineering, or pre-med, the rest of your liberal arts education hardly prepares you for life as the business warrior and champion you envision yourself to be.
+ - When you’re busy doing your own stuff it’s like running a race. You try not to look over your shoulder to see who else is in the race, you do the best you can.
+ - Music is the only industry where you don’t need to know what you’re doing to get ahead. Well, that and politics.
+ - Kiss is not a charity. Never, ever mix commerce and charity.
+ - The Beatles weren’t like any other band. Everybody in the band sang, which is why you knew everybody in the band.
+ - Every other band should be wiping my ass. The line forms over there to the left.
+ - Never negotiate with kids. They don’t have life experience, and they don’t have repercussions for bad decisions; they still get fed and housed.
+ - England is a profoundly bizarre place that has produced thousands of bands the world has worshipped.
+ - Fame is important, but to be rich is more important.
+ - Television and comic books are, and continue to be, probably the biggest influence in my life. It’s the biggest influence on everybody’s life.
+ - You and I and everyone else have the attention span of gnats. And that means that saying or doing anything once simply doesn’t work.
+ - I crave ideas, and when an idea hits me, it grips me and it tortures me until I master it.
+ - I was never interested in being a rock star. I always wanted to be Boris Karloff.
+ - When you are a rock star in front of 20,000 people, you receive instant gratification. A rock star on tour is a king in his domain.
+ - James Bond has a license to kill, rockstars have a license to be outrageous. Rock is about grabbing people’s attention.
+ - Our perception of yesterday is the foundation for our expectations of tomorrow.
+ - If you look at YOURSELF as the brand, then you will understand an intrinsic truth: People judge.
+ - I’m aware, as a sane person, that I’m not the best-looking guy in the world. I’m aware of it. But when I go into a party, I will walk out with your girlfriend.
+ - You know why I’m pulling your leg? Because I can’t touch it from where I am.
+ - Sugar-free ice pops are an invention of God. They hardly have any calories since they’re mostly water. I eat about 15 pops every two days.
+ - Marriage is an institution, and you must be fully committed to it.
+ - Kiss is a Fourth of July fireworks show with a backbeat.
+ - It’s in the history books, the Holocaust. It’s just a phrase. And the truth is it happened yesterday. It happened to my mother. I never met my grandmothers or my grandfathers. They were all wiped up in the gas chambers of Nazi Germany.
+ - We don’t know whether or not it’s the Farewell Tour odr the Jews in Space Tour, which I prefer as a title.
+ - When you walk through a bad neighborhood, you don’t want a poodle by your side. You want a Rottweiler.
+ - I would recommend you watch the movie ‘Jobs’ starring Ashton Kutcher, if you don’t have time to read Jobs’s biography.
+ - Most people are so busy living they neglect to take the time to ask why.
+ - The biggest financial pitfall in life is divorce. And the biggest reason for divorce is marriage.
+ - I’m fascinated with myself and love hearing the sound of my own voice. I’d like to hear what I have to say. A lot of people don’t like being alone because they truly don’t like themselves, but I love me.
+ - I refuse to stand up in front of a rabbi and my friends and the woman I love – who I will tell you I can love with all my heart – and promise she will be the only one I will ever have until the day I die. Thats a lie.
+ - Elvis is the king of rock and roll, who made white kids shake there shackle.
+ - Believe me, the library is the temple of God. Education is the most sacred religion of all.
+ - The root of all evil isn’t money; rather, it’s not having enough money.
+ - There are no limitations to any of our dreams.
+ - Better to discuss everything out in the open while you’re in love, then if or when the relationship sadly ends. It’s called Full Disclosure Before The Fact.
+ - I think it’s pathetic that women and men treat each other worse than we treat our pets. It’s love or hate.
+ - A good marriage can be ruined by poor communications – and by forgetting to put the lid back down.
+ - The only jobs kids have are to do well in school, to be charming and polite, and be thankful. That’s it. I’ll house you, protect you, I’ll even give my life for you, and in return, you will behave.
+ - My mother is probably the wisest person I’ve ever known. She’s not schooled, she’s not well read. But she has a philosophy of life that makes well-read people seem like morons.
+ - Wealth for its own sake is an empty shell. Wealth that includes making other people’s lives better will reward you even more than the beautiful mansion you live in.
+ - I’m in a weird band. We’ve done very well. The American Dream is alive and well.
+ - Happy new year everbody! And remember: be kind to eachother.
+ - Ladies, first and foremost: you’re on your own. No more rules neatly laid out for you to follow. You have to make up YOUR OWN rules.
+ - My mother had a horrific life. At fourteen, she was in the Nazi concentration camps. Her sense about life now is, every day above ground is a good day.
+ - When you look at Clark Kent when he’s working at the Daily Planet, he’s a reporter. He doesn’t fly through the air in his glasses and his suit.
+ - My sense is that file sharing started in predominantly white, middle- and upper-middle-cl ass young people who were native-born, who felt they were entitled to have something for free, because that’s what they were used to.
+ - If you’re the greatest, it’s okay to say you’re the greatest. My suggestion to everybody is to be their own greatest fan. Weaker personas and personalities define that as egotistical or arrogant, but what it means is their self-esteem isn’t that strong.
+ - The sad thing is most people have to check with someone before they do the things that make them happy. We’re all passing through; the least we can do is be happy, and the only way to do that is by being selfish.
+ - Your date will not be impressed by you throwing up on her brand-new shoes, as you spout poetic babblings that are meaningful only to you.
+ - There is nothing that I would do ever to break my mother’s heart.
+ - I worship scones and danishes. If I never had another meal, I wouldn’t care as long as I could eat pastries and jelly doughnuts.
+ - I like to approach every day like it’s the only day I will ever have.
+ - Nobody does just one thing. But the real difference between being an entrepreneur and everyone else in the world is the ability to monetize. I am an entrepreneur in the classic mold.
+ - Fans like their heroes simple. I’m supposed to stick out my tongue twenty-four hours a day and do nothing else.
+ - I know that you like to see a man in the kitchen, but I’m skeptical of men who cook. A man should be focusing his attention on the woman, and not what’s on the stove.
+ - Gene Simmons planned on being a success the moment he launched himself out of his mother’s womb.
+ - If you’re a man in your twenties or thirties, and you have yet to make your fortune, I would urge you not to get married.
+ - Coming back to Israel is a homecoming.
+ - I fly economy. I do often fly first class, but I don’t travel with a posse, or bodyguard, or an assistant.
+ - Fiscally, I’m very conservative. I don’t believe in welfare states. I believe in giving people jobs.
+ - To be in a band on the road is to have anything and everything you want just by picking up the phone.
+ - I also learned that I love making money. Anyone who is not afraid of work will be happy with the money they make.
+ - People are only what we believe them to be.
+ - If you choose to become a smoker, you are an idiot, and you may lack the discipline and intelligence to be a successful entrepreneur.
+ - The problem you ultimately want to have, as an entrepreneur, is deciding who to help, not deciding who can help you.
+ - Why is it that most of the folks I know think “personal growth” is caused entirely by those second and third helpings of biscuits and gravy?
+ - My skin is more beautiful than yours. I would be quite more popular in jail if I so chose.
+ - First, when I was 12, I saw a Spanish girl jumping rope. I never saw her face, but it was still the most beautiful sight I’d ever seen.
+ - You have to understand that nothing appeals to everybody.
+ - People who are the salt of the earth get up and go to a job that they hate.
+ - If you look at the CEOs of some the most successful companies in the world like IKEA, they never fly first class. They always go economy.
+ - Live well – respire frequently.
+ - I’m forbidden fruit. Once you go to certain households, mommy doesn’t want you to see that dirty man who sticks his tongue out and spits out blood and all that stuff.
+ - I voted for President Bush, I voted for President Clinton, and, although I do want my vote back, I voted for President Obama.
+ - If your songs connect with the fans and they pump their fists in the air and go “Yeah!!” that’s when a song really works. That’s the electric church of it. The glory hallelujah of it.
+ - I wanted to be in a band that gave bang for the buck. I wanted to be in the band who didn’t look like a bunch of guys who, you know, should be in a library studying for their finals.
+ - No one has the right to shake his finger in your face.
+ - I’m from Israel, so America has no limits. I started a record label, and then I started managing other artists, like Liza Minelli.
+ - The only thing wrong with marriage is that one of the persons involved is a man.
+ - Let’s say you’re a garage mechanic, and you have big dreams about opening up your own chain of branded garages around the country. Terrific.
+ - I think I know it all, relatively speaking.
+
+109 quotes

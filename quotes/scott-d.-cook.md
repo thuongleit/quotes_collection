@@ -1,0 +1,21 @@
+ - A brand is no longer what we tell the consumer it is – it is what consumers tell each other it is.
+ - For every one of our failures, we had spreadsheets that looked awesome.
+ - So I think instead of focusing on the competition, focus on the customer.
+ - Mutual funds were created to make investing easy, so consumers wouldn’t have to be burdened with picking individual stocks.
+ - Be dramatically willing to focus on the customer at all costs, even at the cost of obsoleting your own stuff.
+ - QuickBooks – the very fact that we could even dream to make something in the business arena, and that it would then succeed – was a total revolution to me.
+ - We’re still in the first minutes of the first day of the Internet revolution.
+ - The changing nature of money is only one facet of the financial services revolution.
+ - Today more people believe in UFOs than believe that Social Security will take care of their retirement.
+ - A whole generation of Americans will retire in poverty instead of prosperity, because they simply are not preparing for retirement now.
+ - Even the once simple home mortgage now has so many flavors and styles and variations that it is difficult for people to make a decision.
+ - Well, today people have to be self-reliant if they want a secure retirement income.
+ - Even some of the greatest technology-led revolutions, or allegedly technology-led, really were only made possible because of trends already present.
+ - Thirty to 40 years ago, most financial decisions were fairly simple.
+ - Technology is similarly just a catalyst at times for fundamental forces already present.
+ - The current institutionally provided retirement plans will not cover people’s needs upon retirement.
+ - Fifty years ago wealth was stored and transmitted physically through gold bars, stock certificates, bank notes, and coins.
+ - Subsequent to the original Quicken, the whole idea that we, as a consumer products company, could actually make business products, that was a whole revolution in our thinking.
+ - People don’t place their trust in government or company pension plans; they have to be self-reliant.
+
+19 quotes

@@ -1,0 +1,101 @@
+ - This Life is More than Just a read through.
+ - When I looked into her eyes, I saw an invisible spirit of something that I already loved.
+ - I don’t even bother trying to picture a perfect world, because I don’t think that perfection is something to strive for. I prefer imperfection. That’s what makes things special. You know, things that change.
+ - I think there is always going to be inspired music and there are always going to be inspired listeners and there is always going to be an inspired method of getting it from A to B.
+ - I’m not a true vegan.
+ - I had not had any drugs for 5 years but then I relapsed again. I have also smoked nearly everything. Every day it was a battle to recover, which I fought for my son and myself.
+ - To be 26 years old and lose your left heart ventricle was probably the most dramatic thing that’s ever happened to me in my life.
+ - When you start putting pen to paper, you see a side of your personal truth that doesn’t otherwise reveal itself in conversation or thought.
+ - I know I’m in the band and everything but sometimes I just have to rock out to the John Frusciante Experience.
+ - Adolescence is such a fun time in your life, because you think you know it all, and you haven’t gotten to the point where you realize that you know almost nothing.
+ - What I’ve realized over the years is that I have some pretty good friends.
+ - Just the kind of girl I liked – the weirdo in the bunch.
+ - If that’s what you’re thinking, then don’t even question it. Go let your freak flag fly, brother.
+ - Music itself was color-blind but the media and the radio stations segregate it based on their perceptions of the artists.
+ - I like the idea of defying the convention of what it is to be in your 40s, or 50s, or 60s.
+ - Give her the continent and she wanted the hemisphere.
+ - Even as the words came out of my mouth, my heart was dying a million deaths.
+ - Every true artist is at war with the world.
+ - I’m probably not long-term-relationship material for now.
+ - I’m a crier, let me know if you need some tips. I could cry every day, in a good way.
+ - I inherited my father’s insatiable desire to meet all the beautiful girls in the world.
+ - I’m very aware of the chemistry. It’s something you can’t take for granted. I’m very thankful for it and I recognise the power of its reality in all of our lives. Some people don’t and it’s a mistake not to because people throw away god-given special chemistry that’s very rare, very hard to find.
+ - She was probably the girl I loved the most of all my girlfriends, but also the toughest one to make things work out with. If I had put that much effort into any of my other relationships, I’d be married with five kids now.
+ - What doesn’t kill you only makes your book longer.
+ - Death by evaporation. May the saltwater wind that gets shot out of a barreling wave blow me away like an old puffy dandelion into the sky.
+ - Your mouth was made to suck my kiss.
+ - Personally, I am stuck with one foot in the past and one foot in the present.
+ - Honestly, I’m really just a teddy bear.
+ - Sometimes life’s so much cooler when you just don’t know any better and all the painful lessons have not hammered your head open yet.
+ - I was like a clock that had exploded- my springs were hanging out, my hands were cockeyed, and my numbers were falling off.
+ - Buddhism helps me to have a healthy relationship with my body and spirit.
+ - Four years into the life of my son, I realize I’m so in love with him and he’s so in love with me that if I don’t find that lifelong partner out there, it’s okay.
+ - I discovered surfing, which I absolutely fell in love with. That feels good and kind of keeps your body aligned, so does the salt water.
+ - It was because all we wanted was each other’s constant love and attention and for no one else to receive that love and attention, which is a selfish and difficult place to be in a relationship. We were emotionally retarded, and that was the best we could do at the time.
+ - I didn’t have to go all the way to India for spiritual enlightenment. The blue-collar spirituality of everyday life was right in front of me, it was in every nook and cranny if I wanted to seek it, but I had chosen to ignore it.
+ - I’m still a little bent, a little crooked, but all things considered, I can’t complain.
+ - Sometimes, out of really horrible things come really beautiful things.
+ - As long as a person is breathing, there is hope for them.
+ - I don’t worry about new young bands. The bounty of life is infinite and so is music and so are opportunities.
+ - I never felt like dying was a good idea.
+ - As a father now, I wouldn’t do what my dad did, because it left me feeling emotionally unstable as a kid. But he didn’t do the things he did out of selfishness or malice.
+ - You instinctively know that nothing will ever be the same, and you have to carry that knowledge around with you like a huge weight. The next time you see your girl, you can’t look her straight in the eyes the same way you did for all those years.
+ - I knew there was never anyone to blame when people get into drugs. They’re always responsible for their own behavior, and it’s not the dealer, it’s not the friend, it’s not the bad influence, it’s not the childhood.
+ - I stopped hating and started just being. My whole life, I had been the most defensive person you’d meet, unable to tolerate any criticism. But now I started listening and being.
+ - Once I opened my mind to the concept of a greater power, I never struggled with it. Everywhere I went, I felt and saw the existence of a creative intelligence in this universe, of a loving power larger than myself in nature, in people, everywhere.
+ - The fact my relationship with my son is so good makes me forgiving of my father and also appreciative.
+ - I was a little self-centered gutter punk in the early 1980s and all I wanted to do was diss everybody.
+ - We did that with people like Chris Rock, Woody Harrelson, and the environmentalist Julia Butterfly Hill.
+ - I plan to surf more – learn the way of the wave.
+ - My sobriety isn’t up for discussion, but as for vices, I seem to hack away at them with my invisible machete from dawn till dusk. The vice of ‘more’ is an ongoing theme.
+ - When I was younger, I used to hate Germany. I hated the country, the people, the language, the culture, everything! But over the years I’ve grown to really appreciate the German people.
+ - Every time you empty your vessel of that energy, fresh new energy comes flooding in.
+ - I had seen these transformations, people who had lost their will to live, coming back from their zombie states and radiating a new life force from their eyes.
+ - Also, we’re all actually different blood types and we have one represented by each guy in the band.
+ - I don’t take drugs nor drink since 2000 and I must say that I don’t think about it anymore, although like every person that was addicted and has money – I know that this can lead to temptation.
+ - When you realize that there’s a name and a description for this condition that you thought was insanity, you’ve identified the problem, and now you can do something about it.
+ - Desecration is the smile on my face.
+ - I would consider him definitely one of my very best friends and I know he feels the same about me. We have a lot of love and respect.
+ - I know my dad is a big Internet freak, and he’s been known to be a Wikileaker.
+ - It seems like the chaos of this world is accelerating, but so is the beauty in the consciousness of more and more people.
+ - It takes away a lot of the thrill of killing yourself when people are looking for you and you’re disappointing them, because it is a lot of fun when you’re out there killing yourself.
+ - Changing and inventing new things is great. That’s what we like to do.
+ - I’ve got used to touring. If you make calculations of the nights spent in hotels in my life, multiplied by the tattoos I have for hundred.
+ - You know, I like to climb trees and ride bikes and play.
+ - We’ll have these people hang out with us while we’re doing our touring, and talk to them and let them speak their piece to the world.
+ - A rock star never gets old!
+ - I think dying is the ultimate high.
+ - In terms of having high hopes that the level of consciousness will get higher and higher, yeah.
+ - The fact that I was a junkie for a long time is only one slice of my own personal pie, which is made up of a lot of different slices.
+ - I was starting to come to grips with the fact that I had created a lot of pain and suffering around me, not just within me.
+ - I don’t even know what words to use to talk about the music industry anymore. But the business has changed a lot – the methods of releasing music.
+ - I think art is inherently nonviolent and it actually occupies your mind with creation rather than destruction.
+ - My father rebelled ferociously against his conservative upbringing where his father physically abused him.
+ - It didn’t matter if I got bitten by a dog or I ripped my pants on the fence post or I poked myself in the eye with a tree branch that I was crawling over, it was all about the shortcut. My whole life I took the shortcut, and I ended up lost.
+ - I would have to say the person with whom I am most in love is definitely my son, Everly Bear. Although I’m his dad, I’m also his friend.
+ - Well, I get excited about music.
+ - I find it hard to meet the right woman as people assume I’m a certain type of person – which I’m not.
+ - My work was done, so it was time to start digging my grave again.
+ - You know I love pot, and I love beer, but I am totally sober, just because it completely stopped working for me.
+ - I have to laugh at myself.
+ - Once you’ve seen a solution to the disease that’s tearing you apart, relapsing is never fun.
+ - The road is not a problem.
+ - Time and distance have a way of playing tricks with your best intentions.
+ - It was like the Wizard of Oz had spoken, and what he said was too ludicrous to take seriously.
+ - The sad thing is, people don’t want to believe that the person they’re in love with is out of his mind, drinking and using, so if you give them even half an excuse, they’re going to want to believe it.
+ - Now I can look back and say I actually like the upbringing I had and my father was very attentive and a great educator.
+ - I think I’m still figuring out how to be a little less selfish.
+ - We’ve just learned how to balance ourselves a little better so that we’re happier way more of the time than not, and, you know, being happy is a radical and desirable act if you ask me.
+ - Nothing was working, and my friend was dead, and I didn’t want to look at that.
+ - I wish there were more good new bands that would light a fire and offer a little friendly competition that would be welcomed.
+ - I think people that have fear that, ‘Oh if I have a kid I won’t be able to do this and I won’t be able to do that.’ It’s kind of the opposite. It really gives you energy. It makes people better.
+ - When we get together to rehearse, we could write music together all day long – GOOD music.
+ - She wasn’t about to go down that road herself, which was a testament to her spiritual awakening and her commitment to sanity. It was a real blessing that she didn’t follow me, because oftentimes, people go out together and one comes back and the other doesn’t. Or both of them never do.
+ - I didn’t really get to Led Zeppelin until I was in my 20s.
+ - Writing music always happened for me in periods when I wasn’t under the influence of mind-altering substance.
+ - I know whatever my father did, in his own way, he still loved me.
+ - If you want to get along with somebody, let them be right, and it will last longer.
+ - I never really thought in terms of the concept of being a rock star – being around people like that just seemed like normal day-in-the-life stuff to me. Those were just the surroundings I grew up in.
+ - I had to educate him that there was no such thing as writer’s block, that writers write when they write, and when they don’t, they don’t.
+
+99 quotes

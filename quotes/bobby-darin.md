@@ -1,0 +1,48 @@
+ - My family comes first. Maybe that’s what makes me different from other guys.
+ - It isn’t true that you live only once. You only die once. You live lots of times if you know how.
+ - If you don’t try, if you don’t do something for yourself, you won’t get anywhere.
+ - My entire life has been a lie.
+ - Show me any top entertainer or top business executive, and I’ll show you a guy who has mapped out his life from the very start.
+ - Memories are like moonbeams, we do with them what we will.
+ - Conceit is thinking you’re great; egotism is knowing it.
+ - My philosophy is to take one day at a time. I don’t worry about the future. Tomorrow is even out of sight for me.
+ - Maybe I should quit the business. There’s no one left for me to love. Mama’s dead. Mr. Burns couldn’t care less about me. What’s left?
+ - I’ve got a dream lover, so I don’t have to dream alone.
+ - Everybody thinks I’m at death’s door, but I’m not. There’s nothing seriously wrong with me, and my heart is in 100 percent working order. Anything else you may hear is a damn lie!
+ - Everybody, sooner or later, will have to go under the knife. Let’s hope they make out as well as I did.
+ - There is nothing wrong with being afraid – but there is nothing more wrong than allowing that to be your master.
+ - Nearly everything I do is part of a master plan to make me the most important entertainer in the world.
+ - Who am I that I have to sing under an umbrella? These people are my fans, and if they can stand in the rain to hear me sing, I can stand in the rain.
+ - Mr. Burns comes out and flips cigar ashes on his shoes, and makes up about 90 percent of what you hear.
+ - It was as though all my hostilities, anxieties, and conflicts were in one ball that was flying away into space, farther from me all the time, leaving me content with myself.
+ - Any fool knows that bravado is always a cover-up for insecurity. That’s the truth. And on that note, I’ll say goodnight. God love you.
+ - I’ve done a lot of things and I’ve been a lot of people, but now I’ve come to realize who I am.
+ - The Democratic Party of California is ready to sponsor me. All I have to do is find the right office to run for.
+ - There are certain times I don’t want my picture taken. If my wife’s stepping out of a car and it looks like it’s going to come out an indecent picture, don’t I have a right to object?
+ - I am now a turtle. Virtually everything I own is on my back and suffice it to say I am one ton lighter and therefore 2,000 pounds happier. All houses are gone.
+ - George Burns was the father I never had.
+ - I don’t know what it is to love the way they love-they would jump off a bridge for me. I can’t do that. I can only say, I owe you.
+ - I don’t care if I never do another TV show in my life.
+ - It happens to the best of them. You lay off singing and your throat gets out of practice. No excuses. I blew it.
+ - A-well-a, splish, splash, I forgot about the bath, I went and put my dancing shoes on.
+ - Just call me a family man and an actor who digs his whole scene, side interests and all. Just say I feel mighty good at the ripe old age of 27.
+ - You’re either sexy or you’re not. I’m very self-conscious about my physiognomy.
+ - I could have a roomful of awards and it wouldn’t mean beans.
+ - I decided I was going to give up singing and concentrate on acting, and a result of that, I didn’t do another film for two to three years, and I don’t blame it on anybody but myself.
+ - I’m a singer who moves like a dancer.
+ - When I come out and sing the first few bars of Bill Bailey, it’s very exciting.
+ - This marriage is no one’s business but our own.
+ - Sure my career means a hell of a lot, but it will never come before Sandy and my son.
+ - I don’t want to be able to see the audience.
+ - A comedian’s body is funny as well as his mind being funny, his whole personage is funny.
+ - A group or an artist shouldn’t get his money until his boss gets his.
+ - I want to make it faster than anyone has ever made it before. I’d like to be a legend by the time I’m 25.
+ - I wrapped a towel around me and I opened the door, and then I splish, splash, I jumped back in the bath. Well, how was I to know there was a party going on?
+ - I have worked with a great many comedians as opposed to comics, although I have worked with comics as well, I make the distinction.
+ - I want to do drama, light comedy, the whole range.
+ - My goal is to be remembered as a human being and as a great performer.
+ - I had these shoes made and 2 to 3 inch lifts inside and the heel was another 2 and half inches. I walked around that way, wherever I could without falling over.
+ - I’m more married to Sandy now than when we were married with the legal document. We’re still married as parents.
+ - I think Flip Wilson is a brillant comedian.
+
+46 quotes

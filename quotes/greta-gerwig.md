@@ -1,0 +1,35 @@
+ - I’ve never had a plan, I’ve always done things from instinct.
+ - I love shooting in New York because I love the city. Ultimately, I like doing it there and the city is important to the story, but it can be hard to shoot where you live too because it is so all-absorbing.
+ - I live in New York, and I love New York as well, but I think Los Angeles is a place where if you have the right person with you, there are all these little worlds that you would never guess by just looking at the exterior of what the city is.
+ - You keep learning how to let go and to live the life that you actually have, as opposed to the life you thought you were going to have.
+ - I like people who love books and movies and art and want to talk about it all the time, because that’s basically what I want to talk about. Intellectuals that are funny.
+ - I like movies about women behaving badly, because women behave badly just like men, and we’re not always adorable and cute about it.
+ - I like things that look like mistakes.
+ - I love just seeing shots of New York inside of a fictional movie that are not controlled. I do not like shots with extras, I have to say. I don’t mind extras in other scenes, but I love New York City streets just as they look. I don’t even care if someone looks at the camera. It doesn’t bother me.
+ - I’m not saying that everyone needs to be celibate, but you don’t need a romance to complete a story about a woman.
+ - When I felt like I was looking down the barrel of nothing on the horizon it was hard for me.
+ - I didn’t know the city at all, but I was so happy to be in New York I cried. I was so excited.
+ - I don’t do well when I don’t work.
+ - If you’re with one person, then you don’t have to meet other people. It’s like when you’re acting in a movie, you don’t have to audition for other movies. I prefer that.
+ - There are a million little things, but one of the best ways to get to know characters is to just put them in situations and see what they say.
+ - I can say I’m a relationship person, and I like relationships. I think I also like relationships because then you don’t have to date because dating is horrible.
+ - When I did plays in high school and college, I never remember memorizing my lines, but once I had blocking, I had all my lines memorized. Once I had movement associated with words, it was fine. Before I had blocking, it was just text on a page. Once it became embodied, it was much easier.
+ - Getting bad reviews or doing something thats not great is also really good for you as an actor. It also makes me feel as an actor that Ive earned my stripes a bit.
+ - I’m just a relationship girl. I fall in love and I usually have long relationships. I like getting to know people well and having substantive, long relationships.
+ - Using the energy in a scene can really cut the fat off of something and streamline it. It can make it work for you and activate it for you in a way.
+ - Let your characters talk to each other and do things. Spend time with them – they’ll tell you who they are and what they’re up to.
+ - You feel sadness for time passing. New York is a city that keeps reinventing itself, and I love it so much.
+ - I had dreams, but I didn’t have the sense that they would necessarily work out. They seemed very far-fetched.
+ - I think in theater the playwright is king. Those words are unchangeable. They are the reason that everything else flows from.
+ - I think it’s really hard to work in a city where you live too, because I get so absorbed with the movie that I become a bad friend and a bad participant in my own life.
+ - Movies are now more often watched on the small screen anyway. But at least for me, what got lost in that is the difference in the medium.
+ - We would go down to Riverside, California, which is very poor now, but that’s where my grandfather grew up. He grew up during the Depression in Riverside.
+ - In college, it’s very easy to maintain your female friendships because you’re in such close proximity all the time.
+ - I like acting and things when I like the writing. If I don’t like the writing, I don’t like acting. I think in some ways everything starts for me from the place of writing.
+ - I think as an actress, I prefer having a character on the page. It allows you to be more invested in actually creating a whole person. It’s easier when you’re not trying to come up with your next line on the spot.
+ - In relationships, you learn a million things. I’m sure a therapist can tell you about it.
+ - I’m not really capable of memorizing stuff without moving around, that’s how I do it.
+ - Sometime female characters, especially in the genre of something that people consider rom-com, make mistakes in a cute way or they’re a mess in a way that’s palatable. I like that.
+ - The economy is rough. I think that affects everyone from big filmmakers to tiny filmmakers.
+
+33 quotes

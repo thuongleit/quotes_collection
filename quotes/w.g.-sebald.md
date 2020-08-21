@@ -1,0 +1,37 @@
+ - It is thanks to my evening reading alone that I am still more or less sane.
+ - Tiny details imperceptible to us decide everything!
+ - And so they are ever returning to us, the dead. At times they come back from the ice more than seven decades later and are found at the edge of the moraine, a few polished bones and a pair of hobnailed boots.
+ - Men and animals regard each other across a gulf of mutual incomprehension.
+ - Time, that most abstract of humanity’s homes.
+ - At the time I could no more believe my eyes than I can now trust my memory.
+ - We all have appointments with the past.
+ - To set one’s name to a work gives no one a title to be remembered, for who knows how many of the best of men have gone without a trace? The iniquity of oblivion blindly scatters her poppyseed and when wretchedness falls upon us one summer’s day like snow, all we wish for is to be forgotten.
+ - Like our bodies and like our desires, the machines we have devised are possessed of a heart which is slowly reduced to embers.
+ - The more images I gathered from the past, I said, the more unlikely it seemed to me that the past had actually happened in this or that way, for nothing about it could be called normal: most of it was absurd, and if not absurd, then appalling.
+ - No one can explain exactly what happens within us when the doors behind which our childhood terrors lurk are flung open.
+ - We learn from history as much as a rabbit learns from an experiment that’s performed upon it.
+ - Human civilization has been no more than a strange luminescence growing more intense by the hour, of which no one can say when it will begin to wane and when it will fade away.
+ - I believe that the black-and-white photograph, or rather the gray zones in the black-and-white photograph, stand for this territory that is located between life and death.
+ - By all means be experimental, but let the reader be part of the experiment.
+ - I have always kept ducks, even as a child, and the colours of their plumage, in particular the dark green and snow white, seemed to me the only possible answer to the questions that are on my mind.
+ - Only in the books written in earlier times did she sometimes think she found some faint idea of what it might be like to be alive.
+ - At the most we gaze at it in wonder, a kind of wonder which in itself is a form of dawning horror, for somehow we know by instinct that outsize buildings cast the shadow of their own destruction before them, and are designed from the first with an eye to their later existence as ruins.
+ - There is something peculiarly dispriting about the emptiness that wells up when, in a strange city, one dials the same telephone numbers in vain.
+ - I felt that the decrepit state of these once magnificent buildings, with their broken gutters, walls blackened by rainwater, crumbling plaster revealing the coarse masonry beneath it, windows boarded up or clad with corrugated iron, precisely reflected my own state of mind...
+ - And so they are ever returning to us, the dead.
+ - We take almost all the decisive steps in our lives as a result of slight inner adjustments of which we are barely conscious.
+ - It makes one’s head heavy and giddy, as if one were not looking back down the receding perspectives of time but rather down on the earth from a great height, from one of those towers whose tops are lost to view in the clouds.
+ - It is a sore point, because you do have advantages if you have access to more than one language. You also have problems, because on bad days you don’t trust yourself, either in your first or your second language, and so you feel like a complete halfwit.
+ - How far, in any case, must one go back to find the beginning?
+ - It seems to me then as if all the moments of our life occupy the same space, as if future events already existed and were only waiting for us to find our way to them at last, just as when we have accepted an invitation we duly arrive in a certain house at a given time.
+ - I wonder now whether inner coldness and desolation may not be the pre-condition for making the world believe, by a kind of fraudulent showmanship, that one’s own wretched heart is still aglow.
+ - How I wished during those sleepless hours that I belonged to a different nation, or better still, to none at all.
+ - Physicists now say there is no such thing as time: everything co-exists. Chronology is entirely artificial and essentially determined by emotion. Contiguity suggests layers of things, the past and present somehow coalescing or co-existing.
+ - Everything our civilization has produced is entombed.
+ - This then, I thought, as I looked round about me, is the representation of history. It requires a falsification of perspective. We, the survivors, see everything from above, see everything at once, and still we do not know how it was.
+ - Otherwise, all I remember of the denizens of the Nocturama is that several of them had strikingly large eyes, and the fixed inquiring gaze found in certain painters and philosophers who seek to penetrate the darkness which surrounds us purely by means of looking and thinking.
+ - The capital amassed in the eighteenth and nineteenth centuries through various forms of slave economy is still in circulation, said De Jong, still bearing interest, increasing many times over and continually burgeoning anew.
+ - A tight structural form opens possibilities. Take a pattern, an established model or sub-genre, and write to it. In writing, limitation gives freedom.
+ - A wonderful story collection set between one place and another and shaped by a fearless sense of comedy.
+
+35 quotes

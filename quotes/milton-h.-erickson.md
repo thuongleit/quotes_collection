@@ -1,0 +1,39 @@
+ - Life will bring you pain all by itself. Your responsibility is to create joy.
+ - A goal without a date is just a dream.
+ - Enlightenment is always preceded by confusion.
+ - Change will lead to insight far more often than insight will lead to change.
+ - Allow yourself to see what you don’t allow yourself to see.
+ - Life isn’t something you can give an answer to today. You should enjoy the process of waiting, the process of becoming what you are. There is nothing more delightful than planting flower seeds and not knowing what kind of flowers are going to come up.
+ - What is easiest to see is often overlooked.
+ - You can pretend anything and master it.
+ - The unconscious mind is decidedly simple, unaffected, straightforward and honest. It hasn’t got all of this facade, this veneer of what we call adult culture. It’s rather simple, rather childish It is direct and free.
+ - The most important thing in changing human behavior is the person’s motivation.
+ - The unconscious mind works without your knowledge and that is the way it prefers.
+ - You can’t effect the cards that you are dealt, but you can determine how you play them.
+ - People do not come into therapy to change their past but their future.
+ - Trance is a natural everyday experience.
+ - You can’t learn to swim on a piano bench.
+ - There are so many things in human living that we should regard not as traumatic learning but as incomplete learning, unfinished learning.
+ - You don’t take insults. You leave them with the insulter.
+ - You see, we don’t know what our goals are. We learn our goals only in the process of getting there You don’t know what the baby is going to become. Therefore, you wait and take good care of it until it becomes what it will.
+ - Life is lived in the present and directed toward a future.
+ - I am very confident. I look confident. I act confident. I speak in a confident way...
+ - You use hypnosis not as a cure but as a means of establishing a favorable climate in which to learn.
+ - Until you are willing to be confused about what you already know, what you know will never grow bigger, better, or more useful.
+ - Each person is a unique individual. Hence, psychotherapy should be formulated to meet the uniqueness of the individual’s needs, rather than tailoring the person to fit the Procrustean bed of a hypothetical theory of human behavior.
+ - How many of us really appreciate the childishness of the unconscious mind?
+ - Life’s difficulties are merely necessary roughage.
+ - You can trust the unconscious.
+ - I have no intention of dying. In fact, it will be the last thing I do!
+ - Therapy is often a matter of tipping the first domino.
+ - Shut up, sit in that chair there and go into a deep trance!
+ - People who accomplish a great many things are people who have freed themselves from biases. These are the creative people.
+ - Don’t ask why the patient is the way he is, ask for what he would change.
+ - Emphasis should be placed more on what the patient does in the present and will do in the future than on a mere understanding of why some long-past event occurred.
+ - The Structure of Magic I by Richard Bandler and John Grinder is a delightful simplification of the infinite complexities of the language I use with patients. In reading this book, I learned a great deal about the things that I’ve done without knowing about them.
+ - The conscious ego cannot tell the unconscious what to do?
+ - Dreams, puns, elisions, plays on words and similar tricks that we ordinarily think of as frivolous, all play a surprising and somewhat disconcerting role in the communication of important and serious feelings.
+ - When I wanted to know something, I wanted it undistorted by somebody else’s imperfect knowledge.
+ - We always translate the other person’s language into our own language.
+
+37 quotes

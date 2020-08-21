@@ -1,0 +1,37 @@
+ - I’m happy to be stuck with you.
+ - I love you Huey was the note I read, but there’s a strange pair of shoes underneath the bed.
+ - Don’t miss understand me, I’m not getting soft, all I want is a couple days off.
+ - Step by step, one by one, higher and higher. Step by step, rung by rung, climbing Jacob’s ladder.
+ - The power of love is a curious thing, make one man weep, make another man sing. Change a hawk to a little white dove, more than a feeling, that’s the power of love.
+ - I want a new drug, one that won’t make me sick. One that won’t make me crash my car, or make my head three feet thick.
+ - I’m a tired runner in the human race.
+ - In the ’80s, the way radio was programmed, if you didn’t have a hit record you weren’t going to be able to make any more records. That was it, period.
+ - Sometimes bad is bad.
+ - You’ve been thinking and I’ve been drinking.
+ - I am deluded enough to think I can bring something to the table.
+ - Now the old boy may be barely breathing, but the heart of rock and roll is still beating.
+ - She was running from a fat man selling salvation in his hand.
+ - I grew up in Marin County north of San Francisco, and in the 1950s and ’60s it was a natural paradise.
+ - Take it from me, its hip to be square.
+ - In ’87 – four years after ‘Sports’ was released – my family and I began vacationing in Montana. I soon bought my first piece of land in Ravalli County, in the western part of the state.
+ - New York was the inspiration for The Heart of Rock and Roll and Workin for a Livin. There are a lot of songs in the streets of New York.
+ - When you get in the pocket, there is a place where the music begins to play itself. When you can find that spot, it’s the best feeling in the world.
+ - I was in a vintage pub rock band called Clover in the 1970s.
+ - My first kiss can be summed up in one word – unsuccessful.
+ - You only go from nowhere to everywhere once. Let’s enjoy it!
+ - After ‘Sports’ came out in the fall of 1983, everything changed for me. Four of the album’s singles became top-10 hits, and by the end of June in 1984, the album was No. 1 on the Billboard chart. It was quite a ride, and for the first time I had enough money to live the way I wanted.
+ - I may be the most recognizable name in the cast, but I can guarantee that I am not the most talented.
+ - The choices I make – they have to be creative.
+ - I am a Bay Area guy, no question.
+ - I don’t tap dance, and I don’t think you can learn to tap dance in three weeks at my ripe old age.
+ - Back in the day you wanted your albums to have a theme, and ‘Sports’ theme was really a collection of singles. It was really a record for its time.
+ - I was knocked out by the show, Chicago.
+ - It’s true, I do like cheering people up.
+ - Today, it’s very tempting to create songs by cutting and pasting in the studio.
+ - Film is a lark to me – thank God I don’t have to make a living from it.
+ - Grace Kelly writes great songs, sings beautifully, is a world class saxophonist, and is going to be a big big star.
+ - I know my choices will be creative so long as I follow my heart.
+ - I don’t have a formal home recording studio, but I can record tracks on my computer upstairs in my office.
+ - I got a very good life. I sold plenty of records, I get recognized plenty, I can always have somebody call up and get me a fine table at a restaurant. What do you really need, ultimately?
+
+35 quotes

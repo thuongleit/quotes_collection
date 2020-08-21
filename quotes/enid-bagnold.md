@@ -1,0 +1,29 @@
+ - From birth to death we are alone...
+ - A father is always making his baby into a little woman. And when she is a woman he turns her back again.
+ - I am not a born writer, but I was born a writer.
+ - Why do birds sing in the morning? It’s the triumphant shout: ‘We got through another night!’
+ - One’s palate is reborn every morning!
+ - Before you fall asleep everyday, say something positive to yourself.
+ - Judges don’t age. Time decorates them.
+ - An only child is never twelve.
+ - I shall continue to explore-the astonishment of living.
+ - If a dog doesn’t put you first where are you both? In what relation? A dog needs God. It lives by your glances, your wishes. It even shares your humor. This happens about the fifth year. If it doesn’t happen you are only keeping an animal.
+ - Marriage. The beginning and the end are wonderful. But the middle part is hell.
+ - The dangerous thing about hate is that it seems so reasonable.
+ - Isn’t the fear of pain next brother to pain itself?
+ - Things come suitable to the time.
+ - There may be wonder in money, but, dear God, there is money in wonder.
+ - As for death, one gets used to it, even if it is only other people is death you get used to.
+ - One can lie, but truth is more interesting.
+ - Dead news like dead love has no phoenix in its ashes.
+ - The theatre is a gross art, built in sweeps and over-emphasis. Compromise is its second name.
+ - After forty years of marriage we still stood with broken swords in our hands.
+ - You will be old-fashioned one day. It’s more shocking than getting old.
+ - One never knows when one is old for certain.
+ - Let this serve as an axiom to every lover: A woman who refuses lunch refuses everything.
+ - The Press blew, the public stared, hands flew out like a million little fishes after bread.
+ - But I had been in love pretty often and I didn’t think it stood the wear and tear.
+ - Pity is exhaustible. What a terrible discovery!
+ - The pleasure of one’s effect on other people still exists in age – what’s called making a hit. But the hit is much rarer and made of different stuff.
+
+27 quotes

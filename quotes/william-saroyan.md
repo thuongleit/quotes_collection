@@ -1,0 +1,119 @@
+ - Try to be alive. You will be dead soon enough.
+ - Live, for this is the time of your life.
+ - It is simply in the nature of Armenian to study, to learn, to question, to speculate, to discover, to invent, to revise, to restore, to preserve, to make, and to give.
+ - Try as much as possible to be wholly alive, with all your might, and when you laugh, laugh like hell and when you get angry, get good and angry. Try to be alive. You will be dead soon enough.
+ - The greatest happiness you can have is knowing that you do not necessarily require happiness.
+ - A man’s ethnic identity has more to do with a personal awareness than with geography.
+ - Christmas is sights, especially the sights of Christmas reflected in the eyes of a child.
+ - If you’re alive, you can’t be bored in San Francisco. If you’re not alive, San Francisco will bring you to life.
+ - In the time of your life, live-so that in that good time there shall be no ugliness or death for yourself or for any life your life touches.
+ - It takes a lot of rehearsing for a man to be himself.
+ - Writers are a fascinating breed, because there are so many kinds of them, they are made by so many circumstances, conditions, and mysteries, and there are so many ways for writing to be done.
+ - I have managed to conceal my madness fairly effectively, and as far as I know it hasn’t hurt anybody badly, for which I am grateful.
+ - Remember that every man is a variation of yourself. No man’s guilt is not yours, nor is any man’s innocence a thing apart.
+ - I don’t have a name and I don’t have a plot. I have the typewriter and I have white paper and I have me, and that should add up to a novel.
+ - Good people are good because they’ve come to wisdom through failure.
+ - Everybody has got to die, but I have always believed an exception would be made in my case.
+ - I do not know what makes a writer, but it probably isn’t happiness.
+ - You write a hit play the same way you write a flop.
+ - I am enormously wise and abysmally ignorant.
+ - I believe that time, with its infinite understanding, will one day forgive me.
+ - There is little pride in writers. They know they are human and shall some day die and be forgotten. Knowing all this a writer is gentle and kindly where another man is severe and unkind.
+ - The bicycle is the noblest invention of mankind.
+ - There’s a pretty woman for ever lucky man in the world: every man in the world is a lucky man if he only knew it, so why waste time?
+ - San Francisco itself is art, above all literary art. Every block is a short story, every hill a novel. Every home a poem, every dweller within immortal. That is the whole truth.
+ - Seek goodness everywhere, and when it is found, bring it out of its hiding place and let it be free and unashamed.
+ - Two years ago your father died, Ulysses. But as long as we are alive, as long as we are together, as long as two of us are left, and remember him, nothing in the world can take him from us.
+ - All writers are discontent. That’s because they’re aware of a potential and believe they’re not reaching it.
+ - People is all everything is, all it has ever been, all it can ever be.
+ - I know you will remember this – that nothing good ever ends. If it did, there would be no people in the world – no life at all, anywhere. And the world is full of people and full of wonderful life.
+ - To Armenians, half Armenians, quarter Armenians, and one-eight Armenians. Sixteen and thirty-second Armenians, and other winners, are likelier to be happy with a useful book.
+ - Human memory works its own wheel, and stops where it will, entirely without reference to the last stop, and with no connection with the next.
+ - She cried a little, but only inside, because long ago she had decided she didn’t like crying because if you ever started to cry it seemed as if there was so much to cry about you almost couldn’t stop, and she didn’t like that at all.
+ - In the end, today is forever, yesterday is still today, and tomorrow is already today.
+ - The people you hate, well, this is the question about such people: why do you hate them?
+ - San Francisco is a world to explore. It is a place where the heart can go on a delightful adventure.
+ - One day in the afternoon of the world, glum death will come and sit in you, and when you get up to walk, you will be as glum as death, but if you’re lucky, this will only make the fun better and the love greater.
+ - No city invites the heart to come to life as San Francisco does. Arrival in San Francisco is an experience in living.
+ - Nothing good ever ends.
+ - The order I found was the order of disorder.
+ - I love the bicycle. I always have. I can think of no sincere, decent human being, male or female, young or old, saintly or sinful, who can resist the bicycle.
+ - Kids are always the only future the human race has.
+ - I used to throw things out, saying, ‘This isn’t great.’ It didn’t occur to me that it didn’t have to be great.
+ - You may tend to get cancer from the thing that makes you want to smoke so much, not from the smoking itself.
+ - But who can speak to God, or rather who can’t? The question is, who can get an answer?
+ - When I began to wait to live I really began to wait to die.
+ - The mad also laugh, or is that what Freud and the others discovered perhaps, that only the mad laugh?
+ - I never knew teachers are human beings like everybody else – and better too!
+ - Doctors don’t know everything really. They understand matter, not spirit. And you and I live in the spirit.
+ - You must not be unkind, especially when it happens that you’re right.
+ - The whole world and every human being in it is everybody’s business.
+ - Sometimes the most intelligent thing is not to do anything, certainly nothing loaded with the imbecility of emotionality.
+ - Even after you’ve won fame and fortune, every time you write you’ve got to write, there’s no shortcut, you have to start your career all over again.
+ - Remember that every man is a variation of yourself.
+ - Genius is play, and man’s capacity for achieving genius is infinite, and many may achieve genius only through play.
+ - All things lie dark in possibility.
+ - The best thing we have is sleep, of course, and what is sleep except the putting aside of everything tentative for another interval of final and everlasting truth? Sleep isn’t dying, but it is certainly keeping in tough with it.
+ - Americans still believe they are cut out to be successful-in everything: love, love-making, luck, luck-giving, money-making, sense-making, cancer-avoiding, clothes-wearing, car-driving, and so on.
+ - Yes, the idiot is indeed the good man, but only because he doesn’t know any better.
+ - Chance acquaintances are sometimes the most memorable, for brief friendships have such definite starting and stopping points that they take on a quality of art, of a whole thing, which cannot be broken or spoiled.
+ - Each book can make a life or a fragment of it more beautiful.
+ - Everything and everybody is sooner or later identified, defined, and put in perspective. The truth as always is simultaneously better and worse than what the popular myth-making has it.
+ - Every man in the world is better than someone else and not as good someone else.
+ - Armenag Saroyan was the failed poet, the failed Presbyterian preacher, the failed American, the failed theological student.
+ - What a lonely and silly thing it is to be an Armenian writer in America.
+ - The child race is fresh, eager, interested, innocent, imaginative, healthy and full of faith, where the adult race, more often than not, is stale, spiritually debauched, unimaginative, unhealthy, and without faith.
+ - In the most commonplace, tiresome, ridiculous, malicious, coarse, crude, or even crooked people or events I had to seek out rare things, good things, comic things, and I did so.
+ - Jack Benny had style from the beginning. He stood straight and walked kind of sideways as if he were being gently shoved by a touch of genius.
+ - Cowards are nice, they’re interesting, they’re gentle, they wouldn’t think of shooting down people in a parade from a tower. They want to live, so they can see their kids. They’re very brave.
+ - Lionel whispered because he was under the impression that it was out of respect for books, not consideration for readers.
+ - I sometimes think that rich men belong to another nationality entirely, no matter what their actual nationality happens to be. The nationality of the rich.
+ - Indians are born with an instinct for riding, rowing, hunting, fishing, and swimming. Americans are born with an instinct for fooling around with machines.
+ - The role of art is to make a world which can be inhabited.
+ - People are people. Don’t be afraid of them.
+ - The Tax Collector’s letters are invariably mimeographed, and all they say is that you still haven’t paid him.
+ - The basic truth of all things, as nearly as we may ever dream of determining and knowing this truth, is form, that which is, as it is. The way and shape of the thing no less than the thing itself...
+ - We are not forced into unpleasant activities. We either allow them to come about or we encourage them to come about.
+ - I’m not the kind of guy to knock at a door and then when the door is opened not go in.
+ - I have never received a telephone call that justified the excitement and fuss of the electronics involved. If I can’t see somebody I love, for instance, such as a daughter, or a son, I would rather receive a letter.
+ - I can’t hate for long. It isn’t worth it.
+ - Nobody, but nobody, is going to tell me I’m not the most. I am. I was the most when everybody else was struggling bitterly to become a little.
+ - If you give to a thief he cannot steal from you, and he is no longer a thief.
+ - Of all the things I love to taste, sweetest is the kiss of love.
+ - It is impossible not to notice that our world is tormented by failure, hate, guilt, and fear.
+ - Sunday is the day people go quietly mad, one way or another.
+ - Human greatness is a rather difficult thing to account for, and more often than not one is mistaken in one’s hunches about somebody one has met.
+ - What is a street? It is where the living weep, where the dead go off in silence to their peace.
+ - I became a writer because during several of the most important years of my life, writing seemed to me to be the most unreal, unattractive, and unecessary idea ever imposed upon the human race.
+ - All I can do is write my stories for mankind, and rest easy.
+ - My work has always been the product of my time.
+ - Every man is correct in asking God why he is stuck with himself, and his rotten luck.
+ - The best that can be said for anybody is probably that you misunderstood him favorably.
+ - Encourage virtue in whatever heart it may have been driven into secrecy and sorrow by the shame and terror of the world.
+ - What can I tell you, except the stupid little I know?
+ - The people you like when you meet them and while you know them, and the people you remember fondly, are invariably people who have a sense of comedy, not just a sense of humor.
+ - What can a man do to move along in some kind of grace through his days and years?
+ - Babies who have not yet been taught to speak any language are the only race of the earth, the race of man: all the rest is pretence, what we call civilization, hatred, fear, desire for strength.
+ - Every artist is in everything he creates, and indeed if the truth is told, every person is in his life, in his work, whatever his work may be, and this is visible in his face, figure, stance, movement, and totality.
+ - I care so much about everything that I care about nothing.
+ - I see life as one life at one time, so many millions simultaneously, all over the earth.
+ - There could be no extreme vanity in my recognition of myself, if in fact there could be any at all.
+ - Art is what is irresistible.
+ - This is what drives a young writer out of his head, this feeling that nothing is being said.
+ - The writer who is a real writer is a rebel who never stops.
+ - We get very little wisdom from success, you know.
+ - Of course if you like your kids, if you love them from the moment they begin, you yourself begin all over again, in them, with them, and so there is something more to the world again.
+ - My work is writing, but my real work is being.
+ - I cannot see the war as historians see it. Those clever fellows study all the facts and they see the war as a large thing, one of the biggest events in the legend of the man, something general, involving multitudes.
+ - We didn’t say anything because there was such an awful lot to say, and no language to say it in.
+ - I don’t think my writing is sentimental, although it is a very sentimental thing to be a human being.
+ - I began to write in the first place because I expected everything to change, and I wanted to have things in writing the way they had been. Just a little things, of course. A little of my little.
+ - I took to writing at an early age to escape from meaninglessness, uselessness, unimportance, insignificance, poverty, enslavement, ill health, despair, madness, and all manner of other unattractive, natural and inevitable things.
+ - What a people talk about means something. What they don’t talk about means something.
+ - You live and die according to what goes on in yourself, which no one else can even begin to know, not even father, mother, wife, son, or daughter.
+ - The simple fact was that if the song wasn’t about me, I couldn’t see how it could possibly be about anybody else, including the one I knew it was supposed to be about, and good luck to him, too.
+ - I believe in anything that works.
+ - Armenag Saroyan. A good man of whom the worst that anybody was willing to say, was that he was too good for this world.
+ - It is a pity, in my opinion, that no prize exists for the writer who best refrains from adding to the world’s bad books.
+
+117 quotes

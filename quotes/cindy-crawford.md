@@ -1,0 +1,59 @@
+ - Homeopathy offers a safe, natural alternative that causes no side effects or drug interactions.
+ - As my mom always said, ‘You’d rather have smile lines than frown lines.’
+ - Watching your husband become a father is really sexy and wonderful.
+ - I think if people are passionate about something, it could be real estate or biochemistry, and that spark gets turned on in them, everyone’s beautiful in that zone.
+ - I also turn to homeopathic remedies for the treatment of indigestion, travel sickness, insomnia and hay fever just to name a few. Homeopathy offers a safe, natural alternative that causes no side effects or drug interactions.
+ - The body I had at 21, God gave me. The body I have at 31, is one I worked for.
+ - Even I don’t wake up looking like Cindy Crawford.
+ - I use Meaningful Beauty for my daily skincare regime. The system helps to restore, protect, revitalize and renew my skin. Using it daily along with avoiding the sun, not smoking, drinking a lot of water, and getting enough sleep is key to looking and feeling good at any age!
+ - I’ve always found that beauty and confidence are synonymous. If you feel confident, that’s what people see.
+ - As a mother, I always have something better to be doing. I love work still, but I’m less tolerant of my time being wasted.
+ - I’ve tried and failed a lot. But I’ve also tried to be really clear about my brand. It is who I am. I’m a mum, I’m a wife, I’m 44 and from the Midwest.
+ - I’m all-American. Sexy but not intimidating. Not the kind of woman who’s going to steal someone’s husband.
+ - I have cellulite. I admit it. But sometimes I just say, ‘Screw it, I am going to wear a bikini.’
+ - It’s important for moms to have alone time. However, that’s the first thing that goes on a busy day. Fortunately for me, because of my job, I have to find the time to do it. At least that’s the way my mind sees it.
+ - But some people don’t appreciate my bossiness.
+ - Not that I believe you can have it all: I believe you can have it all, just not at the same time.
+ - Richard doesn’t really like me to kill bugs, but sometimes I can’t help it.
+ - I think women see me on the cover of magazines and think I never have a pimple or bags under my eyes. You have to realize that’s after two hours of hair and makeup, plus retouching. Even I don’t wake up looking like Cindy Crawford.
+ - Even in normal life, I’m not the skinniest model.
+ - It’s a huge change for your body. You don’t even want to look in the mirror after you’ve had a baby, because your stomach is just hanging there like a Shar-Pei.
+ - But I try to steal other moments. Sometimes I get up very early in the morning and enjoy a quiet house and cup of tea before the craziness begins. Other times, I’ll take a quick walk on the beach. You can find peace in a few minutes.
+ - I am inspired by many people. First and foremost, I’m inspired by my mother. She definitely helped her children to feel unconditional love and I want to be that same kind of mother.
+ - It’s become another dimension to who I am. I don’t think Sports Illustrated is going to be wanting me. But who cares? I’m at a different place in my life.
+ - I am the doctor of our family, and I am a big fan of homeopathy.
+ - Life is where you’re at. Whatever you’re doing is enough. You don’t need to do everything well all the time. When you live your life like that, it’s a huge relief.
+ - Modeling is about illusion. It’s a fantasy world where models play various roles. By featuring extreme looks, magazines show women how to have fun with makeup and clothes, and to inspire them to experiment – just like we did when we were little girls.
+ - I tried on 250 bathing suits in one afternoon and ended up havinglittle scabs up and down my thighs, probably from some of those withsequins all over them.
+ - You leak sometimes. My pediatrician said, ‘Can’t you just wear pads under your clothes?’ I said, ‘You don’t know the kind of clothes I wear on photo shoots.’
+ - They were doing a full back shot of me in a swimsuit and I thought, Oh my God, I have to be so brave. See, every woman hates herself from behind.
+ - When you are getting ready to become a mom, being in love with someone just isn’t enough. You need to think about whether he would be a good parent and raise your children with similar beliefs.
+ - I like to work. The self-esteem and satisfaction that I get from working makes me a better person, which makes me a better mom.
+ - Having children really changes your priorities.
+ - The face you have at age 25 is the face God gave you, but the face you have after 50 is the face you earned.
+ - Fashion and style is just that. Fashion and style. It’s not brain surgery.
+ - I just want to be a nice girl from the Midwest – I don’t want to have to act like a heavy to be taken seriously, and I resent that I have to be so pushy and political sometimes just to do my job.
+ - Modern women – we’re very good at keeping ourselves busy. There are PTA meetings, exercising, bake sales at school. I like that my life is not the same every day.
+ - Being on set with my daughter watching her in front of the camera was a fantastic experience. I am so proud of her.
+ - Being a nice girl from the Mid-West, my inclination is always to give in and say yes because I want people to like me.
+ - In the studio, I do try to have a thought in my head, so that it’s not like a blank stare.
+ - Our family room, where we live, is about togetherness and ease. Nothing in my house is too formal. There are no coasters on tables; the kids can eat Popsicles on the couch if they want to. I let them ride these little cycles we got for them when they were 3 that have rubber wheels and no pedals.
+ - I don’t waste as much time at work because I’d rather spend it with my kids.
+ - I hated turning 40; the whole idea of it stank. But once I got through it, I was fine.
+ - Goal training is important. If there’s a 5K walk in the community, train for that.
+ - I always knew I wanted to have children.
+ - Models are like baseball players. We make a lot of money quickly, but all of a sudden we’re 30 years old, we don’t have a college education, we’re qualified for nothing, and we’re used to a very nice lifestyle. The best thing is to marry a movie star.
+ - I believe that at least 70 percent of parenting goes to the mother. In our house, I’m the one who knows about all the school stuff, helps with the homework, organizes the play dates, and remembers the birthday parties.
+ - How many girls, models or not, are secure about their bodies? I think I’m more realistic about what to expect of myself now. I also have a lot of other things than modeling going on in my life that I’m proud of.
+ - I don’t have to try to be perfect at everything.
+ - I don’t look the same as I did 20 years ago, nor should I.
+ - Most of the reason I work out now is not for the external – it’s for how I feel. I find working out gives me more energy. I started eight days after he was born.
+ - I married someone whom I was close friends with first. I think that was a really good move.
+ - I wasn’t the most popular girl in school by any means.
+ - It’s not like your soul gets older. It gets wiser.
+ - Nobody in my family ever thought that I’d a be a model.
+ - I don’t think makeup is rocket science or a cure for cancer.
+ - If people would treat themselves with the same kind of love they give to their friends, that would be such a great gift we could give ourselves.
+ - I used the Deep Cleansing Masque on my wedding day because I wanted everything – including my complexion – to be perfect!
+
+57 quotes

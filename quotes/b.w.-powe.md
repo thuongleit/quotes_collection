@@ -1,0 +1,26 @@
+ - Certainty is usually a sign of pathology.
+ - We become slaves the moment we hand the keys to the definition of reality entirely over to someone else, whether it is a business, an economic theory, a political party, the White House, Newsworld or CNN.
+ - No rebellious heart is ever at ease with paths established by others.
+ - If you make things sound inoffensively obvious, then it is likely that no one will listen.
+ - Alienation and loneliness plant the seeds for rebellion and consciousness.
+ - It began in images and it ended in symbolism.
+ - Followers of another political party tell us that we will strengthen ourselves by ignoring our history, our traditions, our mythologies, our culture and vision, and by following the American way.
+ - The Trojan War without Homer was nothing more than a battle over trade routes.
+ - We remake the world through our technologies, and these in turn remake and extend us, in ever spiraling lattices of complexity. McLuhan uncannily foresaw the future, where electronic technology would shape and expand cultures and societies into a global membrane of communications.
+ - May the ability to see many points view keep us gentle.
+ - The origin of corruption in politics is surely in the thought that you are the bearer of ultimate virtue.
+ - Each voice carries a portion of value, no matter how unpalatable or distasteful that voice may be: no one person, government, ideology, transnational, or religious institution can own and dominate the whole.
+ - There is, it seems, an unbridgeable chasm between the concerns of a Sri Aurobindo and a Pat Robertson.
+ - The myth of Canada, its hidden story, is of a contemplative country, a place of inwardness, where people can question the idea of nationhood and ponder what values we wish to see expressed and achieved, and what solitudes of identity and reverie we wish to preserve.
+ - There must be engagement: there must be protest.
+ - Canada is like several puzzles that we are all working on at the same time. Everyone has a part to add, but no one has seen the whole picture yet.
+ - Democracies should be a delirium of choices – more options, not fewer; more avenues to travel, not fewer.
+ - Here I find a puzzle of great beauty: Canada works well in practice, but just doesn’t work out in theory.
+ - A just society will appear less spectacular, and less clearly defined, than a society with totalitarian leadership, theocratic goals.
+ - The corporatist-economic model of society appears to be governing us. Economists, often in the pay of transnationals, are deciding, for us, what democracy is, and will be.
+ - We have to learn how to contact one another over an enormous land space, across five-and-a-half time zones, in what as once a wilderness of scattered settlements, in what is now a sprawl of suburban edge cities and satellite towns. Technology forges connections and disconnections here.
+ - Threaten the balances of justice and you threaten the potential enlargements of mind and soul. Therefore justice is part of the safeguarding of the heart.
+ - Charisma is a sign of the calling. Saints and pilgrims are defiantly moved by it.
+ - If our dreams can last, then we could turn our time and place to gold.
+
+24 quotes

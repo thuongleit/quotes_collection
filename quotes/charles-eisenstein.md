@@ -1,0 +1,49 @@
+ - Addiction, self-sabotage, procrastination, laziness, rage, chronic fatigue, and depression are all ways that we withhold our full participation in the program of life we are offered. When the conscious mind cannot find a reason to say no, the unconscious says no in its own way.
+ - The gift economy represents a shift from consumption to contribution, transaction to trust, scarcity to abundance and isolation to community.
+ - In a gift economy, the more you give, the richer you are.
+ - Trust your intuition and be guided by love.
+ - Enlightenment is a group activity.
+ - No one’s ever completely broken. It’s just a matter of how much has to fall apart before the ember of life is exposed to air.
+ - True discipline is really just self-remembering; no forcing or fighting is necessary.
+ - Ultimately, work on self is inseperable from work in the world. Each mirrors the other; each is a vehicle for the other. When we change ourselves, our values and actions change as well. When we do work in the world, internal issues arise that we must face or be rendered ineffective.
+ - Even the most thorough change happens once choice at a time.
+ - What you’re looking for, you won’t find. But only by looking for it can it find you.
+ - The present convergence of crises––in money, energy, education, health, water, soil, climate, politics, the environment, and more––is a birth crisis, expelling us from the old world into a new.
+ - We have to believe in a more beautiful world in order to serve it.
+ - We are all here to contribute our gifts toward something greater than ourselves, and will never be content unless we are.
+ - We have to create miracles. A miracle is not the intersession of an external divine agency in violation of the laws of physics. A miracle is simply something that is impossible from an old story but possible from within a new one. It is an expansion of what is possible.
+ - The logic is backwards. Genius is the result of doing what you love, not a prerequisite for it.
+ - When both sides of a controversy revel in the defeat and humiliation of the other side, in fact they are on the same side: the side of war.
+ - I think most kids have a sense that it’s not supposed to be this way. You’re not supposed to hate Monday, or be happy when you don’t have to go to school. School should be something that you love. Life should be something that you love.
+ - We are not just a skin-encapsulated ego, a soul encased in flesh. We are each other and we are the world.
+ - Are the problems of the world caused by bad people who need to be crushed? Or do people do bad things when they are in a certain situation? If it is the latter, then we can go around crushing the villains for another thousand years and nothing will change.
+ - A miracle is an invitation into a new story.
+ - When do you manipulate others for your own advantage? When I notice myself doing it, usually it is when I am feeling insecure.
+ - More than a mere alternative strategy, regenerative agriculture represents a fundamental shift in our culture’s relationship to nature.
+ - The state of interbeing is a vulnerable state. It is the vulnerability of the naive altruist, of the trusting lover, of the unguarded sharer. To enter it, one must leave behind the seeming shelter of a control-based life, protected by walls of cynicism, judgment, and blame.
+ - When any of us meet someone who rejects dominant norms and values, we feel a little less crazy for doing the same. Any act of rebellion or non-participation, even on a very small scale, is therefore a political act.
+ - Each experience of love nudges us toward the Story of Interbeing, because it only fits into that story and defies the logic of Separation.
+ - Contemporaneous with the financial crisis we have an ecological crisis and a health crisis. They are intimately interlinked. We cannot convert much more of the earth into money, or much more of our health into money, before the basis of life itself is threatened.
+ - When everything is subject to money, then the scarcity of money makes everything scarce, including the basis of human life and happiness. Such is the life of the slave – one whose actions are compelled by threat to survival. Perhaps the deepest indication of our slavery is the monetization of time.
+ - You can’t have community as an add-on to a monetized life. You have to actually need each other.
+ - The holistic acupuncturist and the sea turtle rescuer may not be able to explain the feeling, ‘We are serving the same thing,’ but they are. Both are in service to an emerging story of the People that is the defining mythology of a new kind of civilization.
+ - The financial crisis we are facing today arises from the fact that there is almost no more social, cultural, natural, and spiritual capital left to convert into money.
+ - Non-inflationary economic growth – an increase in the production of goods and services – is structurally necessary for the current money system to exist. That is what drives the relentless conversion of life into money.
+ - Is it too much to ask, to live in a world where our human gifts go toward the benefit of all? Where our daily activities contribute to the healing of the biosphere and the well-being of other people?
+ - Each person you interact with, is an entire universe unto themselves, a Divine Being, unspeakabley precious.
+ - We sense that ‘normal’ isn’t coming back, that we are being born into a new normal: a new kind of society, a new relationship to the earth, a new experience of being human.
+ - The world is on fire! Why am I sitting in front of my computer? It is because I don’t have a fire extinguisher for the world, and there isn’t a global 911 to call.
+ - Community is woven from gifts, which is ultimately why poor people often have stronger communities than rich people. If you are financially independent, then you really don’t depend on your neighbors for anything. You can just pay someone to do it.
+ - A revolution that leaves our conceptualization of self and world intact cannot bring other than temporary, superficial change. Only a much deeper revolution, a reconceiving of who we are, can reverse the crises of our age.
+ - An economist says that essentially more for you is less for me, but the lover knows that more for you is more for me, too.
+ - How do we change the world? Change the story.
+ - One of the ways that your project, your personal healing, or your social invention can change the world is through story. But even if no one ever learns of it, even if it is invisible to every human on Earth, it will have no less of an effect.
+ - The force of love, the force of reunion is unstoppable.
+ - The primary method by which governments increase their control is by creating fear.
+ - Play is the production of fun; entertainment is the consumption of fun.
+ - There is a vast territory between what we’re trying to leave behind, and where we want to go – and we don’t have any maps for that territory.
+ - When we must pay the true price for the depletion of nature’s gifts, materials will become more precious to us, and economic logic will reinforce, and not contradict, our heart’s desire to treat the world with reverence and, when we receive nature’s gifts, to use them well.
+ - How beautiful can life be? We hardly dare imagine it.
+ - Let me repeat that: Our civilization is constitutionally incapable of reversing the annihilation of natural capital, or even slowing it down. Get used to that. When we really understand that, the project of reconceiving civilization itself will gain powerful impetus.
+
+47 quotes

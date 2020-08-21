@@ -1,0 +1,322 @@
+ - What i like about photographs is that they capture a moment that’s gone forever, impossible to reproduce.
+ - Personality begins where comparison ends.
+ - I don’t like standard beauty – there is no beauty without strangeness.
+ - Sweatpants are a sign of defeat. You lost control of your life so you bought some sweatpants.
+ - Change is the healthiest way to survive.
+ - Keep the best, forget the rest.
+ - Evolution is the secret for the next step.
+ - I think that it’s a crime to say you are bored when time is so precious and there are so many things to do in life: read, learn, watch.
+ - Think pink, but don’t wear it.
+ - What I love best in life is new starts.
+ - I’m very much down to earth, just not this earth.
+ - In fact, I don’t even know myself. That is the big secret of the story. That there is no story.
+ - Don’t sacrifice yourself too much, because if you sacrifice too much there’s nothing else you can give and nobody will care for you.
+ - Don’t look to the approval of others for your mental stability.
+ - I never fall in love.
+ - I am not a second option person. It is that or nothing. If it is not the way I see it I prefer not to see it.
+ - Elegance is a physical quality. If a woman doesn’t have it naked, she’ll never it clothed.
+ - Books are a hard-bound drug with no danger of an overdose. I am the happy victim of books.
+ - Dieting is the only game where you win when you lose!
+ - Music gives color to the air of the moment.
+ - Logos and branding are so important. In a big part of the world, people cannot read French or English – but are great in remembering signs.
+ - Fashion designers are dictators of taste.
+ - The importance of logo into today’s fashion is un! be! Lievable!
+ - The minute you think that the past was better, your present is second hand, and yourself becomes vintage – it’s okay for clothes not that great for people.
+ - A sense of humour and a little lack of respect: That’s what you need to make a legend survive.
+ - Fantasy is often better than reality. It’s much more inspiring not to go to places than to go.
+ - I like the idea of craziness with discipline.
+ - Youthfulness is about how you live not when you were born.
+ - Everything I say is a joke. I am a joke myself.
+ - Stuff your brain with knowledge.
+ - The only love that I really believe in is a mother’s love for her children.
+ - Forgiveness is too easy. I can forget by indifference, but not forgive. I prefer revenge.
+ - The brain is a muscle, and I’m a kind of body-builder.
+ - I like to do things quickly because I’m easily bored.
+ - I’m a very down-to-earth person, but it is my job to make that earth more pleasant.
+ - I’m surrounded by young and beautiful people. I hate looking at ugliness.
+ - I care more about the people than about the company. That’s why I don’t want to own it. I don’t want to run a business. People do it better than I do.
+ - Success nullifies. You then have to do it again, preferably differently.
+ - I’m a working-class person, working with class.
+ - Fashion is what people wear not only what you see on the Runway.
+ - Luxury bags make your life more pleasant, make you dream, give you confidence, and show your neighbors you are doing well.
+ - I am a black diamond, unfaceted. Black diamonds are rare, hard to cut, and therefore uncommercial.
+ - People who can’t be alone have a problem. Loneliness is a luxury for people like me.
+ - A respectable appearance is sufficient to make people more interested in your soul.
+ - You were never told that Saint-Tropez is paradise?
+ - I lost 200lb to wear suits by Hedi Slimane.
+ - For every book you buy, you should buy the time to read it.
+ - Truth is only a question of point of view.
+ - I’m all self-taught. I never had a teacher. Even for English, and French, and German, I hardly went to school.
+ - I design like I breathe. You don’t ask to breathe. It just happens.
+ - If I was a woman in Russia, I would be a lesbian, as the men are very ugly. There are a few handsome ones, like Naomi Campbell’s boyfriend, but there you see the most beautiful women and the most horrible men.
+ - I think tattoos are horrible. It’s like living in a Pucci dress full-time.
+ - The most important piece in the house is the garbage can.
+ - I am a fashion person, and fashion is not only about clothes – it’s about all kinds of change.
+ - I have no idea of the future – never, ever. That’s what I like about fashion. It’s paradise now.
+ - We create a product nobody needs but people want. You spend more for what you really want. Some boring things you need: an ugly old car can wait, but if you have a new fashion item it cannot wait. We live on this whole idea.
+ - I forget nothing and then, one day, there will be revenge. Innocence isn’t exactly everywhere. But I will say innocence also takes you far in photography.
+ - When I was very young, at the beginning my business was to work more than the others to show them their pointlessness.
+ - I don’t do meetings. At Chanel, there are no meetings. At Chanel, we do what we want, whenever we want and it works. And Fendi is the same.
+ - I don’t want to do anything over again, ever again. I want only to do what I haven’t done. There’s no “again.” There’s only the future. I hate the past – especially my own past.
+ - What I hate is nasty, ugly people.
+ - I didn’t play with other children.
+ - These are fat mummies sitting with their bags of crisps in front of the television, saying that thin models are ugly. Fashion is about dreams and illusions, and no one wants to see round women.
+ - I like to reinvent myself – it’s part of my job.
+ - One is never over-dressed or underdressed with a Little Black Dress.
+ - Fashion is about two things: the evolution and the opposite.
+ - I am like a caricature of myself, and I like that. It is like a mask. And for me the Carnival of Venice lasts all year long.
+ - I don’t know what ‘normal’ means, anyway.
+ - I can’t wait for the iPhone 6. It’s my only ambition in life to have it quickly.
+ - The clothes don’t have to suit you; you have to suit the clothes.
+ - You know, I don’t ask myself too much how. I just do it.
+ - I have no personality, or I have three, depending on how you look at it.
+ - The purpose of life is life.
+ - At my age, I don’t need to be a sexy bundle of muscles, thank you very much.
+ - I do my job like I breathe – so if I can’t breathe I’m in trouble.
+ - I’m German in my mind, but from a Germany that doesn’t exist any more.
+ - Nothing scares me more than people with some doll collection.
+ - You have to lead your life according to your ideas. Spend all your money and live life in line with what you are fighting for. I hate it when rich people try to be Communists. I think that’s obscene.
+ - I don’t like to act because my life is a pantomime anyway.
+ - I’m not an employee who goes to the office every morning at the same time. Then, vacations are needed.
+ - For me, Chanel is like music. There are certain notes and you have to make another tune with them.
+ - The best way to know people is to work with them.
+ - When people talk about the good old days, I say to people, ‘It’s not the days that are old, it’s you that’s old.’ I hate the good old days. What is important is that today is good.
+ - People who say that yesterday was better than today are ultimately devaluing their own existence.
+ - I always think I’m lazy, maybe I could do better, I could make more effort and I always have the feeling that there is a glass wall that I cannot get through. But maybe when I get through, then it’s over.
+ - Virgos are very faithful. I’m a faithful friend. I’m a faithful lover.
+ - Absurdity and anti – absurdity are the two poles of creative energy.
+ - There are not too many people with an opinion I care for.
+ - I am physically allergic to flip-flops.
+ - I’m not a social person. Not that I’m not at ease. I’m pretty good, but it bores me. Not the people, but the whole thing. What for? It’s not very productive. I only want to do what I have to do: fashion, photography, books. And that’s all.
+ - Be politically correct, but please don’t bother other people with conversation about being politically correct, because that’s the end of everything. You want to create boredom? Be politically correct in your conversation.
+ - I don’t like sleeping with people I really love. I don’t want to sleep with them because sex cannot last, but affection can last forever.
+ - People want to know everything, and so they put you in the limelight. Sometimes, I am not down to earth, and I think I am flying away from the outer realms of reality.
+ - Beauty with character ages better than perfection.
+ - Chic is a kind of mayonnaise, either it tastes, or it doesn’t.
+ - We live in a dark and romantic and quite tragic world.
+ - Fashion is a language that creates itself in clothes to interpret reality.
+ - Yes, some people say to me you’re too skinny, but never a skinny person says that to me, only people who could lose a few pounds say that.
+ - No one wants to see curvy women.
+ - I am never satisfied with myself and that is what keeps me going – I have no post-satisfaction.
+ - Elegance has nothing to do with fashion.
+ - Luxury is the income tax of vanity. But it is so pleasant.
+ - I think everyone should go to bed like they have a date at the door.
+ - I’m rather pro-prostitution, I admire people who do it. It can’t be much fun. Thank goodness for it. People need relief or they become murderers.
+ - I like chocolate. I don’t eat it, but I like the smell of it. People can drink with their eyes; I can eat with my nose. I would love to have a perfume based on chocolate.
+ - I make such big efforts to forget things and I can’t tell the story of my life because, thank God, I’m still living it.
+ - In a meat-eating world, wearing leather for shoes and clothes and even handbags, the discussion of fur is childish.
+ - I love classic beauty. It’s an idea of beauty with no standard.
+ - Trendy is the last stage before tacky.
+ - Don’t overact the story of your name. Overact the story of your work.
+ - Fashion is ephemeral, dangerous and unfair.
+ - We need houses as we need clothes, architecture stimulates fashion. It’s like hunger and thirst – you need them both.
+ - Fur is not murder, but it is quite expensive.
+ - I don’t know Heidi Klum. She was never known in France. Claudia Schiffer also doesn’t know who she is.
+ - When I was a child, my mother always told me that you could wake up in the middle of the night and be deathly sick, so you always have to be impeccable. I laugh about it now, but I think everyone should go to bed like they have a date at the door.
+ - When I wake up I look like a madman, like something out of a horror movie! That’s why I sleep alone. But the funny thing is that I’m very impeccable and clean before I go to bed. It’s just like right before I’m going out.
+ - The secret to modeling is not being perfect. What one needs is a face that people can identify in a second. You have to be given what’s needed by nature, and what’s needed is to bring something new.
+ - I don’t care if people I admire criticize me because their opinion is valuable to me.
+ - The smell of a freshly printed book is the best smell in the world.
+ - I’m always busy. You know, the more I do, the more ideas I have – that’s the funny thing. The brain is a muscle, and I’m a kind of body builder.
+ - Clear thinking at the wrong moment can stifle creativity.
+ - My hair is not really white; it’s kind of grayish, and I don’t like the color. So I make it totally white with Klorane dry shampoo. That is the best thing to do because my hair is always clean.
+ - Normal people think I’m insane.
+ - Black, like white, is the best color!
+ - Sunglasses are like eye shadow: They make everything look younger and pretty.
+ - I hate leisure, except reading. I’m really a person made to work, if sketching is considered work.
+ - I sleep seven hours. If I go to bed at two, I wake up at nine. If I go to bed at midnight, I wake up at seven. I don’t wake up before – the house can fall apart, but I sleep for seven hours.
+ - Fashion is about going ahead, not about memory.
+ - I never smoked. I never drank and I never took drugs. The funny thing is, nothing is more boring, people like this. For me, it’s OK. But most of my friends, at least they smoke and drink.
+ - I don’t like the sister’s face. She should only show her back.
+ - Oh yes, I love to do shoes. I’m not a fetishist but I love to do shoes.
+ - But if I have a lot of imagination, I could tell myself whatever I wanted, you know. I handle myself quite well. I’m kind of fascist with myself, you know. There’s no discussion. There is an order. You follow it.
+ - The woman is the most perfect doll that i have dressed with delight and admiration.
+ - I am not a fashion victim. Fashion is my victim.
+ - Nothing makes you look older than attempting to look young.
+ - My job is to bring out in people what they wouldn’t dare do themselves.
+ - The iPod is genius. I have 300.
+ - It’s only I have seen enough of it and the funny thing is now, I know that I’m skinny, because I know there are even smaller clothes in the store. I think I’m big, when I was big, I never thought about it.
+ - What I like about music is the songs you can remember the lines of in a single second.
+ - Work is making a living out of being bored.
+ - If someone gives me a to-do list, I say ‘thank you, this is nice.’ One needs things to throw in the wastebasket.
+ - Guilty feelings about clothes are totally unnecessary. A lot of people earn their living by making clothes, so you should never feel bad.
+ - I had nearly finished school because I was making effort not that bad on that. But there was a law in Germany after the war. You could not make your final examination before 18, so lots of people who were late because of the way had to do it first.
+ - I buy my shoes a size too small. I like the way it feels.
+ - When people want to be liked for what they did, they should stop.
+ - I rather want my things to be copied than me copying. I would feel ashamed!
+ - People who do a job that claims to be creative have to be alone to recharge their batteries. You can’t live 24 hours a day in the spotlight and remain creative. For people like me, solitude is a victory.
+ - Kate Middleton has a nice silhouette and she is the right girl for that boy. I like that kind of woman, I like romantic beauties. On the other hand, her sister struggles. I don’t like the sister’s face. She should only show her back.
+ - I think it’s very important what young people see in pictures or on TV or in magazines. Drugs, violence, anorexia. All of the things that I absolutely do not reference in my photos.
+ - I never drink anything hot; I don’t like hot drinks, very strange.
+ - I don’t eat bubble gum, but I like the smell.
+ - Sometimes the idea of being truly iconic has something to do with not necessarily being beautiful and thus trying harder.
+ - The middle has not enough class that I think about the middle class.
+ - Fashion and music are the same, because music express its period too.
+ - The elegance is as physical, as moral quality that has nothing common with the clothing. You can see a countrywoman more elegant than one so called elegant woman.
+ - My sisters were sent away because my mother thought they were boring. I was not boring.
+ - If you want respect for your past, it means that you have a problem with your present and even more with your future.
+ - I am a sort of vampire, taking the blood of other people.
+ - Fashion is the healthiest motivation for losing weight.
+ - When things become too popular they are always fading away for something else.
+ - There is no marriage, yet, for human beings and animals. I never thought that I would fall in love like this with a cat.
+ - Beauty is also submitted to the taste of time, so a beautiful woman from the Belle Epoch is not exactly the perfect beauty of today, so beauty is something that changes with time.
+ - As a child I wanted to be a grown-up. I wanted to know everything – not that I like to talk about it. I hate intellectual conversation with intellectuals because I only care about my opinion.
+ - My innocence didn’t always help me, but it did preserve something in me that maybe others don’t have anymore. I’m inside my bubble, you could say, and thankfully so, because I don’t think daily life is always great. It protects me.
+ - My childhood was endless – from eight to 18 felt like hundreds of years.
+ - You cannot fake chic but you? can be chic and fake fur.
+ - Things have to be beautifully made, even if they are full of fun, fantasy and futility.
+ - Only the minute and the future are interesting in fashion – it exists to be destroyed. If everybody did everything with respect, you’d go nowhere.
+ - Designers must be both conscious and unconscious at the same time. Clear thinking at the wrong moment can stifle talent.
+ - I live my memoirs, I don’t have to write them down.
+ - I try not to be sentimental and obsessive about possessions. I love collecting, but I hate owning.
+ - I’m open to everything. When you start to criticize the times you live in, your time is over.
+ - Children are the last thing I want. I hate all children. For other people, it’s fine, but not for me. I was born not to be a family person.
+ - Who buys French cars? Not me.
+ - Forgiveness isn’t something I’m preoccupied with – turning the other cheek isn’t my trip.
+ - I see things in the middle of the night. I draw them on paper and I don’t even think about it. I’m like a machine in a way – just made of some electronic stuff. Vaguely digital.
+ - I never go anywhere. I do sketches and make phone calls, and people visit. It’s more fun to come to Paris.
+ - I have moved to a smaller house in Paris, and I don’t fancy having so much staff now.
+ - Lana del Rey is not bad at all. She looks very much like a modern-time singer. In her photos she is beautiful. Is she a construct with all her implants? She’s not alone with implants.
+ - Reinvent new combinations of what you already own. Improvise. Become more creative. Not because you have to, but because you want to. Evolution is the secret for the next step.
+ - The best ideas I’ve had in my life are those I saw in my sleep, in the early morning.
+ - I’m very severe with myself and sometimes I miss French cheese, but in your world it’s not exactly the same thing.
+ - I only go to places if I have a professional reason. I’m not a tourist.
+ - I get along with everyone except for men my age, who are bourgeois or retired or boring.
+ - I don’t speak Spanish, I speak a little of Italian but no Spanish.
+ - Beauty is also submitted to the taste of time...
+ - Today couture has to be expensive, but it shouldn’t look expensive.
+ - It’s not the days that are old, it’s you that’s old.
+ - The way I talk is bizarre.
+ - For me, New York is comfortable, not strange.
+ - Don’t use expensive clothes as a screen for your personal doubts. Be proud of yourself.
+ - Fashion keeps me designing: the love of change, the idea that the next one will be the right one, the nonstop dialogue.
+ - I want everyone to wear what they want and mix it in their own way. That, to me, is what is modern.
+ - I’m like a rock singer with one-night stands on the road.
+ - Don’t dress to kill, dress to survive.
+ - When I was four, I asked my mother for a valet for my birthday.
+ - I’m not a marketing person. I don’t ask myself questions. I go by instinct.
+ - I’ve survived quite a few generations. That’s because I never lost my enthusiasm. I wake up every morning like on Christmas Day, waiting for the gifts.
+ - Buy clothes the size you want to wear.
+ - I have one instinct stronger than any other thing in life, and that is the instinct for survival.
+ - If I could be reincarnated as a fashion accessory, it would be a shopping bag.
+ - I’ve only wanted paper and beautiful colors. It was my dream, and it still is my dream. And books. They’re all I need, and the rest I can do without.
+ - If I were a woman, I would love to have lots of kids. But for men, I don’t believe in it.
+ - You can be the chicest thing in the world in a T-shirt and jeans – it’s up to you.
+ - Seduction is, first and foremost, an art form. And seduction should not always be treated as a wild celebration. In fact, it’s more of an evocation of what you do. It’s more an evocation of seduction.
+ - If you stick to something doggedly, you are off to a bad start.
+ - Fashion is neither moral or immoral, but it is for rebuilding the morale.
+ - You have to like the present; if not your life becomes secondhand, if you think it was better before. Or that it will be better in the future.
+ - The story with anorexic girls – nobody works with anorexic girls. That has nothing to do with fashion.
+ - Clothes if they are not well cut, you can kill nobody. A building poorly built can kill people. It’s a much more difficult work. I would not compare myself with that.
+ - I like imagination – and the way I think things could be, had been, or should be – better than reality.
+ - I’m trying to think of the last time I had onions.
+ - Why should I stop working? If I do, I’ll die and it’ll all be finished.
+ - When you hear designers complaining about the challenge of their profession, you have to say: don’t get carried away-it’s only dresses.
+ - I think it’s horrible that people have to be told. Don’t smoke! Everybody knows it’s bad for the health. But they have to forbid it.
+ - I’m never content with what I do. I live in a sort of permanent dissatisfaction. I think that’s the secret to doing things well.
+ - I have a guest house because I don’t want people in my home.
+ - I love dogs, but dogs, you have to be in the country with dogs. I cannot walk a dog on the street.
+ - I’ve done many ads because that’s my new career. It’s an inspiring extension for my mind.
+ - We built everything – toilets included. I think those islands in the middle of nowhere are quite poetic. It’s kind of an Oriental Atlantis.
+ - No, I have someone who comes to the house and washes it, puts in the dry shampoo, and takes care if it because I have no time.
+ - The thing at the moment is Adele. She is a little too fat, but she has a beautiful face and a divine voice.
+ - I sketch in a way that people can nearly do the dresses without me coming in for a fitting. Every single detail, every proportion, every cut – everything.
+ - No, I’m not a French designer either. I’m from nowhere. I’m a European, old European is all I am.
+ - The advantage of Fashion is that there is no racism.
+ - It would have been difficult to have an ugly daughter.
+ - I like the present and tomorrow.
+ - Yes, and I can sit down on a white piece of paper and work because I don’t believe too much into inspiration, only I’m waiting for inspiration, work and then inspiration may come. It’s a little too easy to say that.
+ - Chanel is composed of only a few elements, white camellias, quilted bags and Austrian doorman’s jackets, pearls, chains, shoes with black toes. I use these elements like notes to play with.
+ - I don’t have prejudices. I’m against taboos. But of course there are some things I’ll never touch – because as a mom, there are things one doesn’t want their children to be around.
+ - I would like to be a one-man multinational fashion phenomenon.
+ - If you attach no importance to weight problems, if not being able to wear new, trendy small-sized clothes does not cause you any regret, this book is not for you.
+ - I am like a TV antenna. I catch everything that is in the air, and then I do it my way.
+ - Black-and-whit e always looks modern, whatever that word means.
+ - What I do Coco would have hated. The label has an image and it’s up to me to update it. I do what she never did. I had to find my mark. I had to go from what Chanel was to what it should be, could be, what it had been to something else.
+ - When I was a child, I never played with other children. I hated them.
+ - No, I never thought I would like cats.
+ - If I were pretentious I would say that I’m not an average person. But really, I know how that is.
+ - I like everything to be washable, myself included.
+ - No, and I never, ever eat in between the meals. I control it well enough and with no pills, and I sleep seven hours a night. I go to bed. I fall asleep, and I wake up seven hours later, and this is the most important.
+ - A book has to be easy to open and you don’t have to be a bodybuilder to lift it. I like books I can read in bed. Those big tombstones would kill me.
+ - What is the worst is a fashion designer who talks all the time of his or her creativity, what they are, how they evolved. Just do it and shut up.
+ - Some models who aren’t the most beautiful end up becoming the greatest of all time.
+ - You come first, the clothes later. Reinvent new combinations of what you already own. Be creative.
+ - I always loved advertising. If I hadn’t been in fashion, I’d have been in advertising.
+ - Fashion does not have to prove that it is serious. It is the proof that intelligent frivolity can be something creative and positive.
+ - I’m born with a pencil in my hand. I did lots of sketching.
+ - People in magazines are 50% bimbo and 50% pregnant women.
+ - The discussion of fur is childish.
+ - I don’t even want to have things associated with my name on the internet – it’s very dangerous.
+ - Doing collections, doing fashion is like a non-stop dialogue.
+ - I like the discipline of well-cut, impeccable clothes. I think it’s a very healthy discipline.
+ - I like girls to be wild but at the same time beautifully brought up and very funny.
+ - Foreigners don’t want to invest any more in France – and this is not working.
+ - If you throw money out of the window throw it out with joy. Don’t say: ‘one shouldn’t do that’ – that is bourgeois.
+ - My life is based on change. What I say is OK for the next ten minutes, then I change my mind.
+ - Greece needs to work on a cleaner image. It’s a big problem, as they have this reputation of being so corrupt.
+ - Bling is over. Red carpet covered with rhinestones is out. I call it ‘the new modesty.’
+ - I am a completely different person when I am working on different collections.
+ - I have more friends in New York than Paris.
+ - Normally, I don’t recommend me for wedding dresses – they all get a divorce.
+ - The iPod completely changed the way people approach music.
+ - I prefer to be in a video than to play with it.
+ - In France there are, I think, less than one per cent of people who are too skinny.
+ - I do my job like I breathe.
+ - Like poetry, fashion does not state anything. It merely suggests.
+ - My favorite kitchen was the Japanese and the Italian kitchen.
+ - People can drink with their eyes; I can eat with my nose.
+ - The French say you get hungry when you’re eating, and I get inspired when I’m working. It’s my engine.
+ - There are so many third-rate people now who are more famous than people who should be famous, but sometimes people who could or should be famous are very boring, too.
+ - I also do political cartoons, but a lot of them must stay, as they say, under the coat. But they are very fun to do, and in France, we have a good subject at the moment.
+ - Personally, I don’t wear fur.
+ - I like newspapers. Maybe the iPad is very modern and everything, and I’m not against it, but I like the physical contact. And the physical contact of metal and glass is not as sensuous as paper.
+ - Bears are very nice, as long as you are nice to them.
+ - I can tell you all kinds of moral tales, but fashion and reality are vaguely different.
+ - If you’re not ready to do a non-stop dialogue with fashion, you should do another job.
+ - What I’ve done, Coco Chanel would never have done. She would have hated it.
+ - I eat fish, three times a week meat, and if not yogurt, something like this and it rarely continues.
+ - Tell me, why do former young designers who are now in their middle 40s have to redo the 1960s and 70s. Why they cannot invent fashion for today?
+ - Sometimes it’s easy to have ideas, but somebody has to find a way to do it. Often those responsible for finding a way don’t have the idea.
+ - To reinvent a newly impeccable you in the most modern of outfits, don’t skip on makeup and be sure to have flawless skin and hair. That will have more impact than expensive clothes.
+ - I like today and perhaps a little future still, but the past is really something I’m not interested in. So, as far as I’m concerned, I like only the past of things and people I don’t know. When I know, I don’t care because I knew how it was.
+ - I think for my bones and my size, I better stay with my 60 kilo.
+ - The couture is what a certain kind of clientele wears. But it’s amusing to do because you do it piece by piece. It’s another concept. It’s much more work.
+ - The first thing I do when I get up, I have breakfast.
+ - Luxury is the ease of a t-shirt in a very expensive dress.
+ - It’s great that in life you do something that you want to do because you like doing it and you’re not bored. I’m not bored at all. I’m even interested in lots of things, more so today than before.
+ - Because I stopped dieting already six months ago, and I think it’s important to bring out a book like this and you are there a year later and say look, I’m still like this.
+ - You cannot be creative with people around you.
+ - Don’t use your film for ugly purpose.
+ - I was never a feminist because I was never ugly enough for that.
+ - No. I mean those people really did something for designers I don’t think department stores can, could or should do still today. Today the world is different so you have to make it differently. There’s TV. There’s a lot of things.
+ - Forget about your folklore. I can take a few inspirations, but I can certainly not do an homage. That’s not my trip. I’m a fashion vampire. I take what I need and I leave the rest.
+ - I never played with anything like toys.
+ - If there’s something dangerous, sauces are dangerous for the body.
+ - T-shirts for ten dollars are even more fashion today than expensive fashion.
+ - Only the minute and the future are interesting in fashion.
+ - I have now exactly the same weight I had when I was 18, 20.
+ - It’s never too early to care about fashion.
+ - I only wear the latest thing. It’s my job.
+ - The world is not there to please you. It’s up to you to please the world.
+ - Buy what you don’t have yet, or what you really want, which can be mixed with what you already own. Buy only because something excites you, not just for the simple act of shopping.
+ - There are less than 1 per cent of anorexic girls, but there more than 30 per cent of girls in France – I don’t know about England – that are much, much overweight. And it is much more dangerous and very bad for the health.
+ - I hated the company of other children. I wanted to be a grownup person, to be taken seriously. I hated the idea of childhood; I thought it was a moment of endless stupidity.
+ - A collection is not just one basic idea. It comes from something that is in the air, something you suddenly like and put down on paper and then work out.
+ - Some people would like me to be round again.
+ - I can hardly eat meat because it has to look like something what it was not when it was alive.
+ - With expensive fashion, the inside should be as perfect as the outside.
+ - There are nearly 30% of young people who are too fat. So let’s take care of the zillions of the too fat before we talk about the percentage that’s left.
+ - I never had to learn English, French and German because I was brought up as all three languages. I had a private French teacher before I even went to school. That helped a lot.
+ - I only know how to play one role: me.
+ - I don’t want to look sloppy, because then I feel sloppy.
+ - Don’t wear what you question, wear what you think is right for you.
+ - People are very nice to me, even though I’m known for saying rude things.
+ - If I read too much or know too much it’s not because I want to talk about it, it’s only because it’s interesting for me.
+ - Fortunately there is more wealth in the world than there was at the time of the global economic crisis of 1929 – Chinese, Indian, Arab and Russian.
+ - I wanted to become a cartoon artist, a portrait artist, and an illustrator. This was my first idea.
+ - I never – you know also one of the things that would save me for a man my age, it was not that easy to lose that much weight and fall down and look like something draped.
+ - There will never be a chanel collection without black.
+ - I’m not crazy to discuss fashion with men. I couldn’t care less about their opinion.
+
+320 quotes

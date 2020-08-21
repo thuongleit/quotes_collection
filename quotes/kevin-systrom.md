@@ -1,0 +1,50 @@
+ - Focusing on one thing and doing it really, really well can get you very far.
+ - If you’ve got an idea, start today. There’s no better time than now to get going.
+ - Great products sell themselves.
+ - If you’ve got an idea, start today. There’s no better time than now to get going. That doesn’t mean quit your job and jump into your idea 100 percent from day one, but there’s always small progress that can be made to start the movement.
+ - You need to fail in order to find the right solution.
+ - I promise you, a lot of it is luck. But you make your own luck by working really hard and trying lots and lots of things.
+ - With Instagram, the focus is on the present tense.
+ - What people tell you and how they act is very, very different sometimes.
+ - Every photo you take communicates something about a moment in time – a brief slice of time of where you were, who you were with, and what you were doing.
+ - There’s real beauty in pushing yourself to expose the real you in more ways.
+ - When people say that college isn’t worthwhile and paying all this money isn’t worthwhile, I really disagree. I think those experiences and those classes that may not necessarily seem applicable in the moment end up coming back to you time and time again.
+ - I have a pretty random life. I run a business and go all over the world doing things for that business, things that are fairly orthogonal. But my job is to run my company, not to be the best Instagrammer. I’ll let other people be awesome at it.
+ - Teens just understand the world in ways I don’t think any of us adults do.
+ - Above all else, products spread when they’re useful and they’re usable.
+ - I think Instagram at its best is where you feel like you’re getting the most authentic version of the person on the other side of the camera.
+ - The best feature is less features.
+ - I really value passion for the product above experience.
+ - I really love connecting people, creating communities. As a kid, creation was something that I always loved.
+ - People have presences, both online and in real life. You can choose to show everything, meaning all sides of you, or you can choose to be selective.
+ - I always look toward teens on Instagram to really understand what’s going on. For some reason, when you’re a teen, you just understand the world better than anyone else.
+ - A lot of the earliest Instagram celebrities took really beautiful photos. But you’re starting to see a change where it’s not about beauty; it’s about the story that you tell.
+ - I actually think some of my best moments in life have been while I was with people from Instagram – whether it’s super late nights getting a release out or being able to travel to places I’d never visited and meeting some of the most interesting people I’ve ever met.
+ - Our goal is to not just be a photo-sharing app, but to be the way you share your life when you’re on the go.
+ - I was never as focused in math, science, computer science, etcetera, as the people who were best at it. I wanted to create amazing screensavers that did beautiful visualizations of music. It’s like, “Oh, I have to learn computer science to do that.”
+ - I really appreciate crafts. I like cooking. I love food and drink. I love owning that through Instagram. Although that can be challenging at times because it doesn’t fit people’s stereotypes of a technical founder.
+ - I’m always in awe of people who are artists in their fields – people who understand that simply by taking ideas and translating them into reality, they’ve created value in the world.
+ - Every startup should address a real and demonstrated need in the world. If you build a solution to a problem lots of people have, it’s so easy to sell your product to the world.
+ - People interact with their phones very differently than they do with their PCs, and I think that when you design from the ground up with mobile in mind, you create a very different product than going the other way.
+ - The number of people who have either gotten married or had kids or started dating or just made great friends over Instagram is countless. I think we’re the only platform that continues to be successful in bringing people together in real life for these real relationships.
+ - I think not focusing on money makes you sane, because in the long run it can probably drive you crazy.
+ - Instagram was created because there was no single place dedicated to giving your mobile photos a place to live and to be seen.
+ - In the past, people have looked at photos as a record of memory. The focus has been on the past tense. With Instagram, the focus is on the present tense.
+ - The best products in the world have a point of view. The worst products have none.
+ - I love challenging the notion that, in order to be a tech founder, you have to be holed up in a dark room wearing a T-shirt and baggy jeans.
+ - People always told me photos have been done. My feeling was, these people are wrong.
+ - On the intimate relationships, I’d say you can be someone who wouldn’t normally get attention in traditional media and come onto Instagram and build this massive following.
+ - In my fourth grade classroom, I even instituted a government structure, because I was really interested in people having positions and there being law.
+ - Instagram is a media company. I think we’re about visual media.
+ - The major reason why Instagram works is that you can follow anyone out there and start following their photos immediately.
+ - I’ve always been into taking my photos, cropping them square, putting them through a filter in Photoshop.
+ - I believe photos is one of the underlying things in every social network that becomes successful.
+ - We’re just taking people and shifting them from taking photos anyway to taking them on Instagram.
+ - Working at a startup to make a lot of money was never a thing, and that’s why I decided to just finish up school. That was way more important for me.
+ - Obviously, being the CEO, there are a lot of eyes on what you do and what you post and how you post, and I think one of the challenges of Instagram in general is that, as we get bigger, there are just more voices in the room, more eyes on everyone’s accounts.
+ - Having a company that’s successful is a wonderful platform to do new things. You don’t have to raise money for it; you can take profits from the company and pump them into new business.
+ - I grew up as a photo nut. Every Christmas I would get a new camera. It’s a huge part of my life.
+ - I don’t think you should ever start a business and move in a direction where you can’t see it becoming a business.
+ - We just want to build a company that focuses on the love of Instagram.
+
+48 quotes

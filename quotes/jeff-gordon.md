@@ -1,0 +1,45 @@
+ - I’m not a robot; I have a personality and I have emotions. I have a humorous side to me and an angry side to me.
+ - You’ve got to be the best person you can be in your life.
+ - Being up front is the only place to be.
+ - You are going to make choices and decisions that sometimes aren’t going to always work in your favor and they are going to upset some other people.
+ - I don’t feel I’m a step above anyone on this team. I’m just another link in the chain.
+ - I want to race as long as I’m having fun, it’s competitive and healthy, and who knows when that, you know, date comes when that’s not happening anymore.
+ - I’m not a fighter, trust me. But I am someone who can get angry. I have a temper at times. Sometimes it gets the best of you no matter how you manage it.
+ - For some reason, no matter what happens in my life, I always seem to have a piece of my heart that says everything is going to be okay.
+ - When you’re in a race car, you’re going through so many different emotions throughout that race.
+ - Funds raised create hope for kids with cancer. Research is our top priority for discovering a cure.
+ - There’s no greater feeling than winning a race.
+ - I think driving in New York is a great experience. A lot more racing techniques go into it than anyplace else I’ve ever driven. There basically are no lanes.
+ - I want to force the other drivers to find a way past me.
+ - Either you focus, or you hit something really hard.
+ - Yeah, I’ve made some mistakes. Every guy makes mistakes.
+ - You may be leading, then you might be at the back of the pack trying to work your way up. It’s just a constant reminder not to give up, and to know that God, in my mind, is really in control.
+ - I’m just another link in the chain.
+ - I just feel rejuvenated in such a big way because of these race cars I get to drive.
+ - I think perception is important.
+ - So much of my life is spent just focused on driving race cars.
+ - As I get older, my appreciation for wine has just increased. I fell in love with wine through my travels, but knowing what the wine country is all about definitely makes it my own.
+ - I definitely get pumped up when I hear a crowd cheering for me.
+ - If somebody tells me, ‘You have to pass that car right there,’ I guarantee you I’m going to step up the aggressiveness to a whole other level and that may mean beating and banging. But until it calls for that moment, I’m not expecting to go out there and just beat and bang for no reason.
+ - I think fear is what keeps us from going over the edge. I mean, as a race car driver, I don’t think what makes a good race car driver is a fearless person. I think it’s somebody that is comfortable being behind the wheel of something that’s somewhat out of control.
+ - I thought long and hard about my future this past year and during the offseason, and I’ve decided 2015 will be the last time I compete for a championship.
+ - My career in racing started at a very young age in California.
+ - In NASCAR, you don’t have to be as physically strong as in some other forms of racing. You’ve just got to be able to endure the heat and endurance of it.
+ - I saw the wreck on TV in the hauler when I was getting dressed to leave. I thought, ‘Oh, he’ll be fine.’ It didn’t look like that type of an accident. I remember walking to the bus lot, seeing Teresa walk by. She definitely had a look on her face that I had not seen on her face before.
+ - I feel like I’m getting to be a better driver every day.
+ - No matter what happens, I’ll always say that I’ve had a wonderful life.
+ - In California, especially Northern California, the fans really cheer for me.
+ - Because the sport has changed, competition is not only stronger but it’s deeper throughout the field than it’s ever been. It’s harder to win.
+ - Ever since I’ve been racing, I’ve always been the young guy.
+ - You’re still going to see accidents, you always will. Especially towards the closing laps of a race.
+ - I don’t like to get beat in anything!
+ - I think we have gotten through those brain dead moments on both our parts. Now we just love to race one another hard and clean.
+ - Racing is not what I like to do; it’s winning.
+ - I don’t feel like I’ve really changed. Maybe I have let people see more of me than in the past.
+ - The business model of racing is not a pretty one.
+ - I’ve been racing a long time, and I realize you go through good streaks and bad streaks.
+ - You know, sometimes guys work with other guys because they’re buddies off the track, not necessarily because they’re buddies on the track. Sometimes you’ve got that going against you or for you.
+ - As fast as we’re going these days, especially because of the aerodynamics, we’re all concerned about abusing tires. It’s so fast that you’re afraid of what you’re going to do to the tires.
+ - When you’ve got the Daytona 500 out there at stake and everything riding on the line, guys go for it, and the guys that go for it are the ones that are either going to win or they’re going to wreck.
+
+43 quotes

@@ -1,0 +1,39 @@
+ - You must find your own quiet center of life, and write from that to the world.
+ - Yes’m, old friends is always best, ’less you can catch a new one that’s fit to make an old one out of.
+ - In the life of each of us there is a place remote and islanded, and given to endless regret or secret happiness.
+ - The process of falling in love at first sight is as final as it is swift in such a case, but the growth of true friendship may be a lifelong affair.
+ - It is not often given in a noisy world to come to the places of great grief and silence.
+ - It is the people who can do nothing who find nothing to do, and the secret to happiness in this world is not only to be useful, but to be forever elevating one’s uses.
+ - Tact is after all a kind of mind reading.
+ - My dear father; my dear friend; the best and wisest man I ever knew, who taught me many lessons and showed me many things as we went together along the country by-ways.
+ - God would not give us the same talent if what were right for men were wrong for women.
+ - Tain’t worthwhile to wear a day all out before it comes.
+ - A harbor, even if it is a little harbor, is a good thing, since adventurers come into it as well as go out, and the life in it grows strong, because it takes something from the world, and has something to give in return.
+ - Write it as it is, don’t try to make it like this or that. You can’t do it in anybody else’s way-you will have to make a way of your own.
+ - What’s everybody’s business is nobody’s business...
+ - Do not hurry too fast in these early winter days, – a quiet hour is worth more to you than anything you can do in it.
+ - Wrecked on the lee shore of age.
+ - Imagination is the only true thing in the world!
+ - Satisfaction, even after one has dined well, is not so interesting and eager a feeling as hunger.
+ - A lean sorrow is hardest to bear.
+ - So we die before our own eyes; so we see some chapters of our lives come to their natural end.
+ - It seems to me like stealing, for men and women to live in the world and do nothing to make it better.
+ - Love isn’t blind; it’s only love that sees!
+ - The growth of true friendship may be a lifelong affair.
+ - It does seem so pleasant to talk with an old acquaintance who knows what you know. I see so many new folks nowadays who seem to have neither past nor future. Conversation has got to have some root in the past, or else you have got to explain every remark you make, and it wears a person out.
+ - My childhood is very vivid to me, and I don’t feel very different now from the way I felt then. It would appear I am the very same person, only with wrinkles.
+ - The thing that teases the mind over and over for years, and at last gets itself put down rightly on paper – whether little or great, it belongs to Literature.
+ - There’s some herb that’s good for everybody, except for them that thinks they’re sick when they ain’t.
+ - Don’t scatter your fire! You are a prose writer: stick to your own tool!
+ - In the life of each of us, I said to myself, there is a place remote and islanded, and given to endless regret or secret happiness; we are each the uncompanioned hermit and recluse of an hour or a day; we understand our fellows of the cell to whatever age of history they may belong.
+ - There was a patient look on the old man’s face, as if the world were a great mistake and he had nobody with whom to speak his own language or find companionship.
+ - It is a splendid thing to have the use of any gift of God. It isn’t for us to choose again, or wonder and dispute, but just work in our own places, and leave the rest to God.
+ - Some set more by such things as come from a distance, but I rec’lect mother always used to maintain that folks was meant to be doctored with the stuff that grew right about ’em.
+ - Who was it said that you never get to a place until a day after you come, nor leave it until a day after you go?
+ - The old poets little knew what comfort they could be to a man.
+ - I’ve found that people who look at things as they are, and not as they wish them to be, are the ones who succeed.
+ - Life was resumed, and anxious living blew away as if it had not been. I could not breathe deep enough or long enough. It was a return to happiness.
+ - There is something out of gear about graded schools and all that. Memory is developed at the expense of what in general we are pleased to call thought and character.
+ - A story should be managed so that it should suggest interesting things to the reader instead of the author’s doing all the thinking for him, and setting it before him in black and white.
+
+37 quotes

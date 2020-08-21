@@ -1,0 +1,22 @@
+ - Love wouldn’t be blind if the braille weren’t so damned much fun.
+ - Laugh all you want and cry all you want and whistle at pretty men in the street and to hell with anybody who thinks you’re a damned fool!
+ - All I know is this: If you and papa are responsible for the way I am, then I thank you with all my heart, for it is the light and the joy of my life.
+ - The world changes in direct proportion to the number of people willing to be honest about their lives.
+ - There is no fifth destination.
+ - My mother once told me that if a married couple puts a penny in a pot for every time they make love in the first year, and takes a penny out every time after that, they’ll never get all the pennies out of the pot.
+ - Don’t listen when they scoff That you are too old and I am young, For I am old enough to know better And you are young enough not to care.
+ - Outing is a nasty word for telling the truth.
+ - But I will say that the drugs are much more ferocious then they used to be. There are people wrecking their lives with addiction, which seems much more severe.
+ - Being in love is the only transcendent experience.
+ - I’m not sure I even need a lover, male or female. Sometimes I think I’d settle for five good friends.
+ - I surrendered my youth to the people I feared when I could have been out there loving someone. Don’t make that mistake yourself. Life’s too damn short.
+ - I think that instinct, that storytelling instinct, rescued me most of my life.
+ - I’ve always drawn on bits and pieces of my own life.
+ - But I’m acutely aware that the possibility of fraud is even more prevalent in today’s world because of the Internet and cell phones and the opportunity for instant communication with strangers.
+ - I’m the age now that Rock was when he picked me up, so I can understand how he felt – how his fame limited his freedom. You get kinder as you go along.
+ - The film itself involves a New York City radio storyteller, Gabriel Noone, who strikes up a friendship with one of his fans, an abused 14-year-old teenager who is suffering from AIDS, who does not have much longer to live.
+ - Solitude was no reason for sloppiness.
+ - I tend to prefer the shelter of fiction.
+ - I consider myself much better adjusted than Gabriel.
+
+20 quotes

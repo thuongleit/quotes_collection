@@ -1,0 +1,42 @@
+ - Complaining is one of the ego’s favorite strategies for strengthening itself. ~~Eckhart Tolle
+ - If someone corrects you, and you feel offended, then YOU have an EGO problem. ~~Nouman Ali Khan
+ - A man asked Lord Buddha “I want happiness.” Lord Buddha said – first remove “I” that’s ego. Then remove “Want” that’s desire. See now you are left with only “Happiness”. ~~Buddha
+ - Ego says, “Once everything falls into place, I’ll feel peace”. Spirit says, “Find your peace, and then everything will fall into place”. ~~Marianne Williamson
+ - My opponent is my teacher, my ego is my enemy. ~~Renzo Gracie
+ - When the ego dies, the soul awakes. ~~Mahatma Gandhi
+ - The Ego, however, is not who you really are. The ego is your self-image; it is your social mask; it is the role you are playing. Your social mask thrives on approval. It wants control, and it is sustained by power, because it lives in fear. ~~Deepak Chopra
+ - Body is purified by water. Ego by tears. Intellect is purified by knowledge. And soul is purified with love. ~~Ali ibn Abi Talib
+ - Always keep your ego in check and not be afraid to listen. Listening is a great art form. ~~Clint Eastwood
+ - Through being “right”, you feel superior and through feeling superior you strengthen your sense of self. In reality, of course, you are only strengthening the illusion of ego. ~~Eckhart Tolle
+ - Suffering has a noble purpose: the evolution of consciousness and the burning up of the ego. ~~Eckhart Tolle
+ - Show me someone without an ego, and I’ll show you a loser – having a healthy ego, or high opinion of yourself, is a real positive in life! ~~Donald Trump
+ - Freedom means the power to act by soul guidance, not by the compulsions of desires and habits. Obeying the ego leads to bondage; obeying the soul brings liberation. ~~Paramahansa Yogananda
+ - I have an ego the size of a small planet. ~~Linus Torvalds
+ - If there’s anything more important than my ego around, I want it caught and shot now. ~~Douglas Adams
+ - I would prefer not to. ~~Herman Melville
+ - Show me someone without an ego, and I’ll show you a loser. ~~Donald Trump
+ - A man’s ego is the fountainhead of human progress. ~~Ayn Rand
+ - The ego is a false sense based on mental concepts. It is identification with the body and the mind-primarily identification with thought form. ~~Eckhart Tolle
+ - Where id was, there ego shall be. ~~Sigmund Freud
+ - The ultimate dragon is within you, it is your ego clamping you down. ~~Joseph Campbell
+ - The Ego’s job is to kill everything but itself. ~~Byron Katie
+ - All you need to know and observe in yourself is this: Whenever you feel superior or inferior to anyone, that’s the ego in you. ~~Eckhart Tolle
+ - The ego is a tool. You don’t separate it. It’s a tool for the spirit. ~~Ram Dass
+ - Humility is born of the spirit, humiliation of the ego. ~~Alan Cohen
+ - The ego seeks to divide and separate. Spirit seeks to unify and heal. ~~Pema Chödrön
+ - The ego is not only the unobserved mind, the voice in the head which pretends to be you, but also the unobserved emotions that are the body’s reaction to what the voice in the head is saying. ~~Eckhart Tolle
+ - The ego is always looking to find something. The Spirit can see what’s already there. ~~Marianne Williamson
+ - The ego relies on the familiar. It is reluctant to experience the unknown, which is they very essence of life. ~~Deepak Chopra
+ - For the ego to survive, it must make time – past and future – more important than the present moment. ~~Eckhart Tolle
+ - One of the ego’s favorite paths of resistance is to fill you with doubt. ~~Ram Dass
+ - Don’t be a hero. Don’t have an ego. ~~Paul Tudor Jones
+ - All ego really is, is our opinions, which we take to be solid, real, and the absolute truth about how things are. ~~Pema Chödrön
+ - Life lived in the absence of the psychedelic experience that primordial shamanism is based on is life trivialized, life denied, life enslaved to the ego. ~~Terence McKenna
+ - The ego is nothing other than the focus of conscious attention. ~~Alan Watts
+ - Science is the special province of the ego. And magic and art are the special province of something else. I could name it, but I won’t. It prefers to be unnamed. ~~Terence McKenna
+ - Look for intelligence and judgment and, most critically, a capacity to anticipate, to see around corners. Also look for loyalty, integrity, a high energy drive, a balanced ego and the drive to get things done. ~~Colin Powell
+ - In mourning it is the world which has become poor and empty; in melancholia it is the ego itself. ~~Sigmund Freud
+ - The poor ego has a still harder time of it; it has to serve three harsh masters, and it has to do its best to reconcile the claims and demands of all three... The three tyrants are the external world, the superego, and the id. ~~Sigmund Freud
+ - Most of us are convinced that we are our egos, which is who we think we are. The ego is part of our incarnation. It dies with the body, which is why we are so afraid of death. Death scares the hell out of who you think you are, especially if you think you are this body. ~~Ram Dass
+
+40 quotes

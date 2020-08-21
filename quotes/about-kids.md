@@ -1,0 +1,42 @@
+ - Kid, you’ll move mountains. ~~Dr. Seuss
+ - Literacy is the most basic currency of the knowledge economy. ~~Barack Obama
+ - For me, I am driven by two main philosophies: know more today about the world than I knew yesterday and lessen the suffering of others. You’d be surprised how far that gets you. ~~Neil deGrasse Tyson
+ - Could a greater miracle take place than for us to look through each other’s eyes for an instant? ~~Henry David Thoreau
+ - Often when you think you’re at the end of something, you’re at the beginning of something else. ~~Fred Rogers
+ - In order to develop normally, a child requires progressively more complex joint activity with one or more adults who have an irrational emotional relationship with the child. Somebody’s got to be crazy about that kid. That’s number one. First, last and always. ~~Urie Bronfenbrenner
+ - Give a kid a book, and you change the world. In a way, even the universe. ~~Neil deGrasse Tyson
+ - Life is only precious because it ends, kid. Take it from a god. You mortals don’t know how lucky you are. ~~Rick Riordan
+ - I realize that I’m black, but I like to be viewed as a person, and that’s everybody’s wish. I try to be a role model for black kids, white kids, yellow kids, green kids. This is what I felt was good about my personality. ~~Michael Jordan
+ - Pride is concerned with who is right. Humility is concerned with what is right. ~~Ezra Taft Benson
+ - Maybe I’m just a kid in love. ~~Shawn Mendes
+ - It all begins with forgiveness, because to heal the world, we first have to heal ourselves. And to heal the kids, we first have to heal the child within, each and every one of us. ~~Michael Jackson
+ - The best preparation for tomorrow is doing your best today. ~~H. Jackson Brown Jr.
+ - To make an embarrassing admission, I like video games. That’s what got me into software engineering when I was a kid. I wanted to make money so I could buy a better computer to play better video games. Nothing like saving the world. ~~Elon Musk
+ - Kid, if You Need Booze or Drugs to Enjoy Your Life to the Fullest, You’re Doing It Wrong. ~~Robin Williams
+ - You’re not a kid anymore. You have the right to choose your own life. You can start again. If you want a cat, all you have to do is choose a life in which you can have a cat. It’s simple. It’s your right. ~~Haruki Murakami
+ - When I started, rock and roll itself was the basic revolution to people of my age and situation. We needed something loud and clear to break through all the unfeeling and repression that had been coming down on us kids. ~~John Lennon
+ - I’d love to go back to when we played as kids, but things change. And that’s the way it is. ~~Tupac Shakur
+ - I’m a little fatigued of adults saying we’ve got to worry about the kids. And these are the same adults that don’t know science and are running things and wielding resources and legislation. ~~Neil deGrasse Tyson
+ - I tell the kids, somebody’s gotta win, somebody’s gotta lose. Just don’t fight about it. Just try to get better. ~~Yogi Berra
+ - We’ve got to do fewer things in school. The greatest enemy of understanding is coverage... You’ve got to take enough time to get kids deeply involved in something so they can think about it in lots of different ways and apply it. ~~Howard Gardner
+ - Kids, fiction is the truth inside the lie, and the truth of this fiction is simple enough: the magic exists. ~~Stephen King
+ - Basketball is my refuge, my sanctuary. I go back to being a kid on the playground. When I get here, it’s all good. ~~Kobe Bryant
+ - It’s all about bucks, kid. The rest is conversation. ~~Michael Douglas
+ - Sales people should take lessons from their kids. What does the word ‘no’ mean to a child? Almost nothing. ~~Jim Rohn
+ - The prison-industrial complex and the military-industrial complex are here with us and are multi-billion dollar enterprises. We can make more money off the kid in Compton if he’s a criminal instead of a scholar. It’s business. ~~Henry Rollins
+ - Participating in a gun buy-back program because you think that criminals have too many guns is like having yourself castrated because you think your neighbors have too many kids. ~~Clint Eastwood
+ - Got a wife and kid in Baltimore Jack, I went out for a ride and I never went back. Like a river that don’t know where it’s flowing, I took a wrong turn and I just kept going. ~~Bruce Springsteen
+ - Sport for me is about inspiring kids. Here’s the rules, here’s the play area, sometimes you win, sometimes you lose. This is all about teaching kids how to approach life. If we’re not playing sport to benefit kids, I’m not really sure why we play sport. ~~Russell Crowe
+ - I’m trying not to be a kid all the time, but it’s hard. ~~Jaromir Jagr
+ - I’m doing this for the kid who truly leads a ‘thug life’ and thinks it’s HOPELESS. ~~Tupac Shakur
+ - Usually the kids are portrayed as very one-dimensional. Like these mindless animals that just have three things on their minds: getting laid, getting drunk, and driving real fast over Mulholland Drive. ~~Molly Ringwald
+ - I’m a family man, I have kids, and I go to the movies. And I’m just going to make the kind of movie I want to see. ~~Andrew Stanton
+ - When I started the Imagination Library in my hometown, I never dreamed that one day we would be helping Scottish kids. ~~Dolly Parton
+ - You’ve always got to remember, rock and roll’s never been about giving up. For me, for a lot of kids, it was a totally positive force... not optimistic all the time, but positive. It was never – never – a bout surrender. ~~Bruce Springsteen
+ - You have never seen greatness in a Presidency; I have. It was a rich kid who you would think had every reason to be a horse’s ass – Franklin Roosevelt. He was humane and wise and resourceful. He was called a traitor to his class. ~~Kurt Vonnegut
+ - I can shake off everything as I write; my sorrows disappear, my courage is reborn. ~~Anne Frank
+ - If a kid ever realized what was involved in factory farming, they would never touch meat again. ~~James Cromwell
+ - There was Michael Jackson, the King of Pop, an aloof superstar who had everything and needed no one. And Michael Jackson, the shy kid under the mask, who lacked even a single real friend. ~~Michael Jackson
+ - I once bought my kids a set of batteries for Christmas with a note on it saying, toys not included. ~~Bernard Manning
+
+40 quotes

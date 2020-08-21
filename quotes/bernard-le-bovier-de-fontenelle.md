@@ -1,0 +1,44 @@
+ - Hardly anyone knows how much is gained by ignoring the future.
+ - We must always skim over pleasures. They are like marshy lands that we must travel nimbly, hardly daring to put down our feet.
+ - It is a great obstacle to happiness to expect too much.
+ - Leibniz never married; he had considered it at the age of fifty; but the person he had in mind asked for time to reflect. This gave Leibniz time to reflect, too, and so he never married.
+ - Nature is never so admired as when she is understood.
+ - Nothing can be more destructive to ambition, and the passion for conquest, than the true system of astronomy. What a poor thing is even the whole globe in comparison of the infinite extent of nature!
+ - A philospher sees the Earth as a large planet, travelling through the heavens, covered with fools.
+ - Women react differently: a French woman who sees herself betrayed by her husband will kill his mistress; an Italian will kill her husband; a Spaniard will kill both; and a German will kill herself.
+ - If I had my hand full of truth, I would take good care how I opened it.
+ - A true philosopher is like an elephant; he never puts the second foot down until the first one is solidly in place.
+ - A well-cultivated mind is, so to speak, made up of all the minds of preceding ages; it is only one single mind which has been educated during all this time.
+ - To despise theory is to have the excessively vain pretension to do without knowing what one does, and to speak without knowing what one says.
+ - Behold a universe so immense that I am lost in it. I no longer know where I am. I am just nothing at all. Our world is terrifying in its insignificance.
+ - It takes time to ruin a world, but time is all it takes.
+ - I hate war, for it spoils conversation.
+ - I shall leave the world without regret, for it hardly contains a single good listener.
+ - People almost always do great things without knowing how to do them, and are quite surprised to have done them.
+ - I feel nothing, apart from a certain difficulty in continuing to exist.
+ - It is high time for me to depart, for at my age I now begin to see things as they really are.
+ - As astronomy is the daughter of idleness, geometry is the daughter of property.
+ - To be happy, one must have a good stomach and a bad heart.
+ - There are three things I have loved but never understood. Art, music and women.
+ - It is the passions that do and undo everything.
+ - Mathematicians are like lovers. Grant a mathematician the least principle, and he will draw from it a consequence which you must also grant him, and from this consequence another.
+ - Nature intends that, at fixed periods, men should succeed each other by the instrumentality of death. We shall never outwit Nature; we shall die as usual.
+ - It is beauty that begins to please, and tenderness that completes the cbarm.
+ - An educated mind is, as it were, composed of all the minds of preceding ages.
+ - The judgment may be compared to a clock or watch, where the most ordinary machine is sufficient to tell the hours; but the most elaborate alone can point out the minutes and seconds, and distinguish the smallest differences of time.
+ - Neatness is a crowning grace of womanhood.
+ - Modesty in women has two special advantages, – it enhances beauty and veils uncomeliness.
+ - A work of morality, politics, criticism will be more elegant, other things being equal, if it is shaped by the hand of geometry.
+ - In vain we shall penetrate more and more deeply the secrets of the structure of the human body, we shall not dupe nature; we shall die as usual.
+ - The Art of Flying is but newly invented, twill improve by degrees, and in time grow perfect; then we may fly as far as the Moon.
+ - A man finds no sweeter voice in all the world than that which chants his praise.
+ - I have lived one hundred years; and I die with the consolation of never having thrown the slightest ridicule upon the smallest virtue.
+ - Our sun enlightens the planets that belong to him; why may not every fixed star also have planets to which they give light?
+ - If I held all the thoughts of the world in my hand, I would be careful not to open it.
+ - Since the princes take the Earth for their own, it’s fair that the philosophers reserve the sky for themselves and rule there, but they should never permit the entry of others.
+ - Let us be well assured of the Matter of Fact, before we trouble our selves with enquiring into the Cause. It is true, that this Method is too slow for the greatest part of Mankind, who run naturally to the Cause, and pass over the Truth of the Matter of Fact.
+ - There is nothing one sees oftener than the ridiculous and magnificent, such close neighbors that they touch.
+ - A philosopher will not believe what he sees because he is too busy speculating about what he does not see.
+ - They will have the World to be in Large, what a Watch is in Small; which is very regular, and depends only upon the just disposing of the several Parts of the Movement.
+
+42 quotes

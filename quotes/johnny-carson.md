@@ -1,0 +1,105 @@
+ - Happiness is having a rare steak, a bottle of whiskey, and a dog to eat the rare steak.
+ - Thanksgiving is an emotional holiday. People travel thousands of miles to be with people they only see once a year. And then discover once a year is way too often.
+ - According to statistics, it’s a lot easier to get hit by lightning than to win a Lotto jackpot. The good side: you don’t hear from your relatives.
+ - It was so hot today that Burger King was singing, “if you want it your way, cook it yourself.”
+ - Married men live longer than single men. But married men are a lot more willing to die.
+ - As long as I don’t commit any crimes, you have no right to judge me except by my performance as a professional. On that level, you’re welcome to think whatever you want about me.
+ - When turkeys mate they think of swans.
+ - Happiness is seeing the muscular lifeguard all the girls were admiring leave the beach hand in hand with another muscular lifeguard.
+ - The worst gift is a fruitcake. There is only one fruitcake in the entire world, and people keep sending it to each other.
+ - I see a lot of new faces. Especially on the old faces.
+ - I have no use for eight houses, 88 cars and 500 suits. I can’t eat but one steak at a time. I don’t want but one woman. It’s silly to have as one’s sole object in life just making money, accumulating wealth.
+ - What’s all this fuss about plutonium? How can something named after a Disney character be dangerous?
+ - Adults ask questions as a child does. When you stop wondering, you might as well put your rocker on the front porch and call it a day.
+ - Money gives me just one big thing that’s really important, and that’s the freedom of not having to worry about money.
+ - When a comic becomes enamored with his own views and foists them off on the public in a polemic way, he loses not only his sense of humor but his value as a humorist.
+ - Air Canada. That’s a good name for a Canadian airline.
+ - Audiences have proved time and again that they don’t want a steady diet of any entertainer airing his social views – especially if he’s a comedian.
+ - Only lie about the future.
+ - I am taking the applause sign home, putting it in the bedroom.
+ - He’s so fat, he can be his own running mate.
+ - I’ve worked ever since I was a kid with a two-bit kit of magic tricks trying to improve my skills at entertaining whatever public I had – and to make myself ready, whenever the breaks came, to entertain a wider and more demanding public.
+ - I owe one thing to my public – the best performance I can give.
+ - There was this billy goat at a movie studio who found and ate a can of film. When a nanny asked him how he liked it, he said, “It was all right but I liked the book better.”
+ - As you all know by now, this is the 51st annual Academy Awards. Two hours of sparkling entertainment spread out over a four-hour show.
+ - I work because I enjoy what I’m doing, and the fact that I make money at it – big money – is a fine-and-dandy side fact.
+ - If you’re happy in what you’re doing, you’ll like yourself, you’ll have inner peace.
+ - When the public starts classifying you as thoughtful, someone given to serious issues, you find yourself declassified as a humorist.
+ - Democracy is buying a big house you can’t afford with money you don’t have to impress people you wish were dead.
+ - Last night, it was so cold, the flashers in New York were only describing themselves.
+ - The best way to thaw a frozen turkey? Blow in it’s ear.
+ - NBC’s a little jealous of CNN correspondent Wolf Blitzer. They want to get a reporter with a macho-sounding name too, so they’re changing Irving R. Levine’s name to Scud Shrapnel.
+ - There’s a big difference between being a loner and being lonely. I’m far from lonely. My day is full of things I enjoy, starting with my show. Any time my work is going well and I have a relationship with a woman that’s pretty solid, that does it for me.
+ - I don’t run with anybody’s herd. I don’t like crowds. I don’t like going to fancy places. I don’t like the whole nightclub scene. Cocktail parties drive me mad. So I do my job and I stay away from the rest of it.
+ - I don’t think it’s you that changes with success – it’s the people around you who change. Because of your new status, they change in relation to you.
+ - Pie throwing is kind of a lost art, and although it may be a rather rudimentary, burlesque humor, there’s something inherently funny about taking a pie in the face, under the right conditions.
+ - Whatever you do, you’re going to be criticized.
+ - Happiness is being stuck in an elevator and discovering the ravishing blonde with you is a liquor salesman with a case of samples.
+ - If it weren’t for Philo T. Farnsworth, inventor of television, we’d still be eating frozen radio dinners.
+ - A two-pound turkey and a fifty-pound cranberry-that’s Thanksgiving dinner at Three Mile Island.
+ - I heard from my cat’s lawyer today; my cat wants $12,000 a week for Tender Vittles.
+ - I demand my right to a private life, just as I respect that right for everybody else.
+ - Anytime four New Yorkers get into a cab together without arguing, a bank robbery has just taken place.
+ - There’s only one critic whose opinion I really value, in the final analysis: Johnny Carson. I have never needed any entourage standing around bolstering my ego. I’m secure. I know exactly who and what I am. I don’t need to be told. I make no apologies for being the way I am.
+ - Egyptian President Sadat had a belly dancer entertain President Nixon at a state dinner. Mr. Nixon was really impressed. He hadn’t seen contortions like that since Rose Mary Woods.
+ - If God didn’t want man to hunt, He wouldn’t have given us plaid shirts.
+ - I am one of the lucky people in the world; I found something I always wanted to do, and I have enjoyed every single minute of it.
+ - I get sick of that old rationalization, “We’re staying together because of the children.” Kids couldn’t be more miserable living with parents who can’t stand each other. They’re far better off if there’s an honest, clean divorce.
+ - There are very few Japanese Jews. As a result, there is no Japanese word for Alan King.
+ - From the time I was a little kid, I was always shy. Performing was when I was outgoing. So I guess I am a loner. I get claustrophobia if a lot of people are around.
+ - The difference between divorce and legal separation is that legal separation gives a husband time to hide his money.
+ - Pittsburgh is kind of like Newark without the cultural advantages.
+ - I hated my last boss. He asked, Why are you two hours late? I said, I fell downstairs. He said, That doesn’t take two hours.
+ - In 1932, lame duck president Herbert Hoover was so desperate to remain in the White House that he dressed up as Eleanor Roosevelt. When FDR discovered the hoax in 1936, the two men decided to stay together for the sake of the children.
+ - Believe me, you don’t walk away from the kind of money you make with a daily television show. You might get awful tired of it sometimes, but take a second look at the check and you get less tired right away.
+ - Find me any performer anywhere who isn’t egocentric. You’d better believe you’re good, or you’ve got no business being out there.
+ - Entertainment is like any other major industry; it’s cold, big business. The business end wants to know one thing: Can you do the job? If you can, you’re in, you’re made; if you can’t, you’re out.
+ - Like their parents, kids flock to see James Bond and Derek Flint movies – outrageously antiheroic heroes who break all the taboos, making attractive the very things the kids are told they shouldn’t do themselves.
+ - People are hypocrites. If you ask them what they want to see on TV, they’ll tell you they want better quality programming. And then what do they watch? ‘Gilligan’s Island.’
+ - Happiness is a tiger in your tank and a pussycat in your back seat.
+ - An oxymoron? What’s that? A moron who studies at Oxford?
+ - In Hollywood if you don’t have a shrink, people think you’re crazy.
+ - Having money gives me the freedom to worry about the things that really matter.
+ - The Champagne they have stored is getting more valuable every year.
+ - The closest thing to Roseanne Barr’s singing the national anthem was my cat being neutered.
+ - We resort, frankly, to pies, which is a comedy staple that’s gone back, I guess, to since the first pie was ever baked.
+ - Never use a big word when a little filthy one will do.
+ - Happiness is being served with a paternity suit on your 75th birthday.
+ - Democracy means free television, not good television, but free.
+ - Nancy Reagan fell down and broke her hair.
+ - I have an ego like anybody else, but I don’t need to be stoked by going before the public all the time.
+ - I loved the towns I grew up in as a boy, and after I became a celebrity, I went back several times. I would have had the time of my life seeing the old places and the old faces again, but the attitude of those same people was, “I guess you’re so big we bore you now.”
+ - That would have been a great ticket, Reagan and Ford – an actor and a stuntman.
+ - Happiness is seeing your son drafted the same day he’s been accepted to an expensive college.
+ - Did you know Richard Nixon is the only president whose formal portrait was painted by a police sketch artist?
+ - We have two kinds of air: regular and chunky style.
+ - Who cares what entertainers on the air think about international affairs? Who would want to hear me about Vietnam? They can hear all they want from people with reason to be respected as knowledgeable.
+ - George Burns has been on my show twenty or thirty times, or maybe more. How can you turn down a guy that age?
+ - Democracy is welcoming people from other lands, and giving them something to hold onto. Usually a mop or a leaf blower.
+ - Ronald Reagan just signed the new tax law. But I think he was in Hollywood too long. He signed it, ‘Best wishes, Ronald Reagan.’
+ - I’m an entertainer, not a commentator. If you’re a comedian your job is to make people laugh.
+ - The only issue cash presents you is the independence of not stressing about funds.
+ - The good news is that the president gets another chance. The bad news is that he’ll be two weeks older.
+ - I can’t go anywhere without being bugged by somebody. I’d love to just hike out down the street, or drop in a restaurant, or wander in the park, or take my kids somewhere without collecting a trail of people. But I can’t.
+ - I feel the one sensible thing you can do is try to live in a way that pleases you. If you don’t hurt anybody else, what you do is your own business.
+ - Happiness is discovering the prune juice your doctor ordered you to drink has fermented.
+ - I hear that whenever someone in the White House tells a lie, Nixon gets a royalty.
+ - Happiness is sitting down to watch some slides of your neighbor’s vacation and finding out that he spent two weeks in a nudist colony.
+ - They say atomic rad-i-ation can hurt your reproductive organs. My answer is, so can a hockey stick. But we don’t stop building them.
+ - We’re more effective than birth control pills.
+ - You become successful, the way I see it, only if you’re good enough to deliver what the public enjoys. If you’re not, you won’t have any audience; so the performer really has more to do with his success than the public does.
+ - How much of the national news that you report to the public each night consists of information you’ve actually gone out and dug up on your own?
+ - As for being sociable, I hate the phoniness in the showbiz world. I know this will be taken wrong, but I don’t like clubs and organizations. I was never a joiner.
+ - I never analyze it. Analyzing it would just be a waste of time. I just go out and do it.
+ - I’m an entertainer; I try to give the public what it wants while I’m on the screen, and I’m completely sincere about it. If I don’t happen to be a laughing boy off the screen, that doesn’t make me a hypocrite or a phony.
+ - There’s a lot of hypocrisy in audiences. I’d never dream of telling even on a nightclub stage, let alone my show, some of the jokes that are told in a lot of the living rooms from which we get those letters!
+ - I wouldn’t have the slightest interest in running for public office. I’d rather make jokes about politicians than become one of them.
+ - I think students ought to have the right to protest, but not to the point of anarchy.
+ - Never ask your wife if she still hears from her old pimp.
+ - I think it’s almost immoral to keep on with a marriage that’s really bad. It just gets more and more rotten and vindictive and everybody gets more and more hurt. There’s not enough honesty about marriage, I think. I wish more people would face the truth about their marital situations.
+ - I know you’ve been married to the same woman for 69 years. That is marvelous. It must be very inexpensive.
+ - Do you know my dream? I really want to become an aluminum-siding salesman.
+ - I play my life straight – the way I see it. I’m grateful to audiences for watching me and for enjoying what I do – but I’m not one of those who believe that a successful entertainer is made by the public, as is so often said.
+ - Everybody I meet in public seems to want to audition for me. If I ask a guy what time it is, he’ll sing it to me.
+
+103 quotes

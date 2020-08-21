@@ -1,0 +1,118 @@
+ - No one is coming to save you...
+ - A goal without an action plan is a daydream.
+ - The first step toward change is awareness. The second step is acceptance.
+ - Sometimes the subconscious mind manifests a wisdom several steps or even years ahead of the conscious mind, and has its own way of leading us toward our destiny.
+ - The feeling that “I am enough” does not mean that I have nothing to learn, nothing further to achieve, and nowhere to grow to. It means that I accept myself, that I am not on trial in my own eyes, that I value and respect myself. This is not an act of indulgence but of courage.
+ - We must become what we wish to teach.
+ - If my aim is to prove I am ‘enough,’ the project goes on to infinity-because the battle was already lost on the day I conceded the issue was debatable.
+ - Persons of high self-esteem are not driven to make themselves superior to others; they do not seek to prove their value by measuring themselves against a comparative standard. Their joy is being who they are, not in being better than someone else.
+ - Feel deeply to think clearly.
+ - Integrity is congruence between what you know, what you profess, and what you do.
+ - Romantic love is a passionate spiritual-emotional-sexual attachment between a man and a woman that reflects a high regard for the value of each other’s person.
+ - Respect starts with ourselves.
+ - Where we see self esteem, we see self acceptance. High self esteem individual tend to avoid falling into an adversarial relationship with themselves.
+ - Self-acceptance is my refusal to be in an adversarial relationship to myself.
+ - If you feel inadequate to face challenges, unworthy of love or respect, untitled to happiness, and fear assertive thought, wants, or needs- if you lack basic self trust, self-respect, and self-confidence- your self-esteem deficiency will limit you, no matter what other assets you possess.
+ - Every day, it’s important to ask and answer these questions: “What’s good in my life?” and “What needs to be done?”
+ - A commitment to lifelong learning is a natural expression of the practice of living consciously.
+ - Doing more of what doesn’t work doesn’t work.
+ - Integrity means congruence. Words and behavior match.
+ - If you face life without confidence in your own powers, you succumb too easily to setbacks and adversity; you lack the will to persevere.
+ - There is overwhelming evidence that the higher the level of self-esteem, the more likely one will be to treat others with respect, kindness, and generosity.
+ - Accepting does not necessarily mean liking, enjoying, condoning. I can accept what is-and be determined to evolve from there. It is not acceptance but denial that leaves me stuck.
+ - The world belongs to those who persevere.
+ - Of all the judgments we pass in life, none is more important than the judgment we pass on ourselves.
+ - Your life is important. Fight for it. Honour your highest potentials.
+ - Freedom is still the most radical idea of all.
+ - To trust one’s mind and to know that one is worthy of happiness is the essence of self-esteem.
+ - The greatest barrier to achievement and success is not lack of talent or ability but rather the feeling that achievement and success, above a certain level, are outside our self-concept-our image of who we are and what is appropriate to us.
+ - One of the hardest expressions of self-assertiveness is challenging your limiting beliefs.
+ - The greater a child’s terror, and the earlier it is experienced, the harder it becomes to develop a strong and healthy sense of self.
+ - In a world in which the total of human knowledge is doubling about every ten years, our security can rest only on our ability to learn.
+ - A productive purpose to which you give yourself fully and joyfully is one of the great adventures of life. It is a uniquely human source of happiness.
+ - If we attach more importance to what other people believe than to what we know to be true – if we value belonging over being – we will not attain authenticity.
+ - To live consciously means to seek to be aware of everything that bears on our actions, purposes, values, and goals – to the best of our ability, whatever that ability may be – and to behave in accordance with that which we see and know.
+ - It is naive to think that self-assertiveness is easy. To live self-assertively – which means to live authentically – is an act of high courage. That is why so many people spend the better part of their lives in hiding – from others and also from themselves.
+ - How do we nurture the soul? By revering our own life. By learning to love it all, not only the joys and the victories, but also the pain and the struggles.
+ - Suffering is just about the easiest of all human activities; being happy is just about the hardest. And happiness requires, not surrender to guilt, but emancipation from guilt.
+ - To exist without purpose is to be at the mercy of the chance encounter, the chance invitation, the chance phone call, the chance event- always being controlled by forces external to oneself.
+ - The higher our self-esteem, the stronger the drive to express ourselves, reflecting the sense of richness within. The lower our self-esteem, the more urgent the need to “prove” ourselves or to forget ourselves by living mechanically and unconsciously.
+ - The first love affair you must consummate is the love affair with yourself. Only then are you ready for a romantic relationship.
+ - Anyone who really loves you wants you to be authentic. And anyone who doesn’t want you to be authentic doesn’t really love you.
+ - As you grow in self-esteem, your face, manner, way of talking and moving will tend naturally to project the pleasure you take in being alive.
+ - There is no value-judgment more important to a man – no factor more decisive in his psychological development and motivation – than the estimate he passes on himself.
+ - Your choices have psychological consequences. The way you choose to deal with reality, truth, facts – your choice to honor or dishonor your own perceptions – registers in your mind, for good or for bad, and either confirms and strengthens your self-esteem or undermines and weakens it.
+ - The stability we cannot find in the world, we must create within our own persons.
+ - A bully hides his fears with fake bravado. That is the opposite of self-assertiveness.
+ - If you have high self-esteem, you might still know times of emotional suffering, but less often and with faster recovery-your resilience is greater.
+ - If you bring five percent more awareness to your work tomorrow, or to your most important relationship, what might you do differently? Are you willing to find out?
+ - The tragedy of too many people is that they cannot allow happiness just to be there; they cannot leave it alone. Their sense of who they are and of what their destiny is cannot accommodate happiness. So they are drive to find ways to sabotage it.
+ - If you choose not to live self-responsibly, you count on others to make up your default. No one abjures self-responsibility on a desert island.
+ - We tend to feel most comfortable, “most at home”, with people whose self esteem level resembles our own.
+ - The reputation you have with yourself – your self-esteem – is the single most important factor for a fulfilling life.
+ - It is painful to face the self we know we have never had the integrity to honor and assert.
+ - Fear and pain should be treated as signals not to close our eyes but to open them wider.
+ - Either you will make your life work, or your life will not work.
+ - One of the characteristics of love relationships that flower is a relatively high degree of mutual self-disclosure.
+ - One of the most significant characteristics of healthy self esteem is that it is the state of one who is not at war either with himself or with others.
+ - Integrity is the integration of ideals, convictions, standards, beliefs-and behavior. When our behavior is congruent with our professed values, when ideals and practice match up, we have integrity.
+ - For “I” to become “we” and yet remain “I,” is one of the great challenges of marriage.
+ - Our motive is not to prove our self-worth, but to live up to our possibilities.
+ - Set goals that don’t feel all that easy, that challenge you, stimulate you, and give you a chance to stretch and push yourself. That is where the power of growth lies.
+ - Do not marry the enemy of your excitement.
+ - Be careful what you say to your children. They may agree with you.
+ - Your life is important. Whether you achieve what you want in life matters. Whether you are happy matters. Honor and fight for your highest potential. Self-realizatio n-the realization of the best within you-is the noblest goal of your existence.
+ - Sometimes pain is easier to bear alone than happiness.
+ - What is guilt? It is moral self-reproach-I did wrong when it was possible to have done otherwise.
+ - When we bury our feelings, we also bury ourselves. It means we exist in a state of alienation. We rarely know it, but we are lonely for ourselves.
+ - When your principles seem to be demanding suicide, clearly it’s time to check your premises.
+ - There is only one reality – the reality knowable to reason. And if man does not choose to perceive it, there is nothing else for him to perceive; if it is not of this world that he is conscious, then he is not conscious at all.
+ - A woman in love will do almost anything for a man, except give up the desire to improve him.
+ - The desire for self-esteem without integrity is like the desire for wealth without effort-a longing for the unearned.
+ - To attain “success” without attaining positive self-esteem is to be condemned to feeling like an imposter anxiously awaiting exposure.
+ - Fully to surrender to love can be terrifying. But it is the price life asks in exchange for the possibility of ecstasy.
+ - In any culture, subculture, or family in which belief is valued above thought, and self-surrender is valued above self-expression, and conformity is valued above integrity, those who preserve their self-esteem are likely to be heroic exceptions.
+ - For the rational, psychologically healthy man, the desire for pleasure is the desire to celebrate his control over reality. For the neurotic, the desire for pleasure is the desire to escape from reality.
+ - High self esteem people can surely be knocked down by an excess of troubles, but they are quickerto pick themselves up again.
+ - It’s not that achievements prove our worth but rather that the process of achieving is the means by which we develop our effectiveness, our competence at living.
+ - I have to respect other’s opinions even if I don’t agree with them.
+ - Self-respecting men and women think about the consequences of their actions-and are willing to take responsibility for them.
+ - Even when our life is most difficult, it is important to remember that something within us is keeping us alive- the life force-that lift us, energizes us, pulls us back sometimes from the abyss of despair. True spirituality does not exist without love of life.
+ - Romantic love can be terrifying. We experience another human being as enormously important to us. So there is surrender -not a surrender to the other person so much as to our feeling for the other person. What is the obstacle? The possibility of loss.
+ - Some people stand and move as if they have no right to the space they occupy. They wonder why others often fail to treat them with respect-not realizing that they have signaled others that it is not necessary to treat them with respect.
+ - Of all the judgments you make in life, none is as important as the one you make about yourself. The difference between low self-esteem and high self-esteem is the difference between passivity and action, between failure and success.
+ - To love is to see myself in you and to wish to celebrate myself with you. What I love is the embodiment of my values in another person. Love is an act of self-assertion, self-expression and a celebration of being alive.
+ - The lies most devastating to our self-esteem are not so much the lies we tell as the lies we live.
+ - You are not likely to bring out the best in people or nurture their creativity if every time you hear about their problems you instantly offer a solution Encourage people to look for their own solutions-and project the knowledge that they are capable of doing so.
+ - Self-esteem is not a luxury; it is a profound spiritual need.
+ - It would be hard to name a more certain sign of poor self-esteem than the need to perceive some other group as inferior.
+ - It is a curious paradox of human history that a doctrine that tells human beings to regard themselves as sacrificial animals has been accepted as a doctrine representing benevolence and love for mankind.
+ - The music that inspires the souls of lovers exists within themselves and the private universe they occupy. They share it with each other; they do not share it with the tribe or with society. The courage to hear that music and to honor it is one of the prerequisites of romantic love.
+ - To preserve an unclouded capacity for the enjoyment of life is an unusual moral and psychological achievement. Contrary to popular belief, it is not the prerogative of mindlessness, but the exact opposite: It is the reward of self-esteem.
+ - Loving consciously does not mean subjecting your relationship to endless analysis. It means something much simpler: paying attention. Noticing. This requires presence.
+ - Anyone who engages in the practice of psychotherapy confronts every day the devastation wrought by the teachings of religion.
+ - Force, governmental coercion, is the instrument by which the ethics of altruism – the belief that the individual exists to serve others – is translated into political reality.
+ - Whether in the workplace or in personal relationships, success belongs to those who are willing to take responsibility for attaining their desires-those who respond to life actively rather than passively.
+ - The real basic power of an individual isn’t what he or she knows; it’s the ability to think and learn and face new challenges.
+ - If you are terrified of making mistakes, you will be reluctant to acknowledge them when you do make them-and therefore you will not correct them.
+ - An emotion is both a mental and a physical event.
+ - The highest compliment one can be paid by another human being is to be told: ‘Because of what you are, you are essential to my happiness.’
+ - You have a right to your feelings. Your feelings are there to tell you something, but they are not infallible guides to behavior.
+ - We are anxious when there is a dissonance between our “knowledge” and the perceivable facts. Since our “knowledge” is not to be doubted or questioned, it is the facts that have to be altered...
+ - Most of the time, I regard the judgment of people as a waste of time. I regard the judgment of behavior as imperative.
+ - If you overcome your fear to ask someone for a date, a raise, or help with a project, that is an act of self-assertiveness. You are moving out into life rather than contracting and withdrawing.
+ - Capitalism, by its nature, entails a constant process of motion, growth and progress.
+ - Moved by a passion they do not understand for a goal they seldom reach, men and women are haunted by the vision of a distant possibility that refuses to be extinguished.
+ - It is very difficult to accept in others emotions you cannot accept in yourself.
+ - The ultimate test of our integrity is not how we deal with those whom we agree but how we deal with those who we do not agree.
+ - A well-developed sense of self is a necessary if not sufficient condition of your well-being. Its presence does not guarantee fulfillment, but its absence guarantees some measure of anxiety, frustration, or despair.
+ - It is true that people are sometimes hit by adversities beyond their control. But those so affected are better helped when they are awakened to the resources they do possess than when they are told they don’t have any.
+ - Out of fear, out of the desire for approval, out of the misguided notions of duty, people surrender themselves-their convictions and their aspirations-every day. There is nothing noble about it. It takes far more courage to fight for your values than to relinquish them.
+ - Reason and emotion are not antagonists. What seems like a struggle between two opposing ideas or values, one of which, automatic and unconscious, manifests itself in the form of a feeling.
+ - Most of us are taught from an early age to pay far more attention to signals coming from other people than from within. We are encouraged to ignore our own needs and wants and to concentrate on living up to others expectations.
+ - If we do not believe in ourselves- neither in our efficacy nor in our goodness- the universe is a frightening place.
+ - The policy of seeking values from human beings by means of force, when practiced by an individual, is called crime. When practiced by a government, it is called statism...
+ - When you are frightened, you typically pull energy in to your center, seeing less, hearing less-shrinking consciousness precisely when you need to expand it.
+ - What a great teacher, a great parent, a great psychotherapist and a great coach have in common is a deep belief in the potential of the person with whom they are concerned. They relate to the person from their vision of his or her worth and value.
+
+116 quotes

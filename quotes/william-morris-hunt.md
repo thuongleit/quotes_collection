@@ -1,0 +1,28 @@
+ - Art teaches you the philosophy of life, and if you can’t learn it from art, you can’t learn it at all. It shows you that there is no perfection. There is light, and there is shadow. Everything is in half tint.
+ - Inspiration is nothing without work.
+ - Strive for simplicity! Don’t have the face a checkerboard of tints! Use such colors as nature uses, but not try to keep them distinct! Your work may be called monotonous, but one tone is better than many which do not harmonize.
+ - When an artist leaves his work to amuse people, he loses his time and their respect. If people are to be amused by artists, it must be by employing them in their legitimate occupation.
+ - I don’t like persuaded sitters. I never could paint a cat if the cat had any scruples, religious, superstitious, or otherwise, about sitting.
+ - What is nobler than a man wresting and wringing his bread from the stubborn soil by the sweat of his brow and the break of his back for his wife and children!
+ - Elaboration is not beauty, and sand-paper never finished a piece of bad work.
+ - The artist is an interpreter of Nature. People learn to love Nature through pictures. To the artist, nothing is in vain; nothing beneath his notice. If he is great enough, he will exalt every subject which he treats.
+ - There’s lots of fun in this world, after all. And if there isn’t, there is in the next. And we’re going there, sure.
+ - You can always draw as well as you know how to. I flatter myself that I feel more than I express on canvas; but I know that is not so.
+ - Don’t put needless expense into painting a head! Don’t try to match tints! Rose and pearly colours blend into each other so that no one can unite them if painted separately. Keep the impression of your subject as one thing!
+ - Painting is the only universal language. All nature is creation’s picture book. Painting alone can describe every thing which can be seen, and suggest every emotion which can be felt. Art reaches back into the babyhood of time, and is man’s only lasting monument.
+ - Imagination comes in after we have experience.
+ - How are things visible? Can you see an egg against a white background? Not by drawing a line around it can you make it evident.
+ - Don’t talk of what you are ‘going to do!’ Do it!
+ - Believe that time is going to help you do what you want.
+ - You are to draw not reality, but the appearance of reality!
+ - The mission of art is to represent nature not to imitate her.
+ - Nature is economical. She puts her lights and darks only where she needs them.
+ - I tell you it’s no joke to paint a portrait. I wonder that I am not more timid when I begin. I feel almost certain that I can do it. It seems very simple. I don’t think of the time that is sure to come when I almost despair, when the whole thing seems hopeless.
+ - You can’t do a fine thing without having seen fine examples.
+ - Most of us live for the critic, and he lives on us. He doesn’t sacrifice himself. He gets so much a line for writing a criticism. If the birds should read the newspapers, they would all take to changing their notes. The parrots would exchange with the nightingales, and what a farce it would be!
+ - It gives a fellow an awful shiver to hear the first shovelful of dirt and gravel rattle down upon the coffin; but after it is covered, it falls gently and makes no sound. The feeling of rest is perfect. There’s no more nagging, no more pain!
+ - It’s impossible to make a picture without values. Values are the basis. If they are not, tell me what is the basis.
+ - How are we going to make painters by lecturing to them? We are going to make questioners, doubters, and talkers. We are going to make painters by painting ourselves, and by showing the paintings of others. By working frankly from our convictions, we are going to make them work frankly from theirs.
+ - There is force and vitality in a first sketch from life which the after-work rarely has. You want a picture to seize you as forcibly as if a man had seized you by the shoulder! It should impress you like reality!
+
+26 quotes

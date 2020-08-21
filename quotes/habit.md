@@ -1,0 +1,42 @@
+ - You cannot change your future, but you can change your habits, and surely your habits will change your future. ~~Abdul Kalam
+ - Your habits will determine your future. ~~Jack Canfield
+ - Nothing is stronger than habit. ~~Ovid
+ - Successful people are simply those with successful habits. ~~Brian Tracy
+ - The truth is, you don’t break a bad habit; you replace it with a good one. ~~Denis Waitley
+ - Commit to stop making excuses. When we make excuses, we lie to ourselves and continue bad habits. ~~Joyce Meyer
+ - Habits change into character. ~~Ovid
+ - You are what you do repeatedly every day. If excellence is something you’re striving for, then it’s not an accident. It’s a habit. ~~Greg Plitt
+ - We become what we repeatedly do. ~~Sean Covey
+ - Success is hastened or delayed by one’s habits. ~~Paramahansa Yogananda
+ - We build our character from the bricks of habit we pile up day by day. ~~Zig Ziglar
+ - Good habits are the key to all success. Bad habits are the unlocked door to failure. ~~Og Mandino
+ - If you are not where you want to be DO NOT QUIT, instead reinvent yourself and change your habits. ~~Eric Thomas
+ - If I must be a slave to habit let me be a slave to good habits. ~~Og Mandino
+ - Motivation gets you going and habit gets you there. Make motivation a habit and you will get there more quickly and have more fun on the trip. ~~Zig Ziglar
+ - Habits are like comfortable beds. They are easy to get into, but difficult to get out of. ~~Denis Waitley
+ - Repetition of the same thought or physical action develops into a habit which, repeated frequently enough, becomes an automatic reflex. ~~Norman Vincent Peale
+ - Weaken a bad habit by avoiding everything that occasioned it or stimulated it, without concentrating upon it in your zeal to avoid it. Then divert your mind to some good habit and steadily cultivate it until it becomes a dependable part of you. ~~Paramahansa Yogananda
+ - Try and keep on trying until that which seems difficult becomes possible and that which seems only possible becomes habit and a real part of you. ~~Dieter F. Uchtdorf
+ - Lust indulged became habit, and habit unresisted became necessity. ~~Saint Augustine
+ - Success is not a sometimes thing. In other words, you don’t do what is right once in awhile, but all the time. Success is a habit. Winning is a habit. ~~Vince Lombardi
+ - If you plan to excel in big things, you have to develop the habit in the small ones. ~~Lecrae
+ - Attitudes are nothing more than habits of thought. ~~John C. Maxwell
+ - Youth is the seed time of good habits, as well in nations as in individuals. ~~Thomas Paine
+ - To change a habit, make a conscious decision, then act out the new behavior. ~~Maxwell Maltz
+ - I will form good habits and become their slaves. ~~Og Mandino
+ - But I will find new habits, new thoughts, new rules. I will become something else. ~~Veronica Roth
+ - In truth, the only difference between those who have failed and those who have succeeded lies in the difference of their habits. ~~Og Mandino
+ - A habit cannot be tossed out the window; it must be coaxed down the stairs a step at a time. ~~Mark Twain
+ - Could the young but realize how soon they will become mere walking bundles of habits, they would give more heed to their conduct while in the plastic state. ~~William James
+ - I’m not a great programmer; I’m just a good programmer with great habits. ~~Kent Beck
+ - Fear is a habit; I am not afraid. ~~Aung San Suu Kyi
+ - Habit rules the unreflecting herd. ~~William Wordsworth
+ - We may idealize freedom, but when it comes to our habits, we are completely enslaved. ~~Sogyal Rinpoche
+ - Be relentless and hard on yourself if you are in the habit of talking about the experiences you have had. Faith based on experience is not faith; faith based on God’s revealed truth is the only faith there is. ~~Oswald Chambers
+ - The habits of a vigorous mind are born in contending with difficulties. ~~Abigail Adams
+ - The habit of being happy enables one to be freed, or largely freed, from the domination of outward conditions. ~~Robert Louis Stevenson
+ - Make a habit of two things: to help; or at least to do no harm. ~~Hippocrates
+ - Thought is subversive and revolutionary, destructive and terrible, Thought is merciless to privilege, established institutions, and comfortable habit. Thought is great and swift and free. ~~Bertrand Russell
+ - The habits of life form the soul, and the soul forms the countenance. ~~Honoré de Balzac
+
+40 quotes

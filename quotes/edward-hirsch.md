@@ -1,0 +1,107 @@
+ - So, it’s a continual process of trial and error and then I find things and I throw it out and start again, but I keep writing it over again.
+ - The idea of a poem as a message in a bottle means that it’s sent out towards some future reader and the reader who opens that bottle becomes the addressee of the literary text.
+ - Now, I do say, “It’s possible. You might be the first. I’m not saying it’s impossible, but the odds are very much against you.” All great poets have been great readers and the way to learn your craft in poetry is by reading other poetry and by letting it guide you.
+ - A poem is a hand, a hook, a prayer. It is a soul in action.
+ - Television watching does reduce reading and often encroaches on homework. Much of it is admittedly the intellectual equivalent of junk food. But in some respects, such as its use of standard written English, television watching is acculturative.
+ - There’s been no poet, no great poet in the history of poetry who hasn’t also been a great reader of poetry. This is sometimes distressing to my students when I tell them this.
+ - I think that the dark side of MFA programs is that they’re generating more poets than the culture can absorb and there are more people writing poetry than possibly read it or can certainly earn a living around it.
+ - Gertrude Stein said, “I write for myself and strangers.” I would say I write for myself, strangers and the great dead.
+ - I walk with Federico Garcia Lorca around the Upper West Side in Manhattan because that was a neighborhood he lived in and I imagine walking around Paris with Cesar Vallejo, a great Peruvian poet who lived in Paris. And I kind of create the walk as a kind of drama of my apprenticeship.
+ - The great post-Holocaust poet, Paul Celan, said that a poem is a message in a bottle sent out in the not always greatly hopeful belief that somewhere and some time it would wash up on land on heartland perhaps.
+ - Sometimes I have a feeling that I just can’t get rid of. Sometimes there’s an experience that I want to write about that I have to get off my chest. Sometimes there are some words that appeal to you.
+ - The idea of how to read a poem is based on the idea that poetry needs you as a reader. That the experience of poetry, the meaning in poetry is a kind of circuit that takes place between a poet, a poem and a reader and that meaning doesn’t exist or in here in poems alone.
+ - Readers bring their own experiences, their own range of – their own wisdom, their own knowledge, their own insights to poem and the meaning of a poem takes place in the negotiation between the poet, the poem and the reader.
+ - A great model for this is the way that Dante calls on Virgil at the beginning of The Inferno, The Divine Comedy, to help guide him through the underworld.
+ - Reading poetry is an adventure in renewal, a creative act, a perpetual beginning, a rebirth of wonder.
+ - There’s never been a culture without poetry in the history of the world. In every culture, in every language there is expressive play, expressive word play, there’s language use to different purposes that we would call poetry.
+ - The mysterious thing about writing poetry is that when you’re – when things are going poorly, when you’re not thinking well, even making two sentences together is extremely hard and I just can’t make the connections.
+ - Scholars of the Hebrew bible define something they call wisdom literature and I would say clearly the poetry of wisdom is something that comes with age or that might come with age which has to do with reflecting on experience.
+ - I did not know the work of mourning Is a labor in the dark We carry inside ourselves.
+ - The imagination is an organ of understanding. And the imagination needs all the faculties at hand, all the sensibility, all the conscious and unconscious intelligence it can galvanize to fulfill its luminous mission.
+ - So, some of the most difficult formal poems that I’ve written, say one sentence sonnets, I’ve been able to do those fairly quickly whereas some of the clearest, simplest lyrics that I’ve written have taken me the longest to get to the clarity of feeling that you’re looking for.
+ - Emily Dickinson calls previous poets her kinsmen of the shelf. You can always be consoled by your kinsmen of the shelf and you can participate in poetry by going to them and by trying to make something worthy of them.
+ - There’s the brilliant audacity of youth that poets strike upon in their earliest work sometimes that they never can hit upon again.
+ - It’s hard to think that say Shakespeare could have written “The Tempest” when he was young. It seems to be reflective work or retrospective work.
+ - One, something emotional has to be at stake. There has to be something important for me that I’m writing about. And then two, I have to have a formal idea. Something has to be being worked out in poetry.
+ - I didn’t sit down then and start writing poems, but it was in the back of my mind.
+ - Cafeteria-style education, combined with the unwillingness of our schools to place demands on students, has resulted in a steady diminishment of commonly shared information between generations and between young people themselves.
+ - Our sense that things are transient, that everything is passing and then if you want to save something from the endless flux of experience and the world’s movement, you have to set down a stake and try and make something that will last.
+ - And when my second book had come out, “Wild Gratitude,” I went to Pearl London’s class and she worked through different drafts of poems and there were the drafts of my poem, Wild Gratitude, and I saw that I had begun the poem with the title August 13th.
+ - I think the culture can absorb so many people writing poetry and trying to earn their living in poetry.
+ - You can seek clarity, you can seek warmth, you can try to make something for lasting. You can pack something in salt so that it’s well made and you can hope that it outlasts time. But, ultimately that’s not up to you.
+ - I think there are different kinds of poetry for different stages of life and there’s the wild, exuberance of youth, there’s the painful agony of midlife experience, there’s the late poetry in the presence of death.
+ - I think poetry will survive and I don’t think it will be the end of poetry. Our tremendous onslaught of mass media all the time that we’re suffering and we don’t really know how to think about, I think that puts certain things at risk.
+ - Language is an impure medium. Speech is public property and words are the soiled products, not of nature, but of society, which circulates and uses them for a thousand different ends.
+ - And it was the title August 13th for most of the way and then near the end, sometime in the process, I got the idea that maybe that would be a somewhat bland title and I got the idea for wild gratitude, which I’m very proud of as a title. So, I think it works best when you find it in the process.
+ - We will be able to achieve a just and prosperous society only when our schools ensure that everyone commands enough shared background knowledge to be able to communicate effectively with everyone else.
+ - Works of art imitate and provoke other works of art, the process is the source of art itself.
+ - A stress on the system and I think a painful thing for many young poets who are looking to find a life in poetry that they’re not going to be able to find.
+ - Books and newspapers assume a “common reader” that is, a person who knows the things known by other literate persons in the culture. Obviously, such assumptions are never identical from writer to writer, but they show a remarkable consistency.
+ - When I was a freshman in college I went to Grinnell College in Iowa. I brought my poems to my freshman humanities teacher whose name was Carol Parsinan, a wonderful teacher. And Carol did a really great thing for me. She taught me more than anyone.
+ - The attention deficit disorder of the culture is very distressing in America now and I think it puts a lot of things at risk, not just poetry.
+ - Fiction writers learn about the development of metaphor, the use of rhythm, the way that language is compacted in order to express the feelings of – express their own feelings and the feelings of their characters.
+ - And sometimes you look at the first poems by someone and you go, “They have freshness and a sense of wonder that is never recaptured again by that poet.”
+ - The poet wants justice. And the poet wants art. In poetry we can’t have one without the other.
+ - It’s not important – it’s not necessary that you read everything. What is necessary is that you care about things that you read and that you find something that really matters to you and you try and make something like that.
+ - In high school I was leafing through an anthology that our teachers had given up and I found a poem, I go, “That’s so strange. This poem looks so much like my grandfather’s poem.”
+ - You’re alone with yourself and your own feelings and that gives you deeper access to what you need to get in touch with to write poetry.
+ - I think one of the things that distinguished my work from the beginning when I was in college was my turning towards poetry from other countries.
+ - Civil religion gives American culture its direction and defines its fundamental values, but it does not determine the diversified contents of American national culture.
+ - There’s always some place to go. You don’t need workshops, you don’t need friends necessarily, you can be befriended by literature itself.
+ - My focus is on the reader and that the poet’s job is not to inspire himself or herself. The poet’s job is to inspire some future reader. And so, as a reader you have a task to do in finding those bottles and opening up the messages and experiencing what’s in them inside of yourself.
+ - Now, that can be a traditional form or it can be something you’re inventing. It can be the development of a metaphor, the working through of a metaphor.
+ - I started then to try and shape something rather than just express it and when I started to shape something and to imitate other poems that were written by other people, when I had tried to integrate my reading and my writing I was on my path.
+ - So, the process of revision, it’s not systematic. But for me, I mean, I know a lot of poets who write out a draft and then revise it and I think they’re happier people. But, I’m just not able to do it that way. I need to just continually examine it as I do it.
+ - The way to become a poet is to read poetry and to imitate what you read and to read passionately and widely and in as involved a way as you can.
+ - Ultimately you’re trying to reach across and find some other person, some other human warmth. But it is, especially in written poetry, it is inscribed in a text and the text can’t do that work by itself and you as a poet can only do your best.
+ - And Mandelstam says a poet – you go down to the shore and you see an unlikely looking from a bottle from the past, you open it. Mandelstam says, “It’s okay to do so. I’m not reading someone else’s mail. It was addressed to whoever found it. I found it, therefore it’s addressed to me.”
+ - There are many poets that use as my models. In my first book of poems, I had several for the “Sleepwalkers,” I had several poems that were apprentice poems like this in which I take a walk with a poet who is no longer alive.
+ - I was surprised recently to find a book called “Poetry in Persons” that’s coming out about visit to poets to a class that Pearl London gave.
+ - I think in terms of educating a group of readers, MFA programs are very good. I just think the model of MFA programs in which a young poet goes through the program, publishes a series of books, gets teaching jobs, that’s a bit at risk.
+ - I just think that limits the kinds of experiences that people can have with poetry. But, poetry will survive; I don’t worry about that. But, I do think that it may save fewer souls if people can’t pay attention.
+ - I don’t think you can read poetry while you’re watching television very well.
+ - So, the result though is by the time I’ve got something, it’s been worked over so many times that although I do make changes as the end, often by the time I’ve gotten it, it’s pretty much completed.
+ - Poetry never loses its appeal. Sometimes its audience wanes and sometimes it swells like a wave. But the essential mystery of being human is always going to engage and compel us. We’re involved in a mystery. Poetry uses words to put us in touch with that mystery. We’re always going to need it.
+ - But, the best times I have found, in my life, are late at night or early in the morning and I think it’s because you’re outside the social realm.
+ - Now, the process of writing poetry is very messy. Not systematic, never quite the same.
+ - The poets needed to learn to pay greater attention to character and to narrative.
+ - When you find it you become the secret addressee of a literary text and I felt that their reader had been left out of this experience of reading poetry or what the experience of poetry was.
+ - I think it’s one of the things that drive lyric poetry, our sense of mortality.
+ - Now, as I’ve gotten older I’ve been able to write more quickly. Sometimes I get in the space of something and I can do a lot in a day.
+ - And what I’ve found over time is that for me to write a poem that I think is worthy that I can live with, two things have to happen.
+ - I mean, in the history of poetry there have been a lot poetries where you have to inherit the position of poet from your ancestors and I think that if you just leave anyone to become a poet based on an aristocratic society, then a lot of people are left out who might have something to offer.
+ - That is many poets don’t know how to tell a story and they don’t have a sense of how to put things in order to tell a story and we thought the poets could learn from fiction writers something about developing a character over time who wasn’t just you and also creating a narrative structure.
+ - I think fiction goes to poetry for the intensity of its use of language.
+ - First of all I think that poetry is very noble and I always have with me the sense of the nobility of poetry.
+ - I think that as long as you have other poets before you and that you can learn from them, then it’s always open ended for you.
+ - I guess that would have been 1968. I was a freshman in college and I wasn’t writing good poems, but I was at least trying to write poems then.
+ - The spiritual desire for poetry can be overwhelming, so much do I need it to experience and name my own perilous depths and vast spaces, my own well-being.
+ - But, that was the beginning, though I didn’t start writing until I was in high school and when I was in high school I really began to write poetry with great energy and enthusiasm.
+ - In American tradition a certain kind of, I would say, desperate American friendliness in which the poet tries to reach out through the page to make a connection by the side of the road with some other person.
+ - I wish I wrote drafts and then revised them, but I don’t. What I do is I seem to revise as I go.
+ - I think that’s a connection that you can only hope for. It’s not something that you can make because it needs someone else.
+ - There has never been a great poet who wasn’t also a great reader of poetry.
+ - The very good thing about MFA programs is their democratizing. They bring a lot of different people to the table.
+ - I think it’s true that that’s something that poetry can go to school on fiction. I think poetry can go to fiction to learn.
+ - And when I’m writing well and when I’m inside the feeling, then I can do fairly complicated things with some fluency.
+ - Sometimes the title comes to you at the beginning, sometimes it comes at the end. The very best way in my experience is when it comes in the middle.
+ - And when you are entering into poetry, whatever stage you’re at, you are participating in something with a very long and noble tradition.
+ - A certain kind of poetry looks back at experience from an older perspective.
+ - A certain construct of emotions that really define who you are and who you will become and I feel very much that my childhood is very alive inside of me, very close to me, very much part of me. And it’s a sometimes painful, sometimes joyous inexhaustible resource for poetry.
+ - I don’t think poetry will die, but I think that poetry does demand a certain kind of attention to language.
+ - I write a line and then I revise the line and then I write two lines and then I revise lines one and two and then I write one, two and three and I revise one and two and then I write seven and eight and then I see that should be line four and I continually work it over as I go.
+ - I think the deepest thing is that many fiction writers tell stories but are not elegant writers. But, we’re not writing journalism when we’re making literature.
+ - I mean, when I was young I could write all through the night and I loved to work late into the night. Now that I’m older I work really well in the early morning when your synapses are firing a little better. But I work at different times of the day.
+ - That you write a phrase or you think of something and it seems to have a deeper charge because the title has to be some kind of marker, something setting out a space, creating a space for what’s going to come.
+ - I have tried to remember throughout that poetry is made by flesh-and-blood human beings. It is a bloody art. It lives on a human scale and thrives when it is passed from hand to hand.
+ - I would keep in mind to a young poet that you are entering into something that is very important, that has always been important in terms of human concerns.
+ - And my experience is the best titles, for me, emerge in the process of writing. They don’t usually come at the very beginning and hopefully they don’t come at the very end because then it’s getting late in the day.
+ - I would be happier if people who went through MFA programs also were already, by then, deeply committed readers of poetry because we need readers of poetry as much as writers of poetry.
+ - It does demand a certain space in order to read it and I think that space is somewhat threatened by the lack of attention that people have and the amount of time that they give to things.
+ - But, something has to be worked through formally as well as emotionally. Now, when those two things come together I’ve got something, I think, that I can be proud of.
+ - And a lot of poetry is putting yourself back into the state of wonder that you have before things when you’re a child. It’s not only a joyous wonder, it’s sometimes a grief stricken wonder.
+ - We’re trying to make something that lasts in language and there’s no question that many fiction writers began as poets and it’s hard for me to think of any good fiction writers who don’t also read poetry.
+ - I don’t have a set schedule to work on poetry at any given time, at the same time every day, but I do try to work on poetry every day and I do find some time every day that I can with some exceptions to work on poetry.
+ - As a reader you have a task to do, you have something to do. You bring your experience to it. It’s not all inherit in the poem.
+
+105 quotes

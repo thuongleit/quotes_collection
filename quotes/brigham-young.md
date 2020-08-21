@@ -1,0 +1,163 @@
+ - You educate a man; you educate a man. You educate a woman; you educate a generation.
+ - If you have a bad thought about yourself, tell it to go to hell because that is exactly where it came from.
+ - He who takes offense when no offense is intended is a fool, and he who takes offense when offense is intended is a greater fool.
+ - Pray as if all depended on God and work as if all depended upon you.
+ - If you work hard you’ll be happy and if you don’t then you’ll go to hell!
+ - Why should we worry about what others think of us, do we have more confidence in their opinions than we do our own?
+ - True independence and freedom can only exist in doing what’s right.
+ - Never let a day pass that you will have cause to say, I will do better tomorrow.
+ - To mind your own business incorporates the whole duty of man.
+ - A lawyer’s duty is to read the law well himself, then tell the people what it is, and let them act upon it.
+ - Education is the power to think clearly, the power to act well in the worlds work, and the power to appreciate life.
+ - The men and women, who desire to obtain seats in the celestial kingdom, will find that they must battle everyday.
+ - No matter what your circumstances are, whether you are in prosperity or in adversity, you can learn from every person, transaction, and circumstance around you.
+ - Lord, here am I, send me, I will redeem every son and daughter of Adam and Eve that lives on the earth, or that ever goes on the earth.
+ - Let us preach righteousness, and practice it. I do not wish to preach what I do not practice.
+ - Recreation and diversion are as necessary to our well-being as the more serious pursuits of life.
+ - Do you think that people will obey the truth because it is true, unless they love it? No, they will not. Truth is obeyed when it is loved.
+ - I feel like shouting, hallelujah, all the time, when I think that I ever I knew Joseph Smith, the Prophet.
+ - If we ever walk in streets paved with gold, we will have placed it there ourselves.
+ - Love the giver more than the gift.
+ - What is the duty of a Latter-day Saint? To do all the good he can upon the earth.
+ - Sin keeps a man from prayer, and prayer keeps a man from sin.
+ - If there ever comes a day when the Saints interfere with the rights of others to live as they see fit, you can know with assurance that the Church is no longer led by a Prophet, but a mere man.
+ - Daily toil, however humble it may be, is our daily duty, and by doing it well, we make it a part of our daily worship.
+ - If you wish to get rich, save what you get. A fool can earn money; but it takes a wise man to save and dispose of it to his own advantage.
+ - If you don’t feel like praying, pray until you do!
+ - Honest hearts produce honest actions.
+ - Miracles, or those extraordinary manifestations of the power of god, are not for the unbeliever; they are to console the Saints, and to strengthen and confirm the faith of those who love, fear, and serve God.
+ - There is no music in hell, for all good music belongs to heaven.
+ - If any of you wish to know how to have your bread fall butter side up, butter it on both sides, and then it will fall butter side up.
+ - We should never permit ourselves to do anything that we are not willing to see our children do.
+ - We need to learn, practice, study, know, and understand how angels live with each other. When this community comes to the point to be perfectly honest and upright, you will never find a poor person; none will lack, all will have sufficient.
+ - Take up the Bible, compare the religion of the Latter-day Saints with it, and see if it will stand the test.
+ - Don’t try to tear down other people’s religion about their ears, Build up your own perfect structure of truth, and invite your listeners to enter in and enjoy it’s glories.
+ - The time will come that gold will hold no comparison in value to a bushel of wheat.
+ - Our education should be such as to improve our minds and fit us for increased usefulness; to make us of greater service to the human family.
+ - Your endowment is, to receive all those ordinances in the house of the Lord, which are necessary for you, after you have departed this life, to enable you to walk back to the presence of the Father.
+ - No person having the least particle of Negro blood can hold the Priesthood.
+ - Sweet harmonious sounds give exquisite joy to human beings capable of appreciating music. I delight in hearing harmonious tones made by the human voice, by musical instruments, and by both combined.
+ - It is impossible to unite Christ and Baal – their spirits cannot unite, their objects and purposes are entirely different; the one leads to eternal life and exaltation, the other to death and final destruction.
+ - The spirit of truth will do more to bring persons to light and knowledge, than flowery words.
+ - This doctrine of baptism for the dead is a great doctrine, one of the most glorious doctrines that was ever revealed to the human family; and there are light, power, glory, honor and immortality in it.
+ - My business is to obey when the Lord commands, and this is the duty of all mankind.
+ - Crying babies are like good intentions: Both should be carried out immediately!
+ - The only men who become Gods, even the Sons of God, are those who enter into polygamy.
+ - Remember, a chip on the shoulder is a sure sign of wood higher up.
+ - Let not the tongue give utterance to the evil that is in thine heart, but command thy tongue to be silent until good shall prevail over evil.
+ - Every accomplishment, every refined talent, every useful attainment in mathematics, music, and in all sciences, and art belong to the Saints.
+ - Nature is the glass reflecting God, as by the sea reflected is the sun, too glorious to be gazed on in his sphere.
+ - I will here say to parents, that kind words and loving actions towards children, will subdue their uneducated nature a great deal better than the rod, or, in other words, than physical punishment.
+ - As to your families my counsel is, never lay down your authority to a wife or child, but treat them so kindly they will never want to leave you.
+ - The greatest mystery a man ever learned, is to know how to control the human mind, and bring every faculty and power of the same in subjection to Jesus Christ; this is the greatest mystery we have to learn while in these tabernacles of clay.
+ - Gold and silver grow, and so does every other kind of metal, the same as the hair upon my head, or the wheat in the field; they do not grow as fast, but they are all the time composing or decomposing.
+ - Prayer is good, but when baked potatoes and milk are needed, prayer will not supply their place.
+ - Do you think that I am an old man? I could prove to this congregation that I am young; for I could find more girls who would choose me for a husband than can carry any of the young men.
+ - Mend it, fix it, make do, or do without.
+ - I have no wife whom I love so well that I would not put a javelin through her heart, and I would do it with clean hands.
+ - God himself is increasing and progressing in knowledge, power, and dominion, and will do so, worlds without end.
+ - See that your children are properly educated in the rudiments of their mother tongue, and then let them proceed to higher branches of learning...
+ - A few years ago one of my wives, when talking about wives leaving their husbands said, ‘I wish my husband’s wives would leave him, every soul of them except myself.’ That is the way they all feel, more or less, at times, both old and young.
+ - Yes, polygamy is one of the relics of Adam, of Enoch, of Noah, of Abraham, of Isaac, of Jacob, of Moses, David, Solomon, the Prophets, of Jesus, and his apostles.
+ - I do not want “Mormonism” to become popular; I would not, if I could, make it as popular as the Roman Catholic Church is in Italy, or as the Church of England is in England, because the wicked and ungodly would crowd into it in their sins.
+ - Let us have compassion upon each other, and let the strong tenderly nurse the weak into strength, and let those who can see guide the blind until they can see the way for themselves.
+ - If I had a choice of educating my daughters or my sons because of opportunity constraints, I would choose to educate my daughters.
+ - The best remedy for anger is delay.
+ - Talk about polygamy! There is no true philosopher on the face of the earth but what will admit that such a system, properly carried out according to the order of heaven, is far superior to monogamy for the raising of healthy, robust children!
+ - Every trial and experience you have passed through is necessary for your salvation.
+ - Jesus, our elder brother, was begotten in the flesh by the same character that was in the garden of Eden, and who is our Father in Heaven.
+ - Every time the enemy throws us off our guard, and we give way to temptation, he gains so much; he weakens us and strengthens himself; when we resist temptation, it strengthens the Saints and weakens the enemy.
+ - All we have to do is to go onward and upward, and keep the commandments of our Father and God; and he will confound our enemies.
+ - At times our children may not be in possession of a good spirit; but if the parent continues to possess the good Spirit, the children will have the bad spirit but a short time.
+ - The difference between God and the Devil, is that God creates and organizes, while the whole study of the Devil is to convince children that light meat tastes good.
+ - I say, if you want to enjoy exquisitely, become a Latter-day Saint, and then live the doctrine of Jesus Christ.
+ - It is a poor, unwise and very imbecile people who cannot take care of themselves.
+ - It’s better to die doing good than to live doing evil.
+ - I do not know of any, excepting the unpardonable sin, that is greater than the sin of ingratitude.
+ - Every man and woman who has talent and hides it will be called a slothful servant. Improve day by day upon the capital you have. In proportion as we are capacitated to receive, so it is our duty to do.
+ - If you first gain power to check your words, you will then begin to have power to check your judgment, and at length actually gain power to check your thoughts and reflections.
+ - Silence may be golden, but can you think of a better way to entertain someone than to listen to him?
+ - If I had the choice of educating a boy or a girl, I would educate the girl. If you educate a boy, you educate one, but if you educate a girl, you educate a generation.
+ - All I have to do is keep my spirit, feelings and conscience like a sheet of blank paper, and let the Spirit and power of God write upon it what He pleases. When He writes, I will read; but if I read before He writes, I am very likely to be wrong.
+ - All that the Lord requires of us is strict obedience to the laws of life. All the sacrifice that the Lord asks of his people is strict obedience to our own covenants that we have made with our God, and that is to serve him with an undivided heart.
+ - When our father Adam came into the garden of Eden, he came into it with a celestial body, and brought Eve, one of his wives, with him.
+ - I do not lift my voice against the great and glorious Government guaranteed to every citizen by the Constitution, but against those corrupt administrators who trample the Constitution and just laws under their feet.
+ - If we lack confidence in each other, and be jealous of each other, our peace will be destroyed. If we cultivate the principles of unshaken confidence in each other, our joy will be full.
+ - We want men to rule the nation who care more for and love better the nation’s welfare than gold and silver, fame or popularity.
+ - Any young man who is unmarried at the age of twenty one is a menace to the community.
+ - Will you stop drinking whiskey? Let me plead with you to do so. And if the sisters would not think it oppressive, I would ask them to not drink quite so much strong tea.
+ - If you love the truth, you can remember it.
+ - Though a man should say but a few words, and his sentences and words be ever so ungrammatical, if he speaks by the power of the Holy Ghost, he will do good.
+ - Some would have us believe that God is present everywhere. It is not so.
+ - If you are without bread, how much wisdom can you boast and of what real utility are your talents, if you cannot procure for yourselves and save against a day of scarcity those substances designed to sustain your natural lives?
+ - If I had forty wives in the United States, they did not know it, and could not substantiate it, neither did I ask any lawyer, judge, or magistrate for them. I live above the law, and so do this people.
+ - Let us seek to extend the present life to the uttermost by observing every law of health, and by properly balancing labor, study, rest and recreation.
+ - My mind becomes tired, and perhaps some of yours do. If so, go and exercise your bodies.
+ - I want to live perfectly above the law, and make it my servant instead of my master.
+ - A good man, is a good man, whether in this church, or out of it.
+ - Not a desire, act, wish, or thought does the Holy Ghost indulge in contrary to that which is dictated by the Father.
+ - I love the Constitution and government of this land, but I hate the damned rascals that administer the government.
+ - The Holy Ghost is the Spirit of the Lord, and issues forth from himself, and may properly be called God’s minister to execute his will in immensity.
+ - There is no calling of God to man on earth but what brings with it the evidence of its authenticity.
+ - The Lord created you and me for the purpose of becoming Gods like himself.
+ - People are not to be driven and you can put into a gnat’s eye all the souls of the children of men that are driven into heaven by preaching hell-fire.
+ - I have never altered my feelings towards individuals, as men or as women, whether they believe as I do or not. Can you live as neighbors with me? I can with you; and it is no particular concern of mine whether you believe with me or not.
+ - Our religion will not clash with nor contradict the facts of science in any particular.
+ - They who secure eternal life are doers of the word as well as hearers.
+ - The Constitution and laws of the United States resemble a theocracy more closely than any government now on the earth, or that ever has been, so far as we know, except the government of the children of Israel to the time when they elected a king.
+ - My faith does not lead me to think the Lord will provide us with roast pig, bread already buttered, etc. He will provide us with the ability to raise the grain.
+ - Will you love your brothers or sisters likewise, when they have committed a sin that cannot be atoned for without the shedding of their blood? Will you love that man or woman well enough to shed their blood?
+ - God never made something out of nothing; it is not in the economy or law by which the worlds were, are, or will exist.
+ - Some wise being organized my system, and gave me my capacity, put into my heart and brain something that delights, charms, and fills me with rapture at the sound of sweet music.
+ - If you want to know what to do with a thief that you may find stealing, I say kill him on the spot, and never suffer him to commit another iniquity.
+ - Learn to sustain yourselves; lay up grain and flour, and save it against a day of scarcity.
+ - We went west willingly – because we had to.
+ - The Lord chose Joseph Smith, called upon him at fourteen years of age, gave him vision, and led him along, guided and directed him in his obscurity.
+ - Fear arises from the weakness of the flesh over which the devil has power.
+ - Jesus Christ was not begotten by the Holy Ghost.
+ - How much unbelief exists in the minds of the Latter-day Saints in regard to one particular doctrine which I revealed to them, and which God revealed to me – namely that Adam is our Father and God –...
+ - What we commonly call death does not destroy the body, it only causes a separation of spirit and body.
+ - The apostates think that everybody is wrong but themselves.
+ - Every day is judgment day-use it.
+ - He that confesseth not that Jesus has come in the flesh and sent Joseph Smith with the fullness of the Gospel to this generation, is not of God, but is anti-christ.
+ - One thing is certain, wherever we go there is a proof that the people are keeping the commandments of the Lord, especially the first one – to multiply and replenish the earth.
+ - I find no fault with the Constitution or laws of our country, they are good enough. It is the abuse of those laws which I despise, and which God, good men and angels abhor.
+ - All rational beings have an agency of their own; and according to their own choice they will be saved or damned.
+ - This is loving your neighbour as ourselves; if he needs help, help him; and if he wants salvation and it is necessary to spill his blood on the earth in order that he may be saved, spill it.
+ - This is the reason why the doctrine of plurality of wives was revealed, that the noble spirits who are waiting for tabernacles might be brought forth.
+ - He is our Father – the Father of our Spirits, and was once a man in mortal flesh as we are, and is now an exalted being.
+ - Let the people be led by the revelations of Jesus Christ, and the finger of God will be made manifest before them day by day in their progress to eternal happiness; for this is the privilege of the faithful.
+ - The principle of love within us is an attribute of the Deity, and it is placed within us to be dispensed independently according to our own will.
+ - The gifts of the Gospel are given to strengthen the faith of the believer.
+ - If we hearken to counsel, we shall be the best people in the world; we shall be as a bright light set upon a hill, that cannot be hid, or like a candle upon a candlestick.
+ - Brother Cannon remarked that people wondered how many wives and children I had. He may inform them that I shall have wives and children by the million, and glory, and riches, and power, and dominion, and kingdom after kingdom, and reign triumphantly.
+ - It is true that the blood of the Son of God was shed for sins through the fall and those committed by men, yet men can commit sins which it can never remit.
+ - If your are ever called upon to chasten a person, never chasten beyond the balm you have within you to bind up.
+ - Can we fight against and subdue ourselves? That is the greatest difficulty we ever encountered, and the most arduous warfare we ever engaged in.
+ - Let us continue to improve until we are filled with the knowledge of the truth. We have yet much to learn.
+ - The biggest labor problem is tomorrow.
+ - Do not reject anything because it is new or strange, and do not sneer nor jeer at what comes from the Lord, for if we do, we endanger our salvation.
+ - If we are not one, we are not in the true sense of the word the disciples of the Lord Jesus.
+ - Now, there is no harm in a teapot, even if it contains tea, if it is let alone.
+ - When the Lord fights the battles of the saints, he does it so effectually that nobody gets nervous but the enemy.
+ - It is difficult to find anything more healthy to drink than good cold water, such as flows down to us from springs and snows of our mountains. This is the beverage we should drink. It should be our drink at all times.
+ - It is wise for us to forget our troubles, there are always new ones to replace them.
+ - We are prepared for some things, and we receive just as fast as we prepare ourselves.
+ - Which would you part with first – your tobacco, your whiskey, or your religion?
+ - My people must be tried in all things, that they may be prepared to receive the glory that I have for them.
+ - It is bad enough to see young fools, but worse to see old fools.
+ - There is no knowledge, no light, no wisdom that you are in possession of, but what you have received it from some source.
+ - Take care of yourselves, and live as long as you can, and do all the good you can.
+ - When man desires to live as long as a tree, his diet will be fruit.
+ - The man or woman who lives worthily now is in a state of salvation.
+ - It is for us to do those things which the Lord requires at our hands, and leave the result with him.
+ - This is the greatest wealth we possess: to know how to direct our labors rightly.
+ - When the time came that His first-born, the Saviour, should come into the world and take a tabernacle, the Father came Himself and favoured that spirit with a tabernacle instead of letting any other man do it.
+ - The present Constitution, with a few alterations of a trifling nature, is just as good as we want; and if it is sustained on this land of Joseph, it will be done by us and our posterity.
+ - The government of heaven, if wickedly administered, would become one of the worst governments upon the face of the earth. No matter how good a government is, unless it is administered by righteous men, an evil government will be made of it.
+ - Learn to be good for something.
+ - All the difference between men and angels is, men are passing through the day of trial that angels have already passed through.
+ - The doctrines contained in the Bible will lift to a superior condition all who observe them; they will impart to them knowledge, wisdom, charity, fill them with compassion and cause them to feel after the wants of those who are in distress.
+ - We must not love the world, nor the things of the world, until the world is sanctified and prepared to be presented to the Father with the Saints upon it; then they will inhabit it for ever and ever.
+
+161 quotes

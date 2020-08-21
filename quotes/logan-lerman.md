@@ -1,0 +1,35 @@
+ - I know these will become old stories someday and our pictures will become old photographs and we’ll all become somebody’s Mom or Dad, but right now, these moments are not stories. This is happening and I’m here.
+ - I just don’t want to repeat the same thing over and over again, so I’m always looking for something that’s going to be challenging and make me nervous every time I start a project.
+ - I’ve written a lot and brainstorm ideas, and I plan on pursuing them very soon.
+ - I’ve definitely had the experience where I was pursuing someone for a long time that I just obviously did not connect with, so I was always, kind of altering myself for her, But then you realize it’s just not worth it. What’s the point?
+ - I’d say a man is someone who is honest, strong-minded, moral, genuine, just a good human being.
+ - I have a hard time watching myself.
+ - Honestly, my character doesn’t have much in common with Harry Potter besides the fact that he’s an unlikely hero who’s thrown into a huge situation.
+ - Fun. I’m not the kind of guy kids picked on in school, but I’ve seen it happen. I’ve never really given much thought to being cool. I don’t really think about it one way or the other.
+ - Growing up, I had a very normal relationship with my brother and sister. But, over time, they became my best friends, and now I hang out with them all the time. I’m very close with them.
+ - One day, I’ll stop making weird faces in pictures. But not today.
+ - Life is a rollercoaster ride and I don’t intend on being the one screaming and hanging on for dear life.
+ - I grew up going to school and high school and then shooting a movie for a few months. It’s an odd way to grow up and is kind of forced maturity.
+ - I got into acting to get my foot in the door for film-making.
+ - I would add a little more love in the world. It’s ridiculous, I know, but it is one thing I would do.
+ - It’s like, to me, acting is like a child walking in the park, the better the actor, the greater the playground he has.
+ - I’m always in the theater seeing everything, good or bad.
+ - I’m just trying to find a good project. Work with a good director, someone I really admire. Find a good role.
+ - The film makers are the true movie stars.
+ - Berlin is my favourite city.
+ - When filming, I like to travel with an instrument.
+ - The idea of working with David Fincher or Paul Thomas Anderson or Wes Anderson or Scorsese or Spielberg or any of the guys I really idolize is a dream for me.
+ - I appreciate film actors who respect the film making process.
+ - I just want to make sure I’m contributing good films to movie history rather than being famous just to be famous.
+ - I want to be a good actor more than anything – someone you can respect.
+ - When I’m back at home it’s just reality. I kind of separate myself from Hollywood.
+ - When I was five I thought auditions were a great way to get out of school!
+ - I love movie sets. It’s another home for me. Movie theaters and movie sets – they’re just the best places to be. I love them.
+ - I don’t really look around and say, ‘I’ve made it.’ I just look around and think how fortunate I am to work with the people I’m working with.
+ - I started doing roles and working with people that I really respected and became passionate about the art form of acting. And I’m still trying to figure it out. Still learning.
+ - For me, being able to be vulnerable is difficult, but it’s just something that I feel comfortable doing. I need to fully understand why, the thought-process behind the character and I have to believe it. That comes from a lot of preparation.
+ - When I receive a new role, I completely become my character.
+ - My ideal role would be the lead in a film with a director that I really appreciate and admire.
+ - As you get older, there are different types of roles in people’s lives at certain ages.
+
+33 quotes

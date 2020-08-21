@@ -1,0 +1,33 @@
+ - It has been our fate as a nation not to have ideologies but to be one.
+ - A university’s essential character is that of being a center of free inquiry and criticism – a thing not to be sacrificed for anything else.
+ - One of the primary tests of the mood of a society at any given time is whether its comfortable people tend to identify, psychologically, with the power and achievements of the very successful or with the needs and sufferings of the underprivileged.
+ - We are all sufferers from history, but the paranoid is a double sufferer, since he is afflicted not only by the real world, with the rest of us, but by his fantasies as well.
+ - To the reactionary ear every whispered criticism of the elite classes has always sounded like the opening shot of an uprising.
+ - To be sick and helpless is a humiliating experience. Prolonged illness also carries the hazard of narcissistic self-absorption.
+ - There has always been in our national experience a type of mind which elevates hatred to a kind of creed; for this mind, group hatreds take a place in politics similar to the class struggle in some other modern societies.
+ - It is ironic that the United States should have been founded by intellectuals, for throughout most of our political history, the intellectual has been for the most part either an outsider, a servant or a scapegoat.
+ - It is possible that the distinction between moral relativism and moral absolutism has sometimes been blurred because an excessively consistent practice of either leads to the same practical result – ruthlessness in political life.
+ - The role of third parties is to sting like a bee, then die.
+ - If there is anything more dangerous to the life of the mind than having no independent commitment to ideas, it is having an excess of commitment to some special and constricting idea.
+ - The utopia of the Populists was in the past, not in the future. According to the agrarian myth, the health of the state was proportionate to the degree to which it was dominated by the agricultural class, and this assumption pointed to the superiority of an earlier age.
+ - The intellectual is engage-he is pledged, committed, enlisted. What everyone else is willing to admit, namely that ideas and abstractions are of signal importance in human life, he imperatively feels.
+ - Anti-Catholicism has always been the pornography of the Puritan.
+ - Intellectualism, though by no means confined to doubters, is often the sole piety of the skeptic.
+ - Intellect is resented as a form of power or privilege.
+ - The idea of the paranoid style as a force in politics would have little contemporary relevance or historical value if it were applied only to men with profoundly disturbed minds. It is the use of paranoid modes of expression by more or less normal people that makes the phenomenon significant.
+ - The nation seems to slouch onward into its uncertain future like some huge inarticulate beast, too much attainted by wounds and ailments to be robust, but too strong and resourceful to succumb.
+ - Whatever the intellectual is too certain of, if he is healthily playful, he begins to find unsatisfactory. The meaning of his intellectual life lies not in the possession of truth but in the quest for new uncertainties.
+ - Intellect is neither practical nor impractical; it is extra-practical.
+ - It is a part of the intellectual’s tragedy that the things he most values about himself and his work are quite unlike those society values in him...
+ - To the zealot overcome by his piety and to the journeyman of ideas concerned only with his marketable mental skills, the beginning and end of ideas lies in their efficacy with respect to some goal external to intellectual processes.
+ - As with the pursuit of happiness, the pursuit of truth is itself gratifying whereas the consummation often turns out to be elusive.
+ - It is the historic glory of the intellectual class of the West in modern times that, of all the classes which could be called in any sense privileged, it has shown the largest and most consistent concern for the well-being of the classes which lie below it in the social scale.
+ - To be confronted with a simple and unqualified evil is no doubt a kind of luxury...
+ - It is a poor head that cannot find plausible reason for doing what the heart wants to do.
+ - If for every error and every act of incompetence one can substitute an act of treason, many points of fascinating interpretation are open to the paranoid imagination.
+ - A university is not a service station. Neither is it a political society, nor a meeting place for political societies. With all its limitations and failures, and they are invariably many, it is the best and most benign side of our society insofar as that society aims to cherish the human mind.
+ - The delicate thing about the university is that it has a mixed character, that it is suspended between its position in the eternal world, with all its corruption and evils and cruelties, and the splendid world of our imagination.
+ - We have learned so well how to absorb novelty that receptivity itself has turned into a kind of tradition- “the tradition of the new.” Yesterdays avant-garde experiment is today’s chic and tomorrows cliche.
+ - Intellect needs to be understood not as some kind of claim against the other human excellences for which a fatally high price has to be paid, but rather as a complement to them without which they cannot be fully consummated.
+
+31 quotes

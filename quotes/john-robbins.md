@@ -1,0 +1,30 @@
+ - Gross National Happiness is more important than Gross Domestic Product. attr to Buthan’s King Jigme Singye Wangchuck.
+ - I believe that eating simple food in a healthy body with a clean conscience is more pleasurable, and infinitely more satisfying, then eating decadent food that makes you and your world ill.
+ - Animals do not ‘give’ their life to us, as the sugar-coated lie would have it. No, we take their lives. They struggle and fight to the last breath, just as we would do if we were in their place.
+ - Adding last-minute features, whether in response to competitive pressure, as a developer’s pet feature, or on the whim of management, causes more bugs in software than almost anything else.
+ - It may be healthier to eat beer and franks with cheer and thanks, than to eat sprouts and bread with doubts and dread.
+ - Remember that one who forgets the language of gratitude can never be on speaking terms with happiness.
+ - Awareness is bad for the meat business. Conscience is bad for the meat business. Sensitivity to life is bad for the meat business. DENIAL, however, the meat business finds indispensable.
+ - Give away your love, freely and without expectation. Give it away, and soon your life will be filled with love, and you will have set others on the path of love and peace.
+ - In the never-ending battle between order and chaos, clutter sides with chaos every time. Anything that you possess that does not add to your life or your happiness eventually becomes a burden.
+ - The fork is the most powerful tool ever placed in our hands.
+ - Our food chain is in crisis. Big agribusiness has made profits more important than your health – more important than the environment – more important than your right to know how your food is produced. But beneath the surface, a revolution is growing.
+ - A reduction in meat consumption is the most powerful single act that you can take to halt the destruction of our environment and preserve our natural resources.
+ - It’s always better to feed your enemies than to fight with them.
+ - Unlike much of orthodox medicine, alternative approaches to healing typically honor the wisdom and capability of the human body. Their goal is often to support and strengthen the powerful healing forces already at work within us.
+ - Every time you make a choice that expresses respect for life, you bring a little more love in your body, into your family, into our society, and into a world that is calling out for this blessing.
+ - Every so often a book comes along that has the power to alter the course of history. Project Animal Farm is that potent.
+ - Meanwhile, the chemical industry has mounted an aggressive campaign to discredit organic food. And without the knowledge or consent of most Americans, two-thirds of the products on our supermarket shelves now contain genetically engineered ingredients.
+ - Chiropractic works in harmony with the basic healing forces of the body, whereas the allopathic, western medical establishment doesn’t have nearly as holistic a vision.
+ - Throughout history, people in all cultures and lands have gathered together at mealtimes. In forests and mountains, in humble abodes and great mansions, beneath star filled skies and beside hearths, people have given thanks, and offered their blessings.
+ - Jesus prescribes a doctrinal test for false prophets because a behavioral test is unreliable.
+ - Faith is not a matter of trusting that events will always occur to our liking, but of trust that, whatever happens, our inner resources will be equal to the moment.
+ - In California today, you may save more water by not eating a pound of beef than you would by not showering for six entire months.
+ - The level of consumption that we identify with success is utterly unsustainable. We’re gobbling up the world.
+ - Dream of a society at peace with its conscience because it respects and lives in harmony with all life forms.
+ - Few of us are aware that the act of eating can be a powerful statement of commitment to our own well-being, and at the same time the creation of a healthier habitat. Your health, happiness, and the future of life on earth are rarely so much in your own hands as when you sit down to eat.
+ - One day people will look back with amazement that we ever sought to grow our food with poisons.
+ - Eating in a hurried or unconscious way, as so many of us have learned to do, is like receiving a love letter from the earth, but never taking the time to carefully read it.
+ - You know that a majority of the medical costs that are bankrupting families, companies, and nations could be eliminated with better nutrition.
+
+28 quotes

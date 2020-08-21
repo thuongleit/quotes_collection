@@ -1,0 +1,107 @@
+ - If all my possessions were taken from me with one exception, I would choose to keep the power of communication, for by it I would soon regain all the rest.
+ - There is always room at the top.
+ - If all my talents and powers were to be taken from me by some unscrutable Providence, and I had my choice of keeping but one, I would unhesitatingly ask for be allowed to keep the Power of Speaking, for through it I would quickly recover all the rest.
+ - Now is the time when men work quietly in the fields and women weep softly in the kitchen; the legislature is in session and no man’s property is safe.
+ - I do not propose to be buried until I am dead.
+ - The farmers are the founders of civilization.
+ - Those who do not look upon themselves as a link, connecting the past with the future, do not perform their duty to the world.
+ - Keep cool; anger is not an argument.
+ - We are all agents of the same supreme power, the people.
+ - If we abide by the principles taught by the Bible, our country will go on prospering.
+ - God grants liberty only to those who love it, and are always ready to guard and defend it.
+ - Of all the contrivances for cheating the laboring classes of mankind, none has been more effective than that which deludes them with paper money.
+ - Faith puts God between us and our circumstances.
+ - We may be tossed upon an ocean where we can see no land – nor, perhaps, the sun or stars. But there is a chart and a compass for us to study, to consult, and to obey. That chart is the Constitution.
+ - Every unpunished murder takes away something from the security of every man’s life.
+ - The Bible is a book of faith, and a book of doctrine, and a book of morals, and a book of religion, of especial revelation from God.
+ - A free government with an uncontrolled power of military conscription is the most ridiculous and abominable contradiction and nonsense that ever entered into the heads of men.
+ - The bible fits man for life and prepares him for death.
+ - The right of an inventor to his invention is no monopoly – in any other sense than a man’s house is a monopoly.
+ - What is valuable is not new, and what is new is not valuable.
+ - There are men in all ages who mean to govern well, but they mean to govern. They promise to be good masters, but they mean to be masters.
+ - The materials of wealth are in the earth, in the seas, and in their natural and unaided productions.
+ - Nothing of character is really permanent but virtue and personal worth.
+ - The most important thought that ever occupied my mind is that of my individual responsibility to God.
+ - There is no refuge from confession but suicide; and suicide is confession.
+ - Whatever makes men good Christians, makes them good citizens.
+ - It is, Sir, as I have said, a small College, And yet, there are those who love it.
+ - There is no happiness, there is no liberty, there is no enjoyment of life, unless a man can say, when he rises in the morning, I shall be subject to the decision of no unwise judge today.
+ - Hold on, my friends, to the Constitution and to the Republic for which it stands. Miracles do not cluster and what has happened once in 6,000 years, may not happen again. Hold on to the Constitution, for if the American Constitution should fail, there will be anarchy throughout the world.
+ - Power naturally and necessarily follows property.
+ - When my eyes shall be turned to behold for the last time the sun in heaven, may I not see him shining on the broken and dishonored fragments of a once glorious Union; on States dissevered, discordant, belligerent; on a land rent with civil feuds, or drenched, it may be, in fraternal blood.
+ - A strong conviction that something must be done is the parent of many bad measures.
+ - If we abide by the principles taught in the Bible, our country will go on prospering and to prosper; but if we and our posterity neglect its instructions and authority, no man can tell how sudden a catastrophe may overwhelm us and bury all our glory in profound obscurity.
+ - If God and His Word are not known and received, the devil and his works will gain the ascendency; if the evangelical volume does not reach every hamlet, the pages of a corrupt and licentious literature will;.
+ - Let it be borne on the flag under which we rally in every exigency, that we have one country, one constitution, one destiny.
+ - Mr. President, I wish to speak today, not as a Massachusetts man, nor as a Northern man, but as an American. I speak for the preservation of the Union. Hear me for my cause.
+ - No man can suffer too much, and no man can fall too soon, if he suffer or if he fall in defense of the liberties and Constitution of his country.
+ - I shall oppose all slavery extension and all increase of slave representation in all places, at all times, under all circumstances, even against all inducements, against all supposed limitations of great interests, against all combinations, against all compromises.
+ - The people’s government, made for the people, made by the people, and answerable to the people.
+ - The proper function of a government is to make it easy for the people to do good, and difficult for them to do evil.
+ - Let our object be – our country, our whole country, and nothing but our country. And by the blessing of God, may that country itself become a vast and splendid monument – not of oppression and terror, but of wisdom, of Peace, and of Liberty, upon which the world may gaze with admiration forever.
+ - If you divorce capital from labor, capital is hoarded, and labor starves.
+ - We are in danger of being overwhelmed with irredeemable paper, mere paper, representing not gold nor silver; no sir, representing nothing but broken promises, bad faith, bankrupt corporations, cheated creditors and a ruined people.
+ - Liberty consists in wholesome restraint.
+ - Venerable men! you have come down to us from a former generation. Heaven has bounteously lengthened out your lives, that you might behold this joyous day.
+ - The Sermon on the Mount cannot be a merely human production. This belief enters into the very depth of my conscience. The whole history of man proves it.
+ - If the Union was formed by accession of States then the Union may be dissolved by the secession of States.
+ - Inconsistencies of opinion, arising from changes of circumstances, are often justifiable.
+ - How little do they see what really is, who frame their hasty judgment upon that which seems.
+ - No man not inspired can make a good speech without preparation.
+ - Justice is the great interest of man on earth.
+ - One may live as a conqueror, a king, or a magistrate; but he must die a man. The bed of death brings every human being to his pure individuality, to the intense contemplation of that deepest and most solemn of all relations – the relations between the creature and his Creator.
+ - The States are nations.
+ - I was born an American; I will live an American; I shall die an American.
+ - No power but Congress can declare war, but what is the value of this constitutional provision, if the President of his own authority may make such military movements as must bring on war?
+ - I thank God, that if I am gifted with little of the spirit which is able to raise mortals to the skies, I have yet none, as I trust, of that other spirit which would drag angels down.
+ - The dignity of history consists in reciting events with truth and accuracy, and in presenting human agents and their actions in an interesting and instructive form. The first element in history, therefore, is truthfulness; and this truthfulness must be displayed in a concrete form.
+ - I shall enter on no encomium upon Massachusetts; she needs none. There she is. Behold her, and judge for yourselves. There is her history; the world knows it by heart. The past, at least, is secure. There is Boston and Concord and Lexington and Bunker Hill; and there they will remain forever.
+ - If we cherish the virtues and the principles of our fathers, Heaven will assist us to carry on the work of human liberty and human happiness. Auspicious omens cheer us. Great examples are before us. Our own firmament now shines brightly upon our path.
+ - The Bible is a book of faith, and a book of doctrine, and a book of religion, of special revelation from God; but it is also a book which teaches man his own individual responsibility, his own dignity, and his equality with his fellow – man.
+ - Employment gives health, sobriety, and morals.
+ - Let us thank God that we live in an age when something has influence besides the bayonet.
+ - A country cannot subsist well without liberty, nor liberty without virtue.
+ - I still live. Pretty.
+ - If the power of the Gospel is not felt throughout the length and breadth of the land, anarchy and misrule, degradation and misery, corruption and darkness will reign without mitigation or end.
+ - Instruct the mothers of the French people.
+ - Let us not forget that the cultivation of the earth is the most important labor of man. When tillage begins, other arts will follow. The farmers, therefore, are the founders of civilization.
+ - We have been taught to regard a representative of the people as a sentinel on the watch-tower of liberty.
+ - An unlimited power to tax involves, necessarily, the power to destroy.
+ - Philosophic argument, especially that drawn from the vastness of the universe, in comparison with the apparent insignificance of this globe, has sometimes shaken my reason for the faith that is in me; but my heart has always assured and reassured me that.
+ - On the diffusion of education among the people rest the preservation and perpetuation of our free institutions.
+ - Falsehoods not only disagree with truths, but usually quarrel among themselves.
+ - The world is governed more by appearance than realities so that it is fully as necessary to seem to know something as to know it.
+ - A solemn and religious regard to spiritual and eternal things is an indispensable element of all true greatness.
+ - Our profession is good, if practiced in the spirit of it; it is damnable fraud and iniquity when its true spirit is supplied by a spirit of mischief-making and money catching.
+ - It would seem, then, to be the part of political wisdom to found government on property; and to establish such distribution of property, by the laws which regulate its transmission and alienation, as to interest the great majority of society in the protection of the government.
+ - America has furnished to the world the character of Washington. And if our American institutions had done nothing else, that alone would have entitled them to the respect of mankind.
+ - On the light of Liberty you saw arise the light of Peace, like “another morn,” “Risen on mid-noon;” and the sky on which you closed your eye was cloudless.
+ - Mind is the great lever of all things; human thought is the process by which human ends are ultimately answered.
+ - Human beings will generally exercise power when they can get it, and they will exercise it most undoubtedly in popular governments under pretense of public safety.
+ - The Constitution was made to guard the people against the dangers of good intentions.
+ - If the States were not left to leave the Union when their rights were interfered with, the government would have been National, but the Convention refused to baptize it by that name.
+ - All creeds are fallible and uncertain evidences of evangelical piety.
+ - Philosophical argument has sometimes shaken my reason for the faith that was in me but my heart has always assured me that the Gospel of Jesus Christ must be reality.
+ - A representative form of government rests nor more on political contributions than on those laws which regulate the descent and transmission of property.
+ - A disordered currency is one of the greatest political evils.
+ - The law: it has honored us; may we honor it.
+ - The contest for ages has been to rescue liberty from the grasp of executive power.
+ - Labor in this country is independent and proud. It has not to ask the patronage of capital, but capital solicits the aid of labor.
+ - Converse, converse, CONVERSE, with living men, face to face, mind to mind-that is one of the best sources of knowledge.
+ - The inherent right in the people to reform their government, I do not deny; and they have another right, and that is to resist unconstitutional laws without overturning the government.
+ - Thank God, I also am an American!
+ - If the true spark of religious and civil liberty be kindled, it will burn.
+ - The hand that destroys the Constitution rends our Union asunder forever.
+ - The man is free who is protected from injury.
+ - Man is a special being, and if left to himself, in an isolated condition, would be one of the weakest creatures; but associated with his kind, he works wonders.
+ - When the spotless ermine of the judicial robe fell on John Jay, it touched nothing less spotless than itself.
+ - On the other hand, the cultivation of the religious sentiment represses licentiousnessinspires respect for law and order, and gives strength to the whole social fabric, at the same time that it conducts the human soul upward to the Author of its being.
+ - There is something about men more capable of shaking despotic power than lightening, whirlwind, or earthquake, that is, the threatened indignation of the whole civilized world.
+ - He who tampers with the currency robs labor of its bread.
+ - Liberty exists in proportion to wholesome restraint; the more restraint on others to keep off from us, the more liberty we have.
+ - Justice, sir, is the great interest of man on earth. It is the ligament which holds civilized beings and civilized nations together.
+ - Gentlemen, the character of Washington is among the most cherished contemplations of my life. It is a fixed star in the firmament of great names, shining without twinkling or obscuration, with clear, steady, beneficent light.
+ - There is nothing so powerful as truth, and often nothing so strange.
+ - The freest government, if it could exist, would not be long acceptable, if the tendency of the laws were to create a rapid accumulation of property in a few hands, and to render the great mass of the population dependent and penniless.
+
+105 quotes

@@ -1,0 +1,41 @@
+ - Every Morning You Have Two Choices: Continue To Sleep With Your Dreams, Or Wake Up and Chase Them. ~~Carmelo Anthony
+ - You have to have a dream so you can get up in the morning. ~~Billy Wilder
+ - The breeze at dawn has secrets to tell you. Don’t go back to sleep. ~~Rumi
+ - When you arise in the morning think of what a privilege it is to be alive, to think, to enjoy, to love. ~~Marcus Aurelius
+ - A good idea will keep you awake during the morning, but a great idea will keep you awake during the night. ~~Marilyn Vos Savant
+ - Do not say, ‘It is morning,’ and dismiss it with a name of yesterday. See it for the first time as a newborn child that has no name. ~~Rabindranath Tagore
+ - Be pleasant until ten o’clock in the morning and the rest of the day will take care of itself. ~~Elbert Hubbard
+ - Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. ~~William Blake
+ - Lose an hour in the morning, and you will spend all day looking for it. ~~Richard Whately
+ - Opportunities are like sunrises. If you wait too long, you miss them. ~~William Arthur Ward
+ - An early-morning walk is a blessing for the whole day. ~~Henry David Thoreau
+ - The brain is a wonderful organ; it starts working the moment you get up in the morning and does not stop until you get into the office. ~~Robert Frost
+ - Each morning when I open my eyes I say to myself: I, not events, have the power to make me happy or unhappy today. ~~Groucho Marx
+ - A good husband is never the first to go to sleep at night or the last to awake in the morning. ~~Honoré de Balzac
+ - Nothing is more beautiful than the loveliness of the woods before sunrise. ~~George Washington Carver
+ - Morning is wonderful. Its only drawback is that it comes at such an inconvenient time of day. ~~Glen Cook
+ - Old friends pass away, new friends appear. It is just like the days. An old day passes, a new day arrives. The important thing is to make it meaningful: a meaningful friend – or a meaningful day. ~~Dalai Lama XIV
+ - Every morning was a cheerful invitation to make my life of equal simplicity, and I may say innocence, with Nature herself. ~~Henry David Thoreau
+ - Be willing to be a beginner every single morning. ~~Meister Eckhart
+ - Prayer is the key of the morning and the bolt of the evening. ~~Mahatma Gandhi
+ - It ain’t as bad as you think. It will look better in the morning. ~~Colin Powell
+ - I look upon death to be as necessary to our constitution as sleep. We shall rise refreshed in the morning. ~~Benjamin Franklin
+ - Love. Fall in love and stay in love. Write only what you love, and love what you write. The key word is love. You have to get up in the morning and write something you love, something to live for. ~~Ray Bradbury
+ - Morning is an important time of day, because how you spend your morning can often tell you what kind of day you are going to have. ~~Daniel Handler
+ - In the sweetness of friendship let there be laughter, and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed. ~~Khalil Gibran
+ - The light which puts out our eyes is darkness to us. Only that day dawns to which we are awake. There is more day to dawn. The sun is but a morning star. ~~Henry David Thoreau
+ - If it’s your job to eat a frog, it’s best to do it first thing in the morning. And If it’s your job to eat two frogs, it’s best to eat the biggest one first. ~~Mark Twain
+ - If you have only one smile in you, give it to the people you love. Don’t be surly at home, then go out in the street and start grinning ‘Good morning’ at total strangers. ~~Maya Angelou
+ - When you rise in the morning, give thanks for the light, for your life, for your strength. Give thanks for your food and for the joy of living. If you see no reason to give thanks, the fault lies in yourself. ~~Tecumseh
+ - Make sure you never, never argue at night. You just lose a good night’s sleep, and you can’t settle anything until morning anyway. ~~Rose Kennedy
+ - That’s the trouble with being me. At this point, nobody gives a damn what my problem is. I could literally have a tumor on the side of my head and they’d be like, ‘Yeah, big deal. I’d eat a tumor every morning for the kinda money you’re pulling down.’ ~~Jim Carrey
+ - Welcome every morning with a smile. Look on the new day as another special gift from your Creator, another golden opportunity to complete what you were unable to finish yesterday. ~~Og Mandino
+ - I love the smell of juice boxes in the morning. ~~Robert Duvall
+ - I remind myself every morning: Nothing I say this day will teach me anything. So if I’m going to learn, I must do it by listening. ~~Larry King
+ - Wrinkles should merely indicate where smiles have been. ~~Mark Twain
+ - I wake up every morning at nine and grab for the morning paper. Then I look at the obituary page. If my name is not on it, I get up. ~~Benjamin Franklin
+ - I have always been delighted at the prospect of a new day, a fresh try, one more start, with perhaps a bit of magic waiting somewhere behind the morning. ~~J.B. Priestley
+ - Thank God every morning when you get up that you have something to do that day, which must be done, whether you like it or not. ~~James Russell Lowell
+ - Do you wish me a good morning, or mean that it is a good morning whether I want it or not; or that you feel good this morning; or that it is a morning to be good on? ~~J. R. R. Tolkien
+
+39 quotes

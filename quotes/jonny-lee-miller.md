@@ -1,0 +1,22 @@
+ - Computers creating art is an upsetting concept mostly because of what it means about humans.
+ - Some people can handle fame, some can’t.
+ - New York and LA are both great places to visit, but I wouldnt want to live in either of them now. I find New York extremely claustrophobic and dirty. LA is quite a nice place. But theres no hustle and bustle, no street life.
+ - Some kids are good at math, some kids can run, and acting was an interest of mine. Because I knew you could do it for a living I decided, that’s what I’m going to do.
+ - I spent a couple of months just riding a bike doing my own training in the streets.
+ - I really wouldn’t want to live in America. I found New York claustrophobic and dirty. I missed England when I was there, simple things like smells and the British sense of humor.
+ - I used a bike in London and that’s it. I learnt a lot about biking, and really got into. Now I cycle regularly.
+ - I don’t want to talk about the specifics of other people’s performances compared with my own. I’d never do that.
+ - If youre serious about what youre doing, youve got to keep your head and follow your instinct. Maybe you wont reach the same dizzy heights as others, but you will get something back.
+ - I’ve never taken myself too seriously, I’m not into that.
+ - I’m a pretty happy person, to be honest with you.
+ - I always know I can die at any moment.
+ - When you’re playing a character, you don’t really want to have an opinion about where you’re going to end up. Otherwise, you can’t really stay in the moment and in your character.
+ - Being part of ‘Natural Nylon’ is a great way to have an influence on the films that get out there. I love films and it gives me an input.
+ - When you’re shooting 20-odd episodes in a season, the last thing you want is for each script to be the same tone.
+ - The whole point of being an actor is to get satisfaction out of a role – unless you’re just vain about celebrity. You’re always looking for the one thing that will surprise you.
+ - I’d go anywhere to work, so long as it’s worth it.
+ - You’re trying to bring a character to an audience, and tell stories. That’s what we’re all trying do.
+ - I like to play different types roles, but I’d like to do a comedy next.
+ - I consider myself really lucky and I always have done. My approach is that if I know I’m relaxed and happy, then I will do my best work.
+
+20 quotes

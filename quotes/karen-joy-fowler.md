@@ -1,0 +1,37 @@
+ - Arriving late was a way of saying that your own time was more valuable than the time of the person who waited for you.
+ - You learn as much from failure as from success, Dad always says. Though no one admires you for it.
+ - Pheromones are Earth’s primordial idiom.
+ - When there is an invisible elephant in the room, one is from time to time bound to trip over a trunk.
+ - Lots of people go mad in January. Not as many as in May, of course. Nor June. But January is your third most common month for madness.
+ - There’s science and there’s science, is all I’m saying. Where humans are the subjects, it’s mostly not science.
+ - No Utopia is Utopia for everyone.
+ - Sometimes you best avoid talking by being quiet, but sometimes you best avoid talking by talking.
+ - Where you succeed will never matter so much as where you fail.
+ - I still haven’t found the place where I can be my true self. But maybe you never get to be your true self, either.
+ - The spoken word converts individual knowledge into mutual knowledge, and there is no way back once you’ve gone over that cliff. Saying nothing was more amendable, and over time I’d come to see that it was usually your best course of action.
+ - The sunset you see is always better than the one you don’t. More stars are always better than less.
+ - Let us never underestimate the power of a well-written letter.
+ - Owls hoot in B flat, cuckoos in D, but the water ousel sings in the voice of the stream. She builds her nest back of the waterfalls so the water is a lullaby to the little ones. Must be where they learn it.
+ - In everyone’s life there are people who stay and people who go and people who are taken against their will.
+ - Trees are as close to immortality as the rest of us ever come.
+ - You can’t imagine the white-hot fury someone who can’t sleep has toward the beautiful dreamer beside him.
+ - I wonder sometimes if I’m the only one spending my life making the same mistake over and over again or if that’s simply human. Do we all tend toward a single besetting sin?
+ - When I run the world, librarians will be exempt from tragedy. Even their smaller sorrows will last only for as long as you can take out a book.
+ - The value of money is a scam perpetrated by those who have it over those who don’t.
+ - You know, I don’t think there’s anything truly unforgivable. Not where there’s love.
+ - There was something appealing in thinking of a character with a secret life that her author knew nothing about. Slipping off while the author’s back was turned, to find love in her own way. Showing up just in time to deliver the next bit of dialogue with an innocent face.
+ - In general, librarians enjoyed special requests. A reference librarian is someone who likes the chase. When librarians read for pleasure, they often pick a good mystery.
+ - Antagonism in my family comes wrapped in layers of code, sideways feints, full deniability. I believe the same can be said of many families.
+ - I’m unclear on the definition of person the courts have been using. Something that sieves out dolphins but lets corporations slide on through.
+ - But no one is easier to delude than a parent; they see only what they wish to see.
+ - Each of us has a private Austen.
+ - Allegra’s Austen wrote about the impact of financial need on the intimate lives of women. If she’d worked in a bookstore, Allegra would have shelved Austen in the horror section.
+ - Baby, high school’s over. High school’s never over...
+ - I thought there were moments to complain about your parents and moments to be grateful, and it was a shame to mix those moments up.
+ - Marriage seemed like such a small space whenever I was in it. I liked the getting married. Courtship has a plotline. But there’s no plot to being married. Just the same things over and over again. Same fights, same friends, same things you do on a Saturday. The repetition would start to get to me.
+ - We all have a sense of level. It may not be based on class exactly anymore, but we still have a sense of what we’re entitled to. People pick partners who are nearly their equal in looks. The pretty marry the pretty, the ugly the ugly. To the detriment of the breed.
+ - A man says something. Sometimes it turns out to be the truth, but this has nothing to do with the man who says it.
+ - I once broke up with a boy because he wrote me an awful poem.
+ - It was the marriage that was important; Jane Austen rarely even bothered to write about the wedding.
+
+35 quotes

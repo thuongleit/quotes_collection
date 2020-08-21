@@ -1,0 +1,120 @@
+ - Anxiety is simply living out the future before it gets here.
+ - Worldliness is whatever makes sin look normal and righteousness look strange.
+ - To build your house on the rock is to hear what Jesus says and obey. To be foolish and build your house on the sand is to hear and ignore.
+ - Grace is free, but it’s not cheap.
+ - Seek first the kingdom of God, and then trust that He will take care of our needs, even before we know what they are and where we’re going.
+ - The worship of Christ is our joy and privilege today. And tomorrow, and next Sunday, and for all eternity.
+ - If you want to know God as your Father, you need to know Jesus Christ as your Savior.
+ - Submission to the Scriptures is submission to God. Rebellion against the Scriptures is rebellion against God.
+ - If the fear of the Lord is the beginning of wisdom, then growing in our knowledge of God is always practical.
+ - If we aren’t prepared to be counter-cultural we aren’t ready to be Christians.
+ - You’ll never be a mature Christian until you understand that God remembers his promises and forgets your sins.
+ - If you find yourself mistreated, misunderstood, and mocked as a Christian, take heart, for so they did to the Christ.
+ - Keep sharing the good news; we have not yet exhausted the number of God’s elect.
+ - The world needs to see Christians burning, not with self-righteous fury at the sliding morals in our country, but with passion for God.
+ - God gets glory when his strength shines in our weakness.
+ - Busyness does not mean you are a faithful or fruitful Christian. It only means you are busy, just like everyone else.
+ - Flattery is saying something nice in order to help yourself. Encouragement is saying something true in order help someone else.
+ - To run hard after holiness is another way of running hard after God.
+ - To start the day without prayer is to suggest the devil is feeble, God is irrelevant, and we can handle things on our own.
+ - God does have a specific plan for our lives, but it is not one that He expects us to figure out before we make a decision.
+ - We do not truly know what love is unless we know Christ.
+ - Grace does not lead us to overlook obedience. Grace compels and empowers us for obedience.
+ - The richest treasure God has for you are the people in your life. Give thanks and don’t take them for granted.
+ - Stewarding my time is not about selfishly pursuing only the things I like to do. It’s about effectively serving others in the ways I’m best able to serve and in the ways I am most uniquely called to serve.
+ - The reason for your entire salvation, the design behind your deliverance, the purpose for which God chose you in the first place is holiness.
+ - The secret of the gospel is that we actually do more when we hear less about all we need to do for God and hear more about all that God has already done for us.
+ - The Bible tells us to love our neighbors as ourselves. Surely part of loving in this way is trying to understand what another person wants us to understand. I may not understand perfectly and I may not agree, but if I love you I should try to know what it is you wish I could know.
+ - God’s timing is rarely our timing.
+ - Some Christians need encouragement to think before they act. Others need encouragement to act after they think.
+ - Biblical wisdom means living a disciplined and prudent life in the fear of the Lord.
+ - Let us shout of our God from the rooftops, that the whole world would stand in silence before him.
+ - Sincere biblical repentance is as much a work of grace as not sinning in the first place. To err is human, to make progress is divine.
+ - God’s wrath was not just withdrawn. It was spent. Full atonement can it be? Hallelujah, what a Savior!
+ - Here’s good news: God is even more committed to your change, your growth, and your transformation than you are.
+ - If the gospel is old news to you, it will be dull news to everyone else.
+ - Our first love is Jesus. Holiness is not ultimately about living up to a moral standard. It’s about living in Christ and living out of our real, vital union with him.
+ - It is our confidence in the sovereign grace of God that gives us any hope of success in missions.
+ - The seed of God’s Word won’t grow to fruitfulness without pruning for rest, quiet, and calm.
+ - God is not a magic eight ball we shake up and peer into whenever we have a decision to make. He is a good God who gives us brains, shows us the way of obedience, and invites us to take risks for him.
+ - For Jesus, Scripture is powerful, decisive, and authoritative because it is nothing less than the voice of God.
+ - Faith is more than getting a theological quiz right. Faith is to know, to assent, to put your trust in, and to cherish what is true.
+ - No one in the history of the world has been more inclusive of repentant sinners than Jesus and no one has been more intolerant of sin.
+ - Blue Devils may have won today. Devil gonna lose tomorrow.
+ - Live for God. Obey the Scriptures. Think of others before yourself. Be holy. Love Jesus. And as you do these things, do whatever else you like, with whomever you like, wherever you like, and you’ll be walking in the will of God.
+ - Busyness kills more Christians than bullets.
+ - Sincerity is a Christian virtue, as is honesty about our struggles. But my generation needs to realize that Christianity is more than chic fragility, endless self-revelation, and the coolness that comes with authenticity.
+ - Your love should be so far reaching, earnest, biblical, Christ-centered, pure, and self-sacrificing that the world may hate you for it.
+ - No matter how long we have been walking with Jesus, we need to hear again, do not love the world.
+ - Sanctification will be drudgery unless we believe that holiness is possible and that it is pleasing to God.
+ - The Christian’s comfort: I am not my own. I do not make my own rules or create my own identity. There is one who made me and can save me.
+ - No one can hate you in this life more than Jesus was hated.
+ - God knows everything. So why not run to him and tell him all the things that he already knows?
+ - Don’t try so hard to be hip. When the Church finds out what is cool, it is not cool anymore.
+ - You will never see the preciousness of a Savior, if you do not see the reality of your sin.
+ - The people on this planet who end up doing nothing are those who never realized they couldn’t do everything.
+ - The word of God is more than enough for the people of God to live their lives to the glory of God.
+ - Our God is righteous enough to judge and kind enough to forgive.
+ - Jesus was not just a prophet but the fulfillment of all prophecy.
+ - We are not called to bring a broken planet back to its created glory. But we are to call broken people back to their creator.
+ - There is no sin so prevalent, so insidious, and so deep as the sin of fearing people more than we fear God.
+ - You cannot be in Christ and be indifferent to the sin in your life.
+ - The next time someone tells you, “The Church is full of a bunch of hypocrites.” You can respond, “You don’t even know the half of it.”
+ - Just about the worst thing a leader can nurture in his heart is self-pity. And just about the worst thing a leader can do in front of his people is murmur and complain.
+ - You will fear something or someone. The Bible says the wisest way to go about your life is to fear God.
+ - God is still here, God is still real, and God has not gone anywhere, even if you have.
+ - Don’t follow those who can talk a big game about their amazing faith in Christ. Follow people who are actually following Christ.
+ - Any gospel which says only what you must do and never announces what Christ has done is no gospel at all.
+ - Perhaps God brought you into this mess so that he can bring you out of it for his glory.
+ - It’s true that every road leads to God. But only one way leads to a pleasant encounter with Him.
+ - God did not send a concept, an idea, or a virtue. He sent his Son. Follow the God of love, not love as your god.
+ - Am I trying to do good or to make myself look good?
+ - Expecting perfection from ourselves or others is not what holiness is about.
+ - The goal of revelation is not information only, but affection, worship, and obedience. Christ in us will be realized only as we drink deeply of the Bible, which is God’s word outside of us.
+ - Not only is holiness the goal of your redemption, it is necessary for your redemption.
+ - Those trapped in sin will not normally thank you for pointing out the darkness in their lives.
+ - In the world of perpetual outrage, people cannot see the difference between deflated footballs, a dead lion, and dismembered babies.
+ - Christianity is so much more than getting your doctrine right, but it is not less.
+ - Tolerance is a relatively weak virtue; we’re called to so much more than that in the body of Christ.
+ - Sooner could a fish live upon a tree than the wicked in Paradise.
+ - On the last day, God will not acquit us because our good works were good enough, but he will look for evidence that our good confession was not phony. It’s in this sense that we must be holy.
+ - If you make the goal of your life just to stay alive, you’ll fail. If you make the goal of your life the kingdom, you cannot lose.
+ - We have been stuffed full of praise for mediocrity and had our foibles diagnosed away with hyphenated jargon and pop psychology.
+ - We may have the best of intentions in trying to discern God’s will, but we should really stop putting ourselves through the misery of overspiritualizing every decision. Our misdirected piety makes following God more mysterious than it was meant to be.
+ - The one indispensable requirement for producing godly, mature Christians is godly, mature Christians.
+ - The world provides no cheerleaders on the pathway to godliness.
+ - It’s not convincing to say you are a child of God if you have none of the characteristics of your Father.
+ - Die to self. Live for Christ. And then do what you want, and go where you want, for God’s glory.
+ - We take hold of Christ as his words take hold us.
+ - Plain horse sense ought to tell us that anything that makes no change in the man who professes it makes no difference to God either, and it is an easily observable fact that for countless numbers of persons the change from no-faith to faith makes no actual difference in the life.
+ - God tends to do his best work when the odds appear stacked against him.
+ - The kind of experience of humility and happiness that comes with gratitude tends to crowd out whatever is coarse, or ugly or mean.
+ - Inerrancy means the word of God always stands over us and we never stand over the word of God.
+ - Everything before Jesus is preface. Everything after Jesus is appendix. Jesus is the story.
+ - Sanctification is not by surrender, but by divinely enabled toil and effort.
+ - One of the signs that you are walking in the light is that you are honest about having walked in the darkness.
+ - The only thing more important than ministry is being ministered to.
+ - If there really is a perfect will of God we are meant to discover, in which we will find tremendous freedom and fulfillment, why does it seem that everyone looking for God’s will is in such bondage and confusion?
+ - Just about everybody in America likes Jesus, but few like him for who he truly is.
+ - Christianity loses its scriptural fidelity and internal power when it no longer affirms both sola fide and the necessity of obedience.
+ - As Christians living in changing times, we must keep three things open: our heads, our hearts, and our Bibles.
+ - Much of the impotence of American churches is tied to a profound ignorance and apathy about justification. Our people live in a fog of guilt. Or just as bad, they think being a better person is all God requires.
+ - Perhaps out inactivity is not so much waiting on God as it is an expression of the fear of man, the love of the praise of man, and disbelief in God’s providence.
+ - There is nothing gray about whether a follower of Christ should see 50 Shades of Grey. This is a black and white issue. Don’t go. Don’t watch it. Don’t read it. Don’t rent it.
+ - We can stop pleading with God to show us the future, and start living and obeying like we are confident that He holds the future.
+ - The man who attempts Christianity without the church shoots himself in the foot, shoots his children in the leg, and shoots his grandchildren in the heart.
+ - Try this New Year’s resolution: I won’t check my phone, my tablet, or my computer until I’ve first read a chapter in my Bible.
+ - If we truly long for revival, we will rejoice even when it starts at the church down the road.
+ - When busyness goes after joy, it goes after everyone’s joy.
+ - You will not find what you want in the world, only in the Father.
+ - When you share the gospel, you’re not calling people to a better way of life, you’re proclaiming to them eternal life.
+ - Before my secret meeting with the Pope I asked him to come wearing white if deep down he agreed with the Reformation. Pretty crazy.
+ - If we do not worship God, God will not be the lesser for it. But we will.
+ - Why should we think that we wouldn’t have a cross to carry? Are we somehow more deserving than our Lord?
+ - As the culture war rages on, Lord give us wisdom to see the difference between defending our rights and protesting our slights.
+ - Walking in the light means we pursue obedience and are honest about our remaining darkness.
+ - The best way to leave a legacy is to believe, teach, defend, and promote what is true.
+ - Obsessing over the future is not how God wants us to live, because showing us the future is not God’s way.
+ - The goal of a church is not to have a bigger building or budget but to see the word of God increase and disciples multiply.
+
+118 quotes

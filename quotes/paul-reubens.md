@@ -1,0 +1,39 @@
+ - I know you are, but what am I?
+ - The public may think I’m weird. They may think I’m crazy or anything that anyone wants to think about me. That’s all fine. As long as one of the things you’re not thinking about me is that I’m a pedophile. Because that’s not true.
+ - There are things about me you wouldn’t understand, things you couldn’t understand, things you shouldn’t understand.
+ - The first time I met Prince he invented me to his birthday party in Minneapolis. It was a costume party and I came as a beatnik – a beret and a charcoal goatee. He was dressed like an executioner. I talked to him for awhile and he didn’t know who I was, and when I told him he was real surprised.
+ - I’m the person with the final say on everything. I really love being in that position.
+ - I think there’s a danger that some people look at the success of my first movie as a fluke. So I want to make sure that my second film is an even bigger success. Then if I direct my third movie and it’s terrible, it’ll be okay.
+ - I wouldn’t sell my bike for all the money in the world. Not for a hundred million, trillion, billion dollars!
+ - I feel the only way I’m going to be successful in moving on is if I keep a separation.
+ - There were just things in Disney movies that probably were too scary for kids.
+ - I’d love to work with Francis Ford Coppola. I met Coppola on an airplane.
+ - I’m right-handed, and the police report said I was jerking off with my left hand. That would have been the end of the case right there, proof it couldn’t have been me.
+ - I’m fortunately not in a situation where someone owns me.
+ - We’re in a situation now where fewer and fewer small films get made. People want these big giant tentpole sort of things, and I don’t know, it’s getting harder and harder to make a small movie.
+ - I can sit in the room with the other writers and just keep saying no until there’s something I really like or until I come up with something. In that respect the proportion of what’s mine and what’s other people’s is controlled by me. It isn’t even fair to talk about.
+ - Part of what I do comes from the fact that I don’t know any jokes to tell. And when I do they’re really flat and don’t work.
+ - People read so much into what I do. It’s fascinating to me because some of it’s probably there, but I haven’t thought of it.
+ - I’ve always felt like a kid, and I still feel like a kid, and I’ve never had any problem tapping into my childhood, and my kid side.
+ - I think my entire career path was determined for me when I was 6 years old, watching reruns of ‘I Love Lucy’ on TV and thinking about making people laugh.
+ - I just feel in a lot of ways black people are so much looser and cooler. Just as a culture, it’s so much more real.
+ - I would love to be in Kansas.
+ - I was always in disguise. I’d wear masks or weird get-ups so you couldn’t recognize me. I was always afraid that if somebody caught on that it was me, I’d never work again.
+ - I’ve been super lucky in that I’ve either been in or helped create situations where I do what I want. I’m super lucky. I get to do what I want and create art and make people laugh, and it’s really fun.
+ - I usually go in ahead of time, like at a rehearsal, or a meeting, and tell them, “It may appear that I’m going to go haywire, but I’m not.” I always map out what I’m going to do. Still, a lot of it is improvised.
+ - I enjoy getting to be arty and quirky and weird and all the things that I don’t have that much choice with. You just sort of use what you got.
+ - I was looking for a last name that was a first name. Growing up, I knew a kid who was the most obnoxious kid I ever knew, and his last name was Herman.
+ - I’d love to do a talk show. But I’m too busy for it. It’s just too much work.
+ - I don’t really want to direct myself, but I’m certainly torn in that direction.
+ - The original suit was designed by a guy named Mr. Jay from Hollywood. But nowadays I’m having the suit duplicated. At this point I have about three good suits and about three really raggedy ones.
+ - I probably have become more infamous from two misdemeanors than probably anyone I could think of.
+ - I’ve always been very interested in ensemble work. One reason why I don’t go out and do a stand-up act is that I did it once and I found it unsatisfying. I don’t really like being out there by myself. I like reacting with other people.
+ - The public already knows about me more than I ever wanted it to know.
+ - I was looking to be pale, you know, like the kind of person who has that pigment in their skin where no matter what the weather is they have pink cheeks. I had a couple of friends like that. But it was all very instinctive in a way. I never really thought that much about it.
+ - In my experience I haven’t met too many uptight black people. I’m sure they’re out there. Like I’m some big authority and I’ve lived in the inner city and ghetto.
+ - I don’t think Bruce Willis can compete with me. I have a much better voice.
+ - It’s a lot easier to say you’re a comic than a performance artist.
+ - I have a deal with a company that’s going to do cards without the gum. I don’t like sugarless gum, and I don’t think it’s much better for you.
+ - I think the first time I was on The David Letterman Show, he didn’t quite know what to expect. I think people generally are just a little afraid.
+
+37 quotes

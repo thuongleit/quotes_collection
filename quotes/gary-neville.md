@@ -1,0 +1,40 @@
+ - I can’t stand Liverpool. I can’t stand the people. I can’t stand anything to do with them.
+ - While we’re living the dreams we have as children fade away’. Not if you support United!
+ - I have been a Manchester United fan all my life and fulfilled every dream I’ve ever had. I am disappointed that my playing days are at an end. However, it comes to us all and it’s knowing when that time is and for me that time is now.
+ - For sportsmen or women who want to be champions, the mind can be as important, if not more important, than any other part of the body.
+ - The best managers out there at the moment are Pep Guardiola and Jose Mourinho but they are at other clubs – Real Madrid and Barcelona.
+ - We don’t give in and we don’t stop. We are relentless and in the end we usually get to where we want to be.
+ - We’re at the top of the cliff and we can either fall off the edge or keep climbing.
+ - We always looked forward to playing Aston Villa to hear him mangle Ugo Ehiogu’s name. “Make sure you pick up Ehugu, Ehogy, whatever his name is.”
+ - It was like he was being controlled by a 10 year-old on a PlayStation.
+ - With good coaching, proper motivation and the right club structure with organic growth, you can achieve an awful lot in football.
+ - It will be a difficult couple of days. It’s difficult now and it will be difficult tomorrow.
+ - A collection of strong-minded individuals who have learned how to dismiss mistakes, disappointments and problems in their personal life make up a strong team. If the majority of the team have that then, as a unit, you are almost impossible to beat.
+ - I’d say Carrick has the qualities of a Scholes, Andrea Pirlo and Sergio Busquets.
+ - He went in with his shuds stowing.
+ - There have been times when I’ve reflected on my international career and just thought: ‘Well that was a massive waste of time.’ Sorry for sounding sour, but my best mate, David Beckham, got butchered after the World Cup in 1998, then my brother, Phil, after Euro 2000.
+ - We need to become more ruthless and critical in front of goal.
+ - I would have been about seven years old when the formative years of my competitive football education began. I was playing in the local leagues around Manchester, playing against lads from tough areas who had been taught they had to fight for everything.
+ - Playing for England was one long roller-coaster: some ups and downs, but also quite a few moments when you’re not really sure if you’re enjoying the ride.
+ - I developed a mechanism so that whatever mistakes I made, I would bounce straight back. Whatever was happening off the pitch, I could put it to one side and maintain my form. Call it mental resilience or a strong mind, but that is what we mean when we talk about experience in a football team.
+ - Paul Scholes is the best player I’ve ever played with. There’s talent in every part of his game.
+ - The trouble with the transfer window is it creates a window where transfers have to be done.
+ - The rest of the Spice Girls wanted to invite the entire Bayern Munich team because they reckoned they’d never known blokes to be on top for 90 minutes and still come second.
+ - As football gets more globalized, it’s probably more important than ever to have one or two players in your team who have grown up in the same streets or been to the same schools as the hard-core fans.
+ - In my 20 years in football, I was fortunate enough never to have experienced relegation. And while there is the pressure of expectations at the top of the league, at the bottom it comes in fear and trepidation, which is almost worse.
+ - Before games, the smell of burgers wafts down from the stands.
+ - If you don’t like someone, don’t shake their hand.
+ - One year’s poor form remains a blip but if it happens next year, you can say it’s a trend.
+ - I wouldn’t swap Paul Scholes for anybody. He is quite simply the most complete footballer I have ever played with. He is the best.
+ - There are lots of concerns facing English football but for me the major one is the way in which football clubs are run by owners, whether they are growing organically and sustainably and how that is being policed by the football authorities.
+ - It is one of my pet hates when I see players who have agents who do everything for them. They don’t know how to set up their own bank accounts, they don’t know what they are spending their money on and they can’t make their own decisions.
+ - In Henry they had a forward so elusive that he was almost unplayable at his peak.
+ - Paul Scholes. The best! Great player, person, friend!
+ - Ryan Giggs will go down as the most successful British footballer of all time and I cannot see anyone ever overtaking him. He’s on the brink of his 13th league title, after all.
+ - There are some agents who do a good job looking after players but there are others who stifle and mollycoddle them.
+ - There are only four trophies available to win at the start of every season and there will be some big teams this year who won’t win one at all.
+ - Nothing improves your confidence and brings a team together more than winning a cup.
+ - And I know what confidence medals can bring.
+ - Something interesting has happened over the last 10 years in the Premier League. Players who once would have been discarded as expensive and too old have become important parts of title-winning squads.
+
+38 quotes

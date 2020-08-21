@@ -1,0 +1,53 @@
+ - I’ve upped my standards. Now, up yours.
+ - Every child has a right to go to high school and end up with a third grade education.
+ - I am neither left wing nor right wing. I am middle-of-the-bird.
+ - If elected, I will win.
+ - It’s tough campaigning, kissing hands and shaking babies.
+ - Censorship does not interfere with the constitutional rights of every American to sit alone in a dark room in the nude and cuss.
+ - Only a cheap politician, greedy for political gain, would try to single out one individual for blame. The fault lies not with the individual but with the system, and that system is Richard Nixon.
+ - I must choose my words carefully in order to avoid any negative interpretation. Among politicians, this is a tactic known as lying.
+ - We must remember that as the centuries go by, time will pass.
+ - Worrying about the future is a thing of the past. I don’t think about it.
+ - I want to caucus in Iowa. I’ll caucus all over the state. I don’t caucus in California. You don’t caucus where you live. It doesn’t look good.
+ - I don’t need adult supervision.
+ - The No. 1 cause of forest fires is trees.
+ - As I’ve always said: The future lies ahead.
+ - Assuming either the Left Wing or the Right Wing gained control of the country, it would probably fly around in circles.
+ - Will I obliterate national debt? Sure, why not?
+ - I think we should just tip the government if it does a good job. Fifteen percent is the standard tip, isn’t it?
+ - In America, any boy can grow up to become president. Or, if he never grows up, vice president.
+ - The only thing we have to fear is fear itself-and possibly teh bogey man.
+ - All the problems we face in the United States today can be traced to an unenlightened immigration policy on the part of the American Indian.
+ - I like to pour my wines for people. I watch their eyes, I can see what they’ll like. Most people say they don’t like dry wine because they haven’t had a dry wine that’s clean and fruity, instead of a big, oaky thing.
+ - So I got into growing grapes, not realizing that there was a heck of a lot more to it than meets the eye.
+ - The last few years of my life have been a little like a long ride in a Poop de Ville with the bottom down.
+ - We’ve got to step up our conservation efforts before it’s too late. We’re not protecting our lands and natural resources. Take the Grand Canyon for example; I’m sure that at one time it was a beautiful piece of land, and just look at the way we’ve let it go.
+ - I came down to Orange because I sold the Smothers Brothers a song called ‘Chocolate,’ and that gave me enough money to move down here. I was washing windows down in Orange County when they called me up and said they wanted me to do their TV show.
+ - I’ve been on the campaign trail so long, some of my wine has turned to vinegar.
+ - I read an article that said one in five Americans thinks Elvis is alive. I want to find those morons and get them registered to vote for me.
+ - Wine is something to enjoy. We get sick and tired of people who pick it apart and talk about its ‘saucy nuances.’
+ - No Taxes. Let’s just tip the government 15% if they do a good job.
+ - In conclusion, you can see that there is a place for censors and we only wish that we could tell you where it is.
+ - Deep down, I happen to be very shallow.
+ - If you’re old enough to be arrested, you’re old enough to carry a gun.
+ - Now that my wine has been served in the White House, why not me? Who could talk to farmers better than I? Somebody even asked me the other day if I had anything in my platform about taxes. ‘Hell yes,’ I said. ‘Great state. But I wouldn’t want to live there.’
+ - It is true that all of the current presidential candidates once denied that they had any intention of running. But the fact that I am also a liar, doesn’t make me a candidate.
+ - Presidents tend to tinker, you know, and mess everything up.
+ - Having a comic in the White House will assure stability in foreign relations. The world will continue to respond to foreign initiatives by saying, ‘You must be joking.’
+ - I’m often asked why I travel around the country talking politics. Is it for humanitarian reasons, community spirit, or is it for the money, the limousines or the girls? The answers are: no, no, yes yes yes!
+ - You have to understand, I can’t do any jokes about Ross Perot, because the last thing I need right now is another credit check.
+ - Actually, my wine was served at the White House twice. Reagan must have been asleep when he ordered it.
+ - Yeah, I’m running for the White House again. Well, it’s not a run, really; it’s sort of a brisk walk.
+ - If Iowa is the ‘heart’ land, what part of the human body is Los Angeles?
+ - People come up to me in bars and on street corners and they say to me, ‘Hey, Paulsen, have you got any change?’
+ - I think I’d make a pretty good president, and they have a great pension plan.
+ - The federal government spends millions to run the Postal Service. I could lose your mail for half of that.
+ - Marijuana should be licensed and kept out of the hands of teenagers. It’s too good for them.
+ - Many of you have asked why it’s taken me so long to select a running mate. I have no intention of reaching into the political grab bag and grabbing any man to be my running mate. I’m going to reach in and grab a woman!
+ - Why should we tell kidnappers, murderers, and embezzlers their rights? If they don’t know their rights, they shouldn’t be in the business.
+ - I’d learned some things. I knew you weren’t supposed to hold a good wine at the top – the paper bag falls off.
+ - On the issue of inflation, I think I could solve it no matter how much money it took.
+ - The Clinton Administration has turned out to be a boon. I knew that he would be wonderful, I just knew it from the beginning. From Arkansas? Shoot.
+ - A gun is a necessity. Who knows if you’re walking down a street and you spot a moose?
+
+51 quotes

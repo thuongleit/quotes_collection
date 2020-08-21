@@ -1,0 +1,44 @@
+ - There is secrecy and betrayal but that’s more part and parcel of the kind of anguish that the people go through. And maybe that’s modes of survival, rather than modes of consciousness.
+ - I want the flashbacks to feel that once you’re there they have their own unity, their own kind of atmospheric sensibility; I want the reader to be transported. The novel is a big, complicated, unknowable thing before it’s written.
+ - The past, as you suggest, is absolutely present at all times and the present is born from the past. I wouldn’t want to suggest that the past determines the present.
+ - For sometimes you can’t help but crave some ruin in what you love.
+ - The truth, finally, is who can tell it.
+ - Imagination might not be limitless. It’s still tethered to the universe of what we know.
+ - A tale, like the universe, they tell us, expands ceaselessly each time you examine it, until there’s finally no telling exactly where it begins, or ends, or where it places you now.
+ - What if loving something means you should mostly feel frustrated and thwarted? And then a little ruined, too, by the pursuit? But you keep coming back for more?
+ - Do not discount the psychic warmth of the hive.
+ - They’re not parallel at all. They’re my concerns, but how they’re expressed particularly on the page is completely divorced from who I am in my street life.
+ - As for what’s the most challenging aspect of teaching, it’s convincing younger writers of the importance of reading widely and passionately.
+ - What hasty preparations we make for our future. Think of it: it seems almost tragic, the things we’re sure we ought to bring along. We pack too heavy with what we hope we’ll use, and too light of what we must. We thus go forth misladen, ill equipped for the dawn.
+ - It is ‘where we are’ that should make all the difference, whether we believe we belong there or not.
+ - I rarely talk about work with writers, and I love getting together with writers. I think writers are great to get together with, because we can talk about everything. I think that’s why I enjoy it. Writers tend to be pretty open-minded, and pretty profane and loose. They have fun minds.
+ - For if there is ever a moment when we are most vulnerable, it’s when we’re closest to the idea of the attained desire, and thus farthest from ourselves, which is when we’ll tread through any flame.
+ - We can skip through a lot of the stuff people might ask about the writing of the book, and so their comments always start well, well down into the nitty-gritty.
+ - For no matter the shadows of an age, the picture of a young couple in love, we are told, speaks most luminously of the future, as the span of that passion makes us believe we can overleap any walls, obliterate whatever obstacles.
+ - I’d always wanted to write something about the Korean War because of my heritage. My father lost his brother during the war, and I fictionalized that episode, which was told to me very briefly without much detail.
+ - Don’t sanctuaries become prisons, and vice versa, foremost in the mind?
+ - My family immigrated when I was 3, and our predecessors inhabited the Korean Peninsula for as long as can be recalled.
+ - I think that’s great – I just try not to be one of those people. I find the more I think about it, the less free I feel when I write and when I work.
+ - I really try to forget. I only look at my old works if there’s an interview and someone asks me about it. Otherwise, it’s not even in the rearview mirror.
+ - You can be affected by a person because of something particular they said or did but sometimes how a person was, a manner of being, that gets most deeply absorbed, and prompts you to revisit certain parts of your life with an enhanced perspective, flowing forward right up to now.
+ - To be honest, Im not that much of a reader of Korean fiction, since so little is translated.
+ - In this difficult era the most valuable commodity is the unfailing turn of the hours and how they retrieve for us the known harbor of yesterday.
+ - No place is perfect, but I admire Oahu for its offering of the tropical and the urban, and then its Asian-inflected culture and cuisines.
+ - I wanted to present a sweep and scope of larger events, and a grander backdrop, but most important was to set against that a very singular, real and modest people struggling with every day and human struggles.
+ - I don’t think that stuff is gone – I just don’t want to dwell on it. There’s a difference. As I said, I think we all have tendencies as writers, and I think we all have experience that we bring as readers to each project.
+ - All of my books really do look at that to degrees of difference. Technically, I do enjoy the flashback! But not just for informational material.
+ - I wanted to write about the Korean War, but I had no entry into it that made the kind of sense it needs to make for a novelist.
+ - Yeah, and the language the “we” has, and the character the “we” has. Because that was the part of the book that I didn’t plan out, but the part that I was most curious about as I was writing. You know what you’re doing, but you’re sometimes still sort of curious as you’re writing it.
+ - Before I had published anything, I still hung out with people who liked to write. None of us had published, so there was no talk about the business, and there was probably a lot more angsty talk back then. But these days maybe there are some more laments about the culture, but I would say no.
+ - It’s not that I wrote those details, but photos can give you the confidence that you have a real feel for the landscape. Then you can invent with a solid kind of faith, and recreate a feel and flavor of the time, and, one hopes, a tonality, a sense of that time having been lived by those characters.
+ - When I’m describing wartime activities or violence I don’t want to be too ornate, to prettify the picture. Once we trace them to the present, the prose becomes denser.
+ - For at some point, each of us will be asked to embody what we feel and know.
+ - I did feel a little afraid, as you say, the complete liberty and “elasticity” of it. But I found that I liked some of the things that it availed me of in terms of emotion and tonal stuff. I came to find it appealing.
+ - I think their pasts are treated with a voice that sees their role as those of innocents. That’s reflected in the past time sequences. They’re less “written.”
+ - It’s not that I don’t enjoy other people, but what I find with writers is this back and forth. And also, there’s no need to talk about work.
+ - So my first book I had no experience having written a book, but each book is a little snapshot of who you are at that moment, accrued all through time, so I accept that.
+ - Like most people, Im fascinated by characters who are completely flawed personalities, riven by anguish and doubt, and are psychologically suspect.
+ - Historical novels are about costumery. I think that’s the magic and mystery of fiction. I don’t want to write historical fiction but I do want the story to have the feel of history. There’s a difference.
+ - One of the things my friends would tell you is that I hang out with a lot of non-writers – just regular people like bankers and teachers, and I actually try to steer our talk away from my work when I get together with them.
+
+42 quotes

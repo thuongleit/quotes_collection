@@ -1,0 +1,32 @@
+ - The Initial Mystery that attends any journey is: how did the traveler reach his starting point in the first place?
+ - Women have no wilderness in them They are provident instead Content in the tight hot cell of their hearts To eat dusty bread.
+ - At midnight tears Run into your ears.
+ - I cannot believe that the inscrutable universe turns on an axis of suffering; surely the strange beauty of the world must somewhere rest on pure joy!
+ - O remember In your narrowing dark hours That more things move Than blood in the heart.
+ - A thousand kindnesses do not make up for a thousand blows.
+ - All art, in spite of the struggles of some critics to prove otherwise, is based on emotion and projects emotion.
+ - Perhaps this very instant is your time.
+ - I don’t like quintessential certitude.
+ - Stupidity always accompanies evil. Or evil, stupidity.
+ - Up from the bronze, I saw Water without a flaw Rush to its rest in air Reach to its rest, and fall.
+ - No more pronouncements on lousy verse. No more hidden competition. No more struggling not to be a square.
+ - The poem is always the last resort. In it the poet makes a world in little, and finds peace, even though, under complete focused emotion, the evocation be far more bitter than reality, or far more lovely.
+ - Poetry is often generations in advance of the thought of its time.
+ - But childhood prolonged, cannot remain a fairyland. It becomes a hell.
+ - The fact, and the intuition or logic about the fact, are severe coordinates in fiction. In the short story they must cross with hair-line precision.
+ - The measured blood beats out the year’s delay.
+ - It is through the acceptance of a variety of aethetic and intellectual points of view that a culture is given breadth and density.
+ - Innocence of heart and violence of feeling are necessary in any kind of superior achievement: The arts cannot exist without them.
+ - What we suffer, what we endure, what we muff, what we kill, what we miss, what we are guilty of, is done by us, as individuals, in private.
+ - It is almost impossible for the poetess, once laurelled, to take off the crown for good or to reject values and taste of those who tender it.
+ - Once form has been smashed, it has been smashed for good, and once a forbidden subject has been released, it has been released for good.
+ - The intellectual is a middle-class product; if he is not born into the class he must soon insert himself into it, in order to exist. He is the fine nervous flower of the bourgeoisie.
+ - Hate does not present many choices; if hate is your solution, you are fairly certain to hate all phemonena with equal joy and intensity, without troubling to drag into prominence any one feature from the loathsome whole.
+ - I have lost faith in universal panaceas – work is the one thing in which I really believe.
+ - Your work is carved out of agony as a statue is carved out of marble.
+ - True revolutions in art restore more than they destroy.
+ - I hope that one or two immortal lyrics will come out of all this tumbling around.
+ - Because language is the carrier of ideas, it is easy to believe that it should be very little else than such a carrier.
+ - I’ll lie here and learn How, over their ground, Trees make a long shadow And a light sound.
+
+30 quotes

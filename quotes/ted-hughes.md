@@ -1,0 +1,42 @@
+ - You are who you choose to be.
+ - Nobody knew the Iron Man had fallen. Night passed.
+ - The Iron Man came to the top of the cliff. How far had he walked? Nobody knows. Where did he come from? Nobody knows. How was he made? Nobody knows. Taller than a house the Iron Man stood at the top of the cliff, at the very brink, in the darkness.
+ - What happens in the heart, simply happens.
+ - Nobody wanted your dance, Nobody wanted your strange glitter, your floundering Drowning life and your effort to save yourself, Treading water, dancing the dark turmoil, Looking for something to give.
+ - What happened casually remains -.
+ - The wolf is living for the earth.
+ - You could become internationally famous – you’re Gemini, and according to antique authority have a literary talent, which of course your letters prove.
+ - He was his own leftover, the spat-out scrag. He was what his brain could make nothing of.
+ - He could not stand. It was not That he could not thrive, he was born With everything but the will – That can be deformed, just like a limb. Death was more interesting to him. Life could not get his attention.
+ - Where white is black and black is white, I won.
+ - There is no better way to know us Than as two wolves, come separately to a wood.
+ - The dreamer in her Had fallen in love with me and she did not know it. That moment the dreamer in me Fell in love with her and I knew it.
+ - The world rolls under the long thrust of his heel. Over the cage floor the horizons come.
+ - Applause is the beginning of abuse.
+ - So we found the end of our journey. So we stood, alive in the river of light, Among the creatures of light, creatures of light.
+ - I shall also take you forth and carve our names together in a yew tree, haloed with stars...
+ - The progress of any writer is marked by those moments when he manages to outwit his own inner police system.
+ - The real mystery is this strange need. Why can’t we just hide it and shut up? Why do we have to blab? Why do human beings need to confess?
+ - The world’s decay where the wind’s hands have passed, And my head, worn out with love, at rest In my hands, and my hands full of dust.
+ - The brassy wood-pigeons Bubble their colourful voices, and the sun Rises upon a world well-tried and old.
+ - Prose, narratives, etcetera, can carry healing. Poetry does it more intensely.
+ - With a sudden sharp hot stink of fox, It enters the dark hole of the head. The window is starless still; the clock ticks, The page is printed.
+ - Do as you like with me. I’m your parcel. I have only our address on me. Open me, or readdress me.
+ - Nothing has changed since I began. My eye has permitted no change. I am going to keep things like this.
+ - It took the whole of Creation To produce my foot, my each feather: Now I hold Creation in my foot. Or fly up, and revolve it all slowly – I kill where I please because it is all mine. There is no sophistry in my body: My manners are tearing off heads – The allotment of death.
+ - The deeps are cold: In that darkness camaraderie does not hold: Nothing touches but, clutching, devours.
+ - The Shell The sea fills my ear with sand and with fear. You may wash out the sand, but never the sound of the ghost of the sea that is haunting me.
+ - But who is stronger than death? Me, evidently .
+ - Fishing provides that connection with the whole living world. It gives you the opportunity of being totally immersed, turning back into yourself in a good way. A form of meditation, some form of communion with levels of yourself that are deeper than the ordinary self.
+ - Stilled legendary depth: It was as deep as England. It held Pike too immense to stir, so immense and old That past nightfall I dared not cast.
+ - The inmost spirit of poetry, in other words, is at bottom, in every recorded case, the voice of pain – and the physical body, so to speak, of poetry, is the treatment by which the poet tries to reconcile that pain with the world.
+ - What’s writing really about? It’s about trying to take fuller possession of the reality of your life.
+ - And as if reporting some felony to the police they let you know you were not John Donne.
+ - I sit in the top of the wood, my eyes closed. Inaction, no falsifying dream Between my hooked head and hooked feet: Or in sleep rehearse perfect kills and eat.
+ - It took the whole of Creation to produce my foot, my each feather: now I hold Creation in my foot.
+ - The gash in its throat was shocking, but not pathetic.
+ - The Bush administration doesn’t particularly like public participation. It makes them look bad.
+ - As Popa penetrates deeper into his life, with book after book, it begins to look like a Universe passing through a Universe. It is one of the most exciting things in modern poetry, to watch this journey being made.
+ - I think it was Milosz, the Polish poet, who when he lay in a doorway and watched the bullets lifting the cobbles out of the street beside him realised that most poetry is not equipped for life in a world where people actually die. But some is.
+
+40 quotes

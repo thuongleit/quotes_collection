@@ -1,0 +1,26 @@
+ - Don’t put the key to your happiness in someone else’s pocket.
+ - Remember, ‘Even this will pass away.’
+ - Children are not vessels to be filled but lamps to be lit.
+ - What we have is a gift from Him. What we do with what we have is our gift to him.
+ - He who submits to discipline is a DISCIPLE.
+ - The spirit of advaita is not to keep away from anything, but to keep in tune with everything.
+ - Love is a consistent passion to give, not a meek persistent hope to receive. The only demand of life is the privilege to love all.
+ - To love and to be loved is the greatest happiness.
+ - The real guru is the pure intellect within; and the purified, deeply aspiring mind is the disciple.
+ - The future is carved out of the present moment. Tomorrow’s harvest depends upon today’s ploughing and sowing.
+ - Happiness depends on what you can give, not on what you can get.
+ - Tranquility is the Truth, Truth is beauty beauty is happiness and bliss is divine.
+ - By unswerving devotion to Me, a man crosses over three Gunas – I am the Abode of Brahman, Eternal and Immutable, of everlasting Dharma and Absolute Bliss .
+ - Expose yourself to aloneness. When a person is left alone, he starts thinking of higher reality – about death, life, soul, God and the mystery of all.
+ - As the thoughts so the mind. If thoughts are good, mind is good. If thoughts are bad, the mind is called bad.
+ - But the self-controlled man, moving among objects, with his senses under restraint, and free from both attraction and repulsion, attains peace.
+ - Man can change his destiny-not by wishing for it, but by working for it.
+ - The really poor man is not the one who lacks money, but the one who lacks the joy of the heart.
+ - Silently hear everyone. Accept what is good. Reject and forget what is not. This is intelligent living.
+ - The tragedy of human history is decreasing happiness in the midst of increasing comforts.
+ - Taste goodness before you recommend it.
+ - Never complain, about the number of hours you have put in, to do a job, Your nobility must estimate how much of you Was put into each hour of your daily work.
+ - The results of action depends upon the very quality of the action.
+ - In all adversities there is always in its depth, a treasure of spiritual blessings secretly hidden.
+
+24 quotes

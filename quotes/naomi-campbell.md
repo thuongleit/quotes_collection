@@ -1,0 +1,47 @@
+ - If you have to talk to more than three people about the same problem, you don’t want help, you want attention.
+ - Nothing’s ever come easy to me and nothing ever will and that’s okay. I’m used to that. I go with the challenges. I roll with the punches.
+ - I’ve never had a fear of traveling and going to a new place. I adapt.
+ - I’m not going to wallow in self-pity and not live my life. There are always going to be some falls in life for everybody, no matter what career you have. You have to roll with the punches and keep going.
+ - Look, you have to make mistakes. That’s how you learn and that’s how the world works.
+ - I’m determined, and I’m passionate and driven about whatever I commit myself to do. If I don’t know something, I’m going to ask, and I’ve got no problems in asking questions. I never have. People ask me, “Are you nervous when you go on the runway? You don’t look it.” Yes, I am.
+ - Check your lipstick before you come and talk to me.
+ - In charity, every little bit works. You can’t change the world. You can’t do everything. But you sure try to bring awareness and do as much as you can.
+ - I dream of a world liberated of all diseases. Ignorance also upsets me a lot. How can one calmly look at the pictures from Rwanda and not instantly want to take action and try to ease the suffering?
+ - I’ve been doing my job well for 17 years. People must see something in me. Otherwise, I’d be over and out.
+ - I look at modeling as something I’m doing for black people in general.
+ - What makes a person is the ability to look at themselves and deal with their own lives.
+ - I loved watching so many of the great designers I’ve worked with do what they do. That’s why I’m still loyal to the designers that I’ve known since I was 16.
+ - I do want someone, need someone. You’re right. And, when I’m with you, I feel like I’m a better person. I feel happier. Less alone, less lonely. But it’s not as simple as that, is it? Being with someone?
+ - I’m not angry. And I don’t like the thing of the ‘angry black woman,’ either.
+ - I don’t get depressed. When I feel an attack, I withdraw. I disappear, I replenish, and then I come back.
+ - You see all races in music, and in dance and theatre, so why can’t we see it in fashion?
+ - I’m happy with the way I did my career, I wouldn’t change it in a million years. I got to do the real grafting and learning from real models when I was younger – how to open up a jacket, walk, and such.
+ - I live my life day by day, and that’s how I continue to live it.
+ - I’ve never known my real father, and I’ve never looked for a father figure in a boyfriend, but I suppose I have looked for real father figures in my life – and I’ve acquired more than one. I certainly couldn’t ask for better ones. I love them enormously – and they know that.
+ - Feeling passionate about something doesn’t mean you have to be angry.
+ - After Versace was murdered, the first person to call me was Mandela.
+ - I don’t work out as much as I should, but I do believe that it’s a healthy mind as well as a healthy body that keeps me fit, sound and calm.
+ - Everyone has a temper. A temper is an emotion.
+ - The word reality scared me. I just looked at reality as everybody follows me around with a camera, and I’m not that kind of person. I fought for my privacy in England. And I didn’t see another way it could be done.
+ - I love mentoring young girls. I’ve always been like that.
+ - The worst was when my skirt fell down to my ankles, but I had on thick tights underneath.
+ - I don’t think I was born beautiful. I just think I was born me.
+ - I was always told to avoid being famous just for being famous. That’s something that has always stuck in my mind. I like to work. It helps if you like what you do.
+ - I don’t worry about a number. I’m fine with aging.
+ - If I’m wearing a flower dress, why do I have to wear underwear?
+ - I’m not set on a pedestal where I think I’m too high and mighty.
+ - Gluttony? I could eat and eat and eat and eat and eat. I’d love to pig out on gluten. I mean, I’m allergic to gluten, but I really want to do that. I want to sit in bed one day and just pig out.
+ - I’ve never made an excuse of not knowing my father, because I’ve had great people in my life.
+ - I trust pictures, but no pictures made in my world – because I know what goes on.
+ - I think it’s always good to learn a craft from scratch the real way, so that you’ve learned it from the basis, the raw bones, and then you have that to fall back on. I personally wouldn’t want it any other way.
+ - I have no regrets. I’ve got my health.
+ - I cannot drink or do anything that changes the mind.
+ - I’ve always been very shy of doing television. I’ve always said ‘no.’ Not to be disrespectful to anyone – I didn’t want to say ‘yes’ and then let people down.
+ - No one should ever be ashamed of going to meetings. It’s healthy, it’s therapeutic and it’s the right way to live.
+ - I make a lot of money, but I don’t want to talk about that.
+ - When I wanted to change the concept of what I was doing, I needed to be more public because it involved more people to collaborate. And I’m doing television now. I have to be honest, I was very afraid to do TV. I said no for 10 years.
+ - I don’t mind flying. I always pass out before the plane leaves the ground.
+ - I don’t like workouts that make you bulky.
+ - I was excited to explore and see the world. I’d been traveling since I was 6 months old, so I was never fearful of getting on a plane and going somewhere – even America.
+
+45 quotes

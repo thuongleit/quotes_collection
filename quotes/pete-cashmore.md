@@ -1,0 +1,30 @@
+ - We are really competing against ourselves, we have no control over how other people perform.
+ - Privacy is dead, and social media holds the smoking gun.
+ - We’re living at a time when attention is the new currency.
+ - We’re living at a time when attention is the new currency. Those who insert themselves into as many channels as possible look set to capture the most value.
+ - Creating the future is incredibly exciting. When you talk about ideas and creativity, it’s really about having that vision in your mind of how the world could be better, of how it could be a brighter place.
+ - Talk to people no one else is talking to.
+ - Execution really shapes whether your company takes off or not. A lot of people start out with an exciting thing and they want to take over the world, but really the people who do take over the world have a good plan of how to get there and the steps along the way.
+ - We’re living at a time when attention is the new currency: With hundreds of TV channels, billions of Web sites, podcasts, radio shows, music downloads and social networking, our attention is more fragmented than ever before.
+ - I find it best to dive right in and learn the hard way.
+ - We are all more connected than ever. That connectivity builds tolerance.
+ - The more people you know from different backgrounds, the more tolerant you feel of different ways of living, and the closer you feel to the issues that those people have.
+ - I don’t have any personal challenges about throwing away the past. If you’re not changing, you’re giving others a chance to catch up.
+ - Those who insert themselves into as many channels as possible look set to capture the most value. They’ll be the richest, the most successful, the most connected, capable and influential among us. We’re all publishers now, and the more we publish, the more valuable connections we’ll make.
+ - We’re living at a time when attention is the new currency We’re all publishers now, and the more we publish, the more valuable connections we’ll make. Twitter, Facebook, Flickr, Foursquare, Fitbit and the SenseCam give us a simple choice: participate or fade into a lonely obscurity.
+ - Execution really shapes whether your company takes off or not.
+ - The talent that has to be learned is finding out what someone’s passion is and setting them up to realize that. You don’t get the best work from people if you’re guiding them versus them guiding themselves.
+ - I kept my age quiet for a good few years. I didn’t see it as a positive. I worked remotely, so I just didn’t tell people.
+ - Always, in your career and personal life, be evolving with technology.
+ - You just want to be judged against everyone fairly.
+ - My dad is good at sticking with stuff and he has a strong work ethic, which is imbued in me. Growing up, he would constantly ask what I was doing and was I achieving anything.
+ - I don’t have a TV or watch movies. I don’t like to be broadcast to, I want to participate.
+ - If it doesn’t come through the Internet, it’s not really compelling to me.
+ - We have this revolution that’s happening in our lifetime. The Information Revolution is changing absolutely every industry and every part of life and society and behavior.
+ - What I’m interested in are tools that can assist people to do the things they’re really good at.
+ - You have a responsibility when you have a large community.
+ - Now, two things happen. One is, people know people, whether that’s on Facebook or Twitter. They feel closer to the event. Secondly, people see other people doing something about it.
+ - That’s really been my passion: to communicate to a broad audience why the technology matters for you.
+ - I think you’re going to see tech bringing efficiencies to businesses that aren’t pure tech.
+
+28 quotes

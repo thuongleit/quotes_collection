@@ -1,0 +1,29 @@
+ - Oh mortal man, is there anything you cannot be made to believe?
+ - I am proud to be known to the world as the founder of the Illuminati.
+ - By establishing reading societies, and subscription libraries, and taking these under our direction, and supplying them through our labors, we may turn the public mind which way we will.
+ - We must win the common people in every corner. This will be obtained chiefly by means of the schools, and by open, hearty behavior, show, condescension, popularity, and toleration of their prejudices, which we shall at leisure root out and dispel.
+ - If a writer publishes any thing that attracts notice, and is in itself just, but does not accord with our plan, we must endeavour to win him over, or decry him.
+ - Of all the means I know to lead men, the most effectual is a concealed mystery.
+ - A Literary Society is the most proper form for the introduction of our Order into any state where we are yet strangers.
+ - The hankering of the mind is irresistible.
+ - It is necessary to gain the common people to our order. The best means to that end is influence in the schools.
+ - The head of every family will be what Abraham was, the patriarch, the priest and the unlettered lord of his family, and Reason will be the code of laws to all mankind.
+ - Who would imagine that I was to be the founder of a new religion.
+ - The human race will then become one family, and the world will be the dwelling of Rational Men.
+ - For the Order wishes to be secret and to work in silence; for thus it is better secured from the oppression of the ruling powers, and because this secrecy gives a greater zest to the whole.
+ - This is the great object held out by this association; and the means of attaining it is illumination, enlightening the understanding by the sun of reason which will dispell the clouds of superstition and of prejudice.
+ - Salvation does not lie where strong thrones are defended by swords, where the smoke of censers ascend to heaven or where thousands of strong men pace the rich fields of harvest. The revolution which is about to break will be sterile if it is not complete.
+ - I did not bring Deism into Bavaria more than into Rome. I found it here, in great vigour, more abounding than in any of the neighboring Protestant States. I am proud to be known to the world as the founder of the Illuminati.
+ - And of all illumination which human reason can give, none is comparable to the discovery of what we are, our nature, our obligations, what happiness we are capable of, and what are the means of attaining it.
+ - In another situation, and in an active station in life, I should have been keenly occupied, and the founding of an order would have never come into my head.
+ - The tenor of my life has been the opposite of everything that is vile, and no man can lay any such thing to my charge.
+ - When man lives under government, he is fallen, his worth is gone, and his nature tarnished.
+ - It was the full conviction of this, and of what could be done, if every man were placed in the office for which he was fitted by nature and a proper education, which first suggested to me the plan of Illumination.
+ - My general plan is good, though in the detail there may be faults.
+ - Illuminate the opposition.
+ - G is Grace, the Flaming Star is the Torch of Reason. Those who possess this knowledge are indeed Illuminati.
+ - We see with what keenness and zeal the frivolous business of Freemasons is conducted, by persons knit together by the secrecy of their union.
+ - Let this circumstance of our constitution therefore be directed to this noble purpose, and then all the objections urged against it by jealous tyranny and affrighted superstition will vanish.
+ - But alas, they are all sadly deficient, because they leave us under the domination of political and religious prejudices; and they are as inefficient as the sleepy dose of an ordinary sermon.
+
+27 quotes

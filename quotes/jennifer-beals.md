@@ -1,0 +1,38 @@
+ - Just when you think you know something, it gets turned around and challenged in some way. But those changes are welcome because you end up learning more.
+ - Love is the most dangerous thing in the world.
+ - I’m interested when people will stand up for themselves. I’m always interested in that moment when someone decides it’s not good enough, and even though it’s painful, they’re willing to make a change.
+ - Giving feels good. It is a form of healing. Not just for you as an individual, but for everyone.
+ - I’m not always really calm, but I try not to get taken away by things that are incredibly transitory.
+ - When I was younger, I enjoyed being strong, and I loved it when my heart was very strong, but I think it was also about submitting to the cultural idea that if you’re a 22-year-old woman, you have to look a certain way. I’m not into that anymore. But I do appreciate it when my clothes fit.
+ - Love is the greatest light, the brightest torch, and will always be the greatest instrument of change.
+ - The L Word reaffirmed that good storytelling has a way of creating community. Fans everywhere have been connecting with each other online, in public and at home-viewing parties.
+ - My role models are Bettie Page and Mia Kirshner. Every day when Mia comes to work she raises the bar for us all.
+ - Compassion takes imagination.
+ - You can make yourself feel better about yourself if you project your shadow side, if you project your own potential for evil onto someone else. By annihilating them and, therefore, your shadow, you bring yourself into some state of purity or reformation.
+ - The ways in which we are similar are far more numerous than the ways in which we are different.
+ - There is this incredible, indelible community that has sprung up around the show, a community that gathers in homes and clubs, from Los Angeles to Topeka, Kansas and around the world. A community that, in some places, meets quietly in a lesbian bar that doesn’t even exist depending on whom you ask.
+ - My husband does so many romantic things for me, it’s absurd.
+ - At any given moment in your life, you have the choice between love and fear. And that’s a choice you make. You make the choice of how you react to events.
+ - Love is large; love defies limits. People talk about the sanctity of love – love is by definition sacred. Not some love between some people, but all love between all people.
+ - For me, running is about freedom. I find that the freer I feel, the faster I am.
+ - Even when I think about the fact that energy can become matter and matter can become energy, I have a very strong feeling that there’s something afterward.
+ - I’m just talking specifically of women’s friendships. If two women go to a bar and they are fighting over men, it makes it much easier for the men. If two women are very close and they act as it makes it very difficult for the men to pull one over on anybody.
+ - It’s been perfect. I can still ride a subway and work with great people. I can’t imagine being Julia Roberts. I don’t have the fortitude to withstand that kind of attention.
+ - Oh, this absolute loneliness and the game – loving to play the game, loving to go and tell stories to men that certainly weren’t true, just for the sport of it, just to see how they would react.
+ - Whether it’s that moment in acting when everything is suspended and you’re not yourself, or breaking through the veil of a very long run or swim, or hearing my daughter laugh they are all pathways to what I think God must be.
+ - Of course, the surest way to free yourself from an existential crisis is through comedy.
+ - What is their potential for evil; what is their potential for wickedness? That’s the only time that those characters become interesting to watch.
+ - It doesn’t seem as if there’s that much of a difference between a big production and a little production, other than you have a smaller space in which to get dressed and you have a shorter waiting time.
+ - I think that the two of them have been doing this for a really long time and it is more like sport. Yes, they would love to find a lasting relationship, but it’s not likely to happen the way they are going about it.
+ - When you have to play a character that seems to be a relatively decent person and seems to be like yourself, I think the trick in that kind of character, so that you don’t become a cliche, is to find where their weaknesses are.
+ - The love scenes that worked, regardless of the director, were the ones where the actors weren’t fearful. When somebody was fearful, you could see it right away. It takes you out of the story, and that’s to be avoided at all costs.
+ - It became very clear to the director that it would be foolish not to use our friendship. I had tried to talk to him about it because all the relationships in the film are so, not negative, but antagonistic. There’s not a lot of love going around.
+ - I think for me, when I’m looking at a script I really try to consider what experience am I embarking upon, because for me it’s really about the experience.
+ - Oftentimes what happens is that the writer understands one character, but they don’t understand the other one, and the other one ends up not being written as well.
+ - I think the central metaphor of the movie is this notion of what the advertising industry does. In order to make someone want to buy something, they first have to make them feel bad about who they are in order to sell them that thing which will make them whole again, and happy again.
+ - I’ve had some of the best craft services on independent movies, actually, because they get more creative, generally, with a smaller budget. The work is still the same. I didn’t really notice the difference other than I was getting dressed behind a curtain, basically.
+ - I knew there was something I had to do yesterday. I couldn’t remember what it is. I can’t figure it out. I know it’s a holiday. I know I don’t have a meeting. It’s very confusing.
+ - I said, wouldn’t it be nice, instead of having these women fight with each other over men, which seems to be more of a cliche, wouldn’t it be wonderful if they were the true comrades and it took these men much more time to infiltrate their friendships.
+ - By annihilating somebody else in whatever way, then that person feels that they also have the ability to, then, restore the person.
+
+36 quotes

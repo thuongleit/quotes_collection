@@ -1,0 +1,502 @@
+ - I am rooted, but I flow.
+ - You cannot find peace by avoiding life.
+ - No need to hurry. No need to sparkle. No need to be anybody but oneself.
+ - Books are the mirrors of the soul.
+ - For most of history, Anonymous was a woman.
+ - Lock up your libraries if you like; but there is no gate, no lock, no bolt that you can set upon the freedom of my mind.
+ - Growing up is losing some illusions, in order to acquire others.
+ - Arrange whatever pieces come your way.
+ - When you consider things like the stars, our affairs don't seem to matter very much, do they?
+ - I see you everywhere, in the stars, in the river, to me you’re everything that exists; the reality of everything.
+ - A light here required a shadow there.
+ - Every secret of a writer’s soul, every experience of his life, every quality of his mind, is written large in his works.
+ - Blame it or praise it, there is no denying the wild horse in us.
+ - Literature is strewn with the wreckage of those who have minded beyond reason the opinion of others.
+ - I meant to write about death, only life came breaking in as usual.
+ - Writing is like sex. First you do it for love, then you do it for your friends, and then you do it for money.
+ - What does the brain matter compared with the heart?
+ - Thinking is my fighting.
+ - Love, the poet said, is woman's whole existence.
+ - Second hand books are wild books, homeless books; they have come together in vast flocks of variegated feather, and have a charm which the domesticated volumes of the library lack.
+ - If you do not tell the truth about yourself you cannot tell it about other people.
+ - I have a deeply hidden and inarticulate desire for something beyond the daily life.
+ - Just in case you ever foolishly forget; I’m never not thinking of you.
+ - The eyes of others our prisons; their thoughts our cages.
+ - One cannot think well, love well, sleep well, if one has not dined well.
+ - It’s my choice, to choose how to live my life.
+ - My brain hums with scraps of poetry and madness.
+ - As a woman I have no country. As a woman my country is the whole world.
+ - Distorted realities have always been my cup of tea.
+ - Language is wine upon the lips.
+ - The way to write well is to live intensely.
+ - Without self awareness we are as babies in the cradles.
+ - I thought how unpleasant it is to be locked out; and I thought how it is worse, perhaps, to be locked in.
+ - Romantic Love is only an Illusion. A story one makes up in One’s Mind about Another Person.
+ - To be silent; to be alone. All the being and the doing, expansive, glittering, vocal, evaporated; and one shrunk, with a sense of solemnity, to being oneself, a wedge-shaped core of darkness, something invisible to others.
+ - I’m terrified of passive acquiescence. I live in intensity.
+ - I am in the mood to dissolve in the sky.
+ - The streets of London have their map, but our passions are uncharted. What are you going to meet if you turn this corner?
+ - I ransack public libraries, and find them full of sunk treasure.
+ - How much better is silence; the coffee cup, the table. How much better to sit by myself like the solitary sea-bird that opens its wings on the stake. Let me sit here for ever with bare things, this coffee cup, this knife, this fork, things in themselves, myself being myself.
+ - Still, the sun was hot. Still, one got over things. Still, life had a way of adding day to day.
+ - Mrs Dalloway is always giving parties to cover the silence.
+ - People ask me why I write. I write to find out what I know.
+ - I am made and remade continually. Different people draw different words from me.
+ - Fear no more, says the heart...
+ - She dares me to pour myself out like a living waterfall. She dares me to enter the soul that is more than my own; she extinguishes fear in mere seconds. She lets light come through.
+ - My own brain is to me the most unaccountable of machinery – always buzzing, humming, soaring roaring diving, and then buried in mud. And why? What’s this passion for?
+ - Consolation for those moments when you can’t tell whether you’re the divinest genius or the greatest fool in the world.
+ - Though we see the same world, we see it through different eyes. Any help we can give you must be different from that you can give yourselves, and perhaps the value of that help may lie in the fact of that difference.
+ - Illness is a part of every human being’s experience. It enhances our perceptions and reduces self-consciousness. It is the great confessional; things are said, truths are blurted out which health conceals.
+ - Mrs. Dalloway said she would buy the flowers herself.
+ - A woman must have money and a room of her own if she is to write fiction.
+ - A self that goes on changing is a self that goes on living.
+ - The future is dark, which is the best thing the future can be, I think.
+ - Be truthful, and the result is bound to be amazingly interesting.
+ - Writing is a divine art, and the more I write and read the more I love it.
+ - One ought to sink to the bottom of the sea, probably, and live alone with one’s words.
+ - In solitude we give passionate attention to our lives, to our memories, to the details around us.
+ - Friendships, even the best of them, are frail things. One drifts apart.
+ - Outside the trees dragged their leaves like nets through the depths of the air; the sound of water was in the room and through the waves came the voices of birds singing.
+ - The weather varies between heavy fog and pale sunshine; My thoughts follow the exact same process.
+ - The man who is aware of himself is henceforward independent; and he is never bored, and life is only too short, and he is steeped through and through with a profound yet temperate happiness.
+ - I like to have space to spread my mind out in.
+ - Why, if it was an illusion, not praise the catastrophe, whatever it was, that destroyed illusion and put truth in it’s place?
+ - All extremes of feeling are allied with madness.
+ - A feminist is any woman who tells the truth about her life.
+ - To be nothing – is that not, after all, the most satisfactory fact in the whole world?
+ - I will not be “famous,” “great.” I will go on adventuring, changing, opening my mind and my eyes, refusing to be stamped and stereotyped. The thing is to free one’s self: to let it find its dimensions, not be impeded.
+ - As long as she thinks of a man, nobody objects to a woman thinking.
+ - The real novelist, the perfectly simple human being, could go on, indefinitely imaging.
+ - Once you begin to take yourself seriously as a leader or as a follower, as a modern or as a conservative, then you become a self-conscious, biting, and scratching little animal whose work is not of the slightest value or importance to anybody.
+ - It is far harder to kill a phantom than a reality.
+ - I am reading six books at once, the only way of reading; since, as you will agree, one book is only a single unaccompanied note, and to get the full sound, one needs ten others at the same time.
+ - I can only note that the past is beautiful because one never realises an emotion at the time. It expands later, and thus we don’t have complete emotions about the present, only about the past.
+ - So long as you write what you wish to write, that is all that matters; and whether it matters for ages or only for hours, nobody can say.
+ - Sleep, that deplorable curtailment of the joy of life.
+ - But why do I notice everything? She thought. Why must I think? She did not want to think. She wanted to force her mind to become a blank and lie back, and accept quietly, tolerantly, whatever came.
+ - There is a sadness at the back of life which some people do not attempt to mitigate. Entirely aware of their own standing in the shadow, and yet alive to every tremor and gleam of existence, there they endure.
+ - Life is not a series of gig lamps symmetrically arranged; life is a luminous halo, a semi-transparent envelope surrounding us from the beginning of consciousness to the end.
+ - Literature is no one’s private ground, literature is common ground; let us trespass freely and fearlessly and find our own way for ourselves.
+ - Fear no more, says the heart, committing its burden to some sea, which sighs collectively for all sorrows, and renews, begins, collects, lets fall.
+ - But how entirely I live in my imagination; how completely depend upon spurts of thought, coming as I walk, as I sit; things churning up in my mind and so making a perpetual pageant, which is to be my happiness.
+ - They say the sky is the same everywhere. Travellers, the shipwrecked, exiles, and the dying draw comfort from the thought.
+ - How remorseless life is!
+ - The beauty of the world, which is so soon to perish, has two edges, one of laughter, one of anguish, cutting the heart asunder.
+ - What a lark! What a plunge!
+ - I detest the masculine point of view. I am bored by his heroism, virtue, and honour. I think the best these men can do is not talk about themselves anymore.
+ - Odd how the creative power at once brings the whole universe to order.
+ - I like the unreality of your mind; the whole thing is very splendid and voluptuous and absurd.
+ - Lord, how tired one gets of one’s own writing.
+ - It’s not catastrophes, murders, deaths, diseases, that age and kill us; it’s the way people look and laugh, and run up the steps of omnibuses.
+ - Like a ghostly roll of drums remorselessly beat the measure of life.
+ - All women together ought to let flowers fall upon the tomb of Aphra Behn, for it was she who earned them the right to speak their minds.
+ - Art is not a copy of the real world; one of the damn things is enough.
+ - Sometimes I think heaven must be one continuous unexhausted reading.
+ - In any case life is but a procession of shadows, and God knows why it is that we embrace them so eagerly, and see them depart with such anguish, being shadows.
+ - Once conform, once do what other people do because they do it, and a lethargy steals over all the finer nerves and faculties of the soul. She becomes all outer show and inward emptiness; dull, callous, and indifferent.
+ - The immense success of our life is, I think, that our treasure is hid away; or rather in such common things that nothing can touch it.
+ - I like people to be unhappy because I like them to have souls.
+ - I will go down with my colors flying.
+ - Melancholy were the sounds on a winter’s night.
+ - And now more than anything I want beautiful prose. I relish it more and more exquisitely.
+ - First a warning, musical; then the hour, irrevocable. The leaden circles dissolved in the air.
+ - For pleasure has no relish unless we share it.
+ - They can because they think they can.
+ - The mind is the most capricious of insects – flitting, fluttering.
+ - Women and fiction remain, so far as I am concerned, unsolved problems.
+ - Orlando naturally loved solitary places, vast views, and to feel himself for ever and ever and ever alone.
+ - Once you fall, Septimus repeated to himself, human nature is on you. Holmes and Bradshaw are on you. They scour the desert. They fly screaming into the wilderness. The rack and the thumbscrew are applied. Human nature is remorseless.
+ - Life without illusion is a ghostly affair.
+ - The artist after all is a solitary being.
+ - Did it matter then, she asked herself, walking towards Bond Street, did it matter that she must inevitably cease completely? All this must go on without her; did she resent it; or did it not become consoling to believe that death ended absolutely?
+ - There is the strange power we have of changing facts by the force of the imagination.
+ - My mind works in idleness. To do nothing is often my most profitable way.
+ - Yes, she thought, laying down her brush in extreme fatigues, I have had my vision.
+ - It would have been impossible, completely and entirely, for any woman to have written the plays of Shakespeare in the age of Shakespeare.
+ - But I don’t think of the future, or the past, I feast on the moment. This is the secret of happiness, but only reached now in middle age.
+ - He thought her beautiful, believed her impeccably wise; dreamed of her, wrote poems to her, which, ignoring the subject, she corrected in red ink.
+ - Madness is terrific I can assure you, and not to be sniffed at; and in its lava I still find most of the things I write about. It shoots out of one everything shaped, final, not in mere driblets, as sanity does.
+ - Middlemarch, the magnificent book which with all its imperfections is one of the few English novels for grown-up people.
+ - The very stone one kicks with one’s boot will outlast Shakespeare.
+ - And all the lives we ever lived and all the lives to be are full of trees and changing leaves.
+ - What a comfort is friendship in this world.
+ - And yet, the only exciting life is the imaginary one.
+ - I always had the deepest affection for people who carried sublime tears in their silences.
+ - Truth had run through my fingers. Every drop had escaped.
+ - We can best help you to prevent war not by repeating your words and following your methods but by finding new words and creating new methods.
+ - For now she need not think of anybody. She could be herself, by herself. And that was what now she often felt the need of – to think; well not even to think. To be silent; to be alone.
+ - To enjoy freedom we have to control ourselves.
+ - Peace was the third emotion. Love. Hate. Peace. Three emotions made the ply of human life.
+ - She thought there were no Gods; no one was to blame; and so she evolved this atheist’s religion of doing good for the sake of goodness.
+ - There was a day when I liked writing letters – it has gone. Unfortunately the passion for getting them remains.
+ - Oh, I am in love with life!
+ - No, I’m not clever. I’ve always cared more for people than for ideas.
+ - Vain trifles as they seem, clothes have, they say, more important offices than to merely keep us warm. They change our view of the world and the world’s view of us.
+ - Love had a thousand shapes.
+ - I think writing, my writing, is a species of mediumship. I become the person.
+ - Life stand still here.
+ - For it would seem – her case proved it – that we write, not with the fingers, but with the whole person. The nerve which controls the pen winds itself about every fibre of our being, threads the heart, pierces the liver.
+ - Unless you catch ideas on the wing and nail them down, you will soon cease to have any.
+ - Novels so often provide an anodyne and not an antidote, glide one into torpid slumbers instead of rousing one with a burning brand.
+ - Clothes are but a symbol of something hid deep beneath.
+ - The depths of the sea are only water after all.
+ - My mind turned by anxiety, or other cause, from its scrutiny of blank paper, is like a lost child–wandering the house, sitting on the bottom step to cry.
+ - One of the signs of passing youth is the birth of a sense of fellowship with other human beings as we take our place among them.
+ - Moments like this are buds on the tree of life. Flowers of darkness they are.
+ - Soup is cuisines kindest course.
+ - On or about December 1910, human character changed.
+ - Illusions are to the soul what atmosphere is to the earth.
+ - They went in and out of each other’s minds without any effort.
+ - By hook or by crook, I hope that you will possess yourselves of money enough to travel and to idle, to contemplate the future or the past of the world, to dream over books and loiter at street corners and let the line of thought dip deep into the stream.
+ - I feel all shadows of the universe multiplied deep inside my skin.
+ - I begin to long for some little language such as lovers use, broken words, inarticulate words, like the shuffling of feet on pavement.
+ - Do not move, do not go. Sink within this moment. Hold it for ever.
+ - Mental fight means thinking against the current, not with it. It is our business to puncture gas bags and discover the seeds of truth.
+ - Ransack the language as he might, words failed him. He wanted another landscape, and another tongue.
+ - For we think back through our mothers if we are women.
+ - He smiled the most exquisite smile, veiled by memory, tinged by dreams.
+ - Green in nature is one thing, green in literature another. Nature and letters seem to have a natural antipathy; bring them together and they tear each other to pieces.
+ - I am all the time thinking about poetry and fiction and you.
+ - That great Cathedral space which was childhood.
+ - Inevitably we look upon society, so kind to you, so harsh to us, as an ill-fitting form that distorts the truth; deforms the mind; fetters the will.
+ - She was like a crinkled poppy; with the desire to drink dry dust.
+ - I read the book of Job last night, I don’t think God comes out well in it.
+ - The great revelation perhaps never did come. Instead there were little daily miracles, illuminations, matches struck unexpectedly in the dark.
+ - Life piles up so fast that I have no time to write out the equally fast rising mound of reflections.
+ - I enjoy the spring more than the autumn now. One does, I think, as one gets older.
+ - So that is marriage, Lily thought, a man and a woman looking at a girl throwing a ball.
+ - About here, she thought, dabbling her fingers in the water, a ship had sunk, and she muttered, dreamily half asleep, how we perished, each alone.
+ - Alone, I often fall down into nothingness. I must push my foot stealthily lest I should fall off the edge of the world into nothingness. I have to bang my head against some hard door to call myself back to the body.
+ - For this moment, this one moment, we are together. I press you to me. Come, pain, feed on me. Bury your fangs in my flesh. Tear me asunder. I sob, I sob.
+ - They lack suggestive power. And when a book lacks suggestive power, however hard it hits the surface of the mind it cannot penetrate within.
+ - Happiness is to have a little string onto which things will attach themselves.
+ - This soul, or life within us, by no means agrees with the life outside us. If one has the courage to ask her what she thinks, she is always saying the very opposite to what other people say.
+ - Once she knows how to read there’s only one thing you can teach her to believe in and that is herself.
+ - Yet, it is true, poetry is delicious; the best prose is that which is most full of poetry.
+ - Our friends – how distant, how mute, how seldom visited and little known. And I, too, am dim to my friends and unknown; a phantom, sometimes seen, often not. Life is a dream surely.
+ - Fiction is like a spider’s web, attached ever so slightly perhaps, but still attached to life at all four corners. Often the attachment is scarcely perceptible.
+ - It is useless to read Greek in translation; translators can but offer us a vague equivalent.
+ - To let oneself be carried on passively is unthinkable.
+ - When I cannot see words curling like rings of smoke round me I am in darkness – I am nothing.
+ - The strange thing about life is that though the nature of it must have been apparent to every one for hundreds of years, no one has left any adequate account of it.
+ - We are the words; we are the music; we are the thing itself.
+ - How lovely goodness is in those who, stepping lightly, go smiling through the world.
+ - The art of writing has for backbone some fierce attachment to an idea.
+ - Someone has to die in order that the rest of us should value life more.
+ - But words have been used too often; touched and turned, and left exposed to the dust of the street. The words we seek hang close to the tree. We come at dawn and find them sweet beneath the leaf.
+ - Oh, is this your buried treasure? The light in the heart.
+ - It was a silly, silly dream, being unhappy.
+ - We live in constant danger of coming apart. The mystery of why we do not always come apart is the animating tension of all art.
+ - Every face, every shop, bedroom window, public-house, and dark square is a picture feverishly turned – in search of what? It is the same with books. What do we seek through millions of pages?
+ - For there is a virtue in truth; it has an almost mystic power. Like radium, it seems to give off forever and ever grains of energy, atoms of light.
+ - Masterpieces are not single and solitary births; they are the outcome of many years of thinking in common, of thinking by the body of the people, so that the experience of the mass is behind the single voice.
+ - So the days pass, and I ask myself whether one is not hypnotized, as a child by a silver globe, by life, and whether this is living.
+ - What is this terror? what is this ecstasy? he thought to himself. What is it that fills me with this extraordinary excitement? It is Clarissa, he said. For there she was.
+ - Am I too fast, too facile? I do not know. I do not know myself sometimes, or how to measure and name and count out the grains that make me what I am.
+ - For the eye has this strange property: it rests only on beauty.
+ - In illness words seem to possess a mystic quality.
+ - The most important thing is not to think very much about oneself. To investigate candidly the charge; but not fussily, not very anxiously. On no account to retaliate by going to the other extreme – thinking too much.
+ - I was lying in bed this morning and saying to myself, ‘the remarkable thing about Ethel is her stupendous self-satisfaction’ when in came your letter to confirm this profound psychological observation. How delighted I was!
+ - You would get longer livelier and more frequent letters from me, if it weren’t for the Christian religion. How that bell tolling at the end of the garden, dum dum, dum dum, annoys me! Why is Christianity so insistent and so sad?
+ - It is fatal to be a man or woman pure and simple: one must be a woman manly, or a man womanly.
+ - The poet gives us his essence, but prose takes the mold of the body and mind.
+ - I was always going to the bookcase for another sip of the divine specific.
+ - Speech is an old torn net, through which the fish escape as one casts it over them.
+ - To be caught happy in a world of misery was for an honest man the most despicable of crimes.
+ - Some people go to priests; others to poetry; I to my friends.
+ - Yield to that strange passion which sends you madly whirling round the room.
+ - When the shriveled skin of the ordinary is stuffed out with meaning, it satisfies the senses amazingly.
+ - Use words that soak up life.
+ - When I am grown up I shall carry a notebook – a fat book with many pages, methodically lettered. I shall enter my phrases.
+ - One should be a painter. As a writer, I feel the beauty, which is almost entirely colour, very subtle, very changeable, running over my pen, as if you poured a large jug of champagne over a hairpin.
+ - It is in our idleness, in our dreams, that the submerged truth sometimes comes to the top.
+ - I feel that by writing I am doing what is far more necessary than anything else.
+ - Great bodies of people are never responsible for what they do.
+ - Who would not spout the family teapot in order to talk with Keats for an hour about poetry, or with Jane Austen about the art of fiction?
+ - I find that when I’ve seen a certain number of people my mind becomes like an old match box – the part one strikes on, I mean.
+ - Our apparitions, the things you know us by, are simply childish. Beneath it is all dark, it is all spreading, it is unfathomably deep; but now and again we rise to the surface and that is what you see us by.
+ - Why is life so tragic; so like a little strip of pavement over an abyss. I look down; I feel giddy; I wonder how I am ever to walk to the end.
+ - Until we can comprehend the beguiling beauty of a single flower, we are woefully unable to grasp the meaning and potential of life itself.
+ - Her life-that was the only chance she had-the short season between two silences.
+ - I need silence, and to be alone and to go out, and to save one hour to consider what has happened to my world, what death has done to my world.
+ - How many times have people used a pen or paintbrush because they couldn’t pull the trigger?
+ - It is no use trying to sum people up. One must follow hints, not exactly what is said, nor yet entirely what is done.
+ - There is no room for the impurities of literature in an essay.
+ - And again she felt alone in the presence of her old antagonist, life.
+ - One has to secrete a jelly in which to slip quotations down people’s throats – and one always secretes too much jelly.
+ - I am volatile for one, rigid for another, angular as an icicle in silver, or voluptuous as a candle flame in gold.
+ - The flower bloomed and faded. The sun rose and sank. The lover loved and went. And what the poets said in rhyme, the young translated into practice.
+ - O friendship, I too will press flowers between the pages of Shakespeare’s sonnets!
+ - How far do our feelings take their colour from the dive underground? I mean, what is the reality of any feeling?
+ - Up here my eyes are green leaves, unseeing.
+ - And the poem, I think, is only your voice speaking.
+ - Women have burnt like beacons in all the works of all the poets from the beginning of time.
+ - Never let anybody guess that you have a mind of your own. Above all be pure.
+ - The history of most women is hidden either by silence, or by flourishes and ornaments that amount to silence.
+ - I grow numb; I grow stiff. How shall I break up this numbness which discredits my sympathetic heart?
+ - Whenever you see a board up with “Trespassers will be prosecuted,” trespass at once.
+ - If we help an educated man’s daughter to go to Cambridge are we not forcing her to think not about education but about war? – not how she can learn, but how she can fight in order that she might win the same advantages as her brothers?
+ - How are we to account for the strange human craving for the pleasure of feeling afraid which is so much involved in our love of ghost stories?
+ - Let us not take for granted that life exists more fully in what is commonly thought big than in what is commonly thought small.
+ - Anything may happen when womanhood has ceased to be a protected occupation.
+ - But Time, unfortunately, though it makes animals and vegetables bloom and fade with amazing punctuality has no such simple effect upon the mind of man.
+ - For books continue each other, in spite of our habit of judging them separately.
+ - Never pretend that the things you haven’t got are not worth having.
+ - Conversation, fastidious goddess, loves blood better than brick, and feasts most subtly on the human will.
+ - Money dignifies what is frivolous if unpaid for.
+ - Am I alone in my egotism when I say that never does the pale light of dawn filter through the blinds of 52 Tavistock Square but I open my eyes and exclaim, “Good God! Here I am again!” not always with pleasure, often with pain; sometimes in a spasm.
+ - Nothing thicker than a knife’s blade separates happiness from melancholy.
+ - War is not women’s history.
+ - I have had my vision.
+ - The chief glory of a woman is not to be talked of, said Pericles, himself a much-talked-of-man.
+ - Was not writing poetry a secret transaction, a voice answering a voice?
+ - Where the Mind is biggest, the Heart, the Senses, Magnanimity, Charity, Tolerance, Kindliness, and the rest of them scarcely have room to breathe.
+ - You have a touch in letter writing that is beyond me. Something unexpected, like coming round a corner in a rose garden and finding it still daylight.
+ - You can’t think how I depend on you, and when you’re not there the colour goes out of my life.
+ - I would venture to guess that Anon, who wrote so many poems without signing them, was often a woman.
+ - Let us record the atoms as they fall upon the mind in the order in which they fall.
+ - Let us again pretend that life is a solid substance, shaped like a globe, which we turn about in our fingers. Let us pretend that we can make out a plain and logical story, so that when one matter is despatched – love for instance – we go on, in an orderly manner, to the next.
+ - If it were now to die, ’twere now to be most happy.
+ - For once the disease of reading has laid upon the system it weakens so that it falls an easy prey to that other scourge which dwells in the ink pot and festers in the quill. The wretch takes to writing.
+ - The connection between dress and war is not far to seek; your finest clothes are those you wear as soldiers.
+ - If Shakespeare had never existed, he asked, would the world have differed much from what it is today? Does the progress of civilization depend upon great men? Is the lot of the average human being better now that in the time of the Pharaohs?
+ - I feel so intensely the delights of shutting oneself up in a little world of one’s own, with pictures and music and everything beautiful.
+ - The history of men’s opposition to women’s emancipation is more interesting perhaps than the story of that emancipation itself.
+ - Most of a modest woman’s life was spent, after all, in denying what, in one day at least of every year, was made obvious.
+ - The telephone, which interrupts the most serious conversations and cuts short the most weighty observations, has a romance of its own.
+ - So coming back from a journey, or after an illness, before habits had spun themselves across the surface, one felt that same unreality, which was so startling; felt something emerge. Life was most vivid then.
+ - A whole lifetime was too short to bring out, the full flavour; to extract every ounce of pleasure, every shade of meaning.
+ - Well, we must wait for the future to show.
+ - I need not hate any man; he cannot hurt me. I need not flatter any man; he has nothing to give me.
+ - We are nauseated by the sight of trivial personalities decomposing in the eternity of print.
+ - It is a thousand pities never to say what one feels.
+ - I have a feeling I shall go mad. I cannot go on longer in these terrible times. I shan’t recover this time. I hear voices and cannot concentrate on my work. I have fought against it but cannot fight any longer.
+ - Does Nature supplement what man advanced? Or does she complete what he began?
+ - Let a man get up and say, Behold, this is the truth, and instantly I perceive a sandy cat filching a piece of fish in the background. Look, you have forgotten the cat, I say.
+ - I feel certain that I’m going mad again, I feel we can’t go thru another of those terrible times. And I shan’t recover this time. I begin to hear voices.
+ - I’m fundamentally, I think, an outsider. I do my best work and feel most braced with my back to the wall. It’s an odd feeling though, writing aginst the current: difficult entirely to disregard the current. Yet of course I shall.
+ - One wanted, she thought, dipping her brush deliberately, to be on a level with ordinary experience, to feel simply that’s a chair, that’s a table, and yet at the same time, It’s a miracle, it’s an ecstasy.
+ - Beauty was not everything. Beauty had this penalty – it came too readily, came too completely. It stilled life – froze it.
+ - Boredom is the legitimate kingdom of the philanthropic.
+ - Love and religion! thought Clarissa, going back into the drawing room, tingling all over. How detestable, how detestable they are!
+ - But I beneath a rougher sea, And whelmed in deeper gulfs than he.
+ - The word-coining genius, as if thought plunged into a sea of words and came up dripping.
+ - Life’s bare as a bone.
+ - Never are voices so beautiful as on a winter’s evening, when dusk almost hides the body, and they seem to issue from nothingness with a note of intimacy seldom heard by day.
+ - A million candles burnt in him without his being at the trouble of lighting a single one.
+ - No, she thought, one could say nothing to nobody. The urgency of the moment always missed its mark. Words fluttered sideways and struck the object inches too low.
+ - Was there no safety? No learning by heart of the ways of the world? No guide, no shelter, but all was miracle, and leaping from the pinnacle of a tower into the air? Could it be, even for elderly people, that this was life? – startling, unexpected, unknown?
+ - To make ideas effective, we must be able to fire them off. We must put them into action.
+ - So fine was the morning except for a streak of wind here and there that the sea and sky looked all one fabric, as if sails were stuck high up in the sky, or the clouds had dropped down into the sea.
+ - Better was it to go unknown and leave behind you an arch, then to burn like a meteor and leave no dust.
+ - I am writing to a rhythm and not to a plot.
+ - The extraordinary woman depends on the ordinary woman.
+ - Rigid, the skeleton of habit alone upholds the human frame.
+ - It is from the middle class that writers spring, because, it is in the middle class only that the practice of writing is as natural and habitual as hoeing a field or building a house.
+ - I’m sick to death of this particular self. I want another.
+ - Am I a weed, carried this way, that way, on a tide that comes twice a day without a meaning?
+ - Intellectual freedom depends upon material things.
+ - I am tied down with single words. But you wander off; you slip away; you rise up higher, with words and words in phrases.
+ - Her life was a tissue of vanity and deceit.
+ - Humor is the first of the gifts to perish in a foreign tongue.
+ - A veil of insanity everywhere: Oh why I was born in this age? It is a terrible age.
+ - One must learn to be silent just as one must learn to talk.
+ - Whatever may be their use in civilized societies, mirrors are essential to all violent and heroic action.
+ - To sit and contemplate – to remember the faces of women without desire, to be pleased by the great deeds of men without envy, to be everything and everywhere in sympathy and yet content to remain where and what you are.
+ - At 46 one must be a miser; only have time for essentials.
+ - Each has his past shut in him like the leaves of a book known to him by his heart, and his friends can only read the title.
+ - The truth is, I often like women. I like their unconventionality. I like their completeness. I like their anonymity.
+ - Women have served all these centuries as looking glasses possessing the power of reflecting the figure of man at twice its natural size.
+ - Against you I will fling myself, unvanquished and unyielding, O Death!
+ - The first duty of a lecturer: to hand you after an hour’s discourse a nugget of pure truth to wrap up between the pages of your notebooks, and keep on the mantelpiece forever.
+ - As I grow old I hate the writing of letters more and more, and like getting them better and better.
+ - Really I don’t like human nature unless all candied over with art.
+ - He called her a melon, a pineapple, an olive tree, an emerald, and a fox in the snow all in the space of three seconds; he did not know whether he had heard her, tasted her, seen her, or all three together.
+ - To want and not to have, sent all up her body a hardness, a hollowness, a strain. And then to want and not to have- to want and want- how that wrung the heart, and wrung it again and again!
+ - To survive, each sentence must have, at its heart, a little spark of fire, and this, whatever the risk, the novelist must pluck with his own hands from the blaze.
+ - I’m not clear enough in the head to feel anything but varieties of dull anger and arrows of sadness.
+ - Night had come – night that she loved of all times, night in which the reflections in the dark pool of the mind shine more clearly than by day.
+ - I attain a different kind of beauty, achieve a symmetry by means of infinite discords, showing all the traces of the mind’s passage through the world, achieve in the end some kind of whole made of shivering fragments.
+ - I ride rough waters, and shall sink with no one to save me.
+ - The sea was indistinguishable from the sky, except that the sea was slightly creased as if a cloth had wrinkles in it.
+ - Peter would think her sentimental. So she was. For she had come to feel that it was the only thing worth saying – what one felt. Cleverness was silly. One must say simply what one felt.
+ - I want someone to sit beside after the day’s pursuit and all its anguish, after its listening, and its waitings, and its suspicions. After quarrelling and reconciliation I need privacy – to be alone with you, to set this hubbub in order. For I am as neat as a cat in my habits.
+ - These moments of escape are not to be despised. They come too seldom.
+ - If we didn’t live venturously, plucking the wild goat by the beard, and trembling over precipices, we should never be depressed, I’ve no doubt; but already should be faded, fatalistic and aged.
+ - No passion is stronger in the breast of a man than the desire to make others believe as he believes. Nothing so cuts at the root of his happiness and fills him with rage as the sense that another rates low what he prizes high.
+ - Moreover, a book is not made of sentences laid end to end, but of sentences built, if an image helps, into arcades or domes.
+ - At last she shut the book sharply, lay back, and drew a deep breath, expressive of the wonder which always marks the transition from the imaginary world to the real world.
+ - I worship you, but I loathe marriage. I hate its smugness, its safety, its compromise and the thought of you interfering with my work, hindering me; what would you answer?
+ - She had the perpetual sense, as she watched the taxi cabs, of being out, out, far out to sea and alone; she always had the feeling that it was very, very, dangerous to live even one day.
+ - And it was awfully strange, he thought, how she still had the power, as she came tinkling, rustling, still had the power as she came across the room, to make the moon, which he detested, rise at Bourton on the terrace in the summer sky.
+ - The hatchet must fall on the block; the oak must be cleft to the centre. The weight of the world is on my shoulders. Here is the pen and the paper; on the letters in the wire basket I sign my name, I, I, and again I.
+ - Like most uneducated Englishwomen, I like reading – I like reading books in the bulk.
+ - Those comfortably padded lunatic asylums which are known, euphemistically, as the stately homes of England.
+ - To depend upon a profession is a less odious form of slavery than to depend upon a father.
+ - History is too much about wars; biography too much about great men.
+ - Oh, but she never wanted James to grow a day older or Cam either. These two she would have liked to keep for ever just as the way they were, demons of wickedness, angels of delight, never to see them grow up into long-legged monsters.
+ - The world wavered and quivered and threatened to burst into flames.
+ - It is only by putting it into words that I make it whole. This wholeness means that it has lost its power to hurt me; it gives me, perhaps because by doing so I take away the pain, a great delight to put the severed parts together.
+ - I feel my brains, like a pear, to see if it’s ripe; it will be exquisite by September.
+ - There was a serenity about him always that had the look of innocence, when, technically, the word was no longer applicable.
+ - On the outskirts of every agony sits some observant fellow who points.
+ - Nothing has really happened until it has been recorded.
+ - To love makes one solitary.
+ - For if Chloe likes Olivia and Mary Carmichael knows how to express it she will light a torch in that vast chamber where nobody has yet been.
+ - Alone, condemned, deserted, as those who are about to die are alone, there was a luxury in it, an isolation full of sublimity; a freedom which the attached can never know.
+ - Tom’s great yellow bronze mask all draped upon an iron framework. An inhibited, nerve-drawn; dropped face – as if hung on a scaffold of heavy private brooding; and thought.
+ - Incessant company is as bad as solitary confinement.
+ - Human beings have neither kindness, nor faith, nor charity beyond what serves to increase the pleasure of the moment.
+ - There are no teachers, saints, prophets, good people, but the artists.
+ - It was a miserable machine, an inefficient machine, she thought, the human apparatus for painting or for feeling; it always broke down at the critical moment; heroically, one must force it on.
+ - No sooner have you feasted on beauty with your eyes than your mind tells you that beauty is vain and beauty passes.
+ - As for my next book, I won’t write it till it has grown heavy in my mind like a ripe pear; pendant, gravid, asking to be cut or it will fall.
+ - I really don’t advise a woman who wants to have things her own way to get married.
+ - The world has raised its whip; where will it descend?
+ - It seemed to her such nonsense-inventing differences, when people, heaven knows, were different enough without that.
+ - I am overwhelmed with things I ought to have written about and never found the proper words.
+ - Style is a very simple matter; it is all rhythm. Once you get that, you can’t use the wrong words.
+ - Have you any notion how many books are written about women in the course of one year? Have you any notion how many are written by men? Are you aware that you are, perhaps, the most discussed animal in the universe?
+ - And when we are writing the life of a woman, we may, it is agreed, waive our demand for action, and substitute love instead. Love, the poet has said, is a woman’s whole existence...
+ - There is something about the present which we would not exchange, though we were offered a choice of all past ages to live in.
+ - It is no use trying to sum people up.
+ - Sir, I would trust you with my heart. Moreover, we have left our bodies in the banqueting hall. Those on the turf are the shadows of our souls.
+ - O why do I ever let anyone read what I write! Every time I have to go through a breakfast with a letter of criticism I swear I will write for my own praise or blame in future. It is a misery.
+ - I do not want to be admired. I want to give, to be given, and solitude in which to unfold my possessions.
+ - I prefer men to cauliflowers.
+ - We shall be the mouthpieces of the divine spirit –.
+ - I was in a queer mood, thinking myself very old: but now I am a woman again – as I always am when I write.
+ - If this were the time or the place to uphold a paradox, I am half inclined to state that Norfolk is one of the most beautiful of counties.
+ - I like books whose virtue is all drawn together in a page or two. I like sentences that don’t budge though armies cross them.
+ - Life would split apart without letters.
+ - Habits and customs are a convenience devised for the support of timid natures who dare not allow their souls free play.
+ - I want the concentration and the romance, and the worlds all glued together, fused, glowing: have no time to waste any more on prose.
+ - With twice his wits, she had to see things through his eyes – one of the tragedies of married life.
+ - Why must they grow up and lose it all?
+ - One likes people much better when they’re battered down by a prodigious siege of misfortune than when they triumph.
+ - King old ladies assure us that cats are often the best judges of character. A cat will always to to a good man, they say.
+ - But it is just when opinions universally prevail and we have added lip service to their authority that we become sometimes most keenly conscious that we do not believe a word that we are saying.
+ - I must try to set aside half an hour in some part of my day, and consecrate it to diary writing. Give it a name and a place, and then perhaps, such is the human mind, I shall come to think it a duty, and disregard other duties for it.
+ - A biography is considered complete if it merely accounts for six or seven selves, whereas a person may well have as many as a thousand.
+ - One cannot bring children into a world like this. One cannot perpetuate suffering, or increase the breed of these lustful animals, who have no lasting emotions, but only whims and vanities, eddying them now this way, now that.
+ - But I pine in Solitude. Solitude is my undoing.
+ - Facts must be manipulated; some must be brightened; others shaded; yet, in the process, they must never lose their integrity.
+ - We insist, it seems, on living.
+ - I do think all good and evil comes from words. I have to tune myself into a good temper with something musical, and I run to a book as a child to its mother.
+ - The interest in life does not lie in what people do, nor even in their relations to each other, but largely in the power to communicate with a third party, antagonistic, enigmatic, yet perhaps persuadable, which one may call life in general.
+ - Theories then are dangerous things.
+ - The cold stream of visual impressions failed him now as if the eye were a cup that overflowed and let the rest run down its china walls unrecorded.
+ - Now begins to rise in me the familiar rhythm; words that have lain dormant now lift, now toss their crests, and fall and rise, and falls again. I am a poet, yes. Surely I am a great poet.
+ - It is probable that both in life and in art the values of a woman are not the values of a man.
+ - The habit of writing for my eye is good practice. It loosens the ligaments.
+ - After that, how unbelievable death was! – that is must end; and no one in the whole world would know how she had loved it all.
+ - There was no treachery too base for the world to commit.
+ - When the body escaped mutilation, seldom did the heart go to the grave unscarred.
+ - Lines slip easily down the accustomed grooves. The old designs are copied so glibly that we are half inclined to think them original, save for that very glibness.
+ - What is amusing now had to be taken in desperate earnest once.
+ - We are cut, we are fallen. We are become part of that unfeeling universe that sleeps when we are at our quickest and burns red when we lie asleep.
+ - He who robs us of our dreams robs us of our life.
+ - To put it in a nutshell, he was afflicted with a love of literature. It was the fatal nature of this disease to substitute a phantom for reality.
+ - As for ‘drawing you out,’ please believe I don’t do such things deliberately, with an object – It’s only that I am, as a rule, far more interested in people than they are in me – But it makes me a nuisance, I know: only an innocent nuisance.
+ - Thus Mr. Lawrence, Mr. Douglas and Mr. Joyce partly spoil their books for women readers by their display of self-conscious virility; and Mr. Hemingway, but much less violently, follows suit.
+ - Praise and blame alike mean nothing. No, delightful as the pastime of measuring may be, it is the most futile of all occupations, and to submit to the decrees of the measurers the most servile of attitudes.
+ - Words belong to each other.
+ - It is part of the novelist’s convention not to mention soup and salmon and ducklings, as if soup and salmon and ducklings were of no importance...
+ - The taste for books was an early one. As a child he was sometimes found at midnight by a page still reading. They took his taper away, and he bred glow-worms to serve his purpose. They took the glow-worms away and he almost burnt the house down with a tinder.
+ - I believe that the main thing in beginning a novel is to feel, not that you can write it, but that it exists on the far side of a gulf, which words can’t cross: that it’s to be pulled through only in a breathless anguish.
+ - He lay on his chair with his hands clasped above his paunch not reading, or sleeping, but basking like a creature gorged with existence.
+ - This is not writing at all. Indeed, I could say that Shakespeare surpasses literature altogether, if I knew what I meant.
+ - The mind which is most capable of receiving impressions is very often the least capable of drawing conclusions.
+ - I have made up thousands of stories; I have filled innumerable notebooks with phrases to be used when I have found the true story, the one story to which all these phrases refer. But I have never yet found the story. And I begin to ask, Are there stories?
+ - All the time she writing the world had continued.
+ - I will dream today; for I must unscrew my head somehow.
+ - Often on a wet day I begin counting up; what I’ve read and what I haven’t read.
+ - Nothing, I know, had any chance against death.
+ - For beyond the difficulty of communicating oneself, there is the supreme difficulty of being oneself.
+ - Are we so made that we have to take death in small doses daily or we could not go on with the business of living?
+ - It was as if someone had taken a tiny bead of pure life and decking it as lightly as possible with down and feathers, had set it dancing and zigzagging to show us the true nature of life.
+ - If one could be friendly with women, what a pleasure – the relationship so secret and private compared with relations with men. Why not write about it truthfully?
+ - They came to her, naturally, since she was a woman, all day long with this and that; one wanting this, another that; the children were growing up; she often felt she was nothing but a sponge sopped full of human emotions.
+ - At any rate, when a subject is highly controversial-and any question about sex is that-one cannot hope to tell the truth. One can only show how one came to hold whatever opinion one does hold.
+ - Disastrous would have been the result if a fire or a death had suddenly demanded something heroic of human nature, but tragedies come in the hungry hours.
+ - One can only believe entirely, perhaps, in what one cannot see.
+ - If the best of one’s feelings means nothing to the person most concerned in those feelings, what reality is left us?
+ - The thing about Proust is his combination of the utmost sensibility with the utmost tenacity. He searches out these butterfly shades to the last grain. He is as tough as catgut and as evanescent as a butterfly’s bloom.
+ - It was the intimacy, a sort of spiritual suppleness, when mind prints upon mind indelibly.
+ - When people are happy they have a reserve upon which to draw, whereas she was like a wheel without a tyre.
+ - It doesn’t have to be the truth, just your vision of it, written down.
+ - There is much to support the view that it is clothes that wear us, and not we, them.
+ - Her only gift was knowing people almost by instinct, she thought, walking on. If you put her in a room with someone, up went her back like a cat’s; or she purred.
+ - Nothing is stronger than the position of the dead among the living.
+ - Tragedies come in the hungry hours.
+ - Marvelous are the innocent.
+ - Of course, literature is the only spiritual and humane career. Even painting tends to dumness, and music turns people erotic, whereas the more you write the nicer you become.
+ - Long ago I realized that no other person would be to me what you are.
+ - Only longing can fill with more of itself.
+ - And you wish to be a poet; and you wish to be a lover.
+ - The poet is always our contemporary.
+ - Nothing, however, can be more arrogant, though nothing is commoner than to assume that of Gods there is only one, and of religions none but the speaker’s.
+ - Indeed there has never been any explanation of the ebb and flow in our veins – of happiness and unhappiness.
+ - To read a novel is a difficult and complex art. You must be capable not only of great fineness of perception, but of great boldness of imagination.
+ - There are moments when one can neither think nor feel, she thought, and if one can neithre feel nor think, where’s one?
+ - Who shall measure the hat and violence of the poet’s heart when caught and tangled in a woman’s body?
+ - If we face the fact, for it is a fact, that there is no arm to cling to, but that we go alone and that our relation is to the world of reality and not only to the world of men and women...
+ - There can be no two opinions as to what a highbrow is. He is the man or woman of thoroughbred intelligence who rides his mind at a gallop across country in pursuit of an idea.
+ - For the young people could not talk. And why should they? Shout, embrace, swing, be up at dawn...
+ - But the close withdrew: the hand softened. It was over – the moment.
+ - I got out this diary and read, as one always reads one’s own writing; with a kind of guilty intensity.
+ - The older one grows, the more one likes indecency.
+ - Would there be trees if we didn’t see them?
+ - For what Harley Street specialist has time to understand the body, let alone the mind or both in combination, when he is a slave to thirteen thousand a year?
+ - For the film maker must come by his convention, as painters and writers and musicians have done before him.
+ - Yet there are moments when the walls of the mind grow thin; when nothing is unabsorbed, and I could fancy that we might blow so vast a bubble that the sun might set and rise in it and we might take the blue of midday and the black of midnight and be cast off and escape from here and now.
+ - If only she could put them together, she felt, write them out in some sentence, then she would have got at the truth of things.
+ - My notion’s to think of the human beings first and let the abstract ideas take care of themselves.
+ - These are the soul’s changes. I don’t believe in ageing. I believe in forever altering one’s aspect to the sun. Hence my optimism.
+ - A writer should give direct certainty; explanations are so much water poured into the wine.
+ - That complete statement which is literature.
+ - But Sasha was from Russia, where the sunsets are longer, the dawns less sudden and sentences are often left unfinished from doubt as how to best end them.
+ - Venerable are letters, infinitely brave, forlorn, and lost.
+ - There is much to support the view that it is clothes that wear us, and not we, them; we may make them take the mould of arm or breast, but they mould our hearts, our brains, our tongues to their liking.
+ - But what is more to the point is my belief that the habit of writing thus for my own eye only is good practice. It loosens the ligaments. Never mind the misses and the stumbles.
+ - Why does one write these books after all? The drudgery, the misery, the grind, are forgotten everytime; and one launches another, and it seems sheer joy and buoyancy.
+ - This is an important book, the critic assumes, because it deals with war. This is an insignificant book because it deals with the feelings of women in a drawing-room.
+ - But what a little I can get down into my pen of what is so vivid to my eyes, and not only to my eyes; also to some nervous fibre, or fanlike membrane in my species.
+ - To stand in a great bookshop crammed with books so new that their pages almost stick together, and the gilt on their backs is still fresh, has an excitement no less delightful than the old excitement of the second-hand bookstall.
+ - It’s the writing, not the being read, that excites me. Joy is in the doing.
+ - The sigh of all the seas breaking in measure round the isles soothed them; the night wrapped them; nothing broke their sleep, until, the birds beginning and the dawn weaving their thin voices in to its whiteness.
+ - Above all you must illumine your own soul with its profundities and its shallows, and its vanities and its generosities, and say what your beauty means to you or your plainness, and what is your relation to the ever-changing and turning world.
+ - But our hatred is almost indistinguishable from our love.
+ - I will achieve in my life – Heaven grant that it be not long – some gigantic amalgamation between the two discrepancies so hideously apparent to me. Out of my suffering I will do it. I will knock. I will enter.
+ - How then did it work out, all this? How did one judge people, think of them? How did one add up this and that and conclude that it is liking one felt, or disliking?
+ - One must love everything.
+ - It is strange how a scrap of poetry works in the mind and makes the legs move in time to it along the road.
+ - Half the time she did things not simply, not for themselves; but to make people think this or that; perfect idiocy she knew for no one was ever for a second taken in.
+ - After all, what is a lovely phrase? One that has mopped up as much Truth as it can hold.
+ - Somewhere, everywhere, now hidden, now apparent in what ever is written down, is the form of a human being. If we seek to know him, are we idly occupied?
+ - To communicate is our chief business; society and friendship our chief delights; and reading, not to acquire knowledge, not to earn a living, but to extend our intercourse beyond our own time and province.
+ - I like going from one lighted room to another, such is my brain to me; lighted rooms.
+ - I see through most people; I’m hardly ever wrong. I see at once what they’ve got in them.
+ - When an arguer argues dispassionately he thinks only of the argument.
+ - Criticism? An artist wants praise. Praise.
+ - We scarcely want to analyse what we feel to be so large and deeply human.
+ - I have sought happiness through many ages and not found it.
+ - In the 18th century we knew how everything was done, but here I rise through the air, I listen to voices in America, I see men flying- but how is it done? I can’t even begin to wonder. So my belief in magic returns.
+ - The mind must be allowed to settle undisturbed over the object in order to secrete the pearl.
+ - Biography is to give a man some kind of shape after his death.
+ - The spring without a leaf to toss, bare and bright like a virgin fierce in her chastity, scornful in her purity, was laid out on fields wide-eyed and watchful and entirely careless of what was done or thought by the beholders.
+ - But then anyone who’s worth anything reads just what he likes, as the mood takes him, and with extravagant enthusiasm.
+ - There’ll be oceans of talk and emotions without end.
+ - A masterpiece is something said once and for all, stated, finished, so that it’s there complete in the mind, if only at the back.
+ - All artists need a room of their own.
+ - A thousand things to be written had I time: had I power. A very little writing uses up my capacity for writing.
+ - People only become writers if they can’t find the one book they’ve always wanted to read.
+ - It might be possible that the world itself is without meaning.
+ - Wat a vast fertility of pleasure books hold for me! I went in and found the table laden with books. I looked in and sniffed them all. I could not resist carrying this one off and broaching it. I think I could happily live here and read forever.
+ - Methinks the human method of expression by sound of tongue is very elementary, and ought to be substituted for some ingenious invention which should be able to give vent to at least six coherent sentences at once.
+ - To admit authorities, however heavily furred and gowned, into our libraries and let them tell us how to read, what to read, what value to place upon what we read, is to destroy the spirit of freedom which is the breath of those sanctuaries.
+ - I press to my centre, and find there is something there.
+ - To read a novel is a difficult and complex art.
+
+500 quotes

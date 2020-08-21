@@ -1,0 +1,31 @@
+ - There is no such thing as a “self-made” man. We are made up of thousands of others. Everyone who has ever done a kind deed for us, or spoken one word of encouragement to us, has entered into the make-up of our character and of our thoughts, as well as our success.
+ - Let us remember that the Christmas heart is a giving heart, a wide open heart that thinks of others first.
+ - Encouragement is oxygen to the soul. Good work can never be expected from a worker without encouragement. No one ever climbed spiritual heights without it. No one ever lived without it.
+ - I said to myself that I shall try to make my life like an open fireplace, so that people may be warmed and cheered by it and so go out themselves to warm and cheer.
+ - He climbs highest who helps another up.
+ - Learn to keep the door shut, keep out of your mind and out of your world every element that seeks admittance with no definite helpful end in view.
+ - Each day can be one of triumph if you keep up your interests.
+ - Enthusiasm is a kind of faith that has been set afire.
+ - Always expect the best. Then if you have to hurdle a few tough problems, you will have generated the strength and courage to do so.
+ - Beauty of expression is so akin to the voice of the sea.
+ - Each day of your life, as soon as you open your eyes in the morning, you can square away for a happy and successful day.
+ - It is a great thing to have a big brain, a fertile imagination, grand ideals, but the man with these, bereft of a good backbone, is sure to serve no useful end.
+ - That one who does not get fun and enjoyment out of every day in which he lives, needs to reorganize his life. And the sooner the better, for pure enjoyment throughout life has more to do with one’s happiness and efficiency than almost any other single element.
+ - Courage is heartworth making itself felt in deeds. It never waits for chances; it makes chances.
+ - It is the spirit of a person that hangs above him like a star in the sky.
+ - People who look down never get much of an idea of the sky where the stars are set. And the fellow who doesn’t hitch at least one or two of his wagons to a star never gets very high up. Get your eyes off the ground. Look ahead.
+ - There is no such thing as a ‘self-made’ man. We are made up of thousands of others.
+ - If you have nothing to do, look at yourself and see if there isn’t something close at hand that you can improve. It may make you wealthy, although it is more likely it will make you happy.
+ - The further you get from nature, the less happy you are; and the nearer, the more exultant you become over the world and all that there is in it.
+ - No one ever gets too big to make mistakes. The secret is that the big man is greater than his mistakes, because he rises right out of them and passes beyond them.
+ - In this life we get only those things for which we hunt, for which we strive, and for which we are willing to sacrifice.
+ - The easiest thing in the world is to succeed. You can’t help it if you follow the rules and play the game the best way you know how according to yourself, instead of according to the one next to you, or above you, or somewhere away from you.
+ - It is easier to win than to fail. Everybody sides with the winner. But the failure walks alone.
+ - We can accomplish almost anything within our ability if we but think we can.
+ - What is more beautiful than a sea of water with a number of white-winged boats skirting its surface? Poetry and beauty contesting with the wind and the waves!
+ - No matter what your work today, if it is worth while at all – time to plan it out, time to do it well, and time to finish it, is your day’s greatest gift and your greatest job.
+ - What you think means more than anything else in your life.
+ - It’s what each of us sows, and how, that gives us character and prestige.
+ - People do not want what we have in our pockets half as much as they want what is in our hearts. If we combine both, intelligently, however, according to our means, we give wisely and well.
+
+29 quotes

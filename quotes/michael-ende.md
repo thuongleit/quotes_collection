@@ -1,0 +1,33 @@
+ - Momo listened to everyone and everything – even to the rain and the wind and the pine trees – and all of them spoke to her after their own fashion.
+ - Every real story is a never ending story.
+ - But that is another story and shall be told another time.
+ - Lots of things take time, and time was Momo’s only form of wealth.
+ - Time is life itself, and life resides in the human heart.
+ - There were thousands and thousands of forms of joy in the world, but that all were essentially one and the same, namely, the joy of being able to love.
+ - When it comes to controlling human beings there is no better instrument than lies. Because, you see, humans live by beliefs. And beliefs can be manipulated. The power to manipulate beliefs is the only thing that counts.
+ - You must let what happens happen. Everything must be equal in your eyes, good and evil, beautiful and ugly, foolish and wise.
+ - Those who still think that listening isn’t an art should see if they can do it half as well.
+ - Human passions have mysterious ways, in children as well as grown-ups. Those affected by them can’t explain them, and those who haven’t known them have no understanding of them at all.
+ - Wishes cannot be summoned up or kept away at will. They come from deeper within us than good or bad intentions. And they spring up unannounced.
+ - You don’t feel a thing. There’s just something missing. And once it gets hold of you, something more is missing every day. Soon there won’t be anything left of us.
+ - What I’ve started I must finish. I’ve gone too far to turn back. Regardless of what may happen, I have to go forward.
+ - To be wise was to be above joy and sorrow, fear and pity, ambition and humiliation. It was to hate nothing and to love nothing, and above all to be utterly indifferent to the love and hate of others.
+ - Strange as it may seem, horror loses its power to frighten when repeated too often.
+ - Life holds one great but quite commonplace mystery. Though shared by each of us and known to all, seldom rates a second thought. That mystery, which most of us take for granted and never think twice about, is time.
+ - You wish for something, you’ve wanted it for years, and you’re sure you want it, as long as you know you can’t have it. But if all at once it looks as though your wish might come true, you suddenly find yourself wishing you had never wished for any such thing.
+ - Just as the setting sun turned the clouds to liquid gold.
+ - There are many kinds of joy, but they all lead to one: the joy to be loved.
+ - Once someone dreams a dream, it can’t just drop out of existence. But if the dreamer can’t remember it, what becomes of it?
+ - Only the right name gives beings and things their reality. A wrong name makes everything unreal. That’s what lies do.
+ - Maybe all the people who say ghosts don’t exist are just afraid to admit that they do.
+ - Without a past you can’t have a future.
+ - There are many kinds of delusion.
+ - If you stop to think about it, you’ll have to admit that all the stories in the world consist essentially of twenty-six letters. The letters are always the same, only the arrangement varies. From letters words are formed, from words sentences, from sentences chapters, and from chapters stories.
+ - Calendars and clocks exist to measure time, but that signifies little because we all know that an hour can seem as eternity or pass in a flash, according to how we spend it.
+ - A story can be new and yet tell about olden times. The past comes into existence with the story.
+ - He had been through a good deal in the course of the Great Quest – he had seen beautiful things and horrible things – but up until now he had not known that one and the same creature can be both, that beauty can be terrifying.
+ - My will can control anything that’s empty.
+ - People? People have been obsolete for years, They’ve made the world a place where there’s no room left for their own kind.
+ - No architect troubled to design houses that suited people who were to live in them, because that would have meant building a whole range of different houses. It was far cheaper and, above all, timesaving to make them identical.
+
+31 quotes

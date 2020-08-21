@@ -1,0 +1,27 @@
+ - The State is not, as many political scientists would make it, an inanimate thing; it consists of people, human beings, each of whom operates under an inner compulsion to get the most out of life with the least expenditure of labor.
+ - The more subsidized it is, the less free it is. What is known as ‘free education’ is the least free of all, for it is a state-owned institution; it is socialized education – just like socialized medicine or the socialized post office – and cannot possibly be separated from political control.
+ - Private capitalism makes a steam engine; State capitalism makes pyramids.
+ - Freedom is essentially a condition of inequality, not equality. It recognizes as a fact of nature the structural differences inherent in man – in temperament, character, and capacity – and it respects those differences. We are not alike and no law can make us so.
+ - The freedoms won by Americans in 1776 were lost in the revolution of 1913.
+ - The early American knew that freedom was nothing more than the absence of external restraint on behavior; the government could not give you freedom, it could only take it away.
+ - When the individual is relieved of the obligation of self-respect, he acquires the habits of helplessness; he is inclined to retreat to the security of the prenatal state. The more he is taken care of the more he wants care.
+ - Society thrives on trade simply because trade makes specialization possible, and specialization increases output, and increased output reduces the cost in toil for the satisfactions men live by. That being so, the market place is a most humane institution.
+ - Perhaps the removal of trade restrictions throughout the world would do more for the cause of universal peace than can any political union of peoples separated by trade barriers.
+ - Posterity does not pay off anything of the national debt. Each administration adds to the debt left to it, and the promise of liquidation implied in every bond issue is a false promise.
+ - Popular suffrage is in itself no guarantee of freedom. People can vote themselves into slavery.
+ - Taxation is nothing but organized robbery, and there the subject should be dropped.
+ - All wars come to an end, at least temporarily. But the authority acquired by the state hangs on; political power never abdicates.
+ - In America it is the so-called capitalist who is to blame for the fulfillment of Marx’s prophecies. Beguiled by the state’s siren song of special privilege, the capitalists have abandoned capitalism.
+ - There cannot be a “good” society until there are “good” men.
+ - We have retained the forms and phrases of a republic, but in reality we are living under an oligarchy, not of courtesan, but of bureaucrats.
+ - Increasing the power of the state in response to the Soviet menace would not defeat socialism in Russia but bring it to the United States.
+ - Just what part does the State play in production to warrant its rake-off? The State does not give; it merely takes.
+ - There cannot be a good tax nor a just one; every tax rests its case on compulsion.
+ - We cannot restore traditional American freedom unless we limit the government’s power to tax. No tinkering with this, that, or the other law will stop the trend toward socialism. We must repeal the Sixteenth Amendment.
+ - We have but to remember man’s natural tendency to satisfy his desires with the minimum of effort to realize how political power will be utilized.
+ - The pertinent question: if Americans did not want these wars should they have been compelled to fight them?
+ - If for no other reason, personal pride should prompt every governor and state legislator to take a secessionist attitude; they were not elected to be lackeys of the federal bureaucracy.
+ - The institution of taxation rests foursquare on the axiom that somebody must rule somebody else.
+ - Economics is not politics. One is a science, concerned with the immutable and constant laws of nature that determine the production and distribution of wealth; the other is the art of ruling.
+
+25 quotes

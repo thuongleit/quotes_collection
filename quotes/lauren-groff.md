@@ -1,0 +1,43 @@
+ - I see history as really cyclical in terms of the intense idealism, and the desire to create a better life outside of societal norms.
+ - Research is about following the gleam into the dark. It’s also about being sensitive enough to know which fact is “the creative fact; the fertile fact; the fact that suggests and engenders,” as opposed to the fact that deadens and kills a delicate new project.
+ - It’s not easy to make friends when you’re an adult writer outside of academia, especially when you work alone in a little room for twelve hours a day, and so I wrote toward what I most longed for.
+ - Amor animi arbitrio sumitu, non ponitur; we choose to love; we do not choose to cease loving.
+ - Depressing thought: my friends were the girls I ate lunch with, all buddies from kindergarten who knew one another so well we weren’t sure if we even liked one another anymore.
+ - And she, the new mother of a daughter, felt a fierceness come over her that seized at her heart, that made her feel as if her bones were turned to steel, as if she could turn herself into a weapon to keep this daughter of hers from having to be hurt by the world outside the ring of her arms.
+ - Everything is cyclical. Historical eras go through times of intense cynicism, broken by periods of intense idealism.
+ - In this moment that blooms and fades as it passes, he is enough, and all is well in the world.
+ - Song: Heloise and Abelard by Elizabeth Devlin. Beyond the a propros subject matter, this lady can really play the Autoharp. This song sounds like something you’d find on a gramophone record.
+ - You had to pick up a landline to make sure your best friend wore a matching outfit to school. I do remember people talking more. Nostalgia is dangerous, though.
+ - But I’ve married a deeply sensible person who is extremely good at talking me down from my various ledges, and who takes care of me in a billion ways.
+ - I try not to think too much or be too impatient, and let the back of my brain do its mysterious work.
+ - A lot of my work comes from a place of despair or fear. I often write in order to gain some sort of control over aspects of my life or the world that seem too dark to look at directly.
+ - The darkest period of my life, so far, arrived the summer I was pregnant with my eldest son. The future was growing in me with all of its terrifying unpredictability, and I found myself anxious, unable to work and woefully at sea.
+ - When I was small and easily wounded books were my carapace. If I were recalled to my hurts in the middle of a book they somehow mattered less. My corporeal life was slight the dazzling one in my head was what really mattered. Returning to books was coming home.
+ - When I write new worlds, I work in layers, building and throwing out, and building anew.
+ - While writing, writers are living inside a character or characters, and when the book ekes into the world, writers are living inside the reader. That’s more than connecting.
+ - Freedom or community, community or freedom. One must decide the way one wants to live. I chose community.
+ - The triumph of writing fiction is that by doing so, writers can build a more ideal world in themselves.
+ - Sometimes you have to let time carry you past your troubles.
+ - I’m always hungry for people.
+ - Fiction is always a utopian task, in that there’s an ideal you hold in your head as you write which inevitably fails in the moment of creation, in the insufficiency of words to convey meaning, or in the way the work is completed in the reader’s head.
+ - I love Twitter. It’s like having a closet full of clever friends that you can visit twice a day, then shove back into the darkness when you’re tired of them.
+ - I think that writers have natural canvases, and my canvas, even in short stories, often seems to be the scope of a life.
+ - My childhood was as conventional as you could get.
+ - In terms of writing, I think what most fiction writers treasure more than anything is the feeling that they’re living for the length of a book inside another person.
+ - I won’t walk under scaffolding or under ladders. I wear things like a baseball player wears things that are supposed to have luck. I am superstitious about everything.
+ - If theres a black cat that crosses the street in my path, I will turn around and walk 20 minutes out of my way to not cross it.
+ - Who, in the midst of passion, is vigilant against illness? Who listens to the reports of recently decimated populations in Spain, India, Bora Bora, when new lips, tongues and poems fill the world?
+ - Childhood is such a delicate tissue; what they had done this morning could snag somewhere in the little ones, make a dull, small pain that will circle back again and again, and hurt them in small ways for the rest of their lives.
+ - It seems to me that if you were to take almost any half-century in history, you’d find a grand societal tug-of-war between the community and the individual.
+ - We need the skeletons of other stories to understand our own, sometimes.
+ - At least in my case, a very simple, regular, happy life makes for better writing.
+ - I see ghosts everywhere, and that is partially a function of my being incredibly near-sighted and reading way too late into the night.
+ - I have a feeling that books are a lot like people – they change as you age, so that some books that you hated in high school will strike you with the force of a revelation when you’re older.
+ - In the end, fiction is the craft of telling truth through lies.
+ - I love writing from enclosed spaces: you really learn about your characters when they have tight walls to push against.
+ - Sometimes I read a biography of some tempestuous artist and find myself longing for fireworks! booze! bloody fights!; I do think that life must be so much more thrilling when you’re actively miserable.
+ - As a person, I do ascribe to a lot of magical thinking myself.
+ - Writing is the lonely sport of sad sacks.
+ - It’s wonderful that nothing you write is ever going to be as beautiful as what’s in your head, because that gap is where the art can enter and begin to stretch its limbs.
+
+41 quotes

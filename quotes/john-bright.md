@@ -1,0 +1,27 @@
+ - Training and development: The best development programmes change the way people see themselves.
+ - The angel of death has been abroad throughout the land; you may almost hear the beating of his wings.
+ - A year ago I was in the city of Genoa, and I found that it returned seven representatives to the Sardinian Parliament at Turin, seven being its fair share, calculated according to the population of the various cities and districts of the Sardinian kingdom.
+ - England is the Mother of Parliaments.
+ - I am for peace, retrenchment and reform, the watchword of the great Liberal Party thirty years ago.
+ - As you know, I am neither Roman Catholic, Protestant Episcopalian, nor Presbyterian, nor am I an Irishman.
+ - It was in the year 1820, when I was nearly nine years old, that I first went to a regular school.
+ - Be the measure great or small, let it be honest in every part.
+ - I. cannot stoop to reply to the folly and the slander of every poor Tory partisan who assails me, and I should not have noticed you but for the fact that you are a member of the House of Commons.
+ - We have had a great depression in agriculture, caused mainly by several seasons of bad harvests, and some of our traders have suffered much from a too rapid extension in prosperous years.
+ - The Government and the Parliament, even the House of Lords, will consent to a large increase of electors; and men who have not considered the subject fully will imagine they have gained much by the concession.
+ - Well, will anybody deny now that the Government at Washington, as regards its own people, is the strongest government in the world at this hour? And for this simple reason, that it is based on the will, and the good will, of an instructed people.
+ - With regard to the ballot, it is worthy of remark that no meeting has been held in favour of Reform at which the ballot has not been strongly insisted upon.
+ - We may be proud that England is the ancient country of Parliaments. With scarcely any intervening period, Parliaments have met constantly for 600 years, and there was something of a Parliament before the Conquest. England is the mother of Parliaments.
+ - The knowledge of the ancient languages is mainly a luxury.
+ - Possibly you are not aware of the fact that the largest sum given by any contributor to the fund is but a trifle when compared with the losses suffered by nearly all the firms in the cotton trade during the disastrous years of the American war.
+ - The corn law was intended to keep wheat at the price of 80s. the quarter; it is now under 40s. the quarter.
+ - Any Reform Bill which is worth a moment’s thought, or the smallest effort to carry it, must at least double, and it ought to do much more than double, the representation of the metropolitan boroughs and of all the great cities of the United Kingdom.
+ - So then because some towns in England are not represented, America is to have no representative at all. They are our children; but when children ask for bread we are not to give a stone.
+ - It is sufficient to say, what everybody knows to be true, that the Irish population is Catholic, and that the Protestants, whether of the Episcopalian or Presbyterian Church, or of both united, are a small minority of the Irish people.
+ - This regard for the liberties of Europe, this care at one time for the protestant interest, this excessive love for the balance of power, is neither more nor less than a gigantic system of outdoor relief for the aristocracy of Great Britain.
+ - The franchise itself gives no real power, unless accompanied by the right on the part of all the possessors of it to elect something like an equal number of representatives.
+ - In the houses of the humble a little library in my opinion is a most precious possession.
+ - Demand the ballot as the undeniable right of every man who is called to the poll, and take special care that the old constitutional rule and principle, by which majorities alone shall decide in Parliamentary elections, shall not be violated.
+ - I would prefer to have one comfortable room well stocked with books to all you could give me in the way of decoration which the highest art could supply.
+
+25 quotes

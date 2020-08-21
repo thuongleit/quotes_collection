@@ -1,0 +1,24 @@
+ - True elegance is for me the manifestation of an independent mind.
+ - If we are completely honest with ourselves, everyone has a dark side to their personalities.
+ - Food is a big part of my culture, so everyone knows how to cook. When I came to America and asked a babysitter to softboil an egg for my son and she didn’t know how, I was shocked.
+ - Women who stay true to themselves are always more interesting and beautiful to me: women like Frida Kahlo, Georgia O’Keeffe and Anna Magnani – women who have style, chic, allure and elegance. They didn’t submit to any standard of beauty – they defined it.
+ - Adoption has the dimension of connection – not only to your own tribe, but beyond, widening the scope of what constitutes love, ties and family. It is a larger embrace. By adopting, we stretch past our immediate circles and, by reaching out, find an unexpected sense of belonging with others.
+ - The reason of my life is not to be the most beautiful woman in the world.
+ - I am the daughter of Mr. Neo-realism: I should gravitate towards narrative simply told, character, the truth. And I do love those movies.
+ - But my mother loved The Elephant Man, and my father gave David Lynch a scholarship to study in Rome.
+ - A lot of the advertisement is done by saying: first of all, have a complex about who you are.
+ - My father used to say that you could only access culture before cinema by learning to read and write, but that once cinema was invented, knowledge was available to anybody.
+ - Although Dorothy in Blue Velvet was humiliated and hurt by men, basically I could react to how she felt.
+ - I didn’t want to become an actress because the competition with my mother would have been to much to live up to.
+ - In America, they are paranoid about ruining the reputations of people once they are dead and cannot answer back. They have this fascination which to me seems cruel and morbid. I do not want any part of it.
+ - I have the most fun writing and directing. And I always choose myself as the lead actor.
+ - I am much more radical in my beliefs than my products represent me to be.
+ - From the time I was a child I wanted to be like my mother. Not necessarily an actress – I never dreamed I’d have the courage. But an active, volatile woman like she was.
+ - I always loved experimenting in film.
+ - These same people seem to forget that mother also took a lot of chances with the type of roles she played.
+ - I don’t think a Hollywood actor is safe from acting in the rain: it all depends on the film.
+ - I was always fascinated by the infinite, strange and ‘scandalous’ ways that insects copulate.
+ - To me, it is very important to have perfume in which it is hard to recognize a particular flower or scent. That gives a touch of mystery.
+ - But I don’t really see myself as a role model. I’m not a dictator, or someone who wants to be adored!
+
+22 quotes

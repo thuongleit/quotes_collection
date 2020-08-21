@@ -1,0 +1,86 @@
+ - Each day is a day of decision, and our decisions determine our destiny.
+ - Be patient with yourself. Perfection comes not in this life, but in the next life. Don’t demand things that are unreasonable, but demand of yourself improvement. As you let the Lord help you through that, He will make the difference.
+ - Now is the time to align our goals with God’s goals.
+ - Act by inspiration, motivated by love.
+ - Even if everyone is doing it, wrong is never right.
+ - Keep studying the scriptures, keep doing the things that build your faith in Jesus Christ and then notice the wise choices you are naturally drawn to make.
+ - Who are we? We are children of God. Our potential is unlimited. Our inheritance is sacred. May we always honor that heritage – in every thought and deed.
+ - When our hearts turn to our ancestors, something changes inside us. We feel part of something greater than ourselves. Our inborn yearnings for family connections are fulfilled when we are linked to our ancestors...
+ - There is no conflict between science and religion. Conflict only arises from an incomplete knowledge of either science or religion, or both.
+ - The surest step toward joy in the morning is virtue in the evening.
+ - Sweet serenity is found in fervent prayer. Then, we forget ourselves and remember the reaching hands of the Savior, who said, “Come unto me, all ye that are heavy laden, and I will give you rest.” As our burdens are shared with Him, they do become lighter.
+ - Jesus suffered deeply because He loves us deeply! He wants us to repent and be converted so that He can fully heal us.
+ - Remember: sin, even if legalized by man, is still sin in the eyes of God.
+ - Truth, covenants, and ordinances enable us to overcome fear and face the future with faith.
+ - Obedience allows God’s blessings to flow without constraint. He will bless His obedient children with freedom from bondage and misery. And He will bless them with more light.
+ - The highest and noblest work in this life is that of a mother.
+ - The Lord can only teach an inquiring mind.
+ - Faith in God engenders a love for the Sabbath; faith in the Sabbath engenders a love for God. A sacred Sabbath truly is a delight.
+ - You can change. You can ‘come unto Christ, and be perfected in him.’
+ - Through all of our various Christmas traditions, I hope that we are focused first upon the Lord Jesus Christ. Wise men still adore Him.
+ - Could an explosion in a printing shop produce a dictionary?
+ - We were born to die and we die to live. As seedlings of God, we barely blossom on earth; we fully flower in heaven.
+ - Your life will be a blessed and balanced experience if you first honor your identity and priority.
+ - A strong human spirit with control over appetites of the flesh is master over emotions and passions and not a slave to them. That kind of freedom is as vital to the spirit as oxygen is to the body! Freedom from self-slavery is true liberation!
+ - It matters not that giants of tribulation torment you. Your prayerful access to help is just as real as when David battled his Goliath. see 1 Samuel 17.
+ - How you deal with life’s trials is part of the development of your faith. Strength comes when you remember that you have a divine nature, an inheritance of infinite worth.
+ - When we ponder His voluntary atonement, any sense of sacrifice on our part becomes completely overshadowed by a profound sense of gratitude for the privilege of serving Him.
+ - The Lord’s way is the only way for us to experience enduring happiness. His way brings sustained comfort to our souls and perennial peace to our homes.
+ - No other work transcends that of righteous, intentional parenting.
+ - Inner peace comes only as we maintain the integrity of truth in all aspects of our lives.
+ - I doubt that the Lord cares much which honorable vocation you choose. But He does care if you love one another and serve one another.
+ - The only duration of family life that satisfies the loftiest longings of the human soul is forever.
+ - When we realize that we are children of the covenant, we know who we are and what God expects of us.
+ - Keeping divine commandments brings blessings, every time! Breaking divine commandments brings a loss of blessings, every time!
+ - Rationalization is one of the real obstacles to obedience.
+ - Because of our sacred regard for each human intellect, we consider the obtaining of an education to be a religious responsibility.
+ - The Savior’s way of life is good.
+ - While we are free to choose, once we have made those choices, we are tied to the consequences of those choices.
+ - Marriage is sanctified when it is cherished and honored in holiness. That union is not merely between husband and wife; it embraces a partnership with God.
+ - A pivotal spiritual attribute is that of self-mastery-th e strength to place reason over appetite. Self-mastery builds a strong conscience. And your conscience determines your moral responses in difficult, tempting, and trying situations.
+ - Make the Sabbath a delight by rendering service to others.
+ - I urge you to choose companions well and cherish those friends who lift you and make you better in their presence. And be such friends to one another.
+ - Counting blessings is better than recounting problems.
+ - Each marriage starts with two built-in handicaps. It involves two imperfect people.
+ - I thank God and His Son, Jesus Christ, for the Restoration and its power to propel a magnificent wave of truth and righteousness across the earth.
+ - Truth is truth! It is not divisible, and any part of it cannot be set aside.
+ - If the restoration did anything it shattered the age-old myth that God has stopped talking to his children.
+ - Feelings of worth come when a woman follows the example of the Master. Her sense of infinite worth comes from her own Christlike yearning to reach out with love, as He does.
+ - Throughout the world, the family is increasingly under attack. If families fail, many of our political, economic, and social systems will also fail.
+ - Faith is the antidote for fear.
+ - It is important for you to know who you are and who you may become. It is more important than what you do, even as vital as your work is and will be.
+ - Some of the sweetest spirits are housed in frail frames. Great spiritual strength is often developed by those with physical challenges precisely because they are challenged. Such individuals are entitled to all the blessings that God has in store for His faithful and obedient children.
+ - They climbed the ladder of learning only to find it leaning against the wrong wall.
+ - Unfinished business is our worst business. Perpetual procrastination must yield to perceptive preparation. Today we have a little more time to bless others-time to be kinder, more compassionate, quicker to thank and slower to scold, more generous in sharing, more gracious in caring.
+ - The decision to serve a mission will shape the spiritual destiny of the missionary, his or her spouse, and their posterity for generations to come. A desire to serve is a natural outcome of one’s conversion, worthiness, and preparation.
+ - Increase your faith. Proclaim your faith. Let your faith show.
+ - Focusing on the Lord and everlasting life can help us not only at Christmas, but through all the challenges of mortality.
+ - Contemplation of life after retirement and life after death can help you deal with contemporary challenges.
+ - Every religious group, while perhaps a majority somewhere, is also inevitably a minority somewhere else. Thus, religious organizations should and do show tolerance toward members of other religious denominations.
+ - When priorities are proper, the power to endure is increased. And when internalized, those priorities will help keep you from “going overboard.”
+ - A covenant made with God should be regarded not as restrictive but as protective.
+ - Integrity safeguards love, and love makes family life rich and zestful-now and forever.
+ - The temple endowment was given by revelation. Thus, it is best understood by revelation, prayerfully sought with a sincere heart.
+ - You young men need to know that you can hardly achieve your highest potential without the influence of a good women, particularly you mother, and in a few years, a good wife.
+ - When we love somebody, we show it by doing something nice. So learn to serve: find a need and fulfill a need. Surprise people with a good deed they hadn’t planned on. We have that opportunity at home, at school, and at church.
+ - Each holy temple stands as a symbol of our membership in the Church, as a sign of our faith in life after death, and as a sacred step toward eternal glory for us and our families.
+ - In the pursuit of education, individual desire is more influential than institution, and personal faith more forceful than faculty.
+ - When priorities are in place, one can more patiently tolerate unfinished business.
+ - The development of faith in the Lord is an individual matter. Repentance is also an individual matter. Only as an individual can one be baptized and receive the Holy Ghost. Each of us is born individually; likewise, each of us is “born again” individually. Salvation is an individual matter.
+ - Ask the missionaries, they can help you.
+ - I honor women who are not mothers. They know that motherhood is but one of the realms of womankind. The virtue and intelligence of women are uniquely applicable to other realms as well, such as compassionate service and teaching.
+ - The full flower of divine love and our greatest blessings from that love are conditional-predicated upon our obedience to eternal law. I pray that we may qualify for those blessings and rejoice forever.
+ - Our busy lives force us to focus on things we do from day to day. But the development of character comes only as we focus on who we really are.
+ - From the holy scriptures, heaven-sent lift will be found for heaven-sent duties.
+ - Spirit and body, when joined together, become a living soul of supernal worth.
+ - Eternal principles that govern happiness apply equally to all.
+ - Each day is a day of decision.
+ - Many religious confessions share common values. They teach that we should do unto others as we would have them do unto us.
+ - Living life in separate compartments can lead to internal conflict and exhausting tension.
+ - Recently I was tenderly hugging one of our precious little five-year-old granddaughters and said to her, “I love you, sweetheart.” She responded rather blandly: “I know.” I asked, “How do you know that I love you?” Because! You’re my grandfather!
+ - Physical conditioning from regular exercise is important. And we can do so much more to keep our bodies strong.
+ - Regardless of gender, marital status, or age, individuals can choose to link themselves directly to the Savior, hold fast to the rod of His truth, and lead by the light of that truth. By so doing, they become examples of righteousness to whom others will want to cling.
+ - The living Lord leads His living church.
+ - All Church activities, advancements, quorums, and classes are means to the end of an exalted family.
+
+84 quotes

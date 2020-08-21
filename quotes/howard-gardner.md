@@ -1,0 +1,43 @@
+ - It’s not how smart you are that matters, what really counts is how you are smart.
+ - If you think education is expensive, try estimating the cost of ignorance.
+ - Anything that is worth teaching can be presented in many different ways. These multiple ways can make use of our multiple intelligences.
+ - The Goal of Education is to Help People Use Their Minds Better.
+ - We’ve got to do fewer things in school. The greatest enemy of understanding is coverage... You’ve got to take enough time to get kids deeply involved in something so they can think about it in lots of different ways and apply it.
+ - The biggest mistake of past centuries in teaching has been to treat all students as if they were variants of the same individual and thus to feel justified in teaching them all the same subjects the same way.
+ - You learn at your best when you have something you care about and can get pleasure in being engaged in.
+ - I want my children to understand the world, but not just because the world is fascinating and the human mind is curious. I want them to understand it so that they will be positioned to make it a better place.
+ - To ask “Where in your brain is intelligence?” is like asking “Where is the voice in the radio?”
+ - Intelligence is the ability to find and solve problems and create products of value in one’s own culture.
+ - Stories are the single most powerful tool in a leader’s toolkit.
+ - Well, if storytelling is important, then your narrative ability, or your ability to put into words or use what someone else has put into words effectively, is important too.
+ - Creativity begins with an affinity for something. It’s like falling in love.
+ - If you are not prepared to resign or be fired for what you believe in, then you are not a worker, let alone a professional. You are a slave.
+ - We should spend less time ranking children and more time helping them to identify their natural competencies and gifts and cultivate these. There are hundreds and hundreds of ways to succeed and many, many different abilities that will help you get there.
+ - Hitler didn’t travel. Stalin didn’t travel. Saddam Hussein never traveled. They didn’t want to have their orthodoxy challenged.
+ - Teaching which ignores the realities of children will be rejected as surely as any graft which attempts to ignore the body’s immune system.
+ - The countries who do the best in international comparisons, whether it’s Finland or Japan, Denmark or Singapore, do well because they have professional teachers who are respected, and they also have family and community which support learning.
+ - We need to focus on the kind of human beings we want to have and the kind of society in which we want to live.
+ - Kids go to school and college and get through, but they don’t seem to really care about using their minds. School doesn’t have the kind of long term positive impact that it should.
+ - While I’ve worked on many topics and written many books, I have not abandoned my interest in multiple intelligences.
+ - An individual understands a concept, skill, theory, or domain of knowledge to the extent that he or she can apply it appropriately in a new situation.
+ - I need to add that my work on multiple intelligences received a huge boost in 1995 when Daniel Goleman published his book on emotional intelligence. I am often confused with Dan. Initially, though Dan and I are longtime friends, this confusion irritated me.
+ - Education is at a turning point.
+ - Much of the material presented in schools strikes students as alien, if not pointless.
+ - By nature, I am not an optimist, though I try to act as if I am.
+ - I align myself with almost all researchers in assuming that anything we do is a composite of whatever genetic limitations were given to us by our parents and whatever kinds of environmental opportunities are available.
+ - A lot of knowledge in any kind of an organization is what we call task knowledge. These are things that people who have been there a long time understand are important, but they may not know how to talk about them. It’s often called the culture of the organization.
+ - I believe that the brain has evolved over millions of years to be responsive to different kinds of content in the world. Language content, musical content, spatial content, numerical content, etc.
+ - Young children possess the ability to cut across the customary categories; to appreciate usually undiscerned links among realms, to respond effectively in a parallel manner to events which are usually categorized differently, and to capture these ori.
+ - One must exploit the asynchronies that have befallen one, link them to a promising issue or domain, reframe frustrations as opportunities, and, above all, persevere.
+ - Til 1983, I wrote primarily for other psychologists and expected that they would be the principal audience for my book.
+ - If we were to abandon concern for what is true, what is false, and what remains indeterminate, the world would be totally chaotic. Even those who deny the importance of truth, on the one hand, are quick to jump on anyone who is caught lying.
+ - Twenty-five years ago, the notion was you could create a general problem-solver software that could solve problems in many different domains. That just turned out to be totally wrong.
+ - Part of the maturity of the sciences is an appreciation of which questions are best left to other disciplinary approaches.
+ - No academic ever expects to be taken seriously by more than three other people, because really, we write for three people in our field.
+ - My belief in why America has been doing so well up to now is that we have been propelled by our immigrants and our encouragement of technical innovation and, indeed, creativity across the board.
+ - I am knowledgeable enough about the world of prizes to realize that there is a large degree of luck – both for the recognitions that you receive and those that you did not.
+ - The biggest communities in which young people now reside are online communities.
+ - Emile Zola was a poor student at his school at Aix. We are all so different largely because we all have different combinations of intelligences. If we recognize this, I think we will have at least a better chance of dealing appropriately with many problems that we face in the world.
+ - If I know you’re very good in music, I can predict with just about zero accuracy whether you’re going to be good or bad in other things.
+
+41 quotes

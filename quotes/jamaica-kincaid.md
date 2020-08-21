@@ -1,0 +1,123 @@
+ - The garden has taught me to live, to appreciate the times when things are fallow and when they’re not.
+ - I’m always telling my students go to law school or become a doctor, do something, and then write. First of all you should have something to write about, and you only have something to write about if you do something.
+ - Like father like son, like mother like daughter!
+ - Who you are is a mystery no one can answer, not even you.
+ - Love and hatred don’t take turns; they exist side by side at the same time. And one’s duty, one’s obligation every day, is to choose to follow the nobler one.
+ - I would be lost without the feeling of antagonism that people have towards me. I write out of defiance.
+ - A tourist is an ugly human being.
+ - I understood that I was inventing myself, and that I was doing this more in the way of a painter than in the way of a scientist. I could not count on precision or calculation; I could only count on intuition.
+ - I love planting. I love digging holes, putting plants in, tapping them in. And I love weeding, but I don’t like tidying up the garden afterwards.
+ - One of the things reading does, it makes your loneliness manageable if you are an essentially lonely person.
+ - Children like their mothers especially to be standing still and watching them, even if they are sleeping. At least that’s how I felt. There’s nothing wrong with the self-interest of children; it’s just the way they are.
+ - An ugly thing, that is what you are when you become a tourist, an ugly, empty thing, a stupid thing, a piece of rubbish pausing here and there to gaze at this and taste that, and it will never occur to you that the people who inhabit the place in which you have just paused cannot stand you.
+ - I wish that I could love someone so much that I would die from it.
+ - I don’t feel I’m angry. I feel as though I’m describing something true. If I had stabbed my husband, I could understand being called “angry.” If I had an affair with my husband’s best friend and written about that experience, I could see the anger. But I’m not doing that.
+ - What distinguished my life from my brother’s is that my mother didn’t like me. When I became a woman, I seemed to repel her.
+ - I had been a girl of whom certain things were expected, none of them too bad: a career as a nurse, for example; a sense of duty to my parents; obedience to the law and worship of convention. But in one year of being away from home, that girl had gone out of existence.
+ - If I describe a person’s physical appearance in my writing, which I often do, especially in fiction, I never say someone is “black” or “white.” I may describe the color of their skin – black eyes, beige skin, blue eyes, dark skin, etc. But I’m not talking about race.
+ - In isolation I ruthlessly plow the deep silences, seeking my opportunities like a miner seeking veins of treasures. In what shallow glimmering space shall I find what glimmering glory?
+ - Express everything you like. No word can hurt you. None. No idea can hurt you. Not being able to express an idea or word will hurt you more. Like a bullet.
+ - The space between the idea of something and its reality is always wide and deep and dark. The longer they are kept apart – idea of thing, reality of thing – the wider the width, the deeper the depth, the thicker and darker the darkness.
+ - Here I am, a product of something really vicious, product of the Atlantic slave trade. And yet, I give nary a thought to some of the awful things happening right now in the world.
+ - The photograph of my brother that is in this album shows a young man, beautiful and perfect in the way of young people, for young people are always perfect and beautiful until they are not, until the moment they just are not.
+ - I swim in a shaft of light, upside down, and I can see myself clearly, through and through, from every angle. Perhaps I stand on the brink of a great discovery.
+ - It’s not that I’m a very good person. It’s that I think I should at least look at the ways in which I am not a good person, the ways in which I so readily become the person who would not notice that the wonderful clothing I’m wearing someone is probably dying for.
+ - When I’m writing, I think about the garden, and when I’m in the garden I think about writing. I do a lot of writing by putting something in the ground.
+ - Friendship is a simple thing, and yet complicated; friendship is on the surface, something natural, something taken for granted, and yet underneath one could find worlds.
+ - That was the moment he got the idea he possessed me in a certain way, and that was the moment I grew tired of him.
+ - But no longer could I aks God what to do, since the answer, I was sure, would not suit me. I could do what suited me know, as long as I could pay for it. ‘As long as I could pay for it.’ That phrase soon became the tail that wagged my dog. If I had died then, it should have been my epigraph.
+ - The sound of words in a novel is a pretty amazing thing, and I am concerned with the sound of every word I write.
+ - The past is a room full of baggage and rubbish and sometimes things that are of use, but if they are of real use, I have kept them.
+ - Life has a truth to it, and it’s complicated – it’s love and it’s hatred.
+ - Habit gives endurance, and fatigue is the best night cap.
+ - Writing is not a profession. It’s a calling. It’s almost holy.
+ - Every native of every place is a potential tourist, and every tourist is a native of somewhere. Every native everywhere lives a life of overwhelming and crushing banality and boredom and desperation and depression, and every deed, good and bad, is an attempt to forget this.
+ - I had come to feel that my mother’s love for me was designed solely to make me into an echo of her; and I didn’t know why, but I felt that I would rather be dead than become just an echo of someone.
+ - The shadow of my mother danced around the room to a tune that my own shadow sang.
+ - The inevitable is no less a shock just because it is inevitable.
+ - That the world I was in could be soft, lovely, and nourishing was more than I could bear, and so I stood there and wept, for I didn’t want to love one more thing in my life, didn’t want one more thing that could make my heart break into a million little pieces at my feet.
+ - I am not aware of anything below my neck. I live completely in my head.
+ - There’s a difference between bravery and rash stupidity.
+ - I come from a little island with the Caribbean Sea on one side and the Atlantic Ocean on the other. I come from, really, nowhere, and for me, the fiction and the nonfiction, creative or otherwise, all come from the same place.
+ - The slave trade was globalism. Why people insist that globalism, after its hideous history, is a good thing, I do not know.
+ - One doesn’t have to pursue unhappiness. It comes to you. You come into the world screaming. You cry when you’re born because your lungs expand. You breathe. I think that’s really kind of significant. You come into the world crying, and it’s a sign that you’re alive.
+ - I was then at the height of my two-facedness: that is, outside I seemed one way, inside I was another; outside false, inside true.
+ - I like melancholy. I like to pretend that I’m alone in the world and I’m just sort of abandoned.
+ - I write out of defiance.
+ - Gardening is really an extended form of reading, of history and philosophy. The garden itself has become like writing a book. I walk around and walk around. Apparently people often see me standing there and they wave to me and I don’t see them because I am reading the landscape.
+ - I’m always surprised to hear or read my work described, “In angry tones, she says.” No! In truthful tones! Does truth have a tone? I don’t know.
+ - The history of race relations in America is very different than something like the Holocaust.
+ - I’ve written a book about my mother, and I don’t remember anyone going to Antigua or calling up my mother and verifying her life. There is something about this book that drives people mad with the autobiographical question.
+ - Often the lines that define the traditional European arrangement of fiction, non-fiction, history, etc. are not useful. These lines can distort the world we, people who look like me, live in – and by the world, I mean our personal experience of it.
+ - You know how they say a man’s house is his castle? I think for a woman, it’s her body. I feel so strongly about a woman’s right to choose. This is my Zionism. It’s not a “right” any more than it’s a right to breathe, to take in oxygen.
+ - It’s very funny, American society: White culture can do all sorts of things and get away with it, but the minute a black person does it, it’s interpreted in some way.
+ - I write a lot in my head. The revision goes on internally. It’s not spontaneous and it doesn’t have a schedule.
+ - The Holocaust happened in Europe, and that’s important to how it is viewed. Had Europeans done such a thing in the far corners of the earth, rather than on their own doorstep, it might not be mentioned in the history books.
+ - When I start to write something, I suppose I want it to change me, to make me into something not myself.
+ - I think a woman is powerless if she cannot freely claim the right to her reproductive capacity. Society can talk about anything it likes, except a woman’s reproductive existence.
+ - I like to be in my pajamas all day. Sometimes I don’t wash for days because I like to read and sit around. I like to eat in bed.
+ - The people who invented race, who grouped us together as “black,” were inventing and categorizing their ability to do something vicious and wrong.
+ - A professional writer is a joke. You write because you can’t do anything else, and then you have another job.
+ - In my writing I’m trying to explore the violations people commit upon each other. And the important thing isn’t whether I’m angry. The more important thing is, is it true? Do these things really happen?
+ - So much history, if you or I were to write it, could seem a fiction. These separations, these lines that tell us this is fiction or non-fiction, that this is history or this is a novel, are often useless.
+ - I was a new person then, I knew things I had not known before, I knew things that you can know only if you have been through what I had just been through.
+ - Of course, every time I end a book, I look down at myself and I’m just the same. I’m always disappointed that I’m just the same, but not enough to never do it again!
+ - I think in many ways the problem that my writing would have with an American reviewer is that Americans find difficulty very hard to take. They are inevitably looking for a happy ending.
+ - Everything I do is because of writing. If I go for a walk, it’s because I’m thinking of writing. I go look at flowers, I go look at the garden, I go look at a museum, but it’s all coming back to writing.
+ - The families of rabbits or woodchucks will eat the salad greens just before they are ready to be picked; I plot ways to kill these animals but can never bring myself to do it...
+ - I come from the small island of Antigua and I always wanted to write; I just didn’t know that it was possible.
+ - I used to want to be a backup singer. Not a lead singer, because I really can’t sing.
+ - Sometimes when someone says something stupid, my friends and I just read the reviews out loud and collapse with laughter at the stupidity of it all.
+ - Why is a picture of something real eventually more exciting than the thing itself?
+ - When I write a book, I hope to be beyond mortal by the time I’m finished.
+ - A psychiatrist once asked me to draw a picture of my family. This is when I was a member of a family of four. I drew the three other people in the family first, bodies and heads. And then, last, I began to draw myself – but gave up.
+ - There’s something to be said about a slightly plump person – you have just enough of too much.
+ - Time is the element that controls the consciousness, the very being of the people.
+ - When once I got to America I fell in love with hippie culture, and I’ve always wanted to live in the country and grow organic vegetables.
+ - I suppose you could say I love outlaw American culture.
+ - If I actually ran the world, I’d do it from the kitchen. It’s not anything deliberate or a statement or anything, that’s just how I understand things. It’s arranged along informal lines.
+ - A great piece of literature encompasses all that is and all that will be.
+ - I didn’t really understand racism because I grew up in an all-black society, so I didn’t see how it was possible not to like me!
+ - I’m sometimes afraid I’ll cross a line and it’ll be difficult to come back, say, to dinner.
+ - America is not so much a country as it is an idea, and that must be why so many people are drawn to it, the idea of it, the idea that you might be free of your past, free of the traditions that kept you in your own traditions – that is the idea of it: freedom from your very own self.
+ - I’ve never gotten used to winter and never will.
+ - I didn’t know it was possible to be successful as a writer, so I wasn’t afraid to fail.
+ - People only say I’m angry because I’m black and I’m a woman.
+ - I like cooking, but I think someone else ought to do the dishes.
+ - It is true that I am a writer, and I was married to a composer, and I have lived in a small village in New England, but my children are not named Heracles and Persephone, and my daughter doesn’t disappear underground every six months and emerge in the spring.
+ - The thing we call romance is a diversion from something truer, which is life.
+ - If you just sit there, and you’re a writer, you’re bound to write crap. A lot of American writing is crap. And a lot of American writers are professionals.
+ - He must have smiled at me, though I don’t really know, but I don’t like to think that I would love someone who hadn’t first smiled at me.
+ - I can write anywhere. I actually wrote more than I ever did when I had small children. My children were never a hindrance.
+ - People think if you describe someone with glistening brown skin you’re writing about race, as if the whole of the African diaspora is in someone’s brown skin.
+ - People don’t make changes because things are wonderful.
+ - On their way to freedom, some people find riches, some people find death.
+ - I would never never read a work of fiction and want to know about the person’s life.
+ - I think life is difficult and that’s that. I am not at all – absolutely not at all – interested in the pursuit of happiness. I am not interested in the pursuit of positivity. I am interested in pursuing a truth, and the truth often seems to be not happiness but its opposite.
+ - My writing has always been met with derision or dismissal.
+ - It’s too easy to say this or that is “race,” and that has been a vehicle for an incredible amount of wrong in the world.
+ - That is how I came to think that heavy and hard was the beginning of living, real living; and though I might not end up with a mark on my cheek, I had no doubt that I would end up with a mark somewhere.
+ - The thing about writing in America is that writers in America have an arc. You enter writing as a career, you expect to be successful, and really it’s the wrong thing. It’s not a profession.
+ - Someone who knew me well once accused me of being unromantic. And that’s probably true: I don’t trust romance.
+ - It is true that our skin is sort of more or less the same shade. But is it true that our skin color makes us a distinctive race? No.
+ - I’ve come to see that I’m saying something that people generally do not want to hear.
+ - I’m trying to earn a living in the way that is most enjoyable to me. I love the world of literature, and I hope to support myself in it.
+ - No matter how happy I had been in the past I do not long for it. The present is always the moment for which I love.
+ - My disappointments stand up and grow ever taller. They will not be lost to me.
+ - None of us seem to think that we should draw a line under what would be a satisfactory amount of wealth.
+ - I read about writers who have routines. They write at certain times of the day. I can’t do that. I am always writing-but in my head.
+ - What I really want to write about is injustice and justice, and the different ways human beings organize the two.
+ - I’ll read anything. In fact, I’ll read while I’m doing other things, which is not a good idea.
+ - I loved Charlotte Bronte when I was little, and I wanted to be Charlotte Bronte the way people want to be a princess.
+ - I know that the fantastic amount of profit that people want to make on anything is damaging. And that none of us seem able to resist it.
+ - I’ve never let the criticism deter me.
+ - I was given a dictionary when I was seven, and I read it because I had nothing else to read. I read it the way you read a book.
+ - What I don’t write is as important as what I write.
+ - Tomorrow exists even though I may not exist in it.
+ - It was hollow, my triumph, I could feel that, but I held on to it just the same.
+ - I don’t really do anything that isn’t about writing, and I don’t really know who I am if I’m not thinking about writing.
+ - I wouldn’t mind being labeled as “angry,” if it wasn’t used once again to denigrate and belittle.
+ - At the time I was taught to read, it was an Eden-like time of my life. My mother adored me. Everyone adored me. So I associate reading with enormous pleasure.
+ - Race as a subject only comes about because of what I look like. If I say something truthfully, people say “Oh, she’s so angry.” If I write about a married person who lives in Vermont, it becomes “Oh, she’s autobiographical.”
+
+121 quotes

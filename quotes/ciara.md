@@ -1,0 +1,21 @@
+ - Education is everything – education is your power, education is your way in life for whatever you want to do.
+ - Remind yourself that when things don’t go right, everything will be OK. And if you think that, then everything will be.
+ - I think it takes a lot of confidence to be comfortable in being vulnerable.
+ - If a person uses the word ‘sorry’ loosely then of course it loses its value.
+ - Being young, and having your mom come to school with the laced-up hats and the crazy outfits are definitely moments to remember.
+ - I love shopping! I’m impatient though. I’ll go to the mall and in 30 minutes be ready to go.
+ - A lot of people don’t realize that when you’re trying to lose weight, or just trying to stay fit, 85 percent of it is what you eat, and 15 percent of it is how you work out.
+ - Don’t limit yourself because you are a woman because you can do exactly the same that a guy could do.
+ - I feel the sexiest when I’m by myself, walking around nude. I have this new obsession with nudity, it’s really weird. It may sound weird, but I just really love embracing the body.
+ - Cute accessories always help bring out your outfit and pull it all together.
+ - The tongue is very powerful, so what you say really is, and I really believe that. So I just try to say good things, and then things like this happen.
+ - Being beautiful is all in the attitude, it’s about confidence.
+ - When I’m in focus mode, I do training six times a week. Carbs only in the morning. And I try not to eat at least two hours before bed.
+ - Dancing – however you do it, even if it’s in your living room – is a great workout.
+ - Usher is amazing. He’s perfection to me as a performer. He gets down.
+ - Everyone loves to dance. I’ve realized that’s a part of what I do more and more every day.
+ - More than anything, I realize I’ve been blessed to make great music.
+ - As we get older, it’s important for us to help hand back some of what we’ve gained as we’ve grown older. It should be one of your responsibilities – it’s almost like being a mentor.
+ - Real music to me is real; it’s what you feel.
+
+19 quotes

@@ -1,0 +1,139 @@
+ - We all have ability. The difference is how we use it.
+ - There may be a brighter star. But through my eyes the light of you is all I see.
+ - You are the sunshine of my life That’s why I’ll always be around, You are the apple of my eye, Forever you’ll stay in my heart.
+ - You can’t base your life on other people’s expectations.
+ - Shattered dreams, worthless years, here I am encased in a hollow shell. Life began, then was done, now I stare into a cold and empty well.
+ - Time is long but life is short.
+ - Use your heart to love somebody. And If your heart is big enough, use your heart to love EVERYBODY.
+ - When you’re moving in the positive, your destination is the brightest star.
+ - Music is a world within itself, with a language we all understand.
+ - Life has meaning only in the struggle. Triumph or defeat is in the hands of the Gods. So let us celebrate the struggle!
+ - Mama was my greatest teacher, a teacher of compassion, love and fearlessness. If love is sweet as a flower, then my mother is that sweet flower of love.
+ - What I’m not confused about is the world needing much more love, no hate, no prejudice, no bigotry and more unity, peace and understanding. Period.
+ - Isn’t she lovely made from love?
+ - Music, at its essence, is what gives us memories. And the longer a song has existed in our lives, the more memories we have of it.
+ - When you believe in things that you don’t understand, then you suffer.
+ - It could have been worse. I could have been born black.
+ - Rap to me is a modern blues. But until we really confront the truth, we are going to have a Tupac or Eminem or Biggie Smalls to remind us about it – and thank God.
+ - Hate knows that love is the cure.
+ - I’m believing that miracles and blessings still exist...
+ - Music at its essence is what gives us memories.
+ - We’re stuck in fear and in not wanting to cross that most important bridge of understanding that we’re more alike or not. We all cry, we all laugh.
+ - I listen a lot to rap, and I’m inspired to take it, to use it in another way, to get the message across.
+ - It’s up to to you to perfect that gift that you’ve been given. Put your spirit into that song. Focus on the words that you are singing. Get into the experience that you are singing about and sing your heart out.
+ - When I grow up I wanna be like Omar.
+ - Change your words into truths and then change that truth into LOVE...
+ - I am not a normal man.
+ - Sometimes I’m very disappointed at some of the people in our family of communicators, whether it be a songwriter or a rapper that’s always talking about negativity or a singer or a columnist or a network that basically gets off on just trying to create the negative.
+ - I’m too high, but I ain’t left the ground.
+ - Do you know, it’s funny, but I never thought of being blind as a disadvantage, and I never thought of being black as a disadvantage.
+ - When I was a child, kids used to make fun of me because I was blind. But I just became more curious, ‘How can I climb this tree and get an apple for this girl?’ That’s what mattered to me.
+ - Mama gives you money for Sunday school, you trade yours for candy after church is through.
+ - The most important thing is, when I do give the music, I’m satisfied with it, that it speaks for what I want to do.
+ - You can’t hear me? Read my lips!
+ - I see the light in your smile.
+ - With a voice like Ella ringing out there’s no way a band can lose.
+ - Eyes lie if you ever look into them for the character of the person.
+ - Just because a record has a groove don’t make it in the groove.
+ - I want to take all the pain that I feel and celebrate and turn it around.
+ - Music can measure how broad our horizons are. My mind wants to see to infinity.
+ - There are a lot of things happening that show us that this, right now, is a time to love.
+ - Evil, why do you infest the purest thoughts with hatred?
+ - If we begin to stop spewing the negative and really move into using our voices and our pens and our abilities that we have to reach millions of people to the positive, we can make a difference in the world.
+ - I am what I am. I love me! And I don’t mean that egotistically – I love that God has allowed me to take whatever it was that I had and to make something out of it.
+ - I’m concerned about how accessible guns are.
+ - Minds ripen at very different ages.
+ - I never imagined I’d meet Berry Gordy who told me when he first heard me sing, “You know, your singing’s okay, but I like your harmonica playing better.”
+ - In my career, I learned that giving your services for free gives you a good return on your investment, not just financially but morally. It supplements your personal integrity.
+ - People love to hear music on their personal devices, but the issue really becomes, if you’re able to download music, you should know this download and the quality of it is going to be of the highest, and that it has a value to it and on it.
+ - Exploitation, mutilation, mutations, confirmation to the evils of the world.
+ - I think that to a great degree, reggae companies have become very corporate and so maybe some don’t have that freedom to say whatever they want to say.
+ - I do believe in women. I really do.
+ - When the truths of love are planted firm, they won’t be hard to find. And words of love I speak to you will echo in your mind.
+ - This is like one thing that I’ve tried to do, and I think successfully, that when you realize that nothing really belongs to you, you begin to appreciate having an understanding of just where your head is at, and you feel so much better.
+ - Until we Dream of Life and Life becomes a Dream...
+ - The Lord that I serve says the impossible is unacceptable.
+ - There’re songs to make you smile, there’re songs to make you sad. But with a happy song to sing it never seems as bad.
+ - Gods induction, life’s construction, these instruct will save every living thing. Can’t you see that life’s connected?
+ - Smoking cigarettes and writing something nasty on the wall, teacher sends you to the Principal’s office down the hall.
+ - I’m a work in progress, but if I know in my heart that I’m doing my best, that my heart’s in the right place, that I have unconditional love, I feel okay.
+ - For did my dreams come true when I looked at you. And maybe too, if you would believe, you too might be overjoyed, over loved, over me.
+ - I’m glad I’m blind and can’t see it.
+ - Brother says he’s telling about you playing Doctor with that girl.
+ - Loving you, until the day that 8 x 8 x 8 x 8 is 4.
+ - We’re not living in a one-dimensional society. You can’t just talk about, you know, the horrible things in life and the destruction.
+ - Clearly, love is love, between a man and a woman, a woman and a man, a woman and a woman and a man and a man.
+ - I am all for stem cell research.
+ - My mother gave me an understanding that as good as you think you are, you’re not so great. There’s always room for improvement. The reality is when people don’t have someone to give them a sense of guidance, and say, “Hey, man, that’s not happening,” it’s really hard.
+ - A frowning face can’t bring out the beauty that you are.
+ - Those yesterdreams were just a cruel and foolish game we used to play, yester-me, yester-you, yesterday.
+ - It feels better to love than to hate.
+ - Families buying dog food now, starvation roams the streets. Babies die before their born, infected by the grief.
+ - The exciting thing about a songwriter is that, you know, particularly if you’re a songwriter and an artist and you play the parts and you’re producing it and all that, you have various times you have to critique what you do.
+ - My father really was not the dominant person who raised the family, it was my mother who raised the family.
+ - I always wanted my mother to be Queen for a Day. I always used to watch that show that came on television.
+ - You know, I always when people ask me, like, what is my most favorite song, I quote Duke Ellington, when they would ask him, what’s his favorite composition? And I say, I haven’t written it yet. Because, you know, there are different songs for different occasions.
+ - Let us come together before we’re annihilated.
+ - Even though we sometimes would not get a thing, we were happy with the joy the day would bring.
+ - Sneaking out the back door to hand out with those hoodlum friends of mine.
+ - All I ever wanted to do was music, and all I’ve ever asked, as I’ve gotten to know and discover the world more, is that God would use me in any way to encourage and inspire love and inspire people to bring and give love to each other.
+ - Troubled heart you’ll know, problems have solutions, trust and I will show.
+ - Heaven help the roses if the bombs begin to fall.
+ - Unfortunately, we have warring in the world, so the youngest minds, the brilliant minds, are sent off to war. I think that, you know, you have brilliant people with great possibilities and that’s why I really am not really for war. I really am not.
+ - You’ve got to remember that 25 is a great time because, you know, you’re passed that 21 thing and it’s a high point, a high peak, in life where you’re old enough to say what you have discovered, but you’re still open to discovering more.
+ - My thing was always trying to do as much as I possibly could do. I wanted to do all the things the other kids did in the neighborhood.
+ - You know, I have seven children, so I guess I know some things about life.
+ - I remember the beginnings of the Kurzweil reading machine. I was one of the first to meet Ray Kurzweil and purchase the reading machine in Boston. To think that the machine was at least two and a half large suitcases at the time, and now you have a camera and it takes a picture and you have sound.
+ - For the most part, I feel really comfortable with what I’ve given to the people. I want to give it to them again.
+ - I’m still experimenting.
+ - I’ve had some incredibly triumphal things happen in my life.
+ - Handicaps are really to be used another way to benefit yourself and others.
+ - Kenny Burrell is a great musician and his music has helped to make me what I am today.
+ - As a matter of fact, wherever I find that law exists, I will not perform in that state or in that part of the world.
+ - I know there are thousands of images of me.
+ - Among all the wonderful things we have, we don’t seem to have a time to love. And to me that’s the fuel, that’s the fuel we need to make the engine go.
+ - Don’t need cars cause we’ve learned to fly on Saturn.
+ - It’s my new single – please buy it so we can get Christmas gifts for the kids this year.
+ - I’ve always asked to be able to speak and write about injustice and to do it in a way that would encourage people to make things better for everyone.
+ - I guess people expect or figure me to be a lot of different things.
+ - Of all the needs that we have right now, more than anything we need a time for love.
+ - Baby, everything is alright, uptight, out of sight.
+ - We know the things that are not good and are right. Those things that we know are wrong, we’ve got to fix them.
+ - Sometimes we listen to too many commentators about things that don’t affect their lives because they’re in a different tax bracket. Or to the so-called clergymen giving their interpretation of God’s word, and yet they’re not rolling the same way in their own lives.
+ - My mother told me, if you call yourself ‘Little’ Stevie Wonder, you’d better be as good as Little Willie John.
+ - Now some folks say that we should be glad for what we have. Tell me, would you be happy in Village Ghetto Land?
+ - Why has there never been a holiday where peace is celebrated all throughout the world?
+ - Problems have solutions.
+ - Here is my music. It is all I have to tell you how I feel. Know that your love keeps my love strong.
+ - I like the iPhone, the iPad, all the various members of that family. But I like all the various technologies that are becoming available to make the world more accessible to people who are blind and with low vision.
+ - I might sing a gospel song in Arabic or do something in Hebrew. I want to mix it up and do it differently than one might imagine.
+ - No one has been a greater advocate for the power of love in this world than I; both in my life and in my music.
+ - I feel thankful to God, first and foremost, allowing me to enjoy this ‘smell the roses’ kind of thing.
+ - Shoob-be-doo-be-doo-da-day.
+ - There are people who have let the problems of today lead them to conclude that for them life is not the way.
+ - First of all, I’m no better than the next person.
+ - Different artists are talking about the laws that exist and how they need to be fixed so that compensation does happen to a far fairer level. And I agree with that.
+ - There’s only one true king of rock ‘n’ roll. His name is Chuck Berry.
+ - I am all for anything that is going to better equip a person who is physically challenged in any way, to have an opportunity to be able to do what they are able to do.
+ - I was so bad. Out of control. So glad I turned out to be a nice guy.
+ - Mama is the greatest teacher, teacher of love, fearlessness and compassion.
+ - I have enough money to satisfy myself for a lifetime.
+ - My mother had a rule, obviously, that I couldn’t go across the street by myself, but I had to find a way of doing it.
+ - Through the ages all great men have taught truth and happiness can’t be bought.
+ - God gave me life to continue to do things that I would never have done.
+ - My mother would cry about my blindness and the hopelessness of my ever seeing, but I told her I wasn’t sad. I believed God had something for me to do.
+ - Blind don’t mean you can’t, you know, listen.
+ - Did you know that true love asks for nothing?
+ - Sometimes I wish I could drive a car, but I’m gonna drive a car one day, so I don’t worry about that.
+ - There’s a Place in the Sun, where there’s hope for everyone.
+ - When I wrote the words and I have the music, I felt, wow, you know, this has got to be right. I got to sing it right.
+ - Just because a man lacks the use of his eyes doesn’t mean he lacks vision.
+ - Ya gots to work with what you gots to work with.
+ - Sometimes, I feel I am really blessed to be blind because I probably would not last a minute if I were able to see things.
+ - I might do something in Arabic. I might do something in Hebrew.
+ - If you don’t ask, you don’t get.
+ - Are you happy when you stick a needle in your vein?
+ - Call up, ring once, hang up the phone to let me know you made it home. Don’t want nothing to be wrong with my part time lover.
+ - When you feel your life’s too hard, just go have a talk with God. Well, he’s the only free psychiatrist that’s known throughout the world.
+
+137 quotes

@@ -1,0 +1,29 @@
+ - I was always led to believe you should take care of yourself, trust in your abilities and you’re the author of your own destiny.
+ - I’m of Nigerian descent, from the Yoruba tribe. Names are very significant in that culture. It basically states your purpose in life.
+ - Personally, I love Toronto.
+ - Wale means to arrive home. So the crown has arrived home. Akin is warrior or brave man. Nuoye is a brave man of chieftaincy and Agbaje means wealth and prosperity.
+ - It’s very important to stretch, because while it’s good to look pumped, a lot of the moves are split legs, and twisting fast. So you really, really have to stay supple.
+ - The only way I know how to deliver is to focus; some people can turn it on or off – I’d rather stay in character.
+ - There’s always your initial trepidation about doing a remake, but that was alleviated by the fact that it was a prequel. Immediately, that gives you creative license to really recreate and explore and put a new stamp on the genre.
+ - It’s the ones that deal with the inner fear, the unknown realms and the mysticisms that are scary. You had that in the Carpenter version, and you have that in this prequel. It’s paying homage, very much, to that.
+ - My father was a lorry driver, very rarely at home. The house was run by my mother, and because there were 10 or so kids, there was no time for individual attention. It was about survival. It was about where the next meal was coming from.
+ - Certainly, I look for different characters ’cause I always like to keep people guessing, and I also don’t like to get typecast.
+ - You don’t want it to be a replica or an imitation. You want to create something fresh, original, very unique.
+ - The axe is fifteen pounds. You have to make sure you don’t hurt or hit someone. And hit the beats, because they have five cameras. It has to look real. That in itself becomes challenging because you have to learn it straight away.
+ - And then, with a European director and Norwegian actors speaking in Norwegian, it was going to be very interesting. So, whatever initial trepidation or fear I may have had was alleviated by those factors. I just said, “This is something to get on board with.”
+ - Well, filming in Hawaii, you know, is a blessing. It’s one of the most beautiful places on this planet. It has a very mystic energy which informs you as an actor.
+ - I just want to keep the diversity and the options open. In terms of what I’m looking for, I’d like to do a lead action role.
+ - It’s a significant question: should black people only adopt black children, and white people white children?
+ - You really have to act your pants off to stay alive. I thrive on that; I rise to the occasion of the circumstances.
+ - As an actor, you really want to resonate with your audience. I played a character on Oz and people still approach me in the streets today.
+ - I’ve never been really great at trusting anybody, just because of the way I grew up.
+ - What is a shame is that there isn’t stuff that is as great as ‘Oz’ on a consistent level around today.
+ - I think always as an actor. I go in knowing how I’m going to play it. That’s about it.
+ - I’ve played different nationalities, and everything from vulnerable to strong to crooked to demented. It just increases your possibilities of work because, if people know you can do just about anything, then you’re going to get more offers. That’s what I want to do.
+ - When a child wants to be accepted, he’ll do anything. And if it means you’re getting a certain amount of notoriety from a fight, that’s what you’ll do.
+ - The actual fights themselves are very demanding. You don’t want to drain yourself. But it pumps you up, gets you in the zone. It’s a good way of getting you into the zone for the scene.
+ - Also, I’d like to play an athlete again, while I’m still physically fit, or a musician, like Nat King Cole, because I play the trumpet and sing. I’d like to incorporate that into a character.
+ - I’m known for playing bad guys, so this was an interesting departure from what I’m known to play, which is a softer, more likable, affable character.
+ - The only way you can influence your fate is to put your soul into your performance and hope it registers with the audience.
+
+27 quotes

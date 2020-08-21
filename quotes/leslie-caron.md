@@ -1,0 +1,23 @@
+ - I longed to break out of the system and do different roles.
+ - I think it’s the end of progress if you stand still and think of what you’ve done in the past. I keep on.
+ - There were many good actresses in my time like Jane Powell and Debbie Reynolds, but I was the only dancer.
+ - I got what I have now through knowing the right time to tell terrible people when to go to hell.
+ - Cinema will always have an important role to play in society.
+ - What the public expects to encounter in an actress passed 70 is the sum of her experience, not her beauty.
+ - The most important thing is to remain active and to love what you are doing.
+ - I went to Kerala in India, to learn Ayurveda, which was fantastic.
+ - James Ivory comes close to the actors for the first rehearsal. He more or less lets you direct yourself and then will only correct you if he finds it incorrect.
+ - I was trying to be very at ease in this arrogant person, and very worldly, but something human came into the part. I hate to say that. I wanted to be totally worldly.
+ - I hate biographies which say, I was called to such and such an office, and he offered me so and so, and I got so and so money. I find that very tedious. The best biographies are written by other people.
+ - I got as little as a $75 a week when I started.
+ - It’s very difficult to marry into another civilization.
+ - Warren Beatty was one hell of a lover – but we fought like stray dogs.
+ - I went to the Tokyo Film Festival in Japan because I love Japanese cinema.
+ - Lise: Paris has ways of making people forget. Jerry: Paris? No, not this city. It’s too real and too beautiful. It never lets you forget anything. It reaches in and opens you wide, and you stay that way.
+ - I know a lot of Americans in Paris who have married Frenchmen. They keep bringing up their experience, the clash of civilizations, the clash of personalities.
+ - I had two children. I had a nanny to manage my kids.
+ - When I did small films like Lily and Buenos Vista, everyone thought my career would be ruined.
+ - The American is wholeheartedly for love and romance at any cost.
+ - I toured the Middle Eastern countries with the ballet.
+
+21 quotes

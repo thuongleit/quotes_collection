@@ -1,0 +1,28 @@
+ - But remember this if nothing else: I love you more than there are words or stars. I love you more than there are thoughts and feelings. I love you more than there are seconds or moments gone or to come. I love you.
+ - Boys don’t cry, but men do.
+ - The truth isn’t going to bend itself to suit you.
+ - Just remember, Callum when you’re floating up and up in your bubble, that bubbles have a habit of bursting. The higher you climb, the further you have to fall.
+ - That just the way it is. Some things will never change. That’s just the way it is. But don’t you believe them.
+ - I hadn’t fully realized just how powerful words could be before this. Whoever came up with the saying ‘sticks and stones may break my bones but words will never hurt me’ was talking out of his or her armpit.
+ - She stays lost in the middle of her own world somewhere. We can’t get in and she doesn’t come out. Not often anyway, and certainly not for any length of time. But her mind takes her to somewhere kind, I think, to judge by the peaceful, serene look on her face most of the time.
+ - The news lies all the time. They tell us what they think we would want to hear.
+ - Because my mum and dad brought me up to believe that people are different but equal. And that I should treat everyone, no matter who, with the same respect I’d like to be shown.
+ - Never, ever allow yourself to feel. Feelings kill.
+ - Why was it that when noughts committed criminal acts, the fact that they were noughts was always pointed out? The banker was a Cross. The newsreader didn’t even mention it.
+ - The point is, you have family and friends who love you. You have a world out there just waiting for you to conquer it. You have a life that will be anything you make it. That’s the point.
+ - And just like that, I’d been assessed and judged. Nurse Fashoda didn’t know the first thing about me but she’d taken one look at my face and now she reckoned she knew my whole life story – what had gone before and what was yet to come.
+ - Dear God, please let him have heard me. Please. Please. If you’re up there. Somewhere.
+ - Sometimes the things you’re convinced you don’t want turn out to be the thing you need the most in this world.
+ - And things go unsaid soon get forgotten.
+ - Jude’s rule number five: Never get to close to anyone or anything that you can’t walk away at a moment’s notice if you have to. When you have to.
+ - When did we stop being people, being human?
+ - I pulled him closer to me, wrapping my arms around him, kissing him just as desperately as he was kissing me. Like if we could just love long enough and hard enough and deep enough, then the world outside would never, could never hurt us.
+ - A backup plan means somewhere in my head, I think I might fail and that word is not in my vocabulary. Plus I’m too talented to fail.
+ - People are people. We’ll always find a way to mess up, doesn’t matter who’s in charge.
+ - The status quo is never news, only challenges to it.
+ - I suppose it doesn’t occur to you that I can think the system just as unjust as you do.
+ - Mrs Bawden yanked me away from the table and dragged me across the food hall. I tried to twist away from her, but she had a grip like a python on steroids.
+ - Jude’s fourth law: Caring equals vulnerability. Never show either.
+ - I used to comfort myself with the belief that it was only certain individuals and their peculiar notions that spoilt things for the rest of us. But how many individuals does it take before it’s not the individuals who are prejudiced but society itself?
+
+26 quotes

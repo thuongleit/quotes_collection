@@ -1,0 +1,33 @@
+ - Well, you know, my wife and I have eight children. We have now 19 grandchildren.
+ - You know, kids text a lot today. It’s phenomenal.
+ - One of the most important things that I have learned in my 57 years is that life is all about choices. On every journey you take, you face choices. At every fork in the road, you make a choice. And it is those decisions that shape our lives.
+ - It is my mission to ensure that HIV-positive children and children with AIDS are no longer overlooked and that they begin receiving the treatment and care they deserve.
+ - There’s no psychological barrier anymore that stops a young person or an older person from taking heroin.
+ - Judges need to restrict themselves to the proper resolution of the case before them. They need to avoid the temptation to set broad policy.
+ - When it comes to our Constitution, judges perform, certainly, an important role. But the people, acting through their elected representatives, should play an even more important role.
+ - To be elected president, you have to do more than tear down your opponents. You have to give the American people a reason to vote for you – a reason to hope – a reason to believe that under your leadership, America will be better.
+ - It’s in every single county. It’s in our cities but it’s also in our wealthier suburbs. It’s in our small towns. There is no place in Ohio where you can hide from drug epidemic .
+ - I have seen the cycle of a non-violent, mentally ill offender who is arrested repeatedly and put into the system repeatedly-never being treated for his illness and, as a result, becoming more and more ill.
+ - I find it personally distracting when kids are constantly texting, but they can be texting something that is just benign and just fine.
+ - In 1937, President Franklin Roosevelt reminded us that the Constitution is, and I quote, “a layman’s document, not a lawyer’s contract.”
+ - This is a time for a national conversation. A conversation about the document that binds us as a nation and a people. That document, of course, is the Constitution.
+ - Yeah, look, I think what we have with the social media and the digital media, and all the telecommunications we have today is a big megaphone, amplification.
+ - In his brief 21 years on this earth, Michael Smith Jr. touched countless lives.
+ - Some have even suggested that this recent trend has transformed our democracy from one founded on, “We the people,” to one ruled by, “We the court.”
+ - To add to the confusion, some of the court’s decisions involved multiple concurrences and dissents, making it hard even for lawyers and judges to figure out what the law is and why.
+ - The Constitution empowers the people to resolve our day’s most contentious issues. When judges forget this basic truth, they do a disservice to our democracy and to our constitution.
+ - Since its inception, our Nation has stood on the foundations of compassion and justice.
+ - There is no place in Ohio where you couldn’t have drugs delivered to you in 15, 20 minutes.
+ - The court’s recent decisions have made life more difficult for the democratic institutions that perform the day- to-day work of our nation.
+ - Sometimes local, state and federal laws so clearly run afoul of the Constitution that the court must step in and strike them down. In most cases, the court performs this admirably and with great restraint.
+ - If Congress were to censure, fine or otherwise try to punish a president, it would dramatically alter the balance of power between the branches...
+ - Im for the fracking. I think its an opportunity for Ohio to really get a lot of jobs. But we have to do it right. We have to really take a deep breath, do it right, make sure the public is protected, make sure our land is protected.
+ - The entertainment industry is encouraging young people to defy and deceive their parents.
+ - Without question, the court does play a vital role in our constitutional system.
+ - Judges are not members of Congress, they’re not state legislators, governors, nor presidents. Their job is not to pass laws, implement regulations, nor to make policy.
+ - Our constitutional system is founded on democracy: the will of the people, not the unchecked rule of judges.
+ - This is the worst drug epidemic I’ve seen in my lifetime.
+ - After all, our Constitution was intended as a popular document. It was drafted and ratified by the people. It established democratic institutions. It entrusts the people with the power to make the tough decisions. And, in most cases, it prefers the will of the people to the unchecked rule of judges.
+ - I’m not the first to have raised these democratic concerns. Many have faulted the court for its lack of clarity in certain cases and many have criticized its recent lack of deference to decisions made by state legislatures and Congress.
+
+31 quotes

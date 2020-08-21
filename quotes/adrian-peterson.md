@@ -1,0 +1,39 @@
+ - I love my son more than any of you can imagine.
+ - Adversity makes me hungrier. I thrive on being able to make a way out of No Way.
+ - I dedicate myself and work hard in the weight room and treat every practice as if it were a game.
+ - I remember my mistakes more than my success.
+ - Seafood was always my favorite food. I mean, fried lobster? Come on. Once I found out shrimp, scallops and lobster were my allergic triggers, I had to change my diet.
+ - Jesus Christ – He means the world to me. So many different situations I’ve been through, through my childhood and now my adulthood; I lost my brother at a young age. He got hit by a car right in front of me. I had to be strong for my mom.
+ - With trials, you become wiser. You learn more about yourself and the people surrounding you. Me personally, I’ve never been the type of person to judge anyone over wrongdoing, no matter what it is. I’m just not a judgmental person.
+ - It’s modern-day slavery.
+ - Thankfully, I’m lucky enough to be able to eat ice cream. I’ve got to have my cookies and cream! But I work out a lot, so I burn a lot of calories.
+ - I run angry. Football allows me to take out some of my pain on the field.
+ - My dad means a lot to me. He’s the one who put a football in my hands.
+ - I’m looking forward to getting back on the field, it’s what I love to do.
+ - I like to bless people and do things without the world knowing about it, because I’m not in it for the glory. I do it because it comes from my heart. As long as I keep doing that, I’m satisfied.
+ - It feels good to give back to the people who support you.
+ - I’m really not vocal and expressive, but I’m starting to get more comfortable to open up.
+ - I try to be open with everybody, try to make everybody feel welcome and make them feel like, hey, I’m an easy person to talk to, get along with.
+ - I know that many people disagree with the way I disciplined my child. I also understand after meeting with a psychologist that there are other alternative ways of disciplining a child that may be more appropriate.
+ - The first two months were painful and they really tested my manhood because there were times I didn’t want to get up because I was in pain. That willpower has to kick in.
+ - I have the mentality that if you come in playing not to get hurt, that’s when you’re going to get hurt. So I play relentless.
+ - I have always believed that the way my parents disciplined me has a great deal to do with the success I have enjoyed as a man.
+ - I’ve been running like this since I was seven.
+ - People say I’m injury-prone but that’s definitely not true.
+ - I’m pretty sure I could outrun the whole Dallas Cowboys team.
+ - I have to continue to be a great leader and contribute in any way that I can, and get guys to follow suit. That’s how you turn a team around.
+ - When I’m out, maybe I’m looking at the fried chicken, but I know I need to order the grilled. But I’m still from the country. I love my fried food and my neck bones and all that, too.
+ - I take football as an avenue to different opportunities. Football is not using me; I’m using football.
+ - I can catch the ball. You’ve got to throw it to me.
+ - I want to be the best player to ever play this game.
+ - I try to eat a lot of baked foods, fish, chicken, potatoes, stuff like that. Grab me a Muscle Milk. That helps.
+ - I definitely run up right, and I’ve got pretty good speed.
+ - I want people to come to the game to see what I will do next.
+ - I want to help my team get to the playoffs, win, and run wild.
+ - When I go out on the field, I just put it in my mind that I’m playing for my family.
+ - I want to win four or five championship rings. That’s how I dream. I dream big.
+ - I would sacrifice 1,000 yards rushing to win a Super Bowl. But I want to be the first back to have back-to-back 2,000-yard seasons.
+ - The physical part has a lot to do with the mental part.
+ - If you don’t think that you’re the best, how do you become the best?
+
+37 quotes

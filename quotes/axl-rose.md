@@ -1,0 +1,36 @@
+ - Fear is where there is no love. Love is where there is no fear.
+ - Life sucks, but in a beautiful kind of way.
+ - We are made up of two contrasting ideals: Love And Fear. Pick One and Live.
+ - November Rain is a song about not wanting to be in a state of having to deal with unrequited love.
+ - Be bitter, stay angry, and blame everyone!
+ - What’s so civil about war anyway?
+ - If love is blind I guess I’ll buy myself a cane.
+ - We take it for granted we know the whole story – We judge a book by its cover and read what we want between selected lines.
+ - I like to be real private; you don’t always want everyone around you – even when they like you.
+ - Freddie Mercury and Elton John are, like, two of the biggest Influences in my whole life. And probably always will be.
+ - Sometimes your friends are your lovers, or have been at one time.
+ - Sometimes I would want to sink, and then while I was sinking I’d go, “Wait a minute, this isn’t what I want to do,” and I would calm down while I was sinking and then start rising back to the surface again.
+ - At times I enjoy writing and at others times I just hate it because it’s definitely having to go back and experience some pain and express what you really feel.
+ - Many times drugs and alcohol – there’s a technical term that they’re called, emotional suppressants – are the only things that can help a person survive and get through and be able to deal with their pain.
+ - I don’t even know my own phone number.
+ - There was a much more self-destructive nature in ‘Appetite.’ It was a going-for-it-at-all-cost thing that worked then.
+ - We have a saying in Guns N Roses: When somebodys gonna get yelled at, theyre gonna get the corn.
+ - I try to be respectful about getting an honor or recognition, but I don’t really know what the Rock Hall actually is. In my experience with the people who run it, I don’t see it having to do with anything other than them making money.
+ - I could beat my mike stand into the stage, but I was still in pain. Maybe fans liked it, but sometimes people forget you’re a person and they’re more into the entertainment value. It’s taken a long time to turn that around and give a strong show without it being a kamikaze show.
+ - I feel I have a responsibility to myself, a responsibility to explain where we’re coming from. Because a song or the performance of a song is a lot like a work of art.
+ - I write the vocals last, because I wanted to invent the music first and push the music to the level that I had to compete against it.
+ - I like feeling a sense of unity with the crowd even though everybody might be thinking something different.
+ - I discovered I scream the same way whether I’m about to be devoured by a great white shark or if a piece of seaweed touches my foot.
+ - I like Nine Inch Nails, and I like hip-hop.
+ - Let sleeping dogs lie or lying dogs sleep or whatever. Time to move on. People get divorced. Life doesn’t owe you your own personal happy ending especially at another’s, or in this case several others’, expense.
+ - It’s really hard to maintain a one-on-one relationship if the other person is not going to allow me to be with other people.
+ - If you are really into waiting, try holding your breath for Jesus, ’cause I hear the payoff may be that much greater.
+ - I personally don’t do any hard drugs, because they get in the way of me getting to my base issues, and I’d rather get rid of the excess baggage than find a way to shove it deeper in the closet.
+ - I go to movies, go out with friends, go to car shows. I have a zoo.
+ - I sing in five or six different voices that are all part of me. Its not contrived.
+ - I guess I like who I am now. I’d just like to have a little more internal peace. I’m sure everybody would.
+ - I think the pressure has also helped me want to rise above that pressure, and it has helped in accelerating the healing process. It’s helped give me a drive. I have a definite survival drive, and the pressure gave me a drive to get on top of it.
+ - In general, I usually don’t really go by or live my life by a clock, and outside of touring, I don’t really ask anyone else to. It’s not out of lack of respect for anyone or intentional.
+ - I’d just like to say that I have a personal disgust for small dogs, like poodles. I have some serious physical problems with them. Everything about them means I must kill them. I must.
+
+34 quotes

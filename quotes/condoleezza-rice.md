@@ -1,0 +1,147 @@
+ - There’s no greater challenge and there is no greater honor than to be in public service.
+ - Life is full of surprises and and serendipity. Being open to unexpected turns in the road is an important part of success. If you try to plan every step, you may miss those wonderful twists and turns. Just find your next adventure-do it well, enjoy it-and then, not now, think about what comes next.
+ - Great leaders never accept the world as it was and always work for the world as it should be.
+ - We need a common enemy to unite us.
+ - Education is of no value and talent is worthless – unless you have an unwavering aim. Never find yourself without a compass.
+ - Self esteem comes from achievements. Not from lax standards and false praise.
+ - If the strong exploit the weak, democracy will not be stable.
+ - I firmly believe you never should spend your time being the former anything.
+ - Every good leader is part manager and every good manager is part leader.
+ - We don’t want the smoking gun to be a mushroom cloud.
+ - Power is nothing unless you can turn it into influence.
+ - Leading in a complex world means recognizing the simple things you can do to make things better.
+ - History’s long arc is different than the today’s headlines.
+ - Every life is capable of greatness.
+ - What we’re hearing from everyone is that they understand that Saddam Hussein is a threat. They understand that he’s been a threat for a long time.
+ - There are many other arrows in our diplomatic quiver.
+ - Truly remarkable leadership is not just about motivating others to follow, it’s about inspiring them to become leaders themselves and setting the stage for even greater opportunities for future generations.
+ - Today’s headlines and history’s judgment are rarely the same. If you are too attentive to the former, you will most certainly not do the hard work of securing the latter.
+ - You can never ask others to do something you would not do. That is integrity.
+ - You have to have a strong sense of your values and a strong sense of who you are, because there are a lot of events and a lot of people who will pull you in this direction or that direction.
+ - The Iranian people have a proud past. They merit a great future.
+ - We need to move beyond the idea that girls can be leaders and create the expectation that they should be leaders.
+ - When somebody underestimated me, it made me want to prove them wrong.
+ - Every life is worthy and every life is capable of greatness. We have an obligation to make sure that opportunity for greatness is there.
+ - You will make a difference in the world, but not immediately. Your first obligation is to find something you like doing, because if you like doing it, you’ll do it well.
+ - I use the word power broadly. Even more important than military and economic power is the power of ideas, the power of compassion, and the power of hope.
+ - What you know today can affect what you do tomorrow, but not what you did yesterday.
+ - Education is transformational. It changes lives. That is why people work so hard to become educated and why education has always been the key to the American Dream, the force that erases arbitrary divisions of race and class and culture and unlocks every person’s God-given potential.
+ - Well, there are many things, whenever you look back, that you would’ve done differently. We’re all human. We do our best at the time. I really wish that we had passed a comprehensive immigration bill because that would’ve really helped our country. We came close, but we couldn’t.
+ - Today’s headlines and history’s judgement are not the same.
+ - You know, I’ve never believed, in anything, that you had to have role models who looked like you to do something. If I’d been waiting for a black, female, soviet specialist role model, I’d be still waiting.
+ - The United States government does not authorise or condone torture of detainees. Torture, and conspiracy to commit torture, are crimes under US law, wherever they may occur in the world.
+ - I was born in segregated Birmingham, Alabama. I didn’t have a white classmate till we moved to Denver.
+ - I never much cared for politics. I love policy, and I love international policy in particular. I got to be Secretary of State; it really doesn’t get much better than that. I love what I do. I love being a professor.
+ - You never cede control of your own ability to be successful to something called racism.
+ - Everyone wants Russia to be a prosperous, democratic state that is fully integrated.
+ - If I can look at your zip code and I can tell whether you’re going to get a good education, we’ve got a real problem.
+ - My mom was a teacher – I have the greatest respect for the profession – we need great teachers – not poor or mediocre ones.
+ - In America, with education and hard work, it really does not matter where you came from; it matters only where you are going.
+ - Your friends and your family, if you’re close to them, they won’t let you get too far from who you were or from who you are. And so I love staying close to people who’ve always known me. That’s probably the best leavening that you could possibly have.
+ - Defeating Human Trafficking is a great moral calling of our time.
+ - This is not 1968 and the invasion of Czechoslovakia, where Russia can threaten its neighbors, occupy a capital, overthrow a government, and get away with it. Things have changed.
+ - The first Republican I knew was my father and he is still the Republican I most admire. He joined our party because the Democrats in Jim Crow Alabama of 1952 would not register him to vote. The Republicans did. My father has never forgotten that day, and neither have I.
+ - You might not be able to control your circumstances but you can control your response to your circumstances.
+ - What we will not wait for is that particular nexus of terrorism, weapons of mass destruction that is extremism, and the technology to come together in a way that is harmful to the United States.
+ - Punish France, ignore Germany, and forgive Russia.
+ - It’s so much a part of me that it’s almost hard to describe myself in the absence of it. I know that for me it means asking for guidance, and that in the toughest times there’s a personal savior that I can rely on. And I’m very grateful to my parents for giving me that.
+ - The first step for a leader is to be right with yourself. Integrity is the basis of leadership.
+ - Differences can be a strength.
+ - Spirituality and faith are at the core of who I am. I was born to deeply religious parents who were able to give me that rock solid foundation in the church and in my faith which really has served me so well.
+ - It’s bad policy to speculate on what you’ll do if a plan fails when you’re trying to make a plan work.
+ - I’ve never really been a workaholic. I work very hard, but I also enjoy playing. I think it’s important to have a balanced and well-rounded life.
+ - Out of struggle very often comes victory.
+ - After all, when the world looks to America, they look to us because we are the most successful political and economic experiment in human history.
+ - We’re not going to negotiate about the terms of terrorism. You don’t negotiate about terrorism. It’s is wrong to engage in terrorism, and there isn’t anything to negotiate.
+ - Multilateral diplomacy is hard. It’s slower, it’s tougher, it’s a bigger slog. I’ve learned that sometimes the things you’d most like to do something about, you really have difficulty unless the international community really mobilizes.
+ - The problem here is that there will always be some uncertainty about how quickly Saddam can acquire nuclear weapons. But we don’t want the smoking gun to be a mushroom cloud.
+ - I’m a great believer in the fact that as you get to know someone, it matters not what religious background they have, or what their nationality is, or where they came from. And I think that’s how Americans really do relate to each other on a personal level.
+ - Democracy is the most realistic way for diverse peoples to resolve their differences, and share power, and heal social divisions without violence or repression.
+ - Well, of course, all of the statistics say there are fewer eligible black men in my circle. But I’ve never thought of it that way. I believe that if the right person came into my life that would have been terrific.
+ - It takes courage to set priorities because doing so is an admission that American policy cannot be all things to all people – or rather to all interest groups.
+ - I find that the great majority of public servants across the entire political spectrum come because they believe in the United States and they want to change the world.
+ - I’m a committed Republican. I believe very strongly in individual liberty. I tend not to think much in terms of group politics. I really am a kind of small government person and I’m most certainly a fiscal conservative and strong on national defense.
+ - I’ve always said that I expected to grow up and get married like any nice southern girl, but the fact is you don’t get married in the abstract. You find someone that you’d like to be married to.
+ - My job is to try to advance American foreign policy, to try to advance the president’s agenda on democracy and human rights.
+ - When you’re in government, of course, you have protection and you have people who are looking out for your wellbeing, but you can’t live in a state of fear. If you do, you’re not going to do your job very well and you’re going to give yourself high blood pressure, which probably isn’t worth it.
+ - We’re in the middle of the transformation of a society that has handled its politics through repression to a society that will handle its politics through democratic institutions.
+ - I’m saying there is no way that I will do this, because it’s really not me. I know my strengths, and governor Romney needs to find someone who wants to run with him. There are many people who will do it very, very well, and I’ll support the ticket.
+ - What I tell student athletes is first of all, you’ve made good choices this far in order to be able to be in college and to be an athlete. Keep making good choices.
+ - When are we going to stop making excuses for the terrorists and saying that somebody is making them do it? No, these are simply evil people who want to kill.
+ - As I was telling my husb – As I was telling President Bush.
+ - I don’t like anything that’s “just an escape.” To me the best part of golf is that, unlike my tennis game, I can actually get better. I’ve probably reached my plateau in tennis, but in golf I have a lot of room for improvement. I really enjoy working on my game. I like practicing. I chart my rounds.
+ - The essence of America – that which really unites us – is not ethnicity, or nationality or religion – it is an idea – and what an idea it is: That you can come from humble circumstances and do great things.
+ - I don’t think that anybody could have predicted that these people would take an airplane and slam it into the World Trade Center, take another one and slam it into the Pentagon, that they would try to use an airplane as a missile.
+ - I didn’t run for student council president. I don’t see myself in any way in elected office. I love policy. I’m not particularly fond of politics.
+ - My parents elected me president of the family when I was 4. We actually had an election every year and I always won. I’m an only child, and I could count on my mother’s vote.
+ - We needed to go back on the offense and offer clear leadership on Iraq.
+ - I don’t think anybody can take the word of Saddam Hussein and his regime, and certainly an American president and allies who are obligated to worry about the safety and security of our countries, cannot take the word of this dictator, who lies, pathologically lies.
+ - I remember classes in college where the professor was espousing certain theories about how blacks were inherently less intelligent. But I learned a long time ago to give people the benefit of the doubt, not to assume that somebody was reacting to you because of race.
+ - I will never forget the bright September day, standing at my desk in the White House, when my young assistant said that a plane had hit the World Trade Center – and then a second one – and a third, the Pentagon.
+ - Now, al Qaeda’s on the run. Afghanistan is no longer a base of operations. The Afghan government is a friendly government that is trying to bring democracy to its people.
+ - What the United States has done hasn’t always been liked or popular. But if you look at some of the most populous places in the world – China, India – the United States is not only respected but, in fact, popular.
+ - I think the word of the United States has been as good as gold in its international dealings and its agreements.
+ - No American president can support an Egypt that calls into question the historic treaty between Israel and Egypt. And no American president can support an Egypt that doesn’t fully recognize women’s rights or the rights of religious minorities.
+ - Diplomacy, if properly practiced, is not just talking for the sake of talking.
+ - We’ve been a country that’s been fortunate to be protected by two oceans, to not have serious attacks on our territory for most of our history. And we were unfortunately reminded in a very devastating way of our vulnerability.
+ - At no time did I intend to, or do I believe that I did put forward false information to the American people.
+ - To say that people around the world deserve the same, the same life that we have in the United States, the same freedoms that we have, that seems to me, humble. I think it’s humble to say that the United States, which has been given so much, should give back.
+ - We know that there are unaccounted-for Scud and other ballistic missiles in Iraq. And part of the problem is that, since 1998, there has been no way to even get minimal information about those programs except through intelligence means.
+ - Our policies toward Iraq simply are to protect the region and to protect Iraq’s people and neighbors.
+ - I think it’s very humble to believe that there is no man, woman or child who should live in tyranny. That people who say, well, maybe Arabs just aren’t ready for democracy or maybe Africans just are going to have corrupt governments, that seems to me arrogant.
+ - Does anybody think these people were just sitting around drinking tea?
+ - We’re in a new world. We’re in a world in which the possibility of terrorism, married up with technology, could make us very, very sorry that we didn’t act.
+ - There is nothing better than being in a classroom with really, really brilliant students, and opening up new worlds to them. That’s what I love doing.
+ - People may oppose you, but when they realize you can hurt them, they’ll join your side.
+ - Working very closely with the Department of Homeland Security to match up what is available with what is needed.
+ - But the truth of the matter is, we’re an open society, we want to remain an open society, and there will continue to be vulnerability. That’s why we have to meet the threats when they are not yet taking place on our territory and on our soil.
+ - As secretary of state it’s been an enormous honor to represent this great country that I love so much – I have really seen that our great strengths are in the ability of people to reach their potential here.
+ - Your passion may be hard to spot, so keep an open mind and keep searching.
+ - In any country, if you don’t have countervailing institutions, the power of any one president is problematic for democratic development.
+ - Any time you have a situation in which you are calling for more time rather than calling for Iraq to immediately comply, it plays into the hands of Saddam Hussein.
+ - You do have to keep in mind as you’re going through extraordinarily difficult circumstances, that if you stay true, true to your values, if you stay true to your principles, if you believe in these values, then you can work in that context to right policies that may not be working.
+ - For the United States, supporting international development is more than just an expression of our compassion. It is a vital investment in the free, prosperous, and peaceful international order that fundamentally serves our national interest.
+ - Iran can and should be a responsible state, not the leading state sponsor of terror.
+ - You know, life is not one in which you just get to choose the things every day that come easily to you. And it’s also true – and this is the self-esteem problem – you learn that there are people who are better at things than you are.
+ - We can’t live true to our set of values unless American educational system is strong. I really believe that if we don’t get that right we will not compete because we won’t believe that our people can compete, and we’ll turn inward. We won’t lead. That will be bad for the world.
+ - When I went off to college, I was expecting to be a concert musician. In music school I heard all of these kids who were just unbelievable. And I understand that you can be very, very good, but there’s something that separates very, very good from great, and I knew that I wasn’t great.
+ - Once a month I play with a chamber music quartet. I play almost no solo music anymore because I so enjoy the interaction. The members of my quartet have become some of my best friends and so I really enjoy it now in ways that I didn’t before.
+ - Even when you cherish democratic ideals, it is never easy to turn them into effective democratic institutions. This process will take decades.
+ - As Americans we like to believe that we’re loved in international politics or that people like what we’re doing. But we also recognize that we have an extraordinary responsibility to do what we think is right, and that sometimes what we do is not very popular.
+ - There was no silver bullet that could have prevented the 11 September attacks. There was nothing demonstrating or showing that something was coming in the United States. If there had been something, we would have acted on it.
+ - Well, I didn’t feel that I could do justice to this story of my parents and their generation, and all that they did to make it possible for me to be who I am, if I sort of just put it at the beginning of a book about my last eight years in foreign policy.
+ - This is the democratic process at work, What you’re seeing with this process is the Iraqi people embracing American-style democracy.
+ - I don’t believe for a minute anybody allowed people to suffer because they are African Americans, Nobody, especially the president, would have left people unattended on the basis of race.
+ - America cannot do most of what needs to be done alone. You need friends. And we have good friends around the world. We have friends with whom we share values in Europe and Asia – thanks to the forward march of democracy – in Latin America, in Africa, and increasingly in the Middle East.
+ - Separation of powers is a problem for foreign policy.
+ - The United States is willing to exert strong leadership to give diplomacy its very best chance to succeed.
+ - The pursuit by the Iranian regime of nuclear weapons represents a direct threat to the entire international community, including to the United States and to the Persian Gulf region.
+ - Well, there’s been plenty of ultimatums, and one thing that we better be very clear is that we can’t continue to have the kind of defiance of the United Nations, the defiance of the international community that we’ve had.
+ - Success is not assured, but America is resolute: this is the best chance for peace we are likely to see for some years to come – and we are acting to help Israelis and Palestinians seize this chance.
+ - Richard Clarke had plenty of opportunities to tell us in the administration that he thought the war on terrorism was moving in the wrong direction and he chose not to.
+ - I do think people have suggested that it would be a good thing if the reporting were accurate on Al-Jazeera and if it were not slanted in ways that appear to be at times just purely inaccurate.
+ - I’ve been an athlete all my life. I was a competitive figure skater, and then when I realized skating was not an adult sport I took up tennis and played that quite seriously from the time I was about 18.
+ - When people see the terrible scenes of violence on television, when we mourn the death of each and every American man and woman in uniform or a civilian that’s killed, that it’s hard to see the progress that’s being made and it’s hard to believe that this is all going to come out for the better.
+ - To see an African-American elected president means that this country is really finally coming full circle from the birth defect of slavery.
+ - For 60 years, my country, the United States, pursued stability at the expense of democracy in this region, here in the Middle East, and we achieved neither.
+ - When I said I had always hoped to marry in my race, I really do mean that. That doesn’t mean I absolutely wouldn’t marry outside of it, but there’s a culture and traditions to maintain, and I have great pride in them, and I always thought it would be wonderful to share that with somebody of my race.
+ - So I think, if September 11 taught us anything, it taught us that we’re vulnerable, and vulnerable in ways that we didn’t fully understand.
+ - We are at war, and our security as a nation depends on winning that war.
+ - But I want to just caution, it is not incumbent on the United States to prove that Saddam Hussein is trying to acquire weapons of mass destruction. He’s already demonstrated that he’s trying to acquire weapons of mass destruction.
+ - I don’t think anybody could have predicted that they would try to use an airplane as a missile, a hijacked airplane as a missile.
+ - When diplomacy has been exhausted, the Security Council must become involved. Questions about Iran’s nuclear activities remain unanswered, despite repeated efforts by the IAEA.
+ - I think that the United States has always been most effective when it is leading both from power and principle.
+ - There’s no doubt that it’s still a dangerous place, Afghanistan. The fortunate thing is that the United States was helping to provide security for Chairman Karzai. And it shows that the United States is committed to that regime.
+ - I talked about the need for American leadership, I talked about the importance of the United States to a more peaceful world, a world that has been quite turbulent in recent years, and needs a strong American anchor.
+ - My Fox guys, I love every single one of them.
+ - I’m a terrible long-term planner.
+ - But in terms of Saddam Hussein being there, let’s remember that his country is divided, in effect. He does not control the northern part of his country. We are able to keep arms from him. His military forces have not been rebuilt.
+ - Everybody in the world is capable of democratic development. Some people in the world are unlucky enough to get stuck with really bad political leadership and with really bad political institutions.
+ - America is a remarkable place in that social attitudes change almost imperceptibly, and then you wake up the next day and they’ve changed. But they’ve been changing all the time.
+ - You cannot be on one hand dedicated to peace and on the other dedicated to violence. Those two things are irreconcilable.
+ - The quicker we get about the business of reducing our reliance on oil the better.
+ - The people of the Middle East share the desire for freedom. We have an opportunity – and an obligation – to help them turn this desire into reality.
+ - There clearly are contacts between al Qaeda and Iraq that can be documented; there clearly is testimony that some of the contacts have been important contacts and that there’s a relationship here.
+ - I certainly think that the world views the United States as a place to be respected. All over the world our values are respected; who we are, a place that you can come and come from modest circumstances to great things, that’s respected.
+
+145 quotes

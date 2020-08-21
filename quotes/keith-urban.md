@@ -1,0 +1,44 @@
+ - I don’t want to impress, I want to inspire.
+ - Life is a balance of holding on and letting go.
+ - Days go by I can feel ’em flying like a hand out the window in the wind!
+ - Everybody needs somebody sometimes.
+ - You changed my life. You changed my ways. I don’t even recognize myself these days. It must be a reflection of you, only you.
+ - I always wish I’d had more mentors, better mentors, wiser mentors, people who were proper professional working musicians to guide me as I was coming up.
+ - The only place that I wanna be is where you are, cause any more than a heartbeat away is just too far.
+ - If it’s a real dream it’s uncrushable.
+ - I’m a little more comfortable in that role. I love being in the studio.
+ - She laid her heart and soul right in your hands And you stole her every dream and crushed her plans She never even knew she had a choice And that’s what happens when the only voice she hears is telling her she can’t You stupid boy.
+ - A song like ‘Once in a Lifetime’ is inspired by my marriage – it’s a good, life-changing happening in my life. I think when you find your once-in-a-lifetime love, that’s what everybody’s looking for.
+ - Youre always in a different headspace when you make each record, so hopefully theyre all different. You just pick up things that you wish you hadnt done on the first one.
+ - It took a while for her to figure out she could run but when she did she was long gone, Long gone...
+ - There’s no soul in perfection.
+ - Raw is a good place for an artist. It’s where the truth comes out.
+ - If I knew what I was doing, I’d be doing it right now. I would be the best damn poet, silver words out of my mouth. My words might not be magic, but they cut straight to the truth. So if you need a lover and a friend, baby, I’m in.
+ - Being with my family is very important to me, and touring is very important to me, too, because it’s who I am. It’s what I do.
+ - Red carpets are pretty unpredictable. You can go from one person asking you what you’re wearing to the next person asking you about the situation in Haiti. It’s the extreme juxtaposition, and some of the questions can throw me!
+ - I’ve never wanted to name an album from a song title if I could avoid it because I like it to be a body of work.
+ - You go through life experiences. Each record captures a different turning point in my life.
+ - Let water wash our bodies clean, and love wash our souls.
+ - The world is getting so reality-driven these days. It seems to be accelerating exponentially. But it’s a dangerous game for a lot of people.
+ - There are certain songs that are sacred. People want to hear them just as they are in their head; they don’t want you messing around with them. And then there are some other songs, if they’ve been around a long time in our set list, that I think we can take some creative liberties with.
+ - From the cradle to the grave, temptations all around. But no matter how good the fix, its gonna take you down.
+ - I love the beginnings of artists when all they’ve got is raw talent and nothing else.
+ - Once we get into the groove, we’re kind of like long-distance runners – that adrenalin kicks in for me and I just keep running – and I don’t stop!
+ - Nothing like seeing the genesis of the relationship between an instrument and a child.
+ - At the end of the day, the Grammys are about recognizing genres that are making an impact.
+ - I’ve always been a pretty private, quiet kind of person and so I haven’t had to change my life really at all, I don’t think.
+ - I think it took me a while to convince Nashville that what I do is genuine and my heart’s in the right place, and I love country music.
+ - Getting on the bus and touring was my life. And when that was not around, I felt myself a bit lost at times, because that was all I had.
+ - I don’t swear much; I’ve taken those words out of my vocabulary, and having kids, you have to have two sets of language!
+ - It’s something I’ve always loved doing. I’m not one of the artists who comes in and just does my bit. I’m there every second of every day. That’s my hands-on situation.
+ - Country seems to be finding a bigger audience. Certainly an audience out of the general country scene is finding me.
+ - It’s not the case of turning in a bunch of songs and recording the next month. I think you’re looking for songs all year long and you’re writing all year long.
+ - I think the industry is oblivious to the fact that most people listen to all kinds of stuff. I personally don’t know of anyone who listens to only one genre of music. It’s vanity because no one does.
+ - I make no apologies for being a huge fan of radio songs.
+ - Since I was a kid I just wanted to be in Nashville.
+ - Everyday I see a little more of my father in me...
+ - I tend to write better when I’m not touring.
+ - My father’s record collection was all country. That’s how I was exposed to it.
+ - Sometimes I just cry at random stuff!
+
+42 quotes

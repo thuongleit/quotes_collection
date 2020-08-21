@@ -1,0 +1,30 @@
+ - Different people work different ways.
+ - Fear changes everything. We’re animals, and when we get afraid we act like animals. I’m not exempt from that.
+ - No one can help you write. No one can teach you how to write.
+ - I don’t remember writing anything until I wrote my college application.
+ - You change or you hide your head in the sand.
+ - I love IMAX when it works right.
+ - The people in the Philippines are so extraordinarily nice.
+ - I love the idea of spies in love. How would it work between two people who were so programmed to lie and be suspicious, who have a whole life based on pretence?
+ - You just try to find something that interests you, and particular something that interests you that’s gonna consume you the way that these big movies just really eat you up.
+ - A reversal is just anything that’s a surprise. It’s a way of keeping the audience interested.
+ - I can’t imagine directing from someone else’s script.
+ - Ambiguity depletes as your budget rises.
+ - I spend a lot of time in a sort of free state when I’m writing in the beginning and sketching.
+ - I’ve never taken a job on anything I didn’t want to do.
+ - I think what I’ve recognized over the years is that I’m very, very bingey, extremely bingey when it comes to writing.
+ - I used to be, when I was young, I used to be extremely regular and very organized.
+ - I don’t like to be crazy on different levels all of the time.
+ - Once a film costs a certain amount of money, things have to round off.
+ - Developing films with directors, developing films with actors, is a poor percentage play for a screenwriter.
+ - I worked for a lot of directors.
+ - I never really like it when other writers talk about coming in behind people and rewriting.
+ - No one should feel sorry for a successful screenwriter.
+ - I prefer writing originals.
+ - I have written a bunch of scripts that have not gotten produced, much more so early in my career than later.
+ - Everyone I know who used to be in the intelligence community is moving into the corporate world.
+ - I like knowing where I am in action sequences if I’m supposed to.
+ - If you think about it, episodic filmmaking has not been something that people have really done.
+ - I like emotions, but I really don’t like sentimentality, and I don’t like when things break their spell.
+
+28 quotes

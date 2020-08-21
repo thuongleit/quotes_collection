@@ -1,0 +1,81 @@
+ - Man is born to live, not to prepare for life.
+ - I love you wildly, insanely, infinitely.
+ - When a great moment knocks on the door of your life, it is often no louder than the beating of your heart, and it is very easy to miss it.
+ - Only the solitary seek the truth, and they break with all those who don’t love it sufficiently.
+ - We’re all time’s captives, hostages to eternity.
+ - I don’t like people who have never fallen or stumbled. Their virtue is lifeless and it isn’t of much value. Life hasn’t revealed its beauty to them.
+ - Literature is the art of discovering something extraordinary about ordinary people, and saying with ordinary words something extraordinary.
+ - They don’t ask much of you. They only want you to hate the things you love and to love the things you despise.
+ - Surprise is the greatest gift which life can grant us.
+ - The whole wide world is a cathedral; I stand inside, the air is calm, And from afar at times there reaches My ear the echo of a psalm.
+ - You and I, it’s as though we have been taught to kiss in heaven and sent down to earth together, to see if we know what we were taught.
+ - What is laid down, ordered, factual is never enough to embrace the whole truth: life always spills over the rim of every cup.
+ - How wonderful to be alive, he thought. But why does it always hurt?
+ - And remember: you must never, under any circumstances, despair. To hope and to act, these are our duties in misfortune.
+ - To be a woman is a great adventure; To drive men mad is a heroic thing.
+ - An unshared happiness is not happiness.
+ - I hate everything you say, but not enough to kill you for it.
+ - They loved each other, not driven by necessity, by the “blaze of passion” often falsely ascribed to love. They loved each other because everything around them willed it, the trees and the clouds and the sky over their heads and the earth under their feet.
+ - And so it turned out that only a life similar to the life of those around us, merging with it without a ripple, is genuine life, and that an unshared happiness is not happiness.
+ - Love is not weakness. It is strong. Only the sacrament of marriage can contain it.
+ - As for the men in power, they are so anxious to establish the myth of infallibility that they do their utmost to ignore truth.
+ - Our evenings are farewells. Our parties are testaments. So that the secret stream of suffering. May warm the cold of life.
+ - He comes as a guest to the feast of existence, and knows that what matters is not how much he inherits but how he behaves at the feast, and what people remember and love him for.
+ - Gregariousness is always the refuge of mediocrities, whether they swear by Soloviev or Kant or Marx. Only individuals seek the truth, and they shun those whose sole concern is not the truth.
+ - As far as modern writing is concerned, it is rarely rewarding to translate it, although it might be easy. Translation is very much like copying paintings.
+ - If you want to know, life is the principle of self-renewal, it is constantly renewing and remaking and changing and transfiguring itself...
+ - Art always serves beauty, and beauty is the joy of possessing form, and form is the key to organic life since no living thing can exist without it.
+ - Salvation lies not in the faithfulness to forms, but in the liberation from them.
+ - Art is unthinkable without risk and spiritual self-sacrifice.
+ - How many things in the world deserve our loyalty? Very few indeed. I think one should be loyal to immortality, which is another word for life, a stronger word for it.
+ - I have been writing in spurts, bit by bit. It is incredibly difficult. Everything is corroded, broken, dismantled; everything is covered with hardened layers of accumulated insensitivity, deafness, entrenched routine. It is disgusting.
+ - He realised, more vividly than ever before, that art had two constant, two unending preoccupations: it is always meditating upon death and it is always thereby creating life.
+ - I am caught like a beast at bay. Somewhere are people, freedom, light, But all I hear is the baying of the pack, There is no way out for me.
+ - Immensely grateful, touched, proud, astonished, abashed.
+ - But the division in him was a sorrow and a torment, and he became accustomed to it only as one gets used to an unhealed and frequently reopened wound.
+ - If it’s so painful to love and absorb electricity, how much more painful it is to be a woman, to be the electricity, to inspire love.
+ - Oh, what a love it was, utterly free, unique, like nothing else on earth! Their thoughts were like other people’s songs.
+ - It is no longer possible for lyric poetry to express the immensity of our experience. Life has grown too cumbersome, too complicated. We have acquired values which are best expressed in prose.
+ - No single man makes history. History cannot be seen just as one cannot see grass growing.
+ - Farewell, my great one, my own, farewell, my pride, farewell, my swift, deep, dear river, how I loved your daylong splashing, how I loved to plunge into your cold waves.
+ - In this era of world wars, in this atomic age, values have changed. We have learned that we are guests of existence, travelers between two stations. We must discover security within ourselves.
+ - No bad man can be a good poet.
+ - A corner draft fluttered the flame And the white fever of temptation Upswept its angel wings that cast A cruciform shadow.
+ - As before the collapse, the setting sun brushed the tiles, brought out the warm brown glow on the wallpaper, and hung the shadow of the birch on the wall as if it were a woman’s scarf.
+ - You are eternity’s hostage A captive of mine.
+ - Art has two constant, two unending concerns: It always meditates on death and thus always creates life. All great, genuine art resembles and continues the Revelation of St John.
+ - And when the war broke out, its real horrors, its real dangers, its menace of real death were a blessing compared with the inhuman reign of the lie, and they brought relief because they broke the spell of the dead letter.
+ - I have the impression that if he didn’t complicate his life so needlessly, he would die of boredom.
+ - You fall into my arms. You are the good gift of destruction’s path, When life sickens more than disease And boldness is the root of beauty – Which draws us together.
+ - It is not the object described that matters, but the light that falls on it.
+ - In life it is more necessary to lose than to gain. A seed will only germinate if it dies.
+ - And why is it, thought Lara, that my fate is to see everything and take it all so much to heart?
+ - What for centuries raised man above the beast is not the cudgel but the irresistible power of unarmed truth.
+ - I used to be very revolutionary, but now I think that nothing can be gained by brute force. People must be drawn to good by goodness.
+ - He is her glory. Any woman could say it. For every one of them, God is in her child. Mothers of great men must have been familiar with this feeling, but then, all women are mothers of great men – it isn’t their fault if life disappoints them later.
+ - As in an explosion, I would erupt with all the wonderful things I saw and understood in this world.
+ - At the moment of childbirth, every woman has the same aura of isolation, as though she were abandoned, alone.
+ - The last moments slipped by, one by one, irretrievable.
+ - Most people experience love, without noticing that there is anything remarkable about it.
+ - Mother Russia is on the move, she can’t stand still, she’s restless and can’t find rest, she’s talking and she can’t stop.
+ - She was here on earth to make sense of its wild enchantments.
+ - In every generation there has to be some fool who will speak the truth as he sees it.
+ - I come here to speak poetry. It will always be in the grass. It will also be necessary to bend down to hear it. It will always be too simple to be discussed in assemblies.
+ - He was a natural, and in the Russian way, tragically above these banalities.
+ - Work is the order of the day, just as it was at one time, with our first starts and our best efforts. Do you remember? Therein lies its delight. It brings back the forgotten; one’s stores of energy, seemingly exhausted, come back to life.
+ - Failure to love is almost like murder.
+ - No deep and strong feeling, such as we may come across here and there in the world, is unmixed with compassion. The more we love, the more the object of our love seems to us to be a victim.
+ - The writer is the Faust of modern society, the only surviving individualist in a mass age. To his orthodox contemporaries he seems a semi-madman.
+ - What is history? Its beginning is that of the centuries of systematic work devoted to the solution of the enigma of death, so that death itself may eventually be overcome. That is why people write symphonies, and why they discover mathematical infinity and electromagnetic waves.
+ - That’s metaphysics, my dear fellow. It’s forbidden me by my doctor, my stomach won’t take it.
+ - It snowed and snowed, the whole world over, Snow swept the world from end to end. A candle burned on the table; A candle burned.
+ - Departure beyond the borders of my country is for me equivalent to death.
+ - What you don’t understand is that it is possible to be an atheist, it is possible not to know if God exists or why He should, and yet to believe that man does not live in a state of nature but in history, and that history as we know it now began with Christ, it was founded by Him on the Gospels.
+ - The most extraordinary discoveries are made when the artist is overwhelmed by what he has to say.
+ - All mothers are mothers of great people, and it is not their fault that life later disappoints them.
+ - Art is interested in life at the moment when the ray of power is passing through it.
+ - But what are pity, conscience, or fear To the brazen pair, compared With the living sorcery Of their hot embraces?
+ - We must discover security within ourselves.
+ - A literary creation can appeal to us in all sorts of ways-by its theme, subject, situations, characters. But above all it appeals to us by the presence in it of art. It is the presence of art in Crime and Punishment that moves us deeply rather than the story of Raskolnikov’s crime.
+
+79 quotes

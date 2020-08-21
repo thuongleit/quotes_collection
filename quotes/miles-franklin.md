@@ -1,0 +1,24 @@
+ - Girls! Girls! Those of you who have hearts, and therefore a wish for happiness, homes and husbands by and by, never develop a reputation for being clever.
+ - All is egotism. The only people whose mainspring is not egotism are the dead and perhaps idiots.
+ - Someone to tell it to is one of the fundamental needs of human beings.
+ - It’s a sign of your own worth sometimes if you are hated by the right people.
+ - Heed the spark or you may dread the fire...
+ - Only a very small percentage can regard conditions from any but a selfish point of view or conceive of any but their own shoe-pinch.
+ - When all is said and done, friendship is the only trustworthy fabric of the affections. So-called LOVE is a delirious inhuman state of mind: when hot it substitutes indulgence for fair play; when cold it is cruel, but friendship is warmth in cold, firm ground in a bog.
+ - I early became conscious that men breathe more audibly than women. Sit in a room in silence with men and women, and you can always hear the men breathing.
+ - It is the highest form of culture and craftmanship in art to use local materials. That way you stand a chance of adding to culture. The other way you are in danger of merely imitating it...
+ - Cowards always drag in the Bible to back theirselves up far more than proper people does...
+ - In the career of a prodigy there invariably comes a time when it is compelled to relinquish being very clever for a child, and has to enter the business of life in competition with adults.
+ - Our greatest heart-treasure is a knowledge that there is in creation an individual to whom our existence is necessary – some one who is part of our life as we are part of theirs, some one in whose life we feel assured our death would leave a gap for a day or two.
+ - Ah, the bitter, hopeless heart-hunger of godlessness none but an atheist can understand!
+ - There are only two kinds of parents. Those who think their offspring can do nothing wrong, and those who think they can do nothing right.
+ - What I absorbed from autobiographies was not how to be great so much as the littleness of the great.
+ - Every now and again it would be considered wholesome for me to be more with people of my own age. Demotion to such company was a sapless exile. Their inanity was insufferable...
+ - It ain’t what things actually are, it’s all they stand for.
+ - My mother is a good woman – a very good woman – and I am, I think, not quite all criminality, but we do not pull together. I am a piece of machinery which, not understanding, my mother winds up the wrong way, setting all the wheels of my composition going in creaking discord.
+ - Civilization, stretching up to recognize that every child is a portion of State wealth, may presently make some movement to recognize maternity as a business or office needing time and strength, not as a mere passing detail thrown in among mountains of other slavery.
+ - It is a wise provision that youth cannot see what it owes the previous generation. This is a chicken that comes back to roost in heavier years.
+ - To grow up in intimate association with nature – animal and vegetable – is an irreplaceable form of wealth and culture.
+ - Before I was ten I became critical of the anthropomorphic God as interpreted in the churches. I did not warm to One thus revealed as the semblance of a bullying and mean old man who must have all his own way, be praised all the time and for attributes which were deplorable in us.
+
+22 quotes

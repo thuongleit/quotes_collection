@@ -1,0 +1,9 @@
+ - Geology holds the keys of one of the kingdoms of nature; and it cannot be said that a science which extends our Knowledge, and by consequence our Power, over a third part of nature, holds a low place among intellectual employments.
+ - Thus the great drama of universal life is perpetually sustained; and though the individual actors undergo continual change, the same parts are ever filled by another and another generation; renewing the face of the earth, and the bosom of the deep, with endless successions of life and happiness.
+ - It is demonstrable from Geology that there was a period when no organic beings had existence: these organic beings must therefore have had a beginning subsequently to this period; and where is that beginning to be found, but in the will and fiat of an intelligent and all-wise Creator?
+ - Geology has shared the fate of other infant sciences, in being for a while considered hostile to revealed religion; so like them, when fully understood, it will be found a potent and consistent auxiliary to it, exalting our conviction of the Power, and Wisdom, and Goodness of the Creator.
+ - The successive series of stratified formations are piled on one another, almost like courses of masonry.
+ - No conclusion is more fully established, than the important fact of the total absence of any vestiges of the human species throughout the entire series of geological formations.
+ - The days of the Mosaic creation are not to be strictly construed as implying the same length of time which is at present occupied by a single revolution of our globe, but PERIODS of a much longer extent.
+
+7 quotes

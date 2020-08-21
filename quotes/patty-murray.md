@@ -1,0 +1,23 @@
+ - Caring for our veterans is the duty of a grateful nation.
+ - By working together to focus on our national priorities today we can ensure that the state of our union is strong for the future.
+ - So, I’m not impressed by BP’s promises and I’m not ready to take the word of a company with a track record of pursuing profit over safety.
+ - Guess what – I am one of the ONLY senators in the whole United States Senate that is computer literate!
+ - Good education means learning to read, write and most importantly learn how to learn so that you can be whatever you want to be when you grow up.
+ - Security is still the most important issue facing Washington state residents and millions of Americans – the security of having a job, of access to affordable health care, of a quality education, and of protecting our homeland and defending our nation.
+ - Violence is a problem we all want to solve. I want to make sure that kids learn to deal with anger by learning how to talk with people to solve problems. Here in the United States Senate I want to make sure we have safe schools, safe neighborhoods and good things for kids to do after school!
+ - I am pro choice, I believe everyone should have the right to decide for themselves.
+ - I am fighting for those middle-class families who want us to deal with our debt and deficit, but they also want the investments that are critical to our country moving forward.
+ - Caring for our veterans is the duty of a grateful nation. Unfortunately, the Bush administration and congressional Republicans have not lived up to this duty.
+ - I want to make sure that all kids get a good education and enjoy what they learn.
+ - If the Republicans get control back of the United States Senate, we will no longer have a check and balance on the White House, on the Republican Congress.
+ - Funding privatized accounts with Social Security dollars would not only make the program’s long term problems worse, but many believe it represents a first step toward undermining the program’s fundamental goals.
+ - Simply, with a Republican Congress sitting shotgun, Mitt Romney will put the middle class on the roof and take us for a long, painful ride.
+ - This is a long-delayed, hard-won, and badly needed victory for millions of women.
+ - For the state of our union to be strong, we need to place value in Americans.
+ - I am a mom as well as a senator!
+ - We havent been out in many of these countries helping them build infrastructure. How would they look at us today if we had been there helping them with some of that, rather than just being the people who are going to bomb in Iraq and go to Afghanistan?
+ - I have stood on the line in Everett, Wash., where we have thousands of workers who go to work every day to build these planes. I would challenge anybody to tell me that they’ve stood on a line in Alabama and seen anybody building anything.
+ - We all know that Washington families are making a tremendous commitment to winning the War on Terror. Tonight, more than 22,000 Washington state soldiers, sailors, airmen and Marines are risking their lives under hostile fire in Iraq, Afghanistan and around the globe.
+ - The Presidents plan to privatize Social Security would actually take away guaranteed benefits and put the promise of a secure retirement in jeopardy.
+
+21 quotes

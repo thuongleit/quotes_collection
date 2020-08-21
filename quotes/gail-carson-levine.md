@@ -1,0 +1,51 @@
+ - A library is infinity under a roof.
+ - When you become a teenager, you step onto a bridge. You may already be on it. The opposite shore is adulthood. Childhood lies behind. The bridge is made of wood. As you cross, it burns behind you.
+ - Step follows step, Hope follows Courage, Set your face towards danger, Set your heart on victory.
+ - There’s nothing wrong with reading a book you love over and over.
+ - There’s nothing wrong with reading a book you love over and over. When you do, the words get inside you, become a part of you, in a way that words in a book you’ve read only once can’t.
+ - It is helpful to know the proper way to behave, so one can decide whether or not to be proper.
+ - I never met a word I didn’t love.
+ - Who judges the judge who judges wrong?
+ - I was born singing. Most babies cry, I sang an aria.
+ - Things change, people change, but that doesn’t mean you should forget the past.
+ - No, I won’t marry you. I won’t do it. No one can force me.
+ - I trust you to find the good in me, but the bad I must be sure you don’t overlook.
+ - I rode all day. I cried all night. The moon didn’t glow. The sun didn’t rise. A comet blazed Between my eyes. West and South, Wind and rain. Every way is Just the same. Pray give me a box To hide inside. Pray give me a spade To dig my own grave.
+ - I want to be with you forever and beyond...
+ - I’m solitary as a pulled tooth, Lonely as an unwelcome truth, Lost as a minnow out of school, A genius in a crop of fools.
+ - That’s funny, you’re funny. I like you, I’m quite taken by you.
+ - She asks why I like her. Might as well ask Why I breathe. Maybe tomorrow I won’t Breathe or like her Anymore. Maybe tomorrow the tides Will stop. Maybe tomorrow will bring No more rainbows. Maybe tomorrow She will stop Asking useless questions.
+ - And so, with laughter and love, we lived happily ever after.
+ - Oak, granite, Lilies by the road, Remember me? I remember you. Clouds brushing Clover hills, Remember me? Sister, child, Grown tall, Remember me? I remember you.
+ - He put his hand on my waist, and my heart began to pound, a rougher rhythm than the music. I held my skirt. Our free hands met. His felt warm and comforting and unsettling and bewildering – all at once.
+ - Climb the day, Drop your dreams, Possess the day.
+ - I wished she’d never stop squeezing me. I wished I could spend the rest of my life as a child, being slightly crushed by someone who loved me.
+ - In books and in life, you need to read several pages before someone’s true character is revealed.
+ - To me, merely and pretty were words that had nothing to do with each other. Pretty went with miraculously, and merely belonged in another paragraph entirely.
+ - Daughter, we didn’t need your note – or a prince’s visit – to tell us you’d done nothing wrong. We know the daughter we raised. We fear for your future, but never for your character. You take our love and our trust wherever you wander. Father.
+ - The Writer’s Oath I promise solemnly: 1. to write as often and as much as I can, 2. to respect my writing self, and 3. to nurture the writing of others. I accept these responsibilities and shall honor them always.
+ - I was no hero. The dearest wishes of my heart were for safety and tranquility. The world was a perilous place, wrong for the likes of me.
+ - Perhaps we can come here together someday. By the way, you’re a month older than the last time I saw you. Are you still too young to marry.
+ - Kisses were better than potions.
+ - My favorite of my books is DAVE AT NIGHT, because it’s loosely based on my father’s childhood in an orphanage.
+ - I shan’t marry a prince!
+ - I had always been the hardest on myself when I drew and painted. I am not hard on myself when I write. I like what I write, so it is a much happier process.
+ - I loved fairy tales as a kid. I’ve always been drawn to fantasy. They’re always exciting. There’s never a dull moment. I just love the embellishments and the magical stuff. It’s such fun to work with and to re-imagine your own way.
+ - I’m more interested in plot than theme, but I hope my values find their way into my stories: kindness, sympathy, effort, and humor!
+ - I love having written. Sometimes I love writing. I love to revise. Revising is my favorite part of writing.
+ - I think kids abandon stories all the time. They start stories and get frustrated or get a different, better idea. I think that it is more worthwhile to stick with a story and revise it and try to finish it than abandon ship. Revisions, for any writer, are the name of the game.
+ - You’re Only the fairest when your fairest to yourself.
+ - Luck was with me. I saw no spiders. Luck was against me. I saw no specters.
+ - Although we didn’t invite Lucinda, she arrived anyway-with a gift. “No need,” Char and I chimed together. “Remember when you were a squirrel,” Mandy said.
+ - If beginnings terrify you, or if you just plain don’t like writing them, or if they bore you, skip ’em.
+ - Crying is part of the adventure.
+ - Voices and faces aren’t manifestations of good or bad.
+ - I wonder how Admat can be everywhere. Is he in my sandal? Or is he my sandal itself? Why would a god bother to be a sandal? Does he wear shoes or sandals himself, invisible ones?
+ - But my last conscious thought was an image of Prince Char when he’d caught the bridle of Sir Stephan’s horse. His face had been close to mine. Two curls had spilled onto his forehead. A few freckles dusted his nose, and his eyes said he was sorry for me to go.
+ - I don’t wait for inspiration. Writing is my job.
+ - Father asks frequently in his letters whether I fancy any Ayorthaian young lady or any in our acquaintance at home. I say no I suppose I’m confessing another fault: pride. I don’t want him to know that I love if my affections are not returned.
+ - No sign of pleasure greeted the announcement. The mood in the hall was leaden. My mood was livelier. Fright is livelier than lead.
+ - When I write, I make discoveries about my feelings.
+ - He -it- was a specter! I stepped back, stunned.
+
+49 quotes

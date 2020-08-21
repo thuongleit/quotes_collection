@@ -1,0 +1,37 @@
+ - As long as I have my faith in God, I’m good. I know everything else is going to come.
+ - All the days that you wake up you have one job and that’s to get better, every single day.
+ - Whatever your goal is: dedicate yourself to it and it’s going to be a lot of sacrifice, but if you love what you want to do, it shouldn’t be a problem.
+ - Why can’t I be MVP of the league? Why can’t I be the best player in the league?
+ - I think good things come to good people.
+ - Hard work isn’t enough. You got to believe.
+ - You’ve got one job, and that is to get better.
+ - We got to win. Win no matter what. Trip, kick somebody, fight, bite. Whatever. Win.
+ - If i’m not trying my best, I might as well retire.
+ - My thing is just staying positive. Find that thing you love doing and dedicate yourself to it. You’re going to have to sacrifice a lot of things if you want to achieve the goals you want to achieve.
+ - I can’t wait to shock the doubters and prove I’m better and stronger than I was before.
+ - I try my hardest to do what I have to do to make my team win.
+ - I always want my shoes real clean. The front of my shoe is really like my personality, where off the court I’m kind of calm and kind of shy a little bit – low key. In the back, it’s kind of crazy, just like me on the court. I love how both of my personalities are involved into the shoe.
+ - I wont ever put myself in a bad position so that people can say bad things about me. I make smart decisions, and my friends and my family, they are all there for the right reason.
+ - I couldn’t worry about anyone else but myself and my health.
+ - My son is everything to me. He’s the reason why I get up and I work out the way I work out and train the way that I train. He changed everything about me, so he was a blessing.
+ - Everybody’s got their poison, and mine is sugar.
+ - I have a lot of confidence in my shot and I’m willing to shoot it no matter what.
+ - I just don’t want to get caught up in the hype.
+ - I live a great life. I can’t complain. I’m healthy, my family’s good and there’s nothing I can really complain about.
+ - I love playing basketball because you could be having a rough day in your life, and while you’re on the court it gives you a clear mind. I’m not worried about anything. I’m there just playing freely and I go out there all and I have fun.
+ - I still have goals. Seeing those doubters out there, it’s gonna be funny seeing them eat their words.
+ - My biggest thing is to improve my all-around game. If you don’t win, something’s wrong. Winning takes care of everything, so our biggest thing is winning.
+ - If I just do everything the opposite of what my dad did, I think that will make things pretty easy. I can joke about it now because I’m past that stage where it used to hurt. By having a kid, it’s gone. I could take all that negative energy that I had and put it in a positive way.
+ - I will say, just being here, God is good, man...
+ - I think I work hard. I think I dedicate myself to the game and sacrifice a lot of things at a young age, and I know if I continue to do good, what I can get out of it.
+ - I think a lot of people don’t understand that when I sit out it’s not because of this year. I’m thinking about long term. I’m thinking about after I’m done with basketball.
+ - To have a strong community of people who believe in your potential can make all the difference in the world. So many people have invested in me and I want to do the same for Chicago’s teens.
+ - I love eating it – grilled chicken, pasta, rice, and other foods that give me long term energy. Every once in a while, my sweet tooth gets the best of me and I have to snack on some candy. Beverage wise, I stick to sports drinks, water, milk, and juice.
+ - On Halloween, don’t you know back when you were little, your mom tells you don’t eat any candy until she checks it? I used to be so tempted to eat my candy on the way to other people’s houses. That used to be such a tease.
+ - I feel like I have everything else as far as being creative and athletic. But it’s the little things that’s going to push me over, like ball-handling, passing, boxing out when I’m setting screens. Little things like that that you would overlook that can make me a complete player.
+ - All I got to do is keep getting the most out of each one of my days and keep trying to be the best athlete I can become.
+ - McDonald’s is over with. But chips and candy and stuff, it’s going to be hard to get away from that.
+ - All I can do is just go in there and tighten up my game, tighten up my handles. Just all the little basic things that you wouldn’t even think about, the fundamental parts of the game.
+ - When I was younger, I just thought about playing in the NBA.
+
+35 quotes

@@ -1,0 +1,26 @@
+ - We must listen and learn, show humility and seek again to talk for and to people’s ambitions and concerns.
+ - My working life has always been wrapped up in doing my job to the best of my abilities and doing the best for my family. It is not a contest between the two.
+ - Telling the truth, and confronting the challenge, is what politics is about.
+ - What I will say will not always please you, but what I say will always be honest and true and how I genuinely see it.
+ - I’m pretty proud of having completed a marathon myself, so I can only imagine the pride that real athletes feel when they are picked for the Olympic or the Paralympic Games.
+ - Separation and devolution are two completely different concepts which cannot be mixed together. One is not a stop on the way to the other.
+ - I love hard political debate and I love beating somebody on a political point but what I’m more frustrated by is the politics where you play the man not the politics.
+ - Scotland is my country, the nation that shaped me, that taught me my values. A nation whose achievements inspired and inspire me, a community whose failings drive me – drive my overwhelming desire to fight for social justice and equality.
+ - I’ve got a very deep and abiding passion about education being far more than buildings and textbooks; it’s what children bring into school with them.
+ - Schools are not exam factories for the rat race.
+ - My biggest ambition is to bring together what happens in the real world with what politicians talk about.
+ - Progressive politics is not something to be bolted on to another cause.
+ - Maybe I was just born to argue with men.
+ - While I’m leader, nothing will be off limits – there will not be one policy, one rule, one way of working which cannot be changed.
+ - If I have learned one thing in life, it is never to take any man’s own estimate of himself. He could very well be mistaken.
+ - The test is can you do something, rather than have a theoretical argument – can you make a difference?
+ - We shall seek debate without division or rancour.
+ - I got a very strong sense from my mother, in particular, that we are all equal in the sight of God.
+ - My Scottish Labour Party is a crusade – to fight poverty, inequality and injustice.
+ - The government don’t want to talk about the consequences of the choices they make. They pretend there aren’t any consequences.
+ - I will not promise what I cannot deliver. And I will never hide the cost of what I propose.
+ - The Scottish Labour Party, while I have breath in my body, will listen to the views of trade unionists.
+ - Scotland cannot be the only ‘something for nothing’ country in the world.
+ - We do students a great disservice by implying that one set of students is more important than another.
+
+24 quotes

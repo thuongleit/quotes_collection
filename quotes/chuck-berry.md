@@ -1,0 +1,36 @@
+ - All I want for Christmas is a rock n roll electric guitar...
+ - Of the five most important things in life, health is first, education or knowledge is second, and wealth is third. I forget the other two.
+ - Describe Elvis Presley? He was the greatest who ever was, is or ever will be.
+ - A song is a song. But there are some songs, ah, some songs are the greatest. The Beatles song Yesterday. Listen to the lyrics.
+ - I grew up thinking art was pictures until I got into music and found I was an artist and didn’t paint.
+ - He never ever learned to read or write so well, but he could play his guitar like he was ringing a bell.
+ - My ding-a-ling, my ding-a-ling, won’t you play with my ding-a-ling.
+ - Music is an important part of our culture and record stores play a vital part in keeping the power of music alive.
+ - Roll over Beethoven, tell Tchaikovsky the news.
+ - I’m a millionaire, but I cut the grass. And each time I cut it, it’s my grass. And that is satisfying.
+ - Back in the class room, open your books, keep up, the teacher don’t know how mean she looks.
+ - He could play the guitar just like ringing a bell.
+ - The Big Band Era is my era. People say, ‘Where did you get your style from?’ I did the Big Band Era on guitar. That’s the best way I could explain it.
+ - All in all it was my intention to hold both the black and the white clientele by voicing the different kinds of songs in their customary tongues.
+ - Could you imagine the way I felt, I couldn’t unfasten her safety belt. All the way home I held a grudge, for the safety belt that wouldn’t budge.
+ - Maybellene, why can’t you be true?
+ - Don’t bother me, leave me alone. Anyway, I’m almost grown.
+ - It’s gotta be rock and roll music, if you wanna dance with me.
+ - Rock is my child and my grandfather.
+ - My music is simple stuff. Anybody can sit down, look at a set of symbols and produce sounds the music represents.
+ - All were artists, playing foolish, having fights and making love as if the rest of the world had no racial problems whatsoever.
+ - A contract is an ask game, and if it asks for an hour, and I submit to an hour, then it’s an hour. When I look at a contract, I look at the obligation – where, when, how long, the compensation. If I agree to it, that’s the way it is. I have an obligation. They have an obligation.
+ - You know, your ears record. You might can sing a song once you hear it.
+ - I think I see her, please let me off this bus. Nadine, honey, is that you?
+ - Curiosity provoked me to lay a lot of our country stuff on our predominantly black audience and some of our black audience began whispering “who is that black hillbilly at the Cosmo?”
+ - I would sing the blues if I had the blues.
+ - You don’t just go to the studio and say, ‘I’m going to write a hit.’ It becomes a hit when people like your compositions.
+ - This is my 1963 Ford. It was the only car I could A-Ford.
+ - Prejudice doesn’t make me mad. It just – I guess ‘pisses me off’ is the word.
+ - Rock ‘n’ roll accepted me and paid me, even though I loved the big bands I went that way because I wanted a home of my own. I had a family. I had to raise them. Let’s don’t leave out the economics. No way.
+ - Science and religion are both the same thing. They’re there; they’re life. If it’s not science, it’s not a fact.
+ - Praise doesn’t mean anything to me. I don’t judge myself.
+ - If the people in the audience are talking, you’re being ignored. If the people are gazing at you, you’ve got something they want to hear.
+ - Everything I wrote about wasn’t about me, but about the people listening.
+
+34 quotes

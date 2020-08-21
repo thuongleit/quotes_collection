@@ -1,0 +1,120 @@
+ - Auschwitz begins wherever someone looks at a slaughterhouse and thinks: they’re only animals.
+ - Work while you work, play while you play – this is a basic rule of repressive self-discipline.
+ - Intolerance of ambiguity is the mark of an authoritarian personality.
+ - Writing poetry after Auschwitz is barbaric.
+ - The power of the culture industry’s ideology is such that conformity has replaced consciousness.
+ - The need to let suffering speak is a condition of all truth. For suffering is objectivity that weighs upon the subject.
+ - Knowledge, which is power, knows no limits, either in its enslavement of creation or in its deference to worldly masters.
+ - There is no love that is not an echo.
+ - The splinter in your eye is the best magnifying-glass available.
+ - In the end, the writer is not even allowed to live in his writing.
+ - There is no right life in the wrong one.
+ - Technology is making gestures precise and brutal, and with them men.
+ - In so far as the culture industry arouses a feeling of well-being that the world is precisely in that order suggested by the culture industry, the substitute gratification which it prepares for human beings cheats them out of the same happiness which it deceitfully projects.
+ - One must have tradition in oneself, to hate it properly.
+ - Even the loveliest dream bears like a blemish its difference from reality, the awareness that what it grants is mere illusion.
+ - The positive element of kitsch lies in the fact that it sets free for a moment the glimmering realization that you have wasted your life.
+ - Fear and destructiveness are the major emotional sources of fascism, eros belongs mainly to democracy.
+ - On their way toward modern science human beings have discarded meaning. The concept is replaced by the formula, the cause by rules and probability.
+ - The law of the innermost form of the essay is heresy.
+ - He who integrates is lost.
+ - The capacity for fear and for happiness are the same, the unrestricted openness to experience amounting to self-abandonment in which the vanquished rediscovers himself.
+ - When I made my theoretical model, I could not have guessed that people would try to realise it with Molotov cocktails.
+ - It would be advisable to think of progress in the crudest, most basic terms: that no one should go hungry anymore, that there should be no more torture, no more Auschwitz. Only then will the idea of progress be free from lies.
+ - The blessing that the market does not ask about birth is paid for in the exchange society by the fact that the possibilities conferred by birth are molded to fit the production of goods that can be bought on the market.
+ - All testify to the coercion and sacrifice which culture imposes on man. To rely on them and deny the decline is to become even more firmly caught in its fatal coils.
+ - A German is someone who cannot tell a lie without believing it himself.
+ - The work of art still has something in common with enchantment: it posits its own, self-enclosed area, which is withdrawn from the context of profane existence, and in which special laws apply.
+ - Bourgeois society is ruled by equivalence. It makes the dissimilar comparable by reducing it to abstract quantities. To the enlightenment, that which does not reduce to numbers, and ultimately to the one, becomes illusion.
+ - All the world’s not a stage.
+ - Suffering has as much right to be expressed as a martyr has to cry out. So it may have been false to say that writing poetry after Auschwitz is impossible.
+ - The task of art today is to bring chaos into order. Artistic productivity is the capacity for being voluntarily involuntary.
+ - Jazz is the false liquidation of art – instead of utopia becoming reality it disappears from the picture.
+ - Art is the social antithesis of society, not directly deducible from it.
+ - Dissonance is the truth about harmony.
+ - Laughing in the cultural industry is mockery of happiness.
+ - The almost insoluble task is to let neither the power of others, nor our own powerlessness, stupefy us.
+ - People know what they want because they know what other people want.
+ - Everything about art has become problematic; its inner life, its relation to society, even its right to exist.
+ - Triviality is evil – triviality, that is, in the form of consciousness and mind that adapts itself to the world as it is, that obeys the principle of inertia. And this principle of inertia truly is what is radically evil.
+ - The triumph of advertising in the culture industry is that consumers feel compelled to buy and use its products even though they see through them.
+ - True thoughts are those alone which do not understand themselves.
+ - Art as a whole is a riddle. Another way of putting this is to say that art expresses something while at the same time hiding it.
+ - As a constellation, theoretical thought circles the concept it would like to unseal, hoping that it may fly open like the lock of a well-guarded safe-deposit box: in response, not to a single key or a single number, but to a combination of numbers.
+ - Modernity is a qualitative, not a chronological, category.
+ - In Anglo-Saxon countries the prostitutes look as if they purveyed, along with sin, the attendant pains of hell.
+ - In sharp contrasts to traditional art, modern art does not hide the fact that it is something made and produced: on the contrary, it underscores the fact.
+ - The forms of art reflect the history of man more truthfully than do documents themselves.
+ - In the age of the individual’s liquidation, the question of individuality must be raised anew.
+ - Culture is only true when implicitly critical, and the mind which forgets this revenges itself in the critics it breeds. Criticism is an indispensable element of culture.
+ - Tact is the discrimination of differences. It consists in conscious deviations.
+ - It is one of the basic tenets of fascist leadership to keep primary libidinal energy on an unconscious level so as to divert its manifestations in a way suitable to political ends.
+ - To say ‘we’ and mean ‘I’ is one of the most recondite insults.
+ - Advancing bourgeois society liquidates memory, time, recollection as irrational leftovers of the past.
+ - The Enlightenment has always aimed at liberating men from fear and establishing their sovereignty. Yet the fully enlightened earth radiates disaster triumphant.
+ - The basest person is capable of perceiving the weaknesses of the greatest, the most stupid, the errors in the thought of the most intelligent.
+ - What the philosophers once knew as life has become the sphere of private existence and now of mere consumption, dragged along as an appendage of the process of material production, without autonomy or substance of its own.
+ - The straight line is regarded as the shortest distance between two people, as if they were points.
+ - The lie has long since lost its honest function of misrepresenting reality. Nobody believes anybody, everyone is in the know. Lies are told only to convey to someone that one has no need either of him or his good opinion.
+ - The inadequacy of the purely purpose-oriented form is revealed for what it is-a monotonous, impoverished boring practicality.
+ - What can oppose the decline of the west is not a resurrected culture but the utopia that is silently contained in the image of its decline.
+ - What human beings seek to learn from nature is how to use it to dominate wholly both it and human beings. Nothing else counts.
+ - Art respects the masses, by standing up to them for what they could be, rather than conforming to them in their degraded state.
+ - And how comfortless is the thought that the sickness of the normal does not necessarily imply as its opposite the health of the sick, but that the latter usually only present, in a different way, the same disastrous pattern.
+ - The empirical usability of the sacred ceremonial words makes both the speaker and listener believe in their corporeal presence.
+ - It is Proust’s courtesy to spare the reader the embarrassment of believing himself cleverer than the author.
+ - There are no more ideologies in the authentic sense of false consciousness, only advertisements for the world through its duplication and the provocative lie which does not seek belief but commands silence.
+ - Love is the ability to discover similarities in the dis-similar. The audience has a right not to be fooled – even if it insists on being fooled.
+ - In the innermost recesses of humanism, as its very soul, there rages a frantic prisoner who, as a Fascist, turns the world into a prison.
+ - The darkening of the world makes the irrationality of art rational: radically darkened art.
+ - The sublime is only a step removed from the ridiculous.
+ - The noiseless din that we have long known in dreams, booms at us in waking hours from newspaper headlines.
+ - In the end indignation over kitsch is anger at tis shameless revelling in the joy of imitation.
+ - Art is permitted to survive only if it renounces the right to be different, and integrates itself into the omnipotent realm of the profane.
+ - Tenderness between people is nothing other than awareness of the possibility of relations without purpose.
+ - The thought that murders the wish that fathered it will be overtaken by the revenge of stupidity.
+ - The hardest hit, as everywhere, are those who have no choice.
+ - Only thought which does violence to itself is hard enough to shatter myth.
+ - The taboos that constitute a man’s intellectual stature, often sedimented experiences and unarticulated insights, always operate against inner impulses that he has learned to condemn, but which are so strong that only an unquestioning and unquestioned authority can hold them in check.
+ - In the general tendency toward specialization, philosophy too has established itself as a specialized discipline, one purified of all specific content. In so doing, philosophy has denied its own constitutive concept: the intellectual freedom that does not obey the dictates of specialized knowledge.
+ - He who has loved and who betrays love does harm not only to the image of the past, but to the past itself.
+ - The objective tendency of the Enlightenment, to wipe out the power of images over man, is not matched by any subjective progress on the part of enlightened thinking towards freedom from images.
+ - A successful work of art is not one which resolves contradictions in a spurious harmony, but one which expresses the idea of harmony negatively by embodying the contradictions, pure and uncompromised, in its innermost structure.
+ - Talent is perhaps nothing other than successfully sublimated rage.
+ - History does not merely touch on language, but takes place in it.
+ - The whole is the false.
+ - Humanity had to inflict terrible injuries on itself before the self, the identical, purpose-directed, masculine character of human beings was created, and something of this process is repeated in every childhood.
+ - Rigour and purity in assembling words, however simple the result, create a vacuum.
+ - That all men are alike is exactly what society would like to hear. It considers actual or imagined differences as stigmas indicating that not enough has yet been done; that something has still been left outside its machinery, not quite determined by its totality.
+ - Rampant technolgy eliminates luxury, but not by declaring privilege a human right; rather, it does so by both raising the general standard of living and cutting off the possibility of fulfilment.
+ - Philosophy that satisfies its own intention, and does not childishly skip behind its own history and the real one, has its lifeblood in the resistance against the common practices of today and what they serve, against the justification of what happens to be the case.
+ - The poor are prevented from thinking by the discipline of others, the rich by their own.
+ - The important thing is not the planning of an Index Verborum Prohibitorum of current noble nouns, but rather the examination of their linguistic function.
+ - People at the top are closing ranks so tightly that all possibility of subjective deviation has gone, and difference can be sought only in the more distinguished cut of an evening dress.
+ - In myths the warrant of grace was the acceptance of sacrifice; it is this acceptance that love, the re-enactment of sacrifice, beseeches if it is not to feel under a curse.
+ - Very evil people cannot really be imagined dying.
+ - In the nineteenth century the Germans painted their dream and the outcome was invariably vegetable. The French needed only to paint a vegetable and it was already a dream.
+ - Insane sects grow with the same rhythm as big organizations. It is the rhythm of total destruction.
+ - Death is imposed only on creatures, not their creations, and has therefore always appeared in art in a broken form: as allegory.
+ - Of the world as it exists, it is not possible to be enough afraid.
+ - When all actions are mathematically calculated, they also take on a stupid quality.
+ - Life has changed into a timeless succession of shocks, interspaced with empty, paralysed intervals.
+ - People have so manipulated the concept of freedom that it finally boils down to the right of the stronger and richer to take from the weaker and poorer whatever they still have.
+ - Whoever is versed in the jargon does not have to say what he thinks, does not even have to think it properly. The jargon takes over this task.
+ - The dialectic cannot stop short before the conceptsof health and sickness, nor indeed before their siblings reason and unreason.
+ - The expression if history in things is no other than that of past torment.
+ - Vague expression permits the hearer to imagine whatever suits him and what he already thinks in any case.
+ - In psycho-analysis nothing is true except the exaggerations.
+ - It is not the office of art to spotlight alternatives, but to resist by its form alone the course of the world, which permanently puts a pistol to men’s heads.
+ - The new human type cannot be properly understood without awareness of what he is continuously exposed to from the world of things about him, even in his most secret innervations.
+ - There’s not much need for prophets who are in synch with their society.
+ - The gods look in pleasure on penitent sinners.
+ - The idea that after this war life will continue ‘normally’ or even that culture might be ‘rebuilt’ – as if the rebuilding of culture were not already its negation – is idiotic.
+ - Those who cannot help ought also not advise: in an order where every mousehole has been plugged, mere advice exactly equals condemnation.
+ - Words of the jargon sound as if they said something higher than what they mean.
+ - By abstaining from all definite content, whether as formal logic and theory of science or as the legend of Being beyond all beings, philosophy declared its bankruptcy regarding concrete social goals.
+ - If across the Atlantic the ideology was pride, here it is delivering the goods.
+ - What is or is not the jargon is determined by whether the word is written in an intonation which places it transcendently in opposition to its own meaning; by whether the individual words are loaded at the expense of the sentence, its propositional force, and the thought content.
+ - The recent past always presents itself as if destroyed by catastrophes.
+
+118 quotes

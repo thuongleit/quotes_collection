@@ -1,0 +1,182 @@
+ - Faith in God includes Faith in God’s timing.
+ - Perfect love is perfectly patient.
+ - God does not begin by asking us about our ability, but only about our availability, and if we then prove our dependability, he will increase our capability.
+ - If, in the end, you have not chosen Jesus Christ it will not matter what you have chosen.
+ - If the kingdom of God is not first, it doesn’t matter what’s second.
+ - Don’t fear, just live right.
+ - Education brightens a darkened world.
+ - On the straight and narrow path, there are simply no corners to be cut.
+ - Beware not to get caught up in the thick of thin things.
+ - Trials and tribulations tend to squeeze the artificiality out of us, leaving the essence of what we really are and clarifying what we really yearn for.
+ - The submission of one’s will is really the only uniquely personal thing we have to place on God’s altar. The many other things we ‘give’ are actually the things He has already given or loaned to us.
+ - It is only by yielding to God that we can begin to realize His will for us. And if we truly trust God, why not yield to His loving omniscience? After all, He knows us and our possibilities much better than do we.
+ - It is our job to lift others up, not to size them up.
+ - The good life is the best preparation for bad times.
+ - No love is ever wasted. Its worth does not lie in reciprocity.
+ - In a very real sense, all we need to know is that God knows all.
+ - Our little pebble of poor performance helps to start, or to sustain, an avalanche.
+ - True discipleship is for volunteers only. Only volunteers will trust the Guide sufficiently to follow Him in the dangerous ascent which only He can lead.
+ - The winds of tribulation, which blow out some men’s candles of commitment, only fan the fires of faith of others.
+ - Consecration thus constitutes the only unconditional surrender which is also a total victory!
+ - When we rejoice in beautiful scenery, great art, and great music, it is but the flexing of instincts acquired in another place and another time.
+ - The issue for us is trusting God enough to trust also His timing. If we can truly believe He has our welfare at heart, may we not let His plans unfold as He thinks best?
+ - In Gospel grammar, death is not an exclamation point, merely a comma.
+ - The cavity which suffering carves into our souls will one day also be the receptacle of joy.
+ - We cannot improve the world if we are conformed to the world.
+ - The dues of discipleship are high indeed, and how much we can take so often determines how much we can then give.
+ - When we are unduly impatient with an omniscient God’s timing, we really are suggesting that we know what’s best. Strange isn’t it-we who wear wrist watches seek to counsel Him who oversees cosmic clocks and calendars.
+ - The great challenge is to refuse to let the bad things that happen to us do bad things to us. That is the crucial difference between adversity and tragedy.
+ - Coming unto the Lord is not a negotiation, but a surrender.
+ - It is better to trust and sometimes be disappointed than to be forever mistrusting and be right occasionally.
+ - We can hold to the iron rod even if others slip away and a few end up mocking us from “the great and spacious building.”
+ - God is very serious about joy in the lives of His children.
+ - We must endure the contempt of others without reciprocating that contempt.
+ - Do not let the future be held hostage by the past.
+ - The Book of Mormon is to be feasted upon, not nibbled.
+ - It is extremely important for you to believe in yourselves, not only for what you are now, but for what you have the power to become.
+ - We cannot repent for someone else. But we can forgive someone else, refusing to hold hostage those whom the Lord seeks to set free!
+ - I know sanctification comes not with any particular calling, but with genuine acts of service, often for which there is no specific calling.
+ - We cannot lead or draw others to Christ unless we stand closer to Him than they do.
+ - So often our sisters comfort others when their own needs are greater than those being comforted. That quality is like the generosity of Jesus on the cross. Empathy during agony is a portion of divinity!
+ - We should certainly count our blessings, but we should also make our blessings count.
+ - How can we truly understand who we are unless we know who we were and what we have the power to become?
+ - Empathy during agony is a portion of divinity.
+ - How could there be refining fires without our enduring some heat?
+ - Discouragement is not the absence of adequacy but the absence of courage.
+ - The more seriously we work on our own imperfections, the less we are judgemental of the imperfections of others.
+ - Those who do too much for their children will soon find they can do nothing with their children. So many children have been so much done for they are almost done in.
+ - In the economy of Heaven, God does not send thunder if a still, small voice is enough, or a prophet if a priest can do the job.
+ - Many of those engaged in a lemming-like march to the sea are proud of their individualism.
+ - Anger should never be an overnight guest.
+ - Blessed is he who will not be offended.
+ - If the Church were not true, our enemies would be bored rather than threatened, and acquiescent rather than anxious. Hell is moved only when things move heavenward.
+ - Regarding trials, including of our faith and patience, there are no exemptions-only variations.
+ - When we don’t like to face up to hard facts, we use soft words. We do not speak about killing a baby within the womb, but about “termination of potential life.” Words are often multiplied to try to cover dark deeds.
+ - The more quickly we loosen our grip on the things of the world the more firmly we can take hold of the things of eternity.
+ - We should not assume; however, that just because something is unexplainable by us, it is unexplainable.
+ - Repentance is a rescuing, not a dour, doctrine.
+ - You must not mistake passing local cloud cover, for general darkness.
+ - Ultimate hope constitutes the anchor of the soul.
+ - It’s service, not status, that counts.
+ - The soul is like a violin string: it makes music only when it is stretched.
+ - The harrowing of the soul can be like the harrowing of the soil; to increase the yield, things are turned upside down.
+ - Truly we work and live on a streetful of splendid people, whom we are to love and serve even if they are uninterested in us!
+ - The scriptures offer us so many doctrinal diamonds. And when the light of the Spirit plays upon their several facets, they sparkle with celestial sense and illuminate the path we are to follow.
+ - Any assessment of where we stand in relationship to Him tells us that we do not stand at all. We kneel.
+ - If another person only had in his storehouse of deserved self-esteem what you had put there, what would he have to draw upon and to sustain him?
+ - A society which permits anything will eventually lose everything.
+ - Selfishness is much more than an ordinary problem because it activates all the cardinal sins! It is the detonator in the breaking of the Ten Commandments.
+ - Though we live in a failing world, we have not been sent here to fail.
+ - A vague goal is no goal at all. The Ten Commandments wouldn’t be very impressive, for instance, if they weren’t specific, but simply were couched in a phraseology such as ’thou shalt not be a bad person.
+ - Love, patience, and meekness can be just as contagious as rudeness and crudeness.
+ - You rock a sobbing child without wondering if today’s world is passing you by, because you know you hold tomorrow tightly in your arms.
+ - Crowds cannot make right what God has declared to be wrong.
+ - God’s extraordinary work is most often done by ordinary people in the seeming obscurity of a home and family.
+ - Real hope is much more than wishful musing. It stiffens, not slackens, the spiritual spine.
+ - We can be walking witnesses and standing sermons to which objective onlookers can say a quiet amen.
+ - Meekness, the subtraction of self, reduces the multiplication of words.
+ - At the center of our agency is our freedom to form a healthy attitude toward whatever circumstances we are placed in!
+ - A patient willingness to defer dividends is a hallmark of individual maturity.
+ - The true Christian is a communicator.
+ - Our goals should stretch us bit by bit. So often when we think we have encountered a ceiling, it is really a psychological or experiential barrier that we have built ourselves. We built it and we can remove it.
+ - Patience helps us to view imperfections in others more generously to the end that we may learn to be more wise than they have been.
+ - When great individuals move so marvelously along the straight and narrow path, it is unseemly of us to call attention to the fact that one of their shoelaces is untied as they make the journey.
+ - Oh, how great the plan of our God!
+ - In one degree or another we all struggle with selfishness. Since it is so common, why worry about selfishness anyway? Because selfishness is really self-destruction in slow motion.
+ - Daily hope is vital, since the ‘Winter Quarters’ of our lives are not immediately adjacent to our promised land either. An arduous trek still awaits, but hope spurs weary disciples on.
+ - In contrast to the path of selfishness, there is no room for road rage on the straight and narrow way.
+ - Spent time-like a spent bullet-tells us much about its “processor.” for we see not only the residual slug, but indicators of how spent time is grooved by a man’s soul, a reliable indicator of what a man is like.
+ - Letting off steam always produces more heat than light.
+ - The laughter of the world is merely loneliness pathetically trying to reassure itself.
+ - How myopic it is to view His ministry as all crucifixion and no resurrection!
+ - Those of little faith mistake local cloud cover for general darkness. Keeping spiritually intact results in our keeping precious perspective by seeing “things as they really are.”
+ - Even if work were not an economic necessity, it is a spiritual necessity.
+ - God’s grace will cover us like a cloak-enough to provide for survival but too thin to keep out all the cold.
+ - Sometimes we are so busy being the hammer or the anvil, that we forget who really needs the shaping.
+ - The acceptance of the reality that we are in the Lord’s loving hands is only a recognition that we have never really been anywhere else.
+ - I know the celestial criteria measure service, not status; the use of our talents, not the relative size of our talent inventories. I know that Church membership is not passive security but continuing opportunity.
+ - Clearly, when we baptize, our eyes should gaze beyond the baptismal font to the holy temple. The great garner into which the sheaves should be gathered is the holy temple.
+ - Personal, spiritual symmetry emerges only from the shaping of prolonged obedience. Twigs are bent, not snapped into shape.
+ - How good you and I get at repenting will determine how good life is.
+ - Within what is allotted to us, we can have spiritual contentment.
+ - Without making a fetish of goal setting, and without letting “lists” of tasks we desire to do dominate us, some recording of goals is wise not only for the self-reminder these constitute, but also for the satisfaction of crossing things off.
+ - Pure religion is having the courage to do what is right and let the consequence follow.
+ - One day the faithful will have it all!
+ - Most of our suffering comes from sin and stupidity; it is, nevertheless, very real, and growth can occur with real repentance. But the highest source of suffering appears to be reserved for the innocent who undergo divine tutorial training.
+ - There are certain mortal moments and minutes that matter. Certain hingepoints in the history of each human. Some seconds are so decisive they shrink the soul, while others are spent, so as to stretch the soul.
+ - As parenting declines, the need for policing increases. There will always be a shortage of police if there is a shortage of effective parents! Likewise, there will not be enough prisons if there are not enough good homes.
+ - One simply cannot come to a cause like the kingdom of God, with its celestial concepts, and not appreciate and identify with what Ammon said: “Behold, I say unto you, I cannot say the smallest part which I feel.”
+ - It is not the years but the changes that make us grow.
+ - Obviously, family values mirror our personal priorities. Given the gravity of current conditions, would parents be willing to give up just one outside thing, giving that time and talent instead to the family.
+ - C. S. Lewis pointed out that some people are angry with God for His not existing, and others for His existing but for failing to do as mortals would have Him do. Instead of such childishness, we are urged to know God and to learn of His attributes.
+ - Trying to observe the slow shift from self-centeredness to empathy is like trying to watch grass grow.
+ - What we insistently desire, over time, is what we become.
+ - Patience stoutly resists pulling up the daisies to see how the roots are doing!
+ - Ironically, brothers and sisters, the natural man who is so very selfish in so many ordinary ways is strangely unselfish in that he reaches for too few of the things that bring real joy. He settles for a mess of pottage instead of eternal joy.
+ - Why is it that for many persons changing others is so exciting and so relevant, while changing oneself is so boring and irrelevant?
+ - I am as I am, And so is a stone; Them that don’t like me, Must leave me alone.
+ - At times God’s best pupils experience the most rigorous and continuous courses. Eventually those who prove to be men of Christ will thereby become distinguished alumni of life’s school of affliction, graduating with honors.
+ - Therefore, as we strive to become as the Father is and as Jesus is, we are to become more gracious and merciful, more kind and considerate. Even more, we are to do this in a world which does little to encourage such qualities of character.
+ - When in situations of stress we wonder if there is any more in us to give, we can be comforted to know that God, who knows our capacity perfectly, placed us here to succeed.
+ - God’s anger is kindled not because we have harmed him but because we have harmed ourselves.
+ - A new calling can beckon us away from comfortable routine and from competencies already acquired.
+ - I thank the Father that His Only Begotten Son did not say in defiant protest at Calvary, “My body is my own!” I stand in admiration of women today who resist the “fashion of abortion, by refusing to make the sacred womb a tomb!”
+ - Satan delights to have us put ourselves down. Self-contempt is of Satan. There is no such thing in heaven.
+ - Ultimate hope and daily grumpiness are not reconcilable.
+ - We can’t dwell upon another’s ingratitude without using up our time and talents unprofitably.
+ - The enlarging of the soul requires not only some remodeling, but some excavating.
+ - The imperfections of others never release us from the need to work on our own shortcomings.
+ - Conscience warns us not to sink our cleats too deeply in mortal turf, which is so dangerously artificial.
+ - God will facilitate, but He will not force.
+ - If we spent as much time lifting our children as we do criticizing them, how effectively we could help them to see themselves in a more positive light!
+ - The hardest work you and I will ever do is to put off our selfishness. It is heavy lifting!
+ - The flame of family can warm us and at the same time be a perpetual pilot light to rekindle us.
+ - We are so busy constantly checking our own temperatures, we fail to notice the burning fevers of others.
+ - Our afflictions brothers and sisters often will not be extinguished, they will be dwarfed and swallowed up in the joy of Christ. That’s how we overcome, most of the time. It’s not their elimination, but the placing of them in that larger context.
+ - Let us have integrity and not write checks with our tongues which our conduct cannot cash.
+ - The Savior knows what it’s like to die of cancer.
+ - I testify that He is utterly incomparable in what He is, what He knows, what He has accomplished and what He has experienced. Yet, movingly, He calls us His Friends.
+ - If the nearly one-and-a-half million babies aborted in America each year could, somehow, vote, chameleon candidates would find fresh reason to be concerned about abortion, whereas now they are unconcerned.
+ - As we come closer to Him, we not only “stand all amazed”-we even kneel all amazed!
+ - When at length we tire of putting people down, this self-inflicted fatigue can give way to the invigorating calisthenics of lifting people up.
+ - Men and Women of Christ magnify their callings without magnifying themselves.
+ - Our God does not indulge us, but He is merciful toward our weaknesses as He strives to tutor us.
+ - If we are serious about our discipleship, Jesus will eventually request each of us to do those very things which are most difficult for us to do.
+ - Good homes are still the best source of good humans.
+ - Listening is one of the forms of love.
+ - Even the good can become careless without the Lord’s being there to chasten.
+ - Of all the errors one could make, God’s gospel plan is the wrong thing to be wrong about.
+ - We are vulnerable if we can be taken by a wave of emotion, invaded by an invidious impulse, roughed up by resentment, or engulfed by a surge of selfishness.
+ - Let the scriptures refresh you.
+ - Those who turn against the Church do so to play to their own private gallery, but when, one day, the applause has died down and the cheering has stopped, they will face a smaller audience, the judgment bar of God.
+ - We, more than others, should carry jumper and tow cables not only in our cars, but also in our hearts, by which means we can send the needed boost or charge of encouragement or the added momentum to mortal neighbors.
+ - Unproductive worry – like Parkinson’s proverbial law – tends to expand to fill the time available.
+ - Defectors often cause more difficulty than disinterested disbelievers.
+ - We are often not only to slow to get on our knees, but to quick to rise from them.
+ - Joshua didn’t say choose you next year whom you will serve; he spoke of “this day,” while there is still daylight and before the darkness becomes more and more normal.
+ - Thus worshiping, serving, studying, praying, each in its own way squeezes selfishness out of us; pushes aside our preoccupations with the things of the world.
+ - Each day I see all about me the fruits of commandment-keeping.
+ - Eventually, there will not be enough prisons if there are not enough good homes.
+ - It is so easy to be confrontive without being informative; indignant without being intelligent; impulsive without being insightful.
+ - If we entertain temptations, soon they begin entertaining us!
+ - There is no democracy of facts.
+ - There will be many fine and wonderful men and women of all races and creeds-and of no religious creeds at all-who will lead decent and useful lives.
+ - The gross size of our talent inventories is less important than the net use of our talents?
+ - Your task is to conquer yourselves, not ships, lands and castles. This battle is the one in which you especially are to ‘come off conqueror.’ It is fought every day. In fact, it is a continuing process which commenced a long, long time ago.
+ - A friend of mine who passed through a most severe trial, when I discussed it with him, he said simply, if it’s fair, it isn’t a trial.
+ - We are in bondage to that which overcomes us. See also 2 Peter 2:19.
+ - So much depends, therefore, upon our maintaining gospel perspective in the midst of ordinariness, the pressures of temptation, tribulation, deprivation, and the cares of the world.
+ - Those few members who desert the cause are abandoning an oasis to search for water in the desert.
+ - All crosses are easier to carry when we keep moving.
+ - We must not fail, individually, for if we fail, we fail twice – for ourselves and for those who could have been helped, if we had done our duty.
+ - The authority of example and considerations of character, unlike pudding, are not whipped up in an instant.
+ - Celestial criteria measures service, not status.
+ - Pray for me to learn quickly what I need to learn.
+ - Our journey is demanding enough that the need for reassurance as well as reminders is constant.
+ - Mother lode of learning.
+ - I thank the Savior personally; for bearing all which I added to His hemorrhaging at every pore for all humanity in Gethsemane. I thank Him for bearing what I added to the decibels of His piercing soul cry atop Calvary.
+ - We may never become accustomed to untrue and unjust criticism of us but we ought not to be immobilized by it.
+ - If we are not serving Jesus, and if he is not in our thoughts and hearts, then the things of the world will draw us instead to them! Moreover, the things of the world need not be sinister in order to be diverting and consuming.
+ - The “new” in us is bound to notice the “old” that remains.
+
+180 quotes

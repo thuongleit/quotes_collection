@@ -1,0 +1,21 @@
+ - You cannot imagine at all how much you interest God; He is interested in you as if there were no one else on earth.
+ - The greatest explorer on this earth never takes voyages as long as those of the man who descends to the depth of his heart.
+ - Thought flies and words go on foot.
+ - Thoughts fly and words go on foot. Therein lies all the drama of a writer.
+ - I enter the world called real as one enters a mist.
+ - Our life is a book that writes itself and whose principal themes sometimes escape us. We are like characters in a novel who do not always understand what the author wants of them.
+ - Anti-clericalism and non-belief, have their bigots just as orthodoxy does.
+ - If people only knew what lies at the heart of my novels! What a tumult of desires these carefully written pages conceal! I sometimes have a loathing for the furious cravings that give me no peace except when I am working.
+ - Yesterday, happiness came in suddenly, as it used to, and remained for a moment in the great, dark, silent drawing room.
+ - The man I am will always raise a protest against the man I wanted to be and the two will live together to the end, but the man I wanted to be will be the one on whom judgement will be passed.
+ - A scrupulous man will never produce a great novel.
+ - Let us hope that good authors who are bad Christians will find salvation through the books they write.
+ - A child’s fear is a world whose dark corners are quite unknown to grownup people; it has its sky and its abysses, a sky without stars, abysses into which no light can ever penetrate.
+ - Perhaps the greatest consolation of the oppressed is to consider themselves superior to their tyrants.
+ - The secret is to write just anything, to dare to write just anything, because when you write just anything, you begin to say what is important.
+ - I am probably exaggerating a little, but I owe my equilibrium to ink and paper.
+ - I have always thought that by observing things with a great deal of attention you eventually wrest some of their secrets from them, making them utter what they would most like to keep to themselves.
+ - A dish around which I see too many people doesn’t tempt me.
+ - Within ourselves is not very far and yet it is so far that one’s whole life is not always long enough to get there.
+
+19 quotes

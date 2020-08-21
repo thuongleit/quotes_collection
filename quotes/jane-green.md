@@ -1,0 +1,22 @@
+ - Nothing in this world happens without a reason. That we are all exactly where we are supposed to be, and that the pieces of the puzzle have a tendency to come together when you least expect it.
+ - Sometimes in life, you have to make things happen. That you can change your life if you’re willing to let go of the old and actively look for the new. That even if you’re on the right track, you’ll get run over if you just sit there.
+ - I am divorced, and one of the things I am tremendously grateful for is that my ex-husband and I made a decision to go through mediation. I knew a trial would drag on for years, would cost me everything, but worse, would be devastating for our four small children.
+ - It’s all well and good saying you avoid pain by avoiding relationships, but what about the wonderful things you’re avoiding as well? What about the joy and the intimacy and the trust that come with finding someone you love?
+ - You are the best person I’ve met in years, and if I’d met you in a year’s time, or maybe even a few months, I know we could be happy together, but I can’t give you what you need.
+ - When I’m single, I’m this fabulous, independent, confident woman, and then I get involved with one disastrous man after another and I turn into this needy, insecure, fearful girl who becomes frightened of her own shadow.
+ - And then there was him, the long and painful love of her life.
+ - Every time my dreams threaten to become reality, something always happens and I end up alone.
+ - Each of us may think we know exactly what we need to make us happy, what will be good for us, what will ensure we have our happy ending, but life rarely works out in the way we expect, and our happy ending may have all sorts of unexpected twists and turns, be shaped in all sorts of unexpected ways.
+ - Life, Steffi has learned, carries on around the pain, making room for it, absorbing it until it becomes part of the daily fabric, wrapping itself around you and lodging itself in your heart.
+ - Covers, so many covers, so many different, delectable pictures, and although, metaphorically speaking, it is the thing I hate most, when it comes to literature I always judge books by their covers. First the cover will catch my eye, then I read the back of the book, and then finally the first page.
+ - I think relationships are very difficult. It’s very easy to get swept away with excitement, glamour, and passion. I think the trick is to look for friendship rather than passion.
+ - Anyone can live in a house, but homes are created with patience, time and love.
+ - Nothing like being with people you’ve known almost your entire life. Having a shared history is something you just can’t create with the new ones. No matter how much you like that, it just isn’t the same.
+ - As Carrie Fisher once said in a film, everyone thinks they have good taste and a sense of humour.
+ - When I first started writing, I was living in England and I had that uniquely English sense of sarcasm, which has definitely seemed to have left me. I am a naturalized American and my sensibility has become far more American.
+ - My life is actually very boring. The life of a bestselling novelist sounds like it ought to be spectacularly glamorous and fun, but in fact I spend most of my time incognito, and in fact were you to pass me in the street you would think I was just another dowdy suburban mom.
+ - Whether you are inspired or not, the only way to unlock your creativity, is to start writing.
+ - Fantasies are absolutely safe, as long as you never try to make them a reality.
+ - That’s how it is with relationships, it’s a part of life, and all the great love songs and poems and films have been written by people who were standing where I was that morning as Simon shut the door. Doesn’t make it any easier though.
+
+20 quotes

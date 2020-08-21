@@ -1,0 +1,41 @@
+ - I am moved more by melodies, song structure, and evocative textures.
+ - I would like to think that Ben and myself have begun a partnership that will take us into different areas of music that we can continue to write, enjoy and keep me involved with music other then what I do with RUSH.
+ - I like to be able to come and go as I please, and I don’t really like having my face and name plastered around. I think it’s a bit weird to have your name plastered on every page in a magazine, where in each case you’re using a different piece of equipment.
+ - I can’t remember the first song I learned to play on bass, but the first song I learned to play on guitar was ‘For Your Love’ by the Yardbirds. That kind of was the beginning for me. I thought it was a great song and I loved the open chord progression at the beginning of that song.
+ - Invisible airwaves crackle with life Bright antennae bristle with the energy Emotional feedback on a timeless wavelength Bearing a gift beyond price, almost free.
+ - So, I don’t know what is going to happen when the CD comes out, how well it will sell, etc. But, from a personal point of view, it was a very worthwhile endeavor.
+ - I like to practice on the bass, but I don’t do it as often as I should.
+ - If you have some magical chemistry that actually find the music you make compelling, that is a big bonus.
+ - I was thrilled to support the Teenage Cancer Trust while celebrating the music of The Who – a band that changed my life.
+ - The sudden passing of Jack Bruce is terribly sad news. One of the greatest rock bassists to ever live and a true and profound inspiration to countless musicians. He was one of my first bass heroes and was a major influence on my playing and my music. My heartfelt condolences to his family and fans.
+ - I have a lot of hobbies and I can be very remiss in reminding myself to go down to the basement to work.
+ - There was a time when fast playing and fretboard pyrotechnics on the bass were important to me and when I am recording a bass track, that is still very important to me.
+ - I was taking piano lessons with a very good piano instructor in Toronto, and I’m afraid due to my schedule and discipline, it kind of fell apart. One thing lead to another and I was unable to practice as much as I wanted to.
+ - With me, satisfaction is always very fleeting with our work. I always get a little restless with it.
+ - That is what intrigues me; songwriting and song structure and expression.
+ - My studio is designed for atmosphere. I have a really cozy, comfortable room that has a great, huge glass door that views my backyard.
+ - I would like to shift more into writing for and producing people.
+ - Sometimes it’s nice to have a song that can be taken more then one way, so it can be interpreted differently.
+ - I love to write. It’s my first love.
+ - Then, once I have lyrics, being able to shape them around a song is nothing new for me, I’ve been doing that for 25 years. The soul searching part of it, the spontaneous part of it, that was, and remains, a really terrific process.
+ - Music is all about wanting to be better at it.
+ - Some writing and production projects will be a great way to spend my elderly rock years.
+ - I prefer to think of myself as a musician who is still learning and trying to do something every time out.
+ - I have such an extreme attitude about work, where I can just completely be derelict of my responsibilities and then when I am not derelict, I am completely indulged in it. I swing pretty wildly from the two extremes.
+ - I liked the fact that I was forced to get inside of my emotions and to really try to figure out a lot of what I was going through.
+ - My emotions are very simple and always have been about the Hall of Fame. It’s something that I had absolutely nothing to do with and had no control over, so I never thought much about it, to be frank.
+ - I’m a big believer of daylight in the studio.
+ - For me, how I feel about what I wrote down turns into a song.
+ - I have always felt I was more accurately a Hard Rock musician.
+ - It’s hard for me to just practice without writing something.
+ - I feel safe and comfortable to do that once I know that the song structure around the bass part is very interesting and it satisfies me in a compositional sense.
+ - I feel a little uncomfortable about endorsements.
+ - So, I really don’t consider myself a fabulous keyboard player.
+ - First of all, when you live in a country like Canada, it’s quite different from America in the sense that it’s very tied to traditions that were born in Britain.
+ - I guess, we were people who just dedicated to trying to get better.
+ - For me, there is a lot of room for improvement and there are a lot of things I would like to be better at.
+ - With the help of modern technology, I can compose intricate keyboard parts and then I have to go back and learn them in order to perform them properly.
+ - I do love using keyboards and I love writing keyboard parts, but I am not a player in the true sense of the word.
+ - But, I would be naive not to recognize the number of musicians who tell me they have been influenced by me and sight me – as well as Alex and Neil – as a musician who has been a positive influence on their playing.
+
+39 quotes

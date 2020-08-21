@@ -1,0 +1,41 @@
+ - Truth is a great flirt.
+ - My sole ambition as a composer is to hurl my javelin into the infinite space of the future.
+ - So let us not worry, and look instead as it has been taught us to do, as the birds of the air and the lilies of the field, keeping complete faith in Our Father’s goodness.
+ - My piano is to me what a ship is to the sailor, what a steed is to the Arab. It is the intimate personal depository of everything that stirred wildly in my brain during the most impassioned days of my youth. It was there that all my wishes, all my dreams, all my joys, and all my sorrows lay.
+ - Beware of missing chances; otherwise it may be altogether too late some day.
+ - My mind and fingers have worked like the damned. Homer, the Bible, Plato, Locke, Lamartine, Chateaubriand, Beethoven, Bach, Hummel, Mozart, Weber are all around me. I study them. I devour them with fury.
+ - I foster a sorrowful conception of affection. Make no sacrifices.
+ - A good Cuban cigar closes the doors to the vulgarities of the world.
+ - In life one must decide whether to conjugate the verb to have or the verb to be.
+ - Broad paths are open to every endeavour, and a sympathetic recognition is assured to every one who consecrates his art to the divine services of a conviction of a consciousness.
+ - You cannot imagine how it spoils one to have been a child prodigy.
+ - When you write the story of two happy lovers, let the story be set on the banks of Lake Como.
+ - I am not fond of speaking about politics because I don’t have in my possession an army of 200,000 soldiers.
+ - The principal task of a conductor is not to put himself in evidence but to disappear behind his functions as much as possible. We are pilots, not servants.
+ - In Hungary all native music, in its origin, is divided naturally into melody destined for song or melody for the dance.
+ - The public is always good.
+ - The supreme harmony of the cosmos is selected in the harmony of the spirit.
+ - It is my fervent wish and my greatest ambition to leave a work with a few useful instructions for the pianists after me.
+ - Real men are sadly lacking in this world, for when they are put to the test they prove worthless.
+ - It is impossible to imagine a more complete fusion with nature than that of the Gypsy.
+ - As for famous men who were not artists, I am beginning to be tired of them. Those poor little scoundrels who are called great men fill me with nothing but overwhelming horror.
+ - I find little in the works of Beethoven, Berlioz, Wagner and others when they are led by a conductor who functions like a windmill.
+ - Life is only a long and bitter suicide, and faith alone can transform this suicide into a sacrifice.
+ - The day will come when all nations amidst which the Jews are dwelling will have to raise the question of their wholesale expulsion, a question which will be one of life or death, good health or chronic disease, peaceful existence or perpetual social fever.
+ - Sorrowful and great is the artist’s destiny.
+ - Music embodies feeling without forcing it to contend and combine with thought, as it is forced in most arts and especially in the art of words.
+ - The music of the Gypsies belongs in the sphere of improvisation rather than in any other, without which it would have no power to exist.
+ - In the oldest chronicles of the times conserved in Hungary, reports will be found of Gypsy music, but never of any other, either Magyar, Slavic or Jewish.
+ - Supreme serenity still remains the Ideal of great Art. The shapes and transitory forms of life are but stages toward this Ideal, which Christ’s religion illuminates with His divine light.
+ - Mournful and yet grand is the destiny of the artist.
+ - Oral musical traditions are rooted in assured and scrupulous faith.
+ - A person of any mental quality has ideas of his own. This is common sense.
+ - Inspiration is enough to give expression to the tone in singing, especially when the song is without words.
+ - As the mother teaches her children how to express themselves in their language, so one Gypsy musician teaches the other. They have never shown any need for notation.
+ - We need improvement in the style of performance. There is no more advantage in a musician who plays and conducts than in one who is only a beater of rhythm.
+ - Music is never stationary; successive forms and styles are only like so many resting-places – like tents pitched and taken down again on the road to the Ideal.
+ - Companions, in misery and worse, that is what we all are, and to try to change this substantially avails us nothing.
+ - A theatre receives recognition through its initiative, which is indispensable for first-rate performances.
+ - I conclude that the Wagnerian operas which are already in the repertoire, and other masterworks as well, stand in no further need of my services.
+
+39 quotes

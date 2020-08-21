@@ -1,0 +1,25 @@
+ - Arts is like the power of now. When you’re performing, when you’re playing, when you’re sculpting, painting, it’s that moment. I’m in the moment of my life, and that’s what I love to do.
+ - I play every day. It’s like a habit for me now. I just, if I don’t play, I kind of miss – something’s off.
+ - We always felt that if you do something with quality and integrity, then it’s going to come back to you.
+ - I think President Obama really does get the value of the arts.
+ - Clifford Brown was in the jazz circles considered to be probably the greatest trumpet player who ever lived.
+ - I think jazz is a phenomenal creative force, because it’s one man, one vote as you’re playing, but it’s a collective thing, what you’re doing. You’re listening to all the musicians around you and you’re working within that structure.
+ - I think we as human beings need to be able to appreciate each other’s differences and I think jazz really takes us in that direction.
+ - Selfishly, I make music for me. I like to make music. I like looking for songs. I like working with interesting musicians. I like producing records. It’s something I will always do.
+ - When I finish an album and I find myself listening to it in the car, because it makes me feel a certain way, that’s the time to try to let other people know about it.
+ - I like to listed to the adventurous guys – the Coltranes, Miles Davis, the guys who just let it loose.
+ - I find that it’s nice to work with somebody and spin off on someone else’s feelings. You get a little jaded by yourself.
+ - I’m an old-timer in the business from the sense that when you do something that you feel good about there might be another person out there who feels the same way, or a hundred or a couple million.
+ - I’m seduced by the arts in general. Arts is like the power of now.
+ - The Japanese seem to be a loyal audience.
+ - You can have a great lyric and a so-so melody; it’s going to be a tough sell.
+ - The trumpet was not a lyrical singing instrument.
+ - You know, the record business is much different than being artist on stage.
+ - I wake up in the morning, I do a little stretching exercises, pick up the horn and play.
+ - There’s something interesting about playing live; you’re in the moment, and I think it would be beneficial.
+ - It’s – as opposed to tape where you have a magnetic tape that’s excited by frequencies that you hit, digital was a process where musical sounds are transferred to numbers and stored as numbers.
+ - I don’t think radio is selling records like they used to. They’d hawk the song and hawk the artist and you’d get so excited, you’d stop your car and go into the nearest record store.
+ - It’s very clean. With tape, you get noise.
+ - I confess that I listen to my own music for my own pleasure.
+
+23 quotes

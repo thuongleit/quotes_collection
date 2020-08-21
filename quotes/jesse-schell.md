@@ -1,0 +1,22 @@
+ - We are shifting into an enjoyment-based economy. And who knows more about making enjoyment than game developers?
+ - Game mechanics are the core of what a game truly is. They are the interactions and relationships that remain when all of the aesthetics, technology, and story are stripped away.
+ - The main way to reduce stress in the workplace is by picking the right people.
+ - People don’t just stop playing Facebook games. They divorce them.
+ - To be connected to the real world is healthy and important.
+ - A game is a problem-solving activity, approached with a playful attitude.
+ - Everybody is playing games. There are games now for pretty much every age, every demographic.
+ - Why is it that big companies fail when the technology changes? It happens in every industry, so what’s the pattern? What are they all doing wrong?
+ - Usually, the best ideas come from having to fix a really hard problem.
+ - One of the main things that’s appealing about games is that you know a game can be won. It’s an unusual game that’s impossible to win.
+ - Games have no other purpose than to please.
+ - Games are starting to creep into every aspect of our day.
+ - Who cares and who doesn’t care about a project, is going to shape the project in a significant way.
+ - The thing that all sports have in common is that they have no fantasy elements, which is a little weird.
+ - You don’t want the office to be a completely relaxing place. You want it to be a vibrant place.
+ - More and more women are going online.
+ - Facebook is terrifying to the traditional games biz.
+ - I jokingly call this convergence of games into reality the ‘Gamepocalypse:’ the moment when every moment of life is actually a game.
+ - Our affluence has allowed us to move to a place where we tend to make things pleasurable, as opposed to efficient.
+ - Is it OK for Amazon to know every word of every book you’ve read? Are you comfortable with that? Maybe you are. Is it OK to let everybody know you eat Corn Flakes? OK, but then there are certain products you might not want people to know that you’re using.
+
+20 quotes

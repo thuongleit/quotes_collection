@@ -1,0 +1,301 @@
+ - Incredible things can be done simply if we are committed to making them happen.
+ - Being a seeker means no matter what the Vedas said, what Krishna or Shiva said, you have to know the truth in your own experience.
+ - If it is conditional, it is not love.
+ - Do not try to fix whatever comes in your life. Fix yourself in such a way that whatever comes, you will be fine.
+ - Once your mind becomes absolutely still, your intelligence transcends human limitations.
+ - Conclusion means death. Confusion means possibility.
+ - The sign of intelligence is that you are constantly wondering. Idiots are always dead sure about every damn thing they are doing in their life.
+ - Are you here to experience life or think about it?
+ - If you want to be successful, don’t seek success – seek competence, empowerment; do nothing short of the best that you can do.
+ - Frustration, discouragement, and depression mean you are working against yourself.
+ - Meditation is the only way to freedom from stress as it is a dimension beyond the mind. All the stress and struggle are of the mind.
+ - A materialistic person is ruthless with other people but kind to himself. A spiritual person is ruthless with himself but kind to everybody else.
+ - Nothingness is the basis of everything.
+ - Most of your desires are not really about yourself. You just picked them up from your social surroundings.
+ - Essentially, yoga means dissolving your identity.
+ - Whether it is your work, your love, or your life – unless you throw your entire self into it, you will never know what it is.
+ - Most of the time you are thinking about life, not living life.
+ - Detachment does not mean non-involvement. You can be deeply involved but not entangled.
+ - If you shift from compulsiveness to consciousness, being joyful will not be an effort.
+ - Only when you stop identifying yourself with things that are not you, the possibility of knowing the nature of your existence arises.
+ - If you want to find out the purpose of life, you need to look beyond the limitations of body and mind.
+ - In the vastness of the cosmos, everything is going perfect, but one nasty little thought in your mind can make it a bad day. That is lack of perspective.
+ - The highest force in existence is consciousness, and you are that.
+ - Responsibility means being able to respond to whatever situation you may face in your life.
+ - If you do not choose to become a steady source of blissfulness for yourself and everything around you, you will remain an immature life.
+ - Confusion is better than stupid conclusions. In confusion, there is still a possibility. In stupid conclusion, there is no possibility.
+ - You can give joyfully only when you have found something so valuable within yourself that everything else does not mean so much to you anymore.
+ - With wrong farming methods, we turn fertile land into desert. Unless we go back to organic farming and save the soil, there is no future.
+ - If anyone steps on your ego, instantly, he becomes your enemy. But a Guru is a friend who constantly tramples your ego.
+ - Karma is your survival and your bondage. And if you handle it right, it can also be your liberation.
+ - Water has memory. Depending on how you treat it, what kind of thoughts and emotions you generate, accordingly it behaves in your body.
+ - Time and space are just projections of your consciousness.
+ - Devotion means your involvement with life is no more conditional.
+ - A snake knows more about what is happening around than any other creature, because it has no ears to listen to gossip – only direct perception.
+ - Without being in constant exchange with the rest of the cosmos, you cannot exist. The idea of individuality is an illusion.
+ - Collaboration is far more powerful than competition. Do not think that only if you are pushed to the wall, you will do your best.
+ - The focus of education should not be on suppressive information but on kindling the thirst for knowing.
+ - You do not have to pursue something intensely; you as a being should become very intense.
+ - If you dissolve your personality, your presence becomes very powerful – this is the essence of spiritual sadhana.
+ - If you think you are big, you will become small. If you are willing to become an absolute nothing, you will become larger than creation and Creator.
+ - It is the pain of ignorance which makes one into a seeker.
+ - If we do not work for individual transformation, talking about world peace is just entertainment.
+ - The source of creation is within you. You can be just a piece of flesh, or you can be the Creator himself – this is the choice and potential you have.
+ - The very way you breathe, sit, stand, eat, walk, work – everything can become yoga. You can use any process of life to transcend your limitations.
+ - I am not talking about you being a spectator, I am talking about involvement. I am talking about involving yourself into life in such a way that you dissolve into it.
+ - Meditation is not an act, it is a quality. Meditation is not something that you do – it is something that you become.
+ - Devotion is not about a God. Devotion is about you making your emotions so sweet that your life experience becomes beautiful.
+ - Inward is not a direction. Inward is a dimension.
+ - If you care for people around you, you must make yourself into a person they enjoy being with.
+ - The physical is only a small aspect of existence. In this cosmos, not even 1% is physical – the rest is non-physical.
+ - Comfort will never come to one who does not touch the stillness within himself.
+ - On one level, life is effervescent and active. On another level, it is absolutely still. The inner stillness nourishes the outer activity.
+ - Only in unawareness you are mortal. In awareness you are immortal.
+ - You are a piece of creation. If you go against any other piece of creation, you are unknowingly going against yourself.
+ - Trees are the source of your very breath – cut and you shall curtail life itself.
+ - Self-transformation is not just about changing yourself. It means shifting yourself to a completely new dimension of experience and perception.
+ - The essence of spirituality is, to be constantly aware of the oneness of all; at the same time to celebrate the uniqueness of the individual.
+ - People have fallen in love with words and lost the world. It’s time to regain it.
+ - The Divine is constantly waiting at your doorstep to move in if only you allow the necessary space.
+ - If you cultivate your body, your mind, your emotions, and your energies to a certain level of maturity, meditation will blossom.
+ - Your ideas need not have anything to do with reality. Making conclusions is a sure way of not enhancing our perception.
+ - When you are truly meditative, there is no time and space for you. Time and space is just a creation of the mind.
+ - Whether it is suffering or joy, going through experiences in life is not so much of a karma. Depriving yourself of any experience is the big karma.
+ - On the spiritual path, the first thing is to experientially ascertain where your are right now. You can only start the journey from where you are.
+ - Whatever happens – ultimately, life corrects itself.
+ - Every breath you take, you are getting closer to the grave. But every breath you take, you can also get closer to your liberation.
+ - Most human beings live like a bird in a cage whose door was blown away. Out of habit, too busy gold-plating the cage, they do not soar to the ultimate possibility.
+ - Gossip is a kind of misalignment with people around you. You can either gossip about everyone, or you can become one with everyone.
+ - Meditation means to know life beyond the sphere of the physical; to know and experience life not just at the surface but at the source.
+ - Without raising human consciousness, whatever we do in the world will only lead to more and more suffering.
+ - If you are wired to your memory, repetitions will happen and redundancy will come; but if you are paying attention, that changes your ability to look at things.
+ - Only when you are absolutely devoted to what you do, can you produce something significant in the world.
+ - There is no such thing as having attained enough. Life is an endless possibility.
+ - Spirituality does not mean going away from life. Spirituality means becoming alive in the fullest possible way so you are not just alive on the surface, you are alive to the core.
+ - Integrity is not about the action but its purpose. Are you doing it for everyone’s wellbeing or for your own benefit?
+ - If you try to live that which is past, that which IS will bypass you.
+ - Being on the spiritual path means you want to be a success in an existential sphere, not just on a social level.
+ - It is possible for every human being to be blissful, if you are willing to pay a little attention to how this human mechanism functions.
+ - Seeking means admitting that you do not know. Once you have cleared your slate, truth can imprint itself upon it.
+ - Whatever your goal in life, unless you develop a great urgency, what could be near will be far away.
+ - Death is not a disaster. Too many births – that is the real disaster.
+ - When every moment, you experience yourself as the source of creation, not as a piece of creation, then you are realized.
+ - Devotion is not drama. Devotion is a way of living. Devotion is the way you walk, the way you breathe, and the way your heart beats.
+ - The moment you ascribe who you are right now to what happened yesterday, you have written off your life.
+ - Meditation is the nourishment for flowering.
+ - If you live your life burning for the highest possibility, in that burning itself, there is liberation.
+ - The hand of the Creator is actively involved in every atom, every plant, every creature, and yourself, in every cell in your body.
+ - Mind is madness. Only when you go beyond the mind, there will be meditation.
+ - Yoga is a way to produce a chemistry of blissfulness. Once you are blissful by your own nature, you can deal with outside situations effortlessly.
+ - Plain intellectual thinking is the peak of ignorance because all that you will know is to play with a few aspects and make others look like fools.
+ - All along, you’ve been shaping your destiny unconsciously. But you can also work on it consciously. If you make the effort to access your core and realise that everything is your responsibility, and shift your focus inside you, then you can rewrite your destiny.
+ - Life and death are like inhalation and exhalation. They always exist together.
+ - Every basic act like eating and copulating becomes magical when you do it consciously.
+ - One significant thing that you can do for your children is to invest some time into taking them out into nature.
+ - We neither need a political revolution nor a religious revolution. What we need is an inner transformation in human beings.
+ - Yoga is the journey from just eating and sleeping to becoming an ecstatic being. This is the aspiration of life itself.
+ - When one is overfed and another one is hungry, I call that a disaster.
+ - It is not because there is God that devotion has come; because there is devotion, there is God.
+ - Until you allow yourself to blossom into a state of boundlessness, you should not be content, you must burn with discontent.
+ - A Guru is not someone who holds a torch for you. He is the torch.
+ - Bhakti yoga is a way of transforming your emotion from negativity to utmost pleasantness.
+ - Pleasure is just a shadow of joy. When there is no joy in you, you become a pleasure seeker.
+ - There is no need to make spirituality a part of education. If you make education non-imposing and non-suppressive, people are naturally spiritual.
+ - Life is fluid, ever evolving. The more dynamic you are, the more happens in your life, all the time.
+ - If you walk through life with ease and without any sense of entanglement, that is maturity.
+ - All beliefs will crash somewhere. Only reality will sustain itself.
+ - Yoga means union, that in your experience, everything has become one.
+ - Life is not outside of you. You are life.
+ - Knowledge can only be limited. Ignorance is boundless. In recognizing our ignorance, we will touch that which is boundless.
+ - A guru is not a crutch, he is a bridge.
+ - If you see there is no meaning to anything that you are doing, your ego collapses; so you are trying to find all kinds of fake meanings.
+ - For wealth to translate into wellbeing, you need a spiritual element within you. Without that, your success will work against you.
+ - If you don’t invest your life in what you really care for, your life will be wasted. You will not fly – you will just drag yourself through life.
+ - Do not wait for miracles to happen. The greatest miracle in life is life itself.
+ - The best thing that you can do to this world is to be joyous. Being joyful, is the greatest offering you can make to the world.
+ - Only when man is willing to change himself, there can be a true revolution.
+ - Negative energies can’t touch you if you are in a state of meditativeness.
+ - Spiritual process is not for the dead or the dying; it is for the living who want to become fully alive in all dimensions of life.
+ - The purpose of existence is to exist. It is too fantastic to have a meaning.
+ - The first step towards knowing is to see that you do not know.
+ - Unless you are oblivious to your own suffering, you have no right to be oblivious to other people’s suffering.
+ - When you are no more identified with your physicality, you become available to Grace.
+ - Spirituality means to put your evolutionary process on fast-forward.
+ - Devotion is the spark that can fire up your chemistry and energy to such a level that it creates an explosion of ecstasy within you.
+ - Ganapati, the one with the human body and the head of a Gana, became a tremendous possibility.
+ - Devotion means your limited entity has been dissolved; a much larger possibility has become a living reality for you.
+ - When you exist here only as a body and a mind, suffering is inevitable.
+ - Sadhana is towards creating a sense of inner fulfillment, where there is no need to lean on anyone anymore.
+ - The methods and technologies of how to experience that which is beyond the physical is what is known as the science of yoga is a longing. Only when your longing is cranked up to peak intensity, knowing becomes a possibility.
+ - The whole creation is so tenderly balanced – this manifests the mastery of the Creator.
+ - Memory creates a hallucination of the past, desire creates a hallucination of the future.
+ - People try to create an outwardly perfect life, but the quality of life is based on the inward.
+ - With yoga, not only your body should become flexible – your mind and emotions, and above all your consciousness should become flexible.
+ - There is a region beyond reason. Unless you get there, you will not know the sweetness of love, nor the Divine.
+ - It is not your qualifications but your exposure in life that makes you who you are.
+ - No two individuals are ever the same. You cannot equate people. You can only create equal opportunity.
+ - Most people are ego-sensitive, not life-sensitive.
+ - Spiritual process is not about chanting a mantra or closing your eyes, spiritual process is essentially about enhancing your perception.
+ - Higher dimensions of Awareness means Higher dimensions of energy.
+ - A human being is like a seed. Either you can keep it as it is, or you can make it grow into a wonderful tree with flowers and fruits.
+ - Being spiritual does not mean being dead serious. If you allow life to happen within you exuberantly, unbridled, you will touch the spirit.
+ - Destiny is what every human being creates for oneself. Fate is when you fail to create your own destiny.
+ - Your ability to love, to reach out, and to experience life is limitless. The limitation is only of the body and mind.
+ - Ignorance is not bliss. Ignorance is brutal. The brutality of ignorance is such that it will make you dead while alive.
+ - Having a good home, eating good food, wearing good clothes, are a means to living well; they are not the goals of our life. The quality of your life is decided by how peaceful and joyful you are.
+ - I’m not interested in the wellbeing of society because society is a big lie. Where is society? I only see individual beings and only the individual can grow. Each one is enormous and tremendous in his own way-each one is unique.
+ - Your history is animal. Your future is divinity. Right now, you are like a pendulum, swinging between the two.
+ - Once you have access to the source of creation within you, your health and wellbeing will naturally be taken care of.
+ - Awareness means grasping life just the way it is, without contamination by mental projections.
+ - Do not talk about the soul, heaven, or God. Talking about something that is not yet a reality for you amounts to falsehood.
+ - The mind remembers only certain things. The body remembers everything. The information it carries goes back to the beginning of existence.
+ - What is most needed right now is evolving human consciousness. Without that, science, technology, development, everything will go waste.
+ - Looking at everything through your phone is only numbing your perception – it does not really enhance your experience of life in any way.
+ - If you know how to keep yourself pleasant within, irrespective of what is happening around you, Ultimate Liberation cannot be denied to you.
+ - If you think one thing is sacred but you cannot stand the other, if you love the Creator but hate the creation, that is vulgarity.
+ - If thinking minds, questioning minds, doubting minds, are talking about faith, their whole life will become fake.
+ - As a leader, you build trust when you give yourself 100%, so that people understand with your every action, you stand for them.
+ - If you think one piece of creation is better than another, you have completely lost it.
+ - Whether you are running a business, an industry, or a nation – what is needed are insight, integrity, and inspiration.
+ - Meditation means ultimate freedom within you.
+ - Spiritual sadhana is not about making you into something other than what you are, but to erase the false faces that you have created for yourself is not something that you do; it is something that you become.
+ - Spirituality is not about becoming special – it is about becoming one with everything.
+ - Everything that can be created has already been done in creation. As human beings, we can only imitate, not create as such.
+ - The moment you function in the world without being concerned about what is happening to life around you, you are a Criminal.
+ - I barely belong to this world, but still I’m participating.
+ - Life happens from within. How aware you are of it, decides the quality of your body, your mind, and your experience of life.
+ - Seeing everything just the way it is gives you the power and capability to walk through life effortlessly.
+ - A devotee has no agenda of his own. For him, the object of devotion is everything.
+ - A child is a life that has not gone too far away from the Creator. Know a child to know life.
+ - When you do something just because it is needed, you involve yourself totally without it meaning anything to you, then action becomes liberating.
+ - The most enduring sort of power is realizing the power within.
+ - I do not understand why people want to control their minds. I want them to liberate their minds.
+ - In yoga, you never chase an experience – you only prepare for it.
+ - Once there is a distance between you and your thought process, a new freedom is born. With this freedom, a new perception arises.
+ - Intelligence is of paramount importance to live life sensibly, because without intelligence, there is no clarity. And Clarity is intelligence everyone is capable of.
+ - Now, you believe you are a material person dabbling with. But essentially, you are a spiritual being dabbling with the material world means you have started seeing life with utmost clarity. There are no more illusions about it. You see everything just the way it is.
+ - Once you realize that the way you exist right now is not enough, that there is something more, your spiritual process has already begun.
+ - If you ask a tree how he feels to know that he’s spreading his fragrance and making people happy, I don’t think a tree looks at it that way. I am just like that, and it is just my nature to be like this.
+ - Every other creature on the planet is doing its best. Only human beings hesitate about that.
+ - We don’t need more Hindus, more Christians, or more Muslims – we need more Buddhas, more Jesuses, and more Krishnas – then there will be true change. Every human being has that inner potential.
+ - We think there is an ecological problem, but the real problem is irresponsible growth of human population.
+ - Your body and your mind can be receptacles to perceive the whole cosmos – if only you do not identify yourself with them.
+ - People call books holy, but they are yet to realize that life is holy.
+ - Any teaching will not transform you as long as you are deeply attached to your body. Yoga is towards reducing this attachment.
+ - You will know the joy of action only when you are blissful by your own nature.
+ - Meditation is a way of moving into the unlimited dimension of who you are – it is the ultimate freedom.
+ - Your personality is something that you created. Once you are aware of that, you could create it whichever way you want.
+ - If you knew the immensity of what it means to be human, you would not talk about God or Heaven.
+ - Today, it is more important than ever to raise human consciousness, so that technology becomes a means of empowerment, not destruction.
+ - Once you touch a dimension which is boundless, the idea of time and space disappears. What is here is there; what is there is here.
+ - In tension you cannot perceive; in laxity you cannot perceive. Only if you are intense and relaxed, you perceive everything just the way it is.
+ - If you can break the illusion that you are separate and begin to experience the oneness of the existence, that is yoga.
+ - For the Divine to function through you, it is important to make every breath, every pulsation in the body, and your very existence an offering.
+ - The spiritual process has always been referred to as a journey – constant change.
+ - To be spiritual means to be an emperor within yourself. This is the only way to be.
+ - If you want to really know higher dimensions of life, there needs to be a constant sense of peacefulness and joyfulness within you.
+ - This is a technology where without external input, you create a chemistry of blissfulness within you.
+ - Only if you are joyful, you can be free from the fruit of action.
+ - When you consciously choose to be ordinary, you become extraordinary.
+ - Devotion is about you. Maybe you use another object as inspiration, but you change your quality; you walk more joyfully, gently upon this planet.
+ - Creation is not your doing, but the way you are, the way you experience life, the situations you attract, are one hundred percent your doing.
+ - One who is constantly resting within himself is capable of endless activity.
+ - If you just live totally, you will dissolve lots of karma. Living totally means that you experience anything that comes fully and intensely.
+ - If you want the Divine to become alive within you, first of all you as a human being have to become absolutely alive.
+ - If only there is a sufficient number of people whose experience of life goes beyond body and mind, this world will be a very different place.
+ - Meditation does not mean you have to grin every moment of your life, but to learn to let your bones smile.
+ - If you did not have any personality, you would have a tremendous presence. The more rigid your personality, the more constipated your whole being.
+ - Devotion as an act is vulgar. Devotion as a way of life is wonderful. If you are a great devotee, it is ugly. If you are devout, it is beautiful.
+ - There is wealth but no wellbeing. What are you going to do with this wealth?
+ - The very life within you is longing to be joyful because joyfulness is the nature of the source of creation.
+ - The most fundamental and the most important aspect of the spiritual process can in no way be stopped by anybody – except yourself.
+ - Making conclusions about life is a sure way to deny yourself the possibility of a human being transforming himself into the Divine.
+ - Mental alertness is not awareness. Mental alertness only enhances your survival instincts. It does not take you towards liberation.
+ - To simply sit here and know the tenderness of being alive means being drenched in love.
+ - If you strive to make yourself in such a way that nobody can help loving you, life will blossom, everything will yield.
+ - When meditation makes you realize that you have so many limitations of your own and they are all created by you, the longing to break them will come.
+ - Being spiritual is a far more intelligent way to exist. It means being in tune with the intelligence of the Creator.
+ - We are eating, using up, and possessing more than we should. That is why a large portion of the human population is hungry.
+ - Your intelligence is so deeply entangled with the social identification that you have taken on, your brains are not working in line with the life within you; it is working against your own life. That is the source of misery.
+ - Seek what you know as the highest. It does not matter whether it is going to happen or not – living with a vision itself is a very elevating process.
+ - If you become so intensely curious that without knowing you cannot live, that is called seeking.
+ - If you do a yoga that does not change the patterns of energy within you, I would say, don’t waste your time on it.
+ - A consecrated space experientially reminds you that there is much more to life than you think.
+ - The only reason why you are unhappy is because you are trying to be happy.
+ - You have the choice to be here as a speck of creation or as the very source of creation. Not exploring such a phenomenal possibility is a crime.
+ - Devotion means who you are should merge with what you are doing. Otherwise, whatever your activity may be, it will not be of any great significance.
+ - The science and technology of how this life functions and what we can do with it, is what we refer to as yoga.
+ - Meditation is an opportunity to move into a dimension where there is no such thing as stress within you.
+ - Devotion is when your involvement with life is so absolute that you yourself do not matter anymore.
+ - The very purpose of life is to reach the highest possible flowering.
+ - Destiny is the result of all your actions and the impressions that you have taken in.
+ - Intelligence essentially means that your intellect is sharp enough to see life the way it is.
+ - Any method to heighten the presence of that which is the source of creation within you, is yoga.
+ - What you call intelligence and what you refer to as the Creator are not different. The Creator is pure intelligence, intelligence beyond logic.
+ - Generally, people who are not self-realized are full of themselves. One who is self-realized sees that the whole world is full of one.
+ - What is the meaning of life? It is too great a phenomenon to fit into any meaning.
+ - To create something and not to be attached to what you have created is a spiritual process.
+ - If you look at creation the way it is, it is explosively beautiful.
+ - If you pay sufficient attention, everything in life is magnificent, everything is a doorway to the Divine.
+ - If we are not sensible about this, in our ideas of wealth creation we may completely destroy the planet – which we are already doing in many ways.
+ - Knowing yourself has to always come from within. The outside can inspire or guide you, but knowing has to come from within you.
+ - When the very source of creation is within you, all the solutions are within you. The problems are just created by you.
+ - Spirituality is not a disability – it is a phenomenal empowerment of life.
+ - One who explores and knows all aspects of his life, is called self-realized.
+ - Life has come from a very beautiful source. If you remain in touch with that source, everything about you will be beautiful.
+ - The cosmos is a complex amalgamation of sounds. One of the key sounds through which you can experience the cosmic nature of creation is Shambho.
+ - Consciousness is not a bunch of thoughts or a certain level of understanding. Consciousness is a dimension that is beyond our physicality.
+ - This is not just about talking or teaching a practice – this is about releasing an explosive energy of ecstasy.
+ - Too many people are hungry not because there is dearth of food. It is because there is dearth of love and care in human hearts.
+ - Yoga is not just about living better. It is about exploring the very source of life.
+ - Trying to change social, national, or global realities without working on human consciousness means there is no serious intention.
+ - Devotion means a profusion of life.
+ - If you seek security in life, unknowingly you seek death. The only truly secure place is your grave.
+ - If you want to create a beautiful world, people in positions of responsibility and power should know a certain sense of joyfulness and peacefulness.
+ - Meditation is that dimension of science which focuses on creating the right kind of interior, so that you can live a peaceful and joyous life.
+ - No work is stressful. It is your inability to manage your body, mind, and emotions that makes it stressful.
+ - Believing that what you do not know cannot exist is the crown of ignorance.
+ - When who you are and what you are is not decided by any external forces, then you are in dignity.
+ - For the sort of potential that a human being carries, it is a very brief life.
+ - In spirituality, when we say growth, we are talking about becoming smaller; not just smaller – non-existent.
+ - Spirituality is ultimate greed. You don’t just want a piece of creation – you want the source of creation.
+ - The most beautiful moments in life are moments when you are expressing your joy, not when you are seeking it.
+ - The spiritual process is always individual. You may sit in a group, but only the individual can evolve, only the individual can liberate himself.
+ - Yoga essentially means finding the keys to the nature of the existence.
+ - For integrity to flourish in society, we have to nurture it – within ourselves, in our children, in our education systems.
+ - Modern science has its value in terms of utility, but it cannot open up existence to human experience.
+ - Your energy and your awareness are directly connected. If your energies are intense, your awareness naturally grows and sharpens.
+ - Ignoring the source of creation and trying to conduct your life yourself is a terribly egoistic and ignorant attitude towards life.
+ - The fear is simply because you are not living with life, You are living in your mind.
+ - I don’t have opinions. Only if it is necessary for a particular action, I make a judgment. Opinions are fetters for your intelligence.
+ - What you see as cosmos is a living mind – intelligent space.
+ - Do not try to be special. If you are simply ordinary, more ordinary than others, you will become extraordinary.
+ - When you do not know how to handle yourself, where is the need to produce another life.
+ - As long as you are a part of the physical process of the existence, there is nothing that does not change.
+ - If we transform our population into a trained, focused, balanced and inspired population, India will be a miracle.
+ - Hindu is a geographical identity, or at the most a cultural one – not a religion. There is no set of beliefs that everyone has to adhere to.
+ - Devotion is a tool to dissolve yourself into nothingness and become the very hand of the Divine.
+ - When you absolutely throw yourself into your activity, your energy will only grow.
+ - There is only one calamity: ignorance. And there is only one solution: enlightenment.
+ - True compassion is not about giving or taking. True compassion is doing just what is needed.
+ - What we refer to as yoga is just a technology to make your energies function by choice, not by compulsion.
+ - You cannot be receptive when you are too full of yourself. The less you are, the more you receive. The more you are, the less you receive.
+ - If you evolve within you, there will be no pride, no prejudice. You will perform action out of pure, absolute sense.
+ - In this culture, God is not the highest entity; mukti or liberation is the highest goal. We are willing to use God as a stepping stone, if needed.
+ - Blissfulness does not compel you to behave in any particular way. Out of bliss, I can laugh or cry; I can sit quietly or be active in the world.
+ - Being attached to someone is not about the other person. It is about your own sense of inadequacy.
+ - The roots of the Divine are entrenched in this body. If you nurture the roots, how can you avoid the flowering?
+ - Your thoughts and emotions are the drama that you create in your mind. You must be able to end it somewhere.
+ - Karma means ultimate responsibility. You even take responsibility for your genetics.
+ - If you have no agenda of your own, life will work according to its agenda. Your personal agenda is taking you further and further away from that.
+ - Devotion is a place where you do not exist; life just flows through you as a certain sweetness and beauty.
+ - Transformation means nothing of the old should remain; something absolutely new should happen.
+ - A spiritual process is not a divorce from life. It is an irrevocable love affair with life.
+ - Spirituality is a boundless ability to respond and experience.
+ - Devotion is not a concept, not a certain kind of ideology, not a certain kind of act, it is the agent of dissolution.
+ - What is true may not always be pleasant and what is pleasant may not be true. ~~Sadhguru
+ - If your energy body is in full vibrancy, the physical body will naturally fix itself.
+ - Yoga means to unite the limited with the unlimited.
+ - It would be wonderful if this world was guided by little children, because they are closer to life than anyone else.
+
+299 quotes

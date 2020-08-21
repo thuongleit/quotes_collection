@@ -1,0 +1,31 @@
+ - Either you’re growing or you’re decaying; there’s no middle ground. If you’re standing still, you’re decaying.
+ - I gotta keep busy. I’m not happy unless I’m working on two, three things.
+ - No matter how much time you spend reading books or following your intuition, you’re gonna screw it up. Fifty times. You can’t do parenting right.
+ - I know that if I can’t move people, then I have no business being an actor.
+ - If you want to be an actor and you love acting, you can do it whether you’re doing something else or not. You can be connected with community theater or make your own little movies. But, if you want to be a movie star, you’ve got a tough road ahead of you.
+ - If I’m going to make a fake movie, it’s going to be a fake hit.
+ - But one of the things I learned from improvising is that all of life is an improvisation, whether you like it or not. Some of the greatest scientific discoveries of the 20th century came out of people dropping things.
+ - Creativity means learning where the rules exist, and then breaking them! Saying, “It’s better this way.” But you have to know the rules in order to break them with any grace.
+ - There’s a familiarity that sometimes shocks and annoys the hell out of me. People want a relationship with you that they haven’t earned.
+ - Improvisation sometimes seemed more like jazz than acting, like verbal jazz, with the actors playing a theme back and forth, and then introducing another theme, incorporating it, somehow trying to work their way all together to a meaning of some kind, or at least a conclusion.
+ - Two-thirds of American movies are extensions of commercials – they tell you how to feel and they tell you how to think – rather than letting you figure it out on your own.
+ - It’s murder to doubt yourself in life. It took until I was 45 to get to that point. As hard as it is in your work, it’s harder in your life. But it can be done.
+ - Every physicist knows that things connect with each other. To isolate things is not the way the universe works – winning best actor is arbitrary.
+ - A product is most easily sold when it has an identity. So they wrap you all up and put a label on you. And then that’s what you have to be. But what I’m looking for is the opportunity to explore what I can do, probing the limits, learning.
+ - Marriage requires searing honesty at all costs. I learned that from my third wife.
+ - For many years my acting came from a place of surmounting some enormous obstacle, confronting some stern and faceless judge who would condemn me to a pit of hell if I didn’t achieve the “zone,” if even for a moment. Not a particularly happy place to work from.
+ - Is it possible to have an endless series of successes without falling on our faces? I suppose it is, but I think it would entail doing the same things over and over again without taking chances, without taking risks or exploring our limits, without finding out what we can and can’t do.
+ - I’ve always considered myself an actor, but I wasn’t making a living as an actor.
+ - I used to watch the world as if it was a performance and I would realize that certain things that people did moved me, and certain things didn’t move me, and I tried to analyze, even at that age, six and seven and eight, why I was moved by certain things they did.
+ - You know what Andy Warhol’s sole contribution to this country has been? He made Campbell’s Soup a household word.
+ - All I can say is if the part doesn’t delight me in some way, or I can’t feel any compassion for it, I just can’t do it.
+ - I had a hard time treating my field as if it’s horse racing, putting actors in competition against each other. I see how the industry and the studios feel it’s important, but I don’t really have a feeling for being in competition. I want to feel sympathetic and close to others, not opposed to them.
+ - No matter what you do or where you are, you’re going to be missing out on something.
+ - I don’t believe in competitions between artists. This is insane. Who has the authority to say someone is better?
+ - My favorite kind of film is serious comedy. Comedy with serious underpinning.
+ - Truth is always unfolding. It’s not an absolute.
+ - Things are never going to turn out how you think they will.
+ - I don’t think it does the audience any good to know what I do to prepare. It keeps it more of a surprise. I don’t feel like it has to be a mystery.
+ - That’s what we’re all doing, all the time, whether we know it or not. Whether we like it or not. Creating something on the spur of the moment with the materials at hand. We might just as well let the rest of it go, join the party, and dance our hearts out.
+
+29 quotes

@@ -1,0 +1,105 @@
+ - Hard work will always overcome natural talent when natural talent does not work hard enough.
+ - Football, bloody hell!
+ - Attack wins you games, defence wins you titles.
+ - I’ve never played for a draw in my life.
+ - Only true champions come out and show their worth after defeat- and I expect us to do that.
+ - Promise is one thing. Fulfilling that promise is quite another.
+ - As long as there are games to play its not over.
+ - All they can talk about is Manchester United.
+ - Once you shake hands with the devil, you have to accept they are in control.
+ - The work of a team should always embrace a great player, but the great player must always work.
+ - Distinguish between power and control, delegate, be decisive – and always remember people’s first names.
+ - I’m going to tell you the story about the geese which fly 5,000 miles from Canada to France.
+ - You start with what you believe in. I believe in building a football club rather than building a football team.
+ - Ronaldo could play for Millwall, QPR, Doncaster Rovers or anyone and he’d score a hat-trick. I’m not sure Messi could do it. Ronaldo’s got two feet, he’s quick, he’s good in the air and he’s brave, though Messi’s brave too of course. I just think Messi is a Barcelona player.
+ - The best have the courage and I say this all the time. The courage to take the ball all the time, the courage to make sure that they are not going to be intimidated by their opponents, and the courage to express themselves at all times and I think that all the great players have got that.
+ - I’m-A-God-Look-At-Me.
+ - There is no evidence that changing your managers repeatedly leads to success, but there is evidence at Manchester United, I was managing there for 26 years I won 38 trophies.
+ - The most important thing in a game like that is to win it.
+ - I can’t believe it. I can’t believe it. Football. Bloody hell.
+ - Never give in or give up easily on a cause.
+ - We have to try to beat Everyone.
+ - Kindness is a universal language regardless of age, nationality or religion.
+ - I’m going to tell you the story about the geese which fly 5,000 miles from Canada to France. They fly in V-formation but the second ones don’t fly. They’re the subs for the first ones. And then the second ones take over – so it’s teamwork.
+ - I always say prepare to be a coach to anybody who wants to be a coach. At 24 years of age when I left engineering to become full time in football, I made sure that I was never going back to engineering.
+ - You are responsible to each other because when you win a game of football, you only need eight players to perform well.
+ - Liverpool can play for only five minutes and win the game, that is the way they are. They pump the ball into the box and with good set-piece delivery they keep you under pressure.
+ - Players know that they can trust me which is really important. They know that I had the ability to adapt to change, and they have seen that many times over the years. I think these are important parts of being in control of footballers.
+ - I always said to the directors that the minute a player becomes more powerful than the manager of Manchester United, it’s not Manchester United. You have lost control of the whole club. So I always made sure that I was in control. They always knew who the manager was.
+ - Sometimes you’re not sure about a player. Sometimes you doubt. Sometimes you have to guess. Sometimes you just know.
+ - Jose understands winning and losing are twins in a way. When you win you don’t gloat and when you lose you don’t go bananas.
+ - Manchester United might not win Premier League every year, but we’d always be up there competing for it every year.
+ - I’ve got a temper if I need it. Nothing wrong with losing your temper, if it’s for the right reasons.
+ - I realized I was good at developing young people. Eventually I started to believe in young people. I think when you give a young person an opportunity, he always believes who gave him his first chance. You create a loyalty that lasts a lifetime.
+ - Sometimes you look in a field and you see a cow and you think it’s a better cow than the one you’ve got in your own field. It’s a fact. Right? And it never really works out that way.
+ - Go make your mistakes in the first team. You’ll learn more in a month in the first team than you will in two years in the reserves.
+ - I do believe in fate.
+ - Critics have always questioned whether players like Pele from the 50s could play today. Lionel Messi could play in the 1950s and the present day, as could Di Stefano, Pele, Maradona, Cruyff because they are all great players. Lionel Messi without question fits into that category.
+ - If ever there was one player, anywhere in the world, that was made for Manchester United, it was Cantona. He swaggered in, stuck his chest out, raised his head and surveyed everything as though he was asking: ‘I’m Cantona. How big are you? Are you big enough for me?’
+ - I don’t like losing but I’ve mellowed. I maybe have a short fuse but it goes away quicker now.
+ - Football management is such a pressurized thing – horse racing is a release. I’m also learning to play the piano – I’m quite determined – it’s another release from the pressure of my job.
+ - Pippo Inzaghi was born in an offside position.
+ - He could start a row in an empty house.
+ - It was time for me to spend more time with my wife. I’m not saying I do spend more time with my wife, because she would throw me out of the house, but we have breakfast together. I never did.
+ - It was the most emphatic display of selflessness I have seen on a football field. Pounding over every blade of grass, competing if he would rather die of exhaustion than lose, he inspired all around him. I felt such an honor to be associated with such a player.
+ - There has been a lot of expectation on Manchester City and with the spending they have done they have to win something. Sometimes you have a noisy neighbor and have to live with it.
+ - He’s a novice – he should keep his opinions to Japanese football.
+ - They say he’s an intelligent man, right? Speaks five languages! I’ve got a 15-year-old boy from the Ivory Coast who speaks five languages!
+ - I tried it 100 or a million times it couldn’t happen again. If I could, I would have carried on playing.
+ - When an Italian tells me it’s pasta on the plate, I check under the sauce to make sure.
+ - That lad must have been born offside.
+ - You have to put all the criticism of this club down to jealousy. United have produced more players who have played for their country, more world-class players and more players who have won European Footballer of the Year than any other team in this country, so we must be doing something right.
+ - I think Paul Scholes is the best player in England. He’s got the best skills, the best brain. No one can match him. There isn’t a player of his mould anywhere in the world. Paul is irreplaceable.
+ - If my parents were still alive, they would be very proud. They gave me a good start in life, the values that have driven me, and the confidence to believe in myself.
+ - It’s a conflict of parallels.
+ - It was our worst-ever day, the worst result in my history, ever. Even as a player I don’t think I ever lost 6-1.
+ - Well, football is a hard game; there’s no denying it. It’s a game that can bring out the worst in you, at times.
+ - Keeping players happy is not easy and I think anyone with a big squad will tell you that.
+ - In England, it’s a rare thing to see a player smoking but, all in all, I prefer that to an alcoholic. The relationship with alcohol is a real problem in English football and, in the short term, it’s much more harmful to a sportsman. It weakens the body, which becomes more susceptible to injury.
+ - I have nothing but praise for the boy. He is easily the best player in the world. His contribution as a goal threat is unbelievable. His stats are incredible. Strikes at goal, attempts on goal, raids into the penalty box, headers. It is all there. Absolutely astounding.
+ - Gianfranco Zola once sent Gary Pallister the wrong way to such an extent that he needed a ticket to get back in.
+ - The credit to them, the better team won and there’s nothing we can do about that now.
+ - If Chelsea drop points, the cat’s out in the open. And you know what cats are like – sometimes they don’t come home.
+ - You can’t applaud a referee.
+ - But there is always that unpredictability about a derby match and that’s what it was today.
+ - I feel sympathy for the working class lad. I’ve always championed about ticket prices and try to equate that to people’s salaries.
+ - I’m privileged to have followed Sir Matt because all you have to do is to try and maintain the standards that he set so many years ago.
+ - In any normal season, most of the teams below Chelsea would think they are doing quite well.
+ - I bet him he wouldn’t get 15 league goals and I’m going to have to change my bet with him. If he gets to 15 I can change it and I am allowed to do that because I’m the manager. I’m going to make it 150 now!
+ - Lampard, for me, was a marvellous servant for Chelsea, but I didn’t think of him as an elite international footballer. And I am one of the few who felt Gerrard was not a top, top player.
+ - I am such a bloody talented guy. I might go into painting or something like that.
+ - Evolution happens. There’s no football team in the world that has stayed together for time ever more.
+ - The lads really ran their socks into the ground.
+ - There are members of the London press who seek to antagonise me, deliberately.
+ - As with every young player these days, Ronaldo is 18.
+ - Look at me – it’s taken 10 years off me today. It’s these tablets, they’re great!
+ - I tell the players that the bus is moving. This club has to progress. And the bus wouldn’t wait for them. I tell them to get on board.
+ - Everyone remembers Stuart Pearce as a determined, aggressive player, who played with great heart and enthusiasm that gave him a great career in the game.
+ - I’m a Pele fan from way back when I was a kid, and then there was always this thing later about Pele and Maradona. I was young and impressionable as a kid but it was always Pele for me.
+ - If he was an inch taller he’d be the best center half in Britain. His father is 6 ft 2 in – I’d check the milkman.
+ - Cole should be scoring from those distances, but I’m not going to single him out.
+ - They say it was Cesc Fabregas who threw the pizza at me but, to this day, I have no idea who the culprit was.
+ - If I have my health I can carry on. There will be a point when I do quit but I have absolutely no idea when that is.
+ - The pace of the game demanded a referee who was fit. It is an indictment of our game. You see referees abroad who are as fit as butcher’s dogs. We have some who are fit. He wasn’t fit.
+ - I understand the intensity of the supporters. I wonder how they could turn up for work on Monday morning after we lost 5-1 to Manchester City.
+ - The philosophy of a lot of European teams, even in home matches, is not to give a goal away.
+ - I remember the first time I saw him. He was 13 and just floated over the ground like a cockier spaniel chasing a piece of silver paper in the wind.
+ - Sometimes in football you have to hold your hand up and say, yeah, they’re better than us.
+ - Wayne is truly blessed. He doesn’t just have ability, he has a fire inside him.
+ - At the last minute, from what I can gather, either Emmanuel Adebayor or his agent phoned us after they had agreed a deal with City and then did the same with Chelsea. He was desperate to get to either Chelsea or us.
+ - If we can play like that every week well get some level of consistency.
+ - You can’t do anything about them...
+ - Her Majesty said she hoped I would have time for my horses – I own two and have shares in four.
+ - Everest in his slippers. That’s what he was like.
+ - Jose was one of those guys on a surfboard who can stay longer on the wave than anyone else.
+ - The culmination of three trophies was the pinnacle of my career and it has been rewarded with a knighthood.
+ - We are very focused this time and our preparation has been better. We maybe made one or two mistakes last time, but not this time.
+ - David Beckham is Britain’s finest striker of a football not because of God-given talent but because he practices with a relentless application that the vast majority of less gifted players wouldn’t contemplate.
+ - Myths grow all the time. If I was to listen to the number of times I’ve thrown teacups then we’ve gone through some crockery in this place. It’s completely exaggerated, but I don’t like people arguing back with me.
+ - I used to have a saying that when a player is at his peak, he feels as though he can climb.
+ - You are not going to be happy if you lose to a goal in the last minute. It is difficult to take and difficult to get out of your mind.
+ - I think that fear does come into it in some respect in the sense of when I lost my temper I didn’t hide behind a bush on it in respect to the times that I did lose my temper. But you know the quality that I had when I lost my temper, I never, ever brought it back again.
+ - He was taking 30 seconds to book a player. He was needing a rest. It was ridiculous.
+ - It’s great news. The reality of negotiations today is that they take time. But these have always been conducted in a good spirit and we are very pleased with the outcome. We can now look forward to the future.
+
+103 quotes

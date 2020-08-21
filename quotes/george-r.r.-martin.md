@@ -1,0 +1,502 @@
+ - A reader lives a thousand lives before he dies. The man who never reads lives only once.
+ - When the snows fall and the white winds blow, the lone wolf dies but the pack survives.
+ - A mind needs books as a sword needs a whetstone, if it is to keep its edge.
+ - Never forget what you are, for surely the world will not. Make it your strength. Then it can never be your weakness. Armour yourself in it, and it will never be used to hurt you.
+ - The man who fears losing has already lost.
+ - A lion doesn’t concern itself with the opinion of sheep.
+ - Every flight begins with a fall.
+ - Fear cuts deeper than swords.
+ - What is dead may never die, but rises again, stronger and harder.
+ - Kill the boy, Jon Snow. Winter is almost upon us. Kill the boy and let the man be born.
+ - The brightest flame casts the darkest shadow.
+ - For the night is dark and full of terrors.
+ - Different roads sometimes lead to the same castle.
+ - I will take what is mine with fire and blood.
+ - He who hurries through life hurries to his grave.
+ - Sleep is good, he said, And books are better.
+ - The more people you love, the weaker you are.
+ - I am the sword in the darkness. I am the watcher on the walls. I am the fire that burns against the cold, the light that brings the dawn, the horn that wakes the sleepers, the shield that guards the realms of men.
+ - There is no creature on earth half so terrifying as a truly just man.
+ - Once you’ve accepted your flaws, no one can use them against you.
+ - Some writers enjoy writing, I am told. Not me. I enjoy having written.
+ - The only time a man can be brave is when he is afraid.
+ - Nobody is a villain in their own story. We’re all the heroes of our own stories.
+ - When you play a game of thrones you win or you die.
+ - I will hurt you for this. I don’t know how yet, but give me time. A day will come when you think yourself safe and happy, and suddenly your joy will turn to ashes in your mouth, and you’ll know the debt is paid.
+ - And any man who must say ‘I am king’ is no true king at all.
+ - There are no happy endings.
+ - Some old wounds never truly heal, and bleed again at the slightest word.
+ - Nothing someone says before the word ‘but’ really counts.
+ - Every man should lose a battle in his youth, so he does not lose a war when he is old.
+ - What’s dead may never die.
+ - There’s no shame in fear, my father told me, what matters is how we face it.
+ - Bran thought about it. ‘Can a man still be brave if he’s afraid?’ ‘That is the only time a man can be brave,’ his father told him.
+ - A Lannister always pays his debts.
+ - The things we love destroy us every time, lad. Remember that.
+ - Ofttimes a very small man can cast a very large shadow.
+ - When the sun has set, no candle can replace it.
+ - Let me give you some advice, bastard: Never forget what you are. The rest of the world will not. Wear it like armor, and it can never be used to hurt you.
+ - When you tear out a man’s tongue, you are not proving him a liar, you’re only telling the world that you fear what he might say.
+ - Death is so terribly final, while life is full of possibilities.
+ - Crowns do queer things to the heads beneath them.
+ - Love is madness, and lust is poison.
+ - Always keep your foes confused. If they are never certain who you are or what you want, they cannot know what you are like to do next.
+ - People often claim to hunger for truth, but seldom like the taste when it’s served up.
+ - Books are dead men talking.
+ - Sacrifice is never easy or it is no true sacrifice. – Stannis.
+ - Women do not forget. Women do not forgive.
+ - The ones who look the most suspicious are likely innocent. It’s the ones who look innocent I need to beware.
+ - I must show no fear, no weakness, no doubt.
+ - I am not questioning your honor, I am denying its existence.
+ - Most men would rather deny a hard truth than face it.
+ - The heart lies and the head plays tricks with us, but the eyes see true.
+ - There is a savage beast in every man, and when you hand that man a sword or spear and send him forth to war, the beast stirs.
+ - Too stupid to learn and too stupid to give up.
+ - A true man does what he will, not what he must.
+ - There are no men like me. There’s only me.
+ - For they are the knights of summer, and winter is coming.
+ - If? The word is when.
+ - Love is poison. A sweet poison, yes, but it will kill you all the same.
+ - I had a couple of friends, but I was mostly the kid with his nose in a book.
+ - Why do our dreams become so much smaller when they finally come true?
+ - Bear Island knows no king but the King in the North, whose name is STARK.
+ - Prince Rhaegar loved his Lady Lyanna, and thousands died for it.
+ - Give me honorable enemies rather than ambitious ones, and I’ll sleep more easily by night.
+ - Control your generosity when dealing with a chronic borrower.
+ - The man who passes the sentence should swing the sword. If you would take a man’s life, you owe it to him to look into his eyes and hear his final words. And if you cannot bear to do that, then perhaps the man does not deserve to die.
+ - My old grandmother always used to say, Summer friends will melt away like summer snows, but winter friends are friends forever.
+ - Old stories are like old friends, she used to say. You have to visit them from time to time.
+ - Kind? How boring that would be. I aspire to be wicked.
+ - Love is the bane of honor, the death of duty.
+ - Some allies are more dangerous than enemies.
+ - Art is not a democracy. People don’t get to vote on how it ends.
+ - They can keep their heaven. When I die, I’d sooner go to Middle Earth.
+ - Know the men who follow you and let them know you. Don’t ask your men to die for a stranger.
+ - First rule, stick them with the pointy end!
+ - All fiction has to have a certain amount of truth in it to be powerful.
+ - You mistake patience for forbearance.
+ - I was born in Bayonne, New Jersey. I grew up in the projects. I never went anywhere. But I have lived a thousand lives and I’ve loved a thousand loves. I’ve walked on distant worlds and seen the end of time. Because I read.
+ - I am the blood of the dragon. Do not presume to teach me lessons.
+ - All the world knew that a maester forged his silver link when he learned the art of healing – but the world preferred to forget that men who knew how to heal also knew how to kill.
+ - Words are wind, Brienne told herself. They cannot hurt you. Let them wash over you.
+ - Tears aren’t a woman’s only weapon.
+ - I’m honest. It’s the world that’s awful.
+ - The common people pray for rain, healthy children and a summer that never ends. It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.
+ - The greatest fools are ofttimes more clever than the men who laugh at them.
+ - They will not love me, you say? When have they ever loved me? How can I lose something I have never owned? – Stannis.
+ - We’re children. We’re supposed to be childish.
+ - A good act does not wash out the bad, nor a bad act the good. Each should have its own reward.
+ - I had this desire to see the world. I couldn’t see any of it, but I saw it in my imagination, and that’s why I always read books, and I could go to Mars or Middle Earth or the Hyborian age.
+ - On the gallows tree, all men are brothers.
+ - One voice may speak you false, but in many there is always truth to be found.
+ - It had been more of a wish, actually, but it sounded better to call it a dream.
+ - I never wanted to see half the things I’ve seen, and I’ve never seen half the things I wanted to. I don’t think wanting comes into it. You’d best go all the same.
+ - When the red star bleeds and the darkness gathers, Azor Ahai shall be born again amidst smoke and salt to wake dragons out of stone.
+ - Perhaps I cannot make my people good, she told herself, but I should at least try to make them a little less bad.
+ - The north remembers, Lord Davos. The north remembers, and the mummer’s farce is almost done. My son is home.
+ - The Lord of Light in his wisdom made us male and female, two parts of a greater whole. In our joining there is power. Power to make life. Power to make light. Power to cast shadows.
+ - But my philosophy is that plot advancement is not what the experience of reading fiction is about. If all we care about is advancing the plot, why read novels? We can just read Cliffs Notes.
+ - I thought my song was beginning that day, but it was almost done.
+ - Men are men, vows are words, and words are wind.
+ - And all was black and still, and black and cold, and black and dead, and black.
+ - Winter is coming.
+ - The things I do for love.
+ - Summer will end soon enough, and childhood as well.
+ - Swift as a deer. Quiet as a shadow. Fear cuts deeper than swords. Quick as a snake. Calm as still water.
+ - Black moleskin gloves covered his hands; the right because it was burned, the left because a man felt half a fool wearing only one glove.
+ - Knowledge is a Weapon, Jon. Arm yourself well before you ride forth to Battle.
+ - My skin has turned to porcelain, to ivory, to steel.
+ - A frightened man is a beaten man.
+ - And I have a tender spot in my heart for cripples and bastards and broken things.
+ - Madness and greatness are two sides of the same coin. Every time a new Targaryen is born, the gods toss the coin in the air and the world holds its breath to see how it will land.
+ - As we sin, so do we suffer.
+ - I just need to rest, that’s all, to rest and sleep some, and maybe die a little.
+ - Wind and words. We are only human, and the gods have fashioned us for love. That is our great glory, and our great tragedy.
+ - Laughter is poison to fear.
+ - You know nothing, Jon Snow.
+ - A man who won’t listen can’t hear.
+ - The women are the strong ones, truly.
+ - Tolkien made the wrong choice when he brought Gandalf back. Screw Gandalf. He had a great death and the characters should have had to go on without him.
+ - There are two kinds of writers. There are architects and gardeners. The architects do blueprints before they drive the first nail. The gardeners just dig a hole and plant the seed and see what comes up.
+ - You may be as different as the sun and the moon, but the same blood flows through both your hearts. You need her, as she needs you...
+ - If I look back I am lost.
+ - When I am writing best, I really am lost in my world. I lose track of the outside world. I have a difficult time balancing between my real world and the artificial world.
+ - The strongest trees are rooted in the dark places of the earth. Darkness will be your cloak, your shield, your mother’s milk. Darkness will make you strong.
+ - The unseen enemy is always the most fearsome.
+ - Perhaps that is the secret. It is not what we do, so much as why we do it.
+ - Words are like arrows, Arianne. Once loosed, you cannot call them back. – Areo Hotah.
+ - If ice can burn, then love and hate can mate.
+ - The man who passes the sentence should swing the sword.
+ - In real life, the hardest aspect of the battle between good and evil is determining which is which.
+ - What the King dreams, the Hand builds.
+ - That night the wind was howling almost like a wolf and there were some real wolves off to the west giving it lessons.
+ - Sometimes there is no happy choice, Sam, only one less grievous than the others. – Jon Snow.
+ - Nothing burns like the cold. But only for a while. Then it gets inside you and starts to fill you up, and after a while you don’t have the strength to fight it.
+ - Nothing burns like the cold.
+ - Syrio says that every hurt is a lesson, and every lesson makes you better.
+ - Start trying to work out who deserves what, and before long you’ll spend the rest of your days weeping for each and every person in the world.
+ - A lord must learn that sometimes words can accomplish what swords cannot.
+ - Ideas are cheap. I have more ideas now than I could ever write up. To my mind, it’s the execution that is all-important.
+ - Names are hard. I have a library of What to Name Your Baby books, and I’m always picking up new books, and books of baby names from other countries. I like cool-sounding names.
+ - In the end words are just wind.
+ - What are gods for if not to sit in judgment over men? The Many-Faced God does not weigh men’s souls, however. He gives his gift to the best of men as he gives it to the worst. Elsewise the good would live forever.
+ - She was Daenerys Stormborn, the Unburnt, Khaleesi and queen, Mother of Dragons, slayer of warlocks, breaker of chains, and there was no one in the world that she could trust.
+ - I am doing the right thing, he told himself, so why do I feel so bad?
+ - Fire consumes, but cold preserves.
+ - But Tolkien doesn’t ask the question: What was Aragorn’s tax policy?
+ - We’re all just songs in the end. If we are lucky.
+ - I rose too high, loved too hard, dared too much. I tried to grasp a star, overreached, and fell.
+ - We only make peace with our enemies. That’s why it’s called making peace.
+ - When you know what a man wants you know who he is, and how to move him.
+ - A fair bargain leaves both sides unhappy.
+ - I do so hope he plays us ‘The Rains of Castamere.’ It has been an hour. I’ve forgotten how it goes – Olenna Tyrell, the HBIC.
+ - Every once in a very long while, Lord Tywin Lannister would actually threaten to smile; he never did, but the threat alone was terrible to behold.
+ - In this world, only winter is certain.
+ - All my life men like you’ve sneered at me, and all my life I’ve been knocking men like you into the dust.
+ - I take no joy in mead nor meat, and song and laughter have become suspicious strangers to me. I am a creature of grief and dust and bitter longings. There is an empty place within me where my heart was once.
+ - Fantasy is silver and scarlet, indigo and azure, obsidian veined with gold and lapis lazuli.
+ - You could make a poultice out of mud to cool a fever. You could plant seeds in mud and grow a crop to feed your children. Mud would nourish you, where fire would only consume you, but fools and children and young girls would choose fire every time.
+ - Historical fiction is not history. You’re blending real events and actual historical personages with characters of your own creation.
+ - Writing is like sausage making in my view; you’ll all be happier in the end if you just eat the final product without knowing what’s gone into it.
+ - I think life is a jape. Yours, mine, everyone’s.
+ - Contempt, thought Tyrion, the universal tongue.
+ - Courage and folly are cousins, or so I’ve heard.
+ - Tarly, when I was a lad half your age, my lady mother told me that if I stood about with my mouth open, a weasel was like to mistake it for his lair and run down my throat. If you have something to say, say it. Otherwise, beware of weasels.
+ - She had put despair and fear aside, as if they were garments she did not choose to wear.
+ - Dragons old and young, true and false, bright and dark. And you. A small man with a big shadow, snarling in the midst of all.
+ - Why is it that when one man builds a wall, the next man immediately needs to know what’s on the other side?
+ - Some gave me soft words and some blunt, some made excuses, some promises, some only lied. In the end words are just wind.
+ - I swear to you, sitting a throne is a thousand times harder than winning one.
+ - Even in dreams, you could not fall forever.
+ - Wisdom oft comes from the mouth of babes.
+ - The years leech at a man’s memories, even those he has vowed never to forget.
+ - The heart lies and the head plays tricks on us, but the eyes see true. Look with your eyes. Hear with your ears. Taste with your mouth. Smell with your nose. Feel with your skin. Then comes the thinking, afterward, and in a way knowing the truth.
+ - Woman? Is that meant to insult me? I would return the slap, if I took you for a man. – Daenerys Targaryen.
+ - I’ve always preferred writing about grey characters and human characters. Whether they are giants or elves or dwarves, or whatever they are, they’re still human, and the human heart is still in conflict with the self.
+ - Something about the howling of a wolf took a man right out of his here and now and left him in a dark forest of the mind, running naked before the pack.
+ - Speak the name, and death will come. On the morrow, at the turn of the moon, a year from this day, it will come. A man does not fly like a bird, but one foot moves and then another and one day a man is there.
+ - And when you have it, what then? Some secrets are safer kept hidden. Some secrets are too dangerous to share, even with those you love and trust.
+ - The Lord of Winterfell would always be a Stark.
+ - Sorcery is the sauce fools spoon over failure to hide the flavor of their own incompetence.
+ - I am Cersei of House Lannister, a lion of the Rock, the rightful queen of these Seven Kingdoms, trueborn daughter of Tywin Lannister. And hair grows back.
+ - Give me a good sharp knife and a good sharp cheese and I’m a happy man.
+ - A long summer always meant a long winter to come.
+ - You must put these dreams aside, they will only break your heart.
+ - If a man paints a target on his chest, he should expect that sooner or later someone will loose an arrow on him.
+ - Shattered legs may heal in time, but some betrayals fester and poison the soul.
+ - And for the first time in hundreds of years, the night came alive with the music of dragons.
+ - Trust is earned. Like gold.
+ - Summer is the time for squabbles. In winter, we must protect one another, keep each other warm, share our strengths.
+ - And the mystery knight should defeat all challengers and name the wolf maid the queen of love and beauty.
+ - How much can a crown be worth, when a crow can dine upon a king?
+ - The stone is strong. Bran told himself, the roots of the trees go deep, and under the ground the Kings of Winter sit their thrones. So long as those remained, Winterfell remained. It was not dead, just broken. Like me, he thought. I’m not dead either.
+ - The true horrors of human history derive not from orcs and Dark Lords, but from ourselves.
+ - I’ve lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother. And yet they keep telling me House Lannister won this war.
+ - It’s really irritating when you open a book, and 10 pages into it you know that the hero you met on page one or two is gonna come through unscathed, because he’s the hero. This is completely unreal, and I don’t like it.
+ - I don’t want to be a queen. I want to be the queen.
+ - The wildlings seemed to think Ygritte a great beauty because of her hair; red hair was rare among the free folk, and those who had it were said to be kissed by fire, which was supposed to be lucky.
+ - We’re all the heroes of our own stories. So, when I am inside the head of a character who would otherwise be considered a villain, I have a great deal of affection for that character and I’m trying to see the world and the events through their eyes.
+ - Hodor!
+ - All dwarfs are bastards in their father’s eyes.
+ - Let them see that their words can cut you and you’ll never be free of the mockery. If they want to give you a name, take it, make it your own. Then they can’t hurt you with it anymore.
+ - He was no dragon, Dany thought, curiously calm. Fire cannot kill a dragon.
+ - Arya lifted her gaze from the dead man and his dead dog. Jaqen H’ghar was leaning up against the side of the Wailing Tower. When he saw her looking, he lifted a hand to his face and laid two fingers casually against his cheek.
+ - Wine makes all things possible.
+ - Ten years from now, no one is going to care how quickly the books came out. The only thing that will matter, the only thing anyone will remember, is how good they were. That’s my main concern, and always will be.
+ - I am only a little lion, child, and I vow, I shall not savage you.
+ - I crossed a thousand leagues to come to you, and lost the best part of me along the way. Don’t tell me to leave.
+ - The eunuch had looked death in the face, so near he might have kissed her on the lips.
+ - Men are mad and gods are madder, she told the grass, and the grass murmured its agreement.
+ - Faith is like porridge. Better with milk and honey.
+ - I like grey characters; fantasy for too long has been focused on very stereotypical heroes and villains.
+ - When I sleep I turn into a wolf. Bran turned his face away and looked back out into the night. Do wolves dreams?
+ - You are grown so very great now, yet the higher a man climbs the farther he has to fall.
+ - Men live their lives trapped in an eternal present, between the mists of memory and the sea of shadow that is all we know of the days to come.
+ - No one will be alive by the last book. In fact, they all die in the fifth. The sixth book will be just a thousand-page description of snow blowing across the graves...
+ - Reading. That was the sport I was good at.
+ - The most important thing for any aspiring writer, is to read! And not just the sort of thing you’re trying to write, be that fantasy, SF, comic books, whatever. You need to read everything.
+ - She had killed him with a whisper, and she would kill two more before she was through. I’m the ghost in Harrenhal, she thought. And that night, there was one less name to hate.
+ - Nothing. My father is very good at doing nothing. He calls it thinking.
+ - I have done a lot of work in Hollywood myself. I worked in television for roughly 10 years, from the mid-’80s to mid-’90s. And I was on staff at a couple of shows. I did some feature films, including originals and adaptations.
+ - His sister liked to think of herself as Lord Tywin with teats, but she was wrong. Their father had been as relentless and implacable as a glacier, where Cercei was all wildfire, especially when thwarted.
+ - Littlefinger looked like a boy who had just taken a furtive bite from a honeycomb. He was TRYING to watch for bees, but the honey was so sweet.
+ - Do the dead frighten you?
+ - The gods made our bodies as well as our souls, is it not so? They give us voices, so we might worship them with song. They give us hands, so we might build them temples. And they give us desire, so we might mate and worship them in that way.
+ - I wanted to write a big novel, something epic in scale.
+ - The morning had dawned clear and cold, with a crispness that hinted at the end of summer.
+ - The gods don’t care about men, no more than kings care about peasants.
+ - A cold wind was blowing from the north, and it made the trees rustle like living things.
+ - It is one thing to be clever and another to be wise.
+ - History is a wheel, for the nature of man is fundamentally unchanging. What has happened before will perforce happen again.
+ - Sometimes I think everyone is just pretending to be brave, and none of us really are. Maybe pretending is how you get brave, I don’t know.
+ - Anger was better than tears, better than grief, better than guilt.
+ - The Gods give with one hand and take with the other.
+ - Show me the path I must walk and do not let me stumble in the dark places that lie ahead.
+ - I love you too, sweet sister. But you’re a fool. A beautiful golden fool.
+ - You can’t hammer tin into iron, no matter how hard you beat it, but that doesn’t mean it’s useless.
+ - She had never loved him so much as she did in that instant.
+ - Tyrion Lannister could not have been more astonished if Aegon the Conqueror himself had burst into the room, riding on a dragon and juggling lemon pies.
+ - Love is sweet, dearest Ned, but it cannot change a man’s nature. – Lyanna.
+ - The great thing about reading is that it broadens your life.
+ - They say night’s beauties fade at dawn, and the children of wine are oft disowned in the morning light.
+ - Every man must die, Jon Snow. But first he must live.
+ - There is an empty place within me where my heart once was.
+ - You do not steal from the dragon, oh, no. The dragon remembers.
+ - Better to mock the game than to play and lose.
+ - Soon comes the cold, and the night that never ends.
+ - Light our fire and protect us from the dark, blah blah, light our way and keep us toasty warm, the night is dark and full of terrors, save us from the scary things, and blah blah blah some more.
+ - I will teach them what it means to put a lion in a cage, Cersei thought.
+ - You’ve got a bold tongue, little man. One day, someone is like to cut it out and make you eat it.
+ - You were made to be kissed, often and well.
+ - Ofttimes a very small man can cast a very large shadow. Tyrion smiled. Lord Varys, I am growing strangely fond of you. I may kill you yet, but I think I’d feel sad about it. I will take that as high praise.
+ - She is not truly beautiful but something about her draws the eye.
+ - Tell Robb that I’m going to command the Night’s Watch and keep him safe, so he might as well take up needlework with the girls and have Mikken melt down his sword for horseshoes. – Jon Snow.
+ - Not all men were meant to dance with dragons.
+ - You know I’ve always considered women to be people.
+ - His cloak was his crowning glory; sable, thick and black and soft as sin.
+ - Kill me, and be cursed. You are no king of mine.
+ - A man who fights for coin is loyal only to his purse.
+ - I am surrounded by flatterers and fools.
+ - Has my tale turned you speechless? Come, curse me or kiss me or call me a liar. Something.
+ - For herself, she wanted sleet and ice, howling winds, thunder to shake the very stones of the Red Keep. She wanted a storm to match her rage.
+ - I have a hole where my heart should be, she thought, and nowhere else to go.
+ - We all need to be mocked from time to time, lest we take ourselves too seriously.
+ - A ruler who hides behind paid executioners soon forgets what death is.
+ - You little fool. Tears are not a woman’s only weapon. You’ve got another one between your legs, and you’d best learn to use it. You’ll find men use their swords freely enough. Both kinds of swords.
+ - Why do the Gods make kings and queens if not to protect the ones who can’t protect themselves?
+ - Minds are like swords, I do fear. The old ones go to rust.
+ - A hound will die for you, but never lie to you. And he’ll look you straight in the face.
+ - I’m sorry that I never trusted you. I don’t know how to do that anymore.
+ - I would choose freedom over comfort every time.
+ - Of course you know him. Everyone knows a pear-shaped man.
+ - Some doors are best left closed.
+ - A bag of dragons buys a man’s silence for a while, but a well-placed quarrel buys it forever.
+ - This world is twisted beyond hope, when lowborn smugglers must vouch for the honor of kings.
+ - The man is as useless as nipples on a breastplate.
+ - Ser Barristan loves his honor, Grand Maester Pycelle loves his office, and Littlefinger loves Littlefinger.
+ - I need to sleep, but fear to dream.
+ - We all dream of things we cannot have.
+ - Littlefinger: A trade envoy from Lys once observed to me that Lord Stannis must love his daughter very well, since he’d erected hundreds of statues of her all along the walls of Dragonstone. Tyrion: My lord, those are gargoyles.
+ - It was a story called ‘The Hero’ which I sold to Galaxy magazine in 1970, for $94.
+ - Sometimes he could almost forget that it was there, the way you forget about the sky or the earth underfoot, but there were other times when it seemed as if there was nothing else in the world.
+ - The world is full of cravens who pretended to be heroes.
+ - Most have been forgotten. Most deserve to be forgotten. The heroes will always be remembered. The best. The best and the worst. And a few who were a bit of both.
+ - Some battles are won with swords and spears, others with quills and ravens.
+ - A harp can be a dangerous as a sword, in the right hands.
+ - If I took it away, no doubt I’d find a morningstar hidden under your pillow within a fortnight. Try not to stab your sister, whatever the provocation.
+ - He drew the dagger and laid it on the table between them; a length of dragonbone and Valyrian steel, as sharp as the difference between right and wrong, between true and false, between life and death.
+ - If H. P. Lovecraft and H. L. Mencken had ever collaborated, they might have come up with something like The Edge of Reason. This one will delight thinkers-and outrage true believers-of all stripes.
+ - She could not bear to look at him just now. If she did, she might well slap him again. Or cry. Or kiss him. And never know which was right and which was wrong and which was madness.
+ - Robert was the true steel. Stannis is pure iron, black and hard and strong, yes, but brittle, the way iron gets. He’ll break before he bends. And Renly, that one, he’s copper, bright and shiny, pretty to look at but not worth all that much at the end of the day.
+ - What would a Frey know of honor? – Sir Davos Seaworth.
+ - Winter will never come for the likes of us. Should we die in battle, they will surely sing of us, and it’s always summer in the songs. In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.
+ - Jon Snow: I’m not afraid to die. Mormont: Nor life, I hope.
+ - Of all the bright cruel lies they tell you, the cruelest is the one called love.
+ - When your enemies defy you, you must serve them steel and fire. When they go to their knees, however, you must help them back to their feet. Elsewise no man will ever bend the knee to you.
+ - The morning air was dark with the smoke of burning gods.
+ - All men are fools, if truth be told, but the ones in motley are more amusing than ones with crowns.
+ - It seemed cruel for a day to dawn so fair and end so foul as this one promised to.
+ - I’m a huge fan of Tolkien. I read those books when I was in junior high school and high school, and they had a profound effect on me. I’d read other fantasy before, but none of them that I loved like Tolkien.
+ - Noseless and Handless, the Lannister Boys.
+ - Why is it always the innocents who suffer most, when you high lords play your game of thrones?
+ - The distinction between literary and genre fiction is stupid and pernicious. It dates back to a feud between Robert Louis Stevenson and Henry James. James won, and it split literature into two streams. But it’s a totally false dichotomy.
+ - Cersei Lannister: I shall wear this as a badge of honor. Robert Barathon: Wear it in silence or I’ll honor you again.
+ - They hate you because you act like you’re better than they are.
+ - There is magic in my universe, but it’s pretty low magic compared to other fantasies.
+ - When you find yourself in bed with an ugly woman, the best thing to do is close your eyes and get on with it.
+ - The sea is never weary. I must be as tireless.
+ - This is the bravo’s dance, the water dance, swift and sudden. All men are made of water, do you know this? When you pierce them, the water leaks out and they die.
+ - Was there ever a war where only one side bled?
+ - When a pirate grows rich enough, they make him a prince.
+ - Robb: Uncle Benjen said to send you to the stables if I saw you. Jon: I have one more farewell to make. Robb: Then I haven’t seen you.
+ - Let his sword break and his shield shatter, Sansa thought coldly as she shoved out through the doors, let his courage fail him and every man desert him.
+ - You’ll find truth in your looking glass, not on the tongues of men.
+ - Generally speaking, I’m much more in favour of penises entering vaginas than axes entering skulls. But the world seems to accept the violence a lot easier than the sex.
+ - She never forgets a slight, real or imagined. She takes caution for cowardice and dissent for defiance. And she is greedy. Greedy for power, for honour, for love.
+ - A mad man sees what he sees.
+ - Only the soldier pines and sentinels still showed green; the broadleaf trees had donned mantles of russet and gold, or else uncloaked themselves to scratch against the sky with branches brown and bare.
+ - They were never my pack, not even Hot Pie and Gendry. I was stupid to think so, just a stupid little girl, and no wolf at all.
+ - His chains chinked softly. I seldom fling children from towers to improve their health. Yes, I meant for him to die.
+ - Some truths did not bear saying, and some lies were necessary.
+ - I watch NFL football on Sundays. I enjoy gaming with friends, meaning role-playing games; I still enjoy going to conventions and traveling.
+ - Dark wings, dark words.
+ - Start with short stories. After all, if you were taking up rock climbing, you wouldn’t start with Mount Everest. So if you’re starting fantasy, don’t start with a nine-book series.
+ - Remember Old Nan’s stories, Bran. Remember the way she told them, the sound of her voice. So long as you do that, part of her will always be alive in you.
+ - Men have scars, women mysteries.
+ - It was that white cloak that soiled me, not the other way around.
+ - Everything’s better with some wine in the belly.
+ - A man agrees with god as a raindrop agrees with the storm.
+ - I prefer to work with grey characters rather than black and white.
+ - Half-truths are worth more than outright lies.
+ - When you have known the kiss of a flaying knife, a laugh loses all its power to hurt you.
+ - Ser Cleos looked like a weasel, fought like a goose, and had the courage of an especially brave ewe.
+ - With a book I am the writer and I am also the director and I’m all of the actors and I’m the special effects guy and the lighting technician: I’m all of that. So if it’s good or bad, it’s all up to me.
+ - Tomorrow’s trials concerned her more than yesterday’s triumphs.
+ - I can be humbler than anyone.
+ - Is it treason to say the truth? A bitter truth, but no less true for that.
+ - I have a huge emotional attachment to characters I’ve created, especially the viewpoint characters.
+ - Sins may be forgiven. Crimes require punishment.
+ - An honest kiss, a little kindness, everyone deserves that much, however big or small.
+ - His eyes were open wounds beneath his heavy brows, a blue as dark as the sea by night.
+ - Don’t write outlines; I hate outlines.
+ - An admiral without ships, a hand without fingers, in service of a king without a throne. Is this a knight who comes before us, or the answer to a child’s riddle?
+ - Inside the room, a man and a woman were wrestling. They were both naked.
+ - Ned was clad in a white linen doublet with the direwolf of Stark on the breast; his black wool cloak was fastened at the collar by his silver hand of office. Black and white and grey, all the shades of truth.
+ - Jaime smiled knowingly. Men will read all sorts of things into a knowing smile if you let them.
+ - The white horse and the black one wheeled like lovers at a harvest dance, the riders throwing steel in place of kisses.
+ - I had these cheap alien toys and I made up stories for them. They were space pirates. They didn’t have names so I made up names. These were the first stories I wrote. Even as a little kid I was thinking about torture.
+ - For men, the answer was always the same and never farther away than the nearest sword. For a woman, a mother, the way was stonier and harder to know.
+ - I thank you for calling them off, young ser. I promise you, they would have found me indigestible.
+ - Wizards die the same as other men, once you cut their heads off.
+ - There are some examples of medieval kings who were terrible human beings but were nevertheless good kings.
+ - Great wrongs have been done you, but the past is dust. The future may yet be won...
+ - There was an agelessness about him, a stillness; on Roose Bolton’s face, rage and joy looked much the same.
+ - It is being common-born that is dangerous, when the great lords play their game of thrones.
+ - When we speak of the morrow nothing is ever certain.
+ - I wonder what the High Septon would have to say about the sanctity of oaths sworn while dead drunk, chained to a wall, with a sword pressed to your chest?
+ - If somebody dies and you just go get more popcorn, it’s a superficial experience isn’t it?
+ - One night, in his cups, he drank a jar of wildfire, after telling his friends it would transform him into a dragon, but the gods were kind and it transformed him into a corpse.
+ - You would consider me an atheist or agnostic. I find religion and spirituality fascinating. I would like to believe this isn’t the end and there’s something more, but I can’t convince the rational part of me that that makes any sense whatsoever.
+ - If I die, I die friendless and abandoned. What choice did that leave him, but to live?
+ - Sleep is a little death, dreams the whisperings of the Other, who would drag us all into his eternal night.
+ - She might have wept then, had not the sky begun to do it for her.
+ - Politicians were mostly people who’d had too little morals and ethics to stay lawyers.
+ - There are worse ways to die than warm and drunk.
+ - The air smelled of paper and dust and years.
+ - You lie. Worse, you lie poorly.
+ - In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.
+ - Once, I cut off a man’s head, but he did not know it until he tried to brush his hair. Then it fell off.
+ - Power is a trick. It lies where we believe it lies.
+ - Schemes are like fruit, they require a certain ripening.
+ - Sometimes the best way to baffle them is to make moves that have no purpose, or even seem to work against you.
+ - A dead enemy is a joy forever.
+ - Drowning was bad enough. But drowning sad and sober, that’s too cruel.
+ - I have always regarded historical fiction and fantasy as sisters under the skin, two genres separated at birth.
+ - He did not know which was more painful, the waking or the sleeping. When he slept, he dreamed: dark disturbing dreams of blood and broken promises. When he woke, there was nothing to do but think, and his waking thoughts were worse than nightmares.
+ - Of course it’s not enough to be a good man to be an effective ruler and it never has been.
+ - She went to the window seat and sat there, sniffling, hating them all, and herself most of all. It was all her fault, everything bad that had happened.
+ - When a man was hurt you took him to the maester, but what could you do when your maester was hurt?
+ - Only lies offend me, never honest counsel.
+ - I’ve been very lucky. There were times when I was afraid I would never sell another book, but I never doubted I’d write another book.
+ - A sweet face oft hides a sinner’s heart.
+ - Sweet smells are sometimes used to cover foul ones.
+ - If he must be alone, he would make solitude his armor.
+ - She walked fast, to keep ahead of her fear,...
+ - As much as I love historical fiction, my problem with historical fiction is that you always know what’s going to happen.
+ - He had found over the years that silence sometimes yielded more than questions. And so it was this time.
+ - Gods and wonders always appear, to attend the birth of kings.
+ - Robert was never the same after he put on that crown. Some men are like swords, made for fighting. Hang them up and they go to rust.
+ - Nothing bores me more than books where you read two pages and you know exactly how it’s going to come out. I want twists and turns that surprise me, characters that have a difficult time and that I don’t know if they’re going to live or die.
+ - One of the things I love, and I’m a voracious reader as well as a writer, is books that surprise me, that are not predictable.
+ - Do dead man dream? The dead themselves are silent on the matter.
+ - O medo corta mais profundamente do que as espadas.
+ - I prefer my history dead. Dead history is writ in ink, the living sort in blood.
+ - Why should death make a man truthful, or even clever? The dead are likely dull fellows, full of tedious complaints – the ground’s too cold, my gravestone should be larger, why does he get more worms than I do...
+ - All dwarfs may be bastards yet not all bastards are dwarfs.
+ - When treating with liars, even an honest man must lie.
+ - We read fantasy to find the colors again, I think. To taste strong spices and hear the songs the sirens sang.
+ - A thousand deaths would still be less than he deserves.
+ - That was the way of this cold world, where men fished the sea and dug in the ground and died, whilst women brought forth short-lived children from beds of blood and pain.
+ - He understood the way that you could sometimes fall right into them, as if each page was a hole into another world.
+ - The singers make much of kings who die valiantly in battle, but your life is worth more than a song.
+ - I’ve said in many interviews that I like my fiction to be unpredictable. I like there to be considerable suspense.
+ - The only game. The game of thrones.
+ - Do you want to die old and craven in your bed?- How else? Though not till I’m done reading.
+ - I worked out of Hollywood for 10 years and I had my heart broken half a dozen times, so I know all the things that can go wrong.
+ - Now I understand why King Stannis let the wildlings through the Wall. He means for us to eat them.
+ - When Maester Aemon heard him sing, he said his voice was honey poured over thunder.
+ - A crown should not sit easy on the head.
+ - Jon Snow had dreamed of leading men to glory just as King Daeron had, of growing up to be a conqueror. Now he was a man grown and the Wall was his, yet all he had were doubts. He could not even seem to conquer those.
+ - It’s a fool boy who mocks a giant, and a mad world when a cripple has to defend him.
+ - I knew that, when writing a book, you’re not constrained by a budget. You’re not constrained by what you can do, in terms of the special effects technology. You’re not limited to any particular running time.
+ - Jay wondered how they’d feel the morning they all woke up and realized that somehow Camelot had turned into Mordor.
+ - They are children, Sansa thought. They are silly little girls, even Elinor. They’ve never seen a battle, they’ve never seen a man die, they know nothing. Their dreams were full of songs and stories, the way hers had been before Joffrey cut her fathers head off. Sansa pitied them. Sansa envied them.
+ - One of the hardest parts of writing is writing from the gut or the heart or something like that rather than intellectually.
+ - A hedge knight must hold tight to his pride. Without it, he was no more than a sellsword.
+ - It’s being ready to accept rejection. You can work on a book for two years and get it published, and it’s like you may as well have thrown it down a well. It’s not all champagne and doing interviews with The New York Times.
+ - Explain to me why it is more noble to kill ten thousand men in battle than a dozen at dinner.
+ - No fight is hopeless till it has been fought.
+ - Maybe you have billions of dollars and my Hugo, but you don’t have readers like these.
+ - Can they love without a word for it?
+ - He never wanted love, though. You cannot eat love, nor buy a horse with it, nor warm your halls on a cold night.
+ - And what lesson can we draw from Volantene history? If you want to conquer the world, you best have dragons.
+ - The High Septon once told me that as we sin, so do we suffer.
+ - But what a man can do and what a man will do are two different things, he knew.
+ - Once she had loved Prince Joffrey with all her heart, and admired and trusted her his mother, the queen. They had repaid that love and trust with her father’s head. Sansa would never make that mistake again.
+ - The wide world is full of people wanting help, Jon. Would that some could find the courage to help themselves. – Lord Commander Mormont.
+ - In the game of thrones, even the humblest pieces can have wills of their own. Sometimes they refuse to make the moves you’ve planned for them.
+ - There are things to be learned even from the dead.
+ - More details, more devils.
+ - She was no stranger to waiting, after all. Her man had always made her wait.
+ - A man could not always be where he belonged, though.
+ - Mother, I want to see him fly!
+ - I stayed sober for this?
+ - The real issue lies in the North beyond the Wall. Stannis becomes one of the few characters fully to understand that, which is why in spite of everything he is a righteous man.
+ - Most people were startled to find out there were books that preceded Game Of Thrones. I’m a case of working forty years to be an overnight success.
+ - Men’s lives have meaning, not their deaths.
+ - Yes – 90% of fantasy is crap. And so is 90% of science fiction and 90% of mystery fiction and 90% of literary fiction.
+ - His time was past, her handmaid Irri declared. No man should live longer than his teeth.
+ - The girl had hoped for fog, but the gods ignored her prayers as gods so often did.
+ - I suppose I’m a lapsed Catholic. You would consider me an atheist or agnostic.
+ - Men of honor will do things for their children that they would never consider doing for themselves.
+ - The best calumnies are spiced with truth.
+ - I heard of a man who had a razor made of Valyrian steel. He cut his head off trying to shave.
+ - If the novels are still being read in 50 years, no one is ever going to say: ‘What’s great about that sixth book is that he met his deadline!’ It will be about how the whole thing stands up.
+ - The cable makers are the ones who are willing to take risks and do something original and push the envelope some.
+ - I’ve been many kinds of writers in my career: novelist; tele-playwright; short story writer. As a high-school student, I wrote amateur pieces for fanzines, and I’ve written for Hollywood.
+ - Any act can be a prayer, if done as well as we are able.
+ - I have the virtue of being still amongst the living. Some would say that is my only virtue.
+ - I’d be anonymous. That’s what I’d do differently.
+ - The vast majority of writers out there, they finish their books, and no one cares whether their book is late or ever comes out at all. And then it comes out, and two reviews are published, and it sells 12 copies.
+ - It is better to be seen as cruel than foolish.
+ - It was astonishing to see how angry Cersei could wax over accusations she knew perfectly well to be true.
+ - She should be on a hill somewhere, under a fruit tree, with the sun and clouds above her and the rain to wash her clean.
+ - Tyrion wondered what it would be like to have a twin, and decided that he would rather not know. Bad enough to face himself in a looking glass every day.
+ - You should grieve if a fictional character is killed. You should care.
+ - I could have written a story about a well-adjusted family. Ned Stark comes down to King’s Landing and takes over and solves all their problems. Would that have been as exciting?
+ - She remembered the godswood, drooping branches heavy with moisture, and the sound of her brother’s laughter as he chased her through piles of damp leaves.
+ - All these kings would do a deal better if they would put down their swords and listen to their mothers.
+ - No one who wears a crown is ever safe.
+ - The sun will soon be setting, and corpses make poor company by night. These were dark and dangerous men, alive. I doubt that death will have improved them.
+ - Tyrion: My gentle sister seems to have mistaken me for Ned Stark. Bronn: I hear he was taller. Tyrion: Not after Joff took off his head.
+ - Tears, she said scornfully to Sansa as the woman was led from the hall. The woman’s weapon, my lady mother used to call them. The man’s weapon is a sword. And that tells us all you need to know, doesn’t it?
+ - And I tell you truly, Danaerys, there is no man in all the world who will ever be half so true to you as me.
+ - The prejudice is still there, but it’s breaking down. You have writers like Michael Chabon and The Yiddish Policemen’s Union. He’s a writer who’s determined to break down genre barriers. He’s done amazing things.
+ - When the end comes, I will meet it raging.
+ - I have been despised by better men than you.
+ - There’s part of me that loves words. But sometimes it feels like you’re trying to drive nails with your shoe.
+ - I have some other novels I want to write. I have a lot of short stories – I love the short story.
+ - I’ve never been quite sure what the point of a eunuch is, if truth be told. It seems to me they’re only men with the useful bits cut off.
+ - I was always intensely Romantic, even when I was too young to understand what that meant.
+ - Have a care how you speak to me, Imp. Doubtless he meant to sound threatening, but that absurd wisp of a mustache ruined the effect.
+ - I’ve written some standalone novels, but a book series allows fans in. There’s much more intense involvement.
+ - You always try to do your own thing. One of the things I wanted to do was to write a book that combines some of the best traits of contemporary fantasy with some of the traits of the historical novel.
+ - What was it Catelyn Stark had called them, that night at Bitterbridge? The knights of summer. And now it was autumn and they were falling like leaves...
+ - I’m fond of all my characters so every time one doesn’t make the cut I’m a little disappointed although I understand it.
+ - I never finished any of my early stories. They were all beginnings, an endless number of beginnings.
+ - Kings are falling like leaves this autumn.
+ - I work for two years on a book and it comes out and two days later I’ve got my first e-mail: When is the next one coming out?
+ - A lot of writing takes place in the subconscious, and it’s bound to have an effect.
+ - A man does not need to be a wizard to know truth from falsehood, not if he has eyes. You need only learn to read a face. Look at the eyes. The mouth. The muscles here, at the corners of the jaw, and here, where the neck joins the shoulders.
+ - That little touch is not in the books, but I wish it had been in the books because it was a great addition.
+ - These old knights are more cunning than you think, or they would never have lived to see their first grey hair.
+ - I wrote six pilots, none of which ever got picked up. When you stop trying, it then it falls in your lap.
+ - I have idea files of books that I want to write one of these days, stories I want to write one of these days, but I’ll probably never get to them.
+ - She just laughed in his face and told him she’d sooner crawl in a bed with his father’s leeches before she’d crawl in one with him. She stopped laughing when he put his knife in her.
+ - Even the sky was grey. Grey and grey and greyer. The whole world grey, everywhere you look, everything grey except the eyes of the bride. The eyes of the bride were brown. Big and brown and full of fear.
+ - Sure. Some of the reviews have been very flattering, but the series is not finished yet. The end needs to be as strong as the beginning.
+ - There has never been a slave who did not choose to be a slave. Their choice may be between bondage and death, but the choice is always there.
+ - A lord may love the men that he commands, but he cannot be a friend to them. One day he may need to sit in judgement on them, or send them forth to die.
+ - I have an instinctual distrust of conventional happy endings.
+ - I do play all the characters, when I write them, one after another. If they actually had to film me, the only one I could play would be Samwell Tarly or Hot Pie.
+ - They’ll kill for that knighthood, but don’t ever think they’ll die for it.
+ - An awful lot of fantasy, and even some great fantasy, falls into the mistake of assuming that a good man will be a good king, that all that is necessary is to be a decent human being and when you’re king everything will go swimmingly.
+ - Her lord father had taught her never to steal, but it was growing harder to remember why.
+ - Give a thing a name and it will somehow come to be.
+ - How do you fight someone if you can’t hit them?
+ - The Beauty raised her eyes, the only part of her that was truly beautiful.
+ - No mortal man could frighten him, no more than the darkness could, nor the bones of his soul, the grey and grisly bones of his soul.
+ - We know truth for the cruel instrument it is. Beauty is infinitely preferable to truth.
+ - I think my very earliest stories were all intellectual exercises and I was writing from experiences I had never had about characters who were about an inch deep.
+
+500 quotes

@@ -1,0 +1,221 @@
+ - It is better to be hated for what you are than to be loved for what you are not.
+ - Man cannot discover new oceans unless he has the courage to lose sight of the shore.
+ - Everything has been said before, but since nobody listens we have to keep going back and beginning all over again.
+ - The true hypocrite is the one who ceases to perceive his deception, the one who lies with sincerity.
+ - The color of truth is gray.
+ - It is one of life’s laws that as soon as one door closes another opens. But the tragedy is we look at the closed door and disregard the open one.
+ - He who wants a rose must respect her thorn.
+ - Art is a collaboration between God and the artist, and the less the artist does the better.
+ - The greatest intelligence is precisely the one that suffers the most from its own limitations.
+ - Fear of ridicule begets the worst cowardice.
+ - A caterpillar who seeks to know himself would never become a butterfly.
+ - Whoever starts out toward the unknown must consent to venture alone.
+ - It is now, and in this world, that we must live.
+ - It is only in adventure that some people succeed in knowing themselves – in finding themselves.
+ - Be faithful to that which exists nowhere but in yourself- and thus make yourself indispensable.
+ - The most beautiful things are those that madness prompts and reason writes.
+ - Each of us really understands in others only those feelings he is capable of producing himself.
+ - Society knows perfectly well how to kill a man and has methods more subtle than death.
+ - Please do not understand me too quickly.
+ - Know thyself. A maxim as pernicious as it is ugly. Whoever studies himself arrest his own development. A caterpillar who seeks to know himself would never become a butterfly.
+ - Seize from every moment its unique novelty, and do not prepare your joys.
+ - Great authors are admirable in this respect: in every generation they make for disagreement. Through them we become aware of our differences.
+ - I wished for nothing beyond her smile, and to walk with her thus, hand in hand, along a sun warmed, flower bordered path.
+ - The novelist does not long to see the lion eat grass. He realizes that one and the same God created the wolf and the lamb, then smiled, “seeing that his work was good.”
+ - I advise the young to tell themselves constantly that most often it is up to them alone.
+ - I intend to bring you strength, joy, courage, perspicacity, defiance.
+ - Not everyone can be an orphan.
+ - When everything belongs to everyone, nobody will take care of anything.
+ - Money cannot buy happiness, but it can make you awfully comfortable while you’re being miserable. Nothing prevents happiness like the memory of happiness.
+ - It is with noble sentiments that bad literature gets written.
+ - Sadness is almost never anything but a form of fatigue.
+ - The wise man is he who constantly wonders afresh.
+ - There are many things that seem impossible only so long as one does not attempt them.
+ - Each thought becomes an anxiety in my brain. I am becoming the ugliest of all things: a busy man.
+ - To read a writer is for me not merely to get an idea of what he says, but to go off with him and travel in his company.
+ - In hell there is no other punishment than to begin over and over again the tasks left unfinished in your lifetime.
+ - Most quarrels amplify a misunderstanding.
+ - Without mysticism man can achieve nothing great.
+ - To know how to free oneself is nothing; the arduous thing is to know what to do with one’s freedom.
+ - Christianity, above all, consoles; but there are naturally happy souls who do not need consolation. Consequently Christianity begins by making such souls unhappy, for otherwise it would have no power over them.
+ - Only those things are beautiful which are inspired by madness and written by reason.
+ - The sole art that suits me is that which, rising from unrest, tends toward serenity.
+ - The true return to nature is the definitive return to the elements-death.
+ - The work of art is the exaggeration of an idea.
+ - In other people’s company I felt I was dull, gloomy, unwelcome, at once bored and boring...
+ - The want of logic annoys. Too much logic bores. Life eludes logic, and everything that logic alone constructs remains artificial and forced.
+ - I am lost if I attempt to take count of chronology. When I think over the past, I am like a person whose eyes cannot properly measure distances and is liable to think things extremely remote which on examination prove to be quite near.
+ - Often the best in us springs from the worst in us.
+ - Do not scorn little victories.
+ - Complete possession is proved only by giving. All you are unable to give possesses you.
+ - The bad novelist constructs his characters; he directs them and makes them speak. The true novelist listens to them and watches them act; he hears their voices even before he knows them.
+ - The only real education comes from what goes counter to you.
+ - Oh, would that my mind could let fall its dead ideas, as the tree does its withered leaves! And without too many regrets, if possible! Those from which the sap has withdrawn. But, good Lord, what beautiful colors!
+ - The pettiness of a mind can be measured by the pettiness of its adoration or its blasphemy.
+ - But can one still make resolutions when one is over forty? I live according to twenty-year-old habits.
+ - Families, I hate you! Shut-in homes, closed doors, jealous possessors of happiness.
+ - Know that joy is rarer, more difficult, and more beautiful than sadness. Once you make this all-important discovery, you must embrace joy as a moral obligation.
+ - I can’t expect others to share my virtues. It’s good enough for me if they share my vices.
+ - When intelligent people pride themselves on not understanding, it is quite natural they should succeed better than fools.
+ - There is a law in life: When one door closes to us another one opens.
+ - So long as we live among men, let us cherish humanity.
+ - Work and struggle and never accept an evil that you can change.
+ - Sin is whatever obscures the soul.
+ - The individual never asserts himself more than when he forgets himself.
+ - Oh, would that my mind could let fall its dead ideas, as the tree does its withered leaves!
+ - Are you then unable to recognize unless it has the same sound as yours?
+ - The most decisive actions of our life – I mean those that are most likely to decide the whole course of our future – are, more often than not, unconsidered.
+ - There is no prejudice that the work of art does not finally overcome.
+ - Do not do what someone else could do as well as you. Do not say, do not write what someone else could say, could write as well as you. Care for nothing in yourself but what you feel exists nowhere else. And, out of yourself create, impatiently or patiently, the most irreplaceable of beings.
+ - Welcome anything that comes to you, but do not long for anything else.
+ - Nothing excellent can be done without leisure.
+ - Our deeds attach themselves to us like the flame to phosphorus. They constitute our brilliance, to be sure, but only in so far as they consume us.
+ - If only we could lean over the soul we love and see as in a mirror the image we cast!
+ - Through fear of resembling one another, through horror of having to submit, through uncertainty as well, through skepticism and complexity, there is a multitude of individual little beliefs for the triumph of strange little individuals.
+ - There are admirable potentialities in every human being.
+ - True kindness presupposes the faculty of imagining as one’s own the suffering and joys of others.
+ - True intelligence very readily conceives of an intelligence superior to its own; and this is why truly intelligent men are modest.
+ - It is easier to lead men to combat, stirring up their passion, than to restrain them and direct them toward the patient labors of peace.
+ - Clear and precise ideas are the most dangerous, for one does not dare to change them.
+ - You have to let other people be right’ was his answer to their insults. ‘It consoles them for not being anything else.
+ - The most subtle art, the strongest and deepest art – supreme art – is the one that does not at first allow itself to be recognized.
+ - How do you know that the fruit is ripe? Simply because it leaves the branch.
+ - The miser puts his gold pieces into a coffer; but as soon as the coffer is closed, it is as if it were empty.
+ - Art that submits to orthodoxy, to even the soundest doctrines, but lacks imagination and deep self-expression is lost leaving only the craftsmanship.
+ - One is always wrong to open a conversation with the devil, for, however he goes about it, he always insists upon having the last word.
+ - Man: The most complex of beings, and thus the most dependent of beings. On all that made you up, you depend.
+ - How much more sensuality invites to art than does sentimentality.
+ - Every perfect action is accompanied by pleasure. By that you can tell what you ought to do.
+ - A straight path never leads anywhere except to the objective.
+ - Man is more interesting than men. God made him and not them in his image. Each one is more precious than all.
+ - Wisdom comes not from reason but from love.
+ - To love the truth is to refuse to let oneself be saddened by it.
+ - It is unthinkable for a Frenchman to arrive at middle age without having syphilis and the Cross of the Legion of Honor.
+ - The individual person is more interesting than people in general; he and not they is the one whom God created in His image.
+ - Long only for what you have.
+ - Other people’s appetites easily appear excessive when one doesn’t share them.
+ - The nationalist has a broad hatred and a narrow love.
+ - Profound optimism is always on the side of the tortured.
+ - Laws and rules of conduct are for the state of childhood; education is an emancipation.
+ - There is no work of art that is without short cuts.
+ - Man is extraordinarily clever in preventing himself from being happy; it would seem that the less able he is to endure misfortune the more apt he is to attach himself to it.
+ - Enduring fame is promised only to those writers who can offer to successive generations a substance constantly renewed; for every generation arrives upon the scene with its own particular hunger.
+ - It is often so: the harder it is to hear, the more a truth is worth saying.
+ - In order to be utterly happy the only thing necessary is to refrain from comparing this moment with other moments in the past, which I often did not fully enjoy because I was comparing them with other moments of the future.
+ - When you have nothing to say, or to hide, there is no need to be prudent.
+ - The most beaten paths are certainly the surest, but do not hope to start much game on them.
+ - Whither should we aim if not towards God?
+ - It is not becoming to lay to virtue the weariness of old age.
+ - It is better to fail at your own life than to succeed at someone else’s.
+ - The wise man is astonished by anything.
+ - With each book you write you should lose the admirers you gained with the previous one.
+ - Sadness is a state of sin.
+ - Nothing is more fatal to happiness than the remembrance of happiness.
+ - The world will be saved by one or two people.
+ - One should want only one thing and want it constantly. Then one is sure of getting it. But I desire everything, and consequently get nothing.
+ - Only fools don’t contradict themselves.
+ - The less intelligent the white man is, the more stupid he thinks the black.
+ - Woe to these people who have no appetite for the very dish that their age serves up.
+ - Chastity more rarely follows fear, or a resolution, or a vow, than it is the mere effect of lack of appetite and, sometimes even, of distaste.
+ - What I dislike least in my former self are the moments of prayer.
+ - To what a degree the same past can leave different marks – and especially admit of different interpretations.
+ - Envying another man’s happiness is madness; you wouldn’t know what to do with it if you had it.
+ - Solitude is bearable only with God.
+ - Too chaste a youth leads to a dissolute old age.
+ - Fish die belly upward, and rise to the surface. Its their way of falling.
+ - If one could recover the uncompromising spirit of one’s youth, one’s greatest indignation would be for what one has become.
+ - There is no feeling so simple that it is not immediately complicated and distorted by introspection.
+ - It is good to follow one’s own bent, so long as it leads upward.
+ - To win ones joy through struggle is better than to yield to melancholy.
+ - An experience teaches only the good observer; but far from seeking a lesson in it, everyone looks for an argument in experience, and everyone interprets the conclusion in his own way.
+ - Never have I been able to settle in life. Always seated askew, as if on the arm of a chair; ready to get up, to leave.
+ - I prefer granting with a good grace what I know I shan’t be able to prevent.
+ - I owe much to my friends; but, all things considered, it strikes me that I owe even more to my enemies. The real person springs life under a sting even better than under a caress.
+ - The itch is a mean, unconfessable, ridiculous malady; one can pity someone who is suffering ; someone who wants to scratch himself makes one laugh.
+ - The capacity to get free is nothing; the capacity to be free is the task.
+ - Through loyalty to the past, our mind refuses to realize that tomorrow’s joy is possible only if today’s makes way for it; that each wave owes the beauty of its line only to the withdrawal of the preceding one.
+ - Obtain from yourself all that makes complaining useless. No longer implore from others what you yourself can obtain.
+ - An unprejudiced mind is probably the rarest thing in the world; to nonprejudice I attach the greatest value.
+ - In order to judge properly, one must get away somewhat from what one is judging, after having loved it. This is true of countries, of persons, and of oneself.
+ - If a young writer can refrain from writing, he shouldn’t hesitate to do so.
+ - Old hands soil, it seems, whatever they caress, but they too have their beauty when they are joined in prayer. Young hands were made for caresses and the sheathing of love. It is a pity to make them join too soon.
+ - Most often people seek in life occasions for persisting in their opinions rather than for educating themselves.
+ - I do not love men: I love what devours them.
+ - Understanding is the beginning of approving.
+ - When I cease to be indignant I will have begun my old age.
+ - We should enjoy this summer, flower by flower, as if it were to be the last one we’ll see.
+ - I believe that in every circumstance I have been able to see rather clearly the most advantageous course I could follow, which is very rarely the one I did follow.
+ - What seems different in yourself; that’s the rare thing you possess. The one thing that gives each of us his worth, and that’s just what we try to suppress. And we claim to love life.
+ - Nothing is so silly as the expression of a man who is being complimented.
+ - It is with fine sentiments that bad literature is made. Descend to the bottom of the well if you wish to see the stars.
+ - Every instant of our lives is essentially irreplaceable: you must know this in order to concentrate on life.
+ - A man thinks he owns things, and it is he who is owned.
+ - Let every emotion be capable becoming an intoxication to you. If what you eat fails to make you drunk, it is because you are not hungry enough.
+ - It is the special quality of love not to be able to remain stationary, to be obliged to increase under pain of diminishing...
+ - The individual man tries to escape the race. And as soon as he ceases to represent the race, he represents man.
+ - Faith can move mountains; true: mountains of stupidity.
+ - Of some forty families I have been able to observe, I know hardly four in which the parents do not act in such a way that nothing would be more desirable for the child than to escape their influence.
+ - It is not always by plugging away at a difficulty and sticking to it that one overcomes it; often it is by working on the one next to it. Some things and some people have to be approached obliquely, at an angle.
+ - Too chaste an adolescence makes for a dissolute old age. It is doubtless easier to give up something one has known than something one imagines.
+ - The most gifted natures are perhaps also the most trembling.
+ - The great artist is one whom constraint exalts, for whom the obstacle is a springboard.
+ - The thing I am most aware of is my limits. And this is natural; for I never, or almost never, occupy the middle of my cage; my whole being surges toward the bars.
+ - What would there be in a story of happiness? Only what prepares it, only what destroys it can be told.
+ - One completely overcomes only what one assimilates.
+ - Our judgements about things vary according to the time left us to live -that we think is left us to live.
+ - From the satisfaction of desire there may arise, accompanying joy and as it were sheltering behind it, something not unlike despair.
+ - We call “happiness” a certain set of circumstances that makes joy possible. But we call joy that state of mind and emotions that needs nothing to feel happy.
+ - What eludes logic is the most precious element in us, and one can draw nothing from a syllogism that the mind has not put there in advance.
+ - No theory is good unless it permits, not rest, but the greatest work. No theory is good except on condition that one use it to go on beyond.
+ - True eloquence forgoes eloquence.
+ - I have no use for knowledge that has not been preceded by a sensation.
+ - Atheism. There is not a single exalting and emancipating influence that does not in turn become inhibitory.
+ - Do not think your truth can be found by anyone else.
+ - Prejudices are the props of civilization.
+ - Most often it happens that one attributes to others only the feelings of which one is capable oneself.
+ - The most important things to say are those which often I did not think necessary for me to say – because they were too obvious.
+ - The most decisive actions of life are most often unconsidered actions.
+ - The abominable effort to take one’s sins with one to paradise.
+ - Man’s first and greatest victory must be won against the gods.
+ - A desire for truth is by no means a need for certitude and it would be unwise to confuse one with the other.
+ - God depends on us. It is through us that God is achieved.
+ - To be sure, theory is useful. But without warmth of heart and without love it bruises the very ones it claims to save.
+ - The artist who is after success lets himself be influenced by the public. Generally such an artist contributes nothing new, for the public acclaims only what it already knows, what it recognizes.
+ - We no longer admit any other truth than that which is expedient; for there is no worse error than the truth that may weaken the arm that is fighting.
+ - Nothing blocks happiness like happiness remembered.
+ - What thwarts us and demands of us the greatest effort is also what can teach us most.
+ - The only really Christian art is that which, like St. Francis, does not fear being wedded to poverty. This rises far above art-as-ornament.
+ - The reasons that drive me to write are many and the most important are the most secret, I think. Perhaps most of all this: to put something out of death’s reach.
+ - An opinion, though it is original, does not necessarily differ from the accepted opinion; the important thing is that it does not try to conform to it.
+ - The loveliest creations of men are persistently painful. What would be the description of happiness?
+ - He who makes great demands upon himself is naturally inclined to make great demands on others.
+ - Man’s responsibility increases as that of the gods decreases.
+ - By the time a philospher answers a question weve usually forgotten what was asked.
+ - It would be wisest not to worry too much about the sterile periods. They ventilate the subject and instill into it the reality of daily life.
+ - Life never presents us with anything which may not be looked upon as a fresh starting point, no less than as a termination.
+ - Understand that the only possession of any value is life.
+ - An artist cannot get along without a public; and when the public is absent, what does he do? He invents it, and turning his back on his age, he looks toward the future for what the present denies.
+ - We live counterfeit lives in order to resemble the idea we first had of ourselves.
+ - The anxiety we have for the figure we cut, for our personage, is constantly cropping out. We are showing off and are often more concerned with making a display than with living. Whoever feels observed observes himself.
+ - It is only through restraint that man can manage not to suppress himself.
+ - Though a revolution may call itself “national,” it always marks the victory of a single party.
+ - Believe those who are seeking the truth. Doubt those who find it.
+ - The truth is that as soon as we are no longer obliged to earn our living, we no longer know what to do with our life and recklessly squander it.
+ - They establish distinctions and reserves which I cannot apply to myself, for I exist only as a whole; my only claim is to be natural, and the pleasure I feel in an action, I take as a sign that I ought to do it.
+ - Pay attention only to the form; emotion will come spontaneously to inhabit it. A perfect dwelling place always finds an inhabitant.
+ - If life were organized, there would be no need for art.
+ - The scholar seeks truth, the artist finds.
+ - I have never produced anything good except by a long succession of slight efforts.
+ - Nothing is good for everyone, but only relatively to some people.
+ - It is essential to persuade the soldier that those he is being urged to massacre are bandits who do not deserve to live; before killing other good, decent fellows like himself, his gun would fall from his hands.
+ - Great minds tend toward banality. It is the noblest effort of individualism. But it implies a sort of modesty, which is so rare that it is scarcely found except in the greatest, or in beggars.
+ - I find just as much profit in cultivating my hates as my loves.
+ - Generally among intelligent people are found nothing but paralytics and among men of action nothing but fools.
+ - We prefer to go deformed and distorted all our lives rather than not resemble the portrait of ourselves which we ourselves have first drawn. It’s absurd. We run the risk of warping what’s best in us.
+ - There are very few monsters who warrant the fear we have of them.
+ - The truth is, I hoped the cure would dislike me. I tried to think of disagreeable things to say to him – I could hit on nothing that wasn’t charming. It’s wonderful how hard I find it not to be fascinating.
+ - The public always prefers to be reassured. There are those whose job this is. There are only too many.
+ - Those who have never been ill are incapable of real sympathy for a great many misfortunes.
+ - The important thing is being capable of emotions, but to experience only one’s own would be a sorry limitation.
+
+219 quotes

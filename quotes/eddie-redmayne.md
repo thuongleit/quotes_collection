@@ -1,0 +1,37 @@
+ - Take life step by step, pace by pace, slowly slowly, and leave the competition to others.
+ - I’m just one gigantic ball of rancid fear and self-consciousness. I’m entirely fueled by fear, so the fact that I knew it could be a catastrophic disaster made me unable to sleep, and made me work quite hard.
+ - Up there on the screen, we can all fly. But down here on earth, we need to be each others wings.
+ - Most actors hate watching their own films because all you can see is the glaring mistakes, your own tricks and ticks.
+ - Tequila is my salmon.
+ - I’m fully aware that I am a lucky, lucky man. This Oscar belongs to all of those people around the world battling ALS. It belongs to one exceptional family, and I will be it’s custodian and I promise you that I will polish him, and wait on him hand and foot.
+ - I draw and play the piano badly. But when I’m doing those things, I’m concentrating so hard there’s no room for worry. I find that onstage, too.
+ - Learning lines is hard for me because I have the attention span of a six year old. That’s why being on planes all the time is so useful – I’m forced to learn out of boredom.
+ - As an actor there’s a lot of scrutiny and, even when you’ve had success, it becomes about sustaining that success. A friend of mine described it as a peakless mountain. Even for De Niro there’s Pacino and for Pacino there’s De Niro.
+ - And you can’t complain about kissing Emma Watson. Isn’t that what everyone in the world wants to do? I’ve known Emma for a few years. She’s this amazing capacity of young and vibrant and brilliant, but also a bright, intelligent old soul.
+ - Everything about filmmaking is incredibly weird, and there’s nothing natural about watching yourself on the big screen or hearing your voice. It’s that same thing that you feel when you watch yourself on a video camera and you hate the sound of your voice – it’s that times 800.
+ - It’s the weird thing Eton does – you’re at school next to lords and earls and, in my case, Prince William, so you end up being used to dealing with those sorts of people.
+ - Listen, acting is not surgery, it’s entertainment. You’re doing something to hopefully move people, to make them laugh, to transport them. But actors are vulnerable, and the reason we’re vulnerable is that we’re always trying to recreate human behaviour.
+ - If I do a film and have to get naked, that tends to dictate how often I go to the gym. Acting in ‘Richard II’ on stage was a huge physical workout, so I ended up more toned than I normally am.
+ - I’m as voyeuristic and intrigued as the next person as to how celebrities live.
+ - Two years ago, I shot ‘Pillars of the Earth’ in Budapest – it was a big part, but I had a lot of time to sit around and visit cafes.
+ - Ladies and babies, and mortgages, for that matter, can all wait. Acting has done a strange thing to me, though. I often sit there, thinking, ‘I love this, but I wouldn’t put my daughter on the stage.’
+ - I had never been to a fashion show before going to the Burberry show last month. It was an extraordinary spectacle. I was incredibly green and had no idea what an undertaking it is. I also have a new respect for models because they are so close to the front row and must be so self-conscious.
+ - A lot of people think theatre must be much harder work than film, but anything histrionic or superfluous gets seen on camera so you have to work to distil it into a complete sense of what’s true.
+ - Making a film or doing a play are completely different experiences and entirely fulfilling, but completely unique. I also think one complements the other. People often say that theater is about flexing your muscles, and is actually real acting, whereas I sort of disagree.
+ - In England we have this saying about Marmite: people either love it or hate it. That’s like a lot of the movie work I’ve done. People either find it repulsive or find it really interesting and get engaged in it.
+ - It can be a miserable profession, acting, because you always want what you can’t have.
+ - I always try to describe making movies like summer camp, or some holiday where you spend all day, every day with a new group of people whom you kind of love and then never see again.
+ - I walk around talking to myself in accents. Usually people look at me like I’m a complete fruit loop.
+ - I’m trying to buy a house and set some sense of roots because otherwise you’re constantly chasing one job after another, and you look back and you’ve had all these very extraordinary experiences with extraordinary people, but there’s not a line of continuity to it.
+ - I always think of comedy as being spontaneous, and yet everything about filmmaking is not spontaneous.
+ - My first film, ‘Like Minds,’ was with Toni Colette, who was extraordinary. I mean it was basically a mini-masterclass for acting on film at a time when all you could probably see were my eyebrows bouncing up and down on screen.
+ - I go to the theater two or three times a week when I’m in London. Whereas I feel guilty going to the cinema in the middle of the afternoon.
+ - As a runner on a film, you are the lowest of the low, and yet you have incredible access to everyone. I can totally imagine that for actors in the middle of a Hollywood bubble, all they really want is a sense of normality, and that gopher can be a tap for that.
+ - I do get stopped a bit now and then, but I can go to the supermarket and on the Tube without being noticed. It’s usually me that gets starstruck, especially by TV stars.
+ - I’m quite ignorant about fashion and I’m colourblind, so it’s all a tad tricky. My only knowledge of that world comes through Christopher Bailey, whom I first met in 2008 when I did a campaign for Burberry that featured musicians, artists, actors and sportsmen.
+ - I think all actors have a similar deal. You want some people who understand. Although it looks great – and is great – there are also shoddy moments when you feel really rotten, and when it’s going well, you’re not allowed to complain.
+ - They’re such hierarchical things, film sets, they’re sort of mini societies. Often they’re incredibly political places.
+ - I did an interview once where I was asked who I found attractive and I went on about cartoons and Nala from ‘The Lion King’ – and it’s a bit weird but various of my ex-girlfriends actually did look like Nala.
+ - If you’re an English actor and turn up in America, they don’t have an opinion about where you sit. They have no idea what auditions to send you to, so they send you to everything.
+
+35 quotes

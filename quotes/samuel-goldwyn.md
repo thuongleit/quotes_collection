@@ -1,0 +1,107 @@
+ - The harder I work, the luckier I get.
+ - I’m willing to admit that I may not always be right, but I am never wrong.
+ - If I look confused it is because I am thinking.
+ - Give me a smart idiot over a stupid genius any day.
+ - A bachelor’s life is no life for a single man.
+ - Enthusiasm is the key not only to the achievement of great things but to the accomplishment of any thing that is worthwhile.
+ - A verbal contract isn’t worth the paper it’s written on.
+ - Color television! Bah, I won’t believe it until I see it in black and white.
+ - Forecasts are difficult to make-particularly those about the future.
+ - If you don’t dissagree with me, how will I know I’m right?
+ - A Hospital is no place to be sick.
+ - Don’t pay any attention to the critics – don’t even ignore them.
+ - No person who is enthusiastic about his work has anything to fear from life. All the opportunities in the world are waiting to be grasped by people who are in love with what they’re doing.
+ - If a young man is going to get ahead, if he is going to reach the top, he must be all wrapped up in what he is doing. He has to give his job – whatever it is – not only his talent but every bit of his enthusiasm and devotion.
+ - If I could drop dead right now, I’d be the happiest man alive.
+ - There is a statue of limitation.
+ - Ninety percent of the art of living consists of getting along with people you cannot stand.
+ - In two words, impossible.
+ - Keep a stiff upper chin.
+ - I’ve gone where the hand of man has never set foot.
+ - We’re overpaying him, but he’s worth it.
+ - A wide screen just makes a bad film twice as bad.
+ - I paid too much for it, but it’s worth it.
+ - Go see it and see for yourself why you shouldn’t go see it.
+ - Yes, but keep copies.
+ - Just because I disagree with you doesn’t mean I’m disagreeable...
+ - I never put on a pair of shoes until I’ve worn them at least five years.
+ - No person who is enthusiastic about his work has anything to fear from life.
+ - He treats me like the dirt under my feet.
+ - If I were in this business only for the business, I wouldn’t be in this business.
+ - Don’t worry about the war. It’s all over but the shooting.
+ - It’s absolutely impossible, but it has possibilities.
+ - The reason so many people turned up at his funeral is that they wanted to make sure he was dead.
+ - For your information, I would like to ask a question.
+ - My horse was in the lead, coming down the home stretch, but the caddie fell off.
+ - Be drug-free and smoke some crack.
+ - I never liked you, and I always will.
+ - I’ll take fifty percent efficiency to get one hundred percent loyalty.
+ - I don’t care if it doesn’t make a nickel. I just want every man, woman, and child in America to see it.
+ - When someone does something good, applaud! You will make two people happy.
+ - They stayed away in droves.
+ - It’s more than magnificent – it’s mediocre.
+ - Why should people go out and pay money to see bad films when they can stay at home and see bad television for nothing?
+ - Let’s have some new cliches.
+ - True, I’ve been a long time making up my mind, but now I’m giving you a definite answer. I won’t say yes, and I won’t say no – but I’m giving you a definite maybe.
+ - Let’s bring it up to date with some snappy nineteenth century dialogue.
+ - If I did that, I’d be sticking my head in a moose.
+ - Spare no expense to save money on this one.
+ - Never make forecasts, especially about future.
+ - We have passed a lot of water since then.
+ - I had a monumental idea this morning, but I didn’t like it.
+ - Coffee isn’t my cup of tea.
+ - Ill give you a definite maybe.
+ - This book has too much plot and not enough story.
+ - Pictures are for entertainment, messages should be delivered by Western Union.
+ - That’s the kind of ad I like, facts, facts, facts.
+ - Television has raised writing to a new low.
+ - I have been laid up with intentional flu.
+ - I read part of it all the way through.
+ - I’m living beyond my means, but I can afford it.
+ - We want a story that starts out with an earthquake and works its way up to a climax.
+ - Too caustic? To hell with the costs, we’ll make the picture anyway.
+ - I want everyone to tell me the truth, even if it costs him his job.
+ - When told a script was full of old cliches: Let’s have some new cliches.
+ - God makes stars. I just produce them.
+ - What nerve. Not even a modicum of originality.
+ - That’s the trouble with directors. Always biting the hand that lays the golden egg.
+ - If people don’t want to go to the picture, nobody can stop them.
+ - I want to make a picture about the Russian secret police – the GOP.
+ - The human race is faced with a cruel choice: work or daytime twittering – anon Twitter has raised writing to a new low.
+ - It will create an excitement that will sweep the country like wildflowers.
+ - Destroy the old files, but make copies first.
+ - The trouble with this business is the dearth of bad pictures.
+ - Please write music like Wagner, only louder.
+ - Give me a couple of years, and I’ll make that actress an overnight success.
+ - You fail to overlook the crucial point.
+ - This makes me so sore it gets my dandruff up.
+ - This music won’t do. There’s not enough sarcasm in it.
+ - I hate a man who always says yes to me. When I say no I like a man who also says no.
+ - I seriously object to seeing on the screen what belongs in the bedroom.
+ - If Roosevelt were alive today, he’d turn over in his grave.
+ - The A-bomb is dynamite.
+ - I don’t think anyone should write their autobiography until after they’re dead.
+ - You have all the scenes. Just go home and word it in.
+ - Our comedies are not to be laughed at.
+ - Why only twelve disciples? Go out and get thousands.
+ - Can she sing? She’s practically a Florence Nightingale.
+ - I’d hire the devil himself as a writer if he gave me a good story...
+ - Some who are not paid what they are worth ought to be glad.
+ - Any man who goes to a psychiatrist ought to have his head examined.
+ - Even if they had it in the streets, I wouldn’t go.
+ - Modern dancing is old fashioned.
+ - To hell with the cost, if it’s a good story, I’ll make it.
+ - Don’t improve it into a flop!
+ - We have that Indian scene. We can get the Indians from the reservoir.
+ - I was always an independent, even when I had partners.
+ - Chaplin is no business man – all he knows is that he can’t take anything less.
+ - Gentlemen, listen to me slowly.
+ - In picture-making the writer is the most important cog in the wheel.
+ - Tell them to stand closer apart.
+ - From success you get a lot of things, but not that great inside thing that love brings you.
+ - Don’t let your opinion sway your judgment.
+ - The scene is dull. Tell him to put more life into his dying.
+ - You’ve got to take the bitter with the sour.
+ - Here I am paying big money to you writers and what for? All you do is change the words.
+
+105 quotes

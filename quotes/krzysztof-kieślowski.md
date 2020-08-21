@@ -1,0 +1,29 @@
+ - Maybe it is worth investigating the unknown, if only because the very feeling of not knowing is a painful one.
+ - I like chance meetings – life is full of them. Every day, without realising it, I pass people whom I should know.
+ - Do people really want liberty, equality, fraternity? Is it not some manner of speaking?
+ - I have one good characteristic: I’m a pessimist, so I always imagine the worst – always. To me, the future is a black hole.
+ - There are mysteries, secret zones in each individual.
+ - In believing too much in rationality, our contemporaries have lost something.
+ - I believe the life of every person is worthy of scrutiny, containing its own secrets and dramas.
+ - That’s the greatest sin a director can commit; to make a film simply because he wants to make a film.
+ - Different people in different parts of the world can be thinking the same thoughts at the same time. It’s an obsession of mine: that different people in different places are thinking the same thing but for different reasons. I try to make films which connect people.
+ - For me optimism is two lovers walking into the sunset arm in arm. Or maybe into the sunrise – whatever appeals to you.
+ - The realm of superstitions, fortune-telling, presentiments, intuition, dreams, all this is the inner life of a human being, and all this is the hardest thing to film.
+ - You have to want to make a film for other reasons – to say something, to tell a story, to show somebody’s fate – but you can’t want to make a film simply for the sake of it.
+ - We understand the concept of equality, that we all want to be equal. But I think this is absolutely not true. I don’t think anybody really wants to be equal. Everybody wants to be more equal.
+ - In ten phrases, the ten commandments express the essential of life. And these three words – liberty, equality, and fraternity – do just as much. Millions of people have died for those ideals.
+ - We all steal, but if we’re smart we steal from great directors. Then, we can call it influence.
+ - If I have a goal, then it is to escape from this literalism. I’ll never achieve it; in the same way that I’ll never manage to describe what really dwells within my character, although I keep on trying.
+ - I wanted to describe the world at the same time, through image, express what I felt. It was the time of the great documentary filmmakers: Richard Leacock, Joris Ivens. Today, television has put an end to this type of filmmaking.
+ - Someone knocks at the door of an apartment to borrow salt or sugar, people run into each other in the elevator, and in this way become inscribed in the spectator’s memory.
+ - I really don’t know anything about music, and it’s no great experience for me. But I do think that music has a purifying element.
+ - Of course I’d like to get beyond the concrete. But it’s really difficult. Very difficult.
+ - I have no problem being with people of different nationalities.
+ - I feel Polish. More specifically, I feel like I’m from the tiny village in the Northeast of Poland where I have a house and where I love to spend time. But I don’t work there. I cut wood.
+ - Documentaries deal with people who live real, everyday lives. But if these people trusted us and told us the truth about their lives, it could be used against them – which sometimes happened.
+ - In real life, there are names that surprise us because they don’t seem to suit the person at all.
+ - Interior liberty is universal.
+ - The television industry doesn’t like to see the compexity of the world. It prefers simple reporting, with simple ideas: this is white, that’s black; this is good, that’s bad.
+ - Of course, you could, no doubt, call my going to film school the biggest mistake I ever made.
+
+27 quotes

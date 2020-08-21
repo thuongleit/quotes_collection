@@ -1,0 +1,28 @@
+ - I wanna be the ambassador to Chimichanga Flavor Town.
+ - It’s never too late to get good at something.
+ - I get a lot of my inspiration from my family, but I never got to meet my dad’s dad.
+ - You’ve got balls inviting me here.
+ - No matter how tough the meat may be, it’s going to be tender if you slice it thin enough.
+ - Liver is my number one most hated food. Oh, God, I get sick talking about it!
+ - Cooking with kids is not just about ingredients, recipes, and cooking. It’s about harnessing imagination, empowerment, and creativity.
+ - Cooking is like snow skiing: If you don’t fall at least 10 times, then you’re not skiing hard enough.
+ - If you’re cooking and not making mistakes, you’re not playing outside your safety zone. I don’t expect it all to be good. I have fat dogs because I scrap that stuff out the back door.
+ - My stay-married secret would probably be exercising good communication, not when you have to but all the time. I think if you do that, you kinda just cleanse the situations, so there’s not build up. I think that’s probably the best way to do it.
+ - Short of screaming-hot Thai food, everything can be suitable for kids too.
+ - I’m a five-seasons griller! Did you know I added a new season? Living in Cali, I’m cooking in the yard all the time. I don’t care what the weather is like. My hair is impervious to any kind of dampness, so I don’t have too much to worry about.
+ - Some people are just born to cook and talk.
+ - I’m grateful for my whole family, but my dad is like Obi-Wan Kenobi, Superman, and Evel Knievel all at one time. I can think I have it all figured out, and he’ll say, ‘But did you look at that side of it?’ He shows me just how much more there is than what appears to be.
+ - Preparing food is one of life’s great joys, but a lot of times, parents ask their kids if they want to cook with them and then tell them to go peel a bag of potatoes. That’s not cooking – that’s working!
+ - My friends and my family are such a massive part of my life. My kids are everything.
+ - I really felt that I had accomplished my goals in life. My first passion has always been to be a restaurateur, a good husband and father, and to provide for my family.
+ - Kids want to saute, to cut the pizza, to see how the ingredients come together. If you let them do the fun stuff, they’ll develop skills and interests that will stay with them forever.
+ - I’m a “what you see is what you get” kind of guy. I don’t have any time to be showing anybody any bag of tricks.
+ - It’s always good to go over the recipe beforehand, so you can easily think of the next thing that needs to be done.
+ - I love watching, I love getting all the science about food. That’s one of my favorite things.
+ - My philosophy is “Where is it written that at 40 you give up all your toys?” If I’m still having a great time doing something, I’m going to keep on doing it.
+ - I don’t know what singers feel like when they make a song and people clap along and love it, but when people walk up to me and say the food was outstanding, that’s what it is all about. I cook because I like to make people happy.
+ - I always say that environment always affects the food.
+ - If you slow it down, eat in courses, your body, mind, stomach will catch up with this full feeling and you won’t eat as much.
+ - I was always a kid trying to make a buck. I borrowed a dollar from my dad, went to the penny candy store, bought a dollar’s worth of candy, set up my booth, and sold candy for five cents apiece. Ate half my inventory, made $2.50, gave my dad back his dollar.
+
+26 quotes

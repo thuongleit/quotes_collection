@@ -1,0 +1,173 @@
+ - Birth is not the beginning, Death is not the end.
+ - Do not struggle. Go with the flow of things, and you will find yourself at one with the mysterious unity of the Universe.
+ - A frog in a well cannot conceive of the ocean.
+ - Flow with whatever may happen and let your mind be free.
+ - Once I dreamed I was a butterfly, and now I no longer know whether I am Chuang Tzu, who dreamed I was a butterfly, or whether I am a butterfly dreaming that I am Chuang Tzu.
+ - Life is finite, While knowledge is infinite.
+ - The right way to go easy is to forget the right way...
+ - Am I a human dreaming I am a butterfly or a butterfly dreaming I am a human?
+ - Those who realise their folly are not true fools.
+ - The effect of life in society is to complicate and confuse our existence, making us forget who we really are by causing us to become obsessed with what we are not.
+ - The wise man knows that it is better to sit on the banks of a remote mountain stream than to be emperor of the whole world.
+ - Life comes from the earth and life returns to the earth.
+ - Rewards and punishments are the lowest form of education.
+ - Do not seek fame. Do not make plans. Do not be absorbed by activities. Do not think that you know. Be aware of all that is and dwell in the infinite. Wander where there is no path. Be all that heaven gave you, but act as though you have received nothing. Be empty, that is all.
+ - Easy is right. Begin right and you are easy. Continue easy and you are right. The right way to go easy is to forget the right way, and forget that the going is easy.
+ - The perfect man uses his mind as a mirror. It grasps nothing. It regrets nothing. It receives but does not keep.
+ - All men know the use of the useful, but nobody knows the use of the useless. Where can I find a man who has forgotten words so that I can have a word with him?
+ - Those who follow the Tao are of clear mind. They do not load their mind with anxieties and are flexible in their adjustment to external conditions.
+ - Forget the years, forget distinctions. Leap into the boundless and make it your home!
+ - If you have insight, you use your inner eye, your inner ear, to pierce to the heart of things, and have no need of intellectual knowledge.
+ - The sound of water says what I think.
+ - You cannot speak of ocean to a well-frog, the creature of a narrower sphere. You cannot speak of ice to a summer insect, the creature of a season.
+ - A path is made by walking on it.
+ - When an archer shoots for enjoyment, he has all his skill; when he shoots for a brass buckle, he gets nervous; when he shoots for a prize of gold, he begins to see two targets.
+ - To exercise no-thought and rest in nothing is the first step toward resting in Tao. To start from nowhere and follow no road is the first step toward attaining Tao.
+ - Men do not mirror themselves in running water – they mirror themselves in still water. Only what is still can still the stillness of other things.
+ - Let your mind wander in the pure and simple. Be one with the infinite. Let all things take their course.
+ - We are born from a quiet sleep, and we die to a calm awakening.
+ - When you’re dreaming, you don’t know it’s a dream. You might even interpret a dream in your dream – and then wake up and realize it was all a dream. Perhaps a great awakening will reveal this to be a dream as well.
+ - If water derives lucidity from stillness, how much more the faculties of the mind.
+ - You will always find an answer in the sound of water.
+ - For we can only know that we know nothing, and a little knowledge is a dangerous thing.
+ - My opinion is that you never find happiness until you stop looking for it.
+ - The sage embraces things. Ordinary men discriminate amongst them and parade their discriminations before others. So I say; those who discriminate, fail to see.
+ - Birth is not a beginning; death is not an end. There is existence without limitation; there is continuity without a starting point.
+ - He who regards all things as one is a companion of Nature.
+ - Silence, and non action are the root of all things.
+ - When people do not ignore what they should ignore, but ignore what they should not ignore, this is known as ignorance.
+ - Perfect happiness is the absence of striving for happiness.
+ - During our dreams we do not know we are dreaming. We may even dream of interpreting a dream. Only on waking do we know it was a dream. Only after the great awakening will we realize that this is the great dream.
+ - Water becomes clear and transparent when in a quiescent stage. How much the more wonderful will be the mind of a sage when poised in quiescence! It is the mirror of heaven and earth, reflecting the ten thousand things.
+ - Breathing control gives man strength, vitality, inspiration, and magic powers.
+ - Understanding that rests in what it does not understand is the finest.
+ - The hearing that is only in the ears is one thing. The hearing of the understanding is another. But the hearing of the spirit is not limited to any one faculty to the ear, or to the mind.
+ - Where can I find a man who has forgotten words so I can talk with him?
+ - Never admire a man by his strength; judge him in how he uses it- A way is made by walking it.
+ - When there is no more separation between ‘this’ and ‘that,’ it is called the still-point of the Tao. At the still point in the center of the circle one can see the infinite in all things.
+ - The little child learns to speak, though it has no learned teachers – because it lives with those who know how to speak.
+ - Each one’s destiny cannot be altered.
+ - Your mind must become one, do not try to understand with your ears but with your heart. Indeed, not with your heart but with your soul.
+ - Being is thoughtless-beyond and beneath all categories of thought. Expression is the realization of creative thought. Being is still; expression, moving. But then if I do not strive, who will?
+ - The eyes envy the mind.
+ - Heaven is in everything: follow the light, hide in the cloudiness and begin in what is. Do this and your understanding will be like not understanding and your wisdom will be like not being wise. By not being wise you will become wise later.
+ - Tao is beyond words and beyond things. It is not expressed either in word or in silence. Where there is no longer word or silence Tao is apprehended.
+ - The living all find death unpleasant; men mourn over it. And yet, what is death, but the unbending of the bow and its return to its case?
+ - The perfect man of old looked after himself first before looking to help others.
+ - Great understanding is broad and unhurried; little understanding is cramped and busy.
+ - Verily God does not reward man for what he does, but for what he is.
+ - Hence it demands the emptiness of all the faculties. And when the faculties are empty, then the whole being listens. There is then a direct grasp of what is right there before you that can never be heard with the ear or understood with the mind.
+ - Compare birth with death, compare death with life; compare what is possible with what is not possible and compare what is not possible with what is possible; because there is, there is not, and because there is not, there is.
+ - Study is to study what cannot be studied. Undertaking means undertaking what cannot be undertaken. Philosophizing is to philosophize about what cannot be philosophized about. Knowing that knowing is unknowable is true perfection.
+ - All men know the utility of useful things; but they do not know the utility of futility.
+ - The torch of doubt and chaos, this is what the sage steers by.
+ - He who knows he is a fool is not the biggest fool; He who knows he is confused is not in the worst confusion.
+ - Your preciousness lies in your essence; it cannot be lost by anything that happens.
+ - Let everything be allowed to do what it naturally does, so that its nature will be satisfied.
+ - Let your mind wander in simplicity, blend your spirit with the vastness, follow along with things the way they are, and make no room for personal views-then the world will be governed.
+ - All the fish needs is to get lost in the water. All man needs is to get lost in Tao.
+ - When affirmation and negation came into being, Tao faded. After Tao faded, then came one-sided attachments.
+ - Good fortune is as light as a feather, but nobody knows how to pick it up. Misfortune is as heavy as earth, but nobody knows how to stay out of it’s way.
+ - And how do I know that the hate of death is not like a man who has lost his home when young and does not know where his home is to return to?
+ - Why don’t you try wandering with me to the Palace of Not-Even-Anything.
+ - Luck implies an absolute absence of any principle.
+ - A sage steers by the bright light of confusion and doubt.
+ - Sound intelligence promises victory in every battle.
+ - He who does his work like a machine grows a heart like a machine and he who carries the heart of a machine in his breast loses his simplicity. He who has lost his simplicity becomes unsure in the strivings of his soul.
+ - The ultimate happiness is doing nothing.
+ - Running around accusing others is not as good as laughing. And enjoying a good laugh is not as good as going along with things.
+ - Look at this window: it is nothing but a hole in the wall, but because of it the whole room is full of light. So when the faculties are empty, the heart is full of light.
+ - I am going to try speaking some reckless words, and I want you to try to listen recklessly.
+ - The Way is to man as rivers and lakes are to fish, the natural condition of life.
+ - To be truly ignorant, be content with your own knowledge.
+ - The space under the sky is occupied by all things in their unity.
+ - How do I know that loving life is not a delusion? How do I know that in hating death I am not like a man who, having left home in his youth, has forgotten the way back?
+ - I know the joy of fishes in the river through my own joy, as I go walking along the same river.
+ - The saying goes, ‘The sage rests, truly rests and is at ease.’ This manifests itself in calmness and detachment, so that worries and distress cannot affect him, nothing unpleasant can disturb him, his Virtue is complete and his spirit is not stirred up.
+ - Men honor what lies within the sphere of their knowledge, but do not realize how dependent they are on what lies beyond it.
+ - The perfect man employs his mind as a mirror.
+ - Listening stops with the ears, the mind stops with recognition, but spirit is empty and waits on all things.
+ - To regard the fundamental as the essence, to regard things as coarse, to regard accumulation as deficiency, and to dwell quietly alone with the spiritual and the intelligent – herein lie the techniques of Tao of the ancients.
+ - The man who has some respect for his person keeps his carcass out of sight, hides himself as perfectly as he can.
+ - The fact is that those who do not see themselves but who see others, who fail to grasp of themselves but who grasp others, take possession of what others have but fail to possess themselves. they are attracted to what others enjoy but fail to find enjoyment in themselves.
+ - When deeds and words are in accord, the whole world is transformed.
+ - If the Way is made clear, it is not the Way.
+ - Those who seek to satisfy the mind of man by hampering it with ceremonies and music and affecting charity and devotion have lost their original nature.
+ - He who pursues fame at the risk of losing his self is not a scholar.
+ - The men of old breathed clear down to their heels.
+ - Yet the stupid believe they are awake, busily and brightly assuming they understand things, calling this man ruler, that one herdsman – how dense! Confucius and you are both dreaming! And when I say you are dreaming, I am dreaming, too. Words like these will be labeled the Supreme Swindle.
+ - The Tao has no place for pettiness, and nor has Virtue. Pettiness is dangerous to Virtue; pettiness is dangerous to the Tao. It is said, rectify yourself and be done.
+ - But you now, you wear your soul on your sleeve, exhausting your energy, propping yourself up on a tree, mumbling, or bent over your desk, asleep. Heaven gives you a form and you wear it out by pointless argument.
+ - He who knows the activities of Nature lives according to Nature.
+ - Words are for meaning: when you’ve got the meaning, you can forget the words.
+ - Standards are different for all things, so the standard set by man is by no means the only ‘certain’ standard. If you mistake what is relative for something certain, you have strayed far from the ultimate truth.
+ - One whose inner being is fixed upon such greatness emits a Heavenly glow. Even though he has this Heavenly glow, others will see him as just a man. Someone who has reached this point will begin to be consistent.
+ - The World is Large – Its beauty indescrible.
+ - Transmit the established facts; do not transmit words of exaggeration. If you do that, you will probably come out all right.
+ - In an archery contest, when the stakes are earthenware tiles a contestant shoots with skill. When the stakes are belt buckles he becomes hesitant, and if the stakes are pure gold he becomes nervous and confused. There is no difference as to his skil.
+ - The knowledge of the ancients reached the highest point-the time before anything existed. This is the highest point. It is exhaustive. There is no adding to it.
+ - Right is not right; so is not so. If right were really right it would differ so clearly from not right that there would be no need for argument. If so were really so, it would differ so clearly from not so that there would be no need for argument.
+ - To have a human form is a joyful thing.
+ - Human life is limited, but knowledge is limitless. To drive the limited in pursuit of the limitless is fatal; and to presume that one really knows is fatal indeed!
+ - When the shoe fits, the foot is forgotten. When the belt fits, the belly is forgotten. When the heart is right, “for” and “against” are forgotten. No drives, no compulsions, no needs, no attractions: Then your affairs are under control. You are a free man.
+ - A petty thief is put in jail. A great brigand becomes a ruler of a Nation.
+ - My description of wisdom has nothing to do with benevolence and righteousness, it is to do with being wise in one’s own virtue, nothing more. My description of being has nothing to do with benevolence and righteousness, it is that one should be led by one’s innate nature, nothing more.
+ - If we look on heaven and earth as a single crucible, and on the creator as the founder, would there be any place I could not go? When it is time, I will fall asleep, and when the right time comes, I will wake up again.
+ - By ethical argument and moral principle the greatest crimes are eventually shown to have been necessary, and, in fact, a signal benefit to mankind.
+ - The Portal of God is nonexistence. All things sprang from nonexistence. Existence could not make existence existence. It must have proceeded from nonexistence, and nonexistence and nothing are one. Herein is the abiding place of the sage.
+ - We cling to our own point of view, as though everything depended on it. Yet our opinions have no permanence; like autumn and winter, they gradually pass away.
+ - The one-legged creature is envious of the millipede; the millipede is envious of the snake; the snake is envious of the wind; the wind is envious of the eye; the eye is envious of the heart.
+ - If you wish to care for your body, first of all take care of material things, though even when you have all the things you want, the body can still be uncared for.
+ - Now, when ordinary people attempt to find happiness, I am not sure whether the happiness is really happiness or not. I study what ordinary people do to find happiness, what they struggle for, rushing about apparently unable to stop.
+ - Take care of your body, then the rest will automatically become stronger.
+ - All existing things are really one. We regard those that are beautiful and rare as valuable, and those that are ugly as foul and rotten. The foul and rotten may come to be transformed into what is rare and valuable, and the rare and valuable into what is foul and rotten.
+ - A man who knows he is a fool is not a great fool.
+ - Great knowledge sees all in one. Small knowledge breaks down into the many.
+ - There are no greater adversaries than yin and yang, because nothing in Heaven or on Earth escapes them. But it is not yin and yang that do this, it is your heart that makes it so.
+ - Either in conflict with others or in harmony with them, we go through life like a runaway horse, unable to stop.
+ - Man may rest in the eternal fitness; he may abide in the everlasting; and roam from the beginning to the end of all creation. He may bring his nature to a condition of ONE, he may nourish his strength; he may harmonise his virtue, and so put himself into partnership with God.
+ - Tao is the source of both fullness and emptiness. But it is itself neither fullness nor emptiness.
+ - Heaven is like an egg, and the earth is like the yolk of the egg.
+ - A battering ram can knock down a city wall, but it cannot stop a hole. Different things have different uses.
+ - The whole world is incapable of judging either right or wrong. but it is certain that actionless action can judge both right and wrong.
+ - There is danger for the eye in seeing too clearly, danger for the ear in hearing too sharply and danger to the heart from caring too greatly.
+ - Great knowledge is universal. Small knowledge is limited. Great words are inspiring; small words are chatter.
+ - There may be difficulty at the moment, but I will not lose the Virtue that I possess. It is when the ice and snow are on them that we see the strength of the cypress and the pine. I am grateful for this trouble around me, because it gives me an opportunity to realize how fortunate I am.
+ - For all people strive to grasp what they do not know, while none strive to grasp what they already know; and all strive to discredit what they do not excel in, while none strive to discredit what they do excel in. This is why there is chaos.
+ - Great wisdom is generous; petty wisdom is contentious. Great speech is impassioned, small speech cantankerous.
+ - Although things seem to be sometimes going up and sometimes descending, sometimes slipping away, nevertheless there is a reality, the same today as in the past. It does not change, for nothing can affect it. Could we not say it is one great harmony? So why shouldn’t we ask about it...
+ - So if loss of what gives happiness causes you distress when it fades, you can now understand that such happiness is worthless. It is said, those who lose themselves in their desire for things also lose their innate nature by being vulgar.
+ - The Tao is in all things, in their divisions and their fullness. What I dislike about divisions is that they multiply, and what i dislike about multiplication is that it makes people want to hold fast to it. So people go out and forget to return, seeing little more than ghosts.
+ - The enlightened attention rejects nothing nor welcomes anything-like a mirror it responds equally to all.
+ - That knowledge which stops at what it does not know, is the highest knowledge.
+ - When the heart is right, “for” and “against” are forgotten.
+ - You are still guided by your expectations.
+ - The true man breathes with his heels.
+ - To be constant is to be useful. To be useful is to realize one’s true nature. Realization of one’s true nature is happiness. When one reaches happiness, one is close to perfection.
+ - Men of this world all rejoice in others being like themselves, and object to others not being like themselves.
+ - Heaven cannot but be high. Earth cannot but be broad. The sun and moon cannot but revolve. All creation cannot but flourish. To do so is their TAO. But it is not from extensive study that this may be known, nor by dialectical skill that his may be made clear. The true sage will have none of these.
+ - Calculate what man knows and it cannot compare to what he doesn’t know. Calculate the time he is alive and it cannot compare to the time before he was born. Yet man takes something so small and tries to exhaust the dimensions of something so large!
+ - Good order results spontaneously when things are let alone.
+ - To examine oneself makes good use of sight.
+ - When you are identified with the One, all things will be complete to you.
+ - Are you and I perchance caught up in a dream from which we have not yet awakened?
+ - If one is true to one’s inner self, and follows its wisdom, who is without a teacher?
+ - Once Zhuangzi dreamt he was a butterfly...
+ - Can a man cling to the positive without any negative in contrast to which it is seen to be positive? If he claims to do so he is a rouge or a madman.
+ - We possess our body by chance and we are already pleased with it. If our physical bodies went through ten thousand transformations without end, how incomparable would this joy be! Therefore the sage roams freely in the realm in which nothing can escape, but all endures.
+ - It is only when the formed learns from the unformed that there is understanding.
+ - The greatest tragedy that can befall a person is the atrophy of his mind.
+ - The hundred parts of the body are all complete in their places. Which should one prefer? Do you like them all equally? Are they all servants? Are they unable to control one another and need a ruler? Or do they become rulers and servants in turn? Is there any true ruler other than themselves?
+ - People value that part of knowledge which is known. They do not know how to avail themselves of the Unknown in order to reach knowledge. Is this not misguided?
+ - The creature born is the creature dying.
+ - Thus, those who say they would have right without its correlate, wrong; or good government without its correlate, misrule, do not apprehend the great principles of the universe, nor the nature of all creation.
+ - If you have grasped the purpose of life there is no point in trying to make life into something it is not or cannot be.
+ - My most interesting memory is of my first real dream. I was a caterpillar, wriggling around in the earth, just the way a caterpillar would. Following my caterpillar whims, completely unaware of anyone.
+ - Cherish that which is in you and shut out that which is without, for much knowledge is a curse.
+ - The true man of the past waited upon Heaven when dealing with people and did not wait upon people when dealing with Heaven.
+ - Only fools imagine they are already awake. How clearly they understand everything! How easily they distinguish this deception from that reality!
+ - Heaven does without doing through its purity, Earth does without doing through its calmness.
+ - When I talk about having good hearing, I don’t mean just listening, but listening to yourself. When I talk about good eyesight, I don’t mean just looking, but looking at yourself.
+ - To go outside what your charge was, and to try to solve everything yourself, is dangerous.
+
+171 quotes

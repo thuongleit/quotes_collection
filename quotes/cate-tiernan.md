@@ -1,0 +1,33 @@
+ - There are no coincidences. And everything means something.
+ - Men are natural warriors, but a woman in battle is truly bloodthirsty.
+ - It happened again this afternoon. Just the way it did that other night. We were talking – talking about how to protect her, actually – and then, suddenly, I looked at her and it was as if I’d found an entire universe in her eyes.
+ - Could he actually be my muirn beatha dan?
+ - There is darkness in light, there is pain in joy, and there are thorns on the rose.
+ - Over my dead body, I thought. Yes, even immortals use that phrase. It has extra oomph for us.
+ - Oh my God, can you see me? I thought I was wearing my invisibility cloak.
+ - I feel like a fox in a henhouse full of Catholic girls.
+ - Everything is fine and bright. Day must follow every night. My power keeps me safe from harm. The Goddess holds me in her arms.
+ - Fire is a fragile lover, court her well, neglect her not; her faith is like a misty smoke, her anger is destructive hot.
+ - Please, ground, just open up and let me fall into an endless crevasse till I hit the center of the earth and combust. Please. Is that too much to ask?
+ - At that moment I remembered something Cal had told me: that there is beauty in darkness in everything. Sorrow in joy, life and death, thorns on the rose. I knew then that I could not escape pain and torment any more than I could give up joy and beauty.
+ - Years from now I’ll look back and remember today as the day I met him. I’ll look back and remember the exact moment my life began to include him. I will remember it forever.
+ - I was of the “When life gives you lemons, make lemonade, then wonder why life didn’t give you freaking sugar so you could drink the stuff” school of thought.
+ - Anytime you feel love for anything, be it stone, tree, lover, or child, you are touched by the Goddess’s magick...
+ - The Goddess teaches us that every ending is also a beginning. May there be rebirth from this death.
+ - I felt an overwhelming gratitude in my life right now and wanted a chance to acknowledge it. I felt that any thanks given to any god all went to the same place, anyway, no matter what religion you were centered in.
+ - I should have known the power-hungry slave drivers at River’s Edge would see my five days of freedom only as a challenge to be filled.
+ - Better stupid and safe that smart and dead.
+ - In fairy tales there’s always one person who is made for one other, and they find each other and live happily ever after. Cal was my person. I couldn’t imagine anyone more perfect. Yet what kind of sick fairy tale would it be if he was the one made exactly right for me and I wasn’t right for him?
+ - What would it be like to care so little about what other people thought of you?
+ - No matter how dark you are, no matter what you think your heritage is or how inevitable your fall is, you can always make a choice in the next second to be different...
+ - Women are impossible, witches are worse, and women who are powerful witches are going to be the death of me.
+ - I don’t love you. But I see the value of you, the incredible worth of you, more than anyone I’ve ever known.
+ - Heritage does not equal destiny.
+ - You’re not honey. Your’e wine. You’re the deepest, darkest shadow under a tree on a blazing day. You’re strong and hard, coursing like a current at the bottom of a river.
+ - I’d once read somewhere that is takes about half as long to recover from a deep relationship as the relationship lasted.
+ - But I also meant that loving someone really opening your heart to them is just asking to have your heart smashed and handed back to you in little pieces.
+ - My face is not that expressive!
+ - I held a nail in place and slammed it with the hammer. Best. Chore. Ever.
+ - Being good is something that one must choose over and over again, every day, throughout the day, for the rest of one’s life.
+
+31 quotes

@@ -1,0 +1,34 @@
+ - Everything has an end.
+ - You can be in an acting class all you want, but you don’t fully learn until you get off that stage and in front of a camera.
+ - I’m trying to do the kind of projects that I want to see in the theatre.
+ - Ive spent so much time the last seven, eight years in Los Angeles, away from my family, away from my friends, away from the city that is my favourite place to be and I just want to come here and have a proper life.
+ - I felt that K wasn’t getting a fair shake anyway.
+ - There’s one site where you can buy pictures of me for five bucks a pop.
+ - It changed my life in a lot of ways – before I got that role I was just going form job to job, not really having enough money to be able to do what I wanted to do.
+ - When I’m on my deathbed, I’ll hopefully be able to count more friends than parts that I had.
+ - So, I completely and utterly support David and Gillian’s decision to go to Los Angeles, but I think that Vancouver is the perfect location for the show.
+ - At Christmas, ‘It’s a Wonderful Life’ makes me cry in exactly the same places every time, even though I know it’s coming.
+ - We went to the British Museum, and I was looking up my family in the books – pages and pages on it.
+ - It’s certainly more interesting for me as an actor, but I think it’s also more interesting for the audience to see three-dimensional characters, rather than just a bad guy or a good guy.
+ - I think everyone has some fascination with what’s outside our existence. It’s a constant journey to find the truth.
+ - My sister is a nurse and saves people’s lives.
+ - My heritage is English, so I’m proud to be back here.
+ - I think somebody who speaks the language is going to notice immediately that I’m not Russian.
+ - It makes you realize that people are the same wherever you go.
+ - It’s not that fun to just play a villain, without any reasoning behind it.
+ - It seems there’s a sliding scale between the money they spend on a movie and its creativity.
+ - Two shows at once is crazy, but I love it.
+ - And I’ve been lucky in that I haven’t had another job besides acting in the last five years.
+ - Certainly, when I walk into an audition, a lot of people already know who I am.
+ - We both have a great loyalty to it, and I think that it’s important to give it our best shot.
+ - Comedy and drama are both challenging to me.
+ - Supporting characters add depth to a story, and great actors leave their imprint with the audience.
+ - I just wanted to act. I didn’t want to do anything else.
+ - My goal is to be living back in Canada as soon as I can, hopefully somewhere in the Gulf Islands.
+ - I wanted more in depth ideas about the character and it never came.
+ - I don’t care what TV show you work on, even a movie for that matter, it’s all about time and money eventually.
+ - When you’re doing a series like this, you’re constantly looking for new ways to excite your audience.
+ - That’s sort of what I like about this character is that he’s not the good guy, he’s not truly the bad guy.
+ - I would like to look back on my career and be proud of what I’ve done.
+
+32 quotes

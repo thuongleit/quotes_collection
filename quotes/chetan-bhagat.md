@@ -1,0 +1,42 @@
+ - Be so busy Improving your self that you have no time to criticize others.
+ - Work hard, but make time for your love, family and friends. Nobody remembers PowerPoint presentations on your final day.
+ - Don’t be serious, be sincere.
+ - When you fly high people will throw stones at you. Don’t look down. Just fly higher so the stones won’t reach you.
+ - A wise man can be a fool in love.
+ - When a woman comes into your life, things organize themselves.
+ - It is time to face real world, even if it is harder and painful. I’d rather fly and crash, than just snuggle and sleep.
+ - Sometimes life is not about what u want to do but what u ought to do.
+ - The pretty girl is always right.
+ - Marble flooring is to a Punjabi what a foreign degree is to a Tamilian.
+ - In relationship there are always two types of person: one weaker and the other stronger one. It’s never easier to live being as weaker one!
+ - Sometimes in your life you just meet someone or hear something that nudges you on the right path. And that becomes the best advice. It could just be a bit of commonsense said in a way that resonates with something in you. It’s nothing new, but because it connects with you it holds meaning for you.
+ - The younger generation is surrounded by the Internet, apps, and video games. But somehow, my books make them read.
+ - From biscuit to brides, if there is anything their children really want, parents have a problem.
+ - The real middle class India that has always been looking for a voice that is its very own. I write about it because I belong to it.
+ - We know we are all tarnished, so we doubt everyone else too. It is sad situation, where we need a leader but cannot really trust anyone.
+ - The word “future” and females is a dangerous combination.
+ - Why should any guy want to be only friends with a girl? It’s like agreeing to be near a chocolate cake and never eat it. It’s like sitting in a racing car but not driving it.
+ - How can such scary looking parents create something so cute?
+ - Even now I try to make each page compelling for the readers to get absorbed in the book.
+ - I think original voices get noticed. But most importantly, I think you should have a story to tell.
+ - I m human, I m not perfect. Although, I make mistakes all the time.
+ - The world’s most sensible person and the biggest idiot both stay within us. The worst part is, you can’t even tell who is who.
+ - The world’s most funniest and easiest thing is to give an advice...
+ - Jealousy is a rather enjoyable emotion to watch.
+ - Pretty girls behave best when you ignore them. Of course, they have to know you are ignoring them, for otherwise they may not even know you exist.
+ - Nothing soothes an upset Punjabi like dairy products.
+ - She had perfect features, with her eye, nose, lips, and ears the right size and in right places. That is all it takes to make people beautiful, normal body parts – yet why does nature mess it up so many times?
+ - Certificates from top US universities adorned the walls like tiger head in a hunter’s home.
+ - Let’s be honest: the trappings of investment banking are quite tempting. I do miss it sometimes. And to be honest, there was a time I’d read the ‘WSJ’ in the morning, and for years I have done that.
+ - In our education system, we are taught to munch figures and remember them for lifetime. But does it help? We are not taught how to make decisions.
+ - Corporate types love to pretend their life is exciting. The whispers, fist-pumping and animated hand gestures are all designed to lift our job description from what it really is – that of an overpaid clerk.
+ - Rules, after all, are only made so you can work around them.
+ - Forgiving doesn’t make the person who hurt you feel better, it makes you feel better.
+ - Because knowledge is not for showing off. If I do good work, people should notice me.
+ - I myself don’t know what makes my books work. I enter a bookstore and I’m frankly overwhelmed by the number of books in most of them, and I know people are buying mine.
+ - The missed call and call back drama between men and women deserves its own user mannual.
+ - While I am a capitalist at heart and I have no problems with commercialization as such, I believe that while it’s okay if education becomes a profitable business, it’s not okay if it becomes corrupt.
+ - All of us needed time to rest. And we had time – four months of it – to take all the rest in the world.
+ - Panic does not help, even if you are unable to answer. Try to ask questions to the interviewers as well and it should be impressive enough.
+
+40 quotes

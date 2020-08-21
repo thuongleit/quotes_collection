@@ -1,0 +1,21 @@
+ - What distinguishes the artist from the dilettante? Only the pain the artist feels. The dilettante looks only for pleasure in art.
+ - Like music my drawings transport us to the ambiguous world of the indeterminate.
+ - I await joyous surprises while working, an awakening of the materials that I work with and that my spirit develops.
+ - True art lies in a reality that is felt.
+ - One must respect black. Nothing prostitutes it.
+ - The value of art lies in its power to increase our moral force or establish its heightening influence.
+ - Nothing in Art is achieved by will alone. It is achieved by docilely submitting to the subconscious.
+ - I have a feeling only for shadows.
+ - The painter is not an intellectual if, when he has painted a nude woman, he gives us the idea that she is just about to put her clothes back on.
+ - My drawings inspire, and are not to be defined. They place us, as does music, in the ambiguous realm of the undetermined.
+ - The fundamental grey which differentiates the masters, expresses them and is the soul of all colour.
+ - My originality consists in putting the logic of the visible to the service of the invisible.
+ - The artist yields often to the stimuli of materials that will transmit his spirit.
+ - The good work proceeds with tenacity, intention, without interruption, with an equal measure of passion and reason and it must surpass that goal the artist has set for himself.
+ - It is precisely from the regret left by the imperfect work that the next one can be born.
+ - It is difficult to judge one’s contemporaries; perhaps it is impossible to understand them.
+ - I have placed there a little door opening on to the mysterious. I have made stories.
+ - Artists who approach perfection do not have many ideas.
+ - I am certain about what I will never do – but not about what my art will render.
+
+19 quotes

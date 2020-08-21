@@ -1,0 +1,375 @@
+ - Vision is the art of seeing what is invisible to others.
+ - May you live every day of your life.
+ - A wise man should have money in his head, but not in his heart.
+ - There’s none so blind as they that won’t see.
+ - Every day is an opportunity to make a new happy ending. May you live all the days of your life.
+ - Falsehood flies, and truth comes limping after it, so that when men come to be undeceived, it is too late; the jest is over, and the tale hath had its effect.
+ - The worthiest people are the most injured by slander, as is the best fruit which the birds have been pecking at.
+ - It is useless to attempt to reason a man out of a thing he was never reasoned into.
+ - There is nothing in this world constant, but inconstancy.
+ - Promises and pie-crust are made to be broken.
+ - The best doctors in the world are Doctor Diet, Doctor Quiet, and Doctor Merryman.
+ - No wise man ever wished to be younger.
+ - Laws are like cobwebs, which may catch small flies, but let wasps and hornets break through.
+ - Reasoning will never make a man correct an ill opinion, which by reasoning he never acquired.
+ - Satire is a sort of glass, wherein beholders do generally discover everybody’s face but their own.
+ - I hate nobody: I am in charity with the world.
+ - Power is no blessing in itself, except when it is used to protect the innocent.
+ - Observation is an old man’s memory.
+ - When I am reading a book, whether wise or silly, it seems to me to be alive and talking to me.
+ - A nice man is a man of nasty ideas.
+ - Bread is the staff of life.
+ - Coffee makes us severe, and grave and philosophical.
+ - So, naturalists observe, a flea; Hath smaller fleas that on him prey; And these have smaller fleas to bite ’em, And so proceed ad infinitum.
+ - I never knew a man come to greatness or eminence who lay abed late in the morning.
+ - No man was ever so completely skilled in the conduct of life, as not to receive new information from age and experience.
+ - Very few men, properly speaking, live at present, but are providing to live another time.
+ - Simplicity, without which no human performance can arrive at perfection.
+ - You can’t make a silk purse out of a sow’s ear.
+ - The proper words in the proper places are the true definition of style.
+ - Falsehood flies, and the truth comes limping after it.
+ - Every dog must have his day.
+ - In men desire begets love, and in women love begets desire.
+ - Every man desires to live long, but no man wishes to be old.
+ - When a true genius appears, you can know him by this sign: that all the dunces are in a confederacy against him.
+ - Good manners is the art of making those people easy with whom we converse. Whoever makes the fewest people uneasy is the best bred in the room.
+ - The sight of you is good for sore eyes.
+ - Conversation is but carving! Give no more to every guest Than he’s able to digest.
+ - The best Maxim I know in this life is, to drink your Coffee when you can, and when you cannot, to be easy without it.
+ - Undoubtedly, philosophers are in the right when they tell us that nothing is great or little otherwise than by comparison.
+ - Happiness is the perpetual possession of being well deceived.
+ - How is it possible to expect that mankind will take advice when they will not so much as take warning.
+ - Few are qualified to shine in company, but it is in most men’s power to be agreeable.
+ - Hail fellow, well met.
+ - The latter part of a wise person’s life is occupied with curing the follies, prejudices and false opinions they contracted earlier.
+ - A chuck under the chin is worth two kisses.
+ - When a man of genius appears in the world, it is immediately recognized by the fact that all the blockheads join forces against him.
+ - Words are but wind; and learning is nothing but words; ergo, learning is nothing but wind.
+ - I’m as old as my tongue and a little older than my teeth.
+ - So geographers, in Africa maps, With savage pictures fill their gaps, And o’er uninhabitable downs Place elephants for want of towns.
+ - It is computed that eleven thousand persons have at several times suffered death rather than submit to break their eggs at the smaller end.
+ - The tiny Lilliputians surmise that Gulliver’s watch may be his god, because it is that which, he admits, he seldom does anything without consulting.
+ - Some dire misfortune to portend, no enemy can match a friend.
+ - You should never be ashamed to admit you have been wrong. It only proves you are wiser today than yesterday.
+ - Cruel people are ever cowards in emergency.
+ - Party is the madness of many for the gain of a few.
+ - Brisk talkers are usually slow thinkers. There is, indeed, no wild beast more to be dreaded than a communicative man having nothing to communicate. If you are civil to the voluble they will abuse your patience; if brusque, your character.
+ - The two noblest of things, which are sweetness and light.
+ - If a man would register all his opinions upon love, politics, religion, learning etc., beginning from his youth, and so go to old age, what a bundle of inconsistencies and contradictions would appear at last.
+ - You cannot reason a person out of a position he did not reason himself into in the first place.
+ - Not die here in a rage, like a poisoned rat in a hole.
+ - It is remarkable with what Christian fortitude and resignation we can bear the suffering of other folks.
+ - I would rather be a freeman among slaves than a slave among freemen.
+ - For in reason, all government without the consent of the governed is the very definition of slavery.
+ - If you were not reasoned into your beliefs, you cannot be reasoned out of them.
+ - That incessant envy wherewith the common rate of mankind pursues all superior natures to their own.
+ - Come, agree, the law’s costly.
+ - Ah, a German and a genius ! A prodigy, admit him !
+ - Books, the children of the brain.
+ - Usually speaking, the worst-bred person in company is a young traveller just returned from abroad.
+ - For poetry, he’s past his prime, He takes an hour to find a rhyme; His fire is out, his wit decayed, His fancy sunk, his muse a jade. I’d have him throw away his pen, But there’s no talking to some men.
+ - There is no vice which humankind carries to such wild extremes as that of avarice.
+ - When dunces are satiric, I take it for a panegyric.
+ - Bachelor’s fare: bread and cheese, and kisses.
+ - That was excellently observed’, say I, when I read a passage in an author, where his opinion agrees with mine. When we differ, there I pronounce him to be mistaken.
+ - A true critic, in the perusal of a book, is like a dog at a feast, whose thoughts and stomach are wholly set upon what the guests fling away, and consequently is apt to snarl most when there are the fewest bones.
+ - A little grain of the romance is no ill ingredient to preserve and exalt the dignity of human nature, without which it is apt to degenerate into everything that is sordid, vicious and low.
+ - Last week I saw a woman flayed, and you will hardly believe, how much it altered her person for the worse.
+ - For to enter the palace of learning at the great gate requires an expense of time and forms, therefore men of much haste and little ceremony are content to get in by the back-door.
+ - Time is painted with a lock before, and bald behind, signifying thereby that we must take time by the forelock; for, when it is once past, there is no recalling it.
+ - It is the folly of too many to mistake the echo of a London coffee-house for the voice of the kingdom.
+ - Triumphant Tories, and desponding Whigs, Forget their feuds, and join to save their wigs.
+ - We have enough religion to make us hate, but not enough to make us love one another.
+ - No man will take counsel, but every man will take money. Therefore, money is better than counsel.
+ - For, what though his Head be empty, provided his Common place-Book be full...
+ - War: that mad game the world so loves to play.
+ - It often happens that, if a lie be believed only for an hour, it has done its work, and there is no further occasion for it.
+ - Sweeping from butcher’s stalls, dung, guts, and blood, Drown’d puppies, stinking sprats, all drench’d in mud, Dead cats, and turnip-tops, come tumbling down the flood.
+ - Principally I hate and detest that animal called man; although I heartily love John, Peter, Thomas, and so forth.
+ - I’ve often wish’d that I had clear, For life, six hundred pounds a year; A handsome house to lodge a friend; A river at my garden’s end; A terrace walk, and half a rood Of land set out to plant a wood.
+ - Venus, a beautiful, good-natured lady, was the goddess of love; Juno, a terrible shrew, the goddess of marriage: and they were always mortal enemies.
+ - I’m up and down and round about, Yet all the world can’t find me out; Though hundreds have employed their leisure, They never yet could find my measure.
+ - Where I am not understood, it shall be concluded that something very useful and profound is couched underneath.
+ - If they would, for Example, praise the Beauty of a Woman, or any other Animal, they describe it by Rhombs, Circles, Parallelograms, Ellipses, and other geometrical terms...
+ - With a whirl of thought oppressed I sink from reverie to rest. An horrid vision seized my head, I saw the graves give up their dead.
+ - It is a miserable thing to live in suspense; it is the life of the spider.
+ - The greatest Inventions were produced in Times of Ignorance; as the Use of the Compass, Gunpowder, and Printing; and by the dullest Nation, as the Germans.
+ - Daphne knows, with equal ease, How to vex and how to please; But the folly of her sex Makes her sole delight to vex.
+ - My father had a small Estate in Nottinghamshire; I was the Third of five Sons.
+ - A tavern is a place where madness is sold by the bottle.
+ - I’ll give you leave to call me anything, if you don’t call me spade.
+ - It is a maxim, that those, to whom everybody allows the second place, have an undoubted title to the first.
+ - Better belly burst than good liquor be lost.
+ - I never wonder to see men wicked, but I often wonder to see them not ashamed.
+ - Fine words! I wonder where you stole them.
+ - Seamen have a custom, when they meet a whale, to fling him out an empty tub by way of amusement, to divert him from laying violent hands upon the ship.
+ - Surely mortal man is a broomstick!
+ - We of this age have discovered a shorter, and more prudent method to become scholars and wits, without the fatigue of reading or of thinking.
+ - Poor nations are hungry, and rich nations are proud; and pride and hunger will ever be at variance.
+ - He was a fiddler, and consequently a rogue.
+ - Walls have tongues, and hedges ears.
+ - What some people invent the rest enlarge.
+ - I with borrow’d silver shine, What you see is none of mine. First I show you but a quarter, Like the bow that guards the Tartar: Then the half, and then the whole, Ever dancing round the pole.
+ - Modesty may make a fool seem a man of sense.
+ - Under this window in stormy weather I marry this man and woman together; Let none but Him who rules the thunder Put this man and woman asunder.
+ - The bulk of mankind is as well equipped for flying as thinking.
+ - She wears her clothes as if they were thrown on with a pitchfork.
+ - Then, rising with Aurora’s light, The Muse invoked, sit down to write; Blot out, correct, insert, refine, Enlarge, diminish, interline.
+ - I love good creditable acquaintance; I love to be the worst of the company.
+ - Unjustly poets we asperse: Truth shines the brighter clad in verse, And all the fictions they pursue Do but insinuate what is true.
+ - The tucked-up sempstress walks with hasty strides, While streams run down her oil’d umbrella’s sides.
+ - In all distresses of our friends We first consult our private ends; While Nature, kindly bent to ease us, Points out some circumstance to please us.
+ - There are few wild beasts more to be dreaded than a talking man having nothing to say.
+ - Vanity is a natural object of temptation to a woman.
+ - As love without esteem is capricious and volatile; esteem without love is languid and cold.
+ - It is impossible that anything so natural, so necessary, and so universal as death, should ever have been designed by providence as an evil to mankind.
+ - Some men, under the notion of weeding out prejudice, eradicate virtue, honesty and religion.
+ - Invention is the talent of youth, as judgment is of age.
+ - A carpenter is known by his chips.
+ - Argument is the worst sort of conversation.
+ - When men grow virtuous in their old age, they only make a sacrifice to God of the devil’s leavings.
+ - I love white Portugal wine better than claret, champagne, or burgundy. I have a sad vulgar appetite.
+ - Flattery is the worst and falsest way of showing our esteem.
+ - A fig for your bill of fare; show me your bill of company.
+ - When I am in danger of bursting, I will go and whisper among the reeds.
+ - Hail, follow, well met, All dirty and wet: Find out, if you can, Who’s master, who’s man.
+ - Vanity is a mark of humility rather than of pride.
+ - Religion supposed Heaven and Hell, the word of God, and sacraments, and twenty other circumstances which, taken seriously, are a wonderful check to wit and humour.
+ - Ale is meat, drink and cloth; it will make a cat speak and a wise man dumb.
+ - Blot out, correct, insert, refine, enlarge, diminish, interline. Be mindful, when invention fails. To scratch your head and bite your nails.
+ - My horses understand me tolerably well; I converse with them at least four hours every day. They are strangers to bridle or saddle; they live in great amity with me, and friendship of each other.
+ - Pray steal me not, I’m Mrs. Dingley’s, Whose heart in this four-footed thing lies.
+ - Life is a tragedy wherein we sit as spectators for a while and then act our part in it.
+ - My nose itched, and I knew I should drink wine or kiss a fool.
+ - She ’s no chicken; she ’s on the wrong side of thirty, if she be a day.
+ - Praise is the daughter of present power.
+ - Big-endians and small-endians.
+ - He was a bold man that first ate an oyster.
+ - Argument, as usually managed, is the worst sort of conversation, as in books it is generally the worst sort of reading.
+ - Reason is a very light rider, and easily shook off.
+ - They say fingers were made before forks, and hands before knives.
+ - This is every cook’s opinion – no savory dish without an onion, but lest your kissing should be spoiled your onions must be fully boiled.
+ - Apollo was held the god of physic and sender of disease. Both were originally the same trade, and still continue.
+ - The various opinions of philosophers have scattered through the world as many plagues of the mind as Pandora’s box did those of the body; only with this difference, that they have not left hope at the bottom.
+ - Nothing more unqualified the man to act with prudence than a misfortune that is attended with shame and guilt.
+ - One enemy can do more hurt than ten friends can do good.
+ - For want of a block, man will stumble at a straw.
+ - Arbitrary power is the natural object of temptation to a prince, as wine and women to a young fellow, or a bribe to a judge, or avarice to old age...
+ - Men are happy to be laughed at for their humor, but not for their folly.
+ - The first springs of great events, like those of great rivers, are often mean and little.
+ - Perverseness is your whole defence.
+ - Most sorts of diversion in men, children and other animals, are in imitation of fighting.
+ - All human race would be wits. And millions miss, for one that hits.
+ - It is likewise to be observed that this society hath a peculiar chant and jargon of their own, that no other mortal can understand, and wherein all their laws are written, which they take special care to multiply.
+ - Neither are any wars so furious and bloody, or of so long continuance as those occasioned by difference in opinion, especially if it be in things indifferent.
+ - Polite Conversation Why, everyone one as they like; as the good woman said when she kissed her cow.
+ - Kitchen Physic is the best Physic.
+ - Many a truth is told in jest.
+ - Though Diogenes lived in a tub, there might be, for aught I know, as much pride under his rags, as in the fine-spun garments of the divine Plato.
+ - Nothing is so hard for those who abound in riches as to conceive how others can be in want.
+ - I have ever hated all nations, professions, and communities, and all my love is toward individuals.
+ - I must complain the cards are ill shuffled till I have a good hand.
+ - Lose no time to contradict her, Nor endeavor to convict her; Only take this rule along, Always to advise her wrong, And reprove her when she’s right; She may then grow wise for spite.
+ - Wise people are never less alone than when they are alone.
+ - I have always a sacred veneration for anyone I observe to be a little out of repair in his person, as supposing him either a poet or a philosopher.
+ - Such a man, truly wise, creams off Nature leaving the sour and the dregs for philosophy and reason to lap up.
+ - Strange an astrologer should die, without one wonder in the sky.
+ - Fools are apt to imitate only the defects of their betters.
+ - Although the devil be the father of lies, he seems, like other great inventors, to have lost much of his reputation by the continual improvements that have been made upon him.
+ - Men of wit, learning and virtue might strike out every offensive or unbecoming passage from plays.
+ - It is in disputes as in armies, where the weaker side sets up false lights, and makes a great noise, to make the enemy believe them more numerous and strong than they really are.
+ - I have heard of a man who had a mind to sell his house, and therefore carried a piece of brick in his pocket, which he shewed as a pattern to encourage purchasers.
+ - Where Young must torture his invention To flatter knaves, or lose his pension.
+ - Abstracts, abridgments, summaries, etc., have the same use with burning-glasses, – to collect the diffused light rays of wit and learning in authors, and make them point with warmth and quickness upon the reader’s imagination.
+ - Religion seems to have grown an infant with age, and requires miracles to nurse it, as it had in its infancy.
+ - I have known some men possessed of good qualities which were very serviceable to others, but useless to themselves; like a sun-dial on the front of a house, to inform the neighbours and passengers, but not the owner within.
+ - Neither is it safe to count upon the weakness of any man’s understanding, who is thoroughly possessed of the spirit of revenge to sharpen his invention.
+ - God hath intended our passions to prevail over reason.
+ - Oh how our neighbour lifts his nose, To tell what every schoolboy knows.
+ - In all I wish, how happy should I be, Thou grand Deluder, were it not for thee? So weak thou art that fools thy power despise; And yet so strong, thou triumph’st o’er the wise.
+ - Small causes are sufficient to make a man uneasy, when great ones are not in the way: for want of a block he will stumble at a straw.
+ - So endless and exorbitant are the desires of men that they will grasp at all, and can form no scheme of perfect happiness with less.
+ - I shall be like that tree-I shall die at the top.
+ - From not the gravest of Divines, Accept for once some serious Lines.
+ - Satire, being levelled at all, is never resented for an offence by any.
+ - In like manner, the disbelief of a Divine Providence renders a man uncapable of holding any public station; for, since kings avow themselves to be the deputies of Providence.
+ - The stoical scheme of supplying our wants by lopping off our desires, is like cutting off our feet when we want shoes.
+ - Love why do we one passion call, When ’tis a compound of them all? Where hot and cold, where sharp and sweet, In all their equipages meet; Where pleasures mix’d with pains appear, Sorrow with joy, and hope with fear.
+ - Hobbes clearly proves, that every creature Lives in a state of war by nature.
+ - Politics, as the word is commonly understood, are nothing but corruptions.
+ - Although men are accused of not knowing their own weakness, yet perhaps few know their own strength. It is in men as in soils, where sometimes there is a vein of gold which the owner knows not of.
+ - An excuse is a lie guarded.
+ - If a man makes me keep my distance, the comfort is, he keeps his at the same time.
+ - A footman may swear; but he cannot swear like a lord. He can swear as often: but can he swear with equal delicacy, propriety, and judgment?
+ - I always love to begin a journey on Sundays, because I shall have the prayers of the church to preserve all that travel by land, or water.
+ - It is the talent of human nature to run from one extreme to another.
+ - No preacher is listened to but time, which gives us the same train and turn of thought that elder people have in vain tried to put into our heads before.
+ - Positiveness is a good quality for preachers and speakers because, whoever shares his thoughts with the public will convince them as he himself appears convinced.
+ - An English tongue, if refined to a certain standard, might perhaps be fixed forever.
+ - It is an uncontrolled truth, that no man ever made an ill figure who understood his own talents, nor a good one who mistook them.
+ - Men who possess all the advantages of life are in a state where there are many accidents to disorder and discompose, but few to please them.
+ - It is the first rule in oratory that a man must appear such as he would persuade others to be: and that can be accomplished only by the force of his life.
+ - Fond of those hives where folly reigns, And cards and scandal are the chains, Where the pert virgin slights a name, And scorns to redden into shame.
+ - What poet would not grieve to see His brother write as well as he? But rather than they should excel, He’d wish his rivals all in Hell.
+ - Story-telling is subject to two unavoidable defects, – frequent repetition and being soon exhausted; so that, whoever values this gift in himself, has need of a good memory, and ought frequently to shift his company.
+ - I wonder what fool it was that first invented kissing.
+ - Nature has left every man a capacity of being agreeable, though not of shining in company; and there are a hundred men sufficiently qualified for both who, by a very few faults, that they might correct in half an hour, are not so much as tolerable.
+ - I cannot but conclude that the Bulk of your Natives, to be the most pernicious Race of little odious Vermin that Nature ever suffered to crawl upon the Surface of the Earth.
+ - Philosophy! the lumber of the schools.
+ - Liberty of conscience is nowadays only understood to be the liberty of believing what men please, but also of endeavoring to propagate that belief as much as they can.
+ - The reason why so few marriages are happy is because young ladies spend their time in making nets, not in making cages.
+ - The ruin of a State is generally preceded by an universal degeneracy of manners and contempt of religion.
+ - Human brutes, like other beasts, find snares and poison in the provision of life, and are allured by their appetites to their destruction.
+ - The two maxims of any great man at court are, always to keep his countenance, and never to keep his word.
+ - All panegyrics are mingled with an infusion of poppy.
+ - Love of flattery, in most men, proceeds from the mean opinion they have of themselves; in women, from the contrary.
+ - We are so fond on one another because our ailments are the same.
+ - Whence proceeds this weight we lay On what detracting people say? Their utmost malice cannot make Your head, or tooth, or finger ache; Nor spoil your shapes, distort your face, Or put one feature out of place.
+ - An atheist has got one point beyond the devil.
+ - Nor do they trust their tongue alone, but speak a language of their own; can read a nod, a shrug, a look, far better than a printed book; convey a libel in a frown, and wink a reputation down.
+ - A secret is seldom safe in more than one breast.
+ - A poor spirit is poorer than a poor purse. A very few pounds a year would ease a man of the scandal of avarice.
+ - That the universe was formed by a fortuitous concourse of atoms, I will no more believe than that the accidental jumbling of the alphabet would fall into a most ingenious treatise of philosophy.
+ - He had been eight years upon a project for extracting sunbeams out of cucumbers, which were to be put into vials hermetically sealed, and let out to warm the air in raw, inclement summers.
+ - A prince, the moment he is crown’d, Inherits every virtue sound, As emblems of the sovereign power, Like other baubles in the Tower: Is generous, valiant, just, and wise, And so continues till he dies.
+ - The more careless, the more modish.
+ - She has more goodness in her little finger than he has in his whole body.
+ - I have now lost my barrier between me and death; God grant I may live to be as well prepared for it, as I confidently believe her to have been! If the way to Heaven be through piety, truth, justice and charity, she is there.
+ - Nothing is so great an example of bad manners as flattery. If you flatter all the company, you please none; If you flatter only one or two, you offend the rest.
+ - The common fluency of speech in many men, and most women, is owing to a scarcity of matter and a scarcity of words; for whosoever is a master of language, and hath a mind full of ideas, will be apt, in speaking, to hesitate upon the choice of both.
+ - It is very unfair in any writer to employ ignorance and malice together, because it gives his answerer double work.
+ - There never appear more than five or six men of genius in an age, but if they were united the world could not stand before them.
+ - It is a maxim among these lawyers, that whatever hath been done before, may legally be done again: and therefore they take special care to record all the decisions formerly made against common justice and the general reason of mankind.
+ - The lack of belief is a defect that ought to be concealed when it cannot be overcome.
+ - Lord, Madame, I have fed like a farmer; I shall grow as fat as a porpoise.
+ - There is no vice or folly that requires so much nicety and skill to manage as vanity; nor any which by ill management makes so contemptible a figure.
+ - Brisk talkers are generally slow thinkers.
+ - A lie does not consist in the indirect position of words, but in the desire and intention, by false speaking, to deceive and injure your neighbour.
+ - Punning is a talent which no man affects to despise but he that is without it.
+ - Patience alleviates, as impatience augments, pain; thus persons of strong will suffer less than those who give way to irritation.
+ - When we desire or solicit anything, our minds run wholly on the good side or circumstances of it; when it is obtained, our minds run wholly on the bad ones.
+ - In oratory the greatest art is to hide art.
+ - Rebukes are easy from our betters, From men of quality and letters; But when low dunces will affront, What man alive can stand the brunt?
+ - He that calls a man ungrateful sums up all the veil that a man can be guilty of.
+ - Complaint is the largest tribute heaven receives and the sincerest part of our devotion.
+ - In church your grandsire cut his throat; to do the job too long he tarried: he should have had my hearty vote to cut his throat before he married.
+ - Exploding many things under the name of trifles is a very false proof either of wisdom or magnanimity, and a great check to virtuous actions with regard to fame.
+ - My hunger serves me instead of a clock.
+ - Censure is the tax a man pays to the public for being eminent.
+ - Tell truth, and shame the devil.
+ - The system of morality to be gathered from the ancient sages falls very short of that delivered in the gospel.
+ - I used to wonder how a man of birth and spirit could endure to be wholly insignificant and obscure in a foreign country, when he might live with lustre in his own.
+ - It is as hard to satirize well a man of distinguished vices, as to praise well a man of distinguished virtues.
+ - This Day, whate’er the Fates decree; Shall still be kept with Joy by me: This Day then, let us not be told, That you are sick, and I grown old.
+ - When a man is made a spiritual peer he loses his surname; when a temporal, his Christian name.
+ - The most ignorant person, at a reasonable charge, and with a little bodily labour, might write books in philosophy, poetry, politics, laws, mathematics, and theology, without the least assistance from genius or study.
+ - Old men and comets have been reverenced for the same reason: their long beards, and pretences to foretell events.
+ - Politics, as the word is commonly understood, are nothing but corruptions, and consequently of no use to a good king or a good ministry; for which reason Courts are so overrun with politics.
+ - Common fluency of speech in many men and most women is owing to a scarcity of matter.
+ - Once kick the world, and the world and you will live together at a reasonably good understanding.
+ - A fig for partridges and quails, ye dainties I know nothing of ye; But on the highest mount in Wales Would choose in peace to drink my coffee.
+ - Dignity, high station, or great riches, are in some sort necessary to old men, in order to keep the younger at a distance, who are otherwise too apt to insult them upon the score of their age.
+ - She watches him as a cat would watch a mouse.
+ - Live every day as your last, because one of these days, it will be.
+ - One principal object of good-breeding is to suit our behaviour to the three several degrees of men, our superiors, our equals, and those below us.
+ - T is as cheap sitting as standing.
+ - Orators inflame the people, whose anger is really but a short fit of madness.
+ - There are few, very few, that will own themselves in a mistake.
+ - You must take the will for the deed.
+ - Arbitrary power is but the first natural step from anarchy, or the savage life.
+ - A favor is half granted, when graciously refused.
+ - Faith, that’s as well said as if I had said it myself.
+ - Your onions should be thoroughly boiled.
+ - But you think that it is time for me to have done with the world, and so I would if I could get into a better before I was called into the best, and not die here in a rage, like a poisoned rat in a hole.
+ - What we call the Irish Brogue is no sooner discovered, than it makes the deliverer, in the last degree, ridiculous and despised; and, from such a mouth, an Englishman expects nothing but bulls, blunders, and follies.
+ - I forget whether advice be among the lost things which Ariosto says are to be found in the moon: that and time ought to have been there.
+ - To acknowledge you were wrong yesterday is simply to let the world know that you are wiser today than you were then.
+ - The axe of intemperance has lopped off his green boughs and left him a withered trunk.
+ - Nothing is so great an instance of ill-manners as flattery.
+ - This wine should be eaten, it is too good to be drunk.
+ - I row after health like a waterman...
+ - If Heaven had looked upon riches to be a valuable thing, it would not have given them to such a scoundrel.
+ - Whoever makes the fewest persons uneasy, is the best bred man in company.
+ - The translators of the Bible were masters of an English style much fitter for that work than any we see in our present writings; the which is owing to the simplicity that runs through the whole.
+ - A maxim in law has more weight in the world than an article of faith.
+ - All fits of pleasure are balanced by an equal degree of pain and languor; it’s like spending this year part of next year’s revenue.
+ - Would a writer know how to behave himself with relation td posterity? Let him consider in old books what he finds that he is glad to know, and what omissions he most laments.
+ - A traveler’s chief aim should be to make men wiser and better, and to improve their minds by the bad-as well as good example of what they deliver concerning foreign places.
+ - Ever eating, never cloying, All-devouring, all-destroying Never finding full repast, Till I eat the world at last.
+ - Let a man be ne’er so wise, he may be caught with sober lies.
+ - Who can deny that all men are violent lovers of the truth, when we see them so positive in their errors, which they will maintain out of their zeal for truth, although they contradict themselves every day of their lives.
+ - Punning is an art of harmonious jingling upon words, which, passing in at the ears, excites a titillary motion in those parts; and this, being conveyed by the animal spirits into the muscles of the face, raises the cockles of the heart.
+ - What they do in heaven we are ignorant of; what they do not do we are told expressly.
+ - Desponding Phyllis was endu’d With ev’ry Talent of a Prude, She trembled when a Man drew near; Salute her, and she turn’d her Ear: If o’er against her you were plac’d She durst not look above your Waist.
+ - Pride, ill nature, and want of sense are the three great sources of ill manners; without some one of these defects, no man will behave himself ill for want of experience, or what, in the language of fools, is called knowing the world.
+ - The scholars of Ireland seem not to have the least conception of style, but run on in a flat phraseology, often mingled with barbarous terms.
+ - When we are old, our friends find it difficult to please us, and are less concerned whether we be pleased or not.
+ - Just get the right syllable in the proper place.
+ - I can discover no political evil in suffering bullies, sharpers, and rakes, to rid the world of each other by a method of their own; where the law hath not been able to find an expedient.
+ - There seems to be no part of knowledge in fewer hands than that of discerning when to have done.
+ - Two friendships in two breasts requires The same aversions and desires.
+ - Old sciences are unraveled like old stockings, by beginning at the foot.
+ - Say, Britain, could you ever boast, Three poets in an age at most? Our chilling climate hardly bears A sprig of bays in fifty years.
+ - Rhetoric in serious discourses is like the flowers in corn; pleasing to those who come only for amusement, but prejudicial to him who would reap profit from it.
+ - There were many times my pants were so thin I could sit on a dime and tell if it was heads or tails.
+ - If a man will observe as he walks the streets, I believe he will find the merriest countenances in mourning coaches.
+ - Books, like men their authors, have no more than one wayofcoming intothe world, but there areten thousand to go out of it, and return no more.
+ - What religion is he of? Why, he is an Anythingarian.
+ - Two women seldom grow intimate but at the expense of a third person.
+ - We have an intuitive sense of our duty.
+ - It is with wits as with razors, which are never so apt to cut those they are employed on as when they have lost their edge.
+ - Every age might perhaps produce one or two geniuses, if they were not sunk under the censure and obloquy of plodding, servile, imitating pedants.
+ - By the laws of God, of nature, of nations, and of your country you are and ought to be as free a people as your brethren in England.
+ - When any one person or body of men seize into their hands the power in the last resort, there is properly no longer a government, but what Aristotle and his followers call the abuse and corruption of one.
+ - Had Windham possessed discretion in debate, or Sheridan in conduct, they might have ruled their age.
+ - The preaching of divines helps to preserve well-inclined men in the course of virtue, but seldom or ever reclaims the vicious.
+ - And, is not Virtue in Mankind The Nutriment that feeds the Mind?
+ - The affectation of some late authors to introduce and multiply cant words is the most ruinous corruption in any language.
+ - The example alone of a vicious prince will corrupt an age; but that of a good one will not reform it.
+ - If a lump of soot falls into the soup and you cannot conveniently get it out, stir it well in and it will give the soup a French taste.
+ - There is no quality so contrary to any nature which one cannot affect, and put on upon occasion, in order to serve an interest.
+ - Tis nothing when you are used to it.
+ - Men always grow vicious before they become unbelievers.
+ - It may pass for a maxim in State, that the administration cannot be placed in too few hands, nor the legislature in too many.
+ - Ay, do despise me, I’m the prouder for it; I like to be despised.
+ - Pedantry is properly the over-rating of any kind of knowledge we pretend to.
+ - Perpetual aiming at wit is a very bad part of conversation. It is done to support a character: it generally fails; it is a sort of insult on the company, and a restraint upon the speaker.
+ - Everyone desires long life, not one old age.
+ - Have you not observed that there is a lower kind of discretion and regularity, which seldom fails of raising men to the highest station in the court, the church, and the law?
+ - Men of great parts are often unfortunate in the management of public business, because they are apt to go out of the common road by the quickness of their imagination.
+ - It is pleasant to observe how free the present age is in laying taxes on the next. “Future ages shall talk of this; they shall be famous to all posterity;” whereas their time and thoughts will be taken up about present things, as ours are now.
+ - Brutes find out where their talents lie; a bear will not attempt to fly.
+ - If the men of wit and genius would resolve never to complain in their works of critics and detractors, the next age would not know that they ever had any.
+ - Though fear should lend him pinions like the wind, yet swifter fate will seize him from behind.
+ - I am of the level with common Astrologers; who, with an old paltry cant, and a few pot-hooks for planets to amuse the vulgar, have too long been suffered to abuse the world.
+ - A stander-by may sometimes, perhaps, see more of the game than he that plays it.
+ - By candle-light nobody would have taken you for above five-and-twenty.
+ - Hereditary right should be kept sacred, not from any inalienable right in a particular family, but to avoid the consequences that usually attend the ambition of competitors.
+ - This made me reflect, how vain an attempt it is for a man to endeavor to do himself honor among those who are out of all degree of equality or comparison with him.
+ - Possession, they say, is eleven points of the law.
+ - My Lawyer being practiced almost from his Cradle in defending Falsehood; is quite out of his Element when he would be an Advocate for Justice, which as an Office unnatural, he always attempts with great Awkwardness if not with Ill-will.
+ - Pride, ill nature, and want of sense, are the three great sources of ill manners.
+ - I cannot imagine why we should be at the expense to furnish wit for succeeding ages, when the former have made no sort of provision for ours.
+ - Physicians ought not to give their judgment of religion, for the same reason that butchers are not admitted to be jurors upon life and death.
+ - Silks, velvets, calicoes, and the whole lexicon of female fopperies.
+ - I am convinced that if the virtuosi could once find out a world in the moon, with a passage to it, our women would wear nothing but what directly came from thence.
+ - I know Sir John will go, though he was sure it would rain cats and dogs.
+ - A ridiculous passion which hath no being but in play-books and romances.
+ - The power of fortune is confessed only by the miserable, for the happy impute all their success to prudence or merit.
+ - A college joke to cure the dumps.
+ - I never saw, heard, nor read, that the clergy were beloved in any nation where Christianity was the religion of the country. Nothing can render them popular, but some degree of persecution.
+ - A pleasant companion is as good as a coach.
+ - I never knew any man cured of inattention.
+ - 111 company is like a dog, who dirts those most whom he loves best.
+ - A wise man will find us to be rogues by our faces.
+ - I won’t quarrel with my bread and butter.
+ - Great abilities, when employed as God directs, do but make the owners of them greater and more painful servants to their neighbors.
+ - Interest is the spur of the people, but glory that of great souls. Invention is the talent of youth, and judgment of age.
+ - The chameleon, who is said to feed upon nothing but air, has of all animals the nimblest tongue.
+ - Quotations are best brought in to confirm some opinion controverted.
+ - Don’t set your wit against a child.
+ - An idle reason lessens the weight of the good ones you gave before.
+ - Under the rose, since here are none but friends, To own the truth we have some private ends.
+ - Do you think I was born in a wood to be afraid of an owl?
+
+373 quotes

@@ -1,0 +1,39 @@
+ - The privilege of being a writer is that you have this opportunity to slow down and to consider things.
+ - Unlike other books or TV shows or sometimes life, my narrative worlds are stripped of implicit moral centers. There is only what you bring. That makes the characters risky in every way and the narrative, a journey of change for the reader. But I make the journey as fun as I can.
+ - You know, you can steel your heart against any kind of trouble, any kind of horror. But the simple act of kindness from a complete stranger will unstitch you.
+ - If there was no risk, it wouldn’t be art. It wouldn’t be worth making. There is risk even in a fairy tale. Fiction is closest to pure narrative, and pure narrative is simply the logic we try to impose on an ever-changing reality.
+ - Before you speak, my friend, remember, a spiritual man contain his anger. Angry words are like slap in de face.
+ - There was a positive side to not trying at something: you could always pretend that your life would have been different if you had.
+ - Anything a man can do, I can fix.
+ - People think that writing is writing, but actually writing is editing. Otherwise, you’re just taking notes.
+ - Fire and Water are archetypes, the split sides of consciousness; one aware, the other, not. The two parts of us that desire synthesis, yet resist it: the self and the shadow. But they are also the element of chance, of the random roll of dice.
+ - That women are mysterious and unknowable is something every young man grows up believing. Men, on the other hand, never think of themselves as mysterious or confusing, and we are often at a loss as to why women want to figure us out.
+ - Elvis, stop dat! You know it is taboo to whistle at night. You will attract a spirit.
+ - Fiction is risky for writers also in that the process of making certain books, of shaping certain narratives, leaves scars and marks on your inner life.
+ - Nigerians are everywhere. There’s an old joke, particularly about the Ibos, that when you finally land on Mars, you’re going to find a Nigerian there who has a shop that is selling Coca-Cola – who took a speculative trip 20 years ago and has been waiting for everyone else to arrive.
+ - Men do communicate, often very directly, but women sometimes cannot accept how simple what we have to say is. We seldom play games – we aren’t that sophisticated.
+ - Something that had the quality of a dimly lit stage set just before the curtains rise on opening night. There was a rhythm to it, a beckoning, and a bittersweet tear in time.
+ - You can count on Scandinavian literature for a certain kind of darkness, a modern mythic style.
+ - What I’ve come to learn is that the world is never saved in grand messianic gestures, but in the simple accumulation of gentle, soft, almost invisible acts of compassion.
+ - What we know about who we are comes from stories. It’s the agents of our imagination who really shape who we are.
+ - My mom taught me to read when I was two or three. When I was five I read and wrote well enough to do my nine-year older brother’s homework in exchange for chocolate or cigarettes. By the time I was 10, I was reading Orwell, Tolstoy’s War and Peace, and the Koran. I was reading comic books too.
+ - Your anatomy is a mystery that nobody bothers explaining to us. Even when we think we have mastered one woman’s body, every body is different.
+ - The problem is we’re looking for something that doesn’t exist. We’re looking for authenticity. There is no such thing as authenticity. There is either good art or bad art. Art is never about its content. It’s about its scaffolding.
+ - My search is always to find ways to chronicle, to share and to document stories about people, just everyday people. Stories that offer transformation, that lean into transcendence, but that are never sentimental, that never look away from the darkest things about us.
+ - All my characters exist in risk, in the places we are either too afraid to go to, or have enough privilege not to have to, but whatever the reason, these characters I fashion go before us and come back transformed for us. For me, at least.
+ - The Igbo used to say that they built their own gods. They would come together as a community, and they would express a wish. And their wish would then be brought to a priest, who would find a ritual object, and the appropriate sacrifices would be made, and the shrine would be built for the god.
+ - Every successful artist comes from a family – parents or siblings or both – who, although equally gifted, chose not to pursue the treacherous and difficult path of the artist.
+ - Fiction and poetry are my first loves, but the really beautiful lyrical essay can do so much that other forms cannot.
+ - Time was the only variable in every equation of power and oppression – how long before the pot boiled over.
+ - I think a book that is over 400 pages should be split in two. I don’t know that there’s anything that interesting that can go on for 700 pages. I think that is a little bit indulgent.
+ - As with much of the world’s problems, they become public – or much more of interest – the moment they begin to impact the West.
+ - Narrative is a very feeble weapon in the face of human darkness and yet it’s all we have. That we have to hang the transformation and survival of our species on the journey and transformation of one singular person so far outside of what we expect they can do.
+ - Here’s the thing: You rescue us every day in small, quiet ways, so why not in this way? Let us into your mystery, tell us how you would like to be loved, show us how to see you, really see you.
+ - I think that most writers who are trying to write important and difficult books are in many ways putting their own humanity into question. Sometimes the journey is finding out where you stand in relationship to your own humanity and to the humanity of others.
+ - I read everywhere. It’s like a bodily function. I don’t need quiet. I write and read with the TV on. I follow the TV show while I read. TV doesn’t require a lot of brainpower.
+ - I think it’s an aggregation of all of the small acts that are really transformative. I think a group of small acts transform the individual. And maybe when the individual transforms, collectively we transform.
+ - I truly believe that writing is a continuum – so the different genres and forms are simply stops along the same continuum. Different ideas that need to be expressed sometimes require different forms for the ideas to float better.
+ - In this time of the Internet and nonfiction, to be on an actual bookshelf in an actual bookstore is exciting in itself.
+ - My books are often shelved around those of Chinua Achebe and Margaret Atwood, or Chimamanda Adichie and Monica Ali. All of this depends, of course, on the bookstore and how conversant the shelf stocker is with the alphabet.
+
+37 quotes

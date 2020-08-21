@@ -1,0 +1,36 @@
+ - Real dialogue is where two or more people become willing to suspend their certainty in each other’s presence.
+ - To change your reality you have to change your inner thoughts.
+ - Thought runs you. Thought, however, gives false info that you are running it, that you are the one who controls it. Whereas actually thought is the one which controls each one of us.
+ - The ability to perceive or think differently is more important than the knowledge gained.
+ - Individuality is only possible if it unfolds from wholeness.
+ - Space is not empty. It is full, a plenum as opposed to a vacuum, and is the ground for the existence of everything, including ourselves. The universe is not separate from this cosmic sea of energy.
+ - We have the idea that after we have been thinking something, it just evaporates. But thinking doesn’t disappear. It goes somehow into the brain and leaves something-a trace-which becomes thought. And thought then acts automatically.
+ - Thus, in a dialogue each person does not attempt to make common certain ideas or items of information that are already known to him. Rather, it can be said that collectively they are making something in common.
+ - The notion of a separate organism is clearly an abstraction, as is also its boundary. Underlying all this is unbroken wholeness even though our civilization has developed in such a way as to strongly emphasize the separation into parts.
+ - If we can be cheered up by positive images we can be depressed by negative ones. As long as we accept images as realities we are in that trap, because you can’t control the images.
+ - Universe consists of frozen light.
+ - Deep down the consciousness of mankind is one. This is a virtual certainty because even in the vacuum matter is one; and if we don’t see this, it’s because we are blinding ourselves to it.
+ - Can we learn to become more learning-oriented individually and collectively, rather than ‘I know’ oriented?
+ - In Nature nothing remains constant. Everything is in a perpetual state of transformation, motion and change.
+ - What is needed is to learn afresh, to observe, and to discover for ourselves the meaning of wholeness.
+ - Anybody can use science and technology without fundamentally altering his own frame of mind which governs how they are used.
+ - We are all linked by a fabric of unseen connections. This fabric is constantly changing and evolving. This field is directly structured and influenced by our behavior and by our understanding.
+ - In the long run, it is far more dangerous to adhere to illusion than to face what the actual fact is.
+ - Perhaps there is more sense in our nonsense and more nonsense in our ‘sense’ than we would care to believe.
+ - Ego-centeredness is not individuality at all.
+ - Ultimately, all moments are really one, therefore now is an eternity.
+ - During the past few decades, modern technology, with radio, TV, air travel, and satellites, has woven a network of communication which puts each part of the world in to almost instant contact with all the other parts.
+ - And thought struggles against the results, trying to avoid those unpleasant results while keeping on with that way of thinking. That is what I call ’sustained incoherence.
+ - We could say that practically all the problems of the human race are due to the fact that thought is not proprioceptive.
+ - This is another major feature of thought: Thought doesn’t know it is doing something and then it struggles against it is doing. It doesn’t want to know that it is doing it.
+ - Thought is creating divisions out of itself and then saying that they are there naturally.
+ - Thought is constantly creating problems that way and then trying to solve them. But as it tries to solve them it makes it worse because it doesn’t notice that it’s creating them, and the more it thinks, the more problems it creates.
+ - Then there is the further question of what is the relationship of thinking to reality. As careful attention shows, thought itself is in an actual process of movement.
+ - But the way people commonly use the word nowadays it means something all of whose parts are mutually interdependent – not only for their mutual action, but for their meaning and for their existence.
+ - We can’t simply take the way things seem and just work on that, because that would be another kind of mistake thought makes-taking the surface and calling it the reality.
+ - From the outset, however, this whole controversy has been plagued by tacit assumptions, very often of a philosophical rather than a physical character...
+ - So one begins to wonder what is going to happen to the human race. Technology keeps on advancing with greater and greater power, either for good or for destruction.
+ - One thus sees that a new kind of theory is needed which drops these basic commitments and at most recovers some essential features of the older theories as abstract forms derived from a deeper reality in which what prevails in unbroken wholeness.
+ - Yet, in spite of this world-wide system of linkages, there is, at this very moment, a general feeling that communication is breaking down everywhere, on an unparalleled scale.
+
+34 quotes

@@ -1,0 +1,46 @@
+ - Optimum nutrition is the medicine of tomorrow.
+ - The best way to have a good idea is to have a lot of ideas.
+ - If you want to have good ideas you must have many ideas. Most of them will be wrong, and what you have to learn is which ones to throw away.
+ - You can trace every sickness, every disease and every ailment to a mineral deficiency.
+ - Every aspect of the world today – even politics and international relations – is affected by chemistry.
+ - Do unto others 20% better than you would expect them to do unto you, to correct for subjective error.
+ - Everyone should know that the ‘war on cancer’ is largely a fraud.
+ - Science is the search for truth – it is not a game in which one tries to beat his opponent, to do harm to others.
+ - Just one living cell in the human body is, more complex than New York City.
+ - Life is a relationship among molecules and not a property of any molecule.
+ - If you take a reasonable amount of vitamin C regularly, the incidence of the common cold goes down. If you get a cold and start immediately, as soon as you start sneezing and sniffling, the cold just doesn’t get going.
+ - There is no safe amount of radiation. Even small amounts do harm.
+ - The only sane policy for the world is that of abolishing war.
+ - Do not let either the medical authorities or the politicians mislead you. Find out what the facts are, and make your own decisions about how to live a happy life and how to work for a better world.
+ - Satisfaction of one’s curiosity is one of the greatest sources of happiness in life.
+ - In teaching, you do not want to COVER things, you want to UNCOVER them. The best way to get good ideas is to have lots of ideas.
+ - Provided one has the correct level of vitamin, mineral and nutritional input, the body can overcome disease.
+ - I believe that there is a greater power in the world than the evil power of military force, of nuclear bombs – there is the power of good, of morality, of humanitarianism.
+ - Everyone should know that most cancer research is largely a fraud, and that the major cancer research organizations are derelict in their duties to the people who support them.
+ - Science is the search for truth.
+ - Science is the search for truth, that is the effort to understand the world: it involves the rejection of bias, of dogma, of revelation, but not the rejection of morality.
+ - There is no area of the world that should not be investigated by scientists. There will always remain some questions that have not been answered. In general, these are the questions that have not yet been posed.
+ - The problem of an atomic war must not be confused by minor problems such as Communism versus capitalism. An atomic war would kill everyone, left, right, or center.
+ - Facts are the air of scientists. Without them you can never fly.
+ - Humanism is a philosophy of joyous service for the greater good of all humanity, of application of new ideas of scientific progress for the benefit of all.
+ - Only when I began studying chemical engineering at Oregon Agricultural College did I realize that I myself might discover something new about the nature of the world.
+ - Man’s great power of thinking, remembering, and communicating are responsible for the evolution of civilization.
+ - The power to destroy the world by the use of nuclear weapons is a power that cannot be used-we cannot accept the idea of such monstrous immmorality.
+ - I hear from patients who say their doctor said, ‘If you want to take Vitamin C, go ahead and do it. It won’t harm you, and it may do you some good.’ More and more physicians are getting convinced about the value of large doses of Vitamin C.
+ - I like people. I like animals, too-whales and quail, dinosaurs and dodos. But I like human beings especially, and I am unhappy that the pool of human germ plasm, which determines the nature of the human race, is deteriorating.
+ - No evidence compels the conclusion that the minimum required intake of any vitamin comes close to the optimum intake that sustains good health.
+ - Like thousands of other boys, I had a little chemical laboratory in our cellar and think that some of our friends thought me a bit crazy.
+ - I think every person should be able to enjoy life. Try to decide what you most enjoy doing, and then look around to see if there is a job for which you could prepare yourself that would enable you to continue having this sort of joy.
+ - It will be possible, through the detailed determination of amino-acid sequences of hemoglobin molecules and of other molecules too, to obtain much information about the course of the evolutionary process, and to illuminate the question of the origin of species.
+ - I made use of the college library by borrowing books other than scientific books, such as all of the plays by George Bernard Shaw, the writing of Edgar Allan Poe. The college library helped me to develop a broader aspect on life.
+ - I believe all complicated phenomena can be explained by simpler scientific principles.
+ - I believe that you can, by taking some simple and inexpensive measures, extend your life and your years of well-being. My most important recommendation is that you take vitamins every day in optimun amounts, to supplement the vitamins you receive in your food.
+ - Men will gather knowledge no matter what the consequences. Science will go on whether we are pessimistic or optimistic, as I am. More interesting discoveries than we can imagine will be made, and I am awaiting them, full of curiosity and enthusiasm.
+ - By the proper intakes of vitamins and other nutrients and by following a few other healthful practices from youth or middle age on, you can, I believe, extend your life and years of well-being by twenty-five or even thirty-five years.
+ - We may say that life has borrowed from inanimate processes the same mechanism used in producing these striking structures that are crystals.
+ - But I know also that still more interesting discoveries will be made that I have not the imagination to describe – and I am awaiting them, full of curiosity and enthusiasm.
+ - Nations keep agreements, keep their treaties so long as they continue to do them good.
+ - I have always wanted to know as much as possible about the world.
+ - Although physicians, as part of their training, are taught that the dosage of a drug that is prescribed for the patient must be very carefully determined and controlled, they seem to have difficulty in remembering that the same principle applies to the vitamins.
+
+44 quotes

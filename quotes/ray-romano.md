@@ -1,0 +1,78 @@
+ - Having children is like living in a frat house – nobody sleeps, everything’s broken, and there’s a lot of throwing up.
+ - The more I go through parenting, the more I say I owe my mother an apology.
+ - My career has been my craziest adventure.
+ - Every parent knows that for a kid, the car is chloroform...
+ - Right after ‘Raymond’ I had a world-is-my-oyster attitude, but I found out I don’t like oysters. I had this existential emptiness. ‘What is my purpose? Who am I?’ I had a big identity crisis.
+ - For the sake of your marriage, get a king-size bed. And if you really want to stay married, get two.
+ - Everyone should have kids. They are the greatest joy in the world. But they are also terrorists. You’ll realize this as soon as they are born and they start using sleep deprivation to break you.
+ - I still feel like an immature idiot inside, but I look in the mirror and – as a friend of mine once said- this old guy keeps getting in the way.
+ - I don’t know if you want to see the Everybody Loves Raymond guy in a nude scene.
+ - My daughter’s tricycle said “Some Assembly Required.” It came in a jar.
+ - If my father had hugged me even once, I’d be an accountant right now.
+ - My wife gets so jealous. She came home from work and was mad at me because there was a pretty girl on the bus she thought I would have liked.
+ - I’m always giving myself the Alzheimer’s test. My shrink told me to do this. It takes one minute. You name every word that comes to mind that begins with the letter F.
+ - My kids are growing up and it’s hard to accept they are their own person and they’re independent.
+ - I do know its important to keep the romantic spark alive in your marriage. But with four kids, sometimes it’s enough just to keep yourself alive.
+ - Whenever I get down about life going by too quickly, what helps me is a little mantra that I repeat to myself: at least I’m not a fruit fly.
+ - You might think that’s an exaggeration but believe me, if you leave twin two-year-olds alone in your living room, at some point a cow will be airborne.
+ - Flappers sounds like where waitresses go after they’re too old to work at Hooters.
+ - In school, I wasn’t a very good student – I was very irresponsible and never did the studying but always liked to get the laugh.
+ - My wife gets all the money I make. I just get an apple and clean clothes every morning.
+ - I have the show because I’m insecure. It’s my insecurity that makes me want to be a comic, that makes me need the audience.
+ - I would get my student loans, get money, register and never really go. It was a system I thought would somehow pan out.
+ - I’d rather be in Las Vegas 104 degrees than New York 90 degrees, you know why? Legalized prostitution. In any weather that takes the edge off.
+ - The married man has all but eliminated that worry from his life, simply because his wife knows all about him: the good, the bad, and the tiny.
+ - The first time I played golf was in Flushing Meadows, Queens, when I was about 16 or 17. They had an 18-hole pitch-and-putt. My buddies and I would hop the fence and sneak on and play.
+ - I do what I do because I love it.
+ - Whenever I walk off the golf course, I thank God that I’m able to tell a joke. I thank God I’m good at something.
+ - The only thing I miss from the sitcom format is that immediate gratification of when you’re, if we’re talking about comedy, of the live audience.
+ - I’ll be spending the holidays with my family. Nothing special, just some light bickering and biting sarcasm.
+ - Mick Jagger also a music connoisseur and knows everything about that era. So, you knew the music side was going to be top-notch. It’s HBO. On Men of Certain Age, if we wanted a song, it would break the bank. But, Vinyl can go all-out.
+ - I am like Hugh Hefner minus anything good about his life.
+ - Mike Royce and I have always had success writing what we know. What we know now is that we’re middle-aged, neurotic and fat.
+ - You have to remember: the wife been home all day cleaning asses and feeding faces. Sometimes the opposite.
+ - If golf wasn’t enjoyable and there wasn’t a lot of humor and enjoyment, even though the game is so frustrating, you would wonder why you put yourself through it.
+ - I don’t think men talk as much as women, but when we have something on our minds we’ll get it out.
+ - You don’t want to shock them and do something totally opposite, but you also want to play a different character.
+ - You know, before I would think, my cab driver hates me. Now I think my limo driver hates me.
+ - That’s when you know you’re a true married couple: when you have to apologize for what you did in her dream.
+ - I was wracked with insecurity.
+ - Without identical twins, you’ll never get to experience entering a hotel room with one of them and watching him run into the full-length mirror because he though he saw his brother.
+ - Parents, just keep in mind that kids will always round off to the nearest obscenity...
+ - Nothing like a little chest pain to restore your faith.
+ - Identical twins. I’m glad they’re identical ’cause you save money on photographs. That’s what I like. Yeah. Here’s my little boy. I got another one just like it.
+ - I want to do well and I want to fit in.
+ - I feel like this is a dream – and I apologize for how I dressed some of you.
+ - The successful golfers – they’re like astronauts or pilots. They have that demeanor that they can focus and stay within that one moment and nothing distracts them. That’s not me.
+ - The comics that are just conversing with you up there and drawing on their own life, yeah, I guess so. I guess some do political humor, some do topical humor, but the ones that I like, the ones that are appealing to me, were guys who were just talking to you about their life.
+ - I wasn’t really that informed about the two-year-old. Oh, I’d read about them, and occasionally I’d see documentaries on the Discovery Channel showing two-year-olds in the wild, where they belong...
+ - I lived at home till I was 29.
+ - That’s the one thing I have over any twenty-one-year-old: a proud history of accumulated neuroses. That’s the game in which I’m da man.
+ - I did 15 shows a week when I lived in New York. I did five shows on a Friday and seven shows on a Saturday. It was everything I did and it was my sole source of income.
+ - I love standup and I haven’t given it up.
+ - I married a saint – well, a saint who curses.
+ - My theory has always been that everyone in show business is there because they were deprived of some attention as a child.
+ - I do still get intimidated by certain things.
+ - The fact that they let me in a movie with Gene Hackman has left me with no faith in show buisness.
+ - Well, I’m a 14 handicap. Anyone who golfs knows what that means.
+ - I love hitting into the rough because it gets me close to the people.
+ - I can’t complain about my career, that’s for sure.
+ - The best comedy, I feel, comes in a drama because it balances each other out.
+ - I came from an Italian house. The refrigerator was always full. I never knew you had to buy food. I thought there were food fairies that came at night.
+ - I don’t want to be a spokesman for family values, but that’s the way my standup is perceived.
+ - It’s starting to feel good, although I don’t like feeling too good – that’s not where my comedy comes from.
+ - I have this mistress: show business.
+ - I was at home waiting for projects. I was on Parenthood and there was one season left, and I was thinking, “What’s next?” I’m at this age where I’m trying to write my own script, and they sent this over and I decided to put myself on tape.
+ - It seems to be a common denominator with a lot of comics, this low self-esteem thing.
+ - If I’m really considering doing film from now on then that is the smart thing to do, or you can go either way. You can just do the same character over and over again and make a different comedy like over and over again.
+ - I just don’t want to play the same guy again over and over.
+ - If you are someone, you know, with fame, whatever amount, it’s good to be married to someone who’s not impressed with that at all.
+ - People are going to see both of us and think it’s an Abbott and Costello kind of thing. It’s not an easy switch. It’s not an easy transition from TV to film.
+ - When you go to standup, there seems to be a common denominator of some form of need or want for validation from the audience that maybe you were lacking as a kid.
+ - I like doing film, you know, single-camera.
+ - I don’t want to say work is who I am, but some people feel more centered and more whole when they’re producing and creating.
+ - You know, a TV show is a slow build.
+ - I still got my hair, I’m not fat.
+ - After ‘Raymond,’ there was this big feeling of, ‘What do I do next?’
+
+76 quotes

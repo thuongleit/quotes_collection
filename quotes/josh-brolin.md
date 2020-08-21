@@ -1,0 +1,33 @@
+ - Nothing misleads people like the truth.
+ - Folks can believe what they like but eventually a man’s got to declare if he’s going to do what is right.
+ - I read comic books and stuff but I didn’t know a lot about it.
+ - The only way change will ever happen is if we speak up, and we have to know that it actually has an impact. Because we have a lot more power than we think we do, I think.
+ - I think those little laundry detergent capsules are an amazing thing to have.
+ - The last really expensive trip we took was so uncomfortable. It’s so lazy. I want somebody to give me a great $30 massage as opposed to a bad $265 massage.
+ - I covered my face because they had taken my wisdom teeth out.
+ - Football? Forget it. I didn’t have that thing inside me where I wanted to smash against somebody and watch them break. I was too sensitive for that and disliked being that sensitive.
+ - I’m really, really lucky. I was given my dad’s good genes.
+ - Fear – there’s always fear. You re-create yourself in every movie, don’t you?
+ - We talked to Sergei Bodrov who did “Mongel” who I thought was incredible. There was a lot of people who’ve done a lot of things that I really appreciate and then you go back to the Italian spaghetti westerns that our spaghetti westerns were based off of so I’ve seen everything.
+ - It’s probably a bit of a power trip when you befriend somebody enough that they trust you to tell you things.
+ - It takes me 10 minutes to get ready to go out, and that includes the shower.
+ - When accepting or preparing for a role, fear is the motivating factor.
+ - I remember at the premiere of my second movie I started crying. I thought, I’m so bad that I either have to stop this and do something else or learn what I’m doing.
+ - Suddenly, I’m in movies that people are excited about, and that is a nice change.
+ - My craziest on-set story comes from during the Goonies, when I came up to Spielberg and said that I wanted to climb the walls of the tunnels and that it represented my mother’s womb, for some odd reason. I was reading Stanislawski at the time and Spielberg’s response was “Why don’t you just act.”
+ - My dad didn’t often bring me to the set, being an actor himself, so my infancy as an actor was wracked with a lot of giggles and nervousness.
+ - As an actor, doing it for 30 years, with every movie, you’re trying to figure out a way to make it more naturalistic and more organic to humanity. When you have lines like, “Never let the monster out,” it’s hard.
+ - I love the competitive part of stocks. A lot of fear and greed, that’s all it is. All I see is green and red.
+ - You have to be okay with wins and losses. You can’t just be looking for the wins and, when the losses happen, you can’t buy more and more because you’re sure it’s going to bounce. We call that revenge trading.
+ - You’ve got this guy who refuses to die for some reason whether it be a physical or metaphysical reason or spiritual reason so you can do anything. You can kill off anybody and you can still bring them back because he’s kind of half there and half in reality, you know?
+ - There’s always been violence in movies, and there will always be violence in movies. Whether it lends to the one psychotic that’s out there, thinking the worst thoughts you could possibly thing, is always going to be a mystery.
+ - I only took a high school acting class because there was no other class I wanted to take. I loved it, but I was always against acting as a profession. I didn’t like the monetary fluctuations I saw.
+ - I have to tell you, you can’t have an ego when you’re an actor. A lot of actors have them, but in reality most of those people are just sensitive artists dying for a hug and a compliment.
+ - I grew up, especially as an actor thinking that I had to move to New York to be a good actor. But after a while you start to live the world a little bit and you start to appreciate where you’re from.
+ - I used to go to Vegas and play the horses, and then I realised how ridiculous that was. There is no winning in gambling, but there is on the stock market.
+ - I got picked on a lot. I was a complete geek in school. I had braces. I didn’t have the hot girlfriend. I wasn’t ever sought after. I was a stocky, awkward kid who got laughed off the tennis court when I tried that.
+ - When I was in jail I could only think about what the average person has to go through – the person who has no power to go to the press or no money to hire a lawyer.
+ - I’m very happy to be involved with great filmmakers.
+ - You might be an interested guy, an interested reported then I get to know you and then I know you’re this also and you’re this also and you may hide it in a certain way. That’s what I love.
+
+31 quotes

@@ -1,0 +1,62 @@
+ - The strength of a family, like the strength of an army, lies in its loyalty to each other.
+ - Keep your friends close, but your enemies closer.
+ - Never get angry. Never make a threat. Reason with people.
+ - I spent my whole life trying not to be careless. Women and children can afford to be careless, but not men.
+ - Revenge is a dish that tastes best when served cold.
+ - A man who doesn’t spend time with his family can never be a real man.
+ - A lawyer with his briefcase can steal more than a hundred men with guns.
+ - Never hate your enemies. It affects your judgment.
+ - I’ll make him an offer he can’t refuse.
+ - What is past is past. never go back. Not for excuses. Not for justification, not for happiness. You are what you are, the world is what it is.
+ - In Sicily, women are more dangerous than shotguns.
+ - Finance is a gun. Politics is knowing when to pull the trigger.
+ - Accidents don’t happen to people who take accidents as a personal insult.
+ - Actions defined a man; words were a fart in the wind.
+ - I don’t trust society to protect us, I have no intention of placing my fate in the hands of men whose only qualification is that they managed to con a block of people to vote for them.
+ - Friendship is everything. Friendship is more than talent. It is more than the government. It is almost the equal of family.- Don Corleone.
+ - A friend should always underestimate your virtues and an enemy overestimate your faults.
+ - Power wears out those who do not have it.
+ - Gambling is not as destructive as war or as boring as pornography. It is not as immoral as business or as suicidal as watching television. And the percentages are better than religion.
+ - Many young men started down a false path to their true destiny. Time and fortune usually set them aright.
+ - Falling in love is great but being in love is a disaster.
+ - There are things that have to be done and you do them and you don’t talk about them. You don’t try to justify them. They can’t be justified. You just do them. Then you forget them.
+ - I find the only thing that really stands up, better than gambling, better than booze, better than women, is reading.
+ - It was a lie but he believed in telling lies to people. Truth telling and medicine just didn’t go together except in dire emergencies, if then.
+ - Take the gun. Leave the cannoli.
+ - Tell my father I wish to be his son.
+ - Yet, he thought, if I can die saying, “Life is so beautiful,” then nothing else is important. If i can believe in myself that much, nothing else matters.
+ - Even the strongest man needs friends.
+ - The only wealth in this world is children, more than all the money, power on earth.
+ - He was a degenerate gambler. That is, a man who gambled simply to gamble and must lose. As a hero who goes to war must die. Show me a gambler and I’ll show you a loser, show me a hero and I’ll show you a corpse.
+ - We are all honorable men here, we do not have to give each other assurances as if we were lawyers.
+ - Every family has bad memories.
+ - Friendship and money: oil and water.
+ - Time erodes gratitude more quickly than it does beauty!
+ - Why should I be afraid now? Strange men have come to kill me ever since I was twelve years old.
+ - Oh, what a wicked world it is that drives a man to sin.
+ - Some honorable men spend their whole life preparing for a supreme act of treachery.
+ - Any man can turn traitor.
+ - I want to tell you a story. I have no other vanity.
+ - We don’t know if capital punishment is a deterrent, but we know that men we execute will not murder again.
+ - Italians have a little joke, that the world is so hard a man must have two fathers to look after him, and that’s why they have godfathers.
+ - I have always believed helping your fellow man is profitable in every sense, personally and bottom line.
+ - Love is like the little red toy wagon you get for your Christmas or your sixth birthday. It makes you deliriously happy and you just can’t leave it alone. But sooner or later the wheels come off. Then you leave it in a corner and forget it. Falling in love is great. Being in love is a disaster.
+ - Our own death wish is our only real tragedy.
+ - God seemed to be having a hard time killing him, and he’d be damned if he was going to make the job easy for mere mortals.
+ - Not having to worry about money is almost like not having to worry about dying.
+ - Let us be separated by wars and pestilence, death, madness but not by the passing of time.
+ - You can’t hide the thunderbolt. When it hits you, everybody can see it. Christ, man, don’t be ashamed of it, some men pray for the thunderbolt. You’re a very lucky fellow. – Calo.
+ - Never let a domestic quarrel ruin a day’s writing. If you can’t start the day fresh, get rid of your wife.
+ - Like many businessmen of genius he learned that free competition was wasteful, monopoly efficient. And so he simply set about achieving that efficient monopoly.
+ - Fredo you’re my older brother and I love you. But don’t ever take sides against the family...
+ - Michael could never remember his father ever having uttered a word about death, as if the Don respected death too much to philosophize about it.
+ - It can be argued that man’s instinct to gamble is the only reason he is still not a monkey up in the trees.
+ - I believe in America. America’s made my fortune.
+ - It was not perhaps the warmest friendship in the world, they would not send each other Christmas gift greetings, but they would not murder each other.
+ - I like to drink wine more than I used to. Anyway, I’m drinking more.
+ - We are a family, and the loyalty of the family must come before anything and everyone else. For if we honor that commitment, we will never be vanquished-but if we falter in that loyalty we will all be condemned.
+ - And in that fraction of a second before anything actually happened, Santino Corleone knew he was a dead man.
+ - All gamblers are paranoid, though they call it superstition.
+ - What we think of as our sensitivity is only the higher evolution of terror in a poor dumb beast. We suffer for nothing. Our own death wish is our only real tragedy.
+
+60 quotes

@@ -1,0 +1,62 @@
+ - Genius is nothing more than inflamed enthusiasm.
+ - Fame is nothing but an empty name.
+ - Be England what she will, With all her faults she is my country still.
+ - The laws I love; the lawyers I suspect.
+ - Man and wife, Coupled together for the sake of strife.
+ - Knaves starve not in the land of fools.
+ - A joke’s a very serious thing.
+ - The rigid saint, by whom no mercy’s shown To saints whose lives are better than his own.
+ - Patience is sorrow’s salve.
+ - Wherever waves can roll, and winds can blow.
+ - The Scots are poor, cries surly English pride; True is the charge, nor by themselves denied. Are they not then in strictest reason clear, Who wisely come to mend their fortunes here?
+ - Who often, but without success, have prayed for apt Alliteration’s artful aid.
+ - With curious art the brain, too finely wrought, Preys on herself, and is destroyed by thought.
+ - Who to patch up his fame, or fill his purse, Still pilfers wretched plans, and makes them worse; Like gypsies, lest the stolen brat be known, Defacing first, then claiming for his own.
+ - By different methods different men excel, but where is he who can do all things well?
+ - Keep up appearances; there lies the test. The world will give thee credit for the rest.
+ - With that malignant envy which turns pale, And sickens, even if a friend prevail.
+ - The best things carried to excess are wrong.
+ - Those who raise envy will easily incur censure.
+ - Men the most infamous are fond of fame, And those who fear not guilt yet start at shame.
+ - And reputation bleeds in ev’ry word.
+ - Truth! why shall every wretch of letters Dare to speak truth against his betters! Let ragged virtue stand aloof, Nor mutter accents of reproof; Let ragged wit a mute become, When wealth and power would have her dumb.
+ - Constant attention wears the active mind, Blots out our pow’rs, and leaves a blank behind.
+ - When fiction rises pleasing to the eye, men will believe, because they love the lie; but truth herself, if clouded with a frown, must have some solemn proof to pass her down.
+ - A servile race Who, in mere want of fault, all merit place; Who blind obedience pay to ancient schools, Bigots to Greece, and slaves to musty rules.
+ - All hunt for fame, but most mistake the way.
+ - With various readings stored his empty skull, Learn’d without sense, and venerably dull.
+ - To copy faults is want of sense.
+ - When satire flies abroad on falsehood’s wing, Short is her life, and impotent her sting; But when to truth allied, the wound she gives Sinks deep, and to remotest ages lives.
+ - Amongst the sons of men how few are known Who dare be just to merit not their own.
+ - Fool beckons fool, and dunce awakens dunce.
+ - On the four aces doom’d to roll.
+ - Little do such men know the toil, the pains, the daily, nightly racking of the brains, to range the thoughts, the matter to digest, to cull fit phrases, and reject the rest.
+ - He mouths a sentence as curs mouth a bone.
+ - England a fortune-telling host, As num’rous as the stars, could boast; Matrons, who toss the cup, and see The grounds of Fate in grounds of tea...
+ - Who all in raptures their own works rehearse, And drawl out measur’d prose, which they call verse.
+ - Whom drink made wits, though nature made them fools.
+ - To copy beauty forfeits all pretense to fame; to copy faults is want of sense.
+ - The more haste, ever the worst speed.
+ - He hurts me most who lavishly commends.
+ - Who, with tame cowardice familiar grown, would hear my thoughts, but fear to speak their own.
+ - Genius is independent of situation.
+ - If you mean to profit, learn to praise.
+ - Genius is of no country; her pure ray Spreads all abroad, as general as the day.
+ - Quick-circulating slanders mirth afford; and reputation bleeds in every word.
+ - No tribute is laid on castles in the air.
+ - The danger chiefly lies in acting well; no crime’s so great as daring to excel.
+ - Though by whim, envy, or resentment led, they damn those authors whom they never read.
+ - Wit, who never once Forgave a brother, shall forgive a dunce.
+ - Genius is of no country.
+ - Though folly, robed in purple, shines, Though vice exhausts Peruvian mines, Yet shall they tremble and turn pale When satire wields her mighty flail.
+ - Fashion – a word which knaves and fools may use, Their knavery and folly to excuse.
+ - The oak, when living, monarch of the wood; The English oak, which, dead, commands the flood.
+ - Ourselves are to ourselves the cause of ill.
+ - The proud will sooner lose than ask their way.
+ - Who shall dispute what the Reviewers say? Their word’s sufficient; and to ask a reason, In such a state as theirs, is downright treason.
+ - Nor waste their sweetness in the desert air.
+ - Those who would make us feel must feel themselves.
+ - It can’t be Nature, for it is not sense.
+ - The surest way to health, say what they will, Is never to suppose we shall be ill; Most of the ills which we poor mortals know From doctors and imagination flow.
+
+60 quotes

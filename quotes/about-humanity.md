@@ -1,0 +1,42 @@
+ - Love is the only way to rescue humanity from all ills. ~~Leo Tolstoy
+ - The sole meaning of life is to serve humanity. ~~Leo Tolstoy
+ - No moral value is greater than humanity. ~~Kurt Vonnegut
+ - Ignorance is a virus. Once it starts spreading, it can only be cured by reason. For the sake of humanity, we must be that cure. ~~Neil deGrasse Tyson
+ - Remember your humanity, and forget the rest. ~~Bertrand Russell
+ - Set peace of mind as your highest goal, and organize your life around it. ~~Brian Tracy
+ - There are no nations! There is only humanity. And if we don’t come to understand that right soon, there will be no nations, because there will be no humanity. ~~Isaac Asimov
+ - Humanity, take a good look at yourself. Inside, you’ve got heaven and earth, and all of creation. You’re a world – everything is hidden in you. ~~Hildegard of Bingen
+ - Peace is what every human being is craving for, and it can be brought about by humanity through the child. ~~Maria Montessori
+ - Liberty, Humanity, Justice, Equality. ~~Susan B. Anthony
+ - Humanity is OK, but 99% of people are boring idiots. ~~Slavoj Žižek
+ - If you lose touch with nature you lose touch with humanity. ~~Jiddu Krishnamurti
+ - More than machinery, we need humanity. ~~Charlie Chaplin
+ - Humans see what they want to see. ~~Rick Riordan
+ - The universe clearly operates for the benefit of humanity. This can be readily seen from the convenient way the sun comes up in the morning, when people are ready to start the day. ~~Terry Pratchett
+ - Peace is our gift to each other. ~~Elie Wiesel
+ - To be a Baha’i simply means to love all the world; to love humanity and try to serve it; to work for universal peace and universal brotherhood. ~~Abdu'l-Bahá
+ - I love humanity, it’s people I don’t like. ~~Charles M. Schulz
+ - The liberation of the earth, the liberation of women, the liberation of all humanity is the next step of freedom we need to work for, and it’s the next step of peace that we need to create. ~~Vandana Shiva
+ - Humanity’s true moral test, its fundamental test consists of its attitude towards those who are at its mercy: animals. ~~Milan Kundera
+ - Humanity is just a virus with shoes. ~~Bill Hicks
+ - The arts and humanities teach us who we are and what we can be. They lie at the very core of the culture of which we’re a part. ~~Ronald Reagan
+ - People in this world look at things mistakenly, and think that what they do not understand must be the void. This is not the true void. It is bewilderment... ~~Miyamoto Musashi
+ - The sole meaning of life is to serve humanity by contributing to the establishment of the kingdom of God, which can only be done by the recognition and profession of the truth by every man. ~~Leo Tolstoy
+ - An individual has not started living until he can rise above the narrow confines of his individualistic concerns to the broader concerns of all humanity. ~~Martin Luther King Jr.
+ - But who prays for Satan? Who, in eighteen centuries, has had the common humanity to pray for the one sinner that needed it most? ~~Mark Twain
+ - Every single human being is a unique human being. And, therefore, it’s so criminal to do something to that human being, because he or she represents humanity. ~~Elie Wiesel
+ - No matter what you’ve done for yourself or for humanity, if you can’t look back on having given love and attention to your own family, what have you really accomplished? ~~Lee Iacocca
+ - If half a century of living has taught me anything at all, it has taught me that nothing can bring you peace but yourself. ~~Dale Carnegie
+ - Economics is on the side of humanity now. ~~Isaac Asimov
+ - Act in such a way that you treat humanity, whether in your own person or in the person of any other, never merely as a means to an end, but always at the same time as an end. ~~Immanuel Kant
+ - I am by nature a dealer in words, and words are the most powerful drug known to humanity. ~~Rudyard Kipling
+ - The Bhagavad-Gita calls on humanity to dedicate body, mind and soul to pure duty and not to become mental voluptuaries at the mercy of random desires and undisciplined impulses. ~~Mahatma Gandhi
+ - Don’t accept the habitual as a natural thing. In times of disorder, of organized confusion, of de-humanized humanity, nothing should seem natural. Nothing should seem impossible to change. ~~Bertolt Brecht
+ - The calling of the humanities is to make us truly human in the best sense of the word. ~~J. Irwin Miller
+ - A map of the world that does not include Utopia is not worth even glancing at, for it leaves out the one country at which Humanity is always landing. And when Humanity lands there, it looks out, and, seeing a better country, sets sail. Progress is the realisation of Utopias. ~~Oscar Wilde
+ - Humanity is never so beautiful as when praying for forgiveness, or else forgiving another. ~~Jean Paul
+ - We have enslaved the rest of the animal creation, and have treated our distant cousins in fur and feathers so badly that beyond doubt, if they were able to formulate a religion, they would depict the Devil in human form. ~~William Ralph Inge
+ - Those who are at war with others are not at peace with themselves. ~~William Hazlitt
+ - A group of reptilian humanoids, called the Babylonian Brotherhood, control humanity. ~~David Icke
+
+40 quotes

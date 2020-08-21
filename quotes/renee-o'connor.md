@@ -1,0 +1,37 @@
+ - Filmmaking in general is just really where I’m putting all of my energy.
+ - We are always just trying to be strong and yet in touch with our bodies and the only way you can really do that is to believe in yourself because that’s all that you have.
+ - All the pictures in magazines and all of that is fun but in the end it’s all about your soul and who you are and have you connected with the people.
+ - I’ve grown so much as a person through playing Gabrielle, much less living in New Zealand and being with all of these people that I can’t imagine my life being any different.
+ - I’ve been looking at oil paintings from oriental artists lately, and the one artist who’s inspired me right now is a man named Hokusai and I’ve had his book by my bed looking at how he interprets landscapes – mountains and water and flowers and birds.
+ - I believe I have a lot to learn in life, still.
+ - I mean, I like to be creative because it challenges me to try to be better than I am as a person and I hope that in some way that that makes someone else think and feel something about themselves that then has given them the opportunity to grow.
+ - I wouldn’t say that I’m overly religious, but I have a pretty good relationship with my spiritual being.
+ - Painting is a hobby for me.
+ - It’s very hard to become an actor in film and television, you have to have such perseverance and you have to really believe that if you have any sort of talent at all, you will find work one day.
+ - And not to mean that I think I’m some special person, but I think we’re all here for a very specific reason and once you figure out what that is then you’re on the right track and we’re all on the ride together.
+ - I’m the type of person who feels I have to prove myself first.
+ - When you think about going back to the States you start to become more aware of the violence there and how we pollute the Earth more than the New Zealanders.
+ - I fell in love with Africa while I was there.
+ - Just believe in yourself and to find spirituality that’s going to carry you. Because all the rest is just fluff.
+ - For me it’s all about creating a goal and fulfilling it.
+ - I always thought I would be a marine biologist because I love the sea – but considering the fact that I’ve always loved acting and the theater, I don’t think I ever gave anything else much of a chance.
+ - I love actors who are wonderful – like John Cusack and Russell Crowe, and wouldn’t it be a treat to eventually direct them one day.
+ - Actually I have to say when I’m acting, I try not to think about directing at all.
+ - I think I’ll always be a theater gypsy at heart.
+ - I think you have to have different tools for each job – you know producer is very different from a director and very different from an actor.
+ - And I think because there is an essence of me that cares about other people and what other people think then that then makes me seem very sweet and polite.
+ - I find that actors who are wanting to pursue tv or films don’t seem to have much interest in classical theatre.
+ - Because I’ve always been more afraid of writing than I have of doing anything visually such as directing or acting.
+ - But on stage you’re able to just take the character from one point to the end and it’s a fluid, organic piece. It’s about being completely present all the time, right there in the moment.
+ - I think the joy of wanting to direct is having that nervous anxiety knowing your film is about to be shown and you’re sitting right there with everyone.
+ - But it just comes down to trying to get the work out there and however the team fits together then that’s the way it sort of plays into itself.
+ - Like when you go to a magic show and you know how they do the illusions. That’s how I am when I watch any movies where they have people flying through the air.
+ - When Xena finished I just really wanted to work with Shakespeare’s material.
+ - Maybe they say they do but I don’t think many actors really enjoy trying to do a Shakespearean play.
+ - But on the other hand, I think as an actor, you tend to want to look at the darker parts of your psyche.
+ - I believe over the last six years now, I’ve been learning in between actual acting moments on the show.
+ - I hope that my work makes a difference because I think that’s why I do it.
+ - In film and television you have to be able to see the whole picture in a different way than you do on the stage because you shoot out of order and you’re working with technology.
+ - And I think right now I’m just enjoying finding something such as One Weekend a Month where I can really resonate with this woman’s history and her situation.
+
+35 quotes

@@ -1,0 +1,52 @@
+ - Knowing trees, I understand the meaning of patience. Knowing grass, I can appreciate persistence.
+ - Year’s end is neither an end nor a beginning but a going on, with all the wisdom that experience can instill in us.
+ - No winter lasts forever; no spring skips its turn.
+ - No Winter lasts forever, no Spring skips its turn. April is a promise that May is bound to keep, and we know it.
+ - All our yesterdays are summarized in our now, and all the tomorrows are ours to shape.
+ - Each new season grows from the leftovers from the past. That is the essence of change, and change is the basic law.
+ - He who travels west travels not only with the sun but with history.
+ - To know after absence the familiar street and road and village and house is to know again the satisfaction of home.
+ - October is the fallen leaf, but it is also a wider horizon more clearly seen. It is the distant hills once more in sight, and the enduring constellations above them once again.
+ - There are no limits to either time or distance, except as man himself may make them. I have but to touch the wind to know these things.
+ - All man has to do is cooperate with the big forces, the sun, the rain, the growing urge. Seeds sprout, stems grow, leaves spread in the sunlight. Man plants, weeds, cultivates and harvests. It sounds simple, and it is simple, with the simplicity of great truths.
+ - April is a promise that May is bound to keep.
+ - March is a tomboy with tousled hair, a mischievous smile, mud on her shoes and a laugh in her voice.
+ - A frontier is never a place; it is a time and a way of life.
+ - Nature seems to look after her own only up to a certain point; beyond that they are supposed to fend for themselves.
+ - Summer is a promissory note signed in June, its long days spent and gone before you know it, and due to be repaid next January.
+ - A root, a stem, a leaf, some means of capturing sunlight and air and making food – in sum, a plant. The green substance of this earth, the chlorophyll, is all summed up in the plants. Without them we perish, all of us who are flesh and blood.
+ - Autumn is the eternal corrective. It is ripeness and color and a time of maturity; but it is also breadth, and depth, and distance. What man can stand with autumn on a hilltop and fail to see the span of his world and the meaning of the rolling hills that reach to the far horizon?
+ - You fight dandelions all weekend, and late Monday afternoon there they are, pert as all get out, in full and gorgeous bloom, pretty as can be, thriving as only dandelions can in the face of adversity.
+ - There it is, fog, atmospheric moisture still uncertain in destination, not quite weather and not altogether mood, yet partaking of both.
+ - As I stood and watched the mists slowly rising this morning I wondered what view was more beautiful than this.
+ - For the Fall of the year is more than three months bounded by an equinox and a solstice. It is a summing up without the finality of year’s end.
+ - Of all the seasons, autumn offers the most to man and requires the least of him.
+ - If you would know strength and patience, welcome the company of trees.
+ - Man is wise and constantly in quest of more wisdom; but the ultimate wisdom, which deals with beginnings, remains locked in a seed.
+ - Consider the wheelbarrow. It may lack the grace of an airplane, the speed of an automobile, the initial capacity of a freight car, but its humble wheel marked out the path of what civilization we still have.
+ - All walking is discovery. On foot we take the time to see things whole.
+ - For anyone who lives in the oak-and-maple area of New England, there is a perennial temptation to plunge into a purple sea of adjectives about October.
+ - The earth turns, and the seasons, and for all his pride and power man cannot temper the winds or change their course. They are the unseen tides that shape our days and our years.
+ - Nothing in nature is as simple as it sometimes seems when reduced to words.
+ - There are two seasonal diversions that can ease the bite of any winter. One is the January thaw. The other is the seed catalogues.
+ - Time has its own dimensions, and neither the sun nor the clock can encompass them all.
+ - Green, the color of growth, or surgent life, enwraps the land. New green, still as individual as the plants themselves. Cool green, which will merge as the weeks pass, the Summer comes, into a canopy of shade of busy chlorophyll.
+ - The longer I live and the more I read, the more certain I become that the real poems about spring aren’t written on paper. They are written in the back pasture and the near meadow, and they are issued in a new revised edition every April.
+ - Any river is really the summation of the whole valley. To think of it as nothing but water is to ignore the greater part.
+ - The ultimate wisdom which deals with beginnings, remains locked in a seed. There it lies, the simplest fact of the universe and at the same time the one which calls faith rather than reason.
+ - The owl, that bird of onomatopoetic name, is a repetitious question wrapped in feathery insulation especially for Winter delivery.
+ - If you ever wondered why fishing is probably the most popular sport in this country, watch that boy beside on the water and you will learn. If you are really perceptive you will. For he already knows that fishing is only one part fish.
+ - For all his learning or sophistication, man still instinctively reaches towards that force beyond. Only arrogance can deny its existence, and the denial falters in the face of evidence on every hand. In every tuft of grass, in every bird, in every opening bud, there it is.
+ - There are some things, but not too many, toward which the countryman knows he must be properly respectful if he would avoid pain, sickness and injury. Nature is neither punitive nor solicitous, but she has thorns and fangs as wells as bowers and grassy banks.
+ - To see a hillside white with dogwood bloom is to know a particular ecstasy of beauty, but to walk the gray Winter woods and find the buds which will resurrect that beauty in another May is to partake of continuity.
+ - There is a leisure about walking, no matter what pace you set, that lets down the tension.
+ - If the voice of the brook was not the first song of celebration, it must have been at least an obbligato for that event.
+ - The earth’s distances invite the eye. And as the eye reaches, so must the mind stretch to meet these new horizons. I challenge anyone to stand with autumn on a hilltop and fail to see a new expanse not only around him, but in him, too.
+ - The most unhappy thing about conservation is that it is never permanent. Save a priceless woodland or an irreplaceable mountain today, and tomorrow it is threatened from another quarter.
+ - Strip the hills, drain the boglands, and you create flood conditions inevitably. Yet that is what we have been doing for years.
+ - He who walks may see and understand. You can study all America from one hilltop, if your eyes are open and your mind is willing to reach. But first you must walk to that hill.
+ - Listen to it, and you are hearing the mighty currents of the air rushing down the latitudes of the earth, currents from the Mackenzie and the Athabasca and the Saskatchewan, and from the prairies and the white Tundra. It is a homeless wind, forever on the move.
+ - Man is not an aquatic animal, but from the time we stand in youthful wonder beside a Spring brook till we sit in old age and watch the endless roll of the sea, we feel a strong kinship with the waters of this world.
+ - Weekend planning is a prime time to apply the Deathbed Priority Test: On your deathbed, will you wish you’d spent more prime weekend hours grocery shopping or walking in the woods with your kids?
+
+50 quotes

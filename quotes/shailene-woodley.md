@@ -1,0 +1,77 @@
+ - I think the future of food is in insects.
+ - Start small – if you drink soda, stop drinking soda. You don’t have to make every single change at once or overnight, you can make them slowly to adjust to figure out what works for your body, there is no formula and there is also no right or wrong.
+ - I definitely live for the small moments and the big moments.
+ - If I’m passionate about something, I’ll do everything I can to be a part of it.
+ - I’m done living for other people. I’m done being a people pleaser. I’m done thinking about what people think about me.
+ - I think you have to love yourself and you have to have a strong sense of self-love in order to really show up for other people, because if you love yourself, you’re not questioning your own mind any more and you are really able to be present and available for others.
+ - Have you thanked your body today? Be grateful, stay positive.
+ - Every family is dysfunctional, whether you want to admit it or not.
+ - I think the most important thing in life is self-love, because if you don’t have self-love, and respect for everything about your own body, your own soul, your own capsule, then how can you have an authentic relationship with anyone else?
+ - I’m always like ‘I’m too skinny, I can’t gain weight, even when I try.’ I’d like to try to not let that get to me.
+ - I love arguing. I always say that I’ll never win a physical battle, but I can always win a mental battle. I mean, not really, because I never really argue with anyone.
+ - I think every script has meaningful messages no matter what it is, because inherently life is full of meaning and every single day we lean a lesson.
+ - You forget that you do choose your life, and there are so many things to be grateful for. I feel like society has gotten to that point where we’re always looking for the next and the better, and we lose sight of what’s actually in front of us.
+ - As a teenager, my struggle was how do I balance being empathetic and compassionate towards my peers, while also living my life for myself and not basing my decisions on those around me, and really living a life where I receive my happiness from my own experiences rather than from people pleasing.
+ - Worry is the product of a future that we cannot guarantee and guilt is the product of a past we cannot change.
+ - Everything is sacred and nothing is sacred.
+ - My religion is the Earth, man. I believe in trees.
+ - A quarter of my life has been spent on ‘Secret Life.’ I’m 20 and I’ve been doing it for five years, so I think the best moments have been when all the cast members get to work together and we get to collaborate and share experiences. We all grew up together.
+ - I started studying indigenous cultures and I was really inspired by their life styles and the way that they lived. Part of that was knowing how to survive in the wild and knowing how to heal themselves from the plants that grew around them.
+ - I feel like a turtleneck dress that’s long-sleeved and covers your entire body but is tight fitting is so much sexier than boobs spilling out, you know? So I guess I’m more into being classy sexy versus apparent sexy.
+ - I haven’t had time to think about a relationship! I literally have not had a boyfriend in almost five years. I’ve never even hooked up with anybody I’ve worked on a movie with.
+ - Every single journey that I’ve embarked on, I’ve learned something new.
+ - My only real insecurities in high school were having such long legs and thick hair – things I’m so very grateful for now.
+ - I want to see and taste and experience it all, I am curious by nature. I would actually really love to go to New Zealand.
+ - There are a lot of mountains with a lot of water.
+ - I live my life with a lot of integrity based on what I want for my life and who I am.
+ - I choose to surround myself with happy human beings. I went through the angsty period. I think every single person does. I think it’s a rite of passage to hate the world and feel like the victim.
+ - But in these few moments that we have here on Earth, are we going to torture ourselves? Or are we going to allow our lights to be dimmed? How do we expect men to respect women or women to rise to more power when we don’t respect our queendom in the same way that men respect their kingdom?
+ - You have only 30 seconds with a new person. I will give you a hug so you know I’m real, and then you’re real too.
+ - So many times, you get a script and it says, “And then, the character cries,” and you read the lines and think, “That would never make me cry. Those lines are so untruthful.” My approach is just to be honest to the situation.
+ - I’m generally a very annoyingly positive person, in real life. I think that might have something to do with my gravitation towards angry human beings on screen.
+ - I feel like I’m kind of an obvious person. I like to keep some things in my life sacred, like keep the sacred, sacred. Apart from that part of my life, I’m a very open person.
+ - Alcohol is a big part of high school. I went through my little phase. I don’t know one high schooler that doesn’t.
+ - Acting is fun and I refuse to get involved in the semantics and the politics of strategy and breaking out of something or doing something because you need to do something else. For me it’s all about what fuels my soul and if I’m passionate about a screenplay then that’s what I’ll do next.
+ - I never thought Hollywood is the life I want to do. I thought acting is the life I want to do.
+ - I think there is a point in every teenager’s life where they are forced to come into themselves.
+ - When it comes down to it, I’m just a girl who wears those five-finger weird toe shoes.
+ - The day the process of acting becomes something that I dread is the end. Obviously, why would you do something that you hate? I won’t do that.
+ - I’d like to be like a hummingbird. You see them every now and then. You don’t see them everywhere.
+ - Nothing really attracts me to the film industry, to be perfectly honest. I look at acting as an art, and that’s all it is for me. It’s just fun.
+ - Do you guys have any raw garlic?
+ - I’d always wanted to do a film than TV show because film is always where my heart has been. I like diving into the character for a few months, and then leaving it behind. I love the idea of that.
+ - For me, acting is about the art of it and it’s about being on a film set and doing your thing, painting a blank canvas.
+ - I love playing darker roles, or roles with meat. I feel very comfortable in that environment. I don’t know why. I don’t know what that says about me. I really enjoy doing complicated characters.
+ - For me, my rule in this industry is I’ve got to listen to my butterflies. So if I got butterflies, then those are the scripts I go after.
+ - You really can’t prepare for anything in life. The second you know what’s going to happen, there’s always a curve ball, so I’m just chillin’, cruising along for the ride.
+ - I was between 14 and 15, when I went through my angsty period. I was never very rebellious. I never did things to rebel against society, or against my parents, but I did think I knew everything. Then, one day, I woke up and realized I was a dot in this universe, and that quickly dissipated.
+ - This earth is exciting. There are so many things happening.
+ - The reason I keep acting is that it fuels some kind of passion in me, but the day that those butterflies stop, is the day that I’m gonna quit because I could care less about the magazines or being famous or the money or the awards.
+ - I’m not an actor who approaches films doing a lot of research. I do zero research, unless it’s a film where I’m playing a mock version of someone who already existed. Then, you’ve got to do a lot of research.
+ - I’ve been acting since I was young because I wanted to, not because my parents wanted me to. My dad is a principal and mom is a middle school counselor, so acting was like, “Eh, whatever. As long as you get good grades.” It’s really fun, and nothing more.
+ - There aren’t a lot of films about adolescents or quote-unquote coming-of-age films that are realistic nowadays.
+ - I think the best way to become a character is by osmosis as opposed to thinking directly about stuff. The more material that you have and understand and have a going in, then the more complex your character and the understanding of your character will be.
+ - A great actor is simply just seeing him or herself, and reacting to what exists around them.
+ - Working with a green screen is so different than working with another human.
+ - My favorite movies are movies that I go in and I leave deeply affected. Whether I laugh really hard or whether I cry really hard, I just want to feel really affected in that moment.
+ - I think you get the most honest performances when an actor shows up to set with their lines memorized. That’s a very important thing that a lot of people seem to forget.
+ - Everything is out of your control, and you can only be truthful about how you feel.
+ - I always find it fun to read a script and then find the messages in the script because I believe every story has them.
+ - Every single character in the world, every creature in the world has something to give and something to learn.
+ - I’m a pretty romantic person, I love little notes.
+ - I think every teenager goes through their angst. People who are like, ‘No, I had a perfect adolescence,’ make me wonder how that is possible.
+ - I think there’s a lot of work to be done with our societies. My biggest passions are the environment and health. And when I say ‘health’ I mean the secrets behind health and our food system.
+ - Clay is one of the best things you can put in your body.
+ - For me acting is a passion and an art, and always will only be that. I don’t have any rules when it comes to acting. I’ll do anything. But it depends on the script. Either I’ll have passion for the project or I won’t. It’s got to fuel me.
+ - People always ask about the transition from TV show to a movie, but it felt like just going to a different school. You don’t really notice the transition, when you’re in the moment.
+ - I feel like at the end of the day, as entertaining as movies are, when you’re part of them in a way, it’s this beautiful art form and that’s what it feels like for me. I’m not a painter, but I can express myself visually in a way that allows me to artistically create.
+ - I’m not really fond of the trails left in the sky and a lot of chemicals that are being pumped through factories and even in the clothes we wear.
+ - When you’re on set and you professionally listen to what the other actors have to say, then the emotion is naturally evoked.
+ - I’m already the most fortunate girl in the world, so I have zero expectations for what the future will bring.
+ - Romance is very particular to each individual and a very personalised thing.
+ - You have a pre-conceived notion of what you want the scene to be, but once you get there, that goes out the window and it turns out to be a way that you never imagined.
+ - I like to think of myself as a fairly educated human being, but I’m a very uneducated actor when it comes to movies, directors, producers, actors for that matter.
+ - George Clooney is a super-human, he’s just such an amazing human being, he taught me how to be a better person and a better actor!
+ - George Clooney sort of lost his ‘George Clooney-ness’ the first day I met him. He’s not George Clooney in my eyes – he’s George from Kentucky with an awesome, awesome heart.
+
+75 quotes

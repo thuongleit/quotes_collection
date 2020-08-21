@@ -1,0 +1,42 @@
+ - I wonder which will get you killed faster – your loyalty or your stubbornness?
+ - I am not afraid of you, your kind, or your god.
+ - I’ve never killed anyone before. What frightens me isn’t that I’m killing someone. What frightens me is how easy it is.
+ - We now play a permanent game of I-am-crazier-and-scarier-than-you. And in that game, my mother is our secret weapon.
+ - Your sense of judgement could use a dash of common sense.
+ - Sometimes, as we’re stumbling along in the dark, we hit something good.
+ - Bow down to me Pooky Bear, who has only two other equals in all the worlds.
+ - My dad once told me life would get complicated when I grew up. I’m guessing this isn’t what he meant. My mom, on the other hand, agreed with him, and I’m guessing this kind of thing is exactly what she meant.
+ - I knew from the start that your loyalty would get you killed. I just never thought it would be your loyalty to me that would do it.
+ - Don’t let my appearance fool you, Penryn. I am not human. The Daughters of Men are forbidden to Angels.
+ - I want to beg him not to leave. Tell him that I’m still here. But I lie frozen. All I can do is watch as he gets up. And disappears from my view.
+ - It is not the gentle kiss of a couple on a first date, nor is it the kiss of a man driven by simple lust. He kisses me with the desperation of a dying man who believes the magic of eternal life is in this kiss.
+ - Asleep, he looks like a bleeding Prince Charming chained in the dungeon. When I was little, I always thought I’d be Cinderella, but I guess this makes me the wicked witch. But then again, Cinderella didn’t live in a post-apocalyptic world invaded by avenging angels.
+ - I never thought about it before, but I’m proud to be human. We’re ever so flawed. We’re frail, confused, violent, and we struggle with so many issues. But all in all, I’m proud to be a Daughter of Man.
+ - You’re like a little girl demanding answers to questions during a covert operation. Why is the sky blue, daddy? Can I ask that man with the machine gun where the bathroom is? If you don’t stay quiet, I’m going to have to dump you.
+ - Don’t. Talk. About. Her.
+ - Anybody that ties you to a chair at gunpoint is a bad guy. Do I really need to explain this?
+ - A sense of humor is one more thing I don’t think angels should have. The fact that his sense of humor is corny makes it even more wrong.
+ - The next time you have a quarrel with me, I’d appreciate it if you could just talk to me first before resorting to pelting me with rocks.
+ - Either he’s shaken by something or he’s falling off the wagon hard and fast. Great. Just my luck to be partnered with an alcoholic angel.
+ - That calls for a witty comeback. “Whatever,” I say.
+ - I am an ant in the battlefield of the gods. There’s no room for pride or ego, and barely enough room for survival.
+ - Their presence and attitude remind me of Raffe. He would fit in. It’s easy to visualize him sitting in the booth with that group, drinking and laughing with the gang. Well, the laughing part takes a little imagination, but I’m sure he’s capable of it.
+ - Was that you, Pooky Bear?
+ - I hate it when she does that. There’s nothing more humiliating than being smacked by your crazy mother in front of your friends.
+ - She? You’re not one of those people who name their cars and coffee mugs, are you? It’s an inanimate object. Get over it.
+ - I bit my lip to focus on the fact that he’s actually giving me a plain answer to my question. He can’t help it if his voice is mesmerizingly sexy.
+ - He is the one pocket of warmth in a sea of ice. Being in his arms feels like the home I never had.
+ - Obi sits on the cot and ties my ankles together. I’m tempted to make a quip about requiring dinner and a movie before getting so kinky, but I don’t.
+ - You are nothing but a bird with an attitude.
+ - I stick to Raffe as close as I can manage without having to explain why I’m hugging his back.
+ - It is painful to see that people prefer a bad guy who looks like an angel to a good guy who looks like a demon.
+ - In the long second before everyone absorbs what just happened, I see the angel rolling his eyes heavenward, like a teenager in the presence of overwhelming lameness. Some people just have no sense of gratitude.
+ - My only thought is that I am not going to end up truly dead this time in Raffe’s arms. I am not going to be one more wound on his soul.
+ - A warm arm enfolds me like a shield around my shoulder and turns me toward the side of the stage. “Stay with me,” says a familiar masculine whisper from above my head. Even over the yelling of the mob and the roaring of the waves, something unfurls in my chest at the sound of that voice.
+ - It seems to be our fate to continually pass our debt back and forth.
+ - Nothing takes the romance and grandeur out of life than scrubbing stains out of sheets.
+ - Is that the beginning of an amused grin forming on the angel’s face?
+ - I’ve heard plenty of wacky things in my time and you just have to learn to roll with them without directly challenging the person spewing the weirdness. Challenging weirdness is a pointless and sometimes dangerous exercise.
+ - For once, I hold onto her craziness for strength. Sometimes, I just have to let go and let me inner Mom out.
+
+40 quotes

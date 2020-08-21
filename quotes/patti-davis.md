@@ -1,0 +1,44 @@
+ - It takes strength to make your way through grief, to grab hold of life and let it pull you forward.
+ - That is your legacy on this Earth when you leave this Earth: how many hearts you touched.
+ - You know, if you hang around this earth long enough you really see how things come full circle.
+ - I think the earlier stages of Alzheimer’s are the hardest. Particularly because the person knows that they are losing awareness. They’re aware that they’re losing awareness, and you see them struggling.
+ - Life Lesson 3: You can’t rush grief. It has its own timetable. All you can do is make sure there are lots of soft places around – beds, pillows, arms, laps.
+ - It’s one thing to show your love for someone when everything is going fine and life is smooth. But when the ‘in sickness and in health’ part kicks in and sickness does enter your lives, you’re tested. Your resilience is tested.
+ - I’m not the angry, rebellious child that I was. You can remain a child for a long time. I certainly did. I was a slow learner.
+ - I’m very comfortable writing in the first person; it dives into the character in a way that’s difficult if you’re writing in the third person.
+ - Alzheimer’s disease locks all the doors and exits. There is no reprieve, no escape.
+ - People love the way they’re capable of loving-but that’s not always how you want them to love or how you think they should love.
+ - My father started growing very quiet as Alzheimer’s started claiming more of him. The early stages of Alzheimer’s are the hardest because that person is aware that they’re losing awareness. And I think that that’s why my father started growing more and more quiet.
+ - I don’t think it’s an accident who our parents are; I believe we choose them. So maybe I chose my parents in order to effect change.
+ - My father’s body lies in a stone tomb high on a hill. People walk by, pause, think their own thoughts about him and move on, back to their own lives. I can never move on. He is everywhere.
+ - And as far as false hope, there is no such thing. There is only hope or the absence of hope – nothing else.
+ - When I was a child, our summer days were spent swimming; chlorine in my hair was like perfume to me.
+ - You have to separate yourself from your parents. You do. In order to find yourself.
+ - Politics isn’t what defines a person, and it shouldn’t define a relationship. I made the mistake of letting that intrude on my relationships.
+ - The most ethical way to deal with an unethical situation would be to simply say: ‘We did something wrong.’ But nobody in a family like mine would ever respond like this.
+ - Decades later I would look into my father’s eyes and try to reach past the murkiness of Alzheimer’s with my words, my apology, hoping that in his heart he heard me and understood.
+ - I think that nothing teaches you more about life than death and dying.
+ - The memories stayed with him for so long, and stayed vivid. And it didn’t matter to me that he’d already repeated that before. I could hear it forever.
+ - Christopher Reeve understood that everything begins with hope. His vision of walking again, his belief that he would be able to in his lifetime, towered over his broken body.
+ - My father, for his part, was not a man to begrudge anyone a divergent opinion; he’d have been fine if I had written some articles disagreeing with his policies, or even given interviews, as long as I was respectful and civil.
+ - I would not call myself a veteran conspiracy theorist. Or an obsessed one. I pretty much peaked on the whole conspiracy theory thing in the ’60s, with the grassy knoll, who really killed JFK, and who ordered the hit on Lee Harvey Oswald.
+ - I often imagine what it would be like if my father were still here to mark his 100th birthday, if Alzheimer’s hadn’t clawed away years, possibilities, hopes. What would he think of all the commemorations and celebrations?
+ - I have a feeling of reverence about my father being in his 80s – a feeling that I want to whisper, take soft steps, not intrude too much. He’s like a stately old cathedral to me now.
+ - Stories live in your blood and bones, follow the seasons and light candles on the darkest night-every storyteller knows she or he is also a teacher.
+ - I did what most writers do when something happens that’s overwhelming, fascinating, moving, all of that. I didn’t know what else to do about it except write about it.
+ - Of course, people say maybe there are some self-published books out there that shouldn’t be out there. Well, it’s the same with conventional publishing.
+ - Some people, when they die, leave so much life behind that we wonder how they did it.
+ - Just think: people decided one day that a day should be set aside for motherhood and fatherhood. What a great concept that is.
+ - I had this odd sibling rivalry with America.
+ - I knew people were independently publishing, and I buy books on Amazon. I began seriously considering it when Amanda Hocking was in the news about her self-publishing success.
+ - I think we can work through a lot of political and international problems, but what really frightens me is what’s happening environmentally.
+ - The thing about losing any loved one, I think, particularly in a long disease, is that you know that other people have gone through it and are going through it, but I think for every person it feels unique.
+ - America had taken my father from me. And over most of the years of his illness, I gradually started feeling this support system from this country who-people grieving along with us.
+ - I really just wanted to be a writer, but people tell you, ‘You should have a backup career,’ so I thought, ‘OK, I’ll act.’ That was the foolishness of my vision for my life – that my backup career would be completely undependable.
+ - The house I grew up in had large plate-glass windows, which birds frequently crashed into headfirst. My father helped me assemble a bird hospital, consisting of a few shoe boxes, some old rags, and tiny dishes for water and food.
+ - Even if the Bush Administration had flung open the gates to stem-cell research years ago, we would not be at the point of offering treatment today. Christopher Reeve would still have been taken from us. But we would be closer.
+ - Loss teaches you to figure things out as they come along.
+ - Laura Bush went on national television during the week of my father’s funeral and spoke out against embryonic stem cell research, pointing out that where Alzheimer’s is concerned, we don’t have proof that stem-cell treatment would be effective.
+ - There is a point in the grieving process when you can run away from memories or walk straight toward them.
+
+42 quotes

@@ -1,0 +1,25 @@
+ - I am tough but I have a soft side.
+ - When the tide goes out, you get to see who’s swimming naked. PIMCO has had its bathing suit on for a long time.
+ - Pay per click was just the beginning. The real evolution is pay per action.
+ - Finding the best person or the best organization to invest your money is one of the most important financial decisions you’ll ever make.
+ - Slow growth and inflation have a tendency to accompany large deficits and increasing debt as a percentage of GDP.
+ - When does money run out of time? The countdown begins when investable assets pose too much risk for too little return; when lenders desert credit markets for other alternatives such as cash or real assets.
+ - You know those adages about smelling the roses and chasing butterflies? The markets are my butterflies and my roses.
+ - With all this consumer debt, business debt, government debt, smaller movements in interest rates have a magnified effect. a small movement can tip the boat.
+ - Bond investors are the vampires of the investment world. They love decay, recession – anything that leads to low inflation and the protection of the real value of their loans.
+ - Whether a tops-down or bottoms-up investor in bonds, stocks, or private equity, the standard analysis tends to judge an investor or his firm on the basis of how the bullish or bearish aspects of the cycle were managed.
+ - Companies typically borrow money at less than their return on equity and therefore compound their return at the expense of lenders.
+ - Human nature means that institutions at some point lose their sense of mission. That sense of vulnerability drives Pimco.
+ - Ex-Fidelity mutual fund manager Peter Lynch was certainly brilliant in one respect: he knew to get out when the gettin was good.
+ - Well, I, you know, I think at PIMCO we always try and be open with the press and the public. I mean, isn’t that what voters want from their politicians? Mohamed El-Erian, our CEO, writes several op-eds a week.
+ - We are witnessing the death of abundance and the borning of austerity, for what may be a long, long time.
+ - Bond investors want growth much like equity investors, and to the extent that too much austerity leads to recession or stagnation then credit spreads widen out – even if a country can print its own currency and write its own cheques.
+ - If financial assets no longer work for you at a rate far and above the rate of true wealth creation, then you must work longer for your money.
+ - If companies don’t know that they can run out of money, they won’t be thinking of ways not to run out of money.
+ - Imperceptibly, the developed world’s manufacturing base was gradually eroding and being replaced by securitized finance that destroyed itself and nearly its economies in 2008.
+ - People have different impressions of themselves, and where reality lies is somewhere in between.
+ - Both from the standpoint of stocks and bonds, an investor wants to go where the growth is.
+ - Bernanke and company are trying to reflate the economy with almost stated objective of inflation at 2 percent and higher in order to provide some type of safety margin for a future recession. That’s where they want to go.
+ - Whenever I read the newspaper, I say to myself, ‘At least my wife loves me.’
+
+23 quotes

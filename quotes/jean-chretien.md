@@ -1,0 +1,42 @@
+ - You have to look at history as an evolution of society.
+ - A proof is a proof. What kind of a proof? It’s a proof. A proof is a proof. And when you have a good proof, it’s because it’s proven.
+ - It’s one thing for a courier service transport letters and documents from one city to another at a cost that only big business can afford; but it’s another thing to take a letter from an Indian boy studying at the University of Ottawa to his mother in Old Crow.
+ - God gave me a physical defect, I’ve accepted that since I was a kid. When I was a kid people were laughing at me. But I accepted that because God gave me other qualities and I’m grateful.
+ - Most Canadians don’t understand the House of Commons. They turn on their televisions, see us yelling at one another, and dismiss us as a bunch of fools.
+ - I’ve never believed in seeking perfection at the risk of losing everything.
+ - Canadian federalism is more than a form of government. It’s also a system of values that allows different people in diverse communities to live and work together in harmony for the good of all.
+ - I was proud to have been the anti-establishment candidate after more than twenty years in politics, a small town guy fighting for the ordinary Canadian.
+ - There will be no silence from Canada. Our friendship has no limit. Generation after generation we have traveled many difficult miles together side by side.
+ - The art of politics is learning to walk with your back to the wall, your elbows high, and a smile on your face. It’s a survival game played under the glare of lights.
+ - Economics has been called the dismal science. Once you get to understand it, you may not find it so dismal, but you don’t find it much of a science either.
+ - To be frank, politics is about wanting power, getting it, exercising it, and keeping it.
+ - President Bush is a friend of mine. He’s not a moron at all.
+ - Trudeau valued performance above image. He Knew he could give me a shovel if there was a mess to clean up, and he kept moving me from one mess to another.
+ - It is impossible to fully comprehend the evil that would have conjured up such a cowardly and depraved assault upon thousands of innocent people.
+ - Politics is a game of friends.
+ - A man can’t ask for much more than the chance to make a difference in his chosen field of work. Politics is my vocation. I’m forever grateful for the opportunity to contribute to this great country of ours. I know I am a better person for it.
+ - The problem was, I enjoyed Question Period too much and loved the challenge it provided. Far from being a dreaded burden, it had become an exciting part of my life; opposition members attacked me, I fought back, I won or lost or held them to draw, and the next day we did it all over again.
+ - Aline and I have travelled a very long, very hard road together, from our working class homes in rural Quebec to the palaces of London, Paris, Moscow, and Beijing. Politics was the route, public service the reward.
+ - Vision is not political rhetoric.
+ - I don’t know what is marijuana. Perhaps I will try it when it will no longer be criminal. I will have my money for my fine and a joint in the other hand.
+ - It is not the government’s purpose to make a profit the way a company does, because a company doesn’t have to give a damn about the unemployed poor or provide services that are non-commercial by definition.
+ - A leader has to know how the system functions – not just the system of government but the whole social and economic system, including business, the unions, and the universities.
+ - Why buy repeater carbines and nuclear armament – if this is kept at home a child can play with it.
+ - To my mind losing is always better than never trying, because you can never tell what may happen.
+ - I didn’t feel the need to have a lot of yes-men standing around me. As Mitchell Sharp once put it, the bigger the staff, the smaller the minister.
+ - The two of us had come a long way together from our humble beginnings and the basement apartment that had been our first home as newlyweds in 1957, when I was still a law student at Laval University in Quebec City.
+ - But I accepted that because God gave me other qualities and I’m grateful.
+ - Deficit reduction is not an end in itself. It is the means to an end. Canadians must now decide what kind of country they want to build with the hard-won dividend.
+ - Obviously, I would have been happier if Canada had not been conquered in the past by the English, if this part of North America had remained French, but you can’t rewrite history.
+ - Some information has to remain in the privy of the office of the Prime Minister and the ministers for the proper administration of government.
+ - There’s no such thing as a genius in politics, or at least I have never met one. There are only human beings, some better than others, who rise or fall on the challenges they meet.
+ - A successful politician must not only be able to read the mood of the public, he must have the skill to get the public on his side. The public is moved by mood more than logic, by instinct more than reason, and that is something that every politician must make use of or guard against.
+ - Three months later, on September 5, 2001, at a pro-am event preceding the Canadian Open at the Royal Montreal Golf Club, I was invited to play a round with Tiger Woods. Nothing in the game of politics had ever been as nerve-racking as that game of golf.
+ - Politicians of all stripes are always in danger at looking at every problem from an abstract point of view or being briefed by officials, academics, or economists who know every science but the science of human nature.
+ - For all its prestige, its fabulous views, its indoor pool, and its lovely garden, 24 Sussex is more like an old hotel than a modern home.
+ - There is nothing more nervous than a million dollars – it moves very fast, and it doesn’t speak any language.
+ - At one point Trudeau mentioned to me that the National Gallery wanted to buy a masterpiece by the great Italian painter Lotto, and it needed a million dollars from the Treasury Board. “Is that Lotto-Quebec or Lotto-Canada?” I joked, but I got the message, and the National Gallery got the painting.
+ - When you’re a mayor and you have a problem you blame the provincial government. If you are provincial government and you have a problem you blame the federal government. We don’t blame the Queen any more, so once in a while we might blame the Americans.
+ - Over the years, I have seen too many politicians ruin their careers because they could not accept defeat graciously.
+
+40 quotes

@@ -1,0 +1,39 @@
+ - Every science is a mutilated octopus. If its tentacles were not clipped to stumps, it would feel its way into disturbing contacts.
+ - The Earth is a farm. We are someone else’s property.
+ - Almost all people are hypnotics. The proper authority saw to it that the proper belief should be induced, and the people believed properly.
+ - The outrageous is the reasonable, if introduced politely.
+ - One can’t learn much and also be comfortable One can’t learn much and let anybody else be comfortable.
+ - All would be well. All would be heavenly – If the damned would only stay damned.
+ - Peasants have believed in dowsing, and scientists used to believe that dowsing was only a belief of peasants. Now there are so many scientists who believe in dowsing that the suspicion comes to me that it may only be a myth after all.
+ - Do unto others as you would have them do unto you, and you will make of their circumstances the litter you have made of your own.
+ - The fittest survive. What is meant by the fittest? Not the strongest; not the cleverest – weakness and stupidity everywhere survive. There is no way of determining fitness except in that a thing does survive. ‘Fitness,’ then, is only another name for ‘survival.’ Darwinism: That survivors survive.
+ - Venus de Milo. To a child she is ugly. When a mind adjusts to thinking of her as a completeness, even though, by physiologic standards, incomplete, she is beautiful.
+ - In measuring a circle, one begins anywhere.
+ - I shut the front door upon Christ and Einstein, and at the back door hold out a welcoming hand to little frogs and periwinkles. I believe nothing of my own that I have ever written. I cannot accept that the products of minds are subject-matter for beliefs.
+ - The ideal state is meekness, or humility, or the semi-invalid state of the old. Year after year I am becoming nobler and nobler. If I can live to be decrepit enough, I shall be a saint.
+ - I believe nothing of my own that I have ever written.
+ - When we come upon assurances that a mystery has been solved, we go on investigating.
+ - If there is a true universal mind, must it be sane?
+ - Existence is Appetite: the gnaw of being; the one attempt of all things to assimilate to some higher attempt.
+ - I have taken the stand that nobody can be always wrong, but it does seem to me that I have approximated so highly that I am nothing short of a negative genius.
+ - Against all the opposition in the world, I make this statement – that once I knew a magician. I was a witness of a performance that may some day be considered understandable, but that, in these primitive times, so transcends what is said to be the known that it is what I mean by magic.
+ - Sometimes I am a collector of data, and only a collector, and am likely to be gross and miserly, piling up notes, pleased with merely numerically adding to my stores.
+ - I think, therefore I’m going to have breakfast.
+ - A procession of the damned. By the damned, I mean the excluded. We shall have a procession of data that Science has excluded.
+ - All biologic phenomena act to adjust: there are no biologic actions other than adjustments. Adjustment is another name for Equilibrium. Equilibrium is the Universal, or that which has nothing external to derange it.
+ - Do you want power over something? Be more nearly real than it.
+ - One can’t be of an enquiring and experimental nature, and still be very sensible.
+ - The theologians have recognized that the ideal is the imitation of God. If we be a part of such an organic thing, this thing is God to us, as I am God to the cells that compose me.
+ - If any spiritualistic medium can do stunts, there is no more need for special conditions than there is for a chemist to turn down lights, start operations with a hymn, and ask whether there’s any chemical present that has affinity with something named Hydrogen.
+ - People with a psychological need to believe in marvels are no more prejudiced and gullible than people with a psychological need not to believe in marvels.
+ - There is not a physicist in the world who can perceive when a parlor magician palms off playing-cards.
+ - But Truth is that besides which there is nothing: nothing to modify it, nothing to question it, nothing to form an exception: the all-inclusive, the complete – By Truth, I mean the Universal.
+ - I conceive of nothing, in religion, science or philosophy, that is more than the proper thing to wear, for a while.
+ - The history of science is a record of the transformations of contempts amd amusements.
+ - The fate of all explanation is to close one door only to have another fly wide open.
+ - Science of to-day-the superstition of to-morrow. Science of to-morrow-the superstition of to-day.
+ - It is not possible to define. Nothing has ever been finally found out. Because there is nothing final to find out.
+ - It is our expression that the flux between that which isn’t and that which won’t be, or the state that is commonly and absurdly called “existence,” is a rhythm of heavens and hells: that the damned won’t stay damed; that salvation only precedes perdition.
+ - My liveliest interest is not so much in things, as in relations of things. I have spent much time thinking about the alleged pseudo-relations that are called coincidences. What if some of them should not be coincidences?
+
+37 quotes

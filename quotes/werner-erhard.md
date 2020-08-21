@@ -1,0 +1,75 @@
+ - The essence of communication is intention.
+ - It is important that you get clear for yourself that your only access to impacting life is action.
+ - Create your future from your future, not your past.
+ - Your life works to the degree you keep your agreements.
+ - Happiness is a function of accepting what is.
+ - You don’t have to go looking for love when it’s where you come from.
+ - If God told you exactly what it was you were to do, you would be happy doing it no matter what it was. What you’re doing is what God wants you to do. Be happy.
+ - Until you know that who you are is empty and meaningless, you don’t know anything.
+ - Life is a game. In order to have a game, something has to be more important than something else. If what already is, is more important than what isn’t, the game is over. So, life is a game in which what isn’t, is more important than what is. Let the good times roll.
+ - Happiness is a function of accepting what is. Love is a function of communication. Health is a function of participation. Self expression is a function of responsibility.
+ - At all times and under all circumstances, we have the power to transform the quality of our lives.
+ - Love is granting another the space to be the way they are and the way they are not.
+ - The fastest way to destroy love is to make a goal out of it, because people who are trying to be loved come from a place that they’re not loved.
+ - Self expression is a function of responsibility.
+ - Life is a ripoff when you expect to get what you want. Life works when you choose what you got. Actually what you got is what you chose. To move on, choose it.
+ - Don’t change beliefs. Transform the believer.
+ - In life you wind up with one of two things – the results or the reason why you don’t have the results. Results don’t have to be explained. They just are.
+ - Participation: What I intend to create is the opportunity for people to participate in the transformation of people. For me it is the highest expression of humanity to contribute, to facilitate, to participate in the transformation of humanity.
+ - All Knowledge is Divided into Three Domains: “What We Know”, “What We Know That We Don’t Know”, and “What We Don’t Know That We Don’t Know.”
+ - The reaction you got was the communication you intended.
+ - The only two things in our lives are aliveness and patterns that block our aliveness.
+ - Ride the horse in the direction that it’s going.
+ - In life, understanding is the booby prize.
+ - When you’ve said all of the bad things and all of the good things you haven’t been saying, you will find that what you’ve really been withholding is, “I love you.” You don’t have to go looking for love when it is where you come from.
+ - Begin building the future through “conversation for possibility.”
+ - There are only two things in the world: nothing and semantics.
+ - We distinguish integrity as a phenomenon of the objective state or condition of an object, system, person, group, or organizational entity, and define integrity as: a state or condition of being whole, complete, unbroken, unimpaired, sound, perfect condition.
+ - Instead of looking for a great leader, we are in an era where each of us needs to find the great leader within ourselves.
+ - Your power is a function of velocity, that is to say, your power is a function of the rate at which you translate intention into reality. Most of us disempower ourselves by finding a way to slow, impede, or make more complex than necessary the process of translating intention into reality.
+ - In every human being there is both garbage and gold, it is up to us to choose what we pay attention to.
+ - To take a stand for the future is to bring forth an opportunity not borne of the path we’ve taken in the past, but borne of a vision which we would create for ourselves.
+ - Heroes are ordinary men and women who dare to see and meet the call of a possibility bigger than themselves. Breakthroughs are created by such heroes, by men and women who will stand for the result while it is only a possibility – people who will act to make possibility real.
+ - Your life and my life have turned out, and once you get that, life goes on from a position of having turned out. That’s called playing the game from win.
+ - This is it. There are no hidden meanings. All that mystical stuff is just what’s so.
+ - Until you’ve completed your relationship with your parents, all your relationships will be about your parents.
+ - There is something I do not know, the knowing of which could change everything.
+ - Life is already together, and what you have to experience is experiencing it being together. The striving to put it together is a denial of the truth that it is actually already together and further striving keeps you from getting it together.
+ - One creates from nothing. If you try to create from something you’re just changing something. So in order to create something you first have to be able to create nothing.
+ - Whatever you are pushing against, you are stuck to.
+ - There are all kinds of futures. There is a hoped-for future, there is a feared future, there is a predictable future, and there is an unimagined future.
+ - The world is perfect the way it is.
+ - I used to be different. Now I’m the same.
+ - Living is really pretty simple. Living happens right now; it doesn’t happen back then, and it doesn’t happen out there. Living is not the story of your life. Living is the process of experiencing right now.
+ - Here’s my definition of a hero. A hero is an ordinary person given being and action by something bigger than themselves. One thing I’m sure about is I’m real ordinary. Yet I’ve had the chance to touch the lives of a lotta people.
+ - Individuals transform when there is a shift in the principle which orients their life from one of gaining satisfaction to one of expressing the satisfaction they’ve already got.
+ - Honoring your word is also the route to creating whole and complete social and working relationships. In addition, it provides an actionable pathway to earning the trust of others.
+ - If you keep saying it the way it really is, eventually your word is law in the universe.
+ - Maturity is doing whatever you want, even if your parents want the same thing.
+ - Pay no attention to critics. No one ever erected a statue to a critic.
+ - If its comfort you want, life is not the place to be.
+ - Happiness isn’t at the end of the rainbow. Happiness is at the beginning of the rainbow. Following the rainbow is happiness, not getting to the end of it.
+ - So long as you do not know who you really are, this will be difficult. You may have to give up a lot of things to which you may be attached. You may have to give up your resentments, your anger, your upset, your annoyance, your desire to punish.
+ - The quickest way to be happy is to choose what you already have.
+ - What we create together is a relationship in which our work can show up as making a difference in people’s lives. I welcome the unprecedented opportunity for us to work globally on that which concerns us all as human beings.
+ - The real purpose of est was to create space for people to participate in life – to experience true space and freedom in life.
+ - Consider that all accomplishment is constituted by a series of resolved breakdowns.
+ - We can choose to make our love for each other what our lives are really about.
+ - I didn’t arrive at the opportunity to make the world work for everyone by figuring out how to do it.
+ - While most managers spend their time attempting to predict the future accurately – and while that’s valuable – the best managers are able to generate a future which was not going to happen otherwise – that is, a future which was not predictable.
+ - What I recognized is that you can’t put it together. It’s already together, and what you have to do is experience it being together.
+ - Just like the front and the back of the hand, being and action are distinct yet inseparable.
+ - Until what is significant is created by you, you aren’t living your life, you are living some inherited life.
+ - Living is not the story of your life. Living is the process of experiencing right now.
+ - What gives people superiority at a task is true intention. That makes you attuned to everything.
+ - If you stand in the rain, you get wet, whether you understand water or not.
+ - Even the truth, when believed, is a lie. You must experience the truth, not believe it.
+ - The Truth, believed, is a lie.
+ - Man keeps looking for a truth that fits his reality. Given our reality, the truth doesn’t fit.
+ - I have a lot of respect for L. Ron Hubbard and I consider him to be a genius and perhaps less acknowledged than he ought to be.
+ - What is is and what isn’t ain’t.
+ - But that is like saying that the hole in the sand looks like the stick that you made the hole in the sand with. Holes in the sand and sticks are worlds apart. To put what happened into language would be like trying to describe a stick by telling you about the hole in the sand.
+ - The important question to ask is not ‘Will we surivive?’ but ‘What if we survive?’
+ - I have a lot of feeling for Ron Hubbard. His genius has not been sufficiently acknowledged.
+
+73 quotes

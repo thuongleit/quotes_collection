@@ -1,0 +1,59 @@
+ - Pronoia is the antidote for paranoia. It’s the understanding that the universe is fundamentally friendly. It’s a mode of training your senses and intellect so you’re able to perceive the fact that life always gives you exactly what you need, exactly when you need it.
+ - Love enmeshes you in your partner’s unique set of karmic complications, so make sure you’re very interested in his or her problems. Love is a laboratory where you can uncover secrets about yourself that have previously been hidden, so be ravenously curious.
+ - The world is crazily in love with you, wildly and innocently in love. Even now, thousands of secret helpers are conspiring to turn you into the beautiful curiosity you were born to be.
+ - We need radical curiosity and reverent pranks, voracious listening and ferocious thanks.
+ - Do you realize you can actually listen a person’s soul into existence? Your fervent interest in the inner life of those you care for can awaken their dormant powers. The teacher Richard Moss says ‘The greatest gift you can give another is the purity of your attention.’ Offer this gift.
+ - Life is a conspiracy to shower you with a nonstop feast of interesting experiences, all of which are designed to help you grow your intelligence, shed your pretensions, and master the art of ingenious love.
+ - You have to learn how to stay in a good mood as you overthrow the sour, puckered hallucination that is mistakenly referred to as reality.
+ - The revolution begins at home. If you overthrow yourself again and again, you might earn the right to help overthrow the rest of us.
+ - Only you can prevent the genocide of the imagination.
+ - Life always delivers the creative energy you need to change into the new thing you must become.
+ - I vow to interpret every experience as a direct healing of the Goddess with my soul.
+ - Proclaim the only truth you can be totally sure of: “I don’t know.”
+ - HYPOTHESES: Evil is boring. Cynicism is idiotic. Fear is a bad habit. Despair is lazy. Joy is fascinating. Love is an act of heroic genius. Pleasure is our birthright. Receptivity is a superpower.
+ - Can you imagine what it would feel like to become aware of an omnipresent ocean of wild divine love that has always been a secret to you in the same way that the sea is invisible to a fish?
+ - The 11th Commandment: Thou Shalt Not Bore God. The 12th Commandment: Thou Shalt Not Bore Thyself.
+ - God was my co-pilot, but we crashed in the mountains and I had to eat Him. Explain.
+ - Act as if the universe is a prodigious miracle created for your amusement and illumination. Assume that secret helpers are working behind the scenes to assist you in turning into the gorgeous masterpiece you were born to be. Join the conspiracy to shower all of creation with blessings.
+ - I’m allergic to dogma. I thrive on riddles. Any idea I believe, I reserve the right to disbelieve as well.
+ - If you bury your face in your tear-stained pillow and beg God to please send you your soul mate, may you not slur your words in such a way that they sound like “cell mate.”
+ - Mojo grace means the shocking benevolence of a mysterious force beyond our comprehension.
+ - May you eat an unfamiliar dessert in a strange land at least once every three years...
+ - Factual information alone isn’t sufficient to guide you through life’s labyrinthine tests. You need and deserve regular deliveries of uncanny revelation. One of your inalienable rights as a human being should therefore be to receive a mysteriously useful omen every day of your life.
+ - In its wild state, the truth is fluid, slippery, vagrant, scrambled, promiscuous, kaleidoscopic, and beautiful.
+ - BLASPHEMOUS REVERENCE. Acting on the knowledge that the most efficacious form or devotion to the Divine Wow is tinctured with playful or mischievous behavior that prevents the buildup of fanaticism.
+ - When they say “Be yourself,” which self do they mean?
+ - Remember your natural affection for all of creation.
+ - On you and me and everything, I bestow my ripe blessings and boisterous bliss...
+ - To be loved is a privilege and prize equivalent to being born. If you’re smart, you pause regularly to bask in the astonishing knowledge that there are many people out there who care for you and want you to thrive and hold you in their thoughts with fondness.
+ - All of us need to be in touch with a mysterious, tantalizing source of inspiration that teases our sense of wonder and goads us on to life’s next adventure.
+ - We’re searching for the answers so we can destroy them and dream up better questions.
+ - Break open the forbidden happiness.
+ - All of creation is alive and conscious, and all of creation deserves our burning, churning, yearning love. All of it. Not just the people and creatures and things that we personally find beautiful and helpful and interesting. But everything. All of creation.
+ - What worn-out shticks are blinding you to the blessings that life is conspiring to give you?
+ - You’re hungry for the infinite and the infinite is hungry for you.
+ - Somewhere there’s a treasure that has no value to anyone but you, and a secret that’s meaningless to everyone except you, and a frontier that harbors a revelation only you would know how to exploit. Why not go in search of those things?
+ - Your drive to produce hard-edged opinions stoked by hostility is likely a sign that you’ve been brainwashed by the pedestrian influences of pop nihilism.
+ - Obsessing on evil is boring. Rousing fear is a hackneyed shtick. Wallowing is despair is a bad habit. Indulging in cynicism is akin to committing a copycat crime.
+ - BIBLIOBLISS. Transported into states of transcendent pleasure while immersed in reading a favorite book.
+ - I will never again cast a curse on myself.
+ - Blow kisses to the oak trees and sparrows and elephants and weeds.
+ - Everyone who believes in the devil is the devil.
+ - Your sweet spot is in between the true believers and the scoffing skeptics...
+ - You’re alive because of love. You’re made of love.
+ - Anthropologists say that in every culture in history, children have played the game hide and seek.
+ - Not waiting for someone to give you what you can give yourself.
+ - Somewhere in the world there is a person who could ask you the precise question you need to hear in order to catalyze the next phase of your evolution. Do what’s necessary to run into that person.
+ - You need to evade every influence that tends to keep you frozen in the past.
+ - Any media-brainwashed automaton can summon the insipid courage to peer into the horrifying abyss. But it takes a freaking genius with a fearless imagination to peer into the maw of happiness.
+ - The fisherman of the Colombian coast must be learned doctors of ethics and morality, for they invented the word sentipensante, or ‘feeling-thinking’ to define language that speaks the truth. Eduardo Galeano.
+ - In the future, judges will send criminals to holy spots where reverence-provoking beauty will overwhelm their addiction to hatred.
+ - Do not steal something that already belongs to you or pine for people who are sitting right next to you.
+ - Are you apathetic toward the saccharine goodness evangelized by sentimental, superstitious fanatics, but equally bored by the intellectuals who worship at the empty-headed shrine of scientific materialism?
+ - But you will be hard-pressed to find more than a few novels, films, news stories, and TV shows that dare to depict life as a gift whose purpose is to enrich the human soul.
+ - Please take good care of it all, OK? Be an enlightened monarch who treats your domain with reverent responsibility. And make sure you also enjoy the full measure of fun that comes with such mastery. Glide through life as if all of creation is yearning to honor and entertain you.
+ - Anger has become one of the trendiest emotions of all. In moderation it can be a righteous force for constructive change. But its hackneyed omnipresence means the vast majority of its outbreaks are trivial. The paucity of colorful obscenities is aggravated by an abundance of frivolous fury.
+ - Don’t save your enormous creativity for “something better.” Give it to this.
+ - Enjoy saying “no!” but don’t make it the wellspring of your vitality. Be fueled by blood-red yeses...
+
+57 quotes

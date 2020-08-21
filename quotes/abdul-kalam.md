@@ -1,0 +1,123 @@
+ - Dream is not that which you see while sleeping it is something that does not let you sleep.
+ - If you want to shine like the sun, first burn like the sun.
+ - You cannot change your future, but you can change your habits, and surely your habits will change your future.
+ - Success is when your signature becomes an autograph.
+ - All birds find shelter during a rain. But eagle avoids rain by flying above the clouds. Problems are common, but attitude makes the difference.
+ - Confidence and hard work is the best medicine to kill the disease called failure. It will make you successful person.
+ - Learning gives creativity. Creativity leads to thinking. Thinking provides knowledge. Knowledge makes you great.
+ - Don’t read success stories, you will only get a message. Read failure stories, you will get some ideas to get success.
+ - Don’t take rest after your first victory because if you fail in second, more lips are waiting to say that your first victory was just luck.
+ - To succeed in your mission, you must have single-minded devotion to your goal.
+ - Problems are common, but attitude makes the difference.
+ - One best book is equal to hundred good friends but one good friend is equal to a library.
+ - It Is very easy to defeat someone, but it is very hard to win someone.
+ - I’m not a handsome guy, but I can give my hand to someone who needs help. Beauty is in the heart, not in the face.
+ - Without your involvement you can’t succeed. With your involvement you can’t fail.
+ - The best brains of the nation may be found on the last benches of the classroom.
+ - Dreams are not those which comes while we are sleeping, but dreams are those when u don’t sleep before fulfilling them.
+ - Once your mind stretches to a new level it never goes back to its original dimension.
+ - Thinking should become your capital asset, no matter whatever ups and downs you come across in your life.
+ - We are all born with a divine fire in us. Our efforts should be to give wings to this fire and fill the world with the glow of its goodness.
+ - Difficulties in your life do not come to destroy you, but to help you realise your hidden potential and power, let difficulties know that you too are difficult.
+ - What is the secret of success? Right decisions. How do you make right decisions? Experience. How do you gain experience? Wrong decisions.
+ - You see, God helps only people who work hard. That principle is very clear.
+ - In this world, fear has no place. Only strength respects strength.
+ - Dream, Dream Dream Dreams transform into thoughts And thoughts result in action.
+ - Never stop fighting until you arrive at your destined place – that is, the unique you. Have an aim in life, continuously acquire knowledge, work hard, and have perseverance to realise the great life.
+ - A Fool can become a Genius when he understands he is a Fool but. A Genius can become a Fool when he understands he is a Genius.
+ - Be active! Take on responsibility! Work for the things you believe in. If you do not, you are surrendering your fate to others.
+ - Man needs his difficulties because they are necessary to enjoy success.
+ - We should not give up and we should not allow the problem to defeat us.
+ - If you are born with fame, it is an accident. If you die with fame, it is an achievement.
+ - Look at the sky. We are not alone. The whole universe is friendly to us and conspires only to give the best to those who dream and work.
+ - No matter what is the environment around you, it is always possible to maintain your brand of integrity.
+ - You have to dream before your dreams can come true.
+ - When mother is happy, family is happy. When family is happy, nation is happy.
+ - Let us sacrifice our today so that our children can have a better tomorrow.
+ - As a young citizen of India, armed with technology and love for my nation, I realize, a small aim is a crime.
+ - Thinking is the capital, Enterprise is the way, Hard Work is the solution.
+ - Life is a difficult game. You can win it only by retaining your birthright to be a person.
+ - Adversity always presents opportunities for introspection.
+ - No sanction can stand against ignited minds.
+ - When learning is purposeful, creativity blossoms. When creativity blossoms, thinking emanates. When thinking emanates, knowledge is fully lit. When knowledge is lit, economy flourishes.
+ - As a child of God, I am greater than anything that can happen to me.
+ - A teacher should have a creative mind.
+ - For great men, religion is a way of making friends; small people make religion a fighting tool.
+ - Total commitment is the common denominator among all successful men and women.
+ - Work with integrity and succeed with integrity.
+ - Great dreams of great dreamers are always transcended.
+ - Let me define a leader. He must have vision and passion and not be afraid of any problem. Instead, he should know how to defeat it. Most importantly, he must work with integrity.
+ - Creativity is the key to success in the future, and primary education is where teachers can bring creativity in children at that level.
+ - When we tackle obstacles, we find hidden reserves of courage and resilience we did not know we had. And it is only when we are faced with failure do we realise that these resources were always there within us. We only need to find them and move on with our lives.
+ - Climbing to the top demands strength, whether it is to the top of Mount Everest or to the top of your career.
+ - One of the very important characteristics of a student is to question. Let the students ask questions.
+ - I was willing to accept what I couldn’t change.
+ - A developed India by 2020, or even earlier, is not a dream. It need not be a mere vision in the minds of many Indians. It is a mission we can all take up – and succeed.
+ - For me, there are two types of people: the young and the experienced.
+ - While children are struggling to be unique, the world around them is trying all means to make them look like everybody else.
+ - English is necessary as at present original works of science are in English. I believe that in two decades times original works of science will start coming out in our languages. Then we can move over like the Japanese.
+ - The bird is powered by its own life and by its motivation.
+ - There are forces in life working for you and against you. One must distinguish the beneficial forces from the malevolent ones and choose correctly between them.
+ - Teaching is a very noble profession that shapes the character, caliber, and future of an individual. If the people remember me as a good teacher, that will be the biggest honour for me.
+ - God, our Creator, has stored within our minds and personalities, great potential strength and ability. Prayer helps us tap and develop these powers.
+ - Those who cannot work with their hearts achieve but a hollow, half-hearted success that breeds bitterness all around.
+ - The youth need to be enabled to become job generators from job seekers.
+ - Building capacity dissolves differences. It irons out inequalities.
+ - Thinking is progress. Non-thinking is stagnation of the individual, organisation and the country. Thinking leads to action. Knowledge without action is useless and irrelevant. Knowledge with action, converts adversity into prosperity.
+ - War is never a lasting solution for any problem.
+ - All wars signify the failure of conflict resolution mechanisms, and they need post-war rebuilding of faith, trust and confidence.
+ - Do we not realize that self respect comes with self reliance?
+ - India has to be transformed into a developed nation, a prosperous nation and a healthy nation, with a value system.
+ - We have not invaded anyone. We have not conquered anyone. We have not grabbed their land, their culture, their history and tried to enforce our way of life on them.
+ - Educationists should build the capacities of the spirit of inquiry, creativity, entrepreneurial and moral leadership among students and become their role model.
+ - The Earth is the most powerful and energetic planet.
+ - One lesson that every nation can learn from China is to focus more on creating village-level enterprises, quality health services and educational facilities.
+ - India should walk on her own shadow – we must have our own development model.
+ - We must think and act like a nation of a billion people and not like that of a million people. Dream, dream, dream!
+ - My impression of the American people can be summarized by a quotation from Benjamin Franklin, Those things that hurt instruct! I realised that people in this part of the world meet their problems head on. They attempt to get out of them rather than suffer them.
+ - What is politics? Political system is equal to development politics plus political politics.
+ - Everyone’s life is a page in the human history irrespective of the position he or she holds or the work he or she performs.
+ - To line only for some unknown future is superficial.
+ - Pondering must turn out to be your cash asset, regardless of whichever ups and downs you occur throughout in the everyday living.
+ - When a nation is surrounded by weaponized nations, she has to equip herself.
+ - I’m not an expert on the arms race.
+ - My worthiness is all my doubt His Merit- all my fear- Contrasting which my quality Does however appear.
+ - We will be remembered only if we give to our younger generation a prosperous and safe India, resulting out of economic prosperity coupled with civilizational heritage.
+ - All God’s creatures are His family; and he is the most beloved of God who tries to do most good to God’s creatures.
+ - The government, whether state or central, is elected. That means we have a responsibility to elect the right kind of leaders.
+ - For 2,500 years, India has never invaded anybody.
+ - Nations consist of people. And with their effort, a nation can accomplish all it could ever want.
+ - In a democracy, the well-being, individuality and happiness of every citizen is important for the overall prosperity, peace and happiness of the nation.
+ - My view is that at a younger age your optimism is more and you have more imagination etc. You have less bias.
+ - We need to create brand institutions. In the fortune 500 companies, 5 Indian companies are named while 15 are from China though we have similar kind of populations.
+ - Today, India is a nuclear weapons state.
+ - Economy forced me to become a vegetarian, but I finally starting liking it.
+ - Measuring nuclear yield depends on multiple parameters – the location and number of instruments, the geology of the area, the location of the seismic station in relation to the test site.
+ - We should remember that there are nations which meet more than 30 to 60% of their power requirements through the nuclear power system.
+ - Every nation has to follow a certain policy: Commercial, trade, various other types of policies.
+ - Developing nations want to become developed nations.
+ - The Bay of Bengal is hit frequently by cyclones. The months of November and May, in particular, are dangerous in this regard.
+ - Convergence of our views on global trade issues under the WTO and our common resolve to combat terrorism provide a valuable base for mutual understanding.
+ - Be more dedicated to making solid achievements than in running after swift but synthetic happiness.
+ - Poetry comes from the highest happiness or the deepest sorrow.
+ - This is my belief: that through difficulties and problems God gives us the opportunity to grow. So when your hopes and dreams and goals are dashed, search among the wreckage, you may find a golden opportunity hidden in the ruins?.
+ - Let not thy winged days be spent in vain. Whenonce gone no gold can buy them back again.
+ - If we are not free, no one will respect us.
+ - Most of the time, communication gets confused with conversation. In fact, the two are distinctly different.
+ - Why are we, as a nation so obsessed with foreign things? Is it a legacy of our colonial years? We want foreign television sets. We want foreign shirts. We want foreign technology. Why this obsession with everything imported?
+ - If a country is to be corruption free and become a nation of beautiful minds, I strongly feel there are three key societal members who can make a difference. They are the father, the mother and the teacher.
+ - My message, especially to young people is to have courage to think differently, courage to invent, to travel the unexplored path, courage to discover the impossible and to conquer the problems and succeed. These are great qualities that they must work towards. This is my message to the young people.
+ - Writing is my love. If you love something, you find a lot of time. I write for two hours a day, usually starting at midnight; at times, I start at 11.
+ - Behind the parents stands the school, and behind the teacher the home.
+ - No religion has mandated killing others as a requirement for its sustenance or promotion.
+ - Almost half of the population of the world lives in rural regions and mostly in a state of poverty. Such inequalities in human development have been one of the primary reasons for unrest and, in some parts of the world, even violence.
+ - An economically peaceful and prosperous Sri Lanka is the dream of youth of the nation. My message for the youth is to collectively work for an inclusively developed Sri Lanka.
+ - The wealth of information now available at the click of a finger amazes me.
+ - It means, people who are in high and responsible positions, if they go against righteousness, righteousness itself will get transformed into a destroyer.
+ - When grand plans for scientific and defence technologies are made, do the people in power think about the sacrifices the people in the laboratories and fields have to make?
+ - How accurately can the law fix the crime? There has to be a mechanism for very fast action. The law is like this: catch them and punish them.
+ - Today, India consumes about 682 watts per capita, far lesser than developed nations. As India develops, it will definitely require a lot more energy.
+ - In India we only read about death, sickness, terrorism, crime.
+ - The President’s post should not be politicised. Once a president is elected, he is above politics.
+
+121 quotes

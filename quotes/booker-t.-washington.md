@@ -1,0 +1,102 @@
+ - There are two ways of exerting one’s strength: one is pushing down, the other is pulling up.
+ - Egotism is the anesthetic that dulls the pain of stupidity.
+ - Associate yourself with people of good quality, for it is better to be alone than to be in bad company.
+ - Those who are happiest are those who do the most for others.
+ - If you want to lift yourself up, lift up someone else.
+ - I have learned that success is to be measured not so much by the position that one has reached in life as by the obstacles which he has overcome while trying to succeed.
+ - Living is the art of loving. Loving is the art of caring. Caring is the art of sharing. Sharing is the art of living. If you want to lift yourself up, lift up someone else.
+ - Success always leaves footprints.
+ - I let no man drag me down so low as to make me hate him.
+ - We all should rise, above the clouds of ignorance, narrowness, and selfishness.
+ - The highest test of the civilization of any race is in its willingness to extend a helping hand to the less fortunate.
+ - Excellence is to do a common thing in an uncommon way.
+ - Success is not measured by where you are in life, but the obstacles you’ve over come.
+ - I will permit no man to narrow and degrade my soul by making me hate him.
+ - Character, not circumstances, makes the man.
+ - Nothing ever comes to one, that is worth having, except as a result of hard work.
+ - Start where you are with what you have, knowing that what you have is plenty enough.
+ - Never let your work drive you. Master it and keep it in complete control.
+ - You measure the size of the accomplishment by the obstacles you have to overcome to reach your goals.
+ - Few things can help an individual more than to place responsibility on him, and to let him know that you trust him.
+ - Of all forms of slavery there is none that is so harmful and degrading as that form of slavery which tempts one human being to hate another by reason of his race or color. One man cannot hold another man down in the ditch without remaining down in the ditch with him.
+ - It often requires more courage to suffer in silence than to rebel, more courage not to strike back than to retaliate, more courage to be silent than to speak.
+ - I have begun everything with the idea that I could succeed, and I never had much patience with the multitudes of people who are always ready to explain why one cannot succeed.
+ - No one can degrade us except ourselves.
+ - Holding a grudge does not hurt the person against whom the grudge is held, it hurts the one who holds it.
+ - You may fill your heads with knowledge or skillfully train your hands, but unless it is based upon high, upright character, upon a true heart, it will amount to nothing. You will be no better than the most ignorant.
+ - Success waits patiently for anyone who has the determination and strength to seize it.
+ - There is a certain class of race problem-solvers who don’t want the patient to get well, because as long as the disease holds out they have not only an easy means of making a living, but also an easy medium through which to make themselves prominent before the public.
+ - Character is power.
+ - The thing to do when one feels sure that he has said or done the right thing and is condemned, is to stand still and keep quiet. If he is right, time will show it.
+ - The circumstances that surround a man’s life are not important. How that man responds to those circumstances IS IMPORTANT. His response is the ultimate determining factor between success and failure.
+ - We must not only become reliable, progressive, skillful and intelligent, but we must keep the idea constantly before our youths that all forms of labor, whether with the hand or head, are honorable.
+ - No race can prosper till it learns that there is as much dignity in tilling a field as in writing a poem.
+ - I believe that any man’s life will be filled with constant and unexpected encouragement, if he makes up his mind to do his level best each day, and as nearly as possible reaching the high-water mark of pure and useful living.
+ - Political activity alone cannot make a man free. Back of the ballot, he must have property, industry, skill, economy, intelligence, and character.
+ - You can’t hold a man down without staying down with him.
+ - Remember that everyone’s life is measured by the power that individual has to make the world better-this is all life is.
+ - If you can’t read, it’s going to be hard to realize dreams.
+ - I shall never permit myself to stoop so low as to hate any man.
+ - I think I have learned that the best way to lift one’s self up is to help someone else.
+ - Ignorance is more costly to any State than education.
+ - No man, who continues to add something to the material, intellectual and moral well-being of the place in which he lives, is left long without proper reward.
+ - Too often the educational value of doing well what is done, however little, is overlooked. One thing well done prepares the mind to do the next thing better. Not how much, but how well, should be the motto. One problem thoroughly understood is of more value than a score poorly mastered.
+ - In the long run, the world is going to have the best, and any difference in race, religion, or previous history will not keep the world from what it wants.
+ - In order to be successful in any undertaking, I think the main thing is for one to grow to the point where he completely forgets himself; that is, to lose himself in a great cause. In proportion as one loses himself in this way, in the same degree does he get the highest happiness out of his work.
+ - If no other consideration had convinced me of the value of the Christian life, the Christ like work which the Church of all denominations in America has done during the last 35 years for the elevation of the black man would have made me a Christian.
+ - The older I grow, the more I am convinced that there is no education which one can get from books and costly apparatus that is equal to that which can be gotten from contact with great men and women.
+ - We do not want the men of another color for our brothers-in-law, but we do want them for our brothers.
+ - No race that has anything to contribute to the markets of the world is long in any degree ostracized.
+ - You go to school, you study about the Germans and the French, but not about your own race. I hope the time will come when you study black history too.
+ - An inch of progress is worth a yard of complaint.
+ - I learned the lesson that great men cultivate love, and that only little men cherish a spirit of hatred. I resolved then that I would permit no man, no matter what his color, to narrow and degrade my soul by making me hate him.
+ - I pity from the bottom of my heart any nation or body of people that is so unfortunate as to get entangled in the net of slavery.
+ - If I have done anything in life worth attention, I feel sure that I inherited the disposition from my mother.
+ - At the bottom of education, at the bottom of politics, even at the bottom of religion, there must be for our race economic independence.
+ - We don’t just borrow words; on occasion, English has pursued other languages down alleyways to beat them unconscious and rifle their pockets for new vocabulary.
+ - Success in life is founded upon attention to the small things rather than to the large things; to the every day things nearest to us rather than to the things that are remote and uncommon.
+ - There is no escape – man drags man down, or man lifts man up.
+ - In all things social we can be as separate as the fingers, yet one as the hand in all things essential to mutual progress.
+ - Never get to the point where you will be ashamed to ask anybody for information. The ignorant man will always be ignorant if he fears that by asking another for information he will display ignorance. Better once display your ignorance of a certain subject than always know nothing of it.
+ - Great men cultivate love and only little men cherish a spirit of hatred; assistance given to the weak makes the one who gives it strong; oppression of the unfortunate makes one weak.
+ - Dignify and glorify common labor. It is at the bottom of life that we must begin, not at the top.
+ - I pity from the bottom of my heart any individual who is so unfortunate as to get into the habit of holding race prejudice, for nothing else makes one so blind and narrow.
+ - No greater injury can be done to any youth than to let him feel that because he belongs to this or that race he will be advanced in life regardless of his own merits or efforts.
+ - Think about it: we went into slavery pagans; we came out Christians. We went into slavery pieces of property; we came out American citizens. We went into slavery with chains clanking about our wrists; we came out with the American ballot in our hands...
+ - The world cares very little about what a man or woman knows; it is what the man or woman is able to do that counts.
+ - We shall prosper as we learn to do the common things of life in an uncommon way. Let down your buckets where you are.
+ - The man who has learned to do something better than anyone else, has learned to do a common thing in an uncommon manner, is the man who has a power and influence that no adverse circumstances can take from him.
+ - The longer I live and the more experience I have of the world, the more I am convinced that, after all, the one thing that is most worth living for-and dying for, if need be-is the opportunity of making someone else more happy.
+ - Progress, progress is the law of nature; under God it shall be our eternal guiding star.
+ - There is no power on earth that can neutralize the influence of a high, simple and useful life.
+ - A race, like an individual, lifts itself up by lifting others up.
+ - Mere connection with what is known as a superior race will not permanently carry an individual forward unless the individual has worth.
+ - Do not do that which others can do as well.
+ - I think I have learned, in some degree at least, to disregard the old maxim “”Do not get others to do what you can do yourself.“” My motto on the other hand is; “”Do not do that which others can do as well.
+ - The individual who can do something that the world wants done will, in the end, make his way regardless of his race.
+ - Men may make laws to hinder and fetter the ballot, but men cannot make laws that will bind or retard the growth of manhood.
+ - From some things that I have said one may get the idea that some of the slaves did not want freedom. This is not true. I have never seen one who did not want to be free, or one who would return to slavery.
+ - In my contact with people, I find that, as a rule, it is only the little, narrow people who live for themselves, who never read good books, who do not travel, who never open up their souls in a way to permit them to come into contact with other souls – with the great outside world.
+ - I believe that one always does himself and his audience an injustice when he speaks merely for the sake of speaking. I do not believe that one should speak unless, deep down in his heart, he feels convinced that he has a message to deliver.
+ - The wisest among my race understand that agitations of social equality is the extremist folly, and that progress in the enjoyment of all privileges that will come to us must be the result of severe and constant struggle rather than of artificial forcing.
+ - There is no defense or security for any of us except in the highest intelligence and development of all.
+ - I never liked the atmosphere of Washington. I early saw that it was impossible to build up a race of which the leaders were spending most of their time, thought and energy in trying to get into office, or in trying to stay there after they were in.
+ - No white American ever thinks that any other race is wholly civilized until he wears the white man’s clothes, eats the white man’s food, speaks the white man’s language, and professes the white man’s religion.
+ - Lay hold of something that will help you, and then use it to help somebody else.
+ - Many strikes and similar disturbances might be avoided if the employers would cultivate the habit of getting nearer to their employees, of consulting and advising with them, and letting them feel that the interests of the two are the same.
+ - It means a great deal, I think, to start off on a foundation which one has made for oneself.
+ - Educated men and women, especially those who are in college, very often get the idea that religion is fit only for the common people. No young man or woman can make a greater error than this...
+ - Every person who has grown to any degree of usefulness, every person who has grown to distinction, almost without exception has been a person who has risen by overcoming obstacles, by removing difficulties, by resolving that when he met discouragement he would not give up.
+ - You must understand the troubles of that man farthest down before you can help him.
+ - It is important and right that all privileges of the law be ours, but it is vastly more important that we be prepared for the exercise of those privileges.
+ - To those of my race who depend on bettering their condition in a foreign land or who underestimate the importance of cultivating friendly relations with the Southern white man, who is their next-door neighbor, I would say ‘Cast down your bucket where you are.’
+ - Decide to be your best. In the long run the world is going to want and have the best and that might as well be you.
+ - Let our opportunities overshadow our grievances.
+ - A life is not worth much of which it cannot be said, when it comes to its close, that it was helpful to humanity.
+ - My whole life has largely been one of surprises.
+ - In proportion as one renders service he becomes great.
+ - I believe that my race will succeed in proportion as it learns to do a common thing in an uncommon manner; learns to do a thing so thoroughly that no one can improve upon what it has done; learns to make its services of indispensable value.
+ - I early learned that it is a hard matter to convert an individual by abusing him, and that this is more often accomplished by giving credit for all the praiseworthy actions performed than by calling attention alone to all the evil done.
+ - Each one should remember there is a chance for him.
+
+100 quotes

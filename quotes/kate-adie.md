@@ -1,0 +1,25 @@
+ - I keep telling myself to calm down, to take less of an interest in things and not to get so excited, but I still care a lot about liberty, freedom of speech and expression, and fairness in journalism.
+ - The better the information it has, the better democracy works. Silence and secrecy are never good for it.
+ - I have never been attracted to any kind of violence.
+ - I have nothing to do with the selection of stories. I’m the reporter.
+ - My job is to get to the heart of a story, to find out what’s really going on; to get it verified and, then, to get it out to as many people as possible as fast as.
+ - No two wars are identical.
+ - I don’t want to be involved in endless media gossip.
+ - If I’m in danger then it’s usually my fault and it’s up to me to get myself out of it. I am not in it just to get an adrenalin rush. No way!
+ - I was timid and frightened as a child. Yours truly did not shin up mountains or do any other kind of adventurous stuff.
+ - War zones are dangerous, protests can be violent, also, natural disasters are difficult to cover, so there are going to be risks.
+ - But in the first Gulf war the United Kingdom was not under any threat from Iraq, and is still less so in the second one. Then there is no justification for obstructing freedom of information, particularly as nations have a right to know what their soldiers are being used for.
+ - People always seem to assume that we have a full, back-up support team – make-up, costume and a driver – but usually, in a war zone, there’s only me and the cameraman.
+ - Having had loving people who brought me up, and then I find another set of people. That really is a double blessing.
+ - I wrote in the book very specifically what I wanted to write about, period, and left it at.
+ - Now children as young as nine carry AK47s which can kill 30 people in seconds.
+ - In any war, there is a concealment of certain kinds of setbacks because it’s propaganda for the enemy.
+ - Hair is also a problem. I remember once, when I was reporting from Beirut at the height of the civil war, someone wrote in to the BBC complaining about my appearance.
+ - There was no equal pay law when I started working. I was no different to any other woman in any other job at the time.
+ - Up until about 12 years ago we never, ever, wore flak jacket or helmets but now the nastiness has got worse.
+ - I never desired to go into war zones. I never had any thought about it. It sort of just happened as part of the job.
+ - I also read modern novels – I have just had to read 60 as I am one of the judges for the Orange Fiction Prize.
+ - I sailed through my childhood with a complete lack of any drama.
+ - I’ve never been one to sit around and eat my heart out. Life’s too short.
+
+23 quotes

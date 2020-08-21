@@ -1,0 +1,107 @@
+ - Life’s hard. It’s even harder when you’re stupid.
+ - Courage is being scared to death, but saddling up anyway.
+ - A man's got to do what a man's got to do.
+ - Tomorrow is the most important thing in life. Comes into us at midnight very clean. It's perfect when it arrives and it puts itself in our hands. It hopes we've learned something from yesterday.
+ - True grit is making a decision and standing by it, doing what must be done.
+ - Talk low, talk slow and don’t say too much.
+ - If you can’t be thankful for what you have, be thankful for what you have escaped.
+ - A man’s got to have a code, a creed to live by, no matter his job.
+ - All battles are fought by scared men who'd rather be some place else.
+ - When you stop fighting, that’s death.
+ - I have tried to live my life so that my family would love me and my friends respect me. The others can do whatever the hell they please.
+ - Life is getting up one more time than you’ve been knocked down.
+ - I won’t be wronged. I won’t be insulted. I won’t be laid a-hand on. I don’t do these things to other people, and I require the same from them.
+ - The reason there are so many stupid people is because it’s illegal to kill them.
+ - I didn’t vote for him, but he’s my President, and I hope he does a good job.
+ - I want to play a real man in all my films, and I define manhood simply: men should be tough, fair, and courageous, never petty, never looking for a fight, but never backing down from one either.
+ - Sure I wave the American flag. Do you know a better flag to wave?
+ - It rankles me when somebody tries to force somebody to do something.
+ - Sure I wave the American flag. Do you know a better flag to wave? Sure I love my country with all her faults. I’m not ashamed of that, never have been, never will be.
+ - Nobody ever saw a cowboy on the psychiatrist’s couch.
+ - Life is tough, but if you are stupid, it’s a lot tougher.
+ - We brought nothing into this world and it’s certain we can carry nothing out.
+ - Ahh, women! I never met one yet that was half as reliable as a horse!
+ - A long time ago, I made me a rule. I let people do what they want to do.
+ - You have to be a man before you can be a gentleman.
+ - I am an old-fashioned, honest-to-goodness, flag waving patriot.
+ - There’s right and there’s wrong. You got to do one or the other. You do the one and you’re living. You do the other and you may be walking around, but you’re dead as a beaver hat.
+ - A friend of mine told me to shoot first and ask questions later. I was going to ask him why, but I had to shoot him.
+ - You’re short on ears and long on mouth.
+ - It’s kind of a sad thing when a normal love of country makes you a super patriot. I do think we have a pretty wonderful country, and I thank God that He chose me to live here.
+ - Republic. I like the sound of the word.
+ - Cause even grown men need understanding.
+ - It’s getting to be ri-goddamn-diculous.
+ - America is the land of freedom and that’s the way I enjoy living.
+ - Tomorrow hopes we have learned something from yesterday.
+ - I’d like to know why well-educated idiots keep apologizing for lazy and complaining people who think the world owes them a living.
+ - A man ought to do what he thinks is right.
+ - A man deserves a second chance, but keep an eye on him.
+ - Never apologize, mister, it’s a sign of weakness.
+ - Well, there are some things a man just can’t run away from.
+ - Give the American people a good cause, and there’s nothing they can’t lick.
+ - Government has no wealth, and when a politician promises to give you something for nothing, he must first confiscate that wealth from you – either by direct taxes, or by the cruelly indirect tax of inflation.
+ - I’ve always followed my father’s advice: he told me, first to always keep my word and, second, to never insult anybody unintentionally. If I insult you, you can be goddamn sure I intend to. And, third, he told me not to go around looking for trouble.
+ - Get off your horse and drink your milk.
+ - Of course I know who you are. You’re my girl. I love you.
+ - Most men hate to shop. That’s why the men’s department is usually on the first floor of a department store, two inches from the door.
+ - I’m a greedy old man. Life’s been good to me, and I want some more of it.
+ - My hope and prayer is that everyone know and love our country for what she really is and what she stands for.
+ - Men forget everything; women remember everything.
+ - I never trust a man that doesn’t drink.
+ - Healthy, lusty sex is wonderful.
+ - I drink for comradeship, and when I drink for comradeship, I don’t bother to keep count.
+ - I’m sure we can talk things out like civilized people.
+ - All men hate to hear “We need to talk about our relationship.” These seven words strike fear in the heart of even General Schwartzkopf.
+ - This kind of war, you’ve gotta believe in what you’re fighting for.
+ - Out here a man settles his own problems.
+ - The West – the very words go straight to that place of the heart where Americans feel the spirit of pride in their western heritage – the triumph of personal courage over any obstacle, whether nature or man.
+ - Sometimes I wonder whose side God’s on.
+ - A man is no better than he has to be.
+ - Screw ambiguity. Perversion and corruption masquerade as ambiguity. I don’t trust ambiguity. John Wayne.
+ - Senator Joseph McCarthy was one of the greatest Americans who ever lived.
+ - One look that works is better than twenty lines of dialogue.
+ - I believe in white supremacy until the blacks are educated to the point of responsibility. I don’t believe in giving authority and positions of leadership and judgment to irresponsible people.
+ - Women have the right to work wherever they want, as long as they have the dinner ready when you get home.
+ - When you come slam bang up against trouble, it never looks half as bad if you face up to it.
+ - The hyphenated American is ridiculous. But that’s what we have to put up with. I think that any person that’s in the United States is better off here than they would be where they came from.
+ - I’m the stuff men are made of!
+ - I eat as much as I ever did, I drink more than I should, and my sex life is none of your goddamned business.
+ - I’m an American actor. I work with my clothes on. I have to. Riding a horse can be pretty tough on your legs and elsewheres.
+ - Paul Newman would have been a much more important star if he hadn’t always tried to be an anti-hero, to show the human feet of clay.
+ - I play John Wayne in every part regardless of the character, and I’ve been doing okay, haven’t I?
+ - The fire is not discriminating. It burns anything in its path for whatever reason.
+ - I don’t want ever to appear in a film that would embarrass a viewer. A man can take his wife, mother, and his daughter to one of my movies and never be ashamed or embarrassed for going.
+ - You’re going to think I’m being corny, but this is how I really feel: I hope my family and my friends will be able to say that I was an honest, kind and fairly decent man.
+ - When you come to see a picture of mine, I want you to know that I’m not going to do anything that will make you uncomfortable. I want you to know that you won’t be disappointed in me.
+ - I figured I needed a gimmick, so I dreamed up this drawl, the squint and a way of moving meant to suggest that I wasn’t looking for trouble but would just as soon throw a bottle at your head as not. I practiced in front of a mirror.
+ - I believe humor nullifies violence.
+ - I’ve had three wives, six children and six grandchildren and I still don’t understand women.
+ - If everything isn’t black and white, I say, ‘Why the hell not?’
+ - In my acting, I have to identify with something in the character. The big tough boy on the side of right – that’s me. Simple themes. Same me from the nuances. All I do is sell sincerity and I’ve been selling the hell out of that ever since I started.
+ - The only thing they can get me for is running a funeral parlor without a license.
+ - I don’t have to assert my virility. I think my career has shown that I’m not exactly a pantywaist. But I do take pride in my work, even to the point of being the first one on the set in the morning. I’m a professional.
+ - But don’t get me wrong. As far as a man and a woman is concerned, I’m awfully happy there’s a thing called sex. It’s an extra something God gave us. I see no reason why it shouldn’t be in pictures. Healthy, lusty sex is wonderful.
+ - I am a demonstrative man, a baby picker-upper, a hugger and a kisser – that’s my nature.
+ - I’ve made over 250 pictures and have never shot a guy in the back. Change it.
+ - I stick to simple themes. Love. Hate. No nuances. I stay away from psychoanalyst’s couch scenes. Couches are good for one thing.
+ - COWBOYS, just like the word says.
+ - Jesus Christ! I would crawl over the mountains of Beverly Hills on my hands and knees if I could do a movie with Doris Day!
+ - The guy you see on the screen isn’t really me. I’m Duke Morrison, and I never was and never will be a film personality like JOHN WAYNE. I know him well. I’m one of his closest students. I have to be. I made a living out of him.
+ - I never killed a man I didn’t have to.
+ - Thanking people is dangerous business. A name always slips your mind.
+ - Get off your butt and join the Marines!
+ - That’s why men need instant replays in sports. They’ve already forgotten what happened.
+ - Oscar and I have something in common. Oscar first came to Hollywood scene in 1928. So did I. We’re both a little weather-beaten, but we’re still here and plan to be around for a whole lot longer.
+ - Hell, the truth is that I was named after a dog!
+ - Any man who’d make an X-rated movie ought to have to take his daughter to see it.
+ - General MacArthur told me, “You represent the American serviceman better than the American serviceman himself.”
+ - We built your fort. We will not have it used against us.
+ - My main object in making a motion picture is entertainment. If at the same time I can strike a blow for liberty, then I’ll stick one in.
+ - Westerns are closer to art than anything else in the motion picture business.
+ - Contrary to what people think, I’m no politician, and when I have something to say I say it through my movies.
+ - Out here, due process is a bullet.
+ - Let’s say I hope that I appeal to the more carefree times in a person’s life rather than to his reasoning adulthood. I’d just like to be an image that reminds someone of joy rather than of the problems of the world.
+ - There’s been no top authority saying what marijuana does to you. I really don’t know that much about it. I tried it once but it didn’t do anything to me.
+ - I don’t feel we did wrong in taking this great country away from them. There were great numbers of people who needed new land, and the Indians were selfishly trying to keep it for themselves.
+
+105 quotes

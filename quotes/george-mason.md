@@ -1,0 +1,49 @@
+ - The laws of nature are the laws of God, whose authority can be superseded by no power on earth.
+ - I ask, sir, what is the militia? It is the whole people except for a few public officials.
+ - The freedom of the press is one of the great bulwarks of liberty, and can never be restrained but by despotic governments.
+ - All men are by nature born equally free and independent.
+ - No free government, or the blessings of liberty, can be preserved to any people, but by a firm adherence to justice, moderation, temperance, frugality and virtue.
+ - Don’t wait around for your life to happen to you. Find something that makes you happy, and do it. Because everything else is all just background noise.
+ - The Laws of Nature are the Laws of God, Whose authority can be superseded by no power on earth. A legislature must not obstruct our obedience to Him from whose punishment they cannot protect us. All human constitutions which contradict His laws, we are in conscience bound to disobey.
+ - Happiness and Prosperity are now within our Reach; but to attain and preserve them must depend upon our own Wisdom and Virtue.
+ - That in controversies respecting property, and in suits between man and man, the ancient trial by jury is preferable to any other, and ought to be held sacred.
+ - We came equals into this world, and equals shall we go out of it.
+ - I give and bequeath my soul to Almighty God that gave it me, hoping that through the meritorious death and passion of our Savior and Redeemer Jesus Christ to receive absolution and remission for all my sins.
+ - Every selfish motive therefore, every family attachment, ought to recommend such a system of policy as would provide no less carefully for the rights and happiness of the lowest than of the highest orders of Citizens.
+ - I am now pretty far advanced in life, and all my views are center’d in the Happiness and well-fare of my children; you will therefore find from me every Indulgence which you have a right to expect from an affectionate Parent.
+ - Considering the natural lust for power so inherent in man, I fear the thirst of power will prevail to oppress the people.
+ - The augmentation of slaves weakens the states; and such a trade is diabolical in itself, and disgraceful to mankind.
+ - Those gentlemen, who will be elected senators, will fix themselves in the federal town, and become citizens of that town more than of your state.
+ - Slavery discourages arts and manufactures.
+ - No point is of more importance than that the right of impeachment should be continued. Shall any man be above Justice?
+ - That no man, or set of men, are entitled to exclusive or separate emoluments or privileges from the community, but in consideration of public services; which, not being descendible, neither ought the offices of magistrate, legislator, or judge to be hereditary.
+ - Is it to be expected that the Southern States will deliver themselves bound hand and foot to the Eastern States? A few rich merchants in Philadelphia, Boston, and New York could thereby monopolise the staples of the Southern States and reduce their value.
+ - I have been for some time in Retirement, and shall not probably return again to public Life; yet my Anxiety for my Country, in these Times of Danger, makes me sometimes dabble a little in Politicks, and keep up a Correspondence with some Men upon the public Stage.
+ - That the people have a Right to mass and to bear arms; that a well regulated militia composed of the Body of the people, trained to arms, is the proper natural and safe defense of a free state, that standing armies, in time of peace, are dangerous to liberty, and therefore ought to be avoided...
+ - I begin to grow heartily tired of the etiquette and nonsense so fashionable in this city.
+ - Our All is at Stake, and the little Conveniencys and Comforts of Life, when set in Competition with our Liberty, ought to be rejected not with Reluctance but with Pleasure.
+ - That the people have a right to uniform government; and, therefore, that no government separate from, or independent of the government of Virginia, ought to be erected or established within the limits thereof.
+ - All power is lodged in, and consequently derived from, the people. We should wear it as a breastplate, and buckle it on as our armour.
+ - I determined to spend the Remainder of my Days in privacy and Retirement with my Children, from whose Society alone I cou’d expect Comfort.
+ - There is a Passion natural to the Mind of man, especially a free Man, which renders him impatient of Restraint.
+ - Taught to regard a part of our own Species in the most abject and contemptible Degree below us, we lose that Idea of the dignity of Man which the Hand of Nature had implanted in us, for great and useful purposes.
+ - One of the first principles of decorative art is that in all manufactures ornament must hold a place subordinate to that of utility; and when, by its exuberance, ornament interferes with utility, it is misplaced and vulgar.
+ - I thank God, I have been able, by adopting Principles of strict Economy and Frugality, to keep my principal, I mean my Country-Estate, unimpaired.
+ - That all power of suspending laws, or the execution of laws, by any authority, without consent of the representatives of the people, is injurious to their rights, and ought not to be exercised.
+ - Habituated from our Infancy to trample upon the Rights of Human Nature, every generous, every liberal Sentiment, if not extinguished, is enfeebled in our Minds.
+ - Attend with Diligence and strict Integrity to the Interest of your Correspondents and enter into no Engagements which you have not the almost certain Means of performing.
+ - The question then will be, whether a consolidated government can preserve the freedom and secure the rights of the people.
+ - If I can only live to see the American union firmly fixed, and free governments well established in our western world, and can leave to my children but a crust of bread and liberty, I shall die satisfied.
+ - All men have an equal, natural and unalienable right to the free exercise of religion, according to the dictates of conscience; and that no particular sect or society of Christians ought to be favored or established by law in preference to others.
+ - Every society, all government, and every kind of civil compact therefore, is or ought to be, calculated for the general good and safety of the community.
+ - We owe to our Mother-Country the Duty of Subjects but will not pay her the Submission of Slaves.
+ - I wish I knew where to get a good one myself; for I find cold Sheets extreamly disagreeable.
+ - Nothing so strongly impels a man to regard the interest of his constituents, as the certainty of returning to the general mass of the people, from whence he was taken, where he must participate in their burdens.
+ - In all our associations; in all our agreements let us never lose sight of this fundamental maxim – that all power was originally lodged in, and consequently is derived from, the people.
+ - I quitted my Seat in the House of Delegates, from a Conviction that I was no longer able to do any essential Service.
+ - As much as I value an union of all the states, I would not admit the southern states into the union, unless they agreed to the discontinuance of this disgraceful trade, because it would bring weakness and not strength to the union.
+ - The poor despise labor when performed by slaves.
+ - As nations can not be rewarded or punished in the next world they must be in this.
+ - I retired from public Business from a thorough Conviction that it was not in my Power to do any Good, and very much disgusted with Measures, which appeared to me inconsistent with common Policy and Justice.
+
+47 quotes

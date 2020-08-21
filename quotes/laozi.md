@@ -1,0 +1,502 @@
+ - When the student is ready the teacher will appear.
+ - Watch your thoughts, they become words. Watch your words, they become actions. Watch your actions, they become habit.
+ - Health is the greatest possession.
+ - Knowing others is intelligence; knowing yourself is true wisdom. Mastering others is strength; mastering yourself is true power.
+ - A journey of 1000 miles begins with one step.
+ - New beginnings are often disguised as painful endings.
+ - Knowing others is wisdom, knowing yourself is enlightenment.
+ - Each new day is a blank page in the diary of your life. The secret of success is in turning that diary into the best story you possibly can. I wish you Happy New Year and diary full of best stories ever written in your life.
+ - Mastering others is strength. Mastering oneself makes you fearless.
+ - Care about people’s approval and you will be their prisoner.
+ - The Tao of the sage is work without effort.
+ - Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step.
+ - Make your heart like a lake, with calm, still surface, and great depths of kindness.
+ - In work, do what you enjoy.
+ - Let things flow naturally forward in whatever way they like.
+ - The key to growth is the introduction of higher dimensions of consciousness into our awareness.
+ - Empty your mind of all thoughts.
+ - If you tell me, I will listen. If you show me, I will see. If you let me experience, I will learn!
+ - Practice not-doing and everything will fall into place.
+ - People aren’t against you; they are for themselves. The most dangerous risk of all – the risk of spending your life not doing what you want on the bet you can buy yourself the freedom to do it later. He who conquers others is strong, he who conquers himself is mighty.
+ - Truly, the greatest gift you have to give is that of your own self-transformation.
+ - The wise man is one who knows what he does not know.
+ - True power is stillness within motion.
+ - The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own.
+ - Life is a series of natural and spontaneous changes. Don’t resist them; that only creates sorrow. Let reality be reality. Let things flow naturally forward in whatever way they like.
+ - Knowing ignorance is strength; ignoring knowledge is sickness.
+ - Water is fluid, soft, and yielding. But water will wear away rock, which is rigid and cannot yield. As a rule, whatever is fluid, soft, and yielding will overcome whatever is rigid and hard. This is another paradox: what is soft is strong.
+ - At the center of your being you have the answer; you know who you are and you know what you want.
+ - Fill your bowl to the brim and it will spill. Keep sharpening your knife and it will blunt. Chase after money and security and your heart will never unclench. Care about people’s approval and you will be their prisoner. Do your work, then step back. The only path to serenity.
+ - The most powerful weapon known is the weapon of blessing. Therefore, a clever person relies on it. He wins with peace, not with war.
+ - If you want to know me, look inside your heart.
+ - One who believes in himself has no need to convince others.
+ - Success is as dangerous as failure. Hope is as hollow as fear.
+ - You cannot receive what you don’t give. Outflow determines inflow.
+ - Guns don’t kill people – people do.
+ - Hear no evil. See no evil. Speak no evil.
+ - Simple, like uncarved wood.
+ - Can you deal with the most vital matters by letting events take their course? Can you step back from you own mind and thus understand all things? Giving birth and nourishing, having without possessing, acting with no expectations, leading and not trying to control: this is the supreme virtue.
+ - The power of intuitive understanding will protect you from harm until the end of your days.
+ - The eternal void is filled with infinite possibilities.
+ - Nothing is softer or more flexible than water, yet nothing can resist it.
+ - When nothing is done, nothing is left undone.
+ - In the end, The treasure of life is missed by those who hold on and gained by those who let go.
+ - A good artist lets his intuition lead him wherever it wants.
+ - If you search everywhere, yet cannot find what you are seeking, it is because what you seek is already in your possession.
+ - To lead people, walk behind them.
+ - The Master observes the world, but trusts his inner vision. He allows things to come and go. His heart is as open as the sky.
+ - There are many paths to enlightenment. Be sure to take the one with a heart.
+ - A tree that cannot bend will crack in the wind. Thus by nature’s own decree, the soft and gentle are triumphant.
+ - Free from desire, you realize the mystery, caught in the desire, you see only the manifestations.
+ - Be still. Stillness reveals the secrets of eternity.
+ - The master understands that the universe is forever out of control.
+ - When there is no desire, all things are at peace.
+ - From caring comes courage.
+ - The world is ruled by letting things take their course. It cannot be ruled by interfering.
+ - Truthful words are not beautiful; beautiful words are not truthful. Good words are not persuasive; persuasive words are not good.
+ - A winner listens, a loser just waits until it is their turn to talk.
+ - He who loves does not dispute: He who disputes does not love.
+ - Health is the greatest possession. Contentment is the greatest treasure. Confidence is the greatest friend. Non-being is the greatest joy.
+ - To conquer others is to have power, to conquer yourself is to know the way.
+ - Be careful what you water your dreams with. Water them with worry and fear and you will produce weeds that choke the life from your dream.
+ - If you look to others for fulfillment, you will never be truly fulfilled.
+ - Failure is the foundation of success: success is the lurking place of failure.
+ - The Master’s power is like this. He lets all things come and go effortlessly, without desire. He never expects results; thus he is never disappointed. He is never disappointed; thus his spirit never grows old.
+ - A vessel is formed from a lump of clay with care, however, it is the empty space within the vessel that makes it useful.
+ - Peace is our natural state of being.
+ - Returning to the source is stillness, which is the way of nature. The way of nature is unchanging. Knowing constancy is insight.
+ - People in their handlings of affairs often fail when they are about to succeed. If one remains as careful at the end as he was at the beginning, there will be no failure.
+ - When pure sincerity forms within, it is outwardly realized in other people’s hearts.
+ - Seeing the small is called clarity.
+ - In the pursuit of learning, every day something is acquired. In the pursuit of Tao, every day something is dropped.
+ - The Tao is always at ease. It overcomes without competing, answers without speaking a word, arrives without being summoned, accomplishes without a plan. Its net covers the whole universe. And though its meshes are wide, it doesn’t let a thing slip through.
+ - Attain utmost emptiness. Abide in steadfast stillness.
+ - Those who know it do not speak about it. Those who speak about it do not know it.
+ - Only those who leisurely approach that which the masses are busy about can be busy about that which the masses take leisurely.
+ - Respond intelligently even to unintelligent treatment.
+ - Leadership is your ability to hide your panic from others.
+ - Water is the softest thing, yet it can penetrate mountains and earth. This shows clearly the principle of softness overcoming hardness.
+ - Before healing others, heal yourself.
+ - Mask your brightness. Be at one with the dust of the earth. This is primal union.
+ - The Tao that can be told is not the eternal Tao. The name that can be named is not the eternal Name.
+ - The Tao is great. The universe is great. Earth is great. Man is great. These are the four great powers. Man follows the earth. Earth follows the universe. The universe follows the Tao. The Tao follows only itself.
+ - We are all capable of much more than we think we are.
+ - A good speaker does not stutter.
+ - A good runner leaves no footprints.
+ - Battles are followed by years of famine.
+ - Without the tao, Kindness and compassion are replaced by law and justice; Faith and trust are supplanted by ritual and ceremony.
+ - Rule your mind with serenity rather than with force and manipulation.
+ - My own words are not the medicine, but a prescription; not the destination, but a map to help you reach it. When you get there, quiet your mind and close your mouth. Don’t analyze the Tao. Strive instead to live it: silently, undividedly, with your whole harmonious being.
+ - Going on means going far, going far means returning.
+ - Freedom from desire leads to inner peace.
+ - All streams flow to the sea because it is lower than they are. Humility gives it its power.
+ - When goodness is lost, it is replaced by morality.
+ - Meandering leads to perfection.
+ - Violence, even well intentioned, always rebounds upon oneself.
+ - The usefulness of the pot lies in its emptiness.
+ - If you go searching for the Great Creator, you will come back empty-handed. The source of the universe is ultimately unknowable, a great invisible river flowing forever through a vast and fertile valley. Silent and uncreated, it creates all things.
+ - The Tao is unpredictable to those that live according to plans. Only those who have no agenda are in harmony with the Tao.
+ - Have patience. Wait until the mud settles and the water is clear. Remain unmoving until right action arises by itself.
+ - Through return to simple living comes control of desires. In control of desires stillness is attained. In stillness the world is restored.
+ - The highest truth cannot be put into words.
+ - By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning.
+ - Without law or compulsion, men would dwell in harmony.
+ - From wonder into wonder existence opens.
+ - Dualistic thinking is a sickness.
+ - The more laws and restrictions there are, the poorer the people become.
+ - Time is a created thing. To say ‘I don’t have time’ is to say ‘I don’t want to.’
+ - If you have truely attained wholeness, everything will flock to you.
+ - Those who praise themselves do not prevail.
+ - The way of heaven is to help and not harm.
+ - Man at his birth is supple and tender, but in death, he is rigid and hard. Thus, suppleness and tenderness accompany life, but rigidity and hardness accompany death.
+ - The virtuous carry out the settlement, but those without virtue pursue their claims.
+ - Those who boast are not respected.
+ - Why separate your spiritual life and your practical life? To an integral being, there is no such distinction.
+ - Racing and hunting excite man’s heart to madness.
+ - The leader’s main job is to make themselves obsolete.
+ - If you realize that you have enough, you are truly rich.
+ - It is as though he listened and such listening as his enfolds us in silence in which at last we begin to hear what we are meant to be.
+ - Wise men hear and see as little children do.
+ - To know and not to do is not yet to know.
+ - The best soldier does not attack. The superior fighter succeeds without violence. The greatest conqueror wins without struggle. The most successful manager leads without dictating. This is intelligent non aggressiveness.
+ - Goodness in words creates trust, goodness in thinking creates depth, goodness in giving creates love.
+ - The seed of mystery lies in muddy water. How can I perceive this mystery? Water becomes clear through stillness. How can I become still? By flowing with the stream.
+ - There is no greater sin than desire, No greater curse than discontent, No greater misfortune than wanting something for oneself. Therefore he who knows that enough is enough will always have enough.
+ - If you realize that all things change, there is nothing you will try to hold on to. If you are not afraid of dying, there is nothing you cannot achieve.
+ - Use your own light and return to the source of light. This is called practicing eternity.
+ - Can you love or guide someone without any kind of expectation?
+ - There is no illusion great than fear.
+ - When the effective leader is finished with his work, the people say it happened naturally.
+ - There is no calamity greater than lavish desires. There is no greater guilt than discontent. And there is no greater disaster than greed.
+ - The wise man, after learning something new, is afraid to learn anything more until he has put his first lesson into practice.
+ - Simply see that you are at the center of the universe, and accept all things and beings as parts of your infinite body. When you perceive that an act done to another is done to yourself, you have understood the great truth.
+ - Softness triumphs over hardness, feebleness over strength. What is more malleable is always superior over that which is immoveable. This is the principle of controlling things by going along with them, of mastery through adaptation.
+ - First, we must do our own personal work, then we tend the necessary work of our family, then our community, then the world.
+ - Without going outside, you may know the whole world, without looking through the window, you may see the ways of heaven. The farther you go, the less you know. Thus the sage knows without traveling; he sees without looking; he works without doing.
+ - Cultivate virtue in yourself, and it will be true.
+ - The difficult problems in life always start off being simple. Great affairs always start off being small.
+ - On the one hand, loss implies gain; on the other hand, gain implies loss.
+ - Just as the value of a house lies in its location, The value of a mind lies in its depth, The value of giving lies in the presence of a generous spirit, The value of words lies in their reliability.
+ - Sometimes gain comes from losing, and sometimes loss comes from gaining.
+ - The river and the sea can be kings of a hundred valleys, because they lie below them.
+ - Failure is an opportunity. If you blame someone else, there is no end to the blame. Therefore the Master fulfills her own obligations and corrects her own mistakes. She does what she needs to do and demands nothing of others.
+ - Stop thinking, and end your problems. What difference between yes and no? What difference between success and failure? Must you value what others value, avoid what others avoid? How ridiculous!
+ - He who prides himself upon wealth and honor hastens his own downfall.
+ - To become learned, each day add something. To become enlightened, each day drop something.
+ - Treat those who are good with goodness, and also treat those who are not good with goodness. Thus goodness is attained. Be honest to those who are honest, and be also honest to those who are not honest. Thus honesty is attained...
+ - Who can rest until the moment of action?
+ - Understand this if nothing else: spiritual freedom and oneness with the Tao are not randomly bestowed gifts, but the rewards of conscious self-transformation and self-evolution.
+ - To joy in conquest is to joy in the loss of human life.
+ - He who knows enough is enough will always have enough.
+ - First and last follow each other.
+ - By moderation one can be generous.
+ - Lay plans for the accomplishment of the difficult before it becomes difficult; make something big by starting with it when small.
+ - Watch your thoughts, they become words...
+ - To see things in the seed, that is genius.
+ - Complete your task. Seek no reward. Make no claims. Without faltering fully choose to do what you must do.
+ - Not knowing of the eternal leads to unfortunate errors.
+ - If you would take, you must first give.
+ - In the Way of Heaven, there is no partiality of love; it is always on the side of the good man.
+ - Goodie-goodies are the thieves of virtue.
+ - The Great Tao flows everywhere, to the left and to the right, all things depend on it to exist, and it does not abandon them. To its accomplishments it lays no claims. It loves and nourished all things, but does not lord it over them.
+ - The wicked leader is he who the people despise. The good leader is he who the people revere. The great leader is he who the people say, ‘We did it ourselves.’
+ - The master accomplishes more and more by doing less and less until finally he accomplishes everything by doing nothing.
+ - The best people are like water, which benefits all things and does not compete with them. It stays in lowly places that others reject. This is why it is so similar to the Way.
+ - To know one’s ignorance is the best part of knowledge.
+ - Supreme good is like water. Water greatly benefits all things, without conflict. It flows through places that people loathe. Thereby it is close to the Way.
+ - There is a time to go ahead and a time to stay behind. There is a time to breathe easy and time to breathe hard. There is a time to be vigorous and a time to be gentle. There is a time to gather and a time to release. Can you see things as they are And let them be all on their own?
+ - Let your workings remain a mystery. Just show people the results.
+ - Those who seek knowledge, collect something every day. Those who seek the Way, let go of something every day.
+ - Marriage is three parts love and seven parts forgiveness of sins.
+ - You will understand a great truth when you get to realize that what you do to others, you are doing to yourself.
+ - Ordinary men hate solitude. But the Master makes use of it, embracing his aloneness, realizing he is one with the whole universe.
+ - Greed for enlightenment and immortality is no different than greed for material wealth. It is self-centered and dualistic, and thus an obstacle to true attainment. Therefore these states are never achieved by those who covet them; rather, they are the reward of the virtuous.
+ - For all things difficult to acquire, the intelligent man works with perseverance.
+ - The weak overcomes the strong. The soft overcomes the hard. Everybody in the world knows this, still nobody makes use of it.
+ - He who is contented is rich.
+ - Stay at the center and let all things take their course.
+ - Embrace simplicity. Put others first. Desire little.
+ - The sage wears coarse clothes, concealing jade.
+ - If you really want everything, then give up everything.
+ - Those who know do not speak; Those who speak do not know. Stop up the openings, Close down the doors, Rub off the sharp edges. Unravel all confusion. Harmonize the light, Give up contention: This is called finding the unity of life.
+ - Rushing into action, you fail. Trying to grasp things, you lose them. Forcing a project to completion, you ruin what was almost ripe.
+ - Misery is what happiness rests upon. Happiness is what misery lurks beneath.
+ - Simulated disorder postulates perfect discipline; simulated fear postulates courage; simulated weakness postulates strength.
+ - Kindness in thought leads to wisdom. Kindness in speech leads to eloquence. Kindness in action leads to love.
+ - Knowing that we don’t know it’s humility; thinking that we know what we don’t know, is sickness.
+ - What is firmly rooted cannot be pulled out.
+ - We hammer wood for a house, but it is the inner space that makes it liveable.
+ - ALL things in Nature work silently. They come into being and possess nothing. They fulfil their functions and make no claim.
+ - Mold clay into a bowl. The empty space makes it useful.
+ - Nature’s way is simple and easy, but men prefer the intricate and artificial.
+ - Let muddy water stand and it will become clear.
+ - Deal with difficult tasks while they are easy. Act on large issues while they are small.
+ - My words are very easy to understand and very easy to practice. Still, no one in the world can understand or practice them.
+ - Good words shall gain you honor in the marketplace, but good deeds shall gain you friends among men.
+ - The value of teaching without words and accomplishing without action is understood by few in the world.
+ - Trying to understand is like straining through muddy water. Be still and allow the mud to settle.
+ - Behave simply and hold on to purity.
+ - The sage desires no desire, does not value rare treasures, learns without learning, recovers what people have left behind.
+ - Conduct your triumph as a funeral.
+ - Find a teacher who is an integral being, a beacon who extends his light and virtue with equal ease to those who appreciate him and those who don’t. Shape yourself in his mold, bathe in his nourishing radiance, and reflect it out to the rest of the world.
+ - Pain and happiness are simply conditions of the ego. Forget the ego.
+ - The snow goose need not bathe to make itself white. Neither need you do anything but be yourself.
+ - If you fail to honor your people, They will fail to honor you; It is said of a good leader that When the work is done, the aim fulfilled, The people will say, “We did this ourselves.”
+ - The highest benevolence acts without purpose.
+ - The world is won by those who let it go.
+ - When you realize where you come from, you naturally become tolerant, amused, kindhearted as a grandmother, and dignified as a king. Immersed in wonder, you can deal with whatever life brings you, and when death comes, you are ready.
+ - The True Person governs by emptying the heart of desire and filling the belly with food, weakening ambitions and strengthening bones.
+ - I observe myself and I come to know others.
+ - Do your work, then step back. The only path to serenity.
+ - The Way begets one; one begets two; two begets three; three begets the myriad creatures.
+ - Return animosity with virtue.
+ - Gently eliminating all obstacles to his own understanding, he constantly maintains his unconditional sincerity. His humility, perseverance, and adaptability evoke the response of the universe and fill him with divine light.
+ - Ever desireless, one can see the mystery. Ever desiring, one can see the manifestations. These two spring from the same source but differ in name; this appears as darkness. Darkness within darkness. The gate to all mystery.
+ - Whatever is fluid, soft, and yielding will overcome whatever is rigid and hard. What is soft is strong.
+ - The sage acts by doing nothing.
+ - Can you dissolve your ego? Can you abandon the idea of self and other? Can you relinquish the notions of male and female, short and long, life and death? Can you let go of all these dualities and embrace the Tao without skepticism or panic? If so, you can reach the heart of the Integral Oneness.
+ - When men lack a sense of awe, there will be disaster.
+ - A good door needs no lock, still it can’t be opened.
+ - If one desires to receive one must first give. This is called profound understanding.
+ - Who is there who can make muddy waters clear? But if allowed to remain still, it will gradually clear itself.
+ - Clay is used to make vases, but it is the emptiness they contain that makes them useful.
+ - If you see what is small as it sees itself, and accept what is weak for what strength it has, and use what is dim for the light it gives then all will go well. This is called Acting Naturally.
+ - The Way is empty, yet inexhaustible, like an abyss!
+ - Don’t impose your will through manipulation of aggressive emotions and actions.
+ - Filling all the way to the brim is not as good as halting in time.
+ - The subtlest of subtleties, this is the gateway to all mysteries.
+ - In this world, there is nothing softer or thinner than water. But to compel the hard and unyielding, it has no equal. That the weak overcomes the strong, that the hard gives way to the gentle – this everyone knows. Yet no one asks accordingly.
+ - The truest sayings are paradoxical.
+ - Everything will settle in its own place automatically.
+ - Those who are quiet value the words. When their task is completed, people will say: We did it ourselves.
+ - True words are not fancy. Fancy words are not true. The good do not debate. Debaters are not good.
+ - To lead, one must follow.
+ - He who controls the past controls the future.
+ - Those who praise victory relish manslaughter. Those who relish manslaughter cannot reach their goals in the world.
+ - An ant on the move does more than a dozing ox.
+ - If you correct your mind the rest of your life will fall into place.
+ - A journey of a thousand miles starts with a single step and if that step is the right step, it becomes the last step.
+ - The words of truth are always paradoxical. To the mind that is still, the whole universe surrenders.
+ - When the ancient Masters said, “If you want to be given everything, give everything up,” they weren’t using empty phrases. Only in being lived by the Tao can you be truly yourself.
+ - When taxes are too high, people go hungry.
+ - In order to eliminate the negative influences, simply ignore them.
+ - Moderation means prevention. Prevention means achieving much virtue.
+ - Those who take long steps cannot keep the pace.
+ - Nature doesn’t make long speeches.
+ - Rule a kingdom as though you were cooking a small fish – don’t overdo it.
+ - To manage your mind, know that there is nothing, and then relinquish all attachment to nothingness.
+ - Be who you are, and go the whole way.
+ - The feminine values are the fountain of bliss. Know the masculine, Keep to the feminine.
+ - The career of a sage is of two kinds: He is either honored by all in the world, Like a flower waving its head, Or else he disappears into the silent forest.
+ - Warriors say: I dare not be like the host, but would rather be like the guest. I dare not advance an inch, but would rather retreat a foot.
+ - I do not concern myself with gods and spirits either good or evil nor do I serve any.
+ - Fail to honor people, they fail to honor you.
+ - What is well rooted cannot be pulled up. What is firmly grasped will not slip loose. It will be honoured from generation to generation.
+ - That the soft overcomes the hard, and the yielding overcomes the resistant, is a fact known by all, but practiced by few.
+ - A scholar who cherishes the love of comfort is not fit to be deemed a scholar.
+ - Be merciful, moderate, and modest.
+ - No weapon is sharper than will.
+ - Can you gather your vital breath and yet be tender like a newborn baby?
+ - The one who rules like the mother lasts long.
+ - The more laws and order are made prominent, the more thieves and robbers there will be.
+ - Of all that is good, sublimity is supreme. Succeeding is the coming together of all that is beautiful. Furtherance is the agreement of all that is just. Perseverance is the foundation of all actions.
+ - Those who stay where they are will endure.
+ - The reason why rivers and seas are able to be lords over a hundred mountain streams, is that they know how to keep below them. That is why they are able to reign over all the mountain streams.
+ - When you stand with your two feet on the ground, you will always keep your balance.
+ - Take time to listen to what is said without words, to obey the law too subtle to be written, to worship the unnameable and to embrace the unformed.
+ - Give up learning, and put an end to your troubles.
+ - Going back to the origin is called peace; it means reversion to destiny. Reversion to destiny is called eternity. Those who know eternity are called enlightened.
+ - All things carry yin and embrace yang. They reach harmony by blending with the vital breath.
+ - The best of all rulers is but a shadowy presence to his subjects.
+ - Highest good is like water. Because water excels in benefiting the myriad creatures without contending with them and settles where none would like to be, it comes closest to the way.
+ - Be as the still mountain; Move like the great river.
+ - If you are untrustworthy, people will not trust you.
+ - By the accident of fortune a man may rule the world for a time, but by virtue of love and kindness he may rule the world forever.
+ - If you never assume importance, you never lose it.
+ - When family ties are disturbed, devoted children arise.
+ - Justice has long arm.
+ - Every human being’s essential nature is perfect and faultless, but after years of immersion in the world we easily forget our roots and take on a counterfeit nature.
+ - Those who are highly evolved, maintain an undiscriminating perception. Seeing everything, labeling nothing, they maintain their awareness of the Great Oneness. Thus they are supported by it.
+ - Man’s enemies are not demons, but human beings like himself.
+ - Surrender your self-interest. Love others as much as you love yourself. Then you can be entrusted with all things under heaven.
+ - Better stop short than fill to the brim. Oversharpen the blade, and the edge will soon blunt. Amass a store of gold and jade, and no one can protect it.
+ - Fame of self: Which matters more? Self or wealth: Which is more precious? Gain or loss: Which is more painful?
+ - Taking things lightly must lead to big difficulties.
+ - Act without striving. Work without interfering. Find the flavour in what is flavourless.
+ - Knowing the future is the flower of the Way, and the beginning of folly.
+ - The highest virtue is not virtuous. Therefore it has virtue. The lowest virtue holds on to virtue. Therefore it has no virtue.
+ - Stretch the bow to the very full, and you will wish you had stopped in time.
+ - The more laws that are written, the more criminals are produced.
+ - The well-run group is not a battlefield of egos.
+ - The greatest revelation is stillness.
+ - Understanding others is knowledge, Understanding oneself is enlightenment; Conquering others is power, Conquering oneself is strength.
+ - If you scramble about in search of inner peace, you will lose your inner peace.
+ - It is better not to make merit a matter of reward Lest people conspire and contend.
+ - Use the light that is in you to recover your natural clearness of sight.
+ - Heaven and earth are ruthless, and treat the various creatures as straw dogs; the sage is ruthless, and treats others as straw dogs.
+ - The real key to health and happiness and success is self knowledge.
+ - Abandon learning and there will be no sorrow.
+ - If there is to be peace in the home, There must be peace in the heart.
+ - Kind words elicit trust. Kind thoughts create depth. Kind deeds bring love.
+ - The wise man puts himself last and finds himself first.
+ - Do not strive for the shine of jade, but clatter like stone.
+ - Giving to others selflesly and anonymously, radiating light throughout the world and illuminating your own darkness, your virtue becomes a sanctuary for yourself and all beings.
+ - There is no greater danger than underestimating your opponent.
+ - Yet mystery and reality emerge from the same source.
+ - Nothing on earth is so weak and yielding as water, but for breaking down the firm and strong it has no equal.
+ - Go to the people. Learn from them. Live with them. Start with what they know. Build with what they have. The best of leaders when the job is done, when the task is accomplished, the people will say we have done it ourselves.
+ - A man is born gentle and weak. At death he is hard and stiff.
+ - Always be on the lookout for ways to turn a problem into an opportunity for success. Always be on the lookout for ways to nurture your dream.
+ - Being satisfied with little, you can gain much. Seeking much you will go astray. The wise heeds this precept. If it could be so with all people!
+ - He who defends with love will be secure; Heaven will save him, and protect him with love.
+ - I alone am different from the others, because I am nourished by the great mother.
+ - A foolish man is always doing, Yet much remains to be done.
+ - Face the simple fact before it comes involved. Solve the small problem before it becomes big.
+ - The past has no power to stop you from being present now. Only your grievance about the past can do that. What is grievance? The baggage of old thought and emotion.
+ - Thirty spokes meet in the hub. Where a wheel isn’t is where it’s useful. Hollowed out, clay makes a pot. Where the pots not is where it’s useful. Cut doors and windows to make a room. Where the room isn’t, there’s room for you. So the profit in what is, is in the use of what isn’t.
+ - A sound man is good at salvage, at seeing nothing is lost.
+ - Therefore: In dwelling, choose modest quarters, in thinking, value stillness, in dealing with others, be kind, in choosing words, be sincere, in leading, be just, in working, be competent, in acting, choose the correct timing. Follow these words and there will be no error.
+ - A tree that can fill the span of a man’s arms grows from a downy tip; A terrace nine stories high rises from level earth; A journey of a thousand miles starts from beneath one’s feet.
+ - When everyone in the world sees beauty, then ugly exists.
+ - Follow diligently the Way in your own heart, but make no display of it to the world.
+ - The fish cannot leave the deep waters. The state’s weaponry should not be displayed.
+ - When virtue is lost, benevolence appears, when benevolence is lost right conduct appears, when right conduct is lost, expedience appears. Expediency is the mere shadow of right and truth; it is the beginning of disorder.
+ - Profound virtue is indeed deep and wide. It leads all things back to the great order.
+ - Excellent leaders of people lower themselves.
+ - If lightning is the anger of the gods, then the gods are concerned mostly about trees.
+ - Stop trying to control. Let go of fixed plans and concepts, and the world will govern itself.
+ - Of all things, none does not revere the Way and honor virtue. Reverence of the Way and honoring virtue were not demanded of them, but it is in their nature.
+ - Few things under heaven bring more benefit than the lessons learned from silence and the actions taken without striving.
+ - Even the longest journey must begin where you stand.
+ - Because clarity and enlightenment are within your own nature, they are regained without moving an inch.
+ - Keep your mouth shut, and close up the doors of sight and sound, and as long as you live you will have no vexation. But open your mouth, or become inquisitive, and you will be in trouble all your life long.
+ - What is a good man? A teacher of a bad man. What is a bad man? A good man’s charge?
+ - Rituals are the end of fidelity and honesty, and the beginning of confusion.
+ - The True Person benefits yet expects no reward, does the work and moves on. There is no desire to be considered better than others.
+ - The soft and weak overcome the hard and strong.
+ - Thus an army without flexibility never wins a battle. A tree that is unbending is easily broken.
+ - I confess that there is nothing to teach: no religion, no science, no writings which will lead your mind back to Spirit. Today I speak this way, tomorrow that, but always the Path is beyond words and beyond mind.
+ - The more prohibitions there are, the poorer the people will be. The more laws are promulgated, the more thieves and bandits there will be.
+ - Without looking through the window, you can see Heaven’s Way.
+ - It’s hard to keep your balance standing tip-toe.
+ - The perfect square lacks corners.
+ - Give evil nothing to oppose and it will disappear by itself.
+ - When you accurately perceive the fluidity of things, you can also begin to perceive the constancy behind them: the creative, transformative, boundless, immutable Tao.
+ - Always without desire we must be found, If its deep mystery we would sound; But if desire always within us be, Its outer fringe is all that we shall see.
+ - All things arise in unison. Thereby we see their return.
+ - Not all spiritual paths lead to the harmonious Oneness. Indeed, most are detours and distractions, nothing more.
+ - When the great Tao is forgotten, goodness and piety appear. When the body’s intelligence declines, cleverness and knowledge step forth. When there is no peace in the family, filial piety begins. When the country falls into chaos, patriotism is born.
+ - The great Way is easy, yet people prefer the side paths. Be aware when things are out of balance. Stay centered within the Tao.
+ - A journey of 1000 miles begins with a single step – Successful people are always looking for opportunities to help others.
+ - I have three treasures which I hold and keep. The first is mercy; the second is economy. The third is daring not to be ahead of others. From mercy comes courage; from economy comes generosity; From humility comes leadership.
+ - Nurture the spontaneous peaceful life.
+ - It is hidden but always present.
+ - The highest virtue does nothing. Yet, nothing needs to be done. The lowest virtue does everything. Yet, much remains to be done.
+ - No thought, no action, no movement, total stillness: only thus can one manifest the true nature and law of things from within and unconsciously, and at last become one with heaven and earth.
+ - Love is of all passions the strongest, for it attacks simultaneously the head, the heart and the senses.
+ - All things such as grass and trees are soft and supple in life. At their death they are withered and dry.
+ - Pounding an edge to sharpness will not make it last.
+ - When you have accomplished your goal simply walk away. This is the path way to Heaven.
+ - Conquering others requires force. Conquering oneself requires strength.
+ - In the Golden Age, Rulers were unknown. In the following age Rulers were loved and praised. Next came the age When rulers were feared. Finally the age When rulers are hated.
+ - Nature is not anthropomorphic.
+ - It is better to do one’s own duty, however defective it may be, than to follow the duty of another, however well one may perform it. He who does his duty as his own nature reveals it, never sins.
+ - A good traveler has no fixed plans and is not intent upon arriving. A good artist lets his intuition lead him wherever it wants. A good scientist has freed himself of concepts and keeps his mind open to what is.
+ - Can you step back from your own mind and thus understand all things?
+ - See simplicity in the complicated. Achieve greatness in little things.
+ - We go from birth to death. Three out of ten follow life. Three out of ten follow death. People who rush from birth to death are also three out of ten. Why is that so? Because they want to make too much of life.
+ - If people do not revere the Law of Nature It will adversely affect them. If they accept It with knowledge and reverence, It will accommodate them with balance and harmony.
+ - Fill your bowl to the brim and it will spill. Keep sharpening your knife and it will blunt.
+ - A whale out of water is over-run by ants.
+ - The Way is the source of all things, good people’s treasure and bad people’s refuge.
+ - Use your light, but dim your brightness.
+ - The reality of the building does not consist in the roof and walls, but in the space within to be lived in.
+ - Human being’s essential nature is perfect and faultless...
+ - Heavy is the root of light.
+ - To realize that our knowledge is ignorance, This is a noble insight. To regard our ignorance as knowledge, This is mental sickness. Only when we are sick of the sickness Shall we cease to be sick. The Sage is not sick, being sick of sickness; This is the secret of health.
+ - Knowing that you do not know is the best. Not knowing that you do not know is an illness.
+ - Great talents ripen late; the highest notes are hard to hear.
+ - When the government is quite unobtrusive, people are indeed pure. When the government is quite prying, people are indeed conniving.
+ - Spokes unite in the hub of a wheel.
+ - What should be shrunken must first be stretched.
+ - Open yourself to the truth, then trust in your natural responses, and everything will fall into place.
+ - That so few understand me is why I am treasured.
+ - Hold on to the center and make up your mind to rejoice in this paradise called life.
+ - A government can be compared to our lungs. Our lungs are best when we don’t realize they are helping us breathe. It is when we are constantly aware of our lungs that we know they have come down with an illness.
+ - Happiness perches on misery. Misery crouches beneath happiness.
+ - Greed is costly. Assembled fortunes are lost.
+ - To retreat after a work well done is Heaven’s Way.
+ - Going forward seems like retreat...
+ - In lightness the root is lost. In haste the ruler is lost.
+ - If you practice inaction, nothing will be left undone: For the way to acquire lordship over society is by invariably not interfering.
+ - The superior leader keeps informed about everything but interferes hardly at all.
+ - The Way is eternal. Until your last day, you are free from peril.
+ - The sage governs by emptying senses and filling bellies.
+ - My teachings are easy to understand and easy to put into practice. Yet your intellect will never grasp them, and if you try to practice them, you’ll fail. My teachings are older than the world. How can you grasp their meaning? If you want to know me, look inside your heart.
+ - I alone have the mind of a fool, and am all muddled and vague. The people are so smart and bright. While I am just dull and confused.
+ - Quarrel with a friend – and you are both wrong.
+ - There is one appointed supreme executioner. Truly, trying to take the place of the supreme executioner is like trying to carve wood like a master carpenter. Of those who try to carve wood like a master carpenter, there are few who do not injure their hands.
+ - If you want to accord with the Tao, just do your job, then let go.
+ - Strong winds do not last all morning, hard rains do not last all day.
+ - Be empty. Be still. Just watch everything come and go. This is the way of Nature.
+ - Tao in the world is like a river flowing home to the sea.
+ - Of the second-rate leaders people speak respectfully saying, “He has done this, he has done that.” Of the first-rate leaders, they do not say this. They say, “We have done it all ourselves.”
+ - The first practice is the practice of undiscriminating virtue: take care of those who are deserving; also, and equally, take care of those who are not. When you extend your virtue in all directions without discriminating, you feet are firmly planted on the path that returns to the Tao.
+ - Be the chief but never the lord.
+ - Water benefits the ten thousand things and does not oppose them.
+ - Once upon a time a man whose ax was missing suspected his neighbor’s son. The boy walked like a thief, looked like a thief and spoke like a thief. But the man found his ax while digging in the valley, and the next time he saw his neighbor’s son, the boy walked, looked and spoke like any other child.
+ - He does not seek glory – yet people respect him.
+ - Truly, only those who see illness as illness can avoid illness.
+ - Those who would take over the earth and shape it to their will, never, I notice succeed.
+ - The wise man doesn’t compete; therefore nobody can compete with him.
+ - The way to use life is to do nothing through acting, The way to use life is to do everything through being.
+ - The supreme rulers are hardly known by their subjects. The lesser are loved and praised. The even lesser are feared. The least are despised.
+ - So the unwanting soul sees what’s hidden, and the ever-wanting soul sees only what it wants.
+ - Do not fear the aging of the body for it is the body’s way of seeking the root.
+ - Misfortune is the root of good fortune; good fortune gives birth to misfortune.
+ - Does one scent appeal more than another? Do you prefer this flavor, or that feeling? Is your practice sacred and your work profane? Then your mind is separated: from itself, from oneness, from the Tao.
+ - He who acts, spoils; he who grasps, lets slip.
+ - Abandon benevolence, discard duty, and people will return to the family ties.
+ - Filling life exceedingly is called ominous.
+ - A skillful commander is not overbearing. A skillful fighter does not become angry. A skillful conqueror does not compete with people. One who is skillful in using men puts himself below them. This is called the strength to use men. This is called matching Heaven, The highest principle of old.
+ - The tree which needs two arms to span its girth sprang from the tiniest shoot. Yon tower, nine stories high, rose from a little mound of earth. A journey of a thousand miles begins with a single step.
+ - Life is going forth; death is returning home.
+ - When great armies go to war, Sorrow is the sole winner.
+ - The inner is the foundation of the outer. The still is master of the restless. The Sage travels all day yet never leaves his inner treasure.
+ - The sage is sharp but does not cut, pointed but does not pierce, forthright but does not offend, bright but does not dazzle.
+ - There is no greater offence than harbouring desires. There is no greater disaster than discontent. There is no greater misfortune than wanting more.
+ - When they lose their sense of awe, people turn to religion. When they no longer trust themselves, they begin to depend upon authority. Therefore the Master steps back so that people won’t be confused. He teaches without a teaching, so that people will have nothing to learn.
+ - The more weapons of violence, the more misery to mankind. The triumph of violence ends in a festival of mourning.
+ - Heaven’s Way gives no favors. It always remains with good people.
+ - Take care of what is difficult while it is still easy, and deal with what will become big while it is yet small.
+ - The gentlest thing in the world overcomes the hardest thing in the world. That which has no substance enters where there is no space. This shows the value of non-action. Teaching without words, performing without actions: that is the Master’s way.
+ - Instead of being afraid of death, we should try to awake to life; and the only death we should escape from is to forget the presence of God into us.
+ - Without desire there is stillness, and the world settles by itself.
+ - The softest in the world surpasses the hardest in the world.
+ - Who can enjoy enlightenment and remain indifferent to suffering in the world? This is not in keeping with the Way. Only those who increase their service along with their understanding can be called men and women of Tao.
+ - The master does his job and then stops. He understands that the universe is forever out of control, and that trying to dominate events goes against the current of the Tao.
+ - That which is achieved the most, still has the whole of its future yet to be achieved.
+ - Who can wait in stillness while the mud settles?
+ - The ancients said: Hulk to be whole.
+ - Only I am clumsy, like drifting on the waves of the sea, without direction.
+ - Governing a large country is like frying a small fish. You spoil it with too much poking. Center your country in the Tao and evil will have no power. Not that it isn’t there, but you’ll be able to step out of its way. Give evil nothing to oppose and it will disappear by itself.
+ - Keep behind, and you shall be put in front; keep out, and you shall be kept in.
+ - Governing a great nation is like cooking a small fish, too much handling will spoil it.
+ - Your name or your body, what is dearer? Your body or your wealth, what is worthier?
+ - He who overcomes others has force; he who overcomes himself is strong.
+ - Give up your relentless moralizing, the continual pinpricks which pierce the skin of your fellows. The distinction between good and evil is the sickness of the mind. Give up your morals, and the people will regain a love of their fellows.
+ - The softest of stuff in the world, penetrates quickly the hardest, insubstantial, it enters where there is no room...
+ - When Simplicity is broken up, it is made into instruments. Evolved individuals who employ them, are made into leaders. In this way, the Great System is United.
+ - The good man is the teacher of the bad, And the bad is the material from which the good may learn. He who does not value the teacher, Or greatly care for the material, Is greatly deluded although he may be learned. Such is the essential mystery.
+ - Reputation should be neither sought nor avoided.
+ - The truly great ones rely on substance, and not on surface, hold on to the fruit, and not to the flower.
+ - Quiet your mind and stop judging and resisting and manipulating the natural way.
+ - He who has achieved this state Is unconcerned with friends and enemies, With good and harm, with honor and disgrace. This therefore is the highest state of man.
+ - Displaying riches and titles with pride brings about one’s downfall.
+ - Stillness overcomes heat.
+ - The wise leader settles for good work and then lets others have the floor.
+ - Remember: if you can cease all restless activity, your integral nature will appear.
+ - All things flourish, and each returns to its source.
+ - The Tao never acts with force, yet there is nothing that it can not do.
+ - That, which others compress – will widen up and open. That, which others weaken – will strengthen. That, which others destroy – will blossom. Whoever wished to take something from the other, will inevitably loose his own.
+ - Throw away profit and greed, and there won’t be any thieves.
+ - Thirty spokes are joined in the wheel’s hub. The hole in the middle makes it useful.
+ - A terrace nine stories high begins with a pile of earth.
+ - Seek not happiness too greedily and be not fearful of happiness.
+ - Truly, only acting without thought of one’s life is superior to valuing one’s life.
+ - If a person seems wicked, do not cast him away. Awaken him with your words, elevate him with your deeds, repay his injury with your kindness. Do not cast him away; cast away his wickedness.
+ - If you close your mind in judgements and traffic with desires, your heart will be troubled. If you keep your mind from judging and aren’t led by the senses, your heart will find peace.
+ - So sometimes things are ahead and sometimes they are behind; Sometimes breathing is hard, sometimes it comes easily; Sometimes there is strength and sometimes weakness; Sometimes one is up and sometimes down. Therefore the sage avoids extremes, excesses, and complacency.
+ - Nothing and no one in the world is valuable or worthless.
+ - A violent wind does not outlast the morning; a squall of rain does not outlast the day. Such is the course of Nature. And if Nature herself cannot sustain her efforts long, how much less can man!
+ - The noble must make humility his root.
+ - He who treasures his body as much as the world can care for the world.
+ - Words spoken about the Way have no taste. When looked at, there’s not enough to see. When listened to, there’s not enough to hear. When used, it is never exhausted.
+ - The sage acts without taking credit. He accomplishes without dwelling on it. He does not want to display his worth.
+ - Those who do not trust enough should not be trusted.
+ - The higher the sun ariseth, the less shadow doth he cast; even so the greater is the goodness, the less doth it covet praise; yet cannot avoid its rewards in honors.
+ - Let people return to making knots on ropes, instead of writing.
+ - Throw away sacredness and wisdom and people will be one hundred times happier.
+ - When a nation is filled with strife, then do patriots flourish.
+ - Heaven’s Way is like stretching a bow. The high is lowered and the low is raised. Excess is reduced and deficiency is replenished. Heaven’s Way reduces excess and replenishes deficiency. People’s Way is not so. They reduce the deficient and supply the excessive.
+ - Those who die without being forgotten get longevity.
+ - Every step is on the path.
+ - Be humble and you will remain entire. The sages do not display themselves, therefore they shine. They do not approve themselves, therefore they are noted. They do not praise themselves, therefore they have merit. They do not glory in themselves, therefore they excel.
+ - What has no substance can penetrate what has no opening.
+ - A good traveler leaves no tracks. Good speech lacks fault-finding.
+ - Practice non-action. Work without doing.
+ - The sage embraces the one, and is an example to the world.
+ - Perfect kindness acts without thinking of kindness.
+ - Only fools seek power, and the greatest fools seek it through force.
+ - Tao loves and nourishes all things, but does not dominate it over them.
+ - I find good people good And I find bad people good If I am good enough.
+ - Favor and disgrace are like fear. Favor is in a higher place, and disgrace in a lower place. When you win them you are like being in fear, and when you lose them you are also like being in fear. So favor and disgrace are like fear.
+ - The longer you travel, the less you know.
+ - Heaven and Earth last for ever. Why do Heaven and Earth last for ever? They are unborn, so ever living. The sage stays behind, thus he is ahead. He is detached, thus at one with all. Through selfless action, he attains fulfillment.
+ - When the intelligent and animal souls are held together in one embrace, they can be kept from separating.
+ - He who talks more is sooner exhausted.
+ - Why is the tao so valuable? Because it is everywhere, and everyone can use it. This is why those who seek will find, And those who reform will be forgiven; Why the good will be rewarded, And the thief who is cunning will escape.
+ - Good Government is not intrusive the people are hardly aware of it; the next best is felt yet loved; then comes that which is known and feared; the worst government is hated.
+ - Carrying body and soul and embracing the one, Can you avoid separation?
+
+500 quotes

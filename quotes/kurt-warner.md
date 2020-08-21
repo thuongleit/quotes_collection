@@ -1,0 +1,28 @@
+ - If you’re willing to put yourself and your dreams on the line, at the very least you’ll discover an inner strength you may not have known existed.
+ - My friends said, ‘You’re crazy, enjoy single life.’ But that’s not for me.
+ - When you speak and represent the person of Jesus Christ in all actions of your life, people are drawn to that. You set the standard with your actions. The words can come after.
+ - I wish I could say someone taught me my mental toughness, it would have been a lot less painful.
+ - I am glad that I was given the chance. I knew I could still play at a high level.
+ - Whether I’m a Super Bowl Champion or a regular guy stocking groceries at the Hy-Vee, sharing my faith and glorifying Jesus is the central focus of my time on this earth.
+ - The bottom line is about the technique. The little things. Fine-tuning what we have to do. No matter who is out there, maybe theyre not going to be as good, quote-unquote, as the starters may be, but the bottom line for us is to make sure were doing the right things.
+ - As I get older, I might need to keep the stubble off. As the years come, it helps to look younger I guess.
+ - No matter what happens on the football field it doesn’t change the kind of person I am.
+ - I think there was always that question mark of why am I not in St. Louis anymore? I think everybody had those questions and probably had those perceptions of me.
+ - It’s a group of guys that put their mind to going out and playing great football. Everybody that needed to step up, stepped up. Everybody that needed to make a play, made a play, and that’s what it’s all about.
+ - They’re willing to let Matt sit and wait until they believe he’s ready and I can’t do the best I’m capable of doing. I’m completely comfortable with that.
+ - LeSean McCoy has become the most exciting player in the National Football League. I believe he’s the MVP this year.
+ - I expected to play well, I expected to lead my team, and I expected to win.
+ - I am where I am because I believed and I never gave up...
+ - I’ve done it for a long time and I didn’t expect it to be any different here.
+ - I think Marshawn Lynch is the most important player in this football game.
+ - It’s much easier when your team’s winning. When your team starts to lose, that’s where a lot of these quarterback controversies divide a locker room. The key, as a pro, is to be a pro.
+ - I’ve always had confidence.
+ - As long as you know what you are doing and how to anticipate and throw, I don’t think you need all that much physically.
+ - On the football field I keep my emotions tied up inside. But when I’m with family, I let them out.
+ - Nobody knew who I was.
+ - I want to win. That’s the most important thing.
+ - I’ve always known that if I got the right opportunity and the right system, I could be successful.
+ - I just always felt I’d be playing football in the NFL – or at least playing for a living.
+ - I got my career started late so, even though I’m getting older, I don’t have as much wear and tear on my arm. I feel good. I really do.
+
+26 quotes

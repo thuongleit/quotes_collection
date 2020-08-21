@@ -1,0 +1,25 @@
+ - Be positive. Stay happy and don’t let the negativity of the world get you down.
+ - When success is your only option, positivity has to be your only choice.
+ - Nobody really cares if you’re miserable, so you might as well be happy, and make the most of where you are.
+ - If you don’t know what it is you’re looking for you’re NEVER going to find it. You have to be clear on what it is you’re seeking.
+ - Once you learn to be happy, you won’t tolerate being around people who make you feel anything less.
+ - Happiness is achieved when you stop waiting for your life to begin and start making the most of the moment you are in.
+ - Have an attitude of positive expectation.
+ - Because words have deep meaning, Tweets have power.
+ - I can’t change you and you can’t change me, but together we can work to change the world.
+ - The outcome is not up to you. The outlook is.
+ - As you become more present in your own life, you will begin to enlighten others by your example.
+ - Say something worthwhile and people will listen.
+ - If you’re not grateful for what you already have, why should you be blessed with more...
+ - Social media is your platform to build a unique fan base while you express yourself exactly how you see yourself. Build wisely.
+ - You have to change your thinking if you desire to have a future different from your present.
+ - At the end of the day, we all live in this world together and to practice bringing peace onto social media is a huge step into bringing peace into our world.
+ - Don’t make excuses. Make commitments and stick to them.
+ - Social Networking should never replace face-to-face time.
+ - All the things I’ve ever wanted to say suddenly I’ve been bold enough to say them on Social Media.
+ - Social Media begins with a story – your story.
+ - Social Media brands faster than any other existing Marketing plan and for much cheaper!
+ - Your Twitter Profile is your business card.
+ - Book sense makes sense because someone has gone through it before and able to share it with you. Your job is to listen and discern.
+
+23 quotes

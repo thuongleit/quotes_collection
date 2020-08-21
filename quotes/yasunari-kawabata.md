@@ -1,0 +1,30 @@
+ - THE TRAIN came out of the long tunnel into the snow country.
+ - The winter moon becomes a companion, the heart of the priest, sunk in meditation upon religion and philosophy, there in the mountain hall, is engaged in a delicate interplay and exchange with the moon; and it is this of which the poet sings.
+ - People have separated from each other with walls of concrete that blocked the roads to connection and love. and Nature has been defeated in the name of development.
+ - The true joy of a moonlit night is something we no longer understand. Only the men of old, when there were no lights, could understand the true joy of a moonlit night.
+ - Lunatics have no age. If we were crazy, you and I, we might be a great deal younger.
+ - The labor into which a heart has poured its whole love – where will it have its say, to excite and inspire, and when?
+ - A poetess who had died young of cancer had said in one of her poems that for her, on sleepless nights, ’the night offers toads and black dogs and corpses of the drowned.
+ - Maybe vagueness has been good for me. The word means two different things in Tokyo and Osaka, you know. In Tokyo it means stupidity, but in Osaka they talk about vagueness in a painting and in a game of Go.
+ - The snow on the distant mountains was soft and creamy, as if veiled in a faint smoke.
+ - It’s remarkable how we go on year after year, doing the same old things. We get tired and bored, and ask when they’ll come for us.
+ - As he caught his footing, his head fell back, and the Milky Way flowed down inside him with a roar.
+ - Now, even more than the evening before, he could think of no one with whom to compare her. She had become absolute, beyond comparison. She had become decision and fate.
+ - A child walked by, rolling a metal hoop that made a sound of autumn.
+ - The road was frozen. The village lay quiet under the cold sky. Komako hitched up the skirt of her kimono and tucked it into her obi. The moon shone like a blade frozen in blue ice.
+ - But a haiku by Buson came into his mind: ‘I try to forget this senile love; a chilly autumn shower.’ The gloom only grew denser.
+ - I suppose even a woman’s hatred is a kind of love.
+ - Cosmic time is the same for everyone, but human time differs with each person. Time flows in the same way for all human beings; every human being flows through time in a different way.
+ - From the way of Go the beauty of Japan and the Orient had fled. Everything had become science and regulation.
+ - They were words that came out of nothing, but they seemed to him somehow significant. He muttered them over again.
+ - And I can’t complain. After all, only woemn are able really to love.
+ - A secret, if it’s kept, can be sweet and comforting, but once it leaks out it can turn on you with a vengeance.
+ - Our language is primarily for expressing human goodness and beauty.
+ - Does pain go away and leave no trace, then?’ ‘You sometimes even feel sentimental for it.
+ - Along the coast the sea roars, and inland the mountains roar – the roaring at the center, like a distant clap of thunder.
+ - Seeing the moon, he becomes the moon, the moon seen by him becomes him. He sinks into nature, becomes one with nature. The light of the “clear heart” of the priest, seated in the meditation hall in the darkness before the dawn, becomes for the dawn moon its own light.
+ - But, drawn to her at that moment, he felt a quiet like the voice of the rain flow over him. He knew well enough that for her it was in fact no waste of effort, but somehow the final determination that it was had the effect of distilling and purifying the woman’s existence.
+ - I wonder what the retirement age is in the novel business. The day you die.
+ - Because you cannot see him, God is everywhere.
+
+28 quotes

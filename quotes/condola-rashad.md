@@ -1,0 +1,25 @@
+ - You know how theres always the one girl in drama school who can cry at the drop of a hat? She has that emotional well she can tap into in a second? Im not that girl. It takes a lot to get me to that place.
+ - My view of myself as an artist expanded because of the time I spent at Cal Arts.
+ - The big challenge is finding something new without changing completely what you’ve already done – going deeper into what you’ve already done and discovering new things while carrying out the same intention.
+ - One day I’m not busy at all; the next day I have work for months – that’s kind of the way it works!
+ - The way I work emotionally is: I don’t ever try to cry. I try not to, which is what for me produces organic emotion.
+ - Im a songwriter and Id love to make that a part of my career.
+ - I admire fashion and I respect it greatly, but I don’t necessarily follow trends. I never really have. I just wear what I like to wear. I really like colors, and there are some things I wear and don’t care what anybody says about it being in style or not. I wear it anyway.
+ - My mom was really busy when I was growing up, but she did a really good job in terms of balancing her home life with her professional life. She basically took me everywhere.
+ - My thing is that if you don’t really connect to something or see that it’s going to be something you’re going to be proud of, I wouldn’t do it.
+ - I grew up in the theater with my mom and that’s how I knew I wanted to be an actor in the first place.
+ - I wanted to become an actor and I knew that if I was really going to do it, I needed the training. I was not one of those people that was like, “I got it.” I was like, “No, I don’t have it yet. I need work. I need help fixing myself.”
+ - I started playing piano when I was around four; thats my first passion.
+ - The reason why I like theater is because it’s a long journey, and no matter what role you play, we are all in it together.
+ - Theater is a lot more interactive, more of a cohesive unit. With television, it can be a different director every episode.
+ - I realized that once I graduated from college, there might be a period of time where people might typecast me or be more limiting, and I might not be able to play a crazy character. For me, it was important to do that at least in school.
+ - Personally, especially as a young black woman, I didn’t think that Los Angeles was a place for me to start. There’s a certain type that they go for or don’t.
+ - Shakespeare teaches you how to act. You come out of this process as a better actor. It’s just the nature of the words he writes.
+ - I think even when I was little there was signs that I was an artist. I’ve always been an artist.
+ - There are a lot of celebrities that I think can get a little bit distracted by the way that our society views celebrity. All of a sudden, the film becomes about, “Come see this celebrity!” I’m not interested in that. I want to see a story.
+ - I prefer theater and film. I did a little television, and obviously I’m not knocking it. It can be great, and it does pay the bills. But it’s a little bit more disjointed.
+ - My first exploration through art was really through music – I’ve trained classically with piano for about ten years.
+ - I wasn’t even a theater kid in high school. I studied classical piano, and I ran track.
+ - My favorite films are when all of the technicalities are so seamless and so well done that I’m not thinking about them – you’re able to go full-on into the story versus talking about edgy this moment was.
+
+23 quotes

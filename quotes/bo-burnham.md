@@ -1,0 +1,93 @@
+ - Quotes are for dumb people who can’t think of something intelligent to say on their own.
+ - Laughter is the best medicine, y’know, besides medicine.
+ - I love you just the way you are but you don’t see you like I do. You shouldn’t try so hard to be perfect. Trust me, perfect should try to be you.
+ - If Jesus can walk on water, can he swim on land?
+ - I stopped and I thought, ‘What would Jesus do?’ So I didn’t exist.
+ - No one entertains the thought that maybe God does not believe in you.
+ - Maybe life on earth could be heaven, doesn’t just the thought of it make it worth a try?
+ - Do unto others as you would have them do to you, said the rapist.
+ - Once a week, I like to slip into a deep existential depression where I lose all my sense of oneness and self-worth.
+ - When I tried to hit puberty I swung and I missed.
+ - What’s important is that you stay true to yourself. Because when you enter the real world, the most valuable thing you can bring is all your you-ness. The world doesn’t need any more hot chicks or tough guys or smooth talkers – the world needs more you. And don’t let anyone tell you otherwise.
+ - The average person has one Fallopian tube.
+ - Was Einstein’s theory good? Relatively.
+ - I don’t like calling myself a “feminist” only because I don’t think I’ve done anything active enough to call myself one. It’d be like calling myself a civil rights activist just because I’m not racist.
+ - If you can think of all the times in your life, some of the happiest times were probably when you were laughing. And some of the worst times in your life you were being laughed at.
+ - I met a bipolar bear. He laughed, cried, then wanted a threesome.
+ - Women are like puzzles because prior to 1920 neither had the right to vote. Puzzles still don’t.
+ - I like to call everyone that I find slightly annoying a ‘sociopath.’
+ - People give me money and I don’t know why, my real collection plate is an empty cup held by a homeless guy.
+ - The classic comedian says there’s nothing that’s taboo; if you laugh at one thing you’ve got to laugh at everything, that comedy is taking people to dark areas and showing them the light.
+ - I just like to write and then perform.
+ - Twitter is a lot like crystal meth, because it’s really fun to do and Oprah’s on it.
+ - What do you call a kid with no arms and an eyepatch? Names.
+ - I remember being superyoung, like nine or ten years old, and thinking, ‘Man, I wonder what famous people eat for breakfast. They must have some special kind of cereal!’ My mind was so warped by the idea of fame.
+ - In comedy, falling means laughter. You can take something sacred and make it silly. The more sacred it is, the funnier it is. It has a bigger drop to fall.
+ - When life gets you down, make a comforter!
+ - Even if he is your friend, never, ever call an Asian person.
+ - All you god damn dirty Catholics can cath-o-lick my balls.
+ - Comedy is the one absolutely self-aware art form. Actually, hip-hop’s another one, I suppose. Because in your songs you’re talking about how good a hip-hop artist you are. It’s like a painter painting a panting of himself painting a painting.
+ - For fifteen cents a day you can feed an African, they eat pennies.
+ - Where are all the sour patch parents?
+ - I’m bored way too easily. I’m staring at screens half the day. I need to be overstimulated. And how will that express itself artistically?
+ - My work is trying to at least define myself on my own terms, and then if other people enjoy things that’s a lovely addition.
+ - Postmodern comedy doesn’t work well with very old audiences, because it’s making fun of the comedy they enjoy.
+ - There’s a metal train that a mile long and at the very back end a lightning bolt struck her. How long til it reaches and kills the driver, provided that he’s a good conductor?
+ - I never said I was funny, OK, so stop staring at me...
+ - If I had a dime for every time a homeless guy asked me for change, I’d still say no.
+ - Poetic talent is really easy to fake when thy sentences doth no f-king sense make.
+ - Poverty. Racism. Isn’t it strange, only the homeless are begging for change?
+ - Happy Thanksgiving, everyone. I’m thankful for all of you. I am not thankful for the pilgrims. Buckles should never be on hats.
+ - There’s a certain line between jokes and music and poetry that’s a bit blurred in my mind.
+ - I’d really love to make something that doesn’t involve my stupid face.
+ - Comedy should be a source of positivity. I don’t want to bully people, and I don’t want people to come to my show to feel terrible about something. I’m actually very open to having a conversation about what I should or shouldn’t say.
+ - My persona on stage was always coming from a place of I know better than you and I’m going to be a little bit pretentious in your face with these sort of crass ideas.
+ - The strength of comedy is I don’t have to answer to anybody but sometimes you want to learn from other people and see your ideas strengthen by other people.
+ - When I see someone filming me, I don’t usually think, ‘No, man, don’t put this up online!’ I’d think, ‘Hey man, you don’t get to go to shows very often, put down the camera and enjoy it!’ I love going to theatre and to shows so much.
+ - I think comedy has a range, with multiple peaks in different areas. It’s like trying to compare Beethoven and the Beatles. Sometimes I hear from people, ‘I think you try too hard in your comedy.’ And that’s what I worry about.
+ - What’s a pirate minus the ship? just a creative homeless guy.
+ - I’m a stand up comic and I always sit and slouch, and I got my girlfriend pregnant on my sterile uncles pull-out couch.
+ - I’m not a grown up until everybody realises I’m a grown up. When everyone remembers me as the dirty kid singing little songs I am the dirty little kid.
+ - I thought I wanted to be a physicist in high school until I learned that there was much more math than philosophy in it. I assumed I would just sit around all day and think.
+ - My persona is most importantly just to communicate the material in a way that is most funny and meaningful in the moment. It’s more like a character that’s sculpted for whatever joke needs communicating at the moment.
+ - If your belief is hateful towards people, I couldn’t respect that.
+ - Comedy is very strange to me and I don’t fully understand it’s purpose or function.
+ - I worked eight hours a day just so I could get into the college of my dreams and say that I got in – and I never went.
+ - I’ve found, across the board, that comedians have been very respectful and kind to me. And that seems to stem from the fact that they are just respectful and kind people in general. Comedians get a bad rap for being dark and anti-social I think.
+ - At once I feel that comedy is this amazing sort of transcendent thing, and I’m also open to the fact that maybe it’s just an evolutionary hiccup, something that upright apes do in their free time.
+ - I misdirect the audience, so they have no idea where they are or who they’re listening to.
+ - I’m very interested in trying to make comedy shows that are a bit bigger, more theatrical, more of a “show.” Some people might say I’m trying too hard, but that’s a compliment to me. I like to inject a bit of production value and flair to comedy, or at least to my little corner of comedy.
+ - Bitches and hoes don’t exist because the hoes know Bo’s a feminist.
+ - I get more ass than a giant donkey stable.
+ - And two balls minus one, six titles at the tour de France.
+ - I’m friends with a lot of comedians, but we don’t talk about material. Most comedians I know don’t watch a lot of other comedy.
+ - We’re having a traditional Thanksgiving – turkey, mashed potatoes, hat buckles, smallpox, genocide, a blue corn moon, etc.
+ - I got a safe full of cherries ’cause I pop it and lock it.
+ - I have a pretty good math mind, so I can see patterns, but I don’t have a great ear. It’s like a tragedy – I can see so much more natural musical ability in so many other people.
+ - In the distance, Bo saw a fairy. A fairy so beautiful that he felt proud of being called one in highschool.
+ - At the time of ‘Words, Words, Words,’ I’m a 19-year-old getting up feeling like he’s entitled to do comedy and tell you what he thinks of the world, so that’s inherently a little bit ridiculous.
+ - Squaring numbers are just like women. If they’re under thirteen, just do them in your head.
+ - I’m happy with what I’m doing. I try not to focus on how I’ve changed. I just try to focus on what I’m doing now.
+ - I think controversy has this allusion of being controversial but it’s totally not, which is why I’m trying to get away from it because it’s just easy and automatic.
+ - I think the love-hate is fundamental. Everyone hates reality television, and everyone’s watching it. Everyone hates Facebook, and everyone is on it.
+ - If comedy is about surprises, about tension, there’s a lot of tension and surprise there, in the fact that people are expecting this to be natural.
+ - The strange thing with Wikipedia is that the first article that ever gets written about you will define your Wikipedia page forever.
+ - I don’t try to call myself a poet. But I know that my stuff is pretty literal, in that the themes are pretty simple and on the surface.
+ - And an anteater plus a large hungry mutant ant? An ironic way to die.
+ - It’s not most important to communicate myself on stage as it is to be as funny or interesting as I possibly can on stage. I feel more like I’m doing a play whose main character just happens to share my name.
+ - Women are like fingers and toes because they’re easy to count on.
+ - I’ve found nothing but support and generosity from older comics. I think comedians are a lot nicer than the stigma is, at least from my experience.
+ - I just try to do things on stage that I think the audience would enjoy. And I try to draw on and add to acts that I’ve enjoyed watching.
+ - I don’t consciously try to make things difficult as much as I try to make them a little different. I like all kinds of laughs. I tried to make a show that elicit groans, guffaws, chuckles, boos.
+ - Happy Thanksgiving! I broke into Best Buy and stole a copy of Pocahontas to celebrate.
+ - I chose to do comedy instead of going to college.
+ - My first concern is that when you go to a show, you should be present. It’s much more exciting to put the camera down and lose yourself in it.
+ - I work really hard on the shows and I think the shows speak for themselves. I don’t want to construct the show to prove something.
+ - I never felt like I was stealing anyone’s fans as much as I was introducing some younger people to comedy who will eventually find tons of other comedians that they love.
+ - You guys like impressions? Why?
+ - I do think that stand-up comedy in general heavily favors masculinity and so I like to act a little feminine onstage.
+ - Ya back home they call me the tie-dye shirt kid, well that and fagot.
+ - I’m a drunken midget with a loaded gun, a loaded gun.
+ - For me, if you distill comedy down, it is surprise and the unexpected. That has to be it on its most base level, in any form.
+
+91 quotes

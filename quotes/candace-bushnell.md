@@ -1,0 +1,104 @@
+ - Man may have discovered fire, but women discovered how to play with it.
+ - Maybe some women aren’t meant to be tamed. Maybe they just need to run free until they find someone just as wild to run with them. -Carrie Bradshaw.
+ - What if I’m a princess on another planet? And no one on this planet knows it?
+ - The universe may not always play fair, but at least it’s got a hell of a sense of humor.
+ - Maybe our girlfriends are our soulmates and guys are just people to have fun with.
+ - I’m not ashamed of anything I’ve done. Shame is a useless emotion.
+ - Some people are settling down, some people are settling and some people refuse to settle for anything less than butterflies.
+ - That’s the difference between girls and women: Girls find men fascinating. Women know better.
+ - The key to life is your attitude. Whether you’re single or married or have kids or don’t have kids, it’s how you look at your life, what you make of it. It’s about making the best of your life wherever you are in life.
+ - Love is spiritual. It’s about self-sacrifice and commitment. And discipline. You cannot have true love without discipline and respect. When you lose the respect of your spouse, you’ve lost everything.
+ - If you smile, even if you’re feeling bad, the action of the muscles will trick your brain into thinking you’re happy.
+ - He leans over and kisses me. And suddenly, my life splits in two: before and after.
+ - Better alone than badly accompanied.
+ - Thank goodness for the first snow, it was a reminder – no matter how old you became and how much you’d seen, things could still be new if you were willing to believe they still mattered.
+ - I can only hope he’s an Aries and not a Scorpio.
+ - She didn’t want to have anything to do with the party. She was tired of feeling like she didn’t fit in, but she didn’t want to go home, either, because she was a tired of being lonely and she was a little drunk.
+ - A guy who is crazily, madly in love with you. A guy who sees how incredible and amazing you are, even though you’re not the cheerleader or even close to the prettiest girl in the school. A guy who thinks you’re beautiful, just the way you are.
+ - The most important thing to strive for in life is some kind of personal and professional achievement. Not as a man or a woman, but as a person.
+ - And the sooner you do the right thing, the better. You get it over with, and you don’t have to worry about it anymore. But who does that in real life?
+ - There’s a brief moment when you first wake up, where you have no memories. A blissful blank slate, a happy emptiness.
+ - Women with money and women in power are two uncomfortable ideas in our society.
+ - And if you were always spending your time getting over your past, how were you supposed to get on with your future?
+ - It’s hard to be careful, though, when you feel indestructible.
+ - When it comes to people – don’t write about who you know; but what you know of human nature.
+ - I can’t wait to get out of the house. I can’t wait to get out of here. I’ve been telling myself this all week. The ‘getting out of here’ part is unspecified, though. Maybe I simply want to get away from life.
+ - I’m really enjoying being single. I’m not even looking to meet anybody, which is so freeing.
+ - Rule number three: Best friends always think you deserve the best guy even if the best guy barely knows you exist.
+ - Life gives you lots of chances to screw up which means you have just as many chances to get it right.
+ - As Im writing, certain things become clear to me and certain things begin to feel right and make sense. The pieces start to fall into place.
+ - Should, is the worst word in the English language. People always think things “should” be a certain way, and when they’re not, they’re disappointed.
+ - If a woman could take care of herself, would she still need a man? Would she even want one? And if she didn’t want a man, what kind of woman would she be? Would she even be a woman? Because it seemed if you were a woman, the only thing you were really supposed to want was a man.
+ - Money follows art. Money wants what it can’t buy. Class and talent. And remember while there’s a talent for making money, it takes real talent to know how to spend it.
+ - From my experience, honey, if he seems too good to be true – he probably is.
+ - All those men who end up disappointing you. After a while, you don’t even want to have feelings anymore. You just want to get on with your life.
+ - Just because something doesn’t last forever, it doesn’t mean it wasn’t meaningful while it did last. It doesn’t mean it wasn’t important.
+ - Why do magazines do this to women? It’s all about creating insecurity. Trying to make women feel like they’re not good enough. And when women don’t feel like they’re good enough, guess what? Men win. That’s how they keep us down.
+ - You choose the end of the summer to fall in love with this guy because secretly, you don’t want it to last.
+ - Sometimes I want to be on ‘The Real Housewives of New York.’ I want to remind them to figure out how to get along and support each other.
+ - There is a thin line between attraction and repulsion.
+ - I know I’m not a wordsmith. And I don’t write poetry. Sometimes I think I should, because it’s really helpful. But I always wanted to write novels.
+ - I have this theory: If you forgive someone, they can’t hurt you anymore.
+ - Rule number one: Why is it that the one time a cute guy talks to you, you have a friend who’s in crisis?
+ - The ’80s was all about this idea that women could have it all. You could have a career, and you could have a husband, and you could have children.
+ - Maybe all men are a drug. Sometimes they bring you down and sometimes, like now, they get you so high.
+ - I have a house in the Connecticut countryside where you’ll always find me, summer or winter.
+ - Whoever we are here, we might be princesses somewhere else. Or writers. Or scientists. Or presidents. Or whatever the hell we want to be that everyone else says we can’t.
+ - You have to let go of who you were to become who you will be.
+ - You don’t want to peak in high school. If you do, the rest of your life is a disaster.
+ - Guys are like dogs: they never notice if you’ve changed your hair, but they can sense when there’s another guy sniffing around their territory.
+ - It’s tempting to wish for the perfect boss, the perfect parent, or the perfect outfit. But maybe the best any of us can do is not to quit, play the hand we’ve been dealt, and accessorize what we’ve got.
+ - Love is dangerous, if you know it’s dangerous, that makes you treasure it, and you’ll work harder to keep it.
+ - When I was 8, I was reading a book in which it was snowing. When I looked outside, I expected there to be snow on the ground. I thought, “This is the most powerful thing I can do! I’m going to be a writer.”
+ - I do not pick the wrong guys. They pick me.
+ - I started writing about New York as soon as I arrived. I was 19. I used to write short stories and send them out.
+ - A glittering disco ball spins from the ceiling, but the music is something I’ve never heard, discordant and haunting and insistent, the kind of music that demands you dance.
+ - Who am I supposed to be again? Just be yourself. But who am I?
+ - Happiness comes out of being willing to do your work in your twenties to find out who you are, what you love.
+ - At first, being with Sebastian was like being in the middle of the best dream I’d ever had – but now it mostly feels exhausting. I’m up one minute and down the next; questioning what I say and do. Even questioning my sanity.
+ - I think, when men tell women to lose weight, it’s a diversion from their own lack of size in certain areas.
+ - Some secrets are better left at that -as secrets.
+ - I sometimes read in a gossip column that I was at a party when I was in Europe at the time. It sometimes feels I’ve got a Doppelganger somewhere.
+ - So much of being a woman is telling lies.
+ - What I have yet to see is a real woman choose a younger man because he spent six hours a day at the gym trying to sculpt his abs.
+ - I’m certainly not going to put my life on hold for him.
+ - If you believe in love, you’re setting yourself up to be disappointed.
+ - My parents had a great marriage. Interestingly, it made it harder for me in relationships because I knew what a good relationship looked like.
+ - I don’t go to parties to meet men. I go to parties to stand in a corner and watch people.
+ - I love things that are old and glittery, that come with layers of glamour and past lives.
+ - As long as you’re neurotic and crazy, he’s great. But once he solves all your problems, he becomes the problem.
+ - You know what they say: A woman needs a man about as much as a fish needs a bicycle.
+ - This is the most powerful thing I can do! I’m going to be a writer.
+ - Always look like you know where you’re going, even when you don’t.
+ - Why do I keep evading my work? Is it because I’m afraid of being confronted by my lack of abilities?
+ - You can get used to anything, I guess, if you’ve been there enough.
+ - We’re comfortable with movie stars having money. We’re comfortable with a woman marrying a rich guy and having money. We’re not so comfortable with a woman independently working in business and making a lot of money.
+ - Patent leather wedges-they were big when I went to prom!
+ - It was scary how a girl couldn’t live without friends.
+ - All men are a disappointment. No matter what anyone says.
+ - Funny always makes the bad things go away.
+ - I love Chicago. I lived there briefly for three months and kept a boat under one of those space-age buildings. It was very Jetsons.
+ - I think a young woman’s relationship with her father is really important.
+ - It was the first honest emotional connection I’d had in a while. So I immediately panicked and had to leave.
+ - The only way to look at men is like they’re electrons. They have all these charges sticking out, and they’re always looking for a hole where they can put those charges.
+ - I always thought that there was a really good chance that I wasn’t going to get married.
+ - There’s so many things that mattered so much in my 20s and 30s that don’t matter now.
+ - After all, it’s woman, who decide, if a man is desirable or undesirable.
+ - My decorating and renovation skills are nil – indeed, I once used a shower curtain from Pottery Barn as ’window dressing.
+ - I don’t consider my work a job. I consider it a career. And you don’t quit a career.
+ - I’m looking forward to writing more novels for young adults.
+ - For me, having it all is being paid to write novels.
+ - Grace was one of those types who never changed but only aged and had no apparent expectations or ambitions other than the wish that her life should remain the same.
+ - Meanwhile I’ll probably see him again. That’s how sick I am.
+ - It’s always the people who don’t want things who get them.
+ - Ever since I can remember I was telling stories and had a huge interest in other people and what made them tick.
+ - Oh I don’t plan on getting married. It’s a legalized form of prostitution.
+ - Well I actually do have a country house in Connecticut with a population of 3,000. Like, how small is that? I spend a lot of time there – I write up there. So I kind of have the best of both worlds and I love going up there.
+ - I have to tell you, TV is an incredibly difficult medium. The most challenging show to do is the hour long dramedy. It’s a very tricky format.
+ - New York is a city where people are ambitious. They want things.
+ - The heart wants what the heart wants.
+ - I can safely conclude that we are single because we want to be.
+ - The world is full of people who all want the same thing, and you have to do a little something extra to make them remember you.
+ - There are so many beautiful girls around that after a while you start looking for someone who can make you laugh.
+
+102 quotes

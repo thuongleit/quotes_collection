@@ -1,0 +1,64 @@
+ - Most of the things I do are misunderstood. Hey, after all, being misunderstood is the fate of all true geniuses, is it not?
+ - I will never vote Democrat again, they are Communists.
+ - Well, first of all, I’m worth every penny.
+ - Here’s what happens when you die – you sit in a box and get eaten by worms. I guarantee you that when you die, nothing cool happens.
+ - You’ve got to be a little vicious. You’ve got to be narcissistic. You’ve got to be on fire about your career.
+ - I’ve come to appreciate other people’s talents.
+ - I’m going to take over the world. Everyone watch out, you’re in big trouble.
+ - I believe I am doing the work for humanity. This show is so uplifting.
+ - I believe in censorship when it benefits me.
+ - My show was revolutionary, ground-breaking. When I came on the scene, people were not doing a thing.
+ - I don’t talk about my salary.
+ - Don’t let the government win.
+ - I feel blessed, I really feel fulfilled.
+ - I’m not a good listener some times. I’m too much of a control freak. I’m learning to be better. I was so caught up in just getting the job done that I would miss out on the human aspect of this. There was a connection missing.
+ - I’ve always thought that a name says a lot about a person. So naturally, being named Howard, I always wanted to crawl into a hole.
+ - There’s just too many people being bullied, too many people’s lives being wrecked. This is something that is long overdue. We all have gay and lesbian people in our families, and these are good people.
+ - I still feel like I gotta prove something. There are a lot of people hoping I fail. But I like that. I need to be hated.
+ - I’m sickened by all religions. Religion has divided people. I don’t think there’s any difference between the pope wearing a large hat and parading around with a smoking purse and an African painting his face white and praying to a rock.
+ - Please, with the God talk. Hate to break it to you, but there is no God.
+ - I wanted to go hide. I wasn’t looking to be more famous, I’m famous enough.
+ - I can’t imagine the biggest blow to me was that marriage not working out. That just flipped me out.
+ - I’ve never come into anything successful before. I’ve always been hired by horrible radio stations with horrendous reputations and nothing to lose.
+ - I really didn’t know much about the Libertarians. I knew they were for less government and more individual freedom. I liked that.
+ - If you’re a Christian you don’t sit there and worry about what somebody else is doing, if they’re happy and they’re committed in a relationship.
+ - Why be uptight about bowel movements and sex? We all have sex. We all have penises – except for those of us who have vaginas.
+ - I’m trapped inside of me and I don’t go out at all. I go to bed at eight o’clock at night. I never go out during the week. I’m in psychotherapy four days a week, pretty heavy commitment to it.
+ - Relationships are based on trust until you meet someone new.
+ - It’s okay for a man to commit adultery if his wife is ugly.
+ - I’ve always been about honesty, whether on the radio, whether I did a movie, whether I wrote a book. As long as you’re honest, you don’t lose your edge.
+ - I seem to be some sort of lightning rod. I just really irritate people, you know? I really do.
+ - I think I’m probably a little too desperate to be successful.
+ - I’m down with just the Backstreet Boys.
+ - I don’t like being 50 and I don’t like thinking about death.
+ - Mike Walker is the Hemingway of gossip.
+ - Every time I went on the radio, I would take the crummiest radio station, the station that was like a toilet bowl. I would go on there and build up the ratings, so you couldn’t do any worse.
+ - I don’t think there’s one thing I’ve ever said on the radio that would have been found indecent or obscene.
+ - I’ve actually apologized to some people I was a real jerk to, because I feel ashamed. I didn’t need to be that hungry. There was something going on inside me when I was angry and feeling very threatened and not feeling good about myself.
+ - I’m a parent, and I regulate what my kids listen to. I don’t need the government to be the parent. If I’m a crappy parent, then I need the government involved.
+ - I believe we will start believing in God as we get closer to death.
+ - These nutbags, like Santorum and Bachmann, who make these people and especially young gay kids feel miserable, shame on them. They’re quacks. I would never vote for them. I wouldn’t even listen to them because there but for the grace of God go they.
+ - I’m about being funny. If I can make a joke using profanity, I will. But for the most part, that can get awfully old and boring.
+ - I’m in a war, a cultural war.
+ - Rick Shapiro is a top comedian.
+ - I think people of lesser talent will become stars.
+ - We are busy planning the launch of the channel. I am busy planning all kinds of events that go on the channel without me. I have started producing a sound for the channel.
+ - We all get one life to live here. It’s 2012, and for gay and lesbian couples who are in love, not to be able to be married is so absurd.
+ - There are things that I won’t do on the radio. I mean, the next logical question is, what won’t you do. I say, well, you know, you’ve got to find out when you’re on the air.
+ - There are a lot of so-called “good Americans” who are really a bunch of bums.
+ - I will never feel successful.
+ - I’m not looking for a paycheck.
+ - I’m a believer that satellite radio, whether I’m on it or not, will take off.
+ - I didn’t listen to executives.
+ - I’m on the air five hours, and I blurt out anything in my head. Dangerous? Maybe.
+ - It causes me great pain to sue the company I work for. Nevertheless, I had to do it. Suffice it to say, there’s a dispute and I believe I haven’t been given what is mine.
+ - I think I could create a cult, no problem. The hard part is getting people to kill themselves.
+ - When you hire me, you hire a nut who is going to work 24 hours a day for you and never, ever burn his audience.
+ - And rather than hide that, I would rather put that out on the radio and let someone see the full range of emotions. If you’re going to be strong on the radio, you got to let it all out, even the ugly stuff. And you can’t apologize for it.
+ - I’m the voice of honesty.
+ - It’s no treat being in bed with me.
+ - I will always be mad at someone. That will never go away.
+ - I’m at a point in my career, I’ve been around a long time now, over 35 years in broadcasting. I don’t worry about much. I respect what America’s Got Talent is. It is a family show. It is a show that I love.
+ - Okay, well, I guess I’m still a kid. Because when I get really angry and fired up and I feel like my back is up against the wall, I will say vicious things.
+
+62 quotes

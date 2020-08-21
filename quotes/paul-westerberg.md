@@ -1,0 +1,34 @@
+ - The truth is overrated.
+ - Stick with your heart and you’ll be fine.
+ - Nobody can miss you unless you go away.
+ - People like to see human error when it’s honest. When people see you swing and miss, they start to root for you.
+ - The ones that love us least, are the ones we’ll die to please.
+ - I didn’t wake up one morning and not be in the Replacements. We’re all that forever, and I’ve just grown older. I mean, I haven’t lost anything. I’ve gained a few things.
+ - I used to write things that might have sounded better coming out of an older person’s voice or vision. Hence, “grandpa-boy.” I’m an old man, but I’m a boy. A really old boy!
+ - The hack songwriter will write the absolute truth every single word, whether it makes a great song or not.
+ - Although, my experience when I’ve been depressed, not only am I too depressed to sit down and write a song, I’m too depressed to pick up my feet. So if you can at least write about it, you’re halfway away from it.
+ - Having a diverse sense of taste – or lack of taste – I loved so many different things. I was drawn to the stupidity and excitement of glam, I had a thorough upbringing in rhythm and blues.
+ - The soul of rock ‘n’ roll is mistakes, and making mistakes work for you. The people who shy away from mistakes and play it safe have no business playing rock ‘n’ roll.
+ - I’d been through crappy day jobs and stupid garage bands. I was determined to make it as a musician.
+ - Any musician who can stop may be a musician, but they’re no artist. If it’s in your blood, it can’t stop flowing.
+ - It’s fun, but the fun is where it always was. I mean, it’s still fun to strap on my Les Paul in the basement and turn up the Marshall amp. I’m still 15. I still enjoy that as much as I ever did.
+ - A rock’n’roll band needs to be able to get under people’s skin. You should be able to clear the room at the drop of a hat.
+ - I forever felt that I’ve fallen right between the crack of way too young for the first generation of classic rock ‘n’ roll and too old to be brand-new. It’s hard.
+ - Nobody gets married to a clever song, let alone falls in love to one.
+ - There is that unpredictability of the seasons that I enjoy. I like the threat of a tornado. I like the threat of four feet of snow.
+ - The best I can say is that it’s better for me to write about despair and darkness than to be incapable of getting off the sofa. It’s better to write about suicide than to contemplate it too heavily.
+ - Reading music is like listening to flowers. I don’t understand the concept.
+ - I’m beyond caring what anyone expects of me anymore.
+ - The sheer volumes of songs have come from the hours of cold and darkness that one spends inside with the lights on.
+ - I’m constantly recording and playing down in the basement, and my voice is starting to sound really good. There’s cracks and scratches in my voice that have been there since I was 19. It hasn’t changed that much.
+ - It’s like, it’s up to the people to fall in love with the song. The record company can only do so much.
+ - Right now, it hasn’t affected my music other than the fact that I don’t have time to write any of it. That’s no different from when I first started and I lived at home. I would play the guitar in the afternoon and then my mom or my dad would come home and I’d have to quit.
+ - Actually, I’ve done it the other way so many times where you rehearse the band and you do the whole thing with lights, the show and the crew – everything. Then you see what happens and you’re already committed to dates. I’m just sort of putting out feelers this way.
+ - I think it should be evident by now, but I’m as lost as anyone.
+ - I think of the Replacements only when they’re brought up to me. For two years, I’m at home, they don’t really cross my mind. I still hear them on the radio. I’m not ashamed of anything we did.
+ - Then again, I think about high school every day and I think about being a little kid every day too.
+ - I’m hard-pressed to think of a lot of great rock movies.
+ - Some records are timeless, and some absolutely sound of their day.
+ - I’m not dissatisfied with my place in it rock ‘n’ roll.
+
+32 quotes

@@ -1,0 +1,34 @@
+ - Software is getting slower more rapidly than hardware becomes faster.
+ - A primary cause of complexity is that software vendors uncritically adopt almost any feature that users want.
+ - Programming is usually taught by examples.
+ - Go To statement considered harmful.
+ - Prolific programmers contribute to certain disaster.
+ - Increasingly, people seem to misinterpret complexity as sophistication, which is baffling – the incomprehensible should cause suspicion rather than admiration.
+ - Good engineering is characterized by gradual, stepwise refinement of products that yields increased performance under given constraints and with given resources.
+ - My being a teacher had a decisive influence on making language and systems as simple as possible so that in my teaching, I could concentrate on the essential issues of programming rather than on details of language and notation.
+ - Our ultimate goal is extensible programming. By this, we mean the construction of hierarchies of modules, each module adding new functionality to the system.
+ - Reliable and transparent programs are usually not in the interest of the designer.
+ - Software development is technical activity conducted by human beings.
+ - Time pressure gradually corrupts an engineer’s standard of quality and perfection. It has a detrimental effect on people as well as products.
+ - A good designer must rely on experience, on precise, logic thinking; and on pedantic exactness. No magic will do.
+ - The possible solutions to a given problem emerge as the leaves of a tree, each node representing a point of deliberation and decision.
+ - Program construction consists of a sequence of refinement steps.
+ - But quality of work can be expected only through personal satisfaction, dedication and enjoyment. In our profession, precision and perfection are not a dispensible luxury, but a simple necessity.
+ - The belief that complex systems require armies of designers and programmers is wrong. A system that is not understood in its entirety, or at least to a significant degree of detail by a single individual, should probably not be built.
+ - The idea that one might derive satisfaction from his or her successful work, because that work is ingenious, beautiful, or just pleasing, has become ridiculed.
+ - In the practical world of computing, it is rather uncommon that a program, once it performs correctly and satisfactorily, remains unchanged forever.
+ - Nevertheless, I consider OOP as an aspect of programming in the large; that is, as an aspect that logically follows programming in the small and requires sound knowledge of procedural programming.
+ - Many people tend to look at programming styles and languages like religions: if you belong to one, you cannot belong to others. But this analogy is another fallacy.
+ - My duty as a teacher is to train, educate future programmers.
+ - Experience shows that the success of a programming course critically depends on the choice of these examples.
+ - I have never designed a language for its own sake.
+ - I am convinced that there is a need for high quality software, and the time will come when it will be recognized that it is worth investing effort in its development and in using a careful, structured approach based on safe, structured languages.
+ - During the process of stepwise refinement, a notation which is natural to the problem in hand should be used as long as possible.
+ - But active programming consists of the design of new programs, rather than contemplation of old programs.
+ - Indeed, the woes of Software Engineering are not due to lack of tools, or proper management, but largely due to lack of sufficient technical competence.
+ - Clearly, programming courses should teach methods of design and construction, and the selected examples should be such that a gradual development can be nicely demonstrated.
+ - Usually its users discover sooner or later that their program does not deliver all the desired results, or worse, that the results requested were not the ones really needed.
+ - It is evidently necessary to generate and test candidates for solutions in some systematic manner.
+ - Programs should be written and polished until they acquire publication quality.
+
+32 quotes

@@ -1,0 +1,97 @@
+ - Meditation is listening to the divine within.
+ - Sound will be the medicine of the future.
+ - Spirit is the life, the mind the builder the physical the result.
+ - Don’t feel sorry for yourself if you have chosen the wrong road, turn around.
+ - We grow to heaven. We don’t go to heaven.
+ - The medicine of the future will be music and sound.
+ - If you learn music, you’ll learn history. If you learn music, you’ll learn mathematics. If you learn music, you’ll learn most all there is to learn.
+ - Forces of light on earth shall overcome the force of darkness. Complete spiritual enlightenment on earth will occur.
+ - Make the world a better place because you have lived in it.
+ - Keep the Pineal Gland operating and you will Never grow Old, You will always be Young.
+ - Life is continuous, and is Infinite.
+ - Through prayer we speak to God. In meditation, God speaks to us.
+ - Each and every soul will become consciously aware of the ability to communicate with the divine.
+ - The ultimate purpose of our life is to rejoin God in conscious participation of divinity.
+ - Each soul in entering the material experience does so for those purposes of advancement towards that awareness of being fully conscious of the oneness with the Creative Forces.
+ - Soul development should take precedence over all things.
+ - Destiny, or karma, depends upon what the soul has done about what it has become aware of.
+ - And what is life? God manifested in the material plane. For it is in Him that we live and move and have our being.
+ - The conquering of self is truly greater than were one to conquer many worlds.
+ - Know that all healing forces are within, not without! The applications from without are merely to create within a coordinating mental and spiritual force.
+ - All souls were created in the beginning and are finding their way back to whence they came.
+ - For the material, at best, is only temporal, or temporary, while that which may be built from spiritual desire, spiritual purposes, is eternal.
+ - Smile often. Speak gently. Be kind.
+ - For the Earth is only an atom in the universe of worlds.
+ - There is so much good in the worst of us, and so much bad in the best of us, it doesn’t behoove any of us to speak evil of the rest of us.
+ - As we approach the Golden Age, the veils shall be removed and the people of the Earth shall become aware of the people of the Universe.
+ - Since karma is meeting self, we acquire karma as we meet self in our many attitudes and emotions; when we serve in loving kindness and patience or hold resentful malicious thoughts What we do to our fellow man we do to our Maker our karma or problem is within self.
+ - The more knowledge, the more responsibility. The more love, the more ability.
+ - Let thy light shine, then, in dark places.
+ - For ye are a corpuscle in the body of God; thus a co-creator with Him, in what ye think, in what ye do.
+ - You can never lose anything that really belongs to you, and you can’t keep that which belongs to someone else.
+ - Happiness is your choice to make. How happy or how miserable do you want to be?
+ - Each soul enters with a mission. We all have a mission to perform.
+ - Life – God – in its essence is vibration.
+ - The purpose of the heart is to know yourself, to be yourself, and yet one with God.
+ - Individuals do not meet by chance. They are necessary in the experiences of others, though they may not always use their opportunities in a spiritual way or manner.
+ - He who understands nature walks close with God.
+ - It is thought and feeling which guides the universe, not deeds.
+ - Dreams are today’s answers to tomorrow’s questions.
+ - In the consciousness of eternity, time is not, neither is space. In man’s consciousness there appears so much mercy, so much love, that these have been called time and space.
+ - Each soul or entity will and does return, or cycle, as does nature in its manifestations about man; thus leaving, making or presenting-as it were-those infallible, indelible truths that it -Life-is continuous.
+ - Grace is the wonderful spirit that imbues every fiber of our being when we practice the fruits of the spirit: kindness, patience, understanding, forgiveness, love, gentleness, fellowship and endurance.
+ - Smile always – and live the smile!
+ - Be a light unto others, not boastful of self.
+ - All you may know of heaven or hell is within your own self.
+ - Birth in the physical is death in the spiritual. Death in the physical is the birth in the spiritual.
+ - Death is only passing through God’s other door.
+ - First begin between selves, set a definite time, at each at that time put down what the other is doing. Do this 20 days. You shall find you have the key to telepathy.
+ - The soul seeks growth; as Truth, as Life, as Light, is in itself. God is, and so is life, light, truth, hope, love. And those that abide in same, grow. Those that abide in the shadow of the night, or the conditions that become or make for the fruits of these, do not grow.
+ - Great numbers of children will be born who understand electronics and atomic power as well as other forms of energy. They will grow into scientists and engineers of a new age which has the power to destroy civilization unless we learn to live by spiritual laws.
+ - There is no force in the universe more powerful than your will or power.
+ - Orange is the color of the sun. It is vital and a good color generally, indicating thoughtfulness and consideration of others.
+ - If you learn music you’ll learn most all there is to know.
+ - Anyone can find fault. It is the wise person who finds that which encourages another in the turmoils and strifes of the day.
+ - For all healing, mental or material, is attuning each atom of the body, each reflex of the brain forces, to the awareness of the divine that lies within each atom, each cell of the body.
+ - It is not all of life to live, nor yet all of death to die. For life and death are one, and only those who will consider the experience as one may come to understand or comprehend what peace indeed means.
+ - When there is a start to be made, don’t step over! Start where you are.
+ - You see, death is not the grave as many people think. It is another phenomenized form of life.
+ - When ye are prepared for a thing, the opportunity to use it presents itself.
+ - For, he that expects nothing shall not be disappointed, but he that expects much – if he lives and uses that in hand day by day – shall be full to running over.
+ - It is the “try” that is more often counted for righteousness and not the success or failure.
+ - There is progress whether ye are going forward or backward! The thing is to move.
+ - When you get to the place where you would worry, Stop and pray.
+ - For, know that each soul constantly meets its own self. No problem may be run away from. Meet it now!
+ - What we think and what we eat, combined together, make what we are, physically and mentally.
+ - For all prayer is answered. Don’t tell God how to answer it.
+ - Don’t worry so much where you live but how you live. Make the family of man your family as well.
+ - In the beginning all souls were as a unity to the God-Force. As self added or subtracted that which was in keeping with God’s purpose, ye added or subtracted from the blessings ye might be conscious of in materiality. Thus karma is builded. And the law is perfect – what ye sow, ye reap.
+ - What Is Meditation? It is not musing, not daydreaming; but as ye find you bodies made up of the physical, mental and spiritual, it is the attuning of the mental body and the physical body to its spiritual source.
+ - Peace must begin within self before there can come action or self application in a way to bring peace-even in thine own household, in thine own vicinity, in thine own state or nation.
+ - Learn to live with self and you will learn to live with others.
+ - There is no love without sacrifices.
+ - Only the destructive forces know death as lord. Only spiritual forces know life as the Lord. Know ye the Lord!
+ - In any influence, will, a self, the ego, the I AM is the greater force to be dealt with, but as numbers do influence, a knowledge of same certainly gives an individual a foresight into relationships.
+ - The signs of the zodiac are karmic patterns; the planets are the looms; the will is the weaver.
+ - Love is qualified as an attribute of that force, power or influence known as God. Thus as man makes application of love in his daily experience, he finds God a personal God.
+ - Russia will become beacons of hope for the world.
+ - Magnify the virtues, minimize the faults.
+ - You’ll not be in heaven if you’re not leaning on the arm of someone you have helped.
+ - Analyze thy life’s experiences, see thy shortcomings, see thy virtues. Minimize those faults, magnify and glorify thy virtues.
+ - The more and more each is impelled by that which is intuitive, or the relying upon the soul force within, the greater, the farther, the deeper, the broader, the more constructive may be the result.
+ - For most people, lack of consistent, persistent effort is the biggest obstacle.
+ - As the attuning of music arouses emotions in the body to an unusual degree, well that there be choices made regarding what emotions are aroused and what character of music.
+ - Anyone with great imagination, of course, is intuitive. Knowledge of any nature, unless put into practical use, becomes of little effect.
+ - It can be a fascinating game, noticing how any person with vitality and vigor will have a little splash of red in a costume, in a room, or in a garden...
+ - For what we think upon, that we become.
+ - From what may anyone be saved? Only from themselves! That is, their individual hell. They dig it with their own desires.
+ - By being with that individual, we are somehow provided with an impetus to become whole ourselves...
+ - Know first that no urge, no influence, is greater than the will of the self to do what it determines to accomplish in any direction – whether physically, mentally, or spiritually.
+ - Being Kind Not in some great deed of heroism; not in some great speech or act that may be pointed to with pride-but rather in the little kindnesses from day to day...
+ - For until ye become as a savior, as a help to some soul that has lost hope, lost its way, ye do not fully comprehend the god within, the god without.
+ - The way of the Cross is not easy, yet it is the tuneful, the rhythmic, the beautiful, the lovely way.
+ - The last to be overcome is death, and the knowledge of life is the knowledge of death.
+ - The life must be a well-balanced life, not lopsided in any manner to bring contentment.
+ - One who changes a body from the error of the way not only brings peace and harmony but saves a soul and covers a multitude of shortcomings.
+
+95 quotes

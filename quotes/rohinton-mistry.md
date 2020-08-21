@@ -1,0 +1,35 @@
+ - In the end, it’s all a question of balance.
+ - You have to maintain a fine balance between hope and despair.
+ - After all, our lives are but a sequence of accidents – a clanking chain of chance events. A string of choices, casual or deliberate, which add up to that one big calamity we call life.
+ - You see, you cannot draw lines and compartments, and refuse to budge beyond them, sometimes you have to use your failures as stepping stones to success.
+ - All fiction relies on the real world in the sense that we all take in the world through our five senses and we accumulate details, consciously or subconsciously. This accumulation of detail can be drawn on when you write fiction.
+ - In the broad sense, as a processing of everything one hears or witnesses, all fiction is autobiographical – imagination ground through the mill of memory. It’s impossible to separate the two ingredients.
+ - Flirting with madness was one thing; when madness started flirting back, it was time to call the whole thing off.
+ - Black money is so much a part of our white economy, a tumour in the centre of the brain – try to remove it and you kill the patient.
+ - Distance was a dangerous thing, she knew. Distance changed people.
+ - Money can buy the necessary police order. Justice is sold to the highest bidder.
+ - The Law is a grim, unsmiling thing. Not Justice, though. Justice is witty and whimsical and kind and caring.
+ - So we tell the same story, over and over. Just the details are different.
+ - There was no such thing as perfect privacy, life was a perpetual concert-hall recital with a captive audience.
+ - Zoroastrianism is about the opposition of good and evil. For the triumph of good, we have to make a choice. We can enlist on the side of good by prospering, making money and using our wealth to help others.
+ - Loss is essential. Loss is part and parcel of that necessary calamity called life.
+ - The carnage upon the chessboard of life, left wounded humans in its wake.
+ - If there was an abundance of misery in the world, there was also sufficient joy, yes – as long as one knew where to look for it.
+ - He who spits paan at the ceiling only blinds himself.
+ - Remembering bred its own peculiar sorrow. It seemed so unfair: that time should render both sadness and happiness into a source of pain.
+ - I think a lot about the past, it’s true. But at my age, the past is more present than the here and now. and there is not much percentage in the future.
+ - I met my wife when we were both 19 or 20, at a music school where she was taking voice and piano lessons and I was doing classes in music theory and composition.
+ - There didn’t seem to her any harm in it, and the make-believe was so comforting.
+ - How can time be long or short? Time is without length or breadth. The question is, what happened during its passing. And what happened is, our lives have been joined together.
+ - Traffic in the streets of Bombay is chaotic at best. Riding a bicycle is a dangerous occupation. However, there are hundreds of them on the streets competing with the cars and buses and lorries because it is the poor man’s mode of transport.
+ - Where humans are concerned, the only emotion that made sense was wonder, at their ability to endure...
+ - Walk, first, through the fire, then philosophize...
+ - The whole quilt is much more important than any single square.
+ - Lately you are brooding too much about rights. Give up this dangerous habit.
+ - Time had changed the magical to mundane.
+ - Birth and death – what could be more monstrous than that? We like to deceive ourselves and call it wondrous and beautiful and majestic, but it’s freakish, let’s face it.
+ - In foreign countries they fear baldness. They are so rich in foreign countries, they can afford to fear all kinds of silly things.
+ - The worst part of great poverty is that you become blind to it.
+ - Hahnji, mister, you must be patient. Before you can name that corner, our future must become past.
+
+33 quotes

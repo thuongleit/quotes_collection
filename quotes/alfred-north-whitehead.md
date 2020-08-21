@@ -1,0 +1,265 @@
+ - I would be a billionaire if I was looking to be a selfish boss. That’s not me.
+ - No one who achieves success does so without acknowledging the help of others. The wise and confident acknowledge this help with gratitude.
+ - Every really new idea looks crazy at first.
+ - The art of progress is to preserve order amid change and to preserve change amid order.
+ - We think in generalities, but we live in detail.
+ - Seek simplicity, and distrust it.
+ - In formal logic, a contradiction is the signal of defeat, but in the evolution of real knowledge it marks the first step in progress toward a victory.
+ - Vedanta is the most impressive metaphysics the human mind has conceived.
+ - Art is the imposing of a pattern on experience, and our aesthetic enjoyment is recognition of the pattern.
+ - The worship of God is not a rule of safety – it is an adventure of the spirit, a flight after the unattainable.
+ - Algebra is the intellectual instrument which has been created for rendering clear the quantitative aspects of the world.
+ - The vastest knowledge of today cannot transcend the buddhi of the Rishis in ancient India; and science in its most advanced stage now is closer to Vedanta than ever before.
+ - Intelligence is quickness to apprehend as distinct form ability, which is capacity to act wisely on the thing apprehended.
+ - What we perceive as the present is the vivid fringe of memory tinged with anticipation.
+ - Nature, even in the act of satisfying anticipation, often provides a surprise.
+ - Error is the price we pay for progress.
+ - Civilization advances by extending the number of important operations which we can perform without thinking about them. Operations of thought are cavalry charges in a battle – they are limited in number, they require fresh horses, and must only be made at decisive moments.
+ - Almost all new ideas have a certain aspect of foolishness when they are first produced.
+ - It is in literature that the concrete outlook of humanity receives its expression.
+ - It is a safe rule to apply that, when a mathematical or philosophical author writes with a misty profundity, he is talking nonsense.
+ - After you understand about the sun and the stars and the rotation of the earth, you may still miss the radiance of the sunset.
+ - The preternatural solemnity of a good many of the professionally religious is to me a point against them.
+ - Not ignorance, but ignorance of ignorance, is the death of knowledge.
+ - The purpose of education is not to fill a vessel but to kindle a flame.
+ - Imagination is not to be divorced from the facts. It is a way of illuminating the facts.
+ - Culture is activity of thought, and receptiveness to beauty and humane feeling. Scraps of information have nothing to do with it. A merely well informed man is the most useless bore on God’s earth.
+ - In a sense, knowledge shrinks as wisdom grows: for details are swallowed up in principles.
+ - A Unitarian is a person who believes in at most one God.
+ - Symbolism is no mere idle fancy or corrupt degeneration: it is inherent in the very texture of human life.
+ - God is in the world, or nowhere, creating continually in us and around us. Insofar as man partakes of this creative process does he partake of the divine, of God, and that participation is his immortality...
+ - But you can catch yourself entertaining habitually certain ideas and setting others aside; and that, I think, is where our personal destinies are largely decided.
+ - The ultimate metaphysical ground is the creative advance into novelty.
+ - From the very beginning of his education, the child should experience the joy of discovery.
+ - Great people plant trees they’ll never sit under.
+ - Knowledge does not keep any better than fish.
+ - In a sense, knowledge shrinks as wisdom grows, for details are swallowed up in principles. The details for knowledge which are important, will be picked up ad hoc in each avocation of life, but the habit of the active utilization of well-understood principles is the final possession of WISDOM.
+ - The whole of mathematics consists in the organization of a series of aids to the imagination in the process of reasoning.
+ - The art of progress is to preserve order amid change, and to preserve change amid order. Life refuses to be embalmed alive. The more prolonged the halt in some unrelieved system of order, the greater the crash of the dead society.
+ - Apart from God every activity is merely a passing whiff of insignificance.
+ - A general definition of civilization: a civilized society is exhibiting the fine qualities of truth, beauty, adventure, art, peace.
+ - Mathematics, in its widest significance, is the development of all types of formal, necessary, deductive reasoning.
+ - The deepest definition of youth is life as yet untouched by tragedy.
+ - Education with inert ideas is not only useless; it is above all things harmful.
+ - The human body is an instrument for the production of art in the life of the human soul.
+ - The chief danger to philosophy is narrowness in the selection of evidence.
+ - We think in generalities, but we live in detail. To make the past live, we must perceive it in detail in addition to thinking of it in generalities.
+ - What the learned world tends to offer is one second-hand scrap of information illustrating ideas derived from another second-hand scrap of information. The second-handedness of the learned world is the secret of its mediocrity.
+ - True courage is not the brutal force of vulgar heroes, but the firm resolve of virtue and reason.
+ - The antithesis between a technical and a liberal education is fallacious. There can be no adequate technical education which is not liberal, and no liberal education which is not technical.
+ - Civilization advances by extending the number of important operations which we can perform without thinking of them.
+ - Philosophy is the self-correction by consciousness of its own initial excess of subjectivity.
+ - Inventive genius requires pleasurable mental activity as a condition for its vigorous exercise.
+ - When you’re average, you’re just as close to the bottom as you are the top.
+ - On the ostensible exactitude of certain branches of human knowledge, including mathematics. The exactness is a fake.
+ - Philosophy is the product of wonder.
+ - Governments are best classified by considering who are the “somebodies” they are in fact endeavoring to satisfy.
+ - It is the business of the future to be dangerous; and it is among the merits of science that it equips the future for its duties.
+ - Civilizations can only be understood by those who are civilized.
+ - Youth is life as yet unblemished by much tragedy, but hardly by TV.
+ - Fertilization of the soul is the reason for the necessity of art.
+ - Our rate of progress is such that an individual human being, of ordinary length of life, will be called on to face novel situations which find no parallel in his past. The fixed person, for the fixed duties, who, in older societies was such a godsend, in the future will be a public danger.
+ - The merely well-informed man is the most useless bore on God’s earth.
+ - The justification for a university is that it preserves the connection between knowledge and the zest of life, by uniting the young and the old in the imaginative consideration of learning.
+ - The many become one and are increased by one.
+ - The safest general characterization of the European philosophical tradition is that it consists of a series of footnotes to Plato.
+ - Not a sentence or a word is independent of the circumstances under which it is uttered.
+ - All practical teachers know that education is a patient process of mastery of details, minute by minute, hour by hour, day by day.
+ - Now in creative thought common sense is a bad master. Its sole criterion for judgement is that the new ideas shall look like the old ones. In other words it can only work by suppressing originality.
+ - Common sense is genius in homespun.
+ - The pursuit of mathematics is a divine madness of the human spirit.
+ - Other nations of different habits are not enemies: they are godsends. Men require of their neighbours something sufficiently akin to be understood, something sufficiently different to provoke attention, and something great enough to command admiration. We must not expect, however, all the virtues.
+ - The paradox is now fully established that the utmost abstractions are the true weapons with which to control our thought of concrete fact.
+ - I am sure that one secret of a successful teacher is that he has formulated quite clearly in his mind what the pupil has got to know in precise fashion. He will then cease from half-hearted attempts to worry his pupils with memorizing a lot of irrelevant stuff of inferior importance.
+ - No science can be more secure than the unconscious metaphysics which tacitly it presupposes.
+ - The only use of knowledge of the past is to equip us for the present.
+ - An unflinching determination to take the whole evidence into account is the only method of preservation against the fluctuating extremes of fashionable opinion.
+ - A clash of doctrine is not a disaster, it is an opportunity.
+ - Heaven knows what seeming nonsense may not tomorrow be demonstrated truth.
+ - Do not teach too many subjects and what you teach, teach thoroughly.
+ - The greatest invention of the nineteenth century was the invention of the method of invention.
+ - The foundations of the world are to be found, not in the cognitive experience of conscious thought, but in the aesthetic experience of everyday life.
+ - Thus the negative perception is the triumph of consciousness.
+ - The motive of success is not enough.
+ - You cannot be wise without some basis of knowledge, but you may easily acquire knowledge and remain bare of wisdom.
+ - It takes an extraordinary intelligence to contemplate the obvious.
+ - Life is complex in its expression, involving more than percipience, namely desire, emotion, will, and feeling.
+ - It is the business of the future to be dangerous.
+ - Shakespeare wrote better poetry for not knowing too much; Milton, I think, knew too much finally for the good of his poetry.
+ - Algebra reverses the relative importance of the factors in ordinary language.
+ - No religion can be considered in abstraction from its followers, or even from its various types of followers.
+ - People make the mistake of talking about ‘natural laws.’ There are no natural laws. There are only temporary habits of nature.
+ - Everything of importance has been said before by somebody who did not discover it.
+ - In all education the main cause of failure is staleness.
+ - There is only one subject matter for education, and that is Life in all its manifestations.
+ - There is a technique, a knack, for thinking, just as there is for doing other things. You are not wholly at the mercy of your thoughts, any more than they are you. They are a machine you can learn to operate.
+ - Apart from blunt truth, our lives sink decadently amid the perfume of hints and suggestions.
+ - Identification of rhythm as the casual counterpart of life; wherever there is some life, only perceptible to us when the analogies are sufficiently close.
+ - There is no more common error than to assume that, because prolonged and accurate mathematical calculations have been made, the application of the result to some fact of nature is absolutely certain.
+ - The race that does not value trained intelligence is doomed.
+ - Scientists animated by the purpose of proving that they are purposeless constitute an interesting subject for study.
+ - There are no whole truths: All truths are half-truths.
+ - The importance of an individual thinker owes something to chance. For it depends upon the fate of his ideas in the minds of his successors.
+ - The worst that happened to men of science was that Galileo suffered an honorable detention and a mild reproof, before dying peacefully in his bed.
+ - It is natural to think that an abstract science cannot be of much importance in affairs of human life, because it has omitted from its consideration everything of real interest.
+ - A philosopher of imposing stature doesn’t think in a vacuum. Even his most abstract ideas are, to some extent, conditioned by what is or is not known in the time when he lives.
+ - There is no nature in an instant.
+ - The total absence of humor from the Bible is one of the most singular things in all literature.
+ - The world is shocked, or amused, by the sight of saintly old people hindering in the name of morality the removal of obvious brutalities from a legal system.
+ - Religion is the reaction of human nature to its search for God.
+ - The oneness of the universe, and the oneness of each element of the universe, repeat themselves to the crack of doom in the creative advance from creature to creature, each creature including in itself the whole of history and exemplifying the self-identity of things and their mutual diversities.
+ - In modern times the belief that the ultimate explanation of all things was to be found in Newtonian mechanics was an adumbration of the truth that all science, as it grows towards perfection, becomes mathematical in its ideas.
+ - The vigor of civilized societies is preserved by the widespread sense that high aims are worth-while.
+ - It is this union of passionate interest in the detailed facts with equal devotion to abstract generalisation which forms the novelty in our present society .
+ - Learning is often spoken of as if we are watching the open pages of all the books which we have ever read, and then, when occasion arises, we select the right page to read aloud to the universe.
+ - Error itself may be happy chance.
+ - To come very near to a true theory, and to grasp its precise application, are two different things, as the history of science teaches us. Everything of importance has been said before by someone who did not discover it.
+ - An enormous part of our mature experience cannot not be expressed in words.
+ - Philosophy asks the simple question: What is it all about?
+ - What is morality in any given time or place? It is what the majority then and there happen to like and immorality is what they dislike.
+ - Art flourishes where there is a sense of adventure.
+ - Religion is what a man does with his solitariness.
+ - The foundation of reverence is this perception, that the present holds within itself the complete sum of existence, backwards and forwards, that whole amplitude of time, which is eternity.
+ - In its solitariness the spirit asks, What, in the way of value, is the attainment of life? And it can find no such value till it has merged its individual claim with that of the objective universe. Religion is world-loyalty.
+ - Knowledge is always accompanied with accessories of emotion and purpose.
+ - With the sense of sight, the idea communicates the emotion, whereas, with sound, the emotion communicates the idea, which is more direct and therefore more powerful.
+ - Whenever a text-book is written of real educational worth, you may be quite certain that some reviewer will say that it will be difficult to teach from it. Of course it will be difficult to teach from it. It it were easy, the book ought to be burned.
+ - Education which is not modern share the fate of all organic things which are kept too long.
+ - Our minds are finite, and yet even in these circumstances of finitude we are surrounded by possibilities that are infinite, and the purpose of life is to grasp as much as we can out of that infinitude.
+ - Life is an offensive, directed against the repetitious mechanism of the Universe.
+ - How the past perishes is how the future becomes.
+ - Each human being is a more complex structure than any social system to which he belongs.
+ - Religion is what the individual does with his own solitariness. Thus religion is solitariness; and if you are never solitary, you are never religious.
+ - Our reasonings grasp at straws for premises and float on gossamers for deductions.
+ - Without doubt, if we are to go back to that ultimate, integral experience, unwarped by the sophistications of theory, that experience whose elucidation is the final aim of philosophy, the flux of things is one ultimate generalization around which we must weave our philosophical system.
+ - The main importance of Francis Bacon’s influence does not lie in any peculiar theory of inductive reasoning which he happened to express, but in the revolt against second-hand information of which he was a leader.
+ - The term many presupposes the term one, and the term one presupposes the term many.
+ - Value is coextensive with reality.
+ - You think the world is what it looks like in fine weather at noon day; I think it is what it seems like in the early morning when one first wakes from deep sleep.
+ - Nobody has a right to speak more clearly than he thinks.
+ - The fixed person for the fixed duties who in older societies was such a godsend, in future will be a public danger.
+ - Every epoch has its character determined by the way its population reacts to the material events which they encounter.
+ - It is more important that a proposition be interesting than that it be true.
+ - The physical doctrine of the atom has got into a state which is strongly suggestive of the epicycles of astronomy before Copernicus .
+ - The difference between ancients and moderns is that the ancients asked what have we experienced, and moderns asked what can we experience.
+ - The power of Christianity lies in its revelation in act, of that which Plato divined in theory.
+ - The ideas of Freud were popularized by people who only imperfectly understood them, who were incapable of the great effort required to grasp them in their relationship to larger truths, and who therefore assigned to them a prominence out of all proportion to their true importance.
+ - In every age of well-marked transition, there is the pattern of habitual dumb practice and emotion which is passing and there is oncoming a new complex of habit.
+ - Spoken language is merely a series of squeaks.
+ - The English never abolish anything. They put it in cold storage.
+ - So far as the mere imparting of information is concerned, no university has had any justification for existence since the popularization of printing in the fifteenth century.
+ - No reason can be given for the nature of God, because that nature is the ground of rationality.
+ - That knowledge which adds greatness to character is knowledge so handled as to transform every phase of immediate experience.
+ - War can protect; it cannot create.
+ - The true method of discovery is like the flight of an aeroplane. It starts from the ground of particular observation; it makes a flight in the thin air of imaginative generalization; and it again lands for renewed observation rendered acute by rational interpretation.
+ - But harmony is limitation. Thus rightness of limitation is essential for growth of reality. Unlimited possibility and abstract creativity can procure nothing.
+ - The silly question is the first intimation of some totally new development.
+ - Religion is the last refuge of human savagery.
+ - The future belongs to those who can rise above the confines of the earth.
+ - I always feel that I have two duties to perform with a parting guest: one, to see that he doesn’t forget anything that is his; the other, to see that he doesn’t take anything that is mine.
+ - Human nature loses its most precious quality when it is robbed of its sense of things beyond, unexplored and yet insistent.
+ - A culture is in its finest flower before it begins to analyze itself.
+ - Aristotle discovered all the half-truths which were necessary to the creation of science.
+ - You cannot evade quantity. You may fly to poetry and music, and quantity and number will face you in your rhythms and your octaves.
+ - Fundamental progress has to do with the reinterpretation of basic ideas.
+ - I am also greatly indebted to Bergson, William James, and John Dewey. One of my preoccupations has been to rescue their type of thought from the charge of anti-intellectualism, which rightly or wrongly has been associated with it.
+ - A man of science doesn’t discover in order to know, he wants to know in order to discover.
+ - It belongs to the self-respect of intellect to pursue every tangle of thought to its final unravelment.
+ - A science which hesitates to forget its founders is lost.
+ - If a dog jumps into your lap, it is because he is fond of you; but if a cat does the same thing, it is because your lap is warmer.
+ - The learned tradition is not concerned with truth, but with the learned adjustment of learned statements of antecedent learned people.
+ - The vitality of thought is in adventure. Ideas won’t keep. Something must be done about them. When the idea is new, its custodians have fervor, live for it, and if need be, die for it.
+ - Ideas won’t keep. Something must be done about them.
+ - Each generation criticizes the unconscious assumptions made by its parent. It may assent to them, but it brings them out in the open.
+ - The factor in human life provocative of a noble discontent is the gradual emergence of a sense of criticism, founded upon appreciation of beauty, and of intellectual distinction, and of duty.
+ - The consequences of a plethora of half-digested theoretical knowledge are deplorable.
+ - The task of a university is the creation of the future, so far as rational thought and civilized modes of appreciation can affect the issue.
+ - Routine is the god of every social system; it is the seventh heaven of business, the essential component in the success of every factory, the ideal of every statesman. The social machine should run like clockwork.
+ - Nature is probably quite indifferent to the aesthetic preferences of mathematicians.
+ - The guiding motto in the life of every natural philosopher should be, seek simplicity and distrust it.
+ - Every intellectual revolution which has ever stirred humanity into greatness has been a passionate protest against inert ideas. Then, alas, with pathetic ignorance of human psychology, it has proceeded by some educational scheme to bind humanity afresh with inert ideas of its own fashioning.
+ - Religion increasingly is tending to degenerate into a decent formula wherewith to embellish a comfortable life.
+ - It must be admitted that there is a degree of instability which is inconsistent with civilization. But, on the whole, the great ages have been unstable ages.
+ - The study of mathematics is apt to commence in disappointment.
+ - To see what is general in what is particular, and what is permanent in what is transitory, is the aim of scientific thought.
+ - In a living civilization there is always an element of unrest, for sensitiveness to ideas means curiosity, adventure, change. Civilized order survives on its merits and is transformed by its power of recognizing its imperfections.
+ - A great society is a society in which its men of business think greatly of their functions.
+ - There is a tradition of opposition between adherents of induction and of deduction. In my view it would be just as sensible for the two ends of a worm to quarrel.
+ - Wisdom alone is true ambition’s aim, wisdom is the source of virtue and of fame; obtained with labour, for mankind employed, and then, when most you share it, best enjoyed.
+ - Religion will not regain its old power until it can face change in the same spirit as does science.
+ - The defense of morals is the battle-cry which best rallies stupidity against change.
+ - No period of history has ever been great or ever can be that does not act on some sort of high, idealistic motives, and idealism in our time has been shoved aside, and we are paying the penalty for it.
+ - Philosophy is the product of wonder. The effort after the general characterization of the world around us is the romance of human thought.
+ - Disputing the commonsense notion that all events require the prior existence of some underlying matter or substance. There is no antecedent static cabinet.
+ - The theme of Cosmology, which is the basis of all religions, is the story of the dynamic effort of the World passing into everlasting unity, and of the static majesty of God’s vision, accomplishing its purpose of completion by absorption of the World’s multiplicity of effort.
+ - In a certain sense, everything is everywhere at all times. For every location involves an aspect of itself in every other location. Thus every spatio-temporal standpoint mirrors the world.
+ - Rightness of limitation is essential for growth of reality.
+ - There is no greater hindrance to the progress of thought than an attitude of irritated party-spirit.
+ - I have suffered a great deal from writers who have quoted this or that sentence of mine either out of its context or in juxtaposition to some incongruous matter which quite distorted my meaning, or destroyed it altogether.
+ - Our habitual experience is a complex of failure and success in the enterprise of interpretation. If we desire a record of uninterpreted experience, we must ask a stone to record its autobiography.
+ - Some of the finest moral intuitions come to quite humble people. The visiting of lofty ideas doesn’t depend on formal schooling.
+ - Dogmatism is the anti-Christ of learning.
+ - One main factor in the upward trend of animal life has been the power of wandering.
+ - It is impossible to meditate on time and the mystery of nature without an overwhelming emotion at the limitations of human intelligence.
+ - Peace is self-control at its widest-at the width where the “self” has been lost, and interest has been transferred to coordinations wider than personality.
+ - Without deductive logic science would be entirely useless. It is merely a barren game to ascend from the particular to the general, unless afterwards we can reverse the process and descend from the general to the particular, ascending and descending like angels on Jacob’s ladder.
+ - It requires a very unusual mind to undertake the analysis of the obvious.
+ - There is a quality of life which lies always beyond the mere fact of life; and when we include the quality in the fact, there is still omitted the quality of the quality.
+ - Life is the enjoyment of emotion, derived from the past and aimed at the future.
+ - A race preserves its vigor so long as it harbors a real contrast between what has been and what may be; and so long as it is nerved by the vigor to adventure beyond the safeties of the past. Without adventure civilization is in full decay.
+ - The real history does not get written, because it is not in people’s brains but in their nerves and vitals.
+ - Ninety percent of our lives is governed by emotion.
+ - Education should turn out the pupil with something he knows well and something he can do well.
+ - From the moment of birth we are immersed in action, and can only fitfully guide it by taking thought.
+ - By relieving the brain of all unnecessary work, a good notation sets it free to concentrate on more advanced problems, and in effect increases the mental power of the race.
+ - The aims of scientific thought are to see the general in the particular and the eternal in the transitory.
+ - In order to acquire learning, we must first shake ourselves free of it.
+ - The only use of a knowledge of the past is to equip us for the present. The present contains all that there is. It is holy ground; for it is the past, and it is the future.
+ - When success turns a man’s head he faces failure.
+ - The way in which the persecution of Galileo has been remembered is a tribute to the quiet commencement of the most intimate change in outlook which the human race had yet encountered. Since a babe was born in a manger, it may be doubted whether so great a thing has happened with so little stir.
+ - The point about zero is that we do not need to use it in the operation of daily life. No one goes out to buy zero fish.
+ - Learning preserves the errors of the past as well as its wisdom.
+ - Problems are only opportunities in disquise.
+ - The result of teaching small parts of a large number of subjects is the passive reception of disconnected ideas, not illumed with any spark of vitality.
+ - We must not expect simple answers to far-reaching questions. However far our gaze penetrates, there are always heights beyond which block our vision.
+ - The science of pure mathematics, in its modern developments, may claim to be the most original creation of the human spirit.
+ - In this modern world, the celibacy of the medieval learned class has been replaced by a celibacy of the intellect which is divorced from the concrete contemplation of the complete facts.
+ - A man really writes for an audience of about ten persons. Of course if others like it, that is clear gain. But if those ten are satisfied, he is content.
+ - Intolerance is the besetting sin of moral fervour.
+ - It does not matter what men say in words, so long as their activities are controlled by settled instincts. The words may ultimately destroy the instincts; but until this has occurred, words do not count.
+ - Art flourishes where there is a sense of adventure, a sense of nothing having been done before, of complete freedom to experiment...
+ - Every philosophy is tinged with the coloring of some secret imaginative background, which never emerges explicitly into its train of reasoning.
+ - As society is now constituted, a literal adherence to the moral precepts scattered throughout the Gospels would mean sudden death.
+ - Knowledge shrinks as wisdom grows.
+ - The chief error in philosophy is overstatement.
+ - Vigorous societies harbor a certain extravagance of objectives, so that men wander beyond the safe provision of personal gratifications.
+ - It is not paradox to say that in our most theoretical moods we may be nearest to our most practical applications.
+ - Mathematics as a science, commenced when first someone, probably a Greek, proved propositions about “any” things or about “some” things, without specifications of definite particular things.
+ - An open mind is all very well in its way, but it ought not to be so open that there is no keeping anything in or out of it.
+ - Art attracts us only by what it reveals of our most secret self.
+ - Human life is driven forward by its dim apprehension of notions too general for its existing language.
+ - The fact of the religious vision, and its history of persistent expansion, is our one ground for optimism. Apart from it, human life is a flash of occasional enjoyments lighting up a mass of pain and misery, a bagatelle of transient experience.
+ - Without adventure all civilization is full of decay. Adventure rarely reaches its predetermined end. Columbus never reached China.
+ - Systems, scientific or philosophic, come and go. Each method of limited understanding is at length exhausted. In its prime each system is a triumphant success: in its decay it is an obstructive nuisance.
+ - Style, in its finest sense, is the last acquirement of the educated mind; it is also the most useful. It pervades the whole being.
+ - Order is not sufficient. What is required, is something much more complex. It is order entering upon novelty; so that the massiveness of order does not degenerate into mere repetition; and so that the novelty is always reflected upon a background of system.
+ - I have always noticed that deeply and truly religious persons are fond of a joke, and I am suspicious of those who aren’t.
+ - I consider Christian theology to be one of the greatest disasters of the human race.
+ - Philosophy begins in wonder. And, at the end, when philosophic thought has done its best, the wonder remains.
+ - The tragedy of the world is that those who are imaginative have but slight experience, and those who are experienced have feeble imaginations.
+ - Without adventure civilization is in full decay.
+ - We must produce a great age, or see the collapse of the upward striving of our race.
+ - Speech is human nature itself, with none of the artificiality of written language.
+ - Science repudiates philosophy. In other words, it has never cared to justify its truth or explain its meaning.
+ - Speak out in acts; the time for words has passed, and only deeds will suffice.
+ - The misconception which has haunted philosophic literature throughout the centuries is the notion of ‘independent existence.’ There is no such mode of existence; every entity is to be understood in terms of the way it is interwoven with the rest of the universe.
+ - The only justification in the use of force is to reduce the amount of force necessary to be used.
+ - Every organism requires an environment of friends, partly to shield it from violent changes, and partly to supply it with its wants.
+ - Education is the acquisition of the art of the utilisation of knowledge.
+ - I regret that it has been necessary for me in this lecture to administer a large dose of four-dimensional geometry. I do not apologize, because I am really not responsible for the fact that nature in its most fundamental aspect is four-dimensional. Things are what they are.
+ - The great achievements of the past were the adventures of the past. Only the adventurous can understand the greatness of the past.
+ - Faith in the possibility of science, generated antecedently to the development of modern scientific theory, is an unconscious derivative from medieval theology.
+ - No Roman ever died in contemplation over a geometrical diagram.
+ - To be an abstraction does not mean that an entity is nothing. It merely means that its existence is only a factor of a more concrete element of nature.
+
+263 quotes

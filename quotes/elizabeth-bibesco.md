@@ -1,0 +1,26 @@
+ - Blessed are those who give without remembering and take without forgetting.
+ - Reticences are as revealing as avowals.
+ - Temptations make one very censorious. If you are virtuous you condemn the wicked and if you are wicked, you condemn the virtuous.
+ - He is invariably in a hurry being in a hurry is one of the tributes he pays to life.
+ - Endurance is frequently a form of indecision.
+ - My soul has gained the freedom of the night.
+ - Irony is the hygiene of the mind.
+ - Happiness is the moment when you cease to make an inventory of joys; it is a glow, a brightness – never a list...
+ - It is harder to cut our gains than our losses.
+ - To others we are not ourselves but a performer in their lives cast for a part we do not even know that we are playing.
+ - To some people the impossible is impossible.
+ - The Ten Commandments don’t tell you what you ought to do: They only put ideas into your head.
+ - Are there any punishments in life but our joys turned against us?
+ - Of what help is anyone who can only be approached with the right words?
+ - We often call a certainty a hope, to bring it luck.
+ - The image of ourselves in the minds of others is the picture of a stranger we shall never see.
+ - What we buy belongs to us only when the price is forgotten.
+ - Entertaining is one method of avoiding people. It is very often the negation of hospitality.
+ - We learn nothing by being right.
+ - It is sometimes the man who opens the door who is the last to enter the room.
+ - Influencing people is dangerous. Their acts and thoughts become your illegitimate children. You can’t get away from them and Heaven knows what they mayn’t grow up into.
+ - Perfect moments don’t turn into half-hours.
+ - Free love is sometimes love but never freedom.
+ - Talk about the joys of the unexpected, can they compare with the joys of the expected, of finding everything delightfully and completely what you knew it was going to be?
+
+24 quotes

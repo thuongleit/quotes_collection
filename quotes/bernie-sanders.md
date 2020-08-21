@@ -1,0 +1,282 @@
+ - Don’t underestimate me.
+ - A nation will not survive morally or economically when so few have so much and so many have so little.
+ - If the environment were a bank, it would have been saved by now.
+ - For many, the American Dream has become a nightmare.
+ - The problems we face, did not come down from the heavens. They are made, they are made by bad human decisions, and good human decisions can change them.
+ - You can’t become a billionaire stepping over children sleeping on the street.
+ - Brothers and sisters: Now is not the time for thinking small, now is not the time for the same-old, same-old establishment politics and stale inside-the-Beltway ideas.
+ - It’s better to show up than to give up.
+ - A job should lift workers out of poverty, not keep them in it.
+ - Let us wage a moral and political war against war itself, so that we can cut military spending and use that money for human needs.
+ - If a financial institution is too big to fail, it is too big to exist.
+ - The only way change happens is when people become more significantly involved in the political process.
+ - Nobody who works 40 hours a week should be living in poverty.
+ - People all over this country are shouting at each other. And what we need to do is bring people together to work on the agreement where there is broad consensus and that’s what I intend to do.
+ - Whether it is television, radio, newspapers, magazines, books or the Internet, a few giant conglomerates are determining what we see, hear and read.
+ - The greed of the billionaire class has got to end and we are going to end it for them.
+ - If we are a free country, we have the right to be free.
+ - We are the only major country on earth that doesn’t guarantee health care to all people as a right and yet we end up spending much more than they do, so I do believe that we have to move toward a Medicare for all, single-payer system.
+ - Message to the billionaire class: You can’t have it all!
+ - It means joining with allies to deploy renewable energy technologies – both at home and around the world – to confront the very real and present danger of potentially irreversible climate change.
+ - Let us wage a moral and political war against the billionaires and corporate leaders, on Wall Street and elsewhere, whose policies and greed are destroying the middle class of America.
+ - The Occupy Wall Street protests are shining a national spotlight on the most powerful, dangerous and secretive economic and political force in America.
+ - I don’t believe government should take over, you know, the grocery store down the street or own the means of production.
+ - I think my main concern is because I worry about demagoguery. It’s real. You see the people standing up there and applauding.
+ - The point is change can come about, but it only comes about when millions of people are actively involved in political struggle, the billionaires may have the money, but we have the people.
+ - Finally, let understand that when we stand together, we will always win. When men and women stand together for justice, we win. When black, white and Hispanic people stand together for justice, we win.
+ - It’s immoral and wrong that the top 1 percent of the USA owns almost as much wealth as the bottom 90 percent. We should look at countries like Denmark and Sweden and Norway and look at what they’ve accomplished for their working people.
+ - The hardest thing about going to college should not be paying for it.
+ - We will do well when young people, when working-class people come out. We do not do well when the voter turnout is not large. We did not do as good a job as I had wanted to bring out a large turnout.
+ - If the goal of health-care reform is to provide comprehensive, universal health care in a cost-effective way, the only honest approach is a single-payer approach.
+ - When you talk about heroines and heroes, at the top of the list has got to be the single moms of America.
+ - We have got to change the political culture in America. We need a political revolution. That means we are working on politics not just three weeks before an election but 365 days a year.
+ - I think what the American people are saying is enough is enough. This country, this great country, belongs to all of us. It cannot continue to be controlled by a handful of billionaires who apparently want it all.
+ - Are we prepared to take on the enormous political power of the billionaire class or do we continue to slide into economic and political oligarchy?
+ - An America where every person, no matter their race, their disability or their sexual orientation realizes the full promise of equality that is our birthright as Americans.
+ - We must fundamentally restructure our student loan program. It makes no sense that students and their parents are forced to pay interest rates for higher education loans that are much higher than they pay for car loans or housing mortgages.
+ - Giving up is not an option if we want to prevent irreparable harm to our planet.
+ - Washington is dominated by big money.
+ - At a time when the Post Office is losing substantial revenue from the instantaneous flow of information by email and on the Internet, slowing mail service is a recipe for disaster.
+ - Today, the top one-tenth of 1% owns nearly as much wealth as the bottom 90%. The economic game is rigged, and this level of inequality is unsustainable. We need an economy that works for all, not just the powerful.
+ - In my view, a corporation is not a person. A corporation does not have First Amendment rights to spend as much money as it wants, without disclosure, on a political campaign.
+ - What some of us believe is that it is possible that if chemicals are related to Gulf War illness that some of the more severe symptoms may not erupt until 10 or 20 years down the line.
+ - Big business is willing to destroy the planet for short-term profits.
+ - The police killings of unarmed African Americans has got to stop.
+ - Republicans talk a good game about veterans, but when it came to put money on the line to protect our veterans, frankly, they were not there.
+ - Wall Street is greedy, reckless and they operate illegally. That’s fine. But what do you do?
+ - We need a very progressive and strong agenda to bring people into the political process because I worry very much about the future of the American democracy where so many people are giving up.
+ - This is a war for the soul of Islam. And those countries who are opposed to Islam, they are going to have to get deeply involved in a way that is not the case today. We should be supportive of that effort.
+ - Countering violent extremism and destroying ISIS must be done primarily by Muslim nations with the strong support of their global partners.
+ - Education should be a right, not a privilege. We need a revolution in the way that the United States funds higher education.
+ - We can’t allow racism and xenophobia to gain traction.
+ - Because of a mass media more interested in gossip and sensationalism than real issues, I would say a vast majority of the American public doesn’t have a clue about how the Congress functions and what goes on.
+ - What I saw in Baltimore was distressing and it tells me we need stronger policies in this country.
+ - Don’t take it out on the Muslims. Don’t take it out on Latinos. Try to help us work together to create a country where your kids and you can have a decent standard of living. It has to be a bold and radical agenda.
+ - Black lives, of course, matter. I spent 50 years of my life fighting for civil rights and for dignity, but if you don’t want me to be here, that’s OK. I don’t want to out-scream people.
+ - Being Jewish and having lost relatives in the Holocaust, I’ve always been aware of the meaning of prejudice. These are things that have remained with me throughout my political career.
+ - What my campaign is about is a political revolution – millions of people standing up and saying, enough is enough. Our government belongs to all of us, and not just the hand full of billionaires.
+ - We are not going back. We are not returning to the days of back-room abortions, when countless women died or were maimed. The decision about abortion must remain a decision for the woman, her family and a physician to make, not the government.
+ - I was not a great student at the University of Chicago. I think that is – the record will bare me out. But I spent a lot of time reading history, sociology, psychology – reading everything except what I was supposed to read for class the next day.
+ - If you ask me about my views on the environment, on women’s rights, on gay rights, I am liberal. I don’t have a problem with that at all. Some of my best friends are liberal.
+ - Don’t go to the dark side. Don’t go bashing immigrants or Muslims.
+ - All I can say is if you check my record going back a long time, I have stood with those who are hurting. I have stood with those who have no money.
+ - What kind of nation are we when we give tax breaks to billionaires, but we can’t take care of the elderly and the children.
+ - We can have paid family and medical leave. We can make public colleges and universities tuition-free. These are not revolutionary, radical ideas. They’re kind of common sense.
+ - Debating, doubting, or rejecting the basic scientific facts about climate change in the face of the overwhelming evidence and overwhelming scientific opinion will not change those facts.
+ - Low-income people, racial or ethnic minorities, pregnant women, seniors, people with special needs, people in rural areas – they all have a much harder time accessing a dentist than other groups of Americans.
+ - People don’t trust private health insurance companies for all the right reasons.
+ - I think my experience at the University of Chicago, working in the civil rights movement, working in the peace movement, working with community organizations, did a lot to influence the politics that I have.
+ - We have to say to the billionaire class, enough is enough. You cannot have it all. You are going to pay more in taxes.
+ - I’m not much into speculation.
+ - As president, I will fight to make tuition in public colleges and universities free, as well as substantially lower interest rates on student loans.
+ - Who said that think we should normalize relations with Iran tomorrow? I never said that. I think we should move forward as quickly as we can.
+ - It is beyond my comprehension why today in America, hundreds of thousands of bright young people are unable to go to college – for one reason: that their family lacks the funding. And together we are going to change that.
+ - I’m not a Democrat, I’m an Independent, but I caucus with the Democrats.
+ - These are the same people who believe, in some cases, the federal government should not play any role in providing health care to our people or protecting the environment.
+ - I am a fierce supporter of Planned Parenthood, NARAL, and gay rights in this country.
+ - When we talk about the healthcare crisis in America we’ve got to also be talking about the dental crisis and how to address it.
+ - We are not going back. Not only are we not going to retreat on women’s rights, we are going to expand them. We are going forward, not backward.
+ - Can I work with corporations? Are there good corporations doing incredible cutting edge research and development? Absolutely they are. And we should be proud of them.
+ - CEOs of large corporations earn 400 times what their workers make. That is not what America is supposed to be about.
+ - I think the issue of income and wealth inequality is in fact a moral issue.
+ - As a result of the digital age and the decline of first-class mail, there is no question that the Postal Service must change and develop a new business model.
+ - What the American people want to see in their president is somebody who not necessarily can win every fight, but they want to see him stand up and fight for what he believes, take his case to the American people.
+ - You know, let me be very clear. I supported Barack Obama originally.
+ - I come from a rural state. People drive 50, 100 miles to and from work every single day. That is true all over America.
+ - I would not ask anyone to vote for me based on my last name. I am certainly not campaigning to be president because my last name is Clinton.
+ - I happen to believe that we should move to a Medicare-for-all single-payer system, similar to what other countries around the world have.
+ - Clearly North Korea is a very strange situation because it is such an isolated country run by a handful of dictators, or maybe just one, who seems to be somewhat paranoid. And, who had nuclear weapons.
+ - In fact, climate change is directly related to the growth of terrorism.
+ - I am proud of the campaign that we ran. Obviously, I wish we could have done a little bit better.
+ - The votes elected officials make should be based on the best interests of the American people, not the fear of retribution when shadowy groups spend millions of dollars on negative advertisements.
+ - I have a long history in fighting for civil rights. I understand that many people in the African-American community may not understand that.
+ - The good news is that the American people, not just the African-American community are saying enough is enough. You can’t hold people in custody and suddenly find out that they are dead. You can’t shoot people in the back.
+ - It would, I think, be hard for anyone to make the case that the United States is a just society or anything close to a just society. In America today, there is massive injustice in terms of income and wealth inequality. Injustice is rampant.
+ - Social Security is a promise that we cannot and must not break.
+ - I have introduced a constitutional amendment to overturn Citizens United and make it clear that the Congress and state legislatures do have the ability and the power to regulate and get corporate funding out of political campaigns.
+ - I don’t consider myself a pariah.
+ - I do not believe that we must maintain a bloated military budget which spends almost as much as the rest of the world combined and may lead us to perpetual warfare in the Middle East.
+ - At the current $5.15 an hour, the federal minimum wage has become a poverty wage. A full-time worker with one child lives below the official poverty line.
+ - It is time to tax and regulate marijuana like alcohol. It is time to end the arrests of so many people and the destruction of so many lives for possessing marijuana.
+ - In the United States today we have the most unequal wealth and income distribution of any major country on earth – worse than at any time since the 1920s. This is an economy that must be changed in fundamental ways.
+ - Planned Parenthood and Human Rights Campaign are standing up and fighting the important fights that have to be fought.
+ - We are imprisoning or giving jail sentences to young people who are smoking marijuana.
+ - It is incomprehensible that drug companies still get away with charging Americans twice as much, or more, than citizens of Canada or Europe for the exact same drugs manufactured by the exact same companies.
+ - It is a public financing system that everybody knows is antiquated. It no longer works. Nobody can become president based on that system.
+ - I will challenge anybody with regard to my record on LGBT issues.
+ - I think too many of my Republican friends are into perpetual warfare in the Middle East. And that scares the bejesus out of me.
+ - If you take donations from Wall Street, you can’t be independent.
+ - If you looked at Jeb Bush’s campaign, it’s more than just money. It’s the nature of the candidate and the message and all that stuff.
+ - The Cold War is over. And our focus has got to be on intelligence, increased manpower, fighting internationally targets.
+ - We have more people in jail than any other country in Earth, disproportionately Latino and African-American.
+ - We are going to fight to pass the long over-due Equal Rights Amendment.
+ - When we talk about power, we talk about Wall Street.
+ - I think it’s important that members of the United States Senate spend time not just on Capitol Hill but making contact with ordinary people and engaging them in the political process.
+ - I don’t want to get people nervous falling off their chairs, but Social Security is a socialist program. It’s a program by which the United States government has said that when you get old you should have a steady source of income.
+ - The American people want to know that when they borrow a book from the library or buy a book, the government won’t be looking over their shoulder. Everybody wants to fight terrorism, but we have to do it in away that protects American freedom.
+ - I do not want to see perpetual warfare in the Middle East.
+ - A number of years ago, people were saying normal relationship with Cuba, what a bad and silly idea. They’re Communists, they are our enemy. Well guess what? Change has come.
+ - We need the best educated workforce in the world. Hundreds of thousands of bright, young, qualified people who want to go to college or get a higher education are unable to do so, not because they lack the ability but because they lack the money.
+ - You asked Marco Rubio if it was too little too late. I think there’s a little bit of too much too late, which is, he is just getting down in the muck with Donald Trump. And when you get down in the muck, you get up with muck on you.
+ - I want to end the international embarrassment of the United States of America being the only major country on earth that doesn’t guarantee health care to all people as a right, not a privilege.
+ - If you look at our records, I stood up to corporate America time and time again. I went to Mexico. I saw the lives of people who were working in American factories and making $0.25 an hour.
+ - People understand that the economy is rigged. They’re working longer hours for low wages. All new income and wealth, almost all, is going to the people on top.
+ - In and out of government, I’ve always been willing to take on complicated, sometimes unpopular, issues and work them through to have a solution.
+ - Social security is the most successful government program in our nation’s history. We are not going to cut social security! We are going to expand social security!
+ - I think we bring together that broad coalition including Russia to help us destroy ISIS and work on a timetable to get rid of Assad, hopefully through Democratic elections. First priority, destroy ISIS.
+ - So what I have said with regard to Boeing and GE and other multinationals that pay zero taxes, you know what we’re going to do? We’re going to end that loophole. They are going to pay their fair share of taxes.
+ - Wall Street is perhaps the most powerful economic and political force in this country. You have companies like Goldman Sachs, who just recently paid a settlement fine with the federal government for $5 billion for defrauding investors.
+ - I happen to believe that certain types of assault weapons, which are manufactured and designed for military purposes to kill people very quickly should not be used in civilian society.
+ - The fossil fuel industry for too long has shifted enormous costs of carbon pollution onto the public.
+ - Super PACs and a corrupt campaign finance system are destroying American democracy. We’re proud that we have received four million individual contributions, more than any candidate in American history at this point.
+ - I’m not that much of a socialist compared to Eisenhower.
+ - In 30 years of public service, I have had no scandals. I have high ethical standards. I am most proud of my judgement, that kind of judgement is what we want in a president going forward. I want to be a peacemaker.
+ - I do not accept the belief that the United States of America and our government can’t stand up to the ripoffs of the pharmaceutical industry which charge us by far the highest prices in the world for prescription drugs.
+ - In a world of massive wealth and income inequality, Europe must support Greece’s efforts to build an economy which creates more jobs and income, not more unemployment and suffering.
+ - We have to invest in our kids, we have to invest in our communities, we have to create jobs. We have to make certain that kids are not dropping out of school and hanging out on street corners.
+ - One can’t predict the future, that maybe our training and their fighting capabilities are improving and we are going to make some progress in destroying ISIS.
+ - As the nation at last confronts global warming, it is no time for denial, greed, cynicism or pessimism.
+ - I intend to introduce legislation that will make police accountable for their actions and limit uses of force in cases where it is unnecessary.
+ - I believe that climate change is the great global crisis that we face, environmental crisis. I believe that if you’re serious about climate change, you don’t encourage the excavation and transportation of very dirty oil.
+ - I’m a former mayor. I know that being a cop is not an easy job. But when police officers misbehave, they’ve got to be held accountable.
+ - Together we have sent a message that will echo from Wall Street to Washington, from Maine to California.
+ - There are a lot of smart honest, progressive people who I think can be good presidents.
+ - The Federal Reserve has a responsibility to ensure the safety and soundness of financial institutions and to contain systemic risks in financial markets.
+ - Let’s be honest, dental care in America is extremely expensive, period.
+ - You’ve got the top 400 Americans owning more wealth than the bottom 150 million Americans. Most folks do not think that is right.
+ - The Federal Reserve needs to provide small businesses in America with the same low-interest loans it gave to foreign banks.
+ - I think what the secretary Hillary Clinton has recognized is the American people are extremely angry about the power of Wall Street, the greed, the illegal behavior of Wall Street.
+ - The middle class in America is at a tipping point. It will not last another generation if we don’t boldly change course now.
+ - At a time of massive inequality, I think we can raise substantial sums of revenue to address the needs of working families, the elderly, and the children, by asking those people who are doing phenomenally well to start paying their fair share.
+ - I’m not really opposed to people changing their minds. I’m much more concerned with people who never change their minds no matter what new information is available.
+ - The goal of real healthcare reform must be high-quality, universal coverage in a cost-effective way.
+ - When I was in the House for 16 years, I caucused with the Democrats.
+ - I am running for president as a Democrat. And if elected, not only do I hope to bring forth a major change in national priorities, but let me be frank, I do want to see major changes in the Democratic Party.
+ - I think the immediate thing is we stand up to protect those people who are in trouble.
+ - Millions are unemployed and our roads are falling apart. If we can spend $6 trillion sending people to war, we can spend $1 trillion to put Americans to work fixing our nation’s crumbling infrastructure. Let’s rebuild America and create jobs.
+ - I have spent the better part of my adult life standing up and fighting for working families.
+ - Today, the United States is No. 1 in corporate profits, No. 1 in CEO salaries, No. 1 in childhood poverty and No. 1 in income and wealth inequality in the industrialized world.
+ - I am on the Health Education Labor Committee. That committee wrote the Affordable Care Act. The idea I would dismantle health care in America while we’re waiting to pass a Medicare for all is just not accurate.
+ - My mission is to raise incomes for hard working middle class families. If you work hard and do your part you should be able to get ahead and stay ahead.
+ - I have friends and supporters in the Human Rights Fund and Planned Parenthood. Hillary Clinton has been around there for a very, very long time. Some of these groups are, in fact, part of the establishment.
+ - The American people understand that we need real change in this country, in my view, a political revolution, which says to the people on top, “You know what, you guys can’t have it all.”
+ - I did a lot of reading. I read about democratic socialism. And I read about the efforts of people for such a long time trying to create a society in which all people can live with dignity. And that’s kind of what I believe.
+ - Families are struggling to put bread on the table, send their kids to college and take care of their basic needs. America needs a political revolution.
+ - I’m very proud that the state of Vermont banned fracking. I hope communities all over California, and all over America do the same.
+ - In my view, there is no justice when the 15 wealthiest people in this country in the last two years, saw their wealth increase by $170 billion. That is more wealth acquired in a two year period than is owned by the bottom 130 million Americans.
+ - You go to Scandinavia, and you will find that people have a much higher standard of living, in terms of education, health care and decent paying jobs.
+ - I think we’re going to win a very good share of those delegates. I think you’ve got major states coming up. And I think the important point is that people throughout this country are resonating to our message.
+ - It costs a hell of a lot more money to put somebody in jail than send them to the University of Virginia.
+ - The Trans-Pacific Partnership trade agreement is a continuation of other disastrous trade agreements, like NAFTA, CAFTA, and permanent normal trade relations with China.
+ - I thought the Bush economic policy was a disaster. We lost 500,000 private sector jobs during his tenure.
+ - What we have got to do immediately is to say that racism and xenophobia is totally unacceptable and we will stand with the 1 percent of our population who are Muslims, for undocumented people in this country. Absolutely, we will stand.
+ - To be honest with you, I worry about concentration of ownership in media, where you have a handful of media conglomerates largely controlling what we see, hear and read.
+ - Let’s ask why it is that we pay, by far, the highest prices in the world for prescription drugs, and your medicine can be doubled tomorrow, and there’s nothing that the government can do to stop it.
+ - When I was a young boy, I can remember in the community that I grew up in, seeing people in the community who had numbers that were on their arms.
+ - I don’t want to see kids in America being scared because they’re hearing people on television and the radio saying really ugly xenophobic and racist things.
+ - This country is never going to move forward unless we end Republican rule in the House and Senate.
+ - Politics in a democratic society should not be treated like a baseball game, a game show or a soap opera. The times are too serious for that.
+ - Wall Street has enormous power over the Republican Party, enormous power over the Democratic Party.
+ - The billionaires pay an effective tax rate lower than nurses or truck drivers. That makes no sense at all. There has to be real tax reform, and the wealthiest and large corporations will pay.
+ - I think you have an enormous amount of fear and uncertainty in this country. And it’s not just from San Bernardino or from Paris.
+ - We are rapidly moving toward a nation of the super-rich, by the super-rich and for the super-rich.
+ - I want to know in this day and age, whether it is possible for any candidate who is not a billionaire or who is not beholden to the billionaire class, to be able to run successful campaigns.
+ - When a mother has a baby, she should stay home with that baby.
+ - The Republican I ran against, at the end of the campaign, had decided that I was “a friend of terrorists” and “a friend of pedophiles.” That’s the kind of crap they came out with. I expect that’s the kind of crap they’ll come out with again.
+ - We are spending hundreds of billions of dollars maintaining 5,000 nuclear weapons. I think we need major reform in the military, making it more cost effective, but also focusing on the real crisis that faces America.
+ - Muslims are not your enemy.
+ - Today, over half of American workers have less than $10,000 in savings and have no idea how they will be able to retire with any shred of dignity.
+ - I happen to respect people who are willing to come under public scrutiny and serve their country.
+ - What are the moral implications? What do these people do when they have tremendous amounts of money? They use that money to perpetuate their own wealth and their own power. Every day, Congress works on behalf of big-money interests.
+ - At a time when our planet is warming due to climate change, the last thing our environment needs is more drilling. What we need is for Congress and the White House to move toward clean energy such as solar, wind and geothermal.
+ - Corporations are not going to stash their money in the Cayman Islands. We are going to reinvest in America, create jobs, make education available to all.
+ - We have organizations, whether it is ISIS or Al Qaida, who do believe we should go back several thousand years. We should make women third-class citizens, that we should allow children to be sexually assaulted. They are a danger to modern society.
+ - The United States must lead the world in reversing climate change. We can do that.
+ - I think, clearly, we got to work closely with China to resolve the serious problems we have, and I worry about Putin and his military adventurism in the Crimea and the Ukraine.
+ - I will do my best to transform our trade policy and take on these corporations who want to invest in low-income countries around the world rather than in the United States of America.
+ - When the average Social Security benefit is $1328 a month, and more than one-third of our senior citizens rely on Social Security for Virtually all of their income, our job is to expand benefits, not cut them.
+ - Here’s what income and wealth inequality is about. Last year, the top 25 hedge fund managers made more than 24 billion, enough to pay the salaries of 425,000 public school teachers. This level of inequality is neither moral or sustainable.
+ - The message is resonating, not just in Wisconsin, but all over America, the people are sick and tired of establishment politics, establishment economics. They want real change.
+ - I think we need to take on the greed of the billionaire class, a disastrous campaign finance system.
+ - Any idiot, especially one who is prepared to die, who has a gun, can start shooting up people.
+ - Why is it that two-thirds of white, rural men voted Republican? Why? That’s what we have to address. That’s crazy. These people are working longer and longer hours.
+ - I’m not going to get establishment support. I’m not going to get the support of the governors and the senators, with few exceptions, and many of the major organizations.
+ - I want to see working people and young people come into the party in a way that doesn’t exist now. And you know what, I want a 50-state strategy so the Democratic Party is not just the party of 25 states.
+ - One in four corporations doesn’t pay any taxes.
+ - We don’t need to drive up the national debt by giving tax breaks to millionaires and billionaires.
+ - I understand what a normal political speech is. You get up there, tell a few jokes, you have the flags behind you, and you speak for 10 or 15 minutes in broad generalities.
+ - I think it makes people in the Pentagon kind of nervous to know that chemical agents and environmental factors could cause so much damage in terms of what may happen in the future.
+ - We have got to make sure that every qualified American in this country who wants to go to college can go to college – regardless of income.
+ - I believe in public funding of elections, absolutely. But this system iscurrently very antiquated and no longer applies to modern day politics.
+ - Your story is for – voting for every disastrous trade agreement, and voting for corporate America. Did I vote against the Wall Street bailout?
+ - The bottom line is that when Senator Inhofe says, ‘Global warming is a hoax,’ he is just dead wrong, according to the vast majority of climate scientists.
+ - As a nation, there are many issues we don’t talk about, we just don’t talk about, push them under the rug. Poverty is one of those issues.
+ - The Postal Service is a vitally important institution for the American people. It must be saved.
+ - I would say that the key doctrine of the Sanders administration would be no, we cannot continue to do it alone; we need to work in coalition.
+ - As an independent, my views, in fact, are a little bit different than many of my Democratic colleagues.
+ - Instead of talking about cuts in Social Security, Medicare and Medicaid, we must end the absurdity of corporations not paying a nickel in federal income taxes.
+ - What we need to do is to stand up to the big money interests, and the campaign contributors. When we do that, we can, in fact, transform America.
+ - The disastrous invasion of Iraq, something that I strongly opposed, has unraveled the region.
+ - I don’t think any sensible person would disagree that the invasion of Iraq led to the massive level of instability that we’re seeing right now. I think that was one of the worst foreign policy blunders in the modern history of the United States.
+ - I fear very much for our kids, for low income people and for seniors.
+ - But on the other hand, there are many corporations who have turned their backs on the American worker, who have said, if I can make another nickel in profit by going to China and shutting down in the United States of America, that’s what I will do.
+ - I fully, fully concede that Secretary Hillary Clinton, who was secretary of State for four years, has more experience – hat is not arguable – in foreign affairs.
+ - Of course the Republicans have long wanted to privatize Social Security and destroy it. But Social Security has been the most important and valuable social program in the history of the United States.
+ - Rich get richer. Everyone else gets poorer. And all these guys can talk about is war and defunding Planned Parenthood.
+ - I very strongly supported the agreement which makes certain that Iran does not get a nuclear weapon.
+ - It reminds me in some ways of the debate taking place in this country and around the world in the late 1930s – there were people – who said ’don’t worry! Hitler’s not real! It’ll disappear!
+ - The government of our great country belongs to all of the people and not just a handful of the wealthy.
+ - It’s time for the Supreme Court to catch up to the American people and legalize gay marriage.
+ - I am sure that there are some single payer advocates who think the only thing worth fighting for is single payer.
+ - The right wing in this country is waging a war against women, and let me be very clear, it is not a war that we are going to allow them to win.
+ - Real freedom must include economic security.
+ - Obviously one would hope one would have as much support as possible from all walks of life, i am a great fan of Elizabeth and as for what people do and why they don’t do it, I am not going to speculate.
+ - In many respects, this country is becoming an oligarchy, with a tiny percentage of America owning the media, owning the country.
+ - Who do you think controls the Republican Party? Big money controls the Republican Party. This is where their campaign contributions come from.
+ - Wish we could, and allow the Taliban or anybody else to reclaim that country. But what we must do is some progress in Iraq, where finally the Iraqi army, which has not been a particularly effective fighting force, retook Ramadi.
+ - Prescription drug prices are skyrocketing and one-third of all seniors depend on Social Security for at least 90% of their income.
+ - We have two and half million individual campaign contributions, more than any campaign in history.
+ - We must fight to carry out his radical and bold vision for America.
+ - We still have people in the active duty, and if people are feeling ill, if they’re experiencing various symptoms and they’re still in the active duty, they’re less likely to come forward because that could result in their medical discharge.
+ - I have been in the Democratic Caucus in the Senate for over 24 years.
+ - In my view, we need a massive federal jobs program which puts millions of our people back to work. We must end our disastrous trade policies. We need to raise the minimum wage to a living wage. And we have to fight for pay equity for women.
+ - You want your kids to have an opportunity. We’re going to fight to give you that.
+ - I very strongly disagreed with President Clinton on the deregulation of Wall Street. I opposed that strenuously.
+ - Ben Carson and I don’t have much in common politically. But the fact is when you have kids getting involved in the political process, doing their best to elect the candidates of their choice, that’s what the American democracy is about.
+ - I don’t go around every other day calling for governors to resign. I don’t think I ever have.
+ - What we need to do is lead an international coalition which includes very significantly the Muslim nations in that region who are going to have to fight and defend their way of life.
+ - If you look at the newspapers here – the Washington papers – most of the discussion deals with campaign gossip.
+ - You know, I think many people have the mistaken impression that Congress regulates Wall Street. In truth that’s not the case. The real truth is that Wall Street regulates the Congress.
+ - People are hurting and angry, and they want something to be able to stand up and fight for. That’s what I believe the antidote is to Trumpism.
+ - We did really, really badly with older African-American voters. I mean we got decimated.
+ - Two-thirds of the directors at the New York Fed are hand-picked by the same bankers that the Fed is in charge of regulating.
+ - The debate is over. The scientific community has spoken in a virtually unanimous voice. Climate change is real. It is caused by human activity...
+ - I was elected by the Democrats to be chair of the Veterans Committee, which I’m very proud of. And now am the rankings member on the Budget Committee, leader of the Democrats in opposition to the majority Republicans.
+ - For better or worse, when Sen. Inhofe speaks, the Republican Party follows. And when the Republican Party follows, it is impossible to get real work done in the Congress.
+ - What the people here have said is that given the enormous crises facing our country, it is just too late for the same old, same old establishment politics and establishment economics.
+ - I do believe that in the future, not by dismantling what we have here – I helped write that bill – but by moving forward, rallying the American people, I do believe we should have health care for all.
+ - Social Security has nothing to do with the deficit.
+ - I am very glad, Anderson, that secretary Clinton discovered religion on this issue but it’s a little bit too late. Secretary Clinton supported virtually every one of the disastrous trade agreements written by corporate America.
+ - Instead of cutting Social Security, we’re going to expand Social Security benefits.
+ - Do I consider myself a part of the casino capitalist process? No I don’t. I believe in a society where all people do well.
+ - Social Security Works! puts expanding Social Security front and center on the national agenda, where it belongs. Everyone who has a stake in the debate should read this important book.
+ - Every three weeks before an election the TV ads expressing great concern about our trade policy and the loss of jobs to China and other low-wage countries. And then it’s forgotten about the day after the election.
+ - I think the American people in many cases want to transform our energy system.
+ - We did phenomenally well with young people. I think we did well with working class people.
+ - We’re not going to let the United States continue to have one of the highest rates of childhood poverty in the industrialized world in – at a time when we’re seeing a proliferation of millionaires and billionaires.
+ - I understood that these trade agreements were going to destroy the middle class of this country. I led the fight against us. That is one of the major differences that we have.
+ - The IRS says it wants to make sure companies can give their employees a choice between a new cash balance plan and the traditional defined benefit plan. The real question here is whether companies should be required to give their workers that choice.
+ - My path to victory is to talk about the issues that impact the lives of millions of Americans.
+ - I don’t represent large corporations and I don’t want their money.
+ - We need to recognize the incredible challenges that so many parents face, especially working moms. We need to join the rest of the advanced world.
+ - You want to know the way to raise money? Put a transaction fee on Wall Street, so maybe we can curb some of the speculation and raise some money.
+ - After all, Wall Street is clearly the most powerful lobbying force on Capitol Hill. From 1998 through 2008, the financial sector spent over $5 billion in lobbying and campaign contributions to deregulate Wall Street.
+ - Sometimes the media says, well, this state had an election, it’s the end of the campaign. It is not. We have dozens of more states to go. We’re feeling good about the future.
+ - The Fed has got to become a more democratic institution that is responsive to the needs of the middle class, not just Wall Street CEOs.
+ - There is nobody that I know who believes that Bank of America is a human being who should be entitled for the same constitutional rights that the people of our country are.
+ - I am the longest- serving independent in the history of the United States Congress. People of Vermont sent me to Washington as an independent. That is true.
+ - I am very proud to be the only candidate up here who does not have a Super PAC, who’s not raising huge sums of money from Wall Street.
+ - I’m running for president, because as I go around this nation, I talk to a lot of people. And what I hear is people’s concern that the economy we have is a rigged economy.
+ - I’ve run for statewide office plenty of times, and people know me.
+
+280 quotes

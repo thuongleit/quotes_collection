@@ -1,0 +1,36 @@
+ - I heard the voice of Jesus say.
+ - Upon a life I did not live, upon a death I did not die; another’s life, another’s death, I stake my whole eternity.
+ - It is not opinions that man needs: it is TRUTH. It is not theology; it is God. It is not religion: it is Christ. It is not literature and science; but the knowledge of the free love of God in the gift of His only-begotten Son.
+ - Out of His fullness we receive, and grace for grace, – like wave upon wave.
+ - Thy way, not mine, O Lord, however dark it be; lead me by thine own hand; choose out the path for me.
+ - All unbelief is the belief of a lie.
+ - Do not heed the jar of man’s warring opinions. Let God be true and every man a liar. The Bible is the Bible still. If any man lack wisdom, let him ask of God. You have an unction from the Holy One, and you know all things.
+ - Think truly, and thy thoughts shall the world’s famine feed. Speak truly, and each word of thine Shall be a fruitful seed. Live truly, and thy life shall be A great and noble creed.
+ - A ministry of power must be the fruit of a holy, peaceful, loving intimacy with the Lord.
+ - I looked for the church and I found it in the world; I looked for the world and I found it in the church.
+ - A believing man will be a zealous man. Faith makes a man zealous. Faith shows itself by zeal. Not by zeal for a party or a system or an opinion; but by zeal for Christ – zeal for His church – zeal for the carrying on of His work on earth.
+ - Less, less of self each day, And more, my God, of Thee!
+ - We are forgiven, that we may be like Him who forgives us.
+ - It is easier to speak about revival than to set about it.
+ - Life is a journey, not a home; a road, not a city of habitation; and the enjoyments and blessings we have are but little inns on the roadside of life, where we may be refreshed for a moment, that we may with new strength press on to the end – to the rest that remaineth for the people of God.
+ - Christian, your whole life is to be one continuous following of the Lord.
+ - Bold preaching is the only preaching that is owned of God.
+ - In all unbelief there are these two things: a good opinion of one’s self, and a bad opinion of God.
+ - In order to grow in grace, we must be much alone. It is not in society that the soul grows most vigorously. In one single quiet hour of prayer it will often make more progress than in days of company with others. It is in the desert that the dew falls freshest and the air its purest.
+ - In religion faith does not spring out of feeling, but feeling out of faith. The less we feel the more we should trust. We cannot feel right till we have believed.
+ - In the day of prosperity, we have many refuges to resort to; in the day of adversity, only One.
+ - I came to Jesus as I was, weary and worn and sad; I found in Him a resting place, and he has made me glad.
+ - The more fully that the gospel is preached, in the grand old apostolic way, the more likely is it to accomplish the results which it did in the apostolic days.
+ - Faith does not come to Calvary to do anything. It comes to see the glorious spectacle of all things done, and to accept this completion without a misgiving as to its efficacy. It listens to the It is finished! of the Sin-bearer, and says, Amen.
+ - It is to the dead that the life comes; it is to the unloveable that the love comes; it is to the lost that the salvation comes.
+ - Think truly, and thy thoughts shall the world’s famine feed.
+ - The believed gospel saves; but it is the believed promise that assures us of this salvation.
+ - Sin is too great an evil for man to meddle with. His attempts to remove it do but increase it, and his endeavours to approach God in spite of it aggravate his guilt.
+ - The soul and eternity of one man depends upon the voice of another.
+ - For we are not saved by believing in our own salvation, nor by believing anything whatsoever about ourselves. We are saved by what we believe about the Son of God and His righteousness. The gospel believed saves; not the believing in our own faith.
+ - Faith is the acknowledgment of the entire absence of all goodness in us, and the recognition of the cross as the substitute for all the want on our part. Faith saves, because it owns the complete salvation of another, and not because it contributes anything to that salvation.
+ - How fast we learn in the day of sorrow! Scripture shines out in a new effulgence; every verse seems to contain a sunbeam, every promise stands out in illuminated splendor; things hard to be understood become in a moment plain.
+ - Sow truth, if thou the truth wouldst reap: Who sows the false shall reap the vain.
+ - Teach us by your lives.
+
+34 quotes

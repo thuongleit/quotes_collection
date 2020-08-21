@@ -1,0 +1,75 @@
+ - The work of art is a scream of freedom.
+ - Nothing succeeds like the appearance of success.
+ - The family is a haven in a heartless world.
+ - The model of ownership, in a society organized round mass consumption, is addiction.
+ - The effect of the mass media is not to elicit belief but to maintain the apparatus of addiction.
+ - In an individualistic culture, the narcissist is God’s gift to the world. In a collectivist society, the narcissist is God’s gift to the collective.
+ - Drugs are merely the most obvious form of addiction in our society. Drug addiction is one of the things that undermines traditional values.
+ - The left has come to regard common sense – the traditional wisdom and folkways of the community – as an obstacle to progress and enlightenment.
+ - Democracy in our time is more likely to die of indifference than of intolerance.
+ - Uprootedness uproots everything except the need for roots.
+ - It is advertising and the logic of consumerism that governs the depiction of reality in the mass media.
+ - The question of the family now divides our society so deeply that the opposing sides cannot even agree on a definition of the institution they are arguing about.
+ - Neoclassical economics insists that advertising cannot force consumers to buy anything they don’t already want to buy.
+ - The prison life of the past looks in our own time like liberation itself.
+ - I despise the cowardly clinging to life, purely for the sake of life, that seems so deeply ingrained in the American temperament.
+ - Progressive rhetoric has the effect of concealing social crisis and moral breakdown by presenting them as the birth pangs of a new order.
+ - The proper reply to right wing religiosity is not to insist that politics and religion don’t mix. This is the stock response of the left.
+ - The best defense against the terror of existence are the homely comforts of love, work, and family life, which connect us to a world that is independent of our wishes yet responsive to our needs.
+ - Today Americans are overcome not by the sense of endless possibility but by the banality of the social order they have erected against it.
+ - The hope of a new politics does not lie in formulating a left-wing reply to the right-it lies in rejecting conventional political categories.
+ - It’s not about winning. It’s the enjoyment of doing it – it gets your brain going.
+ - Ostensibly rigorous and realistic, contemporary conservatism is an ideology of denial. Its symbol is a smile button.
+ - The attempt to redefine the family as a purely voluntary arrangement grows out of the modern delusion that people can keep all their options open all the time.
+ - We demand too much of life, too little of ourselves.
+ - Once women begin to question the inevitability of their subordination and to reject the conventions formerly associated with it, they can no longer retreat to the safety of those conventions.
+ - A child’s appetite for new toys appeal to the desire for ownership and appropriation: the appeal of toys comes to lie not in their use but in their status as possessions.
+ - Make it new is the message not just of modern art but of modern consumerism, of which modern art is largely a mirror image.
+ - Personal disintegration remains always an imminent danger.
+ - In our society, daily experience teaches the individual to want and need a never-ending supply of new toys and drugs.
+ - The left has lost the common touch.
+ - It is the logic of consumerism that undermines the values of loyalty and permanence and promotes a different set of values that is destructive of family life.
+ - Information, usually seen as the precondition of debate, is better understood as its by-product.
+ - Relentless improvement of the product and upgrading of consumer tastes are the heart of mass merchandising.
+ - It is a tribute to the peculiar horror of contemporary life that it makes the worst features of earlier times – the stupefaction of the masses, the obsessed and driven lives of the bourgeoisie – seem attractive by comparison.
+ - The family wage has been eroded by the same developments that have promoted consumerism as a way of life.
+ - Adherents of the new religious right reject the separation of politics and religion, but they bring no spiritual insights to politics.
+ - Liberals subscribe to the new flexible, pluralistic definition of the family; their defense of families carries no conviction.
+ - Much of what is euphemistically known as the middle class, merely because it dresses up to go to work, is now reduced to proletarian conditions of existence. Many white-collar jobs require no more skill and pay even less than blue-collar jobs, conferring little status or security.
+ - George Orwell’s contention was that it is a sure sign of trouble when things can no longer be called by their right names and described in plain, forthright speech.
+ - A society that has made ‘nostalgia’ a marketable commodity on the cultural exchange quickly repudiates the suggestion that life in the past was in any important way better than life today.
+ - Knowledge is what we get when an observer, preferably a scientifically trained observer, provides us with a copy of reality that we can all recognize.
+ - Because politics rests on an irreducible measure of coercion, it can never become a perfect realm of perfect love and justice.
+ - Advertising serves not so much to advertise products as to promote consumption as a way of life. It ‘educates’ the masses into an unappeasable appetite not only for goods but for new experiences and personal fulfillment.
+ - The conservative revival cannot be dismissed.
+ - Most women are pragmatists who have allowed extremists on the left and right to manipulate the family issue for their own purposes.
+ - The job of the press is to encourage debate, not to supply the public with information.
+ - Because it equates tradition with prejudice, the left finds itself increasingly unable to converse with ordinary people in their common language.
+ - The news appeals to the same jaded appetite that makes a child tire of a toy as soon as it becomes familiar and demand a new one in its place.
+ - The left no longer stands for common sense, as it did in the days of Tom Paine.
+ - The left ask people to believe that there is no conflict between feminism and the family.
+ - Propaganda in the ordinary sense of the term plays a less important part in a consumer society, where people greet all official pronouncements with suspicion.
+ - The same historical development that turned the citizen into a client transformed the worker from a producer into a consumer.
+ - The left dismisses talk about the collapse of family life and talks instead about the emergence of the growing new diversity of family types.
+ - Instead of taking environmentalism away from the left, conservatives condemn it as a counsel of doom.
+ - Conservatives sense a link between television and drugs, but they do not grasp the nature of this connection.
+ - The last three decades have seen the collapse of the family wage system.
+ - When liberals finally grasped the strength of popular feeling about the family, they cried to appropriate the rhetoric and symbolism of family values for their own purposes.
+ - Conservatives have no understanding of modern capitalism. They have a distorted understanding of the traditional values they claim to defend.
+ - News represents another form of advertising, not liberal propaganda.
+ - Conservatives unwittingly side with the social forces that contribute to the destruction of traditional values.
+ - Most people no longer live in nuclear families at all.
+ - The left has lost touch with popular opinion, thereby making it possible for the right to present itself as the party of common sense.
+ - Traditionalists will have to master techniques of sustained activism formerly monopolized by the left.
+ - A growing awareness of the depth of popular attachment to the family has led some liberals to concede that family is not just a buzzword for reaction.
+ - The intellectual debility of contemporary conservatism is indicated by its silence on all important matters.
+ - It is no longer an unwritten law of American capitalism that industry will attempt to maintain wages at a level that allows a single wage to support a family.
+ - Environmentalism opposes reckless innovation and makes conservation the central order of business.
+ - We are all revolutionaries now, addicts of change.
+ - Ideologies, however appealing, cannot shape the whole structure of perceptions and conduct unless they are embedded in daily experiences that confirm them.
+ - Every age develops its own peculiar forms of pathology, which express in exaggerated form its underlying character structure.
+ - The reporting of news has to be understood as propaganda for commodities, and events by images.
+ - The proper role of humanists is not to bring ‘human values’ to the attention of technicians otherwise engaged in a purely instrumental approach to their calling, but to demand the restoration of the practical or moral element in callings that have degenerated into techniques.
+ - Most of these alternative arrangements, so-called, arise out of the ruins of marriages, not as an improvement of old fashioned marriage.
+
+73 quotes

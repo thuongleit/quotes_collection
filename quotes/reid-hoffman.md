@@ -1,0 +1,71 @@
+ - If you are not embarrassed by the first version of your product, you’ve launched too late.
+ - You jump off a cliff and you assemble an airplane on the way down.
+ - Silicon Valley is a mindset, not a location.
+ - No matter how brilliant your mind or strategy, if you’re playing a solo game, you’ll always lose out to a team.
+ - You have to be constantly reinventing yourself and investing in the future.
+ - Help the people in your network. And let them help you.
+ - Opportunities do not float like clouds in the sky. They’re attached to people. If you’re looking for an opportunity, you’re really looking for a person.
+ - The fastest way to change yourself is to hang out with people who are already the way you want to be.
+ - Innovation comes from long-term thinking and iterative execution.
+ - Your network is the people who want to help you, and you want to help them, and that’s really powerful.
+ - We don’t celebrate failure in Silicon Valley. We celebrate learning.
+ - We believe that when the right talent meets the right opportunity in a company with the right philosophy, amazing transformation can happen.
+ - Everything in life has some risk, and what you have to actually learn to do is how to navigate it.
+ - All humans are entrepreneurs not because they should start companies but because the will to create is encoded in human DNA.
+ - The underpinnings of the alliance: the company helps the employee transform his career; the employee helps the company transform.
+ - Ironically, in a changing world, playing it safe is one of the riskiest things you can do.
+ - By 2030 over 2 billion jobs will disappear.
+ - People who take risk intelligently can usually actually make a lot more progress than people who don’t.
+ - You gotta be both flexible and persistent.
+ - First mover Advantage doesn’t go to the company that starts up, it goes to the company that scales up.
+ - In software, speed to market, speed to learning is really key. In hardware, if you screw it up, you’re dead. So accuracy really matters.
+ - Good ideas need good strategy to realize their potential.
+ - All human beings are entrepreneurs.
+ - Finished ought to be an F-word for all of us. We are all works in progress. Each day presents an opportunity to learn more, do more, be more, grow more in our lives and careers.
+ - You remake yourself as you grow and as the world changes. Your identity doesn’t get found. It emerges.
+ - Be persistent, and hang on to your vision. And at the same time, be flexible.
+ - One of the challenges in networking is everybody thinks it’s making cold calls to strangers. Actually, it’s the people who already have strong trust relationships with you, who know you’re dedicated, smart, a team player, who can help you.
+ - Social networks do best when they tap into one of the seven deadly sins. Facebook is ego. Zynga is sloth. LinkedIn is greed.
+ - It’s actually pretty easy to be contrarian. It’s hard to be contrarian and right.
+ - The reality is: a founder is someone who deals with a ton of different headaches and no one is universally super powered.
+ - I actually think every individual is now an entrepreneur, whether they recognize it or not.
+ - If you can get better at your job, you should be an active member of LinkedIn, because LinkedIn should be connecting you to the information, insights and people to be more effective.
+ - It’s nice to be happy. But the meaning of life is meaning – what’s the impact you’re having on the world. Suffering to accomplish that is a perfectly fine thing.
+ - It is impossible to dissociate an individual from the environment of which he is a part. No story of achievement should ever be removed from its broader social context.
+ - When you’re doing work you care about, you are able to work harder and better.
+ - A networker likes to meet people. I don’t. I like accomplishing things in the world. You meet people when you want to accomplish something.
+ - Before dreaming about the future or marking plans, you need to articulate what you already have going for you – as entrepreneurs do.
+ - People will be discovering that the Internet helps their career. One of my theses is that every individual is now a small business; how you manage your own personal career is the exact way you manage a small business. Your brand matters. That is how LinkedIn operates.
+ - Trust and mutual value creation helps both employer and employee compete in the marketplace.
+ - Not only CAN anyone be an entrepreneur, but they MUST be.
+ - If you don’t start out aiming for the big game, you almost never can get there.
+ - The real secret of Silicon Valley is that it’s really all about the people.
+ - Pay attention to your culture and your hires from the very beginning.
+ - It’s useful to be able to recognize whether you’re on track or not. To have that belief, but also paranoia about am I tracking against my investment thesis.
+ - The value of being connected and transparent is so high that the roadbumps of privacy issues are much lower in actual experience than people’s fears.
+ - The question is: how you cross uneven ground, how you assemble networks around you.
+ - What makes the meaning of life is people, so you try to be good to people immediately around you and in your broader community. So a lot of my projects are about how I can affect the world in the hundreds of millions.
+ - Great opportunities almost never fit your schedule.
+ - You should have an investment thesis that essentially says why you think this is potentially a good idea.
+ - The future is sooner and stranger than you think.
+ - Society flourishes when people think entrepreneurally.
+ - What great founders do is seek the networks that will be essential to their task. Usually it’s best to have two or three people on a team, rather than a solo founder.
+ - When you have an idea, a classic entrepreneurial impulse is to hold the idea close to you and not tell people and that’s almost always a mistake.
+ - It’s better to be the best connected than the most connected.
+ - Part of the entrepreneurial thing is there are lots of ways to die.
+ - So usually you have to have product distribution as more fundamental than what the actual product is.
+ - Having a great idea for a product is important, but having a great idea for product distribution is even more important.
+ - Data only exists within the framework of a vision you’re building to, a hypothesis of where you’re moving to.
+ - When I’m raising money, this fundraising, I’m thinking about the next fundraising. I’m thinking how I’m set up for it.
+ - World-changing startups need to be premised on accurate contrarian theories.
+ - The challenge when you think about product distribution is: how are you competing for potential customers or potential members time.
+ - A little-known company with a realistic framework that appeals to entrepreneurial employees is going to be more attractive than a famous company that treats its people like disposable assets.
+ - One of the ways they run forward is by viewing the thing they’re doing as something that’s going to be the whole world.
+ - A product needs to be sufficiently innovative to distinguish itself from the pack, but not so forward thinking as to alienate the user.
+ - Entrepreneurship is a life idea, not a strictly business one; a global idea, not a strictly American one.
+ - This is classic when you begin thinking about what is a great founder is, you navigate what is apparent paradoxes.
+ - One thing I learned in ’97, when I thought the right time to found a company was during a swing-up, is that it’s much better to start during an economic downturn. Partnerships are easier; hiring is easier; and the competition starts later.
+ - I am most heartened when I’m talking to a team when they’re reasoning to each other.
+ - It’s very conventional to say that you’re a contrarian these days.
+
+69 quotes

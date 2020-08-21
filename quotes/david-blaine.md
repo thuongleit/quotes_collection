@@ -1,0 +1,30 @@
+ - As children we believe that anything is possible, the trick is to never forget it.
+ - We are all capable of infinitely more than we believe.
+ - As a magician, I think everything is possible. And I think if something is done by one person it can be done by others.
+ - Whether you’re shuffling a deck of cards or holding your breath, magic is pretty simple: It comes down to training, practice, and experimentation, followed up by ridiculous pursuit and relentless perseverance.
+ - Magic is not about having a puzzle to solve. It’s about creating a moment of awe and astonishment. And that can be a beautiful thing.
+ - My only fear is the unknown.
+ - I was obsessed with the idea of fasting and isolation.
+ - I think everything I do is normal, not paranormal but normal. Its using the power of the mind to achieve whatever we can endure.
+ - I believe that fear of life brings a greater fear of death.
+ - Besides prostitution, magic is one of the oldest art forms that exist.
+ - Magic’s an art where you use slight of hand or illusion to create wonder. And I was just intrigued with that idea.
+ - I’d like to bring magic back to the place it used to be 100 years ago.
+ - Basically, I was a kid growing up with a single mother in Brooklyn.
+ - It was just like a digital fixation with cards and math and science and then I started to look at images of great magicians from Houdini down the line.
+ - I do a lot of research on what people have done in the past.
+ - I’d always wanted to do these types of things – pieces of magic I could put out not as illusions, but really doing it.
+ - I thought instead of burying myself under dirt, I’d bury myself under water so everybody could see that you’re there.
+ - As a kid I used to hold my breath longer than anybody else, and then I heard stories about people accidently underwater for 45 minutes – how do you recover from that? It’s not a miracle. Something allows us to survive.
+ - My mother was a teacher, and when she wanted to show me art and literature and science, she’d take me to museums, parks and free exhibitions.
+ - As a kid, I always was obsessed with Houdini.
+ - I remember my mother had this deck of cards that her mother had given her and that she passed on to me. It was a gypsy tarot deck that I used to carry everywhere.
+ - We are all capable of infinitely more than we believe. We are stronger and more resourceful than we know, and we can endure much more than we think we can.
+ - But as they say about sharks, it’s not the ones you see that you have to worry about, it’s the ones you don’t see.
+ - I’d go to Coney Island to hang out, and I saw a magician doing a rope trick on the boardwalk. I was fascinated. I guess that’s how it started.
+ - I think great whites are the most beautiful and perfect creatures I’ve ever seen.
+ - I think that when Evel Knievel crashed over the fountain at Caesars, it kind of gave you a credibility and then anticipation for everything he did.
+ - I have not had time to reflect on my own truths in many years.
+ - I remember finding a Houdini book at the library and seeing an image of him chained on the side of a building. He looked so intense and scary, and I couldnt get that image out of my head. That started building up my love of magic.
+
+28 quotes

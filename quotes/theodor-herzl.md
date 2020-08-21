@@ -1,0 +1,34 @@
+ - If you will it, it is no dream.
+ - If you will it, it is no dream; and if you do not will it, a dream it is and a dream it will stay.
+ - When we sink, we become a revolutionary proletariat, the subordinate officers of all revolutionary parties; at the same time, when we rise, there rises also our terrible power of the purse.
+ - If whole branches of Jews must be destroyed, it is worth it, as long as a Jewish state in Palestine is created.
+ - Dream and deed are not as different as many think. All the deeds of men are dreams at first, and become dreams in the end.
+ - Universal brotherhood is not even a beautiful dream. Antagonism is essential to man’s greatest efforts.
+ - Nothing prevents us from being and remaining the exponents of a united humanity, when we have a country of our own. To fulfill this mission we do not have to remain literally planted among the nations who hate and despise us.
+ - I will give you my definition of a nation, and you can add the adjective ‘Jewish.’ A Nation is, in my mind, an historical group of men of a recognizable cohesion held together by a common enemy. Then, if you add to that the word ‘Jewish’ you have what I understand to be the Jewish nation.
+ - Do you know out of what the German Empire arose? Out of dreams, songs, fantasies and black-red-gold ribbons? Bismarck merely shook the tree that fantasies had planted.
+ - The wealth of a country is its working people.
+ - The Jews had, as a matter of fact, long been all along the most ingenious entrepreneurs. It was only our own future that we had never built upon a business basis.
+ - Zionism demands a publicly recognized and legally secured homeland in Palestine for the Jewish people. This platform is unchangeable.
+ - I prefer being penetrated by iron to seeing Palestine is loose.
+ - What We want is to make it possible for our unfortunate people to live a life of industry for it is by steady work alone that we hope for our physical and moral rehabilitation. For this reason above all we have undertaken to rally our people around our ideal.
+ - Realists are, as a rule, only men in the rut of routine who are incapable of transcending a narrow circle of antiquated notions.
+ - I incline to an aristocratic republic. This would satisfy the ambitious spirit among our people. We shall learn from the historic mistakes of others in the same way as we learn from our own; for we are a modern nation and wish to be the most modern in the world.
+ - Were I to sum up the Basle Congress in a word- which I shall guard against pronouncing publicly- it would be this: ‘At Basle, I founded the Jewish State. If I said this out loud today, I would be answered by universal laughter. If not in 5 years, certainly in 50, everyone will know it.’
+ - It goes without saying that the Jewish people can have no other goal than Palestine and that, whatever the fate of the proposition may be, our attitude toward the land of our fathers is and shall remain unchangeable.
+ - Whoever would change men must change the conditions of their lives.
+ - We are organizing Jewry for its coming destiny.
+ - We believe that salvation is to be found in wholesome work in a beloved land. Work will provide our people with the bread of tomorrow, and moreover, with the honor of the tomorrow, the freedom of the tomorrow.
+ - The character of a people may be ruined by charity.
+ - Economic distress, political pressure, and social obloquy already drive us from our homes and from our graves. The Jews are already constantly shifting from place to place.
+ - If anyone thinks that Jews can steal into the land of their fathers, he is deceiving either himself or others. Nowhere is the coming of Jews so promptly noted as in the historic home of the Jews, for the very reason that it is the historic home.
+ - The land which the Society of Jews will have secured by international law must naturally be privately owned.
+ - Let sovereignty be granted us over a portion of the earth’s surface large enough to satisfy our rightful requirements as a nation. The rest we shall manage for ourselves.
+ - Philanthropic colonization is a failure. National colonization will succeed.
+ - It is true that we aspire to our ancient land. But what we want in that ancient land is a new blossoming of the Jewish spirit.
+ - Four years ago in speaking of a Jewish nation one ran the risk of being regarded ridiculous. Today he makes himself ridiculous who denies the existence of a Jewish nation.
+ - The Jewish people asked nothing of its sons except not to be denied. The world is grateful to every great man when he brings it something; only the paternal home thanks the son who brings nothing but himself.
+ - But we wish to give the Jews a Homeland. Not by dragging them ruthlessly out of their sustaining soil, but rather by removing them carefully, roots and all, to a better terrain.
+ - The spirit in which the offer was made must of necessity contribute to improving and alleviating the situation of the Jewish people without our renouncing one iota of the great principles upon which our movement is based.
+
+32 quotes

@@ -1,0 +1,78 @@
+ - Humans are pattern-seeking story-telling animals, and we are quite adept at telling stories about patterns, whether they exist or not.
+ - Science is not a thing. It’s a verb. It’s a way of thinking about things. It’s a way of looking for natural explanations for all phenomena.
+ - Smart people believe weird things because they are skilled at defending beliefs they arrived at for non-smart reasons.
+ - Science is the best tool ever devised for understanding how the world works.
+ - I’m a skeptic not because I do not want to believe, but because I want to know. How can we tell the difference between what we would like to be true and what is actually true? The answer is science.
+ - The fate of the paranormal is to become the normal as our horizons of understanding expand.
+ - We are a fluke of nature, a quirk of evolution, a glorious contingency.
+ - Mysteries once thought to be supernatural or paranormal happenings – such as astronomical or meteorological events – are incorporated into science once their causes are understood.
+ - A Hubble Space Telescope photograph of the universe evokes far more awe for creation than light streaming through a stained glass window in a cathedral.
+ - We know evolution happened not because of transitional fossils such as A. natans but because of the convergence of evidence from such diverse fields as geology, paleontology, biogeography, comparative anatomy and physiology, molecular biology, genetics, and many more.
+ - Science is not the affirmation of a set of beliefs but a process of inquiry aimed at building a testable body of knowledge constantly open to rejection or confirmation. In science, knowledge is fluid and certainty fleeting. That is at the heart of its limitations. It is also its greatest strength.
+ - Through no divine design or cosmic plan, we have inherited the mantle of life’s caretaker on the earth, the only home we have ever known.
+ - Being a skeptic just means being rational and empirical: thinking and seeing before believing.
+ - Anecdotal thinking comes naturally; science requires training.
+ - In science, if an idea is not falsifiable, it is not that it is wrong, it is that we cannot determine if it is wrong, and thus it is not even wrong.
+ - Absolute morality leads logically to absolute intolerance.
+ - In principle, skeptics are neither closed-minded nor cynical. We are curious but cautious.
+ - Darwin matters because evolution matters. Evolution matters because science matters. Science matters because it is the preeminent story of our age, an epic saga about who we are, where we came from and where we are going.
+ - I’m a skeptic not because I do not want to believe, but because I want to know.
+ - Rationality tied to moral decency is the most powerful joint instrument for good that our planet has ever known.
+ - Since humans are by nature tribal, the overall goal is to expand the concept of the tribe to include ALL members of the species, in a global free society.
+ - To be a fully functioning moral agent, one cannot passively accept moral principles handed down by fiat. Moral principles require moral reasoning.
+ - Scientific prayer makes God a celestial lab rat, leading to bad science and worse religion.
+ - Skepticism is not a position; it’s a process.
+ - Myths are stories that express meaning, morality or motivation. Whether they are true or not is irrelevant.
+ - In science, all conclusions are provisional, subject to new evidence and better arguments, the very antithesis of religious faith.
+ - In the past 10,000 years, humans have devised roughly 100,000 religions based on roughly 2,500 gods. So the only difference between myself and the believers is that I am skeptical of 2,500 gods whereas they are skeptical of 2,499 gods. We’re only one God away from total agreement.
+ - The human capacity for self-delusion is boundless, and the effects of belief are overpowering.
+ - Believing that the rustle in the grass is a dangerous predator when it is only the wind does not cost much, but believing that a dangerous predator is the wind may cost an animal its life.
+ - Skepticism is not a position; skepticism is an approach to claims, in the same way that science is not a subject but a method.
+ - Science is a set of methods designed to describe and interpret observed or inferred phenomenon, past or present, and aimed at building a testable body of knowledge open to rejection or confirmation.
+ - Religious faith depends on a host of social, psychological and emotional factors that have little or nothing to do with probabilities, evidence and logic.
+ - The whole point of faith, in fact, is to believe regardless of the evidence, which is the very antithesis of science.
+ - It is sad that while science moves ahead in exciting new areas of research, fine-tuning our knowledge of how life originated and evolved, creationists remain mired in medieval debates about angels on the head of a pin and animals in the belly of an Ark.
+ - Belief is the natural state of things. It is the default option. We just believe. We believe all sorts of things. Belief is natural; disbelief, skepticism, science, is not natural.
+ - We want to be open-minded enough to accept radial new ideas when they occasionally come along, but we don’t want to be so open-minded that our brains fall out.
+ - Dualists hold that body and soul are separate entities and that the soul will continue beyond the existence of the physical body.
+ - The actual atoms and molecules that make up my brain and body today are not the same ones that I was born with on September 8, 1954, a half-century ago this month.
+ - Human history is highly nonlinear and unpredictable.
+ - Scientists like Bjorn Lomborg in The Skeptical Environmentalist have, in my opinion, properly nailed environmental extremists for these exaggerated scenarios.
+ - Remember always that we are pattern-seeking primates who are especially adept at finding patterns with emotional meaning.
+ - Because of the complexity of the problem, environmental skepticism was once tenable. No longer. It is time to flip from skepticism to activism.
+ - Accepting evolution does not force us to jettison our morals and ethics, and rejecting evolution does not ensure their constancy.
+ - Machine intelligence of a human nature could be a century away, and immortality is at least a millennium away, if not unattainable altogether.
+ - There are many sources of spirituality; religion may be the most common, but it is by no means the only. Anything that generates a sense of awe may be a source of spirituality. Science does this in spades.
+ - There is a significant difference between having no belief in a God and believing there is no God...
+ - As Enlightenment philosophers and scholars consciously adopted the methods of science to establish such abstract concepts as rights, liberty, and justice, successive generations have become schooled in thinking of these abstractions as applied to others in matrices-like mental rotations.
+ - Providentially, learned habits can be unlearned, especially in the context of moral groups.
+ - People believe in God because we are pattern-seeking, storytelling, mythmaking, religious, moral animals.
+ - No single discovery from any of these fields denotes proof of evolution, but together they reveal that life evolved in a certain sequence by a particular process.
+ - But there is only one surefire method of proper pattern recognition, and that is science.
+ - But the power of science lies in open publication, which, with the rise of the Internet, is no longer constrained by the price of paper.
+ - Mammals are sentient beings that want to live and are afraid to die. Evolution vouchsafed us all with an instinct to survive, reproduce and flourish.
+ - In the long run, it is better to understand the way the world really is rather than how we would like it to be.
+ - The price of liberty is, in addition to eternal vigilance, eternal patience with the vacuous blather occasionally expressed from behind the shield of free speech.
+ - The reason is that in a group, individual errors on either side of the true figure cancel each other out.
+ - We’re all talking about the same thing, whether it’s religious people or New Age spiritual people or Buddhists or scientists. We’re all talking about having a sense of awe and wonder at something grander than ourselves.
+ - I care what is actually true, even more than what I hope is true.
+ - If spirituality is the sense of awe and humility in the face of the creation, what could be more awesome and humbling than the deep space discovered by Hubble and the cosmologists, and the deep time discovered by Darwin and the evolutionists.
+ - My thesis is that morality exists outside the human mind in the sense of being not just a trait of individual humans, but a human trait; that is, a human universal.
+ - Either the soul survives death or it does not, and there is no scientific evidence that it does.
+ - One, I am skeptical of the effectiveness of nutritional supplements.
+ - People who espouse Intelligent Design believe nature is so complex as to require an intelligent designer-God. Similarly, liberals believe the economy is so complex as to require an intelligent designer-government.
+ - Conspiracies are a perennial favorite for television producers because there is always a receptive audience.
+ - The recent medical controversy over whether vaccinations cause autism reveals a habit of human cognition – thinking anecdotally comes naturally, whereas thinking scientifically does not.
+ - But because we live in an age of science, we have a preoccupation with corroborating our myths.
+ - Skepticism is not a position that you stake out ahead of time and stick to no matter what.
+ - So, of course, Gish’s presentation was well received, which it would have been the case had he only gotten up and said “praise the Lord” and sat back down.
+ - Plato wove historical fact into literary myth.
+ - We do not just blindly concede control to authorities; instead we follow the cues provided by our moral communities on how best to behave.
+ - In comparison, Google is brilliant because it uses an algorithm that ranks Web pages by the number of links to them, with those links themselves valued by the number of links to their page of origin.
+ - For solving a surprisingly large and varied number of problems, crowds are smarter than individuals.
+ - When alien abductees recount to me their stories, I do not deny that they had a real experience.
+ - Flawed as they may be, science and the secular Enlightenment values expressed in Western democracies are our best hope for survival.
+ - We think of our eyes as video cameras and our brains as blank tapes to be filled with sensory inputs.
+ - I just witnessed an event so mysterious that it shook my skepticism.
+
+76 quotes

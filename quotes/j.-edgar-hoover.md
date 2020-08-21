@@ -1,0 +1,29 @@
+ - When morals decline and good men do nothing, evil flourishes.
+ - J. Edgar Hoover: When morals decline and good men do nothing, evil flourishes. A society unwilling to learn from past is doomed. We must never forget our history.
+ - Even great men can be corrupted.
+ - The individual is handicapped by coming face-to-face with a conspiracy so monstrous he cannot believe it exists.
+ - There will never be another Black Messiah unless we create him.
+ - Experts say that children are not born criminals, nor pampered parasites. They are made that way by the environment in which they live.
+ - The will to do, the tenacity to overcome all obstacles and to finish the course, the strength to cling to inexorable ideals, are all rooted in courage.
+ - I regret to say that we of the FBI are powerless to act in cases of oral-genital intimacy, unless it has in some way obstructed interstate commerce.
+ - Justice is merely incidental to law and order. Law and order is what covers the whole picture. Justice is part of it, but it can’t be separated as a single thing.
+ - Why should you care if you have nothing to hide?
+ - It can be held certain that information that is withheld or suppressed contains truths that are detrimental to the persons involved in the suppression.
+ - The cure for crime is not the electric chair, but the high chair.
+ - There is but one way to eliminate juvenile delinquency – that is by providing each child in America with competent parents.
+ - No amount of law enforcement can solve a problem that goes back to the family.
+ - What you need is a good Hoovering.
+ - There is no doubt that America is now the prime target of international communism.
+ - A child who has been taught to respect the laws of God will have little difficulty respecting the laws of men.
+ - I don’t need to tell you that, what determines a man’s legacy is often what isn’t seen.
+ - There is something addictive about secrets.
+ - What’s important at this time is to re-clarify the difference between hero and villain.
+ - All persons who bear the blessed title of parent have the personal responsibility to see that their children are growing up fully appreciative of the rights of God and their fellowmen.
+ - Above all, I would teach him to tell the truth Truth-telling, I have found, is the key to responsible citizenship. The thousands of criminals I have seen in 40 years of law enforcement have had one thing in common: Every single one was a liar.
+ - The American mind simply has not come to a realization of the evil which has been introduced into our midst.
+ - Justice is incidental to law and order.
+ - Banks are an almost irresistible attraction for that element of our society which seeks unearned money.
+ - Just the minute the FBI begins making recommendations on what should be done with its information, it becomes a Gestapo.
+ - The Federal Bureau of Investigation has been requested to assist in the investigation of reported sightings of flying disks...
+
+27 quotes

@@ -1,0 +1,135 @@
+ - If you want to walk on water, you have to get out of the boat.
+ - Disciplined people can do the right thing at the right time in the right way for the right reason.
+ - Over time, grit is what separates fruitful lives from aimlessness.
+ - Peace doesn’t come from finding a lake with no storms. It comes from having Jesus in the boat.
+ - Who you become while you’re waiting is as important as what you’re waiting for.
+ - Having faith does not mean never having doubts or questions. It does mean remaining obedient.
+ - To become truly free, you must surrender.
+ - You must arrange your days so that you are experiencing deep contentment, joy and confidence in your everyday life with God.
+ - Biblically, waiting is not just something we have to do until we get what we want. Waiting is part of the process of becoming what God wants us to be.
+ - Bitterness is like drinking rat poison and waiting for the rat to die.
+ - One of the hardest things in the world is to stop being the prodigal son without turning into the elder brother.
+ - The greatest moment of your life is now. This moment is God’s irreplaceable gift to you.
+ - Habits eat good intentions for breakfast.
+ - Leadership is the art of disappointing people at a rate they can stand.
+ - At the deepest level, pride is the choice to exclude both God and other people from their rightful place in our hearts. Jesus said the essence of the spiritual life is to love God and to love people. Pride destroys our capacity to love.
+ - God is a God of endless opportunities to do good; the God of the open door.
+ - If you want to do the work of God, pay attention to people. Notice them. Especially the people nobody else notices.
+ - The main measure of your devotion to God is not your devotional life. It is simply your life.
+ - Genuine brokenness pleases God more than pretend spirituality.
+ - You must ruthlessly eliminate hurry from your life.
+ - Solitude is the one place where we can gain freedom from the forces of society that will otherwise relentlessly mold us. Solitude requires relentless perseverance.
+ - True repentance never leads to despair. Its leads home. It leads to grace.
+ - Every day you and I walk through God’s shop. Every day we brush up against objects of incalculable worth to Him. People. Every one of them carries a price tag, if only we could see it.
+ - Prayer allows us to wait without worry.
+ - Going in faith does not necessarily mean going with serenity or without doubts. Faith can be difficult.
+ - For the soul to be well, it needs to be with God.
+ - Love and hurry are fundamentally incompatible. Love always takes time, and time is the one thing hurried people don’t have.
+ - True love is willing to warn, reprove, confront or admonish when necessary.
+ - As long as we have unsolved problems, unfulfilled desires, and a mustard seed of faith, we have all we need for a vibrant prayer life.
+ - The primary goal of spiritual life is human transformation.
+ - Never try to have more faith – just get to know God better. And because God is faithful, the better you know Him, the more you’ll trust Him.
+ - Acceptance is an act of the heart. To accept someone is to affirm to them that you think it’s a very good thing they are alive.
+ - Hurry is not just a disordered schedule. Hurry is a disordered heart.
+ - I am disappointed with myself. I am disappointed not so much with the particular things I have done as with the aspects of who I have become. I have a nagging sense that all is not as it should be.
+ - Both hope and pessimism are deeply contagious. And no one is more infectious than a leader.
+ - Art is built on the deepest themes of human meaning: good and evil, beauty and ugliness, life and death, love and hate. No other story has incarnated those themes more than the story of Jesus.
+ - The decision to grow always involves a choice between risk and comfort. This means that to be a follower of Jesus, you must renounce comfort as the ultimate value of your life.
+ - If we are serious about loving God, we must begin with people, all people. And especially we must learn to love those that the world generally discards.
+ - The good news as Jesus preached it is not just about the minimal entrance requirements for getting into heaven when you die. It is about the glorious redemption of human life-your life.
+ - God has entrusted us with his most precious treasure – people. He asks us to shepherd and mold them into strong disciples, with brave faith and good character.
+ - What repeatedly enters your mind and occupies your mind, eventually shapes your mind, and will ultimately express itself in what you do and who you become.
+ - It may be a very bad thing that I needed God to die for me, but it is a wonderful thing that God thinks I am worth dying for.
+ - I don’t have a problem with delegation. I love to delegate. I am either lazy enough, or busy enough, or trusting enough, or congenial enough, that the notion leaving tasks in someone else’s lap doesn’t just sound wise to me, it sounds attractive.
+ - There is a world of difference between being friendly to someone because they’re useful to you and being someone’s friend.
+ - One reason why we fail to hear God speak is that we are not attentive. We suffer from what might be called ‘spiritual mindlessness.’
+ - The possibility of transformation is the essence of hope.
+ - Prudence is not hesitation, procrastination, or moderation. It is not driving in the middle of the road. It is not the way of ambivalence, indecision, or safety.
+ - Significance is about who we are before it is about what we do.
+ - I’m more concerned about who you’re becoming than what you’re doing.
+ - You can only love and be loved to the extent that you know and are known by somebody.
+ - The goal of prayer is to live all of my life and speak all of my words in the joyful awareness of the presence of God. Prayer becomes real when we grasp the reality and goodness of God’s constant presence with ‘the real me.’ Jesus lived his everyday life in conscious awareness of his Father.
+ - Failure is not an event, but rather a judgment about an event. Failure is not something that happens to us or a label we attach to things. It is a way we think about outcomes.
+ - Gratitude is the ability to experience life as a gift. It liberates us from the prison of self-preoccupation.
+ - Death is the prerequisite to resurrection, the new life God intends.
+ - Failure does not shape you; the way you respond to failure shapes you.
+ - God is still in the business of coming down to earth: to this cubicle, this email, this room, this house, this job, this hospital room, this car, this bed, this vacation. Any place can become Bethel, the house of God. Cleveland, maybe. Or the chair you’re sitting in as you read these words.
+ - Wise people build their lives around what is eternal and squeeze in what is temporary. Not the other way around.
+ - God is not interested in our spiritual life. He’s interested in our life.
+ - The soul seeks God with its whole being. Because it is desperate to be whole, the soul is God-smitten and God-crazy and God-obsessed. My mind may be obsessed with idols; my will may be enslaved to habits; my body may be consumed with appetites. But my soul will never find rest until it rests in God.
+ - To love someone is to desire and work toward their becoming the best version of themselves. The one person in all the universe who can do this perfectly for you is God.
+ - Sloth is the failure to do what needs to be done when it needs to be done – like the kamikaze pilot who flew seventeen missions.
+ - Sheldon Vanauken wrote that the strongest argument for Christianity is Christians, when they are drawing life from God. The strongest argument against Christianity? Also Christians, when they become exclusive, self-righteous, and complacent.
+ - What matters is not the accomplishments you achieve; what matters is the person you become.
+ - If we do not become changed from the inside-out – if we don’t morph – we will be tempted to find external methods to satisfy our need to feel that we’re different from those outside the faith. If we cannot be transformed, we will settle for being informed or conformed.
+ - For many of us the great danger is not that we will renounce our faith. It is that we will become so distracted and rushed and preoccupied that we will settle for a mediocre version of it.
+ - Low self-esteem causes me to believe that I have so little worth that my response does not matter. With repentance, however, I understand that being worth so much to God is why my response is so important. Repentance is remedial work to mend our minds and hearts, which get bent by sin.
+ - When we live in the love of God, we begin to pay attention to people the way God pays attention to us.
+ - Too often we argue about Christianity instead of marveling at Jesus.
+ - The problem with spending your life climbing up the ladder is that you will go right past Jesus, for he’s coming down.
+ - Grace is the offer of God’s ceaseless presence and irrational love that cannot be stopped.
+ - The ministry of bearing with one another is learning to hear God speak through difficult people.
+ - One of the great illusions of our time is that hurrying will buy us more time.
+ - We are tempted to live under the illusion that somewhere out there are people who are normal.
+ - You have a “turn” every time you have an opportunity to choose. But most of us only see a tiny fraction of the choices we have.
+ - I hate how hard spiritual transformation is and how long it takes. I hate thinking about how many people have gone to church for decades and remain joyless or judgmental or bitter or superior.
+ - Jesus is mysterious not just because of what we don’t know about him, but because of what we do know about him.
+ - Jesus gave the world its most influential movement.
+ - The harder you strike it, the deeper it goes.
+ - There is no way for a human being to come to God that does not involve surrender.
+ - Imagine watching all that God might have done with your life if you had let him.
+ - We must assess our thoughts and beliefs and reckon whether they are moving us closer to conformity to Christ or farther away from it.
+ - The character of the faith that allows us to be transformed by suffering and darkness is not doubt-free certainty; rather, it is tenacious obedience.
+ - The greatest bloodbaths in the history of the human race were recorded in the twentieth century in countries that sought to eliminate God, worship, and faith.
+ - God wishes to be seen, wishes to be sought, wishes to be expected, and wishes to be trusted.
+ - The church is in the hope business.
+ - Our beliefs are not just estimates of probabilities. They are also the instruments that guide our actions.
+ - Skeptics would rather, even at their own expense, appear to be right than take the risk of trusting.
+ - The life of Abraham Lincoln is by most accounts an amazing study in character formation. Yet he was notoriously disorganized; he even had a file in his law office labeled If you can’t find it anywhere else, try looking here.
+ - Make your life about something bigger than your life.
+ - Today, see each problem as an invitation to prayer.
+ - The most important task of your life is not what you do, but who you become.
+ - It only makes sense to ask God for guidance in the context of a life committed to “seeking first the kingdom.”
+ - Spiritual transformation is not a matter of trying harder, but of training wisely.
+ - God sees with utter clarity who we are. He is undeceived as to our warts and wickedness. But when God looks at us that is not all He sees. He also sees who we are intended to be, who we will one day become.
+ - We are too often double espresso followers of a decaf Sovereign.
+ - True joy, as it turns out, comes only to those who have devoted their lives to something greater than personal happiness. This is most visible in extraordinary lives, in saints and martyrs. But it is no less true for ordinary people like us.
+ - The Holy Spirit will lead you to be with people as Jesus would be with them if He were in your place.
+ - In the beginning, we’re told, was the word. Every once in a while someone shows up on the planet who is word-obsessed and word-gifted; and the light and darkness get named again. In our day, that someone is Buechner.
+ - Greatness is never achieved through indecision.
+ - Ever console or scold people hurt in human relationships that satisfaction comes from God alone? Stop. Adam’s fellowship with God was perfect, and God Himself declared Adam needed other humans.
+ - Normally, if someone’s legacy will outlast their life, it’s apparent when they die. On the day when Alexander the Great, or Caesar Augustus, or Napoleon, or Socrates, or Muhammad died, their reputations were immense. When Jesus died, his tiny, failed movement appeared clearly at an end.
+ - God is so immense that if he were ‘too visible,’ people would give forced compliance without expressing their heart. So God made it possible, in enormous love, for us to live as if he were not there.
+ - At the heart of Christian faith is the story of Jesus death and resurrection.
+ - Joylessness may be the sin most readily tolerated by the church.
+ - We may be unlovely yet we are not unloved.
+ - The miracle of Sunday is that a dead man lives. The miracle of Saturday is that the eternal Son of God lies dead.
+ - The reason our souls hunger so is that the life we could be living so far exceeds our strangest dreams.
+ - The test of love is that it gives even when there is no expectation of a return.
+ - The Holy Spirit says: You are it. You are God’s plan. In a thirsty world, people need to be refreshed. It is a broken world, and people need to be healed. Now get out there and do it!
+ - The only cure from sin is by maintaining a vision of God.
+ - We tend to be preoccupied by our problems when we have a heightened sense of vulnerability and a diminished sense of power. Today, see each problem as an invitation to prayer.
+ - There are dozens of references to God in the Scriptures for every one to the figure of Satan. This reflects a sometimes forgotten theological truth that the devil is by no means God’s counterpart. He is a creature, not the Creator.
+ - Every human being who has ever lived has suffered from a messiah complex-except one.
+ - Willpower is trying very hard not to do something you want to do very much.
+ - Over and over in the Bible, it is fear that threatens to keep people from trusting and obeying God.
+ - Churches can become places of cynicism, resistance, and pessimism.
+ - We who preach have one tool. We are people of the book.
+ - A bad sermon is like a car wreck – everyone slows down to see what happened.
+ - When I teach the formal curriculum, I have the chance to think about it ahead of time. I can rehearse it. I can illustrate it with self-deprecating humor and humble-sounding personal disclosure. I can try to make it comes out just right.
+ - The goal is not for us to get through the Scriptures. The goal is to get the Scriptures through us.
+ - One of the most painful aspects of suffering is the loneliness of it. Others may offer support or empathy, but no one can walk the road to Moriah in our place.
+ - It’s better to have the faith to embrace reality with all its pain than to cling to the false comfort of a painless fantasy.
+ - People who are servants-humbly, honestly, and joyfully-keep getting revealed as the biggest winners. People who recognize and embrace their smallness keep getting bigger and bigger in God’s eyes. It’s the oddest scoring system.
+ - In reality, each thought we have carries with it a little spiritual power, a tug toward or away from God. No thought is purely neutral.
+ - The most frequent promise in the Bible is ‘I will be with you.’
+ - The Bible does not say you are God’s appliance; it says you are his masterpiece. Appliances get mass-produced.
+ - Waiting on the Lord is a confident, disciplined, expectant, active, sometimes painful clinging to God.
+ - A boss who interrupts an employee a lot is called an extrovert, whereas an employee who interrupts a boss too often is called an ex-employee.
+ - Self-improveme nt is no more God’s plan than self-salvation.
+ - If I have the courage to acknowledge my limits and embrace them, I can experience enormous freedom. If I lack this courage, I will be imprisoned by them.
+ - When preaching is done right, it can change lives. When it’s done badly, my failure goes beyond the merely human.
+ - Nobody lives up to the norms that God had in mind when he first created human beings.
+ - Skepticism can keep us from blessing, can keep us trapped in two minds.
+
+133 quotes

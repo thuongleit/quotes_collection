@@ -1,0 +1,42 @@
+ - The highest form of ignorance is when you reject something you don’t know anything about. ~~Wayne W. Dyer
+ - Look for the answer inside your question. ~~Rumi
+ - I am so clever that sometimes I don’t understand a single word of what I am saying. ~~Oscar Wilde
+ - Religion is for people who fear hell, spirituality is for people who have been there. ~~David Bowie
+ - Everyone has three lives: a public life, a private life, and a secret life. ~~Gabriel Garcí­a Márquez
+ - We study history not to be clever in another time, but to be wise always. ~~Marcus Tullius Cicero
+ - Do I dare disturb the universe? ~~T. S. Eliot
+ - A stupid man’s report of what a clever man says can never be accurate, because he unconsciously translates what he hears into something he can understand. ~~Bertrand Russell
+ - There is always a way out for those clever enough to find it. ~~Rick Riordan
+ - A good lawyer knows the law; a clever one takes the judge to lunch. ~~Mark Twain
+ - Judge a man by his questions rather than by his answers. ~~Voltaire
+ - Always remember you are braver than you believe, stronger than you seem, smarter than you think and twice as beautiful as you’d ever imagined. Yesterday I was clever, so I wanted to change the world. Today I am wise, so I am changing myself. ~~Rumi
+ - He who can, does. He who cannot, teaches. ~~George Bernard Shaw
+ - The clever combatant imposes his will on the enemy, but does not allow the enemy’s will to be imposed on him. ~~Sun Tzu
+ - Human beings aren’t rational animals; we’re rationalizing animals who want to appear reasonable to ourselves. ~~Elliot Aronson
+ - My idea of good company is the company of clever, well-informed people who have a great deal of conversation; that is what I call good company. ~~Jane Austen
+ - I am so stupid that I cannot understand philosophy; the antithesis of this is that philosophy is so clever that it cannot comprehend my stupidity. These antitheses are mediated in a higher unity; in our common stupidity. ~~Soren Kierkegaard
+ - The most powerful weapon known is the weapon of blessing. Therefore, a clever person relies on it. He wins with peace, not with war. ~~Laozi
+ - Which would you rather be if you had the choice – divinely beautiful or dazzlingly clever or angelically good? ~~L.M. Montgomery
+ - If you tell the truth, you don’t have to remember anything. ~~Mark Twain
+ - I became insane, with long intervals of horrible sanity. ~~Edgar Allan Poe
+ - No problem can withstand the assault of sustained thinking. ~~Voltaire
+ - When it is obvious that the goals cannot be reached, don’t adjust the goals, adjust the action steps. ~~Confucius
+ - Silence is the sleep that nourishes wisdom. ~~Francis Bacon
+ - We tend to get what we expect. ~~Norman Vincent Peale
+ - Thought is so cunning, so clever, that it distorts everything for its own convenience. ~~Jiddu Krishnamurti
+ - You got to be smart you got to be clever and not get hit and when your able to do this your a fighter. ~~Cus D'Amato
+ - How you think when you lose determines how long it will be until you win. ~~Gilbert K. Chesterton
+ - If men had wings and bore black feathers, Few of them would be clever enough to be crows. ~~Henry Ward Beecher
+ - The worst sort of clever men are those who know better than the Bible. ~~Charles H. Spurgeon
+ - To err is human, but it feels divine. ~~Mae West
+ - Liberty means responsibility. That is why most men dread it. ~~George Bernard Shaw
+ - Stupid men are often capable of things the clever would not dare to contemplate... ~~Terry Pratchett
+ - One man’s theology is another man’s belly laugh. ~~Robert A. Heinlein
+ - But now I am six. And I’m clever as clever. And now I think I’ll stay six now forever and ever. ~~A. A. Milne
+ - By faithfully working eight hours a day you may eventually get to be boss and work twelve hours a day. ~~Robert Frost
+ - Learning without thought is labor lost; thought without learning is perilous. ~~Confucius
+ - I never think of the future – it comes soon enough. ~~Albert Einstein
+ - He that is good for making excuses is seldom good for anything else. ~~Benjamin Franklin
+ - The secret of staying young is to live honestly, eat slowly, and lie about your age. ~~Lucille Ball
+
+40 quotes

@@ -1,0 +1,24 @@
+ - I am, of course, a frustrated rock star – I’d much rather be a rock star than a writer. Or own a record shop. Still, it’s not a bad life, is it? You just sit at a computer and make stuff up.
+ - Rebus was eating breakfast in the canteen and wishing there was more caffeine in the coffee, or more coffee in the coffee come to that.
+ - At all times, think like a writer, and keep those antennae twitching – that way, you pick up new ideas.
+ - The most difficult part of any crime novel is the plotting. It all begins simply enough, but soon you’re dealing with a multitude of linked characters, strands, themes and red herrings – and you need to try to control these unruly elements and weave them into a pattern.
+ - You need a great idea, but then you’ve got to carry it through. If you get it right, you’re going to be a critical success. But not everyone who works hard gets it right, or has the success they deserve: there’s an element of luck.
+ - I’m often asked how I write books, but I don’t think my approach is suitable for everyone. If I walked into a creative writing class, all I could say to them was ‘I tend to make it up as I go along.’ I’m not sure that’s brilliant advice.
+ - I’m interested in Scotland now and then, how it’s changed. I want to get the reader to think about that by thinking about something from the past. How has society changed, how has policing changed, have we changed philosophically, psychologically, culturally, spiritually?
+ - You wouldn’t think you could kill an ocean, would you? But we’ll do it one day. That’s how negligent we are.
+ - War created bizarre allies, while peace itself could be divisive.
+ - I wrote my first short story for a competition and won second prize. Another competition came up and I won first prize. The first story was published in a newspaper. The second went out on radio.
+ - I still think most writers are just kids who refuse to grow up. We’re still playing imaginary games, with our imaginary friends.
+ - It was the laughter of birthdays, of money found in an old pocket.
+ - It seemed to him a very Edinburgh thing. Welcoming, but not very.
+ - I’ve always written. At the age of six or seven, I would get sheets of A4 paper and fold them in half, cut the edges to make a little eight-page booklet, break it up into squares and put in little stick men with little speech bubbles, and I’d have a spy story, a space story and a football story.
+ - Right from the very beginning, I knew I wanted to write palpably Scottish fiction.
+ - His eyes beheld beauty not in reality but in the printed word. Standing in the waiting-room, he realized that in his life he had accepted secondary experience – the experience of reading someone else’s thoughts – over real life.
+ - I don’t have many friends. It’s not because I’m a misanthrope. It’s because I’m reserved. I’m self-contained. I get all my adventures in my head when I’m writing my books.
+ - I think writers have to be proactive: they’ve got to use new technology and social media. Yes, it’s hard to get noticed by traditional publishers, but there’s a great deal of opportunity out there if you’ve got the right story.
+ - My first novel was turned down by half a dozen publishers. And even after having published five or six books, I wasn’t making enough money to live on, and was beginning to think I’d have to give up the dream of being a full-time writer.
+ - A good album should be more than the sum of its parts.
+ - No matter how many awards you’ve won or how many sales you’ve got, come the next book it’s still a blank sheet of paper and you’re still panicking like hell that you’ve got nothing new to say.
+ - I don’t think I have one particular favourite writer. I have many whose works I will always buy or reread – Muriel Spark, Anthony Powell, Robert Louis Stevenson, Ruth Rendell, James Ellroy, William McIlvanney, Kate Atkinson, John Burnside, Louise Welsh, Iain Banks.
+
+22 quotes

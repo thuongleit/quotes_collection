@@ -1,0 +1,42 @@
+ - You cannot fail unless you quit. ~~Abraham Lincoln
+ - I never quit until I get what I want. ~~Thomas A. Edison
+ - Become one of the rare people who don’t know how to quit. ~~Robin S. Sharma
+ - Every time you quit, someone else gets your prize. Every time you make a mistake, you get closer to yours. ~~Robert T. Kiyosaki
+ - Failing is not the worst thing in the world; quitting is. ~~Edwin Louis Cole
+ - Don’t cry to quit. Cry to keep going! ~~Eric Thomas
+ - Winners are not those who never fail, but those who never quit. ~~Edwin Louis Cole
+ - You will win if you don’t quit. ~~Les Brown
+ - If you haven’t felt like quitting, your dreams aren’t big enough! ~~Kelly Osbourne
+ - It is always too soon to quit. ~~V. Raymond Edman
+ - Pain is temporary. Eventually it will subside. If I quit, however, the surrender stays with me. ~~Lance Armstrong
+ - I’ll quit competing when my heart quits beating. ~~Michael Jordan
+ - Life isn’t fair. It never will be. Quit trying to make it fair. You don’t need it to be fair. Go make life unfair to your advantages. ~~Robert T. Kiyosaki
+ - Never Quit, Never backdown. ~~John Cena
+ - Follow your dreams, quit your job. ~~Jared Leto
+ - I never tried quitting, and I never quit trying. ~~Dolly Parton
+ - Quit planning your dream and start living it. ~~Alan Cohen
+ - A professional writer is an amateur who didn’t quit. ~~Richard Bach
+ - Quit questioning God and start trusting Him! ~~Joel Osteen
+ - Practical dreamers do not quit. ~~Napoleon Hill
+ - If you are not where you want to be DO NOT QUIT, instead reinvent yourself and change your habits. ~~Eric Thomas
+ - You never know how close you are to a breakthrough. It may be right around the corner. Don’t quit! ~~Joyce Meyer
+ - Grit is the stubborn refusal to quit. ~~Jonah Lehrer
+ - We will all fail in life, but nobody has to be a failure. Failing at a thing doesn’t make you a failure. You are only a failure when you quit trying. ~~Joyce Meyer
+ - Quit or be exceptional. Average is for losers. ~~Seth Godin
+ - Quitting is the easiest thing to do. ~~Robert T. Kiyosaki
+ - Quit saying you don’t have time. You have time for what you make time for in life. ~~Bryant McGill
+ - Quit worrying about how everything is going to turn out. Live one day at a time; better yet, make the most of this moment. ~~Joel Osteen
+ - Losers quit when they fail. Winners fail until they succeed. ~~Robert T. Kiyosaki
+ - Never give up on anybody. ~~Hubert H. Humphrey
+ - The great thing about him, is that he will not quit. ~~Cristiano Ronaldo
+ - Failure isn’t final until you quit!! ~~Steven Furtick
+ - We don’t quit. I don’t quit. Let’s seize this moment. ~~Barack Obama
+ - We are not a failure just because we fail at something. Nobody is a failure unless they quit trying! ~~Joyce Meyer
+ - The decent method you follow is better than the perfect method you quit. ~~Tim Ferriss
+ - Quit playing, start praying. Quit feasting, start fasting. Talk less with men, talk more with God. Listen less to men, listen to the words of God. Skip travel, start travail. ~~Leonard Ravenhill
+ - That we should establish ourselves in a sense of GOD’s Presence, by continually conversing with Him. That it was a shameful thing to quit His conversation, to think of trifles and fooleries. ~~Brother Lawrence
+ - There is no quit in me. ~~Larry Holmes
+ - Success can come to a person who has failed, but it will never come to a person who quits. ~~David Jeremiah
+ - Quit living as if the purpose of life is to arrive safely at death. ~~Mark Batterson
+
+40 quotes

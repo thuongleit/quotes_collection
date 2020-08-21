@@ -1,0 +1,27 @@
+ - We leave something of ourselves behind when we leave a place, we stay there, even though we go away. And there are things in us that we can find again only by going back there.
+ - When dictatorship is a fact, revolution is a duty!
+ - We are all patchwork, and so shapeless and diverse in composition that each bit, each moment, plays its own game. And there is as much difference between us and ourselves as between us and others.
+ - Life is not what we live; it is what we imagine we are living.
+ - Then there was a silence he had never before experienced: in it, you could hear the years.
+ - To understand yourself: Is that a discovery or a creation?
+ - A feeling is no longer the same when it comes the second time. It dies through the awareness of its return. We become tired and weary of our feelings when they come too often and last too long.
+ - I love tunnels. They ’re the symbol of hope: sometime it will be bright again. If by chance it is not night.
+ - That words could cause something in the world, make someone move or stop, laugh or cry: even as a child he had found it extraordinary and it never stopped impressing him. How did words do that? Wasn’t it like magic?
+ - What is it that we call loneliness. It can’t simply be the absence of others, you can be alone and not lonely, and you can be among people and yet be lonely. So what is it?
+ - I am still there, at that distant place in time, I never left it, but live expanded in the past, or out of it.
+ - To live for the moment: it sounds so right and so beautiful. But the more I want to, the less I understand what it means.
+ - In the years afterward, I fled whenever somebody began to understand me. That has subsided. But one thing remained: I don’t want anybody to understand me completely. I want to go through life unknown. The blindness of others is my safety and my freedom.
+ - Given that we can live only a small part of what there is in us – what happens with the rest?
+ - Our lives are rivers, gliding free to that unfathomed, boundless sea, the silent grave!
+ - Sometimes, we are afraid of something because we’re afraid of something else.
+ - When we talk about ourselves, about others, or simply about things, we want- it could be said – to reveal ourselves in our words: We want to show what we think and feel. We let other have a glimpse into our soul.
+ - But when we set out to understand somebody’s inside? Is that a trip that ever ends? Is the soul a place of facts? Or are the alleged facts only the deceptive shadows of our stories?
+ - It is not the pain and the wounds that are the worst. The worst is the humiliation.
+ - There were people who read and there were the others. Whether you were the a reader or a non-reader was soon apparent. There was no greater distinction between people.
+ - Kitsch is the most pernicious of all prisons. The bars are covered with the gold of simplistic, unreal feelings, so that you take them for the pillars of a palace.
+ - What did i know of your fantasies? Why do we know so little about the fantasies of our parents? What do we know of somebody if we know nothing of the images passed to him by his imagination?
+ - We are stratified creatures, creatures full of abysses, with a soul of inconstant quicksilver, with a mind whose color and shape change as in a kaleidoscope that is constantly shaken.
+ - So, the fear of death might be described as the fear of not being able to become whom one had planned to be.
+ - Isn’t it true that it’s not people who meet, but rather the shadows cast by their imaginations?
+
+25 quotes

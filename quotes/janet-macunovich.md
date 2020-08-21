@@ -1,0 +1,28 @@
+ - Take my last best advice: Try everything twice!
+ - Wood’s not natural mulch for a woodland garden. Do you see forest trees shatter into a zillion pieces and fall? No. They fall, then decompose, then spread.
+ - You can put a gardener behind the wheel, but you can’t keep her eyes off the landscape.
+ - We think we learn by growing a plant but we can’t know if it’s just surviving or truly living? We really don’t know anything about a plant until we kill it.
+ - Happiness comes from growing what thrives, not merely survives.
+ - I don’t rely on muscle power to dig, I use a sharp spade and I wear boots.
+ - Don’t design your back yard from the outside looking in. Design from your window looking out.
+ - I have heard people say, “I garden in lieu of therapy, but therapy would be cheaper.” I believe gardening’s worth the price since it’s at least as effective in curing head and heart of what ails us.
+ - The best gardener is a baby killer. Baby insects are much easier to kill than adults, and haven’t yet developed the big mouths and voracious appetite of the adolescent.
+ - If a bush is too big, don’t ask “should I?” Go ahead and cut it. If it lives, great. If it dies, replace it with something better suited!
+ - If you cut a shrub back because it’s just too big, and it dies, you haven’t lost anything but a plant that couldn’t live by your rules.
+ - You don’t know the plant until you’ve killed it. Then you’ve learned something.
+ - Silly gardeners! We buy pretty, comfortable benches and position them oh so carefully. But does the gardener ever sit? No! We perch momentarily and then jump up to do that next thing we see.
+ - We blame Walt Disney for goldenrod’s undeserved bad name. Despite Sneezy’s pronouncement, plants such as goldenrod with heavy, insect-carried pollen rarely cause allergic reaction.
+ - Gardeners do first, read later. Why not? Plants are very gracious in accepting an apology.
+ - A colorful handle on a tool does nothing for me. Once it drops into that jungle out there, unless it’s absolutely huge, it’s gone until fall.
+ - Gardeners in regions with very long summer days have a great opportunity, and should use more of the cool colors that literally glow in the low light of morning and evening.
+ - The very best garden is a new one, on virgin ground. Plants leap out of that spot.
+ - When many plants are out of the picture in winter, it becomes clear that many of them should be pitched out. It’s also much easier to do that before they come up and begin to talk to us.
+ - Low care is what we do while on our knees. Smart care is what makes the growing easier.
+ - Gardeners often focus exclusively on plants, missing the absolutely essential visual role played by structures, from paths to pavilions.
+ - There are far too many self esteem problems in the world as it is. No sense taking on plant guilt, too.
+ - If someone says “You’re not doing that right,” hand him the shovel, sit and watch. That’s the right way to garden.
+ - History is everything in gardening: With a site, weather, a particular plant. It solves mysteries. And it’s why, when others say, “You can’t do that!” you can know with deepest certainty that you can.
+ - Be pleased with your real garden, don’t persue the perfection of a picture. What you see in a photo lasted only as long as the shutter snap.
+ - There’s no “right way” to garden, only what suits each person and place.
+
+26 quotes

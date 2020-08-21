@@ -1,0 +1,25 @@
+ - Work at your craft, write daily, and follow your dreams because dreams do come true.
+ - Just like when there’s a time that a smart person knows enough is enough, there’s a time when you know you’ve got to fight.
+ - Things aren’t ever what they seem to be when you first look at them. What’s important is that you keep your mind wide open and try to understand what’s going on from a lot of different angles.
+ - Write for the love of writing and you can’t go wrong.
+ - I often tell young people that as a writer you are very powerful, that you can make absolutely anything happen.
+ - There comes a time when you’re losing a fight that it just doesn’t make sense to keep on fighting. It’s not that you’re being a quitter, it’s just that you’ve got the sense to know when enough is enough.
+ - The big steel wheels creaked a couple times, then started moving.
+ - Writing has always been a sanctuary or a refuge for me, any time I’m stressed or anxious or worried I find that a couple of hours expressing myself by writing always seems to have a calming effect on me.
+ - A bud is a flower-to-be. A flower in waiting. Waiting for just the right warmth and care to open up. It’s a little fist of love waiting to unfold and be seen by the world. And that’s you.
+ - There’s a thin, blurry line between humor and tragedy.
+ - I’m sure there’s some philosophy that says one of the best ways to deal with any of your problems is to take a deep breath and step away from them for a while, writing does this for me.
+ - No sir, I don’t know why, but my eyes don’t cry no more.
+ - I’m the same age as my tongue and a little bit older than my teeth.
+ - Wow. Who would want a fish for a pet when they could have a turtle?!
+ - Having a little pee in your pants had to be better than being dinner for some redneck.
+ - Rules and Things Number 63: Never, Ever Say Something Bad About Someone You Don’t Know – Especially When You’re Around a Bunch of Strangers. You Never Can Tell Who Might Be Kin to That Person or Who Might Be a Lip-Flapping, Big-Mouth Spy.
+ - As the writer you are the puppet-master and can control everything. Believe me, that is a whole lot of fun because it ain’t something that’s going to be happening very often in real life!
+ - But don’t ever call her ex-boyfriends by his name.
+ - Byron says he won’t go there. He give Kenny and Joey a story about “Wool Pooh,” the supposed evil twin of Winnie-the-Pooh. They believe him, but Kenny still wants to go.
+ - But you just gotta understand that that’s the way it is and keep on steppin’.
+ - I write because I love to. I’m very, very fortunate to have found something that I love doing that also earns my living. But to be honest, I’d write even if I weren’t being paid to.
+ - I do think it is important to look at the writing as a job though and to commit to it like you’d have to commit to a regular nine-to-five.
+ - Besides the soothing effect it has, I think my favorite part of writing is being able to use my imagination and creativity to make new ideas and people and situations come to life.
+
+23 quotes

@@ -1,0 +1,180 @@
+ - A mind that is stretched by a new experience can never go back to its old dimensions.
+ - Taxes are the price we pay for a civilized society.
+ - Men do not quit playing because they grow old; they grow old because they quit playing.
+ - Every calling is great when greatly pursued.
+ - The life of the law has not been logic; it has been experience.
+ - I find the great thing in this world is not so much where we stand, as in what direction we are moving: To reach the port of heaven, we must sail sometimes with the wind and sometimes against it, but we must sail, and not drift, nor lie at anchor.
+ - Many ideas grow better when transplanted into another mind than in the one where they sprung up.
+ - The law is the witness and external deposit of our moral life. Its history is the history of the moral development of the race.
+ - This is a court of law, not a court of justice.
+ - Three generations of imbeciles are enough.
+ - My right to swing my fist ends where your nose begins.
+ - I like to pay taxes. With them, I buy civilization.
+ - Life is painting a picture, not doing a sum.
+ - Detached reflection cannot be demanded in the presence of an uplifted knife.
+ - If you can eat sawdust without butter, you can be a success in the law.
+ - The man of action has the present, but the thinker controls the future.
+ - Lord, bid war’s trumpet cease; Fold the whole earth in peace.
+ - Through our great good fortune, in our youth our hearts were touched with fire. It was given to us to learn at the outset that life is a profound and passionate thing.
+ - A word is not a crystal, transparent and unchanged; it is the skin of a living thought and may vary greatly in color and content according to the circumstances and time in which it is used.
+ - Carve every word before you let it fall.
+ - Men, like peaches and pears, grow sweet a little while before they begin to decay.
+ - War? War is an organized bore.
+ - No generalization is wholly true – not even this one.
+ - And silence, like a poultice, comes To heal the blows of sound.
+ - There is no time like the old time, when you and I were young!
+ - Between two groups of people who want to make inconsistent kinds of worlds, I see no remedy but force.
+ - Longevity is having a chronic disease – and taking care of it.
+ - It seems to me that at this time we need education in the obvious more than investigation of the obscure.
+ - Sin has many tools, but a lie is the handle that fits them all.
+ - Every man is an omnibus in which his ancestors ride.
+ - Lawyers spend a great deal of their time shoveling smoke.
+ - Systems die; instincts remain.
+ - Men must turn square corners when they deal with the Government.
+ - Life is an end in itself, and the only question as to whether it is worth living is whether you have had enough of it.
+ - A river is more than an amenity, it is a treasure.
+ - The noblest service comes from nameless hands; and the best servant does his work unseen.
+ - The world is always ready to receive talent with open arms. Very often it does not know what to do with genius.
+ - The mark of a civilized man is his willingness to re-examine his most cherished beliefs.
+ - Young man, the secret of my success is that an early age I discovered that I was not God.
+ - Young men know the rules, but old men know the exceptions.
+ - The history of what the law has been is necessary to the knowledge of what the law is.
+ - The root of joy, as of duty, is to put all one’s powers towards some great end.
+ - Leisure only means a chance to do other jobs that demand attention.
+ - Nothing can be so perfect while we possess it as it will seem when remembered.
+ - To know is not less than to feel.
+ - Pretty much all the honest truth-telling there is in the world is done by children.
+ - General propositions do not decide concrete cases. The decision will depend on a judgment or intuition more subtle than any articulate major premise.
+ - Success. Is not the position where you are standing, but which direction you are going.
+ - Fame is the scentless sunflower, with gaudy crown of gold; But friendship is the rose, with sweets in every fold.
+ - Whatever disagreement there may be as to the scope of the phrase “due process of law” there can be no doubt that it embraces the fundamental conception of a fair trial, with opportunity to be heard.
+ - History has to be rewritten because history is the selection of those threads of causes or antecedents that we are interested in.
+ - Imitation is a necessity of human nature.
+ - Where we stand is not as important as the direction in which we are moving.
+ - If I were dying, my last words would be: Have faith and pursue the unknown end.
+ - Even a dog distinguishes between being stumbled over and being kicked.
+ - The foliage has been losing its freshness through the month of August, and here and there a yellow leaf shows itself like the first gray hair amidst the locks of a beauty who has seen one season too many.
+ - But I have long thought that if you knew a column of advertisements by heart, you could achieve unexpected felicities with them. You can get a happy quotation anywhere if you have the eye.
+ - The common law is not a brooding omnipresence in the sky, but the articulate voice of some sovereign or quasi sovereign that can be identified; although some decisions with which I have disagreed seem to me to have forgotten the fact.
+ - There is a little plant called reverence in the corner of my soul’s garden, which I love to have watered once a week.
+ - To be master of any branch of knowledge, you must master those which lie next to it, and thus to know anything you must know all.
+ - If wine tells truth – and so have said the wise, It makes me laugh to think how brandy lies!
+ - There is in all men a demand for the superlative, so much so that the poor devil that has no other way of reaching it attains it by getting drunk.
+ - Fate tried to conceal him by naming him Smith.
+ - Even the wisest woman you talk to is ignorant of something you may know, but an elegant woman never forgets her elegance.
+ - A good soldier, like a good horse, cannot be of a bad color.
+ - Most people have died before they expire; died to all earthly longings, so that the last breath is only, as it were, the locking of the door of the already deserted mansion.
+ - But the word “right” is one of the most deceptive of pitfalls; it is so easy to slip from a qualified meaning in the premise to an unqualified one in the conclusion. Most rights are qualified.
+ - The joy of life is to put out one’s power in some natural and useful or harmless way. There is no other. And the real misery is not to do this.
+ - The difference between gossip and philosophy lies only in one’s way of taking a fact.
+ - Anytime you see a Hungarian, kick him. He’ll know why. Any two philosophers can tell each other all they know in two hours.
+ - Society is always trying in some way to grind us down to a single flat surface.
+ - There are three natural anaesthetics: Sleep, fainting, and death.
+ - Eloquence may set fire to reason.
+ - We should be eternally vigilant against attempts to check the expression of opinions that we loathe.
+ - Poverty comes pleading not for charity, for the most part, but imploring us to find a purchaser for its unmarketable wares.
+ - To an imagination of any scope the most far reaching form of power is not money, it is the command of ideas.
+ - The advice of the elders to young men is very apt to be as unreal as a list of the hundred best books.
+ - Life is a fatal complaint, and an eminently contagious one.
+ - Our morality seems to be only a check on the ultimate domination of force, just as our politeness is a check on the impulse of every pig to put his feet in the trough.
+ - The axis of the earth sticks out visibly through the center of each and every town or city.
+ - Apologizing – a very desperate habit – one that is rarely cured. Apology is only egotism wrong side out.
+ - To think great thoughts you must be heroes as well as idealists.
+ - The individual will always be a minority. If a man is in a minority of one, we lock him up.
+ - To have doubted one’s own first principles is the mark of a civilized man.
+ - Every real thought on every real subject knocks the wind out of somebody or other.
+ - The wind blows out, the bubble dies; The spring entomb’d in autumn lies; The dew dries up; the star is shot; The flight is past, and man forgot.
+ - There are many things which we can afford to forget which it is yet well to learn.
+ - Men are tattooed with their special beliefs like so many South Sea Islanders; but a real human heart with divine love in it beats with the same glow under all the patterns of all earth’s thousand tribes.
+ - Reason may be the lever, but sentiment gives you the fulcrum and the place to stand on if you want to move the world.
+ - A great man represents a great ganglion in the nerves of society, or to vary the figure, a strategic point in the campaign of history, and part of his greatness consists in his being there.
+ - We are all tattooed in our cradles with the beliefs of our tribe; the record may seem superficial, but it is indelible.
+ - It is mere childishness to expect men to believe as their fathers did; that is, if they have any minds of their own. The world is a whole generation older and wiser than when the father was of his son’s age.
+ - The nearer you come into relation with a person, the more necessary do tact and courtesy become.
+ - Any tax is a discouragement and therefore a regulation so far as it goes.
+ - Most of us retain enough of the theological attitude to think that we are little gods.
+ - The greatest act of faith is when a man understands he is not God.
+ - If there is any principle of the Constitution that more imperatively calls for attachment than any other it is the principle of free thought, not free thought for those who agree with us but freedom for the thought that we hate.
+ - If you don’t know what you want, you will probably never get it.
+ - To be forgotten is to sleep in peace with the undisturbed myriads, no longer subject to the chills and heats, the blasts, the sleet, the dust, which assail in endless succession that shadow of a man which we call his reputation.
+ - But the moment you turn a corner you see another straight stretch ahead and there comes some further challenge to your ambition.
+ - The character of every act depends upon the circumstances in which it is done.
+ - I have no respect for the passion of equality, which seems to me merely idealizing envy – I don’t disparage envy, but I don’t accept it as legitimately my master.
+ - Blood is a destiny. One’s genius descends in the stream from long lines of ancestry.
+ - Any new formula which suddenly emerges in our consciousness has its roots in long trains of thought; it is virtually old when it first makes its appearance among the recognized growths of our intellect.
+ - One of the eternal conflicts out of which life is made up is that between the effort of every man to get the most he can for his services, and that of society, disguised under the name of capital, to get his services for the least possible return.
+ - Who does not feel that Nansen’s account of his search for the Pole rather loses than gains in ideal satisfaction by the pretense of a few trifling acquisitions for science?
+ - There is nothing like the dead cold hand of the past to take down our tumid egotism and lead us into the solemn flow of the life of our race.
+ - Man has will, but woman has her way.
+ - What I wouldn’t give to be seventy again!
+ - There is nothing earthly that lasts so well, as money. A man’s learning dies with him, as does his virtues fade out of remembrance, but the dividends on the stocks he bequeaths to his children live and keep his memory green.
+ - It takes me several days, after I get back to Boston, to realize that the reference “the president” refers to the president of Harvard and not to a minor official in Washington.
+ - To us who remain behind is left this day of memories. Every year – in the full tide of spring, at the height of the symphony of flowers and love and life – there comes a pause, and through the silence we hear the lonely pipe of death.
+ - Science is the topography of ignorance. From a few elevated points we triangulate vast spaces, inclosing infinite unknown details. We cast the lead, and draw up a little sand from abysses we may never reach with our dredges.
+ - I have always sought to guide the future-but it is very lonely sometimes trying to play God.
+ - I dare say that I have worked off my fundamental formula on you that the chief end of man is to frame general propositions and that no general proposition is worth a damn.
+ - In my opinion, economists and sociologists are the people to whom we ought to turn more than we do for instruction in the grounds and foundations of all rational decisions.
+ - Old age is like an opium dream. Nothing seems real except the unreal.
+ - Our test of truth is a reference to either a present or imagined future majority in favour of our view.
+ - The only condition of peace in this world is to have no ideas, or, at least not to express them.
+ - The preacher’s garment is cut according to the pattern of that of the hearers, for the most part.
+ - I should like to see any kind of man, distinguishable from a gorilla, that some good and even pretty woman could not shape a husband out of.
+ - Life, not the parson, teaches conduct.
+ - There is something frightful in the way in which not only characteristic qualities, but particular manifestations of them, are repeated from generation to generation.
+ - The worst of a modern stylish mansion is that it has no place for ghosts.
+ - In order to know whether a human being is young or old, offer it food of different kinds at short intervals. If young, it will eat anything at any hour of the day or night.
+ - Certainty generally is illusion, and repose is not the destiny of man.
+ - Deep-seated preferences cannot be argued about-you cannot argue a man into liking a glass of beer.
+ - Under bad manners, as under graver faults, lies very commonly an overestimate of our special individuality, as distinguished from our generic humanity.
+ - The best of a book is not the thought which it contains, but the thought which it suggests; just as the charm of music dwells not in the tones but in the echoes of our hearts.
+ - It is perfectly easy to be original by violating the laws of decency and the canons of good taste.
+ - We must think things not words, or at least we must constantly translate our words into the facts for which they stand, if we are to keep to the real and the true.
+ - Old age is fifteen years older than I am.
+ - Pretty much all law consists in forbidding men to do something that they want to do.
+ - I know of no teachers so powerful and persuasive as the little army of specialists. They carry no banners, they beat no drums; but where they are men learn that bustle and push are not the equals of quiet genius and serene mastery.
+ - Men are idolaters, and want something to look at and kiss and hug, or throw themselves down before; they always did, they always will; and if you don’t make it of wood, you must make it of words.
+ - Young feller, you will never appreciate the potentialities of the English language until you have heard a Southern mule driver search the soul of a mule.
+ - Knowledge and timber shouldn’t be much used till they are seasoned.
+ - Knowledge-it excites prejudices to call it science-is advancing as irresistibly, as majestically, as remorselessly as the ocean moves in upon the shore.
+ - Certitude is not the test of certainty.
+ - The great end of being is to harmonize man with the order of things, and the church has been a good pitch-pipe, and may be so still.
+ - Fame usually comes to those who are thinking about something else.
+ - We expect more of ourselves than we have any right to.
+ - Free competition is worth more to society than it costs.
+ - Be willing to commit yourself to a course, perhaps a long and hard one, without being able to foresee exactly where you will come out.
+ - Research and writing are lonely occupations. It is easy to become discouraged in solitary confinement.
+ - To rest upon a formula is a slumber that, prolonged, means death.
+ - The thing I want to do is put as many new ideas into the law as I can, to show how particular solutions involve general theory, and to do it with style. I should like to be admitted to be the greatest jurist in the world.
+ - While we’ve youth in our hearts, we can never grow old.
+ - I think it not improbable that man, like the grub that prepares a chamber for the winged thing it never has seen but is to be – that man may have cosmic destinies that he does not understand.
+ - The riders in a race do not stop when they reach the goal. There is a little finishing canter before coming to a standstill. There is time to hear the kind voices of friends and say to oneself, The work is done.
+ - Liberty is often a heavy burden on a man. It involves the necessity for perpetual choice which is the kind of labor men have always dreaded.
+ - People talk fundamentals and superlatives and then make some changes of detail.
+ - What a new face courage puts on everything. – Ralph Waldo Emerson To be seventy years young is sometimes far more cheerful and hopeful than to be forty years old.
+ - On the whole, I am on the side of the unregenerate who affirms the worth of life as an end in itself, as against the saints who deny it.
+ - The mode by which the inevitable comes to pass is effort.
+ - For my part I think it is a less evil that some criminals should escape, than that the government should play an ignoble part.
+ - It is very grand to die in harness, but it is very pleasant to have the tight straps unbuckled and the heavy collar lifted from the neck and shoulders.
+ - If I had a formula for bypassing trouble, I would not pass it around. Trouble creates a capacity to handle it.
+ - Modesty and reverence are no less virtues of freemen than the democratic feeling which will submit neither to arrogance nor to servility.
+ - To be civilized is to be potentially master of all possible ideas, and that means that one has got beyond being shocked, although one preserves one’s own moral aesthetic preferences.
+ - A man’s opinions are generally of much more value than his arguments.
+ - There is one gratification an old author can afford a certain class of critics; that namely, of comparing him as he is with what he was. It is a pleasure to mediocrity to have its superiors brought within range.
+ - You make me chuckle when you say that you are no longer young, that you have turned twenty-four. A man is or may be young to after sixty, and not old before eighty.
+ - Beware of making your moral staple consist of the negative virtues.
+ - We have been cocksure of many things that were not so.
+ - Even for practical purposes theory generally turns out the most important thing in the end.
+ - A person of genius should marry a person of character.
+ - Most of the things we do, we do for no better reason than that our fathers have done them or our neighbors do them, and the same is true of a larger part than what we suspect of what we think.
+ - A new and valid idea is worth more than a regiment and fewer men can furnish the former than command the latter.
+ - The world has its fling at lawyers sometimes, but its very denial is an admission. It feels, what I believe to be the truth, that of all secular professions this has the highest standards.
+ - There was never an idea started that woke up men out of their stupid indifference but its originator was spoken of as a crank.
+ - It’s a good thing to be rich and a good thing to be strong, but it is a better thing to be beloved of many friends.
+ - The ideas of the classics, so far as living, are our commonplaces. It is the modern books that give us the latest and most profound conceptions. It seems to me rather a lazy makeshift to mumble over the familiar.
+ - The minute a phrase, becomes current, it becomes an apology for not thinking accurately to the end of the sentence.
+ - The very minute a thought is threatened with publicity it seems to shrink towards mediocrity.
+ - The only prize much cared for by the powerful is power.
+ - I despise making the most of one’s time. Half of the pleasures of life consist of the opportunities one has neglected.
+ - The most stringent protection of free speech would not protect a man in falsely shouting fire in a theater and causing a panic.
+
+178 quotes

@@ -1,0 +1,437 @@
+ - Not all who wander are lost.
+ - All we have to decide is what to do with the time that is given us.
+ - All that is gold does not glitter, Not all those who wander are lost; The old that is strong does not wither, Deep roots are not reached by the frost.
+ - There is some good in this world, and it’s worth fighting for.
+ - Courage is found in unlikely places.
+ - The world is not in your books and maps, it’s out there.
+ - Some believe it is only great power that can hold evil in check, but that is not what I have found. It is the small everyday deeds of ordinary folk that keep the darkness at bay. Small acts of kindness and love.
+ - Who cannot understand your silence, cannot understand your words.
+ - No victory without suffering.
+ - The greatest adventure is what lies ahead.
+ - Even the smallest person can change the course of the future.
+ - If more of us valued food and cheer and song above hoarded gold, it would be a merrier world.
+ - From the ashes a fire shall be woken, A light from the shadows shall spring; Renewed shall be blade that was broken, The crownless again shall be king.
+ - Above all shadows rides the sun.
+ - May it be a light to you in dark places, when all other lights go out.
+ - Do you wish me a good morning, or mean that it is a good morning whether I want it or not; or that you feel good this morning; or that it is a morning to be good on?
+ - The Road goes ever on and on Down from the door where it began. Now far ahead the Road has gone, And I must follow, if I can, Pursuing it with eager feet, Until it joins some larger way Where many paths and errands meet. And whither then? I cannot say.
+ - It’s a dangerous business, Frodo, going out your door. You step onto the road, and if you don’t keep your feet, there’s no knowing where you might be swept off to.
+ - If you do not believe in a personal God, the question: ‘What is the purpose of life?’ is unaskable and unanswerable.
+ - Many that live deserve death. And some that die deserve life.
+ - It is no bad thing celebrating a simple life.
+ - May the wind under your wings bear you where the sun sails and the moon walks.
+ - End? No, the journey doesn’t end here. Death is just another path. One that we all must take.
+ - It is not the strength of the body that counts, but the strength of the spirit.
+ - Home is now behind you, the world is ahead!
+ - One Ring to rule them all, One Ring to find them, One Ring to bring them all and in the darkness bind them.
+ - Deeds will not be less valiant because they are unpraised.
+ - For even the very wise cannot see all ends.
+ - True education is a kind of never ending story – a matter of continual beginnings, of habitual fresh starts, of persistent newness.
+ - Never laugh at live dragons.
+ - Look, up at the sky. There is a light, a beauty up there, that no shadow can touch.
+ - I will not walk backward in life.
+ - War must be, while we defend our lives against a destroyer who would devour all; but I do not love the bright sword for its sharpness, nor the arrow for its swiftness, nor the warrior for his glory. I love only that which they defend.
+ - The burned hand teaches best.
+ - The world has changed. I see it in the water. I feel it in the Earth. I smell it in the air. Much that once was is lost, For none now live who remember it.
+ - Home is behind, the world ahead, And there are many paths to tread Through shadows to the edge of night, Until the stars are all alight. Then world behind and home ahead, We’ll wander back and home to bed. Mist and twilight, cloud and shade, Away shall fade! Away shall fade!
+ - What punishments of God are not gifts?
+ - The stars are far brighter Than gems without measure, The moon is far whiter Than silver in treasure; The fire is more shining On hearth in the gloaming Than gold won by mining, So why go a-roaming? O! Tra-la-la-lally Come back to the Valley.
+ - Great heart will not be denied.
+ - I’m looking for someone to share in an adventure.
+ - I do not believe this darkness will endure.
+ - The world is indeed full of peril, and in it there are many dark places; but still there is much that is fair, and though in all lands love is now mingled with grief, it grows perhaps the greater.
+ - Still round the corner there may wait, A new road or a secret gate.
+ - Speak politely to an enraged dragon.
+ - Let this be the hour when we draw swords together. Fell deeds awake. Now for wrath, now for ruin, and the red dawn. Forth, Eorlingas!
+ - Oft hope is born when all is forlorn.
+ - No half-heartedness and no worldly fear must turn us aside from following the light unflinchingly.
+ - There is a place called ‘heaven’ where the good here unfinished is completed; and where the stories unwritten, and the hopes unfulfilled, are continued. We may laugh together yet.
+ - All that is gold does not glitter.
+ - In a hole in the ground there lived a hobbit.
+ - There is nothing like looking, if you want to find something. You certainly usually find something, if you look, but it is not always quite the something you were after.
+ - And then her heart changed, or at least she understood it; and the winter passed, and the sun shone upon her.
+ - Though here at journey’s end I lie In darkness buried deep, Beyond all towers strong and high, Beyond all mountains steep, Above all shadows rides the Sun And Stars for ever dwell: I will not say the Day is done, Nor bid the Stars farewell.
+ - It’s the job that’s never started as takes longest to finish.
+ - A man that flies from his fear may find that he has only taken a short cut to meet it.
+ - So comes snow after fire, and even dragons have their endings.
+ - I will not say, do not weep, for not all tears are an evil.
+ - You aren’t nearly through this adventure yet.
+ - I feel thin, sort of stretched, like butter scraped over too much bread.
+ - For you do not yet know the strengths of your hearts, and you cannot foresee what each may meet on the road.
+ - Then something Tookish woke up inside him, and he wished to go and see the great mountains, and hear the pine-trees and the waterfalls, and explore the caves, and wear a sword instead of a walking-stick.
+ - Still round the corner there may wait A new road or a secret gate And though I oft have passed them by A day will come at last when I Shall take the hidden paths that run West of the Moon, East of the Sun.
+ - He found himself wondering at times, especially in the autumn, about the wild lands, and strange visions of mountains that he had never seen came into his dreams.
+ - What does your heart tell you?
+ - Courage will now be your best defence against the storm that is at hand- – that and such hope as I bring.
+ - I don’t know half of you half as well as I should like; and I like less than half of you half as well as you deserve.
+ - And some things that should not have been forgotten were lost. History became legend. Legend became myth. And for two and a half thousand years, the ring? passed out of all knowledge.
+ - For we put the thought of all that we love into all that we make.
+ - In a hole in the ground there lived a hobbit. Not a nasty, dirty, wet hole, filled with the ends of worms and an oozy smell, nor yet a dry, bare, sandy hole with nothing in it to sit down on or to eat: it was a hobbit-hole, and that means comfort.
+ - His grief he will not forget; but it will not darken his heart, it will teach him wisdom.
+ - The Resurrection is the eucatastrophe of the story of the Incarnation – This story begins and ends in joy.
+ - It needs but one foe to breed a war, and those who have not swords can still die upon them.
+ - The road goes ever on and on.
+ - A story must be told or there’ll be no story, yet it is the untold stories that are most moving.
+ - Tell me, who are you, alone, yourself and nameless?
+ - I wisely started with a map.
+ - It cannot be seen, cannot be felt, Cannot be heard, cannot be smelt, It lies behind stars and under hills, And empty holes it fills, It comes first and follows after, Ends life, kills laughter.
+ - Short cuts make long delays.
+ - I don’t want to be in a battle. But waiting on the edge of one I can’t escape is even worse.
+ - Farewell, and may the blessing of Elves and Men and all Free Folk go with you. May the stars shine upon your faces!
+ - Aiya Earendil Elenion Ancalima!
+ - But I have been too deeply hurt, Sam. I tried to save the Shire, and it has been saved, but not for me. It must often be so, Sam, when things are in danger: some one has to give them up, lose them, so that others may keep them.
+ - My dear Frodo!’ exclaimed Gandalf. ‘Hobbits really are amazing creatures, as I have said before. You can learn all that there is to know about their ways in a month, and yet after a hundred years they can still surprise you at a pinch.
+ - The Lord of the Rings is of course a fundamentally religious and Catholic work; unconsciously so at first, but consciously in the revision.
+ - Where there are so many, all speech becomes a debate without end. But two together may perhaps find wisdom.
+ - It is not despair, for despair is only for those who see the end beyond all doubt. We do not.
+ - All’s well that ends better.
+ - Deep roots are not reached by the frost.
+ - If you sit on the doorstep long enough, I daresay you will think of something.
+ - Advice is a dangerous gift, even from the wise to the wise, and all courses may run ill.
+ - Together we will take the road that leads into the West, And far away will find a land where both our hearts may rest.
+ - There are no safe paths in this part of the world. Remember you are over the Edge of the Wild now, and in for all sorts of fun wherever you go.
+ - Valour needs first strength, then a weapon.
+ - I have an unsatisfied desire to shoot well with a bow.
+ - If this is victory, then our hands are too small to hold it.
+ - I threw down my enemy, and he fell from the high place and broke the mountain-side where he smote it in his ruin.
+ - It is mine, I tell you. My own. My precious. Yes, my precious.
+ - Third time pays for all.
+ - But who knows what she spoke to the darkness, alone, in the bitter watches of the night, when all her life seemed shrinking, and the walls of her bower closing in about her, a hutch to trammel some wild thing in?
+ - And she looked at him and saw the grave tenderness in his eyes, and yet knew, for she was bred among men of war, that here was one whom no Rider of the Mark could outmatch in battle.
+ - Faithless is he that says farewell when the road darkens.
+ - A pen is to me as a beak is to a hen.
+ - If by my life or death I can protect you, I will.
+ - Handsome is as handsome does.
+ - It does not do to leave a live dragon out of your calculations, if you live near him.
+ - Moonlight drowns out all but the brightest stars.
+ - Gandalf! I thought you were dead! But then I thought I was dead myself. Is everything sad going to come untrue? What’s happened to the world?
+ - Where there’s life there’s hope, and need of vittles.
+ - Not idly do the leaves of Lorien fall.
+ - Aure entuluva! day shall come again!
+ - It was at this point that Bilbo stopped. Going on from there was the bravest thing he ever did. The tremendous things that happened afterward were as nothing compared to it. He fought the real battle in the tunnel alone, before he ever saw the vast danger that lay in wait.
+ - Don’t go where I can’t follow!
+ - There is nothing like looking, if you want to find something.
+ - To whatever end. Where is the horse and the rider? Where is the horn that was blowing? They have passed like rain on the mountains. Like wind in the meadow. The days have gone down in the west. Behind the hills, into shadow. How did it come to this?
+ - Stand by the grey stone when the thrush knocks, and the setting sun with the last light of Durin’s Day will shine upon the key-hole.
+ - True courage is about knowing not when to take a life, but when to spare one.
+ - I want to be a healer, and love all things that grow and are not barren.
+ - It is not our part to master all the tides of the world, but to do what is in us for the succour of those years wherein we are set, uprooting the evil in the fields that we know, so that those who live after may have clean earth to till. What weather they shall have is not ours to rule.
+ - So fair, so cold; like a morning of pale spring still clinging to winter’s chill.
+ - Such is of the course of deeds that move the wheels of the world: small hands do them because they must, while the eyes of the great are elsewhere.
+ - Do not meddle in the affairs of Wizards, for they are subtle and quick to anger.
+ - The way is shut. Then they halted and looked at him and saw that he lived still; but he did not look at them. The way is shut, his voice said again. It was made by those who are Dead, and the Dead keep it, until the time comes. The way is shut.
+ - Where did you go to, if I may ask?? said Thorin to Gandalf as they rode along. To look ahead,? said he. And what brought you back in the nick of time?? Looking behind,? said he.
+ - I sit beside the fire and think of all that I have seen, of meadow-flowers and butterflies in summers that have been; Of yellow leaves and gossamer in autumns that there were, with morning mist and silver sun and wind upon my hair.
+ - The Nazgul they were; the Ringwraiths, the Enemy’s most terribly servants; darkness went with them and they cried with the voices of death.
+ - The wise speak only of what they know.
+ - In sorrow we must go, but not in despair. Behold! we are not bound for ever to the circles of the world, and beyond them is more than memory.
+ - The wide world is all about you: you can fence yourselves in, but you cannot for ever fence it out.
+ - The praise of the praiseworthy is above all rewards.
+ - Fantasy is escapist, and that is its glory. If a soldier is imprisoned by the enemy, don’t we consider it his duty to escape?
+ - All have their worth and each contributes to the worth of the others.
+ - The greater part of the truth is always hidden, in regions out of the reach of cynicism.
+ - He was as noble and fair in face as an elf-lord, as strong as a warrior, as wise as a wizard, as venerable as a king of dwarves, and as kind as summer.
+ - Frodo: Go back, Sam! I’m going to Mordor alone. Sam: Of course you are, and I’m coming with you!
+ - If you’re going to have a complicated story you must work to a map; otherwise you’ll never make a map of it afterwards.
+ - For I am the daughter of Elrond. I shall not go with him when he departs to the Havens: for mine is the choice of Luthien, and as she so have I chosen, both the sweet and the bitter.
+ - The one small garden of a free gardener was all his need and due, not a garden swollen to a realm; his own hands to use, not the hands of others to command.
+ - Few can foresee whither their road will lead them, till they come to its end.
+ - I am old, Gandalf. I don’t look it, but I am beginning to feel it in my heart of hearts. Well-preserved indeed! Why, I feel all thin, sort of stretched, if you know what I mean: like butter that has been scraped over too much bread. That can’t be right. I need a change, or something.
+ - Tomorrow we may come this way, And take the hidden paths that run Towards the Moon or to the Sun.
+ - For nothing is evil in the beginning.
+ - He drew a deep breath. ‘Well, I’m back,’ he said.
+ - I sit beside the fire and think of people long ago, and of people who will see a world that I shall never know.
+ - Out of doubt, out of dark to the day’s rising I came singing into the sun, sword unsheathing. To hope’s end I rode and to heart’s breaking: Now for wrath, now for ruin and a red nightfall!
+ - A box without hinges, key, or lid, yet golden treasure inside is hid.
+ - Farewell! wherever you fare, till your eyries receive you at the journey’s end!
+ - May the hair on your toes never fall out!
+ - The world is full enough of hurts and mischances without wars to multiply them.
+ - Indeed in nothing is the power of the Dark Lord more clearly shown than in the estrangement that divides all those who still oppose him.
+ - Seek for the Sword that was broken In Imladris it dwells; There shall be counsels taken Stronger than Morgul-spells. There shall be shown a token That Doom is near at hand, For Isuldur’s Bane shall waken, And the halfling forth shall stand.
+ - A new day will come and when the sun shines it will shine out the clearer.
+ - The chief purpose of life, for any of us, is to increase according to our capacity our knowledge of God by all means we have, and to be moved by it to praise and thanks.
+ - And thou, Melkor, shalt see that no theme may be played that hath not its uttermost source in me, nor can any alter the music in my despite. For he that attempteth this shall prove but mine instrument in the devising of things more wonderful, which he himself hath not imagined.
+ - Now it is a strange thing, but things that are good to have and days that are good to spend are soon told about, and not much to listen to; while things that are uncomfortable, palpitating, and even gruesome, may make a good tale, and take a deal of telling anyway.
+ - Things will go as they will, and there is no need to hurry to meet them.
+ - Far over misty mountains cold To dungeons deep and caverns old We must away, ere break of day, To find our long-forgotten gold.
+ - I am in fact, a hobbit in all but size.
+ - We all long for Eden, and we are constantly glimpsing it: our whole nature at its best and least corrupted, its gentlest and most human, is still soaked with the sense of exile.
+ - The treacherous are ever distrustful.
+ - Why must you speak your thoughts? Silence, if fair words stick in your throat, would serve all our ends better.
+ - Memory is not what the heart desires.
+ - Mind your P’s and Q’s.
+ - He that breaks a thing to find out what it is has left the path of wisdom.
+ - Where will wants not, a way opens.
+ - The enemy? His sense of duty was no less than yours, I deem. You wonder what his name is, where he came from. And if he was really evil at heart. What lies or threats led him on this long march from home. If he would not rather have stayed there in peace. War will make corpses of us all.
+ - You must understand, young Hobbit, it takes a long time to say anything in Old Entish. And we never say anything unless it is worth taking a long time to say.
+ - There are older and fouler things than Orcs in the deep places of the world.
+ - Don’t leave me here alone! It’s your Sam calling. Don’t go where I can’t follow! Wake up, Mr. Frodo!
+ - He told them tales of bees and flowers, the ways of trees, and the strange creatures of the Forest, about the evil things and the good things, things friendly and things unfriendly, cruel things and kind things, and secrets hidden under brambles.
+ - Sorry! I don’t want any adventures, thank you. Not Today. Good morning! But please come to tea -any time you like! Why not tomorrow? Good bye!
+ - We meet again, at the turn of the tide. A great storm is coming, but the tide has turned.
+ - Instead of a Dark Lord, you would have a queen, not dark but beautiful and terrible as the dawn! Tempestuous as the sea, and stronger than the foundations of the earth! All shall love me and despair!
+ - A safe fairyland is untrue to all worlds.
+ - All my own perception of beauty both in majesty and simplicity is founded upon Our Lady.
+ - The Darkness has begun. There will be no dawn.
+ - Thief, thief, thief! Baggins! We hates it, we hates it, we hates it forever!
+ - For if joyful is the fountain that rises in the sun, its springs are in the wells of sorrow unfathomable at the foundations of the Earth.
+ - I am looking for someone to share in an adventure that I am arranging, and it’s very difficult to find anyone.
+ - Your time may come. Do not be too sad, Sam. You cannot be always torn in two. You will have to be one and whole, for many years. You have so much to enjoy and to be, and to do.
+ - Let the unseen days be. Today is more than enough.
+ - Time doesn’t seem to pass here: it just is.
+ - My armor is like tenfold shields, my teeth are swords, my claws spears, the shock of my tail a thunderbolt, my wings a hurricane, and my breath death!
+ - Love not too well the work of thy hands and the devices of thy heart; and remember that the true hope of the Noldor lieth in the West, and cometh from the Sea.
+ - And its object is Art not power, sub-creation not domination and tyrannous re-forming of Creation.
+ - Trolls are slow in the uptake, and mighty suspicious about anything new to them.
+ - Fantasy is escapist, and that is its glory.
+ - Adventures are not all pony-rides in May-sunshine.
+ - Curse us and crush us, my precious is lost!
+ - Ho! Ho! Ho! To the bottle I go To heal my heart and drown my woe Rain may fall, and wind may blow And many miles be still to go But under a tall tree will I lie And let the clouds go sailing by.
+ - I am looking for someone to share in an adventure that I am arranging, and it’s very difficult to find anyone.? I should think so – in these parts! We are plain quiet folk and have no use for adventures. Nasty disturbing uncomfortable things! Make you late for dinner!
+ - Gandalf: Three hundred lives of men I have walked this earth and now I have no time.
+ - But I am the real Strider, fortunately. I am Aragorn son of Arathorn; and if by life or death I can save you, I will.
+ - I am glad you are here with me. Here at the end of all things, Sam.
+ - But the enemy has the move, and he is about to open his full game. And pawns are as likely to see as much of it as any. Sharpen your blade!
+ - Is it nice, my preciousss? Is it juicy? Is it scrumptiously crunchable?
+ - Go not to the Elves for counsel, for they will say both no and yes.
+ - Old Tom Bombadil is a merry fellow, Bright blue his jacket is, and his boots are yellow. None has ever caught him yet, for Tom, he is the Master: His songs are stronger songs, and his feet are faster.
+ - For victory is victory, however small, nor is its worth only from what follows from it.
+ - I don’t know, and I would rather not guess.
+ - Do not spoil the wonder with haste!
+ - Fair speech may hide a foul heart.
+ - Wraiths! Wraiths on wings!
+ - For a while they stood there, like men on the edge of a sleep where nightmare lurks, holding it off, though they know that they can only come to morning through the shadows.
+ - See your road through.
+ - Lazy Lob and crazy Cob are weaving webs to wind me. I am far more sweet than other meat, but still they cannot find me! Here am I, naughty little fly; you are fat and lazy. You cannot trap me, though you try, in your cobwebs crazy.
+ - It is written in my life-blood, such that it is, thick or thin; and I can no other.
+ - It is wisdom to recognize necessity when all other courses have been weighed, though as folly it may appear to those who cling to false hope.
+ - I cordially dislike allegory in all its manifestations, and always have done since I grew old and wary enough to detect its presence.
+ - A friend of mine tells that I talk in shorthand and then smudge it.
+ - There are many powers in the world, for good or for evil. Some are greater than I am. Against some I have not yet been measured. But my time is coming.
+ - There are some things that it is better to begin than to refuse, even though the end may be dark.
+ - He stands not alone. You would die before your stroke fell.
+ - Things are drawing towards the end now, unless I am mistaken. There is an unpleasant time just in front of you; but keep your heart up!
+ - In doubt a man of worth will trust to his own wisdom.
+ - The main mark of modern governments is that we do not know who governs, de facto any more than de jure. We see the politician and not his backer; still less the backer of the backer; or, what is most important of all, the banker of the backer.
+ - It’s a dangerous business, going out your door.
+ - Much evil must befall a country before it ever really forgets the Elves, if once they lived there.
+ - To be a cult figure in one’s own lifetime is most unpleasant.
+ - I am dreading the publication, for it will be impossible not to mind what is said. I have exposed my heart to be shot at.
+ - It is mine to give to whom I will, like my heart.
+ - Few there were who could change his courses by counsel. None by force.
+ - History often resembles myth, because they are both ultimately of the same stuff.
+ - They were frightfully angry. Quite apart from the stones no spider has ever liked being called Attercop, and Tomnoddy of course is insulting to anybody.
+ - No dragon can resist the fascination of riddling talk and of wasting time trying to understand it.
+ - Memory is not what the heart desires. That is only a mirror, be it clear as Kheled-zaram. Or so says the heart of Gimli the Dwarf.
+ - Sleep! I feel the need of it, as never I thought any dwarf could, riding is tiring work. Yet my axe is restless in my hand. Give me a row of orc-necks and room to swing and all weariness will fall from me!
+ - I have spoken words of hope. But only of hope. Hope is not victory.
+ - Green are the leaves I leave in Mirkwood.
+ - To crooked eyes truth may wear a wry face.
+ - Many evil things there are that your strong walls and bright swords do not stay.
+ - For still there are so many things that I have never seen: in every wood in every spring there is a different green.
+ - Touching your cap to the Squire may be damn bad for the Squire, but it’s damn good for you.
+ - Shall we mourn here deedless forever a shadow-folk mist-haunting dropping vain tears in the thankless sea.
+ - Voiceless it cries, Wingless flutters, Toothless bites, Mouthless mutters.
+ - Evidently we look so much alike that your desire to make an incurable dent in my hat must be excused.
+ - No taste of food, no feel of water, no sound of wind, no memory of tree or grass or flower, no image of moon or star are left to me. I am naked in the dark, Sam, and there is no veil between me and the wheel of fire. I begin to see it even with my waking eyes, and all else fades.
+ - And yet their wills did not yield, and they struggled on.
+ - You ought not to be rude to an eagle, when you are only the size of a hobbit, and are up in hid eyrie at night!
+ - Maybe the paths that you each shall tread are already laid before your feet though you do not see them.
+ - The whole thing is quite hopeless, so it’s no good worrying about tomorrow. It probably won’t come.
+ - The burned hand teaches best. After that, advice about fire goes to the heart.
+ - That was the most awkward Wednesday he ever remembered.
+ - I warn you, if you bore me, I shall take my revenge.
+ - Fear nothing! Have peace until the morning! Heed no nightly noises!
+ - Fear both the heat and the cold of your heart, and try to have patience, if you can.
+ - Your lullaby would waken a drunken goblin!
+ - Perilous to us all are the devices of an art deeper than we possess ourselves.
+ - There is no curse in Elvish, Entish, or the tongues of Men for this treachery.
+ - Their ‘magic’ is Art, delivered from many of its human limitations.
+ - A red sun rises. Blood has been spilled this night.
+ - And what would you do, if an uninvited dwarf came and hung his things up in your hall without a word of explanation?
+ - Alive without breath, As cold as death; Never thirsty, ever drinking, All in mail never clinking.
+ - And long there he lay, an image of the splendour of the Kings of Men in glory undimmed before the breaking of the world.
+ - I wish I was at home in my nice hole by the fire, with the kettle just beginning to sing!
+ - When Mr. Bilbo Baggins of Bag End announced that he would shortly be celebrating his eleventy-first birthday with a party of special magnificence, there was much talk and excitement in Hobbiton.
+ - O! Where are you going With beards all a-wagging? No knowing, no knowing What brings Mister Baggins, And Balin and Dwalin down into the valley in June ha! ha!
+ - And thus it came to pass that the Silmarils found their long homes: one in the airs of heaven, and one in the fires of the heart of the world, and one in the deep waters.
+ - You have been chosen, and you must therefore use such strength and heart and wits as you have.
+ - The romantic chivalric tradition takes, or at any rate has in the past taken, the young man’s eye off women as they are, as companions in shipwreck not guiding stars.
+ - Hammer and tongs! I am so torn between rage and joy, that if I do not burst, it will be a marvel!
+ - No language is justly studied merely as an aid to other purposes. It will in fact better serve other purposes, philological or historical, when it is studied for love, for itself.
+ - Let him not vow to walk in the dark, who has not seen the nightfall.
+ - Don’t adventures ever have an end? I suppose not. Someone else always has to carry on on the story.
+ - He loved mountains, or he had loved the thought of them marching on the edge of stories brought from far away; but now he was borne down by the insupportable weight of Middle-earth. He longed to shut out the immensity in a quiet room by a fire.
+ - Farewell! O Gandalf! May you ever appear where you are most needed and least expected!
+ - It gives me great pleasure, a good name. I always in writing start with a name. Give me a name and it produces a story, not the other way about normally.
+ - Nobody believes me when I say that my long book is an attempt to create a world in which a form of language agreeable to my personal aesthetic might seem real. But it is true.
+ - We set out to save the Shire, Sam and it has been saved – but not for me.
+ - What has roots as nobody sees, Is taller than trees Up, up it goes, And yet never grows? A mountain.
+ - The world was fair, the mountains tall In Elder Days before the fall...
+ - Then shouldering their burdens, they set off, seeking a path that would bring them over the grey hills of the Emyn Muil, and down into the Land of Shadow.
+ - Faithful heart may have froward tongue.
+ - It is useless to meet revenge with revenge; it will heal nothing.
+ - Dwarves are not heroes, but a calculating folk with a great idea of the value of money; some are tricky and treacherous and pretty bad lots; some are not but are decent enough people like Thorin and Company, if you don’t expect too much.
+ - Struck by lightning! Struck by lightning!
+ - With hope or without hope we will follow the trail of our enemies. And woe to them, if we prove the swifter!
+ - The Dark Lord has Nine. But we have One, mightier than they: the White Rider. He has passed through the fire and the abyss, and they shall fear him. We will go where he leads.
+ - I sang of leaves, of leaves of gold, and leaves of gold there grew.
+ - A traitor may betray himself and do good he does not intend.
+ - Bilbo saw that the moment had come when he must do something.
+ - And if Sam considered himself lucky, Frodo knew he was more lucky himself; for there was not a hobbit in the Shire that was looked after with such care.
+ - Without the high and noble the simple and vulgar is utterly mean; and without the simple and ordinary the noble and heroic is meaningless.
+ - He knew that all the hazards and perils were now drawing together to a point: the next day would be a day of doom, the day of final effort or disaster, the last gasp.
+ - There cannot be any ‘story’ without a fall – all stories are ultimately about the fall – at least not for human minds as we know them and have them.
+ - Hobbits are an unobtrusive but very ancient people, more numerous formerly than they are today; for they love peace and quiet and good tilled earth: a well-ordered and well-farmed countryside was their favourite haunt.
+ - Farewell! I go to find the Sun!
+ - The wolf that one hears is worse than the orc that one fears.
+ - And the Ring is so heavy, Sam. I begin to see it in my mind all the time, like a great wheel of fire.
+ - Fantasy remains a human right: we make in our measure and in our derivative mode, because we are made: and not only made, but made in the image and likeness of a Maker.
+ - For so sworn good or evil an oath may not be broken and it shall pursue oathkeeper and oathbreaker to the world’s end.
+ - Faerie is a perilous land, and in it are pitfalls for the unwary, and dungeons for the overbold.
+ - The future, good or ill, was not forgotten, but ceased to have any power over the present. Health and hope grew strong in them, and they were content with each good day as it came, taking pleasure in every meal, and in every word and song.
+ - Farewell we call to hearth and hall! Though wind may blow and rain may fall. We must away ere the break of day. Far over wood and mountain tall.
+ - The Hobbits are just rustic English people, made small in size because it reflects the generally small reach of their imagination.
+ - We may stand, if only on one leg, or at least be left still upon our knees.
+ - You may not like my burglar, but please don’t damage him.
+ - Go back to the abyss! Fall into nothingness that awaits you and your master!
+ - A hunted man sometimes wearies of distrust and longs for friendship.
+ - And yet, Eomer, I say to you that she loves you more truly than me, for you she loves and knows; but in me she loves only a shadow and a thought: a hope of glory and great deeds, and lands far from the fields of Rohan. – Aragorn to Eomer, of Eowyn.
+ - Far, far below the deepest delvings of the dwarves, the world is gnawed by nameless things.
+ - But it seems that the wind is setting East, and the withering of all Woods may be drawing near.
+ - No onslaught more fierce was ever seen in the savage world of beasts, where some desperate small creature armed with little teeth, alone, will spring upon a tower of horn and hide that stands above its fallen mate.
+ - My ‘Sam Gamgee’ is indeed a reflexion of the English soldier, of the privates and batmen I knew in the 1914 war, and recognised as so far superior to myself.
+ - If this nice friendliness would spread out in Mordor, half our trouble would be over.
+ - Don’t tell us about dreams – dream dinners aren’t any good and we can’t share them.
+ - But do not despise the lore that has come down from distant years; for oft it may chance that old wives keep in memory word of things that once were needful for the wise to know.
+ - Speak, or I will put a dint in your hat that even a wizard will find hard to deal with!
+ - Wars are not favourable to delicate pleasures.
+ - And he took her in his arms and kissed her under the sunlit sky, and he cared not that they stood high upon the walls in the sight of many.
+ - Often does hatred hurt itself.
+ - Pay heed to the tales of old wives. It may well be that they alone keep in memory what it was once needful for the wise to know.
+ - You have to understand the good in things, to detect the real evil.
+ - The war made me poignantly aware of the beauty of the world.
+ - This is the ending. Now not day only shall be beloved, but night too shall be beautiful and blessed and all its fear pass away.
+ - This is a story of how a Baggins had an adventure, and found himself doing and saying things altogether unexpected.
+ - Gandalf, dwarves and Mr. Baggins! We are met together in the house of our friend and fellow conspirator, this most excellent and audacious hobbit – may the hair on his toes never fall out!
+ - I have the hatred of apartheid in my bones...
+ - I cordially dislike allegory in all its manifestations...
+ - And there was Frodo, pale and worn, and yet himself again; and in his eyes there was peace now, neither strain of will, nor madness, nor any fear. His burden was taken away.
+ - His face was sad and stern because of the doom that was laid on him, and yet hope dwelt ever in the depths of his heart, from which mirth would arise at times like a spring from a rock.
+ - I’ve always been impressed that we are here, surviving, because of the indomitable courage of quite small people against impossible odds.
+ - To think I should have lived to be goodmorninged by Belladonna Took’s son, as if I was selling buttons at the door!
+ - You can make the Ring into an allegory of our own time, if you like: and allegory of the inevitable fate that waits for all attempts to defeat evil power by power.
+ - Splendid! They used to go up like great lilies and snapdragons and laburnums of fire and hang in the twilight all evening!
+ - As she stood before Aragorn she paused suddenly and looked upon him, and her eyes were shining. And he looked down upon her fair face and smiled; but as he took the cup, his hand met hers, and he knew that she trembled at the touch.
+ - If you find that not many of the things you asked for have come, and not perhaps quite so many as sometimes, remember that this Christmas all over the world there are a terrible number of poor and starving people.
+ - Of the twelve companions of Thorin, ten remained. Fili and Kili had fallen defending him with shield and body, for he was their mother’s elder brother.
+ - Fifteen birds in five firtrees, their feathers were fanned in a fiery breeze! But, funny little birds, they had no wings! O what shall we do with the funny little things? Roast ’em alive, or stew them in a pot; fry them, boil them and eat them hot?
+ - And that’s the way of a real tale. Take any one that you’re fond of. You may know, or guess, what kind of a tale it is, happy-ending or sad-ending, but the people in it don’t know. And you don’t want them to.
+ - I put before you the one great thing to love on earth: the Blessed Sacrament...
+ - We are plain quiet folk, and I have no use for adventures. Nasty, disturbing, and uncomfortable things.
+ - Venice seemed incredibly lovely, elvishly lovely – to me like a dream of Old Gondor, or Pelargir of the Numenorean Ships, before the return of the Shadow.
+ - Let him go, you filth! Let him go! You will not touch him again!
+ - We wants it, we needs it. Must have the precious. They stole it from us. Sneaky little hobbitses. Wicked, tricksy, false!
+ - I have the hatred of apartheid in my bones; and most of all I detest the segregation or separation of Language and Literature. I do not care which of them you think White.
+ - You are a set of deceitful scoundrels! But bless you! I give in. I will take Gildor’s advice. If the danger were not so dark, I should dance for joy. Even so, I cannot help feeling happy; happier than I have felt for a long time.
+ - The doom lies in yourself, not in your name.
+ - The world changes, and all that once was strong now proves unsure.
+ - Fire, fear, foes! Awake!
+ - But he that sows lies in the end shall not lack of a harvest, and soon he may rest from toil indeed, while others reap and sow in his stead.
+ - I give you this toast: To the Hobbits. May they outlast the Sarumans and see spring again in the trees.
+ - It was a hobbit hole, and that means comfort.
+ - Not all that have fallen are vanquished.
+ - There was a willow hanging over the mill-pool and I learned to climb it. It belonged to a butcher on the Stratford Road, I think. One day they cut it down. They didn’t do anything with it: the log just lay there. I never forgot that.
+ - Some who have read the book, or at any rate have reviewed it, have found it boring, absurd, or contemptible, and I have no cause to complain, since I have similar opinions of their works, or of the kinds of writing that they evidently prefer.
+ - Outside the ring of dancing warriors with spears and axes stood wolves at a respectful distance, watching and waiting.
+ - I can put it no plainer than by saying that Bilbo was meant to find the Ring, and not by its maker. In which case you also were meant to have it. And that may be an encouraging thought.
+ - Then hope unlooked-for came so suddenly to Eomer’s heart, and with it the bite of care and fear renewed, that he said no more, but turned and went swiftly from the hall.
+ - Better mistrust undeserved than rash words.
+ - I can’t be the Ring-bearer. Not without Mr. Frodo!
+ - Don’t put a lump of rock under my elbow again!
+ - O Elbereth! Gilthoniel! We still remember, we who dwell In this far land beneath the trees. Thy starlight on the Western Seas.
+ - That’s the only place in all the lands we’ve ever heard of that we don’t want to see any closer; and that’s the one place we’re trying to get to! And that’s just where we can’t get, nohow.
+ - O! Tril-lil-lil-lolly the valley is jolly, ha! ha! -Elves of Rivendell.
+ - Truly songs and tales fall utterly short of the reality, O Smaug the Chiefest and greatest of Calamities.
+ - And he sang to them, now in the Elven tongue, now in the speech of the West, until their hearts, wounded with sweet words, overflowed, and their joy was like swords, and they passed in thought out to regions where pain and delight flow together and tears are the very wine of blessedness.
+ - Adventures only make you late for dinner.
+ - You will notice already that Mr. Baggins was not quite so prosy as he liked to believe, also that he was very fond of flowers.
+ - Then Frodo came forward and took the crown from Faramir and bore it to Gandalf; and Aragorn knelt, and Gandalf set the White Crown upon his head and said: Now come the days of the King, and may they be blessed while the thrones of the Valar endure!
+ - If you’re referring to the incident with the Dragon, I was barely involved. All I did was give your uncle a little nudge out of the door.
+ - It is the way of my people to use light words at such times and say less than they mean. We fear to say too much. It robs us of the right words when a jest is out of place.
+ - Many are the strange chances of the world,? said Mithrandir, ’and help oft shall come from the hands of the weak when the Wise falter.
+ - It is perilous to study too deeply the arts of the Enemy, for good or for ill.
+ - Already he was a very different hobbit from the one that had run out without a pocket-handkerchief from Bag-End long ago. He had not had a pocket-handkerchief for ages.
+ - Gandalf thought of most things; and though he could not do everything, he could do a great deal for friends in a tight corner.
+ - Yes, I am here. And you are lucky to be here too after all the absurd things you’ve done since you left home.
+ - I shall claim full amends for every fall and stubbed toe, if you do not lead us well.
+ - If we all got angry together something might be done.
+ - And here he was, a little halfling from the Shire, a simple hobbit of the quiet countryside, expected to find a way where the great ones could not go, or dared not go. It was an evil fate.
+ - You cannot pass!
+ - He may become like a glass filled with a clear light for eyes to see that can.
+ - I dislike allegory wherever I smell it.
+ - I have no help to send, therefore I must go myself.
+ - Where iss it, where iss it: my Precious, my Precious? It’s ours, it is, and we wants it.
+ - Your talk of sniffling riders with invisible noses has unsettled me.
+ - We don’t want any adventures here! You might try over the Hill or Across the Water.
+ - We are never late. We arrive precisely when we mean to.
+ - And then all the host of Rohan burst into song, and they sang as they slew, for the joy of battle was on them, and the sound of their singing that was fair and terrible came even to the City.
+ - That was Thorin’s style. He was an important dwarf. If he had been allowed, he would probably have gone on like this until he was out of breath, without telling anyone there anything that was not known already. But he was rudely interrupted.
+ - We may indeed in counsel point to the higher road, but we cannot compel any free creature to walk upon it. That leadeth to tyranny, which disfigureth good and maketh it seem hateful.
+ - The strongest must seek a way, say you? But I say: let a ploughman plough, but choose an otter for swimming, and for running light over grass and leaf, or over snow- an Elf!
+ - Then holding the star aloft and the bright sword advanced, Frodo, hobbit of the Shire, walked steadily down to meet the eyes.
+ - His rage passes description – the sort of rage that is only seen when rich folk that have more than they can enjoy suddenly lose something that they have long had but have never before used or wanted.
+ - We must do without hope.
+ - When Summer lies upon the world, and in a noon of gold, Beneath the roof of sleeping leaves the dreams of trees unfold; When woodland halls are green and cool, and wind is in the West, Come back to me! Come back to me, and say my land is best!
+ - He is not half through yet, and to what he will come in the end not even Elrond can foretell. Not to evil, I think. He may become like a glass filled with a clear light for eyes to see that can.
+ - Rover did not know in the least where the moon’s path led to, and at present he was much too frightened and excited to ask, and anyway he was beginning to get used to extraordinary things happening to him.
+ - Few other griefs amid the ill chances of this world have more bitterness and shame for a man’s heart than to behold the love of a lady so fair and brave that cannot be returned.
+ - American English is essentially English after having been wiped off with a dirty sponge.
+ - Over hill and under hill.
+ - It seemed like all the way to tomorrow and over it to the days beyond.
+ - It matters little who is the enemy, if we cannot beat off his attack.
+ - On their deathbed men will speak true, they say.
+ - My Precious, my Precious.
+ - There is no ship now that can bear me hence.
+ - And it is not our part here to take thought only for a season, or for a few lives of Men, or for a passing age of the world.
+ - Help means ruin and saving means slaying.
+ - All shall love me and despair.
+ - And it is not always good to be healed in body. Nor is it always evil to die in battle, even in bitter pain. Were I permitted, in this dark hour I would choose the latter.
+ - That’s done it! Now I’ve rung the front-door bell!
+ - Ho! Tom Bombadil, Tom Bombadillo! By water, wood and hill, by reed and willow, By fire, sun and moon, harken now and hear us! Come, Tom Bombadil, for our need is near us!
+ - I will not give you counsel, saying do this, or do that. For not in doing or contriving, nor in choosing between this course and another, can I avail; but only in knowing what was and is, and in part also what shall be.
+ - Hobbits delighted in such things, if they were accurate; they liked to have books filled with things that they already knew, set out fair and square with no contradictions.
+ - The washing-up was so dismally real that Bilbo was forced to believe the party of the night before had not been part of his bad dreams, as he had rather hoped.
+ - For myself, I find I become less cynical rather than more – remembering my own sins and follies; and realize that men’s hearts are not often as bad as their acts, and very seldom as bad as their words.
+ - I was talking aloud to myself. A habit of the old: they choose the wisest person present to speak to.
+ - I am going with him, if he climbs to the Moon.
+ - The world is indeed full of peril and in it there are many dark places.
+ - I felt a curious thrill, as if something had stirred in me, half wakened from sleep. There was something very remote and strange and beautiful behind those words, if I could grasp it, far beyond ancient English.
+ - For the less even as for the greater there is some deed that he may accomplish but once only; and in that deed his heart shall rest.
+ - Leave him! I said. I never mean to. I am going with him, if he climbs to the Moon; and if any of these Black Riders try to stop him, they’ll have Sam Gamgee to reckon with, I said. They laughed.
+ - There was a fire in the wide hearth before them, and it was burning with a sweet smell, as if it were built of apple-wood.
+ - It is plain that we were meant to go together.
+ - Their horses were of great stature, strong and clean-limbed; their gray coats glistened, their long tails flowed in the wind, their manes were braided on their proud necks.
+ - My own dear mother was a martyr indeed, and it is not to everybody that God grants so easy a way to his great gifts as he did to Hilary and myself, giving us a mother who killed herself with labour and trouble to ensure us keeping the faith.
+ - Many that live deserve death. And some that die deserve life. Can you give it to them? Then do not be too eager to deal out death in judgement. For even the very wise cannot see all ends.
+ - A year shall I endure for every day that passes until you return.
+ - There are other men, and other lives, and time still to be.
+ - For the trouble with the real folk of Faerie is that they do not always look like what they are; and they put on the pride and beauty that we would fain wear ourselves.
+ - Here you find us sitting on a field of victory, amid the plunder of armies, and you wonder how we came by a few well-earned comforts!
+ - There is little or no magic about them, except the ordinary everyday sort which helps them to disappear quietly and quickly when large stupid folk like you and me come blundering along, making a noise like elephants which they can hear a mile off.
+ - Yet seldom do they fail of their seed, And that will lie in the dust and rot to spring up again in times and places unlooked-for. The deeds of Men will outlast us.
+ - Well, here at last, dear friends, on the shores of the Sea comes the end of our fellowship in Middle-earth. Go in peace! I will not say: do not weep; for not all tears are an evil.
+ - And then alas! I let the matter reset, watching and waiting only, as we have too often done.
+ - A few melancholy birds were pipping and wailing, until the round red sun sank slowly into the western shadows; then an empty silence fell.
+ - Arrow! Black arrow! I have saved you to the last. You have never failed me and I have always recovered you. I had you from my father and he from of old. If ever you came from the forges of the true king under the Mountain, go now and speed well!
+ - If people were in the habit of refering to ‘King George’s council, Winston and his gang,’ it would go a long way to clearing thought, and reducing the frightful landslide into Theyocracy.
+ - Orcs, and talking trees, and leagues of grass, and galloping riders, and glittering caves, and white towers and golden halls, and battles, and tall ships sailing, all these passed before Sam’s mind.
+ - Then Elrond and Galadriel rode on; for the Third Age was over and the Days of the Rings were passed and an end was come of the story and song of those times.
+ - There was some murmuring, but also some grins on the faces of the men looking on: the sight of their Captain sitting on the ground and eye to eye with a young hobbit, legs well apart, bristling with wrath, was one beyond their experience.
+ - It is ever so with the things that Men begin: there is a frost in Spring, or a blight in Summer, and they fail of their promise.
+ - For like a shaft, clear and cold, the thought pierced him that in the end the Shadow was only a small and passing thing: there was light and high beauty for ever beyond its reach.
+ - And he smote the Balrog upon the mountainside.
+ - This thing all things devours: Birds, beasts, trees, flowers; Gnaws iron, bites steel; Grinds hard stones to meal; Slays king, ruins town, And beats high mountain down.
+ - Elvish singing is not a thing to miss, in June under the stars, not if you care for such things.
+
+435 quotes

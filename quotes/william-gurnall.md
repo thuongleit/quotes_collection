@@ -1,0 +1,92 @@
+ - We fear men so much, because we fear God so little.
+ - It is the image of God reflected in you that so enrages hell; it is this at which the demons hurl their mightiest weapons.
+ - Set a strong guard about thy outward senses: these are Satan’s landing places, especially the eye and the ear.
+ - God’s wounds cure, sin’s kisses kill.
+ - We must not confide in the armour of God, but in the God of this armour, because all our weapons are only mighty through God.
+ - The chains of love are stronger than the chains of fear.
+ - We must come to good works by faith, and not to faith by good works.
+ - The storm may be tempestuous, but it is only temporary.
+ - If thou beest ever so exact in thy morals, and not a worshiper of God, then thou art an atheist.
+ - Compare Scripture with Scripture. False doctrines, like false witnesses, agree not among themselves.
+ - One Almighty is more than all mighties.
+ - Job’s friends chose the right time to visit him, but took not the right course of improving their visit; had they spent the time in praying for him which they did in hot disputes with him, they would have profited him, and pleased God more.
+ - Blind zeal is soon put to a shameful retreat, while holy resolution, built on fast principles, lifts up its head like a rock in the midst of the waves.
+ - The Christian, like a chalice without a base, cannot stand on his own nor hold what he has received any longer that God holds him in His strong hands.
+ - To forsake sin, is to leave it without any thought reserved of returning to it again.
+ - Cease to pray and thou will begin to sin. Prayer is not only a means to prevail for mercy but also to prevent sin.
+ - The Christian must trust in a withdrawing God.
+ - Prayer is nothing but the promise reversed, or God’s Word formed into an argument, and retorted by faith upon God again.
+ - Cowards never won heaven. Do not claim that you are begotten of God and you have His royal blood running in your veins unless you can prove your lineage by His heroic spirit: to dare to be holy in spite of men and devils.
+ - Least doers are the greatest boasters.
+ - Christ is the door that opens into God’s presence and lets the soul into His very bosom, faith is the key that unlocks the door; but the Spirit is He that makes this key.
+ - Never was a faithful prayer lost. Some prayers have a longer voyage than others, but then they return with their richer lading at last, so that the praying soul is a gainer by waiting for an answer.
+ - When people do not mind what God speaks to them in His word, God doth as little mind what they say to Him in prayer.
+ - Godliness, as well as the doctrine of our faith, is a mystery.
+ - Say not that thou hast royal blood in thy veins; say not that thou art born of God if thou canst not prove thy pedigree by daring to be holy!
+ - Humble souls are fearful of their own strength.
+ - The devil had as good have let Paul alone, for he no sooner comes into prison but he falls a preaching, at which the gates of Satan’s prison fly open, and poor sinners come forth.
+ - God would not rub so hard if it were not to fetch out the dirt that is ingrained in our natures. God loves purity so well He had rather see a hole than a spot in His child’s garments.
+ - A minister, without boldness, is like a smooth file, a knife without an edge, a sentinel that is afraid to let off his gun. If men will be bold in sin, ministers must be bold to reprove.
+ - Pride of gifts robs us of God’s blessing in the use of them.
+ - He that is impatient, and cannot wait on God for a mercy, will not easily submit to Him in a denial.
+ - It is not only our duty to pray for others, but also to desire the prayers of others for ourselves.
+ - Few are made better by prosperity, whom afflictions make worse.
+ - All the plots of hell and commotions on earth have not so much as shaken God’s hand to spoil one letter or line he has been drawing.
+ - God loves the saints as the purchase of his Son’s blood. They cost him dear, and that which is so hardly got shall not be easily lost. He that was willing to expend his Son’s blood to gain them, will not deny his power to keep them.
+ - Peace of conscience is nothing but the echo of pardoning mercy.
+ - The Christian is bred by the Word, and he must be fed by it.
+ - Paul was Nero’s prisoner, but Nero was much more God’s.
+ - Praying is the same to the new creature as crying is to the natural. The child is not learned by art or example to cry, but instructed by nature; it comes into the world crying. Praying is not a lesson got by forms and rules of art, but flowing from principles of new life itself.
+ - Nothing is more contrary to a heavenly hope than an earthly heart.
+ - The Christian is to proclaim and prosecute an irreconcilable war against his bosom sins; those sins which have lain nearest his heart, must now be trampled under his feet.
+ - There is no such way to be even with the devil and his instruments, for all their spite against us, as by doing what good we can wherever we be come.
+ - Whoever hath a seed time of grace pass over his soul, shall have his harvest time also of joy.
+ - Let thy hope of heaven master thy fear of death. Why shouldst thou be afraid to die, who hopest to live by dying!
+ - In heaven we shall appear, not in armour, but in robes of glory. But here these are to be worn night and day; we must walk, work, and sleep in them, or else we are not true soldiers of Christ.
+ - Mercy should make us ashamed, wrath afraid to sin.
+ - Oh, it is sad for a poor Christian to stand at the door of the promise, in the dark night of affliction, afraid to draw the latch, whereas he should then come boldly for shelter as a child into his father’s house.
+ - Pray often rather than very long at a time. It is hard to be very long in prayer, and not slacken in our affections.
+ - How can God stoop lower than to come and dwell with a poor humble soul? Which is more than if he had said, such a one should dwell with him; for a beggar to live at court is not so much as the king to dwell with him in his cottage.
+ - The Christian must stand fixed to his principles, and not change his habit; but freely show what countryman he is by his holy constancy in the truth.
+ - Our enemies are on every side, so must our armour be.
+ - We are justified, not by giving anything to God, – what we do, – but by receiving from God, what Christ hath done for us.
+ - The Word of God is too sacred a thing, and preaching too solemn a work, to be toyed and played with.
+ - Let thy hope of heaven master thy fear of death.
+ - The mightier any is in the word, the more mighty he will be in prayer.
+ - Christ hath told us He will come, but not when, that we might never put off our clothes, or put out the candle.
+ - For a beggar to live at court is not so much as the King to dwell with him in his cottage.
+ - God hath made it a debt which one saint owes to another to carry their names to a throne of grace.
+ - Great comforts do, indeed, bear witness to the truth of thy grace, but not to the degree of it; the weak child is oftener in the lap than the strong one.
+ - Justifying faith is not a naked assent to the truths of the gospel.
+ - Thou hast no life to lose, because thou hast given it already to Christ, nor can man take away that without God’s leave.
+ - And while God had work for Paul, he found him friends both in court and prison. Let persecutors send saints to prison, God can provide a keeper for their turn.
+ - Never venture near the door where sin dwells, lest you are dragged in.
+ - We have peace with God as soon as we believe, but not always with ourselves. The pardon may be past the prince’s hand and seal, and yet not put into the prisoner’s hand.
+ - Humility is a necessary veil to all other graces.
+ - Many lose heaven because they are ashamed to go in a fool’s coat thither.
+ - Weak faith will as surely land the Christian in heaven as strong faith, for it is impossible the least dram of true grace should perish.
+ - The Christian’s life should put his minister’s sermon in print.
+ - No torment in the world is comparable to an accusing conscience.
+ - Therefore tremble, O man, at any power thou hast, except thou usest it for God. Art thou strong in body; who hath thy strength? God, or thy lusts?
+ - Truly, hope is the saint’s covering, wherein he wraps himself, when he lays his body down to sleep in the grave: “My flesh,” saith David, “shall rest in hope.”
+ - It is no policy to let thy lusts have arms, which are sure to rise and declare against thee when thine enemy comes.
+ - Compare not thyself with those that have less than thyself, but look on those that have far exceeded thee.
+ - Godliness is the child of truth, and it must be nursed by its own mother.
+ - The regenerating Spirit is compared to the wind. His first attempts on the soul may be so secret that the creature knows not whence they come, or whither they tend; but, before he hath done, the sound will be heard throughout the soul.
+ - He that loves the Word and the purity of its precepts cannot turn traitor.
+ - The longer a soul hath neglected duty, the more ado there is to get it taken up.
+ - Sometimes, perhaps, thou hearest another pray with much freedom and fluency, whilst thou canst hardly get out a few broken words. Hence thou art ready to accuse thyself and admire him, as if the gilding of the key made it open the door the better.
+ - The sins of teachers are the teachers of sin.
+ - Can Christ be in thou heart and thou not know it? Can one king be dethroned and another crowned in thy soul and thou hear no scuffle?
+ - The grace thou hast will soon be less, if thou addest not more to it.
+ - Of all creatures in this visible world, light is the most glorious; of all light, the light of the sun without compare excels the rest.
+ - As the eye of the body once put out, can never be restored by the creature’s art, so neither can the spiritual eye lost by Adam’s sin be restored by the teaching of men or angels. It is one of the diseases which Christ came to cure.
+ - We are bid to take, not to make our cross.
+ - Christ will bear no equal, and Satan no superior; and therefore, hold in with both thou canst not.
+ - We live by faith, and faith lives by exercise.
+ - What is Jordan that I should wash in it? What is the preaching that I should attend on it, while I hear nothing but what I knew before? What are these beggarly elements of water, bread, and wine? Are not these the reasonings of a soul that forgets who appoints the means of grace?
+ - As you love your peace, Christian, be plain-hearted with God and man, and keep the king’s highway.
+ - It is one thing to know a truth, and another thing to know it by unction.
+ - The soldier is summoned to a life of active duty and so is the Christian.
+
+90 quotes

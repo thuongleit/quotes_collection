@@ -1,0 +1,35 @@
+ - Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle.
+ - Promise yourself to be so strong that nothing can disturb your peace of mind. To talk health, happiness and prosperity to every person you meet. To make all your friends feel that there is some thing in them.
+ - Depend only upon yourself, but work in harmony with all things.
+ - Forget the mistakes of the past and press on to the greater achievements of the future.
+ - We are always imagining something, It is practically impossible to be awake without imagining something. Then why not imagine something at all times that will inspire the powers within us to do greater and greater things?
+ - Be too big for worry and too noble for anger.
+ - The true purpose of the strong is to promote greater strength in the weak, and not to keep the weak in that state where they are at the mercy of the strong.
+ - When your thinking is brilliant, you will be brilliant, but if your thinking is not brilliant you will not be brilliant, no matter how brilliant you may think you are.
+ - What we love in others we not only awaken in others, but we develop those very things more or less in ourselves.
+ - Whenever you permit yourself to think what persons, things, conditions, or circumstances may suggest, you are not following what you want to think. You are not following your own desires but borrowed desires. Use your imagination in determining what you want to think or do.
+ - The average person is full of artificial desires, desires that have been suggested by what other people possess or require.
+ - It is just as necessary to forgive ourselves as it is to forgive others, and the principal reason why forgiveness seemed so difficult is because we have neglected to forgive ourselves.
+ - Be just as enthusiastic about the success of others as you are about your own.
+ - Nature intends all men and women to be mental and spiritual giants, and does not intend that any one should follow the will of another.
+ - It is better to have faith in everybody and be deceived occasionally than to mistrust everybody and be deceived almost constantly.
+ - Our destiny is not mapped out for us by some exterior power; we map it out for ourselves. What we think and do in the present determines what shall happen to us in the future.
+ - The more grateful you are for everything good that comes into your life, the more closely you place your mind in contact with that power in life that can produce greater good.
+ - Talk health, happiness, and prosperity to every person you meet.
+ - Make your optimism come true.
+ - The secret of the master mind is found wholly in the use of imagination.
+ - Make all your friends feel there is something in them.
+ - To think well of yourself and to proclaim this fact to the world, not in loud words but great deeds. To live in faith that the whole world is on your side so long as you are true to the best that is in you.
+ - That person who declares that there is always something wrong is always doing something to make things wrong.
+ - Happiness, however, is not the result of any one single cause. It is the result of many ideal states of being grouped together into one harmonious whole.
+ - To keep any great nation up to a high standard of civilization there must be enough superior characters to hold the balance of power, but the very moment the balance of power gets into the hands of second-rate men and women, a decline of that nation is inevitable.
+ - What you admire in others will develop in yourself. Therefore, to love the ordinary in any one is to become ordinary, while to love the noble and the lofty in all minds is to grow into the likeness of that which is noble and lofty.
+ - The more you think of harmony, of health, of success, of happiness, of things that are desirable, of things that are beautiful, of things that have true worth, the more the mind will tend to build all those things in yourself, provided, of course, that all such thinking is subjective.
+ - The real feeling of youth comes when we actually think in the consciousness of youth and give the realization of the now to every thought.
+ - When we realize that the strength of the Infinite is our strength and that the strength of the Infinite is limitless, we must come to the conclusion that we are capable of doing anything that the living of a great life may demand.
+ - The pessimist waits for better times, and expects to keep on waiting; the optimist goes to work with the best that is at hand now, and proceeds to create better times.
+ - The master mind is the mind that thinks what it wants to think, regardless of what circumstances, environment or associations may suggest.
+ - True achievement in any sphere of action depends upon real ability, and a strong, deep, whole-souled love.
+ - Life becomes the way it is lived; and man may live the way he wants to live when he learns to think what he wants to think.
+
+33 quotes

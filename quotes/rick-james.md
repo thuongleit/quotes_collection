@@ -1,0 +1,36 @@
+ - I just live one day at a time.
+ - I believe everything happens under God’s plan anyway.
+ - Now is my time. Everything I’ve done up to this point is just a warm up. This is where it all begins.
+ - I mean, Rick James was just a man-made image, the image I created. Just trying to live Rick James almost killed me.
+ - My teacher said I would either be a hoodlum, or a great entertainer.
+ - I’m too old to do crazy things anymore.
+ - I’m in love with mary jane. she’s my main thing. she makes me feel alright. she makes my heart sing. and when I’m feeling low, she comes as no suprise. turns me on with her love, takes me to paradiiiiise do you love me mary jane, yeah now do you think you love me mary jane don’t you play no game...
+ - I wanted to play the Apollo Theater because I didn’t think I was going to be on the earth long.
+ - Funkers are people who dig the funk; Little funkers, Big funkers, Old funkers, Young funkers, Foxy funkers, Mother funkers, Papa funkers.
+ - Whether you’re rich or poor, life’s still cold-blooded.
+ - I love marijuana – Mary Jane – and you can print that! I smoke it every day and it’s the greatest thing since ice cream and I’m not afraid to say it.
+ - That girl is pretty kinky, the girl’s a super-freak, I’d really like to taste her.
+ - I can’t hang out as loose as I used to, but I can still go down Jefferson Avenue and look in the faces of winos, pimps and junkies, all the things I’m made of.
+ - If anything I consider myself non-violent. I’m from the hippy era, peace, love, groovy.
+ - I’m a long way from Ike Turner.
+ - You and I, we’ll be together ’til the six is nine.
+ - I was angry about the fact that my father would beat my mother on a daily basis, that my mother would like take it in turn and beat on me. I was an abused child. I was mad about all those things, very bitter and very angry.
+ - I try to make the audience forget all their problems – for an hour and a half or so get them out of themselves, and space, and time, and consciousness.
+ - When I’m about Rick James, it’s all about get out there and kill ’em.
+ - I decided to build up my band in Buffalo because Buffalo was where I had originally built up my own musical strength.
+ - I think rap definitely has its place in the art world. I think it is an art form. But, just like any art form, you can misuse it.
+ - I’m trying to change the root of funk, trying to make it more progressive, more melodic and more lyrically structured.
+ - My music is pretty honest. I can’t rap on science fiction. Punk is from the street.
+ - I wanted my show to look like the fourth of July.
+ - I was going to get drafted, but I didn’t really want to go into the Army.
+ - I get some letters from girls that if their mothers knew what they were writing me in these letters, they’d get their butts whipped.
+ - Off stage it’s cool-out time. You can’t funk and roll ALL the time.
+ - I had always been a free spirit, and always gotten what I wanted.
+ - I’m really not tailored for responsibility.
+ - I feel that I have to say something in a song and that it’s not just enough to lay down the music.
+ - I’m finally locked into the now, and it’s great.
+ - I went to India, lived, and studied.
+ - She’s the kind you don’t take home to mother.
+ - Punk Funk means to be one with yourself. To be rebellious, aggressive, able to do and say what you feel at all times, without inflicting mental or spiritual pain.
+
+34 quotes

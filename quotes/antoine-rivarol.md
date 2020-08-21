@@ -1,0 +1,60 @@
+ - It is the dim haze of mystery that adds enchantment to pursuit.
+ - Speech is external thought, and thought internal speech.
+ - The absolute ruler may be a Nero, but he is sometimes a Titus or Marc Aurelius; the people is often Nero, but never Marc Aurelius.
+ - It has been very truly said that the mob has many heads, but no brains.
+ - Gold like the sun, which melts wax, but hardens clay, expands great souls.
+ - There are men who gain from their wealth only the fear of losing it.
+ - Indolence and stupidity are first cousins.
+ - Man spends his life in reasoning on the past, in complaining of the present, in fearing future.
+ - Wrong is wrong; no fallacy can hide it, no subterfuge cover it so shrewdly but that the All-Seeing One will discover and punish it.
+ - History is only time furnished with dates and rich with events.
+ - Silence never yet betrayed any one!
+ - Brave men do not boast nor bluster. Deeds, not words, speak for such.
+ - The most civilized people are as near to barbarism as the most polished steel is to rust. Nations, like metals, have only a superficial brilliancy.
+ - The modest man has everything to gain, and the arrogant man everything to lose; for modesty has always to deal with generosity, and arrogance with envy.
+ - The personal pronoun “I” should be the coat of arms of some individuals.
+ - Memory always obeys the commands of the heart.
+ - Oblivion is the rule and fame the exception, of humanity.
+ - To be ungrateful is to be unnatural. The head may be thus guilty, not the heart.
+ - To lose one’s self in reverie, one must be either very happy, or very unhappy. Reverie is the child of extremes.
+ - Mind is the partial side of men; the heart is everything.
+ - Cats don’t caress us-they caress themselves on us.
+ - If poverty makes man groan, he yawns in opulence. When fortune exempts us from labor, nature overwhelms us with time.
+ - The cunning tempter, by avoiding the grossness of vice, often silences objections.
+ - Tenderness is the infancy of love.
+ - Familiarity is the root of the closest friendships, as well as the interests hatreds.
+ - It is said that friendship between women is only a suspension of hostilities.
+ - It is, no doubt, an immense advantage to have done nothing, but one should not abuse it.
+ - Rumor, once started, rushes on like a river, until it mingles with, and is lost in the sea.
+ - What isn’t clear, isn’t French.
+ - Of every ten persons who talk about you, nine will say something bad, and the tenth will say something good in a bad way.
+ - Very nice couplet, although there are dull stretches.
+ - Vices are often habits rather than passions.
+ - Extremes produce reaction. Beware that our boasted civilization does not lapse into barbarism.
+ - Reason is an historian, but the passions are actors.
+ - There is nothing so unready as readiness of wit.
+ - Generally speaking, there is more wit than talent in the world. Society swarms with witty people who lack talent.
+ - The mischief of children is seldom actuated by malice; that of grown-up people always is.
+ - A fool may have his coat embroidered with gold, but it is a fool’s coat still.
+ - Youth is not the era of wisdom; let us therefore have due consideration.
+ - Obtuseness is sometimes a virtue.
+ - The subtle sauce of malice is often indulged in by maidens of uncertain age, over their tea.
+ - In general, indulgence for those we know is rarer than pity for those we know not.
+ - True felicity consists of its own consciousness.
+ - Opinions, theories, and systems pass by turns over the grindstone of time, which at first gives them brilliancy and sharpness, but finally wears them out.
+ - It is a notable circumstance that mothers who are themselves open to severe comments as to their, moral character, are generally most solicitous as to the virtuous behavior of their daughters.
+ - That which happens to the soil when it ceases to be cultivated by the social man happens to man himself when he foolishly forsakes society for solitude; the brambles grow up in his desert heart.
+ - The methods that help a man acquire a fortune are the very ones that keep him from enjoying it.
+ - The only thing wealth does for some people is to make them worry about losing it.
+ - It is not he who searches for praise who finds it.
+ - Women read each other at a single glance.
+ - The woman who too easily and ardently yielded her devotion will find that its vitality, like a bright fire, soon consumes itself.
+ - The despotism of will in ideas is styled plan, project, character, obstinacy; its despotism in desires is called passion.
+ - The world is governed by love, – self-love.
+ - Mutability is written upon all things.
+ - Poverty treads close upon the heels of great and unexpected wealth.
+ - Ideas are a capital that bears interest only in the hands of talent.
+ - Axioms are delightful in theory, but impossible in practice.
+ - There are some women who are flirts upon principle; they consider it their duty to make themselves as pleasing as possible to every one.
+
+58 quotes

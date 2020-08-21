@@ -1,0 +1,21 @@
+ - I am always learning, always discovering.
+ - We are a landscape of all we have seen.
+ - To order space is to give it meaning.
+ - Everything is sculpture. Any material, any idea without hindrance born into space, I consider sculpture.
+ - The art of stone in a Japanese garden is that of placement. Its ideal does not deviate from that of nature.
+ - When an artist stops being a child, he stops being an artist.
+ - It is weight that gives meaning to weightlessness...
+ - Brancusi made me realise that what I had learned previously – the quick ways of doing things – was all wrong. It is a search you have to enter – into yourself.
+ - In my work, I wanted something irreducible, an absence of the gimmicky and clever.
+ - You can find out how to do something and then do it or do something and then find out what you did.
+ - For me it is the direct contact of artist to material which is original, and it is the earth and his contact to it which will free him of the artificiality of the present and his dependence on industrial products.
+ - I perceive my limitations even as I work. There are times when I see nothing but restrictions, barriers. Learning takes time.
+ - The attractions of ceramics lie partly in its contradictions. It is both difficult and easy, with an element beyond our control. It is both extremely fragile and durable. Like ‘Sumi’ ink painting, it does not lend itself to erasures and indecision.
+ - Appreciate the moment.
+ - The essence of sculpture is for me the perception of space, the continuum of our existence.
+ - It is said that stone is the affection of old men. That may be so. It is the most challenging to work. A dialogue ensues – of chance no chance, mistakes no mistakes. No erasing or reproduction is possible, at least in the way I work, leaving nature’s mark. It is unique and final.
+ - The best is that which is most spontaneous or seemingly so.
+ - When the time came for me to work with larger spaces, I conceived them as gardens, not as sites with objects but as relationships to a whole.
+ - Art should become as one with its surroundings.
+
+19 quotes

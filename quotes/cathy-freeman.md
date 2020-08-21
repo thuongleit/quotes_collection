@@ -1,0 +1,56 @@
+ - I am very determined and the sport is my passion. I believe I am born for running.
+ - Peace, unity and harmony!
+ - I want to keep my private life private.
+ - Asthma is treatable and well can be controlled.
+ - My feelings tried to control me on my run. I had to concentrate fully on forthcoming running and success. I wanted to triumph.
+ - I quite clearly have made the right decision in my heart, retirement was the way.
+ - My last real race was at the Olympics in Sydney in 2000.
+ - You got to try and reach for the stars or try and achieve the unreachable.
+ - The thing I do best is laugh.
+ - I like looking feminine and I enjoy being a role model. I enjoy being a woman. It all comes down to having the confidence to be who you are.
+ - When I’m in a bad mood, I don’t listen.
+ - Disappointment and adversity can be catalysts for greatness. There’s something particularly exciting about being the hunter, as opposed to the hunted. And that can make for powerful energy.
+ - My mind is pretty made up that life for Cathy Freeman will be as an unmarried woman from now on.
+ - I’m drinking lots of herbal tea.
+ - I don’t like people looking at me; I hate the attention.
+ - I’m certainly not ready to go changing the world overnight right now. I’m completely uninformed about a lot of our issues, a lot of the nation’s issues, not just Indigenous issues.
+ - People could see in me who I am now, an Olympic champ, the best in the world.
+ - Twenty seconds before a race, there’s absolute focus. The key thing is to achieve relaxation, but at the same to have absolute total control. You’ve got to find the balance between being totally ready to go and being really at peace with yourself as well.
+ - I’ve had my fair share of being dismissed. But I’m only about to turn 30. And when I finish running, I’m going to be a dangerous woman.
+ - I’m so lucky. I have such a great support system. All I have to do is run.
+ - I have time to breathe, time to be myself more often, I am a lot more relaxed and less guarded.
+ - When I was 18 years old, about to develop my sportsman career, the asthma complaints became already some years before.
+ - For athletes traditionally it’s such a fantastic stepping stone to greater things down the track and in the future. Don’t undermine the Commonwealth Games!
+ - I feel like I’ve reached an age where I can relax a little bit with the knowledge of what I’ve been through, take all that experience and use it. I love the challenge of trying to get back to where I’ve been, and beyond it.
+ - Australians are a fantastic bunch of people but the attention can be overwhelming for someone like me.
+ - I’m learning in my own sort of quiet, out-of-the-spotlight kind of way. I certainly have my general point of view about the government, and the future of our children. I’m certainly learning all the time, I’m happy to be an onlooker for now.
+ - I do not have any official responsibilities related to the Australian Olympic Committee or the Federation of Athletic Associations since I am too busy with my private business.
+ - I took only twice a time-out, once, when I was hurt, and a second time, when I much felt I was exhausted out of personal reasons.
+ - The last sort of really low-key race I ran, I realized with about a hundred metres to go, that my heart just wasn’t in it. I wasn’t trying my hardest, I didn’t care to compete against the girls I was up against. That spoke a lot about where my heart was taking me-which was off the track.
+ - I’m doing something now where I’m going to have to learn so much and that takes time nurturing, those kinds of relationships.
+ - I have a friend who, if she has a bad hair day, it affects her whole mood because it is part of her sexuality, her confidence. I don’t have that problem any more.
+ - It is my second visit to Korea since the International Junior Athletic Championships in 1992. Both then and now, I felt Korea is an interesting country and the people are very kind.
+ - With Alexander’s cancer, I was definitely brought to my knees for the first time because of the fear factor.
+ - I definitely do things on my terms, it may not seem that way but I actually do.
+ - I think the greatest amount of pressure is the pressure I place on myself. So in a way I chose to be alone.
+ - The Athens Olympics will be meaningful even though I cannot participate as an athlete, since I can participate in the flame relay all over the world.
+ - I decided that I was going to go to the Olympics to see if I had made the right decision to retire because I knew that if I’d made the mistake of retiring I would know during and after those Games in Athens.
+ - I like being in the workforce; it keeps me grounded.
+ - Realise there is always somebody else in the World who’s not coping as well as you are.
+ - I don’t have a lot of regrets in my life.
+ - I made publicity contracts with Nike, several broadcasting companies and airline companies within Australia.
+ - I’d like to see as many sports as I can because I have never had the chance to enjoy the other sports in the past.
+ - Being overseas at the time it all kind of happened was perfect because I had no idea that it was going to attract so much media attention and provoke these lovely people calling in and offering up their opinions and advice.
+ - I made my first Australian senior team when I was 16, first Olympics when I was 19, and I retired. I’m 32, I retired four years ago, so a good third of my life or nearly a third of my life has been all about running.
+ - I don’t agree with everything Madonna’s done but she is fearless.
+ - I’ll just let time happen. I don’t have to articulate what may be or what may not be. I don’t even do that to myself.
+ - I was always surrounded by expectation from the very first race I ran as a 5-year-old.
+ - I was running since I was 10. Since grade one at school people looked at me and thought, oh gosh she can really run, she’s a natural.
+ - Money makes life easier but I don’t want to be rich, not at all.
+ - I lie around the floor with my cats Billy and Jazz or watch DVDs with my best friends.
+ - My story has resonated around the world. I am just Catherine, I just like to run. And I’ll run with opportunities.
+ - I’m not a marriage expert, quite clearly.
+ - Between 1991 and 1997 I had really serious asthma.
+ - This occasion is personally very meaningful and I hope to visit Korea again if I have the chance.
+
+54 quotes

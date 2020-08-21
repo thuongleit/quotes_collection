@@ -1,0 +1,104 @@
+ - Don’t be afraid to fail, encourage your talent, and use your heart. And never be unprepared.
+ - The second you think you’ve arrived, someone passes you. You have to always be in pursuit.
+ - We all have different ways to do things.
+ - A winner is somebody who goes out there every day and exhausts himself trying to get something accomplished.
+ - Unless you have bad times, you can’t appreciate the good times.
+ - My greatest talent is calmness and being positive. I concentrate on what you can do even in the worst of times. You don’t judge by last week’s errors or lost opportunity.
+ - Competing at the highest level is not about winning. It’s about preparation, courage, understanding and nurturing your people, and heart. Winning is the result.
+ - Sometimes they say the world rotates a little different for lefthanders.
+ - We can learn from past failures and mistakes, but we shouldn’t get stuck there. We can keep future goals in mind, but we shouldn’t get stuck there, either. The only way to reach our potential is to focus on what we must do now – this moment, this day – to perform effectively and win.
+ - I’m a very private person, and I don’t want to share stuff with anyone.
+ - Major league baseball is about the history of the game. Baseball history is so important. It’s so much more than money.
+ - There is no worse emotion than fear.
+ - When we lost I couldn’t sleep at night. When we win I can’t sleep at night. But when you win, you wake up feeling better.
+ - I hated the Yankees and Dodgers and wound up managing both.
+ - I do love the feeling of a big win. But you don’t have to have a World Series ring to be a winner. A winner is somebody who goes out there every day and exhausts himself trying to get something accomplished. Being able to get the most from their ability. That’s what characterizes a winner.
+ - I feel emptiness, and he probably won’t be able to close his eyes for two or three days.
+ - Respect is the word I want. You have to earn it. You give, and you get it in return, that’s how I see it.
+ - It’s nice to be in first place. But just because you’re not on a winner doesn’t mean you’re a loser.
+ - My father wasn’t the best role model to me.
+ - In regards to steroids, I think we’re all to blame, all of baseball. I never realized how far-reaching this problem has been.
+ - You can’t win the Kentucky Derby unless you’re on a thoroughbred.
+ - My relationship with George Steinbrenner was great. He was the boss, and I accepted that.
+ - The fact that somebody is reducing your salary is just telling me they’re not satisfied with what you’re doing.
+ - If I intimidate people, that’s not my intention.
+ - I have no problem with cheating. Whatever you can get away with.
+ - Getting fired is what happens to a manager sooner or later.
+ - I have great confidence in Rick Caruso’s unique qualifications and his ability to lead a successful bid for the Los Angeles Dodgers.
+ - Obviously generating revenue is what this is all about anymore, which is sad, but again, you have to find ways to make it work. But, yeah, that’s certainly intriguing.
+ - When I was 16 years old, my brother Frank said, ‘You’d better become a catcher, because you’re too big and fat to do anything else.’ Well, I took his advice. It was a quick way to get to the big leagues, and I’ve never regretted it.
+ - Baseball has always been filled with negative statistics.
+ - The game itself is an autonomous game, but everybody is a part of it. No contribution is too small.
+ - When I was a player and hit into a double play, I felt as if I was letting everyone down.
+ - It’s all about makeup.
+ - A lot of pitchers today are afraid of the ball. Warren Spahn pinch-hit for me when I was a rookie. He hit a sacrifice fly. I couldn’t argue. I was 20 years old and just happy to be in the big leagues. And Spahnnie was a good hitter.
+ - If all of us who love baseball and are doing our jobs, then those who get the game from us will be as proud to be a part of it as we were. And we are. This game is a gift, and I am humbled, very humbled, to accept its greatest honor.
+ - You have to fix something when it first appears.
+ - Every place where I played or managed is special to me because of the memories and the friendships that each afforded me.
+ - Years ago, you never concerned yourself with pitch counts. Now, with statistics telling you that between this number and that number bad things happen to this particular pitcher, you have to pay attention to it. The bullpen has become a huge part of what happens now.
+ - You get to the big leagues, and you think, ‘Can I do this stuff?’ Then you take the first pitch down the middle for Strike 1, and you think, ‘I could have hit that.’
+ - Winning is a lot of fun. I remember having a meeting a couple years ago and telling the guys: ‘You’re not enjoying yourselves.’ O’Neill said to me afterwards, ‘Skip, it’s not fun unless you win.’
+ - If you do the best you can, you never have to look back.
+ - Jerry Coleman was the kind of player who made me proud to wear the pinstripes.
+ - Watching other teams in the World Series is like watching somebody else eat a Hot Fudge Sundae.
+ - Umpires sometimes have a quick trigger.
+ - You’re always in the storm’s eye, so to speak, when you’re with the Yankees.
+ - Every time I pull somebody out of the bullpen, I believe he can do the job. I have to believe it. If he doesn’t, hopefully he will do it the next time.
+ - Chicago is a pretty good town.
+ - I don’t think there’s any player that’s more talented than Alex Rodriguez. He cares very deeply about doing well. Baseball is his life. He puts a lot of pressure on himself.
+ - You don’t catch the knuckleball, you defend against it.
+ - I’ve been very, very fortunate. I never had to work for a living.
+ - When you take a job, you don’t just accept the pats on the back. You have to accept the kicks in the pants.
+ - We’ve got to decide, how much replay do we want? Because if you start doing it from the first inning to the ninth inning, you may have to time the game with a calendar.
+ - I met Tiger Woods, and I looked in his eyes – and I saw Derek Jeter. They don’t have to tell people they’re good. They just prove it by the way they love the competition.
+ - Pitchers make adjustments, and it’s up to the hitters to readjust and sort of tweak what they do.
+ - I feel very fortunate to have broken in with the Milwaukee Braves organization.
+ - I’ve seen that picture before. It was a two-seamer that didn’t sink until it hit the upper deck somewhere.
+ - It just feels good to beat the world champs to be the world champs.
+ - You look at a guy who’s being brave. He’s afraid, or he wouldn’t be brave. If he isn’t afraid, he’s stupid.
+ - You know, Mike Milken, the money that he has raised for cancer research has been remarkable.
+ - I played for 18 years, but the only thing that meant anything to me was the World Series.
+ - I don’t have a great deal of stress job-wise in my life, and that feels good.
+ - It’s not easy to just say you don’t want to do something any more.
+ - Baseball has changed dramatically since I began my tenure with the Yankees.
+ - Golf is the only game I know where you call a foul on yourself.
+ - Kids are much more intuitive these days. Not that I’m crazy about what’s on TV, but they know so much these days.
+ - That’s what I’d like to think that my reputation is – being honest.
+ - People are proud of their players.
+ - I won’t be managing the Mets. I am closing the door on managing the Mets and probably everybody else.
+ - As a player, to me the Dodgers were the Yankees of the National League because you either loved them or you hated them.
+ - If a club is winning, you never pay attention to a guy who’s 0-for-10. If a club is losing, all of a sudden you’ll find that he’s the main reason why you’re losing, which is absurd for me.
+ - After you manage the Yankees for 12 years, it’s really tough to envision going somewhere else. But then the Dodgers called.
+ - Spring Training is a fun time for me.
+ - I can understand the fact you don’t want the ball slipping out of a pitcher’s hand because someone can get hurt.
+ - My wife accuses me – and she’s probably right – that I’m sometimes oversensitive.
+ - Even though I was never a Yankee fan until I put on the uniform, when you think about the deep history of this organization, you always knew what the Yankees represented.
+ - I knew what the Dodgers uniform represented as a kid growing up in Brooklyn.
+ - I am deeply saddened and shocked at the loss of umpire Wally Bell.
+ - St. Louis has always been special to me.
+ - Million Dollar Arm touches on many of the Safe At Home Foundations core values, such as children, teamwork and family.
+ - As a member of a competitive team, you want to make sure you have yourself ready to play. You don’t control anything but what you do.
+ - I just don’t like to dwell on stuff.
+ - There will be a time when everyone on the team is going to contribute to winning a pennant.
+ - I was always a little hesitant to accuse people of loading a bat to hit a ball farther. I was always very hesitant to approach people because I never had any evidence that I had firsthand knowledge of.
+ - Not that managing in the American League is easy, but this is certainly different. I’ll have to have somebody poke me in the rear end when I have a pitcher that’s going to hit.
+ - Baseball, while you’re doing it, you think it’s going to last forever.
+ - I believe anybody who is not afraid to fail is a winner.
+ - I know in the heat of battle, it’s hard not to get angry, especially in the 19th inning.
+ - In baseball, you’re always moving people around.
+ - I think that I have a sensitivity toward people, and that is a strength.
+ - My 12 years in New York were very, very special, the fans were very special, and it’s something I will take with me wherever I go and into retirement.
+ - When I was coming home from school as a youngster, and I saw my dad’s car in the driveway, I would go to a friend’s house. I connected my dad being there with fear.
+ - You hear the word ‘cancer,’ it scares you. You think of death.
+ - Baseball is a team sport played by individuals for themselves.
+ - You could have the bases loaded, and you bring up the best pinch-hitter in the world to pinch hit, he hits into a double play, and then all of a sudden: ‘How could you do that?’
+ - I wish I could paint that picture. As a 20-year-old kid, that was a big thrill.
+ - I think that winning creates chemistry, as opposed to other way around. I’ve been on a lot of friendly teams that couldn’t win, trust me.
+ - I never concerned myself with other people’s decisions.
+ - Whatever sport you’re looking at, it’s usually the team that makes the least mistakes that has the most success.
+ - When you sign on to do a job, you hope you’ll be able to get it done. But that’s not always in your control.
+ - It’s my job that if somebody wants to have a discussion about something, I’m certainly sensitive to that, and I’m willing to do it.
+ - I think there’s more of opportunity to win games in the National League than the American League because there are more decisions to make.
+ - Stress is something that is sort of out of your control. You get stressed out over looking at the finish line. Stress is something that is an outside thing. Stress is an anxiety.
+
+102 quotes

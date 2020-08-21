@@ -1,0 +1,42 @@
+ - The trouble is, you think you have time. ~~Buddha
+ - Think higher, feel deeper. ~~Elie Wiesel
+ - Please think about your legacy, because you’re writing it every day. ~~Gary Vaynerchuk
+ - Our anxiety does not come from thinking about the future, but from wanting to control it. ~~Khalil Gibran
+ - Self-disciplined begins with the mastery of your thoughts. If you don’t control what you think, you can’t control what you do. Simply, self-discipline enables you to think first and act afterward. ~~Napoleon Hill
+ - If you can’t stop thinking about it, don’t stop working on it. ~~Michael Jordan
+ - You may think I’m small, but I have a universe inside my mind. ~~Yoko Ono
+ - Instead of thinking outside the box, get rid of the box. ~~Deepak Chopra
+ - Do not overestimate the competition and underestimate yourself. You are better than you think. ~~Tim Ferriss
+ - Start small, think big. Don’t worry about too many things at once. Take a handful of simple things to begin with, and then progress to more complex ones. Think about not just tomorrow, but the future. Put a ding in the universe. ~~Steve Jobs
+ - We think too much and feel too little. ~~Charlie Chaplin
+ - We are like magnets – like attract like. You become AND attract what you think. ~~Rhonda Byrne
+ - They deem me mad because I will not sell my days for gold; and I deem them mad because they think my days have a price. ~~Khalil Gibran
+ - Your problems is that you think you have time. ~~Carlos Castaneda
+ - Music is a higher revelation than all wisdom and philosophy. Music is the electrical soil in which the spirit lives, thinks and invents. ~~Ludwig van Beethoven
+ - Authenticity is the daily practice of letting go of who we think we’re supposed to be and embracing who we are. ~~Brené Brown
+ - Age is whatever you think it is. You are as old as you think you are. ~~Muhammad Ali
+ - In today’s rush we all think too much, seek too much, want too much and forget about the joy of just Being. ~~Eckhart Tolle
+ - Science is a way of thinking much more than it is a body of knowledge. ~~Carl Sagan
+ - Psychology is action, not thinking about oneself. ~~Albert Camus
+ - Your words will tell others what you think. Your actions will tell them what you believe. ~~T.D. Jakes
+ - If you don’t have time, the truth is, you don’t have priorities. Think harder; don’t work harder. ~~Tim Ferriss
+ - If you ever think about giving up, remember why you held on for so long. ~~Hayley Williams
+ - We become what we think about. ~~Earl Nightingale
+ - Think big and don’t listen to people who tell you it can’t be done. Life’s too short to think small. ~~Tim Ferriss
+ - The future is a concept, it doesn’t exist. There is no such thing as tomorrow. There never will be, because time is always now. That’s one of the things we discover when we stop talking to ourselves and stop thinking. We find there is only present, only an eternal now. ~~Alan Watts
+ - He who learns but does not think, is lost. He who thinks but does not learn is in great danger. ~~Confucius
+ - At the end of the day, we can endure much more than we think we can. ~~Frida Kahlo
+ - A person who thinks all the time has nothing to think about except thoughts. So he loses touch with Reality, and lives in a world of illusion. ~~Alan Watts
+ - We are dying from overthinking. We are slowly killing ourselves by thinking about everything. Think. Think. Think. You can never trust the human mind anyway. It’s a death trap. ~~Anthony Hopkins
+ - The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom. ~~Isaac Asimov
+ - Be bold and don’t worry about what people think. They don’t do it that often anyway. ~~Tim Ferriss
+ - People eat meat and think they will become as strong as an ox, forgetting that the ox eats grass. ~~Pino Caruso
+ - Clear thinking requires courage rather than intelligence. ~~Thomas Stephen Szasz
+ - It isn’t enough to think outside the box. Thinking is passive. Get used to acting outside the box. ~~Tim Ferriss
+ - As you dissolve into love, your ego fades. You’re not thinking about loving; you’re just being love, radiating like the sun. ~~Ram Dass
+ - Don’t think about the past. Just be here now. ~~Ram Dass
+ - I don’t consider myself a pessimist. I think of a pessimist as someone who is waiting for it to rain. And I feel soaked to the skin. ~~Leonard Cohen
+ - My idea of Christmas, whether old-fashioned or modern, is very simple: loving others. Come to think of it, why do we have to wait for Christmas to do that? ~~Bob Hope
+ - I can’t think of anything better in the world to be but a vegan. ~~Alicia Silverstone
+
+40 quotes

@@ -1,0 +1,24 @@
+ - It’s easier to change what you do than people think it is. If you don’t change, your field changes around you.
+ - We are embedded in a biological world and related to the organisms around us.
+ - Early on, it’s good to develop the ability to write. Learning to write is a useful exercise, even if what you’re writing about is not that relevant.
+ - The virtues of science are skepticism and independence of thought.
+ - Why do we do basic research? To learn about ourselves.
+ - Biology will relate every human gene to the genes of other animals and bacteria, to this great chain of being.
+ - Science doesn’t in the slightest depend on trust. It depends completely on the belief that you can demonstrate something for yourself.
+ - Biology will tell you a lot of things, but there are many that it can not explain and you need to look at physics instead.
+ - The community as a whole doesn’t listen patiently to critics who adopt alternative viewpoints. Although the great lesson of history is that knowledge develops through the conflict of viewpoints.
+ - The interaction of the variation in our genes is what’s responsible for lots of our attributes and vigor.
+ - Scientists tend to be skeptical, but the weakness of the community of science is that it tends to move into preformed establishment modes that say this is the only way of doing science, the only valid view.
+ - Here is a human being; it’s me!
+ - We haven’t been able yet to determine in terms of genes what makes a human being a human and not another mammal.
+ - We know specific genes are turned on in specific cells, but we don’t know to what extent this happens.
+ - The best project is one that asks a novel question.
+ - By asking a novel question that you don’t know the answer to, you discover whether you can formulate a way of finding the answer, and you stretch your own mind, and very often you learn something new.
+ - Error is far more common than fraud which probably comprises 1 percent or a tenth of a percent of the literature.
+ - The human’s place in the universe will be set in the scheme of evolution, the product of our biological inheritance.
+ - In 15 years we’ll have all the sequence, a list of the genes everyone has in common and those that differ among people. We know only something like a tenth of 1 percent of the sequence at the moment.
+ - Everyone wants a hand in the outcome, a piece of the knowledge.
+ - Today we try to identify a gene and then study its properties.
+ - I have the same sense of the power and virtue of knowledge that some people get from a religious background.
+
+22 quotes

@@ -1,0 +1,22 @@
+ - We must travel in the direction of our fear.
+ - We have reason to be afraid. This is a terrible place.
+ - You should always be trying to write a poem you are unable to write, a poem you lack the technique, the language, the courage to achieve. Otherwise you’re merely imitating yourself, going nowhere, because that’s always easiest.
+ - Them lady poets must not marry, pal.
+ - I cry. Evil dissolves, and love, like foam; that love. Prattle of children powers me home, my heart claps like the swan’s under a frenzy of who love me and who shine.
+ - Life, friends, is boring. We must not say so. After all, the sky flashes, the great sea yearns, we ourselves flash and yearn.
+ - Bats have no bankers and they do not drink and cannot be arrested and pay no tax and, in general, bats have it made.
+ - This world is gradually becoming a place Where I do not care to be any more.
+ - We are using our own skins for wallpaper and we cannot win.
+ - I think that what happens in my poetic work in the future will depend on my being knocked in the face, and thrown flat, and given cancer, and all kinds of other things short of senile dementia.
+ - Two daiquiris withdrew into a corner of a gorgeous room and one told the other a lie.
+ - Life, friends, is boring. We must not say so.
+ - I am so wise I had my mouth sewn shut.
+ - Literature bores me, especially great literature.
+ - I can offer you only: this world like a knife.
+ - So if I were talking to a young writer, I would recommend the cultivation of extreme indifference to both praise and blame because praise will lead you to vanity, and blame will lead you to self-pity, and both are bad for writers.
+ - Praise will lead you to vanity, and blame will lead you to self-pity, and both are bad for writers.
+ - Offering Dragons quarter is no good, they regrow all their parts and come on again. They have to be killed.
+ - One must be ruthless with one’s own writing or someone else will be.
+ - I didn’t want to be like Yeats; I wanted to be Yeats.
+
+20 quotes

@@ -1,0 +1,21 @@
+ - Perfect people are the scariest people to me.
+ - Thank God I didn’t put my career over family. That would have been the biggest mistake of my life. I’m really happy it went the way it did.
+ - I remember, as a kid, my dad always told me, “Getting older beats the alternative.” Although, now my father actually is the alternative, so I don’t know what he would say. He’s completely dead.
+ - Women love hairy men. Cavemen were the sexiest men in history.
+ - I like dark humor. My favorite movie of all time is ‘Harold and Maude.’
+ - I observe a lot of you drunk people. What I do is I just let myself go there and fully commit to that drunk thing, not that I’ve ever done that myself. I’ve had a lot of practice. Let’s be honest.
+ - Everything is a struggle. Everything is relative, too, so I still feel like I’m struggling, in many aspects. I’m not worried about paying my rent next month, but in about two months, we’ll see.
+ - I have lunches with my girlfriends, who just turned 40, and some of those lunches, we’re crying and screaming about our husbands, saying we want to leave them and run away. And then, other lunches, we’re fine and love our husbands and are happy with our lives.
+ - When I was 9, my parents let me take a cab to the mall all by myself. I had hardly any money to spend, but I did have a very specific list of things I wanted to do: buy cookies and sit on the furniture at Sears.
+ - I bring a poofy gray down jacket with me wherever I go. It’s meant for winter, but I use it most in the summer, when everyone cranks up the air-conditioning.
+ - I’m pretty much game for anything.
+ - When I was in acting class, we did a lot of really serious scenes, and we didn’t do comedic scenes. I felt like doing those scenes, it didn’t come out of my mouth the right way. I don’t know if it’s because my voice is different, or what it is about me, but it just seemed a little off.
+ - I like more grounded comedy. I enjoy broad comedies also, but I like Shirley MacLaine.
+ - Nine to Five is actually one of my favorite movies. I watched it a thousand times when I was a child, literally a thousand times.
+ - Written by a woman automatically is better.
+ - I don’t understand why people think it’s harder to do drama than it is to do comedy.
+ - I’ve always been intrigued by the supernatural.
+ - When I started auditioning, I’d take any audition I could get. The more dramatic ones didn’t go as well as the comedic.
+ - I’m terrified by speaking in front of people!
+
+19 quotes

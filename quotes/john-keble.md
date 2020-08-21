@@ -1,0 +1,22 @@
+ - New every morning is the love Our waking and uprising prove, Through sleep and darkness safely brought, Restored to life and power and thought.
+ - Peace is the first thing the angels sang.
+ - If the Church of England were to fail, it would be found in my parish.
+ - When you find yourself overpowered, as it were, by melancholy, the best way is to go out and do something.
+ - Sweet is the smile of home; the mutual look when hearts are of each other sure.
+ - Give us grace to listen well.
+ - When the shore is won at last, Who will count the billow past?
+ - Pride of the dewy morning, The swain’s experienced eye From thee takes timely warning. Nor trusts the gorgeous sky.
+ - And help us, this and every day, to live more nearly as we pray.
+ - The voice that breathed o’er Eden, That earliest wedding day.
+ - As fire kindled by fire, so is the poet’s mind kindled by contact with a brother poet.
+ - Blest are the pure in heart, for they shall see our God. The secret of the Lord is theirs; Their soul is Christ’s abode.
+ - Sun of my soul! Thou Saviour dear, It is not night if Thou be near.
+ - Soft as Memnon’s harp at morning, To the inward ear devout, Touched by light, with heavenly warning Your transporting chords ring out. Every leaf in every nook, Every wave in every brook, Chanting with a solemn voice Minds us of our better choice.
+ - Sweet is the infant’s waking smile, And sweet the old man’s rest – But middle age by no fond wile, No soothing calm is blest.
+ - Sprinkled along the waste of years Full many a soft green isle appears: Pause where we may upon the desert road, Some shelter is in sight, some sacred safe abode.
+ - The watchful mother tarries nigh, though sleep has closed her infants eyes.
+ - God hath sworn to lift on high Who sinks himself by true humility.
+ - Once you make up your mind never to stand waiting and hesitating when your conscience tells you what you ought to do, and you have got the key to every blessing that a sinner can reasonably hope for.
+ - Time’s waters will not ebb nor stay.
+
+20 quotes

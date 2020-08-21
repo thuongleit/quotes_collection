@@ -1,0 +1,87 @@
+ - My helmet is off; I’m not afraid anymore.
+ - Tomorrow doesn’t really exist.
+ - One thing I’ve learned about life is that if you really let go, it’s just a joy ride.
+ - It’s funny, people say ‘Welcome back’ when I haven’t gone anywhere.
+ - I don’t care what people think about me because I know I am more than all the pain and strife they hold inside.
+ - I got high, and forgot I wasn’t supposed to get high.
+ - I’ve always been attracted to things that are taboo. I’ve never been afraid to go to that dark place.
+ - It used to be irritating just because someone can meet you and before they would get a chance to get to know you, they’ll go find someone else’s story about who I am. For me personally, I just always think it’s more interesting to get to know the person myself.
+ - The moment I started treating my social anxiety disorder, I started feeling better.
+ - I have no room in my life for any form of negativity or nonacceptance.
+ - Sometimes success will get in the way of maturity – at least temporarily.
+ - I do feel like a loner but I think it’s because I look at things differently than other people.
+ - There is no need to smear my name or to defame my character for the sake of news.
+ - I am an honest, God-fearing man who is intensely dedicated to being the best person I can be on and off the football field.
+ - Now that I have conquered social anxiety disorder, I find pleasure in fans approaching me.
+ - Everywhere I go, I hear ‘Welcome back.’ But everywhere I have been, I have always been with myself. I’m with myself now more than ever. It’s funny people say ‘Welcome back’ when I haven’t gone anywhere.
+ - Maybe I’m stupid or whatever, but to me if I got a concussion, if I could see straight and I could carry a football then I’m not telling anybody.
+ - A team takes on the personality of the head coach.
+ - Football is my job, not my life, but it’s a job I’m going to give my all for as long as I’m in it.
+ - Everywhere I go, people hear Ricky Williams and the next thing they think is marijuana or wasted talent.
+ - I’m nice because, when I was growing up, so many people weren’t nice to me, and I remember how that felt. And I don’t want to make anyone else feel like that. I value nice.
+ - I definitely have come out of my shell a lot more. When you question who you are, you can’t be proud of who you are. Now that I’m trying to peel off those layers and really understand who I am, I don’t have anything to be shy about.
+ - I’ve gotten to a point, where I realize that happiness doesn’t come from the outside.
+ - I started practicing yoga. I started learning some hands-on healing stuff. And I found really good chiropractors, really good massage therapists, and what I found is I’ve been able to actually peel off layers of trauma on my body and actually move better now than I did.
+ - I don’t think people change. I think they definitely mature. But I think the essence of what I am today is the same as when I was five years old. It’s just maturity. I’ve become a healthier, fuller expression of that essence.
+ - I’ve always been shy, but in New Orleans there were times my shyness would cause me actual physical pain. I’d get so claustrophobic around people that I’d bend over from the sickness in my stomach. That’s not a good way to be when you’re famous, obviously.
+ - Anytime you play a team sport, the success of the team really makes everything better. It’s nice.
+ - If you replace the word God in the Bible with the word Truth, it reads exactly right.
+ - It’s something that I had been pushing down my whole life. The search for meaning, I guess, the whispering of the soul.
+ - I’m halfway intelligent. I’ll figure something out.
+ - There’s nothing I miss about anything in the whole wide world. The idea of missing something means you’re not living in the moment. Every moment is good for something.
+ - Growing up with two sisters, you either play by yourself or play Barbie with them. I played by myself.
+ - Texas was such a welcoming place, and with its unbelievable history and tradition, it’s extra special to be a part of that.
+ - Coaches want so many things from a back. It’s hard to find someone like Edgerrin James or Marshall Faulk, someone you can trust to block, catch and be physical. But I can do all those things.
+ - The people that I see on the street, they treat me more as a human being and not just an icon or a football player.
+ - I feel no need and have no desire to give any attention to other people’s opinion of me.
+ - I am more mature. I’m a better football player. I just feel like this is my time.
+ - One of my biggest problems is that I’m always so influenced by what other people are thinking about me.
+ - I think it’s very easy for people to stereotype athletes, good and bad.
+ - When I retired, I felt that I lived more in that year than I had the previous 27 years of my life.
+ - I really do love football.
+ - And I think if you look at any relationship, for the relationship to be productive and to move forward and to grow, sometimes things have to be said that one person or the other person is not going to like to hear.
+ - I’ve let a lot of things go, and obviously football is one of them. I think the hardest thing to let go is your self-image. That’s what I’m working on now.
+ - It’s good to do things slow in the bush. It makes you appreciate everything a lot more.
+ - I think sometimes when it comes to sports, and especially relationships between players and coaches, that people lose track, lose a sense of reality.
+ - I want to really start focusing on what I want to accomplish and what it is I want to achieve, but not micromanaging this or that and focusing on the little things.
+ - The more I pay attention to what’s going on inside, the more I realize that how I feel, and how I react to what I feel, really creates my reality. And the more in touch I can be, the better chance I have to control what’s happening in my life.
+ - I wouldn’t eat a chicken if it dropped dead in front of me holding up a sign that said, Eat Me.
+ - I think I have a tendency to look at things subjectively rather than objectively when I reflect on my experience.
+ - In therapy, I see myself in the mirror differently.
+ - There’s more to life than success, and if you can try to be more well-rounded, you’ll be able to enjoy your success more. It won’t own you or control you.
+ - I think if I were a college professor, no one would say I was uncomfortable about being shy because that might be expected. But I think because of people’s stereotypes, they think of a football player as someone who is very outgoing and I’m not.
+ - If you want to surf, move to Hawaii. If you like to shop, move to New York. If you like acting and Hollywood, move to California. But if you like college football, move to Texas.
+ - I’ve had a lot of clouds in my life since I got into pro football – too many – but now I feel like I can see really clearly for the first time. And I can see the Super Bowl from here.
+ - As human beings we have a tendency when we like something to tie it up and make sure it’s there for a long time. I’ve been working on being able to let things go. I don’t think I ever want to buy property again.
+ - Playing in the National Football League, you’re told, you know, where to be, when to be there, what to wear, how to be there. Being able to step away from that, I have an opportunity to look deeper into myself and look for what’s real.
+ - If you identify yourself as a great football player, anytime anyone challenges that, you’re going to have some kind of problem.
+ - The NFL has been an amazing page in this chapter of my life. I pray that all successive adventures offer me the same potential for growth, success and most importantly fun.
+ - The money is what made me miserable. I want to be free of that stress.
+ - After I won the Heisman Trophy, it just was OK, I’m supposed to go to the NFL and so that’s what I did. I didn’t really have any expectations and I didn’t really understand how things worked.
+ - I’m a huge gamer, everything from PC to Xbox to PS2.
+ - As an athlete, you figure you work your whole life to have what you have, and to be able to show the world what you have and how proud you are of it, that’s always fun.
+ - I had a lot of friends in high school and in college, and we had a good time.
+ - At the core, we’re all spiritual beings.
+ - If I was doing something for the money, I’d be quite miserable.
+ - I would drive home and see people wearing my No. 34 jersey and wonder why, because I didn’t feel worthy of that. And all the time I just knew people were staring at me, talking about me everywhere I went.
+ - I want people to think they can’t die until they see me play.
+ - What I would tell young players is that as you get older, the best thing you can do is try to have other interests and have opportunities.
+ - I like to live in places that are kind of off in the cuts so people can’t really find me even if they wanted to.
+ - I had this notion that everyone was staring at me and judging everything about me, from my appearance to the way I talk and everything.
+ - People are hungry because they’re eating empty foods. Mine are full, and so am I.
+ - Well, I am now convinced there is no kind of fear or anxiety anyone has to live with.
+ - I stepped away to find out more about myself, which I was having difficulty doing as a football player. I got a chance to travel the world. I studied Eastern philosophy, and I’ve grown as a person so much.
+ - I’m closer to being happy. I’m doing things that make me happy. In football I loved to practice and I loved to play, but I hated to be in meetings, hated to talk to the media, hated to have cameras in my face, hated to sign autographs. I hated to do all those things.
+ - I think Ricky Williams had his time in the limelight. And I think it was good for what it was worth, and that was that.
+ - I allowed myself to think if I could be doing anything in the world, what would I be doing? And what came to mind is I’d be traveling a little bit, I’d be going to classes and I’d be going back to school.
+ - Human beings aren’t supposed to be controlled and told what to do.
+ - I don’t believe in regret.
+ - Greatness is the willingness to choose in the midst of intensity.
+ - I don’t feel like my speed or my power or my desire to play this game has diminished at all.
+ - I’ve never been in trouble with the police.
+ - Well, I don’t think I’ve necessarily ever been a passionate football player or a passionate person.
+ - If I can walk, I’ll play.
+ - When you make that crossover from life to real life, when you’re not treated as a child anymore but as a man, and you are no longer given the benefit of the doubt, it takes some courage to face that.
+ - I want to thank all my fans, teammates, coaches and supporters for the strength they’ve given me to overcome so much.
+
+85 quotes

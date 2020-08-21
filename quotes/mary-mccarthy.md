@@ -1,0 +1,102 @@
+ - In violence, we forget who we are.
+ - The comic element is the incorrigible element in every human being; the capacity to learn, from experience or instruction, is what is forbidden to all comic creations and to what is comic in you and me.
+ - You can date the evolving life of a mind, like the age of a tree, by the rings of friendship formed by the expanding central trunk.
+ - Calling someone a monster does not make him more guilty; it makes him less so by classing him with beasts and devils.
+ - In science, all facts, no matter how trivial or banal, enjoy democratic equality.
+ - The happy ending is our national belief.
+ - Any sizeable Portuguese town looks like a superstitious bride’s finery – something old, something new, something borrowed, and something blue.
+ - Old money is fully as moronic as new money but it has inherited an appearance of cultivation.
+ - For self-realization, a rebel demands a strong authority, a worthy opponent, God to his Lucifer.
+ - What’s the use of falling in love if you both remain inertly as you were?
+ - Every age has a keyhole to which its eye is pasted.
+ - As subjects, we all live in suspense, from day to day, from hour to hour; in other words, we are the hero of our own story. We cannot believe that it is finished, that we are ‘finished,’ even though we may say so; we expect another chapter, another installment, tomorrow or next week.
+ - Driving a car, you are in danger of killing; walking or standing, of being killed.
+ - The idea of Macbeth as a conscience-torm ented man is a platitude as false as Macbeth himself. Macbeth has no conscience. His main concern throughout the play is that most selfish of all concerns: to get a good night’s sleep.
+ - Every age has a keyhole to which its eye is pasted. Spicy court-memoirs, the lives of gallant ladies, recollections of an ex-nun, a monk’s confession, an atheist’s repentance, true-to-life accounts of prostitution and bastardy gave our ancestors a penny peep into the forbidden room.
+ - The strongest argument for the un-materialistic character of American life is that we tolerate conditions that are, from a materialistic point of view, intolerable.
+ - Scratch a socialist and you find a snob.
+ - The erotic element always present in fashion, the kiss of loving labor on the body, is now overtly expressed by language. Belts hug or clasp; necklines plunge; jerseys bind. The word exciting tingles everywhere.
+ - Venice is the worlds unconscious: a misers glittering hoard, guarded by a Beast whose eyes are made of white agate, and by a saint who is really a prince who has just slain a dragon.
+ - The perennial wonder of Venice is to peer at herself in her canals and find that she exists-incredible as it seems. It is the same reassurance that a looking-glass offers us: the guarantee that we are real.
+ - The dictator is also the scapegoat; in assuming absolute authority, he assumes absolute guilt; and the oppressed masses, groaning under the yoke, know themselves to be innocent as lambs, while they pray hypocritically for deliverance.
+ - A good deal of education consists of unlearning-the breaking of bad habits as with a tennis serve.
+ - Proscription, martial law, the billeting of the rude troops, the tax collector, the unjust judge, anything at all, is sweeter than responsibility.
+ - With extramarital courtship, the deception was prolonged where it had been ephemeral, necessary where it had been frivolous, conspiratorial where it had been lonely.
+ - It has to be acknowledged that in capitalist society, with its herds of hippies, originality has become a sort of fringe benefit, a mere convention, accepted obsolescence, the Beatnik model being turned in for the Hippie model, as though strangely obedient to capitalist laws of marketing.
+ - Our language, once homely and colloquial, seeks to aggrandize our meanest activities with polysyllabic terms or it retreats from frankness into a stammering verbosity.
+ - The relation between life and literature – a final antimony – is one of mutual plagiarism.
+ - Anybody who has ever tried to rectify an injustice or set a record straight comes to feel that he is going mad.
+ - In moments of despair, we look on ourselves lead-enly as objects; we see ourselves, our lives, as someone else might see them and may even be driven to kill ourselves if the separation, the “knowledge,” seems sufficiently final.
+ - The things of this world reveal their essential absurdity when they are put in the Venetian context. In the unreal realm of the canals, as in a Swiftian Lilliput, the real world, with its contrivances, appears as a vast folly.
+ - Feminism is ridiculous. Feminists are silly idealists who want to be on top. There is no real equality in sexual relationships – someone always wins.
+ - Others are to us like the characters in fiction, eternal and incorrigible; the surprises they give us turn out in the end to have been predictable and unexpected variations on the theme of being themselves.
+ - Leisure was the sine qua non of the full Renaissance. The feudal nobility, having lost its martial function, sought diversion all over Europe in cultivated pastimes: sonneteering, the lute, games and acrostics, travel, gentlemanly studies and sports, hunting and hawking, treated as arts.
+ - The labor of keeping house is labor in its most naked state, for labor is toil that never finishes, toil that has to be begun again the moment it is completed, toil that is destroyed and consumed by the life process.
+ - Modern neurosis began with the discoveries of Copernicus. Science made men feel small by showing him that the earth was not the center of the universe.
+ - Life is a system of recurrent pairs, the poison and the antidote being eternally packaged together by some considerate heavenly druggist.
+ - If you talked or laughed in church, told lies, had impure thoughts or conversations, you were bad; if you obeyed your parents or guardians, went to confession and communion regularly, said prayers for the dead, you were good.
+ - It is impossible, except for theologians, to conceive of a world-wide scandal or a universe-wide scandal; the proof of this is the way people have settled down to living with nuclear fission, radiation poisoning, hydrogen bombs, satellites, and space rockets.
+ - There are no new truths, but only truths that have not been recognized by those who have perceived them without noticing.
+ - The suspense of a novel is not only in the reader, but in the novelist, who is intensely curious about what will happen to the hero.
+ - Labor is work that leaves no trace behind it when it is finished, or if it does, as in the case of the tilled field, this product of human activity requires still more labor, incessant, tireless labor, to maintain its identity as a ‘work’ of man.
+ - Making love, we are all more alike than we are when we are talking or acting.
+ - An unrectified case of injustice has a terrible way of lingering, restlessly, in the social atmosphere like an unfinished question.
+ - To be disesteemed by people you don’t have much respect for is not the worst fate.
+ - All dramatic realism is somewhat sadistic; an audience is persuaded to watch something that makes it uncomfortable and from which no relief is offered – no laughter, no tears, no purgation.
+ - People with bad consciences always fear the judgment of children.
+ - On the wall of our life together hung a gun waiting to be fired in the final act.
+ - Congress-these, for the most part, illiterate hacks whose fancy vests are spotted with gravy, and whose speeches, hypocritical, unctuous, and slovenly, are spotted also with the gravy of political patronage.
+ - The horror of Gandhi’s murder lies not in the political motives behind it or in its consequences for Indian policy or for the future of non-violence; the horror lies simply in the fact that any man could look into the face of this extraordinary person and deliberately pull a trigger.
+ - For both writer and reader, the novel is a lonely, physically inactive affair. Only the imagination races.
+ - Like Michelangelo and Cellini, Florentines of every station are absorbed in acquiring real estate: a little apartment that can be rented to foreigners; a farm that will supply the owner with oil, wine, fruit, and flowers for the house.
+ - I was going to get myself recognized at any price. If I could not win fame by goodness, I was ready to do it by badness.
+ - All ideas advanced to deal with the Florentine noise problem, the Florentine traffic problem, are Utopian, and nobody believes in them, just as nobody believed in Machiavelli’s Prince, a Utopian image of the ideally self-interested despot.
+ - In morals as in politics anarchy is not for the weak.
+ - Who are the advertising men kidding, besides the European tourist? Between the tired, sad, gentle faces of the subway riders and the grinning Holy Families of the Ad-Mass, there exists no possibility of even a wishful identification.
+ - When an American heiress wants to buy a man, she at once crosses the Atlantic. The only really materialistic people I have ever met have been Europeans.
+ - What I really do is take real plums and put them in an imaginary cake.
+ - The furniture and trappings in the apartment are all in a state of flux – here today, gone tomorrow. Nothing is anchored to its place, not even the coffee-pot, which floats off and returns, on the tide of the signora’s marine nature.
+ - A novelist is an elephant, but an elephant who must pretend to forget.
+ - The present can try to bury the past, an operation that is most atrocious when it is most successful.
+ - The famous Florentine elegance, which attracts tourists to the shops on Via Tornabuoni and Via della Vigna Nuova, is characterized by austerity of line, simplicity, economy of effect.
+ - I am for the ones who represent sense, and so was Jane Austen.
+ - The fact is that gardening, more than most of our other activities except sometimes love-making, confronts us with the inexplicable.
+ - I really tried, or so I thought, to avoid lying, but it seemed to me that they forced it on me by the difference in their vision of things, so that I was always transposing reality for them into something they could understand.
+ - Liberty, as it is conceived by current opinion, has nothing inherent about it; it is a sort of gift or trust bestowed on the individual by the state pending good behavior.
+ - My occupational hazard is that I can’t help plagiarizing from real life.
+ - Anti-Semitism is a horrible disease from which nobody is immune, and it has a kind of evil fascination that makes an enlightened person draw near the source of infection, supposedly in a scientific spirit, but really to sniff the vapors and dally with the possibility.
+ - A society person who is enthusiastic about modern painting or Truman Capote is already half a traitor to his class. It is middle-class people who, quite mistakenly, imagine that a lively pursuit of the latest in reading and painting will advance their status in the world.
+ - The desire to believe the best of people is a prerequisite for intercourse with strangers; suspicion is reserved for friends.
+ - Laughter is the great antidote for self-pity, maybe a specific for the malady, yet probably it does tend to dry one’s feelings out a little, as if by exposing them to a vigorous wind...
+ - In politics, it seems, retreat is honorable if dictated by military considerations and shameful if even suggested for ethical reasons.
+ - We are a nation of 20 million bathrooms, with a humanist in every tub.
+ - If one means by style the voice, the irreducible and always recognizable and alive thing, then of course style is really everything.
+ - I’m afraid I’m not sufficiently inhibited about the things that other women are inhibited about for me. They feel that you’ve given away trade secrets.
+ - Maybe any action becomes cowardly once you stop to reason about it.
+ - Labor is work that leaves no trace behind it when it is finished.
+ - The passion for fact in a raw state is a peculiarity of the novelist.
+ - Once the state is looked upon as the source of rights, rather than their bound protector, freedom becomes conditional on the pleasure of the state.
+ - Is it really so difficult to tell a good action from a bad one? I think one usually knows right away or a moment afterward, in a horrid flash of regret.
+ - The immense popularity of American movies abroad demonstrates that Europe is the unfinished negative of which America is the proof.
+ - The only form of action open to a child is to break something or strike someone, its mother or another child; it cannot cause things to happen in the world.
+ - For me, in fact, the mark of the historic is the nonchalance with which it picks up an individual and deposits him in a trend, like a house playfully moved by a tornado.
+ - Every word she writes is a lie, including “and” and “the.”
+ - Venice, as a city, was a foundling, floating upon the waters like Moses in his basket among the bulrushes.
+ - Whenever in history, equality appeared on the agenda, it was exported somewhere else, like an undesirable.
+ - The return to a favorite novel is generally tied up with changes in oneself that must be counted as improvements, but have the feel of losses. It is like going back to a favorite house, country, person; nothing is where it belongs, including one’s heart.
+ - The theater is the only branch of art much cared for by people of wealth; like canasta, it does away with the brother of talk after dinner.
+ - Morality did not keep well; it required stable conditions; it was costly; it was subject to variations, and the market for it was uncertain.
+ - America is indeed a revelation, though not quite the one that was planned. Given a clean slate, man, it was hoped, would write the future. Instead, he has written his past.
+ - From what I have seen, I am driven to the conclusion that religion is only good for good people...
+ - Being abroad makes you conscious of the whole imitative side of human behavior. The ape in man.
+ - It really takes a hero to live any kind of spiritual life without religious belief.
+ - The rationalist mind has always had its doubts about Venice. The watery city receives a dry inspection, as though it were a myth for the credulous- poets and honeymooners.
+ - Bureaucracy, the rule of no one, has become the modern form of despotism.
+ - The Crucifixion and other historical precedents notwithstanding, many of us still believe that outstanding goodness is a kind of armor, that virtue, seen plain and bare, gives pause to criminality. But perhaps it is the other way around.
+ - Life for the European is a career; for the American it is a hazard.
+ - A politician or political thinker who calls himself a political realist is usually boasting that he sees politics, so to speak, in the raw; he is generally a proclaimed cynic and pessimist who makes it his business to look behind words and fine speeches for the motive. This motive is always low.
+ - The American character looks always as if it had just had a rather bad haircut, which gives it, in our eyes at any rate, a greater humanity than the European, which even among its beggars has all too much a professional air.
+ - I suppose everyone continues to be interested in the quest for the self, but what you feel when you’re older, I think, is that you really must make the self.
+ - We all live in suspense from day to day; in other words, you are the hero of your own story.
+
+100 quotes

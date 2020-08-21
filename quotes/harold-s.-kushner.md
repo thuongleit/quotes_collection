@@ -1,0 +1,75 @@
+ - Do things for people not because of who they are or what they do in return, but because of who you are.
+ - There is no right way to do a wrong thing.
+ - Being kind to others is a way of being good to yourself.
+ - When you are kind to others, it not only changes you, it changes the world.
+ - If you concentrate on finding whatever is good in every situation, you will discover that your life will suddenly be filled with gratitude, a feeling that nurtures the soul.
+ - I think of life as a good book. The further you get into it, the more it begins to make sense.
+ - One of the most sublime experiences we can ever have is to wake up feeling healthy after we have been sick.
+ - We can endure much more than we think we can; all human experience testifies to that. All we need to do is learn not to be afraid of pain. Grit your teeth and let it hurt. Don’t deny it, don’t be overwhelmed by it. It will not last forever. One day, the pain will be gone and you will still be there.
+ - You don’t become happy by pursuing happiness. You become happy by living a life that means something.
+ - When your life is filled with the desire to see the holiness in everyday life, something magical happens: Ordinary life becomes extraordinary, and the very process of life begins to nourish your soul.
+ - One man alone can’t defeat the forces of evil, but many good people coming together can.
+ - Children need parents who will let them grow up to be themselves, but parents often have personal agendas they try to impose on their children.
+ - You cannot control what happens to you in life, but you can always control what you will feel and do about what happens to you.
+ - Our souls are not hungry for fame, comfort, wealth, or power. Our souls are hungry for meaning, for the sense that we have figured out how to live so that our lives matter.
+ - If we put our soul into our work, if, rather than just going through the motions, what we do flows from the deepest part of our being, then after a burst of creativity, we need to replenish our souls.
+ - Never attribute to malice or other deliberate decision what can be explained by human frailty, imperfection, or ignorance.
+ - Life is like the baseball season, where even the best team loses at least a third of its games, and even the worst team has its days of brilliance. The goal is not to win every game but to win more than you lose, and if you do that often enough, in the end you may find you have won it all.
+ - You nourish your soul by fulfilling your destiny.
+ - When you carry out acts of kindness you get a wonderful feeling inside. It is as though something inside your body responds and says, yes, this is how I ought to feel.
+ - Other people may complicate our lives, but life without them would be unbearably desolate. None of us can be truly human in isolation. The qualities that make us human emerge only in the ways we relate to other people.
+ - Caring about others, running the risk of feeling, and leaving an impact on people brings happiness.
+ - When a mentally retarded child is born, the religious question we often ask is, “Why does God let this happen?” The better question to pose is to ask, “What kind of community should we be so that mental retardation isn’t a barrier to the enjoyment of one’s full humanity?”
+ - I believe that God is totally moral, but nature, one of God’s creatures, is not moral. Nature is blind.
+ - One of the basic needs of every human being is the need to be loved, to have our wishes and feelings taken seriously, to be validated as people who matter.
+ - Why bad things happen to good people.
+ - One of the sages of the Talmud taught nearly 200 years ago that God could have created a plant that would grow loaves of bread. Instead He created wheat for us to mill and bake into bread. Why? So that we could be HIs partners in completing the work of creation.
+ - God is like a mirror. The mirror never changes, but everybody who looks at it sees something different.
+ - I suspect that the happiest people you know are the ones who work at being kind, helpful and reliable – and happiness sneaks into their lives while they are busy doing those things. It is a by-product, never a primary goal.
+ - In all my years of counselling those near death, I’ve yet to hear anyone say they wish they had spent more time at the office.
+ - None of us has the power to make someone else love us. But we all have the power to give away love, to love other people. And if we do so, we change the kind of world we live in.
+ - The small choices and decisions we make a hundred times a day add up to determining the kind of world we live in.
+ - The God I believe in is not so fragile that you hurt Him by being angry at him, or so petty that He will hold it against you for being upset with Him.
+ - We have confused God with Santa Claus. And we believe that prayer means making a list of everything you don’t have but want and trying to persuade God you deserve it. Now I’m sorry, that’s not God, that’s Santa Claus.
+ - Think about it: it is easy to see God’s beauty in a glorious sunset or in ocean waves crashing on a beach. But can you find the holiness in a struggle for life?
+ - No good deed ever goes wasted.
+ - Pain is a part of being alive, and we need to learn that. Pain does not last forever, nor is it necessarily unbeatable, and we need to be taught that.
+ - We don’t have to be afraid of dying because it’s not really death that scares us. We are afraid of not having lived.
+ - The circumstances of your life have uniquely qualified you to make a contribution. And if you don’t make that contribution, nobody else can make it.
+ - The happiest people I know are people who don’t even think about being happy. They just think about being good neighbors, good people. And then happiness sort of sneaks in the back window while they are busy doing good.
+ - There is a Jewish notion that holiness is found with other people. To understand what life really is, one has to share it.
+ - We are here to change the world with small acts of thoughtfulness done daily rather than with one great breakthrough.
+ - That is why we have to make room in our lives for people who may sometimes disappoint or exasperate us. If we hold our friends to a standard of perfection, or if they do that to us, we will end up far lonelier than we want to be.
+ - Only a life of goodness and honesty leaves us feeling spiritually healthy and human.
+ - You don’t have to be religious to have a soul; everybody has one. You don’t have to be religious to perfect your soul; I have found saintliness in avowed atheists.
+ - When facing a dilemma, choose the more morally demanding alternative.
+ - People are so busy chasing happiness- if they would slow down and turn around, they would give it a chance to catch up with them.
+ - Given the unfairness that strikes so many people in life, I would rather believe in a God of limited power and unlimited love and justice, rather than the other way around.
+ - Many biblical verses are like inkblot tests, revealing more about us than about the text in question.
+ - Integrity is not something that grownups have and adolescents can aspire to. Integrity is something that all of us, at all ages, are constantly striving for.
+ - When I talk to people who feel this emptiness and lack of fulfillment, I recommend they find a source of balance in their lives. I suggest they find a way to “give back” to the world in order to feel a sense of completeness...
+ - Our awareness of God starts where self-sufficiency ends.
+ - I wish i spent more time at the office.
+ - Prayer is simply coming into the presence of God. Because when you come into the presence of God, even the things you don’t have matter a lot less.
+ - Seek something outside your nine-to-five job as an additional source of fulfillment and as a way to feel the joy of helping others.
+ - Our society puts too much emphasis on finding someone who will love you; our culture focuses too much on being loved and not enough on being a loving person.
+ - Fun can be the dessert of our lives but never its main course.
+ - We tend to take on the coloration of the setting in which we find ourselves.
+ - History is written by winners, so most history books are about people who win.
+ - Our human bodies are miracles, not because they defy laws of nature, but precisely because they obey them.
+ - The path to God is rarely a steady climb upward. We climb, we fall back, and we climb higher again.
+ - Forgiveness is a favor we do for ourselves, not a favor we do to the other party.
+ - God, who neither causes nor prevents tragedies, helps by inspiring people to help.
+ - Our inability to see the beauty doesn’t suggest in the slightest that beauty is not there. Rather, it suggests that we are not looking carefully enough or with broad enough perspective to see the beauty.
+ - We teach children how to measure and how to weigh. We fail to teach them how to revere, how to sense wonder and awe.
+ - Love is not like a buffet line where the person in front of you threatens to take too much and leave too little for you. Love is like a muscle; the more it is exercised today, the more it can be used tomorrow.
+ - What cannot be achieved in one lifetime will happen when one lifetime is joined to another.
+ - There are some things we should feel guilty about, but the guilt feelings should attach to the deed, not to the doer.
+ - Good people will do good things, lots of them, because they are good people. They will do bad things because they are human.
+ - I am convinced that it is not the fear of death, of our lives ending, that haunts our sleep so much as the fear that as far as the world is concerned, we might as well never have lived.
+ - Everything that God created is potentially holy, and our task as humans is to find that holiness in seemingly unholy situations. When we can do this, we will have learned to nurture our souls.
+ - We cannot live without the knowledge that someone cares about us.
+ - It explains why people come home from work or school and immediately switch on the television. They are not interested in the program much of the time, they do not even know what is on. But they are desperate for the sound of another human voice in their lives.
+ - God is the One who is with us when we have to do something we don’t think we are capable of doing.
+
+73 quotes

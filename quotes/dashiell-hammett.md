@@ -1,0 +1,39 @@
+ - The cheaper the crook, the gaudier the patter.
+ - The problem with putting two and two together is that sometimes you get four, and sometimes you get twenty-two.
+ - Most things in San Francisco can be bought or taken.
+ - Listen, darling, tomorrow I’ll buy you a whole lot of detective stories, but don’t worry your pretty little head over mysteries tonight.
+ - I haven’t laughed so much over anything since the hogs ate my kid brother.
+ - You got to look on the bright side, even if there ain’t one.
+ - The people who lie the most are nearly always the clumsiest at it, and they’re easier to fool with lies than most people, too. You’d think they’d be on the look-out for lies, but they seem to be the very ones that will believe almost anything at all.
+ - My way of learning is to heave a wild and unpredictable monkey-wrench into the machinery.
+ - The outcome of successful planning always looks like luck to saps.
+ - I deserve all the love you can spare me. And I want a lot more than I deserve.
+ - I once knew a man who stole a Ferris Wheel...
+ - Joel Cairo: You always have a very smooth explanation ready. Sam Spade: What do you want me to do, learn to stutter?
+ - I don t mind a reasonable amount of trouble.
+ - He looked rather pleasantly, like a blonde satan.
+ - You’re drunk, and I’m drunk, and I’m just exactly drunk enough to tell you anything you want to know. That’s the kind of girl I am. If I like a person, I’ll tell them anything they want to know. Just ask me. Go ahead, ask me.
+ - He felt like somebody had taken the lid off life and let him see the works.
+ - I first heard Personville called Poisonville by a red-haired mucker named Hickey Dewey in the Big Ship in Butte. He also called his shirt a shoit.
+ - It’s sometimes better to pretend I don’t hear the sound of somebody in the nearby woods with a shotgun.
+ - Listen, Dundy, it’s been a long time since I burst into tears because a policeman didn’t like me.
+ - Feed the lettuce to the bunny and eat the bunny.
+ - With what dope I got I think it fills me in pretty well.
+ - Who shot him? I asked. The grey man scratched the back of his neck and said: Somebody with a gun.
+ - Three times I have been mistaken for a prohibition agent, but never had any trouble clearing myself.
+ - I distrust a man that says when. If he’s got to be careful not to drink to much it’s because he’s not to be trusted when he does.
+ - Strictly speaking, there are no real substitutes for sexual satisfaction.
+ - The face she made at me was probably meant for a smile. Whatever it was, it beat me. I was afraid she’d do it again, so I surrendered.
+ - It’s awfully easy to be in love in jail.
+ - A lot of fancier yarns come from people trying to tell the truth. It’s not easy once you’re out of the habit.
+ - I’ve been as bad an influence on American literature as anyone I can think of.
+ - Our lawyers had their chat with the Supreme Court Justice, and promised to repast the chat to other members of the Supreme Court to find out whether they wanted to hear us out.
+ - To get what he wanted, a man had to give other people what they wanted.
+ - The truth is you don’t like the theater except the times when you’re in a room by yourself putting the play on paper.
+ - I haven’t any sort of plans for the future but I reckon things will work out in some manner.
+ - The roof might fall in; anything could happen.
+ - I found I was repeating myself. It is the beginning of the end when you discover you have style.
+ - Talking is something you can’t do judiciously unless you keep in practice.
+ - I like women. I really like women.
+
+37 quotes

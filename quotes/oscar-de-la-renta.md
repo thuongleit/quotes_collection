@@ -1,0 +1,92 @@
+ - Be the designer of your own destiny.
+ - Every day you have to reinvent yourself.
+ - Style begins by looking good naked. It’s a discipline. And if you don’t dress well every day, you lose the habit. It’s not about what you wear, but about how you live your life.
+ - Elegance is a discipline of life.
+ - You have to appreciate every single day that you’re alive. Life is a little bit like a garden – you have to find time to plant the seeds for beautiful flowers to grow.
+ - Things never happen on accident. They happen because you have a vision, you have a commitment, you have a dream.
+ - Luxury to me is not about buying expensive things; it’s about living in a way where you appreciate things.
+ - The qualities I most admire in women are confidence and kindness.
+ - Fashion is a trend, style is within a person.
+ - My great strength is knowing who I am and where I come from – my island.
+ - Silk does for the body what diamonds do for the hand.
+ - A woman makes an outfit her own with accessories.
+ - My job as a designer is to make a woman feel her very best.
+ - Accept your friends for who they are, not for who you want them to be.
+ - If you don’t move, you get stale.
+ - Style begins by looking good naked.
+ - I always say: To be well dressed you must be well naked.
+ - I love to live well, I love to eat well, I love to buy beautiful things, and to give a fantastic time to my friends.
+ - The most important thing? Perfect lighting at all times.
+ - Walk like you have three men walking behind you.
+ - Fashion is about dressing according to what’s fashionable. Style is more about being yourself.
+ - Love. Be curious. Always try to do your best.
+ - The essence of style is how you live your life.
+ - A fragrance is like a signature, so that even after a woman leaves the room, her fragrance should reveal she’s been there.
+ - The only realities in life are that you are born, and that you die. We always think we are going to live forever. The dying aspect we will never accept. The one thing about having this kind of warning is how you appreciate every single day of life.
+ - The well dressed man never stands out in a crowd; his elegance sets him apart.
+ - When I was a boy, I thought scent was contained in dewdrops on flowers and if I got up very early in the morning, I could collect it and make perfume.
+ - The most important beauty is not that with which you were born, but the beauty of character which grows through a woman’s life and maybe never stops growing.
+ - If you wear a different perfume every day, I do not recognize you.
+ - Women think black is the most flattering color, but they’re wrong. Pink adds a cosmetic-like radiance and warmth. Black drains the skin of color; pink delights the eye.
+ - I hate pretty. It’s a very empty word. It gives a bad name to beauty.
+ - My customers are successful workingwomen.
+ - Working for incredible talents like Balenciaga and Antonio Castillo, I learned about the immense skill and creativity involved in couture work.
+ - A woman plays such an active role in society. And today, the woman who influences fashion is not that very rich woman who sits at home and polishes her nails. It’s the one who works, who is a doer, who does things by dressing. She’s very strongly projecting an image of herself as an individual.
+ - In fashion, the most important thing is to move on.
+ - Work hard. Believe in yourself. It’s not the publicity that sells the clothes, it’s the woman.
+ - Excess is not really something I consider a bad thing; especially when you are talking about living.
+ - A woman today knows that the power of her femininity is very important.
+ - There is always an emotional element to anything that you make.
+ - A woman can wear anything- she can make it right.
+ - It’s not about what you wear, but about how you live your life.
+ - Fashions change and with rare exception are forgotten by the public. But the classic fragrances, like an invisible dress, endure. Fragrance must be introduced properly. A fragrance is like a signature, so that even after a woman leaves the room, her fragrance should reveal she’s been there.
+ - Any girl from any walk of life dreams of that special dress, and I try to make that dream a reality for her.
+ - The Council of Fashion Designers of America is a national neurotic society of creative leaders in various fields of fashion.
+ - What women have achieved in the last 50 years, I wish men would have achieved in the last 100.
+ - We’re dealing with sophisticated customers. What’s most important to these women is individuality. I have to create things she’ll want to wear, no matter who she is.
+ - I like light, color, luminosity. I like things full of color and vibrant.
+ - And smile, you know I always tell the girls to smile because I hate sad faces.
+ - I adore gardening, and whenever I have time off, that is my passion.
+ - I don’t really know how to do casual clothes.
+ - My wife said I look like a Latin American dictator. I said, ‘That’s what I am’
+ - You know I started an orphanage so totally by accident. A lady came to me and asked me if I would, I will help her and we start it with little school and then I fell in love with it.
+ - Nothing is contrived. At night, the clothes should pour like liquid over the body.
+ - It’s important to excite the imagination of a woman.
+ - Nothing says spring like hand-cut flowers.
+ - I’ve lived every day to the fullest, and I’ve had a marvelous time. I’ve tried to be nice to the people I care about, and ignore the ones I don’t. I enjoy what I’ve done.
+ - If you have the right to call me a hot dog why do I not have the right to call you a stale 3-day old hamburger?
+ - One should travel as light as possible. I can organize myself to go on a ten-day trip with just hand luggage.
+ - Gardening is how I relax. It’s another form of creating and playing with colors.
+ - I have always felt my role as a designer is to do the very best I can for a woman to make her look her best. Fashion is only fashion once a woman puts it on.
+ - You don’t need an introduction to succeed in life. You need to have good work. Work hard. Believe in yourself.
+ - Women are born free, and I think that they should stay that way.
+ - A runway is spectacle. It’s only fashion when a woman puts it on.
+ - My entire concept of lifestyle is built on the foundation of my homes. There is no more important expression of this concept than that of my own personal living space.
+ - Regardless of how good or bad a collection might be, it’s a letdown after the show is over. It’s done. Something you’ve worked on for months is just over.
+ - There is no sound more feminine than a woman in a taffeta dress.
+ - The charities closest to my heart have always involved helping children in some way.
+ - As far as preference between fall and spring collections, I have none that I prefer to design. With fall you have a lot more items, but of course I am from the Dominican Republic, so I love the warm weather.
+ - Now is the most exciting time in fashion. Women are controlling their destiny now, the consumer is more knowledgeable, and I have to be better every single day.
+ - I am not interested in shock tactics. I just want to make beautiful clothes.
+ - Every season I am inspired by women.
+ - I think the greatest reward I have is getting up and going to work each day. I love what I do.
+ - I always think the best way to dress is when the person notices you first and the dress after.
+ - My approach is that fashion must always be optimistic, and that a woman will always be enticed by beautiful clothes.
+ - Online media is increasingly influential in fashion.
+ - I come from a very warm island, where colors are very important, very vibrant, and obviously the color has been an influence on my work.
+ - I’m a very restless person. I’m always doing something. The creative process never stops.
+ - My beloved Hillary, do not disappoint me. You have to be President, OK?
+ - I want to make clothes that people will wear, not styles that will make a big splash on the runway.
+ - When I went to see Mrs. Clinton and we talk about the inaugural dress I ask her what would you like to achieve with this particular dress? And she said to me what I would like is – that when I walk into the room and people will look at me and say wow you look great.
+ - When a woman falls in love with something so much that she wants to wear it- it is at that point that it becomes fashion.
+ - Fashion is about the present and the immediate future. I think in terms of now.
+ - The great thing about fashion is that it always looks forward.
+ - Although I have no plans to tweet, I am fascinated by developments on the Internet.
+ - I would like better to be known as the Godfather of Fashion, with all the implications that that word has.
+ - We live in an era of globalization and the era of the woman. Never in the history of the world have women been more in control of their destiny.
+ - I do not have one theme for each season, I just try to make beautiful clothes all year round.
+ - If you want to establish an international presence you can’t do so from New York. You need the consecration of Paris.
+ - Tell me, which designers in New York do you think are great – besides me, of course.
+ - I was surrounded by sisters. My childhood was all women.
+
+90 quotes

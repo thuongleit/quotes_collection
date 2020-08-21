@@ -1,0 +1,41 @@
+ - We make too much of the good and too much of the bad.
+ - There was not a lot of dialogue. The titles were just to keep you up. It’s the visual stimulation that hits the audience. That’s the reason for film. Otherwise, we might as well turn the light out and call it radio.
+ - I am not an expert. That is someone else’s job. If I were expert, the approach would be all wrong. It would be from the inside. I am a blunderer. I usually don’t know what I am going into at the start. I go into the fog and trust something will be there.
+ - Retirement? You’re talking about death, right?
+ - If something works for you, you continue to do it. I did a bunch of pictures for 20th Century Fox when Alan Ladd was over there, but I set the budgets so low that they’d approve and I’d deliver the film. They would have no say in it, which is the kind of arrangement I liked.
+ - Men make clothes for the women they’d like to be with or in most cases the women they’d like to be.
+ - I love fishing. You put that line in the water and you don’t know what’s on the other end. Your imagination is under there.
+ - Chance is another name that we give to our mistakes. And all of the best things in my films are mistakes.
+ - The Oscar for the films, it’d be nice. But I don’t make those kind of films, and I don’t think that will ever happen.
+ - What is an ending? Theres no such thing. Death is the only ending.
+ - Wisdom and love have nothing to do with each other. Wisdom is staying alive, survival. You’re wise if you don’t stick your finger in the light plug. Love – you’ll stick your finger in anything.
+ - I have never made a movie that’s attracted a 14-year-old boy.
+ - I don’t think screenplay writing is the same as writing – I mean, I think it’s blueprinting.
+ - Your own ego is the only trap that I think you can fall into.
+ - I’ll give you the same advice I give my children: Never take advice from anybody.
+ - I’ve never had a big hit movie. “MASH” was probably the biggest. I don’t make those kind of films, and I never have. I wish each one of them would just do billions of dollars worth of ticket sales, but they never do and they never will.
+ - Titanic I thought was the most dreadful piece of work I’ve ever seen in my entire life. Another film that I think is equally bad was American Beauty. So badly acted and directed. But people like that.
+ - It’s all just one film to me. Just different chapters.
+ - Making a movie is like chipping away at a stone. You take a piece off here, you take a piece off there and when you’re finished, you have a sculpture. You know that there’s something in there, but you’re not sure exactly what it is until you find it.
+ - Jazz has endured because it doesn’t have a beginning or an ending. It’s a moment.
+ - Words don’t tell you what people are thinking. Rarely do we use words to really tell. We use words to sell people or to convince people or to make them admire us. It’s all disguise. It’s all hidden – a secret language.
+ - The artist and the multitude are natural enemies. They always will be, both ways. The artist is an enemy of the multitude, and the multitude is the enemy of the artist. And when the disguise comes off and they’re both standing facing one another, they’re just there at odds end.
+ - I want to see something that I’ve never seen before, so how can I tell that actor what that is? I’m not trying to construct a document or situation that is what I want, because what I want is something new to me.
+ - I’ve had it-the agencies, the winking, the networks, the ratings. Anyone who thinks TV is an art medium is crazy-it’s an advertising medium.
+ - They’ll never give me an Oscar. And I sincerely, honestly don’t care. I always turn up when I’m nominated and it would be nice to get one, but to win one would be bad luck. It comes with too much expectation. It would be the end.
+ - What is a cult? It just means not enough people to make a minority.
+ - That wasn’t an ending. It was just a stopping point.
+ - I never knew what I wanted, except that it was something I hadn’t seen before.
+ - Why should I keep doing things that I’ve done before?
+ - I don’t know what “Altmanesque” means, though I suppose I’m flattered by it.
+ - Most of my films I call arena films. I deal with a confined area – an arena – and I try to cover every aspect of it.
+ - I like audiences to crane their necks.
+ - All of my films deal with the same thing: striving, socially and culturally, to stay alive.
+ - The minute you have more than one voice, you have more possibilities opening up. You have all the molecules in all of those bodies and their make up interacting.
+ - Every ad for every film is exactly the same.
+ - Maybe there’s a chance to get back to grown-up films. Anything that uses humor and dramatic values to deal with human emotions and gets down to what people are to people.
+ - If you have a child who is seven feet tall, you don’t cut off his head or his legs. You buy him a bigger bed and hope he plays basketball.
+ - If George W. Bush is elected president, I’m leaving for France.
+ - I insist that they do what they became actors to do. I want them to create something and not just hit marks and say words. So they all love that because they’re playing. It’s called playacting. Their contributions are not only welcomed, but are accepted and used.
+
+39 quotes

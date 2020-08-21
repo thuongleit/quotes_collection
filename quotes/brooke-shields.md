@@ -1,0 +1,41 @@
+ - Don’t waste a minute not being happy. If one window closes, run to the next window – or break down a door.
+ - Smoking kills. If you’re killed, you’ve lost a very important part of your life.
+ - The difficulty of IVF or of any fertility issues is the hope and the shattered hope, the dream that it might happen this time and then it doesn’t happen.
+ - Someone said adversity builds character, but someone else said adversity reveals character. Im pleasantly surprised with my resilience. I persevere, and not just blindly. I take the best, get rid of the rest, and move on, realizing that you can make a choice to take the good.
+ - Modeling is the world that I feel most welcome in.
+ - Humour has always been a self-defence mechanism for me.
+ - Honesty is the quality I value most in a friend. Not bluntness, but honesty with compassion.
+ - Two eggs do not an omelette make.
+ - My father’s death, my move, and my frightening and difficult delivery created a tremendous amount of stress, pain, and sadness for me. I was practically devastated beyond recovery.
+ - We all struggle. I’m not saying any successful woman’s life is without struggle. But it doesn’t mean it has to be miserable.
+ - I hope this will help new moms not feel alone or desperate, and that there is no shame in their feelings. PPD is out of their control, but the treatment and healing process is not.
+ - People think of me as a mannequin. All show and no substance.
+ - I’m so naive about finances. Once when my mother mentioned an amount and I realized I didn’t understand, she had to explain: ‘That’s like three Mercedes.’ Then I understood.
+ - The very damaging, frightening part of postpartum is the lack of perspective and the lack of priority and understanding what is really important.
+ - I suffered from post-natal depression after Rowan was born. I had a healthy, beautiful baby girl and I couldn’t look at her. I couldn’t hold her, smile at her. All I wanted was to disappear and die.
+ - It’s okay to be successful and it’s also okay to be happy with your success even though it might not be easy.
+ - I’ve never found therapy to be a sign of weakness; I’ve found the opposite to be true. The willingness to have a mirror held up to you definitely requires strength.
+ - What does good in bed mean to me? When I’m sick and I stay home from school propped up with lots of pillows watching TV and my mom brings me soup – that’s good in bed.
+ - People say, ‘I love my wrinkles.’ I don’t love my wrinkles – come on!
+ - If my jeans could talk, would I be embarrassed?
+ - I just felt as though I would never be happy again, and as if I had fallen into a big black hole.
+ - My mother totally protected me as a model. She took me on every look-see, she was there on the set if I wanted her to be.
+ - Guys think that if a girl is pretty, she’s automatically going to say no. Most of the guy’s I’ve gone out with, I’ve had to make it completely obvious that I’d like them to ask me out. Or, I’ve had to ask them.
+ - The thing I’m the most proud of in my personal life is that my daughter actually thinks that I’m fabulous.
+ - You don’t necessarily have to be in misery to be talented.
+ - I went to an ordinary school in New York City with no other actors. I learned to compartmentalise different parts of my life. I was one person at home and then another person at work and for that reason my career didn’t challenge my family life.
+ - There are no dumb male questions. There are dumb males, but not dumb male questions.
+ - It’s nice, it gives you a feeling of security so that if something breaks we know we can always call a guy over and he’ll bring a drill or something.
+ - I took my work seriously, but not as a craft. More as a life.
+ - You are only as pretty as you are nice and smart.
+ - I think I’m going to have to live vicariously through my daughter’s rebellion because I certainly never did go through adolescence.
+ - Eight shows a week is daunting, and it can be terrifying. But it just instills such a sense of confidence and growth.
+ - At Princeton I gained a great deal of pleasure from success in my classes. knowing that I could accomplish those things, and I realized that my success was directly proportionate to the work I put in.
+ - My younger years of modeling were really just filled with fun trips. I was doing catalogues for Alexander’s and Bloomingdale’s.
+ - I have a place in the Broadway community that can only be earned.
+ - Louis Malle was the best filmmaker I’ve ever worked with. He was such an artist. He was dealing with the theme of innocence and experience.
+ - I absolutely would categorize myself as one of successful professional females. I think you can be successful and still be extremely present in a healthy life.
+ - Have faith in your own thoughts.
+ - It was my mom and I against the world. We lived in New York in this bohemian lifestyle where an extended group of artists and photographers were like my aunts and uncles.
+
+39 quotes

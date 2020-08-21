@@ -1,0 +1,25 @@
+ - And suddenly solitude fell across his heart like a dusty reflection. He closed his eyes. The dark doors within him opened and he entered. The next performance in the theater of Grenouille’s soul was beginning.
+ - He who ruled scent ruled the hearts of men.
+ - No human being can go on living in the same house with a pigeon, a pigeon is the epitomy of chaos and anarchy, a pigeon that whizzes around unpredictably, that sets it’s claws in you, picks at your eyes...
+ - When they finally did dare it, at first with stolen glances and then candid ones, they had to smile. They were uncommonly proud. For the first time they had done something out of Love.
+ - Odors have a power of persuasion stronger than that of words, appearances, emotions, or will. The persuasive power of an odor cannot be fended off, it enters into us like breath into our lungs, it fills us up, imbues us totally. There is no remedy for it.
+ - Not a visible enthusiasm but a hidden one, an excitement burning with a cold flame.
+ - He realized that all his life he had been a nobody to everyone. What he now felt was the fear of his own oblivion. It was as though he did not exist.
+ - He decided in favor of life out of sheer spite and malice.
+ - He succeeded in being considered totally uninteresting. People left him alone. And that was all he wanted.
+ - She was indeed a girl of exquisite beauty. She was one of those languid women made of dark honey smooth and sweet and terribly sticky.
+ - He possessed the power. He held it in his hand. A power stronger than the power of money or the power of terror or the power of death: the invincible power to command the love of mankind. There was only one thing that power could not do: it could not make him able to smell himself.
+ - With one glance he had got himself trapped in the brown fundament of her eyes, he was in danger of sinking, as if into a soft, brown swamp, and he had to close his own eyes for a second to get out of it...
+ - Bathed in sweat and trembling with agitation, no, not with agitation, but with fear, for he finally admitted it to himself: it was naked fear that had seized him, and in admitting it he grew calmer and his thoughts clearer.
+ - It was good, really, that this external world still existed, if only as a place of refuge.
+ - As long as I don’t have an idea, I won’t write anything.
+ - There comes a time in every man’s life when he needs his own toilet.
+ - He had escaped the abhorrent taint! He was truly completely alone! He was the only human being in the world!
+ - He had preserved the best part of her and made it his own: the principle of her scent.
+ - He had withdrawn solely for his own personal pleasure, only to be near to himself. No longer distracted by anything external, he basked in his own existence and found it splendid.
+ - He was not bound. No one led him by the arm. He got out of the carriage as if he were a free man.
+ - How quickly the apparently solidly laid foundation of one’s existence could crumble.
+ - And because people are stupid and use their noses only for blowing, but believe absolutely anything they see with their eyes, they will say it is because this is a girl with beauty and grace and charm.
+ - And finally – he was neither able nor willing to prevent it – the self-loathing dammed up inside him spilled over and gushed out, gushed out of glaring eyes that grew ever grimmer, angrier, beneath the rim of his cap, flooding the outside world as perfect, vulgar hate.
+
+23 quotes

@@ -1,0 +1,127 @@
+ - Libraries are what is best about us as a society: open, exciting, rich, informative, free, inclusive, engaging.
+ - I am of mixed minds about the issue of privacy. On one hand, I understand that information is power, and power is, well, power, so keeping your private information to yourself is essential – especially if you are a controversial figure, a celebrity, or a dissident.
+ - I think coexisting with another life form is a very rich experience. It’s why people keep plants and animals.
+ - I didn’t want to talk, and I didn’t think dogs could solve my problems. But they were so uncritical and un-judgmental. Sometimes when you’re really blue, you don’t want to talk, but you want that sense of companionship. I certainly enjoy that with my beasts.
+ - I don’t like hiking with convicts carrying machetes.
+ - I wish I had coined the phrase ‘tyranny of choice,’ but someone beat me to it. The counterintuitive truth is that have an abundance of options does not make you feel privileged and indulged; too many options make you feel like all of them are wrong, and that you are wrong if you choose any of them.
+ - Like writing, running is so much about mind over matter. There are times when you have to override the discomfort and keep pushing. That capacity to endure and then prevail is just amazing.
+ - When my son was born, and after a day of lying-in I was told that I could leave the hospital and take him home, I burst into tears. It wasn’t the emotion of the moment: it was shock and horror.
+ - Knowledge is a beautiful thing, but there are a few things I wish I didn’t know.
+ - A snow day literally and figuratively falls from the sky, unbidden, and seems like a thing of wonder.
+ - Living in a rural setting exposes you to so many marvelous things – the natural world and the particular texture of small-town life, and the exhilarating experience of open space.
+ - I heard a computer scientist the other day refer to playing with the Kinect as ‘storytelling.’ At first I thought that sounded a little high-minded, but after trying a few games I could see what she meant.
+ - I think part of a hero construct is overcoming loss, or being abandoned, or having to make your own way in the world.
+ - I suppose I do have one embarrassing passion- I want to know what it feels like to care about something passionately.
+ - I think the real reason is that life has no meaning. I mean, no obvious meaning. You wake up, you go to work, you do stuff. I think everybody’s always looking for something a little unusual that can preoccupy them and help pass the time.
+ - I love tearing things out of the ground. I love digging and discarding. I love pruning. In fact, I love pruning so much that I once gave myself carpal-tunnel syndrome because I attacked a trumpet vine with so much dedication.
+ - In an interesting inversion of status, the reigning breed in the dog park these days is the really-oddball-unidentifiable-mixed-breed-mutt-found-wandering-the-street or its equivalent. The stranger the mutt the better; the more peculiar the circumstance of it coming into your life, the better.
+ - One of my favorite activities as a teen-ager was to watch television over the phone with my best friend.
+ - I would argue that it might be easier to endure loneliness than to endure the idea that you might disappear.
+ - One of the very best reasons for having children is to be reminded of the incomparable joys of a snow day.
+ - Sometimes, the Internet can feel like a middle-school playground populated by brats in ski masks who name-call and taunt with the fake bravery of the anonymous. But sometimes – thank goodness – it’s nicer than real life.
+ - Orchid hunting is a mortal occupation.
+ - I had forgotten how thrilling a snow day is until my son started school, and as much as he loves it, he swoons at the idea of a free day arriving unexpectedly, laid out like a gift.
+ - My inspiration is really very simple: I’m struck by things that I want to know more about. I really do react just as a curious person: who is this person? What’s the story behind this situation? Why do people like this or dislike this thing?
+ - I really believed that anything at all was worth writing about if you cared about it enough, and that the best and only necessary justification for writing any particular story was that I cared about it.
+ - I work at home, in the country, and days will go by when, except for my husband and son and the occasional UPS man, the only sentient creatures that see me are my chickens and turkeys.
+ - Dog parks are more cliquish than any other human gathering with the possible exception of seventh grade. Deal with it.
+ - In my perfect world, we would establish perhaps four national zoos of unimpeachable quality and close the rest of them.
+ - I would like to make sleeping my new hobby, except that I’m too tired, really, to have a hobby. But a girl can always dream.
+ - I am unusually Halloween-attentive, because, as it happens, I was born on Halloween, so for me it has always been an occasion of great moment.
+ - To my great surprise, Twitter is not housed in a silver pod that orbits Earth at supersonic speeds, vacuuming up and then dispersing digital bits of worldwide chitchat; it’s in a big, bland office building in downtown San Francisco, near a bowling alley and an Old Navy.
+ - Human relationships used to be easy: you had friends, boy- or girlfriends, parents, children, and landlords. Now, thanks to social media, it’s all gone sideways.
+ - I like the idea that people get engaged thinking about design, about creativity. I don’t see how it could possibly be bad.
+ - Why, I wonder, should the popularity of a news story matter to me? Does it mean it’s a good story or just a seductive one?
+ - College athletics are so entrenched and enjoyed by so many people that they will never be discontinued or substantially changed. I know that. I just pity the people caught in that tender trap. And most of all, I pity those kids.
+ - On the very same day that I ordered an iPad 2, I went shopping to buy myself a letter opener. I like to cover all my bases.
+ - Sometimes I think I’ve figured out some order in the universe, but then I find myself in Florida.
+ - Every corny thing that’s said about living with nature – being in harmony with the earth, feeling the cycle of the seasons – happens to be true.
+ - It seems that half the point of being in Miami Beach – particularly the northern end of South Beach – is to be observed by people-watchers like me, and the display along Ocean Drive during my visit was, as always, sublime.
+ - Now we’re e-mailing and tweeting and texting so much, a phone call comes as a fresh surprise. I get text messages on my cell phone all day long, and it warbles to alert me that someone has sent me a message on Facebook or a reply or direct message on Twitter, but it rarely ever rings.
+ - You have to simply love writing, and you have to remind yourself often that you love it.
+ - There are cultures that believe having your photograph taken steals your soul. I don’t think there is a stolen soul in a picture, but still – why is it so hard to throw them away?
+ - If you had really loved something, wouldn’t a little bit of it always linger?
+ - When it comes to consumer electronics, I’m a big fat sucker, because even though I know you should never, ever buy anything until the second version of it is released, I just can’t resist. I live in a state of perpetual Beta.
+ - Unlimited choice is paralyzing. The Internet has made this form of paralysis due to option overload a standard feature of comfortable modern life.
+ - We do a lot of bird-watching up in the country, but we almost never have a chance to people-watch. There simply aren’t enough human beings up here: there is nowhere you can park yourself with a cup of coffee and observe the species on parade.
+ - I’m happy to be reminded that an ordinary day full of nothing but nothingness can make you feel like you’ve won the lottery.
+ - Dogs really are perfect soldiers. They are brave and smart; they can smell through walls, see in the dark, and eat Army rations without complaint.
+ - Writers like to write, and writing in different forms – short, long, bite-sized, done on the fly, done with painstaking attention – all interest me.
+ - When I still lived in Manhattan, people-watching was my hobby, and I spent many Sunday afternoons eating up the scene from a window seat at a Starbucks on Broadway.
+ - Who on earth is going to use ‘utilize’ in a text message, a whopping seven characters including the always-hard-to-type ‘z,’ when you can say the exact same thing in three characters? I can’t think of a sentence in which ‘use’ can’t replace ‘utilize.’
+ - I was never any good at remembering dates, but now I hardly have to. When the first bulb catalogs get delivered and the hens start laying again, that’s all the notice I’ll need to know that winter has passed.
+ - I remember three- and four-week-long snow days, and drifts so deep a small child, namely me, could get lost in them. No such winter exists in the record, but that’s how Ohio winters seemed to me when I was little – silent, silver, endless, and dreamy.
+ - I want to let my friend Buster know that I would like to have dinner with him tonight. Does Buster work at home? Then how likely is he to have his cell phone on? Is he one of those people who only turns on his cell when he’s in his car? I hate that.
+ - I am dismayed to realize that much of the advice I used to parcel out to aspiring writers has passed its sell-by date.
+ - I teach a non-fiction writing class at New York University, and one of my great pleasures is deciding on the syllabus.
+ - It is hard to imagine Thomas Kinkade as anything less than supremely self-assured.
+ - I finally overcame my phobia, and now I approach flying with a sort of studied boredom – a learned habit, thanks to my learn-to-fly-calmly training – but like all former flying phobics, I retain a weird and feverish fascination with aviation news, especially bad news.
+ - I love Japanese design and fabrics. I also love people who make clothes for mass consumption but do it well and cleverly.
+ - I wonder what book signings will be like when most of the books we read are electronic. Will authors sign something else? A flyer, perhaps? A special kind of card devised for the purpose?
+ - Among all life forms, there are creatures with charisma and creatures without. It’s one of those ineffable qualities we can’t quite define, but we all seem to respond similarly to.
+ - Borders had lousy management and made bad corporate decisions, so its fate is less like a terrible accident than a slow-motion slide into a ditch, but it’s hard to be happy about a bookseller’s demise.
+ - States should pass laws making it illegal to own or trade wild animals; the phony ‘educational’ permits that many private owners have used to skirt those laws should be eliminated.
+ - The lesson we have yet to learn from dogs, that could sustain us, is that having no apprehension of the past or future is not limiting but liberating.
+ - There’s a marvelous sense of mastery that comes with writing a sentence that sounds exactly as you want it to.
+ - I once had a boyfriend who couldn’t write unless he was wearing a necktie and a dress shirt, which I thought was really weird, because this was a long time ago, and no one I knew ever wore dress shirts, let alone neckties; it was like he was a grown-up reenacter or something.
+ - There was a time when I kept track of it all; when my mind worked like a giant lint brush being swept over the fuzzy surface of popular culture. But these days, pop culture seems to have gotten fuzzier and fuzzier; notoriety comes and goes in the snap of a finger.
+ - I have worked on PCs and on Macs and, while I have my preferences, I don’t find it crippling to work on one rather than the other.
+ - Election Day outside of big cities is different. For one thing, there are so few people in my town that each individual vote really does matter, and several local races have been decided by as many votes as you can count on one hand.
+ - There will always be vain, obsessive people who want to own rare and extraordinary things whatever the cost; there will always be people for whom owning beautiful, dangerous animals brings a sense of power and magic.
+ - I remember thinking that a girdle was barbaric, and that never in a million years would I treat myself like a sleeping bag being shoved into a stuff sack. Never! Instead, I would run marathons and work out and be in perfect shape and reject the tyranny of the girdle forever.
+ - In the course of transferring all my CDs to my iPod, I have found myself wandering the musical hallways of my past and reacquainting myself with music I haven’t listened to in years.
+ - I’ve definitely taken a lot of consolation from animals in my life. There have been times when I’ve been really sad, and they gave solace and comfort and companionability more than a person.
+ - Being a good designer certainly doesn’t guarantee that you’re good at business. It’s probably more surprising when the two talents coexist in one person.
+ - I love convincing a reader that an unusual or seemingly ordinary subject is worth his or her time – it’s part of the fun for me as a writer.
+ - I approach stories as a private educational enterprise: I want to learn about something. I teach myself through research, reporting, and thinking, and then, when I feel like I know the story, I tell it to readers.
+ - When you’re researching you’re learning. When you’re writing, you’re teaching.
+ - I went to a football school, which meant that I went to a university that served up education and was simultaneously operating a sports franchise.
+ - Here’s a habit I never thought I’d develop: I gravitate to anything online that’s marked ‘most popular’ or ‘most e-mailed.’ And I hate myself a little bit every time I do.
+ - I don’t turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture.
+ - The biggest problem with working at a treadmill desk: the compulsion to announce constantly that you are working at a treadmill desk.
+ - The fact that dogs are not people means you don’t have as much response to the particulars.
+ - Recently, I have come to assume that any call to my landline is from a telemarketer or an automated call from Terminex, letting me know that our regularly scheduled pest-extermination service will occur on its regular schedule. So I usually ignore my home phone.
+ - Everything rational and sensible abandons me when I try to throw out photographs. Time and time again, I hold one over a wastebasket, and then find it impossible to release my fingers and let the picture drop and disappear.
+ - I have no idea how to get in touch with anyone anymore. Everyone, it seems, has a home phone, a cell phone, a regular e-mail account, a Facebook account, a Twitter account, and a Web site. Some of them also have a Google Voice number. There are the sentimental few who still have fax machines.
+ - Sometimes I’m dazzled by how modern and fabulous we are, and how easy everything can be for us; that’s the gilded glow of technology, and I marvel at it all the time.
+ - I think on a day-to-day basis, what attracts us in coexisting with another living, evolving thing, is that you have a relationship that’s different than with a piece of furniture. We experience the cycle of life through these other beings.
+ - Every single one of my books had its title changed almost as we were going to press, for all sorts of different reasons.
+ - Writing about fashion forces you to overcome the nagging feeling that fashion doesn’t “matter”, that it’s trivial or fleeting. I just look at it anthropologically, which is different from the way I’d write about art.
+ - Buying a car used to be an experience so soul-scorching, so confidence-splattering, so existentially rattling that an entire car company was based on the promise that you wouldn’t have to come in contact with it.
+ - Writing about unknown people means I spend a lot of time arguing to the reader about why it’s worth knowing about them. That’s challenging, but then the piece is pure discovery.
+ - Animals can seem more pure. Without complication, I mean, animals are selfless. What animals do for us, they do out of instinct.
+ - The first thing I think about when I wake up most mornings is the fact that I’m tired.
+ - I had never considered using a hashtag anywhere other than on Twitter, but now I’m inspired. Text messages have always seemed a little flat to me, so the murmuring Greek chorus of a hashtag might be a perfect way to liven them up and give them a bit of dimension.
+ - Keeping animals, I have learned, is all about water. Who even knew chickens drank water? I didn’t, but they do, and a lot.
+ - I have long been one of those tedious people who rails against the coronation of ‘student-athletes.’ I have heard the argument that big-time athletics bring in loads of money to universities. I don’t believe the money goes anywhere other than back into the sports teams, but that’s another story.
+ - What’s funny is that the idea of popularity – even the use of the word ‘popular’ – is something that had been mostly absent from my life since junior high. In fact, the hallmark of life after junior high seemed to be the shedding of popularity as a central concern.
+ - The iPhone calendar isn’t bad, but it isn’t great, either. It only offers a day view and a month view – it doesn’t have a week view, which drives me crazy.
+ - I feel somewhat responsible for the Borders Books bankruptcy.
+ - Writing about someone well known removes that obligation of defending it as a subject, but it also means that some of the surprise and freshness is already gone. It’s so different – in some ways much harder for me.
+ - Most writing doesn’t take place on the page; it takes place in your head.
+ - Oversized houses, like oversized cars, seem to be a particularly American fixation.
+ - Even after I’d published three books and had been writing full-time for twenty years, my father continued to urge me to go to law school.
+ - The thing is, I have a zillion apps, and I’m always looking for the perfect arrangement for them, so scrambling my home screen is part of that eternal quest.
+ - Parents, it seems, have an almost Olympian persistence when it comes to suggesting more secure and lucrative lines of work for their children who have the notion that writing is an actual profession. I say this from experience.
+ - I rarely listen to commercial radio, and when I do, I’m shocked by how many ads there are, and how annoying they are, and how bad the radio station usually is.
+ - When I was a kid, Halloween was strictly a starchy-vegetable-only holiday, with pumpkins and Indian corn on the front stoop; there was nothing electric, nothing inflatable, nothing with latex membranes or strobes.
+ - The genius of a folk melody or story is not the feeling that it’s original but quite the opposite – the feeling that it has existed all along.
+ - I love writing traditional magazine pieces, and especially their breadth of reporting and the deliberateness of the writing.
+ - The one thing I’ve discovered about social media is that people love answering questions. In fact, it sometimes feels like at any given moment, millions of people are online who have been waiting for exactly the question you fire off.
+ - The first thing I think about when I wake up most mornings is the fact that I’m tired. I have been tired for decades. I am tired in the morning and I am tired while becalmed in the slough of the afternoon, and I am tired in the evening, except right when I try to go to sleep.
+ - You could go crazy thinking of how unprivate our lives really are – the omnipresent security cameras, the tracking data on our very smart phones, the porous state of our Internet selves, the trail of electronic crumbs we leave every day.
+ - We’re fascinated by animals because it’s almost like having Martians living among us. We can see some familiarity in them, but they’re entirely different creatures.
+ - I’ve loved some gadgets that were not worthy, and I’ve loved gadgets that I would have loved more if I had waited for their developers to figure out how to really make them work, but I loved them anyway.
+ - I think the responsibility of running a huge business, which happens if you become a successful designer, probably makes you more careful.
+ - Most fourth graders can’t say why Abraham Lincoln is an important historical figure? Wow. This is far more distressing than if the news had been that fourth graders were bad at reciting multiplication tables, because you can, in fact, Google that.
+ - I’ve used Twitter now and again to try to figure something out; it’s an amazing resource. But I think you have to use it judiciously: it’s a self-selected group, so it’s important not to start thinking of it as the whole world.
+ - I remember, when I was a kid, watching my mother jam herself into her girdle – a piece of equipment so rigid it could stand up on its own – and I remember her coming home from fancy parties and racing upstairs to extricate herself from its cruel iron grip.
+ - An ordinary life examined closely reveals itself to be exquisite and complicated and exceptional, somehow managing to be both heroic and plain.
+ - You can find out anything you want about a car now, and especially every bit of information about the price, without relying on the dealers.
+ - I think of myself as something of a connoisseur of procrastination, creative and dogged in my approach to not getting things done.
+ - Having animals in the city is entirely different from having animals out in the country. For one thing, it’s more social. When you live on lots of acres without neighbors within a stone’s throw, your dog-walks are usually solitary rambles over hill and dale.
+ - Winter in the country is very white. There is black grit on all the shoulders of the roads and on the big mounds from the plows, and all the cars are filthy, but the fields are dazzling and untouched and pristine.
+ - I can imagine a future in which real books will exist but in a more limited, particular way.
+ - My ace in the hole as a human being used to be my capacity for remembering birthdays. I worked at it. Whenever I made a new friend, I made a point of finding out his or her birthday early on, and I would record it in my Filofax calendar.
+
+125 quotes

@@ -1,0 +1,150 @@
+ - The things you own end up owning you.
+ - Ideals are peaceful. History is violent.
+ - The woman is the reflection of her man. If you love her to the point of madness, she will become it.
+ - The gods envy us. They envy us because we’re mortal, because any moment may be our last. Everything is more beautiful because we’re doomed. You will never be lovelier than you are now. We will never be here again.
+ - Stop being perfect, because obsessing over being perfect stops you from growing.
+ - Welcome to Fight Club. The first rule of Fight Club is: you do not talk about Fight Club. The second rule of Fight Club is: you DO NOT talk about Fight Club!
+ - The woman is the reflection of her man.
+ - You don’t really get to choose who you fall in love with. Love chooses you.
+ - You must lose everything in order to gain anything.
+ - I do not suffer from Autism, but I do suffer from the way you treat me.
+ - I’m one of those people you hate because of genetics. It’s the truth.
+ - I didn’t understand this idea of a God who says, “You have to acknowledge me. You have to say that I’m the best, and then I’ll give you eternal happiness. If you won’t, then you don’t get it!” It seemed to be about ego. I can’t see God operating from ego, so it made no sense to me.
+ - Personally I like ageing. With age comes wisdom and I have said it before and I say it again, I will take wisdom over youth any day.
+ - There’s no right. There’s no wrong. There’s only popular opinion.
+ - Hitting bottom isn’t a weekend retreat, it’s not a goddamn seminar. Stop trying to control everything and just let go!
+ - Each misstep leads to the next correct step.
+ - I have very few friends. I have a handful of close friends, and I have my family, and I haven’t known life to be any happier.
+ - No more excuses. I can’t blame anything on my parents. I’m responsible for my mistakes and my choices.
+ - America is not a country, it’s a business.
+ - We are a generation of men raised by women. I’m beginning to wonder if another woman is what we really need.
+ - You have to consider the possibility that God does not like you.
+ - I could really try new things. That was satanism, it works really well, I made a pact.
+ - The last Bollywood movie I watched was 3 Idiots that featured Aamir Khan in it. It was impressive!
+ - With sons and fathers, there’s an inexplicable connection and imprint that your father leaves on you.
+ - I always liked those moments of epiphany, when you have the next destination.
+ - We’re consumers. We are by-products of a lifestyle obsession...
+ - Fame makes you feel permanently like a girl walking past construction workers.
+ - You are not the car you drive.
+ - Cate Blanchett is mesmerizing. I don’t know why. It’s beyond my understanding. Why we all want to work with her is she elevates the rest of us. She’s just got some ethereal grace and elegance that’s beyond me, and an acute understanding of human nature. She’s just exquisite. She’s otherworldly.
+ - Democracy doesn’t work unless the public is informed.
+ - I think happiness is overrated. Satisfied, at peace-those would be more realistic goals.
+ - Oh, I’ll never leave Montana, brother.
+ - By nature, I keep moving, man. My theory is, be the shark. You’ve just got to keep moving. You can’t stop.
+ - This is our last chance to make a difference. If you’re like me, you don’t want to have to ask yourself on the day after the election, what else could I have done?
+ - Without pain and suffering, we would be nothing.
+ - Do you know how you tell real love? It’s when someone else’s interest trumps your own.
+ - A man inserted an ‘ad’ in the classifieds: “Wife wanted”. Next day he received a hundred letters. They all said the same thing: “You can have mine.”
+ - America is a country founded on guns. It’s in our DNA. It’s very strange but I feel better having a gun. I really do. I don’t feel safe, I don’t feel the house is completely safe, if I don’t have one hidden somewhere. That’s my thinking, right or wrong.
+ - I was hiding out from the celebrity thing, I was smoking way too much dope, I was sitting on the couch, and just turning into a doughnut, and I really got irritated with myself.
+ - Getting a burp out of your little thing when she needs it is probably the greatest satisfaction I’ve come across at this point in my life.
+ - I’m not a big proponent of happiness. I think it’s highly overrated. I think misery is underrated. There’s so much value in that. You can’t have one without the other.
+ - I’ve always believed happiness is overrated, you know? It’s those difficult times that inform the next wonderful time, and it’s a series of trade-offs, of events, of wins and losses.
+ - Any love involves loss, and that’s the risk you take. And the greater the love, the greater the loss. I certainly feel that now with the woman I’m with, and the children that I have. But whatever the course may be, this time together is extraordinary.
+ - I believe in the power of journalism. To make informed decisions, you have to have an understanding of the dynamics of a situation. And journalism does bridge gaps and creates dialogue.
+ - Let us be the ones who say we do not accept that a child dies every three seconds simply because he does not have the drugs you and I have. Let us be the ones to say we are not satisfied that your place of birth determines your right for life. Let us be outraged, let us be loud, let us be bold.
+ - My family worry for me because I’m gonna burn in an eternal pit of fire.
+ - What’s valuable to me has become clearer as I’ve got older. To me, it’s about the value of your time and your day and the value of the people you spend it with.
+ - Being married means I can break wind and eat ice cream in bed.
+ - I always heard criticism is the tax on fame. They were right. And then some.
+ - I grew up very religious, and I don’t have a great relationship with religion.
+ - I oscillate between agnosticism and atheism.
+ - I grew up in Oklahoma and Missouri, and I just loved film. My folks would take us to the drive-in on summer nights, and we’d sit on the hood of the car. I just had this profound love for storytelling.
+ - Whilst acting is my career, architecture is my passion. Selecting this development as my first major construction project has been a simple decision. It will underpin not only my values for environmentally friendly architecture, but also embrace my career in entertainment.
+ - I have a hard time with morals. All I know is what feels right, what’s more important to me is being honest about who you are. Morals I get a little hung up on.
+ - There’s peace in understanding that I have only one life, here and now, and I’m responsible.
+ - My happiest moment is the day they call wrap and I’m free. I’m not looking back.
+ - Because no one has the right to deny another their life, even though they disagree with it, because everyone has the right to live the life they so desire if it doesn’t harm another and because discrimination has no place in America, my vote will be for equality and against Proposition 8.
+ - In Missouri, where I come from, we don’t talk about what we do – we just do it. If we talk about it, it’s seen as bragging.
+ - Actions speak louder than words, and it’s no more true than with your kids.
+ - It’s a lovely experience walking around a museum by yourself.
+ - I’m drawn to furniture design as complete architecture on a minor scale.
+ - Equality, absolutely, that’s what defines us. It’s what makes us great. If it doesn’t sit well with your religion, let your God sort it out in the end, but that’s us. We’re equal.
+ - Man, if I can get a burp out of that little thing I feel such a sense of accomplishment.
+ - I was born in Shawnee, Oklahoma.
+ - Fatherhood is the best thing I ever did. It changes your perspective. You can write a book, you can make a movie, you can paint a painting, but having kids is really the most extraordinary thing I have taken on.
+ - Heartthrobs are a dime a dozen.
+ - I had a very supportive family environment that gave me room to explore and discover things about myself.
+ - My father came from a very poor background, but I was very fortunate in the sense that we were never in need. My dad was determined to make sure that we didn’t want for things. He wanted to give us more opportunity than he had, a better shot at a better life.
+ - We, in America, love a story – we need a story to get involved in. But then everything becomes more about how the story protects a certain perception as we pick sides.
+ - By the time this concert ends this evening, 30,000 Africans will have died because of extreme poverty. By this time tomorrow evening, another 30,000. This does not make sense.
+ - When I received my first paycheck from my now known day job, I spent it on a period Craftsman chair and a Frank Lloyd Wright-wannabe lamp. With my second paycheck, I bought a stereo.
+ - I look at my kids and I feel I’m at the precipice of this job, like just kind of tipping over the other side. I’m very conscious of time I guess is what I want to say, and I want to be there as long as I can with my kids, and I also want to make sure I do all the things that are important to me.
+ - Family comes first so I only have this specific window of time available to me and because of that I actually get more done.
+ - The kids ask about marriage. It’s meaning more and more to them. So it’s something we’ve got to look at.
+ - When I was a boy, I would ask about my family history, about my bloodlines. We really didn’t know that much. We had a little Indian in us from the Oklahoma Trail of Tears.
+ - I’ve had the luxury of travel and, in the luxury of travel, I’ve seen the detriments of poverty and I’ve gone on to see how easy the cures can be – cures that cost cents to the richest nations in the world,.
+ - So much of making movies is about discovery on the day, what you’re figuring out. If you know everything going in, then it’s not worth doing – it’s already done. I’m interested in finding people who I think have a voice – and a very specific voice.
+ - By employing the intelligence of natural systems we can create industry, buildings, even regional plans that see nature and commerce not as mutually exclusive but mutually coexisting.
+ - I’d like to design something like a city or a museum. I want to do something hands on rather than just play golf which is the sport of the religious right.
+ - How many stories have you read that aren’t true, stories about me and Angie being married or fighting or splitting up? And when we don’t split up, there’s a whole new round that we’ve made up and we’re back together again!
+ - Once you get older, you get a little closer to yourself, intimate. I’ve always been very aware of that, more conscious of who I am, how I fit in the thing as opposed to trying to emulate someone else. Though, sometimes I try to emulate De Niro all the time, who is someone I could never be.
+ - I don’t feel restless, I just like to travel.
+ - My kids are just waiting for me at home. I’m their father. They’re wondering, ‘When’s Daddy coming home?’
+ - You can’t trap justice. It’s an idea, a belief.
+ - Basically when you whittle everything away, I’m a grown man who puts on makeup.
+ - I embrace the messiness of life, I find it so beautiful actually.
+ - Your shame will be your torture, and your torture will be your life. I wish it long.
+ - Gay marriage is inevitable. The next generation, they get it. It is just a matter of time before it becomes a reality.
+ - I find all of my performances come down to mathematics in a sense – how do you approach the problem of this character? Sometimes I crack that problem, sometimes I don’t.
+ - Though Moneyball had the talents of screenwriters Steven Zaillian and Aaron Sorkin going for it, they weren’t baseball insiders.
+ - One of the greatest, smartest things I ever did was give my kids Angie as their mom. She is such a great mom. Oh, man, I’m so happy to have her.
+ - You hear stories of intense actors who can’t shed their character and who don’t know who they are for a week or two after. I’m not that guy, man.
+ - We made a plan at school to meet in her garage and kiss. It was like this little business deal. I kissed her and then I ran home.
+ - Fame is a Bleet, man.
+ - Indian cinema seems to be growing very well at its own pace.
+ - I know when I go outside, there’ll be a van or two and they’ll probably follow us four out of seven days a week, trying to get something. But I’m just going across town and I know they’re just wasting their day, so it doesn’t bother me anymore.
+ - This idea of perpetual happiness is crazy and overrated, because those dark moments fuel you for the next bright moments; each one helps you appreciate the other.
+ - I was very curious about the world even at a young age, and I don’t know at what point I became aware that other cultures believed in different religions, and my question was, ‘Well, why don’t they get to go to Heaven then?’
+ - You just have to get one misstep – that’s an easy way to fall into caricature. Bad caricature.
+ - When I was a little kid we moved to Tulsa, then to St. Louis and, by the time I was in kindergarten, we lived in Springfield, Missouri. There I basically grew up.
+ - It may be a brief interruption – just a few seconds – but what if someone sitting near you is trying to make a decent bootleg? Did you ever think of that? Now all those street-corner copies are permanently defiled by your so-called ‘emergency.’ Don’t be so damn selfish.
+ - I look and there’s our boy from Vietnam and our daughter from Ethiopia, and our girl was born in Namibia, and our son is from Cambodia, and they’re brothers and sisters, man. They’re brothers and sisters and it’s a sight for elation.
+ - There are no secrets at our house. We tell the kids, ‘Mom and Dad are going off to kiss.’ They go, ‘Eww, gross!’ But we demand it.
+ - The idea that marriage has to be for all time – that I don’t understand.
+ - Plan B is really a little garage band of three people, and our mandate has been to help get difficult material, that might not otherwise get made, to the screen and to work with directors we respect.
+ - It’s boredom. No other reason than that.
+ - I believe you make your day. You make your life. So much of it is all perception, and this is the form that I built for myself. I have to accept it and work within those compounds, and it’s up to me.
+ - I’m probably 20 percent atheist and 80 percent agnostic. I don’t think anyone really knows. You’ll either find out or not when you get there, until then there’s no point thinking about it.
+ - Perhaps we don’t need these religious concoctions to pillow the fear of death. Just the fact that there is an unknown, and something greater, can bring a feeling of peace. That’s enough for me.
+ - I quit, and then I started again, and then I quit, and then I started again.
+ - Illiada by Homer is one of the great stories in literature. And I thought its themes really resonated today, whether that was my projection or Homer’s intentions. It didn’t seem like we had come very far.
+ - Once you hit 40, you start reexamining the math of it all. I’ll trade wisdom for youth any day.
+ - I loved ‘Saturday Night Fever’ when I was a kid. I couldn’t believe people talked that way. It was just a whole new culture I didn’t understand. I snuck into it. It was an R-rated film. So it holds a special place.
+ - The greatest thing an actor can experience is discovery. The greatest thing an artist can walk away with is to learn something about themselves and the world and this was one of those.
+ - I haven’t known life to be happier.
+ - Most of the time is with the family. Most of the time, is all the time. When we work it’s a very intensive chunk of time. We work for 12 hours a day, 14 hours a day is common. And we’ll do that for a few months and then we get to relax a little bit.
+ - New Orleans has a real spirit. It’s the most authentic of all American cities.
+ - Where I grew up – we started out in Oklahoma and then moved to Missouri – it was considered hubris to talk about yourself. And the downside of that was that ideas rarely got exchanged, or true feelings.
+ - The best moments can’t be preconceived. I’ve spent a lot of time in editing rooms, and a scene can be technically perfect, with perfect delivery and facial expression and timing, and you remember all your lines, and it is dead.
+ - I don’t want to waste time being angry at someone I love.
+ - Most of these stories, you get probably 2 percent real fruit juice and the rest is just garbage with no nutritional value.
+ - Yeah. And it was too much of what you shouldn’t be doing instead of what you should be doing. I get enraged when people start telling other people how to live their lives. It drives me mental. This Prop.8 thing just drives me mental.
+ - I am very interested in architecture. I’ve been asked if I’d ever direct, but me, I’d rather build. It’s very similar to directing, because you get to walk among this piece of art, to live in it, be surrounded by it, which is just thrilling.
+ - I don’t think I was all that late in becoming a father.
+ - We in America have some grand ideals – and some very strong ideals – but a lot of times, those ideals are used for marketing.
+ - I believe you make your day. You make your life.
+ - Success is a beast. And it actually puts the emphasis on the wrong thing. You get away with more instead of looking within.
+ - I’m 48 now and whatever I get music-wise, I get from my kids and that’s it. I don’t think I’ll ever be hip again!
+ - I had a friend who worked at a hospice, and he said people in their final moments don’t discuss their successes, awards or what books they wrote or what they accomplished. They only talk about their loves and their regrets, and I think that’s very telling.
+ - When you first get opportunities, suddenly you get surrounded by a lot of people who want to make money off you but also are there to help. But they start telling you so much what you need to be and what you need to do to maintain some idea of career maintenance.
+ - I know some of these guys who are in that ‘stalkerazzi’ world, and you really have to separate them from the paparazzi in our industry. That’s another breed. They have their heroes who got the big, scandalous shot, which just promotes more of that.
+ - I’m most comfortable with the Southern dialects, really. It’s easy, for example, for me to do Irish because we’ve got Irish heritage where I come from.
+ - Given a chance, I would like to work with Aishwarya Rai Bachchan because she’s a versatile actor.
+ - I would love to work in a Bollywood film as there is so much drama and colour in the films there.
+ - Crime is just unvarnished capitalism, after all.
+ - I grew up on certain movies, particular movies that said something to me as a kid from Missouri, movies that showed me places I’d yet traveled, or different cultures, or explained something, or said something in a better way than I could ever say. I wanted to find the movies like that.
+ - Deregulation created this epidemic of greed which according to the rules of capitalism was OK. Beyond that there was criminal behaviour. There have been no repercussions and it’s hard to make your peace with.
+ - You never know when I might decide to work in a Bollywood film and do one of those dance numbers with the whole crew in the backdrop.
+ - When I first started, they were trying to get me into sitcoms – I think because I had that kind of Wonder Bread look and my hair always went into place. I kept saying, ‘I’m not good at sitcoms. I don’t know how to do that.’
+ - I spent the ’90s trying to hide out, trying to duck the full celebrity cacophony.
+ - My main concern is quality and I think there is quality to be found in all categories of filmmaking.
+ - When I first got out to Hollywood, they were pushing me for sitcoms, and I didn’t really have an interest in them. I wanted to do films and slowly worked that way. And then it became, I guess, this curse of the leading man.
+ - There’s nothing more life-changing than fatherhood.
+ - I dare make those comparisons, but we often said ‘the making of’ would be as interesting if not more interesting than the film.
+ - For me a film is at its best when you can start filling in the story with your own life experience.
+ - You make yourself what you are. You have control of your own destiny.
+ - I’ve been in these tabloids for 14 years now, and at some point you just become a Zen master of it all.
+ - I always liked film as a teaching tool – a way of getting exposed to ideas that had never been presented to me. It just wasn’t on the list of career options where I grew up.
+
+148 quotes

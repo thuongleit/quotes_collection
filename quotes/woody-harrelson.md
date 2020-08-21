@@ -1,0 +1,76 @@
+ - I’ve been vegan for about 10 and a half years. It’s been all good. I’m obviously much healthier.
+ - It’s not who you want to spend Friday night with. It’s who you want to spend all day Saturday with.
+ - A moment of realization is worth a thousand prayers.
+ - We’ve killed a million Iraqis since the start of the Gulf war – mostly by blocking humanitarian aid.
+ - I love England, the people, the parks, the theatre.
+ - It’s an odd beast, fame. It’s got multiple personalities.
+ - A grownup is a child with layers on.
+ - Raw food is the best way to have the cleanest energy. We take so much care about what kind of fuel we put in our car, what kind of oil. We care about that sometimes more than the fuel that we’re looking at putting in our bodies. It’s cleaner burning fuel.
+ - It’s not terrible, people telling you you’re great; what’s terrible is when you start believing it.
+ - Ive always believed the road of excess leads to the palace of wisdom.
+ - I try not to spend too much time with regret, although I wish I’d had more hang time with my dad.
+ - I don’t believe in politics. I’m an anarchist, I guess you could say. I think people could be just fine looking after themselves.
+ - The forests are the lungs of the world. I’ve always believed if you breathe, you’re an environmentalist.
+ - I was a freshman in college in 1980, the year that Reagan was elected, and I went around badgering people to vote for him.
+ - You have to focus on what you’re passionate about. For me it’s the forests and of course, because I’m concerned about the forests, I’m concerned about the way paper is made.
+ - You know you are in love when the two of you can go grocery shopping together.
+ - The only way to get a serious message across is through comedy.
+ - I have a strong spiritual life. I can’t say that I have faith that Jesus is my Savior, but I look at Jesus in the same way that I look at, you know, Mohammed. He was giving everyone the goods. So was Gandhi.
+ - I used to have Bible studies at my house. I was in the choir. I was mischievous but also a real mama’s boy. It was a pretty happy childhood.
+ - This is a racist and imperialist war. The warmongers who stole the White House have hijacked a nation’s grief and turned it into a perpetual war on any non-white country they choose to describe as terrorist.
+ - When I was in my twenties and just so sexually prolific, the first time I went to Machu Picchu, this guy, a spiritual teacher, says to me, “When you make love, you must be making love.” I thought that was the greatest advice I had ever heard.
+ - If you manage to stop the timber industry from cutting this forest, they’ll cut that forest. If you stop oil drilling here, they’ll go drill there.
+ - I wish I’d done ‘Dumb and Dumber.’ I was offered the part, but I don’t think I’d have been better than Jeff Daniels was. Another film I wish I’d done was ‘Jerry Maguire.’
+ - The state of the health of the individual is equivalent to the state to the health of the colon.
+ - Since half of all trees cut go to making paper, the only meaningful way to address destruction of our forest is to change the way paper is made.
+ - The only thing that’s problematic is the constant explaining, the constant need to kind of go, No, I don’t want that because of such and such. I feel like I’m a pain in the ass, and I don’t like being difficult.
+ - When you make love, you must be making love.
+ - The history taught in our schools is scandalous. We grew up believing that Columbus actually discovered America. We still celebrate Columbus Day. Columbus was after one thing only – gold.
+ - There are a helluva lot more of us who care about our environment in the world than we realize. We’re the majority, and we can do something about that.
+ - I wrapped a movie called ‘Zombieland,’ in which I was constantly under assault by zombies, then flew to New York, still very much in character. With my daughter at the airport I was startled by a paparazzo, who I quite understandably mistook for a zombie.
+ - Sometimes I feel people think I live on a commune but I don’t. We are all solar, though. There are no power lines. It’s mostly farmers, so everyone who has tractors uses bio-diesel.
+ - I try to apply the organic concept to my clothes and bedding as well. There’s nothing like swimming in organic cotton sheets.
+ - When I was in the seventh grade I did a report about the environment and the loss of species. It was supposed to be only a few pages, but ended up being nearly 50.
+ - In the courtroom, it’s where a lawyer really becomes an actor. There’s a very fine line between delivering a monologue in a play and delivering a monologue to a jury. I’ve always felt that way – I’ve been in a lot of courtrooms. The best lawyers are really theatrical.
+ - The war against terrorism is terrorism.
+ - And you call yourselves a bowling alley?
+ - When I’m in New York, I bike everywhere. I have a couple of bikes stored over at Ed Norton’s. It’s the only way to go. But in Hawaii, I drive. I have a little Volkswagen Bug, from the ‘Drive it? Hug it?’ phase. I run it on biodiesel.
+ - I think my best skill in this whole deal is as a conduit to try to bring people together, because I think it’s in our unity that we’ll have the greatest strength.
+ - I remember my first run-in with cops. It took me really getting to hang, well after that, with cops who were cool, and realizing, ‘Okay, there are some bad ones.’ I ran into some bad ones in Columbus, Ohio, but they’re not all bad.
+ - Everything I do, I try to think, ‘Okay, what are the ramifications?’ Like, with the clothes I wear, I prefer if it’s grown organically, because cotton – which is what’s used in most clothing – takes up 50 percent of all pesticide use.
+ - I never was disillusioned with acting because I love acting.
+ - I’m not a time person. A watch is not good for me.
+ - The giant industries that are polluting our planet as well as violating human rights worldwide are the ones nearest and dearest to the hearts of American politicians.
+ - In sixth grade, some kid was being inappropriate with a girl. I said he better stop. Next thing were fighting. Then were at the principals office. I got just as much punishment as he did, even though I felt I did the right thing.
+ - We don’t get the greatest tools to deal with anger. It’s like, ‘Hey, count to 10.’ When someone really upsets me, how do I respond? I don’t usually start counting to 10 and breathing deeply.
+ - Two boxes of Step Forward Paper saves one tree – that’s a real stat.
+ - The government may change faces from time to time, but it’s not like we fight wars for democracy – we fight wars for capitalism and for oil.
+ - It’s the best thing going, parenthood.
+ - My main hope for myself is to be where I am.
+ - Everything is poisoned, and it’s all poisoned from greed. I think our inability to communicate with each other and everything that’s happening in the world is all a symptom of our greater inability to deal with nature appropriately.
+ - I think it’s wonderful to be here. And what a beautiful city you have here.
+ - I used to eat burgers and steak, and I would just be knocked out afterward; I had to give it up.
+ - I think, on a personal level, everybody, when you go through the checkout line after you get your groceries and they say, ‘Paper or plastic?’ We should be saying, ‘Neither one.’ We should have our own cloth bags.
+ - Violence was almost an aphrodisiac for me.
+ - I’m an anarchist and I do think things such as Occupy Wall Street are about getting a little closer to the solution.
+ - I’m not a Twinkie lover. I don’t do sugar or dairy either.
+ - I related to his disillusionment. Thinking that he was going for this big dream. Then he kind of saw through it all at one point and went back home. Then he started a bender, which I can relate to of course.
+ - You can do a movie and hope it may be great, but until you have seen it, you don’t know. I loved ‘Rampart.’ I love that one called ‘The Hi-Low Country’ that Steven Frears shot.
+ - But I just felt at one point that I was on a hamster wheel, you know? Just doing movie after movie and thinking so much about career related things and I think missing out on hanging with my friends and family as much I needed to.
+ - I was in a taxi the other night, and we started talking about life and the taxi driver goes, ‘Chaos and creativity go together. If you lose one per cent of your chaos, you lose your creativity.’ I said that’s the most brilliant thing I’ve heard. I needed to hear that years ago.
+ - I’ve been in so many good movies that I felt like nobody saw; it’s a pretty dreadful feeling.
+ - I think the world’s still gonna be here in another 10, 20 years. But I’m not feeling great about things ecologically.
+ - Even though there’s an entertainment value to the film, I think it’s very important because you can’t really separate the impact of that political message from it. It’s rare that you get films like that I think; that really have an important message and are also entertaining.
+ - I do sometimes lecture people about what they’re eating, but that’s only if they ask me.
+ - Salma is just one of the great goddesses ever put on this Earth.
+ - I think I’ve been an incredible example to my kids of what not to do.
+ - With ‘Rampart,’ I read it and I’m like, ‘That’s the best role I’ve ever been offered. Phenomenal.’ But, I was daunted, you know? Like the concept of trying to be a cop. It’s just bizarre, man. Bizarre to even think about.
+ - So I just took some time off. I was maybe going to do two or three years and it turned into five years. But certainly, I’d say it was the best thing I ever did. And now I come back to this whole thing really energized about it.
+ - And Garrison Keillor I think is a fascinating guy and really entertaining.
+ - I’m one of those actors who is going to come in with 2,500 ideas. You can shoot down 2,499, but one of them you’re going to like.
+ - Some people make a great film and then they can’t follow up.
+ - There’s just something extraordinary about that Selma Hayek.
+ - I think I’m probably a better sport. You tend to really just freak when you lose. You have a real hard time with it.
+ - I like crying. And now I not only wanna cry and show my crying to other people, I wanna just split myself down the middle and open my guts and just throw everything out!
+
+74 quotes

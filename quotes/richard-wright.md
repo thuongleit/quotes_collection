@@ -1,0 +1,23 @@
+ - All literature is protest.
+ - Men can starve from a lack of self-realization as much as they can from a lack of bread.
+ - Love grows from stable relationships, shared experience, loyalty, devotion, trust.
+ - Whenever my environment had failed to support or nourish me, I had clutched at books...
+ - Reading was like a drug, a dope. The novels created moods in which I lived for days.
+ - I could endure the hunger. I had learned to live with hate. But to feel that there was feeling denied me, that the very breath of life itself was beyond my reach, that more than anything else hurt, wounded me. I had a new hunger.
+ - Hunger has always been more or less at my elbow when I played, but now I began to wake up at night to find hunger standing at my bedside, staring at my gauntly.
+ - They hate because they fear, and they fear because they feel that the deepest feelings of their lives are being assaulted and outraged. And they do not know why; they are powerless pawns in a blind play of social forces.
+ - But the color of a Negro’s skin makes him easily recognizable, makes him suspect, converts him into a defenseless target.
+ - It made me love talk that sought answers to questions that could help nobody, that could only keep alive in me that enthralling sense of wonder and awe in the face of the drama of human feeling which is hidden by the external drama of life.
+ - I knew that I lived in a country in which the aspirations of black people were limited, marked-off. Yet I felt that I had to go somewhere and do something to redeem my being alive.
+ - The artist must bow to the monster of his own imagination.
+ - I would hurl words into this darkness and wait for an echo, and if an echo sounded, no matter how faintly, I would send other words to tell, to march, to fight, to create a sense of the hunger for life that gnaws in us all.
+ - Make up your mind, Snail! You are half inside your house, And halfway out!
+ - Each day when you see us black folk upon the dusty land of your farm or upon the hard pavement of your city streets, you usually take it for granted and think you know us, but our history is far stranger than you suspect, and we are not what we seem.
+ - I was not leaving the south to forget the south, but so that some day I might understand it.
+ - Don’t leave inferences to be drawn when evidence can be presented.
+ - I didn’t know I was really alive in this world until I felt things hard enough to kill for ’em...
+ - It was not a matter of believing or disbelieving what I read, but of feeling something new, of being affected by something that made the look of the world different.
+ - It had been only through books-at best, no more than vicarious cultural transfusions-that I had managaed to keep myself alive in a negatively vital way. Whenever my environment had failed to support or nourish me, I had clutched at books...
+ - If a man confessed anything on his death bed, it was the truth; for no man could stare death in the face and lie.
+
+21 quotes

@@ -1,0 +1,22 @@
+ - The facts of life are conservative.
+ - Quantum Mechanics: The dreams stuff is made of. Quick: try to think of a single movie about the horrors of Stalinism. This is not a failure of imagination. This is moral meltdown.
+ - The entitlement mentality so carefully cultivated by liberal academics, politicians, clergymen, and journalists continues to corrode the self-sufficiency that once defined the American character.
+ - It continues to defy explanation why liberals who theoretically love liberty, equality, tolerance and moderation, should find so much to despise in their own country, which represents the fullest expression of those virtues anywhere on the globe.
+ - One might have thought that the Cold War’s conclusion would have convinced the Left that appeasement of dictators is not profitable.
+ - Liberal dominance of important areas of America’s social and political life has undermined many of the virtues that have sustained this country.
+ - If the Democrats have their way, African Americans will continue to feel oppressed, despised and handicapped into the indefinite future. All progress will be downplayed and every setback amplified. In this way, Democrats can continue to rely on lopsided black support at the polls.
+ - Feminists are forever discovering subtle new forms of sexism and then beating men around the head and shoulders with it. It is left to the rest of us to suffer the inevitable backlash this provokes among men. Besides, the feminists have the Federal Government behind them.
+ - Abused And neglected children have paid the price for liberalism’s tendency to sentimentalize the poor.
+ - Truth telling is the first building block of character – a quality that seems to be getting rarer and rarer in all-forgiving America.
+ - If the party of gloom is ever to regain its footing, it will have to start by understanding that those who defeated them are not a bunch of ignorant yahoos looking forward to Armageddon.
+ - There was a time when ‘fear of God’ meant piety, or at least conscience. Today, it more accurately describes the worldview of secular liberals who get itchy and twitchy at any reminder of our religious roots as a nation.
+ - Liberal child welfare experts decided that child abuse was not evidence of a moral or character flaw in the abusing parent. Instead, like poverty, crime, and homelessness, child abuse came to be viewed as evidence of a societal failure.
+ - Every liberal initiative, from welfare to antismoking measures, is justified by reference to ‘the children.’ Yet the clear result of liberal policies is to harm children even more than adults.
+ - Though President Obama was at his smooth and polished best the other night, two aspects of his worldview came into sharper relief – his reflexive hostility toward and misunderstanding of business and his reliable resort to left-wing fables about race relations.
+ - Though liberals have portrayed themselves throughout the past several decades as champions of the homeless, they are actually guilty of having created and perpetuated their condition.
+ - Homelessness came into being because liberal policy makers embraced a series of foolish ideas.
+ - If liberals had been in charge of the Arizona memorial, it would probably have featured an exhaustive exhibit about the internment of Japanese Americans during World War II and little about the bombing of Pearl Harbor.
+ - Any stimulus package amounts to taking money from the pockets of some Americans and placing it in the pockets of others who have better political connections.
+ - Time and time again throughout the latter part of the Cold War, liberals chose a morally perverse pose. They would seek to find any suspect motive or impure act on the part of the United States rather than confront the staggering scale of destruction and misery being wrought by our adversaries.
+
+20 quotes

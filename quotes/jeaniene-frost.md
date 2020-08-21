@@ -1,0 +1,187 @@
+ - I will never stop loving you. No one can change that. No matter what happens later, I’ll still love you.
+ - And that, Annette, is called Pilates.
+ - It was the sort of bone deep emotion that made him want to hold her tighter with one hand, and draw a sword against the world with the other.
+ - No matter what happens, you will never lose me, I am forever yours, Kitten, in this life or the next.
+ - You hold the ones you love close and fight the battles you can win, and that, Kitten, is how it is.
+ - Just call me an equal opportunity ass-kicker.
+ - The sheer splendor of the sight made my chest tighten and tears sting my eyes. All the darkness lately made it easy to forget the world contained more than people trying to hurt other people. It had beauty, too, if you knew where to look – and remembered to open your eyes.
+ - Licking Falls, Ohio, had its own set of standards. They were archaic at best.
+ - Family is always irreplaceable, even when they’re also irreconcilable.
+ - Wouldn’t that make a charming epitaph? Here lies Cat. Killed not by fang, but Ferragamos.
+ - You either trust me or you don’t. I’ve never let you down, and I won’t walk away unless you make me. Period. Now, unless you have a real emergency, I’d like to get back to my vacation. And my corpse, thanks.
+ - There’s nothing to catch up on. You came, you saw, you scored, you left. End of story.
+ - I missed you every minute this week and I don’t want to spend another day without you. If my mom disowns me for being with a vampire, then that’s her decision, but I’ve made mine, and I won’t apologize of back down from it.
+ - Don’t kiss me like a woman if you’re going to treat me like a child.
+ - I’m sorry I can’t give you the normal life you wanted, but I promise to adore you every day for the rest of your new one.
+ - People frequently bore me, sometimes amuse me, most often irritate me, but rarely intrigue me.
+ - Lucifer’s hairy ball sack! You’ve become a morlock.
+ - Be still my non-beating heart.
+ - My body is the only thing that’s truly mine, so I don’t give it away as though it’s worthless.
+ - Careful, luv. I might be angry with you, but that doesn’t mean I don’t still want you. So if you do that again, I’ll shag you right here, right now, and sod anyone who wants to watch.
+ - You’re shagging a woman who can turn into a dragon? Blast you, Charles, I am sick with envy!
+ - I can’t wait to find out how you taste, and you won’t want me to stop even after I’ve completely exhausted you. You’ll think you were on fire, your skin will burn. I’ll suck all of your juices out of you. And then I’ll drink your blood.
+ - Charlie whistled “Amazing Grace” as he drove. It was all I could do not to whip my head around and snap, Are you kidding me? Couldn’t he pick something more appropriate, like “Shout at the Devil” or “Don’t fear the Reaper”? Some people had no sense of the proper music for a kidnapping.
+ - I am offering you a real commitment – a place in my life forever. Even if our relationship ended, our tie to each other never would. Let me make you a vampire, Leila, and watch decades slide by like days while you’re by my side.
+ - He leaned over and kissed me. A long, deep kiss filled with promise and passion. I loved the way he kissed me. Like he was drinking in the taste of me and still coming back thirsty.
+ - Don’t care for her tongue, do you? How strange. I find it one of my favorite parts. Bones to Gregor.
+ - I stared at him in silence. There were so many things I wanted to say. Like, How could you think what I feel for you is only physical? or, Don’t you know you’re my best friend? and finally, Bones, I love-.
+ - My parents were dismayed by my love of horror movies as a young girl, then even more dismayed when I kept rooting for Dracula to win instead of Van Helsing.
+ - Vampires, werewolves, fallen angels and fairies lurk in the shadows, their intentions far from honorable.
+ - Kitten, four hours of sleep while holding you is far more beneficial to me than eight hours of endless tossing and turning because you’re not there. -Bones from This Side of the Grave.
+ - If you introduce yourself to anyone as Mrs. Dracula, I’ll bite you in a manner you won’t enjoy.
+ - She’s my kitten, and no one else’s.
+ - Only fools pity survivors their scars and you should never kowtow to fools.
+ - I have been stabbed, shot, burned, bitten, beaten unconscious too many times to count, and even staked. None of those held a candle to the pain I felt at seeing his mouth on hers.
+ - Or for the gorgeously bare vampire to give her a sensual massage while feeding her peeled grapes.
+ - I love you, Kitten. Don’t try to get out of this. We’ll see if you love me when I pay you back. Even then I will love you, Bones called out as I stomped away.
+ - You know that old saying. Once you go dead, no one’s better in bed.
+ - Maximus grunted. “Some days you remind me of Vlad.” “Meaning?” I said sharply. “Your obsession with revenge. Next you’ll want to drive a pole through that vampire once you find her.” The thought was appealing, but...
+ - He was impolite while making a point? This is Vlad the Impaler. His points usually come at the end of a long pole.
+ - Cat, you asked me before to find out if those dream -suppression pills had any side effects. I’ve checked with Pathology, and they said you might experience depression, mood swings, irritability, paranoia, and chronic fatigue. Have you noticed any of that?
+ - Mencheres. Bones co-ruler, grandsire, Master vampire of incredible power, and the ally who unnerved me the most, had telekinetically held me down so Bones could boink me into submission enroute to the vampire holding cell? Sweet holy Jesus, let me have hallucinated hearing that!
+ - You’re my Red Reaper, and I’ve missed you terribly.
+ - Note to self: Don’t get on Veritas’s bad side. She holds a grudge for centuries.
+ - I love you, Kitten. There’s nothing on this earth or under it that can change that.
+ - Kira knew that his tounge felt like a vibrator set to the speed of Oh Hell Yeah.
+ - Age had taught him patience. Youth had taught me to get frustrated at the lack of progress.
+ - Bring me liquor, Bones, fast, to take my foot out of my mouth. Cat to Bones.
+ - That one tickled. If electrocution is your way of flirting, I commend you on your originality.
+ - Friends might be rare but they’re not irreplaceable.
+ - Where are you, bloodsuckers? Here, fangy, fangy, fangy...
+ - It hurts to much to be close to you, but continually pushed away.
+ - Slumber party with Dracula, all things considerd why not?
+ - I was going to die, but I didn’t have to grovel.
+ - Paranormal fiction offers authors – and readers – the chance to answer the question, What if? All the different ways that question can be answered make for extremely entertaining reading.
+ - I’d address his way of trying to discourage Ian later. After all, he could have come up with something other than saying I was a whiny, smelly, trumpet-snoring bad lay.
+ - Usually my form of turning someone down was shoving a stake through his heart while smirking, Gotcha!
+ - As if Spade’s chivalry would allow him to do anything to a woman. The harshest punishment she could imagine him dishing out to Cat would be refusing to open a door for her.
+ - He’ll learn that many women can satisfy for a short period of time, but when he falls in love, only one will sustain him forever.
+ - I couldn’t help shaking my head as I looked at him. Ian slept like a baby every morning – well, a baby who continually kept one hand down his pants.
+ - Brave words in a room full of pulseless creatures. Spade gave Don a disgusted glance while Rodney just licked his lips. No doubt he was mentally salting and peppering Don.
+ - No one believes you’re serious until bodies start to fall.
+ - He picked the wrong profession. Should’ve stayed a prostitute. He’d have made millions. – Cat.
+ - You can run from the grave, but you can’t hide.
+ - Jesus, Mary and Joseph, I was going to squirt tears. How unprofessional.
+ - Your mom can’t hate a whole country because of one person!
+ - Playing with fire Kitten?
+ - Beautiful and diabolical. You make me impatient indeed to claim you.
+ - Don’t fret, Grannie. We’re going to a Bible retreat to scare the devil out of her.
+ - All I’m saying is that sooner of later, you’ll have to come to terms with yourself. You can’t wish away the vampire in you, and you shouldn’t keep atoning for it. You should figure out who you are and what you need, and then don’t apologize for it. Not to me, to your mum, or to anyone.
+ - How could I possibly keep my cool while getting sweaty with him? What if I screamed out something horrifying, like “I love you?” What if I had an epileptic attack and started drooling or spitting right in the middle of things?
+ - You can hear my dreams? God, you must never get any quiet. I’d be shooting myself in the head if I were you.
+ - Would you mind repeating that? I’m afraid I might have lost my wits altogether and just hallucinated what I’ve longed to hear.
+ - You called her Kitten? And she let you? She put me in a coma for three days when I called her that! My balls never recovered from her smashing them into my spine!
+ - I think we need to have a little talk, woman to skank.
+ - Wasn’t it time she risked getting hurt again, instead of just accepting the numbness of never letting anyone in?
+ - Try not to think too often, you’ll only hurt yourself.
+ - All the rest of the world could only kill or devastate my mind and body. Bones alone held the power to demolish my soul.
+ - Dead or not, you must be bored with women telling you how you look like the hottest, most exotic wet dream they’ve ever had. No wonder the thought of you, grapes, and some scented massage oils crossed my mind – and if you drop that towel again, I’m going to need a cold shower.
+ - One corpse, extra crispy! Do I hear a thousand dollars?
+ - Be good only if being bad ain’t more fun.
+ - Movies. Drinks. Headless chickens. You know, girl stuff.
+ - Why do these crazy vampires keep trying to collect me?
+ - I threw my hands up. Men. They were impossible to reason with.
+ - Whoever said ignorance was bliss was shortsighted.
+ - Between the money and the illegal merchandise, Bones was getting millions. No wonder he laughed at my salary. -Cat.
+ - Since this was a formal undead gathering, there would be food – all kinds – drinks, dancing, and festivities, while those in power pondered whether or not to slaughter half the people around them. In other words, like a high-school prom.
+ - Well, I hope your hard self enjoys flogging the bishop tonight!
+ - First bubble baths. Now Disney parks. You’re shattering every creep vampire myth I’ve ever heard.
+ - Am I the only one who has wood over that little vixen?
+ - Maybe I was worrying for nothing. Maybe it had just been casual for him, and I wouldn’t even have to tell him it couldn’t happen again. After all, the man was a couple hundred years older than me and a former gigolo. I certainly hadn’t robbed him of his virginity.
+ - There were words for what he meant to me, but if I studied every language ever spoken for the next thousand years, I still wouldn’t find enough of them to describe it.
+ - You should figure out who you are and what you need, and then don’t apologize for it.
+ - His embrace was my drug of choice, and as any addict knew, one sampling was way too many and a thousand never enough.
+ - How about I let you floss with my jugular as well?
+ - I can give you honesty, monogamy, and more passion than you can stand, but not love. That emotion died in me long ago, as I suspect you already know.
+ - You can have all of me, I silently told him, but I’m taking all of you in return.
+ - I was sitting cross-legged in bed, trying without success to pretend I’d misunderstood the image I’d glimpsed. Yeah, right. Because Vlad had been between my legs looking for a set of keys he’d lost.
+ - A vibrator can last all night, too, vampire! – Denise.
+ - I’m the only authentic Vlad. Everyone else is merely an envious imitation.
+ - I’ve watched you barely escape death several times, and each instance killed me a little inside. They may be dormant now, but we have enemies both cunning and cruel. Knowing you possess the power to defeat most of them doesn’t threaten me, luv. It relieves me to my very core.
+ - Anytime you want to lay off the paybacks God, that’d be great.
+ - If anyone’s under a spell, Justina, it’s me. Your daughter put one on me five years ago, and I haven’t broken free of it yet. Oh, and you’ll be delighted to know, we’ve decided to resume our relationship. Don’t bother with congratulations – trust me, your expression is congratulations enough.
+ - You see, you don’t want me to love you. You want the version you’ve made up. The knight, even though I’m the dragon and I always will be.
+ - People can perfect whatever facade they want, but everyone holds their sins close to their skin.
+ - Good. If you checked your e-mail every five minutes, or keep texting and Tweeting in the middle of our conversation, I might snap your neck out of sheer principle.
+ - I’d gone heavy on the black eye makeup until raccoons and I could pass for cousins.
+ - We’re going to knock those demons out and slay them with the power of Jesus. Hallelujah, can I get an amen?- Timmie.
+ - I thought Bones looked like a little slice of heaven, but you’re the whole cake, aren’t you, sugar?
+ - When you conquer something, it means you fought for it.
+ - Kitten, your hands are heaven and your eyes are my home.
+ - I didn’t understand, either, but love had no sense sometimes. Pondering the why of it was futile.
+ - It hasn’t escaped my notice that you only compliment me when you’re intoxicated.
+ - Maybe it was a good thing that Bones was putting Don’s remains away instead of me. With my current emotional state, I’d probably think the only safe place for his ashes was tucked inside my clothes next to the garlic and weed.
+ - Some things are worth the cost of their consequences.
+ - Any situation was better faced with an empty bladder, a clean body, and a lack of morning breath.
+ - I don’t lack for bed partners, so I don’t need to scrounge for unwilling scraps.-Spade.
+ - Perhaps some of the appeal of the dangerous-but-yummy paranormal anti-hero lies in his scorn for societal expectations. Yes, women have come a long way, but there are still some cultural stigmas more associated with women than men.
+ - I love you. You have no idea what you are worth to me.
+ - Nice to meet you, mate, and here’s some advice: Don’t even think about it. You try anything with her and I’ll neuter you with my bare hands.
+ - When I heard the ghouls coming for you, all I cared about was reaching you in time. How often must I tell you that you mean more to me than vengeance? I can live without defeating my enemies, but I cannot live without you.
+ - What had started out as a game was now an open challenge, as well as a direct threat. Any further action would bear results, it was clear from the way his gaze smoldered into mine. In that way, it was like an optical erection.
+ - He had black hair anybody could see was dyed, and even had one long piece wrapped around his head in that way some men did to fool no one into believing they weren’t bald. I resisted a sudden strong urge to tug away that piece and scream peekaboo! at his bare crown underneath.
+ - Slash was about my height, and he used the alignment of our bodies to his greatest advantage. I let it go on for a few minutes. Right up until he unzipped his leather pants and pulled out Mr. One Eye.
+ - He tasted like sin made into wine: dark, heady, and impossible to resist.
+ - No matter what I think about this, Leila, you’re my daughter, so you are not walking down that aisle alone.
+ - If I’d known you were such a lush, I’d have given you the cheap stuff. Going to go out with a bang, are you?
+ - Survival first, then heartbreak.
+ - If you were Catholic, you’d singe the ears of the priest you confessed to.
+ - You’re the light I can never have and I’m the darkness you’ll never succumb to.
+ - I might look as average as the next person but I had a few secrets up my sleeves. And lots of knives of course.
+ - Did you really think I’d ceased to care? Kitten, I care so much it wrecks me.
+ - Dave and Tate were dressed with equal heinousness. More black leather, chains, and whips. Either Don’s staff truly had costumes for all possible occasions on hand, or someone at wardrobe had a lot of explaining to do.
+ - I hadn’t expected to be kidnapped today or I’d have worn something more conservative.
+ - That face. That body. And you know he’s packing. Look at the angle on that dangle.
+ - The image I’d had of myself as a child was someone I’d never be, and it was only recently that I realized it was okay to be who I was. – Cat.
+ - This wasn’t the first time I’d woken up as a captive. It wasn’t even the second. I so needed to reevaluate my life choices.
+ - Kitty need’s a tounge bath.
+ - How unconvincing. Try again.
+ - I’m attracted to a lot of hot guys. If Chris Hemsworth were here, I’d light him up like a firecracker with how fast I’d jump on him.
+ - Nathanial can show me how to better control the change, but even so, you never have to worry about me turning into a cat again. Didn’t you know, I’m allergic to cats.
+ - Next to her, I felt like Carrot Top in drag. Cat re: Annette.
+ - You’re meant for me, and I will have you.
+ - Of course he wouldn’t hesitate before trying something that had never been done before. He was Vlad Tepesh. How could he fail?
+ - I’d heard Bones threaten to beat someone with their own limb before, but I’d always assumed that was a figure of speech. Apparently not.
+ - The servants must wait like ninjas for me to leave so they could render this place spotless again.
+ - The clock struck eleven and cat the vampire huntress was on the loose, except my battle armor was a push-up bra, curled hair, and a short dress. Yeah, it was a dirty job, but I was going to do it. Come one, come all, bloodsuckers! Bar’s open!
+ - You. Me. Exorcist. -Bones.
+ - Have your boyfriend add therapy bills to my expense tab.
+ - He smiled, so sensual and beautiful, it was another form of bliss just looking at him.
+ - If anyone other than you had me fly halfway around the world just to keep me waiting while you were obviously lingering in bed, I’d have my driver run them over. Twice.
+ - Bath toys are reserved only for the oldest, more lethal vampires.
+ - I love the Underworld movies because the vampires arent automatically evil, yet neither are they basically humans with fangs.
+ - A hysterical human? Who hadn’t seen that before?
+ - You’re right. Everyone in this room with a pulse is starting to smell really good. Okay. Back in the box, better safe than sorry.
+ - So that makes him, like, your fang granddaddy.
+ - Killing your rival doesn’t guarantee happiness. Sometimes it ruins any chance you have of it instead. Memories of dead men hold far more power than the annoyances of living ones.
+ - It was ironic; he held her captive, yet she’d captivated him.
+ - I want to know all of you, Kitten. What you show me, and what you try not to.
+ - God, Bones, you must have argued yourself blue in the face.
+ - I’d relived enough terrible events happening to cautious people to know that prudence wasn’t a guarantee for happiness.
+ - Because, Cat, it’s the feminine persuasion that’s always the deadliest.
+ - Will the real Red Reaper please stand up?
+ - The Broken Destiny series will be a trilogy, with each book releasing about a year apart.
+ - How could you be nervous about asking me to marry you, Bones? I’d die for you. Why wouldn’t I want to live for you as well?
+ - Bubbles. On a scale of one to ten, a bubble bath has to rank zero as far as things I’d expect an older-than-dirt-badass vampire to indulge in. The only thing that would surprise me more would be if you pulled out a rubber ducky. -Kira to Mencheres.
+ - One of my favorite things about supernatural fiction is its vast array of creatures.
+ - Just because some of us make a mistake in love once doesn’t mean we’re doomed to repeat it.
+ - I just elbowed the pretty blonde he’d been speaking to aside and slapped my panties on his chest. “As soon as I saw you”, I purred, “I knew I wouldn’t be needing these”!
+ - Why did he have to be so gorgeous? Why did he have to stand so close, and why did I still love him so much?
+ - Brush teeth. Wash hair. Rule undead world with an iron fist.
+ - I’m great as bait! All the vampires want to eat me!
+ - We had to play the hand we were dealt, all of us. Fighting the battles we could win.
+ - I wanted you to watch, so I stomped around the room to wake you before I got in the shower. Didn’t you wonder why the light was on? It wasn’t for me, I can see in the dark. And then I kept the water cold so the glass wouldn’t fog.
+ - Let’s go, Kitten, before you kill someone else. -Bones.
+ - I dare because I want no misunderstanding between us. I am everything you think I am, but I love your daughter, and what I love, I protect with all of the violence in me, which, as you’ve guessed, is considerable.
+ - I don’t care what you think, your junk does not have special abilities.
+ - I was slumped next to him. He didn’t pay any attention to me, but kept snickering as he drove. It was annoying. I had PMS and a test this morning. Boy, had he picked the wrong girl.
+ - I might be the only chick in the group, but that didn’t make me the damsel in distress.
+ - If only there was a way I could cover my tension with the scent of eau de brass valls instead.
+ - Don’t squander what you have. If you do, you’ll spend the rest of your days regretting it.
+ - How I hated the dark part of me that continually foretold of failure or futility.
+ - Revenge was the emptiest of emotions. Apparently it motivated people to do the stupidest things as well.
+ - You probably love to tell kids to get off your lawn, too.
+ - I think Mount Everest is gorgeous, too, but that doesn’t mean I have any intention of trying to climb it.
+ - You’ll be scandalized in the morning when you can think again.
+
+185 quotes

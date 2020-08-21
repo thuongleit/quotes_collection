@@ -1,0 +1,56 @@
+ - It is not worth an intelligent man’s time to be in the majority. By definition, there are already enough people to do that.
+ - Beauty is the first test: there is no permanent place in the world for ugly mathematics.
+ - A mathematician, like a painter or poet, is a maker of patterns. If his patterns are more permanent than theirs, it is because they are made with ideas.
+ - Archimedes will be remembered when Aeschylus is forgotten, because languages die and mathematical ideas do not. “Immortality” may be a silly word, but probably a mathematician has the best chance of whatever it may mean.
+ - No mathematician should ever allow himself to forget that mathematics, more than any other art or science, is a young man’s game.
+ - I am interested in mathematics only as a creative art.
+ - If I could prove by logic that you would die in five minutes, I should be sorry you were going to die, but my sorrow would be very much mitigated by pleasure in the proof.
+ - The “seriousness” of a mathematical theorem lies, not in its practical consequences, which are usually negligible, but in the significance of the mathematical ideas which it connects.
+ - A chess problem is an exercise in pure mathematics.
+ - A mathematician, like a painter or a poet, is a maker of patterns.
+ - The Babylonian and Assyrian civilizations have perished; Hammurabi, Sargon and Nebuchadnezzar are empty names; yet Babylonian mathematics is still interesting, and the Babylonian scale of 60 is still used in Astronomy.
+ - There is always more in one of Ramanujan’s formulae than meets the eye, as anyone who sets to work to verify those which look the easiest will soon discover. In some the interest lies very deep, in others comparatively near the surface; but there is not one which is not curious and entertaining.
+ - Young men should prove theorems, old men should write books.
+ - I believe that mathematical reality lies outside us, that our function is to discover or observe it, and that the theorems which we prove, and which we describe grandiloquently as our “creations,” are simply the notes of our observations.
+ - Most people can do nothing at all well.
+ - Mathematics is not a contemplative but a creative subject.
+ - Mathematics may, like poetry or music, “promote and sustain a lofty habit of mind.”
+ - The public does not need to be convinced that there is something in mathematics.
+ - The primes are the raw material out of which we have to build arithmetic, and Euclid’s theorem assures us that we have plenty of material for the task.
+ - The study of mathematics is, if an unprofitable, a perfectly harmless and innocent occupation.
+ - The theory of numbers, more than any other branch of mathematics, began by being an experimental science. Its most famous theorems have all been conjectured, sometimes a hundred years or more before they were proved; and they have been suggested by the evidence of a mass of computations.
+ - In these days of conflict between ancient and modern studies, there must surely be something to be said for a study which did not begin with Pythagoras, and will not end with Einstein, but is the oldest and the youngest of all.
+ - If intellectual curiosity, professional pride, and ambition are the dominant incentives to research, then assuredly no one has a fairer chance of gratifying them than a mathematician.
+ - Exposition, criticism, appreciation, is work for second-rate minds.
+ - I count Maxwell and Einstein, Eddington and Dirac, among “real” mathematicians. The great modern achievements of applied mathematics have been in relativity and quantum mechanics, and these subjects are at present at any rate, almost as “useless” as the theory of numbers.
+ - All analysts spend half their time hunting through the literature for inequalities which they want to use and cannot prove.
+ - Reductio ad absurdum, which Euclid loved so much, is one of a mathematician’s finest weapons. It is a far finer gambit than any chess play: a chess player may offer the sacrifice of a pawn or even a piece, but a mathematician offers the game.
+ - Cricket is the only game where you are playing against eleven of the other side and ten of your own.
+ - For any serious purpose, intelligence is a very minor gift.
+ - A person’s first duty, a young person’s at any rate, is to be ambitious, and the noblest ambition is that of leaving behind something of permanent value.
+ - Good work is not done by ‘humble’ men.
+ - Most people are so frightened of the name of mathematics that they are ready, quite unaffectedly, to exaggerate their own mathematical stupidity.
+ - No one has yet discovered any warlike purpose to be served by the theory of numbers or relativity, and it seems unlikely that anyone will do so for many years.
+ - The mathematician’s patterns, like the painter’s or the poet’s must be beautiful; the ideas, like the colours or the words must fit together in a harmonious way. Beauty is the first test: there is no permanent place in the world for ugly mathematics.
+ - Asked if he believes in one G-d, a mathematician answered: “Yes, up to isomorphism”.
+ - Real mathematics must be justified as art if it can be justified at all.
+ - For my part, it is difficult for me to say what I owe to Ramanujan – his originality has been a constant source of suggestion to me ever since I knew him, and his death is one of the worst blows I have ever had.
+ - A science is said to be useful if its development tends to accentuate the existing inequalities in the distribution of wealth, or more directly promotes the destruction of human life.
+ - Bombs are probably more merciful than bayonets.
+ - I propose to put forward an apology for mathematics; and I may be told that it needs none, since there are now few studies more generally recognized, for good reasons or bad, as profitable and praiseworthy.
+ - What we do may be small, but it has a certain character of permanence; and to have produced anything of the slightest permanent interest, whether it be a copy of verses or a geometrical theorem, is to have done something utterly beyond the powers of the vast majority of men.
+ - It is hardly possible to maintain seriously that the evil done by science is not altogether outweighed by the good. For example, if ten million lives were lost in every war, the net effect of science would still have been to increase the average length of life.
+ - I do not know an instance of a major mathematical advance initiated by a man past fifty.
+ - 317 is a prime, not because we think so, or because our minds are shaped in one way rather than another, but because it is so, because mathematical reality is built that way.
+ - It is rather astonishing how little practical value scientific knowledge has for ordinary men, how dull and commonplace such of it as has value is, and how its value seems almost to vary inversely to its reputed utility.
+ - There is no scorn more profound, or on the whole more justifiable, than that of the men who make for the men who explain.
+ - Sometimes one has to say difficult things, but one ought to say them as simply as one knows how.
+ - A science or an art may be said to be “useful” if its development increases, even indirectly, the material well-being and comfort of men, it promotes happiness, using that word in a crude and commonplace way.
+ - The fact is there are few more popular subjects than mathematics. Most people have some appreciation of mathematics, just as most people can enjoy a pleasant tune.
+ - The mathematician’s patterns, like the painter’s or the poet’s, must be beautiful.
+ - No discovery of mine has made, or is likely to make, directly or indirectly, for good or ill, the least difference to the amenity of the world.
+ - Bradman is a whole class above any batsman who has ever lived: if Archimedes, Newton and Gauss remain in the Hobbs class, I have to admit the possibility of a class above them, which I find difficult to imagine. They had better be moved from now on into the Bradman class.
+ - As history proves abundantly, mathematical achievement, whatever its intrinsic worth, is the most enduring of all.
+ - I was at my best at a little past forty, when I was a professor at Oxford.
+
+54 quotes

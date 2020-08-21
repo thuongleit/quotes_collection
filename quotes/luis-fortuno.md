@@ -1,0 +1,21 @@
+ - Bilingualism opens doors and provides opportunity to our children so they can shine and become successful in a labor market that is increasingly competitive and globalized.
+ - It is wrong to believe that Hispanics are Democrats. Hispanics are traditionally and historically conservative, not just socially conservative, but fiscally conservative.
+ - Hardworking Americans are fighting every day to provide for themselves and their families, and leave a more prosperous country for the next generation.
+ - Over 90 percent of parents in Puerto Rico want their children to be totally fluent in English.
+ - I came into the Republican party in 1980, when I was a college student at Georgetown.
+ - The GOP can’t even envision winning the White House if we lose a significant percentage of the Hispanic vote.
+ - Education is extremely important to the Hispanic community, as well as faith, and certainly working hard.
+ - I supported the stimulus package.
+ - Get government out of our way, and let freedom and the spirit of the American people shine through.
+ - I am making sure, as the governor of a territory, that our kids speak fluent English. But having said that, I will tell my wife I love her in Spanish, and I will pray in Spanish, and no one from Washington should come down here and tell us how to go about it.
+ - In doing what I’m doing, you have to be sensitive to the fact that you’re not dealing with numbers, you’re dealing with people. And I will continue to be sensitive to that.
+ - Republicans cannot continue to oppose every Hispanic issue.
+ - I watched Reagan turn around the country by lowering taxes and controlling spending, and I’m applying the same principles.
+ - I came into office to do what was correct, not to see what was politically expedient to get re-elected.
+ - I think there is a lot of fat in the government.
+ - Some people called me a fascist. That’s mostly over, but there will be more attacks from the unions.
+ - We cannot continue to close our eyes to the fact that we have to truly embrace green jobs, new technologies and alternative sources of energy.
+ - When I came into office, I could have kicked the can down the road for a little while, or I could do the right thing.
+ - I resent Washington telling states, or the residents of those states, what to do and what to think.
+
+19 quotes

@@ -1,0 +1,138 @@
+ - The artists who endure are the ones who stay focused even after they have reached the top of their profession.
+ - Work hard, be patient, and be a sponge while learning your business. Learn how to take criticism. Follow your gut instincts and don’t compromise.
+ - Being different is good; embrace it.
+ - Maybe I am a bit mad.
+ - What other people think about me is none of my business .
+ - I get very anti-social, depressed and irritable with people. I don’t have time for them. I can’t make phone calls and stuff. I just sit on my own for days.
+ - I didn’t realise how important stupid people are in your life, because you ask yourself, what made stupid people so stupid? What made them the way they are?
+ - My dad did teach me a very important lesson about people when he explained to me that everybody around you will have an invisible sign on their head, which says, “Make me feel important.”
+ - I should get a dog. I would get a rescue dog. I like mutts; I don’t care. I would probably get a three-legged dog no one else would want.
+ - People confuse ego, lust, insecurity with true love.
+ - Shave off your beard and wear a dress. You would be a great female impersonator.
+ - That was extraordinary. Unfortunately, extraordinarily bad.
+ - I like spaghetti bolognese, I like baked beans on toast. I hate French food. I hate fancy food.
+ - When someone asks, ‘Does success make you into a monster?’ I always say, ‘No, it enables you to be a monster.’
+ - I break up very well. I am a good breaker-upper.
+ - You know what the secret to weight loss is? Don’t eat much.
+ - I hate belongings. I hate clutter. It really bothers me because I can’t think properly. If you’ve got distractions in front of you, your mind goes nuts.
+ - The best way to kill someone is from the inside, by crushing their hopes and dreams.
+ - Good is not enough. You’ve got to be great.
+ - Harshness to me is giving somebody false hopes and not following through. That’s harsh. Telling some guy or some girl who’ve got zero talent that they have zero talent actually is a kindness.
+ - You don’t hate the mosquito; you just want it out of your face.
+ - I’ve had Botox, but then again pretty much everyone I know has. To me, Botox is no more unusual than toothpaste. It works. You do it once a year – who cares?
+ - If I go into a relationship with an artist, which at most is going to last five years, we have a 100-page contract covering every eventuality. Whereas with marriage you go into it with no contract, with laws that date back hundreds of years, and I don’t think that’s right.
+ - The young people working for me are ambitious and hard-working. That work ethic has always been a trait of the British.
+ - My attitude is, if someone’s going to criticize me, tell me to my face.
+ - You didn’t beat the compotition you crushed the compotition!
+ - Not everybody is perfect, and I don’t think we should be looking for perfect people.
+ - I don’t mind being cast as some kind of a pantomime baddie, but I am very fair in business. I always have been. I pride myself on being fair.
+ - You are a saucy little thing aren’t you?
+ - If your lifeguard duties were as good as your singing, a lot of people would be drowning.
+ - My advice would be if you want to pursue a career in the music business, don’t.
+ - My dad said to me, ‘Work hard and be patient.’ It was the best advice he ever gave me. You have to put the hours in.
+ - I was so tired, wasn’t having fun any more, and wasn’t sure if I wanted to do this any longer. So I turned my phone off and sorted my head out. It was the opposite of a breakdown really, it was a break-up – I got rid of all the idiots, realised my job was supposed to be fun, and got on with my life.
+ - You sounded like someone who should be singing on a cruise ship. Halfway through your song, I wished the ship was sinking.
+ - I couldn’t think of anything worse than being in an unhappy marriage. It worries me because I’ve seen it destroy people.
+ - Of course I have an ego, but you have to have an ego. You have to be incredibly competitive. I can get competitive at times, way too much, and it becomes a little bit obsessive.
+ - I think of stress as the creator of cancer and heart attacks, like a tiny little ball you feed. I believe that one of the reasons I’ve never got ill is that I’m not stressed.
+ - It simply works. You do it twice a year. Who cares? And it balances my smoking and drinking.
+ - It was like orderin a hamburger and getting only the buns.
+ - I can’t think of one person who is on TV who isn’t vain. It’s the nature of the beast. If you are on TV then you have a vanity, for sure. Just admit it! Why not?
+ - Talking to celebrities is too much effort. They all think the same.
+ - I love TV. I love being behind the scenes on a TV show but there’s something about, I don’t know there’s something very special when you’ve signed an artist and that first record comes in and it’s a good record. It is an indescribable feeling.
+ - You have an advantage if you win. I always think it’s best to be remembered as a winner rather than as the runner-up. It’s definitely more fun getting the gold than it is the silver.
+ - I’ve learned to deal with stress much better now, things don’t bother me in the way that they once used to.
+ - I don’t like kids that are pushed into things by stage mums, but when I can see they are having a good time, they’re excited and enjoying the process, then I think it’s wrong to discriminate.
+ - I suggest we bring some normality back to this country and say if you are carrying a knife, there must be zero tolerance. If it was up to me, everyone caught with a knife would get an automatic ten year sentence.
+ - Anything I shouldn’t laugh at makes me laugh. I mean, I’m bad at that, when somebody is singing something terribly and I’m thinking to myself, ‘If I laugh now, this is the absolute worst thing I could ever do,’ and then I start laughing and I can’t stop.
+ - I have always hated celebrities lecturing people on politics. So forgive me. But I am passionate about this country. I am equally passionate about the potential of the people who live here.
+ - If you’ve got a big mouth and you’re controversial, you’re going to get attention.
+ - Women say hello and then put their hands down my trousers. I thought it was my hand they were supposed to shake.
+ - The end of the animal trade would leave more time to trap or beat to death pop star wannabes.
+ - My life honestly isn’t as weird as people think it is. I work longer hours, maybe I have a bit more money, but fundamentally, I’m not really that different.
+ - I’d say the most dangerous thing I’ve ever done is probably bungee jumping in Thailand.
+ - I work out three or four times a week, I have Botox, take tons of vitamins and vitamin infusions – if you believe that these things work, you will feel better.
+ - Whether they run a record company or a grocery store, every boss will tell you you’re in big trouble if you’re borrowing more than you can ever afford to pay back. Delaying the pain for future generations is suicidal. We’ve got to start getting the deficit down right now, not next year.
+ - I do a couple of hundred press-ups a day but I haven’t been to a gym in years.
+ - You always want to go to a party where you get an invite.
+ - At 20, you’re cocky and you think you can rule the world, and you get it all wrong.
+ - I don’t have sophisticated tastes. I have average tastes. If you looked in my collection of DVDs, you’d see ‘Jaws’ and ‘Star Wars.’ In the book library, you’d see John Grisham and Sidney Sheldon. And if you look in my fridge, it’s, like, children’s food – chips, milkshakes, yogurt.
+ - Beyonce is good-looking. Jennifer Lopez is good-looking. Madonna used to be good-looking.
+ - When I think of invention, I always think of America. You’re always seeing ads: ‘Have you got the next big idea?’ There seems to be that spirit in America of inventions and inventors.
+ - Holding auditions in front of an audience is testing.
+ - It’s not our intention to be mean. That’s just within us.
+ - What luxury would I take to a desert island? A mirror. It’s true. I’d miss me.
+ - What I would argue in my defence is that shows like ‘Britain’s Got Talent’ and ‘The X Factor’ have actually got people more interested in music again and are sending more people into record stores.
+ - It’s personalities, it’s conflict, it’s all of these things that actually make performers interesting.
+ - The only magazines I read are car magazines.
+ - Thank God kids love following an artist. When you get a group who pop, it’s the best thing in the world.
+ - Britain’s got talent, enormous talent; that’s very obvious.
+ - I don’t mind competition at all. I mean, the record business is the most competitive business in the world, probably. So I’m used to that. In a weird way, it kind of makes you work harder.
+ - You don’t go into anything contemplating failure, because if you did, you wouldn’t make it.
+ - The only people with power today are the audience. And that is increasing with Twitter, Facebook, and everything else. We cater to their likes and dislikes, and you ignore that at your peril.
+ - The minute you start assuming that the audience is very happy to see the same show again, you’re dead.
+ - Every time I sat in a chemistry lesson, I thought, ‘What am I doing this for? I don’t ever want to be in a job that involves a Bunsen burner.’
+ - We have hated the French for years. Now you have just joined the club. It makes you much more likable.
+ - The secret of my success is that I make other people money. And, never, ever, be ashamed about trying to earn as much as possible for yourself, if the person you’re working with is also making money. That’s life!
+ - Most things in music go full circle eventually.
+ - I grew up when the whole Motown thing was huge. The charts in those days were dominated by groups more than solo artists at one point.
+ - Anyone who goes on ‘The X Factor’ to make big money will be in for a big shock.
+ - They understand what their market is and who they should be selling records to, and most importantly, they know the kind of artist that they want to be, but they have to do it themselves. You don’t want a 13-year-old singing some awful song from a musical.
+ - I turned down many chances to be on TV before ‘Pop Idol’ because I really wasn’t interested in being famous. I didn’t need it and didn’t want it.
+ - In TV, film, and music there’s a lot of snobbery, and I don’t like it. I’ve never been a cultural snob.
+ - It’s the government’s job to encourage entrepreneurialism and investment. Most importantly, it’s the government’s duty to inspire confidence.
+ - There’s one argument that says we shouldn’t be putting these kids on under the age of 16. I think you’ve got to take it case by case.
+ - I think that by ignoring the show you’re ignoring the audience who put you there.
+ - I don’t want to tell a 15 or 14 year old what they should be doing. I want them to tell me. And that’s what I got when I met Justin Bieber for the first time.
+ - I think you have to judge everything based on your personal taste. And if that means being critical, so be it. I hate political correctness. I absolutely loathe it.
+ - Anything I shouldn’t laugh at makes me laugh.
+ - Sincerity is romantic. I don’t think you need gestures.
+ - If you only ever heard Lady Gaga, she’s the most boring singer in the world.
+ - I was slightly cynical of the American mentality before I came over here, but now I preach it. Here, no one’s going to tear you down if you buy yourself a $300,000 car. They’re likely to say: “Well, you probably worked hard for it. Good luck to you.”
+ - Everyone who turns up on ‘X Factor’ does it because a door has been closed to them at some time in their lives, and this is the only shot they have got.
+ - It would hurt my feelings if I respected your opinions.
+ - Choosing how you vote should not be a snap verdict based on a few minutes of television.
+ - As an actor, I really like Philip Seymour Hoffman. I think he’s a genius.
+ - Well, it’s basically the viewers who determine it. We – well, basically the producers and myself chose the people we felt had the best reaction, you know, through the press, the Internet, the people we thought deserved a second chance. And they’ve chosen a winner, I believe.
+ - Normally if I go to one of these things I’m in and out in five minutes, but at Pride of Britain I stay to the end. It’s a fantastic show. But it’s incredibly hard on the night when you meet all the kids and hear their stories. They do get to you.
+ - What I’m interested in watching is to make sure that they give the right advice now to the contestants who are going forward because, you know, it’s one thing just to criticize but you’ve got to also give, you know, good advice which is going to help them. Overall, I think they’re a good panel.
+ - My proudest achievement has been the success of the shows and artists I have been involved with, because they were made in Britain.
+ - We felt the time was right to open up the boundaries, and say to all of America, regardless of your age, whether you’re 2, whether you’re 100, regardless of what you believe your talent is – juggling, magic, singing – this is the show you can enter. It’s as simple as that.
+ - Praise a stranger with a few nice words and he becomes a stranger that calls you a friend.
+ - My own saying is: ‘Create the hype, but don’t ever believe it.’
+ - I met someone the other night who’s 28 years old, and he hasn’t worked a day since he left college because he’s pursuing a dream he’ll never, ever realize: He thinks he’s a great singer. Actually, he’s crap.
+ - Money brings you security and choice. You can make decisions in a different way if you have a lot of money. But when you have nothing, you have a naivety, and a more fearless attitude because you have nothing to lose.
+ - I want people to understand that from the minute Lady Gaga arrived, she created a new set of rules: being different is good; embrace it.
+ - Music should always be polarizing. What one person likes, somebody else hates. And I hate that kind of snobbery in pop music. The fact that so many people are getting upset over this one song is hysterical. And if people like it, that’s great.
+ - I actually don’t understand a word Paula’s saying anymore. It’s like a new language.
+ - I’m obsessed with cleanliness for myself, so I will take a bath three times a day, sometimes a steam twice a day in addition to that.
+ - If I had to say who is the number-one most powerful figure is in reality TV, it’s very easy. It is the general public. They’re the only people who have power now.
+ - The object of this competition is not to be mean to the losers but to find a winner. The process makes you mean because you get frustrated.
+ - I’ve spent hundreds of thousands of pounds on the very best security and I can assure you my homes are as safe as the Bank of England.
+ - My heart, my lungs, my blood – they’ve all been checked. I remember one of the doctors almost being disappointed when he showed me the results because he couldn’t wait to tell me what smoking was doing to me. But there was nothing there.
+ - I’ve always been petrified of working for a boss who I didn’t like but who I was in fear of, because I wanted my salary.
+ - If I said to most of the people who auditioned, ‘Good job, awesome, well done,’ it would have made me actually look and feel ridiculous. It’s quite obvious most of the people who turned up for this audition were hopeless.
+ - I didn’t have any qualifications when I left school – I had three O-levels.
+ - There’s no need for me to get married. I live with someone; we’re happy; end of story.
+ - I think America is a hard nut to crack. But once you get a toehold, it’s a great place for an entrepreneur because people are so enthusiastic, and you have the most enthusiastic audiences in world.
+ - I have total respect for anyone who discovers a band like Snow Patrol. I would be hopeless at signing a rock band, or anything alternative, cause I don’t know what that audience are into and I don’t particularly like that kind of music.
+ - I do see a big difference in the American work ethic compared to the British work ethic in a lot of artists.
+ - If I tape an 11-hour day, guess which parts end up on air. Not the bits when I’m pleasant, but the parts when I’m obnoxious.
+ - Every show I’ve ever, you know, produced, essentially it’s the show I want to watch myself.
+ - So I would only feel guilt if I misled somebody who was terrible.
+ - I genuinely believed no one would want to marry me. I am difficult to live with. I’m selfish, quite weird and I need time on my own to think – and then I work all night long. That is difficult for someone to deal with. And it would drive me mad – I could never be my own girlfriend!
+ - Rules equal boredom, and I don’t like that.
+ - I could just sit back and get someone to spin my achievements, I suppose, but when I see others do it, I always think, ‘Why are you telling me how successful you are?’ I am always suspicious of those kinds of boasts.
+ - I’ve always treated the music business as a business.
+ - I have always hated celebrities lecturing people on politics.
+ - If I went to a psychiatrist, it would be a long session. I’ve always thought that I do have a number of issues that probably need dealing with, because I am quite odd in some ways.
+ - I never knew how much love and pride I would feel.
+ - I’ve never liked the idea you have to be a certain age to be a pop star. I like the idea that anybody can enter, anybody can compete.
+ - You have to be original. The people creating a buzz on YouTube are taking risks, and they’re doing something different. I like it when 15 year-olds come on and tell me what to do rather than the other way around.
+ - I’m a great believer in getting checked out because if you know you’re OK, you actually feel better; your mind plays a big part of it.
+ - I was living life like in one of those Disney movies, where I genuinely believed nobody was ever going to die.
+ - When I was young and we got caught pinching apples, we got a smack from the local policeman. Today if that happened he would be sued. There is a tendency to punish the victim, not the criminal. If someone broke into my house or my mum’s house, I worry that the burglar has more rights than me.
+ - I think if you’re an unhappy person, you’re always going to be an unhappy person. You’re probably going to be less unhappy if your business is doing well, if I’m being honest.
+ - I love producing shows. And so when you’re on a show where other people are making decisions you don’t necessarily agree with it, after a while you start to feel like a passenger.
+
+136 quotes

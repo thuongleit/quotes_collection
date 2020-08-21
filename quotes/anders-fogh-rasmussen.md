@@ -1,0 +1,25 @@
+ - Business as usual is dead. Green growth is the answer to both our climate and economic problems.
+ - Myopia, in more than ninety-five percent of cases, begins between five and ten years of age. It increases largely because the myopic eye is given a minus lens.
+ - Actually I can’t imagine Nato troops on the ground and I think it’s also important to send that very clear message to the UN and other organisations right now so that appropriate plans can be in place in due time and the Gaddafi regime can collapse soon.
+ - Caricatures are an important part of our culture of debate. They should defuse political spats through humor and irony. It is about making a strong statement but softening it with a wink. So Danes do not get too upset about caricatures. None of us is interested in insulting Muslims.
+ - Iran also has an extensive missile development programme. Iranian officials declare that the range of their modified Shahab-3 missiles is 2,000km, putting allied countries such as Turkey, Greece, Romania, and Bulgaria within reach.
+ - I condemn the entry of a Russian so-called humanitarian convoy into Ukrainian territory without the consent of the Ukrainian authorities and without any involvement of the International Committee of the Red Cross.
+ - Nato allies have been looking at various missile-defence options for some time. Nato itself is developing protections for our deployed troops.
+ - It is the responsibility of Afghanistan’s new government to gain better control over the country’s administration and to resolutely fight the drug trade and corruption.
+ - I think President Karzai realizes exactly how important it is to strengthen the fight against corruption in the country now, step up endeavors to stop the drug trade and to deliver better governance. He said as much in his inaugural address.
+ - The proliferation of weapons of mass destruction and their means of delivery is a threat to both the Nato allies and Russia.
+ - At home, Danes try to resolve their problems amicably so it’s just surreal to see these violent pictures on TV. But as the prime minister, I can’t be controlled by my emotions.
+ - I was deeply distressed that the cartoons were seen by many Muslims as an attempt by Denmark to mark and insult or behave disrespectfully towards Islam or Mohammed.
+ - The American people ask, and legitimately so, why should we carry the heavy burden to ensure international peace and stability. You also profit from it, so you should also take your share in the burden. That’s Secretary Gates’s message. I share that message.
+ - Perhaps we underestimated the challenges in Afghanistan in the past. That’s why we are now strengthening and intensifying our commitment.
+ - That’s what it’s like when people have crawled very high up in a tree, then they sometimes need help to get down with ladders and ropes and other instruments.
+ - More than forty years of Communist rule in Central and Eastern Europe resulted in an unhappy and artificial division of Europe. It is this dark chapter of European history that we now have the opportunity to close.
+ - The good thing is that all the symbolic elements are gone, and that which really matters – the core – is left.
+ - I know very well that Berlin attaches great importance to NATO and solidarity, in terms of sharing the burden. For this reason, I feel confident that the German government will take the right decision, one that serves both German and NATO interests.
+ - I am happy to announce that we have reached an agreement on the question of transit between the Kaliningrad region and the rest of the Russian Federation.
+ - The Americans provide still more advanced military assets and equipment; the Europeans are lagging behind. And eventually it will be difficult to co-operate even if you had the political will to co-operate because of the technological gap.
+ - Russia should recognize the freedom of countries, such as Ukraine, to choose their alliances.
+ - Europe should stick to an open economy, to competition and we should refuse protectionism. It will not save one single job in the long run to protect non-competitive industries.
+ - I don’t think more mega-summits is the way to secure effective implementation.
+
+23 quotes

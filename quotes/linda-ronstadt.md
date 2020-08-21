@@ -1,0 +1,70 @@
+ - Don’t know much, but I know I love you.
+ - Somewhere out there, beneath the pale moonlight, someone’s thinking of me and loving me tonight.
+ - When the night wind starts to sing a lonesome lullaby, it helps to think we’re sleeping underneath the same big sky.
+ - I believe in the empirical wisdom of science, just to start with, so I hope that there might be some treatment out there that might be helpful.
+ - Time washes clean, love’s wounds unseen.
+ - Even though I know how very far apart we are, it helps to think we might be wishing underneath the same bright star.
+ - Cocaine made my nose bleed right away. I thought why do I need a nose bleed? It would make me real nervous and talk really fast. I’m already pretty good at talking too fast. I thought, “Why do I need that?”
+ - Music isn’t just for professionals. We delegate all of our music and our dancing and our art to professionals. It’s silly. We should be doing our own dancing and drawing.
+ - Love will abide, take things in stride.
+ - The thing you have to be prepared for is that other people don’t always dream your dream.
+ - We’ve got blue light, we’ve got all this light flooding our bedrooms and things blinking, and you can’t get a decent night’s sleep.
+ - When you sing the same song over and over and over again, it stops meaning what it originally meant to you. It starts sounding like white noise, or my washing machine.
+ - So goodbye, I’ll be leaving, I see no sense in this crying and grieving. We’ll both live a lot longer, if you live without me.
+ - I can’t sing half as well as Claudia Lennear. Hats off to her, but somehow, things happened for me.
+ - Life’s full of loss, who knows the cost, living in the memory of the love that never was.
+ - I’ve got this weird body chemistry that I don’t like to get high. I’m not going to say I never tried drugs. I tried most everything. I didn’t try injectables. But I didn’t like it.
+ - Cocaine made people deaf, it made people dead and it made people real obnoxious.
+ - I was never bored because I always had a book. So I had a doorway into another world or another universe. It was great.
+ - The essential elements of singing are voice, musicianship, and story. It is the rare artist that has all three in abundance.
+ - My feeling is that the beaches should belong to everybody. Nobody should be able to build anything. It causes erosion. It’s a bad thing altogether.
+ - Marijuana has a lot of very good medical uses, and I truly believe it should be legal, but for just recreational use it wasn’t my drug. I didn’t like it.
+ - I wish I had as much in bed as I get in the newspapers.
+ - I’m a chameleon. I can change my voice a lot. I always was able to, because in my family’s music I was a harmony singer, and harmony singing is really hard.
+ - Art is for healing ourselves, and everybody needs their own personal art to heal up their problems.
+ - You and I, travel to the beat of a different drum, can’t you tell by the way I run, every time you make eyes at me.
+ - In committing to artistic growth, you have to refine your skills to support your instincts.
+ - Everywhere you go, there’s a soundtrack. You can’t really quite hear it. It’s just a little out of the range of hearing.
+ - I think there’s mind in nature. There’s a power in nature, and there’s a universal power that you’d better not ignore.
+ - American radio from the ’30s through the ’60s was just fabulous. There was such a diversity.
+ - This is an election year, and I think we’re in desperate trouble and it’s time for people to speak up and not pipe down. It’s a real conflict for me when I go to a concert and find out somebody in the audience is a Republican or fundamental Christian. It can cloud my enjoyment. I’d rather not know.
+ - Rampant eclecticism is my middle name.
+ - I think musicians are always supportive of each other because they want the groove to keep going on. They just basically want to play music.
+ - The only reason to be with somebody is that they make you a better person and you make them a better person.
+ - Every single year since they invented sound recording it gets better and better. We’ve always improved it. With MP3, which just sounds awful, it’s the first time in the history of recorded music that it sounds worse. It’s really – and it’s everywhere, it’s ubiquitous.
+ - I feel sorry for a culture that depends too much on delegating its musical expression to professionals. It is fine to have heroes, but we should do our own singing first, even if it is never heard beyond the shower curtain.
+ - Being an entertainer, especially in times like these, is really a public service.
+ - If you don’t have story to tell the public at large – you have to be able to sort of go listen.
+ - In the United States, we spend millions of dollars on sports because it promotes teamwork, discipline, and the experience of learning to make great progress in small increments. Learning to play music does all this and more.
+ - I never thought I’d write, because I’d never written anything in my whole life.
+ - I think that Frank Sinatra was maybe the greatest pop singer.
+ - Mainly, when I ran into Emmylou Harris, that was it, you know? We could finish each other’s sentences musically, and personally, too. We have a very shared, similar sensibility. And that was a friendship that really opened up a tremendous number of musical doors for me.
+ - What I think is the universal, wonderful thing about music, is that it’s very inclusive.
+ - My feeling about school was that it interfered with my reading.
+ - I just thought that I was going to get to sing for a living and I wouldn’t have to go to work in the department store or whatever else you did if you were a woman in those days.
+ - I thought everybody could sing, because everybody in my family could.
+ - The constant fear of a performer is to become what is reflected back at you.
+ - Music should be an elective experience. You should go, “I’m going to sit down and listen to some Beethoven, by God,” and then you get to hear it.
+ - I think if the United States gave anything to culture at large in the 20th century, the most important contribution made was the popular song.
+ - What my true addiction is is reading. I love to read. If I’d get too loaded, I couldn’t remember the sentence I just read.
+ - Up until about a hundred years ago, the world was dark at night. You got to have a real night so you could sleep.
+ - There should not be a question of legal or illegal immigration. People came and immigrated to this country from the time of the Indians. No ones illegal. They should just be able to come.
+ - The government has to spend money during a recession, because their spending is our earning.
+ - When I was taking arithmetic in the first grade I said to myself, “I’m going to be a singer. I don’t have to worry about numbers.” I didn’t think I was going to be famous or a star.
+ - I get on the airplane and there’s a screen in front of everything. You get into a taxicab in New York, there’s a screen blinking at you. I think it’s going to have a tremendous effect on our brains, because those bright, saturated colors and those strong lines, they do things to your brain.
+ - Ninety-nine percent of singing is listening and hearing, and so then 1 percent of it is singing.
+ - Story is what’s most important.
+ - I think there’s just a lot of compassion in art. Again, when you’re doing something that resonates with somebody else, you’re going through an experience another person has had, whether it’s been a painful experience or a joyous experience or a happy experience.
+ - People have often written about me, that I did this for this reason and that for that reason, and theyre usually 98 percent wrong.
+ - We were raised with the idea that we had limitless chances and we got very shocked to learn that wasn’t the case.
+ - I never wrote anything down. I never kept a diary, never kept a journal. I did write one letter home about touring with the Doors that I used as a reference for the book for some details there, and then I was glad I had that, but that was it.
+ - Music is a work in progress. On a record, it gets frozen in time. And it’s oddly unnatural.
+ - A lot of singers that I’ve heard that I may not like their sensibility, but I see that they’re entitled to whatever they get. People don’t get there without talent, they really don’t.
+ - Being a celebrity made me so uncomfortable that I would have preferred standing behind the amplifiers.
+ - There are a lot of aspiring singers who are not paid attention to because they don’t look like a fashion model.
+ - I think if you do what’s in your heart – Joseph Campbell always says you have to follow your bliss, and if you do, doors open where you didn’t even realize there were doors.
+ - I only notice the clothes I’m wearing.
+ - I think the zenith of popular songwriting to the United States of America was that period that started in the ’20s and went into the ’50s. It was the period of the great American standard song.
+ - When I would be on the stage singing, I would see a movie of something that happened, I would be telling the story. I would be describing the story in sound, but my goal would be to make somebody else run their own movie.
+
+68 quotes

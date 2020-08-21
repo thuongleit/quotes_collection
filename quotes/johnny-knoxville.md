@@ -1,0 +1,43 @@
+ - I think everyone roots for the underdog.
+ - I pretty much operate on adrenaline and ignorance.
+ - I think I’m a little concussed.
+ - I have a full grown, semi-nude man bound with duct tape in my truck and I was trying to get out to the desert to bury him. How do I get to 5 South?
+ - I’m just basking in the glory.
+ - I feel like my eyes have gonorrhea.
+ - I’m the fun dad, I am also the disciplinarian.
+ - Being a complete juvenile delinquent helped me grow up a little.
+ - I just love that spirit that makes people do things that they probably shouldn’t.
+ - People go to car races to watch the crashes.
+ - It’s unfortunate when kids get hurt, but I wish parents would monitor what their kids are doing and watching. It’s common sense, really.
+ - I’m so uncoordinated, I can’t really do that much, so my specialty is standing in one spot or holding on to something, like an exploding rocket or a jetski.
+ - I’m lucky enough to be with someone, and I am happy.
+ - People think by challenging me they’re going to show they’re tough. But I’m not tough. Decent drinker. Not such a bad kisser. But not a great fighter.
+ - But I can still lick the spoon!
+ - Suffering will get you great footage. I don’t know about closer to God. Although there have been times when I’ve suffered to the point where I think I might be about to meet him.
+ - You were about five feet short of a ten feet jump?
+ - You can tell it’s good if you light it and a blue flame comes up; that means it’s good moonshine and it won’t make you go blind.
+ - I don’t care what other people think.
+ - What calmed me down finally was when my girlfriend got pregnant.
+ - A lot of stand-up comedy guys, when they get a little famous, just give up their stand-up career, and it cancels out the thing that set them apart.
+ - I love Louisiana. It’s amazing.
+ - Doctors have told me I have a high pain threshold, but I can only know what I feel. I think I’m good at minimising the pain and being indifferent to it.
+ - I just try to think of all the things that could go wrong so in that split second when it happens, maybe your body reacts in a way where it protects you just a little.
+ - Coal mining is tough. Acting is just tedious.
+ - I love the tabloids except for when I’m in ’em.
+ - A couple days before the stunts, if I’m doing something particularly dangerous, I will go over every worst-case scenario in my head, like this could happen, this could happen, this could happen, this could happen. I try to think about that to where it’s ingrained in me.
+ - I am nothing that isn’t professional.
+ - If someone hits me I consider it a challenge.
+ - Everyone gets hurt, but I’ve probably had the most injuries.
+ - I was a really bad kid. Then, I got sweet as I got older.
+ - I actually got stabbed at my friend’s bachelor party. In real life.
+ - I have a whole slew of doctors. I can count eight in my phone right now – eight different doctors, all for different parts of my body. I have specialists.
+ - It’s a real primal thing, watching someone get hurt. It’s funny and accessible.
+ - I want to do dramas. I want to do comedies.
+ - I do get obsessed with constantly thinking of ideas, all day long, but that’s just how it is.
+ - Everything you see on screen is real. By doing what we do, there’s naturally going to be a lot of grimacing. And whimpering.
+ - My parents said that I was nine months old and would throw myself out of the crib onto the floor continually. As soon as they left the room after putting me back in they’d hear a big bump and I’d be on the floor again.
+ - People try to challenge me in bars every now and then. As long as they’re not physical I just walk away, but if they get physical then I just end up in a fight.
+ - I’m not looking to lose anything. I’m looking to continue making movies.
+ - I don’t remember the first stunt I ever did.
+
+41 quotes

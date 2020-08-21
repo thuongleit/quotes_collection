@@ -1,0 +1,27 @@
+ - It isn’t the mountain ahead that wears you out; it’s the grain of sand in your shoe.
+ - A promise made is a debt unpaid.
+ - There’s a race of men that don’t fit in, A race that can’t sit still; So they break the hearts of kith and kin, And they roam the world at will. They range the field and rove the flood, And they climb the mountain’s crest; Their’s is the curse of the gypsy blood, And they don’t know how to rest.
+ - This is the law of the Yukon, that only the strong shall thrive; that surely the weak shall perish, and only the fit survive.
+ - Now a promise made is a debt unpaid, and the trail has its own stern code.
+ - It’s the steady, quiet, plodding ones who win in the lifelong race.
+ - Our breath is brief, and being so Let’s make our heaven here below, And lavish kindness as we go.
+ - Carry on! Carry on! Fight the good fight and true; Believe in you mission, greet life with a cheer;.
+ - Be sure your wisest words are those you do not say.
+ - I like to think that when I fall, A rain-drop in Death’s shoreless sea, This shelf of books along the wall, Beside my bed, will mourn for me.
+ - Even goats may have starlight in their eyes.
+ - Some praise the Lord for Light, The living spark; I thank God for the Night The healing dark.
+ - Avoid extremes: be moderate In saving and in spending; An equable and easy gait Will win an easy ending.
+ - Ah! the clock is always slow; it is later than you think.
+ - The happy man is he who knows his limitations, yet bows to no false gods.
+ - And each forgets, as he strips and runs With a brilliant, fitful pace, It’s the steady, quiet, plodding ones Who win in the lifelong race. And each forgets that his youth has fled, Forgets that his prime is past, Till he stands one day, with a hope that’s dead, In the glare of the truth at last.
+ - I have an intense dislike for artificial society. In France, one could lead a free life – to do what one wanted to do without interference or criticism from one’s neighbors.
+ - His life, though none too long, Was never dull: Of woman, wine and song Bill had his full.
+ - Old Year! upon the Stage of Time You stand to bow your last adieu; A moment, and the prompter’s chime Will ring the curtain down on you.
+ - The only society I like is rough and tough, and the tougher the better. There’s where you get down to bedrock and meet human people.
+ - The lonely sunsets flare forlorn Down valleys dreadly desolate; The lonely mountains soar in scorn As still as death, as stern as fate.
+ - I have no doubts that the Devil grins, As seas of ink I spatter. Ye gods, forgive my “literary” sins – The other kind don’t matter.
+ - No man can be a failure if he thinks he’s a success; If he thinks he is a winner, then he is.
+ - I remember little of the Yukon or what I wrote there.
+ - Write verse, not poetry. The public wants verse. If you have a talent for poetry, then don’t by any means mother it, but try your hand at verse.
+
+25 quotes

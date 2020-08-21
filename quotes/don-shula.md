@@ -1,0 +1,43 @@
+ - Strive for perfection, but settle for excellence.
+ - It’s the start that stops most people.
+ - Learn from everyone, copy no one.
+ - Success is not forever, and failure is never final.
+ - The superior man blames himself. The inferior man blames others.
+ - Success is the peace of mind that comes when you know you have given everything you have to give to the opportunities that life has presented you.
+ - I don’t know any other way to lead but by example.
+ - I have no magic formula. The only way I know to win is through hard work.
+ - The one thing that I know is that you win with good people.
+ - Failure isn’t fatal, and success isn’t final.
+ - The whole idea is to get an edge. Sometimes it takes just a little extra something to get that edge, but you have to have it.
+ - My responsibility is leadership, and the minute I get negative, that is going to have an influence on my team.
+ - My coaching philosophy? Determine your players talents and give them every weapon to get the most from those talents.
+ - The problem with most leaders today is they don’t stand for anything. Leadership implies movement toward something, and convictions provide that direction. If you don’t stand for something, you’ll fall for anything.
+ - And this year is going to be the 25th anniversary of the 17-0 team, the only undefeated season.
+ - You set a goal to be the best and then you work hard every hour of every day, striving to reach that goal. If you allow yourself to settle for anything less than number one, you are cheating yourself.
+ - I’m fairly confident that if I died tomorrow, Don would find a way to preserve me until the season was over and he had time for a nice funeral.
+ - Sure, luck means a lot in football. Not having a good quarterback is bad luck.
+ - The ultimate goal is victory. And if you refuse to work as hard as you possibly can toward that aim, or if you do anything that keeps you from achieving that goal, then you are just cheating yourself.
+ - Leadership implies movement toward something and convictions provide that direction.
+ - I coached against Dave the last couple of years, and I was very proud to be the first time a father ever coached against his son. He beat me for 30 minutes the first time and 59 and a half minutes the second time.
+ - As a coach, your high standards of performance, attention to detail and – above all – how hard you work set the stage for how your players perform.
+ - The one man team is a complete and total myth.
+ - There’s nothing wrong with setting goals, but it doesn’t mean a thing if you don’t pay attention to the day-to-day details.
+ - I’m just a guy who rolls up his sleeves and goes to work!
+ - Lots of leaders want to be popular. I never cared about that. I want to be respected.
+ - I think what coaching is all about, is taking players and analyzing there ability, put them in a position where they can excel within the framework of the team winning. And I hope that I’ve done that in my 33 years as a head coach.
+ - Because, they’re only thinking about one team when that game’s over. Before the game, they’re talking about two football teams. When the game’s over, there’s only one winner.
+ - If you’re going to take gambles, you must have one thing: self-confidence.
+ - To be successful, all you have to do is work half-days; you can work the first twelve hours or the second twelve hours.
+ - One thing I never want to be accused of is not working.
+ - Everything that I have done has always been predicated on doing the best that I can with the ability that God has given me, trying to reach as far as I possibly can. And if I fall a little bit short, then I’m still farther ahead than if I hadn’t reached at all.
+ - Anybody that’s a Dolphins fan feels they’re headed in the right direction.
+ - And then to end up with a total of 347 wins, averaging 10 regular season wins for 33 years and the best winning percentage, and I’m very proud of this, of any professional team from 1970 to 1996.
+ - What I learned from that loss, and also another loss that I’m going to talk about later, was that when you’re there, it’s not good enough to be there, when you’re there, you better walk away with that ring.
+ - You know it’s only 50 miles from Grand River to Canton, but it took me 67 years to travel that distance.
+ - And I coached against Mike when he was an assistant with the Bears and they won that football game.
+ - And my rookie contract, my first rookie contract was for $5,000.
+ - When you’re there, it’s not good enough to be there.
+ - You know it’s only 50 miles but I’ve relished every moment of the longer route to get here. Thanks for letting me reflect on those great moments. Thank you.
+ - He wants to be his own man and be recognized for what he’s done. He’s not asking for anything because of his name. That was a tough situation to go into at Alabama, but he probably wouldn’t have been given the job if the situation would have been different.
+
+41 quotes

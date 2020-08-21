@@ -1,0 +1,22 @@
+ - You’ve got to grab every opportunity that comes up.
+ - I’ve hung out at dozens of playgrounds, bored out of my mind, with not even a look of comfort from disapproving mothers all around me. Either they think I’m a pedophile or a deadbeat dad. That’s what I get for being a single dad – suspicious looks at the playground.
+ - Even though I’m English, I’ve all my life been heavily exposed to American television and culture in general.
+ - My mum’s parents were from Ireland, my dad’s mum was American-Irish.
+ - No, I don’t think ‘The Wire’ screwed up my career at all.
+ - For a straight man, I seem to have to kiss an awful lot of men!
+ - Prince Charles is the best-dressed man in the world.
+ - I’ve always wanted to play more comic parts.
+ - People seem to think I’m Satan.
+ - I’m a rather crude cook.
+ - I think I’ve got a funny face.
+ - I look ridiculous in a three-piece suit – I’m too fat.
+ - If you do an American TV series, before the audition you sign away the next five years of your life.
+ - I’m only stopped by people in uniform, whether it’s customs people, janitors, or the FBI – they all watch ‘The Wire.’ Sadly, beautiful, glamorous women don’t know anything about it.
+ - The kiss always gets a hell of a reaction.
+ - I don’t know why British actors are getting big parts in American TV shows. Maybe it’s because we’re cheap.
+ - I went to America to get away from constantly being cast in costume dramas, playing posh people.
+ - I’m not a great fan of green screen. It’s not much fun for actors. It’s great for directors and technical people and cameramen.
+ - Since I got married my wife doesn’t really let me wear anything that I used to because she says I have no taste at all.
+ - Apparently it’ll all settle down and they’ll forget about it soon.
+
+20 quotes

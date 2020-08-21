@@ -1,0 +1,103 @@
+ - Monopoly is the condition of every successful business.
+ - Never invest in a tech CEO that wears a suit.
+ - Every time we create something new we go from zero to one.
+ - What valuable company is nobody building?
+ - Your mind is software. Program it. Your body is a shell. Change it. Death is a disease. Cure it. Extinction is approaching. Fight it.
+ - Brilliant thinking is rare, but courage is in even shorter supply than genius.
+ - Today’s ‘best practices’ lead to dead ends; the best paths are new and untried.
+ - What important truth do very few people agree with you on?
+ - The most contrarian thing of all is not to oppose the crowd but to think for yourself.
+ - Long-term planning is often undervalued by our indefinite short-term world.
+ - Competition is overrated. In practice it is quite destructive and should be avoided wherever possible. Much better than fighting for scraps in existing markets is to create and own new ones.
+ - There are only two kinds of businesses in this world: Businesses in crazy competition, and businesses that are one of a kind.
+ - We wanted flying cars, instead we got 140 characters.
+ - Moving first is a tactic, not a goal.
+ - What nerds miss is that it takes hard work to make sales look easy.
+ - Education needs to be rethought. Education does not just happen in college, but it also happens in developing skills which will enable people to contribute to our society as a whole.
+ - If you can identify a delusional popular belief, you can find what lies hidden behind it: the contrarian truth.
+ - There’s a wide range of sales ability: there are many gradations between novices, experts, and masters. There are even sales grandmasters. If you don’t know any grandmasters, it’s not because you haven’t encountered them, but rather because their art is hidden in plain sight.
+ - Recruiting is a core competency for any company. It should never be outsourced.
+ - The developing world can just do things that are extensive or horizontal, that basically copy. The developed world needs to do things that are intensive or vertical, where we take our civilization to the next level.
+ - Secrets are hard but solvable problems and we should talk about them. It’s hard to work toward a radically better future if you don’t believe in secrets.
+ - We cannot take for granted that the future will be better, and that means we need to work to create it today.
+ - All failed companies are the same: they failed to escape competition.
+ - The best entrepreneurs know this: every great business is built around a secret that’s hidden from the outside. A great company is a conspiracy to change the world; when you share your secret, the recipient becomes a fellow conspirator.
+ - Higher education holds itself out as a kind of universal church, outside of which there is no salvation.
+ - A startup is the largest endeavor over which you can have definite mastery. You can have agency not just over your own life, but over a small and important part of the world. It begins by rejecting the unjust tyranny of Chance. You are not a lottery ticket.
+ - Under perfect competition, in the long run no company makes an economic profit.
+ - EVERY MOMENT IN business happens only once. The next Bill Gates will not build an operating system. The next Larry Page or Sergey Brin won’t make a search engine. And the next Mark Zuckerberg won’t create a social network. If you are copying these guys, you aren’t learning from them.
+ - No company has a culture, every company is a culture.
+ - Whatever the career, sales ability distinguishes superstars from also-rans.
+ - You’ll attract the employees you need if you can explain why your mission is compelling: not why it’s important in general, but why you’re doing something important that no one else is going to get done.
+ - The biggest secret in venture capital is that the best investment in a successful fund equals or outperforms the entire rest of the fund combined.
+ - There are many more secrets in the world that are waiting to be found. The question of how many secrets exist in our world is roughly equivalent to how many startups people should start.
+ - The road doesn’t have to be infinite after all. Take the hidden paths.
+ - Great tech opportunities happen only once.
+ - Every tech story is different. Every moment in history happens only once. All successful companies are successful in their own unique way. It’s your task to figure out what that future history will be.
+ - My own answer to the contrarian question is that most people think the future of the world will be defined by globalization, but the truth is that technology matters more.
+ - There are still many large white spaces on the map of human knowledge. You can go discover them. So do it. Get out there and fill in the blank spaces. Every single moment is a possibility to go to these new places and explore them.
+ - The business model piece is we’re always talking about competing more effectively. If you’re starting a company or career you don’t want to compete. You want to create a monopoly. We want to invest in a company that has a good plan to create a monopoly.
+ - I no longer believe that freedom and democracy are compatible.
+ - Anyone who prefers owning part of your company to being paid in cash reveals a preference for the long term and a commitment to increasing your company’s value in the future.
+ - The most successful businesses have an idea for the future that’s very different from the present.
+ - Customers won’t care about any particular technology unless it solves a particular problem in a superior way. And if you can’t monopolize a unique solution for a small market, you’ll be stuck with vicious competition.
+ - If people were super-optimistic about technology there would be no reason to be pessimistic about the future.
+ - Every business is successful exactly to the extent that it does something others cannot.
+ - In a world of scarce resources, globalization without new technology is unsustainable.
+ - Society is secretly driven by sales.
+ - The something of somewhere is mostly just the nothing of nowhere.
+ - We might describe our world as having retail sanity, but wholesale madness.
+ - University administrators are the equivalent of subprime mortgage brokers selling you a story that you should go into debt massively, that it’s not a consumption decision, it’s an investment decision. Actually, no, it’s a bad consumption decision. Most colleges are four-year parties.
+ - Of the six people who started PayPal, four had built bombs in high school.
+ - Probably the most extreme form of inequality is between people who are alive and people who are dead.
+ - For Hamlet, greatness means willingness to fight for reasons as thin as an eggshell: anyone would fight for things that matter; true heroes take their personal honor so seriously they will fight for things that don’t matter.
+ - As an investor-entrepreneur, I’ve always tried to be contrarian, to go against the crowd, to identify opportunities in places where people are not looking.
+ - There are quite a lot of people who think my aspirations are not possible. That’s a good thing. We don’t need to really worry about these people very much, because since they don’t think it’s possible they won’t take us very seriously- and they will not actually try to stop us until it’s too late.
+ - If they don’t go to law school, bright college graduates head to Wall Street precisely because they have no real plan for their careers.
+ - The most fundamental reason that even businesspeople underestimate the importance of sales is the systematic effort to hide it at every level of every field in a world secretly driven by it.
+ - Anti-aging is an extremely under-explored field.
+ - I think in my twenties I tended to think of all people as sort of more or less alike. In now think that people are really different in all these subtle ways that are very important.
+ - American government is not dominated by engineers, it is dominated by lawyers. Engineers are interested in substance and building things; lawyers are interested in process and rights and getting the ideology correctly blended. And so there is sort of no really concrete plan for the future.
+ - A true bubble is when something is overvalued and intensely believed. Education may be the only thing people still believe in in the United States. To question education is really dangerous. It is the absolute taboo. It’s like telling the world there’s no Santa Claus.
+ - Darwinism may be a fine theory in other contexts, but in startups, intelligent design works best.
+ - The value of failure is greatly over-rated. It’s a preposterous myth.
+ - All Rhodes Scholars had a great future in their past.
+ - I do tend to think that things that have incredibly long time horizons often do involve market failures.
+ - When you are starting a new business you don’t want to go after giant markets. You want to go after small markets and take over those markets quickly.
+ - Forget startup companies. The next frontier is startup countries.
+ - Everybody has a product to sell – no matter whether you’re an employee, a founder, or an investor. It’s true even if your company consists of just you and your computer. Look around. If you don’t see any salespeople, you’re the salesperson.
+ - Technology and capitalism are very much linked. I think that capitalism probably works best in a technologically progressing society.
+ - It is sort of a bit of a caricature of capitalism, that it’s always this zero-sum game where you have winners and losers. Silicon Valley, the technology industry at its best, creates a situation where everybody can be a winner.
+ - As you craft a plan to expand to adjacent markets, don’t disrupt: Avoid competition as much as possible.
+ - First, only invest in companies that have the potential to return the value of the entire fund.
+ - It’s a horribly mismanaged company-probably a lot of pot smoking going on there.
+ - Beginning with brand rather than substance is dangerous.
+ - Value investors look at cash flows. If a company can maintain present cash flows for 5 or 6 years, it’s a good investment. Investors then just hope that those cash flows – and thus the company’s value – don’t decrease faster than they anticipate.
+ - Rivalry causes us to overemphasize old opportunities and slavishly copy what has worked in the past.
+ - Luck is like an atheistic word for God...
+ - In a world where wealth is growing, you can get away with printing money. Doubling the debt over the next 20 years is not a problem.
+ - If you focus on near-term growth above all else, you miss the most important question you should be asking: will this business still be around a decade from now?
+ - Had the people who started Facebook decided to stay at Harvard, they would not have been able to build the company, and by the time they graduated in 2006, that window probably would have come and gone.
+ - I think anything that requires real global breakthroughs requires a degree of intensity and sustained effort that cannot be done part time, so it’s something you have to do around the clock, and that doesn’t compute with our existing educational system.
+ - A company does better the less it pays the CEO.
+ - A true bubble is when something is overvalued and intensely believed.
+ - We need more pessimism that the future might be a lot worse, and we need more optimism that the future might be better.
+ - In the ’30s, the Keynesian stuff worked at least in the sense that you could print money without inflation because there was all this productivity growth happening. That’s not going to work today.
+ - In the developed world, technological progress means that you can have a situation where there’s growth, where there’s a way in which everybody can be better off over time.
+ - I think somehow people should be encouraged to think about a very long time horizon and I think this is true for businesses, it’s true for governments and it’s true for people doing things in the non-profit sector.
+ - The lowest-hanging fruit in preventative medicine is just to really focus on nutrition.
+ - I believe we are in a world where innovation in stuff was outlawed. It was basically outlawed in the last 40 years – part of it was environmentalism, part of it was risk aversion.
+ - A lot of the key to Apple’s succes is Designing technology in order to hide it.
+ - The idea of becoming an entrepreneur is something that is not taught very well in school and is something that people should try to do earlier on.
+ - Big part of the challenge to innovation is that people too easily resign themselves to dying.
+ - If you think your initial market might be too big, it almost certainly is.
+ - Since 1920, the vast increase in welfare beneficiaries and the extension of the franchise to women – two constituencies that are notoriously tough for libertarians – have rendered the notion of “capitalist democracy” into an oxymoron.
+ - People don’t want to believe that technology is broken. Pharmaceuticals, robotics, artificial intelligence, nanotechnology – all these areas where the progress has been a lot more limited than people think. And the question is why.
+ - You want to be the last company in a category. Those are the ones that are really valuable.
+ - Technology is probably the single biggest driver of productivity gains for the developed countries. For example, I think it’s much more important than free trade.
+ - I think that markets classically fail in cases where there are public goods that provide benefits that people cannot capture. The big debate is how big these public goods are, where they exist, things of that sort.
+ - I’m in favor of free trade, but I think if you had to make a choice between having technological progress versus free trade, you had one or the other, you should always pick technological progress. I think it’s an incredibly important variable for creating more prosperity.
+ - If you have technological progress, that will encourage more capitalist system. On the other hand, if you don’t, if things are stalled, you end up with much more of a zero sum type thing, where there’s no progress and basically everybody’s gain is somebody else’s loss.
+ - If you think about basic science or coming up with new theories of mathematics, these are not the kinds of things which are necessarily a well-defined market to pay people.
+
+101 quotes

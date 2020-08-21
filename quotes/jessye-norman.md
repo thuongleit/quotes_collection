@@ -1,0 +1,21 @@
+ - I want to keep learning, keep exploring, keep doing more.
+ - I was given a stethoscope in a child’s ‘doctor’s bag’ at about age six and I loved it! One could hear the heart beating through that plastic toy.
+ - Pigeon-holes are only comfortable for pigeons.
+ - Problems arise in that one has to find a balance between what people need from you and what you need for yourself.
+ - I want to sing more in Spanish. I want to sing the songs of Granados; the songs of Montsalvatge. To do things that truly I’ve not done before.
+ - There’s no anger ever in a spiritual. There’s always the dream of a hope of a better day coming. That God understands the troubles that I’m experiencing.
+ - One needs more than ambition and talent to make a success of anything, really. There must be love and a vocation.
+ - The very best thing that could happen to a voice, if it shows any promise at all, is when it is very young to leave it alone and to let it develop quite naturally, and to let the person go on as long as possible with the sheer joy of singing.
+ - I have enjoyed most particularly reading the correspondence between Gustav Mahler and Richard Strauss. The genuine friendship, competitiveness and support that thread through their communications are life lessons for us all.
+ - I am grateful that my horizons were not narrowed at the outset.
+ - A person has the right, and I think the responsibility, to develop all of their talents.
+ - Swan, by Mary Oliver. Poems and prose. Reading from this book is as if visiting a very wise friend. There is wisdom and welcoming kindness on every page.
+ - If you send up a weather vane or put your thumb up in the air every time you want to do something different, to find out what people are going to think about it, you’re going to limit yourself. That’s a very strange way to live.
+ - As for my voice, it cannot be categorized-and I like it that way, because I sing things that would be considered in the dramatic, mezzo or spinto range. I like so many different kinds of music that I’ve never allowed myself the limitations of one particular range.
+ - I walk an 11-minute mile without huffing and puffing.
+ - I have a particular affliction. I am unable to say a word I can’t spell.
+ - It is still more likely that a woman’s power would be seen as aggression, and a man’s power would be seen as assertion.
+ - There has never been a time when I was not committed to, involved in, or caring of, the social and political issues of my world.
+ - I like so many different kinds of music that I’ve never allowed myself the limitations of one particular range.
+
+19 quotes

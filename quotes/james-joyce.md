@@ -1,0 +1,243 @@
+ - Shut your eyes and see.
+ - Love loves to love love.
+ - Life is too short to read a bad book.
+ - A man of genius makes no mistakes; his errors are volitional and are the portals of discovery.
+ - To learn one must be humble. But life is the great teacher.
+ - There’s no friends like the old friends.
+ - As I am. As I am. All or not at all.
+ - When I die Dublin will be written on my heart.
+ - Absence, the highest form of presence.
+ - They lived and laughed and loved and left.
+ - To live, to err, to fall, to triumph, to recreate life out of life.
+ - Fall if you will, but rise you must.
+ - I am tomorrow, or some future day, what I establish today. I am today what I established yesterday or some previous day.
+ - Your battles inspired me – not the obvious material battles but those that were fought and won behind your forehead.
+ - Every life is in many days, day after day. We walk through ourselves, meeting robbers, ghosts, giants, old men, young men, wives, widows, brothers-in-love. But always meeting ourselves.
+ - Think you’re escaping and run into yourself. Longest way round is the shortest way home.
+ - There is not past, no future; everything flows in an eternal present.
+ - Life is the great teacher.
+ - I have the words already. What I am seeking is the perfect order of words in the sentence. You can see for yourself how many different ways they might be arranged.
+ - For myself, I always write about Dublin, because if I can get to the heart of Dublin I can get to the heart of all the cities of the world. In the particular is contained the universal.
+ - I wanted real adventures to happen to myself. But real adventures, I reflected, do not happen to people who remain at home: they must be sought abroad.
+ - Mr. Duffy lived a short distance from his body.
+ - The intellectual imagination! With me all or not at all. NON SERVIAM!
+ - In the particular is contained the universal.
+ - His soul swooned slowly as he heard the snow falling faintly through the universe and faintly falling, like the descent of their last end, upon all the living and the dead.
+ - Can’t bring back time. Like holding water in your hand.
+ - A man’s errors are his portals of discovery.
+ - His eyes were dimmed with tears and, looking humbly up to heaven, he wept for the innocence he had lost.
+ - Your mind will give back to you exactly what you put into it.
+ - God made food; the devil the cooks.
+ - Beware the horns of a bull, the heels of the horse, and the smile of an Englishman.
+ - The sea, the snotgreen sea, the scrotumtightening sea.
+ - There’s many a true word spoken in jest.
+ - I’ve put in so many enigmas and puzzles that it will keep the professors busy for centuries arguing over what I meant, and that’s the only way of insuring one’s immortality.
+ - I don’t want to die. Damn death. Long live life.
+ - I am, a stride at a time. A very short space of time through very short time of space.
+ - Full many a flower is born to blush unseen.
+ - Better pass boldly into that other world, in the full glory of some passion, than fade and wither dismally with age.
+ - The object of the artist is the creation of the beautiful. What the beautiful is is another question.
+ - Very gratefully, with grateful appreciation, with sincere appreciative gratitude, in appreciatively grateful sincerity of regret, he declined.
+ - And Jesus was a Jew too. Your god. He was a Jew like me. And so was his father.
+ - And then I asked him with my eyes to ask again yes and then he asked me would I yes and his heart was going like mad and yes I said yes I will yes.
+ - Every bond is a bond to sorrow.
+ - I think I would know Nora’s fart anywhere. I think I could pick hers out in a roomful of farting women.
+ - Signatures of all things I am here to read.
+ - The heaventree of stars hung with humid nightblue fruit.
+ - I want to give a picture of Dublin so complete that if the city suddenly disappeared from the earth it could be reconstructed out of my book.
+ - His heart danced upon her movement like a cork upon a tide.
+ - Hold to the now, the here, through which all future plunges to the past.
+ - You made me confess the fears that I have. But I will tell you also what I do not fear. I do not fear to be alone or to be spurned for another or to leave whatever I have to leave. And I am not afraid to make a mistake, even a great mistake, a lifelong mistake and perhaps as long as eternity too.
+ - Let my country die for me.
+ - Children must be educated by love, not punishment.
+ - We are all born in the same way but we all die in different ways.
+ - A wild angel had appeared to him, the angel of mortal youth and beauty, an envoy from the fair courts of life, to throw open before him in an instant of ecstasy the gates of all the ways of error and glory.
+ - My words in her mind: cold polished stones sinking through a quagmire.
+ - My heart is quite calm now. I will go back.
+ - Interpretations of interpretations interpreted.
+ - History, Stephen said, is a nightmare from which I am trying to awake.
+ - People could put up with being bitten by a wolf but what properly riled them was a bite from a sheep.
+ - He was unheeded, happy, and near to the wild heart of life.
+ - A way a lone a last a loved a long the riverrun, past Eve and Adam’s, from swerve of shore to bend of bay, brings us by a commodius vicus of recirculation back to Howth Castle and Environs.
+ - Every physical quality admired by men in women is in direct connection with the manifold functions of women for the propagation of the species.
+ - Jesus was a bachelor and never lived with a woman. Surely living with a woman is one of the most difficult things a man has to do, and he never did it.
+ - I fear those big words, Stephen said, which make us so unhappy.
+ - Christopher Columbus, as everyone knows, is honored by posterity because he was the last to discover America.
+ - He wanted to cry quietly but not for himself: for the words, so beautiful and sad, like music.
+ - This race and this country and this life produced me, he said. I shall express myself as I am.
+ - What’s yours is mine and what’s mine is my own.
+ - All human history moves towards one great goal.
+ - I was happier then. Or was that I? Or am I now I? Can’t bring back time. Like holding water in your hand. Would you go back to then? Just beginning then. Would you?
+ - Places remember events.
+ - You cannot eat your cake and have it.
+ - That ideal reader suffering from an ideal insomnia.
+ - The artist, like the God of the creation, remains within or behind or beyond or above his handiwork, invisible, refined out of existence, indifferent, paring his fingernails.
+ - Satan, really, is the romantic youth of Jesus re-appearing for a moment.
+ - White pudding and eggs and sausages and cups of tea! How simple and beautiful was life after all!
+ - In the name of Annah the Allmaziful, the Everliving, the Bringer of Plurabilities, haloed be her eve, her singtime sung, her rill be run, unhemmed as it is uneven!
+ - Like the tender fires of stars moments of their life together, that no one knew of or would ever know of, broke upon and illuminated his memory.
+ - No pen, no ink, no table, no room, no time, no quiet, no inclination.
+ - The end he had been born to serve yet did not see had led him to escape by an unseen path and now it beckoned to him once more and a new adventure was about to be opened to him.
+ - All Moanday, Tearday, Wailsday, Thumpsday, Frightday, Shatterday.
+ - I will not say nothing. I will defend my church and my religion when it is insulted and spit on.
+ - Good puzzle would be cross Dublin without passing a pub.
+ - Nations have their ego, just like individuals.
+ - I hear the ruin of all space, shattered glass and toppled masonry, and time one livid final flame.
+ - The light music of whiskey falling into a glass – an agreeable interlude.
+ - Whatever else is unsure in this stinking dunghill of a world a mother’s love is not.
+ - The supreme question about a work of art is out of how deep a life does it spring.
+ - First, in the history of words there is much that indicates the history of men, and in comparing the speech of to-day with that ofyears ago, we have a useful illustration of the effect of external influences on the very words of a race.
+ - My puns are not trivial. They are quadrivial.
+ - It is a symbol of Irish art. The cracked looking-glass of a servant.
+ - By his monstrous way of life he seemed to have put himself beyond the limits of reality. Nothing moved him or spoke to him from the real world unless he heard it in an echo of the infuriated cries within him.
+ - Men are governed by lines of intellect – women: by curves of emotion.
+ - To discover the mode of life or of art whereby my spirit could express itself in unfettered freedom.
+ - In woman’s womb word is made flesh but in the spirit of the maker all flesh that passes becomes the word that shall not pass away. This is the postcreation.
+ - What’s in a name? That is what we ask ourselves in childhood when we write the name that we are told is ours.
+ - The important thing is not what we write but how we write, and in my opinion the modern writer must be an adventurer above all, willing to take every risk, and be prepared to founder in his effort if need be. In other words we must write dangerously.
+ - The artist who could disentangle the subtle soul of the image from its mesh of defining circumstances most exactly and ‘re-embody’ it in artistic circumstances chosen as the most exact for it in its new office, he was the supreme artist.
+ - You behold in me, Stephen said with grim displeasure, a horrible example of free thought.
+ - So you need hardly spell me how every word will be bound over to carry three score and ten toptypsical readings throughout the book of Doublends Jined.
+ - The apprehensive faculty must be scrutinised in action.
+ - One great part of every human existence is passed in a state which cannot be rendered sensible by the use of wideawake language, cutanddry grammar and goahead plot.
+ - People trample over flowers, yet only to embrace a cactus.
+ - Love between man and man is impossible because there must not be sexual intercourse and friendship between man and woman is impossible because there must be sexual intercourse.
+ - Time is, time was, but time shall be no more.
+ - Moments of their secret life together burst like stars upon his memory.
+ - Welcome, O life! I go to encounter for the millionth time the reality of experience and to forge in the smithy of my soul the uncreated conscience of my race.
+ - Writing in English is the most ingenious torture ever devised for sins committed in previous lives. The English reading public explains the reason why.
+ - She would follow, her dream of love, the dictates of her heart that told her he was her all in all, the only man in all the world for her for love was the master guide. Come what might she would be wild, untrammelled, free.
+ - He was alone. He was unheeded, happy, and near to the wild heart of life. He was alone and young and wilful and wildhearted, alone amid a waste of wild air and brackish waters and the seaharvest of shells and tangle and veiled grey sunlight.
+ - I am proud to be an emotionalist.
+ - Old father, old artificer, stand me now and ever in good stead.
+ - A corpse is meat gone bad. Well and what’s cheese? Corpse of milk.
+ - Drugs age you after mental excitement. Lethargy then. Why? Reaction. A lifetime in a night. Gradually changes your character.
+ - Stately, plump Buck Mulligan came from the stairhead, bearing a bowl of lather on which a mirror and a razor lay crossed.
+ - There is an atmosphere of spiritual effort here. No other city is quite like it. I wake early, often at 5 o’clock, and start writing at once.
+ - His heart danced upon her movements like a cork upon a tide. He heard what her eyes said to him from beneath their cowl and knew that in some dim past, whether in life or revery, he had heard their tale before.
+ - All things are inconstant except the faith in the soul, which changes all things and fills their inconstancy with light...
+ - Ireland sober is Ireland stiff.
+ - The only decent people I ever saw at the racecourse were horses.
+ - If Ireland is to become a new Ireland she must first become European.
+ - Thought is the thought of thought.
+ - Secrets, silent, stony sit in the dark palaces of both our hearts: secrets weary of their tyranny: tyrants willing to be dethroned.
+ - Why is it that words like these seem dull and cold? Is it because there is no word tender enough to be your name?
+ - But my body was like a harp and her words and gestures were like fingers running upon the wires.
+ - Redheaded women buck like goats.
+ - Oh Ireland my first and only love Where Christ and Caesar are hand in glove!
+ - No one who has any self-respect stays in Ireland, but flees afar as though from a country that has undergone the visitation of an angered Jove.
+ - Ireland is the old sow that eats her farrow.
+ - Gentle lady, do not sing Sad songs about the end of love; Lay aside sadness and sing How love that passes is enough. Sing about the long deep sleep Of lovers that are dead, and how In the grave all love shall sleep: Love is aweary now.
+ - Too excited to be genuinely happy.
+ - You can still die when the sun is shining.
+ - What is better than to sit at the end of the day and drink wine with friends, or substitutes for friends?
+ - Gazing up into the darkness I saw myself as a creature driven and derided by vanity; and my eyes burned with anguish and anger.
+ - Evening had fallen. A rim of the young moon cleft the pale waste of sky line, the rim of a silver hoop embedded in grey sand: and the tide was flowing in fast to the land with a low whisper of her waves, islanding a few last figures in distant pools.
+ - Phall if you but will, rise you must: and none so soon either shall the pahrce for the nunce come to a setdown secular phoenish.
+ - Poetry, even when apparently most fantastic, is always a revolt against artifice, a revolt, in a sense, against actuality.
+ - Sentimentality is unearned emotion.
+ - Each lost soul will be a hell unto itself, the boundless fire raging in its very vitals.
+ - If the Irish programme did not insist on the Irish language I suppose I could call myself a nationalist. As it is, I am content torecognize myself an exile: and, prophetically, a repudiated one.
+ - When I makes tea I makes tea, as old mother Grogan said. And when I makes water I makes water.
+ - Let us leave theories there and return to here’s hear.
+ - Man and woman, love, what is it? A cork and a bottle.
+ - The mocker is never taken seriously when he is most serious.
+ - White wine is like electricity. Red wine looks and tastes like a liquified beefsteak.
+ - Never let us do wrong, because our opponents did so. Let us, rather, by doing right, show them what they ought to have done, and establish a rule the dictates of reason and conscience, rather than of the angry passions.
+ - You forget that the kingdom of heaven suffers violence: and the kingdom of heaven is like a woman.
+ - What was after the universe? Nothing. But was there anything round the universe to show where it stopped before the nothing place began?
+ - And if he had judged her harshly? If her life were a simple rosary of hours, her life simple and strange as a bird’s life, gay in the morning, restless all day, tired at sundown? Her heart simple and willful as a bird’s heart?
+ - For the years, he felt, had not quenched his soul, or hers.
+ - Ineluctable modality of the visible; at least that if no more, thought through my eyes. Signatures of all things I am here to read.
+ - Wipe your glasses with what you know.
+ - Love me. Love my umbrella.
+ - I confess that I do not see what good it does to fulminate against the English tyranny while the Roman tyranny occupies the palace of the soul.
+ - The State is concentric, but the individual is eccentric.
+ - Lord, heap miseries upon us yet entwine our arts with laughters low.
+ - Once upon a time and a very good time it was there was a moocow coming down along the road and this moocow that was coming down along the road met a nicens little boy named baby tuckoo.
+ - As you are now so once were we.
+ - It was cold autumn weather, but in spite of the cold they wandered up and down the roads of the Park for nearly three hours. They agreed to break off their intercourse; every bond, he said, is a bond to sorrow.
+ - Tenors get women by the score.
+ - I care not if I live but a day and a night, so long as my deeds live after me.
+ - The incompatibility of aquacity with the erratic originality of genius.
+ - A nation is the same people living in the same place.
+ - Hell is the centre of evils and, as you know, things are more intense at their centres than at their remotest points.
+ - Desire’s wind blasts the thorntree but after it becomes from a bramblebush to be a rose upon the rood of time.
+ - He drew forth a phrase from his treasure and spoke it softly to himself: A day of dappled seaborne clouds.
+ - The sacred pint alone can unbind the tongue...
+ - Her lips touched his brain as they touched his lips, as though they were a vehicle of some vague speech and between them he felt an unknown and timid preasure, darker than the swoon of sin, softer than sound or odor.
+ - Death, a cause of terror to the sinner, is a blessed moment for him who has walked in the right path.
+ - You get a decent do at the Brazen Head.
+ - Bury the dead. Say Robinson Crusoe was true to life. Well then Friday buried him. Every Friday buries a Thursday if you come to look at it.
+ - There is no heresy or no philosophy which is so abhorrent to the church as a human being.
+ - Love, yes. Word known to all men.
+ - I’d love to have the whole place swimming in roses.
+ - The movements which work revolutions in the world are born out of the dreams and visions in a peasant’s heart on the hillside.
+ - A certain pride, a certain awe, withheld him from offering to God even one prayer at night, though he knew it was in God’s power to take away his life while he slept and hurl his soul hellward ere he could beg for mercy.
+ - Though their life was modest, they believed in eating well.
+ - Heart of my heart, were it more, More would be laid at your feet.
+ - He comes into the world God knows how, walks on the water, gets out of his grave and goes up off the Hill of Howth. What drivel is this?
+ - Our souls, shame-wounded by our sins, cling to us yet more, a woman to her lover clinging, the more the more.
+ - He could not feel her near him in the darkness nor hear her voice touch his ear. He waited for some minutes listening. He could hear nothing: the night was perfectly silent. He listened again: perfectly silent. He felt that he was alone.
+ - I am a worker, a tombstone mason, anxious to pleace averyburies and jully glad when Christmas comes his once ayear.
+ - The pleasures of love lasts but a fleeting but the pledges of life outlusts a lieftime.
+ - Have read little and understood less.
+ - Shakespeare is the happy hunting ground of all minds that have lost their balance.
+ - My mouth is full of decayed teeth and my soul of decayed ambitions.
+ - I could call my wandering thoughts together. I had hardly any patience with the serious work of life which, now that it stood between me and my desire, seemed to me child’s play, ugly monotonous child’s play.
+ - Frequent and violent temptations were a proof that the citadel of the soul had not fallen and that the devil raged to make it fall.
+ - I desire to press in my arms the loveliness which has not yet come into the world.
+ - The mouth can be better engaged than with a cylinder of rank weed.
+ - I’ll tickle his catastrophe.
+ - O cold ! O shivery ! It was your ambrosial beauty. Forget, forgive. Kismet. Let me off this once.
+ - The demand that I make of my reader is that he should devote his whole Life to reading my works.
+ - Stephen jerked his thumb towards the window, saying: – That is God. Hooray! Ay! Whrrwhee! – What? Mr Deasy asked. – A shout in the street, Stephen answered, shrugging his shoulders.
+ - The voices blend and fuse in clouded silence: silence that is infinite of space: and swiftly, silently the sound is wafted over regions of cycles of cycles of generations that have lived.
+ - There is only one thing that makes any one athlete better than another, his heart. We all put our underwear on feet first, so we are all human.
+ - He passes, struck by the stare of truculent Wellington but in the convex mirror grin unstruck the bonham eyes and fatchuck cheekchops of Jollypoldy the rixdix doldy.
+ - Any object, intensely regarded, may be a gate of access to the incorruptible eons of the gods.
+ - We are bound together by the sympathy of our antipathies.
+ - The men that is now is only all palaver and what they can get out of you.
+ - Does nobody understand?
+ - An improper art aims at exciting in the way of comedy the feeling of desire but the feeling which is proper to comic art is the feeling of joy.
+ - O, dread and dire word. Eternity! What mind of man can understand it?
+ - When the soul of a man is born in this country there are nets flown at it to hold it back from flight.
+ - What incensed him the most was the blatant jokes of the ones that passed it all off as a jest, pretending to understand everything and in reality not knowing their own minds.
+ - Save the trees of Ireland for the future men of Ireland on the fair hills of Eire, O.
+ - Time’s ruins build eternity’s mansions.
+ - He thought that he was sick in his heart if you could be sick in that place.
+ - I have left my book, I have left my room, For I heard you singing Through the gloom.
+ - I think a child should be allowed to take his father’s or mother’s name at will on coming of age. Paternity is a legal fiction.
+ - He lived at a little distance from his body, regarding his own acts with doubtful side-glances. He had an odd autobiographical habit which led him to compose in his mind from time to time a short sentence about himself containing a subject in the third person and a verb in the past tense.
+ - What? Corpus. Body. Corpse. Good idea the Latin. Stupifies them first. Hospice for the dying. They don’t seem to chew it; only swallow it down.
+ - It seems to me you do not care what banality a man expresses so long as he expresses it in Irish.
+ - It is as painful perhaps to be awakened from a vision as to be born.
+ - Read your own obituary notice; they say you live longer. Gives you second wind. New lease of life.
+ - Pity is the feeling which arrests the mind in the presence of whatesoever is grave and constant in human sufferings and unites it with the human sufferer.
+ - She respected her husband in the same way as she respected the General Post Office, as something large, secure and fixed: and though she knew the small number of his talents she appreciated his abstract value as a male.
+ - Thanks be to God we lived so long and did so much good.
+ - What did it avail to pray when he knew his soul lusted after its own destruction?
+ - One of the things I could never get accustomed to in my youth was the difference I found between life and literature.
+ - I am quite content to go down to posterity as a scissors and paste man for that seems to me a harsh but not unjust description.
+ - All fiction is autobiographical fantasy.
+ - Every jackass going the roads thinks he has ideas.
+ - Always see a fellows weak point in his wife.
+ - O thanks be to the great God I got somebody to give me what I badly wanted to put some heart up into me youve no chances at all inthis place like you used long ago I wish somebody would write me a loveletter...
+ - No one would think he’d make such a beautiful corpse.
+ - Civilization may be said indeed to be the creation of its outlaws.
+ - Shaw’s works make me admire the magnificent tolerance and broadmindedness of the english.
+ - I don’t mean to presume to dictate to you in the slightest degree but why did you leave your father’s house? MTo seek misfortune, was Stephen’s answer.
+ - If there is any difficulty in what I write, it is because of the material I use. The thought is always simple.
+ - The Irish are people who will never have leaders, for at the great moment they always desert them. They have produced one skeleton – Parnell – never a man.
+ - There was no doubt about it: if you wanted to succeed you had to go away. You could do nothing in Dublin.
+ - Quotation marks quotato marks! Bah!
+ - Every age must look for its sanction to its poetry and philosophy, for in these the human mind, as it looks backward or forward, attains to an eternal state.
+ - Deal with him, Hemingway!
+ - What kind of liberation would that be to forsake an absurdity which is logical and coherent and to embrace one which is illogical and incoherent?
+ - A woman loses a charm with every pin she takes out.
+ - I am not likely to die of bashfulness but neither am I prepared to be crucified to attest the perfection of my art. I dislike to hear of any stray heroics on the prowl for me.
+ - He found in the world without as actual what was in his world within as possible.
+ - An Irishman needs three things : silence, cunnning, and exile.
+ - And when all was said and done the lies a fellow told about himself couldn’t probably hold a proverbial candle to the wholesale whoppers other fellows coined about him.
+
+241 quotes

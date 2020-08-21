@@ -1,0 +1,59 @@
+ - There is no treasure equal to contentment and no virtue equal to fortitude.
+ - I tell you one thing. If you want peace of mind, do not find fault with others. Rather learn to see your own faults. Learn to make the whole world your own. No one is a stranger, my child; this whole world is your own.
+ - The happiness of the world is transitory. The less you become attached to the world, the more you enjoy peace of mind.
+ - In the course of time one does not feel even the existence of God. After attaining enlightenment one sees that gods and deities are all Maya.
+ - We suffer as a result of our own actions; it is unfair to blame anybody for it.
+ - Don’t be afraid. Human birth is full of suffering and one has to endure everything patiently, taking the Name of God. None, not even God in human form can escape the sufferings of the body and mind.
+ - In one word, one should desire of God desirelessness. For desire alone is at the root of all suffering. It is the cause of repeated births and deaths. It is the obstacle in the way of liberation.
+ - One should not hurt others even by words. One must not speak an unpleasant truth unnecessarily.
+ - Such is life, here today, gone tomorrow! Nothing goes with one, except one’s merit and demerit; good and evil deeds follow one even after death.
+ - As you smell the fragrance of a flower by handing it or the smell of sandalwood by rubbing it against a stone, so you obtain spiritual awakening by constantly thinking of God.
+ - Even the impossible becomes possible through devotion.
+ - As clouds are blown away by the wind, the thirst for material pleasures will be driven away by the utterance of the Lord’s name.
+ - The Mother of the universe is the Mother of all. From Her have come out both good and evil.
+ - No one can suffer for all time. No one will spend all his days on this earth in suffering. Every action brings its own result, and one gets one’s opportunities accordingly.
+ - He who thinks always of the Lord, which way can evil come to him?
+ - One suffers as a result of one’s own actions. So, instead of blaming others for such sufferings, one should pray to the Lord and depending entirely on His grace, try to bear them patiently and with forbearance under all circumstances.
+ - Don’t puzzle the mind with too many inquiries. One finds it difficult to put one single thing into practising, but dares invite distraction by filling the mind with too many things.
+ - Pray to God and make your heart as pure as the star.
+ - The grace of God is the thing that is needful. One should pray for the grace of God.
+ - Open your grief-stricken heart to the Lord. Weep and sincerely pray, ‘O Lord, draw me towards You; give me peace of mind.’ By doing so constantly you, will gradually attain peace of mind.
+ - Desire may be compared to a minute seed. It is like a big banyan tree growing out of a seed, which is no bigger than a dot.
+ - The conjunction of the day and the night is the most auspicious time for calling on God. The mind remains pure at this time.
+ - A person may have no relatives anywhere, but Mahamaya may make him keep a cat and thus make him worldly. This is how She plays!
+ - Ordinary human love results in misery. Love for God brings blessedness.
+ - One should perform even an insignificant task with respect.
+ - You see, my son, it is not a fact that you will never face dangers. Difficulties always come, but they do not last forever. You will see that they pass away like water under a bridge.
+ - Pray to God with tears in your eyes whenever you want illumination or find yourself faced with any doubt or difficulty. The Lord will remove all your impurities, assuage your mental anguish, and give you enlightenment.
+ - As long as a man has desires there is no end to his transmigration. It is the desires alone that make him take one body after another. There will be rebirth for a man if he has even the desire to eat a piece of candy.
+ - Does one get faith by mere studying of books? Too much reading creates confusion. The Master used to say that one should learn from the scriptures that God alone is real and the world illusory.
+ - What an illusion Mahamaya has conjured up! Here is this infinite world, and what one claims as his possession will be left behind at death. Still men cannot understand this simple truth.
+ - One must be patient like the earth. What iniquities are being perpetuated on her! Yet she quietly endures them all.
+ - Why do people argue? Even the wisest of men have not found God through argument! Is God a subject for argument?
+ - The difference between a great soul and an ordinary man is this: the latter weeps while leaving this body, whereas the former laughs. Death seems to him a mere play.
+ - Realization of God cannot be achieved without ecstatic love for Him.
+ - The creation itself is full of griefs. How can one understand joy if there is no sorrow? And how can everyone be happy at the same time?
+ - No doubt, God alone has become all these objects, animate and inanimate, but in the relative world all beings act and suffer according to their past Karma and innate tendencies.
+ - My son, forbearance is a great virtue; there’s no other like it.
+ - We have to surrender ourselves completely to the Lord with faith and devotion in Him, serve others to the best of our capacity, and never be a source of sorrow to anybody.
+ - However strong or beautiful this body may be, its culmination is in those three pounds of ashes. And still people are so attached to it. Glory be to God.
+ - I tell you one thing – if you want peace of mind, don not fault with others.
+ - Everything, husband, wife, or even the body, is only illusory. These are all shackles of illusion. Unless you can free yourself from these bondages, you will never be able to go to the other shore of the world.
+ - Certainly you will have doubts. There will be questionings and faith will return again. That is how faith is established.
+ - What else does one obtain by realization of God? Does one grow two horns? No, the mind becomes pure, and through a pure mind one attains knowledge and awakening.
+ - Give up this dry discussion, this hodge-podge of philosophy. Who has been able to know God by reasoning? Even sages like Suka and Vyasa are at best like big ants trying to carry away a few grains of sugar from a large hea.
+ - People complain about their griefs and sorrows and how they pray to God but find no relief from pain. But grief itself is a gift from God. It is the symbol of His compassion.
+ - Rebirth is inevitable so long as one has desires. It is like taking the soul from one pillow-case and putting it into another. Only one or two out of many men can be found who are free from all desires.
+ - This world is moving around like a wheel. That indeed is the last birth in which one gets completely rid of all desires.
+ - He who will pray to God eagerly will see Him.
+ - My child, I bless you from my heart that you live long, attain devotion, and enjoy peace. Peace is the principal thing. One needs peace alone.
+ - When one realizes God, He grants knowledge and illumination from within; one knows it oneself. In the fullness of one’s spiritual realization one will find that He who resides in one’s heart, resides in the hearts of others as well – the oppressed, the persecuted, the untouchable, and the outcast.
+ - If you do a good act, it cancels the effects of your evil deeds. If one prays, takes the Name of God and thinks of Him, the effects of evil are cancelled.
+ - Even Avataras, saints, and sages have to undergo the ordeal of suffering, for they take upon themselves the burden of sins of omission and commission of ordinary human beings and thereby sacrifice themselves for the good of humanity.
+ - God cannot be realized without love. Yes, sincere love.
+ - I can never refuse anyone who addresses me as Mother.
+ - Is faith so cheap, my child? Faith is the last word. If one has faith, the goal is practically reached.
+ - If one calls upon Him repeatedly, He becomes compassionate; and so a devoted attachment comes into being. This love for love’s sake should be hidden from all eyes.
+ - The world is going on because not all can be free of desires. People with desires are born again and again.
+
+57 quotes

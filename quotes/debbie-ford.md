@@ -1,0 +1,128 @@
+ - Now is the time to take back your energy, your power, and your peace.
+ - Like the lotus flower that is born out of mud, we must honor the darkest parts of ourselves and the most painful of our life’s experiences, because they are what allow us to birth our most beautiful self.
+ - Live in the knowledge that you are a gift to the world.
+ - Embracing our dark side gives us a new found freedom to be with the darkness in others. For when I can love all of me, I will love all of you.
+ - The warrior woman is filled with the courage, confidence, and inner strength to leave the past behind. She knows that there is no way to express herself fully when she is still carrying burdens that need to be released.
+ - By nature, your soul is soft, gentle, loving and kind. It is forgiving, peaceful, and humble. Confident and comforting in times of despair, your soul is strong, focused, and determined in the mission called life.
+ - Being present means being completely aware of all that is. It means you’re not in denial, you’re not pretending, and you’re not avoiding.
+ - The greatest act of courage is to be and to ownall of who you are – without apology, without excuses, without masks to cover the truth of who you are.
+ - Surrender is a gift that you can give yourself. It’s an act of faith. It’s saying that even though I can’t see where this river is flowing, I trust it will take me in the right direction.
+ - What you can’t be with, won’t let you be.
+ - When you make peace with yourself, the world will mirror back that same level of peace.
+ - All of our suffering in life is from saying we want one thing and doing another.
+ - If we are willing to allow our dark side to be a part of the whole of who we are, we will find it comes equipped with all the power, skill, intelligence, and force needed to do great things in the world.
+ - When you trust the universe, you get to play in the magical world of God’s plan.
+ - When you invoke the agent of change called acceptance, you must accept all that you are, all that you’ve been and all that you will be in the future.
+ - The mind can’t take you where your heart longs to go.
+ - In the realm of divine consciousness, you can see beyond beliefs, beyond knowing, and beyond not knowing.
+ - Truth is the key to unlocking the door to divine confidence. This is a truth that can be felt only when you get out of your head and into your heart. When you’re blind to this truth, you’re left to the limited power of your human will.
+ - When you are grounded in the present – feeling your feelings, listening to your body, tasting your food, and expressing your ideas – you do not build up toxicity. You digest your experience as you go.
+ - If you admire greatness in another human being, it is your own greatness you are seeing.
+ - If you ask the Universe to be your partner and guide you on the path to wholeness, it will oblige.
+ - When divine consciousness enters, the shift occurs and you will be engulfed by what will feel like the greatest love imaginable – a love in which your soul realigns with your spirit and they meet together as one.
+ - When you learn that you can trust life, life will deliver treasures beyond your imagination.
+ - Your soul’s desire are with you at birth like a hidden treasure chest of possibilities for you to discover as you grow and evolve into the person you were meant to be. Give voice to what you long for in the deepest place in your heart.
+ - It takes a warrior’s courage to acknowledge that your point of view matters, that your truth matters, that your gifts matter, and that your presence on this earth matters. You don’t have to earn this right; it’s yours as part of your birthright.
+ - Whatever we refuse to recognize about ourselves has a way of rearing its head and making itself known when we least expect it.
+ - When you begin the process of unhooking from the outer world, you can find literally hundreds of places where you have given your power away and drained your life force while guaranteeing the status quo.
+ - You are here to deliver a divine gift to the world.
+ - We choose to forget aspects of ourselves and then we forget that we’ve forgotten.
+ - By choosing not to allow parts of ourselves to exist, we are forced to expend huge amounts of psychic energy to keep them beneath the surface.
+ - Why can’t we see everyone and everything as God, as a part of the Divine? It is because we don’t see ourselves this way.
+ - Emotional turmoil can be a powerful catalyst to reconnect us with our divine nature. It propels us into a journey of self discovery and urges us to learn how to love and accept our entire being.
+ - Our pain can be our greatest teacher. It leads us to places we’d never go on our own.
+ - Remember, all the answers you need are inside of you; you only have to become quiet enough to hear them.
+ - Fulfilling your vision for the best year of your life requires thought and introspection. It is not much different than planning an awesome vacation. It takes time, discussion, planning, decision making, and an array of other skills.
+ - To ignite your confidence and reclaim your courage, you must step into the highest vision of who you are. The only way to do this is to make the journey back into the arms of the Divine.
+ - You must go into the dark in order to bring forth your light.
+ - What if the key to unlocking your true authentic power, to opening up your heart deeply to love, to finding the confidence to go after everything you want in your life lies hidden in your shadow?
+ - The world mirrors yourself back to you. If you love, nourish, and appreciate yourself internally it will show up in your external life. If you want more love, give more love to yourself. If you want acceptance, accept yourself.
+ - A wise person once wrote, “Resentment is like drinking poison and hoping the other person would die.” But the only one dying is ourselves.
+ - A courageous warrior knows that she is powerfully sourced by something much greater than herself and that she can release the judgments of others.
+ - The shadow is not a problem to be solved or an enemy to be conquered, but a fertile field to be cultivated. When we dig our hands into its rich soil we will discover the potent seeds of the people we most desire to be.
+ - It is your soul’s journey to enroll the ego in the quest for the ultimate victory – the evolution of your own individual consciousness.
+ - True courage comes not just from feeling confident and strong, but from being the honest, authentic expression in yourself. Think about how audacious it is to really believe in yourself.
+ - If you constantly beat yourself up with negative thoughts, you will either beat up on the people around you- verbally, emotionally, or physically- or you will beat up on yourself by destroying some area of your own life.
+ - Once befriended, our shadow becomes a divine map that-when properly read and followed-reconn ects us to the life we were meant to live, the people we were meant to be, and the contributions we were meant to give.
+ - In order to reveal the gifts that lie beneath the surface of your heart’s greatest desires, you must look beyond your years here on earth, reconnect with the Divine, and bring forth your soul’s legacy into the present moment.
+ - There’s only person in the world you can’t see – yourself. But, God created – or whoever created us, we don’t even have to argue that point – created us so perfect because we can actually see ourselves in other people.
+ - Our society nurtures the illusion that all the rewards go to the people who are perfect. But many of us are finding out that trying to be perfect is costly.
+ - Standing in our power demands that we be vulnerable, listen to our own voice, and take risks outside the comfort of what we know.
+ - A strong, clear vision holds the power to transcend your current reality, bypassing the day-to-day challenges that might be keeping you stuck where you are. What is your vision?
+ - The level of consciousness you choose to tune in to each moment of each day will determine the quality of your experience of the world.
+ - When you experience peace of soul, with each breath you are present to the fact that this is a divine moment, a moment to shine like you have never shone before, a moment to hold the whole world in your hands with a gentle thought and a kind heart.
+ - You are designed to reinvent and re-create yourself, over and over again. And, you are here-whether you want to acknowledge it or not; whether you even know it or not-for the evolution of your own soul.
+ - It’s not our job to assess the merit of our vision or judge its importance. It is our job to receive the vision and act upon it.
+ - Reclaiming the parts of ourselves that we have relegated to the shadow is the most reliable path to actualizing all of our human potential.
+ - Whatever inspires you is an aspect of yourself. Any desire of the heart exists to support you in discovering and manifesting it. If you have an aspiration to be something, it is because you have the potential to manifest the quality you are seeing and the behavior that this quality will bring forth.
+ - Our difficulties launch us into new states of consciousness where we are inspired to step out of the reality of our smallest thoughts and step into the limitless freedom of our biggest dreams.
+ - Notice what happens when you choose to embrace rather than reject each feeling that arises within you today.
+ - Every important choice we make is being guided by one of two places: either it is an act of faith or it is an act of fear. Faith opens the door to a new future.
+ - Before you begin your day: Take a moment of silence and meditation, and give yourself permission to have all that you desire.
+ - Your LiFe will be transformed when you make peace with your shadow.
+ - We can’t fight darkness with darkness. We have to find compassion, and embrace the darkness inside of us in order to understand it and, ultimately, to transcend it.
+ - We are meant to discover our authentic nature-the state of being in which we are inspired by ourselves, turned on, lit up, and excited about who we are.
+ - Challenge the person you think you are in order to unveil the person you are capable of becoming.
+ - Taking back our light from those we’ve projected it onto opens the door to an unimaginable future.
+ - Loving yourself means making choices that allow you to care for the important person that you are.
+ - The evolution of one’s own soul is a process. It’s not a quick fix. It’s not a five-day workshop. It’s a lifetime process where we let go, discover and then allow for futures to come into existence.
+ - In order to find peace, we must expose the masks we use to hide behind.
+ - Many of us don’t realize that we have a choice about which aspect of ourselves we will use as the foundation upon which we build our lives.
+ - We are all stronger than we can ever imagine being. Every choice matters starting with today. And today, I choose to live.
+ - The unmet need that can get met right now is the need to be whole, to be both your magnificent, divine self and your imperfect, human self.
+ - There is nothing else for you to do but to truly love and nourish the emotionally and spiritually starved parts of you that are crying out for your attention. Are you loving all of yourself?
+ - When we love all parts of ourselves, when we bless all of ourselves, when we honor all of our history and all of our insecurities, doubts, worries, and fears, we become the women that we always wanted to be.
+ - The present moment is the pivotal point of power.
+ - Love is the answer, the spiritual solution that holds the power to end the war that rages within each of us.
+ - Our perspectives on situations act like a lens through which we view the world.
+ - Faith gives us strength and reassurance and leaves us bathed in the wisdom that we are never alone.
+ - People with hearts filled with love, peace, and compassion live in heaven.
+ - Your soul is infinitely creative. It is alive and expansive in nature. It is curious and playful, changing with the tides of time.
+ - I define God as an energy. A spiritual energy. It has no denomination, it has no judgment, it has an energy that when we’re connected to it we know why we’re here and what we’re here to do.
+ - Our persona was not created by accident; it was created in order to camouflage the parts of ourselves we deemed the most undesirable and to overcompensate for what we believe to be our deepest flaws. What persona are you hiding behind?
+ - If you are going to be courageous, an example for all those who are ready to step into their power, then you must be willing to show the world all of who you are. You must have the guts to throw off the chains of modesty and mediocrity in order to be the light that the world needs.
+ - If we want a new future that does not look like our past, we must make new choices in the present.
+ - Vision lifts you up. It makes you smile a secret smile because you know that you have something very special to share. What is your vision?
+ - Resentments lodge inside you, causing you to lose touch with your inherent worth, your joy, and – more important – your God-loving heart.
+ - A strong plan of action will yield you quantum results and will ensure that you don’t fall into the familiar patterns of your past.
+ - It is your holy work, to deeply love, honor and respect the precious self that you are, the soul that only you hold.
+ - When you are in harmonywith yourself, you’ll be in harmony with everyone else.
+ - Unfortunately, unless we’re focused on building up our courage, which gives us our self-confidence and all that we need to make quantum change in our lives, the voice of fear will always take the lead inside our minds.
+ - When you are a warrior for your body, you search out every good thing there is to fill it with – every nutrient, every vitamin, every thought, every belief. You love your body, and you thank your body in the morning and bless it throughout the day.
+ - Think about how audacious it is to really believe in yourself.
+ - I grew up very insecure. From the time I was little I used to hide under my mother’s dress.
+ - As you continue the work of acknowledging and claiming the gifts of your past and standing in the power of your present, you are freeing up enormous reserves of creative energy.
+ - In order to access a warrior’s courage, we must explore why we are so committed to our story and what we are afraid will happen if we give it up.
+ - We see only that which we are.
+ - Compassion allows us to understand that, as citizens of the planet, we’re all in this together and that in order to ensure our survival we must hold and cultivate a new and larger vision of what’s possible for ourselves and for the human race as a whole.
+ - Become aware of your negative expectations and practice replacing them with positive expectations.
+ - For when I can love all of me, I will love all of you.
+ - Everybody’s vision is unique, and at different times in their lives their vision changes. It may be smaller and more personal for a while, and then it may grow larger, expanding outward to the world.
+ - Heaven is the experience of being completely present to all that is, all that you are, and all that you have to give. Are you choosing to live in heaven or suffer in hell?
+ - We and we alone have the power to change our lives, and we can choose to do so at any moment.
+ - It isn’t what happens to us in life that creates our joy, but rather how we respond to what happens in our lives.
+ - Each aspect within us needs understanding and compassion. If we are unwilling to give it to ourselves how can we expect the world to give it to us?
+ - Everything that comes our way is so we can grow and evolve, and if we look at it like that, then we have the great opportunity to step into who we always wanted to be.
+ - There is not one life that doesn’t add tremendous value to the whole. Somewhere inside of us we know this to be true; we hear the call to head in the direction of this bigger life.
+ - Mary Allen has compiled a wealth of tools and resources – both inner and outer – to support you in consciously directing your untapped potential and creating a life that you love.
+ - You can’t just say that you’re committed to creating the best year of your life and expect it to stick. You have to make a conscious effort to allow this commitment to become part of your internal belief system.
+ - We were birthed with one soul to take care of, and we must take care of it.
+ - The “we” of your divine birthright – the one that is aware of its place as part of the collective whole – knows that it is your sacred obligation to shine your brightest light, not just in your moments of glory but each day.
+ - If we want to know what we’re really committed to, all we have to do is look at our lives.
+ - We each need to become our own hero.
+ - Your soul never asks you to endure anything you can’t handle.
+ - You must have the guts to throw off the chains of modesty and mediocrity in order to be the light that the world needs.
+ - It is only when you’re lying to yourself or hating some aspect of yourself that you’ll get an emotional charge from someone else’s behavior.
+ - We must be willing to take an honest look at ourselves and step out beyond our judgmental mind. It is here that we will have a life-altering shift in perception, an opening of our heart.
+ - Owning our power means claiming the credibility and uniqueness of our own humanity.
+ - Many of us have read about and talked about forgiveness, and we understand intellectually why it might benefit us to let go of anger toward others. But we hold on anyway.
+ - Compassion is one of the highest states of consciousness that you can choose to assist you in times of enormous pain.
+ - Fear is the culprit that robs us of our greatest lives. And although it’s mostly made up or a learned behavior from our past, almost everybody I’ve ever met in my life struggles with fear.
+ - In any area of our lives where we fail to act from integrity or violate our own understanding of what is right or wrong for us, we fall prey to putting the outside world’s needs before our own. We then disconnect from the enormity of our power and our ability to create what we want.
+ - When we are aligned with our highest selves, we trust ourselves enough to follow our hearts. Then we are able to be straight and tell the truth about who we are, and what we want, even if it disappoints someone else. Are you being straight about who you are?
+ - Many of us are frightened to look within ourselves, and fear has us put up walls so thick we no longer remember who we really are.
+ - Right now, there is a stronger, more vibrant, more inspired version of “you” that is wanting and waiting to emerge.
+ - To experience emotional freedom, we must accept, surrender, and let go of our wounds. We must be willing to take responsibility for what we’re holding on to, which is usually a hurt or pain from the past that leaves us feeling victimized.
+ - Divorce becomes a holy moment when you choose to use it as a catalyst for having an extraordinary life.
+
+126 quotes

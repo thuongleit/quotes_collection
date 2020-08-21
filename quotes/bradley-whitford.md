@@ -1,0 +1,33 @@
+ - Infuse your life with action. Don’t wait for it to happen. Make it happen. Make your own future. Make your own hope.
+ - Take action. You can either be a passive victim of circumstance or you can be the active hero of your own life. Action is the antidote to apathy and cynicism and despair. You will inevitably make mistakes but at the end of your days, you will be remembered for your gallop, not for your stumble.
+ - Take action. Every story you’ve ever connected with, every leader you’ve ever admired, every puny little thing that you’ve ever accomplished is the result of taking action. You have a choice. You can either be a passive victim of circumstance or you can be the active hero of your own life.
+ - Infuse your life with action...
+ - We all go through life bristling at our external limitations, but the most difficult chains to break are inside us.
+ - When you act, you’re always playing a version of yourself. You can’t bring more to the role than what you are.
+ - At the end of your days, you will be judged by your gallop, not by your stumble.
+ - Having an affair with an intern is just an incredibly stupid thing to do.
+ - Help us show children around the world that we can make a difference together.
+ - The issue for my character, and the issue of the show is, how dirty do your feet have to get without suffocating yourself in the mud in order to get an inch of what you really want done?
+ - Anybody who can dial a telephone can master tennis scoring in about 15 minutes.
+ - Whatever you do, make sure you want to write more than you want to be a writer. Make sure you want to act more than you want to be an actor. That is what will sustain you.
+ - You don’t want your credibility banana to turn brown, but you do want to speak out about what you believe in.
+ - Cal Ripken is steady, he focuses on his job, and he’s a good guy.
+ - The invisible carnage of the unf-ed wives and the children not being read to is just wafting out.
+ - Being an actor, you always feel like you’re swimming upstream. People are going, “No, they don’t like you. They don’t like the way you look. They don’t like how old you are.”
+ - You need to be real enough to be believable, but you don’t necessarily have to be real enough to be real. There is a distinction.
+ - Richard Schiff is a really good baseball player. It’s surprising because he looks exhausted.
+ - John Wells let me write a couple of West Wings, which was an incredible gift. I loved it once I got past the brain injury part of it, and so I’m working on a couple of things that are far from fruition, but what I want to pursue.
+ - I was at the vice president’s Christmas party. I thought that his speech was spectacular, and I knew that it was a very emotional and difficult thing for him to do, but I admonished him for not waiting just one more stinking day.
+ - With the success of a show, you get an opportunity to call attention to things that you believe in.
+ - One of the most surreal moments in this election was after the third debate, when I heard a talking head say, Al Gore won on substance, on the issues. But you have to give the victory to Bush because he seems presidential.
+ - I can’t believe George Bush might be president.
+ - Only two things ever stop the government from doing anything: money and politics.
+ - I identify with this guy’s frustration and inability to control his fury at moments. I even identify with the way that this guy covers up a lot with humour. So yeah, it’s interesting.
+ - You don’t want to become one of those Hollywood idiots who is just blathering about anything.
+ - I want to see Bob Dylan do sketch comedy. I’m a huge Bob Dylan fan.
+ - We’re telling a story. And the demands of that are different from the demands of a documentary. The audience must believe in order to keep faith in the story.
+ - I have to think that I think it’s always been a horse race between this administration’s temporary political acumen and their completely, utterly, totally bankrupt policies. And they’re coming home to roost. It was always a question of time. These guys aren’t conservative. These guys are radicals.
+ - I heard an Israeli speaking on Palestinian human rights issues, an interesting guy, and he said ‘There’s no military solution to terrorism. If there were, Israel would be the safest place in the world. But there’s no military solution.’
+ - In the right situation, acting on television can be extraordinarily satisfying creatively. But that’s incredibly rare. Otherwise, it can be like working in a really remunerative coal mine. That’s the down side.
+
+31 quotes

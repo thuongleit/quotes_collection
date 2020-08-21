@@ -1,0 +1,28 @@
+ - If I were really really ridiculously wealthy, I wouldn’t buy a mansion, just tiny apartments in every city I love.
+ - I don’t have any plans to pursue film acting. It’s not my thing anymore, if it ever was. Yes, I do still act sometimes. But when I do, it’s with people I know and trust, people who respect me as a person and appreciate what I have to offer.
+ - That’s my suggestion for kids who want to act, by the way: Make sure it’s really your choice, get out of it when it stops being fun, and get an education.
+ - I don’t know if I’m always going to be acting. Maybe when I grow up, I will be a scriptwriter. I already have a few scripts in my head.
+ - If I ever have children of my own, they will read Matilda. They will watch the movie. And you can bet they will see Matilda: The Musical.
+ - The best times I had on film sets were the times the director let me express myself, but those were rare.
+ - I think if I could do it over again – as much as I loved meeting the people I did on the films after ‘Matilda’ – I wish that I had stopped after ‘Matilda.’ I wish that I had just focused on my own life for a while.
+ - Very sad, very upset, very glad I did not have to hear about this though Twitter. Probably going to be taking some time off it for a while.
+ - My mother died when I was young, and I was filming all the time. I was all over the place. Acting was the one constant.
+ - I consider my relationship with acting in Hollywood as sort of a mutual breakup. Through puberty, Hollywood didn’t really want me anymore, and I was like, ‘Yeah, I don’t really want you, either.’
+ - If I were to talk to Lindsay Lohan, I’d encourage her to get the hell out of acting and into something soothing. Take up botany or something.
+ - No, you will never see me on ‘Dancing With the Stars.’ Sorry.
+ - I’d rather be known for my accomplishments, and for things that I really do take pride in, rather than known for this doll-like image I had when I was a child.
+ - Considering all the legal hassle child stars can be, I won’t be surprised when they are phased out by CGI children voiced by adult actors.
+ - Danny DeVito later told me that he knew he wanted me for ‘Matilda’ the second I walked in the door. I’m not sure if this is true, or if he was just being nice, but I was thrilled when I got it.
+ - I can’t take much pride in my childhood acting. It feels like it happened in another lifetime, and even then, it felt like a hobby.
+ - I’m pretty cautious and not very athletic, so I’ve only had really dumb injuries, like sprained ankles and allergic reactions. I did have to go to the hospital after slicing my finger while trying to cut a Kaiser roll in half.
+ - The celebrity aspect is nothing short of ridiculous, and auditioning is brutal and dehumanizing. Every time I see a pretty young girl on the subway reading sides for an audition, my only thought is, ‘Man, am I glad I’m not doing that anymore.’ I never feel nostalgia, just relief.
+ - Film can be exciting, but more often, it’s tedious.
+ - I had people in ‘Entertainment Weekly’ talking about how they wanted to throttle me because they thought I was too disgustingly cute, as if that were my fault, you know, as if that was my fault, not the fault of directors and producers and such.
+ - I remember feeling enormous pressure because I didn’t want to be Shirley Temple. Shirley Temple was Shirley Temple, and I didn’t ever feel like I could live up to that.
+ - I think I might like to try film again just as an experiment, but I know that I could never do the mainstream thing again.
+ - I still get recognized. It’s flattering, but it can be uncomfortable. Maybe because it only seems to happen when I’m looking and feeling crappy.
+ - People who meet me as an adult are often surprised that I’m alive and have never been in prison or rehab. Sometimes they’re disappointed I’m not cooler.
+ - Actually, I do like pink clothes, but it’s not because I’m girly, it’s because I’m the reincarnation of Oscar Wilde.
+ - I didn’t want to be a former child actor for the rest of my life, although in some ways I suppose I am. I am going to be that.
+
+26 quotes

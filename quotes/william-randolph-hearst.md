@@ -1,0 +1,28 @@
+ - You must keep your mind on the objective, not on the obstacle.
+ - You furnish the pictures and I’ll furnish the war.
+ - We must be alarmingly enterprising, and we must be startlingly original, and do new and striking things which constitute a revolution.
+ - News is what people don’t want you to print. Everything thing else is ads.
+ - A politician will do anything to keep his job – even become a patriot.
+ - All work and no play may make Jim a dull boy, but no work and all play makes Jim all kinds of a jackass.
+ - Truth is not only stranger than fiction, it is more interesting.
+ - My experience has proved that a man who is running for office, and is not willing to make his honest opinions known to the public, either has no honest opinions or is not honest about them.
+ - This would, at a stroke, reducetherise in prices, increase productivity, and reduce unemployment.
+ - You can crush a man with journalism.
+ - If you want to see the acceptable face of capitalism, go out to an oil rig in the North Sea.
+ - Putting out a newspaper without promotion is like winking at a girl in the dark – well-intentioned, but ineffective.
+ - When free discussion is denied, hardening of the arteries of democracy has set in, free institutions are but a lifeless form, and the death of the republic is at hand.
+ - Don’t be afraid to make a mistake, your readers might like it.
+ - Any man who has the brains to think and the nerve to act for the benefit of the people of the country is considered a radical by those who are content with stagnation and willing to endure disaster.
+ - In suggesting gifts: Money is appropriate, and one size fits all.
+ - Rejoice! Rejoice! Rejoice!
+ - We hold that the greatest right in the world is the right to be wrong, that in the exercise thereof people have an inviolable right to express their unbridled thoughts on all topics and personalities, being liable only for the use of that right.
+ - Whatever begins to be tranquil is gobbled up by something not tranquil.
+ - We hold that no person or set of persons can properly establish a standard of expression for others.
+ - The distribution of wealth is just as important as its creation.
+ - I do not think that any man should be attacked because of his race or religion, or that he should be immune from attack because of race or religion.
+ - The coming of the motion picture was as important as that of the printing press.
+ - It is a good thing that women are so easily manipulated. Otherwise, most of us wouldn’t be here.
+ - It is the unpleasant and unacceptable face of capitalism, but one should not suggest that the whole of British industry consists of practices of this kind.
+ - British Conservatives base their entire approach to politics on the rule of law, and rightly so.
+
+26 quotes

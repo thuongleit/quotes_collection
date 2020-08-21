@@ -1,0 +1,87 @@
+ - Everyone needs a mentor.
+ - If you think big, then it’s going to be big.
+ - I don’t limit myself.
+ - Get up every day and try a little harder than the day before.
+ - You gotta have good olive oil. You should have a cooking olive oil and you should have a finishing olive oil, like an extra-virgin olive oil.
+ - Cleanliness is very important. If you let kids make a total mess in the kitchen and then leave, you’re not really teaching them anything.
+ - I grew up in Fall River, Massachusetts. My background was modest, and I worked at a Portuguese bakery in town.
+ - Soups are a great way to introduce a lot of vegetables to kids. Stir-fries, too, because they contain so many different shapes and colors.
+ - I’m working harder than ever now, and I’m putting on my pants the same as I always have. I just get up every day and try to do a little better than the day before, and that is to run a great restaurant with great food, great wine, and great service. That’s my philosophy.
+ - I love to cook; that’s my passion.
+ - Anything made with love, bam! -it’s a beautiful meal.
+ - My philosophy from day one is that I can sleep better at night if I can improve an individual’s knowledge about food and wine, and do it on a daily basis.
+ - I like to keep things simple. It’s really about the wine, food and the beach view. Nothing can beat that.
+ - It’s okay to play with your food.
+ - Cooking is so popular today because it’s the perfect mix of food and fun.
+ - I think you’ve got to keep it simple, keep it fresh. Stay away from all that processed stuff, read the labels.
+ - If you don’t follow your dream, who will?
+ - I had a fierce curiosity about this food thing.
+ - Food that’s beautiful to look at seems to taste better than food that isn’t.
+ - Life just doesn’t hand you things. You have to get out there and make things happen. that’s the exciting part.
+ - I moved to Louisiana to become the executive Chef at Commander’s Place. And I must say I had some encouragement from friends such as Ella Brennan, the queen of the New Orleans’s culinary set, and others. This was very flattering to a young man with a dream. I was only 26 years old.
+ - I try to teach my son about sanitation, especially when handling foods like chicken that could be dangerous. I remind him to wash his hands all the time. When my son cooks with me, he stands on a step stool so he can reach the stove. I teach him about safety and fire.
+ - Kids are now eating things like edamame and sushi. I didn’t know what shiitake mushrooms were when I was 10 – most kids today do.
+ - I love fresh citrus and always keep lemons, limes, and oranges on hand; they come in handy for spritzing up quickly grilled meats, seafoods, and vegetables, especially when followed up by a quick drizzle of extra virgin olive oil.
+ - I spent a lot of time on farms when I was young. My uncle and my dad owned a big farm.
+ - I came here because the city has a tradition and is a very respected food city.
+ - When I want to kick it up, I like to add hardwood chips or chunks to the grill; it adds bold smoky flavors. The most common woods are hickory and mesquite, but you can find alder, apple, cherry and, my personal favorite, pecan.
+ - My food is Louisiana, New Orleans-based, well-seasoned, rustic. I think it’s pretty unique because of my background being influenced by my mom, Portuguese and French Canadian. There’s a lot going on there.
+ - The cool thing is that now that people have made this evolution where cooking is cool, people are doing it on weekends, they’re doing their own challenges. It’s back to cooking. And it’s real cooking.
+ - The world has changed, and it’s almost been 11 years. I have 975 employees. I have six restaurants. We haven’t opened any new ones in almost three years.
+ - I started cooking when I was about 10. I have memories like when I was 6 or 7 with my mom, and when I was 12 I started getting real serious about cooking.
+ - I ended up turning down a full scholarship of music at the conservatory to pay to go to cooking school.
+ - Food is very representative of a city’s culture. In order to really get to know a place and the people, you’ve got to eat the food.
+ - My Food Network shows, ‘Emeril Live’ and ‘Essence of Emeril,’ are not in production right now, but I wouldn’t say that I’m necessarily leaving Food Network. I have a lot of television still in me. I enjoy teaching people, so it’s just a matter of time before I do something new.
+ - We’ll be going to the fish market and a farmer’s market this afternoon to get what we need to make and eat dinner as a family. I’m trying to expose my kids to going to a farmers market or the fish market and learning what that’s all about.
+ - What I go for in my cooking is sinful, bold and real.
+ - Many of my staff have been with me for over 20 years. I have a great team, and I make sure they feel respected and appreciated.
+ - Start with a clean grill. Keep it clean by brushing with a wire brush after preheating, and again after cooking. Make sure to oil your grates and your food before putting it on the grill to keep it from sticking.
+ - I was on the board of Andre Agassi’s foundation, and seeing the way it operated blew my mind. In 2002, I told my wife, I want to start a foundation to give back, I want it to be for kids in hard circumstances, and I want it to be culinary-driven, because that’s who I am.
+ - If kids can learn how to make a simple Bolognese sauce, they will never go hungry. It’s pretty easy to cook pasta, but a good sauce is way more useful.
+ - Radishes grow just about anywhere. People think, ‘Oh it’s just a radish.’ But radishes are delicious, and people don’t think of cooking them.
+ - Home base is the support system where we have a culinary team, my own writers because of the shows and the books and stuff, we have a culinary team of about six people. Marketing, public relations, accounting and all that sort of stuff.
+ - One big reason I do what I do is there’s no two days alike. It’s not work for me. It’s my life. My passion.
+ - I have a lot of influences. I’m American-schooled. I’m classically trained. I’m a pretty universal student, if you will. I have a lot of degrees, which really don’t pay the rent. I have two doctorate degrees, I have a bachelor’s degree, but I’m still a cook.
+ - You can easily put together your own favorite spice blend, whether that’s a salt and pepper mixture or you’re adding herbs to it or Creole spice. Just watch out for the sodium content. That why I encourage you to make your own.
+ - I mean, if you love what you do-whether you’re an auto mechanic or you sew clothes or you cook-it’s all about personal passion and love that really makes the thrust to the level that you want to get it to.
+ - Books make great gifts because they expand your horizons and keep you cooking.
+ - We’re setting up an urban farm for kids on more than 20 acres in New Orleans. We want to make this a world-class educational center for the community.
+ - You have to be cautious of eating continuously the same thing. Beef comes to mind right away, and there’s nothing wrong with beef, but you’ve got to do whatever you’re doing in moderation. So try to break it up a little bit. Eat some fish or some shellfish at least a couple of times a week.
+ - I can’t tell you enough about cinnamon. Cinnamon is an awesome spice to use and it goes great with something like apples in the morning or in a mixture of fruit or in your oatmeal or even in your cereal.
+ - When I cook with my son, I might chop vegetables and have fun with different shapes. Cooking is a way to teach kids about other things, like reading or math with all of the weights and measures. There are so many things that are part of cooking that are also very educational.
+ - Wrap fish fillets, sliced veggies, and other quick-cooking items inside foil packets with bundles of fresh herbs and throw them directly on the grill; the steam will release the herb’s perfume and flavor anything contained inside the pouch.
+ - Mom ran the house, so we grew up Portuguese.
+ - I wouldn’t ask any of my employees to do anything I wouldn’t do. And I work as hard, if not harder than the rest of the staff, to set an example. I also believe in giving my employees a lot of room to be creative and to express themselves.
+ - If somebody has a chance to put my food in their mouth, that tells the story.
+ - Scatter soaked hardwood chunks over your coals for a quick and easy way to add a smoky nuance to your grilled foods.
+ - Those other 10 o’clock shows that come on, all you get from them is headaches and nightmares when you go to bed! At least we give you food, know what I mean?
+ - A lot of parents ask me how to get kids to eat more vegetables. The first thing I say is that it starts from the top.
+ - I guess I feel that I was following my instincts, and at the same time being guided by the best. I became totally intrigued with Louisiana – the people, the food. It is a part of my life. Everything that has happened for me since moving here has just been icing on the cake.
+ - You know, in 1975 I couldn’t get a job in New York City because I was American. The kitchens were predominantly run by French, Swiss, German, and basically I got laughed at. I had education, I had experience, but got laughed at because I was American.
+ - In the restaurant it’s much more serious.
+ - My inspiration was my mom. She’s a great cook, and she still cooks, and we still banter back and forth about cooking. Growing up in a mostly Portuguese community, food was important and the family table was extremely important. At a very young age I understood that.
+ - I had these recipes that say do this, do that. Who MAKES these rules?
+ - I’ve always done food that can work in a set time frame. The message I’m trying to get across is, it doesn’t have to take three days to do this. With planning, you can do a lot and really have quality food every day.
+ - I respected it. I submerged myself into it. So on a lot of days off I would go and fish with the fishermen and the families that ran the boats. I would go work the fields with farmers. I would go and talk with farmers about growing particular products for me.
+ - You go to a restaurant in the States and kids have these game boards at the table. You don’t see that in Italy or Spain. It’s not because they can’t afford to buy them, it’s because that’s not what eating together as a family is about.
+ - My favorite Aspen memory is saving an upside-down cake that had exploded from the high altitude.
+ - The premise of ‘The Originals’ are places that have been open 50, 60, 75, 100 years or longer that are still doing it right that maybe a lot of people, particularly the younger generations, have not even thought about.
+ - When it ceases to be fun, I’ll stop and just stay in my restaurants.
+ - Whether it’s books or TV, or whatever the case may be, the backbone of what I do is my restaurants.
+ - I’ve always been known for bold flavors and rustic cooking, but there is another side to me. As you evolve as a cook, you understand life and how serious it is. There comes a point where there’s got to be a better balance.
+ - Growing up in New England, being schooled and classically trained, it needed to shake, it needed to evolve.
+ - I make some of my best recipes with a simple homemade stock. Keep shrimp shells stored in a plastic bag in the freezer. When you have almost a gallon-bag full, you can make a stock in 30 minutes that you can use in soups and sauces. You can then freeze the stock in ice-cube trays.
+ - You are going to be what you put in your body, so I try to teach that to my kids, and the kids around me.
+ - I’m not a TV guy. I’m a restaurant chef and a businessman.
+ - My office in New York is overflowing with all kinds of cookbooks, and in New Orleans we have a huge culinary library. So yeah, I guess I’m a little bit obsessed.
+ - Music is one of those things that is constantly going in my head all the time. It’s sort of like the evolution and creation of doing food, or my philosophy about wine. It’s always beating in my head, so it keeps the spirit moving.
+ - I’m pretty actively involved with the military because I think they’re incredible human beings. If I can give back to them for what they’re doing for us, it’s a good thing. And I think to have happy soldiers, you need to feed them well.
+ - I launched The Emeril Lagasse Foundation to provide culinary training, and developmental and educational programs to children in the cities where my restaurants operate. I think everyone has a responsibility to give back to the community if they can, and to help future generations learn new skills.
+ - I think all kids need snacks. Mine are fruit machines. I give them things like apple slices, berries and melon. Do I let them eat ice cream? Absolutely. But not every day.
+ - I think many cooks are afraid of undercooked meats. A good thermometer is a cook’s best friend.
+ - We’re probably close to reaching 2,000 shows, which is more than Julia Child and Jacques Pepin together.
+ - Spain has some of the richest culinary traditions and truly appreciates food that is simply prepared with top-notch ingredients.
+ - You know, for 300 years it’s been kind of the same. There are restaurants in New Orleans that the menu hasn’t changed in 125 years, so how is one going to change or evolve the food?
+ - Being a food show and being me, I always kicked it up a notch, which means I would always elevate the spice level or the complexity of a particular dish. So, it was always like we’re going to kick this up a little bit.
+
+85 quotes

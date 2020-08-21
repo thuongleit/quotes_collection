@@ -1,0 +1,93 @@
+ - Blame no one. Expect nothing. Do something.
+ - You are what your record says you are.
+ - Individuals play the game, but teams win championships.
+ - Don’t ever let good enough be good enough.
+ - You don’t get any medal for trying something, you get medals for results.
+ - Don’t tell me about the pain. Show me the baby.
+ - If they want you to cook the dinner, at least they ought to let you shop for some of the groceries.
+ - Potential means you haven’t done anything yet.
+ - You lose with potential. You win with performance.
+ - I’ve been around enough to know what it takes to get a team to reach its potential, and I want players who want to reach their potential.
+ - The more you prepare beforehand, the more relaxed and creative and effective you’ll be when it counts.
+ - God’s been good to me, He really has.
+ - What sets disciplined people apart? – The capacity to get past distractions. Focus on the task at hand.
+ - You can’t dream up confidence. Confidence is born of demonstrated ability.
+ - Nowadays, if you are afraid of confrontation, you are not going to do very well.
+ - Creatures of similar plumages habitually congregate in places of closest proximity.
+ - There are two sides to a pancake. One is brown and fluffy; the other is burnt.
+ - I think confrontation is healthy, because it clears the air very quickly.
+ - Resourceful coaches strive to have more ways to win than the other team.
+ - A coach wouldn’t throw you to the wolves if he didn’t think you had some wolf in you.
+ - There is winning and there is misery.
+ - Knowledge is confidence. And confidence lets you play fast.
+ - A team divided against itself can break down at any moment. The least bit of pressure or adversity will crack it apart.
+ - It’s a very easy thing to say, ‘Go get a backup quarterback.’ Now tell me where to get them. You just can’t dial them up.
+ - A good teacher creates an environment which allows the student to succeed.
+ - It’s a lot easier to lose than it is to win. It’s easier, but it’s not more comfortable.
+ - I just try to do the best job I possibly can – put the blinders on, go to work and be the best you can possibly be. Once you have done everything that you possibly can – you’ve put forth your greatest effort – then I can live with whatever’s next.
+ - Never let the world define you as less than Great.
+ - I can’t live my life worrying about something that might never happen.
+ - There’s a line, players usually don’t cross it and coaches usually don’t cross it. Every once in a while you get a little temper tantrum on both sides, I certainly have had ’em. I’m not proud of those.
+ - Accept false steps as opportunities to learn. It’s one thing to hate failure, it’s another to fear it.
+ - The time to worry is before you place the bet – not after the wheel is spinning. Once it spins, you forget about it.
+ - You can easily separate ‘team guys’ from ‘me guys’ by how they accept coaching. The guys that accept it are about winning.
+ - If you have fun, fine. It’s not all life and death.
+ - It’s better to decide wrongly than weakly. If you’re weak, you’re likely to be wrong anyway.
+ - I grew up under demanding people, that demanded things from you, expected you to toe the mark.
+ - You get too old to lose. When you were a young guy, you bounced back from losses.
+ - I’ll call somebody ‘dumb’ or ‘stupid’ if they make a dumb or stupid play. I don’t know any other word for it, and if they don’t like the word, that’s too bad.
+ - This season isn’t going to be without several crises. There’s no doubt about it. They’re coming.
+ - When you don’t know that you don’t know, it’s a lot different than when you do know that you don’t know.
+ - If the players don’t trust the coach, it is a problem, and vice versa.
+ - I’m not really in the excuse business.
+ - My job is to call attention to the things that I think are the difference between winning and losing. If I can’t do that then I have failed as a coach.
+ - I got more money than I can spend now.
+ - Look, coaching is about human interaction and trying to know your players. Any coach would tell you that. I’m no different.
+ - Something goes wrong, I yell at them -‘Fix it’- whether it’s their fault or not. You can only really yell at the players you trust.
+ - I have always felt like you really don’t have a genuine confidence unless you demonstrate the ability to do something. You can talk about it, but you have to demonstrate it.
+ - I don’t look at a problem and put variables in there that don’t affect it.
+ - No matter how much you’ve won, no matter how many games, no matter how many championships, no matter how many Super Bowls, you’re not winning now, so you stink.
+ - I talked to the team a lot about staying power. You never find out if you have that until you’ve been beaten down a few times.
+ - Any penalty – I’ve told you a hundred times – can be eliminated by concentration or good judgment.
+ - If you got anything to you at all as an athlete and a competitor, you don’t care what the circumstances are. You still got competition.
+ - I’m not trying to keep anybody happy.
+ - The media dwells mostly on negativity.
+ - If you’re sensitive, you will have a hard time with me.
+ - In the end, I’ve found, people like the direct approach. It’s much more valuable to them to have a leader who’s absolutely clear and open than to have one who soft-soaps or talks in circles.
+ - Give role players love. Praise can be most valuable when it’s merited by someone whose supporting role is often overlooked.
+ - All the backs in the history of this game are the same when there isn’t any hole to run through.
+ - I’m trying to keep my own house from burning down. I can’t worry about someone else’s house.
+ - Look, when you are starting to put something together, you want the pudding to come out good. You’re trying to put in the right ingredients.
+ - The only players I hurt with my words are the ones who have an inflated opinion of their ability.
+ - I don’t have to make examples out of players to establish my own place. I don’t feel like I have to.
+ - Success is never final, but failure can be.
+ - If I have affected someone in a positive way, that means a lot to me.
+ - I only want my team to play to its potential, as I perceive it to be. I really don’t have any regard for anyone else’s perception.
+ - I have a house in Saratoga Springs.
+ - You ask yourself, ‘What do you want your legacy to be?’ I’m content at this point to say, ‘Those who follow me.’ Romeo Crennel, Bill Belichick, Sean Payton, to name a few. I think I’ve got a pretty good group, so far.
+ - When Super Bowl time comes around, I get jealous.
+ - Winning coaches look for opportunities to praise. Anything that reflects a commitment to the team is praiseworthy.
+ - If there’s one thing I can’t stand, it’s a quarterback who thinks playing quarterback is just about passing.
+ - Hey fellas! This is what you work all off season for. This is why you lift all them weights! This is why you do all that!
+ - All you have to do is play better than the other guy and things go well. If you don’t play better than the other players then somebody takes your place. Now a lot of guys, in this day and time with the transient nature of the sport, as soon as the competition gets too good, they want out.
+ - I love the game. I think it’s a great game because you find out a lot about yourself. You test your mettle every week. There’s no grey area, there’s instant gratification and there are no quarterly reports. We’re not just doing a little bit better. You know every Sunday what happened.
+ - I don’t like celebrity quarterbacks. We don’t need those. We need battlefield commanders.
+ - When I was coaching with the Patriots, the players pulled a practical joke and I said, ‘Do you think I’m Charlie the Tuna, like a sucker?’ After that, they called me Tuna.
+ - I was fighting every windmill, especially when I was in college.
+ - We’re not playing solitaire out here.
+ - You can only really yell at the players you trust.
+ - My expectations are greater than the average fan’s but, I’m more realistic than the top prognosticators.
+ - I like linebackers. I collect ’em. You can’t have too many good ones.
+ - The quarterback is in charge of the chuck wagon. He’s handing it out here and there, but he can’t just throw it out there indiscriminately or the wolves will get him.
+ - Well, I’ve had a long standing relationship with Gatorade and they’ve been very, very good to me. And I believe in their products, I really do. I’ve used them for many, many years.
+ - I think he’s got good potential, but he needs a lot of work.
+ - By and large, I’ve been healthy all my life.
+ - There are two things in New York, euphoria and disaster.
+ - I’m a little superstitious.
+ - I think there are a lot of good people, a lot of good football guys in the NFL.
+ - Usually older players, late in the season, start to get cold.
+ - Don’t worry about it. It’s just a bunch of guys with an odd-shaped ball.
+ - The thing I really look for in this business is there are guys who are into football and there are guys who are in the profession for other reasons.
+ - I spent a lot of time with my teams, especially in the East Coast teams, talking about dealing with the elements a lot of time, and a lot of instruction about field position and those kind of things. I like that variable.
+
+91 quotes

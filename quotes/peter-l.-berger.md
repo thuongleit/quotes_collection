@@ -1,0 +1,38 @@
+ - If you are good for nothing else, you can still serve as a bad example.
+ - India is the most religious country in the world, Sweden is the most secular country in the world, and America is a country of Indians ruled by Swedes.
+ - He who has the bigger stick has the better chance of imposing his definitions of reality.
+ - The negative side to globalization is that it wipes out entire economic systems and in doing so wipes out the accompanying culture.
+ - We also have a cultural phenomenon: the emergence of a global culture, or of cultural globalization.
+ - Unlike puppets we have the possibility of stopping in our movements, looking up and perceiving the machinery by which we have been moved. In this act lies the first steps towards freedom.
+ - The basic fault lines today are not between people with different beliefs but between people who hold these beliefs with an element of uncertainty and people who hold these beliefs with a pretense of certitude.
+ - There is an intrinsic linkage between socialism and economic inefficiency.
+ - East Asia confirms the superior capacity of industrial capitalism in raising the material standard of living of large masses of people.
+ - I think what I and most other sociologists of religion wrote in the 1960s about secularization was a mistake. Our underlying argument was that secularization and modernity go hand in hand. With more modernization comes more secularization.
+ - In science, as in love, a concentration on technique is likely to lead to impotence.
+ - In acute suffering the need for meaning is as strong or stronger than the need for happiness.
+ - The past is malleable and flexible, changing as our recollection interprets and re-explains what has happened.
+ - To be located in society means to be at the intersection point of specific social forces. Commonly one ignores these forces one also knows that there is not an awful lot that one can do about this.
+ - Our institute’s agenda is relatively simple. We study the relationship between social-economic change and culture. By culture we mean beliefs, values and lifestyles. We cover a broad range of issues, and we work very internationally.
+ - F. A. Hayek is probably the most prominent advocate of capitalism in the present period.
+ - Language is capable of becoming the objective repository of vast accumulations of meaning and experience, which it can then preserve in time and transmit to following generations.
+ - In all advanced industrial societies, education has become the single most important vehicle of upward mobility.
+ - Capitalism has been one of the most dynamic forces in human history, transforming one society after another, and today it has become established as an international system determining the economic fate of most of mankind.
+ - There is a continuum of values between the churches and the general community. What distinguishes the handling of these values in the churches is mainly the heavier dosage of religious vocabulary involved.
+ - Institutions provide procedures through which human conduct is patterned, compelled to go, in grooves deemed desirable by society. And this trick is performed by making these grooves appear to the individual as the only possible ones.
+ - Let me say again that the relationship is asymmetrical: there’s no democracy without a market economy, but you can have a market economy without democracy.
+ - In a market economy, however, the individual has some possibility of escaping from the power of the state.
+ - Some people seem to gravitate from one fundamentalism to another, from some kind of secular fundamentalism into a religious fundamentalism or the other way around, which is not very helpful.
+ - Some people think that as the Chinese economy becomes more and more capitalistic it will inevitably become more democratic.
+ - But we don’t have an example of a democratic society existing in a socialist economy – which is the only real alternative to capitalism in the modern world.
+ - An economy oriented toward production for market exchange provides the optimal conditions for long-lasting and ever-expanding productive capacity based on modern technology.
+ - It has been true in Western societies and it seems to be true elsewhere that you do not find democratic systems apart from capitalism, or apart from a market economy, if you prefer that term.
+ - When certain branches of the economy become obsolete, as in the case of the steel industry, not only do jobs disappear, which is obviously a terrible social hardship, but certain cultures also disappear.
+ - Even in a society as tightly controlled as Singapore’s, the market creates certain forces which perhaps in the long run may lead to democracy.
+ - I’m sure Putnam is right that there’s been a decline in certain kinds of organizations like bowling leagues. But people participate in communities in other ways.
+ - So I think one can say on empirical grounds – not because of some philosophical principle – that you can’t have democracy unless you have a market economy.
+ - If you say simply that pressures toward democracy are created by the market, I would say yes.
+ - The problem with liberal Protestantism in America is not that it has not been orthodox enough, but that it has lost a lot of religious substance.
+ - One can’t understand the Christian Right and similar movements unless one sees them as reactive – they’re reacting to what they call secular humanism.
+ - If a socialist economy is opened up to increasing degrees of market forces, a point will be reached at which democratic governance becomes a possibility.
+
+36 quotes

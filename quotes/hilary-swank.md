@@ -1,0 +1,71 @@
+ - I think we have a choice every single day in how we want to live our life. You wake up and you make your choice of what you want to do with your day that’s going to help you achieve your dream.
+ - You only have one life and if you’re not doing what you love, what’s the point?
+ - As long as we dare to dream and don’t get in the way of ourselves, anything is possible – there’s truly no end to where our dreams can take us.
+ - I wouldn’t change my past for anything, because I think it’s made me who I am. I’m so enormously grateful for all that I have in my life.
+ - I’m a risk-taker. It’s where my passion lies, so I don’t want to play it safe. That means I’m going to fail sometimes.
+ - I believe that the definition of luck is when preparation meets with opportunity.
+ - What do dreams know of boundaries?
+ - This is my one and only life and it’s a great and terrible and short and endless thing and none of us come out of it alive.
+ - I love my job, I love being an actor and stepping into the shoes of different characters and exploring their lives. It’s enriched my life extremely. I’ve learned more about myself and the ways of life through being an actor.
+ - I really chase the things that I want.
+ - I think writing letters is a lost art, but nowadays it’s something that means even more, because it’s so easy to communicate in so many different ways. But I find a love letter can even be a little post-it note stuck in your pocket, with a sentence or a few words.
+ - You can change your fate. You can sit back, or you can go after your life and all that you want it to be.
+ - My biggest growth has been sitting with things that are uncomfortable and dealing with them.
+ - It’s how you look at beauty. Is it only an outward appearance with hair and makeup and a hot body, or is it something deeper than that?
+ - I’m just a girl from a trailer park who had a dream. I never thought this would ever happen.
+ - I had teachers who I could tell didn’t want to be there. And I just couldn’t get inspired by someone who didn’t want to be there.
+ - I grew up in a trailer park in Bellingham, Washington.
+ - When I stopped wanting my New Year’s Eve to be perfect, to bring in the New Year right, is when it started working out right. When I was young, I was always looking for the best party to be at, to ring in the New Year, and I always ended up in the car going, “Happy New Year.”
+ - I don’t think people should have boundaries put on them, by themselves or society or another gender, because it’s our birthright to experience life in whatever way we feel best suits us.
+ - I really enjoy playing with someone else and whether it’s chess or tennis or games, I love card games. I love that, but I think there’s something so important to gain from winning and losing and learning how to lose and how you can be better from that.
+ - If there’s someone that I just wan to work with in the future, I set a general meeting and I say, “I’m a really big fan. I want to meet you. I’d love to collaborate with you someday and hopefully you’ll remember that for the next time you have something that I could be right for.”
+ - I bring my dogs on set with me, and my little dog Karoo is smart as a whip. She knows where the craft-services food tables are, so anytime I can’t find her, I know she has found her way to that area. She’s a funny dog.
+ - I cut coupons, love specials and believe in buying toilet paper and toothpaste in bulk. It’s just who I am.
+ - To me, working out is literally like eating a meal or drinking water or breathing.
+ - Growing up in a lower-income family, you don’t have the resources to make ends meet and you have to find creative ways to get by.
+ - I love to travel. I’m a curious person.
+ - There’s so much more to life than looking a certain way.
+ - It’s give-and-take and back-and-forth, that constantly allows you to grow as an artist and as a human being.
+ - I think about how I’m spending my money, and I like to spend on my family.
+ - I haven’t tucked a sock in my pants for three years.
+ - The truth is, after Boys Don’t Cry, I realized how few and far between the great roles are. I am beyond thankful for finding Million Dollar Baby.
+ - Making a movie is you’re really only as good as your weakest link, so when everyone’s working at their best and it actually comes together, it’s an extraordinary thing because it doesn’t always.
+ - I wake up so full of life and feeling so alive and so full of joy when I get to go to a set and tell a story. I just – I couldn’t imagine not having that, and what a gift it’s been in my life.
+ - Sometimes you have to get to the heart of a character through your heart. Your own heart. And it’s what makes us similar and what makes us different.
+ - It’s hard to find really original, compelling works of fiction, for women especially. I find that these true life stories about these women that I’m so blessed to play are some of the most compelling stories, and the truth is stranger than fiction.
+ - I’m certainly not very book smart, but I started traveling at 16, and it has enriched me in ways I could never begin to explain.
+ - New Yorkers have this special spot in Central Park, where they do this 5K run, the minute the clock strikes twelve. I ran once, and I’ll never do that again, either. But, it’s awesome to watch those people run. It’s such a great environment and place to be.
+ - Few people know this about me, but I love baking pies.
+ - My relaxation has always been my animals – going to the dog park with them, going to the beach.
+ - I am a competitive person with myself. I always find new goals to achieve, new challenges to breakthrough, and I try and do something new every day. And I’m highly competitive with myself.
+ - I look back and I look at all the opportunities that I’ve had to work really hard and really challenge myself, and I like to do things that scare me. I like to do things that I don’t know if I’m going to be able to do. I need the help of talented people around me. I love that it’s a collaboration.
+ - My most annoying question is ‘Hilary, are you ever going to play a pretty girl?’
+ - You’re always going to make mistakes. That’s life. You just want to grow from them and try to make as few as possible. That’s why you do reach out and ask people for help, where needed.
+ - I pretty much have made a career out of playing real life people.
+ - My job is about playing people. And I think once you lose touch with people, what do you play?
+ - I had to fight my whole life to break out of my circumstances. That’s just part of my makeup.
+ - It’s something that you have to experience in your life, but I think my first kiss, I was 7 and it was really yucky.
+ - I don’t believe in the death penalty. I believe that there are other people as we speak right now in prison, wrongfully accused, who could serve such a fate. That is injustice at its greatest.
+ - I think what’s great about that relationship between an actor and a Director is you have to really blow away all your thing, the safety things that you put up.
+ - I can remember crying on the set of Beverly Hills 90210 after being released from the show a few years ago.
+ - You have to be precisely in the moment in order to box. And I just love that. I just love the idea of right now we’re here, be here.
+ - Learning how to fly, for me, was so euphoric.
+ - There’s no negatives. You just have to trust that what’s happening in your life is unfolding in exactly the right way.
+ - As a producer, you really have – you’re able to hand-pick all the talent that you want to be surrounded with.
+ - The idea of playing a character for even two years, to me feels claustrophobic – only because I want to play a lot of different people.
+ - What I love about making movies is that it’s a collaboration. It’s one of the most rewarding things, to create something and have someone show you something that you didn’t see, and vice versa.
+ - As a performer, I don’t like to play the same thing over and over. I like to play it and let it go and move on. That’s also why television hasn’t really been something that I’ve done.
+ - One thing I’ve learned: You never know where life is taking you, but it’s taking you.
+ - One of the great things about my job is I get to do all of these things that I may not experience had I not been an actor.
+ - All you have to remember is ‘audition’ is synonymous with ’opportunity. I mean, if you absolutely hate auditioning, do you also hate opportunities? That wouldn’t make much sense.
+ - There’s so much I want to do as an actor. I feel like there’s so much more that I want to achieve and that I can achieve.
+ - I’m always looking for opportunities, even when they’re not offered to me. I will have no hesitation to pick up the phone and call a director or call a writer.
+ - I believe in talent, and you believe in who you cast and help them go the distance.
+ - I never know what my next thing is going to be, and I’m not out there specifically searching for one thing in particular. I’m just looking for something that’s new and different. It could be a drama or a comedy, I just want to challenge myself and work with people that inspire me.
+ - I like to play women who blaze trails.
+ - I look at some of my work and say, “Oh, that’s where I can be better.” I want to continue to grow and do things that do scare me. I want to work with filmmakers who will help me go deeper in my work.
+ - I think that we’re all continually searching for who we are, and that’s ever-evolving and changing.
+ - I’m always scared to death that I won’t do a role justice. But fear can be a great motivator.
+ - I feel like I’ve had a really great intense relationship with every single Director I’ve ever worked with. I can’t say there’s one that hasn’t been deep and profound in its own way.
+
+69 quotes

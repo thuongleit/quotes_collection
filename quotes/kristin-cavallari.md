@@ -1,0 +1,39 @@
+ - It’s an unwritten rule – girl friends’ boyfriends are off limits, even after they break up.
+ - What happens in Cabo stays in Cabo.
+ - If a guy won’t commit, he’s a player.
+ - I have no urge to go back to college.
+ - It’s very difficult to change the perception people have of you.
+ - I’m just happy that I’ll have someone to give all my shoes to! I’ll have someone to take over everything. It’s funny because I’m having a lot of fun buying clothes for my daughter. She already has shoes for when she’s a size eight. She’s covered for a while.
+ - Sometimes, in order for things to get better, they have to end – even if it’s momentarily.
+ - I say what’s on my mind. I go after what I want.
+ - Actually, if I don’t eat healthy food I don’t feel good. For me, I crave healthy food.
+ - If you’re looking for a boyfriend, you aren’t gonna find one. They seem to come into your life when you least expect it.
+ - I don’t let myself get worn out. I always listen to my body and take care of it if I’m run-down.
+ - I don’t want a huge wedding. I don’t want it to be some huge spectacle.
+ - I’m a big fan of Kate Moss’s style – no-one nails boho meets hippy chic like she does.
+ - I don’t typically drink coffee.
+ - I don’t have designer clothes in my closet. I just wear them once and give them back.
+ - I don’t shop online. I’m always scared to put my credit card on the Internet!
+ - I hate being away even for a day. But I’m happiest when I’m working and have my own things going on, so it ultimately makes me a better mother and wife.
+ - I hope that I’ll be hot for a long time so I can make a lot of money, I can retire early, and just travel. Hopefully that will happen.
+ - I’m completely done with reality TV.
+ - My personal style can be everything from girly and flirty to edgy and chic.
+ - I would love to have my own shoe line. That I would absolutely love.
+ - I have a lot of sides to my personality and what you see on ‘The Hills’ is a strong, independent woman, which I am. But I also have a sensitive side that I don’t show too much.
+ - I swear by Neutrogena facial wash – I never sleep in my makeup!
+ - I think a lot of girls look up to me because I’m a strong woman.
+ - I mean, I can tell within the first two minutes if I’m into someone or not. I can always tell if I get butterflies.
+ - I don’t really regret anything in my life.
+ - I like to wear what I feel good in, not what the latest trend is.
+ - I would never put my close friends or a real relationship on a show.
+ - Everyone assumes because I’m on a reality show I can’t act. Which is fine.
+ - I’m very open to dating and finding a guy.
+ - I try to always be in touch with my emotions so that I’m mentally clear.
+ - Someone gave me the Love Languages book, and that has been the best book I’ve ever read about relationships and has helped me the most.
+ - Everything that I’ve done has made me who I am today. You know, it’s cliche, but it’s true.
+ - There is nothing I love more than helping someone realize how corrupt our food system is and them making great changes in their own life because of it.
+ - Five pieces every girl needs in her closet are; a great pair of a jeans, a good black heel, a great little black dress, tank tops for layering, and a jacket that can be worn day or night.
+ - I own a lot of shoes; I am not sure how many.
+ - I’m not a big dancer!
+
+37 quotes

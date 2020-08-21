@@ -1,0 +1,31 @@
+ - No one will guide you in the right direction, in the end you have to learn for yourself. You have to grow up yourself.
+ - Nobody’s really unsympathetic, I think. People do good and bad things. If a character’s totally unsympathetic, they’re not real and I’m not interested. Even the real monsters have to have a spark of something you can relate to.
+ - I was quite a shy child. I would get terribly nervous and throw up before my birthday party. And then I would be fine. I feel the same now. I get nervous, then it’s fine.
+ - I just loved the whole idea of being an actor.
+ - Nobody’s just arrogant. I’ve met people who are embattled and dismissive, but when you get to know them, you find that they’re vulnerable – that that hauteur or standoffishiness is because they’re pedaling furiously underneath.
+ - The actor in me would always like to be more dashing, or slimmer, or have nicer hair.
+ - I can’t throw books away. My wife is always telling me to get rid of some.
+ - I try to be fussy about the parts I play. I think that’s quite prudent, it means you’re stretching different muscles, and you’re scaring yourself by doing something which is out of your comfort zone.
+ - I did four or five years in telly, and by the end of it was drained. I was a bit sick of myself. I didn’t feel like an actor anymore. That sounds silly, but when you’re doing a play you’re using different muscles, and it blew all the cobwebs away.
+ - I’ve worried more and more as the years have gone on. The more you’re seen to be doing well, the more stress there is. You feel you ought to consider things more, and be more fussy – there’s further to fall. All these little worries.
+ - It must be odd, being recognisable. I would hate to lose that anonymity. It happened for a while with ‘Spooks.’ No one notices me now.
+ - I would hate not to do a play every couple of years. I think it’s not me.
+ - I think people ought to do what they feel useful at the time. If I do things because I ought to do them, I switch off.
+ - The security comes, as an actor, in knowing that you’re not in control. If you try to control your career, or how people perceive you, you’ll make yourself unhappy, because life doesn’t work like that. So much is luck. It’s much better to let yourself off, to think, ‘There’s nothing I can do.’
+ - I love TV and I love making films and I love doing plays. I feel very lucky to be able to do all three.
+ - I wouldn’t want to leave it so long before doing a play again, I get very stolid and sluggish if I do too much telly.
+ - I don’t feel like a romantic lead; I guess I feel more like a character actor.
+ - It’s a real skill to be able to publicise yourself.
+ - What’s exciting is there’s a curtain that divides the audience from this other world. You want to see behind.
+ - I’d auditioned for the National Youth Theatre and I didn’t get a place and it was terrifying.
+ - As much as I long for a sort of security and consistency sometimes, I do enjoy sort of being busted around. I really don’t know what’s happening sometimes next week, let alone this year.
+ - My vanity is I’m terribly romantic! But being married is lovely.
+ - You’d never play Hamlet if you started worrying about who’s played it before you.
+ - I think it sits quite happily with me, the condition of being an actor. I see some people getting quite eaten up with it, with the insecurities. There are times when I long for continuity and stability, but I also love the idea of not knowing what I’ll be doing next – or even if I’m going to work.
+ - You never know how films are going to do and it is daunting if I think about it.
+ - People like to think that actors are terribly worried about ghosts of other actors in the parts they play. But you just have to get on with it.
+ - Apart from earning an awful lot of money, why would you go to Hollywood?
+ - There’s always a concern as an actor that you’ll be boring unless your character is swinging from a chandelier.
+ - Some British actors are snobby about telly, and I don’t understand that.
+
+29 quotes

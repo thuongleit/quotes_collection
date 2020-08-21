@@ -1,0 +1,23 @@
+ - The thing about people who are truly and malignantly crazy: their real genius is for making the people around them think they themselves are crazy. In military science this is called Psy-Ops, for your info.
+ - There are these two young fish swimming along and they happen to meet an older fish swimming the other way, who nods at them and says ‘Morning, boys. How’s the water?’ And the two young fish swim on for a bit, and then eventually one of them looks over at the other and goes ‘What the hell is water?’
+ - Blind certainty, a close-mindedness that amounts to an imprisonment so total that the prisoner doesn’t even know he’s locked up.
+ - You get to decide what to worship.
+ - The sun like a sneaky keyhole view of hell.
+ - We all suffer alone in the real world; true empathy’s impossible.
+ - Tennis’s beauty’s infinite roots are self-competitive. You compete with your own limits to transcend the self in imagination and execution. Disappear inside the game: break through limits: transcend: improve: win.
+ - Gentlemen, welcome to the world of reality – there is no audience. No one to applaud, to admire. No one to see you. Do you understand? Here is the truth – actual heroism receives no ovation, entertains no one. No one queues up to see it. No one is interested.
+ - We are who people think we are.
+ - Try to let what is unfair teach you.
+ - The really important kind of freedom involves being able truly to care about other people.
+ - There’s an evolutionary imperative why we give a crap about our family and friends. And there’s an evolutionary imperative why we don’t give a crap about anybody else. If we loved all people indiscriminately, we couldn’t function.
+ - It looks like you can write a minimalist piece without much bleeding. And you can. But not a good one.
+ - How totally banal of you to ask what I really mean.
+ - An ad that pretends to be art is – at absolute best – like somebody who smiles warmly at you only because he wants something from you.
+ - I’ve noticed that, while I can’t help but respect and sort of envy the moral nerve of people who truly do not care what others think of them, people like this also make me nervous, and I tend to do my admiring from a safe distance.
+ - I don’t really mean what I’m saying.
+ - Lightfoot’s voice is such a part of the fabric of Canada, I know it almost as well as I know my own voice.
+ - A U. S. of modern A. where the State is not a team or a code, but a sort of sloppy intersection of desires and fears, where the only public consensus a boy must surrender to is the acknowledged primacy of straight-line pursuing this flat and short-sighted idea of personal happiness.
+ - Fiction either moves mountains or it’s boring; it moves mountains or it sits on its ass.
+ - Don’t do what you’re taught to do, do what you love to do.
+
+21 quotes

@@ -1,0 +1,51 @@
+ - I always loved my bangles, I can’t remember a time when I didn’t have a bangle on.
+ - I am a sufferer of endometriosis. I didn’t want any young women to go through what I went through. I thought that people should know about it.
+ - An oil massage, a hot bath, a good night’s sleep, soft smells and music and clothes with soft textures denote sensuality to me.
+ - I know most people use their phones to tell time, but there’s something very romantic and beautiful about a timepiece.
+ - In truth, I am a single mother. But I don’t feel alone at all in parenting my daughter. Krishna has a whole other side of her family who loves her, too. And so Krishna is parented by me, but also by her grandmother and aunts and cousins and uncles and friends.
+ - People always comment about my clothes. They don’t think a fashionable woman can love food and be knowledgeable and actually cook.
+ - Whenever I’m in sync with the trends, it’s always an accident. I still love wearing clothes I’ve had for ten years. I think understated luxury is the chicest thing.
+ - DON’T wear loud clanging bangles at work, it’s disruptive and noisy and your coworkers won’t appreciate it! Bangles should have a gentle wind-chimey tinkle, not the crash bang of a million pots and pans.
+ - I’m not tough. I’m tenacious.
+ - The great thing about living today is that there is this thing called the Interweb, and you can just look up anything.
+ - I love seafood. I’m not a vegetarian but I’m probably a pescetarian.
+ - I have a great career, and I have my daughter. Sio what I don’t have is not as important to as what I do have.
+ - In southern Spain, they made me eat a bull’s testicles. They were really garlicky, which I don’t like. I prefer to take a bull by the horns, not by, um...
+ - Beauty is no accomplishment on its own. It’s what you do with it.
+ - From the simple stringing together of lemon garlands for the goddess Durga, to dividing the prasadam or blessed foods for the children first, I came to associate food not only with feminity, but also with purity and divinity.
+ - One thing that happens when you’re pregnant is that as your stomach starts to stretch. It itches! So I have to keep my belly really lubricated. Every morning, there’s a buttering ceremony after I get out of the shower. It’s really like basting a turkey with body butter.
+ - I’m the kind of girl who thinks about what she’s gonna cook for dinner when she’s finishing her lunch.
+ - My mom was scared of the old Times Square so I was never allowed to go. Now I’m scared of the new Times Square, so I still never go.
+ - I think wine is such a big universe that it’s kind of like food – it’s intimidating to a lot of people, myself included.
+ - I’m an immigrant kid who came to America from India when I was very young and grew up in New York City with a single mom and really was influenced by all of those immigrant cultures bumping up against each other.
+ - I don’t have any stigma attached to my body. When I’m in my own private space, I have very little on.
+ - People are thrown off by someone who looks feminine, but is also strong. It’s not that pretty girls aren’t smart, it’s that women aren’t strong.
+ - I’m not of the American ilk that, you know, your lover needs to be your best friend and know you inside out. I think he should know you well enough to please you. Otherwise, what secret will there be to tell him when you’re ninety?
+ - I never Tweet about my daughter. Never. I just want to be respectful of her privacy. My job as a mom is to know when to open my mouth and when not to.
+ - I’m not attached to things at all. I’m very lucky to have quite a few beautiful things, but if I look back at my life, I was often happiest when I had very little.
+ - Where is it written that a smart woman can’t also be stacked?
+ - I was the first Indian model to have a career in Paris, Milan and New York.
+ - I really like to sometimes go into food detox and eat very simply.
+ - I have great empathy for all the contestants that come on ‘Top Chef,’ whether they go home right away or they make it to the finish line. It’s a very vulnerable position they put themselves in and I feel for them.
+ - I always think, after the second glass of wine, you should be putting something in your stomach.
+ - The best thing you can do for someone is make them a beautiful plate of food. How else can you invade someone’s body without actually touching them?
+ - I’ve always thought the back is one of the most beautiful parts of a woman.
+ - Flowers die and wine gets consumed. Both are lovely. I appreciate both. Wine and roses. I actually had someone bring me a lobe of foie gras once.
+ - Jewelry should not upstage you. I pick one hot point on my body that I’m going to highlight. Let one area do the singing – you don’t want to hear three songs at once.
+ - Part of my job as a food writer is to describe food. So my work on ‘Top Chef,’ I feel, is an extension of that. When we give a criticism to the contestant, we want to make sure we tell them why it’s not working and why it would work if they did it a different way.
+ - I think a great classic watch is the first staple every woman should invest in.
+ - I grew up a vegetarian. Then, because I grew up in the states, I started slowly eating meat. First it was bologna sandwiches, or pepperoni on pizza.
+ - Wine, like food, is so emotional. If you think about it, so much of the courting ritual is surrounded by wine and food. There’s a built-in romance to wine.
+ - I am as omnivorous as it’s possible to be. I always say there’s nothing I won’t eat and nothing I won’t wear.
+ - It doesn’t matter how precisely the onion is cut as long as the person chewing it is happy.
+ - I think eating in itself is the act of great sensuality, so all you have to do is point the camera in the right direction.
+ - I work out all the time! I don’t just sit around and eat burgers whenever I want. Oh, if I could I probably would, but I don’t.
+ - All chefs are like Jewish mothers. They want to feed you and feed you and impress you. It’s an eagerness to please.
+ - During the course of filming ‘Top Chef,’ I gain 15 lbs., so I’m used to needing two dress sizes.
+ - Every city has a Donald Trump; ours is just the Trumpiest.
+ - I’ve always had a fantasy to write a cookbook, because everyone wants to know what a model eats.
+ - I was lucky to have a successful career as a model, but that was just a way to pay off my college loans.
+ - If you like a wine that you drink, now with your phone, it’s so easy. Just take a picture of the label. You learn about it. You learn where it comes from and what the soil is like and why you like it. And that’ll lead you to another wine.
+ - I love clothes, but really I don’t have that much to say about skirts. Before I was writing, I went to fashion shows only when the designer was a good friend and I was there to show support.
+
+49 quotes

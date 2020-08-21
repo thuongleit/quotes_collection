@@ -1,0 +1,32 @@
+ - The problem of good and evil is not the problem of good and evil, but only the problem of evil. In opposition to good there are evil characters, but there are no good characters in opposition to evil. Evil is arguable, but good is not. Therefore the Devil always wins the argument.
+ - We live on the circumference of a hollow circle. We draw the circumference, like spiders, out of ourselves: it is all criticism of criticism.
+ - Until the missing story of ourselves is told, nothing besides told can suffice us: we shall go on quietly craving it.
+ - Truth rings no bells.
+ - Women are strangers in the country of man...
+ - Woman is the symbol to man of the uncleanness of bodily existence, of which he purifies himself by putting her to noble uses. She thus has for him a double, contradictory significance; she is the subject of his bawdry and the subject of his romance.
+ - Appearances do not deceive if there are enough of them.
+ - Poetry is a sleep-maker for that which sits up late in us listening for the footfall of the future on to-day’s doorstep.
+ - My function as a writer is not story-telling but truth-telling: to make things plain.
+ - The object of all religious activity is to mingle the human and the non-human, and the lower gods represent that which is cast back to the human from the non-human – human gods merely, practice-gods who embody the errors which man makes in first conceiving the non-human.
+ - We wait, all, for a story of us that shall reach to where we are. We listen for our own speaking; and we hear much that seems our speaking, yet makes us strange to ourselves.
+ - Ideas are the old-age of art. Artists have to keep young; they must not think too much – thought is death, while art is life. Such was Emile’s viewpoint.
+ - I met God. ‘What,’ he said, ‘you already?’ ‘What,’ I said, ’you still?
+ - Shakespeare alternated between musical surrenders to social prestige and magnificent fits of poetic remorse.
+ - A child should be allowed to take as long as she needs for knowing everything about herself, which is the same as learning to be herself. Even twenty-five years if necessary, or even forever. And it wouldn’t matter if doing things got delayed, because nothing is really important but being oneself.
+ - Every woman must live by some sense of victory over disappointments, and Olympias was not the sort of woman to find compensation in her own powers of self-control and endurance.
+ - In religion is much tiredness of people, a giving over of their doing to Someone Else.
+ - Conversation succeeds conversation, Until there’s nothing left to talk about Except truth, the perennial monologue, And no talker to dispute it but itself.
+ - Every thought sounds like a footfall, Till a thought like a boot kicks down the wall.
+ - Women, ever since there have been women, have had a way of being people.
+ - Evil I had never found satisfactorily placeable as an integral element of the universal, or total, content of existence. Indeed, evil is evil just because there is no logical place for it, no room in reality for it. It is unreal, and yet real as something unreal.
+ - Nature is what you don’t have to trouble about. It looks after itself.
+ - There can be no literary equivalent to truth.
+ - Poetry brings all possible experience to the same degree: a degree in the consciousness beyond which the consciousness itself cannot go.
+ - To tell one comprehensive story of how it has happened that what is is, one which shall hold true, come what may, now-after – a story that whatever comes shall perfectly continue or confirm: such is the ideal motive of religions.
+ - Spiritually, the society we have is the society of men with women present only in adjunctive relation to them, not the society of men and women in reciprocal relation. We do not have the society of human beings.
+ - If what you write is true, it will not be so because of what you are as a writer but because of what you are as a being. There can be no literary equivalent to truth.
+ - All literature is written by the old to teach the young how to express themselves so that they in turn may write literature to teach the old how to express themselves. All literature is written by mentally precocious adolescents and by mentally precocious senescents.
+ - I believe that misconceptions about oneself that one does not correct where possible act as a bad magic.
+ - A religion addresses the longing in us to have that said from which we can go on to speak of next and next things rightly, in their immediate time – the telling of what came first and before done forever.
+
+30 quotes

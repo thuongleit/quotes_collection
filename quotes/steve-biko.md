@@ -1,0 +1,40 @@
+ - Black man, you are on your own.
+ - If one is free at heart, no man-made chains can bind one to servitude.
+ - I’m going to be me as I am, and you can beat me or jail me or even kill me, but I’m not going to be what you want me to be.
+ - It is better to die for an idea that will live, than to live for an idea that will die.
+ - Change the way people think and things will never be the same.
+ - A community is easily divide when their perception of the same thing is different.
+ - People must be aware of their problems in a realistic way. They must be able to analyse their problems and to work out common solutions. In other words a community is easily divided when their perception of the same thing is different.
+ - Being black is not a matter of pigmentation – being black is a reflection of a mental attitude.
+ - If you want to say something radical, you should dress conservative.
+ - I would like to remind the black ministry and indeed all black people that God is not in the habit of coming down from heaven to solve people’s problems on earth.
+ - The power of a movement lies in the fact that it can indeed change the habits of people. This change is not the result of force but of dedication, of moral persuasion.
+ - A people without a positive history is like a vehicle without an engine.
+ - I think the central theme about black society is that it has got elements of a defeated society.
+ - Part of the approach envisaged in bringing about Black Consciousness has to be directed to the past, to seek to rewrite the history of the black man and to produce in it the heroes who form the core of the African background.
+ - The great powers of the world may have done wonders in giving the world an industrial and military look but the great gift still has to come from Africa – giving the world a more human face.
+ - In all fields black consciousness seeks to talk to the black man in a language that is his own.
+ - This is white man’s integration, an integration based on exploitative values.
+ - I am against the fact that a settler minority should impose an entire system of values on an indigenous people.
+ - Apartheid – both petty and grand – is obviously evil. Nothing can justify the arrogant assumption that a clique of foreigners has the right to decide on the lives of a majority.
+ - Black Consciousness therefore takes cognizance of the deliberateness of God’s plan in creating Black people black.
+ - The oneness of community for instance is at the heart of our culture.
+ - The logic behind white domination is to prepare the black man for the subservient role in this country.
+ - Tradition has it that whenever a group of people has tasted the lovely fruits of wealth, security and prestige it begins to find it more comfortable to believe in the obvious lie and accept that it alone is entitled to privilege.
+ - We must realise that prophetic cry of black students: Black man you are on your own!
+ - We believe in the inherent goodness of man.
+ - Apartheid – both petty and grand – is obviously evil.
+ - To a large extent the evil-doers have succeeded in producing at the output end of their machine a kind of black man who is man only in form. This is the extent to which the process of dehumanization has advanced.
+ - The system concedes nothing without demand, for it formulates its very method of operation on the basis that the ignorant will learn to know, the child will grow into an adult and therefore demands will begin to be made. It gears itself to resist demands in whatever way it sees fit.
+ - Sure there are a few good whites just as much as there are a few bad Blacks. However what we are concerned here with is group attitudes and group politics. The exception does not make a lie or the rule – it merely substantiates it.
+ - WOMEN must be at the forefront of nation-building to bring the South African citizenry together and, therefore, develop a whole new ethos of human co-existence.
+ - Black Consciousness is in essence the realization by the black man of the need to rally together with his brothers around the cause of their oppression.
+ - The wealth of the country must eventually be enjoyed by people of the country.
+ - The blacks are tired of standing at the touchlines to witness a game that they should be playing. They want to do things for themselves and all by themselves.
+ - We are experiencing new problems every day and whatever we do adds to the richness of our cultural heritage as long as it has man as its centre.
+ - The essence of politics is to direct oneself to the group which wields power.
+ - In time, we shall be in a position to bestow on South Africa the greatest possible gift – a more human face.
+ - We believe it is the duty of the vanguard political movement which brings change to educate people’s outlook.
+ - Any warning normally implies, even if it is tacit, that there should be changes.
+
+38 quotes

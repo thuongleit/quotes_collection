@@ -1,0 +1,38 @@
+ - Illusion never changed into something real.
+ - Intuition tells me how to live my day, intuition tells me when to walk away.
+ - Enjoy every moment: you never know when things might change.
+ - You’re either too fat or too thin. You just can’t win.
+ - Ignore reality, there’s nothing you can do about it.
+ - You’re only as good as your last record and you could get dropped.
+ - I like singer-songwriters, and I find sad songs comforting rather than depressing. It makes you realise you’re not alone in the world.
+ - I’m all out o faith, this is how I feel. I’m cold and I am shamed lying naked on the floor. Illusions never change into something real. I’m wide awake and I can see the perfect sky is torn. You’re a little late, I’m already torn.
+ - I am such a bad liar. I would like to lie, though.
+ - It’s much easier to write when you’re sad. But you can end up isolated and depressed because you almost need to put yourself in that situation to have that angst to write from.
+ - I know I get cold, cause I can’t leave things well alone. Understand I’m accident prone. Me, I get free every night the moon is mine. But when the morning comes don’t say you love me, don’t say you need me. I really don’t think that’s fair.
+ - I’m such a chameleon. I never get bored.
+ - My kitchen bench is covered with vitamins and protein powders. I go through phases when I’m sure I’m taking too many – but I don’t get sick often.
+ - You feel this pressure that people will take you more seriously if you play guitar, but I’ve decided I’m a singer and that’s enough.
+ - I’m not a nightclub person, but you need to have a social life sometimes.
+ - Saving animals is as simple as choosing synthetic alternatives instead of real fur.
+ - Isolation is a big part of songwriting.
+ - Divorce was very sad, obviously, but now I’ve gotten over it.
+ - I know my music probably isn’t going to matter to the public after I die, but that doesn’t mean I don’t have something to offer.
+ - The success of Torn was a bit too much for me. I took a year off and was still scared to start the second album.
+ - I think where men are credited for being strong, women are divas. I just think it’s such a cop out.
+ - I can understand why some people might look at me and say, ‘What’s she got to be depressed about?’ I get that a lot in Britain, where mental health issues seem to be a big taboo.
+ - When I’m in London, I love to visit Kensington gardens and just sit in the park and read a good book.
+ - Happy songs are very difficult to write. How many truly great upbeat songs are there?
+ - I would have been happy to have waited till I was in my mid- to late-30s before I got married, but you don’t choose when these things happen, and when they do, there’s no doubt in your mind.
+ - It’s good to have to put yourself in someone else’s skin. It’s all-consuming.
+ - If I start feeling down I’ll gorge myself on pasta. That usually does the trick. It’s the Italian blood in me.
+ - I seem to have very polite fans, not fanatical ones.
+ - I was brought up in an environment where my parents expressed their financial concerns in front of their children.
+ - I have never planned to have babies by a certain age.
+ - It’s not very often that I like new bands.
+ - I worry unnecessarily.
+ - I started dancing when I was three, Scottish dancing.
+ - I wasn’t born with a natural talent for songwriting.
+ - I’ve done a lot of partying in my time because I didn’t want to go home and I didn’t know what to do.
+ - I exercise three to four times a week, doing the Tracy Anderson Method, which involves toning and strengthening our small muscle groups.
+
+36 quotes

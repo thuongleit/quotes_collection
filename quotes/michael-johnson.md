@@ -1,0 +1,40 @@
+ - The only one who can beat me is me.
+ - A good traveller is one who knows how to travel with the mind.
+ - Protect your good image from the eyes of negative viewers, who may look at your good appearance with an ugly fiendish eye, and ruin your positive qualities with their chemical infested tongues.
+ - As strong as my legs are, it is my mind that has made me a champion.
+ - Life is often compared to a marathon, but I think it is more like being a sprinter; long stretches of hard work punctuated by brief moments in which we are given the opportunity to perform at our best.
+ - A good mentor offers directions and driving tips from the back seat. You still have to drive the car.
+ - It is important that you strive for humility, but not humiliation, for a cool, level-headed confidence, not a stiff, delusional arrogance.
+ - You can’t control what the other athlete is going to do; you can’t control anything except for your competition and how you execute the race or how you execute the task.
+ - The basis of self-discipline: Don’t allow the edges to blur.
+ - That first peak is the best place to pause and look back, to see if you took the easiest route, to learn the lessons from the first climb. And it is the best place to examine the terrain ahead, to change your plans and goals, to take a deep breath and begin climbing again.
+ - Your problems pale in comparison with those of the millions of people in the world who do not have enough to eat.
+ - I work hard to improve myself as a person – as a father, as a husband, as a manager. I’m always on that mission.
+ - Be who you are in every situation.
+ - The mind is absolutely instrumental in achieving results, even for athletes. Sports psychology is a very small part, but it’s extremely important when you’re winning and losing races by hundredths and even thousandths of a second.
+ - You learn as much from those who have failed as from those who have succeeded.
+ - Along with trustworthiness, consistency is the thing to look for when you surround yourself with people who can help you on your quest.
+ - Don’t shoot for something unattainable – completely outside of your nature or opportunity.
+ - A bird, music and food -desert island items.
+ - When you’re gone I can go running though the house screaming and no one will ever hear me.
+ - I always wanted to be a sprinter.
+ - You owe it to yourself to find your own unorthodox way of succeeding, or sometimes, just surviving.
+ - I’ve had to learn that not everybody does things my way. But I do expect the absolute best of everyone around me, and I’m disappointed when people don’t expect that of themselves.
+ - The only thing you can never change is your values.
+ - Rivalries don’t necessarily mean races being close at major championships. I had a rivalry with Butch Reynolds for many years. I won all the races, but Butch was the world record holder before I came into the sport, he was extremely talented and he was the only other man running 43 seconds.
+ - There’s a complete difference between training for a specific event and goal and just training.
+ - All my life I believed I became an athlete through my own determination, but it’s impossible to think that being descended from slaves hasn’t left an imprint through the generations.
+ - I believe that it is better to learn from the diverse people around us than to try in vain to emulate them, better to be a teacher than a role model. As strong as my legs are, it is my mind that has made me a champion.
+ - They think because I’m small, they can do what they want to do to me. But I’m not weak. If I lower my shoulder and they lower they’re shoulder, they’re going to go down.
+ - How could you look more stupid than to be the guy accepting a bronze medal in gold shoes?
+ - I had already been into my professional career for six years and had not won an individual gold medal at the Olympics. There was a tremendous amount of pressure going into 1996 to get it done.
+ - As an athlete, I’d average four hours a day. It doesn’t sound like a lot when some people say they’re training for 10 hours, but theirs includes lunch, massage and breaks. My four hours was packed with work.
+ - Difficult as it was to hear, slavery has benefited descendants like me – I believe there is a superior athletic gene in us.
+ - I don’t always do a lot of predicting, but, when I get a really strong feeling about something, I will tell people.
+ - As an athlete, I was never really comfortable with being a celebrity.
+ - Examine the opportunities, the challenges you’ve given yourself.
+ - Opting for gold shoes could have been considered downright cocky, but I was confident and never doubted my ability to deliver gold medals to match my shimmering footwear.
+ - You can make goals for family, relationships, anything.
+ - One of the main techniques I used was focusing on the goal and visualising myself competing in the race before the race started.
+
+38 quotes

@@ -1,0 +1,52 @@
+ - I’ve turned down Barcelona, Inter Milan, Juventus and Manchester United to play here. I hope everyone already knows how much it means to me to play for Newcastle United.
+ - Newcastle fans never cease to amaze me. If there was a trophy for best supporters this lot would win it hands down every year.
+ - I would play in any number shirt for Newcastle United, but the No 9 at Newcastle is something very special and I’ve always wanted to wear it. I mentioned it to the manager, he mentioned it to Les and Les has been very kind and given it to me.
+ - This is the better one. It’s identical.
+ - I spend time with my family. I have got two daughters who are too young to know their Dad’s a footballer. They just want to play with their Dad. I like to play golf, too, but apart from that, that’s me, I’m afraid.
+ - The FA Cup means a lot. There is a real passion here for the competition which you don’t get elsewhere. It’s a love affair. It’s part and parcel of living up here. People might think I’m daft, but I’m not wrong; I’d rather win the Cup than the League.
+ - I’ve never wanted to leave. I’m here for the rest of my life, and hopefully after that as well.
+ - You never get fed up scoring goals.
+ - There’s no way the future’s over for Martin Keown, Tony Adams or David Seaman.
+ - I have always said that the best feeling in the world is scoring a goal. Don’t tell my missus that, but it is. When that ball hits the back of the net, it is fantastic.
+ - Basically, a manager is a father figure to 20 or 25 blokes. It’s about trying to get the best out of them and creating team spirit.
+ - If people are going to write bad things about me because it makes news, I can brush it aside because I’ve had this for 10 years. I’m big enough and strong enough to cope with it. It’s what comes with being Alan Shearer.
+ - I’ve got two girls. I like to play golf. Apart from that there’s not a lot goes on in my life. So I am boring, aren’t I?
+ - If you want to have a great party at Wembley, don’t invite the Germans.
+ - Sometimes going in for a hard tackle generates a louder cheer than a great pass.
+ - For me, Paul Scholes has been the best midfield player in the Premier League. By a mile. He has the lot. He scores and creates goals, he can pass the ball, he can head it, and rounds all this off with a competitive streak.
+ - Yes, I do like to be in control. I do like everything to be laid out, to know what I’m doing. I’m very impatient. I like things done yesterday, which is probably a fault of mine. I like things to be neat and tidy and organised. I say what I want and show what I want and I keep things private.
+ - If people don’t like my style, then I can’t do anything about that. I have been like that since I first entered into the game and it hasn’t done me bad in the past, so I am not going to change now.
+ - I always practise penalties, but what people don’t understand is that you can never recreate that pressure situation that you’re under.
+ - Any change of my style, the way I’ve played for 10 years, will not be a drastic one. Yes, I’ve always given as good as I’ve got; as a forward you have to do that because, if you don’t look after yourself, you might find yourself being thrown in a hole and buried.
+ - I’d like to play for Newcastle United before I retire. The club is in my blood.
+ - Defeat is not worth thinking about.
+ - If you take the money away, a lot of the footballers would still be playing football. So, the money has nothing to do with it.
+ - When I go home every night, I can look in the mirror and say I have given 110 per cent for Newcastle United. If people aren’t happy with that, I can’t give any more.
+ - I don’t watch a lot of TV, to be honest. With three kids I have my hands full.
+ - I didn’t watch cartoons, I was too busy playing football.
+ - At times they don’t like you to kick them and they feel you’re not allowed to kick them.
+ - One of the biggest fears of players in a shootout is letting your teammates down.
+ - There was a big possibility that I would have had to leave Newcastle had Ruud Gullit stayed as manager.
+ - No money in the world can buy a white England shirt.
+ - I have never wanted to go abroad before but you can never say never in football.
+ - You have to go out onto the pitch feeling good about yourself. That can give you that extra 30 per cent.
+ - Nothing’s black or white in our country – you’re either brilliant or you’re hopeless.
+ - One accusation you can’t throw at me is that I’ve always done my best.
+ - I still get butterflies when England are playing.
+ - I’m lucky and I appreciate that. I love every minute of every day.
+ - We go there with confidence, but we know there is a very fine line between success and failure in this game.
+ - I made no secret of the fact I’d love to stay in football and to do that, you need badges. I’m starting them and that’s the next step for me – to continue this next season.
+ - Andy Carroll will cause anyone problems and I don’t see a problem in that.
+ - If you ask footballers to pick out the player they most admire, so many of them will pick Paul Scholes. His passing and shooting is of the highest level and he’s the most consistent and naturally gifted player we’ve had for a long, long time.
+ - You only get one chance of an England debut.
+ - Lampard picks his head up and knocks it out to the wing.
+ - I want to be around when Newcastle win a trophy because I want to see this place lift off. It will be one hell of a party for a long time.
+ - First is first. That’s the way I was brought up. Second or third are nowhere.
+ - I’ve got a great life that I really enjoy. But there is something chewing at me inside: that adrenaline rush from football, I miss that.
+ - Football’s not just about scoring goals – it’s about winning.
+ - The managers are getting paid very well by their respective clubs to do a job for their clubs not the country they are working in.
+ - As a kid I always wanted to be a centre-forward. I wanted the buzz and thrill of scoring goals from an early age.
+ - If you ask footballers to pick out the player they most admire, so many of them will pick Paul Scholes.
+ - I like the tag of being the world’s most expensive player. It’s an honour and a privilege.
+
+50 quotes

@@ -1,0 +1,128 @@
+ - The more you learn, the less you fear.
+ - And yet it takes only the smallest pleasure or pain to teach us time’s malleability.
+ - History is that certainty produced at the point where the imperfections of memory meet the inadequacies of documentation.
+ - The more you learn, the less you fear. “Learn” not in the sense of academic study, but in the practical understanding of life.
+ - Yes, of course we were pretentious – what else is youth for?
+ - Memories of childhood were the dreams that stayed with you after you woke.
+ - It strikes me that this may be one of the differences between youth and age: when we are young, we invent different futures for ourselves; when we are old, we invent different pasts for others.
+ - We live, we die, we are remembered, we are forgotten.
+ - The greatest patriotism is to tell your country when it is behaving dishonorably, foolishly, viciously.
+ - This was another of our fears: that Life wouldn’t turn out to be like Literature.
+ - In life, every ending is just the start of another story.
+ - Mystification is simple; clarity is the hardest thing of all.
+ - Women scheme when they are weak, they lie out of fear. Men scheme when they are strong, they lie out of arrogance.
+ - Alice Munro can move characters through time in a way that no other writer can.
+ - Do not imagine that Art is something which is designed to give gentle uplift and self-confidence. Art is not a brassiere. At least, not in the English sense. But do not forget that brassiere is the French word for life-jacket.
+ - Though why should we expect age to mellow us? If it isn’t life’s business to reward merit, why should it be life’s business to give us warm comfortable feelings towards its end? What possible evolutionary purpose could nostalgia serve?
+ - Sometimes I think the purpose of life is to reconcile us to its eventual loss by wearing us down, by proving, however long it takes, that life isn’t all it’s cracked up to be.
+ - We live in time, it bounds us and defines us, and time is supposed to measure history, isn’t it? But if we can’t understand time, can’t grasp its mysteries of pace and progress, what chance do we have with history – even our own small, personal, largely undocumented piece of it?
+ - Because love is the meeting point of truth and magic. Truth, as in photography; magic, as in ballooning.
+ - To be stupid, and selfish, and to have good health are the three requirements for happiness – though if stupidity is lacking, the others are useless.
+ - Global warming is more of a blessing than a curse.
+ - You get towards the end of life – no, not life itself, but of something else: the end of any likelihood of change in that life. You are allowed a long moment of pause, time enough to ask the question: what else have I done wrong?
+ - I am death-fearing. I don’t think I’m morbid. That seems to me a fear of death that goes beyond the rational. Whereas it seems to me to be entirely rational to fear death!
+ - Every love story is a potential grief story.
+ - There is accumulation. There is responsibility. And beyond this there is great unrest.
+ - Books say: She did this because. Life says: She did this. Books are where things are explained to you; life is where things aren’t. I’m not surprised some people prefer books.
+ - Irony – The modern mode: either the devil’s mark or the snorkel of sanity.
+ - Reading is a majority skill but a minority art.
+ - Well, they each seem to do one thing well enough, but fail to realize that literature depends on doing several things well at the same time.
+ - The rainbow in place of the unicorn? Why didn’t God just restore the unicorn? We animals would have been happier with that, instead of a big hint in the sky about God’s magnanimity every time it stopped raining.
+ - I was initially planning to write about grief in terms of Eurydice and the myth thereof. By that point the overall metaphor of height and depth and flat and falling and rising was coming into being in my mind.
+ - I had wanted life not to bother me too much, and had succeeded – and how pitiful that was.
+ - I don’t believe in God, but I miss him.
+ - Life isn’t just addition and subtraction. There’s also the accumulation, the multiplication, of loss, of failure.
+ - Whisky, I find, helps clarity of thought. And reduces pain. It has the additional virtue of making you drunk or, if taken in sufficient quantity, very drunk.
+ - Life seemed even more of a guessing game than usual.
+ - I dreamt that I woke up. It’s the oldest dream of all, and I’ve just had it.
+ - Some of the freckles I once loved are now closer to liver spots. But it’s still the eyes we look at, isn’t it? That’s where we found the other person, and find them still.
+ - The land of embarrassment and breakfast.
+ - May you be ordinary, as the poet once wished the new-born baby.
+ - I hate the way the English have of not being serious about being serious, I really hate it.
+ - That’s one of the central problems of history, isn’t it, sir? The question of subjective versus objective interpretation, the fact that we need to know the history of the historian in order to understand the version that is being put in front of us.
+ - Nature is so exact, it hurts exactly as much as it is worth, so in a way one relishes the pain, I think. If it didn’t matter, it wouldn’t matter.
+ - To look at ourselves from afar, to make the subjective suddenly objective: this gives us a psychic shock.
+ - What happiness is there in just the memory of happiness?
+ - But life never lets you go, does it? You can’t put down life the way you put down a book.
+ - You put together two things that have not been put together before. And the world is changed...
+ - Most of us remember adolescence as a kind of double negative: no longer allowed to be children, we are not yet capable of being adults.
+ - Later on in life, you expect a bit of rest, don’t you? You think you deserve it. I did, anyway. But then you begin to understand that the reward of merit is not life’s business.
+ - History isn’t what happened, history is just what historians tell us.
+ - Women were brought up to believe that men were the answer. They weren’t. They weren’t even one of the questions.
+ - A pier is a disappointed bridge.
+ - Why does the writing make us chase the writer? Why can’t we leave well enough alone? Why aren’t the books enough?
+ - When you’re young you prefer the vulgar months, the fullness of the seasons. As you grow older you learn to like the in-between times, the months that can’t make up their minds. Perhaps it’s a way of admitting that things can’t ever bear the same certainty again.
+ - A couple’s first task, it has always seemed to me, is to solve the problem of breakfast; if this can be worked out amicably, most other difficulties can too.
+ - If you remember your past too well you start blaming your present for it. Look what they did to me, that’s what caused me to be like this, it’s not my fault. Permit me to correct you: it probably is your fault. And kindly spare me the details.
+ - Does history repeat itself, the first time as tragedy, the second time as farce? No, that’s too grand, too considered a process. History just burps, and we taste again that raw-onion sandwich it swallowed centuries ago.
+ - All bad things are exaggerated in the middle of the night. When you lie awake, you only think of bad things.
+ - If you’re that clever you can argue yourself into anything.
+ - Had my life increased, or merely added to itself? There had been addition and subtraction in my life, but how much multiplication?
+ - I’ve always thought you are what you are and you shouldn’t pretend to be anyone else. But Oliver used to correct me and explain that you are whoever it is you’re pretending to be.
+ - Wisdom consists partly in not pretending anymore, in discarding artifice.
+ - Loving humanity means as much, and as little, as loving raindrops, or loving the Milky Way. You say that you love humanity? Are you sure you aren’t treating yourself to easy self-congratulation, seeking approval, making certain you’re on the right side?
+ - I thought of the things that had happened to me over the years, and of how little I had made happen.
+ - Perhaps love is essential because it’s unnecessary.
+ - How rarely do our emotions meet the object they seem to deserve? How hopelessly we signal; how dark the sky; how big the waves. We are all lost at sea, washed between hope and despair, hailing something that may never come to rescue us.
+ - What makes us want to know the worst? Is it that we tire of preferring to know the best? Does curiosity always hurdle self-interest? Or is it, more simply, that wanting to know the worst is love’s favorite perversion.
+ - I have an instinct for survival, for self-preservation.
+ - Reading is a majority skill but a minority art. Yet nothing can replace the exact, complicated, subtle communion between absent author and entranced, present reader.
+ - And that was all the part of it – the way you were obliged to live. You stifled a groan, you lied about your love, you deceived your legal wife, and all in the name of honour. That was the damned paradox of it – in order to behave well, you have to behave badly.
+ - Pride makes us long for a solution to things – a solution, a purpose, a final cause; but the better telescopes become, the more stars appear.
+ - There’s nothing wrong with being a genius who can fascinate the young. Rather, there’s something wrong with the young who can’t be fascinated by a genius.
+ - His air of failure had nothing desperate about it; rather, it seemed to stem from an unresented realisation that he was not cut out for success, and his duty was therefore to ensure only that he failed in the correct and acceptable fashion.
+ - The writer has little control over personal temperament, none over historical moment, and is only partly in charge of his or her own aesthetic.
+ - You lose the world for a glance? Of course you do. That is what the world is for: to lose under the right circunstances.
+ - As I’ve explained to my wife many times, you have to kill your wife or mistress to get on the front page of the papers.
+ - One of the troubles is this: the heart isn’t heart-shaped.
+ - Grief reconfigures time, its length, its texture, its function: one day means no more than the next, so why have they been picked out and given separate names?
+ - History isn’t the lies of the victors, as I once glibly assured Old Joe Hunt; I know that now. It’s more the memories of the survivors, most of whom are neither victorious or defeated.
+ - It’s easy, after all, not to be a writer. Most people aren’t writers, and very little harm comes to them.
+ - Novels tell us the most truth about life: what it is, how we live it, what it might be for, how we enjoy and value it, and how we lose it.
+ - The companionship of dead writers is a wonderful form of live friendship.
+ - I have at times tried to imagine the despair which leads to suicide, attempted to conjure up the slew and slop of darkness in which only death appears as a pinprick of light: in other words, the exact opposite of the normal condition of life.
+ - Iconic Paris tells us: here are our three-star attractions, go thou and marvel. And so we gaze obediently at what we are told to gaze at, without exactly asking why.
+ - You can put it another way, of course; you always can.
+ - Love may not lead where we think or hope, but regardless of outcome it should be a call to seriousness and truth. If it is not that – if it is not moral in its effect – then love is no more than an exaggerated form of pleasure.
+ - To own a certain book – and to choose it without help – is to define yourself.
+ - I know this much: that there is objective time, but also subjective time, the kind you wear on the inside of your wrist, next to where the pulse lies. And this personal time, which is the true time, is measured in your relationship to memory.
+ - There will always be non-readers, bad readers, lazy readers – there always were.
+ - The best life for a writer is the life which helps him write the best books he can.
+ - In an oppressive society the truth-telling nature of literature is of a different order, and sometimes valued more highly than other elements in a work of art.
+ - Most people, in my opinion, steal much of what they are. If they didn’t what poor items they would be.
+ - When we fall in love, we hope – both egotistically and altruistically – that we shall be finally, truly seen: judged and approved. Of course, love does not always bring approval: being seen may just as well lead to a thumbs-down and a season in hell.
+ - Perhaps the world progresses not by maturing, but by being in a permanent state of adolescence, of thrilled discovery.
+ - Do we tend to recall the most important parts of a novel or those that speak most directly to us, the truest lines or the flashiest ones?
+ - Great books are readable anyway. Dickens is readable. Jane Austen is readable. John Updike’s readable. Hawthorne’s readable. It’s a meaningless term. You have to go the very extremes of literature, like Joyce’s “Finnegan’s Wake,” before you get a literary work that literally unreadable.
+ - He didn’t really like travel, of course. He liked the idea of travel, and the memory of travel, but not travel itself.
+ - The writer must be universal in sympathy and an outcast by nature: only then can he see clearly.
+ - Start with the notion that yours is the sole responsibility unless there’s powerful evidence to the contrary.
+ - In 1980, I published my first novel, in the usual swirl of unjustified hope and justified anxiety.
+ - But that’s one advantage of fiction, you can speed up time.
+ - Was it the case that colours dimmed as the eye grew elderly? Or was it rather that in youth your excitement about the world transferred itself onto everything you saw and made it brighter?
+ - I’m a complete democrat in terms of who buys my books.
+ - When I was still quite young I had a complete presentiment of life. It was like the nauseating smell of cooking escaping from a ventilator: you don’t have to have eaten it to know that it would make you throw up.
+ - What is the easiest, the most comfortable thing for a writer to do? To congratulate the society in which he lives: to admire its biceps, applaud its progress, tease it endearingly about its follies.
+ - If these are indeed the spirits of Englishmen and Englishwomen who have passed over into the next world, surely they would know how to form a proper queue?
+ - Often the grind of book promotion wearies you of your own book – though at the same time this frees you from its clutches.
+ - This is what those who haven’t crossed the tropic of grief often fail to understand: the fact that someone is dead may mean that they are not alive, but doesn’t mean that they do not exist.
+ - Very few of my characters are based on people I’ve known. It is too constricting.
+ - I’m a novelist, so I can’t write about ideas unless they’re attached to people.
+ - The best form of government is one that is dying, because that means it’s giving way to something else.
+ - Books are where things are explained to you; life is where things aren’t.
+ - When you are writing fiction your task is to reflect the fullest complications of the world.
+ - Grief seems at first to destroy not just all patterns, but also to destroy a belief that a pattern exists.
+ - Well, to be honest I think I tell less truth when I write journalism than when I write fiction.
+ - Reading and life are not separate but symbiotic. And for this serious task of imaginative discovery and self-discovery, there is and remains one perfect symbol: the printed book.
+ - If a man cannot tell what he wants to do, then he must find out what he ought to do. If desire has become complicated, then hold fast to duty.
+ - Why should anything happen when everything has happened?
+ - We thought we were being mature when we were only being safe. We imagined we were being responsible but were only being cowardly. What we called realism turned out to be a way of avoiding things rather than facing them.
+ - In Britain I’m sometimes regarded as a suspiciously Europeanized writer, who has this rather dubious French influence.
+ - If the writer were more like a reader, he’d be a reader, not a writer. It’s as uncomplicated as that.
+ - Remember the botched brothel-visit in L’Education sentimentale and remember its lesson. Do not participate: happiness lies in the imagination, not the act. Pleasure is found first in anticipation, later in memory.
+ - People in love, it is well known, suffer extreme conceptual delusions, the most common of these being that other people find your condition as thrilling and eye-watering as you do yourselves.
+ - And perhaps it was also the case that, for all a lifetime’s internal struggling, you were finally no more than what others saw you as. That was your nature, whether you liked it or not.
+ - You grew old first not in your own eyes, but in other people’s eyes; then, slowly, you agreed with their opinion of you.
+ - Is any novelist going to recognize the moment when he or she has nothing more to say? It is a brave thing to admit. And since as a professional writer you are full of anxiety anyway, you could easily misread the signs.
+
+126 quotes

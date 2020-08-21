@@ -1,0 +1,23 @@
+ - I don’t really believe in the mystery of cinematography – what happens in the camera is what the cinematographers create and all that nonsense.
+ - I think of filmmaking as a form of communication. Maybe it’s also an art, but that’s for somebody else to decide.
+ - Every shot I have ever made has been a compromise in some way. No image has ever been as good as the one I envisioned in my mind’s eye.
+ - Your whole life informs your eye.
+ - I loved movies ever since I was a kid.
+ - Someone said to me, early on in film school if you can photograph the human face you can photograph anything, because that is the most difficult and most interesting thing to photograph.
+ - If reviewers don’t mention your work, it’s probably better than if they do.
+ - I want a script to affect me in some way. I am usually drawn to character studies, scripts about real people and the world we live in not some fantasy.
+ - The balance of the frame – the way an actor is relating to the space in the frame – is the most important factor in helping the audience feel what the character is thinking.
+ - When I first started, I saw myself shooting documentaries or making documentaries, which is what I did, mostly, for a number of years. So it was quite a surprise how I found myself shooting features. It was like my wildest dreams as a kid collided.
+ - I am concerned that the subtlety is being lost and every film tends to look very contrasty and saturated.
+ - To me if there’s an achievement to lighting and photography in a film it’s because nothing stands out, it all works as a piece. And you feel that these actors are in this situation and the audience is not thrown by a pretty picture or by bad lighting.
+ - I am not a fan of having too much gear.
+ - I do miss the idea of the crew getting together to watch dailies after work. I will usually get selected dailies printed on film especially for the early part of a shoot as HD dailies really don’t tell me much photographically.
+ - If I am creating the shots from scratch I may have to spend more time holding the directors hand and therefore have less time to finesse the shot or the lighting etc. but it really all depends on the project. Some films benefit from their spontaneity.
+ - Maybe that sounds a bit pretentious, but I think life experience is always more important than technical knowledge.
+ - I thought that was a pretty stupid argument, really, because it’s the final product that matters. The look of the film, however it’s done, is still the cinematographer’s vision in my mind. People said the same when color film came in, didn’t they? The world evolves, and image-making evolves.
+ - All I’ve ever wanted to do is take stills of people, or take documentaries about people, and try to express to an audience how somebody lives next door. You know what I mean? Just how similar we all are as individuals.
+ - Partly why I love to operate is that I love to watch an actor within a shot. When you watch a shot, and you know that everything’s come together, I feel I’m the first person watching it. I always get pleasure out of that.
+ - I never really considered film as a career, but I knew I didn’t want to be a builder. So I went to art college, and it just gradually happened.
+ - There are some sequences in films that I think work filmicly, that stand out to me, but thats much more to do with the staging and the cutting and the mood of the thing as a sequence, the way everything comes together.
+
+21 quotes

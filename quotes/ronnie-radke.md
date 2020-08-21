@@ -1,0 +1,27 @@
+ - Karma is real, it balances the universe.
+ - I’m not perfect but I’m learning to be better.
+ - The best measure of success, is how you deal with failure.
+ - I we are born to die and we all die to live, then what’s the point of living life if it just contradicts?
+ - I’m not a vampire but I feel like one.
+ - I’ve been down a long road, but I promise you, it gets better.
+ - Be still my tongue, for i know not what to say; My life is lived in darkness and here i will remain.
+ - You may have won the war, but you will never take my crown.
+ - I am not a monster, I am just a man.
+ - The more you kick me when I’m down, the more it truly helps.
+ - I wrote 90 percent of the record in prison. A lot of people wonder, “How the hell did you do that?” I just pretty much played drums on my legs with my hands and while I did that, I would hum the guitar parts and sing the melodies of the songs.
+ - I think it’s a sacrifice that you have to make, because you lay yourself open for people to accuse and disrespect you. But it’s worth it. It’s worth it because not too many people are too honest anymore.
+ - I’ve been beaten, I’ve been bruised, I was left for dead as well.
+ - I got these questions always running through my head. So many things that I would like to understand.
+ - I feel the madness creeping slowly. Loved by many I’m still lonely.
+ - To whom it may concern, I’m the same.
+ - What really bothers me, what gets me mad, is when people don’t know the story, but then pretend like they know the story. That’s what bothers me. That’s what makes me mad.
+ - I also sing about my mom leaving me a lot – a lot of kids have their moms or dads leave them, so they relate to that. I wear my heart on my sleeve, so I think that’s what the kids love.
+ - All that I’ve learned has faded away.
+ - I have learned of this great force and will never test the boundless energy of what is karma.
+ - Only a handful of people are honest when they sing. A lot of people sing about very vague things, or they’ll sing about someone breaking up with them, but a lot of people don’t go too deep into their past and stuff, because they don’t want it to be let out. I just do it anyway.
+ - I don’t hang out with people that are gonna get me in trouble.
+ - The world will not end. This is ridiculous. I think it’s like 2000. It’s a great trick to do business and earn lots of money because stupid people hoard things. This is a stimulator of the economy.
+ - If I can make it out, anyone can make it out!
+ - I just write from how I feel. As an outlet.
+
+25 quotes

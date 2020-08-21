@@ -1,0 +1,61 @@
+ - Don’t make excuses – make improvements!
+ - I love the confidence that makeup gives me.
+ - Never dull your shine for somebody else.
+ - Beauty’s easy. Modeling is not just about being pretty.
+ - Perfect is boring, human is beautiful.
+ - You can have all the potential in world, but unless you have confidence, you have nothing.
+ - Once you plant seeds of success, your tree will bear fierce fruit.
+ - Flaws are awesome – so, flawsome! I love making up a word.
+ - Take responsiblilty for yourself because no one’s going to take responsibility for you.
+ - Modeling is being a ho, but making it fashion.
+ - When I was a young girl, I lost a lot of weight over one summer – involuntarily – and was just really depressed and sad. There was nothing I could do to gain weight. I would look in the mirror and call myself disgusting every day.
+ - One thing my mom used to tell me was to look to the other side, and know that my present is not going to be everything. So if Im having a bad day, she goes, Just imagine tomorrow. This is going to be over. This is going to be done with.
+ - I’m not ugly, but my beauty is a total creation...
+ - My nutritionist says, ‘If you bite it, write it.’ Writing down everything that you put in your mouth really helps. I don’t count a damn calorie. But when I’m really trying to eat healthy, I write everything down. It really holds me accountable and puts me on a healthier path.
+ - I am totally against plastic surgery. A lot of people think I have breast implants because I have the biggest boobs in the business.
+ - I’ve had my heart broken one too many times.
+ - I kind of like the wind in my face. If it wasn’t there, I don’t know if I would push as hard.
+ - Girls of all kinds can be beautiful...
+ - A lot of young girls think that the opposite of fake is rudeness. And just as ugly as fake is, so is saying whatever is on your mind because it’s the truth.
+ - Girls of all kinds can be beautiful; from the thin, plus-sized, short, very tall, ebony to porcelain-skinned.
+ - Every woman has a story.
+ - Because my hands are rough and wrinkley, they are my least favourite feature. An ex-boyfriend used to call them ‘Freddy Kreuger’ fingers.
+ - My mom never taught me to be waiting for some prince on a white horse to swipe me off my feet.
+ - A smart model is a good model.
+ - Pledge that you will look in the mirror and find the unique beauty in you.
+ - Its so important to understand your good attendance ups your chances of graduating.
+ - Use romantic relationships to grow, not to lose yourself. Keep your priorities in order.
+ - I won’t say if I’m single or dating or married or divorced. There’s boundaries.
+ - A smile is the most important thing you wear.
+ - It was hard to get guys to notice me, period, because I was so skinny and all my friends were curvy. Plus, I used to be very nervous in front of guys.
+ - It was really hurtful to me. I get so much mail from young girls who say, ‘I look up to you, you’re not as skinny as everyone else, I think you’re beautiful.’ So when they say that my body is ‘ugly’ and ‘disgusting,’ what does that make those girls feel like?
+ - I just want you to be yourself. Be a bigger yourself.
+ - I don’t go to the cool, trendy restaurants. I go to either the holes in the wall or the super-fancy restaurants where there are no cool people.
+ - Modeling chose me, I didn’t choose modeling.
+ - I don’t know what to do with my arms. It just makes me feel weird and I feel like people are looking at me and that makes me nervous.
+ - Black women don’t have the same body image problems as white women. They are proud of their bodies.
+ - Hotness to me is scary. I don’t want to be hot. I just want to be a staple. I want to be something that’s trusted.
+ - I look at myself and pick out the things I don’t like. No matter how much I work out, I never get muscle tone in my butt and hip area.
+ - I feel more comfortable when I’m lighter – I sleep better, I snore less, I have more endurance when I work out, my arms look better.
+ - Love is an excuse to be stupid.
+ - Keep in mind that we should always thank those who hurt us, especially those who did so bad we are forced to transform. They risk the eternal verdict of going to hell just to make us better than who we are.
+ - I think every woman would want to do something about their cellulite!
+ - You can’t model for the rest of your life, so it is important to diversify your career.
+ - As a model, you’re so used to taking your clothes off that you just don’t care.
+ - When I am full, I stop eating.
+ - I don’t like the label ‘plus-size’ – I call it ‘fiercely real.’ On ‘Top Model,’ we call it fiercely real. I don’t want to use the term ‘plus-size,’ because, to me, what the hell is that? It just doesn’t have a positive connotation to it. I tend to not use it.
+ - I close my eyes while driving and just sing along. I always open them again in time.
+ - I actually don’t miss modeling and I think the reason why is because of America’s Next Top Model.
+ - I liked college guys but they could tell I was just a skinny girl.
+ - In high school I definitely had a clique of friends. And what I loved about it was that we were healthy and good girls.
+ - Love every part of yourself. Even the things that frustrate you. They make you who you are!
+ - I always feel great when I don’t have clothes on.
+ - There’s always going to be dreams and goals I have, but I never really tell people what they are.
+ - I made my living being 20 or 30 pounds heavier than the average model. And that’s where I got famous.
+ - I wanted to be a film and television writer and producer.
+ - I’m not sure exactly how gossiping about my life with my audience really helps them.
+ - I think it makes women feel better to find fault with other women. I do that, too.
+ - I think I’m too young to be a mogul. I think I’m too young for that.
+ - I don’t like looking at awards everyday because I feel like they can make you lazy. So, I give them to my Mom and let her look at it everyday. They are symbols of the hard work she put into me. Her sacrifices allowed me and my team to win those awards. But I don’t look at any awards everyday.
+
+59 quotes

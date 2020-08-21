@@ -1,0 +1,43 @@
+ - You change the world by being yourself. ~~Yoko Ono
+ - Don’t chase people. Be yourself, do your own thing and work hard. The right people – the ones who really belong in your life – will come to you. And Stay. ~~Will Smith
+ - Be different; be unique; be yourself. ~~Christina Grimmie
+ - Just be yourself man, be proud of who you are. ~~Eminem
+ - If they don’t like you for being yourself, be yourself even more. ~~Taylor Swift
+ - Remember it’s OK to be yourself. ~~Richard Branson
+ - The strongest force in the universe is a human being living consistently with his identity. ~~Tony Robbins
+ - Never apologize for being yourself. ~~Paulo Coelho
+ - Do your thing and don’t care if they like it. ~~Tina Fey
+ - Be yourself, no matter what they say. ~~Sting
+ - No matter what happens, always be yourself. ~~Dale Carnegie
+ - Find out who you are and do it on purpose. ~~Dolly Parton
+ - Conformity is the jailer of freedom and the enemy of growth. ~~John F. Kennedy
+ - About all you can do in life is be who you are. Some people will love you for you. Most will love you for what you can do for them, and some won’t like you at all. ~~Rita Mae Brown
+ - No matter what, always be yourself! ~~Greyson Chance
+ - If you enter this world knowing you are loved and you leave this world knowing the same, then everything that happens in between can be dealt with. ~~Michael Jackson
+ - The privilege of a lifetime is being who you are. ~~Joseph Campbell
+ - Do not fear to be eccentric in opinion, for every opinion now accepted was once eccentric. ~~Bertrand Russell
+ - The Ego, however, is not who you really are. The ego is your self-image; it is your social mask; it is the role you are playing. Your social mask thrives on approval. It wants control, and it is sustained by power, because it lives in fear. ~~Deepak Chopra
+ - You are a Divine creation, a Being of Light who showed up here as a human being at the exact moment you were supposed to. You are the Beloved, a miracle, a part of the eternal perfection. ~~Wayne W. Dyer
+ - Wanting to be someone else is a waste of the person you are. ~~Kurt Cobain
+ - You don’t have to change who you are, you have to become more of who you are. ~~Sally Hogshead
+ - We have all a better guide in ourselves, if we would attend to it, than any other person can be. ~~Jane Austen
+ - The soul that is within me no man can degrade. ~~Frederick Douglass
+ - We must not allow other people’s limited perceptions to define us. ~~Virginia Satir
+ - Have fun, be yourself, enjoy life and stay positive. ~~Tatiana Maslany
+ - Always be yourself, unless you can be Batman, always be Batman. ~~Andy Biersack
+ - In a world where you can be anything, be yourself. ~~Ashley Purdy
+ - Be yourself. If you try to be someone else, it won’t work. Whatever you do, you are not going to make everyone happy. ~~Kimi Raikkonen
+ - Never be afraid to stop traffic. ~~Iris Apfel
+ - That which makes us DIFFERENT, will make a DIFFERENCE in the world some day. Be Yourself. ~~Tom Krause
+ - To help yourself, you must be yourself. Be the best that you can be. When you make a mistake, learn from it, pick yourself up and move on. ~~Dave Pelzer
+ - You’ve got to follow your passion. You’ve got to figure out what it is you love – who you really are. And have the courage to do that. I believe that the only courage anybody ever needs is the courage to follow your own dreams. ~~Oprah Winfrey
+ - It’s always important to be yourself. ~~Leighton Meester
+ - Never apologize for showing feeling. When you do so, you apologize for the truth. ~~Benjamin Disraeli
+ - The only one who can make you give up is yourself. ~~Sidney Sheldon
+ - Know, first, who you are, and then adorn yourself accordingly. ~~Epictetus
+ - We must not allow the clock and the calendar to blind us to the fact that each moment of life is a miracle and mystery. ~~H. G. Wells
+ - If God had wanted me otherwise, He would have created me otherwise. ~~Johann Wolfgang von Goethe
+ - There is only one you for all time. Fearlessly be yourself. ~~Anthony Rapp
+ - To be nobody but yourself in a world which is doing its best, night and day, to make you everybody else means to fight the hardest battle which any human being can fight; and never stop fighting. ~~E.E. Cummings
+
+41 quotes

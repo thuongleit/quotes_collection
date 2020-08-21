@@ -1,0 +1,27 @@
+ - Actually, I take it as a compliment. Diva is a derivative of divine. That’s quite a title to carry around.
+ - The way the world underestimates me will be my greatest weapon.
+ - It’s so funny how my name has always been such a big deal. When I was growing up, my family was always moving. I had to meet new people all the time. And they’d laugh.
+ - Sometimes when you play a character, you can feel it in your body. And I felt like I had characteristics of my dog: the way Webster moves, the way he holds his head. I kind of adapted it into this part unconsciously.
+ - I don’t see it, but I’m flattered nonetheless. To look like Michelle Pfeiffer is quite nice.
+ - I’m close with my parents. I have a lot of acquaintances, but my very good close friends are few I can count my very good friends on one hand. And that’s how I like it to be.
+ - What I say now is that the way the world underestimates me will be my greatest weapon. People pat me on the head, and I go to myself, oh, and aren’t they going to be surprised.
+ - Whenever you move, I think you lose your history.
+ - But I don’t like to, tell people how old I am. I like that to be a mystery.
+ - I’m Fasinated by women who aren’t making a great impression on people. I think there’s probably something there that is more than meets the eye.
+ - No, I am who I am. Im not going to change for anybody.
+ - I think that the character that I’m playing now is so fundamentally different than Ally that I haven’t I haven’t felt like I had to worry about it at all. But I definitely wanted to make a different choice.
+ - Well, I don’t think I’ve ever consciously come up with tricks and tools to, kind of, hide. I do think I’m a bit more vigilant, in terms of safety issues and things. And sometimes it is kind of nice to try to hold onto your anonymity.
+ - Every year you work in Hollywood takes a year off your soul.
+ - Just remember, when you’re with me you’re not the strangest person in the room. Go ahead, get weird on me.
+ - Whenever I get depressed, I raise my hemlines. If things don’t change, I am bound to be arrested.
+ - I’ve been doing a lot of hiking, which I love.
+ - So people think I’m lying about my age all the time? It’s the records that are wrong!
+ - So people think I’m lying about my age all the time? It’s the records that are wrong. I’ve never told anyone how old I am. The minute they ask me, I say ‘That’s none of your business.’ So that means I’ve never once lied about my age. Now that’s true!
+ - I like to hike with my dog, Webster. It helps clear my mind.
+ - I don’t watch the show – only bits and pieces of all of them. The only one I sat through was the pilot.
+ - I think, on a frame like mine, if I lose a few pounds, it makes a big difference. I hated every bit of attention on my weight and size. Even now, I can’t put into words what exactly happened.
+ - A lot of the tabloid stories are written so well, they’re very clever and very funny. But you have to focus on what’s really important and not read them – don’t dive into it and don’t get caught up in it.
+ - And when I first came out from New York, I hadn’t driven in a long time. Now I’m like Joe Speedster.
+ - I’ve had a couple of long relationships. And I’ve had a couple of shorter relationships.
+
+25 quotes

@@ -1,0 +1,45 @@
+ - To forgive is wisdom, to forget is genius.
+ - No honest hardworking official likes to see good money disappearing into the hands of the Treasury at the end of the financial year.
+ - All art is bad, but modern art is the worst.
+ - It is the tragedy of the world that no one knows what he doesn’t know – and the less a man knows, the more sure he is that he knows everything.
+ - The most effective teacher will always be biased, for the chief force in teaching is confidence and enthusiasm.
+ - To forgive is wisdom, to forget is genius. And easier. Because it’s true. It’s a new world every heart beat.
+ - Reality is a narrow little house which becomes a prison to those who can’t get out of it.
+ - Love doesn’t grow on trees like apples in Eden – it’s something you have to make. And you must use your imagination too...
+ - I look upon life as a gift from God. I did nothing to earn it. Now that the time is coming to give it back, I have no right to complain.
+ - The fear of hell, the punishment of sin, how the modern parent revolts from such teaching. Yet I will assert that far from doing us children harm, it was a sure foundation to the world of our confidence, a master girder in our palace of delight.
+ - The principal fact of life is the free mind.
+ - The will is never free – it is always attached to an object, a purpose. It is simply the engine in the car – it can’t steer.
+ - Nothing like poetry when you lie awake at night. It keeps the old brain limber. It washes away the mud and sand that keeps on blocking up the bends. Like waves to make the pebbles dance on my old floors. And turn them into rubies and jacinths; or at any rate, good imitations.
+ - I write the big scenes first, that is, the scenes that carry the meaning of the book, the emotional experience.
+ - I had come at last and my heart was beating again strongly to a heart that could not know despair because it forgot itself in the duty of its love.
+ - People don’t use their eyes. They never see a bird, they see a sparrow. They never see a tree, they see a birch. They see concepts.
+ - No one can estimate the power of authority among poor and uneducated people in a world whose problems confuse even the wisest.
+ - It was as dark as the inside of a cabinet minister.
+ - A foul-mouthed oaf, a drunken laborer lying in a drain, a beaten wife with blackened eyes and torn clothes, cannot be made romantic to a child who sees how other children suffer from bad-tempered parents, from drunken fathers to termagant mothers.
+ - Old men when they begin to hear the last trumpet, on the morning breeze, often have a kind of absent-minded smile; like people listening. And their smiles are just politeness.
+ - Remember I’m an artist. And you know what that means in a court of law. Next worst to an actress.
+ - I had from childhood not only the experience of love and truth common to all family life, but the idea of them embodied in the person of Jesus, a picture always present to our imagination as well as our feelings.
+ - The concept, the label, is perpetually hiding from us all the nature of the real.
+ - A perpetually new and lively world, but a dangerous one, full of tragedy and injustice.
+ - Funeral expenses are the curse of the poor everywhere on earth, they are wasteful and unnecessary, they are the price of foolish ostentation and a display that is less an evidence of grief than a vulgar travesty of those pompous obsequies where no grief is.
+ - Life would die without poets, and democracy must have its spellbinders.
+ - A perfect God is the creation of a conceited man.
+ - A friend of mine tells me that a Beethoven symphony can solve for him a problem of conduct. I’ve no doubt that it does so simply by giving him a sense of the tragedy and the greatness of human destiny, which makes his personal anxieties seem small, which throws them into a new proportion.
+ - Plantie is a very strong Protestant, that is to say, he’s against all churches, especially the Protestant: and he thinks a lot of Buddha, Karma and Confucius. He is also a bit of an anarchist and three or four years ago he took up Einstein and vitamins.
+ - A world in everlasting conflict between the new idea and the old allegiances, new arts and new inventions against the old establishment.
+ - For the essential thing about the work of art is that it is work, and very hard work too.
+ - God is a character, a real and consistent being, or He is nothing. If God did a miracle He would deny His own nature and the universe would simply blow up, vanish, become nothing.
+ - Where can one find a profounder desolation than in the poor child who has lost its mother?
+ - An old mans memories, like his bones, grow sharp with age and show their true shapes.
+ - When a woman gets the idea of justice, there’s no teaching her any sense.
+ - Throughout the play everything possible was done to show the virtue, innocence and helplessness of the poor, and the abandoned cruelty, the heartless self-indulgence of the rich.
+ - Of all things I find most unbearable is the injustice of one generation to another.
+ - Religion is organized to satisfy and guide the soul – politics does the same thing for the body.
+ - Sara could commit adultery at one end and weep for her sins at the other, and enjoy both operations at once.
+ - A novel should be an experience and convey an emotional truth rather than arguments.
+ - Politics is like navigation in a sea without charts, and wise men live the lives of pilgrims.
+ - No doubt any connoisseur, any collector, some bored old millionaire when he shows off his treasures, is seeking in your praise the resurrection and the life.
+ - What is it in the actor, the stage, that casts so powerful a spell on the young imagination?
+
+43 quotes

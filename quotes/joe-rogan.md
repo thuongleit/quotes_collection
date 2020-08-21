@@ -1,0 +1,122 @@
+ - Live your life like you’re the hero in your movie.
+ - If you ever start taking things too seriously, just remember that we are talking monkeys on an organic spaceship flying through the universe.
+ - There’s a direct correlation between positive energy and positive results.
+ - Build confidence and momentum with each good decision you make from here on out and choose to be inspired.
+ - Choose To Be Inspired.
+ - The Universe rewards calculated risk and passion.
+ - Greatness and madness are next door neighbours; and they borrow each other’s sugar. You don’t get there without the other.
+ - Aspire to be the man you pretend to be when you’re trying to get laid.
+ - Life is strange. You keep moving and keep growing. Before you know it, you look back and think, “What was that?”
+ - One of the most fascinating lessons I’ve absorbed about life is that the struggle is good.
+ - I realized a long time ago that instead of being jealous you can be inspired and appreciative. It carries more energy to you.
+ - Excellence in anything increases your potential in everything.
+ - The time you spend hating on someone robs you of your own time. You are literally hating on yourself and you don’t even realize it.
+ - That’s my only goal. Surround myself with funny people, and make sure everyone has a good time and works hard.
+ - To really appreciate life you got to know you’re going to die.
+ - The people I know that have the hardest time keeping it together emotionally are people that don’t workout.
+ - The key to happiness doesn’t lay in numbers in a bank account but in the way we make others feel.
+ - By putting yourself in that intense form of stress, it makes regular life more peaceful.
+ - Faith itself is a horrible mechanism that stunts the growth of ideas. It also stunts the act of questioning, and it does this by pushing the idea that you have to have faith – and that nothing has to be proven.
+ - A unicorn is a donkey from the future.
+ - Jiu-Jitsu has been one of the most valuable tools I’ve ever had in my life.
+ - I always try to look at conflicts from as many different angles as is humanly possible, and in a lot of ways there is no one answer.
+ - There’s a confidence and a mental toughness that comes from the very highest level of competition, whatever the sport is. Whether it’s boxing or wrestling, or whatever.
+ - If life wasn’t real it would be the craziest psychedelic trip ever.
+ - We have to start treating each other as if we are treating ourselves living another life.
+ - So instead of investing your time in a passion, you’ve sold your life to work for an uncaring machine that doesn’t understand you. That’s the problem with our society. And what’s the reward? Go home and get a big TV.
+ - When someone comes along and expresses him or herself as freely as they think, people flock to it. They enjoy it.
+ - I see martial arts as moving forms of meditation. When you’re sparring or drilling techniques, you can’t think of anything else.
+ - Martial arts are a vehicle for developing your human potential.
+ - If you are the greatest, why would you go around talking about it?
+ - When a ball goes into a net it only means something because we decided it means something. When somebody punches somebody in the face it always means something.
+ - If you haven’t peed the bed, you haven’t taken enough chances.
+ - Every single religion that has ever been on the face of the Earth, ever, is a cult. That’s all they are.
+ - The people who could most benefit from the self-reflective ego-dissolving qualities of cannabis are the ones that want it to be illegal.
+ - I want to make sure that everything that I’m creating, I’m creating it so other people get enjoyment out of it. And that’s the reward that you get for that.
+ - Never stay in a bad marriage, and don’t hang around with psycho coke fiends.
+ - I think it would do a lot of people good just to realize how vulnerable they are.
+ - For many people the reason why they’re idiots is not necessarily that their brain doesn’t work well, it’s that they got in a terrible pattern.
+ - You can’t measure what’s inside a man’s heart.
+ - I’ll go to church with anyone who’s willing to smoke pot and look through a telescope with me.
+ - This country has a mental health problem disguised as a gun problem, and a tyranny problem disguised as a security problem.
+ - It’s a very strange thing when you make nature illegal.
+ - In order to be truly great at something you have to give into a certain amount of madness.
+ - Reality really is theater. There’s no other way to describe it. It’s all so nonsensical, ridiculous and chaotic.
+ - The only time I commit to conspiracy theories is when something way retarded happens. Like Lee Harvey Oswald acting alone.
+ - Teaching someone that doesn’t know something forces you to think about almost every single aspect of it, including parts of it that you could sort of take for granted.
+ - People for the most part can smell lies.
+ - If you attach your mind to any ideology, you’re going to be on a road, and that road may or may not lead you in a good direction. But you’re gonna stay on that road because you are attached to an ideology. It could be a terrible road, but you stick with it regardless of rational thinking.
+ - The planet’s spinning a thousand miles an hour around this gigantic nuclear explosion while these people roll these machines with rubber tires over this hard surface that we’ve laid down over the planet so that we can easily move ourselves back and forth.
+ - I’m afraid of heights. Not unreasonably, but rationally afraid of heights. I think everyone is.
+ - The sensory deprivation chamber has been the most important tool that I’ve ever used for developing my mind.
+ - There’s a never-ending ocean of techniques out there.
+ - After this whole acting thing is over and done, you eventually have to be human. Some people are never human. It’s very weird.
+ - Maybe we can combine 2 things that everybody loves. Helping out the poor and blow jobs.
+ - The two things I understand best are stand-up comedy and martial arts. And those things require an ultimate grasp of the truth. You have to be objective about your skills and abilities to compete in both.
+ - I don’t really like actors. Actors are like terrible comedians with no punch lines. It’s all about them. They talk about themselves all the time. They bore the sh – t out of you.
+ - When women go to see men strip, we never accuse you of hating men.
+ - Have you ever talked to someone, and you’re not even really talking to them? Actors are the worst for that.
+ - I’m a nightclub comic. That’s what I do. I work in the clubs uncensored because my mind is uncensored, and those are the thoughts that I have. I do the kind of comedy that I would enjoy seeing.
+ - If you can lie, you can act, and if you can lie to crazy girlfriends, you can act under pressure.
+ - One of the great things about Houston is that they police themselves. It’s the way Boston was in the ’80s. No hacks or thieves are tolerated in the community, and that’s HUGE.
+ - Having the privilege of sitting down and having 3 hour long uninterrupted conversations with hundreds of brilliant people is an awesome perspective enhancer.
+ - My company is called Talking Monkey, Inc. It’s because that’s what I think all people are: talking monkeys.
+ - On my left knee I have a long scar from an ACL operation. I’ve had both knees reconstructed.
+ - You’re just part of the soup of the universe, so just try to enjoy what’s good about it.
+ - It’s painful for me to watch someone who isn’t funny. It’s horrifying to sit in the back and watch some guy who just totally sucks.
+ - Most of my bits are long stream-of-consciousness- type things, and when I’m doing them onstage, other places to take the theme or idea will hit me, and I just go with it.
+ - The comics I hate are thieves. Nothing’s more disgusting than a guy who steals another person’s ideas and tries to claim them as his own.
+ - You could smell my ass from mars.
+ - People are scared man, they’re scared of the void.
+ - If the world was an etch-a-sketch, glaciers are the big shake.
+ - I never want to compromise my act just to get a laugh.
+ - To me, comedy is a great occupation because I don’t really worry that much about what other people think of me.
+ - If Tyson Griffin was a girl, I’d say he has a badonkadonk.
+ - Your body’s really only meant to compete at the highest levels of combat sports for a few years.
+ - I really feel like it’s a travesty to make a child famous. I really do.
+ - I had a sense of who I was before I got famous.
+ - The mind is the most important thing of the big picture and no one has a stronger mindset than amateur wrestlers.
+ - If someone plays a brooding actor in a film, people think they’re brooding all the time.
+ - Phil Hartman was brilliant, and Dave Foley is a really funny guy. Phil Hartman was actually even funnier offstage than he was onstage because he would say nasty things. Dave Foley’s very funny, very witty guy, very quick.
+ - Richard Pryor is, in my mind, the most honest comedian. He bared his soul to people. I think that’s why everybody loved him so much.
+ - It never hurt Lenny Bruce’s career to get arrested for swearing. It did back in the time, but he broke those doors down by doing the stuff that he believed in.
+ - I had a great time on News Radio, I got to make tons of money in relative obscurity and learn a lot about the TV biz and work on my standup act constantly. It was a dream gig.
+ - It’s impossible to measure the type of mental strength and determination that’s required to be an elite wrestler.
+ - The Comedy Store in LA, it’s a really loose room and it’s really dark and creepy and a great place to explore your own thoughts onstage.
+ - I love existing in pre big bang conditions.
+ - Comedy is really not like any other art form in that it’s very specialized and varied in it’s content, but generic in it’s title.
+ - I do cagefight commentary in my spare time.
+ - I read the things that scientists have figured out, and apply what they say is beneficial, but at the end of the day I’m the wrong person to get unchallenged nutritional advice from.
+ - So many times I’ve done a CD, and then the week after I record it, I’ve got this new tagline that’s killer. And it makes the whole bit better. It happens all the time. But that’s just the process of comedy.
+ - Omigawa is moving forward like a karate robot.
+ - I’m a huge Groucho fan. There were some great comic minds that would transfer into any generation, and Groucho is certainly one of them.
+ - My act is so completely and totally uncensored that the only way I could really pull it off is if I treat the audience like they’re my best friends.
+ - Because I have a girlfriend, I try and take the straight and narrow path, which is good because it prevents VD.
+ - If I could make the same amount of money doing standup it would be no contest. The problem is that if you do make that kind of money doing standup, it’s not in clubs, it’s in big auditoriums and large venues, and I really think something is lost when you do standup for a big crowd.
+ - The misconception is that standup comics are always on. I don’t know any really funny comics that are annoying and constantly trying to be funny all the time.
+ - Houston Alexander is for real!
+ - I never in my wildest imagination dreamed that I would somehow become a sports commentator.
+ - If I could, I would live in Houston, and I would encourage any comic starting out looking for a good place to develop to move there.
+ - I really never had any ambitions to be a standup comic. I was talked into it by guys that I used to work out with.
+ - What’s interesting about science is that we’re constantly discovering new things about the universe, about ourselves, about our bodies, about diseases, about the possibilities of the future. It’s amazing. Science is one of the coolest things about being a human being – without a doubt.
+ - It’s been one of the most important tools for me in personal growth for understanding myself, how I am, and what effect I do have on other people.
+ - Stand-up is still my favorite, but the podcast is a close second. It’s so fun, and it’s given me the oppor-tunity to have three-hour conversations with people I wouldn’t have otherwise been able to talk to. When I talked to Maynard Keenan from Tool, I almost couldn’t believe it was happening.
+ - When you snatch little pieces of other people’s lives and try to palm them off as your own, that’s more disgusting than anything. Robin Williams is a huge thief. Denis Leary is a huge thief. His whole stand-up career is based on Bill Hicks, a brilliant guy who died years ago.
+ - I’ve been involved in mixed martial arts since 1997 when I first started working for the UFC.
+ - Houston people are way cool. They’re smart, they know how to have a good time, and they have the hottest chicks on the planet there.
+ - I’ve done jiujitsu a huge chunk of my life, and I try to spend a lot of time educating people on the nuances, the subtleness of the ground game. It’s a big part of mixed martial arts.
+ - The audience changes every night. You’re the same person. You have to speak your mind and do the stuff that you think is funny and makes you laugh.
+ - People say you can abuse marijuana. You can abuse cheeseburgers. Does that mean we should close Burger Kings.
+ - The best way to pursue any discipline is the martial art way.
+ - Apartment living is tough action. Just the whole idea that you share a washer and dryer always freaked me out.
+ - But it’s hard for a chick to do comedy. It’s not as open for them.
+ - People for the most part can smell lies, at least I thought that until I saw audiences applaud at Carlos Mencia.
+ - A lot of times, you beat a person who beat a person who can beat you. I mean, it doesn’t make any sense.
+ - I had seen movies before that that had made me laugh, but I had never seen anything even remotely close to as funny as Richard Pryor was, just standing there talking.
+ - Someone else’s success does not equal a failure for you.
+ - Any comic like myself owes everything he has to Lenny Bruce. He was the originator. The godfather of uncensored American stand-up is clearly Lenny Bruce.
+ - People love to see people fall.
+ - I’ve been inspired by a shitload of people in my life so if there’s ever anybody that I can inspire, to me that’s a huge gift. To be able to turn that back around.
+ - Being a celebrity or anything else where you’re really ambitious, it’s really a game to see how successful you can get.
+
+120 quotes

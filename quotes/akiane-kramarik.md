@@ -1,0 +1,55 @@
+ - I don’t belong to any denomination or religion, I just belong to God.
+ - I am self-taught. In other words, God is my teacher.
+ - Past is deaf. Future is mute. Present is blind.
+ - When we feel sad, all we need to do is to count our blessings, no matter how few we notice, so we can feel grateful for what we have been given. Sadness soon disappears and, in return, we get inspired to bless others.
+ - Everybody needs time to reflect and contemplate, and the most inspirational and peaceful place to do so is in nature.
+ - With so many scientific achievements we know so little of where we came from and where we are going. But we know even less of the most important discovery of all – Love. Only love can accept our differences as we journey through life. And only love can allow space for our growth.
+ - Miracle is a misunderstood reality.
+ - Portals of divinity are everywhere. I believe that children may enter these divine portals easier, because they are seeking for answers in the purest way.
+ - Those that expose themselves as knowing the truth, lose the battle of innocence and humility and eventually pull a trigger at the universe. Wisdom chooses the unknown to be its reason.
+ - Life is precious. We should not take anything for granted. Living every moment as if it was our first and last is a genuine life of gratitude, acceptance and wisdom.
+ - An illusion can never go faster than the speed limit of reality.
+ - We chase gravity of the micro world, but after leaving its world we try to perfect the laws here that do not exist there.
+ - If we experienced life through the eyes of a child, everything would be magical and extraordinary. Let our curiosity, adventure and wonder of life never end.
+ - When we cannot look around and explain anything we are the quantum world.
+ - I always knew I was a dust. But I never knew I was also a universe.
+ - How much does the universe weigh, when it fasts for infinity?
+ - No matter what happens around us, or to us, through love, our soul reaches immortality, conquering all dimensions and all destinies.
+ - I really love sharing my gift with others. At the same time, I’m just a normal kid having fun and that’s what life is all about-having fun at the same time as helping people.
+ - I believe everyone should have an opportunity to search for truth their own way. Humility, peace, child-like enthusiasm, acceptance, and sincerity is the true infinity engine!
+ - I pray and wait for an answer in pictures, words or ideas.
+ - We are all ONE, no matter in what form, space or time. As ONE we can change the world if we start changing ourselves.
+ - The tree of life for me is a symbol of abundance and eternal life.
+ - Wisdom chooses the unknown to be its reason.
+ - I have been blessed by God. And if I’m blessed, there is one reason and one reason only, and that is to help others.
+ - Joy is what we all seek. It is an energy more powerful than food. But without love we can not feel true joy.
+ - The art of life is loving and listening to one another.
+ - The most important thing in this world is faith. Without faith you cannot communicate with God.
+ - Secret to time is beyond our reason.
+ - I broke down all conclusions into illusions and confusions.
+ - I define spirituality as a search for love, beauty, happiness and wisdom. Spirituality is a journey that we never finish.
+ - Everyone has a watched life. Everyone is both the observer and the observed.
+ - During a race where everyone holds their own truth, the finish line is a surprise.
+ - Beauty and inspiration can be found in any natural place of the earth.
+ - There’s so much negativity in the media.
+ - We cannot complain to the possibility.
+ - I do not condemn any personal choices for intimate relationships. Love is love. I detest only the violence and trauma that any self-centered conduct can cause to others.
+ - Behind each door we shake is a reality.
+ - Before pride waves a white flag, it waves all other colors.
+ - A message from a flower: “Do not pick me. I want to live”.
+ - True passions do not deprive love.
+ - Indifference is a quarantined difference.
+ - Hallucination is a raw climb to a dead end.
+ - I wish that people could love more.
+ - So much time is spent on belief. So little time is spent on love!
+ - A fermented mind – according to nothing, we are something.
+ - No supernatural can exist for the mankind that does not want to believe it.
+ - Many imitate limits, not unlimited potentials.
+ - We cannot teach a flower how to grow, we can only learn from it.
+ - I really like working by myself without any distractions, learning from my own mistakes.
+ - We hear inconceivable, but cannot see the intangible.
+ - To have a future we have to live and leave the present.
+ - Just as you commit to this life when it commits to leaving you.
+ - The pride never leads, never submits, and never leaves.
+
+53 quotes

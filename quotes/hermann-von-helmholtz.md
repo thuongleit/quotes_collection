@@ -1,0 +1,23 @@
+ - Black is real sensation, even if it is produced by entire absence of light. The sensation of black is distinctly different from the lack of all sensations.
+ - Music stands in a much closer connection with pure sensation than any of the other arts.
+ - In speaking of the work of machines and of natural forces we must, of course, in this comparison eliminate anything in which activity of intelligence comes into play. The latter is also capable of the hard and intense work of thinking, which tries a man just as muscular exertion does.
+ - Whoever, in the pursuit of science, seeks after immediate practical utility, may generally rest assured that he will seek in vain.
+ - All that science can achieve is a perfect knowledge and a perfect understanding of the action of natural and moral forces.
+ - A metaphysical conclusion is either a false conclusion or a concealed experimental conclusion.
+ - Windmills, which are used in the great plains of Holland and North Germany to supply the want of falling water, afford another instance of the action of velocity. The sails are driven by air in motion – by wind.
+ - Reason we call that faculty innate in us of discovering laws and applying them with thought.
+ - Music strikes the ear as a perfectly undisturbed uniform sound which remains unaltered as long as it exists.
+ - I think the facts leave no doubt that the very mightiest among the chemical forces are of electric origin. The atoms cling to their electric charges, and opposite electric charges cling to each other.
+ - The smallest quantity of alcohol scares away novel ideas.
+ - Each individual fact, taken by itself, can indeed arouse our curiosity or our astonishment, or be useful to us in its practical applications.
+ - The formation of scales and of the web of harmony is a product of artistic invention, and is in no way given by the natural structure or by the natural behaviour of our hearing, as used to be generally maintained hitherto.
+ - Just as a physicist has to examine the telescope and galvanometer with which he is working; has to get a clear conception of what he can attain with them, and how they may deceive him; so, too, it seemed to me necessary to investigate likewise the capabilities of our power of thought.
+ - The quantity of force which can be brought into action in the whole of Nature is unchangeable, and can neither be increased nor diminished.
+ - I then endeavoured to show that it is more especially in the thorough conformity with law which natural phenomena and natural products exhibit, and in the comparative ease with which laws can be stated, that this difference exists.
+ - A raised weight can produce work, but in doing so it must necessarily sink from its height, and, when it has fallen as deep as it can fall, its gravity remains as before, but it can no longer do work.
+ - There is a kind, I might almost say, of artistic satisfaction, when we are able to survey the enormous wealth of Nature as a regularly ordered whole a kosmos, an image of the logical thought of our own mind.
+ - A moving body whose motion was not retarded by any resisting force would continue to move to all eternity.
+ - Not that I wish by any means to deny, that the mental life of individuals and peoples is also in conformity with law, as is the object of philosophical, philological, historical, moral, and social sciences to establish.
+ - Heat can also be produced by the impact of imperfectly elastic bodies as well as by friction. This is the case, for instance, when we produce fire by striking flint against steel, or when an iron bar is worked for some time by powerful blows of the hammer.
+
+21 quotes

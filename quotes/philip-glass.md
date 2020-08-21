@@ -1,0 +1,25 @@
+ - You get up early in the morning and you work all day. That’s the only secret.
+ - You practice and you get better. It’s very simple.
+ - I don’t know what I’m doing and it’s the not knowing that makes it interesting.
+ - A new language requires a new technique. If what you’re saying doesn’t require a new language, then what you’re saying probably isn’t new.
+ - I’ve been called a minimalist composer for more than 30 years, and while I’ve never really agreed with the description, I’ve gotten used to it.
+ - If you remember your lineage, you will never feel lonely.
+ - What I’ve noticed is that people who love what they do, regardless of what that might be, tend to live longer.
+ - In order to arrive at a personal style, you have to have a technique to begin with.
+ - So the real drama for me is balancing live performances and writing, and one of the ways I balance it is I write in hotel rooms. That’s not exactly balancing. Actually, writing in hotel rooms means that I’m refusing to deal with the problem.
+ - But the difference between the little pieces and the big pieces – I’m not actually sure which are the little pieces. With some of the big pieces, it’s a lot of musical running around, whereas the little pieces, you can say everything you want to say.
+ - I think it’s a great handicap to be discovered at an early age. I didn’t have that burden of early success. I had the much more livable and durable career where success comes late, and comes slowly, and you ease into it. So by the time it comes, you’re ready to deal with it.
+ - My biggest problem about writing is whenever I write piano pieces, because I then have to learn to play them, which is sometimes not so easy.
+ - I’m interested in what happens to music when other people use it. Whereas there are composers who don’t like anyone to touch their music, I think people should because they do things I can’t think of.
+ - The work I’ve done is the work I know, and the work I do is the work I don’t know. I don’t know what I’m doing.
+ - What you hear depends on how you focus your ear. We’re not talking about inventing a new language, but rather inventing new perceptions of existing languages.
+ - I travel the world, and I’m happy to say that America is still the great melting pot – maybe a chunky stew rather than a melting pot at this point, but you know what I mean.
+ - The hardest thing about traveling is that mostly you get to a point – and it always happens on every tour – where you can choose between eating and sleeping, but you can’t do both.
+ - I always knew what I wanted to do and I did it.
+ - Traditions are imploding and exploding everywhere – everything is coming together, for better or worse, and we can no longer pretend were all living in different worlds because were on different continents.
+ - I find that people can’t find you. It’s kind of quiet. When I go to a city, I can almost always get a piano if I need one. So there’s something nice about being on the road and focusing on something you want to do.
+ - It doesn’t need to be imagined, it needs to be written down.
+ - What came to me as a revelation was the use of rhythm in developing an overall structure in music.
+ - If you don’t have a basis on which to make the choice, then you don’t have a style at all. You have a series of accidents.
+
+23 quotes

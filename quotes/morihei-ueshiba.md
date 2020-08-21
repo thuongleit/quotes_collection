@@ -1,0 +1,113 @@
+ - The Art of Peace begins with you...
+ - True victory is victory over oneself.
+ - Failure is the key to success; each mistake teaches us something.
+ - The Way of a Warrior is to establish harmony.
+ - Life is growth. If we stop growing, technically and spiritually, we are as good as dead.
+ - Aikido is love. It is the path that brings our heart into oneness with the spirit of the universe to complete our mission in life by instilling in us a love and reverence for all of nature.
+ - Atemi accounts for 99% of Aikido.
+ - The Art of Peace is based on four Great Virtues: Bravery, Wisdom, Love, and Friendship, symbolized by Fire, Heaven, Earth, and Water.
+ - The purpose of training is to tighten up the slack, toughen the body, and polish the spirit.
+ - Aikido is the spirit of loving protection for all beings.
+ - Aikido is the Way and Principle of harmonizing Heaven, Earth and Man.
+ - Study how water flows in a valley stream, smoothly and freely between the rocks. Also learn from holy books and wise people. Everything – even mountains, rivers, plants and trees – should be your teacher.
+ - Each person is the universe from a particular perspective.
+ - One does not need buildings, money, power, or status to practice the Art of Peace. Heaven is right where you are standing, and that is the place to train.
+ - Those who are possessed by nothing possess everything.
+ - PRACTICE THE Art of Peace sincerely, and evil thoughts and deeds will naturally disappear. The only desire that should remain is the thirst for more and more training in the Way.
+ - Progress comes to those who train and train; reliance on secret techniques will get you nowhere.
+ - True Budo is to accept the spirit of the universe, keep the peace of the world, correctly produce, protect and cultivate all beings in nature.
+ - Techniques employ four qualities that reflect the nature of our world. Depending on the circumstance, you should be: hard as a diamond, flexible as a willow, smooth-flowing like water, or as empty as space.
+ - Everyone has a spirit that can be refined, a body that can be trained in some manner, a suitable path to follow. You are here to realize your inner divinity and manifest your innate enlightenment.
+ - A good stance and posture reflect a proper state of mind.
+ - Create each day anew.
+ - In your training, do not be in a hurry, for it takes a minimum of ten years to master the basics and advance to the first rung. Never think of yourself as an all-knowing, perfected master; you must continue to train daily with your friends and students and progress together in the Art of Peace.
+ - Loyalty and devotion lead to bravery. Bravery leads to the spirit of self-sacrifice. The spirit of self-sacrifice creates trust in the power of love.
+ - Aikido is based on the projection of love.
+ - A black belt is nothing more than a belt that goes around your waist. Being a black belt is a state of mind and attitude. Even though surrounded By several enemies set to attack, Fight with the thought That they are but one.
+ - Move like a beam of light: fly like lightning, strike like thunder, whirl in circles around a stable center.
+ - Always keep your mind as bright and clear as the vast sky, the great ocean, and the highest peak, empty of all thoughts. Always keep your body filled with light and heat. Fill yourself with the power of wisdom and enlightenment.
+ - The Way of a Warrior is based on humanity, love, and sincerity; the heart of martial valor is true bravery, wisdom, love, and friendship. Emphasis on the physical aspects of warriorship is futile, for the power of the body is always limited.
+ - All the principles of heaven and earth are living inside you. Life itself is truth, and this will never change. Everything in heaven and earth breathes. Breath is the thread that ties creation together.
+ - Cast off limiting thoughts and return to true emptiness. Stand in the midst of the great void. This is the secret of the Way of a Warrior.
+ - Study the teachings of the pine tree, the bamboo, and the plum blossom. The pine is evergreen, firmly rooted, and venerable. The bamboo is strong, resilient, unbreakable. The plum blossom is hardy, fragrant, and elegant.
+ - Foster and polish the warrior spirit while serving in the world; illuminate the path according to your inner light.
+ - Fill yourself with the power of wisdom and enlightenment.
+ - If you have not linked yourself to true emptiness, you will never understand the art of peace.
+ - Economy is the basis of society. When the economy is stable, society develops. The ideal economy combines the spiritual and the material, and the best commodities to trade in are sincerity and love.
+ - There are many paths leading to the top of Mount Fuji, but there is only one summit – love.
+ - The best strategy relies upon an unlimited set of responses.
+ - Now and again, it is necessary to seclude yourself among deep mountain and hidden valleys to restore your link to the source of life.
+ - Aiki is not a technique to fight with or defeat an enemy. It is the way to reconcile the world and make human beings one family.
+ - ALWAYS PRACTICE the Art of Peace in a vibrant and joyful manner.
+ - To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace.
+ - Those who are enlightened never stop forging themselves.
+ - Life itself is always a trial. In training, you must test and polish yourself in order to face the great challenges of life.
+ - The art of Peace I practice has room for each of the world’s eight million gods, and I cooperate with them all. The God of Peace is very great and enjoins all that is divine and enlightened in every land.
+ - The way of the warrior is based on humanity, love and sincerity.
+ - Mankind’s role is to fulfil his heaven-sent purpose through a sincere heart that is in harmony with all creation and loves all things.
+ - IF YOUR OPPONENT strikes with fire, counter with water, becoming completely fluid and free-flowing. Water, by its nature, never collides with or breaks against anything. On the contrary, it swallows up any attack harmlessly.
+ - Aikido is the principle of non-resistance. Because it is non-resistant, it is victorious from the beginning. Those with evil intentions or contentious thoughts are instantly vanquished. Aikido is invincible because it contends with nothing.
+ - In true budo there is no enemy or opponent. True budo is to become one with the universe, not train to become powerful or to throw down some opponent. Rather we train in hopes of being of some use, however small our role may be, in the task of bringing peace to mankind around the world.
+ - True budo is a work of love. It is a work of giving life to all beings, and not killing or struggling with each other. Love is the guardian deity of everything. Nothing can exist without it. Aikido is the realization of love.
+ - You are here for no other purpose than to realize your inner divinity and manifest your inner enlightenment.
+ - CONTEMPLATE THE workings of this world, listen to the words of the wise, and take all that is good as your own. With this as your base, open your own door to truth. Do not overlook the truth that is right before you.
+ - BE GRATEFUL EVEN for hardship, setbacks, and bad people. Dealing with such obstacles is an essential part of training in the Art of Peace.
+ - If you have life in you, you have access to the secrets of the ages, for the truth of the universe resides in each and every human being.
+ - Cleanse your body and soul, removing malice, selfishness and desire.
+ - Life is growth. If we stop growing, technically and spiritually, we are as good as dead. The Art of Peace is a celebration of the bonding of heaven, earth, and humankind. It is all that is true, good, and beautiful.
+ - Around 2am as I was performing misogi, I suddenly forgot all the martial techniques I had ever learned. The techniques of my teachers appeared completely new. Now they were vehicles for the cultivation of life, knowledge, and virtue, not devices to throw people with.
+ - Master the divine techniques of the Art of Peace and no enemy will dare to challenge you.
+ - True victory does not come from defeating an enemy, true victory comes from giving love and changing an enemies heart.
+ - Everything – even mountains, rivers, plants and trees – should be your teacher.
+ - A warrior’s mission is to foster the success of others.
+ - Peace originates with the flow of things – its heart is like the movement of the wind and waves. The Way is like the veins that circulate blood through our bodies, following the natural flow of the life force. If you are separated in the slightest from that divine essence, you are far off the path.
+ - Your voice is a very powerful weapon. When you are in tune with the cosmic breath of heaven and earth, your voice produces true sounds. Unify body, mind, and speech, and real techniques will emerge.
+ - There are times when you may be overwhelmed by the teachings of the Way. At such moments, it is important to continue with the original spirit of a beginner.
+ - Do not look upon this world with fear and loathing. Bravely face whatever the gods offer.
+ - Fill yourself with Ki, invite the attack.
+ - The world will continue to change dramatically, but fighting and war can destroy us utterly. What we need now are techniques of harmony, not those of contention. The Art of Peace is required, not the Art of War.
+ - There are no contests in the Art of Peace. A true warrior is invincible because he or she contests with nothing. Defeat means to defeat the mind of contention that we harbor within.
+ - PRACTICE OF THE Art of Peace enables you to rise above praise or blame, and it frees you from attachment to this and that.
+ - Ultimately, you must forget about technique. The further you progress, the fewer teachings there are. The Great Path is really NO PATH.
+ - Nonresistance is one of the principles of aikido. Because there is no resistance, you have won before even starting. People whose minds are evil or who enjoy fighting are defeated without a fight.
+ - Your spirit is the true shield.
+ - If your heart is large enough to envelop your adversaries, you can see right through them and avoid their attacks. And once you envelop them, you will be able to guide them along the path indicated to you by heaven and earth.
+ - To practice Aikido fully you must calm the spirit and go back to the origin.
+ - The heart of a human being is no different from the soul of heaven and earth. In your practice always keep in your thoughts the interaction of heaven and earth, water and fire, yin and yang.
+ - Shihonage is the foundation of Aikido. All you ever need to master is shihonage.
+ - All the principles of heaven and earth are living inside you.
+ - A mind to serve for the peace of all human beings in the world is needed in Aikido, and not the mind of one who wishes to be strong or who practices only to fell an opponent.
+ - The divine is not something high above us. It is in heaven, it is in earth, it is inside us.
+ - If you are centered, you can move freely.
+ - True victory is self-victory; let that day arrive quickly!
+ - The Divine does not like to be shut up in a building. The Divine likes to be out in the open. It is right here in this very body. Each one of us is a miniature universe, a living shrine.
+ - The penetrating brilliance of swords, wielded by followers of the Way, strikes at the evil enemy, lurking deep within, their own souls and bodies.
+ - INSTRUCTORS CAN impart a fraction of the teaching. It is through your own devoted practice that the mysteries of the Art of Peace are brought to life.
+ - The key to good technique is to keep your hands, feet, and hips straight and centered. If you are centered, you can move freely.
+ - Even the most powerful human being has a limited sphere of strength. Draw him outside of that sphere and into your own, and his strength will dissipate.
+ - I want considerate people to listen to the voice of Aikido. It is not for correcting others; it is for correcting your own mind. This is Aikido. This is the mission of Aikido and should be your mission.
+ - In extreme situations, the entire universe becomes our foe; at such critical times, unity of mind and technique is essential – do not let your heart waver!
+ - To practice properly the Art of Peace, you must: Calm the spirit and return to the source. Cleanse the body and spirit by removing all malice, selfishness, and desire. Be ever grateful for the gifts received from the universe, your family, Mother nature, and your fellow human beings.
+ - The techniques of Aikido change constantly; every encounter is unique, and the appropriate response should emerge naturally. Today’s techniques will be different tomorrow. Do not get caught up with the form and appearance of a challenge. Aikido has no form – it is the study of the spirit.
+ - Your mind should be in harmony with the functioning of the universe; your body should be in tune with the movement of the universe; body and mind should be bound as one, unified with the activity of the universe.
+ - Focus on stillness, rather than on movement.
+ - Those who have a warped mind, a mind of discord, have been defeated from the beginning.
+ - Kicking leaves you momentarily on one foot, and for that moment you are in a very weak position. If you were to be swept off your feet, you would be finished. This is why lifting your feet off the ground is crazy.
+ - The real purpose of the martial arts must be to purge oneself of petty ambitions and desire, to obtain control of one’s own character.
+ - When an opponent comes forward, move in and greet him; if he wants to pull back, send him on his way.
+ - As soon as you concern yourself with the ‘good’ and ‘bad’ of your fellows, you create an opening in your heart for maliciousness to enter. Testing, competing with, and criticizing others weaken and defeat you.
+ - It is necessary to develop a strategy that utilizes all the physical conditions and elements that are directly at hand. The best strategy relies upon an unlimited set of responses.
+ - The realization of our true substance and potential is the purpose of creation.
+ - When life is victorious, there is birth; when it is thwarted, there is death. A warrior is always engaged in a life-and-death struggle for Peace.
+ - To rid the world of aggression and contention is the purpose of Aikido.
+ - Your heart is full of fertile seeds, waiting to sprout.
+ - Create each day anew by clothing yourself with heaven and earth, bathing yourself with wisdom and love, and placing yourself in the heart of Mother Nature.
+ - In a real battle, atemi is seventy percent, technique is thirty percent.
+ - The Samurai is the first to suffer anxiety for human society, and he is the last to seek personal pleasure.
+ - Foster peace in your own life and then apply the Art to all that you encounter.
+ - Opponents confront us continually, but actually there is no opponent there. Enter deeply into an attack and neutralize it as you draw that misdirected force into your own sphere.
+ - All life is a manifestation of the spirit, the manifestation of love.
+ - Never fear another challenger, no matter how large; Never despise another challenger, no matter how small.
+ - Polish the heart, free the six senses and let them function without obstruction, and your entire body will glow.
+
+111 quotes

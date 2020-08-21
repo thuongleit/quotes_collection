@@ -1,0 +1,24 @@
+ - Keep a cool head and a warm heart. A mantra that became a song, inspired by the wise words of Maharishi Mahesh Yogi. If we all take the time to listen and love each other, this world would be a better place.
+ - During meditation your metabolism and your breath rate go down to a level of rest, twice that of deep sleep.
+ - My greatest struggle is to coexist while watching the people I love choose less than life-supporting paths via drugs, alcohol, or poor lifestyle decisions. There is so much to life; my heart breaks watching someone held captive by addiction.
+ - I learned that when you do the best job that you can do, some people will idolize you, others won’t care, and some will vilify you. I believe it is important to remain humble and thankful for the blessings in our lives, for the tremendous opportunities that are a result of our musical success.
+ - Every summer, my grandparents would rent a house on Balboa Island. They had the house next to Bob Hope’s. I’ve been going down there all my life, to that whole area.
+ - The studio part, to me, can be pretty laborious. You’re inside for hours on end and can be pretty frustrating to get the sound you hear in your head to come out of those speakers.
+ - The history of mankind is a history of war.
+ - If you ask any couple who have been married 50 years or longer, they will tell you they’ve experienced it all. The same is true of the Beach Boys.
+ - I’m the lead singer of the Beach Boys and an ambassador of this amazing music that touched a generation.
+ - The great thing about getting older is that you get a chance to tell the people in your life who matter what they mean to you.
+ - There are different things one can do to establish and hasten the peace process. Meditation is one way.
+ - Some people are denizens of the studio. I’m more of a denizen of the live appearance. I love the live thing.
+ - Because of the inherent challenges of life on the earth, all of humanity is vulnerable. This is all the more reason to seek the kingdom of heaven within and find the peace that leads to understanding.
+ - The problem with popularity is that if it gets too popular everybody leaves and goes somewhere else.
+ - I never thought of myself as a really particularly great singer.
+ - There are a few good ‘psych’ groups but too many never change from their first appearance. They don’t develop.
+ - Mankind invents things to fight about.
+ - You have to be careful not to get overexposed.
+ - I was in the oil business for a while – gas and oil, check the tires.
+ - Without meditation, Id probably be dead.
+ - You can’t sustain a fan base on a great catalog alone. You must take your music directly to the people.
+ - I actually have heard of acts who only do their new album, and don’t do their hits. I’ve never been in that mind set.
+
+22 quotes

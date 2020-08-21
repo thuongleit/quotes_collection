@@ -1,0 +1,131 @@
+ - Patience is a conquering virtue.
+ - All good things must come to an end.
+ - Time and tide wait for no man.
+ - Death is the end of every worldly pain.
+ - Strike while the iron is hot.
+ - The lyf so short, the craft so long to lerne.
+ - What is better than wisdom? Woman. And what is better than a good woman? Nothing.
+ - Look up on high, and thank the God of all.
+ - Hyt is not al golde that glareth.
+ - For out of old fields, as men saith, Cometh all this new corn from year to year; And out of old books, in good faith, Cometh all this new science that men learn.
+ - Many a true word is spoken in jest.
+ - If gold rusts, what then can iron do?
+ - No empty handed man can lure a bird.
+ - Forbid us something, and that thing we desire.
+ - In April the sweet showers fall And pierce the drought of March to the root, and all The veins are bathed in liquor of such power As brings about the engendering of the flower.
+ - Nature, the vicar of the Almighty Lord.
+ - The devil can only destroy those who are already on their way to damnation.
+ - Many small make a great.
+ - People can die of mere imagination.
+ - Whoso will pray, he must fast and be clean, And fat his soul, and make his body lean.
+ - Patience is a conquering virtue. The learned say that, if it not desert you, It vanquishes what force can never reach; Why answer back at every angry speech? No, learn forbearance or, I’ll tell you what, You will be taught it, whether you will or not.
+ - He loved chivalrye Trouthe and honour, freedom and curteisye.
+ - He who accepts his poverty unhurt I’d say is rich although he lacked a shirt. But truly poor are they who whine and fret and covet what they cannot hope to get.
+ - Great peace is found in little busy-ness.
+ - Woe to the cook whose sauce has no sting.
+ - The latter end of joy is woe.
+ - A whetstone is no carving instrument, And yet it maketh sharp the carving tool; And if you see my efforts wrongly spent, Eschew that course and learn out of my school; For thus the wise may profit by the fool, And edge his wit, and grow more keen and wary, For wisdom shines opposed to its contrary.
+ - If love be good, from whence cometh my woe?
+ - There’s never a new fashion but it’s old.
+ - In the stars is written the death of every man.
+ - Every honest miller has a golden thumb.
+ - Love will not be constrain’d by mastery. When mast’ry comes, the god of love anon Beateth his wings, and, farewell, he is gone. Love is a thing as any spirit free.
+ - We know little of the things for which we pray.
+ - Purity in body and heart May please some – as for me, I make no boast. For, as you know, no master of a household Has all of his utensils made of gold; Some are wood, and yet they are of use.
+ - A yokel mind loves stories from of old, Being the kind it can repeat and hold.
+ - The life so brief, the art so long in the learning, the attempt so hard, the conquest so sharp, the fearful joy that ever slips away so quickly – by all this I mean love, which so sorely astounds my feeling with its wondrous operation, that when I think upon it I scarce know whether I wake or sleep.
+ - Yet in our ashen cold is fire yreken.
+ - Nowhere so busy a man as he than he, and yet he seemed busier than he was.
+ - And so it is in politics, dear brother, Each for himself alone, there is no other.
+ - Who then may trust the dice, at Fortune’s throw?
+ - By God, if women had written stories, As clerks had within here oratories, They would have written of men more wickedness Than all the mark of Adam may redress.
+ - If no love is, O God, what fele I so? And if love is, what thing and which is he? If love be good, from whennes cometh my woo? If it be wikke, a wonder thynketh me.
+ - One shouldn’t be too inquisitive in life Either about God’s secrets or one’s wife.
+ - Alas, alas, that ever love was sin! I ever followed natural inclination Under the power of my constellation And was unable to deny, in truth, My chamber of Venus to a likely youth.
+ - How potent is the fancy! People are so impressionable, they can die of imagination.
+ - The cat would eat fish but would not get her feet wet.
+ - Women desire six things: They want their husbands to be brave, wise, rich, generous, obedient to wife, and lively in bed.
+ - A love grown old is not the love once new.
+ - If were not foolish young, were foolish old.
+ - Who looks at me, beholdeth sorrows all, All pain, all torture, woe and all distress; I have no need on other harms to call, As anguish, languor, cruel bitterness, Discomfort, dread, and madness more and less; Methinks from heaven above the tears must rain In pity for my harsh and cruel pain.
+ - But manly set the world on sixe and sevene; And, if thou deye a martir, go to hevene.
+ - Men sholde nat knowe of Goddes pryvetee Ye, blessed be alwey, a lewed man That noght but oonly his believe kan! So ferde another clerk with astromye, He walked in the feelds, for to prye Upon the sterres, what ther sholde bifalle, Til he was in a marle-pit yfalle.
+ - Yet do not miss the moral, my good men. For Saint Paul says that all that’s written well Is written down some useful truth to tell. Then take the wheat and let the chaff lie still.
+ - For tyme y-lost may not recovered be.
+ - The greatest scholars are not usually the wisest people.
+ - He that loveth God will do diligence to please God by his works, and abandon himself, with all his might, well for to do.
+ - And then the wren gan scippen and to daunce.
+ - The smylere with the knyf under the cloke.
+ - In general, women desire to rule over their husbands and lovers, to be the authority above them.
+ - Certain, when I was born, so long ago, Death drew the tap of life and let it flow; And ever since the tap has done its task, And now there’s little but an empty cask.
+ - Filth and old age, I’m sure you will agree, are powerful wardens upon chastity.
+ - And she was fair as is the rose in May.
+ - Soun is noght but air ybroken, And every speche that is spoken, Loud or privee, foul or fair, In his substaunce is but air; For as flaumbe is but lighted smoke, Right so soun is air ybroke.
+ - Habit maketh no monk, ne wearing of gilt spurs maketh no knight.
+ - One flesh they are; and one flesh, so I’d guess, Has but one heart, come grief or happiness.
+ - For in their hearts doth Nature stir them so Then people long on pilgrimage to go And palmers to be seeking foreign strands To distant shrines renowned in sundry lands.
+ - My house is small, but you are learned men And by your arguments can make a place Twenty foot broad as infinite as space.
+ - This world nys but a thurghfare ful of wo, And we been pilgrymes, passynge to and fro.
+ - Hard is the heart that loveth nought In May.
+ - Ek gret effect men write in place lite; Th’entente is al, and nat the lettres space.
+ - Pitee renneth soone in gentil herte.
+ - Fo lo, the gentil kind of the lioun! For when a flye offendeth him or byteth, He with his tayl awey the flye smyteth Al esily, for, of his genterye, Him deyneth net to wreke him on a flye, As cloth a curre or elles another beste.
+ - Of harmes two the lesse is for to cheese.
+ - One cannot scold or complain at every word. Learn to endure patiently, or else, as I live and breathe, you shall learn it whether you want or not.
+ - Go, little booke! go, my little tragedie!
+ - I am not the rose, but I have lived near the rose.
+ - Thou shalt make castels thanne in Spayne And dreme of joye, all but in vayne.
+ - Mordre wol out, that se we day by day.
+ - Lat take a cat, and fostre him wel with milk, And tendre flesh, and make his couche of silk, And let him seen a mous go by the wal; Anon he weyveth milk, and flesh, and al, And every deyntee that is in that hous, Swich appetyt hath he to ete a mous.
+ - Abstinence is approved of God.
+ - So was hir jolly whistel wel y-wette.
+ - For of fortunes sharp adversitee The worst kynde of infortune is this, A man to han ben in prosperitee, And it remembren, whan it passed is.
+ - Eke wonder last but nine deies never in toun.
+ - Everybody wants to go to the Super Bowl. Nobody wants to run laps.
+ - I hold a mouses wit not worth a leke, That hath but on hole for to sterten to.
+ - This flour of wifly patience.
+ - I gave my whole heart up, for him to hold.
+ - The bisy larke, messager of day.
+ - Certes, they been lye to hounds, for an hound when he cometh by the roses, or by other bushes, though he may nat pisse, yet wole he heve up his leg and make a countenance to pisse.
+ - Or as an ook comth of a litel spir, So thorugh this lettre, which that she hym sente, Encressen gan desir, of which he brente.
+ - Ther nis no werkman, whatsoevere he be, That may bothe werke wel and hastily.
+ - In love there is but little rest.
+ - For I have seyn of a ful misty morwe Folowen ful ofte a myrie someris day.
+ - Ther is no newe gyse that it nas old.
+ - It is nought good a sleping hound to wake.
+ - To keep demands as much skill as to win.
+ - But all thing which that shineth as the gold Ne is no gold, as I have herd it told.
+ - Til that the brighte sonne loste his hewe; For th’orisonte hath reft the sonne his lyght; This is as muche to seye as it was nyght!
+ - Yblessed be god that I have wedded fyve! Welcome the sixte, whan that evere he shal.
+ - One cannot be avenged for every wrong; according to the occasion, everyone who knows how, must use temperance.
+ - Mercy surpasses justice.
+ - Loke who that is most vertuous alway, Prive and apert, and most entendeth ay To do the gentil dedes that he can, And take him for the gretest gentilman.
+ - Trouthe is the hyest thyng that man may kepe.
+ - The handsome gifts that fate and nature lend us Most often are the very ones that end us.
+ - By nature, men love newfangledness.
+ - First he wrought, and afterwards he taught.
+ - Fie on possession, But if a man be vertuous withal.
+ - That of all the floures in the mede, Thanne love I most these floures white and rede, Suche as men callen daysyes in her toune.
+ - And when a beest is deed, he hath no peyne; But man after his deeth moot wepe and pleyne.
+ - One eare it heard, at the other out it went.
+ - For thogh we slepe, or wake, or rome, or ryde, Ay fleeth the tyme; it nyl no man abyde.
+ - The proverbe saith that many a smale maketh a grate.
+ - Take a cat, nourish it well with milk and tender meat, make it a couch of silk...
+ - Full wise is he that can himselven knowe.
+ - And gladly wolde he lerne, and gladly teche.
+ - I am right sorry for your heavinesse.
+ - Felds hath eyen, and wode have eres.
+ - To maken vertue of necessite.
+ - If a man really loves a woman, of course he wouldn’t marry her for the world if he were not quite sure that he was the best person she could possibly marry.
+ - But al be that he was a philosophre, Yet hadde he but litel gold in cofre.
+ - Min be the travaille, and thin be the glorie.
+ - Murder will out, this my conclusion.
+ - What’s said is said and goes upon its way Like it or not, repent it as you may.
+ - With emptie hands men may no haukes lure.
+ - Right as an aspen lefe she gan to quake.
+ - That he is gentil that doth gentil dedis.
+ - And for to see, and eek for to be seie.
+ - The guilty think all talk is of themselves.
+ - And brought of mighty ale a large quart.
+
+129 quotes

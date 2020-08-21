@@ -1,0 +1,209 @@
+ - Feminist politics aims to end domination, to free us to be who we are – to live lives where we love justice, where we can live in peace. Feminism is for everybody.
+ - Honesty and openness is always the foundation of insightful dialogue.
+ - Beloved community is formed not by the eradication of difference but by its affirmation, by each of us claiming the identities and cultural legacies that shape who we are and how we live in the world.
+ - To teach in a manner that respects and cares for the souls of our students is essential if we are to provide the necessary conditions where learning can most deeply and intimately begin.
+ - The practice of love is the most powerful antidote to the politics of domination.
+ - Knowing how to be solitary is central to the art of loving. When we can be alone, we can be with others without using them as a means of escape.
+ - I celebrate teaching that enables transgressions – a movement against and beyond boundaries. It is that movement which makes education the practice of freedom.
+ - The wounded heart learns self-love by first overcoming low self-esteem.
+ - When we choose to love, we choose to move against fear, against alienation and separation. The choice to love is a choice to connect, to find ourselves in the other.
+ - Love is a combination of care, commitment, knowledge, responsibility, respect and trust.
+ - Patriarchy has no gender.
+ - Isolation and loneliness are central causes of depression and despair.
+ - When we work with love we renew the spirit; that renewal is an act of self-love, it nurtures our growth.
+ - My focus has always been on the work – that work being critical thinking and writing. I am always doing that. That’s where I am, wherever I am. Critical thinking and writing as my heartbeat.
+ - But love is really more of an interactive process. It’s about what we do not just what we feel. It’s a verb, not a noun.
+ - What we do is more important than what we say or what we say we believe.
+ - The academy is not paradise. But learning is a place where paradise can be created.
+ - The moment we choose to love we begin to move towards freedom...
+ - Feminism is the struggle to end sexist oppression. Its aim is not to benefit solely any specific group of women, any particular race or class of women. It does not privilege women over men. It has the power to transform meaningfully all our lives.
+ - For me, forgiveness and compassion are always linked: how do we hold people accountable for wrongdoing and yet at the same time remain in touch with their humanity enough to believe in their capacity to be transformed?
+ - Feminism is a movement to end sexism, sexist exploitation, and oppression.
+ - There is light in darkness, you just have to find it.
+ - The function of art is to do more than tell it like it is-it’s to imagine what is possible.
+ - When we drop fear, we can draw nearer to people, we can draw nearer to the earth, we can draw nearer to all the heavenly creatures that surround us.
+ - The practice of love offers no place of safety. We risk loss, hurt, pain. We risk being acted upon by forces outside our control.
+ - The world would be a paradise of peace and justice if global citizens shared a common definition of love which would guide our thoughts and action.
+ - If we want a beloved community, we must stand for justice, have recognition for difference without attaching difference to privilege.
+ - To truly love we must learn to mix various ingredients – care, affection, recognition, respect, commitment, and trust, as well as honest and open communication.
+ - Commitment to truth telling lays the groundwork for the openness and honesty that is the heartbeat of love.
+ - The challenge these days, is to be somewhere, to belong to some particular place, invest oneself in it, draw strength and courage from it, to dwell in a community.
+ - The crisis facing men is not the crisis of masculinity, it is the crisis of patriarchal masculinity. Until we make this distinction clear, men will continue to fear that any critique of patriarchy represents a threat.
+ - To build community requires vigilant awareness of the work we must continually do to undermine all the socialization that leads us to behave in ways that perpetuate domination.
+ - People with healthy self-esteem do not need to create pretend identities.
+ - Hope is essential to any political struggle for radical change when the overall social climate promotes disillusionment and despair.
+ - Our freedom is sweet. It will be sweeter when we are all free.
+ - Once you do away with the idea of people as fixed, static entities, then you see that people can change, and there is hope.
+ - Love is an action, never simply a feeling.
+ - Representation is a crucial location of struggle for any exploited and oppressed people asserting subjectivity and decolonization of the mind.
+ - You must have courage to love, you have to have a profound will to do what is right to love, and it does not come easy.
+ - Shaming is one of the deepest tools of imperialist, white supremacist, capitalist patriarchy because shame produces trauma and trauma often produces paralysis.
+ - Stereotypes abound when there is distance. They are an invention, a pretense that one knows when the steps that would make real knowing possible cannot be taken or are not allowed.
+ - Whenever domination is present, love is lacking.
+ - Being oppressed means the absence of choices.
+ - Feminism has never emerged from the women who are most victimized by sexist oppression; women who are daily beaten down, mentally, physically, and spiritually – women who are powerless to change their condition in life. They are a silent majority.
+ - I am passionate about everything in my life – first and foremost, passionate about ideas. And that’s a dangerous person to be in this society, not just because I’m a woman, but because it’s such a fundamentally anti-intellectual, anti-critical thinking society. – bell hooks.
+ - To be truly visionary we have to root our imagination in our concrete reality while simultaneously imagining possibilities beyond that reality.
+ - Whether we’re talking about race or gender or class, popular culture is where the pedagogy is, it’s where the learning is.
+ - I will not have my life narrowed down. I will not bow down to somebody else’s whim or to someone else’s ignorance.
+ - Shame produces trauma. Trauma produces paralysis.
+ - Young people are cynical about love. Ultimately, cynicism is the great mask of the disappointed and betrayed heart.
+ - A good teacher is someone who can help you to get back to a teacher within.
+ - We have to constantly critique imperialist white supremacist patriarchal culture because it is normalized by mass media and rendered unproblematic.
+ - If I do not speak in a language that can be understood there is little chance for a dialogue.
+ - Sadly, children’s passion for thinking often ends when they encounter a world that seeks to educate them for conformity and obedience only.
+ - To begin by always thinking of love as an action rather than a feeling is one way in which anyone using the word in this manner automatically assumes accountability and responsibility.
+ - Love does have the power to redeem but only if we are ready for redemption. Love saves us only if we want to be saved.
+ - Within a capitalist consumer society, the cult of personality has the power to subsume ideas, to make the person, the personality into the product and not the work itself.
+ - The wounded child inside many females is a girl who was taught from early childhood on that she must become something other than herself, deny her true feelings, in order to attract and please others.
+ - Life-transforming ideas have always come to me through books.
+ - Justice is possible without equality, I believe, because of compassion and understanding. If I have compassion, then if I have more than you, which is unequal, I will still do the just thing by you.
+ - Only grown-ups think that the things children say come out of nowhere. We know they come from the deepest parts of ourselves.
+ - All our silences in the face of racist assault are acts of complicity.
+ - Contrary to what we may have been taught to think, unnecessary and unchosen suffering wounds us but need not scar us for life. It does mark us. What we allow the mark of our suffering to become is in our own hands.
+ - To me, a woman can’t be a feminist just because she is a woman. She is a feminist because she begins to divest herself of sexist ways of thinking and revolutionizes her consciousness.
+ - The most basic activism we can have in our lives is to live consciously in a nation living in fantasies. Living consciously is living with a core of healthy self-esteem. You will face reality, you will not delude yourself.
+ - Sexism has always been a political stance mediating social domination, enabling white men and black men to share a common sensibility about sex roles and the importance of male domination.
+ - The world demands that you work for it, make families, provide, take no time to listen to your own heart beating.
+ - The rage of the oppressed is never the same as the rage of the privileged.
+ - Class is rarely talked about in the United States; nowhere is there a more intense silence about the reality of class differences than in educational settings.
+ - The capacity to love is tied to being able to be awake, to being able to move out of yourself and be with someone else in a manner that is not about your desire to possess them, but to be with them, to be in union and communion.
+ - Since loving is about knowing, we have more meaningful love relationships when we know each other and it takes time to know each other.
+ - Do not expect to receive the love from someone else you do not give yourself.
+ - Abuse and neglect negate love. Care and affirmation, the opposite of abuse and humiliation, are the foundation of love. No one can rightfully claim to be loving when behaving abusively.
+ - The soul of our politics is the commitment to ending domination.
+ - To love well is the task in all meaningful relationships, not just romantic bonds.
+ - I get so tired of people acting like, you know, black men and women never help each other, never support each other.
+ - Like desire, language disrupts, refuses to be contained within boundaries.
+ - A generous heart is always open, always ready to receive our going and coming. In the midst of such love we need never fear abandonment. This is the most precious gift true love offers – the experience of knowing we always belong.
+ - Living simply makes loving simple.
+ - Language is also a place of struggle.
+ - Feminist pedagogy can only be liberatory if it is truly revolutionary because the mechanisms of appropriation within white supremacist, capitalist patriarchy are able to co-opt with tremendous ease that which merely appears radical or subversive.
+ - Spirituality and spiritual life give us the strength to love.
+ - When men and women punish each other for truth telling, we reinforce the notion that lies are better.
+ - I’m tired of the naked, raped, beaten black woman body. I want to see an image of black femaleness that alters our universe in some way.
+ - Knowing love or the hope of knowing love is the anchor that keeps us from falling into that sea of despair.
+ - All too often women believe it is a sign of commitment, an expression of love, to endure unkindness or cruelty, to forgive and forget. In actuality, when we love rightly we know that the healthy, loving response to cruelty and abuse is putting ourselves out of harm’s way.
+ - Love is first and foremost exemplified by action – by practice – not solely by feeling.
+ - It’s in the act of having to do things that you don’t want to that you learn something about moving past the self. Past the ego.
+ - Of all the definitions of love that abound in our universe, a special favorite of mine is “the will to extend one’s self for the purpose of nurturing one’s own or another’s spiritual growth”.
+ - I feel like there is always something trying to pull us back into sleep, that there is this sort of seductive quality in all the hedonistic pleasures that pull on us.
+ - Since we live in a society that promotes faddism and temporary superficial adaptation of different values, we are easily convinced that changes have occurred in arenas where there has been little or no change.
+ - Individuals who want to believe that there is no fulfillment in love, that true love does not exist, cling to these assumptions because this despair is actually easier to face than the reality that love is a real fact of life but is absent from their lives.
+ - Only love can heal the wounds of the past. However, the intensity of our woundedness often leads to a closing of the heart, making it impossible for us to give or receive the love that is given to us.
+ - In a culture of domination, preoccupation with victimage is inevitable.
+ - I think our culture doesn’t recognize passion, because real passion has the power to disrupt boundaries.
+ - The power of patriarchy has been to make maleness feared and to make men feel that it is better to be feared that to be loved. Whether they can confess this or not, men know that just is not true.
+ - Few people who are hit once by someone they love respond in the way they might to a singular physical assault by a stranger.
+ - I began writing a book on love because I felt that the United States is moving away from love.
+ - The word “love” is most often defined as a noun, yet al the more astute theorists of love acknowledge that we would all love better if we used it as a verb.
+ - If you’re in a domestic situation where the man is violent, patriarchy and male domination – even though you understand it intersectionally – you focus, you highlight that dimension of it, if that’s what is needed to change the situation.
+ - There will be no mass-based feminist movement as long as feminist ideas are understood only by a well-educated few.
+ - Sexism has never rendered women powerless. It has either suppressed their strength or exploited it.
+ - Without justice there can be no love.
+ - There must exist a paradigm, a practical model for social change that includes an understanding of ways to transform consciousness that are linked to efforts to transform structures.
+ - The transformative power of love is not fully embraced in our society because we often wrongly believe that torment and anguish are our ‘natural’ condition.
+ - Whether we learn how to love ourselves and others will depend on the presence of a loving environment. Self-love cannot flourish in isolation.
+ - Loving friendships provide us with a space to experience the joy of community in a relationship where we learn to process all our issues, to cope with differences and conflict while staying connected.
+ - Yearning is the word that best describes a common psychological state shared by many of us, cutting across boundaries of race, class, gender, and sexual practice.
+ - When we face pain in relationships our first response is often to sever bonds rather than to maintain commitment.
+ - Imagine living in a world where there is no domination, where females and males are not alike or even always equal, but where a vision of mutuality is the ethos shaping our interaction.
+ - Knowledge rooted in experience shapes what we value and as a consequence how we know what we know as well as how we use what we know.
+ - Often girls feel deeply cared about as small children but then find as we develop willpower and independent thought that the world stops affirming us, that we are seen as unlovable.
+ - Many spiritual teachers – in Buddhism, in Islam – have talked about first-hand experience of the world as an important part of the path to wisdom, to enlightenment.
+ - If we give our children sound self-love, they will be able to deal with whatever life puts before them.
+ - If Black women stand strong and our commitment is to ending domination I know that I’m supporting Black males, Black children male and female Black elderly because the bottom line is the struggle to end domination in all its forms.
+ - The political core of any movement for freedom in the society has to have the political imperative to protect free speech.
+ - Justice demands integrity. It’s to have a moral universe – not only know what is right or wrong but to put things in perspective, weigh things. Justice is different from violence and retribution; it requires complex accounting.
+ - The one person who will never leave us, whom we will never lose, is ourself. Learning to love our female selves is where our search for love must begin.
+ - Writing and performing should deepen the meaning of words, should illuminate, transfix and transform.
+ - What we cannot imagine cannot come into being.
+ - To indoctrinate boys into the rules of patriarchy, we force them to feel pain and to deny their feelings.
+ - My students tell me, we don’t want to love! We’re tired of being loving! And I say to them, if you’re tired of being loving, then you haven’t really been loving, because when you are loving you have more strength.
+ - Because we have learned to believe negativity is more realistic, it appears more real than any positive voice.
+ - Feminist thinking teaches us all, especially, how to love justice and freedom in ways that foster and affirm life.
+ - Lying has become so much the accepted norm that people lie even when it would be simpler to tell the truth.
+ - As long as women are using class or race power to dominate other women, feminist sisterhood cannot be fully realized.
+ - I feel that my environment reflects my belief in the grace and art and elegance of living simply.
+ - The greatest movement for social justice our country has ever known is the civil rights movement and it was totally rooted in a love ethic.
+ - Couples who rarely or never have sex can know lifelong love.
+ - Power feminism is just another scam in which women get to play patriarchs and pretend that the power we seek and gain liberates us.
+ - I think inequality is in our minds. I think this is what we learn through practice. The bridge of illusion must be shattered in order for a real bridge to be constructed. One of the things we learn is that inequality is an illusion.
+ - Giving generously in romantic relationships, and in all other bonds, means recognizing when the other person needs our attention. Attention is an important resource.
+ - Had middle class black women begun a movement in which they had labeled themselves “oppressed,” no one would have taken them seriously.
+ - The true teacher is within us. A good teacher is someone who can help you to go back and touch the true teacher within, because you already have the insight within you.
+ - To live fixated on the future is to engage in psychological denial. It is a form of psychic violence that prepares us to accept the violence needed to ensure the maintenance of imperialist, future-oriented society.
+ - We often cause ourselves suffering by wanting only to live in a world of valleys, a world without struggle and difficulty, a world that is flat, plain, consistent.
+ - What’s so amazing about this historical moment is that it is bringing class to the fore and we have to think about the nature of work and hierarchy.
+ - Reviewing the literature on love I noticed how few writers, male or female, talk about the impact of patriarchy, the way in which male domination of women and children stands in the ways of love.
+ - To counter the fixation on a rhetoric of victimhood, black folks must engage in a discourse of self-determination.
+ - Both men and women remain in dysfunctional, loveless relationships when it is materially opportune.
+ - Part of the heart of anarchy is, dare to go against the grain of the conventional ways of thinking about our realities. Anarchists have always gone against the grain, and that’s been a place of hope.
+ - It is a distortion of the notion of romantic love to want to see obedience as the quintessential expression of respect.
+ - The fierce willingness to repudiate domination in a holistic manner is the starting point for progressive cultural revolution.
+ - I always tell my students that Malcolm X came both to his spirituality and to his consciousness as a thinker when he had solitude to read. Unfortunately, tragically, like so many young black males, that solitude only came in prison.
+ - Widespread cultural acceptance of lying is a primary reason many of us will never know love.
+ - Choosing to be honest is the first step in the process of love. There is no practitioner of love who deceives. Once the choice has been made to be honest, then the next step on love’s path is communication.
+ - Fluidity means that our black identities are constantly changing as we respond to circumstances in our families and communities of origin, and as we interact with a wider world.
+ - We don’t hear much from revolutionary feminists who are white because they’re not serving the bourgeois agenda of the status quo.
+ - We judge on the basis of what somebody looks like, skin color, whether we think they’re beautiful or not. That space on the Internet allows you to converse with somebody with none of those things involved.
+ - If only one party in the relationship is working to create love, to create the space of emotional connection, the dominator model remains in place and the relationship just becomes a site for continuous power struggle.
+ - I’ve written 18 books, mostly dealing with issues of social justice, ending racism, feminism, and cultural criticism.
+ - Why is it that many contemporary male thinkers, especially men of color, repudiate the imperialist legacy of Columbus but affirm dimensions of that legacy by their refusal to repudiate patriarchy?
+ - When we are more energized by the practice of blaming than we are by efforts to create transformation, we not only cannot find relief from suffering, we are creating the conditions that help keep us stuck in the status quo.
+ - Changing how we see images is clearly one way to change the world.
+ - One of the things I find most exciting is talking with people who are working with my work. Who are using it in some way with their life to address everyday politics of meaning.
+ - When we only name the problem, when we state complaint without a constructive focus or resolution, we take hope away. In this way critique can become merely an expression of profound cynicism, which then works to sustain dominator culture.
+ - What had begun as a movement to free all black people from racist oppression became a movement with its primary goal the establishment of black male patriarchy.
+ - The fact is that it was bourgeois white feminism that I was reacting against when I stood in my first women’s studies classes and said, “Black women have always worked.”
+ - Most gay men are as sexist in their thinking as are heterosexuals. Their patriarchal thinking leads them to construct paradigms of desirable sexual behaviour that is similar to that of patriarchal straight men.
+ - Imagine how much easier it would be for us to learn how to love if we began with a shared definition.
+ - It is poetry that changes everything.
+ - One of the things that we must do as teachers is twirl around and around, and find out what works with the situation that we’re in. Our models might not work. And that twirling, changing, is part of the empowerment.
+ - I thought about how we need to make children feel that there are times in their lives when they need to be alone and quiet and to be able to accept their aloneness.
+ - Since anti-racist individuals did not control mass media, the media became the primary tool that would be used and is still used to convince black viewers, and everyone else, of black inferiority.
+ - Some people act as though art that is for a mass audience is not good art, and I think this has been a very negative thing. I know that I have wanted very much to write books that are accessible to the widest audience possible.
+ - It is crucial for the future of the Black liberation struggle that we remain ever mindful that ours is a shared struggle, that we are each other’s fate.
+ - Feminism as a political movement has to specifically address the needs of men in their struggle to revolutionize their consciousness.
+ - I have been contemplating the place and meaning of love in our lives and culture for years. When a subject attracts my intellectual and emotional imagination, I am long to observe it from all angles, to know it inside and out.
+ - One of the most subversive institutions in the United States is the public library...
+ - I think I was always obsessed with esthetics.
+ - While it has become “cool” for white folks to hang out with black people and express pleasure in black culture, most white people do not feel that this pleasure should be linked to unlearning racism.
+ - I’m such a girl for the living room. I really like to stay in my nest and not move. I travel in my mind, and that that’s a rigorous state of journeying for me. My body isn’t that interested in moving from place to place.
+ - All the work I do is built on a foundation of loving-kindness. Love illuminates matters.
+ - When angels speak of love they tell us it is only by loving that we enter an earthly paradise. They tell us paradise is our home and love our true destiny.
+ - Feminism is a struggle to end sexist oppression. Therefore, it is necessarily a struggle to eradicate the ideology of domination that permeates Western culture on various levels.
+ - When we concentrate on photography, we make it possible to see the walls of photographs in black homes as a critical intervention, a disruption of white control over black images.
+ - I think stress is anything going on in our lives that impinges on our capacity to have optimum well being.
+ - If any female feels she need anything beyond herself to legitimate and validate her existence, she is already giving away her power to be self-defining, her agency.
+ - Remember, care is a dimension of love, but simply giving care does not mean we are loving.
+ - I’m so disturbed when my women students behave as though they can only read women, or black students behave as though they can only read blacks, or white students behave as though they can only identify with a white writer.
+ - Our hearts connect with lots of folks in a lifetime but most of us will go to our graves with no experience of true love.
+ - I believe that it is impossible for two individuals not committed to their own and each other’s well being to sustain a healthy and enduring relationship.
+ - It is important for this country to make its people so obsessed with their own liberal individualism that they do not have time to think about a world larger than self.
+ - My idea of a delicious time is to read a book that is wonderful. But the ruling passion of my life is being a seeker after truth and the divine.
+ - Feminism as a theoretical enterprise is approached differently by Black women depending on where we are. There are more reformist Black women who tend to use the phrase “Black feminism”.
+ - Writing and the hope of writing pulls me back from the edges of despair. I believe insanity and despair are at times one and the same.
+ - Black women control the world. We are through being discriminated against.
+ - I often find it easier to be teaching or giving to others, and often struggle with the place of my own pleasure and joy.
+ - What’s really sad is that so many young women between the ages of 16 and 25 are ignorant and they already believe that women get the same pay as men. They don’t even really understand that equality hasn’t happened with the pay force.
+ - I think Black people need to take self-esteem seriously.
+ - I have created a life style that supports contemplation, service to words.
+ - I have been thinking about the notion of perfect love as being without fear, and what that means for us in a world that’s becoming increasingly xenophobic, tortured by fundamentalism and nationalism.
+ - Most of us did not learn when we were young that our capacity to be self-loving would be shaped by the work we do and whether that work enhances our well-being.
+ - If you do not know what you feel, then it is difficult to choose love; it is better to fall. Then you do not have to be responsible for your actions.
+ - One difference with the political writings, whether about feminism or class, is that the intent is to change how people think of a certain political reality; whereas with cultural criticism, the goal is to illuminate something that is already there.
+ - Most of us find it difficult to accept a definition of love that says we are never loved in a context where there is abuse.
+ - One of the major differences I see in the political climate today is that there is less collective support for coming to critical consciousness – in communities, in institutions, among friends.
+ - I think the number one thing Black women and all Black people should be paying attention to is our health.
+ - A very hurting thing for Black Americans – to feel that we can’t love our enemies. People forget what a great tradition we have as African-Americans in the practice of forgiveness and compassion. And if we neglect that tradition, we suffer.
+ - I think the Women’s movement has had a major impact on everybody’s lives in our nation and in the world as a whole.
+ - Yesterday I was thinking about the whole idea of genius and creative people, and the notion that if you create some magical art, somehow that exempts you from having to pay attention to the small things.
+ - I would also say that, in practice, many more Americans are anarchists than would ever use that term.
+ - As we search as a nation for constructive ways to challenge racism and white supremacy, it is absolutely essential that progressive female voices gain a hearing.
+ - Death is with you all the time; you get deeper in it as you move towards it, but it’s not unfamiliar to you. It’s always been there, so what becomes unfamiliar to you when you pass away from the moment is really life.
+ - I feel that I have many real students whom I have not met. Many are in cloisters and they never get out. Others are in prison. But in many cases they practice the teachings much better than those who meet me every day.
+ - Popular escapist fiction enchants adult readers without challenging them to be educated for critical consciousness.
+ - As more people of color raise our consciousness and refuse to be pitted against one another, the forces of neo-colonial white supremacist domination must work harder to divide and conquer.
+
+207 quotes

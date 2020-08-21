@@ -1,0 +1,22 @@
+ - I’ve never quit anything in my life.
+ - I’m not an addict and I do not do drugs. I made mistakes in the past and all I can do is apologize, but it is what it is and I can’t change the past. And I can apologize to my family and my friends and my colleagues and the people.
+ - I cannot comment on a video that I have never seen or does not exist.
+ - Walk around the right corner in Sin City and you can find anything you want.
+ - I do not use crack cocaine, nor am I an addict of crack cocaine.
+ - Yes I have smoked crack cocaine. But no – do I? am I an addict? – No. Yes, I’ve made mistakes. All I can do now is apologize and move on.
+ - I’m happily married. I’ve got more than enough to eat at home.
+ - That is not a crack house. It is a house with a family with a father and a mother and three sons and a daughter.
+ - I don’t believe in all this public-funded health care, we can’t afford it. If you want health care, you pay for it.
+ - My heart bleeds for them when someone gets killed. But it’s their own fault at the end of the day.
+ - Stanley Cup winners don’t hand back the Stanley Cup.
+ - Cyclists are a pain in the ass.
+ - I made mistakes, I drank too much, I smoked some crack some time. What can I say? I made a mistake, I’m human.
+ - Have I tried it? Probably in one of my drunken stupors.
+ - Yes, I have smoked crack cocaine. But do I? Am I an addict? No. Have I tried it? Probably in one of my drunken stupors, probably approximately about a year ago.
+ - Women love money. You give them a couple thousand bucks and they’re happy.
+ - I don’t look at myself as the mayor, I look at myself as just a normal, regular person.
+ - I’m telling you, the Oriental people, they’re slowly taking over.
+ - I’m as clean as the days are long.
+ - I am not going to sit here and say I am never going to drink again. That is not realistic.
+
+20 quotes

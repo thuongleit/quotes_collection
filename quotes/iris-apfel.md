@@ -1,0 +1,76 @@
+ - Never be afraid to stop traffic.
+ - More is more and less is a bore.
+ - Style is attitude, attitude, attitude!
+ - When you don’t dress like everybody else, you don’t have to think like everybody else.
+ - Fashion you can buy, but style you possess. The key to style is learning who you are, which takes years. There’s no how-to road map to style. It’s about self-expression and, above all, attitude.
+ - I don’t have any rules, because I would only be breaking them, so it’s a waste of time.
+ - I think I still keep my sense of wonder, which I call childlike, not childish, childlike. I still have a vivid imagination, and I like to try a lot of new things.
+ - I just never want to completely grow up.
+ - Being attractive lasts longer than being pretty.
+ - If you’re lucky enough to get old, I think you should celebrate it.
+ - I was never hurt by what anybody said about my clothes, because I dress to please myself. If somebody doesn’t like what I’m wearing, it’s their problem, not mine.
+ - I say, dress to please yourself. Listen to your inner muse and take a chance. Wear something that says ‘Here I am!’ today.
+ - To find out who you are is like putting yourself on a psychiatric couch, but you have nobody to help you. Really it isn’t easy. I was talking with my nephew this morning and he gave me one of the best quotes I’ve heard in years ‘Personal style is curiosity about oneself.’
+ - Fashion you can BUY, but style you POSSESS.
+ - You have to be interested. If you’re not interested, you can’t be interesting.
+ - I’m not going to be a rebel and offend anybody, but I’m not going to live in somebody else’s image.
+ - You only have one trip. You might as well enjoy it.
+ - My look is either very baroque or very Zen – everything in between makes me itch.
+ - If you hair is done properly and you’re wearing good shoes, you can get anyway with anything.
+ - You’re not pretty, and you’ll never be pretty. But, it doesn’t matter. You have something much better. You have style.
+ - I think dressing up or down should be a creative experience. Exciting. Fun. For me the key to personal style lies in accessories. I love objects from different worlds, different eras, combined my way. Never uptight, achieving – hopefully – a kind of throwaway chic.
+ - If you don’t learn constantly, you don’t grow and you will wither. Too many people wither on the vine. Sure, it gets a little harder as you get older, but new experiences and new challenges keep it fresh.
+ - I can’t tell people how to have style. No amount of money can buy you style. It’s just instinctive.
+ - The world is always full of promise.
+ - I don’t dress to be stared at. I dress for myself.
+ - In my view you can’t go to the future if you haven’t come from the past.
+ - I don’t expect to find inspiration. It just sort of comes. Sometimes you step on a bug and you get inspired.
+ - I always feel that if you’re gonna be uncomfortable and unhappy in something, just because you think it’s in or it’s chic, I would advise you to be happy rather than well-dressed. It’s better to be happy.
+ - You have to observe a few simple rules in dressing, which are really not rules; it’s just being appropriate. If you’re 70 and want to wear miniskirts, 70-year-old knees ain’t pretty!
+ - Jewelry is the most transformative thing you can wear.
+ - You have to look in the mirror and see yourself. If it feels good, then I know it’s for me. I don’t dress to be stared at, I dress for myself.
+ - I’ve always been attracted to unusual eyewear. I thought glasses were an interesting accessory, depending on the shape of your face. People would always ask me, “Why are your frames so large?” And I would say, “The bigger to see you!” And that shut them up.
+ - Coco Chanel said take one thing off. I always said put another one on.
+ - Everything that’s happened to me, nothing’s been planned. I’ve never had a business plan. I just kind of fell into it, and I liked it, and I took a chance. I took a lot of chances in my life.
+ - You can’t just say, “I’m gonna have style.” You have to work at it. It’s intuitive; some people have it, and some people can work on it all day long, and it will never happen.
+ - I’m happy if I can help anybody. I’m more than happy to, but you have to find your own path.
+ - When you’re older, no matter how good your humor is you don’t always feel perky and peppy. But if you sit home all day and brood about it, it gets worse.
+ - I had to be my own person and live my own life if I wanted to be happy, and I just did it.
+ - Given the choice, I would spend my money on accessories.
+ - These are things I love, things I’ve worn. I get more compliments on accessories than anything else. I think they’re kind of like herbs and spices. They give zest and zing to an outfit.
+ - When you go to a nice restaurant, you want to be relaxed and have a drink and everything, you want to look at people who look well. You don’t want to look at some slob with an open shirt and a hairy chest. At least I don’t.
+ - To lead the good life in New York, the two most important things for a woman are a chauffeur and a fur-lined raincoat. If you have those two things, you’re made.
+ - It’s more important to be happy than well-dressed.
+ - I live in the 17th century. I don’t have a computer. I don’t look at the internet. I use a cellphone, and that’s about my only connection to the modern world.
+ - I think fashion is just part of my life and if it hadn’t of been fashion then it would have been something else.
+ - To me there are lots more important things in the world than just having the right shoes!
+ - I’m a great believer in common sense, and the older I get I see that common sense is not that common.
+ - You can’t try to be somebody you’re not; that’s not style.
+ - I’m not a minimalist, as I’m sure you’ve noticed.
+ - You have to know yourself and know what you can carry. If you’re not comfortable, no matter how well dressed you are, you’re not going to look right. I’d rather be happy and feel comfy.
+ - Technologically I live in the 17th century. I have a very simple cell phone. I say I live through the kindness of strangers, because if they see something on the Net they type it out and send it to me.
+ - My mother worshipped at the alter of accessories and I got the bug. She always said, if you have a good, little, simple black dress and you have different accessories, you can have 27 different outfits.
+ - If you’re over 60, arms are not pretty, so I think you should stay covered up. But wear what’s appropriate for what you’re doing, how you live, and what your lifestyle is.
+ - I find that if I get up and push myself, I get lost in what I’m doing, and I forget about everything else until I stop doing it.
+ - When the fun goes out of getting dressed, you might as well be dead.
+ - I love a nice hot pink. I like thick lipstick, otherwise it doesn’t look like you’re wearing any.
+ - I think if women put some more of the time and money they put on their heads in their heads, they’d be better off.
+ - I don’t spend my life getting dressed! I have to put clothes on during the day; I don’t get dressed up at all when I’m working. I’ll wear jeans, or something very simple.
+ - I’m a color person, I’ve never been known to play it safe. Plus I like big bags. My eyeglasses are so big; they don’t fit into smaller bags.
+ - I’ll spend more time getting dressed than I spent at the actual event.
+ - Humor is important in everything. Dress with a little humor and you can go a long way.
+ - I don’t count myself as a fashionista because I do a lot of other things. That’s just a small part of my life.
+ - I was in art school since I was five years old. I’ve always been to art school.
+ - I think that if you have to work very hard at dressing up and it makes you nervous or uptight, then you won’t look very well because you won’t be comfortable. I think it’s much better to be comfortable and happy than well dressed.
+ - The fun of getting dressed is it’s a creative experience.
+ - People would always say to me, “Why are you wearing such large frames?” And I would say, “The bigger to see you.”
+ - I just mix and put things together the way the spirit moves me.
+ - I never just went to look for clothes and style; I always find that wherever I go.
+ - I had a great example with my mother, who was extremely chic.
+ - I don’t think dressing has anything to do with numbers. I know people of 30 who act like they’re 97, and I have a few old-bag friends who are very hip.
+ - I’m making a lot of noise as I walk.
+ - My mother knew if you bought a couple of really good architectural outfits and put your money into accessories, you could create a million different looks. She taught that to me, which I think was invaluable.
+ - My mother worshipped at the altar of the accessory.
+ - I used to collect frames. I’ve been collecting accessories since I was 11-years-old, creeping around flea markets and sales and everything. Whenever I saw unusual eyeglass frames, I bought them.
+
+74 quotes

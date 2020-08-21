@@ -1,0 +1,21 @@
+ - Every Wonder of The World, Every Work of Art, Every Loving Legacy, Started as a Child with a Dream.
+ - A man will never truly know what love feels like until he hears the words: “Sir, You Have a Healthy Baby Girl”
+ - Tell me my friend, are you the leaf or are you the wind?
+ - The World is Full of Amazing people, Hiding in Plain Sight. Do You wish to become a better person? Become an Interviewer of the world.
+ - Gentlemen, She doesn’t care if your are not perfect, She only cares that you try to be.
+ - I will always turn the other way. In business it just makes sense, go where the competition isn’t. In life, well in life, the worst thing you can be is just one of the crowd.
+ - The goal in life is never to stay with the known. Seek out the recondite, converse with the wind, let wonder be your guide.
+ - Please do not wait for anyone else to tell you that you are beautiful. The world will follow your lead.
+ - I am a wayward spirit. I search for soul and respond to compassion.
+ - I have often looked at my daughter and thought “I Just Don’t Understand” but I have never looked at her and thought that I needed too.
+ - I refuse to believe in the impossible, and it will never believe in me.
+ - Gentlemen, You Are Her First Love. She Will Compare all Other Men to You. Be the Man She Needs You to Be.
+ - What they yell at you will never matter, what you whisper to yourself can change the world.
+ - This age of ours, the do more, produce more, instant gratification lives we lead are the poets poison.
+ - The Simple Difference between a Father and a Dad? A Dad always comes back for more.
+ - Evil exposed can be defeated. Self righteousness, moral superiority, and willful ignorance play hide and seek in the shadows, often never revealing the game until their unsuspecting opponent no longer has the strength to go on. But this man, our champion because we have no other, has brought his two candles, and he clings to his lamp. Our writer will keep the shadows at bay.
+ - Around midnight though, are the times of hidden fortune, the times that favor a wanting spirit. Our writer is nothing more than a stubborn, true romantic, determined to tell his tale. A steadfast knight, sword in hand, refusing to believe that long ago the words had gone. But words, like wives, and daughters, can not be gone forever.
+ - Possibility and Hope are the love affair the world has always waited for.
+ - Men, who told you that being a Gentleman was optional?
+
+19 quotes

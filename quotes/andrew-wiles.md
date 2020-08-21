@@ -1,0 +1,26 @@
+ - Just because we can’t find a solution it doesn’t mean that there isn’t one.
+ - I carried this problem around in my head basically the whole time. I would wake up with it first thing in the morning, I would be thinking about it all day, and I would be thinking about it when I went to sleep. Without distraction I would have the same thing going round and round in my mind.
+ - However impenetrable it seems, if you don’t try it, then you can never do it.
+ - The definition of a good mathematical problem is the mathematics it generates rather than the problem itself.
+ - The greatest problem for mathematicians now is probably the Riemann Hypothesis.
+ - Fermat said he had a proof.
+ - It’s fine to work on any problem, so long as it generates interesting mathematics along the way – even if you don’t solve it at the end of the day.
+ - I know it’s a rare privilege, but if one can really tackle something in adult life that means that much to you, then it’s more rewarding than anything I can imagine.
+ - But the best problem I ever found, I found in my local public library.
+ - Pure mathematicians just love to try unsolved problems – they love a challenge.
+ - I had this rare privilege of being able to pursue in my adult life, what had been my childhood dream.
+ - There are proofs that date back to the Greeks that are still valid today.
+ - I was so obsessed by this problem that I was thinking about it all the time – when I woke up in the morning, when I went to sleep at night – and that went on for eight years.
+ - I loved doing problems in school.
+ - I never use a computer.
+ - I grew up in Cambridge in England, and my love of mathematics dates from those early childhood days.
+ - That particular odyssey is now over. My mind is now at rest.
+ - Mathematicians aren’t satisfied because they know there are no solutions up to four million or four billion, they really want to know that there are no solutions up to infinity.
+ - I tried to fit it in with some previous broad conceptual understanding of some part of mathematics that would clarify the particular problem I was thinking about.
+ - The only way I could relax was when I was with my children.
+ - Always try the problem that matters most to you.
+ - We’ve lost something that’s been with us for so long, and something that drew a lot of us into mathematics. But perhaps that’s always the way with math problems, and we just have to find new ones to capture our attention.
+ - Then when I reached college I realized that many people had thought about the problem during the 18th and 19th centuries and so I studied those methods.
+ - I really believed that I was on the right track, but that did not mean that I would necessarily reach my goal.
+
+24 quotes

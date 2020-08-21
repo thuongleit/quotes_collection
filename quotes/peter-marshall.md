@@ -1,0 +1,26 @@
+ - Small deeds done are better than great deeds planned.
+ - When we long for life without difficulties, remind us that oaks grow strong in contrary winds and diamonds are made under pressure.
+ - A different world cannot be built by indifferent people.
+ - May we think of freedom, not as the right to do as we please, but as the opportunity to do what is right.
+ - Lord, where we are wrong, make us willing to change; where we are right, make us easy to live with.
+ - The use of the right word, the exact word, is the difference between a pencil with a sharp point and a thick crayon.
+ - In the name of Jesus Christ, who was never in a hurry, we pray, O God, that You will slow us down, for we know that we live too fast. With all of eternity before us, make us take time to live – time to get acquainted with You, time to enjoy Your blessings, and time to know each other.
+ - Anarchism as a political philosophy seeks to dissolve all forms of authority and power, and if possible, wishes their complete abolition.
+ - It is better to fail in a cause that will ultimately succeed than to succeed in a cause that will ultimately fail.
+ - Unless we stand for something, we shall fall for anything.
+ - God will not permit any troubles to come upon us, unless He has a specific plan by which great blessing can come out of the difficulty.
+ - Enthusiasm is not contrary to reason; it is reason – on fire.
+ - Most of us know perfectly well what we ought to do; our trouble is that we do not want to do it.
+ - Give according to your income lest God make your income according to your giving.
+ - God hasn’t given up on you. He can still do great things for you, in you, and through you. God is ready and waiting and able. What about you, and me?
+ - Teach us, O Lord, the disciplines of patience, for to wait is often harder than to work.
+ - Let us not fool ourselves – without Christianity, without Christian education, without the principles of Christ inculcated into young life, we are simply rearing pagans.
+ - The proof of how real Jesus knew hell to be is that He came to earth to save us from it.
+ - The choice before us is plain: Christ or chaos, conviction or compromise, discipline or disintegration.
+ - The resurrection never becomes a fact of experience until the risen Lord lives in the heart of the believer.
+ - Christianity is a power religion. Christ has the power to re-create men from the inside out, as every man who has ever met Him knows.
+ - If you hug to yourself any resentment against anybody else, you destroy the bridge by which God would come to you.
+ - If God does not enter your kitchen, there is something wrong with your kitchen. If you can’t take God into your recreation, there is something wrong with your play. We all believe in the God of the heroic. What we need most these days is the God of the humdrum, the commonplace, the everyday.
+ - The aim is not therefore to liberate some ‘essential self’ by throwing off the burden of government and the State, but to develop the self in creative and voluntary relations with others.
+
+24 quotes

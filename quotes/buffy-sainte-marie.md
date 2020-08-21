@@ -1,0 +1,42 @@
+ - Language and culture cannot be separated. Language is vital to understanding our unique cultural perspectives. Language is a tool that is used to explore and experience our cultures and the perspectives that are embedded in our cultures.
+ - The artistic process in digital art is very much the same as for making other kinds of paintings.
+ - Digital art software has empowered both the painterly side of photographers, and the photographer side of painters.
+ - I had a teacher’s degree and a degree in Oriental Philosophy from the University of Massachusetts. I thought I was going to India to study but all of a sudden, I had a career in music. It really surprised me.
+ - You have to leave room in life to dream.
+ - Some people say I was very brave, but I really just didn’t know any better. All I had was my originality.
+ - Music has been my playmate, my lover, and my crying towel.
+ - You have to sniff out joy. Keep your nose to the joy trail.
+ - I feel sorry for people of good heart who have never had a chance to learn the realities of Native American everything – not just our history but the sweetness and the beauty and the reasons why were so close to Mother Earth.
+ - Instead of kids just hearing about beads and baskets and fringe, and about what ‘was’ and ‘were,’ we present Native American culture as a living contemporary culture.
+ - All kids, I think, are creative, but they get it pounded out of them in school.
+ - Everybody’s creative. We create our songs and our paintings, our families and our children. Every one of us is on the cutting edge of the future.
+ - I always had wished somebody else would sing my songs, but there wasn’t anybody who knew them, so I sang them myself and eventually became a better singer and guitar player.
+ - There is so much joy in native culture but so much poverty. It’s very disturbing.
+ - My first Macintosh was a 128k machine which I upgraded to 512k the minute it became possible.
+ - I sang a song in Hindi; nobody even knew what that was. Singing about Native American issues, nobody did that. I had no reason to want to copy anybody else. All I had was my originality.
+ - When we draw on the tablet, the drawing shows up on the computer screen. If we have chosen to tell the computer that the stylist is to behave like a piece of chalk, or a pen, or a wet brush, it will.
+ - But in the old days, visual artists used to fall into two distinct categories: those of us who created images with cameras and those of us who applied stuff onto other stuff, with brushes or other tools.
+ - People sometimes ask me, because of the blacklisting, “Do you hate the government? Don’t you hate white people?” No, it’s greed that’s the problem.
+ - If I’m interrupted, it’s just a minor inconvenience, but not a disaster, because it’s easy to get back where I was: that is, the paint has not changed consistency; the light has not moved.
+ - I didn’t know what I was gonna get the first time I sat down at a piano, but I loved it and it became my playmate for life.
+ - He’s a Catholic, a Hindy, an atheist, a Chein, a Buddhist, a Baptist and a Jew, and he knows, he shouldn’t kill.
+ - Sixteen million colors in your palette are hard for any artist, especially a beginner, to turn down.
+ - The paintings are transferred from my computer to a disk, and I can hand it to the printer this way; or I can modem the painting to the printer over the phone lines from my house in Hawaii.
+ - The key is in remaining just aloof enough from a painting so that you know when to stop.
+ - I work closely with the printer to get the final print the way I want it.
+ - As a teenager I started painting and playing guitar.
+ - I’m trying to entice people, and sometimes my information is very hard hitting. So I’ve always wanted to have a soft approach.
+ - Some of my songs are like dreams, and when you go to sleep at night you don’t know if you’re gonna have a dream or what you’re gonna dream about.
+ - Digital imaging allows both groups to rise above the limitations of mess and clutter and mechanics, and apply our talents to creating images limited only by our imaginations.
+ - It was a black and white only computer at the time, but it kept me fascinated.
+ - By looking at the questions the kids are asking, we learn the scope of what needs to be done.
+ - That is, an artist who creates lots of work probably experiences prolific days and slower days.
+ - Children don’t have to be raised. They’ll grow.
+ - Grab a guitar, put some kind of strings on it, a banjo string, then a violin string, then a guitar string, tune it any way you want, and make some noise, and see what you get. And work on it until you get something that you think is interesting. That’s all there is to art for me.
+ - The time I save setting up and cleaning up probably balances out by the time I spend on output.
+ - Another time factor is output: proofing and printing. That is, getting your work out of the computer and onto paper and having it satisfy you. It can be time consuming and expensive.
+ - I had no reason to want to copy anybody else. What I wanted to give audiences for the few minutes that I thought my career would last was something unique.
+ - I was playing with sound like I would have played with pots and pans as a kid.
+ - All the lights on Broadway don’t amount to an acre of green.
+
+40 quotes

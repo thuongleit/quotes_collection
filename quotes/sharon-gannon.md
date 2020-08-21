@@ -1,0 +1,96 @@
+ - Worry is a prayer for something you don’t want.
+ - Don’t expect others to change. Instead, take on the project and see if you can become the change you want to see in the world. Try your best to let go of anger, blame and seeing yourself as a victim.
+ - Be confident in yourself, in your abilities, and in your goals. Then go for it.
+ - Animals are not ours to eat, wear, experiment on, use for entertainment or for any exploitative purpose.
+ - You cannot change the past but you can start now and lay the foundation for the future.
+ - The way you treat others determines the way others treat you; the way others treat you determines the way you see yourself; the way you see yourself determines who you are.
+ - Create the kind of world you want to live in by how you treat others now.
+ - To be an environmentalist is to care about the environment and care about life on planet Earth.
+ - Life begins with an inhale and ends with an exhale. ln between that inhale and that exhale is our life.
+ - The best way to uplift our own lives is to do all we can to uplift the lives of others.
+ - Be a communicator, not a self-righteous proselytizer or preacher. Many people are only concerned with expressing themselves, which isn’t necessarily communication.
+ - You cannot do yoga. Yoga is your natural state. What you can do are yoga exercises, which may reveal to you where you are resisting your natural state.
+ - We create the world we live in. If we want to change what we don’t like in the world, we must start by changing what we don’t like about ourselves.
+ - Live with the anticipation that something incredible might happen at any time.
+ - What we see in the world around us is just a reflection of what is inside of us.
+ - If you want people to listen to you, then be willing to listen to them.
+ - When we have a choice it is always best to choose kindness. Veganism is simply the kinder choice.
+ - Human population growth is a problem in that most humans consume more than they need. The Earth’s resources are now strained to sustain the needs and wants of the human population, which continues to escalate.
+ - If you practice Yoga for small, selfish reasons, you will remain the same, bound by your beliefs about what you can and cannot do. Let go and offer your effort to limitless potential. Dedicate yourself to the happiness of all beings.
+ - Human beings have been waging war and destroying the environment for long time. Just because it has been going on for a long time and become an unquestioned habit, does that mean it should be allowed to continue.
+ - Communication implies communing, having a shared experience with another, not “talking at” or “talking down to” someone.
+ - Yoga is many things to many people, but in its full potential the practice of yoga can provide the means to transform suffering into happiness and Suzanne Bryant’s film YOGA IS shows us this path.
+ - Most of the plants grown to be fed to farm animals are heavily saturated with pesticides and herbicides and have been genetically modified, all of which contributes to the pollution and destruction of our environment, which harms us all.
+ - By choosing to be kind instead of cruel, we can break the karmic chain of reacting to violence with more violence, contributing to a more peaceful future for everyone.
+ - Whatever you want to have happen to you make it happen for others now and eventually but inevitably you will reap the seeds you have sown.
+ - We are so unconscious about our actions that we don’t even realize the immense suffering we are causing to animals, the planet, and ourselves.
+ - The enemy of the spirit is the selfish ego, which thinks that happiness can be gained through causing unhappiness and disharmony to others. In many ancient languages, the word for enemy means “one who falls out of rhythm; one who is not working in harmony with the larger group.”
+ - What we do to others will come back to us. You can’t expect to be happy by causing unhappiness to others.
+ - The yogi in love needs only to whisper the beloved name, and all desire is fulfilled. To hear Shyamdas speak of The Lover’s Life is to be transported into the eternal magical realm of love, where infinite possibilities become possible.
+ - The way we treat animals is the root cause of all the human suffering in the world, from poverty, starvation, disease, and war to lack of clean air and water, not to mention all the varied forms of human emotional and spiritual suffering.
+ - If we want to consider the sanctity of life in deciding what to eat, the choice is clear. Eating a plant based diet causes less harm, to ourselves, to the other animals, to the planet.
+ - Three things to never leave home without: your keys, birdseed for the birds, and your mala beads to chant through difficulties.
+ - Compassion is essential for any type of relationship between anybody – human to human, human to dog, human to cat, human to bird.
+ - Today “aged” foods like sauerkraut, miso, and tempeh are fermented in hygienically sanitized stainless-steel vats to assure cleanliness, so we can no longer be sure they will provide us with the B12 we need. Vegans should not mess around with this issue.
+ - The raising of animals for food and all that it entails is the single most destructive force impacting our planet’s fragile ecosystems. Our planet simply cannot sustain the greed of billions of human beings who are eating other animals.
+ - Don’t wait for a better world. Start now to create a world of harmony and peace. It is up to you, and it always has been. You may even find the solution at the end of your fork.
+ - To cultivate compassion, try to remember that others are doing the best they can, just like you, and that when someone does something abusive, they are getting something that they feel is positive from the experience.
+ - What we do to others will come back to us.
+ - We are the only animals who steal and drink the milk from other species.
+ - Inspiration pushes me out of my tight intellectual comfort zone and into humility, the wonderous state of not knowing. From this place of zero, limitless possibilities seem to arise.
+ - Choosing to be kind rather than to be cruel benefits everyone.
+ - It is true that every being is enjoying life or suffering as a direct result of his or her own past actions. The animals in the factory farms may have been meat-eating human beings in a previous birth; we don’t know, and it is not our place to judge.
+ - I don’t miss another opportunity to try to do my best to finish the things I have left undone. I could say: It’s my unresolved karma that wakes me up in the morning.
+ - Knowing the truth about the hell-realms that animals have to endure, it would be wise of us to do our best now not to plant the karmic seeds that would cause us to be reborn as an animal in one of those hell realms.
+ - Our breath is connected to the air that every being breathes. By breathing consciously, we acknowledge our communion with all of life.
+ - Through the practice of yoga, you come to feel confident and develop a feeling of wholeness and completeness; you are not likely to feel deprived or ‘less than.’ People steal because they feel deprived. They try to make up for their deficits by depriving others.
+ - We have become so addicted to our greed-driven habits that we have lost our moral compass and don’t know what is right and wrong.
+ - All living beings are spiritual beings because all of life breathes. Breath is an indication that spirit is present.
+ - Try your best not to get distracted from your goal. Let everything you do be your way of getting closer to your enlightenment; never take a vacation from spiritual practice.
+ - Remember that everyone you see and every situation you find yourself in has come from inside of you; you have created your reality by how you have treated others in your past.
+ - We must stop viewing ourselves as separate and disconnected from the rest of life, as if we are a special case and the laws of nature or karma do not apply to us.
+ - Human overconsumption is a greater problem than human population growth, and meat eating is a big part of that problem.
+ - When you feel destructive, negative emotions like hate and anger arise within you towards the person opposing you; cultivate the opposite state of mind.
+ - To meet the huge consumer demand for fish, the industry can no longer rely on hunting wild fish. Now we are doing to fish what was done to wild cows, sheep, goats, chickens, and ducks thousands of years ago: we are confining them in holding pens.
+ - One’s knowledge of karma should not be used to judge others. You should ask yourself: Do I like where I am going, or do I want to change my direction?
+ - The number of human deaths due to hardening of the arteries and other similar diseases suggests that human beings were not meant to eat animals; our bodies are unable to digest the animal fat effectively and it ends up stored in our blood vessels, not to mention our waist lines, buttocks and thighs!
+ - On average, most people consume between 100 – 120 grams of protein per day. Not only is that unhealthy, it’s extremely dangerous, as the majority of the protein consumed is animal based.
+ - Eating vegetables, fruits and grains rarely causes total destruction of the plant or tree on which the food grew; after harvesting, seeds remain to be replanted the next season. But this certainly does not happen when an animal is slaughtered – death is final; that animal will not reproduce again!
+ - Yoga teaches us that we can have whatever we may want in life if we are willing to provide it for others first.
+ - There are many activities that human beings have been doing “forever.” We might argue from that perspective that eating meat should be allowed to continue. Men have been raping women for thousands of years; does that mean that it is normal and should be allowed to continue?
+ - To live and breathe with an exclusive focus on one’s small self, disconnected from the whole, is the definition of egotism.
+ - As a yoga practitioner with some understanding of how karma works, you have to ask the question, “If I am seeking liberation, will it serve my purpose to rob other beings of their freedom?”
+ - Everything we do should contribute to happiness.
+ - If yogis are to come to the realization of the interconnectedness of life, then we must free ourselves from the conditioning that has caused us to think it is all right to exclude all the other animals from our own goals of peace, freedom, and happiness.
+ - Yoga practices shift our identity away from the ego-personality and its struggles so that we can begin to reconnect with the essential nature of our being, which is bliss.
+ - Each of us, through the actions we take, plant the seeds which will eventually but inevitably grow and create the reality we will find ourselves living in.
+ - The present moment is where eternity exists.
+ - If we weren’t so dirt-conscious, we would obtain adequate vitamin B12 from soil, air, water, and bacteria, but we meticulously wash and peel our vegetables now – and with good reason, as we can’t be sure our soil is not contaminated with pesticides and herbicides.
+ - Lions and other carnivorous animals do eat meat, but that doesn’t mean we should. They would die if they didn’t eat meat. Human beings, in contrast, choose to eat meat; it isn’t a physiological necessity.
+ - Through the practices of yoga, we discover that concern for the happiness and well being of others, including animals, must be an essential part of our own quest for happiness and well being. The fork can be a powerful weapon of mass destruction or a tool to create peace on Earth.
+ - What you eat should not just be “good for you” but it should contribute to your happiness – it should make you a happier person.
+ - The ridicule you may endure from others when you speak up for animals can help you to hone your skills, enabling you to become better at articulating your message in an informed, compassionate, and communicative way.
+ - You cannot do yoga. Yoga is your natural state.
+ - Some well-to-do parents may say, “I have a right to have as many children as I want because I can take care of them.” That may be so, but can the Earth take care of them?
+ - We can’t have happiness if we cause others unhappiness.
+ - Sunlight is essential to the body’s ability to absorb calcium from the food you are eating. Make sure you receive adequate vitamin D every day through sunlight. About fifteen to twenty minutes of sun on the face and hands is usually enough for most of us.
+ - All breathing beings are spiritual; this includes everyone who breathes, whether they are animals or humans, carnivores or vegetarians.
+ - Because of our unenlightenment, we do not know that what we do to others we ultimately do to ourselves.
+ - Fishing is taking a huge toll on the planet’s ecosystem. We are emptying the oceans, seas, lakes, and rivers as we fish them dry.
+ - Through the deeply theraputic practice of asana, we begin to purify our karmas, thereby healing our past relationships with others and reestablishing a steady and joyful connection with the Earth, which means all beings.
+ - We ourselves can never be free if we rob others of their freedom.
+ - By working to alleviate the suffering of animals you are working at the cause level of human suffering.
+ - If you want to know if someone is a “spiritual being” ask yourself, “Is he or she breathing?” If the answer is yes, then you know that you are in the presence of a spiritual being.
+ - Through yoga practice you can change the course of your life by purifying your karma. But to do that you must have an idea of where you’ve been and where you want to go.
+ - Eating a vegetarian diet can contribute more to saving ourselves and the planet than any other single effort.
+ - Fishing is not a benign activity; it is hunting in the water.
+ - The best we can do is strive to minimize the amount of harm we cause by living. We need to eat in order to live, and there is no moral or ethical code that dictates that we should refrain from eating and allow ourselves to die for some higher purpose.
+ - In fact, we are designed anatomically to be vegetarians.
+ - I passionately feel that as long as we view ourselves as superior and other animals as exploitable our consciousness will remain stuck in a level of ignorance that will disallow a full realization of the truth underlying reality.
+ - Compassion is the key to a successful relationship because by means of compassion we can access the innermost needs of the other. When we are aware of those needs, we can begin to communicate and not just profess what we think we know and demand that others change because we want them to.
+ - To be alive is to be breathing.
+ - If we ourselves want to be free and happy then by enslaving and harming animals we will not be able to achieve our goal.
+ - Yoga may have originated in India, where the cow has been revered as sacred for thousands of years, but times have changed since Lord Krishna played his flute for the cows of Vrindavan. There are factory farms in India now.
+ - The practices of Yoga will help you maintain equanimity in all situations by teaching you to become transparent, able to allow both joy and sorrow to flow through you without destroying your peace of mind.
+
+94 quotes

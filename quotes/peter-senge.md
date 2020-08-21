@@ -1,0 +1,77 @@
+ - Don’t push growth; remove the factors limiting growth.
+ - All great things have small beginnings.
+ - Team learning is the Process of aligning and developing the capacity of a team to create the results its members desire. It builds on the discipline of developing a shared vision. It also builds on personal mastery, for talented teams are made up of talented individuals.
+ - Systems thinking is a discipline for seeing wholes. It is a framework for seeing interrelationships rather than things, for seeing ‘patterns of change’ rather than static ‘snapshots.’
+ - A learning organization is an organization that is continually expanding its capacity to create its future.
+ - Sharing knowledge is not about giving people something, or getting something from them. That is only valid for information sharing. Sharing knowledge occurs when people are genuinely interested in helping one another develop new capacities for action; it is about creating learning processes.
+ - Knowledge is constructed, not transferred.
+ - The gap between vision and current reality is also a source of energy. If there were no gap, there would be no need for any action to move towards the vision. We call this gap creative tension.
+ - In great teams, conflict becomes productive. The free flow of conflicting ideas is critical for creative thinking, for discovering new solutions no one individual would have come to on his own.
+ - Teams, not individuals, are the fundamental learning unit in modern organizations. This is where the “rubber stamp meets the road”; unless teams can learn, the organization cannot learn.
+ - Few, if any, forces in human affairs are as powerful as shared vision.
+ - Leadership is about creating new realities.
+ - An accurate, insightful view of current reality is as important as a clear vision.
+ - A unique relationship develops among team members who enter into dialogue regularly. They develop a deep trust that cannot help but carry over to discussions. They develop a richer understanding of the uniqueness of each person’s point of view.
+ - Learning organizations organizations where people continually expand their capacity to create the results they truly desire, where new and expansive patterns of thinking are nurtured, where collective aspiration is set free, and where people are continually learning how to learn together.
+ - Like a pane of glass framing and subtly distorting our vision, mental models determine what we see.
+ - Mental models are deeply ingrained assumptions, generalizations, or even pictures of images that influence how we understand the world and how we take action.
+ - Learning cannot be disassociated from action.
+ - Personal mastery teaches us to choose. Choosing is a courageous act: picking the results and actions which you will make into your destiny.
+ - In great teams conflict becomes productive.
+ - Reality is made up of circles but we see straight lines.
+ - Small changes can produce big results – but the areas of highest leverage are often the least obvious.
+ - Personal mastery is the discipline of continually clarifying and deepening our personal vision, of focusing our energies, of developing patience, and of seeing reality objectively.
+ - Mastery of creative tension brings out the capacity for perseverance and patience. Time is an ally.
+ - In dialogue, individuals gain insights that simply could not be achieved individually.
+ - The easy way out usually leads back in.
+ - In a learning organization, leaders are designers, stewards, and teachers. They are responsible for building organizations where people continually expand their capabilities to understand complexity, clarify vision, and improve shared mental models – that is, they are responsible for learning.
+ - Dividing an elephant in half does not produce two small elephants.
+ - All human beings are born with unique gifts. The healthy functioning community depends on realizing the capacity to develop each gift.
+ - The most effective people are those who can “hold” their vision while remaining committed to seeing current reality clearly.
+ - Dialogue starts with the willingness to challenge our own thinking, to recognize that any certainty we have is, at best, a hypothesis about the world.
+ - Through learning we re-create ourselves. Through learning we become able to do something we never were able to do. Through learning we reperceive the world and our relationship to it. Through learning we extend our capacity to create, to be part of the generative process of life.
+ - We learn together in teams. This involves a shift from a spirit of advocacy to a spirit of enquiry.
+ - The further human society drifts away from nature, the less we understand interdependence .
+ - Scratch the surface of most cynics and you find a frustrated idealist – someone who made the mistake of converting his ideals into expectations.
+ - People with a high level of personal mastery are able to consistently realize the results that matter most deeply to them-in effect, they approach their life as an artist would approach a work of art. The do that by becoming committed to their own lifelong learning.
+ - We need to be the authors of our own life.
+ - Through learning we re-create ourselves. Through learning we become able to do something we were never able to do.
+ - When teams are truly learning, not only are they producing extraordinary results, but the individual members are growing more rapidly than could have occurred otherwise.
+ - We often spend so much time coping with problems along our path that we forget why we are on that path in the first place. The result is that we only have a dim, or even inaccurate, view of what’s really important to us.
+ - The key to success isn’t just thinking about what we are doing but doing something about what we are thinking.
+ - I often say that leadership is deeply personal and inherently collective. That’s a paradox that effective leaders have to embrace.
+ - The capacity of a human community to shape it’s future.
+ - Structures of which we are unaware hold us prisoner.
+ - Courage is simply doing whatever is needed in pursuit of the vision.
+ - Learning is all about connections, and through our connections with unique people we are able to gain a true understanding of the world around us.
+ - It takes courage and skill to be unambiguous and clear.
+ - When placed in the same system, people, however different, tend to produce similar results.
+ - When all is said and done, the only change that will make a difference is the transformation of the human heart.
+ - The organizations that will truly excel in the future will be the organizations that discover how to tap people’s commitment and capacity to learn at all levels in an organization.
+ - The faster we go, the slower we need to be.
+ - Over the long run, superior performance depends on superior learning.
+ - In some ways clarifying a vision is easy. A more difficult challenge comes in facing current reality.
+ - If you want real, significant, sustainable change, you need talented, committed local line leaders. If the line manager is not innovating, then innovation is not going to occur.
+ - If people don’t have their own vision, all they can do is ‘sign-up’ for someone else’s.
+ - Innovation requires resources to invest, and you can see many companies pulling back and going into an intense protective mode in a major extended period of financial distress.
+ - In the absence of a great dream pettiness prevails. Shred visions foster risk taking, courage and innovation. Keeping the end in mind creates the confidence to make decisions even in moments of crisis.
+ - The systems perspective tells us that we must look beyond individual mistakes or bad luck to understand important problems.
+ - Collaboration is vital to sustain what we call profound or really deep change, because without it, organizations are just overwhelmed by the forces of the status quo.
+ - Learning to see the structures within which we operate begins a process of freeing ourselves from previously unseen forces and ultimately mastering the ability to work with them and change them.
+ - When I look at efforts to create change in big companies over the past 10 years, I have to say that there’s enough evidence of success to say that change is possible – and enough evidence of failure to say that it isn’t likely. Both of those lessons are important.
+ - Willpower is so common among highly successful people that many see its characteristics as synonymous with success.
+ - The company-as-a-machine model fits how people think about and operate conventional companies. And, of course, it fits how people think about changing conventional companies: You have a broken company, and you need to change it, to fix it.
+ - Governments, especially democratic ones, are short-term and nationalistic.
+ - Most leadership strategies are doomed to failure from the outset. As people have been noting for years, the majority of strategic initiatives that are driven from the top are marginally effective – at best.
+ - Yet, most every corporate effort to graft this truly innovative practices into their culture has failed because, again and again, people reduce the living practice of AAR’s to a sterile technique.
+ - Perhaps for the first time in history, human-kind has the capacity to create far more information than anyone can absorb; to foster far greater interdependency than anyone can manage, and to accelerate change far faster than anyone’s ability to keep pace.
+ - The Industrial Age is not sustainable. Its not sustainable in ecological terms, and its not sustainable in human terms.
+ - If there is genuine potential for growth, build capacity in advance of demand, as a strategy for creating demand. Hold the vision, especially as regards assessing key performance and evaluating whether capacity to meet potential demand is adequate.
+ - Theres a lot of American kids think their food comes from the grocery store and the concept of seasonality has no meaning to them whatsoever.
+ - In a sluggish system, aggressiveness produces instability. Either be patient or make the system more responsive.
+ - Many in positions of authority lack the capabilities to truly lead. They are not credible. They do not command genuine respect. They are not committed to serve. They are not continually learning and growing. They are not wise.
+ - If you want to see the future of management education you should go to see Team Academy.
+ - When executives lead as teachers, stewards, and designers, they fill roles that are much more subtle and long-term than those of power-wielding hierarchical leaders.
+ - In the Machine Age, the company itself became a machine – a machine for making money.
+
+75 quotes

@@ -1,0 +1,46 @@
+ - Between me and my roommate, we’ve hit 400 Major League home runs.
+ - In 1962 I was named Minor League Player of the Year. It was my second season in the bigs.
+ - Sure, women sportswriters look when they’re in the clubhouse. Read their stories. How else do you explain a capital letter in the middle of a word?
+ - I remember one time I’m batting against the Dodgers in Milwaukee. They lead, 2 – 1, it’s the bottom of the ninth, bases loaded, two out and the pitcher has a full count on me. I look over to the Dodger dugout and they’re all in street clothes.
+ - I hit a grand slam off Ron Herbel and when his manager Herman Franks came out to get him, he was bringing Herbel’s suitcase.
+ - Any teammate of mine that had a kid and a boy that was capable of playing baseball, I think I set a terrific example of ‘Don’t do this’ and ‘Don’t do that.’ And that’s one of the things that I’m most proud of.
+ - Anybody with ability can play in the big leagues. But to be able to trick people year in and year out the way I did, I think that was a much greater feat.
+ - I knew when my career was over. In 1965 my baseball card came out with no picture.
+ - When I looked at the third base coach, he turned his back on me.
+ - Where would I be without baseball? Who am I without baseball?
+ - People don’t know this, but I helped the Cardinals win the pennant. I came down with hepatitis. The trainer injected me with it!
+ - I would order a dozen bats and there were times they’d come back with handles at each end.
+ - I had a .200 lifetime batting average in the major leagues, which tied me with another sports great averaging 200 or better for a ten-year period: Don Carter, one of our top bowlers.
+ - The way to catch a knuckleball is to wait until it stops rolling and then pick it up.
+ - Baseball hasn’t forgotten me. I go to a lot of old-timers games and I haven’t lost a thing. I sit in the bullpen and let people throw things at me. Just like old times.
+ - You throw batting practice, you warm up pitchers, you sit and cheer. You do whatever you have to do to stay on the team.
+ - I had a great shoe contract and glove contract with a company who paid me a lot of money never to be seen using their stuff.
+ - I did stand-up, weird and ignorant stuff about my career – anything for a laugh.
+ - People have asked me a lot of times, because I didn’t hit a lot, how long a dozen bats would last me. Depending on the weight and model I was using at that time – I would say eight to 10 cookouts.
+ - After getting out of the service and going into baseball I never wanted to do anything else.
+ - I had slumps that lasted into the winter.
+ - The highlight of my baseball career came in Philadelphia’s Connie Mack Stadium when I saw a fan fall out of the upper deck. When he got up and walked away, the crowd booed.
+ - I led the league in go get ’em next time.
+ - I had been playing for a while, and I asked Louisville Slugger to send me a dozen flame treated bats. But when I got it, I realized they had sent me a box of ashes.
+ - When I came up to bat with three men on and two outs in the ninth, I looked in the other team’s dugout and they were already in street clothes.
+ - When I played baseball I got death threats all the time – from my mother.
+ - I make fun of situations and try and find the humor in things, but it’s never at the expense of the other guy.
+ - I signed a very modest $3,000 bonus with the Braves in Milwaukee. And my old man didn’t have that kinda money to put out.
+ - I spent three of the best years of my life in 10th grade.
+ - I hope the fans have enjoyed listening as much as I’ve enjoyed doing the games. I don’t ever go to the park where I don’t have a good day. I don’t like losing. But I don’t think I ever go to the park where I have a bad day. I don’t think once.
+ - My kids used to do things to aggravate me, too. I’d take them to a game, and they’d want to come home with a different player.
+ - They broke it to me gently. The manager came up to me before a game and told me they didn’t allow visitors in the clubhouse.
+ - Before broadcasting for 50-some years, I did TV, played 10 years in the big leagues, won a world championship – and played a big part in that, too, letting the Cardinals inject me with hepatitis. Takes a big man to do that.
+ - Phil Niekro and his brother were pitching against each other in Atlanta. Their parents were sitting right behind home plate. I saw their folks more that day than they did the whole weekend.
+ - They have Easter egg hunts in Philadelphia, and if the kids don’t find the eggs, they get booed.
+ - Anybody with ability can play in the big leagues. To last as long as I did with the skills I had, with the numbers I produced, was a triumph of the human spirit.
+ - I set records that will never be equaled. In fact, I hope 90% of them don’t even get printed.
+ - I was acting when I was playing baseball.
+ - On TV the people can see it. On radio you’ve got to create it.
+ - We were on for six years. We were in syndication for a while. It had its run. I still see the people from ‘Mr. Belvedere,’ too. We stay in touch.
+ - If a guy hits .300 every year, what does he have to look forward to? I always tried to stay around .190, with three or four RBI. And I tried to get them all in September. That way I always had something to talk about during the winter.
+ - I just grew the hair on my back. Facial hair just wasn’t appealing to me. I liked it on my back, though.
+ - Sporting goods companies pay me not to endorse their products.
+ - Let’s face it. Umpiring is not an easy or happy way to make a living. In the abuse they suffer, and the pay they get for it, you see an imbalance that can only be explained by their need to stay close to a game they can’t resist.
+
+44 quotes

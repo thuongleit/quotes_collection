@@ -1,0 +1,27 @@
+ - Impatience can cause wise people to do foolish things.
+ - Sometimes love isn’t fireworks, sometimes love just comes softly.
+ - Home is where you will always have a place, where you will always feel loved, and you will never be alone.
+ - The truth of God’s love is not that He allows bad things to happen, it’s his promise that he will be there with us – when they do.
+ - Sometimes, the darkest part of the morning is just before dawn.
+ - God will show you who to partner with when the time comes.
+ - She thanked God that life was not always winter, that spring always came at last to chase away the cold and heaviness, and to release one to warmth and movement again.
+ - Blessings sometimes show up in unrecognizable disguises.
+ - Those who choose to be servants know the most about being free.
+ - True love is born of experience, not fairy dust.
+ - Never despise meger beginings!
+ - No one ever outgrows the need for a mother’s love.
+ - God knows best. We can trust Him with our lives as well as our eternal souls. He does not take something from us without filling that spot with something just as good – and because it’s from Him, even much better.
+ - Little is much, If love abides.
+ - A quiet morning with a loving God puts the events of the upcoming day into proper perspective.
+ - Showing kindness to others is one of the nicest things we can do for ourselves.
+ - When God allows something to be taken from you, He replaces it with something better.
+ - Buried under the biggest burden is a good place to find an even bigger blessing.
+ - A good friend remembers what we were and sees what we can be...
+ - Getting things accomplished isn’t nearly as important as taking time for love.
+ - Having someone who understands is a great blessing for ourselves. Being someone who understands is a great blessing to others.
+ - We may surprised at whom God sends to answer our prayers.
+ - How we leave the world is more important than how we enter it.
+ - Experience teaches us when to wait and when to move forward.
+ - People who live in fear tend to do a powerful lot of nothing.
+
+25 quotes

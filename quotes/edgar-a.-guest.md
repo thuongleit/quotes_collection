@@ -1,0 +1,52 @@
+ - He started to sing as he tackled the thing. That couldn’t be done, and he did it.
+ - I’d rather see a sermon than hear one any day; I’d rather one should walk with me than merely tell the way.
+ - When you’re up against a trouble, meet it squarely, face to face. Lift your chin and set your shoulders, plant your feet and take a brace. When it’s vain to try to dodge it, do the best that you can do. You may fail, but you may conquer. See it through!
+ - The things are mighty few on earth that wishes can attain. Whate’er we want of any worth, we’ve got to work to gain.
+ - A happy New Year! Grant that I May bring no tear to any eye When this New Year in time shall end Let it be said I’ve played the friend, Have lived and loved and labored here, And made of it a happy year.
+ - Courage must come from the soul within; the man must furnish the will to win. So figure it out for yourself, my lad. You were born with all that the great have had.
+ - Don’t give up, what’ve you do; eyes front, head high to the finish. See it through!
+ - Now seeds are just dimes to the man in the store And the dimes are the things that he needs, And I’ve been to buy them in seasons before But have thought of them merely as seeds; But it flashed through my mind as I took them this time, “You purchased a miracle here for a dime.”
+ - I have to live with myself and so, I want to be fit for myself to know.
+ - Love has the patience to endure the fault it sees but cannot cure.
+ - Life is like a cocktail, made up for the most part of sweet things, and tinged with a dash of bitters. We must drain it to the dregs to get at the cherry, just as we must live a full and rounded life to know all its pleasures.
+ - Lord, this humble house we’d keep Sweet with play and calm with sleep. Help us so that we may give Beauty to the lives we live. Let Thy love and let Thy grace Shine upon our dwelling place.
+ - No one is beat till he quits, no one is through till he stops. No matter how hard failure hits, no matter how often he drops, a fellow’s not down till he lies in the dust and refuses to rise.
+ - Stick to the fight whenyoure hardest hit.
+ - I’d like to be the sort of friend that you have been to me. I’d like to be the help that you’ve been always glad to be; I’d like to mean as much to you each minute of the day, as you have meant, old friend of mine, to me along the way.
+ - Fine counsel is confusing, but example is always clear.
+ - So long as men shall be on earth, there will be tasks for them to do. Some way for them to show their worth. Each day shall bring its problems new. And men shall dream of mightier deeds than ever have been done before. There always shall be human needs for men to work and struggle for.
+ - I take the family shopping round. The markets of the world.
+ - I want to be able, as days go by, always to look myself straight in the eye.
+ - Oh, you’ll not be any poorer if you smile along your way. And your lot will not be harder for the kindly things you say. Don’t imagine you are wasting time for others that you spend. You can rise to wealth and glory and still pause to be a friend.
+ - You are the person who has to decide. Whether you’ll do it or toss it aside; You are the person who makes up your mind. Whether you’ll lead or will linger behind. Whether you’ll try for the goal that’s afar. Or just be contented to stay where you are.
+ - Let me be a little kinder, Let me be a little blinder to the faults of those around me.
+ - Spring’s greatest joy beyond a doubt is when it brings the children out.
+ - Columbus dreamed of an unknown shore at the rim of a far flung sky.
+ - But keep on working and hoping still. For in spite of the grumblers who stand about, somehow, it seems, all things work out.
+ - If you never take a chance, you will never be defeated – but you will never accomplish anything either.
+ - Be a friend. You don’t need glory. Friendship is a simple story.
+ - One deed of kindness noticed is worth forty that are told.
+ - I take simple everyday things that happen to me and I figure it happens to a lot of other people and I make simple rhymes out of them.
+ - Somebody scoffed, Oh, you’ll never to that – At least no one ever has done it; But he took off his coat and he took off his hat, And the first thing we knew, he’d begun it.
+ - Away from the tumult of motor and mill I want to be care-free; I want to be still! I’m weary of doing things; weary of words I want to be one with the blossoms and birds.
+ - The world is no longer closed to us in the way it was in the past – present generations have unparalleled access to pretty much all corners of the globe.
+ - And you can win, though you face the worst, if you feel that you’re going to do it.
+ - All the world loves a lover, but how it does laugh at his love letters.
+ - For Age is not alone of time, or we should never see men old and bent at forty and men young at seventy-three.
+ - There’s no diet list I’ll follow that would rule out cherry pie.
+ - For to see good put in action is what everybody needs.
+ - You are the person who has to decide. Whether you’ll do it or toss it aside.
+ - You ought to be true for the sake of the folks who think you are true. You never should stoop to a deed that your folks think you would not do. If you are false to yourself, be the blemish but small, you have injured your folks; you have been false to them all.
+ - The timid and fearful first failures dismay, but the stout heart stays trying by night and by day. He values his failures as lessons that teach The one way to get to the goal he would reach.
+ - You when the storm is raging – how do you face despair? It is you that the world discovers, whatever the clothes you wear.
+ - The happy man is he who turns his soul Unto the light of joys that he can find; And pays each day its just demand of toll, But shuts the future troubles from his mind.
+ - Tomorrow – there’s no day so fair, It knows no sorrow; A day that banishes despair, Joy rules tomorrow.
+ - You’ll be richer in the end than a prince, if you’re a friend.
+ - Every thought and every act were to keep this home in tact.
+ - Determination is the thing on which you can depend. It plods along without a swing, but gets there in the end.
+ - I’ll obey them in the winter when the doctors say to me I must give up ham and spinach, and obedient I’ll be. To relieve my indigestion in December they can try, But there’s none of them can stop me when it’s time for cherry pie.
+ - The proof of a man is the danger test, It shows him up at his worst, or his best.
+ - The best of all the preachers are the men who live their creeds.
+ - The things that haven’t been done before, Are the tasks worthwhile today; Are you one of the flock that follows, or Are you one that shall lead the way? Are you one of the timid souls that quail At the jeers of a doubting crew, Or dare you, whether you win or fail, Strike out for a goal that’s new?
+
+50 quotes

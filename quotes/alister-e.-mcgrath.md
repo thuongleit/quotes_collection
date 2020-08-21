@@ -1,0 +1,35 @@
+ - Within each of us exists the image of God, however disfigured and corrupted by sin it may presently be. God is able to recover this image through grace as we are conformed to Christ.
+ - We live in a world of competing narratives. In the end, we have to decide for ourselves which is right. And having made that decision, we then need to inhabit the story we trust.
+ - Imagination is the gatekeeper of the human soul.
+ - To reenchant nature is not merely to gain a new perspective for its integrity and well-being; it is to throw open the doors to a deeper level of existence.
+ - Surely the better way is to pursue a generous orthodoxy, seeing disagreements in the context of the greater agreements which bind us together.
+ - A failure to understand something does not mean it is irrational. It may simply mean that it lies on the far side of our limited abilities to take things in and make complete sense of them.
+ - The Christian faith allows us to see further and deeper, to appreciate that nature is studded with signs, radiant with reminders, and emblazoned with symbols of God, our creator and redeemer.
+ - The most radical question which anyone can be asked is not how much their possessions cost, but whether they have found something of value – that is, something that makes living worthwhile.
+ - If there is no ultimate reality, it’s pointless to think about how we might get there.
+ - The reading of literature opens our eyes, offering us new perspectives on things that we can evaluate and adopt.
+ - Hope is a settled state of mind, in which we see the world in its true light, and look forward to our final homecoming in heaven.
+ - Suffering does not call into question the “big picture” of the Christian faith. It reminds us that we do not see the whole picture, and are thus unable to fit all of the pieces neatly into place.
+ - The true believer is not someone who disengages from this world in order to focus on heaven, but rather the one who tries to make this world more like heaven.
+ - Christianity israrely understood by those outside its bounds. In fact, this is probably one of the greatest tasks confronting the apologist–to rescue Christianity from misunderstandings.
+ - The idea of ‘calling’ was fundamentally redefined: no longer was it about being called to serve God by leaving the world; it was now about serving God in the world.
+ - Hope is rooted in the trustworthiness of God.
+ - The success of the Inklings also helps us to see criticism in a positive light. There are, unfortunately, people who boost their own sense of importance by criticizing others as a matter of principle. Yet within this community, criticism was a mark of respect and commitment.
+ - If worldviews or metanarratives can be compared to lenses, which of them brings things into the sharpest focus? This is not an irrational retreat from reason. Rather, it is about grasping a deeper order of things which is more easily accessed by the imagination than by reason.
+ - The 20th century gave rise to one of the greatest and most distressing paradoxes of human history: that the greatest intolerance and violence of that century were practiced by those who believed that religion caused intolerance and violence.
+ - We live on earth; our homeland is in heaven.
+ - Rational argument does not create belief, but it maintains a climate in which belief may flourish.
+ - One of the best introductions to the history and ideas of Calvinism, packed with insight and wisdom.
+ - Clergy had a vested interest in retaining the old, ways, which made few demands of them as teachers, as spiritual guides, or as moral examples or agents.
+ - Our desires cannot be, and were never meant to be, satisfied by earthly pleasures alone.
+ - Atheism, I began to realize, rested on a less-than-satisfactory evidential basis. The arguments that had once seemed bold, decisive, and conclusive increasingly turned out to be circular, tentative, and uncertain.
+ - The state is concerned with the promotion of outward righteousness arising from the individual being constrained to keep the law. The Gospel alters human nature, whereas the state merely restrains human greed and evil, having no positive power to alter human motivation.
+ - The hallmark of intelligence is not whether one believes in God or not, but the quality of the processes that underlie one’s beliefs.
+ - Good does not triumph unless good people rise to the challenges around them.
+ - Manz, formerly one of Zwingli’s closest allies, held that there was no biblical warrant for infant baptism. Refusing to recant his views, he was tied up and drowned in the River Limmat.
+ - The English experience suggested that nobody really doubted the existence of God until theologians tried to prove it.
+ - Puzzles lead to logical answers; mysteries often force us to stretch language to its limits in an attempt to describe a reality that is just too great to take in properly.
+ - We must not think that religious concerns swamped all other social activities. They simply provided a focal point for them.
+ - Deep down within all of us is a longing to work out what life is all about and what we’re meant to be doing.
+
+33 quotes

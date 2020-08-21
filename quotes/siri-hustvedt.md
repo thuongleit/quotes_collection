@@ -1,0 +1,43 @@
+ - I will turn human anatomy into roses and stars and sea. I will dissect the beloveds body in metaphor.
+ - The truth is that personality inevitably bleeds into all forms of our intellectual life. We all extrapolate from our own lives in order to understand the world.
+ - Great books are the ones that are urgent, life-changing, the ones that crack open the reader’s skull and heart.
+ - Writing fiction is like remembering what never happened.
+ - A book is a collaboration between the one who reads and what is read and, at its best, that coming together is a love story like any other.
+ - That night as I lay in bed, I thought of several things I could have said and mourned the fact that my wit usually bloomed late, peaking when it no longer mattered, during the solitary hours close to midnight.
+ - Every sickness has an alien quality, a feeling of invasion and loss of control that is evident in the language we use about it.
+ - We read each other through our eyes, and anatomically they are an extension of our brains. When we catch someone’s eye, we look into a mind.
+ - Pain is always emotional. Fear and depression keep constant company with chronic hurting.
+ - Like countless first-year medical students, immersed in the symptoms of one disease after another, I am alert to the tingles and pangs, the throbs and quivers of my mortal body, each one of which is potentially a sign of the end.
+ - Human beings are repetitive animals. All meaning is generated through repetition.
+ - Libraries are sexual dream factories. The langour brings it on.
+ - All human states are organic brain states – happiness, sadness, fear, lust, dreaming, doing math problems and writing novels – and our brains are not static.
+ - There is no future without a past, because what is to be cannot be imagined except as a form of repetition.
+ - Dreams are stories made by and for the dreamer...
+ - Bedtime rituals for children ease the way to the elsewhere of slumber – teeth brushing and pajamas, the voice of a parent reading, the feel and smell of the old blanket or toy, the nightlight glowing in a corner.
+ - Every painting is always two paintings: The one you see, and the one you remember.
+ - We chart delusions through collective agreement.
+ - Intellectual curiosity about one’s own illness is certainly born of a desire for mastery. If I couldn’t cure myself, perhaps I could at least begin to understand myself.
+ - Dreaming is another form of thinking, more concrete, more economical, more visual, and often more emotional than the thoughts of the day, but a thinking through of the day, nevertheless.
+ - Crippled and crazy, we hobble toward the finish line, pen in hand.
+ - Dreams are stories made by and for the dreamer, and each dreamer has his own folds to open and knots to untie.
+ - We sometimes imagine we want what we don’t really want.
+ - Memory changes as a person matures.
+ - There is no reason we should expect young children to enter the nocturnal darkness of sleep and dreams without help.
+ - Reading is perception as translation. The inert signs of an alphabet become living meanings in the mind.
+ - Reading is a private pursuit; one that takes place behind closed doors.
+ - That is the strangeness of language: it crosses the boundaries of the body, is at once inside and outside, and it sometimes happens that we don’t notice the threshold has been crossed.
+ - The fictive is an emormous territory it turns out, its boundaries vague, and there is little certainty about where it begins and ends.
+ - Time is not outside us, but inside. Only we live with past, present, and future, and the present is too brief to experience anyway; it is retained afterward and then it is either codified or it slips into amnesia.
+ - Memory offers up its gifts only when jogged by something in the present. It isn’t a storehouse of fixed images and words, but a dynamic associative network in the brain that is never quiet and is subject to revision each time we retrieve an old picture or old words.
+ - Not telling is just as interesting as telling I have found. Why speech, that short verbal journey from inside to outside can be excrutiating under certain circumstances is fascinating.
+ - I’ve always thought of wholeness and integration as necessary myths. We’re gragmented beings who cement ourselves together, but there are always cracks. Living with the cracks is part of being, well, reasonably healthy.
+ - Memory is essential to who we are, and memories can be both implicit and explicit – unconscious and conscious.
+ - The faculty of memory cannot be separated from the imagination. They go hand in hand. To one degree or another, we all invent our personal pasts. And for most of us those pasts are built from emotionally colored memories.
+ - Our memory fragments don’t have any coherence until they’re imagined in words. Time is a property of language, of syntax, and tense.
+ - There’s a phenomenology of being sick, one that depends on temperament, personal history, and the culture which we live in.
+ - Ture stories can’t be told forward, only backward. We invent them from the vantage point of an ever-changing present and tell ourselves how they unfolded.
+ - I’ve often thought that one of us is what we imagine, that each of us normalizes the terrible strangeness of inner life with a variety of convenient fictions.
+ - Being a mother is complicated because its not just a paternal culture making demands on you; its those internal demands and expectations that women have and are self-generated.
+ - There is this assumption that much of what I write is about my life, and that simply is not true.
+
+41 quotes

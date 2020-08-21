@@ -1,0 +1,30 @@
+ - The future is not something we enter. The future is something we create.
+ - Stagnation is death. If you don’t change, you die. It’s that simple. It’s that scary.
+ - What you do is your history. What you set in motion is your legacy.
+ - The essence of leadership is relationship; influencing people to achieve things together that can’t be achieved alone.
+ - What is the difference between a living thing and a dead thing? In the medical world, a clinical definition of death is a body that does not change. Change is life. Stagnation is death. If you don’t change, you die. It’s that simple. It’s that scary.
+ - Your life is not your own: it belongs to God. To “be yourself” is to be and do what God wants you to be and do, knowing that God created you for a mission and knows you and your mission better than you do.
+ - One can be a faithful disciple of Jesus Christ without denying the flickers of the sacred in followers of Yahweh, or Kali, or Krishna.
+ - The greater the amount of knowledge you accumulate, the bigger your island gets, but the greater the shoreline of the unknown becomes. In short, the more you know, the more you know you don’t know.
+ - If your identity is found in Christ, then it matters less and less what people think of you.
+ - Leadership is the art of the future.
+ - The Chains of conformity click in tiresomely monotonous unison.
+ - When I was learned, knowledge was everything. Now that I’m a learner, kindness is everything.
+ - The church must provide postmoderns with an alternity of rituals by which they can turn and tune to one another and feel connected to the cosmos.
+ - The true leader makes each team member twice the person they were before.
+ - The strength of the church is not the strength of its institutions but the authenticity of its witness.
+ - Jesus invested everything he had in a team. The Bible knows nothing about solo ministry, only team ministry.
+ - The “hole in the moral ozone” is really what’s behind the hole in the ozone.
+ - God did His most magnificent work while Adam was asleep. This episode contains and important insight: When man rests, God works.
+ - Hirsch and Ford believe that we’ve ‘demonstrated’ enough. It’s now time for ‘doing.’ This book shows how to be missional ‘Right Here, Right Now.’
+ - Followers of Jesus don’t so much see different things from anyone else as they see the same things differently.
+ - To imagine things other than they are is the essence of hope. It is also the stuff of revolution.
+ - The teachings of Jesus begin in story and end in symbol – they begin in parable and end in us. These are not Bible stories that we learn; these are our stories.
+ - Two opposing gospels are fighting one another for the soul of our nation and, increasingly, the world: the gospel of consumption and the gospel of peace.
+ - Too many Christians want to change the world not because they love the world but because they hate the world.
+ - When Jesus got to the point when most people today are thinking of retirement, he goes – ‘time to save the world!’
+ - The time to save God’s Dream is now. The people to save God’s Dream are you.
+ - As a cosmion incarnating the cells of a new body, New Lights will function as transitional vessels through which transforming energy can renew the divine image in the world, moving postmoderns from one state of embodiment to another.
+ - People who minister worldwide to protect and conserve the environment are of no lower status than those who minister to plant churches.
+
+28 quotes

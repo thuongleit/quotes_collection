@@ -1,0 +1,50 @@
+ - We walk by faith, not by sight.
+ - For to me, to live is Christ and to die is gain.
+ - If God is for us, who can be against us?
+ - It’s not how good you are. It’s how bad you want it.
+ - I press on toward the goal to win the prize for which God has called me heavenward in Christ Jesus.
+ - Whatever you do, work at it with all your heart...
+ - Do not be conformed to this world, but be transformed by the renewing of your minds.
+ - In everything give thanks.
+ - Hope does not disappoint.
+ - For when I am powerless, it is then that I am strong...
+ - Bad company ruins good morals.
+ - Remember this: Whoever sows sparingly will also reap sparingly, and whoever sows generously will also reap generously.
+ - Be kind and compassionate to one another, forgiving each other, just as in Christ God forgave you.
+ - If it is possible, as far as it depends on you, live at peace with everyone.
+ - For you died, and your life is hidden with Christ in God.
+ - If I could speak all the languages of earth and of angels, but didn’t love others, I would only be a noisy gong or a clanging cymbal.
+ - For the moment all discipline seems painful rather than pleasant; later it yields the peaceful fruit of righteousness to those who have been trained by it.
+ - Every Scripture is God-breathed and profitable for teaching, for reproof, for correction, and for instruction in righteousness, that the man of God may be complete, thoroughly equipped for every good work.
+ - The man who thinks he knows something does not yet know as he ought to know.
+ - There is no longer Jew or Greek, there is no longer slave or free, there is no longer male and female; for all of you are one in Christ Jesus.
+ - Let us not become weary in doing good, for at the proper time we will reap a harvest if we do not give up.
+ - Modesty is the key to success.
+ - So, then, let us pursue the things making for peace and the things that are upbuilding to one another.
+ - You can’t fall off the floor.
+ - If in this life only we have hope in Christ, we are of all men the most pitiable.
+ - Use your heads as you live and work among outsiders. Don’t miss a trick. Make the most of every opportunity. Be gracious in your speech. The goal is to bring out the best in others in a conversation, not put them down, not cut them out.
+ - Owe nothing to anyone, except to love one another.
+ - There is nothing love cannot face; there is limit to its faith, its hope and endurance.
+ - Walk in the Spirit, and ye shall not fulfil the lust of the flesh, for the flesh lusteth against the Spirit, and the Spirit against the flesh: and these are contrary the one to the other: so that ye cannot do the things that ye would.
+ - Absent in body, but present in spirit.
+ - They that will be rich fall into temptation and a snare, and into many foolish and hurtful lusts, which drown men in destruction and perdition. For the love of money is the root of all evil.
+ - I died to the law so that I might live for God.
+ - Beware of the dogs, beware of the evil workers, beware of those who mutilate the flesh!
+ - But fornication and all uncleanness or covetousness, let it not even be named among you, as is fitting for saints; neither filthiness, nor foolish talking, nor coarse jesting, which are not fitting, but rather giving of thanks.
+ - Your teaching must have the integrity of serious, sound words to which no one can take exception. If it does, no opponent will be able to find anything bad to say about us, and hostility will yield to shame.
+ - If any man defile the temple of God, him shall God destroy, for the temple of God is holy, which temple ye are.
+ - Wherefore, if meat causeth my brother to stumble, I will eat no flesh for evermore, that I cause not my brother to stumble.
+ - Therefore, I exhort first of all that supplications, prayers, intercessions, and giving of thanks be made for all men, for kings and all who are in authority, that we may lead a quiet and peaceable life in all godliness and reverence.
+ - The natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned. But he that is spiritual judgeth all things, yet he himself is judged of no man.
+ - Then each of you will control his own body and live in holiness and honor- not in lustful passion like the pagans who do not know God and his ways.
+ - Brethren, do not become children in sense: but in malice be children, and in sense be perfect.
+ - There are, for example, so many kinds of tongues in this world; and none is without voice. If then I know not the power of the voice, I shall be to him to whom I speak a barbarian; and he that speaketh, a barbarian to me.
+ - And thus I aspire to preach the gospel, not where Christ was already named so that I would not build on another man’s foundation.
+ - Even so husbands should love their wives as their own bodies. He who loves his wife loves himself.
+ - It’s amazing how insults in most languages sound the same.
+ - For if the truth of God hath more abounded through my lie unto his glory; why yet am I also judged as a sinner?
+ - The wife hath not power of her own body, but the husband. And in like manner the husband also hath not power of his own body, but the wife.
+ - Let the husband render to his wife the affection owed her, and likewise also the wife to her husband.
+
+48 quotes

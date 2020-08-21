@@ -1,0 +1,68 @@
+ - There is nothing outside the text.
+ - Beauty only happens once.
+ - What cannot be said above all must not be silenced but written.
+ - I am like a child ready for the apocalypse, I am the apocalypse itself, that is to say, the ultimate and first event of the end, the unveiling and the verdict.
+ - Monsters cannot be announced. One cannot say: ‘Here are our monsters,’ without immediately turning the monsters into pets.
+ - We are all mediators, translators.
+ - The traditional statement about language is that it is in itself living, and that writing is the dead part of language.
+ - To pretend, I actually do the thing: I have therefore only pretended to pretend.
+ - I always dream of a pen that would be a syringe.
+ - I speak only one language, and it is not my own.
+ - I say things that contradict each other, that are in real tension with each other, that compose me, that make me live, and that will make me die.
+ - One often speaks without seeing, without knowing, without meaning what one says.
+ - If I only did what I can do, I wouldn’t do anything.
+ - As soon as there is language, generality has entered the scene.
+ - I have always had trouble recognizing myself in the features of the intellectual playing his political role according to the screenplay that you are familiar with and whose heritage deserves to be questioned.
+ - The blindness that opens the eye is not the one that darkens vision. Tears and not sight are the essence of the eye.
+ - I love language as I love life itself!
+ - That is what deconstruction is made of: not the mixture but the tension between memory, fidelity, the preservation of something that has been given to us, and, at the same time, heterogeneity, something absolutely new, and a break.
+ - If things were simple, word would have gotten around.
+ - The end approaches, but the apocalypse is long lived.
+ - Contrary to what phenomenology- which is always phenomenology of perception- has tried to make us believe, contrary to what our desire cannot fail to be tempted into believing, the thing itself always escapes.
+ - Beyond the touchline there is nothing.
+ - Surviving – that is the other name of a mourning whose possibility is never to be awaited.
+ - Certain readers resented me when they could no longer recognize their territory, their institution.
+ - If this work seems so threatening, this is because it isn’t simply eccentric or strange, but competent, rigorously argued, and carrying conviction.
+ - I was wondering myself where I am going. So I would answer you by saying, first, that I am trying, precisely, to put myself at a point so that I do not know any longer where I am going.
+ - I do not believe in pure idioms. I think there is naturally a desire, for whoever speaks or writes, to sign in an idiomatic, irreplaceable manner.
+ - The first problem of the media is posed by what does not get translated, or even published in the dominant political languages.
+ - In philosophy, you have to reckon with the implicit level of an accumulated reserve, and thus with a very great number of relays, with the shared responsibility of these relays.
+ - Deconstruction never had meaning or interest, at least in my eyes, than as a radicalization, that is to say, also within the tradition of a certain Marxism, in a certain spirit of Marxism .
+ - Circumcision, that’s all I’ve ever talked about.
+ - I never give in to the temptation to be difficult just for the sake of being difficult. That would be too ridiculous.
+ - I absolutely forbade all public photographs of myself. I like photography, I don’t have anything against it, but...
+ - I do everything I think possible or acceptable to escape from this trap.
+ - Each time this identity announces itself, someone or something cries: Look out for the trap, youre caught. Take off, get free, disengage yourself.
+ - Such a caring for death, an awakening that keeps vigil over death, a conscience that looks death in the face, is another name for freedom.
+ - Even if we’re in a state of hopelessness, a sense of expectation is an integral part of our relationship to time. Hopelessness is possible only because we do hope that some good, loving someone could come. If that’s what Heidegger meant, then I agree with him.
+ - In a language, in the system of language, there are only differences. Therefore, a taxonomical operation an undertake the systematic, statistical, and classificatory inventory of a language.
+ - It is to have a compulsive, repetitive, and nostalgic desire for the archive, an irrepressible desire to return to the origin, a homesickness, a nostalgia for the return to the most archaic place of absolute commencement.
+ - Cinema plus Psychoanalysis equals the Science of Ghosts.
+ - Everything is arranged so that it be this way, this is what is called culture.
+ - Every discourse, even a poetic or oracular sentence, carries with it a system of rules for producing analogous things and thus an outline of methodology.
+ - Who ever said that one was born just once?
+ - I rightly pass for an atheist.
+ - Survival in the conventional sense of the term means to continue to live, but also to live after death.
+ - I believe in the value of the book, which keeps something irreplaceable, and in the necessity of fighting to secure its respect.
+ - In Algeria, I had begun to get into literature and philosophy. I dreamed of writing-and already models were instructing the dream, a certain language governed it.
+ - The circle of the return to birth can only remain open, but this is a chance, a sign of life, and a wound.
+ - No one gets angry at a mathematician or a physicist whom he or she doesn’t understand, or at someone who speaks a foreign language, but rather at someone who tampers with your own language.
+ - No one will ever know from what secret I am writing and the fact that I say so changes nothing.
+ - Whatever precautions you take so the photograph will look like this or that, there comes a moment when the photograph surprises you. It is the other’s gaze that wins out and decides.
+ - I wrote some bad poetry that I published in North African journals, but even as I withdrew into this reading, I also led the life of a kind of young hooligan.
+ - Still today, I cannot cross the threshold of a teaching institution without physical symptoms, in my chest and my stomach, of discomfort or anxiety. And yet I have never left school.
+ - Psychoanalysis has taught that the dead – a dead parent, for example – can be more alive for us, more powerful, more scary, than the living. It is the question of ghosts.
+ - Peace is only possible when one of the warring sides takes the first step, the hazardous initiative, the risk of opening up dialogue, and decides to make the gesture that will lead not only to an armistice but to peace.
+ - Actually, when I write, there is a feeling of necessity, of something that is stronger than myself that demands that I must write as I write.
+ - We are given over to absolute solitude. No one can speak with us and no one can speak for us; we must take it upon ourselves, each of us must take it upon himself.
+ - I have always had school sickness, as others have seasickness. I cried when it was time to go back to school long after I was old enough to be ashamed of such behavior.
+ - These critics organize and practice in my case a sort of obsessive personality cult which philosophers should know how to question and above all, to moderate.
+ - An act of naming should quite rightly enable me to call any-thing a self-portrait, not only any drawing, ‘portrait’ or not, but everything that happens to me, that I can affect, or that affects me.
+ - My most resolute opponents believe that I am too visible, that I am a little too alive, that my name echoes too much in the texts which they nevertheless claim to be inaccessible.
+ - The boarding-school experience in Paris was very hard, I didn’t put up with it very well. I was sick all the time, or in any case frail, on the edge of a nervous breakdown.
+ - Why is it the philosopher who is expected to be easier and not some scientist who is even more inaccessible?
+ - I am one of those marranes who no longer say they are Jews even in the secret of their own hearts.
+ - These years of the Ecole Normale were an ordeal. Nothing was handed to me on the first try.
+ - I became the stage for the great argument between Nietzsche and Rousseau. I was the extra ready to take on all the roles.
+
+66 quotes

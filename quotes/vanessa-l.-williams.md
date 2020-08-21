@@ -1,0 +1,25 @@
+ - Success is the sweetest revenge.
+ - Sometimes the snow comes down in June, sometimes the sun goes around the moon.
+ - Love breaks your heart, love takes no less than everything. Love makes it hard, and it fades away so easily.
+ - Eugene McCarthy is definitely an inspiration to me as a Democrat and as someone going to the university. It is definitely important to me.
+ - Sometimes the very thing you’re looking for is the one thing you cannot see.
+ - Here we are standing face to face, isn’t this world a crazy place, just when I thought the chance had passed, you go and save the best for last.
+ - You wondered how you’d make it through. I wondered what was wrong with you. Because how could you give your love to someone else, yet share your dreams with me? Sometimes the only thing you’re looking for, is the one thing you can’t see.
+ - I don’t draw attention to myself or have security pushing people away.
+ - I am lucky to have three daughters who are completely different. I look at my daughters and I have different relationships with all three and there are parts of each personality that are very special.
+ - I go out and salsa with friends, especially in the summertime. Now that’s incredible cardio!
+ - Salsa is a phenomenal way to stay fit, have a great time with your friends and listen to great music.
+ - I try to incorporate faith every day, to not remind myself of past failures, to learn how to forgive and to trust the future.
+ - Well, my mom taught public school music for almost 40 years. And she’s about 5 feet – and very mighty. And she would control her kids a lot by giving them the eye, or the stare.
+ - You’re always going to have people that are naysayers, that don’t believe in your talent, that don’t believe that you have any kind of longevity.
+ - And at 19, you think you rule the world, and you can control things. And a lot of times, you don’t.
+ - Broadway is really my life.
+ - My parents are both teachers, so we had the summers off.
+ - I love the French horn.
+ - And when people give me their word, I listen to them.
+ - I’m not shooting every day of the week, which allows me to fly home to be with my kids for the weekends. That’s how I keep it moving.
+ - I’m not perfect, but I’m focused when I have a goal.
+ - There are a lot of things that you don’t realize that your parents are going through when you’re a kid.
+ - The wiser you get, the more experience you have, and the more you see people for who they are as human beings, as opposed to figures you have to fight against.
+
+23 quotes

@@ -1,0 +1,71 @@
+ - Every language is a world. Without translation, we would inhabit parishes bordering on silence.
+ - The intellectual is, quite simply, a human being who has a pencil in his or her hand when reading a book.
+ - Language is the main instrument of man’s refusal to accept the world as it is.
+ - The Oresteia, King Lear, Dostoevsky’s The Devils no less than the art of Giotto or the Passions of Bach, inquire into, dramatize, the relations of man and woman to the existence of the gods or of God.
+ - To understand is to decipher. To hear significance is to translate.
+ - The whispers of shared ecstasy are choral.
+ - Chess may be the deepest, least exhaustible of pastimes, but it is nothing more. As for a chess genius, he is a human being who focuses vast, little-understood mental gifts and labors on an ultimately trivial human enterprise.
+ - Language can only deal meaningfully with a special, restricted segment of reality. The rest, and it is presumably the much larger part, is silence.
+ - Central to everything I am and believe and have written is my astonishment, naive as it seems to people, that you can use human speech both to bless, to love, to build, to forgive and also to torture, to hate, to destroy and to annihilate.
+ - The very opposite of freedom is cliche, and nothing is less free, more inert with convention and hollow brutality, than a row of four-letter words.
+ - Nothing in the next-door world of Dachau impinged on the great winter cycle of Beethoven chamber music played in Munich. No canvases came off museum walls as the butchers strolled reverently past, guide-books in hand.
+ - All serious art, music, literature is a critical act. It is so, firstly, in the sense of Matthew Arnold’s phrase: “a criticism of life.” Be it realistic, fantastic, Utopian or satiric, the construct of the artist is a counter-statement to the world.
+ - He who has read Kafka’s Metamorphosis and can look into his mirror unflinching may technically be able to read print, but is illiterate in the only sense that matters.
+ - I believe that a work of art, like metaphors in language, can ask the most serious, difficult questions in a way which really makes the readers answer for themselves; that the work of art far more than an essay or a tract involves the reader, challenges him directly and brings him into the argument.
+ - Self-projection is, more often than not, the move of the minor craftsman, of the tactics of the hour whose inherent weakness is, precisely, that of originality.
+ - We are still waging Peloponnesian wars. Our control of the material world and our positive science have grown fantastically. But our very achievements turn against us, making politics more random and wars more bestial.
+ - I find so much writing colourless, small in its means, unwilling to take stylistic risks. Often it goes wrong; I am not the one to judge. Sometimes, I hope, it goes right.
+ - To ask larger questions is to risk getting things wrong. Not to ask them at all is to constrain the life of understanding.
+ - Books – the best antidote against the marsh-gas of boredom and vacuity.
+ - The letter kills the spirit. The written text is mute in the face of responding challenge. It does not admit of inward growth and correction. Text subverts the absolutely vital role of memory.
+ - It is not the literal past that rules us, save, possibly, in a biological sense. It is images of the past.
+ - Men are accomplices to that which leaves them indifferent.
+ - To starve a child of the spell of the story, of the canter of the poem, oral or written, is a kind of living burial. It is to immure him in emptiness.
+ - The ordinary man casts a shadow in a way we do not quite understand. The man of genius casts light.
+ - Fischer does not merely outplay opponents; he leaves them bodily and mentally glutted. Fisher himself speaks of the exultant instant in which he feels the ‘ego of the other player crumbling.’
+ - If future society assumes the contours foretold by Marxism, if the jungle of our cities turns to the polis of man and the dreams of anger are made real, the representative art will be high comedy. Art will be the laughter of intelligence, as it is in Plato, in Mozart, in Stendhal.
+ - Women began their inner emancipation by their access to literature, by access to the world through books; an access they could not have socially or politically, or of course economically, in the world at large.
+ - When it turned on the Jew, Christianity and European civilization turned on the incarnation – albeit an incarnation often wayward and unaware – of its own best hopes.
+ - Tragedy speaks not of secular dilemmas which may be resolved by rational innovation, but of the unalterable bias toward inhumanity and destruction in the drift of the world.
+ - More and more lower-middle-income families either live their lives in debt or leave the city altogether. The boom is strictly at the penthouse level.
+ - Life proceeds amid an incessant network of signals.
+ - The Jew has his anchorage not in place but in time, in his highly developed sense of history as personal context. Six thousand years of self-awareness are a homeland.
+ - When he looks back, the critic sees a eunuch’s shadow. Who would be a critic if he could be a writer? Who would hammer out the subtlest insight into Dostoevsky if he could weld an inch of the Karamazovs, or argue the poise of Lawrence if he could shape the free gust of life in The Rainbow?
+ - I’m sorry, I’m absolutely convinced that there is at the moment no realistic prospect for very much hope in human affairs.
+ - The private reader of listener can become an executant of felt meaning when he learns the poem or the musical passage by heart. To learn by heart is to afford the text or music an indwelling clarity and life-force.
+ - I have every reason to believe that an individual man or woman fluent in several tongues seduces, possesses, remembers differently according to his or her use of the relevant language.
+ - There is something terribly wrong with a culture inebriated by noise and gregariousness.
+ - When the modern scholar cites from a classic text, the quotation seems to burn a hole in his own drab page.
+ - Anything can be said and, in consequence, written about anything.
+ - Increasingly unable to create for itself a relevant body of myth, the modern imagination will ransack the treasure house of the classic.
+ - Words that are saturated with lies or atrocity, do not easily resume life.
+ - Nothing in a language is less translatable than its modes of understatement.
+ - We know that a man can read Goethe or Rilke in the evening, that he can play Bach and Schubert, and go to his day’s work at Auschwitz in the morning.
+ - The Socratic demonstration of the ultimate unity of tragic and comic drama is forever lost. But the proof is in the art of Chekhov.
+ - Literature and the arts are also criticism in a more particular and practical sense. They embody an expository reflection on, a value judgement of, the inheritance and context to which they pertain.
+ - To shoot a man because one disagrees with his interpretation of Darwin or Hegel is a sinister tribute to the supremacy of ideas in human affairs – but a tribute nevertheless.
+ - The critic lives at second hand. He writes about. The poem, the novel, or the play must be given to him; criticism exists by the grace of other men’s genius.
+ - If, in the Judaic perception, the language of the Adamic was that of love, the grammars of fallen man are those of the legal code.
+ - For many human beings, religion has been the music which they believe in.
+ - To be a European is to try to negotiate morally, intellectually and existentially the opposing statements and praxis of the city of Socrates and the city of Isaiah.
+ - The most important tribute any human being can pay to a poem or a piece of prose he or she really loves is to learn it by heart. Not by brain, by heart; the expression is vital.
+ - Literary criticism has about it neither rigour nor proof. Where it is honest, it is passionate, private experience seeking to persuade.
+ - A good deal of classical music is, today, the opium of the good citizen.
+ - The immense majority of human biographies are a gray transit between domestic spasm and oblivion.
+ - My writing of fiction comes under a very general heading of those teachers, critics, scholars who like to try their own hand once or twice in their lives.
+ - The journalistic vision sharpens to the point of maximum impact every event, every individual and social configuration; but the honing is uniform.
+ - Bookishness, highest literacy, every technique of cultural propaganda and training not only can accompany bestiality and oppression and despotism but at certain points foster it.
+ - The age of the book is almost gone.
+ - Given my age, I am pretty near the end, probably, of my career as a writer, a scholar, a teacher. And I wanted to speak of things I will not be able to do.
+ - I owe everything to a system that made me learn by heart till I wept. As a result I have thousands of lines of poetry by heart. I owe everything to this.
+ - If there is a chronic infirmity by which every teacher ought to be afflicted, it is, indeed, hope.
+ - There are three intellectual pursuits, and, so far as I am aware, only three, in which human beings have performed major feats before the age of puberty. They are music, mathematics, and chess.
+ - Books are in no hurry. An act of creation is in no hurry; it reads us, it privileges us infinitely.
+ - Every one of my opponents, every one of my critics, will tell you that I am a generalist spread far too thin in an age when this is not done anymore, when responsible knowledge is specialized knowledge.
+ - It took 10 months for me to learn to tie a lace; I must have howled with rage and frustration. But one day I could tie my laces. That no one can take from you. I profoundly distrust the pedagogy of ease.
+ - What worthwhile book after the Pentateuch has been written by a committee?
+ - My father loved poetry and music. But deep in himself he thought teaching the finest thing a person could do.
+ - I have students who are now in chairs in five continents. They invite me to their inaugurals. A tremendous reward.
+ - Pornographers subvert this last, vital privacy; they do our imagining for us. They take away the words that were of the night and shout them over the roof-tops, making them hollow.
+
+69 quotes

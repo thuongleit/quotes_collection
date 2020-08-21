@@ -1,0 +1,66 @@
+ - From nothing to everything is a long way, from everything to nothing is one stop.
+ - Mental strength is really important because you either win or lose in your mind.
+ - The whole key is to be honest with yourself, find the weak spots, work on it, get it done.
+ - Criticism is a great motivation. Failure is not an option to me.
+ - You can train your mental strength just like you train your body. If your body looks fit or ripped, it looks strong, and you can flex your muscles. So, physically, you have a certain strength. Mentally, it’s the same thing. You can train your psychological strength.
+ - You lose or you win the fight – and anything in life – in your mind. I can look at how the person walks, how he speaks, his expressions. It’s a wisdom. Eyes are the mirror of the soul. So you can read a lot.
+ - I’m boring but effective.
+ - Nobody is born as a champion. You have to earn it through hard work. Get started!
+ - Aggression means emotions. Emotions means you’re gonna get off your plan and that means you’ll lose the fight.
+ - There is no money in this world that will make us fight.
+ - The man without a chin, no stamina, dead man, broken man, whatever. On your way to the top, you always get some criticism. Criticism is a great motivation. Failure is not an option to me.
+ - The first thing I learned in boxing is to not get hit. That’s the art of boxing. Execute your opponent without getting hit. In sports school, we were putting our hands behind our backs and having to defend ourselves with our shoulders, by rolling, by moving round the ring, moving out feet.
+ - Exactly this type of people like you, at the beginning you’re gonna be shy but later on you’re gonna jump on a chair and you will scream hit him!
+ - I’m going to give him a pizza face.
+ - My height is an advantage, if I want to use it.
+ - I respect the IBF obligation to fight Povetkin, but I would like the exception to fight David Haye. That is the only title the Klitschkos don’t have. We have them all except the WBA, which is why Haye is such an interesting cookie for me to eat.
+ - Only younger brothers will understand me. We’re following in the footsteps of older brothers. You are looking up to your brother. You want to do the same things. You want to do as good as he and do it even better.
+ - I will teach you how to behave yourself in the ring.
+ - If I am 100% prepared for the fight, my opponent has no chance to win the fight. I am saying what I mean: He has a 0% chance to win the fight. There is going to be no luck involved; there is going to be nothing else to stop me from winning the fight.
+ - I don’t care where people come from. It is not important to me. If you are good people will like you, if you’re not, they won’t. It is simple.
+ - After Chernobyl, thousands and thousands of people, if not millions, were given a death penalty and had to pay the price, our father among them.
+ - My brother is a doctor and he will take care of post-traumatic stress. I think he’ll do it for free.
+ - Sometimes it’s boring because it takes time, but it’s enjoyable. So beating up people for a living is really fun.
+ - You have to learn the opponent psychologically inside out and mental strength is one of the important makers. You’re either gonna break it or make it.
+ - I Was Psychologically Sick For 3 Days Afterwards.
+ - Earlier in my career, I never thought of boxing as a chess game, but I confirm that they are, in fact, very similar. You can plan your fights and strategy just like you would in chess.
+ - When people are tipsy, they’re really encouraged and they wanna prove they can do something to the Heavyweight champion.
+ - You can take your fitness seriously, but not yourself. That’s the most difficult part: not to relax. That’s the most difficult challenge I’m facing every fight.
+ - My father told and taught me that the word, can hit harder than the fist.
+ - I know he’s retired, but I’m a big fan of Shaquille O’Neal, his game and his personality. I have a pair of his shoes in my office. You see the size of his shoe and think, ‘This is not real, this couldn’t belong to a human being.’ But he is human!
+ - It’s not my place to compare myself to greats like Tyson, Frazier or men like that. But I would look at a fighter like Evander Holyfield. He’s a great heavyweight who worked his way up through the weight classes to become champion and had to beat bigger men along the way.
+ - My goal is not getting hit and to knock the other guy out. Some people might complain because they want to see boxers beat up on each other, but you cannot last long in professional boxing if you take a lot of punches.
+ - Politics is comparable to boxing. The only thing is that in politics there are basically no rules. In boxing, you can get a black eye, but in politics you can get poison in your food or a bullet in the head. It’s definitely rougher and tougher than other sports.
+ - I think that there’s only one nationality and one language in the sport, and you call it performance.
+ - Who’s gonna win between two brothers? The Klitschko mother’s gonna win because she said it won’t happen.
+ - I would compare it to an actor. I drive myself into the character that later on is in the ring.
+ - I’m quite shocked by the recent British media stories about an alleged brawl between myself and Dereck Chisora. I am a professional prize fighter and let my fists do the talking only inside the ring. I don’t want to comment on Chisora’s psychological issues.
+ - I train six days a week for four to five hours a day. I like to keep the same schedule when I’m in camp for every fight.
+ - If he goes down, he is to get up, and continue to fight, until I finish the process.
+ - In the old days, when Muhammad Ali was fighting Ken Norton, Joe Frazier and George Foreman, there was a lot of excitement in the heavyweight division, I have to admit it.
+ - I think a fight with David Haye, even if he is not American, is going to give positive vibes about the heavyweight division for the American fans and fans worldwide.
+ - It is incredibly difficult to adjust to such a little fighter. Mormeck is similar to Mike Tyson, he is just a little still faster.
+ - I never fought in my life outside of a ring.
+ - All of my fights are planned. I study my opponents from A to Z. How he walks, how he looks, how he speaks, gestures of the human body, which is a certain language that provides you lots of information if you have the ability to read it.
+ - When you’re successful for so many years, the scariest part is that you’re getting too comfortable because you’ve had so much success.
+ - In Soviet times, the border was closed, so we couldn’t get out of the country, and I had been reading Robinson Crusoe. I wanted to see the ocean, I wanted to see boats, I wanted to see black people, because we didn’t have that in the Soviet Union. I was all excited by that stuff.
+ - That’s the most terrible mistake you can make: to relax. It’s difficult to become a champion, but it’s more difficult to maintain it for many years because you’re getting too comfortable.
+ - I don’t like to get hit, who likes it? I probably wouldn’t do this sport if I was getting hit that much.
+ - It’s such a gift in my life to be able to compete – to have the health.
+ - There’s certain things that you cannot cross, no matter who you are, what you’re doing or where you’re coming from.
+ - I would say that Roger Federer is pretty amazing. And Manny Pacquiao – he’s such a tiny, little lightweight guy, but the way he fights makes people so excited.
+ - It was like a musician playing notes. Everything we trained worked.
+ - I have decided to make a personal message to David Haye. I want him to fight me, to be a man. I wish there will be enough excitement, pressure and courage for David Haye to fight me.
+ - I think that boxing is actually not as dangerous as the politics. In boxing, you’re gonna get a bloody nose or a black eye. In politics you can obviously get either dioxin in the food or bullet in the head.
+ - It is up to the people and boxing fans to give me the respect I deserve once I have finished my career. I personally do not think about my legacy.
+ - I’m trying to keep the face of my opponent more or less not damaged but eventually to execute the plan and knock him out.
+ - These nuclear plants are more dangerous than people realize.
+ - There are 49 guys that got bored to sleep on my record, so they got knocked out by it.
+ - I’ve fought everybody without ducking anyone. I have beaten 10 undefeated guys, and I never was comparing myself to the greatest in the sport. I was not thinking of breaking any records. I’m just enjoying my time in boxing.
+ - I prepare for my fights to well that I don’t wanna give a chance to my opponent to crash my ‘glass chin’ as they say, so I’m knocking them in the way that I like.
+ - I always train and prepare with highest concentration and focus on my next opponent. To me, it does not matter what his name is.
+ - Radiation doesn’t recognize borders. A meltdown in Japan or India, say, is a danger to the whole world. Wind circulates the radiation everywhere. Water quality is affected. We all eat the same fish. We use products from all over the world – if something is contaminated, it will cause harm.
+ - He’s been an inspiration for me since the Olympics 1996.
+ - The challenge for me is his size because, for the first time in my career, I’ll be meeting an opponent who is taller than me and has a longer reach.
+
+64 quotes

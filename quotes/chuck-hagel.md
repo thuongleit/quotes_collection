@@ -1,0 +1,43 @@
+ - We must prepare for everything.
+ - There are always consequences to actions that you take. There are consequences to inaction. And thinking through, asking the questions, “Well, then what happens? What comes next?” is critically important.
+ - You can’t just drop the 82nd Airborne into Baghdad and it will all be over.
+ - Iraq was a war of choice, like Vietnam.
+ - And this – this board was – was impanelled in 1951. And it’s gone through ups and downs in how the secretaries have used it. But I have put a premium on that advisory board.
+ - Things aren’t getting better; they’re getting worse. The White House is completely disconnected from reality. It’s like they’re just making it up as they go along. The reality is that we’re losing in Iraq.
+ - Desperate men do desperate things when you take hope away. And that’s where the Palestinians are today.
+ - Imposing democracy through force is a roll of the dice.
+ - If you wanted a safe job, go sell shoes. This is a tough business.
+ - This current government in Iraq has never fulfilled the commitments it made to form a unity government with the Kurds, the Sunnis and the Shia. We have worked hard with them within the confines of our ability to do that but we can’t dictate to them.
+ - No one individual vote, no one individual quote or no one individual statement defines me, my beliefs, or my record.
+ - I am fully supportive of ‘open service’ and committed to LGBT military families.
+ - Alliances and international organizations should be understood as opportunities for leadership and a means to expand our influence, not as constraints on our power.
+ - I took an oath of office to the Constitution, I didn’t take an oath of office to my party or my president.
+ - Palestinians caged up like animals.
+ - No border that touches Israel is always secure.
+ - Engagement is not appeasement. Engagement is not surrender.
+ - The United Nations has a critical role to play in promoting stability, security, democracy, human rights, and economic development. The UN is as relevant today as at any time in its history, but it needs reform.
+ - Well, let’s go back to the original intent of Social Security. It is an insurance contract.
+ - The twenty first century will require a re-affirmation and re-definition of our alliances and international organisations.
+ - History has shown that a country most effectively speaks with one voice. When nationally elected officials work together, build consensus, and provide leadership, the American people will follow.
+ - I have never believed you go to war in Iraq, you go to war in Afghanistan, and believe that you can deal with those battlefields, those countries, in microcosms, or narrow channels.
+ - Politics or ideology must not get in the way of sound planning.
+ - If America is to succeed in responding to these 21st Century challenges, our political system cannot continue to bog down in the mire of partisan gamesmanship.
+ - Foreign policy is all about a universe of bad decisions, imperfect decisions; every situation is different. The dynamics, the atmospherics, the people, the pressures, the geopolitical realities shift.
+ - I’m not saying my idea is the one and only idea. We should have other ideas, but the president has not laid down a specific plan as to how he’s going to get us to solvency. I do that.
+ - My overall worldview has never changed: that America has and must maintain the strongest military in the world, that we must lead the international community to confront threats and challenges together, and that we must use all tools of American power to protect our citizens and our interests.
+ - We live in a world where there are dangerous people, there are bad people.
+ - I believe, and always have, that America must engage – not retreat – in the world.
+ - It is easy to get into war, not so easy to get out.
+ - Bogging down large armies in historically complex, dangerous areas ends in disaster.
+ - The United States can’t impose democracies. We can’t impose our will. The Russians found that out in Afghanistan.
+ - Nations, great nations have limitations. All nations have limitations. Even great powers have limitations.
+ - Institutions are imperfect. Governments surely are. People are.
+ - I would not trade America’s position in the world – our ledger, our debts and assets – for any country in the world. There isn’t a country in the world even close to America.
+ - I’m a United States senator. I’m not an Israeli senator.
+ - Deserves some consideration, and I think that should have been done right from the beginning.
+ - Peace comes through dealing with people. Peace doesn’t come at the end of a bayonet or the end of a gun.
+ - I’m a supporter of Israel, always have been.
+ - The recent wave of Taliban attacks has made clear that the international community must not waiver in its support for a stable, secure and prosperous Afghanistan.
+ - The Israeli people must be free to live in peace and security.
+
+41 quotes

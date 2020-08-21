@@ -1,0 +1,52 @@
+ - A certain death of an artist is overconfidence.
+ - The ability to make music is a gift that you’re born with; it’s not something you can learn.
+ - If all you’ve got is somebody else’s stuff that you’ve lifted, nothing really deep, then it is going to thin out.
+ - I got a guitar when I was about 14, for a Christmas present, and went from there.
+ - I go through about two Fender mediums a night because I don’t pick straight down; it’s sort of sideways, and it shaves them off.
+ - I don’t tend to stand still for very long.
+ - I remember the snow in Canada and the lovely weather in New Zealand. And I slightly remember going to school there.
+ - People often say very, very nice, complimentary things. But I think it’s better if you don’t take that too much to heart.
+ - I use a combination of all my influences on my albums.
+ - A wah-wah is important as well. I love it; it makes the guitar scream.
+ - There are no plans to do any more live stuff. I really feel like there’s enough live shows out there.
+ - Once you start copying other people’s licks, you begin thinking they’re yours. Doing that’s just an easy way out.
+ - There’s more power in the simpler things, I think.
+ - It was an experience being on a Beatles tour. They weren’t very good. The singing was great, but the playing was a bit weak.
+ - My energy flagged because of heavy cold but the guys took up the slack.
+ - When you start believing you’re something special, then you’re not going to be striving to move forward.
+ - I go for as much feeling as I can rather than show what I can do up and down the neck. I don’t play to show people ability.
+ - Radio is commercial, isn’t it. Its a business.
+ - It’s impossible to play a run with as much feeling as a single note. I’ve never been so much into runs as making single notes cry.
+ - While I was with Procol Harum, the only time I’d see my guitar was either when I walked onstage or in the studio.
+ - If I could sing, I wouldnt be a guitarist.
+ - I didn’t want to get attached to one guitar; I didn’t want to have an instrument that was irreplaceable.
+ - I was very keen on people like Elvis, Carl Perkins, Jerry Lee Lewis, and Gene Vincent.
+ - I think the fundamental part of my technique is my vibrato.
+ - Oddly enough, Hendrix is not my favorite guitar player. There are very few guitar players I get feeling from.
+ - My songs are more arrangements than they are songs.
+ - I think it’s a sensible thing not to read your fan mail – not to take it too seriously.
+ - I feel that my playing on the first album was probably some of my best.
+ - To me there’s a definite way of doing a song. If I didn’t think that, I wouldn’t have done it that way in the first place.
+ - The BBC, during its 24 hours on the air, plays a very wide range of stuff. And it’s not commercial.
+ - It all comes down to the density of the wood. Every guitar’s different.
+ - During my early period I had custom-made overdrive stuff because I didn’t like what they were making at the time.
+ - I feel I’ve been blessed with a gift of creativity and composition. That’s why I’ve been able to keep going.
+ - If you want to do rock and roll, forget about those who’ve come after ’65.
+ - The guitar part is the pivot of everything we do, so if you change the guitar part you no longer have what it is.
+ - I will obviously take on board everything from my past, I always do.
+ - It’s great to have something you can be proud of.
+ - I can’t imagine ever going back to working with somebody else.
+ - I wouldn’t count myself as being a true blues guitarist because I feel you have to live it.
+ - If you feel people getting on about what you are doing, it gives you a lift.
+ - The States still has the best audiences by far.
+ - I’ve got very strong hands from playing for many years.
+ - I have short hands. That’s why I have to bend up to notes; I can’t always reach the frets.
+ - It gives me a good feeling to know that people out there really care.
+ - I didn’t sit down and work out other people’s material; I’ve never believed in that.
+ - I don’t tend to have a favorite album; I tend to have favorite tracks. There are flaws in every album that spoil it for me.
+ - I can’t say I feel influenced by today’s guitar players.
+ - I have done some things that I’m very proud of. I don’t think you can say any more than that, really.
+ - Once I’ve settled on something I’ll stay with that at least throughout the whole tour.
+ - Music has nothing to do with your technical ability.
+
+50 quotes

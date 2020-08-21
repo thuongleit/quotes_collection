@@ -1,0 +1,85 @@
+ - Never doubt that one person can make a difference.
+ - When it comes to pain, love, joy, loneliness, and fear, a rat is a pig is a dog is a boy.
+ - Euthanasia is the kindest gift to a dog or cat unwanted and unloved.
+ - The extinction of Homo Sapiens would mean survival for millions, if not billions, of Earth-dwelling species. Phasing out the human race will solve every problem on Earth – social and environmental.
+ - When it comes to having a central nervous system, and the ability to feel pain, hunger, and thirst, a rat is a pig is a dog is a boy.
+ - All tyranny, bigotry, aggression, and cruelty are wrong, and whenever we see it, we must never be silent.
+ - Perhaps measuring animal intelligence by comparing it to human intelligence isn’t the best litmus test.
+ - Pet ownership is slavery. Animals are not ours to eat, wear, experiment on, or be entertained by.
+ - Whether or not we are religious, respecting others should be seen as just as important as looking out for ourselves, yet it requires discipline to change our bad habits that cause pain to animals.
+ - Humans have grown like a cancer. We’re the biggest blight on the face of the earth.
+ - Eventually companion animals would be phased out, and we would return to a more symbiotic relationship, enjoyment at a distance.
+ - We are not in the home finding business, although it is certainly true that we do find homes from time to time for the kind of animals people are looking for. Our service is to provide a peaceful and painless death to animals who no one wants.
+ - A lot of people have culturally induced ethical blindness, but they can be cured!
+ - The smallest form of life, even an ant or a clam, is equal to a human being.
+ - Recognize meat for what it really is: the antibiotic- and pesticide-laden corpse of a tortured animal.
+ - If we are ever to halt climate change and conserve land, water and other resources, not to mention reduce animal suffering, we must celebrate Earth Day every day – at every meal.
+ - Animals aren’t any better equipped to survive an emergency than humans are. Few people missed the fact that after Hurricane Katrina, people died because buses and emergency shelters wouldn’t allow their animals.
+ - It is only human supremacy, which is as unacceptable as racism and sexism, that makes us afraid of being more inclusive.
+ - A rat is a pig is a dog is a boy.
+ - I am not only uninterested in having children. I am opposed to having children. Having a purebred human baby is like having a purebred dog; it is nothing but vanity, human vanity.
+ - The best bet for the horses would be to stop betting on the Derby and other horse races, and to stop breeding, racing and killing thoroughbreds altogether.
+ - The wonderful thing is that it’s so incredibly easy to be kind.
+ - Give your dog or cat respect, patience, understanding and love. And if you just change to one vegetarian day a week, that’s a wonderful step that will save animal lives. It means you have chosen something kind instead of something cruel.
+ - Six million Jews died in concentration camps, but six billion broiler chickens will die this year in slaughter houses.
+ - Pigeon racing is a lousy, greedy, and often unlawful activity. One thing that it is not is kind to birds.
+ - Eating meat is primitive, barbaric, and arrogant.
+ - If a girl gets sexual pleasure from riding a horse, does the horse suffer? If not, who cares? If you French kiss your dog and he or she thinks it’s great, is it wrong? We believe all exploitation and abuse is wrong. If it isn’t exploitation and abuse, it may not be wrong.
+ - Pet ownership is an absolutely abysmal situation brought about by human manipulation.
+ - We do not advocate right to life for animals.
+ - By adopting a wonderful mutt, you’ll save a life and help reduce animal homelessness while also boosting your chances of a more robust new furry friend, as mixed-breed dogs have demonstrated better health and longer life spans than their purebred cousins.
+ - Today, I marvel at the vegan foods in the supermarket, at the cruelty-free clothing choices in stores, and at the fantastic alternatives to dissection in schools, the modern ways to test medicines without killing rabbits and beagles, the many forms of entertainment involving purely human performers.
+ - That’s what the Nazis did, isn’t it? Treated those “others” they thought subhuman by making them lab subjects and so on. Even the Nazis didn’t eat the objects of their derision.
+ - Medical research is “immoral even it it’s essential.”
+ - If you like to bake with eggs, you can substitute Ener-G egg replacer, bananas, tofu, or many other ingredients. You get the hang of it quickly enough.
+ - Fortified plant-based milks are delicious and contain all the calcium, protein, and vitamin D of dairy products but with none of the cholesterol, lactose, hormones, or cruelty found in cow’s milk.
+ - I have to think of the positive; that’s how I cope.
+ - Pigeons are gentle and smart and have complex social relationships. Their hearing and vision are both excellent.
+ - Our nonviolent tactics are not as effective. We ask nicely for years and get nothing. Someone makes a threat, and it works.
+ - Every time we consume meat, eggs or dairy foods, we contribute to ecological devastation and the wasteful misuse of resources on a global scale.
+ - Ninety-five percent of the eggs produced in America come from factory-farmed birds. Even if free-range farms were hugely more humane, the sheer number of animals raised to satisfy people’s desire for eggs, meat, and milk makes it impossible for us to raise them all on small, free-range farms.
+ - Look out for your baby or your friend, of course. That is easy. The test of moral fiber is to stick up for those you relate to least, understand minimally, and do not think are that much like you.
+ - Cows are gentle, interesting animals.
+ - I wish we all would get up and go into the labs and take the animals out or burn them down.
+ - Winners don’t eat wieners.
+ - Although we have, in theory, abolished human slavery, recognized women’s rights, and stopped child labor, we continue to enslave other species who, if we simply pay attention, show quite clearly that they experience parental love, pain, and the desire for freedom, just as we do.
+ - Real nutrition comes from soybeans, almonds, rice, and other healthy vegetable sources, not from a cow’s udder.
+ - Seriously, I think everybody needs to be more disciplined; nobody needs any meat. But from a perspective of how many animals suffer, it’s probably better to kill and eat one whale than it is to eat fish, chickens, cows, lambs and eggs.
+ - To me, it is one world, and the non-human animals bear the brunt of oppression and suffering.
+ - There’s nothing humane about the flesh of animals who have had one or two or even three improvements made in their singularly rotten lives on today’s factory farms.
+ - I think if you’re against cruelty and you look at what happens to animals in slaughterhouses and on factory farms, you have to be completely against eating meat.
+ - I am not a morose person, but I would rather not be here. I don’t have any reverence for life, only for the entities themselves. I would rather see a blank space where I am. This will sound like fruitcake stuff again but at least I wouldn’t be harming anything.
+ - Animal hoarding was a dirty secret until hoarders appeared on our TV screens and showed how they are compelled to collect so many dogs, cats or parrots that the animals end up in cages only inches bigger than their own bodies. For life.
+ - Even painless research is fascism, supremacism.
+ - At PETA, we often say that the issue of how animals are treated isn’t just about them; it’s about us, how we behave.
+ - I don’t have the luxury of having a dog myself because I travel too much, but I love walking and cuddling somebody else’s dog.
+ - When we build an attractive home, we raze land on which animals have already built their homes. They have nowhere to go.
+ - It’s the 21st century. It’s healthier for us, better for the environment and certainly kinder to be a vegetarian.
+ - I hope SeaWorld is exploring how, like Ringling, it can get out of the wild animal business.
+ - Why go for a costly, sickly, mass-produced purebred when shelters are full of one-of-a-kind mixed breeds who are literally dying for a home?
+ - Most Americans, like most Japanese, view their dogs, cats, and other animal companions as family members, and rightly so.
+ - Even if animal experiments did result in a cure for AIDS, of which there is no chance, I’d be against it on moral grounds.
+ - Elephants have the largest brains of any mammal on the face of the Earth. They are creative, altruistic and kind.
+ - Would I rather the research lab that tests animals is reduced to a bunch of cinders? Yes.
+ - When I hear of anyone walking into a lab and walking out with animals, my heart sings.
+ - Businesses are terrified. They have no idea what I’m going to do next.
+ - It’s interesting that one of the definitions of the word ‘human’ is ‘sympathetic.’ More and more people are beginning to show that they understand why that is important.
+ - We all have prejudices to dispel: the need to get away from thinking that ‘I’ am important and special and ‘you’ are not, and the frightened mindset that tells us that certain ‘others’ are of no consequence.
+ - Animal liberationists do not separate out the human animal, so there is no rational basis for saying that a human being has special rights. A rat is a pig is a dog is a boy. They’re all mammals.
+ - It’s time to face facts: Most people stop being environmentalists when they sit down to eat.
+ - Being asked to support humane meat means being asked to support the suffering of animals in transport, to approve of treatment that causes them palpable fear, their bodies shaking and their eyes wide as saucers, as they are slung by their legs into crates that are slammed onto the back of a truck.
+ - If Vice President Al Gore advocated killing rabbits to see if women are pregnant and called it a step forward for science, we’d all think he’d gone ’round the bend. We don’t need to do that sort of thing anymore, we’d say. We have better, kinder ways.
+ - Cheap meat is the problem. The answer is to replace meat recipes with vegan meals.
+ - Going meat-free can make a huge difference. Studies show that vegetarians are, on average, 10 to 20 pounds lighter than meat-eaters and that a vegetarian diet reduces our risk of heart disease by 40 percent and adds seven or more years to our lifespan.
+ - All of us in society are supposed to believe that cruelty to animals is wrong and that it is a good thing to prevent needless suffering. So if that is true, how can meat be acceptable under any but the most extraordinary circumstances, such as perhaps roasting the bird who died flying into a window?
+ - One hates to be absolute, but in my view, there is no such thing as humane meat.
+ - We’re looking for good lawsuits that will establish the interests of animals as a legitimate area of concern in law.
+ - Anybody who witnesses the suffering of animals and has a glimmer of hope of reducing that suffering can’t take the position that it’s all or nothing. We have to be pragmatic. Screw the principle.
+ - In order to be kind, one must do. There is no point in thinking good thoughts and not acting on them. There is no currency in wishing things were better but not rolling up one’s sleeves and helping to change them.
+ - Pigeons are among the most maligned urban wildlife despite the fact that human beings brought them to our shores and turned them loose in our cities – not something that they chose.
+ - Consumers of meat, eggs and dairy products might well ask what they are supporting. Do farmers care about anyone but themselves? Can’t anyone see the cow for the cheese?
+ - Perhaps the mere idea of receiving a nasty missive will allow animal researchers to empathize with their victims for the first time in their lousy careers. I find it small wonder that the laboratories aren’t all burning to the ground. If I had more guts, I’d light a match.
+ - I am just trying to make the best possible case for the animals. That is clearly what I have been put on earth to do. Even after I am gone I will try to continue.
+ - Everything we do is based at adults.
+
+83 quotes

@@ -1,0 +1,22 @@
+ - But whatever, we descendants of the Girl Line may not have wealth and proper windows in our drafty homes but at least we have rage and we will build empires with that, gentlemen.
+ - I love road trips. You get into this Zen rhythm; throw sense of time out the window.
+ - There are no windows within the dark house of depression through which to see others, only mirrors.
+ - Life being what it is, one dreams not of revenge. One just dreams.
+ - Is it wrong to trust in a beautiful lie if it helps you get through life?
+ - But love, like a mushroom high compared with the buzz from cheap weed, outlasts grief.
+ - It’s hard to grieve in a town where everything that happens is God’s will. It’s hard to know what to do with your emptiness when you’re not supposed to have emptiness.
+ - It’s raining questions around here. A person could drown in them.
+ - Perhaps depression is caused by asking oneself too many unanswerable questions.
+ - After that we tried thirty-nine times to stand together on the tube until we finally did. It was fun. I liked the falling part, and holding hangs. Relationships were so easy when all you had to work on was standing up together.
+ - I had a thought, on the way home from the rock field, that the things we don’t know about a person are the things that make them human, and it made me feel sad to think that, but sad in that reassuring way that some sadness has, a sadness that says welcome home in twelve different languages.
+ - It was the first time that we had sort of articulated our major problem. She wanted to die and I wanted her to live and we were enemies who loved each other.
+ - Her faith in a loving and forgiving God is strong, but she worships laughter.
+ - It bothered me in a kind of Charles Manson way to have a brown smear of blood on my wall but I also liked it because every time I looked at it I was reminded that I was, at that very moment, not bleeding from my face. And those are powerful words of hope, really.
+ - If you have to end up in the hospital, try to focus all your pain in your heart rather than your head.
+ - I wondered if it was possible to donate my body to science before I was actually dead. I wondered if a disease were to be named after me what the symptoms would be.
+ - I learned another thing, which is that just because someone is eating the ashes of your protagonist doesn’t mean you stop telling the story.
+ - A few weeks ago my uncle came over to borrow my dad’s socket set and when he asked my dad how he was my dad said oh unexceptional. Living quietly with my disappointments. And how are you.
+ - Even a Menno sheltered from the world knows not to stick her tongue into the mouth of a boy who owns an Air Supply record. You might stick your tongue into the mouth of a boy who owned some Emerson, Lake and Palmer, but you would not date him on a regular basis, or openly.
+ - If, along the way, something is gained, then something will also be lost.
+
+20 quotes

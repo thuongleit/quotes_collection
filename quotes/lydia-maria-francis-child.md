@@ -1,0 +1,54 @@
+ - Belief in oneself is one of the most important bricks in building any successful venture.
+ - Blessed indeed is the man who hears many gentle voices call him father.
+ - I will work in my own way, according to the light that is in me.
+ - Law is not law, if it violates the principles of eternal justice.
+ - No music is so pleasant to my ears as that word – father.
+ - Home – that blessed word, which opens to the human heart the most perfect glimpse of Heaven, and helps to carry it thither, as on an angel’s wings.
+ - Genius hath electric power which earth can never tame.
+ - Love is the divine quality that everywhere produces and restores life. To each and every one of us, it gives the power of working miracles if we will.
+ - Misfortune is never mournful to the soul that accepts it; for such do always see that every cloud is an angel’s face.
+ - Be spontaneous, be truthful, be free, and thus be individuals!
+ - Woman stock is rising in the market. I shall not live to see women vote, but I’ll come and rap on the ballot box.
+ - Work! work! that is my unfailing cure for all troubles.
+ - An effort made for the happiness of others lifts above ourselves.
+ - We first crush people to the earth, and then claim the right of trampling on them forever, because they are prostrate.
+ - Flowers have spoken to me more than I can tell in written words. They are the hieroglyphics of angels, loved by all men for the beauty of their character, though few can decipher even fragments of their meaning.
+ - The civilization of any country may always be measured by the degree of equality between men and women; and society will never come truly into order until there is perfect equality and copartnership between them in every department of human life.
+ - Happiness consists not in having much, but in wanting no more than you have.
+ - That a majority of women do not wish for any important change in their social and civil condition, merely proves that they are the unreflecting slaves of custom.
+ - Every human being has, like Socrates, an attendant spirit; and wise are they who obey its signals. If it does not always tell us what to do, it always cautions us what not to do.
+ - It is right noble to fight with wickedness and wrong; the mistake is in supposing that spiritual evil can be overcome by physical means.
+ - You find yourself refreshed in the presence of cheerful people. Why not make an honest effort to confer that pleasure on others? Half the battle is gained if you never allow yourself to say anything gloomy.
+ - The eye of genius has always a plaintive expression, and its natural language is pathos.
+ - Nature made us individuals, as she did the flowers and the pebbles; but we are afraid to be peculiar, and so our society resembles a bag of marbles, or a string of mold candles. Why should we all dress after the same fashion? The frost never paints my windows twice alike.
+ - Prejudices of all kinds have their strongest holds in the minds of the vulgar and the ignorant.
+ - A human heart can never grow old if it takes a lively interest in the pairing of birds, the reproduction of flowers, and the changing tints of autumn leaves.
+ - Childhood itself is scarcely more lovely than a cheerful, kindly, sunshiny old age.
+ - Neither lemonade nor anything else can prevent the inroads of old age. At present, I am stoical under its advances, and hope I shall remain so. I have but one prayer at heart; and that is, to have my faculties so far preserved that I can be useful, in some way or other, to the last.
+ - A reformer is one who sets forth cheerfully toward sure defeat.
+ - The boughs of no two trees ever have the same arrangement. Nature always produces individuals; She never produces classes.
+ - It is impossible to exaggerate the evil work theology has done in the world.
+ - Yours for the unshackled exercise of every faculty by every human being.
+ - There have always been a large class of thinkers who deny that the world makes any progress. They say we move in a circle; that evils are never conquered, but only change their forms.
+ - Genius hath electric power; Which earth can never tame; Bright suns may scorch and dark clouds lower; Its flash is still the same.
+ - I think we have reason to thank God for Abraham Lincoln.
+ - The old men gazed on them in their loveliness, and turned away with that deep and painful sigh, which the gladness of childhood, and thetransient beauty of youth, are so apt to awaken in the bosom of the aged.
+ - Even if nothing worse than wasted mental effort could be laid to the charge of theology, that alone ought to be sufficient to banish it from the earth, as one of the worst enemies of mankind.
+ - I keep working because I am quite sure that no particle of goodness or truth is ever really lost, however appearances may be to the contrary.
+ - So easy it is to see the errors of past ages, so difficult to acknowledge our own!
+ - Over the river and through the wood To grandfather’s house we go.
+ - None speak of the bravery, the might, or the intellect of Jesus; but the devil is always imagined as a being of acute intellect, political cunning, and the fiercest courage. These universal and instinctive tendencies of the human mind reveal much.
+ - England may as well dam up the waters of the Nile with bulrushes as to fetter the step of Freedom, more proud and firm in this youthful land than where she treads the sequestered glens of Scotland, or couches herself among the magnificent mountains of Switzerland.
+ - But men never violate the laws of God without suffering the consequences, sooner or later.
+ - I was gravely warned by some of my female acquaintances that no woman could expect to be regarded as a lady after she had written a book.
+ - The rarest attainment is to grow old happily and gracefully.
+ - Make people happy and there will not be half the quarreling, or a tenth part of the wickedness there now is.
+ - Whoso does not see that genuine life is a battle and a march has poorly read his origin and his destiny.
+ - The laws of our being are such that we must perform some degree of use in the world, whether we intend it, or not; but we can deprive ourselves of its indwelling joy, by acting entirely from the love of self.
+ - Philosophy and the arts are but a manifestation of the intelligible ideas that move the public mind; and thus they become visible images of the nations whence they emanate.
+ - There was a time when all these things would have passed me by, like the flitting figures of a theatre, sufficient for the amusement of an hour. But now, I have lost the power of looking merely on the surface.
+ - We must not forget that all great revolutions and reformations would look mean and meagre if examined in detail as they occurred at the time.
+ - Ah, my friend, that is the only true church organization, when heads and hearts unite in working for the welfare of the human race!
+ - Birds and beasts have in fact our own nature, flattened a semi-tone.
+
+52 quotes

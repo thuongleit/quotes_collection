@@ -1,0 +1,212 @@
+ - Nothing is true, everything is permitted.
+ - Your mind will answer most questions if you learn to relax and wait for the answer.
+ - When you stop growing you start dying.
+ - Cheat your landlord if you can and must, but do not try to shortchange the Muse. It cannot be done. You can't fake quality any more than you can fake a good meal.
+ - Man is an artifact designed for space travel. He is not designed to remain in his present biologic state any more than a tadpole is designed to remain a tadpole.
+ - NOTHING happens by coincidence.
+ - Language is a virus from outer space.
+ - A paranoid is someone who knows a little of what’s going on.
+ - Open your mind and let the pictures out.
+ - Desperation is the raw material of drastic change. Only those who can leave behind everything they have ever believed in can hope to escape.
+ - This is a war universe. War all the time. There may be other universes, but ours seems to be based on war and games.
+ - You must learn to exist with no religion, no country, no allies. You must learn to live alone in silence.
+ - There is no intensity of love or feeling that does not involve the risk of crippling hurt. It is a duty to take this risk, to love and feel without defense or reserve.
+ - When you cut into the present the future leaks out.
+ - Silence is only frightening to people who are compulsively verbalizing.
+ - Smash the control images. Smash the control machine.
+ - In deep sadness there is no place for sentimentality. It is as final as the mountains: a fact. There it is. When you realize it you cannot complain.
+ - We should exterminate all rational thought.
+ - Hustlers of the world, there is one mark you cannot beat: the mark inside.
+ - Love? What is it? Most natural painkiller what there is.
+ - If the soft machine works, don’t fix it. If it works, don’t fix it.
+ - Happiness is a byproduct of function, purpose, and conflict; those who seek happiness for itself seek victory without war.
+ - Nothing exists until or unless it is observed. An artist is making something exist by observing it. And his hope for other people is that they will also make it exist by observing it. I call it ‘creative observation.’ Creative viewing.
+ - All writing is in fact cut-ups. A collage of words read heard overheard. What else?
+ - If you build a good name, eventually, that name will be its own currency.
+ - I think all writers write for an audience. There is no such thing as writing for yourself.
+ - For God’s sake, keep your eyes open. Notice what’s going on around you.
+ - We must all face the fact that our leaders are certifiably insane or worse.
+ - Cut word lines – Cut music lines – Smash the control images – Smash the control machine – Burn the books – Kill the priests – Kill! Kill! Kill!
+ - I do spend a great deal of time alone. I’m not very gregarious. I don’t like parties and miscellaneous gatherings with no particular purpose. I think parties are largely a mistake. The bigger they are the more mistaken they are.
+ - There is in fact something obscene and sinister about photography, a desire to imprison, to incorporate, a sexual intensity of pursuit.
+ - Jesus Christ said ‘by their fruits ye shall know them,’ not by their disclaimers.
+ - Every man has inside himself a parasitic being who is acting not at all to his advantage.
+ - Do not proffer sympathy to the mentally ill; it is a bottomless pit. Tell them firmly, “I am not paid to listen to this drivel – you are a terminal fool!” Otherwise, they make you as crazy as they are.
+ - Who was I? The stranger was footsteps in the snow a long time ago.
+ - Artists to my mind are the real architects of change.
+ - Tangier is one of the few places left in the world where, so long as you don’t proceed to robbery, violence, or some form of crude, antisocial behavior, you can do exactly what you want.
+ - I am getting so far out one day I won’t come back at all.
+ - Most people don’t see what’s going on around them. That’s my principal message to writers: ‘For God’s sake, keep your eyes open. Notice what’s going on around you.’
+ - Thanks for the American dream, to vulgarize and falsify until the bare lies shine through. Thanks for a country where nobody’s allowed to mind their own business.
+ - The purpose of technology is not to confuse the brain but to serve the body.
+ - It is to be remembered that the origin of all the arts-music, painting and writing-is magical and evocative; and that magic is always used to obtain some definite result.
+ - The word is now a virus.
+ - There is nothing more provocative than minding your own business.
+ - Yes, for all of us in the Shakespeare Squadron, writing is just that: not an escape from reality, but an attempt to change reality.
+ - Death needs time for what it kills to grow in.
+ - After one look at this planet any visitor from outer space would say ‘I want to see the manager.’
+ - The only way I like to see cops given flowers is in a flower pot from a high window.
+ - Last night I woke up with someone squeezing my hand. It was my other hand.
+ - My greatest strength is to have a great capacity to confront myself no matter how unpleasant. My greatest weakness is that I don’t. I know that’s enigmatic, but that’s sort of a general formula for anyone, actually.
+ - Perhaps all pleasure is only relief.
+ - In my writing I am acting as a map maker, an explorer of psychic areas, a cosmonaut of inner space, and I see no point in exploring areas that have already been thoroughly surveyed.
+ - If after having been exposed to someone’s presence you feel as if you’ve lost a quart of plasma, avoid that presence. You need it like you need pernicious anemia.
+ - The idea that anyone can use drugs and escape a horrible fate is anathema to these idiots. I predict in the near future right-wingers will use drug hysteria as a pretext to set up an international police apparatus.
+ - Artists to my mind are the real architects of change, and not the political legislators who implement change after the fact.
+ - America is not a young land: it is old and dirty and evil before the settlers, before the Indians. The evil is there waiting.
+ - If, after spending time with a person, you feel as though you’ve lost a quart of plasma, avoid that person in the future.
+ - I miss you so much your absence causes me, at times, accute pain. I don’t mean sexually. I mean in connection with my writing.
+ - A cat’s rage is beautiful, burning with pure cat flame, all its hair standing up and crackling blue sparks, eyes blazing and sputtering.
+ - Revolution in America begins in books and music, then waits for political operatives to ‘implement changes after the fact.’
+ - Too perfect to be sexually attractive.
+ - Junk is not, like alcohol or weed, a means to increased enjoyment of life. Junk is not a kick. It is a way of life.
+ - Is Control controlled by its need to control? Answer: yes.
+ - Never interfere in a girl and boy fight.
+ - You know a real friend? Someone you know will look after your cat after you are gone.
+ - How long does it take man to realize that he cannot want what he wants? You have to live in hell to see heaven.
+ - If I knew how much you loved me, I would’ve shot you sooner.
+ - The way to kill a man or a nation is to cut off his dreams, the way the whites are taking care of the Indians: killing their dreams, their magic, their familiar spirits.
+ - America is not so much a nightmare as a non-dream. The American non-dream is precisely a move to wipe the dream out of existence. The dream is a spontaneous happening and therefore dangerous to a control system set up by the non-dreamers.
+ - The junk merchant doesn’t sell his product to the consumer, he sells the consumer to his product. He does not improve and simplify his merchandise. He degrades and simplifies the client.
+ - Home is where your ass is and if you want to move you move your ass the first step is learning to change homes with someone else and have someone else’s ass.
+ - My relationships with my cats has saved me from a deadly, pervasive ignorance.
+ - I am not a person and I am not an animal. There is something I am here for something I must do before I can go.
+ - A functioning police state needs no police.
+ - There isn’t a feeling you can get on drugs that you can’t get without drugs.
+ - Cat hate reflects an ugly, stupid, loutish, bigoted spirit. There can be no compromise with this Ugly Spirit.
+ - Love is a haunting melody that I have never mastered, and I fear I never will.
+ - The exact objectives of Islam Inc. are obscure. Needless to say everyone involved has a different angle, and they all intend to cross each other up somewhere along the line.
+ - Life is a vacation from two eternities, who wants to waste those precious years worrying about what happens when you get back to forever?
+ - The cat does not offer services. The cat offers itself.
+ - Cats didn’t start as mousers. Weasels and snakes and dogs are more efficient as rodent-control agents. I postulate that cats started as psychic companions, as Familiars, and have never deviated from this function.
+ - I don’t care if people hate my guts; I assume most of them do. The important question is whether they are in a position to do anything about it.
+ - Time: a landing field! Death needs time like a junkie needs junk.
+ - No one owns life, but anyone who can pick up a frying pan owns death.
+ - I think the ideal situation for a family is to be completely incestuous.
+ - When all lies, deceit, pretense is stripped away, what remains? The truth of a painting, or a book or a man.
+ - Now what sort of man or woman or monster would stroke a centipede I have ever seen? And here is my good big centipede! If such a man exists, I say kill him without more ado. He is a traitor to the human race.
+ - Paranoia is just having the right information.
+ - I had not taken a bath in a year nor changed my clothes or removed them except to stick a needle every hour in the fibrous grey wooden flesh of heroin addiction. I did absolutely nothing.
+ - Strip your psyche to the bare bones of spontaneous process, and you give yourself one chance in a thousand to make the Pass.
+ - It’s the little touches that make a future solid enough to destroy.
+ - The self is like a pimping blackmailing chauffeur who gets you from here to there on word lines.
+ - There’s a boy across the river with an ass like a peach; alas I was no swimmer and lost my Clementine.
+ - By the flaws in the picture the truth will emerge.
+ - If all pleasure is relief from tension, junk affords relief from the whole life process, in disconnecting the hypothalamus, which is the center of psychic energy and libido.
+ - Whether you sniff it smoke it eat it or shove it up your ass the result is the same: addiction.
+ - Like Spain, I am bound to the past.
+ - Modern man has lost the option of silence.
+ - When people start talking about their bowel movements, they are inexorable as the processes of which they speak.
+ - There is no line between the ‘real world’ and ‘world of myth and symbol.’ Objects, sensations, hit with the impact of hallucination.
+ - If the mortality rate seems high we must realize that Nature is a ruthless teacher. There are no second chances in Mother Nature’s Survival Course.
+ - Our national drug is alcohol. We tend to regard the use any other drug with special horror.
+ - I’m creating an imaginary – it’s always imaginary – world in which I would like to live.
+ - Like pregnant women lose their teeth feeding the stranger, junkies lose their yellow fangs feeding the monkey.
+ - People have nothing to say, but they are afraid of saying nothing, so what they do say comes out flat and vapid and meaningless. The shadow of death is on every face.
+ - Humility is indeed beatness, a compulsory virtue that no one exhibits unless he has to.
+ - In deep sadness there is no place for sentimentality.
+ - If I had my way we’d sleep every night all wrapped around each other like hibernating rattlesnakes.
+ - Panic is the sudden realization that everything around you is alive.
+ - I see no reason why the artistic world can’t absolutely merge with Madison Avenue. Pop art is a move in that direction. Why can’t we have advertisements with beautiful words and beautiful images?
+ - I bear my burden proudly for all to see, to conquer prejudice and ignorance and hate with knowledge and sincerity and love. Whenever you are threatened by a hostile presence, you emit a thick cloud of love like an octopus squirts out ink...
+ - The dark Gods of pain are surfacing from the immemorial filth of time...
+ - Kerouac opened a million coffee bars and sold a million pairs of Levis to both sexes. Woodstock rises from his pages.
+ - Virtue is simply happiness, and happiness is a by-product of function. You are happy when you are functioning.
+ - As an old junk pusher told me, ‘Watch whose money you pick up.’
+ - Society is cancerous and bureaucracy is its cancer.
+ - A junky runs on junk time. When the junk is cut off, the clock runs down and stops. All he can do is hang on and wait for non-junky time to start. A sick junky has no escape from external time, no place to go. He can only wait.
+ - After a shooting spree, they always want to take the guns away from the people who didn’t do it.
+ - The world wasn’t a more tolerant place when I was a young man. Rather, they simply sidestepped all the issues.
+ - An addict never stops growing. Stupider.
+ - Communication must become total and conscious before we can stop it.
+ - Truth is used to vitalize a statement rather than devitalize it. Truth implies more than a simple statement of fact. “I don’t have any whiskey,” may be a fact but it is not a truth.
+ - First there was a young guy sitting in front of television in a T-shirt drinking beer with his mother, then there was an older fatter person sitting in front of television in a T-shirt drinking beer with his mother.
+ - Hemingway said: ‘It don’t come anymore.’ So where did it go?
+ - Kick is seeing things from a special angle. Kick is momentary freedom from the claims of the aging, cautious, nagging, fightened flesh.
+ - Rock and Roll adolescent hoodlums storm the streets of all nations. They rush into the Louvre and throw acid in the Mona Lisa’s face.
+ - Black magic operates most effectively in preconscious, marginal areas. Casual curses are the most effective.
+ - Most of the trouble in this world has been caused by folks who can’t mind their own business, because they have no business of their own to mind, any more than a smallpox virus has.
+ - If you weren’t surprised by your life you wouldn’t be alive. Life is surprise.
+ - Whether you like it or not, you are committed to the human endeavor. I cannot ally myself with such a purely negative goal as avoidance of suffering. Suffering is a chance you take by the fact of being alive.
+ - That old feeling is still in my leaking heart.
+ - No atomic physicist has to worry, people will always want to kill other people on a mass scale. Sure, he’s got the fridge full of sausages and spring water.
+ - Like many nonconformist and beat generation writers, William S. Burroughs takes the outcasts of society as his theme.
+ - O death where is thy sting? The man is never on time...
+ - Victimless crimes are the lifeline of the RIGHT virus. And there is a growing recognition, even in official quarters, that victimless crimes should be removed from the books or subject to minimal penalties.
+ - I see painting as an evocative magic, and there must always be a random factor in magic, one which must be constantly changed and renewed.
+ - The line between inner and outer landscapes is breaking down. Earthquakes can result from seismic upheavals within the human mind. The whole random universe of the industrial age is breaking down into cryptic fragments.
+ - Tell the truth once and for all and shut up forever.
+ - Sexual arousal results from the repetition and impact of image.
+ - Writers, like elephants, have long, vicious memories. There are things I wish I could forget.
+ - How I hate those who are dedicated to producing conformity.
+ - The first and most important thing an individual can do is to become an individual again, decontrol himself, train himself as to what is going on and win back as much independent ground for himself as possible.
+ - Junk takes everything and gives nothing but insurance against junk sickness.
+ - Once the law starts asking questions, there’s no stopping them.
+ - Your knowledge of what is going on can only be superficial and relative.
+ - I think anybody incapable of changing his mind is crazy.
+ - Anything that can be done chemically can be done by other means.
+ - You need a good bedside manner with doctors or you will get nowhere.
+ - I project myself out through the glasses and across the street, a ghost in the morning sunlight, torn with disembodied lust.
+ - Some people like neat suburbs. I always am attracted to the rundown and the old and the offbeat.
+ - In homosexual sex you know exactly what the other person is feeling, so you are identifying with the other person completely. In heterosexual sex you have no idea what the other person is feeling.
+ - Bizarre and engrossingly disturbing, Naked Lunch, finds truth in madness.
+ - A consumer society is about simplfying and degrading the consumer as well as the product.
+ - Scientology is a model control system, a state in fact with its own courts, police, rewards and penalties.
+ - I detest limitations of any kind, and intend to establish my ass some place where I am a virgin on the police blotter.
+ - My characters are quite as real to me as so-called real people; which is one reason why I’m not subject to what is known as loneliness. I have plenty of company.
+ - You can’t fake quality any more than you can fake a good meal.
+ - The Planet drifts to random insect doom.
+ - Fear of death is form of stasis horrors. The dead weight of time.
+ - Tell Allen I plead guilty to vampirism and other crimes against life. But I love him and nothing else cancels love.
+ - The study of thinking machines teaches us more about the brain than we can learn by introspective methods. Western man is externalizing himself in the form of gadgets.
+ - Look at these poisonous color maps where flesh trees grow from human sacrifices; listen to these sniggering half-heard words of tenderness and doom from lips spotted with decay.
+ - Life is a vacation from two eternities.
+ - We must find out what words are and how they function. They become images when written down, but images of words repeated in the mind and not of the image of the thing itself.
+ - In Mexico your wishes have a dream power. When you want to see someone, he turns up.
+ - I awoke from The Sickness at the age of forty-five, calm and sane, and in reasonably good health except for a weakened liver and the look of borrowed flesh common to all who survive The Sickness...
+ - Any belief in Creators or Purpose is wishful thinking. And when you point out that perhaps ALL thinking is wishful, reactions of intense irritation give evidence that we are not dealing with logic but with faith.
+ - Everything Jack says is to be taken with considerable reserve.
+ - I know that Nature designs that this whole continent, not merely these thirty-six states, shall be, sooner or later, within the magic circle of the American union.
+ - Which came first the intestine or the tapeworm?
+ - I’m an old-fashioned person, and I don’t like informers.
+ - The purpose of my writing is to expose and arrest Nova Criminals.
+ - Hemingway was a prisoner of his style. No one can talk like the characters in Hemingway except the characters in Hemingway. His style in the wildest sense finally killed him.
+ - Dennis Cooper, God help him, is a born writer.
+ - If everyone is to be made responsible for everything they do, you must extend responsibility beyond the level of conscious intention.
+ - The only possible ethic is to do what one wants to do.
+ - You do an awful lot of bad writing in order to do any good writing. Incredibly bad. I think it would be very interesting to make a collection of some of the worst writing by good writers.
+ - Americans have a special horror of giving up control, of letting things happen in their own way without interference.
+ - I think there are innumerable gods. What we on earth call God is a little tribal God who has made an awful mess. Certainly forces operating through human consciousness control events.
+ - The face of evil is always the face of total need.
+ - The nonconformist here may be “beat down” by life but still has a beauty in his or her longing for freedom and for an awakening of the mind.
+ - Some of us are sixty feet long with a brain the size of a walnut.
+ - Death was in every sell of his body. He gave off a faint, greenish steam of decay. Lee imagined he would glow in the dark.
+ - Be just and if you can’t be just, be arbitrary.
+ - Quien sabe? Not me. The older I get the less I sabe, the less wisdom, maturity and caution I have.
+ - No body of knowledge needs an organizational policy. Organizational policy can only impede the advancement of knowledge. There is a basic incompatibility between any organization and freedom of thought.
+ - Shooting is my principal pastime.
+ - We are setting out to create new worlds, new beings, new modes of consciousness.
+ - Every word is autobiographical, and every word is fiction.
+ - Thanks, for a country where nobody is allowed to mind his own business. Thanks, for a nation of finks.
+ - The American uppermiddle-class citizen is a composite of negatives. He is largely delineated by what he is not. – pg. 41.
+ - The simplest questions are the most difficult.
+ - He who has learned to do nothing with his whole mind and body will have everything done for him.
+ - Like all pure creatures, cats are practical.
+ - Faced by the actual practice of freedom, the French and American revolutions would be forced to stand by their words.
+ - You were given the power to love in order to use it, no matter what pain it may cause you.
+ - I am trying like Klee, to create something that will have a life of its own, that can put me in real danger, a danger which I willingly take on myself.
+ - Time is what death needs to grow people in.
+ - A phenomenon must be to some extent comprehensible to be perceived at all.
+ - If you consider any set of data without a preconceived viewpoint, then a viewpoint will emerge from the data.
+ - Many of my characters first came through to me as voices. That’s why I use a tape recorder.
+ - It is indeed difficult to make a living as a writer, and my advice to anyone contemplating a literary career is to have some other trade.
+ - I think that Richard Nixon will go down in history as a true folk hero, who struck a vital blow to the whole diseased concept of the revered image and gave the American virtue of irreverence and skepticism back to the people.
+ - Intelligence and war are games, perhaps the only meaningful games left. If any player becomes too proficient, the game is threatened with termination.
+ - I had the feeling that some horrible image was just beyond the field of vision, moving, as I turned my head, so that I never quite saw it.
+ - Human, Allen, is an adjective, and its use as a noun is in itself regrettable.
+ - The most deadly picture is a picture of nothing at all. The colors are there, but there is no image, nothing.
+ - I know this one pusher walks around humming a tune and everybody he passes takes it up. He is so grey and spectral and anonymous they don’t see him and think it is their own mind humming the tune.
+ - There couldn’t be a society of people who didn’t dream. They’d be dead in two weeks.
+ - Most serious writers refuse to make themselves available to the things that technology is doing. I’ve never been able to understand this sort of fear.
+
+210 quotes

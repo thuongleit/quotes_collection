@@ -1,0 +1,21 @@
+ - There’s nothing wrong with a lisp.
+ - I make most of my friends through my extracurricular activities.
+ - One of my favorite apps is VSCO, which is for editing photos. I think they have great filters. And then I read the New York Times.
+ - Some things are worth the splurge.
+ - I certainly know quite a few kid actors, but I’m not really friends with them. They’re all very nice people, but I just don’t run in the same circles.
+ - I do lots of activities. I hang out with friends.
+ - I’d definitely like to go to college some day.
+ - My style is constantly changing.
+ - Well I was a Gerber baby, so probably that was my first money. But in cash, I used to do lemonade stands a lot.
+ - I love ballet. Ballet is its own being. It has its own vocabulary. I feel as if I am in a different world when I am in the ballet studio.
+ - I hate a messy closet. I totally freak out when my closet is messy and I can’t find anything.
+ - I am a huge fashion fan. It’s a really cool way to express yourself.
+ - I don’t know if I’ve ever screamed or cried for a band.
+ - I really get a chance to be a normal kid.
+ - Any day acting is an amazing day.
+ - I design some of my own clothes now.
+ - I do listen to some music, but I don’t technically have one band I’m absolutely hooked on.
+ - I always try to read at night, because it gets me kind of tired.
+ - I’ve been playing since I was 5, but I wouldn’t say that I’m serious about the piano.
+
+19 quotes

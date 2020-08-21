@@ -1,0 +1,42 @@
+ - Education is an atmosphere, a discipline, a life.
+ - The mother who takes pains to endow her children with good habits secures for herself smooth and easy days.
+ - Thought breeds thought; children familiar with great thoughts take as naturally to thinking for themselves as the well-nourished body takes to growing; and we must bear in mind that growth, physical, intellectual, moral, spiritual, is the sole end of education.
+ - An observant child should be put in the way of things worth observing.
+ - Look on education as something between the child’s soul and God. Modern Education tends to look on it as something between the child’s brain and the standardized test.
+ - Every day, every hour, the parents are either passively or actively forming those habits in their children upon which, more than upon anything else, future character and conduct depend...
+ - Never be within doors when you can rightly be without.
+ - Education, like faith, is the evidence of things not seen.
+ - There is no education but self-education.
+ - We are all meant to be naturalists, each in his own degree, and it is inexcusable to live in a world so full of the marvels of plant and animal life and to care for none of these things.
+ - Education is a life; that life is sustained on ideas; ideas are of spiritual origin, and that we get them chiefly as we convey them to one another. The duty of parents is to sustain a child’s inner life with ideas as they sustain his body with food.
+ - The indwelling of Christ is a thought particularly fit for the children, because their large faith does not stumble at the mystery, their imagination leaps readily to the marvel, that the King Himself should inhabit a little child’s heart.
+ - For the mind is capable of dealing with only one kind of food; it lives, grows and is nourished upon ideas only; mere information is to it as a meal of sawdust to the body; there are no organs for the assimilation of the one more than of the other.
+ - Give your child a single valuable idea, and you have done more for his education than if you had laid upon his mind the burden of bushels of information.
+ - Let children feed on the good, the excellent, the great! Don’t get in their way with little lectures, facts, and guided tours!
+ - We attempt to define a person, the most commonplace person we know, but he will not submit to bounds; some unexpected beauty of nature breaks out; we find he is not what we thought, and begin to suspect that every person exceeds our power of measurement.
+ - Wise and purposeful letting alone is the best part of education.
+ - Composition is as natural as jumping and running to children who have been allowed due use of books.
+ - In this time of extraordinary pressure, educational and social, perhaps a mother’s first duty to her children is to secure for them a quiet and growing time, a full six years of passive receptive life, the waking part of it for the most part spent out in the fresh air.
+ - The teacher who allows his scholars the freedom of the city of books is at liberty to be their guide, philosopher and friend; and is no longer the mere instrument of forcible intellectual feeding.
+ - We have never been so rich in books. But there has never been a generation when there is so much twaddle in print for children.
+ - Every walk should offer some knotty problem for the children to think out-“Why does that leaf float on the water, and this pebble sink?” and so on.
+ - Of all the joyous motives of school life, the love of knowledge is the only abiding one; the only one which determines the scale, so to speak, upon which the person will hereafter live.
+ - We all have need to be trained to see, and to have our eyes opened before we can take in the joy that is meant for us in this beautiful life.
+ - Do not let the endless succession of small things crowd great ideals out of sight and out of mind.
+ - Therefore, teaching, talk and tale, however lucid or fascinating, effect nothing until self-activity be set up; that is, self-education is the only possible education; the rest is mere veneer laid on the surface of a child’s nature.
+ - So much for the right books; the right use of them is another matter. The children must enjoy the book. The ideas it holds must each make that sudden, delightful impact upon their minds, must cause that intellectual stir, which mark the inception of an idea.
+ - The most common and the monstrous defect in the education of the day is that children fail to acquire the habit of reading.
+ - Let children have tales of the imagination, scenes laid in other lands and other times; heroic adventures, hairbreadth escapes, delicious fairy tales, even where it is all impossible, and they know it, and yet they believe.
+ - Of the three sorts of knowledge proper to a child, the knowledge of God, of man, and of the universe, – the knowledge of God ranks first in importance, is indispensable, and most happy-making.
+ - The peculiar value of geography lies in its fitness to nourish the mind with ideas and furnish the imagination with pictures.
+ - Authority is just and faithful in all matters of promise-keeping; it is also considerate, and that is why a good mother is the best home-ruler.
+ - We talk of lost ideals, but perhaps they are not lost, only changed; when our ideal for ourselves and for our children becomes limited to prosperity and comfort, we get these, very likely, for ourselves and for them, but we get no more.
+ - Profound thought is conveyed in language of very great simplicity and purity.
+ - Every common miracle which the child sees with his own eyes makes of him for the moment another Newton.
+ - A child gets moral notions from the fairy-tales he delights in, as do his elders from tale and verse.
+ - A child is a person in whom all possibilities are present – present now at this very moment – not to be educed after many years and efforts manifold on the part of the educator.
+ - Let the parent ask “Why?” and the child produce the answer, if he can. After he has turned the matter over in his mind, there is no harm in telling him – and he will remember it – the reason why.
+ - Every person exceeds our power of measurement.
+ - The problem before the educator is to give the child control over his own nature, to enable him to hold himself in hand as much in regard to the traits we call good, as to those we call evil:.
+
+40 quotes

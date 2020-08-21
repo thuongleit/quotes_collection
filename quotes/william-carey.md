@@ -1,0 +1,32 @@
+ - Expect great things from God, attempt great things for God.
+ - I’m not afraid of failure; I’m afraid of succeeding at things that don’t matter.
+ - To know the will of God, we need an open Bible and an open map.
+ - To belong to Jesus is to embrace the nations with Him.
+ - I was once young and now I am old, but not once have I been witness to God’s failure to supply my need when first I had given for the furtherance of His work. He has never failed in His promise, so I cannot fail in my service to Him.
+ - It is the duty of those who are entrusted with the Gospel to endeavor to make it known among all nations.
+ - The future is as bright as the promise of God.
+ - I can plod. I can persevere in any definite pursuit. To this I owe everything.
+ - Young man, sit down: when God pleases to convert the heathen, He will do it without your aid or mine.
+ - You have been saying much about Dr. Carey and his work. When I am gone, say nothing about Dr. Carey; speak about Dr. Carey’s Saviour.
+ - I went to India as a missionary to save England from spiritual collapse.
+ - Every Christian should live life with an open Bible and an open map.
+ - Prayer – secret, fervent, believing prayer – lies at the root of all personal godliness.
+ - If you want the Kingdom speeded, go out and speed it yourselves. Only obedience rationalizes prayer. Only Missions can redeem your intercessions from insincerity.
+ - Is not the commission of our Lord still binding upon us? Can we not do more than now we are doing?
+ - We have only to keep the end in view, and have our hearts thoroughly engaged in the pursuit of it, and means will not be very difficult.
+ - We must not be contented however with praying, without exerting ourselves in the use of means for the obtaining of those things we pray for.
+ - All my friends are but one, but He is all sufficient.
+ - The most glorious works of grace that have ever took place, have been in answer to prayer.
+ - If the biographer gives me credit for being a plodder, he will describe me justly. Anything beyond this will be too much. I can plod. I can persevere in any definite pursuit. To this I owe everything.
+ - There are grave difficulties on every hand, and more are looming ahead. Therefore, we must go forward.
+ - The less said about me the better.
+ - Surely it is worthwhile to lay ourselves out with all our might in promoting the cause and kingdom of Christ.
+ - One of the first, and most important of those duties which are incumbent upon us, is fervent and united prayer.
+ - I feel it my duty to plod on while daylight last.
+ - A Christian minister is a person who in a peculiar sense is not his own; he is the servant of God, and therefore ought to be wholly devoted to Him.
+ - The most glorious works of grace that have ever took place, have been in answer to prayer; and it is in this way, we have the greatest reason to suppose, that the glorious out-pouring of the Spirit, which we expect at last, will be bestowed.
+ - William Carey chides his countrymen for deciding it would be impossible for the Gospel to travel over great distances and to penetrate varied cultures when they are willing to face the same trials for the sake of commerce.
+ - I often think what interesting history we are making for the student of the twenty-first century.
+ - Without justification salvation is not of grace, but of works.
+
+30 quotes

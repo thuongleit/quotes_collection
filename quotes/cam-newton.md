@@ -1,0 +1,41 @@
+ - I’m a living testimony that anything is possible.
+ - I see the light at the end of the tunnel, so I’m going hard.
+ - You cannot make progress with excuses.
+ - I’m always open to discussing collaborations.
+ - You don’t go into the game to compete. You go into each game to win.
+ - Winning is contagious, you know its a thought. It’s not something that just happens on Sundays. You know that’s something, like you have to live like a winner. You have to think like a winner. You have to eat like a winner. Everything that you do with life, you gotta be a winner.
+ - Control what you can control. Don’t lose sleep worrying about things that you don’t have control over because, at the end of the day, you still won’t have any control over them.
+ - I don’t want to be the center of attention, which is ironic. I hate having all eyes on me – unless it’s for my job, and my job is playing football. I’m not that attention-hungry.
+ - When people see you do alright, then you start winning their hearts. It’s not going to come easy, though. It doesn’t matter how many people you do right, you’re still going to be hated by so many others. You can’t live your life trying to make everybody happy.
+ - With three boys in the house, my mother was always on us when growing up about keeping our faces clean, washing behind our ears, and brushing our teeth. So I still take my morning routine seriously.
+ - In college, you had to worry about that math class or this exam that’s coming up on Tuesday, but not in the professionals. You eat, sleep, and do everything related to your craft – and your craft is football. You can be at it from sunup to sundown.
+ - I am a person that believes in different emotions with music. Music can bring about different vibes on the field, off the field, urban life, going to church, leaving church. Everything the world may bring, there’s a song for it to put you in the right frame of mind.
+ - The way I represent my individuality is by mixing classic pieces – like sports jackets – with little, unexpected additions.
+ - My parents do a lot of things behind the scenes that go unnoticed.
+ - My suggestion for a fast style upgrade would be to embrace a pop of color or pattern. Try layering a bright, pullover knit on top of a dress shirt with a subtle or bold pattern.
+ - There’s no similarity between football and ballet, so this ain’t ballet music being played on the field. I’m pumping something that’s going to put me in a frame of mind to go to war, and something that’s very high tempo and high beat.
+ - My place of refuge is definitely watching movies and playing video games.
+ - Growing up in Atlanta, it brings a particular swagger about a person. There are three or four places in the country where people think of fashion: One is LA, obviously. Another is New York. And I think Atlanta has to be in the top five cities where fashion is very big.
+ - A person that says, ‘Losing is not difficult,’ I don’t even want to be around that person. And obviously, that person has never won anything relevant in their life.
+ - I’m an example of why people deserve second chances.
+ - I am a southern guy who likes dressing up and looking sharp but who lives a busy life of working and traveling, and I need reliable, stylish pieces in my wardrobe that will service multiple occasions.
+ - It’s no secret that I am not afraid to shine bright and be festive, and I like to encourage that in others.
+ - Not to sound arrogant, but what I did in one year, others couldn’t do in their entire collegiate careers.
+ - I see myself not only as a football player, but an entertainer and icon.
+ - Some people are afraid to dress in ways that they actually like because it might be different than what most people expect or how others dress.
+ - Growing up in Atlanta I always had a sense of what fashion was, a sense of style – my parents always talked about the importance of making a first impression and that’s stayed with me.
+ - I keep my eyes open. I pay attention to how different types of people express their personal style, how they put their clothes together.
+ - Just like the NBA, the NFL has guys that can pull off multiple looks, ranging from street style to more dapper, buttoned-up looks, and people are starting to notice.
+ - I don’t ever want to seem like I’m trying to command attention through the way I dress – but I have certainly been known to wear everything from a flamboyant suit to something very mellow and classic.
+ - I think dressing nowadays went from trying to fit in to wearing something to try to stick out.
+ - The quarterback is an extension of the coach and has a certain type of swagger mentality, on and off the field.
+ - Every time I come to Auburn it’s nothing but love.
+ - I wanted to give men an accessible line of clothing that’s comfortable yet stylish and will help them to present the best version of themselves. It’s easy – when you look good, you feel good.
+ - I did nothing wrongEverything I’ve done at this university I did the right way.
+ - I always keep my eye focused on what I would and want to wear.
+ - I just like having fun with my style and keeping it new.
+ - I really believe that fashion, and dressing up, is a great way for guys to express and interact with their creativity.
+ - Good shoes – they’re the ultimate finishing touch. In fact, we actually joke in my family that your shoes have to be shined before you can leave the house.
+ - The NBA definitely has some trendsetters that stay up on the latest fashion, but I think you’re starting to see guys like myself and others get some much-deserved respect in the style department.
+
+39 quotes

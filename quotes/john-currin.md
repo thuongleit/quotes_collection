@@ -1,0 +1,22 @@
+ - Painting is like being a lawyer and attacking a corporation.
+ - Instead of last man standing, it’ll be last man smiling.
+ - There is no misery in art. All art is about saying yes, and all art is about its own making.
+ - Your style is who you are when you’re not trying to be clever or better than you actually are.
+ - There is a fascination with violence and power in all modernism, and I sort of saw classic modernism as being more similar to Wyndham Lewis than to the Renaissance. It’s not about flow and the presence of humanism and all those things.
+ - I find I can’t get rid of my trashiness as an artist. A lot of my themes in painting, to the extent that there are intentional themes, are meant to bring that conundrum into high relief.
+ - A lot of times maturing as an artist is just starting to do the things you like to do.
+ - Just don’t do things that depress you. I realized if it depresses me, then I just don’t want to get close to it. If it brings me down, I just really can’t get into it.
+ - I think a lot of people take a scholarly approach where they feel like you’re supposed to study things that depress you.
+ - It’s a huge thing when people realize across the culture that paper money is paper. And that there’s no fixed value – it’s all political. That all value is set by a political authority, basically.
+ - A painting of any quality is always going to have nerdy energy, an affirmation behind it. It’s gonna be like a kid playing a video game.
+ - There is, literally and figuratively, not a gold standard. That’s almost as big a problem in art as in the financial world. How do you affix a value to something that only has value because a certain number of people agree to believe in that value?
+ - That was an important development for me, just realizing that you need to follow your pleasure, at least as a painter. I think any kind of artist needs to, no matter what you’re doing.
+ - I suppose the good artists, the righteous artists, somehow manage to be exuberant, and the embarrassed artist has this idea that everybody has to stop being so excited, which I find so distasteful.
+ - When I went to college, and I went to art school, I started to realize that Warhol was cool and that pop art was fun.
+ - It wasn’t really until after I got out of art school that I realized that I’d been doing that sort of for the audience, for that context. Somehow, being alone in the room, it made no sense at all to make those kinds of paintings.
+ - I think a big problem with art school is that it makes people feel like they have to be interested in everything that’s of high quality.
+ - There’s nothing worse than people talking about theories and humor.
+ - I wonder whether there is such a thing as critical art. I suppose there are portraits of people who could destroy you.
+ - In a capitalist system, things are valued by what people will pay for them.
+
+20 quotes

@@ -1,0 +1,29 @@
+ - I’m never going back to the past. It is like when I am driving – I never like to do those routes that take you backwards and make you go the long way. I always like to do the shortcuts and go forward.
+ - Sleep your way to the top.
+ - I don’t think you can question your instinct; you should always trust it.
+ - I love insects. They are amazing.
+ - I do believe some people can naturally act and don’t know it.
+ - I don’t feel very revengeful in life at all.
+ - I don’t want to think too much about me.
+ - When your characters are really living they tell you what they do.
+ - As long as you keep your budgets small, there’s a way of making films.
+ - Interestingly, I never thought Id do an adaptation. Ive also been quite against them. I think trying to translate one medium to another is wrong. I never really felt that books fitted into film. Generally people are disappointed, arent they?
+ - A lot of people have something to say about ‘Wuthering Heights,’ but nobody quite nails it.
+ - I don’t think estates are grim places.
+ - Every time I start a film I feel like I’m starting the first time, ever.
+ - I am obsessed with why people turn out the way they are.
+ - Dramatically, I like darkness, I like conflict – but I don’t see the world as defined by them.
+ - I never write with an actor in mind – never.
+ - I always get quite close to my script because I work quite hard on them.
+ - For me, making films is about trying to work something out by myself in quite a lonely way. I find the whole thing very lonely really.
+ - Once Ive finished a film I just want to get on and make another one.
+ - I find it kind of weird that directors want to put themselves in their films.
+ - I personally love to see films not knowing very much about them. When you see it, it’s like a flower opening up. I deliberately never read about films before I see them.
+ - I can’t remember why or how I started writing, but I think it was always a way of making sense of the world.
+ - Films are all about decisions, and that’s what I love.
+ - I hear filmmakers saying, ‘I wanted to make to make a film about this issue, or this theme,’ but I never start like that.
+ - I deliberately never read about films before I see them.
+ - I don’t read reviews.
+ - I just like doing things from my own head.
+
+27 quotes

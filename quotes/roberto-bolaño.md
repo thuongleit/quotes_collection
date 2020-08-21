@@ -1,0 +1,54 @@
+ - Reading is more important than writing.
+ - Reading is like thinking, like praying, like talking to a friend, like expressing your ideas, like listening to other people’s ideas, like listening to music, like looking at the view, like taking a walk on the beach.
+ - There is a time for reciting poems and a time for fists.
+ - We never stop reading, although every book comes to an end, just as we never stop living, although death is certain.
+ - If you’re going to say what you want to say, you’re going to hear what you don’t want to hear.
+ - The world is alive and no living thing has any remedy. That is our fortune.
+ - The sky, at sunset, looked like a carnivorous flower.
+ - Every hundred feet the world changes.
+ - You have to know how to look even if you don’t know what you’re looking for.
+ - Poetry and prison have always been neighbors.
+ - Every book in the world is out there waiting to be read by me.
+ - You run risks. That’s the plain truth. You run risks and, even in the most unlikely places, you are subject to destiny’s whims.
+ - We’re artists too, but we do a good job hiding it, don’t we?
+ - Poetry is the one thing that isn’t contaminated, the one thing that isn’t part of the game.
+ - They could read him, they could study him, they could pick him apart, but they couldn’t laugh or be sad with him...
+ - I decided to tell the truth even if it meant being pointed at.
+ - Only in chaos are we conceivable.
+ - Reading is pleasure and happiness to be alive or sadness to be alive and above all it’s knowledge and questions.
+ - So everything lets us down, including curiosity and honesty and what we love best. Yes, said the voice, but cheer up, it’s fun in the end.
+ - The moon is fat and the night air is so pure it seems edible.
+ - Nothing good ever comes of love. What comes of love is always something better.
+ - There’s no place on earth with more dumb girls per square foot than a college in California.
+ - Nothing happened today. And if anything did, I’d rather not talk about it, because I didn’t understand it.
+ - In the current socio-political climate, he said to himself, committing suicide is absurd and redundant. Better to become an undercover poet.
+ - I’ll tell you, my friends: it’s all in the nerves. The nerves that tense and relax as you approach the edges of companionship and love. The razor-sharp edges of companionship and love.
+ - Being alone makes us stronger. That’s the honest truth. But it’s cold comfort, since even if I wanted company no one will come near me anymore.
+ - Dreams fade with morning light, Never a morn for thee, Dreamer of dreams, goodnight.
+ - When you die of sorrow it’s as if you’ve broken all the bones in your body, bruised yourself all over, cracked your skull. That’s sorrow.
+ - The truth is we never stop being children, terrible children covered in sores and knotty veins and tumors and age spots, but ultimately children, in other words we never stop clinging to life because we are life.
+ - Jesus is the masterpiece. The thieves are minor works. Why are they there? Not to frame the crucifixion, as some innocent souls believe, but to hide it.
+ - Literature is a vast forest and the masterpieces are the lakes, the towering trees or strange trees, the lovely, eloquent flowers, the hidden caves, but a forest is also made up of ordinary trees, patches of grass, puddles, clinging vines, mushrooms, and little wildflowers.
+ - Metaphors are our way of losing ourselves in semblances or treading water in a sea of seeming.
+ - When I was done traveling, I returned convinced of one thing: we’re nothing.
+ - The pain, or the memory of pain, that here was literally sucked away by something nameless until only a void was left. The knowledge that this question was possible: pain that turns finally into emptiness. The knowledge that the same equation applied to everything, more or less.
+ - I’m an educated man, the prisons I know are subtle ones.
+ - As time goes by, as time goes by, the whip-crack of the years, the precipice of illusions, the ravine that swallows up all human endeavour except the struggle to survive.
+ - If life is misery, why do we endure it?
+ - We all have to die a bit every now and then and usually it’s so gradual that we end up more alive than ever. Infinitely old and infinitely alive.
+ - When people read his books they have an uncontrollable desire to hang the author in the town square. I can’t think of a higher honor for a writer.
+ - But every single damn thing matters! Only we don’t realize. We just tell ourselves that art runs on one track and life, our lives, on another, and we don’t realize that’s a lie.
+ - Bright colours in the west, giant butterflies dancing as night crept like a cripple toward the east.
+ - Even on the poorest streets people could be heard laughing. Some of these streets were completely dark, like black holes, and the laughter that came from who knows where was the only sign, the only beacon that kept residents and strangers from getting lost.
+ - Literature is the product of a strange rain of blood, sweat, semen, and tears.
+ - No one pays attention to these killings, but the secret of the world is hidden in them.
+ - The American mirror, said the voice, the sad American mirror of wealth and poverty and constant useless metamorphosis, the mirror that sails and whose sails are pain.
+ - Nothing is ever behind us.
+ - For a moment the two of them looked at each other, wordless, as if they were asleep and their dreams had converged on common ground, a place where sound was alien.
+ - I kept having dreams all night. I thought they were touching me with their fingers. But dreams don’t have fingers, they have fists, so it must have been scorpions.
+ - In some lost fold of the past, we wanted to be lions and we’re no more than castrated cats.
+ - One should read Borges more.
+ - Then he went out without touching anything and put his arm around Ingeborg, and like that, with their arms around each other, they returned to the village while the whole past of the universe fell on their heads.
+ - If I were to say what I really think I would be arrested or shut away in a lunatic asylum. Come on, I am sure that it would be the same for everyone.
+
+52 quotes

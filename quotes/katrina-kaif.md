@@ -1,0 +1,35 @@
+ - I live my life with no regrets. Each decision of mine has define my life in a certain way.
+ - I am single until I get married.
+ - Don’t waste time. If you love someone tell them because sooner or later someone else is going to.
+ - It’s my job to look presentable but that doesn’t mean I have to make a fashion statement everytime I walk out the house.
+ - I have a very positive attitude in life. My insecurity, fear and need to know about tomorrow has fortunately eased. What is going to happen will happen anyway. So why break my head over it?
+ - Going by my past journey, I am not certain where life will take me, what turns and twists will happen; nobody knows where they will end up. As life changes direction, I’ll flow with it.
+ - I would rather be thought of as pretty rather than sexy. It feels good to be voted by fans and that too in such huge numbers, but I don’t think if you wear a bikini or show skin, you look sexy.
+ - My relationship with Salman Khan is too personal to talk about. I take my work like any other regular job and what I do in my personal life is no one’s business. I’d rather let my work do all the talking.
+ - I don’t like people talking bad about me, I get hurt so precisely I don’t end up saying that for others.
+ - I can read and speak Hindi quite well now and that’s quite an achievement considering I didn’t know the language at all when I came down here.
+ - The most painful things and the most happy things in life usually come from love. As a result of love or the lack of it.
+ - Today, I am here, tomorrow someone else will be here. Fame and glamour are for a few days, so no one should be over-proud of it.
+ - I have learnt not to make plans in life, because a lot of time you make a plan that is not going to work for you. Right now I am working on my career and trying to be genuine to my work. If you respect what you have got, God will give you what you need.
+ - Every one has her own love life. Every one has a dream to get a perfect life partner. But this is not so easy in real life. In fact, one doesn’t love; it happens.
+ - Except for Preity Zinta, I haven’t met a single secure actress in Bollywood.
+ - I am not working to earn a living, but I am living movies. I am finding me enjoying the process.
+ - Although I haven’t met Madhuri Dixit in person, I find her very beautiful on screen. I also find Manisha Koirala beautiful.
+ - I have no complaints. I think I’m especially lucky. As you said, I’ve come from outside and I’m not even anywhere closely connected. But I have absolutely no problem here. People have been more than welcoming, even before I was ready.
+ - Love starts when people don’t need it and ends when they need it the most.
+ - Actors, who invest a lot of time and energy, will never put down each other. Every one of us has their own space in the industry. These stories are either publicity mechanisms or someone just writes them to create a controversy.
+ - I believe that beauty lies in what makes you feel happy.
+ - I don’t enjoy sitting with make-up all the time and that is why I have decided to go for the natural look. Not only me, I think given a choice, everybody would prefer such a look on screen.
+ - Every day in this industry is an experience in itself and I try to work hard not to let anyone down. It is a great feeling, but it does come with responsibility towards your colleagues and the audiences.
+ - I find a face beautiful, good looking, attractive, and all the terms you want to use, once I know them.
+ - It’s been great. I’ve been very lucky to work with more experienced actors early on in my career because I get a chance to learn from them. There is so much you can learn from them. You can just follow them and you’ll be pretty safe.
+ - Health-wise there is nothing to worry about. Though I had gone through a surgery sometime ago, it was nothing serious.
+ - I would not be able to define my star power as I do not know what that is.
+ - I had a wonderful holiday, a wonderful New Year and it was very special. That’s all you’re getting out of me.
+ - Actually even at the beginning of my career, I never felt rejected. I was still working hard and believed in myself. I wasn’t in a hurry and was picking and choosing projects carefully even then when I was just a newcomer. My attitude towards films hasn’t changed even after these years.
+ - Sidharth and me were supposed to work much before Bang Bang, we were in talks for a few films which didnt work out...
+ - But if you stagnate, the growth is over. I have done many comedy films. Success of films like Partner, Singh is Kinng gets you to a very wide audience reach. But for greater gains, you need to take greater gambles. If it works, you get respect and recognition.
+ - I sign a film according to my instincts and everything in each department must be appealing be it story, character etc.
+ - There was a time when I feel that I need to take time to know more about the industry, the workings of it. I was doing my modeling, which I really wanted to do at the time. So that’s why even my entry into films was later than people expected.
+
+33 quotes

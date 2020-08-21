@@ -1,0 +1,270 @@
+ - We are always the same age inside.
+ - There ain’t no answer. There ain’t gonna be any answer. There never has been an answer. That’s the answer.
+ - You are all a lost generation.
+ - When you get there, there isn’t any there there.
+ - To write is to write is to write is to write is to write is to write is to write is to write.
+ - In the morning there is meaning, in the evening there is feeling.
+ - Forget grammar and think about potatoes.
+ - Everybody gets so much information all day long that they lose their common sense.
+ - It takes a lot of time to be a genius, you have to sit around so much doing nothing, really doing nothing.
+ - You look ridiculous if you dance You look ridiculous if you don’t dance So you might as well dance.
+ - I am I because my little dog knows me.
+ - Whoever said money can’t buy happiness didn’t know where to shop.
+ - Honesty is a selfish virtue. Yes I am honest enough.
+ - Every day is a renewal, every morning the daily miracle. This joy you feel is life.
+ - There is no there there.
+ - One must dare to be happy.
+ - The subject matter of art is life, life as it actually is; but the function of art is to make life better.
+ - I have always noticed that in portraits of really great writers the mouth is always firmly closed.
+ - Romance is everything.
+ - Silent gratitude isn’t very much to anyone.
+ - The way to resume is to resume. It is the only way. To resume.
+ - America is my country and Paris is my hometown.
+ - When in a museum, walk slowly but keep walking.
+ - Rose is a rose is a rose is a rose.
+ - If you write a half hour a day it makes a lot of writing year by year.
+ - Love: the skillful audacity required to share an inner life.
+ - Nothing has happened today except kindness.
+ - The artist works by locating the world in himself.
+ - I think the reason I am important is that I know everything.
+ - One of the pleasant things those of us who write or paint do is to have the daily miracle. It does come.
+ - You are extraordinary within your limits, but your limits are extraordinary!
+ - Money is always there but the pockets change.
+ - Art isn’t everything. It’s just about everything.
+ - To complicate things in new ways, that is really very easy; but to see things in new ways, that is difficult and that is why genius is so rare.
+ - Writer or painter god-parents are notoriously unreliable. That is, there is certain before long to be a cooling of friendship.
+ - A sentence is not emotional a paragraph is.
+ - If you are looking down while you are walking it is better to walk up hill the ground is nearer.
+ - Counting is the religion of this generation it is its hope and its salvation.
+ - Considering how dangerous everything is, nothing is really very frightening.
+ - If the communication is perfect, the words have life, and that is all there is to good writing, putting down on the paper words which dance and weep and make love and fight and kiss and perform miracles.
+ - If you are a thinker, you will change the language. You will not use words the way others do.
+ - I like the feeling of words doing as they want to do and as they have to do.
+ - I love my love with a b because she is peculiar.
+ - Anything one does every day is important and imposing and anywhere one lives is interesting and beautiful.
+ - There are a lot of other things besides nouns.
+ - I like a thing simple but it must be simple through complication. Everything must come into your scheme, otherwise you cannot achieve real simplicity.
+ - I cannot write too much upon how necessary it is to be completely conservative that is particularly traditional in order to be free.
+ - Human beings are interested in two things. They are interested in the Reality and interested in telling about it.
+ - If fishes were wishes the ocean would be all of our desire.
+ - It is always a mistake to be plain-spoken.
+ - More and more I am certain that the only difference between man and animals is that men can count and animals cannot and if they count they mostly do count money...
+ - Remarks are not literature.
+ - Writers only think they are interested in politics, they are not really, it gives them a chance to talk and writers like to talk but really no real writer is really interested in politics.
+ - Nobody knows what I am trying to do but I do and I know when I succeed.
+ - Action and reaction are equal and opposite.
+ - Always it comes very slowly the completed understanding of it, the repeating each one does to tell it the whole history of the being in each one, always now I hear it. Always now slowly I understand it.
+ - August is a month when if it is hot weather it is really very hot.
+ - What was the use of my having come from Oakland it was not natural to have come from there yes write about it if I like or anything if I like but not there, there is no there there.
+ - It takes a heap of loafing to write a book.
+ - I am I because my little dog knows me but, creatively speaking the little dog knowing that you are you and your recognising that he knows, that is what destroys creation. That is what makes school.
+ - Suppose no one asked a question. What would the answer be?
+ - Once more I can climb about and remind you that a woman in this epoch does the important literary thinking.
+ - What is the use of being a little boy if you are growing up to be a man.
+ - Nothing could bother me more than the way a thing goes dead once it has been said.
+ - Once upon a time the world was round, and you could go on it around and around.
+ - It is nice in France they adapt themselves to everything slowly they change completely but all the time they know that they are as they were.
+ - I understand you undertake to overthrow my undertaking.
+ - I’ll always be Alice Toklas if you’ll be Gertrude Stein.
+ - Every man is the maker of his own fortune.
+ - Well money is not easy to describe. It is easy to lose but it cannot be lost, and no one can get really get used to it.
+ - Language as a real thing is not imitation either of sounds or colors or emotions it is an intellectual recreation and there is nopossible doubt about it and it is going to go on being that as long as humanity is anything.
+ - I am writing for myself and strangers. This is the only way that I can do it. Everybody is a real one to me, everybody is like some one else too to me. No one of them that I know can want to know it and so I write for myself and strangers.
+ - There is a difference between twenty-nine and thirty. When you are twenty-nine it can be the beginning of everything. When you are thirty it can be the end of everything.
+ - There is no such thing as repetition. Only insistance.
+ - But the problem is that when I go around and speak on campuses, I still don’t get young men standing up and saying, ‘How can I combine career and family?’
+ - The only thing that is different from one time to another is what is seen and what is seen depends upon how everybody is doing everything.
+ - I am writing for myself and strangers. This is the only way that I can do it.
+ - Water astonishing and difficult altogether makes a meadow and a stroke.
+ - One must either accept some theory or else believe one’s own instinct or follow the world’s opinion.
+ - Oh, I wish I were a miser; being a miser must be so occupying.
+ - Cooking like everything else in France is logic and fashion.
+ - She always says she dislikes the abnormal, it is so obvious. She says the normal is so much more simply complicated and interesting.
+ - Everybody knows if you are too careful you are so occupied in being careful that you are sure to stumble over something.
+ - History takes time. History makes memory.
+ - I always wanted to be historical, from almost a baby on, I felt that way about it...
+ - It is a difficult thing to like anybody else’s ideas of being funny.
+ - A conversation in English in Finnish and in French can not be held at the same time nor with indifference ever or after a time.
+ - Let me listen to me and not to them.
+ - I had a family. They can be a nuisance in identity but there is no doubt no shadow of doubt that that identity the family identity we can do without.
+ - Literature – creative literature – unconcerned with sex, is inconceivable.
+ - How I wish I were able to say what I think...
+ - It is extraordinary that when you are acquainted with a whole family you can forget about them.
+ - Sculpture is made with two instruments and some supports and pretty air.
+ - It is not what France gave you but what it did not take from you that was important.
+ - A little artist has all the tragic unhappiness and the sorrows of a great artist and he is not a great artist.
+ - I have heard Will Honeycomb say, A Woman seldom Writes her Mind but in her Postscript.
+ - Since the war nothing is so really frightening not the dark not alone in a room or anything on a road or a dog or a moon but two things, yes, indigestion and high places they are frightening.
+ - Repeating is the whole of living and by repeating comes understanding, and understanding is to some the most important part of living.
+ - When I said. A rose is a rose is a rose. And then later made that into a ring I made poetry and what did I do I caressed completely caressed and addressed a noun.
+ - If things happen all the time you are never nervous. It is when they are not happening that you are nervous.
+ - French people do like good fighting, they like it better than anything.
+ - From the very nature of progress, all ages must be transitional.
+ - Patriarchal Poetry makes mistakes.
+ - The reason why all of us naturally began to live in France is because France has scientific methods, machines and electricity, but does not really believe that these things have anything to do with the real business of living.
+ - It is funny the two things most men are proudest of is the thing that any man can do and doing does in the same way, that is being drunk and being the father of their son.
+ - Mostly every one is needing some one to be one listening to that one being one being one boasting.
+ - A creator is not in advance of his generation but he is the first of his contemporaries to be conscious of what is happening to his generation.
+ - The contemporary thing in art and literature is the thing which doesn’t make enough difference to the people of that generation so that they can accept it or reject it.
+ - An audience is pleasant if you have it, it is flattering and flattering is agreeable always, but if you have an audience the being an audience is their business, they are the audience you are the writer, let each attend to their own business.
+ - F. Scott Fitzgerald is the first of the last generation.
+ - A vegetable garden in the beginning looks so promising and then after all little by little it grows nothing but vegetables, nothing, nothing but vegetables.
+ - Just before she died she asked, What is the answer? No answer came. She laughed and said, In that case, what is the question? Then she died.
+ - We know that we can do what men can do, but we still don’t know that men can do what women can do. That’s absolutely crucial. We can’t go on doing two jobs.
+ - Poetry is essentially the discovery, the love, the passion for the name of everything.
+ - It is extraordinary that whole populations have no projects for the future, none at all. It certainly is extraordinary, but it is certainly true.
+ - Nature is not natural and that is natural enough.
+ - Asparagus in a lean in a lean is to hot. This makes it art and it is wet weather wet weather wet.
+ - There are so many ways of earning a living and most of them are failures.
+ - Just as everybody has the vote including women, I think children should, because as a child is conscious of itself then it has to me an existence and has a stake in what happens.
+ - It is natural to indulge in the illusions of hope. We are apt to shut our eyes to that siren until she allures us to our death.
+ - The difference between saints, forget-me-nots, and mountains, have to, have to, have to at a time.
+ - Near a war is always not very near.
+ - Picasso once remarked I do not care who it is that has or does influence me as long as it is not myself.
+ - A saint is one to be for two when three and you make five and two and cover. A at most. Saint saint a saint.
+ - There is too much fathering going on just now and there is no doubt about it fathers are depressing.
+ - Animals in different countries have different expressions just as the people in different countries differ in expression.
+ - And identity is funny being yourself is funny as you are never yourself to yourself except as you remember yourself and then of course you do not believe yourself.
+ - I write for myself and strangers. The strangers, dear Readers, are an afterthought.
+ - The first hope of a painter who feels hopeful about painting is the hope that the painting will move, that it will live outside its frame.
+ - I know what Germans are. They are a funny people. They are always choosing someone to lead them in a direction which they do not want to go.
+ - From the very nature of progress, all ages must be transitional. If they were not, the world would be at a stand-still and death would speedily ensue. It is one of the tamest of platitudes but it is always introduced by a flourish of trumpets.
+ - Argument is to me the air I breathe.
+ - More great Americans were failures than they were successes. They mostly spent their lives in not having a buyer for what they had for sale.
+ - This is the place of places and and it is here.
+ - Affectations can be dangerous.
+ - A nice war is a war where everybody who is heroic is a hero, and everybody more or less is a hero in a nice war. Now this war is not at all a nice war.
+ - Generally speaking, everyone is more interesting doing nothing than doing anything.
+ - Before the flowers of friendship faded friendship faded.
+ - I do want to get rich but I never want to do what there is to do to get rich.
+ - I really do not know that anything has ever been more exciting than diagramming sentences.
+ - Men and girls, men and girls: Artificial swine and pearls.
+ - A FEATHER. A feather is trimmed, it is trimmed by the light and the bug and the post, it is trimmed by little leaning and by all sorts of mounted reserves and loud volumes. It is surely cohesive.
+ - How do you like what you have. This is a question that anybody can ask anybody. Ask it.
+ - It is better to lose and win, than win and be defeated.
+ - College professors have two bad traits. They are logical and they are easily flattered.
+ - When I sleep I sleep and do not dream because it is as well that I am what I seem when I am in my bed and dream.
+ - I like a view but I like to sit with my back turned to it.
+ - If everyone were not so indolent they would realise that beauty is beauty even when it is irritating and stimulating not only when it is accepted and classic.
+ - Repeating then is in every one, in every one their being and their feeling and their way of realising everything and every one comes out of them in repeating. More and more then every one comes to be clear to some one.
+ - The whole duty of man consists in being reasonable and just I am reasonable because I know the difference between understanding and not understanding and I am just because I have no opinion about things I don’t understand.
+ - Superstition is believing that something means anything and that anything means something and that each thing means a particular thing and will mean a particular thing is coming. Oh yes it does.
+ - A real failure does not need an excuse. It is an end in itself.
+ - I certainly do care for you Jeff Campbell less than you are always thinking and much more than you are ever knowing.
+ - There are two kinds of men and women, those who have in them resisting as their way of winning those who have in them attacking as their way of winning...
+ - You’ll be old and you never lived, and you kind of feel silly to lie down and die and to never have lived, to have been a job chaser and never have lived.
+ - When they are alone they want to be with others, and when they are with others they want to be alone. After all, human beings are like that.
+ - Writing and reading is to me synonymous with existing.
+ - A novel is what you dream in your night sleep. A novel is not waking thoughts although it is written and thought with waking thoughts.
+ - It is very easy to love alone.
+ - Perhaps I am not I even if my little dog knows me but anyway I like what I have and now it is today.
+ - A writer should write with his eyes and a painter paint with his ears.
+ - You have to know what you want. And if it seems to take you off the track, don’t hold back, because perhaps that is instinctively where you want to be. And if you hold back and try to be always where you have been before, you will go dry.
+ - In a war everybody always knows all about Switzerland, in peace times it is just Switzerland but in war time it is the only country that everybody has confidence in, everybody.
+ - In the United States there is more space where nobody is than where anybody is. This is what makes American what it is.
+ - If you knew it all it would not be creation but dictation.
+ - Explanations are clear but since no one to whom a thing is explained can connect the explanations with what is really clear, therefore clear explanations are not clear.
+ - The idea of enemies is awful it makes one stop remembering eternity and the fear of death. That is what enemies are. Possessions are the same as enemies only less so, they too make one forget eternity and the fear of death.
+ - You are so afraid of losing your moral sense that you are not willing to take it through anything more dangerous than a mud-puddle.
+ - Forensics is eloquence and reduction.
+ - As there was never any question there was never any answer.
+ - It is natural not to care about a sister certainly not when she is four years older and grinds her teeth at night.
+ - Poetry consists in a rhyming dictionary and things seen.
+ - It is the soothing thing about history that it does repeat itself.
+ - Any time is the time to make a poem.
+ - I tell you old and young are better than tired middle-aged, nothing is so dead dead-tired, dead every way as middle-aged.
+ - Nothing is really so very frightening when everything is so very dangerous.
+ - What is marriage, is marriage protection or religion, is marriage renunciation or abundance, is marriage a stepping-stone or an end. What is marriage.
+ - Every adolescent has that dream every century has that dream every revolutionary has that dream, to destroy the family.
+ - This is the real thing of disillusion that no one, not any one really is believing, seeing, understanding, thinking anything as you are thinking, believing, seeing, understanding such a thing.
+ - I like familiarity. In me it does not bring contempt-only more familiarity.
+ - A very important thing is not to make up your mind that you are any one thing.
+ - For a very long time everybody refuses and then almost without a pause almost everybody accepts.
+ - I was somewhat drunk with what I had done. And I am always one to prefer being sober.
+ - The times are so peculiar now, so mediaeval so unreasonable that for the first time in a hundred years truth is really stranger than fiction. Any truth.
+ - One does not get better but different and older and that is always a pleasure.
+ - Success is the result achieved when nobody answers.
+ - Name any name and then remember everybody you ever knew who bore that name. Are they all alike. I think so.
+ - A great deal of beauty is rapture. A circle is a necessity. Otherwise you would see no one. We each have our circle.
+ - There is no pulse so sure of the state of a nation as its characteristic art product which has nothing to do with its material life.
+ - I like loving. I like mostly all the ways one can have of having loving feelings in them. Slowly it has come to be in me that any way of being a loving one is interesting and not unpleasant to me.
+ - Some out of their own virtue make a god who sometimes later is a nuisance to them, a terror perhaps to them, a difficult thing to be forgetting.
+ - The family is always the family but during vacations it is an extended family and that is exhausting.
+ - If a thing can be done, why do it?
+ - A virgin a whole virgin is judged made and so between curves and outlines and real seasons and more out glasses and a perfectly unprecedented arrangement between old ladies and mild colds there is no satin wood shining.
+ - You have to learn to do everything, even to die.
+ - Adventure is making the distant approach nearer but romance is having what is where it is which is not where you are stay where it is.
+ - War is never fatal but always lost. Always lost.
+ - What is music. A passion for colonies not a love of country.
+ - You have to know what you want to get it.
+ - The phenomenon of nature is more splendid than the daily events of nature, certainly, so then the twentieth century is splendid.
+ - The thing that differentiates man from animals is money.
+ - It is funny that men who are supposed to be scientific cannot get themselves to realise the basic principle of physics, that action and reaction are equal and opposite, that when you persecute people you always rouse them to be strong and stronger.
+ - The creator of the new composition in the arts is an outlaw until he is a classic.
+ - Eating too much meat gives you indigestion and evil thoughts make you eat too much meat.
+ - This joy you feel is life.
+ - There is no real reality to a really imagined life any more.
+ - In France one must adapt oneself to the fragrance of a urinal.
+ - Is it worse to be scared than to be bored, that is the question.
+ - When you earn it and spend it you do know the difference between three dollars and a million dollars, but when you say it and vote it, it all sounds the same.
+ - The thing that is most interesting about government servants is that they believe what they are supposed to believe, they really do believe what they are supposed to believe.
+ - That is what war is and dancing it is forward and back, when one is out walking one wants not to go back the way they came but in dancing and in war it is forward and back.
+ - The deepest thing in any one is the conviction of the bad luck that follows boasting.
+ - Nothing is more interesting than that something that you eat.
+ - Once upon a time Baltimore was necessary.
+ - I could never be one of two I could never be two in one as married couples do and can, I am but one all one, one and all one, and so I have never been married to any one.
+ - You attract what you need like a lover.
+ - Money is always there but the pockets change; it is not in the same pockets after a change, and that is all there is to say about money.
+ - I could undertake to be an efficient pupil if it were possible to find an efficient teacher.
+ - A creator is so completely contemporary that he has the appearance of being ahead of his generation.
+ - There is no reason why a king should be rich or a rich man should be a king, no reason at all.
+ - Too few is as many as too many.
+ - Dogs are dogs, you sometimes think that they are not but they are. And they always are here there and everywhere.
+ - If the stars are suns and the earth is the earth and there are men only upon this earth and anything can put an end to anything and any dog does anything like anybody does it what is the difference between eternity and anything.
+ - I was undone by my Auxiliary; when I had once called him in, I could not subsist without Dependance on him.
+ - Even the propagandists on the radio find it very difficult to really say let alone believe that the world will be a happy place, of love and peace and plenty, and that the lion will lie down with the lamb and everybody will believe anybody.
+ - The nineteenth century believed in science but the twentieth century does not.
+ - More and more I like to take a train. I understand why the French prefer it to automobiling it is so much more sociable, and of course these days so much more of an adventure, and the irregularity of its regularity is fascinating.
+ - The unreal is natural, so natural that it makes of unreality the most natural of anything natural. That is what America does, and that is what America is.
+ - The head-lines which do not head anything they simply replace something but they do not make anything.
+ - One of the things that I discovered in lecturing was that gradually one ceased to hear what one said one heard what the audience hears one say.
+ - You cannot go into the womb to form the child; it is there and makes itself and comes forth whole-and there it is and you have made it and have felt it, but it has come itself.
+ - There is no such thing as a natural sentence but there is such a thing as a natural paragraph and it must be found.
+ - Do you know because I tell you so, or do you know, do you know.
+ - Very likely education does not make very much difference.
+ - Nature is commonplace. Imitation is more interesting.
+ - I have declared that patience is never more than patient. I too have declared, that I who am not patient am patient.
+ - Hope in gates, hope in spoons, hope in doors, hope in tables, no hope in daintiness and determination. Hope in dates.
+ - I had always been so much taken with the way all English people I knew always were going to see their lawyer. Even if they have no income and do not earn anything they always have a lawyer.
+ - One never discusses anything with anybody who can understand one discusses things with people who cannot understand.
+ - Supposing everyone lived at one time what would they say. They would observe that stringing string beans is universal.
+ - Why should a sequence of words be anything but a pleasure?
+ - Ladies there is no neutral position for us to assume.
+ - Anyone who marries three girls from St Louis hasn’t learned much.
+ - The nineteenth century was completely lacking in logic, it had cosmic terms and hopes, and aspirations, and discoveries, and ideals but it had no logic.
+ - Disillusionment in living is finding that no one can really ever be agreeing with you completely in anything.
+ - If anything is a surprise then there is not much difference between older and younger because the only thing that does make anybody older is that they cannot be surprised.
+ - I don’t envisage collectivism. There is no such animal, it is always individualism, sometimes the rest vote and sometimes they do not, and if they do they do and if they do not they do not.
+ - The earth is the earth as a peasant sees it, the world is the world as a duchess sees it, and anyway a duchess would be nothing if the earth was not there as the peasant sees it.
+ - Communists are people who fancied that they had an unhappy childhood.
+ - You never answer a question nobody does.
+ - It is so friendly so simply friendly and though inevitable not a sadness and though occurring not a shock.
+ - Since it could be done what was the use of doing it, and anyway you always have to stop doing something sometime.
+ - It is inevitable when one has a great need of something one finds it. What you need you attract like a lover.
+ - I rarely believe anything, because at the time of believing I am not really there to believe.
+ - Do not forget birthdays. This is in no way a propaganda for a larger population.
+ - War is more like a novel than it is like real life and that is its eternal fascination. It is a thing based on reality but invented, it is a dream made real, all the things that make a novel but not really life.
+ - I wish that I was where I am.
+ - The composition is the thing seen by everyone living in the living they are doing, they are the composing of the composition that at the time they are living is the composition of the time in which they are living.
+ - In America, everybody is, but some are more than others.
+ - Men cannot count, they do not know that two and two make four if women do not tell them so.
+ - All the world knows how to cry but not all the world knows how to sigh. Sighing is extra.
+ - How likely are definitions to be pleasurable.
+ - But then of course a philosophy is not the same thing as a style.
+ - I have been the creative literary mind of the century.
+ - Argument is to me the air I breathe. Given any proposition, I cannot help believing the other side and defending it.
+ - An audience is always warming but it must never be necessary to your work.
+ - Don’t write about what you don’t know even if you don’t know it.
+ - I murmured to Picasso that I liked his portrait of Gertrude Stein. Yes, he said, everybody said that she does not look like it, but that does not make any difference, she will, he said.
+
+268 quotes

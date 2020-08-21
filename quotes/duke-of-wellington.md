@@ -1,0 +1,60 @@
+ - Wise people learn when they can; fools learn when they must.
+ - Publish and be damned.
+ - The only thing I am afraid of is fear.
+ - We always have been, we are, and I hope that we always shall be detested in France.
+ - Educate men without religion and you make them clever devils.
+ - God deliver me from my friends! I’ll take care of my enemies myself.
+ - Error is ever the sequence of haste.
+ - There is no mistake; there has been no mistake; and there shall be no mistake.
+ - Always get over heavy ground as lightly as you can.
+ - To define it rudely but not ineptly, engineering is the art of doing for 10 shillings what any fool can do for a pound.
+ - I have got an infamous army, very weak and ill-equipped, and a very inexperienced staff.
+ - The battle of Waterloo was won on the playing fields of Eton.
+ - There is nothing on earth so stupid as a gallant officer.
+ - My heart is broken by the terrible loss I have sustained in my old friends and companions and my poor soldiers. Believe me, nothing except a battle lost can be half so melancholy as a battle won.
+ - I don’t know what effect these men will have upon the enemy, but by God, they frighten me.
+ - The hardest thing of all for a soldier is to retreat.
+ - An extraordinary affair. I gave them their orders and they wanted to stay and discuss them.
+ - I attribute my success on the battlefield to always being on the spot to see and do everything for myself.
+ - The only thing that they can be relied on to do is to gallop too far and too fast.
+ - When other Generals make mistakes their armies are beaten; when I get into a hole, my men pull me out of it.
+ - There is nothing so dreadful as a great victory – except a great defeat.
+ - I used to say of him that his presence on the field made the difference of forty thousand men.
+ - I hate the whole race. There is no believing a word they say, your professional poets, I mean there never existed a more worthless set than Byron and his friends for example.
+ - Rashness is oftener the resort of cowardice than of courage.
+ - Be discreet in all things, and so render it unnecessary to be mysterious about any.
+ - Troops would never be deficient in courage, if they could only know how deficient in it their enemies were.
+ - If you had seen one day of war, you would pray to God that you would never see another.
+ - There are no manifestos like cannon and musketry.
+ - I mistrust the judgment of every man in a case in which his own wished are concerned.
+ - I never saw so many shocking bad hats in my life.
+ - Hard pounding, gentlemen. Let’s see who pounds the longest.
+ - Habit is ten times nature.
+ - Yes, about ten minutes.
+ - If you believe that you will believe anything.
+ - Always make water when you can.
+ - Our army is composed of the scum of the earth – the mere scum of the earth.
+ - The Lord’s prayer contains the sum total of religion and morals.
+ - Next to a lost battle, nothing is so sad as a battle that has been won.
+ - I have no small talk and Peel has no manners.
+ - The French system of conscription brings together a fair sample of all classes; ours is composed of the scum of the earth – the mere scum of the earth. It is only wonderful that we should be able to make so much out of them afterwards.
+ - Today when a man gets married he gets a home, a housekeeper, a cook, a cheering squad and another paycheck. When a woman marries, she gets a boarder. To define it rudely but not ineptly, engineering is the art of doing that well with one dollar, which any bungler can do with two after a fashion.
+ - When my journal appears, many statues must come down.
+ - Being born in a stable does not make one a horse.
+ - Nothing except a battle lost can be half so melancholy as a battle won.
+ - Believe me that every man you see in a military uniform is not a hero.
+ - What masks are these uniforms to hide cowards!
+ - The British soldiers are fellows who have all enlisted for drink. That is the plain fact – they have all enlisted for drink.
+ - The whole art of war consists in getting at what is on the other side of the hill.
+ - Extra interest signifies extra risk.
+ - Call on a business man only at business times, and on business; transact your business, and go about your business, in order to give him time to finish his business.
+ - I have seen their backs before.
+ - It is very true that I have said that I considered Napoleon’s presence in the field equal to forty thousand men in the balance. This is a very loose way of talking; but the idea is a very different one from that of his presence at a battle being equal to a reinforcement of forty thousand men.
+ - It is not the business of generals to shoot one another.
+ - I see no reason to suppose these machines will ever force themselves into general use.
+ - I am not only not prepared to bring forward any measure of this nature, but I will at once declare that, as far as I am concerned, as long as I hold any station in the Government of the country, I shall always feel it my duty to resist such measures when proposed by others.
+ - A great country can have no such thing as a little war.
+ - My rule always was to do the business of the day in the day.
+ - When one begins to turn in bed, it is time to get up.
+
+58 quotes

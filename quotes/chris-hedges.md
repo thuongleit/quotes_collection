@@ -1,0 +1,59 @@
+ - The true purpose of education is to make minds, not careers.
+ - I don’t fight fascists because I’ll win. I fight fascists because they are fascists.
+ - The rush of battle is often a potent and lethal addiction, for war is a drug.
+ - It is the cult of self that is killing the United States. This cult has within it the classic traits of psychopaths: superficial charm, grandiosity and self-importance ; a need for constant stimulation; a penchant for lying, deception and manipulation; and the incapacity for remorse or guilt.
+ - War is not about flag-waving and patriotism. War is about killing and death.
+ - Battling evil, cruelty, and injustice allows us to retain our identity, a sense of meaning, and ultimately our freedom.
+ - The moral nihilism of celebrity culture is played out on reality television shows, most of which encourage a dark voyeurism into other people’s humiliation, pain, weakness, and betrayal.
+ - Of the past 3,400 years, humans have been entirely at peace for 268 of them, or just 8 percent of recorded history.
+ - Unfettered capitalism is a revolutionary force that consumes greater and greater numbers of human lives until it finally consumes itself.
+ - The evil of predatory global capitalism and empire has spawned the evil of terrorism.
+ - War in the end is always about betrayal, betrayal of the young by the old, of soldiers by politicians, and of idealists by cynics.
+ - There are always people willing to commit unspeakable human atrocity in exchange for a little power and privilege.
+ - War is addictive. Indeed, it is the most potent narcotic unleashed by mankind.
+ - The charade of politics is to make voters think that the personal narrative of the candidate affects the operation of the corporate state. It doesn’t really matter on the fundamental issues whether the President is Republican or Democratic.
+ - A society without the means to detect lies and theft soon squanders its liberty and freedom.
+ - I have seen children shot in El Salvador, Algeria, Guatemala, Sarajevo, but I have never before watched soldiers entice children like mice into a trap and murder them for sport.
+ - The purpose of bread and circuses is, as Neil Postman said in his book Amusing Ourselves to Death, to distract, to divert emotional energy towards the absurd and the trivial and the spectacle while you are ruthlessly stripped of power.
+ - Violence is a disease, a disease that corrupts all who use it regardless of the cause.
+ - Positive psychology is to the corporate state what eugenics was to the Nazis.
+ - There are two sets of principles. They are the principles of power and privilege and the principles of truth and justice. If you pursue truth and justice it will always mean a diminution of power and privilege. If you pursue power and privilege, it will always be at the expense of truth and justice.
+ - The belief that rational and quantifiable disciplines such as science can be used to perfect human society is no less absurd than a belief in magic, angels, and divine intervention.
+ - The vanquished know war. They see through the empty jingoism of those who use the abstract words of glory, honor, and patriotism to mask the cries of the wounded, the senseless killing, war profiteering, and chest-pounding grief.
+ - It is better to be an outcast, a stranger in one’s own country, than an outcast from one’s self. It is better to see what is about to befall us and to resist than to retreat into the fantasies embraced by a nation of the blind.
+ - I’m not saying we’re going to win. I am saying rebellion becomes a way to protect your own dignity. Corporations are, theologically speaking, institutions of death. They commodify everything – the natural world, human beings – that they exploit until exhaustion or collapse. They know no limits.
+ - The violent subjugation of the Palestinians, Iraqis, and Afghans will only ensure that those who oppose us will increasingly speak to us in the language we speak to them – violence.
+ - The press, or at least most of it, has lost the passion, the outrage, and the sense of mission that once drove reporters to defy authority and tell the truth.
+ - What kind of a world are we going to leave the next generation? I, at least, want my children to look back and say, “My daddy was being arrested at the White House fence and booed off commencement stages. He was trying.”
+ - We live in imaginary, virtual worlds created by corporations that profit from our deception.
+ - Poor people, especially those of color, are worth nothing to corporations and private contractors if they are on the street. In jail and prisons, however, they can each generate corporate revenues of $30,000 to $40,000 a year.
+ - Inverted totalitarianism, unlike classical totalitarianism, does not revolve around a demagogue or charismatic leader. It finds expression in the anonymity of the Corporate State. It purports to cherish democracy, patriotism, and the Constitution while manipulating internal levers.
+ - The enduring attraction of war is this: Even with its destruction and carnage it can give us what we long for in life. It can give us purpose, meaning, a reason for living.
+ - War, we have come to believe, is a spectator sport. The military and the press have turned war into a vast video arcade game. Its very essence-death-is hidden from public view.
+ - One needs solitude and quiet to think. The cacophony of modern culture is designed to make that impossible...
+ - We on the left have forgotten that the question is not how do you get good people to rule, most people who rule are mediocre at best and usually venal. The question is how do we make those in power frightened of us and not be seduced by formal political processes.
+ - There was in the House only one dissenting vote, from Barbara J. Lee, a Democrat from California, who warned that military action could not guarantee the safety of the country and that ’as we act, let us not become the evil we deplore.
+ - The more we retreat from the culture at large the more room we will have to carve out lives of meaning, the more we will be able to wall off the flood of illusions disseminated by mass culture and the more we will retain sanity in an insane world.
+ - The moral certitude of the state in wartime is a kind of fundamentalism. And this dangerous messianic brand of religion, one where self-doubt is minimal, has come increasingly to color the modern world of Christianity, Judaism, and Islam.
+ - There are no impediments now to corporations. None. And what they want is for us to give up. They want us to become passive. They want us to become tacitly complicit in our own destruction.
+ - Patriotism, often a thinly veiled form of collective self-worship, celebrates our goodness, our ideals, our mercy and bemoans the perfidiousness of those who hate us.
+ - Becoming vegan is the most important and direct change we can immediately make to save the planet and its species.
+ - The violence of war is random. It does not make sense. And many of those who struggle with loss also struggle with the knowledge that the loss was futile and unnecessary.
+ - A culture that does not grasp the vital interplay between morality and power, which mistakes management techniques for wisdom, and fails to understand that the measure of a civilization is its compassion, not its speed or ability to consume, condemns itself to death.
+ - The greatest danger that besets us does not come from believers or atheists; it comes from those who, under the guise of religion, science or reason, imagine that we can free ourselves from the limitations of human nature and perfect the human species.
+ - Again, although I’m not a particularly religious person, I go back to the religious left that I come out of: There are moral imperatives to fight back. As Daniel Berrigan says, “We’re called to do the good.” And then we have to let it go. It’s not our job to know where the good goes.
+ - It is one of the great ironies of corporate control that the corporate state needs the abilities of intellectuals to maintain power, yet outside of this role it refuses to permit intellectuals to think or function independently.
+ - Jesus was a pacifist.
+ - Most of these who are thrust into combat soon find it impossible to maintain the mythic perception of war.
+ - It wasn’t a direct route. I began as a freelance reporter. That’s an important distinction, because people who rise through the ranks of The New York Times become vetted, conditioned, harassed, and shaped by the institution. That never happened to me.
+ - In war, we always deform ourselves, our essence.
+ - Economics dominates politics – and with that domination comes different forms of ruthlessness.
+ - The arts often realize human truths well before other branches of human endeavor.
+ - The cable news channels have cleverly seized on the creed of objectivity and redefined it in populist terms. They attack news based on verifiable fact for its liberal bias, for, in essence, failing to be objective, and promise a return to genuine objectivity.
+ - The failure to dissect the cause of war leaves us open for the next installment.
+ - Many of us, restless and unfulfilled, see no supreme worth in our lives. We want more out of life. And war, at least, gives a sense that we can rise above our smallness and divisiveness.
+ - The imperial projects will continue, Wall Street will be unimpeded in its malfeasance and criminal activity, social programs will continue to be cut, maybe not at the same speed as under a Republican Administration, but it’s all headed in the same direction.
+ - As the economy unravels, as hundreds of millions of Americans confront the fact that things will not get better, life for those targeted by this culture of hate will become increasingly difficult. Rational debate will prove useless.
+ - The split in America, rather than simply economic, is between those who embrace reason, who function in the real world of cause and effect, and those who, numbed by isolation and despair, now seek meaning in a mythical world of intuition, a world that is no longer reality-based, a world of magic.
+
+57 quotes

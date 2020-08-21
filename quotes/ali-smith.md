@@ -1,0 +1,39 @@
+ - Every great narrative is at least two narratives, if not more – the thing that is on the surface and then the things underneath which are invisible.
+ - Books mean all possibilities. They mean moving out of yourself, losing yourself, dying of thirst and living to your full. They mean everything.
+ - Then I saw her smile so close to my eye that there was nothing to see but the smile and the thought came into my head that I’d never been inside a smile before. Who’d have thought being inside a smile would be so ancient and so modern both at once.
+ - And it was always the stories that needed the telling that gave us the rope we could cross any river with. They balanced us high above any crevasse. They made us be natural acrobats. They made us brave. They met us well. They changed us. It was in their nature to.
+ - There is a kind of poetry, bad and good, in evrything, everywhere we look.
+ - A good argument, like a good dialogue, is always a proof of life, but I’d much rather go and read a book.
+ - I’m blessed in my good friends, and some of them happen to be writers, though that’s almost never what our friendships are about. And every writer I’ve ever read, living or dead, has in one way or another helped and inspired. I have a feeling it’s important not to mix the two up.
+ - You never know if you’re a writer. You can’t trust it. If you woke up and said, ‘I’m a writer,’ it would be gone. You wouldn’t see anything for miles – even the dust would be running away.
+ - Short stories consume you faster. They’re connected to brevity. With the short story, you are up against mortality. I know how tough they are as a form, but they’re also a total joy.
+ - All we are is eyes looking for the unbroken or the edges where the broken bits might fit each other.
+ - Oh. To be filled with goodness then shattered by goodness, so beautifully mosaically fragmented by such shocking goodness.
+ - Art makes nothing happen in a way that makes something happen.
+ - I went to the top of Vesuvius and looked in.
+ - Tonight I can smell the season the way it’s usually only possible to at the very first moments of its return, before you’re used to it, when you’ve forgotten its smell, then there it is back in the air and the flow of things shifting and resettling again.
+ - But everything written has style. The list of ingredients on the side of a cornflakes box has style. And everything literary has literary style. And style is integral to a work. How something is told correlates with – more – makes what’s being told. A story is its style.
+ - A game one of my sisters will play with me in my first year of being alive is called Good Baby, Bad Baby. This consists of being told I am a good baby until I smile and laugh, then being told I am a bad baby until I burst into tears. This training will stand me in good stead all through my life.
+ - To be known so well by someone is an unimaginable gift. But to be imagined so well by someone is even better.
+ - Thomas Teal, a luminous translator of Jansson’s twin talent for surface and depth, simplicity and reverberation in language, and someone who knows exactly how to convey her gift for sensing the meaning embedded in the most mundane act or turn of phrase.
+ - The whole point is, we can forget. It’s important that we forget some things. Otherwise we’d go round the world carrying a hodload of stuff we just don’t need.
+ - Nothing is harmful to literature except censorship, and that almost never stops literature going where it wants to go either, because literature has a way of surpassing everything that blocks it and growing stronger for the exercise.
+ - The head has its confines. The head’s got those all right, and the heart. The heart has its reasons.
+ - It’s about the connecting force from form to form. It’s the toe bone connecting to the shoulder bone. It’s the bacterial kick of life force, something growing out of nothing, forming itself out of something else. Form never stops. And form is always environmental.
+ - Even things which seem separate and finished are infinitely connected and will infinitely connect. This connection happens as soon as you let it, as soon as you engage – as soon as you even attempt to engage.
+ - Happy is what you realize you are a fraction of a second before it’s too late.
+ - I have thought for a long time that the way my clothes hang on me is more important than me inside them.
+ - It is important to know the stories and histories of things, even if all we know is that we don’t know.
+ - Do you come to art to be comforted, or do you come to art to be re-skinned?
+ - I was at the tail end of the family. The next brother along was already seven years older than me. I remember growing up by myself, playing games by myself.
+ - I don’t want a tombstone. You could carve on it ‘She never actually wanted a tombstone.’
+ - Google is so strange. It promises everything, but everything isn’t there. You type in the words for what you need, and what you need becomes superfluous in an instant, shadowed instantaneously by the things you really need, and none of them answerable by Google.
+ - All we need to do, reader or writer, from first line to final page, is be as open as a book, and be alive to the life in language – on all its levels.
+ - My father is from Newark in Nottinghamshire and my mother is from the very north of Ireland. They’ve ended up in Scotland, where my father – well, both of them – will always be seen as having come from somewhere else.
+ - We’d never expect to understand a piece of music on one listen, but we tend to believe we’ve read a book after reading it just once.
+ - Stella Duffy is a writer who never lets you down.
+ - There are things that can’t be said, because it’s hard to have to know them.
+ - I want to be bored. But I can’t. But I really don’t want to be this thing that I’m having to be instead of being bored.
+ - Words are like untying a corset – you can move into this great space with them.
+
+37 quotes

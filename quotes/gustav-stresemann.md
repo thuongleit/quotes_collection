@@ -1,0 +1,32 @@
+ - The economic position is only flourishing on the surface. Germany is in fact dancing on a volcano. If the short-term credits are called in, a large section of our economy would collapse.
+ - Mankind advances only through struggle.
+ - Historians still often see the end of the war as meaning nothing more for Germany than lost territories, lost participation in colonization, and lost assets for the state and individuals. They frequently overlook the most serious loss that Germany suffered.
+ - As a consequence of the terms of the Treaty of Versailles, the officer corps of the old army became part of this class, as did that part of the younger generation who, in the old Germany, would have become officers or civil servants.
+ - During the past few years I have led a sometimes hard battle for German foreign policy.
+ - I must begin by saying something about the old Germany. That Germany, too, suffered from superficial judgment, because appearances and reality were not always kept apart in people’s minds.
+ - To contrast national solidarity and international cooperation as two opposites seems foolish to me.
+ - If one seeks to analyze experiences and reactions to the first postwar years, I hope one may say without being accused of bias that it is easier for the victor than for the vanquished to advocate peace.
+ - Here we encounter two conflicting concepts with which we must come to grips in our time: the idea of national solidarity and the idea of international cooperation.
+ - In every man the memory of the struggles and the heroes of the past is alive. But these memories are not incompatible with the desire for peace in the future.
+ - As a result of the World War, this old Germany collapsed. It collapsed in its constitution, in its social order, in its economic structure. Its thinking and feeling changed.
+ - Just as the child is father to the man, so the impressions of one’s youth remain the most vivid in manhood.
+ - A people that has experienced all that the Germans have been through, naturally offers fertile soil for the extremists.
+ - Nothing is more misleading to the youth of a nation than to state the outcome immediately after the beginning as if nothing could have taken place in between.
+ - To walk behind others on a road you are traveling together, to give precedence to others without envy – this is painful for an individual and painful for a nation.
+ - Dante can be understood only within the context of Italian thought, and Faust would be unthinkable if divorced from its German background; but both are part of our common cultural heritage.
+ - The concept of active cooperation has taken the place of opposition to the new form of government and of dreamy resignation entranced with the beauty of times past.
+ - The courtesy which most becomes a victor was denied to Germany for a long time.
+ - The great men of a nation reach out to all mankind. They are unifying, not divisive; internationally conciliating and still great nationally.
+ - But just as haste and restlessness are typical of our present-day life, so change also takes place more rapidly than before. This applies to change in the relationships between nations as it does to change within an individual nation.
+ - No change in the balance of political parties can alter the general determination that no class should be excluded from contributing to and sharing responsibility for the state.
+ - A Shakespeare could have arisen only on English soil. In the same way, your great dramatists and poets express the nature and essence of the Norwegian people, but they also express that which is universally valid for all mankind.
+ - History uses a unit of measure for time that is different from that of the lifespan of the individual, whereas man is only too ready to measure the evolution of history by his own yardstick.
+ - Just as the British subject loves England despite her faults, so we must insist that all Germans who were part of the old Germany and helped shape her, recognize the greatness and worthiness of present-day Germany.
+ - For the victor peace means the preservation of the position of power which he has secured. For the vanquished it means resigning himself to the position left to him.
+ - Just as a child respects his father even when he perceives his weaknesses and faults, so a German will not despise the old Germany which was once a symbol of greatness to him.
+ - The life of the individual is a continuous combat with errors and obstacles, and no victory is more satisfying than the one achieved against opposition.
+ - Voices were heard from the United States of America which made it clear that America wanted a peaceful and united Europe as a basis for mutual cooperation.
+ - The history of nations shows that words are not always immediately followed by action.
+ - As a confirmed individualist I certainly do not wish to underrate the influence of the individual, for the masses do not lead the individual; rather, in the individual is vested the capacity to lead the masses.
+
+30 quotes

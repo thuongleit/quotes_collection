@@ -1,0 +1,22 @@
+ - This is my motto: Rejection is God’s protection.
+ - Go learn the language. Go take some acting lessons. Start from zero like everybody else.
+ - I stay healthy through eating well, working out – simply living a healthy lifestyle.
+ - I don’t believe in failure. I believe every setback is an opportunity to learn, regroup, get stronger, and try again.
+ - Always be your husband’s best friend, make him laugh and give him a little bit of freedom – you can’t suffocate him.
+ - Many things inspire me, but at this moment in my life, my daughter is my greatest inspiration. Working hard has taken on a whole new meaning since I had her. I want to make a great life for myself so she can have a great life.
+ - When people feel that they have failed, it’s usually because somebody or something caused them to feel that way and taste defeat. I refuse to dwell on that. Yes, it sucks at first, and the feeling is valid, but it all happens for a reason.
+ - I’ve been blessed because every single role I’ve done has been an educated person. I’ve never done the stereotypical Latina, even though I have an accent – I’ve always been able to play educated people. That’s a good thing!
+ - My greatest obstacle has to be accepting that the business that I chose to be part of is based on rejection and constantly trying to prove yourself. Letting go of seeing my accent and the way I speak as a limitation. Accepting it as who I am and where I came from.
+ - I was ballet dancing at four, playing piano by six, and doing commercials by 12. When I was 21, I was on the number one live comedy show in Puerto Rico. I told my parents, ‘I’m going to New York to become a performer.’ And I left.
+ - I love someone who can make me laugh. And someone who’s secure – I think that’s sexy.
+ - I thought it would be easy. I thought it’d take me one year to be Salma Hayek.
+ - I love what I do. When a month goes by and I’m not working, I’m miserable.
+ - I don’t understand it, but every horror film is huge. I would consider one, but I don’t know if my heart would be in it.
+ - I can wear a sexy dress to any red carpet event. My wedding is my chance to go all the way and wear a princess silhouette.
+ - I had such a great upbringing in Puerto Rico, and it was just a very normal life.
+ - Even though the stuff Im doing right now is relatively easy, I think in the future I would love to play things that have nothing to do with me and thats good.
+ - Five women working together is never going to be easy. It’s a lot. But God is so incredible, in terms of the timing, because we are all married with kids, in our late 30s and 40s. It’s a different stage in our lives. It’s not about who is going to be the one that’s going to pop.
+ - New York doesn’t care who you are or where you came from.
+ - What’s important is friendship and family and love.
+
+20 quotes

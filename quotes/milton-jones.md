@@ -1,0 +1,32 @@
+ - The worst job I ever had was as a forensicologist for the United Nations. One time I thought I’d come across the mass grave of a thousand snowmen, but it turns out it was just a field of carrots.
+ - The pollen count, now that’s a difficult job. Especially if you’ve got hay fever.
+ - Here’s a picture of me with REM. That’s me in the corner.
+ - About a month before he died, my grandfather, we covered his back full of lard – after that he went downhill very quickly.
+ - Easiest job in the world of course, Australian psychiatrist, “Gday Gday how you doing no worries next”.
+ - If you’re being chased by a police dog, try not to go through a tunnel, then on to a little seesaw, then jump through a hoop of fire. They’re trained for that!
+ - I’ve just finished my book, I wrote it on penguins. Come to think of it, paper would have been better.
+ - It’s difficult isn’t it, when you’re in a Mosque and everyone’s praying and you really enjoy leapfrog.
+ - My aunt Marge has been so ill for so long that we’ve started to call her I can’t believe she’s not better.
+ - I got arrested for playing chess in the street. I said, it’s because I’m black, isn’t it.
+ - Most of my relatives are police marksmen, apart from my grandad who was a bank robber. He died recently, surrounded by his family.
+ - If they make it illegal to wear the veil at work, bee keepers are going to be furious.
+ - Sometimes I wonder what my grandfather would think of what I do, he spent his whole life in the kebab business, was buried with all his equipment, probably turning in his grave.
+ - I lost my job as a cricket commentator for saying “I don’t want to bore you with the details”.
+ - So I phoned up the spiritual leader of tibet, he sent me a large goat with a long neck, turns out I phoned dial a lama.
+ - You know the animal that kills the most people in the world? The Hepatitis Bee.
+ - When my daughter was born she had jaundice, she was small, round and yellow. we called her Melony.
+ - Why did we get together? Because God wanted us to do it. We were just trying to do what God wants us to do. We didn’t feel like we had much of a choice.
+ - If you’re depressed and called Morgan spend the first half of the day in Germany for some positive affirmation.
+ - As a child I watched Mary Poppins so many times I suffered from a condition with my sight. Umdiddleiddleiddleumdiddle Eye.
+ - My mother made us eat all sorts of vitamins and supplements, until one day I nearly choked on part of The Sunday Times.
+ - I have a nut allergy. When I was at school the other children used to make me play Russian roulette but force-feeding me a packet of Revels.
+ - Militant feminists, I take my hat off to them, they don’t like that.
+ - When the boys at school found out I had a potentially fatal peanut allergy, they used to hold me up against a wall and play Russian Roulette with a bag of Revels!
+ - I recently bought the box set of ‘Doctor Who’ and watched it back to back, Unfortunately I wasn’t the one facing the TV!
+ - A lot of people like cats. Take the Pope, for example: I read recently that he was a cat-oholic!
+ - I hate sitting in traffic, because I always get run over.
+ - You know I used to work at Ikea, selling over 7,000 products. Give me a number between 1-7,000 I’ll tell you about it. Sorry out of stock, lucky you chose that one.
+ - I don’t know if you’ve ever fallen asleep whilst eating a plate of cauliflower, and then woken up, and thought you were in the clouds.
+ - Incredible to think isn’t it, that every single Scotsman, started off as a scotch egg. Old and gingery.
+
+30 quotes

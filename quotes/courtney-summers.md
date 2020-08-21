@@ -1,0 +1,26 @@
+ - I’m not afraid to be alone like you are.
+ - I woke up and the last piece of my heart disappeared. I opened my eyes and I felt it go.
+ - A whole world exists outside of that hellhole.
+ - How does it feel to know that even at my worst, you’re still not good enough?
+ - My dad used to say makeup was a shallow girl’s sport, but it’s not. It’s armor.
+ - I mean, you know how it is. You chase a bottle of sleeping pills with a bottle of Jack Daniel’s and life’s never the same, no matter how many times you try to tell people it was just an accident.
+ - We eat breakfast, lunch, and dinner to the soundtrack of our own impending death.
+ - I’ve been variations of hurt my whole life.
+ - Waiting around to be saved is like waiting to die and I have done more of both than anyone else in the room.
+ - Write it down today, put it away, make sense of it tomorrow.
+ - Time passes too quickly when you’re getting ready to do something you don’t want to do.
+ - Becky, you’re only standing there because I decided I didn’t want to.
+ - I’m afraid everything I was is gone and all that’s left is everything I’m not.
+ - The sooner you make a mistake and learn to live with it, the better. You’re not responsible for everything. You can’t control the way things end up.
+ - I’m struck by how amazing it is and how sad that makes me, because I’ve never seen that. He’s not like that around me. The way his mouth quirks and lights up his eyes. He should smile more often. It’s so innocent.
+ - Everyone should know – there’s no such thing as a decent human being. It’s just an illusion. And when it’s gone, it’s really gone.
+ - Cardboard cutouts of cheerleaders operated by arthritic monkeys would move more fluidly.
+ - I’m always leaving, but I never have anywhere to go.
+ - Funny how the last thing we want the world to see is almost the first thing to show.
+ - Death has been here and where death has been no light shall ever be .
+ - If I can do things right, I don’t see why everyone else can’t.
+ - The fall takes no time and forever.
+ - Is this what it’s like to get close to other people – you do something insane together and then you have to share everything even if you don’t really want to?
+ - You only get to walk variations of the same lines everyone has already drawn for you.
+
+24 quotes

@@ -1,0 +1,31 @@
+ - Educarers demonstrate love by showing and teaching respect.
+ - We not only respect babies, we demonstrate our respect every time we interact with them. Respecting a child means treating even the youngest infant as a unique human being, not as an object.
+ - Do less; observe more; enjoy most.
+ - Childhood is not a race to see how quickly a child can read, write and count. It is a small window of time to learn and develop at the pace that is right for each individual child. Earlier is not better.
+ - All children accomplish milestones in their own way, in their own time.
+ - Let the child be the scriptwriter, the director and the actor in his own play.
+ - Infancy is a vulnerable stage of development, therefore, it’s not enough that babies receive good care, the care must be excellent.
+ - Having Respect for the world is when you allow people to be what they are.
+ - When you hold an infant, hold him not just with your body, but with your mind and heart.
+ - Every baby moves with more ease and efficiency if allowed to do it at his own time and in his own way, without our trying to teach him. A child who has always been allowed to move freely develops not only an agile body but also good judgment about what he can and cannot do.
+ - Sadness, discomfort, frustration – they are all valid human emotions. Why would we want to suppress them?
+ - An infant always learns. The less we interfere with the natural process of learning, the more we can observe how much infants learn all the time.
+ - Remember, nobody can make another person fall asleep. How to relax and let sleep come is a skill your child, like everybody else, must learn all by herself.
+ - Predictability brings about security.
+ - The more we do, the busier we are, the less we really pay attention.
+ - We all need someone who understands.
+ - Much harm has been done in the name of love, but no harm can be done in the name of respect.
+ - I wish children could grow according to their natural pace: sleep when sleepy, wake up when rested, eat when hungry, cry when upset, play and explore without being unnecessarily interrupted; in other words, be allowed to grow and blossom as each was meant to.
+ - Set aside predictable, regular times to give full attention without being distracted by other concerns while also creating a safe, familiar place for baby to spend time playing alone.
+ - Wouldn’t life be easier for both parents and infants if parents would observe, relax and enjoy what their child is doing, rather than keep teaching what the child is not yet capable of?
+ - Allow the child to be authentic, to move, to feel the way they move, appreciating them for what they are.
+ - Focus on quality and ease of movement, not on the age a milestone is accomplished.
+ - The way we care for our babies is how they experience our love.
+ - What infants need is the opportunity and time to take in and figure out the world around them.
+ - If infants are ready to do something, they will do it. In fact, when they are ready, they have to do it.
+ - Children do not play because they learn; They play because they play.
+ - As I say so often, “Observe and wait.” Sometimes you may even find out that what you believed the infant wanted was only your assumption. It is natural to make mistakes and easy to misunderstand pre-verbal children. Nevertheless, it is important to keep trying.
+ - Children raised with respect and inner direction tend to play well in groups, at times quite peacefully, each involved in her own project or involved with the other chidren.
+ - A positive goal to strive for when disciplining would be to raise children we not only love, but in whose company we love being.
+
+29 quotes

@@ -1,0 +1,198 @@
+ - I don’t want realism. I want magic!
+ - Time is the longest distance between two places.
+ - Luck is believing you’re lucky.
+ - If I got rid of my demons, I’d lose my angels.
+ - A prayer for the wild at heart kept in cages.
+ - Kill off all my demons and my angels might die too.
+ - The helpless can’t help the helpless.
+ - There comes a time when you look into the mirror and you realize that what you see is all that you will ever be. And then you accept it. Or you kill yourself. Or you stop looking in mirrors.
+ - The only thing worse than a liar is a liar that’s also a hypocrite!
+ - There is a time for departure even when there’s no certain place to go.
+ - We have to distrust each other. It is our only defense against betrayal.
+ - Life is all memory, except for the one present moment that goes by you so quickly you hardly catch it going.
+ - Make voyages. Attempt them. There’s nothing else.
+ - The only unforgivable sin is deliberate cruelty.
+ - All cruel people describe themselves as paragons of frankness.
+ - What is straight? A line can be straight, or a street, but the human heart, oh, no, it’s curved like a road through mountains.
+ - I don’t want realism. I want magic! Yes, yes, magic! I try to give that to people. I misrepresent things to them. I don’t tell the truth, I tell what ought to be the truth. And it that’s sinful, then let me be damned for it!
+ - I have always depended on the kindness of strangers.
+ - The violets in the mountains have broken the rocks.
+ - We are all sentenced to solitary confinement inside our own skins, for life.
+ - Caged birds accept each other, but flight is what they long for.
+ - To change is to live, to live is to change, and not to change is to die.
+ - You can be young without money but you can’t be old without it.
+ - I’ve got the guts to die. What I want to know is, have you got the guts to live?
+ - Enthusiasm is the most important thing in life.
+ - Oh you weak, beautiful people who give up with such grace. What you need is someone to take hold of you.
+ - America has only three cities: New York, San Francisco, and New Orleans. Everywhere else is Cleveland.
+ - Security is a kind of death.
+ - A high station in life is earned by the gallantry with which appalling experiences are survived with grace.
+ - Revolution only needs good dreamers who remember their dreams.
+ - Deliberate cruelty is unforgivable. – Blanche Dubois.
+ - Being disappointed is one thing and being discouraged is something else. I am disappointed but I am not discouraged.
+ - Snatching the eternal out of the desperately fleeting is the great magic trick of human existence.
+ - We are all of us born, live and die in the shadow of a giant question mark that refers to three questions: Where do we come from? Why? And where, oh where, are we going!
+ - I think time is a merciless thing. I think life is a process of burning oneself out and time is the fire that burns you.
+ - Nobody sees anybody truly but only through the flaws of their own ego.
+ - Physical beauty is passing – a transitory possession – but beauty of the mind, richness of the spirit, tenderness of the heart – I have all these things – aren’t taken away but grow! Increase with the years!
+ - Friends are God’s way of apologizing to us for our families.
+ - In memory everything seems to happen to music.
+ - When so many are lonely as seem to be lonely, it would be inexcusably selfish to be lonely alone.
+ - Why is it so damn hard for people to talk?
+ - If the writing is honest it cannot be separated from the man who wrote it.
+ - I think that hate is a feeling that can only exist where there is no understanding.
+ - I respect a person that has had to fight and howl for his decency.
+ - Death is one moment, and life is so many of them.
+ - The future is called ‘perhaps,’ which is the only possible thing to call the future. And the important thing is not to allow that to scare you.
+ - Don’t you think there is always something unspoken between two people?
+ - Nothing human disgusts me unless it’s unkind.
+ - Living with someone you love can be lonelier than living entirely alone, if the on that you love doesn’t love you.
+ - In all these years, you never believed I loved you. And I did. I did so much. I did love you. I even loved your hate and your hardness.
+ - The Venus flytrap, a devouring organism, aptly named for the goddess of love.
+ - Life is partly what we make it, and partly what it is made by the friends we choose.
+ - Everybody is nothing until you love them.
+ - The name of a person you love is more than language.
+ - Success and failure are equally disastrous.
+ - They chatter together like birds on Cypress Hill, but all they say is ‘Live, live, live, live, live!’ It’s all they’ve learned, it’s the only advice they can give.
+ - Just another four-letter word.
+ - People go to the movies instead of moving.
+ - How beautiful it is and how easily it can be broken.
+ - There are no ‘good’ or ‘bad’ people. Some are a little better or a little worse, but all are activated more by misunderstanding than malice. A blindness to what is going on in each other’s hearts...
+ - Men don’t want anything they get too easy. But on the other hand, men lose interest quickly.
+ - People go to the movies instead of moving. Hollywood characters are supposed to have all the adventures for everybody in America, while everybody in America sits in a dark room and watches them have them.
+ - Time doesn’t take away from friendship, nor does separation.
+ - Oh, Jacques, we’re used to each other, we’re a pair of captive hawks caught in the same cage, and so we’ve grown used to each other. That’s what passes for love at this dim, shadowy end of the Camino Real.
+ - The object of art is to make eternal the desperately fleeting moment.
+ - A man, when he burns, leaves only a handful of ashes. No woman can hold him. The wind must blow him away.
+ - Don’t look forward to the day you stop suffering, because when it comes you’ll know you’re dead.
+ - I try to work every day because you have no refuge but writing. When you’re going through a period of unhappiness, a broken love affair, the death of someone you love, or some other disorder in your life, then you have no refuge but writing.
+ - Oh, you weak, beautiful people who give up with such grace. What you need is someone to take hold of you – gently, with love, and hand your life back to you, like something gold you let go of – and I can! I’m determined to do it – and nothing’s more determined than a cat on a tin roof – is there?
+ - We all live in a house on fire, no fire department to call; no way out, just the upstairs window to look out of while the fire burns the house down with us trapped, locked in it.
+ - All good art is an indiscretion.
+ - If you can’t be yourself, what’s the point of being anyone else?
+ - Why did I write? Because I found life unsatisfactory.
+ - You said, ‘They’re harmless dreamers and they’re loved by the people.’ ‘What,’ I asked you, ‘is harmless about a dreamer, and what,’ I asked you, ’is harmless about the love of the people? Revolution only needs good dreamers who remember their dreams.
+ - But since I have a poet’s weakness for symbols, I am using this character also as a symbol; he is the long-delayed but always expected something that we live for.
+ - All of us are guinea pigs in the laboratory of God. Humanity is just a work in progress.
+ - Being a memory play, it is dimly lighted, it is sentimental. It is not realistic.
+ - All your Western theologies, the whole mythology of them, are based on the concept of God as a senile delinquent.
+ - Yes, I have tricks in my pocket, I have things up my sleeve. But I am the opposite of a stage magician. He gives you illusion that has the appearance of truth. I give you truth in the pleasant disguise of illusion.
+ - I am more faithful than I intended to be!
+ - Perhaps the most vivid recollection of my youth is that of the local wheelmen, led by my father, stopping at our home to eat pone, sip mint juleps, and flog the field hands. This more than anything cultivated my life-long aversion to bicycles.
+ - Go, then! Go to the moon-you selfish dreamer!
+ - To be free is to have achieved your life.
+ - Guessing isn’t knowing.
+ - What on earth can you do on this earth but catch at whatever comes near you, with both your fingers, until your fingers are broken?
+ - The work of a writer, his continuing work, depends for breath of life on a certain privacy of heart.
+ - Is a lifetime long enough to hold the regret that I have for that fantastically aborted but crazily sweet love affair?
+ - The theatre is a place where one has time for the problems of people to whom one would show the door if they came to one’s office for a job.
+ - Some things are not forgiveable. Deliberate cruelty is not forgiveable. It is the most unforgiveable thing in my opinion, and the one thing in which I have never, ever been guilty.
+ - Symbols are nothing but the natural speech of drama.
+ - The human animal is a beast that dies but the fact that he’s dying don’t give him pity for others.
+ - All my life I have been haunted by the obsession that to desire a thing or to love a thing intensely is to place yourself in a vulnerable position, to be a possible, if not a probable, loser of what you most want. Let’s leave it like that.
+ - Well, honey, a shot never does a coke any harm!
+ - They told me to take a streetcar named Desire and then transfer to one called Cemeteries and ride six blocks and get off at – Elysian Fields!
+ - Glass breaks so easily. No matter how careful you are.
+ - Maggie, we’re through with lies and liars in this house. Lock the door.
+ - The world is a funny paper read backwards. And that way it isn’t so funny.
+ - And then the searchlight which had been turned on the world was turned off again and never for one moment since has there been any light that’s stronger than this-kitchen-candle...
+ - Life is an unanswered question, but let’s still believe in the dignity and importance of the question.
+ - Man is by instinct a lover, a hunter, a fighter, and none of those instincts are given much play at the warehouse!
+ - Girls that aren’t cut out for business careers usually wind up married to some nice man.
+ - Devils can be driven out of the heart by the touch of a hand on a hand, or a mouth on a mouth.
+ - But there are things that happen between a man and a woman in the dark – that sort of make everything else seem – unimportant.
+ - I can’t stand a naked light bulb, any more than I can a rude remark or a vulgar action.
+ - Once you fully apprehend the vacuity of a life without struggle, you are equipped with the basic means of salvation.
+ - There is no pleasure in the world like writing well and going fast. It’s like nothing else. It’s like a love affair, it goes on and on, and doesn’t end in marriage. It’s all courtship.
+ - How long does it have to go on? This punishment? Haven’t I done time enough, haven’t I served my term? can’t I apply for a-pardon?
+ - We lose the magic whenever we stop telling our story and begin to wonder how we’re doing, if we’re selling it, if the listener likes us. Just tell the story and go on to the next one. All of us are full of stories the world might want to hear.
+ - All pretty girls are a trap, a pretty trap, and men expect them to be.
+ - All creative work, all life in a sense, is a cri de coeur.
+ - Since that day, when people have spoken to me of “genius”, I have felt the inside pocket to make sure my wallet’s still there.
+ - Marriage is an economic arrangement in many ways, let’s face it.
+ - Jim lights a cigarette and leans indolently back on his elbow smiling at Laura with a warmth and charm which lights her inwardly with altar candles.
+ - I know I fib a good deal. After all, a woman’s charm is fifty per cent illusion, but when a thing is important I tell the truth. – Blanche Scene II.
+ - Hysteria is a natural phenomenon, the common denominator of the female nature. It’s the female weapon and the test of a man is his ability to cope with it.
+ - Luxury is the wolf at the door and its fangs are the vanities and conceits germinated by success. When an artist learns this, he knows where the danger is.
+ - Sorrow makes for sincerity, I think.
+ - Openings come quickly, sometimes, like blue space in running clouds. A complete overcast, then a blaze of light...
+ - Walls are built up between people a hell of a damn sight faster than – broken down.
+ - We are all civilized people, wich means that we are all savages at heart but observing a few amenities of civilized behaviour.
+ - The most dangerous word in any human tongue is the word for brother. It’s inflammatory.
+ - I don’t ask for your pity, but just your understanding – no, not even that -no. Just for your recognition of me in you, and the enemy, time, in us all.
+ - Oh, you can’t describe someone you’re in love with!
+ - Kenneth Hari does not paint portraits as they are but as he is. I feel he is hiding something from me. To board a train into his mind would give me a ride into dark adventure.
+ - The scene is memory and is therefore nonrealistic. Memory takes a lot of poetic license. It omits some details; others are exaggerated, according to the emotional value of the articles it touches, for memory is seated predominantly in the heart.
+ - I have always been pushed by the negative. The apparent failure of a play sends me back to my typewriter that very night, before the reviews are out. I am more compelled to get back to work than if I had a success.
+ - I can’t expose a human weakness on the stage unless I know it through having it myself.
+ - I have found it easier to identify with the characters who verge upon hysteria, who were frightened of life, who were desperate to reach out to another person. But these seemingly fragile people are the strong people really.
+ - In human character, simplicity doesn’t exist except among simpletons.
+ - When I stop working the rest of the day is posthumous. I’m only really alive when I’m writing.
+ - And funerals are pretty compared to deaths.
+ - A vacuum is a hell of a lot better than some of the stuff that nature replaces it with.
+ - Mexico is the front door to South America – and the back door to the states...
+ - I believe that the silence of God, the absolute speechlessness of Him is a long, long, and awful thing that the whole world is lost because of.
+ - If people behaved in the same way nations do they would all be put in straitjackets.
+ - Youth must be wanton, youth must be quick, Dance to the candle while lasteth the wick.
+ - Bohemia has no banner. It survives by discretion.
+ - I don’t believe in villains or heroes, only in right or wrong ways that individuals are taken, not by choice, but by necessity or by certain still uncomprehended influences in themselves, their circumstances and their antecedents.
+ - Time rushes towards us with its hospital tray of infinitely varied narcotics, even while it is preparing us for its inevitably fatal operation.
+ - It is a terrible thing for an old woman to outlive her dogs.
+ - I know all about the tyranny of women.
+ - I met her last summer on a moonlight boat trip...
+ - Talent? What is talent but the ability to get away with something?
+ - Nothing’s more determined than a cat on a hot tin roof...
+ - Only some radical change can divert the downward course of my spirit, some startling new place or people to arrest the drift, the drag.
+ - Most of the confidence which I appear to feel, especially when influenced by noon wine, is only a pretense.
+ - I don’t think a married couple can go through life without laughs together any more than they can without tears.
+ - The trouble with this world is that everybody has to compromise and conform.
+ - These are the intensities that one cannot live with, that he has to outgrow if he wants to survive. But who can help grieving for them? If the blood vessels could hold them, how much better to keep those early loves with us?
+ - An artist must believe in himself. Your belief is contagious. Others may say he is vain, but they are affected.
+ - Personal lyricism is the outcry of prisoner to prisoner from the cell in solitary where each is confined for the duration of his life.
+ - You are the only young man that I know of who ignores the fact that the future becomes the present, the present the past, and the past turns into everlasting regret if you don’t plan for it.
+ - I have always been more interested in creating a character that contains something crippled. I think nearly all of us have some kind of defect.
+ - Revolution begins in putting on bright colors.
+ - Only animals have to satisfy instincts! Surely your aims are somewhat higher than theirs! Than monkeys! Pigs!
+ - If I am no longer disturbed myself, I will deal less with disturbed people, but I don’t regret having concerned myself with them because I think most of us are disturbed.
+ - At the age of fourteen I discovered writing as an escape from a world of reality in which I felt acutely uncomfortable.
+ - You take it for granted that I am in something that I want to get out of.
+ - There’s no better credit card in the world than driving up at a bank door in a Cadillac limousine.
+ - And so tonight we’re going to make the lie true, and when that’s done, I’ll bring the liquor back here and we’ll get drunk together, here, tonight, in this place that death has come into...
+ - Young, gifted, and destitute...
+ - A woman’s charm is fifty percent illusion.
+ - I don’t believe anyone ever suspects how completely unsure I am of my work and myself and what tortures of self-doubting the doubt of others has always given me.
+ - I don’t think there is such a thing as a precise sexual orientation. I think we’re all ambiguous sexually.
+ - I saw that it was all over, put away in a box like a doll no longer cared for, the magical intimacy of our childhood together.
+ - I believe the way to write a good play is to convince yourself it is easy to do, then go ahead and do it with ease.
+ - You see, baby, after a glass or two of wine I’m inclined to extravagance.
+ - I’m a poet. And then I put the poetry in the drama. I put it in short stories, and I put it in the plays. Poetry’s poetry. It doesn’t have to be called a poem, you know.
+ - Some mystery should be left in the revelation of character in a play, just as a great deal of mystery is always left in the revelation of character in life, even in one’s own character to himself.
+ - A bedroom is just as nice as whoever sleeps in it with you.
+ - I gave up visiting my psychoanalyst because he was meddling too much in my private life.
+ - Take by surprise and the world gives up resistance.
+ - Blanche: No, I have the misfortune of being an English instructor. I attempt to instill a bunch of bobby-soxers and drugstore Romeos with a reverence for Hawthorne and Whitman and Poe!
+ - Like a Cat on a hot tin roof.
+ - Not facing a fire doesn’t put it out.
+ - We’re left alone with each other. We have to creep close to each other and give gentle little nudges with our paws and our muzzles before we can slip into sleep and rest for the next day’s playtime.
+ - The strongest influences in my life and my work are always whomever I love. Whomever I love and am with most of the time, or whomever I remember most vividly. I think that’s true of everyone, don’t you?
+ - We’ve had this date with each other from the beginning.
+ - There is no pleasure in the world like writing well and going fast.
+ - Val: Why do you go out there? Sandra: Because dead people give such good advice. Val: What advice do they give? Sandra: Just one word- live!
+ - Things have a way of turning out so badly.
+ - It is planned speeches that contain lies or dissimulations, not what you blurt out so spontaneously in one instant.
+ - The biggest of all differences in this world is between the ones that had or have pleasure in love and those that haven’t and hadn’t any pleasure in love, but just watched with sick envy.
+ - Morning can always be counted on to bring us back to a more realistic level.
+ - When things don’t change, their sameness becomes an accretion. That is why all society puts on flesh. Succumbs to the cubicles and begins to fill them.
+ - It’s hard enough for me to write what I want to write without me trying to write what you say they want me to write which I don’t want to write.
+ - Don’t you just love those long rainy afternoons in New Orleans when an hour isn’t just an hour – but a little piece of eternity dropped into your hands – and who knows what to do with it?
+ - I always said little Truman had a voice so high it could only be detected by bats.
+ - But I think the spirit of man is a good adversary.
+ - You know, then that the public Somebody you are when you ‘have a name’ is a fiction created with mirrors and that the only somebody worth being is the solitary and unseen you that existed from your first breath.
+ - I talk out the lines as I write them.
+ - I cannot write any sort of story unless there is at least one character in it for whom I have physical desire.
+ - I wrote because I had to. I couldn’t stop. There wasn’t anything else I could do. If no one ever bought anything, anything I ever did, I’d still be writing. It’s beyond a compulsion.
+ - Everyone says he’s sincere, but everyone isn’t sincere. If everyone was sincere who says he’s sincere there wouldn’t be half so many insincere ones in the world and there would be lots, lots, lots more really sincere ones!
+ - It is, perhaps more than anything else, the arrest of time which has taken place in a completed work of art that gives certain plays their feeling of depth and significance.
+ - I think no more than a week after I started writing I ran into the first block. It’s hard to describe it in a way that will be understandable to anyone who is not a neurotic.
+
+196 quotes

@@ -1,0 +1,154 @@
+ - Big things are built one brick at a time. Victories are achieved one choice at a time. A life well lived is chosen one day at a time.
+ - Don’t let people’s compliments go to your head, and don’t let their criticisms go to your heart. The degree to which you do either of these things is the degree to which you’ll be ruled by what other people think of you.
+ - Trusting God’s plan is the only secret I know in the gentle art of not freaking out.
+ - Just because something is hard doesn’t mean it’s impossible.
+ - Never is a woman so fulfilled as when she chooses to underwhelm her schedule so she can let God overwhelm her soul.
+ - There is power in simply speaking the name Jesus.
+ - Scars are beautiful when we see them as glorious reminders that we courageously survived.
+ - Remember who you are. Don’t compromise for anyone, for any reason. You are a child of the Almighty God. Live that truth.
+ - God is good to me, even when life doesn’t feel good to me.
+ - God will always do great things with people who are willing to be faithful in the small things.
+ - God invites us today to live a great story with Him.
+ - Forgiveness is mandatory; reconciliation is optional.
+ - Not making a decision is actually a decision. It’s the decision to stay the same.
+ - We want big directional signs from God. God just wants us to pay attention.
+ - Great love isn’t two people finding the perfect match in one another. Great love is two people making the choice to be a match.
+ - God loves you just the way you are. But He loves you too much to leave you stuck in a state of defeat.
+ - You’ve never gone too far that God can’t redeem you, restore you, forgive you, and give you a second chance.
+ - My imperfections will never override God’s promises. God’s promises are not dependent on my ability to always choose well, but rather on His ability to use well.
+ - Getting healthy isn’t just about losing weight. It’s not limited to adjusting our diet and hoping for good physical results. It’s about recalibrating our souls so that we want to change – spiritually, physically, and mentally. And the battle really is in all three areas.
+ - Life as a Christ follower will always be a learning process of depending less on our own strength and more on God’s power.
+ - No person, possession, profession, or position ever fills the cup of a wounded, empty heart. It’s an emptiness only God can fill.
+ - Satan wants anxiety to hinder us from becoming effective servants of Christ.
+ - God, I want to see You. God, I want to hear You. God, I want to know You. God, I want to follow hard after You. And even before I know what I will face today, I say yes to You.
+ - When to give grace? I’d rather stand before God knowing I loved others too much rather than regretting that I judged too harshly.
+ - This life is not about me. It’s about joining hands with Jesus to fulfill whatever tasks He sets before me and to share His love with all He brings my way.
+ - I know deep hurt. But I also know deep hope. Sometimes God’s power is shown as much in preventing things as it is in making them happen. We may never know why. But we can always know and trust the Who.
+ - Wise women tuck Godly wisdom into the words they speak and even more into the words they choose not to speak.
+ - I give grace because I so desperately need it.
+ - Saying yes all the time won’t make me Wonder Woman. It will make me a worn out woman.
+ - The decisions you make determine the schedule you keep. The schedule you keep determines the life you live. And how you live your life determines how you spend your soul.
+ - God is mighty. God is caring. God is worthy of praise. God is loving. God is able. God is in control. Nothing takes God by surprise. Some sweet reminders to soak in before falling asleep tonight.
+ - Outside our comfort zone, though, is where we experience the true awesomeness of God.
+ - Most of us spend years chasing things in this world that we think will make us feel loved. But everything this world has to offer is temporary. Everything. The kind of love our souls crave is lasting, eternal. And only God can fill up our hearts with that kind of love.
+ - Do not confuse the command to love with the disease to please.
+ - Remember, the Devil loves to make us focus on the little that’s wrong so we miss the big picture of all that’s right.
+ - When God says no, we are sometimes tempted to wonder if He loves us. In reality, it’s because He loves us, He sometimes says no.
+ - If I’m trusting myself, I will stare at all the possible ways I could fail. If I’m trusting God, I will stare at all the possible ways He’ll use this whether I fail or succeed.
+ - I can face things that are out of my control and not act out of control.
+ - I realize how desperately I need grace, therefore I try to lavishly give it.
+ - I was made for more than being stuck in a vicious cycle of defeat. I am not made to be a victim of my poor choices. I was made to be a victorious child of God.
+ - God loves to take people from broken backgrounds and surprise them with possibilities.
+ - So, I’m not on a diet. I’m on a journey with Jesus to learn the fine art of self-discipline for the purpose of holiness.
+ - A woman who lives with the stress of an overwhelmed schedule will often ache with the sadness of an underwhelmed soul.
+ - The truly thankful person is a truly peaceful person.
+ - The secret to healthy conflict resolution isn’t taking a ‘you against me’ stance. The secret is realizing it’s ‘us against Satan.’ He’s the real enemy.
+ - The one who obey’s God’s instruction for today will develop a keen awareness of His direction for tomorrow.
+ - We live in a broken world full of broken people. But isn’t it comforting to know God isn’t ever broken? He isn’t ever caught off guard, taken by surprise, or shocked by what happens next.
+ - Too many people think that finding the reason God placed us here on earth will come in one assignment with a big title and complete job description. I believe that discovering our purpose will unfold slowly, like a seed planted deep in the ground.
+ - Prayer does make a difference-a life-changing, mind-blowing, earth-rattling difference.
+ - No matter your age, stage of life, or circumstances, don’t forget to dare to dream with God. You don’t have to figure anything out. Just keep saying yes to Him, in big ways and small, and watch what He does.
+ - God is using all of your experiences, both good and bad, to develop your character to match your calling.
+ - Nothing done with the focus on God is ever a waste of time.
+ - Refusing to gossip is a beautiful decision to make. It not only creates richer friendships but, more importantly, it makes our relationship with the Lord more authentic and believable. We honor God when we honor each other.
+ - Having faith doesn’t mean I have all the answers. It means trusting God especially in the midst of uncertainty.
+ - Lord, help me to see what comes my way as an opportunity instead of an inconvenience.
+ - Our decisions aren’t just isolated choices. Our decisions point our lives in the directions we’re about to head. Show me a decision and I’ll show you a direction.
+ - God has challenged me to grow in my knowledge of Him but I have to CHOOSE whether or not to display this growth through my actions.
+ - I want to learn how to be more thankful for what I am, than guilty for what I’m not.
+ - Toxic thoughts leave no room for truth to flourish. And in the absence of truth, lies reign. Spend some time soaking in your favorite verses from Scripture tonight. The more we read God’s truths and let truth fill our minds, the less time we’ll spend contemplating untruths and toxic thoughts.
+ - At the end of the day, honoring God leads to good things. Anything else leads to confusion, emotional exhaustion and a lack of good things.
+ - What if God’s ‘NO,’ is really a gift? His way to protect us from what we cannot see, provide something better than we can imagine, or be part of the process of growing us closer to Him.
+ - God gave me emotions so I could experience life, not destroy it.
+ - Raw emotions – anger, frustration, bitterness, resentment – are the feelings we tend to hide from people we want to impress but spew on those we love the most.
+ - Keep your eyes on the Master, because He knows things we do not know!
+ - Being married is amazing. Being married is incredibly difficult. Being married can seem impossibly hard. Being married is incredibly beautiful. Yes, marriage is a fragile blend of all of this and more.
+ - One drop of the Lord’s mercy is better than an ocean of the world’s comfort.
+ - Sometimes we need the salt of tears to remind us how to savor the sweetness of life.
+ - Remember: even the smallest drop of God’s strength is more than enough to cover our frailties, our shortcomings, and the places where we deem ourselves weak.
+ - Whatever attitude we bring into a situation will be multiplied.
+ - Don’t put the whole of your identity into the smallness of a situation.
+ - God, despite my circumstances, I will find reasons to praise You.
+ - Whatever has you afraid, angry, intimidated or frustrated tonight – take it to our all-powerful and all-capable God. He has the answer.
+ - If I’m going to call myself a person of faith, I need to be willing to live a life that actually requires faith.
+ - I want to honor Jesus with the things I say and the things I choose not to say. Lord, help us all be so careful with sharing opinions as if they are truth.
+ - How I wish we could all see the cost of our choices as clearly as a price tag on items in a store. If I know how much something is going to cost me, I make much wiser choices. But we have an enemy who schemes against us to keep the cost of dumb decisions concealed until it’s too late.
+ - God never intended for us to rely on others for our sense of well being. Only He is equipped to provide that.
+ - Trying to fix another person will only add to my anxiety. Letting Jesus work on me is where real progress can happen.
+ - Today, let’s set our minds and hearts on feeling more thankful for what we are than guilty for what we’re not. Let’s cut the threads of guilt with grace.
+ - Don’t get so locked in to your overwhelming schedule that you haphazardly spend your soul.
+ - My attitude of love must not be sacrificed on the altar of activity.
+ - If you give your mess to the Messiah, He can turn it into a message.
+ - So often, we want big directional signs from God. God just wants us to pay attention. But we need to leave enough space in our days to get up from our prayers and actually look for God in the moment-to-moment things that happen.
+ - Don’t let the hurt of today blind you to the hope of tomorrow. Disappointment ushers in a new appointment.
+ - Humility opens the door of opportunity.
+ - Sometimes we miss the miraculous of all that we have been blessed with because we’re so focused on the one thing we don’t have. When this happens, we become disillusioned with all that we do have.
+ - Where there is a lack of rest, there is an abundance of stress.
+ - Those who constantly try to impress others will quickly depress themselves.
+ - Love isn’t what I have the opportunity to get from this world. Love is what I have the opportunity to give.
+ - Moms, let’s pledge to build each other up instead of tearing each other down.
+ - Wisdom makes decisions today that will still be good tomorrow.
+ - God does not want to make us comfortable as much as He wants to make us comfort-able – to take the comfort that we receive and share it with others.
+ - I must exchange whispers with God before shouts with the world.
+ - Being uncertain and scared and riddled with doubt some days isn’t a sign of bad things to come. It’s actually quite the opposite. After all, if great things weren’t on the horizon, I don’t think the enemy would be so bent on attacking us.
+ - Everything I do and say tells a story of who I am serving. If I am acting out of anger and spite, I am serving the father of darkness and spreading his darkness. If I am honoring to the Lord with my actions, I am serving to further the name of Jesus and spreading His light.
+ - Not reaching back for what was lost in my yesterdays. And not reaching for what I hope will be in my tomorrow. But living fully with what is right in front of me. And truly seeing the gift of this moment.
+ - Each and every thing I say yes to sets the pace of my life.
+ - Today, let’s be determined to see blessings in the midst of things that seem like burdens.
+ - Determine to pray more words over your marriage than you speak about your marriage.
+ - Spending some time getting quiet can really be the best remedy for tangled situations. Taking a step back from all the emotion, frustration, and exhaustion to sit quietly with Jesus will do more to untangle a mess than anything else I’ve ever found.
+ - Weakness is hard, but it doesn’t have to mean defeat. It’s our opportunity to experience God’s power firsthand.
+ - God made us to consume food. He did not make food to consume us.
+ - Truth is the only healthy place from which to speak. Assumption is the birthplace of godless chatter.
+ - Compromise built upon compromise equals failure. Instead, resisting temptation allowed promise upon promise to be built up in my heart, and that creates empowerment.
+ - I want my kids to head out the door full of peace, not the echoes of my frustrations.
+ - If you are a woman who honors God right where you are, you are in ministry.
+ - Instead of always looking to get fulfillment from my loved ones and the other blessings in my life, I can simply enjoy them for what they are.
+ - I so desperately want my words to be indicative of how deeply and completely I love my people.
+ - Like a tree, a woman can’t carry the weight of two seasons simultaneously. In the violent struggle of trying, she’ll miss every bit of joy each season promises to bring.
+ - You have the exact qualities God knew your kids would need in a mother. Each day, hold up your willingness and ask God to make you the best version of you that you can possibly be.
+ - Satan has no power over us except what we allow. Moment by moment, decision by decision, step by step – will we operate in God’s all powerful Truth or allow Satan to entangle us in his lies?
+ - I’m an encourager at heart. I love to give words of encouragement and I love to receive words of encouragement. That’s probably why words of discouragement affect me so deeply.
+ - We aren’t supposed to strive for perfection everyday. If we were perfect, we’d have no need for Jesus. And it’s through our imperfections that we really feel the pull toward our need for a Savior. So the imperfections serve a wonderful purpose if we’ll let them.
+ - Jesus, I don’t want to be a secret keeper with my faith. I want to be a bold and gracious truth proclaimer. For You. With You. Because of You. Me, the unwanted girl whom You loved, redeemed and wanted.
+ - We try so hard to hold onto our stuff. We call it our treasure and expect to feel joy. But in God’s economy if we want to gain, we must give up. For joy won’t ever be found in collecting treasures. Joy radiates in our life only when we share our treasures.
+ - Sometimes it’s the words we choose not to say that speak most loudly about our character.
+ - We can’t always fix our circumstances, but we can fix our minds on God.
+ - If you desire to please God with the decision you make and afterward it proves to be a mistake, it’s an error not an end.
+ - Some prisons don’t require bars to keep people locked inside. All it takes is their perception that they belong there.
+ - The only way our faith will ever strengthen is for us to use it. We need to apply thought and prayer to our decisions and then trust God for the outcome. We need to set our sights on growing in faith, not shrinking back for fear of failure.
+ - Find that courageous yes. Fight for that confident no.
+ - The problem with saying yes all the time is that it won’t make you Wonder Woman. It’ll make you a worn-out woman. And soon you’ll find the relationships you treasure most are constantly getting your ‘less’ instead of your ‘best’ because of your endless to-do list and overwhelming schedule.
+ - Whether we’re on the path toward victory or defeat is determined by the very next choice we make. Not the choices from yesterday. Not the choices five minutes ago.
+ - Instead of wishing things would change, I’m asking God for His strength to make a change.
+ - A woman who is careful with her words is a gift to all who know her.
+ - Just because we feel offended doesn’t mean we must be offended. Feelings are indicators not dictators.
+ - Maybe God’s goal wasn’t for me to raise a good rule-following child. Instead, His goal was for me to raise a God-following adult.
+ - Sip the shame so you won’t have to guzzle the regret.
+ - When God becomes routine rather than revival, it’s time to switch things up.
+ - We have to slow the rhythm of rush in our lives so that the best of who are can emerge.
+ - Many people know Christ as their Savior, but the woman who says yes to God longs to know Him as Lord.
+ - We must determine to hear God’s Words and put them into practice.
+ - We need to make sure our activities and our attitudes line up with what pleases God first and foremost. Wherever we focus our attention the most will become the driving force in our lives.
+ - We were made for more than compromise. We were made for God’s promises in every area of our lives.
+ - It’s not my perfect performance that captures God’s attention. It’s my complete dependence on Him that He notices.
+ - Don’t allow the unrealistic demands of others to march freely into your life.
+ - Regardless of where you are tonight, God is with you. God is wooing you. God wants you to experience Him. Whatever you are going through today, you can find His joy and peace. However distant your dreams may seem, God is working things out, and today is an important part of that process.
+ - The more we read God’s truths and let truth fill our minds, the less time we’ll spend contemplating untruths.
+ - Bad moments don’t make bad mommas.
+ - When feelings of inadequacy come creeping in, let’s park our minds in God’s truth.
+ - Chase God’s heart today. Christianity has got to be more than a label, a lingo, and a lifestyle.
+ - Which do I care more about – demanding my rights or displaying right choices?
+ - Jesus is the sanctuary every time we gather with other believers. We need that truth to soak into our hearts.
+ - Unbroken companionship helps us hear His instruction so then we can see His direction. We must not seek direction before obeying His instruction.
+ - We are made for the same home and power that raised Christ from the dead.
+ - Even Jesus, the Savior of the world, had to take time each day to ask for his portion.
+ - It is a rare and beautiful thing when we choose to offer love in situations when most people would choose to scorn or ignore.
+ - Praying helps me see perspectives otherwise beyond me.
+ - The only way our faith can strengthen is if we use it.
+ - Faith is learned through life.
+ - This morning, you have a choice. You can lay in the dark replaying the awful events of the week, or you can turn the light on and read God’s Word-His truth-which is the best thing to do when lies are swarming and painful thoughts are attacking like a bunch of bloodthirsty mosquitoes.
+ - The only true satisfaction we can seek is the satisfaction of being obedient to the Lord.
+ - Feelings should be indicators, not dictators.
+
+152 quotes

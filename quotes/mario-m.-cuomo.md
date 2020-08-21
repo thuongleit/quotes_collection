@@ -1,0 +1,43 @@
+ - I have no plans, and no plans to plan.
+ - There are only two rules for being successful. One, figure out exactly what you want to do, and two, do it.
+ - You campaign in poetry. You govern in prose.
+ - In this life, you should read everything you can read. Taste everything you can taste. Meet everyone you can meet. Travel everywhere you can travel. Learn everything you can learn. Experience everything you can experience.
+ - Every time I’ve done something that doesn’t feel right, it’s ended up not being right.
+ - When you’ve parked the second car in the garage, and installed the hot tub, and skied in Colorado, and wind-surfed in the Caribbean, when you’ve had your first love affair and your second and your third, the question will remain, where does the dream end for me?
+ - The closed circle of materialism is clear to us now – aspirations become wants, wants become needs, and self-gratification becomes a bottomless pit.
+ - A judge can manipulate the law. A smart lawyer can keep a killer out of jail.
+ - It is not a government’s obligation to provide services, but to see that they are provided.
+ - People expect Byzantine, Machiavellian logic from politicians. But the truth is simple. Trial lawyers learn a good rule: ‘Don’t decide what you don’t have to decide.’ That’s not evasion, it’s wisdom.
+ - The American people need no course in philosophy or political science or church history to know that God should not be made into a celestial party chairman.
+ - For too many, the dream of economic mobility has been replaced with a nightmare of economic stagnation.
+ - We work harder and we earn less. Income inequality is at the highest point in over a century. While American capitalism never guaranteed success, it did guarantee opportunity, for too many, the dream of economic mobility has been replaced with a nightmare of economic stagnation.
+ - Entertainers and sports figures achieve fame and wealth but find the world empty and dull without the solace and stimulation of drugs.
+ - I somehow got this reputation of diddling and dithering. I don’t remember dithering at all.
+ - The Republicans believe that the wagon train will not make it to the frontier unless some of the old, some of the young, some of the weak are left behind.
+ - Outrage is easy, cheap, and oversold. The nation needs less anger and more thoughtful reflection, less shouting and more listening, less dissembling and more honesty.
+ - If you can manipulate news, a judge can manipulate the law. A smart lawyer can keep a killer out of jail, a smart accountant can keep a thief from paying taxes, a smart reporter could ruin your reputation- unfairly.
+ - Most of us have achieved levels of affluence and comfort unthought of two generations ago. We’ve never had it so good, most of us. Nor have we ever complained so bitterly about our problems.
+ - We believe in a government that is characterized by fairness and reasonableness, a reasonableness that goes beyond labels, that doesn’t distort or promise to do things that we know we can’t do.
+ - The mugger who is arrested is back on the street before the police officer, but the person mugged may not be back on the street for a long time, if ever.
+ - Those two principles: We’re supposed to love one another and we’re supposed to work together to make the experience better. That’s all the religion you need, really, to make a success of this planet...
+ - I said I didn’t want to run for president. I didn’t ask you to believe me.
+ - You want calamities? What about the Ice Age?
+ - I told them that my grandfather had died in the Great Crash of 1929 – a stockbroker jumped out of a window and crushed him and his pushcart down below.
+ - The truth is the justice system does need review, there are troubling questions that need to be answered, law enforcement needs to respect the community and the community needs to respect law enforcement.
+ - The price of seeking to force our beliefs on others is that someday they might force their beliefs on us.
+ - We believe in encouraging the talented, but we believe that while survival of the fittest may be a good working description of the process of evolution, a government of humans should elevate itself to a higher order.
+ - People asked me what I want as an epitaph: ‘He tried’
+ - Democracy is not meant to be efficient, it is meant to be fair.
+ - You will not be able to tell that they are capable of greatness until you provide them with a packed house, a 3-and-2 count and the game is on the line.
+ - We believe in only the government we need, but we insist on all the government we need.
+ - What I didn’t do was pick one thing and keep saying it over and over again, so I could have gotten credit for it.
+ - Decide exactly what you want to achieve. Do you want to help people, or do you want to be powerful?
+ - There are few things more amusing in the world of politics than watching moderate Republicans charging to the right in pursuit of greater glory.
+ - We believe in a government strong enough to use words like “love” and “compassion” and smart enough to convert our noblest aspirations into practical realities.
+ - We are disgusted by the things that we desire, and we desire what disgusts us.
+ - Way down deep the American people are afraid of an entangling relationship between formal religions – or whole bodies of religious belief – and government.
+ - The values derived from religious belief will not – and should not – be accepted as part of the public morality unless they are shared by the pluralistic community at large, by consensus.
+ - I think it’s already apparent that a good part of this Nation understands – if only instinctively – that anything which seems to suggest that God favors a political party or the establishment of a state church, is wrong and dangerous.
+ - We must get the American public to look past the glitter, beyond the showmanship, to the reality, the hard substance of things. And we’ll do it not so much with speeches that will bring people to their feet as with speeches that bring people to their senses.
+
+41 quotes

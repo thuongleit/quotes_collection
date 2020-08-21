@@ -1,0 +1,21 @@
+ - My ideal goal is to “mature” into childhood. That would be genuine maturity.
+ - Reality is as thin as paper and betrays with all its cracks its imitative character.
+ - So, it comes to pass that, when we pursue an inquiry beyond a certain depth, we step out of the field of psychological categories and enter the sphere of the ultimate mysteries of life. The floorboards of the soul, to which we try to penetrate, fan open and reveal the starry firmament.
+ - Lifelessness is only a disguise behind which hide unknown forms of life.
+ - And one’s wandering proved as sterile and pointless as the excitement produced by a close study of pornographic albums.
+ - One thing must be avoided at all costs: narrow-mindedness, pedantry, dull pettiness.
+ - Man was entering under false pretenses the sphere of incredible facilities, acquired too cheaply, below cost price, almost for nothing, and the disproportion between outlay and gain, the obvious fraud on nature, the excessive payment for a trick of genius, had to be offset by self-parody.
+ - The days hardened with cold and boredom like last year’s loaves of bread. One began to cut them with blunt knives without appetite, with a lazy indifference.
+ - An event may be small and insignificant in its origin, and yet, when drawn close to one’s eye, it may open in its center an infinite and radiant perspective because a higher order of being is trying to express itself in it and irradiates it violently.
+ - Under the imaginary table that separates me from my readers, don’t we secretly clasp each other’s hands?
+ - As we manipulate everyday words, we forget that they are fragments of ancient and eternal stories, that we are building our houses with broken pieces of sculptures and ruined statues of gods as the barbarians did.
+ - Could it be that time is too narrow for all events? Could it happen that all the seats within time might have been sold? Worried, we run along the train of events, preparing ourselves for the journey.
+ - Animals! the object of insatiable interest, examples of the riddle of life, created, as it were, to reveal the human being to man himself, displaying his richness and complexity in a thousand kaleidoscopic possibilities, each of them brought to some curious end, to some characteristic exuberance.
+ - Yet what is to be done with events that have no place of their own in time; events that have occurred too late, after the whole of time has been distributed, divided, and allotted; events that have been left in the cold, unregistered, hanging in the air, homeless, and errant?
+ - Even in the depths of sleep, in which he had to satisfy his need for protection and love by curling himself up into a trembling ball, he could not rid himself of the feeling of loneliness and homelessness.
+ - How can one not succumb and allow one’s courage to fail when everything is shut tight, when all meaningful things are walled up, and when you constantly knock against bricks, as against the walls of a prison?
+ - Now the windows, blinded by the glare of the empty square, had fallen asleep. The balconies declared their emptiness to heaven; the open doorways smelt of coolness and wine.
+ - In our town there was a Gestapo officer who loved to play chess. After the occupation began, he found out that my father was the chess master of the region, and so he had him to his house every night.
+ - This enraged the other Nazi so much that the next morning he came to our house and he shot my father.
+
+19 quotes

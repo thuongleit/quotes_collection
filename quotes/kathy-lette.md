@@ -1,0 +1,27 @@
+ - People who say that money can’t buy happiness just don’t know where to shop.
+ - Age to women is what kryptonite is to Superman. Inside every older woman is a younger woman screaming, ‘Get me the hell outta here.’
+ - Why do men like intelligent women? Because opposites attract.
+ - The name Kylie can be used for Scrabble, as it is an aboriginal word for boomerang. Which is why Ms Minogue is so good at comebacks.
+ - Age to women is like Kryptonite to Superman.
+ - Women want to be treated as equals, not sequels.
+ - Believe me, having a teenage daughter is like living with the Taliban.
+ - I knew absolutely nothing about bondage. I’d always presumed it was just an inventive way of keeping your partner from going home.
+ - My sisters and I miss our dad dreadfully. But grief, of course, is the price of love.
+ - Men think monogamy is something you make dining tables out of.
+ - Home is where the heartache is.
+ - Any woman who calls herself a post-feminist should keep her Wonderbra and burn her brains.
+ - I speak as your native guide to the mysterious tribe called the English. Dress code is everything. You can be a card-carrying Nazi, you can pay gigolos to eat gnocchi out of your navel and you won’t be pilloried – as long as you never, ever wear linen with tweed.
+ - Every woman wants to be wanted – just not by the entire Metropolitan police force.
+ - As a breastfeeding mother you are basically just meals on heels.
+ - I am allergic to domestic goddesses. Men would prefer a woman with a dirty mind to a clean house.
+ - Why can’t women tell jokes? Because we marry them!
+ - The truth is, my experience in matters sexual is limited.
+ - If he wants breakfast in bed, tell him to sleep in the kitchen.
+ - Good art is in the wallet of the beholder.
+ - If the Nobel Prize was awarded by a woman, it would go to the inventor of the dimmer switch.
+ - If God hadn’t meant us to hunt men, he wouldn’t have given us Wonder Bras.
+ - Basically it’s just a whole bunch of blokes standing around scratching themselves.
+ - What creates a writer is huge, psychological dysfunction.
+ - Anyone living in Los Angeles who says they don’t need a psychiatrist, needs a psychiatrist.
+
+25 quotes

@@ -1,0 +1,66 @@
+ - The life we’ve been leading couldn’t last forever. It’s a wonder it lasted as long as it did.
+ - It is useless, after all, to complain against inexorable reality.
+ - Count me not your friend but the enemy of your enemies.
+ - The universe is eight billion years old, the last two billion of which have produced intelligent life. During this time not one hour of absolute equity has prevailed.
+ - I just wrote what I felt like writing since they seemed to sell.
+ - What is an evil man? The man is evil who coerces obedience to his private ends, destroys beauty, produces pain, extinguishes life.
+ - The void is a mouth crying to be filled, a blank mind aching for thought, a cavity desperate for shape. What is not implies what is.
+ - The less a writer discusses his work and himself the better. The master chef slaughters no chickens in the dining room; the doctor writes prescriptions in Latin; the magician hides his hinges, mirrors, and trapdoors with the utmost care.
+ - Happiness is fugitive; dissatisfaction and boredom are real.
+ - Good music always defeats bad luck.
+ - Mischief moves somewhere near and I must blast it with my magic.
+ - Jack Vance’s Lyonesse books are the greatest fairy tale of the twentieth century.
+ - I do not care to listen; obloquy injures my self-esteem and I am skeptical of praise.
+ - There are no absolute certainties in this universe. A man must try to whip order into a yelping pack of probabilities, and uniform success is impossible.
+ - I never worked in an office in my life.
+ - I haven’t sold to the movies. In other words, I haven’t gotten any enormous checks yet.
+ - While we are alive we should sit among colored lights and taste good wines, and discuss our adventures in far places; when we are dead, the opportunity is past.
+ - I’d never been published when I was young.
+ - Freedom, privileges, options, must constantly be exercised, even at the risk of inconvenience.
+ - Right now I’m so old that if I had a big gush of money, I don’t know what I’d do with it. I don’t travel anymore. I don’t need anything, don’t want anything. I’d give it to my son, I guess, and let him enjoy it.
+ - Beauty is a luster which love bestows to guile the eye. Therefore it may be said that only when the brain is without love will the eye look and see no beauty.
+ - Nothing is more conspicuous than a farting princess.
+ - Then there was Clark Ashton Smith, who wrote for Weird Tales and who had a wild imagination. He wasn’t a very talented writer, but his imagination was wonderful.
+ - You used the word “civilization”, which means a set of abstractions, symbols, conventions. Experience tends to be vicarious; emotions are predigested and electrical; ideas become more real than things.
+ - I do read books. I suppose it’s more or less the same thing, but at least I’m alone and I’m an individual. I can stop anytime I want, which I frequently do.
+ - Law cannot reach where enforcement will not follow. – Popular aphorism.
+ - Notice this rent in my garment; I am at a loss to explain its presence! I am even more puzzled by the existence of the universe.
+ - An inch of foreknowledge is worth ten miles of after-thought.
+ - Why make plans? The sun might well go out tomorrow.
+ - If there were no such creatures as minstrel-maidens, it would be necessary to invent them.
+ - Somebody else’s ignorance is bliss.
+ - In fact, almost every job you get somebody watching you.
+ - Beauty compelled admiration and erotic yearning; such was its organic function. But never by itself could it command love.
+ - I categorically declare first my absolute innocence, second my lack of criminal intent, and third my effusive apologies.
+ - Of all questions, why? is the least pertinent. It begs the question; it assumes the larger part of its own response; to wit, that a sensible response exists.
+ - A barbarian is not aware that he is a barbarian.
+ - I was an omnivore at reading, so that everything I ever read contributed.
+ - I become drunk as circumstances dictate.
+ - I worked for half a cent a word. I’m not a fast writer to begin with, so for the first few years I had do other things.
+ - What is peace? Balance three iron skewers tip to tip, one upon the other; at the summit, emplace and egg, so that it too poises static in mid-air, and there you have the condition of peace in this world of men.
+ - I thought that automobiles were going to have mufflers and go fast and airplanes were going to fly fast.
+ - I know that the history of man is not his technical triumphs, his kills, his victories. It is a composite, a mosaic of a trillion pieces, the account of each man’s accommodation with his conscience. This is the true history of the race.
+ - This is no science, this is art, where equations fall away to elements like resolving chords, and where always prevails a symmetry either explicit or multiplex, but always of a crystalline serenity.
+ - I haven’t been to a movie since somebody gave me free tickets to Star Wars, which I went to.
+ - I got done writing Ports of Call and suddenly realized I have far too much material for the book.
+ - Well, I think everything I’ve ever read contributes to the background from which I write.
+ - Human interactions, stimulated as they are by disequilibrium, never achieve balance. In even the most favorable transaction, one party whether he realizes it or not must always come out the worse.
+ - I was a carpenter for a time and everybody watches what you do.
+ - But Roy Rockwood, it was science fiction for the sake of science fiction.
+ - There was a writer in the ’20s called Christopher Morley, who I remember a little bit of, who had some influence on me, but I couldn’t tell you what it was.
+ - When you demand the nature of my motives, you reveal the style of your thinking to be callow, captious, superficial, craven, uncertain and impudent.
+ - A reader is not supposed to be aware that someone’s written the story. He’s supposed to be completely immersed, submerged in the environment.
+ - I suffer from a spiritual malaise which manifests itself in outbursts of vicious rage.
+ - I give dignity second place to expedience.
+ - But I’m so slow on it because I find it terribly hard writing blind on computers. The computer speaks to me, but it’s just so slow, I’m so terribly slow using it.
+ - But I’ve sure worked at jobs where I have been under inspection.
+ - In the end, death came uniformly to all, and all extracted as much satisfaction from their dying as this essentially graceless process could afford.
+ - I must cite an intrinsic condition of the universe. We set forth in any direction which seems convenient; each leads to the same place: the end of the universe.
+ - But, for instance, when I was awfully young, I read all the Oz books. They were an enormous influence on me.
+ - Since we are not permitted to act, we are obliged to know.
+ - I don’t read other science fiction. I don’t read any at all.
+ - As I mentioned, I was a carpenter for a time.
+ - Vance has a genius in evoking the beauty of strangeness, the strangeness of beauty.
+ - How to know, oh how to know! All is relative ease and facility in orthodoxy, yet how can it be denied that good is in itself undeniable? Absolutes are the most uncertain of all formulations, while the uncertainties are the most real...
+
+64 quotes

@@ -1,0 +1,90 @@
+ - Being a wiseass in a groupthink environment is like throwing an egg at a bulldozer.
+ - The world’s most powerful investment bank is a great vampire squid wrapped around the face of humanity, relentlessly jamming its blood funnel into anything that smells like money.
+ - There is a reason it used to be a crime in the Confederate states to teach a slave to read: Literacy is power.
+ - The individual incentive not to commit crime on Wall Street now is almost zero.
+ - At least Bank of America got its name right. The ultimate Too Big to Fail bank really is America, a hypergluttonous ward of the state whose limitless fraud and criminal conspiracies we’ll all be paying for until the end of time.
+ - Since the end of the Cold War, America has been grasping left and right for an identity.
+ - The one thing that I do is take really complicated systems and subjects and make them accessible to regular people.
+ - Obviously, people who commit crimes should be punished. Even people who steal socks and ‘Snow White’ videos should probably do time if they have priors, especially serious priors. But the punishment has to fit the crime, and the standard has to be the same for everyone.
+ - The joy of being a consumer is that it doesnt require thought, responsibility, self-awareness or shame: All you have to do is obey the first urge that gurgles up from your stomach. And then obey the next. And the next. And the next.
+ - At root, the Tea Party is nothing more than a them-versus-us thing.
+ - Conspiracy theorists of the world, believers in the hidden hands of the Rothschilds and the Masons and the Illuminati, we skeptics owe you an apology. You were right. The players may be a little different, but your basic premise is correct: The world is a rigged game.
+ - The national debt is totally unlike a family budget for about a gazillion reasons, not the least of which being that families cannot raise money by fiat or deflate the size of their debt unilaterally and that family members die instead of existing infinitely.
+ - This idea that you can’t be an honest man and a Washington politician is a myth, a crock made up by sellouts and careerist hacks who don’t stand for anything and are impatient with people who do. It’s possible to do this job with honor and dignity.
+ - If the law doesn’t apply equally to everybody, then you don’t really have a system of law.
+ - Politics is about a lot more than winning and losing. I think politics at its best is about compromise, shades of grey and about issues.
+ - Wall Street has turned the economy into a giant asset-stripping scheme, one whose purpose is to suck the last bits of meat from the carcass of the middle class.
+ - In modern American politics, being the right kind of ignorant and entertainingly crazy is like having a big right hand in boxing; you’ve always got a puncher’s chance.
+ - In other countries they have histories with revolutions and class movements. In America, people don’t like to think of themselves like being in a lower class. They all like to think of themselves as potential millionaires.
+ - For a country founded on the idea that rights are inalienable and inherent from birth, we’ve developed a high tolerance for conditional rights and conditional citizenship.
+ - Comparing your family budget to the sovereign debt of the United States is a little like comparing two kindergartners tossing a paper airplane to the Apollo 11 mission.
+ - You know what an effective deterrent to crime is? Jail! And do you know what kind of criminal penalty actually makes people think twice about committing crimes the next time? The kind that actually comes out of some individual’s pocket, not fines that come out of the corporate kitty.
+ - Private equity firms aren’t necessarily evil by definition. There are many stories of successful turnarounds fueled by private equity, often involving multiple floundering businesses that are rolled into a single entity, eliminating duplicative overhead.
+ - In a society governed passively by free markets and free elections, organized greed always defeats disorganized democracy.
+ - Once you give an NFL player permission to have thoughts, you invite all kinds of mischief.
+ - It’s not a stretch to say the whole financial industry revolves around the compass point of the absolutely safe AAA rating. But the financial crisis happened because AAA ratings stopped being something that had to be earned and turned into something that could be paid for.
+ - The moral angle to the foreclosure crisis – and, of course, in capitalism we’re not supposed to be concerned with the moral stuff, but let’s mention it anyway – shows a culture that is slowly giving in to a futuristic nightmare ideology of computerized greed and unchecked financial violence.
+ - The party in power almost always unapologetically engages in deficit spending, while the other party argues passionately against the evils of debt and deficits.
+ - Obsessed with success and wealth and despising failure and poverty, our society is systematically dividing the population into winners and losers, using institutions like the courts to speed the process.
+ - The significance of Columbus’s discovery was that on a round earth, humanity is more interconnected than on a flat one. On a round earth, the two most distant points are closer together than they are on a flat earth.
+ - Everything in America is so uniform. In Russia, everywhere you go is completely insane.
+ - To Wall Street, a firm like BP isn’t just a profitable energy company with lots of assets like oil rigs and pipelines and gas stations – it’s also a corporation that routinely borrows hundreds of millions of dollars to keep its business up and running.
+ - People are beginning to become disturbingly comfortable with a kind of official hypocrisy. Bizarrely, for instance, we’ve become numb to the idea that rights aren’t absolute but are enjoyed on a kind of sliding scale.
+ - Creating legislation is a tough process. But watering down legislation? Strangling it with lawsuits and comment letters and blue-ribbon committees? Not so tough, it turns out.
+ - Over the years, many in the public have become numb to news of financial corruption, partly because too many of these stories involve banker-on-banker crime.
+ - I try to be outraged by things that other people are just very accepting of, as though they’re normal and can’t be changed. A lot of what I write about is, “Hey, you know, this stuff is really awful, and it doesn’t need to be, and that’s why it’s so offensive.” Things should be better.
+ - I mean, people who say that the Tea Party isn’t a grassroots movement, I think, are incorrect. I think in some respects, it is a grassroots movement.
+ - This is America: Corporate stealing is practically the national pastime, and Goldman Sachs is far from the only company to get away with doing it.
+ - The only reason investors haven’t run screaming from an obviously corrupt financial marketplace is because the government has gone to such extraordinary lengths to sell the narrative that the problems of 2008 have been fixed.
+ - What we have now is a situation where politicians get a whole bunch of money from mainly business interests. Then once they hold that office, they spend all their time in office paying back over and over again those campaign contributions through various favors and contracts and that sort of thing.
+ - America has two national budgets, one official, one unofficial.
+ - George Bush and John Ashcroft were religious in a scary way, but the rational among us could always take heart that, deep down, the Bush administration was more cynical than messianic.
+ - Our leaders know we’re turning into a giant ghetto and they are taking every last hubcap they can get their hands on before the rest of us wake up and realize what’s happened.
+ - I think that if you’re a thinking person you should always be trying to learn something new.
+ - Mike Huckabee represents something that is either tremendously encouraging or deeply disturbing, depending on your point of view: a marriage of Christian fundamentalism with economic populism.
+ - Sarah Palin is a symbol of everything that is wrong with the modern United States. As a representative of our political system, she’s a new low in reptilian villainy, the ultimate cynical masterwork of puppeteers like Karl Rove.
+ - Like wars, forest fires and bad marriages, really stupid laws are much easier to begin than they are to end.
+ - Capitalism is a system for determining objective value.
+ - In the old days, when you took out a mortgage, it was probably through a local bank or a credit union, and whoever gave you your loan held on to it for life. If you lost your job or got too sick to work and suddenly had trouble making your payments, you could call a human being and work things out.
+ - America’s always had a real passion for lunatic movements. That’s one of the things we’re probably known for around the world, I would imagine.
+ - You win the modern financial-regulation game by filing the most motions, attending the most hearings, giving the most money to the most politicians and, above all, by keeping at it, day after day, year after fiscal year, until stealing is legal again.
+ - In a pure capitalist system, an institution as moronic and corrupt as Bank of America would be swiftly punished by the market – the executives would get to loot their own firms once, then they’d be looking for jobs again.
+ - I was a bit of a troubled kid growing up, let’s put it that way. I didn’t take pleasure in hard work.
+ - The race for the White House is normally an event suffused with drama, sucking eyeballs to the page all over the globe.
+ - Unquestionably, however, something else is at work, something that cuts deeper into the American psyche. We have a profound hatred of the weak and the poor, and a corresponding groveling terror before the rich and successful, and we’re building a bureaucracy to match those feelings.
+ - Everybody I knew, practically, was a journalist when I was a kid – my father, all of his friends. I never wanted to be like those people.
+ - America is a country that has been skating for ages on its unparalleled ability to look marvelous on the outside.
+ - There are times when American politics seems like little more than two groups in a fever to prevent each other from trespassing upon their respective soothing versions of unreality.
+ - The House Rules Committee is perhaps the free world’s outstanding bureaucratic abomination – a tiny, airless closet deep in the labyrinth of the Capitol where some of the very meanest people on earth spend their days cleaning democracy like a fish.
+ - Obviously the commercial news media tries to get you worked up and terrified so you’ll buy products that they’re advertising.
+ - The average Tea Partier is sincerely against government spending – with the exception of the money spent on them.
+ - What the mortgage bubble was all about was big banks like Goldman Sachs taking big bundles of subprime mortgages that were lent out largely to low-income, highly risky borrowers, and applying this kind of magic-pixie-dust math to these bundles of securities and slapping AAA ratings on them.
+ - I get the cynicism thing all the time, although I don’t really know where that comes from, because I think I’m actually the opposite of a cynic.
+ - Being in the building with Sarah Palin that night is a transformative and oddly unsettling experience. It’s a little like having live cave-level access for the ripping-the-heart-out-with-the-bare-hands scene in Indiana Jones and the Temple of Doom.
+ - For the broadcast business to be successful, viewers need to be not merely interested in our political melodramas, they have to be in an absolute state about them – emotionally invested in the outcome and frightened not to watch what happens next.
+ - Within the cult of Wall Street that forged Mitt Romney, making money justifies any behavior, no matter how venal.
+ - One of the great cliches of campaign journalism is the notion that American elections have long since ceased to be about issues and ideas.
+ - By creating an urgent crisis that can only be solved by those fluent in a language too complex for ordinary people to understand, the Wall Street crowd has turned the vast majority of Americans into non-participants in their own political future.
+ - Democracy doesn’t require a whole lot of work of its citizens, but it requires some: It requires taking a good look outside once in a while, and considering the bad news and what it might mean, and making the occasional tough choice, and soberly taking stock of what your real interests are.
+ - Ratings agencies are the glue that ostensibly holds the entire financial industry together.
+ - In America, it takes about two weeks in the limelight for the whole country to think you’ve been around for years.
+ - What we Americans go through to pick a president is not only crazy and unnecessary but genuinely abusive. Hundreds of millions of dollars are spent in a craven, cynical effort to stir up hatred and anger on both sides.
+ - It would be inaccurate to say the Tea Partiers are racists. What they are, in truth, are narcissists.
+ - Why is JP Morgan getting so much heat? Maybe because it is a massive international crime syndicate.
+ - An unregulated derivatives market essentially gives Wall Street a way to place hidden taxes on everything in the world.
+ - By incentivizing Wall Street players to sniff out inefficient or corrupt companies and bet against them, short-selling acts as a sort of policing system; legal short-sellers have been instrumental in helping expose firms like Enron and WorldCom.
+ - I didn’t know Michael Hastings very well, but one thing about him was always obvious – he was born to be in the news business, he loved it, he was made for it. He wrote about Iraq and Afghanistan as places he had always been destined to visit.
+ - In the ’50s and ’60s, journalism wasn’t a profession. It wasn’t something you went to college for – it was really more of a trade. You had a lot of guys who came up working in newspapers at the copy desk, or delivery boys, and then they would somehow become reporters afterward and learn on the job.
+ - I’m a product of an East Coast liberal arts educational system.
+ - The NFL, sadly, has a fatal environmental problem: It kills its workers.
+ - The failure to work out sensible budgets makes it impossible for government agencies to make long-term plans, and instead leaves them scrambling to spend money in the short term.
+ - Having lived in a collapsed empire before – I lived in Russia right after the Soviet Union collapsed – you can see a lot of the classic signs of an empire that’s on its way out.
+ - The problem with the Tea Party is that it’s been used in a way that scares people into supporting an agenda that’s counter to their own interests.
+ - John Boehner is the ultimate Beltway hack, a man whose unmatched and self-serving skill at political survival has made him, after two decades in Washington, the hairy blue mold on the American congressional sandwich.
+ - America’s always had a real passion for lunatic movements.
+ - Contracting corruption has been around since the construction of the Appian Way.
+ - It may be that America has become too big and complicated for most people to deal with being part of. People are longing for a smaller, stupider reality.
+ - Candidates don’t want to be associated with poor people, people who have jobs or are ugly; they want to be associated with a certain middle class demographic, so as a result they leave those others out completely.
+ - If anything, the bailouts actually hindered lending, as banks became more like house pets that grow fat and lazy on two guaranteed meals a day than wild animals that have to go out into the jungle and hunt for opportunities in order to eat.
+
+88 quotes

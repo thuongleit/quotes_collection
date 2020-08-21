@@ -1,0 +1,42 @@
+ - I’m not strange, weird, off, nor crazy, my reality is just different from yours. ~~Lewis Carroll
+ - It’s OK to be different. ~~Gerard Way
+ - People can call you many different things, but you are not what people call you. You are what you answer to. ~~Joel Osteen
+ - What makes you different or weird, that’s your strength. ~~Meryl Streep
+ - Don’t be afraid to be different. ~~Michael Jackson
+ - It is better to solve one problem five different ways, than to solve five problems one way. ~~George Pólya
+ - If you’re scientifically literate, the world looks very different to you, and that understanding empowers you. ~~Neil deGrasse Tyson
+ - I am different, not less. ~~Temple Grandin
+ - Be different; be unique; be yourself. ~~Christina Grimmie
+ - Everybody’s got a different circle of competence. The important thing is not how big the circle is. The important thing is staying inside the circle. ~~Warren Buffett
+ - What people CAN do is very different from what they WILL do. ~~Tony Robbins
+ - One thing’s for sure. If we keep doing what we’re doing, we’re going to keep getting what we’re getting. One definition of insanity is to keep doing the same thing and expect different results. ~~Stephen R. Covey
+ - The world needs different kinds of minds to work together. ~~Temple Grandin
+ - Every thing that you love, you will eventually lose, but in the end, love will return in a different form. ~~Franz Kafka
+ - I had a dream my life would be different from this hell I am living, so different from what it seemed. Now life has killed the dream I dreamed. ~~Victor Hugo
+ - Mathematics is only the art of saying the same thing in different words. ~~Bertrand Russell
+ - What a different story men would have to tell if only they would adopt a DEFINITE PURPOSE, and stand by that purpose until it had time to become an all-consuming obsession! ~~Napoleon Hill
+ - If one’s different, one’s bound to be lonely. ~~Aldous Huxley
+ - I am not free while any woman is unfree, even when her shackles are very different from my own. ~~Audre Lorde
+ - If you really want to escape the things that harass you, what you’re needing is not to be in a different place but to be a different person. ~~Seneca the Younger
+ - I tell you, we are here on Earth to fart around, and don’t let anybody tell you different. ~~Kurt Vonnegut
+ - I have met bright students in computer science who have never seen the source code of a large program. They may be good at writing small programs, but they can’t begin to learn the different skills of writing large ones if they can’t see how others have done it. ~~Richard Stallman
+ - I think because I have great difficulty saying the word, ‘no,’ almost every day’s a different adventure. ~~Richard Branson
+ - Everyone is unique and each experience is different. ~~Gloria Steinem
+ - Life is cruel. Why should the afterlife be any different! ~~Davy Jones
+ - Know what’s weird? Day by day, nothing seems to change. But pretty soon, everything’s different. ~~Bill Watterson
+ - For things to change, you have to change. For things to be different, you have to be different. Before financial success can occur personal growth must occur. ~~Jim Rohn
+ - The reality we live in is selected by our conceptual definitions. You and I may be in the same physical space, but each of us will see it as entirely different. ~~Ram Dass
+ - Try something different. Surrender. ~~Rumi
+ - Only fools repeat the same things over and over, expecting to obtain different results. ~~George Bernard Shaw
+ - How we live is so different from how we ought to live that he who studies what ought to be done rather than what is done will learn the way to his downfall rather than to his preservation. ~~Niccolò Machiavelli
+ - You cannot keep doing the same thing, the same way, and keep expecting something different to happen. ~~Beth Moore
+ - If a Million People See My Movie, I Hope They See a Million Different Movies. ~~Quentin Tarantino
+ - What I’m saying is, when different experiments give you the same result, it is no longer subject to your opinion. That’s the good thing about science: It’s true whether or not you believe in it. That’s why it works. ~~Neil deGrasse Tyson
+ - You need courage to be creative. You need the courage to see things differently, courage to go against the crowd, courage to take a different approach, courage to stand alone, if you have to, courage to choose activity over inactivity. ~~Jim Rohn
+ - When you succeed in awakening the Kundalini, so that it starts to move out of its mere potentiality, you necessarily start a world which is totally different from our world. It is the world of eternity. ~~C.G. Jung
+ - There is only one of us. One consciousness manifesting into different forms. ~~Ram Dass
+ - People conquered on different sides of the lake should be ruled on different sides of the lake. ~~Genghis Khan
+ - Time can’t be measured in days the way money is measured in pesos and centavos, because all pesos are equal, while every day, perhaps every hour, is different. ~~Jorge Luis Borges
+ - Different is better when it is more effective or more fun. ~~Tim Ferriss
+
+40 quotes

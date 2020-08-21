@@ -1,0 +1,38 @@
+ - People never cease to amaze me.
+ - You just have to have the guidance to lead you in the direction until you can do it yourself.
+ - My publicist always said as long as they pronounce your name or spell your name right, it’s all good.
+ - It’s definitely a struggle to prove yourself just as a good human being. I’m so proud of who I am and what I’ve become, the morals I have, and the people that I’m surrounded by.
+ - I can’t wait to see The Grinch. It’s so out of the world. Every time a movie like that comes out, I’m stoked. It’s like real life.
+ - Everyone has a childhood, everyone had awkward years and weird stages. Mine were broadcast for eight years.
+ - A lot of times people’s main motives and plan in life is to hurt as many people as they can, but I think there’s enough good people that help make the world a good place.
+ - Everyone for the most part is really nice. There have always been jokes, but that’s part of being in the spotlight. You can’t make everyone completely happy.
+ - You can definitely become a victim and let people completely destroy your life.
+ - I was 20 years old and felt I had a lot to offer, even to myself.
+ - My parents were involved in everything I did. They were showbiz people themselves. My dad was an actor. They were parents; they did what parents are supposed to do.
+ - With a lot of kids in the business, the parents get as twisted as they do, and there’s a lot of opportunities to go their own way, but anyone has that opportunity.
+ - I had an amazing experience working with great people. I had a great family, a typical family with drama in certain areas, and that’s pretty much everywhere in everyone’s life.
+ - The people that watch or buy music or listen to TV, I don’t think they separate the two as much as the people that are in charge of the production of it.
+ - I’m very proud of Family Ties. It’s meant a lot to a lot of people.
+ - My brother’s been producing rap music and hip-hop for maybe 10 years.
+ - They did that little thing on South Park, and they mentioned my name and had a character of me judging a Halloween contest. It was really funny. That made me the coolest aunt on earth.
+ - I definitely have a family. I have a boyfriend who has kids, and we do normal things every day, like get up and go to school. Eat breakfast, lunch and dinner.
+ - When entertainment was begun, during the Depression, it was supposed to take people’s minds off reality. People could sing, dance, act or do anything. It was the type of entertainment that was available.
+ - I got in touch with my agent and told him I wanted to start going out on things again.
+ - A lot of people recognize me or feel that they know me. A lot of times when I speak, they recognize my voice. It’s fun, it’s exciting. It’s always good feedback.
+ - Someone like Russell Crowe is questioned for his passion for music, and whatever he does, music is just in his heart and soul. All he wants to do is music.
+ - I have no complaints with the whole childhood acting thing, because I wanted to do it.
+ - Acting is definitely put at the back of my mind, if it’s there at all right now. It’s all entertainment.
+ - I’ve been in this business my whole life. I’m pretty bulletproof as far as being hurt.
+ - Whatever I’m doing, whatever comes along, this music is something that I’ve always wanted to do.
+ - Be all you can be and live a good life, have fun with it.
+ - I don’t need the fame right now; I’m not running from the law.
+ - It’s never been bad or ridiculous. I know who I am and what I’ve done, and I’m really comfortable with myself.
+ - There’s a constant flow of child actors. It’s kind of funny to watch the new crew come through. I think, You poor little things. You’re going to have to struggle for a long time.
+ - You have to laugh, you have to be able to take criticism.
+ - I am Tina Yothers and I’ll never be anyone different.
+ - I stopped acting because I had other passions I wanted to pursue.
+ - With the other fellow actors who have gone astray, I think it’s sad that society wants to label the business as doing this to people. It’s really not true.
+ - The music and everything we’re doing on the stage and on television backs itself up. If that’s what gets people’s curiosity going or brings their attention to us, that’s fine.
+ - As far as the media is concerned, I wouldn’t shoot anything down.
+
+36 quotes

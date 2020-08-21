@@ -1,0 +1,74 @@
+ - God’s ways and His will come in His own perfect time.
+ - A godly woman is beyond average because she keeps her word. She honors her vows. She exhibits great faith. She overcomes great obstacles. And she affects her family, her community, even the world.
+ - God uses the flawed, the failures, and the imperfect to accomplish His perfect will.
+ - Expectations destroy our peace of mind. They are future disappointments, planned out in advance.
+ - The soul of a child is the loveliest flower that grows in the garden of God.
+ - Prayer enables you to tap into God’s wisdom anywhere, anytime, no matter what’s going on.
+ - Gentleness is strength under control. It is the ability to stay calm, no matter what happens.
+ - When you delight yourself in the Lord, His Word and His ways become the focus and foundation of your life.
+ - Replace worry with prayer. Make the decision to pray whenever you catch yourself worrying.
+ - Your choices and decisions are a reflection of how well you’ve set and followed your priorities.
+ - God is immutable – He never changes! His ministry to you is complete, on target, and constant!
+ - One of the greatest advantages of singleness is the potential for greater focus on Christ and accomplishing work for Him.
+ - Our actions, habits, character, and future are most definitely affected by our thoughts.
+ - Just as stars shine brightest in the darkest night, your joy blazes brilliantly through life’s problems when you count them as joy.
+ - There are no easy answers, there’s only living through the questions.
+ - When God is in sharp focus, then life is also undistorted.
+ - When we don’t understand and don’t agree with the way life has gone, we are to bow before God and once again confess that we can’t understand His wisdom. In faith, we are to accept His wisdom, His Word, and His workings, trusting in Him and obeying His commands.
+ - It’s easy to talk about how much you love God, but loving others reveals how much you truly do.
+ - Let every hindrance to joy become the soil out of which joy blossoms.
+ - A powerful truth is that if we love the Lord, love His Word, love His people, and love one another, we won’t want to gossip.
+ - I’m interested in the dark side of man. I’m interested in taboos, and murder is the greatest taboo. Characters are fascinating in their extremity, not in their happiness.
+ - Apathy is a spiritual numbness that creeps in and corrupts the good that God intends for our life and the good that He wants us to accomplish for Him and His kingdom.
+ - It takes a lot of grace and maturity to simply forgive, but a lot of healing takes place when you do.
+ - The Pacific Northwest, and particularly Whidbey Island, is extremely suited to be a location in a novel.
+ - Each new day is another chapter in the unfolding promise of deliverance and life.
+ - Your attitude toward others, work, and your daily life is a reflection of your attitude toward God.
+ - When we acknowledge God’s supreme role in our life and set our mind on Him, He enables us to be women of hope.
+ - What is a godly mother? A godly mother is one who loves the Lord her God with all her heart, soul, mind, and strength and then passionately, consistently, and unrelentingly teaches her child to do the same.
+ - God begins molding a mother after His own heart on the inside-in the inner woman and her heart-and then works outward.
+ - Remember to say what you mean, but don’t say it meanly.
+ - She thought about how it was so simple with animals. They gave their hearts without question or fear. They had no expectations. They were so easy to love. If people could only be like that, no one would ever be hurt, she thought. No one would ever need to learn how to forgive.
+ - Little choices determine habit; Habit carves and molds character. Which makes the big decisions.
+ - The degree of our spiritual strength will be in direct proportion to the time we spend in God’s Word.
+ - Perseverance is not a passive submission to circumstances-it is a strong and active response to the difficult events of life.
+ - Each day is precious when we consider what we can do to serve God and His Kingdom.
+ - The past can’t be changed, can it? It can just be forgiven.
+ - God will help you make the choices that guide you into His path for each stage and age of your life.
+ - Writing is no dying art form in America because most published writers here accept the wisdom and the necessity of encouraging the talent that follows in their footsteps.
+ - Exchange the bad habit of worrying with the excellent habit of trusting God.
+ - I want God to be first in my life, so I’m putting Him first in my life today.
+ - When we promote the well-being of others God has placed in our lives our service glorifies God.
+ - God has plans for you and His plans are for good because God Himself is good. He can neither think nor do evil.
+ - Joy is a sure sign of the presence of God in your life.
+ - The English tradition offers the great tapestry novel, where you have the emotional aspect of a detective’s personal life, the circumstances of the crime and, most important, the atmosphere of the English countryside that functions as another character.
+ - Asking in prayer helps you to see your problem in the light of God’s power.
+ - If your home is a ministry, shouldn’t that ministry become a passion? Shouldn’t your feelings and emotions be involved when it comes to the people and place you love? And shouldn’t your work be done passionately? Your labors should be labors of love!
+ - When we hold our thoughts up against God’s standards of what is true and what is real, we can recognize and, with His help, learn to release many of our negative emotions, damaging thoughts, and destructive attitudes.
+ - It’s hard to criticize someone if you are praying for them.
+ - I have to know the killer, the victim and the motive when I begin. Then I start to create the characters and see how the novel takes shape based on what these people are like.
+ - Model the qualities that you want your children to show to each other.
+ - Material blessings fade and deteriorate, but your riches in Christ are everlasting.
+ - Work on what is real rather than worry about what is unreal.
+ - It’s one thing to have a goal, but it’s quite another thing to actually accept the challenge, develop a strategy to press for the goal, make the sacrifices, pay the price to move forward, and blessing of blessing, to realize some part of it.
+ - The most important thing you must decide to do every day is put the Lord first.
+ - What a blessing to be able to leave the cares of life for a brief period and spend time in the outstretched arms of your Shepherd, rubbing, as it were, your cheek against His face in intimate fellowship through prayer.
+ - I myself have suffered periodically from hearing voices at night when I’m trying to sleep.
+ - Dust off that Bible. It has the answers you are looking for, and its delights await you.
+ - Oh, yes, I taught 13 and a half years. I taught English, first at a Catholic school and then at El Toro High School in Lake Forest, Calif.
+ - Begin each day with God. It will change your priorities.
+ - Essentially and most simply put, plot is what the characters do to deal with the situation they are in. It is a logical sequence of events that grow from an initial incident that alters the status quo of the characters.
+ - One did not alter lives and simply walk away from the damage.
+ - As we come to know God better, we will also find it easier to know, follow, and accept His will for our life.
+ - It is the job of the novelist to touch the reader.
+ - I attempt to write a good novel. Whether it is literature or not is something that will be decided by the ages, not by me and not by a pack of critics around the globe.
+ - Don’t give away to others what you have not first given away at home.
+ - We are to make a plan for the day, pray over that plan, and then proceed with that plan. When we are willing to regard the unexpected as God’s intervention, we can flex with the new plan, recognizing it as God’s plan.
+ - Lots of people want to have written; they don’t want to write. In other words, they want to see their name on the front cover of a book and their grinning picture on the back. But this is what comes at the end of a job, not at the beginning.
+ - I knew from the age of seven that I was meant to be a writer.
+ - I find it both fascinating and disconcerting when I discover yet another person who believes that writing can’t be taught. Frankly, I don’t understand this point of view.
+ - But if you don’t understand that story is character and not just idea, you will not be able to breathe life into even the most intriguing flash of inspiration.
+ - I don’t think anyone could write about another culture and get it 100 percent accurate.
+ - Obedience is a foundational stepping-stone on the path of God’s will.
+
+72 quotes

@@ -1,0 +1,56 @@
+ - Life is hard, and then you die.
+ - XML is a giant step in no direction at all.
+ - Just getting something to work usually means writing reams of code fast, like a Stephen King novel, but making it maintainable and high-quality code that really expresses the ideas well, is like writing poetry. Art is taking away.
+ - Suppose we blasted all politicians into space. Would the SETI project find even one of them?
+ - Optimization is generally detrimental to future success, but it is the only way to accomplish present success in competition with others who are equally interested in short-term results.
+ - Microsoft is not the answer. Microsoft is the question. NO is the answer.
+ - Sufficiently advanced political correctness is indistinguishable from sarcasm.
+ - Ignoring for a moment the power of the American Medical Association, we still wouldn’t see a huge amount of books on neurosurgery for dummies in 21 days or whatever. It’s just plain inappropriate, and it’s intentionally out of people’s reach.
+ - Unformed people delight in the gaudy and in novelty. Cooked people delight in the ordinary.
+ - If you are concerned about netiquette, you are either concerned about your own and follow good netiquette, or you are concerned about others and violate good netiquette by bothering people with your concern, as the only netiquette you can actually affect is your own.
+ - Norway did not even have a revolution at the time the rest of Europe was busy figuring out human rights and stuff, because we were busy fighting over how to spell it.
+ - I guess there are some things that are so gross you just have to forget, or it’ll destroy something within you. Perl is the first such thing I have known.
+ - The purpose of human existence is to learn and to understand as much as we can of what came before us, so we can further the sum total of human knowledge in our life.
+ - If Perl is the solution, you’re solving the wrong problem.
+ - It’s not that Perl programmers are idiots, it’s that the language rewards idiotic behavior in a way that no other language or tool has ever done.
+ - I’m bothered by the fact that stupid people don’t spontaneously combust, which they should.
+ - A word says more than a thousand images. Exercises for the visually inclined: illustrate “appreciation”, “humor”, “software”, “education”, “inalienable rights”, “elegance”, “fact”.
+ - In Norway, we have a community of people who prefer to use a version of Norwegian that looks very much like lutefisk: Dug up remains from the garbage heap of history and dressed up to look like a tradition.
+ - Counting lines is probably a good idea if you want to print it out and are short on paper, but I fail to see the purpose otherwise.
+ - Elegance is necessarily unnatural, only achieveable at great expense. If you just do something, it won’t be elegant, but if you do it and then see what might be more elegant, and do it again, you might, after an unknown number of iterations, get something that is very elegant.
+ - Part of any serious QA is removing Perl code the same way you go over a dilapidated building you inherit to remove chewing gum and duct tape and fix whatever was kept together for real.
+ - What I actually admire in Perl is its ability to provide a very successful abstraction of the horrible mess that is collectively called Unix.
+ - I have argued that a religion or a philosophy cannot speak about facts of the world – if it does, it is now or will eventually be wrong – but it can and should speak about the relevance and ranking of facts and observations.
+ - We have no mom-and-pop oil rigs in Norway.
+ - C being what it is lacks support for multiple return values, so the notion that it is meaningful to pass pointers to memory objects into which any random function may write random values without having a clue where they point, has not been debunked as the sheer idiocy it really is.
+ - Languages shape the way we think, or don’t.
+ - Those who write software only for pay should go hurt some other field.
+ - Very clever implementation techniques are required to implement this insanity correctly and usefully, not to mention that code written with this feature used and abused east and west is exceptionally exciting to debug.
+ - The aspects you are willing to ignore are more important than the aspects you are willing to accept.
+ - Like many older fans of Free Software and Open Source, I have discovered that it is really only free in the sense that the time you spend on it is worthless.
+ - Well, take it from an old hand: the only reason it would be easier to program in C is that you can’t easily express complex problems in C, so you don’t.
+ - Have you considered the option of getting the joke? If not, try it now and redeem your soul.
+ - If you want to know why Lisp doesn’t win around you, find a mirror.
+ - Once we were Programmers. Maybe our last best hope is a movie.
+ - Enlightenment is probably antithetical to impatience.
+ - I have a cat, so I know that when she digs her very sharp claws into my chest or stomach it’s really a sign of affection, but I don’t see any reason for programming languages to show affection with pain.
+ - All experience has taught us that solving a complex problem uncovers hidden assumptions and ever more knowledge, trade-offs that we didn’t anticipate but which can make the difference between meeting a deadline and going into research mode for a year, etc.
+ - Unfortunately, nigh the whole world is now duped into thinking that silly fill-in forms on web pages is the way to do user interfaces.
+ - The only important property of evils of the past is that they not be repeated in the future, in any way, shape, or form.
+ - Would you buy a book proudly stating on the cover that its reader is a dummy? Or would you think “of course it’s ironic”?
+ - A little knowledge is a dangerous thing. I regret that this isn’t fatal.
+ - Let’s just hope that all the world is run by Bill Gates before the Perl hackers can destroy it.
+ - Gotos aren’t damnable to begin with. If you aren’t smart enough to distinguish what’s bad about some gotos from all gotos, goto hell.
+ - The very word “exist” derives from “to step forth, to stand out”.
+ - Sometimes, the only way to learn something really well is to revert to the state of mind of a novice and reawaken to the raw observations that you have accumulated instead of relying on the conclusions you have reached from the exogenous premises absorbed through teaching and bookish learning.
+ - Contrary to the foolish notion that syntax is immaterial, people optimize the way they express themselves, and so express themselves differently with different syntaxes.
+ - A system needs to be alive and workable even when other people than the first enthusiasts start using it. Reinvention and revolution are enthusiast stuff. Invention and evolution are engineering.
+ - Structure is nothing if it is all you got. Skeletons spook people if they try to walk around on their own. I really wonder why XML does not.
+ - The ultimate laziness is not using Perl. That saves you so much work you wouldn’t believe it if you had never tried it.
+ - The Web provided me with a much needed realization that information cannot be fully separated from its presentation, and showed me something I knew without verbalizing explicitly, that the presentation form we choose communicates real information.
+ - I have long since given up dealing with people who hold idiotic opinions as if they had arrived at them through thinking about them.
+ - Constructing a social system that tends to those who agree with it is a piece of cake compared to constructing one that makes those who disagree with it want to obey its principles.
+ - The currency in the developer community is enthusiasm.
+ - C is not clean – the language has many gotchas and traps, and although its semantics are simple in some sense, it is not any cleaner than the assembly-language design it is based on.
+
+54 quotes

@@ -1,0 +1,21 @@
+ - Most of our so-called reasoning consists in finding arguments for going on believing as we already do.
+ - We are incredibly heedless in the formation of our beliefs, but find ourselves filled with an illicit passion for them when anyone proposes to rob us of their companionship. It is obviously not the ideas themselves that are dear to us, but our self-esteem, which is threatened.
+ - Rationalizing is the self-exculpation which occurs when we feel ourselves, or our group, accused of misapprehension or error.
+ - Few of us take the pains to study the origin of our cherished convictions.
+ - In its amplest meaning History includes every trace and vestige of everything that man has done or thought since first he appeared on the earth.
+ - Political campaigns are designedly made into emotional orgies which endeavor to distract attention from the real issues involved, and they actually paralyze what slight powers of cerebration man can normally muster.
+ - Partisanship is our great curse. We too readily assume that everything has two sides and that it is our duty to be on one or the other.
+ - Man has long found solace in good talk to offset bad conduct.
+ - We are incredibly heedless in the formation of our beliefs, but if someone tries to take them from us, we defend them with almost an illicit passion.
+ - Curiosity is idle only to those who fail to realize that it may be a very rare and indispensable thing.
+ - Mere lack of success does not discredit a method, for there are many things that determine and perpetuate our sanctified ways of doing things besides their success in reaching their proposed ends.
+ - To become historically-minded is to be grown-up.
+ - We find it hard to believe that other people’s thoughts are as silly as our own, but they probably are.
+ - Speech gave man a unique power to lead a double life, he could say one thing and do another.
+ - There is nothing else anything like so interesting to ourselves as ourselves.
+ - Each of us is great insofar as we perceive and act on the infinite possibilities which lie undiscovered and unrecognized about us.
+ - We continue to think of new things in old ways.
+ - Our goal, simply stated, is to be the best.
+ - I am opposed to censorship. Censors are pretty sure fools. I have no confidence in the suppression of everyday facts.
+
+19 quotes

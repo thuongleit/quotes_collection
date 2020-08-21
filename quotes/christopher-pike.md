@@ -1,0 +1,74 @@
+ - I wanted you to thank you for being my friend and letting me play a part in your story.
+ - You search endlessly for permanent happiness in a world where nothing is permanent.
+ - People with power always take advantage of those without power.
+ - Death never comes at the right time, despite what mortals believe. Death always comes like a thief.
+ - Thank you, Yoda. Feel the force, Luke.
+ - Why am I talking about all this? Who am I talking to? I send out these words, these thoughts, simply because it is time. Time for what, I do not know and it does not matter because it is what I want and that is always reason enough for me.
+ - Don’t be afraid, be terrified.
+ - In this world of gossip, a good listener is rarer than a great orator.
+ - When you were in love, you knew no fear or hatred. When you were fearful, there was no possibility of love or hate. And when there was hate, there was only hate.
+ - The truth is always simpler than you can imagine.
+ - That is the mysterious thing about tragedy- it often strikes at the happiest moment.
+ - He cries. ‘Please! I don’t want to die.’ I lean over. My hair smothers him. ‘Then you should never have been born,’ I say.
+ - One question always leads to another question. Some things are better to wonder about.
+ - The desert surrounds your every step and you walk forever a thirsty man.
+ - Dive deep into the ocean, Sita, and you will find that the greatest treasures you find are the illusions you leave behind.
+ - Darkness approaches from outside. I feel no light inside me strong enough to resist it.
+ - People are responsible for their actions, but not the fruits of their actions. Always do what you think is right, but don’t worry if good does not always come from what you do.
+ - Power, wealth and immortality – they don’t bring happiness. You will never know what the word means.
+ - But I wasn’t a bad girl. I don’t want to be forgotten. I want people to remember me.
+ - It doesn’t matter. You are what you are. I am what I am. We are the same-when you take the time to remember me.
+ - Sleep is not on good terms with broken hearts. It will have nothing to do with them.
+ - I’m a coward, I close my eyes. I don’t understand why God made sight the only sense that can be blocked off.
+ - It’s ironic, isn’t it? Our goal was great. Our path was dark.
+ - The hourglass runs low...
+ - The most content people are those who expect nothing, who have ceased to dream.
+ - True courage, in the face of almost certain death, is the rarest quality on earth.
+ - All ends are temporary and all life is born from death.
+ - A true teacher would never tell you what to do. But he would give you the knowledge with which you could decide what would be best for you to do.
+ - Nothing is as it seems. Black can appear white when the light is blinding but white loses all luster at the faintest sign of darkness.
+ - No one awakens in the morning thinking they will die that day. Not a saint or a sinner. Not even a condemned killer. We all know were mortal, and yet we all believe we’ll live forever.
+ - No religion is perfect, not after man gets through with it.
+ - There is not enough blood in her veins to keep her heart from skipping.
+ - God is God. His name doesn’t matter.
+ - One does not beg for a glass of water from the devil.
+ - The physics are simple in theory, but in practice they are filled with the possibility for limitless error.
+ - Sometimes, if I am not careful, and I stare too long at a flower, it shrivels and dies.
+ - Some loves have to be given up, others have to be forgotten. Strange as it may sound, if you think of me as a monster, but I can love most passionately. I do not think of myself as evil.
+ - Enjoy your life. No curse hangs over you, nor did it ever. No devil chases after your soul. Sing and dance and be merry.
+ - I am a vampire, and that is the truth.
+ - How much modern civilization has lost, I think, when they lost the awareness of the billions of stars overhead.
+ - You will see that the things you desire most are the very things that bring you the greatest sorrow.
+ - Truly, a life in constant pain is the life of the damned.
+ - My whole life had been an uninterrupted act of loving him.
+ - As to blood – ah, blood, the whole subject fascinates me. I do like that as well, warm and dripping, when I am thirsty. And I am often thirsty.
+ - The late hour is such a friend; it has been for so many years. There is not a soul around as I carry Riley downstairs and dump him in my trunk. It is good, for I am not in the mood to kill again, and murder, for me, is very much tied to my mood, like making love. Even when it is necessary.
+ - The best art always comes unbidden.
+ - You can never hate strongly unless you have loved strongly.
+ - In that moment, there was no place for doubt. I was sitting with the supreme being. I had always sat beside her. She was inside of me.
+ - It is a paradox. Life is that way. God designed it that way. I believe I met him once. He was full of mischief.
+ - Persistence is the key to solving most mysteries.
+ - They are so busy, Julia, trying to help the world that they’ve forgotten how to help themselves. They’ve forgotten how to be happy, and it is a happy man or woman who helps the world most.
+ - I can only give you some hints. You have to place him in a situation where your advantages are magnified.
+ - They are all I have left – the stars and the memory of the many times I wished upon them. But with all those wishes, I asked for only one thing. To see him again. But I will not see him again. I do not see him now.
+ - What you wish for, what you most hope for – that is your greatest illusion.
+ - We all die. It’s just a question of when and how horrible it’s going to be.
+ - Mortals have always exaggerated the difference between hate and love. Both come from the heart. You can never hate strongly unless you have loved strongly.
+ - Truly it it not the tragedies that destroy us, but the memories of them.
+ - There comes a time for everybody when words and reasons can become such a great weariness.
+ - Don’t simply knock and wait for the door to be opened. Go look for the keys. Some fit the lock better than others.
+ - I would look up at the moon and see that it was not the smooth orb we had all believed, but a pitted and scarred world with no air.
+ - When you were in love you knew no fear or hatred.
+ - Are you asking if I ever spied on you while you were taking a shower?
+ - I went to work at the library. I know that sounds crazy but I didn’t know where else to go. Besides, at the library I was constantly surrounded by people. And I loved my job, surrounded by so many books, so many lives, so much of the past.
+ - When you do something because you’re angry, you almost always do the wrong thing.
+ - There would be a trial and there would be a judge. The only problem was, there could only be one sentence.
+ - For feeling, not events, is to me the essence of history.
+ - The seconds tick. They always do. The power of an entire sun cannot stop them even for a moment, and so death comes between the moments, like a thief of light in the dark.
+ - Slow down. The party won’t start until I get there – Jo, Remember me. Page 43.
+ - Yet, ironically, it is her very wretchedness that makes me pity her so. I don’t know what’s wrong with me. I don’t know what to do!
+ - This problem – it is age old. To do what is right and save the day without destroying the very thing the day is lived for.
+ - There is no time for grief; there never is.
+ - How do I explain a life that has lasted for billions of years? It is almost as if I must start with an apology for being alive when everyone I once knew is dead.
+
+72 quotes

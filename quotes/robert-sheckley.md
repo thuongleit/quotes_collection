@@ -1,0 +1,30 @@
+ - I’ve always thought of absurdism as a French fad I’d like to belong to.
+ - Wherever you go in the galaxy, you can find a food business, a house-building business, a war business, a peace business, a governing business, and so forth. And, of course, a God business, which is called ‘religion,’ and which is a particularly reprehensible line of endeavor.
+ - I think it can be quite impossible to think well of yourself, so I prefer not to think about that too much. But I am very pleased, obviously.
+ - Science fiction is very healthy in its form.
+ - But science perhaps is very difficult without faith. Also there is no simple way of saying now we have science, we don’t need faith anymore.
+ - Ethical and questions of philosophy interest me a great deal.
+ - So I wrote what I hoped would be science fiction, I was not at all sure if what I wrote would be acceptable even. But I don’t say that I consciously wrote with humour. Humour is a part of you that comes out.
+ - Originality is a concept possible only to a limited viewpoint.
+ - Why in God’s name should a God be praised if he is only performing his Godly function?
+ - I’m quite influenced in this by one of my heroes, Montaigne, who thought a man’s real task was to render as honest an account of himself as he could.
+ - I sell well now in Russia. I remember one signing in Russia some years ago where the bookstore had two strongmen to hold the crowds back.
+ - I was never able to write seriously about heroes because I was very aware that I was not one and that in my background there was not this heroic thing.
+ - The absurdist stuff wasn’t terribly popular at the time I was doing it.
+ - I’m not so interested any more in how a great deal of science fiction goes. It goes into things like Star Wars and Star Trek which all go excellent in their own way.
+ - It takes me a long time to get with a landscape. It took me 20 years before I wrote anything about Ibiza, and I haven’t written about Oregon yet, although I’ve been there 20 years – possibly I’m almost due.
+ - I do think that short story writing is often a matter of luck.
+ - A lot of us don’t want to be quite that serious about world problems. Our life is there to enjoy, not to be an eternal dissident, eternally unhappy with how things are and with the state of mankind.
+ - I would like to do a novel where some curse turns that into how the world really is – a blessing or a curse, I don’t know which.
+ - I like to think that I have no single view nor any single situation that I think things arrive from. I try to give examples of what I think are interesting questions for me.
+ - Once you find you can’t walk as far and as fast as you were able, life becomes more complicated.
+ - As far as the mechanics go, working with other people on received ideas was for me a very interesting technical problem. I can’t say that any of my collaborations engaged my heart, but they engaged the craftsman in me.
+ - It is a truism throughout the civilized galaxy that when you go to the police, your troubles really begin.
+ - The British audience was very important to me. I have always looked away from American to non-American audiences and so this was important.
+ - A novel is often a longer process in handling self-doubt.
+ - I’m not too fond of the hard work and the constant battle with self-doubt that goes on when I write, but I figure that’s part of the territory.
+ - I don’t finish every story, but I probably write and send out three out of five of them.
+ - I have never been a critic of science fiction as a whole.
+ - Action isn’t my forte. I’m an expert on contemplation and mild regret.
+
+28 quotes

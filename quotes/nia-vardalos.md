@@ -1,0 +1,27 @@
+ - We live in an unsafe world.
+ - The man may be the head of the household. But the woman is the neck, and she can turn the head whichever way she pleases.
+ - You only get one life so you might as well make it a happy one, and that’s why I tend to just jump into things. I’m sort of a fearless idiot that way.
+ - If the standard route for creating a family had worked for me, I wouldn’t have met this child. I needed to know her. I needed to be her mother. She is, in every way my daughter.
+ - I don’t card out my screenplays ever. I just have an idea I just sit down and write I don’t edit.
+ - Now that I’m experiencing motherhood, I’m ready to write the next chapter of my family story. Of course a few jaded folks in the press corps will claim I ran out of money or just want to kiss John Corbett again. One of these things is true.
+ - Anyone who ever wondered how much they could love a child who did not spring from their own loins, know this: it is the same. The feeling of love is so profound, it’s incredible and surprising.
+ - I’d been raised by my parents who taught me not to think you’re better than you are.
+ - Time can turn a scab into a beauty mark.
+ - In many ways we are all sons and daughters of ancient Greece.
+ - I thought I was attractive when I shot ‘My Big Fat Greek Wedding.’ Studio executives and movie reviewers let me know I had a confidence in my looks that was not shared by them.
+ - I would rather be called funny than pretty.
+ - My New Year’s Resolution List usually starts with the desire to lose between ten and three thousand pounds.
+ - Sometimes if something scares me, I lean right into it. I’m not a brave person – I’m more of a fearless idiot.
+ - Let’s face it: Russell Crowe is fat and no one ever talks about it.
+ - My daughter is a preschooler but I have only known her for a while. She is adopted.
+ - It’s not like suddenly, when you become a working actor all your friends are in the same situation. I have friends who are still handing out flyers for their one-woman show and trying to make ends meet.
+ - It wasn’t easy to adopt an American child. Actually it’s quite simple, but finding out how to do it was the hard part.
+ - On the publicity tour of ‘My Big Fat Greek Wedding,’ I was asked over and over again, if, as the writer, I felt it was a fair depiction of real life to have someone of my er, below average looks, hook up with hottie John Corbett.
+ - What I wish I had, is that I wish I was a little more Greek, in that I wish I could lose my North American driven attitude and that I could be a little bit more poetic and laissez faire.
+ - When I used to do musical theatre, my dad refused to come backstage. He never wanted to see the props up close or the sets up close. He didn’t want to see the magic.
+ - On November 15th, 2008, in over 300 cities, 4,000 children were adopted in one day.
+ - Socially, the issue of men’s weight is simply not a big deal.
+ - I think our skin clears up and we’re nicer when you are in love.
+ - You’re never too fat for a new purse.
+
+25 quotes

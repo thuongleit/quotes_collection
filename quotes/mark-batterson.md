@@ -1,0 +1,150 @@
+ - You are only one defining decision away from a totally different life!
+ - God doesn’t call the qualified, He qualifies the called.
+ - Quit living as if the purpose of life is to arrive safely at death.
+ - If you wait for perfect conditions to seize an opportunity, you’ll be waiting till the day you die.
+ - Your greatest regret at the end of your life will be the lions you didn’t chase. You will look back longingly on risks not taken, opportunities not seized, and dreams not pursued. Stop running away from what scares you most and start chasing the God-ordained opportunities that cross your path.
+ - Never underestimate the power of a single prayer.
+ - Don’t wait to worship God until you get to the Promised Land; you’ve got to worship along the way.
+ - God is not a genie in a bottle, and your wish is not His command. His command better be your wish.
+ - You don’t need to seek opportunity. All you have to do is seek God. And if you seek God, opportunity will seek you.
+ - We usually focus on what we’re doing or where we’re going, but God’s primary concern is who we’re becoming in the process.
+ - One God idea is worth more than a thousand good ideas.
+ - Vision beyond your resources? Don’t let fear dictate your decisions. If your vision is God-given, it will most definitely be beyond your ability and beyond your resources. The God who gives the vision is the same God who makes provision.
+ - Go after a dream that is destined to fail without divine intervention.
+ - And when you pray to God regularly, irregular things happen on a regular basis.
+ - Don’t just read the Bible. Start circling the promises. Don’t just make a wish. Write down a list of God-glorifying life goals. Don’t just pray. Keep a prayer journal. Define your dream. Claim your promise. Spell your miracle.
+ - You need to circle the goals God wants you to go after, the promises God wants you to claim, and the dreams God wants you to pursue. And once you spell Jericho, you need to circle it in prayer. Then you need to keep circling until the walls come tumbling down.
+ - Worship is forgetting about what’s wrong with you and remembering what’s right with God.
+ - More often than not, the only thing between you and your dream is a rational excuse.
+ - If you seek answers you won’t find them, but if you seek God, the answers will find you.
+ - The circumstances we ask God to CHANGE are often the circumstances God is using to CHANGE US.
+ - What sets lion chasers apart isn’t the outcome. It’s the courage to chase God-sized dreams.
+ - If we do the little things like they are big things, then God will do the big things like they are little things.
+ - Prayer is the inheritance we receive and the legacy we leave.
+ - If you plant yourself in one place and let your roots grow deep, there is no limit to what God can do.
+ - The primary reason we lose faith is because we forget the faithfulness of God. Maybe that’s why the word ‘remember’ is repeated 250 times in Scripture.
+ - The greatest tragedy in life is the prayers that go unanswered simply because they go unasked.
+ - If you don’t take the risk, you forfeit the miracle.
+ - Faith is the willingness to look foolish.
+ - God is great not just because nothing is too big for Him. God is great because nothing is too small for Him, either.
+ - Uniqueness isn’t a virtue. It’s a responsibility.
+ - GOALS are dreams with deadlines, and without those deadlines, our dreams are dead in the water.
+ - Faith is not logical. But it isn’t illogical either. Faith is theological. It does not ignore reality; it just adds God into the equation.
+ - When did we start believing God wants to send us to safe places to do easy things?
+ - Jesus didn’t die to make us safe. He died to make us dangerous.
+ - Half of spiritual growth is learning what we don’t know. The other half is unlearning what we do know.
+ - We’re too Christian to enjoy sin and too sinful to enjoy Christ. We’ve got just enough Jesus to be informed, but not enough to be transformed.
+ - God isn’t offended by your biggest dreams or boldest prayers. He is offended by anything less. If your prayers aren’t impossible to you, they are insulting to God.
+ - Prayer is the difference between seeing with our physical eyes and seeing with our spiritual eyes.
+ - If you keep circling the promise, God will ultimately deliver on it.
+ - God won’t answer 100% of the prayers we don’t pray.
+ - We start dying when we have nothing worth living for. And we don’t really start living until we find something worth dying for.
+ - The goal is glorifying God by drawing circles around the promises, miracles, and dreams He wants for you.
+ - We pray as if God’s chief objective is our personal comfort. It’s not. God’s chief objective is His glory.
+ - When you open your Bible, God opens His mouth.
+ - God blesses us more so that we can be more of a blessing to others.
+ - Nothing honors God more than a Big Dream that is way beyond our ability to accomplish!
+ - To the infinite, all finites are equal.
+ - The only God-ordained fear is the fear of God, and if we fear Him, we don’t have to fear anyone or anything else.
+ - God wants you to get where God wants you to go more than you want to get where God wants you to go.
+ - We give up too easily. We give up too soon. We quit praying right before the miracle happens.
+ - I have an unshakable sense of destiny because I know that as long as I pursue God’s calling on my life, then God is ultimately responsible for getting me where He wants me to go.
+ - You’ll never be a perfect parent, but you can be a praying parent.
+ - The gospel costs nothing but it demands everything.
+ - Prayer is the difference between the best we can do and the best God can do.
+ - Prayer turns ordinary parents into prophets who shape the destinies of their children, grandchildren, and every generation that follows.
+ - In my experience, it’s much easier to act like a Christian than it is to react like one. Anyone can put on an act. But your reactions reveal what is really in your heart.
+ - There comes a moment when you must quit talking to God about the mountain in your life and start talking to the mountain about your God. You proclaim His power. You declare His sovereignty. You affirm His faithfulness. You stand on His Word. You cling to His promises.
+ - You can have faith or you can have control, but you cannot have both.
+ - To me, growing into spiritual maturity is becoming less self-conscious and more God-conscious.
+ - Praying through is all about CONSISTENCY and INTENSITY. It’s ‘all-nighter’ prayer. It just won’t take ‘NO’ for an answer!
+ - I’ve discovered that if I don’t take the first step, God generally won’t reveal the next step.
+ - If we do the ordinary, God will add an extra to it.
+ - The key to getting out of the boat is hearing the voice of God.
+ - Who you become is determined by how you pray.
+ - You are only one prayer away from a dream fulfilled, a promise kept, or a miracle performed.
+ - Whatever God wants to do through you, He will do in you first. You’ve got to be what you want to see.
+ - The antidote for fear of failure is not success but small doses of failure.
+ - Well-developed faith results in well-defined prayers, and well-defined prayers result in a well-lived life.
+ - If you aren’t hungry for God, you are full of yourself.
+ - All of us love miracles. We just don’t like being in a situation that necessitates one.
+ - Faith doesn’t reduce uncertainty. Faith embraces uncertainty.
+ - Id rather be biblically correct than politically correct.
+ - You are someone else’s miracle! God is setting up divine appointments and it is our job to keep them.
+ - CONVICTIONS are lessons learned from experiences we’d never want to go through again, but wouldn’t trade for anything in the world.
+ - Over the years I’ve grown more comfortable with making people uncomfortable because that is when growth can happen. You need a little conflict. You need a little tension. And that is part of my calling. A little tough love goes a long way!
+ - You cannot build God’s reputation if you aren’t willing to risk yours.
+ - In my experience, take the Holy Spirit out of the equation of your life and it spells boring. Add it into the equation of your life and you never know where you are going to go, what you are going to do, or who you are going to meet.
+ - When we change the way that we pray, everything changes.
+ - Imagination is the road less taken, but it is the pathway of prayer.
+ - New media is like a megaphone. It amplifies your ability to reach more people.
+ - Ultimately, the transcript of your prayers becomes the script of your life.
+ - I’ve always believed in the power of prayer. One prayer can accomplish more than a thousand plans. That isn’t a magic formula, but it’s an idea that if you pray, keep praying and then praying some more.
+ - Prayer is the difference between you fighting for God and God fighting for you. Secret prayer is our secret weapon.
+ - Email helps me keep in touch with my family. I wouldn’t know what my extended family was doing every day if we weren’t emailing each other.
+ - Whatever you don’t turn into PRAISE turns into PRIDE.
+ - Maybe it’s time to stop creating God in our image and let Him create you in His.
+ - I think you often say more by saying less. And interestingly enough, I mean, Jesus really set the standard. I mean, he could say more with fewer words than anybody. Most of the parables were less than 250 words. And, boy, did he have some one-liners just packed with truth.
+ - May you keep dreaming until the day you die. May imagination overtake memory. May you die young at a ripe old age.
+ - Don’t accumulate possessions; accumulate experiences!
+ - You cannot be in the presence of God and be bored at the same time. For that matter, you cannot be in the will of God and be bored at the same time.
+ - If we repent, God always recycles our mistakes.
+ - Prayers are prophecies. They are the best predictors of your spiritual future. Who you become is determined by how you pray. Ultimately, the transcript of your prayers becomes the script of your life.
+ - Leaders need the courage to acknowledge when something isn’t working.
+ - Lion chasers are humble enough to let God call the shots and brave enough to follow where He leads.
+ - The plans of God are only revealed in the presence of God.
+ - If you are not open to the unprecedented, you will repeat history. If you are open to the unprecedented, you will change history. The difference is prayer.
+ - Prayer adds an element of surprise to your life that is more fun than a surprise party or surprise gift or surprise romance. In fact, prayer turns life into a party, into a gift, into a romance.
+ - Jesus didn’t die to make us safe. He died to make us dangerous! Faithfulness isn’t holding the fort. It’s storming the gates of hell with the light and love of Jesus Christ.
+ - Most God-ordained dreams die because we are not willing to do something that seems illogical.
+ - It is absolutely imperative at the outset that you come to terms with this simple yet life-changing truth: God is for you. If you don’t believe that, then you’ll pray small timid prayers; if you do believe it, then you’ll pray big audacious prayers.
+ - I’m a lifelong Vikings and Packers fan because I lived in both Minnesota and Wisconsin as a kid.
+ - The supernatural laws of prayer defy the natural laws of time and space.
+ - I am a pastor so I eat and breathe the Church.
+ - Learning isn’t a luxury; it’s a stewardship issue.
+ - The only way you can fail is if you stop praying.
+ - Verse by verse, the Bible becomes more than theory. It becomes my firsthand experience.
+ - Pursuing a God-ordained passion, no matter how crazy it seems, is the most responsible thing you can do.
+ - Embrace relational uncertainty. It’s called romance. Embrace spiritual uncertainty. It’s called mystery. Embrace occupational uncertainty. It’s called destiny. Embrace emotional uncertainty. It’s called joy. Embrace intellectual uncertainty. It’s called revelation.
+ - I love to read. I remember hearing that the average author takes two years to write a book. So when I read a book, I feel like I am getting two years of life experiences.
+ - Most Christians are educated way beyond the level of their obedience already! We don’t need to know more, we need to do more.
+ - Nine times out of 10, criticism is a defense mechanism. We criticize in others what we don’t like in ourselves.
+ - Instead of dissecting Scripture, we need to let Scripture dissect us our thoughts and attitudes, our dreams and desires, our fears and hopes.
+ - If you really believe in the message you’re preaching, you want as many people as possible to listen.
+ - Do you trust that God is for you even when He doesn’t give you what you asked for?
+ - Whether we write lyrics or craft legislation, sell homes or teach classes, design spaces or open franchises, prayer is a critical part of the creative process. Don’t just brainstorm; praystorm.
+ - Our Heavenly Father is far too wise and loves us far too much to give us everything we ask for.
+ - Because you know He can, you can pray with holy confidence.
+ - Part of my driving desire as a pastor is to remove every obstacle except the cross that would keep people from coming to faith in Christ.
+ - One of the truest tests of spiritual maturity is seeing the miraculous in the monotonous.
+ - If Jesus were living in our culture, he would probably hang out in coffeehouses.
+ - The Bible is the place where God bears His soul.
+ - Even our hardest prayers are easy for the Omnipotent One to answer because there is no degree of difficulty.
+ - Have you ever noticed that when you pray, coincidences happen? And when you don’t, they don’t.
+ - In an urban environment, a church building is a thing of the past.
+ - Prayer is not about letting God know your will; it’s about completely submitting to him. You die to yourself.
+ - Finally, I learned that we shouldn’t seek answers as much as we should seek God.
+ - The more you’re willing to risk, the more God can use you. And if you’re willing to risk everything, then there is nothing God can’t do in you and through you.
+ - God, find us on our knees because we know that when we get our knees, You extend Your powerful right hand.
+ - When we cling too tightly to what God did last, we often miss what God wants to do next.
+ - It’s hard for me to imagine why a church that has younger members wouldn’t have a blog component.
+ - What’s unique about Washington is that no one’s from here. Almost everybody came here to change the world, to make a difference.
+ - I think twenty-somethings are very cause-oriented.
+ - Each prayer is like a seed that gets planted in the ground. It disappears for a season, but it eventually bears fruit that blesses future generations. In fact, our prayers bear fruit forever.
+ - Sometimes we’re too focused on getting out of a situation that we don’t think about what we can get out of the situation.
+ - One of our fundamental spiritual problems is this: we want God to do something new while we keep doing the same old thing.
+ - The genealogy of blessing always traces back to God-ordained risk.
+ - I want to be famous in my home.
+ - Faith is unlearning this senseless worries and misguided beliefs that keep us captive. It is far more complex than simply modifying behavior. Faith is rewiring the human brain. We are literally upgrading our minds by downloading the mind of Christ.
+ - As I look back on my own life, I recognize this simple truth: The greatest opportunities were the scariest lions. Part of me has wanted to play it safe, but I’ve learned that taking no risks is the greatest risk of all.
+ - One way to show someone you love them is to simply go out of your way for them. It’s the gift of inconvenience.
+ - It’s much easier to act like a Christian than it is to react like one!
+ - The healthiest and holiest people are the people who laugh at themselves the most. Failure helps us take God more seriously and ourselves less seriously.
+ - If you want to see God move make a move.
+ - I think a pastor used to be viewed as the one-stop ministry shop. The pastor served on every committee, volunteered at every event, and made all the hospital visits. I think that is changing and I think that is healthy. Both for the pastor and the congregation.
+ - If the kingdom of God had departments, we’d want to work in research and development. We felt like Jesus didn’t hang out at the synagogue, he hung out at wells. Coffeehouses are postmodern wells. Let’s not wait for people to come to us, let’s go to them.
+ - The outcome of your life will be determined by your outlook on life.
+ - Jesus on Twitter would have been a pretty amazing thing.
+ - We’ve lost the wow of God because we’ve lost the woe of God. His perfect holiness helps us truly appreciate His amazing grace.
+
+148 quotes

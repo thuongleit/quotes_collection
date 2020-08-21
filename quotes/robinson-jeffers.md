@@ -1,0 +1,41 @@
+ - Long live freedom and damn the ideologies.
+ - A little too abstract, a little too wise, It is time for us to kiss the earth again, It is time to let the leaves rain from the skies, Let the rich life run to the roots again.
+ - Happy people die whole, they are all dissolved in a moment, they have had what they wanted.
+ - God is a lion that comes in the night. God is a hawk gliding among the stars – If all the stars and the earth, and the living flesh of the night that flows in between them, and whatever is beyond them Were that one bird. He has a bloody beak and harsh talons, he pounces and tears.
+ - I’ve changed my ways a little, I cannot now Run with you in the evenings along the shore, Except in a kind of dream, and you, if you dream a moment, You see me there.
+ - Truly men hate the truth; they’d liefer meet a tiger on the road.
+ - It is only a little planet, but how beautiful it is.
+ - The cold passion for truth hunts in no pack.
+ - Hear the music, the thunder of the wings. Love the wild swan.
+ - That public men publish falsehoods Is nothing new. That America must accept Like the historical republics corruption and empire Has been known for years. Be angry at the sun for setting If these things anger you.
+ - The heads of strong old age are beautiful beyond all grace of youth.
+ - The tides are in our veins, we still mirror the stars, life is your child, but there is in me Older and harder than life and more impartial, the eye that watched before there was an ocean.
+ - Cruelty is a part of nature, at least of human nature, but it is the one thing that seems unnatural to us.
+ - Imagination, the traitor of the mind, has taken my solitude and slain it.
+ - The tides are in our veins.
+ - Know that however ugly the parts appear the whole remains beautiful.
+ - Well: the day is a poem but too much Like one of Jeffers’s, crusted with blood and barbaric omens Painful to excess, inhuman as a hawk’s cry.
+ - Humanity is the start of the race; I say Humanity is the mould to break away from, the crust to break through, the coal to break into fire, The atom to be split.
+ - As for me, I would rather be a worm in a wild apple than a son of man. But we are what we are, and we might remember not to hate any person, for all are vicious; And not to be astonished at any evil, all are deserved; And not to fear death; it is the only way to be cleansed.
+ - Does it matter whether you hate yourself? At least love your eyes that can see, your mind that can hear the music, the thunder of the wings.
+ - They import and they consume reality.
+ - The greatest beauty is organic wholeness, the wholeness of life and things, the divine beauty of the universe.
+ - Corruption never has been compulsory; when the cities lie at the monster’s feet there are left the mountains.
+ - I have seen these ways of God: I know of no reason For fire and change and torture and the old returnings.
+ - You making haste on decay: not blameworthy; life is good, be it stubbornly long or suddenly A mortal splendor: meteors are not needed less than mountains: shine, perishing republic.
+ - O that our souls could scale a height like this, A mighty mountain swept o’er by the bleak Keen winds of heaven; and, standing on that peak Above the blinding clouds of prejudice, Would we could see all truly as it is; The calm eternal truth would keep us meek.
+ - Poetry is not a civilizer, rather the reverse, for great poetry appeals to the most primitive instincts.
+ - Only the drum is confident, it thinks the world has not changed.
+ - Oh heavy change. The world deteriorates like a rotting apple, worms and a skin.
+ - This wild swan of a world is no hunter’s game.
+ - The world’s in a bad way, my man, And bound to be worse before it mends; Better lie up in the mountain here Four or five centuries, While the stars go over the lonely ocean.
+ - Pleasure is the carrot dangled to lead the ass to market; or the precipice.
+ - The love of freedom has been the quality of Western man.
+ - If millions are born millions must die.
+ - Still the mind smiles at its own rebellions.
+ - He is strong and pain is worse to the strong, incapacity is worse.
+ - I hate my verses, every line, every word. Oh pale and brittle pencils ever to try One grass-blade’s curve, or the throat of one bird That clings to twig, ruffled against white sky. Oh cracked and twilight mirrors ever to catch One color, one glinting flash, of the splendor of things.
+ - There is no reason for amazement: surely one always knew that cultures decay, and life’s end is death.
+ - We have to live like people in a web of knives, we mustn’t reach out our hands or we get them gashed.
+
+39 quotes

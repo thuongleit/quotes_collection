@@ -1,0 +1,58 @@
+ - Until you prevail with God, you cannot prevail with men; your victory has to be spiritual first, before it is physical.
+ - God Gives Birth To gods!
+ - Kings don’t beg, they decree. They have only one destiny and that’s to reign. God has made you king. Reign and rule, refuse to beg!
+ - When you got born again your past was not erased, it became non-existent.
+ - As a Christian, you ought to be less concerned about where God is bringing you out from, rather, focus on where He’s taking you to.
+ - The challenge may not go away when you pray, and when it doesn’t go away, it simply means God believes that He has trained you enough to face it and win.
+ - A pastor can teach you on TV, but he can’t pastor you on TV. There’s so much to gain by belonging to a church.
+ - You are not a success until you start changing other lives permanently.
+ - What you see with the eyes of faith is more real than what you see with your optical eyes.
+ - It is important for Christians to spend time praying with or in the spirit-that is, praying in tongues. The Bible says, “For as many as are led by the Spirit of God, they are the sons of God”
+ - As a child of God, you must realize that you are on the winning side of prophecy; until you win it is not over!
+ - If you act your faith, you may look foolish for five minutes; but if you don’t act your faith, you may be foolish forever.
+ - When we pray, we make tremendous power available, dynamic in its working, causing changes in our favour. Certain prayer sessions are specially designed by the Lord to help straighten out things in the spirit-realm regarding our immediate or later future as individuals, families or ministries.
+ - I work hard, but I work from a position of rest.
+ - Every problem comes along with it’s solution; the bigger the problem, the bigger the testimony. Cheer up!
+ - People talk about me because I am a great man.
+ - You may flunk your exams in school and still make it in life, but if you flunk life’s exams, you’re sunk!
+ - When the Holy Spirit takes over your life, He’ll drive every sickness out of your body; He’ll make right everything that was wrong.
+ - When the Holy Spirit comes into your life, He will show you things to come; you will no longer be in the dark. You will no longer walk in confusion but live each day in the light. You will face the future with faith and confidence. He is the Spirit of reality, Hallelujah!
+ - When you speak in other tongues, no one understands what you’re saying, because you’re speaking to God. It’s a direct communication between your spirit and God. You’re speaking the language that only He understands.
+ - If you have the Holy Spirit and let Him take charge of your life, it doesn’t matter what your situation is, He’ll turn it around for your good.
+ - Success is causing the world around you to aspire to your inspiration.
+ - We have to challenge ourselves and be innovative so as to change the world. Get to this level of thinking. No small dreams, do big things!
+ - Begging in the Name of Jesus is an insult to His Name. Use His Name as a king, with boldness!
+ - God’s idea is for us to become the Word of God, in such a way that men can read the Word by looking at our lives.
+ - When God speaks, the Holy Spirit is the One who brings it to pass. He’s the Doer of the things of God. So, when God wants to do something in your life, it will have to be by the Holy Spirit. This is why you need the Holy Spirit in your life today.
+ - When the Holy Spirit comes into your life and you allow Him take charge of your life, He’ll bring in the anointing. The anointing of God’s Spirit will come upon everything you do.
+ - To become great, you have to be born great. If you are born again then you are the seed of Abraham. That means you have greatness in you!
+ - The Bible says, “For the kingdom of God is not meat and drink; but righteousness, and peace, and joy in the Holy Ghost”
+ - With the Holy Spirit, you have it made! For you, life is already successful.
+ - It’s absolutely imperative that you speak forth the Word concerning you, because until you do, it will have no power and it won’t work!
+ - God has not only made the promise of the Holy Spirit, He has actually given Him to us. It’s up to us now to receive Him. But for you to receive from God, you will have to be ready to respond to Him by faith. Until you respond to God by faith, you do not receive from Him, because God is a faith-God.
+ - I’m boasting in God’s Word, because I’ve found out His Word works.
+ - It’s not what you’re faced with that’s the problem, it’s what you do with the situation. Your experience is not the important thing; what really matters is what you do with your experience.
+ - The Holy Ghost unveils God’s Word to us; He reveals the things of God to us.
+ - The devil has been defeated, stop trying to defeat him. What we have left is the fight of faith, and it’s a good fight!
+ - There is no such thing as a powerful prayer; we only have powerful people praying to a powerful God.
+ - Describing yourself by your earthly nativity is carnality. Being born again, your nativity is of divinity.
+ - Your fellowship with God never came because of your righteousness. So how could your own righteousness maintain it?
+ - Revelation without a relationship produces rebellion.
+ - Good things don’t happen to the child of God; the child of God brings forth good things out of him.
+ - Every child is your child.
+ - Christ is not only a person, Christ is a place. When you come into Christ, you don’t come into a person; you come into a place.
+ - There is nothing wrong with being poor; but there is everything wrong with remaining poor after you have discovered your riches in Christ.
+ - God sends you into a situation not so that He can show He is God; but rather for you to show who you are!
+ - When you’re anointed, you become blessed of God such that everything you touch or do prospers. To be “blessed” means to be empowered to prosper.
+ - Excellence means that you’re prospering spiritually, mentally, physically and in every area of life. What does it mean to prosper? It means to do well, to have over and above, to walk in a high level with God. It means to be in a high class with God, where you can think like God and live like Him.
+ - When we pray, it’s the Holy Spirit Who makes the divine presence real to our spirits, and then we seem to ‘feel close’ to a living God. We are spiritually overwhelmed by divine glory.
+ - Jesus gave us the victory with which He overcame Satan, and commissioned us to cast out devils in His Name.
+ - God has never made a failure; that he gave birth to you means you are a success. Success is in your DNA.
+ - If at the age of thirty you don’t know what God has called you to do; you may never know.
+ - Until you respond to God by faith, you do not receive from Him, because God is a faith-God.
+ - This is the first thing the Holy Spirit does in your life. He brings you God’s presence, and when He does, you will no longer be in the dark. The Holy Spirit has a beautiful identity. He is called ‘The Angel of God’s presence.’ He is the One Who brings us the presence of God and makes it real to us.
+ - The goal of the Christian is not to become like Jesus; because as He is, so are we in this world.
+ - No man of God does something against the Lord.
+ - There are two very important things you need to realize from this verse of Scripture. The first one is: Whatever we must receive from God must come as an act of faith, because God is a Faith-God.
+
+56 quotes

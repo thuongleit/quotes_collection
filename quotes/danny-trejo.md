@@ -1,0 +1,21 @@
+ - I never imagined that I’d be out of prison.
+ - In order to make a great, epic movie, you have to have the four Bs – babes, bullets, blood and blades.
+ - The Only Things That Were Available To Me Were Either Be A Laborer Or Be A Drug Dealer. So I Became An Armed Robber. It Was A Lot Simpler.
+ - Everything good that’s ever happened to me came out of helping others.
+ - There is no significance of God in my life, God is my life. I would not be, without God. I am supposed to be dead.
+ - Acting is just a job. I’m exactly the same as that lady bringing us coffee, and I have to remember that.
+ - I didn’t make a deal with God, because you can’t make a deal with God. He put me here to talk to kids and to talk to drunks and help addicts. He gave me this “job” which makes it a lot easier to get through to people.
+ - When people clap for me I say, don’t clap for me, clap for what God has done.
+ - I think I’m a workaholic, but I’m a workaholic that is loving his work.
+ - If you look at the people in Hollywood who are heavy partiers, they’re selfish, self-centered and egotistical.
+ - I love old, vintage cars. I’ve got a 1936 Dodge Touring Sedan right now and there’s only five of them registered in the world, and I absolutely love working on it. It’s gorgeous.
+ - I love to work, so give me what you’ve got. I’ll play a tree, if you want me to. If you want fruit on it, then pay me more money. Otherwise, I just love to work.
+ - I had a crush Florence Henderson when I was younger, i would love to meet Marcia but I would prefer mom.
+ - I relate to any prison movie, as long as it has some authenticity.
+ - I love action films. I don’t really like drama.
+ - When people come at me they can’t win, they think they can, but they can’t. I’ll just walk away.
+ - The blessing that this film business has given me is that when I walk into a school I automatically have everyone’s attention. They want to hear what the guy from ‘Con Air’ and ‘Desperado’ has to say.
+ - Nobody gets killed when they’re happy. It always starts with an argument, or a debt.
+ - I understand the formula that producers hire directors and directors are hired to direct and actors are hired to act. I don’t have any conflict with any directors because I know they’re the boss.
+
+19 quotes

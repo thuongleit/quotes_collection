@@ -1,0 +1,21 @@
+ - By all means break the rules, and break them beautifully, deliberately and well.
+ - Wings are a constraint that makes it possible to fly.
+ - Typography exists to honor content.
+ - Space in typography is like time in music. It is infinitely divisible, but a few proportional intervals can be much more useful than a limitless choice of arbitrary quantities.
+ - Drop a word in the ocean of meaning and concentric ripples form. To define a single word means to try to catch those ripples. No one’s hands are fast enough.
+ - A man who would letterspace lower case would steal sheep, Frederic Goudy liked to say. If this wisdom needs updating, it is chiefly to add that a woman who would letterspace lower case would steal sheep as well .
+ - Typography is the craft of endowing human language with a durable visual form.
+ - Typographic style is founded not on any one technology of typesetting or printing, but on the primitive yet subtle craft of writing.
+ - Typography is to literature as musical performance is to composition: an essential act of interpretation, full of endless opportunities for insight or obtuseness.
+ - With type as with philosophy, music and food, it is better to have a little of the best than to be swamped with the derivative, the careless, the routine.
+ - If you divide the world into them and us, and history into ours and theirs, or if you think of history as something only you and your affiliates possess, then no matter what you know, no matter how noble your intentions, you have taken one step toward the destruction of the world.
+ - Typography at its best is a visual form of language linking timelessness and time.
+ - Poetry, I’m often told, is something made of words. I think it really goes the other way around: words are made of poetry.
+ - Popularity isn’t just something that happens. You have to give something in exchange for it, and that’s the dangerous part of the process.
+ - Literature in the written sense represents the triumph of language over writing: the subversion of writing for purposes that have little or nothing to do with social and economic control.
+ - When you die, your culture takes you in, and then, if you’ve given enough, your place is near the centre.
+ - If language is lost, humanity is lost. If writing is lost, certain kinds of civilization and society are lost, but many other kinds remain – and there is no reason to think that those alternatives are inferior.
+ - By all means break the rules...
+ - Stories are the reproductive organs of language.
+
+19 quotes

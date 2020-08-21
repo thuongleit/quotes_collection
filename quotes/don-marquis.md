@@ -1,0 +1,77 @@
+ - Ideas pull the trigger, but instinct loads the gun.
+ - If you make people think they’re thinking, they’ll love you; But if you really make them think, they’ll hate you.
+ - When a man tells you that he got rich through hard work, ask him: ‘Whose?’
+ - Every cloud has its silver lining but it is sometimes a little difficult to get it to the mint.
+ - Procrastination is the art of keeping up with yesterday.
+ - That stern and rockbound coast felt like an amateur when it saw how grim the puritans that landed on it were.
+ - Pity the meek, for they shall inherit the earth.
+ - An old stomach reforms more whiskey drinkers than a new resolve.
+ - The female of all species are most dangerous when they appear to retreat.
+ - My heart hath followed all my days Something I cannot name.
+ - For him who fain would teach the world The world holds hate in fee- For Socrates, the hemlock cup; For Christ, Gethsemane.
+ - As the skull of the man grows broader, so do his creeds. And his gods they are shaped in his image and mirror his needs. And he clothes them with thunders and beauty, He clothes them with music and fire, Seeing not, as he bows by their altars, That he worships his own desire.
+ - Punctuality is one of the cardinal business virtues: always insist on it in your subordinates.
+ - Happiness is the interval between periods of unhappiness.
+ - A pessimist is a person who has had to listen to too many optimists.
+ - This is another day! Are its eyes blurred with maudlin grief for any wasted past? A thousand thousand failures shall not daunt! Let dust clasp dust, death, death; I am alive!
+ - Yes, he’s got all them different kinds of thoroughbred blood in him, and he’s got other kinds you ain’t mentioned and that you ain’t slick enough to see.
+ - Blood will tell, but often it tells too much.
+ - Fishing is a delusion entirely surrounded by liars in old clothes.
+ - I love you as New Englanders love pie!
+ - I suppose the human race is doing the best it can but hells bells thats only an explanation its not an excuse.
+ - He worked like hell in the country so he could live in the city, where he worked like hell so he could live in the country.
+ - Honesty is a good thing, but it is not profitable to its possessor unless it is kept under control.
+ - There was once a Hindu sage, who sat down on the banks of the Ganges and thought for seventy years about the millennium. Just as he arrived at the solution and was putting it into verse, a mosquito stung him and he forgot it again at once.
+ - Not every woman in old slippers can manage to look like Cinderella.
+ - Give up the dream that Love may trick the fates To live again somewhere beyond the gleam Of dying stars, or shatter the strong gates Some god has builded high; give up the dream.
+ - By the time a bartender knows what drink a man will have before he orders, there is little else about him worth knowing.
+ - Publishing a volume of verse is like dropping a rose petal down the Grand Canyon and waiting for the echo.
+ - It wont be long now it wont be long man is making deserts of the earth it wont be long now before man will have used it up so that nothing but ants and centipedes and scorpions can find a living on it.
+ - Middle age is the time when a man is always thinking that in a week or two he will feel as good as ever.
+ - The chief obstacle to the progress of the human race is the human race.
+ - Life’s too damn funny for me to explain.
+ - A certain alloy of expediency improves the gold of morality and makes it wear all the longer.
+ - Many a man spanks his children for things his own father should have spanked out of him.
+ - A great many people who spend their time mourning over the brevity of life could make it seem longer if they did a little more work.
+ - We pay for the mistakes of our ancestors, and it seems only fair that they should leave us the money to pay with.
+ - The most pleasant and useful persons are those who leave some of the problems of the universe for God to worry about.
+ - It takes all sorts of people to make the underworld.
+ - It would be a colorless world if each individual did not secretly believe himself superior to almost everyone else.
+ - I have often noticed that ancestors never boast of the descendants who boast of ancestors. I would rather start a family than finish one. Blood will tell, but often it tells too much.
+ - What man calls civilization always results in deserts.
+ - One of the most important things to remember about infant care is: don’t change diapers in midstream.
+ - Insects have their own point of view about civilization a man thinks he amounts to a great deal but to a flea or a mosquito a human being is merely something good to eat.
+ - Just as soon as the uplifters get a country reformed it slips into a nose dive.
+ - The things that I can’t have I want, And what I have seems second-rate, The things I want to do I can’t, And what I have to do I hate.
+ - An idea isn’t responsible for the people who believe in it.
+ - There is always a comforting thought in time of trouble when it is not our trouble.
+ - It is a cheering thought to think that God is on the side of the best digestion.
+ - I once heard the survivors of a colony of ants that had been partially obliterated by a cow’s foot seriously debating the intention of the gods towards their civilization.
+ - The art of newspaper paragraphing is to stroke a platitude until it purrs like an epigram.
+ - Censors are necessary, increasingly necessary, if America is to avoid having a vital literature.
+ - Old godheads sink in space and drown Their arks like foundered galleons sucked down.
+ - Poetry is what Milton saw when he went blind.
+ - I do not see why men sheould be so proud insects have the more ancient lineage according to the scientists insects were insects when man was only a burbling whatisit.
+ - A sequel is an admission that you’ve been reduced to imitating yourself.
+ - Vibrations are the key to everything. Atoms used to be, but atoms have quite gone out.
+ - In order to influence a child, one must be careful not to be that child’s parent or grandparent.
+ - If the world were not so full of people, and most of them did not have to work so hard, there would be more time for them to get out and lie on the grass, and there would be more grass for them to lie on.
+ - Too many creatures both insects and humans estimate their own value by the amount of minor irritation they are able to cause to greater personalities than themselves.
+ - I would rather start a family than finish one.
+ - If you want to get rich from writing, write the sort of thing that’s read by persons who move their lips when they’re reading to themselves.
+ - There is bound to be a certain amount of trouble running any country. If you are president, the trouble happens to you. But if you are a tyrant you can arrange things so that most of the trouble happens to other people.
+ - In all systems of theology the devil figures as a male person. Yes, it is women who keep the church going.
+ - The trouble with the public is that there is too much of it; what we need in public is less quantity and more quality.
+ - I get up in the morning with an idea for a three-volume novel and by nightfall it’s a paragraph in my column.
+ - It has been my observation and experience, and that of my family, that nothing human works out well.
+ - If a child shows himself incorrigible, he should be decently and quietly beheaded at the age of twelve, lest he grow to maturity, marry, and perpetuate his kind.
+ - A demagogue is a person with whom we disagree as to which gang should mismanage the country.
+ - Man cannot be uplifted; he must be seduced into virtue.
+ - Most of the people living in New York have come here from the far to try to make enough money to go back to the farm.
+ - You want to know whether I believe in ghosts? Of course I do not believe in them. If you had known as many of them as I have, you would not believe in them either.
+ - When you can’t have anything else, you can have virtue.
+ - Of middle age the best that can be said is that a middle-aged person has likely learned how to have a little fun in spite of his troubles.
+ - No form of government matters nearly as much as the spirit and intelligence brought to the administration of any form of government.
+ - A fierce unrest seethes at the core, of all existing things:, it was the eager wish to soar, that gave the gods their wings.
+
+75 quotes

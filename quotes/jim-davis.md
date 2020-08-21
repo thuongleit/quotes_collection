@@ -1,0 +1,39 @@
+ - Good morning is a contradiction of terms.
+ - Life is like a hot bath. It feels good while you’re in it, but the longer you stay, the more wrinkled you get.
+ - Way down deep, we’re all motivated by the same urges. Cats have the courage to live by them.
+ - Avoid fruits and nuts. You are what you eat.
+ - Usually I commit to something in my head and then I start drawing.
+ - I’m still a farm boy at heart. If I hadn’t suffered from asthma as a child, I would be a farmer today.
+ - You’d have to go a long way to find someone who was more proud and grateful for what our veterans have done for all of us.
+ - In my head, the sky is blue, the grass is green and cats are orange.
+ - Life is like a Ferrari, it goes too fast. But that’s ok, because you can’t afford it anyway.
+ - Some people are absolutely funny and you want to wish them Happy Thanksgiving in funniest way possible. Here is the list of Funny Thanksgiving sayings. Just chose the quote you want to wish that person. Vegetables are a must on a diet. I suggest carrot cake, zucchini bread and pumpkin pie.
+ - Deep fry that sucker! – Garfield.
+ - I never met a lasagna I didn’t like.
+ - Jon: Our only thought is to entertain you! Garfield: Feed me.
+ - It’s amazing what one can accomplish when one doesn’t know what one can’t do.
+ - I have a fear of letting my mind wander. I’m afraid it might not come back.
+ - When in doubt, pig out!
+ - Vegetables are a must on a diet. I suggest carrot cake, zucchini bread, and pumpkin pie.
+ - There are so many opportunities in life, that the loss of two or three capabilities is not necessarily debilitating. A handicap can give you the opportunity to focus more on art, writing, or music.
+ - Nothing spoils lunch any quicker than a rogue meatball rampaging through your spaghetti.
+ - Cats are anthropomorphised in art because they are so laid back that you automatically attribute human thoughts and feelings to them.
+ - I thought you were dead, Mr. McCandles.
+ - My dream in life is to write the one gag that makes everyone in the world laugh.
+ - I stop short of being a workaholic.
+ - We have a group of people now who think they own the state. Its disgusting.
+ - When all else fails, look cute.
+ - There is never a need to outrun anything you can outwit.
+ - Readers have told me that their children have learned to read after years of struggle after starting to read Garfield’s comic strip and many people who have moved to the United States have said that they, too, learned English by reading Garfield.
+ - When you’re through with your cat, you can’t throw it in the trash.
+ - I thought if I could create a convincing cat I could say and do anything I wanted on the human condition.
+ - The understatement is the English contribution to comedy.
+ - I can go everywhere and no one recognises me.
+ - I didn’t have a whole lot of success getting dates, I was always a bit of a geek.
+ - I probably get more inspiration for human stories and idiosyncrasies than I do animal stories.
+ - You have to do something when you’re lying in bed. So you play with your mind.
+ - I was very happy and honored to create the Professor Garfield Foundation with Ball State to make reading fun.
+ - He who fills His pockets with the Rocks of Misdeeds shall surely sink in the River of Good Fortune.
+ - I was in and out of comas until I was nine and I would lose entire days and weeks. The novelty of being able to really do stuff hasn’t worn off – I still feel like I’m making up for lost time.
+
+37 quotes

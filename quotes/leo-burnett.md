@@ -1,0 +1,34 @@
+ - What helps people, helps business.
+ - Make it simple. Make it memorable. Make it inviting to look at. Make it fun to read.
+ - Products are made in the factory, but brands are created in the mind.
+ - Keep it simple. Let’s do the obvious thing -the common thing- but let’s do it uncommonly well.
+ - I am one who believes that one of the greatest dangers of advertising is not that of misleading people, but that of boring them to death.
+ - There’s no such thing as ‘hard sell’ and ‘soft sell.’ There’s only ‘smart sell’ and ‘stupid sell.’
+ - Advertising says to people, ‘Here’s what we’ve got. Here’s what it will do for you. Here’s how to get it.’
+ - Don’t tell me how good you make it; tell me how good it makes me when I use it.
+ - Good advertising is a happy wedding of words and pictures, not a contest between them.
+ - Before you can have a share of market, you must have a share of mind.
+ - We want consumers to say, ‘That’s a hell of a product’ instead of, ‘That’s a hell of an ad.’
+ - Steep yourself in your subject, work like hell, and love, honor and obey your hunches.
+ - I believe that superior creative work always has been, is, and always will be the hub of the wheel in any successful agency.
+ - If you can’t turn yourself into your customer, you probably shouldn’t be in the ad writing bsuiness at all.
+ - A company in which anyone is afraid to speak up, to differ, to be daring and original, is closing the coffin door on itself.
+ - Friction makes sparks and sparks start creative conflagrations.
+ - Good advertising should give the reader essential facts about the product or company advertised and should do so engagingly without trickery or hogwash.
+ - There is no such thing as a permanent advertising success.
+ - Rarely have I seen any really great advertising created without a certain amount of confusion, throw-aways, bent noses, irritation and downright cursedness.
+ - Too many ads that try not to go over the reader’s head end up beneath his notice.
+ - Regardless of the moral issue, dishonesty in advertising has proved very unprofitable.
+ - I am often asked how I got into the business. I didn’t. The business got into me.
+ - The work of an advertising agency is warmly and immediately human. It deals with human needs, wants, dreams and hopes. Its ‘product’ cannot be turned out on an assembly line.
+ - Plan the sale when you plan the ad.
+ - Fun without sell gets nowhere but sell without fun tends to become obnoxious.
+ - The secret of all effective originality in advertising is not the creation of new and tricky words and pictures, but one of putting familiar words and pictures into new relationships.
+ - Let’s gear our advertising to sell goods, but let’s recognize also that advertising has a broad social responsibility.
+ - I have learned to respect ideas, wherever they come from. Often they come from clients. Account executives often have big creative ideas, regardless of what some writers think.
+ - I have learned that you can’t have good advertising without a good client, that you can’t keep a good client without good advertising, and no client will ever buy better advertising than he understands or has an appetite for.
+ - Anyone who thinks that people can be fooled or pushed around has an inaccurate and pretty low estimate of people – and he won’t do very well in advertising.
+ - Whether or not the standard of living made possible by mass production and in turn by mass circulation, is supported by and filled with the work of us hucksters, I guess is something that only history can decide.
+ - A good ad which is not run never produces sales.
+
+32 quotes

@@ -1,0 +1,43 @@
+ - There is no lake at Camp Green Lake.
+ - It is better to take many small steps in the right direction than to make a great leap forward only to stumble backward.
+ - You have only one life, make the most of it.
+ - You’re responsible for yourself. You messed up your life, and it’s up to you to fix it. No one else is going to do it for you – for any of you.
+ - You need a reason to be sad. You don’t need a reason to be happy.
+ - I’m not saying it’s going to be easy. Nothing in life is easy. But that’s no reason to give up. You’ll be surprised what you can accomplish if you set your mind to it. After all, you only have one life, so you should try to make the most of it.
+ - I’m not stupid. I know everybody thinks I am. I just don’t like answering their questions.
+ - Life is like crossing a river. If you take a huge step-aim for too bigger dreams-then the current will knock you off your feet and carry you away. The way to do it is small steps, you will take hold of life. You will get there in the end.
+ - If only, if only, the moon speaks no reply; Reflecting the sun and all that’s gone by. Be strong my weary wolf, turn around boldly. Fly high, my baby bird, My angel, my only.
+ - Give me a dollar or I’ll spit on you.
+ - It was all because of his no-good-dirty-rotten-pig-stealing great-great-grandfather!
+ - I want kids to think that reading can be just as much fun and more so than TV or video games or whatever else they do. I think any other kind of message or morals that I might teach is secondary to first just enjoying a book.
+ - The impossible is more believable than the highly improbable.
+ - What amazes me is that most days feel useless. I don’t seem to accomplish anything-just a few pages, most of which don’t seem very good. Yet, when I put all those wasted days together, I somehow end up with a book of which I’m very proud.
+ - You make the decision: Whom did God punish?
+ - I didn’t become a good writer until I learned how to rewrite. And I don’t just mean fixing spelling and adding a comma. I rewrite each of my books five or six times, and each time I change huge portions of the story.
+ - It’s – I write the books and let the market find who reads it. I guess a young adult is anywhere from ten to fifteen.
+ - The time you quit learning is the time to quit playing.
+ - Not counting ‘Small Steps,’ I think ‘Holes’ is my best book, in terms of plot, and setting, and the way the story revealed itself. It hasn’t changed my life, other than that I have more money than I did before I wrote it. I’m still too close to ‘Small Steps’ to compare it to ‘Holes.’
+ - Rattlesnakes would be a lot more dangerous if they didn’t have the rattle.
+ - I may have ruined my life, but at least I got to eat some really good Chinese food.
+ - The bark on the tree was just a little softer.
+ - He could hardly lift his spoon during breakfast, and then he was out on the lake, his spoon soon replaced by a shovel.
+ - When I write a novel, every word is mine. I welcome suggestions from my editor, but in the end, I make all the final decisions.
+ - There was something special about being in a strange place, all alone in a mass of people even if you had just screwed up your life, or perhaps especially if you had just screwed up your life.
+ - You can’t let anybody else tell you what your choices are. Sometimes they won’t give you the right choice.
+ - Whenever you give someone a present or sing a holiday song, you’re helping Santa Claus. To me, that’s what Christmas is all about. Helping Santa Claus!
+ - Warning: Do not read this story right after eating. In fact, don’t read it right before eating either. In fact, just to be safe, don’t read this story if you’re ever planning to eat again.
+ - I’m no good at describing my books. ‘Holes’ has been out now for seven years, and I still can’t come up with a good answer when asked what that book is about.
+ - I jog in the morning and then write for about two hours. There are times when I’m really excited and can’t wait to get back to it. But there are days when I don’t know what’s coming next, and I really have to force it.
+ - Each beat told him he was still alive, at least for one more second.
+ - It’s funny how you can go from hating a girl to maybe liking her, maybe liking her a lot, just because she shows a little interest in you.
+ - Doesn’t every kid want to dig a hold to China? Didn’t you? What about Chinese children?
+ - In a way, it made him sad. He couldn’t help but think that a hundred times zero was still nothing.
+ - We may be surrounded by some greater reality, to which we are oblivious. And even if we could somehow perceive it in some entirely new way, it is extremely doubtful we would be able to comprehend what we perceived.
+ - Not everyone is as nice as us.
+ - My parents played bridge, and I remember being fascinated watching them. I sometimes got a chance to sit in on a hand, which I loved. But then I didn’t actually play on my own for about 30 years.
+ - I guess what led to me writing ‘Holes’ was having moved to Texas in 1991, and it was sort of my reaction to Texas.
+ - I write in the mornings, two or three hours every day, and then at least four times a week I play in a duplicate game at a bridge club. I try to go to tournaments three, four, or five times a year.
+ - Part of me becomes the characters I’m writing about. I think readers feel like they are there, the way I am, as a result.
+ - I think of a book and a play, or a book and a movie, as two separate things – I don’t think of it as my novel having a new life.
+
+41 quotes

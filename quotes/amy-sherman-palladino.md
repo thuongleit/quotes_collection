@@ -1,0 +1,33 @@
+ - Girl power in my mind is to let girls be exactly what they are. Let them be angry. Let them be resentful. And rebellious. Let them be hard and soft and loving and sad and silly. Let them be wrong. Let them be right. Let them be everything. because, they are everything.
+ - The thing about ‘Gilmore Girls’ is that it’s such a specific voice, and I lived with it for so long before it got on the air It’s a very specific rhythm and a very specific banter.
+ - Writing is a sad process, sitting on your ass for many, many hours, alone in a room, smelling like coffee, sadness and bitterness, and watching your youth leave.
+ - I don’t go on the Internet. I never go on the Internet. I don’t go on Twitter. I’m not on Facebook. I’ve seen friends go into dark, dark holes of sadness because of that. Frankly, I don’t have the time or the attention span for it.
+ - I believe that you have a boyfriend for certain times of your life, and I think the boyfriend who is your most beautiful first boyfriend is not the boyfriend that you’re with in college, and your college boyfriend is not your first boyfriend!
+ - I grew up where my parents would literally shove me in the car rather than have to say hello to a neighbor.
+ - I grew up in the Valley, and I didn’t know any of our neighbors. I think when you grow up like that, there’s always sort of a fantasy of a place where everybody knew each other, and you had that safe sort of feeling.
+ - If something ain’t working, it ain’t working. You can’t stick with it.
+ - TV is all about speed. TV is fast and furious. It’s gunslinger territory.
+ - I don’t believe in crowd funders. I don’t believe the fans should be paying for their own things.
+ - With directing, you have to wake up early, which stinks, but you get to hang out with the crew, you’re laughing, you’re active, and you’re working with the actors. It’s just more fun than writing. Writing is very hard.
+ - You simply cannot do a sitcom by committee. It will not work. You’ve got to have one or two clean, creative voices in charge, and there’s got to be some faith by the studio and network in those people to make the right choices.
+ - Every pilot I’ve ever written, I’ve fallen deeply and madly in love with. It’s the only way I work.
+ - I like a certain style of show, I like a certain pace, I like a rhythm, I like a lot of comedy in with my drama.
+ - Dance was always part of my life because I was a dancer and my mother was a dancer, and I love the theater.
+ - I can’t wait to sit with these unbelievable broads and relive a time where sleep did not exist, where stress and coffee were mama’s little helpers, and where we all dove into the deep end together to make something weird and very, very cool.
+ - These television shows that have 14 shots of somebody looking at each other with the wind blowing through their hair drive me insane.
+ - Well, I took ballet for many, many years, so my whole childhood really revolved around dance class. I grew up around dance; my mother was a dancer.
+ - When you write for a show that’s not yours, your job is to hear the voices of the characters and write as best you can for those voices.
+ - I don’t begrudge anyone else for anything, but to me, I think the fans deserve to have a studio put money behind their product because when the fans put money into a project and it makes any sort of money, it goes back to the studio. I think that’s a little shady.
+ - I would recommend that any writer get off their ass at least once and just try it. Directing is a completely different set of muscles. It also affects your writing because, once you start directing, you tend to write your scripts with directing in mind.
+ - People have nannies and big cars, and they want to go to Maui for Christmas. When there are those kind of stakes involved, people get ruthless.
+ - It’s tough to get any film made, even if you’re Martin Scorsese. It’s just hard to get films made.
+ - To me, crazy is not someone who has a creative vision and will fight for it.
+ - With a sitcom, everyday you do a run through, and people are judging you, and the scripts are being changed nightly, nightly, nightly.
+ - If we based everything in Hollywood on who was a nice guy, holy moly, we would have no movies. No actors would work. This is not an industry that is ruled by kindness and generosity.
+ - As a writer, all you want to do is write for great actors. That’s all.
+ - The way television works is that directors come in and out, and they’re not there all the time, following every character through every scene. They’re vagabonds who go from one show to another.
+ - I think music on television is just uniformly dreadful. It is mundane, it says nothing.
+ - I think every writer has got to direct. If you don’t direct, you can’t protect your work. The only way to ensure that it’s going to be as close as possible to what you put down on paper – and what you see and hear in your head – is to do it yourself.
+ - The dance world was a big part of my growing up.
+
+31 quotes

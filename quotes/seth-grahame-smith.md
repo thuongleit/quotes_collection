@@ -1,0 +1,65 @@
+ - Real power comes not from hate, but from truth.
+ - Without death,? he answered, ’life is meaningless. It is a story that can never be told. A song that can never be sung. For how would one finish it?
+ - It is a truth universally acknowledged that a zombie in possession of brains must be in want of more brains.
+ - Thank you, sir, but I am perfectly content being the bride of death.
+ - Of all the weapons in the world, love is the most dangerous.
+ - An accomplished woman is one who has a thorough knowledge of music, singing, drawing, dancing and the modern languages; she must be well trained in the fighting styles of the Kyoto masters and the modern tactics and weaponry of Europe.
+ - Your mother will never see you again if you do not marry Mr. Collins, and I will never see you again if you do; for I shall not have my best warrior resigned to the service of a man who is fatter than Buddha and duller than the edge of a learning sword.
+ - Elizabeth lifted her skirt, disregarding modesty, and delivered a swift kick to the creature’s head.
+ - I think zombies have always been an easy metaphor for hard times. Because they’re this big, faceless, brainless group of evil things that will work tirelessly to destroy you and think of nothing else.
+ - So long as this country is cursed with slavery, so too will it be cursed with vampires.
+ - The bottom half of the page had descended into a doodle of a tiny man giving the middle finger to a giant, angry eagle with razor-sharp talons. Beneath it, the caption: To Mock a Killing Bird.
+ - Some novels present a story form many points of view. Most movies tell only one person’s side of the story. Sometime it’s easy to use the strongest point of view, or find the character with the most dramatic experience. It depends on which themes the scriptwriter wants to explore.
+ - We may all deserve hell, but some of us deserve it sooner than others.
+ - Her only fault is that she lacks sense enough to avoid falling in love with such a fool as I!
+ - I feel like the luckiest guy on the planet. But, I literally work all day, every day, seven days a week, 365 days a year, and that’s not an exaggeration.
+ - This is a most unfortunate affair, and will probably be much talked of. But we must stem the tide of idle chatter, and pour into our wounded bosoms the soothing balm of vengeance.
+ - The business of Mr. Bennett’s life was to keep his daughters alive. The business of Mrs. Bennett’s was to get them married.
+ - I hereby resolve to kill every vampire in America.
+ - Of all the weapons she had commanded, Elizabeth knew the least of love; and of all the weapons in the world, love was the most dangerous.
+ - I would much prefer their minds to be engaged in the deadly arts than clouded with dreams of marriage and fortune, as your own so clearly is!
+ - I know of nobody that is coming, I am sure, unless Charlotte Lucas should happen to call in- and I am sure my dinners are good enough for her, since she is an unmarried woman of seven-and-twenty, and as such should expect little more than a crust of bread washed down with a cup of loneliness.
+ - If you’re Stephen King and you have a massive body of huge-selling well-respected work, you can pivot and do whatever you want. I don’t have that body of work, I don’t have that audience that’s comfortable with me enough yet to follow my bliss with me.
+ - What makes a good book and what makes a good movie are totally different things.
+ - Elizabeth sheathed her sword, knelt behind him, and strangled him to death with his own large bowel.
+ - The more precious His gift, the more anxious God for its return.
+ - But I am happy. And happiness, I have decided, is a noble ambition.
+ - There are so many stories to tell in the worlds of science fiction, the worlds of fantasy and horror that to confine yourself to even doing historical revisionist fiction, whatever you want to call it – mash-ups, gimmick lit, absurdist fiction – I don’t know if I want to do that anymore.
+ - I wouldn’t back away from what’s right just because it’s hard.
+ - Sometimes we see the Civil War in movies and imagine these neatly aligned rows of men with muskets, walking in line to shoot each other. In reality the things that fascinated me were how absolutely ruthless and violent so many engagements were, how much suffering and how men were not prepared.
+ - My sisters and I cannot spend any substantial time searching for Wickham, as we are each commanded by His Majesty to defend Hertfordshire from all enemies until such time as we are dead, rendered lame, or married.
+ - No ninjas! How was that possible? Five daughters brought up at home without any ninjas! I never heard of such a thing. Your mother must have been quite a slave to your safety.
+ - Most men have no purpose but to exist, Abraham; to pass quietly through history as minor characters upon a stage they cannot even see.
+ - So I suggest you stick close, pay attention, and avoid breaking the Terrorverse’s only commandment: Thou shall not be stupid.
+ - It was a sort of peace I have rarely enjoyed since. As if we were the only two souls on earth – all of nature ours to enjoy. I wondered why a creator who had dreamt such beauty would have slandered it with such evil. Such grief. Why He had not been content to leave it unspoilt. I still wonder.
+ - It’s absurd to think of ‘Pride and Prejudice,’ this classic, beloved book, beset with a zombie uprising. The goal is to make you suspend your disbelief enough to allow you to get lost in the story and believe what you’re reading for a while.
+ - Your quarrel is with God. I merely wish to offer Him the opportunity to judge you.
+ - The true roll in determing to embrace or reject anything is not whether it have any evil in it but whether it have more of evil than of good. There are few things wholly evil or wholly good.
+ - I fear that a life of death has made me numb to both.
+ - But if you read Jane Austen, you know that she had a wicked sense of humor. Not only was she funny, but her early writing was very dark and had a gothic tone to it.
+ - I think any period in history can be adapted into interesting fiction, as long as you approach the actual history with respect.
+ - Surely life has taught you that a thing can be both beautiful and vile.
+ - Movie characters rarely get to think out loud or talk very much about their emotions. Instead they have to, very briefly, show their feelings through their action or through dialog.
+ - Father may have been wanting in some things, but here he was masterful. Night upon night, I marveled at his power to hold listeners in rapt attention. He could tell a story with such detail, such flourish, that afterwards a man could swear it had been his own memory, and not a tale at all.
+ - I leave you, hoping that the lamp of liberty will burn in your bosoms until there shall no longer be a doubt that all mean are created free and equal.
+ - It was a really strange and unique sort of process for me to adapt my own book.
+ - Any man who has seen the face of death knows better than to seek him out a second time.
+ - I dare say she means to keep you from his attentions. Your honour demands she be slain.
+ - If a movie has more characters than an audience can keep track of, the audience will get confused and lose interest in the story.
+ - I feel rather like a rabbit that has taken a fox for its pupil.
+ - I’ve been a lifelong horror fan, but at the same time, I would say 90 percent of my reading is biographies and nonfiction history.
+ - I like my zombies slow and I like my zombies stupid.
+ - If a novelist has created vivid characters, interesting relationships, settings the reader can easily imagine, and intriguing stories, a screenwriter has loads to work with. The challenge comes with deciding what to cut and what to keep.
+ - All I ask is that my final months be happy ones, and that I be permitted a husband who will see to my proper Christian beheading and burial.
+ - I’ve always enjoyed reading history, particularly presidential biographies.
+ - On the contrary, there is something pleasing about his mouth when he speaks. And there is something of dignity in the way his trousers cling to those most English parts of him.
+ - I always say that the characters in Jane Austen’s original books are rather like zombies because they live in this bubble of immense wealth and privilege and no matter what’s going on around them they have a singular purpose to maintain their rank and to impress others.
+ - So I grew up in a very book-friendly environment and my education as a writer was reading. I think that’s the best education. Reading, and taking from the people I admired.
+ - I want to be judged harshly because that forces me to really sit down and focus.
+ - My day job is making TV shows.
+ - My job on ‘Dark Shadows’ was to make it fun and funny, first and foremost. It can still be dark and it can still even be gory and gothic at times, but it also needed to be fun and it needed to be an experience that people would enjoy having.
+ - Contrary to his infallibly “honest” image, Abe wasn’t above lying so long as it served a noble purpose.
+ - I decided that it was more important to laugh than to eat.
+ - If you write really good material, the rest just falls into place. There’s really no trick to it.
+
+63 quotes

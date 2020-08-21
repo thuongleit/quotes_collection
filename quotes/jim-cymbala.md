@@ -1,0 +1,52 @@
+ - The Bible does say, “My house shall be called a house of prayer for all nations.” Preaching, music, the reading of the Word-these things are fine-but they must never override prayer as the defining mark of God’s dwelling.
+ - The birth of the church was during a prayer meeting, not preaching, not singing, but prayer.
+ - I have discovered an astonishing truth. God is attracted to weaknesses.
+ - The apostles had this instinct: When in trouble, pray. When intimidated, pray. When challenged, pray. When persecuted, pray!
+ - No matter what I preach or what we claim to believe in our heads, the future will depend upon our times of prayer.
+ - The old saying is true: If you have only the Word, you dry up. If you have only the Spirit, you blow up. But if you have both, you grow up.
+ - Prayer begets Revival, which begets more prayer.
+ - You can tell how popular a church is by who comes on Sunday morning. You can tell how popular the pastor or evangelist is by who comes on Sunday night. But you can tell how popular Jesus is by who comes to the prayer meeting.
+ - People who have a seeking heart still make mistakes. But their reaction to rebuke and correction shows the condition of that heart. It determines what God is able to do with them in the future.
+ - I discovered an astonishing truth: God is attracted to weakness. He cannot resist those who humbly and honestly admit how desperately they need him.
+ - To be a Christian, you can’t go with the flow. You have to go by the Word of God.
+ - The work of God can only be carried on by the power of God. The church is a spiritual organism fighting spiritual battles: only spiritual power can make it perform as God ordained.
+ - O God, split the heavens and come down! Manifest yourself somehow. Do what only you can do.
+ - God says to us, “Pray, because I have all kinds of things for you; and when you ask, you will receive. I have all this grace, and you live with scarcity. Come unto me, all you who labor. Why are you so rushed? Where are you running now? Everything you need, I have.”
+ - The devil is not terribly frightened of our human efforts and credentials. But he knows his kingdom will be damaged when we begin to lift up our hearts to God.
+ - Every time we open the Bible, let’s stop and pray, whether for fifteen seconds or fifteen minutes, asking the Spirit to teach us. When I read the Bible, I want God to talk to my soul.
+ - It’s not about being a Baptist, Presbyterian, Pentecostal, or 5-Point Calvinist. God has only one family and, as Christians, we’re in it!
+ - Faith never denies reality but leaves room for God to grant a new reality.
+ - Prayer cannot truly be taught by principles and seminars and symposiums. It has to be born out of a whole environment of felt need. If I say, “I ought to pray,” I will soon run out of motivation and quit; the flesh is too strong. I have to be driven to pray.
+ - Let’s forget the novelties. If we prevail in prayer, God will do only what he can do. How he does things, when he does them, and in what manner are up to him. The name of Jesus, the power of his blood, and the prayer of faith have never lost their power over the centuries.
+ - I have seen God do more in people’s lives during ten minutes of real prayer than in ten of my sermons.
+ - The Bible does not say we should aim at numbers but rather urges us faithfully to proclaim God’s message in the boldness of the Holy Spirit. This will build God’s church God’s way.
+ - The cross, as poignant as it is, is understandable from a human perspective: an innocent man was murdered by crooked politicians and religious leaders. But the empty tomb – what can you say? Only a supernatural God could accomplish that.
+ - People pay attention when they see that God actually changes persons and sets them free. When a new Christian stands up and tells how God has revolutionized his or her life, no one dozes off. When someone is healed or released from a life-controlling bondage, everyone takes notice.
+ - I have since learned that the most mature believer is the one who is bent over, leaning most heavily on the Lord, and admitting his total inability to do anything without Christ. The greatest Christian is not the one who has achieved the most but rather the one who has received the most.
+ - God is not aloof. He is not disconnected. He says continually through the centuries, I’ll help you, I really will. When you don’t know where to turn, then turn to me. When you’re ready to throw up your hands – throw them up to me. Put your voice behind them too, and I’ll come and help you.
+ - A great door opened by God for work, but while I’m doing the work, all Hell breaks loose. Oh! The idea that when God opens a door and He’s with you, you don’t have to fight. Oh, what a joke. That is a joke. In fact, if you don’t feel the devil fighting against you, that’s a bad sign.
+ - God nowhere asks anyone to have a large church. He only calls us to do his work, proclaiming his Word to people he loves under anointing power of the Holy Spirit to produce results that only he can bring about.
+ - When we sincerely turn to God, we will find that His church always moves forward, not backward.
+ - Jesus called fishermen, not graduates of rabbinical schools. The main requirement was to be natural and sincere.
+ - God is more powerful than anybody’s past, no matter how wretched. He can make us forget – not by erasing the memory but by taking the sting and paralyzing effect out of it.
+ - Your future and mine are determined by this one thing: seeking after the Lord.
+ - Anything, and I mean anything, becomes a blessing if it drives us to prayer.
+ - The work of God can only be carried on by the power of God. The key is not $, organization, cleverness or education. No matter the society or culture, the city or town, God has never lacked the power to work through available people to glorify his name.
+ - For all of us involved in preaching the gospel, performing music, publishing Christian materials, and all the rest, there is an uncomfortable message here: Jesus is not terribly impressed with religious commercialism.
+ - By not forgiving, by not letting wrongs go, we aren’t getting back at anyone. We are merely punishing ourselves by barricading our own hearts.
+ - The fact that we were created to enjoy God and to worship him forever is etched upon our souls.
+ - When we see only what we want to see in the Bible, it loses all power to transform us.
+ - The more we pray, the more we sense our need to pray. And the more we sense a need to pray, the more we want to pray.
+ - I despair at the thought that my life might slip by without God showing Himself mighty in my life.
+ - Persistent calling upon the name of the Lord breaks through every stronghold of the devil, for nothing is impossible with God. For Christians in these troubled times there is simply no other way.
+ - What does it say about our churches today that God birthed the church in a prayer meeting, and prayer meetings today are almost extinct?
+ - Doesn’t the God who created the universe out of nothing and put all the stars in place, have the power to take care of your situation?
+ - Oh, how we need to wake up to the fact that the Holy Spirit’s blessing and power is the key to everything.
+ - Trouble is one of God’s great servants because it reminds us how much we continually need the Lord.
+ - The main thing that God asks for is our attention.
+ - In too many churches today, people don’t see manifestations of God’s power in answer to fervent praying. Instead, they hear arguments about theological issues that few people care about.
+ - It may not seem obvious at first glance, but the way we make decisions in life tells a lot about the kind of faith we have in Jesus Christ.
+ - The key is not money; organization, cleverness, or education. Are you and I seeing the results Peter saw? Are we bringing thousands of men and women to Christ the way he did? If not, we need to get back to His power source...
+ - We need to realize that the promises that overflow our Bibles will overflow into our own lives only as we appropriate them through prayer.
+
+50 quotes

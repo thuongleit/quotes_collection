@@ -1,0 +1,33 @@
+ - There’s so much writing I could have done and so many ideas that I had and so many things I wanted to work on that I didn’t. I like too much having things in my head rather than doing the work.
+ - He’s just another man who wants to teach me something.
+ - In the transcribing and the editing, you want some retention of how the person speaks – you don’t want to edit out all of the hesitations and idiosyncrasies. And to get people to say something they’ve never said before. That’s big.
+ - There are times when things are clear in your head and your heart and everything comes all aligned and it’s easy and it just feels good to do something. But most of the time it’s not like that. Most of the time there’s conflict between your head and your heart.
+ - It’s so hard to live that one needs a support around life. We can’t live without some supernatural support.
+ - Then if he’s sore with me, let him dump my ass. That will just give me more time to be a genius.
+ - It has long been known to me that certain objects want you as much as you want them. These are the ones that become important, the objects that you hold dear. The others fade from your life entirely. You wanted them, but they did not want you in return.
+ - There are certain people who do not feel like they were raised by wolves, and they are the ones who make the world tick. They are the ones who keep everything functioning so the rest of us can worry about what sort of person we should be.
+ - It’s nice to go into your doom. It’s so liberating.
+ - We tried not to smile, for smiling only encourages men to bore you and waste your time.
+ - I do feel it. And I’ve felt it my whole life, that the supernatural has a role in the world.
+ - When I was in high school, and even to a degree while I was in university, I wasn’t on the Internet. So it’s not as embedded in my soul, that kind of way of being.
+ - One good thing about being a woman is we haven’t too many examples yet of what a genius looks like. It could be me.
+ - I spend most of my time in my head. You can always work out solutions and satisfactions there. Maybe you can’t actually bring them about, but there’s usually a pleasant pillow of time between imagining you can, and realizing you cannot.
+ - I studied art history and philosophy and took economics and political science classes. I just took whatever I wanted and I didn’t worry about grades and I read and learned a lot, and I didn’t have much of a social life, so it was deeply absorbing.
+ - I always had a fantasy of meeting a girl who was as serious as I was.
+ - I think a lot of people try to edit themselves out and I think that’s a big mistake, because the person being interviewed is responding to a person, and if you don’t know who that person is then you don’t really know what’s going on with the person being interviewed.
+ - Maybe that’s good to not feel like you have to keep up when there’s so much to keep up with right now. It’s bottomless.
+ - There was not an awareness of pop culture in the household. There was a lot of respect for working hard, and for intellectual and professional achievement.
+ - You have to know where the funny is, and if you know where the funny is, you know everything.
+ - My parents are both scientists, and I was raised without god.
+ - Somehow I had turned myself into the worst thing in the world: I was just another man who wanted to teach me something!
+ - Writing fiction is a good way to inhabit other minds, if not other lives.
+ - When I’m editing, I try to bring out some dramatic structure. I think it is about theater in some way; it is a little play.
+ - We don’t know the effects we have on each other, but we have them.
+ - It’s fun to give pleasure to people.
+ - I kind of try to resist working a lot. I’m not a very disciplined worker.
+ - To go on and on about your soul is to miss the whole point of life. I could say that with more certainty if I knew the whole point of life.
+ - Sometimes you do have people who are great at curating; sometimes you have people curating who don’t know what they’re do...
+ - I’ve always had individual friends, but I didn’t find the people I wanted to learn from as an adult until my midtwenties.
+ - I feel like one can have all of that as a writer; you’re writing, you’re reading, you’re talking to interesting and intelligent people. Your life is structured around whatever book you’re writing, and so is your reading and so are many of your conversations.
+
+31 quotes

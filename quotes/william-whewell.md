@@ -1,0 +1,27 @@
+ - Every failure is a step to success.
+ - Every failure is a step to success. Every detection of what is false directs us towards what is true: every trial exhausts some tempting form of error.
+ - It is a test of true theories not only to account for but to predict phenomena.
+ - Man is the interpreter of nature, science the right interpretation.
+ - There is a mask of theory over the whole face of nature.
+ - Those who have obtained the farthest insight into Nature have been, in all ages, firm believers in God.
+ - Fundamental ideas are not a consequence of experience, but a result of the particular constitution and activity of the mind, which is independent of all experience in its origin, though constantly combined with experience in its exercise.
+ - Prudence supposes the value of the end to be assumed, and refers only to the adaptation of the means. It is the relation of right means for given ends.
+ - The object of science is knowledge; the objects of art are works. In art, truth is the means to an end; in science, it is the only end. Hence the practical arts are not to be classed among the sciences.
+ - In art, truth is a means to an end; in science, it is the only end.
+ - Every man has obligations which belong to his station. Duties extend beyond obligations, and direct the affections, desires, and intentions, as well as the actions.
+ - We cannot observe external things without some degree of Thought; nor can we reflect upon our Thoughts, without being influenced in the course of our reflection by the Things which we have observed.
+ - The earlier truths are not expelled but absorbed, not contradicted but extended; and the history of each science, which may thus appear like a succession of revolutions, is, in reality, a series of developements.
+ - The person who did most to give to analysis the generality and symmetry which are now its pride, was also the person who made mechanics analytical; I mean Euler.
+ - The catastrophist constructs theories, the uniformitarian demolishes them.
+ - Gold and iron at the present day, as in ancient times, are the rulers of the world; and the great events in the world of mineral art are not the discovery of new substances, but of new and rich localities of old ones.
+ - Conscience is the reason employed about questions of right and wrong.
+ - The present generation finds itself the heir of a vast patrimony of science; and it must needs concern us to know the steps by which these possessions were acquired, and the documents by which they are secured to us and our heirs for ever.
+ - But with regard to the material world, we can at least go so far as this;-we can perceive that events are brought about, not by insulated interpositions of Divine power, exerted in each particular ease, but by the establishment of general laws.
+ - To discover the laws of operative power in material productions, whether formed by man or brought into being by Nature herself, is the work of a science, and is indeed what we more especially term Science.
+ - The hypotheses we accept ought to explain phenomena which we have observed. But they ought to do more than this: our hypotheses ought to foretell phenomena which have not yet been observed.
+ - The system becomes more coherent as it is further extended. The elements which we require for explaining a new class of facts are already contained in our system. In false theories, the contrary is the case.
+ - Geometry in every proposition speaks a language which experience never dares to utter; and indeed of which she but halfway comprehends the meaning.
+ - A man really and practically looking onwards to an immortal life, on whatever grounds, exhibits to us the human soul in an enobled attitude.
+ - Hence no force, however great, can stretch a cord, however fine, into a horizontal line which is accurately straight: there will always be a bending downwards.
+
+25 quotes

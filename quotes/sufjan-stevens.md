@@ -1,0 +1,47 @@
+ - Everyone suffers; life is pain; and death is the final punctuation at the end of that sentence, so deal with it. I really think you can manage pain and suffering by living in fullness and being true to yourself and all those seemingly vapid platitudes.
+ - I like residing in abstraction.
+ - Love is unconditional and incomprehensible. And I believe it’s possible to love absent of mutual respect.
+ - When I live, I’ll give it all I’ve got.
+ - I still describe myself as a Christian, and my love of God and my relationship with God is fundamental, but its manifestations in my life and the practices of it are constantly changing. I find incredible freedom in my faith.
+ - I quickly learned that you don’t have to be incarcerated by suffering, and that, in spite of the dysfunctional nature of your family, you are an individual in full possession of your life.
+ - We live in a world that is cruel to the earth itself. Man is a biological terrorist.
+ - The Internet is just one big gossip chamber – that’s why it’s so fascinating and entertaining. It’s a fabulous platform for superficial communication.
+ - My music is just about story telling. I don’t have much to say, and I’m not trying to change anyone’s mind. I’m just singing through conviction about what I love and what I care about, starting with the very small.
+ - All the time we spent in bed, counting miles before we said, fall in love and fall apart, things will end before they start.
+ - There is nothing more incredible and moving and appealing than good music, and it cannot always be reduced to a story, to exposition. It’s so much more abstract and brilliant.
+ - That’s really where my heart is, unfortunately – I’m less interested in songwriting and more into just making noise.
+ - I’m a very self-conscious person, I think we all are, but I’m especially not very comfortable in my body. I always feel really weird and awkward on the street or on the stage. It has nothing to do with circumstances, it’s just an ongoing psychological state, like white noise.
+ - I remember Detroit feeling really unsafe, feeling scared a lot. Our house was broken into, our car was stolen, we had to get a watchdog, we would get beat up in the street, I had my bike stolen. There was just a lot of real anarchy on the streets and sidewalks.
+ - Public school felt like prison – cinderblock walls, fluorescent lights, metal lockers. It was so sterile and unstimulating.
+ - I think of the saddest thing I can and then add a sick dog to that. If I think of a sick dog from the beginning, I just stop there.
+ - I’ve always been a visual person, I’m formerly a graphic designer. I’ve always seen myself as an observer. I like to maintain objectivity and don’t get too intimately involved in my subjects.
+ - I’ve never known a man who loved me.
+ - Tuesday night at the Bible study we lift our hands and pray over your body, but nothing ever happens.
+ - I was feeling privileged and self-conscious about my life as a musician, which feels self-absorbed. I can’t help it, I am a musician. This is what I do.
+ - An imaginary baby is so much easier than a real baby. No diapers to change.
+ - There’s a sense of urgency in understanding that your body is not really your own. We can control it to a certain extent through habits and good behavior, but there’s so much we don’t have control of.
+ - I’ve always been obsessed with electronics and using computers and software. It’s always been part of my vernacular.
+ - The Internet is manic. It’s very strange. I don’t think it’s healthy. They should outlaw posting comments! It’s a bummer to go somewhere to get information or buy tickets and you encounter profanity everywhere you go.
+ - My Dad used to say that the balance of the world relied on all of the monks who were living outside of society in creative isolation. I don’t quite understand the ascetic life or the private life or the monastic private life. But I definitely understand privacy’s value.
+ - If there’s any kind of morality, for me, it’s about reality; what is reality? I have a hard time distinguishing what is valuable when it comes to the real world and the fantasy world. Like, should I invest my time in the ordinary world or the imaginary world?
+ - I’m terrified of just being myself because I think it’s boring. I know who I really am and I think it’s boring.
+ - I’ve been working a lot on figuring out how to sing differently and better. I want to become a better singer. I want to sing out more. I want to me more extroverted, vocally.
+ - Life is all about toiling and labor. But obviously I get great joy in confronting challenge and taking risk.
+ - It’s a mystical quality of music, that music isn’t really concrete, and it’s communicating abstractions about imaginary worlds. At least, my music’s like that. It’s not real. It’s unreal, it’s all fabrication. To write a song about Obama would suddenly break the spell.
+ - Fiction has always been a thorn in my side, because I’ve always wanted to be a writer but I can’t seem to really do it.
+ - The round-up is an aggressive tradition. I’m trying to objectively be a steward of the tradition and what it means in its choreography.
+ - Growing up on the border there, we were always frustrated with people’s pronunciations of towns in Michigan, and people mispronouncing Illinois. There are all these Native American words that no one really knows how to pronounce.
+ - I’m always hearing music in terms of what I can take out of it, and I think I’ve always listened like that. I have a hard time just listening for pleasure. I’m much less about instinct, and more of a utilitarian listener.
+ - It’s traumatic to meditate on the availability of information through the Internet, or the way we perceive the world as a result. People don’t experience things totally or viscerally anymore. It’s all through representation, be it a record on YouTube or a post on a blog.
+ - Pro Tools is an incredible resource. I think it’s enabled me to do things that I wouldn’t have been able to do without this kind of computer editing.
+ - A musician’s attempt to summarize his or her work leads to all this prescriptive chatter, or what I call the ‘Modifier’s Madness.’ A lot of adjectives working overtime.
+ - The music is the imperative. It has the upper hand. I think all music, even though it’s an abstraction, does motivate a particular meaning. Then it’s the job of the musician to honor that meaning and to somehow implement lyrical material that can accommodate that emotional environment.
+ - We live in community, and we’re created in community. We’re created out of the unity of two people, and then we’re made into a family. It’s just inherent in who we are.
+ - I think musicians should stay off television generally.
+ - I think musicians should stay off television generally. I get asked all the time. Those shows are just promoting insipid comedies. Who watches those shows? And whoever does I don’t think my music would speak to those people. I don’t even want those people to hear what I’m doing.
+ - There’s such a magnitude of record taking. It’s so exhaustive. Bandwidth and hard drive space are able to accommodate limitless capacities to take a record of anything and everything.
+ - I don’t really have a domestic inclination. Even my apartment has a semblance of a storage facility. It’s just stacks, there are no bookshelves, just books and piles of stamp collections and weird little sewing and knitting projects.
+ - One of my strongest memories is my father playing bongos in the living room in Detroit listening to Motown radio. He was this skinny white bald guy, but he was really moved by blues and Motown and funk.
+ - We stayed a long, long time, to see you, to meet you, to see you at last.
+
+45 quotes

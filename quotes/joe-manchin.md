@@ -1,0 +1,35 @@
+ - Every child should have a caring adult in their lives. And that’s not always a biological parent or family member. It may be a friend or neighbor. Often times it is a teacher.
+ - I believe in health care reform.
+ - Millions and millions of people are proud gun owners, and they do it responsibly and by the law.
+ - Every child should have a safe place in their life.
+ - I am very proud of the critical role West Virginians play in providing energy to our nation.
+ - I’m a sportsman. You know, I go out clay shooting and put three shells in.
+ - The time has come to make the difficult decision. Charity begins at home. We can no longer afford to rebuild Afghanistan and America. We must choose. And I choose America.
+ - I think it’s time to rebuild America.
+ - Whoever is president, my first priority is the same – as always. I look for what’s best for West Virginia and the nation as a whole.
+ - Well, you know, first of all, let me just say that I am a proud member of the NRA and have been, and I’m a lifetime member and will always be.
+ - A child’s geographic location, race or parent’s income level should not predetermine their life’s course and it’s up to us to see that they don’t.
+ - In West Virginia, the most vulnerable people we have are people who get up every morning and go to work.
+ - The work completed during the special session was just the beginning. During those six days we lit a spark that will positively impact the lives of our children and grandchildren, but the full fire is yet to come.
+ - We shouldn’t accept mediocrity as the best a politician can do.
+ - Wherever there is one job on the verge of being lost, I will fight to save it. Wherever there is one company looking to grow in West Virginia, I will fight to make that growth a reality.
+ - I would never abdicate, nor would I expect any other governor to abdicate, the responsibility to protect the people of my state.
+ - I don’t know anybody that doesn’t own a gun.
+ - I fully expect to be able to complete one more campaign goal – and that is to proudly report that signs have been erected as you enter our great state that say ‘Welcome to Wild, Wonderful West Virginia: Open for Business!’
+ - Economic development is what’s going to make mountaintop removal palatable.
+ - We have reduced sales tax on food. Now we want it eliminated.
+ - I can assure you that my wife and I – every penny of income we’ve ever had, our taxes were paid in West Virginia.
+ - I’m determined that Iran will not get a nuclear weapon.
+ - If it’s concerning immigration, do something on immigration, put your concerns on the President’s actions and I’ll vote on them. I’m not going to play politics and start playing around with the Homeland Security, there’s no pressure that’s going to change where I am.
+ - If you’re wanting to do policy, it should be bipartisan.
+ - I know firsthand how agonizing waiting can be.
+ - There’s a lot of Democrats, myself included, who have supported right-to-life.
+ - I strongly believe that every American should always be rooting for our president to do well, no matter which political party that he or she might belong to.
+ - We have to change the culture of mass violence we have.
+ - Our workers comp debt is the Achilles heel of our state’s economy, and I firmly believe that in order to create more good jobs in West Virginia this system must be fixed and it must be fixed now. We cannot afford to wait even one more minute.
+ - I just think, you know, when we talk about a politician, I think a person has to be themselves. Let the voters see the real you.
+ - I don’t know anyone in the hunting or sporting arena that goes out with an assault rifle.
+ - Why would anybody not own a gun?
+ - I strongly believe the DREAM Act should require the completion of a degree.
+
+33 quotes

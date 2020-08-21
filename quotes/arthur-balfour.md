@@ -1,0 +1,26 @@
+ - Nothing matters very much, and few things matter at all.
+ - Enthusiasm moves the world.
+ - Ask with urgency and passion.
+ - The power of authority is never more subtle and effective than when it produces a psychological atmosphere or climate favorable to the life of certain modes of belief, unfavorable, and even fatal, to the life of others.
+ - It has always been desirable to tell the truth, but seldom if ever necessary.
+ - I’d rather take advice from my valet than from the Conservative Party Conference.
+ - Every human soul is of infinite value, eternal, free; no human being, therefore, is so placed as not to have within his reach, in himself and others, objects adequate to infinite endeavor.
+ - I look forward to a time when Irish patriotism will as easily combine with British patriotism as Scottish patriotism combines now.
+ - Man, so far as natural science by itself is able to teach us, is no longer the final cause of the universe, the Heaven-descended heir of all the ages. His very existence is an accident, his story a brief and transitory episode in the life of one of the meanest of the planets.
+ - I never forgive, but I always forget.
+ - I am more or less happy when being praised, not very comfortable when being abused, but I have moments of uneasiness when being explained.
+ - Why can’t the Jews and the Arabs just sit down together and settle this like good Christians?
+ - Society, dead or alive, can have no charm without intimacy and no intimacy without an interest in trifles.
+ - His Majesty’s Government looks with favour upon the establishment in Palestine of a national home for the Jews.
+ - Herbert Asquith’s clarity is a great liability because he has nothing to say.
+ - I do not know how it comes about, but if you sit opposite a man every day and you are engaged in fighting him, you cannot help getting a liking for him whether he deserves it or not.
+ - No country can allow its safety to be wholly dependent on faithful observance by other states of rules to which they are obliged.
+ - There are plenty of cases of war being begun before it is declared.
+ - I do not stare at a gentleman in distress.
+ - He has only half learned the art of reading who has not added to it the more refined art of skipping and skimming.
+ - Science preceded the theory of science, and is independent of it. Science preceded naturalism, and will survive it.
+ - Advice would be more acceptable if it didn’t always conflict with our plans.
+ - Kant, as we all know, compared moral law to the starry heavens, and found them both sublime. On the naturalistic hypothesis we should rather compare it to the protective blotches on a beetle’s back, and find them both ingenious.
+ - The tyranny of majorities may be as bad as the tyranny of kings.
+
+24 quotes

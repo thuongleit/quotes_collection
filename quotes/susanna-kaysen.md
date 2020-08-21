@@ -1,0 +1,55 @@
+ - I know what it’s like to want to die. How it hurts to smile. How you try to fit in but you can’t. How you hurt yourself on the outside to try to kill the thing on the inside.
+ - Smile and the world smiles with you, cry and you cry alone.
+ - Every window in Alcatraz has a view of San Francisco.
+ - I told her once I wasn’t good at anything. She told me survival is a talent.
+ - The only way to stay sane is to go a little crazy.
+ - Freedom was the price of privacy.
+ - Crazy isn’t being broken or swallowing a dark secret. It’s you or me amplified. If you ever told a lie and enjoyed it. If you ever wished you could be a child forever.
+ - Mental illness seems to be a communication problem between interpreters one and two.
+ - And in the end, I lost him. I did it on purpose, the way Garance lost Baptiste in the crowd. I needed to be alone, I felt. I wanted to be going on alone to my future.
+ - With wild eyes that had seen freedom.
+ - A thought is a hard thing to control.
+ - Tell me that you don’t take that blade and drag it across your skin and pray for the courage to press down.
+ - A successful suicide demands good organization and a cool head, both of which are usually incompatible with the suicidal state of mind.
+ - It is easy to slip into a parallel universe. There are so many of them: worlds of the insane, the criminal, the crippled, the dying, perhaps of the dead as well. These worlds exist alongside this world and resemble it, but are not in it.
+ - As far as I could see, life demanded skills I didn’t have.
+ - There is thought, and then there is thinking about thoughts, and they don’t feel the same.
+ - Insanity comes in two basic varieties: slow and fast. I’m not talking about onset or duration. I mean the quality of the insanity, the day-to-day business of being nuts.
+ - When I was supposed to be awake, I was asleep. When I was supposed to sleep, I was silent. When a pleasure offered itself to me, I avoided it.
+ - Not everything has a happy ending, and not everything has an ending. Some things just kind of dribble away or cut off abruptly.
+ - When women are angry at men, they call them heartless. When men are angry at women, they call them crazy.
+ - My chronic feelings of emptiness and boredom came from the fact that I was living a life based on my incapacities, which were numerous.
+ - It was a spring day, the sort that gives people hope: all soft winds and delicate smells of warm earth. Suicide weather.
+ - When you’re sad you need to hear your sorrow structured into sound.
+ - If I could have any job in the world I’d be a professional Cinderella.
+ - In a strange way we were free. We’d reached the end of the line. We had nothing more to lose. Our privacy, our liberty, our dignity: all of this was gone and we were stripped down to the bare bones of our selves.
+ - Scar tissue has no character. It’s not like skin. It doesn’t show age or illness or pallor or tan. It has no pores, no hair, no wrinkles. It’s like a slip cover. It shields and disguises what’s beneath. That’s why we grow it; we have something to hide.
+ - Maybe I was just flirting with madness the way I flirted with my teachers and my classmates.
+ - It’s a long way from not having enough serotonin to thinking the world is “stale, flat and unprofitable”; even further to writing a play about a man driven by that thought.
+ - Emptiness and boredom: what a complete understatement. What I felt was complete desolation. Desolation, despair and boredom.
+ - Actually, it was only part of myself I wanted to kill: the part that wanted to kill herself, that dragged me into the suicide debate and made every window, kitchen implement, and subway station a rehearsal for tragedy.
+ - Was insanity just a matter of dropping the act?
+ - I noticed that some of my deadness was being replaced by an intense feeling about the Greek stories and the Bible stories. They were similar. There was something naked about these stories. Terrible things happened, and then some more terrible things.
+ - I am not a nurse escorting six lunatics to the ice cream parlor.
+ - We say that Columbus discovered America and Newton discovered gravity, as though America and gravity weren’t there until Columbus and Newton got wind of them.
+ - It’s a fairly accurate portrait of me at eighteen, minus a few quirks like reckless driving and eating binges. It’s accurate but it isn’t profound.
+ - My family had a lot of characteristics – achievements, ambitions, talents, expectations – that all seemed to be recessive in me.
+ - It was my misfortune-or salvation-to be at all times perfectly conscious of my misperceptions of reality.
+ - You have to have a somewhat cold heart to be a writer.
+ - The world didn’t stop because we weren’t in it anymore.
+ - All my integrity seemed to lie in saying No.
+ - What is it about meter and cadence and rhythm that makes their makers mad?
+ - I think many people kill themselves simply to stop the debate about whether they will or they won’t.
+ - Our hospital was famous and housed many great poets and singers. Did the hospital specialize in poets and singers or was it that poets and singers specialized in madness?
+ - Viscosity and velocity are opposites, yet they can look the same. Viscosity causes the stillness of disinclination, velocity causes the stillness of fascination. An observer can’t tell if a person is silent and still because inner life has stalled or because inner life is transfixingly busy.
+ - Whatever we call it – mind, character, soul – we like to think we possess something that is greater than the sum of our neurons and that animates us.
+ - Are you crazy? It’s a common phrase, I know. But it means something particular to me: the tunnels, the security screens, the plastic forks, the shimmering, ever-shifting borderline that like all boundaries beckons and asks to be crossed. I do not want to cross it again.
+ - But when they were done, I wondered if there would be a next time. I felt good. I wasn’t dead, yet something was dead. Perhaps I’d managed my peculiar objective of partial suicide. I was lighter, airier than I’d been in years.
+ - Was everybody seeing this stuff and acting as though they weren’t? Was insanity just a matter of dropping the act?
+ - You could also “request” to be locked into the seclusion room. Not many people made that request. You had to “request” to get out too. A nurse would look through the chicken wire and decide if you were ready to come out. Somewhat like looking at a cake through the glass of the oven door.
+ - It’s one of the reasons I became a writer, to be able to smoke in peace.
+ - Something about the goat dancing made me want to cry.
+ - By the time we hit the streets they were silent and closed in on us, and they had assumed the Nonchalant Look, an expression that said, I am not a nurse escorting six lunatics to the ice cream parlor. But they were, and we were their six lunatics, so we behaved like lunatics.
+ - And this was the main precondition, that anything might be something else. Once I’d accepted that, it followed that I might be mad, or that someone might think me mad. How could I say for certain that I wasn’t, if I couldn’t say for certain that a curtain wasn’t a mountain range?
+
+53 quotes

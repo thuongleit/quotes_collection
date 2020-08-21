@@ -1,0 +1,61 @@
+ - I learned law so well, the day I graduated I sued the college, won the case, and got my tuition back.
+ - Treat employees like partners, and they act like partners.
+ - It is bad to suppress laughter. It goes back down and spreads to your hips.
+ - Most of us spend the first six days of each week sowing wild oats; then we go to church on Sunday and pray for a crop failure.
+ - I don’t have to look up my family tree, because I know that I’m the sap.
+ - I like long walks, especially when they’re taken by people who annoy me.
+ - California is a fine place to live – if you happen to be an orange.
+ - I don’t want to own anything that won’t fit into my coffin.
+ - An associate producer is the only guy in Hollywood who will associate with a producer.
+ - The world is a grindstone and life is your nose.
+ - He was so narrow minded that if he fell on a pin it would blind him in both eyes.
+ - Everything is for the eye these days – TV, Life, Look, the movies. Nothing is just for the mind. The next generation will have eyeballs as big as cantaloupes and no brain at all.
+ - He dreamed he was eating shredded wheat and woke up to find the mattress half gone.
+ - Everywhere outside New York City is Bridgeport, Connecticut.
+ - Cocktail party: A gathering held to enable forty people to talk about themselves at the same time. The man who remains after the liquor is gone is the host.
+ - Imitation is the sincerest form of television.
+ - He writes so well he makes me feel like putting my quill back in my goose.
+ - The American arrives in Paris with a few French phrases he has culled from a conversational guide or picked up from a friend who owns a beret.
+ - If the grass is greener in the other fellow’s yard- let him worry about cutting it.
+ - With the advance of refrigeration, I hope that along with the frozen foods someday we will have frozen conversation. A person will be able to keep a frozen promise indefinitely.
+ - My hometown was so dull that one time the tide went out and never came back.
+ - He always had a chip on his shoulder that he was ready to use to kindle an argument.
+ - When Jack Benny plays the violin, it sounds as though the strings are still in the cat.
+ - It was once rumored that fledgling executives walked around their offices backwards so they wouldn’t have to face an issue.
+ - Television is a triumph of equipment over people, and the minds that control it are so small that you could put them in a gnat’s navel with room left over for two caraway seeds and an agent’s heart.
+ - Television is a medium because anything well done is rare.
+ - If I could get my membership fee back, I’d resign from the human race.
+ - If criticism had any power to harm, the skunk would be extinct by now.
+ - We are living in the machine age. For the first time in history the comedian has been compelled to supply himself with jokes and comedy material to compete with the machine. Whether he knows it or not, the comedian is on a treadmill to oblivion.
+ - There are two kinds of jokes – funny jokes and Jack Benny jokes.
+ - A molehill man is a pseudo-busy executive who comes to work at 9 AM and finds a molehill on his desk. He has until 5 PM to make this molehill into a mountain. An accomplished molehill man will often have his mountain finished before lunch.
+ - I’m going to Boston to see my doctor. He’s a very sick man.
+ - English coffee tastes like water that has been squeezed out of a wet sleeve.
+ - Condensed milk is wonderful. I don’t see how they can get a cow to sit down on those little cans.
+ - I’m a little hoarse tonight. I’ve been living in Chicago for the past two months, and you know how it is, yelling for help on the way home every night. Things are so tough in Chicago that at Easter time, for bunnies the little kids use porcupines.
+ - Hollywood is a great place if you’re an orange.
+ - During the Samuel Johnson days they had big men enjoying small talk; today we have small men enjoying big talk.
+ - Ed Sullivan will be around as long as someone else has talent.
+ - A comedian who starts talking to himself becomes his own audience. This is fatal.
+ - On ships they call them barnacles; in business they attach themselves to desks and are called vice presidents.
+ - Radio is a bag of mediocrity where little men with carbon minds wallow in sluice of their own making.
+ - Father Time is the make-up man responsible for the physical changes that determine the parts the average actor is to play.
+ - All I know about humor is that I don’t know anything about it.
+ - Television is a device that permits people who haven’t anything to do to watch people who can’t do anything.
+ - The average vice-president is a form of executive fungus that attaches itself to a desk. On a boat this growth would be called a barnacle.
+ - The first thing that strikes a visitor to Paris is a taxi.
+ - If children could vote, Jesse Jackson would be our next president.
+ - A human being is nothing but a story with skin around it.
+ - He has no idea what it was like to grow up in the South, where you had to hold your head down.
+ - The advertising world had space men in it before spacemen existed.
+ - All that the comedian has to show for his years of work and aggravation is the echo of forgotten laughter.
+ - After quitting radio I was able to live on the money I saved on aspirins.
+ - He’s so small, he’s a waste of skin.
+ - I’d rather have two girls at seventeen than one at thirty-four.
+ - My agent gets 10 percent of everything I get, except the blinding headaches.
+ - A psychiatrists is the next man you start talking to after you start talking to yourself.
+ - Success is like dealing with your kid or teaching your wife to drive. Sooner or later you’ll end up in the police station.
+ - She used to be a teacher but she has no class now.
+ - In show business, more showgirls are kept than promises.
+
+59 quotes

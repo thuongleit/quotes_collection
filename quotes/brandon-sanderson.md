@@ -1,0 +1,178 @@
+ - Life before Death. Strength before Weakness. Journey before Destination.
+ - The purpose of a storyteller is not to tell you how to think, but to give you questions to think upon.
+ - Nothing will train you to write better as a writer, than working on your next book.
+ - Every man is a hero of his own story.
+ - To lack feeling is to be dead, but to act on every feeling is to be a child.
+ - If you give up what you want most for what you think you should want more, you’ll end up miserable.
+ - I will protect those who cannot protect themselves.
+ - This world, it is a tempest sometimes. But remember, the sun always rises again.
+ - Overcome your guilt. Care, but not too much. Take responsibility, but don’t blame yourself. Protect, save, help- but know when to give up. They’re precarious ledges to walk. How do I do it?
+ - Strength does not make one capable of rule; it makes one capable of service.
+ - Somebody has to start. Somebody has to step forward and do what is right, because it is right.
+ - Control yourself. Become someone who can handle this.
+ - Being polite to a person is not a sign of respect for them. It is merely a sign of a good upbringing and a balanced nature.
+ - Sometimes the prize is not worth the costs. The means by which we achieve victory are as important as the victory itself.
+ - Novels aren’t just happy escapes; they are slivers of people’s souls, nailed to the pages, dripping ink from veins of wood pulp. Reading the right one at the right time can make all the difference.
+ - Never throw the first punch. If you have to throw the second, try to make sure they don’t get up for a third.
+ - The mark of a great man is one who knows when to set aside the important things in order to accomplish the vital ones.
+ - Lately, I feel like my life is a book written in a language I don’t know how to read.
+ - A man was defined not by his flaws, but by how he overcame them.
+ - Act with honor, and Honor will aid you.
+ - You could be writing the book that changes your life.
+ - I try to avoid having thoughts. They lead to other thoughts, and – if you’re not careful – those lead to actions. Actions make you tired. I have this on rather good authority from someone who once read it in a book.
+ - It was amazing how many books one could fit into a room, assuming one didn’t want to move around very much.
+ - People see in stories what they’re looking for, my young friend.
+ - Expectations were like fine pottery. The harder you held them, the more likely they were to crack.
+ - There are no endings, and never will be endings, to the turning of the Wheel of Time. But it was an ending.
+ - The hallmark of insecurity is bravado.
+ - So, using his pride like a shield against despair, dejection, and-most important – self-pity, Raoden raised his head to stare damnation in the eyes.
+ - A man can only lead when others accept him as their leader, and he has only as much authority as his subjects give to him. All of the brilliant ideas in the world cannot save your kingdom if no one will listen to them.
+ - If you’re always on time, it implies that you never have anything better you should be doing. -Kelsier.
+ - Better to be the failure who nobly strived than the success who never really had to.
+ - Faith means that it doesn’t matter what happens. You can trust that somebody is watching. Trust that somebody will make it all right.
+ - That’s the point, isn’t it? We have to live on, no matter how hard it gets. We’ll win in the end.
+ - You should try not to talk so much, friend. You’ll sound far less stupid that way. – Breeze.
+ - Too many of us take great pains with what we ingest through our mouths, and far less with what we partake of through our ears and eyes.
+ - There’s always another secret.? -Kelsier.
+ - You will find that hate can unify people more quickly and more fervently than devotion ever could.
+ - Plots behind plots, plans behind plans. There was always another secret.
+ - You’re a sword not a palm tree.
+ - In the end, all men die. How you lived will be far more important to the Almighty than what you accomplished.
+ - The best liars are those who tell the truth most of the time.
+ - At times, it seems to me that to be human is to want that which we cannot have. For some, this is power. For me, it is peace.
+ - My behavior is nonetheless, deplorable. Unfortunately, I’m quite prone to such bouts of deplorability – take for instance, my fondness for reading books at the dinner table.
+ - Must someone, some unseen thing, declare what is right for it to be right? I believe that my own morality – which answers only to my heart – is more sure and true than the morality of those who do right only because they fear retribution.
+ - You see, that is the sad, sorry, terrible thing about sarcasm. It’s really funny.
+ - Words are where most change begins.
+ - Ignorance is hardly unusual, Miss Davar. The longer I live, the more I come to realize that it is the natural state of the human mind. There are many who will strive to defend its sanctity and then expect you to be impressed with their efforts.
+ - What is belief – what is faith – if you don’t continue it after failure?
+ - To live is to have worries and uncertainties. Keep them inside, and they will destroy you for certain – leaving behind a person so callused that emotion can find no root in his heart.
+ - In the end, I must proclaim that no good can be achieved of false means. For the substance of our existence is not in the achievement, but in the method.
+ - Honestly, for an evil god of darkness, he certainly can be dull.
+ - People can do great things. However, there are some things they just CAN’T do. I, for instance, have not been able to transform myself into a Popsicle, despite years of effort.
+ - The motivations of men. They never make sense. And they always make sense.
+ - This is going to take a while. I’m a fantasy author. We have trouble with the concept of brevity.
+ - It seems that the rebels found the chaos of transition more difficult to accept than the tyranny they had known before. They joyfully welcomed back authority-even oppressive authority-for it was less painful for them than uncertainty.
+ - Remember that your job as a practicing writer is to remember it’s never going to be perfect on your first pass.
+ - I’m so storming pure I practically belch rainbows.
+ - We were like deaf people trying to dance to a beat we couldn’t hear, long after the music actually stopped.
+ - Remember, the past need not become our future as well.
+ - It’s like a banana farm for guns!
+ - Mocking a woman is like drinking too much wine. It may be fun for a short time, but the hangover is hell.
+ - In the end, I worry that my arrogance shall destroy us all.
+ - Start writing the things that you are reading or that you want to be published doing.
+ - However a man who was honest and clever was always, ALWAYS more difficult to scam than someone who was both dishonest and clever. Sincerity. It was so difficult, by definition, to fake.
+ - I am a writer who works from an outline. What I generally do when I build an outline is I find focal, important scenes, and I build them in my head and I don’t write them yet, but I build towards them.
+ - Why do they call it research if I’ve only done it this one time?
+ - If men should read these words, let them know that power is a heavy burden. Seek not to be bound by its chains.
+ - That’s kind of what trust is, isn’t it? A willful self-delusion.
+ - It is a writer’s greatest pleasure to hear that someone was kept up until the unholy hours of the morning reading one of their books.
+ - The nature of morality must be considered, and preferably before one is exposed to situations where a moral decision is required.
+ - Welcome, Ruin said, to godhood.
+ - The number 1 thing that I don’t want to see in a story is when characters exist simply to be proven wrong.
+ - You’ll never learn how to do your endings until you FINISH your endings.
+ - When I write my books, actually, I’m known for very logical rule-based magic systems. I write with one foot in fantasy and one foot in science fiction.
+ - I’ve always been very confident in my immaturity.
+ - I Write those words in steel for anything else not set in metal cannot be trusted.
+ - Eternity ended ten years ago.
+ - Bitterness is repaid more often than kindness.
+ - So, when people try to give you some book with a shiny round award on the cover, be kind and gracious, but tell them you don’t read “fantasy,” because you prefer stories that are real. Then come back here and continue your research on the cult of evil Librarians who secretly rule the world.
+ - She remembered timidly standing atop the Luthadel city wall, afraid to use her Allomancy to jump off, despite Kelsier’s coaxing. Now she could step off a cliff and muse thoughtfully to herself on the way down.
+ - I am mountains that crush. I am waves that crash. I am storms that shatter. I am the end.
+ - Impossible things are really rough to do, you know.
+ - Does one deserve to have evil done to her by consequence of putting herself where evil can reach her?
+ - Llarimar had told him to do his best. That sounded like an awful lot of work. Unfortunately, doing nothing was beginning to seem like even MORE work.
+ - Oh, Wax has always been solemn, but when he’s at his best, there’s a smirk underneath.
+ - Here, in Alethkar, men often spoke of the legends – of mankind’s hard-won victory over the Voidbringers. But when weapons created to fight nightmares were turned against common soldiers, the lives of men became cheap things indeed.
+ - My name is Stephen Leeds, and I am perfectly sane. My hallucinations, however, are all quite mad.
+ - I take two hours off for my family every day. And then I write fourteen hours.
+ - I never wanted to be feared. If I regret one thing, it is the fear I have caused. Fear is the tool of tyrants. Unfortunately, when the fate of the world is in question, you use whatever tools are available.
+ - Though most expect young men to be fools, I’ve noticed that just a little bit of age can make a man far more foolish than he was as a child.
+ - Men rarely see their own actions as unjustified.
+ - Her aunt Sol had once told Shai to smile at the worst insults and snap at the minor ones. That way, no man would know your heart.
+ - Once one becomes a man, he can and must make his own decisions. But I do offer warning. Even a good thing can become destructive if taken to excess.
+ - When men fought, they connected. You became brothers as you traded blows.
+ - A person knows when they’re in darkness, even when they can’t see. -Nightblood.
+ - Joy was more than just an absence of discomfort.
+ - I was thinking that work is like fertilizer in that I’m glad it exists; I just don’t ever want to get stuck in it.
+ - Everyone is either happy or dead.
+ - It’s not imitating anything; it has become a better version of itself.
+ - All the world does as it is supposed to, except for humans. Maybe that’s why you so often want to kill each other.
+ - That isn’t greatness. That’s just foolishness.
+ - Can a woman not walk with her possessions down the street of a city?
+ - Wherever it may be, whoever may hold it. That’s who I am.
+ - I think given the choice between loving Mare – betrayal included – and never knowing her, I’d chose love. I risked, and I lost, but the risk was still worth it.
+ - I strive for nothing if not consistency.
+ - Vin: I don’t know – and it’s all your fault, you know. I used to understand everything. Now it’s all confused. Kelsier: Yes, we’ve messed you up right properly.
+ - Our belief is often strongest when it should be weakest. That is the nature of hope.
+ - Small things were important. Secods were small things, and if you heaped enough of those on top of one another, they became a man’s life.
+ - The right belief is like a good cloak, I think. If it fits you well, it keeps you warm and safe. The wrong fit however, can suffocate.
+ - Yes, Bastille. I keep trying to get killed because it’s inconvenient for you.
+ - Not all librarians are evil cultists. Some librarians are instead vengeful undead who want to suck your soul.
+ - Being in charge isn’t always about telling people what to do. Sometimes, it’s about knowing when to step out of the way of people who know what they’re doing. – Tam al’Thor.
+ - The problem with being clever, Serene thought with a sigh, is that everyone assumes you’re always planning something.
+ - He ate my horse.
+ - And Vin liked solitude. When you’re alone, no one can betray you.
+ - Can you feel it? Something just changed. I believe that’s the sound the world makes when it pisses itself.
+ - I’ve seen Steelheart bleed.
+ - The entire point of life is to find ways to get others to do your work for you. Don’t you know anything about basic economics?
+ - I am what the universe made me to be, my dear.
+ - I want you to go back into the barrack and tell the men to come out after the storm. Tell them to look up at me tied here. Tell them I’ll open my eyes and look back at them, and they’ll know hat I survived.
+ - I’m convinced that responsibility is some kind of psychological disease.
+ - Unknowing ignorance is preferable to informed stupidity.
+ - You’ve managed – in our short three years together – to kill not only my god, but my father, my brother, and my fiance. That’s kind of like a homicidal hat trick. It’s a strange foundation for a relationship, wouldn’t you say?
+ - Hmmmm Light makes shadow. Truth makes lies. Hmmmm.
+ - One can have a wit, but not a witless.
+ - My dear, did you just try to prove the existence of God through the use of your cleavage?
+ - He found insanity no excuse, however, for irrational behavior.
+ - Joel, lad, school is about learning to learn. If you don’t practice studying things you don’t like, then you’ll have a very hard time in life.
+ - AT first Raoden stayed away from the library, because it reminded him of her. Then he found himself drawn back to it – because it reminded him of her.
+ - Ham shook his head, sitting down, pouring himself something to drink. “I don’t get it, El. Why’d she attack him?” “She’s loony,” Spook said.
+ - A thing of nature. For every Push, there is a Pull. A consequence.
+ - Spook: No, I’m not troubled. In fact, I actually think everything is going to be all right. Finally.
+ - Normally, I have a lot of alpha readers on my books. These are people that, once I finish a novel, I let them look at it and give me a reader response.
+ - I like words. And I always learn a few new ones when Father gets angry. I shouldn’t neglect my education, now should I?
+ - If you are anything like me – Clever, fond of goat cheese, and devilishly handsome – then you have undoubtedly read many books.
+ - I’m Galladon, from the sovereign realm of Duladel. I’m most recently from Elantris, land of sludge, insanity, and eternal perdition. Nice to meet you.
+ - I point out truths when I see them, Brightlord Sadeas. Each man has his place. Mine is to make insults. Yours is to be in-sluts.
+ - Be warned – Hammond does tend to be a bit optimistic about these kind of things. If the army were made up of one-legged mutes, he would praise their balance and their listening skills.
+ - It is very important to be reading as well as writing. A doctor is not going to ignore new surgery practices.
+ - People with passion are people who will destroy – for a man’s passion is not true until he proves how much he’s willing to sacrifice for it.
+ - Though, if you think about it, hostile, dethroned pseudodeities probably make disagreeable neighbors. You’ll have to figure out something to do with him.
+ - When I do research, I cast my net very widely and then snatch what feels right out of that. Occasionally I’ll read a specific book for a specific book, but usually I’m trying to increase my general understanding.
+ - Using a fetching face to make men do as you wish is no different from a man using muscle to force a woman to his will. Both are base, and both will fail a person as they age.
+ - They are presented attractively for the same reason that kittens are cute – so that they can draw you in, then pounce on you for the kill. Seriously. Stay away from kittens.
+ - The look of disbelief that ran across the boy’s face was somehow more disturbing than the despair it had replaced. This creature had given up hope long ago; he probably begged out of habit rather than expectation.
+ - The more limitations you put on a character, often times the better a character you’ll make them, the more interesting the story becomes because the character can’t simply wave a hand and make something happen. They have to work within the framework.
+ - Remember, despite the fact that this book is being sold as a ‘fantasy’ novel, you must take all of the things it says extremely seriously, as they are quite important, are in no way silly, and always make sense. Rutabaga.
+ - If we must put our head into the lion’s mouth, let us make certain that he chokes upon our flesh!
+ - Now, I had been frightened on several different occasions in my life. The most frightening of these involved an elevator and a mime.
+ - Do not dash if you only have the strength to walk, and do not waste your time pushing on the walls that will not give. More importantly, don’t shove where a pat would be sufficient.
+ - So, there I was, tied to an altar made from outdated encyclopedias, about to get sacrificed to the dark powers by a cult of evil Librarians.
+ - If you don’t believe what I’m telling you, then ask yourself this: would any decent, kind-hearted individual become a writer? Of course not.
+ - My outlines are always very goal-based. What do I want to have happen by the ending and how can I earn that.
+ - For now, I only wish to make a simple acknowledgement of the woman who held the power just before me. Of all of us who touched it, I feel she was the most worthy.
+ - The best performances, are those that can be performed once.
+ - I’ve found you can ignore half of what Dox tells you and not miss much-except for maybe they occasional complaint that you’re spending too much.
+ - A story doesn’t live until it is imagined in someone’s mind.
+ - I am a Smedry, and we do ridiculous, unexpected, eccentric things like this all the time! Ha-ha!
+ - We follow the codes not because they bring gain, but because we loathe the people we would otherwise become.
+ - Oh, I’m just a happy person.
+ - Everything is a contest. All dealings among men are a contest in which some will succeed and others fail. And some are failing quite spectacularly.
+ - He smiled despite the grief he felt at the deaths of his men; he smiled because that was what he did. That was how he proved to the Lord Ruler-and to himself-that he wasn’t beaten.
+ - You are nothing if not exhaustive in your self-congratulatory made-up logic.
+ - War is far worse. At least where politics is going on, there are usually nice hors d’oeuvres.
+ - Are there any religions on your list that include the slaughter of noblemen as a holy duty?
+ - Sometimes it was daunting, knowing how easily I could break things. This one simple curse seemed to dominate my entire life.
+ - Have you finally grown so jealous of my impeccable fashion sense that you’ve decided to have me disposed of?
+ - I love to do what I do. So, I do work long hours.
+ - To age truly was to suffer the ultimate treason, that of one’s body against oneself.
+ - You cannot tempt the hearts of men who are pure.
+ - Personally, I say, “Out of the frying pan and into the deadly pit filled with sharks who are wielding chainsaws with killer kittens stapled to them.” However, that one’s having a rough time catching on.
+ - It’s actually a rather romantic and dramatic story – one I would eagerly tell you, except for the fact that I recently forgot it, based on it being far too long and having not enough decapitations.
+ - To believe, it seemed, one had to want to believe.
+ - The finest defense of character is correct action. Acquaint yourself with virtue, and you can expect proper treatment from those around you.
+ - The ways of Wayne are mysterious and incomprehensible.
+ - But you can’t kill me, Lord Tyrant. I represent that one thing you’ve never been able to kill, no matter how hard you try. I am hope.
+
+176 quotes

@@ -1,0 +1,31 @@
+ - Jesus, I trust in You.
+ - Patience, prayer and silence-these are what give strength to the soul.
+ - I know well that the greater and more beautiful the work is, the more terrible will be the storms that rage against it.
+ - A disobedient soul will win no victory, even if the Lord Jesus himself, in person, were to hear its confession.
+ - Mankind will not have peace until it turns with trust to My mercy.
+ - Nothing is difficult for the humble.
+ - Suffering is the greatest treasure on earth; it purifies the soul. In suffering, we learn who our true friend is.
+ - True love is measured by the thermometer of suffering.
+ - Suffering is a great grace; through suffering the soul becomes like the Saviour; in suffering love becomes crystallised; the greater the suffering, the purer the love.
+ - O King of glory, though you hide your beauty, yet the eye of my soul rends the veil. I see the angelic choirs giving you honor without cease.
+ - Now you shall consider My love in the Blessed Sacrament. Here, I am entirely yours, soul, body and divinity, as your Bridegroom. You know what love demands: one thing only, reciprocity...
+ - If the angels were capable of envy, they would envy us for two things: one is the receiving of Holy Communion, and the other is suffering.
+ - Oh, how great is the goodness of God, greater than we can understand. There are moments and there are mysteries of the divine mercy over which the heavens are astounded. Let our judgment of souls cease, for God’s mercy upon them is extraordinary.
+ - O, my Jesus, I understand well that, just as illness is measured with a thermometer and a high fever tells us of the seriousness of the illness; so also, in the spiritual life, suffering is the thermometer which measures the love of God in a soul.
+ - Entrust everything to Me and do nothing on your own, and you will always have great freedom of spirit.
+ - I thank God for this illness and these physical discomforts, because I have the time to converse with the Lord Jesus.
+ - How can one be pleasing to God when one is inflated with pride and self-love under the pretense of striving for Gods glory, while in fact one is seeking ones own glory?
+ - Sufferings, adversities, humiliations, failures and suspicions that have come my way are splinters that keep alive the fire of my love for You, O Jesus.
+ - It is You Jesus, stretched out on the cross, who gives me strength and are always close to the suffering soul. Creatures will abandon a person in his suffering, but You, O Lord, are faithful...
+ - Oh, if only the suffering soul knew how it is loved by God, it would die of joy and excess of happiness! Some day, we will know the value of suffering, but then we will no longer be able to suffer. The present moment is ours.
+ - I demand from you deeds of mercy which are to arise out of love for me. You are to show mercy to your neighbors always and everywhere. You must not shrink from this or try to excuse yourself from it.
+ - The greatest misery does not stop Me from uniting Myself to a soul, but where there is pride, I am not there.
+ - I saw the abyss of my misery; whatever there is of good in me is Yours, O Lord. But because I am so small and wretched, I have a right to count on Your boundless mercy.
+ - God is very generous and does not deny His grace to anyone. Indeed he gives more than what we ask of Him. Faithfulness to the inspirations of the Holy Spirit-that is the shortest route.
+ - A soul does not benefit from the sacrament of confession if it is not humble. Pride keeps it in darkness. The soul neither knows how, nor is it willing, to probe with precision the depths of its own misery. It puts on a mask and avoids everything that might bring it recovery.
+ - My likeness to Jesus must be through suffering and humility.
+ - Help me, O Lord, that my hands may be merciful and filled with good deeds, so that I may do only good to my neighbors.
+ - The soul’s true greatness is in loving God and in humbling oneself in His presence, completely forgetting oneself and believing oneself to be nothing; because the Lord is great, but He is well-pleased only with the humble; He always opposes the proud.
+ - I will not allow myself to be so absorbed in the whirlwind of work as to forget about God. I will spend all my free moments at the feet of the Master hidden in the Blessed Sacrament. He has been tutoring me from my most tender years.
+
+29 quotes

@@ -1,0 +1,60 @@
+ - We cannot tell the precise moment when friendship is formed. As in filling a vessel drop by drop, there is at last a drop which makes it run over. So in a series of acts of kindness there is, at last, one which makes the heart run over.
+ - A woman’s preaching is like a dog’s walking on his hinter legs. It is not done well; but you are surprised to see it done at all.
+ - All censure of a man’s self is oblique praise.
+ - But what can a man see of a library being one day in it?
+ - Friendship, “the wine of life,” should, like a well-stocked cellar, be continually renewed.
+ - That favorite subject, Myself.
+ - I, who have no sisters or brothers, look with some degree of innocent envy on those who may be said to be born to friends.
+ - What a curious creature is man; with what a variety of powers and faculties is he endued; yet how easily is he disturbed and put out of order.
+ - O charitable philosopher, I beg you to help me. My mind is weak but my soul is strong. Kindle that soul, and the sacred fire shall never be extinguished.
+ - If a man is prodigal, he cannot be truly generous.
+ - It is wonderful that five thousand years have now elapsed since the creation of the world, and still it is undecided whether or not there has ever been an instance of the spirit of any person appearing after death. All argument is against it; but all belief is for it.
+ - In an orchard there should be enough to eat, enough to lay up, enough to be stolen, and enough to rot on the ground.
+ - I think there is a blossom about me of something more distinguished than the generality of mankind.
+ - I have discovered that we may be in some degree whatever character we choose. Besides, practice forms a man to anything...
+ - No, Sir, claret is the liquor for boys; port for men: but he who aspires to be a hero must drink brandy. In the first place brandy will do soonest for a man what drinking can do for him.
+ - I am, I flatter myself, completely a citizen of the world. In my travels through Holland, Germany, Switzerland, Italy, Corsica, France, I never felt myself from home.
+ - One must be strict even in little things.
+ - A companion loves some agreeable qualities which a man may possess, but a friend loves the man himself.
+ - We must take our friends as they are.
+ - The pleasure of gratifying whim is very great. It is known only by those who are whimsical.
+ - In every place, where there is any thing worthy of observation, there should be a short printed directory for strangers.
+ - Drinking is in reality an occupation which employs a considerable portion of the time of many people; and to conduct it in the most rational and agreeable manner is one of the great arts of living.
+ - He had no settled plan of life, nor looked forward at all, but merely lived from day to day. Yet he read a great deal in a desultory manner, without any scheme of study, as chance threw books in his way, and inclination directed him through them.
+ - Writing a book I have found to be like building a house. A man forms a plan, and collects materials.
+ - My wife, who does not like journalizing, said it was leaving myself embowelled to posterity – a good strong figure. But I think itis rather leaving myself embalmed. It is certainly preserving myself.
+ - I suppose no person ever enjoyed with more relish the infusion of this fragrant leaf than did Johnson.
+ - In every picture there should be shade as well as light.
+ - Those who would extirpate evil from the world know little of human nature. As well might punch be palatable without souring as existence agreeable without care.
+ - I make it a kind of pious rule to go to every funeral to which I am invited, both as I wish to pay a proper respect to the dead, unless their characters have been bad, and as I would wish to have the funeral of my own near relations or of myself well attended.
+ - The scent of Sloth tempts a smug man.
+ - My mind was, as it were, strongly impregnated with the Johnsonian ether.
+ - The man who stops making new friends eventually will have none.
+ - I argued that the chastity of women was of much more consequence than that of men, as the property and rights of families depend upon it.
+ - Dr Johnson said, the inscription should have been in Latin, as every thing intended to be universal and permanent, should be.
+ - Many infidels have maintained that Ignorance is the mother of Devotion.
+ - After I went to bed I had a curious fancy as to dreams. In sleep the doors of the mind are shut, and thoughts come jumping in at the windows. They tumble headlong, and therefore are so disorderly and strange. Sometimes they are stout and light on their feet, and then they are rational dreams.
+ - I have seen many a bear led by a man: but I never before saw a man led by a bear.
+ - But the question is, whether the animals who endure such sufferings of various kinds for the service and entertainment of man, would accept existence upon the terms on which they have it.
+ - The connection between authors, printers, and booksellers must be kept up.
+ - Have a sense of piety ever on your mind, and be ever mindful that this is subject to no change, but will last you as long as life and support you in death. Elevate your soul by prayer and by contemplation without mystical enthusiasm.
+ - If venereal delight and the power of propagating the species were permitted only to the virtuous, it would make the world very good.
+ - Influence must ever be in proportion to property; and it is right it should.
+ - When a man is familiar with many people he must expect many disagreeable familiarizations.
+ - There is indeed a strange prejudice against Quotation.
+ - I fancy mankind may come, in time, to write all aphoristically.
+ - When we know exactly all a man’s views and how he comes to speak and act so and so, we lose any respect for him, though we may love and admire him.
+ - For my own part I think no innocent species of wit or pleasantry should be suppressed: and that a good pun may be admitted among the smaller excellencies of lively conversation.
+ - Quotation is more universal and more ancient than one would perhaps believe.
+ - I find I journalize too tediously. Let me try to abbreviate.
+ - A Sceptick therefore, who because he finds that Truths are not universally received, doubts of their existence, is just as foolish as a man who should try large shoes upon little feet, and little shoes upon large feet, and finding that they did not fit.
+ - It is not every man who can be exquisitely miserable, any more than exquisitely happy.
+ - Melancholy cannot be clearly proved to others, so it is better to be silent about it.
+ - If a man who is born to a fortune cannot make himself easier and freer than those who are not, he gains nothing.
+ - What an insignificant life is this which I am now leading!
+ - As all who come into the country must obey the King, so all who come into an university must be of the Church.
+ - I am now to offer some thoughts upon that sameness or familiarity which we frequently find between passages in different authors without quotation. This may be one of three things either what is called Plagiarism, or Imitation, or Coincidence.
+ - We had some port, and drank damnation to the play and eternal remorse to the author.
+ - We often observe in lawyers, who as Quicquid agunt homines is the matter of law suits, are sometimes obliged to pick up a temporary knowledge of an art or science, of which they understood nothing till their brief was delivered, and appear to be much masters of it.
+
+58 quotes

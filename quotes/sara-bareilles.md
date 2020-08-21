@@ -1,0 +1,62 @@
+ - Show me how big your brave is.
+ - Say what you wanna say and let the words fall out honestly.
+ - All my life I’ve tried to make everybody happy while I just hurt and hide, waiting for someone to tell me it’s my turn to decide.
+ - True bravery is being exactly who you are, imperfections included. Vulnerability is the most precious gift you can give.
+ - Love is blind, but when we close our eyes, we see with our hearts.
+ - Compare where you are to where you want to be, and you’ll get nowhere.
+ - You can be the outcast or be the backlash of somebody’s lack of love. Or you can start speaking up.
+ - The most powerful place you can come from is just having a really deep knowing of who you are and what you want for yourself.
+ - I love the morning time – a cup of coffee and to sit at the piano, that’s probably my favorite time.
+ - When I look back, I was so mean to myself, and I was so uncomfortable in my own skin. I still feel that very loudly sometimes, but to try and really nurture that sense that you are your own friend.
+ - I would never intentionally want to hurt someone’s feelings.
+ - I’m starting to believe in the power of a name. Because it can’t be a mistake if I just call it ‘change.’
+ - I can very much relate to waking up inside of your life and saying to yourself, “How did I get here?”
+ - I used to sing songs from musicals all the time as a kid.
+ - You can be amazing, you can turn a phrase into a weapon or a drug.
+ - So how do you do it, with just words and just music, capture the feeling that my Earth is somebody’s ceiling?
+ - It’d be a shame to stop now that I’ve started to make really good mistakes.
+ - The struggle is to stay present enough when you’re taking your next step forward that you’re really making your most honest choices.
+ - I think I have some anger-management issues, and they end up coming out in these passive-aggressive songs that sound happy.
+ - I never wanted anything so much than to drown in your love and not feel your rain.
+ - No one is anything but a shade of grey. It’s good people making bad choices.
+ - I love the morning time. There’s something about having the day in front of you.
+ - One of the wonderful ways to celebrate women is to hire women.
+ - If you take your fear and mash it into something that’s actually useful, then it doesn’t feel like it wins.
+ - I have found so much joy and so much pride in contributing and being a team member, and then stepping back and watching someone else get the applause. That has been really satisfying in a way that I wouldn’t have probably imagined.
+ - Nobody ever thinks a song is about them. Well, not when it’s mean. When it’s a good song everybody thinks it’s about them. And when it’s mean, nobody thinks it’s about them.
+ - I feel like my songs are like diary entries for me. So I usually write about things that have happened to me specifically or sometimes it can be someone who’s close to me.
+ - I have a tendency when I feel myself getting stuck, my impulse is to go to my cupboard and find chips to eat.
+ - Its so easy to just rip someones work apart.
+ - I was a fat girl growing up and had to change schools because kids were so mean.
+ - I think that’s my hope for a lot of the feminist movement is that the gender thing sort of stops being the selling point, if that makes any sense. We’re just people making art, and that’s how this process has felt to me.
+ - My earth is somebody’s ceiling.
+ - There’s really no “bad” people; there’s just humans who are doing the best they can to figure life out. It’s hard! We can all relate to that.
+ - I’m never gonna be somebody who’s gonna fall down from the sky on a trapeze. That’s not me. I really want to make sure that my focus stays on connecting with the audience.
+ - Late night writing is also good, too, but in New York, you’ve got neighbors. I try to be a good neighbor.
+ - I got really into rock – soft, romantic rock was my jam.
+ - I’m that person who owns all of the seasons on DVDs, including the Lifetime intimate portraits showcasing The Golden Girls. I am a massive fan. I think I’m Dorothy. She’s my favorite.
+ - My proudest moment of my career was opening night in Cambridge and watching the cast take their curtain call. No one was looking at me, and I was floating off the ground. It was just euphoric.
+ - I’m of the ilk of writers that feels you have to be open to the inspiration.
+ - I go straight for Seinfeld, Modern Family, Friends, and Golden Girls. Those are my pillars of strength on TV.
+ - I have been very fortunate to be a part of tours with other artists that have exposed me to new places that I’ve never been before. Once you discover something beautiful, you just want to keep coming back.
+ - I am passionate about young women and advocating for them.
+ - If I get frustrated, the first thing I’ll do is get up from the piano – completely mindlessly – and walk over to the cupboard and pull out something salty to eat.
+ - I don’t like karaoke very much. I like being around it, but I don’t like singing it. If I had to sing a karaoke song, it’s usually “Son of a Preacher Man” by Dusty Springfield.
+ - My hairstylist taught me a trick for my hair. You section off your hair and put them up in these crazy little knots and then it looks like you curled your hair. It’s saved me so much time ’cause on the road you don’t have time or plugs to plug your curling iron in.
+ - I certainly have dreams of being on a Broadway stage someday, if they’ll have me. I think I want to stay really open to whatever possibilities present themselves.
+ - I’m happy to be working with all women.
+ - I think it’s one of those things about live performance – anything goes, anything can happen, and you have to just be ready and able to roll with the punches.
+ - I think we’re at a really rich and fertile time in the zeitgeist about paying attention to diversity of all kinds – racial diversity, gender diversity, making room for a continuum that is more inclusive.
+ - I’m a traditional singer-songwriter. I have a more organic sound.
+ - I’m grateful to have the chance to be inspired by the incredible artists that are out there.
+ - The theater community at large, I have to say, has just been so warm and so welcoming, and that’s not something I’m as used to.
+ - The music industry can feel wonderful, but it can also feel very cold.
+ - I’d like to think I could physically manage doing that, but I don’t think it feels authentic to the kind of performer that I am. I think that, for me, being stationary and just sort of singing the songs seems to be the most connected and authentic expression for me on stage.
+ - It’s very exciting to be a part of a team of collaborators in general.
+ - I work a lot with men, and I work with wonderful men that I absolutely adore, but it’s something that I’m now paying attention to – to seek out and make room for the talented women in all the technical fields and creative fields across the board.
+ - I never played coffee shops; I just played a lot of coffee shop-sized venues. I took every venue I could get my hands on.
+ - I would like to look back on my body of work and be proud of each record in its own right, but as a whole, I want to continue to grow and move forward.
+ - There are so many wonderful classic roles, but I also would be really interested in developing something brand new. I think my heart would probably be in developing something brand new; I think that sounds really exciting.
+ - My dance move has seemingly turned into push-ups. Sometimes, especially if I’ve indulged a little bit in an evening, it’s not out of the ordinary to find me, for some reason, doing push-ups. That seems to be my go-to dance move.
+
+60 quotes

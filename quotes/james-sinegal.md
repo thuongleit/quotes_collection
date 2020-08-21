@@ -1,0 +1,28 @@
+ - Paying your employees well is not only the right thing to do but it makes for good business.
+ - Paying good wages is not in opposition to good productivity.
+ - When employees are happy, they are your very best ambassadors.
+ - You destroy the initiative of the working people if they don’t feel they have a fighting chance to be a part of the American Dream.
+ - You take an educated gamble. If you don’t occasionally make a mistake, you’re not doing your job.
+ - Our attitude is that if you hire good people and pay them a fair wage, then good things will happen for the company.
+ - I think that most of the people running companies today are motivated and pay is a small portion of the motivation.
+ - Technology helps us become more efficient and productive but our business still has a lot of art as opposed to strictly science.
+ - You could raise the price of, say, a bottle of ketchup to $1.03 instead of $1, and no one would know. Raising prices just 3% per product would add 50% to your pretax income. Why not do it? It’s like heroin: You do a little and you want a little bit more. Raising prices is the easy way.
+ - It doesn’t do Costco any good if nobody can afford to buy anything.
+ - We’ve always been in favor of improved wages for workers. When you have a strong middle class, they want to buy more stuff at Costco.
+ - You just can’t get too focused on worrying about what’s going to happen in the next quarter. You have to worry about where the business is headed long-term.
+ - If you’re going to say to all the people that you’re working with, ‘We want you to treat the customers honestly; don’t lie and don’t cheat,’ it is somewhat hypocritical if you’re not following the same rules.
+ - I say at our management conferences that the amount Wal-Mart grows in just one year is the equivalent of Costco’s size.
+ - It doesn’t do much good to have a quality image, whether it’s with the facility or whether it’s with the merchandise, if you don’t have real quality people taking care of your customers.
+ - There was a proposal in California that would keep out Wal-Mart but allow Costco. You opposed it. Are you nuts? That’s true: I always oppose these kinds of things. Competition makes us better. Some of our best stores have a Sam’s Club next door.
+ - When you hire good people, and you provide good jobs and good wages and a career, good things are going to happen.
+ - I think the biggest single thing that causes difficulty in the business world is the short-term view. We become obsessed with it. But it forces bad decisions.
+ - If you’ve got to work for the rest of your life, you’d better do something you’ll enjoy.
+ - If we take care of the business and keep our eye on the goal line, the stock price will take care of itself.
+ - Obscene salaries send the wrong message through a company. The message is that all brilliance emanates from the top; that the worker on the floor of the store or the factory is insignificant.
+ - You don’t have a very motivated working class, it starts to affect the dynamics of the economy. If workers are disenchanted and disenfranchised, productivity losses will go along with that.
+ - In the final analysis, you get what you pay for.
+ - It’s like heroin: You do a little and you want a little bit more. Raising prices is the easy way.
+ - Obscene salaries send the wrong message through a company.
+ - You have to worry about where the business is headed long-term.
+
+26 quotes

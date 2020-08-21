@@ -1,0 +1,37 @@
+ - Aggressive accounting does not mean illegal accounting.
+ - I don’t think I’m a criminal, number one.
+ - Am I a fool? I don’t think I’m a fool. But I think I sure was fooled.
+ - Investors don’t like uncertainty.
+ - I don’t fear jail because I know I’m not guilty. I know I did nothing wrong. I did nothing criminal and I also believe my God will get me through this.
+ - I’ve not only pursued the American dream, I’ve achieved it. I suppose we could say the last few years, I’ve also achieved the American nightmare.
+ - I take responsibility for what happened at Enron, both good and bad. But I cannot take responsibility for criminal conduct that I was unaware of.
+ - I’ve been a strong financial and political supporter of, first, President Bush Sr. when he was running for president, and even when he ran for president a time or two and failed.
+ - If there is anything material and we’re not reporting it, we’ll be breaking the law. We don’t break the law.
+ - You’d rather have a surplus versus a shortage in your position.
+ - The transmission systems are still regulated.
+ - We will cooperate fully with the SEC and look forward to the opportunity to put any concern about these transactions to rest.
+ - The problems in California have been that it’s been very difficult to site and build new power plants.
+ - There are no accounting issues, no trading issues, no reserve issues, no previously unknown problem issues.
+ - Well, rates would go up whether you deregulate or not, and of course, the rates that are going up right now on the electricity side are still within the regulated framework.
+ - The last thing I would have ever expected to happen to me in my life would be that, in fact, I would be accused of doing something wrong and maybe even something criminal.
+ - But indeed a market like California is not good for Enron.
+ - I mean, our primary businesses in wholesale pipelines, utilities, retail, were all doing extremely well.
+ - It’s been very interesting. We’ve seen a lot of interesting testimony. We’ve seen a lot of interesting people, a lot of allegations, a lot of lies, a lot of misinformation and some truth.
+ - Jeff knew full well what he was walking away from. Again, he needed to deal with this right away.
+ - They can’t do without electricity. They can do with less electricity.
+ - In the case of Enron, we balance our positions all the time.
+ - There are absolutely no problems that had anything to do with Jeff’s departure.
+ - When there’s uncertainty they always think there’s another shoe to fall. There is no other shoe to fall.
+ - The collapse of Enron and the subsequent collapse of Arthur Andersen were tremendous tragedies. But as I stated at the time of my indictment on July 8, 2004, failure does not equate to a crime.
+ - Today, there are also buyers and sellers of all these energy commodities, just like there are buyers and sellers of food commodities and many other commodities.
+ - But the most important thing is, Enron did not cause the California crisis.
+ - I have faith in the market when we get the rules right.
+ - We use competitive markets to arrange for delivery of our food supply.
+ - But certainly I didn’t know he was doing anything that was criminal.
+ - Every market is in transition.
+ - Trillions of dollars every day are being exchanged around the world in all of the financial markets.
+ - We see ourselves as first helping to open up markets to competition.
+ - I have to take responsibility for anything that happened within its businesses.
+ - But I can’t take responsibility for criminal conduct of somebody inside the company.
+
+35 quotes

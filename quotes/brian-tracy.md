@@ -1,0 +1,502 @@
+ - Your life only gets better when you get better.
+ - To earn more, you must learn more.
+ - An attitude of positive expectation is the mark of the superior personality.
+ - Never complain, never explain. Resist the temptation to defend yourself or make excuses.
+ - A goal without a plan is only a dream.
+ - The act of taking the first step is what separates the winners from the losers.
+ - Every minute you spend in planning saves 10 minutes in execution; this gives you a 1,000 percent Return on Energy!
+ - It doesn't matter where you are coming from. All that matters is where you are going.
+ - The ability to discipline yourself to delay gratification in the short term in order to enjoy greater rewards in the long term, is the indispensable prerequisite for success.
+ - Excellence/Perfection is not a destination; it is a continuous journey that never ends.
+ - A clear vision, backed by definite plans, gives you a tremendous feeling of confidence and personal power.
+ - Always give without remembering and always receive without forgetting.
+ - You cannot control what happens to you, but you can control your attitude toward what happens to you, and in that, you will be mastering change rather than allowing it to master you.
+ - I’ve found that luck is quite predictable. If you want more luck, take more chances, be more active, show up more often.
+ - Nobody works better under pressure. They just work faster.
+ - Look for the good in every person and every situation. You'll almost always find it.
+ - The only real limitation on your abilities is the level of your desires. If you want it badly enough, there are no limits on what you can achieve. 
+ - All successful people men and women are big dreamers. They imagine what their future could be, ideal in every respect, and then they work every day toward their distant vision, that goal or purpose.
+ - Your most valuable asset can be your willingness to persist longer than anyone else.
+ - You are where you are and what you are because of yourself, nothing else. Nature is neutral. Nature doesn't care. If you do what other successful people do, you will enjoy the same results and rewards that they do. And if you don't, you won't.
+ - The more you seek security, the less of it you have. But the more you seek opportunity, the more likely it is that you will achieve the security that you desire.
+ - You become what you think about most of the time.
+ - Develop an attitude of gratitude, and give thanks for everything that happens to you, knowing that every step forward is a step toward achieving something bigger and better than your current situation.
+ - Make your life a masterpiece; imagine no limitations on what you can be, have or do.
+ - The key to success is for you to make a habit throughout your life of doing the things you fear.
+ - Never settle for anything less than your best.
+ - Your life is a reflection of your thoughts. If you change your thinking, you change your life.
+ - Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, What’s in it for me?
+ - Communication is a skill that you can learn. It's like riding a bicycle or typing. If you're willing to work at it, you can rapidly improve the quality of very part of your life.
+ - Luck is predictable; the harder you work, the luckier you get.
+ - Failing to plan means planning to fail. What are your goals?
+ - The more credit you give away, the more will come back to you. The more you help others, the more they will want to help you.
+ - Disciplining yourself to do what you know is right and importance, although difficult, is the highroad to pride, self-esteem, and personal satisfaction.
+ - No one lives long enough to learn everything they need to learn starting from scratch. To be successful, we absolutely, positively have to find people who have already paid the price to learn the things that we need to learn to achieve our goals.
+ - There is never enough time to do everything, but there is always enough time to do the most important thing.
+ - Time is your most precious resource; make every minute count.
+ - Happiness and self-confidence come naturally when you feel yourself moving and progressing toward becoming the very best person you can possibly be.
+ - Self-esteem and self-love are the opposites of fear; the more you like yourself, the less you fear anything.
+ - You have within you right now, everything you need to deal with whatever the world can throw at you.
+ - Today the greatest single source of wealth is between your ears.
+ - Successful people are simply those with successful habits.
+ - The way you give your name to others is a measure of how much you like and respect yourself.
+ - Persistence is self-discipline in action.
+ - Your biggest opportunity probably lies under your own feet, in your current job, industry, education, experience or interests.
+ - The key to success is to focus our conscious mind on things we desire not things we fear.
+ - Never assume you understand. Ask the questions.
+ - Time management requires self-discipline, self-mastery and self-control more than anything else.
+ - Every great move forward in your life begins with a leap of faith, a step into the unknown.
+ - When you absolutely believe in yourself and your ability to succeed, nothing will stop you.
+ - Be clear about your goal but be flexible about the process of achieving it.
+ - Always concentrate on the most valuable use of your time. This is what separates the winners from the losers. Self-esteem is the reputation you have with yourself.
+ - Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new.
+ - Your life only gets better when you get better, and you can improve yourself without limit. Learn something new every day.
+ - The potential of the average person is like a huge ocean unsailed, a new continent unexplored, a world of possibilities waiting to be released and channeled toward some great good. 
+ - Action without planning is the cause of all failure. Action with planning is the cause of all success.
+ - Move fast. A sense of urgency is the one thing you can develop that will separate you from everyone else. When you get a good idea, do it now.
+ - When you start doing what you love to do, you will never work another day in your life.
+ - Your mind will always try to complete what it pictures, so always picture success no matter haw badly things are going at the moment.
+ - Practice the philosophy of continuous improvement. Get a little bit better every single day.
+ - Throw yourself wholeheartedly into your work; the more you enjoy it, the better you get.
+ - There is an interesting point about the price of success: It must always be paid in full-and in advance. Everyone wants to be successful. Everyone wants to be healthy, happy, thin, and rich. But most people are not willing to pay the price.
+ - Your ability to discipline yourself to set clear goals, and then to work toward them every day, will do more to guarantee your success than any other single factor.
+ - Any great achievement is preceded by many difficulties and many lessons; great achievements are not possible without them.
+ - Dedicate yourself to continuous personal improvement you are your most precious resource.
+ - Approach each customer with the idea of helping him or her solve a problem or achieve a goal, not of selling a product or service.
+ - Your thoughts, vividly imagined and repeated, charged with emotion, become your reality.
+ - You will regret many things in life but you will never regret being too kind or too fair.
+ - Top people have very clear goals. They know who they are and they know what they want. They write it down and they make plans for its accomplishment.
+ - Always choose the future over the past. What do we do now?
+ - Worry is negative goal setting.
+ - Confidence on the outside begins by living with integrity on the inside.
+ - You can accomplish virtually anything if you want it badly enough and if you are willing to work long enough and hard enough;.
+ - Peak performance begins with your taking complete responsibility for your life and everything that happens to you.
+ - Aspire greatly; anything less than a commitment to excellence becomes an acceptance of mediocrity.
+ - The key of success is for you to set one big, challenging goal and then to pay any price, overcome any obstacle and persist through any difficulty until you finally achieve it.
+ - You can NEVER rise higher than your expectations of yourself. Expect the BEST!
+ - All improvement in your life begins with an improvement in your mental pictures.
+ - Every experience is a positive experience if I view it as an opportunity for growth and self-mastery.
+ - Remember, you only have to succeed the last time.
+ - Define your goals in terms of the activities necessary to achieve them, and concentrate on those activities.
+ - Be prepared to ride the cycles and trends of life; success is never permanent, and failure is never final.
+ - Avoid negative people at all costs. They are the greatest destroyers of self-confidence and self-esteem.
+ - At least eighty percent of millionaires are self-made. That is, they started with nothing but ambition and energy, the same way most of us start.
+ - Be selective about your external influences. Your multi-dimensional brain is influenced by everything you see, hear, read, smell, touch, feel or say.
+ - Positive emotional energy is the key to health, happiness and wellbeing. The more positive you are, the better your life will be in every area.
+ - You begin to fly when you let go of self-limiting beliefs and allow your mind and aspirations to rise to greater heights.
+ - Your attitude is an expression of your values, beliefs and expectations.
+ - Fast tempo is essential for success; do it, fix it, try it!
+ - A goal that is not in writing is like cigarette smoke: It drifts away and disappears. It is vague and insubstantial. It has no force, effect, or power. But a written goal becomes something that you can see, touch, read, and modify if necessary.
+ - It is not what you say or hope or wish or intend but only what you do that counts. Your choices tell you unerringly who you really are.
+ - The biggest mistake you could ever make is to think you work for anyone but yourself.
+ - There are no limits on what you can achieve with your life, except the limits you accept in your mind.
+ - Develop the winning edge; small differences in your performance can lead to large differences in your results.
+ - In the sales profession, the real work begins after the sale is made.
+ - Economists say the inability to delay gratification is a primary predictor of economic failure in life.
+ - If you’re unhappy, what is it in your life that you’re not facing?
+ - Your choice of people to associate with, both personally and business-wise, is one of the most important choices you make. If you associate with turkeys, you will never fly with the eagles.
+ - Your ability to get along well with others will determine your happiness and success as much as any other factor.
+ - Entrepreneurial leadership requires the ability to move quickly when opportunity presents itself.
+ - One of the things we know is that you cannot motivate other people, but you can remove the obstacles that stop them from motivating themselves. All motivation is self-motivation.
+ - Your current situations or problems have been sent to you to teach you valuable lessons for success and happiness. What are they?
+ - The future belongs to the risk-takers, not the comfort-seekers .
+ - If you can dream it, you can do it. Your limits are all within yourself.
+ - Continuous learning is the minimum requirement for success in any field.
+ - Set peace of mind as your highest goal, and organize your life around it.
+ - The fastest way to improve your relationships is to make others feel important in every way possible.
+ - Commit yourself to lifelong learning. The most valuable asset you’ll ever have is your mind and what you put into it.
+ - Everything that you do or say that raises the self-esteem of another raises yours as well.
+ - Become the kind of leader that people would follow voluntarily; even if you had no title or position.
+ - The solution to the problems of marriage and parenting is simple. Spend more time with the people you care about the most.
+ - Most great fortunes are built slowly. They are based on the principle of compound interest, what Albert Einstein called, “The greatest power in the universe.”
+ - Leaders think and talk about the solutions. Followers think and talk about the problems.
+ - The value of a relationship is in direct proportion to the time that you invest in the relationship.
+ - Take a deep breath, relax and imagine yourself exactly as you wish to be.
+ - Keep asking yourself, ‘What kind of a company would my company be if everyone in it was just like me?’
+ - You can make excuses or you can make progress. You choose.
+ - Activity equals results. If you want to increase your success, increase your activity.
+ - In a time of rapid change, standing still is the most dangerous course of action.
+ - Sometimes we need to let go of things in our lives to make room for better things. Stress less and live more. Don’t waste your energy, when you have the choice to be happy.
+ - Telling is not selling. Only asking questions is selling.
+ - Optimism is the one quality more associated with success and happiness than any other.
+ - Continually push yourself out of your comfort zone. Push yourself to stretch as you try new things each day.
+ - Anything worth doing is worth doing poorly at first.
+ - Learn something new. Try something different. Convince yourself that you have no limits.
+ - Success can lead to complacency, and complacency is the greatest enemy of success.
+ - Dress for success. Image is very important. People judge you by the way you look on the outside.
+ - Be intensely result-oriented in everything you do. This is a key characteristic of high performers.
+ - Integrity is the most valuable and respected quality of leadership. Always keep your word.
+ - Perhaps the very best question that you can memorize and repeat, over and over, is, ‘what is the most valuable use of my time right now?’
+ - Act as if you were already the person you want most to be.
+ - Goals in writing are dreams with deadlines.
+ - Every positive change in your life begins with a clear, unequivocaldecision that you are going to either do something or stop doing something.
+ - Develop an ‘attitude of gratitude.’ Say thank you to everyone you meet for everything they do for you.
+ - Leadership is the ability to get extraordinary achievement from ordinary people.
+ - Activity equals results. If you want to increase your success, increase your activity. Increase contact with customers. The more people you contact, the higher your sales will be because of the law of probabilities.
+ - The future belongs to the competent. It belongs to those who are very, very good at what they do. It does not belong to the well meaning.
+ - Telling is not selling; never make a statement if you can phrase it in the form of a question.
+ - Good habits are hard to develop but easy to live with; bad habits are easy to develop but hard to live with. The habits you have and the habits that have you will determine almost everything you achieve or fail to achieve.
+ - Think about your goals and review them daily. Every morning when you begin, take action on the most important task you can accomplish to achieve your most important goal at the moment.
+ - Fear and self-doubt have always been the greatest enemies of human potential.
+ - Success comes in cans, not can’ts.
+ - You are not what you think you are, but what you THINK, you ARE.
+ - Follow up and follow through until the task is completed, the prize won.
+ - The great breakthrough in your life comes when you realize that you can learn anything you need to learn to accomplish any goal that you set for yourself. This means there are no limits on what you can be, have or do.
+ - Continuous personal and professional development is your key to the future.
+ - A goal or decision without a deadline has no urgency. It has no real beginning or end.
+ - All skills are learnable.
+ - The greatest gift that you can give to others is the gift of unconditional love and acceptance.
+ - You are a living magnet. What you attract into your life is in in harmony with your dominant thoughts.
+ - Be a creator of circumstances rather than just a creature of circumstances. Be proactive rather than reactive.
+ - The price of success must be paid in full, in advance.
+ - Welcome the challenges. Look for the opportunities in every situation to learn and grow in wisdom.
+ - Treat objections as requests for further information.
+ - And I love to speak – I am very good at it. And if you love to do something, you’re very good at it, and also you are paid well, why would you not do it? Why would you stop?
+ - Every act of self-discipline increases your confidence, trust, and belief in yourself and your abilities.
+ - Positive thinkers think and talk continually about solutions, and negative thinkers continually talk and think about problems. Keep your mind solution-focuse d rather than problem- focused.
+ - Focus on your strengths.
+ - Almost any decision is better than no decision at all.
+ - Do one thing at a time. Start the day with a list of things you have to do, and do the most important things first.
+ - Any goal can be achieved if you break it down into enough small parts.
+ - Control your inner dialogue. Talk to yourself positively all the time.
+ - The difference between the top performers and the average or mediocre performers is not a great, massive difference. It is just a tiny difference because the top performers do things just a tiny bit.
+ - Expect wonderful things to happen to you. Get up each morning and say; ‘I believe something wonderful is going to happen to me today.’
+ - The comfort zone is the great enemy of courage and confidence.
+ - Your greatest asset is your earning ability. Your greatest resource is your time.
+ - To be successful, you need to really work hard. And every study in the last 50 years says that successful people say, “I am not smarter than anybody else. I just want to work harder and longer.”
+ - If you have two frogs, eat the ugliest one first.
+ - You have to put in many, many, many tiny efforts that nobody sees or appreciates before you achieve anything worthwhile.
+ - Truthfulness is the main element of character.
+ - Leaders set high standards. Refuse to tolerate mediocrity or poor performance.
+ - Decide upon your major definite purpose in life and then organize all your activities around it.
+ - There are no unrealistic goals, only unrealistic deadlines.
+ - Imagine your ideal future. Visualize yourself as if your life were perfect in every respect.
+ - Every experience in your life is being orchestrated to teach you something you need to know to move forward.
+ - Invest the first hour of the day, the ‘Golden Hour,’ in yourself.
+ - Goals allow you to control the direction of change in your favor.
+ - If you read one hour per day in your field, that will translate into about one book per week. One book per week translates into about 50 books per year. 50 books per year will translate into about 500 books over the next ten years.
+ - Intense, burning desire is the motivational force that enables you to overcome any obstacle and achieve almost any goal.
+ - Benchmark your performance against your best competitors. Think how you can beat them next time.
+ - Clear, written goals have a wonderful effect on your thinking. They motivate you and galvanize you into action. They stimulate your creativity, release your energy, and help you to overcome procrastination as much as any other factor.
+ - Respect is the key determinant of high performance leadership. How much people respect you determines how well they perform.
+ - You cannot eat every tadpole and frog in the pond, but you can eat the biggest and ugliest one, and that will be enough, at least for the time being.
+ - Success is not a miracle. Nor is it a matter of luck. Everything happens for a reason, good or bad, positive or negative.
+ - Implement your plans with courage and persistence. Have complete faith in your ability to succeed and never, ever give up.
+ - A feeling of confidence and personal power comes from facing challenges and overcoming them.
+ - Your mind is like a garden – unless you cultivate flowers, weeds will flourish. To keep your mind positive, substitute positive thoughts for negative thoughts.
+ - Practice is the price of mastery. Whatever you practice over and over again becomes a new habit of thought and performance.
+ - There just isn’t enough time for everything on our ‘to do’ list – and there never will be. Successful people don’t try to do everything. They learn to focus on the most important tasks and make sure they get done.
+ - If you do not do the thing you fear, the fear controls your life.
+ - Effective performance is preceded by painstaking preparation.
+ - Learn from the experts; you will not live long enough to figure it all out by yourself.
+ - Practice Golden-Rule 1 of Management in everything you do. Manage others the way you would like to be managed.
+ - The checklist is one of the most high powered productivity tool ever discovered.
+ - Success equals goals; all else is commentary.
+ - The tendency to follow the path of least resistance guarantees failure in life.
+ - Dream BIG dreams! Only big dreams have the power to move your mind and spirit.
+ - Every single moment shapes our future. Be intentional. Live on purpose!
+ - Whatever job you take on, make yourself valuable, then indispensable.
+ - It is not failure itself that holds you back; it is the fear of failure that paralyzes you.
+ - Attentive listening to others lets them know that you love them and builds trust, the foundation of a loving relationship.
+ - If you do not have goals of your own you are doomed forever to work to achieve the goals of someone else.
+ - You can achieve almost any goal you set for yourself as long as you have the discipline to pay the price to do what you need to do and to never give up. You can make excuses or you can make progress. You choose.
+ - Whatever you believe with feeling becomes your reality.
+ - Lack of planning is the cause of most failures.
+ - Set excellent performance as your standard and strive to achieve it each day.
+ - Refuse to make excuses or blame others. The leader always says, If it’s to be, it’s up to me.
+ - Get the facts. Ask questions and listen intently to the answers before responding.
+ - Success is predictable.
+ - Until you commit your goals to paper, you have intentions that are seeds without soil.
+ - Financial security and independence are like a three-legged stool resting on savings, insurance and investments.
+ - Personal development is your springboard to personal excellence. Ongoing, continuous, non-stop personal development literally assures you that there is no limit to what you can accomplish.
+ - Stop talking about the problem and start thinking about the solution.
+ - The universe is completely balanced and in perfect order. You will always be compensated for everything that you do.
+ - Life is like a combination lock; your job is to find the right numbers, in the right order, so you can have everything you want.
+ - When you develop yourself to the point where your belief in yourself is so strong that you know that you can accomplish anything you put your mind to, your future will be unlimited.
+ - Be loyal to your boss, your company, your co-workers. Someone is always listening.
+ - Success is the ability to live your life, the way you want to live it, doing what you enjoy most, surrounded by people you admire and respect.
+ - Difficulties come not to obstruct, but to instruct. Within every setback or obstacle lie seeds of an equal or greater benefit or opportunity.
+ - Spend eighty percent of your time focusing on the opportunities of tomorrow rather than the problems of yesterday.
+ - Stress comes from within; it is your reaction to circumstances, not the circumstances themselves.
+ - Confidence is a habit that can be developed by acting as if you already had the confidence you desire to have.
+ - The law of cause and effect: If you do what other successful people do, you will eventually get the results that other successful people get.
+ - To remain confident and positive, think about your goals all the time.
+ - The only time you’ll ever have is now.
+ - What would you dare to dream if you knew you wouldn’t fail?
+ - Your subconscious mind makes all your words and actions fit a pattern consistent with your self-concept and your innermost beliefs about yourself.
+ - Decide exactly what you want and resolve to persist, no matter what, until you achieve it.
+ - Persistence is the iron quality of success; if you persist long enough you must eventually succeed.
+ - Your outer world of attitudes, wealth, work, relationships and health will always be a reflection of your inner attitudes of mind.
+ - Your most important tasks and priorities are those that can have the most serious consequences, positive or negative, on your life or work. Focus on these above all.
+ - Character is the ability to follow through on a resolution long after the emotion with which it was made has passed.
+ - You must raise your aspirations, set higher goals, and make detailed plans to achieve them.
+ - Resolve to be a master of change rather than a victim of change.
+ - The Law of Concentration states that whatever you dwell upon, grows. The more you think about something, the more it becomes part of your reality.
+ - Act with purpose, courage, confidence, competence and intelligence until these qualities ‘lock in’ to your subconscious mind.
+ - You cannot save time, but you can spend time differently.
+ - Your determination to become a more optimistic person in every part of your life will do more to ensure your success and happiness than any other single quality you can develop.
+ - If the first thing you do each morning is to eat a live frog, you can go through the day with the satisfaction of knowing that that is probably the worst thing that is going to happen to you all day long!
+ - Your success in your career will be in direct proportion to what you do after you’ve done what you are expected to do.
+ - If you wish to achieve worthwhile things in your personal and career life, you must become a worthwhile person in your own self-development.
+ - People with clear, written goals, accomplish far more in a shorter period of time than people without them could ever imagine.
+ - Teamwork is so important that it is virtually impossible for you to reach the heights of your capabilities or make the money that you want without becoming very good at it.
+ - Offer your customers a long-term relationship, then do everything possible to build and maintain it.
+ - Everything you do is triggered by an emotion of either desire or fear.
+ - Every employee must be essential to the functions of the organization.
+ - One of the marks of successful people is they are action oriented. One of the marks of average people is they are talk oriented.
+ - Imagine no limitations; decide what’s right and desirable before you decide what’s possible.
+ - The greatest joys of life are happy memories. Your job is to create as many of them as possible.
+ - Never consider the possibility of failure; as long as you persist, you will be successful.
+ - Your life is the sum total of all your choices up to this present minute.
+ - All great success is preceded by failure.
+ - Time management is really personal management, life management. and management of yourself.
+ - Superior leaders are willing to admit a mistake and cut their losses. Be willing to admit that you’ve changed your mind. Don’t persist when the original decision turns out to be a poor one.
+ - Flexibility in a time of great change is a vital quality of leadership.
+ - Obstacles come to instruct, not obstruct.
+ - Don’t fall in love with your own excuses.
+ - A feeling of continuous growth is a wonderful source of motivation and self confidence.
+ - Your ability to negotiate, communicate, influence, and persuade others to do things is absolutely indispensable to everything you accomplish in life.
+ - Great genius you already have. The super conscious mind is invariably triggered by definition, and by decisiveness.
+ - Perhaps the greatest display of self-discipline is persisting when the going gets tough. Persistence is self-discipline in action.
+ - To overcome fear, act as if it were impossible to fail, and it shall be.
+ - Success comes when you do what you love to do, and commit to being the best in your field.
+ - Do something to move yourself toward your major goal every day.
+ - Intellectual capital is the most valuable of all factors of production.
+ - Never say anything about yourself you do not want to come true.
+ - You determine your future by the thoughts and pictures you hold in your mind today.
+ - Whatever is expressed is impressed. Whatever you say to yourself, with emotion, generates thoughts, ideas and behaviors consistent with those words.
+ - Refuse to criticize, condemn, or complain. Instead, think and talk only about the things you really want.
+ - Incorrect assumptions lie at the root of every failure. Have the courage to test your assumptions.
+ - The foundation of lasting self-confidence and self esteem is excellence, mastery of your work.
+ - There’s only one direction you can coast-downhill.
+ - Issue a blanket pardon. Forgive everyone who has ever hurt you in any way. Forgiveness is a perfectly selfish act. It sets you free from the past.
+ - Goals are the fuel in the furnace of achievement. Think on paper and write them down!
+ - If you get up by 6am, exercise, plan your day, and start on your biggest task, then your whole day is different. If you do this regularly it becomes a habit.
+ - We will always tend to fulfill our own expectation of ourselves.
+ - A wish has been defined as a ‘goal with no energy behind it.’ Hope is not a strategy.
+ - Just as your car runs more smoothly and requires less energy to go faster and farther when the wheels are in perfect alignment, you perform better when your thoughts, feelings, emotions, goals, and values are in balance.
+ - Refuse to let the fear of rejection hold you back. Remember, rejection is never personal.
+ - Think about your goals at every opportunity throughout the day.
+ - Concentrate on the activities of prospecting, presenting and following-up; the sales will take care of themselves.
+ - The simple act of writing down a goal and making a written plan for its accomplishment moves you to the top 3 percent.
+ - The only real antidote to worry or problems is systematic, purposeful action in the direction of your goals.
+ - One quality of leaders and high achievers in every area seems to be a commitment to ongoing personal and professional development.
+ - Above all, you must maintain a positive mental attitude, looking for the good in every situation, and remain determined to be a completely positive person.
+ - According to the best research, less than 3% of Americans have written goals, and less than 1% review and rewrite their goals on a daily basis.
+ - You can become an even more excellent person by constantly setting higher and higher standards for yourself and then by doing everything possible to live up to those standards.
+ - Develop a clear vision for your organization. Where do you want to be in five years?
+ - I believe in the perfect outcome in every area of my life! Expect to be successful! Expect to win!
+ - Worry is a sustained form of fear caused by indecision.
+ - There are no accidents; success is the result of doing the right thing, in the right way, over and over.
+ - You always think in terms of customer benefit. You always think, “How could I really benefit people at such a high level that they would love to buy my product or service and recommend it to others?”
+ - You can’t help the poor by becoming one of them.
+ - Self-responsibility is the core quality of the fully mature, fully functioning, self-actualizing individual.
+ - Sometimes you can defuse a difficult situation simply by being willing to understand the other person. Often all that people need is to know that someone else cares about how they feel and it attempting to understand their position.
+ - You are fully responsible for everything you are, everything you have and everything you become.
+ - The true measure of the value of any business leader and manager is performance.
+ - Whatever we expect with confidence becomes our own self-fulfilling prophecy.
+ - Your incredible brain can take you from rags to riches, from loneliness to popularity, and from depression to happiness and joy – if you use it properly.
+ - Get around the right people. Associate with positive, goal-oriented people who encourage and inspire you.
+ - If you can get yourself to read 30 minutes a day, you’re going to double your income every year.
+ - If you have a clear goal and a plan to achieve it, your focus is fixed on a set course of action. Instead of becoming sidetracked by distractions and diversions, your time is focused on a straight line from start to finish.
+ - Every great success is an accumulation of thousands of ordinary efforts that no one else sees or appreciates.
+ - Everyone procrastinates. The difference between high performers and low performers is largely determined by what they choose to procrastinate on. Since you must procrastinate anyway, decide today to procrastinate on low-value activities.
+ - It’s the risk takers that move the human race forward.
+ - The world is full of people who are waiting for someone to come along and motivate them to be the kind of people they wish they could be. The problem is that no one is coming to the rescue.
+ - Self-esteem is the reputation you have with yourself.
+ - If you want to sail your ship in a different direction, you must turn one degree at a time.
+ - Whenever you complete a task of any size or importance, you feel a surge of energy, enthusiasm, and self-esteem. The more important the completed task, the happier, more confident, and more powerful you feel about yourself and your world.
+ - You must master your time rather than becoming a slave to the constant flow of events and demands on your time. And you must organize your life to achieve balance, harmony, and inner peace.
+ - Clarity is essential. Knowing exactly what you want builds your self-confidence immeasurably.
+ - If you want to be in network marketing, you have to be extremely literate online.
+ - An undefined goal is unreachable.
+ - The difference between the hero and the coward is that the hero sticks in there five minutes longer.
+ - Start with a picture of your goal as already achieved in the future, and work back to the present. Imagine the steps that you would have taken to get from where you are now to where you want to be.
+ - You can accomplish virtually any goal you set for yourself, as long as the goal is clear and you persist long enough.
+ - Most people engage in activities that are tension-relieving rather than goal-achieving.
+ - Read an hour every day in your chosen field. This works out to about one book per week, fifty books per year, and will guarantee your success.
+ - Everything you have in your life, you have attracted to yourself because of the way you think, because of the person that you are. You can change your life because you can change the way you think.
+ - The happiest people in the world are those who feel absolutely terrific about themselves, and this is the natural outgrowth of accepting total responsibility for every part of their life.
+ - The success you are enjoying today is the result of the price you have paid in the past.
+ - Your company’s most valuable asset is how it is known to customers.
+ - The definition of flexibility is being constantly open to the fact that you might be on the wrong track.
+ - As a business owner or manager, you know that hiring the wrong person is the most costly mistake you can make.
+ - Knowledge and know-how are the real sources of value and riches. You can learn anything you need to learn to achieve any goal you can set for yourself.
+ - Committing your goals to paper increases the likelihood of your achieving them by one thousand percent!
+ - The word ‘no’ is a great time-saver. Say no to anything that is not the highest and best use of your time.
+ - People don’t trust conglomerates; they trust individuals. Network marketing brings trust and the quality of the relationship to the center of the business. And it enables you to expand indefinitely, simply by expanding the number of relationships.
+ - The most powerful predictable people builders are praise and encouragement.
+ - A person with average talent, ambition and education, can outstrip a genius in society, if that person has focused goals.
+ - The more you discipline yourself to use your time well, the happier you will feel and the better will be the quality of your life in every area.
+ - Order is heaven’s first law. Order is earth’s first law, too.
+ - Failure is an inside job. So is success. If you want to achieve you have to win the war in your thinking first.
+ - What one skill, if you developed it, could have the greatest positive impact on your career? This is the key to your future.
+ - Do your own market research; ask your last ten customers exactly why they bought from you.
+ - Don’t be reluctant to give of yourself generously, it’s the mark of caring and compassion and personal greatness.
+ - Every single life only becomes great when the individual sets upon a goal or goals which they really believe in, which they can really commit themselves to, which they can put their whole heart and soul into.
+ - Nobody values your time but YOU.
+ - Do one small thing immediately – often this is all you need to do to get started.
+ - You can never earn in the outside world more than you earn in your own mind.
+ - Everything in business is to get you face to face with people to respond to your offer. You have to realize the Internet is merely a door opening, and it has to be followed up by aggressive sales activity by the business owner.
+ - An average person who develops the habit of setting clear priorities and getting important tasks completed quickly will run circles around a genius who talks a lot and makes wonderful plans but gets very little done.
+ - Entrepreneurship is the art of finding profitable solutions to problems.
+ - All great success and achievement is preceded and accompanied by hard, hard, work. When in doubt, ‘try harder.’ And if that doesn’t work, try harder still!
+ - Knowing how to deal with change effectively is a primary requirement for living successfully in perhaps the most exciting time in all of human history.
+ - Turn your stumbling blocks into steppingstones to success.
+ - The value of a promise is the cost to you of keeping your word.
+ - If you raise your children to feel that they can accomplish any goal or task they decide upon, you will have succeeded as a parent and you will have given your children the greatest of all blessings.
+ - Our mind is the most valuable possession that we have. The quality of our lives is, and will be, a reflection of how well we develop, train, and utilize this precious gift.
+ - In times of turbulence and rapid change, you must constantly be re-evaluating yourself relative to the new realities.
+ - The fundamental glue that holds any relationship together is trust.
+ - Praise is a powerful people-builder. Catch individuals doing something right.
+ - One of the marks of excellent people is that they never compare themselves with others. They only compare themselves with themselves and with their past accomplishments and future potential.
+ - A major stimulant to creative thinking is focused questions. There is something about a well-worded question that often penetrates to the heart of the matter and triggers new ideas and insights.
+ - Integrity is the foundation upon which all other values are built.
+ - Make a game of finding something positive in every situation. Ninety-five percent of your emotions are determined by how you interpret events to yourself.
+ - The thrill of achievement comes from overcoming adversity in the accomplishment of an important goal.
+ - The more you do for others without expectation of return, the more you’ll get back from the most unexpected sources.
+ - Learn from the experts. Study successful men and women and do what they do and you’ll be successful too.
+ - Only three percent of adults have written goals, and everyone else works for them.
+ - All wealth comes from adding value, from producing more, better, cheaper, faster, and easier than someone else.
+ - Your greatest asset is your earning ability, to apply your knowledge, skills in order to get results which others will pay.
+ - The biggest enemies we have to overcome on the road to success are not a lack of ability and a lack of opportunity but fears of failure and rejection and the doubts that they trigger.
+ - Between you and every goal that you wish to achieve, there is a series of obstacles, and the bigger the goal, the bigger the obstacles.
+ - The history of the human race is the history of ordinary people who have overcome their fears and accomplished extraordinary things.
+ - Make a decision to be successful right now. Most people never decide to be wealthy and that is why they retire poor.
+ - One of the most important rules for success is this: Every great success is the result of hundreds and thousands of small efforts and accomplishments that no one sees or appreciates.
+ - The greatest enemies of success and happiness are negative emotions of all kinds.
+ - Many parents make the mistake of giving love and approval to their children only when their children do something that they want them to do.
+ - Cast aside your doubts. Make a total commitment to living the life you were meant to live.
+ - Everything in life is a checklist, whether it’s building a birdhouse or building a kitchen. If you don’t have a checklist, you’re much more likely to forget something.
+ - Failure is an absolute prerequisite for success. You learn to succeed by failing.
+ - It’s quantity of time at home and quality of time at work that counts; don’t mix them up!
+ - Successful people tend to become more successful because they are always thinking about their successes.
+ - The purpose of time management and getting more done in less time is to enable you to spend more face time with the people you care about and doing the things that give you the greatest amount of joy in life.
+ - If rejection destroys your self-esteem, you’re letting others hold you as an emotional hostage.
+ - To be wealthy you must develop a burning desire for wealth and financial independence.
+ - Think before you act and then act decisively. Fortune favors the brave.
+ - Willpower is essential to the accomplishment of anything worthwhile.
+ - Small improvements in the way you use your time can translate into major differences in your life.
+ - Whatever you dwell on in the conscious grows in your experience.
+ - Any system or blueprint for success is better than none at all. Think on paper.
+ - When you see yourself as calm, positive, truthful and possessed of high character, you behave with greater strength. Other people respect you more. You feel in control of yourself and the situation.
+ - If you were starting over today, what would you do differently? Whatever your answer, start doing it now.
+ - Many successful people get up before 6am in the morning. They have rituals. They exercise, stretch, organize their day, and walk through that series of rituals.
+ - The more times and the more different things you try, the more likely it is that you will succeed.
+ - Everything counts! Everything you do helps or hurts, adds up or takes away.
+ - With greater confidence in yourself and your abilities, you will set bigger goals, make bigger plans and commit yourself to achieving objectives that today you only dream about.
+ - I believe through learning and application of what you learn, you can solve any problem, overcome any obstacle and achieve any goal that you can set for yourself.
+ - The more clear your vision of health, happiness and prosperity, the faster you move toward it and the faster it moves toward you.
+ - Refuse to compromise what you know to be right for anyone or anything.
+ - The more you take on, the more efficient you become. You only learn how much you can actually do by trying to do too much.
+ - The purpose of a business is to create and keep a customer. All business activities must be focused on this central purpose.
+ - When you begin moving toward excellence, you will find very little competition. You’re competing with only 20% of the population.
+ - There are acres of diamonds in the problem you have before you right now.
+ - Your own level of self-acceptance is determined largely by how well you feel you are accepted by the important people in your life.
+ - Self-discipline is a great time-saver; it is the ability to make yourself work on only those things that are most important to you.
+ - Why haven’t you achieved your goals yet? What are your favorite excuses, and how do they hold you back?
+ - If you move boldly in the direction of your goals, unseen forces will come to your aid.
+ - You keep customers by delivering on your promises, fulfilling your commitments and continually investing in the quality of your relationships.
+ - Discipline yourself to find something positive in every situation every day. You attract positivity when you are positive within.
+ - Most companies, 97 percent or more, put all their focus on clever advertising and clever taglines to get people to buy average or mediocre products. You need to back off and offer a really good product or service.
+ - The key to success is to develop a winning edge.
+ - We have a mental block inside us that stops us from earning more than we think we are worth. If we want to earn more in reality, we have to upgrade our self-concept.
+ - Design your financial future in every respect, and then make a plan to achieve it.
+ - The natural tendency of all human behavior is toward the path of least resistance. When you resist this tendency, you become stronger and more powerful.
+ - Dare to go forward. Courage is the mark of greatness in leadership.
+ - Do your very best on every task. Imagine that everyone is watching even when no one is watching.
+ - If you consistently and persistently do the things that other successful people do, nothing in the world can stop you from being a big success also.
+ - The more you teach positive ideas to others, the better you learn them yourself.
+ - Accept complete responsibility both for understanding and for being understood.
+ - If you conduct yourself as though you expect to be successful and happy, you will seldom be disappointed.
+ - Change your thinking, and you will change your life.
+ - Every study of high achieving men and women proves that greatness in life is only possible when you become outstanding at your chosen field.
+ - The starting point of great success in your life begins, in the simplest terms, when you discipline yourself to think and talk about only the things you want and refuse to think and talk about anything you don’t want.
+ - Almost all unhappiness in life comes from the tendency to blame someone else.
+ - Your ability to work with others on a complex task is a critical skill for advancement at work.
+ - Live your life in every way to earn and keep the respect of the people you respect.
+ - One of the best uses of your time is to increase your competence in your key result areas.
+ - Make a habit of dominating the listening, and let the prospect dominate the talking.
+ - Be thankful for all your blessings. An appreciative person makes a pleasant and optimistic person.
+ - Always focus on accomplishments rather than activities.
+ - Your decision to be, have and do something out of ordinary entails facing difficulties that are out of the ordinary as well. Sometimes your greatest asset is simply your ability to stay with it longer than anyone else.
+ - Attitude and personality are as important as experience and ability.
+ - Self-doubt does more to sabotage individual potential than all external limitations put together.
+ - Make a total commitment to your company, your job, and your career. Uncommitted people have no future.
+ - The foundation of confidence in virtually every field is preparation.
+ - Manage by objectives. Tell people exactly what you want them to do and then get out of their way.
+ - We cannot get what we’ve never had, unless we’re willing to do what we’ve never done.
+ - Unconditional acceptance of others is the key to happy relationships.
+ - If you like a person you say ‘let’s go into business together.’ Man is a social animal after all, but such partnerships are fraught with danger.
+ - Combine the dual qualities of empathy and ambitionin every sales relationship.
+ - Think, walk, talk and act like a nonsmoker and you will soon be one.
+ - The very act of accepting responsibility short-circuits and cancels out any negative emotions you may be experiencing.
+ - You contain within yourself a unique combination of talents and abilities which, properly identified and applied, will enable you to achieve virtually any goal you can set for yourself.
+ - Managers today have to do more with less, and get better results from limited resources, more than ever before.
+ - Combine your mental images with the emotion of desire to accelerate their realization.
+ - Poor or fuzzy communications are major time-wasters. Take the time to be crystal-clear in your communications with others.
+ - Your self-confidence is directly connected to how much you feel you are making a difference in the world.
+ - Your earning ability today is largely dependent upon your knowledge, skill and your ability to combine that knowledge and skill in such a way that you contribute value for which customers are going to pay.
+ - Eighty percent of life’s satisfaction comes from meaningful relationships.
+ - Proper business planning demands that you focus on the self-interest of the customer at all times.
+ - Your persistence is, in fact, the true measure of your belief in yourself and your ability to succeed. Each time that you persist in the face of adversity and disappointment, you build the habit of persistence.
+ - The better you get at your key skills, the more you accomplish in a shorter period of time.
+ - It’s astonishing how many business owners are terrified of selling. Salespeople who see the most people a day are the highest paid regardless of the economy.
+ - The average person works at fifty percent or less of their potential. Your job is to unleash that extra fifty percent.
+ - Most successful businesses in the country were started on a kitchen table. As long as people have needs unmet or problems unsolved, there are business opportunities.
+ - No matter how many personal productivity techniques you master, there will always be more to do than you can ever accomplish in the time you have available to you, no matter how much it is.
+ - Take complete control over the messages you allow into your conscious mind.
+ - Accept that you are where you are and what you are because of your own choices and decisions.
+ - The single common denominator of men and women who achieve great things is a sense of destiny.
+ - Plan your work and work your plan. Decide in advance exactly how you are going to get from where you are to where you want to go.
+ - If you think education is expensive, you should try ignorance.
+ - Develop an ’attitude of gratitude.
+ - Discipline is what you must have to resist the lure of excuses.
+ - Whenever you set a goal of any kind, you will have to grow and develop to the point where you are ready to achieve it.
+ - If you associate with turkeys, you will never fly with the eagles.
+ - What have you always wanted to do but been afraid to attempt? Whatever it is, it may be your greatest opportunity in life.
+ - How often does the tightrope walker balance when walking across the tightrope? All the time! It is the same thing if you really want to have a successful career, and you want to have a happy home life. It is a matter of balance.
+ - Almost all stress, tension, anxiety, and frustration, both in life and in work, comes from doing one thing while you believe and value something completely different.
+ - Spend unbroken chunks of time with the most important people in your life.
+ - When you find your heart’s desire, you’ll have the key to unlocking your potential in every other part of your life.
+ - There are, basically, three kinds of people: the unsuccessful, the temporarily successful, and those who become and remain successful. The difference is character.
+ - A major stimulant to creative thinking is focused questions.
+ - To discover new continents, you must be willing to lose sight of the shore.
+ - If there is no cure, you must endure.
+ - The depth of your belief and the strength of your conviction determines the power of your personality.
+ - The kindest thing you can do for the people you care about is to become a happy, joyous person.
+ - Winners make a habit of manufacturing their own positive expectations in advance of the event.
+ - The effective leader recognizes that she is more dependent on her people than they are on her. Walk softly.
+ - The mark of the superior thinker is his or her ability to accurately predict the consequences of doing or not doing something.
+ - Only by contending with challenges that seem to be beyond your strength to handle at the moment you can grow more surely toward the stars.
+ - To be truly happy, you need a clear sense of meaning and purpose in life.
+ - Your ability to set goals and to make plans for their accomplishment is the master skill of success.
+ - There is nobody like him in the world. There is – and always will be – one Jim Rohn.
+ - The primary reason for underachievement and failure is that the great majority of people don’t decide to be successful.
+ - Deal honestly and objectively with yourself; intellectual honesty and personal courage are the hallmarks of great character.
+ - Goals that are not written down and developed into plans are like bullets without powder in the cartridge. People with unwritten goals go through life shooting blanks.
+ - What are the critical success factors of your job? What must you be absolutely, positively excellent at doing to be successful?
+ - The best words for resolving a disagreement are, “I could be wrong; I often am.” It’s true.
+ - Be willing to launch in faith, with no guarantees of success. This is the mark of personal greatness.
+ - The person we believe ourselves to be will always act in a manner consistent with our self-image.
+ - Ignorance breeds fear; the more you learn about your subject, the less fear it holds for you.
+ - No one makes you feel anything. It is how you react and respond that determines your emotions.
+ - Resolve to pay any price or make any sacrifice to get into the top ten percent of your field. That payoff is incredible!
+ - Everybody has a need for speed and you actually make your product, or service, or services more attractive when you do them fast.
+ - Everything you do to improve your physical well-being will have a positive impact on how good you feel about yourself.
+ - You can develop any habit or thought or behavior that you consider desirable or necessary.
+ - Flood your life with ideas from many sources. Creativity needs to be exercised like a muscle. If you don’t use it, you’ll lose it!
+ - If you want to develop courage, then simply act courageously when it’s called for. If you do something over and over again, you develop a habit. Some people develop the habit of courage. Some people develop the habit of non-courage.
+ - Indecision is a major time waster; 80% of decisions should be made the first time they come up.
+ - The only pressure that you use in a professional selling presentation is the presence of silence after the closing question.
+ - Resolve in advance to persist until you succeed, no matter what the difficulty.
+ - You cannot increase the quality or quantity of your achievement or performance except to the degree in which you increase your ability to use your time effectively.
+ - You are a potential genius; there is no problem you cannot solve, and no answer you cannot find somewhere.
+ - Your ability to concentrate single-mindedly on one thing, the most important thing, and stay at it until it is complete, is an essential prerequisite for success.
+ - Visualize and think about yourself as you would ideally like to be, not just as you are.
+ - Success comes to those who are willing to launch toward their goals with no guarantees of success – and persist when there is every reason to give up.
+ - When you are younger, you worry about what people think about you. When you are older, you realize that no one was ever thinking about you at all.
+ - People create their own success by learning what they need to learn and then by practicing it until they become proficient at it.
+ - Money is hard to earn and easy to lose. Guard yours with care.
+
+500 quotes

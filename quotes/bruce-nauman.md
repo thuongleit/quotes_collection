@@ -1,0 +1,28 @@
+ - If you really want to do it, you do it. There are no excuses.
+ - If I was an artist, and I was in the studio, then whatever I was doing in the studio must be art.
+ - Did you stop because it was good enough, or could have done more – but then maybe ruined it too? Sometimes you finish because you’ve gone too far.
+ - The true artist helps the world by revealing mystic truths.
+ - In art, the only one who really knows whether what you’ve done is honest is the artist.
+ - And the part about being a professional artist is that you can tell and you can do it over again, even if you can’t say how you got there exactly.
+ - One of the factors that still keeps me in the studio is that every so often I have to more or less start all over.
+ - Pete and Repeat were sitting on a wall. Pete fell off. Who was left? Repeat.
+ - My work is basically an outgrowth of the anger I feel about the human condition. The aspects of it that make me angry are our capacity for cruelty and the ability people have to ignore situations they don’t like.
+ - A good teacher is like a good artist. They go right to the most difficult part of whatever’s going on.
+ - Learn to recognise when you need to know something.
+ - And then what makes the work interesting is if you choose the right questions.
+ - When I was in art school, I thought art was something I would learn how to do, and then I would just do it. At a certain point I realized that it wasn’t going to work like that. Basically, I would have to start over every day and figure out what art was going to be.
+ - In the studio, I don’t do a lot of work that requires repetitive activity. I spend a lot of time looking and thinking and then try to find the most efficient way to get what I want, whether it’s making a drawing or a sculpture, or casting plaster or whatever.
+ - If you choose the wrong questions and you proceed, you still get a result, but it’s not interesting.
+ - I don’t like to think about being an influence. It’s embarrassing.
+ - I’ll talk. You’ll listen.
+ - But part of the enjoyment I take in it is finding the most efficient way to do it, which doesn’t mean the corrections aren’t made. I like to have a feeling of the whole task before I start, even if it changes.
+ - I want to be in the studio. I want to be doing something. You just do whatever is at hand, and you don’t even worry about whether it’s going to be interesting or not interesting to anybody else-or even yourself. You just have to make something.
+ - But if you can find that spot – I suppose it’s like running – I used to be a swimmer and swim laps, and you just have to be there with what you’re doing.
+ - What I am really concerned about is what art is supposed to be – and can become.
+ - And sometimes the question that you pose or the project that you start yourself turns into something else, you know, but at least it gets you started.
+ - It’s interesting when you make things or do things that open up the possibilities for making more things, or different kinds of things.
+ - Generalised anger and frustration is something that gets you in the studio, and gets you to work – though it’s not necessarily evident in anything that’s finished.
+ - My videos always involve some idea of a human being in a unusual situation-and what happens.
+ - And I don’t have any specific steps to take because I don’t start the same way every time. But there is a knowing when it’s enough and you can leave it alone.
+
+26 quotes

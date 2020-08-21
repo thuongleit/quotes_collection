@@ -1,0 +1,66 @@
+ - The world doesn’t come to the clever folks, it comes to the stubborn, obstinate, one-idea-at-a-time people.
+ - A little work, a little sleep, a little love and it’s all over.
+ - Every crucial experience can be regarded either as a setback, or the start of a wonderful new adventure, it depends on your perspective!
+ - Love sees clearly, and seeing, loves on. But infatuation is blind; when it gains sight, it dies.
+ - Patience and endurance were not virtues in a woman; they were necessities, forced on her. Perhaps some day things would change and women would renounce them. They would rise up and say: ‘We are not patient. We will endure no more.’ Then what would happen to the world?
+ - Peace is not a passive but an active condition, not a negation but an affirmation.
+ - Old men make wars that young men may die.
+ - Lightning never strikes twice in the same place.
+ - The mystery story is two stories in one: the story of what happened and the story of what appeared to happen.
+ - I hate those men who would send into war youth to fight and die for them; the pride and cowardice of those old men, making their wars that boys must die.
+ - When a great burden is lifted, the relief is not always felt at once. The galled places still ache.
+ - Curious, how one remembered Christmas. Perhaps because other days might appeal to the head, but this one appealed to the heart.
+ - Conflict is the very essence of life.
+ - People that trust themselves a dozen miles from the city, in strange houses, with servants they don’t know, needn’t be surprised if they wake up some morning and find their throats cut.
+ - It’s the safety valve of middle life, and the solace of age.
+ - The stage on which we play our little dramas of life and love has for most of us but one setting.
+ - From class consciousness to class hatred was but a step.
+ - Death was a beginning and not an end; it was the morning of the spirit. Tired bodies lay down to sleep and their souls wakened to the morning, rested; the first fruits of them that slept.
+ - Men play harder than they work; women work harder than they play.
+ - There is a point at which curiosity becomes unbearable, when it becomes an obsession, like hunger.
+ - Women are like dogs really. They love like dogs, a little insistently. And they like to fetch and carry and come back wistfully after hard words, and learn rather easily to carry a basket.
+ - Courage was America’s watchword, but a courage of the body rather than of the soul – physical courage, not moral.
+ - Love is like the measles, all the worse when it comes late.
+ - A cat and a Bible, and nobody needs to be lonely.
+ - Young Doctor Arden was gong through the process of reorienting himself after a night’s sleep.
+ - That is the tragedy of growing old, Chris. You don’t leave the world. It leaves you.
+ - Suspicion is like the rain. It falls on the just and on the unjust.
+ - Great loves were almost always great tragedies. Perhaps it was because love was never truly great until the element of sacrifice entered into it.
+ - The one pleasure that never palls is the pleasure of not going to church.
+ - To the bottle! In infancy, the milk bottle; in our prime, the wine bottle; in our dotage, the pill bottle.
+ - Men love a joke – on the other fellow. But your really humorous woman loves a joke on herself.
+ - Well, that was life. It was an old tree, and the old passed on. Probably they did not mind. There came a time when all sap ran slowly, and the peace of age with all things behind it merged easily into the peace of death. The difficult thing was to be young.
+ - I never saw a lawyer yet who would admit he was making money.
+ - Every writer knows the terror of an unexpected success. How to carry on? How to repeat it?
+ - Some day some one will write a book about that frantic search of the creative worker for silence and freedom, not only from interruption but from the fear of interruption.
+ - Useless as a pulled tooth.
+ - It’s money that brings trouble. It always has and it always will.
+ - The author lives with one foot in an everyday world and the other feeling about anxiously for a foothold in another more precarious one.
+ - I have a great deal of mind. It takes a long time to change it.
+ - Enemies are an indication of character.
+ - McKnight is gradually taking over the criminal end of the business.
+ - There is something shameful about the death of a play. It does not die with pity, but contempt.
+ - It takes a good many years and some pretty hard knocks to make people tolerant.
+ - I began to feel that if religion was either an illusion or a revelation, it was simpler to accept it as an illusion.
+ - I have always regarded divorce as essentially disagreeable, like castor oil, but necessary.
+ - We are often miserable at our desk or typewriters, but not happy away from them.
+ - There is nothing for the modern man or woman to fear about most cases of cancer. Nothing except delay.
+ - Used to move so much, every time the chickens saw the team put in the wagon, they’d lie down on their backs and hold their legs up to be tied!
+ - I have never learned to say ‘gas’ for gasoline. It seems to me as absurd as if I were to say ‘but’ for butter.
+ - Herbert used to say that he was as tight as the paper on the wall.
+ - Besides, you want the unvarnished and ungarnished truth, and I’m no hand for that. I’m a lawyer.
+ - I found that my name signed to a check was even more welcome than when signed to a letter...
+ - I suppose it is because woman’s courage is mental and man’s physical, that in times of great strain women always make the better showing.
+ - Of one thing the reader can be certain: the more easily anything reads, the harder it has been to write.
+ - All houses in which men have lived and suffered and died are haunted houses.
+ - The writing career is not a romantic one. The writer’s life may be colorful, but his work itself is rather drab.
+ - I suppose that we are only young, Chris, so long as we can forget. After that we merely remember!
+ - These are times of action. Men think and then act; sometimes, indeed, they simply act.
+ - There is no place in the world, I imagine, for a philosopher with a sense of humor, a new leisure, and an inquiring turn of mind!
+ - What a tragedy it was that the only thing age could offer to youth was its own experience, and that the experiences of others were never profitable.
+ - Natalie Spenser was giving a dinner. She was not an easy hostess.
+ - It is only in his head that man is heroic; in the pit of his stomach he is always a coward.
+ - It was said of Miss Letitia that when money came into her possession it went out of circulation.
+ - Girls inevitably grew into women, but something of the boy persisted in every man.
+
+64 quotes

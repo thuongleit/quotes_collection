@@ -1,0 +1,22 @@
+ - I’m a big believer in spontaneity.
+ - To defy the laws of tradition is a crusade only of the brave.
+ - I like to open new doors and blaze new trails through the jungle and all that whatnot. What keeps me goin all these years is changin it up.
+ - You might have a favorite book or film, but you can only watch or read it so many times before you have to let it sit and then go back and realize it’s your favorite still. At some point everything gets a little stale and you have to step away from it.
+ - Because nobody wanted to play bass, I was instantly in a band.
+ - Comedians get jokes offered to them, rock stars get women and underwear thrown onstage, and I get guys that want to take me fishing.
+ - Oh, welcome to this world of fools, of pink champagne and swimming pools, where all you have to lose is your virginity. Perhaps you’ll have some fun tonight, just stick around and take a bite, of life. We don’t need feebleness in this proximity.
+ - You can’t watch ‘Dr. Strangelove’ with commercials. That would be sacrilegious.
+ - Band chemistry is a tricky thing. If one guy isn’t feeling right with the other guys, everything gets thrown off. When you get the personalities and the chemistry right, that’s a grand slam.
+ - Daniel Day-Lewis is my favorite actor walking the planet right now. He never ceases to amaze me.
+ - Music in general is looking for something new overall.
+ - I’ll run against the grain till the day I drop?
+ - I pretty much built a band out of the most incredible guys I could possibly find. I didn’t really want a six-piece band, but it just ended up being a six-piece band because these guys are all awesome.
+ - More than anything, I think the best thing you can do as an artist is just stay as true to yourself as possible and hope that your fan base will appreciate that.
+ - I liked the name Frog Brigade because it lent itself to a lot of cool imagery with the whole frog thing.
+ - San Francisco is an interesting place. It’s always been such a nice culturally diverse environment, which it still is, but there’s a lot of money there now and a lot of dot com’s so it’s a little different than it used to be.
+ - We’ve all had our thing. I listened to the Monkees when I was little kid.
+ - Theaters are great. They’re designed to sound good, not for basketball.
+ - My favorite venues are the 2,000 seat theaters, like the Warfield. If there was a Warfield in every city, I would play it. That’s all I would do. I love venues like that.
+ - I think the world is very much embracing this whole concept of musicians going out and playing their instruments and playing music for music as opposed to music that has something to do with some form of image or imagery.
+
+20 quotes

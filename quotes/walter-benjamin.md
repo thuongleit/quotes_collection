@@ -1,0 +1,102 @@
+ - Even the most perfect reproduction of a work of art is lacking in one element: its presence in time and space, its unique existence at the place where it happens to be.
+ - Capitalism is a purely cultic religion, perhaps the most extreme that ever existed.
+ - It is the task of the translator to release in his own language that pure language that is under the spell of another, to liberate the language imprisoned in a work in his re-creation of that work.
+ - The concept of progress must be grounded in the idea of catastrophe. That things are ‘status quo’ is the catastrophe.
+ - You could tell a lot about a man by the books he keeps – his tastes, his interest, his habits.
+ - Marx says that revolutions are the locomotives of world history. But the situation may be quite different. Perhaps revolutions are not the train ride, but the human race grabbing for the emergency brake.
+ - History breaks down into images, not into stories.
+ - I came into the world under the sign of Saturn – the star of the slowest revolution, the planet of detours and delays.
+ - The only way of knowing a person is to love them without hope.
+ - Only for the sake of the hopeless have we been given hope.
+ - We collect books in the belief that we are preserving them when in fact it is the books that preserve their collector.
+ - For what is the program of the bourgeois parties? A bad poem on springtime, filled to bursting with metaphors.
+ - The destructive character lives from the feeling, not that life is worth living, but that suicide is not worth the trouble.
+ - Never stop writing because you have run out of ideas.
+ - To perceive the aura of an object we look at means to invest it with the ability to look at us in return.
+ - There is no muse of philosophy, nor is there one of translation.
+ - The present, which, as a model of Messianic time, comprises the entire history of mankind in an enormous abridgment, coincides with the stature which the history of mankind has in the universe.
+ - The illiterate of the future will not be the man who cannot read the alphabet, but the one who cannot take a photograph.
+ - What we must demand from the photographer is the ability to put such a caption beneath his picture as will rescue it from the ravages of modishness and confer upon it a revolutionary use value.
+ - These are days when no one should rely unduly on his competence. Strength lies in improvisation. All the decisive blows are struck left-handed.
+ - Those who do not learn how to decipher photographs will be the illiterate of the future.
+ - Never stop writing because you have run out of ideas. Fill the lacunae of inspiration by tidily copying out what is already written.
+ - Mechanical reproduction emancipates the work of art from its parasitical dependence on ritual.
+ - The construction of life is at present in the power of facts far more than convictions.
+ - In the convulsions of the commodity economy, we begin to recognize the monuments of the bourgeoisie as ruins even before they have crumbled.
+ - In the fields with which we are concerned, knowledge comes only in flashes. The text is the thunder rolling long afterward.
+ - Gifts must affect the receiver to the point of shock.
+ - True translation is transparent: it does not obscure the original, does not stand in its light, but rather allows pure language, as if strengthened by its own medium, to shine even more fully on the original.
+ - As Hegel put it, only when it is dark does the owl of Minerva begin its flight. Only in extinction is the collector comprehend.
+ - Art teaches us to see into things. Folk art and kitsch allow us to see outward from within things.
+ - In every case the storyteller is a man who has counsel for his readers.
+ - All the decisive blows are struck left-handed.
+ - The tradition of the oppressed teaches us that the “state of emergency” in which we live is not the exception but the rule.
+ - Work on a good piece of writing proceeds on three levels: a musical one, where it is composed; an architectural one, where it is constructed; and finally, a textile one, where it is woven.
+ - It is only for those without hope that hope is given.
+ - Our image of happiness is indissolubly bound up with the image of redemption.
+ - He who asks fortune-tellers the future unwittingly forfeits an inner intimation of coming events that is a thousand times more exact than anything they may say.
+ - All great works of literature either dissolve a genre or invent one.
+ - Allegories are, in the realm of thought, what ruins are in the realm of things.
+ - Kitsch offers instantaneous emotional gratification without intellectual effort, without the requirement of distance, wihtout sublimation.
+ - For every second of time was the strait gate through which the Messiah might enter.
+ - The work of memory collapses time.
+ - All efforts to make politics aesthetic culminate in one thing, war.
+ - If sleep is the apogee of physical relaxation, boredom is the apogee of mental relaxation. Boredom is the dream bird that hatches the egg of experience.
+ - We have long forgotten the ritual by which the house of our life was erected. But when it is under assault and enemy bombs are already taking their toll, what enervated, perverse antiquities do they not lay bare in the foundations.
+ - Like ultraviolet rays memory shows to each man in the book of life a script that invisibly and prophetically glosses the text.
+ - Each morning the day lies like a fresh shirt on our bed; this incomparably fine, incomparably tightly woven tissue of pure prediction fits us perfectly. The happiness of the next twenty-four hours depends on our ability, on waking, to pick it up.
+ - Ownership is the most intimate relationship that one can have to objects. Not that they come alive in him; it is he who lives in them.
+ - I would like to metamorphose into a mouse-mountain.
+ - The adjustment of reality to the masses and of the masses to reality is a process of unlimited scope, as much for thinking as for perception.
+ - A blind determination to save the prestige of personal existence, rather than, through an impartial disdain for its impotence and entanglement, at least to detach it from the background of universal delusion, is triumphing almost everywhere.
+ - There is no document of civilization that is not at the same time a document of barbarism.
+ - To a book collector, you see, the true freedom of all books is somewhere on his shelves.
+ - Nothing is poorer than a truth expressed as it was thought. Committed to writing in such cases, it is not even a bad photograph. Truth wants to be startled abruptly, at one stroke, from her self-immersion, whether by uproar, music or cries for help...
+ - Any order is a balancing act of extreme precariousness.
+ - No poem is intended for the reader, no picture for the beholder, no symphony for the listener.
+ - Every image of the past that is not recognised by the present as one of its own threatens to disappear irretrievably.
+ - During long periods of history, the mode of human sense perception changes with humanity’s entire mode of existence. The manner in which human sense perception is organized, the medium in which it is accomplished, is determined not only by nature but by historical circumstances as well.
+ - Things are only mannequins and even the great world-historical events are only costumes beneath which they exchange glances with nothingness.
+ - Let no thought pass incognito, and keep your notebook as strictly as the authorities keep their register of aliens.
+ - To do justice to the figure of Kafka in its purity and its peculiar beauty one must never lose sight of one thing: it is the purity and beauty of a failure.
+ - Books and harlots have their quarrels in public.
+ - In the world’s structure dream loosens individuality like a bad tooth.
+ - As long as there is still one beggar around, there will still be myth.
+ - Melancholy betrays the world for the sake of knowledge. But in its tenacious self-absorption it embraces dead objects in its contemplation, in order to redeem them.
+ - To the lover the loved one always appears as solitary.
+ - The Messiah comes not only as the redeemer, he comes as the subduer of Antichrist. Only that historian will have the gift of fanning the spark of hope in the past who is firmly convinced that even the dead will not be safe from the enemy if he wins. And this enemy has not ceased to be victorious.
+ - Living substance conquers the frenzy of destruction only in the ecstasy of procreation.
+ - Books, too, begin like the week – with a day of rest in memory of their creation. The preface is their Sunday.
+ - The more circumspectly you delay writing down an idea, the more maturely developed it will be on surrendering itself.
+ - Counsel woven into the fabric of real life is wisdom.
+ - For only that which we knew and practiced at age 15 will one day constitute our attraction. And one thing, therefore, can never be made good: having neglected to run away from home.
+ - Writers are really people who write books not because they are poor, but because they are dissatisfied with the books which they could buy but do not like.
+ - Any translation which intends to perform a transmitting function cannot transmit anything but information-hence, something inessential. This is the hallmark of bad translations.
+ - Genuine polemics approach a book as lovingly as a cannibal spices a baby.
+ - Quotations in my work are like wayside robbers who leap out armed and relieve the stroller of his conviction.
+ - The film is the first art form capable of demonstrating how matter plays tricks on man.
+ - The idea that happiness could have a share in beauty would be too much of a good thing.
+ - Press to make the public incapable of judging, to insinuate into it the...
+ - Not to find one’s way around a city does not mean much. But to lose one’s way in a city, as one loses one’s way in a forest, requires some schooling.
+ - The good tidings which the historian of the past brings with throbbing heart may be lost in a void the very moment he opens his mouth.
+ - The true picture of the past flits by. The past can be seized only as an image which flashes up at the instant when it can be recognized and is never seen again.
+ - Experience has taught me that the shallowest of communist platitudes contains more of a hierarchy of meaning than contemporary bourgeois profundity.
+ - The distracted person, too, can form habits.
+ - How many cities have revealed themselves to me in the marches I undertook in the pursuit of books!
+ - The killing of a criminal can be moral-but never its legitimation.
+ - Opinions are a private matter. The public has an interest only in judgments.
+ - A bearer of news of death appears to himself as very important. His feeling – even against all reason – makes him a messenger from the realm of the dead.
+ - Thinking involves not only the flow of thoughts, but their arrest as well.
+ - Opinions are to the vast apparatus of social existence what oil is to machines: one does not go up to a turbine and pour machine oil over it; one applies a little to hidden spindles and joints that one has to know.
+ - We do not always proclaim loudly the most important thing we have to say. Nor do we always privately share it with those closest to us, our intimate friends, those who have been most devotedly ready to receive our confession.
+ - Rather than ask, What is the attitude of a work to the relations of production of its time? I should like to ask, What is its position in them.
+ - In other words, the unique value of the “authentic” work of art has its basis in ritual, the location of its original use value. This ritualistic basis, however remote, is still recognizable as secularized ritual even in the most profane forms of the cult of beauty.
+ - Literature tells very little to those who understand it.
+ - The nourishing fruit of the historically understood contains time as a precious but tasteless seed.
+ - Of all the ways of acquiring books, writing them oneself is regarded as the most praiseworthy method.
+ - For me, it was like this: pronounced antipathy to conversing about matters of practical life, the future, dates, politics. You are fixated on the intellectual sphere as a man possessed may be fixated on the sexual: under its spell, sucked into it.
+ - You follow the same paths of thought as before. Only, they appear strewn with roses.
+ - In the end, we get older, we kill everyone who loves us through the worries we give them, through the troubled tenderness we inspire in them, and the fears we ceaselessly cause.
+ - All religions have honored the beggar. For he proves that in a matter at the same time as prosaic and holy, banal and regenerative as the giving of alms, intellect and morality, consistency and principles are miserably inadequate.
+
+100 quotes

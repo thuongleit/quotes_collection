@@ -1,0 +1,30 @@
+ - No power on earth can stop an idea whose time has come.
+ - Life is never free of contradictions.
+ - India happens to be a rich country inhabited by very poor people.
+ - The essence of Hinduism is that the path may be different, but the goal is the same.
+ - Ethical and responsible behavior needs to become the cornerstone of corporate behavior.
+ - Unity and secularism will be the motto of the government. We can’t afford divisive polity in India.
+ - India was a late comer to industrialization, and as such, we have contributed very little to the accumulation of greenhouse gas emissions that cause global warming. But we are determined to be part of the solution to the problem.
+ - I am not very good at statistics. I am also a poor thinker.
+ - Nobody should be allowed to tinker with democracy. We will not discontinue the good works of the past government.
+ - Terrorists had the advantage of surprise.
+ - I can assure you we are a responsible nuclear power.
+ - Protectionism has to be avoided. Protectionism is not only on goods but also in the area of services. Financial protectionism is also bad and should be avoided.
+ - Those who create wealth should be shown the greatest respect.
+ - Capitalism historically has been a very dynamic force, and behind that force is technical progress, innovation, new ideas, new products, new technologies, and new methods of managing teams.
+ - The Indian economy grew at 5.5 percent, but if you look at the last 30 years – for example, 1960 to 1985 – the progress made by East Asian countries was phenomenal. In a single generation they had been able to transform the character of their economy. They were able to get rid of chronic poverty.
+ - We are a coalition government, and that limits our options in some ways. Privatization happens to be one such area.
+ - We are a mixed economy. We will remain a mixed economy. The public and private sector will continue to play a very important role. The private sector in our country has very ample scope and I am confident that India’s entrepreneurs have the capacity, and the will to rise to the occasion.
+ - No nation, no society, no community can hold its head high and claim to be part of the civilized world if it condones the practice of discriminating against one half of humanity represented by women.
+ - Together with international unity and resolve we can meet the challenge of this global scourge and work to bring about an international law of zero tolerance for terrorism.
+ - We got government off the backs of the people of India, particularly off the backs of India’s entrepreneurs. We introduced more competition, both internal competition and external competition. We simplified and rationalized the tax system. We made risk-taking much more attractive.
+ - Jawaharlal Nehru wanted India to develop close ties with China and learn from its experience.
+ - If you don’t have a functioning financial system the world economy won’t be revived. All the major economies have their responsibility to assist at a pace which is required to clean up the balance sheet of the banking system and to ensure that credit flows are resumed.
+ - Yes, I think India’s economy always has been a mixed economy, and by Western standards we are much more of a market economy than a public sector-driven economy.
+ - My top most priority is to deal with India’s massive social and economic problems, so that chronic poverty, ignorance and disease can be conquered in a reasonably short period of time.
+ - Protectionism is a very real danger. It is understandable that in times of a severe downturn protectionist pressures mount but the lessons of history are clear. If we give in to protectionist pressures, we will only send the world into a downward spiral.
+ - Let me say that I think the economic history of the last 150 years clearly shows that if you want to industrialize a country in a short period, let us say 20 years, and you don’t have a well-developed private sector, entrepreneurial class, then central planning is important.
+ - If you have a rigidly controlled economy, cut off from the rest of the world by infinite protection, nobody has any incentive to increase productivity and to bring new ideas.
+ - We all know the epicentre of terrorism in the world today is Pakistan. The world community has to come to grips with this harsh reality.
+
+28 quotes

@@ -1,0 +1,73 @@
+ - A thing that you see in my pictures is that I was not afraid to fall in love with these people.
+ - You don’t have to sort of enhance reality. There is nothing stranger than truth.
+ - You have trust in what you think. If you splinter yourself and try to please everyone, you can’t. It’s important to stay the course. I don’t think I would have lasted this long if I’d listened to anyone. You have to listen somewhat and then put that to the side and know that what you do matters.
+ - One doesn’t stop seeing. One doesn’t stop framing. It doesn’t turn off and turn on. It’s on all the time.
+ - You have trust in what you think. If you splinter yourself and try to please everyone, you can’t.
+ - When I’m asked about my work, I try to explain that there is no mystery involved. It is work. But things happen all the time that are unexpected, uncontrolled, unexplainable, even magical. The work prepares you for that moment. Suddenly the clouds roll in and the soft light you longed for appears.
+ - When I was younger I did things with a camera I would not do by myself. I went down to the docks in San Francisco and asked a fisherman if he would take me out on his boat. I would never do that without a camera.
+ - When you go to take someone’s picture, the first thing they say is, what you want me to do? Everyone is very awkward.
+ - A photograph is just a little, teeny-weeny, small piece of life. I feel like I see so much more than what I can actually get.
+ - There is a myth that the portrait photographer is supposed to make the subject relax, and that’s the real person. But I’m interested in whatever is going on. And I’m not that comfortable myself.
+ - Things happen in front of you. That’s perhaps the most wonderful and mysterious aspect of photography.
+ - The subjects felt more comfortable if they played the role than if they had to be themselves.
+ - The camera makes you forget you’re there. It’s not like you are hiding but you forget, you are just looking so much.
+ - A photograph is just a tiny slice of a subject. A piece of them in a moment. It seems presumptuous to think you can get more than that.
+ - All dancers are, by and large, a photographer’s dream. They communicate with their bodies and they are trained to be completely responsive to a collaborative situation.
+ - I’m pretty used to people not liking having their picture taken. I mean, if you do like to have your picture taken, I worry about you.
+ - I wish that all of nature’s magnificence, the emotion of the land, the living energy of place could be photographed.
+ - In this day and age of things moving so, so fast, we still long for things to stop, and we as a society love the still image. Every time there is some terrible or great moment, we remember the stills.
+ - Computer photography won’t be photography as we know it. I think photography will always be chemical.
+ - When you are on assignment, film is the least expensive thing in a very practical sense. Your time, the person’s time, turns out to be the most valuable thing.
+ - My early childhood equipped me really well for my portrait work: The quick encounter, where you are not going to know the subject for very long. These days I am much more comfortable with the fifteen minute relationship, than I am with a life long relationship.
+ - A very subtle difference can make the picture or not.
+ - What I learned from Lennon was something that did stay with me my whole career, which is to be very straightforward. I actually love talking about taking pictures, and I think that helps everyone.
+ - Everyone has a point of view. Some people call it style, but what we’re really talking about is the guts of a photograph. When you trust your point of view, that’s when you start taking pictures.
+ - As a young person, and I know it’s hard to believe that I was shy, but you could take your camera, and it would take you to places: it was like having a friend, like having someone to go out with and look at the world. I would do things with a camera I wouldn’t do normally if I was just by myself.
+ - I fight to take a good photograph every single time.
+ - If I didn’t have my camera to remind me constantly, I am here to do this, I would eventually have slipped away, I think. I would have forgotten my reason to exist.
+ - I love having the photograph in my hand. I love looking at the photograph. I love looking at a box of photographs. I just love the still photograph.
+ - My lens of choice was always the 35 mm. It was more environmental. You can’t come in closer with the 35 mm.
+ - What I end up shooting is the situation. I shoot the composition and my subject is going to help the composition or not.
+ - If it makes you cry, it goes in the show.
+ - I was scared to do anything in the studio because it felt so claustrophobic. I wanted to be somewhere where things could happen and the subject wasn’t just looking back at you.
+ - The work which is manipulated looks a little boring to me. I think life is pretty strange anyway. It is wooo, wooo, wooo!
+ - I don’t think there is anything wrong with white space. I don’t think it’s a problem to have a blank wall.
+ - I’d like to think that the actions we take today will allow others in the future to discover the wonders of landscapes we helped protect but never had the chance to enjoy ourselves.
+ - It’s hard to watch something go on and be talking at the same time.
+ - Nature is so powerful, so strong. It takes you to a place within yourself.
+ - When I started working for Rolling Stone, I became very interested in journalism and thought maybe that’s what I was doing, but it wasn’t.
+ - Everyone keeps asking you for pictures, and after a while you get tired of that. I always say, They are in the archives.
+ - What I am interested in now is the landscape. Pictures without people. I wouldn’t be surprised if eventually there are no people in my pictures. It is so emotional.
+ - There are still so many places on our planet that remain unexplored. I’d love to one day peel back the mystery and understand them.
+ - Photography’s like this baby that needs to be fed all the time. It’s always hungry.
+ - I sometimes find the surface interesting. To say that the mark of a good portrait is whether you get them or get the soul – I don’t think this is possible all of the time.
+ - I’m more interested in being good than being famous.
+ - I shoot a little bit, maybe two rolls, medium format, which is 20 pictures, and if it’s not working, I change the position.
+ - People buy ideas, they don’t buy photographs.
+ - I feel very proud of the work from the ’80s because it is very bright and colorful.
+ - The pictures of my family were designed to be on a family wall, they were supposed to be together. It was supposed to copy my mother’s wall in her house.
+ - I didn’t want to let women down. One of the stereotypes I see breaking is the idea of aging and older women not being beautiful.
+ - A lot can be told from what happens in between the main moments.
+ - When I say I want to photograph someone, what it really means is that I’d like to know them. Anyone I know I photograph.
+ - I am impressed with what happens when someone stays in the same place and you took the same picture over and over and it would be different, every single frame.
+ - It’s a heavy weight, the camera. Now we have modern and lightweight, small plastic cameras, but in the ’70s they were heavy metal.
+ - Irving Penn said he didn’t want to photograph anyone under 60, and I think there is some truth about it.
+ - I feel a responsibility to my backyard. I want it to be taken care of and protected.
+ - I actually love talking about taking pictures, and I think that helps everyone.
+ - When I take a picture I take 10 percent of what I see.
+ - When you are younger, the camera is like a friend and you can go places and feel like you’re with someone, like you have a companion.
+ - My hope is that we continue to nurture the places that we love, but that we also look outside our immediate worlds.
+ - Most people, especially successful people, are hard-working. They want to participate. They want to do things well.
+ - There must be a reason why photographers are not very good at verbal communication. I think we get lazy.
+ - I’ve created a vocabulary of different styles. I draw from many different ways to take a picture. Sometimes I go back to reportage, to journalism.
+ - No one ever thought Clint Eastwood was funny, but he was.
+ - I still need the camera because it is the only reason anyone is talking to me.
+ - As you get older, you have different tools, and you learn to use photography differently.
+ - Lennon was very helpful. What he taught me seems completely obvious: he expected people to treat each other well.
+ - Sometimes I enjoy just photographing the surface because I think it can be as revealing as going to the heart of the matter.
+ - I’ve always cared more about taking pictures than about the art market.
+ - I admired the work of photographers like Beaton, Penn, and Avedon as much as I respected the grittier photographers such as Robert Frank. But in the same way that I had to find my own way of reportage, I had to find my own form of glamour.
+ - When you involve people, they come out, you see them, you get to see their sense of humor.
+ - Photography is not something you retire from.
+
+71 quotes

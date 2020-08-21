@@ -1,0 +1,25 @@
+ - Think deeply about things. Don’t just go along because that’s the way things are or that’s what your friends say. Consider the effects, consider the alternatives, but most importantly, just think.
+ - I don’t want to be happy. I just want to change the world.
+ - Information is power. But like all power, there are those who want to keep it for themselves.
+ - Reality is painful – it’s so much easier to keep doing stuff you know you’re good at or else to pick something so hard there’s no point at which it’s obvious you’re failing – but it’s impossible to get better without confronting it.
+ - Creativity comes from applying things you learn in other fields to the field you work in.
+ - There is no justice in following unjust laws.
+ - Only those blinded by greed would refuse to let a friend make a copy.
+ - Most people’s major life changes don’t come from reading an article in the newspaper; they come from reading longer-form essays or thoughtful books, which are much more convincing and detailed.
+ - No, you can’t force other people to change. You can, however, change just about everything else. And usually, that’s enough.
+ - The adults were completely wrong.
+ - Steadfastness is a noble quality, but unguided by knowledge or humility, it becomes rashness, or obstinacy.
+ - Books are totally useless unless you take their advice. If you just keep reading them, thinking “that’s so insightful! that changes everything,” but never actually doing anything different, then pretty quickly the feeling will wear off and you’ll start searching for another book to fill the void.
+ - Real education is about genuine understanding and the ability to figure things out on your own; not about making sure every 7th grader has memorized all the facts some bureaucrats have put in the 7th grade curriculum.
+ - As the Internet breaks down the last justifications for a professional class of politicians, it also builds up the tools for replacing them.
+ - Now everyone has a license to speak, it’s a question of who gets heard.
+ - There is no justice in following unjust laws. It’s time to come into the light and, in the grand tradition of civil disobedience, declare our opposition to this private theft of public culture.
+ - With enough of us, around the world, we’ll not just send a strong message opposing the privatization of knowledge – we’ll make it a thing of the past.
+ - Being around some of the bright lights of the technology world and having them expect great things helps you sit down and do it seriously.
+ - I’m a teenage kid who’s interested in improving the world.
+ - The law about what is stealing is very clear. Stealing is taking something away from someone so they cannot use it. There’s no way that making a copy of something is stealing under that definition.
+ - Geeks seem a lot more willing to treat people based on what they can do rather than who they are.
+ - On the one hand, I want to be very open about everything, On the other, I heavily defend people’s right to privacy.
+ - The people rose up, and they caused a sea change in Washington.
+
+23 quotes

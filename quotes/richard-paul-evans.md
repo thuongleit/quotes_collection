@@ -1,0 +1,155 @@
+ - The most important story we’ll ever write in life is our own – not with ink, but with our daily choices.
+ - The assumption of time is one of humanity’s greatest follies. We tell ourselves that there’s always tomorrow, when we can no more predict tomorrow than we can the weather. Procrastination is the thief of dreams.
+ - The sweetness of reunion is the joy of heaven.
+ - Life is what happens to us while we’re planning something else.
+ - Old friends are memories personified.
+ - It is in the dark times that the light of friendship shines brightest.
+ - Chocolate is God’s apology for brocolli.
+ - Procrastinatio n is the thief of dreams.
+ - We plan our lives in long, unbroken stretches that intersect our dreams the way highways connect the city dots on a road map. But in the end we learn that life is lived in the side roads, alleys, and detours.
+ - People are like books, unknown until they are opened.
+ - I am facing the most difficult thing of my life, my own greatest failure.
+ - Magna est veritas, et praevalebit: truth is mighty, and will prevail.
+ - Sunsets, like childhood, are viewed with wonder not just because they are beautiful but because they are fleeting.
+ - The only way to remove pain from death is to remove love from life.
+ - Sometimes its not the strength but gentleness that cracks the hardest shells.
+ - I have Tourettes syndrome.
+ - There are people I’ve yet to meet who are waiting for my path to intersect with theirs, so they can complete their own journeys. I don’t know who or where they are, but I know for certain that they are waiting.
+ - The truest indication of gratitude is to return what you are grateful for.
+ - Roses can grow in slums just as weeds can grow around mansions.
+ - I am a believer in angels, though not the picture-book kind with wings and harps. Such angelic accoutrements seem as nonsensical to me as devils sporting horns and carrying pitchforks. To me, angel wings are merely symbolic of their role as divine messengers.
+ - I believe that in spite of the chains we bind ourselves with, there’s a primordial section of the human psyche that is still nomadic and still yearns to roam free.
+ - Sometimes we can only find ourselves by first losing ourselves.
+ - To deny our pasts is to burn the bridge we must cross to self-understanding.
+ - Often times, the greatest peace comes of surrender.
+ - Love is never convenient-and rarely painless.
+ - We are chained to that which we do not forgive.
+ - I have a penchant for fresh notebooks and mechanical pencils. It seems every time I go to the store, I buy a new notebook. I have dozens of them just sitting around.
+ - So often the pain of our life is no more than a reminder to take our hand off the stove.
+ - The reason we start things is rarely the reason we continue them.
+ - Feelings can be like wild animals-we underrate how fierce they are until we’ve opened their cage.
+ - Everyone has problems. It’s how you choose to deal with them. Some people choose to be whiners some choose to be winners. Some choose to be victims some choose to be victors.
+ - It’s our memories that make us who we are. Without them, we’re nothing. If that means we have to hurt sometimes, it’s worth it.
+ - People can become so blinded by their own perceived victimhood that they make victims of everyone around them.
+ - Broken vows are like broken mirrors. They leave those who held to them bleeding and staring at fractured images of themselves.
+ - The shackles of belief, when reinforced by fear, are difficult to break free from and rarely done.
+ - The depth of love is revealed in its departure.
+ - Life has taught me that to fly, you must first accept the possibility of falling.
+ - Sometimes, when tragedy strikes, people give up hope that they can expect anything more from life, when the real quest is finding out what life expects from them.
+ - To choose the path is to choose the destination, but sometimes it seems that the path is under our feet even before we know we’re walking.
+ - Those with the softest hearts build the hardest shells.
+ - Usually life’s greatest gifts come wrapped in adversity.
+ - There’s a problem with marrying up. You always worry that someday they’ll see through you and leave. Or, worse yet, someone better will come along and take her. In my case, it wasn’t someone. And it wasn’t something better.
+ - Everyone who got to where they are had to begin where they were.
+ - Can you ever forgive me? I already have. How could you? I don’t deserve it. That’s what makes it love.
+ - Psychologists tested the story of the Good Samaritan. What they learned gives us reason to pause. The greatest determinant of who stopped to help the stranger in need was not compassion, morality, or religious creed. It was those who had the time. Makes me wonder if I have time to do good.
+ - Some people spend so much time hunting treasure that they fail to see it all around them. It’s like sifting through gold to find the silt.
+ - We can spend our days bemoaning our losses, or we can grow from them. Ultimately the choice is ours. We can be victims of circumstance or masters of our own fate, but make no mistake, we cannot be both. The Walk – Epilogue Page 288.
+ - I love when I can reboot people when they are being mean to others...
+ - We spend our life building higher fences and stronger locks, when the gravest dangers are already inside.
+ - I think the secret to a hoppy life is a selective memory. Remember what you are most grateful for and quickly forget what your not.
+ - I don’t want to go to Peru. “How do you know? You’ve never been there.” I’ve never been to hell either and I’m pretty sure I don’t want to go there.
+ - My grandfather, a devout Christian, had the gift of healing.
+ - I’m a humble guy, okay?
+ - Mr. Dallstrom is a bald, scarecrow of a man with a poochy stomache. Think of a pregnant Abraham Lincoln.
+ - The truest grace is not to forgive, but to have never found fault.
+ - Those willing to trade freedom for certainty are certain to find the cure worse than the ailment.
+ - Some so fear the future that they suffocate the present. It’s like committing suicide to avoid being murdered.
+ - Without great mountains we cannot reach great heights.
+ - I believe that we were meant to live as social creatures, to reach out and bless each other’s lives.
+ - Only those who never step, never stumble.
+ - Sometimes our arms are so full with the burdens we carry that it hinders our view of the load those around us are staggering beneath.
+ - There are none so impoverished as those who do not acknowledge the abundance of their lives.
+ - It is in the darkest skies that stars are best seen.
+ - In the beginning, I had considered these stops on my journey as interruptions – but I’m coming to understand that perhaps these detours are my journey.
+ - Raising or caring for children requires sacrifice and service, which, I believe, heals us from the destructive forces of self-centeredness.
+ - We cannot enslave others without enslaving a part of ourselves.
+ - Some men see mountains as obstacles. Others as a canvas.
+ - Every life can be learned from, as either a flame of hope or a cautionary flare.
+ - We are all in motion. Always. Those who are not climbing toward something are descending toward nothing.
+ - Heroes rarely look the way we draw them in our minds: attractive, imposing figures with rippling muscles and strong chins. More times than not they are humble beings, small and flawed. It is only their spirits that are beautiful and strong.
+ - It’s almost as difficult to believe that someone with so many trials could harbor such hope, as that there are those with so much advantage who harbor such hopelessness.
+ - Commitment to a plan or thought carries with it a force that can influence the unconscious mind and bring about the desired effect. In other words, once we decide to have something, the mind unconsciously begins to create the reality necessary to bring to pass what we desire.
+ - I find myself seeking out the commonalities of our different religious experiences with hopes of encouraging, through my writings, the most hopeful, loving and redemptive qualities in all of us.
+ - Dwelling on him would make him a bigger part of my life than I want him to be.
+ - There are two kinds of suffering in this life. That which pursues us and that which we doggedly pursue.
+ - Love never gives in or up, holding tight to lofty ideals that transcend this earth and time, while its counterfeit simply concludes it was mistaken and quickly runs off to find the next real thing.
+ - Don’t try to write what other people are writing – write what is true to you.
+ - If God came to save the world, why are so many of His professed followers intent on damning it?
+ - When a man loses his vision of the future he dies.
+ - Life is not yours to take.
+ - Usually the most interesting stories are written not on paper but hearts.
+ - Man has left footprints on the moon but still hasn’t walked on the ocean floor.
+ - Some people were born to work for others. Not in a mindless, servile-way – rather they simply work better in a set regimen of daily tasks and functions. Others were born of the entrepreneurial spirit and enjoy the demands of self-determination and the roll of the dice.
+ - Iwas not a reader at all, not until I discovered ‘The Hobbit.’ That changed my life. It gave me the courage to read. It led me to the ‘Lord of the Rings’ series. And once I’d read that, I knew I could read anything because I had just read thousands of pages.
+ - Humanity is always looking for the next great world, the next frontier. I wonder how different this world would be if we were content with where we were.
+ - I’ve yet to read a love story that compares with mine.
+ - The universe is a trillion, trillion threads moving in seemingly unrelated directions. Yet when you look at them together, they create a remarkable tapestry.
+ - Books are the most tolerant of friends.
+ - It’s a shame that humans don’t come with reset buttons.
+ - Life is the soil, our choices and actions the sun and rain, but our dreams are the seeds.
+ - Forgiveness does not require us to close our eyes but rather to truly open them.
+ - We can only lose what we have first claimed.
+ - The concept of spiritual healing was something I was raised with.
+ - There are moments, it would seem, that were created in cosmic theater where we are given strange and fantastic tests. In these times, we do not show who we are to God, for surely He must already know, but rather to ourselves.
+ - The kids who speak well, are articulate and intelligent, are all readers.
+ - At one time in my career, Barnes and Noble bookstores categorized my books as religious fiction.
+ - Life is not a sprint. It was never meant to be. It is just a step of faith after another.
+ - Some people deal with their problems by talking them to death. In fact, some enjoy the execution so much they resurrect their problems just so they can kill them again.-Nathan Hurst.
+ - Regret is the most tiresome of companions.
+ - People are looking for inspiration, and my books are sometimes the vehicles of what people are looking for.
+ - It is better to be loved by one person who knows your soul than millions who don’t even know your phone number.
+ - That which we expect of life is indeed all that it ever can be.
+ - The most difficult of decisions are often not the ones in which we cannot determine the correct course; rather the ones in which we are certain of the path but fear the journey.
+ - Small kindnesses often, unintentionally, produce the biggest payoffs.
+ - The further along we get on our life journey the more we wonder about those who traveled before us and paved the road.
+ - When we hate someone we make them more powerfull than they are.
+ - I’ve never understood why people said ‘in your own words.’ Who else’s words would I use?
+ - Could it be that to truly love a thing is not to desire it, but to desire happiness for it?
+ - I’ve come to know that what we want in life is the greatest indication of who we really are.
+ - In the end, we all lose it. Remember that. In the end, we own nothing.
+ - It has been a mistake living my life in the past. One cannot ride a horse backwards and still hold its reins.
+ - There are two kinds of people. Those who climb mountains and those who sit in the shadow of the mountains and critique the climbers.
+ - The sin of the desert is knowing where the water is and not sharing it.
+ - I’ve wondered why the famous congregate with each other. Perhaps it’s to assure each other that they really are as important as they think they are.
+ - When I think of God I feel like an ant crawling into a computer.
+ - I have learned a great truth of life. We do not succeed in spite of our challenges and difficulties, but rather, precisely because of them.
+ - The first step of a journey is always the longest.
+ - Everyone has some inner power that awaits discovery.
+ - Suffering ceases to be suffering when we form a clear picture of it.
+ - From our first babblings to our last word, we make but one statement, and that is our life.
+ - So much of young adult literature has turned dark, almost pathological. It’s almost as if there is a race to see who can be the most dysfunctional.
+ - I suppose I have an active imagination, and writing allows me to live it out.
+ - There’s no hurt so great that love can’t heal it.
+ - Rarely do we invest the time to open the book of another’s life. When we do, we are usually surprised to find its cover so misleading and its reviews so flawed.
+ - I have come to believe that we do not walk alone in this life. There are others, fellow sojourners, whose journeys are interwoven with ours in seemingly random patterns, yet, in the end, have been carefully placed to reveal a remarkable tapestry. I believe God is the weaver at that loom.
+ - The first casualty of hitting rock bottom is vanity.
+ - But more than brave, you have love. And love is brave.
+ - The more someone assures you that everything is okay, the more you can be assured that it’s not.
+ - I don’t think it is as much a human foible as it is a human curse that we cannot understand the beauty of a thing until it is gone.
+ - There are people who come into our lives as welcome as a cool breeze in summer- and last about as long.
+ - We stone our prophets, then build monuments to them after they’re gone.
+ - Denial, perhaps, is a necessary human mechanism to cope with the heartaches of life.
+ - I believe that love is the choice we make to raise ourselves and others to the highest planes of existence.
+ - People aren’t wired to be alone. Even in the stressful population of prison, solitary confinement is still considered a cruel punishment.
+ - The idea of being a novelist is really romantic, but it’s kind of the same as being president of the United States – it’s not gonna happen.
+ - It is a peculiar thing to believe that you know someone intimately only to find that you really do not. It is like finishing a book only to discover that you have missed several key chapters. THE LETTER Chapter 9 page 104.
+ - Leah taught me that the greatest secret of life is that we find exactly what we’re looking for. In spite of what happens to us, ultimately we decide whether our lives are good or bad, ugly or beautiful.
+ - Maybe, if we just accepted our deaths, we might finally start to live.
+ - In your hurry to keep Christmas, you have forgotten Christmas. The truest gift of Christmas is the gift of self.
+ - Forgiveness is the key to the heart’s shackles.
+ - We’re all moons. Sometimes our dark sides overshadow our light.
+ - It’s been said that every new beginning in some other beginning’s end.
+ - The greatest shackles we bear in thislife are those forged by our own fears.
+ - You should always be careful of what you say in parting.
+ - It was the first time that I had ever been romantically kissed. It was even better than the chocolate cake.
+ - What a culture we live in, we are swimming in an ocean of information, and drowning in ignorance.
+ - Joy isn’t the natural response to blessings – joy is what comes from acknowledging them.
+ - There can be no joy without gratitude.
+ - To forgive is to unlock the cage of another’s folly to set ourselves free.
+ - We all arrive on Earth with a round-trip ticket.
+ - Everybody needs love. Everybody. Those who don’t believe that frighten me a little.
+ - The thing is, the only real sign of life is growth. And growth requires pain. So to choose life is to accept pain.
+ - Things that seem bad at the time are really blessings.
+
+153 quotes

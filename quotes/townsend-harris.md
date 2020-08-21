@@ -1,0 +1,22 @@
+ - Open the doors to all. Let the children of the rich and the poor take their seats together and know of no distinction save that of industry, good conduct, and intellect.
+ - The nations of the West hope that by means of steam communication all the world will become as one family.
+ - Since the invention of steamships distant countries have become like those that are near at hand.
+ - If I write in my name to the agents of England and France residing in Asia and inform them that Japan is ready to make a commercial treaty with their countries, the number of steamers will be reduced from fifty to two or three.
+ - The President regards the Japanese as a brave people; but courage, though useful in time of war, is subordinate to knowledge of arts; hence, courage without such knowledge is not to be highly esteemed.
+ - The expense of a war could be paid in time; but the expense of opium, when once the habit is formed, will only increase with time.
+ - In case of war, a treaty would have to be made at the end of the war.
+ - The United States have no possessions in the east and do not desire to have any, as other countries do.
+ - If you make a treaty first with the United States and settle the matter of the opium trade, England cannot change this, though she should desire to do so.
+ - By means of steam one can go from California to Japan in eighteen days.
+ - The President wishes the Japanese to be very prudent about the introduction of opium, and if a treaty is made, he wishes that opium may be strictly prohibited.
+ - Any nation that refuses to hold intercourse with other nations must expect to be excluded from this family.
+ - Japan and China are isolated and without intercourse with other countries; hence the President directed me to attend to or watch the state of affairs in China also.
+ - If Japan had been near to either England or France, war would have broken out long ago.
+ - If war should break out between England and Japan, the latter would suffer much more than the former.
+ - The President of the United States thinks that for the Japanese opium is more dangerous than war.
+ - We were sent to this country by the President, who desires to promote the welfare of Japan, and are quite different from the ambassadors of other countries.
+ - Two things are desired in order that intercourse may be had: First, that a minister or agent be allowed to reside at the capital. Second, that commerce between different countries be freely allowed.
+ - In time of war steamships and improved arms are the most important things.
+ - When the ambassadors of other foreign countries come to Japan to make treaties, they can be told that such and such a treaty has been made with the ambassador of the United States, and they will rest satisfied with this.
+
+20 quotes

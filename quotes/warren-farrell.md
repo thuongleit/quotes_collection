@@ -1,0 +1,174 @@
+ - In the past quarter century, we exposed biases against other races and called it racism, and we exposed biases against women and called it sexism. Biases against men we call humor.
+ - Sexual harassment in the workplace confuses rewards for performance with rewards for attractiveness and sexual availability.
+ - A woman with organizing skills can run a construction company without ever picking up a hammer and nail.
+ - Financial analysts make a lot more than accountants.
+ - With men, we blame the victim. We blame men because we have camouflaged men’s victimization by teaching men to also be the victimizer. Men’s victimizer status camouflages men’s victim status.
+ - Only when a woman shares male risks can she really begin to understand men.
+ - Women’s liberation and the male midlife crisis were the same search – for personal fulfillment, common values, mutual respect, love. But while women’s liberation was thought of as promoting identity, the male midlife crisis was thought of as an identity crisis.
+ - When a parent denies a child its parent time, that parent is denying the child its child support – its psychological child support.
+ - Let’s face it: men do a lot of things in the workplace that women just don’t do.
+ - In brief, when a man fails as a wallet, we put him in prison; when a woman fails as a mother, we offer her social services. We’re taking a criminal approach to men, a social services approach to women.
+ - The government passed more laws to protect women from dirty jokes than to protect men from death by faulty rafters at a construction site.
+ - Hazing is both testing and training to subordinate self to the team.
+ - Men are not only women’s unpaid bodyguards, they actually pay to be a woman’s bodyguard.
+ - Many black men leave because they are financially responsible – not because they are emotionally irresponsible.
+ - Together, we came to understand how we beg men to express feelings, but then when men do express feelings, we call it sexism, male chauvinism, or backlash.
+ - Men are often a lot less vindictive than women are, because we are rejected constantly every day.
+ - When men in relationships have more money, we say they have the power. When women in relationships have more money, we say they are being used.
+ - Feminists have confused opportunity with outcome.
+ - On an unconscious level, the demonization of sexuality usually implies the demonization of males and the victimization of females.
+ - When women hold off from marrying men, we call it independence. When men hold off from marrying women, we call it fear of commitment.
+ - Dads in the family are even more important than women in the workplace: The workplace benefits from women, but the family needs dads.
+ - Men don’t oppress women any more than women oppress men.
+ - Male-female fusion does not create women’s rights. It creates a fusion of rights.
+ - One can make a case that says that since 85% of children being brought up in single family homes are being brought up by women that about 85% of elementary school teachers should be males to balance out the feminization that the boys and girls receive.
+ - The irony of primary parent laws is that on the one hand feminists were arguing for women’s equal rights to jointly-created career assets that emanated from the male financial womb, but arguing against men’s equal rights to jointly-created children that emanated from the woman’s child-bearing womb.
+ - Our focus on discrimination against women during the past 30 years has blinded us to opportunities for women.
+ - In fact, the socialization gives us the tools to fill our evolutionary roles. They are our building blocks.
+ - Male makeup is men’s titles, status and paying for dates. Makeup is what both sexes use to bridge the gap between the power they have and the power they’d like to have. Both male and female makeup are compensations for feelings of powerlessness.
+ - The weakness of men is the facade of strength; the strength of women is the facade of weakness.
+ - Since no one is always right, always being right is really a role model for his children feeling inadequate.
+ - The Government as Substitute Husband did for women what labor unions still have not accomplished for men. And men pay dues for labor unions; the taxpayer pays the dues for feminism. Feminism and government soon become taxpayer-supported women’s unions.
+ - If a woman isn’t being hazed, she’s not being tested; therefore, she is not being trusted.
+ - Fear of emotional contact with men out of fear of being a sexual suspect makes boys, ironically, even more powerless before girls. Homophobia is like telling the United States it will be a sissy nation if it doesn’t get all its oil from OPEC.
+ - Men will not change as long as women ‘marry up.’ Men won’t change until we have a perspective on how powerless power makes us. A woman cannot help a man change until she has a perspective on how powerless power makes men.
+ - Women attempt suicide more often because they want to become the priority of those they love rather than always prioritizing them.
+ - Nobody really believes in equality anyway.
+ - Laws are made with such attention to protecting women that, if a man’s constitutional rights conflict with a woman’s protection, his rights disintegrate before her protection disintegrates.
+ - When divorces meant marriage no longer provided security for a lifetime, women adjusted by focusing on careers as empowerment. But when the sacrifice of a career met the sacrifices in a career, the fantasy of a career became the reality of trade-offs. Women developed career ambivalence.
+ - Every day, almost as many men are killed at work as were killed during the average day in Vietnam. For men, there are, in essence, three male-only drafts: the draft of men to all the wars; the draft of Everyman to unpaid bodyguard; the draft of men to all the hazardous jobs or ’death professions.
+ - In 1969, nationwide, female professors who had never been married and never published earned 145% of their counterpart male colleagues.
+ - Industrialization created the Father’s Catch-22:;: a dad loving his children by being away from the love of his children.
+ - Male bashing is everywhere. It would be a mistake to view the current situation as another skirmish in the war between the sexes. Women have been doing the shooting, and men have been burying their heads in the sand, hoping the bullets will miss.
+ - If we hold the married man accountable for finances gone legally awry, then the married woman should be held accountable for children who go awry.
+ - A man cannot tell whether a woman is in love with him or his security blanket until she is financially and psychologically independent enough to leave. Until a woman has learned how to leave, even she cannot be sure she has learned to love.
+ - Without children, men have more liberty to earn less – that is, they are free to pursue more fulfilling and less lucrative careers, like writing or art or teaching social studies.
+ - I’m an awfully loyal friend. Once I’ve started a relationship with someone, it’s like they are syrup and I’m a pancake. Their syrup gets into my pancake, so to speak.
+ - Men give the same lines to different women for the same reason women wear the same perfume for different men; we all try the things that work.
+ - Perhaps the most prevailing expectation of men is our Superman expectation: the fear we are merely Clark Kents who won’t be accepted unless we are a Superman.
+ - Sexual harassment legislation in its present form makes all men unequal to all women.
+ - When men give lines, women learn to not trust men. When women wear makeup, men learn to not trust women. Male lines and female makeup are divorce training.
+ - When women are at the height of their beauty power and exercise it, we call it marriage. When men are at the height of their success power and exercise it, we call it a mid-life crisis.
+ - Men are the Rosie-the-Riveters of parenting: They’re brought in only when needed, and considered disposable thereafter.
+ - Boys with a failure to launch are invisible to most girls. With poor social skills, the boys feel anger at their fear of being rejected and self-loathing at their inability to compete.
+ - Letting men die is a money-saving device. Safety costs money as one safety official put it, ‘When everything is hurry, hurry, hurry, when you start pressuring people and taking shortcuts, things can go wrong. And then people die.’ No. And then men die.
+ - Asking the legal system to resolve divorce is like asking a boxing coach to be our marriage counselor.
+ - So long as you create laws that define women as victims, as creatures that demand protection, that need bodyguards, you are going to perpetuate the very worst of our sexist past.
+ - The sexist perception that violence by anyone against only women is anti-woman while violence by a woman against only men is just generic violence creates a political demand for laws that are even more protective of women.
+ - There are 80 jobs in which women earn more than men – positions like financial analyst, speech-language pathologist, radiation therapist, library worker, biological technician, motion picture projectionist.
+ - Without husbands, women have to focus on earning more. They work longer hours, they’re willing to relocate and they’re more likely to choose higher-paying fields like technology.
+ - Just as the Depression left a generation of dads feeling they never had enough money, so father deprivation is leaving a generation of sons and daughters with different psychic wounds.
+ - Sexual harassment legislation feels unfair to men because if they sued over an ethnic joke, or over a woman discussing pornography or asking them out, they’d be laughed out of the company.
+ - I define power as control over ones life. A balanced life is far superior to the male definition of power: earning money someone else spends while he dies sooner.
+ - In America and in most of the industrialized world, men are coming to be thought of by feminists in very much the same way that Jews were thought of by early Nazis. The comparison is overwhelmingly scary.
+ - Sometimes I have a feeling, when I look back on my life, that all I’ve been through has prepared me perfectly for just what I’m doing now.
+ - Nobody has said to men, It is OK if you want to be a full-time dad; find a woman who will support you.
+ - Being forced into early retirement can be to a man what being “given up for a younger woman” is for a woman.
+ - In the past we believed both sexes were born with original sin. Today, we have come to unconsciously believe in the original sin of boys, but the original innocence of girls.
+ - Women’s genetic celebrity power magnifies men’s protector instinct. It inspires the government-as-substitute-husband. Men’s addiction to the genetic celebrity is either invisible or in the denial stage thus we either don’t see it, or when confronted, deny it.
+ - The only men who aren’t in fear of women’s reactions are usually men who aren’t born or who are dead.
+ - By the 1970s, the American woman was being called ‘liberated’ or ‘superwoman’ while the American man was being called ‘baby killer’ if he fought in Vietnam, ‘traitor’ if he protested, or ‘apathetic’ if he did neither. Even men who came home paraplegics were literally spit on.
+ - Throughout my life I have always been amazed that people couldn’t listen to other people, that they couldn’t hear their best intent, that there seemed to be an enormous need to demonize.
+ - A man perceives himself as owning and being owned by a woman.
+ - There are 25 differences in the way women and men behave in the workplace. These 25 differences lead to men receiving higher pay and women having better lives or at least more balanced lives.
+ - Sexism is discounting the female experience of powerlessness; the new sexism is discounting the male experience of powerlessness.
+ - Both sexes allow men dentists inside our mouths, but, well, have you ever let a man who is a dental hygienist inside your mouth? The man must earn his way to our private places in a way not required of a woman – he must become the doctor or the dentist, or forget it.
+ - The more the father is involved, the more easily the child makes open, receptive, and trusting contact with new people in its life.
+ - Women-in-jeopardy movies are, in essence, the updated versions of men dying to save the princess from the dragon to earn her love. They are modern-day training films for teaching women to select the best protectors while weeding out the rest.
+ - If women really earned fifty-nine cents to the dollar for the same work as men, what business could compete effectively by hiring men at any level?
+ - Until recently, the question was ‘Why can’t a woman be more like a man?’ It should have been changed to ‘Why can’t both sexes be more like the best parts of each other?’ Instead, the pendulum swung to the 1960s feminist lapel button Adam Was a First Draft. True enough. So are we all.
+ - When a dad admits he is wrong or asks for help, he allows the child to see him- or herself as adequate even when she or he is also wrong. It encourages children to make suggestions and, therefore, to discover their creativity because they have a chance of making a contribution.
+ - When we commit violence against an infant girl, we call it child abuse; when we commit violence against an infant boy, we call it circumcision.
+ - Feminists often discuss women having two jobs: work and children. True. But no one discusses those divorced and remarried men who have three jobs: work, and two sets of children to nurture and financially support.
+ - It is ironic that a movement that made its reputation championing the irrelevance of biological differences when those differences were to most women’s disadvantage immediately returned to biological determinism when those differences were to the most women’s advantage.
+ - I’ve gone from being quite wealthy, when I was defending women, to being quite poor defending men.
+ - The problem is that Americans care more about saving whales than saving males.
+ - My wife’s income allowed me to do what I really loved. I realized that women’s liberation is men’s liberation, too.
+ - Just as women needed the help of the law to enter the workplace in the 20th century, men will need the help of the law to love their children in the 21st century.
+ - The legal bias for special protection for women has begun to wreak havoc with the Constitution’s guarantee of equal protection.
+ - Men make more money but have lower net worths.
+ - A man’s primary fantasy is access to a variety of attractive women without the fear of rejection.
+ - I feel awed by the mystery of being both so finite and yet so infinite, so much and so little, so conscious and yet, so coincidental.
+ - You could make a case that women addicted men to their sexuality and then withdrew their sexuality until we provided them with a source of income.
+ - When a government requires a man to support a child he was tricked into creating, that government subsidizes fraud. No. It is worse than that: It subsidizes the woman using a man’s body for 18-21 years without his consent.
+ - But when feminists suggest that God might be a She without suggesting that the Devil might also be female, they must be opposed.
+ - In one decade, women had gotten more protection against offensive jokes in the workplace than men had gotten in centuries against being killed in the workplace.
+ - All societies that have survived have survived based on their ability to prepare their sons to be disposable, in war and at work – and therefore as dads.
+ - So we’ve moved from an era when women’s biology was women’s destiny to today, which is an era in which men’s biology is men’s destiny.
+ - Men move through a much different process before commitment than women do.
+ - If an employer had to pay a man one dollar for the same work a woman could do for 59 cents, why would anyone hire a man?
+ - Men’s competitive team sports focus on the balance between individual achievement and team achievement with the emphasis on team achievement.
+ - After years of research, I discovered 25 differences in the work-life choices of men and women. All 25 lead to men earning more money, but to women having better lives.
+ - Our children are better served by speaking not of visitation versus custody, but of parent time.
+ - Ive always been motivated to stop people from doing dysfunctional things.
+ - Women’s vulnerability confessing their desire to see men as a success object is matched by men’s confession of compulsiveness of sexual desire for women.
+ - When we hear men are the greater victims of crime, we tend to say, ‘Well, it’s men hurting other men.’ When we hear that blacks are the greater victims, we consider it racist to say, ‘Well, it’s blacks hurting blacks.’ The victim is a victim no matter who the perpetrator was.
+ - I found that women entrepreneurs earn 50% less than their male counterparts.
+ - A family that knows how to play together has the tools to stay together.
+ - For me, the massiveness of what I don’t know is one way I experience God. It creates in me a feeling of humility and a sense of gratitude.
+ - Alan Alda is loved not because he’s sensitive, but because he’s successful and sensitive.
+ - By starving our children of men, we have made them more vulnerable to the very abuse we are trying to prevent.
+ - And we reduce almost all male-female problems by working on both the female and the male. And that usually means having both sexes take responsibility.
+ - A 2001 survey of business owners with MBAs conducted by the Rochester Institute of Technology found that money was the primary motivator for only 29% of women, versus 76% of men. Women prioritized flexibility, fulfillment, autonomy and safety.
+ - For the first time in human history the psychology that is a prerequisite for intimacy has become the psychology that is a prerequisite for species survival.
+ - When a man is able to connect with his feelings, he is able to care more.
+ - Circumcision in the United States is routinely performed without anesthesia, though anesthesia reduces the infant’s stress and prevents infection and blood clots.
+ - A lot of young men are frustrated and looking for someone to blame.
+ - Women and men look at their life, and women say, What do I need? Do I need more money, or do I need more time? And women are intelligent enough to say, I need more time. And so, women lead balanced lives; men should be learning from women.
+ - I would suggest that just as women who make it in the world of business need male business mentors, perhaps men who make it in the world of emotions will need female emotional mentors.
+ - Survey 2001: Men who never married, never had a child, worked full time and were college educated earn only 85% of what women with the same criteria earn.
+ - Students coming from father-present families score higher in math and science even when they come from weaker schools.
+ - The rules of sexism do not free men from the terror of violence; they only keep men from complaining about it.
+ - We would not think of allowing a man to determine a woman’s life merely because a fetus he helped create was in her womb; then why would we allow a woman to determine a man’s life merely because a fetus he helped create is in her womb?
+ - Our choice of partners is one of the clearest statements about our choice of values.
+ - The teenage female has less demand to perform and more resources to attract love. Her body and mind are more genetic gifts.
+ - We can decrease abuse and murder when we get that for both sexes, abuse does not derive from power, but powerlessness.
+ - The Female Western is the battle between the good and evil methods of getting the men who perform best.
+ - In our society, the sound of men complaining is like nails on a chalkboard.
+ - I don’t have children that I’ve lost in a bitter custody dispute. But I see an enormous wound in kids due to a lack of their dads.
+ - One danger of a man succeeding is that it teaches his wife and daughter not to worry about success.
+ - If women had to promise to provide for a man for a lifetime before he removed his veil and showed her his smile, would we think of this as a system of female privilege?
+ - Men are socialized to trust women until evidence to the contrary surfaces; women are socialized to be suspicious of men until an individual man earns trust.
+ - I started to get very well recognized in the early seventies as the only man in the United States who had been elected three times to the board of NOW in New York City.
+ - People who work 44 hours per week make 50 percent more than people who work 34 hours a week.
+ - If a female employee is offended, a boss would like her to tell him, not sue him.
+ - It certainly has not been in my self-interest to defend men.
+ - The male corporate model is built on a mans greater willingness to be a slave of sorts – especially once he has to provide for children.
+ - It is important that a woman’s “noes” be respected and her “yeses” be respected.
+ - Men tuned into women but not tuned into their own hurts usually retained the attitude that women needed special protection.
+ - In brief, we do more research on men in prison, men in the military, and men in general than we do on women for the same reason we do more research on rats than we do on humans.
+ - It evolved from my experience in the fifties, growing up during the McCarthy era, and hearing a lot of assumptions that America was wonderful and Communism was terrible.
+ - The five different areas in which boys are in crisis – education; jobs; emotional health; physical health; and fatherlessness – are handled by different portions of the government.
+ - Choosing safety is a choice of life over career.
+ - When only men could register to vote, we required only men to register for the draft. Today both sexes can vote, but only men must register for the draft.
+ - Self-help books for those who believe You can have it all often advise, Follow your bliss and money will follow. With the collapse of the stock markets the reality of trade-offs is more like, When you follow your bliss, it’s money you’ll miss.
+ - Every movement has radicals. But the important thing is that the radicals are not the leaders.
+ - A person working 45 hours per week averages 44% more income than someone working 40 hours per week. That’s 44% more income for 13% more time.
+ - When I lose my larger sense of supporting people to be their best, I lessen my contact with the God inside me.
+ - When I feel very loved, when I nurture and support people, my experience is deepened. I feel connected to a larger purpose and meaning.
+ - To me, God is the accumulated wisdom I’ve gathered throughout my life. When I pay attention, my body gives me a printout of this wisdom.
+ - The key to wealth is not what we earn. It is in what is spent on us.
+ - I define power as control over one’s life. Pay is not about power. Pay is about giving up power to get the power of pay.
+ - And then in 1956 or 1957 my family went over to Europe and I moved over with them, and immediately people in Europe thought my perspective on that issue was 100% correct.
+ - Men have not stacked the decks against women.
+ - The world increasingly allows girls to be whoever they wish to be – homemaker, mother, secretary, executive.
+ - When we look at the pay of men and women who do work equal hours, two discoveries are quite astonishing: – When women and men work less than 40 hours a week, the women earn more than the men; – When men and women work more than 40, the men earn more than the women.
+ - If my parents had made love a tenth of a second earlier or later, I wouldn’t exist. What an enormous miracle, just being given life.
+ - Men are fair, and they have learned not to personalize anger – they can disagree with you and argue to the bone, but afterward they still consider you a nice person with whom the underlying human relationship need not be altered.
+ - The average full-time working male works more than a full-time working female.
+ - Empathy is at the core of family stability and love. I’ve never had a couple come to me and say, I want a divorce; my partner understands me.
+ - Because of the feminist perspective, we have gotten a view of the world that is distorted.
+ - I don’t think there’s anything that is a greater area of discrimination against women today than the fact that nowhere in the world is there a female role model in team sports that more than half of a general audience would recognize.
+ - In brief, our genetic heritage is at odds with our genetic future. For the first time in human history, the qualities it takes to survive as a species are compatible with the qualities it takes to love.
+ - On a deeper level, if our sons are learning they are obscene, disgusting, and untrustworthy, is this the best preparation for fatherhood? And is it the best preparation for becoming a mother – to feel this way about her son?
+ - Feminism justified female victim power by convincing the world that we lived in a sexist, male-dominated, and patriarchal world.
+ - Men may be way behind in creating choices for themselves, but have actually been quiet supporters of the choices women want for themselves.
+ - Men are likely to be quite generous, especially financially.
+ - Men rarely worry about using or being used because all relationships work that way. A man perceives himself as owning and being owned by a woman. Use is a dirty word only when theres an imbalance in the relationship.
+ - When we suggest that men are at the top because men discriminate, we miss the point. Men are at the top of the work hierarchy because work has been primarily men’s responsibility.
+ - Blacks are six times more likely than whites to be victims of homicides.
+ - Now, since I’m a husband and father, discrimination against women isn’t just political, it’s personal.
+ - This is the first time in history that we’ve had this level of luxury, so we have a new opportunity to rethink the way we approach God.
+ - Teaching the child to treat boundaries seriously teaches the child to respect the rights and needs of others. Thinking of another’s needs creates empathy.
+
+172 quotes

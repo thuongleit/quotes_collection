@@ -1,0 +1,290 @@
+ - The measure of a society is found in how they treat their weakest and most helpless citizens.
+ - You can do what you have to do, and sometimes you can do it even better than you think you can.
+ - We must adjust to changing times and still hold to unchanging principles.
+ - We’ve got to stop crying and start sweating, stop talking and start walking, stop cursing and start praying. The strength we need will not come from the White House, but from every house in America.
+ - We become not a melting pot but a beautiful mosaic. Different people, different beliefs, different yearnings, different hopes, different dreams.
+ - Human identity is no longer defined by what one does but rather by what one owns.
+ - Unless both sides win, no agreement can be permanent.
+ - Whether the borders that divide us are picket fences or national boundaries, we are all neighbors in a global community.
+ - If you don’t want your tax dollars to help the poor, then stop saying that you want a country based on Christian values. Because you don’t!
+ - I will never lie to you.
+ - Everyone has a right to peaceful coexistence, the basic personal freedoms, the alleviation of suffering, and the opportunity to lead a productive life...
+ - My esteem in this country has gone up substantially. It is very nice now when people wave at me, they use all their fingers.
+ - To be true to ourselves, we must be true to others.
+ - Go out on a limb. That’s where the fruit is.
+ - Like music and art, love of nature is a common language that can transcend political or social boundaries.
+ - If you’re totally illiterate and living on one dollar a day, the benefits of globalization never come to you.
+ - The bond of our common humanity is stronger than the divisiveness of our fears and prejudices.
+ - We know that a peaceful world cannot long exist, one-third rich and two-thirds hungry.
+ - We are of course a nation of differences. Those differences don’t make us weak. They’re the source of our strength.
+ - Life is just too short to go quail hunting with the wrong people.
+ - I am no big shot. I am not anybody’s boss. I want to be everybody’s servant.
+ - To me, Faith is not just a noun but also a verb.
+ - We will not learn how to live together in peace by killing each other’s children.
+ - We have a tendency to condemn people who are different from us, to define their sins as paramount and our own sinfulness as being insignificant.
+ - In many courts, plea bargaining serves the convenience of the judge and the lawyers, not the ends of justice, because the courts simply lack the time to give everyone a fair trial.
+ - Too many of us now tend to worship self indulgence and consumption.
+ - God wisely designed the human body so that we can neither pat our own backs nor kick ourselves too easily.
+ - I let God be the judge and I believe that we worship a just and fair God who won’t punish innocent people unnecessarily.
+ - I have never been happier, more exhilarated, at peace, rested, inspired, and aware of the grandeur of the universe and the greatness of God than when I find myself in a natural setting not much changed from the way He made it.
+ - Iran is an island of stability in a turbulent corner of the world.
+ - We simply must balance our demand for energy with our rapidly shrinking resources. By acting now we can control our future instead of letting the future control us.
+ - Human rights is the soul of our foreign policy, because human rights is the very soul of our sense of nationhood.
+ - God always answers prayers. Sometimes it’s ‘yes.’ Sometimes the answer is ‘no.’ Sometimes it’s ’you gotta be kidding.
+ - Jerry Falwell can go straight to hell – and I mean that in a Christian way.
+ - If you fear making anyone mad, then you ultimately probe for the lowest common denominator of human achievement.
+ - I’ve committed adultery in my heart.
+ - Our Income Tax System is a disgrace to the human race.
+ - In a nation that was proud of hard work, strong families, close knit communities, and our faith in God, too many of us now tend to worship self indulgence and consumption .
+ - It is good to realize that if love and peace can prevail on earth, and if we can teach our children to honor nature’s gifts, the joys and beauties of the outdoors will be here forever.
+ - But I am not discouraged. I do not despair for our country. I believe tonight, as I always have, that the essential decency, compassion and common sense of the American people will prevail.
+ - The evidence shows that investing in women and girls delivers major benefits for society. An educated woman has healthier children. She is more likely to send them to school. She earns more and invests what she earns in her family.
+ - We’ll never know whether something new and wonderful is possible unless we try. Let’s scratch our heads, stretch our minds, be adventurous! Serve God with boldness, and who knows what wonders the Lord may work?
+ - Israel’s continued control and colonization of Palestinian land have been the primary obstacles to a comprehensive peace agreement in the Holy Land.
+ - Penalties against possession of a drug should not be more damaging to an individual than the use of the drug itself.
+ - There was promulgation of false propaganda by the administration about the existence of weapons of mass destruction in Iraq. There was promulgation of false propaganda about Iraq as a base for Al Qaeda.
+ - I’ve never won an argument with my wife; and the only time I thought I had I found out the argument wasn’t over yet.
+ - Let our position be absolutely clear: An attempt by any outside force to gain control of the Persian Gulf region will be regarded as an assault on the vital interests of the United States of America, and such an assault will be repelled by any means necessary, including military force.
+ - Our values are not luxuries, but necessities. They are not the salt in our bread, but the bread itself.
+ - The truth is that male religious leaders have had – and still have – an option to interpret holy teachings either to exalt or subjugate women. They have, for their own selfish ends, overwhelmingly chosen the latter.
+ - I am not here as a public official, but as a citizen of a troubled world who finds hope in a growing consensus that the generally accepted goals of society are peace, freedom, human rights, environmental quality, the alleviation of suffering, and the rule of law.
+ - I have a very real political awareness that at least on a transient basis the more drastic action taken by the president, the more popular it is.
+ - I’m a peanut farmer at heart, still grow peanuts on my farm in Georgia.
+ - It’s clear that the true problems of our Nation are much deeper – deeper than gasoline lines of energy shortages, deeper even than inflation or recession. And I realize more than ever that as President I need your help. So, I decided to reach out and listen to the voices of America.
+ - Let us learn together and laugh together and work together and pray together, confident that in the end we will triumph together in the right.
+ - I’ll never tell a lie. I’ll never make a misleading statement. I’ll never betray the confidence that any of you had in me. And I’ll never avoid a controversial issue.
+ - Two centuries ago our nation’s birth was a milestone in the long quest for freedom, but the bold and brilliant dream which excited the founders of our nation still awaits its consummation. I have no new dream to set forth today, but rather urge a fresh faith in the old dream.
+ - We simply must have faith in each other, faith in our ability to govern ourselves, and faith in the future of this Nation. Restoring that faith and that confidence to America is now the most important task we face.
+ - For the first time in the history of our country the majority of our people believe that the next five years will be worse than the past five years.
+ - When I was in the White House, I was confronted with the challenge of the Cold War. Both the Soviet Union and I had 30,000 nuclear weapons that could destroy the entire earth and I had to maintain the peace.
+ - I have often wanted to drown my troubles, but I can’t get my wife to go swimming.
+ - Because we are free, we can never be indifferent to the fate of freedom elsewhere.
+ - Last night when I was commenting on the FBI and the CIA, the sound went off for 27 minutes. I should have known better.
+ - Hubert Horatio Hornblower...
+ - The first time I ever saw snow skis was when I was 62 years old and that was 19 years ago and I’m still skiing. So, we’ll be skiing with some very close friends of the Carter Center letting them know what the Carter Center is doing around the world. We have programs in over 65 countries.
+ - When I was elected President nobody asked me to negotiate between Israel and Egypt. It was not even a question raised in my campaign. But I felt that one of the reasons that I was elected President was to try to bring peace to the Holy Land.
+ - We cannot be both the world’s leading champion of peace and the world’s leading supplier of the weapons of war.
+ - During the period of the Saturn-Apollo missions we were pilgrims in space, ranging from home in search of knowledge. Now we will become shepherds tending our technological flocks, but like the shepherds of old, we will keep our eyes fixed on the heavens.
+ - Because I know about the Holy Land, I’ve taught lessons about the Holy Land all my life, and – but you can’t bring peace to Israel without giving the Palestinian also peace. And Lebanon and Jordan and Syria as well.
+ - History teaches, perhaps, very few clear lessons. But surely one such lesson learned by the world at great cost is that aggression, unopposed, becomes a contagious disease.
+ - Our individual fates are linked our futures intertwined.
+ - There should be an honest attempt at the reconciliation of differences before resorting to combat.
+ - Habitat gives us an opportunity which is very difficult to find: to reach out and work side by side with those who never have had a decent home-but work with them on a completely equal basis. It’s not a big-shot, little-shot relationship. It’s a sense of equality.
+ - America has no functioning democracy at this moment.
+ - We’ve become increasingly addicted to consumption of goods that we don’t produce ourselves, and a lot of the manufacturing has gone overseas.
+ - Many of the most highly publicized events of my presidency are not nearly as memorable or significant in my life as fishing with my daddy.
+ - Wherever life takes us, there are always moments of wonder.
+ - Somebody said to me, ‘But the Beatles were anti-materialistic.’ That’s a huge myth. John and I literally used to sit down and say, ‘Now, let’s write a swimming pool.’ Paul McCartney I have often wanted to drown my troubles, but I can’t get my wife to go swimming.
+ - When people are intimidated about having their own opinions, oppression is at hand.
+ - We believe in separation of church and state, that there should be no unwarranted influence on the church or religion by the state, and vice versa.
+ - I think doctors care very deeply about their patients, but when they organize into the AMA, their responsibility is to the welfare of doctors, and quite often, these lobbying groups are the only ones that are heard in the state capitols and in the capitol of our country.
+ - The drug culture has shaped at least one major change since the Sixties; It became the basis for overloading our prisons.
+ - Being confident of our own future, we are now free of that inordinate fear of communism which once led us to embrace any dictator who joined us in that fear. I’m glad that that’s being changed.
+ - We can’t equate democracy with Christianity because the largest democracy on earth is India, which is primarily Hindu. The third largest democracy is Indonesia, which is Islamic. Democracy and freedom are not dependent on Christian beliefs.
+ - You always get back much more than you give.
+ - A country will have authority and influence because of moral factors, not its military strength; because it can be humble and not blatant and arrogant; because our people want to serve others and not dominate others. And a nation without morality will soon lose its influence around the world.
+ - There’s no doubt that the Christian right has gone to bed with the more conservative elements of the Republican Party. And there’s been a melding in their goals when it comes to the separation of church and state. I’ve always believed in the separation of church and state.
+ - I hate to see complacency prevail in our lives when it’s so directly contrary to the teaching of Christ.
+ - Two problems of our country – energy and malaise.
+ - We have the deepest respect and reverence for Islam and all who share the faith of Islam.
+ - In this great country of ours, it is inexcusable that so many children grow up in poverty and despair. The well-being of our children must be the national priority and the responsibility of every individual...
+ - The measure of a society is found in how they treat their weakest and most helpless citizens. As Americans, we are blessed with circumstances that protect our human rights and our religious freedom, but for many people around the world, deprivation and persecution have become a way of life.
+ - One of the surprising things that Brezhnev said when we were in our talks, was – when I proposed that we make these changes in nuclear weaponry, he said, “God will never forgive us if we don’t succeed.” And, you know, coming from the leader of an atheistic communist country, this surprised everyone.
+ - Well, you know, I had been a peanut farmer. I had – you know who was the first president – Democratic president I ever met? Bill Clinton.
+ - I am convinced that UFOs exist because I’ve seen one...
+ - Energy will be the immediate test of our ability to unite this Nation, and it can also be the standard around which we rally. On the battlefield of energy we can win for our Nation a new confidence, and we can seize control again of our common destiny.
+ - My proudest accomplishment was that I never dropped a bomb, fired a bullet, or shot a missile.
+ - Habitat has opened up unprecedented opportunities for me to cross the chasm that separates those of us who are free, safe, financially secure, well fed and housed, and influential enough to shape our own destiny from our neighbors who enjoy few, if any, of these advantages of life.
+ - The first step in providing economic equality for women is to ensure a stable economy in which every person who wants to work can work.
+ - Every advance in this half-century-Social Security, civil rights, Medicare, aid to education, one after another-came with the support and leadership of American Labor.
+ - My paintings have gotten to be pretty popular and I’ve taken a little bit more interest in painting the last few years. In fact, my novel that I wrote not too long ago, ‘The Hornet’s Nest,’ I painted the cover picture for it and I do a good bit of painting now.
+ - Governance should be designed as an equalizer. Democrats are more inclined towards working families and those who are struggling for a better life.
+ - The oil lobby, perhaps the most powerful lobby on earth, is almost matched by hospital owners and doctors.
+ - The best way to enhance freedom in other lands is to demonstrate here that our democratic system is worthy of emulation.
+ - We should live our lives as though Christ was coming this afternoon.
+ - Today, in directly harnessing the power of the Sun, we’re taking the energy that God gave us, the most renewable energy that we will ever see, and using it to replace our dwindling supplies of fossil fuels.
+ - America did not invent human rights. In a very real sense human rights invented America.
+ - There’s always enough to fill up the headlines in a newspaper, the evening news broadcasts. I’m always grateful when I get the weekly news magazines on Monday morning and don’t see my picture on the front.
+ - The heart and mind of every Muslim is affected by whether or not the Israel-Palestine issue is dealt with fairly.
+ - The Carter Center has the only existing international taskforce on disease eradication. Which means a total elimination of a disease on the face of the Earth. In the history of the world, there’s only been one disease eradicated: smallpox. The second disease, I think, is gonna be guinea worm.
+ - We have a special relationship with Israel. It’s absolutely crucial that no one in our country or around the world ever doubt that our number one committment in the Middle East is to protect the right of Israel to exist, to exist permanently, and to exist in peace. It’s a special relationship.
+ - I’ve used the prestige and influence of having been a president of the United States as effectively as possible. And secondly, I’ve still been able to carry out my commitments to peace and human rights and environmental quality and freedom and democracy and so forth.
+ - We’ve uncovered some embarrassing ancestors in the not-too-distant past. Some horse thieves, and some people killed on Saturday nights. One of my relatives, unfortunately, was even in the newspaper business.
+ - I’ve looked on many women with lust. I’ve committed adultery in my heart many times. God knows I will do this and forgives me.
+ - The respect for human rights is one of the most significant advantages of a free and democratic nation in the peaceful struggle for influence, and we should use this good weapon as effectively as possible.
+ - We all know grandparents whose values transcend passing fads and pressures, and who possess the wisdom of distilled pain and joy.
+ - Our decision about energy will test the character of the American people and the ability of the President and the Congress to govern this Nation. This difficult effort will be the moral equivalent of war, except that we will be uniting our efforts to build and not to destroy.
+ - Communicating our questions, hopes, and fears in prayer makes them-even to ourselves-more open and clear...
+ - I’m not in favor of the government mandating a prayer in school because our country was founded on the fact that no particular religious faith would have ascendance over or preferential treatment over any other.
+ - The awareness that health is dependent upon habits that we control makes us the first generation in history that to a large extent determines its own destiny.
+ - I am pro-Israeli, not because of political expediency, but because I believe Israel is the fulfillment of Biblical prophecy.
+ - When combined, the small individual contributors of caring, friendship, forgiveness, and love, each of us different from our next-door neighbors, can form a phalanx, an army, with great capability.
+ - We have no desire to be the world’s policeman. But America does want to be the world’s peacemaker.
+ - In this outward and physical ceremony we attest once again to the inner and spiritual strength of our Nation. As my high school teacher, Miss Julia Coleman, used to say: ‘We must adjust to changing times and still hold to unchanging principles.’
+ - Our American values are not luxuries but necessities, not the salt in our bread, but the bread itself. Our common vision of a free and just society is our greatest source of cohesion at home and strength abroad, greater than the bounty of our material blessings.
+ - I thought a lot about our Nation and what I should do as President. And Sunday night before last, I made a speech about two problems of our countryenergy and malaise.
+ - I’m going to stay active as long as I can politically, and with the Carter Center primarily, and if I’m able mentally and physically, will continue to be quite active.
+ - Everyone who has run knows that its most important value is in removing tension and allowing a release from whatever other cares the day may bring.
+ - One of the turning points of my life was when I got my first bait-casting outfit.
+ - Although military, economic and political strength certainly favors the more powerful side, the matter of simple justice is a counterbalancing factor.
+ - I am a nuclear physicist by training and a deeply committed Christian. I don’t have any doubt in my own mind about God who created the entire universe. But I don’t adhere to passages that so and so was created 4,000 years before Christ, and things of that kind.
+ - Standing alone among great democratic nations in imposing the death penalty is another moral decision that Americansare being forced to confront.
+ - Christians are supposed to be evangelicals. And I am. I am evangelical.
+ - Americans long thought that nature could take care of itself-or that if it did not, the consequences were someone else’s problem. As we know now, that assumption was wrong; none of us is a stranger to environmental problems.
+ - A lot of the things that we passed in the energy policy were embedded in law, and they resulted in tremendous reductions in waste of energy in all kinds of things.
+ - I don’t think that Israel has any legal or moral justification for their massive bombing of the entire nation of Lebanon.
+ - If any agreement between two nations is to last, it must serve the best interests of both nations.
+ - A nation’s domestic and foreign policies and actions should be derived from the same standards of ethics, honesty and morality which are characteristic of the individual citizens of the nation.
+ - We consider these settlements to be contrary to the Geneva Convention, that occupied territory should not be changed by establishment of permanent settlements by the occupying power.
+ - Those who start war often know that because of their high political position their own lives will not be in danger. on the Diane Rehm Show.
+ - In the final analysis, true justice is not a matter of courts and law books, but of a commitment in each of us to liberty and mutual respect.
+ - There is a strong religious commitment to the sanctity of human life, but, paradoxically, some of the most fervent protectors of microscopic stem cells are the most ardent proponents of the death penalty.
+ - It is difficult for the common good to prevail against the intense concentration of those who have a special interest, especially if the decisions are made behind locked doors.
+ - We can choose to alleviate suffering. We can choose to work together for peace. We can make these changes – and we must.
+ - We are a purely idealistic Nation but let no one confuse our idealism with weakness.
+ - But love must be aggressively translated into simple justice.
+ - A strong nation, like a strong person, can afford to be gentle, firm, thoughtful, and restrained. It can afford to extend a helping hand to others. It’s a weak nation, like a weak person, that must behave with bluster and boasting and rashness and other signs of insecurity.
+ - I think the most challenging thing for me in my life and in the Bible is that we worship Jesus as the Prince of Peace.
+ - You have given me a great responsibility: to stay close to you, to be worthy of you and to exemplify what you are.
+ - The government and the church are two different realms of service, and those in political office have to face a subtle but important difference between the implementation of the high ideals of religious faith and public duty.
+ - It’s a terrible and tragic and counterproductive policy to avoid communicating with people who disagree with us.
+ - Government is a contrivance of human wisdom to provide for human wants. People have the right to expect that these wants will be provided for by this wisdom.
+ - Testing oneself is best when done alone.
+ - When men in secular life, who might be religious or not, see women being treated as secondary in the eyes of God, they assume that it’s OK for them to do it.
+ - A joyous occasion is never quite as wonderful as when it becomes a memory.
+ - All I want is the same thing you want. To have a nation with a government that is as good and honest and decent and competent and compassionate and as filled with love as are the American people.
+ - Republicans are men of narrow vision, who are afraid of the future.
+ - It would be almost politically suicidal for members of Congress to espouse a balanced position between Israel and Palestine, to suggest that Israel comply with international law or to speak in defense of justice or human rights for Palestinians. If they did so, they couldn’t be reelected.
+ - I think an overwhelming portion of the intensely demonstrated animosity toward President Barack Obama is based on the fact that he is a black man, that he’s African American.
+ - Whatever starts in California unfortunately has an inclination to spread.
+ - Any system of economics is bankrupt if it sees either value or virtue in unemployment.
+ - No matter where you go in the world in any country in Africa or Latin America and other place, you will find that China is very deeply involved in the affairs of that country.
+ - This afternoon, I’ve arranged for this ceremony to be illuminated by solar power.
+ - I don’t think that the total creation took place in six days as we now measure time. If we can confirm, say, the Big Bang theory, that doesn’t at all cause me to question my faith that God created the Big Bang.
+ - In the United States, you might say every county has got its own separate system. There’s not even one kind of ballot that you use all over the United States. We require that in a foreign country.
+ - The reduction of nuclear arsenals and the removal of the threat of worldwide nuclear destruction is a measure, in my judgment, ofthe power and strength of a great nation.
+ - My constant prayer, my number one foreign goal, is to bring peace to Israel. And in the process to Israel’s neighbours.
+ - Our laws were not designed to accommodate three or four thousand refugees coming here per day. Our laws were designed for people to be screened in a foreign country, carefully catalogued, and brought here a few at a time. This just didn’t happen.
+ - I am confident that when the facts and policies have been examined, when the record of performances have been reviewed, Barack Obama and Joe Biden will once again be elected to lead our beloved country to a better future.
+ - The founding of our Nation was more than a political event; it was an act of faith, a promise to Americans and to the entire world. The Declaration of Independence declared that people can govern themselves, that they can live in freedom with equal rights, that they can respect the rights of others.
+ - The President publicly apologized today to all those offended by his brother’s remark, There’s more Arabs in this country than there is Jews! Those offended include Arabs, Jews, and English teachers.
+ - The Carter Center has a policy of doing what others do not want to do. We do not compete with the World Health Organization, the United Nations or the US government.
+ - When the laws are written and administered by the most powerful leaders in a society, it is human nature for them to understand, justify, and protect the interests of themselves and people like them. Many injustices arise from this natural human failing.
+ - People make a big fuss over you when you’re President. But I’m very serious about doing everything I can to make sure that it doesn’t go to my head.
+ - My favourite president, and the one I admired most, was Harry Truman.
+ - The Bible and studying the Bible has been an important part of my life.
+ - People in the United States, including me, are naturally inclined to support Israel. I’m an evangelical Christian who teaches the Bible every Sunday at my church. I teach half the Old Testament and half the New Testament. We Americans identify the Hebrews, the Israelites, with ourselves.
+ - Being president is as difficult as writing the perfect poem. And being president is as effortless as writing the perfect poem. Always a Reckoning, my first collection of poetry, was described by Booklist as ‘keenly evocative.’
+ - At the Carter Center we work with victims of oppression, and we give support to human rights heroes.
+ - The abuse of women and girls is the most pervasive and unaddressed human right violation on earth.
+ - I look forward to these confrontations with the press to kind of balance up the nice and pleasant things that come to me as president.
+ - Throughout my life, I’ve seen the difference that volunteering efforts can make in people’s lives. I know the personal value of service as a local volunteer.
+ - Aggression unopposed becomes a contagious disease.
+ - Ours is the most wasteful nation on Earth. We waste more energy than we import. With about the same standard of living, we use twice as much energy per person as do other countries like Germany, Japan, and Sweden.
+ - It is often just as important to be perceived as something as actually to be that something and, as a matter of fact, a candidate need not be anything ideologically at all.
+ - For me personally and for most other Americans, this commitment to peace and diplomacy does not imply a blind or total pacifism. There are times when war is justified, and for many centuries the moral criteria for violence have been carefully delineated.
+ - The importation and sale of marijuana is condemned and punished as a serious crime, but we accept as legitimate the manufacture and sale of an infinitely more addictive and deadly drug: the nicotine in cigarettes that cost the lives of 390,000 American citizens last year.
+ - I don’t want to tell President Obama how to make a speech. He’s a much better speech maker than I am. But I think always to tell the truth in a sometimes blatant way, even though it might be temporarily unpopular, is the best approach.
+ - I had very good support from Democrats and Republicans all throughout my administration. I had a very high batting average. We added more jobs per year in my four years than any other president since the Second World War.
+ - I think there ought to be a strict separation or wall built between our religious faith and our practice of political authority in office. I don’t think the President of the United States should extoll Christianity if he happens to be a Christian at the expense of Judaism, Islam or other faiths.
+ - Faith implies a continuing search, not necessarily a final answer.
+ - Always I’m working on some of book. That’s the way I make a living.
+ - I think a good husband has to depend on having a good wife.
+ - We cannot resort to simplistic or extreme solutions which substitute myths for common sense.
+ - This is the first national administration we’ve ever seen where the housewife couldn’t afford to buy groceries and the farmer couldn’t afford to grow them.
+ - The government ought to stay out of the prayer business.
+ - I just look at death as not a threat. It’s inevitable, and I have an assurance of eternal life.
+ - A fundamentalist can’t bring himself or herself to negotiate with people who disagree with them because the negotiating process itself is an indication of implied equality.
+ - It’s very difficult for the American people to believe that our government, one of the richest on Earth, is also one of the stingiest on Earth.
+ - Each of us must rededicate ourselves to serving the common good. We are a community. Our individual Fates are linked; our futures intertwined; and if we act in that knowledge and in that spirit together, as the Bible says: “We can move mountains.”
+ - One of the most serious problems that our country has inherited an unwillingness to talk to anyone who disagrees with us or who won’t accept, before a discussion, all the premises that we demand.
+ - The pre-eminent obstacle to peace is Israel’s colonization of Palestine.
+ - Even for the world’s only superpower, the ends don’t always justify the means.
+ - I would describe fundamentalism as, first of all, a movement led almost invariably by authoritarian males who consider themselves to be superior to others and who have an overwhelming commitment to subjugate women and to dominate their fellow believers.
+ - They were more than hostile. In the first place, I was a south Georgian and I was looked upon as a fiscal conservative, and the Atlanta newspapers quite erroneously, because they didn’t know anything about me or my background here in Plains, decided that I was also a racial conservative.
+ - We believe that the first time we’re born, as children, it’s human life given to us; and when we accept Jesus as our Savior, it’s a new life. That’s what “born again” means.
+ - I can’t really criticize the Tea Party people, because I came into the White House pretty much on the same basis that they have become popular. That is dissatisfaction with the way things are going in Washington and disillusionment and disencouragement about the government.
+ - I think I was identified as a failed president because I wasn’t re-elected.
+ - Quite often, the people who do leave their own nation and come to an unknown destination, like the United States, are inherently adventurous, so we’ve had that adventurous spirit that has embedded itself collectively in the American consciousness.
+ - I officially designated every US ambassador on earth to be my personal human rights representative, and to have the embassy be a haven for people who suffered from abuse by their own government.
+ - During the 1960s, we used twice as much oil as during the 1950s. And in each of those decades, more oil was consumed than in all of mankind’s previous history.
+ - In a nuclear age, each of us is threatened when peace is not secured everywhere.
+ - You just have to have a simple faith.
+ - Nearly all inmates are drawn from the ranks of the powerless and the poor. A child of privilege frequently receives the benefit of the doubt; a child of poverty seldom does.
+ - The United States is squandering international prestige and goodwill and intensifying global anti-American terrorism by unofficially condoning or abetting the Israeli confiscation and colonization of Palestinian territories.
+ - I believed what my father taught me about the separation of church and state, so when I was President I never invited Billy Graham to have services in the White House because I didn’t think that was appropriate. He was injured a little bit, until I explained it to him.
+ - I don’t think the Tea Party people are racist, except maybe a tiny portion of them. But there has been a deliberate effort – again, referring to Fox Broadcasting – to inject the race issue into it. They have actually called Obama a racist on television.
+ - I think all of us could insist on preserving the truth and preserving the peace. We could insist that political candidates tell the truth about controversial issues. And secondly, we should be sure to encourage our political leaders, after they’re elected, to preserve the peace.
+ - We have been involved in more wars, on a bilateral basis, since the United Nations was formed than any other country by far.
+ - It’s not necessary to fear the prospect of failure but to be determined not to fail.
+ - There needs to be a similar degree of flexibility and generosity in the recognition of the humaneness and worth of people who we generally consider as adversaries.
+ - The love of liberty is a common blood that flows in our American veins.
+ - Trust is very much a part of our democracy.
+ - After all these years, I still feel like a boy when I’m on a stream.
+ - I have never been disappointed when I asked in a humble and sincere way for God’s help. I pray often. I think I pray more often since January 12th.
+ - Building confidence and constructive relations between Sudan and South Sudan is urgent.
+ - I’ve been an evangelistic Baptist all my life and still am to some degree.
+ - My life since the White House has been much more all-encompassing, much more enjoyable. The main thing that I’ve acquired has been access to the poorest and most destitute, forgotten, and suffering people on Earth. It’s not possible for a President to actually know them.
+ - I have been in love with the Palestinian people for many years. I have two great-grandsons that are rapidly learning about the people here and the anguish and suffering and deprivation of human rights that you have experienced ever since 1948.
+ - Thoughtful criticism and close scrutiny of all government officials by the press and the public are an important part of our democratic society.
+ - I can’t think of a man more worthy of the presidency then my good friend Sam Nunn.
+ - Ever since Israel has been a nation the United States has provided the leadership. Every president down to the ages has done this in a fairly balanced way, including George Bush senior, Gerald Ford, and others including myself and Bill Clinton.
+ - I don’t claim to be knowledgeable about theology. Most of my knowledge comes out of my experience and the lessons in the Bible. Every Sunday I’m home I teach 45 minutes and we boiled them down to one page for the new book, ‘Through the Year with Jimmy Carter.’
+ - You can not divorce religious belief and public service. I’ve never detected any conflict between God’s will and my political duty. If you violate one, you violate the other.
+ - From the beginning, the United States has enjoyed close and valued ties with the Muslim world.
+ - Unfortunately, every American citizen takes the same position that we don’t like negative advertisements. But they work! And, as you see, many a candidate has prevailed by tearing down the reputation of an opponent in a more advantageous position.
+ - Sadat was a great and good man, and his most bitter and dangerous enemies were people who were obsessed with hatred for his peaceful goals.
+ - This view that women are somehow inferior to men is not restricted to one religion or belief. It is widespread. Women are prevented from playing a full and equal role in many faiths.
+ - We cannot speak of human rights in other countries unless we are going to do our utmost to protect the rights of our own people here at home.
+ - There’s no doubt that usually a president’s public image is enhanced by going to war. That never did appeal to me.
+ - No poor, rural, weak, or black person should ever again have to bear the additional burden of being deprived of the opportunity for an education, a job, or simple justice.
+ - Some major churches overemphasize the importance of preaching as a means to increase membership and fail to reach out with compassion to their neighbors in need.
+ - America has always been a country of innovation and dynamism, entrepreneurship. And I think that one of the things that has made our country great too is its heterogeneous population where people come here from all over the world.
+ - One of our nation’s greatest leaders of all time was Hubert Horatio Hornblower.
+ - It is generally not known in the world that, in the years preceding 1916, there was a concerted effort made to eliminate all the Armenian people, probably one of the greatest tragedies that ever befell any group. And there weren’t any Nuremberg trials.
+ - There was never any question about the morality of hunting, but neither was there any acceptance of killing for the sake of a trophy.
+ - In retrospect, I can see that President Brezhnev was quite proud of the limited agreement that he had concluded in Vladivostok; and to have a new American president come in and say, “That is not good enough – let’s do much more, and do it quite rapidly,” took him by surprise.
+ - I think the only way that political system can be corrected is for the American people to see very vividly that it needs repair. If things are going to worse in the future, the American people, in every congressional district in the land, might demand that reforms take place in the political system.
+ - I say to you quite frankly that the time for racial discrimination is over.
+ - This intolerable dependence on foreign oil threatens our economic independence and the very security of our nation. The energy crisis is real. It is worldwide. It is a clear and present danger to our nation. These are facts and we simply must face them.
+ - As has been emphasized vigorously by foreign allies and by responsible leaders of former administrations and incumbent officeholders, there is no current danger to the United States from Baghdad.
+ - To deal with individual human needs at the everyday level can be noble sometimes.
+ - If one of our fellow citizens can be executed with so much doubt surrounding his guilt, then the death penalty system in our country is unjust and outdated.
+ - I believe that we are saved by the grace of God because he loves us provided that we have faith in Jesus Christ.
+ - Each one of us is an individual, just like talk show hosts are different from one another, and newspaper columnists are different from each other. So, former presidents are different from each other, too. Some have gone into relative seclusion. Some have decided to teach.
+ - Within the stable economy it’s necessary to eliminate all forms of sexual discrimination, and to provide women for the first time in our history with economic opportunities equal to those of men.
+ - If I become President, I’ll make every piece of information this country has about UFO sightings available to the public, and the scientists. I am convinced that UFOs exist because I’ve seen one...
+ - My position has always been, along with many other people, that any differences be resolved in a nonviolent way.
+ - For this generation, ours, life is nuclear survival, liberty is human rights, the pursuit of happiness is a planet whose resources are devoted to the physical and spiritual nourishment of its inhabitants.
+ - If I were president, I’d be very glad to see the Palestinians have a nation recognized by the United Nations. There’s no downside to it.
+ - To work for better understanding among people, one does not have to be a former president sitting at a fancy conference room table. Peace can be made in the neighborhoods, the living rooms, the playing fields, and the classrooms of our country.
+ - I began to expand my personal service in the church, and to search more diligently for a closer relationship with God among my different business, professional and political interests.
+ - Carter is doing a high-wire act over a cesspool, preaching all the way. Sinclair Lewis, thou shouldst be living in this hour. We have a Warren Harding impersonating Elmer Gantry.
+ - I don’t laugh at people any more when they say they’ve seen UFOs. I’ve seen one myself!
+ - My decision to register women confirms what is already obvious throughout our society-that women are now providing all types of skills in every profession. The military should be no exception.
+ - You can already download any of the religious texts onto electronic mechanisms like a Kindle. But I think many people prefer to hold a book in their hands.
+ - I believe strongly that in the eyes of God women and men should be the same and they should be given the same authority in the church, women should as men.
+ - And so I say to you and to others around the world, whether they wish us well or ill – do not underestimate us Americans. We lack neither strength nor wisdom.
+ - Elvis was a symbol of the country’s vitality, rebelliousness, and good humor.
+ - I would say the biggest handicap we have right now is some nutcases in our country that don’t believe in global warming. I think they are going to change their position because of pressure from individuals, because the evidence of the ravages of global warming is already there.
+ - The experience of democracy is like the experience of life itself-always changing, infinite in its variety, sometimes turbulent and all the more valuable for having been tested by adversity.
+ - I thought then, and I think now, that the invasion of Iraq was unnecessary and unjust. And I think the premises on which it was launched were false.
+ - And I think the almost undeviating support by Great Britain for the ill-advised policies of President Bush in Iraq have been a major tragedy for the world.
+ - I believe in the separation of church and state and would not use my authority to violate this principle in any way.
+ - Unfortunately, after Sept. 11, there was an outburst in America of intense suffering and patriotism, and the Bush administration was very shrewd and effective in painting anyone who disagreed with the policies as unpatriotic or even traitorous.
+ - I see a lot of parallels between my candidacy and the Tea Party. I would not have been elected had there not been a tremendous amount of dissatisfaction and discouragement and disgust with what was going on in Washington.
+ - I remember the last three days that I was president, I never went to bed at all. I never went to bed until we had negotiated the final release of the hostages.
+ - When people first vote for democracy, they have extremely high hopes, excessive expectations, and they’re not realized. They don’t instantly get richer and the schools don’t instantly get better and the garbage isn’t instantly picked up quicker. So they get disillusioned.
+ - The test of a government is not how popular it is with the powerful and privileged few but how honestly and fairly it deals with the many who must depend on it.
+ - If I should ever decide in the future to discuss my deep Christian beliefs and condemnation and sinfulness, I would use another forum besides Playboy.
+ - The fact is that we would have had comprehensive health care now, had it not been for Ted Kennedy’s deliberately blocking the legislation that I proposed in 1978 or ’79.
+ - On the basis of both values and interests, the natural relationship between Islam and the United States is one of friendship.
+ - Spirit is like the wind, in that we can’t see it but can see its effects, which are profound.
+ - There is no other even moderately equal abuse than the murder of little baby girls – nothing else compares with that, in horror.
+ - I think it will take years before we can repair the damage done by that statement.
+ - I can’t deny I’m a better ex-president than I was a president.
+ - We only have to recall the color of the faces of those who were most devastated by Katrina, to know that there are not yet equal opportunities for all Americans.
+ - I have come to realize that in every person there is something fine and pure and noble, along with a desire for self-fulfillment.
+ - I wish I had known when I was in the White House what I know now about the Third World.
+
+288 quotes

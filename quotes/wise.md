@@ -1,0 +1,42 @@
+ - You may never know what results come of your actions, but if you do nothing, there will be no results. ~~Mahatma Gandhi
+ - Wise men speak because they have something to say; fools because they have to say something. ~~Plato
+ - Wise men, when in doubt whether to speak or to keep quiet, give themselves the benefit of the doubt, and remain silent. ~~Napoleon Hill
+ - The stupid neither forgive nor forget; the naive forgive and forget; the wise forgive but do not forget. ~~Thomas Stephen Szasz
+ - As a wise man once said, ‘If not us, then who; if not now, then when?’ ~~Michael Jackson
+ - You can chain me, you can torture me, you can even destroy this body, but you will never imprison my mind. ~~Mahatma Gandhi
+ - The poor look for jobs while the rich build networks. ~~Robert T. Kiyosaki
+ - Look for the answer inside your question. ~~Rumi
+ - God is too good to be unkind, too wise to be mistaken; and when you cannot trace His hand, you can trust His heart. ~~Charles H. Spurgeon
+ - Knowledge is the treasure of a wise man. ~~William Penn
+ - Everyday is a new life to a wise man. ~~Dale Carnegie
+ - Wise men put their trust in ideas and not in circumstances. ~~Ralph Waldo Emerson
+ - We study history not to be clever in another time, but to be wise always. ~~Marcus Tullius Cicero
+ - There are three things all wise men fear: the sea in storm, a night with no moon, and the anger of a gentle man. ~~Patrick Rothfuss
+ - Learning without thought is labor lost; thought without learning is perilous. ~~Confucius
+ - Many people are passionate, but because of their limiting beliefs about who they are and what they can do, they never take actions that could make their dream a reality. ~~Tony Robbins
+ - For even the very wise cannot see all ends. ~~J. R. R. Tolkien
+ - To the wise, life is a problem; to the fool, a solution. ~~Marcus Aurelius
+ - A wise man ought to realize that health is his most valuable possession. ~~Hippocrates
+ - No matter what you’ve done for yourself or for humanity, if you can’t look back on having given love and attention to your own family, what have you really accomplished? ~~Lee Iacocca
+ - A wise man can learn more from a foolish question than a fool can learn from a wise answer. ~~Bruce Lee
+ - The wise man can change his mind; the stubborn one, never. ~~Immanuel Kant
+ - The simple things are also the most extraordinary things, and only the wise can see them. ~~Paulo Coelho
+ - The art of being wise is the art of knowing what to overlook. ~~William James
+ - You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions. ~~Naguib Mahfouz
+ - The foolish man seeks happiness in the distance; the wise grows it under his feet. ~~James Oppenheim
+ - Wise men change, fools stay the same. ~~Kevin Gates
+ - Get mad, then get over it. ~~Colin Powell
+ - You can’t be old and wise, if you were never young and crazy. ~~Chris Brown
+ - Silence is the sleep that nourishes wisdom. ~~Francis Bacon
+ - A fool despises good counsel, but a wise man takes it to heart. ~~Confucius
+ - The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind. ~~Khalil Gibran
+ - Neither a wise man nor a brave man lies down on the tracks of history to wait for the train of the future to run over him. ~~Dwight D. Eisenhower
+ - Early to bed and early to rise makes a man healthy, wealthy, and wise. ~~Benjamin Franklin
+ - Suffering is part of our training program for becoming wise. ~~Ram Dass
+ - In solitude, where we are least alone. ~~Lord Byron
+ - If a man takes no thought about what is distant, he will find sorrow near at hand. ~~Confucius
+ - Wise men say only fools rush in. But I can’t help falling in love with you. ~~Elvis Presley
+ - Management by objective works – if you know the objectives. Ninety percent of the time you don’t. ~~Peter F. Drucker
+ - Follow effective action with quiet reflection. From the quiet reflection will come even more effective action. ~~Peter F. Drucker
+
+40 quotes

@@ -1,0 +1,76 @@
+ - Logic is the art of going wrong with confidence.
+ - Happiness is itself a kind of gratitude.
+ - Anxiety and distress, interrupted occasionally by pleasure, is the normal course of man’s existence.
+ - Security depends not so much upon how much you have, as upon how much you can do without.
+ - If we do not permit the earth to produce beauty and joy, it will in the end not produce food, either.
+ - The rare moment is not the moment when there is something worth looking at, but the moment when we are capable of seeing.
+ - Technology made large populations possible; large populations now make technology indispensable.
+ - The famous balance of nature is the most extraordinary of all cybernetic systems. Left to itself, it is always self-regulated.
+ - Only those within whose own consciousness the sun rise and set, the leaves burgeon and wither, can be said to be aware of what living is.
+ - If people destroy something replaceable made by mankind, they are called vandals; if they destroy something irreplaceable made by God, they are called developers.
+ - August creates as she slumbers, replete and satisfied.
+ - A humanist is anyone who rejects the attempt to describe or account for man wholly on the basis of physics, chemistry or animal behaviour.
+ - As machines get to be more and more like men, men will come to be more like machines.
+ - The flowers never waste their sweetness on the desert air or, for that matter, on the jungle air. In fact, they waste it only when nobody except a human being is there to smell it. It is for the bugs and a few birds, not for men, that they dye their petals or waft their scents.
+ - In a cat’s eye, all things belong to cats.
+ - To those who study her, Nature reveals herself as extraordinarily fertile and ingenious in devising means, but she has no ends which the human mind has been able to discover or comprehend.
+ - To have passed through life and never experienced solitude is to have never known oneself. To have never known oneself is to have never known anyone.
+ - There is no such thing as a dangerous woman; there are only susceptible men.
+ - Cats seem to go on the principle that it never does any harm to ask for what you want.
+ - The most important part of our lives-our sensations, emotions, desires, and aspirations-takes place in a universe of illusions which science can attenuate or destroy, but which it is powerless to enrich.
+ - Every time a value is born, existence takes on a new meaning; every time one dies, some part of that meaning passes away.
+ - The impulse to mar and to destroy is as ancient and almost as nearly universal as the impulse to create. The one is an easier way than the other of demonstrating power.
+ - Civilizations die from philosophical calm, irony, and a sense of fair play quite as surely as they die of debauchery.
+ - Rhetoric takes no real account of the art in literature and morality takes no account of the art in life.
+ - Nothing is too great or too good to be true. Do not believe that we can imagine things better than they are. In the long run, in the ultimate outlook, in the eye of the Creator, the possibilities of existence, the possibilities open to us, are beyond our imagination.
+ - Those whose conscience demands that they defy authority in some ways that involve great consequences must be willing to accept some penalty.
+ - When a man wantonly destroys one of the works of man we call him a vandal. When he destroys one of the works of god we call him a sportsman.
+ - Both the cockroach and the bird would get along very well without us, although the cockroach would miss us most.
+ - The advertiser is the overrewarded court jester and court pander at the democratic court.
+ - The snow itself is lonely or, if you prefer, self-sufficient. There is no other time when the whole world seems composed of one thing and one thing only.
+ - It is not a sentimental, but a grimly literal fact that unless we share this terrestrial globe with creatures other than ourselves, we shall not be able to live on it for long.
+ - The wilderness and the idea of wilderness is one of the permanent homes of the human spirit.
+ - Two-legged creatures we are supposed to love as we love ourselves. The four-legged, also, can come to seem pretty important. But six legs are too many from the human standpoint.
+ - Metaphysics may be, after all, only the art of being sure of something that is not so and logic only the art of going wrong with confidence.
+ - When, in the present world, men behave well, that is no doubt sometimes because they are creatures of habit as well as, sometimes, because they are reasonable.
+ - And the thing which is missing is love, some feeling for, as well as some understanding of, the inclusive community of rocks and soils, plants and animals, of which we are a part.
+ - Any euphemism ceases to be euphemistic after a time and the true meaning begins to show through. It’s a losing game, but we keep on trying.
+ - Poetry, mythology, and religion represent the world as man would like to have it, while science represents the world as he gradually comes to discover it.
+ - Science has always promised two things not necessarily related; an increase first in our powers, second in our happiness or wisdom, and we have come to realize that it is the first and less important of the two promises which it has kept most abundantly.
+ - What a man knows is everywhere at war with what he wants.
+ - If only the fit survive and if the fitter they are the longer they survive, then Volvox must have demonstrated its superb fitness more conclusively than any higher animal ever has.
+ - We need some contact with the things we sprang from. We need nature at least as a part of the context of our lives. Without cities we cannot be civilized. Without nature, without wilderness even, we are compelled to renounce an important part of our heritage.
+ - The typical American believes that no necessity of the soul is free and that there are precious few, if any, which cannot be bought.
+ - In history as it comes to be written, there is usually some Spirit of the Age which historians can define, but the shape of things is seldom so clear to those who live them. To most thoughtful men it has generally seemed that theirs was an Age of Confusion.
+ - It is not ignorance but knowledge which is the mother of wonder.
+ - It is sometimes easier to head an institute for the study of child guidance than it is to turn one brat into a decent human being.
+ - Nature, in her blind thirst for life has filled every possible cranny of the rotting earth with some sort of fantastic creature.
+ - If we are deprived of hope as well as fear, we are compensated by being given an almost endless patience for enduring or simply for waiting.
+ - Few people have ever seriously wished to be exclusively rational. The good life which most desire is a life warmed by passions and touched with that ceremonial grace which is impossible without some affectionate loyalty to traditional form and ceremonies.
+ - Nature takes no account of even the most reasonable of human excuses.
+ - It is disastrous to own more of anything than you can possess, and it is one of the most fundamental laws of human nature that our power actually to possess is limited.
+ - An abundance of some good things is perfectly compatible with the scarcity of others; that life is everywhere precarious, man everywhere small.
+ - There is no conceivable human action which custom has not at one time justified and at another condemned.
+ - The most serious charge which can be brought against New England is not Puritanism but February.
+ - Not to have known – as most men have not – either the mountain or the desert is not to have known one’s self. Not to have known one’s self is to have known no one.
+ - Long before I ever saw the desert I was aware of the mystical overtones which the observation of nature made audible to me. But I have never been more frequently or more vividly aware of them than in connection with the desert phenomena.
+ - Man is, perhaps, no more prone to war than he used to be and no more inclined to commit other evil deeds. But a given amount of ill will or folly will go further than it used to.
+ - We must not judge the society of the future by considering whether or not we should like to live in it; the question is whether those who have grown up in it will be happier than those who have grown up in our society or those of the past.
+ - Custom has furnished the only basis which ethics have ever had.
+ - Life is very persistent and very ingenious in seizing every opportunity.
+ - A tragic writer does not have to believe in God, but he must believe in man.
+ - The mind leaps, and leaps perhaps with a sort of elation, through the immensities of space, but the spirit, frightened and cold, longs to have once more above its head the inverted bowl beyond which may lie whatever paradise its desires may create.
+ - To be individually righteous is the first of all duties, come what may to ones self, to one’s country, to society, and to civilization itself.
+ - In the long run our boasted control of nature is a delusion.
+ - Electronic calculators can solve problems which the man who made them cannot solve; but no government-subsidized commission of engineers and physicists could create a worm.
+ - The human mind can appreciate the One only by seeing it first in the Many.
+ - Whenever man forgets that man is an animal, the result is always to make him less humane.
+ - In our hearts those of us who know anything worth knowing know that in March a new year begins, and if we plan any new leaves, it will be when the rest of Nature is planning them too.
+ - How anyone can profess to find animal life interesting and yet take delight in reducing the wonder of any animal to a bloody mass of fur or feathers?
+ - True tragedy may be defined as a dramatic work in which the outward failure of the principal personage is compensated for by the dignity and greatness of his character.
+ - Cats are rather delicate creatures and they are subject to a good many different ailments, but I have never heard of one who suffered from insomnia.
+ - Though many have tried, no one has ever yet explained away the decisive fact that science, which can do so much, cannot decide what it ought to do.
+ - The cockroach and the bird were both here long before we were. Both could.
+ - Perhaps we are wiser, less foolish and more far-seeing than we were two hundred years ago. But we are still imperfect in all these things, and since the turn of the century it has been remarked that neither wisdom nor virtue have increased as rapidly as the need for both.
+
+74 quotes

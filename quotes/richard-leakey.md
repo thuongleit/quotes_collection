@@ -1,0 +1,34 @@
+ - Humans become human through intense learning not just of survival skills but of customs and social mores, kinship and social laws-that is, culture.
+ - My father used to say that, through culture, humans effectively domesticated themselves.
+ - Paleoanthropology is not a science that ends with the discovery of a bone. One has to have the original to work with. It is a life-long task.
+ - We hope to find more pieces of the puzzle which will shed light on the connection between this upright, walking ape, our early ancestor, and modern man.
+ - When out fossil hunting, it is very easy to forget that rather than telling you how the creatures lived, the remains you find indicate only where they became fossilized.
+ - To have arrived on this earth as a product of a biological accident, only to depart through human arrogance, would be the ultimate irony.
+ - Spoken language clearly differentiates Homo sapiens from all other creatures. None but humankind produces a complex spoken language, a medium for communication and a medium for introspective reflection.
+ - It seems inconceivable that a species of human could possess fully modern language and not be fully modern in all other ways, too. For this reason, the evolution of language is widely judged to be the culminating event in the emergence of humanity as we know it today.
+ - Ritual disposal of the dead speaks clearly of an awareness of death, and thus an awareness of self.
+ - Along the borders to Ethiopia and Somalia, anarchy reigns, the police and military have retreated quite some distance.
+ - Sadly, I am not able to take part in the fieldwork myself so much anymore, as both of my legs were amputated following an airplane crash twelve years ago.
+ - Primates need good nutrition, to begin with. Not only fruits and plants, but insects as well.
+ - The language of art is powerful to those who understand it, and puzzling to those who do not. What we do know is that here was the modern human mind at work, spinning symbolism and abstraction in a way that only Homo sapiens is capable of doing.
+ - The world’s five thousand extant languages are products of our shared ability, but the five thousand cultures they create are separate from each other.
+ - To investigate the history of man’s development, the most important finds are, of course, hominid fossils.
+ - The problem is that during the 1980s, a decade of heavy poaching, the elephants retreated to safer areas. And now people have moved into the corridors once used by the elephants.
+ - We are bipedal apes, and it should not be surprising to see that fact reflected in the way our ancestors lived.
+ - Culture represents a novelty in the world of nature, and it could have added an effective, unifying edge to the forces of natural selection.
+ - The whole story is about change. We are very lucky that the earth’s history is recorded in fossilized remains. And we can see the changes. Unfortunately, there will always be gaps in our knowledge, but there is no doubt that we and everything living today has evolved.
+ - The elephants were being slaughtered in masses. Some were even killed in the vicinity of big tourist hotels.
+ - Climate change: We have never faced a more critical time on our planet.
+ - I have been raised to believe in freedom of thought and speech. If a minority wishes to accept that position it’s their right. What I fear is that this minority may seem to be larger than it truly is. What is strange is that there are still people who believe the world is not a globe.
+ - It’s the next annihilation of vast numbers of species. It is happening now, and we, the human race, are its cause.
+ - Natural selection operates according to immediate cirumstances and not toward a long-term goal. Homo sapiens did eventually evolve as a descendant of the first humans, but there was nothing inevitable about it.
+ - In the area of species protection, we should concern ourselves with what is right as opposed to what might be easier, or popular in the short term.
+ - For fossils to thrive, certain favorable circumstances are required. First of all, of course, remnants of life have to be there. These then need to be washed over with water as soon as possible, so that the bones are covered with a layer of sediment.
+ - It occurred to me that if I did not handle the crash correctly, there would be no survivors.
+ - Whether or not all this came to pass in an East African ditch, I wouldn’t like to say. Perhaps it happened in North Africa or further west, but Africa was definitely the place.
+ - It is virtually impossible to control Northern Kenya, which is populated chiefly by migrant nomads.
+ - As every parent knows, children go through an adolescent growth spurt, during which they put on inches at an alarming rate. Humans are unique in this respect: most mammalian species, including apes, progress almost directly from infancy to adulthood.
+ - The greatest problem we face is the growing number of people living in poverty. The related sense of hopelessness has to be impacting on every part of environmental management.
+ - Scientific innovations continually provide us with new means of analyzing the finds.
+
+32 quotes

@@ -1,0 +1,127 @@
+ - I love what I do, I love my job.
+ - Wealth is of the heart and mind, not the pocket.
+ - Collaborate with people you can learn from.
+ - Happiness is not about the trophy, or the finish line. It’s the journey. If you enjoy your journey, you can enjoy your life.
+ - If you’re not learning, you’re wasting your time.
+ - Timberland is an all-American brand focused on work, utility and the outdoors, that managed to find a place in the fashion world as well.
+ - Fashion is more about feel than science.
+ - Life is a carousel. It goes up and down. All U gotta do is just stay on.
+ - Fashion has to reflect who you are, what you feel at the moment, and where you’re going.
+ - No human being is the same; we are like snowflakes, none of us are the same but we are all COOL.
+ - There’s a key for every door, and if you can’t find it, you can make one. That’s always an option.
+ - Clear intentions and clear purpose begets clear results.
+ - Stars don’t sit still, they twinkle.
+ - I think all music is a gift from God.
+ - From a programmer’s point of view, the user is a peripheral that types when you issue a read request.
+ - It can’t be all you. Just like you need air to fly a kite. It’s not the kite. It’s the air.
+ - If you kiss a woman’s mind, her body will follow.
+ - The Internet is just it’s great in a lot of ways and it has its disadvantages. But one of the great advantages is the ubiquity – virtually anyone can be discovered and things catch like fire when they’re great.
+ - Yo, you don’t need nobody to represent you. You represent you. You represent the best version of who you could be. You go out there and change the world.
+ - We’re nothing without science. Nothing.
+ - Failure honestly can be like the best lesson and it’s like the one that like God wants you to really pay attention to. That’s why it hurts. The pain will help you remember how not to walk, what directions not to go.
+ - You are one of one. None before and none to come. That what makes you different, makes you beautiful.
+ - You gotta go inward To experience the outer space That was built for you.
+ - Society wants to put us in a box and say, OK, you do this and you do that and you do this, and I’m like, no, I like this, I like that.
+ - If someone asks me what inspires me, I always say, “That which is missing,” because I don’t want to copy everything that’s already happening. I feel like when you copy, you blend in, and when you blend in, you get lost.
+ - It’s not what you’re wearing, it’s the way you wear it.
+ - In order to do great things, you must be unafraid to recreate yourself. You can’t do that holding on to a glory from yesterday.
+ - That which makes you different is actually the thing that makes you special.
+ - Whenever I think of the memories of you by my side, it leaves a smile on my lips and gives me the hope of the love that we will have again when you will return. That is why I don’t mind staying apart like this.
+ - The motivation for me, was them telling me what I could not be.
+ - Right now, musically I’m inspired by everyday people.
+ - When you’re playing, you’re playing something for the world to hear.
+ - I am overly ambitious, because I realize it can be done.
+ - I just happen to admire everyone that we work with.
+ - I don’t want to end up being a circus act, doing my most famous tricks when I’m 70.
+ - Stay loyal to your creativity because it’s a gift.
+ - I stay grounded because everyone around me floats.
+ - Living your life 40 floors up, looking out every day on ocean and skies, you see the world from a different point of view. It’s like living in a very interesting fishbowl, but since no one can see up here, it’s like a fishbowl with a limo tint.
+ - The odds are so stacked against you to have a music career in a place where there’s virtually no music industry. So I always attribute it to God.
+ - Some people say there’s nothing new under the sun. I still think that there’s room to create, you know. And intuition doesn’t necessarily come from under this sun. It comes from within.
+ - All kings and queens are not born of royal bloodlines. Some become royal because of what they do once they realize who they are.
+ - Failure is not always a bad thing. You just have to be smart while you’re in the middle of it. You’re in the eye of the tornado of like disappointment to know that it’s just a storm and it’ll pass.
+ - You ain’t heard that we swallow guys?
+ - In and out of dimensions I walk through walls, just saying you can’t put me in a box that’s all.
+ - My ideal travel companions are my family.
+ - The “new black” doesn’t blame other races for our issues. The “new black” dreams and realizes that it’s not a pigmentation; it’s a mentality. And it’s either going to work for you, or it’s going to work against you. And you’ve got to pick the side you’re gonna be on.
+ - Creative people are often considered crazy but I believe crazy can be a good thing.
+ - The best work comes from people who are motivated by crisis. When something stops their original idea, they respond by coming up with something even better.
+ - Tokyo is like the New York of Asia. Although the people there are all basically from Japan, they celebrate what they like about various cultures.
+ - Clap along if you feel like a room without a roof. Clap along if you feel like happiness is the truth.
+ - Most of my company is run by women. There’s a certain sensitivity to what I want to express, so that’s what I want around me.
+ - When I’m in the mood for room service, my favorite order is a peanut-butter-and-jelly sandwich.
+ - I love when things are transparent, free and clear of all inhibition and judgement.
+ - At the end of the day, the Lord knows I have no malice in my heart. But I’ve got tattoos, and I still fornicate.
+ - Intake is everything. And that is, that’s where you start to realize your ego has no business in our business. Once you think you know everything, it’s only a matter of time. So I will forever remain a student.
+ - Women think about things in a holistic way that’s not just so individual. And I’m saying the thing is, is if we had somebody looking after our country that thought about things as a whole, I just feel like it just would be different.
+ - Clap your hands if you feel like a room without a roof.
+ - Some of the best art occurs when people are oppressed. That’s just what we do as a species when something shakes us up.
+ - Every piece of technology, every piece of art, basically everything manmade comes from an idea.
+ - I wanted clothing that I couldn’t find, so I decided to make it.
+ - When creative individuals are given a stage, they have the power to advance humanity.
+ - I have an all-Japanese design team, and none of them speak English. So it’s often funny and surprising how my ideas end up lost in translation.
+ - I’m always consciously trying to make what I feel is missing.
+ - I just like being a kid. I enjoy it, I don’t want to grow up.
+ - There are no mistakes or accidents. The present is malleable. Influence the odds. Free will is your pen, write your life.
+ - I think music follows the trends of the collective conscious.
+ - I’m just very thankful. And I say that a lot because that’s the most important message.
+ - If you are not curious, that’s when your brain is starting to die. And discovering, I think, that’s what separates us from the rest of the other species. It’s that we discover and pioneer.
+ - Some of us get a feeling when we hear music and we feel music, and you want to figure out how to continue to feel that.
+ - And when I say equality, I mean equality for everybody. Who are you telling who they can marry and who they can’t? What is this? This is 2014.
+ - When I make music, I try to make something that is super colorful and something you’ve never heard before, so when you hear the whole album, it’s a good feeling. Musically that’s what I aspire to do whenever I’m making an album.
+ - If you allow failure to take on more of a role in your life than possible, then you’ll always look at it on the defense and you’ll always shoot yourself down before it even goes anywhere.
+ - I love playing. The keyboard is my journal.
+ - There are tons of people who have made great music, great art, great whatever, but you don’t know about them until the people lift you to a certain height so that you could even be visible and get any kind of recognition.
+ - Whatever you want to do is more than possible. It’s what you haven’t dreamt of yet that will blow your mind.
+ - I love everything that Frank Gehry does. I wish I could have that man build me a Wayne Manor-style mansion, like his idea of it.
+ - I’m like most people. We just concentrate on the present. I live right where the film is going through the film projector and it hits the light.
+ - I like to browse and just hang in bookstores.
+ - As a kid, I always had a super vivid imagination, like “Man, I like those shoes, but they should’ve made them in purple” or like, “Man, I wonder how people make songs.”
+ - Sometimes when you’re listening to a neuroscientist, they have a tendency to use a particular type of jargon that works in their world perfectly but that would lose the average layman.
+ - Music is all of a sudden much more colorful.
+ - I like anything sweet.
+ - You get used to it when you feel like you’re an artist.
+ - I’m very lazy, it’s just that I love music and I love the things that I get to do. That’s why I feel so blessed.
+ - It’s cool that you hear something, but what did you feel and what was your tactile and kinesthetic response to it? Those songs and creative sessions mean the most.
+ - Iconic artists are never straight ahead. Michael Jackson loved Elvis and Burt Bacharach, and uniquely blended both of them into what he did.
+ - I love the way Charlize Theron and Kate Moss dress.
+ - I don’t know, the artist thing is not me. I love making music, though.
+ - So many people just have that innate thing that allows them to express themselves in a way the majority can follow. That’s when you’re affecting culture.
+ - Everything that we experience every day leaves a long-lasting impression.
+ - When it comes to luggage, I am an underpacker.
+ - You sort of have to become what you’re wearing.
+ - I can’t say what I’m going to wear all the time. The minute that I say that, then there’s something in me that tips off and then I need to break out of that.
+ - I answer questions the best I can.
+ - So when I’m playing, I’m sort of painting a feeling in the air.
+ - The last thing you want to do as a creator is take something of someone else’s when you love him.
+ - You treat the air as a canvas and the paint is the chords that come through your fingers, out of the keyboard.
+ - I prefer a woman’s way of dealing with things.
+ - I don’t know about style mistakes.
+ - You learn from experiences, and I suppose that’s where I color most of my music, from experiences.
+ - Alber Elbaz is just a genius. He’ll be in a dinner jacket and he doesn’t care what time of day it is: I love that about him. He just marches to the beat of his own drum.
+ - I’ve never seen myself as an artist. So when that happened it was like a whole other crazy thing.
+ - Failure hurts pretty bad. But when you got good people around you they remind you that failure is actually just a lesson. It’s how not to walk so you don’t fall again.
+ - I’m a producer. I’m a musician. And my job is to come in and, you know, put – you know, I treat all of the artists that I work with, like, you know, the way da Vinci was looking at Mona Lisa, you know, there’s an interesting backdrop.
+ - The simplest way to say it is that I think we’re all dealt these cards in life, but the cards in and of themselves don’t read one way or the other. It’s up to you to home in and cultivate whatever you’ve got in your hand.
+ - Most of the time, I see what I see, I search my feelings, and then I make my decisions based on my gut – and I don’t always make the right ones.
+ - The most important thing is just like creativity and music. It’s the one thing that you never lose if you just stay loyal to that.
+ - I’m a fan of music, first and foremost. So I do things from the perspective of a fan.
+ - Lyrically, I could be so much sharper. Melodically, I could be so much stickier. Musically, I could have so much more texture. So I’m constantly doing that, trying to find new ways to mix things up.
+ - Remember my first tenet in getting dressed is how you feel in the morning. So if you’re not being true blue to that, it usually shows.
+ - I’m like a little boy from Virginia. I’m a backpacker. In my head, I’m left of centre. I come from the pool of weirdoes.
+ - I love making music, though. I love playing.
+ - There’s no better feeling than just going in and just working with someone and what comes out is something that the world knows about.
+ - Music is what I love to do. Music, fashion, a couple of chairs, I’m cool, I’m grateful.
+ - The people have allowed me to – they’ve respected my choice of wanting to be like, a little, you know, a baby alchemist, and just trying to mix different cultures together and things that I think are interesting.
+ - I just like when stuff feels good. ‘Happy’ feels good.
+ - I only entertain very close friends.
+ - I learn a lot from my experiences and collaborations. Most of my collaborations are meant for me to learn.
+ - The sexiest woman musician is Alicia Keys.
+ - My favorite Dominican dish to indulge in is anything with crab.
+ - The element of harmony is super important.
+ - Usually as humans and especially as a man, we look at things in context. It’s like, oh, I know what that is, that’s this, or this, there’s that.
+ - Artists are like messengers. A song is authored by you, but its interpretation is owned by other people. And you have no control over that.
+ - I just do what I do. It’s not something that should be revered as something that’s great.
+ - As individuals, I just think that our biggest responsibility is to be self-aware, and some of us are not.
+
+125 quotes

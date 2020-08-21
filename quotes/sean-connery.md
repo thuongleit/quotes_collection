@@ -1,0 +1,76 @@
+ - Love may not make the world go round, but I must admit that it makes the ride worthwhile.
+ - You write your first draft with your heart and you re-write with your head. The first key to writing is to write, not to think.
+ - Some age. Others mature.
+ - May God grant us the wisdom to discover right, the will to choose it, and the strength to make it endure.
+ - Nothing is impossible, only mathematically improbable.
+ - The key to a woman’s heart is an unexpected gift at an unexpected time.
+ - There’s always a new challenge to keep you motivated.
+ - My boy, we are pilgrims in an unholy land.
+ - If you fear nothing, you love nothing. If you love nothing, what joy can there be in life?
+ - Don’t wait for it to happen, don’t even want it to happen – just watch what does happen.
+ - If you can’t do it with one bullet, don’t do it at all.
+ - If you have to resort to violence, you’ve already lost.
+ - I find if I just sit down and think, a solution presents itself.
+ - Sometimes a woman just needs to be slapped.
+ - There is nothing like a challenge to bring out the best in man.
+ - But I wouldn’t call myself sadistic.
+ - Laughter kills fear, and without fear there can be no faith. For without fear of the devil there is no need for God.
+ - A martini. Shaken, not stirred.
+ - It’s not the worst thing to slap a woman now and then.
+ - How peaceful life would be without love. How safe, how tranquil and how dull.
+ - Bond’s introduction: “Bond. James Bond.” Repeated in 17 subsequent Bond films. Number One in the Top Ten Most Famous Movie Quotes. -The Guinness Book of Film.
+ - I take the good with the bad. I can’t love people in slices.
+ - I hope to work, support my children and die quietly without pain.
+ - My dear girl, there are some things that just aren’t done, such as drinking Dom Perignon ’53 above the temperature of 38 degrees Fahrenheit. That’s just as bad as listening to the Beatles without earmuffs!
+ - To cultivate an English accent is already a departure away from what you are.
+ - I unfortunately don’t speak French, but my wife is now fluent in English, which really reflects rather badly on me.
+ - I met my wife through playing golf. She is French and couldn’t speak English and I couldn’t speak French, so there was little chance of us getting involved in any boring conversations – that’s why we got married really quickly.
+ - I don’t think there is anything particularly wrong in hitting a woman, though I don’t recommend you do it the same way that you hit a man.
+ - I admit I’m being paid well, but it’s no more than I deserve. After all, I’ve been screwed more times than a hooker.
+ - I have always hated that damn James Bond. I’d like to kill him.
+ - I am not an Englishman, I was never an Englishman, and I don’t ever want to be one. I am a Scotsman! I was a Scotsman and I will always be one.
+ - I like women. I don’t understand them, but I like them.
+ - I never trashed a hotel room or did drugs.
+ - Red wine with fish. That should have told me something.
+ - People used to call me Bond in the street. It was impossible to avoid crowds of people all over the place and blinding flashguns. The Beatles had to run the gauntlet as well, but at least there were four of them!
+ - Your background and environment is with you for life. No question about that.
+ - The terrible beauty is that in the brotherhood of golf we are all the same – certifiable.
+ - I’ve never really fancied Mexican food. A taco rather minds me of a puncture outfit.
+ - There are women who take it to the wire. That’s what they are looking for, the ultimate confrontation. They want a smack.
+ - Most movies shot in Italian don’t even bother to record the sound. In fact, sometimes when Fellini works, he doesn’t even know what the dialogue is going to be, and he simply has his characters count from 1 to 10, knowing he will loop in their dialogue later.
+ - I’ve always been hopeful about Scotland’s prospects. And I now believe more than ever that Scotland is within touching distance of achieving independence and equality.
+ - I suppose I’ll be able to get a drink there.
+ - I don’t know anything about baseball.
+ - I’m swimming every day and I’m even trying to get the golf swing working again – but that might take a little bit longer.
+ - But as a Scot with a lifelong love of Scotland and the arts, I believe the opportunity of independence is too good to miss. Simply put there is no more creative an act than creating a new nation.
+ - The knighthood I received was a fantastic honour but it’s not something I’ve ever used and I don’t think I ever will.
+ - I haven’t found anywhere in the world where I want to be all the time. The best of my life is the moving. I look forward to going.
+ - Everything I have done or attempted to do for Scotland has always been for her benefit, never my own and I defy anyone to prove otherwise.
+ - There’s a lot of fantasy about what Scotland is, and the shortbread tins and that sort of thing.
+ - Scotland should be nothing less than equal with all the other nations of the world.
+ - There’s one major difference between James Bond and me. He is able to sort out problems!
+ - Either what we hold to be right and good and true IS right and good and true, for all mankind, or we’re just another robber tribe.
+ - I’m an easy target because of my political opinions.
+ - The Irish seem to have more fire about them than the Scots.
+ - If anything could have pulled me out of retirement, it would have been an Indiana Jones film.
+ - There’s something fundamentally wrong with a system where there’s been 17 years of a Tory Government and the people of Scotland have voted Socialist for 17 years. That hardly seems democratic.
+ - When you hear someone from the very north of Scotland speaking, I think its nice, very musical and harmonious.
+ - I care about Bond and what happens to him. You cannot be connected with a character for this long and not have an interest. All the Bond films had their good points.
+ - Only 4 percent of all the companies owned in Scotland have their head offices in Scotland.
+ - More than anything else, I’d like to be an old man with a good face, like Hitchcock or Picasso.
+ - I don’t think I’ll ever act again.
+ - I can’t afford to slow down, but I suppose it really depends. As long as there’s enough enthusiasm, then one wants to continue.
+ - I still pay full tax when I work in England and the same when I work in America.
+ - I just think the most difficult thing to displace is privilege.
+ - I have no shortage of material or offers, it’s just a case of what you select to do. But I think it’s realistic that my chances of playing Romeo are now over.
+ - I’m an actor – it’s not brain surgery. If I do my job right, people won’t ask for their money back.
+ - If America had been discovered as many times as I have, no one would remember Columbus.
+ - I am not a politician and I have no intention of being one.
+ - I did many other things before I ever got into the movies. I’ve been in so many businesses, it’s a joke. All of them totally unsuited to me. Selling used cars. Running a club in London.
+ - I’ve never kept a record of anything. I gave away everything: all the posters, the memorabilia that would have been helpful – and financially rewarding.
+ - I left Scotland when I was 16 because I had no qualifications for anything but the Navy, having left school at 13.
+ - Perhaps I’m not a good actor, but I would be even worse at doing anything else.
+ - The media already attempts to assassinate my character in Scotland when I’m there, so my position is much more effective if I’m outside Scotland and am part of the voice of what the Scottish National Party is about.
+ - I don’t understand if you get caught in a fight, but take it out on a room, how that implies some psychiatric disorder.
+
+74 quotes

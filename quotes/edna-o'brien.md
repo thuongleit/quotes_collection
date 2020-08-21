@@ -1,0 +1,58 @@
+ - August is a wicked month.
+ - We all leave one another. We die, we change – it’s mostly change – we outgrow our best friends; but even if I do leave you, I will have passed on to you something of myself; you will be a different person because of knowing me; it’s inescapable...
+ - In a way Winter is the real Spring – the time when the inner things happen, the resurgence of nature.
+ - History is said to be written by the victors. Fiction, by contrast, is largely the work of injured bystanders.
+ - Darkness is drawn to light, but light does not know it; light must absorb the darkness and therefore meet its own extinguishment.
+ - When anyone asks me about the Irish character, I say look at the trees. Maimed, stark and misshapen, but ferociously tenacious.
+ - I’m a tuning fork, tense and twanging all the time...
+ - Writers, however mature and wise and eminent, are children at heart.
+ - When you fall in love, it is spring no matter when. Leaves falling make no difference, they are from another season...
+ - I am not kind, I cut people off as with shears and I drop them like nettles.
+ - For me to write I have to be, a, alone, and b, know that nobody is going to question me. I write the way a thief steals; it’s a little covert.
+ - Writing is like carrying a fetus.
+ - In our deepest moments we say the most inadequate things.
+ - Irish Catholicism is very much founded on the stone of fear and of punishment.
+ - Death in its way comes just as much of a surprise as birth.
+ - I was lonelier than I should be, for a woman in love, or half in love.
+ - She said the reason that love is so painful is that it always amounts to two people wanting more than two people can give.
+ - The vote means nothing to women. We should be armed.
+ - Promiscuity is the death of love.
+ - What matters is the imaginative truth.
+ - Movie people are possessed by demons, but a very low form of demons.
+ - Oh, God, who does not exist, you hate women, otherwise you’d have made them different. And Jesus, who snubbed your mother, you hate them more.
+ - She was an auxiliary nurse but training to be a true nurse because that was her calling, to serve mankind. She was a Martha. There were Marys and Marthas, but Marys got all the limelight because of being Christ’s handmaiden, but Marthas were far more sincere.
+ - Sometimes one word can recall a whole span of life.
+ - All my life I had feared imprisonment, the nun’s cell, the hospital bed, the places where one faced the self without distraction, without the crutches of other people.
+ - After that dark woman you search for someone who will fit into the irregular corners of your heart.
+ - Writers are always anxious, always on the run – from the telephone, from responsibilities, from the distractions of the world.
+ - Money talks, but tell me why all it says is just Goodbye.
+ - There was I, devouring books and yet allowing a man who had never read a book to walk me home for a bit of harmless fumbling on the front steps.
+ - I am obsessive, also I am industrious. Besides, the time when you are most alive and most aware is in childhood and one is trying to recapture that heightened awareness.
+ - Ideally I’d like to spend two evenings a week talking to Proust and another conversing with the Holy Ghost.
+ - I always want to be in love, always. It’s like being a tuning fork.
+ - Countries are either mothers or fathers, and engender the emotional bristle secretly reserved for either sire.
+ - In every question and every remark tossed back and forth between lovers who have not played out the last fugue, there is one question and it is this: Is there someone new?
+ - I know the mistake I am making. I see the exits in life.
+ - Recollection is not something that I can summon up, it simply comes and I am the servant of it.
+ - We hide the truer part of ourselves when we love.
+ - Books everywhere. On the shelves and on the small space above the rows of books and all along the floor and under chairs, books that I have read, books that I have not read.
+ - Kindness. The most unkind thing of all.
+ - I did not sleep. I never do when I am over-happy, over-unhappy, or in bed with a strange man.
+ - Oh, love, what an unreasoning creature it grew to be.
+ - If the Holy Communion touched my teeth, I thought that was a mortal sin.
+ - I’m an Irish Catholic and I have a long iceberg of guilt.
+ - It was the first time that I came face to face with madness and feared it and was fascinated by it.
+ - I knew I had done something awful. I had killed love, before I even knew the enormity of what love meant.
+ - Writers really live in the mind and in hotels of the soul.
+ - You have to be lonely to be a writer.
+ - Irish? In truth I would not want to be anything else. It is a state of mind as well as an actual country. It is being at odds withother nationalities, having quite different philosophy about pleasure, about punishment, about life, and about death. At least it does not leave one pusillanimous.
+ - I have always espoused chastity except when one can no longer resist the temptation.
+ - What we forgot as children is that our parents are children, also. The child in them has not been satisfied or met or loved, often.
+ - Writing is the product of a deeply disturbed psyche, and by no means therapeutic.
+ - That is the mystery about writing: it comes out of afflictions, out of the gouged times, when the heart is cut open.
+ - There was always a real reason for everything – why spoons tarnished, and jam furred, and people declined into God, or drink, or card games.
+ - Wherever there were horses or ponies the mushrooms always sprang up.
+ - When something has been perfect, there is a tendency to try hard to repeat it.
+ - It is increasingly clear that the fate of the universe will come to depend more and more on individuals as the bungling of bureaucracy permeates every corner of our existence.
+
+56 quotes

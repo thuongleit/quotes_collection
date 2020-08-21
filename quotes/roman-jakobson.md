@@ -1,0 +1,21 @@
+ - A linguist deaf to the poetic functions of language and a literary scholar indifferent to linguistics are equally flagrant anachronisms.
+ - Languages differ essentially in what they must convey and not in what they may convey.
+ - The function of poetry is to point out that the sign is not identical to the referent.
+ - Bilingualism is for me the fundamental problem of linguistics.
+ - Semantics, or the study of meaning, remained undeveloped, while phonetics made rapid progress and even came to occupy the central place in the scientific study of language.
+ - Linguistic sounds, considered as external, physical phenomena have two aspects, the motor and the acoustic.
+ - Remember that the pharynx is at a crossroads from which leads off, at the top, the passage to the mouth cavity and the passage to the nasal cavity, and below, the passage to the larynx.
+ - The poetic function is the set towards the message itself, focus on the message for its own sake which by promoting the palpability of signs, deepens the fundamental dichotomy of signs and objects.
+ - What’s next? Shall we appoint elephants to teach zoology?
+ - Every linguistic sign is located on two axes: the axis of simultaneity and that of succession.
+ - A new era in the physiological investigation of linguistic sounds was opened up by X-ray photography.
+ - When I speak it is in order to be heard.
+ - Acoustic phonetics, which is developing and increasing in richness very rapidly, already enables us to solve many of the mysteries of sound, mysteries which motor phonetics could not even begin to solve.
+ - Speech sounds cannot be understood, delimited, classified and explained except in the light of the tasks which they perform in language.
+ - The search for the symbolic value of phonemes, each taken as a whole, runs the risk of giving rise to ambiguous and trivial interpretations because phonemes are complex entities, bundles of different distinctive features.
+ - Now the identification of individual sounds by phonetic observation is an artificial way of proceeding.
+ - In poetic language, in which the sign as such takes on an autonomous value, this sound symbolism becomes an actual factor and creates a sort of accompaniment to the signified.
+ - It is once again the vexing problem of identity within variety; without a solution to this disturbing problem there can be no system, no classification.
+ - At first acoustics attributed to the different sounds only a limited number of characteristic features.
+
+19 quotes

@@ -1,0 +1,29 @@
+ - Every time we choose safety, we reinforce fear.
+ - The quality of your life is determined by the focus of your attention.
+ - Your definition of who you are is your prison. You can set yourself free at any time.
+ - It is not my experience that we are here to fix the world, that we are here to change anything at all. I think we are here so the world can change us. And if part of that change is that the suffering of the world moves us compassion, to awareness, to sympathy, to love, that is a very good thing.
+ - What we do about our feelings determines the quality of our relationship with ourselves.
+ - If you had a person in your life treating you the way you treat yourself, you would have gotten rid of them a long time ago...
+ - A person who is without fear cannot be controlled.
+ - Self-judgment is how conditioned mind keeps control over your life.
+ - If you want to know what you were conditioned to believe as a child, look at how you treat yourself now.
+ - It doesn’t matter what did or did not happen then. It only matters what happens NOW.
+ - When we make decisions, about eating or anything else, with an attitude of kindness and acceptance toward ourselves, with awareness of what is involved in our choices, the conflict between deprivation and indulgence ceases to exist.
+ - When we come to that compassionate awareness that is not afraid of the fear, that can embrace the fear, we are able to heal the wounds of the child and the adult and begin to live the lives we’ve always wanted to live.
+ - Do something you fear, NOT to conquer the fear, NOT to accomplish a task, but to familiarize yourself with the processes with which fear protects itself, to demystify it.
+ - Going in the wrong direction but making really good time.
+ - You have been taught that there is something wrong with you and that you are imperfect, but there isn’t and you’re not.
+ - That which you seek, is causing you to seek.
+ - Getting where you want to be has everything to do with awareness, and nothing to do with willpower.
+ - Be just the way you have always been, with this difference: do not believe any of it, and pay close attention to all of it.
+ - If you want to feel a certain way, feel it now.
+ - People respond better to kindness than cruelty. Why, it’s even caught on in the workplace, that bastion of self-hatred and disrespect.
+ - Feeling bad is not a requirement; it’s something we agree to. Cut it loose!
+ - An essential part of seeing clearly is finding the willingness to look closely and to go beyond our own ideas.
+ - That love of the practice of ending suffering will probably be all of the awakening that you would ever desire.
+ - We have a choice. We can love our lives trying to conform to some nebulous standard, or we can live our lives seeing how everything works. When we step back and look at it that way, it is obvious that the attitude of fascination is the only intelligent one to bring to anything.
+ - When you stop comparing what is right here and now with what you wish were, you can begin to enjoy what is.
+ - All you must do is accecpt all that is unaccecptable to you.
+ - The voice inside your head is not the voice of god. It just sounds like it thinks it is.
+
+27 quotes

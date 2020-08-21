@@ -1,0 +1,29 @@
+ - I love the infantry because they are the underdogs. They are the mud-rain-frost-and-wind boys. They have no comforts, and they even learn to live without the necessities. And in the end they are the guys that wars can’t be won without.
+ - Thoughts are wonderful things, that they can bring two people, so far apart, into harmony and understanding for even a little while.
+ - It was a night when London was ringed and stabbed with fire.
+ - War makes strange giant creatures out of us little routine men who inhabit the earth.
+ - Someday when peace has returned to this odd world I want to come to London again and stand on a certain balcony on a moonlit night and look down upon the peaceful silver curve of the Thames with its dark bridges.
+ - There is no sense in the struggle, but there is no choice but to struggle.
+ - I’ve been immersed in it too long. My spirit is wobbly and my mind is confused. The hurt has become too great.
+ - The front-line soldier wants it to be got over by the physical process of his destroying enough Germans to end it. He is truly at war. The rest of us, no matter how hard we work, are not.
+ - For me war has become a flat, black depression without highlights, a revulsion of the mind and an exhaustion of the spirit.
+ - Swinging first and swinging to kill is all that matters now.
+ - Some day I’d like to cover a war in a country as ugly as war itself.
+ - I try not to take any foolish chances, but there’s just no way to play it completely safe and still do your job.
+ - I was away from the front lines for a while this spring, living with other troops, and considerable fighting took place while I was gone. When I got ready to return to my old friends at the front I wondered if I would sense any change in them.
+ - Somebody said that carrier pilots were the best in the world, and they must be or there wouldn’t be any of them left alive.
+ - But to the fighting soldier that phase of the war is behind. It was left behind after his first battle. His blood is up. He is fighting for his life, and killing now for him is as much a profession as writing is for me.
+ - In their eyes as they pass is not hatred, not excitement, not despair, not the tonic of their victory – there is just the simple expression of being here as though they had been here doing this forever, and nothing else.
+ - One of the parodoxes of war is that those in the rear want to get up into the fight, while those in the lines want to get out.
+ - The American soldier is quick in adapting himself to a new mode of living. Outfits which have been here only three days have dug vast networks of ditches three feet deep in the bare brown earth. They have rigged up a light here and there with a storage battery.
+ - About every two minutes a new wave of planes would be over. The motors seemed to grind rather than roar, and to have an angry pulsation like a bee buzzing in blind fury.
+ - If I can just see the European war out I think I might feel justified in quitting the war.
+ - Our artillery has really been sensational. For once we have enough of something and at the right time. Officers tell me they actually have more guns than they know what to do with.
+ - The closest fires were near enough for us to hear the crackling flames and the yells of firemen. Little fires grew into big ones even as we watched. Big ones died down under the firemen’s valor only to break out again later.
+ - If you go long enough without a bath, even the fleas will let you alone.
+ - Say what you will, nothing can make a complete soldier except battle experience.
+ - Below us the Thames grew lighter, and all around below were the shadows – the dark shadows of buildings and bridges that formed the base of this dreadful masterpiece.
+ - I’ve really been sick with this cold, but I think I might have kept the columns going anyhow except I was just so low in spirit, I didn’t have the will to struggle against them when my deadline was so close and I felt so lousy.
+ - All the rest of us – you and me and even the thousands of soldiers behind the lines in Africa – we want terribly yet only academically for the war to get over.
+
+27 quotes

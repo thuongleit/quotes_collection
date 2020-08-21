@@ -1,0 +1,29 @@
+ - Deep down, nobody wants a job to occupy his or her time. We want a mission that inspires us.
+ - In shamanic cultures, sychronicities are recognized as signs that you are on the right path.
+ - Our normal human tendencies are distraction and dissipation. We begin one task, then get seduced by some other option, and lose our focus. We drift away from what is difficult and we know to be true, to what is comfortable and socially condoned.
+ - Shamanism is a kind of universal spiritual practice with indigenous cultures around the world, and one important element of it is taking care of spirits.
+ - Modern humans became fixated on a collective hallucination of linear time, ignoring the fractal spirals of the surrounding universe.
+ - Synchronicities express themselves through chance meetings and natural events as well as in dreams and supernatural episodes.
+ - The drive to Black Rock City from San Francisco leads through the Nevada flatlands, past the jittering neon sadness of Reno.
+ - We live in a culture where everything tastes good but nothing satisfies.
+ - My personal, metaphysical belief is Vedanta, which is that ultimately there is a singular consciousness. It’s like a Hindu metaphysics, that basically we’re all like characters in a play that consciousness is putting on to discover its own creative capacities.
+ - Reality, as you currently experience it, is something like a waking dream. It is disguising deeper and more intensified levels of being and knowing. For those who are ready and willing, the doors to those other levels now stand open.
+ - I’m starting to reread a bunch of Gandhi and it was kind of traumatic, because he was so clearly, unbelievably amazing. And the stuff that he is suggesting is so profoundly opposite from what is happening in our world today.
+ - I grew up in a very artistic, cultured home, but without any kind of spirituality. My parents were secular materialists, so I saw art as having an alternate value.
+ - The ‘coming of the Self’ is an apocalypse for the ego, the ‘you’ that wants to hang along for the ride. It may be that the only way to survive the Apocalypse is to undergo it, first, within your own being.
+ - The plants that produce visions can function- for those of us who have inherited the New World Order of barren materialism, cut off from our spiritual heritage by a spiteful culture that gives us nothing but ashes- as the talismans of recognition that awaken our minds to reality.
+ - I don’t really advocate for psychedelics. I don’t really think anybody needs to do them, or has to do them. For me, they were the only way I could have cracked open my own spirit in a way.
+ - Maybe the same instruments and tools that have been used to keep people in slavery and ignorance could potentially be used to liberate and awaken them.
+ - Through the last centuries, the effort of capitalism has been to take all the things that were human relations and turn them into monetary exchanges.
+ - Cynicism is something that is part of the media production of a certain type of subjectivity or consciousness that is passive and disempowered, cynical, fatalistic, pessimistic.
+ - Life as an end is qualitatively different from life as a means.
+ - Marcuse wrote: “Perhaps an accident may alter the situation, but unless the recognition of what is being done and what is being prevented subverts the consciousness and the behavior of man, not even a catastrophe will bring about the change.”...
+ - If you step back from it and really think about what the mass media does on a global scale, the most significant thing it does is coordinate behaviour.
+ - It is the difficult, but unavoidable, task of the modern individual to assimilate consciously all of the contents – from darkest degradation to profoundest purpose – contained in the psyche.
+ - The idea that I really like is December 21st, 2012. Try to get a global moment of collective reflection as a way to bring about an uptick in human consciousness.
+ - I totally think we have a future on the planet. I just think that we have to get away from Western thinking, which is very much founded on dualisms.
+ - I think that the more people go through their own personal initiations, the less collective destruction may be unleashed on the planet.
+ - Individuals who are really inspirational are always what changes history. Gandhi had a bunch of good ideas, and he led a non – violent revolution that transformed India.
+ - We live in a culture where everything is designed for our comfort or entertainment but nothing satisfies. At our core, we remain insatiable, constantly on the prowl for new commodities and pleasant sensations to fill the void.
+
+27 quotes

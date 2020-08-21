@@ -1,0 +1,22 @@
+ - In prosperity our friends know us; in adversity we know our friends.
+ - If we knew each other’s secrets, what comforts we should find.
+ - There is often less danger in the things we fear than in the things we desire.
+ - We are no more responsible for the evil thoughts that pass through our minds than a scarecrow for the birds which fly over the seedplot he has to guard. The sole responsibility in each case is to prevent them from settling.
+ - To accept a favor from a friend is to confer one.
+ - Always mistrust a subordinate who never finds fault with his superior.
+ - No one who deserves confidence ever solicits it.
+ - If we escape punishment for our vices, why should we complain if we are not rewarded for our virtues?
+ - Envy and fear are the only passions to which no pleasure is attached.
+ - To ask advice is in nine cases out of ten to tout for flattery.
+ - Never trust a man who speaks well of everybody.
+ - Suicide is the worst form of murder, because it leaves no opportunity for repentance.
+ - A fool often fails because he thinks what is difficult is easy.
+ - What attracts us in a woman rarely binds us to her.
+ - Truth is the object of philosophy, but not always of philosophers.
+ - Never claim as a right what you can ask as a favor.
+ - Though pride is not a virtue, it is the parent of many virtues.
+ - Half our mistakes in life arise from feeling where we ought to think, and thinking where we ought to feel.
+ - A wise man thinks what is easy is difficult.
+ - The secret of success in life is known only by those who have not succeeded.
+
+20 quotes

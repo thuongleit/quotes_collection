@@ -1,0 +1,168 @@
+ - Study nature, love nature, stay close to nature. It will never fail you.
+ - I know the price of success: dedication, hard work, and an unremitting devotion to the things you want to see happen.
+ - I believe in God, only I spell it Nature.
+ - The truth is more important than the facts.
+ - Nature is my manifestation of God. I go to nature every day for inspiration in the day’s work. I follow in building the principles which nature has used in its domain.
+ - Nature is the inspiration for all ornamentation.
+ - The longer I live the more beautiful life becomes. If you foolishly ignore beauty, you will soon find yourself without it. Your life will be impoverished. But if you invest in beauty, it will remain with you all the days of your life.
+ - Freedom is from within.
+ - An idea is salvation by imagination.
+ - You have to go wholeheartedly into anything in order to achieve anything worth having.
+ - When I see architecture that moves me, I hear music in my inner ear.
+ - The ultimate creative thinking technique is to think like God. If you’re an atheist, pretend how God would do it.
+ - The human race built most nobly when limitations were greatest.
+ - More and more, so it seems to me, light is the beautifier of the building.
+ - There is nothing more uncommon than common sense.
+ - A doctor can bury his mistakes, but an architect can only advise his clients to plant vines.
+ - Architecture is life, or at least it is life itself taking form and therefore it is the truest record of life as it was lived in the world yesterday, as it is lived today or ever will be lived.
+ - The thing always happens that you really believe in; and the belief in a thing makes it happen.
+ - Individuality realized is the supreme attainment of the human soul, the master-master’s work of art. Individuality is sacred.
+ - You can use an eraser on the drafting table or a sledge hammer on the construction site.
+ - Form follows function – that has been misunderstood. Form and function should be one, joined in a spiritual union.
+ - Space is the breath of art.
+ - Love is the virtue of the Heart, Sincerity is the virtue of the Mind, Decision is the virtue of the Will, Courage is the virtue of the Spirit.
+ - No house should ever be on a hill or on anything. It should be of the hill. Belonging to it. Hill and house should live together each the happier for the other.
+ - Love of an idea is the love of God.
+ - Wood is universally beautiful to man. It is the most humanly intimate of all materials.
+ - Art is a discovery and development of elementary principles of nature into beautiful forms suitable for human use.
+ - San Francisco is the only city I can think of that can survive all the things you people are doing to it and still look beautiful.
+ - We create our buildings and then they create us. Likewise, we construct our circle of friends and our communities and then they construct us.
+ - Take nothing for granted as beautiful or ugly.
+ - I hate intellectuals. They are from the top down. I am from the bottom up.
+ - Buildings, too, are children of Earth and Sun.
+ - Early in life I had to choose between honest arrogance and hypocritical humility. I chose the former and have seen no reason to change.
+ - The good building is not one that hurts the landscape, but one which makes the landscape more beautiful than it was before the building was built.
+ - I’m all in favor of keeping dangerous weapons out of the hands of fools. Let’s start with typewriters.
+ - Doctors bury their mistakes, Architects cover them with ivy.
+ - The best friend on earth of man is the tree: When we use the tree respectfully and economically, we have one of the greatest resources of the earth.
+ - Architecture is the frame of human existence. We must dedicate this existence more to beauty. For if poetic principle has deserted us, how long are we going to last?
+ - The present is the ever moving shadow that divides yesterday from tomorrow. In that lies hope.
+ - I go to nature every day for inspiration in the day’s work.
+ - If you wisely invest in beauty, it will remain with you all the days of your life.
+ - Architecture is the triumph of human imagination over materials, methods, and men, to put man into possession of his own earth.
+ - All fine architectural values are human values, else not valuable.
+ - I attend the greatest of all Churches. I put a capital N on Nature, and call it my Church.
+ - We’ve been fighting from the beginning for organic architecture. That is, architecture where the whole is to the part as the part is to the whole, and where the nature of materials, the nature of the purpose, the nature of the entire performance becomes a necessity-architecture of democracy.
+ - Noble life demands a noble architecture for noble uses of noble men. Lack of culture means what it has always meant: ignoble civilization and therefore imminent downfall.
+ - To know what to leave out and what to put in; just where and just how, ah, that is to have been educated in knowledge of simplicity.
+ - Why should architecture or objects of art in the machine age, just because they are made by machines, have to resemble machinery?
+ - I never design a building before I’ve seen the site and met the people who will be using it.
+ - To me, young has no meaning. It’s something you can do nothing about, nothing at all. But youth is a quality. And if you have it, you never lose it.
+ - A professional is one who does his best work when he feels the least like working.
+ - An expert is a man who has stopped thinking. Why should he think? He is an expert.
+ - Get the habit of analysis – analysis will in time enable synthesis to become your habit of mind.
+ - Regard it as just as desirable to build a chicken house as to build a cathedral. The size of the project means little in art, beyond the money matter. It is the quality of the character that really counts.
+ - A building is not just a place to be but a way to be.
+ - Many wealthy people are little more than janitors of their possessions.
+ - I’ll bridge these hills with graceful arches.
+ - True ornament is not a matter of prettifying externals. It is organic with the structure it adorns, whether a person, a building, or a park. At its best it is an emphasis of structure, a realization in graceful terms of the nature of that which is ornamented.
+ - Bureaucrats: they are dead at 30 and buried at 60. They are like custard pies; you can’t nail them to a wall.
+ - A building should appear to grow easily from its site and be shaped to harmonize with its surroundings if Nature is manifest there.
+ - Youth is a circumstance you can’t do anything about. The trick is to grow up without getting old.
+ - Each material has its own message.
+ - If it sells, it’s art.
+ - Every great architect is – necessarily – a great poet. He must be a great original interpreter of his time, his day, his age.
+ - No stream rises higher than its source.
+ - Boston: Clear out eight hundred thousand people and preserve it as a museum piece. New York: Prison towers and modern posters for soap and whiskey. Pittsburgh: Abandon it.
+ - Architectural features of true democratic ground-freedom would rise naturally from topography, which means that buildings would all take on the nature and character of the ground on which in endless variety they would stand and be component part.
+ - The insolence of authority is endeavoring to substitute money for ideas.
+ - Eventually, I think Chicago will be the most beautiful great city left in the world.
+ - Very simple ideas lie within the reach only of complex minds. Remy de Gourmont An idea is salvation by imagination.
+ - Toleration and liberty are the foundations of a great republic.
+ - The belief in a thing makes it happen.
+ - To look at the cross-section of any plan of a big city is to look at something like the section of a fibrous tumor.
+ - Imitate nothing except principle.
+ - Self fulfilling prophecies do exist in real life.
+ - If capitalism is fair then unionism must be. If men and women have a right to capitalize their ideas and the resources of their country, then that implies the right of men and women to capitalize their labor.
+ - Dining is and always was a great artistic opportunity.
+ - Harvard takes perfectly good plums as students, and turns them into prunes.
+ - Democracy is the opposite of totalitarianism, communism, fascism, or mobocracy.
+ - The heart is the chief feature of a functioning mind.
+ - If you foolishly ignore beauty, then you will soon find yourself without it.
+ - We should learn from the snail: it has devised a home that is both exquisite and functional.
+ - The outcome of the city will depend on the race between the automobile and the elevator, and anyone who bets on the elevator is crazy.
+ - I think Ms. Monroe’s architecture is extremely good architecture.
+ - Bring out the nature of the materials. Let their nature intimately into your scheme.
+ - From time to time the continent shifts, and everything that isn’t fastened down slides into Southern California.
+ - Television is bubble-gum for the mind.
+ - Our forefathers were not only brave. I believe they were right. I believe that what they meant was that every man born had equal right to grow from scratch by way of his own power unhindered to the highest expression of himself possible to him.
+ - No stream rises higher than its source. What ever man might build could never express or reflect more than he was. He could record neither more nor less than he had learned of life when the buildings were built.
+ - I prefer honest arrogance to hypocritical modesty.
+ - Maybe we can show government how to operate better as a result of better architecture.
+ - Humanity to me is not a mob. A mob is a degeneration of humanity. A mob is humanity going the wrong way.
+ - The screech and mechanical uproar of the big city turns the citified head, fills citified ears – as the song of birds, wind in the trees, animal cries, or as the voices and songs of his loved ones once filled his heart. He is sidewalk-happy.
+ - If the paintings are too large, cut them in half!
+ - Imitation is always insult – not flattery.
+ - TV is chewing gum for the eyes.
+ - Each had his past shut in him like the leaves of a book known to him by heart; and his friends could only read the title. – Virginia Woolf, from Jacob’s Room Television is chewing gum for the eyes.
+ - Prison towers and modern posters for soap and whiskey.
+ - So here I stand before you preaching organic architecture: declaring organic architecture to be the modern ideal...
+ - I have been black and blue in some spot, somewhere, almost all my life from too intimate contacts with my own furniture.
+ - What I like best about San Francisco is San Francisco.
+ - I do not believe in adding enrichment merely for the sake of enrichment. Unless it adds clearness to the enunciation of the theme, it is undesirable, for it is very little understood.
+ - The Lincoln Memorial is related to the toga and the civilization that wore it.
+ - I know we can’t have a great architecture while it is only for the landlord.
+ - It’s easier to make changes with a pencil than a wrecking bar.
+ - An architect’s most useful tools are an eraser at the drafting board, and a wrecking bar at the site.
+ - Regard it as just as desirable to build a chicken house as to build a cathedral.
+ - Wherever human life is concerned, the unnatural stricture of excessive verticality cannot stand against more natural horizontality.
+ - Tip the world over on its side and everything loose will land in Los Angeles.
+ - The dynamic ideal we call democracy, gradually growing up in the human heart for two-thousand five hundred years, at least, has now every opportunity to found the natural democratic state in these United States of America by way of natural economic order and a natural, or organic, architecture.
+ - A great architect is not made by way of a brain nearly so much as he is made by way of a cultivated, enriched heart.
+ - The sense of space within the reality of any building is a new concept wherever architecture is concerned. But it is essential ancient principle just the same and is not only necessary now but implied by the ideal of democracy itself.
+ - Organic architecture seeks superior sense of use and a finer sense of comfort, expressed in organic simplicity.
+ - The outside of any building may now come inside and the inside go outside, each seems as part of the other. Continuity, plasticity, and all the new simplicity the imply have at last come home.
+ - Building becomes architecture only when the mind of man consciously takes it and tries with all his resources to make it beautiful, to put concordance, sympathy with nature, and all that into it. Then you have architecture.
+ - Taste is a matter of ignorance. If you know what you are tasting, you don’t have to taste.
+ - Nature is all the body of God we mortals will ever see.
+ - Youth is a quality, not a matter of circumstances.
+ - Simplicity and repose are the qualities that measure the true value of any work of art.
+ - Less is only more where more is no good.
+ - Mechanization best serves mediocrity.
+ - I follow in building the principles which nature has used in its domain.
+ - If it keeps up, man will atrophy all his limbs but the push-button finger.
+ - Prison house for the soul.
+ - I wouldnt mind seeing opera die. Ever since I was a boy, I regarded opera as a ponderous anachronism, almost the equivalent of smoking.
+ - I feel coming on a strange disease – humility.
+ - I doubt if there is anything in the world uglier than a Midwestern city.
+ - Consider everything in the nature of a hanging fixture a weakness, and naked radiators an abomination.
+ - Entering into the spirit of this interior, you will discover the best possible atmosphere in which to show fine paintings or listen to music. It is this atmosphere that seems to me most lacking in our art galleries, museums, music halls and theaters.
+ - All I learned from Eliel Saarinen was how to make out an expense account.
+ - The measure of a man’s culture is the measure of his appreciation. We are ourselves what we appreciate and no more.
+ - A man is a fool if he drinks before he reaches the age of 50, and a fool if he doesn’t afterward.
+ - Human beings can be beautiful. If they are not beautiful it is entirely their own fault. It is what they do to themselves that makes them ugly.
+ - God is the great mysterious motivator of what we call nature, and it has often been said by philosophers, that nature is the will of God. And I prefer to say that nature is the only body of God that we shall ever see.
+ - Art for art’s sake is a philosophy of the well-fed.
+ - If you tilt the whole country sideways, Los Angeles is the place where everything loose will fall.
+ - A box is more a coffin for the human spirit than an inspiration.
+ - The architect should strive continually to simplify; the ensemble of the rooms should then be carefully considered that comfort and utility may go hand in hand with beauty.
+ - Architecture isman’sgreat sense of himself embodied in a world of his own making. It may rise as high in quality only as its source because great art isgreat life.
+ - When anyone becomes an authority, that is the end of him as far as development is concerned.
+ - We boast the highest standard of living when it’s only the biggest.
+ - We have no longer an outside and an inside as two separate things. Now the outside may come inside and the inside may and does go outside. They are of each other. Form and function thus become one in design and execution if the nature of materials and method and purpose are all in unison.
+ - I find it hard to believe that the machine would go into the creative artist’s hand even were that magic hand in true place. It has been too far exploited by industrialism and science at expense to art and true religion.
+ - The longer I live, the more beautiful life becomes.
+ - I believe totally in a Capitalist System, I only wish that someone would try it.
+ - Well, now that he’s finished one building, he’ll go write four books about it.
+ - We should have a system of economics that is structure that is organic tools. We do not have it. We are all hanging by our eyebrows from skyhooks economically, just as we are architecturally.
+ - The space within becomes the reality of the building.
+ - Give me the luxuries of life and I will willingly do without the necessities.
+ - Space. The continual becoming: invisible fountain from which all rhythms flow and to which they must pass. Beyond time or infinity.
+ - Youth is not an age thing. It’s a quality. Once you’ve had it, you never lose it.
+ - Respect the masterpiece. It is true reverence to man. There is no quality so great, none so much needed now.
+ - The mother art is architecture. Without an architecture of our own we have no soul of our own civilization.
+ - All the more I study Nature do I revere God, because Nature is all the body of God we will ever know.
+ - It is where life is fundamental and free that men develop the vision needed to reveal the human soul in the blossoms it puts forth.
+ - Why, I just shake the buildings out of my sleeves.
+ - We do not learn so much by our successes as we learn by failures – our own and others! Especially if we see the failures properly corrected.
+ - You can’t make an architect. But you can open the doors and windows toward the light as you see it.
+ - Architecture is essentially Human; it is the Human spirit manifesting itself. For when a Man builds, there, you’ve got him; you know exactly what, who and how that Man is.
+ - If you’re going to have centralization, why not have it!
+ - It is a terrific thing to get a building built that has the qualities of greatness in it.
+ - The scientist has marched in and taken the place of the poet. But one day somebody will find the solution to the problems of the world and remember, it will be a poet, not a scientist.
+ - The only thing wrong with architecture is architects.
+ - The best friend of earth of man is the tree.
+ - Man is a phase of nature, and only as he is related to nature does he matter, does he have any account whatever above the dust.
+ - Beautiful buildings are more than scientific. They are true organisms, spiritually conceived; works of art, using the best technology by inspiration rather than the idiosyncrasies of mere taste or any averaging by the committee mind.
+
+166 quotes

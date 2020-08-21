@@ -1,0 +1,34 @@
+ - There is a pleasure in the pathless woods, There is a rapture on the lonely shore, There is society, where none intrudes, By the deep sea, and music in its roar: I love not man the less, but Nature more.
+ - I love not man the less, but nature more.
+ - But words are things, and a small drop of ink, Falling, like dew, upon a thought produces That which makes thousands, perhaps millions think.
+ - Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.
+ - Friendship is love without wings.
+ - She walks in beauty, like the night Of cloudless climes and starry skies; And all that’s best of dark and bright Meet in her aspect and her eyes...
+ - In secret we met In silence I grieve, That thy heart could forget, Thy spirit deceive.
+ - There is something pagan in me that I cannot shake off. In short, I deny nothing, but doubt everything.
+ - All who joy would win Must share it – Happiness was born a twin.
+ - But what is Hope? Nothing but the paint on the face of Existence; the least touch of truth rubs it off, and then we see what a hollow-cheeked harlot we have got hold of.
+ - Are not the mountains, waves, and skies as much a part of me, as I of them?
+ - I had a dream, which was not at all a dream.
+ - In her first passion, a woman loves her lover, in all the others all she loves is love.
+ - If I do not write to empty my mind, I go mad.
+ - The thorns which I have reap’d are of the tree I planted; they have torn me, and I bleed. I should have known what fruit would spring from such a seed.
+ - The great object of life is sensation- to feel that we exist, even though in pain.
+ - I only go out to get me a fresh appetite for being alone.
+ - Let us have wine and women, mirth and laughter, sermons and soda water the day after.
+ - Tis strange,-but true; for truth is always strange; Stranger than fiction: if it could be told, How much would novels gain by the exchange! How differently the world would men behold!
+ - Man, being reasonable, must get drunk; the best of life is but intoxication.
+ - Between two worlds life hovers like a star, twixt night and morn, upon the horizon’s verge.
+ - Letter writing is the only device combining solitude with good company.
+ - There’s music in the sighing of a reed; There’s music in the gushing of a rill; There’s music in all things, if men had ears; The earth is but the music of the spheres.
+ - Why I came here, I know not; where I shall go it is useless to inquire – in the midst of myriads of the living and the dead worlds, stars, systems, infinity, why should I be anxious about an atom?
+ - They never fail who die in a great cause.
+ - I have a great mind to believe in Christianity for the mere pleasure of fancying I may be damned.
+ - There is no instinct like that of the heart.
+ - Death, so called, is a thing which makes men weep, And yet a third of life is passed in sleep.
+ - To have joy, one must share it.
+ - What deep wounds ever closed without a scar?
+ - The light of love, the purity of grace, The mind, the Music breathing from her face, The heart whose softness harmonised the whole – And, oh! that eye was in itself a Soul!
+ - You gave me the key to your heart, my love, then why did you make me knock?
+
+32 quotes

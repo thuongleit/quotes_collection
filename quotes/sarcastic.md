@@ -1,0 +1,42 @@
+ - Little things affect little minds. ~~Benjamin Disraeli
+ - Sometimes the road less traveled is less traveled for a reason. ~~Jerry Seinfeld
+ - Have you ever noticed that anybody driving slower than you is an idiot, and anyone going faster than you is a maniac? ~~George Carlin
+ - Don’t take life too seriously. ~~RuPaul
+ - Depression is merely anger without enthusiasm. ~~Steven Wright
+ - The single biggest problem in communication is the illusion that it has taken place. ~~George Bernard Shaw
+ - Anything worth doing is worth doing slowly. ~~Mae West
+ - I never said it would be easy, I only said it would be worth it. ~~Mae West
+ - Be careful about reading health books. You may die of a misprint. ~~Mark Twain
+ - History repeats itself, first as tragedy, second as farce. ~~Karl Marx
+ - My mind reels with sarcastic replies. ~~Charles M. Schulz
+ - To the people I forgot, you weren’t on my mind for some reason and you probably don’t deserve any thanks anyway. ~~Eminem
+ - If you want a guarantee, buy a toaster. ~~Clint Eastwood
+ - He knows nothing and thinks he knows everything. That points clearly to a political career. ~~George Bernard Shaw
+ - Better never than late. ~~George Bernard Shaw
+ - I’m single because I was born that way. ~~Mae West
+ - Sarcastic people tend to be marshmallows underneath the armor. ~~Stephen King
+ - I don’t know why we are here, but I’m pretty sure that it is not in order to enjoy ourselves. ~~Ludwig Wittgenstein
+ - Better to remain silent and be thought a fool than to speak out and remove all doubt. ~~Abraham Lincoln
+ - He never chooses an opinion; he just wears whatever happens to be in style. ~~Leo Tolstoy
+ - Marriage is the chief cause of divorce. ~~Groucho Marx
+ - Never put off till tomorrow what may be done day after tomorrow just as well. ~~Mark Twain
+ - I may be drunk, Miss, but in the morning I will be sober and you will still be ugly. ~~Winston Churchill
+ - We are never deceived; we deceive ourselves. ~~Johann Wolfgang von Goethe
+ - I will always love the false image I had of you. ~~Ashleigh Brilliant
+ - They say all marriages are made in heaven, but so are thunder and lightning. ~~Clint Eastwood
+ - We have so much time and so little to do. Strike that, reverse it. ~~Roald Dahl
+ - Those who are easily shocked should be shocked more often. ~~Mae West
+ - Democracy means simply the bludgeoning of the people by the people for the people. ~~Oscar Wilde
+ - That’s why they call it the American Dream, because you have to be asleep to believe it. ~~George Carlin
+ - I could dance with you until the cows come home. On second thought I’d rather dance with the cows until you come home. ~~Groucho Marx
+ - The best things in life are free – and $19.95. ~~Billy Mays
+ - Suppose you were an idiot, and suppose you were a member of Congress; but I repeat myself. ~~Mark Twain
+ - How can a woman be expected to be happy with a man who insists on treating her as if she were a perfectly normal human being. ~~Oscar Wilde
+ - If I had known what it would be like to have it all – I might have been willing to settle for less. ~~Lily Tomlin
+ - Today is Valentine’s Day – or, as men like to call it, Extortion Day! ~~Jay Leno
+ - The secret of a successful restaurant is sharp knives. ~~George Orwell
+ - I’m no model lady. A model’s just an imitation of the real thing. ~~Mae West
+ - Making others happy, through kindness of speech and sincerity of right advice, is a sign of true greatness. To hurt another soul by sarcastic words, looks, or suggestions, is despicable. ~~Paramahansa Yogananda
+ - The United States is a nation of laws: badly written and randomly enforced. ~~Frank Zappa
+
+40 quotes

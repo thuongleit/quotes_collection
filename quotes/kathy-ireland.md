@@ -1,0 +1,49 @@
+ - In business it’s about people. It’s about relationships.
+ - Beauty comes from the inside.
+ - Keep integrity and your work ethics intact. So what if that means working a little harder; an honorable character is your best calling card, and that’s something anyone can have!
+ - Rejection is a gift and failure is the best educator, so when someone knocks you down, get back up!
+ - I’ve learned so many things and a lot of things I’ve learned the hard way. I look at failure as education in that respect I’m very well educated.
+ - I was 40 before I learned that ‘No’ was a complete sentence.
+ - I have to say I’ve made many mistakes, and been humbled many, many times. But you know what? It’s never too late to learn.
+ - If we get our self-esteem from superficial places, from our popularity, appearance, business success, financial situation, health, any of these, we will be disappointed, because no one can guarantee that we’ll have them tomorrow.
+ - I’m a curious person. I like to ask questions.
+ - I have no choice but to defend the most vulnerable among us.
+ - It’s never been done doesn’t mean it can’t be done.
+ - Beauty comes in all ages, colors, shapes, and forms. God never makes junk.
+ - Maintain a good balance. A personal life adds dimensions to your professional life and vice versa. It helps nurture creativity through a deeper understanding of yourself.
+ - When I used to model, the job description is ‘shut up and pose.’ There are people today who would really like me to go back to that old job description and ’just shut up and pose.
+ - I’m a curious person. I like to ask questions. Well, why? People would say, it’s never been done. It’s never been done does not mean that it can’t be done.
+ - Jesus was nothing like I thought – He wasn’t condemning. He was loving and leading.
+ - It’s been an extraordinary journey. I have learned so much along the way. I entered the modeling industry as a business person already. I always knew I belonged on the other side of the camera.
+ - If you’re not being rejected regularly – maybe you’re not trying hard enough.
+ - I work with wonderful people who support me. And, my beliefs are that the business needs to serve the family rather than the family serve the business.
+ - So many young people say, ‘I’m just going to see what happens.’ It’s so much more powerful to make things happen and have a plan.
+ - Don’t just work for the money; that will bring only limited satisfaction.
+ - I think I’m too much of a control freak.
+ - I feel I’m able to serve my customer by knowing what she or he wants. One of the ways I’m able to do this is through my website, and email: people give me great ideas, tell me what they want, what they don’t want. It’s really instrumental, and helps me stay in touch with people.
+ - I won’t give up my day job of design.
+ - We need to support these women who are in crisis pregnancy situations.
+ - I was not making enough time to take care of me.
+ - Our mission began with finding solutions for families, especially busy moms.
+ - I believe there are three keys to success. For me it is keeping my priorities in order: It’s my faith and my family, and then the business.
+ - I would say my sense of adventure outweighs my grace.
+ - That was never on my radar, traffic stopping. It was never important to me.
+ - The only thing Martha and I have in common is that we both used to model. Martha Stewart is extremely talented. Her designs are picture perfect. Our philosophy is life is messy, and rather than being afraid of those messes we design products that work the way we live.
+ - I intentionally built a business that has absolutely nothing to do with appearance.
+ - There are a lot of good arguments for birth control, but as far as terminating a life that has already come into existence, I haven’t found any.
+ - Because modeling is lucrative, I’m able to save up and be more particular about the acting roles I take.
+ - Twelve million children in the United States face hunger every day. Bringing an end to this terrible situation is a passion I share with my friends in the entertainment industry. Together we can end hunger.
+ - What they thought was important. I don’t judge what other people do, many...
+ - I know my strengths. Painfully aware of the weaknesses. There’s many. I love sports. So working towards a common goal, that’s exciting to me.
+ - I made the intentional choice to step behind the camera.
+ - My faith is important. I have nothing without it.
+ - I know that I’ve been blessed in many ways, and I was fortunate enough to travel the world and meet a lot of interesting people. But I never felt that the modeling career was all that important.
+ - It’s important to find one that complements your body and not try to fit into something that doesn’t work.
+ - I always knew I belonged on the other side of the lens.
+ - I like to experiment a lot and invent things.
+ - For me the question was, do I want my paycheck to be dependent on how other people think I look?
+ - An agenda is not a bad thing.
+ - I want to be healthy, to be there for my husband and my kids.
+ - The mission statement of my company, Kathy Ireland Worldwide, is to find solutions for families, especially busy moms. I’m reaching out to busy moms because that’s what I am. That’s what I know, and I know this woman has been underserved.
+
+47 quotes

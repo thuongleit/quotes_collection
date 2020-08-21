@@ -1,0 +1,35 @@
+ - Which of my photographs is my favorite? The one I’m going to take tomorrow.
+ - The formula for doing a good job in photography is to think like a poet.
+ - None of us is born with the right face. It’s a tough job being a portrait photographer.
+ - I don’t know what love means.
+ - I don’t resent anything.
+ - I never divide photographers into creative and uncreative, I just call them photographers. Who is creative? How do you know who is creative or not?
+ - I don’t love the world. I think Jupiter should have hit us.
+ - I don’t talk about success. I don’t know what it is. Wait until I’m dead.
+ - When people ask me silly questions about my private life, I just say, I don’t discuss that.
+ - I was poor. When you’re poor you work, and when you’re rich you expect somebody to hand it to you. So I think being reasonably poor is very good for people.
+ - My mind is vacant on names, but I know him as well as anything. When I need names they drop out of my head; when I don’t need them they drop back.
+ - I became kind of a drop-out in science after I came back to America. I wanted to photograph.
+ - It’s silly to keep people alive who have a terrible disease.
+ - I don’t think there’s any such thing as teaching people photography, other than influencing them a little. People have to be their own learners. They have to have a certain talent.
+ - I think San Francisco is the best place in the whole world for an easy life.
+ - Suppose Cartier-Bresson asked the man who jumped the puddle to do it again – it never would have been the same. Start stealing!
+ - I was brought up on art. My father thought I had a great hand at art and sent me to art school. But he did not want me to become a photographer.
+ - I just believe in working. I’m not one of those romantic explainers of my own individual point of view.
+ - I turn people into human beings by not making them into gods.
+ - I never stopped photographing. There were a couple of years when I didn’t have a darkroom, but that didn’t stop me from photographing.
+ - Get it out of your historic head.
+ - A woman said to me when she first sat down, You’re photographing the wrong side of my face. I said, Oh, is there one?
+ - Some people say to me, Isn’t it too bad that people discovered you so late? I never thought that.
+ - Anybody is influenced by where and how he lives.
+ - I’d never kill myself for a man. I wouldn’t do it for anybody.
+ - The thing that’s fascinating about portraiture is that nobody is alike.
+ - I was invited to photograph Hollywood. They asked me what I would like to photograph. I said, Ugly men.
+ - Oh, you ask me, what is the greatest torture of a person who does portraits for a living? I could fill several volumes with nice nasty stories. I don’t know.
+ - Everybody who does anything for the public can be criticized. There’s always someone who doesn’t like it.
+ - I told the students that whatever they did in class was for the wastebasket.
+ - When People magazine called me, I did the job on Ansel. I’m older than Ansel and he has to mind me.
+ - When you do portraits professionally it’s not a desire, it’s for money.
+ - There are certain things you don’t discuss with Ansel, especially if you don’t agree.
+
+33 quotes

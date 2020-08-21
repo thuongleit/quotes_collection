@@ -1,0 +1,83 @@
+ - Our future lies with today’s kids and tomorrow’s space exploration.
+ - The stars don’t look bigger, but they do look brighter.
+ - Science is fun. Science is curiosity. We all have natural curiosity. Science is a process of investigating. It’s posing questions and coming up with a method. It’s delving in.
+ - Three Secrets to Success: Be willing to learn new things. Be able to assimilate new information quickly. Be able to get along with and work with other people.
+ - The best advice I can give anybody is to try to understand who you are and what you want to do, and don’t be afraid to go down that road and do whatever it takes and work as hard as you have to work to achieve that.
+ - When you’re getting ready to launch into space, you’re sitting on a big explosion waiting to happen.
+ - My background is in physics, so I was the mission specialist, who is sort of like the flight engineer on an airplane.
+ - Then during the mission itself, I used the space shuttle’s robot arm to release a satellite into orbit.
+ - The view of earth is absolutely spectacular, and the feeling of looking back and seeing your planet as a planet is just an amazing feeling. It’s a totally different perspective, and it makes you appreciate, actually, how fragile our existence is.
+ - If they asked me if I wanted to go into space tomorrow, I’d do it in a heartbeat. On the other hand, if they asked me if I wanted to go into training for three years and then go into space again, I’d probably say no.
+ - The thing I’ll remember most about the flight is that it was fun. In fact, I’m sure it was the most fun that I’ll ever have in my life.
+ - After the Challenger accident, NASA put in a lot of time to improve the safety of the space shuttle to fix the things that had gone wrong.
+ - If we want scientists and engineers in the future, we should be cultivating the girls as much as the boys.
+ - I would like to be remembered as someone who was not afraid to do what she wanted to do, and as someone who took risks along the way in order to achieve her goals.
+ - We can see cities during the day and at night, and we can watch rivers dump sediment into the ocean, and see hurricanes form.
+ - For whatever reason, I didn’t succumb to the stereotype that science wasn’t for girls. I got encouragement from my parents. I never ran into a teacher or a counselor who told me that science was for boys. A lot of my friends did.
+ - I’ve spent my whole life not talking to people, and I don’t see why I should start now.
+ - I think it’s important for little girls growing up, and young women, to have one in every walk of life. So from that point of view, I’m proud to be a role model!
+ - For quite some time, women at NASA only had scientific backgrounds.
+ - If it wasn’t for the women’s movement, I wouldn’t be where I am today.
+ - Ever been to Disneyland? That was definitely an E ticket!
+ - I was always very interested in science, and I knew that for me, science was a better long-term career than tennis.
+ - I suggest taking the high road and have a little sence of humour and let things roll off your back. I think that’s very important.
+ - So most astronauts getting ready to lift off are excited and very anxious and worried about that explosion – because if something goes wrong in the first seconds of launch, there’s not very much you can do.
+ - Weightless is a great equalizer.
+ - I don’t have any nicknames.
+ - It was a real honor for me to get to be the first woman astronaut. I think it’s really important that young girls that are growing up today can see that women can be astronauts too. There have actually been a lot of women, who are astronauts, that that’s a career that’s open to them.
+ - No, I think most astronauts recognize that the space shuttle program is very high-risk, and are prepared for accidents.
+ - The pressure suit helps if something goes wrong during launch or re-entry – astronauts have a way to parachute off the shuttle. The suits protect you from loss of pressure in case of emergency.
+ - All adventures, especially into new territory, are scary.
+ - It’s too bad our society isn’t further along.
+ - But when I wasn’t working, I was usually at a window looking down at Earth.
+ - I did not come to NASA to make history.
+ - We need to make science cool again.
+ - I find myself looking around for other new, interesting opportunities to dive into.
+ - When you can feel that close to something you’re used to seeing from this great distance, well, it changes a person.
+ - Different astronauts sleep in different ways.
+ - The food isn’t too bad. It’s very different from the food that the astronauts ate in the very early days of the space program.
+ - I liked math – that was my favorite subject – and I was very interested in astronomy and in physical science.
+ - It takes a couple of years just to get the background and knowledge that you need before you can go into detailed training for your mission.
+ - I’ve discovered that half the people would love to go into space and there’s no need to explain it to them. The other half can’t understand and I couldn’t explain it to them. If someone doesn’t know why, I can’t explain it.
+ - It’s easy to sleep floating around – it’s very comfortable. But you have to be careful that you don’t float into somebody or something!
+ - It’s well known that many girls have a tendency to dumb down when they’re in middle school.
+ - Rocket science is tough, and rockets have a way of failing.
+ - Once you are assigned to a flight, the whole crew is assigned at the same time, and then that crew trains together for a whole year to prepare for that flight.
+ - The rockets light! The shuttle leaps off the launch pad in a cloud of steam and a trail of fire.
+ - Studying whether there’s life on Mars or studying how the universe began, there’s something magical about pushing back the frontiers of knowledge. That’s something that is almost part of being human, and I’m certain that will continue.
+ - The experience of being in space didn’t change my perspective of myself or of the planet or of life. I had no spiritual experience.
+ - Yes, I did feel a special responsibility to be the first American woman in space.
+ - It takes a few years to prepare for a space mission.
+ - NASA has to approve whatever we wear, so there are clothes to choose from, like space shorts – we wear those a lot – and NASA T-shirts.
+ - So I saw many planets, and they looked just a little bit brighter than they do from Earth.
+ - You can picture pretty easily if there were a paying passenger aboard a rocket that failed, like Challenger failed. Certainly it would be a tragedy, and a tragedy for the company. They would have a hard time recovering from it.
+ - I felt very honored, and I knew that people would be watching very closely, and I felt it was very, very important that I do a good job.
+ - But even in elementary school and junior high, I was very interested in space and in the space program.
+ - For a long time, society put obstacles in the way of women who wanted to enter the sciences.
+ - One thing I probably share with everyone else in the astronaut office is composure.
+ - The space shuttle is a better and safer rocket than it was before the Challenger accident.
+ - Because I was a tennis player, Billie Jean King was a hero of mine.
+ - I have a lot of common sense. I know what needs to be done and how to approach it. I have an ability to work with people on large enterprises.
+ - I do a lot of running and hiking, and I also collect stamps – space stamps and Olympics stamps.
+ - The astronauts who came in with me in my astronaut class – my class had 29 men and 6 women – those men were all very used to working with women.
+ - The most anxious time was during launch, just because that is so dramatic.
+ - I slept just floating in the middle of the flight deck, the upper deck of the space shuttle.
+ - You know, I go around the country a lot.
+ - I haven’t written my memoirs or let the television movie be made about my life.
+ - Some astronauts sleep in sort of beds – compartments that you can open up and crawl into and then close up, almost like a little bedroom.
+ - The fact that I was going to be the first American woman to go into space carried huge expectations along with it.
+ - My parents must have done a great job. Anytime I wanted to pursue something that they weren’t familiar with, that was not part of their lifestyle, they let me go ahead and do it.
+ - The view of Earth is spectacular.
+ - So most astronauts are astronauts for a couple of years before they are assigned to a flight.
+ - It’s no secret that I’ve been reluctant to use my name for things.
+ - I didn’t really decide that I wanted to be an astronaut for sure until the end of college.
+ - On both of my flights, everything went very well.
+ - Even though NASA tries to simulate launch, and we practice in simulators, it’s not the same – it’s not even close to the same.
+ - That’s something that is almost part of being human and I’m certain that will continue.
+ - I think eventually private enterprise will be able to send people into orbit, but I suspect initially it’s going to have to be with NASA’s help.
+ - So I decided on science when I was in college.
+ - I had both male and female heroes.
+ - On a standard space shuttle crew, two of the astronauts have a test pilot background – the commander and the pilot.
+ - Well, we spend an awful lot of our time working and doing experiments. It’s very busy up on the shuttle.
+
+81 quotes

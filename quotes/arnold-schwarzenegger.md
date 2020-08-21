@@ -1,0 +1,301 @@
+ - You can’t climb the ladder of success with your hands in your pockets.
+ - While you're out there partying, horsing around, someone out there at the same time is working hard. Someone is getting smarter and someone is winning. Just remember that.
+ - Strength does not come from winning. Your struggles develop your strengths. When you go through hardships and decide not to surrender, that is strength.
+ - Trust yourself, no matter what anyone else thinks.
+ - You have to remember something: everybody pities the weak; jealousy you have to earn.
+ - I'll be back.
+ - What is the point of being on this Earth if you are going to be like everyone else and avoid trouble?
+ - Positive thinking can be contagious. Being surrounded by winners helps you develop into a winner.
+ - You can have results or excuses. Not both.
+ - Don’t be afraid to fail. Anything I’ve ever attempted, I was always willing to fail. 
+ - The worst thing I can be is the same as everybody else. I hate that.
+ - If I can see it and believe it, then I can achieve it.
+ - If you want to turn a vision into reality, you have to give 100% and never stop believing in your dream.
+ - You can't be paralyzed by fear of failure or you will never push yourself. You keep pushing because you believe in yourself and in your vision. And you know that it is the right thing to do and success will come.
+ - The wolf on the hill is not as hungry as the wolf climbing the hill.
+ - I always believed in leaving no stone unturned. 
+ - From the bodybuilding days on, I learned that everything is reps and mileage. The more miles you ski, the better a skier you become; the more reps you do, the better your body. I'm a big believer in hard work, grinding it out, and not stopping until it's done, so the challenge appealed to me.
+ - All I know is that the first step is to create a vision, because when you see the vision – the beautiful vision – that creates the want power.
+ - Money doesn't make you happy. I now have $50 million but I was just as happy when I had $48 million.
+ - If it bleeds, we can kill it.
+ - I didn't want to just be a body building champion. I wanted to be the best body builder of all time. 
+ - When you have a well developed body and you're confident, you see people bending your way, wanting to be on your side, wanting to do things for you.
+ - So let me tell you, as you prepare to go off into the world, remember six rules: Trust yourself, Break some rules, Don’t be afraid to fail, Ignore the naysayers, Work like hell, and Give something back.
+ - Create a vision of who you want to be, and then live into that picture as if it were already true.
+ - The last three or four reps is what makes the muscle grow. This area of pain divides the champion from someone else who is not a champion. That’s what most people lack, having the guts to go on and just say they’ll go through the pain no matter what happens.
+ - You have to think outside the box.
+ - Vision creates faith and faith creates willpower.
+ - Be hungry for success, hungry to make your mark, hungry to be seen and to be heard and to have an effect. And as you move up and become successful, make sure also to be hungry for helping others.
+ - The secret of success is to make your mind work for you – not against you. This means constantly being positive, constantly setting up challenges you can meet – either today, next week, or next month etc.
+ - Almost anything difficult, any challenge takes time, patience, and hard work.
+ - The secret is contained in a three-part formula I learned in the gym: self confidence, a positive mental attitude, and honest hard work.
+ - For me life is continuously being hungry. The meaning of life is not simply to exist, to survive, but to move ahead, to go up, to achieve, to conquer.
+ - Where the mind goes the body will follow.
+ - The pain that you hold is yours. There is not a single pain quite like it. Nobody else on God’s green earth can feel this pain, or have the indescribable feeling of pride you will have when you overcome it. This pain is not your curse; this pain is your privilege.
+ - Start wide, expand further, and never look back.
+ - We all have great inner power. The power is self-faith. There’s really an attitude to winning. You have to see yourself winning before you win. And you have to be hungry. You have to want to conquer.
+ - It is impossible to be a maverick or a true original if you’re too well behaved and don’t want to break the rules. You have to think outside the box. That’s what I believe. After all, what is the point of being on this earth if all you want to do is be liked by everyone and avoid trouble?
+ - The mind always fails first, not the body. The secret is to make your mind work for you, not against you.
+ - My instinct was to win, eliminate anyone who is in competition, destroy my enemy, and move on without any kind of hesitation at all.
+ - Vision creates faith and faith creates willpower. With faith there is no anxiety and no doubt – just absolute confidence in yourself.
+ - The mind is incredible. Once you’ve gained mastery over it, channelling its powers positively, for your purpose you can do anything.
+ - I’ve heard all my life that ‘this is impossible, you can’t make’ it and ‘you’re going to fail’ but I didn’t listen to them and I made it.
+ - Normal people can be happy with a regular life, but there is more to life than just plodding through an average existence.
+ - Pain makes me grow. Growing is what I want. Therefore, for me pain is pleasure.
+ - There are no shortcuts – everything is reps, reps, reps.
+ - The more knowledge you have, the more you’re free to rely on your instincts.
+ - If I would have listened to the naysayers, I would still be in the Austrian Alps yodeling.
+ - I’m not looking for sympathy at all.
+ - I’m addicted to exercising and I have to do something every day.
+ - I make my protein drink with whiskey. People think I’m crazy, but that’s the way I am. I get stoned, I do my own thing.
+ - Bodybuilding is much like any other sport. To be successful, you must dedicate yourself 100% to your training, diet and mental approach.
+ - Some information I just keep to myself.
+ - Just like in bodybuilding, failure is also a necessary experience for growth in our own lives, for if we’re never tested to our limits, how will we know how strong we really are? How will we ever grow?
+ - You have to fight, you have to have courage for what you really want.
+ - The resistance that you fight physically in the gym and the resistance that you fight in life can only build a strong character.
+ - If it’s hard to remember, it’ll be difficult to forget.
+ - If you want to be a champion you cannot have any kind of an outside negative force coming in to deflect you.
+ - The mind is the limit. As long as the mind can envision the fact that you can do something, you can do it, as long as you really believe 100 percent.
+ - I can multitask very well. But I know exactly when to block off anything coming in from the outside and just stay focused on the film.
+ - You never want to fail because you didn’t work hard enough.
+ - I was born to be a leader. I love the fact that millions of people look up to me.
+ - Whatever I thought might hold me back, I avoided. I crossed girls off my list, except as tools for my sexual needs.
+ - I will always stay hungry, never satisfied with current accomplishments.
+ - Between your faith and my Glock nine millimeter, I’ll take the Glock.
+ - You can’t be paralyzed by fear of failure or you will never push yourself.
+ - Milk is for babies. When you grow up you have to drink beer.
+ - Failure is not an option. Everyone has to succeed.
+ - All exercises that you do with your own bodyweight are great.
+ - I admired Hitler, for instance, because he came from being a little man with almost no formal education, up to power. I admire him for being such a good public speaker and for what he did with it.
+ - I like the color red because it’s a fire. And I see myself as always being on fire.
+ - What we face may look insurmountable. But I learned something from all those years of training and competing. I learned something from all those sets and reps when I didn’t think I could lift another ounce of weight. What I learned is that we are always stronger than we know.
+ - Discipline is what you use when you don’t want to do something, when you have to force yourself.
+ - The key to success? Work hard, stay focused and marry a Kennedy.
+ - I had a clear vision of myself winning the Mr. Universe contest. It was a very spiritual thing, in a way, because I had such faith in the route, the path, that there was never a question in my mind that I would make it.
+ - That is not a drug. It’s a leaf.
+ - I found a new me. When I first came over to America, it was like, ‘How can I be rich? How can I build my movie career? How can I become the most muscular man?’ It was all about me, and then there was this turn, and I found it was really great to do this.
+ - You’ll get more from being a peacemaker than a warrior.
+ - My body is like breakfast, lunch, and dinner. I don’t think about it, I just have it.
+ - Many women seem to have hang-ups about going out with me because they feel they have to be in the same shape that I am. If they’re overweight, they’re insecure, because they don’t understand that I don’t look at women the same way I look at myself.
+ - Within ten years, he had earned his college degree and was a millionaire from his business enterprises in real estate, landscaping, and bodybuilding. He was also the winner of a Golden Globe Award for his debut as a dramatic actor in Stay Hungry.
+ - Combating climate change requires collaboration with many levels of government.
+ - The message I am trying to get across is exactly this: Protecting the environment does not require us to be against large SUVs or trucks. Instead we should develop technology to cut down greenhouse gas emissions because that is where the action is – it’s not about what the size of the car is.
+ - We’ve got to let the people know that there is a necessity, it’s not even an option, it’s a necessity to have a chiropractor. As much as it is a necessity to have a dentist, if you have a dentist for the family, you should have your chiropractor for the family.
+ - I think Americans are very patriotic.
+ - I just use my muscles as a conversation piece, like someone walking a cheetah down 42nd Street.
+ - I take the academic education as seriously as the physical education. That’s why I tell parents that the schools can’t do it all themselves. The parents can’t come home from work and turn on the TV. That’s not being a good parent.
+ - I was always dreaming about very powerful people. Dictators and things like that. I was always impressed by people who could be remembered for hundreds of years. Even like Jesus, being remembered for thousands of years.
+ - You can never find a candidate that will agree with everything you believe. Then you would just have a clone and that doesn’t exist.
+ - I don’t criticize myself; I criticize my body.
+ - Within five years, he had learned English and become the greatest bodybuilder in the world.
+ - The forest fires are the worst disaster in California since I was elected.
+ - As long as I live, I will never forget that day 21 years ago when I raised my hand and took the oath of citizenship. Do you know how proud I was? I was so proud that I walked around with an American flag around my shoulders all day long.
+ - Obviously, I’ve made statements that were ludicrous and crazy and outrageous and all those things, because that’s the way I always was.
+ - Teddy Roosevelt is still a hero among environmentalists for his conservationist policies.
+ - I have plenty of money, unlike other Hollywood celebrities or athletes that have not invested well.
+ - One of my movies was called ‘True Lies.’ It’s what the Democrats should have called their convention.
+ - You’re always as good as your last movie and that’s the same with politics. If you are successful with a certain policy, then you’re hot; if you’re successful with the economy, or bringing down the unemployment rate, then you’re hot. But if you’re not successful, then things go south very quickly.
+ - Well, I think that California has had a history of always spending more money than it takes in.
+ - To those critics who are so pessimistic about our economy, I say: Don’t be economic girlie men!
+ - The word infrastructure means nothing to the majority of people of America. We have to come up with a sexier word than infrastructure. So the key thing is that you have to go out and promote and market this the right way like with everything in policy.
+ - The future is green energy, sustainability, renewable energy.
+ - Look for small victories and build on that. Each small victory, even if it is just getting up five minutes earlier, gives you confidence. You realize that these little victories make you feel great, and you keep going. You realize that being paralyzed by fear of failure is worse than failure.
+ - I will not fail, I will not disappoint you, I will not let you down.
+ - I didn’t leave bodybuilding until I felt that I had gone as far as I could go. It will be the same with my film career. When I feel the time is right, I will then consider public service. I feel that the highest honor comes from serving people and your country.
+ - It’s simple, if it jiggles, it’s fat.
+ - Stay hungry, stay healthy, be a gentleman, believe strongly in yourself and go beyond limitations.
+ - Confidence comes from victory, but strength comes from the struggle.
+ - We had the Berlin Wall; we had walls everywhere. But we always looked at the wall as kind of like the outside of the wall is the enemy. Are we looking at Mexico as the enemy? No, it’s not. These are our trading partners.
+ - Within twenty years, he was the world’s biggest movie star, the husband of Maria Shriver, and an emerging Republican leader who was part of the Kennedy family.
+ - My CPU is a neural net processor; a learning computer.
+ - Never follow the crowd. Go where it’s empty.
+ - To restore the trust of the people, we must reform the way the government operates.
+ - I have rarely seen the government do anything that was effective.
+ - I have to say that the judges and our judiciary system makes better decisions than the politicians.
+ - When the people become involved in their government, government becomes more accountable, and our society is stronger, more compassionate, and better prepared for the challenges of the future.
+ - I think the first and most important thing is that you’ve got to have a goal and a vision.
+ - As president, Reagan worked very well with Democrats to do big things. It is true that he worked to reduce the size of government and cut federal taxes and he eliminated many regulations, but he also raised taxes when necessary.
+ - I am what I am – which is I have aged.
+ - I believe in “love it, or change it” rather than “love it, or leave it.”
+ - If you don’t find the time, if you don’t do the work, you don’t get the results.
+ - You go back to the gym and you just do it again and again until you get it right.
+ - Through discipline, and determination one can change anything and everything about him – his habits, his outlook on life.
+ - If I see a girl with big tits, I’m going to stare and stare. And I’m going to think in my mind what I am going to do with her if I would have her.
+ - I believe in the philosophy of staying hungry. If you have a dream and it becomes a reality, don’t stay satisfied too long. Make up a new dream and hunt after that one and turn it into a reality.
+ - I am the most helpful and open up doors for everyone and I like to share.
+ - I think there are some people that are capable of making a sequel more special than the original. And we have seen that when the original Terminator came out, then Jim Cameron outdid himself with the sequel. Then it became the highest grossing movie of the year when it came out in 1991.
+ - Luck is for the ill-prepared.
+ - I never listen that you can’t.
+ - You have to do everything possible to win no matter what.
+ - If you work hard and play by the rules, this country is truly open to you. You can achieve anything.
+ - There is nothing like chess to keep the brain smart, and give it a workout.
+ - I knew I was a winner back in the late sixties. I knew I was destined for great things. People will say that kind of thinking is totally immodest. I agree. Modesty is not a word that applies to me in any way – I hope it never will.
+ - If you are gonna wear gloves when you lift, just make sure they match your purse.
+ - The Body Is Very Important, But The Mind Is MORE Important Than The Body.
+ - People who say “it is impossible”, should not interrupt those who are trying to make it possible.
+ - With strength and determination you can do anything you want in life, as long as you believe in yourself, because if you don’t, no one else will.
+ - Help others and give something back. I guarantee you will discover that while public service improves the lives and the world around you, its greatest reward is the enrichment and new meaning it will bring your own life.
+ - Always listen to your inner voice, your instincts.
+ - You’ve got to believe in yourself, you’ve got to have a very clear vision, and you’ve got have the fire in the belly and go out and not be shy with working because it takes a lot of work.
+ - Government’s first duty and highest obligation is public safety.
+ - Self-confidence is something caught and not taught. And, risk-running and chance-taking are the only ways to catch it.
+ - The most satisfying feeling you can get in the gym is the pump.
+ - I can zero in on a vision of where I want to be in the future. I can see it so clearly in front of me, when I daydream, it’s almost a reality. Then I get this easy feeling, and I don’t have to be uptight to get there because I already feel like I’m there, that it’s just a matter of time.
+ - I know now why you cry, but it’s something I can never do.
+ - Together, we must renew our continued commitment to serve and pledge to bring a positive change to our communities.
+ - And you know something, because everything that I’ve gotten – my career, my money, my family; everything that I’ve gotten and achieved is because of California.
+ - You can do it, as long as you really believe 100 percent.
+ - I found the best way is to use Chiropractors, not only after injury, but also before injury.
+ - Don’t be economic Girlie-Men.
+ - The last three or four reps is what makes the muscle grow.
+ - I cannot – nor will not – be ordinary. I have to keep training and seeking and growing. I have to stay hungry. It is my will and so has become my nature.
+ - The best activities for your health are pumping and humping.
+ - Posing is a performing art.
+ - My fellow Americans, this is an amazing moment for me. To think that a once scrawny boy from Austria could grow up to become Governor of California and stand in Madison Square Garden to speak on behalf of the President of the United States that is an immigrant’s dream. It is the American dream.
+ - In our society, the women who break down barriers are those who ignore limits.
+ - Don’t be afraid of making decisions.
+ - I think actions speak louder than words. You can do all the hyping you want. It doesn’t mean anything.
+ - It doesn’t matter what the income level of your family is, or if English is the first or second language. It makes no difference. The bottom line is that every child can be an academic champion, an academic champion and a superstar in academics.
+ - I had this child, and it destroyed my family.
+ - As a kid I always idolized the winning athletes. It is one thing to idolize heroes. It is quite another to visualize yourself in their place. When I saw great people, I said to myself: I can be there.
+ - My only rule is to keep moving, for a pump and cardio at the same time. Rest as little as possible. After an hour, you will feel fantastic and your muscles won’t know what hit them.
+ - I think that one-liners are very important and sometimes you don’t even know when you’re making the movie that it’s going to be a great line. I remember when we did The Terminator and I came to the line “I’ll be back” I had no idea that it was going to be an important line.
+ - If my life was a movie, no one would believe it.
+ - After watching mulattas shake it, I can totally understand why Brazil is devoted to my favorite body part, the ass.
+ - I welcome and seek your ideas, but do not bring me small ideas; bring me big ideas to match our future.
+ - Bodybuilders party a lot, and once, in Gold’s – the gym in Venice, California, where all the top guys train there was a black girl who came out naked. Everybody jumped on her and took her upstairs, where we all got together.
+ - I don’t walk away from things that I think are unfinished.
+ - We have to show leadership in protecting our environment so that we have a future for our children and grandchildren.
+ - I have a private plane. But I fly commercial when I go to environmental conferences.
+ - The words “I Can’t” should be permanently stricken from your vocabulary, especially the vocabulary of your thoughts. You must see yourself always growing and improving.
+ - I’m not on a health kick. I know I should take vitamins, for example, but I forget half the time. I just can’t be bothered carrying around a lot of little bottles.
+ - I saw a woman wearing a sweatshirt with Guess on it. I said, Thyroid problem?
+ - People say, My God, you’re so disciplined. But it has nothing to do with discipline; I loved it. Because I knew that every time I went to the gym I was one step closer to winning the competition.
+ - Political courage is not political suicide.
+ - It’s time to stop thinking of the Republican Party as an exclusive club where your ideological card is checked at the door, and start thinking about how we can attract more solution-based leaders like Nathan Fletcher and Anthony Adams.
+ - It all comes from the mind. I’ve seen the most incredible success stories because a person had a dream and it was so powerful no one could touch it. He’d feel it, believe it, think about it all day and night. That would inspire him to do things necessary to get the results he wanted.
+ - Climate change: I say the debate is over. We know the science, we see the threat and we know that the time for action is now.
+ - Until now, he has never told the full story of his life, in his own voice.
+ - Mistakes are made in every other human endeavor. Why should nuclear weapons be exempt?
+ - My relationship to power and authority is that I’m all for it. People need somebody to watch over them. Ninety-five percent of the people in the world need to be told what to do and how to behave.
+ - The facts are there that we have created, man has, a self-inflicted wound that man has created through global warming.
+ - I did smoke a joint and I did inhale. The bottom line is that’s what it was in the ’70s, that’s what I did.
+ - No matter the nationality, no matter the religion, no matter the ethnic background, America brings out the best in people.
+ - You know, nothing is more important than education, because nowhere are our stakes higher; our future depends on the quality of education of our children today.
+ - My own dreams fortunately came true in this great state. I became Mr. Universe; I became a successful businessman. And even though some people say I still speak with a slight accent, I have reached the top of the acting profession.
+ - I would never exchange my life with anybody else’s.
+ - Bodybuilders and fitness people have been using chiropractic very extensively in order to stay healthy and fit. I found it was better to go to a chiropractor before you get injured. We are a perfect team, the world of fitness and the world of chiropractors.
+ - I don’t understand how they can call me anti-Latino, when I’ve made four movies in Mexico.
+ - I think that every job that you can save is important. Every job that you can create is very important and it should not be the number one reason why we invest in infrastructure to create jobs.
+ - It doesn’t matter if you are a Democrat or Republican, if you’re young or old, what the racial thing is, nothing matters to me.
+ - I’m obsessed with packing in as much work as possible during each day, simply because there is only so much time you have in a lifetime. There is nothing better than to go home at night and know that you’ve done everything that you could do to accomplish your work.
+ - My friend James Cameron and I made three films together – True Lies, The Terminator and Terminator 2. Of course, that was during his early, low-budget, art-house period.
+ - I made my fair share of mistakes.
+ - Well, you know, I’m the forever optimist.
+ - Someday the world is going to know who I am-just be hearing my first name.
+ - Every year I make a plan. I do it. It will be done.
+ - Do you have to discipline yourself to have breakfast, lunch or dinner? Of course not; and so discipline – the usual concept of it – doesn’t apply here. I had to discipline myself to learn English, but never to train.
+ - What drove me to become the world’s greatest bodybuilder is no different from what drives other athletes to become great tennis players or boxers or jockeys.
+ - Mentally it is possible to break records, once you understand that, you can do anything.
+ - I feel good because I believe I have made progress in rebuilding the people’s trust in their government.
+ - He led the state through a budget crisis, natural disasters, and political turmoil, working across party lines for a better environment, election reforms, and bipartisan solutions.
+ - It doesn’t matter what party you come from. The key thing is that you work on behalf of the people rather than on behalf of the party.
+ - Everything I have, my career, my success, my family, I owe to America.
+ - I regularly buy and sell cars, but I do not buy and sell fleets.
+ - You must see it. You must believe it. And then you must never stop working to make it happen.
+ - In acting class they tell you that you have to be real, connect with the people, connect with your partner. The same as politics, you have to connect to the people.
+ - Women are the engine driving the growth in California’s economy. Women make California’s economy unique.
+ - All of our deeply held dreams and aspirations require us to build on our common bonds.
+ - The success I have achieved in bodybuilding, motion pictures, and business would not have been possible without the generosity of the American people and the freedom here to pursue your dreams.
+ - Injuries happen when your mind is beyond your body, largely when you think you’re King Kong and lift weights heavier than the body can handle.
+ - I speak directly to the people, and I know that the people of California want to have better leadership. They want to have great leadership. They want to have somebody that will represent them. And it doesn’t matter if you’re a Democrat or a Republican, young or old.
+ - It is going to be tough if you look for the easy way out because very rarely is there an easy way out. There is nothing that replaces hard work.
+ - If I can sell tickets to my movies like Red Sonja or Last Action Hero, you know I can sell just about anything.
+ - The biggest problem that we have is that California is being run now by special interests. All of the politicians are not anymore making the moves for the people, but for special interests and we have to stop that.
+ - I think that if you grow up trying to be the best then you have to be competitive because the more you compete, the more someone is there that is a challenge and the more your performance improves.
+ - I am a big believer in education, because when I grew up in Austria – when I grew up in Austria I had a great education. I had great teachers.
+ - I was also going to give a graduation speech in Arizona this weekend. But with my accent, I was afraid they would try to deport me.
+ - When you build a career, you should never imitate anybody.
+ - When I was on my way to the podium a gentleman stopped me and said I was as good a politician as I was an actor. What a cheap shot.
+ - When you talk about the stimulus package, you can ask 1,000 different people and they – you will have 1,000 different opinions of what is the ideal stimulus package.
+ - My relationship to power and authority is that I’m all for it.
+ - I’ve seen firsthand coming here with empty pockets but full of dreams, full of desire, full of will to succeed, but with the opportunities that I had, I could make it. This is why we have to get back and bring California back to where it once was.
+ - I’d always wanted to tell people that when I work on my body I’m thinking about classical sculpture, so I jumped at the chance to show off body building as an art form.
+ - We made, actually, history, because it was the first time ever that doctors could prove that a lifelong Republican has a heart.
+ - I think we can save a lot of money if we do smart growth, where we build the homes and all of this closer into towns.
+ - If I would do another ‘Terminator’ movie I would have Terminator travel back in time and tell Arnold not to have a special election.
+ - Desire something and don’t just care what you have to go through to get it.
+ - I’ve starred in a lot of science fiction movies and, let me tell you something, climate change is not science fiction, this is a battle in the real world, it is impacting us right now.
+ - I don’t suffer of anything that I’ve lost.
+ - People should make up their own mind about what they think of me.
+ - I’ll be back always sounded a little girly to me.
+ - It doesn’t really matter what party you come from. I think the people appreciate that and they know that you’re working together, that you can provide the kind of leadership to bring both of the parties together, and do the kind of things that need to be done for the state.
+ - Everything that I’ve accomplished in life was because of America and because of California, so I should take seven years out of my life to be a public servant and to serve the people of California regardless of the lack of pay.
+ - Gray Davis can run a dirty campaign better than anyone, but he can’t run a state.
+ - The writing is important, but the way you say the line and the pause you give it, the facial expression – all of that is very important.
+ - I went from being the Terminator to being the governator.
+ - People are always making a fuss over my $15-20-million salaries. Believe me, the amount is meaningless once my wife, Maria, finds out about it. She’s already spent half of my salary from Terminator 7!
+ - I never go on a movie set as the star. I always go as the guy who just does his job, like the electrician does his job and the hairdresser does her job. Let’s all work together and make this happen, rather than have the star treatment. I don’t do that.
+ - Ninety percent of the people don’t realize that there is anything below the head. They think that the head is carried around by something very mysterious, and they’re not aware that it’s the body, something they should be in tune with.
+ - Concentrate on your goals. Do not allow other thoughts to enter your mind. If you allow them to, other things could take your concentration away from your ultimate aim.
+ - Always have one possibility in mind and that is to go to the top, to be the best. Everything else should just be a means to that end.
+ - This is the only place that I don’t feel out of place, because everyone here is out of place.
+ - We want to make sure children aren’t left without any books. We want to make sure our children have the books, that they have a place in the castle. We want to make sure that their mothers have affordable day care. We want to make sure we give the older people the care that they need.
+ - We have to make sure everyone in California has a great job. A fantastic job!
+ - Politically there were failures. And also on the personal level, there were tremendous failures.
+ - I think one thing that is extremely important is to connect with people in order to be successful and bring the people in so that they become your partners.
+ - I think that the only way that you really keep it a secret is by not telling anyone.
+ - I set out to be the best and I am.
+ - If I train the hardest, run the longest, go beyond what anyone else has the mental determination to do, I will be the winner.
+ - I came to Hollywood and within a decade I was one of the biggest action stars of all time.
+ - I know a lot of athletes and models are written off as just bodies. I never felt used for my body.
+ - Freedom is a right ultimately defended by the sacrifice of America’s servicemen and women.
+ - If I have the chance to time travel, might as well go all out.
+ - I think most of my lessons come from sports. That’s why I always emphasise to young kids to get involved in sports because it’s where you learn about discipline. It’s where you learn to keep going, where if you think you can’t make it, you can.
+ - I didn’t mind basic training. It taught me that something that seems impossible at the start can be achieved.
+ - I have a love interest in every one of my films: a gun.
+ - With Maria Shriver, he raised four fantastic children. In the wake of a scandal he brought upon himself, he tried to keep his family together.
+ - We are a forward-looking people, and we must have a forward-looking government.
+ - Even with my divorce and with everything, I don’t need money.
+ - I never wanted to be a career politician. I always am interested just to take on challenges that everyone says are impossible to do and to take it on.
+ - People get very creative if you include them.
+ - I’m sure a lot of people out there make mistakes.
+ - The public doesn’t care about figures.
+ - When you campaign and have to participate in so many debates just to the win the nomination of your party, you’ve had a lot of practice. You get to figure out as you go from one debate to another where you made your mistakes. By the time you get to the big debate you’re pretty polished.
+ - I think that people are interested seeing me on the screen.
+ - You can scream at me, call me for a shoot at midnight, keep me waiting for hours – as long as what ends up on the screen is perfect.
+ - I can promise you that when I go to Sacramento, I will pump up Sacramento.
+ - My definition of a sport is that it’s a physical activity that involves competition. Since bodybuilders certainly train and then compete, we are certainly a sport.
+ - I hurt so many people.
+ - I will not change. Because if you are successful and you change, you are an idiot.
+ - People need to be insured so when you have an accident out there, or when something catastrophic happens to you, that you’re covered and there’s not someone else has to pay for you. That is as simple as that.
+ - I think that if I have a chance to go back, why not just go back all the way in history to the times of the pyramids or the Roman days? I think there are so many great historic times until now that I would like to get a little peek of those periods, rather than just 1984. Why limit yourself?
+ - Experiencing pain in your muscles and aching, that’s what makes the muscle grow. and that divides one from being a champion and one from not being a champion. If you can go through this pain barrier, you may get to be a champion. If You can’t go through it, forget it.
+ - My kids just brought home a beautiful pumpkin, but you know what? I’m going to return it because it’s a Democratic pumpkin. It has the orange color of John Kerry’s tan, and the roundness of Teddy Kennedy.
+ - In this country, it doesn’t make any difference where you were born. It doesn’t make any difference who your parents were. It doesn’t make any difference if, like me, you couldn’t even speak English until you were in your twenties.
+ - And now, of course this is another thing I didn’t count on, that now as the governor of the state of California, I am selling California worldwide. You see that? Selling.
+ - If you have the attitude of a young person and you work like a young person and you keep your body in shape, and if you believe that you can do it, then you can actually make other people also believe that you can do it.
+ - I do the same exercises I did 50 years ago and they still work. I eat the same food I ate 50 years ago and it still works.
+ - I propose that a teacher’s pay be tied to merit, not tenure. And I propose that a teacher’s employment be tied to performance, not just showing up.
+ - I have inhaled, exhaled everything.
+ - I think that the best profession or the best thing to do is to be a public servant. I mean there’s nothing better than working for the people – for the common people and being a public servant, and I have seen this.
+ - I was striving to be the most muscular man, and it got me into the movies. It got me everything that I have.
+ - As governor I have seen the tremendous changes over the last few years; the amount of land that we have lost, the trees that we have lost, the homes that we have lost, lives that have been lost, and it is due to a large extent to global warming.
+ - I believe with all my heart that America remains ‘the great idea’ that inspires the world. It is a privilege to be born here. It is an honor to become a citizen here. It is a gift to raise your family here, to vote here, and to live here.
+ - I told Warren if he mentions Prop. 13 one more time, he has to do 500 push-ups.
+ - The general definition of being muscle-bound is that you have so many muscles that you can’t move freely. I don’t know of any bodybuilder in that category; in fact, many of them are quite active in other sports.
+ - Men shouldn’t feel like fags just because they want to have nice-looking bodies.
+ - You cannot get tired if you’re interested in what you do. That’s the key thing.
+ - When I was 15-years-old, I took off my clothes and looked in the mirror. When I stared at myself naked, I realized that to be perfectly proportioned I would need twenty-inch arms to match the rest of me.
+ - Nobody gets muscles by watching ME lift weights.
+ - Having chicks around is the kind of thing that breaks up the intense training. It gives you relief, and then afterward you go back to the serious stuff.
+ - Teachers and nurses get the best seats in Heaven.
+ - We are going in the direction of artificial intelligence or hybrid intelligence where a part of our brain will get information from the cloud and the other half is from you, so all this stuff will happen in the future.
+ - I’m a competitive bodybuilder; I’m not training just to be healthy. Ninety-five percent of the people training with weights are into this health thing, and it’s a different mentality entirely.
+ - What I’m doing is the thing I want to do. I don’t care what other people think. I still will be a bodybuilder. I love it. I love the feeling in my muscles, I love the competition, and I love the things it gives me.
+ - I do squats until I fall over and pass out. So what? It’s not going to kill me. I wake up five minutes later and I’m OK.
+ - What’s fascinating is, people in Washington would rather spend time in Hollywood, and people in Hollywood would rather spend time in Washington.
+ - One thing Arnold Schwarzenegger isn’t is self-effacing. Everything has to be the biggest. His money, his muscles, his movies and his machines.
+ - I’m telling you, if you want to have good advice, never pay any attention to the camera guys because they will tell you over and over something is wrong and let’s reshoot it, let’s do this and let’s do that. Hey, just do it.
+
+299 quotes

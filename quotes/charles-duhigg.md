@@ -1,0 +1,48 @@
+ - Change might not be fast and it isn’t always easy. But with time and effort, almost any habit can be reshaped.
+ - The Golden Rule of Habit Change: You can’t extinguish a bad habit, you can only change it.
+ - This is the real power of habit: the insight that your habits are what you choose them to be.
+ - If you believe you can change – if you make it a habit – the change becomes real.
+ - Once you understand that habits can change, you have the freedom – and the responsibility – to remake them. Once you understand that habits can be rebuilt, the power of habit becomes easier to grasp, and the only option left is to get to work.
+ - Champions don’t do extraordinary things. They do ordinary things, but they do them without thinking, too fast for the orther team to react. They follow the habits they’ve learned.
+ - For a habit to stay changed, people must believe change is possible.
+ - Self-discipline has a bigger effect on academic performance than does intellectual talent.
+ - Willpower isn’t just a skill. It’s a muscle, like the muscles in your arms or legs, and it gets tired as it works harder, so there’s less power left over for other things.
+ - Habits, scientists say, emerge because the brain is constantly looking for ways to save effort.
+ - Between calculated risk and reckless decision-making lies the dividing line between profit and loss.
+ - If you dress a new something in old habits, it’s easier for the public to accept it.
+ - The more you focus, the more that focus becomes a habit.
+ - The problem is that your brain can’t tell the difference between bad and good habits, and so if you have a bad one, it’s always lurking there, waiting for the right cues and rewards.
+ - Small wins are a steady application of a small advantage.
+ - Most of the choices we make each day may feel like the products of well-considered decision making, but they’re not. They’re habits.
+ - Since the 17th century, insurance agents have been the foremost experts on risk.
+ - Simply giving employees a sense of agency- a feeling that they are in control, that they have genuine decision-making authority – can radically increase how much energy and focus they bring to their jobs.
+ - There’s something about it that makes other good habits easier.
+ - Cravings are what drive habits. And figuring out how to spark a craving makes creating a new habit easier.
+ - When a habit emerges, the brain stops fully participating in decision making. It stops working so hard, or diverts focus to other tasks. So unless you deliberately fight a habit – unless you find new routines – the pattern will unfold automatically.
+ - Making your bed every morning is correlated with better productivity, a greater sense of well-being, and stronger skills at sticking with a budget.
+ - Typically, people who exercise, start eating better and becoming more productive at work. They smoke less and show more patience with colleagues and family. They use their credit cards less frequently and say they feel less stressed. Exercise is a keystone habit that triggers widespread change.
+ - Once people learned how to believe in something, that skill started spilling over to other parts of their lives, until they started believing they could change. Belief was the ingredient that made a reworked habit loop into a permanent behavior.
+ - If you tell people that they have what it takes to succeed, they’ll prove you right.
+ - Companies aren’t families. They’re battlefields in a civil war.
+ - At some point, if you’re changing a really deep-seated behavior, you’re going to have a moment of weakness.
+ - America is the Saudi Arabia of coal.
+ - The same process that makes AA so effective – the power of a group to teach individuals how to believe – happens whenever people come together to help one another change. Belief is easier when it occurs within a community.
+ - Belief is easier when it occurs within a community.
+ - The best agencies understood the importance of routines. The worst agencies were headed by people who never thought about it, and then wondered why no one followed their orders.
+ - There’s something really powerful about groups and shared experiences. People might be skeptical about their ability to change if they’re by themselves, but a group will convince them to suspend disbelief. A community creates belief.
+ - The brain has this amazing ability to find happiness even when the memories of it are gone.
+ - As people strengthened their willpower muscles in one part of their lives – in the gym, or a money management program – that strength spilled over into what they ate or how hard they worked. Once willpower became stronger, it touched everything.
+ - The biggest moment of flexibility in our shopping habits is when we have a child, because all of your old routines go out the window, and suddenly a marketer can come in and sell you new things.
+ - There’s a natural instinct embedded in friendship, a sympathy that makes us willing to fight for someone we like when they are treated unjustly.
+ - The waste from power plants is essentially what is left over when you burn coal. And as we all know, coal is a relatively dirty mineral.
+ - I think I’m smart, and I know I was a good mom. But there wasn’t a lot I could point to and say, that’s why I’m special.
+ - Habits are malleable throughout your entire life.
+ - Rather, to change a habit, you must keep the old cue, and deliver the old reward, but insert a new routine.
+ - Research suggests that investment bankers are more prone to commit fraud when they feel the competitor at their heels.
+ - It is facile to imply that smoking, alcoholism, overeating, or other ingrained patters can be upended without real effort. Genuine change requires work and self-understanding of the cravings driving behaviours.
+ - The cooperation of NASCAR – or any other system, it turns out – persists only when everyone believes he has the opportunity to win.
+ - When people have a willpower failure, it’s because they haven’t anticipated a situation that’s going to come along.
+ - What studies say the number one best way to start an exercise habit is to give yourself a reward that you genuinely enjoy.
+ - Some say because music is as much about personal expression as listening pleasure, sharing is integral to why songs have value in the first place.
+
+46 quotes

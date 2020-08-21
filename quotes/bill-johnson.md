@@ -1,0 +1,167 @@
+ - I can’t afford to have thoughts in my head about me that God doesn’t have in His.
+ - Royalty is my identity. Servanthood is my assignment. Intimacy with God is my life source.
+ - Don’t let your past dictate your future.
+ - We owe the world an encounter with God.
+ - Great faith doesn’t come out of great effort, but out of great surrender.
+ - Faith doesn’t deny a problems existence. It denies it a place of influence.
+ - A culture of honor is celebrating who a person is without stumbling over who they’re not.
+ - You know your mind is renewed when the impossible looks logical.
+ - The ‘renewed’ mind is the canvas on which the Spirit of God can paint.
+ - Rule with the heart of a servant. Serve with the heart of a king.
+ - Transformed people transform cities.
+ - The only true worship is extreme worship, and only extreme worship brings extreme results – transformation.
+ - It is INCONSISTENT to have Jesus pay a price for healing and for us to believe it is not Gods intention to heal.
+ - When you’re willing to do what you’re unqualified to do, that’s what qualifies you.
+ - No one has ever overdosed on encouragement.
+ - I will not lower the standard of the Bible to my level of experience.
+ - What is the will of God? On earth as it is in heaven. If it doesn’t exist there, it’s not supposed to exist here. If it does exist there, it’s supposed to exist here.
+ - The most simple way to stay encouraged is to feed your heart on what He is doing, not on what He hasn’t done. If you can’t see what He is doing, feed on what He has done in the past.
+ - When we pursue kingdom principles above His presence, we are looking for the kingdom without a king.
+ - Evangelism, in its purist form, is an overflow of worship.
+ - Complaining proves nothing but that you can hear the voice of the Devil.
+ - Perfectionism is the counterfeit of excellence. Excellence is Kingdom, while perfectionism is religion. What ever you do, do it with all you might, and as unto the Lord. That is excellence.
+ - Jesus is the most normal Christian in the Bible.
+ - Gifts are free, but maturity is expensive.
+ - The way you silence fear is to give attention to faith.
+ - Sacrifice is a step beyond convenience.
+ - A private victory leads to a public victory and a corporate blessing, because God turns His face toward those who will demonstrate character when no one is looking.
+ - Whenever God restores something, He restores it to a place greater than it was before.
+ - I try to live in such a way that nothing gets bigger than my awareness of God presence on my life.
+ - You won’t have to watch what you say if you watch what you think.
+ - A heart of faith is anchored in the unseen.
+ - The journey makes things valuable not the title. Learn to enjoy and value the process of what God is doing.
+ - To have divine favor on your life means you’ll attract extraordinary opposition.
+ - Through radical generosity, we are awakening in people an in built divine consciousness of His goodness.
+ - We need to remain childlike. Children don’t dream of being insignificant.
+ - Many Christians miss out on God encounters because they are satisfied with good theology.
+ - When I live out of discipline, I’m admired – When I live out of passion, I’m contagious.
+ - Live in such a way that unless God shows up what you’re attempting to do is bound to fail. This is the nature of the Gospel.
+ - Sometimes our breakthrough begins when we refuse to be impressed with the size of our problem.
+ - If you don’t live by the praise of men you won’t die by their criticism.
+ - You have authority over every storm you can sleep in.
+ - People of excellence will always be brought before people of influence.
+ - In His mercy, God gives us the level of revelation that our character is prepared to handle.
+ - We have been given the privilege to host this presence. The Holy Spirit is in me for my sake but he is upon me for yours.
+ - Jesus didn’t accomplish everything so that you could accomplish nothing.
+ - The walk of Faith is to live according to the revelation we have received, in the midst of the mysteries we can’t explain.
+ - True humility is not in the absence of confidence but strength restrained.
+ - In order to have a peace that surpasses all understanding, you have to give up your right to understand.
+ - Your shadow will always release whatever overshadows you.
+ - The transfiguration was a physical illustration of what the renewed mind looks like in the spiritual.
+ - Radical obedience always gives priority to what God has said over what He hasn’t said.
+ - It is abnormal for a Christian not to have an appetite for the impossible. It has been written into our spiritual DNA to hunger for the impossibilities around us to bow at the name of Jesus.
+ - Jesus ruined every funeral he attended including his own.
+ - Much of today’s church relies more on a book the early church didn’t have, than the Holy Spirit they did.
+ - We don’t believe because we understand. We understand because we believe.
+ - As a forgiven son, I am justified, cleansed, washed clean. This is a greater reality than my sinful past.
+ - God wants people to meet Him when they meet us.
+ - Responding to truth will keep you safe. Reacting to error will only create another error.
+ - You can redefine your external world by an internal experience with the love of God.
+ - A powerless church has nothing for the devil to counterfeit.
+ - Once you’ve left the concept of family, you’ve left the concept of kingdom.
+ - Faith is not the result of striving. It is the result of surrender.
+ - While it takes at least two to reconcile, it only takes one to forgive.
+ - Whatever you gain through self promotion you’ll have to sustain through self promotion. When our promotion comes from God, He sustains it.
+ - One of the side effects of losing intimacy with God is that at some point we stop doing ministry out of imagination and we begin doing it out of memory.
+ - There’s something amazing about unbelief – it is able to fulfill its own expectations. Unbelief is safe because it takes no risk and almost always gets what it expects. Then, after a person gets the answer for their unbelief, they can say, I told you so.
+ - Anything you think you know about about God, that you can’t find in the person of Jesus, you have reason to question.
+ - Those who think their intellect will keep them from deception are already deceived.
+ - Jesus is interested in changing cultures, not just putting bodies in chairs.
+ - All fruit grows through abiding, not striving.
+ - There’s something about valuing people not because they value you, but because you can see God in them.
+ - Anyone who knows who God made them to be will never try to be someone else.
+ - Grace is the atmosphere created by love that makes faith the only reasonable response.
+ - We are not relevant when we mirror secular culture. We are relevant when we are what they long to be.
+ - Living in regret will become your biggest regret.
+ - Bible study without Bible experience is pointless.
+ - It’s a great tragedy when the Bible is interpreted by those who are not in love.
+ - When Jesus performed miracles, he wasn’t demonstrating what God can do, but what God can do through a man.
+ - Divine favor causes you to rise to the top in your sphere of influence, and the reality is that favor can be recognized more easily is your start at the bottom.
+ - Faith is not opposed to the mind. It’s superior to the mind which is why the renewed mind enhances faith.
+ - The enemy lies to make the problems we face appear larger than the solutions we carry.
+ - For those without fire, any fire is strange fire.
+ - Jesus is returning for a bride whose body is in equal proportion to her head.
+ - Part of our problem is this: we are accustomed only to doing things for God that are not impossible.
+ - If we rejoice in the acts of God without discovering His ways, we’ll question who He is when He doesn’t do what we’ve asked.
+ - In the old, sin contaminates. In the new, righteousness contaminates. It’s a different day.
+ - Jesus took what I deserved so I could get what He deserved.
+ - If you engage with the Holy spirit because you want to merely be effective in ministry, then you’re developing professional intimacyand what do we call people who are intimate as a profession?
+ - My history shouts the power of the blood of Jesus. My presence demonstrates the absolute love, affection and purpose of God for my life. My future is drawing me into a hope-filled life that has a purpose of saying, ‘on earth as it is in Heaven.’
+ - God will never violate His Word, but He doesn’t seem to mind violating our understanding of His Word.
+ - Some people need a theology of an angry God to justify their anger against sinners.
+ - Jesus did not live in reaction to the devil. He lived in response to the Father.
+ - Our assignment is to see the dominion of God realized into people’s lives. It is not an overpowering control, it is a life-giving, liberating experience with the almighty God, who is an ultimate, perfect Father who loves to bring liberty and freedom to His people.
+ - Any revelation from God’s Word that does not lead us to an encounter with God only serves to make us more religious. The Church cannot afford ‘form without power,’ for it creates Christians without purpose.
+ - So Jesus came and modelled a lifestyle of power and purity because the power of the Spirit of God was on him. He was trying to show those of us who would follow what life would be like in someone who had no sin and was completely empowered by the Spirit of God.
+ - God is the ultimate steward. He even turns our tears into the seeds of a hope filled future.
+ - The best way to prepare yourself for your own miracle is to rejoice in somebody else’s.
+ - Oftentimes what you see cancels out what you perceive.
+ - We must dream so big that without the support that comes through favor with God and man, we could never accomplish what is in our hearts.
+ - Our mandate is simple: raise up a generation that can openly display the raw power of God.
+ - Corporate greed is killing America, and that’s what we battling at Boeing.
+ - Grace does not overlook sin, it empowers righteousness!
+ - Obedience is not measured by our ability to obey laws and principles, obedience is measured by our response to God’s voice.
+ - We don’t have the capacity to exaggerate God’s goodness. We can distort it, or even misrepresent it, but we can never exaggerate it.
+ - My responsibility is to obey, to surrender my heart and to yield myself to the will of God. It is in the process of obedience that we gain understanding. You can’t get the peace that passes understanding until you give up your right to understand.
+ - The favor of God does not bless self-promotion.
+ - Most closed heavens for the Christian are between his ears. Believing a lie empowers the liar.
+ - We always become like the one we worship!
+ - God doesn’t have to try to do supernatural things. He is supernatural. He would have to try to not be. If He is invited to a situation, we should expect nothing but supernatural invasion.
+ - Doesn’t it honor Him more when His children no longer see themselves only as sinners saved by grace, but now as heirs of God? Isn’t it a greater form of humility to believe Him when He says we are precious in His sight when we don’t feel very precious?
+ - Fear is just faith in the wrong person.
+ - God set the standard for giving love that demands nothing in return.
+ - Nothing compares with the satisfaction of pleasing the heart of our heavenly Father.
+ - I think the law as it is today probably does prohibit an off-reservation casino, but there is uniqueness to Turtle Mountain and there is uniqueness to the state, and these things need to be looked at.
+ - Every loss is temporary. Every victory is eternal.
+ - Our identity sets the tone for all we do and become. Christians who live out of who they really are cannot be crippled by the opinions of others. They don’t work to fit into other people’s expectations, but burn with the realization of who the Father. says they are.
+ - The devil considers all misplaced trust as devil worship, for he hides himself in its shadows.
+ - Abiding in peace makes us a threat to any storm.
+ - Unbelief is safe, because it takes no risk and almost always gets what it expects.
+ - I cannot live in mediocrity, content with merely knowing that there is more of God to experience and explore -and then do nothing about it. Truths that are not experienced are, in effect, more like theories than truths. Whenever God reveals truth to us He is inviting us into a divine encounter.
+ - In my own pursuit of God, I often became preoccupied with ME! It was easy to think that being constantly aware of my faults and weakness was humility. It’s not! If I’m the main subject, talking incessantly about my weaknesses, I have entered into the most subtle form of pride.
+ - Just because you are going to Heaven doesn’t mean you have Heaven established in you. Success is Heaven on earth.
+ - The kingdom of God must never be reduced to talk, ideas and principles. The kingdom of God is power.
+ - Skills can be taught. It’s tough to teach heart. Talent is fairly common.
+ - Serving reconnects people to purpose. Serving someone else’s dream empowers not just us, but them.
+ - The Bible was meant to be read by those in love. It’s sad when it’s not.
+ - Fear looks like wisdom to those without risk.
+ - Presence always wins out over principles.
+ - Because God is better than we think we have to change the way we think.
+ - It’s in the environment of worship that we learn things that go way beyond what our intellect can grasp.
+ - Faith is generated in the atmosphere of experiencing truth.
+ - Passion produces the best discipline.
+ - Beware ‘good’ main characters who have a limited repertory of culturally acceptable feelings, while your evil bastards have a full range of vivid, passionate feelings.
+ - Faith must rise beyond the recognised norm into a lifestyle that accurately represents the victorious Son of God.
+ - Religion idolizes concepts and avoids personal experience.
+ - The way you think either expresses or undermines faith.
+ - What you know will keep you from what you need to know if you don’t remain a novice.
+ - Automatically thinking ‘everything that happens is God’s will’ is a lazy way to live. We live in a war. Jesus wasn’t fighting the Father’s will when He raised the dead.
+ - Our assignment has never been about what we can do for God, but what can God do through us.
+ - When you keep it within the walls, it dies. When you take it out where Jesus intended it to be, it happens.
+ - Compromise is the door through which deception enters.
+ - If you live cautiously, your friends will call you wise. You just won’t move many mountains.
+ - If you make history with God, He’ll make history with you.
+ - Our faith can only go as far as our awareness of Gods goodness.
+ - I’m not a good faster. My friends have visions of God, I have visions of hamburgers. The only time I watch the Food Channel is when I’m fasting. It’s pitiful. We did a 40 day fast. I bought 29 cookbooks. I don’t cook, but the pictures! I bought a deep-fryer and we don’t eat deep-fried food!
+ - Heaven invades earth when there is agreement here to what exists there. Honestly, that’s how it happens.
+ - It is unnatural for a Christian not to have an appetite for the impossible.
+ - People who refuse to step out and be used by God become the critics of those who do. Risk takers, the ones who thrill the heart of God, become the targets of those who never fail because they seldom try.
+ - Who I am in Christ is amazing. Who Christ is in me is the real story. It is beyond amazing.
+ - The ability to embrace mystery is what attracts revelation.
+ - An area of life that does not have hope is under a lie.
+ - The best way to honor past accomplishments is by building on top of their breakthroughs.
+ - America should meet its obligations in the form of Social Security, Medicare, our ability to pay our military, legally binding legislation that allows unemployment compensation, the judiciary, the federal court system, the federal prison system, all those kinds of things have to be paid for.
+ - Don’t rely on leaders to do things you’re equipped to do yourself.
+ - God is not pre-occupied with sin, He’s already dealt with it.
+ - Our refusal to fear reminds the devil that he is finished!
+ - My destiny is to go to heaven, my responsibility is to bring heaven.
+ - Some unanswered prayers are only because God doesn’t want to do something for us. He wants to do something through us.
+ - The mind is either at war with God or it is being renewed. There is no middle ground.
+ - Christianity was never meant to be defined by its disciplines, but by its passions.
+ - Every miracle brings the release of glory.
+ - The biggest enemy to prayer is praying for something you already have.
+ - We all remember things, it’s what we remember that determines how we live.
+ - Leaders who lack passion cost everyone who follows.
+ - I finally discovered something – it’s all about Jesus.
+
+165 quotes

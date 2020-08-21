@@ -1,0 +1,78 @@
+ - A man is no less a slave because he is allowed to choose a new master once in a term of years.
+ - Those who are capable of tyranny are capable of perjury to sustain it.
+ - It is manifest that the only security against the tyranny of the government lies in forcible resistance to the execution of the injustice; because the injustice will certainly be executed, unless it be forcibly resisted.
+ - But whether the Constitution really be one thing, or another, this much is certain – that it has either authorized such a government as we have had, or has been powerless to prevent it. In either case, it is unfit to exist.
+ - The only security men can have for their political liberty, consists in keeping their money in their own pockets.
+ - Government is in reality established by the few; and these few assume the consent of all the rest, without any such consent being actually given.
+ - But for their right to judge of the law, and the justice of the law, juries would be no protection to an accused person, even as to matters of fact; for, if the government can dictate to a jury any law whatever, in a criminal case, it can certainly dictate to them the laws of evidence.
+ - The right and the physical power of the people to resist injustice, are really the only securities that any people ever can have for their liberties. Practically no government knows any limit to its power but the endurance of the people.
+ - All these cries of having “abolished slavery,” of having “saved the country,” of having “preserved the union,” of establishing a “government of consent,” and of “maintaining the national honor,” are all gross, shameless, transparent cheats – so transparent that they ought to deceive no one.
+ - What is the motive to the secret ballot? This, and only this: Like other confederates in crime, those who use it are not friends, but enemies; and they are afraid to be known, and to have their individual doings known, even to each other.
+ - Vices are those acts by which a man harms himself or his property. Crimes are those acts by which one man harms the person or property of another.
+ - The fact is that the government, like a highwayman, says to a man: Your money, or your life. And many, if not most, taxes are paid under the compulsion of that threat.
+ - The single despot stands out in the face of all men, and says: I am the State: My will is law: I am your master: I take the responsibility of my acts: The only arbiter I acknowledge is the sword: If any one denies my right, let him try conclusions with me.
+ - To say that majorities, as such, have a right to rule minorities, is equivalent to saying that minorities have, and ought to have, no rights, except such as majorities please to allow them.
+ - The right of absolute and irresponsible dominion is the right of property, and the right of property is the right of absolute, irresponsible dominion. The two are identical; the one necessarily implying the other.
+ - The apology, that is constantly put forth for the injustice of government, viz., that a man must consent to give up some of his rights, in order to have his other rights protected – involves a palpable absurdity, both legally and politically.
+ - The right of revolution, which tyrants, in mockery, accord to mankind, is no legal right under a government; it is only a natural right to overturn a government.
+ - If any man’s money can be taken by a so-called government, without his own personal consent, all his other rights are taken with it; for with his money the government can, and will, hire soldiers to stand over him, compel him to submit to its arbitrary will, and kill him if he resists.
+ - For a government to declare a vice to be a crime, and to punish it as such, is an attempt to falsify the very nature of things. It is as absurd as it would be to declare truth to be a falsehood, or falsehood a truth.
+ - A traitor is a betrayer – one who practices injury, while professing friendship. Benedict Arnold was a traitor, solely because, while professing friendship for the American cause, he attempted to injure it. An open enemy, however criminal in other respects, is no traitor.
+ - The principle, on which the war was waged by the North, was simply this: That men may rightfully be compelled to submit to, and support, a government that they do not want; and that resistance, on their part, makes them traitors and criminals.
+ - All restraints upon man’s natural liberty, not necessary for the simple maintenance of justice, are of the nature of slavery, and differ from each other only in degree.
+ - Vices are not crimes.
+ - All know the importance of sustaining the hopes of a sick man. The reason of this is that his nervous system is then, vastly more than in health, susceptible to the influence of particular states of the mind.
+ - The secret ballot makes a secret government; and a secret government is a secret band of robbers and murderers.
+ - But that the people are stronger than the government, and will resist in extreme cases, our governments would be little or nothing else than organized systems of plunder and oppression.
+ - A government that can at pleasure accuse, shoot, and hang men, as traitors, for the one general offence of refusing to surrender themselves and their property unreservedly to its arbitrary will, can practice any and all special and particular oppressions it pleases.
+ - Vices are simply the errors which a man makes in his search after his own happiness. Unlike crimes, they imply no malice toward others, and no interference with their persons or property.
+ - All the great establishments, of every kind, now in the hands of a few proprietors, but employing a great number of wage laborers, would be broken up; for few or no persons, who could hire capital and do business for themselves would consent to labour for wages for another.
+ - Any rule, not existing in the nature of things, or that is not permanent, universal and inflexible in its application, is no law, according to any correct definition of the term law.
+ - There can be no criminal intent in resisting injustice.
+ - Taking a man’s money without his consent, is also as much robbery, when it is done by millions of men, acting in concert, and calling themselves a government, as when it is done by a single individual, acting on his own responsibility, and calling himself a highwayman.
+ - The only idea they have ever manifested as to what is a government of consent, is this – that it is one to which everybody must consent, or be shot.
+ - The very idea of law originates in men’s natural rights. There is no other standard, than natural rights, by which civil law can be measured. Law has always been the name of that rule or principle of justice, which protects those rights. Thus we speak of natural law.
+ - Now a slave is not ‘held’ by any legal contract, obligation, duty, or authority, which the laws will enforce. He is ‘held’ only by brute force. One person beats another until the latter will obey him, work for him, if he require it, or do nothing if he require it.
+ - A slave government is an oligarchy; and one, too, of the most arbitrary and criminal character.
+ - It is a natural impossibility for any man to make a binding contract, by which he shall surrender to others a single one of what are commonly called his ‘natural, inherent, inalienable rights.’
+ - If a jury have not the right to judge between the government and those who disobey its laws, and resist its oppressions, the government is absolute, and the people, legally speaking, are slaves.
+ - Men’s moral principles are weak enough without their being made subordinate to selfishness; and their selfishness is quite active enough, without any such effort as Christianity makes to constitute it the mainspring of all their conduct.
+ - To deprive mankind of their natural right and power of creating wealth for themselves, is as great a tyranny as it is to rob them of it after they have created it. And this is done by all laws against honest banking.
+ - The imaginations of believers have dressed up and exaggerated the excellence of the style and matter of the New Testament generally, in the same manner, in which they have the moral instructions of Jesus.
+ - The Constitution has no inherent authority or obligation. It has no authority or obligation at all, unless as a contract between man and man. And it does not so much as even purport to be a contract between persons now existing.
+ - If two individuals enter into a contract to commit trespass, theft, robbery or murder upon a third, the contract is unlawful and void, simply because it is a contract to violate natural justice, or men’s natural rights.
+ - The trial by jury is a trial by ‘the country,’ in contradistinction to a trial by the government. The jurors are drawn by lot from the mass of the people, for the very purpose of having all classes of minds and feelings, that prevail among the people at large, represented in the jury.
+ - Doubtless the most miserable of men, under the most oppressive government in the world, if allowed the ballot, would use it, if they could see any chance of thereby ameliorating their condition.
+ - Legally speaking, there are no such things as ‘public rights,’ as distinguished from individual rights. Legally speaking, there is no such creature or thing as ‘the public.’
+ - All, or nearly all, the advantage there is in fixing any constitutional limits to the power of a government, is simply to give notice to the government of the point at which it will meet with resistance.
+ - If the jury have no right to judge of the justice of a law of the government, they plainly can do nothing to protect the people against the oppressions of the government; for there are no oppressions which the government may not authorize by law.
+ - Jesus never instructed men to do what was right because it was right; yet this is the true reason why they should do it.
+ - One essential of a free government is that it rest wholly on voluntary support. And one certain proof that a government is not free, is that it coerces more or less persons to support it, against their will.
+ - Children learn many principles of natural law at a very early age. For example: they learn that when one child has picked up an apple or a flower, it is his, and that his associates must not take it from him against his will.
+ - These so-called governments are in reality only great bands of robbers and murderers, organized, disciplined, and constantly on the alert.
+ - Now it is clear, that if the government can exclude, on account either of their opinions or feelings, any persons thus drawn by lot, the trial is no longer a trial by ‘the country,’ but only by a portion of the country.
+ - Those who deny the right of a jury to protect an individual in resisting an unjust law of the government, deny him all defence whatsoever against oppression.
+ - The number who actually consented to the Constitution of the United States, at the first, was very small. Considered as the act of the whole people, the adoption of the Constitution was the merest farce and imposture, binding upon nobody.
+ - If our fathers, in 1776, had acknowledged the principle that a majority had the right to rule the minority, we should never have become a nation; for they were in a small minority, as compared with those who claimed the right to rule over them.
+ - The trial by jury might safely be introduced into a despotic government, if the jury were to exercise no right of judging of the law, or the justice of the law.
+ - It is self-evident that no number of men, by conspiring, and calling themselves a government, can acquire any rights whatever over other men, or other men’s property, which they had not before, as individuals.
+ - Money is the great instrumentality for manufacturing.
+ - All governments, the worst on earth, and the most tyrannical on earth, are free governments to that portion of the people who voluntarily support them.
+ - All legitimate government is a mutual insurance company, voluntarily agreed upon by the parties to it, for the protection of their rights against wrong-doers. In its voluntary character it is precisely similar to an association for mutual protection against fire or shipwreck.
+ - Slavery, if it can be legalized at all, can be legalized only by positive legislation. Natural law gives it no aid. Custom imparts to it no legal sanction.
+ - If men were but to read the New Testament with the same tone and emphasis, with which they do other books, and were to keep out of mind the idea of its being sacred, they would be disgusted with the credulity, and the want of intellect, reason and judgment, that is apparent in it.
+ - Majorities and minorities cannot rightfully be taken at all into account in deciding questions of justice.
+ - No government knows any limits to its power except the endurance of the people.
+ - In reality there is no such thing as an inflation of prices, relatively to gold. There is such a thing as a depreciated paper currency.
+ - The law does not require a man to cease to be a man, and act without regard to consequences, when he becomes a juror.
+ - A married woman has the same natural right to acquire and hold property, and to make all contracts that she is mentally competent to make reasonably, as has a married man, or any other man.
+ - The desertion of Jesus, by his followers, furnishes an argument in support of the supposition that he attempted to be king of the Jews, rather than that he was a superior being.
+ - A man’s ‘original and natural right’ to make all contracts that are ‘intrinsically obligatory,’ and to coerce the fulfillment of them, is one of the most valuable and indispensable of all human possessions.
+ - Practically and commercially speaking, a dollar is not necessarily a specific thing, made of silver, or gold, or any other single metal, or substance. It is only such a quantum of market value as exists in a given piece of silver or gold.
+ - There is perhaps not an enlightened Christian in America who, notwithstanding he may believe that, at the time of Jesus, men were possessed of devils, believes that they ever have been in any other instance, either before or since.
+ - No body of men can be said to authorize a man to act as their agent, to the injury of a third person.
+ - Doing a thing by law, or according to law, is only carrying the law into execution. And punishing a man by, or according to, the sentence or judgment of his peers, is only carrying that sentence or judgment into execution.
+ - Legally speaking, the term ‘public rights’ is as vague and indefinite as are the terms ‘public health,’ ‘public good,’ ‘public welfare,’ and the like. It has no legal meaning, except when used to describe the separate, private, individual rights of a greater or less number of individuals.
+ - To measure prices by a currency that is called by the same names as gold, but that is really inferior in value to gold, and then – because those prices are nominally higher than gold prices – to say that they are inflated, relatively to gold, is a perfect absurdity.
+
+76 quotes

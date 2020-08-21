@@ -1,0 +1,42 @@
+ - Watch your thoughts, they become words. Watch your words, they become actions. Watch your actions, they become habit. ~~Laozi
+ - Be strong enough to stand alone, smart enough to know when you need help, and brave enough to ask for it. ~~Ziad K. Abdelnour
+ - Only dumb people try to impress smart people. Smart people just do what they do. ~~Chris Rock
+ - Smart work pays best. Trust it. ~~Conor McGregor
+ - Believe in yourself, work hard, work smart and passionately present your best self to the world. ~~Hill Harper
+ - It doesn’t make sense to hire smart people and tell them what to do; we hire smart people so they can tell us what to do. ~~Steve Jobs
+ - The thing about smart people is that they seem like crazy people to dumb people. ~~Stephen Hawking
+ - When you ask a dumb question, you get a smart answer. ~~Aristotle
+ - Take care of yourself. Eat well, rest, train hard and smart, make time to think and breathe. Be intentional with your time. ~~Kristin Armstrong
+ - Alone we are smart. Together we are brilliant. ~~Steven Anderson
+ - You need not apologize for being brilliant, talented, gorgeous, rich, or smart. ~~Marianne Williamson
+ - My motto is to keep it simple stupid, work smart not hard. ~~Joe Teti
+ - I want to be brave, and selfless, and smart, and kind, and honest. ~~Veronica Roth
+ - I think there are too many smart people pursuing internet stuff, finance, and law. That is part of the reason why we haven’t seen as much innovation. ~~Elon Musk
+ - It’s not how smart you are that matters, what really counts is how you are smart. ~~Howard Gardner
+ - Girls should never be afraid to be smart. ~~Emma Watson
+ - Live boldly. Laugh Loudly. Love Truly. Play as often as you can Work as smart as you are able. Share your heart as deeply as you can reach. ~~Mary Anne Radmacher
+ - Science is a philosophy of discovery. Intelligent design is a philosophy of ignorance. You cannot build a program of discovery on the assumption that nobody is smart enough to figure out the answer to a problem. ~~Neil deGrasse Tyson
+ - The starting point of all achievement is desire. ~~Napoleon Hill
+ - Smart men walked on the moon, daring men walked on the ocean floor, but wise men walk with God. ~~Leonard Ravenhill
+ - Culture is a simplification and a lie. It’s the currency by which fools navigate the world. Smart people get beyond it. ~~Terence McKenna
+ - None of us is as smart as all of us. ~~Kenneth H. Blanchard
+ - The world is full of smart, poor people. ~~Robert T. Kiyosaki
+ - It is good to have money and the things that money can buy, but it’s good too, to check up once in a while and make sure you haven’t lost the things money can’t buy. ~~George Horace Lorimer
+ - I’m too fast. I’m too smart. I’m too pretty. ~~Muhammad Ali
+ - When someone isn’t smart enough to express their frustration, they use dirty words. Those are words that describe a lack of intelligence. Smart people don’t use those kind of dirty words, because they find it an insult to their intelligence. ~~Nouman Ali Khan
+ - Smart people learn from everything and everyone, average people from their experiences, stupid people already have all the answers. ~~Socrates
+ - We are what we repeatedly do. Excellence, then, is not an act, but a habit. Aristotle How very little can be done under the spirit of fear. ~~Florence Nightingale
+ - I was lucky. I grew up knowing that hard work and smart work has a greater impact on results than being passionate about something. ~~Mark Cuban
+ - Debugging is twice as hard as writing the code in the first place. Therefore, if you write the code as cleverly as possible, you are, by definition, not smart enough to debug it. ~~Brian Kernighan
+ - A stupid man’s report of what a clever man says can never be accurate, because he unconsciously translates what he hears into something he can understand. ~~Bertrand Russell
+ - It does not matter who you are, or how smart you are, or what title you have, or how many of you there are, and certainly not how many papers your side has published, if your prediction is wrong then your hypothesis is wrong. Period. ~~Richard P. Feynman
+ - Do not let anyone tell you what you can be. Do not let anyone tell you that you are not good enough or smart enough. Remember that nobody is better than you. Everybody puts on their pants one leg at a time. ~~Farrah Gray
+ - The Sneetches got really quite smart on that day. The day they decided that Sneetches are Sneetches. And no kind of Sneetch is the best on the beaches. That day, all the Sneetches forgot about stars and whether they had one, or not, upon thars. ~~Dr. Seuss
+ - There are two ways to get enough. One is to continue to accumulate more and more. The other is to desire less. ~~Gilbert K. Chesterton
+ - Failure comes from ego, greed, envy, fear, imitation. I have success not because I am smart, but because I am rational. ~~Warren Buffett
+ - It only takes one mistake and nothing else you ever do will matter. No matter how hard you work or how smart you become, you’ll always be known for that one poor choice. ~~Chuck Palahniuk
+ - I am successful because I have always been a tortoise. I did not come from a rich family. I was not smart in school. I did not finish school. I am not particularly talented. Yet, I am far richer than most people simply because I did not stop. ~~Robert T. Kiyosaki
+ - Happiness is not something you postpone for the future; it is something you design for the present. ~~Jim Rohn
+ - Some of the world’s greatest feats were accomplished by people not smart enough to know they were impossible. ~~Doug Larson
+
+40 quotes

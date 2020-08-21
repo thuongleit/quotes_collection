@@ -1,0 +1,22 @@
+ - Your photography is a record of your living, for anyone who really sees.
+ - It is one thing to photograph people. It is another to make others care about them by revealing the core of their humanness.
+ - Did I express my personality? I think that’s quite unimportant because it’s not people’s selves but what they have to say about life that’s important.
+ - It is easy to make a picture of someone and call it a portrait. The difficulty lies in making a picture that makes the viewer care about a stranger.
+ - The artist’s world is limitless. It can be found anywhere, far from where he lives or a few feet away. It is always on his doorstep.
+ - I think of myself as an explorer who has spent his life on a long voyage of discovery.
+ - If Ansel Adams gets a thousand dollars a print, I want ten thousand.
+ - The important thing is, you have to have something important to say about the world.
+ - If the photographer is not a discoverer, then he is not an artist.
+ - Objectivity is of the very essence of photography, its contribution and at the same time its limitation.
+ - Photography is only a new road from a different direction, but moving toward the common goal, which is life.
+ - All good art is abstract in its structure.
+ - No matter what lens you use, no matter what speed the film, no matter how you develop it, no matter how you print it, you cannot say more than you can see.
+ - I’ve always wanted to be aware of what’s going on around me, and I’ve wanted to use photography as an instrument of research into and reporting on the life of my own time.
+ - The decision as to when to photograph, the actual click of the shutter, is partly controlled from the outside, by the flow of life, but it also comes from the mind and the heart of the artist. The photograph is his vision of the world and expresses, however subtly, his values and convictions.
+ - If you let other people’s vision get between the world and your own, you will achieve that extremely common and worthless thing, a pictorial photograph.
+ - Every artist I suppose has a sense of what they think has been the importance of their work. But to ask them to define it is not really a fair question. My real answer would be, the answer is on the wall.
+ - I like to photograph people who have strength and dignity in their faces. Whatever life has done to them, it hasn’t destroyed them.
+ - The artist is one who makes a concentrated statement about the world in which he lives and that statement tends to become impersonal-it tends to become universal and enduring because it comes out of something very particular.
+ - All light is available light.
+
+20 quotes

@@ -1,0 +1,23 @@
+ - It is perfectly okay to write garbage – as long as you edit brilliantly.
+ - Ignorance killed the cat; curiosity was framed!
+ - A warrior is free to be a hero and pull off daring do and the soldier is irresponsible if he does it.
+ - Nothing’s hopeless except never trying.
+ - Trade isn’t about goods. Trade is about information. Goods sit in the warehouse until information moves them.
+ - Deal with the Devil if the Devil has a constituency – and don’t complain about the heat.
+ - The warrior may fight for gold or for an immediate gain, or for something to take home for the winter to feed the family. The soldier is part of a more complex society. He’s fighting for a group ethic of some sort.
+ - I most fear stupid people. Stupid people will do anything. Truly smart people will do only what is logical for them to do.
+ - Never start a war with something you can’t talk to.
+ - Culture is how biology responds and makes its living conditions better.
+ - Rattle a lawyer’s door and you get more lawyers.
+ - Average people didn’t analyze what they thought: they thought they thought, and half of it was gut reaction.
+ - Change happened and you thought it was forever, and immediately there were all the enemies of that change making common cause and meeting in the cloakrooms.
+ - If you’re up against a smart opponent, make him think himself to death.
+ - Watch out for a man whose enemies keep disappearing.
+ - Remember, constantly, that when you talk about ‘tense of a subjunctive,’ you’re not talking about time. You’re slipping through degrees of reality.
+ - Poisoning rarely happens in a well-managed kitchen.
+ - Jane leaned back against the counter and stared at the ceiling. At the traditional location of God, no matter what the planet.
+ - For me the purest and truest art in the world is science fiction.
+ - Inevitably the party trying to resolve a matter had to contend with the party most willing to exploit it.
+ - I do not think any SFWA communication should come anywhere NEAR the internet.
+
+21 quotes

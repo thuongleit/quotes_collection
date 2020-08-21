@@ -1,0 +1,29 @@
+ - The significance of the cherry blossom tree in Japanese culture goes back hundreds of years. In their country, the cherry blossom represents the fragility and the beauty of life. It’s a reminder that life is almost overwhelmingly beautiful but that it is also tragically short.
+ - Sitting down and sharing a meal together combines two of my favorite loves: eating great food and talking about great food.
+ - Gastronomy has to catch up to the evolution in technology.
+ - The cherry blossom tree is truly a sight to behold, especially when it is in full riotous bloom. There are several varieties of the cherry blossom tree, and while most of them produce flowering branches full of small pinkish-hued flowers, some of them produce actual cherries.
+ - Most of us have fond memories of food from our childhood. Whether it was our mom’s homemade lasagna or a memorable chocolate birthday cake, food has a way of transporting us back to the past.
+ - Obsolescence is the key to innovation.
+ - Algae is the perfect food plant. It doubles cell mass every twelve hours, depending on the strain.
+ - From a very young age, I liked to take apart things. All of my Christmas gifts would wind up in a million pieces. I actually recall taking apart my dad’s lawnmower three times to understand how combustible engines work.
+ - You know, I want to eat junk food. My kids love junk food.
+ - If you have time-release pills, you could have time-release expanding cheesecakes.
+ - My wife and I are always concerned about how long it’s going to take to eat out. You just don’t know.
+ - My goal is to spread ideas. Trends always start at the top.
+ - A food’s value is based on how good it tastes.
+ - Lots of the cooking classes open to non-professionals are too low-level for experienced foodies, or don’t offer enough hands-on training.
+ - I love a great conspiracy story. Who doesnt?
+ - Nobody likes it when someone calls in sick.
+ - If you could eat portions of pine trees, you could eliminate corn in many ways.
+ - Food trucks give creative entrepreneurs the ability to cook with freedom and make what they love, meaning that they can create highly specialized meals without having the high overhead costs of running a restaurant.
+ - I was bored at school and bored in a lot of the kitchens. It seemed like all I was doing was putting things into saute pans.
+ - Sweet treats are as much a part of our culture as they are our taste palettes, and it can sometimes seem as though sugary snacks are everywhere.
+ - A molecular gastronomist is really just someone who explores the world of science and food.
+ - When we think of classic American desserts, we tend to imagine apple pie and ice cream. However, the most classic American dessert of all might be the chocolate chip cookie.
+ - If you look at, you know, the limitations of creating new products, you’re only limited by the technology that you have to work with.
+ - I can’t think of a time in the history of man when food was in excess. We’re dealing with the same old problems we’ve dealt with for 60,000 years.
+ - Most Americans live on a diet that includes processed fare that is neither fresh nor natural.
+ - In time, foods such as hamburgers and ice cream became more than just meals. They became part of American history and culture, touchstones that are almost immediately nostalgic and sentimental no matter how old you are or what part of the country you are from.
+ - With a little more tweaking, we could make orange juice in the orange without any packaging or processing.
+
+27 quotes

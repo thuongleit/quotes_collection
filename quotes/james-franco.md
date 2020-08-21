@@ -1,0 +1,108 @@
+ - Create your world around your work. Create your work around your life. Let other people help you shape it.
+ - Teens today rule the world. The whole culture – movies, music – is pointed at young people. They have so ‘much’ power.
+ - You want to be interesting? Be interested.
+ - I feel there are so many things in this world that have been and are being created that I could spend the rest of my life thinking about, and I couldn’t cover all the things I’m interested in. That to me is what makes life sweet-learning and exploring.
+ - If this is the only life, then why I’m not just doing everything I want to do.
+ - All I know is that when I needed McDonald’s, McDonald’s was there for me.
+ - Sometimes I get a little sad, and I feel like being alone. Then I talk to my cat about it, and he reminds me I’m James Franco. Then we dance.
+ - Dreams and expectations also have the very dark flipside of disappointment, broken dreams.
+ - They say living well is the best revenge but sometimes writing well is even better.
+ - I’ve decided I can’t really control people’s perceptions of me. All I can do is decide on what I work on and how hard I work on it.
+ - My style is casual-chic? Casual-messy?
+ - I view filmmaking as a director’s medium.
+ - I don’t need a vacation in the traditional sense, like I would if I had a job I hated.
+ - Japanese moe relationships socially dysfunctional men develop deep attachments to body pillows with women painted on them.
+ - Sometimes rabbits, like, turn me on. I don’t know why.
+ - I was an English major at UCLA when I was 18, and then I left after a year to start acting. I was educating myself during that time.
+ - Everyone pretends to be normal and be your best friend, but underneath, everyone is living some other life you don’t know about, and if only we had a camera on us at all times, we could go and watch each other’s tapes and find out what each of us was really like.
+ - I guess it’s ironic. I just did the Gucci cologne ad, and I was the cologne thief in junior high.
+ - I used to care about how I looked. Now I don’t care as much. Maybe it’s because I’m so handsome.
+ - The selfie is the new way to look someone right in the eye and say, ‘Hello, this is me.’
+ - I don’t have many hobbies. If I think of hobbies, maybe ping pong. But I don’t have a desire to get a ping pong medal.
+ - A director on a film really sets the tone of how people go about things, so everybody is happy to be at work and everybody does their best.
+ - I am actually turned off when I look at an account and don’t see any selfies, because I want to know whom I’m dealing with. In our age of social networking, the selfie is the new way to look someone right in the eye and say, ‘Hello, this is me.’
+ - When I was younger, I didn’t know that I should just listen to my own voice, my own artistic sense of things when I was choosing projects, because one of the biggest creative decisions that an actor can make in the film business is what you will work on.
+ - I don’t even like to sleep – I feel as if there’s too much to do.
+ - For April Fools Day, someone played a really cruel joke on me. They stole ALL my mirrors and I had to go hours without seeing myself. I mean, I couldn’t even do my daily affirmations. What kind of world is this? I tell you, it’s artists like myself that really suffer.
+ - Showing the addiction and unusual sexual practices are ways of just outlining a much bigger character trait.
+ - The wind came in languid gusts like whispered reminders.
+ - My name is James Edward Franco. Ted is a nickname for Edward. That’s what my parents called me. I also got ‘Teddy Ruxpin’ a lot. It just got to a point where I got sick of it, so when a teacher called out ‘James Franco’ my junior year of high school, I didn’t correct her.
+ - If the work is good, what does it matter? I’m doing it because I love it. Why not do as many things I love as I can? As long as the work is good.
+ - I don’t go on vacation. I don’t really need vacation.
+ - I love to bring humour into my work. Because comedy is not a huge part of the art world. And big-business film takes itself very seriously.
+ - I don’t consider weed to be any worse than having a beer.
+ - I’ve been acting for many years now, and I find there’s nothing I enjoy more than making films with my friends and people I like, who also are the funniest people around.
+ - You say I sucked at the Oscars. I was a genius at the Oscars. That was experimental tuxedo sleep art.
+ - I was kind of scared of failing at acting.
+ - If I’m working on a film, I’ll do sit-ups for before I shoot. Like, 100 in the morning or something.
+ - When I was a young actor, I just didn’t understand how to function in this business as an artist. It is a business, it’s called the film business for a reason, there’s money involved. But on the flip side, nowadays I do not let the business side of it rule either. It’s a balance.
+ - As an actor in the classroom, you’re revealing so much, and teachers are, you know, they’re just critiquing like a painting or a piece of work; it’s like, it’s you, and it’s your emotions that they’re working with.
+ - I’m a big cardigan sweater guy.
+ - If you have a profession that depends on what you look like, you can’t blame somebody for caring about that. It’s part of their job. So it’s vanity but it’s also not in a lot of cases. It’s being professional.
+ - It feels really sad, to me, to go to a dark bedroom. It’s like surrendering to the night or something.
+ - I actually don’t smoke weed, but I’ve played a lot of stoners – especially with Seth Rogen.
+ - Did you ever see Cheech and Chong’s Up in Smoke? That’s what happens if you really smoke weed and make a movie. You get two guys and no plot and it’s basically like, ‘Yeah! Let’s drive a van made of weed!’ And that’s pretty much the movie.
+ - I’m starting to teach now: I teach in the graduate film program at NYU and next year I’m going to be teaching at Los Angeles at the film program and English program at UCLA.
+ - Always have one artistic thing that is pure, at least one thing, where you don’t compromise. You can do other things to make money, but have one pure area.
+ - I always see nice images like that but I don’t know what to do with them. I guess you share them with someone. Or you write them down in a poem. I had so many of those little images, but I never shared them or wrote any of them down.
+ - I worked the drive-through at McDonald’s and tried out different accents – Italian, Russian, Irish.
+ - I have high aspirations. I want to be an architect.
+ - I learned a lot of good things in my school. I’ve audited a lot of other schools, and I guess after a while I got a little tired of the acting school atmosphere.
+ - He was so. So dirty, and just moving in front of me, and cute. I was in love with him, especially because he was talking to me.
+ - I got arrested for graffiti. I got arrested – a lot of, like, underage drinking, drunk in public, shoplifting, you know, your various, like, suburban arrests, I guess.
+ - A lot of the people in San Francisco think of themselves as healers – not just as people delivering this base service, but giving their clients spiritual help. It’s almost like being an actor, playing a different part for each trick.
+ - This was the way the night had cashed in. Choices had been made and things happened, and here we were. It was sad, and funny. My life was made of this. Stuff like this.
+ - I worked at a McDonald’s drive-through. I could always tell when girls were interested: They’d drive around again and say, ‘I forgot something.’
+ - I love collaboration of all kinds, and I love the way that collaboration pulls me into directions I wouldn’t go in if I was working on my own.
+ - Fight scenes are really more like dances than they are fights, because you’re depending on your partner to do the right move at the right time. Yes, a tough person or somebody who knows what they’re doing will look better in a fight scene, but it also has a lot to do with the other person.
+ - There’s so much pressure put on relationships to deliver the satisfaction of life. And to me, that is just not the answer. I feel like it should be something in addition to what you love or be a part of that.
+ - I love that the idea of examining memory, and the way memory is edited was made more interesting because it was being filtered through a writer.
+ - I drank from the bottle again and it was a scary plunge because I always wanted to take too much. It hurt, but it was also impressive, like being in the hands of a bigger force. And because of that, a relief.
+ - Sometimes it is painful to be oneself; at other times it seems impossible to escape oneself.
+ - We tell specific stories about ourselves to ourselves and we’re all the heroes of our own lives. But you live through certain experiences with other people, and sometimes they have very different takes on what happened.
+ - I don’t like sleeping in a bed.
+ - It’s hard when you’re doing a film based on a true story to really figure out what all those relationships were.
+ - You are successful if you are able to work on the kind of material that you want to – if your life conforms to your dreams, regardless of outside acceptance or acclaim.
+ - I personally just love movies about the creative process.
+ - I don’t cast somebody that I think is like my younger self.
+ - There’s a long tradition of teen comedies where the kids are getting drunk on beer and whatever else, so smoking a joint to me is no worse than having a beer. So, if someone has a problem with it, I’ll just tell them to relax.
+ - When I was a child, I wanted to be an actor, but I had really bad buckteeth. I didn’t want to get braces, but my mom said I couldn’t be an actor if I didn’t get the braces. So, I got the braces.
+ - Acting is an art form and you want to take roles that are challenged and it’s more of a challenge I think to play dark characters. Not that I want to always play those, but it is a challenge and challenges are rewarding and fun.
+ - Directing, editing, and everything about filmmaking has definitely changed me as an actor.
+ - The new critique you’re gonna start hearing about James Franco, is ‘He’s spreading himself too thin.’
+ - I think it helps the writers to sell their books if they announce my attachment. But it doesn’t mean that I’m going to make the movies in the next year or two or three.
+ - Adapting a book is essentially a collaboration, whether the author is alive or dead.
+ - There’s this phenomenon where people do like to announce movies that they think I’m doing that I’m not.
+ - Not having any real direction, one writer would lead me to another.
+ - Almost all the movies I’ve directed are adaptations. And I think what I found when I went to film school, where they try to push you to find your voice or your thing, is that I got a lot of things out of adaptations.
+ - I start movies with people that I believe in and people with visions, you know, that I believe in. And so if it doesn’t kind of come together in the right way, at least I was doing it because I believed in the person and the movie.
+ - When I started writing after my career as an actor, I knew that that other life in the film industry would be pulled into my writing life and that people would see me not as an author but as an actor starting to write.
+ - I’ve come to a point where I just want to do movies that I just believe in. I have come to an understanding of filmmaking, a new understanding where I believe it’s a director’s medium. That means working with people that I believe in.
+ - For some reason, when I was in junior high school, my friends and I had, like, a cologne-stealing ring.
+ - There’s no relationship that I find that’s closer than a creative relationship.
+ - If you just read the book, you’re taking in the narrative, you’re taking in the characters, you’re understanding it in a certain way. If you make a movie it’s really an act of translation.
+ - I become kind of obsessive about research.
+ - You just don’t really rehearse kissing scenes, whether it’s male or female.
+ - It’s like low-budget filmmaking – a focus on dialogue and relationships over plot. Quirky. Improv.
+ - We fell in love last night. He’s the coolest guy.
+ - But I don’t want to die! I have so much to do!
+ - Sometimes I think to myself, what should James Franco say next? And then it comes to me. Boobs.
+ - I needed an outlet in high school and came across painting. I’ve actually been painting longer than I’ve been acting. A movie is a collaborative effort, and with painting you just have yourself.
+ - There’s a large chunk of me in all the parts. As an actor, I got involved largely because I want to let things out. The best acting is that that is most real and the only way to do that, is to genuinely feel it.
+ - Quite Franc-ly, I think I am an asset to this world we live in. I know that if I didn’t exist, there would be some truly upset people just waiting for me. A life without Franco is like a kitten without fur. That’s what my reflection told me.
+ - I was a black center in the middle of all the nature. I was nothing, but I could do anything.
+ - It’s basically the best job in the world. If you’re fortunate enough – and I consider myself fortunate – you get to work with your friends and you get to work on projects that interest you.
+ - School allowed me to have outlets so that some of the pressure was taken off the acting. Every role in every movie, I used to live or die by. Once I had these new outlets, I relaxed a lot more.
+ - I am not going to be the guy who’s not pulling his weight.
+ - We all age. You shouldn’t discount it as a subject for a film. Just because the characters are dealing with issues that you might not deal with for another 45 years doesn’t mean you won’t like it.
+ - Most of the books that I’ve adapted I’m doing because I love the book and I feel like it’s a great work of art in itself, and when it’s a great book I feel as a director or a writer that I have a responsibility to rise to the level of the original. It makes me try to reach higher.
+ - For whatever reason, I have an emotional life that wants to come out.
+ - If many people love me, then I must be important.
+ - I get like six or so hours of sleep a night.
+ - I still work really hard, but I like to think I’m a little smarter about at least the type of movie I’m getting into.
+ - I am very grateful for my life. I think one of the keys to not being depressed is to find gratitude and to be grateful for what you have. So I am grateful for what I have.
+ - When I went to film school about three years ago, the first two years you’re required to make a series of short films. I started making films based on short poems.
+ - When I research a role it does get a little crazy and maybe even a little stupid.
+ - I loved the world of Oz. I guess as a young man, I was just drawn to fantasy worlds. I liked being transported to alternative realms where a lot of my early imagination was sparked.
+
+106 quotes

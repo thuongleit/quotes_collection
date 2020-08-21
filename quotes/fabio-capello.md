@@ -1,0 +1,22 @@
+ - The only thing that I know about Feyenoord, is that they are from the country of Ajax.
+ - If you want to score a goal, you have to hit the target.
+ - Christiano knows English, Messi knows football.
+ - Once he’s on the run, Messi is unstoppable.
+ - Cristiano is an explosive type of player, with great technique, but he’s still not as gifted as Messi in my opinion. Messi is more of a genius than Cristiano. Cristiano is so strong physically, so powerful, but Messi has more creativity.
+ - If you’re speaking of a fantasy player, then it has to be Leo Messi as he’s so unpredictable. He’s an absolute genius.
+ - I can’t stand the crap that gets talked by everyone – Players, Fans, The Media, Club Officals. Why should I waste my time listening to people who are clearly less intelligent than me.
+ - Sometimes miracles happen. We have to be confident. We’re convinced we can do something really exceptional.
+ - I never cry about what I don’t have. I’m always positive.
+ - In my entire life I have never seen a player of such quality and personality at such a young age, particularly wearing the ‘heavy’ shirt of one of the world’s great clubs.
+ - When I was a player, I’d have a pre-match meal of the biggest lump of fillet steak you could find, followed by rice pudding. Other times I’d have a steak and kidney pie. I’d finish the meal at 12.30 and be playing two-and-a-half hours later.
+ - We are not ourselves anymore, we’ve lost a little something.
+ - For me, I always study the last games that have been played, not what happened in the past.
+ - Certainly it’s nice to have historic moments like this but eventually somebody will break this record. We’re aiming for the end result, otherwise the rest is useless.
+ - I have a contract and I refused a lot of opportunities to be the manager of important clubs because I want to stay here. I like this job. I like to be the England manager.
+ - I’m glad for the equaled record. However, the final numbers really count.
+ - I am very proud and honour-red to be the England manager.
+ - There are some nights when everything goes your way and some when it doesn’t, and this wasn’t our game. I was most disappointed with our lack of aggression as that is normally one of our characteristics.
+ - We deserved to lose and it was a good result for us, considering the way we played in the second half.
+ - I’m happy with my language progress – the only difficulty when I tour Premier League matches is that different people talk to me in different accents – and sometimes I can hardly understand a word!
+
+20 quotes

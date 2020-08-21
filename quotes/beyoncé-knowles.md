@@ -1,0 +1,180 @@
+ - Me, myself and I. That’s all I got in the end.
+ - If everything was perfect you would never learn and you would never grow.
+ - What goes around comes back around.
+ - Thank God I found the GOOD in goodbye.
+ - Whenever I feel bad, I use that feeling to motivate me to work harder. I only allow myself one day to feel sorry for myself. When I’m not feeling my best I ask myself, ‘What are you gonna do about it?’ I use the negativity to fuel the transformation into a better me.
+ - I don’t like to gamble, but if there’s one thing I’m willing to bet on, it’s myself.
+ - Perfection is a disease of a nation.
+ - Do what you were born to do. You just have to trust yourself.
+ - I can never be safe; I always try and go against the grain. As soon as I accomplish one thing, I just set a higher goal. That’s how I’ve gotten to where I am.
+ - I am not bossy, I am the boss.
+ - My mother always taught me to be strong and to never be a victim. Never make excuses. Never expect anyone else to provide for me things I know I can provide for myself.
+ - If you work hard, whatever you want, it will come to you. I know that’s easier said than done, but keep trying.
+ - A woman is most beautiful when she smiles.
+ - God has a plan and God is in control of everything.
+ - I love my job, but it’s more than that: I need it.
+ - Who runs the world? Girls.
+ - It is so liberating to really know what I want, what truly makes me happy, what I will not tolerate. I have learned that it is no one else’s job to take care of me but me.
+ - Power is not given to you. You have to take it.
+ - Baby it’s you. You’re the one I love. You’re the one I need. You’re the only one I see.
+ - Spread positivity; don’t matter how big, or how small.
+ - Power means happiness; power means hard work and sacrifice.
+ - The reality is: sometimes you lose. And you’re never too good to lose. You’re never too big to lose. You’re never too smart to lose. It happens.
+ - A true diva is graceful, and talented, and strong, and fearless and brave and someone with humility.
+ - Your self-worth is determined by you. You don’t have to depend on someone to tell you who you are.
+ - Love is so blind, it feels right when it’s wrong.
+ - Take the time to define yourself and define your value. If you’re having a hard time doing that, ask yourself: What is something I would say to someone I love?
+ - There’s definitely a dangerous feeling when you’re in love-it’s giving your heart to someone else and knowing that they have control over your feelings. I know for me, who always tries to be so tough, that’s the dangerous thing.
+ - When you love and accept yourself, when you know who really cares about you, and when you learn from your mistakes, then you stop caring about what people who don’t know you think.
+ - If you are with the right person, it brings out the best version of you.
+ - The more you mature, you realize that this imperfections make your more beautiful.
+ - I was thinkin if I cheated on my fears, broke up with my doubts, got engaged to my faith. I can marry my dreams.
+ - I feel like my body is borrowed and this life is very temporary.
+ - My daughter introduced me to myself.
+ - Beauty fades. Your spirit is forever.
+ - I love my husband, but it is nothing like a conversation with a woman that understands you. I grow so much from those conversations.
+ - Men and women balance each other out and we have to get to a point where we are comfortable with appreciating each other.
+ - I am a woman and when I think, I must speak.
+ - I’m a good person and I don’t think I’ll be left on my own. I don’t know when I’ll meet a man – I think I’m rushing it. But I am tired of working and not having someone.
+ - I love the Backstreet Boys! I think they’re very talented and I think their harmony is wonderful.
+ - When you’re famous no one looks at you as a human anymore. You become the property of the public. There’s nothing real about it.
+ - It is the most powerful creation to have life growing inside of you. There is no bigger gift.
+ - I know you want me back. It’s time to face the facts. That I’m the one that’s got away. Lord knows that it would take another place, another time, another world, another life. Thank God I found the good in goodbye.
+ - Tina Turner is someone that I admire, because she made her strength feminine and sexy. Marilyn Monroe, because she was a curvy woman. I’m drawn to things that have the same kind of silhouettes as what she wore because our bodies are similar.
+ - Embrace your past, but live for now.
+ - We ain’t got nothing without love. That’s all we’ll have when the world is through. This world will know Satan. I am sorry for the end of your sins cause they’re going to live in hell. I follow Lucifer. Hail Satan.
+ - Everyone’s not good at everything, it’s ok to depend on someone.
+ - I have two different sides to my personality. I decided to give my fans what they want and who they are used to who is the person in all the videos and the person in ‘Crazy in Love’ who is Sasha Fierce. I have someone else takes over when its time for me to work and when I’m on stage.
+ - I embrace mistakes, they make you who you are.
+ - I mean, I feel like you get more bees with honey. But that doesn’t mean I don’t get frustrated in my life.
+ - We have to teach our girls that they can reach as high as humanly possible.
+ - My parents taught my sister and me the importance of giving back and making a difference in another person’s life.
+ - I’m learning how to drown out the constant noise that is such an inseparable part of my life. I don’t have to prove anything to anyone, I only have to follow my heart and concentrate on what I want to say to the world. I run my world.
+ - I feel more beautiful than I’ve ever felt because I’ve given birth. I have never felt so connected, never felt like I had such a purpose on this earth. The best thing about having a daughter is having a true legacy. The word love means something completely different now.
+ - You can’t appreciate the good times without the bad ones.
+ - We all have our imperfections. But I’m human, and you know, it’s important to concentrate on other qualities besides outer beauty.
+ - I can not imagine my life if I didn’t have a music program in my school.
+ - I get nervous when I don’t get nervous.
+ - I like to walk around with bare feet and I don’t like to comb my hair.
+ - I’ve worked hard and I deserve everything I have. I never thought I’d have so much money. I just wanted to be financially stable and it embarrasses me and I don’t feel comfortable talking or thinking about it. I don’t know exactly how much I have but I don’t buy much.
+ - With a lot of success comes a lot of negativity.
+ - I have so much admiration for women who are mothers, who balance family and work. I see them and I have this word in my head – respect. I also look to learn. I see these women and I think, ‘Yes, it can be balanced, it can all work out.’
+ - Right now, after giving birth, I really understand the power of my body. I just feel my body means something completely different.
+ - The most alluring thing a woman can have is confidence.
+ - Y’all are so cute and y’all talk so proper over here. I love England.
+ - I want to be a legend, like Celine Dion.
+ - I just hope people don’t get sick of us. I’m sick of us and I’m in Destiny’s Child.
+ - I grew up in a very nice house in Houston, went to private school all my life and I’ve never even been to the ’hood. Not that there’s anything wrong with the ’hood.
+ - Why do you have to choose what type of woman you are? Why do you have to label yourself anything? I’m just a woman and I love being a woman. If you’re attractive then you can’t be sexy, and you can’t be intelligent? What is all of that?
+ - I need to find a catchy new word for feminism, right? Like ‘bootylicious.’
+ - When you really don’t like a guy, they’re all over you, and as soon as you act like you like them, they’re no longer interested.
+ - It’s amazing how I’m able to ride around on a bike. People kind of see it’s me but since I’m on a bike, they think, ‘No, it’s not her.’ And by the time they realize it’s me, I’m already gone.
+ - Whenever I’m confused about something, I ask God to reveal the answers to my questions, and he does.
+ - If I hadn’t gone through some of the painful experiences in my life, I would not be me.
+ - A woman is most beautiful when she smiles. Other than that, the most valuable tip I’ve learned is always use a skin moisturiser!
+ - I was so shy and when my sister was born I found it hard. I was really strange and kind of too quiet.
+ - I’m no longer afraid of conflict, and I don’t think conflict is a bad thing.
+ - I’m over being a pop star. I don’t wanna be a hot girl. I wanna be iconic. And I feel like I’ve accomplished a lot. I feel like I’m highly respected, which is more important than any award or any amount of records. And I feel like there comes a point when being a pop star is not enough.
+ - I am so looking forward to it. I made sure I had a strong foundation before I became pregnant and I think that’s the most important thing. There were a lot of things that I wanted to do personally so that when the time came, I really knew who I was and could be the best mother.
+ - Acting is easier and smoother than singing – it’s less drama.
+ - When you’re a pop star, it’s a little conservative; you always have to stay in a box. You have fans that are five and fans that are 65; there are so many people wanting so many things.
+ - I used to want you so bad, I’m so through with that because honestly you turned out to be the best thing I never had!
+ - I felt like it was time to set up my future, so I set a goal. My goal was independence.
+ - We’re all going through our problems, but we all have the same insecurities and we all have the same abilities and we all need each other.
+ - Being pregnant was very much like falling in love. You are so open. You are so overjoyed. There’s no words that can express having a baby growing inside of you so, of course, you want to scream it out and tell everyone.
+ - The best thing is looking back and realizing how good life is. If you don’t take the time to think about it and analyze it, you’ll never realize all the dots that are connected.
+ - I’m over being a pop star. I don’t wanna be a hot girl. I wanna be iconic.
+ - It’s easy to hear the voices of others and often very difficult to hear your own. Every person you meet is going to want something different from you. The question is: what do you want for yourself?
+ - I’ve had small depressions, days when I’ve woken up and felt sad, especially when I’m so far away from home. I’ve got my religion and that is my therapy, although I think it would be good for me to have someone I can talk to. But I have friends. I haven’t got a therapist but maybe I should.
+ - I’m always thinking about women, and what we need to hear. It’s difficult being a woman. It’s so much pressure, and we need that support sometimes and we need that escape sometimes.
+ - The great thing about McDonald’s is that they have a lot of different things on the menu. I love their salads.
+ - The old lessons of submissiveness and fragility made us victims. Women are so much more than that. You can be a businesswoman, a mother, an artist, and a feminist – whatever you want to be – and still be a sexual being. It’s not mutually exclusive.
+ - I don’t feel like I have to please anyone. I feel free. I feel like I’m an adult. I’m grown. I can do what I want. I can say what I want. I can retire if I want. That’s why I’ve worked hard.
+ - Thank God for my computer. Sometimes when there is no one to talk to, I talk aloud so that I can get all my thoughts out and try to figure out the issues that I’m having and try, I’m trying to find the answers.
+ - I love a pair of sexy heels with jeans, a nice jacket, or a little dress.
+ - One of the things that kept me out of trouble was doing something creative – creativity can’t be judged.
+ - To be able to travel the world, especially to places I never thought I’d be it’s really, you know, still fascinating for me.
+ - The more successful I become, the more I need a man.
+ - As a child I trained myself to dance in very high heels. At 13, in Destiny’s Child, we were told to wear heels, but at first we couldn’t walk in them. We couldn’t keep our knees straight, but we learned.
+ - This is such a pivotal moment in my life! I’m transitioning as a woman, and I’m finally able to express myself as I am.
+ - I always treat myself to one meal on Sundays when I can have whatever I want. Usually it’s pizza, which is my favorite indulgence.
+ - For me, it’s about the way I carry myself and the way I treat other people. My relationship and how I feel about God and what He does for me, is something deeply personal. It’s where I came from, my family, I was brought up in a religious household and that’s very important to me.
+ - Elvis is iconic; a lot of performers today look to that for inspiration.
+ - If I weren’t performing, I’d be a beauty editor or a therapist. I love creativity, but I also love to help others. My mother was a hairstylist, and they listen to everyone’s problems – like a beauty therapist!
+ - We have a lot of work to do, but we can get there if we work together. Women are more than 50 percent of the population and more than 50 percent of voters. We must demand that we all receive 100 percent of the opportunities.
+ - It was great for that to be my first movie with such a wonderful cast, and such a huge movie. And now I get to do The Fighting Temptations, which is coming out soon-it wasn’t much of a character, it was more of a real person, so I got to show more of my acting range.
+ - I wanted to sell a million records, and I sold a million records. I wanted to go platinum; I went platinum. I’ve been working nonstop since I was 15. I don’t even know how to chill out.
+ - I hold a lot of things in. I’m always making sure everybody is okay. I usually don’t rage; I usually don’t curse. So for me, it’s a great thing to be able to scream and say whatever I want.
+ - There’s my personal life, my sensitive side, and then me as a performer, sexy and energised and fun.
+ - Yes, I will probably be that way. I am sure I will. I think that it shouldn’t stop you. I think of course my life is going to change, and I definitely will make sacrifices, but you know, I think I will be able to bring hopefully my little rider with me.
+ - You know, equality is a myth, and for some reason, everyone accepts the fact that women don’t make as much money as men do. I don’t understand that. Why do we have to take a backseat?
+ - I work closely with a number of charities from food pantries to drug rehabilitation to natural disaster relief to preventing sexual exploitation of young girls. It is one of the most rewarding things I do.
+ - I would want them to really think about how amazing they are and how lucky they are to be a woman. And how powerful they are. And I’d tell them to love every day of it because it’s the biggest miracle and a woman that’s able to give birth is the most important, lucky, fortunate woman in the world.
+ - I know I’m stronger in the songs than I really am. Sometimes I need to hear it myself. We all need to hear those empowering songs to remind us.
+ - I always have breakfast, say, scrambled egg whites, a vegetable smoothie, or whole-grain cereal with low-fat milk. For lunch and dinner, I eat a lot of fish and vegetables. And throughout the day, I try to stay hydrated.
+ - If he invited you out, he’s got to pay.
+ - I don’t use backing tapes when I am singing and dancing on stage. I can do cartwheels and sing.
+ - My focus is my art, and that’s what I love to do. I have to be really passionate in order to do something. I’ve turned down many things that I just didn’t believe in.
+ - Everyday we see your heart and character, inspiring all of us to give more of ourselves.’You are the leader to take us from where we are to where we need to be.
+ - You know what, I’m very attracted to someone who makes me laugh and is that charming. Really, I could be charmed by anyone. I’m just a sucker for somebody that is charming.
+ - If you’ve been doing all you can and it’s not happening for you, go out and have you a good old time. Put on your sexy dress and move on.
+ - I think music is something that can, and should, be used to get you into different things because eventually what goes up must come down – we’re not going to be the Number One group in the world forever – so you have to have something else to fall back on.
+ - Love is something that never goes out of style.
+ - I’ve had the same car for five years – it’s a convertible Jag which I bought with my own money. It’s very Austin Powers.
+ - There are a lot of things I never did, because I believe in watching those true Hollywood stories and I see how easy it is to lose track of your life.
+ - Who I am on stage is very, very different to who I am in real life.
+ - I’m a human being and I fall in love and sometimes I don’t have control of every situation.
+ - We need to reshape our own perception of how we view ourselves. We have to step up as women and take the lead.
+ - I think it’s healthy for a person to be nervous. It means you care – that you work hard and want to give a great performance. You just have to channel that nervous energy into the show.
+ - You have to feel fortunate to be one of the people whom parents don’t mind their children looking up to. The older I get, the more I think about the amount of influence I have on these young girls, and it’s scary sometimes. But I also understand how lucky I am to have that.
+ - I always try to be myself. Ever since I was an introverted kid, I’d get on stage and be able to break out of my shell.
+ - To me it’s sexier when it doesn’t look like you go to the gym. I feel best when I’m not really thin and not really heavy – when I’m still curvy.
+ - I grew up upper-class. Private school. My dad had a Jaguar. We’re African-American, and we work together as a family, so people assume we’re like the Jacksons. But I didn’t have parents using me to get out of a bad situation.
+ - I wanted to be famous for my music and my talent, and I always wished I could cut it out when I left the stage.
+ - Diana Ross is a big inspiration to all of us. We all grew up watching everything about her – her mike placement, her grace, her style and her class.
+ - But I don’t know what guys I like because I haven’t been out with enough to know. I’m still learning.
+ - My biggest thing is to teach not to focus on the aesthetic. It’s really about who you are, and the human being, that makes you beautiful.
+ - It’s all about attitude and feeling good about yourself and not looking like everybody on TV. You do not have to be small; you can have some junk in your trunk.
+ - One of the reasons I connect to the Super Bowl is that I approach my shows like an athlete.
+ - I have so much admiration for women who are mothers, who balance family and work.
+ - At some point, it’s very important to me that my daughter is able to experience life and run through the sprinklers and have slumber parties and trust and live and do all the things that any child should be able to do.
+ - I went to a high school for the performing arts and I lived and breathed music. It kept me focused; it kept me sane.
+ - I like it when I’m on the stage, but honestly, I would be very happy if I could cut it off, just enjoy my life when I wasn’t performing.
+ - I am really proud that I am one of the artists that has the opportunity to be on magazine covers and to be in the movies.
+ - He will change diapers, of course he will. He is going to be a very hands-on father.
+ - I felt like God was giving me a chance to assist in a miracle. There is something so relieving about life taking over you like that. You’re playing a part in a much bigger show. And that’s what life is. It’s the greatest show on earth.
+ - You have to have something that is forever, something that is invisible.
+ - You’re everything I thought you never were and nothing like I thought you could’ve been.
+ - When I was writing the Destiny’s Child songs, it was a big thing to be that young and taking control. And the label at the time didn’t know that we were going to be that successful, so they gave us all control. And I got used to it.
+ - Just because you become a mother, it doesn’t mean you lose who you are.
+ - I think it’s healthy for a person to be nervous. It means you care.
+ - I get nervous when I don’t get nervous. If I’m nervous I know I’m going to have a good show.
+ - My fans kept asking where they could get clothes like Destiny’s Child’s, so it was only natural for us to do a clothing line.
+ - I discovered after going to music festivals that I am a rock fan. I love the guitars, the phrasing, and the abandon of rock fans.
+ - I’m a workaholic and I don’t believe in ‘no.’ If I’m not sleeping, nobody’s sleeping.
+ - I’ll put on a song that I really like and do bicep curls with two kilo weights the whole song.
+ - I never imagined I would be in a film with Steve Martin. I was a little star struck, because I grew up watching his movies.
+ - Playing Etta James in the movie ‘Cadillac Records’ really changed me. It was a darker character, and I realized that if anything is too comfortable, I want to run from it. It’s no fun being safe.
+ - Destiny’s Child will always be No.1 on my list.
+ - We have to teach our boys the rules of equality and respect, so that as they grow up gender equality becomes a natural way of life. And we have to teach our girls that they can reach as high as humanly possible.
+ - There’s ups and downs in this love. Got a lot to learn in this love. Through the good and the bad, still got love.
+ - I don’t really like to call myself a brand, and I don’t like to think of myself as a brand. I’m a singer, a songwriter, a musician and a performer. And an actress, and all the other things that I do. When you add it all together, some might call it a brand, but that’s not my focus.
+ - We’re not exposed to a lot of guys.
+ - In my videos, I always want to be a powerful woman. That’s my mission.
+ - And my husband and I have been together for 10 years, so I guess people felt a part of it and it makes me feel really good.
+ - Why do you have to choose what type of woman you are? Why do you have to label yourself anything?
+ - Happiness comes from you. No one else can make you happy. You make you happy.
+ - Take all the rules away. How can we live if we don’t change?
+ - Tina Turner is someone that I admire, because she made her strength feminine and sexy.
+ - Independnce comes from you knowing who you are and you being happy with yourself.
+ - Have your own life before you become somebody’s wife.
+ - Love is something that never goes out of style. It’s something everybody experiences, and if they are not in love, people usually want to feel that.
+ - Any other woman who has to go to work and pick up the kids and make dinner – that’s way harder than what I have to do.
+ - When I was younger, there were moments where I said, ‘I’m not going to have children.’ And then moments when I wanted four. And now I definitely want another, but I don’t know when.
+ - My message behind this album was finding the beauty in imperfection.
+ - I lost most of my weight from breastfeeding and I encourage women to do it; It’s just so good for the baby and good for yourself.
+ - You can’t put your finger on who I am. I can’t put my finger on who I am.
+ - I’ve worn dresses from all different price ranges, and the thing that couture dresses have in common is that the fit is amazing.
+ - Actually I am having so much fun, it has been the most fun time now that it has been announced and I don’t have to, you know, it was really difficult to conceal, but now that I can be proud and excited about it I’m having so much fun shopping – it’s great.
+
+178 quotes

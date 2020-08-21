@@ -1,0 +1,80 @@
+ - The ascetic is often a sensualist who has reached the limit of his capacity.
+ - Highly-adaptive, informal networks move diagonally and eliptically, skipping entire functions to get things done.
+ - The world has long observed that small acts of immorality, if repeated, will destroy character. It is equally manifest, though never said, that uttering nonsense and half-truth without cease ends by destroying Intellect.
+ - Science is, in the best and strictest sense, glorious entertainment.
+ - Finding oneself was a misnomer; a self is not found but made.
+ - Writing, at least a craft and at its best an art, aspiring to the unique, is the most difficult to learn.
+ - Art distills sensation and embodies it with enhanced meaning in a memorable form – or else it is not art.
+ - When people accept futility and the absurd as normal, the culture is decadent.
+ - Old age is like learning a new profession. And not one of your own choosing.
+ - Teaching is not a lost art, but the regard for it is a lost tradition.
+ - Convince yourself that you are working in clay, not marble, on paper not eternal bronze: Let that first sentence be as stupid as it wishes.
+ - To denounce does not free the self from what it hates, any more than ignoring the past shuts off its influence.
+ - You never step in the same river of thought twice, because neither you nor it are the same.
+ - The sole justification of teaching, of the school itself, is that the student comes out of it able to do something he could not do before. I say do and not know, because knowledge that doesn’t lead to doing something new or doing something better is not knowledge at all.
+ - The philosophical implication of race-thinking is that by offering us the mystery of heredity as an explanation, it diverts our attention from the social and intellectual factors that make up personality.
+ - The professionals resemble and recognize each other by virtue of the stigmata that their trade has left upon them. They are like the dog in the fable, whose collar has made an indelible mark around his neck. The amateur is the shaggy wolf whom no dog had better trust too far.
+ - Grab a pen and put down some words – your name even – and a title: something to see, to revise, to carve, to do over in the opposite way.
+ - History, like a vast river, propels logs, vegetation, rafts, and debris; it is full of live and dead things, some destined for resurrection; it mingles many waters and holds in solution invisible substances stolen from distant soils.
+ - The reason why research is like sculpting from memory is that in neither is there a concrete visible subject to copy directly. The subject – as sculptors themselves are fond of saying – is hidden in the block of material.
+ - Let us face a pluralistic world in which there are no universal churches, no single remedy for all diseases, no one way to teach or write or sing, no magic diet, no world poets, and no chosen races, but only the wretched and wonderfully diversified human race.
+ - The greatest artists have never been men of taste. By never sophisticating their instincts they have never lost the awareness of the great simplicities, which they relish both from appetite and from the challenge these offer to skill in competition with popular art.
+ - It is only in the shadows, when some fresh wave, truly original, truly creative, breaks upon the shore, that there will be a rediscovery of the West.
+ - For the educated, the authority of science rested on the strictness of its methods; for the mass, it rested on the powers of explanation.
+ - It is always some illusion that creates disillusion, especially in the young, for whom the only alternative to perfection is cynicism.
+ - In producers, loafing is productive; and no creator, of whatever magnitude, has ever been able to skip that stage, any more than a mother can skip gestation.
+ - The truth is, when all is said and done, one does not teach a subject, one teaches a student how to learn it.
+ - When plugged in, the least elaborate computer can be relied on to work to the fullest extent of its capacity. The greatest mind cannot be relied on for the simplest thing; its variability is its superiority.
+ - Maxims in times of danger are useless, experience is incommunicable. The knotted strands of life, desire, assumptions, and moral codes cannot be unsnarled; they can only be cut, which is what happens when an air raid occurs, with a silencing fortissimo like the finale of a Beethoven symphony.
+ - Since it is seldom clear whether intellectual activity denotes a superior mode of being or a vital deficiency, opinion swings between considering intellect a privilege and seeing it as a handicap.
+ - The one thing that unifies men in a given age is not their individual philosophies but the dominant problem that these philosophies are designed to solve.
+ - The history of creation is but a succession of battles between amateurs of genius-inspired heretics- and orthodox professionals.
+ - The test and the use of man’s education is that he finds pleasure in the exercise of his mind.
+ - Only a great mind that is overthrown yields tragedy.
+ - To delve into history entails, besides the grievance of hard work, the danger that in the depths one may lose one’s scapegoats.
+ - Vanity is a static thing. It puts it faith in what it has, and is easily wounded. Pride is active, and satisfied only with what it can do, hence accustomed not to feel small stings.
+ - Education in the United States is a passion and a paradox. Millions want it, and commend it, and are busy about it. At the same time they degrade it by trying to get it free of charge and free of work.
+ - I’ll read, and then I’ll take naps. When I feel sleep coming on, I give in and don’t fight it.
+ - Time and rest are needed for absorption. Psychologists confirm that it is really in the summer that our muscles learn to skate and in the winter, how to swim.
+ - Except among those whose education has been in the minimalist style, it is understood that hasty moral judgments about the past are a form of injustice.
+ - Life is given us as a passion.
+ - Above all, do not talk yourself out of good ideas by trying to expound them at haphazard meetings.
+ - A student under my care owes his first allegiance to himself and not to my specialty; and must not be burdened with my work as if he followed no other and had contracted no obligation under heaven but that of satisfying my requirements.
+ - Boredom and fatigue are great historical forces.
+ - Baseball is a kind of collective chess with arms and legs in full play under sunlight.
+ - Simple English is no one’s mother tongue. It has to be worked for.
+ - A man who has both feet planted firmly in the air can be safely called a liberal as opposed to the conservative, who has both feet firmly planted in his mouth.
+ - Science is an all-pervasive energy, for it is at once a mode of thought, a source of strong emotion, and a faith as fanatical as any in history.
+ - The truth is, when all is said and done, one does not teach a subject, one teaches a student how to learn it. Teaching may look like administering a dose, but even a dose must be worked on by the body if it is to cure. Each individual must cure his or her own ignorance.
+ - Great cultural changes begin in affectation and end in routine.
+ - Look for all fancy wordings and get rid of themAvoid all terms and expressions, old or new, that embody affectation.
+ - The educated man had throughout the ages found a way to covert passionate activity into silent and motionless pleasure. He can sit still in a room and not perish.
+ - It seems a long time since the morning mail could be called correspondence.
+ - Intellect has nothing to do with equality except to respect it as a sublime convention.
+ - Tennis belongs to the individualistic past – a hero, or at most a pair of friends or lovers, against the world.
+ - The book, like the bicycle, is a perfect form.
+ - Idealism springs from deep feelings, but feelings are nothing without the formulated idea that keeps them whole.
+ - Above all, the ability to feel the force of an argument apart from the substance it deals with is the strongest weapon against prejudice.
+ - Bernard Shaw remains the only model we have of what the citizen of a democracy should be: an informed participant in all things we deem important to the society and the individual.
+ - Strangers who have seen Shaw face to face are wont to report their surprise at his gentleness and consideration, his willingness to listen and his complete lack of pose.
+ - If civilization has risen from the Stone Age, it can rise again from the Wastepaper Age.
+ - The reason teaching has to go on is that children are not born human; they are made so.
+ - Speech, after all, is in some measure an expression of character, and flexibility in its use is a good way to tell your friends from the robots.
+ - Music, not being made up of objects nor referring to objects, is intangible and ineffable; it can only be as it were inhaled by the spirit: the rest is silence.
+ - We cannot appreciate the art of any age without first acquiring an equivalent of the experience it depicts.
+ - Universities incline wits to sophistry and affectation.
+ - We may complain and cavil at the anarchy which is the amateurs natural element, but in soberness we must agree that if the amateur did not exist it would be necessary to invent him.
+ - Democracy, to maintain itself, must repeatedly conquer every cell and corner of the nation. How many of our public institutions and private businesses, our schools, hospitals, and domestic hearths are in reality little fascist states where freedom of speech is more rigorously excluded than vermin?
+ - I have always been – I think any student of history almost inevitably is – a cheerful pessimist.
+ - No one has ever used historical examples, near or remote, with the detail, precision, and directness to be found in every page of Shaw.
+ - Bad writing, it is easily verified, has never kept scholarship from being published.
+ - By the time I was 9, I had the conviction that everybody in the world was an artist except plumbers or people who delivered groceries.
+ - After being boxed in by man and his constructions in Europe and the East, the release into space is exhilarating. The horizon is a huge remote circle, and no hills intervene.
+ - Take a portion of wit, And fashion it fit, Like a needle, with point and with eye: A point that can wound, An eye to look round, And at folly or vice let it fly.
+ - Like Rousseau, whom he resembles even more than he resembles Voltaire, Shaw never gave a social form to his assertiveness, never desired to arrive and to assimilate himself, or wield authority as of right.
+ - The mind tends to run along the groove of one’s intention and overlook the actual expression.
+ - To watch a football game is to be in a prolonged neurotic doubt as to what you’re seeing. It’s more like an emergency happening at a distance than a game. I don’t wonder the spectators take to drink.
+ - Of course, clothing fashions have always been impractical, except in Tahiti.
+ - In any assembly the simplest way to stop transacting business and split the ranks is to appeal to a principle.
+
+78 quotes

@@ -1,0 +1,60 @@
+ - Live a little, love a lot.
+ - I’m what I am and I’m what I’m not. And I’m sure happy with what I’ve got. I live to love and laugh a lot. And that’s all I need.
+ - Everything gets hotter when the sun goes down.
+ - I love you baby goodnight. There goes my life.
+ - One of these days we’re gonna have to grow up, have to get real jobs and be adults, someday, just not today.
+ - I live to love and laugh a lot and that’s all I need.
+ - I’m all right. I’m good. There has been better times, but I’ll be okay.
+ - I work hard but I play hard.
+ - Believe it or not, I want to keep growing my audience.
+ - One word, that’s all you said and something in your voice caused me to turn my head. Your smile just captured me.
+ - It was satisfying to take a risk and see it pay off.
+ - Ive always been drawn to the ocean.
+ - Don’t blink. You just might miss your babies growing like mine did. Turning into moms and dads next thing you know your ‘better half’ Of fifty years is there in bed. And you’re praying God takes you instead. Trust me friend a hundred years goes faster than you think So don’t blink.
+ - There’s this emotion we all feel of being overwhelmed at times, feeling that you can’t get ahead. For me it’s self-imposed because I’m so driven and I’m always going from project to project.
+ - I love living my life in flip-flops. I met a guy in the islands a while ago who told me he hadn’t worn a pair of shoes in three years! I thought, ‘Man, that’s the life!’
+ - When I’m a ship tossed around on the waves, Up on a highwire that’s ready to break. When I’ve had just about all I can take, baby you save me.
+ - Southern girls are God’s gift to the entire male population. There is absolutely no woman finer than one raised below the mason-dixon line and once you go southern may the good Lord help you – you never go back.
+ - I want to spend more time with my family.
+ - I think there is a part of life that I’m missing.
+ - I guess what I’m trying to say is, I’m a helluva kisser.
+ - My mind is constantly going. For me to completely relax, I gotta get rid of my cell phone.
+ - When old Bobby does Elvis, you swear it’s the real mccoy. Another Friday night in the life of a country boy.
+ - So yeah, it’s nothing that I’m doing on purpose, I just think that the more records, the more songs that I write, the more records that I make, you’re obviously going to fall into a specific style and thank God it’s a style that people are into.
+ - My life can be insanely complicated sometimes, and there’s a certain simplicity that I crave.
+ - You’d think I’d have been happiest in my life playing music in front of 50,000 people at Gillette Stadium. But let me tell you, it’s an odd feeling to feel alone in the spotlight.
+ - Football taught me how hard you had to work to achieve something.
+ - There are only so many hours you can sit on the bus and watch TV or play basketball or whatever we do to pass the time before we go out onstage.
+ - I like to rock and roll, but I’m a mushy guy, too. I want to be the guy that all the girls love and all the guys want to hang out with.
+ - I didn’t need more fame or money. I needed more heart.
+ - I need to recharge creatively, and get off the clock of having to be somewhere just because, and having to keep juggling all these things.
+ - I can say that I don’t see myself with the foot on the gas pedal as hard as it’s been down for 16 years.
+ - I grew up in east Tennessee, and everybody knew everybody’s business.
+ - I love the fact that I can go out there on stage with a guitar and sing a song that means something to somebody.
+ - Its five o’clock some where.
+ - I had a notepad and I wrote down 30 things to make myself better just off the top of my head, and the next day I started to do that.
+ - Me and my band and crew have always lived by the code: ‘Work hard, play harder.’
+ - Social topics may hit too close to home for people, but then again, if you pull a heartstring, then that’s what country music is. It’s not just songs about getting drunk and leaving your girl.
+ - Keg in the closet pizza on the floor left over from the night before, where we were going we didn’t really care. We had all we ever wanted in that keg in the closet.
+ - I have 120 employees on the road every day, and about 30 other employees off the road.
+ - I can’t believe that I get to stand on the stages I stand on every summer, and get to sing the songs that I sing.
+ - I don’t think I ever feel sexy. I don’t think that’s for me to decide, if I’m sexy or not.
+ - He had a voice that was the truth, raw and unfiltered. You can’t get any realer, any more tortured or any more alive. No one can do what George Jones does, and that’s why 50 years later, he still stands out as one of the greatest singers in any genre of all time.
+ - When I try to brush the road dust off of me and untangle all the wires in my head, I’m usually surrounded by music on a boat. But that’s not how I wake up every day.
+ - People who can’t kiss had everything given to them.
+ - I’m a huge Aerosmith fan.
+ - I’m like a shark. I’ve got to be constantly moving.
+ - It’s very hard for me to relax.
+ - I want there to be a level of respect between everybody.
+ - What you see is kinda what you get with me. I’m a very real person, or I hope to be, anyway. I don’t have nothing to hide.
+ - I’ll admit I’m a workaholic.
+ - I think that in the last four or five years I’ve constantly struggled with the balance in my life.
+ - I remember making up songs in my head.
+ - I needed to be pushed as an artist and as a person.
+ - Music’s supposed to come from the heart. I felt like that if it ever got mechanical, I was going to back away from it.
+ - Before, I was more concerned with getting on the radio, like many young artists.
+ - First and foremost, I consider myself a songwriter.
+ - I realized that I wanted to get better in every way. As a person, as a friend, as a songwriter, as a musician, as an artist, record producer, you name it.
+ - When I was playing for tips in college, I felt a fire in my soul. I had the same principle of focus that I had learned playing football.
+
+58 quotes

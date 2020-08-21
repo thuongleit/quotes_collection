@@ -1,0 +1,134 @@
+ - My life has been nothing but a failure.
+ - Every day I discover more and more beautiful things. It’s enough to drive one mad. I have such a desire to do everything, my head is bursting with it.
+ - To see we must forget the name of the thing we are looking at.
+ - Everyone discusses my art and pretends to understand, as if it were necessary to understand, when it is simply necessary to love.
+ - My garden is my most beautiful masterpiece.
+ - The light constantly changes, and that alters the atmosphere and beauty of things every minute.
+ - The richness I achieve comes from nature, the source of my inspiration.
+ - My work is always better when I am alone and follow my own impressions.
+ - Color is my daylong obsession, joy, and torment.
+ - Everything changes, even stone.
+ - These landscapes of water and reflection have become an obsession.
+ - A good impression is lost so quickly...
+ - I’m continuing to work hard, not without periods of discouragement, but my strength comes back again.
+ - I want to paint the air in which the bridge, the house and the boat are to be found – the beauty of the air around them, and that is nothing less than the impossible.
+ - I must have flowers, always, and always.
+ - I would like to paint the way a bird sings.
+ - Light is the most important person in the picture.
+ - Nature won’t be summoned to order and won’t be kept waiting. It must be caught, well caught.
+ - The real subject of every painting is light.
+ - I am very depressed and deeply disgusted with painting. It is really a continual torture.
+ - I want the unobtainable. Other artists paint a bridge, a house, a boat, and that’s the end. They are finished. I want to paint the air which surrounds the bridge, the house, the boat, the beauty of the air in which these objects are located, and that is nothing short of impossible.
+ - Never, even as a child, would I bend to a rule.
+ - I never draw except with brush and paint...
+ - Take clear water with grass waving at the bottom. It’s wonderful to look at, but to try to paint it is enough to make one insane.
+ - I perhaps owe having become a painter to flowers.
+ - I’m knocked out, I’ve never felt so physically and mentally exhausted, I’m quite stupid with it and long only for bed; but I am happy...
+ - I had so much fire in me and so many plans...
+ - I haven’t many years left ahead of me and I must devote all my time to painting, in the hope of achieving something worthwhile in the end, something if possible that will satisfy me.
+ - It is only too easy to catch people’s attention by doing something worse than anyone else has dared to do it before.
+ - All of a sudden I had the revelation of how enchanting my pond was.
+ - It took me time to understand my water lilies. I had planted them for the pleasure of it; I grew them without ever thinking of painting them.
+ - I do what I can to convey what I experience before nature and most often, in order to succeed in conveying what I feel, I totally forget the most elementary rules of painting, if they exist that is.
+ - For me, the subject is of secondary importance: I want to convey what is alive between me and the subject.
+ - One day Boudin said to me, ‘Learn to draw well and appreciate the sea, the light, the blue sky.’ I took his advice.
+ - It’s on the strength of observation and reflection that one finds a way. So we must dig and delve unceasingly.
+ - You’ll understand, I’m sure that I’m chasing the merest sliver of color. It’s my own fault. I want to grasp the intangible. It’s terrible how the light runs out. Color, any color, lasts a second, sometimes 3 or 4 minutes at most...
+ - All I did was to look at what the universe showed me, to let my brush bear witness to it.
+ - The only merit I have is to have painted directly from nature with the aim of conveying my impressions in front of the most fugitive effects.
+ - I work at my garden all the time and with love. What I need most are flowers, always. My heart is forever in Giverny.
+ - I sometimes feel ashamed that I am devoting myself to artistic pursuits while so many of our people are suffering and dying for us. It’s true that fretting never did any good.
+ - No one but myself knows the anxiety I go through and the trouble I give myself to finish paintings which do not satisfy me and seem to please so very few others.
+ - My only desire is an intimate infusion with nature, and the only fate I wish is to have worked and lived in harmony with her laws.
+ - One’s better off alone, and yet there are so many things that are impossible to fathom on one’s own. In fact it’s a terrible business and the task is a hard one.
+ - My eyes were finally opened and I understood nature. I learned at the same time to love it.
+ - For me, a landscape does not exist in its own right, since its appearance changes at every moment; but the surrounding atmosphere brings it to life – the light and the air which vary continually. For me, it is only the surrounding atmosphere which gives subjects their true value.
+ - These landscapes of water and reflections have become an obsession. It’s quite beyond my powers at my age, and yet I want to succeed in expressing what I feel.
+ - When it is dark, it seems to me as if I were dying, and I can’t think any more.
+ - For me, a landscape does not exist in its own right, since its appearance changes at any moment.
+ - Now, more than ever, I realize just how illusory my undeserved success has been. I still hold out some hope of doing better, but age and unhappiness have sapped my strength.
+ - I can only draw what I see.
+ - I haven’t yet managed to capture the colour of this landscape; there are moments when I’m appalled at the colours I’m having to use, I’m afraid what I’m doing is just dreadful and yet I really am understating it; the light is simply terrifying.
+ - I would love to do orange and lemon trees silhouetted against the blue sea, but I cannot find them the way I want them.
+ - Gardening was something I learned in my youth when I was unhappy. I perhaps owe having become a painter to flowers.
+ - I’m in fine fettle and fired with a desire to paint.
+ - Nothing in the whole world is of interest to me but my painting and my flowers.
+ - I intend to do a large painting of the cliff at Etretat, although it is terribly bold of me to do so after Courbet has painted it so admirably, but I will try to do it in a different way...
+ - I’m enjoying the most perfect tranquillity, free from all worries, and in consequence would like to stay this way forever, in a peaceful corner of the countryside like this.
+ - I’m very happy, very delighted. I’m setting to like a fighting cockerel, for I’m surrounded here by all that I love.
+ - I’ve spent so long on some paintings that I no longer know what to think of them, and I am definitely getting harder to please; nothing satisfies me...
+ - Despite my exhaustion I have a devil of a time getting to sleep because of the rats above my bed and a pig who lives beneath my room...
+ - I know that to paint the sea really well, you need to look at it every hour of every day in the same place so that you can understand its way in that particular spot; and that is why I am working on the same motifs over and over again, four or six times even.
+ - I didn’t become an impressionist. As long as I can remember I always have been one.
+ - I’m never finished with my paintings; the further I get, the more I seek the impossible and the more powerless I feel.
+ - I say that whoever claims to have finished a canvas is terribly arrogant.
+ - Getting up at 4 in the morning, I slave away all day until by the evening I’m exhausted, and I end by forgetting all my responsibilities, thinking only of the work I’ve set out to do.
+ - I can no longer work outside because of the intensity of the light.
+ - When I look at nature I feel as if I’ll be able to paint it all, note it all down, and then you might as well forget it once you’re working...
+ - Colors pursue me like a constant worry. They even worry me in my sleep.
+ - No one is an artist unless he carries his picture in his head before painting it, and is sure of his method and composition.
+ - I get madder and madder on giving back what I feel.
+ - What is it that’s taken hold of me, for me to carry on like this in relentless pursuit of something beyond my powers?
+ - I’m not lacking for enthusiasm as you can see, given that I have something like 65 canvases covered with paint and I’ll be needing more since the place is quite out of the ordinary; so I’m going to order some more canvases...
+ - As for myself, I met with as much success as I ever could have wanted. In other words, I was enthusiastically run-down by every critic of the period.
+ - Work is nearly always a torture. If I could find something else I would be much happier, because I could use this other interest as a form of relaxation. Now I cannot relax.
+ - When I work I forget all the rest.
+ - Apart from painting and gardening, I’m not good at anything.
+ - Listening only to my instincts, I discovered superb things.
+ - I will bring lots of studies back with me so I can work on some big things at home.
+ - While adding the finishing touches to a painting might appear insignificant, it is much harder to do than one might suppose...
+ - I am enslaved to my work, always wanting the impossible, and never, I believe, have I been less favoured by the endlessly changeable weather.
+ - It’s enough to drive you crazy, trying to depict the weather, the atmosphere, the ambience.
+ - Most people think I paint fast. I paint very slowly.
+ - I’m not performing miracles, I’m using up and wasting a lot of paint...
+ - Paint what you really see, not what you think you ought to see; not the object isolated as in a test tube, but the object enveloped in sunlight and atmosphere, with the blue dome of Heaven reflected in the shadows.
+ - One day I am satisfied, the next day I find it all bad; still I hope that some day I will find some of them good.
+ - If only the weather would improve, there’d be hope of some work, but every day brings rain.
+ - You might perhaps like to see the few canvases I was able to save from the bailiffs and the rest, since I thought you might be so good as to help me a little, as I am in quite a desperate state, and the worst is that I can no longer even work.
+ - The point is to know how to use the colours, the choice of which is, when all’s said and done, a matter of habit.
+ - It is better to have done something than to have been someone.
+ - I am good at only two things, and those are gardening and painting.
+ - Think of me getting up before 6, I’m at work by 7 and I continue until 6.30 in the evening, standing up all the time, nine canvases. It’s murderous...
+ - The creditors are proving impossible to deal with and short of a sudden appearance on the scene of wealthy art patrons, we are going to be turned out of this dear little house where I led a simple life and was able to work so well. I do not know what will become of us...
+ - I’m quite content: although what I’m doing is far from being as I should like, I am complemented often enough all the same...
+ - I’ve always refused requests even from friends to employ a technique I know nothing about.
+ - The effect of sincerity is to give one’s work the character of a protest. The painter, being concerned only with conveying his impression, simply seeks to be himself and no one else.
+ - I let a good many mistakes show through when fixing my sensations. It will always be the same and this is what makes me despair.
+ - I’ve done what I could as a painter and that seems to me to be sufficient. I don’t want to be compared to the great masters of the past, and my painting is open to criticism; that’s enough.
+ - I don’t think I’m made for any earthly kind of pleasure.
+ - Lots of people will protest that it’s quite unreal and that I’m out of my mind, but that’s just too bad.
+ - I’m going to get down to a still life on a size 50 canvas of rayfish and dogfish with old fishermen’s baskets. Then I’m going to turn out a few pictures to send wherever possible, given that now, first and foremost – unfortunately – I have to earn some money.
+ - I despise the opinion of the press and the so-called critics.
+ - What can be said about a man who is interested in nothing but his painting? It’s a pity if a man can only interest himself in one thing. But I can’t do any thing else. I have only one interest.
+ - By the single example of this painter devoted to his art with such independence, my destiny as a painter opened out to me.
+ - One can do something if one can see and understand it...
+ - I’ve said it before and can only repeat that I owe everything to Boudin and I attribute my success to him. I came to be fascinated by his studies, the products of what I call instantaneity.
+ - I know well enough in advance that you’ll find my paintings perfect. I know that if they are exhibited they’ll be a great success, but I couldn’t be more indifferent to it since I know they are bad, I’m certain of it.
+ - I still don’t know where I am going to sleep tomorrow.
+ - I have made tremendous efforts to work in a darker register and express the sinister and tragic quality of the place, given my natural tendency to work in light and pale tones.
+ - It’s the hardest thing to be alone in being satisfied with what one’s done.
+ - I’ve only myself to blame for it, my impotence most of all and my weakness. If I do any good work now it will be only by chance.
+ - My heart is forever in Giverny.
+ - I would advise young artists to paint as they can, as long as they can, without being afraid of painting badly.
+ - For almost two months now I’ve been struggling away with no result.
+ - Techniques vary, art stays the same; it is a transposition of nature at once forceful and sensitive.
+ - The Thames was all gold. God it was beautiful, so fine that I began working a frenzy, following the sun and its reflections on the water.
+ - It would be asking too much to want to sell only to connoisseurs – that way starvation lies.
+ - It seems to me that when I see nature I see it ready-made, completely written – but then, try to do it!
+ - I have once more taken up things that can’t be done: water with grasses weaving on the bottom. But I’m always tackling that sort of thing!
+ - Now I really feel the landscape, I can be bold and include every tone of blue and pink: it’s enchanting, it’s delicious.
+ - Despite my extremely modest prices, dealers and art lovers are turning their backs on me. It is very depressing to see the lack of interest shown in an art object which has no market value.
+ - Thanks to my work everything’s going well; it’s a great consolation.
+ - If the world really looks like that I will paint no more!
+ - It is difficult to stop in time because one gets carried away. But I have that strength; it is the only strength I have.
+ - Zaandam has enough to paint for a lifetime.
+ - I’m working hard with more determination than ever. My success at the Salon led to my selling several paintings and since your absence I have made 800 francs; I hope, when I have contracts with more dealers, it will be better still.
+ - No, I’m not a great painter. Neither am I a great poet.
+ - I still have a lot of pleasure doing them, but as time goes by I come to appreciate more clearly which paintings are good and which should be discarded.
+ - It is a tragedy that we live in a world where physical courage is so common, and moral courage is so rare.
+ - I waited for the idea to consolidate, for the grouping and composition of themes to settle themselves in my brain.
+ - To have gone to all this trouble to get to this is just too stupid! Outside there’s brilliant sunshine but I don’t feel up to looking at it...
+ - The older I become the more I realize of that I have to work very hard to reproduce what I search: the instantaneous. The influence of the atmosphere on the things and the light scattered throughout.
+ - I think only of my painting, and if I were to drop it, I think I’d go crazy.
+
+132 quotes

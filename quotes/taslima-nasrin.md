@@ -1,0 +1,33 @@
+ - Religion is against women’s rights and women’s freedom. In all societies women are oppressed by all religions.
+ - I want to live in Kolkata; I don’t want to live in Europe – I can’t write there. I write in Bengali, and I need to be surrounded by the Bengali language and culture.
+ - There is no such thing as a ‘superior’ or ‘inferior’ culture, there are only various cultural patterns which make up this beautiful, multicolored mosaic.
+ - When I write, I don’t allow the fear of consequences to interfere with the writing process. I have in the past paid for my commitment to the truth and the way I live my life. I am prepared to pay more if I have to.
+ - Religion, society and state – from none of these do women get their proper honor. It is religion, which has created an unparalleled disparity between men and women.
+ - Among all the ‘awards’ that I have hitherto collected, I consider the title of ‘patita’ or ‘fallen woman’ to be the highest. This is an achievement of my long-struggling life as a writer and as a woman.
+ - All I ever want is to return to either Bangladesh, my motherland, or India, my adopted home.
+ - I believe in absolute freedom of expression. Everyone has a right to offend and be offended.
+ - In traditional societies, we have a long legacy of men controlling the body and mind of women. Such societies have valorised motherhood and fabricated concepts like chastity. Women have been the victims of these notions for thousands of years.
+ - I support the rights of all people to practice their religious beliefs privately, but I oppose the idea of respecting religions. In truth, I have no respect for any religion. I believe religion is not compatible with human rights, women’s rights, or freedom of expression.
+ - Nature says women are human beings, men have made religions to deny it. Nature says women are human beings, men cry out no!
+ - It is unfair to label me anti-Islam. I am an atheist and a secular humanist.
+ - Sheikh Hasina’s government is one of the best Bangladesh has ever had. She is taking action against fundamentalists. But even she refused to let me return. I don’t think I can ever return home.
+ - Koranic teaching still insists that the sun moves around the earth. How can we advance when they teach things like that?
+ - The focus of my research is how secular movements originated in West Asian countries and subsequently changed to pan-Islamic movements. The role of Western countries in this aspect is also a part of the research.
+ - I studied in a medical college and qualified myself as a medical graduate.
+ - I am not scared of anyone. I will write and publish my books.
+ - I’m an atheist, and I believe religion is totally against human rights and women’s rights.
+ - I was born in a middle class Muslim family, in a small town called Myonenningh in a northern part of Bangladesh in 1962. My father is a qualified physician; my mother is a housewife. I have two elder brothers and one younger sister. All of them received a liberal education in schools and colleges.
+ - Women are oppressed in the east, in the west, in the south, in the north. Women are oppressed inside, outside home, a woman is oppressed in religion, she is oppressed outside religion.
+ - I have been writing poetry since 1975. My first poetry book was published in 1986.
+ - I write against the religion because if women want to live like human beings, they will have to live outside the religion and Islamic law.
+ - Religion is now the first obstacle to women’s advancement. Religion pulls human beings backwards, it goes against science and progressiveness. Religion engulfs people with a fear of the supernatural. It bars people from laughing and never allows people to exercise their choice.
+ - I strongly believe that no one can be a true feminist without being an atheist. All religions are anti-women. No one can be pro-woman while supporting anti-woman dogmas.
+ - I am an atheist. I do not believe in prayers, I believe in work. And my work is that of an author. My pen is my weapon.
+ - Those religions that are oppressive to women are also against democracy, human rights, and freedom of expression.
+ - I have had fatwas issued against me, some three in Bangladesh and another five in India. I will not be cowed by these threats and shall fight for my rights.
+ - If any religion allows the persecution of the people of different faiths, if any religion keeps women in slavery, if any religion keeps people in ignorance, then I can’t accept that religion.
+ - Every religion oppresses women. I talk about the Koran because I know this book best. It allows for torture and other mistreatment, especially for women. And I despise the Sharia laws. They cannot be changed. They must be thrown out, abolished.
+ - Religious fundamentalists in Bangladesh have always argued for a ban on my books.
+ - The fundamentalists are increasing. People, afraid to oppose those fundamentalists, shut their mouths. It is really very difficult to make people move against a sensitive issue like religion, which is the source of fundamentalism.
+
+31 quotes

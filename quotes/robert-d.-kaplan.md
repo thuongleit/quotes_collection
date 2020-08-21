@@ -1,0 +1,26 @@
+ - The most important thing I learned as a foreign correspondent in about 80 countries is that it takes a very shallow knowledge of history to think that there are solutions to most problems.
+ - Travel is like a good challenging book: It demands presentness-the ability to live completely in the moment.
+ - A lot of the changes are so gradual that they don’t even qualify as news, or even as interesting: they’re so mundane that we just take them for granted. But history shows that it’s the mundane changes that are more important than the dramatic ‘newsworthy’ events.
+ - It is time to understand the environment for what it is: the national security issue of the early twenty-first century.
+ - Terrorism can go anywhere where there is not strong government, or government that cannot control its hinterlands.
+ - The Cold War went on for so long that it bred a kind of worldwide military establishment. Even when budgets went down in the early and mid-nineties, it didn’t really affect it.
+ - It is development, not poverty, that causes upheaval and terrorism.
+ - Wherever you have weakening states and turmoil, you will have a fertile petri dish for terrorism.
+ - What Americans cant face is that one of the reasons that the Russians and the Chinese were so impressed with us during the Cold War was the fact that Nixon and Kissinger went on bombing despite public reaction.
+ - What happened on September 11th is at least, theoretically, small stuff compared to what can happen.
+ - What does the earth look like in the places where people commit atrocities? Is there a bad smell, a genius loci, something about the landscape that might incriminate?
+ - The first thing to recognize not just about Afghanistan but about any poor undeveloped country is that as big as it looks on the map, it’s much bigger when you’re there.
+ - We talk a lot about individual rights, but in fact Americans are very willing to give up our individual rights if it means our property values will be protected, and so on.
+ - The closer one gets to either the eastern or the southern fringe of the German-speaking world-the closer one gets, in other words, to the threatening and more numerous Slavs-the more insecure and dangerous nationalism becomes.
+ - The United States is not overdeployed or overextended with deployments in 150 countries on any given year. On any given week we have about 65 deployments.
+ - The more dynamic the capitalistic expansion, the greater the disparity. It is from the disparity that we are going to get all the political upheaval for the next few years.
+ - The masses cannot ultimately be free: only the individual can be.
+ - Prostitution, black marketeering, and informing on ones neighbors and friends all had such a deep-rooted tradition in Romania that there was a charming naturalness and innocence about it.
+ - Americans are opting out of public venues like the playground and the sidewalk for private venues like the healthclub and the mall. We’re living our lives inside one form of corporation or another.
+ - When you talk about aiding this country against that country or about fighting terrorism, when you actually take that decision and strip it down, it always comes down to one person in the field giving specialized training to somebody else in the field.
+ - Given the level of anti-Americanism in the world, given the level of frustration with the United States throughout the Muslim world, you’ve got a homegrown attack or you have a nuclear explosion in the air that is not a test somewhere. Those are still the biggest threats out there.
+ - It is a cliche these days to observe that the United States now possesses a global empire – different from Britain’s and Rome’s but an empire nonetheless.
+ - It is easy to be a moral perfectionist when one is politically unaccountable.
+ - Bismarck’s genius, as well as his great flaw, was the same as that of another outstanding nineteenth-century politician of the German-speaking world, Prince Clemens Metternich. Both men were artificers, able to hold off the future by building a fragile present out of pieces of the past.
+
+24 quotes

@@ -1,0 +1,48 @@
+ - To love is to admire with the heart; to admire is to love with the mind.
+ - I was born to travel and write verse.
+ - Eyes so transparent that through them the soul is seen.
+ - The purity of a person’s heart can be quickly measured by how they regard animals.
+ - There is nothing truly beautiful but that which can never be of any use whatsoever; everything useful is ugly, for it is the expression of some need, and man’s needs are ignoble and disgusting like his own poor and infirm nature. The most useful place in a house is the water-closet.
+ - Our busy age does not always have time to read, but it always has time to look.
+ - Art is beauty, the perpetual invention of detail, the choice of words, the exquisite care of execution.
+ - When we love – we grow.
+ - Who can believe that there is no soul behind those luminous eyes!
+ - Modesty was made for the ugly.
+ - Sometimes he sits at your feet looking into your face with an expression so gentle and caressing that the depth of his gaze startles you.
+ - Literature has nothing to do with usefulness; the most useful place in any house is the toilet.
+ - Critical lice are like body lice, which desert corpses to seek the living.
+ - If you are worthy of its affection, a cat will be your friend but never your slave.
+ - The arts teach and moralise by their beauty alone, not by translating a philosophical or social formula. For the truly artistic person, painting has itself as it’s purpose, which is quite enough.
+ - Yes, the work comes out more beautiful from a material that resists the process, verse, marble, onyx, or enamel.
+ - High art alone is eternal and the bust outlives the city.
+ - I am one of those for whom superfluity is a necessity.
+ - Cats are the tigers of us poor devils.
+ - Only that which serves no end is beautiful; everything useful is ugly.
+ - With all women gentleness is the most persuasive and powerful argument.
+ - Fortune loves to give bedroom slippers to people with wooden legs, and gloves to those with no hands.
+ - Sometimes he will sit on the carpet in front of you, looking at you with eyes so melting, so caressing and so human, that they almost frighten you, for it is impossible to believe that a soul is not there.
+ - No one is truly dead until they are no longer loved.
+ - Sooner barbarity than boredom.
+ - Brevity never fatigues; therefore, brevity is always a welcome guest.
+ - The cat is a dilettante in fur.
+ - To extract beauty from one’s own milieu is one of the most difficult tasks of art.
+ - Books follow morals, and not morals books.
+ - Any man who does not have his inner world to translate is not an artist.
+ - It may well be that the pictures of Courbet, Manet, Monet and their like contain beauties which escape the notice of such old romantic heads as ours, already streaked with silver threads.
+ - Yes I have loved, as no one on earth ever loved, with an insensate and furious love, so violent that I wonder it did not break my heart.
+ - I am a man for whom the outside world exists.
+ - What well-bred woman would refuse her heart to a man who had just saved her life? Not one; and gratitude is a short cut which speedily leads to love.
+ - You do not become a critic until it has been completely established to your own satisfaction that you cannot be a poet.
+ - The most fitting occupation for a civilized man is to do nothing.
+ - It is a difficult matter to gain the affection of a cat. He is a philosophical, methodical animal, tenacious of his own habits, fond of order and neatness, and disinclined to extravagant sentiment. He will be your friend, if he finds you worthy of friendship, but not your slave.
+ - The years I have squandered in puerile excitement, in going hither and thither, in seeking to force nature and time, I ought to have spent in solitude and meditation, in endeavoring to make myself worthy of being loved.
+ - It is difficult to obtain the friendship of a cat.
+ - White men should exhibit the same insensibility to moral tortures that red men do to physical torments.
+ - Good heavens! what a foolish thing is this pretended perfectibility of the human race which is continually being dinned into our ears!
+ - The word poet literally means maker: anything which is not well made doesn’t exist.
+ - Those horses must have been Spanish jennets, born of mares mated with a zephyr; for they went as swiftly as the wind, and the moon, which had risen at our departure to give us light, rolled through the sky like a wheel detached from its carriage.
+ - It is gentle manners which prove so irresistible in women.
+ - The cat makes himself the companion of your hours of solitude, melancholy and toil.
+ - What I write is not for little girls.
+
+46 quotes

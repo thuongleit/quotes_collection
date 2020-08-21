@@ -1,0 +1,294 @@
+ - People are fed by the food industry, which pays no attention to health, and are treated by the health industry, which pays no attention to food.
+ - The earth is what we all have in common.
+ - What I stand for is what I stand on.
+ - It may be that when we no longer know what to do, we have come to our real work, and that when we no longer know which way to go, we have begun our real journey.
+ - Whether we and our politicians know it or not, Nature is party to all our deals and decisions, and she has more votes, a longer memory, and a sterner sense of justice than we do.
+ - If you eat, you are involved in agriculture.
+ - Nobody can discover the world for somebody else. Only when we discover it for ourselves does it become common ground and a common bond and we cease to be alone.
+ - Do unto those downstream as you would have those upstream do unto you.
+ - When I rise up, let me rise up joyful like a bird. When I fall, let me fall without regret like a leaf.
+ - Eating is an agricultural act.
+ - In the dark of the moon, in flying snow, in the dead of winter, war spreading, families dying, the world in danger, I walk the rocky hillside, sowing clover.
+ - There are no unsacred places; there are only sacred places and desecrated places.
+ - We don’t have a right to ask whether we’re going to succeed or not. The only question we have a right to ask is what’s the right thing to do? What does this earth require of us if we want to continue to live on it?
+ - Be like the fox who makes more tracks than necessary, some in the wrong direction. Practice resurrection.
+ - A Sustainable Agriculture does not deplete soils or people.
+ - It is no more possible to live in the future than it is to live in the past. If life is not now, it is never.
+ - The mind that is not baffled, is unemployed.
+ - Be joyful because it is humanly possible.
+ - The Christian gospel is a summons to peace, calling for justice beyond anger, mercy beyond justice, forgiveness beyond mercy, love beyond forgiveness.
+ - A good community insures itself by trust, by good faith and good will, by mutual help. A good community, in other words, is a good local economy.
+ - It may be that when we no longer know which way to go that we have come to our real journey. The mind that is not baffled is not employed. The impeded stream is the one that sings.
+ - Love is what carries you, for it is always there, even in the dark, or most in the dark, but shining out at times like gold stitches in a piece of embroidery.
+ - But the only possible guarantee of the future is responsible behavior in the present.
+ - To go in the dark with a light is to know the light. To know the dark, go dark. Go without sight, and find that the dark, too, blooms and sings, and is traveled by dark feet and dark wings.
+ - If you don’t know where you are, you don’t know who you are.
+ - The incarnate Word is with us, is still speaking, is present always, yet leaves no sign but everything that is.
+ - There is much good work to be done by every one of us and we must begin to do it.
+ - The soil is the great connector of our lives, the source and destination of all.
+ - It is not from ourselves that we learn to be better than we are.
+ - We live the given life, and not the planned.
+ - A viable neighborhood is a community: and a viable community is made up of neighbors who cherish and protect what they have in common.
+ - We have the world to live in on the condition that we will take good care of it. And to take good care of it we have to know it. And to know it and to be willing to take care of it, we have to love it.
+ - And the world cannot be discovered by a journey of miles, no matter how long, but only by a spiritual journey, a journey of one inch, very arduous and humbling and joyful, by which we arrive at the ground at our own feet, and learn to be at home.
+ - Violence breeds violence. Acts of violence committed in “justice” or in affirmation of “rights” or in defense of “peace” do not end violence. They prepare and justify its continuation.
+ - Sabbath observance invites us to stop. It invites us to rest. It asks us to notice that while we rest, the world continues without our help. It invites us to delight in the world’s beauty and abundance.
+ - We have neglected the truth that a good farmer is a craftsman of the highest order, a kind of artist.
+ - The care of the Earth is our most ancient and most worthy, and after all our most pleasing responsibility. To cherish what remains of it and to foster its renewal is our only hope.
+ - The ecological principle in agriculture is to connect the genius of the place, to fit the farming to the farm.
+ - The poem is important, but not more than the people whose survival it serves...
+ - In losing stewardship we lose fellowship; we become outcasts from the great neighborhood of creation.
+ - Some nights in the midst of this loneliness I swung among the scattered stars at the end of the thin thread of faith alone.
+ - Protest that endures, I think, is moved by a hope far more modest than that of public success: namely, the hope of preserving qualities in one’s own heart and spirit that would be destroyed by acquiescence.
+ - A corporation, essentially, is a pile of money to which a number of persons have sold their moral allegiance.
+ - Ask the questions that have no answers. Invest in the millenium. Plant sequoias.
+ - I go among trees and sit still. All my stirring becomes quiet around me like circles on water.
+ - Young lovers see a vision of the world redeemed by love. That is the truest thing they ever see, for without it life is death.
+ - Under the pavement the dirt is dreaming of grass.
+ - What can’t be helped must be endured.
+ - A significant part of the pleasure of eating is in one’s accurate consciousness of the lives and the world from which food comes.
+ - Eaters must understand that eating takes place inescapably in the world, that it is inescapably an agricultural act, and that how we eat determines, to a considerable extent, how the world is used.
+ - The past is our definition. We may strive with good reason to escape it, or to escape what is bad in it. But we will escape it only by adding something better to it.
+ - You can’t know where life will take you, but you can commit to a direction.
+ - Physical health doesn’t exist apart from the health of other things. Health ultimately involves the community, and the community ultimately involves the place and natural life of that place, so that real health is harmony with the world.
+ - Again I resume the long lesson: how small a thing can be pleasing, how little in this hard world it takes to satisfy the mind and bring it to its rest.
+ - For a time I rest in the grace of the world, and am free.
+ - There are some things the arrogant mind does not see; it is blinded by its vision of what it desires.
+ - Our land passes in and out of our bodies just as our bodies pass in and out of our land.
+ - I would like you to show me, if you can, where the line can be drawn between an organism and it’s environment. The environment is in you. It’s passing through you. You’re breathing it in and out. You and every other creature.
+ - To be sane in a mad time is bad for the brain, worse for the heart.
+ - I’d rather rely on mother nature’s wisdom than man’s cleverness.
+ - The cloud is free only to go with the wind. The rain is free only in falling.
+ - To treat life as less than a miracle is to give up on it.
+ - I believe that the world was created and approved by love, that it subsists, coheres, and endures by love, and that, insofar as it is redeemable, it can be redeemed only by love.
+ - The only sustainable city – and this, to me, is the indispensable ideal and goal – is a city in balance with its countryside.
+ - Better than any argument is to rise at dawn and pick dew-wet red berries in a cup.
+ - You can best serve civilization by being against what usually passes for it.
+ - We learn from our gardens to deal with the most urgent question of the time: How much is enough?
+ - Rats and roaches live by competition under the laws of supply and demand; it is the privilege of human beings to live under the laws of justice and mercy.
+ - All right, every day ain’t going to be the best day of your life, don’t worry about that. If you stick to it you hold the possibility open that you will have better days.
+ - You cannot affirm the power plant and condemn the smokestack, or affirm the smoke and condemn the cough.
+ - A person who undertakes to grow a garden at home, by practices that will preserve rather than exploit the economy of the soil, has his mind precisely against what is wrong with us.
+ - Nature is always trying to tell us that we are not so superior or independent or alone or autonomous as we may think.
+ - Praise ignorance, for what man has not encountered he has not destroyed.
+ - A proper education enables young people to put their lives in order, which means knowing what things are more important than other things; it means putting first things first.
+ - To cherish what remains of the Earth and to foster its renewal is our only legitimate hope of survival.
+ - Why I am NOT going to buy a computer.
+ - How do we submit? By not being radical enough. Or by not being thorough enough, which is the same thing.
+ - The more artificial a human environment becomes, the more the word ‘natural’ becomes a term of value.
+ - Thinking is the most overrated human activity.
+ - The securest guarantee of the long-term good health of both farmland and city is, I believe, locally produced food.
+ - The most alarming sign of the state of our society now is that our leaders have the courage to sacrifice the lives of young people in war but have not the courage to tell us that we must be less greedy and wasteful.
+ - An economy genuinely local and neighborly offers to localities a measure of security that they cannot derive from a national or a global economy controlled by people who, by principle, have no local commitment.
+ - The life we want is not merely the one we have chosen and made. It is the one we must be choosing and making.
+ - People need to feed themselves, next they need to feed their own communities.
+ - You can’t be a critic by simply being a griper. One has also to search out the examples of good work.
+ - It is a horrible fact that we can read in the daily paper, without interrupting our breakfast, numerical reckonings of death and destruction that ought to break our hearts or scare us out of our wits.
+ - At night make me one with the darkness In the morning make me one with the light.
+ - Education in the true sense, of course, is an enablement to serve-both the living human community in its natural household or neighborhood and the precious cultural possessions that the living community inherits or should inherit.
+ - If you start a conversation with the assumption that you are right or that you must win, obviously it is difficult to talk.
+ - Willing to die you give up your will; keep still, until moved by what moves all else, you move.
+ - The river is of the earth and it is free. It is rigorously embanked and bound, and yet it is free. To hell with restraint, it says, I have got to be going. It will grind out its dams. It will go over or around them. They will become pieces.
+ - The teachers are everywhere. What is wanted is a learner.
+ - Love changes, and in change is true.
+ - If we represent knowledge as a tree, we know that things that are divided are yet connected. We know that to observe the divisions and ignore the connections is to destroy the tree.
+ - Specialization is the great evil of civilization.
+ - To go in the dark with a light is to know the light. To know the dark, go dark.
+ - He never complained. He seemed to have no instinct for the making much of oneself that complaining requires.
+ - The soil under the grass is dreaming of a young forest, and under the pavement the soil is dreaming of grass.
+ - Unexpected wonders happen, not on schedule, or when you expect or want them to happen, but if you keep hanging around, they do happen.
+ - Don’t own so much clutter that you will be relieved to see your house catch fire.
+ - The latest technology is not always good for anything except to the producers of the technology.
+ - We cannot hope to be secure when our government has declared, by its readiness to act alone, its willingness to be everybody’s enemy.
+ - Much of our waste problem is to be accounted for by the intentional flimsiness and unrepairability of the labor-savers and gadgets that we have become addicted to.
+ - Individualism is going around these days in uniform, handing out the party line on individualism.
+ - A teacher’s major contribution may pop out anonymuosly in the life of some ex-student’s grandchild.
+ - We live beyond words, as also we live beyond computation and beyond theory.
+ - Invest in the millennium. Plant sequoias. Say that your main crop is the forest that you did not plant, that you will not live to harvest.
+ - It is only on the condition of humility and reverence before the world that our species will be able to remain in it.
+ - To work without pleasure or affection, to make a product that is not both useful and beautiful, is to dishonor God, nature, the thing that is made, and whomever it is made for.
+ - Ask the world to reveal its quietude- not the silence of machines when they are still, but the true quiet by which birdsongs, trees, bellworts, snails, clouds, storms become what they are, and are nothing else.
+ - It is certain, I think, that the best government is the one that governs the least. But there is a much-neglected corollary: the best citizen is the one who least needs governing.
+ - It is to be broken. It is to be torn open. It is not to be reached and come to rest in ever. I turn against you, I break from you, I turn to you. We hurt, and are hurt, and have each other for healing. It is healing. It is never whole.
+ - I could die in peace, I think, if the world was beautiful. To know it’s being ruined is hard.
+ - It’s impossible to contemplate the life of soil very long without seeing its analogy to the life of the spirit.
+ - Without prosperous local economies, the people have no power and the land no voice.
+ - I am not bound for any public place, but for ground of my own where I have planted vines and orchard trees, and in the heat of the day climbed up into the healing shadow of the woods.
+ - That we should have an agriculture based as much on petroleum as the soil-that we need petroleum exactly as much as we need food and must have it before we can eat-may seem absurd. It is absurd. It is nevertheless true.
+ - The mercy of the world is time. Time does not stop for love, but it does not stop for death and grief, either.
+ - It is impossible to prefigure the salvation of the world in the same language by which the world has been dismembered and defaced.
+ - One cannot be aware both of the history of Christian war and of the contents of the gospels without feeling that something is amiss.
+ - The language that reveals also obscures.
+ - Every day you have less reason not to give yourself away.
+ - Corn and bean people, I’m afraid, have extremely specialized minds.
+ - You cannot save the land apart from the people, or the people apart from the land.
+ - We clasp the hands of those who go before us.
+ - The freedom of affluence opposes and contradicts the freedom of community life.
+ - Our model citizen is a sophisticate who, before puberty, understands how to produce a baby, but who at the age of thirty will not know how to produce a potato.
+ - Hunger is a powerful persuader if it happens, and it’s conceivable that it could happen. Country people have always known this.
+ - The two great aims of industrialism – replacement of people by technology and concentration of wealth into the hands of a small plutocracy – seem close to fulfillment.
+ - Not just self-restraint, that old killjoy, but communal restraint.
+ - The only true and effective “operator’s manual for spaceship earth” is not a book that any human will ever write; it is hundreds of thousands of local cultures.
+ - No wonder so many sermons are devoted exclusively to “spiritual” subjects. If one is living by the tithes of history’s most destructive economy, then the disembodiment of the soul becomes the chief of worldly conveniences.
+ - Action can only be understood in relation to place; only by staying in place can the imagination conceive or understand action in terms of consequence, of cause and effect. The meaning of action in time is inseparable from its meaning in place.
+ - Waking up from a dream of violence is much the same as waking up from a dream of love. You must go on living your life.
+ - We will instead have to measure our economy by the health of the ecosystems and human communities where we do our work.
+ - The connections between people and land are dangerously oversimplified and mainly technological.
+ - Beware the machinery of longevity. When a man’s life is over the decent thing is for him to die. The forest does not withhold itself from death. What it gives up it takes back.
+ - To mind being disliked by a woman you don’t desire and are not married to is yet another serious failure of common sense.
+ - You don’t need to be told some things. You can sometimes tell more by a man’s silence and the set of his head than by what he says.
+ - It would take me years of reading, thought, and experience to learn again that in this world limits are not only inescapable but indispensable.
+ - If we do not serve what coheres and endures, we serve what disintegrates and destroys.
+ - Give your approval to all you cannot understand.
+ - Urban conservationists may feel entitled to be unconcerned about food production because they are not farmers. But they can’t be let off so easily, for they are all farming by proxy.
+ - I think the issues of identity mostly are poppycock. We are what we have done, which includes our promises, includes our hopes, but promises first.
+ - The good of the whole of Creation, the world and all its creatures together, is never a consideration because it is never thought of; our culture now simply lacks the means for thinking of it.
+ - The world is whole beyond human knowing.
+ - Don’t pray for the rain to stop; pray for good luck fishing when the river floods.
+ - It gets darker and darker and darker, and then Jesus is born.
+ - You have to be able to imagine lives that are not yours.
+ - We know enough of our own history by now to be aware that people exploit what they have merely concluded to be of value, but they defend what they love. To defend what we love we need a particularizing language, for we love what we particularly know.
+ - We can make ourselves whole only by accepting our partiality, by living within our limits, by being humans not by trying to be gods.
+ - But the sower going forth to sow sets foot into time to come, the seeds falling on his own place. He has prepared a way for his life to come to him, if it will. Like a tree, he has given roots to the earth, and stands free.
+ - Sit and be still until in the time of no rain you hear beneath the dry wind’s commotion in the trees the sound of flowing water among the rocks, a stream unheard before, and you are where breathing is prayer.
+ - There is no sense and no sanity in objecting to the desecration of the flag while tolerating and justifying and encouraging as a daily business the desecration of the country for which it stands.
+ - To defend what we love we need a particularizing language, for we love what we particularly know.
+ - To love anything good, at any cost, is a bargain.
+ - We are far more concerned about the desecration of the flag than we are about the desecration of our land.
+ - You mustn’t wish for another life. You mustn’t want to be somebody else. What you must do is this: “Rejoice evermore. Pray without ceasing. In everything give thanks.” I am not all the way capable of so much, but those are the right instructions.
+ - To be interested in food but not in food production is clearly absurd.
+ - The aim of industrialization has always been to replace people with machines or other technology, to make the cost of production as low as possible, to sell the product as high as possible, and to move the wealth into fewer and fewer hands.
+ - The world is not given by our fathers, but borrowed from our children.
+ - We cannot know the whole truth, which belongs to God alone, but our task nevertheless is to seek to know what is true.
+ - O Thou, Far off and here, whole and broken, Who in necessity and in bounty wait, Whose truth is light and dark, mute though spoken, By Thy wide grace show me Thy narrow gate.
+ - I don’t believe that grief passes away. It has its time and place forever. More time is added to it; it becomes a story within a story. But grief and griever alike endure.
+ - The damages of our present agriculture all come from the determination to use the life of the soil as if it were an extractable resource like coal.
+ - When going back makes sense, you are going ahead.
+ - A change of heart or of values without a practice is only another pointless luxury of a passively consumptive way of life.
+ - We can grow good wheat and make good bread only if we understand that we do not live by bread alone.
+ - You cannot devalue the body and value the soul Or value anything else.
+ - It’s the impeded stream that sings.
+ - All goes back to the earth, and so I do not desire pride of excess or power, but the contentments made by men who have had little: the fisherman’s silence receiving the river’s grace, the gardener’s musing on rows...
+ - As industrial technology advances and enlarges, and in the process assumes greater social, economic, and political force, it carries people away from where they belong by history, culture, deeds, association, and affection.
+ - When the possessions and households of citizens are no longer honored by the acts, as well as the principles, of their government, then the concentration camp ceases to be one of the possibilities of human nature and becomes one of its likelihoods.
+ - We can fight the global economy with a strong local economy.
+ - There are not enough rich and powerful people to consume the whole world; for that, the rich and powerful need the help of countless ordinary people.
+ - It is, of course, one of the miracles of science that the germs that used to be in our food have been replaced by poisons.
+ - To have good farming or good land use of any kind, you have got to have limits. Capitalism doesn’t acknowledge limits.
+ - A liberal education rests on the assumption that nature and human nature do not change very much or very fast and that one therefore needs to understand the past.
+ - Never forget: We are alive within mysteries.
+ - It’s mighty hard right now to think of anything that’s precious that isn’t endangered. There are no sacred and unsacred places; there are only sacred and desecrated places. My belief is that the world and our life in it are conditional gifts.
+ - Having hope is hard; harder when you get older.
+ - A man with a machine and inadequate culture is a pestilence.
+ - There are moments when the heart is generous, and then it knows that for better or worse our lives are woven together here, one with one another and with the place and all the living things.
+ - When the mind’s an empty room The clear days come.
+ - Annual plants are nature’s emergency medical service, seeded in sounds and scars to hold the land until the perennial cover is re-established.
+ - What leads to peace is not violence but peaceableness, which is not passivity, but an alert, informed, practiced, and active state of being.
+ - After a while, though the grief did not go away from us, it grew quiet. What had seemed a storm wailing through the entire darkness seemed to come in at last and lie down.
+ - Let me say and not mourn: the world lives in the death of speech and sings there.
+ - Laughter is immeasurable. Be joyful.
+ - A man who does not ask to much become the promise of his land. His marriage married to his place, he waits and does not stray.
+ - If we do not live where we work and when we work we are wasting our lives and our work too.
+ - One of the most important resources that a garden makes available for use, is the gardener’s own body. A garden gives the body the dignity of working in its own support. It is a way of rejoining the human race.
+ - Long live gravity! Long live stupidity, error, and greed in the palaces of fantasy capitalism!
+ - We don’t know how to use energy or what to use it for. And we cannot restrain ourselves. Our time is characterized as much by the abuse and waste of human energy as it is by the abuse and waste of fossil fuel energy.
+ - All we can do to prepare rightly for tomorrow is to do the right thing today.
+ - Without animals, something essential is removed from the minds of the farmers.
+ - Battle with unconditioned breath the unconditioned air. Shun electric wire. Communicate slowly. Live a three-dimensional life; stay away from screens.
+ - Only the action that is moved by love for the good at hand has the hope of being responsible and generous.
+ - I dislike the thought that some animal has been made miserable to feed me. If I am going to eat meat, I want it to be from an animal that has lived a pleasant, uncrowded life outdoors, on bountiful pasture, with good water nearby and trees for shade.
+ - And so you have a life that you are living only now, now and now and now, gone before you can speak of it, and you must be thankful for living day by day, moment by moment a life in the breath and pulse and living light of the present.
+ - Far from making peace, wars invariably serve as classrooms and laboratories where men and techniques and states of mind are prepared for the next war.
+ - I lack the peace of simple things. I am never wholly in place. I find no peace or grace. We sell the world to buy fire, our way lighted by burning men...
+ - A man’s life is always dealing with permanence, that is the most dangerous kind of irresponsibility is to think of your doings as temporary.
+ - We need better government, no doubt about it. But we also need better minds, better friendships, better marriages, better communities.
+ - We are living even now among punishments and ruins.
+ - The old and honorable idea of ‘vocation’ is simply that we each are called, by God, or by our gifts, or by our preference, to a kind of good work for which we are particularly fitted.
+ - Charity even for one person does not make sense except in terms of an effort to love all Creation in response to the Creator’s love for it.
+ - We are living in the most destructive and, hence, the most stupid period of the history of our species.
+ - I have always loved a window, especially an open one.
+ - If you can read and have more imagination than a doorknob, what need do you have for a ‘movie version’ of a novel?
+ - The form of a poem is invisible. A poem is not an “object.” This is hard to accept in a mechanical age.
+ - Monsanto doesn’t care about feeding the world. We have to think about the wage slavery of migrant workers and salary slavery of those who are desperately unhappy.
+ - The mercy of the world is you don’t know what’s going to happen.
+ - An art that heals and protects its subject is a geography of scars.
+ - The hierarchy of power is not the same as the hierarchy of value. A good human is higher than the animals on both scales; an evil human is high on the scale of power, but at the very bottom of the scale of values.
+ - My wish simply is to live my life as fully as I can. In both our work and our leisure, I think, we should be so employed. And in our time this means that we must save ourselves from the products that we are asked to buy in order, ultimately, to replace ourselves.
+ - We have become blind to the alternatives to violence.
+ - What could be more superstitious than the idea that money brings forth food?
+ - The rule, acknowledged or not, seems to be that if we have great power we must use it. We would use a steam shovel to pick up a dime. We have experts who can prove there is no other way to do it.
+ - Invest in the millenium.
+ - We cannot comprehend what comprehends us.
+ - In living in the world by his own will and skill, the stupidest peasant or tribesman is more competent than the most intelligent worker or technician or intellectual in a society of specialists.
+ - Commercial conquest is far more thorough and final than military defeat.
+ - There is change by necessity or adaptation, and there is contrived change or novelty.
+ - American agriculture is badly in need of diversity. Another threat to the food system of course is the likelihood that petroleum is not going to get any cheaper.
+ - Only by restoring the broken connections can we be healed. Connection is health.
+ - So it is that the life force may take possession of a man – so that in the end he may be possessed by something greater, no longer at all belonging to himself.
+ - When you are new at sheep-raising and your ewe has a lamb, your impulse is to stay there and help it nurse and see to it and all. After a while you know that the best thing you can do is walk out of the barn.
+ - The shoddy work of despair, the pointless work of pride, equally betray Creation. They are wastes of life.
+ - The primary motive for good care and good use of the land-community is always going to be affection, which is too often lacking.
+ - There are lots of bad things that can happen to a food economy that’s both extensive and centralized. There’s no substitute for petroleum. To have a growth economy based on a declining fuel supply is bound to be stressful.
+ - The road is a word, conceived elsewhere and laid across the country in the wound prepared for it: a word made concrete and thrust among us.
+ - There’s nothing under the ground that’s worth more than the little layer of topsoil sitting on top of it.
+ - The most insistent and formidable concern of agriculture, wherever it is taken seriously, is the distinct individuality of every farm, every field on every farm, every farm family, and every creature on every farm.
+ - But in its de facto alliance with Caesar, Christianity connives directly in the murder of Creation. For in these days, Caesar is no longer a mere destroyer of armies, cities, and nations. He is a contradicter of the fundamental miracle of life.
+ - These are people who are capable of devotion, public devotion, to justice. They meant what they said and every day that passes, they mean it more.
+ - So friends, every day do something that won’t compute.
+ - Any religion has to have a practice. When you let it go so far from practice that it just becomes a matter of talk something bad happens.
+ - Those who say Islam is a warlike religion must ask if Christianity has been as well.
+ - If the crop of any one year was all, a man would have to cut his throat every time it hailed.
+ - Novelty is a new kind of loneliness.
+ - My label is just “good farming”, which isn’t something you can put on a t-shirt.
+ - A farmer’s market is worth more than everything I’ve written.
+ - The only time I’ve been arrested was in opposing the Marble Hill nuclear power plant in Indiana. That was in 1979.
+ - The constructions of language, which is to say the constructions of thought, are formed within experience, not the other way around.
+ - To be patient in an emergency is a terrible trial.
+ - The uplands of my home country in north central Kentucky are sloping and easily eroded, dependent for safekeeping upon year-round cover of perennial plants.
+ - Reverence makes it possible to be whole, though ignorant. It is the wholeness of understanding.
+ - The most available example of how poetry works for a poet is yourself, and yet you’ll probably be the last one to know exactly how you’re serving the art and how the art is serving you.
+ - Let us have the candor to acknowledge that what we call “the economy” or “the free market” is less and less distinguishable from warfare.
+ - What would be the point of being personally whole in a dismembered society, or personally healthy in a land scalped, eroded and poisoned, or personally free in a world entirely controlled by the government or enlightened by television?
+ - For any sin, we all suffer. That is why our suffering is endless.
+ - To hear of a thousand deaths in war is terrible, and we ‘know’ that it is. But as it registers on our hearts, it is not more terrible than one death fully imagined.
+ - The presence of the present has become insistent, undeniable, and I dare not look away.
+ - You can’t live entirely alone. You have to have some kind of a support system.
+ - People talk about “job creation,” as if that had ever been the aim the industrial economy. The aim was to replace people with machines.
+ - It is wrong to condemn people for doing a thing and then offer no alternative but failure. A person could get mad about that.
+ - We must see that it is foolish, sinful and suicidal to destroy the health of nature for the sake of an economy that is really not an economy at all but merely a financial system, one that is unnatural, undemocratic, sacrilegious, and ephemeral.
+ - Explanation changes whatever is explained into something explainable.
+ - When there are enough people on the land to use it but not enough to husband it, then the wildness of the soil that we call fertility begins to diminish, and the soil itself begins to flee from us in water and wind.
+ - The music, while it lasted, brought a new world into being.
+ - Our most serious problem, perhaps, is that we have become a nation of fantasists. We believe, apparently, in the infinite availability of finite resources.
+ - The acquisition of knowledge always involves the revelation of ignorance-almost is the revelation of ignorance.
+ - The discussion about food doesn’t make any sense without discussion at the same time of land, land use, land policy, fertility maintenance, and farm infrastructure maintenance.
+ - As long as we insist on relating to it strictly on our own terms-as strange to us or subject to us-the wilderness is alien, threatening, fearful.
+ - For the true measure of agriculture is not the sophistication of its equipment the size of its income or even the statistics of its productivity but the good health of the land.
+ - The fertility cycle is a cycle entirely of living creatures passing again and again through birth, growth, maturity, death, and decay.
+ - Do not tax your life with forethought of grief.
+ - When the self is ones exclusive subject and limit, reference and measure, one has no choice but to make a world of words.
+ - It surely is far better to be disliked by somebody you don’t love than by somebody you do. Even so, I mind. Even so, failing to love somebody is a failure.
+ - To define knowledge as merely empirical is to limit one’s ability to know; it enfeebles one’s ability to feel and think.
+ - To accept that there is nothing to do is to despair. It is to become in some fundamental way less than human. Those of us who are protesting are protesting in part for our own sake to keep ourselves whole as human beings.
+ - It is the man who can think of no alternative to his enslavement who is truly a slave.
+ - In health the flesh is graced, the holy enters the world.
+ - We have forgotten that Vietnam, and Iraq resent being invaded and know the ground better than we do.
+ - The ability to speak exactly is intimately related to the ability to know exactly.
+ - And if we ask what are the cultural resources that can inform and sustain a proper creaturely and stewardly awareness of the lives in a farmer’s keeping, I believe that we will find them gathered under the heading of husbandry.
+ - For want of a Pilate of their own, some Christians would accept a Constantine or whomever might be the current incarnation of Caesar.
+ - Perhaps all the good that ever has come here has come because people prayed it into the world.
+ - The world, which God looked at and found entirely good, we find none too good to pollute entirely and destroy piecemeal.
+ - It is only by understanding the cultural complexity and largeness of the concept of agriculture that we can see the threatening diminishments implied by the term ‘agribusiness.’
+ - I don’t think I had even begun to have an idea where I was going, but wherever it was, that was where I wanted to go.
+ - People who want to see the beauty of nature from motorboats and automobiles would obviously be just as pleased, and as fully recreated, at a drive-in movie.
+ - If we are serious about peace, then we must work for it as ardently, seriously, continuously, carefully, and bravely as we have ever prepared for war.
+ - Unless you absolutely have got to do it, don’t buy anything new.
+ - It is easy for me to imagine that the next great division of the world will be between people who wish to live as creatures and people who wish to live as machines.
+ - If conservationists will attempt to resume responsibility for their need to eat, they will be led back fairly directly to all their previous concerns for the welfare of nature.
+ - This massive ascendancy of corporate power over democratic process is probably the most ominous development since the end of World War II, and for the most part “the free world” seems to be regarding it as merely normal.
+ - Some of the best things I have ever thought of I have thought of during bad sermons.
+ - One of the strongest of contemporary conventions is that of comparing to Thoreau every writer who has been as far out of the house as the mailbox.
+ - Our obsession with security is a measure of the power we have granted the future to hold over us.
+ - We’re living, it seems, in the culmination of a long warfare – warfare against human beings, other creatures and the Earth itself.
+
+292 quotes

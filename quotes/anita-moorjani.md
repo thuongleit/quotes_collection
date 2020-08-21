@@ -1,0 +1,46 @@
+ - Love yourself like your life depends on it, because it does.
+ - In the tapestry of life, we’re all connected. Each one of us is a gift to those around us helping each other be who we are, weaving a perfect picture together.
+ - Religion is just a path for finding truth: Religion is not truth. It is just a path. And different people follow different paths.
+ - I’m loved unconditionally, for no other reason than simply because I exist.
+ - We are not these bodies; we’re neither our accomplishments nor our possessions – we are all one with the Source of all being, which is God.
+ - When I am willing to step into the realm of uncertainty and ambiguity, I open myself up to infinite possibilities.
+ - Whatever you believe, you will find that you are correct. The Universe has a way of presenting to you exactly what you believe.
+ - What I really learned was that life is a gift and our only purpose is to be who we are. We all make it so complicated, and try to find our purpose, I learned that all I have to do is be as me as I can be.
+ - When you realize your own magnificence, you will only attract magnificence into your life.
+ - The universe is contained within us, and what we experience externally is only a reflection.
+ - Loving yourself means being your own best friend, standing by yourself at all times, including times of failure; being there for yourself no matter what.
+ - The way to find your happiness joy is to make a list of all the things that are fun for YOU to do. Then do some of those things everyday.
+ - When we’re each aware of our own Magnificence, we don’t feel the need to control others, and we won’t allow ourselves to be controlled.
+ - I’m at my strongest when I’m able to let go, when I suspend my beliefs as well as disbeliefs, and leave myself open to all possibilities. That also seems to be when I’m able to experience the most internal clarity and synchronicities.
+ - I believe that the greatest truths of the universe don’t lie outside, in the study of the stars and the planets. They lie deep within us, in the magnificence of our heart, mind, and soul. Until we understand what is within, we can’t understand what is without.
+ - Unconditional Love is our birthright, not judgment or condemnation, and there’s nothing we need to do to earn it. This is simply who and what we are.
+ - The more we try and understand enlightenment the more it will elude us. And that’s because enlightenment does not come from the mind. It comes form ‘no-mind.’ It comes form just being. You are already enlightened. You just have to realize it to allow it into your experience.
+ - When you can completely love your ego unconditionally and accept it as part of how you express in this life, you’ll no longer have a problem with it. It won’t impede your growth – on the contrary, it will be an asset.
+ - Cancer is just a word that creates fear. Forget about that word, and let’s just focus on balancing your body. All illnesses are just symptoms of imbalance. No illness can remain when your entire system is in balance.
+ - When I was willing to let go of what I wanted, I received what was truly mine. I’ve realized that the latter is always the greater gift.
+ - Transform your world by transforming your internal state. Start by learning to let go of negative self judgment, and replace it with positive and loving thoughts about yourself. Be kind to yourself, and watch your external world change.
+ - Unconditional love is our birthright!
+ - I am at my most powerful when I am working with life rather than against it.
+ - We don’t realise that we are actually perfect just the way we are. We are born perfect, but spend a lifetime trying to be something we are not, and then feel inadequate for failing. Your only purpose is to BE YOURSELF, otherwise you will deprive the universe of who you came here to be.
+ - I knew that was really the only purpose of life: to be our self, live our truth, and be the love that we are.
+ - Once you start believing that something is possible, you start to let it in to your awareness and it starts to become true to you.
+ - When you’re good to yourself, you’re actually being good to everyone around you because when you feel good, you’ll only react well to other people. At the same time, it’s very easy for you to do things for other people when you know that other people are just an extension of yourself.
+ - Spirituality does not have to be serious. You are spirituality. Fun laughter heal you faster than anything. Introduce fun back into your life.
+ - One of the biggest lessons I learned from nearly dying of cancer is the importance of loving myself unconditionally. In fact, learning to love and accept myself unconditionally is what healed me and brought me back from the brink of death.
+ - Our life is our prayer. It is our gift to the universe, and the memories we leave behind when we someday exit this world will be our legacy to our loved ones. The best thing we can do for ourselves and everyone around us is to find our joy and share it!
+ - We are all one, we are love at our core, we are magnificent.
+ - I can’t say this strongly enough, but our feelings about ourselves are actually the most important barometer for determining the condition of our lives!
+ - The games we have the ability to play in our minds amaze me.
+ - Your only purpose is to be yourself, otherwise you deprive the universe of who you came here to be.
+ - All that materializes dematerializes.
+ - Everything that seemingly happens externally is occurring in order to trigger something within us, to expand us and take us back to who we truly are.
+ - When we are happy, those around us will be happy, and in turn, those around them will also start to feel the same way. We always have to start with ourself, and the best place to start is to do what makes you feel joyful.
+ - We will see beauty in the outer world when we are able to see beauty within ourselves. And this is the best thing we can do for ourselves and for the universe.
+ - We don’t have to go in search of our mission or purpose. The more we search for it, the more it will elude us. We just have to be ourselves and find our joy in the present moment or do what calls us in the present moment and our mission will unfold.
+ - Make everyday decisions from a place of love.
+ - We were not born with guilt nor obligation. When you give in to guilt, you endorse it.
+ - I perceived that I wouldn’t have to go out and search for what I was supposed to do- it would unfold before me.
+ - Dying to be Me: My Journey from Cancer, to Near Death, to True Healing.
+ - Terror collided violently with reason.
+
+44 quotes

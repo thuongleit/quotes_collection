@@ -1,0 +1,27 @@
+ - A self made man is a rarity and hated by the parasites that floated to fame thought their parents, relatives and contacts.
+ - The only reason that Jews are in pornography is that we think that Christ sucks. Catholicism sucks.
+ - The true success is the person who invented himself.
+ - So, if anatomy is destiny then testosterone is doom.
+ - If you cannot work on the marriage or the women is a moron, staying married and cheating makes the most sense because divorce is disruptive to the family life and your bank account.
+ - Celebrity gives us delusion of self importance.
+ - Love is a deception and a trap. Love is as big a myth that God sits with his flowing white beard in a throne and looks at us.
+ - Since fame is an illusion and death is in our future all we have is the next moment before we are swallowed into oblivion.
+ - Our photographs are filthier and our stories are more disgusting. We make no effort to be artistic.
+ - For me working on the marriage and not making the easy choice of cheating was something that I could not do.
+ - Even though marriage is doomed, if you turned it into a job you like and really work at it – it can be salvaged.
+ - I love going to the factories of La Plata, or Little Havana and seeing them roll cigars. I get excited. To me it is more beautiful than a topless club.
+ - The only way marriage can work is if a man respects the woman and she is a thinking woman and he wants to work on the marriage.
+ - I’m a crusader. I really believe in the First Amendment, and I use it fully, and I pay a price for that.
+ - Philosophy is an attempt by man to find cause and effect. Religion has the same goal.
+ - There is a cliche that men want their women to be ladies in public and hookers behind closed doors. I want my woman to be the sharper image robot so that she can be turned off.
+ - The mass market eventually assimilates that which is innovative or revolutionary.
+ - You need fighters like me to battle, because frankly The New York Times and the Washington Post are not going to fight the fights that I do.
+ - I refuse to be silenced.
+ - For me, the Church is the enemy.
+ - In reality there is no cause or effect, there is only the indifference of the universe.
+ - To date or not to date that is the question. It’s almost as important as Shakespeare’s to be or not to be which deals with death.
+ - I keep attacking the villains, the know-nothings, the people who want to take our freedoms away.
+ - Married life is an existence with bars around it.
+ - I am not a prisoner of my sexuality like men younger than myself although I write about being a prisoner.
+
+25 quotes

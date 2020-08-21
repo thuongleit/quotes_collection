@@ -1,0 +1,83 @@
+ - Those who contemplate the beauty of the earth find reserves of strength that will endure as long as life lasts.
+ - In nature nothing exists alone.
+ - But man is a part of nature, and his war against nature is inevitably a war against himself.
+ - For all at last return to the sea- to Oceanus, the ocean river, like the ever-flowing stream of time, the beginning and the end.
+ - The ‘control of nature’ is a phrase conceived in arrogance, born of the Neanderthal age of biology and philosophy, when it was supposed that nature exists for the convenience of man.
+ - Those who love and free nature are never alone.
+ - I like to define biology as the history of the earth and all its life – past, present, and future.
+ - A rainy day is the perfect time for a walk in the woods.
+ - The question is whether any civilization can wage relentless war on life without destroying itself, and without losing the right to be called civilized.
+ - The human race is challenged more than ever before to demonstrate our mastery, not over nature but of ourselves.
+ - The discipline of the writer is to learn to be still and listen to what his subject has to tell him.
+ - Those who dwell, as scientists or laymen, among the beauties and mysteries of the earth, are never alone or weary of life.
+ - If a child is to keep alive his inborn sense of wonder, he needs the companionship of at least one adult who can share it, rediscovering with him the joy, excitement, and mystery of the world we live in.
+ - The real wealth of the Nation lies in the resources of the earth – soil, water, forests, minerals, and wildlife.
+ - It is not half so important to know as to feel.
+ - Like the resource it seeks to protect, wildlife conservation must be dynamic, changing as conditions change, seeking always to become more effective.
+ - Who has the right to decide that the supreme value is a world without insects even though it would be a sterile world ungraced by the curving wing of a bird in flight. The decision is that of the authoritarian temporarily entrusted with power.
+ - Science is part of the reality of living; it is the what, the how, and the why of everything in our experience.
+ - The obligation to endure gives us the right to know.
+ - Always the edge of the sea remains an elusive and indefinable boundary. The shore has a dual nature, changing with the swing of the tides, belonging now to the land, now to the sea.
+ - The more clearly we can focus our attention on the wonders and realities of the universe about us, the less taste we shall have for destruction.
+ - The most alarming of all man’s assaults upon the environment is the contamination of air, earth, rivers, and sea with dangerous and even lethal materials.
+ - It is a wholesome and necessary thing for us to turn again to the earth and in the contemplation of her beauties to know the sense of wonder and humility.
+ - I am always more interested in what I am about to do than what I have already done.
+ - Conservation is a cause that has no end. There is no point at which we will say our work is finished.
+ - We cannot have peace among men whose hearts find delight in killing any living creature.
+ - Drink in the beauty and wonder at the meaning of what you see.
+ - The control of nature is a phrase conceived in arrogance.
+ - In every outthrust headland, in every curving beach, in every grain of sand there is the story of the earth.
+ - In an age when man has forgotten his origins and is blind even to his most essential needs for survival, water along with other resources has become the victim of his indifference.
+ - As crude a weapon as a cave man’s club, the chemical barrage has been hurled against the fabric of life.
+ - For the sense of smell, almost more than any other, has the power to recall memories and it’s a pity we use it so little.
+ - Over increasingly large areas of the United States, spring now comes unheralded by the return of the birds, and the early mornings are strangely silent where once they were filled with the beauty of bird song.
+ - A child’s world is fresh and new and beautiful, full of wonder and excitement.
+ - Knowing what I do, there would be no future peace for me if I kept silent.
+ - It is a curious situation that the sea, from which life first arose, should now be threatened by the activities of one form of that life. But the sea, though changed in a sinister way, will continue to exist: the threat is rather to life itself.
+ - There is something infinitely healing in the repeated refrains of nature.
+ - Nowhere on the shore is the relation of a creature to its surroundings a matter of a single cause and effect; each living thing is bound to its world by many threads, weaving the intricate design of the fabric of life.
+ - Have we fallen into a mesmerized state that makes us accept as inevitable that which is inferior or detrimental, as though having lost the will or the vision to demand that which is good?
+ - Beginnings are apt to be shadowy.
+ - The road we have long been traveling is deceptively easy, a smooth superhighway on which we progress with great speed, but at its end lies disaster.
+ - The edge of the sea is a strange and beautiful place.
+ - Only within the moment of time represented by the present century has one species – man – acquired significant power to alter the nature of the world.
+ - Unless we have courage to recognize cruelty for what it is-whether its victim is human or animal-we cannot expect things to be much better in the world.
+ - When we go down to the low-tide line, we enter a world that is as old as the earth itself – the primeval meeting place of the elements of earth and water, a place of compromise and conflit and eternal change.
+ - One summer night, out on a flat headland, all but surrounded by the waters of the bay, the horizons were remote and distant rims on the edge of space.
+ - Autumn comes to the sea with a fresh blaze of phosphorescence, when every wave crest is aflame. Here and there the whole surface may glow with sheets of cold fire, while below schools of fish pour through the water like molten metal.
+ - No witchcraft, no enemy action had silenced the rebirth of new life in this stricken world. The people had done it themselves.
+ - When any living thing has come to the end of its cycle, we accept that end as natural. When that intangible cycle has run its course it is a natural and not unhappy thing that a life comes to its end.
+ - Beginnings are apt to be shadowy and so it is the beginnings of the great mother life, the sea.
+ - We still talk in terms of conquest. We still haven’t become mature enough to think of ourselves as only a tiny part of a vast and incredible universe.
+ - There is no drop of water in the ocean, not even in the deepest parts of the abyss, that does not know and respond to the mysterious forces that create the tide.
+ - A child’s world is fresh and new and beautiful, full of wonder and excitement. It is our misfortune that for most of us that clear-eyed vision, that true instinct for what is beautiful, is dimmed and even lost before we reach adulthood.
+ - Now I truly believe that we in this generation must come to terms with nature, and I think we’re challenged, as mankind has never been challenged before, to prove our maturity and our mastery, not of nature but of ourselves.
+ - Our attitude towards plants is a singularly narrow one. If we see any immediate utility in a plant we foster it. If for any reason we find its presence undesirable or merely a matter of indifference, we may condemn it to destruction forthwith.
+ - The years of early childhood are the time to prepare the soil.
+ - It is ironic to think that man might determine his own future by something so seemingly trivial as the choice of an insect spray.
+ - It is also an era dominated by industry, in which the right to make a dollar at whatever cost is seldom challenged.
+ - For the first time in the history of the world, every human being is now subjected to contact with dangerous chemicals, from the moment of conception until death.
+ - Darling – I suppose the world would consider us absolutely crazy, but it is wonderful to feel that way, isn’t it? Sort of a perpetual springtime in our hearts.
+ - To understand the living present, and the promise of the future, it is necessary to remember the past.
+ - There is one quality that characterizes all of us who deal with the sciences of the earth and its life – we are never bored.
+ - The aim of science is to discover and illuminate truth. And that, I take it, is the aim of literature, whether biography or history or fiction. It seems to me, then, that there can be no separate literature of science.
+ - If there is poetry in my book about the sea, it is not because I deliberately put it there, but because no one could write truthfully about the sea and leave out the poetry.
+ - The lasting pleasures of contact with the natural world are not reserved for scientists but are available to anyone who will place himself under the influence of earth, sea and sky and their amazing life.
+ - The shore is an ancient world, for as long as there has been an earth and sea there has been this place of the meeting of land and water.
+ - And so in my mind’s eye these coastal forms merge and blend in a shifting, kaleidoscopic pattern in which there is no finality, no ultimate and fixed reality – earth becoming fluid as the sea itself.
+ - We are rightly appalled by the genetic effects of radiation; how then, can we be indifferent to the same effect in chemicals we disseminate widely in our environment?
+ - How could intelligent beings seek to control a few unwanted species by a method that contaminated the entire environment and brought the threat of disease and death even to their own kind?
+ - Wonder and humility are wholesome emotions and they do not exist side by side with a lust for destruction.
+ - Nature reserves some of her choice rewards for days when her mood may appear to be somber.
+ - This is an era of specialists, each of whom sees his own problem and is unaware of or intolerant of the larger frame into which it fits.
+ - The Choice, after all, is ours to make.
+ - But most of all I shall remember the monarchs, that unhurried westward drift of one small winged form after another, each drawn by some invisible force.
+ - Only as a child’s awareness and reverence for the wholeness of life are developed can his humanity to his own kind reach its full development.
+ - Then the song of a whitethroat, pure and ethereal, with the dreamy quality of remembered joy.
+ - Every mystery solved brings us to the threshold of a greater one.
+ - Why would anyone believe it is possible to lay down such barrage of poisons on the surface of the earth without making it unfit for all life? They should not be called insecticides, but biocides.
+ - We are not truly civilized if we concern ourselves only with the relation of man to man. What is important is the relation of man to all life.
+ - I still feel there is a case to be made for my old belief that as man approaches the ‘new heaven and the new earth’ – or the space-age universe, if you will, he must do so with humility rather than with arrogance.
+ - Any concept of biology is not only sterile and profitless, it is distorted and untrue, if it puts its primary focus on unnatural conditions rather than on those vast forces not of man’s making that shape and channel the nature and direction of life.
+
+81 quotes

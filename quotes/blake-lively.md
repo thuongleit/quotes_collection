@@ -1,0 +1,37 @@
+ - The most beautiful thing you can wear is confidence.
+ - People gossip. People are insecure, so they talk about other people so that they won’t be talked about. They point out flaws in other people to make them feel good about themselves.
+ - If i’m not with somebody who really excites or inspires me, then I’d rather be by myself.
+ - Dressing up is all about reflecting how I feel.
+ - The most powerful thing is for women not just to be the beneficiaries of the change, but to be agents of it.
+ - I think in high school there’s so many cliques. You’re never safe.
+ - I feel like all I’ve done lately is play really sexually-charged drug addicts. I don’t know what’s wrong with me. I’ve gotta go to Disneyland more and get more excitement.
+ - I love being at home and cooking and baking.
+ - When I say something funny, I don’t laugh, so my friends are always like, ‘Hahahahaaaa!’ so people know. When I’m not with them, I always think, This person doesn’t know I’m funny; they just think I’m a jerk.
+ - When I have bad days, I just eat lots of chocolate ice cream and dance to the Lion King soundtrack. It’s really odd, but it’s true.
+ - I love scuba diving. I’m an avid diver. And, there’s this beautiful world that’s more incredible than any CGI film we could ever make, that we’re destroying, for what? It’s heartbreaking to me.
+ - You rock so, you rock so, you dip so, you dip so, you skank so, you skank so, and don’t be no drag! You come so, you come so, for reggae is another bag!
+ - People ask me why I don’t tweet. Honestly, I’m so sick of myself.
+ - I feel like there are so many people I admire for so many reasons that I can’t look at one person’s life and say, “I want that life.” I want to make my own history.
+ - I think it’s very attractive when people cook. So I don’t wear sweatpants. When you dress sexy to cook, too, it’s like, damn, I got a girl who can cook and look like that? And I always have really cute aprons.
+ - I look at anything in life like as long as you do what you believe in, then it’s going to work out. Because even if other people don’t like what you’re doing, you’re happy because you did what you believed in.
+ - I didn’t have an agent. I would just write down that I was with my brother’s agency, and then the agency would get calls and say that they had no idea who I was.
+ - I think for a lot of people, acting becomes a lifestyle, especially when you’re living in Los Angeles.
+ - I have a big family and no one ever treated me like a child. They always treated me like an adult, like an equal.
+ - There are looks that I see on other people that I think would look horrible on me, but I think if somebody has the courage to be really daring and try something outlandish, then more power to them. Thats just encouraging and inspiring.
+ - I had a lot of friends in high school, but I was never the wild party girl. Never have been, never plan to be!
+ - I’ve never worked with an acting coach, but my parents had acting classes and I grew up around them my whole life just because I didn’t have a babysitter.
+ - You could spend your life trying to uncover all the treasures in New Orleans and not even scratch the surface. It’s such an amazing place.
+ - When I was a kid people always asked why I didn’t act like the rest of my family, and parents would say, “Well, she needs a childhood! We would never allow her to do that even if she wanted to”. They were as involved in my life as any parents are in any person’s life.
+ - I actually think that craft service was the reason I got into acting: the free food. I literally remember on my first job being like, “Yes! I get to have craft service every day!”
+ - I didn’t have a boyfriend until I was 17. There were boys at school that I would find out later had a crush on me but I was too shy to talk to them.
+ - I think if you’re going to get a tattoo, it should be significant, especially when it’s all the way up your arms and your body.
+ - Because I have some amazing shoes and bags and stories that need to be appreciated.
+ - When I saw my first movie, I was fine, but I thought, “Oh, my heavens. It’s not about just standing there on my mark and saying these lines. I need to actually act.”
+ - I never really thought about acting as a child. It wasn’t like, “This is the career that I want to pursue.” So when I first started acting, I was more concerned with just being on a set and all of the woes of that, and I didn’t really know it or understand it as a craft yet.
+ - Cheesecake Factory is great. It should have Michelin stars.
+ - My mom modeled and made clothes, so I always had such an appreciation for design. And then Gossip Girl completely blew open the door to fashion for me.
+ - I did not want to be an actor because my whole family did it-going into the family business was the last thing I wanted to do.
+ - I think certain people are the way they are for certain reasons that we can’t necessarily judge without knowing.
+ - For me, I really feel like a character when I look like them.
+
+35 quotes

@@ -1,0 +1,157 @@
+ - You cannot make yourself feel something you do not feel, but you can make yourself do right in spite of your feelings.
+ - I don’t wait for moods. You accomplish nothing if you do that. Your mind must know it has got to get down to work.
+ - To find joy in work is to discover the fountain of youth.
+ - The secret of joy in work is contained in one word – excellence. To know how to do something well is to enjoy it.
+ - I don’t wait for moods – you’d never get anything done if you did.
+ - There are many ways of breaking a heart. Stories were full of hearts broken by love, but what really broke a heart was taking away its dream – whatever that dream might be.
+ - Love cannot be forced, love cannot be coaxed and teased. It comes out of heaven, unasked and unsought.
+ - Many people lose the small joys in the hope for the big happiness.
+ - The young do not know enough to be prudent, and therefore they attempt the impossible – and achieve it, generation after generation.
+ - Life is stronger than death.
+ - Self-expression must pass into communication for its fulfillment.
+ - Inside myself is a place where I live all alone and that is where I renew my springs that never dry up.
+ - None but the ignorant can be bored by life. To the lovers of learning, life is pure adventure shared with adventurers.
+ - To serve is beautiful, but only if it is done with joy and a whole heart and a free mind.
+ - The person who tries to live alone will not succeed as a human being. His heart withers if it does not answer another heart. His mind shrinks away if he hears only the echoes of his own thoughts and finds no other inspiration.
+ - All things are possible until they are proved impossible – and even the impossible may only be so, as of now.
+ - Life without idealism is empty indeed. We just hope or starve to death.
+ - A good marriage is one which allows for change and growth in the individuals and in the way they express their love.
+ - In our changing world nothing changes more than geography.
+ - If you want to understand today, you have to search yesterday.
+ - Integrity is honesty carried through the fibres of the being and the whole mind, into thought as well as action so that the person is complete in honesty. That kind of integrity I put above all else as an essential to leadership.
+ - When good people in any country cease their vigilance and struggle, then evil men prevail.
+ - A person’s heart withers if it does not answer another heart.
+ - A foreigner is a friend I have yet to meet.
+ - It is better to learn early of the inevitable depths, for then sorrow and death can take their proper place in life, and one is not afraid.
+ - Euthanasia is a long, smooth-sounding word, and it conceals its danger as long, smooth words do, but the danger is there, nevertheless.
+ - The test of a civilization is in the way that it cares for its helpless members.
+ - One faces the future with one’s past.
+ - There is an alchemy in sorrow. It can be transmuted into wisdom, which, if it does not bring joy, can yet bring happiness.
+ - Nothing and no one can destroy the Chinese people. They are relentless survivors.
+ - We learn as much from sorrow as from joy, as much from illness as from health, from handicap as from advantage and indeed perhaps more.
+ - There will never cease to be ferment in the world unless people are sure of their food.
+ - To eat bread without hope is still slowly to starve to death.
+ - When men destroy their old gods they will find new ones to take their place.
+ - I feel no need for any other faith than my faith in human beings.
+ - None who have always been free can understand the terrible fascinating power of the hope of freedom to those who are not free.
+ - Life is the wonder with which we are all infused.
+ - But what happens when her beauty is torn from her like a cover from a book? Will he care to read her then, although her pages speak of nothing but love for him?
+ - I do not believe in a child world. It is a fantasy world. I believe the child should be taught from the very first that the whole world is his world, that adult and child share one world, that all generations are needed.
+ - The rich are always afraid.
+ - We must have hope or starve to death.
+ - When hope is taken away from a people, moral degeneration follows swiftly thereafter.
+ - What is a neglected child? He is a child not planned for, not wanted. Neglect begins, therefore, before he is born.
+ - Truth is always exciting. Speak it, then; life is dull without it.
+ - Order is the shape upon which beauty depends.
+ - Growth itself contains the germ of happiness.
+ - I am comforted by life’s stability, by earth’s unchangeableness. What has seemed new and frightening assumes its place in the unfolding of knowledge. It is good to know our universe. What is new is only new to us.
+ - Love can never be a sin. It can be only a blessing. Even if you’re not loved in return – though I can’t imagine that – to love is a proof of life – indeed, it’s the only proof, for once you can’t love another human being, you’re not alive.
+ - Some are kissing mothers and some are scolding mothers, but it is love just the same, and most mothers kiss and scold together.
+ - I am mentally bifocal.
+ - Once the ‘what’ is decided, the ‘how’ always follows. We must not make the ‘how’ an excuse for not facing and accepting the ‘what.’
+ - What the common man cannot understand he hates.
+ - The boundary between civilization and barbarism is difficult to draw: put one ring in your nose and you are a savage, put two rings in your ears and you are civilized.
+ - It is not healthy when a nation lives within a nation, as colored Americans are living inside America. A nation cannot live confident of its tomorrow if its refugees are among its own citizens.
+ - Nothing is menial where there is love.
+ - We need to restore the full meaning of that old word, duty. It is the other side of rights.
+ - Every great mistake has a halfway moment, a split second when it can be recalled and perhaps remedied.
+ - It is love itself that is important – the ability to love, no matter whom you love. For when you can no longer love anyone, you are no longer a living person. The heart dies if it loses the capacity to love.
+ - Somehow I had learned from Thoreau, who doubtless learned it from Confucius, that if a man comes to do his own good for you, then must you flee that man and save yourself.
+ - Perhaps one has to be very old before one learns to be amused rather than shocked.
+ - I learned to distinguish between the two kinds of people in the world: those who have known inescapable sorrow and those who have not.
+ - If you start to revise before you’ve reached the end, you’re likely to begin dawdling with the revisions and putting off the difficult task of writing.
+ - The only real danger to our country is from within, that we forget our own power to be what we want to be.
+ - The highest civilizations – the longest to last and I believe the most successful in human terms – are those which have come the closest to achieving real understanding and mutual appreciation between men and women.
+ - People on the whole are very simple-minded, in whatever country one finds them. They are so simple as to take literally, more often than no, the things their leaders tell them.
+ - Only very coarse persons wanted wars.
+ - Iowans know themselves and what they are doing. They are doing well.
+ - The truly creative mind in any field is no more than this: A human creature born abnormally, inhumanly sensitive.
+ - Love dies only when growth stops.
+ - In this unbelievable universe in which we live, there are no absolutes. Even parallel lines, reaching into infinity, meet somewhere yonder.
+ - Love alone could waken love.
+ - A hungry man can’t see right or wrong. He just sees food.
+ - She had always been too wise to tell him all she thought and felt, knowing by some intuition of her own womanhood that no man wants to know everything of any woman.
+ - The truth has never been told about women in history: that everywhere man has gone woman has gone too, and what he has done she has done also. Women are ignorant of their own past and ignorant of their own importance in that past.
+ - As for New York City, it is a place apart. There is not its match in any other country in the world.
+ - Our society must make it right and possible for old people not to fear the young or be deserted by them, for the test of a civilization is the way that it cares for its helpless members.
+ - The bitterest creature under heaven is the wife who discovers that her husband’s bravery is only bravado, that his strength is only a uniform, that his power is but a gun in the hands of a fool.
+ - It is better to be first with an ugly woman than the hundreth with a beauty.
+ - No daughter is ever her mother’s darling. That spot is always reserved for the son.
+ - For our democracy has been marred by imperialism, and it has been enlightened only by individual and sporadic efforts at freedom.
+ - In a mood of faith and hope my work goes on. A ream of fresh paper lies on my desk waiting for the next book. I am a writer and I take up my pen to write.
+ - Be born anywhere, little embryo novelist, but do not be born under the shadow of a great creed, not under the burden of original sin, not under the doom of Salvation.
+ - For no country is a true democracy whose women have not an equal share in life with men, and until we realize this we shall never achieve a real democracy on this earth.
+ - God is not in the vastness of greatness. He is hid in the vastness of smallness. He is not in the general. He is in the particular.
+ - Praise out of season, or tactlessly bestowed, can freeze the heart as much as blame.
+ - Introversion, at least if extreme, is a sign of mental and spiritual immaturity.
+ - It is ironical that in an age when we have prided ourselves on our progress in the intelligent care and teaching of children we have at the same time put them at the mercy of new and most terrible weapons of destruction.
+ - Some of the biggest failures I ever had were successes.
+ - At my age the bones are water in the morning until food is given them.
+ - The best government in the world, the best religion, the best traditions of any people, depend upon the good or evil of the men and women who administer them.
+ - Sooner or later the young always betrayed the old.
+ - Purposeless activity may be a phase of death.
+ - People don’t care to read what they already think or what any people think – they know all that well enough. They want to know what they ought to think.
+ - When we know what we want to prove, we go out and find our facts. They are always there.
+ - The greatest problem that war leaves, in a man, is how to recapture reality. That’s because war is unreal.
+ - It is better not to say “lend.” There is only giving.
+ - To know what one can have and to do with it, being prepared for no more, is the basis of equilibrium.
+ - It is difficult not to wonder whether that combination of elements which produces a machine for labor does not create also a soul of sorts, a dull resentful metallic will, which can rebel at times.
+ - It certainly must have been a relief for women of the country to realize that one could be a woman and a lady and yet be thoroughly political.
+ - I am always glad when any of my books can be put into an inexpensive edition, because I like to think that any people who might wish to read them can do so. Surely books ought to be within reach of everybody.
+ - I feel no need for any other faith than my faith in the kindness of human beings. I am so absorbed in the wonder of earth and the life upon it that I cannot think of heaven and angels.
+ - Hunger makes a thief of any man.
+ - As for inhibitions, I’ve spent a lifetime developing them, and I don’t intend to lose them.
+ - Religion was their meat and their excitement, their mental food and their emotional pleasure.
+ - The feeling one has after coming to know American women is that they are starving at their sources.
+ - It may be that religion is dead, and if it is, we had better know it and set ourselves to try to discover other sources of moral strength before it is too late.
+ - Race prejudice is not only a shadow over the colored it is a shadow over all of us, and the shadow is darkest over those who feel it least and allow its evil effects to go on.
+ - Every event has had its cause, and nothing, not the least wind that blows, is accident or causeless.
+ - When one commits one’s self to an airborne craft and the door is fastened against earth and home, there is no escape even by running away. The result is a strange sense of peace – desperate, perhaps, but peace.
+ - All in all, Vermont is a jewel state, small but precious.
+ - An intelligent, energetic, educated woman cannot be kept in four walls-even satin-lined, diamond-studded walls-without discovering sooner or later that they are still a prison cell.
+ - We should so provide for old age that it may have no urgent wants of this world to absorb it from meditation on the next. It is awful to see the lean hands of dotage making a coffer of the grave.
+ - Can such stiff and formal moldings as words capture the spirit-essence of love?
+ - I do not believe there is any important difference between men and women – certainly not as much as they may be between one woman and another or one man and another.
+ - At heart a truly modest man, he had nevertheless the modest man’s pride in his modesty in the face of achievement.
+ - We send missionaries to China so the Chinese can get to heaven, but we won’t let them into our country.
+ - Every era of renaissance has come out of new freedoms for peoples. The coming renaissance will be greater than any in human history, for this time all the peoples of the earth will share in it.
+ - Men would rather be starving and free than fed in bonds.
+ - If our American way of life fails the child, it fails us all.
+ - Vermont is a country unto itself.
+ - Man was lost if he went to a usurer, for the interest ran faster than a tiger upon him.
+ - A woman’s mind is not an instrument apart from her other being. She does not separate herself as man does, now flesh, now mind, now heart. She is there as one, a unity complete and unified.
+ - Chinese are wise in comprehending without many words what is inevitable and inescapable and therefore only to be borne.
+ - Only people who are assured of daily food can concern themselves with matters of principle and ethic. A man will become a slave rather than starve.
+ - When we define democracy now it must still be as a thing hoped for but not seen.
+ - Men and women should own the world as a mutual possession.
+ - War is the most devastating endemic and epidemic disease the human race has to endure, and yet too little has been done to discover and eliminate its cause by intelligent early control.
+ - Our bodies can be mobilized by law and police and men with guns, if necessary-but where shall we find that which will make us believe in what we must do, so that we can fight through to victory?
+ - The main barrier between East and West today is that the white man is not willing to give up his superiority and the colored man is no longer willing to endure his inferiority.
+ - Believing in gods always causes confusion.
+ - An Englishman is never afraid of being laughed at. He just thinks the other fellow is a fool. But Americans still can’t risk anybody laughing at them.
+ - For Nature is not unjust. She does not steal into the womb and like an evil fairy give her good gifts secretly to men and deny them to women. Men and women are born free and equal in ability and brain. The injustice begins after birth.
+ - On this earth, though far and near, without love, there’s only fear.
+ - Because psychologists have been able to discover, exactly as in a slow-motion picture, the way the human creature acquires knowledge and habits, the normal child has been vastly helped by what the retarded have taught us.
+ - Food for all is a necessity. Food should not be a merchandise, to be bought and sold as jewels are bought and sold by those who have the money to buy. Food is a human necessity, like water and air, it should be available.
+ - Nothing in life is as good as the marriage of true minds between man and woman. As good? It is life itself.
+ - To know how to do something well is to enjoy it.
+ - All birth is unwilling.
+ - There was an old abbot in one temple and he said something of which I think often and it was this, that when men destroy their old gods they will find new ones to take their place.
+ - It is good to know our universe. What is new is only new to us.
+ - The older a people grows, the more it absorbs its own landscape and builds to it.
+ - There will be no real content among American women unless they are made and kept more ignorant or unless they are given equal opportunity with men to use what they have been taught. And American men will not be really happy until their women are.
+ - The basic discovery about any people is the discovery of the relationship between its men and its women.
+ - A man is educated and turned out to work. But a woman is educated and turned out to grass.
+ - It is natural anywhere that people like their own kind, but it is not necessarily natural that their fondness for their own kind should lead them to the subjection of whole groups of other people not like them.
+ - Anger can give energy to the mind but only if it is harnessed and held in control.
+ - What a man does in his own house cannot concern the nation.
+ - There is, of course, a difference between what one seizes and what one really possesses.
+ - He was part of a whole, a people scattered over the earth and yet eternally one and indivisible. Wherever a Jew lived, in whatever safety and isolation, he still belonged to his people.
+ - Write a novel if you must, but think of money as an unlikely accident. Get your reward out of writing it, and try to be content with that.
+ - Let woman out of the home, let man into it, should be the aim of education. The home needs man, and the world outside needs woman.
+ - If I have learned anything in my long life it is to be grateful for every occasion when I followed my sympathies and avoided my antipathies.
+ - The mind that doggedly insists on prejudice often has not intelligence enough to change.
+ - The head raised too high even in good will be struck off too soon.
+ - Science and religion, religion and science, put it as it may, they are the two sides of the same glass, through which we see darkly until these two focus together, reveal the truth.
+
+155 quotes

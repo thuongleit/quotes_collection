@@ -1,0 +1,32 @@
+ - It is more blessed to give than to receive, and therefore less blessed to receive than to give.
+ - The heart is not so constituted, and the only way to dispossess it of an old affection is by the expulsive power of a new one.
+ - Regardless of how large, your vision is too small.
+ - The best way to overcome the world is not with morality or self-discipline. Christians overcome the world by seeing the beauty and excellence of Christ. They overcome the world by seeing something more attractive than the world: Christ.
+ - Prayer does not enable us to do a greater work for God. Prayer is a greater work for God.
+ - Christ came to give us a justifying righteousness, and He also came to make us holy – not chiefly for the purpose of evidencing here our possession of a justifying righteousness – but for the purpose of forming and fitting us for a blessed eternity.
+ - Write your name in kindness, love and mercy on the hearts of the thousands you come in contact with year by year, and you will never be forgotten.
+ - It is in those times of hopeless chaos when the sovereign hand of God is most likely to be seen.
+ - A man’s needs are few. The simpler the life, therefore, the better. Indeed, only three things are truly necessary in order to make life happy: the blessing of God, the benefit of books, and the benevolence of friends.
+ - O God, impress upon me the value of time, and give regulation to all my thoughts and to all my movements.
+ - Every man is a missionary, now and forever, for good or for evil, whether he intends or designs it or not.
+ - Guard against that vanity which courts a compliment, or is fed by it.
+ - Enthusiasm is a virtue rarely to be met with in seasons of calm and unruffled prosperity.
+ - Acts of virtue ripen into habits; and the goodly and permanent result is the formation or establishment of a virtuous character.
+ - Faith is like the hand of the beggar that takes the gift while adding nothing to it.
+ - With the magnificence of eternity before us, let time, with all its fluctuations, dwindle into its own littleness.
+ - If it be the characteristic of a worldly man that he desecrates what is holy, it should be of the Christian to consecrate what is secular, and to recognize a present and presiding divinity in all things.
+ - Not till we come to a simple reliance on the blood and mediation of the Saviour, shall we know what it is either to have trust in God, or know what it is to walk before Him without fear, in righteousness and true holiness.
+ - There are no moral blanks; there are no neutral characters.
+ - By the very constitution of our nature moral evil is its own curse.
+ - Infidelity gives nothing in return for what it takes away. What, then, is it worth? Everything valuable as a compensating power. Not a blade of grass that withers, or the ugliest weed that is flung away to rot and die, but reproduces something.
+ - Shakespeare is an intellectual miracle.
+ - I have no sympathy whatever with those who would grudge our workmen and our common people the very highest acquisitions which their taste or their time or their inclination would lead them to realize.
+ - O Heavenly Father, convert my religion from a name to a principle! Bring all my thoughts and movements into an habitual reference to Thee!
+ - The character wherewith we sink into the grave at death is the very character wherewith we shall reappear at the resurrection.
+ - The sum and substance of the preparation needed for a coming eternity is that you believe what the Bible tells you, and do what the Bible bids you.
+ - I take one decisive and immediate step, and resign my all to the sufficiency of my Saviour.
+ - The public! why, the public’s nothing better than a great baby.
+ - Even in the fiercest uproar of our stormy passions, conscience, though in her softest whispers, gives to the supremacy of rectitude the voice of an undying testimony.
+ - It has been said that there is nothing more uncommon than common sense.
+
+30 quotes

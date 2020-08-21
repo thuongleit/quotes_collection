@@ -1,0 +1,27 @@
+ - What if, every time I started to invent something, I asked, ‘How would nature solve this?’
+ - Biomimicry is basically taking a design challenge and then finding an ecosystem that’s already solved that challenge, and literally trying to emulate what you learn.
+ - Life creates conditions conducive to life.
+ - The answers to our questions are everywhere; we just need to change the lens with which we see the world.
+ - The more our world functions like the natural world, the more likely we are to endure on this home that is ours, but not ours alone.
+ - Listening to nature’s operating instructions.
+ - Everyone is trying to jump on the biomimic bandwagon. But a cork floor is not biomimicry. Neither is using bacteria to clean water.
+ - When the forest and the city are functionally indistinguishable, then we know we have reached sustainability.
+ - Green chemistry is replacing our industrial chemistry with nature’s recipe book. It’s not easy, because life uses only a subset of the elements in the periodic table. And we use all of them, even the toxic ones.
+ - Nature works with five polymers. Only five polymers. In the natural world, life builds from the bottom up, and it builds in resilience and multiple uses.
+ - There are literally as many ideas as there are organisms.
+ - The truth is, natural organisms have managed to do everything we want to do without guzzling fossil fuels, polluting the planet or mortgaging the future.
+ - Cooperation in the most natural thing in the world.
+ - Biologically inspired materials could revolutionize materials science. People looking at spider silk and abalone shells are looking for new ways to make materials better, cheaper, and with less toxic byproducts.
+ - For businesses, biomimicry is about bringing a new discipline – biology – to the design table. It’s not to write an environmental impact statement, as most biologists in business do right now.
+ - The answers to how to live sustainably on our planet are all around us.
+ - Water is at the center of every chemical reaction, and therefore should be the earths most precious gift.
+ - Virtually all native cultures that have survived without fouling their nests have acknowledged that nature knows best, and have had the humility to ask the bears and wolves and ravens and redwoods for guidance.
+ - In reality, we haven’t escaped the gravity of life at all. We are still beholden to ecological laws, the same as any other life-form.
+ - Biological knowledge is doubling every five years.
+ - If we are to use our tools in the service of fitting in on Earth, our basic relationship to nature – even the story we tell ourselves about who we are in the universe – has to change.
+ - Conserving habitats is a wellspring for the next industrial revolution.
+ - Life solves its problems with well-adapted designs, life-friendly chemistry and smart material and energy use.
+ - Trees and bones are constantly reforming themselves along lines of stress. This algorithm has been put into a software program that’s now being used to make bridges lightweight, to make building beams lightweight.
+ - The real survivors are the Earth inhabitants that have lived millions of years without consuming their ecological capital, the base from which all abundance flows.
+
+25 quotes

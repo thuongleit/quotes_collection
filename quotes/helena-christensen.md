@@ -1,0 +1,49 @@
+ - I am a serious food lover and Peruvian cuisine is one of the best in the world.
+ - A beautiful person is someone who stays true to themselves and their spirit; someone who is self-confident and can make you smile.
+ - Because your child is your first priority, your’re more selective, so in order to let someone into that world, they have to be really special. You cut out the bull – that you might fall for if you didn’t have responsibilities.
+ - Harbour Island in the Bahamas is a wonderful little island with beautiful beaches, a great restaurant culture and friendly, welcoming atmosphere.
+ - Don’t tell anyone. I’m supposed to be dumb.
+ - I find it utterly bizarre that total strangers write about your life in a completely fictional manner.
+ - I still love taking pictures with Polaroid film. For me, it offers the most beautiful way of capturing reality and transferring it onto a flat piece of paper.
+ - I always loved the style of Jean Seberg, Jane Birkin and Marilyn Monroe.
+ - The more people explore the world, the more they realize in every country there’s a different aesthetic. Beauty really is in the eye of the beholder.
+ - I was once stranded on a broken-down boat in shark-infested waters in the middle of the Indian Ocean for five days before we were rescued while doing a ‘Vogue’ shoot.
+ - I’ve taken my knickers off. My friends told me my panty line was visible, so I went without.
+ - There will always be a desire for something new, fresh and innovative, as well as a yearning and respect for timeless elegance and beauty.
+ - It’s really intimidating to go on the beach in a bikini.
+ - It’s flabbergasting. I can understand if you have your legs spread and you’re pushing yourself into the camera – that’s sexually erotic. But the sensual contours in the male or female shape? Come on, guys, relax.
+ - I felt like I was in the best photography school in the world – I had Herb Ritts, Bruce Weber, Richard Avedon and Irving Penn teach me.
+ - Kate is going to come back, she is going to be super-strong again. Everybody is going to want her again because she is that kind of person. She is very professional and beautiful and she is going to be around forever.
+ - In modelling, there is no point in trying to prove you have a brain, so why even bother? I’d sooner save the energy for something more meaningful.
+ - I love breasts. I love the female shape. It’s crazy – you can have movie posters with men with machine guns but, oh, God forbid you show the nipples! That never ceases to amaze me.
+ - Denmark is like a secret little place with its own special language.
+ - You are by yourself for the best years of your life. You sleep in airports. If it doesn’t kill you it makes you strong.
+ - I wasn’t worried about turning 40 at all.
+ - I was born in high heels and I’ve worn them ever since.
+ - To tell you the truth, I’ve never weighed myself. When somebody asks me my statistics or whatever I honestly don’t know.
+ - When you are modelling, you are creating a picture, a still life, perhaps something like a silent film. You convey emotion but you are only using your body.
+ - I’m a fun person. I like cracking jokes and being completely nerdy.
+ - Some designers retain a sense of humour about what they do, but others are deathly serious and have no life outside of it; they’re lying awake night after night constructing dresses in their heads.
+ - I want to live to be 120. That’s when I will start worrying about my age.
+ - I love playing around with vintage fabrics and lace.
+ - Modelling is a silly, crazy business.
+ - Cheese is one of my great weaknesses, I could eat the stuff by the pound.
+ - Like any woman, I worry about my body.
+ - I am very much aware of the visual side of things. I do a lot of photography. I often take Polaroids of things that strike me as visually interesting, just to remember them and perhaps use later.
+ - If I have an hour in a city, I go to vintage stores first because it’s so much cooler to find a piece that is unique. I love the thought of some girl having worn it before and living her life in it.
+ - I had never done any serious acting before, but I decided that it was a chance that I should take.
+ - There are particular images that I like. Allegro is composed of a series of still life photographs that has been put to speed. There is so much care that has gone into the composition of the cinematography.
+ - It’s incredible to have been part of fashion history – my whole career has been one big highlight.
+ - I like people who dress quirkly and differently. Like in womenswear, thank god for Helena Bonham Carter!
+ - I believe food is the most brilliant invention ever.
+ - Women can explore so much in dressing. But if I was a guy I would wear vintage suits constantly. With crazy ties!
+ - Everything we have is everything we love – it’s basically like we picked for our homes and then just put it for sale in a store.
+ - There’ve been times when I’ve bought a whole pound of cheese and walked down the street and eaten it in one go.
+ - From the minute I wake up until I go to bed I think about food.
+ - This was all very new to me and I did not want to ruin his film! So we worked hard on that basis of confidence that is needed to collaborate comfortably.
+ - So many times I’ve wanted to crack up, standing there stiff while seven women are crawling round my toes fixing hems and the designer’s having a freak-out because the denim cuffs are crooked. I’m on the verge of hysteria.
+ - I don’t look at fashion the way other people do.
+ - When on the set of a film, you have to play natural for entire scenes in a very unnatural environment. You have to express emotions and interact with other actors and also use your voice.
+ - I would love to photograph Stephen Hawking. I am just fascinated by science, I really am.
+
+47 quotes

@@ -1,0 +1,62 @@
+ - There is no silver bullet. There are always options and the options have consequences.
+ - A CEO needs great intelligence and great courage. And I always found my courage was tested more.
+ - I don’t believe in statistics. I believe in calculus.
+ - Don’t punk out and don’t quit.
+ - As a startup CEO, I slept like a baby. I woke up every 2 hours and cried.
+ - The only thing that prepares you to run a company is running a company.
+ - You know what the difference between a vision and a hallucination is? They call it a vision when other people can see it.
+ - Until you make the effort to get to know someone or something, you don’t know anything.
+ - Planning is valuable, tho the plan is usually useless.
+ - There are no shortcuts to knowledge, especially knowledge gained from personal experience. Following conventional wisdom and relying on shortcuts can be worse than knowing nothing at all.
+ - As a company grows, communication becomes its biggest challenge.
+ - Business ends up being very dynamic and situational.
+ - Sometimes an organization doesn’t need a solution; it just needs clarity.
+ - How do you make your company a good place to work in general? That’s a really, really, really large and complex set of skills. A lot of it is on-the-job training, combined with excellent mentorship.
+ - Billionaires prefer Black women. They are loyal and guard your interests. Black wives are for grown ups.
+ - The trouble with innovation is that truly innovative ideas often look like bad ideas at the time.
+ - To succeed at selling a losing product, you must develop seriously superior sales techniques. In addition, you have to be massively competitive and incredibly hungry to survive in that environment.
+ - Most large mistakes in organizational design come from putting the individual ambitions of the people at the top of the organization ahead of the communication paths for the people at the bottom of the organization.
+ - The one thing with stress is, you’ve got to keep your focus on what you can do, not what happened to you.
+ - Over the last ten years, technological advances have dramatically lowered the financial bar for starting a new company, but the courage bar for building a great company remains as high as it has ever been.
+ - Early in my career as an engineer, I’d learned that all decisions were objective until the first line of code was written. After that, all decisions were emotional.
+ - One of the great things about building a tech company is the amazing people that you can hire.
+ - Leadership is hard to train on.
+ - In life, you don’t have a level of confrontation and the nonsense you run into when you’re a CEO. CEOs aren’t born.
+ - Nothing motivates a great employee more than a mission that’s so important that it supersedes everyone’s personal ambition.
+ - It turns out that is exactly what product strategy is all about – figuring out the right product is the innovator’s job, not the customer’s job.
+ - Every time you make the hard, correct decision you become a bit more courageous, and every time you make the easy, wrong decision you become a bit more cowardly. If you are CEO, these choices will lead to a courageous or cowardly company.
+ - A manager can’t act like a role model. They need to BE a role model.
+ - Wartime CEO is too busy fighting the enemy to read management books written by consultants who have never managed a fruit stand.
+ - I believe in strength over lack of weakness.
+ - What do you get when you cross a herd of sheep with a herd of lemmings? A herd of venture capitalists.
+ - It’s hard in daily life. It’s even harder in management because it’s the stress of the moment.
+ - Startup CEOs should not play the odds. When you are building a company, you must believe there is an answer and you cannot pay attention to your odds of finding it. You just have to find it. It matters not whether your chances are nine in ten or one in a thousand; your task is the same.
+ - You’re better off being The Beatles than The Monkees, as a startup...
+ - You don’t need every investor to believe that you can succeed. You only need one.
+ - Hire sales people who are really smart problem solvers, but lack courage, hunger and competitiveness, and your company will go out of business.
+ - When I was CEO, and I’d listen to music, a lot of people listen to music and you get inspiration from it. And a lot of things in hip hop are very instructive for being in business. Particularly, hip hop is a lot about business, and so it was very useful for me in any job.
+ - As companies move to web-based computing they get a lot more servers, which are difficult to manage and control. All kinds of problems can arise – security, quality and worms.
+ - Groupon looked like a very high valuation, but any investment in a great company at any stage is almost always a good investment.
+ - The right answer on raises is you have to be formal. You have to be formal to save your own culture.
+ - The important thing about mobile is, everybody has a computer in their pocket. The implications of so many people connected to the Internet all the time from the standpoint of education is incredible.
+ - When raising money, you want to look through the lens of ‘What happens when things go wrong?’
+ - The bigger you get, the harder this gets because the more aggressive the people working for you are.
+ - When you’re making a critical decision, you have to understand how it’s going to be interpreted from all points of view. Not just your point of view, not just the person you’re talking to, but the people that aren’t in the room. Everybody else.
+ - Breakthrough ideas usually come from guys who look like they’re hallucinating.
+ - In a company, hundreds of decisions get made, but objectives and goals are thin.
+ - For example, the vast majority of security break-ins occur as a result of problems with known fixes. With an automated system, you can keep up to date.
+ - It’s quite possible for an executive to hit her goal for the quarter by ignoring the future.
+ - Relationships built from a business do better than the reverse.
+ - A key thing in being a leader is you’ve got to pause yourself.
+ - Your employees know each other better than they know you.
+ - If you have never done the job, how do you know what to want?
+ - I think theres a lot to be said about just enjoying your work. It can be very contrived when people say their work is for the good of mankind.
+ - The person they’re working with, is going to be the person they’ll know more. So if that person leaves, they’re going to go – well, should have I left too? What did they get and how does that compare to my deal.
+ - There are no silver bullets...
+ - You can take somebody’s job, you have to take their job, but you don’t have to take their dignity.
+ - Here’s Kanye, the great musical genius of his generation in hip hop, but, like, society really can’t even deal with him because he’s always saying something that people go, ‘Oh, I can’t believe Kanye said that. I can’t believe he did that.’
+ - Volatility and length, that’s the value on an option. 10 years on a startup stock, that’s a big valuable thing.
+ - In Silicon Valley, when you’re a private company, the entrepreneur can do no wrong.
+ - In my experience as CEO, I found that the most important decisions tested my courage far more than my intelligence.
+
+60 quotes

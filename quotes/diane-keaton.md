@@ -1,0 +1,57 @@
+ - Memories are simply moments that refuse to be ordinary.
+ - I think the growth of the brain is a slow process. But you do change and the more you accept change and embrace change, the better.
+ - Humor helps us get through life with a modicum of grace. It offers one of the few benign ways of coping with the absurdity of it all.
+ - What is perfection, anyway? It’s the death of creativity...
+ - I’ve always loved independent women, outspoken women, eccentric women, funny women, flawed women. When someone says about a woman, ‘I’m sorry, that’s just wrong,’ I tend to think she must be doing something right.
+ - Just have fun. Smile. And keep putting on lipstick.
+ - Even though all these obstacles keep coming at you, you just have to keep going through them. Because it’s worth it to do something in your life, as opposed to fantasizing about doing something.
+ - When I was young, I wanted my appearance to be more interesting than what surrounded me. Now the body part I like best is my eyes, because they bring beauty to me.
+ - I’m a hoarder. For me, documentation has always been key, and I’ve kept everything from my past.
+ - I used to listen to Judy Garland all the time – I love Judy Garland and her music. But I started to realize that if you keep singing like that, singing songs of being victimized by love over and over and over again, it can’t help but have a profound effect on your life.
+ - I spent a lot of time protecting myself. I mean, I’ve met a lot of extraordinary people over the years – and I just wish I had been able to open myself up to them more.
+ - I’ve done all kinds of things I said I wouldn’t do and, of course, now I’m glad. Thrilled.
+ - We can’t save the past or solve the riddle of love. But to me, it’s worth trying.
+ - I’m not a wine connoisseur, but I do like a glass or two at night.
+ - I wish I had put myself out there a little bit more and experienced people more instead of protecting myself.
+ - Permanence can only be found in the immortality offered by the click of a camera. Like it or not, life moves on as fleetingly as the photograph is enduring.
+ - I’m a lot of fun on a date.
+ - My mother always said that everyone should be required to write an autobiography of their lives.
+ - I drink red wine on ice to water it down.
+ - Why black and white? Because color can be too demanding.
+ - Here is my biggest takeaway after 60 years on the planet: There is great value in being fearless. For too much of my life, I was too afraid, too frightened by it all. That fear is one of my biggest regrets.
+ - My mother was really my partner in every project that I had. She was just the great enabler of my dreams.
+ - I build a wall around myself. I’m hard to get to know. Any trait you have, it gets worse as you go along.
+ - My thinking about plastic surgery is this. I haven’t had it, but never say never. Because when you do, you are definitely going to go there.
+ - A sense of freedom is something that, happily, comes with age and life experience.
+ - My mother was a listener. I’m a talker. I’m very comfortable talking.
+ - The best relationships develop out of friendships.
+ - Stephen Shadley is a great collaborator. Over the years I’ve seen him work with a wide variety of clients and stylistic approaches. He listens to people in a way that makes them feel like they’re part of the process. Steve is an inspiration on all fronts, and, believe me, that’s a rare quality.
+ - I had a career and I came to motherhood late and am not married and have never had such a trusting relationship with a man – and trust is where the real power of love comes from.
+ - What makes a heroine? I think I can answer that. A heroine is a woman who risks going too far in order to find out how far one can go for a cause greater than herself.
+ - I hadn’t been that impressed with someone since I worked with Meryl Streep.
+ - Choosing the freedom to be uninteresting never quite worked for me.
+ - I have a policy about fear: It cripples the soul, so you just have to fight it.
+ - I don’t think that because I’m not married it’s made my life any less. That old maid myth is garbage.
+ - Pretty is a self-serving situation in which it’s all about you. People who are pretty are superficial, but they are not beautiful. Beauty requires more depth.
+ - I don’t carry little purses. I carry big duffels, always.
+ - It’s not fun to see myself in the mirror.
+ - It’s kind of true, you do disappear off the planet if you are a middle-aged woman, but that has some advantages as well.
+ - Relationships are hard. You’re lucky if you find someone.
+ - Somehow weddings bring out the most insane moments in people’s lives.
+ - This living stuff is a lot. Too much, and not enough. Half empty, and half full.
+ - Without a great man writing and directing for me, I realised I was a mediocre movie star at best.
+ - I do believe in saving shoes. But that does not make me a hoarder. I am not a hoarder. But why not save them? Styles come back.
+ - The exhausting effort to control time by altering the effects of age doesn’t bring happiness.
+ - I said I would never go to a psychiatrist, and I spent much of my life in psychoanalysis.
+ - As an actress, I’m drawn to emotion and expressing the human condition in all its forms, and I’m fortunate to have thoughts and feelings at my fingertips.
+ - My mother wasn’t a stickler for the more practical approaches to life.
+ - Thanksgiving isn’t the only thing that has changed. This makes it reassuring somehow to go through the same ritual with the people you’re connected to. I guess the truth is, it all boils down to family. Right?
+ - We can grow gracefully, or gorgeously. I pick both.
+ - I am absolutely intrigued by life, and I really want to hold onto it.
+ - What celebrities are useful for is bringing attention to the public and making them more aware. They can be unbelievably effective.
+ - That’s what I learned. I learned I couldn’t shed light on love other than to feel its comings and goings and be grateful.
+ - I never understood the idea that you’re supposed to mellow as you get older. Slowing down isn’t something I relate to at all. The goal is to continue in good and bad, all of it.
+ - Being a movie star is a rare job. Nobody gives you any guarantees that you’ll get to do it forever. It’s a very lucky and privileged position to be in.
+ - I think that people who are famous tend to be underdeveloped in their humanity skills.
+
+55 quotes

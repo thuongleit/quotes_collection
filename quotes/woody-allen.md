@@ -1,0 +1,502 @@
+ - Eighty percent of success is showing up.
+ - If you want to make God laugh, tell him about your plans.
+ - The only thing standing between me and greatness is me.
+ - The heart wants what it wants. There’s no logic to these things. You meet someone and you fall in love and that’s that.
+ - If you're not failing every now and again, it's a sign you're not doing anything very innovative.
+ - I’m not anti-social. I’m just not social.
+ - I’m not afraid of death; I just don’t want to be there when it happens.
+ - The only love that lasts is unrequited love.
+ - If God exists, I hope he has a good excuse.
+ - Confidence is what you have before you understand the problem.
+ - The artist's job is not to succumb to despair but to find an antidote for the emptiness of existence.
+ - Life’s hard, then you die.
+ - The heart wants what it wants.
+ - Talent is luck. The important thing in life is courage.
+ - All i have in my life is my imagination.
+ - I don’t know the question, but sex is definitely the answer.
+ - In my house I’m the boss, my wife is just the decision maker.
+ - Having sex is like playing bridge. If you don’t have a good partner, you’d better have a good hand.
+ - Paranoia is knowing all the facts.
+ - I’ve become the person I’ve always hated, but I’m happier.
+ - We are all interested in the future, for that is where you and I are going to spend the rest of our lives.
+ - Is sex dirty? Only when it’s being done right.
+ - I took a test in Existentialism. I left all the answers blank and got 100.
+ - Error, no keyboard. Press F1 to continue.
+ - Showing up is 80 percent of life.
+ - I never start editing a film until it’s completely shot; I don’t edit along the way, ever. When it’s finished I come in here and we start with reel one, scene one and start editing shot by shot by shot until we’re finished.
+ - Those who can’t do, teach. And those who can’t teach, teach gym.
+ - What if nothing exists and we’re all in somebody’s dream?
+ - The most important words in the English language are not ‘I love you’ but ‘it’s benign.’
+ - The study of economy usually shows us that the best time for purchase was last year.
+ - There are three rings involved with marriage. The engagement ring, the wedding ring, and the suffering.
+ - We stand at a crossroads. One path leads to despair, the other to destruction. Let’s hope we make the right choice.
+ - I don’t want to live forever through my work. I want to live forever by not dying.
+ - I love the rain – it washes memories off the sidewalk of life.
+ - My ex-wife was a philosophy major at NYU. Yeah, she and I used to have deep philosophical discussions where she would prove that I didn’t exist.
+ - I hate the beach. I hate the sun. I’m pale and I’m redheaded. I don’t tan – I stroke!
+ - Just because youre paranoid doesnt mean they arent out to get you.
+ - If 90% of success in life is showing up, the other 10% depends on what you’re showing up for.
+ - Men learn to love the woman they are attracted to. Women learn to become attracted to the man they fall in love with.
+ - In my next life I want to live backwards. Start out dead and finish off as an orgasm.
+ - If you aren’t failing, you aren’t trying.
+ - Where did we come from? Where are we going? Is there possibility of a group discount?
+ - Why ruin a good story with the truth?
+ - I’d never join a club that would allow a person like me to become a member.
+ - I believe there is something out there watching us. Unfortunately, it’s the government.
+ - Don’t worry, I know almost exactly what I’m doing.
+ - Problems are like toilet paper. You pull on one and ten more come.
+ - Some drink deeply from the river of knowledge. Others only gargle.
+ - What if everything is an illusion and nothing exists? In that case, I definitely overpaid for my carpet.
+ - I don’t want to achieve immortality through my work; I want to achieve immortality through not dying. I don’t want to live on in the hearts of my countrymen; I want to live on in my apartment.
+ - I think crime pays. The hours are good, you travel a lot.
+ - Subjectivity is objective.
+ - Eternity is really long, especially near the end.
+ - Love is too weak a word for what I feel – I luuurve you, you know, I loave you, I luff you, two F’s, yes.
+ - Those who can’t do, teach!
+ - I didn’t believe in reincarnation in my past life, and I still don’t.
+ - The talent for being happy is appreciating and liking what you have, instead of what you don’t have.
+ - We Are The Sum Total Of Our Choices...
+ - God is either cruel or incompetent.
+ - God is silent. Now if only man would shut up.
+ - Sex without love is an empty experience, but as empty experiences go, it’s one of the best.
+ - Even if God exists, he’s done such a terrible job, it’s a wonder people don’t get together and file a class action suit against him.
+ - My brain? That’s my second favorite organ.
+ - She wore a short skirt and a tight sweater and her figure described a set of parabolas that could cause cardiac arrest in a yak.
+ - Why not? Life is short, life is dull, life is full of pain – and this is a chance for something special.
+ - I’m twelve years old. I run into a synagogue. I ask the rabbi the meaning of life. He tells me the meaning of life but he tells it to me in Hebrew. I don’t understand Hebrew. Then he wants to charge me $600 for Hebrew lessons.
+ - There’s nothing wrong with you that a little Prozac and a polo mallet can’t cure.
+ - Maybe the poets are right. Maybe love is the only answer.
+ - Life is full of misery, loneliness, and suffering – and it’s all over much too soon.
+ - Time is nature’s way of keeping everything from happening at once.
+ - I am two with nature.
+ - Marriage is the death of hope.
+ - I believe that sex is a beautiful thing between two people. Between five, it’s fantastic.
+ - There are worse things in life than death. Have you ever spent an evening with an insurance salesman?
+ - If only God would give me some clear sign! Like making a large deposit in my name at a Swiss bank.
+ - None of the arts are any good unless you really are great at them.
+ - Life is unresolved, confusing, bewildering, puzzling, ambiguous. You don’t really know what’s going to happen. The future is uncertain for everybody.
+ - And Nietzche, with his theory of eternal recurrence. He said that the life we lived we’re going to live over again the exact same way for eternity. Great. That means I’ll have to sit through the Ice Capades again.
+ - Money is not everything, but it is better than having one’s health.
+ - A stockbroker is someone who invests other people’s money until it is all gone.
+ - The best things in life are censored.
+ - See, I never gain an ounce, because, you know, my anxiety acts like aerobics.
+ - You rely too much on brain. The brain is the most overrated organ.
+ - If my films make one more person miserable, I’ll feel I have done my job.
+ - To you I’m an atheist; to God, I’m the Loyal Opposition.
+ - I wish I could think of a positive point to leave you with. Will you take two negative points?
+ - All people know the same truth. Our lives consist of how we choose to distort it.
+ - No, I don’t think you’re paranoid. I think you’re the opposite of paranoid. I think you walk around with the insane delusion that people like you.
+ - Today I saw a red and yellow sunset and thought, how insignificant I am! Of course, I thought that yesterday too, and it rained.
+ - If Jesus came back and saw what was being done in his name, he’d never stop throwing up.
+ - My films are a form of psychoanalysis, except that it is I who am paid, which changes everything.
+ - I was walking through the woods, thinking about Christ. If He was a carpenter, I wondered what He charged for bookshelves.
+ - Jazz is a big thing with me. It’s a very big passion of mine, to play it. I’m an amateur musician and I love everything about it. I was obsessed with jazz when I was 15 years old and I know a lot about it because I’ve loved it so much.
+ - I think a relationship is like a shark. It has to constantly move forward or it dies.
+ - You’re still in love’ ‘No I’m not, I’m not She’ll always be a part of me, and she’s an important person in my life but for the two of us something wasn’t working.’ ‘What element?’ ‘We never found out.
+ - Our love, our love will last forever. It’s forever but it just doesn’t work. That’s why it will always be romantic because it can not be complete.
+ - Nothing like a little post-traumatic stress disorder to make your day complete.
+ - Better not think too much. Relying more on the body: it is more trustworthy.
+ - Isn’t all mankind ultimately executed for a crime it never committed?
+ - I hate reality but it’s still the best place to get a good steak.
+ - When you are dead, it is hard to find the light switch.
+ - Honey! Bring down a copy of my will – and an eraser!
+ - Why are our days numbered and not, say, lettered?
+ - Some guy hit my fender, and I told him, ‘Be fruitful and multiply,’ but not in those words.
+ - Bisexuality immediately doubles your chances for a date on Saturday night.
+ - Every success is built on the ability to do better than good enough. As you climb the ladder of success, be sure it’s leaning against the right building. Eighty percent of success is showing up.
+ - Life is divided into the horrible and the miserable.
+ - Marriage is like mushrooms: we notice too late if they are good or bad.
+ - It is clear the future holds great opportunities. It also holds pitfalls. The trick will be to avoid the pitfalls, seize the opportunities, and get back home by six o’clock.
+ - Your still searching for me in every woman. You’ll always seek to duplicate what we had. You know it.
+ - I don’t know what I want, but I know what I don’t want.
+ - I had an IQ test. The results came back negative.
+ - Remember, if you smoke after sex you’re doing it too fast.
+ - You know, it’s one thing about intellectuals, they prove that you can be absolutely brilliant and have no idea what’s going on.
+ - All men are mortal. Socrates was mortal. Therefore, all men are Socrates.
+ - Your self-esteem is a notch below Kafka.
+ - I prefer to achieve immortality by not dying.
+ - You are always a comedian by default. You are this way because you’ve been forced to be this way, but it is better to be the hero. So if you can be a persona, the great one of my lifetime of course was and is Marlon Brando.
+ - When you travel around the country, you see what a tough town New York is: rude, competitive, a town where good, logical ideas are ignored in favor of unworkable ones. And yet, all these other towns are so dead and boring compared to New York.
+ - There’s nothing like the discovery of an unknown work by a great thinker to set the intellectual community atwitter and cause academics to dart about like those things one sees when looking at a drop of water under a microscope.
+ - Of all human weakness obsession is the most dangerous. And the silliest.
+ - Sex between a man and a woman can be absolutely wonderful; provided you get between the right man and the right woman.
+ - Life doesn’t imitate art, it imitates bad television.
+ - I foresee death by culture shock.
+ - I’m such a good lover because I practice a lot on my own.
+ - Is Knowledge knowable? If not, how do we know?
+ - The best an idea gets is when its in your head.
+ - I write about what I want to write about, and so the film comes out as a very personal expression even if its subject matter is totally prefabricated.
+ - Dying is one of the few things that can be done as easily lying down.
+ - No Matter what you do there will be critics.
+ - American films, it’s a money-making industry. And in France, you can find great respect for cinema as art.
+ - What is so fascinating about sitting around watching a bunch of pituitary cases stuff a ball through a hoop?
+ - My heart says one thing. My head says another. Very hard to get your heart and head together in life.
+ - To love is to suffer. To avoid suffering one must not love. But then one suffers from not loving. Therefore, to love is to suffer. Not to love is to suffer.
+ - Life is short. Short, and not about anything except what you can touch and what touches you.
+ - A man that has never lied to a woman has no respect for her feelings.
+ - I don’t get depressed; I grow a tumor instead.
+ - I don’t inhale because it gives you cancer, but I look so incredibly handsome with a cigarette that I can’t not hold one.
+ - I love nature, I just don’t want to get any of it on me.
+ - Regarding love what can you say? It’s not the quantity of your sexual relations that counts. It’s the quality. On the other hand if the quantity drops below once every eight months, I would definitely look into it.
+ - There is no question that there is an unseen world. The problem is, how far is it from midtown and how late is it open?
+ - My films are therapy for my debilitating depression. In institutions people weave baskets. I make films.
+ - You can live to be a hundred if you give up all the things that make you want to live to be a hundred.
+ - When I am in New York, I want to be in Europe, and when I am in Europe, I want to be in New York.
+ - I’m going to my psychoanalyst one more year, then I’m going to Lourdes.
+ - I have one last request. Don’t use embalming fluid on me; I want to be stuffed with crab meat.
+ - My success has allowed me to strike out with a higher class of women.
+ - I have a hyper-active imagination, my mind tends to jump around a little, and I have some trouble between fantasy and reality.
+ - When I was kidnapped, my parents snapped into action. They rented out my room.
+ - Well, trouble’s my middle name. Actually, my middle name is Marion, but I don’t want you spreading that around.
+ - Achilles only had an Achilles heel. I have an entire Achilles body.
+ - The dictatorship is shut up, democracy is always concerned.
+ - Life is full of moments that are good – winning a lottery, seeing a beautiful woman, a great dinner – but the whole thing is tragic. It’s an oasis that is very pleasant.
+ - In California, they don’t throw their garbage away – they make it into TV shows.
+ - The whole country was tied together by radio. We all experienced the same heroes and comedians and singers. They were giants.
+ - I will not eat oysters. I want my food dead. Not sick. Not wounded. Dead.
+ - Do I believe in God? I did until Mother’s accident. She fell on some meat loaf and it penetrated her spleen.
+ - There are three things Jewish people worship-God, Chinese food and wall-to-wall carpeting.
+ - If you aren’t failing every now and then, you’re probably playing it too safe.
+ - I read in self-defense.
+ - Life is a concentration camp. You’re stuck here and there’s no way out and you can only rage impotently against your persecutors.
+ - All literature is a footnote to Faust. I have no idea what I mean by that.
+ - Music has always helped my films. In ‘The Curse Of The Jade Scorpion,’ you can hear ‘Sunrise’ by Glenn Miller, an idol of my childhood, in the surprise ending. I like mixing comedy with suspense and action.
+ - This year I’m a star, but what will I be next year? A black hole?
+ - My relationship with death remains the same – I’m strongly against it.
+ - No matter what the shrinks, or the pundits, or the self-help books tell you, when it comes to love, it’s luck.
+ - My grammy never gave gifts, you know. She was too busy getting raped by Cossacks.
+ - I believe in sex and death- two experiences that come once in a lifetime.
+ - For some reason I’m more appreciated in France than I am back home. The subtitles must be incredibly good.
+ - I work all the time because it’s a great distraction and it keeps me from sitting home and obsessing morbidly.
+ - Taste my tuna casserole – tell me if I put in too much hot fudge.
+ - Reality may not be the best of all possible worlds, but it’s still the only place where you can get a decent steak.
+ - I don’t know enough to be incompetent.
+ - My one regret in life is that I am not someone else.
+ - He’s a politician. That’s a notch below child molester.
+ - As a boy, I was ashamed to wear glasses. I memorized the eye chart, and then on the test they asked essay questions.
+ - Show business is dog eat dog. It’s worse than dog eat dog. It’s dog doesn’t return dog’s phone calls.
+ - His lack of education is more than compensated for by his keenly developed moral bankruptcy.
+ - I was a nervous child, I was a bedwetter. I used to sleep with an electric blanket and I was constantly electrocuting myself.
+ - I took a speed-reading course and read War and Peace in twenty minutes. It involves Russia.
+ - The two biggest myths about me are that I’m an intellectual, because I wear these glasses, and that I’m an artist because my films lose money. Those two myths have been prevalent for many years.
+ - To me, movies are valuable as an art form and as a wonderful means of popular entertainment. But I think movies have gone terribly wrong.
+ - My education was dismal. I went to a series of schools for mentally disturbed teachers.
+ - There’s no way to prove that there is no God. You just have to take it on faith.
+ - In the shower, with the hot water coming down, you’ve left the real world behind, and very frequently things open up for you. It’s the change of venue, the unblocking the attempt to force the ideas that’s crippling you when you’re trying to write.
+ - I know what I think but I don’t know how to put it into words. Maybe I could get a little bit drunk and dance it for you.
+ - I have a great admiration for English actors and actresses and have used them at every opportunity over the years, but now I won’t have to import them to New York.
+ - Anything worth knowing cannot be understood by the human mind.
+ - How can I believe in God when just last week I got my tongue caught in the roller of an electric typewriter?
+ - When we played softball, I’d steal second base, feel guilty and go back.
+ - Money is better than poverty, if only for financial reasons.
+ - I loathed every day and regret every moment I spent in a school.
+ - There will be no major solution to the suffering of humanity until we reach some understanding of who we are, what the purpose of creation was, what happens after death. Until those questions are resolved we are caught.
+ - You know what my philosophy of life is? That it’s important to have some laughs, but you got to suffer a little too, because otherwise you miss the whole point to life.
+ - I don’t know what I’m doing, but my incompetence has never stopped my enthusiasm.
+ - Most of the time I don’t have much fun. The rest of the time I don’t have any fun at all.
+ - The less I speak to the actors, the better. And I always hire great people, and I don’t want to impose my pre-conceived notions on them. They know how to play it.
+ - I was in analysis. I was suicidal. As a matter of fact, I would have killed myself, but I was in analysis with a strict Freudian and if you kill yourself they make you pay for the sessions you miss.
+ - Is world peace possible or is the human race too innately aggressive? For instance: Have you ever seen women at a sample sale?
+ - You know how you’re always trying to get things to come out perfect in art because it’s real difficult in life.
+ - Sex and death are two things that come but once in my lifetime, but at least after death you’re not nauseous.
+ - I have bad reflexes. I was once run over by a car being pushed by two guys.
+ - I never ever see a film of mine after I release it to the public. I see it when I shoot it in my dailies and while I’m editing it, re-editing it and reshooting it and all that. By the time it’s finished I never want to see it again.
+ - Death should not be seen as the end but as a very effective way to cut down expenses.
+ - When you write the script, you’re home in a room by yourself, and you’re writing, and there’s no connection with the real performing world. So you get a lot of things wrong and make a lot of mistakes and make a lot of bad choices.
+ - Hey listen – I’ve proved a lot of things. That’s how I pay my rent. Theories and little observations. A puckish remark now and then. Occasional maxims. It beats picking olives, but let’s not get carried away.
+ - In short, the best thing to do is behave in a manner befitting one’s age. If you are sixteen or under, try not to go bald.
+ - My mind can never know my body, although it has become quite friendly with my legs.
+ - Organized crime in America takes in over forty billion dollars a year and spends very little on office supplies.
+ - Dying is like making love, except you don’t get naseous afterwards.
+ - One of the wonderful things about making a film of any genre is that you have dialogue. You can take up a position. If you want to say something about your position, you can just say it. You don’t have to spend massive amounts of screen time.
+ - Paris is a very exciting city. I learned about Paris the same way that Americans do: from the movies.
+ - I can’t imagine any director directing a screenplay of mine, because the great directors all have very personal styles, and the ones that don’t are not very interesting directors.
+ - When I’m not working, I think and I think when I get depressed.
+ - I am thankful for laughter, except when milk comes out of my nose.
+ - There have been times when I’ve thought about it – but with my luck it would probably turn out to be only a temporary solution.
+ - Umlaut snaps around and we cut to a blond apparition in her early twenties, clearly descended from Olympus by way of Hugh Hefner’s mansion.
+ - I’ve gained no wisdom, no insight, no mellowing. I would make all the same mistakes again, today.
+ - Therefore, to be unhappy one must love, or love to suffer, or suffer from too much happiness. I hope you’re getting this down.
+ - The artist can’t give you an answer that’s satisfying to the dreadful reality of your existence. So the best you can do is maybe entertain people and refresh them for an hour-and-a-half.
+ - I’m short enough and ugly enough to succeed on my own.
+ - As the author you know how you want it to appear on screen and it’s always the content dictating the form.
+ - I feel about New York as a child whose father is a bank robber. Not perfect, but I still love him.
+ - How is it possible to find meaning in a finite world, given my waist and shirt size?
+ - Not only is there no God, but try finding a plumber on Sunday.
+ - I do occasionally envy the person who is religious naturally, without being brainwashed into it or suckered into it by all the organized hustles.
+ - That’s one of the nice things about writing, or any art; if the thing’s real, it just lives.
+ - I’ve been lucky because my films have consistently made a profit, almost all of them have made a profit. Never a huge profit, but nobody gets hurt. And therefore I get a lot of freedom.
+ - A general philosophy of the female characters in my films is they all want something to believe in, and not having anything.
+ - Man cannot live by bread alone. Every once in awhile he needs a salad.
+ - A wife lasts only for the length of the marriage, but an ex-wife is there for the rest of your life.
+ - Geez, I should stop ruining my life searching for answers I’m never gonna get, and just enjoy it while it lasts.
+ - I carry a bullet in my breast pocket. Once, a crazy evangelist threw a bible at me, which would have gone through my heart if it wasn’t for the bullet.
+ - Sex alleviates tension. Love causes it.
+ - I don’t know what the hell I’m doing here. I’m 237 years old, I should be collecting social security.
+ - Sylvia Plath. Interesting poetess whose tragic suicide was misinterpreted as romantic by the college-girl mentality.
+ - In a relationship, it is better to be the leaver than the leavee.
+ - I’m a nice person! I have healthy life drives and goals! I don’t drink, I don’t smoke. I would never force myself sexually on a blind person!
+ - All things are possible, except skiing through a revolving door.
+ - The meaning of life is that nobody knows the meaning of life.
+ - He was so depressed, he tried to commit suicide by inhaling next to an Armenian.
+ - I had a mad impulse to throw you down on the lunar surface and commit interstellar perversion with you.
+ - The last time I was inside a woman was when I went to the Statue of Liberty.
+ - Until you’ve been kissed on a rainy Parisian afternoon – you’ve never been kissed.
+ - I never have an alter ego in the movies. That’s a fiction that the press has made up over the years, and it’s fun to write that. It gives them something to write.
+ - I was raised in the Jewish tradition, taught never to marry a Gentile woman, shave on a Saturday night and, most especially, never to shave a Gentile woman on a Saturday night.
+ - Between the Pope and air conditioning, I’d choose air conditioning.
+ - I said this to my daughter, if you don’t practice the guitar, when you get older you wouldn’t be able to play it. It’s that simple. If you want to play the guitar, you put a half hour in everyday, but you have to do it.
+ - All my life is passing in front of my eyes. The worst part of it is I’m driving a used car.
+ - I’m a creature of the New York City streets.
+ - Dear Mom and Dad, Leave $50,000 in a bag under the bridge on Decatur Street. If there is no bridge on Decatur Street, please build one.
+ - There are two important things in the world, the first is sex. The other isn’t all that important.
+ - I was in analysis for years because of a traumatic childhood; I was breast-fed through falsies.
+ - The great roe is a mythological beast with the head of a lion and the body of a lion, though not the same lion.
+ - I’d call him a sadistic, hippophilic necrophile, but that would be beating a dead horse.
+ - Me sitting down for dinner with Ingmar Bergman felt like a house painter sitting down with Picasso.
+ - Some people think about sex all the time; some people think of sex some of the time; and some people never think about sex: they become lawyers.
+ - This sounds so bleak when I say it, but we need some delusions to keep us going. And the people who successfully delude themselves seem happier than the people who can’t.
+ - My mother never had time for me. When you’re the middle child in a family of five million, you don’t get any attention.
+ - Man was made in God’s image. Do you really think God has red hair and glasses?
+ - I wish my parents had raised me in Manhattan because I think it’s the greatest thing you can do for a kid is to raise them in New York City. I can see this with my own children.
+ - I’m trying to arrange my life so I don’t have to be present.
+ - My father owned a small piece of land. He carried it with him wherever he went.
+ - I’m very proud of my gold pocket watch. My grandfather, on his deathbed, sold me this watch.
+ - I can’t enjoy anything unless everybody is. If one guy is starving someplace, that puts a crimp in my evening.
+ - People always tease me. They say, look at you, you went for so much psychoanalysis and you’re so neurotic, you wind up marrying a girl so much younger than you.
+ - People always ask me, Do you ever think you’ll wake up one morning and not be funny? That thought would never occur to me – it’s an odd thought and not realistic. Because funny and me are not separate. We’re one.
+ - It’s important to control yourself because life gets too complicated if you don’t, but the impulse is often there for people. Some say society should be more open. That doesn’t work either.
+ - The prettiest women are almost always the most boring, and that is why some people feel there is no God.
+ - I can levitate birds. No one cares.
+ - In life, one is entitled to a side dish of either coleslaw or potato salad, and the choice must be made in terror, with the knowledge that not only is our time on earth limited but most kitchens close at ten.
+ - I have an intense desire to return to the womb. Anybody’s.
+ - I am an only child. I have one sister.
+ - If you meet somebody and are attracted to someone, and the exquisite neurons in your brain and her brain intermesh properly, then things can be wonderful. It’s not like homework. You don’t have to work at the relationship.
+ - My parents were very Old World. They come from Brooklyn, which is the heart of the Old World. Their values in life are God and carpeting.
+ - If I could only see one miracle, just one miracle. Like a burning bush, or the seas part, or my uncle Sasha pick up a check.
+ - Should I marry W? Not if she won’t tell me the other letters in her name. And what about her career? How can I ask a woman of her beauty to give up the Roller Derby? Decisions...
+ - We live in far too permissive a society. Never before has pornography been this rampant. And those films are so badly lit!
+ - Paris is particularly beautiful in the rain. It was just a nice experience for me, a pleasant experience, and I was able to present it to the world through my eyes, very subjectively – not realistically, but subjectively.
+ - Rather than live on in the hearts and minds of my fellow man, I would rather live on in my apartment.
+ - My wife and I thought we were in love, but it turned out to be benign.
+ - I don’t rely on anybody except my own judgment. I don’t get much input. I don’t know if that’s helped me or if I would be better off if I did rely on someone.
+ - Side Effects Not only is there no God, but try getting a plumber on the weekend. Woody Allen Sex alleviates tension. Love causes it.
+ - Another good thing about being poor is that when you are seventy your children will not have you declared legally insane in order to gain control of your estate.
+ - You can’t ride two horses with one behind.
+ - There is dignity in suffering; nobility in pain; but failure is a salted wound, that burns and burns again!
+ - How am I immature? Intellectually, emotionally, and sexually. Yeah, but in what other ways?
+ - Honey, there’s a spider in your bathroom the size of a Buick.
+ - Have you ever noticed that good people sleep better, but bad people seem to have more fun when they’re awake?
+ - I heard that Commentary and Dissent had merged and formed Dysenery.
+ - You’re a genius! And the proof is that both common people and intellectuals find your work completely incoherent.
+ - I wonder if Socrates and Plato took a house on Crete during the summer.
+ - I sued American Apparel because they calculatingly took my name, my likeness and image and used them publicly to promote their business.
+ - Where I grew up in Brooklyn, nobody committed suicide. Everyone was too unhappy.
+ - I got a divorce because my ex-wife left me for another woman.
+ - The prison psychiatrist asked me if I thought sex was dirty. I told him only when it’s done right.
+ - I failed to make the chess team because of my height.
+ - In the event of war, I’m a hostage.
+ - Science is an intellectual dead end, you know? It’s a lot of little guys in tweed suits cutting up frogs on foundation grants.
+ - I don’t why whatever works and whatever doesn’t. You just make the film that you enjoy making at the time, and you think there’s a good chance that people might enjoy the story. You’re surprised pleasantly when they do. It’s just luck.
+ - Who bothers to cook TV dinners? I suck them frozen.
+ - My analyst warned me, but you were so beautiful I got another analyst.
+ - Nietzsche says that we will live the same life, over and over again. God – I’ll have to sit through the Ice Capades again.
+ - Just don’t take any class where you have to read BEOWULF.
+ - The curtain rises on a vast primitive wasteland, not unlike certain parts of New jersey.
+ - You mellow too much you ripen and rot.
+ - Am I my brother’s keeper? Yes. Interestingly, in my case, I share that honor with the Prospect Park Zoo.
+ - Well, if I don’t get at least 16 hours, I’m a basket case.
+ - Sex is better than talk. Ask anybody in this bar. Talk is what you suffer through so you can get to sex.
+ - What was the scandal? I fell in love with this girl, married her. We have been married for almost 15 years now.
+ - Have you ever taken a serious political stand on anything? Yeah. Sure. For twenty-four hours once I refused to eat grapes.
+ - There’s nothing sexier than a lapsed Catholic.
+ - Right now it’s only a notion, but I think I can get the money to make it into a concept, and later turn it into an idea.
+ - You use sex to express every emotion except love.
+ - I don’t believe in competition for artistic things. I just like the atmosphere of the Cannes festival. I don’t want to win anything or lose anything.
+ - Some of the best memories of my childhood that I have are the times that I played hooky from school so I could spend my days in the public library reading all the wonderful books at my disposal.
+ - I always thought that as long as man is mortal, he will never be relaxed.
+ - Photons have mass? I didn’t even know they were Catholic.
+ - I’ve inherited the worst of each parent. I have my father’s hypochondria and lack of concentration. I have his amorality. I have everything bad that he had. Then I have my mother’s surly, pill-like, complaining, whining attitude.
+ - I took a puff of the wrong cigarette at a fraternity dance once, and the cops had to get me, y’know. I broke two teeth trying to give a hickie to the Statue of Liberty.
+ - The universe is merely a fleeting idea in God’s mind – a pretty uncomfortable thought, particularly if you’ve just made a down payment on a house.
+ - It is impossible to travel faster than light, and certainly not desirable, as one’s hat keeps blowing off.
+ - Standing in a garage no more makes you a car than standing in a church makes you a Christian.
+ - How wrong Emily Dickinson was! Hope is not “the thing with feathers.” The thing with feathers has turned out to be my nephew. I must take him to a specialist in Zurich.
+ - Sex is like having dinner: sometimes you joke about the dishes, sometimes you take the meal seriously.
+ - I ran into Isosceles. He had a great idea for a new triangle!
+ - I once stole a pornographic book that was printed in braille. I used to rub the dirty parts.
+ - My wife is immature. Whenever I take a bath, she sinks my boats.
+ - I have no regard for that kind of ceremony. I just don’t think they know what they’re doing. When you see who wins those things-or who doesn’t win them-you can see how meaningless this Oscar thing is.
+ - I sold my memoirs of my love life to Parker Brothers and they are going to make a game out of it.
+ - Change is almost always negative. Things degenerate.
+ - Basically I am a low-culture person. I prefer watching baseball with a beer and some meatballs.
+ - Drama, it would be as if you wrote some poetry. You’d run the risk of being embarrassed if people read it, because you’re pouring your heart out and you’re not mitigating it with any humor or anything.
+ - The true test of maturity is not how old a person is but how he reacts to awakening in the mid-town area in his shorts.
+ - Interestingly, according to modern astronomers, space is finite. This is a very comforting thought-particularly for people who can never remember where they have left things.
+ - You’re so good looking I can barely keep my eyes on the meter.
+ - They were doing the Dying Swan at the ballet. And there was a rumor that some bookmarkers had drifted into town from upstate New York and that they had fixed the bullet. There was a lot of money bet on the swan to live.
+ - I was thrown out of college for cheating on the metaphysics exam; I looked into the soul of the boy sitting next to me.
+ - It’s funny. Maria Elena and I, we are meant for each other and not meant for each other, it’s a contradiction.
+ - I keep wondering if there is an afterlife, and if there is will they be able to break a twenty?
+ - Please forgive me. My pedicurist had a stroke. She fell forward onto the orange stick and plunged it into my toe. It required bandaging.
+ - I should go to Paris and jump off of the Eiffel Tower. If I took the Concorde, I could be dead three hours earlier.
+ - The wicked at heart probably know something.
+ - People ask me whether I think that one day I might wake up one morning and run dry, but I’ve had the opposite feeling – that I would die before I had time to write all the ideas in my drawer.
+ - Eternal nothingness is fine if you happen to be dressed for it.
+ - While we’re waiting for a cab I’ll give you your lesson for today. Don’t listen to what your teachers tell ya, you know. Don’t pay attention. Just, just see what they look like and that’s how you’ll know what life is really gonna be like.
+ - I was nauseous and tingly all over. I was either in love or I had smallpox.
+ - I don’t have to ‘freedom-kiss’ my wife when what I really want to do is French-kiss her.
+ - Every hooker I ever speak to tells me that it beats the hell out of waitressing.
+ - Early in life, I was visited by the bluebird of anxiety.
+ - Don’t you see the rest of the country looks upon New York like we’re left-wing, communist, Jewish, homosexual pornographers? I think of us that way sometimes and I live here.
+ - Sentence structure is innate, but whining is acquired.
+ - We laughed over it, and Hemingway punched me in the mouth.
+ - One of the interesting things is, the most gifted people, the biggest people, have no problem taking small roles.
+ - I myself don’t like to speak to the actors at all. I like to hire great people and let them do their thing. I don’t like to speak to them. I don’t like to have lunch with them. I don’t like to socialize with them. I don’t like to hear their ideas.
+ - I think being funny is not anyone’s first choice.
+ - I have a limitless amount of great music at my disposal and it’s very, very pleasurable because when the music goes on the film it’s amazing how much it livens up the film and gives it an emotional kick in the pants, sort of.
+ - I am plagued by doubts.
+ - I think universal harmony is a pipedream and it may be more productive to focus on more modest goals, like a ban on yodeling.
+ - Of all the wonders of nature, a tree in summer is perhaps the most remarkable; with the possible exception of a moose singing ‘Embraceable You’ in spats.
+ - In order to be successful, all you’ve got to do is show up 80 percent of the time.
+ - If the world is a progressively realized community of interpretation, then either quadruplictity will drink procrastination or, provided that the nothing negates, boredom will ensue seldom more often than frequently.
+ - I’m not saying I didn’t enjoy myself, but I didn’t.
+ - When it comes to sex there are certain things that should always be left unknown, and with my luck, they probably will be.
+ - I idolized Superman when I was younger. I thought he and I had a lot in common. He was always going into phonebooths and taking off all his clothes.
+ - A tree never hits an automobile except in self defense.
+ - Love may be the answer, but even though you’re watching for the solution, intercourse raises some rather interesting thoughts.
+ - Enthusiasm is a good engine, but it needs intelligence for a driver.
+ - Honey, you’re the one who stopped sleeping with me, OK? It’ll be a year come April 20th. I remember the date exactly, because it was Hitler’s birthday.
+ - Manute Bol is so skinny they save money on road trips. They just fax him from city to city.
+ - The food in this place is really terrible. Yes, and such small portions. That’s essentially how I feel about life.
+ - I like writing. It keeps my mind off grim subjects. It’s therapeutic in the same way a patient in an institution is given fingerpaints.
+ - I don’t want to move to a city where the only cultural advantage is being able to make a right turn on a red light.
+ - Me and nature are two.
+ - I don’t think my parents liked me. They put a live teddy bear in my crib.
+ - The whole concept of awards is silly. I cannot abide by the judgment of other people, because if you accept it when they say you deserve an award, then you have to accept it when they say you don’t.
+ - And my parents finally realize I’m kidnapped and they snap into action immediately: They rent out my room.
+ - A “Bay Area Bisexual” told me I didn’t quite coincide with either of her desires.
+ - What has gotten into you lately? Save a little craziness for menopause!
+ - If there is reincarnation, I’d like to come back as Warren Beatty’s fingertips.
+ - Relationships are really what interest me the most. And I think, in the end, they interest most people the most. Even when you read Tolstoy or something, basically they’re about man and woman relationships.
+ - I wouldn’t mind dying so much if it wasn’t that I would be dead at the end of it.
+ - Let’s say there was a burning building and you could rush in and you could save only one thing: either the last known copy of Shakespeare’s plays or some anonymous human being. What would you do?
+ - Tradition is the illusion of permanance.
+ - I did not marry the first girl that I fell in love with, because there was a tremendous religious conflict, at the time. She was an atheist, and I was an agnostic.
+ - Human beings are divided into mind and body. The mind embraces all the nobler aspirations, like poetry and philosophy, but the body has all the fun.
+ - I’m at the stage of life when if a girl says no to me I’m profoundly grateful to her.
+ - Is old age really so terrible? Not if you’ve brushed your teeth faithfully.
+ - I’m so excited-I think today I’m going to brush all my teeth.
+ - Life is horrible, but it is not relentlessly black from wire to wire. You can sit down and hear a Mozart symphony, or you can watch the Marx Brothers, and this will give you a pleasant escape for a while. And that is about the best that you can do.
+ - Arlene and I have to get a divorce. She thinks I’m a pervert because I drank our water bed.
+ - Why does man kill? He kills for food. And not only food: frequently there must be a beverage.
+ - I spend a lot of time idly. I go to sporting events, play my clarinet. I practise. But if you work every day, a certain amount on a steady basis, the work accumulates.
+ - We knew the front door was always left open, but we broke in just to keep in practice. Doxy turned all the Washburn family photos to the wall so there wouldn’t be any witnesses.
+ - I consider myself a completely lucky filmmaker. I’ve had nothing but good luck. Everything I’ve needed has come my way.
+ - I do believe that reality is dreadful and that you are forced to choose it in the end or go crazy, but that it kills you.
+ - When a doctor makes a mistake, it’s best to bury the subject.
+ - Believing would be easier if God would show himself by depositing a million dollars in a Swiss bank account in my name.
+ - Whosoever loveth wisdom is righteous, but he that keepeth company with fowl is weird.
+ - My father worked for the same firm for 12 years. They fired him and replaced him with a tiny gadget that does everything my father does, only much better. The depressing thing is my mother ran out and bought one.
+ - If I had my life to live over, I wish I could be a great pianist or something.
+ - When I was a young man, my friends and I and all of us in New York were very influenced by French cinema. French cinema played an enormous influence on those of us who wanted to be filmmakers.
+ - I do the movies just for myself like an institutionalized person who basket-weaves. Busy fingers are happy fingers. I don’t care about the films. I don’t care if they’re flushed down the toilet after I die.
+ - I loathed every day and regret every day I spent in school. I like to be taught to read and write and add and then be left alone.
+ - You’ll find as you go through life that great depth and smoldering sensuality don’t always win.
+ - New York is my home and I have a particular fondness for it. I think it’s a place where you can generate any kind of story wonderfully. But I also would be very happy to make a film in Paris or Rome.
+ - When I was born my mother was terribly disappointed. Not that she wanted a girl – she wanted a divorce.
+ - I’m a teleological, existential agnostic.
+ - If you’re born with a gift, to behave like it’s an achievement is not right.
+ - I’ve been escaping my whole life. Since I was a little child, I escaped into the movies on the other side as an audience member. I escaped by going into the movies and sitting in the movies all day long.
+ - Last year I had difficulty with my income tax. I tried to take my analyst off as a business deduction. The Government said it was entertainment. We compromised finally and made it a religious contribution.
+ - People still have existential anxiety. It just may not be expressed in Hebraic idiom.
+ - I’m a big believer in supporting the action on film with the appropriate music. It covers a multitude of sins. It’s gotten me out of a lot of jams, over the years. So, music for me is a very big thing in films and I use it unashamedly.
+ - If my soul exists without my body I am convinced all my clothes will be loose-fitting.
+ - For God sakes, this is a woman I was married to for 10 years. We made love. I’d hold her head over the toilet bowl when she threw up.
+ - Does art imitate life, or does life imitate TV?
+ - Spencer was searching for a woman interested in gold, inorganic chemistry, outdoor sex and the music of Bach. In short, he was looking for himself, only female.
+ - Life is a tragedy filled with suffering and despair and yet some people do manage to avoid jury duty.
+ - One man starving puts a crimp in my evening.
+ - Heaven knows, we all make mistakes. That’s life – and chess.
+ - Psychoanalyses is like music lessons, for 5 years you do not notice any progress and suddenly you can play the piano.
+ - I recently turned 60. Practically a third of my life is over.
+ - Death is an acquired trait.
+ - The process of making films is so technically demanding that it’s a distraction. You don’t spend your time thinking about the philosophical content, which is often very depressing.
+ - The great question of philosophy remains: If life is meaningless, what can be done about alphabet soup?
+ - If you take a frown and turn it upside down, the person you are holding by the ankles will soon pass out.
+ - The roe is reputed to sleep for a thousand years and then suddenly rise in flames, particularly if it was smoking when it dozed off.
+ - Is there a separation between body and mind, and if so which is it better to have?
+ - Inertia accounts for two-thirds of marriages. But love accounts for the other third.
+ - Humorists always sit at the children’s table.
+ - And in all of Babylonia there was wailing and gnashing of teeth, ’til the prophets bade the multitudes get a grip on themselves and shape up.
+ - There are worse things than death. Many of them playing at a theater near you.
+ - My parents stayed together for forty years. But that was out of spite.
+ - As the poet said, ‘Only God can make a tree,’ probably because it’s so hard to figure out how to get the bark on.
+ - See, I will always have this penchant for what I call kamikaze women. I call them kamikazes because they, you know they crash their plane, they’re self-destructive. But they crash into you, and you die along with them.
+ - In real life, Keaton believes in God. But she also believes that the radio works because there are tiny people inside it.
+ - If I can play a scene in a master shot, I always prefer it. And the actors always prefer it. It’s fun to look at on the screen, the actors get a chance to sink their teeth into something substantial, and it’s economically helpful.
+ - I’ve always been lucky in casting. The trick in casting is to hire great people, and let them do what they do, don’t interfere with them too much. And then when they’re great, take credit for it in the end.
+ - Some people are funny, and some people are not funny. Many people who are not funny can make a living at it. You don’t have to be great to make a living at it. Just like a doctor who doesn’t have to be great can still make a living out of it.
+ - Everything is controlled by a small evil group to which, unfortunately, no one we know belongs.
+ - Comedy just pokes at problems, rarely confronts them squarely. Drama is like a plate of meat and potatoes, comedy is rather the dessert, a bit like meringue.
+ - I usually want to crawl into the ground after I make a film, almost invariably.
+ - The lion and the calf shall lie down together but the calf won’t get much sleep.
+ - The comedies are not a million laughs on the set. Its business and the dramas are business as well, really. When I’m writing it I struggle more with drama because I started out in comedy.
+ - When a man is driving in a car and looks out the window and notices a woman with a great body, as he strains to check her face out, how does she know to keep turning so the back of her head is always toward him?
+ - There’s no rhyme or reason to anything that I do. It’s whatever seems right at the time.
+ - People say that death is a part of life and there must be something to it, but I just see it as bad news and I want everybody to stop sugarcoating it.
+ - It figures you’ve got to hate yourself if you’ve got any integrity at all.
+ - How the hell do I know why there were Nazis? I don’t know how the can-opener works.
+ - I didn’t go to Paris until I was a grown-up in 1965. And when I went to Paris, it was the Paris I knew only from American movies.
+ - Basically my wife was immature. I’d be at home in the bath and she’d come in and sink my boats.
+ - The food here is terrible, and the portions are too small.
+ - I don’t own a computer. I’ve never seen anything online at all – nothing. I don’t own a word processor. I have none of that stuff. It’s not an act of rebellion. I’m just not a gadget person.
+ - I never think I feel cynical in general. Cynical is reality with an alternate spelling. I feel there’s a gigantic amount of injustice and overt crime every day in the world, from emotional crimes to international crimes, and it often carries rewards.
+ - It’s a wonderful thing to be able to create your own world whenever you want to.
+ - The audience is making the film and not the film-maker.
+ - I feel humor is important for those two reasons: that it is a little bit of refreshment like music, and that women have told me over the years that it is very, very important to them.
+ - What I do know about physics is that to a man standing on the shore, time passes quicker than to a man on a boat – especially if the man on the boat is with his wife.
+ - People are always talking about the dumbing down of the country.
+ - Man consists of two parts, his mind and his body, only the body has more fun.
+ - For the first year of marriage I had basically a bad attitude. I tended to place my wife underneath a pedestal.
+ - Everyone wants to get out of living where they’re living now, because life is a pretty tough proposition and not much fun. But when you think back to earlier times, you only extrapolate the nice things.
+ - I don’t believe in the after life, although I am bringing a change of underwear.
+ - Sex is the most fun you can have without laughing.
+ - I work for a company that makes deceptively shallow serving dishes for Chinese restaurants.
+ - I don’t like theatrical actors and actresses. I like people that talk like real human beings.
+ - I was thrown out of NYU for cheating-with the deans wife.
+ - But what if everyone in the world behaved like me and came here and shot Brisseau through the ear? What a mess! And of course we’d need valet parking.
+ - What if nothing exists and we’re all in somebody’s dream? Or what’s worse, what if only that fat guy in the third row exists?
+ - I’ve often felt that life is a hard deal and it’s unrelentingly tragic and an uphill fight.
+ - At the trial Stubbs chose to act as his own lawyer, but a conflict over his fee led to ill feelings.
+ - I like filming in New York a lot myself, but London is accommodating to me; the weather’s very good there and the conditions for shooting and the financial conditions, the artistic conditions are good, so it’s a pleasant place to shoot.
+ - If God is everywhere, I had concluded, then He is in food. Therefore, the more I ate the godlier I would become. Impelled by this new religious fervor, I glutted myself like a fanatic.
+ - I always write the same way. I always write with a yellow pad and a ballpoint pen on my bed. And then I go and type it up afterwards. I’ve always done that. Those things become habitual.
+ - My grandfather was a very insignificant man, actually. At his funeral his hearse followed the other cars.
+ - My gift was in comedy. I found out I could make jokes. I could tell jokes. I could write them. So over the years, that’s what I’ve done.
+ - Skeptic that I was as an adolescent, I had recently come to believe in a Supreme Being after thumbing through a Victoria’s Secret catalogue.
+ - For a while we pondered whether to take a vacation or get a divorce. We decided that a trip to Bermuda is over in two weeks, but a divorce is something you always have.
+ - This stuff tastes awful; I could have made a fortune selling it in my health-food store.
+ - Take the money and run.
+ - I prefer the magic to reality, and have since I was 5 years old. Hopefully, I can continue to make films and constantly escape into them.
+ - I always feel the cynicism is reality with maybe an alternate spelling or something because I feel that I have real perspective on this particular issue of punishment in society.
+ - Because it’s much more pleasant to be obsessed over how the hero gets out of his predicament than it is over how I get out of mine.
+ - I can’t do anything to death, doctor’s orders.
+ - Capital punishment would be more effective as a preventive measure if it were administered prior to the crime.
+ - I was a smart kid and I was not understood by my parents.
+ - Life is hard for insects. And don’t think mice are having any fun either.
+ - I’m very old-fashioned. I believe that people should stay married for life, like pigeons and Catholics.
+ - The difference between sex and death is, death you can do alone and nobody laughs at you.
+ - For some reason I’ve always had an irrational love for New York. There’s no reason that you would necessarily like it on paper. It’s very expensive.
+ - You make a film and always hope you’re going make “Citizen Kane” or “The Bicycle Thief.” You make the film, and for one reason or another, one clicks and one doesn’t, but it’s out of your control completely.
+ - Harvard makes mistakes too, you know. Kissinger taught there.
+ - I wish I was writing something much more heavy each time I did a film, and that the comedies just occasionally come out. But unfortunately you’re stuck with what you’re born with.
+ - I keep getting more and more ambitious. Over the years, to some degree, in some areas, I feel I’ve grown. In some areas, I made a fool of myself. In some areas, I think I can still do some funny things.
+ - Some people want to achieve immortality through their works or their descendants. I prefer to achieve immortality by not dying.
+ - Marriage? That’s for life! It’s like cement!
+ - Film is more of novelty, because I’ve done so much theater over many years. I’m in love with making movies. Also, I find it easier to remember three minutes of dialogue than three hours.
+ - I’m really a timid person – I was beaten up by Quakers.
+ - The audience goes to sleep really quickly! If you have a slight pause at the wrong time, that’s it!
+ - My experience creatively is different than my experience in life, for, as my father would say, the simple reason that you can’t get hurt when everything goes wrong creatively.
+
+500 quotes

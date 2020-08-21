@@ -1,0 +1,120 @@
+ - No one here gets out alive.
+ - A friend is someone who gives you total freedom to be yourself.
+ - Expose yourself to your deepest fear; after that, fear has no power, and the fear of freedom shrinks and vanishes. You are free.
+ - Whoever controls the media, controls the mind.
+ - The future is uncertain but the end is always near.
+ - There are things known and there are things unknown and in between are the doors.
+ - Where’s your will to be weird?
+ - You feel your strength in the experience of pain.
+ - The most important kind of freedom is to be what you really are. You trade in your reality for a role. You trade in your sense for an act. You give up your ability to feel, and in exchange, put on a mask. There can’t be any large-scale revolution until there’s a personal revolution, on an individual level. It’s got to happen inside first.
+ - It may have been in pieces, but I gave you the best of me.
+ - People are strange when you’re a stranger.
+ - The highest and lowest points are the important ones. Anything else is just in between.
+ - People fear death even more than pain. It’s strange that they fear death. Life hurts a lot more than death. At the point of death, the pain is over. Yeah, I guess it is a friend.
+ - Some of the worst mistakes in my life were haircuts.
+ - I am the Lizard King, I can do anything!
+ - All the poems have wolves in them. All but one. The most beautiful one of all. She dances in a ring of fire and throws off the challenge with a shrug.
+ - Death makes angels of us all and gives us wings where we had shoulders smooth as ravens claws.
+ - Time to live, time to lie, time to laugh, and time to die. Take it easy baby. Take it as it comes.
+ - No eternal reward will forgive us now for wasting the dawn.
+ - The time to hesitate is through.
+ - Pain is meant to wake us up. People try to hide their pain. But they’re wrong. Pain is something to carry, like a radio. You feel your strength in the experience of pain.
+ - We want the world, and we want it now!
+ - Take it easy baby, take it as it comes – specialize in having fun!
+ - Keep your eyes on the road, your hands upon the wheel.
+ - I see myself as an intelligent, sensitive human, with the soul of a clown which forces me to blow it at the most important moments.
+ - A friend is someone who gives you total freedom to be yourself-and especially to feel, or not feel. Whatever you happen to be feeling at any moment is fine with them. That’s what real love amounts to – letting a person be what he really is.
+ - Drugs are a bet with your mind.
+ - Nobody would stay interested in me if I was normal.
+ - Is everybody in? Is everybody in? Is everybody in? The ceremony is about to begin.
+ - Lets just say I was testing the bounds of reality.
+ - Out here on the perimeter there are no stars. Out here we is stoned. Immaculate.
+ - Let’s just say I was testing the bounds of reality. I was curious to see what would happen. That’s all it was curiosity.
+ - The Gate is Straight, Deep and Wide; Break On Through to the other side.
+ - This is the strangest life I’ve ever known.
+ - The most loving parents and relatives commit murder with smiles on their faces. They force us to destroy the person we really are: a subtle kind of murder.
+ - I’ve noticed that when people are joking they’re usually dead serious, and when they’re serious, they’re usually pretty funny.
+ - A man searching for paradise lost can seem a fool to those who never sought the other world.
+ - O great creator of being grant us one more hour to perform our art and perfect our lives.
+ - Cancel my subscription to the resurrection.
+ - Listen, real poetry doesn’t say anything; it just ticks off the possibilities. Opens all doors. You can walk through anyone that suits you.
+ - I am interested in anything about revolt, disorder, chaos, especially activity that seems to have no meaning.
+ - We hide ourselves in our music to reveal ourselves.
+ - I love the friends I have gathered together on this thin raft...
+ - We could plan a murder, or start a religion...
+ - Give me songs to sing and emerald dreams to dream and I’ll give you love unfolding.
+ - Hatred is a very underestimated emotion.
+ - Music inflames temperament.
+ - I want to have my kicks before the whole shithouse goes up in flames.
+ - I’ve always thought comparisons were useless and ugly. It is a short cut to thinking.
+ - I like people who shake other people up and make them feel uncomfortable.
+ - What have they done to the earth? What have they done to our fair sister? Ravaged and plundered and ripped her and bit her Stuck her with knives in the side of the dawn And tied her with fences and dragged her down.
+ - There are no laws, there are no rules, just grab your friend and love him.
+ - I offer images-I conjure memories of freedom that can still be reached-like the Doors, right? But we can only open the doors-we can’t drag people through.
+ - When you make your peace with authority, you become authority.
+ - Twentieth-century culture’s disease is the inability to feel their reality. People cluster to TV, soap operas, movies, theater, pop idols and they have wild emotion over symbols. But in the reality of their own lives, they’re emotionally dead.
+ - Blake said that the body was the soul’s prison unless the five senses are fully developed and open. He considered the senses the ‘windows of the soul.’ When sex involves all the senses intensely, it can be like a mystical experence.
+ - You cannot petition the Lord with prayer.
+ - Each day is a drive through history.
+ - That’s what real love amounts to- letting a person be what he really is. Most people love you for who you pretend to be. To keep their love, you keep pretending- performing. You get to love your pretence. It’s true, we’re locked in an image, an act.
+ - The spectator is a dying animal.
+ - We’re reaching for death on the end of a candle We’re trying for something that’s already found us.
+ - They got the guns, but we got the numbers.
+ - You live you die and death not ends it.
+ - Most people love you for who you pretend to be.
+ - No one thought up being. He who thinks he has, step forward.
+ - Love cannot save you from your own fate.
+ - It’s like gambling somehow. You go out for a night of drinking and you don’t know where your going to end up the next day. It could work out good or it could be disastrous. It’s like the throw of the dice.
+ - There are images I need to complete my own reality.
+ - I’ll never wake up in a good mood again. I’m tired of these stinky boots.
+ - That’s what real love amounts to – letting a person be what he really is.
+ - Death Makes Angels of us all.
+ - Morning found us unaware, noon burn gold into our hair, at night we swim the laughin sea, where will we be?
+ - Well, I’ve been down so Goddamn long, that it looks like up to me.
+ - Violence isn’t always evil. What’s evil is the infatuation with violence.
+ - I pressed her thigh and death smiled.
+ - I’m kind of hooked to the game of art and literature; my heroes are artists and writers.
+ - If my poetry aims to achieve anything, it’s to deliver people from the limited ways in which they see and feel.
+ - Actually I don’t remember being born, it must have happened during one of my black outs.
+ - I think that phrase is the most horrible phrase in the English language – ‘I don’t know.’ It’s terribly embarrassing.
+ - All games contain the idea of death.
+ - I think, in these days, especially in the States, you have to be a politician or an assassin or something, to really be a superstar.
+ - Take an Indian home to lunch.
+ - There may be a time when we’ll attend Weather Theatres to recall the sensation of rain.
+ - Windows work two ways, mirrors one way. You never walk through mirrors or swim through windows.
+ - A hero is someone who rebels, or seems to rebel, against the facts of existence and seems to conquer them, but obviously that can work at moments.
+ - We fear violence less than our own feelings. Personal, private, solitary pain is more terrifying than what anyone else can inflict.
+ - Rather than starting inside, I start outside and reach the mental through the physical.
+ - Cineama, heir of alchemy, The last erotic science.
+ - The time you wait subtracts the joy The heads the angel you destroy.
+ - I believe in a long, prolonged, derangement of the senses in order to obtain the unknown.
+ - Choose the day and choose the sign of your day! The day’s divinity! First thing you see!!
+ - Each generation wants new symbols, new people, new names. They want to divorce themselves from their predecessors.
+ - Lying on stained, wretched sheets with a bleeding virgin We could plan a murder Or start a religion.
+ - Sex is full of lies. The body tries to tell the truth. But, it’s usually too battered with rules to be heard, and bound with pretenses so it can hardly move. We cripple ourselves with lies.
+ - Another flashing chance at bliss Another kiss, another kiss.
+ - Film spectators are quiet vampires.
+ - The best songs just come unasked for. You don’t have to think about them. Summer is a good time for songs.
+ - I think in art, but especially in films, people are trying to confirm their own existences.
+ - Cinema returns us to anima, religion of matter, which gives each thing its special divinity and sees gods in all things and beings. Cinema, heir of alchemy, last of an erotic science.
+ - There’s nothing wrong with being a large mammal.
+ - The world becomes an apparently infinite, yet possibly finite, card game. Image combinations, permutations, comprise the world game.
+ - Blood is the rose of mysterious union.
+ - Los Angeles is a city looking for a ritual to join its fragments, and The Doors are looking for such a ritual also. A kind of electric wedding. We hide ourselves in the music to reveal ourselves.
+ - She needed Cholly’s sins desperately. The lower he sank, the wilder and more irresponsible he became, the more splendid she and her task became. In the name of Jesus.
+ - When sex involves all the senses intensely, it can be like a mystical experience.
+ - All our songs are about love, travel and death.
+ - We are content in the ‘given’ in sensation’s quest. We have been metamorphosised from a mad body dancing on hillsides to a pair of eyes staring in the dark.
+ - I like any reaction I can get with my music. Just anything to get people to think. I mean if you can get a whole room full of drunk, stoned people to actually wake up and think, you’re doing something.
+ - Give form to the passing World. Freeways are a drama.
+ - I like any reaction I can get with my music. Just anything to get people to think.
+ - I like to let each thing happen – direct it a little consciously, maybe – but just kind of follow the vibrations I get in each particular circumstance. We don’t plan theatrics. We hardly ever know which set we’ll play.
+ - How can I set free anyone who doesn’t have the guts to stand up alone and declare his own freedom?
+ - All our lives we sweat and save, Building for a shallow grave.
+ - Man, I’m sick of doubt.
+ - I am troubled, immeasurably by your eyes. I am struck by the feather of your soft reply. The sound of glass speaks quick, disdain and conceals what your eyes fight to explain.
+ - My great joy is to give form to reality. Music is a great release, a great enjoyment to me. Eventually I’d like to write something of great importance. That’s my ambition-to write something worthwhile.
+ - Resident mockery, give us an hour for magic.
+ - The kind of people who can assemble huge crowds into one spot will be the major influences on mass culture in the next decade. The rock enthusiasts have created some of the most exciting theatrical events on the planet.
+
+118 quotes

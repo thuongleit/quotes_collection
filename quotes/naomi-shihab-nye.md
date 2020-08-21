@@ -1,0 +1,43 @@
+ - Before you know kindness as the deepest thing inside, you must know sorrow as the other deepest thing.
+ - I want to be famous in the way a pulley is famous, or a buttonhole, not because it did anything spectacular, but because it never forgot what it could do.
+ - This is the world I want to live in. The shared world.
+ - I love the solitude of reading. I love the deep dive into someone else’s story, the delicious ache of a last page.
+ - I am looking for the human who admits his flaws Who shocks the adversary By being kinder not stronger What would that be like? We don’t even know.
+ - Before you know what kindness really is you must lose things, feel the future dissolve in a moment like salt in a weakened broth.
+ - Because sometimes I live in a hurricane of words and not one of them can save me.
+ - Being alive is a common road. It’s what we notice makes us different.
+ - The hands are churches that worship the world.
+ - You know, those of us who leave our homes in the morning and expect to find them there when we go back – it’s hard for us to understand what the experience of a refugee might be like.
+ - Energy is everything. Rubbing happy and sad together creates energy.
+ - Sometimes there’s no one to listen to what you really might like to say at a certain moment. The paper always listens.
+ - It is really hard to be lonely very long in a world of words. Even if you don’t have friends somewhere, you still have language, and it will find you and wrap its little syllables around you and suddenly there will be a story to live in.
+ - What did exclusivity ever have to offer but a distorted, unrealistic view of the world? People who stuck only to their own kind were scared people.
+ - I’m writing mostly to thank you for living you eighty years and to tell you I love you and think of you often.
+ - If someday, in a morning, you see you, in a mirror or the dent of a spoon, and wonder Where is my soul and Where has it gone, remember this: Catch the gaze of a woman on the metro, subway, tram. Look at a man. Seek and you will find you in the silvered space, a flash between souls.
+ - I do think that all of us think in poems.
+ - Maybe when your mother died young, you became instantly old.
+ - When allowed to return to the class, your feelings of humility and lonesomeness will render you a much finer student and person.
+ - We start out as little bits of disconnected dust.
+ - Read, Read, and then Read some more. Always Read. Find the voices that speak most to YOU. This is your pleasure and blessing, as well as responsibility!
+ - There is a place to stand where you can see so many lights you forget you are one of them.
+ - The writing of Kathleen McGookey shines more brightly than most fine things we feel pleasure to read. Celebrate it!
+ - Being good felt like a heavy coat, so I took it off.
+ - I Still Have Everything You Gave Me It is dusty on the edges. It is slightly rotten. I guard it without thinking. I focus on it once a year when I shake it out in the wind. I do not ache. I would not trade.
+ - Later our dreams begin catching fire around the edges, they burn like paper, we wake with our hands full of ash.
+ - Where we live in the world is never one place. Our hearts, those dogged mirrors, keep flashing us moons before we are ready for them.
+ - Facts interest me less than the trailing smoke of stories.
+ - Poetry calls us to pause. There is so much we overlook, while the abundance around us continues to shimmer, on its own.
+ - The thousands small birds of January in their smooth soaring cloud finding the trees.
+ - I support all people on earth who have bodies like and unlike my body...
+ - I keep thinking, we teach children to use language to solve their disputes. We teach them not to hit and fight and bite. Then look what adults do!
+ - A poem is a cup of words open to the sky and wind in a bucket.
+ - We dropped our troubles into the lap of the storyteller, and they turned into someone else’s.
+ - I think the job of writing and literature is to encourage each one of us to believe that we’re living in a story.
+ - I grew up in St. Louis in a tiny house full of large music – Mahalia Jackson and Marian Anderson singing majestically on the stereo, my German-American mother fingering ‘The Lost Chord’ on the piano as golden light sank through trees, my Palestinian father trilling in Arabic in the shower each dawn.
+ - We all find ourselves involved in projects or activities that confound us-when or why did I say I would do this? What was I thinking? I needed a poem for myself that said-pause longer. Think again.
+ - Mystery: Everything felt better before you got there than when you actually got there. When you actually got there, you didn’t quite have the energy to be there.
+ - Getting over what you did to me is not why I get out of bed anymore.
+ - It was terrible when a single conversation with someone determined your whole future relationship.
+ - My mother used to tell me when I went somewhere, “Please leave your foolishness at home.” But how could I do that? It was stuck on me.
+
+41 quotes

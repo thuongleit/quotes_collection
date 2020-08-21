@@ -1,0 +1,99 @@
+ - The joy of losing consists in this: Where there are no expectations, there is no disappointment.
+ - Better to be paralyzed from the neck down than the neck up.
+ - There’s a reason why in New York Harbor we have the Statue of Liberty, not the Statue of Equality.
+ - To understand the workings of American politics, you have to understand this fundamental law: Conservatives think liberals are stupid. Liberals think conservatives are evil.
+ - Loyalty to the President is great, but loyalty to truth, integrity, and country is even better.
+ - To his credit, Obama didn’t just come to Washington to be someone. Like Reagan, he came to Washington to do something – to introduce a powerful social democratic stream into America’s deeply and historically individualist polity.
+ - The international community lies at the center of the Obama foreign policy. Unfortunately, it is a fiction. There is no such thing. Different countries have different histories, geographies, necessities, and interests. There’s no natural, inherent, or enduring international community.
+ - Baseball is a slow, boring, complex, cerebral game that doesn’t lend itself to histrionics. You “take in” a baseball game, something odd to say about a football or basketball game, with the clock running and the bodies flying.
+ - Passing a law like the assault weapons ban is a symbolic – purely symbolic – move in that direction. Its only real justification is not to reduce crime but to desensitize the public to the regulation of weapons in preparation for their ultimate confiscation.
+ - Clashes of values and the struggle for primacy constitute a constant in human history that accounts for that other constant – conflict and war.
+ - Identity politics is the mother’s milk of the Democratic Left.
+ - There used to be a cruel joke that said Brazil is the country of the future, and always will be; Obama is the Brazil of today’s politicians. He has obviously achieved nothing.
+ - The Houthi have local religious grievances, being Shiites in a majority Sunni land. But they are also agents of Shiite Iran, which arms, trains, and advises them. Their slogan – ‘God is great. Death to America. Death to Israel’ – could have been written in Persian.
+ - For liberals, the observation that ‘the peasants are revolting’ is a pun. For conservatives, it is cause for uncharacteristic optimism. No matter how far the ideological pendulum swings in the short term, in the end the bedrock common sense of the American people will prevail.
+ - In explaining any puzzling Washington phenomenon, always choose stupidity over conspiracy, incompetence over cunning. Anything else gives them too much credit.
+ - So far as Im concerned, Ronald Reagan was the best president. Nixon was the worst. Some of his policies were okay, but he disgraced the office.
+ - If Obama has his way, the change that is coming is a new America: “fair,” leveled and social democratic. Obama didn’t get elected to warranty your muffler. He’s here to warranty your life.
+ - Chess: It’s like alcohol. It’s a drug. I have to control it, or it could overwhelm me. I have a regular Monday night game at my home, and I do play a little online.
+ - Torture is an impermissible evil. Except under two circumstances. The first is the ticking time bomb. An innocent’s life is at stake. The bad guy you have captured possesses information that could save this life. He refuses to divulge. In such a case, the choice is easy.
+ - Guerrilla war is a test of wills. Obama’s actual objectives – rollback in Iraq, containment in Syria – are not unreasonable. But they require commitment and determination. In other words, will. You can’t just make one speech declaring war, then disappear and go fundraising.
+ - We must now brace ourselves for disquisitions on peer pressure, adolescent anomie, and rage.
+ - I don’t really care what a public figure thinks. I care about what he does. Let God probe his inner heart.
+ - Preemption is a kind of pre-deterrence that stops the threat at an earlier, safer stage.
+ - The free lunch is the essence of modern liberalism.
+ - A three-year diet of rubber chicken and occasional crow.
+ - Highfalutin moral principles are impossible guides to foreign policy. At worst, they reflect hypocrisy; at best, extreme naivete.
+ - This week, Iranian-backed Houthi rebels seized control of the Yemeni government, heretofore pro-American. In September, they overran Sanaa, the capital. On Tuesday, they seized the presidential palace. On Thursday, they forced the president to resign.
+ - The results of the Great Society experiments started coming in and began showing that, for all its good intentions, the War on Poverty was causing irreparable damage to the very communities it was designed to help.
+ - I’m The Only Entity On Earth, Other Than Rogue States, That Has Received An Apology From The White House.
+ - Ideas matter. Legislative proposals matter. Slick campaigns and dazzling speeches can work for a while, but the magic always wears off.
+ - Middleness is the very enemy of the bold.
+ - I don’t know about you, but I lie awake nights worrying about Canadian uranium. I know these people. I grew up there. You have no idea what they’re capable of doing. If Sidney Crosby hadn’t scored that goal to win the Olympic gold medal, there’s no telling what might have ensued.
+ - I don’t mind going into a liberal lion’s den. That’s where you test yourself.
+ - Every two years the American politics industry fills the airwaves with the most virulent, scurrilous, wall-to-wall character assassination of nearly every political practitioner in the country – and then declares itself puzzled that America has lost trust in its politicians.
+ - In the liberal remake of ‘Casablanca,’ the police captain comes upon the scene of the shooting and orders his men to ‘round up the usual weapons.’ It’s always the weapon and never the shooter.
+ - Science has everything to say about what is possible. Science has nothing to say about what is permissible.
+ - Don’t touch my junk, you airport security goon – my package belongs to no one but me, and do you really think I’m a Nigerian nut job preparing for my 72-virgin orgy by blowing my johnson to kingdom come?
+ - With our financial house on fire, Obama makes clear both in in his speech and his budget that the essence of his presidency will be the transformation of health care, education and energy.
+ - A drone is a high-tech version of an old army and a musket. It ought to be used in Somalia to hunt bad guys, but not in America. I don’t want to see it hovering over anybody’s home.
+ - I think the editorial page of the Washington Post is the best in the country. I think the editorials – considering it’s a liberal town, liberal constituency and from the liberal tradition – I think it’s the best editorial page around. It’s quite balanced.
+ - Fairness through leveling is the essence of Obamaism.
+ - The Brady Bill’s only effect will be to desensitize the public to regulation of weapons in preparation for their ultimate confiscation.
+ - There is no comparing the brutality and cynicism of today’s pop culture with that of forty years ago: from High Noon to Robocop is a long descent.
+ - I am not religious. I do not believe that personhood is conferred upon conception. But I also do not believe that a human embryo is the moral equivalent of a hangnail and deserves no more respect than an appendix.
+ - The indecisiveness and ambivalence so devastatingly described by both of Obama’s previous secretaries of defense, Leon Panetta and Bob Gates, are already beginning to characterize the Syria campaign.
+ - I envy people who write easily. I enjoy the process, but it’s not easeful for me.
+ - Doves oppose war on the grounds that the risks exceed the gains. War with Iraq could be very costly, possibly degenerating into urban warfare.
+ - After endless days of commuting on the freeway to an antiseptic, sealed-window office, there is a great urge to backpack in the woods and build a fire.
+ - When a party is in opposition, it opposes. That’s its job. But when it comes to power, it must govern. Easy rhetoric is over, the press of reality becomes irresistible. By necessity, it adopts some of the policies it had once denounced. And a new national consensus is born.
+ - The great divide in American foreign policy thinking is between those who believe in paper and those who believe in power.
+ - The conservative idea is not that government has no role. You might have argued that in the thirties when conservatives opposed the New Deal.
+ - Obsession with self is the motif of our time.
+ - Great leaders are willing to retire unloved and unpopular as the price for great exertion.
+ - I think if you’re going to master policy, especially world affairs, you’ve got to know history.
+ - I would say I see myself as a psychiatrist in remission.
+ - It is an axiom of political life that you never raise expectations, whether in a political or military campaign, because your defeats are then magnified and your victories discounted.
+ - In the middle ages, people took potions for their ailments. In the 19th century they took snake oil. Citizens of today’s shiny, technological age are too modern for that. They take antioxidants and extract of cactus instead.
+ - Obama is a man of first-class intellect and first-class temperament. But his character remains highly suspect.
+ - Tuesday’s victory was big. But it did nothing more than level the playing field and give you a shot. Take it.
+ - Courage is not a quality one normally associates with mathematicians. Yet it should apply to people who work in their attics in secret for seven years without cease on a problem that has eluded the greatest mathematical minds since first proposed in 1637.
+ - The Obama foreign policy, in broad strokes, has been a disaster.
+ - In the course of his presidency, Obama has gone from an almost magical charismatic figure to an ordinary politician. Ordinary. Average.
+ - After the Soviet collapse, Marxism is a relic, a pathetic anachronism reduced to its last redoubts: North Korea, Cuba, and the English departments of the more expensive American universities.
+ - If the president signs any of it, good. If he vetoes, it will be clarifying. Who then will be the party of no? The vetoed legislation would become the framework for a 2016 GOP platform. Let the debate begin.
+ - There are cycles in American politics. US cycles are even more pronounced because we Americans have a totally entrepreneurial presidential system. We don’t have parliamentary opposition parties with a shadow prime minister and shadow cabinets. Every four years, the opposition reinvents itself.
+ - It is an old liberal theme that conservative ideas, being red in tooth and claw, cannot possibly emerge from any notion of the public good.
+ - This is how the great post-partisan, post-racial, New Politics presidency ends-not with a bang, not with a whimper, but with a desperate election-eve plea for ethnic retribution.
+ - This is a formidable enemy. To dismiss it as a bunch of ‘cowards’ perpetuating ‘senseless acts of violence’ is complacent nonsense. People willing to kill thousands of innocents while they kill themselves are not cowards. They are deadly vicious warriors and need to be treated as such.
+ - I began my journalistic career on the day Ronald Reagan was sworn in. That’s the day I showed up for work at ‘The New Republic’ magazine.
+ - Whenever you’re faced with an explanation of what’s going on in Washington, the choice between incompetence and conspiracy, always choose incompetence.
+ - I distrust all multiculturalism, liberal or conservative. The Balkans amply demonstrate the perils of Balkanization.
+ - Under our constitutional system, the executive executes the laws that Congress has passed. It should not be executing laws that Congress has rejected.
+ - In reality, Kyoto was a huge transfer of resources from the United States to the Third World, under the guise of environmental protection.
+ - I happen to believe that the preemption school is correct, that the risks of allowing Saddam Hussein to acquire his weapons will only grow with time.
+ - If you subsidize apples, you get more apples; if you subsidize unemployment, you get more of it.
+ - It is ridiculous to sue the president on a Wednesday because he oversteps the law, as he has done a dozen times illegally and unconstitutionally, and then on a Thursday say that he should overstep the law, contradict the law that passed in 2008 and deal with this himself.
+ - History is not just cruel. It is witty.
+ - Take all your dukes and marquesses and earls and viscounts, pack them into one chamber, call it the House of Lords to satisfy their pride and then strip it of all political power. It’s a solution so perfectly elegant and preposterous that only the British could have managed it.
+ - Washington is the only place in the world where a gaffe is when a politician accidently speaks the truth.
+ - Obama was quite serious when he said he was going to change the world. And now he has a national crisis, a personal mandate, a pliant Congress, a desperate public – and, at his disposal, the greatest pot of money in galactic history.
+ - Where religion is trivialized, one is unlikely to find persecution.
+ - I’m a former Red Sox fan, now fully rehabilitated.
+ - Americans are not intrinsically imperial, but we ended up dominant by default: Europe disappeared after the Second World War, the Soviet Union disappeared in 1991, so here we are.
+ - Truman left in the middle of an unpopular war, a war of choice. Truman didn’t have to go into South Korea. And he was reviled and ridiculed for the stalemate that resulted. Now, he’s seen as one of the great presidents of the 20th century.
+ - If you believe that health care is a public good to be guaranteed by the state, then a single-payer system is the next best alternative. Unfortunately, it is fiscally unsustainable without rationing.
+ - Pass legislation. When Obama signs, you’ve shown seriousness and the ability to govern. When he vetoes, you’ve clarified the differences between party philosophies and prepared the ground for 2016.
+ - Post-Watergate morality, by which anything left private is taken as presumptive evidence of wrongdoing.
+ - Increasing public safety almost always means restricting liberties.
+ - When under attack, no country is obligated to collect permission slips from allies to strike back.
+ - When you have the worst disaster in American history, you’ve got to be attuned to expectations,.
+ - Ron Paul is not going to be president, so we don’t have to worry about who’s going to be in his cabinet.
+ - The Iraquis can see it. The Kurds can feel it. The jihadists are counting on it.
+ - If Harriet Miers were not a crony of the president of the United States, her nomination to the Supreme Court would be a joke, as it would have occurred to no one else to nominate her.
+ - If fences don’t work, why is there one around the White House?
+ - I believe in what I believe, and I think after all these years I’ve heard a lot of arguments, and I’m convinced by the superiority of the arguments that are made on the conservative side. I think that’s a better way to run a society.
+ - Obama’s Democrats have become the part of no. Real cuts to federal budget? No. Entitlement reform? No. Tax reform? No. Breaking the corrupt and fiscally unsustainable symbiosis between public-sector unions and state governments? Hell no.
+ - Now this is a way to approach our healthcare problems: increase the number of tax collectors and decrease the number of doctors – brilliant!
+
+97 quotes

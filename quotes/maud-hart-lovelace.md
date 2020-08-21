@@ -1,0 +1,22 @@
+ - Good things come, but they’re never perfect; are they? You have to twist them into something perfect.
+ - One strain could call up the quivering expectancy of Christmas Eve, childhood, joy and sadness, the lonely wonder of a star.
+ - The wastes of snow on the hill were ghostly in the moonlight. The stars were piercingly bright.
+ - It was June, and the world smelled of roses. The sunshine was like powdered gold over the grassy hillside.
+ - The most important part of religion isn’t in any church. It’s down in your own heart. Religion is in your thoughts, and in the way you act from day to day, in the way you treat other people. It’s honesty, and unselfishness, and kindness. Especially kindness.
+ - Then he kissed her. Betsy didn’t believe in letting boys kiss you. She thought it was silly to be letting first this boy and then that one kiss you, when it didn’t mean a thing. But it was wonderful when Joe Willard kissed her. And it did mean a thing.
+ - I’m finished with something, but I’m not beginning anything. That’s wrong. When you finish something, you ought always to begin something new.
+ - Was life always like that? she wondered. A game of hide and seek in which you only occasionally found the person you wanted to be?
+ - In silence the three of them looked at the sunset and thought about God.
+ - Isn’t it mysterious to begin a new journal like this? I can run my fingers through the fresh clean pages but I cannot guess what the writing on them will be.
+ - When there are boys you have to worry about how you look, and whether they like you, and why they like another girl better, and whether they’re going to ask you to something or other. It’s a strain.
+ - You have two numbers in your age when you are ten. It’s the beginning of growing up.
+ - She tried to act as though it were nothing to go to the library alone. But her happiness betrayed her. Her smile could not be restrained, and it spread from her tightly pressed mouth, to her round cheeks, almost to the hair ribbons tied in perky bows over her ears.
+ - Betsy returned to her chair, took off her coat and hat, opened her book and forgot the world again.
+ - She thought of the library, so shining white and new; the rows and rows of unread books; the bliss of unhurried sojourns there and of going out to a restaurant, alone, to eat.
+ - And yet, even as she spoke, she knew that she did not wish to come back. not to stay, not to live. She loved the little yellow cottage more than she loved any place on earth. but she was through with it except in her memories.
+ - Betsy. The great war is on but I hope ours is over. Please come home. Joe.
+ - The silence in the room had width, height, depth, mass and substance.
+ - You might as well learn right now, you two, that the poorest guide you can have in life is what people will say.
+ - We’ll just have to find more flowers in the spring. That’s when they bloom, tra la.
+
+20 quotes

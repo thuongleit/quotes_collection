@@ -1,0 +1,67 @@
+ - A great man is one sentence.
+ - There are no hopeless situations; there are only men who have grown hopeless about them.
+ - A man has only one escape from his old self: to see a different self in the mirror of some woman’s eyes.
+ - Enemies may seek our destruction, but they also keep us on our toes and often help us figure out who we are and what we stand for.
+ - If old age means a crown of thorns, the trick is to wear it jauntily.
+ - In the final analysis there is no other solution to man’s progress but the day’s honest work, the day’s honest decision, the day’s generous utterances, and the day’s good deed.
+ - Courage is the ladder on which all the other virtues mount.
+ - A woman’s best protection is a little money of her own.
+ - Home is where you hang your architect.
+ - They say that women talk too much. If you have worked in Congress you know that the filibuster was invented by men.
+ - Money can’t buy happiness, but it can make you awfully comfortable while you’re being miserable.
+ - I hope I shall have ambition until the day I die.
+ - In politics women type the letters, lick the stamps, distribute the pamphlets and get out the vote. Men get elected.
+ - No woman has ever so comforted the distressed or distressed the comfortable. on Eleanor Roosevelt.
+ - What generally passes for ‘thought’ among the majority of mankind is the time one takes out to rearrange one’s prejudices.
+ - Nature abhors a vacuum, even in the heads of statesmen.
+ - Remember, whenever a Republican leaves one side of the aisle and goes to the other, it raises the intelligence quotient of both parties.
+ - Communism is the opiate of the intellectuals – With no cure except as a guillotine might be called a cure for dandruff.
+ - Male supremacy has kept woman down. It has not knocked her out.
+ - Women know what men have long forgotten. The ultimate economic and spiritual unit of any civilization is still the family.
+ - Time comes when every man’s got to feel something new – when he’s got to feel young again, just because he’s growing old. Women are just the same. But when we get that way we change our hairdress. Or get a new cook.
+ - The women who inspired this play deserved to be smacked across the head with a meat ax and that, I flatter myself, is exactly what I smacked them with.
+ - Women can’t have an honest exchange in front of men without having it called a cat fight.
+ - Guns know no policy except destruction.
+ - You know, I have had a terrible life. I married two men I really didn’t like. My only daughter was killed in a car accident. My brother committed suicide. Has my life been a life for anyone to envy?
+ - Censorship, like charity, should begin at home, but, unlike charity, it should end there.
+ - Watergate is the great liberal illusion that you can have public virtue without private morality.
+ - Middle age is the way you would feel about summer if you knew there would never be another spring.
+ - Greta Garbo: A deer in the body of a woman, living resentfully in the Hollywood zoo.
+ - The best defense against a powerful and positive dynamic ideology is neither verbal attack nor criticism, which are useful, but to set up an equally powerful and dynamic ideology against it.
+ - Lying increases the creative faculties, expands the ego, and lessens the frictions of social contacts.
+ - I wish I were a virgin again. The only fun I ever had was holding out.
+ - You see few people here in America who really care very much about living a Christian life in a democratic world.
+ - H. L. Mencken told me once that he answered all his mail, pleasant and unpleasant, with just one line, ‘You may be right.’ That’s the way I feel now. It is in the realm of possibility, just barely, that I could be the one who’s wrong.
+ - Bombs know no ism but barbarism. The laws that successfully govern a peaceful and democratic society do not interfere with the only law bombs know, which is the law of gravity.
+ - I am for lifting everyone off the social bottom. In fact, I am for doing away with the social bottom altogether.
+ - When a man can’t explain a woman’s actions, the first thing he thinks of is the condition of her uterus.
+ - But if God had wanted us to think just with our wombs, why did He give us a brain?
+ - The politicians were talking themselves red, white and blue in the face.
+ - I can’t avoid writing. It’s a sort of nervous tic I have developed since I gave up needlepoint.
+ - It is ridiculous to think that you can spend your entire life with just one person. Three is about the right number. Yes, I imagine three husbands would do it?
+ - There is nothing like a good dose of another woman to make a man appreciate his wife.
+ - It is matrimonial suicide to be jealous when you have a really good reason.
+ - Nature abhors a virgin – a frozen asset.
+ - Advertising has done more to cause the social unrest of the 20th century than any other single factor.
+ - A man’s home may seem to be his castle on the outside; inside is more often his nursery.
+ - Rich women are not too put upon by their children. You don’t have to do all the things for a child that those women who had to stay at home did. My Ann had a French governess who took care of her until she was twelve years old and went off to boarding school.
+ - You know, that’s the only good thing about divorce; you get to sleep with your mother.
+ - There aren’t many women now I’d like to see as President – but there are fewer men.
+ - I don’t have a warm personal enemy left. They’ve all died off. I miss them terribly because they helped define me.
+ - The main thing is to get what little happiness there is out of life in this wartorn world because ‘these are the good old days’ now.
+ - Autobiography is mostly alibiography.
+ - Technological man can’t believe in anything that can’t be measured, taped, or put into a computer.
+ - If men had to bear babies, there’d never be more than one child in a family.
+ - Young men still desire women as much as ever, even though they don’t want to marry them as much.
+ - Know what Freud wrote in his diary when he was 77? “What do women want? My God, what do they want?” Fifty years this giant brain spends analyzing women. And he still can’t find out what they want. So this makes him the world’s greatest expert on female psychology?
+ - A woman can produce what no man can: a child.
+ - Rome is the city above all cities which loses most of its meaning to those who do not bring to it some historical sense, a decent knowledge of art, and a good amount of time. Rome therefore is particularly disturbing to an American.
+ - I don’t have any warm personal enemies. All the SOBs have died.
+ - Women do generally manage to love the guys they marry more than they manage to marry the guys they love.
+ - I don’t think my position unusual for a woman. I’m following a perfectly natural urge to do what I like.
+ - If a woman’s got any instincts, she feels when her husband’s off the reservation.
+ - Communism is the opiate of the intellectuals.
+ - If you ever manage to make a fool of me, I’ll deserve what I get.
+ - The oppressed never free themselves – they do not have the necessary strengths.
+
+65 quotes

@@ -1,0 +1,38 @@
+ - Wouldn’t that be nice if we could all afford to just freely pursue our dreams?
+ - I love reading books that you can’t put down, and they just take you over for a night or a weekend.
+ - An ellipsis is a giant ocean of possibilities.
+ - I’m not that much of a researcher. I’m good at channeling characters, and I’m good at structure.
+ - People judge you because of your weight and your food issues. It’s very visual.
+ - Studying writing to me means reading and also rewriting obsessively. That’s the best way to learn.
+ - My last book was speculative. I just don’t quite know what I am doing. But I’ll get there. I have a list of things I would love to write.
+ - Please make me either relatable or terrible.
+ - We are human beings, not ants.
+ - You can quit smoking, and never have to have a cigarette again to survive. But with food, it is a daily challenge.
+ - I had always loved life on the road. It was just something that appealed to me very deeply.
+ - What’s the point of having a book club if you don’t get to eat brownies and drink wine?
+ - I wish I had the luxury of time to read and write like grad students do. That sounds pretty awesome. When I was writing my first book one of my friends was going to grad school at the same time and I heard a lot of stories about drinking, too. I feel like everyone was having affairs.
+ - My laptop broke and because of the storm I could not get a new one. And so I’ve been promoting my book via iPhone.
+ - Smart, sharp, and hilarious, Slaughterhouse 90210 is the perfect pick-me-up and never-put-me-down book.
+ - In the wintertime I like macaroni and cheese.
+ - Most of my writer friends are women, and they’re all extremely talented, so of course I think the state of contemporary fiction for women is pretty great. Which is to say there is a ton of amazing work out there. These women are writing hard. There’s much to be said. We’re on it, chief.
+ - I smoked for many years like a total idiot.
+ - I wish I could write while I’m on the road but it never works for me. I need to be sitting still.
+ - The fascinating thing about food is that if you have issues with it, you have to face it every single day.
+ - Writers have a job to do. Editors do, too. You have to stand ground and cede ground on a case by case basis. When an editor tells me something isn’t working and I still believe in it, I tend to think it just isn’t working hard enough.
+ - I don’t pretend for a second that I’m that great of a person on a day-to-day basis. I’m a deeply flawed human.
+ - I just think structure can make a book feel so much bigger. It’s the architecture. You could use flimsy materials if you wanted to, even, but it could still feel big.
+ - In 1998, I started a blog, something I could control very easily and update at my own whim.
+ - I love doing readings. I could really give a crap about reviews. It’s kind of about the readers.
+ - With apologies to all my past boyfriends, I never loved a man the way I loved my old apartment.
+ - I’d love to be able to write crazy epic plots. I’m working on it.
+ - The Storied Life of A. J. Fikry is a breezy, big-hearted treat, especially if you’ve ever wondered about the inner workings of America’s national treasures – neighborhood bookstores.
+ - I find that short stories are almost like palate cleansers or brain cleansers.
+ - I’ve been told by people who write historical novels that you just sort of write the emotional truth first, the story at the core, and then you go back and research it at the end.
+ - In its current incarnation in my life touring is a lot of airports and hotels and car services and only OK food.
+ - Sometimes, things are just exercises.
+ - The very best parts of me go into my writing, it is the best version of myself, and I don’t think it’s hubristic to believe that that’s worth something, worth someone else’s time. It’s the most I have to offer the world.
+ - I remember being banned from other houses as a younger child during the winter holiday season; I was the only one who didn’t believe in Santa Claus, and I was ruining everyone’s Christmas.
+ - I’ve just always written, and always considered myself a writer. I wrote my first story when I was five. There was nothing else I wanted to do or be.
+ - It’s good to try stuff. I wrote a book that I threw away, and I think I just wrote it so I could try stuff in it and not be scared.
+
+36 quotes

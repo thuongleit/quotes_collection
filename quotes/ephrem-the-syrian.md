@@ -1,0 +1,22 @@
+ - If you wish to help someone, give secretly and avoid arrogance.
+ - Like the apple of Thine eye preserve me, O Lord God; defend me and beneath Thy wings shelter me from temptations.
+ - Virtues are formed by prayer. Prayer preserves temperance. Prayer suppresses anger. Prayer prevents emotions of pride and envy. Prayer draws into the soul the Holy Spirit, and raises man to Heaven.
+ - Blessed the one who continually humbles himself willingly; he will be crowned by the One who willingly humbled himself for our sake.
+ - No one is truly poor but except the one who lacks the truth.
+ - Scripture brought me to the Gate of Paradise, and the mind stood in wonder as it entered.
+ - The seed, swollen with moisture, burst asunder its covering of soil and out peers the blade of wheat, full of symbols. So faith, whose bosom is filled with goodly fruits, is a blade of praise.
+ - Prayer is converse with God, equal honor with the Angels, progress in good things, averting of evils, righting of sinners.
+ - Be a lamp in brightness, and make the works of darkness cease, so that whenever your doctrine shines, no one may dare to heed the desires of darkness.
+ - Yea, O Lord and King, grant me to see my own sin and not to judge my brother, for You are blessed from all ages to all ages. Amen.
+ - Blessed the one who has become a good spiritual net and caught many for the good Lord, such a one will greatly praised by the Lord.
+ - It is blasphemy if you pray before God while you are full of anger.
+ - O Lord, we cannot go to the pool of Siloe to which you sent the blind man. But we have the chalice of Your Precious Blood, filled with life and light. The purer we are, the more we receive.
+ - Anyone who wants to be an example to others, must first examine himself.
+ - In the measure to which a man cuts off and humbles his own will, he proceeds toward success. But insofar as he stubbornly guards his own will, so much does he brings harm to himself.
+ - Whoever fears God stands above all manner of fear. He has become a stranger to all the fear of this world and placed it far from himself, and no manner of trembling comes near him.
+ - Blessed the one who meditates on death each day and destroys the base passions lurking in the vines of the heart, for he will be consoled in the moment of separation.
+ - Blessed the one who loves truth continually and has not lent his mouth as an instrument of impiety by lying, for he fears the commandment about idle speech.
+ - Blessed the one who, exalted by love, has become a city founded upon a mountain, from which the enemy, when he saw it, withdrew in fear, trembling at its security in the Lord.
+ - Blessed the one who has kept the mastery of his eyelids and has not deceived himself with either mind or sense with regard to the skin of the flesh that after a little while oozes putrefaction.
+
+20 quotes

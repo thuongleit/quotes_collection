@@ -1,0 +1,24 @@
+ - I love being creative.
+ - I think we should all come together, and that race and color or social demographics really don’t matter.
+ - I look up to people who succeed in accomplishing their dreams.
+ - I’m lucky to have a great support system in my friends and some of my family. If you have those people that you trust, go ahead and fall back into them and let them be your hammock and cocoon and let them embrace you.
+ - I’d like to hope you end up a miserable, lonely woman. But actually, I hope you have children one day, Ellie Haworth. Then you’ll know how it feels to be vulnerable. And to have to fight, to be constantly vigilant, just to make sure your children get to grow up with a father.
+ - I had a hundred and seventeen days in which to convince Will Traynor that he had a reason to live.
+ - I’m like a hermit. Once I’m home, I’m home and when I ride in the car, I don’t really listen to the radio as much.
+ - I had been wrong when I said Liza McCullen wasn’t beautiful: when she smiled she was stunning.
+ - You can be young and still have views and opinions.
+ - I’ve been singing since I was two. Music was my first passion and I love writing, singing, creating and being creative.
+ - I’m afraid of animals.
+ - I would love to work with Nickleback. I think they’re an incredible band. One of my favorites.
+ - When I was 4 or 5 and I could put complete thoughts together and really feel them, I remember watching the Grammy’s or something like that and getting real emotional because I wanted to be up there.
+ - I was inspired by Colin Farrell in the fact that he’s Irish and has freckles but with black hair. I’m a bunch of different things, Irish, Polish, Native American, and French, but I wanted to tap into that Irish side and be freckle-y with black hair, so that’s what I did.
+ - If anyone will listen I will continue to sing.
+ - Oh, lighten up, Clark. I’m the one having scalding hot air directed at my genitals.
+ - Everything I listen to is influential in some way.
+ - I’m familiar with a lot of guys, hang out with those guys. A couple of my teammates actually went to Florida, so I’m familiar with a lot of those guys. It’s going to be fun walking out with a victory and rubbing it in their faces.
+ - I bite my fingernails. That’s probably not a good thing.
+ - Music is something that I have to do on a regular basis. It really is my life and I absolutely love it. It’s a part of my day-to-day. So if I had to choose, it would be music. But I love acting too.
+ - I was raised in a mostly white neighborhood. I was this little white girl jamming out to Ella Fitzgerald and Bobby Brown.
+ - I don’t attend an actual school but I’m still following through with high school. I do work with a tutor for about six hours a day. It’s hard core but definitely worth it, and it’s my main focus now – finishing up high school before I release my new album and apply to college.
+
+22 quotes

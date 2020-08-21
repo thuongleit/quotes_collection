@@ -1,0 +1,156 @@
+ - Done is better than perfect.
+ - What would you do if you weren’t afraid?
+ - Speak up. Believe in yourself. Take risks.
+ - Build your skills not your resume.
+ - So please ask yourself: What would I do if I weren’t afraid? And then go do it.
+ - If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on.
+ - You need to feel that you’re making a difference.
+ - Your life’s course will not be determined by doing the things that you are certain you can do. Those are the easy things. It will be determined by whether you try the things that are hard.
+ - Aiming for perfection causes frustration at best and paralysis at worst.
+ - Don’t be afraid to ask the ‘dumb’ question, everyone else will be relieved you had the guts to ask!
+ - Getting from point A to point Z can be daunting unless you remember that you don’t have to get from A to Z. You just have to get from A to B. Breaking big dreams into small steps is the way to move forward.
+ - If you do please everyone, you are not making enough progress.
+ - Careers are a jungle gym, not a ladder.
+ - Believe in yourself and negotiate for yourself. Own your own success.
+ - Bring your whole self to work. I don’t believe we have a professional self Monday through Friday and a real self the rest of the time. It is all professional and it is all personal.
+ - In the future, there will be no female leaders. There will just be leaders.
+ - Leadership is not bullying and leadership is not aggression. Leadership is the expectation that you can use your voice for good. That you can make the world a better place.
+ - The cost of stability is often diminished opportunities for growth.
+ - I’ve seen over and over how much self-belief drives outcomes. And that’s why I force myself to sit at the table, even when I am not sure I belong there – and yes, this still happens to me. And when I’m not sure anyone wants my opinion, I take a deep breath and speak up anyway.
+ - It is the ultimate luxury to combine passion and contribution. It’s also a very clear path to happiness.
+ - If more women are in leadership roles, we’ll stop assuming they shouldn’t be.
+ - Fortune does favor the bold and you’ll never know what you’re capable of if you don’t try.
+ - We cannot change what we are not aware of, and once we are aware, we cannot help but change.
+ - Real empathy is sometimes not insisting that it will be okay but acknowledging that it is not.
+ - The reason I don’t have a plan is because if I have a plan I’m limited to today’s options.
+ - There is no such thing as work-life balance. There is work, there is life, and there is no balance.
+ - Women attribute their success to working hard, luck, and help from other people. Men will attribute that – whatever success they have, that same success – to their own core skills.
+ - There’s a special place in hell for women who don’t help other women.
+ - Trying to do it all and expecting that it all can be done exactly right is a recipe for disappointment. Perfection is the enemy.
+ - We hold ourselves back in ways both big and small, by lacking self-confidence, by not raising our hands, and by pulling back when we should be leaning in.
+ - The most important career decision you’ll make is who your life partner is.
+ - I feel really grateful to the people who encouraged me and helped me develop. Nobody can succeed on their own.
+ - Excel and you will get a mentor.
+ - The path to change is best traveled when we travel together.
+ - Its time to cheer on girls and women who want to sit at the table.
+ - The best way to make room for both life and career is to make choices deliberately-to set limits and stick to them.
+ - The time is long overdue to encourage more women to dream the possible dream.
+ - I want my daughter to have the choice not just to succeed, but to be liked for her accomplishments.
+ - Without fear, women can pursue professional success and personal fulfillment-and freely choose one, or the other, or both.
+ - Social media has created a historical shift from the historically powerful to the historically powerless. Now everyone has a voice.
+ - Being confident and believing in your own self-worth is necessary to achieving your potential.
+ - When you’re more valuable, the people around you will do more to make it work.
+ - Nobody can succeed on their own.
+ - The promise of equality is not the same as true equality.
+ - We need women at all levels, including the top, to change the dynamic, reshape the conversation, to make sure women’s voices are heard and heeded, not overlooked and ignored.
+ - The most important thing – and I’ve said it a hundred times and I’ll say it a hundred times – if you marry a man, marry the right one.
+ - As a country and as a world, we are not comfortable with women in leadership roles. We call little girls bossy.
+ - Most people assume that women are responsible for households and child care. Most couples operate that way – not all. That fundamental assumption holds women back.
+ - I’m not writing about things other women do. I’m writing for other women to have more self-confidence because I need it myself! And if more women were in power, I would feel more comfortable.
+ - At Facebook, we try to be a strengths-based organization, which means we try to make jobs fit around people rather than make people fit around jobs. We focus on what people’s natural strengths are and spend our management time trying to find ways for them to use those strengths every day.
+ - The things that hold women back, hold them back from sitting at the boardroom table and they hold women back from speaking at the PTA meeting.
+ - No industry or country can reach its full potential until women reach their full potential.
+ - It’s more pressure on women to – if they marry or partner with someone, to partner with the right person. Because you cannot have a full career and a full life at home with your children if you are also doing all of the housework and child care.
+ - Men can comfortably claim credit for what they do as long as they don’t veer into arrogance. For women, taking credit comes at a real social and professional cost.
+ - Success for me is that if my son chooses to be a stay-at-home parent, he is cheered on for that decision. And if my daughter chooses to work outside the home and is successful, she is cheered on and supported.
+ - Don’t make decisions too far in advance, particularly ones you’re not even conscious you’re making.
+ - It turns out that a husband who does the laundry, it’s very romantic when you’re older. And it’s hard to believe when you’re younger. But it’s absolutely true.
+ - Men feel like they can be a professional and a father. For women it’s “or.” That’s offensive to me. The concept that it’s not possible is crazy.
+ - Facebook is great for women and men. We are enormously flexible. We care a lot about great opportunities for women, we push ourselves to make things as flexible as possible.
+ - I want to tell any young girl out there who’s a geek, I was a really serious geek in high school. It works out. Study harder.
+ - Framing the issue of work-life balance – as if the two were dramatically opposed – practically ensures work will lose out. Who would ever choose work over life?
+ - A truly equal world would be one where women ran half our countries and companies and men ran half our homes.
+ - Talking can transform minds, which can transform behaviors, which can transform institutions.
+ - The most important thing is to have a more open and honest dialogue about gender issues.
+ - Someone who values fairness and expects or, even better, wants to do his share in the home. These men exist and, trust me, over time, nothing is sexier.
+ - When woman work outside the home and share breadwinning duties, couples are more likely to stay together. In fact, the risk of divorce reduces by about half when a wife earns half the income and a husband does half the housework.
+ - When my mother took her turn to sit in a gown at her graduation, she thought she only had two career options: nursing and teaching. She raised me and my sister to believe that we could do anything, and we believed her.
+ - Real change will come when powerful women are less of an exception. It is easy to dislike senior women because there are so few.
+ - I’m not pretending I can give advice to every single person or every single couple for every situation; I’m making the point that we are not going to get to equality in the workforce before we get to equality in the home. Not going to happen.
+ - As a man gets more successful, powerful, he is more liked, and as a woman gets more successful, she is less liked, and that’s true by both women and men.
+ - Social gains are never handed out. They must be seized.
+ - For any of us in this room today, let’s start out by admitting we’re lucky. We don’t live in the world our mothers lived in, our grandmothers lived in, where career choices for women were so limited.
+ - It is illegal to discriminate on the basis of pregnancy or gender. It is not illegal to talk about it.
+ - I really think we need more women to lean into their careers and to be really dedicated to staying in the work force.
+ - I believe we need affordable child care. I believe we need flexibility. I believe we need institutional reform and public policy reform.
+ - Success and likeability are positively correlated for men and negatively for women. When a man is successful, he is liked by both men and women. When a woman is successful, people of both genders like her less.
+ - I have a five year-old son and a three year-old daughter. I want my son to have a choice to contribute fully in the workforce or at home. And I want my daughter to have the choice to not just succeed, but to be liked for her accomplishments.
+ - Women don’t take enough risks. Men are just ‘foot on the gas pedal.’ We’re not going to close the achievement gap until we close the ambition gap.
+ - We’ve ceased making progress at the top in any industry anywhere in the world. In the United States, women have had 14% of the top corporate jobs and 17% of the board seats for 10 years. Ten years of no progress.
+ - Let’s have an honest conversation about what’s going on. A man and a man at a bar looks like mentoring. A man and a woman at a bar looks like dating.
+ - We know when we use the full talents of our population we’re more productive. And we know that when people really feel like they can have flexible lives, they’re better employees.
+ - Coming from Google, you don’t exactly spend a lot of time at Microsoft.
+ - And in situations where a man and a woman each receive negative feedback, the woman’s self-confidence and self-esteem drop to a much greater degree. The internalization of failure and the insecurity it breeds hurt future performance, so this pattern has serious long-term consequences.
+ - We’re focused on doing one thing incredibly well. If you look at other companies, all of these companies are doing a lot of different things but we’re still, as we grow, doing exactly one thing.
+ - Both men and women react negatively when women negotiate on their own behalf. A man can just negotiate: “I have a better offer. That’s not enough to make my family’s ends meet.” No one feels bad about it. But when a woman does that, there’s a backlash.
+ - When the man is traveling with a man, he says, “Let’s stay up late and work on this and get this to be better.” When the man’s traveling with the woman, for the sake of appearances he doesn’t do the work with her. That’s a lost opportunity for her to be a success.
+ - The best decision I ever made was to marry Dave.
+ - I wish I could just go tell all the young women I work with, all these fabulous women, ‘Believe in yourself and negotiate for yourself. Own your own success.’ I wish I could tell that to my daughter. But it’s not that simple.
+ - I just believed. I believed that the technology would change people’s lives. I believed putting real identity online – putting technology behind real identity – was the missing link.
+ - When I was in high school, I was voted most likely to succeed.
+ - It’s pretty exciting to take real people living in the real world, their opinions, and have people have to react to that. As opposed to their perceptions of what people are thinking, which are often very different.
+ - I spent most of my career, including my time at McKinsey, never acknowledging that I was a woman. And, you know, fast forward – I’m 43 now – fitting in is not helping us.
+ - You know, there has never been a 24-hour period in five years when I have not responded to e-mail at Facebook. I am not saying it’s easy. I work long hours.
+ - Pages on Facebook are allowed to be anonymous. That is really important. People start revolutions; we need anonymity.
+ - But I really believe that when you give people authentic identity, which is what Facebook does, and you can be your real self and connect with real people online, things will change.
+ - The No. 1 impediment to women succeeding in the workforce is now in the home.
+ - Women are not making it to the top. A hundred and ninety heads of state; nine are women. Of all the people in parliament in the world, thirteen per cent are women. In the corporate sector, women at the top – C-level jobs, board seats – tops out at fifteen, sixteen per cent.
+ - I go around the room and ask people, ‘What do you think?’
+ - Over the last 10 years, women have stalled out at the top.
+ - The most important thing we’re doing differently is that we talk openly about gender at Facebook.
+ - Women systematically underestimate their own abilities.
+ - I wish I were strong enough to ignore what others say, but experience tells me I often can’t. Allowing myself to feel upset, even really upset, and then move on – that’s something I can do.
+ - Until women are as ambitious as men, they’re not gong to achieve as much as men.
+ - Give us a world where half our homes are run by men, and half our institutions are run by women. I’m pretty sure that would be a better world.
+ - We can each define ambition and progress for ourselves. The goal is to work toward a world where expectations are not set by the stereotypes that hold us back, but by our personal passion, talents and interests.
+ - When we get feedback on women, we ask, “Is that real or is that the gender bias at play?” Everyone could start doing that today and I think we’d see really big results.
+ - We’ve got to get women to sit at the table.
+ - The social web can’t exist until you are your real self online. I have to be me. You have to be you. Once we are online as ourselves, connected to each other and our other friends, then you can have the evolution of what becomes the social web.
+ - But the upside of painful knowledge is so much greater than the downside of blissful ignorance.
+ - We call our little girls bossy. Go to a playground; little girls get called bossy all the time – a word that’s almost never used for boys – and that leads directly to the problems women face in the workforce.
+ - We need to talk more openly about mentorships and sponsorships. Women don’t get the mentoring, and particularly the sponsors, they need to succeed as much as men.
+ - The more women help one another, the more we help ourselves. Acting like a coalition truly does produce results. Any coalition of support must also include men, many of whom care about gender inequality as much as women do.
+ - It’s hard to visualize someone as a leader, if she is always waiting to be told what to do.
+ - When it comes time to settle down, find someone who wants an equal partner. Someone who thinks women should be smart, opinionated, and ambitious.
+ - No industry or country can reach its full potential until women reach their full potential. This is especially true of science and technology, where women with a surplus of talent still face a deficit of opportunity.
+ - I’d like to see where boys and girls end up if they get equal encouragement I think we might have some differences in how leadership is done.
+ - Don’t let your fears overwhelm your desire. Let the barriers you face-and there will be barriers-be external, not internal. Fortune does favor the bold, and I promise that you will never know what you’re capable of unless you try.
+ - Guilt management can be just as important as time management for mothers.
+ - Every job will demand some sacrifice. The key is to avoid unnecessary sacrifice.
+ - No one gets to the top, if they sit on the sidelines, or if they don’t believe in themselves.
+ - When you want to change things, you won’t please everyone.
+ - We have a problem with women in leadership across the board. This leadership gap – this problem of not enough women in leadership – is running really deep and it’s in every industry. My answer is we have to understand the stereotype assumptions that hold women back.
+ - In fact, my New Year’s resolution every year, and I’m Jewish so I get two New Years a year, is to meditate, and I fail every time.
+ - What I tell everyone, and I really do for myself is, I have a long-run dream, which is I want to work on stuff that I think matters.
+ - I don’t pretend there aren’t biological differences, but I don’t believe the desire for leadership is hardwired biology, not the desire to win or excel. I believe that it’s socialization, that we’re socializing our daughters to nurture and our boys to lead.
+ - A woman, if you’re Most Intelligent or Most Likely to Succeed, that’s an embarrassing thing. Or something that’s not considered attractive, and I think that’s what we need to change.
+ - I tell people in their careers, ‘Look for growth. Look for the teams that are growing quickly. Look for the companies that are doing well. Look for a place where you feel that you can have a lot of impact.’
+ - Aggressive and hard-charging women violate unwritten rules about acceptable social conduct. Men are continually applauded for being ambitious and powerful and successful, but women who display these same traits often pay a social penalty. Female accomplishments come at a cost.
+ - Every woman I know, particularly the senior ones, has been called too aggressive at work. We know in gender blind studies that men are more aggressive in their offices than women. We know that. Yet we’re busy telling all the women that they’re too aggressive. That’s the issue.
+ - I think now is our time. My mother was told by everyone that she had two choices: She could be a nurse or a teacher. The external barriers now are just so much lower. If we start acknowledging what the real issues are, we can solve them. It’s not that hard.
+ - Leaders should strive for authenticity over perfection.
+ - Everyone needs to get more comfortable with female leaders-including female leaders themselves.
+ - There is no perfect fit when you’re looking for the next big thing to do. You have to take opportunities and make an opportunity fit for you, rather than the other way around. The ability to learn is the most important quality a leader can have.
+ - Everyone knows that marriage is the biggest personal decision you make, but it’s the biggest career decision you can make.
+ - The gender stereotypes introduced in childhood are reinforced throughout our lives and become self-fulfilling prophesies. Most leadership positions are held by men, so women don’t expect to achieve them, and that becomes one of the reasons they don’t.
+ - And what I saw happening is that women don’t make one decision to leave the workforce. They makes lots of little decisions really far in advance that kind of inevitably lead them there.
+ - When I went to college, as much as my parents emphasized academic achievement, they emphasized marriage even more. They told me that the most eligible women marry young to get a ‘good man’ before they are all taken.
+ - Women have made tons of progress. But we still have a small percentage of the top jobs in any industry, in any nation in the world. I think that’s partly because from a very young age, we encourage our boys to lead and we call our girls bossy.
+ - I have never met a woman, or man, who stated emphatically, “Yes, I have it all.‘” Because no matter what any of us has – and how grateful we are for what we have – no one has it all.
+ - I want women to get paid more. I want to teach them to negotiate so they get paid more.
+ - And anyway, who wears a tiara on a jungle gym?
+ - It’s easy to dislike the few senior women out there. What if women were half the positions in power? It would be harder to dislike all of them.
+ - All of us want the same things. We want to be good to the people around us and for our lives to have meaning. For me that means making the world a little bit easier for women.
+ - I am saying that I was able to mold those hours around the needs of my family, and that matters. And I really encourage other people at Facebook to mold hours around themselves.
+ - Next time you’re about to call your daughter bossy, take a deep breath and say, ‘My daughter has executive leadership skills.’
+ - My hope in writing ‘Lean In: Women, Work, and the Will to Lead’ was to change the conversation from what women can’t do to what we can.
+ - Facebook is a really exciting place trying to do something really important that I really believe in. And it matters.
+ - We need to start talking about child-rearing in the workplace.
+ - I probably shouldn’t admit this since I work in the tech industry, but I still prefer reading paper books.
+ - When looking for a life partner, my advice to women is date all of them: the bad boys, the cool boys, the commitment-phobic boys, the crazy boys. But do not marry them. The things that make the bad boys sexy do not make them good husbands.
+ - I have never worked for a woman, and I have never worked with a lot of women.
+ - I’m not telling women to be like men. I’m telling us to evaluate what men and women do in the workforce and at home without the gender bias.
+ - I would be better at my job if I were technical.
+ - I’m excited that more people, especially men, are understanding that equality is good for them. I don’t want men to want equality for women because they’re being nice to their colleagues and daughters. I want men to want it because it’s better for their companies and their lives.
+
+154 quotes

@@ -1,0 +1,30 @@
+ - Don’t try to rush progress. Remember – a step forward, no matter how small, is a step in the right direction. Keep believing.
+ - We train together to make each other great.
+ - Set small goals along the way and don’t be overwhelmed by the process.
+ - Running allows me to set my mind free. Nothing seems impossible, nothing unattainable.
+ - Progress is rarely a straight line. There are always bumps in the road, but you can make the choice to keep looking ahead.
+ - Never underestimate the power that one good workout can have on your mind. Keeping the dream alive is half the battle.
+ - Do the work. Do the analysis. But feel your run. Feel your race. Feel the joy that is running.
+ - Acknowledge all of your small victories. They will eventually add up to something great.
+ - Once you make the decision that you will not fail, the heart and the body will follow.
+ - That’s the thing about running: your greatest runs are rarely measured by racing success. They are moments in time when running allows you to see how wonderful your life it.
+ - Running has always been a relief and a sanctuary – something that makes me feel good, both physically and mentally. For me it’s not so much about the health benefits. Those are great, but I believe that the best thing about running is the joy it brings to life.
+ - Don’t be ashamed or embarrassed to dream big. You’re living your life with hope, that’s a powerful thing.
+ - Be unrelenting. If you don’t believe, then who will?
+ - There are a million reasons why you can’t. Focus on the few reasons why you can.
+ - I don’t feel like myself unless I run. It’s how I deal with sadness and happiness. I need it. It’s like therapy.
+ - Hill sprints are good for everyone!
+ - One skill that separates good from almost-good runners is an ability to concentrate for an entire race, whether it is a mile or a marathon.
+ - Racing is the fun part; it’s the reward of all the hard work.
+ - Don’t ever discourage someone from trying to better their life and health.
+ - The journey isn’t always perfect, but always worth taking.
+ - It doesn’t matter how fast or how far you’re going. If you’re putting on your shoes and going out for a run, you are a runner, you are in that club.
+ - After we put my son to bed, my husband and I curl up and watch a movie or TV. That’s when I finally put up my feet and have my glass of wine and a brownie.
+ - I try to think about positive things – how great my form is, how my arms are swinging, my breathing, how loud people are cheering. My sports psychologist taught me there are a million things telling you you can’t keep going, but if you find the things that say you can, you’re golden.
+ - You can’t do in a race what you haven’t prepared for.
+ - Get out there and do what you love!
+ - As badly as I want a medal, I know there is a lot of luck involved in that. I want to put myself in position to be in the top three, give it my all and hope luck comes my way.
+ - I have a power word that I use-when I qualified for the Olympics in 2008, it was fighter. That way when I’m in the race and I get to those dark moments, I can think of the word and it evokes that emotion for me.
+ - Watching the world’s best compete fires you up to achieve your own feats of greatness. When it comes to running, participation and spectating go hand in hand.
+
+28 quotes

@@ -1,0 +1,33 @@
+ - You’ve got to have a sense of humor to keep your sanity.
+ - I’m still Christian. I was not raised in a Christian church to hate people. I was taught to love people and accept people. I know what I believe.
+ - I have the worst memory in the world. I can remember some of my dreams, but later that day, i’ll forget them.
+ - Speaking out is important for me because everyone should be treated equally.
+ - I find that once you start helping others, it makes you feel better about yourself. It helps you figure out what you want to do with your own life.
+ - In my older age, I’ve learned to take things slower, because I used to be that total-fall-in-love-after-a-day guy.
+ - People do stupid things in the heat of the moment. I’ve been in Vegas where I’ve gotten married for, like, five minutes.
+ - I think everyone dreams of that nice romantic wedding.
+ - I’m more liberated and happy than I’ve been my whole life. I’m just happy.
+ - I’m at peace with my family, my friends, myself and God so there’s really nothing else that I worry about.
+ - Eventually everyone will have the opportunity to travel onto space.
+ - I’ve definitely, you know, been with women. And I’ve had great relationships with them where I was definitely in love. It’s just I grew to a point where deep inside I knew that I could never truly have a relationship with a woman. I don’t know if they ever suspected. It was never brought up.
+ - I was always the Southern gentleman.
+ - I’ve always dreamed of having a large family.
+ - I’m a Southerner. We dream of having the family and the kids, and the parents want grandkids, that’s all they care about, give me some grandbabies.
+ - For once I want to have a relationship outside the public eye.
+ - I was a very gawky-looking teenager, so I was not cute.
+ - Unfortunately, if you don’t want to be in the spotlight, get out of it.
+ - I’m a family guy, so I would love to have a family; I would love to find that perfect person to have a family with.
+ - I’ve been asked too many times to write a book by the fans.
+ - I am fortunate enough with my career that I can speak out to the masses and hopefully be a part of initiating change.
+ - I can’t bear looking in the mirror – I guess that’s why my hair looks like this.
+ - I just think with acting, there’s not a time limit on it.
+ - At some point in our lives there’s something about every one of us that makes us feel like an outsider, I believe.
+ - I’m such a relationship guy. I really am.
+ - Somebody might get criticized for doing some movie that totally sucks, then turn around and be incredible. Every actor goes through that, not just musicians who act.
+ - I’m more interested in producing than acting.
+ - You know once you get in the business you know what you’re getting into.
+ - We joke about it in the entertainment industry: Every actor wants to be a musician, and every musician wants to be an actor.
+ - I want to toy around with producing a Broadway show.
+ - I’ve always been interested in making movies.
+
+31 quotes

@@ -1,0 +1,102 @@
+ - Music is what our feelings sound like.
+ - I look for struggle in the roles I choose – struggle and perseverance.
+ - In the quiet moments, the discoveries are made.
+ - You know what’s more difficult to do organically? Laughing. It’s actually one of the hardest things to do on camera.
+ - Honesty is not synonymous with truth.
+ - I love to be surprised.
+ - I have a lot of frustration with religion, organized religion, because it’s man-made, because it’s man-regulated. And it has nothing to do with my relationship with God.
+ - Doubt is the middle position between knowledge and ignorance. It encompasses cynicism but also genuine questioning.
+ - Am I ambitious? I used to be afraid of that word but now I think ambition is a good thing.
+ - My husband is my best friend; he knows my sensibilities.
+ - There are women who make things better, there are women who change things, there are women who make things happen, who make a difference. I want to be one of those women.
+ - My personality is just innately even-keeled. I’m not such a huge daredevil. Which is not to say I’m not a passionate woman. I don’t know, maybe it’s my physiological makeup, but I don’t like the feeling of anything in my system, other than a glass of wine now and then.
+ - I’m someone who can sit in a Buddhist temple, and I can sit with Pentecostals or with Orthodox Jews, and I still feel like I am in tune with all of them.
+ - I’m hooked on Polanski’s films, his psychological thrillers. I love ‘Rosemary’s Baby,’ I love ‘Repulsion.’
+ - In these times, in this harsh, rude, warring world that we live in, where most of the bloodshed is ‘My god is greater than your god,’ and we’re fighting in the name of our god, we have to find a way to peaceably coexist, spiritually.
+ - I grew up in a Christian home. The strictness comes with religion in general. Whether you grew up Jewish or Orthodox Jewish or Muslim, there are certain rules and regulations. But my parents instilled in me the importance of defining God for yourself.
+ - I don’t have a caustic sense of humor. What I find funny, that humor comes from a much gentler place.
+ - When you’re breastfeeding a child, you don’t have the same retention as you do when you’re not.
+ - I have the best husband a wife could possibly have. He’s the best father my children could have.
+ - The limelight is a tricky place, because you can’t believe what’s going on around you. You stop observing. You stop perceiving. You stop extending yourself, and you become isolated.
+ - It’s a very different thing, religion and faith. Religion is man-made, it’s man-regulated. And faith, you can define God as you wish. But I think they’re two different things.
+ - Patrick sort of had a very pragmatic, practical, Ed-like approach and went down to see.
+ - Ruminants are a perfectly normal thing to possess when you live in upstate New York. It’s just moving scenery. It’s kind of like the equivalent of Great Danes. It’s the way you keep your grass mowed. It’s the way you keep your weed-whacking to a minimum.
+ - I can’t do Los Angeles. I’ve always been the anti-Barbie. I don’t want to be in a place where almost every woman walks around with puffy lips, little noses and breasts large enough to nourish a small country.
+ - I am drawn to intimate, often uncomfortable portraits of a woman persevering and awakening.
+ - I can’t get my knickers in a twist about my age and ageing in an industry that caters to the ids of 14-year-olds.
+ - I always thought Uncle Vanya could be a stoned masterpiece.
+ - Do I pray? Yes. Prayer is very important to me.
+ - I think I always try to be accommodating and open and available and proving for my director. I love to give as many takes as they want. I love to give them as many choices as they want.
+ - There are some times when I think acting can be a noble profession. And when those rare roles come along, like Down to the Bone, you have the opportunity to be of service.
+ - The different tempos and yeah, it’s cadence. It’s the way she moves through space, it’s gestures.
+ - The fears and anxieties and obsessions wrapped up in being a parent.
+ - Just because I’m telling a story about a woman losing faith is not my rebellion against what I grew up in. If anything, it really affected the way I approached the story, and in fact, approach everything. I don’t judge my characters.
+ - I have tender, romantic associations with upstate New York.
+ - When you encounter sophistication in the creation of a female character, you thank the writers and you claim it.
+ - Whether youre making a million dollar film or a $100 million film there is never enough money, theres never enough time.
+ - I’m pretty squeaky clean. No big tragedies in my childhood or adolescence or adulthood. I’ve had a very easygoing, simple life.
+ - I grew up in a Ukrainian Catholic-turned-Christian household, and that is my family’s faith.
+ - We’re all sick of holy wars and bloodshed because religion is supposed to give us life and a better life and is supposed to bring out our best self. When it results in mass destruction and hatred and anxiety, it’s the antithesis I think of what religion was designed to do.
+ - It’s a delicate thing for me, with how involved I am in social media and being a part of people’s lives in a way that they want me to.
+ - There’s no wrong way to experience a film.
+ - I’ve always believed that if you are precise in your thoughts, it’s not the lines you say that are important – it’s what exists between the lines. What I’m compelled by most is that transparency of thought, what is left unspoken.
+ - But I think for me, why I was drawn to the piece is, at the core of the story, it’s a love story to me – between Ed and Lorraine, between these two families who are asking for help and us who are in the business of giving help.
+ - Whether we call it religion or faith, we all battle for a balanced integrated soul.
+ - Esquire’s all about mommy issues now. Breastfeeding, vaccinations, playdate etiquette.
+ - I think God gave us senses of humor, and we should use them.
+ - The more people know about you, the more face-time you get in the media, the harder your job becomes to create a character in whom people suspend disbelief.
+ - No role is more challenging, rewarding and inspiring than my real-life role as a mom and a wife.
+ - Faith is important to me.
+ - I cannot even imagine college. I’m white-knuckling it just letting my son go to kindergarten for eight hours a day.
+ - You earn very little money on independent films and I’m the provider for my home, so I do have to think of taking one for the accountant time and again and that means studio pictures.
+ - The writers could always do an about-face and change everything.
+ - Partying has never been my thing. I’ve been around some wild people. I’ve been in the same room and watched them experiment, and that’s been entertaining.
+ - I think all religions can agree on certain definitions of God and concepts of God, like God being the god of love, the great ‘I am’ energy.
+ - Chekhov, when it’s done well and you’re ready for it, can actually be quite funny.
+ - I’m incredibly spiritual. There are like tens of thousands of denominations; I don’t fit in any one of those denominations comfortably. But I have a very personal relationship with God.
+ - I’m a full-time mom. I’ve never felt as prepared, as before maternity.
+ - It’s such a measure of your solidarity with Ed, that when you would give lectures, he would be wearing a tartan tie that matched. And I demanded that outfit, I thought it was so punk – her long skirt, she looked like a Scottish queen, so regal.
+ - I was very studious and square in college.
+ - As an actor, you’re sort of the court-appointed lawyer for the character.
+ - I think that films about faith made for faith-based communities have a certain tactic.
+ - We take a lot for granted as second wave feminists, what our mothers and aunts did for us.
+ - I rely on my directors, a lot. I love being directed.
+ - I do love directing. I’m only comfortable working in the independent film arena for a very small budget where I have creative control and I can put my stamp on it.
+ - I think the worst thing that can happen to a good actor is fame.
+ - Do I observe holy days and holidays? Yeah, the ritual is very important to me. It’s part of being Ukrainian Catholic. So every holy day we’re baking pierogis and not eating meat.
+ - Normally, I rely heavily on my director to massage me out of my actor comfort zones.
+ - Esquire needs to be more like a mommy blog.
+ - Your soul either feels lifted by something that you read, or it feels squashed by it.
+ - Editing is not a part of the filmmaking process I’ve ever been privy to as an actress.
+ - I just can’t feel lukewarm about a character. I either despise her, admire her, or don’t understand her and want to understand her.
+ - I was a Ukrainian folk dancer in my teens, and I toured the country in 1991, shortly before the break-up of the Soviet Union.
+ - I cherish each director that I have. I want to be maneuvered out of my comfort zones. I don’t have the time to prepare.
+ - The biggest research of all when I do a character is self-examination. You look at yourself and you ask, ‘How am I similar to this person and how am I different?’
+ - I just hate one-dimensional portrayals of religion; it’s too cheap and easy to do, and ignores the nuances that go into having a belief system.
+ - I bet you could look at every single thing I’ve ever done and reduce it to that parenting schematic.
+ - Sometimes music helps. If I feel that it’s bogus, I’ll literally just call myself out on camera and say that it’s dishonest. You do whatever it takes.
+ - I’ve played a lot of mothers in my movies.
+ - The depth of exploration of the male psyche and the female psyche is uneven. I see further, deeper renderings of what it means to be a man.
+ - It’s true: I don’t remember what life was like before parenthood.
+ - I come from a massive family, and the youngest is twentysomething years younger than I am, so I grew up with children.
+ - Sometimes I attract roles that are necessary either for personal growth or enlightenment.
+ - I, for one, am tired of seeing movies about men damaging each other.
+ - The nature of evil, the nature of it, it exists. It exists and I think within us we have the tools. If we have the will, we can combat it. I think the power is within us and it lies in our own conceptualization of God and positivity and compassion and love.
+ - I just wanted to make sure that yes, that those horror – they worked as a genre. To me, I just wanted to be touched by the film in the way that I saw plausible. Which is the story about compassion – giving and receiving it in those desperate times of need.
+ - Editing yourself is like an irksome coin toss. You’ve got to strip yourself of super ego and operate from the id. Maybe I’ve got my Freud mixed up. It’s just hard to trade a beauty shot for the performance with truth and a brightly lit zit.
+ - There really are three types of religious movies: the ones that make fun of it, the ones that vilify it and the ones that literally preach to the converted.
+ - Someone once told me that religion is like a knife: You can stab someone with it, or you can slice bread with it.
+ - There’s just a deeper level of sophistication in the writing of female characters on TV.
+ - When I look at female characters, I want to recognize myself in them: my trials, my tribulations as a mother, as a lover, as a daughter.
+ - I just want to make sure that the thing that I see in it initially, that I think it can be, is not just going to be a horror film and reduced to a jump here and a scream there. But that you can take something away from it.
+ - I chase after inspiring stories.
+ - My father instilled in me – of utmost importance and innate in me is the yearning to determine for myself – to define God, to define holiness for myself.
+ - It’s thematic in my career, if you look at most of my choices. It is some level of exploration of maternal angst and maternal heroism.
+ - I don’t necessarily need Hollywood.
+ - It’s terrifying to be the lead. There’s a moment of excitement, and then pure terror.
+ - I didn’t grow up watching film but as a Ukrainian-American, music and stories and dance are crucial.
+ - You ought to have a perspective when you’re making a film.
+ - Honestly, I think a good film is spiritual, regardless of whether its subject is faith.
+ - I’ve done TV, but never where you’re given this much time to live with a character, to study the tone and hone it and repair stuff, to go back and watch old episodes and go, “Oh no, that’s a misstep. That’s a victory. I should do more of that, less of that.”
+
+100 quotes

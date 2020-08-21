@@ -1,0 +1,422 @@
+ - Almost everything will work again if you unplug it for a few minutes, including you.
+ - All freedom comes from discipline.
+ - Hope begins in the dark, the stubborn hope that if you just show up and try to do the right thing, the dawn will come. You wait and watch and work: you don’t give up.
+ - Hope begins in the dark.
+ - It’s better to be kind than to be right.
+ - A good marriage is where both people feel like they're getting the better end of the deal.
+ - You own everything that happened to you. Tell your stories. If people wanted you to write warmly about them, they should have behaved better.
+ - Bird by bird, buddy. Just take it bird by bird.
+ - Perfectionism is the voice of the oppressor; the enemy of the people. It will keep you insane your whole life.
+ - Expectations are resentments under construction.
+ - Help, Thanks, Wow: The Three Essential Prayers.
+ - Right foot, left foot, right foot, breathe.
+ - Lighthouses don’t go running all over an island looking for boats to save; they just stand there shining.
+ - You can safely assume that you’ve created God in your own image when it turns out that God hates all the same people you do.
+ - I’m here to be me, which is taking a great deal longer than I had hoped.
+ - The opposite of faith is not doubt, it’s certainty.
+ - You can get the monkey off your back, but the circus never leaves town.
+ - Writing and reading decrease our sense of isolation. They deepen and widen and expand our sense of life: they feed the soul.
+ - Radical self-care is quantum, and radiates out into the atmosphere, like a little fresh air.
+ - Forgiveness means it finally becomes unimportant that you hit back.
+ - The truth of my experience is that we are all a lot more alike than we are different.
+ - It’s good to do uncomfortable things. It’s weight training for life.
+ - In fact, not forgiving is like drinking rat poison and then waiting for the rat to die.
+ - I love silence. I seek and create it at every opportunity. I need it to work.
+ - I wish grace and healing were more abracadabra kind of things. Also, that delicate silver bells would ring to announce grace’s arrival. But no, it’s clog and slog and scootch, on the floor, in the silence, in the dark.
+ - Perfection is shallow, unreal, and fatally uninteresting.
+ - Almost all good writing begins with terrible first efforts. You need to start somewhere.
+ - Perfectionism is the voice of the oppressor.
+ - Faith includes noticing the mess, the emptiness and discomfort, and letting it be there until some light returns.
+ - Pay attention to the beauty surrounding you.
+ - The reason ‘help’ is such a great prayer is that God is the gift of desperation. When you’re in despair, you’re teachable.
+ - Gratitude begins in our hearts and then dovetails into behavior. It almost always makes you willing to be of service, which is where the joy resides.
+ - My best teachers were mess, failure, death, mistakes, and the people I hated, including myself.
+ - There is nothing as sweet as a comeback, when you are down and out, about to lose, and out of time.
+ - I can tell you that what you’re looking for is already inside you.
+ - Radical self-care is what we’ve been longing for, desperate for, our entire lives-friendship with our own hearts.
+ - You can either practice being right or practice being kind.
+ - We are not here to see through one another, but to see one another through.
+ - It’s a great time to be alive.
+ - Writing and reading decrease our sense of isolation. It’s like singing on a boat during a terrible storm at sea. You can’t stop the raging storm, but singing can change the hearts and spirits of the people who are together on that ship.
+ - When God is going to do something wonderful, He or She always starts with a hardship; when God is going to do something amazing, He or She starts with an impossibility.
+ - Never compare your insides to everyone else’s outsides.
+ - Gratitude, not understanding, is the secret to joy and equanimity.
+ - We begin to find and become ourselves when we notice how we are already found, already truly, entirely, wildly, messily, marvelously who we were born to be.
+ - You don’t always have to chop with the sword of truth. You can point with it too.
+ - But grace can be the experience of a second wind, when even though what you want is clarity and resolution, what you get is stamina and poignancy and the strength to hang on.
+ - I believe that discipline and self-love are the total secrets to freedom.
+ - Write regularly, whether you feel like writing or not, and whether you think what you’re writing is any good or not.
+ - The road to enlightenment is long and difficult, and you should try not to forget snacks and magazines.
+ - The evidence is in, and you are the verdict.
+ - The miracle is that we are here, that no matter how undone we’ve been the night before, we wake up every morning and are still here. It is phenomenal just to be.
+ - A hundred years from now? All new people.
+ - Man is born broken. He lives by mending. The grace of God is glue.
+ - Forgiveness means it finally becomes unimportant that you hit back. You’re done. It doesn’t necessarily mean that you want to have lunch with the person. If you keep hitting back, you stay trapped in the nightmare...
+ - Creative expression, whether that means writing, dancing, bird-watching, or cooking, can give a person almost everything that he or she has been searching for: enlivenment, peace, meaning, and the incalculable wealth of time spent quietly in beauty.
+ - I didn’t need to understand the hypostatic unity of the Trinity; I just needed to turn my life over to whoever came up with redwood trees.
+ - The difference between you and God is that God doesn’t think He’s you.
+ - We write to expose the unexposed. If there is one door in the castle you have been told not to go through, you must. The writer’s job is to turn the unspeakable into words – not just into any words, but if we can, into rhythm and blues.
+ - Prayer means that, in some unique way, we believe we’re invited into a relationship with someone who hears us when we speak in silence.
+ - And as it turns out, if one person is praying for you, buckle up. Things can happen.
+ - Dogs are the closest we come to knowing the divine love of God on this side of eternity.
+ - I go to church every Sunday, which is like going to the gas station once a week and really, really filling up.
+ - To love yourself as you are is a miracle, and to seek yourself is to have found yourself for now. And now is all we have, and love is who we are.
+ - My deepest belief is that to live as if we’re dying can set us free. Dying people teach you to pay attention and to forgive and not to sweat the small things.
+ - Write straight into the emotional center of things. Write toward vulnerability. Don’t worry about appearing sentimental. Worry about being unavailable; worry about being absent or fraudulent.
+ - Once an old woman at my church said the secret is that God loves us exactly the way we are and that he loves us too much to let us stay like this, and I’m just trying to trust that.
+ - When faced with a crisis, do three things: breathe, pray and be kind.
+ - Nothing can be delicious when you are holding your breath.
+ - And she is going to dance, dance hungry, dance full, dance each cold astonishing moment, now when she is young and again when she is old.
+ - Your problem is how you are going to spend this one and precious life you have been issued. Whether you’re going to spend it trying to look good and creating the illusion that you have power over circumstances, or whether you are going to taste it, enjoy it and find out the truth about who you are.
+ - Whenever the world throws rose petals at you, which thrill and seduce the ego, beware.
+ - Your inside person doesn’t age. Your inside person is soul, is heart, in the eternal now, the ageless, the old, the young, all the ages you’ve ever been.
+ - Sometimes Heaven is just a new pair of glasses.
+ - When everything starts going wrong all at once, it is to protect something big and lovely that is trying to get itself born.
+ - I was reminded of the Four Immutable Laws of the Spirit: Whoever is present are the right people. Whenever it begins is the right time. Whatever happens is the only thing that could have happened. And when it’s over, it’s over.
+ - Some people have a thick skin and you don’t. Your heart is really open and that is going to cause pain, but that is an appropriate response to this world. The cost is high, but the blessing of being compassionate is beyond your wildest dreams.
+ - Don’t look at your feet to see if you are doing it right. Just dance.
+ - Sometimes grace is a ribbon of mountain air that gets in through the cracks.
+ - Being enough was going to have to be an inside job.
+ - Sometimes, no matter how screwed up things seem, I feel like we’re all at a wedding. But you can’t just come out and say, We’re at a wedding! Have some cake! You need to create a world into which we can enter, a world where we can see this.
+ - Laughter is a bubbly, effervescent form of holiness.
+ - Joy is the best makeup.
+ - If you have a problem you can solve by throwing money at it, you don’t have a very interesting problem.
+ - I do not know much about God and prayer, but I have come to believe over the last twenty-five years, that there’s something to be said about keeping prayer simple. Help, Thanks, Wow.
+ - My gratitude for good writing is unbounded; I’m grateful for it the way I’m grateful for the ocean.
+ - Sometimes grace works like water wings when you feel you are sinking.
+ - Getting into a new relationship is like pouring Miracle-Gro on your character defects.
+ - I don’t want something special. I want something beautifully plain.
+ - Churches are good for prayer, but so are garages and cars and mountains and showers and dance floors.
+ - The movement of grace toward gratitude brings us from the package of self-obsessed madness to a spiritual awakening.
+ - I write because writing is the gift God has given me to help people in the world.
+ - Everyone is screwed up, broken, clingy, and scared, even the people who seem to have it more or less together. They are much more like you than you would believe. So try not to compare your insides to their outsides.
+ - Grief, as I read somewhere once, is a lazy Susan. One day it is heavy and underwater, and the next day it spins and stops at loud and rageful, and the next day at wounded keening, and the next day numbness, silence.
+ - Teenagers who do not go to church are adored by God, but they don’t get to meet some of the people who love God back.
+ - I don’t think you have time to waste not writing because you are afraid you won’t be good at it.
+ - Rest and laughter are the most spiritual and subversive acts of all. Laugh, rest, slow down.
+ - I’m human, you’re human, let me greet your humanness. Let’s be people together for a while.
+ - This is a very violent place to live, the Earth, and we’re a very violent species. Cain is still killing Abel. We see that every day.
+ - E-books are great for instant gratification – you see a review somewhere of a book that interests you, and you can start reading it five minutes later.
+ - Some people seem to understand this – that life and change take time – but I am not one of those people.
+ - I thought the secret of life was obvious: be here now, love as if your whole life depended on it, find your life’s work, and try to get hold of a giant panda.
+ - So a moral position is not a message. A moral position is a passionate caring inside you.
+ - I just can’t get over how much babies cry. I really had no idea what I was getting into. To tell you the truth, I thought it would be more like getting a cat.
+ - I am going to try to pay attention to the spring. I am going to look around at all the flowers, and look up at the hectic trees. I am going to close my eyes and listen.
+ - This is what separates artists from ordinary people: the belief, deep in our hearts, that if we build our castles well enough, somehow the ocean won’t wash them away. I think this is a wonderful kind of person to be.
+ - I don’t remember who said this, but there really are places in the heart you don’t even know exist until you love a child.
+ - Joy is the best makeup. But a little lipstick is a close runner-up.
+ - The grief and tears didn’t wash me away. They gave me my life back! They cleansed me, baptized me, hydrated the earth at my feet.
+ - Good therapy helps. Good friends help. Pretending that we are doing better than we are doesn’t. Shame doesn’t. Being heard does.
+ - You want to give me chocolate and flowers? That would be great. I love them both. I just don’t want them out of guilt, and I don’t want them if you’re not going to give them to all the people who helped mother our children.
+ - I am learning slowly to bring my crazy pinball-machine mind back to this place...
+ - When you pray, you are not starting the conversation from scratch, just remembering to plug back into a conversation that’s always in progress.
+ - Summer nearly does me in every year. It’s too hot and the light is unforgiving and the days go on way too long.
+ - It’s intrusive for grandparents to think they’re in charge. It’s manipulative. Also, it’s self-destructive, since if the parents have to resist you, you won’t get your mitts on the kid as often.
+ - Then the singing enveloped me. It was furry and resonant, coming from everyone’s very heart. There was no sense of performance or judgment, only that the music was breath and food.
+ - Everyone is flailing through this life without an owner’s manual, with whatever modicum of grace and good humor we can manage.
+ - Laughter is carbonated holiness.
+ - Love falls to earth, rises from the ground, pools around the afflicted. Love pulls people back to their feet. Bodies and souls are fed. Bones and lives heal. New blades of grass grow from charred soil. The sun rises.
+ - The reason I never give up hope is because everything is so basically hopeless.
+ - I thought such awful thoughts that I cannot even say them out loud because they would make Jesus want to drink gin straight out of the cat dish.
+ - I think we’re all pretty crazy on this bus. I’m not sure I know anyone who’s got all the dots on his or her dice.
+ - Everyone is screwed up, broken, clingy, and scared.
+ - You own everything that happened to you. Tell your stories.
+ - After a while the middle-aged person who lives in her head begins to talk to her soul, the kid.
+ - Some people won’t go the extra mile, and then on their birthday, when no one makes a fuss, they feel neglected and bitter.
+ - For me, Jesus is my cleft in the rock. He is my safest friend, my safe totally loving accepting big brother.
+ - I am an Aries. Although I do not believe in astrology, I think this is exactly the right sign to have been born under.
+ - We were raised to believe in books, music, and nature.
+ - Forgiveness is having given up all hope of having had a better past.
+ - Or you might shout at the top of your lungs or whisper into your sleeve, “I hate you, God.” That is a prayer too, because it is real, it is truth, and maybe it is the first sincere thought you’ve had in months.
+ - The first holy truth in God 101 is that men and women of true faith have always had to accept the mystery of God’s identity and love and ways. I hate that, but it’s the truth.
+ - Sometimes this human stuff is slimy and pathetic – jealousy especially so – but better to feel it and talk about it and walk through it than to spend a lifetime being silently poisoned.
+ - Because this business of becoming conscious, of being a writer, is ultimately about asking yourself, How alive am I willing to be?
+ - Everybody thinks their opinion is the right one. If they didn’t, they would get a new one.
+ - I get to tell my truth. I get to seek meaning and realization. I get to live fully, wildly, imperfectly. That’s why I’m alive. And all I actually have to offer as a writer is my version of life. Every single thing that has happened to me is mine.
+ - Books help us understand who we are and how we are to behave. They show us what community and friendship mean; they show us how to live and die.
+ - It is a violation of trust to use your kids as caulking for the cracks in you.
+ - My idea of absolute happiness is to be in bed on a rainy day, with my blankie, my cat, and my dog.
+ - When you make friends with fear, it can’t rule you.
+ - Life is really pretty tricky, and there’s a lot of loss, and the longer you stay alive, the more people you lose whom you actually couldn’t live without.
+ - Quiet, deep breath after any prayer is another form of Amen.
+ - If God was giving me a ham, I’d be crazy not to receive it. Maybe it was the ham of God, who takes away the sins of the world.
+ - This is one thing they forget to mention in most child-rearing books, that at times you will just lose your mind. Period.
+ - When we search for something larger than our own selves to hook into, we can come through whatever life throws at us.
+ - Writing is about hypnotizing yourself into believing in yourself, getting some work done, then unhypnotizing yourself and going over the material coldly.
+ - I used to tell my writing students that they must write the books they wished they could come upon – because then the books they hungered and thirsted for would exist.
+ - Over and over I feel as if my characters know who they are, and what happens to them, and where they have been and where they will go, and what they are capable of doing, but they need me to write it down for them because their handwriting is so bad.
+ - Lies cannot nourish or protect you. Only freedom from fear, freedom from lies, can make us beautiful, and keep us safe.
+ - A whole lot of us believers, of all different religions, are ready to turn back the tide of madness by walking together, in both the dark and the light – in other words, through life – registering voters as we go, and keeping the faith.
+ - A writer paradoxically seeks the truth and tells lies every step of the way. It’s a lie if you make something up. But you make it up in the name of truth, and then you give your heart to expressing it clearly.
+ - My dad taught me that to be a writer is a decision and a habit. It’s not anything lofty, and it doesn’t have that much to do with inspiration. You have to develop the habit of being a certain way with yourself. You do it at the debt of honor.
+ - The difference between a writer who toughs it out and one who doesn’t is that you push through the parts where you know that you’ve just written seven pages when all you’re looking for is one paragraph.
+ - So Rita and I decided that the most subversive, revolutionary thing I could do was to show up for my life and not be ashamed.
+ - There is a door we all want to walk through and writing can help you find it and open it.
+ - I woke up full of hate and fear the day before the most recent peace march in San Francisco. This was disappointing: I’d hoped to wake up feeling somewhere between Virginia Woolf and Wavy Gravy.
+ - I am going to notice the lights of the earth, the sun and the moon and the stars, the lights of our candles as we march, the lights with which spring teases us, the light that is already present.
+ - I remember staring at my son endlessly when he was an infant, stunned by his very existence, wondering where on earth he had come from.
+ - It feels like I’m babysitting in the Twilight Zone. I keep waiting for the parents to show up because we are out of chips and diet cokes.
+ - Rituals are a good signal to your unconscious that it is time to kick in.
+ - Feeding a baby is like filling a hole with putty – you get it in and then you sort of shave off all the excess around the hole and get it back in, like you’re spackling.
+ - No one can appropriate God, goodness, the Bible or Jesus. It just seems that way.
+ - At our most primitive we are storytellers and dancers.
+ - I was the angriest daughter on earth, and also, one of the most devoted.
+ - I try to write the books I would love to come upon that are honest, concerned with real lives, human hearts, spiritual transformation, families, secrets, wonder, craziness – and that can make me laugh.
+ - Publication is not all that it is cracked up to be. But writing is.
+ - There is nothing more touching to me then a family picture where everyone is trying to look his or her best, but you can see what a mess they all really are.
+ - Sometimes I think that Jesus watches my neurotic struggles, and shakes his head and grips his forehead and starts tossing back mojitos.
+ - But easy’s like, who cares? Easy’s like, how much is easy going to get you?
+ - I got one of the five golden tickets to be a writer, and I take that seriously. I don’t love my own work at all, but I love my own self. I love that I’ve been given the chance to capture the stories that come through me.
+ - My understanding is that you get to choose which of your thoughts to go with.
+ - All parents are an embarrassment to their kids. Often, grandparents are the relief. Kids don’t have to resist you.
+ - People help you or you help them and when we offer or receive help, we take in each other. And then we are saved.
+ - Reading poetry and reading the great works of the canon that we were reading in the ’60s and the ’70s and ’80s was mind altering.
+ - Butterflies and birds are like one perfect teaspoon of creation.
+ - I’m very successful, but there are 50,000 general interest books published every year. If you don’t want to read mine, there are others.
+ - He told me about his monster. His sounded just like mine without quite so much mascara. When people shine a little light on their monster, we find out how similar most of our monsters are.
+ - The first draft is the child’s draft, where you let it all pour out and then let it romp all over the place, knowing that no one is going to see it and that you can shape it later.
+ - A nun I know once told me she kept begging God to take her character defects away from her. After years of this prayer, God finally got back to her: I’m not going to take anything away from you, you have to give it to Me.
+ - This is the Easter message, that awakening is possible, to the goodness of God, the sacredness of human life, the sisterhood and brotherhood of all.
+ - Peace is joy at rest. Joy is peace on its feet. quoting her pastor in Salon, April 25, 2003.
+ - You can change the world with a hot bath, if you sink into it from a place of knowing that you are worth profound care, even when you’re dirty and rattled.
+ - You want to protect your child from pain, and what you get instead is life, and grace; and though theologians insist that grace is freely given, the truth is that sometimes you pay for it through the nose. And you can’t pay your child’s way.
+ - I have a very dark sense of humor. I swear. I have a very playful relationship with Jesus.
+ - Grace means you’re in a different universe from where you had been stuck, when you had absolutely no way to get there on your own.
+ - Very few writers really know what they are doing until they have done it.
+ - There is ecstasy in paying attention. You can get into a kind of Wordsworthian openness to the world, where you see in everything the essence of holiness.
+ - I did not raise my son, Sam, to celebrate Mother’s Day. I didn’t want him to feel some obligation to buy me pricey lunches or flowers, some annual display of gratitude that you have to grit your teeth and endure.
+ - Small is how blessings, healing, progress and increase occur.
+ - One line of dialogue that rings true reveals character in a way that pages of description can’t.
+ - I am all the ages I’ve ever been.
+ - Writing is how I communicate my deepest beliefs, and what I hope are helpful observations about our dual citizenship, as children of God, as regular old mixed-up, worried, flawed, precious human beings.
+ - To be engrossed by something outside ourselves is a powerful antidote for the rational mind, the mind that so frequently has its head up its own ass.
+ - The thing about light is that it really isn’t yours; it’s what you gather and shine back. And it gets more power from reflectiveness; if you sit still and take it in, it fills your cup, and then you can give it off yourself.
+ - I don’t have any romantic views of parenting. Every step of the way it’s really hard. It’s a dangerous world, physically and psychologically.
+ - Nothing heals us like letting people know our scariest parts: When people listen to you cry and lament, and look at you with love, it’s like they are holding the baby of you.
+ - Every woman’s path is difficult, and many mothers were as equipped to raise children as wire monkey mothers. I say that without judgment: It is, sadly, true. An unhealthy mother’s love is withering.
+ - A big heart is both a clunky and a delicate thing; it doesn’t protect itself and it doesn’t hide. It stands out, like a baby’s fontanel, where you can see the soul pulse through.
+ - He got me a cup of tea with honey, toast with honey, yogurt with honey, like I was John the Baptist with the flu.
+ - Having a baby is like suddenly getting the world’s worst roommate, like having Janis Joplin with a bad hangover and PMS come to stay with you.
+ - You are not your bank account, our your ambitiousness. You’re not the cold clay lump with a big belly you leave behind when you die. You’re not your collection of walking personality disorders. You are spirit, you are love.
+ - My mind is a neighborhood I try not to go into alone.
+ - Perfectionism is a mean, frozen form of idealism, while messes are the artist’s true friend.
+ - Clutter and mess show us that life is being lived.
+ - Maybe it’s wishful thinking, this snaggly faith of mine, or maybe it’s Miles Davis saying, Don’t play what’s there, play what’s not there.
+ - My family tends to be pretty alcoholic and drug-addicted.
+ - When we agree to being part of something bigger than our own wired, fixated minds, we are saved.
+ - Mine was a patchwork God, sewn together from bits of rag and ribbon, Eastern and Western, pagan and Hebrew, everything but the kitchen sink and Jesus.
+ - Certainty is missing the point entirely.
+ - All criticism hurts me. I’m so in the wrong business.
+ - I liked those ladies! They were helpers, and they danced.? These are the words I want on my gravestone: that I was a helper, and that I danced.
+ - I’ve always thought I could use my brain and my heart to jockey everyone around to the good. But life is not jockeyable. When you try, you make people infinitely crazier than they already were, including or especially yourself.
+ - What people somehow forgot to mention when we were children was that we need to make messes in order to find out who we are and why we are here.
+ - I think this is how we are supposed to be in the world-present and in awe.
+ - Writing takes a combination of sophistication and innocence; it takes conscience, our belief that something is beautiful because it is right.
+ - I get thirsty people glasses of water, even if that thirsty person is just me.
+ - Love is so much bigger than our ignorance.
+ - The world is always going to be dangerous, and people get badly banged up, but how can there be more meaning than helping one another stand up in a wind and stay warm?
+ - Grace is having a commitment to- or at least an acceptance of- being ineffective and foolish. That our bottled charm is the main roadblock to drinking that clear cool glass of love.
+ - We all often feel like we are pulling teeth, even those writers whose prose ends up being the most natural and fluid. The right words and sentences just do not come pouring out like ticker tape most of the time.
+ - Why couldn’t Jesus command us to obsess over everything, to try to control and manipulate people, to try not to breathe at all, or to pay attention, stomp away to brood when people annoy us, and then eat a big bag of Hershey’s Kisses in bed?
+ - Write as if your parents are dead.
+ - Sometimes I think God loves the ones who most desperately ache and are most desperately lost – his or her wildest, most messed-up children – the way you’d ache and love a screwed-up rebel daughter in juvenile hall.
+ - My writer friends, and they are legion, do not go around beaming with quiet feelings of contentment. Most of them go around with haunted, abused, surprised looks on their faces, like lab dogs on whom very personal deodorant sprays have been tested.
+ - Just don’t pretend you know more about your characters than they do, because you don’t. Stay open to them. It’s teatime and all the dolls are at the table. Listen. It’s that simple.
+ - I spent my whole life helping my mother carry around her psychic trunks like a bitter bellhop. So a great load was lifted when she died, and my life was much easier.
+ - I see that children fill the existential hollowness many people feel; that when we have children, we know they will need us, and maybe love us, but we don’t have a clue how hard it is going to be.
+ - I would seriously rather be in a long line at the DMV than eat with people I don’t know.
+ - My mother was a not-too-devoted atheist. She went to Episcopal church on Christmas Eve every year, and that was mostly it.
+ - My mother’s eyes were large and brown, like my son’s, but unlike Sam’s, they were always frantic, like a hummingbird who can’t quite find the flower but keeps jabbing around.
+ - Sam said to me the other day, “I love you like 20 tyrannosauruses on 20 mountaintops,” and this is the exact same way in which I love him.
+ - Jealousy has always been my cross, the weakness and woundedness in me that has most often caused me to feel ugly and unlovable, like the Bad Seed.
+ - On the spiritual path, all the dreck and misery is transformed, maybe not that same day, but still transformed into spiritual fuel or insight.
+ - We all know we’re going to die; what’s important is the kind of men and women we are in the face of this.
+ - Laughter is the key that grace has arrived.
+ - I don’t have very sophisticated taste in music. I listen to a lot of folk music. I like reggae.
+ - Where do we even start on the daily walk of restoration and awakening? We start where we are.
+ - Rationality squeezes out much that is rich and juicy and fascinating.
+ - No one is more sentimentalized in America than mothers on Mother’s Day, but no one is more often blamed for the culture’s bad people and behavior.
+ - When I was young, I used to be so jealous of other girls that it crippled me.
+ - I have a giant ego and terrible self-esteem, so I need to hit the re-set button fairly regularly – to get into presence, and humility, and being right-sized.
+ - One of the gifts of being a writer is that it gives you an excuse to do things, to go places and explore. Another is that writing motivates you to look closely at life, at life as it lurches by and tramps around.
+ - What an incredible drug fear is.
+ - Most of me was glad when my mother died. She was a handful, but not in a cute, festive way. More in a life-threatening way, that had caused me a long time ago to give up all hope of ever feeling good about having had her as a mother.
+ - Sometimes it feels like God has reached down and touched me, blessed me a thousand times over, and sometimes it all feels like a mean joke, like God’s advisers are Muammar Qaddafi and Phyllis Schlafly.
+ - To be great, art has to point somewhere.
+ - It is in many people’s best interest for you not to find yourself, but it only matters that it is in yours, and the whole world’s, to proceed.
+ - You have to make mistakes to find out who you aren’t.
+ - Listen to your broccoli and it will tell you how to eat it.
+ - Perfectionism means that you try not to leave so much mess to clean up. But clutter and mess show us that life is being lived.
+ - My heart was broken and my head was just barely inhabitable.
+ - If you fixate on the big picture, the whole shebang, the overview, you miss the stitching.
+ - When hope is not pinned wriggling onto a shiny image or expectation, it sometimes floats forth and opens.
+ - I wish there were shortcuts to wisdom and self-knowledge: cuter abysses or three-day spa wilderness experiences. Sadly, it doesn’t work that way. I so resent this.
+ - Grace arrived, like the big, loopy stitches with which a grandmotherly stranger might baste your hem temporarily.
+ - There are these people who keep taking you in and feeding you and loving you and making the world a tiny bit safer than it feels. People have community and family, but existentially we are deeply isolated.
+ - I cry intermittently, like a summer rain. I don’t feel racked by the crying; in fact, it hydrates me. Then rage wells up in me, and I want to take a crowbar to all the cars in the neighborhood.
+ - I can never tell what I’m doing when I’m in the middle of publication because I have no confidence. I have terrible self-esteem, along with boundless narcissism.
+ - I just try to love and serve everyone, and bring everyone water, and lend an ear; that’s what Jesus said to do.
+ - Now, if you ask me, what’s going on is that we’re all up to here in it, and probably the most important thing is that we not yell at one another.
+ - I went to Goucher College in Maryland for the best possible reasons – to learn – but then I dropped out at 19 for the best possible reasons – to become a writer.
+ - I worry that Jesus drinks himself to sleep when he hears me talk like this.
+ - Grace is the light or electricity or juice or breeze that takes you from that isolated place and puts you with others who are as startled and embarrassed and eventually grateful as you are to be there.
+ - I’m a terrible Christian and meditating is very hard for me, and I do it. I do it badly, like I do a lot of things. I believe in doing things badly.
+ - You can tell if people are following Jesus, because they are fedding the poor, sharing their wealth, and trying to get everyone medical insurance.
+ - They always threw their arms around and hugged me while crying our Yiddish endearments. Yet none of them believed in God. They believed in social justice, good works, Israel, and Bette Midler. I was nearly thirty before I met a religious Jew.
+ - This is our goal as writers, I think; to help others have this sense of – please forgive me – wonder, of seeing things anew, things that can catch us off guard, that break in on our small, bordered worlds.
+ - Talking to the parents of older kids was helpful for me, since parents of kids the same age as yours won’t admit how horrible their children are.
+ - You get your intuition back when you make space for it, when you stop the chattering of the rational mind.
+ - It’s funny where we look for salvation, and where we actually find it.
+ - If you’re lucky you find your way into a spiritual community and you start to find the great teachers of all the ages who said the same thing. There’s only love, you’re made of love.
+ - I am skittish about relationships, as most of the marriages I’ve seen up close have been ruinous for one or both parties.
+ - Looking back on the God my friend believed in, he seems a little erratic, not entirely unlike her father – God as borderline personality.
+ - What fills us is real, sweet, dopey, funny life.
+ - I still encourage anyone who feels at all compelled to write to do so. I just try to warn people who hope to get published that publication is not all it is cracked up to be. But writing is.
+ - The problem with God – or at any rate, one of the top five most annoying things about God – is that he or she rarely answers right away.
+ - I was raised in a family where none of us ever raised a voice, so there was no room to express feelings of rage or even unabashed joy – a little bashed joy, here or there, or being mildly disgruntled.
+ - You just have to keep getting out of your own way so that whatever it is that wants to be written can use you to write it.
+ - I’m not going to change the way people think about me, but I can say you know what? I’m not going to carry that in my backpack.
+ - I am a terrible and lazy Christian. I do not believe that the Bible is the literal word of God. I just skip about a third of it.
+ - Tidiness makes me think of held breath, of suspended animation.
+ - You have to make mistakes to find out who you aren’t. You take the action, and the insight follows: You don’t think your way into becoming yourself.
+ - Frederick Buechner is one of my favorite writers. The Eyes of the Heart is beautiful and wise, full of insight, charm, and tenderness.
+ - I spend most of my time alone, because I so value and thrive in the quiet. Heaven.
+ - The worst part about celebrating another birthday is the shock that you’re only as well as you are.
+ - If I were going to begin practicing the presence of God for the first time today, it would help to begin by admitting the three most terrible truths of our existence: that we are so ruined, and so loved, and in charge of so little.
+ - Novels ought to have hope; at least, American novels ought to have hope. French novels don’t need to. We mostly win wars, they lose them. Of course, they did hide more Jews than many other countries, and this is a form of winning.
+ - I kept asking God for help, and after a while I realized something – that Josh was not enjoying this either. He was just trying to take care of himself, and I made the radical decision to let him off the hook.
+ - I write everything as a wake-up call to myself and others, to anyone who may have gotten tired of hitting the snooze button.
+ - All I ever wanted since I arrived here on earth are the same things I needed as a baby, to go from cold to warm, lonely to held, the vessel to the giver, empty to full.
+ - Evangelical Christians and I can sit down and talk one on one about how much we love Jesus, and yet I’m not carried in Christian bookstores.
+ - The real payoff is the writing itself, that a day when you have gotten your work done is a good day, that total dedication is the point.
+ - My main problem is that over and over again, I try to get all my characters to say stuff that I think is so witty or erudite you know, so that everybody will go.
+ - These are pictures of the people in my family where we look like the most awkward and desperate folk you ever saw, poster children for the human condition.
+ - If you have a body, you are entitled to the full range of feelings. It comes with the package.
+ - Good writing is about telling the truth.
+ - I used to love to untangle chains when I was a child. I had thin, busy fingers, and I never gave up. Perhaps there was a psychiatric component to my concentration but like much of my psychic damage, this worked to everyone’s advantage.
+ - Can you imagine the hopelessness of trying to live a spiritual life when you’re secretly looking up at the skies not for illumination or direction, but to gauge, miserably, the odds of rain?
+ - Your experiences will be yours alone. But truth and best friendship will rarely if ever disappoint you.
+ - I love memoirs. They are probably my favorite literary form, along with biographies. The more confessional, the better. There is so, so, so little truth in the popular culture, and I am starved and grateful for any I can find.
+ - That thing you had to force yourself to do-the actual act of writing-turns out to be the best part.
+ - When you’re conscious and writing from a place of insight and simplicity and real caring about the truth, you have the ability to throw the lights on for your reader.
+ - I naturally prefer the company of people who hold grudges, as long as they are not held against me.
+ - You know how I always say that laughter is carbonated holiness? Well, Robin was the ultimate proof of that, and bubbles are spirit made visible.
+ - Mothering has been the richest experience of my life, but I am still opposed to Mother’s Day. It perpetuates the dangerous idea that all parents are somehow superior to non-parents.
+ - Toddlers can make you feel as if you have violated some archaic law in their personal Koran and you should die, infidel.
+ - There is ecstasy in paying attention.
+ - I never had a particularly strong craving to procreate, except for earlier fantasies of wanting to be Marmee in Little Women.
+ - Pets are the world to me. I think they are the most obvious manifestations of divine love that we are going to see this side of eternity.
+ - The best thing about being an artist, instead of a madman or someone who writes letters to the editor, is that you get to engage in satisfying work. Even if you never publish a word, you have something important to pour yourself into.
+ - I’m drawn to almost any piece of writing with the words ‘divine love’ and ‘impeachment’ in the first sentence. But I know the word ‘divine’ makes many progressive people run screaming for their cute little lives, and so one hesitates to use it.
+ - Get to know your characters as well as you can let there be something at stake, and then let the chips fall where they may.
+ - I understood that the man I was calling for could never ever come back. Because I understood that the man that I was calling for was dead.
+ - I believe in listening to what calls you from your heart and your spirit and if you do it badly, like learning to dance, you do it badly or you’re going to kick yourself when you grow old and you meant to do it.
+ - I devoured books like a person taking vitamins, afraid that otherwise I would remain this gelatinous narcissist, with no possibility of ever becoming thoughtful, of ever being taken seriously.
+ - Frequently, as so many poets and psalmists and songwriters have said, the invisible shift happens through the broken places.
+ - For me, being a writer is not an altered state. It’s very ponderous, and very – it’s like being a shoemaker.
+ - Anne Lamott’s priest friend Tom, how to get through: “Left foot, right foot, left foot, breathe,” he said. “Right foot, left foot, right foot, breathe.” Salon April 25, 2003.
+ - For twenty years I have ached to go back home, when there was nobody there to whom I could return.
+ - Try looking at your mind as a wayward puppy that you are trying to paper train. You don’t drop-kick a puppy into the neighbor’s yard every time it piddles on the floor. You just keep bringing it back to the newspaper.
+ - Honesty is not necessarily interesting. I don’t want to hear about your dreams or your acid trips, probably unless you make them really interesting.
+ - You simply keep putting down one damn word after the other, as you hear them, as they come to you. You can either set brick as a laborer or as an artist.
+ - We’re out there somewhere between the known and the unknown, trying to reel in both for a closer look.
+ - If your wife locks you out of the house, you don’t have a problem with your door.
+ - Dancing almost always turns out to be a good idea.
+ - I sat down in the sand, breathless with shame and failure. God, I thought, some defender of the weak. Some freedom fighter: Joan of Arc in sunscreen.
+ - I was raised by my parents to believe that you had a moral obligation to try and help save the world.
+ - I’m probably just as good a mother as the next repressed, obsessive-compulsive paranoiac.
+ - I find most famous Christians to be full of themselves and of prejudice and self-loathing, masquerading as devout religious belief. I find all fundamentalism to be terrifying and very destructive.
+ - There is nothing you can buy, achieve, own, or rent that can fill up that hunger inside for a sense of fulfillment and wonder.
+ - Mostly what happens in the novels never happened in real life.
+ - Learning to love back is the hardest part of being alive.
+ - Life with most teenagers was like having a low-grade bladder infection. It hurts, but you had to tough it out.
+ - I could become like that dyslexic agnostic in the old joke – the one who lies in bed and tries to figure out if his dog exists.
+ - So how on earth can I bring a child into the world, knowing that such sorrow lies ahead, that it is such a large part of what it means to be human? I’m not sure. That’s my answer: I’m not sure.
+ - There are moments when I am writing when I think that if other people knew how I felt right now, they’d burn me at the stake for feeling so good, so full, so much intense pleasure.
+ - We are a species that needs and wants to understand who we are. Sheep lice do not seem to share this longing, which is one reason why they write so little.
+ - Life does not seem to present itself to me for my convenience, to box itself up nicely so I can write about it with wisdom and a point to make before putting it on a shelf somewhere.
+ - My father really taught me that you really develop the habit of writing and you sit down at the same time every day, you don’t wait for inspiration.
+ - If you asked me, parents were supposed to affect the life of their child in such a way that the child grows up to be responsible, able to participate in life and in community.
+ - It is hard to remember that you are a cherished spiritual being when you’re burping up apple fritters and Cheetos.
+ - A writer paradoxically seeks the truth and tells lies every step of the way.
+ - Anything you say from your heart to God is a prayer.
+ - I don’t think anything is the opposite of love.
+ - I do believe that God is with us even when we’re at our craziest and that this goodness guides, provides, and protects.
+ - I like the desert for short periods of time, from inside a car, with the windows rolled up, and the doors locked. I prefer beach resorts with room service.
+ - Tell the truth as you understand it. If you’re a writer, you have a moral obligation to do this. And it is a revolutionary act – truth is always subversive.
+ - Living on Earth has always been a dangerous way to spend your time.
+ - I’ve always understood that meditation had to be part of – or was part of the natural path and so I’ve always sort of dabbled in it.
+ - You are going to love some of your characters because they are you or some facet of you, and you are going to hate some of your characters for the same reason.
+ - Trying to reason with an addict was like trying to blow out a lightbulb.
+ - Some people may have thought that this book was too personal, too confessional. But what these people think about me is none of my business.
+ - I’d like to learn to meditate with more enthusiasm. I can sit down and get quiet for 20 minutes, but it just has not been a part of my Christianity at all.
+ - I’m one of those religious people who are afraid of everything. I’m instantly worried about everything that could go wrong.
+ - I accidentally forgot to graduate from college.
+ - She felt as if the mosaic she had been assembling out of life’s little shards got dumped to the ground, and there was no way to put it back together.
+ - Astonishing material and revelation appear in our lives all the time. Let it be. Unto us, so much is given. We just have to be open for business.
+ - I’m kind of a gossip hound, but watching the media whip the small fires into giant forest fires so that they can cover the result is infuriating.
+ - You know, we’re often ashamed of asking for so much help because it seems selfish or petty or narcissistic, but I think, if there’s a God – and I believe there is – that God is there to help. That’s what God’s job is.
+ - My friend Terry says that when you need to make a decision, in your work or otherwise, and you don’t know what to do, just do one thing or the other, because the worst that can happen is that you will have made a terrible mistake.
+ - Mothers are supposed to listen and, afterward, to respond with some wisdom and perspective, but these things were not my mother’s strong suit.
+ - If the present is really all we have, then the present lasts forever.
+ - Now she and I sit together in her room and eat chocolate, and I tell her that in a very long time when we both to go heaven, we should try to get chairs next to each other, close to the dessert table.
+ - My father was a writer, so I grew up writing and reading and I was really encouraged by him.
+ - This is who I want to be in the world. This is who I think we are supposed to be, people who help call forth human beings from deep inside hopelessness.
+ - Your unconscious can’t work when you are breathing down its neck.
+ - I’ve known for years that resentments don’t hurt the person we resent, but they do hurt us.
+ - I don’t write about the intimate details of my cousins and aunts and uncles, and my mother and my father because it’s not right to, for me.
+ - If our lives are made up of a string of a thousand moments, at some of those moments we look a lot more spiritually evolved than at others.
+ - I think that is why we stay close to our families, no matter how neurotic the members, how deeply annoying or dull- because when people have seen you at your worst, you don’t have to put on the mask as much.
+ - I became a Christian before I got sober. So I was a drunk, bulimic Christian.
+ - Mattie sat at the table, obsessing, orbiting around herself. She was sick of her worried, hostile mind. It would have killed her long before, she felt, if it hadn’t needed the transportation.
+ - I was raised with no religious training or influence. Except the influence was to be a moral and ethical person at the secular level. And to be a peace marcher, an activist for civil rights, peace and justice.
+ - The clipping said forgiveness meant that God is for giving, and that we are here for giving too, and that to withold love or blessings is to be completely delusional.
+ - I went to church with my grandparents sometimes and I loved it.
+ - These days cry out, as never before, for us to pay attention, so we can move through them and get our joy and pride back.
+ - Alice Adams wrote a sweet note to me after my first novel came out when I was 26, and I was so blown away that I sent her a bunch of stamps by return mail. I have no idea what I was thinking. It was a star-struck impulse.
+ - Needless to say, there was no one around remotely fitting the description of a normal person: I was at a writing conference.
+ - I’ve seen prayers answered. But often, in my experiences, if you get what you pray for, you’ve really shortchanged yourself.
+ - Everything takes me forever. It’s all lurch, flail. I hope that is good news to you writers.
+ - It’s almost like learning to meditate to learn to hear what your kid is actually saying.
+ - The whistle is always waiting to be blown, and in some ways, it gets me to do better work.
+ - My experience as a writer is that you really do write seven and eight pages to find the paragraph you were after all along.
+ - How do you begin? The answer is simple: you decide to.
+ - Writing has so much to give, so much to teach, so many surprises.
+ - I honestly think that in order to be a writer you have to learn to be reverent. If not, why are you writing? Why are you here?
+ - For some of us, good books and beautiful writing are our ultimate solace, even more comforting than exquisite food.
+ - Most marriages are a mess, and the children get caught between two bitter, antagonistic parents. My parents stayed married for 27 unhappy years, till their kids were grown, and this was a catastrophe for us.
+ - Without using the word, everyone started forgiving each other again. Just like that, from the no of all nothingness: you have a big tense mess and out of it comes some joy. It must be magic.
+ - When I was a kid, our family used to watch ‘Bonanza.’ I really liked having a Sunday night TV ritual.
+ - You should not bring more items and hurdles to the obstacle course.
+ - It was not facing what life dealt that made you crazy, but rather trying to set life straight where it was unstraightenable.
+ - My natural tendency is to complicate everything – and then to spray words and ideas onto everything afterwards. I’ve had to develop the habit of keeping things simple.
+ - And that almost everyone was struggling to wake up, to be loved, and not feel so afraid all the time. That’s what the cars, degrees, booze, and drugs were about.
+ - No matter what circumstances, it’s hard to be a parent and maintain a sense of self and identity in the world.
+ - There are a lot of us, some published, some not, who think the literary life is the loveliest one possible, this life of reading and writing and corresponding. We think this life is nearly ideal.
+ - I read the same amount of nonfiction and fiction.
+ - For too long, and despite what people told me, I had fallen for what the culture said about beauty, youth, features, heights, weights, hair textures, upper arms.
+ - I feel incredibly successful. I make a living as a writer and am able to help support a big family, my church, my bleeding-heart causes.
+ - In fact, there’s really only one thing that everything’s made of; it’s energy.
+ - Left to my own devices, my first inclination is to mess in other people’s lives. I secretly believe my whole family, and really the whole world, is my responsibility.
+ - Becoming a writer is about becoming conscious.
+ - It’s so great to be able to make people laugh, because this is so often how we get our selves back.
+ - You must not inflict life on someone who will be resented.
+ - When we did art with the kids, the demons would lie down.
+ - If I have a huge audience, I’d like a bigger audience; maybe slightly a slightly more illustrious audience.
+ - I think Jesus is divine love manifest on Earth, as it comes through the community of Christians.
+ - I don’t know much, but I understand how entirely doomed I am without God.
+ - The truth is that progress is usually small and sneaky.
+ - Presents can make up for some of the disappointments that life doles out, such as it makes almost no sense and is coming to an end more quickly than ever.
+ - I have been somebody who has not written a great deal about the truth of my family’s life.
+ - I do not at all understand the mystery of grace – only that it meets us where we are but does not leave us where it found us.
+ - She lived in fear of ifonic endings.
+ - I’ve written six novels and four pieces of nonfiction, so I don’t really have a genre these days.
+ - Her purse was a weight, ballast; it tethered her to the earth as her mind floated away.
+ - I do not have deep theological understanding or opinion, but I do not read the Bible as the literal word of God.
+ - But it was the singing that pulled me in and split me wide open.
+ - I think drugs are part of the magical possibilities of youth and I wouldn’t be here if I had continued with it.
+ - I like to read away as much of the afternoon as possible, until real life rears its ugly head.
+ - What if we gave fifty percent of our discretionary budget to the world’s poor and then counted on the moral power of that action to protect us?
+ - If there is one door in the castle you have been told not to go through, you must. Otherwise, you’ll just be rearranging furniture in rooms you’ve already been in.
+
+420 quotes

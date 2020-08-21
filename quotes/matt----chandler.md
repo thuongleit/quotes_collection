@@ -1,0 +1,109 @@
+ - It’s OK to not be OK – just don’t stay there. ~~Matt Chandler
+ - God is awesome; he doesn’t need you to be awesome. He wants you to be obedient. ~~Matt Chandler
+ - Love says: I’ve seen the ugly parts of you, and I’m staying. Our culture doesn’t love love; It loves the idea of love. It wants the emotion without the sacrifice. ~~Matt Chandler
+ - Discipline will never bring about love for God, but love for God will bring about discipline. ~~Matt Chandler
+ - God is at work in the mess. That’s the message of the Bible. That’s why the Bible is not pretty. That’s why it’s grimy, because God is working in the mess. He’s working in the tears. ~~Matt Chandler
+ - Find the things that stir your affections for Christ and saturate your life in them. Find the things that rob you of that affection and walk away from them. That’s the Christian life as easy as I can explain it for you. ~~Matt Chandler
+ - Love says: I’ve seen the ugly parts of you, and I’m staying. ~~Matt Chandler
+ - If you’re not confident in the authority of the Scriptures, you will be a slave to what sounds right. ~~Matt Chandler
+ - I’m accepted by God and it has nothing to do with me. ~~Matt Chandler
+ - Without a heart transformed by the grace of Christ, we just continue to manage external and internal darkness. ~~Matt Chandler
+ - Trying to make the Gospel relevant is like trying to make water wet. ~~Matt Chandler
+ - The more you make this world about you, the more miserable you will be. ~~Matt Chandler
+ - No change of job, no increased income, no new home, no new electronic device, or no new spouse is going to make things better inside of you. ~~Matt Chandler
+ - The Christian views trials as a pathway to maturity. ~~Matt Chandler
+ - Stop going to church everywhere and start belonging to church somewhere. ~~Matt Chandler
+ - The heart of our problem is the problem of our hearts. ~~Matt Chandler
+ - God does not regret saving you. There is no sin which you commit which is beyond the cross of Christ. ~~Matt Chandler
+ - My sin in the past: forgiven. My current struggles: covered. My future failures: paid in full all by the marvelous, infinite, matchless grace found in the atoning work of the cross of Jesus Christ. ~~Matt Chandler
+ - If you are in Christ, you are fully and completely forgiven for all your sin-past, present and future. ~~Matt Chandler
+ - The cross of Christ exists because mankind-loved by God, created by God, set in motion by God-betrayed God and prefers his stuff to him. ~~Matt Chandler
+ - Heaven is not a place for those who are afraid of hell; it’s a place for those who love God. ~~Matt Chandler
+ - There’s a strong victim mentality in my generation. I think it’s spiritual laziness. They will agree that God is sovereign over all, but then they will say, “Well, I wish he would sovereignly take away my lust issue.” There’s just not a lot of fortitude, not a lot of fight in them. ~~Matt Chandler
+ - You’re exhausted in the faith because you’re looking at you. The more you look at yourself and the less you look at God, the more you get frustrated at yourself. ~~Matt Chandler
+ - If you want to grow in true wisdom, grow in a knowledge of the God of the Bible. ~~Matt Chandler
+ - The single most loving act we can do is share the good news of Jesus Christ, that God saves sinners. ~~Matt Chandler
+ - Have you read your Bible or has the Bible read you? ~~Matt Chandler
+ - Your approval before God is woven into the life and sacrifice of Jesus Christ on the cross, not what other men and women think about you. ~~Matt Chandler
+ - Why do we try so hard to make Jesus cool?! He doesn’t need a makeover. ~~Matt Chandler
+ - Trying to figure out God is like trying to catch a fish in the Pacific Ocean with an inch of dental floss. ~~Matt Chandler
+ - Thanksgiving is worry’s kryptonite. ~~Matt Chandler
+ - No one can out-sin the cross of Christ. ~~Matt Chandler
+ - Every one of us loves Pauline theology, but few of us want Pauline pain. ~~Matt Chandler
+ - When we see the bankruptcy, slavery, and vanity of everything else, we can finally say, ‘To die is gain.’ ~~Matt Chandler
+ - Truly, God’s plan of redemption is about more than me and you and our neighbor down the street. It’s about men and women from every tribe, tongue, and nation on earth becoming a part of His covenant community. ~~Matt Chandler
+ - Because a God who is ultimately most focused on his own glory will be about the business of restoring us, who are all broken images of him. His glory demands it. So we should be thankful for a self-sufficient God whose self-regard is glorious. ~~Matt Chandler
+ - When God saves you, he doesn’t do it because you gave him permission. He did it because he’s God. ~~Matt Chandler
+ - If you’re a church person and not a Jesus person, my heart hurts for you. It’s like being engaged and never getting married. It’s miserable. ~~Matt Chandler
+ - We’ve been given the covenant community because we need each other, and together we’ll be more mature, experience more life, and know more joy than we ever would apart from one another. ~~Matt Chandler
+ - The general confusion is that our moral behavior is what justifies us before God. Most of us would never say that with our mouths but we feel that lie in our heart and believe it in our minds. You can be morally upright and not be a worshipper of Christ at all. ~~Matt Chandler
+ - In too many marriage conflicts, we work too hard at winning the argument and too little at winning the heart. ~~Matt Chandler
+ - The reconciling gospel is always at the forefront of the church’s social action, because a full belly is not better than a reconciled soul. ~~Matt Chandler
+ - Everybody knows something’s broken in the world. But illogically, foolishly, we are looking for fixes from broken people with broken ideas in broken places. ~~Matt Chandler
+ - Until Christ is our treasure, any other motivation we have to suffer for him is a fool’s errand. ~~Matt Chandler
+ - Jesus doesn’t avoid those who mess up. Jesus runs to those who mess up. ~~Matt Chandler
+ - Intellectual ascent to correct doctrine is not salvation. ~~Matt Chandler
+ - Apart from worshiping God, everything becomes superficial. But when you understand the driving force behind everything, all of a sudden there’s an eternal amount of joy at our disposal, because everything we do is enlightened and enlivened by the endless glory of the eternal God. ~~Matt Chandler
+ - Comfort is the god of our generation, so suffering is seen as a problem to be solved, and not a providence from God. ~~Matt Chandler
+ - In essence, we are reconciled to reconcile. ~~Matt Chandler
+ - Faith doesn’t mean an absence of fear. It means facing fear and trusting that God’s goodness is greater. ~~Matt Chandler
+ - There is no error, no addiction with more power than the Cross of Christ. ~~Matt Chandler
+ - The commands of God are given, not to rob me of joy, but lead me into the fullness of joy. ~~Matt Chandler
+ - While the good news of the gospel may not appeal to everyone, the bad news of the gospel still applies to everyone. ~~Matt Chandler
+ - The great mercy of God was that while I was purposefully preparing God’s people, He was purposefully preparing me. ~~Matt Chandler
+ - We carry an insidious prosperity gospel around in our dark, little, entitled hearts. ~~Matt Chandler
+ - In 10,000 years you will not regret anything you didn’t have or do in this life. ~~Matt Chandler
+ - When we join God in his plan for his global glory, we get to be a part of the cosmic take-your-kid-t o-work day. ~~Matt Chandler
+ - The glory of God is that you can’t outs in His grace. ~~Matt Chandler
+ - Godliness is sexy in a way that physical attraction can never be. ~~Matt Chandler
+ - Truth is to be used as a scalpel, not a club. ~~Matt Chandler
+ - The work of God in the cross of Christ strikes us as awe-inspiring only after we have first been awed by the glory of God. ~~Matt Chandler
+ - God’s response to the belittlement of his name, from the beginning of time, has been the sacrifice of Jesus Christ on a Roman cross. ~~Matt Chandler
+ - Many of the things that stifle growth are morally neutral. They’re not bad things. Facebook is not bad. Television and movies are not bad. I enjoy TV, but it doesn’t take long for me to begin to find humorous on TV what the Lord finds heartbreaking. ~~Matt Chandler
+ - I preach hard against that idea and plead with people to make war against sin. I tell them it’s not going to be easy. Some people are meant to wrestle with their sin a long time before God brings them to freedom, but let’s wrestle. Let’s fight. Let’s do something besides just complain. ~~Matt Chandler
+ - I don’t believe in the end that God gave me cancer, but He certainly could have stopped it and didn’t. ~~Matt Chandler
+ - Grace does not make sin safe. But grace does make sinners safe. ~~Matt Chandler
+ - Grace-driven effort wants to get to the bottom of behavior, not just manage behavior. If you’re simply managing behavior but not removing the roots of that behavior, then the weeds simply sprout up in another place. ~~Matt Chandler
+ - The depth, width, ferocity, and immensity of God is seen most spectacularly in the gospel of Jesus Christ. ~~Matt Chandler
+ - The drug of choice in the modern age is levity. We want everything to be light and bubbly. We just want to feel good. ~~Matt Chandler
+ - If all you got is “I don’t want to be that” then sell insurance. ~~Matt Chandler
+ - There isn’t a violent soul on the planet that God might not save and transform for himself. ~~Matt Chandler
+ - The great message that we call the gospel begins, then, not with us, or our need, or even the meeting of that need, but with the writer of the news and the sender of its heralds: God himself. ~~Matt Chandler
+ - The best of our best, without Jesus, looks like a pile of crap compared to Him. ~~Matt Chandler
+ - If someone doesn’t have much use for praising Him now, it’s foolish to think they’re ready for heaven. ~~Matt Chandler
+ - Engaging the city around us and ministering to its needs reveal to us the remaining bastions of sin in our lives, the areas we refuse to surrender to God. ~~Matt Chandler
+ - I learned very early that people need to have a good grasp of God’s goodness and God’s sovereignty. ~~Matt Chandler
+ - I was used to being the smartest guy in the room, and then God dropped me in a place that was well beyond me. It was painfully awesome. ~~Matt Chandler
+ - Don’t create theology about God so that you can feel better about Him. ~~Matt Chandler
+ - God is more interested in declaring than explaining. ~~Matt Chandler
+ - Where your delight is, the rest of your world is going to follow. ~~Matt Chandler
+ - Our senses are never more awakened to our need for His love than when our need is most exposed. ~~Matt Chandler
+ - The Imperfect Pastor by Zack Eswine might be the most helpful and profound book I’ve read in years. If you’re in pastoral ministry grab a copy. ~~Matt Chandler
+ - The idolatry the exists in a man’s heart always wants to lead him away from his Savior and back to self-reliance no matter how pitiful that self-reliance is or how many times it has betrayed him. ~~Matt Chandler
+ - Could it not be, that God loves me too deeply, by having people challenge me so that I know I’m not perfect. ~~Matt Chandler
+ - Men of God are those who walk in the fear of the Lord. ~~Matt Chandler
+ - The spiritual power in the gospel is denied when we augment or adjusting gospel into no gospel at all. When we doubt the message alone is the power of God for salvation we start adding or subtracting, trusting our own powers of persuasion or presentation. ~~Matt Chandler
+ - I think people can get a little weirded out by pain, suffering, and death. They don’t know what to do so they end up saying things that are hurtful to people who have experienced loss. ~~Matt Chandler
+ - Worship is the way of life for those entranced by and passionate for the glory of God. ~~Matt Chandler
+ - Progress stems from education, culture, freedom and equality. Without these fundamentals, mankind will flounder. ~~Matt Chandler
+ - Preach the Gospel with your life. ~~Matt Chandler
+ - We spend so much time trying to put send to death that we don’t spend enough time striving to know God deeply, trying to gaze upon the wonder of Jesus Christ and have that transform our affections to the point where our love and hope are steadfastly on Christ. ~~Matt Chandler
+ - If the gospel of Jesus Christ is not at the center of a wedding ceremony, it is likely not going to be at the center of the marriage. This would be a grave mistake, however, as marriage itself is designed to be a great reflector of that gospel. ~~Matt Chandler
+ - Church of Jesus, let us please be men and women who understand the difference between moralism and the gospel of Jesus Christ. Let’s be careful to preach the dos and don’ts of Scripture in the shadow of the cross’s ‘Done!’ ~~Matt Chandler
+ - I believe the sovereign God of the universe justifies us freely, and then we are called to run with him in sanctification. ~~Matt Chandler
+ - While we lament the apparent injustice of pain and suffering, how often do we forget that every good thing in a fallen world is wholly a gift of God’s mercy and grace. ~~Matt Chandler
+ - Every missionary I know is extraordinarily ordinary. Everything they do, they do by the grace of God. ~~Matt Chandler
+ - I’m wise to be a good steward, but I’ll never be my own rescuer. The worth thing you can do with fear and anxiety is to pretend you’re too strong to have them. The best thing you can do is just to let Him be in charge of them. ~~Matt Chandler
+ - What stirs up in my heart is, ‘Oh would we see an outpouring of the Holy Spirit.’ ~~Matt Chandler
+ - If you’re a beast in the pulpit but a coward in your neighborhood, something has gone wrong. ~~Matt Chandler
+ - We are supernaturalists first, not naturalists. The only reason we feel compelled to accommodate science is that science says we ought to. But it is science that should accommodate revelation. Revelation has been around much longer. ~~Matt Chandler
+ - If you add to or subtract from the cross, even if it is to factor in biblically mandated religious practices like prayer and evangelism, you rob God of His glory and Christ of His sufficiency. ~~Matt Chandler
+ - God doesn’t NEED raw material. He MAKES material. ~~Matt Chandler
+ - If we could understand how impossible our situation is, we would grow in reverence for the kingship of Christ. ~~Matt Chandler
+ - The cross of Christ is the response of God to men for belittling His name. ~~Matt Chandler
+ - The context of the gospel message is not our benefit or our salvation; the context of the gospel is the supremacy of Christ and the glory of God. ~~Matt Chandler
+ - I have always deeply desired to be an honest man who said it when I struggled, stumbled and worried. I longed to be a man with real friends – friends who knew me at my worst and loved me. ~~Matt Chandler
+ - We can never grasp the extent of our depravity until we recognize the excellencies of our created dignity. ~~Matt Chandler
+ - You and I are stymied in our own creativity. We can only create as sub-creators, and even then our best work is only sub-creation. ~~Matt Chandler
+
+107 quotes

@@ -1,0 +1,37 @@
+ - I also live in the present, due to the constraints of the space-time continuum.
+ - Humanity is good. Some people are terrible and broken, but humanity is good. I believe that.
+ - Think of people as people, not problems that need to be solved.
+ - Being silly is still allowed, not excluded by adulthood. What’s excluded by adulthood is thoughtlessness, so be thoughtful and silly.
+ - Read books. Care about things. Get excited. Try not to be too down on youself. Enjoy the ever present game of knowing.
+ - Some days, it seems to me like the purpose of life is to convert energy into beauty.
+ - We are the superhero, none of us individually, but all of us together.
+ - You sense and feel something different than I do, even if we lick the same kitten.
+ - Stop listening to people telling us we need to hate each other.
+ - So the president is like, “Well, once upon a time it was Congress’s job to decide whether or not we attacked countries, so let’s let them decide.” Which is funny, because, as we all know, if Congress were on fire, Congress could not pass the “Pour Water on Congress Act”.
+ - And when I think about that sunrise that I woke up to that morning, I just feel like I got as close to nowhere as I could get, and found out that it was more of a place than anywhere I’ve been in a long time.
+ - We are all differently broken, semi-functional, rusted out love machines.
+ - I need Harry Potter like a grindylow needs water.
+ - You are always a little bit wrong.
+ - Making an un-perfect decision is far, far better than not making a decision, which is the worst possible decision you could make.
+ - But the truth of the matter is, to live a good life, as a good person, it doesn’t matter how you got there. It just matters that you do.
+ - You may be wondering why there are words on my hands. That’s because I’m a dork. And I’m gonna choose not to explain myself.
+ - It’s almost as if our society values opinion over knowledge.
+ - We often just accept the things that we like, and complain a lot about the things that we don’t like. But if we could, like, intensely dwell on the really great things in life the way we intensely dwell on the negative things in life; I think that would be fantastic.
+ - Hoaxes are nothing new. News media isn’t hard to fool. It’s fun to fool and people like to mess with people. It all goes to show you that we’re not all that hard to fool. I think we should just accept that and trust people anyway.
+ - I forgot how to throw a boomerang, but then it came back to me.
+ - If you were a crayon, what color would you most like to make out with?
+ - I have very little patience for teachers who teach their students things that are wrong.
+ - Bravery is not strength in the face of a far lesser foe. Bravery is the exact opposite of that.
+ - I honestly don’t know how you live without having a cat inside your house. It’s like having a little living piece of art that is also very warm and soft.
+ - What does it mean that social structures among young people are so often predicated upon trying really, really hard to appear to not-be-trying?
+ - So you go on and on, with this intellectual fly down, your underwear exposed, and toilette paper hanging out the back of your pants.
+ - It seems no matter what I read I think this is not harry potter.
+ - I think it’s pretty ridiculous to sit back and think that we’ve changed the horse so much, without realizing that they have changed us an awful lot too.
+ - When I think of the value that i appreciate and the value that I create, what matters to me most is how much I love people, and how much the people that I love love me.
+ - Why is it called Piggie-back riding? I’m not a piggie!
+ - Legacy media accuses young people of being apathetic while actively attempting to remove them from the discussion.
+ - John Green is a very handsome, intelligent, and wise man. He smells really weird though.
+ - I’m also pretty impressive when I’m shoving the neck of a lute into someone’s chest cavity.
+ - Welcome to the degeneration of my mind.
+
+35 quotes

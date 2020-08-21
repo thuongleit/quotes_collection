@@ -1,0 +1,73 @@
+ - This is your life. Now go make it the one you’ve always wanted.
+ - Humanity seized to exist when Israel was established.
+ - Blame is for God and small children.
+ - I think ‘retirement’ goes hand in hand with people who make a living by having a ‘job.’ I don’t think we-the .00001 percent of the population who are so fortunate to love passionately what we do-consider it a ’job.
+ - We’re all a little nit autistic.
+ - There is something unnatural about marriage. These two people are not going to be the same people in a few years. The trick is to live your own life while sharing the same space.
+ - Depressed, anxious, sad, frightened? Yes. But I’ve never been bored.
+ - To have a successful marriage, a man must, on a fundamental level be scared shitless of his wife.
+ - There’s a rebirth that goes on with us continuously as human beings. I don’t understand, personally, how you can be bored. I can understand how you can be depressed, but I just don’t understand boredom.
+ - I did some writing and bought a book, and have been working on that as a film to act and direct in.
+ - What makes divorce happen is that you can’t be in the same space any more, for whatever reason – but the love stays. And that’s the killer. That’s where the vehemence and anger and rage comes from.
+ - Myth is supposed to bring us together, but fantasy alienates us.
+ - I’m sixty-eight, I cry every chance I can.
+ - Somehow I think it was declared very early on that I was the – if not the black sheep of the family, not a very good student.
+ - Many actors want to play Hamlet and Macbeth. Ever since I became an actor, from the very beginning I just wanted to play a Shetland pony. I cannot explain why.
+ - 37 seconds, well used, is a lifetime.
+ - I got into acting so that I could meet girls. Pretty girls came later. First, I wanted to start off with someone with two legs, who’d smile at me and look soft.
+ - There’s a new medical crisis. Doctors are reporting that many men are having allergic reactions to latex condoms. They say they cause severe swelling. So what’s the problem?
+ - That’s what we’re all looking for, the place where the work leads us.
+ - Well, 45-odd years of doing it, so we all pile up the things we like about directors and the things we don’t like about directors. And sometimes they’re very similar.
+ - But I would reinvent myself if I could. As a sexy leading man! We all would like that, but I don’t know how to.
+ - Acting didn’t solve much! If it did, I would have ended up much less crazy than I am today, but I’m not. At least for me, acting is a relief – a relief to be able to admit certain things about myself and disguise in my work, in my characters.
+ - I wanted to find my limitations so I decided to do Shylock. And if I fail? I’ve never been afraid of that. I have other fears – doing bad work knowingly is the worst fear.
+ - If there is no direct threat why are we invading?
+ - I decided to become an actor because I was failing in school and I needed the credits.
+ - My wife always says that I will be stuck with this forever: I am the difficult one. With Jack Nicholson they always said it was drugs. Warren Beatty is supposed to have screwed everything that jumped off the curve. I’ll tell you, in reality a few of us had as many girls as Warren.
+ - So when I told my parents I wanted to go into acting because I was flunking out of my first year of junior college, they were relieved that I had picked something other than joining the army. But I can’t imagine how they had high hopes for me.
+ - I think right now television is the best that it’s ever been, and I think that it’s the worst that film has ever been.
+ - I love working, I’d be dead if I hadn’t found myself as an actor I didn’t have to be successful.
+ - I lived below the official American poverty line until I was 31.
+ - I believe – though I may be wrong, because I’m no expert – that this war is about what most wars are about: hegemony, money, power and oil.
+ - People like Johnny Depp are an exception. He is the current model of what an actor should be. His body of work speaks volumes. He was so under-rated for so long, but he will have longevity – and it is such a gratifying thrill to see he is finally getting the recognition he deserves.
+ - Well first of all, it’s hard to shoot a movie and break for a long time and then come back and do, in a sense, one of the biggest scenes that each character had.
+ - Life stinks, but that doesn’t mean you don’t enjoy it.
+ - I did a movie called Marathon Man and it was one of my best memories.
+ - I stopped working a few years ago because I just lost a spark that I’d had before. I thought I’d just try writing, and maybe start directing, but I did it very quietly.
+ - The truth is, I’ve made about 30 movies in 30 years, and I’ve been criticized for 30 years for not making more movies.
+ - I mean, I don’t think I’m alone when I look at the homeless person or the bum or the psychotic or the drunk or the drug addict or the criminal and see their baby pictures in my mind’s eye. You don’t think they were cute like every other baby?
+ - You spend so much of your life basing yourself on what you think other people think of you. Then you realise that maybe one of the purposes of life is not to care.
+ - Money is another pressure. I’m not complaining, I’m just saying that there’s a certain luxury in having no money. I spent ten years in New York not having it, not worrying about it. Suddenly you have it, then you worry, where is it going? Am I doing the right thing with it?
+ - The two basic items necessary to sustain life are sunshine and coconut milk.
+ - I want to thank my parents for not practicing birth control.
+ - If you’re waiting for the job, you’re dead.
+ - Now, I’m simply working with people I want to work with. I just want to have good working experiences and let the dice fall where they may.
+ - There’s nothing that I love more than predawn. I’m with the dogs, I make coffee, and there’s no one up.
+ - Euthanasia is legal in Hollywood. They just kill the film if it doesn’t succeed immediately.
+ - I envy people who can just look at a sunset. I wonder how you can shoot it. There is nothing more grotesque to me than a vacation.
+ - The plight of the actor, even if he’s a star, is the plight of the women’s movement. They’re saying the same thing to us: get into bed, give me a good time, then give me something to eat, go get the laundry, be a good girl.
+ - God knows I’ve done enough crap in my life to grow a few flowers.
+ - One thing about being successful is that I stopped being afraid of dying. Once you’re a star you’re dead already. You’re embalmed.
+ - It’s true what they say about failure. You don’t learn from success.
+ - Next to that kid, we all look like onions.
+ - Look at the studio filled with glamorous merchandise. Fabulous and exciting bonus prizes. Thousands of dollars in cash. Over $150,000 just waiting to be won as we present our big bonanza of cash on Wheel Of Fortune.
+ - Poverty is not dated. Homeless people have looked the same since the thirteenth century. Go back to the times of Tolstoy and Dostoyevsky. Look at photographs. It’s amazing. The face on a homeless person is timeless.
+ - It’s very painful for us to feel we deserve a life. That’s the toughest thing. That we deserve to have a life. That can take a lifetime.
+ - I feel cheated never being able to know what it’s like to get pregnant, carry a child and breast feed.
+ - Peter Pan, prepare to meet thy doom.
+ - I hope to God I don’t win an Oscar tomorrow night. It would really depress me if I did. I really don’t deserve it. It wasn’t that important a part anyhow.
+ - I don’t believe in hell. I believe in unemployment, but not hell.
+ - So, they had this 40-odd year friendship with each other and with Mr Harwood. So, when I came on it Albert, Tom and Maggie were in the cast. But then Albert wasn’t up for it, so he had to withdraw.
+ - I love acting, and I’m not going to determine what I do based on what I fear other people might think. I do what I want to do.
+ - The better you are as a parent, the richer the nest you’ve built, the more difficult it is for your kids to leave. So they have to invent things to dislike about you. And they’re brilliant at it.
+ - I don’t like the fact that I have to get older so fast, but I like the fact that I’m aging so well.
+ - If you have this enormous talent, it’s got you by the balls, it’s a demon. You can’t be a family man and a husband and a caring person and be that animal. Dickens wasn’t that nice a guy.
+ - Lightbulbs die, my sweet. I will depart.
+ - One of the things you can do as an actor, is compensate for the things you can’t do in life.
+ - I like to mimic my grandkids. I’m trying to understand the intensity of fixation on a leaf. Kids don’t need anything else in their life.
+ - A good review from the critics is just another stay of execution.
+ - We need to band together as a unit every day, especially to conquer the strength of the AIDS virus.
+ - I decided a long time ago but sometimes it takes you 40 years to get around to doing something – and that’s the truthful answer.
+ - We all believe what we read. I read how Tom Cruise and I were two big egos holding up shooting. I know that isn’t true – but if I wasn’t making a movie with him and I just picked up the paper, I’d believe it. That’s interesting, isn’t it?
+
+71 quotes

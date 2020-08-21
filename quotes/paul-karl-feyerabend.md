@@ -1,0 +1,39 @@
+ - The only principle that does not inhibit progress is: anything goes.
+ - The only absolute truth is that there are no absolute truths.
+ - The separation of state and church must be complemented by the separation of state and science, that most recent, most aggressive, and most dogmatic religious institution.
+ - My intention is not to replace one set of general rules by another such set: my intention is, rather, to convince the reader that all methodologies, even the most obvious ones, have their limits.
+ - All religions are good ‘in principle’ – but unfortunately this abstract Good has only rarely prevented their practitioners from behaving like bastards.
+ - The sciences of today are business enterprises run on business principles. Research in large institutes is not guided by Truth and Reason but by the most rewarding fashion, and the great minds of today increasingly turn to where the money is – which means military matters.
+ - Every profession has an ideology and a drive for power that goes far beyond its achievements and it is the task of democracy to keep this ideology and this drive under control. Science is here no different from other institutions.
+ - Without a constant misuse of language there cannot be any discovery, any progress.
+ - Ultimate Reality, if such an entity can be postulated, is ineffable.
+ - Science is an essentially anarchic enterprise...
+ - Not only are facts and theories in constant disharmony, they are never as neatly separated as everyone makes them out to be.
+ - Yes, the academic world is screwed up, and there is nothing you can do about it. But don’t worry about that. Just do what you want. If you know what you want to do and advocate for it, no one will put any energy into stopping you.
+ - Science is essentially an anarchic enterprise: theoretical anarchism is more humanitarian and more likely to encourage progress than its law-and-order alternatives.
+ - Mathematical Reasoning is not only exact; it has its own criteria of reality.
+ - The best education consists in immunizing people against systematic attempts at education.
+ - It is often assumed that science starts from facts and eschews counter-factual theories. Nothing could be further from the truth. What is one of the basic assumptions of the scientific world-view? That the variety of events that surrounds us is held together by a deeper unity.
+ - The church at the time was much more faithful to reason than Galileo himself, and also took into consideration the ethical and social consequences of Galileo’s doctrine. Its verdict against Galileo was rational and just.
+ - No single theory ever agrees with all the facts in its domain.
+ - Rational discourse is only one way of presenting and examining an issue and by no means the best. Our new intellectuals are not aware of its limitations and of the nature of the things outside.
+ - Those who violate the rules of a language do not enter new territory; they leave the domain of meaningful discourse. Even facts in these circumstances dissolve, because they are shaped by the language and subjected to its limitations.
+ - Science is neither a single tradition, nor the best tradition there is, except for people who have become accustomed to its presence, its benefits and its disadvantages. In a democracy it should be separated from the state just as churches are now separated from the state.
+ - Facts are constituted by older ideologies, and a clash between facts and theories may be proof of progress.
+ - Science is only ‘one’ of the many instruments people invented to cope with their surroundings. It is not the only one, it is not infallible and it has become too powerful, too pushy and too dangerous to be left on its own.
+ - When Western civilization invaded the Near and Far East and what is now called the Third World it imposed its own ideas of a proper environment and a rewarding life. Doing this, it disrupted the delicate patterns of adaptation and created problems that had not existed before.
+ - So far Unitarian realism claiming to possess positive knowledge about Ultimate Reality has succeeded only by excluding large areas of phenomena or by declaring, without proof, that they could be reduced to basic theory, which, in this connection, means elementary particle physics.
+ - Taking experimental results and observations for granted and putting the burden of proof on the theory means taking the observational ideology for granted without having ever examined it.
+ - Humane science must be adapted to the requirements of a balanced and rewarding life.
+ - In a war a totalitarian state has a free hand.
+ - The attitude of the Church was not as dogmatic as is often assumed. Interpretations of Bible passages had been revised in the light of scientific research before. Everyone regarded the earth as spherical and as freely floating in space though the Bible tells a different story.
+ - I do not see why I should be polite to tyrants, who slobber of humanitarianism and think only of their own petty interests.
+ - Arguments hardly affect the faithful- their beliefs have an entirely different foundation.
+ - The validity of usefulness, adequacy of popular standards can be tested only by research that violates them.
+ - One knows quite well that harmony can be a harmony of appearances.
+ - Copernicanism and other essential ingredients of modern science survived only because reason was frequently overruled in their past.
+ - All religion may be centered around a generally good idea, however, this has not stopped its adherents from acting like bastards.
+ - A Universal Good should reflect the reality of the individual benefits that are collected under its name, not the other way around.
+ - Early Chinese thinkers had taken variety at face value. They had favored diversification and collected anomalies instead of trying to explain them away.
+
+37 quotes

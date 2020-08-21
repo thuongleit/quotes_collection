@@ -1,0 +1,31 @@
+ - Chess, like love, like music, has the power to make men happy.
+ - Before the endgame, the Gods have placed the middle game.
+ - All lines of play which lead to the imprisonment of the bishop are on principle to be condemned.
+ - I had a toothache during the first game. In the second game I had a headache. In the third game it was an attack of rheumatism. In the fourth game, I wasn’t feeling well. And in the fifth game? Well, must one have to win every game?
+ - He who fears an isolated Queen’s Pawn should give up Chess.
+ - The future belongs to he who has the bishops.
+ - As Rousseau could not compose without his cat beside him, so I cannot play chess without my king’s bishop. In its absense the game to me is lifeless and void. The vitalizing factor is missing, and I can devise no plan of attack.
+ - Intellectual activity is perhaps the greatest pleasure of life; chess is one of the forms of intellectual activity.
+ - Mistrust is the most necessary characteristic of the Chess player.
+ - When you don’t know what to play, wait for an idea to come into your opponent’s mind. You may be sure that idea will be wrong.
+ - One doesn’t have to play well, it’s enough to play better than your opponent.
+ - Chess is a terrible game. If you have no center, your opponent has a freer position. If you do have a center, then you really have something to worry about!
+ - Every move creates a weakness.
+ - I have always a slight feeling of pity for the man who has no knowledge of chess, just as I would pity the man who has remained ignorant of love. Chess, like love, like music, has the power to make man happy.
+ - First-class players lose to second-class players because second-class players sometimes play a first-class game.
+ - When you see a good move, sit on your hands and see if you can find a better one.
+ - In a rook and pawn ending, the rook must be used aggressively. It must either attack enemy pawns, or give active support to the advance of one of its own pawns to the queening square.
+ - Weak points or holes in the opponent’s position must be occupied by pieces not Pawns.
+ - One of these modest little moves may be more embarrassing to your opponent than the biggest threat.
+ - When you don’t know what to do, wait for your opponent to get an idea; it is sure to be bad.
+ - I have always had a slight feeling of pity for man who has no knowledge of chess.
+ - A thorough understanding of the typical mating continuations makes the most complicated sacrificial combinations leading up to them not only not difficult, but almost a matter of course.
+ - Many have become chess masters – no one has become the master of chess.
+ - White lost because he failed to remember the right continuation and had to think up the moves himself.
+ - White has no positional equivalent for the centralized pawn.
+ - It cannot be too greatly emphasized that the most important role in pawn endings is played by the king.
+ - If the defender is forced to give up the center, then every possible attack follows almost of itself.
+ - Here are some of the questions and answers to an examination paper in chess that was given some time ago.
+ - Up to this point White has been following well-known analysis. But now he makes a fatal error: he begins to use his own head.
+
+29 quotes

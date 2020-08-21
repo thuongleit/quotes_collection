@@ -1,0 +1,24 @@
+ - It’s hard to live your life in color, and tell the truth in black and white.
+ - I would like to be remembered as a – somebody who could rock your soul or make your cry with a song. And somebody who’s kind, who loved to laugh, and loved his God.
+ - I got tired of playing other people’s songs.
+ - As they say in the bible, that you’re supposed to rejoice when people die and mourn when they’re born, because it’s one of the most painful acts you go through in life, is being born, and dying.
+ - I said, other people can write songs, let’s see if I can. So the first 400 or 500 wound up on the floor somewhere. Then I wrote one called Melissa.
+ - I got Jimmy Hall from Wet Willie and he also plays now with Hank Williams Jr.
+ - It seems like only the real good stuff comes to mind. I don’t think of all the tragedies...
+ - I have been going to the gym instead of the bar, trying to get back down to my fighting weight.
+ - Rock ’n roll was born in the South. It’s like saying rock-rock.
+ - When I got out of high school, I thought, I’ll take a year or two off and play the clubs, get this out of my system, and then go to med school.
+ - There’s only one cook in the kitchen, only one chef. I let the soloists do their thing – you’ve gotta let a man do a solo the way he wants – but as far as picking the tunes and working on the arrangements, I take full responsibility for it.
+ - I’ve come to the conclusion that I’m not supposed to be married.
+ - Gotta take my puppy on the road with me, Killer.
+ - In my line of business, there’s no better feeling than having a real nice work that you’re really satisfied with.
+ - At the Muddy Waters thing, I played the first song by myself on an acoustic guitar. I thought that was great that y’all did that tribute to Muddy Waters. I had a real good time.
+ - Yeah, like, when I look back on my life, I just remember back what happened in ’74, or something. It seems like only the real good stuff comes to mind. I don’t think of all the tragedies and all the funerals. That just doesn’t come to mind at all. I guess I’m really blessed that way.
+ - Clapton asked my brother to play on his record. I thought that was the most wonderful thing in the world.
+ - The Beatles had just come out, and everybody had a band. It was incredible competition out there.
+ - You got to be pretty thin to be in the movies, or it helps. I would actually love to do it.
+ - I left home the day after I graduated from high school because I knew we weren’t going to make any dough to pay the rent in music.
+ - You couldnt get a job playing in a club unless you played so much Top 40 and so many Beatles songs. I just went into a sort of revolt.
+ - There are as many ways to write songs as there are songs.
+
+22 quotes

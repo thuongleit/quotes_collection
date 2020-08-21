@@ -1,0 +1,77 @@
+ - Health is the most critical thing in our life. With your health anything is possible, without it you can’t do anything.
+ - What a pathetic play from a pathetic human being.
+ - Winning is about having the whole team on the same page.
+ - When I think of Boris Diaw, I think of Beethoven in the age of the romantics.
+ - When everybody thinks alike, nobody thinks.
+ - Health is a function of three things. 1. Luck 2. Genetics and 3. Choices in your lifestyle.
+ - Kenyon Martin is the 2nd best player in the Eastern Conference.
+ - When you intercept the ball with your stomach, that is great defense.
+ - I’m mainstream. Always have been.
+ - I could smell colors, I could feel sounds.
+ - There are no guarantees in life. The simple twists of fate and the breaks of the game are the two maxims that define so much of the success and failure in life.
+ - I believe in science and evolution. I’ve been to the Grand Canyon.
+ - A lot of people understand what not saying anything means, so, in effect, not saying anything is really saying a lot.
+ - In basketball, you can be the greatest individual player in the world and still lose every game, because a team will always beat an individual.
+ - Anytime you bring Michael Olowokandi on to your team, disaster is soon to follow.
+ - Love is the single most powerful and important word and notion in culture and language. Until the power of love supersedes the love of power we have no chance of ever being successful.
+ - But you have to understand, my beard is so nasty. I mean, it’s the only beard in the history of Western civilization that makes Bob Dylan’s beard look good.
+ - My bike is my gym, my wheelchair, and my church all in one.
+ - Greg Ostertag is one of the top centers on this planet!
+ - You look at Vladimir Radmanovic, this guy is cut from stone. As if Michelangelo was reading and a lightening bolt flashed before him.
+ - I couldn’t imagine not playing basketball. To me, basketball is what life is all about.
+ - Never rank, rate, or compare coaches, children, concerts, or championships or congratulations. Just enjoy them all.
+ - I had the only beard in the Western Hemisphere that made Bob Dylan’s look good.
+ - Never forget – happiness ends when selfishness begins.
+ - The offensive presence of Greg Ostertag is quite overwhelming sometimes!
+ - Kazemi has to understand that nobody is going to tell him he has to go back to Iran if he misses a shot.
+ - I lived to play basketball. Growing up as a kid, Bill Russell and the Boston Celtics were my favorite team. The way they played, the teamwork, the sacrifice, the commitment, the joy, the camaraderie, the relationship with the fans.
+ - John Stockton is one of the true marvels, not just of basketball, or in America, but in the history of Western Civilization!
+ - Why is Scottie Pippen taking a charge? Taking a charge is for people with no game!
+ - Life is about growth. People are not perfect when they’re 21 years old.
+ - You don’t win championships by just being normal, by just being average.
+ - When you are in unrelenting, excruciating and debilitating pain that never goes away for years on end, your life is over.
+ - That’s what makes it so fun to be on a team. You’re sitting at your house, thinking up this wild, crazy stuff as to how it’s going to go, and the other guys are sitting at their houses doing the same thing.
+ - It’s the most pleasurable experience in the world! When you’re on a great team and you get hot, your teammates milk you dry – they wear you out and there’s nothing like being on a great team.
+ - Patrick Ewing used to be much better in every aspect of the game.
+ - If Anthony Johnson ever gets a jumper, who’s going to stop him?
+ - Well, we’ve made some changes on this tour. We’re no longer sleeping in the parking lots and swimming in the fountains. We’ve been staying in hotels most of the way, though I will say some hotels have declined to take us because we’re just having too much fun.
+ - Tracy McGrady is doing things we’ve never seen from anybody – from any planet!
+ - No one missed more basketball in the history of NBA than I did. I played 14 seasons, on the roster for 14 years, and I missed more than nine-and-a-half full seasons.
+ - Tim Duncan’s foot issue, I think, is a major factor in this year’s playoffs. That’s not the kind of injury that gets better over time playing NBA basketball.
+ - The only man who can stop Cliff Robinson is Cliff Robinson. The man is unstoppable even at 38.
+ - No matter how good you get, there’s always something further out there.
+ - Success at the highest level comes down to one question: Can you decide that your happiness can come from someone else’s success?
+ - I learned a long time ago that minor surgery is when they do operation on someone else, not you.
+ - My bike is my gym, my wheelchair and my church all in one. I’d like to ride my bike all day long but I’ve got this thing called a job that keeps getting in the way.
+ - The Grateful Dead, they’re my best friends. Their message of hope, peace, love, teamwork, creativity, imagination, celebration, the dance, the vision, the purpose, the passion all of the things I believe in makes me the luckiest Deadhead in the world.
+ - I don’t sleep much. I’m on the go. My mind is racing. My wife says my mind is like the rolling dials on a slot machine. So, yeah, I think about everything.
+ - Steve Nash is the most unathletic player in the league.
+ - I mean, I’m 6-foot-11, I’ve got red hair, freckles, I’m a goofy, nerdy-looking guy, I’ve got a speech impediment-I stutter and stammer all the time-and I’m a Deadhead.
+ - Mick Jagger is in better shape than far too many NBA players. It’s up in the air whether the same can be said of Keith Richards.
+ - I can think. I can sleep. I can move. I can ride my bike. I can dream.
+ - I might be the most injured athlete in the history of sports. I’ve had 31 operations. An endless string of stress fractures.
+ - Doug Christie, what skill, what strenght, what power, what quickness. The visionof Magic Johnson, the athletisicm of Michael Jordan, the toughness of larry Bird. Dough Christie has it all.
+ - Life is easy when you’re hot. But what happens when the ball bounces the other way? You just keep getting back up and climbing up.
+ - If you’re living for today, if you’re only dreaming about yesterday, it doesn’t work. You got to know that tomorrow is going to be better. Then you’re on your way.
+ - Music is critical in our lives and culture. It’s the inspiration that drives us. It’s also the window to our souls. It’s a reflection as to who we are, what we stand for and where we’re going.
+ - There is absolutely no way the best team in the NCAA could even dream of beating the worst team in the NBA? You’re talking about men vs. boys.
+ - I was a skinny, scrawny guy. I stuttered horrendously, couldn’t speak at all. I was a very shy, reserved player and a very shy, reserved person. I found a safe place in life in basketball.
+ - Without question, no hesitation, Kareem Abdul-Jabbar was the best player I ever played against.
+ - Growing up, my parents were very, very strict. And then I went to UCLA with John Wooden, who was just off the charts.
+ - Kevin Garnett is the prototype for the NBA player of the future. He’s already one of the greatest players to have played the game.
+ - I’ve had 36 orthopedic operations, have two fused ankles, my knees, hands and wrists don’t work, I now have a fused spine, other than that, everything is great.
+ - Basketball is one of those rare opportunities where you can make a difference, not only for yourself, but for other people as well.
+ - The great thing about being a broadcaster is you have this incredible responsibility to the people that make it all happen, the people that turn on the television set.
+ - I have nothing but respect for the Lakers. So many of their legends shaped who I am as a person and player.
+ - When you find yourself talking about less and less and forgetting the love that you bring, never forget there are things you can replace but others you can not.
+ - We can never thank David Stern enough. His vision to use basketball to improve the quality of our lives to make this world a better and saner place, that guy, is the most important man in the history of basketball.
+ - I’m a lifelong stutterer.
+ - Bill Russell was my favorite player of all-time.
+ - Where else but the NBA could people like Bill Russell, Spencer Haywood, Ricky Barry, Dennis Rodman, and Allen Iverson come in and be allowed to be who they are?
+ - At 49, I can say something I never would have said when I was a player. I am a better person because of my failures and disgraces.
+ - I grew up in an non-athletic family, where my parents were interested in music, in literature, in education and art.
+ - Being a broadcaster encompasses the business of sport, which is my life today, and it encompasses the skills of being a history student, and the ability of being a performer.
+ - Right now, you know, it’s not about the refs or anything else, it’s about hitting first, getting on the run and never looking back.
+ - Chick Hearn was my favorite broadcaster ever – he’s the one who taught me to think basketball, how to love basketball.
+
+75 quotes

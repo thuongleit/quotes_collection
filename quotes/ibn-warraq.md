@@ -1,0 +1,31 @@
+ - Of course slavery and the Muslims were deeply implicated in the slave trade, Islam was an Imperialist religion which destroyed Christianity in the Near East, yet nobody mentions those facts.
+ - Life, liberty, and the pursuit of happiness: this triptych succinctly defines the attractiveness and superiority of Western civilization.
+ - I wish more people would belabor the obvious, and more often.
+ - We cannot hope to win the ideological battle against Islam without criticism of Islam, it is essential that we continue to criticize Islam.
+ - Monotheism is in its turn doomed to subtract one more God and become atheism.
+ - While many Islamic countries pay lip service to the idea of freedom of religion, they don’t put up with conversion from Islam to another religion.
+ - You can’t grow up without taking a few knocks on the way. All parents know that, but children when they’re growing up, they take some knocks, and nasty knocks sometimes if they’ve been too protected.
+ - The West has given us the liberal miracle of individual rights, individual responsibility, merit, and human satisfaction.
+ - In Saudi Arabia, among other countries, Muslims are not free to convert to Christianity, and Christians are not free to practice their faith. The Koran is not a rights-respecting document.
+ - Slavery had very little to do with the economic success of the West. Just look at the facts and figures and how much slavery actually contributed to development.
+ - By working and living in New York, you are breathing Western civilization, continuously reminded of its benefits and its values.
+ - I think forgiveness plays a very important part in Western society and it comes from the Judeo Christian heritage.
+ - Muslims have not ever been told to examine their faith in a critical way, so the shock is going to be even greater for them, as it is for any child who lives in an over-protected environment, who suddenly has to go out and earn a living and has to stand up on his own feet.
+ - All religions are sick men’s dreams, false – demonstrably false – and pernicious.
+ - Abolitionism did not find positive response in Africa as it did in Western societies and cultures.
+ - Not only is the West so successful economically, but it leads the world scientifically, and culturally.
+ - Surprisingly one of the forces for secularisation was Christianity itself. As soon as it accepted the idea of a contrary opinion, the moment that European opinion decided for toleration, it decided for eventual free marketing opinion.
+ - The West has given the world the symphony, and the novel.
+ - The rich countries are rich because of their practices at home, and because of their readiness to adopt and adapt new things, such as Chinese inventions or New World crops.
+ - The idea that the West was economically successful because of slavery, it’s just nonsense.
+ - Because of its exceptional capacity for self-criticism, the West took the initiative in abolishing slavery; the calls for abolition did not resonate even in black Africa, where rival African tribes took black prisoners to be sold as slaves in the West.
+ - In the West we are free to think what we want, to read what we want, to practice our religion, to live as we choose. Liberty is codified in human rights, a magnificent Western creation but also, I believe, a universal good.
+ - The implausible, well-nigh-miraculous functioning anarchy that we know as New York is adorned with every excellence of Western art. It is a city of manifold suggestions, which ministers to every ambition, engenders a thousand talents, nurtures ingenuity and experimentation.
+ - Discussions of Western civilization are too often confined to works of high art that reflect a relatively narrow element of public taste and experience.
+ - I always have tendency to form very strong local attachments, so I was very keen to find out about the school I was going to, its history, and the countryside. I was acquiring a kind of English character if you like, Englishness about things and my attitudes.
+ - I maintain that Western popular culture at its best is worthy of respect and should be cherished as much as the operas of Wagner.
+ - Western society is a society of ever richer, more varied, more productive, more self-defined, and more satisfying lives; it is a society of boundless private charity; it is a society that broke, on behalf of merit, the seemingly eternal chains of station by birth.
+ - The origins of the modern West are often seen in the Enlightenment of the seventeenth and eighteenth century, but the roots of the Enlightenment can be found in habits of mind cultivated in Athens, Rome, and Jerusalem, and the institutions that grew from them.
+ - Being from a minority culture, I realised the importance of looking at non-Western cultures in a positive way.
+
+29 quotes

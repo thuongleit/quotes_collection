@@ -1,0 +1,31 @@
+ - I am not fit for this office and should never have been here.
+ - Less government in business and more business in government.
+ - We need citizens who are less concerned about what their government can do for them, and more concerned about what they can do for the nation.
+ - As I hammered in the last bolt and staggered over the rim, it was not at all clear to me who was the conqueror and who was the conquered. I do recall that El Cap seemed to be in much better condition than I was.
+ - There is something inherently wrong, something out of accord with the ideals of representative democracy, when one portion of our citizenship turns its activities to private gain amid defensive war while another is fighting, sacrificing, or dying for national preservation.
+ - There’s good in everybody. Boost. Don’t knock.
+ - Treat your friend as if he will one day be your enemy, and your enemy as if he will one day be your friend.
+ - Our most dangerous tendency is to expect too much of government, and at the same time do for it too little.
+ - Actually, we’re just glorified flagpole sitters.
+ - It is impossible for one who has studied at all the services of the Hebrew people to avoid the faith that they will one day be restored to their historic national home and there enter on a new and yet greater phase of their contribution to the advance of humanity.
+ - The black man should seek to be, and he should be encouraged to be, the best possible black man and not the best possible imitation of a white man.
+ - I don’t know much about Americanism, but it’s a damn good word with which to carry an election.
+ - I continued with whatever ‘qualified climbers’ I could con into this rather unpromising venture.
+ - In the experiences of a year of the Presidency, there has come to me no other such unwelcome impression as the manifest religious intolerance which exists among many of our citizens. I hold it to be a menace to the very liberties we boast and cherish.
+ - Ambition is a commendable attribute, without which no man succeeds. Only inconsiderate ambition imperils.
+ - Let the black man vote when he is fit to vote; prohibit the white man voting when he is unfit to vote.
+ - I don’t know what to do or where to turn in this taxation matter. Somewhere there must be a book that tells all about it, where I could go to straighten it out in my mind. But I don’t know where the book is, and maybe I couldn’t read it if I found it.
+ - It is my conviction that the fundamental trouble with the people of the United States is that they have gotten too far away from Almighty God.
+ - I knew that this job would be too much for me.
+ - He liked to play chess and do intelligent things, and I was a serious drinker and nonthinker.
+ - I hurt with the insatiate longing, until I feel that there will never be any relief until I take a long, deep, wild draught on your lips.
+ - I couldn’t catch a ball or any of that stuff. I could do only what required brute stupidity.
+ - The success of our popular government rests wholly upon the correct interpretation of the deliberate, intelligent, dependable popular will of America.
+ - We must proceed with a full realization that no statute enacted by man can repeal the inexorable laws of nature.
+ - The president is the cuticle of the nail bed of America: one would think pushing back makes him stronger, yet it turns out the opposite is true.
+ - I was spent up. I sure grabbed that girl of mine.
+ - I expect it is very possible that I would make as good a President as a great many men who are talked of for that position.
+ - That’s good. Go on, read some more.
+ - America’s present need is not heroics but healing; not nostrums but normalcy; not revolution but restoration.
+
+29 quotes

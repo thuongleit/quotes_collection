@@ -1,0 +1,25 @@
+ - Only in America can you be Pro-Death Penalty, Pro-War, Pro-Unmanned Drone Bombs, Pro-Nuclear Weapons, Pro-Guns, Pro-Torture, Pro-Land Mines, AND still call yourself ‘Pro-Life.’
+ - Obama is not a brown-skinned anti-war socialist who gives away free healthcare. You’re thinking of Jesus.
+ - The greatest threat to America is not foreign terrorists, its domestic morons.
+ - Jesus never called the poor ‘lazy,’ fought for tax cuts for the wealthiest Nazarenes or asked a leper for a copay.
+ - My mother was an ex-nun, and my father was a Franciscan brother, so I grew up believing in Jesus the way anyone would believe in Mom’s first husband.
+ - You complain and demand zero compromise – so the GOP obstructs Obama so the economy doesn’t improve – then you complain and demand even more zero compromise. Then you get to blame Obama for the slow recovery, which is sorta like John Wilkes Booth blaming Lincoln for missing the end of a play.
+ - Loving the Second Amendment while opposing the NRA is every bit as natural as loving Jesus while opposing Westboro Baptist Church.
+ - People get God and religion confused. I think God is a bit too hip to join any of his unauthorized fan clubs.
+ - If you were a freak as a kid, you’re an interesting adult.
+ - We live in a country where voting rights get gutted but Sharknado gets a sequel.
+ - I think there is a spiritual hunger, and I think that people are really tired of getting kind of a two-dimensional take on religion in most of the media.
+ - Nixon was a conservative who’s way more liberal than his party can admit, and Obama’s a liberal who’s way more conservative than his party can admit.
+ - Impeach President Reagan retroactively for agreeing with Obama on the assault weapons ban.
+ - Anti-Tax fetishist Grover Norquist owns a bust of Ronald Reagan, who raised taxes 11 times.
+ - I will kill the BackStreet Boys by beating them with the members of N-Sync.
+ - I wasn’t any good at sports, but I could name all the presidents by the time I was six. I’ve always been very interested in politics and in religion.
+ - Stand-up led to me doing solo shows, which led to me being offered my first broadcasting job, being a VJ.
+ - I enjoy growth; I enjoy having a lot of different experiences. And I don’t think I am the kind of guy who’d like to do the same thing every day for 40 years.
+ - I was the biggest George Harrison fanatic in the world. He was raised Catholic; my parents are both ex-clergy, so I was raised Catholic, and I admired how he used his faith.
+ - Can we please rename The Sandy Relief Bill to the Supplemental Iraq War Funding Bill so the GOP Congress can vote for it?
+ - Blaming Obama for Iraq violence is like blaming Daniel Craig because Octopussy sucked.
+ - Gay Marriage isn’t Special Rights, it’s Equal Rights. ‘Special Rights’ are for political churches that don’t pay taxes.
+ - The problem is that people love music and they love television, but people don’t love music on TV.
+
+23 quotes

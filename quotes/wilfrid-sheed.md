@@ -1,0 +1,31 @@
+ - Suicide is about life, being in fact the sincerest form of criticism life gets.
+ - If the French were really intelligent, they’d speak English.
+ - The American male doesn’t mature until he has exhausted all other possibilities.
+ - Whether or not Big Brother is watching us, we certainly have to watch him, which may be even worse.
+ - The 1930s – a Golden Age for American humor, mainly because everything else was going so badly. The wisecrack was the basic American sentence because there were so many things that could not be said any other way.
+ - Beware the fictionist writing his own life. Even candor becomes a strategy.
+ - People talk about talent as though it were some neutral substance that can be applied to anything. But talent is narrow and only functions with a very few subjects, which it is up to the writer to find.
+ - As things now stand, the office is a slightly meaner battleground than the home. Male bosses seem to dominate their women underlings as they would never dominate their wives.
+ - Mushy reviews are a breach of faith.
+ - Even the God of Calvin never judged anyone as harshly as married couples judge each other.
+ - Mr Michener, as timeless as a stack of National Geographics, is the ultimate Summer Writer. Just as one goes back to the cottage in Maine, so one goes back to one’s Michener.
+ - The only reason I didn’t kill myself after I read the reviews of my first book was because we have two rivers in New York and I couldn’t decide which one to jumo into.
+ - It’s the old case against symbols: if you get them, they seem obvious and artificial, and if you don’t, you miss the whole point.
+ - For Catholics before Vatican II, the land of the free was pre-eminently the land of Sister Says-except, of course, for Sister, for whom it was the land of Father Says.
+ - Books about suicide make lousy gifts.
+ - Saloons provide moments of genuine ecstasy – but only if your soul is at peace and the rest of your life bears contemplating. Otherwise, they are palaces of misery.
+ - The town is as full as ever of ‘characters,’ all created by each other.
+ - The spiritual life becomes very simple when you’re sick.
+ - As you approach the presidency, no one seems worthy of it, since it wasn’t designed for a human in the first place.
+ - Mankind has always made too much of its saints and heroes, and how the latter handle the fuss might be called their final test.
+ - Scott Fitzgerald is a sound you like to hear at certain times of the day, say at four in the afternoon and again late at night, and at other times it makes you slightly sick.
+ - Every writer is a writer of the generation before.
+ - I picked up the writing on the very day he died. It was the only consolation I could find.
+ - Unnecessary customs live a brutally short life in America.
+ - The worse we treat people in this country, the more delicately we talk about them.
+ - You noodle around with tempo and sound until you get the perfect fit for that particular song, and then, so long as you can sustain it, God is on your side and everything comes easily and even the waiters smile.
+ - The actual Irish weather report is really a recording made in 1922, which no one has had occasion to change. “Scattered showers, periods of sunshine.”
+ - Of course, history is only a muddle of facts and a fuddle of professors, and anyone who thinks it is one clear voice saying “Arise, sir Knight” deserves a life sentence in Camelot.
+ - How does one make a movie about decadence these days? Now that we’re allowed to do it, it’s too late.
+
+29 quotes

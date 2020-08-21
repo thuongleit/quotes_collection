@@ -1,0 +1,114 @@
+ - The shadow proves the sunshine.
+ - If it doesn’t break your heart it isn’t love.
+ - Faith, hope, and love remain. But the greatest of these is love.
+ - All music is worship. It just depends on what you’re worshipping.
+ - When life hands you lemons, you make lemonade. But when life hands you hurricanes, you go surfing.
+ - Don’t be discouraged, but know that suffering produces perseverance, perseverance brings character, and character brings hope, and this is a hope which will not disappoint us.
+ - Eventually everything fails me, but when I look at the sunset or the sky, I’m reminded what it’s like to be alive.
+ - It was a beautiful letdown, the day I knew, that all the riches this world had to offer me, will never do.
+ - From the shore, the ocean is forever. It’s a beautiful, dangerous place. Music is tied to the sea, born from the struggle, looking for hope. Because hope belongs in the dark places.
+ - I look around and I know there’s a lot in the world that I want to see changed – and I want to be a part of something bigger than myself. I want to see things change, in myself as much as in the world around me.
+ - I use to think that the friction was a bad thing. Everything is to ease pain in our society; pain is very much the enemy. And I don’t think that’s true. Tension is a good thing. To be pulled tight: that’s the only way you can make a proper noise on the guitar or violin.
+ - Life is a battlefield. I don’t have enough time on the planet to play games.
+ - Live rather than talk. Talk is cheap and the tabloids scream about it every day.
+ - Nothing stays together without a fight.
+ - Happiness is like peeing in your pants. Everyone can see it, but only you can feel the warmth.
+ - What you do with your life is ascribing more to what you invest your time in. If you spend a lot of time on your phone, you’re ascribing more worship to that. Anything can become, by that definition, some form of idol or deity or ultimate worth in your life.
+ - My challenge is, do not run away from the hard questions. Truly ask yourself what’s worth living for in this life.
+ - The truth will set you free, but it’s only slightly less scary than hell and a whole lot harder to get there.
+ - Your story matters, who you are matters, tonight matters, none of it is an accident. You were born for the blue skies.
+ - The life, when we’re aware of beauty, is kind of a bittersweet thing, it’s a transient reminder of eternal beauty, which someday we will be face to face with.
+ - If we truly believe in an all-powerful God, then there’s going to be beauty and truth to be found in all sorts of different places.
+ - Music is what I do; Christ is why I do it.
+ - I don’t think we can solve the outside problems until we solve the ones within.
+ - I think of myself as more of a lover rather than a fighter, but sometimes you have to fight for what you love.
+ - If you truly love someone, you’re going to be pure because true love comes from God, and God tells us to remain pure. That’s good enough for me.
+ - If comparison is the thief of joy, then our culture is being robbed blind.
+ - There’s a time to be silent – to build up a reason to sing again.
+ - Hope is not a substitute for pain. Hope is in spite of pain.
+ - If we spend our time obsessing with the future or regretting the past, then we will never live. Tomorrow will always be tomorrow and yesterday cannot be changed.
+ - Every day of your life, you change the world. Absolutely, yes, we’re out to change the world. I mean, you change it whether you like it or not. You wake up and you talk to the grocer. You either kick your dog or you pet him. There’s a million decisions you have every day where you change the world.
+ - Music is a handshake where I, as a songwriter, am only part of the equation. I love that, the fact that you can make the song your own.
+ - Let me know that you hear me, let me know Your touch, let me know that You love me, and let that be enough.
+ - As far as when I’m writing a song, I think I’m writing first and foremost for myself.
+ - The beauty of what I read in the gospel is the intimacy of what we’re called to, that there’s no middle man.
+ - My dying planet needs to see what the body of Christ looks like.
+ - I’m continually wrestling with the idea that there are certain things in this world that simply don’t fit. The idea that I have this longing for beauty and truth, and yet I’m also attracted to things that are very dark the lies that exist within me and outside of me.
+ - When our world falls apart and we have no more faces to wear – that’s when it’s beautiful, and that’s when we change.
+ - Think deeply about life, it’s worth it!
+ - Music is admitted under the skin without permission.
+ - For me songs are born out of the gray space, the things I don’t fully understand, the things that I can’t put in my pocket.
+ - Just as drowning cannot be equated with swimming, mere existence is not the same as abundant life. We have been offered a new way to live – a new way to be human.
+ - If you can have a couple of tight friends that you can tell things to, that you can say, ‘Hey, this is what I’m struggling with,’ and then pray and talk about it, then that’s an incredible thing.
+ - I do have an obligation, however, a debt that cannot be settled by my lyrical decisions. My life will be judged by my obedience, not my ability to confine my lyrics to this box or that.
+ - Music will always be judged by our subjective ears.
+ - I look for places where there’s no one out on the water. I’d rather surf a wave to myself than fight a crowd.
+ - What do we really want to say to the world? Three main themes. The inability to find completion in our modern society, the inability to find completion within ourselves, and the new way to be human in what Christ offers us – His love and His perfect plan of redemption for us.
+ - Maybe truth is not something that I can possess. Maybe truth is something which possesses me.
+ - Our world spins upside down and sometimes we have to lose our grip on the things we value in this life in order to grab on to true life.
+ - If you’re leaving your family behind, you better believe in what you’re singing.
+ - The biggest thing that I’ve learned is to run the marathon, not the sprint. By that I mean, don’t let the little problems that you face in the hour in daily life cast a shadow over the larger joys that you have, over the course of the years.
+ - Let no debt remain outstanding, except the continuing debt to love another.
+ - I’m really only responsible to make sure that one person is clapping at the end of my life. Because I feel like as a performer, a lot of times you live for everyone else’s applause. That’s a dangerous thing within the church or outside the church.
+ - The easiest thing to do is throw a rock. It’s a lot harder to create a stained glass window. I used to get upset at the people who threw rocks but now I’d rather spend my time building the stained glass windows.
+ - My best sunsets are always going to be in my home town, San Diego. Watching the sunset from the Pacific knowing that you’re sleeping in your own bed, there’s something special about that.
+ - I want to be a compassionate soul, finding worth and beauty in the worlds around me and within me, attempting to sing a transcendent tune with my temporal position in this life.
+ - I think sunrises are rarer for me, but sunset is my favourite time of day.
+ - There are a lot of similarities between music and surfing. There’s a rhythm to both of them and with sound waves and ocean waves, you see patterns, plus the breathing is all part of it.
+ - Your faith is what you do daily, you can’t separate your heart from your body and keep them both alive, they’re almost the same thing.
+ - Inside all of us, we know the truth of life that there’s something more than the next new cell phone or gadget or relationship and that our heart beats in time with the sunset.
+ - Experience is all I have. I equate song-writing with archeology. Every day you dig. You dig into different places within yourself – even finding places that you’ve rarely been. And buried within the soil is song.
+ - The unasked questions are the most dangerous to answer.
+ - Pain is a common emotion in many of my songs mainly because I often don’t know other ways to express it adequately. In my songs I wrestle with the things that I don’t understand.
+ - Life tears at us and scars us as children so we adopt facades and masks to hide this part of us, to keep this sacred part of ourselves from the pain.
+ - Information has become king, whereas wisdom should be king and there is a big difference between the two.
+ - I feel like that’s something the church has done really badly is actually confessing. We are sinners. We are broken, shattered people that do things selfishly, out of arrogance, pride, lust, greed. And all have fallen short. That doesn’t mean some we’re definitely a part of that inclusive all.
+ - The kingdom of heaven is comprised of the broken, the fatherless, the poor, the starving. Nothing that could create good ratings for NBC.
+ - Jesus Christ’s mercy and power indwells us and gives us the strength to make a positive difference.
+ - Hope is not something you can just place in your back pocket or put your fingers around – it’s the belief in a world that has yet to exist.
+ - Sometimes it can be really hard in our fast paced society to slow ourselves down enough to begin to listen to God’s voice. The dilemma exists in my position as well. To be a follower of Christ is to emulate Him. When He went off alone into the desert to pray, He was teaching a valuable lesson.
+ - There are tears that shine like a smile, sobbing like a sunrise for the truth.
+ - Being a creator of a song I get to take all these broken fragments of failure and chaos and weave together something beautiful and meaningful. Decay. Death. Pain. Fall. And if God is a songwriter then these fallen leaves of mine can be redeemed.
+ - I try to write songs just for the song itself. I don’t try and think about where it’s going to end up, that way you’re writing for the good of the song.
+ - The song can be a little bit more of the mystery and leave the whole thing open ended. But there’s something really gratifying about saying exactly what you mean.
+ - That’s what life is, a continual state of journey. You are a river passing downstream.
+ - For me, the good songs are the ones that come really naturally. There are certain songs that you rework and rewrite and the craft becomes very evident, but a lot of times those aren’t my favorite songs. The favorite songs are the ones that I can’t even hear my own voice in.
+ - I think that’s the beauty of live music – creating from the destruction.
+ - It’s a great thing to see the strength of simplicity.
+ - There is a deeper portion of our being that we rarely allow others to see. Call it a soul maybe, this is the place that holds the most value. All else can drift but this. When this dies our body has no meaning.
+ - In my opinion, the best way of showing someone the best way to live life is by living it.
+ - For me, even if I’m not a fan of the band in general or maybe it’s not the style of music I want to put on for my daughter and me when we’re waking up in the morning, there’s always something that I can learn from it. And I think those are the things that are surprising.
+ - I’m always thinking about songs, I’m thinking of life maybe a little bit more lyrically than a computer programmer or someone like that.
+ - I wanna be a part of the generation that throws out money, throws out time, throws out all that we are against something bigger than ourselves.
+ - I love a good pop song. I have no problem with the concept of doing that sort of thing. For me, it’s usually what I’m inspired by, what I’m thinking about.
+ - Please be slow to judge ‘brothers’ who have a different calling.
+ - Surfing and music were incredible outlets for me when I was a kid. And there are some really tricky times when you’re growing up and it’s easy to make a wrong decision, even with a good family and community around you. Surfing and music kept me out of trouble.
+ - I’ve always been fascinated with the strong emotional ties that music can have. A song can bring you back to a place or a season of life like no other art form can.
+ - I think surfing and music are both places of release and self expression where there are no rules, and you can find a different form of freedom that you can’t anywhere else.
+ - Music has always been a location for me to run to, whether it’s through someone else’s song or my own. I can observe my own planet from this foreign land and things make sense within the telescopic lens of song.
+ - Why is it that everything is collapsing if gravity is pulling us together?
+ - I’ve experienced more sunrises with my bandmates and friends out on the road than with my wife, because we’re always up at these strange times in the mornings trying to catch a plane.
+ - I love the idea that you can create a world through song.
+ - For me, I want to create a environment for the songs to live in. So one song by itself only tells a piece of the story, but in the context of the album, more of the colors are revealed.
+ - I simply want the music to to find its way to open-minded people.
+ - Sometimes the things that hurt are worth the pain.
+ - It’s a good thing my parents named me Jon because that’s what everyone calls me.
+ - You want songs to sound cohesive with the other songs on the record but when you first start writing you just want to write to tell the truth.
+ - Celebrity is a currency with an exchange rate almost as strong as anonymity.
+ - I’m very reluctant to put my words into God’s mouth.
+ - I have horrible acting ability. I can only be one thing and that’s it. So for better, for worse, that’s all I’ve got to offer is me. I’ve got nothing else.
+ - Paste just might be my favorite music magazine. They have shed light on many incredible, under-appreciated folks over the years, helping me find new tunes to accompany me through life. We were honored to give a song in return.
+ - I try to surf everyday or at least go for a walk on the beach if the waves are flat. The more I travel, the more I appreciate where I live and the ocean.
+ - I usually write from my own experience, and that’s definitely a true statement for me. I think having a song about desiring to live and wanting to get it right, which many of my songs do, often I have to clarify that I haven’t figured it out yet.
+ - I’ve never really had a desk job, but I’ve died one day at a time all over the place.
+ - I used to think that great art happened without argument, and maybe that’s not the case. Maybe the things that are most important in this life, you have to fight for.
+ - I began thinking about the idea of a 24 hour concert. What if you tied songs to certain hours of the day – creating a 24 hour world of lyric and melody. So that was the inspiration for this project.
+ - Usually for me, the melodic structures come out in the water and the lyrical ideas could come from a book I’m reading.
+ - I’ve got a variety of different sources of news that I follow and every day there’s going to be different headlines, different stories spun different ways and different sources that they’re going to cite as their facts.
+ - There’s nothing that you can sell me that can make me happy.
+ - Anything worth doing in this world is incredibly difficult to do.
+ - Sometimes, the best songs are the ones you write without any pen and paper or audio recording device or guitar in your hands. Because there’s nothing between you and the melody; it’s just a great lyric.
+ - Well, the funny thing is, you are never the same person that you were the day before.
+ - I’m not really one to be on camera, I’d rather be writing songs.
+
+112 quotes

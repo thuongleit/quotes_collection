@@ -1,0 +1,29 @@
+ - Most things remain undone. Glorious future!
+ - You can do so much in 10 minutes time. Ten minutes, once gone, are gone for good. Divide your life into 10-minute units and sacrifice as few of them as possible in meaningless activity.
+ - Happiness is not reaching your goal. Happiness is being on the way.
+ - Only those who are asleep make no mistakes.
+ - Simplicity and common sense should characterize planning and strategic direction.
+ - Waste of resources is a mortal sin at IKEA.
+ - The most dangerous poison is the feeling of achievement. The antidote is to every evening think what can be done better tomorrow.
+ - Ikea people do not drive flashy cars or stay at luxury hotels.
+ - Making mistakes is the privilege of the active. It is always the mediocre people who are negative, who spend their time proving that they were not wrong.
+ - What is good for our customers is also in the long run good for us.
+ - To design a desk which may cost $1,000 is easy for a furniture designer but to design a functional and good desk which shall cost only $50 can only be done by the very best.
+ - People say I am cheap, and I don’t mind if they do.
+ - Time is your most important resource. You can do so much in ten minutes. Ten minutes; once gone is gone for good.
+ - Ten minutes are not just one-sixth of your hourly pay; ten minutes is a piece of yourself. Divide yourself into ten units and sacrifice as few of them as possible in meaningless activities. Most things still remain to be done.
+ - IKEA is not completely perfect. It irritates me to hear it said that IKEA is the best company in the world. We are going the right way to becoming it but we are not there yet.
+ - The IKEA spirit is strong and living reality. Simplicity in our behavior gives us strength. Simplicity and humbleness characterize us in our relations with each others, our suppliers and our customers.
+ - How can I ask people who work for me to travel cheaply if I am traveling in luxury?
+ - I’m not afraid of turning 80 and I have lots of things to do. I don’t have time for dying.
+ - A better everyday life means getting away from status and conventions – being freer and more at ease as human beings.
+ - It was our duty to expand. Those who cannot or will not join us are to be pitied. What we want to do, we can do and will do, together. A glorious future!
+ - If there is such a thing as good leadership, it is to give a good example. I have to do so for all the Ikea employees.
+ - I’m stingy and I’m proud of the reputation.
+ - Simple routine have a greater impact. It is not just to cut costs that we avoid luxury hotels. We do not need fancy cars, posh titles, tailor made uniforms or other status symbols.
+ - I could have an office all to myself but since my collaborators don’t have one, then I too am contented to have a desk in a shared room.
+ - We ought to have more women in various management positions, because women are the ones who decide almost everything in the home.
+ - We have to still develop the IKEA group. We need many billions of Swiss francs to take on China or Russia.
+ - Everything we earn we need as a reserve.
+
+27 quotes

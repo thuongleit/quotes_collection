@@ -1,0 +1,502 @@
+ - Peace begins with a smile.
+ - Life is a game, play it.
+ - Not all of us can do great things. But we can do small things with great love.
+ - Yesterday is gone. Tomorrow has not yet come. We have only today. Let us begin.
+ - If you judge people, you have no time to love them.
+ - Kind words can be short and easy to speak, but their echoes are truly endless.
+ - Work without love is slavery.
+ - What can you do to promote world peace? Go home and love your family.
+ - Spread love everywhere you go. Let no one ever come to you without leaving happier.
+ - If we have no peace, it is because we have forgotten that we belong to each other.
+ - Do small things, with great love.
+ - Without patience, we will learn less in life. We will see less. We will feel less. We will hear less. Ironically, rush and more usually mean less.
+ - Live simply so others may simply live.
+ - Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.
+ - If we really want to love we must learn how to forgive.
+ - We know only too well that what we are doing is nothing more than a drop in the ocean. But if the drop were not there, the ocean would be missing something.
+ - Be faithful in small things because it is in them that your strength lies.
+ - Be happy in the moment, that’s enough. Each moment is all we need, not more.
+ - I have found the paradox, that if you love until it hurts, there can be no more hurt, only more love.
+ - The hunger for love is much more difficult to remove than the hunger for bread.
+ - I can do things you cannot, you can do things I cannot; together we can do great things.
+ - Together we can do great things.
+ - We the willing, led by the unknowing, are doing the impossible for the ungrateful. We have done so much, with so little, for so long, we are now qualified to do anything, with nothing.
+ - I alone cannot change the world, but I can cast a stone across the waters to create many ripples.
+ - God speaks in the silence of the heart.
+ - Prayer in action is love, love in action is service.
+ - It’s not how much we give but how much love we put into giving.
+ - Give your hands to serve and your hearts to love.
+ - Helping hands are better than Praying Lips.
+ - Let no one ever come to you without leaving better and happier. Be the living expression of God’s kindness: kindness in your face, kindness in your eyes, kindness in your smile.
+ - People are unrealistic, illogical, and self-centered. Love them anyway.
+ - God doesn’t require us to succeed, he only requires that you try.
+ - If you can’t feed a hundred people, feed just one.
+ - I’m a little pencil in the hand of a writing God, who is sending a love letter to the world.
+ - Never worry about numbers. Help one person at a time and always start with the person nearest you.
+ - Love to be real, it must cost – it must hurt – it must empty us of self.
+ - Intense love does not measure, it just gives.
+ - Never be so busy as not to think of others.
+ - If you are humble nothing will touch you, neither praise nor disgrace, because you know what you are.
+ - If we pray, we will believe; If we believe, we will love; If we love, we will serve.
+ - Give, but give until it hurts.
+ - Do not wait for leaders; do it alone, person to person.
+ - Love begins by taking care of the closest ones – the ones at home.
+ - Some people come in our life as blessings. Some come in your life as lessons.
+ - The greatest science in the world; in heaven and on earth; is love.
+ - We need silence to be able to touch souls.
+ - Prayer is not asking. Prayer is putting oneself in the hands of God, at His disposition, and listening to His voice in the depth of our hearts.
+ - Your true character Is most accurately measured by how you treat those who can do ‘Nothing’ for you.
+ - Loneliness and the feeling of being unwanted is the most terrible poverty.
+ - Let’s do something beautiful for God.
+ - We must know that we have been created for greater things, not just to be a number in the world, not just to go for diplomas and degrees, this work and that work. We have been created in order to love and to be loved.
+ - We have only today. Let us begin.
+ - Love is a fruit in season at all times, and within reach of every hand.
+ - The most terrible poverty is loneliness, and the feeling of being unloved.
+ - Listen in silence because if your heart is full of other things you cannot hear the voice of God.
+ - What you spend years building may be destroyed overnight; build it anyway.
+ - I would rather make mistakes in kindness and compassion than work miracles in unkindness and hardness.
+ - A sacrifice to be real must cost, must hurt, and must empty ourselves. Give yourself fully to God. He will use you to accomplish great things on the condition that you believe much more in his love than in your weakness.
+ - Jesus said love one another. He didn’t say love the whole world.
+ - It is easy to love the people far away. It is not always easy to love those close to us. It is easier to give a cup of rice to relieve hunger than to relieve the loneliness and pain of someone unloved in our own home. Bring love into your home for this is where our love for each other must start.
+ - I do not pray for success, I ask for faithfulness.
+ - Joy is a net of love in which you can catch souls.
+ - The person who gives with a smile is the best giver because God loves a cheerful giver.
+ - Spread the love of God through your life but only use words when necessary.
+ - Never travel faster than your guardian angel can fly.
+ - There are many people who can do big things, but there are very few people who will do the small things.
+ - Each one of them is Jesus in disguise.
+ - May God break my heart so completely that the whole world falls in.
+ - In the silence of the heart God speaks. If you face God in prayer and silence, God will speak to you. Then you will know that you are nothing. It is only when you realize your nothingness, your emptiness, that God can fill you with Himself. Souls of prayer are souls of great silence.
+ - God gives us things to share, God doesn’t give us things to hold...
+ - When you don’t have anything, then you have everything.
+ - Do you want to do something beautiful for God? There is a person who needs you. This is your chance.
+ - Do not think that love, in order to be genuine, has to be extraordinary.
+ - Smile at each other. Smile at your wife, smile at your husband, smile at your children, smile at each other – it doesn’t matter who it is – and that will help to grow up in greater love for each other.
+ - Pain and suffering have come into your life, but remember pain, sorrow, suffering are but the kiss of Jesus – a sign that you have come so close to Him that He can kiss you.
+ - Being unwanted, unloved, uncared for, forgotten by everybody, I think that is a much greater hunger, a much greater poverty than the person who has nothing to eat.
+ - Let us not be satisfied with just giving money. Money is not enough, money can be got, but they need your hearts to love them. So, spread your love everywhere you go.
+ - The true way and the sure way to friendship is through humility-being open to each other, accepting each other just as we are, knowing each other.
+ - Words which do not give the light of Christ increase the darkness.
+ - To keep a lamp burning, we have to keep putting oil in it.
+ - It is a kingly act to assist the fallen.
+ - Love is not patronizing and charity isn’t about pity, it is about love. Charity and love are the same – with charity you give love, so don’t just give money but reach out your hand instead.
+ - The Simple Path Silence is Prayer Prayer is Faith Faith is Love Love is Service The Fruit of Service is Peace.
+ - I must be willing to give whatever it takes to do good to others. This requires that I be willing to give until it hurts. Otherwise, there is no true love in me, and I bring injustice, not peace, to those around me.
+ - The way you help heal the world is you start with your own family.
+ - Find your own Calcutta. Find the sick, the suffering and the lonely right there where you are.
+ - I pray that you will understand the words of Jesus, “Love one another as I have loved you.” Ask yourself “How has he loved me? Do I really love others in the same way?” Unless this love is among us, we can kill ourselves with work and it will only be work, not love. Work without love is slavery.
+ - It is a poverty to decide that a child must die so that you may live as you wish.
+ - How can there be too many children? That is like saying there are too many flowers.
+ - Hungry for love, He looks at you. Thirsty for kindness, He begs of you. Naked for loyalty, He hopes in you. Homeless for shelter in your heart, He asks of you. Will you be that one to Him?
+ - Profound joy of the heart is like a magnet that indicates the path of life.
+ - Prayer is the mortar that holds our house together.
+ - Faith keeps the person who keeps the faith.
+ - Whatever religion we are, we must pray together.
+ - In vocal prayer we speak to God; in mental prayer he speaks to us. It is then that God pours Himself into us.
+ - Do not think that love in order to be genuine has to be extraordinary. What we need is to love without getting tired. Be faithful in small things because it is in them that your strength lies.
+ - If I look at the mass I will never act.
+ - One thing will always secure heaven for us-the acts of charity and kindness with which we have filled our lives. We can do no great things, only small things with great love.
+ - A joyful heart is the normal result of a heart burning with love. She gives most who gives with joy.
+ - There should be less talk; a preaching point is not a meeting point. What do you do then? Take a broom and clean someone’s house. That says enough.
+ - The good you do today may be forgotten tomorrow. Do good anyway. Give the world the best you have and it may never be enough. Give your best anyway. For you see, in the end, it is between you and God. It was never between you and them anyway.
+ - My secret is simple – I pray.
+ - God didn’t call me to be successful, He called me to be faithful.
+ - Let us always meet each other with smile, for the smile is the beginning of love.
+ - Honesty and transparency make you vulnerable. Be honest and transparent anyway.
+ - Jesus, I love you. Jesus, I love you.
+ - The good you do today may be forgotten tomorrow. Do good anyway.
+ - If I ever become a Saint – I will surely be one of “darkness.” I will continually be absent from heaven – to light the light of those in darkness on earth.
+ - Do not worry about your career. Concern yourself with your vocation, and that is to be lovers of Jesus.
+ - Life is a song, sing it. Life is a struggle, accept it.
+ - The problem with the world is that we draw the circle of our family too small.
+ - One thing that I ask of you: Never be afraid of giving. There is a deep joy in giving, since what we receive is much more than what we give.
+ - There is no key to happiness; the door is always open.
+ - I think it is very good when people suffer. To me that is like the kiss of Jesus.
+ - It is not how much we do, but how much love we put in the doing. It is not how much we give, but how much love we put in the giving.
+ - I am nothing; I am but an instrument, a tiny pencil in the hands of the Lord with which He writes what he likes. However imperfect we are, he writes beautifully.
+ - I am Albanian by birth. Now I am a citizen of India. I am also a Catholic nun. In my work, I belong to the whole world. But in my heart, I belong to Christ.
+ - Love until it hurts. Real love is always painful and hurts: then it is real and pure.
+ - Life is not worth living unless it is lived for others.
+ - Speak tenderly; let there be kindness in your face, in your eyes, in your smile, in the warmth of your greeting. Always have a cheerful smile. Don’t only give your care, but give your heart as well.
+ - Gratitude to God is to accept everything, even my problems, with joy.
+ - Be a living expression of God’s kindness.
+ - To love others as God loves you, that is the measure of success.
+ - We do not need guns and bombs to bring peace, we need love and compassion.
+ - I am a little pencil in God’s hands. He does the thinking. He does the writing. He does everything and sometimes it is really hard because it is a broken pencil and He has to sharpen it a little more.
+ - Saints are only sinners who keep trying.
+ - If each of us would only sweep our own doorstep, the whole World would be clean.
+ - It’s not about how much you do, but how much love you put into what you do that counts. Life isn’t worth living, unless lived for other people.
+ - I used to believe that prayer changes things, but now I know that prayer changes us, and we change things.
+ - Whatever you do to the least of my brethren, you do it to me.
+ - Don’t expect your friend to be a perfect person. Help your friend to become a perfect person. That is true friendship.
+ - Be faithful in the little things.
+ - When you know how much God is in love with you then you can only live your life radiating that love.
+ - Prayer is the breath of life to our soul; holiness is impossible without it.
+ - I see God in every human being.
+ - Go out into the world today and love the people you meet. Let your presence light new light in the hearts of people.
+ - We are all pencils in the hand of God.
+ - A joyful heart is like the sunshine of God’s love, the hope of eternal happiness.
+ - Seek not to change the world, but choose to change your mind about the world. What you see reflects your thinking. And your thinking but reflects your choice of what you want to see. If you judge people, you have no time to love them.
+ - Seeking the face of God in everything, everyone, all the time, and his hand in every happening; This is what it means to be contemplative in the heart of the world. Seeing and adoring the presence of Jesus, especially in the lowly appearance of bread, and in the distressing disguise of the poor.
+ - Life is a promise; fulfill it.
+ - There is a light in this world, a healing spirit more powerful than any darkness we may encounter.
+ - Only humility will lead us to unity, and unity to peace.
+ - Charity isn’t about pity, it is about love.
+ - A smile is the beginning of peace.
+ - Love cannot remain by itself – it has no meaning. Love has to be put into action, and that action is service. Whatever form we are, able or disabled, rich or poor, it is not how much we do, but how much love we put in the doing; a lifelong sharing of love with others.
+ - If you hold an anti-war rally, I shall not attend. But if you hold a Pro-Peace rally invite me.
+ - Every day I see Jesus Christ in all his distressing disguises.
+ - The openness of our hearts and minds can be measured by how wide we draw the circle of what we call family.
+ - Do not let the past disturb you, just leave everything in the Sacred Heart and begin again with joy.
+ - Everybody has something good inside them. Some hide it, some neglect it, but it is there.
+ - At this Christmas when Christ comes, will He find a warm heart? Mark the season of Advent by loving and serving the others with God’s own love and concern.
+ - The fruit of love is service, which is compassion in action.
+ - Life is beauty admire it!
+ - God loves the world through us.
+ - I will not pray clarity for you. Clarity is the crutch of the Christian. But I will pray trust for you, that your trust will increase.
+ - I was once asked why I don’t participate in anti-war demonstrations. I said that I will never do that, but as soon as you have a pro-peace rally, I’ll be there.
+ - Faith in action is love, and love in action is service. By transforming that faith into living acts of love, we put ourselves in contact with God Himself, with Jesus our Lord.
+ - Abortion kills twice. It kills the body of the baby and it kills the conscience of the mother. Abortion is profoundly anti-women. Three quarters of its victims are women: Half the babies and all the mothers.
+ - Do not allow yourselves to be disheartened by any failure as long as you have done your best.
+ - It is only when you realize your nothingness, your emptiness, that God can fill you with Himself.
+ - People are not hungry just for bread, they are hungry for love.
+ - Do you want to be great? Pick up a broom and sweep the floor.
+ - It is not enough for us to say: “I love God,” but I also have to love my neighbor. St. John says that you are a liar if you say you love God and you don’t love your neighbor. How can you love God whom you do not see, if you do not love your neighbor whom you see, whom you touch, with whom you live?
+ - The miracle is not that we do this work, but that we are happy to do it.
+ - Never let anything so fill you with sorrow as to make you forget the joy of Christ risen.
+ - I always begin my prayer in silence, for it is in the silence of the heart that God speaks. God is the friend of silence-we need to listen to God because it’s not what we say but what He says to us and through us that matters.
+ - Life is an opportunity, benefit from it.
+ - Loneliness is the leprosy of the modern world.
+ - Our progress in holiness depends on God and ourselves – on God’s grace and on our will to be holy.
+ - Before you speak, it is necessary for you to listen, for God speaks in the silence of the heart.
+ - Like Jesus we belong to the world living not for ourselves but for others. The joy of the Lord is our strength.
+ - The child is the beauty of God present in the world, that greatest gift to a family.
+ - If you ever feel distressed during your day – call upon our Lady – just say this simple prayer: ‘Mary, Mother of Jesus, please be a mother to me now.’ I must admit – this prayer has never failed me.
+ - It is not the magnitude of our actions, but the amount of love that is put into them that matters.
+ - Human rights are not a privilege conferred by government. They are every human being’s entitlement by virtue of his humanity.
+ - Death is nothing else but going home to God, the bond of love will be unbroken for all eternity.
+ - We are not social workers. We are contemplatives in the heart of the world.
+ - I have never had clarity; what I have always had is trust. So I will pray that you will trust God.
+ - Failure is merely feedback that there is something blocking the path of the emergence and expansion of the greatest version of yourself.
+ - Prayer to be fruitful must come from the heart and must be able to touch the heart of God.
+ - Justice without love is not justice. Love without justice is not love.
+ - I am only a little pencil in the hand of our Lord. He may cut or sharpen the pencil. He may write or draw whatever and whenever he wants. If the writing or drawing is good, we do not honor the pencil or the material that is used, but rather the one who used it.
+ - Perpetual Eucharistic Adoration with exposition needs a great push. People ask me: ‘What will convert America and save the world?’ My answer is prayer. What we need is for every parish to come before Jesus in the Blessed Sacrament in holy hours of prayer.
+ - Be humble like Mary so that you can be holy like Jesus.
+ - A day lived without doing something good for others is a day not worth living.
+ - The world today is hungry Not only for bread But hungry for love; Hungry to be wanted, Hungry to be loved...
+ - There’s nothing more calming in difficult moments that knowing there’s some one fighting with you.
+ - The woman is at the heart of the home. Let us pray that we women realize the reason for our existence: to love and be loved and through this love become instruments of peace in the world.
+ - You can pray while you work. Work doesn’t stop prayer and prayer doesn’t stop work. It requires only that small raising of the mind to him: I love you God, I trust you, I believe in you, I need you now. Small things like that. They are wonderful prayers.
+ - Every act of love is a work of peace no matter how small.
+ - Where does love begin? In our own homes. When does it begin? When we pray together. The family that prays together stays together.
+ - Be faithful in the little things, for in them our strength lies. To the good God nothing is little, because He is so great and we are so small.
+ - When Christ said: “I was hungry and you fed me,” he didn’t mean only the hunger for bread and for food; he also meant the hunger to be loved. Jesus himself experienced this loneliness.
+ - It is by forgiving that one is forgiven.
+ - Be perfect as your Father in heaven is perfect.
+ - Little things are indeed little, but to be faithful in little things is a great thing.
+ - Purity is the fruit of prayer.
+ - We do our work for Jesus and with Jesus. It’s not a matter of praying some times and working others. We pray the work.
+ - We have very little, so we have nothing to be preoccupied with. The more you have, the more you are occupied, the less you give. But the less you have, the more free you are.
+ - The fruit of faith is love.
+ - It is Christmas every time you let God love others through you.
+ - As far as I am concerned, the greatest suffering is to feel alone, unwanted, unloved. The greatest suffering is also having no one, forgetting what an intimate, truly human relationship is, not knowing what it means to be loved, not having a family or friends.
+ - Following Jesus is simple, but not easy. Love until it hurts, and then love more.
+ - I never look at the masses as my responsibility. I look at the individual. I can love only one person at a time. I can feed only one person at a time. Just one, one, one.
+ - The trees, the flowers, the plants grow in silence. The stars, the sun, the moon move in silence. Silence gives us a new perspective.
+ - We serve life, not because it is broken, but because it is holy.
+ - The family that prays together stays together, and if they stay together they will love one another as God has loved each one of them. And works of love are always works of peace.
+ - Love cannot remain by itself – it has no meaning. Love has to be put into action and that action is service.
+ - Prayer enlarges the heart until it is capable of containing God’s gift of Himself.
+ - Joy is very infectious; therefore, be always full of joy!
+ - The greatest good is what we do for others.
+ - I fear just one thing : Money! Greed was what motivated Judas to sell Jesus.
+ - No matter who says what, you should accept it with a smile and do your own work.
+ - If you can’t do great things, do little things with great love. If you can’t do them with great love, do them with a little love. If you can’t do them with a little love, do them anyway.
+ - To fear is to expect punishment. To love is to know we are immersed not in darkness, but in light.
+ - It is easy to love the people far away. It is not always easy to love those close to us.
+ - Let us make one point, that we meet each other with a smile, when it is difficult to smile. Smile at each other, make time for each other in your family.
+ - If you are kind, people may accuse you of ulterior motives. Be kind anyway.
+ - Doctors can heal the body, but it is music that uplifts the spirit.
+ - Peace begins with a smile. I will never understand all the good that a simple smile can accomplish.
+ - Prayer is as necessary as the air, as the blood in our bodies, as anything to keep us alive-to keep us alive to the grace of God.
+ - In loving one another through our works we bring an increase of grace and a growth in divine love.
+ - The ocean is made of drops.
+ - Life is love, enjoy it. Life is mystery, know it. Life is a promise, fulfill it.
+ - The first requirement for prayer is silence. People of prayer are people of silence.
+ - Joy is prayer; joy is strength, joy is love. God loves a cheerful giver. The best way we can show our gratitude to God and the people is to accept everything with joy.
+ - Give the world the best you have and you may get hurt. Give the world your best anyway.
+ - Just show up and things will happen.
+ - Sometimes people can hunger for more than bread. It is possible that our children, our husband, our wife, do not hunger for bread, do not need clothes, do not lack a house. But are we equally sure that none of them feels alone, abandonded, neglected, needing some affection? That, too, is poverty.
+ - We belong to each other.
+ - The first step to becoming is to will it.
+ - A beautiful death is for people who have lived like animals to die like angels.
+ - It’s only a drop in the ocean – but the ocean wouldn’t be the same without that drop.
+ - The more we can give in our silent prayer, the more we can give in our active life.
+ - If you give what you do not need, it is not giving.
+ - Prayer makes your heart bigger, until it is capable of containing the gift of God himself. Prayer begets faith, faith begets love, and love begets service on behalf of the poor.
+ - There are no great acts, only small acts done with great love.
+ - Today, if we have no peace, it is because we have forgotten that we belong to each other-that man, that woman, that child is my brother or my sister. If everyone could see the image of God in his neighbor, do you think we would still need tanks and generals?
+ - True love is love that causes us pain, that hurts, and yet brings us joy. That is why we must pray to God and ask Him to give us the courage to love.
+ - It takes a checkbook to change the world.
+ - If you find happiness, people may be jealous. Be happy anyway.
+ - People have forgotten what the human touch is, what it is to smile, for somebody to smile at them, somebody to recognize them, somebody to wish them well. The terrible thing is to be unwanted.
+ - People crave attention and appreciation more than they do bread.
+ - Let nothing perturb you, nothing frighten you. All things pass. God does not change. Patience achieves everything.
+ - Holiness grows so fast where there is kindness. The world is lost for want of sweetness and kindness. Do not forget we need each other.
+ - In the end, dear friend, it is always between us and God, not between us and them.
+ - Jesus has made Himself the Bread of Life to give us life. Night and day, He is there. If you really want to grow in love, come back to the Eucharist, come back to that Adoration.
+ - We must love one another as God loves each one of us. To be able to love, we need a clean heart. Prayer is what gives us a clean heart. The fruit of prayer is a deepening of faith and the fruit of faith is love. The fruit of love is service, which is compassion in action.
+ - Joy is strength.
+ - There is so much love in us all, but often we are too shy to express our love, and keep it bottled up inside us. We must learn to love, to love until it hurts, and we will know how to accept love.
+ - I think it is very beautiful for the poor to accept their lot, to share it with the passion of Christ. I think the world is being much helped by the suffering of the poor people.
+ - Success will win you false friends and true enemies – succeed anyway.
+ - You may be exhausted with work, you may even kill yourself, but unless your work is interwoven with love, it is useless. To work without love is slavery.
+ - Let us not use bombs and guns to overcome the world. Let us use love and compassion. Peace begins with a smile.
+ - Love has a hem to her garment that reaches to the very dust. It sweeps the stains from the streets and lanes, and because it can, it must.
+ - Peace begins with a smile-smile five times a day at someone you really don’t want to smile at. Do it for Peace.
+ - We must make our homes centers of compassion and forgive endlessly.
+ - Real prayer is union with God, a union as vital as that of the vine to the branch...
+ - If you ask children in the west where’s God, they’d point to the sky. If you ask children in India, they point at themselves.
+ - Be kind to each other. It is better to commit faults with gentleness than to work miracles with unkindness.
+ - My key to heaven is that I loved Jesus in the night.
+ - There is a famine in America. Not a famine of food, but of love, of truth, of life.
+ - We need prayer to understand God’s love for us. If we really mean to pray and want to pray we must be ready to do it now. These are only the first steps towards prayer but if we never make the first step with determination, we will not reach the last one: the presence of God.
+ - Prayer feeds the soul – as blood is to the body, prayer is to the soul – and it brings you closer to God.
+ - We need to find God, and he cannot be found in noise and restlessness. God is the friend of silence.
+ - When I was crossing into Gaza, I was asked at the checkpost whether I was carrying any weapons. I replied: Oh yes, my prayer books.
+ - Bring love into your home, for this is where our love for each other must start.
+ - We cannot condemn or judge or pass words that will hurt people. We don’t know in what way God is appearing to that soul and what God is drawing that soul to; therefore, who are we to condemn anybody?
+ - My mother and sister must be very happy to be home with God, and I am sure their love and prayers are always with me. When I go home to God, for death is nothing else but going home to God, the bond of love will be unbroken for all eternity.
+ - The most important medicine is tender love and care.
+ - The biggest disease today is not leprosy or tuberculosis, but rather the feeling of being unwanted.
+ - We must never be afraid to be a sign of contradiction for the world.
+ - Holiness is not the luxury of a few people, but a simple duty for you and me.
+ - There is no greater sickness in the world today than the lack of love.
+ - Gandhi felt fascinated at knowing Christ. He met Christians, and felt let down.
+ - I see God in every human being. When I wash the leper’s wounds I feel I am nursing the Lord himself. Is it not a beautiful experience?
+ - More tears are shed over answered prayers than unanswered ones.
+ - You are greater than you know.
+ - You who have received so much love, share it with others. Love others the way that God has loved you, with tenderness.
+ - Abortion is profoundly anti-women.
+ - Give! Give the love you have received to those around you. You must love with your time, your hands, and your hearts. You need to share all that you have.
+ - I try to give to the poor people for love what the rich could get for money.
+ - Never Let Anyone Come to You Without Coming Away Better and Happier.
+ - Let us be very sincere in our dealings with each other, and have the courage to accept each other as we are. Do not be surprised or become preoccupied at each other’s failures – rather, see and find in each other the good, for each one of us is created in the image of God.
+ - People are generally irrational, unreasonable and selfish. They deserve to be loved, anyway.
+ - The Cross will be for us as it was for Christ: proof of the greatest love.
+ - God is everywhere and in everything and without Him we cannot exist.
+ - Let’s not pray long, drawn-out prayers, but let’s pray short ones full of love. Let us pray on behalf of those who do not pray. Let us remember, if we want to be able to love, we must be able to pray!
+ - Souls of prayer are souls of great silence.
+ - Silence gives us a new way of looking at something.
+ - We learn humility through accepting humiliations cheerfully.
+ - Our life of poverty is as necessary as the work itself. Only in heaven will we see how much we owe to the poor for helping us to love God better because of them.
+ - If you are joyful, do not worry about lukewarmness. Joy will shine in your eyes and in your look, in your conversation and in your countenance. You will not be able to hide it because joy overflows.
+ - From the moment a soul has the grace to know God, she must seek.
+ - Joy is the characteristic by which God uses us to re-make the distressing into the desired, the discarded into the creative. Joy is prayer-Joy is strength-Joy is love-Joy is a net of love by which you can catch souls.
+ - Keep Giving Jesus to the people, not by words but by your example, by being in love with Jesus, by radiating holiness and spreading his fragrance of love everywhere you go. Just keep the joy of Jesus as your strength, be happy and at peace.
+ - Holy Angels, our advocates, our brothers, our counselors, our defenders, our enlighteners, our friends, our guides, our helpers, our intercessors – Pray for us.
+ - Love – the more you share with others, the more you have.
+ - My television is the tabernacle.
+ - At the hour of death when we come face-to-face with God, we are going to be judged on love; not how much we have done, but how much love we put into the doing.
+ - God doesn’t ask that we succeed in everything, but that we are faithful. However beautiful our work may be, let us not become attached to it. Always remain prepared to give it up, without losing your peace.
+ - Failure is nothing but the kiss of Jesus.
+ - What you are doing I cannot do, what I’m doing you cannot do, but together we are doing something beautiful for God, and this is the greatness of God’s love for us-To give us the opportunity to become holy through the works of love that we do because holiness is not the luxury of the few.
+ - All works of love are works of peace.
+ - If you really love one another, you will not be able to avoid making sacrifices.
+ - We should not serve the poor like they were Jesus. We should serve the poor because they are Jesus.
+ - Unless a life is lived for others, it is not worthwhile.
+ - You can find Calcutta anywhere in the world. You only need two eyes to see. Everywhere in the world there are people that are not loved, people that are not wanted nor desired, people that no one will help, people that are pushed away or forgotten. And this is the greatest poverty.
+ - I don’t claim anything of the work. It is his work. I am like a little pencil in his hand. That is all. He does the thinking. He does the writing. The pencil has nothing to do with it.
+ - The more you forget yourself, the more Jesus will think of you.
+ - To God there is nothing small. The moment we have given it to God, it becomes infinite.
+ - The trouble is that rich people, well-to-do people, very often don’t really know who the poor are; and that is why we can forgive them, for knowledge can only lead to love, and love to service. And so, if they are not touched by them, it’s because they do not know them.
+ - I want you to be concerned about your next door neighbor. Do you know your next door neighbor?
+ - Religion has nothing to do with compassion; it is our love for God that is the main thing because we have all been created for the sole purpose to love and be loved.
+ - The other day I dreamed that I was at the gates of heaven. And St. Peter said, ‘Go back to Earth, there are no slums up here.’
+ - There is always the danger that we may just do the work for the sake of the work. This is where the respect and the love and the devotion come in – that we do it to God, to Christ, and that’s why we try to do it as beautifully as possible.
+ - The fullness of our heart is expressed in our eyes, our touch, in what we write and say, in the way we walk and the way we receive and in the way we serve.
+ - Love is repaid by love alone!
+ - There are only two ways: either we love-and love in action is service – or we put hatred into action and destroy.
+ - God made the world for the delight of human beings.
+ - Though we are involved in social work, our goal is to be contemplatives at the heart of the world. We are with Jesus twenty-four hours a day. We do everything for Jesus. We do it all unto Jesus.
+ - Let us remain as empty as possible so that God can fill us up.
+ - We need to realize that poverty doesn’t only consist of being hungry for bread, but rather it is a tremendous hunger for human dignity. We need to love and to be someone for someone else.
+ - I know i am touching the living body of Christ in the broken bodies of the hungry and the suffering.
+ - Holiness does not consist in doing extraordinary things. It consists in accepting, with a smile, what Jesus sends us. It consists in accepting and following the will of God.
+ - The point is to do something, however small, and show you care through your actions by giving your time.
+ - It takes oil to keep the lamps burning.
+ - Spread love whenever you go...
+ - You have to be holy in your position as you are, and I have to be holy in the position that God has put me. So it is nothing extraordinary to be holy. Holiness is not the luxury of the few. Holiness is a simple duty for you and for me. We have been created for that.
+ - To choose always the hardest.
+ - The way to plan the family is natural family planning not contraception. In destroying the power of giving life, through contraception, a husband or wife is doing something to self, and so it destroys the gift of life in him or her.
+ - Hungry not only for bread – but hungry for love. Naked not only for clothing – but naked of human dignity and respect. Homeless not only for want of a home of bricks – but homeless because of rejection.
+ - Peace and war begin at home. If we truly want peace in the world, let us begin by loving one another in our own families. If we want to spread joy, we need for every family to have joy.
+ - You should never lose heart. God is merciful and kind- he has endowed you with the best gift- smile, which can make millions happy.
+ - If we were humble, nothing would change us-neither praise nor discouragement. If someone were to criticize us, we would not feel discouraged. If someone would praise us, we also would not feel proud.
+ - On certain continents poverty is more spiritual than material, a poverty that consists of loneliness, discouragement, and the lack of meaning in life.
+ - The coming of Jesus at Bethlehem brought joy to the world and to every human heart. may His coming this Christmas bring to each one of us that peace and joy that He desires to give.
+ - The fruit of love is service, the fruit of service is peace, and peace begins with a smile.
+ - In light of heaven, the worst suffering on earth, a life full of the most atrocious tortures on earth, will be seen to be no more serious than one night in an inconvenient hotel.
+ - Try to put in the hearts of your children a love for home. Make them long to be with their families. So much sin could be avoided if our people really loved their homes.
+ - To show great love for God and our neighbor we need not do great things. It is how much love we put in the doing that makes our offering something beautiful for God.
+ - I belong to Jesus. He must have the right to use me without consulting me.
+ - There is more hunger for love and appreciation in this world than for bread.
+ - My secret is a very simple one: I pray. To pray to Christ is to love him.
+ - Joy is a sign of generosity. When you are full of joy, you move faster and you want to go about doing good to everyone.
+ - If you have a sick or lonely person at home, be there. Maybe just to hold a hand, maybe just to give a smile, that is the greatest, the most beautiful work.
+ - We don’t need bombs and guns to destroy, to bring peace – just get together, love one another, bring that peace, that joy, that strength of presence of each other in the home. And we will be able to overcome all the evil that is in the world.
+ - There is only one God and He is God to all; therefore it is important that everyone is seen as equal before God. I’ve always said we should help a Hindu become a better Hindu, a Muslim become a better Muslim, a Catholic become a better Catholic.
+ - The more you have, the more you are occupied, the less you give. But the less you have the more free you are. Poverty for us is a freedom. It is not mortification, a penance. It is joyful freedom. There is no television here, no this, no that. But we are perfectly happy.
+ - What we need is love without getting tired.
+ - Let us touch the dying, the poor, the lonely and the unwanted according to the graces we have received and let us not be ashamed or slow to do the humble work.
+ - Our Father, here I am, at your disposal, your child, to use me to continue your loving the world, by giving Jesus to me and through me, to each other that we allow Jesus to love in us and through us with the love with which His Father loves him.
+ - Let us be very sincere in our dealings with each other and have the courage to accept each other as we are.
+ - At the moment of death we will not be judged according to the number of good deeds we have done or by the diplomas we have received in our lifetime. We will be judged according to the love we have put into our work.
+ - You know my God. My God is called love.
+ - Every adult was once a child free from prejudice.
+ - The joy of the presence of Jesus, you must be able to give wherever you go. But you cannot give what you don’t have. That’s why you need a pure heart, a pure heart that you will receive as a fruit of your prayer, as a fruit of your oneness with Christ.
+ - Everything starts from prayer. Without asking God for love, we cannot possess love and still less are we able to give it to others. Just as people today are speaking so much about the poor but they do not know or talk to the poor, we too cannot talk so much about prayer and yet not know how to pray.
+ - Suffering is nothing by itself. But suffering shared with the passion of Christ is a wonderful gift, the most beautiful gift, a token of love.
+ - Let anyone who comes to you go away feeling better and happier. Everyone should see goodness in your face, in your eyes, in your smile. Joy shows from the eyes. It appears when we speak and walk. It cannot be kept closed inside us. It reacts outside. Joy is very infectious.
+ - Put your sins in the chalice for the precious blood to wash away. One drop is capable of washing away the sins of the world.
+ - What is called generosity is usually only the vanity of giving; we enjoy the vanity more. If you can’t feed a hundred people, then just feed one.
+ - People who love each other fully and truly are the happiest people in the world. They may have little, they may have nothing, but they are happy people. Everything depends on how we love one another.
+ - Today it is fashionable to talk about the poor. Unfortunately, it is not fashionable to talk with them.
+ - The simplest way of becoming his light is by being kind and loving, thoughtful, and sincere with others: ‘By this they will know that you are his disciples.’
+ - I realized that I had the call to take care of the sick and the dying, the hungry, the naked, the homeless – to be God’s Love in action to the poorest of the poor. That was the beginning of the Missionaries of Charity.
+ - God loves me. I’m not here just to fill a place, just to be a number. He has chosen me for a purpose. I know it.
+ - I see Jesus in every human being. I say to myself, this is hungry Jesus, I must feed him. This is sick Jesus. This one has leprosy or gangrene; I must wash him and tend to him. I serve becuase I love Jesus.
+ - Don’t aim for success if you want it, just do what you love and believe in, Let no one ever come to you without leaving better and happier and it will come naturally.
+ - God Is Using Gianna Jessen To Remind The World, That Each Human Being Is Precious To Him.
+ - Yesterday is gone and tomorrow has not yet come; we must live each day as if it were our last so that when God calls us we already, and prepared, to die with a clean heart.
+ - Look at the cross and you will know what one soul means to Jesus.
+ - There is hunger for ordinary bread, and there is hunger for love, for kindness, for thoughtfulness, and this is the great poverty that makes people suffer so much.
+ - God is never late, but rarely early.
+ - The more you have, the more you are occupied, the less you give.
+ - You who have received so much love, show your love by protecting the sacredness of life. The sacredness of life is the greatest gifts that God has given us.
+ - And if we can accept that a mother can kill her own child, how can we tell other people not to kill one another?
+ - Everything that is not given is lost.
+ - God will never, never, never let us down if we have faith and put our trust in Him. He will always look after us. So we must cleave to Jesus. Our whole life must simply be woven into Jesus.
+ - In the home begins the disruption of the peace of the world.
+ - If our bones were not sending whispers of doubt to our hearts, there would be no need for prayer at all.
+ - A Christian is the dwelling place of the living God. He created me, he chose me, He came to dwell in me, because he wanted me. Now that you have known how much God is in love with you it is but natural that you spend the rest of your life radiating that love.
+ - Living intensely each present day means letting Christ dwell within you. His words are so clear: Today I would like to enter your home.
+ - Death, in the final analysis, is only the easiest and quickest means to go back to God. If only we could make people understand that we come from God and that we have to go back to Him!
+ - Nothing makes you happier than when you really reach out in mercy to someone who is badly hurt.
+ - God does not demand that I be succesful. God demands that I be faithful. When facing God, results are not important. Faithfulness is what is important.
+ - Let us love one another as God loves each one of us. And where does this love begin? In our own home. How does it begin? By praying together.
+ - I think that a person who is attached to riches, who lives with the worry of riches, is actually very poor. If this person puts his money at the service of others, then he is rich, very rich.
+ - Unless this love is among us, we can kill ourselves with work and it will only be work, not love. Work without love is slavery.
+ - Put yourself completely under the influence of Jesus, so that he may think his thoughts in your mind, do his work through your hands, for you will be all-powerful with him to strengthen you.
+ - It is a just retribution for improper sexual misconduct.
+ - Words lead to deeds, they prepare the soul, make it ready, and move it to tenderness.
+ - We are not here to be successful, we are here to be FAITHFUL.
+ - How sad it is when someone comes to you looking for Jesus and all they see is you.
+ - So many signatures for such a small heart.
+ - I can do only one thing, like a little dog follow closely the Master’s footsteps. Pray that I be a cheerful dog.
+ - God has created us to love and to be loved, and this is the beginning of prayer-to know that He loves me, that I have been created for greater things.
+ - I picked up a man from the street, and he was eaten up alive from worms. Nobody could stand him, and he was smelling so badly. I went to him to clean him, and he asked, ‘Why do you do this?’ I said, ‘Because I love you.’
+ - Even the rich are hungry for love, for being cared for, for being wanted, for having someone to call their own.
+ - Our poor people are great people, a very lovable people, They don’t need our pity and sympathy. They need our understanding love and they need our respect. We need to tell the poor that they are somebody to us that they, too, have been created, by the same loving hand of God, to love and be loved.
+ - Once we take our eyes away from ourselves, from our interests, from our own rights, privileges, ambitions – then they will become clear to see Jesus around us.
+ - The right to life does not depend, and must not be contingent, on the pleasure of anyone else, not even a parent or sovereign.
+ - The poor give us much more than we give them. They’re such strong people, living day to day with no food. And they never curse, never complain. We don’t have to give them pity or sympathy. We have so much to learn from them.
+ - Poverty was not created by God. It is we who have caused it, you and I through our egotism.
+ - Am I ever angry or frustrated? I only feel angry sometimes when I see waste, when things that we waste are what people need, things that would save them from dying. Frustrated? No, never.
+ - Give love to your children, to a wife or husband, to a next-door neighbour.
+ - Riches, both material and spiritual, can choke you if you do not use them fairly. For not even God can put anything in a heart that is already full.
+ - We must free ourselves to be filled by God. Even God cannot fill what is full.
+ - It is impossible to love God without loving our neighbor.
+ - Recovering in a Calcutta, India hospital. I think I’m more difficult than critical.
+ - You can’t do God’s work without suffering.
+ - Let us not love by words alone, but let us love until it hurts.
+ - If faith is lacking, it is because there is too much selfishness, too much concern for personal gain. For faith to be true, it has to be generous and loving. Love and faith go together, they complete each other.
+ - Be humble and you will never be disturbed. It is very difficult in practice because we all want to see the result of our work. Leave it to Jesus.
+ - I have come to realize more and more that the greatest disease and the greatest suffering is to be unwanted, unloved, uncared for, to be shunned by everybody, to be just nobody.
+ - Holiness is not a luxury for the few; it is not just for some people. It is meant for you and for me and for all of us. It is a simple duty, because if we learn to love, we learn to be holy.
+ - When a poor person dies I want then to die in the arms of somebody who loves them. I want them to be able to look for the last time into the eyes of somebody who cares for them.
+ - If you are discouraged it is a sign of pride, because it shows you trust in your own powers.
+ - Prayer does not demand that we interrupt our work, but that we continue working as if it were a prayer.
+ - Let me thus praise You in the way You love best: by shining on those around me. Let me preach You without preaching, not by words, but by my example, by the catching force, the sympathetic influence of what I do, the evident fullness of the love my heart bears to You. Amen.
+ - People ask me what advice I have for a married couple struggling in their relationship. I always answer: pray and forgive. And to young people from violent homes, I say: pray and forgive. And again, even to the single mother with no family support: pray and forgive.
+ - My prayer for you is that you come to understand and have the courage to answer Jesus’ call to you with the simple word ‘yes’.
+ - We must become holy, not because we want to feel holy, but because Christ must be able to live his life fully in us.
+ - Our poverty is freedom. This is our poverty – the giving up our freedom to dispose of things, to choose, to possess.
+ - Because I cannot rely on myself, I rely on Him, twenty-four hours a day.
+ - Love: A fruit always in season.
+ - It often happens that those who spend their time giving light to others, remain in darkness themselves.
+ - If there are poor on the moon, we will go there too.
+ - To be able to proclaim the Good News to the poor we must know what is poverty.
+ - We complicate prayer as we complicate many things. It is to love Jesus with undivided love-for you, for me, for all of us. And that undivided love is put into action when we do as Jesus said, love as I have loved you.
+ - I do not agree with a big way of doing things. What matters is the individual. If we wait till we get numbers, then we will be lost in the numbers and we will never be able to show that love and respect for the person.
+ - He who is faultless does not care for the opinion of others.
+ - Silence gives us a new outlook on everything. We need silence to be able to touch souls. The essential thing is not what we say but what God says to us and through us.
+ - Maybe if I didn’t pick up that one person, I wouldn’t have picked up forty-two thousand...
+ - You weren’t created just to consume resources, you were put on this Earth to make a contribution.
+ - Dealing with the media is more difficult that bathing a leper.
+ - Cheerfulness is a sign of a generous and mortified person who forgetting all things, even herself, tries to please her God in all she does for souls. Cheerfulness is often a cloak which hides a life of sacrifice and a continual union with God.
+ - The success of love is in the loving – it is not in the result of loving. Of course it is natural in love to want the best for the other person, but whether it turns out that way or not does not determine the value of what we have done.
+ - There must be a reason why some people can afford to live well. They must have worked for it. I only feel angry when I see waste. When I see people throwing away things that we could use.
+ - Each time people come into contact with us, they must become different and better people because of having met us. We must radiate God’s love.
+ - Prayer is in all things, in all gestures.
+ - When you look at the Sacred Host you understand how much Jesus loves you now.
+ - I love all religions, but I am in love with my own.
+ - People are hungry for God. Do you see that? Quite often we look but do not see. We are all passing through this world. We need to open our eyes and see.
+ - Any work of love brings a person face to face with God.
+ - To be pure, to remain pure, can only come at a price, the price of knowing God and loving him enough to do his will. He will always give us the strength we need to keep purity as something as beautiful for him.
+ - Every human being in that case resembles Christ in his loneliness; and that is the hardest part, that’s real hunger.
+ - It is more difficult to fight poverty in a rich country than in a poor one.
+ - All of us must be saints in this world. Holiness is a duty for you and me. So let’s be saints and so give glory to the Father.
+ - If you are hungry to hear the voice of God, you will hear. To hear, you have to cut out all other things.
+ - What you do to these men on California’s Death Row, you do to God.
+ - Faith is a gift from God and he gives it to whomever he chooses.
+ - Many people mistake our work for our vocation. Our vocation is the love of Jesus.
+ - They should give until it hurts, maybe a very small thing, maybe just a packet of cigarettes, but instead of by smoking that one packet, maybe I share that packet with somebody who has not got even one cigarette, and that’s the beginning of love, to give until it hurts.
+ - I begin each day with holy Mass, receiving Jesus hidden under the appearance of a simple piece of bread. Then I go out into the streets and I find the same Jesus hidden in the dying destitute, the AIDS patients, the lepers, the abandoned children, the hungry, and the homeless. It’s the same Jesus.
+ - Love is proved by deeds; the more they cost us, the greater the proof of our love.
+ - Love is a fruit in season at all times, and within reach of every hand. Anyone may gather it and no limit is set. Everyone can reach this love through meditation, spirit of prayer, and sacrifice, by an intense inner life.
+ - The less we have, the more we give. Seems absurd, but it’s the logic of love.
+ - We must never get into the habit of being preoccupied with the future. There is no reason to do so. God is there.
+ - February 1997 – National Prayer Breakfast in Washington attended by the President and the First Lady. “What is taking place in America,” she said, “is a war against the child. And if we accept that the mother can kill her own child, how can we tell other people not to kill one another.”
+ - Lord give me this seeing faith, then my work will never be monotonous. I will find joy in humoring the fancies and gratifying the wishes of all poor sufferers. O beloved sick, how doubly dear you are to me, when you personify Christ; and what a privilege is mine to be allowed to tend you.
+ - Perfect prayer does not consist in many words, but in the fervor of the desire which raises the heart to Jesus.
+ - You have to do that here in your country. You must come to know the poor. Maybe our people here have material things, everything, but I think that if we all look into our own homes, how difficult we find it sometimes to smile at each other, and that the smile is the beginning of love.
+ - Sometimes it is harder for us to smile at those who live with us, the immediate members of our families, than it is to smile at those who are not so close to us. Let us never forget: love begins at home.
+ - Real prayer is union with God,...
+ - I have the feeling that we are in such a hurry that we do not have time to look at one another and smile.
+ - Holiness is doing God’s will with a smile.
+ - Do not look for Jesus away from yourselves. He is not out there; He is in you. Keep your lamp burning, and you will recognize him.
+ - The time we spend in having our daily audience with God is the most precious part of the whole day.
+ - I don’t think there is anyone who needs God’s help as much as I do. Sometimes I feel so helpless and weak. I think that is why God uses me. Because I cannot depend on my own strength, I rely on Him twenty-four hours a day.
+ - If we are Christians, we must look like Christ – this is my deep conviction.
+ - If I’d never have picked up the first person, I’d never have picked up the 42,000 in Calcutta.
+ - Why can’t there be love that never gets tired?
+ - I feel called to help individuals, to love each human being. I never think in terms of crowds in general but in terms of persons. Were I to think about crowds, I would never begin anything.
+ - The highest form of worship is to find the least among you and treat them like Jesus.
+ - The poorest of the poor are those who feel that they are unloved.
+ - Each of us is merely a small instrument; all of us, after accomplishing our mission, will disappear.
+ - In this world, there is no clarity. There is only love and action.
+ - I remember I picked up a person from the street who was nearly eaten up with maggots, and he said, I have lived like an animal, but I am going to die like an angel, loved and cared for.
+ - It is only by frequent deaths of ourselves and our self-centered desires that we can come to live more fully.
+ - The purpose of guilt is to bring us to the Lord, after that it has no purpose.
+ - A Mother is the heart of the home.
+ - It is much easier to conquer a country than to conquer ourselves.
+ - People are hungry for something more beautiful, for something greater than people round about can give. There is a great hunger for God in the world today. Everywhere there is much suffering, but there is also great hunger for God and love for each other.
+ - There is a tremendous strength that is growing in the world through sharing together, praying together, suffering together, and working together.
+ - Somebody loves us, too – God Himself. We have been created to love and to be loved.
+ - I have never found a problem with people from different religions praying together. What I have found is that people are just hungry for God, and be they Christian or Muslim we invite them to pray with us.
+ - Do we know our poor people? Do we know the poor in our house, in our family? Perhaps they are not hungry for a piece of bread. Perhaps our children, husband, wife, are not hungry, or naked, or dispossessed, but are you sure there is no one there who feels unwanted, deprived of affection?
+ - Communion with Christ gives us our strength, our joy, and our love.
+ - Without our suffering, our work would simply be social work, very good and helpful, but it would not be the work of Jesus Christ, not part of the Redemption.
+ - We do not strive for spectacular actions. What counts is the gift of yourself, the degree of love you put into each of your deeds.
+ - If you are looking for vocations, as a community have adoration every day. Once the Missionaries of Charity started daily adoration, their vocations doubled.
+ - Love should be as natural as living and breathing.
+ - Give a glass of water, you give it to me. Receive a little child, you receive me.
+ - We must pray to Jesus to give us that tenderness of the Eucharist.
+ - If you have not the experience, ask. There is no shame in asking, but do not pretend you know when you don’t.
+ - A direct killing of the innocent child, ‘Murder’ by the mother herself.
+ - We have not come into the world to be numbered; we have been created for a purpose; for great things: to love and be loved.
+ - Joy is strength- Joy is love – Joy is a net of love by which you can catch souls. She gives most who gives with Joy.
+
+500 quotes

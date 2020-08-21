@@ -1,0 +1,88 @@
+ - I would send the complete works of Johann Sebastian Bach into outer space on the Voyager spacecraft. But that would be boasting.
+ - Statistically, the probability of any one of us being here is so small that you’d think the mere fact of existing would keep us all in a contented dazzlement of surprise.
+ - The capacity to blunder slightly is the real marvel of DNA. Without this special attribute, we would still be anaerobic bacteria and there would be no music.
+ - The whole dear notion of one’s own Self-marvelous old free-willed, free- enterprising, autonomous, independent, isolated island of a Self- is a myth.
+ - It is in our collective behavior that we are most mysterious.
+ - Selfness is an essential fact of life. The thought of nonselfness, precise sameness is terrifying.
+ - Good applied science in medicine, as in physics, requires a high degree of certainty about the basic facts at hand, and especially about their meaning, and we have not yet reached this point for most of medicine.
+ - Man is embedded in nature.
+ - We need science, more and better science, not for its technology, not for leisure, not even for health or longevity, but for the hope of wisdom which our kind of culture must acquire for its survival.
+ - Animals have genes for altruism, and those genes have been selected in the evolution of many creatures because of the advantage they confer for the continuing survival of the species.
+ - The gift of language is the single human trait that marks us all genetically, setting us apart from the rest of life.
+ - Science is founded on uncertainty. Each time we learn something new and surprising, the astonishment comes with the realization that we were wrong before.
+ - The dilemma of modern medicine, and the underlying central flaw in medical education and, most of all, in the training of interns, is the irresistible drive to do something, anything. It is expected by patients and too often agreed to by their doctors, in the face of ignorance.
+ - It is not a simple life to be a single cell, although I have no right to say so, having been a single cell so long ago myself that I have no memory at all of that stage of my life.
+ - Good science is done by being curious in general, by asking questions all around, by acknowledging the likelihood of being wrong and taking this in good humor for granted, by having a deep fondness for nature, and by being made jumpy and nervous by ignorance.
+ - I will confess that I have no more sense of what goes on in the mind of mankind than I have for the mind of an ant.
+ - Sometimes you get a glimpse of a semicolon coming, a few lines farther on, and it is like climbing a steep path through woods and seeing a wooden bench just at a bend in the road ahead, a place where you can expect to sit for a moment, catching your breath.
+ - The greatest of all the accomplishments of 20th century science has been the discovery of human ignorance.
+ - Our behavior toward each other is the strangest, most unpredictable, and most unaccountable of all the phenomena with which we are obliged to live. In all of nature, there is nothing so threatening to humanity as humanity itself.
+ - Society evolves not by shouting each other down, but by the unique capacity of unique, individual human beings to comprehend each other.
+ - We are at our human finest, dancing with our minds, when there are more choices than two. Sometimes there are ten, even twenty different ways to go, all but one bound to be wrong, and the richness of the selection in such situations can lift us onto totally new ground.
+ - Altruism has always been one of biology’s deep mysteries. Why should any animal, off on its own, specified and labeled by all sorts of signals as its individual self, choose to give up its life in aid of someone else?
+ - Survival, in the cool economics of biology, means simply the persistence of one’s own genes in the generations to follow.
+ - We leave traces of ourselves wherever we go, on whatever we touch.
+ - We are built to make mistakes, coded for error.
+ - We are spectacular splendid manifestations of life. We have language. We have affection. And finally, and perhaps best of all, we have music.
+ - Cats are a standing rebuke to behavioral scientists wanting to know how the minds of animals work. The mind of a cat is an unscrutable mystery.
+ - It is not so bad being ignorant if you are totally ignorant; the hard thing is knowing in some detail the reality of ignorance...
+ - The greatest single achievement of nature to date was surely the invention of the molecule DNA.
+ - It is a distortion, with something profoundly disloyal about it, to picture the human being as a teetering, fallible contraption, always needing, watching and patching, always on the verge of flapping to pieces.
+ - I don’t want to be reincarnated, that’s for sure. When you’ve had rewarding experiences in your life – a loving family, friends – you don’t need additional reassurances that you’re going to do something with a new cast of characters. I’d just as soon pass.
+ - We spend our time sending messages to each other, talking and trying to listen at the same time, exchanging information. This seems to be our most urgent biological function; it is what we do with our lives.
+ - The uniformity of the earth’s life, more astonishing than its diversity, is accountable by the high probability that we derived, originally, from some single cell, fertilized in a bolt of lightning as the earth cooled.
+ - We habitually engage in meddling with nature. Until this century most of this meddling was good. Witness the preservation of the European countryside. But since then we’ve smoked it up and littered it and dumped too much in too many waters. I don’t think it’s our privilege to behave this way.
+ - Of all celestial bodies within reach or view, as far as we can see, out to the edge, the most wonderful and marvellous and mysterious is turning out to be our own planet earth. There is nothing to match it anywhere, not yet anyway.
+ - We are, perhaps, uniquely among the earth’s creatures, the worrying animal. We worry away our lives, fearing the future, discontent with the present, unable to take in the idea of dying, unable to sit still.
+ - Ants are so much like human beings as to be an embarrassment. They farm fungi, raise aphids as livestock, launch armies into war, use chemical sprays to alarm and confuse enemies, capture slaves, engage in child labour, exchange information ceaselessly. They do everything but watch television.
+ - At this early stage in our evolution, now through our infancy and into our childhood and then, with luck, our growing up, what our species needs most of all, right now, is simply a future.
+ - Ants are more like the parts of an animal than entities on their own. They are mobile cells, circulating through a dense connective tissue of other ants in a matrix of twigs. The circuits are so intimately interwoven that the anthill meets all the essential criteria of an organism.
+ - We are educated to be amazed by the infinite variety of life forms in nature. We are, I believe, only at the beginning of being flabbergasted by its unity.
+ - Montaigne simply turns his mind loose and writes whatever he feels like writing. Mostly, he wants to say that reason is not a special, unique gift of human beings, marking us off from the rest of nature.
+ - Chemical waste products are the droppings of science.
+ - In real life, every field of science is incomplete, and most of them – whatever the record of accomplishment during the last 200 years – are still in their very earliest stages.
+ - We have come a long way on that old molecule DNA.
+ - It is in our genes to understand the universe if we can, to keep trying even if we cannot, and to be enchanted by the act of learning all the way.
+ - Everything here is alive thanks to the living of everything else.
+ - It hurts the spirit, somehow, to read the word environments, when the plural means that there are so many alternatives there to be sorted through, as in a market, and voted on.
+ - We have dominated and overruled nature, and from now on the earth is ours, a kitchen garden until we learn to make our own chlorophyll and float it out in the sun inside plastic mebranes. We will build Scarsdale on Mount Everest.
+ - As a people, we have become obsessed with Health. There is something fundamentally, radically unhealthy about all this. We do not seem to be seeking more exuberance in living as much as staving off failure, putting off dying. We have lost all confidence in the human body.
+ - If we had better hearing, and could discern the descants of sea birds, the rhythmic tympani of schools of mollusks, or even the distant harmonics of midges hanging over meadows in the sun, the combined sound might lift us off our feet.
+ - Things are bound to begin happening if you’ve got your wits about you. You create the lucky accidents.
+ - Well, biology today as I see it has an amiable look – quite different from the 19th-century view that the whole arrangement of nature is hostile, ‘red in tooth and claw.’ That came about because people misread Darwin’s ‘survival of the fittest.’
+ - If an idea cannot move on its own, pushing it doesn’t help; best to let it lie there.
+ - Given any new technology for transmitting information, we seem bound to use it for great quantities of small talk. We are only saved by music from being overwhelmed by nonsense.
+ - I suggest that the introductory courses in science, at all levels from grade school through college, be radically revised. Leave the fundamentals, the so-called basics, aside for a while, and concentrate the attention of all students on the things that are not known.
+ - We pass thoughts around, from mind to mind, so compulsively and with such speed that the brains of mankind often appear, functionally, to be undergoing fusion.
+ - It’s just plain learning something that you didn’t know. There is a real aesthetic experience in being dumbfounded.
+ - If we are to be destroyed we will do it ourselves by warfare with thermonuclear weaponry.
+ - The cloning of humans is on most of the lists of things to worry about from Science, along with behaviour control, genetic engineering, transplanted heads, computer poetry and the unrestrained growth of plastic flowers.
+ - It is from the progeny of this parent cell that we all take our looks; we still share genes around, and the resemblance of the enzymes of grasses to those of whales is in fact a family resemblance.
+ - I agree that you might clone some people who would look amazingly like their parental cell donors, but the odds are that they’d be almost as different as you or me, and certainly more different than any of today’s identical twins.
+ - The most solid piece of scientific truth I know of is that we are profoundly ignorant about nature.
+ - I have always had a bad memory, as far back as I can remember.
+ - The central task of science is to arrive, stage by stage, at a clearer comprehension of nature, but this does not at all mean, as it is sometimes claimed to mean, a search for mastery over nature.
+ - I can say, if I like, that social insects behave like the working parts of an immense central nervous system: the termite colony is an enormous brain on millions of legs; the individual termite is a mobile neurone.
+ - We can take some gratification at having come a certain distance in just a few thousand years of our existence as language users, but it should be a deeper satisfaction, even an exhilaration, to recognize that we have such a distance still to go.
+ - If you want to use a cliche you must take full responsibility for it yourself and not try to fob it off on anon., or on society.
+ - Doctors, dressed up in one professional costume or another, have been in busy practice since the earliest records of every culture on earth. It is hard to think of a more dependable or enduring occupation, harder still to imagine any future events leading to its extinction.
+ - Worrying is the most natural and spontaneous of all human functions.
+ - We still think of human disease as the work of an organized, modernized kind of demonology, in which the bacteria are the most visible and centrally placed of our adversaries. We assume that they must somehow relish what they do.
+ - I cannot think of a single field in biology or medicine in which we can claim genuine understanding, and it seems to me the more we learn about living creatures, especially ourselves, the stranger life becomes.
+ - We have yet to learn how to retain our humaneness when assembled in masses.
+ - I don’t think that the permanence of the individual human soul is an indispensable part of religious thought.
+ - A multitude of bees can tell the time of day, calculate the geometry of the sun’s position, argue about the best location for the next swarm. Bees do a lot of close observing of other bees; maybe they know what follows stinging and do it anyway.
+ - Music is the effort we make to explain to ourselves how our brains work. We listen to Bach transfixed because this is listening to a human mind.
+ - If we have learned anything at all in this century, it is that all new technologies will be put to use, sooner or later, for better or worse, as it is in our nature to do.
+ - I won’t compare ants and people, but ants give us a useful model of how single members of a community can become so organized that they end up resembling, in effect, one big collective brain. Our own exploding population and communication technology are leading us that way.
+ - In the fields I know best, among the life sciences, it is required that the most expert and sophisticated minds be capable of changing course – often with a great lurch – every few years.
+ - Most things get better by themselves. Most things, in fact, are better by morning.
+ - It is the very strangeness of nature that makes science engrossing. That ought to be at the center of science teaching. There are more than seven-times-seven types of ambiguity in science, awaiting analysis. The poetry of Wallace Stevens is crystal-clear alongside the genetic code.
+ - It is my belief, based partly on personal experience but partly also arrived at by looking around at others, that childhood lasts considerably longer in the males of our species than in the females.
+ - Left to ourselves, mechanistic and autonomic, we hanker for friends.
+ - The great secret of doctors, known only to their wives, but still hidden from the public, is that most things get better by themselves; most things, in fact, are better in the morning.
+ - I do not agree with this century’s fashion of running down the human species as a failed try, a doomed sport. At our worst, we may be going through the early stages of adolescence, and everyone remembers what that is like.
+ - The earliest sensation at the onset of illness, often preceding the recognition of identifiable symptoms, is apprehension. Something has gone wrong, and a glimpse of mortality shifts somewhere deep in the mind. It is the most ancient of our fears.
+ - The human mind is not meant to be governed, certainly not by any book of rules yet written; it is supposed to run itself, and we are obliged to follow it along, trying to keep up with it as best we can.
+
+86 quotes

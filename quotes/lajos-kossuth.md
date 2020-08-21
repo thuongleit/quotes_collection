@@ -1,0 +1,50 @@
+ - Ethics may be defined as the obligations of morality.
+ - The unspoken word never does harm.
+ - I can understand Communism, but not Socialism.
+ - The power that is supported by force alone will have cause often to tremble.
+ - I am a man of peace, God knows how I love peace; but I hope I shall never be such a coward as to mistake oppression for peace.
+ - Humility is the part of wisdom, and is most becoming in men. But let no one discourage self-reliance; it is, of all the rest, the greatest quality of true manliness.
+ - The brave are parsimonious of threats.
+ - I am a straightforward man.
+ - It is well to be independent also well not to be neutral.
+ - Neutrality, as a lasting principle, is an evidence of weakness.
+ - Let him who looks for a monument to Washington look around the United States. Your freedom, your independence, your national power, your prosperity, and your prodigious growth are a monument to him.
+ - Hungary is, in a word, in a state of WAR against the Hapsburg dynasty, a war of legitimate defence, by which alone it can ever regain independence and freedom.
+ - The era of Christianity peace, brotherhood, the Golden Rule as applied to governmental matters is. yet to come, and when it comes, then, and then only, will the future of nations be sure.
+ - The principle of evil in Europe is the enervating spirit of Russian absolutism.
+ - And if you cannot remain indifferent, you must resolve to throw your weight into that balance in which the fate and condition of man is weighed.
+ - Light has spread, and even bayonets think.
+ - Argument is not always truth.
+ - The cause of freedom is identified with the destinies of humanity, and in whatever part of the world it gains ground by and by, it will be a common gain to all those who desire it.
+ - It is the surmounting of difficulties that makes heroes.
+ - I believe that the confidence of Hungary in me is not shaken by misfortune nor broken by my calumniators.
+ - Nationality is the aggregated individuality of the greatest men of the nation.
+ - Now that I am a deputy, I will cease to be an agitator.
+ - Yet my humble capacity has not preserved me from calumnies.
+ - To know a people’s character, we must see it at its homes, and look chiefly to the humbler abodes where that portion of the people dwells which makes the broad basis of the national prosperity.
+ - The tongue of man is powerful enough to render the ideas which the human intellect conceives; but in the realm of true and deep sentiments it is but a weak interpreter. These are inexpressible, like the endless glory of the Omnipotent.
+ - Liberty is a principle; its community is its security; exclusiveness is its doom.
+ - In exile, I have tried to profit by the past and prepare for the future.
+ - It is chiefly in New York that I feel induced to urge this, because New York is, by innumerable ties, connected with Europe – more connected than several parts of Europe itself.
+ - My nomination to be Governor was not to gratify ambition.
+ - No man can force the harp of his own individuality into the people’s heart; but every man may play upon the chords of the people’s heart, who draws his inspiration from the people’s instinct.
+ - Fear must rule in a despotism.
+ - My principles in respect of religious interest are two, – one is, that the Church shall not meddle with politics, and the government shall not meddle with religion.
+ - The policy of the house of Austria, which aimed at destroying the independence of Hungary as a state, has been pursued unaltered for three hundred years.
+ - Judgment of the people is often wiser than the wisest men.
+ - The Hungarian ministry begged the king earnestly to issue orders to all troops and commanders of fortresses in Hungary, enjoining fidelity to the Constitution, and obedience to the ministers of Hungary.
+ - In my opinion, the form of Government may be different in different countries, according to their circumstances, their wishes, their wants. England loves her Queen, and has full motive to do so.
+ - You must be a power on earth, and must therefore accept all the consequences of this position.
+ - I have to thank the People, the Congress, and the Government of the United States for my liberation.
+ - The time draws near, when a radical change must take place for the whole world in the management of diplomacy.
+ - History is the revelation of Providence.
+ - Bravery is often too sharp a spur.
+ - If I had undertaken the practical direction of military operations, and anything went amiss, I feared that my conscience would torture me, as guilty of the fall of my country, as I had not been familiar with military tactics.
+ - The protection of God cannot, without sacrilege, be invoked but in behalf of justice and right.
+ - I will not become a Napoleon nor an Alexander, and labour for my own ambition; but I will labour for freedom and for the moral well-being of man.
+ - Now since France has three times in sixty years failed to obtain practical results from Political revolutions, all Europe is apt to press forward into new Social doctrine to regulate the future.
+ - I consider that it is on instruction and education that the future security and direction of the destiny of every nation chiefly and fundamentally rests.
+ - Even in political considerations, now-a-days, you have stronger motives to feel interested in the fate of Europe than in the fate of the Central or Southern parts of America.
+ - Your generous part in my liberation is taken by the world for the revelation of the fact, that the United States are resolved not to allow the despots of the world to trample on oppressed humanity.
+
+48 quotes

@@ -1,0 +1,502 @@
+ - It is easy to sit up and take notice, What is difficult is getting up and taking action.
+ - When you doubt your power, you give power to your doubt.
+ - When we drink coffee, ideas march in like the army.
+ - Love is the poetry of the senses.
+ - The more one judges, the less one loves.
+ - All happiness depends on courage and work.
+ - Behind every great fortune there is a crime.
+ - Finance, like time, devours its own children.
+ - Our greatest fears lie in anticipation.
+ - Resignation is a daily suicide.
+ - Reading brings us unknown friends.
+ - One hour of love has a whole life in it.
+ - Power is not revealed by striking hard or often, but by striking true.
+ - No navigator has yet traced lines of latitude and longitude on the conjugal sea.
+ - To speak of love is to make love.
+ - A good husband is never the first to go to sleep at night or the last to awake in the morning.
+ - Solitude is fine but you need someone to tell that solitude is fine.
+ - Our worst misfortunes never happen, and most miseries lie in anticipation.
+ - A mother’s happiness is like a beacon, lighting up the future but reflected also on the past in the guise of fond memories.
+ - There are no principles; there are only events. There is no good and bad, there are only circumstances.
+ - A woman knows the face of the man she loves as a sailor knows the open sea.
+ - Passion is born deaf and dumb.
+ - I believe in the incomprehensibility of God.
+ - There are two histories : official history, lying, and then secret history, where you find the real causes of events.
+ - The habits of life form the soul, and the soul forms the countenance.
+ - Love is not only a feeling, it is also an art. A simple word, a sensitive precaution, a mere nothing reveal to a woman the sublime artist who can touch her heart without withering it.
+ - Laws are spider webs through which the big flies pass and the little ones get caught.
+ - Woman is a delightful instrument of pleasure, but it is necessary to know its trembling strings, to study the position of them, the timid keyboard, the fingering so changeful and capricious which befits it.
+ - L’amour n’est pas seulement un sentiment, il est un art aussi. Love is not only a feeling; it is also an art.
+ - Talent is a flame, but genius is a fire.
+ - Kindness is not without its rocks ahead. People are apt to put it down to an easy temper and seldom recognize it as the secret striving of a generous nature; whilst, on the other hand, the ill-natured get credit for all the evil they refrain from.
+ - Marriage must fight constantly against a monster which devours everything: routine.
+ - The love of nature is the only love that does not deceive human hopes.
+ - True love is eternal, infinite, and always like itself. It is equal and pure, without violent demonstrations: it is seen with white hairs and is always young in the heart.
+ - An unfulfilled vocation drains the color from a man’s entire existence.
+ - Carelessness in dressing is moral suicide.
+ - The motto of chivalry is also the motto of wisdom; to serve all, but love only one.
+ - Love is a game in which one always cheats.
+ - Vocations which we wanted to pursue, but didn’t, bleed, like colors, on the whole of our existence.
+ - There is no such thing as a great talent without great will power.
+ - Envy is the most stupid of vices, for there is no single advantage to be gained from it.
+ - Love is like some fresh spring, first a stream and then a river, changing its aspect and its nature as it flows to plunge itself in some boundless ocean, where restricted natures only find monotony, but where great souls are engulfed in endless contemplation.
+ - Woman is a most charming creature, who changes her heart as easily as she does her gloves.
+ - Nothing is a greater impediment to being on good terms with others than being ill at ease with yourself.
+ - There are no little events with the heart. It magnifies everything; it places in the same scales the fall of an empire of fourteen years and the dropping of a woman’s glove, and almost always the glove weighs more than the empire.
+ - Life cannot go on without much forgetting.
+ - Marriageable girls as well as mothers understand the terms and perils of the lottery called wedlock. That is why women weep at a wedding and men smile.
+ - The key to all sciences is unquestionably the question mark. To the word How? we owe most of our greatest discoveries. Wisdom in life may perhaps consist in asking ourselves on all occasions: Why?
+ - Whoever does not visit Paris regularly will never really be elegant.
+ - Great love affairs start with Champagne and end with tisane.
+ - Some day you will find out that there is far more happiness in another’s happiness than in your own.
+ - Squeeze marriage as much as you like, you will never extract anything from it but fun for bachelors and boredom for husbands.
+ - The secret of a great success for which you are at a loss to account is a crime that has never been found out, because it was properly executed.
+ - Possibly the words materialism and spirituality express two sides of one and the same fact.
+ - Love is the only passion which suffers neither past nor future.
+ - Numbers are intellectual witnesses that belong only to mankind.
+ - Rich women need not fear old age; their gold can always create about them any feelings necessary to their happiness.
+ - Noble hearts are neither jealous nor afraid because jealousy spells doubt and fear spells pettiness.
+ - Equality may perhaps be a right, but no power on earth can ever turn it into a fact.
+ - We do not attach ourselves lastingly to anything that has not cost us care, labor or longing.
+ - Emulation is not rivalry. Emulation is the child of ambition; rivalry is the unlovable daughter of envy.
+ - Nobody loves a woman because she is handsome or ugly, stupid or intelligent. We love because we love.
+ - Self-love is as protective as the Deity; Disenchantment is as perspicacious as a surgeon; Experience is as provident as a mother. Such are the theologic virtues of marriage.
+ - Modesty is the conscience of the body.
+ - Men die in despair, while spirits die in ecstasy.
+ - Rare is the man who suffers no remorse as he passes from the state of confidant to that of rival.
+ - Hope is a memory that desires, the memory is a memory that has enjoyed.
+ - A married woman is a slave you must know how to seat upon a throne.
+ - Remorse is impotence, impotence which sins again. Repentance alone is powerful; it ends all.
+ - No society is complete without some victim, a creature to pity, to jeer at, to scorn or to protect.
+ - Excess of joy is harder to bear than any amount of sorrow.
+ - We exaggerate misfortune and happiness alike. We are never as bad off or as happy as we say we are.
+ - Love passes quickly, and passes like a street Arab, anxious to mark his way with mischief.
+ - By and large, women have a faith and a morality peculiar to themselves; they believe in the reality of everything that serves their interest and their passions.
+ - The woman you buy takes a great deal of money. The woman who gives herself to you takes all your money.
+ - Ah! What pleasure it must be to a woman to suffer for the one she loves!
+ - The future of a nation lies in the hands of mothers.
+ - I am not deep, but I am very wide.
+ - A letter is a soul, so faithful an echo of the speaking voice that to the sensitive it is among the richest treasures of love.
+ - With monuments as with men, position means everything.
+ - Conventions are often more cruel than the law.
+ - On the moral plane, true friends enjoy the same protection as the sense of smell confers upon dogs. They scent the sorrow of their friends, they divine its causes, and they clasp it to their minds and hearts.
+ - No woman dares to refuse love without a motive, for nothing is more natural than to yield to love.
+ - Our most bitter enemies are our own kith and kin. Kings have no brothers, no sons, no mother!
+ - The sanctity of womanhood is incompatible with social liberty and social claims; and for a woman emancipation means corruption.
+ - Science is the language of the temporal world; love is that of the spiritual world. Man, indeed, describes more than he explains; while the angelic spirit sees and understands. Science saddens man; love enraptures the angel; science is still seeking; love has found.
+ - Do you know what is the hardest thing in life? To make a choice.
+ - A husband and wife who have separate bedrooms have either drifted apart or found happiness.
+ - Nature makes only dumb animals. We owe the fools to society.
+ - No man should marry until he has studied anatomy and dissected at least one woman.
+ - The press is like a woman: sublime when it lies, it will not let go until it has forced you to believe it. The public, like a foolish husband, always succumbs.
+ - When women love us, they forgive us everything, even our crimes; when they do not love us, they give us credit for nothing, not even our virtues.
+ - When in Turkey, do as the turkeys do.
+ - The errors of women spring, almost always, from their faith in the good, or their confidence in the true.
+ - All happiness depends on courage and work. I have had many periods of wretchedness, but with energy and above all with illusions, I pulled through them all.
+ - Such is life. It is no cleaner than a kitchen; it reeks like a kitchen; and if you mean to cook your dinner, you must expect to soil your hands; the real art is in getting them clean again, and therein lies the whole morality of our epoch.
+ - Do you know how a man makes his way here? By brilliant genius or by skilful corruption. You must either cut your way through these masses of men like a cannon ball, or steal among them like a plague.
+ - By resorting to self-resignation, the unfortunate consummate.
+ - Hatred is the vice of narrow souls; they feed it with all their littleness, and make it the pretext of base tyrannies.
+ - I do not regard a broker as a member of the human race.
+ - Between the daylight gambler and the player at night there is the same difference that lies between a careless husband and the lover swooning under his lady’s window.
+ - God reveals himself unfailingly to the thoughtful seeker.
+ - A jealous husband doesnt doubt his wife, but himself.
+ - Cruelty and fear shake hands together.
+ - Marriage is a fight to the death, before which the wedded couple ask a blessing from heaven, because it is the rashest of all undertakings to swear eternal love; the fight at once commences and victory, that is to say liberty, remains in the hands of the cleverer of the two.
+ - Materialism and spirituality are two pretty racquets with which charlatans in cap and gown make the same ball fly.
+ - The questioning spirit is the rebellious spirit. A rebellion is always either a cloak to hide a prince, or the swaddling wrapper of a new rule.
+ - The boor covers himself, the rich man or the fool adorns himself, and the elegant man gets dressed.
+ - An ugly woman, married to King Henry VIII, would have defied the axe and daunted her husband’s infidelities.
+ - It is a singular fact that most men of action incline to the theory of fatalism, while the greater part of men of thought believe in providence.
+ - Envy lurks at the bottom of the human heart like a viper in its hole.
+ - We flew back home like swallows. ‘Is it happiness that makes us so light?’ Agathe asked.
+ - A woman in love has full intelligence of her power; the more virtuous she is, the more effective her coquetry.
+ - Kindness steers no easy course. Attributing it to character, we seldom recognize the secret efforts of a noble heart, whereas we reward really wicked people for the evil they refrain from committing.
+ - Courtesy is only a thin veneer on the general selfishness.
+ - In Paris, the greatest expression of personal satisfaction known to man is the smirk on the face of a male, highly pleased with himself as he leaves the boudoir of a lady.
+ - All human power is a compound of time and patience.
+ - The privilege of feeling at home everywhere belongs only to kings, wolves and robbers.
+ - Yes, I can understand that a man might go to a gambling table when he sees that all that lies between him and death is his last crown.
+ - Man is no match for woman where mischief reigns.
+ - People exaggerate both happiness and unhappiness; we are never so fortunate nor so unfortunate as people say we are.
+ - When Religion and Royalty are swept away, the people will attack the great, and after the great, they will fall upon the rich.
+ - In Paris every man must have had a love affair. What woman wants something that no other woman ever wanted.
+ - We cannot confront solitude without moral resources.
+ - The country is provincial; it becomes ridiculous when it tries to ape Paris.
+ - If youth were not ignorant and timid, civilization would be impossible.
+ - Women are always true, even in the midst of their greatest falsities, because they are always influenced by some natural feeling.
+ - Virtue, perhaps, is nothing more than politeness of soul.
+ - The victory always has a lot of parents but the defeat is always an orphan.
+ - Small natures require despotism to exercise their sinews, as great souls thirst for equality to give play to their heart.
+ - Woman has this in common with angels, that suffering beings belong especially to her.
+ - Above all do not ask that justice be just: It is just, because it is justice. The idea of a just justice could have originated only in the brain of an anarchist.
+ - It is always assumed by the empty-headed, who chatter about themselves for want of something better, that people who do not discuss their affairs openly must have something to hide.
+ - In a world of hunchbacks, a fine figure becomes a monstrosity.
+ - What patient can trust the knowledge of a physician without reputation or furniture, in a period when publicity is all-powerful and when the government gilds the lamp posts on the Place de la Concorde in order to dazzle the poor?
+ - Vice is perhaps a desire to learn everything.
+ - What makes friendship indissolute and what doubles its charms is a feeling we find lacking in love: I mean certitude.
+ - Those sweetly smiling angels with pensive looks, innocent faces, and cash-boxes for hearts.
+ - The fashions we call English in Paris are French in London, and vice versa. Franco-British hostility vanishes when it comes to questions of words and clothing. God save the King is a tune composed by Lully for a chorus in a play by Racine.
+ - For pain is perhaps but a violent pleasure? Who could determine the point where pleasure becomes pain, where pain is still a pleasure? Is not the utmost brightness of the ideal world soothing to us, while the lightest shadows of the physical world annoy?
+ - Love is the reduction of the universe to the single being, and the expansion of a single being, even to God.
+ - Man is neither good nor bad; he is born with instincts and abilities.
+ - Who is to decide which is the grimmer sight: withered hearts, or empty skulls?
+ - With a woman, always make good use of a secret. She will be proportionally grateful to you, like a scoundrel who grants his respect to an honest man he has been unable to swindle.
+ - Journalism is a giant catapult set in motion by pigmy hatreds.
+ - The heart of a mother is a deep abyss at the bottom of which you will always find forgiveness.
+ - Society is no more indulgent than was the God of Genesis.
+ - As a rule, only the poor are generous. Rich people can always find excellent reasons for not handing over twenty thousand francs to a relative.
+ - They ended as all great passions do end – by a misunderstanding.
+ - Sometimes, one gesture comprises an entire drama, the accent of one word ruins an entire existence, and the indifference of one glance kills the happiest passion.
+ - Towns find it as hard as houses of business to rise again from ruin.
+ - A man’s own vanity is a swindler that never lacks for a dupe.
+ - A careful observation of Nature will disclose pleasantries of superb irony. She has for instance placed toads close to flowers.
+ - A monster which devours everything – that is familiarity.
+ - Glory is a poison, good to be taken in small doses.
+ - In France we can cauterize wounds but we do not yet know any remedy for the injuries inflicted by a bon mot.
+ - Man judges of nature in relation to itself; the angelic spirit judges of it in relation to heaven. In short, to the spirits everything speaks.
+ - Even beauty cannot always palliate eccentricity.
+ - Prostitution and robbery are two living protests, respectively female and male, made by the natural state against the social state.
+ - Every moment of happiness requires a great amount of Ignorance.
+ - The most real of all splendors are not in outward things, they are within us.
+ - Creole women take after Europe in their intelligence, after the Tropics in the illogical violence of their passions, and after the Indies in the apathetic indolence with which they commit or suffer good and evil.
+ - A husband can commit no greater blunder than to discuss his wife, if she is virtuous, with his mistress; unless it be to mention his mistress, if she is beautiful, to his wife.
+ - When tempted to be unfaithful, the intellectual woman will try to inspire her husband with indifference, the sentimental woman with hatred, and the passionate woman with disgust.
+ - Love based upon money and vanity forms the most stubborn of passions.
+ - Many men are deeply moved by the mere semblance of suffering in a woman; they take the look of pain for a sign of constancy or of love.
+ - Among fifty percent of your married couples, the husband worries very little about what his wife is doing, provided she is doing all he wishes.
+ - The man who enters his wife’s dressing room is either a philosopher or a fool.
+ - The human heart may find here and there a resting-place short of the highest height of affection, but we seldom stop in the steep, downward slope of hatred.
+ - Ideas devour the ages as men are devoured by their passions. When man is cured, human nature will cure itself perhaps.
+ - A lover always thinks of his mistress first and himself second; with a husband it runs the other way.
+ - To be happy, a man must love his wife as she chooses to be loved.
+ - It is easier for a woman to be a good wife than a good mother. A widow has two duties with contrary obligations: she is a mother and she must exercise paternal authority. Few woman are strong enough to understand and to play this role.
+ - Death is as unexpected in his caprice as a courtesan in her disdain; but death is truer – Death has never forsaken any man.
+ - Conscience is our unerring judge until we finally stifle it.
+ - Though your vulgarian does not readily admit that feelings can change overnight, certainly two lovers often part far more abruptly than they came together.
+ - It is as easy to dream a book as it is hard to write one.
+ - Our souls possess the unknown power of extending as well as contracting space.
+ - There is nothing original; all is reflected light.
+ - Passion is universal humanity. Without it religion, history, romance and art would be useless.
+ - Innocence alone dares commit certain acts of audacity. Virtue, when tutored, is as calculating as vice.
+ - You may imitate, but never counterfeit.
+ - First love is a kind of vaccination which saves a man from catching the complaint the second time.
+ - Woman is stronger by virtue of her feelings than man by virtue of his power.
+ - Once she has committed sin, there is nothing left for the Protestant woman, whereas the Catholic Church, hope of forgiveness makes a woman sublime.
+ - A deist is an atheist with an eye cocked for the off-chance of some advantage.
+ - Jealousy, an eminently credulous and suspicious passion, allows fancy the greatest possible play. But it does not bestow wit, it banishes all sense.
+ - The response man has the greatest difficulty in tolerating is pity, especially when he warrants it. Hatred is a tonic, it makes one live, it inspires vengeance, but pity kills, it makes our weakness weaker.
+ - Love has its own instinct, finding the way to the heart, as the feeblest insect finds the way to its flower, with a will which nothing can dismay nor turn aside.
+ - A murderer is less loathsome to us than a spy. The murderer may have acted on a sudden mad impulse; he may be penitent and amend; but a spy is always a spy, night and day, in bed, at table, as he walks abroad; his vileness pervades every moment of his life.
+ - Clouds symbolize the veils that shroud God.
+ - Constancy will always be the genius of love, the indication of that strength which constitutes the poet. A man should possess all women in his wife, like those squalid poetasters of the seventeenth century who made fair Irises and dazzling Chloes of their lowly Manons.
+ - A Creole woman is like a child, she wants to possess everything immediately; like a child, she would set fire to a house in order to fry an egg. In her languor, she thinks of nothing; when passionately aroused, she thinks of any act possible or impossible.
+ - A flow of words is a sure sign of duplicity.
+ - You’re a fine fastidious young man, as proud as a lion, as gentle as a girl. You’d make a good catch for the devil.
+ - It is not hope but despair that gives us the measure of our ambitions. We may yield secretly to beautiful poems of hope but grief looms start and stripped of all veils.
+ - How fondly swindlers coddle their dupes! No mother is as caressing or thoughtful towards her adored child as a merchant in hypocrisy toward his milch-cow.
+ - Art’s greatest efforts are invariably a timid counterfeit of Nature.
+ - Does not any limit imposed upon one inspire a desire to go beyond it? Does not our keenest suffering arise when our free will is crossed?
+ - How can we explain the perpetuity of envy – a vice which yields no return?
+ - The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.
+ - A woman must be a genius to create a good husband.
+ - Manners are the hypocrisy of a nation.
+ - Equality may be the law, but no human power can install it.
+ - Beauty is the greatest of human powers. Any power without counterbalance or control becomes autocratic and leads to abuse and to folly. Despotism in a government is insanity; in woman, fantasy.
+ - A woman’s greatest charm consists in a constant appeal to a man’s generosity by a gracious declaration of helplessness which fills him with pride and awakens the most magnificent feelings in his heart.
+ - Reproach is usually honest, which is more than can be said of praise.
+ - The events of human life, whether public or private, are so intimately linked to architecture that most observers can reconstruct nations or individuals in all the truth of their habits from the remains of their monuments or from their domestic relics.
+ - For avarice begins where poverty ends.
+ - Stupidity assumes two forms, it speaks or is silent. Mute stupidity is bearable.
+ - We must certainly acknowledge that solitude is a fine thing; but it is a pleasure to have some one who can answer, and to whom we can say, from time to time, that solitude is a fine thing.
+ - Conscience is a cudgel which all men pick up in order to thwack their neighbors instead of applying it to their own shoulders.
+ - Clouds signify the veil of the Most High.
+ - One of the most detestable habits of Lilliputian minds is to find their own littleness in others.
+ - Misfortune, no less than happiness, inspires us to dream.
+ - Nothing is as heady as the wine of misfortune.
+ - In the silence of their studios, busied for days at a time with works which leave the mind relatively free, painters become like women; their thoughts can revolve around the minor facts of life and penetrate their hidden meaning.
+ - Poverty is a divine stepmother who does for youths what their own mothers were unable to do. It introduces them to frugality, to the world and to life.
+ - No man has ever yet discovered the way to give friendly advice to any woman, not even to his own wife.
+ - The glutton is much more than an animal and much less than a man.
+ - Forgetting is the great secret of strong and creative lives.
+ - Marriage is a fight to the death. Before contracting it, the two parties concerned implore the benediction of Heaven because to promise to love each other forever is the rashest of enterprises.
+ - Incurable wounds are those inflicted by tongue and eye, by mockery and disdain.
+ - One should believe in marriage as in the immortality of the soul.
+ - A lover teaches a wife all her husband has kept from her.
+ - Liberty begets anarchy, anarchy leads to despotism, and despotism brings about liberty once again. Millions of human beings have perished without being able to make any of these systems triumph.
+ - Men who pay their tailors never amount to anything, they never even become Cabinet ministers.
+ - We love because we love.
+ - From the manner in which a woman draws her thread at every stitch of her needlework, any other woman can surmise her thoughts.
+ - Love is perhaps no more than gratitude for pleasure.
+ - When chaste people need body or mind to resort to action or thought, they find steel in their muscles or knowledge in their intelligence. Theirs the diabolic vigor or the black magic of will power.
+ - For certain people, misfortune is a beacon that lights up the dark and baser sides of social life.
+ - Evasion is unworthy of us, and is always the intimate of equivocation.
+ - It is as absurd to say that a man can’t love one woman all the time as it is to say that a violinist needs several violins to play the same piece of music.
+ - Modern society includes three types of men who can never think very highly of the world – the priest, the physician, and the attorney-at-law. They all wear black, too, for are they not in mourning for every virtue and every illusion?
+ - Bureaucracy is a giant mechanism operated by pygmies.
+ - What a thing of fantasy a woman may become after dusk.
+ - Journalists grow accustomed to seeing evil and they let it pass; they proceed to approve it, and they end by committing it themselves.
+ - Love which economizes is never true love.
+ - Our heart is a treasury; if you pour out all its wealth at once, you are bankrupt.
+ - The man as he converses is the lover; silent, he is the husband.
+ - Poetry is only born after painful journeys into the vast regions of thought.
+ - As a rule, only the poor are generous.
+ - The most virtuous women have something within them, something that is never chaste.
+ - He has great tranquility of heart who cares neither for the praises nor the fault-finding of men.
+ - Wisdom is that apprehension of heavenly things to which the spirit rises through love.
+ - Want him to be more of a man? Try being more of a woman!
+ - In the medical profession a horse and carriage are more necessary than any scientific knowledge.
+ - Events are never absolute, their outcome depends entirely upon the individual. Misfortune is a stepping stone for a genius, a piscina for a Christian, a treasure for a man of parts, and an abyss for a weakling.
+ - Self-interest is an ineffable feeling which shall follow us into God’s very presence since they say there is a hierarchy even among the Holy Saints.
+ - Vulgar souls look hastily and superficially at the sea and accuse it of monotony; other more privileged beings could spend a lifetime admiring it and discovering new and changing phenomena that delight them. So it is with love.
+ - The more illegal a profit, the more tenaciously a man clings to it.
+ - Women? In order to realize how far these charming creatures we idealize can carry their cruelty, we must see them among themselves!
+ - All we are is in the soul.
+ - Great minds always tend to see virtue in misfortune.
+ - Girls are apt to imagine noble and enchanting and totally imaginary figures in their own minds; they have fanciful extravagant ideas about men, and sentiment, and life; and then they innocently endow somebody or other with all the perfections for their daydreams, and put their trust in him.
+ - At fifteen, neither beauty nor talent exist: a woman is all promise.
+ - If the human heart sometimes finds moments of pause as it ascends the slopes of affection, it rarely halts on the way down.
+ - For passion, be it observed, brings insight with it; it can give a sort of intelligence to simpletons, fools, and idiots, especially during youth.
+ - Priests, magistrates and ladies never quite take off their gowns.
+ - Fools gain greater advantages through their weakness than intelligent men through their strength. We watch a great man struggling against fate and we do not lift a finger to help him. But we patronize a grocer who is headed for bankruptcy.
+ - The woman who is about to deceive her husband always carefully thinks out how she is going to act, but she is never logical.
+ - A society of atheists would immediately invent a religion.
+ - Everything is bilateral in the domain of thought. Ideas are binary. Janus is the myth of criticism and the symbol of genius. Only God is triangular!
+ - True lovers know how trifling a thing is money yet how difficult to blend with love!
+ - Many people claim coffee inspires them, but, as everybody knows, coffee only makes boring people even more boring.
+ - Marriage is an institution necessary to the maintenance of society but contrary to the laws of nature.
+ - During the great storms of our lives we imitate those captains who jettison their weightiest cargo.
+ - Those who spend too fast never grow rich.
+ - We do not wish success yet we obtain it. Always we find what we are not looking for. These words are too true not to become a proverb some day.
+ - How natural it is to destroy what we cannot possess, to deny what we do not understand, and to insult what we envy!
+ - There is neither vice nor virtue, there are only circumstances.
+ - It is no sin to be tempted; the wickedness lies in being overcome.
+ - To man, faith; to woman, doubt. She bears the heavier burden. Does not woman invariably suffer for two?
+ - To forget is the great secret of strong creative natures; to forget is the way nature herself who knows no past and who at every hour begins the mysteries of her untiring labors afresh.
+ - The innocence of virgins is like milk which turns when exposed to a clap of thunder, to a tart smell, to a hot day, to the merest nothing.
+ - A mother who is really a mother is never free.
+ - Any man, however blase or depraved, finds his love kindled anew when he sees himself threatened by a rival.
+ - And he, like many jaded people, had few pleasures left in life save good food and drink.
+ - It is the mark of a great man that he puts to flight all ordinary calculations. He is at once sublime and touching, childlike and of the race of giants.
+ - A woman in the depths of despair proves so persuasive that she wrenches the forgiveness lurking deep in the heart of her lover. This is all the more true when that woman is young, pretty, and so decollete as to emerge from the neck of her gown in the costume of Eve.
+ - One day, about the middle of July 1838, one of the carriages, lately introduced to Paris cabstands, and known as Milords, was driving down the Rue de l’Universite, conveying a stout man of middle height in the uniform of a captain of the National Guard.
+ - I prefer thought to action, an idea to a transaction, contemplation to activity.
+ - A woman’s sentimental monkeyshines will always deceive her lover, who invariably waxes ecstatic where her husband necessarily shrugs his shoulders.
+ - In love, what a woman mistakes for disgust is actually clearsightedness. If she does not admire a man, she scorns him.
+ - In France everything is a matter for jest. People make quips about the scaffold, about Napoleon’s defeat on the banks of The Beresina, and about the barricades of our revolutions. So, at the assizes of the Last Judgment, there will always be a Frenchmen to crack a joke.
+ - What is motherhood save Nature in her most gladsome mood?
+ - Virtue is not a thing you can have by halves; it is or it is not.
+ - Doubt follows white-winged hope with trembling steps.
+ - Love is precisely to the moral nature what the sun is to the earth.
+ - A girl fresh from a boarding school may perhaps be a virgin but no! she is never chaste.
+ - Nothing so fortifies a friendship as a belief on the part of one friend that he is superior to the other.
+ - Love may be or it may not, but where it is, it ought to reveal itself in its immensity.
+ - In smart society men are jealous of one another after the fashion of women.
+ - Love is a religion, and its rituals cost more than those of other religions. It goes by quickly and, like a street urchin, it likes to mark its passage by a trail of devastation.
+ - France is a country that loves to change their government if it is always the same.
+ - Perhaps it is only human nature to inflict suffering on anything that will endure suffering, whether by reason of its genuine humility, or indifference, or sheer helplessness.
+ - Inspiration is the opportunity of genius.
+ - The duration of a couple’s passion is in proportion to the woman’s original resistance or to the obstacles that social hazards have placed in the way of her happiness.
+ - Society proceeds like the ocean. After a disaster, it resume its wonted level and rhythms; its devouring interests efface all traces of damage.
+ - The fact is that love is of two kinds, one which commands, and one which obeys. The two are quite distinct, and the passion to which the one gives rise is not the passion of the other.
+ - There is a cure for temptation. What? Yielding to it.
+ - Like hunger, physical love is a necessity. But man’s appetite for amour is never so regular or so sustained as his appetite for the delights of the table.
+ - Passions are no more forgiving than human laws and they reason more justly. Are they not based on a conscience of their own, infallible as an instinct?
+ - Music is of two kinds: one petty, poor, second-rate, never varying, its base the hundred or so phrasings which all musicians understand, a babbling which is more or less pleasant, the life that most composers live.
+ - Poles offer a mobility like that of the wind that blows over the immense plains and marches of Poland. Show a Pole a precipice, and he will leap headlong over it.
+ - With every one, the expectation of a misfortune constitutes a dreadful, punishment. Suffering then assumes the proportions of the unknown, which is the soul’s infinite.
+ - Men are so made that they can resist sound argument, and yet yield to a glance.
+ - There are words which cut like steel.
+ - Misfortune makes of certain souls a vast desert through which rings the voice of God.
+ - Gratitude is a fool’s word; we find it in the dictionary, but it is not in the heart of man.
+ - What is a child, monsieur, but the image of two beings, the fruit of two sentiments spontaneously blended?
+ - A man may and ought to pride himself more on his will than on his talent.
+ - Like most young people, these two attributed to the world their own intelligence and virtues. Youth who knows no failure has no mercy on the faults of other people; but it has also a sublime faith in them.
+ - The national budget is not a safe-deposit box. It is a spray can.
+ - I declare, on my soul and conscience, that the attainment of power, or of a great name in literature, seemed to me an easier victory than a success with some young, witty, and gracious lady of high degree.
+ - Death unites as well as separates; it silences all paltry feeling.
+ - My writing table has seen all my wretchedness, knows all my plans, has overheard all my thoughts.
+ - Neither the passions not justice nor politics nor the great social forces ever consider the victims they strike.
+ - Charity is not one of the virtues practiced on the stock market. The heart of a bank is but one of many viscera.
+ - God is the poet; men are but the actors. The great dramas of earth were written in heaven.
+ - The wounds of self-love turn incurable when the oxide of self-love gets into them.
+ - The best painters, as they progress in reputation and towards perfection, are found to dispense more and more with the technique of the art, for simpler methods. Simplicity never fails to charm.
+ - The habits of every animal are, at least in the eyes of man, constantly similar in all ages. But the habits, the clothes, the words and the dwelling of a prince, a banker, an artist, a bourgeois, a priest and a pauper, are wholly dissimilar and change at the will of civilizations.
+ - One exits with one’s husband – one lives with one’s lover.
+ - In intimate family life, there comes a moment when children, willingly or no, become the judges of their parents.
+ - White hair often covers the head, but the heart that holds it is ever young.
+ - Paris, like every pretty woman, is subject to inexplicable whims of beauty and ugliness.
+ - Too great a display of delicacy can and does sometimes infringe upon de-cency.
+ - Rich men are resolved to be astonished at nothing. When they see a masterpiece, they must needs at one glance recognize some flaw to dispense them from admiration, a vulgar emotion.
+ - What is art? Nature concentrated.
+ - For young people always begin by loving exaggeration, that infirmity of noble minds.
+ - A girl’s coquetry is of the simplest, she thinks that all is said when the veil is laid aside; a woman’s coquetry is endless, she shrouds herself in veil after veil, she satisfies every demand of man’s vanity, the novice responds but to one.
+ - Love may be the fairest gem which Society has filched from Nature; but what is motherhood save Nature in her most gladsome mood? A smile has dried my tears.
+ - She who is really a wife, one in heart, flesh, and bone, must follow wherever he leads, in whom her life, her strength, her pride, and happiness are centered.
+ - The Police and the Society of Jesus posses in common the virtue of never forsaking their enemies as friends.
+ - The majority of husbands remind me of an orangutan trying to play the violin.
+ - As soon as man seeks to penetrate the secrets of Nature – in which nothing is secret and it is but a question of seeing – he realizes that the simple produces the supernatural.
+ - Religious ecstasy is a madness of thought freed of its bodily bonds, whereas in the ecstasy of love, the forces of twin natures unite, blend and embrace one another.
+ - Necessity is often the spur to genius.
+ - Conviction brings a silent, indefinable beauty into faces made of the commonest human clay; the devout worshiper at any shrine reflects something of its golden glow, even as the glory of a noble love shines like a sort of light from a woman’s face.
+ - It’s catastrophies which turn wise and strong people into philosophers.
+ - Marriage must perforce fight against the all-devouring monster of habit.
+ - Your modest savant smiles as he says to his admirers: What have I done? Nothing. Man does not invent a force, he directs it.
+ - One can imagine the look the two lovers exchanged; it was like a flame, for virtuous lovers have not a shred of hypocrisy.
+ - To feel, to love, to suffer, to devote herself, will always be the text of the life of woman.
+ - To promote laughter without joining in it greatly heightens the effect.
+ - When she lives at his palace, the maiden niece of a bishop can pass for a respectable woman because, if she has a love affair, she is obliged to hoodwink her uncle.
+ - Nothing is irredeemably ugly but sin.
+ - Show me the woman, however loyal, who does not seek to rouse desire.
+ - The art of motherhood involves much silent, unobtrusive self-denial, an hourly devotion which finds no detail too minute.
+ - The endless legacy of the past to the present is the secret source of human genius.
+ - Love, according to our contemporary poets, is a privilege which two beings confer upon one another, whereby they may mutually cause one another much sorrow over absolutely nothing.
+ - Handsome widows, after a twelve-month, enjoy a latitude and longitude without limit.
+ - Little minds find satisfaction for their feelings, good or bad, in little things.
+ - Now literary success can only be won in solitude by persevering labor.
+ - When passion is not fed, it changes to need. At this juncture, marriage becomes a fixed idea in the mind of the bourgeois, being the only means whereby he can win a woman and appropriate her to his uses.
+ - When attempted self-destruction does not cure a man of life, it cures him of voluntary death.
+ - Let nothing dupe you! Such is the horrible maxim that acts as a solvent upon every noble feeling man experiences.
+ - In a husband there is only a man; in a married woman there is a man, a father, and mother, and a woman.
+ - Time is the only capital of those who just have their inteligence as fortune.
+ - A man who stops at nothing short of the law is very clever indeed!
+ - Bankers are lynxes. To expect any gratitude from them is equivalent to attempting to move the wolves of the Ukraine to pity in the middle of winter.
+ - Children, dear and loving children, can alone console a woman for the loss of her beauty.
+ - The prodigality of millionaires is comparable only to their greed of gain. Let some whim or passion seize them and money is of no account. In fact these Croesuses find whims and passions harder to come by than gold.
+ - Where poverty ceases, avarice begins.
+ - Intuition, like the rays of the sun, acts only in an inflexibly straight line; it can guess right only on condition of never diverting its gaze; the freaks of chance disturb it.
+ - When there is an old maid in the house, a watchdog is unnecessary.
+ - What moralist can deny that well-bred and vicious people are much more agreeable than their virtuous counterparts? Having crimes to atone for, they provisionally solicit indulgence by showing leniency toward the defects of their judges. Thus they pass for excellent folk.
+ - If those who are the enemies of innocent amusements had the direction of the world, they would take away the spring, and youth, the former from the year, the latter from human life.
+ - It is only in the act of nursing that a woman realizes her motherhood in visible and tangible fashion; it is a joy of every moment.
+ - When an intelligent man reaches the point of inviting self-explanation and offers surrendering the key to his heart, he is assuredly riding a drunken horse.
+ - Who shall ever tell how much an unmerited disfavor crushes a shy person? Who can ever depict the misfortunes of timidity?
+ - Most women wish to feel that their spirit has been violated. Do they not, indeed, flatter themselves on never yielding save to force?
+ - Are not poets men who fulfill their hopes prematurely?
+ - He who best knows the world will love it least.
+ - Six weeks with a fever is an eternity.
+ - It would be curious to know what leads a man to become a stationer rather than a baker, when he is no longer compelled, as among the Egyptians, to succeed to his father’s craft.
+ - Give to a wounded heart seclusion; consolation nor reason ever effected anything in such a case.
+ - All genuinely noble women prefer truth to falsehood. As the Russians with their Czar, they are unwilling to see their idol degraded; they want to be proud of the domination they accept.
+ - But woman brings disorder into society through passion.
+ - Women see everything or nothing according to the inclination of their hearts. Love is their sole light.
+ - It is easier to be a lover than a husband for the simple reason that it is more difficult to be witty every day than to say pretty things from time to time.
+ - Virtue, my pet, is an abstract idea, varying in its manifestations with the surroundings. Virtue in Provence, in Constantinople, in London, and in Paris bears very different fruit, but is none the less virtue.
+ - Love endows us with a sort of personal religion; we respect another live within ourselves.
+ - But does not happiness come from the soul within?
+ - All men can bear a familiar, definite misfortune better than the cruel alternations of a fate which, from one moment to another, brings excessive joy or sorrow.
+ - Let us leave the cure of public evils to those quacks, the statesmen.
+ - Most geometricians, chemists, mathematicians, and great scientists submit religion to reason only to discover a problem as unsolvable as that of squaring a circle.
+ - People who are in love suspect nothing or everything.
+ - A wife is property that one acquires by contract, she is transferable, because possession of her requires title; in fact, woman is, so to speak, only man’s appendage; consequently, slice, cut, clip her, you have all rights to her.
+ - Old maids claw as cats do. They not only inflict wounds but experience pleasure in doing so. Nor will they fail to remind their victims of the blood drawn.
+ - By dint of making sacrifices, a man grows interested in the person who exacts them. Great ladies, like courtesans, know this truth by instinct.
+ - To lese-majeste and contempt of court, we must add the crime of lese-million, that fearful indignity we visit on the rich when we expose the impotence of gold.
+ - Genuine sorrows are very tranquil in appearance in the deep bed they have dug for themselves. But, seeming to slumber, they corrode the soul like that frightful acid which penetrates crystal.
+ - Suicide, moreover, was at the time in vogue in Paris: what more suitable key to the mystery of life for a skeptical society?
+ - There are some women whose pregnancy would make some sly bachelor smile.
+ - Despotism accomplishes great things illegally; liberty doesn’t even go to the trouble of accomplishing small things legally.
+ - Hatred like love feeds on the merest trifles. Everything adds to it. Just as the being we love can do no wrong, so the one we hate can do no right.
+ - There is something great and terrible about suicide.
+ - To have one’s mother-in-law in the country when one lives in Paris, and vice versa, is one of those strokes of luck that one encounters only too rarely.
+ - Heaven should be kind to stupid people, for no one else can be consistently.
+ - Le mariage doit incessamment combattre un monstre qui de v ore tout: l’habitude. Marriage should always combat the monster that devours everything: habit.
+ - Virtually all men of action incline to Fatality just as most thinkers incline to Providence.
+ - Women are tenacious, and all of them should be tenacious of respect; without esteem they cannot exist; esteem is the first demand that they make of love.
+ - The secret of the nobility and beauty of great ladies lies in the art with which they can shed their veils. In such situations, they become like ancient statues. If they kept the merest scarf on, they would be lewd. Your bourgeois woman will always try to cover her nakedness.
+ - Lovers have a way of using this word, nothing, which implies exactly the opposite.
+ - If certain women walk straight into adultery, there are many others who cling to numerous hopes, and commit sin only after wandering through a maze of sorrows.
+ - The fame of surgeons resembles the fame of actors, who live only during their lifetime and whose talent is no longer appreciable once they have disappeared.
+ - A great writer is nothing less than a martyr who does not die.
+ - In the first woman we love, we love everything. Growing older, we love the woman only.
+ - A knowledge of mankind and of things that surround us gives us that second education which proves far move valuable than our first because it alone turns out a truly accomplished man.
+ - Nature endows woman alternately with a particular strength which helps her to suffer and a weakness which counsels her to be resigned.
+ - In all lands, sailors form a race apart. They profess a congenital contempt for landlubbers. As for the tradesman, he understands nothing of sailors nor cares a fig about them. He is content to rob them if he can.
+ - There are moments in life when all we can bear is the sense that our friend is near us; our wounds would wince at the touch of consoling words, that would reveal the depths of our pain.
+ - A husband who submits to his wife’s yoke is justly held an object of ridicule. A woman’s influence ought to be entirely concealed.
+ - I yield to your wishes. It is the privilege of the women whom we love more than they love us to make the men who love them ignore the ordinary rules of common-sense.
+ - A grass blade believes that men build palaces for it to grow in. Grass wedges its way between the closest blocks of marble and it brings them down. This power of feeble life which can creep in anywhere is greater than that of the mighty behind their cannons.
+ - The pleasures of love proceed successively from a distich to a quatrain, from a quatrain to a sonnet, from a sonnet to a ballad, from a ballad to an ode, from an ode to a cantata, and from a cantata to a dithyramb. A husband who begins with the dithyramb is a fool.
+ - Many of us marvel at the icy insensitivity with which women snuff out their armours. But if they did not blot out the past in this manner, life for them would lose all dignity and they could never resist the fatal familiarities to which they once submitted.
+ - Unintelligent persons are like weeds that thrive in good ground; they love to be amused in proportion to the degree in which they weary themselves.
+ - The day will dawn when Europe will believe only in the man who tramples her underfoot.
+ - If we could but paint with the hand what we see with the eye.
+ - In diving to the bottom of pleasure we bring up more gravel than pearls.
+ - Can you find a man who loves the occupation that provides him with a livelihood? Professions are like marriages; we end by feeling only their inconveniences.
+ - Women, when they have made a sheep of a man, always tell him that he is a lion with a will of iron.
+ - A naked woman is less dangerous than one who spreads her skirt skillfully to cover and exhibit everything at once.
+ - Ah! the soft starlight of virgin eyes.
+ - One of the glories of society is to have created woman where Nature had made only a female; to have created a continuity of desire where Nature thought only of perpetuating the species; and, in fine, to have invented love.
+ - True love rules especially through memory.
+ - The winter’s frost must rend the burr of the nut before the fruit is seen. So adversity tempers the human heart, to discover its real worth.
+ - Admiration bestowed upon any one but ourselves is always tedious.
+ - Memories beautify life, but the capacity to forget makes it bearable.
+ - Love and work have the virtues of making a man pretty indifferent to anything else.
+ - Old men are prone to invest the futures of young men with their own past sorrows.
+ - Happiness lends poetic charms to woman, and dress adorns her like a delicate tinge of rouge.
+ - True love is mixed up with birdlike squabbles, in which the disputants wound each other to the quick; but a quarrel without animus is, on the contrary, apiece of flattery to the dupe’s conceit.
+ - Let passion reach a catastrophe and it submits us to an intoxicating force far more powerful than the niggardly irritation of wine or of opium. The lucidity our ideas then achieve, and the delicacy of our overly exalted sensations, produce the strangest and most unexpected effects.
+ - If we study Nature attentively in its great evolutions as in its minutest works, we cannot fail to recognize the possibility of enchantment – giving to that word its exact significance.
+ - The monotony of provincial life attracts the attention of people to the kitchen. You do not dine as luxuriously in the provinces as in Paris, but you dine better, because the dishes serve you are the result of mediation and study.
+ - No woman allows her lover to descend from his pedestal. Even a god is not forgiven the slightest pettiness.
+ - Hatred like love feeds on the merest trifles.
+ - Modern reformers offer nebulous theories or write philanthropic novels. But your thief acts! He is as clear as a fact and as logical as a punch on the nose! And what a style he has!
+ - Woman is closer to angels than man because she knows how to mingle an infinite tenderness with the most absolute compassion.
+ - A grocer is attracted to his business by a magnetic force as great as the repulsion which renders it odious to artists.
+ - A year at the breast is quite enough; children who are suckled longer are said to grow stupid, and I am all for popular sayings.
+ - Whereas scoundrels become reconciled after knifing one another, lovers break up irrevocably over a mere glance or word.
+ - Foppery, being the chronic condition of women, is not so much noticed as it is when it breaks out on the person of the male bird.
+ - The world will avenge itself upon all happiness in which it has no share.
+ - When will conventional good manners become attractive? When will ladies of fashion exhibit their shoulders a little less and their affability and wit a little more?
+ - The weakest being on earth can accomplish feats of strength. The frailest urchin will ring every doorbell on the street in arctic weather or hoist himself aloft to inscribe his name on a virgin monument.
+ - Believe everything you hear said of the world; nothing is too impossibly bad.
+ - Man’s condition is horrible because, no matter what form his happiness may take, it arises from some species of ignorance.
+ - Women, perhaps even require a little hypocrisy.
+ - Is there any instinct more deeply implanted in the heart of man than the pride of protection, a protection which is constantly exerted for a fragile and defenceless creature?
+ - Marriage is a fierce battle before which the two partners ask heaven for its blessing, because loving each other is the most audacious of enterprises; the battle is not slow to start, and victory, that is to say freedom, goes to the cleverest.
+ - The greater a man’s talents, the more marked his idiosyncracies. Yet in the provinces originality is considered perilously close to lunacy.
+ - The greatest joy a petty soul can taste is to dupe a great soul and catch it in a snare.
+ - To have fame follow us is well, but it is not a desirable avant-courier.
+ - A woman, even a prude, is not long at a loss, however dire her plight. She would seen always to have in hand the fig leaf our Mother Eve bequeathed to her.
+ - When a woman starts talking about her duty, her regard for appearances, and her respect for religion, she raises so many bulwarks which she delights to see captured by storm.
+ - Noble passions are like vices: the more they are satisfied, the greater they grow, Mothers and gamblers are insatiable.
+ - Temperament is the thermometer of character.
+ - Remorse is impotent; it will repeat its faults. Repentance only is a true force; it puts an end to everything.
+ - Imagination helps bring out the realism of every detail and only sees the beauties of the work.
+ - Mud, raised by hurricanes, wells up in the noblest and purest of hearts.
+ - A woman filled with faith in the one she loves is the creation of a novelist’s imagination.
+ - We are scarcely apt to berate the source of enjoyment.
+ - We are never either so wretched or so happy as we say we are.
+ - Nothing about me surprises me.
+ - Several sorts of memory exist in us; body and mind each possesses one peculiar to itself. Nostalgia, for instance, is a malady of the physical memory.
+ - Women are happy to possess a man whom all women covet.
+ - Virtue is always too much of a piece and too ignorant of those shades of feeling and of temperament that enable us to squint when we are placed in a false position.
+ - Life in clubs is no paltry sign of the times we live in. Here gentlemen gamble with others whom they would not dream of inviting to their homes.
+ - When one has no particular talent for anything, one takes to the pen.
+ - The virtues we acquire, which develop slowly within us, are the invisible links that bind each one of our existences to the others – existences which the spirit alone remembers, for Matter has no memory for spiritual things.
+ - Life is simply what out feelings do to us.
+ - A rent in your clothes is a mishap, a stain on them is a vice.
+ - Everybody all over the world takes a wife’s estimate into account in forming an opinion of a man.
+ - We have long struggles with ourself, of which the outcome is one of our actions; they are, as it were, the inner side of human nature. This inner side is God’s; the outer side belongs to men.
+ - The good we do to others is spoilt unless we efface ourselves so completely that those we help have no sense of inferiority.
+ - To get a traveling salesman drunk is the height of impossibility.
+ - Love is the only way on which even the dim-witted reaches certain heights.
+ - The greatest tyranny is to love I where we are not loved again.
+ - Among even the happiest married couples there are always moments of regret.
+ - Pity is woman’s sweetest charm.
+ - Loyalty in time of need is possibly one of the noblest of victories a courtier can win over himself.
+ - While seeking out the dead, I see nothing but the living.
+ - Events are never absolute, their outcome depends entirely upon the individual.
+ - Are not our noblest feelings as it were the poems of our will.
+ - Poets and men of action differ: the former yield to their feelings in order to reproduce them in lively colors, and therefore judge only ex post facto; the latter feel and judge at one and the same time.
+ - No woman has ever existed who did not know perfectly well in her heart what to expect from the superiority or inferiority of a rival.
+ - A beautiful book is a victory won in all the battlefields of human thought.
+ - Good befalls us while we sleep, sometimes.
+ - Men are such dupes by choice, that he who would impose upon others never need be at a loss to find ready victims.
+ - Narrow minds can develop as well through persecution as through benevolence; they can assure themselves of their power by tyrannizing cruelly or beneficially over others.
+ - Old maids, having never bent their temper or their lives to other lives and other tempers, as woman’s destiny requires, have for the most part a mania for making everything about them bend to them.
+ - Nothing is unimportant to a man plunged in despair. He is as credulous as a criminal sentenced to death who listens to a lunatic raving to him about how he can escape through the keyhole.
+ - Grief ennobles the commonest people because it has its own essential grandeur. To shine with the luster of grief, a person need only be sincere.
+ - Love is the most melodious of all harmonies.
+
+500 quotes

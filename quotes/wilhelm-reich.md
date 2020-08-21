@@ -1,0 +1,57 @@
+ - It is sexual energy which governs the structure of human feeling and thinking.
+ - Fascism is the frenzy of sexual cripples.
+ - I know that what you call ‘God’ really exists, but not in the form you think; God is primal cosmic energy, the love in your body, your integrity, and your perception of the nature in you and outside of you.
+ - Only one thing matters: live a good, happy life. Do your heart’s bidding, even when it leads you on paths that timid souls would avoid. Even when life is a torment, don’t let it harden you.
+ - Only the liberation of the natural capacity for love in human beings can master their sadistic destructiveness.
+ - Man’s right to know, to learn, to inquire, to make bona fide errors, to investigate human emotions must, by all means, be safe, if the word “freedom” should ever be more than an empty political slogan.
+ - In its pure form, fascism is the sum total of all irrational reactions of the average human character.
+ - If the psychic energies of the average mass of people watching a football game or a musical comedy could be diverted into the rational channels of a freedom movement, they would be invincible.
+ - Love, work and knowledge are the well-springs of our life. They should also govern it.
+ - The unity and congruity of culture and nature, work and love, morality and sexuality, longed for from time immemorial, will remain a dream as long as man continues to condemn the biological demand for natural sexual gratification.
+ - Once we open up to the flow of energy within our body, we can also open up to the flow of energy in the universe.
+ - Sexually awakened women, affirmed and recognized as such, would mean the complete collapse of the authoritarian ideology.
+ - Follow the voice of your heart, even if it leads you off the path of timid souls. Do not become hard and embittered, even if life tortures you at times. There is only one thing that counts: to live one’s life well and happily...
+ - The discovery of orgone energy was made through consistent, thorough study of energy functions, first in the realm of the psyche, and later in the realm of biological functioning.
+ - See yourself as you really are. Listen to what none of your leaders and representatives dares tell you: You are a “little, common man.” Understand the double meaning of these words: “little” and “common.” Don’t run. Have the courage to look at yourself!
+ - Am I a Spaceman? Do I belong to a new race on earth, bred by men from outer space in embraces with earth women?
+ - The suppression of natural sexual gratification leads to various kinds of substitute gratifications. Natural aggression, for example, becomes brutal sadism which then is an essential mass-psychological factor in imperialistic wars.
+ - The Little Man does not know that he is little, and he is afraid of knowing it. He covers up his smallness and narrowness with illusions of strength and greatness.
+ - Only you yourself can be your liberator!
+ - Hitler repeatedly stressed that one could not get at the masses with arguments, proofs, and knowledge, but only with feelings and beliefs.
+ - Not until man is willing to recognize his animal nature – in the good sense of the word – will he create genuine culture.
+ - Emotional and physical states can be altered by changing the breathing pattern.
+ - In recent times, more and more human thinking has come to assume that the idea of a universal natural law and the idea of ‘God’ are pointing to one and the same reality.
+ - I observe to the letter all laws that make sense but combat those that are obsolete or absurd.
+ - The vital energies regulate themselves naturally without compulsive duty or compulsive morality both of which are sure signs of existing antisocial impulses.
+ - The sexual drive is nothing but the motor memory of previously remembered pleasure.
+ - The pleasure of living and the pleasure of the orgasm are identical. Extreme orgasm anxiety forms the basis of the general fear of life.
+ - Mistaking insolence for freedom has always been the hallmark of the slave.
+ - Every muscular rigidity contains the history and the meaning of its origin.
+ - I do not believe that to be religious in the best, authentic sense a man has to destroy his love life and mummify himself, body and soul.
+ - If ‘freedom’ means, first of all, the responsibility of every individual for the rational determination of his own personal, professional and social existence, then there is no greater fear than that of the establishment of general freedom.
+ - Most intellectual people do not believe in God, but they fear him just the same.
+ - We shall no longer hang on to the tails of public opinion or to a non- existent authority on matters utterly unknown and strange. We shall gradually become experts ourselves in the mastery of the knowledge of the Future.
+ - The fact that Hitler was a political genius unmasks the nature of politics in general as no other fact can.
+ - Because you have no memory for things that happened ten or twenty years ago, you’re still mouthing the same nonsense as two thousand years ago. Worse, you cling with might and main to such absurdities as ‘race,’ ‘class,’ ‘nation,’ and the obligation to observe a religion and repress your love.
+ - We live in a community of people not so that we can suppress and dominate eachother or make each other miserable but so that we can better and more reliably satisfy all life’s healthy needs.
+ - Unless we proceed cautiously, there might well arise a few generations of mystics who conceive of the orgone metaphysically, divorced from non-living nature and who do not comprehend it from the standpoint of natural science. And it seems to me that we have more than enough mysticism as it is.
+ - I am well aware of the fact that the human race has known about the existence of a universal energy related to life for many ages. However, the basic task of natural science consisted of making this energy usable. This is the sole difference between my work and all preceding knowledge.
+ - It is the basic evasion of the essential which is the problem of man.
+ - Scientific theory is a contrived foothold in the chaos of living phenomena.
+ - It is above all man’s social position that decides whether he will sublimate his sadism as a butcher, surgeon, or policeman.
+ - The question of how and why the encrustations and rigidifications of human emotional life are brought about led directly into the realm of vegetative life.
+ - Every seemingly arbitrary destructive action is a reaction of the organism to the frustration of a gratification of a vital need, especially of a sexual need.
+ - The fact that political ideologies are tangible realities is not a proof of their vitally necessary character. The bubonic plague was an extraordinarily powerful social reality, but no one would have regarded it as vitally necessary.
+ - Work democracy does not wish to prevent or prohibit anything. Its only intention is the fulfilment of the biological life functions, of love, work and knowledge.
+ - You have no sense of your true duty, which is to be a man and preserve humanity. You imitate wise men so badly and bandits so well. Your movies and radio programs are full of murder.
+ - And the truth must finally lie in that which every oppressed individual feels within himself but hasn’t the courage to express.
+ - The elimination of individual capitalists and the replacement of private capitalism by state capitalism in Russia has not in the least altered the typical helpless and authoritarian character structure of the masses of people.
+ - Rooting in work is crucial to any accomplishment. Rooting in mere enthusiasm will in the long run force illusory measures to keep the fires of empty enthusiasm going. And this makes politics and politicians.
+ - And first and foremost, think straight, trust the quiet inner voice that tells you what to do. You hold your life in your hands, don’t entrust it to anyone else, least of all to your chosen leaders. BE YOURSELF! Any number of great men have told you that.
+ - For centuries great, brave, lonely men have been telling you what to do. Time and again you have corrupted, diminished and demolished their teachings; time and again you have been captivated by their weakest points, taken not the great truth, but some trifling error as your guiding principal.
+ - Because I’m a man who works, who knows what a human being is like inside, who knows that every human being has his worth, and who wants the world to be governed by work and not by opinions about work.
+ - Revolutionary practice in any field of human existence develops by itself if one comprehends the contradictions in every new process; it consists in siding with those forces which act in the direction of progressive development.
+ - The few bad poems which occasionally are created during abstinence are of no great interest.
+ - On all sides, life is surrounded by hostility. This puts us under an obligation.
+
+55 quotes

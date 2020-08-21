@@ -1,0 +1,27 @@
+ - I like things simple.
+ - Only wear clothes that make you feel alive.
+ - I am Valentino Rossi. If I stay in MotoGP it is to try to win. When that is not possible it is time to stay at home and work in the garden!
+ - I love my beauty. It’s not my fault.
+ - There are only three things I can do – make a dress, decorate a house, and entertain people.
+ - I never race for records. The motivation to try to beat the record is not enough to continue. You have to enjoy it.
+ - It is a big problem and so I don’t know for sure if I say yes or no to Ferrari.
+ - I love the 2000s because everyone started to love haute couture.
+ - An evening dress that reveals a woman’s ankles while walking is the most disgusting thing I have ever seen.
+ - I am like a freight train. Working on the details, twisting them and playing with them over the years, but always staying on the same track.
+ - When I entertain at home, I take time and pleasure in the small details that make all the difference. Entertaining is about giving to people and sharing with them.
+ - The great fights with your strongest rivals are always the biggest motivation. When you win easily it’s not the same taste.
+ - Even as a young boy, my passion was to design, and I have been very lucky to be able to do what I have loved all my life. There can be few greater gifts than that.
+ - My normal life is like being on holiday.
+ - I am happy that thousands of students, young designers and fashion people will be able to see and study my work in every aspect of it.
+ - I know what women want. They want to be beautiful.
+ - French people are charming, adorable but not extremely generous with foreigners, but they believe in what they do. I feel proud in exchange because what I did in restoration is something I did for La France.
+ - I didn’t like the ’80s at all; it was a vulgar moment of fashion.
+ - My title rivals are behind me but at the moment I am not thinking about that. My target is to finish on the podium and then well see where everybody else is.
+ - I am always locked in my design studio.
+ - The sand dunes look like two tits.
+ - I have my favourite fashion decade, yes, yes, yes: 60s. It was a sort of little revolution; the clothes were amazing but not too exaggerated.
+ - I am especially grateful that I have been able to keep my own style over the decades, in spite of the many changes that have taken place in the world of fashion and in its business.
+ - I was lucky. My father raced bikes. He gave me the passion very early. I had my first bike when I was three or four years old.
+ - I always enjoyed myself a lot in pre-school.
+
+25 quotes

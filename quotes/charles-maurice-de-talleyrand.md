@@ -1,0 +1,50 @@
+ - Black as the devil, hot as hell, pure as an angel, sweet as love.
+ - A woman will sometimes forgive the man who tries to seduce her, but never the man who misses an opportunity when offered.
+ - An important art of politicians is to find new names for institutions which under old names have become odious to the public.
+ - A clever woman often compromises her husband; a stupid woman only compromises herself.
+ - Only a man who has loved a woman of genius can appreciate what happiness there is in loving a fool.
+ - Beauty, devoid of grace, is a mere hook without the bait.
+ - I found there a country with thirty-two religions and only one sauce.
+ - Never speak ill of yourself, your friends will always say enough on that subject.
+ - Mistrust first impulses; they are nearly always good.
+ - A married man with a family will do anything for money.
+ - Those who did not live during the years close to 1789 do not know the pleasure of living.
+ - Society is divided into two classes: the shearers and the shorn. We should always be with the former against the latter.
+ - If you wish to be popular in society consent to be taught many things you already know.
+ - War is much too serious a thing to be left to military men.
+ - What clever man has ever needed to commit a crime? Crime is the last resort of political half-wits.
+ - Methods are the masters of masters.
+ - Politics is the systematic cultivation of hatred.
+ - Show me another pleasure like dinner which comes every day and lasts an hour.
+ - Suave molecules of Mocha stir up your blood, without causing excess heat; the organ of thought receives from it a feeling of sympathy; work becomes easier and you will sit down without distress to your principal repast which will restore your body and afford you a calm, delicious night.
+ - The art of putting the right men in the right places is first in the science of government; but that of finding places for the discontented is the most difficult.
+ - Love is a reality which is born in the fairy region of romance.
+ - Since the masses are always eager to believe something, for their benefit nothing is so easy to arrange as facts.
+ - In order to avoid being called a flirt, she always yielded easily.
+ - Those who have not lived in the eighteenth century, in the years before the Revolution do not know the sweetness of living and cannot imagine what it was like to have happiness in life.
+ - Nothing succeeds so well as success.
+ - The reputation of a man is like his shadow, gigantic when it precedes him, and pigmy in its proportions when it follows.
+ - Love of glory can only create a great hero; contempt of glory creates a great man.
+ - Speech has been given to man to disguise his thoughts.
+ - Regimes may fall and fail, but I do not.
+ - I know where there is more wisdom than is found in Napoleon, Voltaire, or all the ministers present and to come – in public opinion.
+ - The bold defiance of a woman is the certain sign of her shame, – when she has once ceased to blush, it is because she has too much to blush for.
+ - Wherever there’s trouble, look for a priest.
+ - There are many people who have the gift, or failing, of never understanding themselves. I have been unlucky enough, or perhaps fortunate enough to have received the opposite gift.
+ - Merit, however inconsiderable, should be sought for and rewarded. Methods are the master of masters.
+ - Too much sensibility creates unhappiness and too much insensibility creates crime.
+ - To succeed in the world, it is much more necessary to possess the penetration to discern who is a fool, than to discover who is a clever man.
+ - What I have been taught, I have forgotten; what I know, I have guessed.
+ - Without freedom of the press, there can be no representative government.
+ - God gave humans language so they could conceal their thoughts from one another.
+ - The rich man despises those who flatter him too much, and hates those who do not flatter him at all.
+ - Espresso is to Italy, what champagne is to France.
+ - There is one person that is wiser than anybody, and that is everybody.
+ - It is not an event; it is a piece of news.
+ - If we go on explaining we shall cease to understand one another.
+ - A court is an assembly of noble and distinguished beggars.
+ - The art of statesmanship is to foresee the inevitable and to expedite its occurrence.
+ - In a novel, the author gives the leading character intelligence and distinction. Fate goes to less trouble: mediocrities play a part in great events simply from happening to be there.
+ - She is such a good friend that she would throw all her acquaintances into the water for the pleasure of fishing them out again.
+
+48 quotes

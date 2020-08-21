@@ -1,0 +1,50 @@
+ - I’ll sit down for an hour or two a few days a week in a quiet place and brainstorm. The earlier in the day, the better, before the parade of distractions starts.
+ - It’s a constant process of bouncing ideas off of one another and intuitively arriving at the right decision in the moment.
+ - I think the more you hone your voice, take risks and talk about things that matter, the better chance you have of getting into the realm of the philosophers of stand up. But you have to be funny.
+ - Sometimes crowds start out not liking someone but then they shift and love them. Or vice versa. It can shift on a dime.
+ - I often think about my future wife and how lax she’s been about getting in touch with me.
+ - A person riding a unicycle on a tightrope doesn’t worry about being likeable; they’re doing something amazing that very few people can do.
+ - Sometimes it’s fun to explore ideas that might make people uncomfortable. If you let it, there’s a lot of self-censoring that can go on in the name of remaining likeable, but I don’t find that an artistically interesting path to take.
+ - Comedy takes all of life and puts it through a lens of acceptance, just by the mere act of talking about it on stage in a communal setting. It’s very primal and ritualistic in that sense.
+ - Hard work is a muscle that you develop, as is taking risks.
+ - With a project like Teachers Lounge, you’re wearing a lot of hats, so it demands hard work and focus if you want to do it right.
+ - Comedy clubs are arguably one of the last bastions of uncensored, public free speech.
+ - Teachers Lounge is a web series I co-created with Hollis James. We intentionally left the apostrophe out to turn Lounge into a verb. The show is about teachers lounging around, wasting time.
+ - I don’t do the mirror thing; maybe once or twice when I first started out.
+ - I don’t know that I have a single comedy philosophy. But talking about things that matter to you is a good place to start. Listening is a big part of it, too.
+ - I think there comes a time in any comedian’s career where they can either coast or keep growing and evolving.
+ - I’m keeping in shape, you know, gotta look good for the ladies – and certain guys. Hey, I can’t control who’s looking. I just gotta bring the heat.
+ - A crowd is the only way to know if something works. Telling a friend or two doesn’t matter. A crowd is what tells you what works or doesn’t, so I’d rather go in front of them cold and see.
+ - Not that that’s the goal, but sometimes these funny insights can also be deeply profound.
+ - I don’t really worry about a crowd liking me.
+ - I wasn’t in the drama department, but I auditioned anyway and he not only cast me but also included a few sketches that I wrote, which really sparked my pursuit of comedy.
+ - The more you perform, the more adept you get at the nuances of navigating that communal conversation.
+ - Comics can definitely be subversive on the whole, but it’s a stylistic thing.
+ - Chris Rock went from a guy whose name you knew from SNL to a legendary comedian by working his ass off.
+ - Your stage persona is usually a version of yourself, to varying degrees. Some folks do a full-on character, so that’s different. But most comics do some version of themselves.
+ - It’s harder to reveal sides of yourself that make you vulnerable but it’s another muscle that can be developed and one that I think is worthwhile. That said, everyone finds their style. It’s personal.
+ - Comedians act every night on stage, so they have great performing chops. They especially know how to play themselves, which is how we set Teachers Lounge up.
+ - I’ve seen people who are not very likeable but hilarious. I think comedians get to a point where they know they’re funny, so they don’t care – in the sense that they know what they’re doing. They have a skill.
+ - I don’t think comics necessarily think in literary terms. There is an element of developing your stage persona and your comedic voice, but I don’t think comics see it like a character in a novel.
+ - I also do a certain amount of talking through material on stage, to see what happens and allow interesting ideas to manifest.
+ - In terms of my own work ethic, I’ve always been a determined person. When I’m focused on something, I try to see it through.
+ - People don’t come to a comedy club simply to hear someone’s thoughts, no matter how profound.
+ - Ultimately, an audience wants to laugh. That’s who they like, the comedian who makes them laugh.
+ - It always comes down to what the crowd buys coming out of your mouth, which differs from one comic to the next.
+ - Certainly, you want to be liked, but as you gain confidence and experience you’re more concerned with expressing yourself and what matters to you.
+ - After twenty plus years of performing hundreds of shows a year, I prefer to try things out on stage rather than for friends. I don’t see the benefit in that, really.
+ - TV is a different animal. It’s not a club set. As you said, you do short sets on TV – about five minutes. So you have to get that rhythm down and also be aware of the camera so you’re connecting with the viewers at home as well as the studio audience. It’s a different muscle to develop.
+ - Inherent in mourning is celebration. Mourning without celebration or some form of acceptance leaves you stuck.
+ - Some comedians are silly or goofy or straight joke writers who avoid anything subversive or political. Others are drawn to it. The beauty of standup is there is room for everyone, and years of performing in front of crowds will dictate what you can or can’t do.
+ - You’ll get them tomorrow. You gave it a good shot. Keep your chin up.
+ - Comedians are thinkers. The best ones are akin to philosophers, in my opinion.
+ - The blues is a hopeful music. It helps you process something rather than avoid it. It’s like mourning, in essence.
+ - Comics definitely embody the importance of practicing free speech.
+ - Like once we picked Jim Norton as the head of security, the writing flows pretty easily.
+ - If you’re funny, you can find a stage to get on. If you’re good, you’ll start to get work and eventually get paid.
+ - Laughing at something is a form of accepting it or at list making peace with it.
+ - I think comedy is no different now than it was at other points. It takes a long time to get good and know how to distill what makes you funny beyond the realm of standup, which is what I’m trying to do with Teachers Lounge.
+ - Listening to your own sets and listening to the audience as you perform. It’s a conversation of sorts. There is an exchange.
+ - That heightened dynamic can produce interesting, funny ideas that are phrased in ways that surprise even you, as the performer.
+
+48 quotes

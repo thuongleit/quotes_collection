@@ -1,0 +1,33 @@
+ - The perfect day is going to bed with a dream and waking up with a purpose.
+ - Keep your head up and be patient.
+ - Music is love, love is music, music is life, and I love my life. Thank you and good night.
+ - Love is a sensation caused by temptation when a guy sticks his location into a girl’s destination to increase the population for the next generation. Do you understand my explanation or do you need a demonstration?
+ - Music first, music last, music always.
+ - But people who really know me, know that I am not a bad boy at heart I am a big teddy bear.
+ - Be very, very patient and very open-minded, and listen to what people have to say.
+ - No one’s a virgin, life screws us all!
+ - I’m the complete opposite of every clean cut, decent-looking guy you could ever think of. Yet, I have the biggest heart in the world.
+ - I’m a bit of an insomniac. I go to bed at 5am because I get caught up in watching TV or listening to music at night.
+ - No matter who you are or what you do, there will always be some people who don’t like you.
+ - I pray to God I get inside a girl’s head one day and see what in the WORLD they are thinking.
+ - You can have whatever you want if you believe in yourself and keep your feet firmly planted in the ground.
+ - I’m not good at secrets, so don’t tell me any.
+ - The biggest misconception about me is the bad-boy image that everyone stuck me into due to my tattoos, drug days and the constant changes I make with my hair color.
+ - Hugs are part of everybody life for me. Hug all sorts of people – I don’t worry about it looking unmanly or whatever. I think physical human contact is one of the things that makes living worthwhile.
+ - I look good. I feel good and not to sound conceited I sound great.
+ - I can’t stress how much my daughter is an inspiration to stay sober. When I come home and she opens those big blue eyes at me, it’s the most amazing feeling I could ever feel.
+ - Once I went to bed in Orlando and I woke up in Atlanta. I have no idea how that happened.
+ - My idea of the perfect bottom would be nice, bubbly, curvy, firm, maybe a little bit bouncy.
+ - There’s life outside Backstreet Boys that is going on and continuing.
+ - Communication is so much better when people are vulnerable.
+ - I shop more than most women.
+ - Our fans want us to be happy and if that means being married or having a girlfriend, they are okay with that. Of course, in this industry it is a bit harder to have normal relationships, but it is possible.
+ - I’ll sing outside your window. I’m as old fashioned as they come.
+ - You just can’t let anything or anyone get in the way of who you are.
+ - I’m the type of guy who likes to be there 24-7. I’m Mr. Roses.
+ - You can live and learn, but you cannot learn to live. So just live.
+ - I don’t like it when people don’t look me dead in the eye. I move my head around trying to catch their eye.
+ - I’ve worn a dress at my wedding. I’ve worn 6-inch Louboutins. I’ve got no fear and no shame.
+ - I grew up in musical theatre and love to perform on stage.
+
+31 quotes

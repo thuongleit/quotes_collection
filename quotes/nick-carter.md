@@ -1,0 +1,46 @@
+ - My family comes first before anything, they are everything to me.
+ - Live life to the fullest, for the future is scarce.
+ - Don’t ever let anyone else write your story for you.
+ - You are what you wear.
+ - Nobody’s perfect, but at the same time, I always try to learn from my mistakes.
+ - The ocean does something to me that is unexplainable. Just being out there and realizing im alive.
+ - I get homesick a lot. That can make me so emotional that I sometimes feel like crying- but never in front of anyone. No way!
+ - I want to be crazy forever, even when I’m 80.
+ - I think that all of the scars and all of the layers that I’ve built over the years made me the person that I am today, and I’m pretty happy about that person.
+ - As long as you know, within yourself, that you’re no better than anyone else out there, you’re OK.
+ - As long as you’re having fun and still doing stuff, it doesn’t matter what other people think.
+ - People should be judged on the things they do, not how they look.
+ - Everyone wears a mask.
+ - I sometimes miss the days where I could fly a little more under the radar. There was no social media in the ’90s, and it was a different world. I also miss TRL – that was always a blast!
+ - OH MY GOD! In Thailand, they’ve got the spiciest food I’ve ever had in my life!
+ - If you love math, have a knack for numbers, study hard and become a successful accountant; who cares if you can’t draw a straight line or sing on key?
+ - Everybody that I meet inspires me. You can learn so much from any person that you meet any day on the side of the street.
+ - Without Ace of Base, I kind of feel Backstreet Boys would have never found their sound.
+ - It’s kind of weird, because I look at myself as just a normal person. My friends get rejected all the time, so why shouldn’t I? I don’t think I’m anything special.
+ - I admit, I am a demon at nintendo.
+ - I try to make myself look as normal as possible because I like people to relate to me.
+ - One of the most important things that I did to turn my life around was to realize and to accept that from this minute, that’s all we have. Everything that happened behind us we cannot change so you might as well look to the future.
+ - I used to try to draw my girlfriends. I think one of the most romantic things that anybody can do is draw a portrait of the person you love.
+ - The last person I’d date is some rich kid who’s had everything handed to her on a plate. Give me a normal girl any day.
+ - I remember pogs and sticky hands. I remember both. I wanted to get into pogs. I remember it was, like, all of a sudden it was here, then gone.
+ - I can be shy when I talk to women. I’m a shy dude.
+ - I freak out if I go a little too long without being in the gym. For a long time it was all about getting the weight off because I was 240 pounds at my heaviest, and now I’m around 175, so the majority of that weight loss was due to diet and exercise.
+ - I wanted to be at my sister’s funeral, but my family has always had a complicated dynamic.
+ - Fame is a lot of pressure, especially when you’re responsible for your entire family. Financially, emotionally – everything.
+ - I’m most excited to see how I’ve grown as a performer. After Dancing With the Stars I really was able to evolve in a lot of ways and I’m excited to put that to use on stage.
+ - Sometimes I shut up cause I’m afraid I don’t have anything interesting to tell anyway.
+ - I’m an old rock and roll buff. I love Bruce Springsteen and Tom Petty.
+ - I kind of consider myself a chameleon in music. I love all sorts of music.
+ - I never hang my feet off the end of the bed -I’m afraid little gremlins will bite my toes! Really!
+ - With everybody that I’ve met, there’s always been something I’ve learned about them that I like.
+ - I never really am in awe of people because we are just equal at the end of the day.
+ - I really enjoy making different types of music than I do with the Backstreet Boys.
+ - I try to be bad, but nobody will let me.
+ - But I don’t regret anything that I’ve gone through, because it makes me who I am.
+ - The kids would be thrown into the middle, to choose sides.
+ - Thankfully I have a fan base that wants to see me, so I really enjoy creating music that is different.
+ - I don’t believe in being mean to anyone. I’m a really peaceful person. That’s something I get from my family.
+ - I never really followed the traditional route when it comes to what people probably expect as a solo artist goes, but that’s just me. It’s my own creative output and it’s my expression.
+ - I’m excited to just have somebody that I can protect. Someone I can make sure is superloved and never really experiences the turmoil that I went through with my family, to just have a really loving environment that grows intelligent and in love and breathes happiness and productivity.
+
+44 quotes

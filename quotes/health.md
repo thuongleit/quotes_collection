@@ -1,0 +1,42 @@
+ - Health is not valued till sickness comes. ~~Thomas Fuller
+ - Health is the greatest possession. ~~Laozi
+ - Take care of your body. It’s the only place you have to live. ~~Jim Rohn
+ - Keeping your body healthy is an expression of gratitude to the whole cosmos – the trees, the clouds, everything. ~~Nhat Hanh
+ - Time And health are two precious assets that we don’t recognize and appreciate until they have been depleted. ~~Denis Waitley
+ - He who has health, has hope; and he who has hope, has everything. ~~Thomas Carlyle
+ - It is health that is real wealth and not pieces of gold and silver. ~~Mahatma Gandhi
+ - Early to bed and early to rise makes a man healthy, wealthy, and wise. ~~Benjamin Franklin
+ - The doctor of the future will no longer treat the human frame with drugs, but rather will cure and prevent disease with nutrition. ~~Thomas A. Edison
+ - The art of medicine consists in amusing the patient while nature cures the disease. ~~Voltaire
+ - One cannot think well, love well, sleep well, if one has not dined well. ~~Virginia Woolf
+ - Health is like money, we never have a true idea of its value until we lose it. ~~Josh Billings
+ - Be careful about reading health books. You may die of a misprint. ~~Mark Twain
+ - There’s a lot of people in this world who spend so much time watching their health that they haven’t the time to enjoy it. ~~Josh Billings
+ - One of the most sublime experiences we can ever have is to wake up feeling healthy after we have been sick. ~~Harold S. Kushner
+ - Medicine is not only a science; it is also an art. It does not consist of compounding pills and plasters; it deals with the very processes of life, which must be understood before they may be guided. ~~Paracelsus
+ - It’s far more important to know what person the disease has than what disease the person has. ~~Hippocrates
+ - Do what is healing to your spirit and without effort you will bring the world healing in return. ~~Alan Cohen
+ - We turn not older with years but newer every day. ~~Emily Dickinson
+ - The healthy man does not torture others – generally it is the tortured who turn into torturers. ~~C.G. Jung
+ - Every patient carries her or his own doctor inside. ~~Albert Schweitzer
+ - Health is a state of complete harmony of the body, mind and spirit. When one is free from physical disabilities and mental distractions, the gates of the soul open. ~~B.K.S. Iyengar
+ - If slaughterhouses had glass walls, everyone would be a vegetarian. ~~Paul McCartney
+ - Diseases of the soul are more dangerous and more numerous than those of the body. ~~Marcus Tullius Cicero
+ - A healthy attitude is contagious but don’t wait to catch it from others. Be a carrier. ~~Tom Stoppard
+ - Cheerfulness is the best promoter of health and is as friendly to the mind as to the body. ~~Joseph Addison
+ - If you have health, you probably will be happy, and if you have health and happiness, you have all the wealth you need, even if it is not all you want. ~~Elbert Hubbard
+ - If you are irritated by every rub, how will your mirror be polished? ~~Rumi
+ - Healing in a matter of time, but it is sometimes also a matter of opportunity. ~~Hippocrates
+ - When wealth is lost, nothing is lost; when health is lost, something is lost; when character is lost, all is lost. ~~Billy Graham
+ - Health is worth more than learning. ~~Thomas Jefferson
+ - It is a lot harder to keep people well than it is to just get them over a sickness. Take care of yourself. ~~D. C. Jarvis
+ - Even when all is known, the care of a man is not yet complete, because eating alone will not keep a man well; he must also take exercise. For food and exercise, while possessing opposite qualities, yet work together to produce health. ~~Hippocrates
+ - As long as man continues to be the ruthless destroyer of lower living beings he will never know health or peace. For as long as men massacre animals, they will kill each other. ~~Pythagoras
+ - A man can live and be healthy without killing animals for food; therefore, if he eats meat, he participates in taking animal life merely for the sake of his appetite. ~~Leo Tolstoy
+ - Happiness is neither virtue nor pleasure nor this thing nor that but simply growth, We are happy when we are growing. ~~William Butler Yeats
+ - We ask ourselves, Who am I to be brilliant, gorgeous, talented, fabulous? Actually, who are you not to be? You are a child of God. Your playing small does not serve the world. ~~Marianne Williamson
+ - The trouble with always trying to preserve the health of the body is that it is so difficult to do without destroying the health of the mind. ~~Gilbert K. Chesterton
+ - It is no measure of health to be well adjusted to a profoundly sick society. ~~Jiddu Krishnamurti
+ - I go to nature to be soothed and healed, and to have my senses put in order. ~~John Burroughs
+
+40 quotes

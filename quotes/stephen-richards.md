@@ -1,0 +1,46 @@
+ - The true measure of success is how many times you can bounce back from failure.
+ - Success will be within your reach only when you start reaching out for it.
+ - To get something different, you must do something different.
+ - No matter how small you start, always dream big.
+ - When you fight yourself to discover the real you, there is only one winner.
+ - If you think you can then you can.
+ - The only time you fail is when you fall down and stay down.
+ - You are essentially who you create yourself to be and all that occurs in your life is the result of your own making.
+ - When your back is to the wall and you are facing fear head on, the only way is forward and through it.
+ - Stand out from the crowd, be yourself.
+ - It’s not about working for money, it’s about having money work for you.
+ - Happy people produce. Bored people consume.
+ - Both positive and negative thinking are contagious.
+ - When you fail, that is when you get closer to success.
+ - Positive belief in yourself will give you the energy needed to conquer the world and this belief is the power behind all creation.
+ - To dream by night is to escape your life. To dream by day is to make it happen.
+ - A broken friendship that is mended through forgiveness can be even stronger than it once was.
+ - Never allow your mind to wander untamed like a wild animal that exists on the basis of survival of the fittest. Tame your mind with consistent focus on your goals and desires.
+ - Reality is a projection of your thoughts or the things you habitually think about.
+ - When you concentrate your energy purposely on the future possibility that you aspire to realize, your energy is passed on to it and makes it attracted to you with a force stronger than the one you directed towards it.
+ - When you connect to the silence within you, that is when you can make sense of the disturbance going on around you.
+ - Minds are like flowers, they only open when the time is right.
+ - Whatever it takes to find the real you, don’t be daunted if the rest of the world looks on in shock.
+ - Inaction creates nothing. Action creates success.
+ - Exhaust your worries and they will soon leave you.
+ - Judgment is a negative frequency.
+ - The discontent and frustration that you feel is entirely your own creation.
+ - Without desires and dreams, your thoughts do not matter and you can think whatever you want to.
+ - You don’t have to be good at something to be liked.
+ - The most valuable gift you can receive is an honest friend.
+ - Before you can successfully make friends with others, first you have to become your own friend.
+ - When you’re alone is when you can count your friends.
+ - No matter whether you believe in luck or chance, the final decision is from yourself.
+ - Don’t live to be judged for what you haven’t done. Live to be judged for what you have done.
+ - Every sunrise is priceless and you can experience the richness that life holds only when you live life to the full instead of just being an onlooker.
+ - Even though your thinking might not be right for others, just so long as it’s right for you then that’s all what matters.
+ - Our way of thinking creates good or bad outcomes.
+ - A thought is a Cosmic Order waiting to happen.
+ - True friendship never questions what it costs you.
+ - What we perceive about ourselves is greatly a reflection of how we will end up living our lives.
+ - Happiness is something we reap from the seeds we sow. Plant misery seeds and that us what you reap.
+ - We are exactly what our history made us to be.
+ - The realisation that limitations are imaginary will make you strong and overpowering.
+ - For us to regard others as worthy, we have to begin by regarding ourselves as worthy.
+
+44 quotes

@@ -1,0 +1,32 @@
+ - You ask what is the use of classification, arrangement, and systemization? I answer you: order and simplification are the first steps toward the mastery of a subject – the actual enemy is the unknown.
+ - Beer soothes the upset soul.
+ - Responsibility for overseeing the implementation of election law typically resides with partisan officials, many with public stakes in the election outcome.
+ - Speech is civilization itself. The word, even the most contradictions word, preserves contact – it is silence which isolates.
+ - Presidents are elected not by direct popular vote but by 538 members of the Electoral College.
+ - In addition to the decline in competition, American politics today is characterized by a growing ideological polarization between the two major political parties.
+ - We are not separate and independent entities, but like links in a chain, and we could not by any means be what we are without those who went before us and showed us the way.
+ - The public’s evaluation of the job George W. Bush is doing as president changed dramatically as a result of the horrific attacks of September 11 and his response in leading the country on a campaign against terrorism.
+ - Knowledge of the soul would unfailingly make us melancholy if the pleasures of expression did not keep us alert and of good cheer.
+ - For I must tell you that we artists cannot tread the path of Beauty without Eros keeping company with us and appointing himself as our guide.
+ - A human being tends to believe that the mood of the moment, be it troubled or blithe, peaceful or stormy, is the true, native, and permanent tenor of his existence.
+ - With the parties at virtual parity and the ideological gulf between them never greater, the stakes of majority control of Congress are extremely high.
+ - Further-more, partisan attachments powerfully shape political perceptions, beliefs and values, and incumbents enjoy advantages well beyond the way in which their districts are configured.
+ - Some of necessities go astray, because for them there is no such thing as a right path.
+ - Whose best and most fruitful gift was the power of admiration, which made it possible for me to learn. Now, as in my youth, I am looking up to the truly great creations of the past, which I see high above my own and which alone deserve the name of greatness.
+ - Congress requires states to draw single-member districts.
+ - The increase in straight-ticket party voting in recent years means that competitive congressional races can tip one way or the other depending on the showing of the candidates at the top of the ticket.
+ - While Republican voters have remained universally supportive of their President, Democrats and Independents are returning to a more naturally critical stance.
+ - But presidential approval also became a surrogate measure of national unity and patriotism.
+ - All of this suggests that while citizens became more comfortable with President Bush after September 11 and thought him to have the requisite leadership skills, they continue to harbor doubts about his priorities, loyalties, interests, and policies.
+ - It is impossible for ideas to compete in the marketplace if no forum for their presentation is provided or available.
+ - The writer’s joy is the thought that can become emotion, the emotion that can wholly become a thought.
+ - First, his job approval ratings have been trending down for many months, a trend that has accelerated in recent weeks as the war on terrorism has been supplanted in the public’s mind by corporate scandals, stock market declines, and a growing sense of economic insecurity.
+ - Votes in federal elections are cast and counted in a highly decentralized and variable fashion, with no uniform ballots and few national standards.
+ - Human reason needs only to will more strongly than fate, and she is fate.
+ - In the House, Republican prospects have been buoyed by several successful rounds of redistricting, which have sharply reduced the number of competitive seats and given the Republicans a national advantage of at least a dozen seats.
+ - America is an outlier in the world of democracies when it comes to the structure and conduct of elections.
+ - The only religious way to think of death is as part and parcel of life.
+ - A healthy degree of party unity among Democrats and Republicans has deteriorated into bitter partisan warfare.
+ - Science never makes an advance until philosophy authorizes it to do so.
+
+30 quotes

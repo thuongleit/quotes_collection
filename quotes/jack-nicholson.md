@@ -1,0 +1,225 @@
+ - You make me want to be a better man.
+ - I don’t want to be a product of my environment. I want my environment to be a product of me.
+ - The only way to break a bad habit was to replace it with a better habit.
+ - You can’t handle the truth!
+ - My motto is: more good times.
+ - Have you ever danced with the Devil in the pale moonlight?
+ - We live, we die, and the wheels on the bus go round and round.
+ - When you look at life retrospectively you rarely regret anything that you did, but you might regret things that you didn’t do.
+ - I have given a name to my pain, and it is Batman.
+ - This town needs an enema!
+ - Women – a mistake, or did He do it to us on purpose?
+ - Well, a girlfriend once told me never to fight with anybody you don’t love.
+ - I eat breakfast 300 yards from 4000 Cubans, who are trained to kill me, so don’t think for one second that you can come down here, flash your badge and make me nervous.
+ - I have never lied to you, I have always told you some version of the truth.
+ - You look at someone long enough, you discover their humanity.
+ - I don’t believe that relationships are fixed things. People are necessarily complex and confused beings. We don’t always do the right thing, say the right, and behave the same way or the way we always want to behave.
+ - It’s very easy to go down, so always live up. Incline yourself upward.
+ - Never rub another man’s rhubarb.
+ - For a long time, I was afraid to be alone. I had to learn how to be alone. And there are still times when I think, Uh-oh! I gotta talk to somebody here or I’m gonna go crazy! But I like to be alone. Now I do. I really do. There’s a big luxury in solitude.
+ - Just let the wardrobe do the acting.
+ - And this, incidentally, is my thumbnail sketch of American marriage: A woman sees a man; she likes him. Now she jumps on this thing and rides it to some kind of standstill. Then she changes it and trains it, and to the exact degree that she’s able to do this, she disrespects him.
+ - I usually don’t get too bogged down with my personal problems because that’s a one-way street if you get yourself into a negative frame of mind and only see the dark side of life.
+ - I’ll tell you one thing: Don’t ever give anybody your best advice, because they’re not going to follow it.
+ - I think the Greeks invented sports as an antidote to philosophy.
+ - I am in an age group where it is rude to discuss money, and now it is all anyone cares about.
+ - Children give your life a resonance that it can’t have without them.
+ - I feel very lucky because I don’t think there’s any part I can’t play. There are parts that scare me more than others...
+ - Human beings are always going to find interesting ways of making a mess of their lives. It’s human nature.
+ - I’m certainly not as tough as people think. I’m not a fighter and so forth. I’d just as soon go home.
+ - I’m not a power person. I like everyone to be on an equal footing.
+ - You can call me Joker. And as you can see, I’m a lot happier.
+ - I don’t know if this is a true statistic, but I heard somewhere that there are three times as many single women over forty as single men. That’s what we got from the women’s movement. The chickens have come home to roost.
+ - The minute that you’re not learning I believe you’re dead.
+ - In the real world there’s an after-effect of disappointment if you lose an argument. But if, to begin with, you’re set up not to have this particular autonomy, then you’re not disappointed.
+ - Charlize Theron and Cate Blanchett are very good actresses.
+ - We are going as fast as we can as soon as we can. We’re in a race against time, until we run out of money.
+ - You are more thoughtful because you don’t act as quickly anymore. When I turned 70 it was the first time I felt young for my age. Fifty dropped on me like a ton of bricks – there is something about that number – but when 70 came along I felt good about it.
+ - Well, a younger woman is a type, but not necessarily a type for me. And what is a younger woman? I mean, I’m pretty old. Almost everyone is younger.
+ - I’m definitely still wild at heart.
+ - There’s a period just before you start a movie when you start thinking, I don’t know what in the world I’m going to do. It’s free-floating anxiety. In my case, though, this is over by lunch the first day of shooting.
+ - Being pigeonholed is the death of all actors.
+ - Son, we live in a world that has walls and those walls have to be guarded by men with guns. Who’s gonna do it? You!?
+ - I never had a policy about marriage. I got married very young in life and I always think in all relationships, I’ve always thought that it’s counterproductive to have a theory on that.
+ - Staying together is a challenge. We all have to accept qualities in other people that aren’t always exactly what we want or need.
+ - I believe in making all movies at their most reasonable. That I get a lot of money as an actor is because nobody else will get it if I don’t.
+ - I’m fairly well off. I can’t poor-mouth that away from people’s sensibilities about me, which is something I worry about as an actor. But it would be real stupid of me to do something for the money.
+ - I’m a New Wave baby, so I got very stimulated by foreign film.
+ - What’s beautiful is all that counts, pal. That’s ALL that counts.
+ - That’s what I like about the movie business: you’re always in contact with wonderful and interesting people.
+ - I’d prefer if people had no impressions of me. As a kid, I had to tell my own family, “Please, just don’t talk about me!” Because they always got it wrong. Always. I just didn’t want them to tell anyone anything about me.
+ - I’m against cronyism, and I had to learn that early on. Like, I don’t have an entourage, because I saw the negative effects of those things.
+ - I always knew there wasn’t going to be anybody to help me and emotionally support me, that whatever I did I’d have to do on my own.
+ - I just know that sameness, repetition, and conceptualizing are the acting craft’s adversaries, and it seems more intelligent to start off within a framework where those things are, to some degree, taken out of your hands.
+ - I want a big 25-foot pink statue that holds my grave. Or I also might like the way the Indians did it. They hang you up on the top of a tree and the birds eat you. No, really I would probably choose cremating.
+ - It always bothered me when people came off stage and were told how great they were. They weren’t, really, in my opinion. It was then I started thinking that, contrary to conventional wisdom, film was the artful medium for the actor, not the stage.
+ - I know I can act. There aren’t too many other jobs I know how to do.
+ - Financially, I’ve lost money and made money, but I know my way around financially.
+ - I’ve always understood money; it’s not a big mystical thing to me.
+ - As an actor, I want to give in to the collaboration with the director because I don’t want my work to be all the same. The more this can be done with comfort, the more variety my work has had.
+ - The most difficult thing about being well known? Getting out of a hotel room at 4am.
+ - I suppose I can do more for a script as an actor than as a writer – in the film sense.
+ - I think the Greeks invented sports as an antidote to philosophy. In sports there are absolute rules. It’s not, What about this? What about that? Either you’re safe or you’re out. It’s ten yards or it’s not. It’s in the hoop or out of the hoop. It’s certain.
+ - Age is the first limitation on roles that I’ve ever had to encounter, and I hit that awhile ago.
+ - Do you think God knew what he was doing when he created woman?
+ - I love the company of people. I always have and always will, it comes with my family. But earlier in life I might have got a little nervous if I was alone for a day or two in a row. I might think, “Where are they?” Now, I just go on doing naturally what I do.
+ - I love working with women directors. They don’t mind making you cute.
+ - I’m a scamp. I don’t deny it. I like myself.
+ - I did not want to be coming off the stage at the mercy of what somebody else told me I did.
+ - There are short parts that I as an actor am very right for. Or I just like the part. Or you need someone like me for the movie. By that I don’t mean at the box office, I mean in the execution of the material.
+ - If I go into a restaurant there’s a very good chance that I’m going to spend my time being the mayor. If I want to have a good time, I’m happier having dinner here.
+ - The less people know about me, the easier my job is.
+ - Liberalism is the right to question without being called a heretic. That’s what America did for the world.
+ - I would never say, “I’m retired.” I believe if I decided to just not work, in six months everybody would just forget whether you were working or not.
+ - I wanted to be the best actor possible. I worked very hard at the craft of it.
+ - If you want your freedom, you have to be willing to work hard to exercise it.
+ - I don’t want to direct a movie as good as Antonioni, or Kubrick, or Polanski, or whoever. I want it to be my own. I think I’ve got the seed of it and, what’s more, that I can make movies that are different and informed by my taste.
+ - When they say I’m a great actor, I close my ears because it’s not good for you to think that way.
+ - If it is difficult to know yourself as an individual, it seems to be more complex as a couple. So if you say, “Oh I like a person who is like this and that,” you might take away the possibility of seeing the only one that might be right for you.
+ - You’re anachronistic when you know that your feelings aren’t going to have any effect on anything.
+ - There’s no point dwelling on what might or could have been. You just have to go forward.
+ - I know I can act. There aren’t too many other jobs I know how to do. Financially, I’ve lost money and made money, but I know my way around financially. I’ve been too many places. I’m like the bad penny.
+ - I would never complain about my life, even though I really would like to have a mate.
+ - There’s a tacit agreement today that the white male is the only legitimate target for any and all satire, criticism, and so forth. And we pretty much just accept it.
+ - You have to do every movie one at a time. Trilogy is contrary to this ideology. My nightmare is to wake up and find myself the host of a TV series.
+ - I have never felt brutalized as an actor. Many actors do, some times, but I’ve never had that experience. If I’m not happy with the balance, I just won’t work with that person again.
+ - I’m very fortunate in the sense that outside of cohabitating relationships and so forth, I’ve always got on just as well with women.
+ - I don’t even own a cell phone.
+ - My whole career strategy has been to build a base so that I could take the roles I want to play. I’d hate to think that a shorter part might not be available because I was worried about my billing.
+ - Most of the early part of an actor’s career, you do the jobs you get.
+ - How would I like to be seen? Very endearing, charming, intelligent, handsome.
+ - Many actors will try something different once, but if it isn’t a box office success they’ll never do it again. In my opinion, there’s no point in going on with this job if you do the same thing over and over again.
+ - Through all permutations and youthful poetry, I came to believe that the film actor was the great “literateur” of his time.
+ - If you’re going to write, write one poem all your life, let nobody read it, and then burn it. This is very young thinking, I confess, but it is the seminal part of my life.
+ - I don’t remember if I’ve been asked seriously to direct a picture. I understand that. I’m very good business for people as an actor and perhaps they’d rather I didn’t.
+ - Comedy is much harder, it’s a lot more exacting. You can’t just be real and you can’t just use the same kind of techniques you use to fill up a regular scene.
+ - It’s a slight stretch of the imagination but most people are alike in most ways so I’ve never had any trouble identifying with the character that I’m playing.
+ - I thought of myself as part of the general filmmaking effort. And as my scope broadened, I began to think about directing. I wanted to be the guy who got to say whether the dress is red or blue.
+ - Having kids is the most innately positive thing that anyone can do.
+ - I learned a long time ago in Hollywood that the only person I should vote for is myself.
+ - I’ve never been able to say I’ve been influenced by a list of artists I like because I like thousands and thousands and I’ve been influenced in some way by all of them.
+ - Frankly, I got into the movies because I like the movies a lot.
+ - There is no way you can get people to believe you on screen if they know who you really are through television.
+ - I want my kids to have a deep, inner feeling that it’s alright to be happy, that you don’t have to be constantly manufacturing problems that you don’t really have.
+ - You can’t say, “I’m gonna make a hit movie.” You’re as dead as you could be.
+ - I love women who have a strong sense of themselves because I know I have a pretty good idea of what I want out of life and I like to be around other people who are also pretty secure. It just makes things easier.
+ - I don’t have any plugs or tucks but people do what they want. I look at it as mutilation.
+ - I used to think that one of the great signs of security was the ability to just walk away.
+ - There are major influences on us that people are not aware of. There are big lies that nobody’s willing to discuss.
+ - There’s probably no one who understands Method acting better academically than I do, or actually uses it more in his work. But it’s funny – nobody really sees that. It’s perception versus reality, I suppose.
+ - I’ve spent more time playing golf than anything else the last 18 years. Just wanted to be an 80s-shooter. Got there, too.
+ - It’s not like I’m starved for company – I have a few very good lady friends – but there’s only a certain amount of times a woman wants to see you and never go out for dinner.
+ - I’ve been too many places. I’m like the bad penny.
+ - I have a lot of vanity.
+ - I’m the last guy in the world to feel overlooked by the Academy.
+ - As a means of supporting experiential element in film, once I begin to work on a particular movie I consider myself to be the tool of the director.
+ - Men dominate because of physicality, and thus they have mercy where women do not.
+ - Women are sort of like motorcycle gangs with me. They get really shy and polite. I don’t know why.
+ - If you think you’re attractive, you’re always attractive.
+ - I didn’t know that my sister was really my mother until I was thirty-seven years old. But life has taught me that there have been a lot of things that I didn’t know.
+ - Because you know, down deep in my heart, when all is said and done, I still live under the illusion that basically people think of me as an up-and-coming young actor.
+ - I’ve always had lots of friends who share my perspective – I guess you could say that I’m a guy who aggressively pursues his happiness.
+ - I assume most of the characters I play are exactly like me.
+ - I don’t believe in God now. I can still work up an envy for someone who has a faith. I can see how that could be a deeply soothing experience.
+ - I just like art. I get pure pleasure from it. I have a lot of wonderful paintings, and every time I look at them I see something different.
+ - I look for a director with a script he likes a lot, but I’m probably after the directors more than anything.
+ - Everybody said I was good, but being known and not having a big film success is almost tougher than being completely new. It just kind of turned my life around and was definitely a highlight.
+ - I sort of understood that when I first started: that you shouldn’t repeat a success. Very often you’re going to, and maybe the first time you do, it works. And you love it. But then you’re trapped.
+ - Once I got started acting I loved it.
+ - When I am cast in a movie where I feel that the woman’s part is more interesting, I usually start thinking about Spencer Tracy and Fred Astaire. They seem to be the most clear actors when working with women.
+ - Just because you’re perfectionist doesn’t mean you’re perfect.
+ - I love discourse. I’m dying to have my mind changed. I’m probably the only liberal who read Treason, by Ann Coulter. I want to know, you understand? I like listening to everybody. This to me is the elixir of life.
+ - Take caution in your tone, commander. I’m a fair man, but this – heat is making me absolutely crazy.
+ - Beer, it’s the best damn drink in the world.
+ - Decent people shouldn’t live here. They’d be happier some place else.
+ - Acting is everybody’s favorite second job.
+ - Sometimes a bit of distance can be very healthy. You can go away by yourself on a trip and come back very glad to be with your partner because you’ve cleared your head out of all the negativity.
+ - If I were an Arab-American, I would insist on being profiled. This is not the time for civil rights. There are larger issues for Americans.
+ - Almost everybody’s happy to be a fool for love.
+ - Time keeps no measure when true friends are parted, No record day by day; the sands move not for those who, loyal-hearted, friendship’s firm laws obey.
+ - When we make mistakes they call it evil. When God makes mistakes they call it Nature!
+ - If men are honest, everything they do and everywhere they go is for a chance to see women.
+ - I am a person who is trained to look other people in the eye. But I can’t look into the eyes of everyone who wants to look into mine; I can’t emotionally cope with that kind of volume. Sunglasses are part of my armor.
+ - I goddamn near lost my nose. And I like it. I like breathing through it.
+ - I don’t think many people have a very good understanding of leisure and the importance it plays in our lives.
+ - I hate giving advice, because people won’t take it.
+ - In this industry, there are only two ways up the ladder. Rung by rung or claw your way to the top. It’s sure been tough on my nails.
+ - For an actor, style comes last. You first have to implement the whole thing, but your style comes from the subconscious, which is the best part an actor brings to his work.
+ - I’m such a perfectionist. I always feel overpraised or whatever. In the abstract, I know I’m a good person, a good professional. But it’s nice to be noticed a little bit, ain’t it?
+ - I envy people of faith. I’m incapable of believing in anything supernatural.
+ - Played tennis for years. But you can’t improve at tennis after you’re 50. You get to be in your 40s, and suddenly you’re a doubles player.
+ - I resist all established beliefs. My religion basically is to be immediate, to live in the now.
+ - The average celebrity meets, in one year, ten times the amount of people that the average person meets in his entire life.
+ - No issue is more compelling than the air we breathe, be it hot or cold, be it hawk or human.
+ - I’m the age where we didn’t have television as kids. So when I saw my nieces and nephews watching Howdy Doody, Kukla, Fran and Ollie, and so forth, I thought the world had gone mad.
+ - I take responsibility for my successes as well as my failures. But when I look at my professional mistakes, I’m always left with the feeling that maybe I should have done more.
+ - Now comes the part where I relieve you, the little people, of the burden of your failed and useless lives. But remember, as my plastic surgeon always said: if you gotta go, go with a smile.
+ - Believe it or not, I supported Richard Nixon on the issue of presidential privilege. How could anyone conceive of being the president of the United States and think that every single thing that you say or do can become a part of the public record? It just seems so stupid to me.
+ - If you get an impulse in a scene, no matter how wrong it seems, follow the impulse. It might be something and if it ain’t – take two!
+ - I’ve always thought basketball was the best sport, although it wasn’t the sport I was best at. It was just the most fun to watch.
+ - I only take Viagra when I’m with more than one woman.
+ - I guess this proves there are as many nuts in the Academy as anywhere else.
+ - A man needs a private life. With no ability to have a private life, one thing leads to another, and before you know it we have Bill and Monica. We need to get real about things. Humans are humans. Why should we expect more?
+ - I’d give my goddamned soul for just a glass of beer.
+ - I was invited to join the MGM cartoon department. But if I’d started work in animation I’d have had to take a cut in salary, so I didn’t.
+ - I’ve always fought against being controlled and manipulated and stomped upon by circumstances.
+ - Dissembling is a common tool of the anger junkie.
+ - I don’t have any fear of intimacy, but rather thrive on it, which is rare in a public person.
+ - It’s the post-literate generation that is most disturbing to a movie-maker. The explosions and the knifings. People like to go to what’s hot and you can’t get past a certain gross unless you involve children who go more than once.
+ - There is one thing I know about creative conflict: once my argument is exhausted, I am not going to be unhappy whether it moves in my direction or away.
+ - Once you’ve been really ‘bad’ in a movie, there’s a certain kind of fearlessness you develop.
+ - I am a person who is trained to look other people in the eye.
+ - Always try in interviews to avoid the cliches about the problems of public life.
+ - Even in the most sophisticated person, it is the primitive eye that watches the film.
+ - Once you’ve started a film you don’t become a wet noodle. You must have that conflictual interface because you don’t know, and they don’t know. It’s through conflict that you come out with something that might be different, better than either of you thought to begin with.
+ - With my sunglasses on, I’m Jack Nicholson. Without them, I’m fat and 60.
+ - I was particularly proud of my performance as the Joker. I considered it a piece of pop art.
+ - OK, the director makes the movie. But some movies can’t get made without someone like me in them.
+ - We learn how to kiss, or to drink, talk to our buddies-all the things that you can’t really teach in social studies or history-we all learn them at the movies.
+ - In my last year of school, I was voted Class Optimist and Class Pessimist. Looking back, I realize I was only half right.
+ - I mean, it’s real hard to be free when you’re bought and sold in the marketplace.
+ - Everybody’s old enough for a beer, ain’t that right, Mule?
+ - Everyone pretty much acknowledges that he’s the man, and I still feel that underrates him.
+ - A star on a movie set is like a time bomb. That bomb has got to be defused so people can approach it without fear.
+ - I wasn’t a babe in the woods. I’d watched a lot of stars, from James Dean to Brando, and I’d seen everybody alive work at MGM. I had a certain old-timer’s quality, even though I was young and new, and drew on what I believed before I made it.
+ - I certainly knew my father. He just didn’t happen to be my biological father.
+ - You can follow the action, which gets you good pictures. You can follow your instincts, which will probably get you in trouble. Or, you can follow the money, which nine times out of ten will get you closer to the truth.
+ - With comedy, you have to do it right. In a drama, there’s a lot of different ways to succeed in a moment. But comedy comes from reality. You can’t try to be funny.
+ - There were points in my life where I felt oddly irresistible to women. I’m not in that state now and that makes me sad.
+ - I don’t play golf competitively. I tell everybody that I cheat so they won’t gamble with me. That’s why you can’t watch football. Everybody’s gambling. They don’t want to watch the game; they watch the spread.
+ - I’ve never lost a friend over work. I come from a small-town environment and I remember my childhood impressions that, if you were a conniver or a fink or whatever, everybody knew about it and you were a louse for the rest of your life. So I never lost those values in some way.
+ - I can’t hit on women in public any more. I didn’t decide this; it just doesn’t feel right at my age.
+ - It’s difficult for people sometimes to recognise when they’re happy. People sometimes seem to me to be afraid to be happy.
+ - I’m in the movie business; it’s meant to be very cutthroat. But you won’t find anybody that ever says I cheated them or manipulated them.
+ - Early on, if I was alone two three nights in a row, I’d start writing poems about suicide.
+ - Life doesn’t have to be about finding Osama bin Laden or becoming the president of the United States. Life is about the little things, which is one of the things you learn when you get older.
+ - I’m Irish. I think about death all the time.
+ - The first role I ever played I had the lead and it’s pretty much stayed that way, though people take great relish in calling me a character actor, which I am. There are a lot of short parts I could play, but I only do them when they are central to the idea of the movie.
+ - A lot of people in the middle of their lives have a secret yearning for more romance.
+ - I’m not hard to get along with.
+ - When it’s over for a woman, it’s over. You’re not getting an appeal.
+ - On the birth of his son after having had two daughters: I finally got it right.
+ - The stage has a certain discipline. But the ultimate standard is more exacting in film, because you have to see yourself and you are your own toughest critic.
+ - I used to be very quick, I would be able to leave the room and be back before you noticed. When you can’t do that anymore you need to change the style of how you do things. But I’m very interested in life and you don’t want to lose that.
+ - In other words, I wouldn’t like to be an actor if I could only be real. I like to get wild, behaviorally wild, and it’s crazy to think of any form where it’s just one way.
+ - Kids are life’s only guaranteed, bona fide upside surprise.
+ - When I was in high school, I earned the pimple award and every other gross-out award.
+ - I don’t want people to know what I’m actually like. It’s not good for an actor.
+ - I like to not care that much about criticism, but I do care about it.
+ - I love writing, but I stopped because I felt I was more effective approaching filmmaking from a different vantage point.
+ - The camera photographs what’s there.
+ - I’ve always had an urge to feed my need to have fun and feel free. I don’t see any interesting alternatives.
+ - I come from the Lynchs of Sligo. You know, I went there, but I looked in the phone book and there are nine million Lynches in Sligo.
+ - There are many directors in the middle range who’ve made mostly successful pictures, and then there are a few great directors who’ve had some successes and some failures. I suppose my life would be smoother if I wasn’t almost totally enamored of the latter category.
+ - When you use a dialect, you worry that the people you’re imitating will think you’re making fun of them.
+ - A lot of people can’t remember things because they weren’t actually there to begin with – they don’t take it all in.
+ - Million bucks won’t see you through a major health crisis.
+ - I think of a man and I take away reason and accountability.
+ - I’m content with the fact that I made a decent effort. That’s what I’ve always worried about: that I wouldn’t try hard enough.
+ - I think that’s what distinguishes Schmidt, really. In the movies now, so much of what is appealing to an audience is the dramatic or has to do with science fiction, and Schmidt is simply human. There’s no melodrama; there’s no device, It’s just about a human being.
+ - Because of the way the business is structured, I have sometimes turned down scripts that I might otherwise have accepted had I known who was directing them.
+ - I have mainly been interested in acting. I think it’s a great job, a fine way to live your life.
+ - The fuel for the sports fan is the ability to have private theories.
+ - There was a period when I just wanted to make what I wanted to make and I didn’t care what lie I had to tell.
+
+223 quotes

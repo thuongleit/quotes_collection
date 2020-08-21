@@ -1,0 +1,60 @@
+ - If the world is saved, it will not be saved by old minds with new programs but by new minds with no programs at all.
+ - Indigenous people believe that Man belongs to the World; civilized people believe that the World belongs to Man.
+ - With man gone, will there be hope for gorilla?
+ - The world doesn’t belong to us, we belong to it. Always have, always will. We belong to the world. We belong to the community of life on this planet – it doesn’t belong to us. We got confused about that, now it’s time to set the record straight.
+ - There is no one right way to live.
+ - The obvious can sometimes be illuminating when perceived in an unhabitual way.
+ - Don’t wait. Where do you expect to get by waiting? Doing is what teaches you. Doing is what leads to inspiration. Doing is what generates ideas. Nothing else, and nothing less.
+ - TEACHER seeks pupil. Must have an earnest desire to save the world. Apply in person.
+ - Lies are like sleeping pills. You should only use them when you absolutely have to. They spoil everything if you make a habit of them.
+ - And every time the Takers stamp out a Leaver culture, a wisdom ultimately tested since the birth of mankind disappears from the world beyond recall.
+ - You shouldn’t have to settle for rabbits if what you want is deer.
+ - The journey itself is going to change you, so you don’t have to worry about memorizing the route we took to accomplish that change.
+ - We’re not destroying the world because we’re clumsy. We’re destroying the world because we are, in a very literal and deliberate way, at war with it.
+ - Wow, just imagine missing school on the day when they were learning blue. You’d spend the rest of your life wondering what color the sky is.
+ - Everyone in your culture knows this. Man was born to turn the world into paradise, but tragically he was born flawed. And so his paradise has always been spoiled by stupidty, greed, destructiveness, and shortsightedness.
+ - People will listen when they’re ready to listen and not before. Don’t waste time with people who want to argue. They’ll keep you immobilized forever. Look for people who are already open to something new.
+ - The world is not going to survive very much longer as humanity’s captive.
+ - It’s the idea that people living close to nature tend to be noble. It’s seeing all those sunsets that does it. You can’t watch a sunset and then go off and set fire to your neighbor’s tepee. Living close to nature is wonderful for your mental health.
+ - Karl Marx recognized that workers without a choice are workers in chains. But his idea of breaking chains was for us to depose the pharaohs and then build the pyramids for ourselves, as if building pyramids is something we just can’t stop doing, we love it so much.
+ - But why? Why do you need prophets to tell you how you ought to live? Why do you need anyone to tell you how you ought to live.
+ - Blessed are those who do whatever they can wherever they are, for no one is devoid of resources or opportunities.
+ - There are indeed times when one should TRUST blindly, just as there are times when one should not. WISDOM consists in being able to tell one from the other.
+ - Thinkers aren’t limited by what they know, because they can always increase what they know. Rather they’re limited by what puzzles them, because there’s no way to become curious about something that doesn’t puzzle you.
+ - I have amazing news for you. Man is not alone on this planet. He is part of a community, upon which he depends absolutely.
+ - Increasing food production to feed an increased population results in yet another increase in population.
+ - From the animist point of view, humans belong in a sacred place because they themselves are sacred. Not sacred in a special way, not more sacred than anything else, but merely as sacred as anything else – as sacred as bison or salmon or crows or crickets or bears or sunflowers.
+ - Children don’t need learning. They need access to what they want to learn outside the home.
+ - We’re straying from the path of salvation because we remember that we once belonged to the world and were content in that belonging.
+ - And in spite of all the mastery we’ve attained, we don’t have enough mastery to stop devastating the world, or to repair the devastation we’ve already wrought.
+ - The mythology of your culture hums in your ears so constantly that no one pays the slightest bit of attention to it. Of course man is conquering space and the atom and the deserts and the oceans and the elements. According to your mythology, this is what he was BORN to do.
+ - There is a difference between the inmates of your criminal prisons and the inmates of your cultural prison: The former understand that the distribution of wealth and power inside the prison had nothing to do with justice.
+ - Many of the biggest and most far-reaching investments we make in our lives are investments that have little or nothing to do with money.
+ - From infancy onward, children are the most fantastic learners in the world.
+ - What is crucial to your survival as a race is not the redistribution of power and wealth within the prison but rather the destruction of the prison itself.
+ - If you alone found out what the lie was, then you’re probably right – it would make no great difference. But if you ALL found out what the lie was, it might conceivably make a very great difference indeed.
+ - You know how to split atoms, how to send explorers to the moon, how to splice genes, but you don’t know how people ought to live.
+ - Pity is always twinged with disgust.
+ - There are times when having too much to say can be as dumbfounding as having too little.
+ - Our lifestyle is evolutionarily unstable – and is therefore in the process of eliminating itself in the perfectly ordinary way.
+ - What’s normal is for things to work. What’s not normal is for things to fail.
+ - The world was not made for any one species.
+ - If the world was made for us, then it BELONGS to us and we can do what we damn well please with it.
+ - The world of the Takers is one vast prison, and except for a handful of Leavers scattered across the world, the entire human race is now inside that prison.
+ - We are all captives of a story.
+ - Our schools are much like our prisons: they disappoint us because they only do what they’re designed to do, and it annoys us that they don’t do something else!
+ - Imagine that the gods have a care for everything that lives in the community of life on earth.
+ - The world is not in any sense in danger from itself. The world is in fact not in any danger at all. It is we who are in danger.
+ - I hope it will not be too long before the technologies that support our population explosion begin to be perceived as no less hazardous to the future of life on this planet than the endless production of radioactive wastes.
+ - Animists are not so much people with a religion as people with a fundamentally religious way of looking at things.
+ - You never actually know how you’re going to handle a problem until you actually have it.
+ - In fact, of course, there is no secret knowledge; no one knows anything that can’t be found on a shelf in the public library.
+ - The world must live. We are only one species among billions. The gods don’t love us any more than they love spiders or bears or whales or water lilies.
+ - All paths lie together in the hand of god like a web endlessly woven, and yours and mine are no greater or less than the beetle’s or the squirrel’s or the sparrow’s. All are held together.
+ - Don’t try to drive the homeless into places we find suitable. Help them survive in places they find suitable.
+ - We need schools to force kids to learn things they have no use for.
+ - May the forests be with you and with your children.
+ - Courage is the virtue of the free.
+ - The sign stopped me – or rather, this text stopped me. Words are my profession; I seized these and demanded that they explain themselves, that they cease to be ambiguous.
+
+58 quotes

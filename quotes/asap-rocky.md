@@ -1,0 +1,63 @@
+ - I’m not a gangster, bro.
+ - All of the young people – the artsy people, people who get overlooked because they’re weird or they don’t have hype around them – need to get some shine.
+ - I want to make my own path and leave behind a good legacy for myself and honestly, I just want to be innovative and always down for other people. That’s what I want to be remembered by. I want to inspire.
+ - Purple lipstick? Naw, that looks stupid on all girls!
+ - I don’t have any favourite lyrics. Honestly, all of them I love ’em to death – it’s the same with songs. I don’t have just one favourite lyric, I love them all.
+ - In Harlem, I got all my black friends. But when I go downtown, I got black, white, Asian, Indian friends. There’s no borders, no barriers.
+ - Weed is going to bring us together as a generation. Drugs is what created Woodstock. Let’s be clear about that.
+ - Everybody should be able to enjoy their life, because you only live once. So I just want to get it all out there and be the best role model that I can be, if people want to put me in that kind of predicament. I mean, I didn’t ask to be a role model, because I’m not perfect.
+ - I strive for perfection, but Im not perfect. But what I can say is my morals are totally different than any other 24-year-old rapper my age now. I look at life totally different. A whole other aspect. I have different views and morals on life in general. And opinions.
+ - I hate the hype. When 50 Cent came out, people were saying that he was the best rapper alive: “Oh, he got shot nine times, he’s better than Tupac, he’s better than Biggie.” That was all hype.
+ - I like women. I love women.
+ - I wanna make music that I feel proud of when I’m onstage, that I feel like I put my all into.
+ - I’m not glorifying it at all, I’m just basically telling you that sometimes I have suicidal thoughts. And maybe I should seek help, or maybe it’s not that deep.
+ - I love ‘Harry Potter’ and JK Rowling – don’t laugh at me!
+ - You ready? I have gold teeth, I have braids, I’m wearing Rick Owens moon boots, I have rips in my denim, a biker vest, I love artsy girls, my favourite artists are Jimi Hendrix and John Lennon. I’m obsessed with being different.
+ - I don’t cook, ’cause I don’t know how to cook.
+ - When Big Meech and everybody got indicted, hustling died. Keep it trill.
+ - I didn’t want to be a loser, but I didn’t want to fit in at the same time because I don’t like just being ordinary. So it’s one of those situations where I always kept my head up.
+ - It bring a tear to my eye to see native New York people give me my props because New York is stubborn and arrogant.
+ - God is letting me shine, because I’ve got a good heart.
+ - Ksubi’ – the Australian jean brand, they’re one of my favourite brands of just clothes and stuff, and the Swedish brand ‘Acne’, but other than that, not at this point in time designing. I wouldn’t mind collab’n with those guys though.
+ - The worst thing a good girl could do to you is break your heart.
+ - I’m a people’s person, believe it or not. I just have a dark side to me, which we all do.
+ - I’m from New York and I love New York and I’m always repping New York, but what I represent is something deeper than just being a New York rapper.
+ - I know that women are smarter than men. I don’t wanna sound like I’m on a bandwagon for chicks but I do love ’em, can’t front. Women are smarter than men. I know I gotta lot of chicks up my sleeve but you guys are twice as good.
+ - I want to inspire people to really open up their minds and not be one-sided or biased or hypocritical.
+ - I was thinking about naming my child Kanye.
+ - I treat everybody equal, and so I want to be sure that my listeners and my followers do the same if they’re gonna represent me. And if I’m gonna represent them, then I also want to do it in a good way.
+ - My real name’s Rakim – my parents named me after the god MC himself.
+ - I dress how I feel. I just go off emotion. I can’t prepare my outfit a day before. Everything I wear is spontaneous.
+ - I don’t want people to get the impression that I got money and now I’m cocky, because I’m not. I’m just a little overly confident.
+ - Nowadays, everybody wanna be weird. We know how to manifest being weird.
+ - When I started, I was 23 years old directing my own music videos; I’m co-producing on my album; I’m hands-on with everything. I’m more than just a pretty boy: I’m an artist. I’m not saying I’m a hip-hop music artist, I’m an artiste.
+ - I don’t wear diamond necklaces. I’m not against it but I never could afford it, so now I just wear gold. I wear bracelets, rings, anklets.
+ - New York gave me hell for that ‘Purple Swag,’ man. They didn’t respect me until ‘Peso.’
+ - I thought highly of myself growing up. I still do. There’s not really much somebody can say to me to bring down my confidence or anything.
+ - I don’t like new cars; I’m into vintage cars – there’s a Jaguar E-Type in the ‘Goldie’ video.
+ - I wanted to model when I was younger.
+ - I just want my fans to grow up and enjoy the music first, I don’t want to change the world that’s not what my music is about.
+ - But for real, for me, I feel like with the red lipstick thing it all depends on the pair of complexion. I’m just being for real. You have to be fair skinned to get away with that.
+ - I used to go to Saks, I would go to Bergdorf, I would go to Barneys, I would go to thrift stores in SoHo.
+ - I’ve got so much in my brain and I want to change the way we think sometimes.
+ - I don’t even like New York rappers.
+ - Sometimes I feel like what’s hard for fashion designers to do is take looks from off the runway and actually put it into existence, into reality. That’s really the hard part.
+ - Fashion is almost like a religion, for me at least.
+ - I’ve been into fashion since birth. I grew up in the ’hood, and everybody in the ’hood wants to compensate for being in poverty, so they want to look good to keep themselves up.
+ - Design my own line? No, I just like the culture.
+ - Probably, violent things I’ve done when I was younger, was probably the most despicable thing that I’ve ever done.
+ - It would be disrespectful to take my stardom and bully my way into the fashion industry.
+ - Who people like is their own business. It don’t concern me. I know what I do – and I’m having a lot of fun with the women that I’m with.
+ - I was ashamed to let anyone know that I was living in a shelter. I remember one time coming home and some kids saw me and were like, “What you doing here? This is a shelter!” But I was like, “My mom’s working there.” It was pretty embarrassing.
+ - With clothes, I like mixing what different designers do until it becomes a personal expression of how I’m feeling that day.
+ - I’m starting to find out that a lot of people that you wouldn’t think listen to me really do.
+ - So for me, fashion was about standing out as an individual – and it helped me get the attention that most people try to get with publicity stunts or by doing other crazy things. But I just let the attention come to me naturally, and I think some of that has to do with my fashion.
+ - I would not consider myself to be a quote unquote real New York rapper. I don’t even like New York rappers.
+ - People don’t make albums any more. It’s always about singles. I wanted to take that old-school approach.
+ - You wouldn’t take me to be a Skrillex fan, but honestly, when I’m at his shows, I get high and liquored up, and I just go in the crowd and start raving.
+ - If a chick wants to know who makes my shoes, she’s got to take them off my feet and look inside.
+ - I wouldn’t mind collaborating with anybody, but I don’t want to design anything, I’m not a fashion designer.
+ - I’m getting my respect as a video director. The fashion industry respects me and knows who I am.
+ - A lot of energy and excitement – that’s what a lot of my shows are, energy and excitement.
+
+61 quotes

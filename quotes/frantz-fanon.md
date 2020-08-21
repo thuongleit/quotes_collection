@@ -1,0 +1,57 @@
+ - In the World through which I travel, I am endlessly creating myself.
+ - Each generation must discover its mission, fulfill it or betray it, in relative opacity.
+ - To speak a language is to take on a world, a culture.
+ - Violence is a cleansing force. It frees the native from his inferiority complex and from his despair and inaction; it makes him fearless and restores his self-respect.
+ - The oppressed will always believe the worst about themselves.
+ - O my body, make of me always a man who questions!
+ - When we revolt it’s not for a particular culture. We revolt simply because, for many reasons, we can no longer breathe.
+ - Certain things need to be said if one is to avoid falsifying the problem.
+ - Mastery of language affords remarkable power.
+ - Imperialism leaves behind germs of rot which we must clinically detect and remove from our land but from our minds as well.
+ - To educate the masses politically is to make the totality of the nation a reality to each citizen. It is to make the history of the nation part of the personal experience of each of its citizens.
+ - The colonized is elevated above his jungle status in proportion to his adoption of the mother country’s cultural standards.
+ - Two centuries ago, a former European colony decided to catch up with Europe. It succeeded so well that the United States of America became a monster, in which the taints, the sickness and the inhumanity of Europe have grown to appalling dimensions.
+ - When I search for Man in the technique and the style of Europe, I see only a succession of negations of man, and an avalanche of murders.
+ - Wealth is not the fruit of labor but the result of organized protected robbery.
+ - What matters is not to know the world but to change it.
+ - National liberation, national renaissance, the restoration of nationhood to the people, commonwealth: whatever may be the headings used or the new formulas introduced, decolonization is always a violent phenomenon.
+ - Violence is man re-creating himself.
+ - They realize at last that change does not mean reform, that change does not mean improvement.
+ - The gaze that the colonized subject casts at the colonist’s sector is a look of lust, a look of envy. Dreams of possession. Every type of possession; of sitting at the colonist’s table and sleeping in his bed, preferably with his wife. The colonized man is an envious man.
+ - Today I believe in the possibility of love; that is why I endeavor to trace its imperfections, its perversions.
+ - Everything can be explained to the people, on the single condition that you want them to understand.
+ - I want the world to recognize with me the open door of every consciousness.
+ - Get used to me, I am not getting used to anyone.
+ - The native must realize that colonialism never gives anything away for nothing.
+ - Zombies, believe me, are more terrifying than colonists.
+ - For Europe, for ourselves and for humanity, comrades, we must turn over a new leaf, we must work out new concepts, and try to set afoot a new man.
+ - When people like me, they like me “in spite of my color.” When they dislike me; they point out that it isn’t because of my color. Either way, I am locked in to the infernal circle.
+ - In the colonial context the settler only ends his work of breaking in the native when the latter admits loudly and intelligibly the supremacy of the white man’s values.
+ - No attempt must be made to encase man, for it is his destiny to be set free.
+ - One avoids Creolisms. Some families completely forbid Creole and mothers ridicule their children for speaking it.
+ - The Church in the colonies is the white people’s Church, the foreigner’s Church. She does not call the native to God’s ways but to the ways of the white man, of the master, of the oppressor.
+ - If the building of a bridge does not enrich the awareness of those who work on it, then the bridge ought not to be built.
+ - For the black man there is only one destiny. And it is white.
+ - He who is reluctant to recognize me opposes me.
+ - There is a point at which methods devour themselves.
+ - I came into this world anxious to uncover the meaning of things, my soul desirous to be at origin of the world, and here I am an object among other objects.
+ - We believe that an individual must endeavor to assume the universalism inherent in the human condition.
+ - I ascribe a basic importance to the phenomenon of language. To speak means to be in a position to use a certain syntax, to grasp the morphology of this or that language, but it means above all to assume a culture, to support the weight of a civilization.
+ - The living expression of the nation is the collective consciousness in motion of the entire people.
+ - Anti-Semitism hits me on the head: I am enraged, I am bled white by an appalling battle, I am deprived of the possibility of being man. I cannot disassociate myself from the future that is proposed for my brother.
+ - Hate demands existence, and he who hates has to show his hate in appropriate actions and behaviors; in a sense, he has to become hate. That is why the Americans have substituted discrimination for lynching.
+ - The misfortune of the man of color is having been enslaved. The misfortune and inhumanity of the white man are having killed man somewhere.
+ - The business of obscuring language is a mask behind which stands the much bigger business of plunder.
+ - I am black: I am the incarnation of a complete fusion with the world, an intuitive understanding of the earth, an abandonment of my ego in the heart of the cosmos, and no white man, no matter how intelligent he may be, can ever understand Louis Armstrong and the music of the Congo.
+ - A government or a party gets the people it deserves and sooner or later a people gets the government it deserves.
+ - A man who has a language consequently possesses the world expressed and implied by that language.
+ - For a colonized people the most essential value, because the most concrete, is first and foremost the land: the land which will bring them bread and, above all, dignity.
+ - I feel my soul as vast as the world, truly a soul as deep as the deepest of rivers; my chest has the power to expand to infinity. I was made to give and they prescribe for me the humility of the cripple.
+ - Culture has never the translucidity of custom; it abhors all simplification. In its essence it is opposed to custom, for custom is always the deterioration of culture.
+ - The unpreparedness of the educated classes, the lack of practical links between them and the mass of the people, their laziness, and, let it be said, their cowardice at the decisive moment of the struggle will give rise to tragic mishaps.
+ - I, the man of color, want only this: That the tool never possess the man. That the enslavement of man by man cease forever. That is, of one by another. That it be possible for me to discover and to love man, wherever he may be.
+ - For the beloved should not allow me to turn my infantile fantasies into reality: On the contrary, he should help me to go beyond them.
+ - Fervor is the weapon of choice for the impotent.
+ - However painful it may be for me to accept this conclusion, I am obliged to state it: for the black man there is only one destiny. And it is white.
+
+55 quotes

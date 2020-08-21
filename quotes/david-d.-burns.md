@@ -1,0 +1,37 @@
+ - You’re not a bad person. But you sometimes do bad things. You know what that makes you? Human.
+ - When two people respect each other, the ability to be vulnerable and to reveal hurt feelings can create a powerful emotional connection that is the source of real intimacy and friendship.
+ - You feel the way you do right now because of the thoughts you are thinking at this moment.
+ - If you’re self-compassionate, you’ll tend to have higher self-esteem than if you’re endlessly self-critical. And like high self-esteem – self-compassion is associated with significantly less anxiety and depression, as well as more happiness, optimism, and positive emotions.
+ - Learn to accept your limits and you’ll become a happier person.
+ - A poor self-image is the magnifying glass that can transform a trivial mistake or an imperfection into an overwhelming symbol of personal defeat.
+ - You don’t have to do anything especially worthy to create or deserve self-esteem; all you have to do is turn off that critical, haranguing, inner voice.
+ - Forgiving yourself, not guilt, increases personal accountability.
+ - When we’re rational about rule-breaking we set a limit. You don’t get 30 years in prison for a traffic ticket. But sometimes you sentence yourself to months or years of emotional pain over minor offenses.
+ - The best way to confront your fears it to stop avoiding the situation you’re most afraid of.
+ - Assert your right to make a few mistakes. If people can’t accept your imperfections, that’s their fault.
+ - Learning to accept failure on multiple levels is, to my way of thinking, the key to become a world-class therapist. But that means humility, and setting your ego aside, while you develop superb new technical skills.
+ - Can you predict the future with absolute certainty? Your answer must be no. You have two options: You can either decide to accept yourself as an imperfect human being with limited knowledge and realize that you will at times make mistakes, or you can hate yourself for it.
+ - Forgive yourself and be ready to forgive yourself in the future. You’re gonna screw up. It’s okay.
+ - You’re human. You’ll screw up. Denying that is crazy. Forgiving yourself has all the benefits of self-esteem without making you a narcissist that’s out of touch with reality.
+ - Confronting your fears and allowing yourself the right to be human can, paradoxically, make you a far happier and more productive person.
+ - That’s one of the peculiar things about bad moods – we often fool ourselves and create misery by telling ourselves things that simply are not true.
+ - Kindness is the cause of all anxiety.
+ - Powerful new drug-free treatments have been developed for depression and for every conceivable type of anxiety, such as chronic worrying, shyness, public speaking anxiety, test anxiety, phobias, and panic attacks. The goal of the treatment is not just partial improvement but full recovery.
+ - Reaching for the stars, perfectionists may end up clutching at air.
+ - Don’t apologize for what you think you did wrong. Apologize for what they think you did wrong.
+ - What sentence will you choose to impose on yourself? Are you willing to stop suffering and making yourself miserable when your sentence has expired? This would at least be a responsible way to punish yourself because it would be time-limited.
+ - Guilt doesn’t help. What should fill in for it? Remorse. Remorse is when you feel bad about what you did. Guilt is when you feel bad about who you are.
+ - Every time you feel depressed about something, try to identify a corresponding negative thought you had just prior to and during the depression. Because these thoughts have actually created your bad mood, by learning to restructure them, you can change your mood.
+ - Depression has been called the worlds number one public health problem. In fact, depression is so widespread it is considered the common cold of psychiatric disturbances. But there is a grim difference between depression and a cold. Depression can kill you.
+ - Negative thinking patterns can be immensely deceptive and persuasive, and change is rarely easy. But with patience and persistence, I believe that nearly all individuals suffering from depression can improve and experience a sense of joy and self-esteem once again.
+ - People who are prone to guilt tend to work harder and perform better than people who are not guilt-prone, and are perceived to be more capable leaders.
+ - Regret has a purpose. It’s like the oil light on the dashboard of your life, telling you something needs to be fixed. So fix it. And feel better.
+ - Reaching for the stars, perfectionists may end up clutching air. They suffer from mood disorders, troubled relationships, and stress. They may even achieve less than others.
+ - Perfectionism becomes a badge of honor with you playing the part of the suffering hero.
+ - It can be helpful simply to make a written or mental list of the things you do each day. Then give yourself a mental credit for each of them, however small. This will help you focus on what you have done instead of what you haven’t gotten around to do. It may sound simplistic, but it works.
+ - Guilt serves a powerful social function in terms of policing our behavior.
+ - Accept yourself. But realize your behaviors can be bad.
+ - Guilt is not the best way to remedy your mistakes.
+ - Apologies do make a difference. Believe it or not, research shows people often prefer them over money.
+
+35 quotes

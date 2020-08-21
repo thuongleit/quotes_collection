@@ -1,0 +1,54 @@
+ - A single act of kindness throws out roots in all directions, and the roots spring up and make new trees.
+ - The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. You can do anything you decide to do. You can act to change and control your life; and the procedure, the process is its own reward.
+ - The best way to do it, is to do it!
+ - No borders, just horizons – only freedom.
+ - Courage is the price that life exacts for granting peace.
+ - Everyone has ocean’s to fly, if they have the heart to do it. Is it reckless? Maybe. But what do dreams know of boundaries?
+ - Adventure is worthwhile in itself.
+ - Some of us have great runways already built for us. If you have one, take off. But if you don’t have one, realize it is your responsibility to grab a shovel and build one for yourself and for those who will follow after you.
+ - Never interrupt someone doing something you said couldn’t be done.
+ - When a great adventure is offered, you don’t refuse it.
+ - Being alone is scary, but not as scary as feeling alone in a relationship.
+ - Never do things others can do and will do if there are things others cannot do or will not do.
+ - The most difficult thing is the decision to act!
+ - Worry retards reaction and makes clear-cut decisions impossible.
+ - Flying might not be all plain sailing, but the fun of it is worth the price.
+ - Courage is the price that Life exacts for granting peace, The soul that knows it not, knows no release, From little things; Knows not the livid loneliness of fear Nor mountain heights where bitter joy can hear The sound of wings.
+ - Women, like men, should try to do the impossible. And when they fail, their failure should be a challenge to others.
+ - The lure of flying is the lure of beauty.
+ - No kind action ever stops with itself. One kind action leads to another. Good example is followed. A single act of kindness throws out roots in all directions, and the roots spring up and make new trees. The greatest work that kindness does to others is that it makes them kind themselves.
+ - You can do anything you decide to do.
+ - As soon as we left the ground, I knew I had to fly.
+ - It is the woman who chooses the man who will choose her.
+ - The more one does the more one can do.
+ - The greatest work that kindness does to others is that it makes them kind themselves.
+ - I did for the fun of it.
+ - Aviation records don’t fall until someone is willing to mortgage the present for the future.
+ - The woman who can create her own job is the woman who will win fame and fortune.
+ - The more one does and sees and feels, the more one is able to do, and the more genuine may be one’s appreciation of fundamental things like home, and love, and understanding companionship.
+ - I have often said that the lure of flying is the lure of beauty. That the reasons flyers fly, whether they know it or not, is the aesthetic appeal of flying.
+ - You haven’t seen a tree until you’ve seen its shadow from the sky.
+ - No kind action ever stops with itself. One kind action leads to another.
+ - Better do a good deed near at home than go far away to burn incense.
+ - Anticipation, I suppose, sometimes exceeds realization.
+ - To worry is to add another hazard.
+ - In soloing – as in other activities – it is far easier to start something than it is to finish it.
+ - Please know that I am aware of the hazards. I want to do it because I want to do it. Women must try to do things as men have tried. When they fail, their failure must be a challenge to others.
+ - There are two kinds of stones, as everyone knows, one of which rolls.
+ - My ambition is to have this wonderful gift produce practical results for the future of commercial flying and for the women who may want to fly tomorrow’s planes.
+ - Obviously I faced the possibility of not returning when first I considered going. Once faced and settled there really wasn’t any good reason to refer to it.
+ - I lay no claim to advancing scientific data other than advancing flying knowledge. I can only say that I do it because I want to.
+ - The soul’s dominion? Each time we make a choice, we pay with courage to behold restless day and count it fair.
+ - Trouble in the air is very rare. It is hitting the ground that causes it.
+ - Aviation, this young modern giant, exemplifies the possible relationships of women with the creations of science.
+ - I’m getting housemaid’s knee kneeling here gulping beauty.
+ - Now and then women should do for themselves what men have already done – occasionally what men have not done – thereby establishing themselves as persons, and perhaps encouraging other women toward greater independence of thought and action.
+ - So I accept these awards on behalf of the cake bakers and all of those other women who can do some things quite as important, if not more important, than flying, as well as in the name of women flying today.
+ - Women must pay for everything. They do get more glory than men for comparable feats, but, they also get more notoriety when they crash.
+ - Human crises have a way of happening at inconvenient times.
+ - The field was wet, the lane was wet, and the spirits of my mechanic and helper were damp.
+ - Ours is the commencement of a flying age, and I am happy to have popped into existence at a period so interesting.
+ - There is so much that must be done in a civilized barbarism like war.
+ - If enough of us keep trying, we’ll get someplace.
+
+52 quotes

@@ -1,0 +1,162 @@
+ - A journey never ends. Only the travellers end.
+ - I don’t think we did go blind, I think we are blind, Blind but seeing, Blind people who can see, but do not see.
+ - Chaos is merely order waiting to be deciphered.
+ - Each day is a little bit of history.
+ - If I’m sincere today, what does it matter if I regret it tomorrow?
+ - The difficult thing isn’t living with other people, it’s understanding them.
+ - Doesn’t anybody understand that killing in the name of God only makes Him a murderer?
+ - Writer’s make national literature, while translators make universal literature.
+ - Perhaps only in a world of the blind will things be what they truly are.
+ - Inside us there is something that has no name, that something is what we are.
+ - Words that come from the heart are never spoken, they get caught in the throat and can only be read in ones’s eyes.
+ - Forgive me if what has seemed little to you, to me is all.
+ - Words were not given to man in order to conceal his thoughts.
+ - Blessed be the night, which conceals and protects things fair and foul with the same indifferent mantle.
+ - We can escape from everything, but not from ourselves.
+ - Death is the inventor of God.
+ - Just as the habit does not make the monk, the sceptre does not make the king.
+ - What kind of world is this that can send machines to Mars and does nothing to stop the killing of a human being?
+ - We say Fine, even though we may be dying, and this is commonly known as taking one’s courage in both hands, a phenomenon that has only been observed in the human species.
+ - We know that happiness is short-lived, that we fail to cherish it when it is within our grasp and value it only when it has vanished forever.
+ - Liking is probably the best form of ownership, and ownership the worst form of liking.
+ - We all have our moments of weakness, just as well that we are still capable of weeping, tears are often our salvation, there are times when we would die if we did not weep – Blindness.
+ - Even death, faced with the option of death or life, she would choose life.
+ - God, the devil, good, evil, it’s all in our heads, not in Heaven or Hell, which we also invented. We do not realize that, having invented God, we immediately became His slaves.
+ - The world had already changed before September 11. The world has been going through a process of change over the last 20 or 30 years. A civilization ends, another one begins.
+ - A human being is a being who is constantly ‘under construction,’ but also, in a parallel fashion, always in a state of constant destruction.
+ - The world is governed by institutions that are not democratic – the World Bank, the IMF, the WTO.
+ - Death has no need to be cruel, taking people’s lives is more than enough.
+ - I’m not pessimistic. It is the world that is terrible. How can we be optimistic in the face of a planet where people live so badly, nature is being destroyed and the dominant empire is money?
+ - There are such moments in life, when, in order for heaven to open, it is necessary for a door to close.
+ - The much-quoted immaculate conception of the Virgin Mary occurred but once so that the world might know that Almighty God, when He so chooses, has no need of men, though He cannot dispense with women.
+ - If you don’t write your books, nobody else will do it for you. No one else has lived your life.
+ - Men are angels born without wings, nothing could be nicer than to be born without wings and to make them grow.
+ - The wisest man I ever knew in my whole life could not read or write.
+ - One cannot be too careful with words, they change their minds just as people do.
+ - I do not just write, I write what I am. If there is a secret, perhaps that is it.
+ - It takes little or nothing to undo reputations, the merest trifle makes and remakes them, it is simply a question of finding the best means of engaging the confidence or interest of those who are to become one’s unsuspecting echoes or accomplices.
+ - Each part in itself constitutes the whole to which it belongs.
+ - I am a person with leftist convictions, and always have been.
+ - Reading is probably another way of being in a place.
+ - No, there are three people in a marriage, there’s the woman, there’s the man, and there’s what I call the third person, the most important, the person who is composed of the man and woman together.
+ - You never know beforehand what people are capable of, you have to wait, give it time, it’s time that rules, time is our gambling partner on the other side of the table and it holds all the cards of the deck in its hand, we have to guess the winning cards of life, our lives.
+ - We use words to understand each other and even, sometimes, to find each other.
+ - Blind people do not need a name, I am my voice, nothing else matters.
+ - If we cannot live entirely like human beings, at least let us do everything in our power not to live entirely like animals.
+ - I always ask two questions: How many countries have military bases in the United States? And in how many countries does the United States not have military bases?
+ - There is relationship between sight and touch, something about eyes being able to see through the fingers touching the clay, about fingers being able to feel what the eyes are seeing without the fingers actually touching it.
+ - It is economic power that determines political power, and governments become the political functionaries of economic power.
+ - It is strange how the elderly fall silent when they ought to go on speaking, obliging the young to learn everything from scratch.
+ - You know the name you were given, you do not know the name that you have.
+ - Human nature is, by definition, a talkative one, imprudent, indiscreet, gossipy, incapable of closing its mouth and keeping it closed.
+ - When all is said and done, what is clear is that all lives end before their time.
+ - Life is like that, full of words that are not worth saying or that were worth saying once but not any more, each word that we utter will take up the space of another more deserving word, not deserving in its own right, but because of the possible consequences of saying it.
+ - There is nothing that is truly free nor democratic enough. Make no mistake, the internet did not come to save the world.
+ - As my cat would say, all hours are good for sleeping.
+ - Strictly speaking, we do not make decisions. Decisions make us.
+ - Men are all the same, they think that because they came out of the belly of a woman they know all there is to know about women.
+ - The only time we can talk about death is while we’re alive, not afterwards.
+ - A woman is essentially a vessel made to be filled.
+ - Unlike Joseph her husband, Mary is neither upright nor pious, but she is not blame for this, the blame lies with the language she speaks if not with the men who invented it, because that language has no feminine form for the words upright and pious.
+ - There are those who deny me the right to speak of God, because I am not a believer. And I say that I have every right in the world. I want to talk about God because it is a problem that affects all humanity.
+ - We are marching against the law of the jungle that the United States and its acolytes old and new want to impose on the world...
+ - In the end we discover the only condition for living is to die.
+ - Whether we like it or not, the one justification for the existence of all religions is death, they need death as much as we need bread to eat.
+ - The minds of human beings are not always entirely at one with the world in which they live, some people have trouble adjusting to reality, basically they’re just weak, confused spirits who use words, sometimes very skillfully, to justify their cowardice.
+ - Abstention means you stayed at home or went to the beach. By casting a blank vote, you’re saying you have a political conscience but you don’t agree with any of the existing parties.
+ - When we are born, when we enter this world, it is as if we signed a pact for the rest of our life, but a day may come when we will ask ourselves Who signed this on my behalf?
+ - Age carries with it a double load of guilt.
+ - In the end, I am quite normal. I don’t have odd habits. I don’t dramatize. Above all, I do not romanticize the act of writing. I don’t talk about the anguish I suffer in creating. I do not have a fear of the blank page, writer’s block, all those things that we hear about writers.
+ - A tree weeps when cut down, a dog howls when beaten, but a man matures when offended.
+ - No human being can achieve all he or she desires in this life except in dreams, so good night all.
+ - Everything in this world can volunteer some reply, what takes up time is posing the questions.
+ - The possibility of the impossible, dreams and illusions, are the subject of my novels.
+ - I can’t imagine myself outside any kind of social or political involvement. Yes, I’m a writer, but I live in this world, and my writing doesn’t exist on a separate level. And if people know who I am and read my books, well, good; that way, if I have something more to say, then everyone benefits.
+ - I believe myself to be the type of person who does not complicate his life. I have always lived my life without dramatizing things, whether the good things that have happened to me or the bad. I simply live those moments.
+ - The sun appears in one of the upper corners of the rectangle, on the left of anyone looking at the picture.
+ - The time for miracles has either passed or not come yet, besides, miracles, genuine miracles, whatever people say, are not such a good idea, if it means destroying the very order of things in order to improve them.
+ - A stomach accustomed to hunger is satisfied with very little.
+ - We live in a very peculiar world. Democracy isn’t discussed, as if it was taken for granted, as if democracy had taken God’s place, who is also not discussed.
+ - People might ask me, What do you propose instead? I propose nothing. I am a mere novelist, I just write about the world as I see it. It is not my job to transform it. I cannot transform it all by myself, and I wouldn’t even know how to. I limit myself to saying what I believe the world to be.
+ - In general, fakirs, like scribes and potters, are sitting down, when he’s standing up, a fakir is just like an other man, and sitting down, he’ll be smaller than the others.
+ - But truths need to be repeated many times so that they don’t, poor things, lapse into oblivion.
+ - The wisest man I ever knew in my whole life could not read or write. At four o’clock in the morning, when the promise of a new day still lingered over French lands, he got up from his pallet and left for the fields, taking to pasture the half-dozen pigs whose fertility nourished him and his wife...
+ - One can show no greater respect than to weep for a stranger.
+ - We’re not short of movements proclaiming that a different world is possible, but unless we can coordinate them into an international movement, capitalism just laughs at all these little organisations.
+ - I don’t doubt that a man can live perfectly well on his own, but I’m convinced that he begins to die as soon as he closes the door of his house behind him.
+ - The novel is not so much a literary genre, but a literary space, like a sea that is filled by many rivers.
+ - The attitude of insolent haughtiness is characteristic of the relationships Americans form with what is alien to them, with others.
+ - Yet human experience and the practice of communication have shown throughout the ages that definitions are an illusion, like having a speech defect and trying to say love but unable to get the word out, or, better, having a tongue in one’s head but unable to feel love.
+ - Your questions are false if you already know the answer.
+ - Being fired was the best luck of my life. It made me stop and reflect. It was the birth of my life as a writer.
+ - The only miracle we can perform is to go on living, said the woman, to preserve the fragility of life from day to day, as if it were blind and did not know where to go, and perhaps it is like that, perhaps it really does not know, it placed itself in our hands, after giving us intelligence.
+ - Every novel is like this, desperation, a frustrated attempt to save something of the past. Except that it still has not been established whether it is the novel that prevents man from forgetting himself or the impossibility of forgetfulness that makes him write novels.
+ - The virtue of maps, they show what can be done with limited space, they foresee that everything can happen therein.
+ - Today’s bread does not eliminate yesterday’s hunger, much less that of tomorrow.
+ - The history of mankind is the history of our misunderstandings with god, for he doesn’t understand us, and we don’t understand him.
+ - Oh, I’m not just going too far, I’ve arrived.
+ - It is difficult to understand these people who democratically take part in elections and a referendum, but are then incapable of democratically accepting the will of the people.
+ - Without the faintest possibility of finding a job, I decided to devote myself to literature: it was about time to find out what I was worth as a writer.
+ - This is the effect of panic, a natural effect, you could say that animal nature is like this, plant life would behave in exactly the same way, too, if it did not have all those roots to hold it in the ground, and how nice it would be to see the trees of the forest fleeing the flames.
+ - The church has never been asked to explain anything, our speciality, along with ballistics, has always been the neutralisation of the overly curious mind through faith.
+ - Because each of you has his or her own death, you carry it with you in a secret place from the moment you’re born, it belongs to you and you belong to it.
+ - There is nothing healthier for a man than to walk on his own two legs.
+ - The painter paints, the musician makes music, the novelist writes novels. But I believe that we all have some influence, not because of the fact that one is an artist, but because we are citizens.
+ - Beginning with adolescence, my political formation was oriented in the ideological direction of Marxism. It was natural, being that my thinking was influenced by an atmosphere of active critical resistance. That was the way it was during all of the dictatorship and up to the Revolution of 1974.
+ - There are times when it is best to be content with what one has, so as not to lose everything.
+ - If I could repeat my childhood, I would repeat it exactly as it was, with the poverty, the cold, little food, with the flies and pigs, all that.
+ - That is the dream of all novelists-that one of their characters will become ‘somebody.’
+ - I write to try to understand, and because I have nothing better to do.
+ - In a king, modesty would be a sign of weakness.
+ - Will we ever learn that certain things can be understood only if we take the trouble to trace them to their origins.
+ - Americans have discovered the fragility of life, that ominous fragility that the rest of the world either already experienced or is experiencing now with terrible intensity.
+ - That it’s possible not to see a lie even when it’s in front of us.
+ - People live with the illusion that we have a democratic system, but it’s only the outward form of one. In reality we live in a plutocracy, a government of the rich.
+ - At the end of the 1950s, I started working at a publishing company, Estudios Cor, as production manager, so returning, but not as an author, to the world of letters I had left some years before.
+ - Can you imagine what Bush would say if someone like Hugo Chavez asked him for a little piece of land to install a military base, and he only wanted to plant a Venezuelan flag there?
+ - I had no books at home. I started to frequent a public library in Lisbon. It was there, with no help except curiosity and the will to learn, that my taste for reading developed and was refined.
+ - Look what happened with the employment law in France-the law was withdrawn because the people marched in the streets. I think what we need is a global protest movement of people who won’t give up.
+ - When you are old and realize that time is running out, you start imagining that you have the cure for all the ills of the world in your hand, and get frustrated because no one pays you any attention.
+ - I am traveling less in order to be able to write more. I select my travel destinations according to their degree of usefulness to my work.
+ - I am the same person I was before receiving the Nobel Prize. I work with the same regularity, I have not modified my habits, I have the same friends.
+ - I believe that I’ve been asked all possible questions. I, myself, if I were a journalist, would not know what to ask me.
+ - Lord knows why they depict death with wings when death is everywhere.
+ - Ah, in every age there is always some new wonder to astound mankind until they grow accustomed to it and lose interest.
+ - As citizens, we all have an obligation to intervene and become involved – it’s the citizen who changes things.
+ - The problem is that the right doesn’t need any ideas to govern, but the left can’t govern without ideas.
+ - Death is present every day in our lives. It’s not that I take pleasure in the morbid fascination of it, but it is a fact of life.
+ - When I am occupied with a work that requires continuity – a novel, for example – I write every day.
+ - Such is our need to shower blame on some distant entity when it is we who lack the courage to face up to what is there before us.
+ - Every thing in life is a uniform; the only time our bodies are truly in civilian dress is when we’re naked.
+ - There are plenty of reasons not to put up with the world as it is.
+ - Creating is always so much more stimulating than destroying.
+ - With the passage of time, as well as the social evolution and genetic exchange, we ended up putting our conscience in the color of our blood and the salt of our tears.
+ - This must be what it means to be a ghost, being certain that life exists, because your four senses say so, and yet unable to see it.
+ - From literature to ecology, from the escape velocity of galaxies to the greenhouse effect, from garbage disposal methods to traffic jams, everything is discussed in our world. But the democratic system, as if it were a given fact, untouchable by nature until the end of time, we don’t discuss that.
+ - I was a good pupil at primary school: in the second class I was writing with no spelling mistakes, and the third and fourth classes were done in a single year.
+ - I am a better novelist than a poet, playwright, or essayist.
+ - I presume that nobody will deny the positive aspects of the North American cultural world. These are well known to all. But these aspects do not make one forget the disastrous effects of the industrial and commercial process of ‘cultural lamination’ that the USA is perpetrating on the planet.
+ - Words have their own hierarchy, their own protocol, their own artistic titles, their own plebeian stigmas.
+ - The wise man contents himself with what he has, until such time as he invents something better.
+ - I never appreciated ‘positive heroes’ in literature. They are almost always cliches, copies of copies, until the model is exhausted. I prefer perplexity, doubt, uncertainty, not just because it provides a more ‘productive’ literary raw material, but because that is the way we humans really are.
+ - As so often happens, the thing left undone tires you most of all, you only feel rested when it has been accomplished.
+ - Though I had come into the world on 16 November 1922, my official documents show that I was born two days later, on the 18th. It was thanks to this petty fraud that my family escaped from paying the fine for not having registered my birth at the proper legal time.
+ - We never consider that the things dogs know about us are things of which we have not the faintest notion.
+ - We’ve all had our moments of weakness, and if we manage to get through today without any, we’ll be sure to have some tomorrow.
+ - The period that I could consider the most important in my literary work came about beginning with the Revolution, and in a certain way, developed as a consequence of the Revolution. But it was also a result of the counterrevolutionary coup of November 1975.
+ - Sometimes I say that writing a novel is the same as constructing a chair: a person must be able to sit in it, to be balanced on it. If I can produce a great chair, even better. But above all I have to make sure that it has four stable feet.
+ - Perfect moments, especially when they verge on the sublime have the grave disadvantage of being very short lived, which in fact, being obvious, we would not need to mention were it not that they have a still greater disadvantage, which is that we do not know what to do once they are over.
+ - Perhaps it is the language that chooses the writers it needs, making use of them so that each might express a tiny part of what it is.
+ - The day before is what we bring to the day we’re actually living through, life is a matter of carrying along all those days-before just as someone might carry stones, and when we can no longer cope with the load, the work is done, the last day is the only one that is not the day before another day.
+ - I was born in a family of landless peasants, in Azinhaga, a small village in the province of Ribatejo, on the right bank of the Almonda River, around a hundred kilometres north-east of Lisbon.
+ - In effect I am not a novelist, but rather a failed essayist who started to write novels because he didn’t know how to write essays.
+ - Americans have discovered fear.
+ - Human vocabulary is still not capable, and probably never will be, of knowing, recognizing, and communicating everything that can be humanly experienced and felt.
+ - Earthenware is like people, it needs to be well treated.
+ - Things will be very bad for Latin America. You only have to consider the ambitions and the doctrines of the empire, which regards this region as its backyard.
+ - Nothing so tires a person as having to struggle, not with himself, but with an abstraction.
+ - Consciences keep silence more often than they should, that’s why laws were created.
+ - Society has to change, but the political powers we have at the moment are not enough to effect this change. The whole democratic system would have to be rethought.
+ - I can’t imagine myself outside any kind of social or political involvement.
+
+160 quotes

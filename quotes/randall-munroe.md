@@ -1,0 +1,32 @@
+ - There are so many adventures that you miss because you’re waiting to think of a plan. To find them, look for tiny interesting choices. And remember that you are always making up the future as you go.
+ - But I’ve never seen the Icarus story as a lesson about the limitations of humans. I see it as a lesson about the limitations of wax as an adhesive.
+ - Correlation doesn’t imply causation, but it does waggle its eyebrows suggestively and gesture furtively while mouthing ‘look over there.’
+ - You don’t become great by trying to be great. You become great by wanting to do something, and then doing it so hard that you become great in the process.
+ - The universe is probably littered with the one-planet graves of cultures which made the sensible economic decision that there’s no good reason to go into space-each discovered, studied, and remembered by the ones who made the irrational decision.
+ - The role of gender in society is the most complicated thing I’ve ever spent a lot of time learning about, and I’ve spent a lot of time learning about quantum mechanics.
+ - Take wrong turns. Talk to strangers. Open unmarked doors. And if you see a group of people in a field, go find out what they are doing. Do things without always knowing how they’ll turn out.
+ - Things are rarely just crazy enough to work, but they’re frequently just crazy enough to fail hilariously.
+ - Sticks and stones may break my bones, but words can make me think I deserved it.
+ - If at first you don’t succeed, that’s one data point.
+ - I never trust anyone who’s more excited about success than about doing the thing they want to be successful at.
+ - You don’t use science to show you’re right, you use science to become right.
+ - A million people can call the mountains a fiction, yet it need not trouble you as you stand atop them.
+ - I think the really cool and compelling thing about math and physics is that it opens up entry to all these hypotheticals – or at least, it gives you the language to talk about them. But at the same time, if a scenario is completely disconnected from reality, it’s not all that interesting.
+ - The explosion would be just the right size to maximize the amount of paperwork your lab would face. If the explosion were smaller, you could potentially cover it up. If it were larger, there would be no one left in the city to submit paperwork to.
+ - Space is about 100 kilometers away. That’s far away – I wouldn’t want to climb a ladder to get there – but it isn’t that far away. If you’re in Sacramento, Seattle, Canberra, Kolkata, Hyderabad, Phnom Penh, Cairo, Beijing, central Japan, central Sri Lanka, or Portland, space is closer than the sea.
+ - Our brains have just one scale, and we resize our experiences to fit.
+ - Sometimes I mistake this for a universe that cares.
+ - It’s tempting to just write a comic called ‘Everyone Mail Randall Munroe Twenty Bucks’ – maybe it would work, and I could just close down the ‘xkcd’ store and sit on a beach and draw pictures and make snarky Reddit posts for the rest of my life.
+ - I’ve always thought that one of the the great thing about physics is that you can add more digits to any number and see what happens and nobody can stop you.
+ - Man, Farmville is so huge! Do you realize its the second-biggest browser-based social-networking-centered farming game in the world?
+ - The universe is probably littered with one-planet graves.
+ - News networks giving a greater voice to viewers because the social web is so popular are like a chef on the Titanic who, seeing the looming iceberg and fleeing customers, figures ice is the future and starts making snow cones.
+ - The scholarly authorities on freezing to death seem to be, unsurprisingly, Canadians.
+ - If ‘other people have experiences incorrectly’ is annoying to you, think how unbearable it must be to have a condescending stranger tell you they hate the way you’re experiencing your life at just the moment you’ve found something you want to remember.
+ - I learned very early on in life that not everyone wants to hear every fact in the world, even if you want to tell them everything you’ve ever read.
+ - Google owns YouTube, and recently, I drew a comic about an idea for a YouTube feature – which they actually took seriously and implemented. So I’m thinking that maybe we’ll have a future where Google is ‘xkcd.’
+ - I think the comic that’s gotten me the most feedback is actually the one about the stoplights. Noticing when the stoplights are in sync, or calculating the length of your strides between floor tiles – normal people notice that kind of stuff, but a certain kind of person will do some calculations.
+ - I read comics and I did science, and never really put them together until I accidentally found myself in the middle of one.
+ - Once I got married, I started working from an office. I found that having somewhere to go that isn’t my house is mentally helpful: ‘This is the place where I answer email and write blog posts,’ and ’over there is the place where I do the dishes.
+
+30 quotes

@@ -1,0 +1,23 @@
+ - My job is to awaken possibility in other people.
+ - I have a definition of success. For me it’s very simple. It’s not about wealth and fame and power. It’s about how many shining eyes I have around me.
+ - The conductor of an orchestra doesn’t make a sound. He depends, for his power, on his ability to make other people powerful.
+ - Live the rest of your life in possibility.
+ - Everybody loves classical music they just don’t know about it yet.
+ - When you make a mistake, throw your hands in the air and say “How fascinating!”
+ - This is the moment – this is the most important moment right now. Which is: We are about contribution. That’s what our job is. It’s not about impressing people. It’s not about getting the next job. It’s about contributing something.
+ - Look at their eyes. If their eyes are shining, you know youre doing it.
+ - Throw yourself into life as someone who makes a difference, accepting that you may not understand how or why.
+ - South Africa is a country built on possibility. Possibility lies in making a difference and creating value from a situation – without denying that certain issues exist.
+ - In the measurement world, we set a goal and strive to achieve it. In the universe of possibility, we set the context and let life unfold.
+ - If you make a mistake, celebrate.
+ - I make myself a relentless architect of the possibilities of human beings.
+ - The job of the leader is to speak to the possibility.
+ - The major difference between the ‘best’ and the ‘average’ is that the ‘best’ get as much pleasure from practice as performance.
+ - I’m so sorry for you; your lives have been so easy. You can’t play great music unless your heart’s been broken.
+ - As leaders, we’re giving out grades in every encounter we have with people. We can choose to give out grades as an expectation to live up to, and then we can reassess them according to performance. Or we can offer grades as a possibility to live into. The second approach is much more powerful.
+ - I have a definition of success...
+ - It’s not a question of how much power you can hoard for yourself, but how much you can give away.
+ - Life is revealed as a place to contribute and we as contributors. Not because we have done a measurable amount of good, but because that is the story we tell.
+ - How often do we stand convinced of the truth of our early memories, forgetting that they are assessments made by a child? We can replace the narratives that hold us back by inventing wiser stories, free from childish fears, and, in doing so, disperse long-held psychological stumbling blocks.
+
+21 quotes

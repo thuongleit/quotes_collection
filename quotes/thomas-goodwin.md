@@ -1,0 +1,22 @@
+ - Those blessings are sweetest that are won with prayer and worn with thanks.
+ - When God will have any great matters done, he sets his people’s hearts to work at prayer by a kind of gracious instinct. He stirs them up and moves their hearts by the influence of his Holy Spirit.
+ - In Christ are treasures that will require digging to the end of the world.
+ - Being in Christ, and united to Him, is the fundamental constitution of a Christian.
+ - What is the cause of all God’s purposes towards us? Himself. There is no other cause.
+ - Judas heard all Christ’s sermons.
+ - Heaven would be hell to me without Christ.
+ - Christ’s riches are unsearchable, and this doctrine of the gospel is the field this treasure is hidden in.
+ - The children of believing parents, at least their next and immediate seed, even of us Gentiles now under the gospel, are included by God within the covenant of grace.
+ - Oh despise not election! therein lies all your hope, that there is a remnant who shall infallibly be saved.
+ - The most thankful person is the most fully human.
+ - If I were to go to heaven, and find that Christ was not there, I would leave immediately; for heaven without Christ would be hell to me.
+ - God works with power, and can make the unwilling willing; if He undertakes the conversion of a soul, it will be converted. All the pious workings of our heart towards God are the fruit and consequence of the powerful working of His grace in us.
+ - Glory in nothing, but only in this, that you are in Christ. For God chose you in him; the being you had was in him before the world was.
+ - In public worship all should join. The little strings go to make up a concert, as well as the great.
+ - And so Adam, in that his speech to Eve, uttered his faith in the promise made to her of her seed, and so in that respect Adam himself came in under her covenant.
+ - Our prayers are granted as soon as we have prayed, even though the process of fulfilling our requests has not yet begun.
+ - We have the promise of God’s being our God, and of the blessing by Christ for ourselves, as we are Abraham’s seed, yet take the whole promise collectively made to him and us.
+ - My brethren, when God first began to love you, He gave you all that He ever meant to give you in the lump, and eternity of time is that in which He is retailing of it out.
+ - Moreover, as God respects no persons, so He respects no conditions upon which He gives salvation to us.
+
+20 quotes

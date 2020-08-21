@@ -1,0 +1,27 @@
+ - The unexpected connections we make might not last, yet stay with us forever.
+ - I’m always a sucker for a love story.
+ - It seems that the greatest difficulty is to find the end. Don’t try to find it, it’s there already.
+ - My movies are not about being, but becoming.
+ - You don’t have to be loud. If you know what you want, people respect that.
+ - For everyone, there are those moments when you have great days with someone you wouldn’t expect to. Then you have to go back to your real lives, but it makes an impression on you.
+ - A lot of young filmmakers bring their movies to my dad because he always gives lots of good editing ideas and notes. He’d be a good film professor.
+ - I think I’m always drawn to projects that help me understand something about myself.
+ - Thats the way I work: I try to imagine what I would like to see.
+ - It’s always more intriguing to imagine what’s happening, as opposed to seeing everything, because then you can use your imagination. I always wanted to be at a distance.
+ - When you direct is the only time you get to have the world exactly how you want it. My movies are very close to what I set out to do. And I’m super-opinionated about what I do and don’t like.
+ - I never studied directing and I never really thought about doing it, and then I just found myself in that situation and tried it. I like to be observing everything else, and I get self-conscious in front of the camera.
+ - More actors in action movies should be gangly because that way it’s believable when they move through tight spaces.
+ - It’s about misunderstandings between people and places, being disconnected and looking for moments of connection. There are so many moments in life when people don’t say what they mean, when they are just missing each other, waiting to run into each other in a hallway.
+ - My father is so in love with making movies, and he’sso charismatic about it, that it’s hard to be around him withoutwanting to make movies.
+ - It’s about moments in life that are great but don’t last. They don’t go on, but you always have the memory and they have an effect on you. That’s what I was thinking about.
+ - Forget the audience, make what you want to see.
+ - Acting isn’t for me. I don’t like being told what to do. I’m more interested in set design, more visually driven.
+ - I try to just make what I want to make or what I would want to see. I try not to think about the audience too much.
+ - I definitely have had friendships and moments with people from different backgrounds and in different stages of their lives.
+ - Everyone in my family is in the film business; I knew I wanted to be creative and it was important in my family to be artistic.
+ - I wanted to make a love story without being nerdy.
+ - We were always around my dad, so he wasn’t absentee at all. I don’t think it was normal, but it was exciting. You always had lots of creative people around, and my parents took us everywhere.
+ - Ever since I was little, I’ve felt very comfortable on a set. The time is stressful – being creative under time constraints. But there is an excitement and energy that you only have a certain amount of time to get what you want.
+ - I got exposed to so many different cultures and people.
+
+25 quotes

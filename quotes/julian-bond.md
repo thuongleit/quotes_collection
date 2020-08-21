@@ -1,0 +1,23 @@
+ - Good things don’t come to those who wait. They come to those who agitate!
+ - The civil rights movement didn’t begin in Montgomery and it didn’t end in the 1960s. It continues on to this very minute.
+ - You must place interest in principle above interest on principal.
+ - The humanity of all Americans is diminished when any group is denied rights granted to others.
+ - You could not be in the civil rights movement without having an appreciation for everybody’s rights. That these rights are not divisible – not something men have and women don’t and so on.
+ - People see America through particular lenses, either their profession, their race or their gender. So the party that speaks to our racial perceptions and offers solutions to the racial difficulties which we face is the party that’s going to be rewarded with our votes.
+ - As legal slavery passed, we entered into a permanent period of unemployment and underemployment from which we have yet to emerge.
+ - Obama is to the Tea Party as the moon is to werewolves.
+ - Griffin Bell later apologized to me for that decision.
+ - I do think that some of us began to realize that this was going to be a long struggle that was going to go on for decades, and you’d have to knuckle down. A lot of people in our generation did that. They didn’t drop out and run away.
+ - I tell young people to prepare themselves as best they can for a world that grows more challenging every day-get the best education they can, and couple that education with real-life experience in social justice work.
+ - I now teach at American University and the University of Virginia.
+ - I was a Georgia state legislator for a great many years.
+ - It takes people who have a widespread series of experiences to develop future leaders. It takes people who aren’t afraid to challenge and move forward.
+ - Black reporters are as capable of racism as anyone else.
+ - The war in Iraq has as much to do with terrorism as the administration has to do with compassion.
+ - We know that if whites and nonwhites vote in the same percentages as they did in 2000, Bush will be re-defeated by 3 million votes.
+ - I’ve appeared on a weekly syndicated television show since 1980.
+ - Any time someone carries a picket sign in front of the White House, that is the First Amendment in action.
+ - You know, I come from six generations of college graduates.
+ - Ever since I’ve become chairman, there have been profiles of me in People, George, The Washington Post, The Detroit News, and all of them could have been written by the same person.
+
+21 quotes

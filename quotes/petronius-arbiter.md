@@ -1,0 +1,28 @@
+ - Mundus vult decipi, ergo decipiatur.
+ - Reorganizing can be a wonderful method for creating the illusion of progress while producing confusion, inefficiency, and demoralization.
+ - What power has law where only money rules.
+ - One good turn deserves another.
+ - We trained hard, but it seemed that every time we were beginning to form up into teams, we would be reorganized.
+ - Outward beauty is not enough; to be attractive a woman must use words, wit, playfulness, sweet-talk, and laughter to transcend the gifts of nature.
+ - Can’t you see that I’m only advising you to beg yourself not to be so dumb?
+ - The world wills itself to be deceived, so let it be deceived.
+ - Nothing is falser than people’s preconceptions and ready-made opinions; nothing is sillier than their sham morality.
+ - Wisdom and beauty form a very rare combination.
+ - Leave your home, O youth, and seek out alien shores. A wider range of life has been ordained for you.
+ - The favor for the favor or One hand washes the other.
+ - Beauty and wisdom are rarely conjoined.
+ - The mind longs for what it has missed.
+ - Women are one and all a set of vultures.
+ - Just as dumb creatures are snared by food, human beings would not be caught unless they had a nibble of hope.
+ - I believe that school makes complete fools of our young men, because they see and hear nothing of ordinary life there.
+ - Everyone will find what he’s looking for. Nothing pleases everyone: this man gathers thorns, that one roses.
+ - Heaven is equally distant everywhere.
+ - A huge dog, tied by a chain, was painted on the wall and over it was written in capital letters ‘Beware of the dog.’
+ - He that has a penny in his purse, is worth a penny: Have and you shall be esteemed.
+ - A physician is nothing but a consoler of the mind.
+ - He has gone over to the majority.
+ - A man who is always ready to believe what is told him will never do well, especially a businessman.
+ - While fortune lasts you will see your friend’s face.
+ - It is fear that first brought gods into the world.
+
+26 quotes

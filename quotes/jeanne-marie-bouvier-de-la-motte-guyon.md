@@ -1,0 +1,26 @@
+ - It is only by a total death to self we can be lost in God.
+ - He who has a pure heart will never cease to pray; and he who will be constant in prayer, shall know what it is to have a pure heart.
+ - It is the fire of suffering that brings forth the gold of godliness.
+ - Let no one ask a stronger mark of an excellent love to God, than that we are insensible to our own reputation.
+ - God’s designs regarding you, and His methods of bringing about these designs, are infinitely wise.
+ - Prayer is the key of perfection and of sovereign happiness; it is the efficacious means of getting rid of all vices and of acquiring all virtues; for the way to become perfect is to live in the presence of God.
+ - We must forget ourselves and all self-interest, and listen, and be attentive to God.
+ - It is a great truth, wonderful as it is undeniable, that all our happiness temporal, spiritual, and eternal consists in one thing; namely, in resigning ourselves to God, and in leaving ourselves with Him, to do with us and in us just as He pleases.
+ - If knowing answers to life’s questions is absolutely necessary to you, then forget the journey. You will never make it, for this is a journey of unknowables – of unanswered questions, enigmas, incomprehensibles, and, most of all, things unfair.
+ - The more wants we have, the further we are from God, and the nearer we approach him, the better can we dispense with everything that is not Himself.
+ - All consolation that does not come from God is but desolation; when the soul has learned to receive no comfort but in God only, it has passed beyond the reach of desolation.
+ - I have never found any who prayed so well as those who had never been taught how. They who have no master in man, have one in the Holy Spirit.
+ - Oh, that we fully understood how very opposite our self-righteousness is to the designs of God!
+ - We never know how strongly we cling to objects until they are taken away, and he who thinks htat he is attached to nothing, is frequently grandly mistaken, being bound to a thousand things, unknown to himself.
+ - To rob God of nothing; to refuse Him nothing; to require of Him nothing; this is great perfection.
+ - Surrender yourselves then to be led and disposed of just as God pleases, with respect both to your outward and inward state.
+ - Ah, if you knew what peace there is in an accepted sorrow!
+ - Our activity should consist in placing ourselves in a state of susceptibility to Divine impressions, and pliability to all the operations of the Eternal Word.
+ - Self-seeking is the gate by which a soul departs from peace; and total abandonment to the will of God, that by which it returns.
+ - The very discovery of these hidden things is in itself a purifying experience! The soul needs to discover what is inside. The self nature needs to see what it really is, and what it is like-right to the very bottom.
+ - O my God, how true it is that we may have of Thy gifts and yet may be full of ourselves!
+ - God causes us to promise in time of peace what He exacts from us in time of war; He enables us to make our abandonments in joy, but He requires the fulfilment of them in the midst of much bitterness.
+ - My soul was not only brought into harmony with itself and with God, but with God’s providence. In the exercise of faith and love, I endured and performed whatever came in God’s providence, in submission, in thankfulness, and silence.
+ - Secrets of the incomprehensible wisdom of God, unknown to any besides Himself! Man, sprung up only of a few days, wants to penetrate, and to set bounds to it. Who is it that hath known the mind of the Lord, or who hath been His counselor?
+
+24 quotes

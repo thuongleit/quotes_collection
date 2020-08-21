@@ -1,0 +1,55 @@
+ - Find your passion, learn how to add value to it, and commit to a lifetime of learning.
+ - Does God exist? Well, I would say, not yet.
+ - Mobile phones are misnamed. They should be called gateways to human knowledge.
+ - By 2029, computers will have emotional intelligence and be convincing as people.
+ - Our intuition about the future is linear. But the reality of information technology is exponential, and that makes a profound difference. If I take 30 steps linearly, I get to 30. If I take 30 steps exponentially, I get to a billion.
+ - Emotional intelligence is what humans are good at and that’s not a sideshow. That’s the cutting edge of human intelligence.
+ - Our technology, our machines, is part of our humanity. We created them to extend ourselves, and that is what is unique about human beings.
+ - Time would become meaningless if there were too much of it.
+ - What we spend our time on is probably the most important decision we make.
+ - I’m an inventor. I became interested in long-term trends because an invention has to make sense in the world in which it is finished, not the world in which it is started.
+ - By the end of this decade, computers will disappear as distinct physical objects, with displays built in our eyeglasses, and electronics woven in our clothing, providing full-immersion visual virtual reality.
+ - By the 2030s, the nonbiological portion of our intelligence will predominate.
+ - A Singularitarian is someone who understands the Singularity and has reflected on its meaning for his or her own life.
+ - Supercomputers will achieve one human brain capacity by 2010, and personal computers will do so by about 2020.
+ - A successful person isn’t necessarily better than her less successful peers at solving problems; her pattern-recognition facilities have just learned what problems are worth solving.
+ - Biological evolution is too slow for the human species. Over the next few decades, it’s going to be left in the dust.
+ - I’m working on artificial intelligence. Actually, natural language understanding, which is to get computers to understand the meaning of documents.
+ - There are downsides to every technology. Fire kept us warm, but also burned down our villages.
+ - Play is just another version of work.
+ - Information defines your personality, your memories, your skills.
+ - I consider myself an inventor, entrepreneur, and author.
+ - Nature, and the natural human condition, generates tremendous suffering. We have the means to overcome that, and we should deploy it.
+ - Doing real world projects is, I think, the best way to learn and also to engage the world and find out what the world is all about.
+ - The story of evolution unfolds with increasing levels of abstraction.
+ - Biology is a software process. Our bodies are made up of trillions of cells, each governed by this process. You and I are walking around with outdated software running in our bodies, which evolved in a very different era.
+ - In 1999, I said that in about a decade we would see technologies such as self-driving cars and mobile phones that could answer your questions, and people criticized these predictions as unrealistic.
+ - The fate of the universe is a decision yet to be made, one which we will intelligently consider when the time is right.
+ - We appear to be programmed with the idea that there are ‘things’ outside of our self, and some are conscious, and some are not.
+ - The purposeful destruction of information is the essence of intelligent work.
+ - I envision some years from now that the majority of search queries will be answered without you actually asking. It’ll just know this is something that you’re going to want to see.
+ - The ethical debates are like stones in a stream. The water runs around them. You haven’t seen any biological technologies held up for one week by any of these debates.
+ - It is doubling now every two years. Doubling every two years means multiplying by 1,000 in 20 years. At that rate we’ll meet 100 percent of our energy needs in 20 years.
+ - We’ll be able to have very intelligent, little robots with computers going inside our bloodstream, keeping us healthy from inside, destroying cancer at the level of one cell.
+ - So what used to fit in a building now fits in your pocket, what fits in your pocket now will fit inside a blood cell in 25 years.
+ - The past is over; the present is fleeting; we live in the future.
+ - A lot of movies about artificial intelligence envision that AIs will be very intelligent but missing some key emotional qualities of humans and therefore turn out to be very dangerous.
+ - Sometimes people talk about conflict between humans and machines, and you can see that in a lot of science fiction. But the machines were creating are not some invasion from Mars. We create these tools to expand our own reach.
+ - Inventing is a lot like surfing: you have to anticipate and catch the wave at just the right moment.
+ - If we could convert 0.03 percent of the sunlight that falls on the earth into energy, we could meet all of our projected needs for 2030.
+ - Even by common wisdom, there seem to be both people and objects in my dream that are outside myself, but clearly they were created in myself and are part of me, they are mental constructs in my own brain.
+ - Launching a breakthrough idea is like shooting skeet. People’s needs change, so you must aim well ahead of the target to hit it.
+ - We’re democratizing the tools of creativity.
+ - The telephone is virtual reality in that you can meet with someone as if you are together, at least for the auditory sense.
+ - Science fiction is the great opportunity to speculate on what could happen. It does give me, as a futurist, scenarios.
+ - Intuition is linear; our imaginations are weak. Even the brightest of us only extrapolate from what we know now; for the most part, we’re afraid to really stretch.
+ - The need to congregate workers in offices will gradually diminish.
+ - I do have to pick my priorities. Nobody can do everything.
+ - My mission at Google is to develop natural language understanding with a team and in collaboration with other researchers at Google.
+ - When you talk to a human in 2035, you’ll be talking to someone that’s a combination of biological and non-biological intelligence.
+ - As you go out to the 2040s, now the bulk of our thinking is out in the cloud. The biological portion of our brain didn’t go away but the nonbiological portion will be much more powerful. And it will be uploaded automatically the way we back up everything now that’s digital.
+ - All of our schools need to bring ‘learn from doing’ into the mainstream education, not just afternoon.
+ - By 2009, computers will disappear. Displays will be written directly onto our retinas by devices in our eyeglasses and contact lenses.
+ - By 2010 computers will disappear. They’ll be so small, they’ll be embedded in our clothing, in our environment. Images will be written directly to our retina, providing full-immersion virtual reality, augmented real reality. We’ll be interacting with virtual personalities.
+
+53 quotes

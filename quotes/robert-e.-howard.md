@@ -1,0 +1,75 @@
+ - But not all men seek rest and peace; some are born with the spirit of the storm in their blood.
+ - Civilized men are more discourteous than savages because they know they can be impolite without having their skulls split, as a general thing.
+ - What do I know of cultured ways, the gilt, the craft and the lie? I, who was born in a naked land and bred in the open sky. The subtle tongue, the sophist guile, they fail when the broadswords sing; Rush in and die, dogs – I was a man before I was a king.
+ - I know this: if life is illusion, then I am no less an illusion, and being thus, the illusion is real to me. I live, I burn with life, I love, I slay, and am content.
+ - All fled – all done, so lift me on the pyre – The Feast is over, and the lamps expire.
+ - For man’s only weapon is courage that flinches not from the gates of Hell itself, and against such not even the legions of Hell can stand.
+ - I’m not going out of my way looking for devils; but I wouldn’t step out of my path to let one go by.
+ - Time and times are but cogwheels, unmatched, grinding on oblivious to one another. Occasionally – oh, very rarely! – the cogs fit; the pieces of the plot snap together momentarily and give men faint glimpses beyond the veil of this everyday blindness we call reality.
+ - Know, oh prince, that between the years when the oceans drank Atlantis and the gleaming cities, and the years of the rise of the Sons of Aryas, there was an Age undreamed of, when shining kingdoms lay spread across the world like blue mantles beneath the stars.
+ - The more I see of what you call civilization, the more highly I think of what you call savagery!
+ - Youngsters of this generation seem not quite so hazardous except in the way of mechanical speed, bad liquor and venereal diseases.
+ - Barbarianism is the natural state of mankind. Civilization is unnatural. It is the whim of circumstance. And barbarianism must ultimately triumph.
+ - While we may open the books of the past, we may but grant flying glances of the future, through the mist that veils it.
+ - The sea-road is good for wanderers and landless men. There is quenching of thirst on the grey paths of the winds, and the flying clouds to still the sting of lost dreams.
+ - What is death but a traversing of eternities and a crossing of cosmic oceans?
+ - I have accomplished little enough, but such as it is, it is the result of my own efforts.
+ - The only safe enemy was a headless enemy.
+ - Break the skin of civilization and you find the ape, roaring and red-handed.
+ - Man is still an ape in that he forgets what is not ever before his eyes.
+ - When I cannot stand alone, it will be time to die.
+ - I don’t believe I ever saw an Oklahoman who wouldn’t fight at the drop of a hat – and frequently drop the hat himself.
+ - Life is but a web spun of ghosts and dreams and illusions.
+ - How can I wear the harness of toil And sweat at the daily round, While in my soul forever The drums of Pictdom sound?
+ - What shall a man say when a friend has vanished behind the doors of Death? A mere tangle of barren words, only words.
+ - Some mechanism in my sub-consciousness took the dominant characteristics of various prize-fighters, gunmen, bootleggers, oil field bullies, gamblers, and honest workmen I had come in contact with, and combining them all, produced the amalgamation I call Conan the Cimmerian.
+ - Aye, you white dog, you are like all your race; but to a black man gold can never pay for blood.
+ - We’re making tin gods out of those poor buffoons in Hollywood; I dote on movies and appreciate the scanty art therein but I consider the profession about the most debased and debasing I know.
+ - One man’s bane is another’s bliss.
+ - I have known many gods. He who denies them is blind as he who trusts them too deeply.
+ - It is an ill thing to meet a man you thought dead in the woodland at dusk.
+ - It was no ape, neither was it a man. It was some shambling horror spawned in the mysterious, nameless jungles of the south, where strange life teemed in the reeking rot without the dominance of man, and drums thundered in temples that had never known the tread of a human foot.
+ - Rome got some peachy pastings when she tried to lick the Irish.
+ - I had neither expert aid nor advice. I studied no courses in writing; until a year or so ago, I never read a book by anybody advising writers how to write.
+ - Civilization is a natural and inevitable consequence – whether good or evil I am not prepared to state.
+ - I became a writer in spite of my environments.
+ - It seems to me that many writers, by virtue of environments of culture, art and education, slip into writing because of their environments.
+ - I’ll say one thing about an oil boom; it will teach a kid that Life’s a pretty rotten thing as quick as anything I can think of.
+ - But whatever my failure, I have this thing to remember – that I was a pioneer in my profession, just as my grandfathers were in theirs, in that I was the first man in this section to earn his living as a writer.
+ - My characters are more like men than these real men are, see. They’re rough and rude, they got hands and they got bellies. They hate and they lust; break the skin of civilization and you find the ape, roaring and red-handed.
+ - I have no fear of the Hereafter. An orthodox hell could hardly be more torture than my life has been.
+ - What always was must always be.
+ - Man can be that which he wishes to be; form and substance, they are but shadows. The mind, the ego, the essence of the god-dream – that is real, that is immortal.
+ - My body seems a mere encumbrance to me; an imbecillic wagon, hitched to the horse of desire, which is the soul.
+ - Every twinge of sensation, even of agony, was a negation of death.
+ - Any but the most brutish of men must be touched with a certain awe or wonder at the baring of a woman’s naked soul.
+ - If I was wealthy I’d never do anything but poke around in ruined cities all over the world – and probably get snake-bit.
+ - I see in the papers where Roy Guthrie committed suicide. Why, I wonder?
+ - Civilization is a network and a maze of precedences and custom.
+ - The poem you sent me was as fiery and virile as anything you’ve ever written – or anybody else, for that matter. Especially the second part went to my brain like the flaming liquor of insanity. No one else besides Jack London has the power to move me just that way.
+ - I have not been a success, and probably never will be.
+ - The printed page was like wine to me.
+ - Wits and swords are as straws against the wisdom of the Darkness...
+ - I have gone into yesterday and tomorrow and both were as real as today – which is like the dreams of ghosts!
+ - A woman in such an emotional tempest is as perilous as a blind cobra to any about her.
+ - Before the invader sound was born, the Universe was silent and shall be again.
+ - Man is better without knowledge of things to come, for what is to be will be, and man can neither avert nor hasten. It is better to go in the dark when the road must pass a lion and there is no other road.
+ - A kingdom is not lost by a single defeat.
+ - Never the less, at the age of fifteen, having never seen a writer, a poet, a publisher or a magazine editor, and having only the vaguest ideas of procedure, I began working on the profession I had chosen.
+ - Don’t you think that as a people, Americans have less poetry, real poetry, in their souls than any other nations?
+ - No man can be convinced when he will not.
+ - I think the real reason so many youngsters are clamoring for freedom of some vague sort, is because of unrest and dissatisfaction with present conditions; I don’t believe this machine age gives full satisfaction in a spiritual way, if the term may be allowed.
+ - It is not pleasant to come upon Death in a lonely place at midnight.
+ - I have put off the past like a worn-out cloak.
+ - Animals are neither gods nor fiends, but men in their way without the lust and greed of man.
+ - I am unable to rouse much interest in any highly civilized race, country or epoch, including this one.
+ - The people among which I lived – and yet live, mainly – made their living from cotton, wheat, cattle, oil, with the usual percentage of business men and professional men.
+ - Coming, as I do, from mountain folk on one side and sea followers on the other, there are few old songs of the hills or the sea with which I am not familiar.
+ - Men are but men, and the greatest men are they who soonest learn the simpler things.
+ - In the hill country, civilization steals in last, and the people retain much of the crude but vigorous mode of expression of the colonial days and earlier.
+ - I reckon if I ever marry, she will have to be a strong woman in a circus or something.
+ - I never saw a man fight as Conan fought. He put his back to the courtyard wall, and before they overpowered him the dead men were strewn in heaps thigh-deep about him. But at last they dragged him down, a hundred against one.
+ - But the idea of a man making his living by writing seemed, in that hardy environment, so fantastic that even today I am sometimes myself assailed by a feeling of unreality.
+ - In this world men struggle and suffer vainly, finding pleasure only in the bright madness of battle; dying, their souls enter a gray misty realm of clouds and icy winds, to wander cheerlessly throughout eternity.
+
+73 quotes

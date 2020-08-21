@@ -1,0 +1,34 @@
+ - Vengeance and revenge are just two words for pain.
+ - I walked along that slippery slope where if you fail through lack of faith, you sell your soul to the devil.
+ - Punk is just as much a form of folk music as anything is!
+ - If I have something to apologize, I want to be the first one to step up and make that apology. I don’t want anyone to broker it for me. I don’t want anyone to take the hit for me. If I have anything to apologize for, I’m only human. I’m prone to making mistakes.
+ - I believe in the power of music. I believe in it absolutely. It’s never failed me. Never.
+ - The love that I pray every day is manifest through me. Not because I’m a loving person, but because the God that I serve loves everybody.
+ - I accepted a change in my life. I didn’t choose that change and those are the best changes to make.
+ - I resent like hell that I was maybe eighteen before I ever heard the ‘L’ word. It would have made all the difference for me had I grown up knowing that the reason I didn’t fit in was because they hadn’t told me there were more categories to fit into.
+ - Their lives ran in circles so small They thought they’d seen it all.
+ - I’ve been through some dark times but I’ve experienced joy too. Now that joy can’t be suppressed.
+ - Writing and singing does give me some kind of release from the demons of my past, it is a therapy of sorts, but to be honest, my marriage played a more important role in the acceptance of myself than performance has ever done.
+ - As I look back over my life, before I had any real identity, I was a traveler. I grew up an Army brat, a runaway, an activist, and a musician. All my life I’ve been traveling.
+ - At one time I was a nihilistic punk with a mohican and a ring in my nose. I think in the course of time I’ll find a middle ground, but I also carry that sense of responsibility. I’m in a position to defeat stereotypes.
+ - Make your own music. It can be done.
+ - Everyone thinks young people are alienated from the system. But when you present them with a viable alternative, they will be the first to take it. And then watch out.
+ - Ideals are not something I can control. It’s not logic that convinces me of something, it’s what my heart says. My heart has a way of involving me in things, which can only be good for the music.
+ - Mainstream media would convince you that there’s commercial culture and that’s all – but this other music is still here.
+ - Music is not a commodity, it’s a resource.
+ - Prayer is so incredibly powerful. It keeps you in perfect peace.
+ - I’m passionate about two things: Jesus and liberation.
+ - The thing I fail to do is fully comprehend what’s given back to me by the audience. You would think you would be a performer partly so you could feel all the appreciation or adulation, but I haven’t quite managed that yet.
+ - If I’m going to be held captive by social media, I’m going to use it against itself.
+ - I try to look at this music career thing as the means to an end. And really, at the end of it, I see myself on a sailboat, sailing off the edge of the world.
+ - They sign a bunch of women, and they call it a movement. I don’t like the way women in music have been identified as women first and musicians second.
+ - Making music should not be left to the professionals.
+ - I’m too shy, really to be able to hang out with my heroes for too long.
+ - When I grow up I want to be an old woman.
+ - I think people have to choose between living with contradictions or painting themselves into a corner. I have a lot of contradictions.
+ - What kind of religion is it that would encourage the parent to shelter the child from any outside influences and punish it by putting it out in a world you never had any way of learning about?
+ - I’m one of the few that comes from this vantage point: I never tried to get a record deal.
+ - My grandmother had a Miss Margaret’s School of Dance to teach tap and ballet to kids, but I never studied it. I was raised a Mormon and they’re dancing fools. It’s the only vice they have – dancing.
+ - I regard myself as a true American musician, and I play every style that is my heritage.
+
+32 quotes

@@ -1,0 +1,61 @@
+ - Losing your life is not the worst thing that can happen. The worst thing is to lose your reason for living.
+ - Good police officers are ugly.
+ - For me, the best places to write are on planes, trains and at airports. Not hotel rooms but hotel lobbies. I’m really happy when I’m waiting for a plane and the message comes that it’s three hours late. Great, I’ll get to write!
+ - Love surrounds you like steam in the shower. You can’t see the individual drops, but you get warm. And wet. And clean.
+ - I’m just an entertainer. In a way crime stories are boring. A crime’s been committed and at the end you know it will be solved. So you’ve got to make the story interesting besides it just being a plot. And that’s why character matters, why you’ve got to make the characters interesting.
+ - Doubt is faith’s shadow.
+ - As a writer, you have to believe you’re one of the best writers in the world. To sit down every day at the typewriter filled with self-doubt is not a good idea.
+ - To have the chance of being loved we have to take a chance on being destroyed inside.
+ - What is worse? Taking the life of a person who wants to live or taking death from a person who wants to die.
+ - All interesting heroes have an Achilles heel.
+ - It was a sudden inspiration. But inspiration never came without a reason.
+ - A moral person is someone who accepts the consequences of their own morality, not those of others.
+ - Evil is not a thing. It cannot take possession of you. It’s the opposite; it’s a void, an absence of goodness. The only thing you can be frightened of here is yourself.
+ - Harry looked at Bellman. He could not help but admire him. The way you admire a cockroach you flush down the toilet and it comes creeping back again and again and in the end it inherits the world.
+ - I have questioned myself about the brutality in the last few novels. Actually in ‘The Leopard,’ in hindsight, I feel I went a little bit too far with screaming blood. There are a couple of scenes that I regret and wish I had the chance to rewrite. ‘Phantom’ has less blood.
+ - Many Scandinavian writers who had made their name in literary fiction felt they wanted to have a go at the crime novel to show they could compete with the best. If Salman Rushdie had been Norwegian, he would definitely have written at least one thriller.
+ - Revenge is the thinking man’s reflex, a complex blend of action and consistency no other animal species has so far succeeded in evolving. Evolutionary speaking, the practice of taking revenge has shown itself to the so effective that only the most vengeful of us have survived.
+ - For many years, it seemed as if nothing changed in Norway. You could leave the country for three months, travel the world, through coups d’etat, assassinations, famines, massacres and tsunamis, and come home to find that the only new thing in the newspapers was the crossword puzzle.
+ - There’s only one thing worse than not satisfying a desire. And that is not to feel any desire.
+ - A rat is neither good nor evil. It does what a rat has to do.
+ - I’ve read that it’s the smell some carnivores use to find their prey. Imagine the trembling victim trying to hide, but knowing that the smell of its own fear will kill it.
+ - Everything you do leaves traces, doesn’t it. The life you’ve lived is written all over you, for those who can read.
+ - I don’t think I’ll ever feel as famous or as popular as I felt when I was a 17-year-old soccer player in Modle. Only about 20,000 people live there and 12,000 of them come to every game. Running onto the pitch each week was just the most fantastic feeling. Nothing can beat that.
+ - Just imagine walking away from something you’ve started. Something you really believed would be good. I don’t think I could ever do that.
+ - I tell myself I write because I want to say something true and original about the nature of evil. That is very ambitious – to say something about the human condition that hasn’t been written before. Probably I will never succeed but that is what I strive to do.
+ - Sick is a relative concept. We’re all sick. The question is, what degree of functionality do we have with respect to the rules society sets for desirable behavior? No actions are in themselves symptoms of sickness. You have to look at the context within which these actions are performed.
+ - As I say, we Norwegians love our woolens, and you can buy some beautiful knitwear in Oslo. They might cost you a bit – but they will last.
+ - Not even the brightest future can make up for the fact that no roads lead back to what came before – to the innocence of childhood or the first time we fell in love.
+ - The nature of Scandinavians is that they don’t talk so much, there will be these dark secrets, and most things are under-communicated.
+ - Do what boxers do, sway with the punches. Don’t resist. If any of what happens at work gets to you, just let it. You won’t be able to shut it out in the long term anyway. Take it bit by bit, release it like a dam, don’t let it collect until the wall develops cracks.
+ - Everyone knew that fat had become the new cancer, yet they bellyached about the dieting hysteria and applauded the “real” women’s body. As though doing no exercise and being overfed was some kind of sensible mold.
+ - The only pressure I feel is to write good books. And to not replicate the previous book. Whether you have a thousand readers or a million readers it doesn’t change the pressure. I never feel tempted to give the reader what I think the reader wants.
+ - I think my heart is quite selfish. If I followed my heart, I would not be a good person. But I have moral principles. I have to sit down and reflect.
+ - I was sleeping in a water bed for a couple of years, recommended by my doctor. I was never comfortable in that water bed. In the middle of the night you would hear something happening – water and bubbles. I would always think there was some intelligent life in the water bed.
+ - Christian ethics demand that you should not take revenge. The paradox is, naturally, that Christians worship a God who is the greatest avenger of them all. Defy him and you burn in eternal hell, an act of revenge which is completely out of proportion to the crime.
+ - I’m afraid I didn’t really like Caracas in Venezuela. From what I saw it seemed so crime-ridden that you really have to be on your guard all the time.
+ - Normally I start with a plot, and write a synopsis, and the ideas come from the construction.
+ - I write something that I believe I’ve made up, and it’s only when a friend later points it out to me that I realise I’ve been writing about myself again.
+ - What do we mean by ‘crazy?’ What do we mean by ‘mad?’ At what point is a person just different and at what point can we call it a disease and say that they are not responsible for their actions? Or are we all slaves to the chemical processes that go on in our brains?
+ - All my friends who wanted to write had got nowhere trying to write the great European novel. So I deliberately steered clear of that and set out to write something story-led.
+ - You can’t visit readers where you think they are. You have to invite them home to where you are and try to lure them into your universe. That’s the art of storytelling.
+ - They say that every writer, they write about himself, and I think that to a certain extent that is true. But also we are creators of fiction.
+ - What we humans think we know is nothing compared to what we need to believe to numb the fear and pain.
+ - Everyone has a need to do penance. It’s a basic need, like washing. It’s about harmony, an absolutely essential inner balance. It’s the balance we call morality.
+ - Thanks to the success of Henning Mankell and Peter Hoeg, there wasn’t the same stigma attached to writing genre thrillers in Scandinavia as there was in many other cultures. Quite the opposite, in fact.
+ - I wasn’t that into crime novels at all, but a friend introduced me to the work of Jim Thompson – I loved all his books.
+ - We’re capable of understanding that someone has to drop an atomic bomb on a town of innocent civilians, but not that others have to cut up prostitutes who spread disease and moral depravity in the slums of London. Hence we call the former realism and the latter madness.
+ - I feel more related to some American crime writers than I do to Stieg Larsson.
+ - When you’re an established name, you know that a children’s book will have a pretty good chance of getting picked up. Like Madonna. It’s not that I had this great idea. Actually, in my case, it was a great idea.
+ - Ever since I was in my teens I had plans at one point in my life to write a novel.
+ - When you go visiting countries, you start reading the history of the place and you start getting into the culture, and then you have to leave. In my experience, all countries have hidden treasures.
+ - The myth about me as a footballer has grown: I am now the lost Maradona of Norway.
+ - You get spoiled as a novelist because you get to be the director and the editor, and you play all the parts, but as a screenwriter, you are a bit down the ladder.
+ - Let me say here and now that faith has never done me any good, only doubt. So that is what has become my testament.
+ - I was a really bad taxi driver. I only collided twice but it was one time too much.
+ - Ever since the ’70s, Maj Sjowall and Per Wahloo were the godfathers of Scandinavian crime. They broke the crime novel in Scandinavia from the kiosks and into the serious bookstores.
+ - Some artists see a gig as an audience worshipping them. I think it is about having a great time together. I have a part as the singer. An audience has a part. Playing a gig doesn’t make me high on myself.
+ - The stock market to me was like a video game. When it went off, it was like turning the game off. It wasn’t something I’d think about until I’d turn the machine on again.
+ - My influence is probably more from American crime writers than any Europeans. And I hardly read any Scandinavian crime before I started writing myself. I wasn’t a great crime reader to begin with.
+
+59 quotes

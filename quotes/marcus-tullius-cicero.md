@@ -1,0 +1,502 @@
+ - A room without books is like a body without a soul.
+ - A happy life consists in tranquility of mind.
+ - Silence is one of the great arts of conversation.
+ - More is lost by indecision than wrong decision. Indecision is the thief of opportunity. It will steal you blind.
+ - We study history not to be clever in another time, but to be wise always.
+ - While there’s life, there’s hope.
+ - To err is human, but to persevere in error is only the act of a fool.
+ - If you have a garden and a library, you have everything you need.
+ - It is exercise alone that supports the spirits, and keeps the mind in vigor.
+ - Life without learning is death.
+ - Diseases of the soul are more dangerous and more numerous than those of the body.
+ - Life is nothing without friendship.
+ - Probability is the very guide of life.
+ - What then is freedom? The power to live as one wishes.
+ - If I had more time, I would have written a shorter letter.
+ - Read at every wait; read at all hours; read within leisure; read in times of labor; read as one goes in; read as one goest out. The task of the educated mind is simply put: read to lead.
+ - The safety of the people shall be the highest law.
+ - Gratitude is not only the greatest of virtues, but the parent of all the others.
+ - Sometimes I do what I want to. The rest of the time- I do what I have to.
+ - Times are bad. Children no longer obey their parents, and everyone is writing a book.
+ - In nothing do men more nearly approach the gods, than in giving health to men.
+ - To be ignorant of what occurred before you were born is to remain always a child. For what is the worth of human life, unless it is woven into the life of our ancestors by the records of history?
+ - It is the peculiar quality of a fool to perceive the faults of others and to forget his own.
+ - Loyalty is what we seek in friendship.
+ - To live long, live slowly.
+ - Any man can make mistakes, but only an idiot persists in his error.
+ - In times of war, the law falls silent.
+ - History is the witness of the times, the light of truth, the life of memory, the teacher of life, the messenger of antiquity.
+ - Freedom is a possession of inestimable value.
+ - The soil of their native land is dear to all the hearts of mankind.
+ - The life of the dead is placed on the memories of the living. The love you gave in life keeps people alive beyond their time. Anyone who was given love will always live on in another’s heart.
+ - The purpose of education is to free the student from the tyranny of the present.
+ - The life given us, by nature is short; but the memory of a well-spent life is eternal.
+ - The wise are instructed by reason, average minds by experience, the stupid by necessity and the brute by instinct.
+ - A nation can survive its fools, and even the ambitious. But it cannot survive treason from within.
+ - Man is his own worst enemy.
+ - If you wish to persuade me, you must think my thoughts, feel my feelings, and speak my words.
+ - Before beginning, plan carefully.
+ - Confidence is that feeling by which the mind embarks in great and honorable courses with a sure hope and trust in itself.
+ - To be ignorant of what occurred before you were born is to remain always a child.
+ - The more laws, the less justice.
+ - The authority of those who teach is often an obstacle to those who want to learn.
+ - The life of the dead is placed in the memory of the living.
+ - Our thoughts are free.
+ - The real friend is another self.
+ - I have always been of the opinion that unpopularity earned by doing what is right is not unpopularity at all, but glory.
+ - Politicians are not born; they are excreted.
+ - What society does to its children, so will its children do to society.
+ - The face is a picture of the mind with the eyes as its interpreter.
+ - The higher we are placed, the more humbly we should walk.
+ - Life is short, but art lives forever.
+ - The pursuit, even of the best things, ought to be calm and tranquil.
+ - The sinews of war are infinite money.
+ - Trust no one unless you have eaten much salt with him.
+ - It is fortune, not wisdom, that rules man’s life.
+ - Nature has planted in our minds an insatiable longing to see the truth.
+ - No one has the right to be sorry for himself for a misfortune that strikes everyone.
+ - Brevity is a great charm of eloquence.
+ - Where is there dignity unless there is honesty?
+ - Freedom suppressed and again regained bites with keener fangs than freedom never endangered.
+ - The aim of forensic oratory is to teach, to delight, to move.
+ - Freedom is participation in power.
+ - The greater the difficulty, the greater the glory.
+ - The science of love is the philosophy of the heart.
+ - Every word that is unnecessary only pours over the side of a brimming mind.
+ - I remember the very thing that I do not wish to; I cannot forget the things I wish to forget.
+ - After victory, you have more enemies.
+ - Rightly defined philosophy is simply the love of wisdom.
+ - Love is the attempt to form a friendship inspired by beauty.
+ - It is a true saying that ‘one falsehood easily leads to another.’
+ - History is indeed the witness of the times, the light of truth.
+ - Live as brave men; and if fortune is adverse, front its blows with brave hearts.
+ - Those who do not know history will forever remain children.
+ - Old age: the crown of life, our play’s last act.
+ - If a man cannot feel the power of God when he looks upon the stars, then I doubt whether he is capable of any feeling at all.
+ - For what people have always sought is equality before the law. For rights that were not open to all alike would be no rights.
+ - What nobler employment, or more valuable to the state, than that of the man who instructs the rising generation?
+ - History illumes reality, vitalizes memory, provides guidance in daily life.
+ - The man who backbites an absent friend, nay, who does not stand up for him when another blames him, the man who angles for bursts of laughter and for the repute of a wit, who can invent what he never saw, who cannot keep a secret – that man is black at heart: mark and avoid him.
+ - An unjust peace is better than a just war.
+ - Never injure a friend, even in jest.
+ - Few are those who wish to be endowed with virtue rather than to seem so.
+ - Man’s best support is a very dear friend.
+ - The Jews belong to a dark and repulsive force. One knows how numerous this clique is, how they stick together and what power they exercise through their unions. They are a nation of rascals and deceivers.
+ - Glory follows virtue as if it were its shadow.
+ - I hope that the memory of our friendship will be everlasting.
+ - Aristoteles quidem ait: ‘Omnes ingeniosos melancholicos esse.’ Aristotle says that all men of genius are melancholy.
+ - The first bond of society is the marriage tie; the next our children; then the whole family of our house, and all things in common.
+ - Softly! Softly! I want none but the judges to hear me. The Jews have already gotten me into a fine mess, as they have many other gentleman. I have no desire to furnish further grist for their mills.
+ - To add a library to a house is to give that house a soul.
+ - I follow nature as the surest guide, and resign myself with implicit obedience to her sacred ordinances.
+ - The hours pass and the days and the months and the years, and the past time never returns.
+ - Within the character of the citizen, lies the welfare of the nation.
+ - Do not hold the delusion that your advancement is accomplished by crushing others.
+ - Let your desires be ruled by reason.
+ - Constant practice devoted to one subject often outdoes both intelligence and skill. – Assiduus usus uni rei deditus et ingenium et artem saepe vincit.
+ - I am a Roman citizen.
+ - There is nothing god cannot do.
+ - Laws are silent in time of war.
+ - The spirit is the true self. The spirit, the will to win, and the will to excel are the things that endure.
+ - We should never so entirely avoid danger as to appear irresolute and cowardly; but, at the same time, we should avoid unnecessarily exposing ourselves to danger, than which nothing can be more foolish.
+ - Next to God we are nothing. To God we are Everything.
+ - What is thine is mine, and all mine is thine.
+ - It shows a brave and resolute spirit not to be agitated in exciting circumstances.
+ - The causes of events are ever more interesting than the events themselves.
+ - Every one is least known to himself, and it is very difficult for a man to know himself.
+ - Poor is the nation that has no heroes, but poorer still is the nation that having heroes, fails to remember and honor them.
+ - I criticize by creation – not by finding fault.
+ - A thankful heart is not only the greatest virtue but the parent of all the other virtues. As we express our gratitude, we must never forget that the highest appreciation is not to utter words but to live by them.
+ - Inability to tell good from evil is the greatest worry of man’s life.
+ - He who suffers, remembers.
+ - We learn nothing from history except that we learn nothing from history.
+ - The contemplation of celestial things will make a man both speak and think more sublimely and magnificently when he descends to human affairs.
+ - I am not ashamed to confess that I am ignorant of what I do not know.
+ - The whole life of a philosopher is the meditation of his death.
+ - Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief.
+ - Cannot people realize how large an income is thrift?
+ - No wise man ever thought that a traitor should be trusted.
+ - The precept, “Know yourself,” was not solely intended to obviate the pride of mankind; but likewise that we might understand our own worth.
+ - The man who commands efficiently must have obeyed others in the past, and the man who obeys dutifully is worthy of someday being a commander.
+ - If we lose affection and kindliness from our life: we lose all that gives it charm.
+ - We were born to unite with our fellow men, and to join in community with the human race.
+ - Nature herself has imprinted on the minds of all the idea of God.
+ - Ill gotten gains will be ill spent.
+ - Taxes are the sinews of the state.
+ - Your enemies can kill you, but only your friends can hurt you.
+ - Virtue is its own reward.
+ - The beginnings of all things are small.
+ - There are two ways to resolve conflicts, through violence or through negotiation. Violence is for wild beasts, negotiation is for human beings.
+ - There is no grief which time does not lessen and soften.
+ - The foundation of justice is good faith.
+ - If we are forced, at every hour, to watch or listen to horrible events, this constant stream of ghastly impressions will deprive even the most delicate among us of all respect for humanity.
+ - Extreme justice is extreme injustice.
+ - The aim of justice is to give everyone his due.
+ - The devil finds work for idle hands to do. Better to reign in the hell than serve in heaven. We are in bondage to the law in order that we may be free.
+ - A thankful heart is the greatest virtue.
+ - Man must suffer to be wise.
+ - By doubting we come at truth.
+ - The searching-out and thorough investigation of truth ought to be the primary study of man.
+ - No one dances sober, unless he is insane.
+ - We are bound by the law, so that we may be free.
+ - God’s law is ‘right reason.’ When perfectly understood it is called ‘wisdom.’ When applied by government in regulating human relations it is called ’justice.
+ - Art is born of the observation and investigation of nature.
+ - Great is the power of habit. It teaches us to bear fatigue and to despise wounds and pain.
+ - Friends, though absent, are still present.
+ - Apollo, sacred guard of earth’s true core, Whence first came frenzied, wild prophetic word...
+ - Friendship makes prosperity more brilliant, and lightens adversity by dividing and sharing it.
+ - Hunger is the best sauce.
+ - To reduce man to the duties of his own city, and to disengage him from duties to the members of other cities, is to break the universal society of the human race.
+ - A good orator is pointed and impassioned.
+ - The multitude of fools is a protection to the wise.
+ - This is our special duty, that if anyone specially needs our help, we should give him such help to the utmost of our power.
+ - Let us drink for the replenishment of our strength, not for our sorrow.
+ - I cease not to advocate peace; even though unjust it is better than the most just war.
+ - Friendship was given by nature to be an assistant to virtue, not a companion in vice.
+ - The shifts of fortune test the reliability of friends.
+ - I prefer tongue-tied knowledge to ignorant loquacity.
+ - Time is the herald of truth.
+ - We are not born, we do not live for ourselves alone; our country, our friends, have a share in us.
+ - If nature does not ratify law, then all the virtues may lose their sway.
+ - It is the character of a brave and resolute man not to be ruffled by adversity and not to desert his post.
+ - Brevity is the best recommendation of speech, whether in a senator or an orator.
+ - Philosophy is the true mother of science.
+ - Advice is judged by results, not by intentions.
+ - There is in superstition a senseless fear of God.
+ - Rashness is the companion of youth, prudence of old age.
+ - Memory is the treasury and guardian of all things.
+ - A perverse temper and fretful disposition will make any state of life whatsoever unhappy.
+ - Learning is a kind of natural food for the mind.
+ - There is no moment without some duty.
+ - The function of wisdom is to discriminate between good and evil.
+ - The wise man never loses his temper.
+ - Not cohabitation but consensus constitutes marriage.
+ - That folly of old age which is called dotage is peculiar to silly old men, not to age itself.
+ - Everyone has his besetting sin.
+ - I never admire another’s fortune so much that I became dissatisfied with my own.
+ - The whole glory of virtue resides in activity.
+ - Our span of life is brief, but is long enough for us to live well and honestly.
+ - A man has no enemy worse than himself.
+ - Every generous action loves the public view; yet no theatre for virtue is equal to a consciousness of it.
+ - Not to know what has been transacted in former times is to be always a child. If no use is made of the labors of past ages, the world must remain always in the infancy of knowledge.
+ - Nothing is so swift as calumny, nothing is more easily propagated, nothing more readily credited, nothing more widely circulated.
+ - Probabilities direct the conduct of the wise man.
+ - Nothing is more unreliable than the populace, nothing more obscure than human intentions, nothing more deceptive than the whole electoral system.
+ - Thus nature has no love for solitude, and always leans, as it were, on some support; and the sweetest support is found in the most intimate friendship.
+ - The greatest pleasures are only narrowly separated from disgust.
+ - There are more men ennobled by study than by nature.
+ - There is no praise in being upright, where no one can, or tries to corrupt you.
+ - Democritus maintains that there can be no great poet without a spite of madness.
+ - A dissolute and intemperate youth hands down the body to old age in a worn-out state.
+ - There is no quality I would rather have, and be thought to have, than gratitude. For it is not only the greatest virtue, but is the mother of all the rest.
+ - Nothing is difficult in the eyes of a lover.
+ - Man was born for two things – thinking and acting.
+ - It might be pardonable to refuse to defend some men, but to defend them negligently is nothing short of criminal.
+ - Old age, especially an honored old age, has so great authority, that this is of more value than all the pleasures of youth.
+ - The absolute good is not a matter of opinion but of nature.
+ - Long life is denied us; therefore let us do something to show that we have lived.
+ - We are born poets. we become orators.
+ - For there is assuredly nothing dearer to a man than wisdom, and though age takes away all else, it undoubtedly brings us that.
+ - No one dies too soon who has finished the course of perfect virtue.
+ - There has never been a poet or orator who thought another better than himself.
+ - No man should so act as to make a gain out of the ignorance of another.
+ - This wine is forty years old. It certainly doesn’t show its age.
+ - For just as some women are said to be handsome though without adornment, so this subtle manner of speech, though lacking in artificial graces, delights us.
+ - For hardly any man dances when sober, unless he is insane. Nor does he dance while alone, nor at a respectable and moderate party. Dancing is the final phase of a wild party with fancy decorations and a multitude of delights.
+ - I prefer silent prudence to loquacious folly.
+ - I hear Socrates saying that the best seasoning for food is hunger; for drink, thirst.
+ - The First Bond of Society is Marriage.
+ - No tempest or conflagration, however great, is harder to quell than mob carried away by the novelty of power.
+ - There is nothing proper about what you are doing, soldier, but do try to kill me properly.
+ - Men resemble the gods in nothing so much as in doing good to their fellow creatures.
+ - An innocent man, if accused, can be acquitted; a guilty man, unless accused, cannot be condemned. It is, however, more advantageous to absolve an innocent than not to prosecute a guilty man.
+ - The enemy is within the gates; it is with our own luxury, our own folly, our own criminality that we have to contend.
+ - Justice is the crowning glory of the virtues.
+ - Advice in old age is foolish; for what can be more absurd than to increase our provisions for the road the nearer we approach to our journey’s end.
+ - As in the case of wines that improve with age, the oldest friendships ought to be the most delightful.
+ - There is nothing more shocking than to see assertion and approval dashing ahead of cognition and perception.
+ - When they remain silent, they cry out.
+ - I wonder that a soothsayer doesn’t laugh whenever he sees another soothsayer.
+ - Nothing is more noble, nothing more venerable than fidelity. Faithfulness and truth are the most sacred excellences and endowments of the human mind.
+ - In ancient times music was the foundation of all the sciences. Education was begun with music with the persuasion that nothing could be expected of a man who was ignorant of music.
+ - There is no place more delightful than home.
+ - All action is of the mind and the mirror of the mind is the face, its index the eyes.
+ - All things tend to corrupt perverted minds.
+ - Armed forces abroad are of little value unless there is prudent counsel at home.
+ - What is permissible is not always honorable.
+ - In a disturbed mind, as in a body in the same state, health can not exist.
+ - Laughing, laughing, laughing, laughing! It is the jester! A voice from the Void, to cheer poor Cicero! I accept your gift, dearest Night Mother. Thank you for my laughter. Thank you for my friend.
+ - We are not born for ourselves alone.
+ - Ability without honor is useless.
+ - When you have no basis for an argument, abuse the plaintiff.
+ - Let us not go over the old ground but rather prepare for what is to come.
+ - Lay down this rule of friendship: neither ask nor consent to do what is wrong. The plea, ‘for friendship’s sake,’ is a discreditable one, and should not be admitted for a moment. We should ask from friends and do for friends only what is good.
+ - The administration of government, like a guardianship ought to be directed to the good of those who confer, not of those who receive the trust.
+ - True glory takes root, and even spreads; all false pretences, like flowers, fall to the ground; nor can any counterfeit last long.
+ - When a government becomes powerful it is destructive, extravagant and violent; it is an usurer which takes bread from innocent mouths and deprives honorable men of their substance, for votes with which to perpetuate itself.
+ - Reason should direct, and appetite obey.
+ - There is no castle so strong that it cannot be overthrown by money.
+ - True nobility is exempt from fear.
+ - To study philosophy is nothing but to prepare one’s self to die.
+ - What is more agreeable than one’s home?
+ - Yield, ye arms, to the toga; to civic praise, ye laurels.
+ - We are motivated by a keen desire for praise, and the better a man is the more he is inspired by glory. The very philosophers themselves, even in those books which they write in contempt of glory, inscribe their names.
+ - For every man’s nature is concealed with many folds of disguise, and covered as it were with various veils. His brows, his eyes, and very often his countenance, are deceitful, and his speech is most commonly a lie.
+ - Let war yield to peace, laurels to paeans.
+ - Law is the highest reason implanted in Nature, which commands what ought to be done and forbids the opposite.
+ - The budget should be balanced, the treasury refilled, public debt reduced, the arrogance of officialdom tempered and controlled, and the assistance to foreign lands curtailed, lest Rome become bankrupt.
+ - The best interpreter of the law is custom.
+ - A man would have no pleasures in discovering all the beauties of the universe, even in heaven itself, unless he had a partner to whom he might communicate his joys.
+ - Just as the soul fills the body, so God fills the world. Just as the soul bears the body, so God endures the world. Just as the soul sees but is not seen, so God sees but is not seen. Just as the soul feeds the body, so God gives food to the world.
+ - Were floods of tears to be unloosed In tribute to my grief, The doves of Noah ne’er had roost Nor found an olive-leaf.
+ - Nothing is so unbelievable that oratory cannot make it acceptable.
+ - The precepts of the law are these: to live honestly, to injure no one, and to give everyone else his due.
+ - A mind without instruction can no more bear fruit than can a field, however fertile, without cultivation.
+ - To be ignorant of the past is to be forever a child.
+ - There is no place more delightful than one’s own fireside. Nullus est locus domestica sede jucundior.
+ - It is not enough to acquire wisdom, it is necessary to employ it.
+ - Justice is the set and constant purpose which gives every man his due.
+ - Books are the food of youth, the delight of old age; the ornament of prosperity, the refuge and comfort of adversity; a delight at home, and no hindrance abroad; companions by night, in traveling, in the country.
+ - Sweet is the memory of past troubles.
+ - No deceit is so veiled as that which lies concealed behind the semblance of courtesy.
+ - It is not by muscle, speed, or physical dexterity that great things are achieved, but by reflection, force of character, and judgment.
+ - What an ugly beast the ape, and how like us.
+ - Not to know what has been transacted in former times is to continue always a child.
+ - Peace is liberty in tranquillity.
+ - Virtue is a habit of the mind, consistent with nature and moderation and reason.
+ - The well-known old remark of Cato, who used to wonder how two soothsayers could look one another in the face without laughing.
+ - All pain is either severe or slight, if slight, it is easily endured; if severe, it will without doubt be brief.
+ - In men of the highest character and noblest genius there is to be found an insatiable desire for honor, command, power, and glory.
+ - Old age is by nature rather talkative.
+ - Nobody can give you wiser advice than yourself.
+ - Please go on, make your threats. I don’t like to submit to mere implication.
+ - Religion is the pious worship of God.
+ - By Hercules! I prefer to err with Plato, whom I know how much you value, than to be right in the company of such men.
+ - The gardener plants trees, not one berry of which he will ever see: and shall not a public man plant laws, institutions, government, in short, under the same conditions?
+ - Inhumanity is harmful in every age. – Inhumanitas omni aetate molesta est.
+ - In anger nothing right nor judicious can be done.
+ - The consciousness of good intention is the greatest solace of misfortunes.
+ - Calamus fortior gladio.
+ - In the conduct of almost every affair slowness and procrastination are hateful.
+ - No man can be brave who thinks pain the greatest evil; nor temperate, who considers pleasure the highest good.
+ - The soul in sleep gives proof of its divine nature.
+ - In a disordered mind, as in a disordered body, soundness of health is impossible.
+ - Certain signs precede certain events.
+ - Justice consists in doing no injury to men; decency in giving them no offense.
+ - Friendship is nothing else than an accord in all things, human and divine, conjoined with mutual goodwill and affection.
+ - Oh, how great is the power of truth! which of its own power can easily defend itself against all the ingenuity and cunning and wisdom of men, and against the treacherous plots of all the world.
+ - Too much liberty leads both men and nations to slavery.
+ - Though silence is not necessarily an admission, it is not a denial, either.
+ - As the grace of man is in the mind, so the beauty of the mind is eloquence.
+ - Freedom is a man’s natural power of doing what he pleases, so far as he is not prevented by force or law.
+ - Our character is not so much the product of race and heredity as of those circumstances by which nature forms our habits, by which we are nurtured and live.
+ - Men decide far more problems by hate, love, lust, rage, sorrow, joy, hope, fear, illusion or some other inward emotion, than by reality, authority, any legal standard, judicial precedent, or statute.
+ - Neither can embellishments of language be found without arrangement and expression of thoughts, nor can thoughts be made to shine without the light of language.
+ - A war is never undertaken by the ideal State, except in defense of its honor or its safety.
+ - There are no true friends in politics.
+ - Wisdom often exists under a shabby coat.
+ - A wise man does nothing by constraint.
+ - If you pursue good with labor, the labor passes away but the good remains; if you pursue evil with pleasure, the pleasure passes away and the evil remains.
+ - It is foolish to tear one’s hair in grief, as though sorrow would be made less by baldness.
+ - In prosperity let us most carefully avoid pride, disdain, and arrogance.
+ - To know the laws is not to memorize their letter but to grasp their full force and meaning.
+ - Persistence in a single view has never been regarded as a merit in political leaders.
+ - If the truth were self-evident, eloquence would be unnecessary.
+ - The Intellect engages us in the pursuit of Truth. The Passions impel us to Action.
+ - I prefer the most unfair peace to the most righteous war.
+ - No obligation to do the impossible is binding.
+ - Summer lasts not for ever; seasons succeed each other.
+ - The cultivation of the mind is a kind of food supplied for the soul of man.
+ - A letter does not blush.
+ - The forehead is the gate of the mind.
+ - If a man could mount to Heaven and survey the mighty universe, his admiration of its beauties would be much diminished unless he had someone to share in his pleasure.
+ - The celestial order and the beauty of the universe compel me to admit that there is some excellent and eternal Being, who deserves the respect and homage of men.
+ - Nor do I regret that I have lived, since I have so lived that I think I was not born in vain, and I quit life as if it were an inn, not a home.
+ - Any man may make a mistake; none but a fool will stick to it. Second thoughts are best as the proverb says.
+ - Never can custom conquer nature, for she is ever unconquered.
+ - Exercise and temperance can preserve something of our early strength even in old age.
+ - A friend is, as it were, a second self.
+ - Justice extorts no reward, no kind of price; she is sought, therefore, for her own sake.
+ - What is dishonestly got vanishes in profligacy.
+ - In the very books in which philosophers bid us scorn fame, they inscribe their names.
+ - The great theatre for virtue is conscience.
+ - I do not understand what the man who is happy wants in order to be happier.
+ - I prefer the wisdom of the uneducated to the folly of the loquacious.
+ - They are, all of them, born with raging fanaticism in their hearts, just as the Bretons and the Germans are born with blond hair. I would not be in the least bit surprised if these people would not some day become deadly to the human race.
+ - If wisdom be attainable, let us not only win but enjoy it.
+ - A s laws multiply, injustice increases.
+ - The greatest incitement to guilt is the hope of sinning with impunity.
+ - For there is but one essential justice which cements society, and one law which establishes this justice. This law is right reason, which is the true rule of all commandments and prohibitions. Whoever neglects this law, whether written or unwritten, is necessarily unjust and wicked.
+ - Nature abhors annihilation.
+ - It is besides necessary that whoever is brave should be a man of great soul.
+ - You might as well take the sun out of the sky as friendship from life: for the immortal gods have given us nothing better or more delightful.
+ - Leisure consists in all those virtuous activities by which a man grows morally, intellectually, and spiritually. It is that which makes a life worth living.
+ - The harvest of old age is the recollection and abundance of blessing previously secured.
+ - Dogs wait for us faithfully.
+ - In all matters, before beginning, a diligent preparation should be made.
+ - There is pleasure in calm remembrance of a past sorrow.
+ - The world has not yet learned the riches of frugality.
+ - The eyes like sentinel occupy the highest place in the body.
+ - The wise man knows nothing if he cannot benefit from his wisdom. Wisdom is not only to be acquired, but also to be utilized.
+ - The spirit is the true self, not that physical figure which can be pointed out by your finger.
+ - As thou sowest, so shalt thou reap.
+ - It is the nature of every person to error, but only the fool perseveres in error.
+ - Most happy is he who is entirely self-reliant, and who centers all his requirements in himself alone.
+ - Nothing dries sooner than a tear.
+ - Plato divinely calls pleasure the bait of evil, inasmuch as men are caught by it as fish by a hook.
+ - Politeness and an affable address are our best introduction.
+ - No power is strong enough to be lasting if it labors under the weight of fear.
+ - In so far as the mind is stronger than the body, so are the ills contracted by the mind more severe than those contracted by the body.
+ - Let us remember that justice must be observed even to the lowest.
+ - Friends are proved by adversity.
+ - It is certain that memory contains not only philosophy, but all the arts and all that appertain to the use of life.
+ - There were poets before Homer.
+ - How great an evil do you see that may have been announced by you against the Republic? – Videtis quantum scelus contra rem publicam vobis nuntiatum sit?
+ - A bachelor’s bed is the most pleasant.
+ - Never go to excess, but let moderation be your guide.
+ - Orators are most vehement when their cause is weak.
+ - In doubtful cases the more liberal interpretation must always be preferred.
+ - He only employs his passion who can make no use of his reason.
+ - We should measure affection, not like youngsters by the ardor of its passion, but by its strength and constancy.
+ - The false is nothing but an imitation of the true.
+ - Each part of life has its own pleasures. Each has its own abundant harvest, to be garnered in season. We may grow old in body, but we need never grow old in mind and spirit. No one is as old as to think he or she cannot live one more year.
+ - The rule of friendship means there should be mutual sympathy between them, each supplying what the other lacks and trying to benefit the other, always using friendly and sincere words.
+ - Death darkens his eyes, and unplumes his wings, Yet the sweetest song is the last he sings: Live so, my Love, that when death shall come, Swan-like and sweet it may waft thee home.
+ - An acute first-class brain is the finest asset anyone can have- and, if we want to be happy, it is an asset we must exploit to the uttermost.
+ - Promises are not to be kept, if the keeping of them would prove harmful to those to whom you have made them.
+ - As I approve of a youth that has something of the old man in him, so I am no less pleased with an old man that has something of the youth. He that follows this rule may be old in body, but can never be so in mind.
+ - Fortune is not only blind herself, but blinds the people she has embraced.
+ - A community is like the ones who govern it.
+ - Physicians, when the cause of disease is discovered, consider that the cure is discovered.
+ - If we are not ashamed to think it, we should not be ashamed to say it.
+ - A life of peace, purity and refinement leads to a calm and untroubled old age.
+ - The dutifulness of children is the foundation of all virtues.
+ - A liar is not believed even though he tell the truth.
+ - Law stands mute in the midst of arms.
+ - A man’s own manner and character is what most becomes him.
+ - Patria est communis omnium parens. Our country is the common parent of all.
+ - Nothing so cements and holds together all the parts of a society as faith or credit, which can never be kept up unless men are under some force or necessity of honestly paying what they owe to one another.
+ - Of all nature’s gifts to the human race, what is sweeter to a man than his children?
+ - Liberty is rendered even more precious by the recollection of servitude.
+ - Anger should never appear in awarding punishment.
+ - There is no duty more indispensible than that of returning a kindness.
+ - This excessive licence, which the anarchists think is the only true freedom, provides the stock, as it were, from which a tyrant grows.
+ - A person who is wise does nothing against their will, nothing with sighing or under coercion.
+ - Let each man have according to his deserts.
+ - For even if the allotted space of life be short, it is long enough in which to live honorably and well.
+ - Who doesn’t know that the first law of history is not to dare to say anything false, and the second is not to refrain from saying anything true?
+ - The nobler a man, the harder it is for him to suspect inferiority in others.
+ - Those wars are unjust which are undertaken without provocation. For only a war waged for revenge or defense can be just.
+ - Let every man practise the trade which he best understands.
+ - That which is not forbidden, is not on that account permitted.
+ - It is our duty, my young friends, to resist old age.
+ - Socrates was the first to call philosophy down from the heavens and to place it in cities, and even to introduce it into homes and compel it to inquire about life and standards and goods and evils.
+ - There never was a great soul that did not have some divine inspiration.
+ - For one day spent well, and agreeably to your precepts, is preferable to an eternity of error.
+ - Nothing is more disgraceful than insincerity.
+ - The name of peace is sweet and the thing itself good, but between peace and slavery there is the greatest difference.
+ - An intemperate, disorderly youth will bring to old age, a feeble and worn-out body.
+ - Orators are most vehement when they have the weakest cause, as men get on horseback when they cannot walk.
+ - Should this my firm persuasion of the soul’s immortality prove to be a mere delusion, it is at least a pleasing delusion, and I will cherish it to my last breath.
+ - The chief recommendation is modesty, then dutiful conduct toward parents, then affection for kindred.
+ - The office of liberality consisteth in giving with judgment.
+ - To be endowed with strength by nature, to be actuated by the powers of the mind, and to have a certain spirit almost divine infused into you.
+ - Do nothing twice over.
+ - To give and receive advice – the former with freedom, and yet without bitterness, the latter with patience and without irritation – is peculiarly appropriate to geniune friendship.
+ - We can more easily avenge an injury than requite a kindness; on this account, because there is less difficulty in getting the better of the wicked than in making one’s self equal with the good.
+ - He does not seem to me to be a free man who does not sometimes do nothing.
+ - Sound conviction should influence us rather than public opinion.
+ - There are some duties we owe even to those who have wronged us. There is, after all, a limit to retribution and punishment.
+ - The long time to come when I shall not exist has more effect on me than this short present time, which nevertheless seems endless.
+ - We make allowance for necessity.
+ - Great is our admiration of the orator who speaks with fluency and discretion.
+ - Hours and days and months and years go by; the past returns no more, and what is to be we cannot know; but whatever the time gives us in which we live, we should therefore be content.
+ - Through ignorance of what is good and what is bad, the life of men is greatly perplexed.
+ - Be sure that it is not you that is mortal, but only your body. For that man whom your outward form reveals is not yourself; the spirit is the true self, not that physical figure which and be pointed out by your finger.
+ - People do not understand what a great revenue economy is.
+ - It is difficult to remember all, and ungracious to omit any.
+ - It is of no avail to know what is about to happen; for it is a sad thing to be grieved when grief can do no good.
+ - He removes the greatest ornament of friendship who takes away from it respect.
+ - Friendship is not to be sought for its wages, but because its revenue consists entirely in the love which it implies.
+ - The popular breeze – Aura popularis.
+ - I know that it is likely that as worship of the gods declines, faith between men and all human society will disappear, as well as that most excellent of all virtues, which is justice.
+ - The hope of impunity is the greatest inducement to do wrong.
+ - The existence of virtue depends entirely upon its use.
+ - When you are aspiring to the highest place, it is honorable to reach the second or even the third rank.
+ - It is virtue, virtue, which both creates and preserves friendship. On it depends harmony of interest, permanence, fidelity.
+ - Because all the sick do not recover, therefore medicine is not an art.
+ - Nothing is so difficult to believe that oratory cannot make it acceptable, nothing so rough and uncultured as not to gain brilliance and refinement from eloquence.
+ - It is our own evil thoughts which madden us.
+ - The strictest law often causes the most serious wrong.
+ - To wonder at nothing when it happens, to consider nothing impossible before it has come to pass.
+ - Strain every nerve to gain your point.
+ - That man is guilty of impertinence who considers not the circumstances of time, or engrosses the conversation, or makes himself the subject of his discourse, or pays no regard to the company he is in.
+ - Laws should be interpreted in a liberal sense so that their intention may be preserved.
+ - No liberal man would impute a charge of unsteadiness to another for having changed his opinion.
+ - In friendship we find nothing false or insincere; everything is straight forward, and springs from the heart.
+ - A good man will not lie, although it be for his profit.
+ - Friendship is infinitely better than kindness.
+ - It is not easy to distinguish between true and false affection, unless there occur one of those crises in which, as gold is tried by fire, so a faithful friendship may be tested by danger.
+ - Nature herself makes the wise man rich.
+ - Let arms give place to the robe, and the laurel of the warriors yield to the tongue of the orator.
+ - Man’s life is ruled by fortune, not by wisdom.
+ - It is not only arrogant, but it is profligate, for a man to disregard the world’s opinion of himself.
+ - Without your knowledge, the eyes and ears of many will see and watch you, as they have done already.
+ - In the master there is a servant, in the servant a master.
+ - But in every matter the consensus of opinion among all nations is to be regarded as the law of nature.
+ - Socrates, indeed, when he was asked of what country he called himself, said, “Of the world”; for he considered himself an inhabitant and a citizen of the whole world.
+ - Wisdom is the only thing which can relieve us from the sway of the passions and the fear of danger, and which can teach us to bear the injuries of fortune itself with moderation, and which shows us all the ways which lead to tranquility and peace.
+ - Care must be taken that the punishment does not exceed the offence.
+ - There is nothing so absurd that some philosopher has not already said it.
+ - Such are a well regulated militia, composed of the freeholders, citizen and husbandman, who take up arms to preserve their property, as individuals, and their rights as freemen.
+ - There are gems of thought that are ageless and eternal.
+ - Longing not so much to change things as to overturn them.
+ - I hate all children of precocious talent.
+ - Morals today are corrupted by our worship of riches.
+ - Take from a man his reputation for probity, and the more shrewd and clever he is, the more hated and mistrusted he becomes.
+ - The mansion should not be graced by its master, the master should grace the mansion.
+ - We are obliged to respect, defend and maintain the common bonds of union and fellowship that exist among all members of the human race.
+ - Religion is not removed by removing superstition.
+ - Though laughter is allowable, a horse-laugh is abominable.
+ - Frivolity is inborn, conceit acquired by education.
+ - In extraordinary events ignorance of their causes produces astonishment.
+ - Would that I could discover truth as easily as I can uncover falsehood.
+ - What is morally wrong can never be advantageous, even when it enables you to make some gain that you believe to be to your advantage. The mere act of believing that some wrongful course of action constitutes an advantage is pernicious.
+ - For to me every sort of peace with the citizens seemed to be of more service than civil war.
+ - In our amusements a certain limit is to be placed that we may not devote ourselves to a life of pleasure and thence fall into immorality.
+ - What times! What manners!
+ - What we call pleasure, and rightly so is the absence of all pain.
+ - Courage is virtue which champions the cause of right.
+ - Let the punishment be proportionate to the offense.
+ - Nothing is more becoming in a great man than courtesy and forbearance.
+ - They who say that we should love our fellow-citizens but not foreigners, destroy the universal brotherhood of mankind, with which benevolence and justice would perish forever.
+ - The most desirable thing in life after health and modest means is leisure with dignity.
+ - It is the stain and disgrace of the age to envy virtue, and to be anxious to crush the very flower of dignity.
+ - While all other things are uncertain, evanescent, and ephemeral, virtue alone is fixed with deep roots; it can neither be overthrown by any violence or moved from its place.
+ - Let art, then, imitate nature, find what she desires, and follow as she directs. For in invention nature is never last, education never first; rather the beginnings of things arise from natural talent, and ends are reached by discipline.
+ - The diligent farmer plants trees, of which he himself will never see the fruit.
+ - It is a shameful thing to be weary of inquiry when what we search for is excellent.
+ - When time and need require, we should resist with all our might, and prefer death to slavery and disgrace.
+ - Every animal loves itself.
+ - I like myself, but I won’t say I’m as handsome as the bull that kidnapped Europa.
+ - I never heard of an old man forgetting where he had buried his money! Old people remember what interests them: the dates fixed for their lawsuits, and the names of their debtors and creditors.
+ - A mental stain can neither be blotted out by the passage of time nor washed away by any waters.
+ - All the arts, which have a tendency to raise man in the scale of being, have a certain common band of union, and are connected, if I may be allowed to say so, by blood-relationship with one another.
+ - It is the soul itself which sees and hears, and not those parts which are, as it were, but windows to the soul.
+ - For a courageous man cannot die dishonorably, a man who has attained the consulship cannot die before his time, a philosopher cannot die wretchedly.
+ - If our lives are endangered by plots or violence or armed robbers or enemies, any and every method of protecting ourselves is morally right.
+ - What sweetness is left in life, if you take away friendship? Robbing life of friendship is like robbing the world of the sun. A true friend is more to be esteemed than kinsfolk.
+ - In everything truth surpasses the imitation and copy.
+ - Kindness is produced by kindness.
+ - It has seemed to be more necessary to have regard to the weight of words rather than to their number.
+ - Secret enmities are more to be feared than open ones.
+ - Let us not listen to those who think we ought to be angry with our enemies, and who believe this to be great and manly. Nothing is so praiseworthy, nothing so clearly shows a great and noble soul, as clemency and readiness to forgive.
+ - To freemen, threats are impotent.
+ - All I can do is to urge on you to regard friendship as the greatest thing in the world; for there is nothing which so fits in with our nature, or is so exactly what we want in prosperity or adversity.
+ - Nothing troubles you for which you do not yearn.
+ - They are eloquent who can speak low things acutely, and of great things with dignity, and of moderate things with temper.
+ - A tear dries quickly when it is shed for troubles of others.
+ - To some extent I liken slavery to death.
+ - The proof of a well-trained mind is that it rejoices in which is good and grieves at the opposite.
+
+500 quotes

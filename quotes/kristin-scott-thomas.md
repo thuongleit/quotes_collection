@@ -1,0 +1,90 @@
+ - I’m a late developer.
+ - There’s something incredibly sexy about sand and sweat and dunes photographed like women’s backs.
+ - In fact, in many ways my mother was quite hippy-dippy, serving macrobiotic food and reading ‘Zen and the Art of Motorcycle Maintenance.’
+ - I’m not at all fed up with British films, but I am fed up with playing upper-class people.
+ - I’m a bit of a Doubting Thomas – always worrying about things.
+ - I never go straight to the point if I can go the most difficult way. Why be simple when you can be complicated?
+ - After a long time with someone, you realise you’ve been thinking for two.
+ - Life is too short to live on low-fat everything.
+ - I was terrible at school.
+ - I just get so fed up with seeing the same things written about me. If I see the words ‘ice queen’ attached to me, I feel like banging my head against the wall. There’s this perception that I can only be in a film if I have a glass of champagne in my hand and a stately home in the background.
+ - Seeing The English Patient is wonderfully draining, but imagine acting in it for six months.
+ - People are always saying, English, English, English rose, and I just feel so completely different.
+ - I’m very good at forgetting people.
+ - If you’re feeling insecure and you need to feel special, the best place to go is somewhere foreign where people treat you as special because you’re different.
+ - We all come in different shapes and sizes, and that’s fine by me.
+ - Men don’t fall in love with me – only young ones.
+ - As an adult, it’s a huge shock to be orphaned; as a child it’s just hideous, ghastly.
+ - It doesn’t make you feel very good being mean and fierce; it is much nicer playing people who are kind and sweet.
+ - My body is a baby machine.
+ - I can’t move back to England. My home is in France now. I’d love to but I can’t. My family’s all there now.
+ - I think people do work too much. I’ve never been able to understand the whole ‘make hay while the sun shines’ thing. Either I want to work or I don’t want to work.
+ - If you make a film about a pig farmer in Wales and you are a huge hit as the pig farmer’s wife, the next thing is you’ll be asked to do a film about a sheep farmer in Scotland.
+ - My children are lovely. They’re perfect.
+ - French is a foreign language, but I’ve been speaking it since I was 18 so it’s second nature to me.
+ - I am so bored with seeing stories about a mature man of 65 falling in love with a beautiful girl of 32.
+ - I have never met a woman who works who doesn’t feel guilty. I mean we all deny it like crazy but deep down there is always that voice saying you should be at home.
+ - I do not want to pour out my heart to the world. I am cautious of what I say and to whom.
+ - People accuse me of being Methody, but I’m not at all. The one thing I don’t want people to see is me. I don’t want them to be able to recognize my faults and failures and qualities, and I won’t use those things to spark off emotions or to illustrate.
+ - I know people think that I always play these characters who are in control and can chop someone’s head off with a look.
+ - As actors, we’re always asked to portray and react to these extreme circumstances, otherwise it’s not interesting. They are agonizing things to think about.
+ - Having a leading man who is actually prettier than you are is quite upsetting.
+ - Successful films are very dangerous things.
+ - I think the sheer number of pop stars has kind of drowned out, somewhat, our interest. We’re just submerged.
+ - With the theatre, your whole day is geared towards the evening’s show, and that’s the job. People usually go to work about 9 and come home around 5, or maybe 7.
+ - At school, I always wanted to belong to a gang, and no one would have me. So I’d have make my own gang, but with everybody else’s leftovers.
+ - Baths are my favorite thing. I can have two, three a day.
+ - We older women in Europe are lucky not to be shoved away in a drawer.
+ - I love shooting French films because I don’t have to stick with being sophisticated or stuck-up.
+ - I’ve realised that I am who I am and that is it. Like it or lump it. I’m not around to please anyone any more, and it’s a huge relief.
+ - I know I can be bolshy and really unpleasant, and it always happens if I lose confidence in the people I’m working with. If I’ve got no confidence in what I’m doing and they don’t provide me with some assurance that we’re doing the right thing then I bully people. I’m a horrible bully.
+ - I find it difficult to explain, but I’m quite ashamed of being an actress.
+ - I’d love to do some comedy. Particularly French comedy, which I know sounds like a contradiction in terms.
+ - You have to think about whether that Mercedes-Benz you have is actually worth how much it costs to you.
+ - Making films can be absolutely fantastic, but it can also be incredibly dull. You spend the whole day sitting by yourself in your trailer and then you get called to deliver one sentence – then you’re told to come back and do it again at 5:30 the following morning.
+ - I was very lost as a teenager. Which is a horrible way to feel.
+ - I still absolutely love ‘The Sound of Music’ and anything with Julie Andrews in it.
+ - If you are a successful actor, which is what I am, then you tend to get labelled very quickly and easily.
+ - I do consider myself as being French, I suppose.
+ - I’m not one of those famous people flying round the world emoting over every catastrophe. I’m too feeble.
+ - Sometimes, I think I could have been a major movie star with the vast mansion and staff. I look at my Volvo and think it could be a limousine. I think of the roles I turned down. But then I wouldn’t have had any children.
+ - I mean, if you’re being directed very precisely by somebody who has admiration and who’s really smart, it’s great. If you’re being told what to do by a nincompoop – and luckily that hasn’t happened very often – it can be very frustrating.
+ - I do a film because I like the story and I want to give life to a character – I don’t necessarily have to agree with the director.
+ - Exoticism can give you an edge: it makes people assume you’re cleverer than you are and gives you the upper hand.
+ - I find it very difficult to be two different characters at the same time – actress and mother.
+ - I think I’m inspired mostly by other artists that aren’t actors, like writers or singers or artists, for being so brave.
+ - Now, playing a love interest can be really thrilling, if you’re working opposite thrilling people.
+ - Boarding school is a wicked thing.
+ - Movies make you immortal and ageless.
+ - French culture takes ageing very seriously. There’s much less ageism than in Anglo-Saxon countries.
+ - Having a career is a bit like navigating an Atlantic crossing – you have to make sure everything is keeping and is balanced.
+ - I never raise my voice!
+ - People will now go to films with subtitles, you know. They’re not afraid of them. It’s one of the upsides of text-messaging and e-mail. Maybe the only good thing to come of it.
+ - I tend to do things that I’m very frightened of. That’s what I do.
+ - You don’t choose a film because it’s made by a woman, you choose it because it’s good.
+ - As a younger actor you want to be approved of, you want to gain respect, be admired. All of those things. To say: ‘This is me playing this character. And aren’t I fantastic!’ I don’t feel that so much now.
+ - The problem with being a film actress or a movie star is that people see you so huge that somehow you’re visually massive or somehow you’re in some removed space, which is a television or wherever. It somehow takes your humanity.
+ - I try to make films that I find exciting. It makes me want to get out of bed at five in the morning, have my make-up done and play for the rest of the day.
+ - Often, the roles I’m offered in England are melancholic women who are filled with regret for the past, regret for their fading beauty.
+ - I’m not used to being asked what I want to talk about. That’s why I’m an actress. Get told what to do, stand on the mark, say your words, wear this, look this way, look that way.
+ - Films are just consumables.
+ - It’s very hard having a career in different continents and two different languages.
+ - I like the idea that I’m making things that people might think and argue about.
+ - The Cannes film festival is about big-budget films but also remarkable films made in different political regimes by film-makers with little resources.
+ - The parts I’ve been most successful in are the ones I’ve desperately, desperately wanted.
+ - Most films seem to be about a man and a women falling in love at some point and once you pass forty-five, it’s almost disgusting to fall in love.
+ - I think in most jobs, you get better as you get older. You gain experience, you gain knowledge.
+ - When I speak English, I’ve been told, I have this patrician way of speaking that’s very irritating. It’s the whole class thing.
+ - It takes a long time to appreciate one’s parents.
+ - I just don’t see very many films. Because I make them.
+ - I am sure that, had I grown up with both parents, had I grown up in a safe environment, had I grown up with a feeling of safety rather than danger, I would not be the way I am.
+ - I really like acting in French. It’s actually quite different for me, from acting in English. It’s fun acting in a foreign language. You’re liberated or freed from preconceptions.
+ - You know those drugstore kits that tell you when you’re pregnant? They should have one that tells you when you’re sane.
+ - Buy, buy, buy, buy! They want to grab you and trap you and turn you into little Elizabeth Hurleys.
+ - I’m very wary of trust, you see.
+ - I wouldn’t want you to see me all the time on the screen, because I get bored of it myself!
+ - I mean, my father was killed when I was six. And I only have tiny, tiny flashes of memory.
+ - I don’t want to have to be pretty. I don’t want to have to be adorable.
+ - Everyone loves to hate a spin doctor.
+
+88 quotes

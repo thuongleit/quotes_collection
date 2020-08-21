@@ -1,0 +1,173 @@
+ - Failure is the condiment that gives success its flavor.
+ - Good writing is rewriting.
+ - To me, the greatest pleasure of writing is not what it’s about, but the inner music that words make.
+ - More tears are shed over answered prayers than unanswered ones.
+ - You’re wonderful. Unique. I love you.
+ - Anyone who ever gave you confidence, you owe them a lot.
+ - But I’m not a saint yet. I’m an alcoholic. I’m a drug addict. I’m homosexual. I’m a genius.
+ - The brain may take advice, but not the heart, and love, having no geography, knows no boundaries: weight and sink it deep, no matter, it will rise and find the surface.
+ - That’s not writing, that’s typing.
+ - New York is a diamond iceberg floating in river water.
+ - Great fury, like great whisky, requires long fermentation.
+ - It may be normal, darling; but I’d rather be natural.
+ - She is pure Alice in Wonderland, and her appearance and demeanor are a nicely judged mix of the Red Queen and a Flamingo.
+ - Love is a chain of love as nature is a chain of life.
+ - Imagination, of course, can open any door – turn the key and let terror walk right in.
+ - A conversation is a dialogue, not a monologue. That’s why there are so few good conversations: due to scarcity, two intelligent talkers seldom meet.
+ - I don’t mean I’d mind being rich and famous. That’s very much on my schedule and someday I’ll try to get around to it.
+ - That’s the question: is truth an illusion, or is illusion truth, or are they essentially the same? Myself, I don’t care what anybody says about me as long as it isn’t true.
+ - It takes a lot of bad writing to get to a little good writing.
+ - Just remember: If one bird carried every grain of sand, grain by grain, across the ocean, by the time he got them all on the other side, that would only be the beginning of eternity.
+ - I don’t care what anybody says about me as long as it isn’t true.
+ - Life is a moderately good play with a badly written third act.
+ - Finishing a book is just like you took a child out in the back yard and shot it.
+ - I am always drawn back to places where I have lived, the houses and their neighborhoods.
+ - I’ll never get used to anything. Anybody that does they might as well be dead.
+ - I love New York, even though it isn’t mine, the way something has to be, a tree or a street or a house, something, anyway, that belongs to me because I belong to it.
+ - Life is difficult enough without Meryl Streep movies.
+ - You can love somebody without it being like that. You keep them a stranger, a stranger who’s a friend.
+ - The better the actor, the more stupid he is.
+ - I thought that Mr. Clutter was a very nice gentleman. I thought so right up to the moment that I cut his throat.
+ - The wind is us – it gathers and remembers all our voices, then sends them talking and telling through the leaves and the fields.
+ - I’ve got something inside of me, peasantlike and stubborn, and I’m in it till the end of the race.
+ - Oh, I adore to cook. It makes me feel so mindless in a worthwhile way.
+ - Home is where you feel at home. I’m still looking.
+ - You can’t blame a writer for what the characters say.
+ - Sicily is more beautiful than any woman.
+ - I always felt that nobody was going to understand me, going to understand what I felt about things. I guess that’s why I started writing. At least on paper I could put down what I thought.
+ - Hot weather opens the skull of a city, exposing its white brain, and its heart of nerves, which sizzle like the wires inside a lightbulb. And there exudes a sour extra-human smell that makes the very stone seem flesh-alive, webbed and pulsing.
+ - It’s better to look at the sky than live there.
+ - As long as you live, there’s always something waiting; and even if it’s bad, and you know it’s bad, what can you do? You can’t stop living.
+ - Still, when all is said, somewhere one must belong: even the soaring falcon returns to its master’s wrist.
+ - I don’t want to own anything until I find a place where me and things go together.
+ - A work of art is one of mystery, the one extreme magic; everything else is either arithmetic or biology.
+ - Maybe the older you grow and the less easy it is to put thought into action, maybe that’s why it gets all locked up in your head and becomes a burden.
+ - June, July, all through the warm months she hibernated like a winter animal who did not know spring had come and gone.
+ - Oh Jesus God we did belong to each other. He was mine.
+ - The only obligation any artist can have is to himself. His work means nothing, otherwise. It has no meaning.
+ - A man who doesn’t dream is like a man who doesn’t sweat. He stores up a lot of poison.
+ - Most secrets should never be told, but especially those that are more menacing to the listener than to the teller.
+ - Venice is like eating an entire box of chocolate liqueurs in one go.
+ - Dizzy with excitement is no mere phrase.
+ - If a man doesn’t like baseball, then he must like horses, and if he doesn’t like either of them, well, I’m in trouble anyway: he don’t like girls.
+ - Actually, I think friendship and love are exactly the same thing.
+ - Those fellows, they’re always crying over killers. Never a thought for the victims.
+ - The problem with living outside the law is that you no longer have its protection.
+ - I live in Brooklyn. By choice. Those ignorant of its allures are entitled to wonder why.
+ - Nancy clutter is always in a hurry, but she always has time. And that is the definition of a lady.
+ - I despise people who can’t control themselves.
+ - And in this moment, like a swift intake of breath, the rain came.
+ - Aprils have never meant much to me, autumns seem that season of beginning, spring.
+ - There’s got to be something wrong with us. To do what we did.
+ - Reading dreams. That’s what started her walking down the road. Every day she’d walk a little further: a mile, and come home. Two miles, and come home. One day she just kept on.
+ - I loved her enough to forget myself, my self pitying despairs, and be content that something she thought happy was going to happen.
+ - New York is the only real city-city.
+ - Of many magics, one is watching a beloved sleep: free of eyes and awareness, you for a sweet moment hold the heart of him; helpless, he is then all, and however irrationally, you have trusted him to be, man-pure, child-tender.
+ - Never demean yourself by talking back to a critic, never. Write those letters to the editor in your head, but don’t put them on paper.
+ - There are certain shades of limelight that can wreck a girl’s complexion.
+ - She was a triumph over ugliness, so often more beguiling than real beauty, if only because it contains paradox.
+ - The feeble-minded, the neurotic, the criminal, perhaps, also, the artist, have unpredictability and perverted innocence in common.
+ - The quietness of his tone italicized the malice of his reply.
+ - I couldn’t understand a sense of unease that multiplied until I could hear my heart beating.
+ - But it’s Sunday, Mr. Bell. Clocks are slow on Sundays.
+ - How do I look so young? Quite simple: a complete vegetable diet, 12 hours sleep a night, and lots and lots of make-up.
+ - There were hints of sunrise on the rim of the sky, yet it was still dark, and the traces of morning color were like goldfish swimming in ink.
+ - Good luck and believe me, dearest Doc – it’s better to look at the sky than live there. Such an empty place; so vague. Just a country where the thunder goes and things disappear.
+ - A beautiful day with the buoyancy of a bird.
+ - The brain may take advice, but not the heart.
+ - My major regret in life is that my childhood was unnecessarily lonely.
+ - When you’ve got nowhere to turn, turn on the gas.
+ - I’m very scared, Buster. Yes, at last. Because it could go on forever. Not knowing what’s yours until you’ve thrown it away.
+ - I told you: you can make yourself love anybody.
+ - I can see every monster as they come in.
+ - Have you never heard what the wise man say : all of the future exists in the past.
+ - Writing stopped being fun when I discovered the difference between good writing and bad and, even more terrifying, the difference between it and true art. And after that, the whip came down.
+ - Time. Time. What is time? Swiss manufacture it, French hoard it, Italians squander it, Americans say it is money. Hindus say it does not exist. Know what I say? I say time is a crook.
+ - Fame is only good for one thing – they will cash your check in a small town.
+ - And since gin to artifice bears the same relation as tears to mascara, her attractions at once dissembled.
+ - All literature is gossip.
+ - I don’t mean I’d mind being rich and famous. That’s very much on my schedule, and someday I’ll try to get around to it; but if it happens, I’d like to have my ego tagging along. I want to still be me when I wake up one fine morning and have breakfast at Tiffany’s.
+ - He loved her, he loved her, and until he’d loved her she had never minded being alone...
+ - All artists are two-headed calves.
+ - Are there any writers on the literary scene whom I consider truly great? Yes: Truman Capote.
+ - The way his plump hand clutched at her hip seemed somehow improper; not morally, aesthetically.
+ - The average personality re-shapes frequently, every few years even our bodies undergo a complete overhaul-desirable or not, it is a natural thing that we should change.
+ - Friendship is a pretty full-time occupation if you really are friendly with somebody. You can’t have too many friends because then you’re just not really friends.
+ - Rusty thinks I should smoke marijuana, and I did for a while, but it only makes me giggle.
+ - Most people who become suddenly famous overnight will find that they lose practically eighty percent of their friends. Your old friends just can’t stand it for some reason.
+ - It should take you about four seconds to walk from here to the door. I’ll give you two.
+ - It is very seldom that a person loves anyone they cannot in some way envy.
+ - I don’t use a typewriter, I write longhand, with a pencil. Essentially I’m a horizontal writer. I think better when I’m lying down.
+ - I think of myself as a stylist, and stylists can become notoriously obsessed with the placing of a comma, the weight of a semicolon.
+ - I thought of the future, and spoke of the past.
+ - Here is a hall without exit, a tunnel without end.
+ - You’re wrong. She is a phony. But on the other hand you’re right. She isn’t a phony because she’s a real phony. She believes all this crap she believes. You can’t talk her out of it.
+ - Talent, and genius as well, is like a grain of pearl sand shifting about in the creative mind. A valued tormentor.
+ - So the days, the last days, blow about in a memory, hazy autumnal, all alike as leaves: until a day unlike any other I’ve lived.
+ - No one will ever know what ‘In Cold Blood’ took out of me. It scraped me right down to the marrow of my bones. It nearly killed me. I think, in a way, it did kill me.
+ - It’s redundant to die in Los Angeles.
+ - It’s bad enough in life to do without something YOU want; but confound it, what gets my goat is not being able to give somebody something you want THEM to have.
+ - She had only one flaw. She was perfect, otherwise whe was perfect.
+ - I’d rather have cancer than a dishonest heart. Which isn’t being pious. Just practical. Cancer may cool you, but the other’s sure to.
+ - A boy has to peddle his book.
+ - Past certain ages or certain wisdoms it is very difficult to look with wonder; it is best done when one is a child; after that, and if you are lucky, you will find a bridge of childhood and walk across it.
+ - Brazil was beastly but Buenos Aires the best. Not Tiffany’s, but almost.
+ - I was eleven, then I was sixteen. Though no honors came my way, those were the lovely years.
+ - She took off her dark glasses and squinted at me. It was as though her eyes were shattered prisms, the dots of blue and gray and green like broken bits of sparkle.
+ - A disquieting loneliness came into my life, but it induced no hunger for friends of longer acquaintance: they seemed now like a salt-free, sugarless diet.
+ - Wrinkles and bones, white hair and diamonds: I can’t wait.
+ - The blues are because you’re getting fat or maybe it’s been raining too long. You’re sad, that’s all. But the mean reds are horrible. You’re afraid and you sweat like hell, but you don’t know what you’re afraid of. Except something bad is going to happen, only you don’t know what it is.
+ - I remember things the way they should have been.
+ - It’s a scientific fact that if you stay in California you lose one point of your IQ every year.
+ - I believe more in the scissors than I do in the pencil.
+ - Love should be allowed. I’m all for it. Now that I’ve got a pretty good idea what it is.
+ - Most contemporary novelists, especially the American and the French, are too subjective, mesmerized by private demons; theyre enraptured by their navels and confined by a view that ends with their own toes.
+ - She sounds the way bananas taste.
+ - Sometimes when I think how good my book can be, I can hardly breathe.
+ - It is no shame to have a dirty face- the shame comes when you keep it dirty.
+ - Are the dead as lonesome as the living?
+ - You don’t run out on people; you run out on yourself.
+ - I’ve tried to believe, but I don’t, I can’t, and there’s no use pretending.
+ - My yardstick is how somebody treats me.
+ - Of course, at their best, movies are anti-literature and, as a medium, belong not to writers, not to actors, but to directors.
+ - Work is the only device I know of.
+ - I’ve been working, working, working, and you know, sometimes you look back at your work and you see that it just isn’t any good.
+ - Leave it to me: I’m always top banana in the shock department.
+ - I dream of eagles and bring forth sparrows.
+ - If you sweep a house, and tend its fires and fill its stove, and there is love in you all the years you are doing this, then you and that house are married, that house is yours.
+ - Norman Mailer thinks William Burroughs is a genius, which I think is ludicrous beyond words. I don’t think William Burroughs has an ounce of talent.
+ - Ever since I was a child, folks have thought they had me pegged, because of the way I am, the way I talk. And they’re always wrong.
+ - The enemy was anyone who was someone he wanted to be or who had anything he wanted to have.
+ - When seriously explored, the short story seems to me the most difficult and disciplining form of prose writing extant. Whatever control and technique I may have I owe entirely to my training in this medium.
+ - I am a completely horizontal author. I can’t think unless I’m lying down, either in bed or stretched on a couch.
+ - It’s a very excruciating life facing that blank piece of paper every day and having to reach up somewhere into the clouds and bring something down out of them.
+ - Of course people couldn’t help but think I must be a bit of a dyke myself. And of course I am. Everyone is: a bit. So what? That never discouraged a man yet, in fact it seems to goad them on.
+ - Shoot, boy, the country’s just fulla folks what knows everything, and don’t understand nothing, just fullofem.
+ - Any work of art, provided it springs from a sincere motivation to further understanding between people, is an act of faith and therefore is an act of love.
+ - Writing has laws of perspective, of light and shade just as painting does, or music. If you are born knowing them, fine. If not, learn them. Then rearrange the rules to suit yourself.
+ - I like to talk on TV about those things that aren’t worth writing about.
+ - To wake up one morning and feel that I was a last a grown-up person, emptied of resentment, vengeful thoughts and other wasteful childish emotions. To find myself, in other words, an adult. Truman Capote.
+ - You can’t give your heart to a wild thing.
+ - You don’t understand. You’ve never hated anybody. No, I never have. We’re allotted just so much time on earth, and I wouldn’t want the Lord to see me wasting mine in any such manner.
+ - Lively, too. Talky as a jaybird. With something smart to say on every subject: better than the radio.
+ - In California everyone goes to a therapist, is a therapist, or is a therapist going to a therapist.
+ - I prefer to underwrite. Simple, clear as a country creek.
+ - Mick Jagger moves like a parody between a majorette girl and Fred Astaire.
+ - As Miss Golightly was saying, before she was so rudely interrupted...
+ - Talent is a valued tormentor.
+ - Well, I’m about as tall as a shotgun, and just as noisy.
+ - There is such an animal as a nonstylist, only they’re not writers – they’re typists.
+ - He’d always been willing to confess his faults, for, by admitting them, it was as if he made them no longer exist.
+ - The most dangerous thing in the world is to make a friend of an Englishman, because he’ll come sleep in your closet rather than spend 10 shillings on a hotel.
+ - Champagne does have one regular drawback: swilled as a regular thing a certain sourness settles in the tummy, and the result is permanent bad breath. Really incurable.
+ - We all, sometimes, leave each other there under the skies, and we never understand why.
+ - Before birth; yes, what time was it then? A time like now, and when they were dead, it would be still like now: these trees, that sky, this earth, those acorn seeds, sun and wind, all the same, while they, with dust-turned hearts, change only.
+ - I know the next best thing is often the very best.
+ - I will say only that all a writer has to work with is the material he has gathered as the result of his own endeavor and observations, and he cannot be denied the right to use it. Condemn, but not deny.
+ - I don’t think I’ve ever drunk champagne before breakfast before. With breakfast on several occasions, but never before before.
+ - I got this idea of doing a really serious big work-it would be precisely like a novel, with a single difference: Every word of it would be true from beginning to end.
+ - It is the want to know the end that makes us believe in God, or witchcraft, believe, at least, in something.
+ - You can do films for the fun of it, or the thrill of it, but certain films you can’t do unless there’s something driving you, something you have a passion for that will pull you through.
+ - I think the only person a writer has an obligation to is himself. If what I write doesn’t fulfill something in me, if I don’t honestly feel it’s the best I can do, then I’m miserable.
+
+171 quotes

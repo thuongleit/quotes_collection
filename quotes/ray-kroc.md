@@ -1,0 +1,63 @@
+ - Luck is the dividend of sweat. The more you sweat, the luckier you get.
+ - The quality of a leader is reflected in the standards they set for themselves.
+ - Look after the customer and the business will take care of itself.
+ - If you work just for money, you’ll never make it, but if you love what you’re doing and you always put the customer first, success will be yours.
+ - None of Us is as Good as All of Us.
+ - To be successful, you must be daring, be first and be different.
+ - As long as you’re green, you’re growing. As soon as you’re ripe, you start to rot.
+ - If my competitor were drowning I’d stick a hose in his mouth and turn on the water.
+ - If you’re not a risk taker, you should get the hell out of business.
+ - There are things money can’t buy and hard work can’t win. One of them is happiness.
+ - If you’ve got time to lean, you’ve got time to clean.
+ - If you believe in it, and you believe in it hard, it is impossible to fail.
+ - You’re only as good as the people you hire.
+ - There’s almost nothing you can’t accomplish if you set your mind to it.
+ - The two most important requirements for major success are: first, being in the right place at the right time, and second, doing something about it.
+ - I was an overnight success all right, but 30 years is a long, long night.
+ - The definition of salesmanship is the gentle art of letting the customer have it your way.
+ - In business for yourself, but not by yourself.
+ - Adversity can strengthen you if you have the will to grind it out.
+ - Happiness is not a tangible thing, it’s a byproduct – a byproduct of achievement.
+ - It’s easy to have principles when you’re rich. The important thing is to have principles when you’re poor.
+ - The more I help others to succeed, the more I succeed.
+ - There is absolutely nothing special about walking on a rope stretched along the ground. Where there is no risk, there can be no pride in a deed accomplished, and therefore no happiness.
+ - We have an obligation to give something back to the community that gives so much to us.
+ - Take calculated risks. Act boldly and thoughtfully. Be an agile company.
+ - This is rat eat rat, dog eat dog. I’ll kill ’em, and I’m going to kill ’em before they kill me. Speaking of competition in the fast-food industry.
+ - No one of us is more important than the rest of us.
+ - Perfection is very difficult to achieve, and perfection was what I wanted in McDonald’s. Everything else was secondary for me.
+ - I HAVE ALWAYS believed that each man makes his own happiness and is responsible for his own problems.
+ - Our aim was to insure repeat business based on the system’s reputation rather than on the quality of a single store or operator.
+ - It is no achievement to walk a tightrope laid flat on the floor.
+ - If I had a brick for every time I’ve repeated the phrase Quality, Service, Cleanliness and Value, I think I’d probably be able to bridge the Atlantic Ocean with them.
+ - Are you green and growing or ripe and rotting?
+ - You must perfect every fundamental of your business if you expect it to perform well.
+ - Luck is a dividend of sweat.
+ - The organization cannot trust the individual; the individual must trust the organization.
+ - McDonald’s is a people business, and that smile on that counter girl’s face when she takes your order is a vital part of our image.
+ - If you do it first class and you don’t compromise values, and you don’t compromise quality, and you don’t compromise service, and you don’t compromise cleanliness, then everybody else who is the competitor has got to play catch-up.
+ - I was 52 years old. I had diabetes and incipient arthritis. I had lost my gall bladder and most of my thyroid gland in earlier campaigns, but I was convinced the best was ahead of me.
+ - Visions of McDonald’s restaurants dotting crossroads all over the country paraded through my brain. I don’t believe in saturation. We’re thinking and talking worldwide.
+ - I never considered my dreams wasted energy; they were invariably linked to some form of action. When I dreamed about having a lemonade stand, for example, it wasn’t long before I set up a lemonade stand.
+ - I like to get people fired up, fill them with zeal for McDonald’s, and watch the results in their work.
+ - While formal schooling is an important advantage, it is not a guarantee of success nor is its absence a fatal handicap.
+ - When times are bad is when you want to build! Why wait for things to pick up so everything will cost more?
+ - I was never much of a reader when I was a boy. Books bored me. I liked action. But I spent a lot of time thinking about things. I’d imagine all kinds of situations and how I would handle them.
+ - All money means to me is a pride in accomplishment.
+ - The first dollar is the most you will get if you don’t love what you are doing.
+ - The McDonald brothers were simply not on my wavelength at all. I was obsessed with the idea of making McDonald’s the biggest and the best. They were content with what they had; they didn’t want to be bothered with more risks and more demands.
+ - I believe in God, family, and McDonald’s. And in the office, that order is reversed.
+ - There’s a lot more future in hamburgers than in baseball.
+ - We take the hamburger business more seriously than anyone else.
+ - I don’t believe in saturation. We’re thinking and talking worldwide.
+ - I suffer with you. I’ve never seen such stupid ballplaying in all my life!
+ - I put the hamburger on the assembly line.
+ - No self-respecting pitcher throws the same way to every batter and no self-respecting salesman makes the same pitch to every client.
+ - I didn’t know what we would be selling in the year 2000 but whatever it was we would be selling the most of it.
+ - In my experience, good executives don’t make mistakes.
+ - The french fry is my canvas.
+ - I wasn’t prepared for this big room with clattering typewriters and teletype printers. You could hardly hear yourself think.
+ - Customers tend to avoid a restaurant that’s going aswamp in its own sludge.
+ - We provide food that customers love, day after day after day. People just want more of it.
+
+61 quotes

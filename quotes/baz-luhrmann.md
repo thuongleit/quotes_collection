@@ -1,0 +1,53 @@
+ - Don’t waste your time on jealousy. Sometimes you’re ahead, sometimes you’re behind. The race is long, and in the end, it’s only with yourself.
+ - A life lived in fear is a life half lived.
+ - The race is long but in the end it is only with YOURSELF...
+ - Trust yourself that you can do it and get it.
+ - I wish I’d done everything on Earth with you.
+ - Why live life from dream to dream? And dread the day when dreaming ends.
+ - Australia, to the rest of the world, is just far away, and Australia in the Thirties was the faraway of the faraway.
+ - Advice is a form of nostalgia.
+ - Be careful whose advice you buy, but be patient with those who supply it.
+ - The food in Sydney is an Asian Pacific cuisine. It’s eclectic but above all it’s fresh, inventive and creative and that’s what I love about it.
+ - I grew up around jazz. I love jazz.
+ - I mean the future has become old fashioned.
+ - The ugly duckling is a misunderstood universal myth. It’s not about turning into a blonde Barbie doll or becoming what you dream of being; it’s about self-revelation, becoming who you are.
+ - Accept certain inalienable truths.
+ - Ultimately, you have to pursue your own path, not someone’s idea of the right path. You need to stay on your path.
+ - When you’re in theater or the circus or film – to me it’s all one – affairs happen. People fall in love.
+ - If Paris is a city of lights, Sydney is the city of fireworks.
+ - Western films don’t do very well in India.
+ - I feel a kinship with anyone who feels that their road, their life or who they really are is not good enough. I really relate to that.
+ - All good, clean stories are melodrama; it’s just the set of devices that determines how you show or hide it.
+ - Sydney in general is eclectic. You can be on that brilliant blue ocean walk in the morning and then within 20 minutes you can be in a completely vast suburban sprawl or an Italian or Asian suburb, and it’s that mix of people, it’s that melting pot of people that give it its vital personality.
+ - So, what is creative freedom? We can make what we want, how we want. The only constraint is: not for any budget.
+ - My father made sure that I had lots of levels of education – from ballroom-dancing to painting, commando training, theatre and magic.
+ - Fitzgerald coined the phrase the ‘Jazz Age,’ and now we’re living in the Hip-Hop Age.
+ - I think dance in any culture, in any form, is a true leveler.
+ - One of the great things about Sydney is that it has a great acceptance of everyone and everything. It’s an incredibly tolerant city, a city with a huge multicultural basis.
+ - I feel funny about owning art. I don’t really want to say: ‘Wow, come and see my Monet – it’s in a dark room at the bottom of my cellar.’
+ - Some of the greatest relationship films of all time, the two stars have hated each other, but mostly you see that chemistry.
+ - Everything I make starts very personally.
+ - You really think that on my films people tell me what to do? I don’t think so. On my films I decide.
+ - My wife is the fact-checker, I’m in the story telling business.
+ - Hurt him. Hurt him and save him.
+ - When I was growing up you would see big American films that really mythologised their landscape, that really showed the vastness and the drama of their country.
+ - I always have a point of view. It may not be right, but it’s my own.
+ - I really believe musical form will go on. There’s got to be a way of making musical form in cinema live again.
+ - I wouldn’t take a directing job if I didn’t think it was enriching life.
+ - There’s a whole system in Hollywood where the director never speaks to the studio, but I like to engage them in a discussion. I listen.
+ - In the ’80s, everyone wanted to be in opera. It was groovy.
+ - I feel like a member of any group comprised of outsiders.
+ - I do find walking is fundamental to my creative process.
+ - In terms of the mechanics of story, myth is an intriguing one because we didn’t make myth up; myth is an imprinture of the human condition.
+ - Opera was the cinema of its time, so to bring back that popular appeal, you just need to unleash its visceral immediacy and excitement. Most productions don’t manage that – but when an opera does do it, you never forget it.
+ - I don’t have fights with actors. In absolute honesty, I’ve never fought with any actor ever.
+ - Look, I had a passion for comic books growing up.
+ - One of my great all-time loves in cinema, and I’ve seen it three times, is Bondarchuk’s ‘War and Peace.’ Not a lot of people may have seen that film. It was made during the Soviet era.
+ - I’ve always loved the old epics that tell a simple emotional story, whether it’s the tumultuous relationship between Rhett and Scarlett or Lawrence of Arabia’s passion to get lost in a faraway place.
+ - At a very young age I was allowed to go into the cinema and watch adult films.
+ - I understand that anything actors are doing, good or bad, is motivated by fear.
+ - I never see things I make in the same way that the audience does. You can never do that.
+ - In the ’60s not everybody was wearing flowers in their hair and flowing caftans.
+ - The party is a true art form in Sydney and people practise it a great deal. You can really get quite lost in it.
+
+51 quotes

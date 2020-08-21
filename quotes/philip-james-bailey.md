@@ -1,0 +1,112 @@
+ - Art is a man’s nature; nature is God’s art.
+ - It matters not how long we live but how.
+ - The death-bed of a day, how beautiful!
+ - Prayer is the spirit speaking truth to Truth.
+ - Lowliness is the base of every virtue, And he who goes the lowest builds the safest.
+ - England! my country, great and free! Heart of the world, I leap to thee!
+ - What are ye orbs? The words of God? the Scriptures of the skies?
+ - He is a fool who is not for love and beauty. I speak unto the young, for I am of them and always shall be.
+ - There is no surer mark of the absence of the highest moral and intellectual qualities than a cold reception of excellence.
+ - Stars which stand as thick as dewdrops on the field of heaven.
+ - Death is another life.
+ - There is no disappointment we endure one-half so great as what we are to ourselves.
+ - Let each man think himself an act of God, His mind a thought, his life a breath of God; And let each try, by great thoughts and good deeds, To show the most of Heaven he hath in him.
+ - Where doubt there truth is – ’tis her shadow.
+ - The worst men often give the best advice. Our deeds are sometimes better than our thoughts.
+ - Dewdrops, Nature’s tears, which she Sheds in her own breast for the fair which die. The sun insists on gladness; but at night, When he is gone, poor Nature loves to weep.
+ - I have a heart with room for every joy .
+ - We should count time by heart-throbs. He most lives, Who thinks most, feels noblest, acts the best.
+ - Every believer is God’s miracle.
+ - See the sun! God’s crest upon His azure shield, the Heavens.
+ - The poet’s pen is the true divining rod Which trembles towards the inner founts of feeling; Bringing to light and use, else hid from all, The many sweet clear sources which we have of good and beauty in our own deep bosoms; And marks the variations of all mind As does the needle.
+ - The ground of all great thoughts is sadness.
+ - Kindness is wisdom. There is none in life But needs it and may learn.
+ - Where imperfection ceaseth, heaven begins.
+ - Death, thou art infinite; it is life is little.
+ - When night hath set her silver lamp high, Then is the time for study.
+ - None but the brave and beautiful can love.
+ - Who can mistake great thoughts? They seize upon the mind; arrest and search, And shake it; bow the tall soul as by wind; Rush over it like a river reeds.
+ - The beautiful are never desolate; But some one alway loves them – God or man. If man abandons, God himself takes them.
+ - All things that speak of heaven speak of peace.
+ - Hell is the wrath of God – His hate of sin.
+ - Doubt is the shadow of truth.
+ - Surely the stars are images of love.
+ - Life hath more awe than death.
+ - Love spends his all, and still hath store.
+ - Words are the motes of thought, and nothing more.
+ - Wan night, the shadow goer, came stepping in.
+ - It is fine to stand upon some lofty mountain thought, and feel the spirit stretch into a view.
+ - My favoured temple is an humble heart.
+ - The temples perish, but the God still lives.
+ - Mind and night will meet, though in silence, like forbidden lovers.
+ - Death is the universal salt of states; Blood is the base of all things – law and war.
+ - Imagination is the air of mind.
+ - As the master so the valet.
+ - We must not pluck death from the Maker’s hand.
+ - Hell is more bearable than nothingness.
+ - It is no great misfortune to oblige ungrateful people, but an unsupportable one to be forced to be under an obligation to a scoundrel.
+ - See the gold sunshine patching, And streaming and streaking across The gray-green oaks; and catching, By its soft brown beard, the moss.
+ - Leave the poor Some time for self-improvement. Let them not Be forced to grind the bones out of their arms For bread, but have some space to think and feel Like moral and immortal creatures.
+ - For ivy climbs the crumbling hall To decorate decay.
+ - None but God can fill the perfect whole.
+ - Blest is he whose heart is the home of the great dead and their great thoughts.
+ - Youth might be wise; we suffer less from pains than pleasures.
+ - Love is the art of hearts, and heart or arts.
+ - The first and worst of all frauds is to cheat one’s self.
+ - The truth of truths is love.
+ - One thought settles a life, an immortality.
+ - It is much less what we do than what we think, which fits us for the future.
+ - Could I love less, I should be happier now.
+ - Error is worse than ignorance.
+ - Blessings star forth forever; but a curse is like a cloud, it passes.
+ - Burn to be great, Pay not thy praise to lofty things alone. The plains are everlasting as the hills, The bard cannot have two pursuits; aught else Comes on the mind with the like shock as though Two worlds had gone to war, and met in air.
+ - Remember that thy heart will shed its pleasures as thine eye its tears, and both leave loathsome furrows.
+ - I cannot be content with less than heaven; Living, and comprehensive of all life. Thee, universal heaven, celestial all; Thee, sacrjd seat of intellective time; Field of the soul ’s best wisdom : home of truth, Star-throned.
+ - For as nightingales do upon glow-worms feed, So poets live upon the living light.
+ - When pride thaws, look for floods.
+ - Life is less than nothing without love.
+ - Evil and good are God’s right hand and left.
+ - Application is the price to be paid for mental acquisition. To have the harvest, we must sow the seed.
+ - Grief hallows hearts, even while it ages heads.
+ - Ah, nothing comes to us too soon but sorrow.
+ - The strongest passion which I have is honor.
+ - We love and live in power; it is the spirit’s end. Mind must subdue; to conquer is its life.
+ - The sun, centre and sire of light, The keystone of the world-built arch of heaven.
+ - The course of Nature seems a course of Death, And nothingness the whole substantial thing.
+ - I cannot be content with less than heaven.
+ - Necessity, like electricity, is in ourselves and all things, and no more without us than within us.
+ - He who has most of heart knows most of sorrow.
+ - Naught but God Can satisfy the soul.
+ - Any heart turned Godward feels more joyIn one short hour of prayer, than e’er was raisedBy all the feasts of earth since its foundation.
+ - Night brings out stars as sorrow shows us truths.
+ - Corruption springs from light: ’tis one same power Creates, preserves, destroys; matter whereon It works, on e’er self-transmutative form, Common to now the living, now the dead.
+ - All are of the race of God, and have in themselves good.
+ - Write to the mind and heart, and let the ear Glean after what it can.
+ - O, there is naught on earth worth being known but God and our own souls!
+ - A poet not in love is out at sea; He must have a lay-figure.
+ - Poets are all who love, who feel great truths, And tell them; and the truth of truths is love.
+ - How slight a chance may raise or sink a soul!
+ - The value of a thought cannot be told.
+ - The worst way to improve the world is to condemn it.
+ - The hero is the world-man, in whose heart One passion stands for all, the most indulged.
+ - Let us think less of men and more of God.
+ - Oh, could we lift the future’s sable shroud.
+ - He hath no power that hath not power to use.
+ - Sorrow is a stone that crushes a single bearer to the ground, while two are able to carry it with ease.
+ - The heart is its own Fate.
+ - Could we but think with the intensity we love with, we might do great things.
+ - And these are joys, like beauty, but skin deep.
+ - Evil then results from imperfection.
+ - The truth is perilous never to the true, Nor knowledge to the wise; and to the fool, And to the false, error and truth alike, Error is worse than ignorance.
+ - We live not to ourselves, our work is life.
+ - Nature means Necessity.
+ - Man is one; and he hath one great heart. It is thus we feel, with a gigantic throb athwart the sea, each other’s rights and wrongs; thus are we men.
+ - What men call accident is God’s own part.
+ - If all were rich, gold would be penniless.
+ - Music tells no truths.
+ - Obey thy genius, for a minister it is unto the throne of fate. Draw to thy soul, and centralize the rays which are around of the Divinity.
+ - Music lives within thy lips Like a nightingale in roses.
+ - Life is as serious a thing as death.
+ - Fulfill thy fate! Be-do-bear-and thank God.
+
+110 quotes

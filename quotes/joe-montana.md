@@ -1,0 +1,32 @@
+ - Winners, I am convinced, imagine their dreams first. They want it with all their heart and expect it to come true. There is, I believe, no other way to live.
+ - I don’t live in the past. I just live in the enjoyment of the game.
+ - When the game is over I just want to look at myself in the mirror, win or lose, and know I gave it everything I had.
+ - Don’t complain about not getting a chance and then be unprepared when you finally do.
+ - There’s no thrill like throwing a touchdown pass.
+ - Confidence is a very fragile thing.
+ - It is the greatest game that I’ve ever been around. It’ll continue to get better and be the greatest.
+ - Always be prepared to start.
+ - I have a fear of failure.
+ - I don’t live in the past.
+ - Chiropractic care works for me. I’ve been seeing a chiroprctor and he’s really been helping me out a lot. Chiropractic’s been a big part of my game.
+ - Some people have no respect whether you are with your family or not. That’s the hardest part. I was shopping in a grocery store in Seattle looking for stuff for Nicholas. This guy kept following me with his cell phone video on.
+ - My mother and father, Joe and Theresa Montana brought me along and taught me to never quit, and to strive to be the best.
+ - I mean the game is just, everybody talks about baseball but I really think football probably has a little bit more American feeling than anything.
+ - I don’t watch a lot of the games on Sunday. But I always kept an eye on the 49ers.
+ - Yeah, it’s nice to look up to people, but the more you try to be somebody else, the less you are of yourself.
+ - Any quarterback that understands what the offense is really about is going to succeed.
+ - I miss the game – I miss it a lot.
+ - I had six or seven documented concussions, so I had a lot more than that. But I feel fine.
+ - As a quarterback, there’s no better way to finish your year, in winning a Super Bowl, than with a touchdown pass. The chances of that happening, by the looks of most of the Super Bowls, is a very rare chance. Fortunately for me, I had an opportunity.
+ - I really took the lead on putting together the real estate fund-to-funds. Real estate was always interesting to me.
+ - Cause there’s only one reason for doing anything that you set out to do. if you don’t want to be the best, then there’s no reason going out and trying to accomplish anything.
+ - I started a business with two guys I played with, Ronnie Lott and Harris Barton: Champion Ventures, it’s a fund of funds. We have $400 million or so under management.
+ - My back only bugs me when I sleep wrong. I feel my knee more than anything, the left one. It’s arthritic.
+ - If I could still play, I would be trying. It’s been 15 years.
+ - As a quarterback, you have to love it. As much as you like to turn around and hand the ball off – the whole traditional football game – as a quarterback, you gotta love putting it in the air.
+ - You know, I’ve had blowups with my coach too. The same thing happens, it just wasn’t as evident back then because they didn’t have so many cameras and ways to see things happen.
+ - Chiropractic’s been a big part of my game!
+ - Installing a new offense is harder than a new defense. It just takes time.
+ - Some guys practice like all-Americans but they can’t play.
+
+30 quotes

@@ -1,0 +1,57 @@
+ - At once i knew i was not magnificent.
+ - I’m up in the woods, I’m down on my mind. I’m building a still, to slow down the time.
+ - I told myself I never wanted to rent again. Even though it’s a battle, I’m lucky cause I’m living in a cheaper part of the country. I just told myself I’m never going to do this again. I’m never gonna work, I’m never going to pay somebody rent again. I’m never going to sign another lease at least.
+ - No matter how much you care about a person, you have to be able to know that you can sit down at night and be happy with who you are without that person. That’s really hard when you’re a lonely emo kid.
+ - The whole point of being happy is not feeling like you have a job. I’m sure there are days where you’re at your job and you’re like, “Oh my god, this is hard.”
+ - I’ve stolen music before, I don’t know anyone who hasn’t. But if you’re gonna do that, I want you to be able to have an opportunity to know the real lyrics because I really hate it when people put up wrong lyrics online.
+ - It was all the things I wanted my music to be, but yet it wasn’t grand and it wasn’t obtuse – it wasn’t overshooting, it wasn’t undershooting, it was precise. The lyrics and the way that I was able to extract and excavate emotion within me.
+ - I don’t want the big flashing lights and red carpet, like, “Here comes another Bon Iver album!” I just want it to be my bedroom-y thing. But that’ll take a while to figure out.
+ - I’m trying to be like, “Hey, dude, you’re super happy, this is everything you’ve ever dreamed of – if you don’t have somebody to hold hands with right now, everything’s going to be OK, bro.”
+ - I think that’s all I want in life, just like peace and be able to make music and like have happiness when it’s time off. Spend time with people and family, whatever.
+ - You never have to change your scene because you’re always comfortable with evolving.
+ - More and more into natural feelings rather than convoluted feelings or tastemaking or what have you. You always need critique, rock critics, but you can’t take away people’s taste. People are starting to, very slowly, do their own thing.
+ - I can’t see myself – I’m not really looking so far ahead in the future. I know that I kind of need to live in the country even though I’m not – my house isn’t in the country right now. I bought a house, like a really tiny, cheap house in Wisconsin.
+ - There’s that whole thing that happens in relationships – you can love someone but, as soon as they stop loving you so unconditionally that they stop being themselves, it can be so dangerous.
+ - I knew I could never give up on music. Completely devoid of any religious or iconic context, I felt like music was handed down to me – this is what I was going to do.
+ - I grew up with a good set of values, but it was never too strict. I was always encouraged to be a free-thinking individual.
+ - I think I’ve always been aware of it with my music. I think growing up basically and having a lot to deal with and just slowing down and having something to say and something to retract from, I think I just knew that what I was doing was extremely honest.
+ - There are decent people that I know who don’t know how to treat their partner. It’s been built up so hard and so high that people are afraid.
+ - Hopefully, most days, you’re like, “This is sweet. I wake up and do the things that I do and I’m usually smiling.” That’s how my dad is with his job.
+ - With all the touring and distractions going on, I would get a sound together but I wouldn’t have time to work on it. So I sat on the road with the sketches and saw how they revealed themselves emotionally.
+ - Real person. real name. I won’t divulge too much, but it’s not a fake name. And it’s not a fake person. I guess that’s the best answer I can say: It’s not a fake name and it’s not a fake person. But it’s not her real name and it’s not a real person either.
+ - I’m not trying to say something super complicated. I allow myself to say certain things that mean a lot to me.
+ - The easiest thing to feel is sadness.
+ - Our lives feel like these epochs, but really, we are dust in the wind.
+ - I don’t know why you’d spend any of your time trying to remake something that you don’t actually like.
+ - Irony is based on insecurity; people like to not like things because they don’t understand them.
+ - But in any situation with long love, I don’t think it ever goes away fully. You just sort of learn where to keep it.
+ - It makes sense that that’s part of the story and everything, but that’s part of any story of any record – where was it record and how long and what were the people doing. I think people want to know where these events are made. That’s why I like the word “record.”
+ - The reality is, if you’re friends with somebody you should be able to be honest with them, and that honesty should be the biggest magnet to truth.
+ - Oftentimes I’ll just overflow, and then I’ll need to spend a week alone and not talk to anybody or call anybody.
+ - What a unique opportunity to be in town. I love townies. I value it, so to speak.
+ - I don’t find inspiration by just sitting down with a guitar anymore. I lost that. I started being so interested in other kinds of music.
+ - I began realizing that it wasn’t important for me to concern myself with the perception of truth.
+ - My favorite idea is doing an all-night tent show starring my friend’s band Marijuana Deathsquads, where everyone would wear super-loud headphones, and there would be tons of subs and lights. It’d be really dope.
+ - I do think that our culture or our psyche as a country I guess, the world or whatever, we’re due for a huge event. We’re due for a little bit of a revolution or a spotlight or a movement. Something that feels large, something that feels like the 60s. Some sort of unification.
+ - I’m trying to think about stuff like that: How can a show not be just a whining guy with a guitar.
+ - I want to be able to write on my walls. I think that’s the big thing.
+ - Every band sells t-shirts and plays certain auditoriums, but I’m sick of being like everyone else, because I’m not.
+ - I’ve been trying to catch up to it. Just trying to get with it, feel behind it a little bit, but that’s good actually, probably. That way, I’m still sort of understanding it.
+ - You should be able to have happiness. If you don’t have that, then you’re not really bringing your whole self to the relationship.
+ - I could be worried about it if I had the wrong attitude. I don’t think that I want my life and my daily occurrences to influence the direction. I don’t want my daily life or my happiness to be a direct influence on music or my sadness.
+ - Some songs, some nights won’t do anything for you, but people enjoy them and that’s the job. The magic is finding those places to stand in the song and gain perspective.
+ - You’re in a relationship because you need help, but that’s not necessarily why you should be in a relationship. And that’s skinny. It doesn’t have weight. Skinny love doesn’t have a chance because it’s not nourished.
+ - I just feel like why spend all my time doing something that makes me unhappy just to spend my time off thinking about how I have to go back to a job. It’s such a vicious cycle that people get stuck in. But I’m also very lucky. I can’t sit here too eagerly and say all that.
+ - I’m not with anybody, I don’t have time for dating. Not to get too personal, but it’s weirdly harder to meet new people now. But for the first time in my life since I was a little kid, I’m not so concerned about it.
+ - I didn’t grow up with indie rock – I mean, I listened to bands that are considered indie rock, but I think that term is dead and uninteresting.
+ - You never have to be scared to look to the future for opportunity.
+ - Even the indie rock world – which is supposed to be about truth and independence from corporate mindfulness or something – is totally subject to the paraphernalia of celebrity.
+ - A lot of people change their band names because they’re looking for a change of atmosphere.
+ - Apple is not thinking different anymore, they are getting worse by the day. They’ve become bottom-dollar and you can see that transition easily.
+ - Indie rock is just as susceptible – if not more susceptible – to all the gross things about people becoming total ass clowns in music, and only worrying about money and image. I’m not interested in being a part of that.
+ - As a fan of Kanye West, working with him is insane.
+ - The songs started as a soundscapes, and then came the words and music; each song took at least a year to make.
+ - It’s dangerous when music gets cornered by anything.
+ - I’m catching up. I’m satisfied with the show. I think I want to get better and better and keep building. It took a while to figure out how to do it. I didn’t know how it was gonna go. I was just like, “I better book a show and just see what happens.”
+
+55 quotes

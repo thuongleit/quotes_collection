@@ -1,0 +1,31 @@
+ - Each moment of a happy lover’s hour is worth an age of dull and common life.
+ - That perfect tranquility of life, which is nowhere to be found but in retreat, a faithful friend and a good library.
+ - One hour of right-down love is worth an age of dully living on.
+ - Faith, Sir, we are here today and gone tomorrow.
+ - Of all that writ, he was the wisest bard, who spoke this mighty truth- He that knew all that ever learning writ, Knew only this-that he knew nothing yet.
+ - Love ceases to be a pleasure, when it ceases to be a secret.
+ - No friend to Love like a long voyage at sea.
+ - I value fame as much as if I had been born a Hero.
+ - Fantastic fortune thou deceitful light, That cheats the weary traveler by night, Though on a precipice each step you tread, I am resolved to follow where you lead.
+ - Where there is no novelty, there can be no curiosity.
+ - Love, like reputation, once fled, never returns more.
+ - God makes all things good; Man meddles with ’em and they become evil.
+ - A poet is a painter in his way, he draws to the life, but in another kind; we draw the nobler part, the soul and the mind; the pictures of the pen shall outlast those of the pencil, and even worlds themselves.
+ - Come away; poverty’s catching.
+ - Patience is a flatterer, sir, and an ass, sir.
+ - Here lies a Proof that Wit can never be Defence enough against Mortality.
+ - As love is the most noble and divine passion of the soul, so is it that to which we may justly attribute all the real satisfactions of life, and without it, man is unfinished, and unhappy.
+ - Oh, what a dear ravishing thing is the beginning of an Amour!
+ - Dear me no Dears, Sir...
+ - A brave world, sir, full of religion, knavery, and change: we shall shortly see better days.
+ - There is no sinner like a young saint.
+ - Love’s a thin Diet, nor will keep out Cold.
+ - I think a Play the best divertisement that wise men have: but I do also think them nothing so who do discourse so formallie about the rules of it, as if ’twere the grand affair of humane life.
+ - Women in London are like the rich silks; they are out of fashion a great while before they wear out.
+ - Jealousy, the old worm that bites.
+ - You may make love in dancing as well as sitting.
+ - Sure, I rose the wrong way today, I have had such damn’d ill luck every way.
+ - Tis Love alone can make our fetters please.
+ - Kings that made laws, first broke ’em...
+
+29 quotes

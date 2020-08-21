@@ -1,0 +1,122 @@
+ - No one can ruin your day without your permission.
+ - Time is irreversible and irreplaceable.
+ - Without vision, you have no direction. Without direction, you have no purpose.
+ - Compassion opens limitless doors to human connection.
+ - If tomorrow never comes, make sure you are satisfied with the way today ended.
+ - Find your purpose. Define it and make it the core of what drives you.
+ - The road to regret is besieged with overlooked chances.
+ - People who have been down so long will try to recruit you to stay down with them. Since they are no longer interested in getting up, their goal in life is to pull someone else down to make themselves feel better.
+ - Abundance is the result of appreciation, not accumulation.
+ - Generate and maintain a burning desire for your purpose.
+ - When we think we know it all, we miss the point.
+ - Don’t put your umbrella up until it rains. Worry restricts your ability to think and act effectively.
+ - Accepting instruction from people is a life-changing choice that will help you break away from your own negative thinking and allow you to grow.
+ - Allow the changes you go through in life to make pressure an ally.
+ - When we are self-centered, deep down we believe that if we did not create it or make it happen, it simply does not exist.
+ - Confrontation is a positive way to handle negative events.
+ - In order to be an inspiration to someone else, you have to be inspired.
+ - The people who make the biggest difference in your life are not the ones with the most credentials, the most money or the most awards. They are simply the ones who care the most.
+ - The process of forgiveness is one of the most important processes we can learn in life, with self-forgiveness being perhaps the most difficult of all.
+ - Your life’s work can be found where God’s plan intersects with your passion.
+ - Lesson learned. Wisdom earned.
+ - Never be content with someone else’s definition of you.
+ - Every parent, coach or teacher says the same thing, “All I ask is that you give me your best effort.” If you put all you have into whatever you do, you won’t eliminate failure. If you put everything you have into everything you do, you won’t eliminate disappointment. So, why bother? When your personal philosophy is to do your best, regardless, you will always stand tall in your own estimation. Losing hurts, but it hurts even more when you realize that you haven’t done your best.
+ - Life may not be the party we hoped for, but while we’re here we should dance.
+ - There are no limits in life.
+ - Your destiny will not be tied to anyone who is willing to walk out of your life.
+ - You can’t change people. You can only influence them.
+ - True wealth and stature come from depth, not height.
+ - Live more for today, less for tomorrow and never about yesterday.
+ - When you don’t believe in yourself, you expect the worst, not only of yourself, but of others.
+ - You have to break your dependence on a standard of living that you are comfortable with and sometimes take a step backward to move forward.
+ - Life is worthless unless you give it value.
+ - Be questioned for who you are, rather than believed for who you are not.
+ - The amount we earn or the success we achieve produces emptiness unless it is in line with a purpose beyond ourselves.
+ - At the fork in the road, turn “right.”
+ - Being willing to ask the tough question isn’t the hard part. It is having the guts to answer the question honestly.
+ - How you see yourself performing in certain situations is a result of how you believe. What you think, you are.
+ - The key to growing will be your ability to check your passion every day and never lose it.
+ - The small stuff makes a big difference!
+ - Most days you will not get what you want; some days you will only get what you need; but every day you will get what you expect.
+ - If you don’t believe in yourself, very few others will.
+ - For every action or event, there is an accompanying lesson that must be learned.
+ - What you decide to do next will determine what you do next.
+ - Common characteristics you admire in other people are something you see as a deficiency in yourself.
+ - People who make a difference don’t look for achievements that will bring them the most with the least amount of effort.
+ - Why you do what you do provides the motivation for doing it.
+ - If you want to impact people and make a difference, your number one priority should be building trust.
+ - Life is not perfect.
+ - You are everything you choose to be.
+ - If we do not learn humility, we will learn humiliation.
+ - You may not always make right decisions. However, you have the ability to make a decision and then make it right.
+ - We let others define and, in some cases, limit our potential to be successful.
+ - We become what we think, and our perception of any event will determine our reaction to it.
+ - Becoming the leader sometimes creates emotional distance, yet it is imperative for you to be your authentic self.
+ - The trip is more enjoyable if you know where you’re going.
+ - Behavior not confronted never changes.
+ - Opportunity is a mindset that ignites the passion within you!
+ - The most important opinion you will ever have is the one in your head.
+ - Imagine what might come up if we shared our thankfulness at dinner every day and turned a holiday tradition into a way of life.
+ - Making a difference requires you to merge your ego with the aspiration of your soul.
+ - The good times make you smile, and the tough times make you thankful.
+ - We have managed to take the inconsequential and make it important by making it more immediate.
+ - How empty our words are when they are not sustained by our actions.
+ - Your actions and your image of yourself are inextricably linked.
+ - The greatest thing you will ever learn is to use what you learn.
+ - Don’t worry because a rival imitates you. As long as he follows in your tracks, he can’t pass you.
+ - Don’t squander time being angry about the circumstances you’re in. Be curious about how you got there.
+ - A dream will provide you with a reason to go, a path to follow and a target to hit.
+ - In every experience you have, find something good. Life is about perspective. The glass is half empty or half full depending on whether you are drinking or pouring.
+ - You shouldn’t judge your potential or ultimate success or failure by the first win or loss.
+ - It is your life experiences that open up your heart to have compassion for the most difficult challenges that people face along the journey.
+ - Adversity will help you decide what you really believe.
+ - Follow the talent you have been given.
+ - We are constantly granted the opportunity and mandate to grow, to learn, to change.
+ - When we admit our mistakes and make amends for them, we reclaim our power and actually like ourselves better.
+ - What you do for yourself dies with you. What you do for others is immortal.
+ - We attract what we fear.
+ - The mastery of life is the mastery of self.
+ - Focus your efforts on what you can change and accept what you cannot.
+ - Tough times allow you to reexamine your life’s work and your calling.
+ - Your ideas, thoughts, information, activities and insights are the means to seizing the opportunities which may pass you by if you don’t expand who you are.
+ - Very few people acquire wealth in such a manner as to receive pleasure from it.
+ - You create what happens to you based on your decisions. You create your future both by your actions and your inactions.
+ - By always chasing after another “there” you are never really appreciating what you already have right here.
+ - Comparison prohibits you from seeing your uniqueness.
+ - Regret preoccupies you in ways that will demoralize you and your ability to let go of the past and improve your future.
+ - How you see yourself performing in certain situations is a result of how you believe. What you think, you are.
+ - Doubt your doubts, not your beliefs.
+ - When we are pretending to be something or someone we are not, we cannot help but feel uneasy.
+ - It is impossible to unselfishly give of ourselves without being blessed in return.
+ - Make “now” the most interesting time of all.
+ - Life picks on everyone… don’t take it personally.
+ - Give, not in the spirit of obligation or debt, but merely in the spirit of service.
+ - People who are committed to a purpose usually view change as a challenge rather than a threat and aren’t stressed by it in a negative way.
+ - At the end of our lives, who we are and what that has contributed to the process of making a difference in people’s lives will be more important than anything we have produced or done for money, fame or power.
+ - Your influence will either be positive or negative.
+ - Don’t fear what you want the most.
+ - Human growth is a process of arriving at the fork in the road and, through experimentation, trial and error, ultimately finding wisdom.
+ - When you spend time doing something someone else can do, you won’t have time to do what only you can do.
+ - Find people whose personalities and achievements stimulate, fascinate and inspire you; then strive to duplicate their patterns of superiority.
+ - People who make a difference do not fall prey to procrastination.
+ - Success is deciding what you like to do and then determining how to be successful doing it.
+ - Never let your surroundings or circumstances control your attitude.
+ - It’s not the broken strings that stop you; it’s your inability to see what you have left to play.
+ - Leadership is taking people where they have never been.
+ - The certainty of any circumstance can disclose a fact that will not permit you to wholly believe it which ultimately directs you to repeat the same mistakes.
+ - All of our dreams can come true if we have the courage to pursue them.
+ - Sometimes the things we are most passionate about escape us not because of a lack of talent, but rather because we lack the resolve necessary to pursue them.
+ - While people are motivated by several factors, it’s the emotional component that ultimately influences people.
+ - Our attitude determines our approach to life.
+ - Clarity is the perspective you can’t see.
+ - We can make choices that will provide us with opportunities to enjoy the ride and afford all that was meant for us.
+ - A good self-image allows us to concentrate on compliments paid to us and the successes we have achieved.
+ - A lone person you influence positively today has the potential to influence thousands of people tomorrow.
+ - Love what you do and, most importantly, why you do it.
+ - Things crumble with the erosion of values.
+ - Compassion gallops. Judgment merely walks.
+ - A major detour in your journey is allowing destructive emotions to consume your energy and make you negative.
+ - Start from where you are now.
+ - It is better to live your own destiny imperfectly than to live an imitation of somebody else’s life with perfection.
+
+120 quotes

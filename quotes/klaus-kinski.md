@@ -1,0 +1,38 @@
+ - You leap over the wall of one ghetto and find yourself in another ghetto.
+ - I am not the Jesus of the official church tolerated by those in power. I am not your superstar.
+ - One should judge a man mainly from his depravities. Virtues can be faked. Depravities are real.
+ - When you are there, you are. With words, you aren’t.
+ - But words – words are not enough!
+ - Sometimes my heart hurts so much, I beat it with my fists. I try to run. But you cannot run from this. It waits for you. Even when you think you have escaped it, it is there.
+ - I am your fairy tale. Your dream. Your wishes and desires, and I am your thirst and your hunger and your food and your drink.
+ - The truth is, I can never die. For I will be in everything and see you in everything and watch over you. I am your reaction in the water of a mountain lake.
+ - Where a beast would have claws, I was born with talent.
+ - I wish I’d never been an actor. I’d rather have been a streetwalker, selling my body, than selling my tears and my laughter, my grief and my joy.
+ - Put a bird cage near the window so that the bird can see the sky? It’s much better to look than not to, even if it hurts.
+ - I could be with a woman in a bed, for weeks even, and it would seem to me like three seconds. Or 300 years.
+ - In a way, everything concerning a movie leaves me cold.
+ - The dimensions of my feelings are too violent.
+ - I don’t need anybody to tell me how to be alive.
+ - You have to protect yourself, your body, your being. You cannot treat it badly; you have to keep it, make as sensitive as possible.
+ - I sell myself for the highest price. Exactly like a prostitute. There is no difference.
+ - I am dying of hunger.
+ - You don’t need a framework. You need a painting, not a frame.
+ - At sixteen I get drafted. When I read the draft notice, I cry. Not because I’m a coward – I’m not afraid of anyone. But I don’t want to kill or be killed.
+ - People who do not see the terrible things therefore do not see the beautiful things, either.
+ - On working with director Werner Herzog: I have to shoot without any breaks. I yell at Herzog and hit him. I have to fight for every sequence. I wish Herzog would catch the plague.
+ - It is the Nobel Prize I want. It’s worth $400,000.
+ - Once, I took a taxi. I hate those limousines. They stink and their drivers have been driving dead people to the cemeteries.
+ - I make movies for money, exclusively for money.
+ - Why have I had this life? If I knew, I wouldn’t have done it.
+ - I didn’t choose solitude.
+ - About 25 years ago, I was in an apartment, and next door, they put on the radio, so I struck the wall with my fist, but they did not put the radio down. I took a tool and banged until I made a hole through the wall. It was like a comedy movie.
+ - Working with a great director is wonderful for an actor because it means that you’re not forced to take the advice of an idiot.
+ - Why do I continue making movies? Making movies is better than cleaning toilets.
+ - Whenever I was with a woman, I always sort of want another one. So there was always another one. I can’t explain this.
+ - It is true what Rimbaud said; If you think a book is strong enough, try it at the ocean, in the wind, at the waves. If the book can resist the ocean, then it exists. Otherwise, throw it away.
+ - The ultimate acting is to destroy yourself.
+ - I actually get venereal disease more often than most people catch colds.
+ - I knew there were, in myself, the souls of millions of people who lived centuries ago; not just people but animals, plants, the elements, things, even, matter. All of these exist in me.
+ - If I hadn’t refused Ken Russell, Fellini and Spielberg and made their movies when they asked me, my life would be no different. It is not my fault that I accepted one movie and turned down another. I don’t see any point in defending myself, either.
+
+36 quotes

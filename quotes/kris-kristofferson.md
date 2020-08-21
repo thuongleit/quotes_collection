@@ -1,0 +1,36 @@
+ - Freedom’s just another word for “nothing left to lose”.
+ - I’d trade all my tomorrows for one single yesterday.
+ - Jesus was a Capricorn, he ate organic foods, he believed in love and peace, and never wore no shoes.
+ - And the beer I had for breakfast wasn’t bad, so I had one more for dessert.
+ - I’ll only live ’til I die.
+ - You don’t paddle against the current, you paddle with it. And if you get good at it, you throw away the oars.
+ - If God made anything better than women, I think he kept it for himself.
+ - I’d rather be sorry for something I had done than for something I didn’t do.
+ - You’re the only one that you are screwin’, when you put down what you don’t understand.
+ - As soon as you learn to never give up, you have to learn the power and wisdom of unconditional surrender, and that one doesn’t cancel out the other; they just exist as contradictions. The wisdom of it comes as you get older.
+ - If you can’t get out of something, get into it.
+ - If God’s got a favorite songwriter, I think it’s John Prine.
+ - I want you to know I’m an Army brat; I was a captain in the Army and my brother was a jet pilot in the Navy. So I support our troops; I identify with them. But I sure as hell don’t identify with the bastards who sent them over there.
+ - Nothing ain’t worth nothing but it’s free.
+ - When they prove something wrong you believed in so long, you go crazy.
+ - The only reality is in the moment. What you are doing counts.
+ - Just remember that William Blake wasn’t even published in his lifetime. Ya gotta keep creating.
+ - The number one rule of the road is never go to bed with anyone crazier than yourself. You will break this rule and you will be sorry.
+ - The wolf pack will die when scattered by man, lonesome coyote survives.
+ - I’d lost my family to my years of failing as a songwriter. All I had were bills, child support, and grief. And I was about to get fired. It looked like I’d trashed my act. But there was something liberating about it. By not having to live up to people’s expectations, I was somehow free.
+ - I grew up in a time when people believed in duty, honor and country. My grandfathers were both officers. My father was a General in the Air Force. My brother and I were both in the Army. Ive always felt a kinship with soldiers; I think its possible to support the warrior and be against the war.
+ - Bad love is better than no love at all, at least you know you’re alive.
+ - The heart is what matters most of all.
+ - I don’t think I’ve gotten any smarter, but your reflexes slow down before you do something stupid when you’re older.
+ - His soul was bigger than a body’s ought to be.
+ - Johnny Cash has always been larger than life.
+ - If you’re in it because you love it and you have to do it, that’s the right reason. If you’re in it because you want to get rich or famous, don’t do it. People often say that my first years in Nashville, when I wasn’t getting anything cut, were tough. Hell, those were great years.
+ - The closest Ive come to knowing myself is in losing myself. Thats why I loved football before I loved music. I could lose myself in it.
+ - I’ve been a radical for a long time. I guess it’s too bad. I’d be more marketable as a right-wing redneck.
+ - There were decades I didn’t play sober. I thought, Who would want to? But at some point, I decided that if it was important enough to me to keep doing it as art, I should do it with all my tools.
+ - I’ll probably be writing as long as I’m breathing.
+ - There are points in your life, especially if you have creative ambitions, where selfishness is necessary.
+ - Bombing people for economic reasons is as horrible as killing a pregnant woman.
+ - The world he saw was sadder than the one he hoped to find. But it wasn’t near as lonesome as the one he left behind.
+
+34 quotes

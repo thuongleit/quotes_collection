@@ -1,0 +1,22 @@
+ - Until you find something worth dying for, you’re not really living.
+ - God does not want us to be living in the past, in shame, in fear, or in the future, in worry. He wants us to be living in the present, in now, with Him.
+ - Even sometimes our preconceptions of what we think we need is different to actually what we do need, so we’ve got to be more open and give guys more of a chance.
+ - If we could only put God first, maybe this ugly trend could one day be reversed.
+ - Marriage to me means unity, it means strength because I believe that both people can be stronger in their calling because of each other.
+ - I believe that marriage is a representation of Christ and the church and when Christ and the church are unified, they are the strongest and most attractive to those that don’t know Jesus.
+ - There is so much that is fake about our society. My generation is craving something that is real, honest and true. The Message is straight up! It’s modern, relevant, and direct.
+ - I always knew that God’s way was the best, that I wanted to wait, and that I valued purity.
+ - Don’t worry about your life cause if you hold it too close you lose it.
+ - I dreamed of being very attracted to my future husband, and I’m extremely attracted to him. I dreamed of having lots of fun together and being able to be goofy and be accepted, that’s all there.
+ - I cry out from the ashes, burned with sin and shame. I ask you Lord to make me whole again.
+ - I dreamed of being able to share my thoughts and feelings and hopes without thinking they were going to make fun of me and think I was silly, and I have that.
+ - I just believe that marriage is a beautiful representation of God’s love for us and that there is such a cherishing that can happen in marriage that is different from any other relationship.
+ - I think the only fear that I have in getting married is what if I’m not enough or what if I’m not prepared enough, because I’m the kind of person that likes to be prepared.
+ - I don’t think courting and dating is a liability. I actually think it can be a blessing.
+ - Most people have to date or court other people before they meet the one.
+ - I have struggled with perfectionism and I think it’s a really damaging thing in my own life. When we put that perfectionism on someone else, it just hurts relationships whereas grace and trusting someone else’s heart is a really, really incredible and important part of any relationship.
+ - I think it takes a truly strong man to cherish a woman.
+ - May you get more out of life than a cup of tea.
+ - Really with marriage, from what I’ve heard about from different friends that are married, you can’t entirely be prepared. There are things you can only learn in marriage.
+
+20 quotes

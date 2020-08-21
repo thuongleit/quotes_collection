@@ -1,0 +1,33 @@
+ - You usually have to wait for that which is worth waiting for.
+ - I think; therefore, I am the center of the universe.
+ - The only thing that is obscene is censorship.
+ - Nothing surpasses the beauty and elegance of a bad idea.
+ - Geez, all that money we waste on space exploration; just think how many bombs that would buy!
+ - The entire universe is working against me. I can’t believe the entire universe could be that foolish!
+ - It’s hardware that makes a machine fast. It’s software that makes a fast machine slow.
+ - Silence is a statement that is open to gross misinterpretation.
+ - If the shoe fits, it is probably worn out.
+ - The Thought Police: To censor and protect.
+ - Supermarket automatic doors open for me; therefore, I am.
+ - In order for a man to be truly evil, he must be a woman.
+ - New studies show that 100% of all smokers die.
+ - Don’t trust anyone who has been in school for the past 24 consecutive years.
+ - Think Tank, noun: The shower.
+ - Liberalism is financed by the dividends from Conservatism.
+ - When shooting in the dark, it is a good idea to use a machine gun.
+ - Now is the time for all good men to run like hell.
+ - The exchange rate between first-world lives and third-world lives in disaster stories in the media is about 50:1.
+ - Fighting a war on terrorism is like fighting against crime. We can never hope to eradicate crime, so we shouldn’t bother fighting it.
+ - It’s a bit odd that nobody seems to be using the correct technical term to describe organized Islamic terrorists. They are not a faction of a religion or a social movement. They are a cult. A suicide cult.
+ - Never underestimate the power of a simple tool.
+ - Anything on paper is obsolete!
+ - Don’t judge a book by its thickness either.
+ - Power interrupts. Uninterruptible power interrupts absolutely.
+ - Why are people unemployed? Because there is no work. Why is there no work? Because people are not buying products and services. Why are people not buying products and services? Because they have no money. Why do people have no money? Because they are unemployed.
+ - It’s funny how most activists are pacifists.
+ - Whoever invented double clicking should be shot in the head! Twice!
+ - I wonder if those people shown protesting the deployment of nuclear weapons to western Europe during the Reagan era are feeling appropriately stupid today. ‘Please don’t take away our precious Soviet Union! – We demand the annihilation of all life on Earth!’
+ - When anarchy is declared, the first thing we do, let’s kill all the anarchists.
+ - If I gave a damn what other people think of me, I would be more like other people.
+
+31 quotes

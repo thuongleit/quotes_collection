@@ -1,0 +1,64 @@
+ - They say seeing is believing, but the opposite is true. Believing is seeing.
+ - Nothing is so obvious that it’s obvious.
+ - The perfect war is started for obscure reasons, is hopelessly murderous, and accomplishes nothing.
+ - I like to think that I differ from other interviewers in the sense that I hide my agenda more successfully, and I’m more open to hearing stuff that is surprising and unexpected. That I’m actually involved in an investigation, through monologue, at times.
+ - Those who cannot remember the past are condemned to repeat it without a sense of ironic futility.
+ - Film is lies at twenty-four frames a second.
+ - I never intended to be a documentary filmmaker. I think I became a documentary filmmaker because I had trouble writing, and I had trouble finishing things.
+ - Ecstatic absurdity: it’s the confrontation with meaninglessness.
+ - Everything is a reenactment. We are reenacting the world in the mind. The world is not inside there. It does not reside in the gray matter of the brain.
+ - Maybe existence is ultimately a lonely thing.
+ - The claim that everybody sees the world differently is not a claim that there’s no reality. It’s a different kind of claim.
+ - If you want to trick someone with a photograph, there are lots of easy ways to do it. You don’t need Photoshop. You don’t need sophisticated digital photo-manipulation. You don’t need a computer. All you need to do is change the caption.
+ - I’ve never seen myself as a documentary filmmaker. I see myself as a filmmaker, period, and I am interested in drama as well as in documentary.
+ - God is greater than anything that man can do or has done. He is not undone by just a train of powder. “Our God is not out of breath because he has blown one tempest and swallowed a Navy: Our God has not burnt out his eyes because he has looked upon a Train of Powder.”
+ - Simply coming to the perpetrator and delivering the message is Nozick’s definition of revenge. And in that sense, Adi is exacting revenge. When people ask, “Does Adi want revenge?” – they mean violent revenge. But in Nozick’s formulation, it is revenge. That is the essence of revenge.
+ - The imprimatur of truthfulness does not guarantee truthfulness. People should know better. But they don’t.
+ - We falsely interpret the world around us. We ignore evidence that doesn’t support our prior beliefs and we convince ourselves we know things we don. We think we know things we don’t know.
+ - The pursuit of truth, properly considered, shouldn’t stop short of insanity.
+ - I like to point out that people very often confuse the idea that truth is subjective with the fact that truth is perishable.
+ - I’m really interested in self-deception. Really interested in how people live in bubble universes. How people can fail to see the seemingly obvious.
+ - I actually like doing commercials. I don’t like doing them to the exclusion of everything else, but I like doing them. The 30-second format is very hard. I sometimes call it American Haiku. And I think some of the commercials I’ve done are not so bad.
+ - I used to work as a private detective years and years ago.
+ - I am profoundly skeptical about our abilities to predict the future in general, and human behavior in particular.
+ - Language can be used to so many diverse ends. It can be used to clarify and, of course, it can be used to obfuscate, confuse, evade...
+ - I used to say that interviewing others was perhaps the way I could stop talking and start listening. It’s a kind of enforced silence.
+ - Photographs attract false beliefs the way flypaper attracts flies.
+ - I’ve always wondered where explanations end and excuses begin.
+ - You can talk about a caption underneath a photograph being true or false, because there is a linguistic element. You can claim that a photograph is a picture of a horse or a cow, but it is the sentence that expresses the claim, which is true or false, not the photograph.
+ - The proper route to an understanding of the world is an examination of our errors about it.
+ - Think of my movies as heightening our awareness, not confusing the difference between truth and fiction, but heightening our awareness of how confused we can become about what is real.
+ - War is such a peculiar thing – inaugurated by the whims of few, affecting the fate of many. It is difficult, if not impossible, thing to understand, yet we feel compelled to describe it as though it has meaning – even virtue. It starts for reasons often hopelessly obscure, meanders on, then stops.
+ - People like nonfiction presented to them in a certain way, so that they don’t have to think about whether it’s true or not. They like it to have that imprimatur of respectability, of genuineness.
+ - If you asked me what makes the world go round, I would say self-deception. Self-deception allows us to create a consistent narrative for ourselves that we actually believe. I’m not saying that the truth doesn’t matter. It does. But self-deception is how we survive.
+ - Listening to what people were saying wasn’t even important. But it was important to look as if you were listening to what people were saying. Actually, listening to what people are saying, to me, interferes with looking as if you were listening to what people are saying.
+ - A movie is like a tip of an iceberg, in a way, because so little of what you do in connection with making a movie actually gets into the movie. Almost everything gets left behind.
+ - Certain kinds of intimacy emerge on a phone call that might never occur if you were sitting right next to the other person.
+ - I don’t believe that you can talk about a photograph being true or false. I don’t think such a claim has any meaning.
+ - People can burn archives; people can destroy evidence, but to say that history is perishable, that historical evidence is perishable, is different than saying that history is subjective.
+ - The fact that the world is utterly insane makes it tolerable.
+ - But there’s a big difference between, say, reporting on a story and simply making up a story.
+ - One of the strengths of my interviews is that I really, honest to God, have no idea what people are going to say.
+ - You can’t tell by looking at a film-clip whether it is a drama or a documentary without knowing how it was produced.
+ - My stuff always starts with interviews. I start interviewing people, and then slowly but surely, a movie insinuates itself.
+ - I envy certain writers, because there are writers who do go into a kind of different zone, where the writing isn’t controlled anymore.
+ - There is something about the photographs that is endlessly disturbing. The fact that we like to think of them as torture actually hides what is really deeply offensive about them.
+ - You can’t really trust anybody who doesn’t talk a lot, because how would you know what they’re thinking?
+ - I don’t think that anybody really makes films quite like mine. That’s maybe true of any filmmaker.
+ - People think in narratives – in beginnings, middles and ends. The danger when you edit something too severely is that it no longer makes sense; worse still, it leaves people with the disquieting impression that something is being hidden.
+ - There’s this crazy thinking that style guarantees truth. You go out with a hand-held camera, use available light, and somehow the truth emerges.
+ - A lot of the themes of my movies, the actual stories, come from tabloid stories.
+ - I think calling someone a character is a compliment.
+ - Writing is a form of talking, although writing is such an odd thing in and of itself. People go about it in such different ways.
+ - Those who cannot condemn the past repeat it in order to remember it.
+ - Forty years ago this country went down a rabbit hole in Vietnam and millions died. I fear we’re going down a rabbit hole once again – and if people can stop and think and reflect on some of the ideas and issues in this movie, perhaps I’ve done some damn good here!
+ - When you start talking about the known knowns and the unknown unknowns, you’re thrown into a crazy meta-level discussion. Do I know what I know, do I know what I don’t know, do I know what I don’t know I don’t know. It becomes a strange, Lewis Carroll – like nursery rhyme.
+ - I’ve done interviews in one day that went on for fifteen, sixteen hours. And at a certain point, the control over what they’re saying breaks down; it becomes different. It becomes really powerful, and for me, real. It becomes out of control.
+ - There is such a thing as truth, but we have a vested interest in not seeing it, in avoiding it.
+ - There are many dramas that I would like to make: dramas based on real stories. It’s approaching things from the other side.
+ - Mike Wallace’s interviews may make great television, but they don’t produce great evidence.
+ - Truth and falsity is something that concerns language, it’s a property of language.
+ - I think we get into all kinds of difficulty by saying photographs should be taken in a certain way which guarantees their veracity. I think that’s a slippery slope to hell.
+ - A lot of the distinctions that we make between drama and documentary are spurious. We’re deeply confused about these issues. About the difference between the two, about where documentary ends and drama begins.
+
+62 quotes

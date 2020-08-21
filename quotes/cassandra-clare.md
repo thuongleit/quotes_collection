@@ -1,0 +1,502 @@
+ - Only the very weak-minded refuse to be influenced by literature and poetry.
+ - Life is a book and there are a thousand pages I have not yet read.
+ - Pulvis et umbra sumus.
+ - All the stories are true.
+ - Sarcasm is the last refuge of the imaginatively bankrupt.
+ - You endure what is unbearable, and you bear it. That is all.
+ - Mea culpa, mea maxima culpa.
+ - To love is to destroy. To be loved is to be the destroyed.
+ - The boy never cried again, and he never forgot what he’d learned: that to love is to destroy, and that to be loved is to be the one destroyed.
+ - Amor verus numquam moritur: True love never dies.
+ - As long as there was coffee in the world, how bad could things be?
+ - I love you, and I will love you until I die, and if there’s a life after that, I’ll love you then.
+ - Growing up happens when you start having things you look back on and wish you could change -Clary Fray.
+ - Black for hunting through the night For death and sorrow, the color’s white Gold for a bride in her wedding gown, And red to call enchantment down.
+ - Books will always be there for you.
+ - I’ve never seen anyone get so excited over books before. You’d think they were diamonds.
+ - Your life is yours to live as you choose.
+ - L’amor che move il sole e l’altre stelle.
+ - It’s all right to love someone who doesn’t love you back, as long as they’re worth you loving them. As long as they deserve it.
+ - As long as there is love and memory, there is no true loss.
+ - He’d burn the whole world down til he could dig out you of the ashes.
+ - Shadowhunters: Looking Better in Black Than the Widows of our Enemies Since 1234.
+ - Choosing love or war: both are brave choices, in their own ways.
+ - Love is the most powerful force in the world. That love can do anything.
+ - Temper us in fire, and we grow stronger. When we suffer, we survive.
+ - In the end that was the choice you made, and it doesn’t matter how hard it was to make it. It matters that you did.
+ - Regret is such a pointless emotion, don’t you agree?
+ - For love is as strong as death.
+ - Knowing is better than not knowing. Every time.
+ - What’s the point in wasting a perfectly good brick wall when you have someone to throw against it, that’s what I always say.
+ - I am a demon hunter. Clearly, I am not afraid of the dark.
+ - When life gives you lemons, make lemonade, and then throw it in the face of the person who gave you the lemons until they give you the oranges you originally asked for.
+ - Heroes aren’t always the ones who win. They’re the ones who lose, sometimes. But they keep fighting, they keep coming back. They don’t give up. That’s what makes them heroes.
+ - Freely we serve Because we freely love, as in our will To love or not; in this we stand or fall.
+ - Love makes liars of us all.
+ - Will smiled the way Lucifer might have smiled, moments before he fell from Heaven.
+ - You cannot hide your true self forever.
+ - Atque in pepetuum, frater, ave atque vale. Forever and ever, my brother, hail and farewell.
+ - The wishes of our hearts are weapons that can be used against us.
+ - As long as I can dream, I will dream of you.
+ - Vampires, fey folk, werewolves, Shadowhunters, and demons – these things made sense to Magnus. But the mundane world – it seemed to have no pattern, no form. Their quicksilver politics. Their short lives...
+ - There are so many worse things than death. Not to be loved or not to be able to love: that is worse.
+ - He wanted to make her laugh. He wanted to sit and listen to her talk about books until his ears fell off. But all these were things he could not want, because they were things he could not have, and wanting what you could not have led to misery and madness.
+ - If you have a soul of a warrior, you are a warrior. Whatever the color, the shape, the design of the shade that conceals it, the flame inside the lamp remains the same. You are that flame.
+ - Without conflict there is no plot, without hope there is no story.
+ - We live and breathe words.
+ - People aren’t born good or bad. Maybe they’re born with tendencies either way, but its the way you live your life that matters.
+ - Some Laws were meant to be broken.
+ - Waiting for a special occasion to kill me? Christmas is coming.
+ - Because the world isn’t divided into the special and the ordinary. Everyone has the potential to be extra ordinary.
+ - Sharp are the arrows of a broken heart.
+ - Some people value sentiments over diamonds.
+ - It’s the mortal cup Jace, not the mortal toilet bowl.
+ - I belong to you. You could do anything you wanted with me and I would let you. You could ask anything of me and I’d break myself trying to make you happy. My heart tells me this is the best and greatest feeling I have ever had.
+ - Facilis descensus Averno Noctes atque dies patet atri ianua Ditis Sed revocare gradum superasque evadere ad auras Hoc opus labor est.
+ - When somebody tells you there’s something wrong with your book they’re almost always right, when they tell you how to fix it they’re almost always wrong.
+ - Lies and secrets, Tessa, they are like a cancer in the soul. They eat away what is good and leave only destruction behind.
+ - The more you try to crush your true nature, the more it will control you. Be what you are. No one who really loves you will stop.
+ - If no one in the entire world cared about you, did you really exist at all?
+ - And I would do it again. I love you, Jace Wayland-Herondale-Lightwood-whatever you want to call yourself. I don’t care. I love you and I will always love you, and pretending it could be any other ways is just a waste of time.
+ - I don’t want the world. I want you.
+ - Yes, she’s bleeding to death upstairs, but I thought I’d avoid telling you right away, because I like to draw the suspense out.
+ - Maybe Alexander Lightwood would not break his heart.
+ - I prefer the school of life.
+ - You can only push the truth down for so long, and then it bubbles back up.
+ - You are not the last dream of my soul. You are the first dream, the only dream I ever was unable to stop myself from dreaming. You are the first dream of my soul, and from that dream I hope will come all other dreams, a lifetime’s worth.
+ - James Carstairs! Jem! Where are you, you disloyal bastard?
+ - It’s fascinating. You know all these words, and they’re all English, but when you string them together into sentences, they just don’t make any sense.
+ - Freely we serve, because we freely love.
+ - With hope at last.
+ - You may have the worst timing since Napoleon decided the dead of winter was the right moment to invade Russia.
+ - If you were half as funny as you think you are, you’d be twice as funny as you are now.
+ - Crying wouldn’t help anything now.
+ - You could have anything else in the world. and you asked for me.
+ - As far as I’m concerned, this is the worst thing that’s happened since I found out why Magnus was banned from Peru.
+ - Your boyfriend’s dead. Thought you should know.
+ - Doing the right thing because you love someone sucks sometimes.
+ - Where there is love, there is often also hate. They can exist side by side.
+ - A diary with no drawings of me in it? Where are the torrid fantasies? The romance covers?
+ - Shutting your eyes and pretending something’s not happening doesn’t make it not true, Jace.
+ - I am, in the end, what you made me.
+ - Every time I think I’m missing a piece of me, you give it back.
+ - I thought perhaps that when you told me you did not love me that my own feelings would fall away and atrophy, but they have not. They have grown every day. I love you now more desperately, this moment, than I have ever loved you before, and in an hour I will love you more than that.
+ - The meek may inherit the earth, but at the moment it belongs to the conceited. Like me.
+ - I don’t know how to live in the world as a Shadowhunter without Will. I don’t think i even want to. I am still a parabatai, but my other half is gone.
+ - Still I pictured having you for fifty, sixty more years. I thought I might be ready then to let you go. But it’s you, and I realize now that I won’t be anymore ready to lose you then than I am right now. Which is not at all.
+ - It’s like banging my head against the wall, except if I were actually banging my head on a wall, I’d be able to make myself stop.
+ - And next time you’re planning to injure yourself to get me attention, just remember that a little sweet talk works wonders.
+ - If you really love something, you never try to keep it the way it is forever. You have to let it be free to change.
+ - When the soul has left the body, it belongs to death. And it cannot be taken back without a price.
+ - Clary’s mother apparently reguarded him as about as sexually threatening as a goldfish.
+ - Everyone has choices to make; no one has the right to take those choices away from us. Not even out of love.
+ - He said there are thousands of Shadowhunters, but great love comes once in a lifetime if one is lucky, and one would be a fool to let it go.
+ - When you love someone, you don’t have a choice. Love takes your choices away. – Clary Fray.
+ - It’s always better to live the truth than to live a lie.
+ - Dear Alec, As your best friend and parabatai, I am offended not to have been asked to be your best man at the wedding. Et tu, Brutus. -Jace Alec, he really is upset. He hasn’t washed his hair in three days. -Clary.
+ - The way he looked at you. I got it then. He loved you, and it was killing him. He won’t get over you, Clary, he can’t.
+ - You love him as a falcon loves his master who binds and blinds it.
+ - He will get through this, even if he thinks he won’t.
+ - Jace, Clary thought, was the sort of person who liked it when things were happening, even things that were bad.
+ - I love you. And I don’t want to lose you.
+ - What I do know is that if we are born again, I will meet you in another life, and if there is a river, you will wait on the shores for me to come to you, so that we can cross together.
+ - It was books that made me feel that perhaps I was not completely alone. They could be honest with me, and I with them.
+ - Pain made you strong. Loss made you powerful.
+ - I think I’m better than everyone else. An opinion that has been backed up with ample evidence.
+ - You asked me how I, being immortal, survive so many deaths. There is no great secret. You endure what is unbearable, and you bear it. That is all.
+ - I shall see you on Blackfriars Bridge, Tessa.
+ - He’s got a great sense of humor for a guy who never says anything.
+ - Too much of anything could destroy you, Simon thought. Too much darkness could kill, but too much light could blind.
+ - We are all the pieces of what we remember. We hold in ourselves the hopes and fears of those who love us. As long as there is love and memory, there is no true loss.
+ - Family isn’t blood. It’s the people who love you. The people who have your back.
+ - Of course I can see you. I’m not blind, you know. Oh, but you are. You just don’t know it.
+ - I could not tell you if I loved you the first moment I saw you, or if it was the second or third or fourth. But I remember the first moment I looked at you walking toward me and realized that somehow the rest of the world seemed to vanish when I was with you.
+ - Every teenager in the world feels like that, feels broken or out of place, different somehow, royalty mistakenly born into a family of peasants. The difference in your case is that it’s true.
+ - If I cannot reach Heaven, I will raise Hell.
+ - It’s love, not the Battle of Thermopylae. You don’t have to treat everything like it’s a last stand.
+ - There are memories that time can’t erase, Clarissa. Ask your friend, Magnus Bane, if you don’t believe me. Forever does not make loss forgettable. Only bearable.
+ - Sometimes, when I have to do something I don’t want to do, I pretend I’m a character from a book. It’s easier to know what they would do.
+ - There’s plenty of sense in nonsense sometimes, if you wish to look for it.
+ - Demon slayers take the subway?
+ - Bloodthirsty little beasts. Never trust a duck.- William Herondale.
+ - Always when Will did something to protect Tessa, Jem thought it was for his sake, not for Will’s. Always Will wished Jem could be entirely right. Each needle prick had it own name. Guilt. Shame. Love.
+ - In all the world, you are what I love the most.
+ - You’re a reader as well as a writer, so write what you’d want to read.
+ - My heart tells me this is the best and greatest feeling I have ever had. But my mind knows the difference between wanting what you can’t have and wanting what you shouldn’t want. And I shouldn’t want you.
+ - Seeing through glamour is easy. It’s people that are hard.
+ - But the name Magnus Bane made him think of a towering sort of figure, with huge shoulders and formal purple warlock’s robes, calling down fire and lightning. Not Magnus himself, who was more of a cross between a panther and a demented elf.
+ - Dreams can be dangerous things.
+ - I’m not ritualistic about writing. I try to write as often as possible, which means that I have to be able to write in all kinds of situations, whether it’s at home on my couch, out at a cafe, or traveling.
+ - I would give you everything of myself. I would give you more in two weeks than most men would give you in a lifetime.
+ - If You don’t give readers what they want, they’ll be mad at you. If you give them what they do want, they’ll be even more mad at you.
+ - No real lady would let a dress that might have been worn by a stranger touch her skin.
+ - Hope is not an illusion.
+ - Black hair and blue eyes are my favorite combination.
+ - I am catastrophically in love with you.
+ - I love your name. I love the sound of it.
+ - They say time heals all wounds, but that presumes the source of the grief is finite.
+ - What’s the word for a perfectly reasonable fear of annoying idiots?
+ - The measure of love is to love without measure. – attributed to Saint Augustine.
+ - I would die for you. You know that. I would die without you. If it were not for you, I would be dead a hundred times over these past five years.
+ - I feel myself dissolving, vanishing into nothingness, for if there is no one in the world who cares for you, do you really exist at all?
+ - Jem: Come in. Jace: Where’s Brother Zachariah? Jem: I’m right here. Jace Herondale. And once more a Herondale is the object of my deliverance. I should have anticipated.
+ - Words have the power to change us.
+ - Love isn’t a weakness.
+ - But God knows, I don’t want anyone but you. I don’t even want to want anyone but you.
+ - Whither thou goest, I will go; Where thou diest, will I die And there will I be buried: The Angel do so to me, and more also, If aught but death part thee and me.
+ - If there’s a thing I’ve learned in my life it’s to not be afraid of the responsibility that comes with caring for other people. What we do for love: those things endure. Even if the people you do them for don’t.
+ - I can offer you my life, but it is a short life; I can offer you my heart, though I have no idea how many more beats it shall sustain.
+ - My name is Sabastian. I had a father, but he is dead. I had a mother, but she is dead to me. I have a brother, and I will Bind him to me. I have a sister, and I will teach her to love me. My name is Sabastain, and I am going to burn down the world.
+ - Our hearts, they need a mirror, Tessa. We see our better selves in the eyes of those who love us.
+ - Let me give you a piece of advice. The handsome young fellow who’s trying to rescue you from a hideous fate is never wrong. Not even if he says the sky is purple and made of hedgehogs.
+ - Go to faeries for gossip about vampires, to werewolves for gossip about faeries, and do not gossip about werewolves, because they try to bite your face off: that was Magnus’s motto.
+ - It has been the privilege and the honor of my life to know you.
+ - Why is it, little Shadowhunter, that your angels are so cold and without mercy? Why do they break that which will not obey them?
+ - Men may be stronger, but it is women who endure.
+ - Fate is never fair. You are caught in a current much stronger than you are; struggle against it and you’ll drown not just yourself but those who try to save you. Swim with it. and you’ll survive.
+ - He touched her face, gently, with the back of his hand. ‘you disappear so completely into your head sometimes.’ he said. ‘i wish i could follow you.’ you do, she wanted to say, you live in my head all the time.
+ - The Law is hard, but it is the Law.
+ - The good suffer, the evil flourish, and all that is mortal passes away.
+ - If you love someone, you’re not supposed to want them to come back. Better a peaceful sleep in the earth than the life of a zombie – not really dead but not really alive, either.
+ - Women do not think with logic and discretion but with emotions of the heart.
+ - Or maybe it’s just that beautiful things are so easily broken by the world.
+ - The world is a wheel. When we rise or fall, we do it together.
+ - I’ll take Shadowhunter, then. Because from what I’ve experienced of vampires, you mostly suck. No pun intended.
+ - For five years it had been his absolute truth. Jem and Will. Will and Jem. Will Herondale lives, therefore Jem Carstairs lives also.
+ - Our souls are knit. We are one person, James.
+ - Drowning yourself won’t help, she told herself sternly. Now, drowning Will, on the other hand...
+ - Half of your attention is better than all of anyone else’s.
+ - Fire tests gold.
+ - There might not be so much of a difference between the side of Light and the side of Dark as you suppose. After all, without the Dark, there is nothing for the light to burn away.
+ - He had lost Will Herondale. And he did not know if he could ever get him back.
+ - I keep thinking about blood, I dream about it. Wake up thinking about it. Pretty soon I’ll be writing morbid emo poetry about it.
+ - If you ever meet the man who could take advantage of Isabelle, you’ll have to let me know. I’d like to shake his hand. Or run away from him very fast, I’m not sure which.
+ - The best lies are based on the truth, at least in part.
+ - I was alive when the Dead Sea was just a lake that was feeling a little poorly.
+ - Beauty fades, but cooking is eternal.
+ - Not everything that’s true needs to be said.
+ - Astriola. That IS demon pox. You had evidence that demon pox existed and you didnt mention it to me! Et tu, Brute!? He rolled up the paper and hit Jem over the head with it.
+ - You’re so easy to tease. And yes, your friend is just fine. Well, except that he keeps putting all my things away and trying to clean up. Now I can’t find anything. He’s compulsive.
+ - Brown is a manly color.
+ - I don’t do what I’m told, but I might do what you want if you ask me nicely.
+ - If there were such a thing as terminal literalism, you’d have died in childhood.
+ - She did not belong to Will-she was too much herself to belong to anyone, even Jem-but she belonged with them, and silently he cursed the Consul for not seeing it.
+ - But you hate poetry! Yes, but you make me want to write it.
+ - I get a lot of inspiration from research in mythology and folklore, I find that stories people told each other thousands of years ago are still relevant now.
+ - You are not trivial.
+ - It was like I saw your soul in the notes of the music. And it was beautiful.
+ - Going round and around inside a dryer can be fatal, whereas pasta is rarely fatal. Unless Isabelle makes it.
+ - Scrawny little mundane bastard.
+ - When two people are at one in their inmost hearts, they shatter even the strength of iron or bronze.
+ - Declarations of love amuse me. Especially when unrequited.
+ - She had never thought about her name much before, but when he said it, it was as if she were hearing it for the first time – the hard T, the caress of the double S, the way it seemed to end on a breath.
+ - That Jem makes beautiful things and I destroy them. That it really ought to be me dying and not him. I mean, what’s the point of living if you can’t even enjoy it? Yet Jem enjoys all the life he’s got. It’s not fair.
+ - Every book is different with it’s own personality just like children.
+ - The funny thing about mundies is how obsessed with magic they are for a bunch of people who don’t even know what the word means.
+ - I think he’s jealous.
+ - I love reading epic fantasies and big fat books and so I really wanted to write one. I think you always write what you want to read.
+ - Sorry, are you telling me that your demon-slaying buddies need to be driven to their next assignment with the forces of darkness by my mom?
+ - But Magnus, he thought. You never told me. Never warned me it would be like this, that I would wake up one day and realize that I was going somewhere you couldn’t follow. That we are essentially not the same. There’s no “till death do us apart” for those who never die.
+ - Every time you almost die, I almost die myself.
+ - There was an electric anger in his gaze, and a sort of challenge that made Simon long to hit him with something heavy. Like a pickup truck.
+ - You have to give everyone ugly motives for everything they do, because ugly motives are all you understand.
+ - One can give up many things for love, but one should not give up oneself.
+ - Well I’d certainly hate to interrupt your pleasant night stroll with my sudden death.
+ - You have ruthlessness in your bones and ice in your heart, Clarissa. Don’t tell me any differently.
+ - While the Clave disapproves of trespassers, oddly they take an even darker view of beheading and skinning people. They’re peculiar that way.
+ - Come in. And try not to murder any of my guests.
+ - If only Simon were here. He could probably bore you to sleep.
+ - I’ll just have them change the entry in the demonology textbook from ‘almost extinct’ to ‘not extinct enough for Alec. He prefers his monsters really, really extinct.’ Will that make you happy?
+ - You’ve always been what you are. That’s not new. What you’ll get used to is knowing it.
+ - When our hearts break, they break into shards that cannot be easily fit back together.
+ - All I know is that I love you. And for the first time, that’s good enough.
+ - I hate ducks. Don’t know why. I just always have.
+ - I’ve never asked him but I’m sure he has a fairly stringent policy about random teenagers lurking in his shrubbery.
+ - What I actually want to call you is a hell of a lot more unprintable than your name.
+ - The only one who gets to canoodle in my bedroom is my magnificent self.
+ - I knew you were crazy, but I didn’t realize that you were out of your goddamned mind!!
+ - His eyes were green.
+ - For this I would be damned forever. For this I would have given up everything.
+ - Vampires bore a grudge longer than any technically living creatures, and whenever they were in a bad temper, they expressed themselves through murder.
+ - You’d think the Angel would have been foresighted enough to give us a birth-control rune, but no dice.
+ - Jace, There is no wedding! Stop Isabelle! Sit on her if you have to. Just stop her from doing whatever she’s doing or I can never come home. -Alec.
+ - That’s why girls have boyfriends. So you have someone to take you to boring functions.
+ - She seemed shy, yet all her attention was focused on Magnus, as if he were the most fascinating thing she had ever seen. There was no man who did not want to see himself reflected like that in a beautiful girl’s eyes.
+ - The only time people turned to watch her go by was when she hurtled past them as she fell.
+ - She said that you’ve break my heart.
+ - Well, then, since you say there will be another life for me, let us both pray I do not make as colossal a mess of it as I have this one.
+ - He’d felt like a jack-o-lantern for the past few days, as if his guts had been yanked out with a fork and dumped in a heap while a grinning smile stayed plastered on his face.
+ - Sometimes carrying the burden of an upsetting truth, and hiding it, is actually a gift you give to someone else. You bear that burden, so they don’t have to, in a situation where telling them will change nothing.
+ - There were some memories, though, that never faded.
+ - Hey guys! Wish you were here, except not really. We’re having fun. Check it out-the pyramids! -Alec and Magnus.
+ - There are ways in which we’re so alike. We’re reckless. We don’t think before we act. We’ll do anything for people we love. And I never thought how scary that was for the people who loved me until I saw.
+ - I feel myself diminished, parts of me spiralling away into the darkness, that which is good and honest and true – If you hold it away from yourself long enough, do you lose it entirely? If no one cares for you at all, do you even really exist?
+ - In difficult times, in dark times, some people shine.
+ - His steady gaze held hers. His blue eyes were very dark, uniquely so. She had known people before with blue eyes, but they had always been light blue. Will’s were the color of the sky just on the edge of night.
+ - Every meeting led to a parting, and so it would, as long as life was mortal. In every meeting there was some of the sorrow of parting, but in everything parting there was some of the joy of meeting as well.
+ - Everything that happens to you matters to me.
+ - Look at him. The face of a bad angel and eyes like the night sky in Hell. He’s very pretty, and vampires like that. I can’t say I mind either.
+ - I loved you recklessly from the moment I knew you. I never cared about the consequences. I told myself I did, I told myself you wanted me to, and so I tried, but I never did. I wanted you more than I wanted to be good. I wanted you more than I wanted anything, ever.
+ - No good sentences ever include the word ‘should.’ I should have paid the tavern bill; now they’re coming to break my legs. I should never have run off with my best friend’s wife; now she devils me constantly. I should –.
+ - There are things our souls want, and mine wants you.
+ - I’m not a man. I have no male pride for you to trick me with, and I am not interested in single combat. That is entirely a weakness of your sex, not mine. I am a woman. I will use any weapon and all weapons to get what I want.
+ - All my life, since I came to the Institute, you were the mirror of my soul. I saw the good in me in you. In your eyes alone I found grace. When you are gone from me, who will see me like that?
+ - I love you; I love you and I don’t care that you’re my sister; don’t be with him, don’t want him, don’t go with him. Be with me. Want me. Stay with me. I don’t know how to be without you.
+ - I always thought I was happy being the dark star to your supernova.
+ - I think of myself as a freewheeling bisexual,? – Magnus Bane.
+ - No, I’m just a very naughty boy. I do all sorts of bad things. I kick kittens. I make rude gestures at nuns.
+ - I’m tired of watching you be in love with someone else someone who will never love you back, not the way I do.
+ - Life is full of risks. Death is much simpler.
+ - Grief makes you feel alone, but you’re not. I know you don’t believe in-in religion-the same way I do, but you can believe you’re surrounded by people who love you, can’t you?
+ - It’s your gift, to see the beauty and the horror in ordinary things. It doesn’t make you crazy, just different.
+ - I think you were the wrong person for the Jace that I was, but not the Jace that I am now, the Jace you helped make me. Who is, incidentally, a Jace I like much better than the old one. You’ve changed me for the better, and even if you left me, I would still have that.
+ - She hated that will had this effect on her. Hated it. She knew better. She knew what he thought of her. That she was worth nothing. And still a look from him could make her tremble with mingled hatred and longing. It was like poison in her blood, to which Jem was the only antidote.
+ - Forever does not make loss forgettable, only bearable, Brother Zachariah to Clary Fray.
+ - Wo men shi jie bai xiong di-we are more than brothers, Will.
+ - I know you worry about me needing you, but I shouldn’t be with you because I need you. I should be with you because I love you.
+ - I love you, Tessa, and I have loved you, almost since the moment I met you.
+ - When you find a man you wish to marry, Tessa, remember this: You will know what kind of man he is not by the things he says, but by the things he does.
+ - Maybe. Although I doubt most Shadowhunters get a tattoo of Donatello from the Teenage Mutant Ninja Turtles on their left shoulder.
+ - Have a little faith in my magic fingers.
+ - But I watch my brothers give their hearts away and I think, Don’t you know better? Hearts are breakable. And I think even when you heal, you’re never what you were before.
+ - You are in love and you think that is all there is in the world. But the world is bigger than you, Will, and may have need of you. You are a Shadowhunter. You serve a greater cause. Your life is not yours to throw away.
+ - Give me one good reason why I shouldn’t chop him into worthless-bastard-themed confetti. – Isabelle Lightwood.
+ - So I lied to you last night. I said that I just wanted one night with you. But I want every night with you.
+ - Nothing less than 7 inches.
+ - But maybe you never really had someone, she thought now. Maybe, no matter how much you loved them, they could slip through your fingers like water, and there was nothing you could do about it.
+ - Not your parabatai any longer.
+ - Don’t make it sound like that. Like some ordinary sort of grief. It’s not like that. They say time heals all wounds, but that presumes the source of the grief is finite. Over. This is a fresh wound every day.
+ - Maybe you should call him,? Simon suggested, trying not to think too hard about how weird it was to be giving a demon hunter advice about possibly dating a warlock.
+ - All things tend toward entropy. The whole universe is moving outward, the stars pulling away from one another, God knows what falling through the cracks between them.
+ - We are not our parents, Gabriel. We do not have to carry the burden of their choices or their sins.
+ - My mom says you only need three people you can rely on to achieve self-actualization.
+ - Mr. Rochester never courted Jane Eyre, Tessa pointed out. No, he dressed up as a woman and terrified the poor girl out of her wits. Is that what you want?
+ - Unrequited love is a ridiculous state, and it makes those in it behave ridiculously.
+ - I know it’s wrong – God, it’s all kinds of wrong – but I just want to lie down with you and wake up with you, just once, just once ever in my life.
+ - Sometimes our lives can change so fast that the change outpaces our minds and hearts.
+ - I’m pure at heart. It repels the dirt.
+ - Despite everything, I can’t bear the thought of this ring being lost forever, any more than I can bear the thought of leaving you forever. And though I have no choice about the one, at least I can choose about the other.
+ - Weapons, when they break and are mended, can be stronger at the mended places. Perhaps hearts are the same.
+ - All knowledge hurts.
+ - My rapier wit hides my inner pain.
+ - You and your name dropping he said, I knew Michael, I knew Sammael. The angel Gabriel did my hair. Its like I’m with the band with biblical figures.
+ - She managed a smile. “You’re kind of pushy, you know.” He shrugged. “I have a fetish for damsels in distress.” “Don’t be sexist.” “Not at all. My services are also available to gentlemen in distress. It’s an equal opportunity fetish,” he said, and with a flourish, offered his arm again.
+ - Don’t bother her, don’t try to talk to her, don’t even look at her, or I’ll fold you in half so many times you’ll look like a tiny little origami werewolf.
+ - The Silent brothers are doing nude cartwheels in the hallways.
+ - Love potions? For Will Herondale? T’aint my way to turn down payment, but any man who looks like you has got no need of love potions, and that’s a fact.
+ - I don’t think Will Herondale and a sense of responsibility are even on speaking terms.
+ - Shadowhunters were brought up to handle anything, weren’t they?
+ - You think they are kind, that the Nephilim are kind, because they are good, but goodness is not kindness, and there is nothing crueler than virtue. -Amatis Herondale.
+ - I want you to be happy, and him to be happy. And yet when you walk that aisle to meet him and join yourselves forever you will walk an invisible path of the shards of my heart Tessa. I would give over my own life for either of yours.
+ - Never doubt my weaseling abilities, Shadowhunter, for they are epic and memorable in their scope.
+ - It’s not like a stab wound you can protect me from. It’s like a million little paper cuts every day.
+ - He kissed each finger, and with each one of them spoken a word. Five kisses, five words. His last.
+ - People who know and love the same books as you, have the road map to your soul.
+ - You love each other – anyone can see that, looking at you – that kind of love that can burn down the world or raise it up in glory.
+ - Memories did one no good, not when one knew the truth in the present. Will was beautiful, but he was not hers; he was anybody’s. Something in him was broken, and trough that break spilled a blind cruelty, a need to hurt and to push away.
+ - We are chained to this life by a chain of gold, and we dare not sever it for fear of what lies beyond the drop.
+ - The only way that we can protect each other is if we are together. If we face things together. If we trust each other.
+ - As if we’d have sex in a cave surrounded by hordes of demons. This is reality, not your fevered imagination.
+ - Jealousy is such an ugly emotion.
+ - Hearts are breakable, but even when you heal, you’re never what you were before.
+ - Words were weapons, his father had taught him that, and he’d wanted to hurt Clary more than he’d ever wanted to hurt any girl. In fact, he wasn’t sure he had ever wanted to hurt a girl before. Usually he just wanted them, and then he wanted them to leave him alone.
+ - Everyone gets the time they get together, and no more. Maybe we’re not so different that way.
+ - I hate Brooklyn.
+ - One does no question miracles, or complain that they are no constructed perfectly to one’s liking.
+ - My will and my desire were turned by love, the love that moves the sun and the other stars.
+ - At last, the wheel comes full circle.
+ - Only Jace, Clary thought, could look cool in pajama bottoms and an old T-shirt, but he pulled it off, probably through sheer force of will. -pg. 329-.
+ - Dear me. Such harsh truths so early in the morning cannot be good for the digestion.
+ - To draw something is to try to capture it forever.
+ - He found himself wanting to write poetry about how her blue eyes were like starlight and her hair like night, because “night” and “starlight” rhymed, but he had a feeling the poem wouldn’t turn out that well...
+ - I feel like you can look inside me and see all the places I am odd or unusual and fit your heart around them, for you are odd and unusual in just the same way. We are the same.
+ - I take your hand, brother, so that you may go in peace. Will had opened his blue eyes that never lost their colour over all the passing years, and looked at Jem and then Tessa, and smiled, and died, with Tessa’s head on his shoulder and and his hand in Jem’s.
+ - She had never imagined she had the power to make someone else so happy. And not a magical power, either – a purely human one.
+ - Dear Alec and Magnus, I known we’re not really close, but Isabelle just came by to drop off a pleated orange velvet tux that she claims I will be wearing to your wedding. Is this true, and if so, why orange? -Simon.
+ - I am a badass, and I recognize that you, too, are a badass.
+ - Break a leg up there, and I’ll be down here hopefully breaking someone elses.
+ - I’m not unsympathetic. But do you like me? Because this being gay business doesn’t mean you can just throw yourself at any guy and it’ll be fine because he’s not a girl. There are still people you like and people you don’t.
+ - He played of love and loss and years of silence, words unsaid and vows unspoken, and all the spaces between his heart and theirs; and when he was done, and he’d set the violin back in its box, Will’s eyes were closed, but Tessa’s were full of tears.
+ - God knows we’re all drawn to what’s beautiful and broken.
+ - Your angel cannot protect you against that which neither god nor the devil had made.
+ - She hated that little voice inside her head. Like the Seelie Queen, it planted doubts where there shouldn’t be doubts, asked questions that had no answer.
+ - If you’re texting Magnus to say ‘I think u r kewl’ I’m going to kill you.
+ - I knew then that Jocelyn would never come back to me, because of you. You are the only thing in the world she ever loved more than she loved me. And because of that she hates me. And because of that, I hate the sight of you.
+ - If I get work done early, I can do some interacting with fans online, or see my friends. If I don’t get that work done, you may not see much of me!
+ - Life was an uncertain thing, and there were some moments one wished to remember, to imprint upon one’s mind that the memory might be taken out later, like a flower pressed between the pages of a book, and admired and recollected anew. – Sophie and Gideon Lightwood.
+ - Will has always been the brighter burning star, the one to catch attention – but Jem is a steady flame, unwavering and honest. He could make you happy.
+ - We’ve been here before, haven’t we? Last time you were starving, I gave you my blood. It was a little homoerotic, maybe, but I’m secure in my sexuality.
+ - You have something on your neck. What Looks like a bite mark, what were you doing out all night, anyway? Nothing. I went walking in the park. Tried to clear my head. And ran into a vampire What? No! I fell. On your neck?
+ - Achilles was murdered with a poisoned arrow, and Jason died alone, killed by his own rotting ship. Such is the fate of heroes.
+ - Why should I tell you everything about how I feel when you never tell me anything?
+ - I want to kiss you one more time before I die.
+ - I am drawn to writing books about magic and the supernatural because those are the types of books I like to read. I’ve written many short stories with realistic settings, and I certainly wouldn’t rule out realistic novels in the future!
+ - Ghosts are memories, and we carry them because those we love do not leave the world.
+ - Maybe that was why she couldn’t cry, she realized, staring dry-eyed at the ceiling. Because what was the point in crying when there was no one there to comfort you? And what was worse, when you couldn’t even comfort yourself?
+ - Eternity is a long time to spend alone, without others of your kind.
+ - Truth is brighter than Light Falsehood darker than night Revenge is keener than Axe and Love is softer than melting wax.
+ - If I kiss you all day every day for the rest of my life, it won’t be enough.
+ - The boy was standing alone as though the broken glass all around him were a shining sea and he were an island.
+ - I get the feeling you’d rather pine over someone you can never possibly be with than try being with someone you can.
+ - Through many waters borne, brother, I am come to thy sad grave, that I may give these last gifts to the dead. Forever and ever, brother, hail. Forever and ever, farewell.
+ - What is one person’s pleasure is another’s poison...
+ - Nerd love. It’s a beautiful thing, while also being an object of mockery and hilarity for those of us who are more sophisticated.
+ - Jace suggested that the cast of “Gilligan’s Island” could go do something anatomically unlikely with themselves.
+ - Desire is not always lessened by disgust. Nor can it be bestowed, like a favor, to those most deserving of it. And as my words bind my magic, so you can know the truth. If she doesn’t desire his kiss, she won’t be free.
+ - Because you told me you don’t have feelings for me anymore, and you see, that’s very akward, because I still have them for you. And I bet you know it.
+ - He could smell her morality, the sweet rot of corruption.
+ - You don’t get it, Clary. You don’t understand what it’s like to live always at war, to grow up with battle and sacrifice. I guess it’s not your fault. It’s just how you were brought up-.
+ - If love is great, then it is worth fighting for.
+ - Your place is with me. It always will be. -Jem Carstairs.
+ - You left me. You made a pet out of me, and then you left me. If love were food, I would have starved on the bones you gave me.
+ - I don’t know why I had to fall in love with someone who’s more stubborn than I am.
+ - Pointless, needless suffering and pain? I don’t suppose it would help if I told you that was the way life is. The good suffer, the evil flourish, and all that is mortal passes away.
+ - He recognized and accepted this strange new feeling: that he would rather be hurt himself than hurt Alec.
+ - We are ever capable of change and ever capable of being our better selves.
+ - Wherever we are, we are as one.
+ - Don’t sulk. For someone with all the grace and coordination of a pregnant wildebeest, you did great.
+ - Caliph Vathek and his dark horde Are bound for Hell, you won’t be bored! Your faith in me will be restored – Unless this token you find untoward And my poor gift you have ignored.
+ - Have you fallen in love with wrong person yet?
+ - I knew then that I hadn’t stopped believing in God. I’d just stopped believing God cared. There might be a God, Clary, and there might not, but I don’t think it matters. Either way we’re on our own.
+ - I told you to bring me to Alec! Backstabbing Judas.
+ - Because viewing my naked chest has caused many women to seriously injure themselves stampeding to get to me.
+ - Alec had his arms around Magnus and was kissing him, full on the mouth. Magnus, who appeared to be in a state of shock, stood frozen.
+ - I’d always hoped that when i said ‘I Love You’ to a girl, she’d say ‘I Know’ like Leia did to Han in Return Of The Jedi.
+ - It is not easy to be different, and even less so to be unique.
+ - So you interrupted my date to make fun of me for still living with my parents. Couldn’t you have done that on a night I didn’t have a date? That’s most nights, in case you’re curious.
+ - Will you do me the honor of being my wife?
+ - Because in the end nothing is worse than seeing the fall of one you loved. It was somehow worse than losing a love. It made everything seem questionable. It made the past bitter and confused.
+ - If we’re going to the Silent City, you might want to get dressed. I mean, I appreciate the bra-and-panties look, but I don’t know if the Silent Brothers will. There are only a few of the left, and I don’t want them to die of excitement.
+ - They had met at a club fifteen years before, Etta and Magnus. He had convinced her to dance with him, and she said she had been in love by the end of the song. He told her he had been in love before the beginning.
+ - You never really hate anyone as much as someone you cared about once.
+ - I’m from New Jersey. I was born in toxic sludge.
+ - You understand my music.
+ - Go in peace, James Carstairs.
+ - Some secrets, she thought, were better told; some were better left the burden of the carrier, that they might not cause pain to others.
+ - Hail and Farewell, my brother.
+ - You might want to put some clothes on’ suggested Jace ‘I’m all for the bra and panties look, but you don’t want the Silent Brothers to die of excitement.
+ - He held her close enough to kiss, close enough to whisper the most important secrets in the world, and he spoke to her as he would have wanted some good angel to speak to his family, to his own shivering young soul, long ago and in a land far away.
+ - Family is more than blood.
+ - Before Clary could respond, Jace’s eyes slid open. He looked up at the warlock, dazzled and dizzy. “What are you doing here?” Magnus grinned down at Jace, and his teeth sparkled like sharpened diamonds. “Hey roommate,” he said. -pg. 128-.
+ - You are a great deal of trouble, Jace Herondale.
+ - Do you often sleep tied to the bed?
+ - Jem is nothing but goodness. That he struck you last night only shows how capable you are of driving even saints to madness.
+ - She unwrapped the blanket when she came in my door. You were inside it. She set you down on the floor and you started ranging around, picking things up, pulling my cat’s tail – you screamed like a banshee when the cat scratched you, so I asked your mother if you were part banshee. She didn’t laugh.
+ - I shall never eat duck again. I cannot believe I used to like duck. The duck betrayed me.
+ - There was a man once who said that mothers carry the key of our souls with them all our lives. But you threw mine away.
+ - Every heart has its own melody.
+ - Lord Raziel. Surely yoy would not have allowed such a thing as a ritual by wich you might be summoned to exist if you did not intend to be summoned. We Nephilim are your children. We need your guidance.
+ - One must look at the next step on the path ahead, rather than the mountain in the distance, or one would never reach one’s goal.
+ - The path to hell is an easy one.
+ - I get a lot of inspiration from Japanese manga, especially shoujo which tends to have elaborate and fantastical adventure plots.
+ - You have a book that’s also a face?
+ - My old tutor used to say that the hearts of Nephilim were like the hearts of angels: They felt every human pain, and never healed.
+ - I was the quiet kid in the corner, reading a book. In elementary school, I read so much and so often during class that I was actually forbidden from reading books during school hours by my teachers.
+ - Will gave a short laugh. He was in gear as if he had just come from the practice room, and his hair curled damply against his temples. He was not looking at Tessa, but she had grown used to that. Will hardly ever looked at her unless he had to.
+ - Always ask for what you want, because the worst thing that can happen is embarrassment but the best thing that can happen is nudity.
+ - We’re Nephilim. Every one of our life’s passages has some mystical component – our births, our deaths, our, marriages, everything has a ceremony and a rune. There is one as well if you wish to become someone’s parabatai. It’s no small commitment.
+ - She had always wanted a brother. And she had one now. Sebastian. It was like always wanting a puppy and being a hellhound instead.
+ - You kindled me, heap of ashes that I am, into fire. He had wondered once why love was always phrased in terms of burning. The conflagration in his own veins, now, gave the answer.
+ - But it doesn’t change what we are to each other. It’s like there’s always been a piece of my soul missing, and it’s inside you, Clary. I know I told you once that wheter God exists or not, we’re on our own. But when I’m with you, I’m not.
+ - What you said was true. we don’t live or love in a vacuum. There are people around us who care about us who would be hurt, maybe destroyed if we let ourselves feel what we might want to feel.
+ - I saw Jonathan after he faced the fear demon, you know. It showed itself to him as you. That told me all I needed to know. The greatest fear in Jonathan’s life is the love he feels for his sister.
+ - I was going to kill someone today. I just wasn’t sure who when I woke up this morning. I do love mornings. So full of possibilities.
+ - He always lived in his head. He never cared about how things were, only how they would be, someday, when he had everything he wanted. When we had everything we wanted.
+ - I’ve been wandering around all night – I couldn’t sleep – and I kept finding myself walking here. To you.
+ - He’s my neophyte Downworlder to mock and boss around, not yours.
+ - I have lost everything. Lost everything. Everything. – William Herondale.
+ - That’s why when major badasses greet each other in movies, they don’t say anything, they just nod. The nod means, ‘I’ am a badass, and I recognize that you, too, are a badass,? but they don’t say anything because they’re Wolverine and Magneto and it would mess up their vibe to explain.
+ - Inanimate objects are harmless indeed, Mr. Mortmain. But one cannot always say the same of the men who use them.
+ - The more beautiful the skin is, the more deadly it is. That’s what Will’s like. All that pretty face and whatnot just hides how twisted up and rotten he is on the inside.
+ - I have a high pain threshold. In fact, it’s more of a large and tastfully decorated foyer than a threshold. But I do get easily bored.
+ - I only count the hours that shine.
+ - There will always be those who want to tell you who you are based on your name or the blood in your veins. Do not let other people decide who you are. Decide for yourself.
+ - One finds nobility in the oddest places.
+ - Their grandchildren had reminded Will of the song about demon pox he had taught them- when they were much too young, Tessa had always thought- and that they had all memorized. They sang it all together and out of tune, scandalizing Sophie.
+ - If you insist on disavowing that which is ugly about what you do, you will never learn from your mistakes.
+ - Demon Pox, oh, Demon Pox Just how is it acquired? One must first go to the bad part of town Until one is very tired Demon Pox, oh, Demon Pox I had it all along- No, not the pox, you foolish blocks I meant this very song- For i was right, and you were wrong!
+ - Have you ever felt that your heart contained so much that it must surely break apart.
+ - That sounds terrific, thought Cary, just you, your comatose wife your shell-shocked son, and your daughter who hates your guts. Not to mention that your two kids may be in love with each other. Yeah, that sounds like a perfect family reunion.
+ - Jace knew he was being cruel, and he barely cared. Hurting people he loved was almost as good as hurting himself when he was in this kind of mood.
+ - Oh, good. You’re starting to talk about yourself in the third person. That’s not a sign of impending megalomania or anything.
+ - To be friends is a beautiful thing, Tessa, and I do not scorn it, but I have hoped for a long time now that we might be more than friends.
+ - You have a power of incalculable value. You need ask nothing of anyone. You need depend on no one. You are free, and that freedom is a gift.
+ - The Nephilim – the bogeyman for monsters, and all those who could be monsters.
+ - Someday, Will, I will go where none can follow me, and I think it will be sooner rather than later. Have you ever asked yourself why I agreed to be your parabatai?
+ - You’d better hurry up to the Gard and back. God knows what depravity we might get up to here without your guidance.
+ - She realized that this scarred, sarcastic boy, was gentle with the things he loved.
+ - I am a hundred and forty six years old and this is not my first unwinnable war.
+ - Do reasons matter when there’s nothing that can be done to change things.
+ - Goodness, real goodness, has it’s own sort of cruelty to it.
+ - You promise me, he said. That you love him. Enough to marry him and make him happy.
+ - To love is to destroy, to destroy is to love. -Jace Herondale.
+ - Maybe I want a black eye. Did you think of that?
+ - How could you be heartbroken and happy at the same time?
+ - Alec slid his hand from Jace’s arm to his shoulder. Magnus cleared his throat. Alec dropped his hand. Simon grinned into his undrunk coffee.
+ - Their beauty had always seemed to him like the beauty of pressed flowers-lovely, but dead.
+ - Perfect heroines, like perfect heroes, aren’t relatable, and if you can’t put yourself in the protagonist’s shoes, not only will they not inspire you, but the book will be pretty boring.
+ - How strange to have the power to literally transform yourself into other people, and yet be so unable to put yourself in their place.
+ - No one can say that death found in me a willing comrade, or that I went easily.
+ - I was thinking about the first time I ever saw you and how after that I couldn’t forget you. I wanted to, but I couldn’t stop myself.
+ - Perhaps, but you would not exist without a woman, would you? However little use you may find us, we are cleverer and more determined and more patient than men. Men may be stronger, but it is women who endure.
+ - I want my people to be protected, strong, and not to be driven into corners until they either become killers or are killed!
+ - It’s because you’re too scared to tell anyone who you really love. Love makes us liars.
+ - And the gold of her ruined wedding dress.
+ - Beauty is harsh.
+ - Love takes your choices away.
+ - As metal rang on metal, some inner part of Jem, some part that had been lost without his even knowing it was lost, felt the pleasure of fighting together with Will one last time.
+ - He had electric blue hair that had stuck around his head like tendrils of a startled octopus.
+ - Usually I’m remarkably good natured. Try me on a day that doesn’t end in y.
+ - When I was a little kid, I realized that if you say any word over and over fast enough, it loses all it’s meaning.
+ - James had given his heart to this girl, Magnus thought, and Magnus knew well enough from Edmund and Will what it meant when a Herondale gave his heart away. It was not a gift that could be returned.
+ - To be beautiful you had to be willowy and tall. When you were as short as Clary was, just over five feet, you were cute. Not pretty or beautiful, but cute.
+ - If you wanted to rip my clothes off, you should have asked.
+ - Better to love and fear than feel nothing.
+ - A great sadness welled up in Magnus at the sight of him. It was human to age and die, and Jem stood outside that humanity now, outside the light that burned so brightly and so briefly. It was cold outside that light and fire. No one had greater cause to know that cold than Magnus did.
+ - They all have always loved you, Will Herondale, for you cannot hide what is good about yourself, however hard you try.
+ - I really love fantasy. I have to say it is my favourite genre to read and one of the genres I love the most to write.
+ - All Lightwoods look the same to me –.
+ - Forever and ever, brother, hail. Forever and ever, farewell.
+ - Every life is finite, Will.
+ - What if everything you believe is wrong and you could still be loved and still be forgiven?
+ - Wanderlust is not unheard of in our kind; it comes upon us now and then. When you can live forever, staying in one place can come to seem a dull prison after many, many years.
+ - She looked up at him with a smile. The smile broke what was left of his resistance – shattered it. He had let the walls down when he’d thought she was gone, and there was no time to build them back up.
+ - The Clave thinks the wards will stand forever because they’ve stood for a thousand years. But so did Rome, till the barbarians came. Everything falls someday.
+ - Tell me, is he always really rude, or does he save that for mundanes?
+ - Love and lies can corrupt even the purest heart.
+ - You can’t just go around killing people. You’re right. You can’t go around killing people.
+ - I thought of love as a game. It is not a game. It is more serious than death.
+ - There are some kinds of wounds you can get, internal injuries. You don’t know what’s wrong with you, but you’re bleeding to death slowly inside.
+ - It isn’t against the Law to be an idiot.
+ - No fewer than four of my esteemed elders told me I was on no account to ever converse with you, so I vowed that I would know you. My name is Edmund Herondale. May I ask your name? They reffered to you only as ’that disgraceful one-warlock show.
+ - If there was one thing she was learning from all this, it was how easy it was to lose everything you had always thought you’d have forever.
+ - Do you have a lot of other profound thoughts like that? Blood is blood? A toaster is a toaster? A Gelatinous Cube is a Gelatinous Cube?
+ - Hodge had given up a long time ago trying to live a better life or a different one; all he wanted was not to be afraid, and so he was afraid all the time.
+ - Our own Sleeping Beauty. Who finally kissed you awake?
+ - Far below ran the silver ribbon of the East River, braceleted by shining bridges, flecked by boats as small as flyspecks, splitting the shining banks of light that were Manhattan and Brooklyn on either side.
+ - Even in half demon hunter clothes, Clary thought, he looked like the kind of boy who’d come over your house to pick you up for a date and be polite to your parents and nice to your pets. Jace on the other hand, looked like the kind of boy who’d come over your house and burn it down just for kicks.
+ - And then you’d turn to me and smile that funny smile, and I know you’d forgotten all about me and just remembered – but I was never mad at you. Half of your attention is better than all of anyone else’s.
+ - He didn’t know what books meant to her, that books were symbols of truth and meaning...
+ - You know what the worst thing I can imagine is? Simon had said. Not trusting someone I love.
+ - The destruction of all Shadowhunters’ said Scott. ‘I rather thought you knew that. It isn’t a gardening club.
+ - Now that I’m in your mind, want to see some naked mental pictures of Jace?
+ - Also, I’m sleeping with your mom. Just thought you should know.
+ - Alec keeps sending me annoying photos. Lots of captions like Wish you were here, except not really.
+ - As if I could stop loving you. As if I would want to give up the thing that makes me stronger than anything else ever has. Since the first time I saw you, I have belonged to you completely.
+ - Speaking of hope, did you see that shot Alec got off with his bow? That’s my boyfriend.
+ - Wasn’t it? Is loyalty still a commendable quality when it is misdirected?
+ - Whoever loves you now – and you must also love yourself – will love the truth of you.
+ - With their hands clasped like children in a fairy tale, she fell asleep beside him in the dark.
+ - He was Will, in all his perfect imperfection; Will, whose heart was as easy to break as it was carefully guarded; Will, who loved not wisely but entirely and with everything he had.
+ - Other crack teams get bat boomerangs and wall-climbing powers; we get Aquatruck.
+ - You have a dark heart in you, Valentine’s daughter.
+ - Clary stopped dead in her tracks. “Simon?” “Oh, God,” said Jace, sounding resigned. “And here I’d actually hoped I’d got hold of something interesting.” -Clary and Jace pg. 114.
+ - They both believed in her even when she didn’t believe in herself.
+ - His eyes went soft and silver as she spoke. “Zhe shi jie shang, wo shi zui ai ne de,” he whispered. She understood it. In all the world, you are what I love the most.
+ - In fiction, the actions of a villain, even when unspeakable, can be cathartic to read about. They let us experience darkness, but add a safe remove.
+ - There. She had thanked Sebastian. She waited for a bolt of lightning to shoot out of the clouds and striker her dead. But nothing happened.
+ - I would rather insult you than lose you, he said, and before any of them could make a move to stop him, he cast both items into the fire.
+ - Tatiana’s eyes were huge and poison-green, eyes with enough pain in them to eat away at a world and devour a soul.
+ - Don’t take this the wrong way, but you smell like Magnus.
+
+500 quotes

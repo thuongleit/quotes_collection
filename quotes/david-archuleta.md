@@ -1,0 +1,50 @@
+ - Tell me why you’re so hard to forget. Don’t remind me, I’m not over it. Tell me why, I can’t seem to face the truth, I’m just a little too not over you.
+ - I made up my mind not to care so much about the destination, and simply enjoy the journey.
+ - Fate rarely calls upon us at a moment of our choosing.
+ - Tell the truth. Sing with passion. Work with laughter. Love with heart.
+ - Sometimes when you least expect it, the tables turn and that scary feeling that has taken hold of you for so long somehow turns into hope.
+ - Am I crazy or falling in love? Is it really just another crush?
+ - I like to believe that you don’t need to reach a certain goal to be happy. I prefer to think that happiness is always there, and that when things don’t go the way we might like them to, it’s a sign from above that something even better is right around the corner.
+ - Without the darkness, we can’t really appreciate the light.
+ - It’s so important for girls to respect themselves and not put themselves down and say, ‘Oh, my life is horrible,’ and ‘I’m not pretty enough.’ How do you know? There’s this energy people give off that people can be drawn to.
+ - What Ive learned is that music affects the way you feel. A song can change someones life.
+ - Friends are the ones who will always have your back and their perspective on you doesn’t change no matter what.
+ - Don’t make a sound I’ll be your voice You don’t need to be afraid Anymore I’ll shine a light out in the dark Guide you here no matter how far.
+ - Being on a mission-not thinking about myself and focusing on serving other people-is what brought me closer to God than anything else.
+ - Without inspiration, we’re all like a box of matches that will never be lit.
+ - No one can see your life the way you see it.
+ - Things never happen exactly how you think they will.
+ - I hope to always be myself, except more mature and knowing more.
+ - More than fans, they felt like a team of morale-boosters who would always be around to remind me of my own worth.
+ - I want to be the best parent I can be. I want to be the best husband I can be.
+ - No one can understand what’s the best thing for you to do, other than yourself.
+ - I think the best way people can connect to you is by being real.
+ - Relationships are about helping motivate each other to be all that you can be.
+ - Sometimes you need to trust those around you because they may see something in you that you can’t see.
+ - I think it’s really important to treat yourself with respect because sometimes people can get down on themselves.
+ - Only recently I’ve learned, it’s an obvious thing, but it just took me a while to realize.
+ - The reason why you date people is to get to know who you’re gonna marry and spend the rest of your life with.
+ - To be honest I always have to say no one is guiding me better than God.
+ - It’s really important to do everything that you possibly can to stay true to yourself.
+ - If you have kids and stuff what kind of dad do I wanna be for my kids, and what kind of mom do I want them to have.
+ - It’s fun just spending time with everyone. It’s something that’s so simple, yet so valuable to me.
+ - Wasting time just going mindless, watching your charades. When you were younger, did it occur to you 10 years from then you’d act the same age?
+ - And remember, even when you can’t sing, you can always plant a tree.
+ - Sometimes I wish I could just wear the same thing every day. Cartoons do it. It’d make things a lot easier.
+ - I wouldn’t change anything. Even the minor things or problems are what influence who I am.
+ - When they’re people who are your fans, you know, ’cause they really feel what you’re singing, that’s my favorite.
+ - Its cool when people notice that you make an effort to live certain values.
+ - Sometimes we need to take back and take a look at ourselves, a look at where we are.
+ - I want to make decisions as to where I want to go as an artist, and to get to it in my own way.
+ - If you close your eyes to see the view, you miss everything surrounding you.
+ - My whole family has been such a great support, and theyre the ones who have kept me grounded and allowed me to be who I am today.
+ - The worst part of fame is not always knowing what I’m doing the next day.
+ - You have to think about how you’re going to present yourself and want people, wanna show your stuff and who you are.
+ - Remember to be yourself and remember throughout everything why you first wanted to do this.
+ - I perceive the world through the wide range of emotions that whirl all around in it.
+ - I love Sara Bareilles. She’s just so clever. I wish I were her. She’s so awesome.
+ - Yes, I’ve worked hard; and yes, I may have achieved a certain level of success-but I’m very clear about the fact that none of it would be worth it without doing the things that keep me close to God.
+ - I don’t want a be bird because birds get attacked too much. But it would be cool to fly.
+ - Every time I would think about my purpose, the answers seemed to come in sounds. In melodies. In feelings.
+
+48 quotes

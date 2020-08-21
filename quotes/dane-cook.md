@@ -1,0 +1,177 @@
+ - Losing my mind sounds so pessimistic. I prefer the term winning my insanity.
+ - If haters or whatever want to find you – I mean, some of them are so tenacious. You want to hire them to work for you. Theyre very, very savvy in terms of how they find you and get to you.
+ - I’m not giving up on life. I’m giving up on today.
+ - Sometimes, like we all do, I look at myself in the mirror. Sometimes I cry. Like a really hard cry like you just watch yourself cry but then you’re done and you’re just glowing and you’re staring at yourself.
+ - When people refer to ‘Back in the Day,’ it was a Wednesday. Just a little fun fact for you.
+ - I’m a deep thinker when it comes to shallow no brainers.
+ - There’s estrogen running through my veins!
+ - Some people have constipation of the brain but their mouth has the runs.
+ - It’s an incredible feeling falling in love someone who doesn’t know you exist.
+ - A couple of days back, I got into a car accident. Not my fault. Even if it’s not your fault, the other person gets out of their car and looks at you like it’s your fault: Why did you stop at a red light and let me hit you doing 80!
+ - True love is when you’re cheating on a person but the thought of them still makes your eyes smile!
+ - When someone’s running late through an airport, I hope they miss their flight so they can meet the love of their life at the duty free shop.
+ - When you delete pictures of your ex off your phone, it feels lighter.
+ - Are there glass shards in my anus?
+ - Sometimes the only solution is figuring out a bigger problem to focus on.
+ - I got home from work today and took like a one hundred hour nap. No you did not. You’d be very sick if you were taking one hundred hour naps. That’s a coma! If you said you took a coma after work I’d be able to follow the story.
+ - I’m a late-night guy.
+ - I have new ideas every day, and I always want to take on new challenges.
+ - Nice teeth is a turn on for me. If you open your mouth and it looks like a battle of epic proportions, I don’t like it.
+ - I think beating someone to death with a ukulele would just sound funny.
+ - When I’m wrong I’m like the Emperor on the Death Star thinking he’ll turn Luke. Yet, when I’m right I’m a Jedi like my father before me.
+ - My professional dreams were coming true while I was living a personal nightmare.
+ - Some girls look beautiful with no makeup on at all. I call them lazy. Now go throw some war paint on you bleak empty canvas you.
+ - You can try to steal the thunder all you want, it just reminds people I’m the lightning. You rumble in the distance. I light up the sky.
+ - I feel like people who don’t brag are trying to make you jealous by thinking they’re hiding something more even exciting.
+ - I don’t like littering and I think it leads to terrorist activities.
+ - Every great thing starts with an idea, followed by a doubt and finally a resolve to abandon or pursue. Victory is a treacherous journey.
+ - There will be a guy in a yellow poncho, his name is Hank, he will take you to the whopper lair.
+ - You can easily tell if a person is lying and cheating on you if they say, I love you. I would never lie to you or cheat on you.
+ - If you lie to a person at least tell someone else you’ve lied to the truth. It balances out your karma.
+ - My mom and dad passed away from cancer. Within nine months, I lost both of my folks. Immediately after that, I had a horrible betrayal where my brother, who worked for me, stole a lot of my money. He’s in jail now.
+ - My grandmother died of natural causes. Or as my family calls it murdered by the lord.
+ - I live my life like there’s no yesterday.
+ - If you take a negative, turn it inside out, it’s still a negative. You’re just revealing the ugly inside of negative so I say keep it as is.
+ - Dear semi hot girl taking photos on a boat. It’s not your boat so stop acting like you own it. You drive a used Civic.
+ - Text a guy you like right now, “I’m thinking about you.” If he says, “mmm are you in bed?” Never speak to him again he’s a lifelong moron.
+ - My favorite sexual position is when the girl is facing Mecca and I am fighting off a wolf.
+ - Ma’am, are you trying to molest me via drivethru?
+ - We all hope for breakthrough rebirth moments. When you’re headed for a breakthrough moment, it’s kind of scary because you say, ‘If I break through then I have to make great change in my life.’
+ - I miss dating only for that final moment you kiss goodnight, watch her get out of your car and run into the police station.
+ - There’s always someone in every group of friends that nobody likes.
+ - How do you fall into a lion’s den, that is my first question there, you think you would be extra carefull around a den of lions.
+ - When you get hit by a car sometimes your shoes will fly off, sometimes your pants will come off, but I was not fortunate enough to see the pants portion.
+ - You know your girls up to no good when her and her friends make a pact to post nothing on Instagram.
+ - You can’t teach an old hater new truths.
+ - I’ve been ignoring my feelings lately. That works pretty well. Might also settle for less this week, just to try it out.
+ - Here’s how you know that you’re really drunk: when you get into a taxi cab and you think the fare is the time.
+ - I can do more than just stand-up comedy, and the only way I’ll be able to show that is if I do it myself. Because nobody trusts that I can do it.
+ - I was told by a girl once that I should teach a course on how to kiss properly. I thought that was really a nice compliment. I then asked her what she thought about my sexual prowess and she recommended I talk to a guy she used to date. Body blow.
+ - Vince Vaughn is a genuine person, awesome guy. He’ll come to a lot of my shows. It’s not that often that you can meet someone as cool as Vince.
+ - Every time you come in from cheating on someone, they’ll just whip out the most adorable term of endearment. Like, they’ll wake up, bright and early, sleep in their eyes and say: “Hey, perfect.”
+ - Strip clubs are great places to meet interesting people you only wanna know for about 40 minutes.
+ - I’m fine, I am just going to go over here and puke shards of my own pelvis into this bush.
+ - A lot of comics are kind of vampire types; we do our shows and disappear into the night. My philosophy was, this is like politics, and if I want people to know about my campaign, I’m going to go out there and shake hands.
+ - I have never even had a sip of alcohol, never have done drugs. The hardest thing I have ever done would be Pepsi.
+ - I like fearless characters, people just not afraid to do anything it takes to make people laugh.
+ - Saw a lost dog sign with a pic of the dog and a little boy hugging it. I’m assuming the kids safe and we’re just focusing on the pooch.
+ - You need to open up your soul and have a weep-a-thon.
+ - Hi, I’m a buck tooth and I like to be outside past the lips.
+ - It’s the worst feeling when you come home alone late at night and think the stranger sitting on your couch is a pile of clothes.
+ - When a guy says “I have no idea what you’re talking about” it means “I’m thinking of exactly what you’re saying I did while I lie to you.”
+ - I’m curious by individuals that embrace half a story so they can justify how incomplete they feel about their own self worth.
+ - I feel like I was born and bred to stay self-motivated. I’m not one of those people who ho-hums and feels sorry for himself when something’s bad.
+ - I found someones passport on the ground tonight. Where do you sell these things?
+ - Nothing is a better icebreaker than a great joke.
+ - Sometimes, when a person gains a lot of success at a very young age, they become targets, and it’s really easy to follow the crowds and not make independent decisions based on truly how you feel.
+ - Some people give you that motivation to work harder simply to get the hell away from wherever they are.
+ - I never leave a dog alone in a car on a hot day. I make sure it’s with an elderly person holding a baby.
+ - Created a word game to play with a person you’re fighting with. Silent Treatment. Nothing happens until one of you quietly says, Hey, you hungry?
+ - I can’t do anything! I can’t even have an English muffin!
+ - My fam is just a regular family. But all of them have great senses of humor.
+ - I’m not racist, I’ve got a black president.
+ - I’m bringing back the skinny tie but wearing it tied around my balls.
+ - Let’s talk a little about love. Sometimes you meet somebody and you have what is known as a relationship and things can go great. If things go great you have a great relationship. Sometimes it doesn’t go so great and I call that a relationshit!
+ - Every joke has its origin – the punching people in the face joke. It hurts like hell to get punched in the face.
+ - If my voice can resonate that way with kids, maybe it will resonate through ‘Planes’ as well, and they’ll hear that little something that I’m giving to them, a performance that says to them, “I want to try.” It’s all interconnected. I don’t think it’s thinking too deeply about it.
+ - Listening to Evanescence makes me want to break up with a girl in real time as a giant antique hourglass falls to the floor in slow motion.
+ - If you live far away from a person you no longer want to date just let them know that they are geographically undesirable.
+ - When you are doing stand-up comedy, you are the writer, producer, director, sometimes bouncer.
+ - Pain only hurts when you are looking for a reason to quit. You don’t feel a thing when you know you can still win.
+ - You have to learn the crowd. I just pay attention to them so I can make sure I can make them laugh.
+ - You can’t become tempted if you just give in a little quicker.
+ - Sometimes, when you want to make a difference in a person’s life, stay out of it.
+ - I like to play guitar, jam out, play the blues, go watch movies. I love movies.
+ - Anger has a way of seeping into every other emotion and planting itself in there.
+ - I am going to name a group of my kids after my favorite cartoons, I am going to name them after Transformers.
+ - Jim Norton and Harland Williams always make me laugh.
+ - Comedy is immediate. Comedy is a solo mission. You’re all by yourself, up there. And when you’re in a film, on a set, it’s a collaborative effort. It’s about me being a tool for somebody else to create a story and a character from nothing, from their imagination.
+ - I’m sure that people who have been tweeting funny things have ended up on writing staffs of a late night show.
+ - I feel like the gods have certainly patted me on the head.
+ - I was doing comedy in laundry mats in 1992, literally where I would bring a little gorilla amp and a lapel mike and just start performing.
+ - What am I supposed to say to an atheist when he sneezes, ah, when you die nothing happens.
+ - I could take my time, and nobody was pressuring me to be a headliner. I could go up there, find my voice, and figure out what I wanted to do.
+ - I did stand-up comedy for seventeen years. I need to explore other things.
+ - I had never done a roast, but I really wanted to, because it’s so different from standup.
+ - I’m really great in other peoples relationships.
+ - I just get excited doing shows. Off stage I am actually very feeble and must be spoon-fed because my hands are too brittle.
+ - Teach your kids to make deplorable choices and hopefully they’ll rebel and make the right ones.
+ - Video games don’t make people go nuts. I played Super Mario forever. Not once hopping on a turtle or smash my head through a brick ceiling.
+ - Even when I go to a salad bar, I need to feel like I’m one of the first people there.
+ - If you use tact you can say anything, then make it funny.
+ - The key to attempting to create art in some aspect is also knowing that it will turn some people off.
+ - I get so into the moment.
+ - You know your gut instincts are spot on about a person when you can also detect a water source in the soil beneath them.
+ - The little boy inside of all us men always loves something video game related.
+ - Christina can sing all the notes, but Britney is just hot!
+ - You have to have a strong sense of humor to date me, and also know that you’re probably going to be a part of the routine quite a bit.
+ - I do think I am funny, or I wouldn’t be where I am today. I do think there is always room for improvement and learning.
+ - I always thought that if I got no love at all early in my standup career, or I was god awful, I thought I’d get into psychology.
+ - It’s hard dealing with day to day disappointments and feeling like you can’t find success. Especially when your best friend is Pixar.
+ - It really drives me banana sangwich.
+ - Sometimes girls act all TNT Network because they know drama. That’s when guys get all TBS around you because we think it’s very funny.
+ - Why do they call it the restroom? Is there anybody just resting in this room?
+ - I work with a lot of kids. Every year, for the past fifteen years, I work at Comedy Camp where I work with a lot of kids.
+ - Someone needs to make a zombie movie where when you get bit it turns you into a singing and dancing extraordinaire.
+ - You have to realize, when you’re a comedian, that you have to have a thick skin. And trust me, being onstage in front of people is already difficult enough. Somebody’s personal attack in an email is not as hard as getting onstage.
+ - The whole thing with comedy is that you are always in control. Writer, director, actor, producer, and sometimes bouncer. And you are just a piece of their puzzle.
+ - I love hecklers. They remind you that you are a comedian.
+ - My nickname for my mom was ‘The Compass.’
+ - I don’t like people that litter. If you don’t throw a wrapper in the trashcan and you just toss it out on the ground I wanna take you and toss you into outer space.
+ - I don’t hate anyone. I simply block them out using hellish visions in a blind white rage. But if I see them out I’m pleasant.
+ - What happens in Vegas, I’m telling everyone.
+ - We all hope for breakthrough rebirth moments.
+ - I don’t know if I could rebuild an airplane engine, but I know a little bit about rotors and rivets.
+ - I grew up very self-loathing. I was a phobic. I had anxiety. I had panic attacks.
+ - I don’t like when juice wears tights, its a horrible combination when juice wears tights.
+ - Any guy that refers to dating women as the hunt or being on the prowl should be evaluated for a number of conditions.
+ - I don’t laugh out loud at comics a lot.
+ - I want to be able to challenge myself. And do things that are away from what I usually do. Stand-up is safe for me. I can do stand-up in front of twenty-five thousand people, and I’m like, “I know how to do this. This is what I do.” I want to be a little scared.
+ - When I have a really hot date at a show, I definitely make it a point to use her name. The girls really love that.
+ - You know you’re lazy when you run out of toilet paper and use the cardboard roll to wipe with.
+ - In school I was pretty quiet. Kinda shy until my junior year. But at home I was a freak.
+ - In the year 3000, everything will be instant.
+ - I won’t take no for a question.
+ - Drive, ego and cocksureness are all essential elements in terms of getting exactly what you want but losing everything you’ve got.
+ - Why do bad guys in movies always love to whistle really slowly?
+ - If you think your demeanor is mellow or not particularly charismatic, the material can life you higher. So write everyday, and get onstage or in a coffee shop where they are doing open mice, anywhere you can perform even if that means starting your own open mic night – and be your own self.
+ - I’m quitting the business today. I’m going to open up an appliance store, I’ve always really been into toasters. I’m giving it all up.
+ - I would love to have acidy spit.
+ - I’m focused on staying as healthy as I can so I can work more.
+ - I’m shooting a pilot based on my show. It’s a one-camera show. I play myself.
+ - When you’re on a movie set and you are hopefully making a comedy, everyone’s stifling their laughter. You’re looking at the crew guys, hoping someone is making that face like, and not like, this is not working out, man.
+ - You are the director of your own life story. Don’t cast idiots or people will walk out during your 2nd act.
+ - It’s not for any purpose such as religion, health, or things like that, I just never felt I had the need or want to drink or do drugs.
+ - If you’re 1 of the 3 girls in pics with a greaseball whose arms are around you at a club you lose at life. If you’re the greaseball you win.
+ - Trolls look for reasons to hate but really what they are mad at is the fact they are not included in anything ever.
+ - There were times, earlier in my career, where I didn’t have the wherewithal to self-edit, and I probably said things and pushed the limits to places where people might be put off. But that’s truly part of developing as an artist.
+ - On stage I am the actor, director and the bouncer all at the same time. Fear does not exist in this dojo does it? No Sensi! Sorry when I get excited I have to toss in some Karate Kid quotes.
+ - When I first hit the scene, it was just a lot of go, go, go, go, go. I have a lot of natural energy anyway, but it was over the top.
+ - That MySpace is the story of the year. Everyone but my mother is on it.
+ - If you’re drunk please don’t drive. If you’re on shrooms please don’t think Walmart’s a prison for bad clothing that needs help escaping.
+ - I am an observer, I like to watch people. I am into psychology and people – how they act and such.
+ - People know I have a good time on stage. I love my life. I love my job.
+ - I’m interested in doing anything and everything that I can to squeeze the creativity out of my brain. I guess I’m kind of a performance rat, that’s what I want to do, I love being on stage if I’m not on a set. I just love putting creativity into a performance.
+ - I’m glad that my parents missed one thing that was really unbelievable. They saw me hit this great success. It was a blast and we had a lot of laughs. And it was just an amazing time. They passed away. And then after I got, you know, famous, all these haters came out of nowhere.
+ - I do try to keep my show very improvisational. I don’t work off a set list; I like to keep it more in the moment. I like to have information about where I’m going, what might be happening in that particular region as well. I like for people to feel like the show is for them.
+ - Then it was snack time, right in the middle of mass. Right out of nowhere, the priest would look down and say, ‘Let’s have some yum yums!’ You would get in line – you would jump in the line – and you would go up and get the crouton O’Christ.
+ - I love singing along to the radio while I’m riding in the back of a squad car.
+ - I’m always going to be someone that people enjoy watching.
+ - There was a girl I loved in high school – but never spoke to. Cut to my five-year reunion: I’m an entirely different person.
+ - I’m willing to write a check for $10,000 if someone can bring to me what I fell is ruining thousands of lives, destroying lives everyday. And I know that you know it’s a little thing called Chupacabra.
+ - This is a dream come true. HBO is the highest echelon in the world for a stand-up comedian to attain. Throughout my career I’ve trusted my instincts to lead me down the right path, and I am honored to work together with this network while contributing to the legacy that is HBO.
+ - I’ve always read books and loved human behavior since I was ten or twelve years old. Maybe even that’s why I wanted to do comedy.
+ - I always wanted to be a snake. Every time I saw a snake on TV. I’d always say ‘Why not me?’
+ - It’s hard to be happy for someone when you know deep down they’d kill you if they had the chance.
+ - I was home educated but would skip my lessons to go hang out at school.
+ - You’ve gotta share what’s going on in your mind.
+ - I don’t write any of my material down. I like to improvise and be spontaneous.
+ - I think that people who do enjoy my stand-up comedy and the people who get it and the people who are taken in by it, they see that I’m a guy that has love of the game.
+ - It’s amazing how dumb people can impress you with how much stupider they can be when they really assert themselves.
+ - I can always get better. A lot of my ex-girlfriends don’t think I’m funny.
+ - I’ve lived in LA for so long, I don’t even know what is real and what isn’t any more.
+ - The problem with dating a model is they won’t go out with you if your cars color doesn’t match their outfit.
+ - When somebody says I wouldn’t change a thing they’re thinking of something they would change.
+ - I don’t have to do anything for anyone else’s benefit anymore. I just want to exceed my own expectations.
+
+175 quotes

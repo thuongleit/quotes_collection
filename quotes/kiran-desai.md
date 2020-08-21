@@ -1,0 +1,31 @@
+ - The present changes the past. Looking back you do not find what you left behind.
+ - No fruit dies so vile and offensive a death as the banana...
+ - The Indian diaspora is a wonderful place to write from, and I am lucky to be part of it.
+ - A journey once begun, has no end.
+ - Sadness was so claustrophobic.
+ - In India, if you are from the elite, dogs are extremely important. The breed of the dog indicates your wealth, that you are westernized. The cook, another human being, is on a much lower level than your dog. You see this all the time.
+ - But then, how could you have any self-respect knowing that you didn’t believe in anything exactly? How did you embrace what was yours if you didn’t leave something for it? How did you create a life of meaning and pride?
+ - All day, the colors had been those of dusk, mist moving like a water creature across the great flanks of mountains possessed of ocean shadows and depths.
+ - Could fulfillment ever be felt as deeply as loss? Romantically she decided that love must surely reside in the gap between desire and fulfillment, in the lack, not the contentment. Love was the ache, the anticipation, the retreat, everything around it but the emotion itself.
+ - I love Truman Capote, Tennessee Williams, Flannery O’Connor. I read a lot of American writers.
+ - A man wasn’t equal to an animal, not one particle of him. Human life was stinking corrupt, and meanwhile there were beautiful creatures who lived with delicacy on the earth without doing anyone harm. “We should be dying.” the judge almost wept.
+ - New York is a lovely city. It is an easy city to go back to and an easy city to leave. Every time I go there I immediately make travel plans.
+ - I feel as comfortable anywhere as I feel uncomfortable anywhere.
+ - Jemu watched his father disappear. He didn’t throw the coconut and he didn’t cry. Never again would he know love for another human being that wasn’t adulterated by another, contradictory emotion.
+ - This way of leaving your family for work had condemned them over several generations to have their hearts always in other places, their minds thinking about people elsewhere; they could never be in a single existence at one time. How wonderful it was going to be to have things otherwise.
+ - Could fulfillment ever be felt as deeply as loss?
+ - If you write a lovely story about India, you’re criticized for selling an exotic version of India. And if you write critically about India, you’re seen as portraying it in a negative light – it also seems to be a popular way to present India, sort of mangoes and beggars.
+ - The publishing world is very timid. Readers are much braver.
+ - Writing, for me, means humility. It’s a process that involves fear and doubt, especially if you’re writing honestly.
+ - I’m always in the kitchen, cooking and experimenting – I love it. And every now and then I think, ‘I should write a cookbook’ or, ‘I should write for food magazines.’ And then I get drawn back to writing fiction again.
+ - I don’t think you can write according to a set of rules and laws; every writer is so different.
+ - We think of immigration as a Western issue but, of course, it isn’t.
+ - I do think that the modern India does belong to writers who are living in India.
+ - When you write on your own, you can write the extremes. No one else is watching and you can really go as far as you need to.
+ - She’d have to propel herself into the future by whatever means possible or she’d be trapped forever in a place whose times had already passed.
+ - When I was growing up the publishing world seemed so far away. When my mother wrote a book, she would look up the address of publishers on the backs of the books she owned and send off her manuscript.
+ - Slowly, painstakingly, like ants, men would make their paths and civilization and their wars once again, only to have it wash away again.
+ - Why couldn’t she be part of that family? rent a room in someone else’s life.
+ - Saeed quickly found employment at a Banana Republic, where he would sell to urban sophisticates the black turtleneck of the season, in a shop whose name was synonymous with colonial exploitation and the rapacious ruin of the third world.
+
+29 quotes

@@ -1,0 +1,42 @@
+ - Any fool can know. The point is to understand. ~~Albert Einstein
+ - Judge a man by his questions rather than by his answers. ~~Voltaire
+ - The only true wisdom is in knowing you know nothing. ~~Socrates
+ - To acquire knowledge, one must study; but to acquire wisdom, one must observe. ~~Marilyn Vos Savant
+ - Honesty is the first chapter in the book of wisdom. ~~Thomas Jefferson
+ - Obstacles don’t have to stop you. If you run into a wall, don’t turn around and give up. Figure out how to climb it, go through it, or work around it. ~~Michael Jordan
+ - A wise man can learn more from a foolish question than a fool can learn from a wise answer. ~~Bruce Lee
+ - He who knows all the answers has not been asked all the questions. ~~Confucius
+ - The smallest deed is better than the greatest intention. ~~John Burroughs
+ - Better to remain silent and be thought a fool than to speak out and remove all doubt. ~~Abraham Lincoln
+ - How we spend our days is, of course, how we spend our lives. ~~Annie Dillard
+ - It’s better to be a lion for a day than a sheep all your life. ~~Elizabeth Kenny
+ - The simple things are also the most extraordinary things, and only the wise can see them. ~~Paulo Coelho
+ - One good thing about music, when it hits you, you feel no pain. ~~Bob Marley
+ - Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree. ~~Martin Luther
+ - The limits of my language means the limits of my world. ~~Ludwig Wittgenstein
+ - The World is my country, all mankind are my brethren, and to do good is my religion. ~~Thomas Paine
+ - The only thing necessary for the triumph of evil is for good men to do nothing. ~~Edmund Burke
+ - He not busy being born is busy dying. ~~Bob Dylan
+ - I’ve read the last page of the Bible. It’s all going to turn out all right. ~~Billy Graham
+ - A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them. ~~John C. Maxwell
+ - Silence is the sleep that nourishes wisdom. ~~Francis Bacon
+ - The greatest obstacle to discovery is not ignorance – it is the illusion of knowledge. ~~Daniel J. Boorstin
+ - Patience is the companion of wisdom. ~~Saint Augustine
+ - If money is your hope for independence, you will never have it. The only real security that a man can have in this world is a reserve of knowledge, experience and ability. ~~Henry Ford
+ - I am not afraid of storms for I am learning how to sail my ship. ~~Louisa May Alcott
+ - Sir, my concern is not whether God is on our side; my greatest concern is to be on God’s side, for God is always right. ~~Abraham Lincoln
+ - The invariable mark of wisdom is to see the miraculous in the common. ~~Ralph Waldo Emerson
+ - We are what we pretend to be, so we must be careful about what we pretend to be. ~~Kurt Vonnegut
+ - A person who thinks all the time has nothing to think about except thoughts. So he loses touch with Reality, and lives in a world of illusion. ~~Alan Watts
+ - Faith is a passionate intuition. ~~William Wordsworth
+ - Music produces a kind of pleasure which human nature cannot do without. ~~Confucius
+ - You teach best what you most need to learn. ~~Richard Bach
+ - In youth we learn; in age we understand. ~~Marie von Ebner-Eschenbach
+ - You do not need to leave your room. Remain sitting at your table and listen. Do not even listen, simply wait, be quiet still and solitary. The world will freely offer itself to you to be unmasked, it has no choice, it will roll in ecstasy at your feet. ~~Franz Kafka
+ - Don’t only practice your art, but force your way into its secrets; art deserves that, for it and knowledge can raise man to the Divine. ~~Ludwig van Beethoven
+ - The tree of liberty must be refreshed from time to time with the blood of patriots and tyrants. ~~Thomas Jefferson
+ - Whatever relationships you have attracted in your life at this moment, are precisely the ones you need in your life at this moment. There is a hidden meaning behind all events, and this hidden meaning is serving your own evolution. ~~Deepak Chopra
+ - It is foolish and wrong to mourn the men who died. Rather, we should thank God that such men lived. ~~George S. Patton Jr.
+ - Happiness equals reality minus expectations. ~~Tom Magliozzi
+
+40 quotes

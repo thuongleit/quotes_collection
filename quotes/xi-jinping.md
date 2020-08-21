@@ -1,0 +1,18 @@
+ - During the long process of history, by relying on our own diligence, courage and wisdom, Chinese people have opened up a good and beautiful home where all ethnic groups live in harmony and fostered an excellent culture that never fades.
+ - Comrade Mao, whether he was crossing ‘a sea of surging waves’ or scaling ‘a mountain pass impregnable as iron’ always held unwaveringly to his course, setting a shining example for the Chinese Communist Party.
+ - During the civilisation and development process of more than 5,000 years, the Chinese nation has made an indelible contribution to the civilisation and advancement of mankind.
+ - As economic globalization gathers momentum, China and the United States have become highly interdependent economically. Such economic relations would not enjoy sustained, rapid growth if they were not based on mutual benefit or if they failed to deliver great benefits to the United States.
+ - Happiness does not fall out of the blue and dreams will not come true by themselves. We need to be down-to-earth and work hard. We should uphold the idea that working hard is the most honorable, noblest, greatest and most beautiful virtue.
+ - Some foreigners with full bellies and nothing better to do engage in finger-pointing at us. First, China does not export revolution; second, it does not export famine and poverty; and third, it does not mess around with you. So what else is there to say?
+ - NBA games are exciting to watch and have global appeal. They are very popular in China. I do watch NBA games on television when I have time.
+ - I like sports, and swimming is my favorite. Doing physical exercises keeps one fit and healthy and helps one work more efficiently. I think we all need to strike a balance between work and relaxation. This can keep us energetic and help us do our job better.
+ - To further promote anti-corruption efforts, we need to insist on the successful experiences gained through the Party’s long-term anti-corruption practice. We need to actively draw on effective practices conducted by foreign countries around the world, and our own valuable heritage.
+ - Friends from the press, China needs to learn more about the world, and the world also needs to learn more about China. I hope you will continue to make more efforts and contributions to deepening the mutual understanding between China and the countries of the world.
+ - It was the greatest contribution towards the whole of human race, made by China, is to prevent its 1.3 billion people from hunger.
+ - The Chinese government does not engage in theft of commercial secrets in any form, nor does it encourage or support Chinese companies to engage in such practices in any way.
+ - Safeguarding the interests of our Taiwan compatriots and expanding their well-being is the mainland’s oft-repeated pledge and solemn promise of the new leaders of China’s Communist Party central committee.
+ - The development of the Internet has posed new challenges to national sovereignty, security and development interests.
+ - Why did the Soviet Union disintegrate? Why did the Soviet Communist Party collapse? An important reason was that their ideals and beliefs had been shaken.
+ - Of course, we also are soberly aware that historical problems remain in cross-strait relations, and that there will be issues in the future that will require time, patience and joint efforts to resolve.
+
+16 quotes

@@ -1,0 +1,70 @@
+ - Compromise for your Dream but NEVER Compromise on your Dream.
+ - Never give up, no matter how hard life gets no matter how much pain you feel. Pain will eventually subside, nothing remains forever, so keep going and don’t give up.
+ - Talent or intelligence doesn’t matter, Its your dreams that will decied how big a person you will become.
+ - I am not anti-west, I am PRO PAKISTAN.
+ - The more you study, the more you know; how less you know.
+ - I do not have any fears, no fear of dying, of failure, of anything; that means I am very dangerous for my opponents.
+ - I want you all to stand like the Muslims who stood with La ilaaha ilalla for Truth and Right.
+ - I believed in myself. I never imagined myself as just an ordinary player.
+ - India is using troops in Kashmir. They are losing the battle of heart and minds. It’s like treating cancer with dispirin.
+ - My countrymen, I am wholeheartedly thankful to you today for proving that change isn’t coming but it has ALREADY COME!
+ - The only negative thing in Pakistan is not having a democracy.
+ - Terrorism is you winning hearts and minds of people.
+ - If your house is burning, wouldn’t you try and put out the fire?
+ - The team that is going to win is the one that does its homework the best by studying its opponents.
+ - Pakistan needs to have decentralisation and a good local government system.
+ - I will protect your tax money! It won’t be spent on Prime Minister and Governor houses. InshALLAH the day PTI government comes in power these walls of governor houses will be brought down. We will break these walls and make libraries and playgrounds for the public to use.
+ - Personally I don’t think solving corruption is such a big problem.
+ - Colonialism deprives you of your self-esteem and to get it back you have to fight to redress the balance.
+ - If you have political reform in the Islamic world, the spiritual reform would follow.
+ - The team which handles the pressure best, carries the day.
+ - Allow the Taliban to open offices in Pakistan.
+ - Without liberty I have nothing left to use except my body.
+ - I have always believed that one should not be scared of losing, I think that really is the key.
+ - Cricket is a pressure game, and when it comes to an India-Pakistan match the pressure is doubled.
+ - What I perceive, is above all justice, where everyone has the same law.
+ - I did not lose this election, or had a bad result compared with what we might have got because of Islam.
+ - In Pakistan politics is hereditary.
+ - If you want to know the reality of life, then you should travel. At first travel your country, after that start travelling the world. Travel to know your surroundings so that we can say that you are an aware person. Nature, people and culture are calling you, so travel.
+ - Spirituality does two things for you. One, you are forced to become more selfless, two, you trust to providence. The opposite of a spiritual man is a materialist. If I was a materialist I would be making lots of money doing endorsements, doing cricket commentary. I have no interest in that.
+ - These so-called extremists in Pakistan should be brought into the mainstream; if you marginalize them, you radicalize them.
+ - In fact the experience at Oxford has really helped me later in life.
+ - A country that relies on aid? Death is better than that. It stops you from achieving your potential, just as colonialism did.
+ - There can only be democracy when money is not allowed to be spent in Politics.
+ - When I came into politics I always thought there was a possibility I would be killed.
+ - Are we Pakistanis, children of a lesser God? Is there one law for the west and one for us? Is our democracy supposed to be only democracy if you give us a no objection certificate?
+ - People wanted to vote for us but the mechanics of getting the voters to the polling stations we didnt have. We did not have the money most of all .
+ - I am called an Islamic fundamentalist by Rushdie. My critics in Pakistan say I am a Zionist agent. I must be doing something right.
+ - Lack of rule of law is the main reason Pakistan could not join the ranks of progressive nations.
+ - During my 21 years of playing cricket, I have never been approached by anyone or offered a bribe.
+ - They do not understand Islam, and I think that is one area where perhaps I hope one day I will play a role in actually making people understand what we perceive Islam to be.
+ - Win or lose today I am proud of the way my boys have played in the tournament.
+ - I further promise you, that all my wealth and property will be in Pakistan. I will take ownership of this country and won’t be like those leaders who create hideouts abroad.
+ - I have studied Murad Saeed’s case myself, He have not submitted any fake degree. Its a conspiracy against him. If he had any fears, if he was guilty he wouldn’t have went to court.
+ - People still laugh at me in politics, they think I won’t make it; but I think I will, after Harold Wilson, I will be your next Chancellor to become Prime Minister.
+ - We are not going to succeed because Taliban are masters of guerrilla warfare.
+ - The war on terror is the most insane and immoral war of all time. The Americans are doing what they did in Vietnam, bombing villages. But how can a civilised nation do this? How can you can eliminate suspects, their wives, their children, their families, their neighbours? How can you justify this?
+ - I feel an independent accountability commission should audit all government services.
+ - I have fruit trees. Cows for fresh milk, yoghurt. My own wheat. I’m basically self-sufficient.
+ - One is actually the democracy here, you know, people are, people assume that this election means that there is democracy in Pakistan. There is no democracy.
+ - It’s more important to try to do something for the crores of poor people of my country.
+ - In most of Pakistan it is a feudal country. People are very scared and oppressed by authority. But when you move to these wilder areas, they are not so easily suppressed.
+ - If there is one venue where Pakistan can beat Australia, then Adelaide is that ground.
+ - But having set myself these goals, I had to work really hard to achieve them.
+ - I have no clear idea about this development, however, I have full faith in the government’s peace talks committee. I suggest TTP choose its representatives from among its own leadership.
+ - Just give it everything you’ve got and bowl as fast as possible.
+ - The future of Indo-Pak cricket will depend on how the peace process goes.
+ - In a country where half a million die every year only for drinking polluted water, it is more necessary for us to do something for them.
+ - I think the Americans don’t understand that this is a complicated new ball game. People everywhere have seen that a few determined people who were not scared to die can create a huge upheaval within a major superpower.
+ - At the moment we have a ruling class that has one law and the people the other.
+ - I wanted to be an outstanding player, that was my ambition.
+ - I am basically a private person.
+ - People didn’t wasn’t the People’s party to come in to power again, so they saw NS a viable alternative not us, because everyone knew we were not ready.
+ - And when the pressure was on us, the team handled it very well. One has to learn to play well under pressure.
+ - What most people didn’t realize in the Western countries is that here its not a question of having supporters, its a question of getting these votes to the polling stations.
+ - But I don’t need to use politics as a way of making money.
+ - So for us any gain we had in election, one vote that we got, was a win.
+ - If one area I felt it was a tough election was I couldn’t see my young son and I couldn’t see my wife a lot, but apart from that for her also it was an experience.
+ - But ultimately it comes down to how the team performs on the day.
+
+68 quotes

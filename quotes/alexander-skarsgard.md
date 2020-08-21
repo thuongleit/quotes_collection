@@ -1,0 +1,33 @@
+ - You can never connect on a deeper level if you idolise someone – you don’t see the real person.
+ - Why do I love being naked? Because I was born that way?
+ - I’m not interested in parts where they are looking for a good-looking guy. I want to be a weird little sidekick in a crazy comedy and then play like a dark drama or a thriller.
+ - As an actor, what’s interesting is what’s hidden away beneath the surface. You want to be like a duck on a pond – very calm on the surface but paddling away like crazy underneath.
+ - I’m not very active on social media. I’m not on Facebook or Twitter or Instagram, or anything like that. But I think it’s wonderful that they’re out there. They’re fantastic. I have a lot of siblings and friends that use it, and it’s great for them. It’s such a connected world.
+ - To turn off your phone when you go to your country house or you’re on vacation for a few days is important. I turn off my phone and just check it once a day. I turn it on and, if it’s an important message, I’ll call back. Otherwise, it can wait.
+ - I don’t fall often, but I fall hard. And when you fall hard, it takes a while to get up.
+ - I have to be careful because there is something destructive within me, I think, and I can have a tendency to just search for the kicks. I can’t really get too close to someone who’s too destructive, or too dark, because then I might go down the rabbit hole myself.
+ - I’m pretty intense when it comes to relationships, platonic ones as well. If I feel a connection with someone, I’m willing to go there.
+ - There’s something I love about how stark the contrast is between January and June in Sweden. In a way, I feel that time doesn’t exist in LA. Sometimes I don’t know if it’s February or April or October, because you’re always sitting outside on the same patio, and it’s 70 degrees.
+ - Life is crazy. You travel and you’re busy and there’s so much going on that it’s important to have the moments where you can breathe and you can just be present with the person or the people that you’re there with.
+ - A true artist, in my mind, is willing to fail sometimes, because if you’re not brave enough to say yes and follow your gut, it’s never going to be good.
+ - When I was four or five, I would organise my cars and my action figures. I needed some kind of structure, I think.
+ - I was nervous when I first started True Blood because if you do a play or a movie, you know the complete arc of the character. You can see the end. But with a show like True Blood, you don’t know what’s going to happen.
+ - I’ve been a member of Greenpeace since I was a teenager.
+ - My plan was never to be an actor like my father.
+ - We don’t have paparazzi following you in Sweden.
+ - Life isn’t one-dimensional. The world isn’t simply divided into good versus evil. I think we’re all capable of both.
+ - You can use the internet in a way that’s actually really great. It doesn’t have to be about how amazing you are, or “Come watch my show!,” or “Look what I’m wearing today.” It doesn’t have to be narcissistic.
+ - When I’m on a plane, people know where I’m going before I even know where I’m going. People know where you had lunch yesterday, or who you had lunch with. So, trying to avoid sharing everything with everyone is my way of keeping something private in my life.
+ - A lot of times we associate Greenpeace and climate change and shrinking polar caps with heavy-handed, weighty material. It’s somber stuff. But with Funny Or Die we thought we could put an interesting take on it. Make it a little more palatable, especially for young people who tune into the website.
+ - For me, creatively, I’d suffocate if I played the same thing, over and over again. I want challenges. I want to sit down with a director and be like, “I’ve never done this before, but it’s going to be exciting. It’s scary, but really thrilling, so let’s do it!”
+ - I’m from Sweden. We don’t wear clothes in Sweden.
+ - Swedes are such a civilised, perfect society – at least on the surface. There’s a great safety net, a huge middle class, free education, free health care. People are very polite, they wait their turn. They’re not too loud, they’re not too quiet, but sometimes it’s a little too perfect.
+ - If you’re a great documentary filmmaker, it doesn’t necessarily mean that you’re a great narrative filmmaker. There are fantastic documentary filmmakers that can’t direct actors. You don’t have to do that in a documentary, if it’s a real documentary.
+ - I spent two months in Fredericksburg, Texas, when I was 8, while my father shot a movie, and I loved it. I just embraced the whole cowboy culture. I got myself a pair of awesome boots and a cowboy hat.
+ - If you are with someone who is awesome and having a good time, you can sit at a bus station and still have fun.
+ - I’m an actor and I love to find new collaborations and new characters where I can grow as an actor and human being.
+ - A hipster is someone who’s very aware of his style.
+ - All the characters I play are all inside of me in a way, and they’re all different, the darkness, the lightness, whatever that is.
+ - It’s difficult to get to know a Swede. But once you do, you’re in.
+
+31 quotes

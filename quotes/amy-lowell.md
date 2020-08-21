@@ -1,0 +1,58 @@
+ - Everything mortal has moments immortal.
+ - My words are little jars For you to take and put upon a shelf. Their shapes are quaint and beautiful, And they have many pleasant colours and lustres To recommend them. Also the scent from them fills the room With sweetness of flowers and crushed grasses.
+ - For books are more than books, they are the life The very heart and core of ages past, The reason why men lived and worked and died, The essence and quintessence of their lives.
+ - Poetry, far more than fiction, reveals the soul of humanity.
+ - Don’t ask a writer what he’s working on. It’s like asking someone with cancer on the progress of his disease.
+ - I know that a creed is the shell of a lie.
+ - This is America, This vast, confused beauty, This staring, restless speed of loveliness, Mighty, overwhelming, crude, of all forms, Making grandeur out of profusion, Afraid of no incongruities, Sublime in its audacity, Bizarre breaker of moulds.
+ - Happiness: We rarely feel it. I would buy it, beg it, steal it, Pay in coins of dripping blood For this one transcendent good.
+ - May is much sunshine through small leaves.
+ - This is war: Boys flung into a breach Like shoveled earth; And old men, Broken, Driving rapidly before crowds of people In a glitter of silly decorations. Behind the boys And the old men, Life weeps, And shreds her garments To the blowing winds.
+ - Without poetry the soul and heart of man starves and dies.
+ - To understand Vers libre, one must abandon all desire to find in it the even rhythm of metrical feet. One must allow the lines to flow as they will when read aloud by an intelligent reader.
+ - Art is like politics. Any theory carried too far ends in sterility, and freshness is only gained by following some other line.
+ - Brighter than fireflies upon the Uji River are your words in the dark, Beloved.
+ - Youth condemns; maturity condones.
+ - When you came, you were like red wine and honey, and the taste of you burnt my mouth with its sweetness.
+ - Oh! To be a flower Nodding in the sun, Bending, then upspringing As the breezes run.
+ - Art is the desire of a man to express himself, to record the reactions of his personality to the world he lives in.
+ - Life is a stream On which we strew Petal by petal the flower of our heart.
+ - Can you see through the night, woman, that you stare so upon it? Man, what sparks do your eyes follow in the smouldering darkness?
+ - My heart is tuned to sorrow, and the strings Vibrate most readily to minor chords, Searching and sad; my mind is stuffed with words Which voice the passion and the ache of things: Illusions beating with their baffled wings Against the walls of circumstance.
+ - Poetry is the most concentrated form of literature; it is the most emotionalized and powerful way in which thought can be presented...
+ - Sexual love is the most stupendous fact of the universe, and the most magical mystery our poor blind senses know.
+ - I am tired, Beloved, of chafing my heart against the want of you; of squeezing it into little inkdrops, And posting it.
+ - Oh! To be a butterfly Still, upon a flower, Winking with its painted wings, Happy in the hour.
+ - How loud clocks can tick when a room is empty, and one is alone!
+ - How much more beautiful is the moon, Slanting down the gauffered branches of a plum-tree; The moon Wavering across a bed of tulips; The moon, Still, Upon your face. You shine, Beloved, You and the moon. But which is the reflection?
+ - A black cat among roses, phlox, lilac-misted under a quarter moon, the sweet smells of heliotrope and night-scented stock. The garden is very still. It is dazed with moonlight, contented with perfume...
+ - Freighted with hope, Crimsoned with joy, We scatter the leaves of our opening rose.
+ - All recurring joy is pain refined.
+ - Polyphonic prose is a kind of free verse, except that it is still freer. Polyphonic makes full use of cadence, rime, alliteration, assonance.
+ - Underneath my stiffened gown Is the softness of a woman bathing in a marble basin, A basin in the midst of hedges grown So thick, she cannot see her lover hiding, But she guesses he is near, And the sliding of the water Seems the stroking of a dear Hand upon her.
+ - If what we worship fail us, still the fire burns on, and it is much to have believed.
+ - You are ice and fire the touch of you burns my hands like snow.
+ - Happiness, to some, elation; Is, to others, mere stagnation.
+ - On the neck of the young man sparkles no gem so gracious as enterprise. Youth condemns; maturity condones.
+ - I must be mad, or very tired, When the curve of a blue bay beyond a railroad track Is shrill and sweet to me like the sudden springing of a tune, And the sight of a white church above thin trees in a city square Amazes my eyes as though it were the Parthenon.
+ - To-night when the full-bellied moon swallows the stars. Grant that I know.
+ - Hate is ravening vulture beaks descending on a place of skulls.
+ - I should like to bring a case to trial: Prosperity versus Beauty, Cash registers teetering in a balance against the comfort of the soul.
+ - Great emotion always tends to become rhythmic, and out of that tendency the forms of art have been evolved. Art becomes artificial only when the forms take precedence over the emotion.
+ - I never deny poems when they come; whatever I am doing, whatever I am writing, I lay it aside and attend to the arriving poem.
+ - Only those of our poets who kept solidly to the Shakespearean tradition achieved any measure of success. But Keats was the last great exponent of that tradition, and we all know how thin, how lacking in charm, the copies of Keats have become.
+ - How hard, how desperately hard, is the way of the experimenter in art!
+ - My! ain’t men blinder’n moles?
+ - Love is a game-yes? I think it is a drowning.
+ - Fifteen millions of soldiers with popguns and horses All bent upon killing, because their “of courses” Are not quite the same.
+ - Now you are come! You tremble like a star Poised where, behind earth’s rim, the sun has set. Your voice has sung across my heart, but numb And mute, I have no tones to answer.
+ - Rapture’s self is three parts sorrow.
+ - All books are either dreams or swords, you can cut, or you can drug, with words.
+ - Even pain pricks to livelier living.
+ - Poets are always the advance guard of literature; the advance guard of life. It is for this reason that their recognition comes so slowly.
+ - The stigma of oddness is the price a myopic world always exacts of genius.
+ - A man must be sacrificed now and again to provide for the next generation of men.
+ - When trying to explain anything, I usually find that the Bible, that great collection of magnificent and varied poetry, has said it before in the best possible way.
+ - Time! Joyless emblem of the greed of millions, robber of the best which earth can give.
+
+56 quotes

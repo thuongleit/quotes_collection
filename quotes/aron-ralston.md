@@ -1,0 +1,23 @@
+ - Everything happens for a reason, and part of that beauty of life is that we’re not allowed to know those reasons for certain.
+ - I kind of entered a flow state. I’ve been there before while climbing. You are not thinking ahead. You are just thinking about what is in front of you each second.
+ - You’ll never find your limits until you’ve gone too far.
+ - Saying farewell is also a bold and powerful beginning.
+ - May your boulders be your blessings. May you be able to embrace them. And may you find what’s extraordinary in yourself.
+ - It’s me. I chose this. I chose all of this – this rock has been waiting for me my entire life. I’ve been moving towards it my whole life.
+ - Indeed, it has affirmed my belief that our purpose as spiritual beings is to follow our bliss, seek our passions, and live our lives as inspirations to each other.
+ - I certainly made mistakes.
+ - Adversity is the source of our deepest growth and greatest blessings; embrace it, dare to seek it.
+ - I’d fallen in love with a woman but she broke up with me and I was devastated. Six months later, I went into a suicidal depression from the break-up of the relationship, but I resolved to not do what my friends had done. And so I reached out for help.
+ - Perhaps it’s time, I muse, to close those chapters and remember the enduring lesson of my entrapment: that relationships, not accomplishments, are what’s important in life.
+ - How would I behave in a situation that caused me to summon the essence of my character? The tragedy inspired me to test myself. I wanted to reveal to myself who I was: the kind of person who died, or the kind of person who overcame circumstances to help himself and others.
+ - Judging by my degradation in the last 24 hours, I’ll be surprised if I make it to Tuesday.
+ - Like looking through a telescope into the Milky Way and wondering if we’re alone in the universe, it made me realize with the glaring clarity of desert light how scarce and delicate life is, how insignificant we are compared with the forces of nature and the dimensions of space.
+ - When we find inspiration, we need to take action for ourselves and for our communities. Even if it means making a hard choice, or cutting out something and leaving it in your past.
+ - I stepped out of my grave and into my life again.
+ - I was able to first snap the radius and then within another few minutes snap the ulna at the wrist and from there, I had the knife out and applied the tourniquet and went to task. It was a process that took about an hour.
+ - Bring love and peace and happiness and beautiful lives into the world in my honor. Thank you. Love you.
+ - It adds up, but I deem it all necessary, even the camera gear. I enjoy photographing the otherworldly colors and shapes presented in the convoluted depths of slot canyons and the prehistoric artwork preserved in their alcoves.
+ - I feel like I’m climbing as well, if not better, than ever.
+ - I was accustomed to being in far, far riskier environments. So I thought going into that canyon was a walk in the park – there were no avalanches, it was a beautiful day and I was essentially just walking.
+
+21 quotes

@@ -1,0 +1,70 @@
+ - There’s nothing attractive about doing a documentary. Nothing. It’s hard, hard work, and I find having all the attention of the day on me a very unattractive proposition.
+ - It’s a pain in the ass, show business. And the only time that I really enjoy it is when I’m in front of an audience and they’re reacting to me.
+ - Everybody’s got a sack of rocks.
+ - Diabetes is a lousy, lousy disease.
+ - I can’t explain chemistry. I really can’t. I haven’t got a clue what it’s all about. It just happens. It’s like falling in love. You can’t explain why you fall in love or explain why it’s this particular person.
+ - People will always be around to tell you you’re no good or you’re wrong or unwise to keep doing what you want to do. They’re wrong. They’re always wrong. Keep going.
+ - And why not do something new every day of your life? Change! Change!
+ - I love audiences. My God, the best friends in the world!
+ - There will always be ladies who lunch. Always. And apparently they live a long time.
+ - I don’t think I’m gonna die tomorrow or even two weeks from now, or even ever. I just don’t know – who the hell knows what’s gonna happen to them? Nobody! Isn’t that comforting? Nobody has a clue. I like that we don’t know. And I like that it’s somebody else’s decision, not mine.
+ - I’ve changed a lot, too! I’m different, too. I have far more in some ways to offer and far less in other ways to offer. That’s life. And, you know, life goes on!
+ - I don’t know what should have happened in my life, but I do know that I’m dancing as fast as I can.
+ - I want to settle down this last time. I say last, because I don’t think I’m in any condition to live a long time from now. The bell’s gonna ring pretty soon.
+ - I don’t know what to do with Warren Beatty. All I know is that he wasn’t attracted to me. That’s all right.
+ - I don’t know what the hell I’m doing up there half the time. These performers that go on about their technique and craft – oh, puleeze! How boring! I don’t know what technique means. But I do know what experience is. I know in my gut when I’ve done a scene right.
+ - I don’t think there’s any thrill in the world like doing work you’re good at.
+ - New York is like a disco, but without the music.
+ - I care about money, very much. I want it. I don’t ever want to be without it. My mother once said about me, ‘Elaine has to have money.’
+ - I was so happy I didn’t have to work that night. That was the truth, because show business is about the hardest profession in the world.
+ - I get sick of saying how hard everything is. It’s hard to get up in the morning. Everything’s hard. Everything takes effort.
+ - I don’t dislike the way I look. I think I look fine. I think I look extraordinary for 88. And I’ve got energy. Out of my way.
+ - I am not influenced by other human beings. But I am inspired.
+ - You can’t be funny unless you’re tragic, and you can’t be tragic unless you’re funny.
+ - It gets tiring being a smartass.
+ - Fear is the base of what everybody does wrong in their lives.
+ - This is a time in my life where I’m gonna behave like an elegant human being. Or not.
+ - I certainly was not the romantic lead. I couldn’t be that, because I was not that good looking. And that is something about Hollywood that I do not like at all. Why can’t a woman who is just normally good looking fall in love? I mean, everybody in the movies is so good looking.
+ - Betty White is probably a very nice woman.
+ - Audiences are not strangers to me. They’re the best friends I’ve got in my life.
+ - I tell the truth, and it has gotten me into a lot of trouble. My dad used to say to me, ‘If you tell the truth all day long, you will end up in jail.’
+ - For my money, insecurity, depression, etc, can be healed by way of El Morocco, sad songs at 4am, and the pop of a champagne cork.
+ - Drama drama drama. The public wants it, so let them get the whole ugly mess. Why not?
+ - I love holidays in New York. I love ’em. I want to celebrate something all the time and New York has holidays for every day of the week, practically. I like holidays in New York City.
+ - I don’t want to see a movie twice. I don’t want to do anything twice.
+ - When you’re dealing with your life, my God, you gotta tell the truth.
+ - I felt that I committed myself too much. I promised too much. But that way it’s exciting.
+ - Bette Davis taught Hollywood to follow an actress instead of the actress following the camera, and she’s probably the best movie actress there’s ever been.
+ - Why haven’t I made more movies? Nobody asked me.
+ - I think it’s the wrong way around to say when you get older move to the country. I think when you get older you move to New York. If you’re a nice broad they’ll look after you.
+ - I don’t have a great talent for explaining myself in acting because I can’t explain it.
+ - Tony Bennett said to me, “Wow, your talent is amazing.” Maybe he’s a bore, maybe he’s a jerk, but when he said that to me, I didn’t need anything more than that.
+ - If somebody doesn’t have any talent, get off the stage! You’re wasting my time.
+ - I think the most interesting New Yorkers are the people who were not born here.
+ - You cannot tell an audience a lie. They know it before you do; before it’s out of your mouth, they know it’s a lie.
+ - I’m going to do less performing because I’m tired. It’s hard to convince anybody that you’re just going to take it easy.
+ - I always say, ‘If you can’t give a reason for the banana peel being in the alley, then don’t have the comic slide over it.’ Do you understand what I mean? First explain how the banana peel got there quickly. And then there’s a reason for all the comedy.
+ - There’s something exciting about being afraid.
+ - I wouldn’t have a nose job. I like my nose fine.
+ - For me, going to London is like coming home. In fact, I’ve often entertained the idea of ending my days there.
+ - I do believe in the infallibility of the Pope, because I think we have to believe in something.
+ - I like to keep active. I’ve got too much energy not to.
+ - I find it easier to abstain than do a little bit of anything. I’m not a ‘little bit’ kind of dame. I want it all, whatever I do.
+ - Woody Allen is a better actor than anybody from the Actors Studio, and he can be anybody he says he is.
+ - I don’t have to go to a doctor and have my face changed. It terrifies me that women do that.
+ - I compare Stephen Sondheim with humor, because humor is unanalyzable. You can’t analyze humor. You just have to get through it.
+ - If you tell the truth all day long, you will end up in jail.
+ - As a diabetic, I’m a walking picnic. I have to eat measured amounts of food at certain times.
+ - I have not had any of that surgical stuff. I am too curious to find out exactly how I progress every day of my life naturally. That is what fascinates me.
+ - I love reviews. Anybody who tells you they don’t read reviews is a liar.
+ - You have to be very, very good looking to get ahead in motion pictures.
+ - This age thing is all up to you. It’s like happiness is up to you. You just have to understand what it is before you get it.
+ - All you have to do is say, ‘I’m going home,’ and you’re the most popular girl at the party.
+ - All of the writing on ‘30 Rock’ is a joy to go into. It’s pretty hot stuff.
+ - I never found anyone who could look after me as well as I could look after myself.
+ - Certain type of actresses get younger instead of older. I always say, ‘Only ingenues age.’
+ - Onstage, nothing is as important as truth, nothing. As soon as you lie, they know it.
+ - I have no intention of retiring. Even my blood sugar is better when I’m working.
+ - It’s very disconcerting to start out and to say, “I’m going to tell the truth,” and then to realize it’s that much trouble.
+
+68 quotes

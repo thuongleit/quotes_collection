@@ -1,0 +1,53 @@
+ - Music is a soundtrack for your life. You hear some tune and you just get swept right back to that point in your life.
+ - Part of being a man is learning to take responsibility for your successes and for your failures. You can’t go blaming others or being jealous. Seeing somebody else’s success as your failure is a cancerous way to live.
+ - My kids don’t watch my movies. What I want to do is go home and hug my kids, talk to them and engage with them.
+ - You have to have something in your life that’s more important than the work. People don’t really like to admit that. I think that you have to find something else. I don’t know what it is. Is it yoga or God or politics? For me it’s just family.
+ - There are two things that create opportunities. One is being involved with something that makes money, and the other is winning awards. And the reason that winning the awards creates the opportunities is because it gives the people who are selling the picture the opportunity to make more money.
+ - A good director creates an environment, which gives the actor the encouragement to fly.
+ - There’s something therapeutic about nudity. Clothing is one of the external things about a character. Take away the Gucci or Levi’s and we’re all the same. But not when the nanny is around. But I will with my wife and kids.
+ - My family survived losing money to Bernie Madoff incredibly well compared to others.
+ - If you’re an actor, even a successful one, you’re still waiting for the phone to ring.
+ - The greatest justice in life is that your vision and looks tend to go simultaneously.
+ - I have a natural swagger.
+ - When I go home, I try to raise my children with honesty and integrity and teach them to take care of the world and of each other.
+ - Everybody’s got bills to pay. Sometimes you see people just go straight for the money, and that’s disappointing.
+ - Some people have therapy, some people are alcoholics or they’re in AA. Some people jump out of planes on weekends or find ways to release this kind of thing. And for me, it’s acting. I find acting very therapeutic for whatever it is.
+ - It’s easy to get laid when you’re rich and famous. When you’re broke and unknown, it takes skill.
+ - There are two types of actors: those who say they don’t want to be famous and those who are liars.
+ - There are people who tell you to shut up because you’re just a celebrity, but pundits, talking heads, they’re every bit the celebrity and a lot of them aren’t any more qualified than the average man on the street.
+ - I always watch rushes. They give me a sense of whether I’m going in the right direction. You work hard and hopefully get encouragement from what you see.
+ - I did all the dialect work, all my character work completely by myself.
+ - I’m a vagabond. I have a suitcase that is ready to go at a moment’s notice. The thought of being in one place for a long time, or playing one character for a long time, is terrifying for me.
+ - I’ve been in silly movies and romantic movies and historic movies.
+ - Doing the press, it’s part of my job, so I do it with a smile on my face, but I’m not comfortable in the hot seat.
+ - I try to show compassion to people I come into contact with and try to put good out, as much good as I can. But that’s my life; that’s not my work. With my work, my job is to walk in another man’s shoes.
+ - I would say invisibility would be sort of a fun power to have just to see what it was like to move through the world and not be looked at.
+ - I don’t have to do the lead. If I dig a part, I’ll do it.
+ - I’d love to be a pop idol. Of course, my groupies are now between 40 and 50.
+ - I think of myself more as a workhorse actor. It will be hot and cold and up and down, but no one will kick me out of the business.
+ - Here’s the thing – I mean, I don’t act for statues. I really don’t. The great thing about winning an award is that it creates opportunities.
+ - I think everybody reacts to entertainment with a different kind of visceral way, probably mostly based on their own personal experiences. I think everybody reacts to entertainment with a different kind of visceral way, probably mostly based on their own personal experiences.
+ - A lot of people believe in reading reviews. If I get too focused on some detail of what they’ve said about me, I’m going to end up shooting myself in the foot.
+ - I don’t really worry so much about image. I try to just live my own life, my personal life, to my own sense of morality. In terms of the kinds of characters that I play, well, they could be anything.
+ - There are some actor secrets you keep sometimes, and you want to keep.
+ - I feel like my responsibility as an actor is to make characters as compelling and believable as possible.
+ - I don’t watch the movies I make, so I haven’t seen ‘Footloose’ since it came out. You see this young, hungry actor, it’s pretty fun. I was the only one they screen tested. It was an attempt by the director and producer to talk the head of the studio into hiring me because they didn’t want me.
+ - A lot of times, the script is the thing they care about least.
+ - Obviousl, my perception of the world is one where humans are a threat to our survival.
+ - Before Footloose, the things I’d done weren’t cute. In Diner I was an alcoholic.
+ - After so many years it’s embarrassing to admit that I don’t honestly know how much I want to be directed.
+ - Ninety-five percent of celebrity is good.
+ - I’m always happier and a better actor when I can really lose myself in a character and become somebody else.
+ - There’s the most resistance to an actor singing. It’s like I’m being disloyal to my industry.
+ - I’m obsessed with zombies. I like watching zombie movies and I read zombie books.
+ - When it comes to music, it’s my clothes, it’s my guitar, it’s my voice, it’s my song.
+ - I’ll be honest with you. My kids don’t watch my movies and never have. I can maybe name a film one hand that they’ve seen, actually, all the way through.
+ - I’d always tried not to worry about the size of the role or the size of the film.
+ - I’ve made three studio albums and one live one with my brother. It’s melodic singer-songwriter acoustic-rock music.
+ - Even the people that support Bush aren’t happy with the way things are going in Iraq.
+ - I’m very comfortable being married to an extremely strong, opinionated, and driven woman. But I also sit at the head of the table. I have both of those sides to me.
+ - I’d really like to get the girl, shoot the gun, drive the car, have fun. I even have these kind of action dreams, where I’m the action guy.
+ - The business that people do in LA on the social level is amazing. You go to a restaurant, bump into this guy or that guy. The next day you get a call, and they want you in their movie.
+ - I want to see the numbers that prove that show-business marriages are any less successful than other marriages. It’s just very public when they fail.
+
+51 quotes

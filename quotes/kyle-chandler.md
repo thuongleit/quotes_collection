@@ -1,0 +1,37 @@
+ - Opportunity does not knock, it presents itself when you beat down the door.
+ - I really love to ride my motorcycle. When I want to just get away and be by myself and clear my head, that’s what I do.
+ - What I do is not rocket science, but I sure do love it.
+ - High school was interesting, because I went from a public school middle school to an academy where the first year we were doing Latin, chemistry, biology. I mean, I was woefully unprepared for the type of study.
+ - I just went and saw ‘Crazy, Stupid, Love.’ Julianne Moore – I’ve been in love with her since ‘Boogie Nights.’ But also, ‘The Big Lebowski.’
+ - I love the institution of marriage, and I love my marriage.
+ - My daughter loves horses. My other daughter loves soccer.
+ - We ended up moving out to Texas. We live outside of Austin. We’ve got a couple horses, we’ve got three miniature donkeys, we’ve got four dogs. Miniature donkeys are very warm, loving animals.
+ - I want to find material that piques my interest, keeps me outside the box and challenges me.
+ - I did play two years of high school football and was very short and uncoordinated but the second year I was very tall and skinny and very uncoordinated.
+ - Oh, man, if in real life I was as cool and suave as Coach Taylor and had all the answers, things would be easier.
+ - One way I differ from my character, Coach Taylor, is that I never would have taken this faraway job without my wife’s consent.
+ - I love playing a role where I think I’m right and then you learn you’re not.
+ - I grew up in Chicago, so I’ve always been a Bears fan.
+ - I’m in a great position now where I’ve got recognition. I’m not recognized too much.
+ - I just can’t say enough about the actors having faith and trust in the writers and the writers having faith and trust in the actors.
+ - If you’re not really having a good time, it’s not worth it.
+ - I also played two years of high school football but I wasn’t very, how shall I say it, talented.
+ - We run into some pretty tough arguments sometimes, but the idea is that at the end of the day, my wife and I realize that we’ll always be holding each other’s hand. This is a lifelong relationship, and after 12 years she hasn’t gotten rid of me yet.
+ - Every actor wants to be everybody – play all the roles.
+ - I don’t think I had a script on ‘King Kong.’ But usually you read a script and then you go and audition for it. It’s rare when there’s no script. I sort of like the latter better, because I’m more successful at it.
+ - Television, cable, features are always out there.
+ - I think that sense of humor is important in marriage. A sense of humor gets people through marriage.
+ - I do like to cook; I’m sort of a mad scientist in the kitchen.
+ - My grandparents got married at a very young age, and a lot of what I think about marriage is based on their relationship.
+ - Everything moves a little quicker in Los Angeles.
+ - Thank goodness I’ve saved my money.
+ - I can gab with pretty much anyone.
+ - I always treat all the jobs I do as an acting class.
+ - I work six months and get three or four with the family.
+ - I don’t want to say I’m never going to direct again, but directing’s hard work.
+ - I was never upset that I did not get an Emmy. That I did get an Emmy nomination, I couldn’t be happier and prouder.
+ - What, am I supposed to run around in a little red cape and save the world?
+ - It’s much more enjoyable being an actor.
+ - Look, isn’t there any way you can just stamp me as not crazy and let me get outta here.
+
+35 quotes

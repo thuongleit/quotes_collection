@@ -1,0 +1,35 @@
+ - Recipes tell you nothing. Learning techniques is the key.
+ - I call all chefs ‘cooks.’ They’re all cooks. That’s what we do, we cook. You’re a chef when you’re running a kitchen.
+ - Most cooks try to learn by making dishes. Doesnt mean you can cook. It means you can make that dish. When you can cook is when you can go to a farmers market, buy a bunch of stuff, then go home and make something without looking at a recipe. Now youre cooking.
+ - Every chef should have an understanding of pastries or desserts.
+ - This is what people don’t understand: obesity is a symptom of poverty. It’s not a lifestyle choice where people are just eating and not exercising. It’s because kids – and this is the problem with school lunch right now – are getting sugar, fat, empty calories – lots of calories – but no nutrition.
+ - In an ideal world for me, school lunch would be free for everybody.
+ - Many of them have accomplished a lot before they ever get to ‘Top Chef’ although they’re not well known. The show just provides them with a platform. There’s just one winner and on some seasons you can get numerous chefs that are really good. Even if they don’t win, they’re all talented.
+ - We’re adults. We’re the ones who should teach the kids what’s good to eat. I don’t think the government should ever regulate what we eat at home, but we’re feeding them in school with tax dollars. Quite frankly, if my tax dollars are being spent to feed kids, I’d rather feed them better food.
+ - Once you have your basics down, you can start breaking the rules.
+ - Mushrooms can be very fancy. It’s the closest you can get to eating dirt.
+ - Hunger is a political issue, and there are several things politically that are keeping people hungry – not funding food stamps adequately, not funding school lunches adequately. So there is a political solution to the problem of hunger.
+ - A lot of professions happen to be male-dominated because women drop out at a certain point. It’s unfortunate.
+ - A steak needs fat to taste great.
+ - I hate okra and grated mountain yam for the same reason. They’re both slimy.
+ - As a chef, I had started working with groups like Share Our Strength and various local food banks in New York, raising money for hunger-related issues. And not only me, but the entire restaurant industry has been very focused on this issue.
+ - One of the first jobs I ever had was opening clams in a seafood restaurant, so I’m pretty quick at it.
+ - I have very good knife skills. I learned to butcher on my second job – I was 18 years old. Every other day we would break down six legs of veal.
+ - Every season we try to do something new. And not for gimmicks. We feel the show has to evolve and keep changing.
+ - Men with shaved heads are always better. Just ask my wife.
+ - I can’t deliver lines, but I can talk about food all night long.
+ - Asian food is very easy to like because it hits your mouth very differently than European food does. In European food, there may be two things to hit – maybe sweet and salty, maybe salty-savory, but Asian kind of works around, plus you have that distinct flavor that’s usually working in Asian food.
+ - I know how to make sausage, and now that I’ve seen how laws are made, I’ll stick with sausage.
+ - I think the most effective way to run a kitchen is to teach, not to just yell.
+ - In New York, I’ll walk down the street and someone will say, ‘Nice show,’ and that’s it. If I’m at a food festival, it’s open season.
+ - I get angry when I think that people are blatantly incorrect on matters of fact.
+ - I know from personal experience, if a chef yelled at me in a kitchen, the first thing I’d want to do is hit them with a pot.
+ - I travel around and hear from so many kids. Their parents say they were always very picky but they watch the show and they want to try stuff. The show is entertainment, but I think it has done so much for the public perception of what food can be.
+ - You have to know the classics if you want to cook modern food.
+ - I think the patterns are set very early when the kids are young. But at the same time, there are some flavors kids just don’t like.
+ - It’s my belief that cooking is a craft. I think that you can push it into the realm of art, but it starts with craft. It starts with an understanding of materials. It starts with an understanding of where foods are grown.
+ - I can’t deal with a lot of spice but I have to eat it. I pay the price – I’m on medication for heartburn, so that’s how I deal with it.
+ - Too often, chefs just want to experiment – they want to use liquid nitrogen before they know how to use heat.
+ - I think steak is the ultimate comfort food, and if you’re going out for one, that isn’t the time to scrimp on calories or quality.
+
+33 quotes

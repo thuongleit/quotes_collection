@@ -1,0 +1,25 @@
+ - But I found my family. I found the right thing to do. I found the way home.
+ - Breakfast was only worth having when somebody else made it for you.
+ - If you write a story based on a real person, you’re trapped by the details of the real person and his life. It gets in the way of writing your own story.
+ - I love writing and do not know why it is considered such a difficult, agonizing profession. I love all of it, thinking up the plots, getting to know the kids in the story, their parents, backyards, pizza toppings.
+ - What more can life hold, than to know that because of your story, somebody out there has decided to read again!
+ - But sometimes, in tight corners, when your back is against the wall and the world is against you, you have to fight back in unexpected ways.
+ - People think they own time. They have watches and clocks and digital pulses. But they are wrong. Time owns them.
+ - When in doubt, shut up.
+ - She had gradually changed her name. “Jane” was too dull. Last year, she’d added a “y”, becoming Jayne, which had more personality.
+ - People nearly always believe, and are willing to back it up with weapons and cruelty, that their religion and way of life is better than the other person’s.
+ - I love writing and do not know why it is considered such a difficult, agonizing profession.
+ - Lying on the front passenger seat, as if it didn’t matter, was Rose’s Diary. It Mattered.
+ - Guys with nice person names try to be sympathetic.
+ - I decided to write short stories because they got rejected quicker.
+ - I wrote eight full-length adult novels in my twenties. None of them were published.
+ - I believe my voice is pretty much the same. I’ve written 75 books, so I’m better at it now than I was earlier in my career.
+ - I get letters from readers who say that they have always hated reading, but somebody suggested one of my books, they actually finished the book and enjoyed it, and they’re going on to read another book. I’m thrilled that they have figured out that reading is fun.
+ - I believe my readers are crazy about their parents and want to be just like them when they grow up.
+ - I approach serious subjects, and I like to have the good guys win and have the parents among the good guys.
+ - Actually my first eight books were historical novels, but they were never published.
+ - I’m one of the lucky writers: plots come easily to me.
+ - My favorite book is always the one I’m working on at the moment.
+ - Stephen had just come from a class discussion in which several students believed that the right cup of herbal tea would save them from pain and sorrow. Well acquainted with pain and sorrow, Stephen did not contribute to the discussion. He merely crossed these idiots off his list of possible friends.
+
+23 quotes

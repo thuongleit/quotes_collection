@@ -1,0 +1,502 @@
+ - Pain is inevitable. Suffering is optional.
+ - If you only read the books that everyone else is reading, you can only think what everyone else is thinking.
+ - I dream. Sometimes I think that’s the only right thing to do.
+ - And once the storm is over, you won’t remember how you made it through, how you managed to survive. You won’t even be sure, whether the storm is really over. But one thing is certain. When you come out of the storm, you won’t be the same person who walked in. That’s what this storm’s all about.
+ - Unfortunately, the clock is ticking, the hours are going by. The past increases, the future recedes. Possibilities decreasing, regrets mounting.
+ - Be fearless, be brave, be bold, love yourself.
+ - When I'm running I don't have to talk to anybody and don't have to listen to anybody. This is a part of my day I can't do without.
+ - Don't you think it would be wonderful to get rid of everything and everybody and just go some place where you don't know a soul?
+ - Learning another language is like becoming another person.
+ - Sometimes it’s not the people who change, it’s the mask that falls off.
+ - All I do is keep on running in my own cozy, homemade void, my own nostalgic silence. And this is a pretty wonderful thing. No matter what anybody else says.
+ - Memories warm you up from the inside. But they also tear you apart.
+ - As time goes on, you’ll understand. What lasts, lasts; what doesn’t, doesn’t. Time solves most things. And what time can’t solve, you have to solve yourself.
+ - Spend your money on the things money can buy. Spend your time on the things money can’t buy.
+ - I just run. I run in void. Or maybe I should put it the other way: I run in order to acquire a void.
+ - I’m all alone, but I’m not lonely.
+ - I move, therefore I am.
+ - You don’t have to judge the whole world by your own standards. Not everybody is like you, you know.
+ - Everyone, deep in their hearts, is waiting for the end of the world to come.
+ - As long as you have the courage to admit mistakes, things can be turned around.
+ - When you come out of the storm, you won’t be the same person who walked in. That’s what this storm’s all about.
+ - Whatever it is you’re seeking won’t come in the form you’re expecting.
+ - Death is not the opposite of life, but a part of it.
+ - One foot in front of the other. Repeat as often as necessary to finish.
+ - No matter how far you travel, you can never get away from yourself.
+ - If you remember me, then I don’t care if everyone else forgets.
+ - I can bear any pain as long as it has meaning.
+ - Silence, I discover, is something you can actually hear.
+ - A certain type of perfection can only be realized through a limitless accumulation of the imperfect.
+ - If you’re in pitch blackness, all you can do is sit tight until your eyes get used to the dark.
+ - You’re not a kid anymore. You have the right to choose your own life. You can start again. If you want a cat, all you have to do is choose a life in which you can have a cat. It’s simple. It’s your right.
+ - The thing I’m most afraid of is me. Of not knowing what I’m going to do. Of not knowing what I’m doing right now.
+ - People fall in love without reason, without even wanting to. You can’t predict it. That’s love.
+ - The most important thing we learn at school is the fact that the most important things can’t be learned at school.
+ - Everything in life is a metaphor.
+ - You can hide memories, but you can’t erase the history that produced them.
+ - If you can love someone with your whole heart, even one person, then there’s salvation in life. Even if you can’t get together with that person.
+ - Say it before you run out of time. Say it before it’s too late. Say what you’re feeling. Waiting is a mistake.
+ - I am nothing. I’m like someone who’s been thrown into the ocean at night, floating all alone. I reach out, but no one is there. I call out, but no one answers. I have no connection to anything.
+ - A theory is a battlefield in your head.
+ - To keep on going, you have to keep up the rhythm.
+ - People’s memories are maybe the fuel they burn to stay alive.
+ - Start making excuses and there’s no end to it. I can’t live that kind of life.
+ - I’m a very ordinary human being; I just happen to like reading books.
+ - Every one of us is losing something precious to us. Lost opportunities, lost possibilities, feelings we can never get back again. That’s part of what it means to be alive.
+ - I’ve built a wall around me, never letting anybody inside and trying not to venture outside myself.
+ - Will you wait for me forever?
+ - If you think of someone enough, you’re sure to meet them again.
+ - It is not that the meaning cannot be explained. But there are certain meanings that are lost forever the moment they are explained in words.
+ - No matter how honestly you open up to someone, there are still things you cannot reveal.
+ - Only the Dead stay seventeen forever.
+ - You can keep as quiet as you like, but one of these days somebody is going to find you.
+ - But I didn’t understand then. That I could hurt somebody so badly she would never recover. That a person can, just by living, damage another human being beyond repair.
+ - Distance might not solve anything, no matter how far you run.
+ - I never made any plan before writing, however I succeeded. I enjoyed writing with excitement ,“what happen on the next page?”
+ - Love can rebuild the world, they say, so everything’s possible when it comes to love.
+ - Why do people have to be this lonely? What’s the point of it all? Millions of people in this world, all of them yearning, looking to others to satisfy them, yet isolating themselves. Why? Was the earth put here just to nourish human loneliness?
+ - If I have left a wound inside you, it is not just your wound but mine as well.
+ - I’m not human. I’m a piece of machinery. I don’t need to feel a thing. Just forge on ahead.
+ - Chance encounters are what keep us going.
+ - Ordinary imperfect people, always choose similarly imperfect people as friends.
+ - No matter what the situation may be, I still take pleasure in witnessing the joy of others.
+ - Time flows in strange ways on Sundays, and sights become mysteriously distorted.
+ - That’s all I think about these days. Must be because I have so much time to kill every day. When you don’t have anything to do, your thoughts get really, really far out-so far out you can’t follow them all the way to the end.
+ - Dreams come from the past, not from the future. Dreams shouldn’t control you – you should control them.
+ - There’s no such thing as perfect writing, just like there’s no such thing as perfect despair.
+ - Living like an empty shell is not really living, no matter how many years it may go on. The heart and flesh of an empty shell give birth to nothing more than the life of an empty shell.
+ - I may not be the most likable person in the world, but I try not to upset people.
+ - Does G get angry because it follows F in the alphabet? Does page 68 in a book start a revolution because it follows 67?
+ - I said nothing for a time, just ran my fingertips along the edge of the human-shaped emptiness that had been left inside me.
+ - Huge organizations and me don’t get along. They’re too inflexible, waste too much time, and have too many stupid people.
+ - A friend to kill time is a friend sublime.
+ - I think history is collective memories. In writing, I’m using my own memory, and I’m using my collective memory.
+ - It’s just like Yeats said. In dreams begin responsibilities. Flip this around and you could say that where there’s no power to imagine, no responsibility can arise.
+ - Time, of course, topples everyone in its path equally- the way that driver beats his old horse until it dies. But the thrashing we receive is one of frightful gentleness. Few of us even realize that we are being beaten.
+ - Sometimes fate is like a small sandstorm that keeps changing directions. You change direction but the sandstorm chases you. You turn again, but the storm adjusts.
+ - All imperfections are forced upon the imperfect, so the ‘perfect’ can live content and oblivious.
+ - I feel like I’ve swallowed a cloudy sky.
+ - She’s letting out her feelings. The scary thing is not being able to do that. When your feelings build up and harden and die inside, then you’re in big trouble.
+ - What we call the present is given shape by an accumulation of the past.
+ - Losing you is most difficult for me, but the nature of my love for you is what matters. If it distorts into half-truth, then perhaps it is better not to love you. I must keep my mind but loose you.
+ - I don’t know, there’s something about you. Say there’s an hourglass: the sand’s about to run out. Someone like you can always be counted on to turn the thing over.
+ - As long as I kept my body moving I could forget about the emptiness inside.
+ - What I feel for her is a wholly different emotion. It stands and walks on its own, living and breathing and throbbing and shaking me to the roots of my being.
+ - If I stayed here, something inside me would be lost forever – something I couldn’t afford to lose. It was like a vague dream, a burning, unfulfilled desire. The kind of dream people have only when they’re seventeen.
+ - There weren’t any curtains in the windows, and the books that didn’t fit into the bookshelf lay piled on the floor like a bunch of intellectual refugees.
+ - Not just beautiful, though – the stars are like the trees in the forest, alive and breathing. And they’re watching me.
+ - We knew exactly what we wanted in each other. And even so, it ended. One day it stopped, as if the film simply slipped off the reel.
+ - I get up early in the morning, 4 o’clock, and I sit at my desk and what I do is just dream. After three or four hours, that’s enough. In the afternoon, I run.
+ - People lose fifty million skin cells every day. The cells get scraped off and turn into invisible dust, and disappear into the air. Maybe we are nothing but skin cells as far as the world is concerned.
+ - Memories and thoughts age, just as people do. But certain thoughts can never age, and certain memories can never fade.
+ - Writing a long novel is like survival training. Physical strength is as necessary as artistic sensitivity.
+ - Running taught me to have faith in my skills as a writer. I learned how much I can demand of myself, when I need a break, and when the break starts to get too long. I known how hard I am allowed to push myself.
+ - Exhaustion pays no mind to age or beauty. Like rain and earthquakes and hail and floods.
+ - Open your eyes, train your ears, use your head. If a mind you have, then use it while you can.
+ - Some things, you know, if you say them, it makes them not true?
+ - One of these days they’ll be making a film where the whole human race gets wiped out in a nuclear war, but everything works out in the end.
+ - This is no honky-tonk parade. 1Q84 is the real world, where a cut draws real blood, where pain is real pain and fear is real fear. The moon in the sky is no paper moon.
+ - I am worrying about my country. I feel I have a responsibility as a novelist to do something.
+ - I can be hurt, you know. I can get as exhausted as anybody else. I can feel so bad I want to cry, too.
+ - Deep rivers run quiet.
+ - Everybody has to start somewhere. You have your whole future ahead of you. Perfection doesn’t happen right away.
+ - When people tell a lie about something, they have to make up a bunch of lies to go with the first one. ‘Mythomania’ is the word for it.
+ - People with dark souls have nothing but dark dreams. People with really dark souls do nothing but dream.
+ - Life is a lot more fragile than we think. So you should treat others in a way that leaves no regrets. Fairly, and if possible, sincerely.
+ - Now all you can do is wait. It must be hard for you, but there is a right time for everything. Like the ebb and flow of tides. No one can do anything to change them. When it is time to wait, you must wait.
+ - In long-distance running the only opponent you have to beat is yourself, the way you used to be.
+ - Here, too, a brand-new day is beginning. It could be a day like all the others, or it could be a day remarkable enough in many ways to remain in the memory. In either case, for now, for most people, it is a blank sheet of paper.
+ - Thanks to the long days of rain, the blades of grass glowed with a deep-green luster, and they gave off the smell of wildness unique to things that sink their roots into the earth.
+ - Wherever there’s hope there’s a trial.
+ - That’s what the world is, after all: an endless battle of contrasting memories.
+ - We’re both looking at the same moon, in the same world. We’re connected to reality by the same line. All I have to do is quietly draw it towards me.
+ - No matter how much suffering you went through, you never wanted to let go of those memories.
+ - I was always hungry for love. Just once, I wanted to know what it was like to get my fill of it – to be fed so much love I couldn’t take any more. Just once.
+ - Even castles in the sky can do with a fresh coat of paint.
+ - Nights without work I spend with whisky and books.
+ - So this was how secrets got started, I thought to myself. People constructed them little by little.
+ - Knowledge and ability were tools, not things to show off.
+ - The pure present is an ungraspable advance of the past devouring the future. In truth, all sensation is already memory.
+ - Some things in life are too complicated to explain in any language.
+ - I had my jazz club and I had enough money. So I didn’t have to write for my living.
+ - Cell phones are so convenient that they’re an inconvenience.
+ - Your work should be an act of love, not a marriage of convenience.
+ - So many dreams, so many disappointments, so many promises. And in the end, they all just vanish.
+ - I want you always to remember me. Will you remember that I existed, and that I stood next to you here like this?
+ - Most everything you think you know about me is nothing more than memories.
+ - Life: I’ll never understand it.
+ - It’s like a kid standing at the window watching the rain.
+ - Find me now. Before someone else does.
+ - Have you ever had that feeling – that you’d like to go to a whole different place and become a whole different self?
+ - Nobody likes being alone that much. I don’t go out of my way to make friends, that’s all. It just leads to disappointment.
+ - What I think is this: You should give up looking for lost cats and start searching for the other half of your shadow.
+ - I am a flawed human being – a far more flawed human being than you realize.
+ - It doesn’t matter how old I get, but as long as I continue to live I’ll always discover something new about myself.
+ - I think that my job is to observe people and the world, and not to judge them. I always hope to position myself away from so-called conclusions. I would like to leave everything wide open to all the possibilities in the world.
+ - I have a million things to talk to you about. All I want in this world is you. I want to see you and talk. I want the two of us to begin everything from the beginning.
+ - If you can’t understand it without an explanation, you can’t understand it with an explanation.
+ - Each individual has their own unique color, which shines faintly around the contours of their body. Like a halo. Or a backlight. I’m able to see those colors clearly.
+ - Even if we could turn back, we’d probably never end up where we started.
+ - I just feel pain. A lot of pain. I thought I could imagine how much this would hurt but I was wrong.
+ - Not everything was lost in the flow of time.
+ - Why do I act like this, agreeing when I really disagree, letting people force me to do things I don’t want to do?
+ - It’s easy to forget things you don’t need anymore.
+ - Inside that darkness, i saw rain falling on the sea. Rain softly falling on a vast sea, with no one there to see it. The rain strikes the surface of the sea, yet even the fish don’t know it is raining.
+ - Anyone who falls in love is searching for the missing pieces of themselves. So anyone who’s in love gets sad when they think of their lover. It’s like stepping back inside a room you have fond memories of, one you haven’t seen in a long time.
+ - Loving another person is a wonderful thing, and if that love is sincere, no one ends up tossed into a labyrinth. You have to have more faith in yourself.
+ - Friends don’t need the intervention of a third party. Friendship’s a voluntary thing.
+ - The world is an inherently unfair place.
+ - In a sense, I’m the one who ruined me: I did it myself.
+ - I’ll be happy if running and I can grow old together.
+ - Music brings a warm glow to my vision, thawing mind and muscle from their endless wintering.
+ - The light of morning decomposes everything.
+ - I’m just kinda tired. Like a monkey in the rain.
+ - Unclose your mind. You are not a prisoner. You are a bird in fight, searching the skies for dreams.
+ - Please remember: things are not what they seem.
+ - Don’t pointless things have a place, too, in this far-from-perfect world? Remove everything pointless from an imperfect life, and it’d lose even its imperfection.
+ - Don’t let appearances fool you. There’s always only one reality!
+ - In traveling, a companion, in life, compassion.
+ - Life’s no piece of cake, mind you, but the recipe’s my own to fool with.
+ - No matter what they wish for, no matter how far they go, people can never be anything but themselves. That’s all.
+ - In everybody’s life there’s a point of no return. And in a very few cases, a point where you can’t go forward anymore. And when we reach that point, all we can do is quietly accept the fact. That’s how we survive.
+ - Most of what I know about writing I’ve learned through running every day.
+ - I don’t care what you do to me, but I don’t want you to hurt me. I’ve had enough hurt already in my life. More than enough. Now I want to be happy.
+ - The sky grew darker, painted blue on blue, one stroke at a time, into deeper and deeper shades of night.
+ - I have this strange feeling that I’m not myself anymore. It’s hard to put into words, but I guess it’s like I was fast asleep, and someone came, disassembled me, and hurriedly put me back together again. That sort of feeling.
+ - Everything passes. Nobody gets anything for keeps. And that’s how we’ve got to live.
+ - Until the bitter end, the emptiness inside her was hers alone.
+ - Never let the darkness or negativity outside affect your inner self. Just wait until morning comes and the bright light will drown out the darkness.
+ - Whiskey, like a beautiful woman, demands appreciation. You gaze first, then it’s time to drink.
+ - Life is so uncertain: you never know what could happen. One way to deal with that is to keep your pajamas washed.
+ - Between a high, solid wall and an egg that breaks against it, I will always stand on the side of the egg.
+ - Such wounds to the heart will probably never heal. But we cannot simply sit and stare at our wounds forever.
+ - Reaching the finish line, never walking, and enjoying the race. These three, in this order, are my goals.
+ - While they’re still alive, people can become ghosts.
+ - No, I don’t want your money. The world moves less by money than by what you owe people and what they owe you. I don’t like to owe anybody anything, so I keep to myself as much on the lending side as I can.
+ - Whenever I look at the ocean, I always want to talk to people, but when I’m talking to people, I always want to look at the ocean.
+ - Sometimes you’re just the sweetest thing. Like Christmas, summer vacation, and a brand-new puppy rolled into one.
+ - The sad truth is that certain types of things can’t go backward. Once they start going forward, no matter what you do, they can’t go back the way they were. If even one little thing goes awry, then that’s how it will stay forever.
+ - In a place far away from anyone or anywhere, I drifted off for a moment.
+ - Life is not like water. Things in life don’t necessarily flow over the shortest possible route.
+ - If you’re young and talented, it’s like you have wings.
+ - Her cry was the saddest sound of orgasm that I had ever heard.
+ - I wonder what ants do on rainy days?
+ - At least he never walked.
+ - The Earth, time, concepts, love, life, faith justice, evil – they’re all fluid and in transition. They don’t stay in one form or in one place forever. The whole universe is like some big FedEx box.
+ - Listen up – there’s no war that will end all wars.
+ - I’m not so weird to me.
+ - How many Sundays – how many hundreds of Sundays like this – lay ahead of me? “Quiet, peaceful and lonely,” I said aloud to myself. On Sundays i didn’t wind my spring.
+ - I’ll write to you. A super-long letter, like in an old-fashioned novel.
+ - Exerting yourself to the fullest within your individual limits: that’s the essence of running, and a metaphor for life.
+ - A gentleman is someone who does not what he wants to do, but what he should do.
+ - No truth can cure the sorrow we feel from losing a loved one. No truth, no sincerity, no strength, no kindness can cure that sorrow. All we can do is see it through to the end and learn something from it, but what we learn will be no help in facing the next sorrow that comes to us without warning.
+ - I think I’ll stay alive here a bit longer, and see with my own eyes what’s going to happen. I can still die after that – it won’t be too late. Probably.
+ - In dreams you don’t need to make any distinctions between things. Not at all. Boundaries don’t exist. So in dreams there are hardly ever collisions. Even if there are, they don’t hurt. Reality is different. Reality bites. Reality, reality.
+ - My grandpa always said asking a question is embarrassing for a moment, but not asking is embarrassing for a lifetime.
+ - Among the many values in life, I appreciate freedom most.
+ - I’m a coward when it comes to matters of the heart. That is my fatal flaw.
+ - Loneliness becomes an acid that eats away at you.
+ - What we needed were not words and promises but a steady accumulation of small realities.
+ - Crying is personal. On the other hand, laughing is more general. Laughing makes our hearts wider.
+ - Most runners run not because they want to live longer, but because they want to live life to the fullest.
+ - Something in her small eyes caught the sunlight and glistened, like a glacier on the faraway face of a mountain.
+ - When the fire goes out, you’ll start feeling the cold. You’ll wake up whether you want to or not.
+ - The fresh smell of coffee soon wafted through the apartment, the smell that separates night from day.
+ - I would never see her again, except in memory. She was here, and now she’s gone. There is no middle ground. Probably is a word that you may find south of the border. But never, ever west of the sun.
+ - Narrow minds devoid of imagination. Intolerance, theories cut off from reality, empty terminology, usurped ideals, inflexible systems. Those are the things that really frighten me. What I absolutely fear and loathe.
+ - Whether in music or in fiction, the most basic thing is rhythm. Your style needs to have good, natural, steady rhythm, or people won’t keep reading your work.
+ - So I made up my mind I was going to find someone who would love me unconditionally three hundred and sixty-five days a year. Watanabe: Wow, and did your search pay off? M: That’s the hard part. I guess I’ve been waiting so long I’m looking for perfection. That makes it tough.
+ - I began running on an everyday basis after I became a writer. As being a writer requires sitting at a desk for hours a day, without getting some exercise you’d quickly get out of shape and gain weight, I figured.
+ - You have to wait until tomorrow to find out what tomorrow will bring.
+ - Sometimes when I think of life, I feel like a piece of driftwood washed up on shore.
+ - Some things are forgotten, some things disappear, some things die.
+ - I probably still haven’t completely adapted to the world. I don’t know, I feel like this isn’t the real world. The people, the scene: they just don’t seem real to me.
+ - An unhealthy soul requires a healthy body.
+ - It seemed to me that this world has a serious shortage of both logic and kindness.
+ - I have no models in Japanese literature. I created my own style, my own way.
+ - And everywhere, infinite options, infinite possibilities. An infinity, and at the same time, zero. We try to scoop it all up in our hands, and what we get is a handful of zero. That’s the city.
+ - They were each like a mirror for the other, reflecting the changes in themselves.
+ - Writing talent is similar to the art of chatting up a girl. You can improve to a certain degree through practice, but basically you are either born with it or you aren’t.
+ - In the spring of her twenty-second year, Sumire fell in love for the first time in her life.
+ - By then running had entered the realm of the metaphysical. First there came the action of running, and accompanying it there was this entity known as me. I run; therefore I am.
+ - Two-thirds of earth’s surface is ocean, and all we can see with the naked eye is the surface.
+ - We’re all kind of weird and twisted and drowning.
+ - Between the time the last train leaves and the first train arrives, the place changes: it’s not the same as in daytime.
+ - I am 55 years old now. It takes three years to write one book. I don’t know how many books I will be able to write before I die. It is like a countdown. So with each book I am praying – please let me live until I am finished.
+ - You have to dream intentionally. Most people dream a dream when they are asleep. But to be a writer, you have to dream while you are awake, intentionally.
+ - Our responsibility begins with our imagination.
+ - Which is why I am writing this book. To think. To understand. It just happens to be the way I’m made. I have to write things down to feel I fully comprehend them.
+ - You can have tons of talent, but it won’t necessarily keep you fed. If you have sharp instincts, through, you’ll never go hungry.
+ - Once she was out of the car and gone, my world was suddenly hollow and meaningless.
+ - You can see a person’s whole life in the cancer they get.
+ - Everything, everything seemed once-upon-a-time.
+ - I don’t know how many good books I still have in me; I hope there are another four or five.
+ - Reality’s just the accumulation of ominous prophecies come to life. All you have to do is open a newspaper on any given day to weigh the good news versus the bad news, and you’ll see what I mean.
+ - Time is too conceptual. Not that it stops us from filling it in. So much so, we can’t even tell whether our experiences belong to time or to the world of physical things.
+ - You are 27 or 28 right? It is very tough to live at that age. When nothing is sure. I have sympathy with you.
+ - How much do you love me?? Midori asked. ‘Enough to melt all the tigers in the world to butter,’ I said.
+ - Waiting for your answer is one of the most painful things I have ever been through. At least let me know whether or not I hurt you.
+ - This is the extent of his knowledge of the sea: it was very big, it was salty, and fish lived there.
+ - I always feel like I’m struggling to become someone else. Like I’m trying to find a new place, grab hold of a new life, a new personality. I guess it’s part of growing up; it’s also an attempt to reinvent myself.
+ - Life is like a box of cookies.
+ - It’s a dark, cool, quiet place. A basement in your soul. And that place can sometimes be dangerous to the human mind. I can open the door and enter that darkness, but I have to be very careful. I can find my story there. Then I bring that thing to the surface, into the real world.
+ - I was feeling lonely without her, but the fact that I could feel lonely at all was consolation. Loneliness wasn’t such a bad feeling. It was like the stillness of the pin oak after the little birds had flown off.
+ - Sometimes when I look at you, I feel I’m gazing at a distant star. It’s dazzling, but the light is from tens of thousands of years ago. Maybe the star doesn’t even exist any more. Yet sometimes that light seems more real to me than anything.
+ - No matter how much time passes, no matter what takes place in the interim, there are some things we can never assign to oblivion, memories we can never rub away.
+ - Time expands, then contracts, all in tune with the stirrings of the heart.
+ - Maybe working on the little things as dutifully and honestly as we can is how we stay sane when the world is falling apart.
+ - I’ve always done whatever I felt like doing in life. People may try to stop me, and convince me I’m wrong, but I won’t change.
+ - There is nothing so cruel in this world as the desolation of having nothing to hope for.
+ - Only where there is disillusionment and depression and sorrow does happiness arise; without the despair of loss, there is no hope.
+ - Everyone just keeps on disappearing. Some things vanish, like they were cut away. Others fade slowly into the mist. And all that remains is a desert.
+ - With luck, it might even snow for us.
+ - Nobody’s going to win all the time. On the highway of life you can’t always be in the fast lane.
+ - When I was little, I had this science book. There was a section on ‘What would happen to the world if there was no friction?’ Answer: ‘Everything on earth would fly into space from the centrifugal force of revolution.’ That was my mood.
+ - Isn’t life strange? There are people who have so many leftover clothes they can’t stuff them all in their wardrobe. And then there are people like me, whose socks never match.
+ - I tell lies sometimes. The last time I lied was a year ago. I absolutely detest lying. You could say that lying and silence are the two greatest sins of present day society. Actually, I lie a lot, and I’m always clamming up.
+ - When I first met you, I felt a kind of contradiction in you. You’re seeking something, but at the same time, you are running away for all you’re worth.
+ - Life doesn’t require ideals. It requires standards of action.
+ - You got to know your limits. Once is enough, but you got to learn. A little caution never hurt anyone. A good woodsman has only one scar on him. No more, no less.
+ - Still, in the end, we all die just the same.
+ - Things outside you are projections of what’s inside you, and what’s inside you is a projection of what’s outside. So when you step into the labyrinth outside you, at the same time you’re stepping into the labyrinth inside.
+ - Stories lie deep in our souls. Stories lie so deep at the bottom of our hearts that they can bring people together on the deepest level. When I write a novel, I go into such depths.
+ - Time moves in it special way in the middle of the night.
+ - Nothing so consumes a person as meaningless exertion.
+ - It was a small room with dim light coming in the window, reminiscent of old Polish films.
+ - Like you’re riding a train at night across some vast plain, and you catch a glimpse of a tiny light in a window of a farmhouse. In an instant it’s sucked back into the darkness behind and vanishes. But if you close your eyes, that point of light stays with you, just barely for a few moments.
+ - Sometimes I feel like a caretaker of a museum – a huge, empty museum where no one ever comes, and I’m watching over it for no one but myself.
+ - The answer is dreams. Dreaming on and on. Entering the world of dreams and never coming out. Living in dreams for the rest of time.
+ - I think of rivers, of tides. Forests and water gushing out. Rain and lightning. Rocks and shadows. All of these are in me.
+ - Maybe she thought the garbage and rocks in your head were interesting. But finally, garbage is garbage and rocks are rocks.
+ - Listen up – there’s no war that will end all wars,’ Crow tells me. ‘War breeds war. Lapping up the blood shed by violence, feeding on wounded flesh. War is a perfect, self-contained being. You need to know that.
+ - They sat on a park bench, held hands, and told each other their stories hour after hour. They were not lonely anymore. They had found and been found by their 100% perfect other. What a wonderful thing it is to find and be found by your 100% perfect other. It’s a miracle, a cosmic miracle.
+ - Death leaves cans of shaving cream half-used.
+ - In this world, there are things you can only do alone, and things you can only do with somebody else. It’s important to combine the two in just the right amount.
+ - As we go through life we gradually discover who we are, but the more we discover, the more we lose ourselves.
+ - I’m often asked what I think about as I run. Usually the people who ask this have never run long distances themselves. I always ponder the question. What exactly do I think about when I’m running? I don’t have a clue.
+ - As I already explaned, I don’t have any form. I’m a conceptual metaphysical object.
+ - But metaphors help eliminate what separates you and me.
+ - One heart is not connected to another through harmony alone. They are, instead, linked deeply through their wounds.
+ - Despite your best efforts, people are going to be hurt when it’s time for them to be hurt.
+ - Results aside, the ability to have complete faith in another human being is one of the finest qualities a person can possess.
+ - It’s because of you when I’m in bed in the morning that I can wind my spring and tell myself I have to live another good day.
+ - I keep to this routine every day without variation. The repetition itself becomes the important thing; it’s a form of mesmerism. I mesmerize myself to reach a deeper state of mind.
+ - Exerting yourself to the limit over and over again, that is the essence of running. Running is painful, but the pain doesn’t leave me, I can take care of it. That agrees with my mentality.
+ - I dream. Sometimes I think that’s the only right thing to do. To dream, to live in the world of dreams. But it doesn’t last forever. Wakefulness always comes to take me back.
+ - If I used being busy as an excuse not to run, I’d never run again. I have only a few reasons to keep on running, and a truckload of them to quit.
+ - In most cases learning something essential in life requires physical pain.
+ - A person’s last moments are an important thing. You can’t choose how you’re born but you can choose how you die.
+ - Hundreds of butterflies flitted in and out of sight like short-lived punctuation marks in a stream of consciousness without beginning or end.
+ - Colours shone with exceptional clarity in the rain. The ground was a deep black, the pine branches a brilliant green, the people wrapped in yellow looking like special spirits that were allowed to wander over the earth on rainy mornings only.
+ - This person, this self, this me, finally, was made somewhere else. Everything had come from somewhere else, and it would all go somewhere else. I was nothing but a pathway for the person known as me.
+ - You’ve already decided what you’re going to do, and all that’s left is to set the wheels in motion. I mean, it’s your life. Basically, you gotta go with what you think is right.
+ - Perhaps most people in the world aren’t trying to be free, Kafka. They just think they are. It’s all an illusion. If they really were set free, most people would be in a real pickle. You’d better remember that. People actually prefer not being free?
+ - A deserted library in the morning – there’s something about it that really gets to me. All possible words and ideas are there, resting peacefully.
+ - In other words, let’s face it: Life is basically unfair. But even in a situation that’s unfair, I think it’s possible to seek out a kind of fairness. Of course, that might take time and effort. And maybe it won’t seem to be worth all that. It’s up to each individual to decide whether or not it is.
+ - I collect records. And cats. I don’t have any cats right now. But if I’m taking a walk and I see a cat, I’m happy.
+ - Genius or fool, you don’t live in the world alone. You can hide underground or you can build a wall around yourself, but somebody’s going to come along and screw up the works.
+ - I used to run a full marathon in three hours and 25 or 26 minutes. Not any more.
+ - He does not exist here, with me, but flesh that does not exist will never die, and promises unmade are never broken.
+ - I never trust people with no appetite. It’s like they’re always holding something back on you.
+ - If they invent a car that runs on stupid jokes, you could go far.
+ - We can, if we so choose, wander aimlessly over the continent of the arbitrary. Rootless as some winged seed blown about on a serendipitous spring breeze.
+ - A person’s destiny is something you look back at afterwards, not something to be known in advance.
+ - It’s pretty thin, the wall separating healthy confidence and unhealthy Pride.
+ - A person learns how to love himself through the simple acts of loving and being loved by someone else.
+ - Fate seems to be taking me in some even stranger directions.
+ - She was, if anything, on the plain side, at least not the type to attract men wherever she went. But there was something in her face that was meant for me alone. Everytime we met, I took a good look at her. And loved what I saw.
+ - Thinking about spaghetti that boils eternally but is never done is a sad, sad thing.
+ - Pointless thinking is worse than no thinking at all.
+ - The moon had been observing the earth close-up longer than anyone. It must have witnessed all of the phenomena occurring – and all of the acts carried out – on this earth. But the moon remained silent; it told no stories.
+ - The faintest gleam of their lost memories glimmered for the briefest moment in their hearts.
+ - Age certainly hadn’t conferred any smarts on me. Character maybe, but mediocrity is a constant, as one Russian writer put it. Russian writers have a way with aphorisms. They probably spend all winter thinking them up.
+ - Things pass us by. Nobody can catch them. That’s the way we live our lives.
+ - This is what it means to live on. When granted hope, a person uses it as fuel, as a guidepost to life. It is impossible to live without hope.
+ - All of us are imperfect human beings living in an imperfect world.
+ - Never trust a man who carries a handkerchief, I always say. One of many prejudicial rules of thumb.
+ - Whether you take the doughnut hole as a blank space or as an entity unto itself is a purely metaphysical question and does not affect the taste of the doughnut one bit.
+ - When you are used to the kind of life -of never getting anything you want- you stop knowing what it is you want.
+ - Is it possible to become friends with a butterfly?
+ - I wasn’t particularly afraid of death itself. As Shakespeare said, die this year and you don’t have to die the next.
+ - Once thing goes wrong, then the whole house of cards collapses. And there’s no way you can extricate yourself. Until someone comes along to drag you out.
+ - If writing novels is like planting a forest, then writing short stories is more like planting a garden.
+ - What would tomorrow bring? I wondered. Both hands on the wheel, I closed my eyes. I didn’t feel like I was in my own body; my body was just a lonely, temporary container I happened to be borrowing. What would become of me tomorrow I did not know.
+ - To be able to talk to your heart’s content about a book you like with someone who feels the same way about it is one of the greatest joys that life can offer.
+ - I contented myself with whiskey, for medicinal purposes. It helped numb my various aches and pains. Not that the alcohol actually reduced the pain; it just gave the pain a life of its own, apart from mine.
+ - Music always stimulates my imagination. When I’m writing I usually have some Baroque music on low in the background chamber music by Bach, Telemann, and the like.
+ - I never could stand being forced to do something I didn’t want to do at a time I didn’t want to do it. Whenever I was able to do something I liked to do, though, when I wanted to do it, and the way I wanted to do it, I’d give it everything I had.
+ - I started writing at the kitchen table after midnight. It took ten months to finish that first book; I sent it to a publisher and I got some kind of prize, so it was like a dream – I was surprised to find it happening.
+ - I go back to the reading room, where I sink down in the sofa and into the world of The Arabian Nights. Slowly, like a movie fadeout, the real world evaporates. I’m alone, inside the world of the story. My favourite feeling in the world.
+ - That’s how stories happen – with a turning point, an unexpected twist. There’s only one kind of happiness, but misfortune comes in all shapes and sizes. It’s like Tolstoy said. Happiness is an allegory, unhappiness a story.
+ - The problem was, I think, that the places I fit in were always falling behind the rimes.
+ - Maybe the only thing I can definitely say about is this: That’s life. Maybe the only thing we can do is accept it, without really knowing what’s going on.
+ - When there’s nothing to do, you do nothing slowly and intently.
+ - I could disappear from the face of the earth, and the world would go on moving without the slightest twinge. Things were tremendously complicated, to be sure, but one thing was clear: no one needed me.
+ - Killing time is not an easy job.
+ - When I start to write, I don’t have any plan at all. I just wait for the story to come.
+ - Everything was too sharp and clear, so that I could never tell where to start- the way a map that shows too much can sometimes be useless.
+ - What I’d like to be is a unique writer who’s different from everybody else. I want to be a writer who tells stories unlike other writers’.
+ - Certain kinds of knowledge rob people of their sleep.
+ - She was seriously in love, but she never made demands.
+ - The good thing about writing book is that you can dream while you are awake...
+ - There is nothing in this world that never takes a step outside a person’s heart.
+ - It’s not me but the world that’s deranged.
+ - I wondered if she was trying to convey something to me, something she could not put into words – something prior to words that she could not grasp within herself and which therefore had no hope of ever turning into words.
+ - I write my novels personally, desperately and non-negligently. When I write my novels, I think about my novels only, and never do other works.
+ - Have books ‘happened’ to you? Unless your answer to that question is ‘yes,’ I’m unsure how to talk to you.
+ - She gave me this look – she might have been watching from a lifeboat as the ship went down. Or maybe it was the other way around.
+ - When you fall in love, the natural thing to do is give yourself to it.
+ - Sometimes I get real lonely sleeping with you.
+ - If I choose to write about sheep, it’s just because I happened to write about sheep. There is no deep significance.
+ - Love and used Subarus were two different things. Weren’t they?
+ - I think of myself as more the non-turn-on type. so when I do get turned on, I don’t trust it, I have to investigate the source.
+ - I don’t want our relationship to end like this. You’re one of the very few friends I have, and it hurts not being able to see you. When am I going to be able to talk to you? I want you to tell me that much, at least.
+ - Not that running away’s going to solve everything. I don’t want to rain on your parade or anything, but I wouldn’t count on escaping this place if I were you. No matter how far you run. Distance might not solve anything.
+ - Beyond the edge of the world there’s a space where emptiness and substance neatly overlap, where past and future form a continuous, endless loop. And, hovering about, there are signs no one has ever read, chords no one has ever heard.
+ - Sex is an extremely subtle undertaking, unlike going to the department store on a Sunday to buy a thermos.
+ - It’s hard to tell the difference between sea and sky, between voyager and sea. Between reality and the workings of the heart.
+ - Don’t let thoughts of me hold you back. Just do what you want to do. Otherwise, I might end up taking you with me, and that is the one thing I don’t want to do. I don’t want to interfere with your life.
+ - For a long time, she held a special place in my heart. I kept this special place just for her, like a “Reserved” sign on a quiet corner table in a restaurant. Despite the fact that I was sure I’d never see her again.
+ - Please think of me like an endangered species and just observe me quietly from far away. If you try to talk to me or touch me casually, I may get intimidated and bite you. So please be careful.
+ - I’d be smiling and chatting away, and my mind would be floating around somewhere else, like a balloon with a broken string.
+ - It’s like Tolstoy said. Happiness is an allegory, unhappiness a story.
+ - But if you knew you might not be able to see it again tomorrow, everything would suddenly become special and precious, wouldn’t it?
+ - I’m kind of a low-key guy. The spotlight doesn’t suit me. I’m more of a side dish – cole slaw or French fries or a Wham! backup singer.
+ - Gazing at the rain, I consider what it means to belong, to become part of something. To have someone cry for me.
+ - What’s nurtured slowly grows well.
+ - It’s just a feeling I have. What you see with your eyes is not necessarily real. My enemy is, among other things, the me inside me.
+ - You have to make an effort to always look at the good side, always think about the good things. Then you’ve got nothing to be afraid of. If something bad comes up, you do more thinking at that point.
+ - I happen to like the strange ones. People who look normal and leads normal lives – they’re the ones you have to watch out for.
+ - I closed my eyes and tried to sleep. But it was not until much later that I was able to get any real sleep. In a place far away from anyone or anywhere, I drifted off for a moment.
+ - She was truly a beautiful girl. I could feel a small polished stone sinking through the darkest waters of my heart. All those deep convoluted channels and passageways, and yet she managed to toss her pebble right down to the bottom of it all.
+ - Autumn finally arrived. And when it did, I came to a decision. Something had to give: I couldn’t keep on living like this.
+ - That’s the kind of death that frightens me. The shadow of death slowly, slowly eats away at the region of life, and before you know it everything’s dark and you can’t see, and the people around you think of you as more dead than alive.
+ - If she did experience sex-or something close to it-in high school, I’m sure it would have been less out of sexual desire or love than literary curiosity.
+ - Nothing in the real world is as beautiful as the illusions of a person about to lose consciousness.
+ - This was something sure to be crammed full of warm secrets, like an antique clock built when peace filled the world.
+ - The worst thoughts usually strike in the dead of the night.
+ - I understand what you mean by precarious. Sometimes I feel so- I don’t know- lonely. The kind of helpless feeling when everything you’re used to has been ripped away. Like there’s no more gravity, and I’m left to drift in outer space. With no idea where I’m headed.
+ - I want to believe you, but if that’s true, I just don’t get it. Why does loving somebody mean you have to hurt them just as much? I mean, if that’s the way it goes, what’s the point of loving someone?
+ - Like flowers scattered in a storm, a man’s life is a long farewell.
+ - The journey I’m taking is inside me. Just like blood travels down veins, what I’m seeing is my inner self and what seems threatening is just the echo of the fear in my heart.
+ - Having an object that symbolizes freedom might make a person happier than actually getting the freedom it represents.
+ - The heavy smell of flower petals stroked the walls of my lungs.
+ - Time passes slowly. Nobody says a word, everyone lost in quiet reading. One person sits at a desk jotting down notes, but the rest are sitting there silently, not moving, totally absorbed. Just like me.
+ - But what seems like a reasonable distance to one person might feel too far to somebody else.
+ - How wonderful it is to be able to write someone a letter! To feel like conveying your thoughts to a person, to sit at your desk and pick up a pen, to put your thoughts into words like this is truly marvelous.
+ - Overhead, the two moons worked together to bathe the world in a strange light.
+ - Sometimes we don’t need words. Rather, it’s words that need us.
+ - No matter how long you stand there examining yourself naked before a mirror, you’ll never see reflected what’s inside.
+ - Once you let yourself grow close to someone, cutting the ties could be painful.
+ - I often dream about the Dolphin Hotel.
+ - Reality was utterly coolheaded and utterly lonely.
+ - Strong and independent? I’m neither. I’m just being pushed along by reality, whether I like it or not.
+ - He felt as if his heart had dried up. I needed her he thought. I needed someone like her to fill the void inside me. But I wasn’t able to fill the void inside her. Until the bitter end, the emptiness inside her was hers alone.
+ - One impossible day, of an impossible month, of an impossible year.
+ - The things she most wanted to tell him would lose their meaning the moment she put them into words.
+ - Time really is one big continuous cloth, no? We habitually cut out pieces of time to fit us, so we tend to fool ourselves into thinking that time is our size, but it really goes on and on.
+ - People leave strange little memories of themselves behind when they die.
+ - Sometimes when I’m with you, I remember things I lost when I was your age. Like I remember the sound of the rain and the smell of the wind.
+ - One last word of advice, though, Mr. Okada, though you may not want to hear this. There are things in this world it is better not to know about. Of course, those are the very things that people most want to know about. It’s strange.
+ - Taking crazy things seriously is a serious waste of time.
+ - What I was chasing in circles must have been the tail of the darkness inside me.
+ - You make do with what you have. As you age you learn even to be happy with what you have.
+ - What we see before us is just one tiny part of the world. We get in the habit of thinking, this is the world, but that’s not true at all. The real world is a much darker and deeper place than this, and much of it is occupied by jellyfish and things.
+ - In real life things don’t go so smoothly. At certain points in our lives, when we really need a clear-cut solution, the person who knocks at our door is, more likely than not, a messenger bearing bad news.
+ - It’s all matter of attitude. You could let a lot of things bother you if you wanted to But it’s pretty much the same anywhere you go, you can manage.
+ - When it’s all over, it’ll seem like a dream.
+ - What do you think? I’m not a starfish or a pepper tree. I’m a living, breathing human being. Of course I’ve been in love.
+ - What you see with your eyes is not necessarily real.
+ - My point is: in this whole wide world the only person you can depend on is you.
+ - I’d made it back to the land of the living. No matter how boring or mediocre a world it might be, this was it.
+ - But if something did happen, it happened. Whether it’s right or wrong. I accept everything that happens, and that’s how I became the person I am now.
+ - Maybe it’s just hiding somewhere. Or gone on a trip to come home. But falling in love is always a pretty crazy thing. It might appear out of the blue and just grab you. Who knows – maybe even tomorrow.
+ - In Japan, the writers have made up a literary community, a circle, a society. I think 90 percent of Japan’s writers live in Tokyo. Naturally, they make a community. There are groups and customs, and so they are tied up in a way.
+ - The silence grew deeper, so deep that if you listened carefully you might very well catch the sound of the earth revolving on its axis.
+ - Beyond the window, some kind of small, black thing shot across the sky. A bird, possibly. Or it might have been someone’s soul being blown to the far side of the world.
+ - Mental acuity was never born from comfortable circumstances.
+ - You throw a stone into a deep pond. Splash. The sound is big, and it reverberates throughout the surrounding area. What comes out of the pond after that? All we can do is stare at the pond, holding our breath.
+ - Even so, there were times I saw freshness and beauty. I could smell the air, and I really loved rock ‘n’ roll. Tears were warm, and girls were beautiful, like dreams. I liked movie theaters, the darkness and intimacy, and I liked the deep, sad summer nights.
+ - With each passing moment I’m becoming part of the past. There is no future for me, just the past steadily accumulating.
+ - It’s good when food tastes good, it’s kind of like proof you’re alive.
+ - Even if you managed to escape from one cage, weren’t you just in another, larger one?
+ - It is a lonely life sometimes, like throwing a stone into the deep darkness. It might hit something, but you can’t see it. The only thing you can do is to guess, and to believe.
+ - It takes years to build up, it takes moments to destroy.
+ - Our memory is made up of our individual memories and our collective memories. The two are intimately linked. And history is our collective memory. If our collective memory is taken from us – is rewritten – we lose the ability to sustain our true selves.
+ - It was as if I were writing letters to hold together the pieces of my crumbling life.
+ - There are many things we only see clearly in retrospect.
+ - Sheep hurt my father, and through my father, sheep have also hurt me.
+ - If you think God’s there, He is. If you don’t, He isn’t. And if that’s what God’s like, I wouldn’t worry about it.
+ - Young people these days don’t trust anything at all. They want to be free.
+ - I like to read books. I like to listen to music.
+ - When I wake up, my pillow’s cold and damp with tears. But tears for what? I have no idea.
+ - Judging the mistakes of strangers is an easy thing to do – and it feels pretty good.
+ - There are ways of dying that don’t end in funerals. Types of death you can’t smell.
+ - Life might just be an absurd, even crude, chain of events and nothing more.
+ - What matters is deciding in your heart to accept another person completely. When you do that, it is always the first time and the last.
+ - A girl doesn’t always want to go out, you know, Mr. Wind-Up Bird. Sometimes she feels like being nasty – like, if the guy’s gonna wait, let him really wait.
+ - Better to be a first-class matchbox than a second-class match.
+ - What we seek is some kind of compensation for what we put up with.
+ - It was a strange feeling, like touching a void.
+ - Sometimes taking time is actually a shortcut.
+ - The most dangerous creature here would have to be me. So maybe I’m just scared of my own shadow.
+ - And when you come back to Japan next summer, let’s have that date or whatever you want to call it. We can go to the zoo or the botanical garden or the aquarium, and then we’ll have the most politically correct and scrumptious omelets we can find.
+ - It’s a question of attitude. If you really work at something you can do it up to a point. If you really work at being happy you can do it up to a point. But anything more than that you can’t. Anything more than that is luck.
+ - Kindness and a caring mind are two separate qualities. Kindness is manners. It is superficial custom, an acquired practice. Not so the mind. The mind is deeper, stronger, and, I believe, it is far more inconstant.
+ - I lost some of my friends because I got so famous, people who just assumed that I would be different now. I felt like everyone hated me. That is the most unhappy time of my life.
+ - I realize now that the reality of things is not something you convey to people but something you make.
+ - In the end, like so many beautiful promises in our lives, that dinner date never came to be.
+ - What a terrible thing it is to wound someone you really care for and to do it so unconsciously.
+ - It’s not right for one friend to do all the giving and the other to do all the taking: that’s not read friendship.
+ - There’s an essential order you have to follow in everything. It’s a way of showing respect, following everything in the correct order.
+ - Everyone may be ordinary, but they’re not normal.
+ - The passage of time will usually extract the venom of most things and render them harmless.
+ - Most near-future fictions are boring. It’s always dark and always raining, and people are so unhappy.
+ - Somewhere in his body – perhaps in the marrow of his bones – he would continue to feel her absence.
+ - All right, then, I thought: here I am in the bottom of a well.
+ - What do I like about math?, When I’ve got figures in front of me, it relaxes me. Kind of like, everything fits where it belongs.
+ - My heroes don’t have anything special. They have something to tell other people but they don’t know how, so they talk to themselves.
+ - If you never noticed, it never happened.
+ - I learned that realism can come in all shapes and sizes. The world is big enough for different values to coexist.
+ - The thoughts that occur to me while I’m running are like clouds in the sky. Clouds of all different sizes. They come and they go, while the sky remains the same sky always. The clouds are mere guests in the sky that pass away and vanish, leaving behind the sky.
+ - What I want is for the two of us to meet somewhere by chance one day, like, passing on the street, or getting on the same bus.
+ - I’ve run the Boston Marathon 6 times before. I think the best aspects of the marathon are the beautiful changes of the scenery along the route and the warmth of the people’s support. I feel happier every time I enter this marathon.
+ - That’s what love’s all about. You’re the only one having those wonderful feelings, but you have to go it alone as you wander through the dark your mind and body have to bear it all. All by yourself.
+ - You always look so cool, like no matter what happens, it’s got nothing to do with you, but you’re not really like that. In your own way, you’re out there fighting as hard as you can, even if other people can’t tell by looking at you.
+ - When I write about a 15-year old, I jump, I return to the days when I was that age. It’s like a time machine. I can remember everything. I can feel the wind. I can smell the air. Very actually. Very vividly.
+ - I find myself thinking about my ongoing existence as a human being and the path that lies ahead of me. Though of course these thoughts lead to but one place – death.
+ - When someone is trying very hard to get something, they don’t. And when they’re running away from something as hard as they can, it usually catches up with them.
+ - Artists are those who can evade the verbose.
+ - I saw that she was crying. Before I knew it, I was kissing her. Others on the platform were staring at us, but I didn’t care about such things anymore. We were alive, she and I. And all we had to think about was continuing to live.
+ - I want to write about people who dream and wait for the night to end, who long for the light so they can hold the ones they love.
+ - No matter where i go, i still end up me. What’s missing never changes. The scenery may change, but i’m still the same incomplete person. The same missing elements torture me with a hunger that i can never satisfy. I think that lack itself is as close as i’ll come to defining myself.
+ - Either I’m funny or the world’s funny. I don’t know which. The bottle and lid don’t fit. It could be the bottle’s fault or the lid’s fault. In either case, there’s no denying that the fit is bad.
+ - My priority is my books, at least at this point. What I have to do is write the narrative of this time.
+ - My imagination is a kind of animal. So what I do is keep it alive.
+ - If there’s something I can’t do but want to, I won’t relax until I’m able to do it.
+ - I used to think the years would go by in order, that you get older one year at a time. But it’s not like that. It happens overnight.
+ - So the fact that I’m me and no one else is one of my greatest assets. Emotional hurt is the price a person has to pay in order to be independent.
+ - Her smile steps offstage for a moment, then does an encore, all while I’m dealing with my blushing face.
+ - Each of us possesses a tangible living soul. The system has no such thing. We must not allow the system to exploit us.
+ - Something inside me had dropped away, and nothing came in to fill the cavern.
+ - Who can really distinguish between the sea and what’s reflected in it? Or tell the difference between the falling rain and loneliness?
+ - Most of the psychological differences between men and women seem to come from differences in their reproductive system.
+ - My short stories are like soft shadows I have set out in the world, faint footprints I have left. I remember exactly where I set down each and every one of them, and how I felt when I did. Short stories are like guideposts to my heart...
+ - Fairness is a concept that holds only in limited situations. Yet we want the concept to extend to everything, in and out of phase. From snails to hardware stores to married life. Maybe no one finds it, or even misses it, but fairness is like love. What is given has nothing to do with what we seek.
+ - Time weighs down on you like an old, ambiguous dream. You keep on moving, trying to sleep through it. But even if you go to the ends of the earth, you won’t be able to escape it. Still, you have to go there- to the edge of the world. There’s something you can’t do unless you get there.
+ - There had to be something wrong with my life. I should have been born a Yugoslavian shepherd who looked up at the Big Dipper every night.
+ - People soon get tired of things that aren’t boring, but not of what is boring.
+ - Being active every day makes it easier to hear that inner voice.
+ - I guess I felt attached to my weakness. My pain and suffering too. Summer light, the smell of a breeze, the sound of cicadas – if I like these things, why should I apologize?
+ - It’s like the Tibetan Wheel of the Passions. As the wheel turns, the values and feelings on the outer rim rise and fall, shining or sinking into darkness. But true love stays fastened to the axle and doesn’t move.
+ - Our faces were no more than ten inches apart but she was lightyears away from me.
+ - If you do anything out of the ordinary, you can be sure someone, somewhere, will get upset.
+ - I’m not a fast reader. I like to linger over each sentence, enjoying the style. If I don’t enjoy the writing, I stop.
+ - There’s nothing wrong with not looking like something. It just means you don’t fit the stereotype yet.
+ - Most people are not looking for provable truths. As you said, truth is often accompanied by intense pain, and almost no one is looking for painful truths. What people need is beautiful, comforting stories that make them feel as if their lives have some meaning. Which is where religion comes from.
+ - Concentration is one of the happiest things in my life.
+ - Is this what it means to go back to square one? Most likely. He had nothing left to lose, other than his life.
+ - Confidence, as a teenager? Because I knew what I loved. I loved to read; I loved to listen to music; and I loved cats. Those three things. So, even though I was an only kid, I could be happy because I knew what I loved.
+ - The rain that fell on the city runs down the dark gutters and empties into the sea without even soaking the ground.
+
+500 quotes

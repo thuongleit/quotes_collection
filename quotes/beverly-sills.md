@@ -1,0 +1,31 @@
+ - You may be disappointed if you fail, but you are doomed if you don’t try.
+ - My dear brothers, take note of this: Everyone should be quick to listen, slow to speak and slow to become angry, for man’s anger does not bring about the righteous life that God desires.
+ - Just sing it. Don’t prove you can sing it. I know you can, you know you can. So just do it, because if you try to prove it, you’ll lose.
+ - In youth we run into difficulties. In old age difficulties run into us.
+ - Everything you need you already have. You are complete right now, you are a whole, total person, not an apprentice person on the way to someplace else. Your completeness must be understood by you and experienced in your thoughts as your own personal reality.
+ - It seemed no longer important whether everyone loved me or not, more important now was for me to love them.
+ - The press frequently sneers at the hype devoted to a superstar, but the press itself is responsible for all the hype.
+ - I really do believe I can accomplish a great deal with a big grin, I know some people find that disconcerting, but that doesn’t matter.
+ - Art is the signature of civilizations.
+ - I’ve always tried to go a step past wherever people expected me to end up.
+ - I don’t share blame. I don’t share credit. And I don’t share desserts.
+ - I can’t be happy every day but I can be cheerful.
+ - So long as it doesn’t get to the point where you don’t remember whose opera you’re listening to, I’m willing to experiment.
+ - A happy woman is one who has no cares at all; a cheerful woman is one who has cares but doesn’t let them get her down.
+ - I never share credit or desserts.
+ - When you’re in love, the whole world is Jewish.
+ - Why let one high C ruin your whole evening?
+ - The last major childhood disease remains and it’s the worst of them all: nuclear war.
+ - There is a growing strength in women, but it is in the forehead, not in the forearm.
+ - I lived through the garbage. I might as well dine on the caviar.
+ - There is something in me-I just can’t stand to admit defeat.
+ - Opera is an extremely disciplined art form, and every excess a singer indulges in has a direct effect on the voice.
+ - A primary function of art and thought is to liberate the individual from the tyranny of his culture in the environmental sense and to permit him to stand beyond it in an autonomy of perception and judgment.
+ - Don’t get me started on critics.
+ - There are an awful lot of skinny people in the cemetery.
+ - My voice had a long, nonstop career. It deserves to be put to bed with quiet and dignity, not yanked out every once in a while to see if it can still do what it used to do. It can’t.
+ - As soon as I arrive at the house, Laurie starts running, hits my chest, knocks me down, and licks my face. It’s become a family ritual.
+ - The Lourie Center eases the burden of children and their families through early intervention and diagnoses and treatment.
+ - I’ve always tried to be cheerful, because I think people who whine are boring, and I never could tolerate bores.
+
+29 quotes

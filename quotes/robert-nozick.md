@@ -1,0 +1,33 @@
+ - Instead of trying to prove your opponent wrong, try to see in what sense he might be right.
+ - No state more extensive than the minimal state can be justified.
+ - Marxian exploitation is the exploitation of people’s lack of understanding of economics.
+ - You can’t satisfy everybody; especially if there are those who will be dissatisfied unless not everybody is satisfied.
+ - From each as they choose, to each as they are chosen.
+ - The socialist society would have to forbid capitalist acts between consenting adults.
+ - Only the refusal to listen guarantees one against being ensnared by the truth.
+ - Through the evolutionary process, those who are able to engage in social cooperation of various sorts do better in survival and reproduction.
+ - Evolutionary cosmology formulates theories in which a universe is capable of giving rise to and generating future universes out of itself, within black holes or whatever.
+ - Why are philosophers intent on forcing others to believe things? Is that a nice way to behave towards someone?
+ - Whatever arises from a just situation by just steps is itself just.
+ - Taxation of earnings from labor is on a par with forced labor.
+ - Some people steal from others, or defraud them, or enslave them, seizing their product and preventing them from living as they choose, or forcibly exclude others from competing in exchanges. None of these are permissible modes of transition from one situation to another.
+ - What else can matter to us, other than how our lives feel from the inside?
+ - A distribution is just if it arises from another just distribution by legitimate means.
+ - The trouble with government regulation of the market is that it prohibits capitalistic acts between consenting adults.
+ - Utopia is a meta-utopia: the environment in which Utopian experiments may be tried out; the environment in which people are free to do their own thing; the environment which must, to a great extent, be realized first if more particular Utopian visions are to be realized stably.
+ - There is room for words on subjects other than last words.
+ - I guess my tendency is to think essentially that the new wrinkles won’t do the job if the old major idea didn’t, and so you have to try something different. Then maybe they can all be combined in some coherent piece.
+ - Is there really someone who, searching for a group of wise and sensitive persons to regulate him for his own good, would choose that group of people that constitute the membership of both houses of Congress?
+ - Justice in holdings is historical; it depends upon what actually has happened. We shall return to this point later.
+ - It goes without saying that any persons may attempt to unite kindred spirits, but, whatever their hopes and longings, none have the right to impose their vision of unity upon the rest.
+ - Taxation of earnings from labor is on a par with forced labor. Seizing the results of someone’s labor is equivalent to seizing hours from him and directing him to carry on various activities.
+ - And although it might be best of all to be Socrates satisfied, having both happiness and depth, we would give up some happiness in order to gain the depth.
+ - When I was 15 years old, or 16, I carried around on the streets of Brooklyn a paperback copy of Plato’s Republic, front cover facing outward. I had read only some of it and understood less, but I was excited by it and knew it was something wonderful.
+ - It is, from another angle, an attack on requiring proof in philosophy. And it’s also the case, I guess, that my temperament is to like interesting, new, bold ideas, and to try and generate them.
+ - Examples one finds in the philosophical literature are somebody who’s seen the trial of a child of theirs, where they’re being proved guilty of some crime that would drive the parent into a depression, maybe a suicidal depression.
+ - The scientists often have more unfettered imaginations than current philosophers do. Relativity theory came as a complete surprise to philosophers, and so did quantum mechanics, and so did other things.
+ - What hadn’t been realized in the literature until now is that merely to describe how severely something has been tested in the past itself embodies inductive assumptions, even as a statement about the past.
+ - Whatever the practical origins of aesthetic discernment may have been, it has been used to create great works of art. When the very loftiest human creations are seen to derive from humble origins and functions, what needs revision is not our esteem for these creations but our notion of nobility.
+ - I think philosophers can do things akin to theoretical scientists, in that, having read about empirical data, they too can think of what hypotheses and theories might account for that data. So there’s a continuity between philosophy and science in that way.
+
+31 quotes

@@ -1,0 +1,41 @@
+ - Think big, think fast, think ahead. Ideas are no one’s monopoly.
+ - For those who dare to dream, there is a whole world to win.
+ - Meeting the deadlines is not good enough, beating the deadlines is my expectation.
+ - Pursue your goals even in the face of difficulties, and convert adversities into opportunities.
+ - If you work with determination and with perfection, success will follow.
+ - True entrepreneurshi p comes only from risk-taking.
+ - Only when you dream it you can do it.
+ - Don’t give up, courage is my conviction.
+ - Often people think opportunity is a matter of luck. I believe opportunities are all around us. Some seize it. Others stand and let it pass by.
+ - I dream of India becoming a great economic superpower.
+ - Our dreams have to be bigger. Our ambitions higher. Our commitment deeper. And our efforts greater. This is my dream for Reliance and for India.
+ - Keep your morale high, in spite of setbacks. At the end you are bound to succeed.
+ - Never. Till my last breath I will work. To retire there is only one place-the cremation ground.
+ - Challenge negative forces with hope, self-confidence and conviction. I believe that ambition and initiative will ultimately triumph.
+ - We cannot change our rulers, but we can change the way they rule us.
+ - You do not require an invitation to make profits.
+ - Secret of my success was to have ambition and know minds of men.
+ - Tax is for the poor or the stupid people.
+ - A vision has to be within reach not in the air. It has to be achievable.
+ - Does making money excite me? No, but I have to make money for my shareholders. What excites me is achievement, doing something difficult.
+ - My commitment is to produce at the cheapest price and the best quality.
+ - Between my past, the present and the future, there is one common factor: Relationship and Trust. This is the foundation of our growth.
+ - The most important external environment is the government of India. You have to sell your ideas to the government. Selling the idea is the most important thing, and for that I’ll meet anybody in the government. I am willing to salaam anyone. One thing you won’t find in me and that is an ego.
+ - We must always go for the best. Do not compromise on quality. Reject if it is not the best – not only the best in India, but globally.
+ - The problem with Indians is that we have lost the habit of thinking big!
+ - There is no difference between our methods and those of anybody bu else-the only difference is that our motivation and dedication he is much greater.
+ - Play on the frontiers of technology. Be ahead of the tomorrows.
+ - Growth has no limit at Reliance. I keep revising my vision. Only when you dream it you can do it.
+ - A motivated manpower is the most important thing.
+ - I had dreams of starting a company like Burmah Shell.
+ - There is no question about that. Business is my hobby. It is not a burden to me. In any case Reliance now can run without me.
+ - I am not a believer in religious rituals. I was brought up in the Arya Samaj environment which taught us to shun rituals. Puja, of course, but simple, elegant and brief.
+ - Dhirubhai will go one day. But Reliance’s employees and shareholders will keep it afloat. Reliance is now a concept in which the Ambanis have become irrelevant.
+ - I consider myself a pathfinder. I have been excavating the jungle and making the road for others to walk. I like to be the first in everything I do.
+ - You accuse me of black marketing, but which of you has not slept with me?
+ - I, as school kid, was a member of the Civil Guard, something like today’s NCC. We had to salute our officers who went round in jeeps. So I thought one day I will also ride in a jeep and somebody else will salute me.
+ - Reliance’s success is a reflection of India’s capabilities, the talent of her people and the potential of her entrepreneurs, engineers, managers, and workers.
+ - The success of the young entrepreneur will be the key to India’s transformation in the new millennium.
+ - I sincerely believe that Indians have the ability to compete with the best in the world.
+
+39 quotes

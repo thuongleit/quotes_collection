@@ -1,0 +1,59 @@
+ - Like stars across the sky, we were born to shine.
+ - Even in the most beautiful music, there are some silences, which are there so we can witness the importance of silence. Silence is more important than ever, as life today is full of noise. We speak a lot about environmental pollution but not enough about noise pollution.
+ - Music is able to make a person dream. When you dream, you dream of something good, something beautiful, and when you dream, you always dream of yourself better than you are.
+ - I have to face life with a newly found passion. I must rediscover the irresistible will to learn, to live and to love.
+ - I consider the voice a gift from the heavens, and as all the gifts from the heavens, they must be used, but the minute that the heavens call it back then of course I will stop.
+ - Losing my sight had nothing to do with my focus on music. My passion for music was already there, so it would be a mistake to give too much significance to my blindness.
+ - I speak to God every day.
+ - In singing, you cannot ‘cheat’ if you want to give emotions to those who are listening. You must have something to tell.
+ - I am a product of my native land, Tuscany, Italy.
+ - Naturally, women are drawn to a man who understands the subtlety of emotions, and they know I’m a passionate man. But the reason I try to keep myself in shape is so I can sing better, not to look good.
+ - I did a pop album, ‘Sogno,’ in 1999. I think it’s important to record another pop album because many people love pop music. By this kind of repertoire, some people can later discover classical music.
+ - I don’t have an extraordinary degree of self-confidence, but I know the gift I have been given from God and I try to share it with as many people as possible. Having a great voice is not a merit. I don’t think it is a merit.
+ - When I was very young, I started trying to sing like the great tenor Mario Lanza; my family used to play his records. We all learn best by imitating others.
+ - I am not only fighting against something, I am fighting for something – and I am for life.
+ - Stage fright is my worst problem.
+ - Very often, I recognize many, many defects, so I try to improve myself every day. I think my voice is very communicative.
+ - I’ve always known that I was born to sing, ever since I was a child.
+ - Some of us are born with a weakness for music. As a baby, music would stop whatever thought I was having. If I was worried, it would stop me worrying; if I was crying, it would stop me crying. Music was a healing thing for me.
+ - When you’re on stage singing, you’re naked. Your voice is something very intimate, and that’s why I’m scared every time before I perform. It doesn’t matter if I’m singing for a king or a queen or the Pope, it’s enough to be in front of anybody. I suffer, but I can’t do anything about it.
+ - The themes I sing about tend to be centered on love, but in the most total, general way 360 degrees of love.
+ - Living is dangerous. The important thing is to know the limits.
+ - Every audience has its character; I like America – they love me. I suffer from stage fright, but in America not so much.
+ - While they are kids, my children must do as I say.
+ - I’m most impressed by the Russian writers, so I love reading the works of Tolstoy and Dostoyevsky. Another author who has informed the way I think is the French philosopher, Blaise Pascal.
+ - Music is an art that goes well beyond science. Proof can be found in the huge amount of studies that have been carried out throughout the world based on music-therapy and the important results achieved.
+ - I loved riding bikes and horses. I was eight when I started having lessons, and when my father bought me my own horse I couldn’t wait to go off on my own.
+ - Because, in opera, I have to sing for people that are very far from me, instead of, when I sing a song, I try to imagine to sing like in an ear of a child.
+ - To sing a duet together means sharing with someone both the pleasure and the responsibility of making music for an audience which is there to feel enjoyment through music.
+ - I live for my children, so my number one rule is I won’t go away from home for more than two weeks.
+ - Probably the first time I left Italy was to travel by train to Lourdes. I went with my mother and my grandmother – who was a very religious person – so it was a pilgrimage of sorts. I remember it as a very intense, but beautiful experience.
+ - When I hear that young people have come to the theater for the first time to listen to opera, I’m very happy. Because it’s the same thing that happened to me as a child. When I first heard the tenor voice, I immediately fell in love with this kind of music.
+ - I want to have time for myself, my family and my friends. It’s important because in order to sing well, you must have inspiration, and inspiration comes from life, from living.
+ - My real passion is for opera. It was born and developed by listening to records, and my dream as a child was to record entire operas when I grew up, and this dream came true.
+ - The world is full of many beautiful voices; I will perform with many of them. I love women’s voices.
+ - I think I don’t want to use drugs or medicine, so nothing. The only way is to go on stage and to hope.
+ - When I sing for myself, I sing in a more free, athletic way. When I face an audience, there is always some fear that makes me put the brakes on a bit.
+ - When a little more than a teenager, I was a piano-bar pianist in the land where I was born and raised, Tuscany.
+ - Now I’m more sure and I feel myself more comfortable singing.
+ - The voice is something very mysterious. It’s difficult to say what is inside a voice that moves people.
+ - Opera is complex for those who perform it, but also for those who listen to it. It takes more time, more patience and more spirit of sacrifice. All this is well worth it because opera offers such deep sensations that they will remain in a heart for a lifetime.
+ - I respect very much my public and also the music I perform.
+ - When you sing and people want that you sing, then you can hope to be great.
+ - You have to have great passion, because to sing operatic music requires lots of work. I study for at least two hours every day. The voice is like an instrument and requires constant exercise.
+ - I have a European frame of mind and Europe is my home.
+ - Opera singing is in every way of inestimable value; a real heritage for all mankind that has been reached over centuries of studies, attempts, flights of the spirit.
+ - I never think about gifts. It’s enough to have my family present.
+ - I have big, big stage fright.
+ - I have always felt an excellent rapport ever since my very first concert in Britain at Hampton Court. I have always felt understood. The British understand opera very well.
+ - The voice changes very slowly. I keep mine well under control and try with all my might to keep it exactly as it was at the very beginning.
+ - I also always carry my flute. It’s very important for me to try to relax when I’m travelling, and playing my flute helps me to unwind.
+ - When I get on stage, my first goal is not to show my expertise, but on the contrary, to give a bit of happiness, of joy, of cheerfulness. I am firmly convinced that in order to sing well, you must love your neighbor and be passionate about life.
+ - I have always tried to perform the music I love, and I think I am lucky because my preferences are often the ones of the public.
+ - I have had the good fortune of being able to sing with many of the finest voices in the world, and for someone who loves voices as I do, this is an enormous privilege.
+ - I started as a lyrical singer. But it was through the pop universe that I reached international fame.
+ - It is not Christian to go against someone. I am in favour of life.
+ - If you don’t have the possibility of listening to music, you can’t know if you love it.
+ - I’ve always been on the side of science that tries to help man. I play an active part with the foundations I’m involved in. Science gives hope.
+
+57 quotes

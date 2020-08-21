@@ -1,0 +1,67 @@
+ - If you don’t think there is magic in writing, you probably won’t write anything magical.
+ - Hurt leads to bitterness, bitterness to anger, travel too far that road and the way is lost.
+ - Nothing is lost that we do not first see as lost. Visions born of fear give birth to our failing. Visions born of hope give birth to our success. What is possible lives within us, and it only remains for us to discover it.
+ - It’s better to die in pursuit of your dreams than to live a life without hope.
+ - You can either give in to what youre feeling, just say ‘okay, enough is enough’ and be done with it, or you can fight it.
+ - Fear is a fire to temper courage and resolve. Use it so.
+ - Why pretend to be something you’re not? If you have to be someone, be someone no one else is.
+ - Herein lies the heart and soul of the nations. Their right to be free men, Their desire to live in peace, Their courage to seek out truth, Herein lies the Sword of Shannara.
+ - A world in which elves exist and magic works offers greater opportunities to digress and explore.
+ - If you do not hear music in your words, you have put too much thought into your writing and not enough heart.
+ - The unicorns were the most recognizable magic the fairies possessed, and they sent them to those worlds where belief in the magic was in danger of falling altogether. After all there has to be some belief in magic- however small- for any world to survive.
+ - We are constantly being put to the test by trying circumstances and difficult people and problems not necessarily of our own making.
+ - You shouldn’t believe everything you hear you’re young, not stupid.
+ - I cannot imagine life without books any more than I can imagine life without breathing.
+ - Friendship doesn’t have anything to do with shoring up weakness. It has to do with respect and consideration for those you care about. It has to do with wanting to give something back to those you admire.
+ - The future is an ever-shifting maze of possibilities until it becomes the present. The future I have shown you tonight is not yet fixed. But it is more likely to become so with the passing of every day because nothing is being done to turn it aside. If you would change it, do as I have told you.
+ - Fiction writing is a twenty-four-hou r-a-day occupation. You never leave your work behind. It is always with you, and to some extent, you are always thinking about it. You don’t take your work home; your work never leaves home. It lives inside you. It resides and grows and comes alive in your mind.
+ - The future is an ever-shifting maze of possibilities until it becomes the present.
+ - A cat never discusses his business with humans, not even Princesses. A cat never explains and never apologizes. A cat never alibis. You must accept a cat as it is and for what it is and not expect more than the pleasure of its company.
+ - The muse whispers to you when she chooses, and you can’t tell her to come back later, because you quickly learn in this business that she might not come back at all.
+ - Deception is mostly a game we play with ourselves.
+ - If anything in your life is more important than writing – anything at all – you should walk away now while you still can. Forewarned is forearmed. For those who cannot or will not walk away, you need only to remember this. Writing is life. Breathe deeply of it.
+ - We live out our lives as we are meant to live them-with some choice, with some chance, but mostly as a result of the persons we are.
+ - We should not be less than what we are.
+ - The more complex and overwhelming the threat to a protagonist, the better the opportunity for the author to create a compelling conflict and a dramatic resolution.
+ - I am incomplete without my work. I am so closely bound to it, so much identified by it, that without it I think I would crumble into dust and drift away.
+ - What kind of world permitted such terrible injustice, where good men were stripped of everything and soulless creatures of malice and hatred survived to glory in their pointless death?
+ - I think I make better use of language and imagery than when I started out.
+ - What we have in life that we can count on is who we are and where we come from, she thought absently. For better or worse, that is what we have to sustain us in our endevors, to buttress us in our darker moments, and to remind us of our identity. Without those things, we are adrift.
+ - If you are always frightened for yourself you can’t act, and then life loses its purpose. You just have to tell yourself that, when you get right down to it, you don’t matter all that much.
+ - On the other hand, I still approach each book with the same basic plan in mind – to put some people under severe stress and see how they hold up.
+ - We must nurture and love, if life is to have any real meaning. But First we must find a way to survive against the things that prevent us from doing so.
+ - She has her gown nicely in place tonight, doesn’t she? Black velvet and sparkles, not a thread left hanging. Clever girl, this city. Even the sky is her friend.
+ - Might have, could have, may have, should have – the haves and have nots reduced to pointless possibilities.
+ - I want you, as a reader, to experience what I experience, to let that other world, that imaginary world that I have created, tell you things about the real world.
+ - You spend so much time wondering who you are, don’t you think? You flounder about, searching for your identity, when most of the time it is plain as the nose on your face. You struggle with questions of purpose and need, and forget that the answers are found mostly inside yourselves.
+ - For a writer, its very attractive to stay in one world for a time.
+ - If you are ever completely satisfied with something you have written, you are setting your sights too low. But if you can’t let go of your material even after you have done the best that you can with it, you are setting your sights too high.
+ - The reader wants to see something happen between pages one and four hundred, and nothing happens if the characters don’t change.
+ - Evil contained is not evil destroyed.
+ - Well, I think that as a country, we’ve drifted away from appreciating the importance of imagination.
+ - After all, you put a lot into creating a universe and everything that goes with it, and it seems a shame to use it only once.
+ - This is for writers yet to be published who think the uphill climb will never end. Keep believing. This is also for published writers grown jaded by the process. Remember how lucky you are.
+ - When I was a kid, we had to rely on our imaginations for entertainment.
+ - Fantasy is the only canvas large enough for me to paint on.
+ - My interests are different now than they were thirty years ago.
+ - I haven’t made up my mind about doing anymore Landover books.
+ - If you do not love what you do, if you are not appropriately grateful for the chance to create something magical each time you sit down at the computer or with a pencil and paper in hand, somewhere along the way your writing will betray you.
+ - In bad weather, I spent hours drawing action figures on paper, coloring them, backing them on cardboard, then cutting them out and creating whole stories around their lives.
+ - I might add that you change as a person as you grow older, so you change as a writer, too.
+ - There is poetry in fiction. If you cannot see it and feel it when you write, you need to step back and examine what you are doing wrong. If you have not figured out how to write a simple declarative sentence and make it sing with that poetry, you are not yet ready to write an entire book.
+ - Anyway, several rewrites later, Del Rey Books did publish my first novel, and it did become the first work of fiction on the New York Times trade paperback bestseller list.
+ - Writing fantasy lets me imagine a great deal more than, say, writing about alligators, and lets me write about places more distant than Florida, but I can tell you things about Florida and alligators, let you make the connection all on your own.
+ - I want to kick-start your imagination and let you discover the places it can take you.
+ - What you write chooses you.
+ - My breakthrough as a reader was when I discovered the European adventure story writers – Alexander Dumas, Robert Louis Stevenson, Sir Walter Scott, to name a few.
+ - There is much to admire in Peter Brett’s writing, and his concept is brilliant. There’s action and suspense all the way.
+ - If I have the means, I have the responsibility to employ them.
+ - Fiction writers are strange beasts. They are, like all writers, observers first and foremost. Everything that happens to and around them is potential material for a story, and they look at it that way.
+ - I have learned to do more with less, so you don’t see the big books anymore.
+ - We forget that what matters begins with the imagination.
+ - I remember one winter, when I was about five or six, I spent three days with another boy, tracking a bobcat that had been sighted in another county fifty miles away, but which I was sure had come into our neighborhood.
+ - Who would you be but who you are?
+ - Cats can do whatever they want, whenever they want, without regard to what anyone says or does. Rather like Princesses.
+ - Testing of self is a regular part of our own lives, so it seems natural to make it a part of the lives of my characters, as well, albeit on a much different level.
+
+65 quotes

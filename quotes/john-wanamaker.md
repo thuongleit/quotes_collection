@@ -1,0 +1,22 @@
+ - Half the money I spend on advertising is wasted; the trouble is I don’t know which half.
+ - One may walk over the highest mountain one step at a time.
+ - People who cannot find time for recreation are obliged sooner or later to find time for illness.
+ - Let those who follow me continue to build with the plumb of honor, the level of truth, and the square of integrity, education, courtesy and mutuality.
+ - I learned 30 years ago that it is foolish to scold. I have enough trouble overcoming my own limitations without fretting over the fact that God has not seen fit to distribute evenly the gift of intelligence.
+ - Courtesy is the one coin you can never have too much of or be stingy with.
+ - Nothing comes merely by thinking about it.
+ - A man’s not doing much until the cause he works for possesses all there is of him. Desire, when harnessed, is power.
+ - Gratitude takes three forms: a feeling in the heart, an expression in words, and a giving in return.
+ - No mistake or failure is as bad as to stop and not try again.
+ - I cannot too greatly emphasize the importance and value of Bible study – more important than ever before in these days of uncertainties, when men and woman are apt to decide questions from the standpoint of expediency rather than the eternal principles laid down by God, Himself.
+ - When a customer enters my store, forget me. He is king.
+ - You can never ride on the wave that came in and went out yesterday.
+ - Courtesies cannot be borrowed like snow shovels; you must have some of your own.
+ - Keep up the old standards, and day by day raise them higher.
+ - Any seeming deception in a statement is costly, not only in the expense of the advertising but in the detrimental effect produced upon the customer, who believes she has been misled.
+ - It’s easy to work for somebody else; all you have to do is show up.
+ - Confidence! Confidence! Confidence! That is your capital.
+ - In writing advertising it must always be kept in mind that the customer often knows more about the goods than the advertising writers because they have had experience in buying them...
+ - Many persons have an idea that one cannot be in business and lead an upright life, whereas the truth is that no one succeeds in business to any great extent, who misleads or misrepresents.
+
+20 quotes

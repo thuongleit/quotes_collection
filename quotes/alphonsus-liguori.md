@@ -1,0 +1,90 @@
+ - Perfect love of God means the complete union of our will with God’s.
+ - He who trusts himself is lost. He who trusts in God can do all things.
+ - When we hear people talk of riches, honors and amusements of the world, let us remember that all things have an end, and let us then say: My God, I wish for You alone and nothing more.
+ - True charity consists in doing good to those who do us evil, and in thus winning them over.
+ - Without prayer it is impossible to resist temptations and to keep the commandments.
+ - The past is no longer yours; the future is not yet in your power. You have only the present wherein to do good.
+ - Those who say the Rosary daily and wear the Brown Scapular and who do a little more, will go straight to Heaven.
+ - He who wishes to find Jesus should seek Him, not in the delights and pleasures of the world, but in mortification of the senses.
+ - Our Faith will never be true unless it is united to that of St. Peter and the Pontiff, his successors.
+ - The definitions of the Church are the rules of true faith.
+ - When we see a beautiful object, a beautiful garden, or a beautiful flower, let us think that there we behold a ray of the infinite beauty of God, who has given existence to that object.
+ - Obedience to a confessor is the most acceptable offering which we can make to God, and the most secure way of doing the divine will.
+ - All souls in hell are there because they did not pray. All the saints sanctified themselves by prayer.
+ - Those who are seeking the true religion will never find it outside the Catholic Church alone, because, in every other religion, if they trace it up to the author, they will find some impostor whose imagination furnished a mass of sophisms and errors.
+ - The sufferings endured for God are the greatest proof of our love for Him.
+ - What is it that renders death terrible? Sin. We must therefore fear sin, not death.
+ - God loves all those who love him: I love them that love Me.
+ - Acquire the habit of speaking to God as if you were alone with Him, familiarly and with confidence and love, as to the dearest and most loving of friends.
+ - Were you to ask what are the means of overcoming temptations, I would answer: The first means is prayer; the second is prayer; the third is prayer; and you should you ask me a thousand times, I would repeat the same.
+ - Speak to Him often of your business, your plans, your troubles, your fears – of everything that concerns you.
+ - He who prays most receives most.
+ - To put into practice the teachings of our holy faith, it is not enough to convince ourselves that they are true; we must love them. Love united to faith makes us practice our religion.
+ - The brightest ornaments in the crown of the blessed in heaven are the sufferings which they have borne patiently on earth.
+ - Let your constant practice be to offer yourself to God, that He may do with you what He pleases.
+ - Let us thank God for having called us to His holy faith. It is a great gift, and the number of those who thank God for it is small.
+ - Do not allow your daughters to be taught letters by a man, though he be a St. Paul or St. Francis of Assissium. The saints are in Heaven.
+ - Ask those who love Him with a sincere love, and they will tell you that they find no greater or prompter relief amid the troubles of their life than in loving conversation with their Divine Friend.
+ - After the love which we owe Jesus Christ, we must give the chief place in our heart to the love of His Mother Mary.
+ - A true servant of Mary cannot be lost.
+ - True, He is infinite Majesty, but He is also infinite Goodness and infinite Love. There can be no greater Lord than God; neither can there be a more ardent lover than He.
+ - We must show charity towards the sick, who are in greater need of help. Let us take them some small gift if they are poor, or, at least let us go and wait on them and comfort them.
+ - Mary having co-operated in our redemption with so much glory to God and so much love for us, Our Lord ordained that no one shall obtain salvation except through her intercession.
+ - My Jesus! What a lovable contrivance this holy Sacrament was – that You would hide under the appearance of bread to make Yourself loved and to be available for a visit by anyone who desires You!
+ - You will gain more by receiving scorn peacefully than if you fasted for a week on bread and water. It is good to humble ourselves; but it is much more worthwhile to accept the humiliations that come to us from others.
+ - What grieves me most in my past offenses, O my loving God, is not so much the punishment I have deserved, as the displeasure I have given You, Who are worthy of infinite love.
+ - We must practice modesty, not only in our looks, but also in our whole deportment, and particularly in our dress, our walk, our conversation, and all similar actions.
+ - He who suffers in patience, surfers less and saves his soul. He who suffers impatiently, suffers more and loses his soul.
+ - A person may be Baptized, and yet not born again to grace, in consequence of not having the necessary dispositions at Baptism.
+ - When we have to reply to anyone who has insulted us, we should be careful to do it always with gentleness. A soft answer extinguishes the fire of wrath.
+ - There is no one, after God, who loves us as much as this most loving Mother does.
+ - Since His delights are to be with you, let yours be found in Him.
+ - I Love Jesus Christ and that is why I am on fire with the desire to give Him souls, first of all my own, and then an incalculable number of others.
+ - St. Francis Borgia says that he who desires to consecrate himself to God must, in the first place, trample under his feet all regard for what others will say of him. O my God, why do we not ask what Jesus Christ or his holy mother will think of our conduct?
+ - What does it cost us to say: “My God help me! Have mercy on me!” Is there anything easier than this? And this little will suffice to save us if we be diligent in doing it.
+ - A soul who loves Jesus Christ desires to be treated the way Christ was treated-desires to be poor, despised, and humiliated.
+ - The principal means of acquiring an ardent love of Christ are mental prayer, Communion, mortification, retirement.
+ - Love tends to union with the object loved. Now Jesus Christ loves a soul that is in a state of grace with immense love; He ardently desires to unite Himself with it. That is what Holy Communion does.
+ - Let us make up for lost time. Let us give to God the time that remains to us.
+ - In cold and heat, in rain and wind, the soul united to God says, “I want it to be warm, to be cold, windy, to rain, because God wills it.”
+ - St. Jerome declares that he holds for certain, and has learned from experience, that he will never make a good end who has led a bad life to the very last: ‘This I hold, this I have learned by much experience, that his will be an evil end who has always led an evil life.’
+ - In temptations against chastity, the spiritual masters advise us, not so much to contend with the bad thought, as to turn the mind to some spiritual, or, at least, indifferent object. It is useful to combat other bad thoughts face to face, but not thoughts of impurity.
+ - The means for maintaining perfect love is to accomplish frequent acts of love. Fire is kindled by the wood we cast into it and love is enkindled by acts of love.
+ - The way to Heaven is straight and narrow: they who wish to arrive at that place of bliss by walking in the paths of pleasure shall be disappointed; and therefore few reach it, because few are willing to use violence to themselves in resisting temptations.
+ - By the law of nature, there is no pleasure in suffering; but divine love, when it reigns in a heart, makes it take delight in its sufferings.
+ - In the Great Deluge in the days of Noah, nearly all mankind perished, eight persons alone being saved in the Ark. In our days a deluge, not of water but of sins, continually inundates the earth, and out of this deluge very few escape. Scarcely anyone is saved.
+ - How beautiful she is, Our Lady of compassion! How dear! How utterly unselfish! How filled with joy for Him – and us – in the depths of her own agony and desolation!
+ - The saved are few, but we must live with the few if we would be saved with the few. O God, too few indeed they are: yet amongst those few I wish to be!
+ - You may be sure that of all the moments of your life, the time you spend before the divine Sacrament will be that which will give you more strength during life and more consolation at the hour of your death and during eternity.
+ - Your God is ever beside you – indeed, He is even within you.
+ - Mary being destined to negotiate peace between God and man, it was not proper that she should be an accomplice in the disobedience of Adam.
+ - As all our wickedness consists in turning away from our Creator, so all our goodness consists in uniting ourselves with Him.
+ - There is a practice that is most powerful in keeping us united with God. That practice is the constant recollection of His presence.
+ - The sovereigns of the earth do not always grant audience readily; on the contrary, the King of Heaven, hidden under the eucharistic veils, is ready to receive anyone...
+ - If you wish to strengthen your confidence in God still more, often recall the loving way in which He has acted toward you, and how mercifully He has tried to bring you out of your sinful life, to break your attachment to the things of earth and draw you to His love.
+ - It is almost certain that excess in eating is the cause of almost all the diseases of the body, but its effects on the soul are even more disastrous.
+ - Let us remember the devil labors hard to disturb us at the time of recollection in order to make us abandon it. Let him then who omits mental prayer on account of distractions be persuaded that he gives delight to the devil.
+ - Many, however, gives themselves to God, but preserve still in their hearts some attachment to creatures, which prevents them from belonging entirely to God.
+ - Woe to him who neglects to recommend himself to Mary, and thus closes the channel of grace!
+ - With such thoughts in your mind, now that you have resolved to love Him and please Him with all your strength, your only fear should be to fear God too much and to place too little confidence in Him.
+ - If we should be saved and become saints, we ought always to stand at the gates of the Divine mercy to beg and pray for, as an alms, all that we need.
+ - He who embraces the cross and bears it with patience lightens the weight of the cross. Indeed, the weight itself becomes a consolation; for God abounds with grace to all those who carry the cross with good will in order to please him.
+ - God is displeased at the diffidence of souls who love Him sincerely and whom He Himself loves.
+ - Such is the compassion, such the love which Mary bears us, that she is never tired of praying for us.
+ - All would wish to be saved and to enjoy the glory of paradise; but to gain heaven, it is necessary to walk in the straight road that leads to eternal bliss. This road is the observance of the divine commandments. Hence, in his preaching, the Baptist exclaimed: Make straight the way of the Lord.
+ - But You never reject a repentant and humble heart.
+ - The heart of man is, so to speak, the paradise of God.
+ - A dancer differeth from a madman only in length of time; one is mad so long as he liveth, the other while he danceth.
+ - Just as a mother finds pleasure in taking her little child on her lap, there to feed and caress him, in like manner our loving God shows His fondness for His beloved souls who have given themselves entirely to Him and have placed all their hope in His goodness.
+ - Yet you should practice the greatest possible love and confidence in treating with Him.
+ - It is a great mistake, as we have already remarked, to be afraid of Him and to act in His presence like a timid and craven slave trembling with fright before his master.
+ - How, then, shall God give himself entirely to that one who, besides his God, loves creatures still?
+ - So great is the compassion excited in Mary by our misery, and such is the love that she bears us, that she prays constantly, and relaxes not her efforts in our behalf.
+ - To be silent when we are impelled to utter words injurious to God or to our neighbour, is an act of virtue; but, to be silent in confessing our sins, is the ruin of the soul.
+ - Nothing else is required than to act toward God, in the midst of your occupations, as you do, even when busy, toward those who love you and whom you love.
+ - Let us read the lives of the saints; let us consider the penances which they performed, and blush to be so effeminate and so fearful of mortifying our flesh.
+ - He who desires nothing but God is rich and happy.
+ - No, he can never be lost who recommends himself to thee, O Mary.
+ - Not only is there no need of an intermediary through whom He would want you to speak to Him, but He finds His delight in having you treat with Him personally and in all confidence.
+
+88 quotes

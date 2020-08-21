@@ -1,0 +1,118 @@
+ - In the beginning God said, the four-dimensional divergence of an antisymmetric, second rank tensor equals zero, and there was light, and it was good. And on the seventh day he rested.
+ - Physicists are made of atoms. A physicist is an attempt by an atom to understand itself.
+ - Impossible is relative.
+ - Common sense has no place in Quantum Mechanics.
+ - The universe is a symphony of strings, and the mind of God that Einstein eloquently wrote about for thirty years would be cosmic music resonating through eleven-dimensional hyper space.
+ - The human brain has 100 billion neurons, each neuron connected to 10 thousand other neurons. Sitting on your shoulders is the most complicated object in the known universe.
+ - It’s pointless to have a nice clean desk, because it means you’re not doing anything.
+ - In string theory, all particles are vibrations on a tiny rubber band; physics is the harmonies on the string; chemistry is the melodies we play on vibrating strings; the universe is a symphony of strings, and the ‘Mind of God’ is cosmic music resonating in 11 dimensional hyperspace.
+ - One in 200 stars has habitable Earth-like planets surrounding it – in the galaxy, half a billion stars have Earth-like planets going around them – that’s huge, half a billion. So when we look at the night sky, it makes sense that someone is looking back at us.
+ - Once confined to fantasy and science fiction, time travel is now simply an engineering problem.
+ - Some people seek meaning in life through personal gain, through personal relationship, or through personal experiences. However, it seems to me that being blessed with the intellect to divine the ultimate secrets of nature gives meaning enough to life.
+ - We have the media, which is such a waste in the sense that you can actually feel your IQ get lower as you watch TV.
+ - Music is the voice of God traveling through ten-dimensional hyperspace.
+ - You can mass-produce hardware; you cannot mass-produce software – you cannot mass-produce the human mind.
+ - No one knows who wrote the laws of physics or where they come from. Science is based on testable, reproducible evidence, and so far we cannot test the universe before the Big Bang.
+ - To understand the difficulty of predicting the next 100 years, we have to appreciate the difficulty that the people of 1900 had in predicting the world of 2000.
+ - If you take a look at the most fantastic schemes that are considered impossible: teleportation, warp drive, parallel universes, other dimensions, artificial intelligence, ray guns, you realize that they can be possible if we advance technology a little bit.
+ - In some sense, gravity does not exist; what moves the planets and the stars is the distortion of space and time.
+ - Scientific revolutions, almost by definition, defy common sense.
+ - The brain weighs only three pounds, yet it is the most complex object in the solar system.
+ - Cesium, iodine from the Chernobyl reactor accident went around the world many times and everyone on the Earth has a piece of Chernobyl in their bodies, but it’s very tiny – too small to cause much damage.
+ - The most complex object in the known universe: brain, only uses 20 watts of power. It would require a nuclear power plant to energize a computer the size of a city block to mimic your brain, and your brain does it with just 20 watts. So if someone calls you a dim bulb, that’s a compliment.
+ - Some advice: keep the flame of curiosity and wonderment alive, even when studying for boring exams. That is the well from which we scientists draw our nourishment and energy. And also, learn the math. Math is the language of nature, so we have to learn this language.
+ - String theory is based on the simple idea that all the four forces of the universe: gravity, the electromagnetic force and the two nuclear forces, can be viewed, as music.
+ - In fact, all of us have a piece of Chernobyl in our bodies going back to 1986.
+ - Robots may gradually attain a degree of ‘self-awareness’ and consciousness of their own.
+ - It is often stated that of all the theories proposed in this century, the silliest is quantum theory. In fact, some say that the only thing that quantum theory has going for it is that it is unquestionably correct.
+ - Math is discovered. To be invented requires an inventor, but math exists outside of humanity. But ultimately, the laws of the universe will be reduced down to a single equation, perhaps no more than one inch long. But leaves the final question, where did that one inch equation come from?
+ - One day when I was 8 years old, everyone was talking in hushed tones about a great scientist that had just died. His name was Albert Einstein.
+ - Global warming is controversial, of course, but the controversy is mainly over whether human activity is driving it.
+ - It’s very dangerous to put astronauts on a moon base where there’s radiation, solar flares and micro meteorites. It’d be much better to put robots on the moon and have them mentally connected to astronauts on the Earth.
+ - Chemistry is the melodies you can play on vibrating strings.
+ - In the future, I can imagine that we will genetically modify ourselves using the genes that have doubled our life span since we were chimpanzees.
+ - When you come up with a theory, you fall in love with the beauty the simplicity and elegance of it. But then you have to get a sheet of paper and pencil and crack out all the details. Hundreds and hundreds of pages. Because you have to prove it.
+ - I’m not a science fiction writer, I’m a physicist. These are scientists who are making the future in their laboratories.
+ - I have nothing against investment banking, but it’s like massaging money rather than creating money.
+ - I would hope that the publicity around the Higgs boson would increase the public awareness of physics and cosmology.
+ - I think Newton would be the greatest scientist who ever lived.
+ - Time travel and teleportation will have to wait. It may take centuries to master these technology.
+ - If you want to see a black hole tonight, tonight just look in the direction of Sagittarius, the constellation. That’s the center of the Milky Way Galaxy and there’s a raging black hole at the very center of that constellation that holds the galaxy together.
+ - All kids are born geniuses, but are crushed by society.
+ - To a physicist, we have the ‘I’ word, the I-word is ‘impossible.’ That’s dangerous.
+ - Our grandkids will lead the lives of the gods of mythology. Zeus could think and move objects around. We’ll have that power. Venus had a perfect, timeless body. We’ll have that, too. Pegasus was a flying horse. We’ll be able to modify life in the future.
+ - Technologies that may be realized in centuries or millennium include: warp drive, traveling faster than the speed of light, parallel universes; are there other parallel dimensions and parallel realities? Time travel that we mentioned and going to the stars.
+ - Science is the engine of prosperity. All the prosperity we see around us is a byproduct of scientific inventions. And that’s not being made clear to young people. If we can’t make it clear to young people they’re not going to go into science. And science will suffer.
+ - I agree, along with Carl Sagan, that we should eventually become a two planet species. Life is too precious to place on a single planet.
+ - This is a huge step toward unraveling Genesis Chapter 1, Verse 1-what happened in the beginning. This is a Genesis machine. It’ll help to recreate the most glorious event in the history of the universe.
+ - A hydrogen bomb, for me, was puny compared to the Big Bang – the creation of the universe. That’s what I really wanted to work on – the nature of the universe itself, and that’s what I do for a living.
+ - The idea that excites me the most concerns the two greatest puzzles in science: the origin of the universe, and the origin of consciousness. The origin of the universe is what I do for a living, working on string theory. But I am also fascinated by consciousness.
+ - There’s the caveman in us. The caveman in you says, “I want direct contact. I don’t want a picture.” The caveman in our body says once in a while, we have to go outside. We have to meet real people, talk to real people, and do real things.
+ - So often, science fiction helps to get young people interested in science. That’s why I don’t mind talking about science fiction. It has a real role to play: to seize the imagination.
+ - I believe we exist in a multiverse of universes.
+ - An event horizon, or the point of no return, is only a byproduct of the bending of space. However, electricity and magnetism, by themselves, have no event horizon. It gets complicated, however, if a black hole has charge, and then this new solution does have an event horizon.
+ - Science is definitely part of America’s infrastructure, the engine of prosperity. And yet science is given almost no visibility in the media.
+ - God throws dice, what can I say?
+ - What do oil company executives, vampires and NASA bureaucrats all have in common? They fear solar energy.
+ - When we’re born, we want to know why the stars shine. We want to know why the sun rises.
+ - Science is about principles. It’s about concepts. It’s not about memorizing the parts of a flower. It helps to know some of these things, but if that’s all you do that’s not science, science is about principles and concepts.
+ - Some people are a little bit afraid about the future because they see all these gadgets and gizmos coming down the pike and they think they’re too old to learn all this new stuff. But eventually they begin to realize, ‘Hey, some of this stuff is useful.’
+ - No matter how beautiful the theory, one irritating fact can dismiss the entire formulism, so it has to be proven.
+ - A force field is basically an invisible shield. You push a button and all of a sudden a bubble forms around you which is impenetrable. It can stop bullets, it can stop ray gun blasts and we realized force fields are actually a little bit difficult to create.
+ - However, one new theory says that dark matter may be ordinary matter in a parallel universe. If a galaxy is hovering above in another dimension, we would not be able to see it. It would be invisible, yet we would feel its gravity. Hence, it might explain dark matter.
+ - Faust was this mythical figure who sold his soul to the devil for unlimited power. The Japanese have made that Faustian bargain because they don’t have coal, oil or hydro power.
+ - In the future, you’ll simply jump into your car, turn on the Internet, turn on a movie and sit back and relax and turn on the automatic pilot, and the car will drive itself.
+ - Quantum entanglement allows you to send information faster than light, which upset Einstein. But Einstein has the last laugh. The information you send on quantum entanglement is random, useless information. So Einsein still has the last laugh.
+ - We physicists know that the brain is a milliwatt transmitter of radio. We have computers that can decipher much of this gibberish coming from our brain and we could then use that to control computers.
+ - We’re in ‘Jurassic Park’ territory. If we go to the zoo in the future, we’ll have zoos for extinct animals.
+ - Growing new organs of the body as they wear out, extending the human lifespan? What’s not to like?
+ - I believe that science is the engine of prosperity, that if you look around at the wealth of civilization today, it’s the wealth that comes from science.
+ - Our best shot at finding life in our solar system might be to look at the moons of Jupiter and Saturn. Mars, increasingly, looks like a dead planet. But the oceans beneath the ice cover of the moons of Jupiter and Saturn may actually have more liquid water than the oceans of Earth.
+ - Science is the engine of prosperity. But you’d never know it, listening to some of the politicians. They’re lawyers and businessmen, not scientists. Lawyers and businessmen massage wealth; they don’t create it.
+ - We are slowly isolating the genes involved with the aging process. We do not have the fountain of youth, but I think, in the coming decades, we will unravel the aging process at the genetic level.
+ - The media, of course, loves to make claims about the fountain of youth. Don’t believe it. No one has it. But we’re getting close.
+ - There are dangers, but only dangers if people don’t understand where technology is taking us.
+ - Physics is often stranger than science fiction, and I think science fiction takes its cues from physics: higher dimensions, wormholes, the warping of space and time, stuff like that.
+ - For relaxation, I like to figure skate. Being on the ice and spinning and jumping, I feel very close to nature. In particular, I feel very close to Newton’s laws of motion. On the ice, you can experience Newton’s laws of motion in their purest, most elegant form.
+ - In science, nothing is ever 100% proven.
+ - We are not at the end but at the beginning of a new physics. But whatever we find, there will always be new horizons continually awaiting us.
+ - The river of time may fork into rivers, in which case you have a parallel reality and so then you can become a time traveler and not have to worry about causing a time paradox.
+ - I hope we find evidence of dark matter in the lab and in outer space. This would go a long way to proving the correctness of string theory, which is what I do for a living. That is my day job. So string theory is a potentially experimentally verifiable theory.
+ - I am a figure skater, which helps me appreciate Newton’s theory of mechanics.
+ - When I was 16 years old, I assembled a 2.3 million electron volt beta particle accelerator. I went to Westinghouse, I got 400 pounds of translator steel, 22 miles of copper wire, and I assembled a 6-kilowatt, 2.3 million electron accelerator in the garage.
+ - I would like to believe that crop circles are evidence of visitation. But there have been too many people who have admitted to creating these crop circles, and too many people who have shown how to make one on TV programs, so I have my doubts.
+ - Sooner or later, we will face a catastrophic threat from space. Of all the possible threats, only a gigantic asteroid hit can destroy the entire planet. If we prepare now, we better our odds of survival. The dinosaurs never knew what hit them.
+ - I think a colony in space will take much longer than sci fiction writers think. It costs $10,000 to put a pound of anything into near earth orbit. That is your weight in gold. It costs about $100,000 a pound to put you on the moon. And it costs $1,000,000 a pound to put you on Mars.
+ - I began to realize something – to understand the future you have to understand physics. Physics of the last century gave us television, radio, microwaves, gave us the Internet, lasers, transistors, computers – all of that from physics.
+ - In the 1950s, we had all these B-grade science-fiction movies. The point was to scare the public and get them to buy popcorn. No attempt was made to create movies that were somewhat inherent to the truth.
+ - Hover boards, unfortunately, currently violate the laws of physics. Supermagnets exist, but they have to be cooled to near absolute zero, and they are extremely expensive. So Michael J. Fox’s hover boards are not possible until we invent room temperature super conductors.
+ - No one knows when a robot will approach human intelligence, but I suspect it will be late in the 21st century. Will they be dangerous? Possibly. So I suggest we put a chip in their brain to shut them off if they have murderous thoughts.
+ - We have learned more about the brain in the last fifteen years than in all prior human history, and the mind, once considered out of reach, is finally assuming center stage.
+ - We believe that black holes collapse to rings hitting very fast. If you follow through the ring you don’t die. The mathematics says you fall straight through, perhaps to another universe.
+ - Science fiction without the science just becomes, you know, sword and sorcery, basically stories about heroism and not much more.
+ - Already from your own cells scientists can grow skin, cartilage, noses, blood vessels, bladders and windpipes. In the future, scientists will grow more complex organs, like livers and kidneys. The phrase ‘organ failure’ will disappear.
+ - Growing new organs of the body as they wear out, extending the human lifespan? What’s not to like? Then in the last phase of this transition people begin to realize, hey, I thought of it already – this is something that everyone can enjoy.
+ - I got a four year scholarship to Harvard, and while I was there they wanted to groom me for work in the Star Wars program designing weapons ignited by hydrogen bombs. I didn’t want to do that. I thought about how many scientists had died in World War II.
+ - You cannot create new science unless you realise where the old science leaves off and new science begins, and science fiction forces us to confront this.
+ - Chances are, when we meet intelligent life forms in outer space they’re going to be descended from predators.
+ - Aging is basically the build-up of error: error at the genetic level, error at the cellular level. Cells normally repair themselves; that’s why you heal when you get a cut. But even the mechanism of repair eventually falls apart.
+ - There is so much noise on the Internet, with would-be prophets daily haranguing their audience and megalomaniacs trying to push bizarre ideas, that eventually people will cherish a new commodity: wisdom.
+ - Being a physicist, not a philosopher, I have devised an entirely new theory of consciousness, allowing one to numerically calculate the level of consciounsess of humans and even animals.
+ - I’m a physicist, and we have something called Moore’s Law, which says computer power doubles every 18 months. So every Christmas, we more or less assume that our toys and appliances are more or less twice as powerful as the previous Christmas.
+ - Futurism today is led by science-fiction writers, by sociologists, by historians. Now, I have nothing against them. I’m sure they do great work. But they’re not scientists. They’re clueless.
+ - The best theory comes from string theory, which states that dark matter is nothing but a higher vibration of the string. We are, in some sense, the lowest octave of a vibrating string.
+ - Scientists willing to risk their reputations on higher dimensions soon found themselves ridiculed by the scientific community. Higher-dimensional space became the last refuge for mystics, cranks, and charlatans.
+ - It would be great if we had our own personal force fields. Just imagine creating your own architecture in your room. Buildings. You wouldn’t have to spend all that time saving your money for that second house. You’d simply push a button and have as many houses as you want.
+ - I realized very early in life what my abilities and limitations were, and foreign languages was definitely one of my limitations. With strenuous effort, I just barely passed my French class at Harvard so I could graduate.
+ - My point is, no one can stop the Internet. No one can stop that march. It doesn’t mean that it’s going to be smooth, though.
+ - Science is given almost no visibility in the media. If a Martian came down to Earth and watched television, he’d come to the conclusion that all the world’s society is based on Britney Spears and Paris Hilton. He’d be amazed that our society hasn’t collapsed.
+ - We physicists don’t like to admit it, but some of us are closet science fiction fans. We hate to admit it because it sounds undignified. But when we were children, that’s when we got interested in science, for a lot of us.
+ - Scientists who have dedicated their lives to building machines that think, feel that it’s only a matter of time before some form of consciousness is captured in the laboratory.
+ - Even if we mortgage the next 100 years of generations of human beings, we would not have enough energy to build a Death Star.
+ - In general, the larger the breeding population, the slower the rate of evolution.
+ - When I get bored, or get stuck on an equation, I like to go ice skating, but it makes you forget your problem. Then you can tackle the problem with a fresh new insight. Einstein liked to play the violin to relax. Every physicist likes to have a past time. Mine is ice skating.
+ - In the future we’ll be able to mentally contact anybody we want, see whatever image we want. And when we don’t like it, we’ll just turn it off.
+ - The next big accelerator might be the ILC in Japan, a linear collider which might be able to probe the boundaries of string theory. So we physicists have to learn how to engage the public so that taxpayers money is used to explore the nature of the universe.
+ - Reality has always proved to be much more sophisticated and subtle than any preconceived philosophy.
+
+116 quotes

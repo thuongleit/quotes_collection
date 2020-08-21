@@ -1,0 +1,28 @@
+ - God weeps with us so that we may one day laugh with him.
+ - Hope is lived when it comes alive, when we go outside of ourselves and, in joy and pain take part in the lives of others.
+ - God heals the sicknesses and the griefs by making the sicknesses and the griefs his suffering and his grief. In the image of the crucified God the sick and dying can see themselves, because in them the crucified God recognizes himself.
+ - In Christian terms, evangelization and humanization are not alternatives. Nor are the vertical dimension of faith and the horizontal dimension of love for ones neighbor and political change.
+ - Passion is loving something enough to suffer for it.
+ - Christian hope does not promise successful days to the rich and the strong, but resurrection and life to those who must exist in the shadows of death. Success is no name of God. Righteousness is.
+ - God is not only a divine person who we can address in prayer, but also a wide living space We human beings are giving each other space for living when we meet each other in love and friendship.
+ - Even the disciples of Jesus all fled from their master’s cross. Christians who do not have the feeling that they must flee the crucified Christ have probably not yet understood him in a sufficiently radical way.
+ - Christ’s own ‘God-forsaken-ness’ on the cross showed me where God is present where God had been present in those nights of deaths in the fire storms in Hamburg and where God would be present in my future whatever may come.
+ - With every righteous action, we prepare the way for the New Earth on which righteousness will dwell. And bringing justice to those who suffer violence means to bring the light of God’s future to them.
+ - The church’s final word is not ‘church’ but the glory of the Father and the Son in the Spirit of liberty.
+ - It is only when human beings see themselves simply as human beings, no longer as gods, that they are in a position to perceive the wholly other nature of God.
+ - There are various names for this ‘Spirit of Life’ because there are various life experiences.
+ - In the cross of Christ God is taking man dead-seriously so that he may open up for him the happy freedom of Easter. God takes upon himself the pain of negation and the God forsakenness of judgement to reconcile himself with his enemies and to give the godless fellowship with himself.
+ - The truth of human freedom lies in the love that breaks down barriers.
+ - The knowledge of the cross brings a conflict of interest between God who has become man and man who wishes to become God.
+ - Totally without hope, one cannot live. To live without hope is to cease to live.
+ - To reinvent your own country you need a great audacity of hope.
+ - Personal, inner change without a change in circumstances and structures is an idealist illusion, as though man were only a soul and not a body as well.
+ - The present time of believers is no longer determined by the past. It takes its definition from the future.
+ - Imprisoned professors taught imprisoned students free theology.
+ - No where else in Christianity does the terrible or heroic name of Armageddon play such role as in America. Not even in the Revelation of John.
+ - As long as hope does not embrace and transform the thought and action of men, it remains topsy-turvy and ineffective.
+ - Capitalism, racism and inhuman technocracy quietly develop in their own way. The causes of misery are no longer to be found in the inner attitudes of men, but have long been institutionalized.
+ - Despair can be like an iron band constricting the heart.
+ - Americans as no one else in the Old World are looking ahead and are future-minded without the limitations of traditions and can look ahead without the burdens of the past.
+
+26 quotes

@@ -1,0 +1,190 @@
+ - I am free of all prejudice. I hate everyone equally. 
+ - If at first you don't succeed, try, try again. Then quit. No use being a damn fool about it.
+ - A rich man is nothing but a poor man with money.
+ - Remember, a dead fish can float downstream, but it takes a live one to swim upstream.
+ - I spent half my money on gambling, alcohol and wild women. The other half I wasted.
+ - A merry Christmas to all my friends except two.
+ - If you can’t dazzle them with brilliance, baffle them with bull.
+ - Reality is an illusion that occurs due to the lack of alcohol.
+ - You can’t cheat an honest man.
+ - When we have lost everything, including hope, life becomes a disgrace, and death a duty.
+ - Never work with animals or children.
+ - Attitude is more important than the past, than education, than money, than circumstances, than what people do or say. It is more important than appearance, giftedness, or skill.
+ - Start every day off with a smile and get it over with.
+ - If there’s a will, prosperity can’t be far behind.
+ - You can fool some of the people some of the time – and that’s enough to make a decent living.
+ - Money will not buy happiness, but it will let you be unhappy in nice places.
+ - I used to be indecisive, now I’m not so sure.
+ - A woman drove me to drink and I didn’t even have the decency to thank her.
+ - Beer: Helping ugly people have sex since 3000 B. C.
+ - Smile first thing in the morning. Get it over with.
+ - Reminds me of my safari in Africa. Somebody forgot the corkscrew and for several days we had to live on nothing but food and water.
+ - Trust everybody, but cut the cards yourself.
+ - Somebody’s been putting pineapple juice in my pineapple juice!
+ - I don’t have to attend every argument I’m invited to.
+ - I have spent a lot of time searching through the Bible for loopholes.
+ - Comedy is a serious business. A serious business with only one purpose – to make people laugh.
+ - I don’t drink anymore, on the other hand I don’t drink any less either.
+ - It ain’t what they call you, it’s what you answer to.
+ - Always carry a flagon of whiskey in case of snakebite and furthermore always carry a small snake.
+ - First prize was a week in Philadelphia. Second prize was two weeks.
+ - I drink therefore I am.
+ - Marry an outdoors woman. Then if you throw her out into the yard on a cold night, she can still survive.
+ - You can’t trust water: Even a straight stick turns crooked in it.
+ - I’ve never hit a woman in my life. Not even my own mother.
+ - I am an expert of electricity. My father occupied the chair of applied electricity at the state prison.
+ - I cook with wine, sometimes I even add it to the food.
+ - The best cure for insomnia is to get a lot of sleep.
+ - I’d rather have two girls at 21 each than one girl at 42.
+ - Everybody’s got to believe in something. I believe I’ll have another beer.
+ - Thou shalt not kill anything less than a fifth.
+ - Christmas at my house is always at least six or seven times more pleasant than anywhere else. We start drinking early. And while everyone else is seeing only one Santa Claus, we’ll be seeing six or seven.
+ - It’s a funny old world. A man’s lucky if he gets out of it alive.
+ - Never cry over spilt milk, because it may have been poisoned.
+ - Don’t worry about your heart, it will last you as long as you live.
+ - Never try to impress a woman, because if you do she’ll expect you to keep up the standard for the rest of your life.
+ - When doctors and undertakers meet, they wink at each other.
+ - Children should neither be seen or heard from – ever again.
+ - It is funnier to bend things than to break them.
+ - I exercise strong self control. I never drink anything stronger than gin before breakfast.
+ - If I ever found a church that didn’t believe in knocking all the other churches, I might consider joining it.
+ - There are better things than sex, but nothing quite like it.
+ - Few things in life are more embarrassing than the necessity of having to inform an old friend that you have just got engaged to his fiancee.
+ - I can do anything I want to do!
+ - A man without a woman is like a neck without a pain.
+ - Variant: I was driven to drink by a woman. I am forever grateful, yet I never had the good manners to thank her.
+ - Bert Williams was the funniest man I ever saw and the saddest man I ever knew.
+ - It is well to remember that there are five reasons for drinking: the arrival of a friend, one’s present or future thirst, the excellence of the cognac, or any other reason.
+ - I was in love with a beautiful blonde once. She drove me to drink. That’s the one thing I’m indebted to her for.
+ - Philadelphia, wonderful town, spent a week there one night.
+ - Never mind what I told you – you do as I tell you.
+ - Thou shalt not covet thy neighbor’s house unless they have a well-stocked bar.
+ - There are only two real ways to get ahead today – sell liquor or drink it.
+ - How well I remember my first encounter with The Devil’ss Brew. I happened to stumble across a case of bourbon – and went right on stumbling for several days thereafter.
+ - It’s morally wrong to allow a sucker to keep his money.
+ - This job will drive me to drink, and for that reason, I will be eternally grateful.
+ - The clever cat eats cheese and breathes down rat holes with baited breath.
+ - I’ve been barbecued, stewed, screwed, tattooed, and fried by people claiming to be my friends. The human race has gone backward, not forward, since the days we were apes swinging through the trees.
+ - What a gorgeous day. What effulgent sunshine. It was a day of this sort the McGillicuddy brothers murdered their mother with an ax.
+ - The Punkwat twins! Brentwood is the world’s smallest giant, whilst his brother, Elwood, is the largest midget in the world. They baffle science!
+ - Women are like elephants. I like to look at ’em, but I wouldn’t want to own one.
+ - It was a marriage of convenience, as my father had a blister on his big toe and couldn’t travel far to find a girl.
+ - I never vote for anyone. I always vote against.
+ - I note the derogatory rumors concerning the use of alcoholic stimulants and lavish living. It is the penalty of greatness.
+ - I always keep a supply of stimulant handy in case I see a snake, which I also keep handy.
+ - Dentists, lawyers, doctors are all a bunch of thieving bastards.
+ - Show me a great actor and I’ll show you a lousy husband. Show me a great actress, and you’ve seen the devil.
+ - My main ambition as a gardener is to water my orange trees with gin, then all I have to do is squeeze the juice into a glass.
+ - A thing worth having is a thing worth cheating for.
+ - Back in my rummy days, I would tremble and shake for hours upon arising. It was the only exercise I got.
+ - The two-headed boy in the circus never had such a headache.
+ - If it is a joint return, we are instructed to print the given names of both husband and wife. But since some of the names that husband and wife give each other are hardly suited to print, we must proceed cautiously.
+ - Drown in a cold vat of whiskey? Death, where is thy sting?
+ - I once spent a year in Philadelphia, I think it was on a Sunday.
+ - So long as the presence of death lurks with anyone who goes through the simple act of swallowing, I will make mine whiskey.
+ - There’s no such thing as a tough child – if you parboil them first for seven hours, they always come out tender.
+ - Scotch needs water like a fish needs a bicycle.
+ - I never drink water; that is the stuff that rusts pipes.
+ - I believe in tying the marriage knot, as long as it’s around the woman’s neck.
+ - After two days in the hospital, I turn to the nurse.
+ - There are seven natural openings in the head and body. A lawyer is the only human being with eight. The extra one is a slot to store money in, should his bank be unable to hold all of it.
+ - I’ve been on a 46-year diet of olives and alcohol. The latter I consume. The former I save and use over again in more alcohol. In my lifetime, I imagine, I have consumed at least $200,000 worth of whisky.
+ - In every big city there is always one surefire laugh, and that lies in hanging some piece of idiocy upon the people of a nearby city or town.
+ - The world is getting to be such a dangerous place, a man is lucky to get out of it alive.
+ - All my available funds are completely tied up in cash.
+ - My illness is due to my doctor’s insistence that I drink milk, a whitish fluid they force down helpless babies.
+ - I was almost put out of business by a well-meaning corpse.
+ - The movie people would have nothing to do with me until they heard me speak in a Broadway play, then they all wanted to sign me for the silent movies.
+ - I once donated a pint of my finest red corpuscles to the great American Red Cross and the doctor opined my blood was very helpful; contained so much alcohol they could use it to sterilize their instruments.
+ - California is the only state in the union where you can fall asleep under a rose bush in full bloom and freeze to death.
+ - Sleep – the most beautiful experience in life – except drink.
+ - Take me down to the bar! We’ll drink breakfast together!
+ - Set up another case bartender! The best thing for a case of nerves is a case of Scotch.
+ - I have been advised by the best medical authority, at my age, not to attempt to give up alcohol.
+ - The income tax was devised to give lawyers and certified public accountants business. Few persons can make head, tail, or middle out of it. Einstein admitted he couldn’t.
+ - The nation needs to return to the colonial way of life, when a wife was judged by the amount of wood she could split.
+ - It is impossible to find twelve fair men in all the world.
+ - Alcoholic: anybody who drinks more than I do.
+ - Where there is a will, there’s prosperity around the corner.
+ - I have a poor memory for names; but I seldom remember a face.
+ - The funniest thing a comedian can do is not do it.
+ - Say anything that you like about me except that I drink water.
+ - Business is an establishment that gives you the legal, even though unethical, right to screw the naive-right, left, and in the middle.
+ - Ain’t fit for man nor beast.
+ - All Englishmen talk as if they’ve got a bushel of plums stuck in their throats, and then after swallowing them get constipated from the pips.
+ - I have been in the entertainment business some forty-three years, and I have never said anything detrimental or anything that might be construed as belittling any race or religion. I would be a sucker to do so because you can’t insult the customers.
+ - I don’t know why I ever come in here. The flies get the best of everything.
+ - No one likes the fellow who is all rogue, but we’ll forgive him almost anything if there is warmth of human sympathy underneath his rogueries. The immortal types of comedy are just such men.
+ - I ad lib most of my dialogue. If I did remember my lines, it would be too bad for me.
+ - Here is my best advice on the matter of deductibles: just count off on your fingers all the items that you suspect might be deductible – and then forget them, because they aren’t.
+ - I never eat before breakfast.
+ - A man who’s intoxicated all the time doesn’t need sympathy.
+ - I write my scripts short and they develop on the set, which I have found a far better premise both economically and practically.
+ - The best thing to break is a contract.
+ - I’d take a Bromo, but I can’t stand the noise.
+ - During one of my treks through Afghanistan, we lost our corkscrew. We were compelled to live on food and water for several days.
+ - Comedy is merely tragedy happening to someone else.
+ - Last week, I went to Philadelphia, but it was closed.
+ - Remember, Lady Godiva put all she had on a horse and she lost her shirt!
+ - I was married once – in San Francisco. I haven’t seen her for many years. The great earthquake and fire in 1906 destroyed the marriage certificate. There’s no legal proof. Which proves that earthquakes aren’t all bad.
+ - Thou shalt not take the name of the Lord thy God in vain unless you’ve used up all the other four-letter words.
+ - I feel like a midget with muddy feet had been walking over my tongue all night.
+ - A man who overindulges lives in a dream. He becomes conceited. He thinks the whole world revolves around him; and it usually does.
+ - I think of the church often. Not because religion was closing in on me, but because for a long time my ass was sore from that hard, unupholstered pew.
+ - I personally stay away from natural foods. At my age I need all the preservatives I can get.
+ - Some people are born losers; others acquire the knack gradually.
+ - Horse sense is the thing a horse has which keeps it from betting on people.
+ - If pigs had wings, they would be pigeons.
+ - Sex isn’t necessary. You don’t die without it, but you can die having it.
+ - The low-ceiling price bazaar for sexual relief was a street called Middie Alley. You could barely get a pushcart through this avenue. Top price-twenty-five cents.
+ - No doubt exists that all women are crazy; it’s only a question of degree.
+ - I never drink water because of the disgusting things that fish do in it.
+ - The laziest man I ever met put popcorn in his pancakes so they would turn over by themselves.
+ - Wouldn’t it be terrible if I quoted some reliable statistics which prove that more people are driven insane through religious hysteria than by drinking alcohol.
+ - I like my films to influence the audience. Even if it means tripping their aged grandparents with a cane when they get home.
+ - Hollywood is the gold cap on a tooth that should have been pulled out years ago.
+ - No man is the boss of his own house, but he can make up for it, he thinks, by making a dog play dead.
+ - Never give a sucker an even break.
+ - Buried my wife the other day. Had to, she died.
+ - It’s quite true I’m not drinking anymore; however, I’m not drinking any less either.
+ - I never smoked a cigar in my life until I was nine.
+ - Ah, the patter of little feet around the house. There’s nothing like having a midget for a butler.
+ - Some things are better than sex, and some are worse, but there’s nothing exactly like it.
+ - Once, during Prohibition, I was forced to live for days on nothing but food and water.
+ - I like thieves. Some of my best friends are thieves. Why, just last week we had the president of the bank over for dinner.
+ - Marriage is better than leprosy only because it’s easier to get rid of.
+ - Abstaining is favorable both to the head and the pocket.
+ - Anyone who hates children and animals can’t be all bad.
+ - If I had to live my life over, I’d live over a saloon.
+ - I like children – fried.
+ - To me, these biblical stories are just so many fish stories, and I’m not specifically referring to Jonah and the whale. I need indisputable proof of anything I’m asked to believe.
+ - Now don’t say you can’t swear off drinking; it’s easy. I’ve done it a thousand times.
+ - When life hands you lemons, make whisky sours.
+ - On the whole, I’d rather be in Philidelphia.
+ - Ultimately chess is just chess – not the best thing in the world and not the worst thing in the world, but there is nothing quite like it.
+ - All the men in my family were bearded, and most of the women.
+ - I never worry about being driven to drink; I just worry about being driven home.
+ - My heart is a bargain today. Will you take it?
+ - Happiness means quiet nerves.
+ - The cost of living has gone up another dollar a quart.
+ - It’s what you do that counts and not what you say; therefore I fired my press agent.
+ - I’m looking for loopholes.
+ - The funniest thing about comedy is that you never know why people laugh. I know what makes them laugh but trying to get your hands on the why of it is like trying to pick an eel out of a tub of water.
+ - I never met a kid I liked.
+ - The first thing any comedian does on getting an unscheduled laugh is to verify the state of his .
+ - I always made up my own acts; built them out of my knowledge and observation of real life. I’d had wonderful opportunities to study people; and every time I went out on the stage I tried to show the audience some bit of true human nature.
+ - I didn’t squawk about the steak, dear. I merely said I didn’t see that old horse that used to be tethered outside here.
+ - The only thing a lawyer won’t question is the legitimacy of his mother.
+ - I’ve been asked if I ever get the DTs. I don’t know. It’s hard to tell where Hollywood ends and the DTs begin.
+ - I certainly do not drink all the time. I have to sleep you know.
+ - I don’t believe in dining on an empty stomach.
+ - There is not a man in America who has not had a secret ambition to boot an infant.
+ - A comic should suffer as much over a single line as a man with a hernia would in picking up a heavy barbell.
+ - I never drink water. I’m afraid it will become habit-forming.
+ - I must have a drink of breakfast.
+ - Thou shalt not steal-only from other comedians.
+ - I’ve been drunk only once in my life. But that lasted for twenty-three years.
+ - I could be stranded in any town in the United States with ten cents and within an hour make $20 with the shell game.
+ - There comes a time in the affairs of man when he must take the bull by the tail and face the situation.
+
+188 quotes

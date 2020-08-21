@@ -1,0 +1,344 @@
+ - I recommend you to take care of the minutes, for the hours will take care of themselves.
+ - There will never be a better time to start quitting smoking than today.
+ - Know the true value of time; snatch, seize, and enjoy every moment of it.
+ - Whatever is worth doing at all is worth doing well.
+ - If we do not plant knowledge when young, it will give us no shade when we are old.
+ - The talent of insinuation is more useful than that of persuasion, as everybody is open to insinuation, but scarce any to persuasion.
+ - Sexual intercourse is a grossly overrated pastime; the position is undignified, the pleasure momentary and the consequences damnable.
+ - Human nature is the same everywhere; the modes only are different.
+ - We are in truth, more than half what we are by imitation. The great point is to choose good models and to study them with care.
+ - The world is a country which nobody ever yet knew by description; one must travel through it one’s self to be acquainted with it.
+ - The difference between a man of sense and a fop is that the fop values himself upon his dress; and the man of sense laughs at it, at the same time he knows he must not neglect it.
+ - Words are the dress of thoughts; which should no more be presented in rags, tatters, and dirt than your person should.
+ - Idleness is only the refuge of weak minds.
+ - Advice is seldom welcome, and those who need it the most, like it the least.
+ - The mere brute pleasure of reading – the sort of pleasure a cow must have in grazing.
+ - Any affectation whatsoever in dress implies, in my mind, a flaw in the understanding.
+ - Hear one side and you will be in the dark. Hear both and all will be clear.
+ - Silence and reserve suggest latent power. What some men think has more effect than what others say.
+ - Aim at perfection in everything, though in most things it is unattainable. However, they who aim at it, and persevere, will come much nearer to it than those whose laziness and despondency make them give it up as unattainable.
+ - Sincerity is the most compendious wisdom.
+ - I recommend to you to take care of the minutes; for hours will take care of themselves. I am very sure, that many people lose two or three hours every day, by not taking care of the minutes.
+ - When griefs are genuine, I find, there is nothing more vacuous, more burdensome, or even more impertinent, than letters of consolation.
+ - Character must be kept bright as well as clean.
+ - Wrongs are often forgiven, but contempt never is. Our pride remembers it forever.
+ - Distrust all those who love you extremely upon a very slight acquaintance and without any visible reason.
+ - Give Dayrolles a chair.
+ - Firmness of purpose is one of the most necessary sinews of character, and one of the best instruments of success. Without it, genius wastes its efforts in a maze of inconsistencies.
+ - Knowledge is a comfortable and necessary retreat and shelter for us in an advanced age; and if we do not plant it while young, it will give us no shade when we grow old.
+ - Our own self-love draws a thick veil between us and our faults.
+ - In seeking wisdom thou art wise; in imagining that thou hast attained it – thou art a fool.
+ - A weak mind is like a microscope, which magnifies trifling things, but cannot receive great ones.
+ - Never hold anyone by the button or the hand in order to be heard out; for if people are unwilling to hear you, you had better hold your tongue than them.
+ - A judicious reticence is hard to learn, but it is one of the great lessons of life.
+ - A man’s own good breeding is the best security against other people’s ill manners.
+ - Take the tone of the company you are in.
+ - The vulgar only laugh, but never smile; whereas well-bred people often smile, but seldom laugh.
+ - Women are all so far Machiavellians that they are never either good or bad by halves; their passions are too strong, and their reason too weak, to do anything with moderation.
+ - Virtue and learning, like gold, have their intrinsic value: but if they are not polished, they certainly lose a great deal of their luster: and even polished brass will pass upon more people than rough gold.
+ - You must look into people, as well as at them.
+ - Style is the dress of thoughts, and let them be ever so just.
+ - Do as you would be done by, is the surest method of pleasing.
+ - Let your enemies be disarmed by the gentleness of your manner, but at the same time let them feel, the steadiness of your resentment.
+ - History is but a confused heap of facts.
+ - Persist and persevere, and you will find most things that are attainable, possible.
+ - True politeness is perfect ease and freedom. It simply consists in treating others just as you love to be treated yourself.
+ - In the course of the world, a man must very often put on an easy, frank countenance, upon very disagreeable occasions; he must seem pleased, when he is very much otherwise; he must be able to accost and receive with smiles, those whom he would much rather meet with swords.
+ - To know a little of anything gives neither satisfaction nor credit, but often brings disgrace or ridicule.
+ - In business be as able as you can, but do not be cunning; cunning is the dark sanctuary of incapacity.
+ - Style is the dress of thoughts; and let them be ever so just, if your style is homely, coarse, and vulgar, they will appear to as much disadvantage, and be as ill received, as your person, though ever so well-proportioned, would if dressed in rags, dirt, and tatters.
+ - Men, as well as women, are much oftener led by their hearts than by their understandings.
+ - The best way to compel weak-minded people to adopt our opinion, is to frighten them from all others, by magnifying their danger.
+ - Ridicule is the best test of truth.
+ - Very ugly or very beautiful women should be flattered on their understanding, and mediocre ones on their beauty.
+ - We are as often duped by diffidence as by confidence.
+ - I heartily wish you, in the plain home-spun style, a great number of happy new years, well employed in forming both your mind andyour manners, to be useful and agreeable to yourself, your country, and your friends.
+ - The manner of your speaking is full as important as the matter, as more people have ears to be tickled than understandings to judge.
+ - Inferiority is what you enjoy in your best friends.
+ - Firmness of purpose is one of the best instruments of success.
+ - Real friendship is a slow grower.
+ - Vulgarism in language is the distinguishing characteristic of bad company, and a bad education. A man of fashion avoids nothing with more care than that. Proverbial expressions, and trite sayings, are the flowers of the rhetoric of vulgar man.
+ - Elegance of manner is the outgrowth of refined and exalted sense.
+ - You must be respectable, if you will be respected.
+ - The insolent civility of a proud man is, if possible, more shocking than his rudeness could be; because he shows you, by his manner, that he thinks it mere condescension in him; and that his goodness alone bestows upon you what you have no pretense to claim.
+ - The rich are always advising the poor, but the poor seldom return the compliment.
+ - Women who are either indisputably beautiful, or indisputably ugly, are best flattered upon the score of their understandings.
+ - Not to perceive the little weaknesses and the idle but innocent affectations of the company may be allowable as a sort of polite duty. The company will be pleased with you if you do, and most probably will not be reformed by you if you do not.
+ - Women especially as to be talked to as below men, and above children.
+ - For my own part, I would rather be in company with a dead man than with an absent one; for if the dead man gives me no pleasure, at least he shows me no contempt; whereas the absent one, silently indeed, but very plainly, tells me that he does not think me worth his attention.
+ - I am convinced that a light supper, a good night’s sleep, and a fine morning, have sometimes made a hero of the same man, who, by an indigestion, a restless night, and rainy morning, would have proved a coward.
+ - The scholar without good breeding is a pedant; the philosopher, a cynic.
+ - It is hard to say which is the greatest fool: he who tells the whole truth, or he who tells no truth at all. Character is as necessary in business as in trade. No man can deceive often in either.
+ - If you would convince others, seem open to conviction yourself.
+ - Dispatch is the soul of business, and nothing contributes more to dispatch than method.
+ - Women have, in general, but ne object, which is their beauty; upon which, scarce any flattery is too gross for them to swallow.
+ - Religion is by no means a proper subject of conversation in mixed company; it should only be treated among a very few people of learning, for mutual instruction. It is too awful and respectable a subject to become a familiar one.
+ - Learning is acquired by reading books, but the much more necessary learning, the knowledge of the world, is only to be acquired by reading men, and studying all the various facets of them.
+ - Manners must adorn knowledge and smooth its way through the world.
+ - The power of applying attention, steady and undissipated, to a single object, is the sure mark of superior genius.
+ - Judgment is not upon all occasions required, but discretion always is.
+ - Knowledge may give weight, but accomplishments give luster, and many more people see than weigh.
+ - Swift speedy time, feathered with flying hours, Dissolves the beauty of the fairest brow.
+ - Good manners, to those one does not love, are no more a breach of truth, than “your humble servant,” at the bottom of a challengeis; they are universally agreed upon, and understand to be things of course. They are necessary guards of the decency and peace of society.
+ - If you wish particularly to gain the good graces and affection of certain people, men or women, try to discover their most striking merit, if they have one, and their dominant weakness, for every one has his own, then do justice to the one, and a little more than justice to the other.
+ - Pocket all your knowledge with your watch, and never pull it out in company unless desired.
+ - A man of sense may be in haste, but can never be in a hurry.
+ - People hate who makes you feel one’s inferiority.
+ - Next to clothes being fine, they should be well made, and worn easily; for a man is only the less genteel for a fine coat, if, in wearing it, he shows a regard for it, and is not as easy in it as if it was a plain one.
+ - A man who cannot command his temper should not think of being a man in business.
+ - If originally it was not good for a man to be alone, it is much worse for a sick man to be so; he thinks too much of his distemper, and magnifies it.
+ - Two people cannot be alone together for upwards of half an hour without one emerging as the superior.
+ - Regularity in the hours of rising and retiring, perseverance in exercise, adaptation of dress to the variations of climate, simple and nutritious aliment, and temperance in all things are necessary branches of the regimen of health.
+ - Women’s beauty, like men’s wit, is generally fatal to the owners.
+ - The only solid and lasting peace between a man and his wife is, doubtless, a separation.
+ - I really know nothing more criminal, more mean, and more ridiculous than lying. It is the production either of malice, cowardice, or vanity; and generally misses of its aim in every one of these views; for lies are always detected, sooner or later.
+ - Indifference is commonly the mother of discretion.
+ - Remember that the wit, humour, and jokes of most mixed companies are local. They thrive in that particular soil, but will not often bear transplanting.
+ - Observe it, the vulgar often laugh, but never smile, whereas well-bred people often smile, and seldom or never laugh. A witty thing never excited laughter, it pleases only the mind and never distorts the countenance.
+ - Cautiously avoid speaking of the domestic affairs either of yourself, or of other people. Yours are nothing to them but tedious gossip; and theirs are nothing to you.
+ - A joker is near akin to a buffoon; and neither of them is the least related to wit.
+ - Prepare yourself for the world, as athletes used to do for their exercises; oil your mind and your manners, to give them the necessary suppleness and flexibility; strength alone will not do.
+ - A seeming ignorance is very often a most necessary part of worldly knowledge. It is, for instance, commonly advisable to seem ignorant of what people offer to tell you; and, when they say, Have you not heard of such a thing? to answer, No, and to let them go on, though you know it already.
+ - When you have found out the prevailing passion of any man, remember never to trust him where that passion is concerned.
+ - May you live as long as you are fit to live, but no longer, or, may you rather die before you cease to be fit to live than after!
+ - Deafness produces bizarre effects, reversing the natural order of things; the interchange of letters is the conversation of the deaf, and the only link with society. I would be in despair, for instance, over seeing you speak, but, instead, I am only too happy to hear you write.
+ - Artichoke: That vegetable of which one has more at the finish than at the start of dinner.
+ - Men are much more unrolling to have their weaknesses and their imperfections known than their crimes; and if you hint to a man that you think him silly, ignorant, or even ill-bred or awkward, he will hate you more and longer than if you tell him plainly that you think him a rogue.
+ - In the ordinary course of things, how many succeed in society merely by virtue of their manners, while others, however meritorious, fail through lack of them? After all, it’s only barbarians who wear uncut precious stones.
+ - Lord Tyrawley and I have been dead these two years, but we don’t choose to have it known.
+ - Observe any meetings of people, and you will always find their eagerness and impetuosity rise or fall in proportion to their numbers.
+ - Good manners are the settled medium of social, as specie is of commercial, life; returns are equally expected for both.
+ - It is reported here that the King of Prussia has gone mad and has been locked up. There would be nothing bad about that: at leastthat might of his would no longer be a menace, and you could breathe freely for a while. I much prefer madmen who are locked up to those who are not.
+ - Young men are apt to think themselves wise enough, as drunken men are apt to think themselves sober enough.
+ - The value of moments, when cast up, is immense, if well employed; if thrown away, their loss is irrevocable.
+ - Absolute power can only be supported by error, ignorance and prejudice.
+ - I am grown old, and have possibly lost a great deal of that fire, which formerly made me love fire in others at any rate, and however attended with smoke: but now I must have all sense, and cannot, for the sake of five righteous lines, forgive a thousand absurd ones.
+ - Ugliness is a letter of credit for some special purposes.
+ - Truth, but not the whole truth, must be the invariable principle of every man who hath either religion, honour, or prudence. Thosewho violate it, may be cunning, but they are not able. Lies and perfidy are the refuge of fools and cowards.
+ - There is not a more prudent maxim, than to live with one’s enemies as if they may one day become one’s friends; as it commonly happens, sooner or later, in the vicissitudes of political affairs.
+ - The possibility of remedying imprudent actions is commonly an inducement to commit them.
+ - Buy good books, and read them; the best books are the commonest, and the last editions are always the best, if the editors are not blockheads.
+ - If ever a man and his wife, or a man and his mistress, who pass nights as well as days together, absolutely lay aside all good breeding, their intimacy will soon degenerate into a coarse familiarity, infallibly productive of contempt or disgust.
+ - Ties of blood are not always ties of friendship; but friendship founded on merit, on esteem, and on mutual trust, becomes more vital and more tender when strengthened by the ties of blood.
+ - Unlike my subject will I frame my song, It shall be witty and it shan’t be long.
+ - Either a good or a bad reputation outruns and gets before people wherever they go.
+ - Keep your own secret, and get out other people’s. Keep your own temper, and artfully warm other people’s. Counterwork your rivalswith diligence and dexterity, but at the same time with the utmost personal civility to them: and be firm without heat.
+ - Be your character what it will, it will be known, and nobody will take it upon your word.
+ - We are hardly ever grateful for a fine clock or watch when it goes right, and we pay attention to it only when it falters, for then we are caught by surprise. It ought to be the other way about.
+ - In nature the most violent passions are silent; in tragedy they must speak and speak with dignity too.
+ - Physical ills are the taxes laid upon this wretched life; some are taxed higher, and some lower, but all pay something.
+ - The manner of a vulgar man has freedom without ease, and the manner of a gentleman has ease without freedom.
+ - Cardinal Mazarin was a great knave, but no great man; much more cunning than able; scandalously false and dirtily greedy.
+ - No man can possibly improve in any company for which he has not respect enough to be under some degree of restraint.
+ - Whoever is in a hurry shows that the thing he is about is too big for him.
+ - A young fellow ought to be wiser than he should seem to be; and an old fellow ought to seem wise whether he really be so or not.
+ - There never were, since the creation of the world, two cases exactly parallel.
+ - Whenever a man seeks your advice he generally seeks your praise.
+ - Manners must adorn knowledge and smooth its way in the world, without them it is like a great rough diamond, very well in a closet by way of curiosity, and also for its intrinsic value; but most prized when polished.
+ - In the case of scandal, as in that of robbery, the receiver is always thought as bad as the thief.
+ - Horse-play, romping, frequent and loud fits of laughter, jokes, and indiscriminate familiarity, will sink both merit and knowledge into a degree of contempt. They compose at most a merry fellow; and a merry fellow was never yet a respectable man.
+ - Frequent and loud laughter is the characteristic of folly and ill manners.
+ - A man of fashion never has recourse to proverbs, and vulgar aphorisms; uses neither favourite words nor hard words, but takes great care to speak very correctly and grammatically, and to pronounce properly; that is, according to the usage of the best companies.
+ - Fear manifested invites danger...
+ - The more one works, the more willing one is to work.
+ - The heart never grows better by age; I fear rather worse, always harder. A young liar will be an old one, and a young knave will only be a greater knave as he grows older.
+ - Men will not believe because they will not broaden their minds.
+ - Let this be one invariable rule of your conduct – never to show the least symptom of resentment, which you cannot, to a certain degree, gratify; but always to smile, where you cannot strike.
+ - Knowledge of the world in only to be acquired in the world, and not in a closet.
+ - A rake is a composition of all the lowest, most ignoble, degrading, and shameful vices; they all conspire to disgrace his character, and to ruin his fortune; while wine and the pox content which shall soonest and most effectually destroy his constitution.
+ - I am very sure that any man of common understanding may, by culture, care, attention, and labor, make himself what- ever he pleases, except a great poet.
+ - Take rather than give the tone to the company you are in. If you have parts you will show them more or less upon every subject; and if you have not, you had better talk sillily upon a subject of other people’s than of your own choosing.
+ - To please people is a great step towards persuading them.
+ - There are people who indulge themselves in a sort of lying, which they reckon innocent, and which in one sense is so; for it hurtsnobody but themselves. This sort of lying is the spurious offspring of vanity, begotten upon folly.
+ - In matters of religion and matrimony I never give any advice; because I will not have anybody’s torments in this world or the next laid to my charge.
+ - Pray be always in motion. Early in the morning go and see things; and the rest of the day go and see people. If you stay but a week at a place, and that an insignificant one, see, however, all that is to be seen there; know as many people, and get into as many houses as ever you can.
+ - If you have an hour, will you not improve that hour, instead of idling it away?
+ - Whenever I go to an opera, I leave my sense and reason at the door with my half-guinea, and deliver myself up to my eyes and my ears.
+ - Though we cannot totally change our nature, we may in great measure correct it by reflection and philosophy; and some philosophy is a very necessary companion in this world, where, even to the most fortunate, the chances are greatly against happiness.
+ - If you have wit, use it to please and not to hurt: you may shine like the sun in the temperate zones without scorching.
+ - A man of sense only trifles with them, plays with them, humors and flatters them, as he does with a sprightly and forward child; but he neither consults them about, nor trusts them with, serious matters.
+ - Many people come into company full of what they intend to say in it themselves, without the least regard to others; and thus charged up to the muzzle are resolved to let it off at any rate.
+ - The nation looked upon him as a deserter, and he shrunk into insignificancy and an earldom.
+ - Most maxim-mongers have preferred the prettiness to the justness of a thought, and the turn to the truth; but I have refused myself to everything that my own experience did not justify and confirm.
+ - Our conjectures pass upon us for truths; we will know what we do not know, and often, what we cannot know: so mortifying to our pride is the base suspicion of ignorance.
+ - There is nothing that people bear more impatiently, or forgive less, than contempt: and an injury is much sooner forgotten than an insult.
+ - Merit and knowledge will not gain hearts, though they will secure them when gained.
+ - Violent measures are always dangerous, but, when necessary, may then be looked on as wise. They have, however, the advantage of never being matter of indifference; and, when well concerted, must be decisive.
+ - Mankind is made up of inconsistencies, and no man acts invariably up to his predominant character. The wisest man sometimes acts weakly, and the weakest sometimes wisely.
+ - Politicians neither love nor hate. Interest, not sentiment, directs them.
+ - It must be owned, that the Graces do not seem to be natives of Great Britain; and I doubt, the best of us here have more of rough than polished diamond.
+ - Give nobly to indigent merit, and do not refuse your charity even to those who have not merit but their misery.
+ - Wear your knowledge like your watch – in you pocket – and don’t pull it out just for show.
+ - Whoever incites anger has a strong insurance against indifference.
+ - The heart never grows better with age; I fear rather worse, always harder.
+ - Good breeding is the result of good sense, some good nature, and a little self-denial for the sake of others.
+ - Compliments of congratulation are always kindly taken, and cost nothing but pen, ink and paper. I consider them as draughts upon good breeding, where the exchange is always greatly in favor of the drawer.
+ - An ignorant man is insignificant and contemptible; nobody cares for his company, and he can just be said to live, and that is all.
+ - If a man, notoriously and designedly, insults and affronts you, knock him down; but if he only injures you, your best revenge is to be extremely civil to him in your outward behaviour, though at the same time you counterwork him, and return him the compliment, perhaps with interest.
+ - Always make the best of the best, and never make bad worse.
+ - Without some dissimulation no business can be carried on at all.
+ - I look upon indolence as a sort of suicide; for the man is effectually destroyed, though the appetites of the brute may survive.
+ - I would have all intoleration intolerated in its turn.
+ - Honest error is to be pitied not ridiculed.
+ - To have frequent recourse to narrative betrays great want of imagination.
+ - Half the business is done, when one has gained the heart and the affections of those with whom one is to transact it.
+ - There is a sort of veteran women of condition, who, having lived always in the grand mode, and having possibly had some gallantries, together with the experience of five and twenty or thirty years, form a young fellow better than all the rules that can be given him.
+ - Pleasure is the rock which most young people split upon; they launch out with crowded sails in quest of it, but without a compassto direct their course, or reason sufficient to steer the vessel; for want of which, pain and shame, instead of pleasure, are the returns of their voyage.
+ - Smooth your way to the head, through the heart. The way of reason is a good one; but it is commonly something longer, and perhapsnot so sure.
+ - The rulers of the earth are all worth knowing; they suggest moral reflections: and the respect that one naturally has for God’s vice-regents here on earth is greatly increased by acquaintance with them.
+ - The less one has to do, the less time one finds to do it in.
+ - Second-rate knowledge, and middling talents, carry a man farther at courts, and in the busy part of the world, than superior knowledge and shining parts.
+ - A gentleman is often seen, but very seldom heard to laugh.
+ - This is the day when people reciprocally offer, and receive, the kindest and the warmest wishes, though, in general, without meaning them on one side, or believing them on the other. They are formed by the head, in compliance with custom, though disavowed by the heart, in consequence of nature.
+ - A man who tells nothing, or who tells all, will equally have nothing told him.
+ - Speak the language of the company you are in; speak it purely, and unlarded with any other.
+ - Whoever plays deep must necessarily lose his money or his character.
+ - Speak of the moderns without contempt and of the ancients without idolatry; judge them all by their merits, but not by their age.
+ - Sincerity w the most compendious wisdom, an excellent instrument for the speedy despatch of business. It creates confidence in those we have to deal with, saves the labor of many inquiries, and brings things to an issue in few words.
+ - The herd of mankind can hardly be said to think; their notions are almost all adoptive; and, in general, I believe it is better that it should be so; as such common prejudices contribute more to order and quiet, than their own separate reasonings would do, uncultivated and unimproved as they are.
+ - Gold and silver are but merchandise, as well as cloth or linen; and that nation that buys the least, and sells the most, must always have the most money.
+ - Keep carefully not of all scrapes and quarrels. They lower a character extremely; and are particularly dangerous in France, wherea man is dishonoured by not resenting an affront, and utterly ruined by resenting it.
+ - It is an undoubted truth, that the less one has to do, the less time one finds to do it in. One yawns, one procrastinates, one can do it when one will, and therefore one seldom does it at all.
+ - Whatever you do, do it to the purpose; do it thoroughly, not superficially. Go to the bottom of things. Any thing half done, or half known, is in my mind, neither done nor known at all. Nay, worse, for it often misleads.
+ - To govern mankind, one must not overrate them.
+ - Most arts require long study and application; but the most useful of all, that of pleasing, only the desire.
+ - No man tastes pleasures truly, who does not earn them by previous business; and few people do business well, who do nothing else.
+ - A novel must be exceptionally good to live as long as the average cat.
+ - Business by no means forbids pleasures; on the contrary, they reciprocally season each other; and I will venture to affirm that noman enjoys either in perfection that does not join both.
+ - Experience only can teach men not to prefer what strikes them for the present moment, to what will have much greater weight with the them hereafter.
+ - I really think next to the consciousness of doing a good action, that of doing a civil one is the most pleasing; and the epithet which I should covet the most next to that of Aristides, would be that of well-bred.
+ - Lady – – is safely delivered of a son, to the great joy of that noble family. The expression, of a woman’s having brought her husband a son, seems to be a proper and cautious one; for it is never said, from whence.
+ - It is to be presumed, that a man of common sense, who does not desire to please, desires nothing at all; since he must know that he cannot obtain anything without it.
+ - Ceremony is necessary as the outwork and defense of manners.
+ - I sometimes give myself admirable advice, but I am incapable of taking it.
+ - An injury is much sooner forgotten than an insult.
+ - In friendship, as well as in love, the mind is often the dupe of the heart.
+ - In short, let it be your maxim through life, to know all you can know, yourself; and never to trust implicitly to the informationsof others.
+ - The most familiar and intimate habitudes, connections, friendships, require a degree of good-breeding both to preserve and cement them.
+ - We are really so prejudiced by our educations, that, as the ancients deified their heroes, we deify their madmen.
+ - In the mass of mankind, I fear, there is too great a majority of fools and knaves; who, singly from their number, must to a certain degree be respected, though they are by no means respectable.
+ - Good breeding and good nature do incline us rather to help and raise people up to ourselves, than to mortify and depress them, and, in truth, our own private interest concurs in it, as it is making ourselves so many friends, instead of so many enemies.
+ - He adorned whatever subject he either spoke or wrote upon, by the most splendid eloquence.
+ - Most people enjoy the inferiority of their best friends.
+ - Every man becomes, to a certain degree, what the people he generally converses with are.
+ - You must embrace the man you hate, if you cannot be justified in knocking him down.
+ - Remember, as long as you live, that nothing but strict truth can carry you through the world, with either your conscience or your honor unwounded.
+ - Remember that whatever knowledge you do not solidly lay the foundation of before you are eighteen, you will never be master of while you breathe.
+ - Many new years you may see, but happy ones you cannot see without deserving them. These virtue, honor, and knowledge alone can merit, alone can produce.
+ - A certain degree of ceremony is a necessary outwork of manners, as well as of religion; it keeps the forward and petulant at a proper distance, and is a very small restraint to the sensible and to the well-bred part of the world.
+ - Nothing convinces persons of a weak understanding so effectually, as what they do not comprehend.
+ - In my mind, there is nothing so illiberal, and so ill-bred, as audible laughter.
+ - Women who are either indisputably beautiful, or indisputably ugly, are best flattered upon the score of their understandings; but those who are in a state of mediocrity are best flattered upon their beauty, or at least their graces; for every woman who is not absolutely ugly thinks herself handsome.
+ - Letters should be easy and natural, and convey to the persons to whom we send them just what we should say to the persons if we were with them.
+ - So much are our minds influenced by the accidents of our bodies, that every man is more the man of the day than a regular and consequential character.
+ - Not to care for philosophy is to be a true philospher.
+ - Wise people may say what they will, but one passion is never cured by another.
+ - It is good breeding alone that can prepossess people in your favor at first sight, more time being necessary to discover greater talents.
+ - Next to doing things that deserve to be written, nothing gets a man more credit, or gives him more pleasure than to write things that deserve to be read.
+ - Patience is the most necessary quality for business, many a man would rather you heard his story than grant his request.
+ - A man who owes a little can clear it off in a very little time, and, if he is a prudent man, will; whereas a man, who by long negligence, owes a great deal, despairs of ever being able to pay, and therefore never looks into his accounts at all.
+ - Fear invites danger; concealed cowards insult known ones.
+ - Nothing sharpens the arrow of sarcasm so keenly as the courtesy that polishes it; no reproach is like that we clothe with a smile and present with a bow.
+ - I do not think that a Physician should be admitted into the College till he could bring proofs of his having cured, in his own person, at least four incurable distempers.
+ - Armies, though always the supporters and tools of absolute power for the time being, are always the destroyers of it too; by frequently changing the hands in which they think proper to lodge it.
+ - I knew a gentleman who was so good a manager of his time that he would not even lose that small portion of it which the calls of nature obliged him to pass in the necessary-house; but gradually went through all the Latin poets in those moments.
+ - Custom has made dancing sometimes necessary for a young man; therefore mind it while you learn it, that you may learn to do it well, and not be ridiculous, though in a ridiculous act.
+ - Those who travel heedlessly from place to place, observing only their distance from each other, and attending only to their accommodation at the inn at night, set out fools, and will certainly return so.
+ - It is often more necessary to conceal contempt than resentment; the former is never forgiven, but the later is sometimes forgotten.
+ - The permanency of most friendships depends upon the continuity of good fortune.
+ - It seems to me that physical sickness softens, just as moral sickness hardens, the heart.
+ - In your friendships and in your enmities let your confidence and your hostilities have certain bounds; make not the former dangerous, nor the latter irreconcilable. There are strange vicissitudes in business.
+ - All ceremonies are in themselves very silly things; but yet, a man of the world should know them. They are the outworks of Mannersand Decency, which would be too often broken in upon, if it were not for that defence, which keeps the enemy at a proper distance.
+ - A man of sense soon discovers, because he carefully observes, where and how long he is welcome; and takes care to leave the company at least as soon as he is wished out of it. Fools never perceive whether they are ill timed or ill placed.
+ - When one is at play, one should not think of one’s learning.
+ - Nature has hardly formed a woman ugly enough to be insensible to flattery upon her person.
+ - There is time enough for everything in the course of the day if you do but one thing once; but there is not time enough in the year if you will do two things at a time.
+ - Assurance and intrepidity, under the white banner of seeming modesty, clear the way to merit that would otherwise be discouraged by difficulties.
+ - Let them show me a cottage where there are not the same vices of which they accuse the courts.
+ - When a person is in fashion, all they do is right.
+ - Conscious virtue is the only solid foundation of all happiness; for riches, power, rank, or whatever, in the common acceptation ofthe word, is supposed to constitute happiness, will never quiet, much less cure, the inward pangs of guilt.
+ - All I desire for my own burial, is not to be buried alive; but how or where, I think, must be entirely indifferent to every rational creature.
+ - You should not only have attention to everything, but a quickness of attention, so as to observe at once all the people in the room – their motions, their looks and their words – and yet without staring at them and seeming to be an observer.
+ - It is by vivacity and wit that man shines in company; but trite jokes and loud laughter reduce him to a buffoon.
+ - Let us not only scatter benefits, but even strew flowers for our fellow-travellers, in the rugged ways of this wretched world.
+ - Seek always for the best words and the happiest expression you can find.
+ - Statesmen and beauties are very rarely sensible of the gradations of their decay.
+ - A wise man will live as much within his wit as within his income.
+ - As fathers commonly go, it is seldom a misfortune to be fatherless; and considering the general run of sons, as seldom a misfortune to be childless.
+ - Good humor is the health of the soul, sadness is its poison.
+ - A gentleman has ease without familiarity, is respectful without meanness; genteel without affectation, insinuating without seeming art.
+ - One of the greatest difficulties in civil war is, that more art is required to know what should be concealed from our friends, than what ought to be done against our enemies.
+ - Deserve a great deal, and you shall have a great deal; deserve little, and you shall have but a little; and be good for nothing atall, and I assure you, you shall have nothing at all.
+ - A vulgar man is captious and jealous; eager and impetuous about trifles. He suspects himself to be slighted, and thinks everything that is said meant at him.
+ - Pleasure is a necessary reciprocal. No one feels, who does not at the same time give it. To be pleased, one must please. What pleases you in others, will in general please them in you.
+ - I find, by experience, that the mind and the body are more than married, for they are most intimately united; and when one suffers, the other sympathizes.
+ - Few men are of one plain, decided color; most are mixed, shaded, and blended; and vary as much, from different situations, as changeable silks do from different lights.
+ - Modesty is the only sure bait when you angle for praise.
+ - Being pretty on the inside means you don’t hit your brother and you eat all your peas – that’s what my grandma taught me.
+ - Whatever poets may write, or fools believe, of rural innocence and truth, and of the perfidy of courts, this is most undoubtedly true, – that shepherds and ministers are both men; their natures and passions the same, the modes of them only different.
+ - I am in the pitiable situation of feeling all the force of temptation without having the strength to succumb to it.
+ - At any age we must cherish illusions, consolatory or merely pleasant; in youth, they are omnipresent; in old age we must search for them, or even invent them. But with all that, boredom is their natural and inevitable accompaniment.
+ - The heart has such an influence over the understanding, that it is worth while to engage it in our interest.
+ - A man must have a good share of wit himself to endure a great share in another.
+ - Awkwardness is a more real disadvantage than it is generally thought to be; it often occasions ridicule, it always lessens dignity.
+ - The world can doubtless never be well known by theory: practice is absolutely necessary; but surely it is of great use to a young man, before he sets out for that country, full of mazes, windings, and turnings, to have at least a general map of it, made by some experienced traveler.
+ - Little secrets are commonly told again, but great ones generally kept.
+ - An honest man may really love a pretty girl, but only an idiot marries her merely because she is pretty.
+ - I love every-day senses, every-day wit and entertainment; a man who is only good on holidays, is good for very little.
+ - If you will please people, you must please them in their own way.
+ - Few fathers care much for their sons, or at least, most of them care more for their money. Of those who really love their sons, few know how to do it.
+ - If you can once engage people’s pride, love, pity, ambition on your side, you need not fear what their reason can do against you.
+ - Good-breeding carries along with it a dignity that is respected by the most petulant. Ill-breeding invites and authorizes the familiarity of the most timid.
+ - The greatest powers cannot injure a man’s character whose reputation is unblemished among his party.
+ - To take a wife merely as an agreeable and rational companion, will commonly be found to be a grand mistake.
+ - It may be objected, that I am now recommending dissimulation to you; I both own and justify it. It has been long said: Qui nescitdissimular nescit regnare: I go still farther, and say, that without some dissimulation, no business can be carried on at all.
+ - The company of women of fashion will improve your manners, though not your understanding; and that complaisance and politeness, which are so useful in men’s company, can only be acquired in women’s.
+ - To this principle of vanity, which philosophers call a mean one, and which I do not, I owe a great part of the figure which I have made in life.
+ - Gratitude is a burden upon our imperfect nature.
+ - One should always think of what one is about; when one is learning, one should not think of play; and when one is at play, one should not think of learning.
+ - Loud laughter is the mirth of the mob, who are only pleased with silly things; for true Wit or good Sense never excited a laugh since the creation of the world. A man of parts and fashion is therefore often seen to smile, but never heard to laugh.
+ - Choose the company of your superiors whenever you can have it.
+ - Enjoy pleasures, but let them be your own, and then you will taste them.
+ - Most people have ears, but few have judgment; tickle those ears, and depend upon it, you will catch their judgments, such as they are.
+ - If you are not in fashion, you are nobody.
+ - Common sense is the best sense I know of.
+ - I have, by long experience, found women to be like Telephus’s spear: if one end kills, the other cures.
+ - Singularity is only pardonable in old age and retirement; I may now be as singular as I please, but you may not.
+ - The most ignorant are the boldest conjecturers.
+ - A certain degree of fear produces the same effects as rashness.
+ - Study the heart and the mind of man, and begin with your own. Meditation and reflection must lay the foundation of that knowledge, but experience and practice must, and alone can, complete it.
+ - A proper secrecy is the only mystery of able men; mystery is the only secrecy of weak and cunning ones.
+ - A cheerful, easy, open countenance will make fools think you a good-natured man, and make designing men think you an undesigning one.
+ - Those who see and observe kings, heroes, and statesmen, discover that they have headaches, indigestion, humors and passions, just like other people; every one of which in their turns determine their wills in defiance of their reason.
+ - You will find that reason, which always ought to direct mankind, seldom does; but that passions and weaknesses commonly usurp itsseat, and rule in its stead.
+ - Love has been not unaptly compared to the small-pox, which most people have sooner or later.
+ - Vice, in its true light, is so deformed, that it shocks us at first sight; and would hardly ever seduce us, if it did not at first wear the mask of some virtue.
+ - You must labour to acquire that great and uncommon talent of hating with good breeding, and loving with prudence; to make no quarrel irreconcilable by silly and unnecessary indications of anger; and no friendship dangerous, in care it breaks, by a wanton, indiscreet, and unreserved confidence.
+ - No woman ever yet either reasoned or acted long together consequentially; but some little thing, some love, some resentment, somepresent momentary interest, some supposed slight, or some humour, always breaks in upon, and oversets their most prudent resolutions and schemes.
+ - Nothing is more dissimilar than natural and acquired politeness. The first consists in a willing abnegation of self; the second in a compelled recollection of others.
+ - Man is more himself, man is more manlike, when joy is the fundamental thing in him, and grief the superficial.
+ - Never write down your speeches beforehand; if you do, you may perhaps be a good declaimer, but will never be a debater.
+ - Instead of giving in to the greatest misfortune that can happen at my age, deafness, I busy myself in searching out all possible compensations, and I apply myself much more to all the amusements that are here within my grasp.
+ - The New Year is the season in which custom seems more particularly to authorize civil and harmless lies, under the name of compliments. People reciprocally profess wishes which they seldom form and concern which they seldom feel.
+ - Little vicious minds abound with anger and revenge and are incapable of feeling te pleasure of forgiving their enemies.
+ - Our prejudices are our mistresses; reason is at best our wife, very often heard indeed, but seldom minded.
+ - There are some occasions when a man must tell half his secret, in order to conceal the rest.
+ - People will, in a great degree, and not without reason, form their opinion of you upon that which they have of your friends; and there is a Spanish proverb which says vry justly, ‘Tell me whom you live with, and I will tell you who you are.’
+ - He makes people pleased with him by making them first pleased with themselves.
+ - Never seem wiser, nor more learned, than the people you are with. Wear your learning, like your watch, in a private pocket: and do not merely pull it out and strike it; merely to show that you have one.
+ - I look upon indolence as a sort of suicide.
+ - The greatest dangers have their allurements, if the want of success is likely to be attended with a degree of glory. Middling dangers are horrid, when the loss of reputation is the inevitable consequence of ill success.
+ - People will no more advance their civility to a bear, than their money to a bankrupt.
+ - Choose your pleasures for yourself, and do not let them be imposed upon you.
+ - Every man is to be had one way or another and every woman almost anyway.
+ - Women are much more like each other than men: they have, in truth, but two passions, vanity and love; these are their universal characteristics.
+ - An able man shows his spirit by gentle words and resolute actions.
+ - Since attaining the full use of my reason no one has ever heard me laugh.
+ - Everything is worth seeing once, and the more one sees the less one either wonders or admires.
+ - A man’s fortune is frequently decided by his first address. If pleasing, others at once conclude he has merit; but if ungraceful, they decide against him.
+ - Women, then, are only children of a larger growth.
+ - Wit is so shining a quality that everybody admires it; most people aim at it, all people fear it, and few love it unless in themselves. A man must have a good share of wit himself to endure a great share of it in another.
+ - Men are much more unwilling to have their weaknesses and their imperfections known than their crimes.
+ - Spirit is now a very fashionable word: to act with Spirit, to speak with Spirit, means only to act rashly, and to talk indiscreetly. An able man shows his Spirit by gentle words and resolute actions; he is neither hot nor timid.
+
+342 quotes

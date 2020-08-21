@@ -1,0 +1,502 @@
+ - Patience is a key element of success.
+ - Don’t compare yourself with anyone in this world. If you do so, you are insulting yourself.
+ - Life is not fair. Get used to it.
+ - If you are born poor its not your mistake, but if you die poor its your mistake.
+ - To win big, you sometimes have to take big risks.
+ - Measuring programming progress by lines of code is like measuring aircraft building progress by weight.
+ - I choose a lazy person to do a hard job. Because a lazy person will find an easy way to do it.
+ - Most people overestimate what they can do in one year and underestimate what they can do in ten years.
+ - If you can’t make it good, at least make it look good.
+ - Your most unhappy customers are your greatest source of learning.
+ - I never took a day off in my twenties. Not one.
+ - Only through focus can you do world-class things, no matter how capable you are.
+ - Success is a lousy teacher. It seduces smart people into thinking they can’t lose.
+ - Be nice to nerds. Chances are you’ll end up working for one.
+ - As we look ahead into the next century, leaders will be those who empower others.
+ - We all need people who will give us feedback. That’s how we improve.
+ - It’s fine to celebrate success but it is more important to heed the lessons of failure.
+ - If you think your teacher is tough, wait till you get a boss.
+ - People cannot become truly knowledgeable without being excellent readers.
+ - If your business is not on the Internet, then your business will be out of business.
+ - I work hard because I love my work.
+ - We’re changing the world with technology.
+ - A breakthrough in machine learning would be worth ten Microsofts.
+ - Success today requires the agility and drive to constantly rethink, reinvigorate, react, and reinvent.
+ - To be a good professional engineer, always start to study late for exams because it teaches you how to manage time and tackle emergencies.
+ - Software is a great combination between artistry and engineering.
+ - Banking is necessary – banks are not.
+ - I was lucky to be in the right place at the right time. But many others were also in the same place. The difference was that I took action.
+ - Innovation is moving at a scarily fast pace.
+ - I am not topper in my university but all toppers are working in my microsoft company.
+ - Leaders are those who empower others.
+ - Investing in tomorrow’s technology today is more critical than ever...
+ - Customers want high quality at low prices and they want it now.
+ - Automation applied to an inefficient operation will magnify the inefficiency.
+ - We always overestimate the change that will occur in the next two years and underestimate the change that will occur in the next ten. Don’t let yourself be lulled into inaction.
+ - The most meaningful way to differentiate your company from your competition, is to do an outstanding job with information.
+ - If I only had two dollars left I would spend one dollar on PR.
+ - I am not in competition with anyone but myself. My goal is to improve myself continuously.
+ - Bringing together the right information with the right people will dramatically improve a company’s ability to develop and act on strategic business opportunities.
+ - Legacy is a stupid thing! I don’t want a legacy.
+ - Common Core is a big win for education.
+ - Software is the magic thing whose importance only goes up over time.
+ - While we’re all very dependent on technology, it doesn’t always work.
+ - My grade point average went from a 2.2 to a 4.0 over the summer. I wanted to get straight A’s. I decided to get straight A’s. I didn’t want people to think I was dumb. And when you get straight A’s once, its easier.
+ - I believe innovation is the most powerful force for change in the world.
+ - The internet is just a passing fad.
+ - And knowledge management is a means, not an end.
+ - I hope someday what people can do with their lives depends on their talents and how hard they are willing to work, rather than on where they happen to be born.
+ - There is a difference between what technology enables and what historical business practices enable.
+ - The ability of a successful company to add functionality to its product has long been upheld.
+ - There’s nobody getting rich writing software that I know of.
+ - If you believe that every life has equal value, it’s revolting to learn that some lives are seen as worth saving and others are not. We said to ourselves: “This can’t be true. But if it is true, it deserves to be the priority of our giving.”
+ - The future of Windows is to let the computer see, listen and even learn.
+ - If you’re using first-class land for biofuels, then you’re competing with the growing of food. And so you’re actually spiking food prices by moving energy production into agriculture.
+ - Even though I only have a high-school degree, I’m a professional student.
+ - I have seen firsthand that agricultural science has enormous potential to increase the yields of small farmers and lift them out of hunger and poverty.
+ - People everywhere love Windows.
+ - The pace of progress in biology creates a foundation that naturally gets picked up by the biotech and pharmaceutical industry to solve rich-world diseases. This is attractive science. It’s science that people want to work on.
+ - If your culture doesn’t like geeks, you are in real trouble.
+ - Two out of every five people on Earth today owe their lives to the higher crop outputs that fertilizer has made possible.
+ - Innovation is a good thing. The human condition – put aside bioterrorism and a few footnotes – is improving because of innovation.
+ - The inventory, the value of my company, walks out the door every evening.
+ - When I was in college, for the games of that era, I was as hard core as anyone was. I wouldn’t say I outgrew it, but you always have to have a finite number of addictions.
+ - We are not even close to finishing the basic dream of what the PC can be.
+ - If you take from the most wealthy and give to the least wealthy, it’s good. It starts to balance out.
+ - Depending on where you live, cooking, sex and pooping are either 3 of life’s pleasures or what kills you.
+ - We’re at the point now where the challenge isn’t how to communicate effectively with e-mail; it’s ensuring that you spend your time on the e-mail that matters most.
+ - 3D is a way of organizing things, particularly as we’re getting much more media information on the computer, a lot more choices, a lot more navigation than we’ve ever had before.
+ - When you want to do your homework, fill out your tax return, or see all the choices for a trip you want to take, you need a full-size screen.
+ - I don’t generally read a lot of fiction.
+ - Philanthropy is fun and fulfilling.
+ - Headlines, in a way, are what mislead you because bad news is a headline, and gradual improvement is not.
+ - A first-generation fortune is the most likely to be given away, but once a fortune is inherited it’s less likely that a very high percentage will go back to society.
+ - I definitely think leaving kids massive amounts of money is not a favor to them.
+ - I think any statement about stock prices is always suspect unless it’s made by Warren Buffett.
+ - There is a certain responsibility that accrued to me when I got to this unexpected position.
+ - Drones overall will be more impactful than I think people recognize, in positive ways to help society.
+ - Vaccination is one of the easiest things on the way to development. It’s much easier than roads and a great education system. It’s very basic. It’s one of the first things you want to get right.
+ - I’m not somebody who goes to church on a regular basis. The specific elements of Christianity are not something I’m a huge believer in.
+ - If you are low income in the United States, you have a higher chance of going to jail than getting a 4-year degree.
+ - I have a particular relationship with Vinod Khosla because he’s got a lot of very interesting science-based energy startups.
+ - The power of capitalism to mediate the gap between rich and poor is pretty incredible. Indeed, I think, year by year, the gap gets less.
+ - I don’t think you’re as capable of handling lack of sleep or whatever challenges you throw at your body as you get older. However, I never missed a day of work.
+ - There are more people dying of malaria than any specific cancer.
+ - Stolen’s a strong word. It’s copyrighted content that the owner wasn’t paid for.
+ - In order for the United States to do the right things for the long term, it appears to be helpful for us to have the prospect of humiliation. Sputnik helped us fund good science – really good science: the semiconductor came out of it.
+ - The Ebola epidemic can serve as an early warning wake-up call to get ready. If we start now, we can be ready for the next epidemic.
+ - Just in terms of allocation of time resources, religion is not very efficient. There’s a lot more I could be doing on a Sunday morning.
+ - According to Ethiopian custom, parents wait to name a baby because children often die in the first weeks of life.
+ - As for drugs – well, Gates was certainly not unusual there. Marijuana was the pharmaceutical of choice...
+ - I get more spam than anyone I know.
+ - I have been struck again and again by how important measurement is to improving the human condition.
+ - Climate change is a terrible problem, and it absolutely needs to be solved. It deserves to be a huge priority.
+ - Two years from now, spam will be solved.
+ - Nobody spends any money on smallpox unless they worry about a bio-terrorist recreating it.
+ - No one person controls Microsoft. The board and the shareholders decide whether they want to have me as CEO.
+ - Certain teams are more careful in what they write. They generate less bugs. You can know that but it still doesn’t mean there might be there might not be one bug that would be bad to ship the product with.
+ - It is really gratifying, for example, to visit India now and see that because they’ve had good educational institutions, and they’ve had a focus on it, there are more and more people in India participating in the world economy.
+ - The first rule of any technology used in a business is that automation applied to an efficient operation will magnify the efficiency. The second is that automation applied to an inefficient operation will magnify the inefficiency.
+ - The only definition by which Americas best days are behind it is on a purely relative basis.
+ - K to 12 is partly about babysitting the kids so the parents can do other things.
+ - If i will start all over again I would chose network marketing.
+ - Vision without execution is daydreaming.
+ - Students deserve great teachers. And teachers deserve the support they need to become great.
+ - Our success has really been based on partnerships from the very beginning.
+ - I am results-oriented.
+ - Like a human being, a company has to have an internal communication mechanism, a “nervous system”, to coordinate its actions.
+ - Creativity allows people to be effective.
+ - The Internet is becoming the town square for the global village of tomorrow.
+ - The fight against AIDS in China is already well underway. The Chinese government and other funders are providing major support, and they’ll continue to bear primary responsibility for delivering prevention and treatment.
+ - The first five years have so much to do with how the next 80 turn out.
+ - Well private money can take risks in a way that government money often isn’t willing to.
+ - If I was down to the last dollar of my marketing budget I’d spend it on PR!
+ - Microsoft was founded with a vision of a computer on every desk, and in every home. We’ve never wavered from that vision.
+ - Technology is just a tool. In terms of getting the kids working together and motivating them, the teacher is the most important.
+ - Treatment without prevention is simply unsustainable.
+ - It is my belief that industry and government around the world should work even more closely to protect the privacy and security of Internet users, and promote the exchange of ideas, while respecting legitimate government considerations.
+ - Convert bad news to good news.
+ - How you gather, manage and use information will determine whether you win or lose.
+ - Never before in history has innovation offered promise of so much to so many in so short a time.
+ - Don’t tax my income, tax my consumption.
+ - I don’t have a magic formula for prioritizing the world’s problems.
+ - If you want to build a great company, get the hell out of Silicon Valley.
+ - Customer service will become the primary value added function of every business.
+ - Bitcoin is a technological tour de force.
+ - Information technology and business are becoming inextricably interwoven. I don’t think anybody can talk meaningfully about one without the talking about the other.
+ - The world needs banking but it does not need banks.
+ - Long-term vision and product strategy.
+ - Humanity’s greatest advances are not in its discoveries but in how those discoveries are applied to reduce inequity.
+ - No one will need more than 637Kb of memory for a personal computer.
+ - The world won’t care about your self-esteem. The world will expect you to accomplish something BEFORE you feel good about yourself.
+ - Discrimination has a lot of layers that make it tough for minorities to get a leg up.
+ - Embrace bad news to learn where you need the most improvement.
+ - Corruption is one of the most common reasons I hear in views that criticize aid.
+ - The advance of technology is based on making it fit in so that you don’t really even notice it, so it’s part of everyday life.
+ - Computers and games don’t waste time – people do.
+ - The future of advertising is the Internet.
+ - Every day were saying, ‘How can we keep this customer happy?’ How can we get ahead in innovation by doing this, because if we don’t, somebody else will.
+ - If you give people tools, and they use their natural abilities and their curiosity, they will develop things in ways that will surprise you very much beyond what you might have expected.
+ - A bad strategy will fail no matter how good your information is and lame execution will stymie a good strategy. If you do enough things poorly, you will go out of business.
+ - The human body is the most complex system ever created. The more we learn about it, the more appreciation we have about what a rich system it is.
+ - Don’t let yourself be lulled into inaction.
+ - I believe in innovation and that the way you get innovation is you fund research and you learn the basic facts.
+ - Software is more important than hardware.
+ - Software innovation, like almost every other kind of innovation, requires the ability to collaborate and share ideas with other people, and to sit down and talk with customers and get their feedback and understand their needs.
+ - The computer was born to solve problems that did not exist before.
+ - I believe that every life is valuable. That we can make things better. That innovation is the key to a bright future. That we’re just getting started.
+ - DNA is like a computer program but far, far more advanced than any software ever created.
+ - Africa is on the rise.
+ - Flipping burgers is not beneath your dignity. Your Grandparents had a different word for burger flipping – they called it opportunity.
+ - I believe that with great wealth comes great responsibility, a responsibility to give back to society and a responsibility to see that those resources are put to work in the best possible way to help those most in need.
+ - Since when has the world of computer software design been about what people want? This is a simple question of evolution. The day is quickly coming when every knee will bow down to a silicon fist, and you will all beg your binary gods for mercy.
+ - Intellectual property has the shelf life of a banana.
+ - The key for us, number one, has always been hiring very smart people.
+ - It’s been proven that of all the interventions to reduce poverty, improving agricultural productivity is the best.
+ - A company’s ability to respond to an unplanned event, good or bad is a prime indicator of its ability to compete.
+ - I never took a day off in my twenties. Not one. And I’m still fanatical, but now I’m a little less fanatical.
+ - Bridge is the king of all card games.
+ - Even for the very best programmers ah, sometimes you’ll see someone else’s program or somebody will come along and they’ll show you what can be done in a simpler way.
+ - Learning to write programs stretches your mind, and helps you think better, creates a way of thinking about things that I think is helpful in all domains.
+ - Your school may have done away with winners and losers, but life has not.
+ - Life is a lot more fun if you treat its challenges in creative ways.
+ - Certainly there’s a phenomenon around open source. You know free software will be a vibrant area. There will be a lot of neat things that get done there.
+ - We need to start thinking about the Future of Food if we are going to feed 9 billion people in a way that does not destroy our environment.
+ - The barrier to change is not too little caring; it is too much complexity. To turn caring into action, we need to see a problem, see a solution, and see the impact. But complexity blocks all three steps.
+ - Who in their right mind would ever need more than 640k of ram!?
+ - My success, part of it certainly, is that I have focused in on a few things.
+ - I’m an investor in a number of biotech companies, partly because of my incredible enthusiasm for the great innovations they will bring.
+ - An important re-engineering principle is that companies should focus on their core competence and outsource everything else.
+ - The barrier to change is not too little caring; it is too much complexity.
+ - Reward worthy failure – Experimentation.
+ - Software is a great combination between artistry and engineering. When you finally get done and get to appreciate what you have done it is like a part of yourself that you’ve put together. I think a lot of the people here feel that way.
+ - I spend a lot of time reading.
+ - We’re all responsible for creating a polio-free world while we still can.
+ - I believe that if you show people the problems and you show them the solutions they will be moved to act.
+ - People always fear change. People feared electricity when it was invented, didn’t they?
+ - What I do best is share my enthusiasm.
+ - There will be two types of businesses in the next 5 years, those that are on the Internet, and those that are out of business.
+ - The Wright Brothers created the single greatest cultural force since the invention of writing. The airplane became the first World Wide Web, bringing people, languages, ideas, and values together.
+ - Look At The Clock When You Are Sitting idle. But Never Look At The Clock When You Are Working.
+ - Everything on the internet is real god damn it!
+ - I can understand wanting to have a million dollars but once you get beyond that, I have to tell you, it’s the same hamburger.
+ - Windows 95 was a nice milestone.
+ - Everyone needs a coach. It doesn’t matter whether you’re a basketball player, a tennis player, a gymnast or a bridge player.
+ - It’s really kind of cool to have solar panels on your roof.
+ - Learning from mistakes and constantly improving products is a key in all successful companies.
+ - Great organizations demand a high level of commitment by the people involved.
+ - Microsoft is a company that manages imagination.
+ - In my 20s, I worked very, very hard. I have a much more balanced life now.
+ - I considered law and math. My Dad was a lawyer. I think though I would have ended up in physics if I didn’t end up in computer science.
+ - Whether I’m at the office, at home, or on the road, I always have a stack of books I’m looking forward to reading.
+ - I’m not a macroeconomics person.
+ - In my parents I saw a model where they were really always communicating, doing things together. They were really kind of a team. I wanted some of that magic myself.
+ - I believe innovation is the most powerful force for change in the world. People who are pessimistic about the future tend to extrapolate from the present in a straight line. But innovation fundamentally shifts the trajectory of development.
+ - You can make money and you can make excuses, but you can never make money out of excuses.
+ - Once you embrace unpleasant news, not as a negative but as evidence of a need for change, you aren’t defeated by it. You’re learning from it.
+ - A fundamental new rule for business is that the Internet changes everything.
+ - You have a meeting to make a decision, not to decide on the question.
+ - Teams should be able to act with the same unity of purpose and focus as a well motivated individual.
+ - The microprocessor is a miracle.
+ - The competition to hire the best will increase in the years ahead. Companies that give extra flexibility to their employees will have the edge in this area.
+ - Setting clear goals and finding measures that will mark progress toward them can improve the human condition.
+ - For Africa to move forward, you’ve really got to get rid of malaria.
+ - Competition is always a fantastic thing, and the computer industry is intensely competitive.
+ - If we have optimism without empathy then it doesn’t matter how much we master the secrets of science. We’re not really solving problems, we’re just working on puzzles.
+ - Connectivity enables transparency for better government, education, and health.
+ - The worst pandemic in modern history was the Spanish flu of 1918, which killed tens of millions of people. Today, with how interconnected the world is, it would spread faster.
+ - Digital technology has several features that can make it much easier for teachers to pay special attention to all their students.
+ - Robots will play an important role in providing physical assistance and even companionship for the elderly.
+ - In my view, investing in public libraries is an investment in the nation’s future.
+ - Exposure from a young age to the realities of the world is a super-big thing.
+ - I have an excellent memory, a most excellent memory.
+ - Whenever there is hard work to be done, I assign it to the laziest man as he is sure to find an easy way of doing it. Be lazy, think crazy.
+ - Giving money effectively is almost as hard as earning it in the first place.
+ - Analytical software enables you to shift human resources from rote data collection to value-added customer service and support where the human touch makes a profound difference.
+ - Effective philanthropy requires a lot of time and creativity – the same kind of focus and skills that building a business requires.
+ - The outside perception and inside perception of Microsoft are so different. The view of Microsoft inside Microsoft is always kind of an underdog thing.
+ - Investing for the poor requires participation from the entire community.
+ - We will never make a 32-bit operating system.
+ - I’ve been waiting more than 30 years to say this: ‘Dad, I always told you I’d come back and get my degree.’ I want to thank Harvard for this honor. I’ll be changing my job next year and it will be nice to finally have a college degree on my resume!
+ - Our vision, which has not changed since the day the company was founded.
+ - Being flooded with information doesn’t mean we have the right information or that we’re in touch with the right people.
+ - The job was to put into a, a computer with only 4K of memory an entire basic full blown, floating point Basic and that’s one of the greatest programming feats I’ve ever had a chance to work on.
+ - I like to read general biology – things about the immune system and advances in that area – because it lays the foundation for my part of the dialogue at the foundation about what things we ought to pursue.
+ - Our teachers deserve better feedback.
+ - When you revolutionize education, you’re taking the very mechanism of how people be smarter and do new things, and you’re priming the pump for so many incredible things.
+ - The CEO’s role in raising a company’s corporate IQ is to establish an atmosphere that promotes knowledge sharing and collaboration.
+ - We make the future sustainable when we invest in the poor, not when we insist on their suffering.
+ - The best teacher is very interactive.
+ - The Gates Foundation has learned that two questions can predict how much kids learn: ‘Does your teacher use class time well?’ and, ‘When you’re confused, does your teacher help you get straightened out?’
+ - We flew down weekly to meet with IBM, but they thought the way to measure software was the amount of code we wrote, when really the better the software, the fewer lines of code.
+ - Anything you do, you better enjoy it for its value. Because people are going to second-guess everything you do.
+ - Don’t let complexity stop you.
+ - By 2035, there will be almost no poor countries left in the world.
+ - Life is not a continuous process, there’s some sort of finite number of achievements that defines your life.
+ - If I’d had some set idea of a finish line, don’t you think I would have crossed it years ago?
+ - I like my job because it involves learning. I like being around smart people who are trying to figure out new things. I like the fact that if people really try they can figure out how to invent things that actually have an impact.
+ - Sometimes, I think my most important job as a CEO is to listen for bad news. If you don’t act on it, your people will eventually stop bringing bad news to your attention and that is the beginning of the end.
+ - In some ways, if you make mistakes with your own money, you don’t feel as bad about it as if it was someone else’s.
+ - It’s the knowledge derived from information that gives you a competitive edge.
+ - In three years, every product my company makes will be obsolete. The only question is whether we will make them obsolete or somebody else will.
+ - I really had a lot of dreams when I was a kid, and I think a great deal of that grew out of the fact that I had a chance to read a lot.
+ - Globalization has made copper and other minerals more valuable, and Ghana and Kenya have recently discovered mineral resources.
+ - The information highway will transform our culture as dramatically as Gutenberg’s press did the Middle Ages.
+ - Capitalism has worked very well. Anyone who wants to move to North Korea is welcome.
+ - I’m cooler than you. WAAAY cooler.
+ - Nuclear energy, in terms of an overall safety record, is better than other energy.
+ - Airplane travel is nature’s way of making you look like your passport photo.
+ - OK, I have a nickname. My family calls me ‘Trey’ because I’m William the third. My dad has the same name, which is always confusing because my dad is well known, and I’m also known.
+ - If empathy channels our optimism, we will see the empathy and the diseases and the poor school. We will answer with our innovations and we will surprise the pessimists.
+ - If you go back to 1800, everybody was poor. I mean everybody. The Industrial Revolution kicked in, and a lot of countries benefited, but by no means everyone.
+ - Television is not real life. In real life people actually have to leave the coffee shop and go to jobs.
+ - The malaria parasite has been killing children and sapping the strength of whole populations for tens of thousands of years. It is impossible to calculate the harm malaria has done to the world.
+ - This antitrust thing will blow over.
+ - With a public library card in your hand, you have access to the Internet and a world of opportunities.
+ - This is a fantastic time to be entering the business world, because business is going to change more in the next 10 years than it has in the last 50.
+ - If you rely too much on the people in other countries and other companies, in a sense that’s your brain and you are outsourcing your brain.
+ - People who say they don’t see the acceleration of innovation is a wilful blindness. We are innovation at a wonderful speed for the basic things we think everyone should get.
+ - For one thing, there’s an essential human factor in every business endeavor. It doesn’t matter if you have a perfect product, production plan and marketing pitch; you’ll still need the right people to lead and implement those plans.
+ - Like my friend Warren Buffett, I feel particularly lucky to do something every day that I love to do. He calls it “tap dancing to work.”
+ - The obvious mathematical breakthrough would be development of an easy way to factor large prime numbers.
+ - You will NOT make $60,000 a year right out of high school. You won’t be a vice-president with a car phone until you earn both.
+ - Often you just have to rely on your intuition.
+ - My dream is that every child has enough food to eat, good medical care, and the chance to go to school and even attend college.
+ - The most important ‘speed’ issue is often not technical but cultural. It’s convincing everyone that the company’s survival depends on everyone moving as fast as possible.
+ - The willingness to hear hard truth is vital not only for CEOs of big corporations but also for anyone who loves the truth. Sometimes the truth sounds like bad news, but it is just what we need.
+ - If you get health, then you have opportunity for literacy. Health first, then literacy. Once you have literacy, then you have a chance to bring in the new tools of communication. Let people reach out and have access to the latest advances.
+ - Training the workforce of tomorrow with today’s high schools is like trying to teach kids about today’s computers on a 50-year-old mainframe.
+ - Eventually you won’t think of ‘the Internet business.’ You’ll think of it more like news, weather, sports, but even that taxonomy isn’t clear.
+ - Polio’s pretty special because once you get an eradication, you no longer have to spend money on it; it’s just there as a gift for the rest of time.
+ - When a country has the skill and self-confidence to take action against its biggest problems, it makes outsiders eager to be a part of it.
+ - I read a lot of obscure books and it is nice to open a book.
+ - Innovations that are guided by smallholder farmers, adapted to local circumstances, and sustainable for the economy and environment will be necessary to ensure food security in the future.
+ - My mom and my dad were both very sociable, meeting lots of interesting people.
+ - I think it’s fair to say that personal computers have become the most empowering tool we’ve ever created. They’re tools of communication, they’re tools of creativity, and they can be shaped by their user.
+ - Microsoft is not about greed. It’s about innovation and fairness.
+ - Unemployment rates among Americans who never went to college are about double that of those who have a postsecondary education.
+ - If Africa seeks prosperity, it must provide for the health and nutrition of all – including the poorest.
+ - There are no significant bugs in our released software that any significant number of users want fixed.
+ - Every new change forces all the companies in an industry to adapt their strategies to that change.
+ - The present and future of knowledge attainment and essential business skills.
+ - Understanding science and pushing the boundaries of science is what makes me immensely satisfied.
+ - We’ll have infinite bandwidth in a decade’s time.
+ - Maintaining a consistent platform also helps improve product support – a significant problem in the software industry.
+ - The truth of Moore’s law has made remarkable things possible. On the software side, I think natural user interfaces in all their forms are equally significant.
+ - Started from the chair hop now we here.
+ - Bridge is one of the last games in which the computer is not better.
+ - Like any well designed software product, Windows is designed, developed and tested as an integrated whole.
+ - Energy innovation is not a nationalistic game.
+ - In terms of doing things I take a fairly scientific approach to why things happen and how they happen. I don’t know if there’s a god or not, but I think religious principles are quite valid.
+ - I did not even finish my studies.
+ - In programming when you’re making a change you have to know all the affected places, and you have to be able to model in your head what the performance impact will be.
+ - I want to admit that I am an optimist. Any tough problem, I think it can be solved.
+ - Philanthropy should be voluntary.
+ - Kenya’s M-Pesa proves that when people are empowered, they will use digital tech to innovate on their own behalf.
+ - The greatest thing you can do for your competition – hire poorly.
+ - Vaccination is pretty special because you can do a vaccination campaign anywhere in the world. All you are doing is gathering women from the villages, getting them the vaccines and asking them to go around and find the children.
+ - Only a few businesses will succeed by having the lowest price, so most will need a strategy that includes customer services.
+ - I find golf very relaxing. It’s a way to get away from work and get outside. It’s a lot of fun, and once you get going it’s almost kind of addictive.
+ - The Green Revolution focused on the big three – maize, rice and wheat – and the Green Revolution did not adapt the big three to African conditions, other than South Africa, as much as they should have.
+ - Given how few young people actually read the newspaper, it’s a good thing they’ll be reading a newspaper on a screen.
+ - Sometimes we do get taken by surprise. For example, when the Internet came along, we had it as a fifth or sixth priority.
+ - The need to communicate effectively with your customers will come up again and again.
+ - Strategically, a major function of the CEO is to look for bad news and encourage the organization to respond to it. Employees must be encouraged to share bad news as much as good news.
+ - We are seeing pioneers moving out to the Internet, banks that are taking transactions, retail shopping on the Internet, and although it’s going to take most of a decade before most adults are turning to the Internet for a high percentage of their act.
+ - At Microsoft there are lots of brilliant ideas but the image is that they all come from the top – I’m afraid that’s not quite right.
+ - We weren’t trying to just go public and get rich. There was no near-term thing. It always was this many-decades thing where there were no shortcuts and we’d sort of put one foot in front of the other.
+ - You can be a business thinker.
+ - Software was the key element that would determine how useable and how broadly applicable the machine was.
+ - The term, information at your fingertips, is to remind people what a broad role the personal computer will be playing. It’s not a computation device, it’s not a word processing or a spreadsheet device. It’s a window onto the world of information.
+ - The Internet? We are not interested in it.
+ - You see, antiquated ideas of kindness and generosity are simply bugs that must be programmed out of our world. And these cold, unfeeling machines show us the way.
+ - Take our 20 best people away, and I will tell you that Microsoft will become an unimportant company.
+ - By improving health, empowering women, population growth comes down.
+ - Microsoft is always two years away from failure.
+ - Don’t let complexity stop you. Be activists. Take on the big inequities. It will be one of the great experiences of your lives.
+ - This is a very exciting time in the world of information. It’s not just that the personal computer has come along as a great tool. The whole pace of business is moving faster. Globalization is forcing companies to do things in new ways.
+ - My wife thinks she’s better than me at puzzles. I haven’t given in on that one yet.
+ - Great organizations demand a high level of commitment by the people involved. Eliminate politics, by giving everybody the same message. Keep a flat organization in which all issues are discussed openly. Empower teams to do their own things.
+ - In a budget, how important is art versus music versus athletics versus computer programming? At the end of the day, some of those trade-offs will be made politically.
+ - In the decade ahead I can predict that we will provide over twice the productivity improvement that we provided in the ’90s.
+ - Unfortunately, the highly curious student is a small percentage of the kids.
+ - We win because we hire the smartest people. We improve our products based on feedback, until they’re the best. We have retreats each year where we think about where the world is heading.
+ - The vision is really about empowering workers, giving them all the.
+ - The vision is really about empowering workers giving them all the information about what’s going on so they can do a lot more than they’ve done in the past.
+ - If you’re asking whether I intentionally mess up my hair, no, I don’t. And certain things, like my freckles, they’re just there. I don’t do anything consciously. I suppose I could get contact lenses. I suppose I could comb my hair more often.
+ - Living on $6 a day means you have a refrigerator, a TV, a cell phone, your children can go to school. That’s not possible on $1 a day.
+ - Expectations are a form of first-class truth: If people believe it, it’s true.
+ - What’s amazing is, if young people understood how doing well in school makes the rest of their life so much interesting, they would be more motivated. It’s so far away in time that they can’t appreciate what it means for their whole life.
+ - If people had understood how patents would be granted when most of today’s ideas were invented, and had taken out patents, the industry would be at a complete standstill today.
+ - Leaders need to provide strategy and direction and to give employees tools that enable them to gather information and insight from around the world. Leaders shouldn’t try to make every decision.
+ - Everyone knows about Black Friday and Cyber Monday. Now help me spread the word about Giving Tuesday!
+ - Be nice to nerds, they’ll probably be your boss one day.
+ - I feel pretty stupid that I don’t know any foreign languages. I wish I knew French or Arabic or Chinese.
+ - By helping us to be more productive, technology lets us to spend less time focusing on survival, and more on solving other challenges.
+ - When Paul Allen and I started Microsoft over 30 years ago, we had big dreams about software. We had dreams about the impact it could have.
+ - Security guys break the Mac every single day. Every single day, they come out with a total exploit; your machine can be taken over totally.
+ - I’m certainly well taken care of in terms of food and clothes.
+ - Inspiration starts somewhere.
+ - If geek means you’re willing to study things, and if you think science and engineering matter, I plead guilty. If your culture doesn’t like geeks, you are in real trouble.
+ - I can understand wanting to have millions of dollars; there’s a certain freedom, meaningful freedom, that comes with that.
+ - This social-networking thing takes you to crazy places.
+ - I’m a great believer that any tool that enhances communication has profound effects in terms of how people can learn from each other, and how they can achieve the kind of freedoms that they’re interested in.
+ - Rules broken today become norms tomorrow.
+ - In terms of fast food and deep understanding of the culture of fast food, I’m your man.
+ - The vision is that people should have the ultimate in convenience. Being able to get the things they care about on the appropriate device.
+ - I keep bumping into that silly quotation attributed to me that says 640K of memory is enough. There’s never a citation; the quotation just floats like a rumor, repeated again and again.
+ - I didn’t completed my University Education.
+ - Americans want students to get the best education possible. We want schools to prepare children to become good citizens and members of a prosperous American economy.
+ - I realized about 10 years ago that my wealth has to go back to society. A fortune, the size of which is hard to imagine, is best not passed on to one’s children. It’s not constructive for them.
+ - In the long run, your human capital is your main base of competition. Your leading indicator of where you’re going to be 20 years from now is how well you’re doing in your education system.
+ - There’s no magic line between an application and an operating system that some bureaucrat in Washington should draw.
+ - The intersection of law, politics, and technology is going to force a lot of good thinking.
+ - I think the positive competition between states in India is one of the most positive dynamics that the country has.
+ - The world is progressing and resources are becoming more abundant. I’d rather go into a grocery store today than a king’s banquet a hundred years ago.
+ - The Internet will help achieve “friction free capitalism” by putting buyer and seller in direct contact and providing more information to both about each other.
+ - The more you learn, the more you have a framework that the knowledge fits into.
+ - If you count E-mail, I’m on the Internet all day, every day.
+ - I see little commercial potential for the Internet for at least ten years.
+ - Money has no utility to me beyond a certain point.
+ - Some people, through luck and skill, end up with a lot of assets. If you’re good at kicking a ball, writing software, investing in stocks, it pays extremely well.
+ - My parents are very successful, and I went to the nicest private school in the Seattle area. I was lucky. But I never had any trust funds of any kind, though my dad did pay my tuition at Harvard, which was quite expensive.
+ - Hey, size works against excellence.
+ - Who can afford to do professional work for nothing? What hobbyist can put three man-years into programming, finding all bugs, documenting his product, and distributing it for free?
+ - In inner-city, low-income communities of color, there’s such a high correlation in terms of educational quality and success.
+ - Paul and I, we never thought that we would make much money out of the thing. We just loved writing software.
+ - The ‘Billionaire’ song is what my kids tease me with. They sing it to me. It’s funny.
+ - Teaching’s hard! You need different skills: positive reinforcement, keeping students from getting bored, commanding their attention in a certain way.
+ - If the 1980s were about quality and the 1990s were about reengineering, then the 2000s will be about velocity.
+ - I know there’s a farmer out there somewhere who never wants a PC and that’s fine with me.
+ - On my desk I have three screens, synchronized to form a single desktop. I can drag items from one screen to the next. Once you have that large display area, you’ll never go back, because it has a direct impact on productivity.
+ - Test scores aren’t perfect, but having a test score for math or reading or other things that we can objectively measure is a meaningful component that makes a lot of sense.
+ - Let’s face it, the average computer user has the brain of a Spider Monkey.
+ - The belief that the world is getting worse, that we can’t solve extreme poverty and disease, isn’t just mistaken. It is harmful.
+ - The most interesting biofuel efforts avoid using land that’s expensive and has high opportunity costs. They do this by getting onto other types of land, or taking advantage of byproducts that aren’t used in the food chain today, or by intercropping.
+ - The people who resist change will be confronted by the growing number of people who see that better ways are available; thanks to technology.
+ - Today, you always know whether you are on the Internet or on your PC’s hard drive. Tomorrow, you will not care and may not even know.
+ - In this business, by the time you realize you’re in trouble, it’s too late to save yourself. Unless you’re running scared all the time, you’re gone.
+ - Really advanced civilization is based on advances in energy.
+ - Now everyone takes it for granted that you can look up movie reviews, track locations, and order stuff online. I wish there was a way we could take it away from people for a day so they could remember what it was like without it.
+ - Being maniacal about something is very helpful.
+ - In low-income countries, the main problems you have is infectious diseases.
+ - I went to a public school through sixth grade, and being good at tests wasn’t cool.
+ - For a highly motivated learner, it’s not like knowledge is secret and somehow the Internet made it not secret. It just made knowledge easy to find. If you’re a motivated enough learner, books are pretty good.
+ - The key thing you can do to reduce population growth is actually improve health.
+ - Why do people benefit in inverse proportion to their need? Well, market incentives make that happen.
+ - It’s easier for our software to compete with Linux when there’s piracy than when there’s not.
+ - Technology is unlocking the innate compassion we have for our fellow human beings.
+ - Should surveillance be usable for petty crimes like jaywalking or minor drug possession? Or is there a higher threshold for certain information? Those aren’t easy questions.
+ - Well-spent aid money is saving lives for a few thousand dollars per life saved.
+ - The impact of improving health is that the population growth goes down, and so you can educate more kids, feed more kids.
+ - I believe it’s not only possible to eradicate malaria; I believe it’s necessary. Ultimately, the cost of controlling it endlessly is not sustainable. The only way to stop this disease is to end it forever.
+ - Whether you believe it a moral imperative or in the rich world’s enlightened self-interest, securing the conditions that will lead to a healthy, prosperous future for everyone is a goal I believe we all share.
+ - We all have the chance to create a world where extreme poverty is the exception rather than the rule.
+ - Microsoft has had clear competitors in the past. It’s a good thing we have museums to document that.
+ - India has over 20 percent of the kids born in the world. And they move around a lot.
+ - You’ve got to give great tools to small teams. Pick good people, use small teams and give them great tools so that they are very productive in terms of what they are doing.
+ - A great lathe operator commands several times the wage of an average lathe operator, but a great writer of software code is worth 10,000 times the price of an average software writer.
+ - I don’t like typing messages on my phone. Some people get used to it.
+ - I am not a huge gamer. My son knows a LOT more than I do about what is cool on Xbox. I played Halo but the sports games that the whole family can use are the things I use the most. I threw the javelin very very far!
+ - If you’re a person struggling to eat and stay healthy you might have heard about Michael Jordan or Muhammad Ali, but you’ll never have heard of Bill Gates.
+ - Success is a miserable teacher. It tempts intelligent people to believe they cannot lose. And it is an unreliable guide to the future...
+ - In American math classes, we teach a lot of concepts poorly over many years. In the Asian systems they teach you very few concepts very well over a few years.
+ - When I walk into a grocery store and look at all the products you can choose, I say, “My God!” No king ever had anything like I have in my grocery store today.
+ - The poor can’t wait. Philanthropists needed to carry on being generous.
+ - WWW? Nice toy, but what a waste of time.
+ - The kids are a big part of my schedule.
+ - Driving up the value of the advertising is a big commitment for Microsoft.
+ - Innovation is often the hidden thing, because we can’t put numbers to it. And yet it’s the thing that defines the way we live, the things we’d like to have for everyone whether it’s health or education.
+ - I’ve always been interested in science – one of my favourite books is James Watson’s ‘Molecular Biology of the Gene.’
+ - You know capitalism is this wonderful thing that motivates people, it causes wonderful inventions to be done. But in this area of diseases of the world at large, it’s really let us down.
+ - The information society should serve all of its citizens, not only the technically sophisticated and economically privileged.
+ - If you withdraw the incredible focus on polio, it will spread back, and in poor countries you’ll get something like 100,000 cases a year. So by being very intense and getting the cases down to zero, what you do is you avoid all the future cases.
+ - People should just buy a CD and rip it. You are legal then.
+ - Employers have decided that having the breadth of knowledge that’s associated with a four-year degree is often something they want to see in the people they give that job to.
+ - We certainly see opportunities in Vietnam for talented people to have jobs in the IT sector, including the improvement of the efficiency of the economy and the government.
+ - I love building the products, seeing people use the products but you know along with success comes the need for a dialogue with the government.
+ - You need to understand things in order to invent beyond them.
+ - The leader needs to create an environment in which people can analyze the situation and develop a good response.
+ - My guideline has always been to avoid a focus on me personally. Not because of any deep, dark secrets. Rather just a sense of privacy.
+ - I meet people overseas that know five languages – that the only language I’m comfortable in is English.
+ - Well, no one gives aid to Zimbabwe through the Mugabe government.
+ - Digital reading will completely take over. It’s lightweight and it’s fantastic for sharing. Over time it will take over.
+ - I mean, if we said right now, there’s somebody in the next room who’s dying, let’s all go save their life, you know, everybody would just get up immediately and go get involved in that.
+ - Business isn’t that complicated. I wouldn’t want to put it on my business card.
+ - Success is a lousy teacher.
+ - The great thing about a computer notebook is that no matter how much you stuff into it, it doesn’t get bigger or heavier.
+ - Even with cameras being very cheap, one thing that researchers noticed was that you look really bad in a videoconference image because the lighting is bad and you get shadows and things.
+ - Haiti should remind us all that there is an immediate need to invest in and promote long-term development projects that are sustainable, scalable, and proven to work.
+ - It’s an experiment, and it’s probably good to have a couple states try it out to see before you make that national policy.
+ - There are websites that any government wants to block. The truth about the Internet is that it’s extremely hard to block anything – extremely hard. You’ll never get perfect blocking.
+ - The only big companies that succeed will be those that obsolete their own products before somebody else does.
+ - We should all grow our own food and do our own waste processing, we really should.
+ - Middle-income countries are the biggest users of GMOs. Places like Brazil.
+ - I don’t think there is any philosophy that suggests having polio is a good thing.
+ - Almost every way we make electricity today, except for the emerging renewables and nuclear, puts out CO2. And so, what we’re going to have to do at a global scale, is create a new system. And so, we need energy miracles.
+ - There’s life and death in every email.
+ - I don’t think there’s anything unique about human intelligence.
+ - It’s the poorer people in tropical zones who will get really hit by climate change – as well as some ecosystems, which nobody wants to see disappear.
+ - Whether it’s Google or Apple or free software, we’ve got some fantastic competitors and it keeps us on our toes.
+ - A lot of people assume that creating software is purely a solitary activity where you sit in an office with the door closed all day and write lots of code.
+ - I’ve said some stupid things and some wrong things, but not that. No one involved in computers would ever say that a certain amount of memory is enough for all time.
+ - Microsoft has long hired based on IQ and “intellectual bandwidth.”
+ - If something is expensive to develop, and somebody’s not going to get paid, it won’t get developed. So you decide: Do you want software to be written, or not?
+ - The answer is simple, and harsh. The market did not reward saving the lives of these children, and governments did not subsidize it. So the children died because their mothers and their fathers had no power in the market and no voice in the system.
+ - I think that our progress on key diseases over the next several decades is going to be pretty amazing and so I am very interested in that.
+ - Of all the statistics in health, death is the easiest, because you can go out and ask people, “Hey, have you had any children who died, did your siblings have any children who died?” People don’t forget that.
+ - Eventually we’ll be able to sequence the human genome and replicate how nature did intelligence in a carbon-based system.
+ - Microsoft Products are Generally Bug Free.
+ - Harnessing steam power required many innovations, as William Rosen chronicles in the book ‘The Most Powerful Idea in the World.’
+ - As I look forward, I’m very optimistic about the things I see ahead.
+ - People are going to buy cheap fertilizer so they can grow enough crops to feed themselves, which will be increasingly difficult with climate change.
+ - Netscape was able to get the government working on its behalf.
+ - Kids are taking PCs and the Internet to new heights. They’re the ones that are designing the cutting-edge web sites.
+ - If you’re too focused on your current business, it’s hard to change and concentrate on innovating.
+ - My mom was on the United Way group that decides how to allocate the money and looks at all the different charities and makes the very hard decisions about where that pool of funds is going to go.
+ - I think when smallpox was eliminated, the whole world got pretty excited about that because it’s just such a dramatic success.
+ - Newspaper readership is still growing in India.
+ - Don’t wallow in failure. Instead, learn from it.
+ - If you believe that all men are created equal, then a child’s death in some other country is no less tragic than in the United States.
+ - Until we’re educating every kid in a fantastic way, until every inner city is cleaned up, there is no shortage of things to do.
+ - Nigeria has moved into low-middle-income, but their north is very poor, and the health care systems there have broken down.
+ - I do think this next century, hopefully, will be about a more global view. Where you don’t just think, ‘Yes, my country is doing well,’ but you think about the world at large.
+ - If success corrupts, I’m probably pretty corrupted by now.
+ - Finding information is either a software question or a question of how much information is online.
+ - No more misquoted forms, lost invoices, redundant entries, missing checks, or delays caused by incomplete paperwork.
+ - It’s hard to improve public education – that’s clear.
+ - Microsoft’s philosophy is to ‘do things better.’ And Vista has given us lots of opportunity to do that.
+ - The tool that’s most associated with the recent progress against malaria is the long-lasting bed net. Bed nets are a fantastic innovation. But we can do even better. We can invent new ways to control the mosquitoes that carry the malaria parasite.
+ - The most amazing philanthropists are people who are actually making a significant sacrifice.
+ - We need a malaria epidemic in the blogging community! Either that or we need people who have seen the malaria epidemic to start blogging.
+ - We are in the throes of a transition where every publication has to think of their digital strategy.
+ - I regret being the richest man in the world because that position attracts undeserved publicity.
+ - My son likes to go see mines and electric plants, or the Large Hadron Collider, and we’ve had a chance to see a lot of interesting stuff.
+ - I’m never fully satisfied with any Microsoft product.
+ - Countries which receive aid do graduate. Within a generation, Korea went from being a big recipient to being a big aid donor. China used to get quite a bit of aid; now it’s aid-neutral.
+ - Internet TV and the move to the digital approach is quite revolutionary. TV has historically has been a broadcast medium with everybody picking from a very finite number of channels.
+ - If I think something’s a waste of time or inappropriate I don’t wait to point it out. I say it right away. It’s real time. So you might hear me say ‘That’s the dumbest idea I have ever heard’ many times during a meeting.
+ - Does the universe exist only for me? It’s possible. If so, it’s sure going well for me, I must admit.
+ - We all sort of do want incentives for creative people to still exist at a certain level. You know, maybe rock stars shouldn’t make as much; who knows? But you want as much creativity to take place in the future as took place in the past.
+ - You don’t have to own a TV network to go out and do a cool show.
+ - If GM had kept up with technology like the computer industry has, we would all be driving $25 cars that got 1,000 MPG.
+ - AIDS itself is subject to incredible stigma.
+ - The moral systems of religion, I think, are super important.
+ - The tablet is not mainstream. Reading off the screen is not mainstream.
+ - Helping convene global stakeholders to establish a set of measurable, actionable and consensus-built goals focused on extreme poverty is invaluable.
+ - The Global Fund is a central player in the progress being achieved on HIV, TB and malaria. It channels resources to help countries fight these diseases. I believe in its impact because I have seen it firsthand.
+ - Apple has always leveraged technologies that the PC industry has driven to critical mass – the bus structures, the graphics cards, the peripherals, the connection networks, things like that – so they’re kind of in the PC ecosystem and kind of not.
+ - In 80% of the world, energy will be bought where it is economic. You have to help the rest of the world get energy at a reasonable price.
+ - This whole phenomenon of the computer in a library is an amazing thing.
+ - Windows 2000 already contains features such as the human discipline component, where the PC can send an electric shock through the keyboard if the human does something that does not please Windows.
+ - Who decides what’s in Windows? The customers who buy it.
+ - Programs today get very fat; the enhancements tend to slow the programs down because people put in special checks. When they want to add some feature, they’ll just stick in these checks without thinking how they might slow the thing down.
+ - If African farmers can use improved seeds and better practices to grow more crops and get them to market, then millions of families can earn themselves a better living and a better life.
+ - A company needs to have good business reflexes, to be able to marshal its forces in a crisis or in response to any unplanned event.
+ - I have a company that is not Microsoft, called Corbis. Corbis is the operation that merged with Bettman Archives. It has nothing to do with Microsoft. It was intentionally done outside of Microsoft because Microsoft isn’t interested.
+ - When we face a choice between adding features and resolving security issues, we need to choose security.
+ - I went public too soon. Stay private as long as you can.
+ - When you have the medical advances you think will they be available to everyone. Will they not just be for the rich world or even just the rich people and the rich world? Will they be for the world at large?
+ - The huge turnout for Live 8 here and around the world proves that thanks to the leadership from people like Tony Blair and Gordon Brown the world is beginning to demand more action on global health and poverty.
+
+500 quotes

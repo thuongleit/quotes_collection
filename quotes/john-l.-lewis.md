@@ -1,0 +1,22 @@
+ - If there is to be peace in our industrial life let the employer recognize his obligation to his employees – at least to the degree set forth in existing statutes.
+ - Courage is not how a man stands or falls, but how he gets back up again.
+ - Increased interest and participation by labor in the affairs of government should make for economic and political stability in the future. Labor has a constitutional and statutory right to participate.
+ - Who gets the bird, the hunter or the dog.
+ - Let the workers organize. Let the toilers assemble. Let their crystallized voice proclaim their injustices and demand their privileges. Let all thoughtful citizens sustain them, for the future of Labor is the future of America.
+ - No tin-hat brigade of goose-stepping vigilantes or bibble-babbling mob of blackguarding and corporation paid scoundrels will prevent the onward march of labor, or divert its purpose to play its natural and rational part in the development of the economic, political and social life of our nation.
+ - In the steel industry the corporations generally have accepted collective bargaining and negotiated wage agreements with the Committee for Industrial Organization.
+ - Unionization, as opposed to communism, presupposes the relation of employment; it is based upon the wage system and it recognizes fully and unreservedly the institution of private property and the right to investment profit.
+ - Workers have kept faith in American institutions. Most of the conflicts, which have occurred have been when labor’s right to live has been challenged and denied.
+ - The organized workers of America, free in their industrial life, conscious partners in production, secure in their homes and enjoying a decent standard of living, will prove the finest bulwark against the intrusion of alien doctrines of government.
+ - The union miner cannot agree to the acceptance of a wage principle which will permit his annual earnings and his living standards to be determined by the hungriest unfortunates whom the non-union operators can employ.
+ - Labor was marching toward the goal of industrial democracy and contributing constructively toward a more rational arrangement of our domestic economy.
+ - Out of the agony and travail of economic America the Committee for Industrial Organization was born.
+ - The labor movement is organized upon a principle that the strong shall help the weak.
+ - This is true only because the purposes and objectives of the Committee for Industrial Organization find economic, social, political and moral justification in the hearts of the millions who are its members and the millions more who support it.
+ - The balancing of the budget will not in itself place a teaspoonful of milk in a hungry baby’s stomach, or remove the rags from its mother’s back.
+ - The men in the steel industry who sacrificed their all were nor merely aiding their fellows at home but were adding strength to the cause of their comrades in all industry.
+ - The organization and constant onward sweep of this movement exemplifies the resentment of the many toward the selfishness, greed and the neglect of the few.
+ - The real breeders of discontent and alien doctrines of government and philosophies subversive of good citizenship are such as these who take the law into their own hands.
+ - The workers of the nation were tired of waiting for corporate industry to right their economic wrongs, to alleviate their social agony and to grant them their political rights. Despairing of fair treatment, they resolved to do something for themselves.
+
+20 quotes

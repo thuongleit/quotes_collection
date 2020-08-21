@@ -1,0 +1,42 @@
+ - Most people fail, not because of lack of desire, but, because of lack of commitment. ~~Vince Lombardi
+ - Nothing is impossible to the person who backs DESIRE with enduring FAITH. ~~Napoleon Hill
+ - Dreams come true when desire transforms into concrete actions. ~~Napoleon Hill
+ - Happiness is your nature. It is not wrong to desire it. What is wrong is seeking it outside when it is inside. ~~Ramana Maharshi
+ - Willpower and desire, when properly combined, make an irresistible pair. ~~Napoleon Hill
+ - We are told that talent creates opportunity, yet it is desire that creates talent. ~~Bruce Lee
+ - True learning takes energy, passion and a burning desire. ~~Robert T. Kiyosaki
+ - Desires make slaves out of kings and patience makes kings out of slaves. ~~Al-Ghazali
+ - God’s wealth circulates in my life, it flows to me in avalanches of abundance. All my needs, desires and goals are met instantaneously, for I am one with God and he is everything! ~~Tony Robbins
+ - It is in your power to withdraw yourself whenever you desire. Perfect tranquility within consists in the good ordering of the mind, the realm of your own. ~~Marcus Aurelius
+ - I have spent all my life resisting the desire to end it. ~~Franz Kafka
+ - The desire to know your own soul will end all other desires. ~~Rumi
+ - All your anxiety is because of your desire for harmony. Seek disharmony, then you will gain peace. ~~Rumi
+ - Every sale has five basic obstacles: no need, no money, no hurry, no desire, no trust. ~~Zig Ziglar
+ - If something burns your soul with purpose and desire, it’s your duty to be reduced to ashes by it. Any other form of existence will be yet another dull book in the library of life. ~~Charles Bukowski
+ - Create a definite plan for carrying out your desire and begin at once, whether you ready or not, to put this plan into action. ~~Napoleon Hill
+ - Capture the feeling associated with your realized wish by assuming the feeling that would be yours were you already in possession of the thing you desire, and your wish will objectify itself. ~~Neville Goddard
+ - Body. Soul. Mind. Sensations: the body. Desires: the soul. Reasoning: the mind. ~~Marcus Aurelius
+ - Wonder implies the desire to learn. ~~Aristotle
+ - The desire that guides me in all I do is the desire to harness the forces of nature to the service of mankind. ~~Nikola Tesla
+ - I once had a thousand desires. But in my one desire to know you, all else melted away. ~~Rumi
+ - Within you is the divine capacity to manifest and attract all you desire. ~~Wayne W. Dyer
+ - My definition of financial freedom is simple: it is the ability to live the lifestyle you desire without having to work or rely on anyone else for money. ~~T. Harv Eker
+ - Mastery is not a question of genetics of luck, but of following your natural inclinations and the deep desires that stirs you from within. ~~Robert Greene
+ - There cannot be self-restraint in the absence of desire: when there is no adversary, what avails thy courage? Hark, do not castrate thyself, do not become a monk: chastity depends on the existence of lust. ~~Rumi
+ - I have a deeply hidden and inarticulate desire for something beyond the daily life. ~~Virginia Woolf
+ - There is nothing that belief plus a burning desire cannot make real. ~~Napoleon Hill
+ - Life is found in the dance between your deepest desire and your greatest fear. ~~Tony Robbins
+ - By perseverance, study, and eternal desire, any man can become great. ~~George S. Patton Jr.
+ - Learn to distinguish what you can and can’t control. Within our control are our own opinions, aspirations, desires and the things that repel us. They are directly subject to our influence. ~~Epictetus
+ - I need nothing. I seek nothing. I desire nothing. ~~Milarepa
+ - When our deepest desire is not the things of God, or a favor from God, but God Himself, we cross a threshold. ~~Max Lucado
+ - The desire to win is born in most of us. The will to win is a matter of training. The manner of winning is a matter of honour. ~~Margaret Thatcher
+ - If you are influenced by the opinions of others, you will have no DESIRE of your own. ~~Napoleon Hill
+ - Desire backed by faith knows no such word as impossible. ~~Napoleon Hill
+ - Deliberately seek the company of people who influence you to think and act on building the life you desire. ~~Napoleon Hill
+ - I’m the last person who has any desire to instruct anybody in shame. That’s no errand for me. ~~Jock Sturges
+ - O Divine Providence, I ask not for more riches but more wisdom with which to make wiser use of the riches you gave me at birth, consisting in the power to control and direct my own mind to whatever ends I might desire. ~~Napoleon Hill
+ - Human behavior flows from three main sources: desire, emotion, and knowledge. ~~Plato
+ - I have learned to seek my happiness by limiting my desires, rather than in attempting to satisfy them. ~~John Stuart Mill
+
+40 quotes

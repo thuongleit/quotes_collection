@@ -1,0 +1,37 @@
+ - The wise traveler learns not to repeat successes but tries new places all the time.
+ - Exploration belongs to the Renaissance, travel to the bourgeois age, tourism to our proletarian moment.
+ - If we do not redefine manhood, war is inevitable.
+ - The more violent the body contact of the sports you watch, the lower the class.
+ - A more or less accurate measure of class in America is TV size: the bigger your TV, the lower your class.
+ - There is no Apocalypse.
+ - Understanding the past requires pretending that you don’t know the present. It requires feeling its own pressure on your pulses without any ex post facto illumination.
+ - All the pathos and irony of leaving one’s youth behind is thus implicit in every joyous moment of travel: one knows that the first joy can never be recovered, and the wise traveller learns not to repeat successes but tries new places all the time.
+ - Chickenshit can be recognized instantly because it never has anything to do with winning the war.
+ - Most people who seek attention and regard by announcing that they’re writing a novel are actually so devoid of narrative talent that they can’t hold the attention of a dinner table for thirty seconds, even with a dirty joke.
+ - Tourism requires that you see conventional things, and that you see them in a conventional way.
+ - What someone doesn’t want you to publish is journalism; all else is publicity.
+ - Anybody who notices unpleasant facts in the have-a-nice-day world we live in is going to be designated a curmudgeon.
+ - I find nothing more depressing than optimism.
+ - The balls used in top class games are generally smaller than those used in others.
+ - I am working on a book urging the beating to death of baby whales using the dead bodies of baby seals.
+ - Wars damage the civilian society as much as they damage the enemy. Soldiers never get over it.
+ - If truth is the main casualty in war, ambiguity is another.
+ - Irony is the attendant of hope and the fuel of hope is innocence.
+ - Every war is ironic because every war is worse than expected. Every war constitutes an irony of situation because its means are so melodramatically disproportionate to its presumed ends.
+ - Travel sharpens the senses. Abroad one feels, sees and hears things in an abnormal way.
+ - If I didn’t have writing, I’d be running down the street hurling grenades in people’s faces.
+ - Before the development of tourism, travel was conceived to be like study, and it’s fruits were considered to be the adornment of the mind and the formation of the judgment.
+ - Travel at its truest is thus an ironic experience.
+ - The past is not the present: pretending it is corrupts art and thus both rots the mind and shrivels the imagination and conscience.
+ - And the ideal travel writer is consumed not just with a will to know. He is also moved by a powerful will to teach.
+ - The simple is carefully shunned by those who labour to seem what they would be.
+ - Americans are the only people in the world known to me whose status anxiety prompts them to advertise their college and university affiliations in the rear window of their automobiles.
+ - To get home you had to end the war. To end the war was the reason you fought it. The only reason.
+ - Travelers learn not just foreign customs and curious cuisines and unfamiliar beliefs and novel forms of government. They learn, if they are lucky, humility.
+ - The worst thing about war was the sitting around and wondering what you were doing morally.
+ - Things without defense: insects, kittens, small boys.
+ - If the term discussion has always seemed to me to imply mild warnings of wasted time, workshop sets off a clangorous alarm.
+ - Those who fought know a secret about themselves, and it is not very nice.
+ - If the guidebook used to be critical, today it seems largely a celebratory adjunct to the publicity operations of hotels, resorts, and even countries.
+
+35 quotes

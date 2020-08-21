@@ -1,0 +1,39 @@
+ - Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world.
+ - One of the things I learned the hard way was that it doesn’t pay to get discouraged. Keeping busy and making optimism a way of life can restore your faith in yourself.
+ - The secret of staying young is to live honestly, eat slowly, and lie about your age.
+ - Responsibility is the ability to respond.
+ - Now get the hell out of here and go change the world.
+ - If you want something done, ask a busy person to do it. The more things you do, the more you can do.
+ - Love yourself first and everything falls into line.
+ - It’s a helluva start, being able to recognize what makes you happy.
+ - I believe that we’re as happy in life as we make up our minds to be.
+ - It wasn’t love at first sight. It took a full five minutes.
+ - Once in his life, every man is entitled to fall madly in love with a gorgeous redhead.
+ - Luck? Luck is hard work – and realizing what is opportunity and what isn’t.
+ - I would rather regret the things that I have done than the things that I have not.
+ - Luck? I don’t know anything about luck. I’ve never banked on it and I’m afraid of people who do. Luck to me is something else: Hard work – and realizing what is opportunity and what isn’t.
+ - I’m not funny. What I am is brave.
+ - The more things you do, the more things you can do.
+ - Ability is of little account without opportunity.
+ - In life, all good things come hard, but wisdom is the hardest to come by.
+ - When you’re too mad and too rattled to see straight, you’re bound to make mistakes. You can’t go on and on for years being miserable about a situation and not have it change you. You get so you can’t stand yourself.
+ - Whether we’re prepared or not, life has a habit of thrusting situations upon us.
+ - I will never do another TV series. It couldn’t top I Love Lucy, and I’d be foolish to try. In this business, you have to know when to get off.
+ - I was shy for several years in my early days in Hollywood until I figured out that no one really gave a damn if I was shy or not, and I got over my shyness.
+ - Women’s Lib? Oh, I’m afraid it doesn’t interest me one bit. I’ve been so liberated it hurts.
+ - A man who correctly guesses a woman’s age may be smart, but he’s not very bright.
+ - People either have comedy or they don’t. You can’t teach it to them.
+ - Knowing what you can not do is more important than knowing what you can do. In fact, that’s good taste.
+ - I hate failure and that divorce was a Number One failure in my eyes. It was the worst period of my life. Neither Desi nor I have been the same since, physically or mentally.
+ - How I Love Lucy was born? We decided that instead of divorce lawyers profiting from our mistakes, we’d profit from them.
+ - I am a real ham. I love an audience. I work better with an audience. I am dead, in fact, without one.
+ - Some of the most gifted people I’ve ever met or read about are homosexual. How can you knock it?
+ - I regret the passing of the studio system. I was very appreciative of it because I had no talent.
+ - I’m happy that I have brought laughter because I have been shown by many the value of it in so many lives, in so many ways.
+ - You see much more of your children once they leave home.
+ - Television is the quickest form of recognition in the world.
+ - I’m sometimes scared of everything that has happened to us. We didn’t think Desilu Productions would grow so big. We merely wanted to be together and have two children.
+ - I never thought I was funny. I don’t THINK funny.
+ - Use a make-up table with everything close at hand and don’t rush; otherwise you’ll look like a patchwork quilt.
+
+37 quotes

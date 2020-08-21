@@ -1,0 +1,54 @@
+ - The hardest thing of all is when pain is hidden behind a mask of calm.
+ - Fairy tales lie just as much as statistics do, but sometimes you can find a grain of truth in them.
+ - Czech beer in bottles is the corpse of real beer in a glass coffin.
+ - There is very much in the world that is bad. But usually the attempt to defeat evil engenders more evil. I advise you to do good; that is the only way to win the victory.
+ - The common good and the individual good rarely coincide.
+ - Forgiving was the hardest thing. Sometimes forgiving was the hardest thing in the whole world.
+ - One day you will hear the sound of time rustling as it slips through your fingers like sand. Remember me then. I wish you luck.
+ - And the simple people are trash. A herd of sheep that are good for shearing, but sometimes it’s more profitable to slaughter them.
+ - We are our own gods and our own demons.
+ - A car’s not the right place for showing off to a girl – the bed’s the place for that. The consequences of a mistake there are more upsetting, but less tragic.
+ - Love is happiness, but only when you believe it will last forever. Even though every time it turns out to be a lie, it’s only faith that gives love its strength and its joy.
+ - I am fat, lazy and kind.
+ - When leaders betray their people and the people don’t overthrow them, it’s not just the leaders who should be blamed.
+ - Great knowledge brings great sorrow.
+ - If age teaches you anything, then one of its lessons is certainly not to hurry if you’re already late...
+ - An introverted, bookish child, with a mass of complexes and her head full of crazy ideals and a childish faith in the beautiful prince who was searching for and would surely find her.
+ - There is no abstract Evil; you have to understand that! Its roots are here, all around us, in this herd that goes on chewing and having a good time only an hour after a murder!
+ - That’s how myths are born. Out of our carelessness, out of our tattered nerves, out of jokes that go wrong and flashy gestures.
+ - How easily the truth is lost, and how persistent lies are.
+ - Life consists of nothing but exceptions.
+ - Evil has no need to bother with eliminating Good. It’s far simpler to let Good fight against itself.
+ - Loneliness, dejection, the contempt or pity of people around you – these are unpleasant feelings. But they are precisely the things that produce genuine Dark Ones.
+ - Love was something different. Love was pure delight, a fountain of emotions, sensual delights, and enjoying spending time together.
+ - Ill-considered but well-intentioned actions do more good that actions that are well-considered but cruel.
+ - Love is a great power, and such a strange power...
+ - When people love each other, when they find each other out of thousands and millions of people. It’s always destiny.
+ - When there are strange things going on all around, every coincidence should be considered very carefully.
+ - Why was is that the Light acted through lies, and the Darkness acted though the truth? Why was is that our truth proved powerless, but lies were effective? And why was the Darkness able to manage perfectly well with truth in order to do Evil?
+ - Being on the side of the Light is much tougher than being on the side of the Dark...
+ - What an unfortunate instrument the guitar is! An instrument of such great nobility, a genuine monarch of music – reduced to a pitiful lump of wood with six strings, constantly abused by people with no ear and no voice.
+ - When people got old, why did they always develop a passion for scrabbling in the earth? Were they trying to get used to it?
+ - I get the same buzz cleaning up the yard as Leo Tolstoy did from scything hay.
+ - That’s the way it goes sometimes: in order to help your friends, first you have to help your enemy. Better get used to it.
+ - That’s the hardest thing of all – never to become cynical, never to lose faith, never to become indifferent.
+ - The only thing that restrains you is fear, Anton Gorodetsky. For yourself, or for people – that’s not important. But we are restrained by horror. And that is why we observe the Treaty.
+ - All we can do is try not to fall.
+ - Experience is primarily the ability to restrain our fleeting impulses.
+ - Because love is also a power. A great power, and it should not be disdained.
+ - Drinking beer in a children’s playground is an old Soviet tradition.
+ - What was my truth worth, if I was prepared to defend the entire world, but not those who were close to me? If I subdued hate, but wouldn’t give love a chance?
+ - If you have love in you, it’s a strength. But if you are in love, it’s a weakness.
+ - We’re not given the chance to choose absolute truth. Truth’s always two-faced. The only thing we have is the right to reject the lie we find most repugnant.
+ - This is the inevitable consequence of a popular movie: you become the guy who wrote “the book that inspired the movie.” Frankly speaking, I find it a bit insulting.
+ - A writer who wants to be translated and published abroad faces a very difficult challenge: first of all, he must make sure that his book is cosmopolitan in the best sense of the word, that it is interesting to a global audience. Nobody is going to read about problems that they don’t care about.
+ - At home the very walls lend you strength.
+ - Generally speaking, we can and should say everything. We just have to choose the right time, otherwise the truth can be worse than a lie.
+ - If it’s possible to do something, sooner or later someone’s going to do it.
+ - Above all, translators must be native speakers. It’s not because they speak the language better – I understand that sometimes a foreigner can learn a language better than native speakers. It has more to do with having an intimate knowledge of the society for which the book is being translated.
+ - Drink your coffee, it clears out the brain in the morning.
+ - Nobody can be forced to commit an act of villainy. You can’t push anybody into the mud; people always step into it themselves.
+ - There are far more reasons for death than there are for life.
+ - You’re a big boy, you ought to understand that punctual transport, public order and safe streets, polite people and good medical services are all the achievements of dictatorship.
+
+52 quotes

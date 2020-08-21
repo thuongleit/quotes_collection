@@ -1,0 +1,28 @@
+ - Don’t plan it all. Let life surprise you a little.
+ - The point is not to pay back kindness but to pass it on.
+ - It’s like my whole world is coming undone, but when I write, my pencil is a needle and thread, and I’m stitching the scraps back together.
+ - Every writer can tell you that a book is only truly alive when it finds passionate readers who bring it alive in their imaginations.
+ - A novel is not, after all, a historical document, but a way to travel through the human heart.
+ - Terrence, the Roman slave who freed himself with his writings, once observed, “I am a human being. Nothing human is alien to me.” That could be the motto of literature!
+ - Schools provide safe spaces to talk about controversial issues, and literature presents characters portraying human experience in all its richness and contradictoriness.
+ - I admit that for me love goes deeper than the struggle, or maybe what I mean is, love is the deeper struggle.
+ - A book does not discriminate against any reader. All are welcome at the table of literature.
+ - I grew up in a dictatorship, where you couldn’t talk about difficult situations – there was this culture of silence. We would run into a problem and have no one to talk to.
+ - Depression is always in the details.
+ - Reading is a way to take in the difficult situations and understand them. The whole point of reading a book in class is to have discussion about what these situations are like.
+ - Each of us will have to make the choices that allow us to be the largest versions of ourselves.
+ - Independence didn’t have to be exile.
+ - The elasticity of imagination and compassion is what writing and reading promote.
+ - It doesn’t make any sense. If the SIM are policemen, secret or not, shouldn’t we trust them instead of being afraid of them?
+ - Everyone needs a strong sense of self. It is our base of operations for everything that we do in life.
+ - Reading and thoughtfulness and openness are the best way, I should think, to begin to address the richness that is in each of us.
+ - Literature is about being a complex, contradictory human being.
+ - How we lie to ourselves when we’ve fallen in love with the wrong man.
+ - But the sensibility of the writer, whether fiction or poetry, comes from paying attention. I tell my students that writing doesn’t begin when you sit down to write. It’s a way of being in the world, and the essence of it is paying attention.
+ - I think it is important to know how to teach new material to help young people grow and learn.
+ - When we read, even if the characters are tragic or sad or disturbing, these are our brothers and sisters in the human family.
+ - There is no end to what can be said about the world.
+ - It’s always gratifying to hear from a passionate reader, and as a longtime educator, I’m especially pleased and heartened when that reader is a young student who is inspired to write me and let me know that my book has helped him or her find her way.
+ - Marjorie Agosin proves the power of the word to transport us to the center of her humane and human vision.
+
+26 quotes

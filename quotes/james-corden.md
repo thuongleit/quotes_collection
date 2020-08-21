@@ -1,0 +1,22 @@
+ - You’ll always make mistakes and you’ll miss the mark sometimes. That’s inevitably going to happen, because the best people in the world make mistakes – even people who are brilliant.
+ - I sometimes have an over-confidence that can be viewed as arrogance.
+ - Who puts strawberries in a salad? Seriously, is this a thing now? Is it a thing I don’t know about? Is it an American thing? It can be. It’s freaking me out.
+ - Funny is funny. And if it’s good, it travels.
+ - I just wanted to perform. I just wanted to perform in whatever capacity, whether it was acting, singing, dancing, comedy – whatever it was, I just loved it and felt at my absolute happiest when I was performing for people.
+ - I love hard work. One Man, Two Guvnors was so physically tiring I ached all the time, but I took a massive amount of pride in the fact that I only ever missed two shows.
+ - I guess I have a faith. I have an overriding feeling that all of this can’t be for nothing. But then I also fully understand that it might be.
+ - There were a couple of years where I got a bit lost – I went out too much, I was a bit heartbroken, thought I was a bit more of a dude than I really was. I would love to go back and have a strong word with myself.
+ - Sometimes you can have a reputation for not being relatable and nice because you had a bad day once.
+ - I’ve always wanted to be in musicals, not just in film, but on stage. I think it’s a wonderful medium.
+ - To be honest, all I wanted to do, all I ever, ever wanted to do – I just wanted to perform.
+ - There’s nothing more creative I’ll ever do in my career than trying to make an hour of TV everyday.
+ - Rap and dance is pretty much what I want to be known for.
+ - I’m a professional singer. I have a theory that all actors want to be rock stars, and all rock stars want to be actors. I spent my whole school life forming boy bands.
+ - Fondue is not a good date food. You end up with cheese dripping down your face.
+ - Fondue is not a good date food.
+ - It was a chance meeting with a lady at Mariah Carey’s record company who was here in our office, actually. And I pulled her in here to this very office that we’re sitting in now, and I played her the clip of me and George Michael singing. And I was like, it’s joyful. And that’s what people want.
+ - I’m not sure people even think of me as an actor at all.
+ - You want to see the joy in people, and you want to see the person that always dreamt of being a star, you know? You want to see people having a great time. So Mariah Carey is a huge fan of George Michael.
+ - Whatever it is, I just loved it and felt at my absolute happiest when I was performing for people. And if that’s what you want from a job, then this is the best job you could ever do.
+
+20 quotes

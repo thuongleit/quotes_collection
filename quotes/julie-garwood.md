@@ -1,0 +1,34 @@
+ - Respect was earned, not demanded, but dignity was taught by example.
+ - Education isn’t just about feeding the brain. Art and music feed the heart and soul.
+ - Knowledge is freedom and with freedom comes understanding.
+ - Daydreams were dangerous because they made her wish for things she could never have.
+ - If you begin to give away parts of yourself, eventually you’ll give it all. And once you’ve lost yourself, haven’t you lost everything?
+ - I know the truth now. You’ve figured out I’m falling in love with you and you’re trying to make me stop by hurting me this way. Well it won’t work.
+ - One whisper, added to a thousand others, becomes a roar of discontent.
+ - I love historical romance, absolutely love it.
+ - I just want to make people smile.
+ - Everything is your fault. You made me fall in love with you, and now I’m so upset I can’t think or sleep or eat.
+ - She wished she could understand her reaction to him. Why, her heart was pacing a wild beat again. Madelyne dared a quick look up and found Duncan was watching her intently. He looked so handsome. She wanted him to be ugly.
+ - You’ll be sorry if you marry a man you don’t love.
+ - He who controls the remote, controls the world.
+ - I love you. We’re getting married, and that’s the way it is. Get used to it.
+ - Flirting is the first step in a long process of finding the right man or woman.
+ - Brenna jumped to her feet the second Father Sinclair entered the chamber. “I’m so happy to see you,” she cried out. “Be happy sitting down,” Jamie ordered, hovering over her patient like a mother hen.
+ - A woman can’t do anything about her appearance. Either she’s pretty or she isn’t. But her character is quite another matter.
+ - The man irritated her just like a rash.
+ - Get off me. You weigh more than the doors to your home.
+ - Going to university is only one avenue to gain knowledge. There are others. A degree isn’t insurance against ignorance.
+ - I like writing about friends.
+ - Any man who lives by his beliefs is to be admired, not mocked.
+ - Oh, there was a wedding all right. Did I mention that my sister didn’t show up at the church either, Mr. Clayborne?
+ - Douglas: You really got to stop doing that. Isabel: Doing what? Douglas: Getting prettier everyday.
+ - Men. They were all so incredibly easy to sway. Pat them on their heads, give them something to eat, and they’ll follow you anywhere. Add a smile and a few stupid compliments, and they’ll immediately forget all about their other responsibilities.
+ - Going for it and changing what you could change-that’s what success was all about.
+ - Lady Madelyne had sealed her own fate. She’d warmed his feet.
+ - Take pride away from a man and you might as well run a knife through his heart.
+ - Noah, if we were to get married, you couldn’t date anymore.
+ - When you brush your teeth, I’ll squeeze the toothpaste.
+ - For though Duncan was a mere mortal, flawed as well, he’d accomplished a daring feat. Aye, he’d captured an angel. And she belonged to him.
+ - Still, they were two thorns from the same thistle. Their tactics in terrorizing innocent ladies were identical. Their behavior was downright sinful, but what made it even worse was the fact that neither warrior seemed to realize the effect he had on others.
+
+32 quotes

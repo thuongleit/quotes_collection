@@ -1,0 +1,155 @@
+ - When the past is forgotten, the present is unforgettable.
+ - The children of the nuclear age, I think, were weakened in their capacity to love. Hard to love, when you’re bracing yourself for impact. Hard to love, when the loved one, and the lover, might at any instant become blood and flames, along with everybody else.
+ - Time, the human dimension, which makes us everything we are.
+ - So I am lonely, but not alone, like everybody else.
+ - Being inoffensive, and being offended, are now the twin addictions of the culture.
+ - Only in art will the lion lie down with the lamb, and the rose grow without thorn.
+ - These are the Seven Deadly Sins: Avarice, Envy, Pride, Gluttony, Lust, Anger, Sloth. These are the seven deadly sins: venality, paranoia, insecurity, excess, carnality, contempt, boredom.
+ - Envy never comes to the ball dressed as envy; it comes dressed as high moral standards or distaste for materialism.
+ - People are always talking on their phones, or looking at their phones, because they don’t want to be alone with their thoughts.
+ - The future could go this way, that way. The future’s futures have never looked so rocky. Don’t put money on it. Take my advice and stick to the present. It’s the real stuff, the only stuff, it’s all there is, the present, the panting present.
+ - My 12-year-old daughter said to me, “Enough with the subtitles, Daddy, for crying out loud.” Because they always seem to cloud the issue rather than clarify it.
+ - Probably human cruelty is fixed and eternal. Only styles change.
+ - When I go back to the core of my childhood, my cousin Lucy seems always to be in the peripheral vision of my memories. She is off to one side, always off to one side, with a book, with a scheme or a project or an enterprise.
+ - Closure is a greasy little word which, moreover, describes a nonexistent condition. The truth, Venus, is that nobody gets over anything.
+ - Oh man sometimes I wake up feel like a cat runover. Are you familiar with the stoical aspects of hard drinking, of heavy drinking? Oh it’s heavy. Oh it’s hard. It isn’t easy. Jesus, I never meant me any harm. All I wanted was a good time.
+ - Pat Robertson at a national convention, equipped with delegates, certainly remains a terrible sight. He is a charlatan of Chaucerian dimensions.
+ - He awoke at six, as usual. He needed no alarm clock. He was already comprehensively alarmed.
+ - When it comes to flying, I am a nervous passenger but a confident drinker and Valium-swallower.
+ - When you’ve lost all your play, guess what love becomes. Work. Work that gets harder every hour.
+ - It’s good fun to create an unpredictable character. When he comes into the room, I don’t know what he’s going to do – I have to find my way.
+ - Unless I specifically inform you otherwise, I’m always smoking another cigarette.
+ - Style is not neutral; it gives moral directions.
+ - All the things we value in society don’t mean much in fiction.
+ - I always do my draft in long hand because even the ink is part of the flow.
+ - Kingsley Amis was a lenient father. His paternal style, in the early years, can best be described as amiably minimalist – in other words, my mother did it all.
+ - People look at fame and feel deprived if they haven’t got it, feeling that this is a basic, almost a human right, a civil right. And also feel the same way about wealth, I suppose – why haven’t I got it?
+ - But before we face experience, that miserable enemy, let us have some more innocence, just for a while.
+ - I sometimes feel I’m a sort of cult writer, rather than a mainstream writer, in that those who like my stuff like it a lot, but the appeal is not that broad.
+ - No novel has ever changed anything, as far as I can see.
+ - I think all writers have a bit of genius in them, and a bit of talent. Genius retreats but talent improves.
+ - One of the many things I do not understand about Americans is this: what is it like to be a citizen of a superpower, to maintain democratically the means of planetary extinction. I wonder how this contributes to the dreamlife of America, a dreamlife that is so deep and troubled.
+ - There’s a lot of anti-intellectualism in Britain. And the writer’s views on this or that are really of less importance, as they see it, than that of the man in the street.
+ - No novel has ever changed anything, as far as I can see. And the great satirists, like Swift and Dickens, tend to write about abuses and injustices that have already been partially corrected – you write about it after it’s over.
+ - Everyone is right up there at the very brink of their pain limit.
+ - You use a different part of your heart with girls.
+ - Insects are what neurosis would sound like, if neurosis could make a noise with its nose.
+ - The process of writing a novel begins with a pang, a moment of recognition, and a situation, a character, or something you read in a paper, that seems to go off, like a solar flare inside your head.
+ - In the concordance of Nicola Six’s kisses there were many subheads and subsections, many genres and phyla – chapter and verse, cross-references, multiple citations.
+ - Love is an abstract noun, something nebulous. And yet love turns out to be the only part of us that is solid, as the world turns upside down and the screen goes black.
+ - Weapons are like money; no one knows the meaning of enough.
+ - When success happens to an English writer, he acquires a new typewriter. When success happens to an American writer, he acquires a new life.
+ - The arms race is a race between nuclear weapons and ourselves.
+ - Someone watches over us when we write. Mother. Teacher. Shakespeare. God.
+ - Doesn’t Texas sometimes seem to resemble a country like Saudi Arabia, with its great heat, its oil wealth, its brimming houses of worship, and its weekly executions?
+ - The universe is a million billion light-years wide, and every inch of it would kill you if you went there. This is the position of the universe with regards to human life.
+ - They’re always looking forward to going places they’re just coming back from, or regretting doing things they haven’t yet done. They say hello when they mean goodbye.
+ - Don’t I ever do anything else but take soulful walks down the Bayswater Road, I thought, as I walked soulfully down the Baywater Road.
+ - Fiction is the only way to redeem the formlessness of life.
+ - All novelists write in a different way, but I always write in longhand and then do two versions of typescript on a computer.
+ - The true manipulator never has a reputation for manipulating.
+ - You can kill time in a number of ways but it always depends on the kind of time you’re fighting: some time is unkillable, immortal.
+ - Addictions do come in handy sometimes: at least you have to get out of bed for them.
+ - Let me assure you that the humourless as a bunch don’t just not know what’s funny, they don’t know what’s serious. They have no common sense, either, and shouldn’t be trusted with anything.
+ - While making love, we often talk about money. I like it. I like that dirty talk.
+ - Don’t dumb down; always write for your top five percent of readers.
+ - I don’t think I’d like Manhattan anymore. My mother-in-law lives there, and you go there. But I like looking at it from a distance. It’s a fantastic sight – every time, it awes me.
+ - Tennis: the most perfect combination of athleticism, artistry, power, style, and wit. A beautiful game, but one so remorselessly travestied by the passage of time.
+ - Bullets cannot be recalled. They cannot be uninvented. But they can be taken out of the gun.
+ - We all have names we don’t know about.
+ - Life is made of fear. Some people eat fear soup three times a day. Some people eat fear soup all the meals there are. I eat it sometimes. When they bring me fear soup to eat, I try not to eat it, I try to send it back. But sometimes I’m too afraid to and have to eat it anyway.
+ - He was in a terrible state- that of consciousness.
+ - Vidal gives the impression of believing that the entire heterosexual edifice – registry offices, ‘Romeo and Juliet,’ the disposable diaper – is just a sorry story of self-hypnosis and mass hysteria: a hoax, a racket, or sheer propaganda.
+ - I hire tea by the tea bag.
+ - Most writers need a wound, either physical or spiritual.
+ - In my experience of fights and fighting, it is invariably the aggressor who keeps getting everything wrong.
+ - One of the unseen benefits of having children is that they deliver you from your own selfishness. There’s no going back.
+ - All my adult life I have been searching for the right adjective to describe my father’s peculiarly aggressive comic style. I recently settled on ’defamatory.
+ - Tremendous interest in the superficial is very characteristic of cultures in decline.
+ - The first thing that distinguishes a writer is that he is most alive when alone.
+ - You get the feeling that childhood does not last as long as it used to. Innocence gets harder to hold on to as the world gets older, as it accumulates more experience, more mileage and more blood on the tracks.
+ - For myself and my loved ones, I want the heat, which comes at the speed of light. I don’t want to have to hang about for the blast, which idles along at the speed of sound.
+ - No-one is going to sit down and read Bleak House to the family any more, but they can all huddle up happily in front of Charles Bronson.
+ - When policemen go to prison in England, they have as bad a time as a pedophile.
+ - The argument, now, is about whether Bolshevik Russia was ‘better’ than Nazi Germany. In the days when the New Left dawned, the argument was about whether Bolshevik Russia was better than America.
+ - I don’t think I’ve ever been particularly scared of death – but scared of dying, the process. It doesn’t seem to be a good way of doing it.
+ - You can’t sort of write the novel as if you’re taking dictation from heaven.
+ - Because we are all poets or babies in the middle of the night, struggling with being.
+ - Belief is otiose; reality is sufficiently awesome as it stands.
+ - I want incremental improvements. There’s the record of all the revolutionary and violent change and extremism in general – it’s dreadful.
+ - Laughter always forgives.
+ - It’s without doubt my main subject. The way masculinity can go wrong. And I’m something of a gynocrat in a utopian kind of way.
+ - Style isn’t something added on; it’s intrinsic to the perceptions and the way you see life.
+ - It is very difficult, it is perhaps impossible, for someone who loves his mother to love the woman whom your father left her for.
+ - So if you ever felt something behind you, when you weren’t even one, like welcome heat, like a bulb, like a sun, trying to shine right across the universe – it was me. Always me. It was me. It was me.
+ - Richard’s bookshelves weren’t alphabetized. He never had time to alphabetize them. He was always too busy- looking for books he couldn’t find.
+ - When communism failed, it wasn’t a good idea that had gone wrong, it was a bad idea that had been sustained with incredible determination in the face of all the commonsense arguments, and at the cost of 20 million lives at least, in Russia, to build the socialist Utopia.
+ - At its grandest, political correctness is an attempt to accelerate evolution.
+ - More will mean worse.
+ - You can’t be up the reader’s ass, as many a writer I think is – cute as hell, ingratiating as hell. But that’s not loving the reader in the right way. That’s toadying to the reader.
+ - Like fundamentalist Judaism and medieval Christianity, Islam is totalist. That is to say, it makes a total claim on the individual.
+ - I would say I’m an ironist not a satirist. All you do is you take existing tendencies and crank them up, just turn up the volume dial. Which is a technique of science fiction, apart from anything else.
+ - Love might have expanded her. But we are not all of us going to get loved. We are not all of us going to get expanded.
+ - I’m afraid the negative things are always the great subjects. Failure is much more interesting than success.
+ - Your heart becomes gangrenous in your body when you go against your talent.
+ - It is terrible to see someone being beaten up by the English language.
+ - If every inhabitant of a liberal democracy believes in liberal democracy, then it doesn’t matter what creed or colour they are.
+ - You see tragedy requires persons of heroic stature. It works on the principle of people being more than humansuper-humanand also being only too human. But there just aren’t many great figures around now, so the tragic mechanisms can’t work.
+ - Much modern prose is praised for its terseness, its scrupulous avoidance of curlicue, etcetera. But I don’t feel the deeper rhythm there. I don’t think these writers are being terse out of choice. I think they are being terse because it’s the only way they can write.
+ - I would say that the writers I like and trust have at the base of their prose something called the English sentence. An awful lot of modern writing seems to me to be a depressed use of language. Once, I called it “vow-of-poverty prose.” No, give me the king in his countinghouse. Give me Updike.
+ - Who would want the socialist Utopia? Especially if you were at all artistic – you want all those inequalities, because that’s what makes life interesting.
+ - The middle class is doing fine in fiction. But it’s not what gets me going. I love the working class, and everyone from it I’ve met, and think they’re incredibly witty, inventive – there’s a lot of poetry there.
+ - What did Nabokov and Joyce have in common, apart from the poor teeth and the great prose? Exile, and decades of near pauperism.
+ - Religious belief is without reason and without dignity, and its record is near-universally dreadful.
+ - It was the tiredness of time lived, with its days and days. It was the tiredness of gravity- gravity, which wants you down in the center of the earth.
+ - Mere fact has no chance of being formally perfect. It will get in the way, it will be all elbows.
+ - My father always had doubts about the Booker prize, although they evaporated on the announcement that he had won it.
+ - It used to be said that by a certain age a man had the face that he deserved. Nowadays, he has the face he can afford.
+ - Perhaps there are other bits of my life that would take on content, take on shadow, if only I read more and thought less about money.
+ - My life looked good on paper – where, in fact, almost all of it was being lived.
+ - I am, incidentally, the only writer to have received the Somerset Maugham award twice – the first time for my first novel, the second time for my second first novel.
+ - America still is the center of the world, and what happens in the American economy matters everywhere.
+ - It’s hard to make progress with grief.
+ - On any longer view, man is only fitfully committed to the rational – to thinking, seeing, learning, knowing. Believing is what he’s really proud of.
+ - Writers spend too much time among dead things. I thought that was profound and actually true, that you’re trying to pump life into something that is inanimate. You see what a sort of audacious thing it is to move these sort of imaginary people around in a very stylized and patterned world.
+ - When I talk about the pleasure principle, I don’t say there is only one kind of pleasure, there are many kinds of pleasure. Some pleasure is difficult. It should be for the reader as well as the writer. But it has to be pleasure.
+ - Deciding to write a novel about something – as opposed to finding you are writing a novel around something – sounds to me like a good evocation of writer’s block.
+ - Present-day Spain translates as many books into Spanish, annually, as the Arab world has translated into Arabic in the past 1,100 years.
+ - Novelists don’t age as quickly as philosophers, who often face professional senility in their late twenties.
+ - He didn’t want to please his readers. He wanted to stretch them until they twanged.
+ - Sometimes I feel that life is passing me by, not slowly either, but with ropes of steam and spark – spattered wheels and a hoarse roar of power or terror. It’s passing, yet I’m the one who’s doing all the moving.
+ - I’m not interested in making a diagnostic novel or a concern. I’m 100 percent committed in fiction to the pleasure principle – that’s what fiction is, and should be.
+ - I think a lot of people who read fiction are interested in subtlety. But they wouldn’t like my stuff. It’s a bit too violent for many tastes.
+ - I can imagine in a century or two that rule by women will be seen as a better bet than rule by men. What’s wrong with men is that they tend to look for the violent solution. Women don’t.
+ - They did more than take our youth away. They also took away the men we were going to be.
+ - My belief is that everything that’s written about you is actually secondary showbiz nonsense, and you shouldn’t take any notice of it.
+ - Novelists tend to go off at 70, and I’m in a funk about it, I’ve got myself into a real paranoid funk about it, how the talent dies before the body.
+ - Since it is no longer permissible to disparage any single faith or creed, let us start disparaging all of them. A religion is a belief system with no basis in reality whatever. Religious belief is without reason and without dignity, and its record is near-universally dreadful.
+ - My theory is – we don’t really go that far into other people, even when we think we do. We hardly ever go in and bring them out. We just stand at the jaws of the cave, and strike a match, and ask quickly if anybody’s there.
+ - I say the sentences again and again in my head until they sound right.
+ - Is there any good reason why we cannot extend our multi-cultural generosity to include another dimension? That of time. The past, too, is another country. Its ghosts may look strange and frightening and slightly misshapen in body and mind, but all the more reason then, to welcome them to our shores.
+ - Screw-top wine has improved the quality of life by about ten percent, wouldn’t you say?
+ - When I see a lot of young faces in the audience, it’s just sort of sinking in how important that is. Because you’re old enough now to identify them very strongly as being young – whereas before, of course they were young, because you were young. Now it’s not like that.
+ - The satirist isn’t just looking at things ironically but militantly – he wants to change them, and intends to have an effect on the world.
+ - Every writer hopes or boldly assumes that his life is in some sense exemplary, that the particular will turn out to be universal.
+ - It is straightforward – and never mind, for now, about plagues and famines: if God existed, and if he cared for humankind, he would never have given us religion.
+ - He was an artist when he saw society: it never crossed his mind that society had to be like this; had any right, had any business being like this. A car in the street. Why? Why cars? This is what an artist has to be: harassed to the point of insanity or stupefaction by first principles.
+ - All writers of fiction will at some point find themselves abandoning a piece of work – or find themselves putting it aside, as we gently say.
+ - The air itself was ebony, like the denial, the refutation, of the idea of light.
+ - Often it doesn’t occur to you what kind of novel you’re writing until quite late on.
+ - Probably all writers are at some point briefly under the impression that they are in the forefront of disintegration and chaos, that they are among the first to live and work after things fall apart.
+ - Faith is a talent, and it goes the way of all your talents. Getting old is the subtraction of your powers. Which very much goes for writing.
+ - While clearly an impregnable masterpiece, Don Quixote suffers from one fairly serious flaw – that of outright unreadability.
+ - America has had much more respect for its writers because they had to define what America was. America wasn’t sure what it was.
+ - America is proud of what it does to its writers, the way it breaks and bedevils them, rendering them deluded or drunken or dead by their own hands. To overpower its tender spirits makes America feel tough. Careers are generally short.
+ - You cannot combine being a movie star with not being a movie star.
+ - When we read, we are doing more than delectating words on a page stories, characters, images, notions. We are communing with the mind of the author.
+ - I think novelists are in the education business, really, but they’re not teaching you times tables, they are teaching you responsiveness and morality and to make nuanced judgments. And really to just make the planet look a bit richer when you go out into the street.
+ - In America, the policeman is a working-class hero. In England, the policeman is a working-class traitor.
+ - If you feel you have a strong constituency among the young, you can really die happy, because the great unanswered question, the only valid value judgment is whether you’re going to last, and that tells you that you are, for a bit at least.
+ - There isn’t what my father called the cruising hostility of the English press – where they’re looking around for something to attack. You don’t feel that there’s a great reservoir of resentment in the press as you do in England.
+ - The literary interview won’t tell you what a writer is like. Far more compellingly to some, it will tell you what a writer is like to interview.
+ - Never content just to be, America is also obliged to mean; America signifies, hence its constant and riveting vulnerability to illusion.
+ - It’s an ancient idea that the leader of a democracy should not be the cleverest but the most average. That’s an arguable point, but the world has decided otherwise – except in America, where it still divides the country right down the middle.
+
+153 quotes

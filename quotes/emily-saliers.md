@@ -1,0 +1,34 @@
+ - The less I seek my source for some definitive, the closer I am to fine.
+ - Always tell the truth and be true.
+ - You have to laugh at yourself, because you’d cry your eyes out if you didn’t.
+ - You set up your place in my thoughts, moved in and made my thinking crowded.
+ - The prize is always worth the rocky ride.
+ - I had a sister who died and my mother passed away. I know that grief comes in waves. When deep grief hits, I know that it hurts like hell, and then you get a little bit of a respite, and then it comes back, and it hurts like hell. I know it can be survived.
+ - Now I know a refuge never grows from a chin in a hand in a thoughtful pose gotta tend the earth if you want a rose.
+ - Music makes me alive in a way that nothing quite does. Good art, good film, good books, good dance. Exhibitions, history. Nature makes me feel alive. Georgia in the rain – that makes me feel alive. Compassion makes me feel alive. Hard fought victories for social rights.
+ - And there’s always retrospect to light a clearer path.
+ - Discrimination is a bad bad bad thing.
+ - You will taste a way of life profoundly nourishing and from your tongue may spring a song or poem or sentence or word or maybe nothing but silence. Silence only the heart can turn to song.
+ - It’s in our blind trust that love will find us, just like it has before.
+ - I’m a little bit antisocial and I recently discovered that I’m introverted. But the love between people makes me alive.
+ - Cooking is really calming. Sharing food with friends, cooking.
+ - I try not to get personally involved in social media. It kind of makes me sick sometimes.
+ - I don’t think any human being is truly free. We’re so tethered to our own insecurities and hampered by our fears and our prejudices. I think it’s human nature that we’re never going to be free.
+ - So we must love, while these moments are still called today, take part in the pain of this passion play, stretching our youth as we must, until we are ashes to dust, until time makes history of us.
+ - Food! Oh my god, I love food. Sugar makes me come alive.
+ - Artists and celebrities are citizens, and as such you have a responsibility to keep fighting for justice because there are monolithic power structures and systemic oppression out there.
+ - I see people whose spirits are not broken, who continue to work for justice. That makes me feel alive, when I witness their work, and then I witness some of their dreams come to fruition.
+ - What was once your pain, will be your home.
+ - No way construction of this tricky plan was built by other than a greater hand.
+ - The sweetest part is acting after making a decision.
+ - Whenever I think about all the things I appreciate in life, I also think about my privileges, as well. Try to keep that all in balance. Gratitude for what I have, trying to be part of movements that make it easy for people who have it harder than they ever should have it.
+ - Unjust use of force, strength, and brutality. Those are the forces that make me feel vulnerable.
+ - Begin my studies with the paper and this pencil and i’m working through the grammar of my fears.
+ - Falling, falling, falling, falling down. Look yourself in the eye before you drown.
+ - The most important thing to do for me physiologically is to sleep when I’m tired. I love to sleep and it’s very restorative.
+ - We’re bombarded with media reports, with social media, with anyone with an opinion.
+ - I give it up to women who have the power to keep their spirit alive under very difficult circumstances.
+ - We must love while these moments are still called today.
+ - I was in a church choir early on and that really helped me musically in terms of chops, learning how to sing harmonies.
+
+32 quotes

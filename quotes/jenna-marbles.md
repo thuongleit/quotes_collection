@@ -1,0 +1,22 @@
+ - The single greatest gift you could ever give the world is to be exactly who you are.
+ - When I’m feeling sad, or lonely, and I don’t know what I’m doing and I don’t know where I’m going, I imagine the Cool Awesome Future Version of Myself just telling my present self, “It’s okay. You just gotta grab that giraffe by the ears and ride it on out.”
+ - Don’t ever, ever, ever give up, because you’re here for a reason, even if it’s just to laugh at cats on the internet.
+ - There’s no cure for ugly, but you can make yourself into a human optical illusion.
+ - In order to find out who you are, you will, at some point, have to feel really isolated, left out, different.
+ - I don’t recommend washing your face. Because you might drown.
+ - You become yourself, every single day of your life, through your choices and how you think.
+ - If you want to be like someone, there’s nothing stopping you from modeling yourself after someone else. You don’t have to BE them – that’s not your job in life. Your job in life is not to be someone else. You just want to be as good at being you as that person is at being them.
+ - As weird and awful and terrible as it may seem to be yourself sometimes, it will always reward you.
+ - Thongs are the leading cause of pregnancy in the United States.
+ - You’ve already got a natural glow, kind of of, cuz you’re drunk, so just make it like way more intense, everybody loves someone who’s so red in the face. Are you embarrassed? No, I’m just excited to be here. I’m normal, I swear. Do you want my phone number?
+ - It’s okay if you can’t see what you’re doing, cuz even when your eyes are open, you can’t see what you’re doing.
+ - One of the benefits of being you is: You know that the people who love you, love you for you. They don’t love you for who they think you are or who you’re pretending to be.
+ - Make your face not look like your face by piling on like the heaviest makeup you can find and do it with some kind of brush that won’t judge you.
+ - So you don’t have time for concealer, you have time for powder for when you start crying later about how some boy doesn’t like you.
+ - Make it look like your skin is not so angry at you for your bad life choices.
+ - If you can’t move your brush good, just move your face.
+ - Here’s a helpful life tip. Stand by things that are white cuz it makes you look less white.
+ - If you have something floating in your drink, then you know you’re ready. Seriously, what’s in my drink? Aliens. Still gonna drink it.
+ - Before I go to work, I like to pump myself up by crying over my master’s degree.
+
+20 quotes

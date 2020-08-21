@@ -1,0 +1,22 @@
+ - The people need to feel the music.
+ - I used to cry myself to sleep every night. I missed singing so much. And performing. Man, I missed it so much.
+ - I never tried to kill myself or anything.
+ - I love my songs, let’s not get crazy here.
+ - I mean, Janet Jackson? She’s like Michael Jackson with hair.
+ - I love Ruth Brown, not just her singing, but Ruth Brown has more girl power than anyone, because she fought hard against people who ripped her off and then helped other artists through the Rhythm and Blues Foundation.
+ - It doesn’t pay to try, all the smart girls know why.
+ - Kill Rock Stars allowed me to put out a real genuine rock ‘n’ roll record.
+ - No one has their own identity like the Ronettes did back in the day.
+ - Back 20 years ago, I was recording with Bruce Springsteen, and his producer called me and said I had to be in the studio the next day to finish the sessions, and I couldn’t. I had to be in court, in California. All this took like 10 years out of my life.
+ - Most of the groups I worked with 30 years ago are either dead or dead broke. And it’s a shame.
+ - I love the fact that 35 years later, I still hear my songs on the radio.
+ - I think Behind the Music is good for people like Leif Garrett and Motley Crue.
+ - So don’t get me wrong, I love my songs, and I still love hearing them. That’s history, baby.
+ - My honeymoon night was spent on the floor in the bathroom with my mother.
+ - When I do a concert and people put their hands in the air, they’re doing it on their own.
+ - I just want to get on stage and sing and be happy.
+ - But, you know, the Stones were my opening act in the Sixties. I loved those British guys, the way they just stood there and shook their hair.
+ - Stage performing is a dying art form.
+ - We had the skirts with the slits up the side, sort of tough, sort of Spanish Harlem cool, but sweet too.
+
+20 quotes

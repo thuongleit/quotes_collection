@@ -1,0 +1,32 @@
+ - My work is a game, a very serious game.
+ - We adore chaos because we love to produce order.
+ - Are you really sure that a floor can’t also be a ceiling?
+ - So let us then try to climb the mountain, not by stepping on what is below us, but to pull us up at what is above us, for my part at the stars; amen.
+ - He who wonders discovers that this in itself is wonder.
+ - I don’t use drugs, my dreams are frightening enough.
+ - I could fill an entire second life with working on my prints.
+ - The things I want to express are so beautiful and pure.
+ - I don’t grow up. In me is the small child of my early days.
+ - Simplicity and order are, if not the principal, then certainly the most important guidelines for human beings in general.
+ - I might be in the basement. I’ll go upstairs and check.
+ - Wonder is the salt of the earth.
+ - Hands, are the most honest part of the human body, they cannot lie as laughing eyes and the mouth can.
+ - Originality is merely an illusion.
+ - It is human nature to want to exchange ideas, and I believe that, at bottom, every artist wants no more than to tell the world what he has to say.
+ - A woman once rang me up and said, ‘Mr. Escher, I am absolutely crazy about your work. In your print -Reptiles- you have given such a striking illustration of reincarnation.’ I replied, ‘Madam, if that’s the way you see it, so be it.’
+ - I am a graphic artist heart and soul, though I find the term artist rather embarrassing.
+ - I am always wandering around in enigmas. There are young people who constantly come to tell me: you, too, are making Op Art. I haven’t the slightest idea what that is, Op Art. I’ve been doing this work for thirty years now.
+ - What I give form to in daylight is only one per cent of what I have seen in darkness.
+ - I believe that producing pictures, as I do, is almost solely a question of wanting so very much to do it well.
+ - I think I have never yet done any work with the aim of symbolizing a particular idea, but the fact that a symbol is sometimes discovered or remarked upon is valuable for me because it makes it easier to accept the inexplicable nature of my hobbies, which constantly preoccupy me.
+ - Science and art sometimes can touch one another, like two pieces of the jigsaw puzzle which is our human life, and that contact may be made across the boderline between the two respective domains.
+ - I might be in the basement. I’ll go upstairs and check. We adore chaos because we love to produce order. I don’t use drugs; my dreams are frightening enough.
+ - To have peace with this peculiar life; to accept what we do not understand; to wait calmly for what awaits us, you have to be wiser than I am.
+ - There is something breathtaking about the basic laws of crystals. They are in no sense a discovery of the human mind; they just “are” – they exist quite independently of us. The most that man can do is become aware, in a moment of clarity, that they are there, and take cognizance of them.
+ - At moments of great enthusiasm it seems to me that no one in the world has ever made something this beautiful and important.
+ - I try in my prints to testify that we live in a beautiful and orderly world, and not in a formless chaos, as it sometimes seems.
+ - Drawing is deception.
+ - I can’t keep from fooling around with our irrefutable certainties. It is, for example, a pleasure knowingly to mix up two and three dimensionalities, flat and spatial, and to make fun of gravity.
+ - As far as I know, there is no proof whatever of the existence of an objective reality apart from our senses, and I do not see why we should accept the outside world as such solely by virtue of our senses.
+
+30 quotes

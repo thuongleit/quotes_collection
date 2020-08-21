@@ -1,0 +1,71 @@
+ - We may be human, but we’re still animals.
+ - The only thing that’s holding you back, is the way you’re thinking.
+ - The level of achievement that we have at anything, is a reflection, of how well, we were able to focus on it. Because the only thing that’s holding you back, is the way you’re thinking.
+ - The tone is in your fingers, not in your amp or effects.
+ - If I remain true to what’s in my heart, that’s all the success I need.
+ - The cool thing about playing is that the more you do it, the better you get.
+ - My main calling in life is to seek and achieve spiritual balance, and to express that through my instrument. Everything else is here today, gone later today.
+ - The guitar is the coolest instrument in the world.
+ - I’m always pursuing knowledge; I’m a seeker of spiritual equilibrium – and music is a big part of that.
+ - Play slow and perfect – that’s the way to becoming a virtuoso.
+ - Besides being a guitar player, I’m a big fan of the guitar. I love that damn instrument.
+ - The older I get, the more I just like plugging directly into my amp. I’m tired of trying to impress myself with weird sounds. It’s about the notes more.
+ - If you want to play something that you can’t, you need to see and hear yourself doing it in your minds eye. It will start to happen.
+ - I awake, I meditate, get the kids off to school, go to the gym, go to the Favored Nations office, and usually at around 1 pm I’m home and do music the rest of the day.
+ - I’ve always considered transcribing to be an invaluable tool in the development of one’s musical ear and, over the years, I have spent countless glorious hours transcribing different kinds of music, either guitar-oriented or not.
+ - Find what you’re best at and exaggerate it.
+ - Baby don’t wake me, let me take you on an endless journey. We touch and the softest kiss explodes with lust. It’s real and you can’t deny the heat you feel. And if I die before I wake, baby that’s all right.
+ - I could never overstate the importance of a musician’s need to develop his or her ear. Actually, I believe that developing a good ‘inner ear’ – the art of being able to decipher musical components solely through listening – is the most important element in becoming a good musician.
+ - The only time I’m miserable is when I can’t keep an instrument in tune.
+ - The blues scale was the first thing I learned. It’s just a pentatonic scale with a flat seventh and a few notes that sound cool when you bend them. And because people have amalgamated the blues into this rock-blues scale, if you’re using it, you better sound like a real authentic blues player.
+ - What I look for in music is artistry, sincerity, and simplicity, and Tom Waits has all of that. I want to make a connection to the creator.
+ - When you get down to it, the way that the music affects you individually is the most important thing, and when you let things like the location of a band get in the way or have an effect on your overview, you’re cheating yourself out of a really good time.
+ - Make an exercise out of everything you can’t do.
+ - As a musician, I look for certain things that stimulate me. And what I look for is something that’s an evolution on a particular genre that I never heard before.
+ - When I was a teenager in the ’70s, I was really into those great bands like Led Zeppelin and Queen and Jethro Tull, Deep Purple, Alice Cooper.
+ - Criticism can be devastating. When push comes to shove, we are all very sensitive.
+ - I have a deep love for life and my fellow human beings. I try to understand everything that everybody does, even if it seems wrong to me.
+ - It’s very hard to come across as a passionate human being in print. People can’t hear the inflections in your voice.
+ - Along with its enchanting and exquisite melodies, West Side Story has attitude and a tremendous amount of frenetic energy. It’s emotional, theatrical and technical. It’s everything.
+ - A good solo is like a book. It will start out in a phrase, it will go on in paragraphs, and then it will have a great ending.
+ - Critisism is just reflection of the person that speaking.
+ - A lot of those little things that I really like doing are just moments of cool articulation, just little moments of phrasing that probably go over everybody’s head.
+ - I knew that I was going to have a life as a musician, because I always felt the pull. I don’t remember ever having to make a choice.
+ - Still to this day, I am deeply satisfied when watching a guitar player who is connected with their art and instrument. GuitarTV helps you tap into that connection, and to each other.
+ - The classical guitar has a dynamic to it unlike a regular acoustic guitar or an electric guitar. You know, there’s times when you should play and there’s times when you gotta hold back. It’s an extremely dynamic instrument.
+ - Possessing a healthy imagination is a necessary ingredient for creativity.
+ - I loved the guitar, and I had all of this music in my head. My passion for the guitar and the ideas for what I could create musically were equal. So that’s where I was.
+ - Lenny Breau was a genius – inspired and really loose. I loved how he used the guitar as an extension of his inner freedom, because, obviously, on the outside there were a lot of trainwrecks going on. But when you listen to him play, you hear what kind of guy he really is.
+ - You can never deny the immense talent, rock credibility and iconic historical contribution that Van Halen made.
+ - When I was young, I wasn’t a misfit or anything. I had friends in all the different social groups. But I had issues – just personal issues, insecurities and other things that had happened in my life.
+ - If you’re feeling emotional when you’re creating something, it’ll sound that way.
+ - When I was growing up, the blues did seem too simple to me. I was just a muso.
+ - I designed a guitar for Ibanez and then they started manufacturing it – it’s called the Jem – it’s 26 years old and I still play it. As a kid I liked Les Pauls and Strats, but they had limitations for the kind of playing I wanted to do.
+ - If you want to be a virtuoso then you have to set your sights above me. You have to go beyond what I’m doing. And that’s for you to figure out. Because if you can do that, then I’m going to be trying to go beyond you.
+ - It’s hilarious, because my guitar has what’s known as a tremolo bar or a whammy bar. And the whammy bar is probably the most alien thing on my guitar that could possibly relate to a classical guitar.
+ - I think every artist subconsciously wants to evolve themselves. Sometimes they get stuck in ruts because of pop culture, peer pressure, stuff like that. But what excites me most is exploring my own musical insights and expanding upon them.
+ - So that’s the challenge for me and that has always been the challenge – finding that melody, that riff, that thing that just lights me up and makes me feel like it’s Christmas.
+ - Jeff Beck is compelled by his inner artistic drive to keep evolving the instrument. He’ll use the whammy bar with the volume knob and the tone control all at the same time – creating harmonics that no human being should be able to hit.
+ - It just happens in life, where you resonate with a particular artist. Or it can be a kind of food or a fashion – you discover it and it gives you a whole new lease on life.
+ - Ray and I do not draw salaries, Any profits will be re-invested into marketing the music we believe in.
+ - I wanted to be a composer before anything else. And my sister was listening to Led Zeppelin in the other room! When I heard that, it was a game-changer.
+ - Reps once took chances on art, History’s most treasured musicians were believed in and cultivated to reach their potential. Today, it would be difficult for those musicians to get deals.
+ - I was always one of those guys who was a seeker after truth. I want to know what’s going on.
+ - We have the insight and the tools to identify and bring to fruition the dormant talent that our artists possess. Favored Nations will be branded as the home base for inspired musical talent.
+ - I dedicated all the time I had to it. The 10 hour workout was just what I put in the magazine at the time, but for me it was every waking moment.
+ - You know, there’s times when you should play and there’s times when you gotta hold back.
+ - I’m a big fan of cultural music, and that’s how I try to expand my playing, by listening to music that is not conventionally American.
+ - I’ve been approached many times to write all sorts of books about my past and my personal life. I get interest from people who want to do reality shows, and somebody just offered me a huge amount of money to write my spiritual memoirs. I’m just not interested.
+ - I’ve never really heard anybody imitating anything of mine the way they do with Edward Van Halen’s stuff.
+ - My past is very interesting, and I treasure it, but to write about it, it’s just not on my radar.
+ - I know it is common nowadays for artists to start labels but this is a thoroughly constructed vehicle for inspired talent. This is a market that we’ve been living, breathing and eating for our entire lives – one where a huge void currently exists. Favored Nations is a long-term commitment.
+ - That’s the thing about great artists: They find the thing that’s most obvious to themselves, what’s most conscious and natural, and they put it out there and the audience comes.
+ - Most people are fascinated to see someone play an instrument in an inspired way. We are moved by witnessing musical brilliance, and it was this notion that led me to purchase the GuitarTV domain 10 years ago.
+ - I can tell you this: I’m an extremely passionate individual. I try to be careful how I display it because you never know how people are going to take it.
+ - It is only the most elite of elite musicians whose unconventional approach becomes convention.
+ - I don’t think I approach my songs differently from other artists. You get a big picture of it, and you imagine the song and hear and feel it, and that big picture is like a snapshot, and it comes to you as fast as it takes to click a camera.
+ - I have an independent record label called Favored Nations on which I released an album by an artist called Johnny A, who plays an arch top Gibson through a Marshall, but the tone is all in his fingers.
+ - Acting, at least for me, is very unreal, and when I’m doing it, I actually feel embarrassed.
+ - I was about seven or eight years old when I first heard West Side Story, and it had a huge impact on me. If you look at the elements of that record, it contains many of the things I enjoy doing today.
+
+69 quotes

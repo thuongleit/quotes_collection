@@ -1,0 +1,56 @@
+ - In my daughter’s eyes, I am a hero, I am strong and wise, and I know no fear, but the truth is plain to see, she was sent to rescue me, I see who I want to be, in my daughter’s eyes.
+ - Love’s the only house big enough for all the pain in the world.
+ - You can love someone with all your heart for all the right reasons, and in a moment they can choose to walk away. love ’em anyway.
+ - If I’m dreaming please don’t wake me up cause baby I can’t get enough of what you do.
+ - I make our family traditions a priority.
+ - A statue stands in a shaded place An angel girl with an upturned face A name is written on a polished rock A broken heart that the world forgot.
+ - It’s not the size of the house. It’s how much love is inside.
+ - You have to stick to your guns and still know when to be flexible. That’s something I’ve had to learn-which battles to fight.
+ - I try to visualize geometric shapes and patterns slowly spinning and expanding into infinity.
+ - I see who I want to be, in my daughter’s eyes.
+ - I can’t be the big star in the family. We have a family, and we are all equal.
+ - I like the creativity of planning a party, or cooking and taking care of people, creating a memorable meal or event.
+ - What I would like my legacy to be is that of a person who took good care of her family and sang some songs that made a difference in some way. I hope I’ll be remembered as somebody who was always down to earth and who handled her career and other people with honesty, integrity and class.
+ - I think it’s important to find someone that you really like as well as love. When the infatuation runs out, the first phase of the relationship changes. You really have to be able to say ‘I like to hang out with you. Let’s keep hanging out.’
+ - Faith that it’s not always in your hands or things don’t always go the way you planned, but you have to have faith that there is a plan for you, and you must follow your heart and believe in yourself no matter what.
+ - That’s the hardest thing about being a mom. You want to be cool, and you want them to like you all the time, but you can’t always have that. You’re gonna have times where you have to say no, and you won’t be the most popular person in the house.
+ - I just love where I am right now in my career. I love country music. I don’t ever feel restricted by the genre. I’ve been able to have a solid career that we’ve built one step at a time and a family. I know that I’m in a good place.
+ - Baby I’m so into you I can hardly breathe.
+ - My desire is to stand by the fire that burns inside of you.
+ - I just love where I am right now in my career.
+ - Having three daughters, it is important for me to set a good example and teach them to make decisions that are healthy for your heart no matter what age you are.
+ - A big part of who I am is just the way I was raised. Nobody is better than anyone else, and if you really work hard, you might get lucky and get what you want.
+ - It’s hard being away from home. But other than that, performing is the highlight of my day.
+ - The teacher wonders but she doesn’t ask It’s hard to see the pain behind the mask Bearing the burden of a secret storm Sometimes she wishes she was never born.
+ - I love to get books, because I love to read.
+ - I always tell my three daughters, it’s not about the number on the scale, it’s how you feel. You know you are going to feel better if you eat healthier.
+ - The hard part is choosing to change what needs changing.
+ - I love to read about healthy eating and preach to my husband, who doesn’t listen. Now I’m trying to teach it to my daughters.
+ - I find that putting my makeup on and playing with different looks is really relaxing for me before the show.
+ - I wish I could do an entire spa day.
+ - I’m just the instrument for the song to do whatever it’s supposed to do-heal, inspire or encourage. It’s not all about me, it’s about the song. I’m just the lucky girl who gets to sing these songs.
+ - It means so much being a part of country music and the Opry.
+ - I feel like it’s important to use this gift God gave me, my life and my career to do something to make the world a better place. It’s an easy thing for me to do.
+ - I have a really amazing fan club, it’s contemporary but it’s a little bit old school. There’s a lot of connection. I have a fan club president who really responds to people.
+ - Baby, I’ve tried to find a place inside your heart. Oh, but it’s hard to start a fire without a spark.
+ - I am happy that women can relate to my songs, and hopefully men can too.
+ - Growing up, Santa Claus would cover the presents with a white blanket, so when we’d wake up Christmas morning, we had to wait for my dad to do the big reveal of all the presents Santa brought.
+ - I believe everything in moderation. But breakfast is important. I have two hard-boiled or scrambled eggs with whole-wheat toast and try to get some fruit in there.
+ - Not only do I know how to milk a cow, but I know how to herd a bunch of cows, too, which is a life skill that I think may come in handy someday.
+ - I love country music. I don’t ever feel restricted by the genre.
+ - Honestly, I just have to do what’s right for me, and what I would tell people is what I believe, which is that tolerance is very important.
+ - I love to sing with great singers.
+ - I listen to music I’m looking to record or catch up on news and TV, whatever is on the TV at the gym!
+ - What I do to take care of my heart is exercise and try to eat healthy.
+ - Sometimes you run out of ideas, just like if you are a writer or whatever. Then you just have to wait around for something to inspire you or look for something to inspire you.
+ - I wanted to make a record that people could put on year after year after year, and it would never feel dated.
+ - I love producing! It’s so much fun to start with a blank canvas and create the picture you want to create and see it all come together.
+ - I definitely feel a difference about my place in the industry. I feel like I have some longevity now.
+ - I was always thin. I guess I have good genes, so I never worried too much about my weight.
+ - I do yoga, lunges, crunches, things like that for 40 minutes twice a week. For cardio I usually do the elliptical, treadmill or walking.
+ - I obviously love to sing, it’s my passion, as is being a mom. Those are the two things that pretty much consume my every day and so I want to keep doing that as long as I can.
+ - I really just tried to make a record full of great songs, which is the goal I always have.
+ - I was into all kinds of music as a teen – country music, because my dad was in a band that played country, and whatever my sister and brother were into.
+ - I think that being thrown into instant fame must be, at times, difficult.
+
+54 quotes

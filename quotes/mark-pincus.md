@@ -1,0 +1,22 @@
+ - Not having a clear goal leads to death by a thousand compromises.
+ - My approach is that you have to earn the respect of people you work with.
+ - Don’t lose sight of user delight.
+ - You’re not smarter than your competitor. Just copy what they do and do it until you get their numbers.
+ - I think failing is the best way to keep you grounded, curious, and humble. Success is dangerous because often you don’t understand why you succeeded. You almost always know why you’ve failed. You have a lot of time to think about it.
+ - I think we live in a unique time – the verbs that make up our online and mobile lives haven’t been completely invented or imagined for us. That was kind of a life path I was on.
+ - Get five or six of your smartest friends in a room and ask them to rate your idea.
+ - Clearly as you move to being a public company, probably even more than growth, there is a huge value based on predictability.
+ - I like to bet on people, especially those who have taken risks and failed in some way, because they have more real-world experience. And they’re humble.
+ - There are people who want the comfort and structure of a job where they’re given tasks and told what to do. I think it’s actually a minority of people. The majority of people don’t want that, but I’d say that the companies I’ve built are full of people with something to prove.
+ - I got involved early on in social media – I created one of the first social networks – and for me, social gaming was a natural evolution of that.
+ - You can manage 50 people through the strength of your personality and lack of sleep. You can touch them all in a week and make sure they’re all pointed in the right direction.
+ - The only way people will have the trust to give their all to their job is if they feel like their contribution is recognized and valued.
+ - I’ve grown a lot, and I’m learning every week.
+ - I seek out a lot of advice from other CEOs.
+ - If you give people really big jobs to the point that they’re scared, they have way more fun and they improve their game much faster.
+ - We did anything possible just to get revenues so that we could grow and be a real business.
+ - I think you’re defined as a company by what you choose to do and what you choose not to do.
+ - I’ve been good at product entrepreneuring.
+ - I need to aspire to be a great CEO and not just a great product engineer.
+
+20 quotes

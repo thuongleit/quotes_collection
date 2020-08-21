@@ -1,0 +1,51 @@
+ - Today I am the greatest of all time.
+ - Nothing’s impossible for Rickey. You don’t have enough fingers and toes to count out Rickey.
+ - My dream was to play football for the Oakland Raiders. But my mother thought I would get hurt playing football, so she chose baseball for me. I guess moms do know best.
+ - Don’t worry, Rickey, you’re still the best.
+ - Lou Brock was a great base stealer but today I am the greatest.
+ - To all the kids out there: Follow your dream. Believe in your dream. Because dreams do come true.
+ - All I’m asking for is what I want.
+ - It’s always exciting that you can rub elbows with some of the greatest players who have ever played the game, and just being around the “family” again from baseball.
+ - Somehow, I’ve been blessed to be able to have the young spirit inside – not feel like every year I get a year older. I feel like every year I get a year younger. I don’t wake up in the morning with aches and pains.
+ - This is Rickey calling on behalf of Rickey. Rickey wants to play baseball.
+ - I can’t find a job. It makes me crazy.
+ - Rickey got a big ranch. Rickey got a big bull. Rickey got horses. Rickey got chickens and everything. And Rickey got a 20-gallon hat.
+ - Rickey doesn’t have albums, Rickey has CDs.
+ - Well, Rickey’s not one of them, so that’s 49 percent right there.
+ - If you look at some of the people in the Hall of Fame, my numbers are compatible.
+ - Rickey was never motivated by stats. He was motivated by numbers. Wins, runs, steals.
+ - I’m disappointed about how my career ended.
+ - I’m a walking record.
+ - In baseball you train the whole body, except for the hip and eyes.
+ - I was stealing all the bases, and when you had to go to arbitration they said, ‘You know, only the big boys make the money.’ So I got to try and figure out how to hit a home run, too.
+ - If my uniform doesn’t get dirty, I haven’t done anything in the baseball game.
+ - I don’t think some of the players understand what the people are about. The people are coming out to show you their appreciation of the game, and the player that you are.
+ - I told myself that if I ever make it to the big leagues that I would be the one to appreciate the fans. Take a little time out to sign autographs and shake their hands and say hello to them.
+ - My journey as a player is complete.
+ - Certain guys, they can see a guy do a certain thing with their glove and know what pitch is coming. I couldn’t do that. But I can get on first base and I can tell you by his move if that pitcher is going to first base or home plate every time.
+ - Just because I believed in what I was doing on the field and dedicated myself to playing the game, does that mean I’m cocky? Does that mean I’m arrogant?
+ - I love talking about baserunning.
+ - The only name on my birth certificate was Henley, no first name.
+ - Rickey don’t like it when Rickey can’t find Rickey’s limo.
+ - Speeches and me don’t get along sometimes. It is kind of like putting a tie too tight on my neck. I’m going to do whatever feels right.
+ - You have to keep running. I always believed I was going to be safe.
+ - People always ask me why I still want to play, but I want to know why no one will give me an opportunity. It’s like they put a stamp on me: ‘Hall of Fame. You’re done. That’s it.’ It’s a goddamn shame.
+ - I haven’t had the time to say, ‘I’m retiring.’ But baseball says, ‘You’re retired.’
+ - I love the game and I wanted to continue playing. It came to a time that I had to stop.
+ - When you’re a kid, you want to be a millionaire.
+ - I can still steal a base anytime I get ready.
+ - My impact on the game was going out there and making things happen.
+ - I like playing for Oakland, they have a very colorful uniform.
+ - You never had the opportunity to play with some of the great ballplayers, but being that close around them, and being in the same category, was a great feeling, to feel that vibe of all the best players who played the game.
+ - Let’s see, for breakfast Rickey will have bacon and eggs, and grits if I can get ’em.
+ - I wanted to be a part of something special and contributing to the launch of a new league was very exciting to me.
+ - I patterned myself after Reggie Jackson. I wanted to have that same swing and hit some homeruns. When I was down in A-ball, I was trying to be Reggie Jackson and I was striking out all the time. And I was like, ‘This isn’t the way Reggie is doing it, so I got to change.’
+ - I have always had fun playing the game of baseball because I loved it so much.
+ - I have to play baseball to make me happy. I have to be an athlete. But when it’s all said and done, I’ll be a normal father. A normal-type house man.
+ - Even the slowest guy can go from first to third and help win a ballgame.
+ - I don’t think I ever got proper credit about being smart about the game.
+ - People say I stole a lot of bases. I stole the bases for a reason. I crossed the plate.
+ - I don’t think I could have dreamt it up any better than how things went, of being at my peak at just the right time, and have everything go my way.
+ - Oakland is home, and you always want to go home. Anytime you get the chance, you’re happy to go home.
+
+49 quotes

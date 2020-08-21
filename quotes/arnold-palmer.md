@@ -1,0 +1,107 @@
+ - I’ve always made a total effort, even when the odds seemed entirely against me. I never quit trying; I never felt that I didn’t have a chance to win.
+ - It’s a funny thing, the more I practice the luckier I get.
+ - The most rewarding things you do in life are often the ones that look like they cannot be done.
+ - Always make a total effort, even when the odds are against you.
+ - Golf is deceptively simple and endlessly complicated; it satisfies the soul and frustrates the intellect. It is at the same time rewarding and maddening – and it is without a doubt the greatest game mankind has ever invented.
+ - Timing is everything in life and in golf.
+ - Hit it hard, go find it and hit it hard again.
+ - Concentration comes out of a combination of confidence and hunger.
+ - If you can concentrate on what you’re doing and have the desire to do the things you have to do to win, you’ll succeed.
+ - The secret of concentration is the secret of self-discovery. You reach inside yourself to discover your personal resources, and what it takes to match them to the challenge.
+ - You must play boldly to win.
+ - Golf is a game of inches. The most important are the six inches between your ears.
+ - I have a tip that can take 5 strokes off anyone’s golf game. It’s called an eraser.
+ - Know how to win by following the rules.
+ - When you play by the rules, defy mental demons, overcome every challenge, and enjoy a walk in the country at the same time – that’s being alive.
+ - Concentration, Confidence, Competitive urge, Capacity for enjoyment.
+ - If you can see it, you can hit it and if you can hit it, you can hole it.
+ - What separates great players from the good ones is not so much ability as brain power and emotional equilibrium.
+ - How did I make a twelve on a par five hole? It’s simple – I missed a four foot putt for an eleven.
+ - What other people may find in poetry or art museums, I find in the flight of a good drive: the white ball sailing up into the sky, reaching its apex, falling and finally dropping to the turf, just the way I planned it.
+ - Success in golf depends less on strength of body than upon strength of mind and character.
+ - What do I mean by concentration? I mean focusing totally on the business at hand and commanding your body to do exactly what you want it to do.
+ - I’m in love with golf, and I want everybody else to share my love affair.
+ - That’s another thing about my father. He made me very conscious of the fact I wasn’t very good and I had to prove to him that I was good. And that hung with me, and I always wanted to play golf with him and show him. He said Never, Never tell anyone how good you are. Show them!
+ - The whole secret to mastering the game of golf – and this applies to the beginner as well as the pro – is to cultivate a mental approach to the game that will enable you to shrug off the bad days, keep patient and know in your heart that sooner or later you will be back on top.
+ - My grandson Sam Saunders has been playing golf since he could hold a club and I spent a lot of time with him over the years. Like my father taught me, I showed him the fundamentals of the game and helped him make adjustments as he and his game matured over the years.
+ - Don’t be ashamed to play safe.
+ - The only really unplayable lie I can think of is when you’re supposed to be playing golf and come home with lipstick on your collar.
+ - What other people may find in poetry or art museums, I find in the flight of a good drive.
+ - I was playing cowboys and Indians in the trees, and then I started hitting the golf club with clubs father sawed off for me, and I began playing right here with my father.
+ - Here is a philosophy of boldness to take advantage of every tiny opening toward victory.
+ - Establish a system you have confidence in and rely on it when you get into tough situations.
+ - Players need to remember they didn’t make golf. Golf made them.
+ - Swing your swing. I know, I did.
+ - Swing your swing. Not some idea of a swing. Not a swing you saw on TV. Not that swing you wish you had. No, swing your swing. Capable of greatness. Prized only by you. Perfect in it’s imperfection. Swing your swing. I know, I did.
+ - I’ve always been a big thinker that the more international competition that we create through sports the better relationships we’ll have with countries.
+ - Golf is deceptively simple, endlessly complicated. A child can play it well and a grown man can never master it. It is almost a science, yet it is a puzzle with no answer.
+ - I can’t afford the luxury of music while I’m flying an airplane. I have to pay attention to what I’m doing.
+ - When I was in college, I thought about becoming an attorney. But I wasn’t smart enough; I hate being cooped up indoors; and I’m too nice a guy.
+ - Putting is a fascinating, aggravating, wonderful, terrible and almost incomprehensible part of the game of golf.
+ - I didn’t get playing professional golf until I was 25 years old. And I always said that if I could make it work, I would play as long as I could walk.
+ - I can sum it up like this: Thank God for the game of golf.
+ - In my early days of flying, if you flew on instruments, you were inevitably going to fly in thunderstorms. That was just a part of the business of flying.
+ - I was born in 1929, that was the depression, so the golf course was manned by my father and two guys, they worked for my dad and they took me with them everywhere they went. And it was fun.
+ - I was national amateur champion. I was 24 years old. My father was there, and I couldn’t wait to see him, and my mother. I went up and was waiting for all the accolades, and my mom was teary and happy and my dad looked at me and said, “Well, boy, you did good,” and that was it.
+ - I never rooted against an opponent, but I never rooted for him either.
+ - Putting is like wisdom – partly a natural gift and partly the accumulation of experience.
+ - Your worst putt will usually be as good as your best chip.
+ - I love America. I wanted to play golf.
+ - Sam Snead will fly anywhere in my plane with me. Sam’s not as worried about the danger as he is about saving money.
+ - The fans, I loved them. My mother would be in the gallery, I would look right at my mother and not remember.
+ - Even before you step up to the ball, have a full battle plan for the hole worked out.
+ - I would not have been able to accomplish a lot of what I did professionally had I not learned to fly myself and owned an airplane. For example, I was able to fly to an exhibition for the day and be back home in time for dinner. I never would have been able to do that flying commercially.
+ - One thing I’ve learned over time is, if you hit a golf ball into water, it won’t float.
+ - An athlete must have a certain cockiness to succeed and win, but an athlete must also care about the game he or she plays.
+ - For years I did take my time, but that was because I hated waiting to hit shots – I adopted a pace where I didn’t have to stand by my ball and wait.
+ - I played high school golf, I played amateur golf and I started getting officers. I was playing pretty good, won amateur tournaments as a junior, and the whole thing.
+ - When you get into competition and get under pressure, and get over that ball and are looking at it, and know you have to hit it, it is having that system to depend on to get that ball to where you want it to be.
+ - Golf is deceptively simple and endlessly complicated.
+ - Everyone I built a course for thinks they have the best golf course in the world and I’m very pleased and proud of that.
+ - If you’re stupid enough to whiff, you should be smart enough to forget it.
+ - I have a psychological feeling about things – and if I have something that I need to accomplish and I accomplish it, I let down after that, and that happened to me in golf.
+ - Frankly, I’m not much for funerals unless it’s absolutely an obligation. I don’t feel it serves much of a purpose to go and see my friends just lying there, dead. I try to pay my respects to my friends when they’re alive.
+ - You can describe my round as having moments of ecstasy and stark raving terror. I looked like I knew what I was doing at times and at other times I looked like a twenty handicap player.
+ - I wanted to emulate my father. I wanted to be as tough as he was. I wanted to do the things that he did. I watched him.
+ - I never felt I could be a complete professional without having won the British Open. It was something you had to do to complete your career.
+ - I never felt that I didn’t have a chance to win.
+ - My father started on this golf course at Latrobe when he was sixteen years old. He was digging ditches when they were building the golf course.
+ - I’m not much for sitting around and thinking about the past or talking about the past. What does that accomplish?
+ - Trouble is bad to get into but fun to get out of. If you’re in trouble, eighty percent of the time there’s a way out. If you can see the ball, you can probably hit it; and if you can hit it, you can move it; and if you can move it, you might be able to knock it in the hole. At least it’s fun to try.
+ - The thing I probably love the most is driving out with the championship trophy under my arm.
+ - If Tiger Woods slamming his club into the ground is the biggest worry wehave, our sport isinprettygood shape.
+ - The game has such a hold on golfers because they compete not only against an opponent, but also against the course, against par, and most surely- against themselves.
+ - When I was growing up, they had just found radio.
+ - A lot of people are afraid of winning. I was afraid I might not win.
+ - A lot of tournaments that I can remember I made a few bad shots and I was afraid I would lose the tournament and it seemed to work, the putts seemed to go in. Just the Desire.
+ - I think today’s athletes generally are spoiled by what’s happened to salaries, but I also think that golfers have maintained the best demeanor of any sport.
+ - I received many years of good advice from my father – how to live, how to play, how to be a gentleman.
+ - I would like to say, however, that a man might be walking around lucky and not know it unless he tries.
+ - I suppose I could think of a lot of things to say about the fact that I still play. But I don’t really need to. I can tell you this, that I enjoy it. I still enjoy it. I like to get out in the air and I like to walk and I like to do the things that are involved in playing golf.
+ - I think I’ve heard somebody say that I was a well-dressed golfer. I guess that has something to do with the fact that a lot of people who play golf don’t dress very well.
+ - I think the guys are more conscious of the fact that being in good physical condition under the conditions that they play will make them better players.
+ - I would like to have won more golf tournaments. But I wouldn’t sacrifice my life. I’ve enjoyed it. I’d love to do it again the same way.
+ - Winning is a drive, it’s a thing that you feel like when I go to bed at night I go to sleep.
+ - Golf never ceases to be a challenge, even when it really is just you and the ball out there and nobody else.
+ - I would never felt good if I hadn’t experienced losing, because losing is part of your life. And it something that if I could teach people to understand that I think it could help them a lot.
+ - I talk to golfers, I talk to my grand kids about their game, and tell them to develop a system, Now, when they’re young. And if they develop that system, it will be the crutch they need to be good. To know that system and make it work for you, know what it is and make it work.
+ - I have won the Australian, I won the British, all PGA championships, but I haven’t won the PGA championship.
+ - I always said that if I have the perfect club then I should play the perfect game.
+ - I try to deign golf courses that are individual in character and individual in their own standing.
+ - I like the Miami because I could play golf all winter.
+ - It is such a disappointment in American political reaction and actions. When some of our politicians are flying around the country in private airplanes all the time, using public services as their mode of private transportation, and then criticizing us who are in business.
+ - All the things that I have derived either directly or indirectly through the game of golf are things I owe a great deal to the game and to the people who support the game.
+ - Had I not become a professional golfer, I think I would have pursued some type of career in aviation.
+ - I feel more strongly than ever about this. I would like the professional game freed of golf carts. Golf is a physical game. If we are playing competitive professional golf, we should walk. When I can’t walk 18 holes, I’ll pack it in.
+ - As long as I can stay competitive and have fun doing what I’m doing, I guess I’ll keep doing it.
+ - If the athlete is fair with the press, he deserves fairness back.
+ - Every day I play golf, that’s my goal. To break 70 the other way. To shoot 70 or better.
+ - I never met a winner who had a work ethic. Not somebody who says I have so much talent that naturally I won.
+ - I enjoy the press. I understand their business.
+ - I am against making golf courses obsolete, going to the national Open and playing half the holes with a one-iron.
+ - I had a system, and the system worked.
+ - I look back, it taught me something – it taught me how to live, how to be a better guy, not let defeat be the end of my life.
+ - On the Old Course at St. Andrews: This is the origin of the game, golf in its purest form, and it’s still played that way on a course seemingly untouched by time. Every time I play here, it reminds me that this is still a game.
+ - I was playing golf in Palm Springs and after a round I asked the waitress in a restaurant to bring me a glass of iced tea and lemonade. A lady sitting nearby heard me and asked the waitress to bring her a “Palmer,” too. The name caught on and the beverage quickly spread around the country.
+
+105 quotes

@@ -1,0 +1,42 @@
+ - No matter how many mistakes you make or how slow you progress, you are still way ahead of everyone who isn’t trying. ~~Tony Robbins
+ - It’s good to learn from your mistakes. It’s better to learn from other people’s mistakes. ~~Warren Buffett
+ - Don’t waste a good mistake, learn from it. ~~Robert T. Kiyosaki
+ - After every mistake, we need to understand that we can look back and learn-so that we can move forward with confidence and avoid making the same mistake again. ~~Zig Ziglar
+ - There are no mistakes or failures, only lessons. ~~Denis Waitley
+ - When you make a mistake, be excited! Analyze what happened, and learn from it. ~~Zig Ziglar
+ - We all make mistakes. If you can’t make mistakes, you can’t make decisions. I’ve made a lot bigger mistakes myself. ~~Warren Buffett
+ - I learn from my mistakes. It’s a very painful way to learn, but without pain, the old saying is, there’s no gain. ~~Johnny Cash
+ - We all make mistakes, and it is better to make them before we begin. ~~Nikola Tesla
+ - A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them. ~~John C. Maxwell
+ - To help yourself, you must be yourself. Be the best that you can be. When you make a mistake, learn from it, pick yourself up and move on. ~~Dave Pelzer
+ - I was born to make mistakes, not to fake perfection. ~~Drake
+ - So next time someone complains that you have made a mistake, tell him that may be a good thing. Because without imperfection, neither you nor I would exist. ~~Stephen Hawking
+ - If someone can prove me wrong and show me my mistake in any thought or action, I shall gladly change. I seek the truth, which never harmed anyone: the harm is to persist in one’s own self-deception and ignorance. ~~Marcus Aurelius
+ - Any action is often better than no action, especially if you have been stuck in an unhappy situation for a long time. If it is a mistake, at least you learn something, in which case it’s no longer a mistake. If you remain stuck, you learn nothing. ~~Eckhart Tolle
+ - Make failure your teacher, not your undertaker. ~~Zig Ziglar
+ - There are no mistakes in life, only lessons. There is no such thing as a negative experience, only opportunities to grow, learn and advance along the road of self-mastery. From struggle comes strength. Even pain can be a wonderful teacher. ~~Robin S. Sharma
+ - With every mistake, we must surely be learning. ~~George Harrison
+ - Don’t ever mistake my silence for ignorance, my calmness for acceptance or my kindness for weakness. Compassion and tolerance are not a sign of weakness, but a sign of strength. ~~Dalai Lama XIV
+ - Every time you quit, someone else gets your prize. Every time you make a mistake, you get closer to yours. ~~Robert T. Kiyosaki
+ - You just keep pushing. You just keep pushing. I made every mistake that could be made. But I just kept pushing. ~~René Descartes
+ - Mistakes are the stepping stones to success. ~~John C. Maxwell
+ - If you make a mistake and do not correct it, this is called a mistake. ~~Confucius
+ - In the real world, the smartest people are people who make mistakes and learn. In school, the smartest people don’t make mistakes. ~~Robert T. Kiyosaki
+ - You will make some mistakes but, if you learn from those mistakes, those mistakes will become wisdom and wisdom is essential to becoming wealthy. ~~Robert T. Kiyosaki
+ - I hope that this year, you make mistakes. If you do, then it means you have tried, learned, lived, pushed yourself, changed you and your world, and most importantly, you’ve done something. ~~Neil Gaiman
+ - Go and make interesting mistakes, make amazing mistakes, make glorious and fantastic mistakes. Break rules. Leave the world more interesting for your being here. ~~Neil Gaiman
+ - Face the giants in your life, slay them, and move on. Do not be daunted by the mistakes and failures in your life. ~~T.D. Jakes
+ - As long as you have the courage to admit mistakes, things can be turned around. ~~Haruki Murakami
+ - There’s a bit of hidden magic in every mistake. The magic is called learning. ~~Robert T. Kiyosaki
+ - You can never learn less; you can only learn more. The reason I know so much is because I have made so many mistakes. ~~R. Buckminster Fuller
+ - If you are born poor its not your mistake, but if you die poor its your mistake. ~~Bill Gates
+ - You build on failure. You use it as a stepping stone. Close the door on the past. You don't try to forget the mistakes, but you don't dwell on it. You don't let it have any of your energy, or any of your time, or any of your space. ~~Johnny Cash
+ - Thinking is the biggest mistake a dancer could make. You have to feel. ~~Michael Jackson
+ - Once we realize that imperfect understanding is the human condition there is no shame in being wrong, only in failing to correct our mistakes. ~~George Soros
+ - Life’s a test, mistakes are lessons, but the gift of life is knowing that you have made a difference. ~~Tupac Shakur
+ - The victim should have the right to end his life, if he wants. But I think it would be a great mistake. However bad life may seem, there is always something you can do, and succeed at. While there’s life, there is hope. ~~Stephen Hawking
+ - A man of genius makes no mistakes; his errors are volitional and are the portals of discovery. ~~James Joyce
+ - Never mistake motion for action. ~~Ernest Hemingway
+ - Time brings an end to everything. We should not mistake for a tragedy what is no more than the passage of time. ~~Robert Breault
+
+40 quotes

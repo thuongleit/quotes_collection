@@ -1,0 +1,27 @@
+ - Life is creation – self and circumstances, the raw material.
+ - Clear thought makes clear speech.
+ - Coercion. The unpardonable crime.
+ - A happy childhood is perhaps the most-fortunate gift in life.
+ - It’s only in silence that you can judge of your relationship to a person.
+ - Dancing brings an endlessness in which nothing matters but to go on dancing – in a room, till the walls disappear – in the open, till the sky, moving as you dance, seems to cleave and let you through.
+ - Night is torment. That is why people go to sleep. To avoid clear sight and torment.
+ - Women who are not living ought to spend all their time cracking jokes. In a rotten society women grow witty; making a heaven while they wait.
+ - Life ought to be lived on a basis of silence, where truth blossoms.
+ - Men would always rather be made love to than talked at.
+ - Suddenly a mist of green on the trees, as quiet as thought.
+ - Quotations are feeble; you always regret making them.
+ - The difference between you and me is that you think to live and I live to think.
+ - If there was a trick, there must be a trickster.
+ - You think Christianity is favorable to women? On the contrary. It is the Christian countries that have produced the prostitute and the most vile estimations of women in the world.
+ - The question was not how to get a job, but how to live by such jobs as I could get.
+ - Deep down in everyone was sorrow and certainty.
+ - In the midst of the happiness they brought there was always a lurking shadow. The shadow of incompatibility; of the impossibility of being at once bound and free. The garden breeds a longing for the wild; the wild a homesickness for the garden.
+ - The better you hear a thing put, the more certain you are there’s another view.
+ - Death must be got through as life had been, just somehow.
+ - No future life could heal the degradation of having been a woman. Religion in the world had nothing but insults for women.
+ - People is themselves when they are children, and not again till they know they’m dying.
+ - Real speech can only come from complete silence. Incomplete silence is as fussy as deliberate conversation.
+ - Marriage is not an institution, it is an intuition.
+ - Every thought vibrates through the universe.
+
+25 quotes

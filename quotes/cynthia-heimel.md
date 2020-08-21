@@ -1,0 +1,45 @@
+ - The only women who don’t believe that sexual harassment is a real problem in this country are women who have never been in the workplace.
+ - If you can’t live without me, why aren’t you dead already?
+ - Women wearing men’s clothes are chic, men wearing women’s clothes make us fall on the floor laughing.
+ - Homework, root canals, and deadlines are the important things in life, and only when we have these major dramas taken care of can we presume to look at the larger questions.
+ - The buying of a self-help book is the most desperate of all human acts. It means you’ve lost your mind completely: You’ve entrusted your mental health to a self-aggrandizing twit with a psychology degree and a yen for a yacht.
+ - Dogs and humans are symbiotic species. We need each other.
+ - Enough about you let’s hear about me.
+ - Dogs are us, only innocent.
+ - You can’t take away knowledge, and it’s dangerous to pretend you never had it.
+ - Here is Heimel’s Law: Anything you fantasize about won’t come true. So just cut it out.
+ - Dogs act exactly the way we would act if we had no shame.
+ - All men are not slimy warthogs. Some men are silly giraffes, some woebegone puppies, some insecure frogs. But if one is not careful, those slimy warthogs can ruin it for all the others.
+ - Never judge someone by who he’s in love with; judge him by his friends. People fall in love with the most appalling people.
+ - Swingers are all from the suburbs and consequently brain-addled by car pools, shopping malls, and welcome wagons.
+ - With dogs, you don’t need gurus. Dogs are forever in the moment. They are always a tidal wave of feelings, and every feeling is some variant of love.
+ - The Pain-Free Shopping Method: Buy a present for you, then a present for a friend. Then another present for you. Then a present for a friend. Then two presents for you. Then a present for a friend. Then go home, get into bed, and pull up the covers.
+ - When women are excited about a date, they go immediately on a diet, because all women know they are hideously obese.
+ - In Manhattan, marriage is a trend. Couples kiss over their arugula and radicchio salads. They fondle each other’s genitals while devouring their pasta puttanesca. By the time the tiramisu arrives, they’ve slid under the table.
+ - This is New York, a combat zone, and everyone has to have an angle or they’re not allowed over the bridges or through the tunnels. Let them have their angles, it’s what they live for. You’ve got better things to worry about, like making sure the people that actually matter don’t try any funny stuff.
+ - You love somebody, and then you don’t love them anymore. But if you really love somebody, you always love them, don’t you? Isn’t there always some small part of you that reads their horoscope in the paper everyday?
+ - Reading is an escape, an education, a delving into the brain of another human being on such an intimate level that every nuance of thought, every snapping of synapse, every slippery desire of the author is laid open before you like, well, a book.
+ - There is a microscopically thin line between being brilliantly creative and acting like the most gigantic idiot on earth.
+ - The media know exactly what they’re doing, focusing our attention on Arsenio’s hairdo. We need to keep our brains brimming with rubbish. If we didn’t, we might think about things.
+ - Men, being conditioned badly, are always feeling nooses closing around their necks, even dumpy boors no girl would take on a bet.
+ - It seems to me, correct me if I’m wrong, that there are an awful lot of people in Manhattan. And it’s getting worse.
+ - Wearing makeup is an apology for our actual faces.
+ - Show me a woman who is prouder of her clean kitchen than of her collection of lingerie and I’ll show you a woman with enlarged pores.
+ - In New York we have streets exploding and innocent Buddhist girls being stabbed in the neck and cabdrivers refusing to help her. If we happen into a nightclub by mistake, when we leave the doorman will be lying in the street surrounded by police.
+ - When in doubt, make a fool of yourself.
+ - We have to have faith in ourselves. I have never met a woman who, deep down in her core, really believes she has great legs. And if she suspects that she might have great legs, then she’s convinced that she has a shrill voice and no neck.
+ - The country is suffering from musical-chairs syndrome. We all dance around for a bit and then when we try to sit down again, somebody doesn’t have a chair. We’re running scared; we want ours.
+ - You know what we can be like: see a guy and think he’s cute one minute, the next minute our brains have us married with kids, the following minute we see him having an extramarital affair. By the time someone says, ‘I’d like you to meet Cecil,’ we shout, ‘You’re late again with the child support!’
+ - Contrary to popular cable TV-induced opinion, aerobics have nothing to do with squeezing our body into hideous shiny Spandex, grinning like a deranged orangutan, and doing cretinous steps to debauched disco music.
+ - Not one woman over seventeen has any faith in her skin tone, and no woman over thirty can ever regard her upper arms with equanimity.
+ - A person who uses party as a verb is a person who will walk into a shop and walk out wearing a rubber jumpsuit.
+ - One does not have to sleep with, or even touch, someone who has paid for your meal. All those obligations are hereby rendered null and void, and any man who doesn’t think so needs a quick jab in the kidney.
+ - Pity the poor infant. Born perfect into the world from imperfect parents.
+ - Possessions, for the terminally frightened, bring peace of mind.
+ - Friends are the twenty-first-century version of extended families.
+ - Women are not ladies. The term connotates females who are simultaneously put on a pedestal and patronized.
+ - A sense of humor isn’t everything. It’s only 90 percent of everything.
+ - A comedian is not funny unless he is taking his demons out for a walk.
+ - Lots of you know me as a lone, hard-bitten columnist, prone to lurking on deserted rocky promontories while searching for my muse.
+
+43 quotes

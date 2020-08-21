@@ -1,0 +1,55 @@
+ - You must create your own world. I am responsible for my world.
+ - When you put things together, things that other people have thrown out, you’re really bringing them to life – a spiritual life that surpasses the life for which they were originally created.
+ - I think all great innovations are built on rejections.
+ - Character is the architect of the being.
+ - True strength is delicate.
+ - I see no reason why I should tickle stones or waste time on polishing bronze.
+ - A white lace curtain on the window was for me as important as a great work of art. This gossamer quality, the reflection, the form, the movement. I learned more about art from that than I did in school.
+ - I don’t demand that all work be a masterpiece. What I am doing is the right thing for me – that is what I am and this is living. It reflects me and I reflect it.
+ - I have made my world and it is a much better world than I ever saw outside.
+ - I never liked the middle ground-the most boring place in the world.
+ - I think that in the sexual act, as delightful as it can be, the very physical part of it is, yes, a hammering away. So it has a certain brutality.
+ - I believe that the physical is the geography of the being.
+ - I always wanted to show the world that art is everywhere, except it has to pass through a creative mind.
+ - What we call reality is an agreement that people have arrived at to make life more livable.
+ - My mother was very sympathetic. She was the one who really gave me the courage to take my freedom.
+ - I think people should think a million times before they give birth. The guilts of motherhood were the worst guilts in the world for me. They were really insurmountable. You see, you are depriving another human being of so many things, and the other party also knows it.
+ - I feel totally female. I didn’t compete with men and I don’t want to look like a man! I love being a lady and dressing up and masquerading and wearing all the fineries. I’m breaking down the idea that the artist has to look poor, with berets.
+ - I’ve taught, and the first thing I did when I taught art, was not to teach art.
+ - A whisper can be stronger, as an atom is stronger, than a whole mountain.
+ - We must create our own world.
+ - I make collages. I join the shattered world creating a new harmony.
+ - No matter how individual we humans are, we are a composite of everything we are aware of. We are a mirror of our times.
+ - I believe in my work and in the joy of it. You have to be with the work and the work has to be with you. It absorbs you totally and you absorb it totally.
+ - The freer that women become, the freer men will be. Because when you enslave someone, you are enslaved.
+ - You take a painting, you have a white, virginal piece of canvas that is the world of purity, and then you put your imagery on it, and you try to bring it back to the original purity.
+ - Some of us come on earth seeing – some of us come on earth seeing color.
+ - Who is an artist? I say we take a title. No one gives it to us. We make our lives.
+ - My husband’s family was terribly refined. Within their circle you could know Beethoven, but God forbid if you were Beethoven.
+ - I’ve been so lonely for long periods of my life that if a rat walked in I would have welcomed it.
+ - I think most artists create out of despair. The very nature of creation is not a performing glory on the outside, it’s a painful, difficult search within.
+ - I never for one minute questioned what I had to do. I did not think for one minute that I didn’t have what I had. If just didn’t dawn on me. And so if you know what you have, then you know that there’s nobody on earth that can affect you.
+ - If you have got a living force and you’re not using it, nature kicks you back. The blood boils just like you put it in a pot.
+ - Another thing about creation is that every day it is like it gave birth, and it’s always kind of innocent and refreshing. So it’s always virginal to me, and it’s always a surprise.
+ - In the end, as you get older and older, your life is your life, and you are alone with it.
+ - I’m in tune with the right vibrations in the universe when I’m in the process of working.
+ - I knew that a day I took away from the work did not make me too happy.
+ - When you are doing a piece you are with it. You don’t want to wait until next week, when experience will have given you something else.
+ - What we start with is a conviction to fulfill our being. Horses, trees fulfill themselves. Why shouldn’t people.
+ - I feel that women ‘and men,’ but I mean the ‘individual,’ can be totally feminine and still be totally powerful.
+ - I was discouraged about life, discouraged about people being blind, but I don’t think I had a day that I ever questioned creativity. There has never been a day like that.
+ - Most of us have to be transplanted before we blossom.
+ - I began to stack my sculptures into an environment. It was natural. It was a flowing of energy.
+ - A woman may not hit a ball stronger than a man, but it is different. I prize that difference.
+ - In my studio I’m as happy as a cow in her stall. That’s the only place where everything is all right.
+ - I only know this – that you can’t give advice to an artist.
+ - It is as hard to take success as it is failure.
+ - Early in school, they called me ‘the artist.’ When teachers wanted things painted, they called upon me, they called upon ‘the artist.’ I am not saying that I learned my name, animals can learn their names, I am saying that they learned it.
+ - Greatness breaks laws.
+ - It gave me great pleasure to think that I could take wood, make it good, and make people like Rockefeller buy it with paper money.
+ - It’s a hell of a thing to be born, and if you’re born you’re at least entitled to your own self.
+ - I still want to do my work. I still want to do my livingness. And I have lived. I have been fulfilled. I recognized what I had, and I never sold it short. And I ain’t through yet.
+ - The outside wold pressures you into a mold, but if you don’t accept that – you gamble with life. Call it gambling.
+ - Everytime I put on clothes, I’m creating a picture.
+
+53 quotes

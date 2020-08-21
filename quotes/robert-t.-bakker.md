@@ -1,0 +1,24 @@
+ - Dinosaurs are the best way to teach kids, and adults, the immensity of geologic time.
+ - It’s very simple why kids are crazy about dinosaurs – dinosaurs are nature’s Special Effects. They are the only real dragons. Kids love dragons. It’s not just being weirdly shaped and being able to eat Buicks. It’s that they are real.
+ - I also discovered the only complete Brontosaurus skull.
+ - Stegosaurus was common only on well drained, dry soil.
+ - Inveterate creationists, then or now, never allow their faith to fall victim to facts.
+ - To me it seems that the warm blooded dinosaurs replaced advanced mammal ancestors that were warm blooded, also.
+ - If we measured success by longevity, then dinosaurs must rank as the number one success story in the history of land life.
+ - Often extinctions in the ocean occur at the same time as those on land. Then again, the ice age extinctions lost many big animals, but not many sea faring ones.
+ - One researcher just determined that African and Indian elephants make each other sick. When a new animal or plant is introduced to a habitat bad things happen. The biggest danger to native wildlife is foreign wildlife.
+ - Birds evolved from a small raptor like theropod.
+ - Since then I have held many jobs at museums in Colorado and Wyoming. I have also taught summer courses at the University of Colorado.
+ - Feathers predate birds.
+ - The public image of dinosaurs is tainted by extinction. It’s hard to accept dinosaurs as a success when they are all dead. But the fact of ultimate extinction should not make us overlook the absolutely unsurpassed role dinosaurs played in the history of life.
+ - Traditional dinosaur theory is full of short circuits. Like the antiquated wiring in an old house, the details sputter and burn out when specific parts are tested.
+ - As an undergraduate I held many small jobs as an illustrator.
+ - I want to be the Bob DeNiro of the Jurassic.
+ - One of my major goals is to develop a web of the small Wyoming museums and create a major museum system. There are about eight of these museums, and they are all scattered.
+ - Also, while I was at Yale, I had a job teaching kids at the museum.
+ - I also got a chance to go to the American Museum in New York, which helped my interest.
+ - I want to find a voracious, small-minded predator and name it after the IRS.
+ - In 1941 Richard Owen said that the dinosaurs were almost hot blooded.
+ - At Harvard I was in charge of the comparative anatomy labs.
+
+22 quotes

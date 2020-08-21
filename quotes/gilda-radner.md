@@ -1,0 +1,32 @@
+ - Life is about not knowing, having to change, taking the moment and making the best of it, without knowing what’s going to happen next.
+ - It’s always something.
+ - I wanted a perfect ending. Now I’ve learned, the hard way, that some poems don’t rhyme, and some stories don’t have a clear beginning, middle and end.
+ - I’d much rather be a woman than a man. Women can cry, they can wear cute clothes, and they’re the first to be rescued off sinking ships.
+ - Humor is just truth, only faster!
+ - There is no real security except for whatever you build inside yourself.
+ - Adopted kids are such a pain – you have to teach them how to look like you.
+ - Having cancer gave me membership in an elite club I’d rather not belong to.
+ - It’s like my father always said to me, he said to me, he said, Roseanna Roseanadana, it’s always something. If it isn’t one thing – it’s another! It’s always something.
+ - I base most of my fashion taste on what doesn’t itch.
+ - Fame changes a lot of things, but it can’t change a light bulb.
+ - Cancer is probably the most unfunny thing in the world, but I’m a comedian, and even cancer couldn’t stop me from seeing the humor in what I went through.
+ - The goal is to live a full, productive life even with all that ambiguity. No matter what happens, whether the cancer never flares up again or whether you die, the important thing is that the days that you have had you will have lived.
+ - I think clothes should make you feel safe. I like clothes you want to go to sleep in. I sometimes stand in front of a mirror and change a million times because I know I really want to wear my nightgown.
+ - Dreams are like paper, they tear so easily.
+ - I grew up in front of a television. I guess I’ll grow old inside of one.
+ - While we have the gift of life, it seems to me the only tragedy is to allow part of us to die – whether it is our spirit, our creativity or our glorious uniqueness.
+ - I would rather be funny than gorgeous, absolutely. Because it’s too hard to be gorgeous, you know. I could make a stab at gorgeous as long as I had something funny to say to get out of it.
+ - I can always be distracted by love, but eventually I get horny for my creativity.
+ - Some stories don’t have a clear beginning, middle and end.
+ - I love being a woman. You can cry. You get to wear pants now. If you’re on a boat and it’s going to sink, you get to go on the rescue boat first. You get to wear cute clothes. It must be a great thing, or so many men wouldn’t be wanting to do it.
+ - I think dogs are the most amazing creatures; they give unconditional love. For me they are the role model for being alive.
+ - I have always found men who were funny, irresistible. It’s rare that I ever based love on looks or superficial things, but it a guy made me laugh-and that didn’t mean he had to be in comedy professionally – I was hooked.
+ - Show business is like riding a bicycle – when you fall off, the best thing to do is get up, brush yourself off and get back on again.
+ - It’s such an act of optimism to get through a day and enjoy it and laugh and do all that without thinking about death. What spirit human beings have!
+ - I would say that Lucy, ‘I Love Lucy,’ she was my idol.
+ - I’ve learned what I can control is whether I am going to live a day in fear and depression and panic, or whether I am going to attack the day and make it as good a day, as wonderful a day, as I can.
+ - Comedy is very controlling – you are making people laugh.
+ - You feel completely in control when you hear a wave of laughter coming back at you that you have caused.
+ - I’m not really an impersonator.
+
+30 quotes

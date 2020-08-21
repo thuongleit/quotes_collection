@@ -1,0 +1,46 @@
+ - Certainly going back to Sherlock Holmes we have a tradition of forensic science featured in detective stories.
+ - The best way to learn about writing is to study the work of other writers you admire.
+ - Throat clutching from the outset! The Never List stands as a sterling example of psychological thriller writing at its best. Cancel appointments and give up on sleep. It’s that kind of book.
+ - Of course, all writers draw upon their personal experiences in describing day-to-day life and human relationships, but I tend to keep my own experiences largely separate from my stories.
+ - When it comes time to write the book itself I’ll shut the lights out, picture the scene I’m about to write then close my eyes and go at it. Yes, I can touch type.
+ - I liked the challenge of writing in a very concise structure in which both meaning and form are important.
+ - It’s becoming apparent that I like bad boys. That’s one of my problems. They’ve all been bad boys. You’re one too. You’re a bad boy. But, I think you’re a good bad boy.
+ - And life changes. Maybe just a little, maybe a lot. And at some point, it just isn’t worth the fight to fix it.
+ - But one does not make living writing poetry unless you’re a professor, and one frankly doesn’t get a lot of girls as a poet.
+ - If you have a craftsman’s command of the language and basic writing techniques you’ll be able to write – as long as you know what you want to say.
+ - In suspense novels even subplots about relationships have to have conflict.
+ - I was editor of my high school literary magazine and a reporter for the school newspaper.
+ - Trying to write books with a subject matter or in a genre or style you’re not familiar with is the best way to find the Big Block looming.
+ - She was reflecting back on a truth she had learned over the years: that people heard what they wanted to hear, saw what they wanted, believed what they wanted.
+ - I also try very hard to create characters – both heroes and villains – with psychological depth.
+ - When you work alone, you need to socialize at some level.
+ - The outline is 95 percent of the book. Then I sit down and write, and that’s the easy part.
+ - I’ve often said that there’s no such thing as writer’s block, the problem is idea block.
+ - It means working harder to do the research but I don’t really mind – I don’t think I have what it takes to chase criminals through back alleys and wade through blood at crime scenes.
+ - My books are primarily plot driven but the best plot in the world is useless if you don’t populate them with characters that readers can care about.
+ - She believed not in divine salvation but in the proposition that we poor mortals are fully capable of saving ourselves, if conditions and inclinations are right, and the evidence of this potential is found in the smallest of gestures, like the uncertain resting of a large hand on a bony shoulder.
+ - Too much screaming in Congress. Too much screaming everywhere.
+ - Six Seconds is a great read. Echoing Ludlum and Forsythe, author Mofina has penned a big, solid international thriller that grabs your gut – and your heart – in the opening scenes and never lets go.
+ - Ideally, I like to integrate the human issues into the suspense story itself.
+ - In other words, the people who populate my books are more than caricatures.
+ - In the shaded portions where the two spheres of different lives meet, certain fundamentals- moods, loves, fears, angers- can’t be hidden. That’s the contract.
+ - Sometimes you can’t be what you ought to be, you can’t have what you ought to have.
+ - People with children and people with their own business always pick up a ringing phone.
+ - Robert Rotenberg does for Toronto what Ian Rankin does for Edinburgh.
+ - We have years to converse with someone, to blurt and rant, to explain our desires and anger and regrets – and oh how we squander those moments.
+ - Hardcover books are fairly expensive these days and to read one requires a significant commitment of time in our busy society. So I want to make sure that when readers buy one of my books they get something they’re familiar with.
+ - People want to avoid the past. I suppose that’s natural. When we tally up all we’ve said and done over the years, despite the wonderful memories, the regrets may be fewer but stand out more prominently, glowing coals that we can never quite extinguish, try though we might.
+ - I write pretty much anywhere – on planes, in hotel rooms, anywhere in my house.
+ - That’s the past for you. Not only does it come back at the most unexpected, and inconvenient, times but it’s set in stone.
+ - So I work hard to present the human side of my characters while not neglecting the plot.
+ - For me a thriller is a very carefully structured story.
+ - Generally my typical books have lots of twists and turns a big surprise ending and then usually another surprise at the end and ideally, as in Garden of Beasts, we get to the very end and we find at the last few pages that there’s yet another surprise.
+ - In general, I think, less is more, and that if a reader stops reading because a book is too icky then I’ve failed in my obligation to the readers.
+ - Readers are paramount. I live to write books for them.
+ - I spend eight months outlining and researching the novel before I begin to write a single word of the prose.
+ - I spend about eight months researching and outlining my book.
+ - You think publishing is tough but the music world is ten times tougher.
+ - I like the way words go together and I like the gamesmanship of writing poetry. It is such a challenge.
+ - Breathtakingly real and utterly compelling, Immoral dishes up page-turning psychological suspense while treating us lucky readers to some of the most literate and stylish writing you’ll find anywhere today.
+
+44 quotes

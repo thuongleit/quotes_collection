@@ -1,0 +1,149 @@
+ - I’m a naturist at heart. I love being on beaches where everyone is naked. Ugly young people, beautiful old people, whatever. It’s so unsexual and so liberating...
+ - I love photography, and I love the art of photography.
+ - You write your life story by the choices you make. You never know if they have been a mistake. Those moments of decision are so difficult.
+ - It has nothing to do with clothing or makeup. Just put your shoulders back and chin up, and face the world with pride.
+ - I’m not a communist, of course. But I do think that everything is down to economics. Capitalism doesn’t change.
+ - I believe that if you want to go make your mark on the world you’ve got to go out and do it. Don’t be shy, be adventurous.
+ - You can’t control how other people see you or think of you. But you have to be comfortable with that.
+ - I think of myself as being a bit of a wimp deep down – a bourgeois wimp – and I’m fighting that. I think all Brits are, maybe.
+ - Women have got to stop being polite. If I ever had children, which I don’t, the first thing I’d teach a girl of mine is the words ‘f – off.’
+ - A woman with knowledge is something that frightens the status quo quite a lot.
+ - I couldn’t handle the rules the Queen has to live by at all, and very few of us could. It’s a golden cage, really. You’re never alone in that role – you are always surrounded by security.
+ - I have never in my life found myself in a situation where I’ve stopped work and said, ‘Thank God it’s Friday.’ But weekends are special even if your schedule is all over the place. Something tells you the weekend has arrived and you can indulge yourself a bit.
+ - The timing of comedy is so difficult. You’ve got to leave room for a laugh, you don’t want to kill the laugh, but on film, you can’t just suddenly stop for a laugh and then carry on. So, I think it’s a real art form, comedy on film.
+ - I learned quite early on in life that we are all two people. And one of those people none of us will ever know.
+ - I’m a would-be rebel. The good girl who’d like to be a bad one.
+ - It seems to me that the years between eighteen and twenty-eight are the hardest, psychologically. It’s then you realize this is make or break, you no longer have the excuse of youth, and it is time to become an adult – but you are not ready.
+ - It was never my intention to marry anybody. Economics are basically the only reason to get married, but I’m very glad I did it.
+ - Hollywood is a very small world; the people who matter matter, and the people who don’t matter are just like nothing.
+ - Actors are rogues and vagabonds. Or they ought to be.
+ - I’m not an impersonator. I’m a lousy impersonator, actually.
+ - I love photography and I love the art of photography. So when I’m working with high-level art photographers, I give them artistic freedom because I want that for myself when it’s my turn to do my work and I never try and control it or say I’ll only do this or I want it like that.
+ - I love men that love women. Morgan Freeman, who I worked with on ‘RED,’ was very flattering to me. But he is flattering to all women. He is a woman-charmer.
+ - Working away from my husband for long periods is good and bad. It stops us taking each other for granted and gives us space, but I miss him terribly.
+ - I used to look out the window of my bedroom as a kid, and there were these stars that, in my mind, made a big “A” in the sky. I thought my destiny was to go there.
+ - There’s no good way to waste your time. Wasting time is just wasting time.
+ - I am quite spiritual. I believed in the fairies when I was a child. I still do sort of believe in the fairies. And the leprechauns. But I don’t believe in God.
+ - When you’re young and beautiful, you’re paranoid and miserable.
+ - I still have a Gypsy sense of adventure. I don’t think I have slept in the same bed for more than three or four months my whole life. I am always planting vegetables that I never get to eat and flowers that I never see flower. I have always moved around the world.
+ - Sometimes nudity is sexy. Sometimes it’s not. Sometimes being clothed is more sexy than being nude. I think people tend to get the two mixed up.
+ - Love thy neighbor is difficult. That’s why everybody – wars, you know. It’s the hardest. And it’s the most important. And respect thy neighbor. Love and respect. It means respect, really. Respect thy neighbor. Respect the other, the different.
+ - Where you grew up becomes a big part of who you are for the rest of your life. You can’t run away from that. Well, sometimes the running away from it is what makes you who you are.
+ - I don’t mind being sexy, but on my terms. To this day, I love sexuality. I love the art of sexuality. I love Lady Gaga and the performance of sexuality. The mysterious, the artistic and the slightly perverse. I’m interested in all that.
+ - The trick in life is learning how to deal with it.
+ - Parkinson’s is a slow but inevitable process. It’s hard living with it on a daily basis. The difficulty facing people with it is that they never quite know ‘Can I or can’t I do this today?’
+ - I’m not a republican any more. Not so voraciously anyway – I’m not in favour of the concept of monarchy, but I do see the good in it if there’s a good person in the role.
+ - Girls go out together to see a chick flick or something. I loathe, I hate, chick flicks.
+ - I remember thinking, when I was in my early 30s, that this is the best age to be, and I still believe your 30s are a wonderful time.
+ - I prefer the finesse of French humour. English humour is more scathing, more cruel, as illustrated by Monty Python and Little Britain.
+ - We’re all idiots when we’re young. We don’t think we are, but we are. So we should be.
+ - Patience can be a good thing – but not necessarily. Sometimes it’s not so bad to be impatient. I’m a little bit too polite.
+ - At the time of the Silver Jubilee, I was a grumpy anti-monarchist. I didn’t celebrate and was appalled by the celebrations. In my idiocy, I missed out! I feel completely differently now compared with that time.
+ - The hardest period in life is one’s twenties. It’s a shame because you’re your most gorgeous, and you’re physically in peak condition. But it’s actually when you’re most insecure and full of self-doubt. When you don’t know what’s going to happen, it’s frightening.
+ - All you have to do is to look like crap on film and everyone thinks you’re a brilliant actress. Actually, all you’ve done is look like crap.
+ - I don’t share lots of the phobias that horror movies tap into. I don’t mind spiders or snakes or darkness.
+ - There’s a scary moment when you realise you’re no longer the youngest person in the room. Especially if you’ve been a successful young person. That’s followed, of course, by the realisation that you’re actually the oldest person in the room.
+ - Writers can get very angry when an actor says, “I don’t know, I don’t feel very comfortable with this line.” Sometimes though, you’re working with a writer for whom that is simply not apt – like Harold Pinter.
+ - My dad’s Russian. My mother’s English. I would say my bottom half is Russian.
+ - I am not too keen on my nose, I don’t like my knees, I hate my ankles, I am unsure about my behind, I don’t like my legs at all. I am not too sure about my chin, my forehead is a bit dodgy. But, overall, I can live with it.
+ - When you do a voice in an animated film, you don’t see the finished product at all. You’re not animating. You’re not doing the voice on the finished product. You’re doing the voice long before.
+ - Being powerful is so much more interesting than being beautiful.
+ - I think still it is very fine not to want children. There are far too many people in the world. It is my contribution to ecology.
+ - I have no maternal instinct whatsoever. Motherhood holds no interest for me.
+ - There’s nothing sexy about doing a nude scene. It’s rather uncomfortable. I like dressing up rather than dressing down.
+ - Southend is a dormitory town for London. But it also had this thing of being the playground of the East End – a glamorous holiday town.
+ - I have to say, without sounding like a total tosser, that everything I’ve learned in life, and that has taken me out of my natural interior life, has been with men. They exposed me to things that I wasn’t aware of. I learned from all the guys.
+ - There isn’t a King Lear for women, or a Henry V, or a Richard III. You reach a level where you can handle that stuff technically and mentally, and it’s not there.
+ - I’m not beautiful; I clean up nice.
+ - I resent having witnessed the survival of some very mediocre male actors and the professional demise of the very brilliant female ones.
+ - I drink just as much tea when I’m in Los Angeles as I do when I’m in London. I take my tea bags with me wherever I go.
+ - Flesh sells. People don’t want to see pictures of churches. They want to see naked bodies.
+ - Words can be used for venal purposes. Words are incredible sources of propaganda and can cause terrible havoc.
+ - Wherever I am in the world, if I get free time when I’m filming I always hire a car, take to the road, drive for miles and explore.
+ - When you’re young, you wonder what all these old people are droning on about, trying to impart their wisdom. It’s not relevant to you because being young is such a specific thing. Thank God for that. Thank God for the young people who go out and demonstrate against rampant capitalism or whatever.
+ - Two phrases I hate in reference to female characters are ‘strong’ and ‘feisty.’ They really annoy me. It’s the most condescending thing. You say that about a three-year-old. It infantilises women.
+ - It’s a mystery that thing about chemistry because often people who hate each other in real life and hate each other on the set have great chemistry on the screen. And people who love each other in real life and love each other on the set have absolutely no chemistry whatsoever.
+ - When you’re 16, you think 28 is so old! And then you get to 28 and it’s fabulous. You think, then, what about 42? Ugh! And then 42 is great. As you reach each age, you gain the understanding you need to deal with it and enjoy it.
+ - I don’t think it’s good to try and change anyone. The trick and the mystery – of relationships and life in general – is to learn to live with the bits you don’t like.
+ - The role of women has always been undervalued in the spy world, always undermined in terms of recognition. Unfairly so. It’s a world that needs women.
+ - I believe kids shouldn’t be taught Shakespeare. They should experience it first by seeing a great production.
+ - I don’t throw a lot of parties. I find throwing parties a bit intimidating.
+ - I am British. I love Britain for all its faults and all its virtues. My husband is American and I am largely based in Los Angeles, but whenever someone asks me where home is, I automatically say ‘London.’
+ - I don’t know who I am. But I do know who I’m not. I have occasionally tried playing people I’m definitely not, and that wasn’t a very pleasant experience.
+ - It’s outrageous. It’s ridiculous. And ’twas ever thus. We all watched James Bond as he got more and more geriatric, and his girlfriends got younger and younger. It’s so annoying.
+ - I believe in meditation – it’s a good tool to centre yourself, but unfortunately, I’m too lazy to do it. It’s very hard work, and I prefer to watch ‘Nothing To Declare’ on TV!
+ - I’d describe myself as a Christian who doesn’t believe in God.
+ - Humor in a relationship is so important. Many women will say that. Some say, ‘If they can make you laugh, it’s the sexiest thing on earth.’
+ - I was never a left-winger, actually. I was a pretend left-winger because it was more interesting than being a right-winger.
+ - Once a film gets into production, the actors sometimes begin to have more input than a writer does.
+ - Directors always used to be like the police to me – the enemy, the people to tell me what to do when I didn’t want to do it. But I’ve lived with one for a while now and I guess I can put myself more in their position. You shouldn’t be too sympathetic to them.
+ - You have to go through the long, painful process of learning techniques to be able to recognize a “good accident” or a “bad accident.”
+ - I don’t get to play the same role over and over in different movies. The roles that I get to play are quite varied, which is great.
+ - People often ask me whether I prefer theater or film, and the answer is that I prefer the one I’m not doing: The grass is always greener.
+ - I still suffer terribly from stage fright. I get sick with fear. Not every night, but at the beginning and on occasion – not necessarily when I’m expecting it. You just have to cope with it – take it on the chin and work through it, trying to use the adrenalin to perform.
+ - I’d like to see a much more open Monarchy, myself. I used to think they were completely useless and we should get rid of them. I don’t necessarily feel that way anymore. I’m still ambivalent, I still loathe the British class system, and the Royal family are the apex of the British class system.
+ - I always love working with young actors, because there’s always something to learn. It’s always exciting to see the next generation and how they approach things and what’s great about them and what’s not so great about them.
+ - I hate people eating on film. I hate it even worse on the radio, when people eat on the radio. I just can’t stand it.
+ - It seems to me that the years between eighteen and twenty-eight are the hardest, psychologically .
+ - Everyone wants to be a movie star or a model, to be in the papers, but few realise just what hard work it is, getting up early, and so on.
+ - Like journalists. The police have an extremely sick sense of humor, very guarded, very private, very male, which they need to survive on an everyday level. I don’t think anyone has ever managed to tap that on the screen – it would actually be too shocking.
+ - I’m not strong-willed, actually. I’m a complete pushover. I love to be told what to do.
+ - I’ve always found as an actress that the best thing to do in film or TV or theater is just to lose yourself in it. Think of the story, the character, the worlds we’re in, and forget everything else.
+ - Right after winning the Oscar, when everyone was going home, they let these little gold Oscary shapes flutter down from the ceiling. Leonardo DiCaprio came over, bowed down, and kissed my hand. It was the most fabulous moment – such a lovely gesture. He didn’t say anything.
+ - I am so happy that I didn’t have children. Well, you know, because I’ve had freedom. And I’ve so loved my freedom.
+ - Women are always self-effacing and self-denying. There’s a term that enrages me, and I always used to swear that I’d never play characters described that way. The term is “long-suffering.”
+ - The French always seemed to be so chic. The food was better, the clothes were better, the makeup was better, the hair was better. Everything was better in France.
+ - The great marriages are partnerships. It can’t be a great marriage without being a partnership.
+ - When women get great roles in life, they start to get great roles in films and TV. Look at Janet Reno, Madeleine Albright, and Mrs. Thatcher. Because those images are coming at us in life, they are reflected in acting.
+ - My grandfather had come over as a member of the czarist army, to make an arms deal with the British government. Being a blinkered military man, he was unaware that the Russian Revolution was about to take place.
+ - Being me right now is sort of amazing.
+ - People with Parkinson’s are not some weird people on the edge of human experience.
+ - I woke up one day and realized I could never be an American.
+ - You could build three hospitals with the cost of one film and I take that very seriously.
+ - Painters hate having to explain what their work is about. They always say, ‘It’s whatever you want it to be’ – because I think that’s their intention, to connect with each person’s subconscious, and not to try and dictate.
+ - I think every woman in our culture is a feminist. They may refuse to articulate it, but if you were to take any woman back 40 years and say, ‘Is this a world you want to live in?’ They would say, ‘No.’
+ - When I was about 25, I went to a hand reader, this Indian guy in a funky neighborhood. He said: The height of your success won’t happen until you’re in your late 40s.
+ - I can’t help being Christian because I was brought up in Britain, and the morality of Christianity is part of the fabric of this country.
+ - I was never that kind of star. I was never cast because I was gorgeous.
+ - I loathe, I hate, chick flicks.
+ - When I’m choosing projects to be a part of it’s always a combination of so many different things. The primary thing is the director. But a very important element is, is it different enough from anything else I’ve ever done, or what I’ve last done.
+ - You have to allow life to play itself out.
+ - I think it’s always hard for people to get their head around the fact that populist, commercial films can also actually be great works of art.
+ - They’re called ‘action scenes’ because they do the acting for you. You don’t have to act in action scenes. The action does it all for you. It’s great.
+ - I’m under the impression that this notion of decency is disappearing from our society where conflicts are made worse on cinema and on television, where people are nasty and cruel on the Internet and where, in general, everybody seems to be very angry.
+ - There’s a heartbeat in any country that carries on regardless – at least in Europe. That’s what worries me about America, because I’m not sure what that heartbeat is – unless it’s the heartbeat of someone who’s just arrived, who just ran over the border two weeks ago.
+ - I don’t like the word ‘strong,’ because a strong character is never an interesting character. A character is made interesting by their vulnerabilities and their weaknesses.
+ - It’s great to be queen!
+ - When you’re 16, 30 seems ancient. When you’re 30, 45 seems ancient. When you’re 45, 60 seems ancient. When you’re 60, nothing seems ancient.
+ - My parents believed in education and economic security, and I thank them for it. Because I think that’s part of what’s made my life stable. It was instilled in me. You have to be able to pay your bills. You do not get into debt. And I never have been.
+ - I’ve always been battling against my sense of dignity and refinement. I was embarrassed by any bodily functions when I was younger. I could never even blow my nose.
+ - I became an actress because I discovered the world of the imagination when I was about 14 or so and the concept that you could engage in this amazing world of storytelling. I saw a production of Hamlet, and I didn’t know Hamlet died in the end.
+ - It’s very easy to just shout: ‘Off with their heads!’ Maybe in doing that you might lose something very valuable. I would like to see the monarchy continue, but in a more democratic fashion.
+ - I think a lot of my work has been a weird attempt to liberate myself, but it’s not altogether successful.
+ - Ill-informed intuition is fantastic – it’s what great art is. So really old painters or writers or actors are brilliant, because they’ve finally reached the point when they can let go of al technique.
+ - Acting is acting, but acting is different in almost always every project, and very, very different in this context.
+ - Nothing is quite so emotional and passionate as what goes on inside of a family. People are driven to distraction by a father or a mother or a husband. Or a child.
+ - What’s great in the modern world is that it’s becoming easier and easier for people to create without having access to large sums of money. They need access to certain technologies, but the cost is far less than it used to be.
+ - American actors who voice animated movies are so brilliant at it, because by the nature of American speak, it’s full of energy and full of commitment. And as a British actor, we have to kind of learn that.
+ - The important thing is to bring people with Parkinson’s into our world and for the public to have a real understanding of it, as they’ve beginning to have with autism.
+ - As an actor, those are the roles that you long for. You always want something that’s going to kick your last role out of the water and put you off on a new path.
+ - I always feel when you work with an artist and whenever I work with a really good photographer, I try to give him or her their own artistic freedom because that’s the way you get the best work or at least the most interesting work.
+ - Gardening is learning, learning, learning. That’s the fun of them. You’re always learning.
+ - The poor Oscars – they always get slammed in the press.
+ - I have done film, television and theatre – all at a pretty substantial level – I don’t think it’s possible for American actors to do that.
+ - People become more interesting from about 25 – they develop character and their personalities come out.
+ - The control and understanding of our personal fears is one of the most important undertakings of our lives.
+ - Americans are very good at animating voices. I don’t know why. They have a freedom with them that we British actors find more difficult to get to.
+ - I think we all have a dream of what it would be like not to work and grow heir loom tomatoes, and I do have that dream. It would be lovely. I do love gardening and all of that, but I do love my work.
+ - The whole thing of clothes is insane. You can spend a dollar on a jacket in a thrift store. And you can spend a thousand dollars on a jacket in a shop. And if you saw those two jackets walking down the street, you probably wouldn’t know which was which.
+ - The whole ‘R’ rating depends on a strange sort of fantasy land where all adults are responsible people, and children only ever go to the cinema with their parents.
+ - I’ll tell you what me scares me is plastic. Plastic bags and plastic bottles and these things. Why does my water have to be in a bloody plastic bottle? The landfill and the ocean. And I don’t know, I’m just terrified with the proliferation of plastic.
+ - Where does this guy’s ambition go? That’s very peculiar. I think he’s a very disturbing person, I think he’s a very disturbing politician. Personally, I feel his interest is a self-interest.
+ - What I feel personally and what I can act are two different things. Maybe one of the great pleasures of my job is being able to inhabit worlds that you are never going to inhabit personally.
+ - I’m terrified of learning lines, and I’ve always been terrified that I won’t learn them.
+ - I always tell my husband, That’s it, I quit, I’ve done all I wanted, and he’s just like, Yeah, yeah. Sure.
+ - I’ve been working every year since I started acting, and I got many awards before I won the Oscar for ‘The Queen.’
+ - Any role that’s proactive is a great role, and action roles are by their very nature proactive. You get to do stuff. I hate sitting in a corner – I’d much prefer an action role in a popcorn movie rather than pining in a corner not doing anything.
+ - I feel the written word, poetry and literature is just one of the most beautiful things that human beings do. So we have to fight for it.
+
+147 quotes

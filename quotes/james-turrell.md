@@ -1,0 +1,25 @@
+ - It was important that people come to value light as we value gold, silver, paintings, objects.
+ - Space has a way of looking. It seems like it has a presence of vision. When you come into it, it is there, it’s been waiting for you.
+ - The sky is no longer out there, but it is right on the edge of the space you are in. The sense of colour is generated inside you. If you then go outside you will see a different coloured sky. You colour the sky.
+ - My work is about your seeing. There is a rich tradition in painting of work about light, but it is not light – it is the record of seeing. My material is light, and it is responsive to your seeing.
+ - I’m interested that light has thingness itself, so it’s not something that reveals something about other things you’re looking at, but it becomes a revelation in itself.
+ - We live within this reality we create, and we’re quite unaware of how we create the reality. So the work is often a general koan into how we go about forming this world in which we live, in particular with seeing.
+ - Remember technology does not make good work. You can still write a poem on a brown paper bag, and haiku is just as profound as the pyramids.
+ - Light is not so much something that reveals, as it is itself the revelation.
+ - I wanted the light to be the revelation. It has to do with what we value. I want people to treasure light.
+ - With no object no image and no focus, what are you looking at? You are looking at you looking.
+ - We create the reality in which we live.
+ - We think of color as a thing that we’re receiving. And if you go into one of the Skyspaces, you can see that it’s possible to change the color of the sky. Now, I obviously don’t change the color of the sky, but I changed the context of vision.
+ - My works are about light in the sense that light is present and there; the work is made of light. It’s not about light or a record of it, but it is light. Light is not so much something that reveals, as it is itself revelation.
+ - I want to create an atmosphere that can be consciously plumbed with seeing, like the wordless thought that comes from looking in a fire.
+ - I’ve always felt that night doesn’t fall. Night rises.
+ - I’ve always felt that night doesn’t fall. Night rises. There are these incidences in flying where you just sit there. It’s one of the best seats in the house.
+ - I’m known as a light artist. But rather than be someone who depicted light, or painted light in some way, I wanted to have the work be light.
+ - We eat light, drink it in through our skins.
+ - Science strives for answers, but art is happy with a good question.
+ - My desire is to set up a situation to which I take you and let you see. It becomes your experience.
+ - I am not an Earth artist, I’m totally involved in the sky.
+ - I like when you feel like you arrive in a very different place, with a different ordering of the reality you normally think of.
+ - To have a certain new eight-and-a-hal f-minute-old light from the sun-to feel it physically, almost as we taste things-this is where you can work with light like that.
+
+23 quotes

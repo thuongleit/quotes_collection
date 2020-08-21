@@ -1,0 +1,59 @@
+ - There is something delicious about writing the first words of a story. You never quite know where they’ll take you. ~~Beatrix Potter
+ - If you want to be a writer, you must do two things above all others: read a lot and write a lot. ~~Stephen King
+ - I write to give myself strength. I write to be the characters that I am not. I write to explore all the things I’m afraid of.  ~~Joss Whedon
+ - Start writing, no matter what. The water does not flow until the faucet is turned on. ~~Louis L'Amour
+ - Don’t tell me the moon is shining; show me the glint of light on broken glass. ~~Anton Chekhov
+ - This is how you do it: you sit down at the keyboard and you put one word after another until its done. It's that easy, and that hard. ~~Neil Gaiman
+ - You can make anything by writing. ~~C. S. Lewis
+ - The scariest moment is always just before you start. ~~Stephen King
+ - There is no real ending. It’s just the place where you stop the story. ~~Frank Herbert
+ - Writing is a socially acceptable form of schizophrenia. ~~E. L. Doctorow
+ - You can, you should, and if you’re brave enough to start, you will. ~~Stephen King
+ - Tears are words that need to be written. ~~Paulo Coelho
+ - I can shake off everything as I write; my sorrows disappear, my courage is reborn. ~~Anne Frank
+ - Imagination is like a muscle. I found out that the more I wrote, the bigger it got. ~~Philip José Farmer
+ - After nourishment, shelter and companionship, stories are the thing we need most in the world. ~~Philip Pullman
+ - All you have to do is write one true sentence. Write the truest sentence that you know. ~~Ernest Hemingway
+ - There are three rules for writing a novel. Unfortunately, no one knows what they are. ~~W. Somerset Maugham
+ - We write to taste life twice, in the moment and in retrospect. ~~Anaïs Nin
+ - Words can be like X-rays if you use them properly – they’ll go through anything. You read and you’re pierced. ~~Aldous Huxley
+ - I always start writing with a clean piece of paper and a dirty mind.  ~~Patrick Dennis
+ - If there’s a book that you want to read, but it hasn’t been written yet, then you must write it. ~~Toni Morrison
+ - Being a writer is a very peculiar sort of a job: it’s always you versus a blank sheet of paper (or a blank screen) and quite often the blank piece of paper wins. ~~Neil Gaiman
+ - Fantasy is hardly an escape from reality. It’s a way of understanding it. ~~Lloyd Alexander
+ - A writer is someone for whom writing is more difficult than it is for other people. ~~Thomas Mann
+ - You can't wait for inspiration. You have to go after it with a club. ~~Jack London
+ - The secret to getting ahead is getting started. ~~Mark Twain
+ - I write to discover what I know. ~~Flannery O'Connor
+ - Fiction is the truth inside the lie. ~~Stephen King
+ - Writing a book is a horrible, exhausting struggle, like a long bout with some painful illness. One would never undertake such a thing if one were not driven on by some demon whom one can neither resist nor understand. ~~George Orwell
+ - We are all apprentices in a craft where no one ever becomes a master. ~~Ernest Hemingway
+ - No tears in the writer, no tears in the reader. No surprise in the writer, no surprise in the reader. ~~Robert Frost
+ - The role of a writer is not to say what we can all say, but what we are unable to say. ~~Anaïs Nin
+ - The road to hell is paved with works-in-progress. ~~Philip Roth
+ - A little talent is a good thing to have if you want to be a writer. But the only real requirement is the ability to remember every scar. ~~Stephen King
+ - There is nothing to writing. All you do is sit down at a typewriter and bleed. ~~Ernest Hemingway
+ - When I sit down to write a book, I do not say to myself, ‘I am going to produce a work of art.’ I write it because there is some lie that I want to expose, some fact to which I want to draw attention, and my initial concern is to get a hearing. ~~George Orwell
+ - One day I will find the right words, and they will be simple. ~~Jack Kerouac
+ - Every secret of a writer’s soul, every experience of his life, every quality of his mind, is written large in his works. ~~Virginia Woolf
+ - I don’t care if a reader hates one of my stories, just as long as he finishes the book. ~~Roald Dahl
+ - If you don’t have time to read, you don’t have the time (or the tools) to write. Simple as that. ~~Stephen King
+ - Literature is strewn with the wreckage of those who have minded beyond reason the opinion of others. ~~Virginia Woolf
+ - You never have to change anything you got up in the middle of the night to write. ~~Saul Bellow
+ - Stories may well be lies, but they are good lies that say true things, and which can sometimes pay the rent. ~~Neil Gaiman
+ - The purpose of a writer is to keep civilization from destroying itself. ~~Albert Camus
+ - I love deadlines. I love the whooshing noise they make as they go by. ~~Douglas Adams
+ - You have to write the book that wants to be written. And if the book will be too difficult for grown-ups, then you write it for children. ~~Madeleine L'Engle
+ - If I had not existed, someone else would have written me, Hemingway, Dostoyevsky, all of us. ~~William Faulkner
+ - Lock up your libraries if you like; but there is no gate, no lock, no bolt that you can set upon the freedom of my mind. ~~Virginia Woolf
+ - Write what you know. That should leave you with a lot of free time. ~~Howard Nemerov
+ - The road to hell is paved with adverbs. ~~Stephen King
+ - That’s what fiction is for. It’s for getting at the truth when the truth isn’t sufficient for the truth. ~~Tim O'Brien
+ - All readers come to fiction as willing accomplices to your lies. Such is the basic goodwill contract made the moment we pick up a work of fiction. ~~Steve Almond
+ - A bad book is as much of a labor to write as a good one; it comes as sincerely from the author’s soul. ~~Aldous Huxley
+ - I’m writing a book. I’ve got the page numbers done. ~~Steven Wright
+ - Cheat your landlord if you can and must, but do not try to shortchange the Muse. It cannot be done. You can't fake quality any more than you can fake a good meal. ~~William S. Burroughs
+ - To write is human, to edit is divine. ~~Stephen King
+ - Kill your darlings, kill your darlings, even when it breaks your egocentric little scribbler’s heart, kill your darlings. ~~Stephen King
+
+57 quotes

@@ -1,0 +1,42 @@
+ - Another day, another opportunity to prove everyone who doubts you wrong. ~~Michael Jordan
+ - In a world where death is the hunter, my friend, there is no time for regrets or doubts. There is only time for decisions. ~~Carlos Castaneda
+ - Positive minds produce positive lives. Negative minds produce negative lives. Positive thoughts are always full of faith and hope. Negative thoughts are always full of fear and doubt. ~~Joyce Meyer
+ - Doubt is uncomfortable, certainty is ridiculous. ~~Voltaire
+ - Inaction breeds doubt and fear. Action breeds confidence and courage. ~~Dale Carnegie
+ - Doubts kill more dreams than failure ever will. Fear is faith in reverse. Fear creates doubt. Replace your fears with faith and your doubts with determination. ~~Zig Ziglar
+ - Doubt is only removed by action. If you’re not working then that’s when doubt comes in. ~~Conor McGregor
+ - The less you think, the more you believe. ~~Richard Dawkins
+ - No Fear, No Hesitation, No Surprise, No Doubt. ~~Miyamoto Musashi
+ - There is no learning without having to pose a question. And a question requires doubt. ~~Richard P. Feynman
+ - When you doubt your power, you give power to your doubt. ~~Honoré de Balzac
+ - Only the real, rare, true scientific minds can endure doubt, which is attached to all our knowledge. ~~Sigmund Freud
+ - Imma be what I set out to be without a doubt undoubtedly. ~~Eminem
+ - Doubt your doubts before you doubt your faith. ~~Dieter F. Uchtdorf
+ - If I am anything, which I highly doubt, I have made myself so by hard work. ~~Isaac Newton
+ - I can doubt everything, except one thing, and that is the very fact that I doubt. Simply put – I think, therefore I am. ~~René Descartes
+ - In case of doubt, attack. ~~George S. Patton Jr.
+ - All fanaticism is repressed doubt. ~~C.G. Jung
+ - Put one foot in front of the other. Keep marching forward, even when doubt, fear, and failure all come knocking at your door. ~~Jared Leto
+ - There’s no doubt. Its certain that ill be 100 percent. ~~Lionel Messi
+ - In case of doubt, push on just a little further and then keep on pushing. ~~George S. Patton Jr.
+ - Doubters don’t win, winners don’t doubt. ~~Denis Waitley
+ - I keep going because I doubt myself. It drives me to be better. I’ve learned that the mastery of self-doubt is the key to success. It’s like being animated by the love of a woman – the need to be worthy of her. ~~Will Smith
+ - I’m often wrong, but never in doubt. ~~Ivy Baker Priest
+ - Often people just don’t see what I see. They have too much doubt. You can’t do your best when you’re doubting yourself. If you don’t believe in yourself, who will? ~~Michael Jackson
+ - One of the ego’s favorite paths of resistance is to fill you with doubt. ~~Ram Dass
+ - I always knew I was going to be rich. I don’t think I ever doubted it for a minute.  ~~Warren Buffett
+ - If you can keep your head when all about you Are losing theirs and blaming it on you, If you can trust yourself when all men doubt you, But make allowance for their doubting too;! ~~Rudyard Kipling
+ - The support gets me to the gym but the doubt keeps me there. ~~Conor McGregor
+ - Breathe in, breathe out, no fear, no doubt. ~~Martha N. Beck
+ - We demand rigidly defined areas of doubt and uncertainty! ~~Douglas Adams
+ - Doubts and mistrust are the mere panic of timid imagination, which the steadfast heart will conquer, and the large mind transcend. ~~Helen Keller
+ - First doubt your doubts before you doubt your faith. We must never allow doubt to hold us prisoner and keep us from the divine love, peace, and gifts that come through faith in the Lord Jesus Christ. ~~Dieter F. Uchtdorf
+ - Sleep is like the unicorn – it is rumored to exist, but I doubt I will see any. ~~Dr. Seuss
+ - She quietly expected great things to happen to her, and no doubt that’s one of the reasons why they did. ~~Zelda Fitzgerald
+ - Medicine heals doubts as well as diseases. ~~Karl Marx
+ - My principal sin is doubt. I doubt everything, and am in doubt most of the time. ~~Leo Tolstoy
+ - There can be no doubt that all our knowledge begins with experience. ~~Immanuel Kant
+ - Doubt is one of the names of intelligence. ~~Jorge Luis Borges
+ - If there is anyone out there who still doubts that America is a place where all things are possible; who still wonders if the dream of our founders is alive in our time; who still questions the power of our Democracy; Tonight is your answer. ~~Barack Obama
+
+40 quotes

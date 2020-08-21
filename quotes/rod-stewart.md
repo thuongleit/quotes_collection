@@ -1,0 +1,144 @@
+ - Every picture tells a story, don’t it?
+ - You got amphetamine eyes.
+ - Whatever road you choose, I’m right behind you win or lose.
+ - Tonight’s the night. It’s gonna be alright.
+ - Life is so brief and time is a thief when you’re undecided.
+ - When the one you love is in love with someone else, don’t you know it’s torture, I mean it’s living hell.
+ - You are my lover, you’re my best friend. You’re in my soul.
+ - You can be with one of the most beautiful women in the world and still be unhappy.
+ - My love for you is immeasurable, my respect for you immense. You’re ageless, timeless, lace and fineness, you’re beauty and elegance.
+ - You’ve got to have this burning desire in your chest to succeed.
+ - If you want my body and you think I’m sexy come on sugar let me know.
+ - I’m a rock star because I couldn’t be a soccer star.
+ - Even the President needs passion.
+ - I have lived a great life. I am very happy.
+ - I wish that I knew what I know now, when I was younger. I wish that I knew what I know now, when I was stronger.
+ - I am passionate about football. My support for Celtic FC has got me through some hard times in my life. I still play regularly, too.
+ - I love change, I need it.
+ - There’s still plenty of lead in this pencil, but I only write to one person now.
+ - You’re every love song ever written.
+ - Brewing a good cuppa is something not everyone can do, and I loathe bad tea.
+ - Like with every form of cancer, early detection is what it is all about. I urge everyone to learn the facts about this condition. It can be prevented with testing, and it can be beaten if caught early!
+ - Women like being kissed.
+ - Fast cars like Porsches and Ferraris – they are things of beauty.
+ - I can’t do that wonderful thing that Tom Waits and Bob Dylan do – to do imagery. I’m not good at that. I just write from the heart.
+ - I’m not a natural songwriter.
+ - You go through life wondering what is it all about but at the end of the day it’s all about family.
+ - I did things with the microphone stand that no-one else has attempted to do.
+ - The first cut is the deepest.
+ - I’ll bring the red wine, you bring the ludes.
+ - You’re like a cold beer, darling, on a long hot summer night.
+ - I wish I knew what I know now before.
+ - Only a fool permits the letter of the law to override the spirit in the heart. Do not let a piece of paper stand in the way of true love and headlines.
+ - Spread your wings and let me come inside.
+ - I’m gonna make love to you like fifteen men.
+ - Optimism is my best defense.
+ - I want to dance, I want her ass. Why is she ignoring me?
+ - My life has been an open book, really. Everybody knows everything about me.
+ - I’m gonna rock you ’til your pussaaa’s sore.
+ - I’ve always been worried about the band but I’ve got to the point now where I think it’s time to start thinking about myself a bit more.
+ - If there’s one thing I’ve learned about women, which I try to pass on to my boys, it’s listening. Listen to the other side of the story first.
+ - I think I was always looking for that perfect woman, who obviously doesn’t exist. I wanted to be married. I wanted more kids. I’m a family man, at heart.
+ - So when you think you’re the only one who can’t find love in this world, tell yourself there’s another one who’s waiting for you somewhere.
+ - I’m shrewd about money; I invest well and look after it. But it’s in my nature to be generous. I look after people.
+ - Should I string her up or strangle her in bed, suffocate that venomous head? Or perhaps I’ll just whip her to death. Listen, do me a favor, kill my wife.
+ - A show is like having a climax. It’s like having an incredible, natural climax. And then suddenly it’s all finished, and you don’t know what to do next.
+ - I am always crazy for hot women. I am like a rabbit. I could do it anytime, anywhere.
+ - The last thing I remember, I left with a girl on a motor bike that weighed 300 pounds.
+ - All you did was wreck my bed and in the morning kick me in the head.
+ - One of my daughters was a bit flat-chested, so she had implants and she’s got a lovely pair now. I see nothing wrong with it.
+ - I’ve never been more in love with anyone nearly half my age than I am today. I’d get married in a minute if I weren’t still married to somebody else.
+ - Elvis was the king. No doubt about it.
+ - Find myself a rock and roll band, that needs a helping hand.
+ - You know I think I could give a little more back to charity.
+ - I’m still not good at changing nappies, but I do do it.
+ - Half the battle is selling music, not singing it. It’s the image, not what you sing.
+ - It has gone past me now, the writing phase.
+ - I carry lots of guilt.
+ - I am somewhat on the shy side. I know people might find that hard to believe.
+ - I have a very lively and colourful show. It’s two hours of hits and the music speaks for itself.
+ - Hot legs, bring your Mother, too.
+ - I must really confess right here, the attraction was purely physical.
+ - Lyrics are coming to you all the time. I get inspiration in the middle of the night.
+ - I said hello unnoticed, you said good-bye too soon.
+ - Well, I’ve got nothing to hide. Absolutely nothing.
+ - Surely if God had meant us to do yoga, he would have put our heads behind our knees.
+ - Is it my sweat that’s no longer sweet?
+ - I’m just delighted that this woman I love can be a mum again.
+ - We all need a laugh and I guess you’re just the one.
+ - My father, being a Scotsman, taught me to look after finances. I’m shrewd. Some people may call me tight.
+ - You know my wife, she’s 6 ft 1 she can beat anyone up.
+ - I woke up in a barnyard when I heard a farmer shout. Get away, boy, from my daughter, then a shot gun rang out.
+ - I’m very proud of my well-earned wrinkles, so show ’em.
+ - You shouldn’t be in the music business if you’re posing.
+ - My big brother still thinks he’s a better singer than me.
+ - I had this almost Dickensian look. I was quite fragile.
+ - I got bored of not feeling affectionate towards girls.
+ - You can avoid the press if you really want to and I don’t walk around with five security guards either because I think that just draws attention.
+ - Elvis was the king. No doubt about it. People like myself, Mick Jagger and all the others only followed in his footsteps.
+ - What I do now is all my dad’s fault, because he bought me a guitar as a boy, for no apparent reason.
+ - You went to Woodstock and all that trash, your generation is fading fast.
+ - I do take a lot of pride in my look and I work out – do work out a lot.
+ - I’ll be dead by the time I’m forty.
+ - A little child in Ethiopia will die before this song is through.
+ - Yeah, I’ll pay your cab fare home, you can even use my best cologne, just don’t be here in the morning when I wake up.
+ - I’ve been a golden boy for too long.
+ - May you grow to be proud, dignified, and true, and do unto others as you’d have done to you.
+ - I enjoy a glass of wine, and I love my football. I suppose it’s because I’m a real working-class.
+ - I’m not a great lover of Madonna’s voice. She’s done very well with what she’s got, and I’m sure my voice turns her right off, but she’s not my favourite singer.
+ - I’ve never done anything particularly scandalous.
+ - Well, I have a CBE and I accepted it with glee because it’s not bestowed on you by the royal family, it’s not bestowed on you by the government, you have to be nominated by the public.
+ - If the father is not straight naider will be the son.
+ - I suppose I miss the British cynicism and the humor.
+ - I hated singing and getting up in front of crowds.
+ - My dad bought me a guitar and people would ask me to play.
+ - My musical taste has always been wide. I started out as a folky before I moved on to blues and soul.
+ - I’ll tell you what I love. Sending back bottles of wine that aren’t right in restaurants in France! Whoa! I love the French, but I do find their wine snobbery something unbearable.
+ - I want to make people aware of early detection.
+ - You can keep your Streisands.
+ - Obviously, I haven’t really progressed that much at my craft.
+ - You know, I had no trouble with the girls.
+ - Everybody sung in my family.
+ - At my age you don’t go into fatherhood lightly.
+ - Although I’m living in California, I’m very proud to be British.
+ - Love is just a hole in the wall.
+ - There’s nobody I look up to, really.
+ - It was early detection that saved my voice – and I imagine, my life.
+ - I have a voice coach, but only in so much as to make my voice stronger so I can sing for five nights a week, two hours.
+ - I’ve still got a brilliant head of hair, which refuses to lay down.
+ - You’re in my heart, you’re in my soul. You’ll be my breath, should I grow old.
+ - Don’t have much, but what I’ve got is yours, except of course my steel guitar.
+ - Sometimes I think the playing field is certainly not even. You know, it’s just not.
+ - I’m proud to be a railway modeler. It means more to me to be on the cover of Model Railroader than to be on the cover of a music magazine.
+ - I never feel any aggravation from the public.
+ - I can definitely say the older I’ve got the better I’ve become at being a dad and a husband.
+ - Everybody sings from their diaphragm.
+ - I always thought I was so fit.
+ - Well, there’s not a day goes by when I don’t get up and say thank you to somebody.
+ - I think, with suits and clothes, if you keep them long enough, they all come back in fashion.
+ - I was getting worried I may not become a grandfather, but the Lord has blessed me.
+ - Between 21-30 women go through humungous changes. After that, they’ve generally achieved what they wanted, and they’re more settled.
+ - I tried therapy. This had never appealed to me. For me, it was a bit like a Chinese meal: very filling at the time, but then an hour later you’re hungry again.
+ - I had this little handheld transistor radio that I used to sleep next to.
+ - In a year of re-election he was desperate to impress.
+ - I was a bit of a sleeper-inner.
+ - I don’t enjoy songwriting.
+ - How can my son not be straight after all I’ve said and done for him?
+ - Songwriting’s never been a natural art for me; it’s always been a bit of a struggle.
+ - I am a man of contradictions, I suppose.
+ - I’ve always looked on myself as one of a band and never sought a solo career.
+ - I suppose I could collect my books and get on back to school, or steal my Daddy’s cue and make a living out of playing pool.
+ - I was never a good-looking bloke. Not by a long chalk.
+ - There is this power that comes with being famous.
+ - All I needed was a friend to lend a guiding hand. But you turned into a lover, and mother what a lover, you wore me out.
+ - I want to go out at the top, but the secret is knowing when you’re at the top, it’s so difficult in this business, your career fluctuates all the time, up and down, like a pair of trousers.
+ - I’ve been lucky with my hair. I couldn’t deal with it if I’d run out of barnet. Imagine me with a Bobby Charlton comb over.
+ - If I don’t get laid, I’ll sure die trying.
+ - I’ve always been able to get inside a song really easily, and if it’s my song, I can make it seem honest.
+ - Listen, if my career was to end tomorrow, I would have no complaints whatsoever.
+ - Even by rock star standards, I was pretty awful.
+ - I see myself at 7:30 in the morning and it’s not too pretty.
+ - Carrying 200 pounds of velvet and satin around a stage for 90 minutes – that’s man’s work, let me tell you.
+ - I’ve tried to have a regular haircut, but it just pops back up again, so this is the way it’s going to be.
+
+142 quotes

@@ -1,0 +1,33 @@
+ - Question everything generally thought to be obvious.
+ - Good design means as little design as possible.
+ - Good design is as little design as possible. Less, but better – because it concentrates on the essential aspects, and the products are not burdened with non-essentials. Back to purity, back to simplicity.
+ - Good design makes a product understandable.
+ - You cannot understand good design if you do not understand people; design is made for people.
+ - The design should make the product speak to you.
+ - One of the most significant design principles is to omit the unimportant in order to emphasize the important.
+ - Good design is making something intelligible and memorable. Great design is making something memorable and meaningful.
+ - An honest design communicates solely the functions and values it offers. It does not attempt to manipulate buyers and users with promises it cannot keep.
+ - A product is bought to be used. It has to satisfy certain criteria, not only functional, but also psychological and aesthetic. Good design emphasizes the usefulness of a product whilst disregarding anything that could possibly detract from it.
+ - Good design is thorough, down to the last detail.
+ - Good design is thorough down to the last detail – Nothing must be arbitrary or left to chance. Care and accuracy in the design process show respect towards the consumer.
+ - I hate everything that is driven by fashion.
+ - Good design is innovative Gives a product utility Is aesthetic Makes a product easy to understand Is unobtrusive Is honest Is long-lived Is consistent down to the smallest detail Protects the environment Good design is as little design as possible.
+ - People react positively when things are clear and understandable.
+ - Good design is long-lasting! It avoids being fashionable and therefore never appears antiquated...
+ - Things which are different in order simply to be different are seldom better, but that which is made to be better is almost always different.
+ - Having small touches of colour makes it more colourful than having the whole thing in colour.
+ - As designers, we have a great responsibility.
+ - Products have to be designed in a way that they are comprehensible.
+ - I am not an early bird. I go to bed normally between midnight and 1 oclock, so it is understandable that I cannot be an early bird. I wake up around 9 oclock.
+ - I don’t like computers. I still like to do my drawings by hand.
+ - Nothing works without details. They are everything, the baseline of quality.
+ - My heart belongs to the details. I actually always found them to be more important than the big picture. Nothing works without details. They are everything, the baseline of quality.
+ - My goal is to omit everything superfluous so that the essential is shown to best possible advantage.
+ - We designers, we don’t work in a vacuum. We need business people. We are not the fine artists we are often confused with.
+ - As designers we have a great responsibility. I believe designers should eliminate the unnecessary. That means eliminating everything that is modish because this kind of thing is only short-lived.
+ - All too much of the man-made is ugly, inefficient, depressing chaos.
+ - Design should not dominate things, should not dominate people. It should help people. That’s its role.
+ - There is a lot of bad architecture. What we need more is to look at how our landscape should look in the next decades.
+ - I sit, I think, I make some drawings. As a designer, you cannot retire totally.
+
+31 quotes

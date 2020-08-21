@@ -1,0 +1,39 @@
+ - A wealth of information creates a poverty of attention.
+ - One finds limits by pushing them.
+ - Solving a problem simply means representing it so as to make the solution transparent.
+ - There are no morals about technology at all. Technology expands our ways of thinking about things, expands our ways of doing things. If we’re bad people we use technology for bad purposes and if we’re good people we use it for good purposes.
+ - Learning results from what the student does and thinks, and only from what the student does and thinks. The teacher can advance learning only by influencing the student to learn.
+ - The situation has provided a cue; this cue has given the expert access to information stored in memory, and the information provides the answer. Intuition is nothing more and nothing less than recognition.
+ - Anything that gives us new knowledge gives us an opportunity to be more rational.
+ - What information consumes is rather obvious: it consumes the attention of its recipients. Hence a wealth of information creates a poverty of attention, and a need to allocate that attention efficiently among the overabundance of information sources that might consume it.
+ - Enlightenments, like accidents, happen only to prepared minds.
+ - Human beings, viewed as behaving systems, are quite simple. The apparent complexity of our behavior over time is largely a reflection of the complexity of the environment in which we find ourselves.
+ - Think of the design process as involving first the generation of alternatives and then the testing of these alternatives against a whole array of requirements and restraints.
+ - Everyone designs who devises courses of action aimed at changing existing situations into preferred ones.
+ - The intelligent altruists, though less altruistic than unintelligent altruists, will be fitter than both unintelligent altruists and selfish individuals.
+ - Many individuals and organization units contribute to every large decision, and the very problem of centralization and decentralization is a problem of arranging the complex system into an effective scheme.
+ - A complex decision is like a great river, drawing from its many tributaries the innumerable premises of which it is constituted.
+ - The proper study of mankind is the science of design.
+ - One of the first rules of science is if somebody delivers a secret weapon to you, you better use it.
+ - Creativity is no less challenging or exciting when the mystery is stripped from the creative process. The most beautiful flowers grow under careful cultivation from common soil.
+ - No one has characterized market mechanisms better than Friedrich von Hayek.
+ - Innovation has a lot to do with your ability to recognise surprising and unusual phenomena.
+ - All behavior involves conscious or unconscious selection of particular actions out of all those which are physically possible to the actor and to those persons over whom he exercises influence and authority.
+ - Most of us really aren’t horribly unique. There are 6 billion of us. Put ’em all in one room and very few would stand out as individuals. So maybe we ought to think of worth in terms of our ability to get along as a part of nature, rather than being the lords over nature.
+ - In the computer field, the moment of truth is a running program; all else is prophecy.
+ - Human beings know a lot of things, some of which are true, and apply them. When we like the results, we call it wisdom.
+ - Mathematics is a language. We want scientists to be able to read it, speak it, and write it. But we are are not training them to be grammarians.
+ - Engineering, medicine, business, architecture and painting are concerned not with the necessary but with the contingent – not with how things are but with how they might be – in short, with design.
+ - I don’t care how big and fast computers are, they’re not as big and fast as the world.
+ - The engineer, and more generally the designer, is concerned with how things ought to be – how they ought to be in order to attain goals, and to function.
+ - The social sciences, I thought, needed the same kind of rigor and the same mathematical underpinnings that had made the ‘hard’ sciences so brilliantly successful.
+ - Learning is any change in a system that produces a more or less permanent change in its capacity for adapting to its environment.
+ - By 1985, machines will be capable of doing any work Man can do.
+ - Human knowledge has been changing from the word go and people in certain respects behave more rationally than they did when they didn’t have it. They spend less time doing rain dances and more time seeding clouds.
+ - All correct reasoning is a grand system of tautologies, but only God can make direct use of that fact.
+ - The world is vast, beautiful, and fascinating, even awe-inspiring – but impersonal. It demands nothing of me, and allows me to demand nothing of it.
+ - Technology may create a condition, but the questions are what do we do about ourselves. We better understand ourselves pretty clearly and we better find ways to like ourselves.
+ - Forget about Nobel prizes; they aren’t really very important.
+ - Maybe we ought to have a world in which things are divided between people kind of fairly.
+
+37 quotes

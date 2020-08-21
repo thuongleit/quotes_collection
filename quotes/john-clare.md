@@ -1,0 +1,28 @@
+ - If life had a second edition, how I would correct the proofs.
+ - For Nature is love, and finds haunts for true love, Where nothing can hear or intrude; It hides from the eagle and joins with the dove, In beautiful green solitude.
+ - Love lives with Nature, not with lust. Go find her in the flowers.
+ - How oft a summer shower has started me; to seek the shelter of a hollow tree.
+ - And what is Life? – An hour-glass on the run.
+ - Burning hot is the ground, liquid gold is the air; Whoever looks round sees Eternity there.
+ - I lost the love of heaven above I spurned the lust of earth below I felt the sweets of fancied love And hell itself my only foe.
+ - Ah, words are poor receipts for what time hath stole away...
+ - I am: yet what I am none cares or knows, My friends forsake me like a memory lost; I am the self-consumer of my woes, They rise and vanish in oblivious host, Like shades in love and death’s oblivion lost; And yet I am, and live with shadows tost.
+ - Old noted oak! I saw thee in a mood Of vague indifference; and yet with me Thy memory, like thy fate, hath lingering stood For years, thou hermit, in the lonely sea Of grass that waves around thee!
+ - So dull and dark are the November days. The lazy mist high up the evening curled, And now the morn quite hides in smoke and haze; The place we occupy seems all the world.
+ - I long for scenes where man has never trod; A place where woman never smil’d or wept; There to abide with my creator, God, And sleep as I in childhood sweetly slept: Untroubling and untroubled where I lie; The grass below – above the vaulted sky.
+ - Old April wanes, and her last dewy morn Her death-bed steeps in tears; to hail the May New blooming blossoms neath the sun are born, And all poor April’s charms are swept away.
+ - The best way to avoid a bad action is by doing a good one, for there is no difficulty in the world like that of trying to do nothing.
+ - Wildness is my suiting scene.
+ - My fears are agitated to an extreme degree and the dread of death involves me in a stupor of chilling indisposition.
+ - In mid-wood silence, thus, how sweet to be; Where all the noises, that on peace intrude, Come from the chittering cricket, bird, and bee, Whose songs have charms to sweeten solitude.
+ - Into the nothingness of scorn and noise, Into the living sea of waking dreams, Where there is neither sense of life or joys, But the vast shipwreck of my life’s esteems; And e’en the dearest – that I love the best – Are strange – nay, rather stranger than the rest.
+ - Tasteful illumination of the night, Bright scattered, twinkling star of spangled earth.
+ - I ne’er was struck before that hour with love so sudden and so sweet. Her face it bloomed like a sweet flower and stole my heart away complete.
+ - I was Byron and Shakespeare formerly.
+ - I am gennerally understood tho I do not use that awkward squad of pointings called commas colons semicolons etc.
+ - I found the poems in the fields And only wrote them down.
+ - He could not die when the trees were green, For he loved the time too well.
+ - The present is the funeral of the past, And man the living sepulchre of life.
+ - Still, I have been no one’s enemy but my own. My easy nature, either in drinking or anything else, was always ready to submit to persuasions of profligate companions, who often led me into snares.
+
+26 quotes

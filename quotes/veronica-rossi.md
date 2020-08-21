@@ -1,0 +1,39 @@
+ - I miss you. I miss you. I miss you, I miss you. Be ready, because when I see you, I’ll never let you go again.
+ - How do you restart something that had never been turned off?
+ - There is no way forward that isn’t through pain.
+ - Love was like the waves in the sea, gentle and good sometimes, rough and terrible at others, but that it was endless and stronger than the sky and earth and everything in between.
+ - Try to sleep. Tomorrow’s coming, whether we worry about it or not.
+ - If there was no fear, how could there be comfort? Or courage?
+ - A good dream was something you clung to until the last moment before waking.
+ - Love is a rebellious bird that nobody can tame.
+ - We lose and lose, but we’re still here. Shaking in place, afraid of doing something. I’m tired of settling for this because I don’t know if something better exists. It has to. What point is there otherwise? I can do something about it now. And I will.
+ - It didn’t matter if Aria was hundreds of miles away, or whether she’d hurt him, or said goodbye, or anything else. Nothing would change the way he felt. The moment Aria had taken his hand on the roof at Marron’s, she’d changed everything. No matter what happened, she’d always be the one.
+ - She looked up. “A world of nevers under a never sky.” She fit in well then, he thought. A girl who never shut up.
+ - We have to tell each other the little things, the bad things. Maybe they’ll hurt for a while, but at least they won’t become big things. If we don’t, we’re just going to keep hurting each other. And I don’t want to do that anymore.
+ - There was nothing more painful than hurting someone you loved.
+ - People can be cruelest to those they love.
+ - People who try to be nice are false. They’re liars. You should never force your behavior to be a certain way. You should just be. Maybe it’s not going to be nice, but at least it’ll be honest.
+ - And in life, at least her new life, chances were the best she could hope for. They were like her rocks. Imperfect and surprising and maybe better in the long run than certainties. Chances, she thought, WERE life.
+ - She absorbed the terror and beauty of him and his world. Of every moment over the past days. All of it, filling her up like the first breath she’d ever taken. And never had she loved life more.
+ - We all have the potential to do terrible things. But we also have the potential to overcome our mistakes.
+ - It’s hard to follow a person’s logic if you don’t know how they feel.
+ - She’d fallen into a deep silence once, when the sun appeared, and it was then he’d wondered most what she was thinking.
+ - She’d survived the outside. She’d survived the Aether and cannibals and wolves. She knew how to love now, and how to let go. Whatever came next, she would survive it, too.
+ - Everyone feels lost and low. It’s how a person acts that makes them different.
+ - The more I try to catch up, the farther I fall behind.
+ - She found it curious and frightening that she could deeply dislike someone she didn’t even know. It wasn’t her. At least, it wasn’t how she used to be.
+ - Roar’s smile widened. “I know. You missed me.” She rolled her eyes. “It’s barely been three weeks since I last saw you.” “Miserable stretch of time.” He said.
+ - His hand snapped shut over the device and then he crossed his arms. Aria stared in horror. Her Smarteye was buried in a Neanderthal’s armpit.
+ - You can’t be miserable when you’re running. It’s such a simple and pure way to feel alive.
+ - In the afternoon, they stopped to eat on a rocky outcrop. Perry brushed a kiss on her cheek while she was chewing, and she learned that it was the loveliest thing to be kissed for no reason, even while chewing food. It brightened the woods, and the never sky, and everything.
+ - People are imperfect, but that doesn’t mean they spoil like milk.
+ - He brought a sense of rightness. She felt it every moment she spent with him. Even the wrong ones. Even the painful ones, like now.
+ - Fall off your own roof.
+ - And it’s always better, isn’t it, when you discover answers on your own?
+ - He kissed her slowly. Everything went slowly so he could follow her temper, and search into her eyes. When they joined, her scent was brave and strong and certain. Perry took it into himself, breathing her breath, feeling what she felt. He’d never known anything as right.
+ - Because people are more than emotions. People have thoughts and reasons for doing things.
+ - Can you believe I have a favorite cave?
+ - Fear is dangerous. It sparks violence much faster than anger.
+ - An oath is a promise-and a promise can be made regardless of feeling.
+
+37 quotes

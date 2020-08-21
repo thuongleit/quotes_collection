@@ -1,0 +1,64 @@
+ - Economy without ecology means managing the human nature relationship without knowing the delicate balance between humankind and the natural world.
+ - Earth is a living entity. And if it’s a living organism, then we have to have a reverence for all life. Food should be local, organic rather than grown with chemical fertilizer, pesticides, and herbicides.
+ - If you can kill animals, the same attitude can kill human beings. The mentality is the same which exploits nature and which creates wars.
+ - Human happiness, true prosperity and joyful living can only emerge from a life of elegant simplicity, embedded in the arts and crafts.
+ - We are not slaves of the market. Our human life has a greater meaning than making money, making profit, and working for the market or for multinational corporations.
+ - The old story is a story of measurement. And the New Story is to bring measurement and meaning together. You cannot measure meaning.
+ - We need to learn to live in the here and now; this moment is the best moment. Live it fully.
+ - The way to healthy living is to shift from quantitative economic growth to quality of life, food, water and air – to shift from craving to contentment and from greed to gratitude.
+ - If we had kept the vision of interconnectedness, we would not have created the kind of environmental crisis facing the world today.
+ - Each of us needs to eliminate our anger, fear and greed. The roots of social conflicts and political tensions are in personal anger, fear and greed.
+ - Lead me from death to life, from falsehood to truth; Lead me from despair to hope, from fear to trust; Lead me from hate to love, from war to peace; Let peace fill our heart, our world, our universe.
+ - How much I can learn from a tree! The tree is my church, the tree is my temple, the tree is my mantra, the tree is my poem and my prayer.
+ - We are dependent on each other. Therefore, replenishing the soil, replenishing society and being part of one continuum – that’s the new story.
+ - Your children are not your children. They are lives longing for itself. They come here with their own destiny. Give them your love. They will find their own way.
+ - If we go on using the Earth uncaringly and without replenishing it, then we are just greedy consumers.
+ - Education provides you a profession. But not vocation. You do it only because you need to work to earn money to buy your food, buy your clothes, pay the bills. Our life has a greater meaning, and a greater purpose.
+ - We have to shift our attitude of ownership of nature to relationship with nature. The moment you change from ownership to relationship, you create a sense of the sacred.
+ - I want to see a New Story education, which is not only about intellectual knowledge – not only about measurement – not only about academic achievement. It is also about heart, feelings, emotions, relationship, love, compassion, generosity, beauty. All these values are part of the heart.
+ - Happiness is possible only when we are kind to others and contented within.
+ - The children are being conditioned to think that the purpose of life is to get a good job. You get paid but you don’t get satisfaction from your work.
+ - We depend on the gifts of nature, but these gifts must be received with gratitude and not exploited or abused.
+ - Monks will have three begging bowls for their food: one for water, one for liquid food, one for dry food.
+ - We human beings are spiritual beings. We have soul. We have spirit. We have mind. We have consciousness. We want fulfillment, we want happiness, we want satisfaction, we want joy. We want imagination. We want art, culture, music.
+ - You have no skills in your hands. You have no education of understanding the meaning and the purpose and the compassion and the relationship. You have just a profession.
+ - We then came to the Soviet Union. One day we were walking and carrying our banner and distributing a few leaflets in Russian to people, and we met two women on the road.
+ - People are increasingly becoming disappointed and disillusioned with politics and business, and especially with the market economy. They are meeting the physical needs of human beings, maybe. They are providing food. But not good and healthy food.
+ - Large numbers of young people are waking up. And they are saying, “We are not here just to work for multinational corporations and make money for them. We are here to live. We have to find the meaning of life.”
+ - When you come to the spiritual needs, the emotional needs, the needs of our inner life, then politics and business and technology are completely impotent. They are completely unable to meet and address the needs of human beings.
+ - I was pursuing the inner path at the expense of the rest of my being and the rest of the world.
+ - One was a book I read by Mahatma Gandhi. In it was a passage where he said that religion, the pursuing of the inner journey, should not be separated from the pursuing of the outer and social journey, because we are not isolated beings.
+ - That was my childhood. I grew up with the monks, studying Sanskrit and meditating for hours in the morning and hours in the evening, and going once a day to beg for food.
+ - Wars and conflicts begin in the mind, then they are expressed in words and then executed through physical action, so personal transformation is intricately connected with the social and political transformation.
+ - In fact, the environmental crisis is related to the crisis of aesthetics, crisis of social cohesion and the crisis of spiritual values.
+ - If happiness was in money or power, then America should be the happiest country in the world, but it is not.
+ - Through yoga, meditation and other spiritual practices, we can learn the ways of personal equanimity. We can also learn how to use language in beneficial ways.
+ - Quality and perfection are achieved with time. You do not create a perfect painting or a perfect poem by hurrying. Time is always coming.
+ - Before the scientific rationalism took hold of our minds and before we became succumbed to a materialistic worldview, the Western philosophy was holistic and relational, and even now there are many scientists in the West seeing things totally interconnected.
+ - In spite of nuclear weapons, large numbers of American citizens feel totally insecure. And in spite of so much wealth, industry and technology, many Americans are living under deprivation and anxiety. So happiness is not in accumulation of material goods, it’s in sharing and caring.
+ - The great work of social transformation begins with the first small step of stopping, calming, relaxing, reflecting and acting in a beneficial way.
+ - In addition to world conflicts, the most challenging problem we face today is hunger, deprivation and social injustice. Because we’re ruled by separate self-interest, we go on accumulating personal wealth, ignoring the well being of the others.
+ - All the big problems of the world today are routed in the philosophy of separateness and dualism.
+ - It is only an illusion that time is running out. This is where the problem of fear arises. We become anxious that “I don’t have enough time and I have to do everything quickly.” We need to turn our attention away from results, achievements and outcomes.
+ - If we remove ourselves from the world, we are pretending that we can follow our own individual enlightenment and let the rest of the world go to hell, so to speak.
+ - Without the land, the rivers, the oceans, the forests, the sunshine, the minerals and thousands of natural resources we would have no economy whatsoever.
+ - I and a friend of mine called Mannon talked together, and we both decided to walk this journey.
+ - It doesn’t matter where or how it is grown as long as it is packaged in plastic, put on the supermarket shelves, and bought as a commodity. In the New Story food is not commodity. Food is sacred. We need to be connected with soil, with animals that we take care of.
+ - People are are moving away from the fossil fuel-based economy, to a more renewable economy. That is what is called the ‘transition town’ movement. There are three hundred towns in Britain that are making this transition. Taking energy from solar power, from wind power, from water power.
+ - That was my real education in the world – I learned politics, the social and cultural life of India, Hindu tradition and religion, and Buddhism.
+ - Instead of seeking success we should look for fulfillment. And fulfillment is giving total attention to the process of living.
+ - Our modern world of old story is completely failing humanity. This is the reason that increasing numbers of people have become and are becoming disillusioned from politics. People don’t like voting. Whoever you vote, government gets in. Whatever they promise, they never fulfill.
+ - If individuals start to walk on the path of spirit and feel a sense of the sacred connectedness, then social, economic and political problems will also begin to get resolved.
+ - We need to develop a sense of sufficiency to be happy.
+ - I want New Story education to be skilling human beings and young people to provide basic human needs. Technology and all other things are icing on the cake.
+ - Multinational corporations and a market economy have transformed human beings into instruments of making money. Human beings should be the end. And money should be the means to an end.
+ - So, at the age of nine, I became a monk, and from then on I was there practicing that kind of nonviolence.
+ - At the moment, for example, maybe ten percent of money in the world is related to goods and services. Ninety percent of money is just moving around the world, chasing money. So, money has become the ruler. And we have become the servant.
+ - Of course, we all need to have basic necessities met, such as good health care, good food, good education and good housing. But what is good? Having too much is bad, as having too little is also bad.
+ - What we call ‘economic growth’ is in fact a growth in waste and a decline in the health of natural habitat.
+ - It became extremely important that we go and see the four heads of the governments, and the message was delivered, with the tea packets, to all these heads.
+ - We change by changing our consciousness and by saying, money should not be a commodity. Money should be a means to an end.
+ - The road to climate stability is straight and the solutions simple, and yet scientists, economists, industrialists and politicians are busy making them complicated.
+ - Because the Western civilization is dominated by dualistic thinking, holistic scientists and philosophers don’t get the recognition they deserve.
+
+62 quotes

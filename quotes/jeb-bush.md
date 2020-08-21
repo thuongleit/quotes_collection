@@ -1,0 +1,155 @@
+ - I have a blessed life in so many ways.
+ - Life teaches you that you need to make decisions in the right time – not too early, not too late.
+ - Our children can achieve great things when we set high expectations for them.
+ - Everything’s viewed with a political lens in Washington, and that’s just the nature of the beast, and it is what it is.
+ - I’m an introvert. Introverts have a huge advantage over extroverts. We can create a mission and we can act on it.
+ - I’d say my greatest weakness is impatience. I don’t suffer fools well.
+ - I’d be wary of simple solutions to complex problems.
+ - We awoke one morning in September, and the world lurched on its axis.
+ - By blaming others, we fail to find the real solutions to our problems and we do not carry out our own responsibilities.
+ - If someone wants to run a campaign about ’90s nostalgia, it’s not going to be very successful.
+ - A lot of things in history change over time.
+ - I’m the tortoise in the race, but I’m a joyful tortoise.
+ - I’m energetic and passionate about the needs – the things we need to fix. I don’t feel old, I don’t feel like yesterday’s news.
+ - You can love the Mexican culture, you can love your Mexican-American wife and also believe that we need to control the border.
+ - ISIS has a caliphate the size of Indiana! Also, US military has been totally gutted. Can’t even project power anymore.
+ - I ended Affirmative Action by executive order and replaced it with a leadership model that created more opportunities for African-American and Hispanic students.
+ - I think Putin has changed, for sure. He has changed over time and he has been emboldened by, whether it’s true or not, the perception is that we’ve pulled back, so people do change and this is an example of that.
+ - Leaders lead. They don’t divide; they don’t create a climate that is poisonous.
+ - We need to increase our military spending. We need to deal with a no- fly zone in Syria, a safe zone.
+ - I used to be a conservative...
+ - As president, I will keep you and our country safe, secure, and free.
+ - I was blessed to have a mother and father that recognized the value of education.
+ - Hillary Clinton is using a private server for – where classified information go by. This is a – this is a serious administration?
+ - Is Islam a religion of peace? I’m sure for some of the practitioners, but it’s been hijacked by people who have an ideology that wants to destroy western civilization, and they’re barbarians.
+ - The Kurds are the greatest fighting force and our strongest allies. They’re Muslim.
+ - Stand your ground means stand your ground. It doesn’t mean chase after somebody who’s turned their back.
+ - We’re sticky at the ends and the middle is getting squeezed.
+ - If Americans are working harder than ever earning less than they once did, our government and our leaders should step up, offer a plan, fix what’s wrong – or they should step aside, the recovery has been everywhere but in the family paychecks. The American Dream has become a mirage for far too many.
+ - Someone even called me Veto Corleone. Because I vetoed 2,500 separate line-items in the budget.
+ - Government is basically a parasite, and if the host doesn’t grow, then government suffers.
+ - It comes down to a choice between the Little Sisters and Big Brother, and I’m going with the Sisters.
+ - The real problem is Barack Obama has had six years to advocate a position to fix this and he’s done nothing. The congress has funded these programs of building more fencing and doing all this and he hasn’t done it.
+ - Women who bring up children by themselves do it heroically, they do it against all odds, men who don’t feel responsible for being part of their child’s life create real strains on that family.
+ - I’m not sure we need half a billion dollars for women’s health issues.
+ - Florida has its own rhythm, too. People go to work, they watch their children learn and grow and start families of their own. They play in the sun and pass their lives enjoying the outsized blessings that make our state unique.
+ - Immigrants are more fertile, and they love families, and they have more intact families, and they bring a younger population. Immigrants create an engine of economic prosperity.
+ - What we have in Washington is total gridlock.
+ - I think Detroit would do real well if we started repopulating it with young, aspirational people.
+ - We now have a lack of readiness that is quite scary. We have planes that were – that Harry Truman inaugurated, the B-52. We have – the Navy has been gutted and decimated. The readiness of the Marines is way down.
+ - I’m a skeptic. I’m not a scientist. I think the science has been politicized.
+ - It’s at the core of the Catholic faith, and to imagine how we are going to succeed in our country unless we have committed family life, a child-centered family system, is hard to imagine.
+ - I forced myself to go visit Asia four times a year.
+ - I don’t wake up each morning saying, ‘Oh, wow, it’s me. I think I’m the cat’s meow. I’m the best.’
+ - You cant just be against the president.
+ - Our freedom is under attack. Our economy is under water. The leading democrat is under investigation. And America is under the gun to lead the free world to protect our civilized way of life.
+ - I’m pro-life. The law protects women’s right to chose, and I think there’s a competing right, which is the rights of the unborn. And as you get closer to term, I think the rights of the unborn become more and more prevalent.
+ - I don’t know about you, but I’m betting that when it comes to doing the right and good thing, the Little Sisters of the Poor know better than the regulators at the Department of Health and Human Services.
+ - The main thing we should be focused on is the strategy to destroy ISIS. And I laid out a plan that the Reagan Library before the tragedy of Paris, and before San Bernardino to do just that. It requires leadership, it’s not filing an amendment and call it a success.
+ - To bring about a genuine political realignment, Republicans must kill the Government Goose that Lays the Golden Eggs – the very Goose they have fought so hard and long to possess.
+ - There is no question we need higher academic standards and at the local level the rigor of the Common Core state standards must be the new minimum in classrooms.
+ - To honor the people that died, we need to stop the Iran agreement, for sure, because the Iranian mullahs have their blood on their hands, and we need to take out ISIS with every tool at our disposal.
+ - I do have the strength. Leadership, leadership is not about attacking people and disparaging people. Leadership is about creating a serious strategy to deal with the threat of our time.
+ - If we’re going to ban all Muslims, how are we going to get them to be part of a coalition to destroy ISIS?
+ - Public education must be viewed from the lens of providing each child with the learning environment that best meets his or her needs. If we can send a low-income child to a parochial school, knowing that his odds of attending college will increase as a result, then that should be our mission.
+ - The American experience works when people embrace a set of shared values, you come, you work hard, you embrace these values and you’re as American as anybody that came on the Mayflower.
+ - I have said that Mr. Trump’s language is divisive.
+ - If we’re serious about America’s leadership in the world, then we need to make sure that we have the back of the armed forces.
+ - I’ve never heard anybody in my family say anything but good things about Rick Perry.
+ - This is a tough business to run for president.
+ - I know some in the media think conservatives don’t care about the cities, but they’re wrong. We believe that every American and in every community has a right to pursue happiness.
+ - Donald Trump would be a chaos president. He would not be the commander in chief we need to keep our country safe.
+ - I would not have gone into Iraq.
+ - I think to deal with Putin, you need to deal from strength. He’s a bully, you enable bad behavior when you’re nuanced with a guy like that.
+ - Barack Obama became president, and he abandoned Iraq. He left, and when he left Al Qaida was done for. ISIS was created because of the void that we left, and that void now exists as a caliphate the size of Indiana.
+ - I kind of know what my job is, it’s to develop a message that’s hopeful and optimistic about the future of the country, to develop ideas that will give people a sense that they can lift up, and to tell them about my leadership skills to make it so.
+ - We need to unleash the military in unison with our partners in Europe and the Middle East to be effective.
+ - I think I can fix the problems in Washington that people desperately want to see fixed.
+ - Donald Trump is succeeding right now for sure. He is a gifted politician. But, he is just a gifted politician. He’s just a gifted politician that is appealing to people’s anger and frustration that is quite legitimate.
+ - If we want to destroy radical Islamic terrors, we can’t disassociate ourselves from peace loving Muslims.
+ - We need a serious leader to deal with this. And I believe I’m that guy.
+ - Developing a strategy, leading the world, funding it to make sure that we have a military that’s second to none, and doing the job and making sure that we destroy ISIS there. That’s how you keep America safe.
+ - I know what I don’t know. I would seek out, as I have, the best advice that exists. I won’t get my information from the shows.
+ - We now have a national security consideration, public health issues, we have an epidemic of heroine overdoses in all places in this country because of the ease of bringing heroine in. We have to secure the border.
+ - Teachers make a difference, and we would serve our students better by focusing on attracting and retaining the quality teachers by raising teacher pay.
+ - I never felt comfortable with making political decisions based on whether, you know, it was the right thing to do in terms of a poll.
+ - There’s a direct link between percentage of young people that are educated and how we live our lives.
+ - We need a strategy to destroy ISIS there. You can’t do that without the cooperation of the Muslim world because they’re as threatened as we are.
+ - It may be the best that Hillary Clinton can do, but it’s not the best America can do.
+ - We need to destroy ISIS in the caliphate. That’s – that should be our objective. The refugee issue will be solved if we destroy ISIS there, which means we need to have a no-fly zone, safe zones there for refugees and to build a military force.
+ - The Russians and rogue actors, including ISIS – this is a serious part of the 21st century security challenge that we face.
+ - Governors have to balance budgets. And they have to make decisions. And they have to do things that sometimes aren’t popular. And they also have to bring people together to try to solve problems.
+ - Obama doesn’t believe in American leadership and the net result is we have a caliphate the size of Indiana.
+ - I don’t think the science is clear of what percentage is man-made and what percentage is natural. It’s convoluted, for the people to say the science is decided on this is really arrogant, to be honest with you.
+ - Two months ago Donald Trump said that ISIS was not our fight. Just two months ago he said that Hillary Clinton would be a great negotiator with Iran. And he gets his foreign policy experience from the shows.
+ - Sometimes when people say things, we should actually believe what they say.
+ - I want to accelerate, not slow down, the enforcement of the death penalty in Florida.
+ - Half of the interview is substantive and half of it I think is sizing the person up.
+ - This is something – we have to have the best defensive capabilities. We need to coordinate all of our efforts with the private sector. We need to give them liability relief so that we can do that.
+ - Work needs to be the single biggest requirements. No more waivers as this administration has done. There should be real work eligibility.
+ - I’ve had a life experience that’s full of warts, full of successes.
+ - You have to maintain your principles but have a broader appeal.
+ - I will seek out the best advice, and I will create a strategy and I will persuade the American people what the role of America should be. I’ve laid out a policy of rebuilding our military.
+ - I really think that elected officials should be focused on how you create sustained economic growth, how do you create jobs and all of these issues that made people – segments of our society believe are really important are diversions politically.
+ - A lot of conservatives, a big part of the Republican base don’t like his position on common core, don’t like his position on immigration.
+ - A four percent growth strategy means you fix a convoluted tax code. You get in and you change every aspect of regulations that are job killers. You get rid of Obamacare and replace it with something that doesn’t suppress wages and kill jobs.
+ - That, by the way, is perhaps the most ludicrous comment I’ve ever heard, that climate change is a bigger threat to our country than radical Islamic terrorism.
+ - My belief is that most people are conservative. They just haven’t been asked yet.
+ - I believe that the great majority of people coming here illegally have no other option. They want to provide for their family. But we need to control our border. It’s not – it’s our responsibility to pick and choose who comes in.
+ - I will support the Republican nominee.
+ - Don’t just talk about Hispanics and say immediately we must have controlled borders. It’s kind of insulting when you think about it. Change the tone would be the first thing. Second, on immigration, I think we need to have a broader approach.
+ - America does not have the luxury of withdrawing from the world, our security, and our prosperity, and our values demand that we remain engaged and involved in – often distant places.
+ - I just think people, when they get elected, they ought to serve. They ought to do their jobs.
+ - I kinda miss Donald Trump, he was a little teddy bear to me.
+ - We can rewrite history all you want, but the simple fact is that we’re in a much more unstable place because America pulled back.
+ - The next Republican that will win will campaign in the Latino community, will campaign amongst Asian-Americans, will campaign in the black churches, will campaign in college campuses.
+ - It’s not possible in a free country to completely control the border without us losing our freedoms and liberties.
+ - Every weapons system has been gutted.
+ - There’s a whole lot of America that looks at each other and says, ‘Well, there’s 340 million people living in America. Isn’t there somebody other than a Bush or a Clinton who can be president in these modern times?’
+ - You find me a Democrat that’s for cutting spending $10 and I’ll give them a warm kiss.
+ - I had the chance to be governor for eight years and I took a year to transition out and a year to transition in, so that’s a decade of my life where I pursued my own ambitions and I thought it was time to rearrange my life to focus on other things.
+ - The United States Constitution is clear. It prohibits religious tests for public office.
+ - Sixty-five countries doing nothing is not a coalition. We need a strategy. That’s the first and foremost thing that we need.
+ - If I’m president, I’ll be a commander-in-chief, not an agitator- in-chief or a divider-in-chief, that I will lead this country in a way that will create greater security and greater safety.
+ - Banning all Muslims will make it harder for us to do exactly what we need to do, which is to destroy ISIS. We need a strategy. We need to get the lawyers off the back of the warfighters.
+ - It’s a complex relationship when your dad happened to be president and you are president and then you have all the amateur psychology that goes on when people try to speculate about motivations.
+ - Why would our president close the embassy to the Vatican? Hopefully, it is not retribution for Catholic organizations opposing Obamacare.
+ - As a candidate, I intend to let everyone hear my message, including the many who can express their love of country in a different language.
+ - The role of the federal government, if any, is to create more school choice.
+ - Everybody who aspires to high positions of leadership in their state and in their country should be willing to take unscreened, unrehearsed questions from the people who pay their salary.
+ - We’ve got to be willing to lose the primary in order to win the general election.
+ - We need to focus on building a military that is second-to-none so that we can destroy Islamic terrorism.
+ - America still is an exceptional country. We love to lead and we love to win. And we do it, when we take on any challenge and when we take – we support our friends.
+ - What we need is new leadership that takes conservative principles and applies them so that people can rise up.
+ - I don’t think there’s any Bush baggage at all.
+ - We need to embed our forces – our troops inside the Iraqi military. We need to arm directly the Kurds. And all of that has to be done in concert with the Arab nations.
+ - A strategy would be how do we mobilize support for the remnants of the Syrian Free Army, and it might require combat troops to inspire an international effort.
+ - I think the lesson’s learned are that we have to have to have a strategy to get and a strategy to get out. Which means, that you create a stable situation.
+ - Well, I think lower taxes and less regulation would actually promote growth.
+ - To me, Jeb Bush is hitting his stride. He was the most composed, the most endpoint, the most in control, I’ve seen him in an interview yet. And it’s not because I wasn’t asking him tough questions.
+ - We need to have capabilities second to none. We need to create a situation where Chinies know that there will be adverse impacts if they continue to do what they’re doing.
+ - I believe that I have the executive experience and the ideas and the proven record to fix things.
+ - The idea that somehow we’re better off today than the day that Barack Obama was inaugurated president of the United States is totally an alternative universe. The simple fact is that the world has been torn asunder.
+ - I admire John Boehner greatly. He’s a great public servant. I think people are going to miss him in the long run because he’s a person that is focused on solving problems.
+ - As governor, I saw the link between economic prosperity and the ability to acquire knowledge.
+ - There should be full engagement to protect our country from a grave threat, which is the weakest foreign policy since Jimmy Carter.
+ - We can grow economically and restore America’s leadership in the world, so that everybody has a chance to rise up.
+ - Look, the FBI has the tools necessary un-American activities in our country. It goes on, we shouldn’t even be talking about it.
+ - People, based on their emotions, will express support for the sentiment, not necessarily the specifics, because there are none.
+ - The notion that somehow you’re going to have freedom just kind of outbreak in Cuba, I think is false.
+ - I think people have good ideas on this. Clearly, we need to secure the border. Coming here legally needs to be a lot easier than coming here illegally.
+ - Who among us has never looked up into the heavens on a starlit night, lost in wonder at the vastness of space and the beauty of the stars?
+ - Any time an elected official in the world we’re in today that appears so dysfunctional challenges a core constituency not of their opponent but of their own political base, I think we should pause and give them credit.
+ - When businesses go through hard times, through down markets, what do they do is they challenge every basic assumption of how they operate. They innovate. They create disruption for a while that leads them to even greater heights when the economy turns around.
+ - There are important questions about protecting and securing the border, but we don’t need to build a wall.
+ - Donald Trump is not qualified to be president because he’s not qualified to deal with Vladimir Putin.
+ - I’m not a performer. If they’re looking for entertainer-in-chief, I’m probably not the guy.
+ - Serious times require strong leadership.
+ - I haven’t been in Washington over the last – ever. I’m not part of Washington. I got to serve as governor of a state, a purple state and I was the most successful conservative governor probably, during the time that I was there.
+ - If we’re going get back into hypotheticals, I think it does a disservice to a lot of people that sacrificed a lot.
+ - The focus ought to be on the single fact that Hillary Clinton wants to double down on a failed foreign policy and we need to be united to defeat that because we’re going to be in a place that is far less secure than it is today.
+ - I love my brother, I love my dad, actually love my mother as well, hope that’s ok. And I admire their service to the nation and the difficult decisions they had to make.
+ - Donald Trump is not a serious kind of candidate. We need someone that thinks this through. That can lead our country to safety and security.
+ - I don’t believe the federal government should be involved in the creation of standards directly or indirectly, the creation of curriculum or content. It is clearly a state responsibility.
+
+153 quotes

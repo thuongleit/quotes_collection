@@ -1,0 +1,53 @@
+ - Lord, let me make a difference for you that is utterly disproportionate to who I am.
+ - Let me forget the world and be swallowed up in the desire to glorify God.
+ - Here am I, send me; send me to the ends of the earth; send me to the rough, the savage lost of the wilderness; send me from all that is called comfort on earth; send me even to death itself, if it be but in your service, and to promote your kingdom.
+ - It is sweet to be nothing and less than nothing that Christ may be all in all.
+ - I care not where I go, or how I live, or what I endure so that I may save souls. When I sleep I dream of them; when I awake they are first in my thoughts.
+ - Oh! one hour with God infinitely exceeds all the pleasures and delights of this lower world.
+ - There is a God in heaven who overrules all things for the best; and this is the comfort of my soul.
+ - As long as I see anything to be done for God, life is worth having; but O how vain and unworthy it is to live for any lower end!
+ - If you hope for happiness in the world, hope for it from God, and not from the world.
+ - No amount of scholastic attainment, of able and profound exposition of brilliant and stirring eloquence can atone for the absence of a deep impassioned sympathetic love for human souls.
+ - God plans all perfect combinations.
+ - Oh, how precious is time! And how guilty it makes me feel when I think I have trifled away and misimproved it, or neglected to fill up each part of it with duty to the utmost of my ability and capacity.
+ - Oh that I may never loiter on my heavenly journey.
+ - Oh, that I could spend every moment of my life to God’s glory!
+ - I am more weary of life, I think, than ever I was.
+ - Once more, never think that you can live to God by your own power or strength; but always look to and rely on him for assistance, yea, for all strength and grace.
+ - In the silences I make in the midst of the turmoil of life I have appointments with God. From these silences I come forth with spirit refreshed, and with a renewed sense of power. I hear a voice in the silences, and become increasingly aware that it is the voice of God.
+ - I love to live on the brink of eternity.
+ - I cared not where or how I lived, or what hardships I went through, so I could but gain souls to Christ.
+ - I have ever found it, when I have thought the battle was over and the conquest gained, and so let down my watch, the enemy has risen up and done me the greatest injury.
+ - Thirsting desires and longings possessed my soul after perfect holiness. God was so precious to my soul that the world with all its enjoyments appeared vile. I had no more value for the favor of men than for pebbles.
+ - Further, Take heed that you faithfully perform the business you have to do in the world, from a regard to the commands of God; and not from an ambitious desire of being esteemed better than others.
+ - I longed to be a flame of fire continually glowing in the divine service and building up of Christ’s kingdom to my last and dying breath.
+ - God enabled me to so agonize in prayer that I was quite wet with perspiration, though in the shade and the cool wind. My soul was drawn out very much from the world, for multitudes of souls.
+ - Worldly pleasures, such as flow from greatness, riches, honours, and sensual gratifications, are infinitely worse than none.
+ - Oh that God would humble me deeply in the dust before Him! i deserve Hell every day for not lovingmy Lord more, who has, i trust, loved me and given Himself for me.
+ - I love to live alone in my own little cottage, where I can spend much time in prayer, etc.
+ - Give yourself to prayer, to reading and meditation on divine truths: strive to penetrate to the bottom of them and never be content with a superficial knowledge.
+ - O my Blessed God! let me climb up near to Him, and love, and long, and plead, and wrestle, and strech after Him, and for deliverence from the body of sin and death. Alas! my soul mourned to think i should ever lose sight of its Beloved again. O come, Lord Jesus, amen.
+ - Toward night, I felt my soul rejoice, that God is unchangeable happy and glorious and that He will be glorified, whatever becomes of His creatures.
+ - When you cease from labour, fill up your time in reading, meditation, and prayer: and while your hands are labouring, let your heart be employed, as much as possible, in divine thoughts.
+ - I bless God for this retirement: I never was more thankful for any thing than I have been of late for the necessity I am under of self-denial in many respects.
+ - The idea that everything would happen exactly as it does regardless of whether we pray or not is a specter that haunts the minds of many who sincerely profess belief in God. It makes prayer psychologically impossible, replacing it with dead ritual at best.
+ - I hardly ever so longed to live to God and to be altigether devoted to Him. i want to wear out my life in His service, and for His Glory!!
+ - The Lord help me to press after God forever.
+ - I have received my all from God. Oh, that I could return my all to God.
+ - It is remarkable that God began this work among the Indians at a time when I had the least hope, and to my apprehension the least rational prospect of success.
+ - A few of the sublimest geniuses of Rome and Athens had some faint discoveries of the spiritual nature of the human soul, and formed some probable conjectures, that man was designed for a future state of existence.
+ - I fear God never showed mercy to one so vile as I.
+ - I hoped that my weary pilgrimage in the world would be short; and that it would not be long before I should be brought to my heavenly home and Father’s house.
+ - I am an old sinner; and if God had designed mercy for me, he would have called me home to himself before now.
+ - Be careful to make a good improvement of precious time.
+ - Oh! it is sweet to be thus weaned from friends, and from myself, and dead to the present world, that so I may live wholly to and upon the blessed God!
+ - My disorder has been attended with several symptoms of a consumption; and I have been at times apprehensive that my great change was at hand: yet blessed be God, I have never been affrighted; but, on the contrary, at times much delighted with a view of its approach.
+ - We are a long time in learning that all our strength and salvation is in God.
+ - I board with a poor Scotchman: his wife can talk scarce any English.
+ - Oh! how amazing it is that people can talk so much about men’s power and goodness, when if God did not hold us back every moment, we should be devils incarnate!
+ - My soul often mourned of more time and opportunity to be alone with God.
+ - Whatever else you fail of, do not fail of the influence of the Holy Spirit; that is the only way you can handle the consciences of men.
+ - As to my success here I cannot say much as yet: the Indians seem generally kind, and well-disposed towards me, and are mostly very attentive to my instructions, and seem willing to be taught further.
+ - I have withstood the power of convictions a long time; and therefore I fear I shall be finally left of God.
+
+51 quotes

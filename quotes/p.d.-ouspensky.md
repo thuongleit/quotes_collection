@@ -1,0 +1,43 @@
+ - Seek the path, do not seek attainment, seek for the path within yourself. Do not expect to hear the truth from others, nor to see it, nor to read it in books. Look for the truth within yourself, not without yourself.
+ - It is only when we realize that life is taking us nowhere that it begins to have meaning.
+ - When one realises one is asleep, at that moment one is already half-awake.
+ - The greatest barrier to consciousness is the belief that one is already conscious.
+ - The strangest and most fantastic fact about negative emotions is that people actually worship them.
+ - Psychology is sometimes called a new science. This is quite wrong. Psychology is, perhaps, the oldest science, and, unfortunately, in its most essential features a forgotten science.
+ - Divide in yourself the mechanical from the conscious, see how little there is of the conscious, how seldom it works, and how strong is the mechanical – mechanical attitudes, mechanical intentions, mechanical thoughts, mechanical desires.
+ - One cannot keep all the old views and opinions and acquire new ones.
+ - The most difficult thing is to know what we do know, and what we do not know.
+ - Ideas by themselves cannot produce change of being; your effort must go in the right direction, and one must correspond to the other.
+ - Man is confronted with two obvious facts: The existence of the world in which he lives; and the existence of psychic life in himself.
+ - Art is the communication of ecstasy.
+ - We often think we express negative emotions, not because we cannot help it, but because we should express them.
+ - Attaining consciousness is connected with the gradual liberation from mechanicalness, for man is fully and completely under mechanical laws.
+ - Desire is when you do what you want, will is when you can do what you do not want.
+ - A religion contradicting science and a science contradicting religion are equally false.
+ - I mean that you always know what results will come from one or another of your actions; but in a strange way you want to do one thing and get the result that could only come from another.
+ - Man has no permanent and unchangeable I. Every thought, every mood, every desire, every sensation says “I.” And in each case it seems to be taken for granted that this I belongs to the Whole, to the whole man, and that a thought, a desire, or an aversion is expressed by this Whole.
+ - I’ve found that the chief difficulty for most people was to realize that they had really heard new things: that is things that they had never heard before. They kept translating what they heard into their habitual language. They had ceased to hope and believe there might be anything new.
+ - Philosophy is based on speculation, on logic, on thought, on the synthesis of what we know and on the analysis of what we do not know. Philosophy must include within its confines the whole content of science, religion and art.
+ - I felt that on a basis of a “search for the miraculous” it would be possible to unite together a very large number of people who were no longer able to swallow the customary forms of lying and living in lying.
+ - Effort plus motive equals result.
+ - When a man begins to know himself a little he will see in himself many things that are bound to horrify him. So long as a man is not horrified at himself he knows nothing about himself.
+ - Possibly the most interesting first impression of my life came from the world of dreams.
+ - Two things can get people to make efforts: if people want to get something, or if they want to get rid of something. Only, in ordinary conditions, without knowledge, people do not know what they can get rid of or what they can gain.
+ - Many things are mechanical and should remain mechanical. But mechanical thoughts, mechanical feelings – that is what has to be studied and can and should be changed. Mechanical thinking is not worth a penny. You can think about many things mechanically, but you will get nothing from it.
+ - People live in sleep, do everything in sleep, and do not know they are asleep.
+ - A symbol may serve to transfer our intuitions and to suggest new ones only so long as its meaning is not defined.
+ - It is by overcoming obstacles that man develops those qualities he needs.
+ - Most people can accept the truth only in the form of a lie.
+ - There is something in us that keeps us where we find ourselves. I think this is the most awful thing of all.
+ - Our ancestors were very rich and eminent people, and they left us an enormous inheritance, which we have completely forgotten, especially since the time when we began to consider ourselves the descendants of a monkey.
+ - To remember oneself means the same thing as to be aware of oneself – I am. It is not a function, not thinking, not feeling; it is a different state of consciousness.
+ - Truths that become old become decrepit and unreliable; sometimes they may be kept going artificially for a certain time, but there is no life in them.
+ - Learn to see it in thyself and thou wilt understand the infinite essence, hidden in all illusory forms. Understand that the world which thou knowest is only one of the aspects of the infinite world, and things and phenomena are merely hierolgyphics of deeper ideas.
+ - There is no tyranny more ferocious than the tyranny of morality. Everything is sacrificed to it.
+ - If you want to remember yourself, the best thing is not to think about yourself. As long as you think about yourself, you will not remember yourself.
+ - Understanding is always the understanding of a smaller problem in relation to a bigger problem.
+ - The problem of Eternity, of which the face of the Sphinx speaks, takes us into the realm of the impossible. Even the problem of Time is simple in comparison with the problem of Eternity.
+ - There is no possibility of remembering what has been found and understood, and later repeating it to oneself. It disappears as a dream disappears. Perhaps it is all nothing but a dream.
+ - The number of laws is constantly growing in all countries and, owing to this, what is called crime is very often not a crime at all, for it contains no element of violence or harm.
+
+41 quotes

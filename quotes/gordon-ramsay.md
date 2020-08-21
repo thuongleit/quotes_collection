@@ -1,0 +1,83 @@
+ - Push your limit to the absolute extreme.
+ - I am what I am. A fighter.
+ - Put your head down and work hard. Never wait for things to happen, make them happen for yourself through hard graft and not giving up.
+ - There’s no bigger pain anywhere in the world than a vegetarian.
+ - I hid myself in food.
+ - Chefs are nutters. They’re all self-obsessed, delicate, dainty, insecure little souls and absolute psychopaths. Every last one of them.
+ - You don’t come into cooking to get rich.
+ - Kitchens are hard environments and they form incredibly strong characters.
+ - Swearing is industry language. For as long as we’re alive it’s not going to change. You’ve got to be boisterous to get results.
+ - The pressure on young chefs today is far greater than ever before in terms of social skills, marketing skills, cooking skills, personality and, more importantly, delivering on the plate. So you need to be strong. Physically fit. So my chefs get weighed every time they come into the kitchen.
+ - I shoot from the hip.
+ - I don’t like looking back. I’m always constantly looking forward. I’m not the one to sort of sit and cry over spilt milk. I’m too busy looking for the next cow.
+ - Cooking is about passion, so it may look slightly temperamental in a way that it’s too assertive to the naked eye.
+ - I didn’t get depressed, I don’t get depressed.
+ - I’m quite a chauvinistic person.
+ - If you want to become a great chef, you have to work with great chefs. And that’s exactly what I did.
+ - I still love football, though, and I think cooking is like football. It’s not a job, it’s a passion. When you become good at it, it’s a dream job and financially you need never to worry. Ever.
+ - They say cats have nine lives. I’ve had 12 already and I don’t know how many more I’ll have.
+ - I train my chefs with a blindfold. I’ll get my sous chef and myself to cook a dish. The young chef would have to sit down and eat it with a blindfold. If they can’t identify the flavor, they shouldn’t be cooking the dish.
+ - I cook, I create, I’m incredibly excited by what I do, I’ve still got a lot to achieve.
+ - The minute you start compromising for the sake of massaging somebody’s ego, that’s it, game over.
+ - MasterChef Junior for me was about working closely with these kids and getting them to reeducate their parents to understand that food is as important educationally as Math and English and it’s important that we don’t take it for granted.
+ - The secret is to make sure the business is running to perfection, with or without me.
+ - Stopping the junk food and Eating well is partially about cooking well and having the skills to do that.
+ - Cooking today is a young man’s game, I don’t give a bollocks what anyone says.
+ - As a soccer player, I wanted an FA Cup winner’s medal. As an actor you want an Oscar. As a chef it’s three-Michelin’s stars, there’s no greater than that. So pushing yourself to the extreme creates a lot of pressure and a lot of excitement, and more importantly, it shows on the plate.
+ - Find what’s hot, find what’s just opened and then look for the worst review of the week. There is so much to learn from watching a restaurant getting absolutely panned and having a bad experience. Go and see it for yourself.
+ - I am a chef who happens to appear on the telly, that’s it.
+ - I love eating out. I don’t deny that. But I don’t want 12 or 15 courses because the chef wants me to taste this or taste that. I just want to be able to decide.
+ - I don’t run restaurants that are out of control. We are about establishing phenomenal footholdings with talent.
+ - I’m not critic-proof, and I still take it personally, but I take it less personally now.
+ - When you cook under pressure you trade perfection.
+ - I suppose your security is your success and your key to success is your fine palate.
+ - When you’re a chef, you graze. You never get a chance to sit down and eat. They don’t actually sit down and eat before you cook. So when I finish work, the first thing I’ll do, and especially when I’m in New York, I’ll go for a run. And I’ll run 10 or 15k on my – and I run to gain my appetite.
+ - I grew up in a funny way.
+ - My childhood favourite is mum’s shepherd’s pie, Yorkshire pudding and roasted potatoes. I remember coming home from school and going to the kitchen to help her. It’s because of her that I discovered my love for cooking.
+ - Being assertive and somewhat really firm has to be backed up with being fair.
+ - I act on impulse and I go with my instincts.
+ - My wife, a schoolteacher, very disciplined. If you think I’m tough, trust me, and wait till you see when the children are on the naughty step. It’s hilarious. So we decided that I’m going to work like a donkey and provide amazing support for the family.
+ - However amazing a dish looks, it is always the taste that lingers in your memory. Family and friends will appreciate a meal that tastes superb-even if you’ve brought the pan to the table.
+ - You know how arrogant the French are – extraordinary.
+ - I don’t think it’s a good advert for any restaurant, a fat chef, and secondly, who wants to eat a dessert when the chef’s a fat pig.
+ - I came up from a difficult background.
+ - I’m a big lover of fish. Cooking fish is so much more difficult than cooking protein meats, because there are no temperatures in the medium, rare, well done cooking a stunning sea bass or a scallop.
+ - I am well aware that a chef is only as good as his last meal.
+ - If I relaxed, if I took my foot off the gas, I would probably die.
+ - Eating out doesn’t have to be a formula. Eating out is about having fun. I get really frustrated when it’s badly done.
+ - Running started as a way of relaxing. It’s the only time I have to myself. No phones or e-mails or faxes.
+ - When you find a guy who is powerful, a big father figure, you latch onto him immediately.
+ - I think every chef, not just in America, but across the world, has a double-edged sword – two jackets, one that’s driven, a self-confessed perfectionist, thoroughbred, hate incompetence and switch off the stove, take off the jacket and become a family man.
+ - I swim like a fish and I have an amazing kick.
+ - I’ve had a lot of success; I’ve had failures, so I learn from the failure.
+ - If I can give you one strong piece of advice, when you go away for that romantic weekend, whatever you do, do not accept or take the upgrade to the honeymoon suite.
+ - I spend more time in the kitchen than I have in the dining room, for obvious reasons, however, I just want to sit and indulge.
+ - We have never done anything in a cynical fake way.
+ - There’s a bond among a kitchen staff, I think. You spend more time with your chef in the kitchen than you do with your own family.
+ - I like finding talent. That’s what really turns me on, I suppose.
+ - I’ve always said that I think females make the best chefs anywhere in the world.
+ - It’s very hard when you eat out every day for a living, and a new restaurant comes along and you haven’t got that same vigour that you had 10 years ago.
+ - I’m Gordon Ramsay, for goodness sake: people know I’m volatile.
+ - I’ve never been a hands-on dad. I’m not ashamed to admit it, but you can’t run a restaurant and be home for tea at 4:30 and bath and change nappies.
+ - I am the most unselfish chef in Britain today.
+ - It’s vulgar, coming from where I do, to talk about money.
+ - I want my kids to see me as Dad, for God’s sake, not a television personality.
+ - We are about creating a new wave of talent. We are the Manchester United of kitchens now. Am I playing full-time in the kitchen? I am a player-coach.
+ - What’s frustrating more than anything is when chefs start to cut corners and believe that they are incognito in the way they send out appetizers, entrees, and they know it’s not 100 percent, but they think the customers can’t spot it.
+ - My mum doesn’t enjoy sometimes listening to me tell staff off, and I say to my mum, it’s a kitchen, not a hair-dressing salon.
+ - I’d like to think I’m a great teacher.
+ - When you’re cooking in the premier league of restaurants, when things go down, it has to be sorted immediately.
+ - I suppose I might be a player-coach nowadays. I’m a great teacher, and I enjoy teaching. But I’m glad I got injured and ended up turning to cooking. It was an accident but the happiest one of my life.
+ - There are very few chefs both in Britain and the States that really identify the secret of being consistent. And combine consistency with flavor.
+ - No one saw the recession coming.
+ - I’m not trying to take New York by storm. I just want to sneak in there, keep my head down, batten down the hatches and cook.
+ - The problem with Yanks is they are wimps.
+ - I quite like that jeopardy, those up-against-the-wall odds. I don’t like it when it’s over-comfortable, too easy, something that can be done in two or three weeks. I like a challenge.
+ - Chelsea has always been a foodie heaven and it will never change in that respect.
+ - I was a naturally aggressive left-back, a cut-throat tackler.
+ - We’re fragile, fragmented souls who are very sensitive to criticism.
+ - I won’t let people write anything they want to about me.
+ - Would I swap what I have achieved as a cook if I could have been as successful as a footballer? Definitely.
+ - My father was a swim teacher. We used to swim before school, swim after school.
+
+81 quotes

@@ -1,0 +1,68 @@
+ - A kiss is the beginning of cannibalism.
+ - Beauty is desired in order that it may be befouled; not for its own sake, but for the joy brought by the certainty of profaining it.
+ - Not every woman is a prostitute, but prostitution is the natural apotheosis of the feminine attitude.
+ - The need to go astray, to be destroyed, is an extremely private, distant, passionate, turbulent truth.
+ - Life is whole only when it isn’t subordinate to a specific object that exceeds it. In this way, the essence of entirety is freedom.
+ - Eroticism is the approval of life unto death.
+ - Eroticism differs from animal sexuality in that human sexuality is limited by taboos and the domain of eroticism is that of the transgression of these taboos. Desire in eroticism is the desire that triumphs over the taboo. It presupposes man in conflict with himself.
+ - The truth is paradoxical to the extent of being exactly contrary to the usual perception.
+ - To choose evil is to choose freedom, emancipation from all restraint.
+ - My true church is a whorehouse – the only one that gives me true satisfaction.
+ - I believe that truth has only one face: that of a violent contradiction.
+ - The sexual act is in time what the tiger is in space.
+ - Eroticism, it may be said, is assenting to life up to the point of death.
+ - Only literature could reveal the process of breaking the law – without which the law would have no end – independently of the necessity to create order.
+ - Nothing is more necessary or stronger in us than rebellion.
+ - The owl flies, in the moonlight, over a field where the wounded cry out. Like the owl, I fly in the night over my own misfortune.
+ - How cruel my suffering is, – no one is more talkative than I am!
+ - We have in fact only two certainties in this world – that we are not everything and that we will die.
+ - Thought does not ennoble us and neither does it differentiate humans from other animals.
+ - What does physical eroticism signify if not a violation of the very being of its practitioners? – A violation bordering on death, bordering on murder?
+ - The warrior’s nobility is like a prostitute’s smile, the truth of which is self-interest.
+ - If I give up the viewpoint of action, my perfect nakedness is revealed to me.
+ - Extreme seductiveness is at the boundary of horror.
+ - In what will survive me I am in harmony with my annihilation.
+ - Pleasure only starts once the worm has got into the fruit; to become delightful, happiness must be tainted with poison.
+ - Sacrifice is nothing other than the production of sacred things.
+ - The chaos of the mind cannot constitute a reply to the providence of the universe. All it can be is an awakening in the night, where all that can be heard is anguished poetry let loose.
+ - Realism gives me the impression of a mistake. Violence alone escapes the feeling of poverty of those realistic experiences. Only death and desire have the force that oppresses, that takes one’s breath away. Only the extremism of desire and death enable one to attain the truth.
+ - Eroticism cannot be entirely revealed without poetry.
+ - Naturally, love’s the most distant possibility.
+ - Existence as entirety remains beyond any one meaning and it is the conscious presence of humanness in the world inasmuch as this is nonmeaning, having nothing to do other than be what it is, no longer able to go beyond itself or give itself some kind of meaning through action.
+ - I enjoyed the innocence of unhappiness and of helplessness; could I blame myself for a sin which attracted me, which flooded me with pleasure precisely to the extent it brought me to despair?
+ - You perhaps now know that desire reduces us to pulp.
+ - Sovereignty, loyalty, and solitude.
+ - It is clear that the world is purely parodic, that each thing seen is the parody of another, or is the same thing in a deceptive form.
+ - Crime is a fact of the human species, a fact of that species alone, but it is above all the secret aspect, impenetrable and hidden. Crime hides, and by far the most terrifying things are those which elude us.
+ - It seems impossible, in fact, to judge the eye using any word other than seductive, since nothing is more attractive in the bodies of animals and men. But extreme seductiveness is probably at the boundary of horror.
+ - The difficulty that contestation must be done in the name of an authority is resolved this: I contest in the name of contestation what experience itself is.
+ - The power of death signifies that this real world can only have a neutral image of life, that life’s intimacy does not reveal it’s dazzling consumption until the moment it gives out.
+ - We want to decipher skies and paintings, go behind these starry backgrounds or these painted canvases and, like kids trying to find a gap in a fence, try to look through the cracks in the world.
+ - Nothing radically changes when instead of human satisfaction, we think of the satisfaction of some heavenly being! God’s person displaces the problem and does not abolish it.
+ - We did not lack modesty – on the contrary – but something urgently drove us to defy modesty together as immodestly as possible.
+ - By the care she lavishes on her toilet, by the concern she has for her beauty set off by her adornment, a woman regards herself as an object always trying to attract men’s attention.
+ - When my face is flushed with blood, it becomes red and obscene. It betrays at the same time, through morbid reflexes, a bloody erection and a demanding thirst for indecency and criminal debauchery.
+ - An intention that rejects what has no meaning in fact is a rejection of the entirety of being.
+ - I teach the art of turning anguish into delight.
+ - The circumstances of my life are paralyzing.
+ - The anguish of the neurotic individual is the same as that of the saint. The neurotic, the saint are engaged in the same battle. Their blood flows from similar wounds. But the first one gasps and the other one gives.
+ - We reach ecstasy by a contestation of knowledge. Were I to stop at ecstasy and grasp it, in the end I would define it.
+ - Intellectual despair results in neither weakness nor dreams, but in violence. It is only a matter of knowing how to give vent to one’s rage; whether one only wants to wander like madmen around prisons, or whether one wants to overturn them.
+ - To place oneself in the position of God is painful: being God is equivalent to being tortured. For being God means that one is in harmony with all that is, including the worst. The existence of the worst evils is unimaginable unless God willed them.
+ - I remain in intolerable non-knowledge, which has no other way out than ecstasy itself.
+ - The emotional element which gives an obsessive value to communal existence is death.
+ - Though the immediate impression of rebellion may obscure the fact, the task of authentic literature is nevertheless only conceivable in terms of a desire for fundamental communication with the reader.
+ - The essence of morality is a questioning about morality; and the decisive move of human life is to use ceaselessly all light to look for the origin of the opposition between good and evil.
+ - But a sort of rupture-in anguish-leaves us at the limit of tears: in such a case we lose ourselves, we forget ourselves and communicate with an elusive beyond.
+ - I think that knowledge enslaves us, that at the base of all knowledge there is a servility, the acceptation of a way of life wherein each moment has meaning only in relation to another or others that will follow it.
+ - Indeed, the direction of the future is only there in order to elude us.
+ - The analysis of laughter had opened to me points of contact between the fundamentals of a communal and disciplined emotional knowledge and those of discursive knowledge.
+ - The great monuments are raised up like dams, pitting the logic of majesty and authority against all the shady elements: it is in the form of cathedrals and palaces that Church and State speak and impose silence on the multitudes.
+ - Life has always taken place in a tumult without apparent cohesion, but it only finds its grandeur and its reality in ecstasy and in ecstatic love.
+ - Humanity-attached-to-the-task-of-changing-the-world, which is only a single and fragmentary aspect of humanity, will itself be changed in humanity-as-entirety.
+ - If I want to realize totality in my consciousness, I have to relate myself to an immense, ludicrous, and painful convulsion of all of humanity.
+ - Sanity is the lot of those who are most obtuse, for lucidity destroys one’s equilibrium: it is unhealthy to honestly endure the labors of the mind which incessantly contradict what they have just established.
+ - It is human agitation, with all the vulgarity of needs small and great, with its flagrant disgust for the police who repress it, it is the agitation of all menthat alone determines revolutionary mental forms, in opposition to bourgeois mental forms.
+ - Obscenity is our name for the uneasiness which upsets the physical state associated with self-possession, with the possession of a recognized and stable individuality.
+
+66 quotes

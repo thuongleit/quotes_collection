@@ -1,0 +1,52 @@
+ - You will hear thunder and remember me, And think: she wanted storms. The rim Of the sky will be the colour of hard crimson, And your heart, as it was then, will be on fire.
+ - Italy is a dream that keeps returning for the rest of your life.
+ - If you were music I would listen to you ceaselessly And my low spirits would brighten up.
+ - The secret of secrets is inside me again.
+ - It is unbearably painful for the soul to love silently.
+ - I am in the middle of it: chaos and poetry; poetry and love and again, complete chaos. Pain, disorder, occasional clarity; and at the bottom of it all: only love; poetry. Sheer enchantment, fear, humiliation. It all comes with love.
+ - Rising from the past, my shadow Is running in silence to meet me.
+ - Forgive me, that I manage badly, Manage badly but live gloriously, That I leave traces of myself in my songs, That I appeared to you in waking dreams.
+ - And it seemed to me that there were fires Flying till dawn without number And I never found out things-those Strange eyes of his-what colour? Everything trembling and singing and Were you my enemy or my friend, Winter was it or summer?
+ - I seem to myself, as in a dream, Am accidental guest in this dreadful body.
+ - I go forth to seek To seek and claim the lovely magic garden Where grasses softly sigh and Muses speak.
+ - We learned not to meet anymore, We don’t raise our eyes to one another, But we ourselves won’t guarantee What could happen to us in an hour.
+ - All that I am hangs by a thread tonight.
+ - I am not one of those who left the land to the mercy of its enemies. Their flattery leaves me cold, my songs are not for them to praise.
+ - My shadow serves as the friend I crave.
+ - We aged a hundred years, and this happened in a single hour: the short summer had already died, the body of the ploughed plains smoked.
+ - This cruel age has deflected me, like a river from this course. Strayed from its familiar shores, my changeling life has flowed into a sister channel. How many spectacles I’ve missed: the curtain rising without me, and falling too. How many friends I never had the chance to meet.
+ - Poems are my link with the times, with the new life of my people.
+ - Mary Magdalene beat her breast and sobbed, The beloved disciple turned to stone, But where the silent Mother stood, there No one glanced and no one would have dared.
+ - Call me a sinner, Mock me maliciously: I was your insomnia, I was your grief.
+ - Wild honey smells of freedom The dust – of sunlight The mouth of a young girl, like a violet But gold – smells of nothing.
+ - As the future ripens in the past, so the past rots in the future – a terrible festival of dead leaves.
+ - There is a sacred, secret line in loving which attraction and even passion cannot cross.
+ - All has been looted, betrayed, sold; black death’s wing flashed ahead.
+ - Now no one will listen to songs. The prophesied days have begun. Latest poem of mine, the world has lost its wonder, Don’t break my heart, don’t ring out.
+ - Give me bitter years of sickness, Suffocation, insomnia, fever, Take my child and my lover, And my mysterious gift of song This I pray at your liturgy After so many tormented days, So that the stormcloud over darkened Russia Might become a cloud of glorious rays.
+ - Hands, matches, an ashtray. A ritual beautiful and bitter.
+ - We are all carousers and loose women here; How unhappy we are together!
+ - Your voice is wild and simple. You are untranslatable Into any one tongue.
+ - Song falls silent, music is dumb, But the air burns with their fragrance, And white winter, on its knees, Observes everything with reverent attention.
+ - No foreign sky protected me, no stranger’s wing shielded my face. I stand as witness to the common lot survivor of that time, that place.
+ - The stars of death stood over us. And Russia, guiltless, beloved, writhed under the crunch of bloodstained boots, under the wheels of Black Marias.
+ - Courage: Great Russian word, fit for the songs of our children’s children, pure on their tongues, and free.
+ - The word dropped like a stone on my still living breast. Confess: I was prepared, am somehow ready for the test.
+ - You will hear thunder and remember me, and think: she wanted storms...
+ - We thought: we’re poor, we have nothing, but when we started losing one after the other so each day became remembrance day, we started composing poems about God’s great generosity and our former riches.
+ - Real tenderness can’t be confused, It’s quiet and can’t be heard.
+ - I have long had this premonition of a bright day and a deserted house.
+ - The triumphs of a mysterious non-meeting are desolate ones; unspoken phrases, silent words.
+ - This Cruel Age has deflected me...
+ - No, not under the vault of another sky, not under the shelter of other wings. I was with my people then, there where my people were doomed to be.
+ - I know beginnings, I know endings too, and life-in-death, and something else I’d rather not recall just now.
+ - That was when the ones who smiled Were the dead, glad to be at rest.
+ - And you know, I agree to everything: I will condemn, I will forget, I will give comfort to the enemy, Darkness will be light and sin lovely.
+ - You do not know just what you’ve been forgiven.
+ - A loss, but who still mourns the breath of one woman, or laments one wife? Though my heart never can forget, how, for one look, she gave up her life.
+ - Who will grieve for this woman? Does she not seem too insignificant for our concern? Yet in my heart I never will deny her, Who suffered death because she chose to turn.
+ - Sweet to me was not the voice of man, But the wind’s voice was understood by me. The burdocks and the nettles fed my soul, But I loved the silver willow best of all.
+ - Not, not mine: it’s somebody else’s wound; I could never have borne it. So take the thing that happened, hide it, stick it in the ground; whisk the lamps away.
+ - I myself, from the very beginning, Seemed to myself like someone’s dream or delirium Or a reflection in someone else’s mirror, Without flesh, without meaning, without a name. Already I knew the list of crimes That I was destined to commit.
+
+50 quotes

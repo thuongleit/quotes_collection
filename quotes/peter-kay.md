@@ -1,0 +1,22 @@
+ - Garlic bread, it’s the future, I’ve tasted it.
+ - You ever dip your biscuit in your tea and it breaks? I swear now, you never get used to that.
+ - The smaller the monkey the more it looks like it would kill you at the first given opportunity.
+ - There’s no panic like the panic you momentarily feel when your hand or head is stuck in something.
+ - Is French kissing in France just called kissing?
+ - You never know where to look when eating a banana.
+ - Why do toasters always have a setting that burns the toast to a horrible crisp no one would eat?
+ - I think animal testing is a terrible idea; they get all nervous and give the wrong answers.
+ - It’s impossible to look cool whilst picking up a Frisbee.
+ - The most painful household accident is wearing socks and stepping on an upturned plug.
+ - Everyone had an uncle who tried to steal their nose.
+ - Amarillio, just turn to the left and 500 yards down.
+ - Why does mineral water that ‘has trickled through mountains for centuries’ have a ‘use by’ date?
+ - Triangular sandwiches taste better than square ones.
+ - One of the most awkward things that can happen in a pub is when your pint-to-toilet cycle gets synchronised with a complete stranger.
+ - Old women with mobile phones look wrong.
+ - If a person owns a piece of land do they own it all the way down to the core of the earth?
+ - I might be collecting wheely bins in 12 months time but at least they’ll be wheely bins outside back gates that I know, in a part of the country that I love. There’s no place like home!
+ - Some days you see lots of people on crutches.
+ - No one knows the origins of their metal coat hangers.
+
+20 quotes

@@ -1,0 +1,32 @@
+ - You can’t fatten the pig on market day.
+ - She was my accountant, so I just believed her.
+ - The bicycle is a curious vehicle. Its passenger is its engine.
+ - You are not prime minister of Australia because of some kind of process of divine selection. You are prime minister of Australia through the gift of the Australian people.
+ - I accept that in a free society you have to justify reductions in people’s liberties. I accept that, bearing in mind my starting point is that the most important human right is the right to life...
+ - The cross is not a detour or a hurdle on the way to the kingdom, nor is it even the way to the kingdom; it is the kingdom come.
+ - People who say they’re too busy to have lunch have a false impression of their own importance.
+ - There is a very special place in the Australian psyche for sport. It is one of the pillars of the Australian way of life. You don’t really understand what makes the Australian nation tick unless you understand the great affection Australians have for sport.
+ - Sport is an important part of the Australian psyche. Anybody who thinks that sport is not part of the fabric of Australian life misunderstands this country quite dramatically.
+ - I’m not running away from the fact that I had previously said I did not contemplate a major increase, and that was a fair statement of the Government’s state of mind at the time I made that.
+ - If I am wrong and you are right then the democratic process of the Australian community will vindicate you and condemn me.
+ - How can you render the duties of justice to men when they may destroy you?
+ - Young people are at risk of being disinherited from their community if that community lacks the courage and confidence to teach its history.
+ - Of all the important relationships that Australia has with other countries, none has been more greatly transformed over the last 10 years than our relationship with China.
+ - I accept that climate change is a challenge, I accept the broad theory about global warming. I am sceptical about a lot of the more gloomy predictions.
+ - I’m all for it. In these days, regional marketing is the only way to survive.
+ - A conservative is someone who does not think he is morally superior to his grandfather.
+ - Truth is absolute, truth is supreme, truth is never disposable in national political life.
+ - Nonviolent action on behalf of justice is no automatic forumla with promise of success: but neither is war. After all, at least half of the people who go to war for some cause deemed worthy of it are defeated.
+ - I thank all of those who weren’t born in this country for coming here and making a contribution to Australia. We are the least discriminatory country in the world, in my view.
+ - For so long as we condone injustice by a small but powerful group, we condone the destruction of all social stability, all real peace, all trust in man’s good intentions toward his fellow man.
+ - I think when people talk about civil liberties, they sometimes forget that action taken to protect the citizen against physical violence and physical attack is a blow in favour and not a blow against civil liberties.
+ - I’ve never believed in lower wages. Never. Never believed in lower wages, I’ve never believed in lower wages as an economic instrument.
+ - Nobody should underestimate how much the world changed on the 11th of September 2001.
+ - It’s too much to expect in an academic setting that we should all agree, but it is not too much to expect discipline and unvarying civility.
+ - I have absolutely no difficulty myself with the playing of God Save the Queen in the presence of Her Majesty.
+ - We won’t just automatically click our heels and follow the Americans.
+ - It’s beyond belief that any Australian could be so stupid as to carry drugs into any country in Asia.
+ - I don’t think there’s any reason on Earth why people should have access to automatic and semiautomatic weapons unless they’re in the military or in the police.
+ - This is appalling. The idea that a person could be punished because of their religious belief and the idea they might be executed is just beyond belief.
+
+30 quotes

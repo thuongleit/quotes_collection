@@ -1,0 +1,46 @@
+ - Love art in yourself, and not yourself in art.
+ - Who am I? What will I be? Why am I here? Where am I going?
+ - Play well, or play badly, but play truly.
+ - Remember: there are no small parts, only small actors.
+ - All action in theatre must have inner justification, be logical, coherent, and real.
+ - The person you are is a thousand times more interesting than the best actor you could ever hope to be.
+ - You’ll never see any two good actors approach a role in the same way.
+ - You must be so thoroughly immersed in the given circumstances of the play, then you decide what it is at any given moment what that the actor wants.
+ - Of course, if you have thought up to now that an actor relies merely on inspiration you will have to change your mind. Talent without work is nothing more than raw unfinished material.
+ - When we are on stage, we are in the here and now.
+ - When an actor is completely absorbed by some profoundly moving objective so that he throws his whole being passionately into its execution, he reaches a state we call inspiration.
+ - Never allow yourself externally to portray anything that you have not inwardly experienced and which is not even interesting to you.
+ - The greatest wisdom is to realize one’s lack of it.
+ - Create your own method. Don’t depend slavishly on mine. Make up something that will work for you! But keep breaking traditions, I beg you.
+ - What is important to me is not the truth outside myself, but the truth within myself.
+ - When you’re playing a character who’s cruel, look for the places where he’s kind. When you’re playing a character who is unhappy, look for the places where he has a glint of merriment.
+ - Talent is nothing but a prolonged period of attention and a shortened period of mental assimilation.
+ - At times of great stress it is especially necessary to achieve a complete freeing of the muscles.
+ - Unless the theatre can ennoble you, make you a better person, you should flee from it.
+ - The theatre infects the audience with its noble ecstasy.
+ - In the creative process there is the father, the author of the play; the mother, the actor pregnant with the part; and the child, the role to be born.
+ - In life we listen to other people. Listen with varying degrees of concentration and attention, right? Actors must learn to listen in a different way.
+ - In every physical action, unless it is purely mechanical, there is concealed some inner action, some feelings. This is how the two levels of life in a part are created, the inner and the outer. They are intertwined. A common purpose brings them together and reinforces the unbreakable bond.
+ - In the language of an actor, to know is synonymous with to feel.
+ - In the given circumstances you must be rooted in the play. Do not depart from the play. Don’t cut yourself off from your partner in the scene, or partners.
+ - Our demands are simple, normal, and therefore they are difficult to satisfy. All we ask is that an actor on the stage live in accordance with natural laws.
+ - Every person who is really an artist desires to create inside of himself another, deeper, more interesting life than the one that actually surrounds him.
+ - Fear your admirers! Learn in time to hear, understand, and love the cruel truth about yourselves!
+ - Doubt is the enemy of creativeness.
+ - Young actors, fear your admirers! Learn in time, from your first steps, to hear, understand and love the cruel truth about yourselves. Find out who can tell you that truth and talk of your art only with those who can tell you the truth.
+ - A true priest is aware of the presence of the altar during every moment that he is conducting a service. It is exactly the same way that a true artist should react to the stage all the time he is in the theater. An actor who is incapable of this feeling will never be a true artist.
+ - The character has to have some kind of arch. The character has to go through an event, and be changed by the human event.
+ - The language of the body is the key that can unlock the soul.
+ - The life of a character should be an unbroken line of events and emotions, but a play only gives us a few moments on that line – we must create the rest to portray a convincing life.
+ - The direct effect on our mind is achieved by the words, the text, the thought, which arouse consideration. Our will is directly affected by the super-objective, by other objectives, by a through line of action. Our feelings are directly worked upon by tempo-rhythm.
+ - The main factor in any form of creativeness is the life of a human spirit, that of the actor and his part, their joint feelings and subconscious creation.
+ - Gratuitous cruelty borders on the pathological, psychotic and that becomes uninteresting because there is no choice.
+ - We have as many planes of speech as does a painting planes of perspective which create perspective in a phrase. The most important word stands out most vividly defined in the very foreground of the sound plane. Less important words create a series of deeper planes.
+ - Success is transient, evanescent. The real passion lies in the poignant acquisition of knowledge about all the shading and subtleties of the creative secrets.
+ - I was born an ordinary actor. I will die an ordinary actor. But I’ve persisted.
+ - It is only when an actor feels that his inner and outer life on the stage is flowing naturally and normally, in the circumstances that surround him, that the deeper sources of his subconscious gently open, and from them come feelings we cannot always analyse.
+ - Don’t go so deep in yourself that you no longer exist for your partner and for the character and for the play.
+ - All art is autobiographical – if it’s not, it’s not going to quicken on-stage, and it’s not going to come alive.
+ - In talking about a genius, you would not say that he lies; he sees realities with different eyes from ours.
+
+44 quotes

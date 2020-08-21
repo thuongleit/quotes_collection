@@ -1,0 +1,55 @@
+ - It’s a Man’s Man’s Man’s World. ~~James Brown
+ - I’ve got soul and I’m super bad. ~~James Brown
+ - Our silence is deafening and deadly. ~~James Brown
+ - The white horse of heroin will ride you to hell. ~~James Brown
+ - I don’t know karate, but I know ka-razy! ~~James Brown
+ - You can’t teach others if you are living the same way. ~~James Brown
+ - You can take care of yourself, and God helps those who help themselves. ~~James Brown
+ - Don’t let nobody take care of your business better than you. ~~James Brown
+ - It doesn’t matter how you travel it, it’s the same road. It doesn’t get any easier when you get bigger, it gets harder. And it will kill you if you let it. ~~James Brown
+ - You got to live for yourself, yourself and nobody else. ~~James Brown
+ - I only got a seventh-grade education, but I have a doctorate in funk, and I like to put that to good use. ~~James Brown
+ - I’m twice as old, but I feel good. ~~James Brown
+ - Thank God that I had the ability to understand that I had a different beat and that I was a drummer. ~~James Brown
+ - I had to tell about my colonic, which expresses the fact why I’m so neat today as opposed to a few years ago. I never knew that the weight made that much difference. ~~James Brown
+ - Some like them fat, some like them tall, some like them short, skinny legs and all. I like them all. ~~James Brown
+ - My music wasn’t written by Mozart, Beethoven, Bach or Schubert. It’s written by God and me. They go “a one and a two and up.” We start on the downbeat. Bam! And that’s where we got them. ~~James Brown
+ - My son don’t have to say it loud, I’m black and I’m proud. He don’t have to be called those crazy names. ~~James Brown
+ - Tell the politicians and the hustlers: live and let live. ~~James Brown
+ - Takes a man or a woman to say I’m sorry, and it takes a fool to walk away. ~~James Brown
+ - Hair is the first thing. And teeth the second. Hair and teeth. A man got those two things he’s got it all. ~~James Brown
+ - Money won’t change you, but time will take you out. ~~James Brown
+ - If you don’t get it the first time, back up and try it again. ~~James Brown
+ - Sometimes you struggle so hard to feed your family one way, you forget to feed them the other way, with spiritual nourishment. Everybody needs that. ~~James Brown
+ - Sometimes, you like to let the hair do the talking! ~~James Brown
+ - I taught them everything they know, but not everything I know. ~~James Brown
+ - As I always said, if people wanted to know who James Brown is, all they have to do is listen to my music. ~~James Brown
+ - Papa didn’t cuss, he didn’t raise a whole lot of fuss. But when we did wrong, Papa beat the hell out of us. ~~James Brown
+ - Got ants in my pants and I need to dance, so big fine mama, come give me a chance. ~~James Brown
+ - I’m a ghetto man who made good. I never forgot where I came from and who put me on top – God and Jack The Rapper. ~~James Brown
+ - You’re like a dull knife, it just ain’t cutting. ~~James Brown
+ - My expectations of other people, I double them on myself. ~~James Brown
+ - Take those kids and raise them up, teach them how to drink out of a righteous cup. ~~James Brown
+ - When I’m on stage, I’m trying to do one thing: bring people joy. Just like church does. People don’t go to church to find trouble, they go there to lose it. ~~James Brown
+ - When I’m on stage, I’m trying to do one thing: bring people joy. ~~James Brown
+ - Music has to breathe and sweat. You have to play it live. ~~James Brown
+ - This is a revolution of the mind, get your mind together and get away from drugs. ~~James Brown
+ - When you touch me, good God. ~~James Brown
+ - Everybody over there, get on up. Everybody out there, get into it. Everybody right there, get involved. ~~James Brown
+ - I want to say to you: Help yourself, so you can help someone else. ~~James Brown
+ - Music, it requires more than brawn. It requires a lot of heart. You gotta put love in there. ~~James Brown
+ - You got to use what you got to get just what you want. ~~James Brown
+ - Retire for what? What would I do? I made my name as a person that is helping. I’m like Moses in the music business. ~~James Brown
+ - The hardest thing about being James Brown is I have to live. I don’t have no down time. ~~James Brown
+ - I used to think like Moses. That knocked me down for a couple years and put me in prison. Then I start thinking like Job. Job waited and became the wealthiest and richest man ever ’cause he believed in God. ~~James Brown
+ - For goodness sake, look at those cakes. ~~James Brown
+ - I think the best thing about being James Brown is looking at my little son. Hopefully I can make my son a role model to a lot of people. ~~James Brown
+ - I’ve been held responsible for taxes I know nothing about. ~~James Brown
+ - I’d rather be Jack be smart, than Jack be quick. Watch out for the man with the big fat licking stick. ~~James Brown
+ - I’ve outdone anyone you can name – Mozart, Beethoven, Bach, Strauss. Irving Berlin, he wrote 1,001 tunes. I wrote 5,500. ~~James Brown
+ - We can never be like it was at Penn State with Joe Paterno. That was an anomaly in an of itself. ~~James Brown
+ - I used to play one job and have 125 pair of shoes on the floor. What was I doing? I couldn’t wear but one pair. ~~James Brown
+ - I started Michael years ago. I saw him in Gary, Indiana, and we’d have him on the talent shows. He kind of emulated me, and did the best he could. ~~James Brown
+ - What everybody’s looking for today, they’re looking for escape-ism. ~~James Brown
+
+53 quotes

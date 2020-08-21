@@ -1,0 +1,35 @@
+ - Solving big problems is easier than solving little problems.
+ - You can make money without doing evil.
+ - Obviously everyone wants to be successful, but I want to be looked back on as being very innovative, very trusted and ethical and ultimately making a big difference in the world.
+ - Any conversation I have about innovation starts with the ultimate goal.
+ - We wouldn’t survive if people didn’t trust us.
+ - The name was supposed to be ‘Googol,’ which is the mathematical term for a 1 followed by 100 zeroes. It was before the Google spellchecker existed.
+ - If what we are doing is not seen by some people as science fiction, it’s probably not transformative enough.
+ - When it’s too easy to get money, then you get a lot of noise mixed in with the real innovation and entrepreneurship. Tough times bring out the best parts of Silicon Valley.
+ - Too many rules with stifle innovation.
+ - Ultimately you want to have the entire world’s knowledge connected directly to your mind.
+ - Some say Google is God. Others say Google is Satan. But if they think Google is too powerful, remember that with search engines unlike other companies, all it takes is a single click to go to another search engine.
+ - When I was growing up, I always knew I’d be in the top of my class in math, and that gave me a lot of self-confidence.
+ - As we go forward, I hope we’re going to continue to use technology to make really big differences in how people live and work.
+ - Technology is an inherent democratizer. Because of the evolution of hardware and software, you’re able to scale up almost anything. It means that in our lifetime everyone may have tools of equal power.
+ - I feel there’s an existential angst among young people. I didn’t have that. They see enormous mountains, where I only saw one little hill to climb.
+ - Too few people in computer science are aware of some of the informational challenges in biology and their implications for the world. We can store an incredible amount of data very cheaply.
+ - If you had all the world’s information directly attached to your brain, or an artificial brain that was smarter than your brain, you’d be better off.
+ - It’s not enough not to be evil. We also actively try to be good.
+ - Before Google, I don’t think people put much effort into the ordering of results. You might get a couple thouand results for a query. We saw that a thousand results weren’t necessarily as useful as 10 good ones.
+ - In the future, search engines should be as useful as HAL in the movie 2001: A Space Odyssey-but hopefully they won’t kill people.
+ - You always hear the phrase, money doesn’t buy you happiness. But I always in the back of my mind figured a lot of money will buy you a little bit of happiness. But it’s not really true. I got a new car because the old one’s lease expired.
+ - We are currently not planning on conquering the world.
+ - Generally, health is just so heavily regulated. It’s just a painful business to be in. It’s just not necessarily how I want to spend my time.
+ - People try new things all the time. By now, the people who succeed have to be very sophisticated.
+ - But the vast majority of books ever written are not accessible to anyone except the most tenacious researchers at premier academic libraries. Books written after 1923 quickly disappear into a literary black hole.
+ - Google actually relies on our users to help with our marketing. We have a very high percentage of our users who often tell others about our search engine.
+ - The kind of environment that we developed Google in, the reason that we were able to develop a search engine, is the web was so open. Once you get too many rules, that will stifle innovation.
+ - We’ve seen a massive attack on the freedom of the web. Governments are realizing the power of this medium to organize people and they are trying to clamp down across the world, not just in places like China and North Korea; we’re seeing bills in the United States, in Italy, all across the world.
+ - Today, if you want to access a typical out-of-print book, you have only one choice – fly to one of a handful of leading libraries in the country and hope to find it in the stacks.
+ - Once you go from 10 people to 100, you already don’t know who everyone is. So at that stage you might as well keep growing, to get the advantages of scale.
+ - We came up with the notion that not all web pages are created equal. People are – but not web pages.
+ - I am sometimes something of a lazy person, so when I end up spending a lot of time using something myself – as I did with Google in the earliest of days, I knew it was a big deal.
+ - We deal with all varieties of information. Somebody’s always upset no matter what we do. We have to make a decision; otherwise there’s a never-ending debate.
+
+33 quotes

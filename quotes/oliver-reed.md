@@ -1,0 +1,32 @@
+ - I’m not a villain, I’ve never hurt anyone. I’m just a tawdry character who explodes now and again.
+ - I do not live in the world of sobriety.
+ - I believe my woman shouldn’t work outside the home.
+ - I’m only drinking white wine because I’m on a diet and I don’t eat.
+ - I might get drunk one day and fall in love or fall over a hooker outside, and I would have consummated a relationship that I couldn’t necessarily believe in.
+ - You get so weak from eating pears that you fall down, and then they come and take you away on a stretcher.
+ - What’s the point of staying sober?
+ - Life shouldn’t be about sitting around staring at frosted glass. Life should be lived and that’s all there is to it.
+ - I’ve been drinking. Now I’m going to drink some more.
+ - I like the effect drink has on me.
+ - When I come home and I’m tired from filming all day, I expect her to be there and make sure everything is cool for me. You know, like drawing my bath and helping me into bed.
+ - I have two ambitions in life: one is to drink every pub dry, the other is to sleep with every woman on earth.
+ - I would much rather end up a fertiliser under a sunflower which is eventually made into sunflower seed oil so that instead of nibbling me in her prawn cocktail, the pretty girl will rub me on her bristols as she suns herself on a beach in the Caribbean.
+ - But the trouble is that when you drink it, you invariably meet other people drinking it.
+ - Do what you must, but do it well, above all enjoy yourself!
+ - I wouldn’t like to see a chick of mine taking her clothes off and kissing a fellow on screen. And my girls must get very hurt when they see me doing it.
+ - I don’t have a drink problem. But if that was the case and doctors told me I had to stop, I’d like to think that I would be brave enough to drink myself into the grave.
+ - I don’t like doing most things unless I can do them quite well.
+ - I have made many serious statements – I just can’t remember any of them. I guess they mustn’t have been very important.
+ - Then you get into it, especially if you start talking about football, fighting and Muhammad Ali. Then the ladies get very bored and start delivering ultimatums.
+ - At the New York Athletic Club they serve amazing food. People go there, get healthy, and then eat themselves to death – which is, I suppose, the right way to do it.
+ - Awe and respect are two different things.
+ - Even though people say Richard Harris and I have been having a great feud, it’s not true.
+ - I do think a carpenter needs a good hammer to bang in the nail.
+ - I like to give my inhibitions a bath now and then.
+ - If the money’s right, I’ll do a film.
+ - Raquel Welch is someone I can also live without. We’ve got some love scenes together and I am dreading them!
+ - Winner gave me my bread and Russell gave me my art.
+ - I’m really a pacifist.
+ - I’m not as thrilled with myself as I used to be.
+
+30 quotes

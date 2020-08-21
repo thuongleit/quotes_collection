@@ -1,0 +1,295 @@
+ - Workers of the world unite; you have nothing to lose but your chains.
+ - Democracy is the road to socialism.
+ - The philosophers have only interpreted the world, in various ways: the point, however, is to change it.
+ - Follow your own path, no matter what people say.
+ - History repeats itself, first as tragedy, second as farce.
+ - Religion is the opium of the masses.
+ - In the eyes of dialectical philosophy, nothing is established for all times, nothing is absolute or sacred.
+ - Surround yourself with people who make you happy. People who make you laugh, who help you when you’re in need. People who genuinely care. They are the ones worth keeping in your life. Everyone else is just passing through.
+ - The last capitalist we hang shall be the one who sold us the rope.
+ - I am nothing but I must be everything.
+ - Social progress can be measured by the social position of the female sex.
+ - My object in life is to dethrone God and destroy capitalism.
+ - If you can cut the people off from their history, then they can be easily persuaded.
+ - Ideas do not exist separately from language.
+ - Money is the alienated essence of man’s work and existence; this essence dominates him and he worships it.
+ - Money degrades all the gods of man and converts them into commodities.
+ - Let the ruling classes tremble at a communist revolution. The proletarians have nothing to lose but their chains. They have a world to win. Workingmen of all countries, unite!
+ - The entire so-called history of the world is nothing but the creation of man through human labor.
+ - Religion is the sigh of the oppressed creature, the heart of a heartless world, and the soul of soulless conditions. It is the opium of the people.
+ - Communism is the riddle of history solved, and it knows itself to be this solution.
+ - Communism begins where atheism begins...
+ - From each according to his abilities, to each according to his needs.
+ - We have no compassion and we ask no compassion from you. When our turn comes, we shall not make excuses for the terror.
+ - To be radical is to grasp things by the root.
+ - There is only one way to kill capitalism – by taxes, taxes, and more taxes.
+ - The alienation of man thus appeared as the fundamental evil of capitalist society.
+ - In my free time I do differential and integral calculus.
+ - It is not the consciousness of men that determines their being, but, on the contrary, their social being that determines their consciousness.
+ - Luxury is the opposite of the naturally necessary.
+ - I hate money and Jews.
+ - Be careful to trust a person who does not like wine.
+ - Fascism in power is the open, terroristic dictatorship of the most reactionary, the most chauvinistic, the most imperialistic elements of finance capitalism.
+ - Experience praises the most happy the one who made the most people happy.
+ - The true law of economics is chance, and we learned people arbitrarily seize on a few moments and establish them as laws.
+ - Medicine heals doubts as well as diseases.
+ - There is only one effective antidote for mental suffering and that is physical pain.
+ - Go on, get out – last words are for fools who haven’t said enough. To his housekeeper, who urged him to tell her his last words so she could write them down for posterity.
+ - The criticism of Religion is the beginning of all criticism.
+ - Men make their own history but not in circumstances of their own choosing.
+ - Music is the mirror of reality.
+ - The education of all children, from the moment that they can get along without a mother’s care, shall be in state institutions.
+ - Beauty is the main positive form of the aesthetic assimilation of reality, in which aesthetic ideal finds it direct expression.
+ - The religious world is but a reflex of the real world.
+ - To destroy Christianity, we must first destroy the British Empire.
+ - Money plays the largest part in determining the course of history.
+ - The past lies like a nightmare upon the present.
+ - Every beginning is difficult, holds in all sciences.
+ - In the United States of North America, every independent movement of the workers was paralysed so long as slavery disfigured a part of the Republic. Labour cannot emancipate itself in the white skin where in the black it is branded.
+ - The task is not just to understand the world but to change it.
+ - Every emancipation is a restoration of the human world and of human relationships to a man himself.
+ - The first requisite for the happiness of the people is the abolition of religion.
+ - We should not say that one man’s hour is worth another man’s hour, but rather that one man during an hour is worth just as much as another man during an hour. Time is everything, man is nothing: he is at the most time’s carcass.
+ - In reality, the labourer belongs to capital before he has sold himself to capital.
+ - The theory of Communism may be summed up in one sentence: Abolish all private property.
+ - The weapon of criticism can never replace the criticism of weapons.
+ - All social rules and all relations between individuals are eroded by a cash economy, avarice drags Pluto himself out of the bowels of the earth.
+ - The traditions of the dead generations weigh like a nightmare upon the living.
+ - Science and democracy are the right and left hands of what I’ll refer to as the move from the realm of necessity to the realm of freedom.
+ - Life is not determined by consciousness, but consciousness by life.
+ - The need of a constantly expanding market for its products chases the bourgeoisie over the entire surface of the globe.
+ - Under no pretext should arms and ammunition be surrendered; any attempt to disarm the workers must be frustrated, by force if necessary.
+ - The circulation of capital realizes value, while living labour creates value .
+ - No production without a need. But consumption reproduces the need.
+ - Last words are for those fools who believe they have not yet said enough...
+ - Only in community with others has each individual the means of cultivating his gifts in all directions; only in the community, therefore, is personal freedom possible.
+ - Hence money may be dirt, although dirt is not money.
+ - Capital is dead labor, which, vampire-like, lives only by sucking living labor, and lives the more, the more labor it sucks.
+ - The best thing for rich people to do is become Batman.
+ - Junk food, empty calories and carbs are the Big Data of the masses.
+ - All science would be superfluous if the outward appearance and the essence of things directly coincided.
+ - The directing motive, the end and aim of capitalist production, is to extract the greatest possible amount of surplus value, and consequently to exploit labor-power to the greatest possible extent.
+ - Nothing is more tedious than the dreaming platitude.
+ - They don’t know it, but they are doing it.
+ - I am a machine condemned to devour books.
+ - Democracy is the road to socialism, and writing for the Reader Weekly is the road to being an unemployed 32-year-old whose relatives still put money in his birthday cards.
+ - The object of art like every other product creates a public which is sensitive to art and enjoys beauty.
+ - The more of himself man attributes to God, the less he has left in himself.
+ - The method of production of the material things of life generally determines the social, political and spiritual currents of life.
+ - The capitalist knows that all commodities, however scurvy they may look, or however badly they may smell, are in faith and in truth money, inwardly circumcised Jews, and what is more, a wonderful means whereby out of money to make more money.
+ - The will of the capitalist is certainly to take as much as possible. What we have to do is not to talk about his will, but to enquire about his power, the limits of that power, and the character of those limits.
+ - Modern society, which, soon after its birth, pulled Plutus by the hair of his head from the bowels of the earth, greets gold as its Holy Grail, as the glittering incarnation of the very principle of its own life.
+ - Moments are the elements of profit.
+ - The values of commodities are directly as the times of labor employed in their production, and are inversely as the productive powers of the labor employed.
+ - Taxes are the source of life for the bureaucracy, the army and the court, in short, for the whole apparatus of the executive power. Strong government and heavy taxes are identical.
+ - In the bureaucracy, the identity of state interest and particular private aim is established in such a way that the state interest becomes a particular private aim over against other private aims.
+ - All forms of the state have democracy for their truth, and for that reason are false to the extent that they are not democracy.
+ - The bourgeoisie cannot exist without constantly revolutionizing the instruments of production, and thereby the relations of production, and with them the whole relations of society.
+ - It’s possible that I shall make an ass of myself. But in that case one can always get out of it with a little dialectic. I have, of course, so worded my proposition as to be right either way.
+ - One of the most difficult tasks confronting philosophers is to descend from the world of thought to the actual world.
+ - Anyone who knows anything of history knows that great social changes are impossible without feminine upheaval. Social progress can be measured exactly by the social position of the fair sex, the ugly ones included.
+ - The bureaucracy takes itself to be the ultimate purpose of the state.
+ - Nothing is easier than to give Christian asceticism a Socialist tinge.
+ - Price, taken by itself, is nothing but the monetary expression of value.
+ - The policy of Russia is changeless. Its methods, its tactics, its maneuvers may change, but the polar star of its policy, world domination, is a fixed star. About Russia.
+ - The more a ruling class is able to assimilate the most prominent men of a ruled class, the more solid and dangerous its rule.
+ - If Karl, instead of writing a lot about capital, had made a lot of it, it would have been much better.
+ - The unity of the bourgeoisie can be shaken only by the unity of the proletariat.
+ - We know that violent measures against religion are nonsense; but this is an opinion: as socialism grows, religion will disappear. Its disappearance must be done by social development, in which education must play a part.
+ - The capitalist mode of production and accumulation, and therefore capitalist private property, have for their fundamental condition the annihilation of self-earned private property: in other words, the expropriation of the labourer.
+ - The redeeming feature of war is that it puts a nation to the test. As exposure to the atmosphere reduces all mummies to instant dissolution, so war passes supreme judgment upon social systems that have outlived their vitality.
+ - Although usury is itself a form of credit in its bourgeoisified form, the form adapted to capital, in its pre-bourgeois form it is rather the expression of the lack of credit .
+ - Catch a man a fish, and you can sell it to him. Teach a man to fish, and you ruin a wonderful business opportunity.
+ - Take away a nation’s heritage and they are more easily persuaded.
+ - The production of too many useful things results in too many useless people.
+ - I do not like money, money is the reason we fight.
+ - Darwin has interested us in the history of nature’s technology.
+ - Reason has always existed, but not always in a reasonable form.
+ - All I know is that I am not a Marxist.
+ - The class struggle necessarily leads to the dictatorship of the proletariat.
+ - Wages are determined by the bitter struggle between capitalist and worker.
+ - But there is a devil of a difference between barbarians who are fit by nature to be used for anything, and civilized people who apply them selves to everything.
+ - In bourgeois society capital is independent and has individuality, while the living person is dependent and has no individuality.
+ - The masses are the asses.
+ - The oppressed are allowed once every few years to decide which particular representatives of the oppressing class are to represent and repress them.
+ - The Jews of Poland are the smeariest of all races.
+ - The history of all previous societies has been the history of class struggles.
+ - Each piece of money is a mere coin, or means of circulation, only so long as it actually circulates.
+ - Man makes religion, religion does not make man.
+ - Misery motivates, not utopia.
+ - Do not be deluded by the abstract word Freedom. Whose freedom? Not the freedom of one individual in relation to another, but freedom of Capital to crush the worker.
+ - A specter is haunting Europe – the specter of communism.
+ - Necessity is blind until it becomes conscious. Freedom is the consciousness of necessity.
+ - The working class is revolutionary or it is nothing.
+ - Is it a misfortune that magnificent California was seized from the lazy Mexicans who did not know what to do with it.
+ - A heavy or progressive or graduated income tax is necessary for the proper development of Communism.
+ - Art is always and everywhere the secret confession, and at the same time the immortal movement of its time.
+ - Even an entire society, a nation, or all simultaneously existing societies taken together, are not owners of the earth. They are simply its possessors, its beneficiaries, and have to bequeath it in an improved state to succeeding generations.
+ - The executive of the modern state is but a committee for managing the common affairs of the whole bourgeoisie.
+ - Perseus wore a magic cap that the monsters he hunted down might not see him. We draw the magic cap down over eyes and ears as a make-believe that there are no monsters.
+ - The writer must earn money in order to be able to live and to write, but he must by no means live and write for the purpose of making money.
+ - In place of the old bourgeois society, with its classes and class antagonisms, we shall have an association in which the free development of each is the condition for the free development of all.
+ - The circulation of commodities is the original precondition of the circulation of money.
+ - An increase in the productivity of labour means nothing more than that the same capital creates the same value with less labour, or that less labour creates the same product with more capital.
+ - Revolutions are the locomotives of history.
+ - Accumulation of wealth at one pole is at the same time accumulation of misery, agony of toil, slavery, ignorance, brutality, mental degradation, at the opposite pole.
+ - I wish to avenge myself against the One who rules above.
+ - When the train of history hits a curve, the intellectuals fall off.
+ - The Tories in England had long imagined that they were enthusiastic about the monarchy, the church and beauties of the old English Constitution, until the day of danger wrung from them the confession that they are enthusiastic only about rent.
+ - Although gold and silver are not by nature money, money is by nature gold and silver.
+ - The meaning of peace is the absence of opposition to socialism.
+ - Consumption is also immediately production, just as in nature the consumption of the elements and chemical substances is the production of the plant.
+ - There are no circumstances imaginable, not even victory, under which the proletariat should give up its possession of arms.
+ - The whole proletariat must be armed at once with muskets, rifles, cannon and ammunition, and the revival of the old-style citizens militia, directed against the workers, must be opposed.
+ - All history is nothing but a continuous transformation of human nature.
+ - Private property has made us so stupid and one-sided that an object is only ours when we have it.
+ - Without the presence of class warfare, trade unions would be hard put to justfy their existence.
+ - Capital is money, capital is commodities. By virtue of it being value, it has acquired the occult ability to add value to itself. It brings forth living offspring, or, at the least, lays golden eggs.
+ - The imaginary flowers of religion adorn man’s chains. Man must throw off the flowers, and also the chains.
+ - If money is the bond binding me to human life, binding society to me, binding me and nature and man, is not money the bond of all bonds? Can it not dissolve and bind all ties? Is it not, therefore, the universal agent of separation?
+ - Greek philosophy seems to have met with something with which a good tragedy is not supposed to meet, namely, a dull ending.
+ - Anyone wanting a new house picks one from among those built on speculation or still in process of construction. The builder no longer works for his customers but for the market.
+ - In all of human history no country or no people have suffered such terrible slavery, conquest and foreign oppression and no country and no people have struggled so strenuously for their emancipation than Sicily and the Sicilians.
+ - A circuit performed by a capital and meant to be a periodical process, not an individual act, is called its turnover. The duration of this turnover is determined by the sum of its time of production and its time of circulation.
+ - In proportion therefore, as the repulsiveness of the work increases, the wage decreases.
+ - As a beast of toil an ox is fixed capital. If he is eaten, he no longer functions as an instrument of labour, nor as fixed capital either.
+ - What the bourgeoisie therefore produces, above all, are its own grave-diggers. Its fall and the victory of the proletariat are equally inevitable.
+ - The bureaucracy is a circle from which no one can escape. Its hierarchy is a hierarchy of knowledge.
+ - Force is the midwife of every old society pregnant with a new one.
+ - Society does not consist of individuals but expresses the sum of interrelations, the relations within which these individuals stand.
+ - The state is the executive committee of the ruling class.
+ - The existence of the state is inseparable from the existence of slavery.
+ - The English have all the material requisites for the revolution. What they lack is the spirit of generalization and revolutionary ardour.
+ - Religion is the impotence of the human mind to deal with occurrences it cannot understand.
+ - Accumulate, accumulate! This is Moses and the Prophets!
+ - The social principles of Christianity preach cowardice, self-contempt, abasement, submission, humility, in a word all the qualities of the canaille.
+ - The unity is brought about by force .
+ - The rich will do anything for the poor but get off their backs.
+ - Change the economic base and you will change human beings.
+ - History calls those men the greatest who have ennobled themselves by working for the common good; experience acclaims as happiest the man who has made the greatest number of people happy.
+ - The more the division of labor and the application of machinery extend, the more does competition extend among the workers, the more do their wages shrink together.
+ - We cannot tell by looking at the diamond that it is a commodity. When it serves as a use-value, asthetic or mechanical, on the breast of a harlot, or in the hand of a glasscutter, it is a diamond and not a commodity.
+ - In a word, the free trade system hastens the social revolution. It is in this revolutionary sense alone, gentlemen, that I vote in favor of free trade.
+ - Scientific truth is always paradox, if judged by everyday experience, which catches only the delusive appearance of things.
+ - An object of art creates a public capable of finding pleasure in its beauty. Production, therefore, not only produces an object for the subject, but also a subject for the object.
+ - Capital is reckless of the health or length of life of the laborer, unless under compulsion from society.
+ - Communism deprives no man of the ability to appropriate the fruits of his labour. The only thing it deprives him of is the ability to enslave others by means of such appropriations.
+ - For the bureaucrat, the world is a mere object to be manipulated by him.
+ - In short, competition has to shoulder the responsibility of explaining all the meaningless ideas of the economists, whereas it should rather be the economists who explain competition.
+ - All our inventions have endowed material forces with intellectual life, and degraded human life into a material force.
+ - Democracy is a form of government that cannot long survive, for as soon as the people learn that they have a voice in the fiscal policies of the government, they will move to vote for themselves all the money in the treasury, and bankrupt the nation.
+ - In the various stages of development which the struggle of working class against the bourgeoisie has to pass through, they always and everywhere represent the interests of the movement as a whole.
+ - Be aware that the reward for labour, and quantity of labour, are quite disparate things.
+ - The national debt has given rise to joint stock companies, to dealings in negotiable effects of all kinds, and to agiotage, in a word to stock-exchange gambling and the modern bankocracy .
+ - We will hang the capitalists with the rope that they sell us.
+ - The more powerful the work, the more powerless the worker.
+ - The development of civilization and industry in general has always shown itself so active in the destruction of forests that everything that has been done for their conservation and production is completely insignificant in comparison.
+ - Social reforms are never carried out by the weakness of the strong; but always by the strength of the weak.
+ - While the miser is merely a capitalist gone mad, the capitalist is a rational miser.
+ - Exchange value forms the substance of money, and exchange value is wealth.
+ - Gold is now money with reference to all other commodities only because it was previously, with reference to them, a simple commodity.
+ - Religion is only the illusory sun which revolves round man as long as he does not revolve round himself.
+ - Bourgeois society ought long ago to have gone to the dogs through sheer idleness; for those of its members who work, acquire nothing, and those who acquire anything, do not work.
+ - Hegel remarks somewhere that all great, world-historical facts and personages occur, as it were, twice. He has forgotten to add: the first time as tragedy, the second as farce.
+ - One capitalist always kills many.
+ - A man cannot become a child again, or he becomes childish.
+ - Language comes into being, like consciousness, from the basic need, from the scantiest intercourse with other human.
+ - The worker puts his life into the object; but now it no longer belongs to him, it belongs to the object.
+ - The ruling ideas of each age have ever been the ideas of its ruling class.
+ - Society is a sort of organism on the growth of which conscious efforts can exercise little effect.
+ - A nation which enslaves another forges its own chains.
+ - It is not history which uses men as a means of achieving – as if it were an individual person – its own ends. History is nothing but the activity of men in pursuit of their ends.
+ - The country that is more developed industrially only shows, to the less developed, the image of its own future.
+ - Capitalist production, therefore, develops technology, and the combining together of various processes into a social whole, only by sapping the original sources of all wealth – the soil and the labourer.
+ - A great deal of capital, which appears to-day in the United States without any certificate of birth, was yesterday, in England, the capitalised blood of children.
+ - This young lady, who instantly overwhelmed me with her kindness, is the ugliest creature I have seen in my entire life, with repulsive Jewish facial features.
+ - There must be something rotten in the very core of a social system which increases its wealth without diminishing its misery.
+ - Labor in the white skin can never free itself as long as labor in the black skin is branded.
+ - Money is therefore not only the object but also the fountainhead of greed.
+ - Landlords, like all other men, love to reap where they never sowed.
+ - The full man does not understand the wants of the hungry.
+ - No sooner is the exploitation of the labourer by the manufacturer, so far, at an end, that he receives his wages in cash, than he is set upon by the other portions of the bourgeoisie, the landlord, the shopkeeper, the pawnbroker, etc.
+ - The essence of the free press is the reliable, reasonable and moral nature of freedom.
+ - An organised system of machines, to which motion is communicated by the transmitting mechanism from a central automation, is the most developed form of production by machinery.
+ - So far no chemist has ever discovered exchange-value either in a pearl or a diamond.
+ - The Communists have no need to introduce free love; it has existed almost from time immemorial.
+ - Value, therefore, does not stalk about with a label describing what it is.
+ - Hazrat Mahal, Begum of Oudh, during the national liberation uprising of 1857-59 in India headed the rebels.
+ - The wealthy man is the man whois much, not the one who has much.
+ - Just as the savage must wrestle with nature to satisfy his wants, to maintain and reproduce life, so must civilised man, and he must do so in all social formations and under all possible modes of production.
+ - Men can see nothing around them that is not their own image; everything speaks to them of themselves. Their very landscape is alive.
+ - Constant revolutionizing of production, uninterrupted disturbance of all social conditions, everlasting uncertainty and agitation distinguish the bourgeosis epoch from all earlier ones.
+ - When the sufferers learn to think, then the thinkers will learn to suffer.
+ - On a level plain, simple mounds look like hills; and the insipid flatness of our present bourgeoisie is to be measured by the altitude of its great intellects.
+ - All social life is essentially practical. All mysterious which lead theory to mysticism find their rational solution in human practice and in the comprehension of the practice.
+ - Those dogs of democrats and liberal riff-raff will see that we’re the only chaps who haven’t been stultified by the ghastly period of peace.
+ - Wherever the want of clothing forced them to it, the human race made clothes for thousands of years, without a single man becoming a tailor.
+ - Is a fixed income not a good thing? Does not everyone love to count on a sure thing? Especially every petty-bourgeois, narrow-minded Frenchman? the ‘ever needy’ man?
+ - If I negate powdered wigs, I am still left with unpowdered wigs.
+ - In capitalist society spare time is acquired for one class by converting the whole life-time of the masses into labour-time.
+ - Nothing can have value without being an object of utility.
+ - Men’s ideas are the most direct emanations of their material state.
+ - Very well then; emancipation from usury and money, that is, from practical, real Judaism, would constitute the emancipation of our time.
+ - Civil servants and priests, soldiers and ballet-dancers, schoolmasters and police constables, Greek museums and Gothic steeples, civil list and services list – the common seed within which all these fabulous beings slumber in embryo is taxation.
+ - Marx’s father became a Christian when Marx was a little boy, and some, at least, of the dogmas he must have then accepted seem to have born fruit in his son’s psychology.
+ - The human being is in the most literal sense a political animal, not merely a gregarious animal, but an animal which can individuate itself only in the midst of society.
+ - Modern bourgeois society with its relations of production, of exchange, and of property, a society that has conjured up such gigantic means of production and of exchange, is like the sorcerer, who is no longer able to control the powers of the nether world whom he has called up by his spells.
+ - There is a physical relation between physical things. But it is different with commodities.
+ - The Communist revolution is the most radical rupture with traditional property relations; no wonder that its development involves the most radical rupture with traditional ideas.
+ - If one wants to be an ox one can easily turn one’s back on hum suffering and look after one’s own skin.
+ - History does nothing; it does not possess immense riches, it does not fight battles. It is men, real, living, who do all this.
+ - Machines were, it may be said, the weapon employed by the capitalists to quell the revolt of specialized labor.
+ - The bourgeoisie of the whole world, which looks complacently upon the wholesale massacre after the battle, is convulsed by horror at the desecration of brick and mortar.
+ - Usury lives in the pores of production, as it were, just as the gods of Epicurus lived in the space between the worlds.
+ - It might otherwise appear paradoxical that money can be replaced by worthless paper; but that the slightest alloying of its metallic content depreciates it.
+ - As capital accumulates, the lot of the laborer must grow worse.
+ - The state is based on this contradiction. It is based on the contradiction between public and private life, between universal and particular interests. For this reason, the state must confine itself to formal, negative activities.
+ - Natural science will in time incorporate into itself the science of man, just as the science of man will incorporate into itself natural science: there will be one science.
+ - The world will be for the common people, and the sounds of Happiness will reach even the deepest springs.
+ - It is absolutely impossible to transcend the laws of nature. What can change in historically different circumstances is only the form in which these laws expose themselves.
+ - Imperialism is da woist thing I ever hoid!
+ - And as for the Jews, who since the emancipation of their sect have everywhere put themselves, at least in the person of their eminent representatives, at the head of the counter-revolution – what awaits them?
+ - If this labourer were in possession of his own means of production, and was satisfied to live as a labourer, he need not work beyond beyond the time necessary for the reproduction of his means of subsistence, say 8 hours a day.
+ - When commercial capital occupies a position of unquestioned ascendancy, it everywhere constitutes a system of plunder.
+ - The aggregate capital appears as the capital stock of all individual capitalists combined. This joint stock company has in common with many other stock companies that everyone knows what he puts in, but not what he will get out of it.
+ - When the labourer co-operates systematically with others, he strips off the fetters of his individuality, and develops the capabilities of his species.
+ - The most violent, mean and malignant passions of the human breast, the Furies of private interest.
+ - Constant labor of one uniform kind destroys the intensity and flow of a man’s animal spirits, which find recreation and delight in mere change of activity.
+ - A commodity appears at first sight an extremely obvious, trivial thing. But its analysis brings out that it is a very strange thing, abounding in metaphysical subtleties and theological niceties.
+ - Without doubt, machinery has greatly increased the number of well-to-do idlers.
+ - Titles of property, for instance railway shares, may change hands every day, and their owner may make a profit by their sale even in foreign countries, so that titles to property are exportable, although the railway itself is not.
+ - It would perhaps be as well if things were to remain quiet for a few years yet, so that all this 1848 democracy has time to rot away.
+ - Since only what is material is perceptible, knowable, nothing is known of the existence of God.
+ - Just as man is governed, in religion, by the products of his own brain, so, in capitalist production, he is governed by the products of his own hand.
+ - The burgeoisie, by the rapid improvement of all instruments of production, by the immensely facilitated means of communication, draws all nations into civilization.
+ - The first premise of all human history is, of course, the existence of living human individuals. Thus the first fact to be established is the physical organisation of these individuals and their consequent relation to the rest of nature.
+ - The product of mental labor – science – always stands far below its value, because the labor-time necessary to reproduce it has no relation at all to the labor-time required for its original production.
+ - All that we want to do away with is the miserable character of this appropriation, under which the labourer lives merely to increase capital, and allowed to live only so far as the interest to the ruling class requires it.
+ - The capitalist cannot store labour-power in warehouses after he has bought it, as he may do with the raw material.
+ - Advances in science help to delegitimize the rule of kings and the power of the Church.
+ - Parliamentary cretinism: that peculiar malady which since 1848 has raged all over the Continent, which holds those infected by it fast in an imaginary world and robs them of all sense, all memory, all understanding of the rude external world.
+ - If production be capitalistic in form, so, too, will be reproduction.
+ - Under the ideal measure of values there lurks the hard cash.
+ - As the chosen people bore in their features the sign manual of Jehovah, so the division of labour brands the manufacturing workman as the property of capital .
+ - Since labour is motion, time is its natural measure.
+ - I am greatly pleased with the public, authentic isolation in which we two, you and I, now find ourselves. It is wholly in accord with our attitude and our principles.
+ - The working men have no country. We cannot take away from them what they have not got.
+ - Capital brings forth living offspring, or at the least, lays the golden eggs.
+ - In every stockjobbing swindle every one knows that some time or other the crash must come, but every one hopes that it may fall on the head of his neighbor, after he himself has caught the shower of gold and placed it in safety.
+ - The economic concept of value does not occur in antiquity .
+ - Every provisional political set-up following a revolution requires a dictatorship, and an energetic dictatorship at that.
+ - The way people get their living determines their social outlook.
+ - In the national struggles of the proletarians of the different countries, they point out and bring to the front the common interest of the entire proletariat, independently of all nationality.
+ - I am stretching out this volume, since those German dogs estimate the value of books by their cubic contents.
+ - Capitalist production does not exist at all without foreign commerce.
+ - The individual produces an object and, by consuming it, returns to himself, but returns as a productive and self reproducing individual. Consumption thus appears as a moment of production.
+ - So long as the product is sold, everything is taking its regular course from the standpoint of the capitalist producer.
+ - As the variable capital always stays in the hands of the capitalist in some form or other, it cannot be claimed in any way that it converts itself into revenue for anyone .
+ - From the outset, the Christian was the theorizing Jew, the Jew is therefore the practical Christian, and the practical Christian has become a Jew again.
+ - To discover the various use of things is the work of history.
+ - The writer may very well serve a movement of history as its mouthpiece, but he cannot of course create it.
+ - I pre-suppose, of course, a reader who is willing to learn something new and therefore to think for himself.
+ - Money does not arise by convention, any more than the state does. It arises out of exchange, and arises naturally out of exchange; it is a product of the same.
+ - You will have to go through 15, 20, 50 years of civil wars and national struggles not only to bring about a change in society but also to change yourselves, and prepare yourselves for the exercise of political power.
+
+293 quotes

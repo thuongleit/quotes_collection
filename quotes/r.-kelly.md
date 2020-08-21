@@ -1,0 +1,57 @@
+ - I belive I can fly, I believe I can touch the sky.
+ - The depth of your struggle determines the height of your success.
+ - There are miracles in life I must achieve. But first I know it starts inside of me.
+ - You are the world’s greatest, when you say you are.
+ - Within all of us there is a storm. Some believe it will never end: but he who has faith in the heavens above will weather any storm.
+ - My greatest competition is, well, me.
+ - They say marriage will change you but it didn’t change me. Being in love changed me.
+ - Injustice anywhere is an injustice anywhere.
+ - I just want to touch your soul, let me pour into you. Fill you with my joy, and make you feel brand new.
+ - People can say whatever they want about you without knowing the facts. They can criticize you without even knowing you, and hate you when they don’t even know you. All of a sudden, you’re, like, the bin Laden of America. Osama bin Laden is the only one who knows exactly what I’m going through.
+ - I’ve programmed myself musically to come up with love-feeling tracks that are romantic, sexy, but classy, all in one. And that’s the challenge. Once I create that music, then the lyrical content starts to come – you know, the stories and things like that.
+ - Take away the In God We Trust, tell me what the hell is wrong with us.
+ - She’s my comforter and friend, I tell you she’s that peace within. She’s the lover in my home, she’s the strength when I’m not strong. Everyday my valentine, I’m so glad heave made her mine.
+ - But I have to say, it was fun doing this Love Letter album because, hey, man, love has never failed. It has won every battle. And today and forever more it will go on undefeated. I’m also a very loving person.
+ - All of a sudden you’re like the Bin Laden of America. Osama Bin Laden is the only one who knows what I’m going through.
+ - I know my past is not what my future holds.
+ - When you hear romantic music It makes you want to take your girl out to dinner or buy her something or take her out In the moonlight or take her on a walk.
+ - It’s amazing to know that 5 years ago I was writing songs in a basement in the ghetto and now I’m writing for Michael Jackson. I’d be a fool not to say it’s a dream come true.
+ - I only feel sorry for weak people. And mostly what I’ve come to find is that the weak people are the ones that are the haters.
+ - My mother always told me if you write about life, you will always be in the game. Just don’t write songs write life. I decided to take her up on that.
+ - Well, I believe that the depth of your struggle can determine the height of your success. I was inspired to come out of everything I’ve been through and end up in a place where I never thought that I would be.
+ - I want America to know that you can’t believe everything you hear, and nowadays, you can’t believe everything you see.
+ - I learnt a whole lot from my mother. About music, relationships, being a good person, loving people, the whole of life. I learnt about everything from her. Every single day I think about her. All through the day.
+ - You make a right on L, make a left on O, come to a green light and that’s when you can go. You keep straight on V, until you come to E, that’s when you see a big sign that say’s welcome to Love Street.
+ - You’re younger, you might want to go to clubs and kick it, but as you get older, you start seeing that life has more meaning to it. The people that you love are the people you want to start trusting and start wanting them to trust you and start respecting them.
+ - When a person is found not guilty, they’re found not guilty. And it doesn’t matter if it’s a murder case, it doesn’t matter what case it is, when they’re found not guilty, they’re not guilty.
+ - My mother wasn’t rich, and I never seen my father. I was a street performer. I’ve been shot. And now I’m known around the world, and I’ve touched a lot of people with my music. That’s one of the great testimonies that’s gonna go down in history.
+ - I like to give people more than their money’s worth.
+ - When you’re me, when you’re R. Kelly, everybody wants a piece of you, and if you don’t give ’em a piece they’ll find a way to get a piece of you one way or the other.
+ - While the angels sing, I’d ask you to marry me, give you the sun for a diamond ring, if I could do those things.
+ - If we don’t love ourselves, tell me, how can we love somebody else?
+ - I’ve really been writing a lot of country songs. I used to get criticized for doing a ‘Bump Grind,’ then turning around and doing a gospel song. But the truth is I’m glad I have a gift that allows me to switch lanes.
+ - I went from a D all the way to an A plus, I tell you prayer changes things.
+ - This album was designed to touch your soul.
+ - I spend like $2 million a year on Chinese food and pizza for ten people in the studio who don’t sing or produce.
+ - When I think of musical geniuses, I think of Stevie Wonder, Marvin Gaye, Michael Jackson and Prince. That’s who comes to mind.
+ - I’m very responsible. And with ability you have to have responsibility. I’m not perfect. But you have to make sure that your children will know that daddy makes mistakes.
+ - Soon as I see her walk up in the club, I’m a flirt. Winking eyes at me, when I roll up on them dubs, I’m a flirt. Sometimes when I’m with my chick on the low, I’m a flirt. And when she’s wit her man looking at me, damn right, I’m a flirt.
+ - If I’m going to be a leader then I have to go places that other people are afraid to go to. That’s what makes a leader. To be not afraid to step out and go over the frontline. To stare darkness right in the face.
+ - I want people to notice my writing abilities are real and that I’m not just stuck in one situation.
+ - I’m in love with music, and I’m pregnant by it. It’s like having twins. Or triplets. Or eight-lets!
+ - Just listen to all this sweet, sweet music. I’m working the music.
+ - I wouldn’t be able to do the songs as long as I’ve been doing if I didn’t feel the pulse of the world. But I can feel people and I know what they want. I feel like I know how they are, because I am the people. And I just have a gift.
+ - I’ve always had mostly women come out to see me perform. That’s the reason the guys show up; they know R. Kelly is going to draw the women. Most of the songs I’m singing are catering to women anyway.
+ - My fans have always loved my metaphors.
+ - I’m the Ali of today. I’m the Marvin Gaye of today. I’m the Bob Marley of today. I’m the Martin Luther King, or all the other greats that have come before us. And a lot of people are starting to realize that now.
+ - The forecast today is love all around.
+ - When I was performing on streets, there was no pressure. People accepted me. They loved me without knowing me.
+ - I look at my music in the beginning, and the sexual songs, the partying songs, those are the realities because those things happen.
+ - My music has shaken hands with the world somehow – it’s a beautiful disease, and I’m glad I got it.
+ - If you’re gonna tell your life story, you gotta be honest, or don’t do it.
+ - I was the highest-paid street performer, probably, in the history of Chicago. I was making like $800 a day.
+ - Not only did I get an A in music but I got an A in ladies.
+ - Once I started singing, I didn’t have to try to be cool. I was just one of the coolest guys around.
+ - I am very conscious of who I am as an artist and as an inspirational person.
+
+55 quotes

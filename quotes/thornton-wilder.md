@@ -1,0 +1,113 @@
+ - We can only be said to be alive in those moments when our hearts are conscious of our treasures.
+ - The highest tribute to the dead is not grief but gratitude.
+ - Oh, earth, you’re too wonderful for anybody to realize you. Do any human beings ever realize life while they live it – every, every minute?
+ - All that we know about those we have loved and lost is that they would wish us to remember them with a more intensified realization of their reality. What is essential does not die but clarifies. The highest tribute to the dead is not grief but gratitude.
+ - The more decisions that you are forced to make alone, the more you are aware of your freedom to choose.
+ - If you write to impress it will always be bad, but if you write to express it will be good.
+ - A purpose is the eternal condition of success.
+ - Money is like manure; it’s not worth a thing unless it’s spread around encouraging young things to grow.
+ - The best part of married life is the fights. The rest is merely so-so.
+ - There is a land of the living and a land of the dead and the bridge is love, the only survival, the only meaning.
+ - Heaven’s my destination.
+ - Imprisonment of the body is bitter; imprisonment of the mind is worse.
+ - Hope, like faith, is nothing if it is not courageous; it is nothing if it is not ridiculous.
+ - The condition of leadership adds new degrees of solitariness to the basic solitude of mankind. Every order that we issue increases the extent to which we are alone, and every show of deference which is extended to us separates us from our fellows.
+ - Either we live by accident and die by accident, or we live by plan and die by plan.
+ - Seek the lofty by reading, hearing and seeing great work at some moment every day.
+ - There is no need for me to curse you -the murderer survives the victim only to learn that it was himself that he longed to be rid of. Hatred is self-hatred.
+ - Those who are silent, self-effacing and attentive become the recipients of confidences.
+ - If a man has no vices, he is in great danger of making vices about his virtues, and there’s a spectacle.
+ - Choose the least important day in your life. It will be important enough.
+ - When you’re safe at home you wish you were having an adventure; when you’re having an adventure you wish you were safe at home.
+ - Look at that moon. Potato weather for sure.
+ - What is essential does not die but clarifies.
+ - I regard the theatre as the greatest of all art forms.
+ - All excellence is equally difficult.
+ - The revival in religion will be a rhetorical problem – new persuasive words for defaced or degraded ones.
+ - I’ve never forgotten for long at a time that living is struggle. I know that every good and excellent thing in the world stands moment by moment on the razor-edge of danger and must be fought for – whether it’s a field, or a home, or a country.
+ - On Friday noon, July the twentieth, 1714, the finest bridge in all Peru broke and precipitated five travelers into the gulf below.
+ - When God loves a creature he wants the creature to know the highest happiness and the deepest misery He wants him to know all that being alive can bring. That is his best gift. There is no happiness save in understanding the whole.
+ - The difference between a little money and no money at all is enormous-and can shatter the world. And the difference between a little money and an enormous amount of money is very slight-and that, also, can shatter the world.
+ - The unencumbered stage encourages the truth operative in everyone. The less seen, the more heard. The eye is the enemy of the ear in real drama.
+ - Do any human beings ever realize life while they live it?
+ - Every good thing in the world stands on the razor-edge of danger.
+ - The best thing about animals is they don’t talk much.
+ - How terrifying and glorious the role of man if, indeed, without guidance and without consolation he must create from his own vitals the meaning for his existence and write the rules whereby he lives.
+ - The test of an adventure is that when you’re in the middle of it say to yourself, Oh, now I’ve got myself into an awful mess; I wish...
+ - But there comes a time in everybody’s life when he must decide whether he’ll live among human beings or nota fool among fools or a fool alone.
+ - Now he discovered that secret from which one never quite recovers, that even in the most perfect love one person loves less profoundly than the other. There may be two equally good, equally gifted, equally beautiful, but theremay never be two that love one another equally well.
+ - Oh, earth, you’re too wonderful for anybody to realize you.
+ - We do not choose the day of our birth nor may we choose the day of our death, yet choice is the sovereign faculty of the mind.
+ - My advice to you is not to inquire why or whither, but just enjoy your ice cream while it’s on your plate.
+ - Literature is the orchestration of platitudes.
+ - The future is the most expensive luxury in the world.
+ - The knowledge that she would never be loved in return acted upon her ideas as a tide acts upon cliffs.
+ - People were always asking for good sound proofs; doubt springs eternal in the human breast, even in countries where the Inquisition can read your very thoughts in your eyes.
+ - Even in the most perfect love one person loves less profoundly than the other.
+ - Some say that we shall never know, and that to the gods we are like the flies that the boys kill on a summer’s day, and some say, to the contrary, that the very sparrows do not lose a feather that has not been brushed away by the finger of God.
+ - A sense of humor judges one’s actions and the actions of others from a wider reference. It pardons shortcomings, it consoles failure.
+ - Love is an energy which exists of itself. It is its own value.
+ - Only it seems to me that once in your life before you die you ought to see a country where they don’t talk in English and don’t even want to.
+ - The public for which masterpieces are intended is not of this earth.
+ - Faith is a never-ending pool of clarity, reaching far beyond the margins of consciousness. We all know more than we know we know.
+ - Where there is an unknowable, there is a promise.
+ - A play visibly represents pure existing.
+ - Life is an unbroken succession of false situations.
+ - I am not interested in the ephemeral – such subjects as the adulteries of dentists. I am interested in those things that repeat and repeat and repeat in the lives of the millions.
+ - Nature reserves the right to inflict upon her children the most terrifying jests.
+ - If I wasn’t an actor, I’d be a secret agent.
+ - Art is not only the desire to tell one’s secret; it is the desire to tell it and hide it at the same time.
+ - Life is a fatal adventure. It can only have one end. So why not make it as far-ranging and free as possible.
+ - Many who have spent a lifetime in it can tell us less of love than the child that lost a dog yesterday.
+ - Never support two weaknesses at the same time. It’s your combination sinners – your lecherous liars and your miserly drunkards – who dishonor the vices and bring them into bad repute.
+ - Man is not an end but a beginning. We are at the beginning of the second week. We are children of the eighth day.
+ - An incinerator is a writer’s best friend.
+ - Doctors are mostly impostors. The older a doctor is and the more venerated he is, the more he must pretend to know everything. Of course, they grow worse with time. Always look for a doctor who is hated by the best doctors. Always seek out a bright young doctor before he comes down with nonsense.
+ - Many plays – certainly mine – are like blank checks. The actors and directors put their own signatures on them.
+ - Being employed is like being loved: you know that somebody’s thinking about you the whole time.
+ - People a thousand years from now – this is the way we were in the provinces north of New York at the beginning of the 20th century. This is the way we were: in our growing up and in our marrying and in our living and in our living and in our dying.
+ - Characterization in a play is like a blank check which the dramatist accords to the actor for him to fill in.
+ - I am convinced that, except in a few extraordinary cases, one form or another of an unhappy childhood is essential to the formation of exceptional gifts.
+ - I am my own judge of what truths I shall tell. The truth can do just as much harm as a lie.
+ - For what human ill does dawn not seem to be alternative?
+ - A convention is an agreed-upon falsehood, a permitted lie.
+ - Leadership is for those who love the public good and are endowed and trained to administer it.
+ - On the stage it is always now; the personages are standing on that razor-edge, between the past and the future, which is the essential character of conscious being.
+ - I rose by sheer military ability to the rank of corporal.
+ - How do you know what the world is like? Do you know the world is a foul sty? Do you know if you rip the fronts off houses you’d find swine? The world is a hell. What does it matter what happens in it?
+ - In advertising, not to be different is virtual suicide.
+ - The planting of trees is the least self-centered of all that we can do. It is a purer act of faith than the procreation of children.
+ - Marriage is a bribe to make a housekeeper think she’s a householder.
+ - It is very necessary to have markers of beauty left in a world seemingly bent on making the most evil ugliness.
+ - There is no creation without faith and hope. There is no faith and hope that does not express itself in creation.
+ - When you’re at war, you think about a better life; when you’re at peace you think about a more comfortable one.
+ - I think I write in order to discover on my shelf a new book that I would enjoy reading, or to see a new play that would engross me.
+ - Everybody’s talking about people breaking into houses but there are more people in the world who want to break out of houses.
+ - There is nothing like eavesdropping to show you that the world outside your head is different from the world inside your head.
+ - There is one regard in which bullies show real perception when compared with their victims; it is their silent good-natured pleasure of the moment.
+ - A dramatist is one who believes that the pure event, an action involving human beings, is more arresting than any comment that can be made upon it.
+ - It is only in appearance that time is a river. It is rather a vast landscape and it is the eye of the beholder that moves.
+ - Throughout the hours of the night, though there had been few to hear it, the whole sky had been loud with the singing of these constellations.
+ - We live in what is, but we find a thousand ways not to face it. Great theater strengthens our faculty to face it.
+ - Providence has nothing good or high in store for one who does not resolutely aim at something high or good. A purpose is the eternal condition of success.
+ - Favors cease to be favors when there are conditions attached to them.
+ - I have inherited this burden of superstition and nonsense. I govern innumerable men but must acknowledge that I am governed by birds and thunderclaps.
+ - A dramatist is one who from his earliest years has found that sheer gazing at the shocks and counter-shocks among people is quite sufficiently engrossing without having to encase it in comment.
+ - He regarded love as a sort of cruel malady through which the elect are required to pass in their late youth and from which they emerge, pale and wrung, but ready for the business of living.
+ - The stuff of which masterpieces are made drifts about the world waiting to be clothed in words.
+ - One of the dangers of the American artist is that he finds himself almost exclusively thrown in with persons more or less in the arts. He lives among them, eats among them, quarrels with them, marries them.
+ - There is no drunkenness equal to that of remembering whispered words in the night.
+ - There’s nothing like mixing with woman to bring out all the foolishness in a man of sense.
+ - Many great writers have been extraordinarily awkward in daily exchange, but the greatest give the impression that their style was nursed by the closest attention to colloquial speech.
+ - That’s the advantage of having lived sixty-five years. You don’t feel the need to be impatient any longer.
+ - The comic spirit is given to us in order that we may analyze, weigh, and clarify things in us which nettle us, or which we are outgrowing, or trying to reshape.
+ - I hold we cannot be said to be aware of our minds save under responsibility.
+ - Ninety-nine percent of the people in the world are fools and the rest of us are in great danger of contagion.
+ - Pride, avarice, and envy are in every home.
+ - Every person who has ever lived has lived an unbroken succession of unique occasions.
+ - The future author is one who discovers that language, the exploration and manipulation of the resources of language, will serve him in winning through to his way.
+ - A man looks pretty small at a wedding, George. All those good women standing shoulder to shoulder, making sure that the knot’s tied in a mighty public way.
+ - I would love to be the poet laureate of Coney Island.
+ - The theatre is supremely fitted to say: ‘Behold! These things are.’ Yet most dramatists employ it to say: ‘This moral truth can be learned from beholding this action.’
+
+111 quotes

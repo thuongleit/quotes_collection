@@ -1,0 +1,36 @@
+ - And no book, and possibly no painting, when it is finished, is ever exactly like the first dream of it.
+ - My imagination functions much better when I don’t have to speak to people.
+ - Honesty, for me, is usually the worst policy imaginable.
+ - Perhaps it was freedom itself that choked her.
+ - Everything human is alien to me.
+ - I should love to do a novel, about one abnormal character seeing present-day life, very ordinary life, yet arresting through it, abnormality, until at the end the reader sees, and with little reluctance, that he is not abnormal at all, and that the main character might as well be himself.
+ - Honestly, I don’t understand why people get so worked up about a little murder!
+ - The justice I have received, I shall give back.
+ - What was it to love someone, what was love exactly, and why did it end or not end? Those were the real questions, and who could answer them?
+ - The first person you should think of pleasing, in writing a book, is yourself. If you can amuse yourself for the length of time it takes to write a book, the publisher and the readers can and will come later.
+ - Anticipation! It occurred to him that his anticipation was more pleasant to him than the experiencing.
+ - I don’t set the alarm to get up. I get up when I feel like it.
+ - It always gets late with you. – Is that a compliment?
+ - One situation – maybe one alone – could drive me to murder: family life, togetherness.
+ - That wasn’t a bad price for a first book. My agent upped it as much as possible. I was 27 and had nothing behind me. I was working like a fool to earn a living and pay for my apartment.
+ - I find the public passion for justice quite boring and artificial.
+ - For neither life nor nature cares if justice is ever done or not.
+ - How easy it was to lie when one had to lie!
+ - If people have bought something of mine, they know by now that I will decline writing it for the movies.
+ - Every man is his own law court and punishes himself enough.
+ - I prefer to live in the country where it’s quiet. Woody Allen movies there are dubbed into Italian.
+ - I don’t want to know movie directors. I don’t want to be close to them. I don’t want to interfere with their work. I don’t want them to interfere with mine.
+ - The night was a time for bestial affinities, for drawing closer to oneself.
+ - The kiss became the narrowed center of the still point of the turning world, so that even the park was turning in comparison to the still peace at their lips.
+ - The conversation seemed just as boring and forgettable as details of American history around 1805, for example.
+ - He liked the fact that Venice had no cars. It made the city human. The streets were like veins, he thought, and the people were the blood, circulating everywhere.
+ - Each book is, in a sense, an argument with myself, and I would write it, whether it is ever published or not.
+ - I can’t write if someone else is in the house, not even the cleaning woman.
+ - I have no television – I hate it.
+ - I didn’t hang around films. I don’t know if I’d ever seen Hitchcock’s The Lady Vanishes.
+ - Robert Walker as Bruno was excellent. He had elegance and humor, and the proper fondness for his mother.
+ - I have Graham Greene’s telephone number, but I wouldn’t dream of using it. I don’t seek out writers because we all want to be alone.
+ - This is what I like, sitting at a table and watching people go by. It does something to your outlook on life. The Anglo-Saxons make a great mistake not staring at people from a sidewalk table.
+ - I was in New York. Hitchcock was in California. He rang me to make a report on his progress and said, I’m having trouble. I’ve just sacked my second screenwriter.
+
+34 quotes

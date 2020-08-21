@@ -1,0 +1,422 @@
+ - Only those who will risk going too far can possibly find out how far one can go.
+ - Every moment is a fresh beginning.
+ - You are the music while the music lasts.
+ - The journey, Not the destination matters...
+ - What we call the beginning is often the end. And to make an end is to make a beginning. The end is where we start from.
+ - Do I dare disturb the universe?
+ - This is the way the world ends, not with a bang, but a whimper.
+ - For us, there is only the trying. The rest is not our business.
+ - Hurry up, please, its time.
+ - The purpose of literature is to turn blood into ink.
+ - No one can become really educated without having pursued some study in which he took no interest- for it is a part of education to learn to interest ourselves in subjects for which we have no aptitude.
+ - If you aren’t in over your head, how do you know how tall you are?
+ - At the still point of the turning world. Neither flesh nor fleshless; Neither from nor towards; at the still point, there the dance is.
+ - Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information?
+ - Anxiety is the hand maiden of creativity.
+ - If you do not push the boundaries, you will never know where they are.
+ - So the darkness shall be the light, and the stillness the dancing.
+ - Survival is your strength not your shame.
+ - For last year’s words belong to last year’s language And next year’s words await another voice.
+ - April is the cruelest month, breeding lilacs out of the dead land, mixing memory and desire, stirring dull roots with spring rain.
+ - Distracted from distraction by distraction.
+ - April is the cruellest month.
+ - To make an end is to make a beginning.
+ - If we really want to pray we must first learn to listen, for in the silence of the heart God speaks.
+ - I have measured out my life with coffee spoons.
+ - To do the useful thing, to say the courageous thing, to contemplate the beautiful thing: that is enough for one man’s life.
+ - Till Human voices wake us, and we drown.
+ - If time and space, as sages say, Are things which cannot be, The sun which does not feel decay No greater is than we. So why, Love, should we ever pray To live a century? The butterfly that lives a day Has lived eternity.
+ - Let us go then, you and I, When the evening is spread out against the sky.
+ - In my beginning is my end.
+ - If you haven’t the strength to impose your own terms upon life, then you must accept the terms it offers you.
+ - We are the hollow men We are the stuffed men Learning together.
+ - If you start with a bang, you won’t end with a whimper.
+ - My life is light, waiting for the death wind, Like a feather on the back of my hand.
+ - At the beach – time you enjoyed wasting, is not wasted.
+ - The end of all our exploring will be to arrive where we started.
+ - Time present and time past Are both perhaps present in time future, And time future contained in time past. If all time is eternally present All time is unredeemable.
+ - Between the conception and the creation, between the emotion and the response, Falls the shadow.
+ - Finding a way to live the simple life is one of life’s supreme complications.
+ - At the still point, there the dance is.
+ - Except for the point, the still point, There would be no dance, and there is only the dance.
+ - Do I dare Disturb the universe? In a minute there is time For decisions and revisions which a minute will reverse.
+ - There will be time, there will be time To prepare a face to meet the faces that you meet.
+ - Winter kept us warm, covering Earth in forgetful snow.
+ - Unreal friendship may turn to real But real friendship, once ended, cannot be mended.
+ - The historical sense involves a perception, not only of the pastness of the past, but of its presence.
+ - In the mountains, there you feel free.
+ - When forced to work within a strict framework, the imagination is taxed to its utmost and will produce its richest ideas. Given total freedom, the work is likely to sprawl.
+ - Sometimes things become possible if we want them bad enough.
+ - The darkness declares the glory of the light.
+ - There is no such thing as a lost cause, because there is no such thing as a gained cause.
+ - It is obvious that we can no more explain a passion to a person who has never experienced it than we can explain light to the blind.
+ - We had the experience, but we missed the meaning.
+ - Home is where one starts from.
+ - The last temptation is the greatest treason: to do the right deed for the wrong reason.
+ - Success is relative. It is what we make of the mess we have made of things.
+ - Footfalls echo in the memory, down the passage we did not take, towards the door we never opened, into the rose garden.
+ - So far as we are human, what we do must be either evil or good: so far as we do evil or good, we are human: and it is better, in a paradoxical way, to do evil than to do nothing: at least we exist.
+ - And I will show you something different from either Your shadow at morning striding behind you Or your shadow at evening rising to meet you I will show you fear in a handful of dust.
+ - Only by acceptance of the past, can you alter it.
+ - Shape without form, shade without color, Paralyzed force, gesture without motion; Those who have crossed With direct eyes, to death’s other Kingdom Remember us-if at all-not as lost Violent souls, but only As the hollow men The stuffed men.
+ - There’s no vocabulary For love within a family, love that’s lived in But not looked at, love within the light of which All else is seen, the love within which All other love finds speech. This love is silent.
+ - At the violet hour, when the eyes and back Turn upward from the desk, when the human engine waits Like a taxi throbbing waiting I Tiresias, though blind, throbbing between two lives.
+ - Everyone gets the experience. Some get the lesson.
+ - Gin and drugs, dear lady, gin and drugs.
+ - Dayodhuam: I have heard the key Turn in the door once and turn once only We think of the key, each in his prison Thinking of the key, each confirms a prison.
+ - I said to my soul, be still, and wait without hope, For hope would be hope for the wrong thing.
+ - I am an Anglo-Catholic in religion, a classicist in literature and a royalist in politics.
+ - The hint half guessed, the gift half understood, is Incarnation.
+ - Time for you and time for me, And time yet for a hundred indecisions, And for a hundred visions and revisions, Before the taking of a toast and tea.
+ - We shall not cease from exploration.
+ - The definition of hell is a place where nothing connects with nothing.
+ - Dante and Shakespeare divide the world between them. There is no third.
+ - I will show you fear in a handful of dust.
+ - Because I know that time is always time and place is always place and only place. And what is actual is actual only for one time. And only for one place. I rejoice that things are as they are.
+ - He who was living is now dead We who were living are now dying With a little patience.
+ - In a world of fugitives, the person taking the opposite direction will appear to run away.
+ - The very existence of libraries affords the best evidence that we may yet have hope for the future of man.
+ - It is in fact a part of the function of education to help us escape, not from our own time – for we are bound by that – but from the intellectual and emotional limitations of our time.
+ - I read, much of the night, and go south in the winter.
+ - The old should be explorers, be curious, risk transgression, explore oldness itself.
+ - Genuine poetry can communicate before it is understood.
+ - Immature poets imitate; mature poets steal; bad poets deface what they take, and good poets make it into something better, or at least something different.
+ - Weave, weave the sunlight in your hair-.
+ - Teach us to care and not to care.
+ - You will find that you survive humiliation. And that’s an experience of incalculable value.
+ - Love compels cruelty To those who do not understand love.
+ - Should I, after tea and cakes and ices, have the strength to force the moment to its crisis?
+ - Shall I part my hair behind? Do I dare to eat a peach?
+ - And indeed there will be time To wonder, “Do I dare?” and, “Do I dare?” Time to turn back and descend the stair, With a bald spot in the middle of my hair.
+ - Cats must have three names-an everyday name, such as Peter; a more particular, dignified name, such as Quaxo, Bombalurina, or Jellylorum; and, thirdly, the name the cat thinks up for himself, his deep and inscrutable singular Name.
+ - Today, you’re halfway to 100! Here’s to optimism, whether it is realistic or not. Happy 50th birthday!
+ - Talent imitates, genius steals.
+ - A crowd flowed over London Bridge, so many, I had not thought death had undone so many.
+ - Poetry may make us from time to time a little more aware of the deeper, unnamed feelings which form the substratum of our being, to which we rarely penetrate; for our lives are mostly a constant evasion of ourselves.
+ - Most of the trouble in the world is caused by people wanting to be important.
+ - It is impossible to say just what I mean!
+ - Macavity, Macavity, there’s no one like Macavity, there never was a cat of such deceitfulness and sauvity.
+ - The more perfect the artist, the more completely separate in him will be the man who suffers and the mind which creates.
+ - Redeem the time. Redeem the unread vision of a higher dream...
+ - In the room the women come and go talking of Michelangelo.
+ - The tiger springs in the new year. Us he devours.
+ - A tradition without intelligence is not worth having.
+ - I have heard the mermaids singing, each to each. I do not think that they will sing to me.
+ - Whatever you think, be sure it is what you think; whatever you want, be sure that is what you want; whatever you feel, be sure that is what you feel.
+ - My name is only an anagram of toilets.
+ - The greatest proof of Christianity for others is not how far a man can logically analyze his reasons for believing, but how far in practice he will stake his life on his belief.
+ - Justice itself tends to be corrupted by political passion.
+ - For you know only a heap of broken images.
+ - Where is all the knowledge we lost with information?
+ - Hell is oneself, hell is alone, the other figures in it merely projections. There is nothing to escape from and nothing to escape to. One is always alone.
+ - That is not it at all, That is not what I meant, at all.
+ - A woman drew her long black hair out tight, And fiddled whisper music on those strings, And bats with baby faces in the violet light Whistled, and beat their wings, And crawled head downward down a blackened wall.
+ - Light Light The visible reminder of Invisible Light.
+ - Old men ought to be explorers.
+ - A good half of the effort of understanding what the Indian philosophers were after – and their subtleties make most of the great European philosophers look like schoolboys.
+ - The progress of an artist is a continual self-sacrifice, a continual extinction of personality.
+ - It’s strange that words are so inadequate. Yet, like the asthmatic struggling for breath, so the lover must struggle for words.
+ - Men tighten the knot of confusion Into perfect misunderstanding.
+ - Words strain, Crack and sometimes break, under the burden, Under the tension, slip, slide, perish, Decay with imprecision, will not stay in place, Will not stay still.
+ - What is this self-inside us, this silent observer, severe and speechless critic, who can terrorize us, and urge us onto futile activity, and in the end, judge us still more severely for the errors into which his own reproaches drove us?
+ - And the end and the beginning where always there, before the beginning and after the end.
+ - There are flood and drought over the eyes and in the mouth, dead water and dead sand contending for the upper hand. The parched eviscerate soil gapes at the vanity of toil, laughs without mirth. This is the death of the earth.
+ - The dream crossed twilight between birth and dying.
+ - Destiny waits in the hand of God, not in the hands of statesmen.
+ - An election is coming. Universal peace is declared and the foxes have a sincere interest in prolonging the lives of the poultry.
+ - O dark dark dark. They all go into the dark, The vacant interstellar spaces, the vacant into the vacant.
+ - I take as metaphysical poetry that in which what is ordinarily apprehensible only by thought is brought within the grasp of feeling, or that in which what is ordinarily only felt is transformed into thought without ceasing to be feeling.
+ - Disillusion can become itself an illusion If we rest in it.
+ - Each venture Is a new beginning, a raid on the inarticulate With shabby equipment always deteriorating In the general mess of imprecision of feeling.
+ - Men have left GOD not for other gods, they say, but for no God; and this has never happened before.
+ - The circle of our understanding is a very restricted area.
+ - Immature poets imitate; mature poets steal.
+ - Sensibility alters from generation to generation in everybody, whether we will or no; but expression is only altered by a man of genius.
+ - A national culture, if it is to flourish, should be a constellation of cultures, the constitutes of which, benefiting each other, benefit the whole.
+ - History may be servitude. History may be freedom. See, now they vanish. The faces and places, with the self which, as it could, loved them, to become renewed, transfigured, in another pattern.
+ - I shall not want Honor in Heaven For I shall meet Sir Philip Sidney And have talk with Coriolanus And other heroes of that kidney.
+ - We had the experience but missed the meaning. And approach to the meaning restores the experience in a different form.
+ - O Lord, deliver me from the man of excellent intention and impure heart: for the heart is deceitful above all things, and desperately wicked.
+ - People exercise an unconscious selection in being influenced.
+ - Because these wings are no longer wings to fly But merely vans to beat the air The air which is now thoroughly small and dry Smaller and dryer than the will Teach us to care and not to care Teach us to sit still.
+ - These fragments I have shored against my ruins.
+ - Every moment is a new and shocking transvaluation of all we have ever been.
+ - Humor is also a way of saying something serious.
+ - Only through time time is conquered.
+ - I learn a great deal by merely observing you, and letting you talk as long as you please, and taking note of what you do not say.
+ - It’s not wise to violate rules until you know how to observe them.
+ - If we are moved by a poem, it has meant something, perhaps something important, to us; if we are not moved, then it is, as poetry, meaningless.
+ - The naming of cats is a difficult matter. It isn’t just one of your holiday games. You may think at first I’m mad as a hatter. When I tell you a cat must have three different names...
+ - And right action is freedom From past and future also.
+ - There is not a more repulsive spectacle than on old man who will not forsake the world, which has already forsaken him.
+ - To approach the stranger is to invite the unexpected, release a new force, let the genie out of the bottle. It is to start a new train of events that is beyond your control...
+ - The only wisdom we can hope to acquire Is the wisdom of humility: humility is endless. The houses are all gone under the sea. The dancers are all gone under the hill.
+ - I journeyed to London, to the timekept City, Where the River flows, with foreign flotations. There I was told: we have too many churches, And too few chop-houses.
+ - We read many books, because we cannot know enough people.
+ - There is one who remembers the way to your door: Life you may evade, but Death you shall not.
+ - We do not pass through the same door twice Or return to the door through which we did not pass.
+ - So the lover must struggle for words.
+ - My mind may be American but my heart is British.
+ - Art is the escape from personality.
+ - There will be time to murder and create.
+ - Words move, music moves Only in time; but that which is only living Can only die. Words, after speech, reach Into the silence. Only by the form, the pattern, Can words or music reach The stillness...
+ - Each way means loneliness – and communion.
+ - Death has a hundred hands and walks by a thousand ways.
+ - For I have known them all already, known them all – Have known the evenings, mornings, afternoons, I have measured out my life with coffee spoons.
+ - Poetry is not an assertion of truth, but the making of that truth more fully real to us.
+ - No! I am not Prince Hamlet, nor was meant to be: am an attendant lord, one that will do to swell a progress, start a scene or two, advise the prince.
+ - When a Cat adopts you there is nothing to be done about it except to put up with it until the wind changes.
+ - The dripping blood our only drink, The bloody flesh our only food: In spite of which we like to think That we are sound, substantial flesh and blood Again, in spite of that, we call this Friday good.
+ - Our high respect for a well read person is praise enough for literature.
+ - If we all were judged according to the consequences Of all our words and deeds, beyond the intention And beyond our limited understanding Of ourselves and others, we should all be condemned.
+ - To each individual the world will take on a different connotation of meaning-the important lies in the desire to search for an answer.
+ - For every life and every act consequence of good and evil can be shown and as in time results of many deeds are blended so good and evil in the end become confounded.
+ - I love reading another reader’s list of favorites. Even when I find I do not share their tastes or predilections, I am provoked to compare, contrast, and contradict. It is a most healthy exercise, and one altogether fruitful.
+ - Any religion is forever in danger of petrifaction into mere ritual and habit, though ritual and habit be essential to religion.
+ - The work of creation is never without travail.
+ - What is true, is true only for one time and only for one place.
+ - Philosophy: a purple bullfinch in a lilac tree.
+ - The chief danger about Paris is that it is such a strong stimulant.
+ - We can say of Shakespeare, that never has a man turned so little knowledge to such great account.
+ - I have seen the moment of my greatness flicker, and I have seen the eternal Footman hold my coat, and snicker, and in short, I was afraid.
+ - The Civil War is not ended: I question whether any serious civil war ever does end.
+ - Men live by forgetting and woman live on memories.
+ - Fading, fading: strength beyond hope and despair climbing the third stair. Lord, I am not worthy Lord, I am not worthy but speak the word only.
+ - In the faint moonlight, the grass is singing.
+ - The remarkable thing about television is that it permits several million people to laugh at the same joke and still feel lonely.
+ - The greatness of literature cannot be determined solely by literary standards though we must remember that whether it is literature or not can be determined only by literary standards.
+ - We ask only to be reassured About the noises in the cellar And the window that should not have been open.
+ - Teach us to care and not to care Teach us to sit still. Pray for us sinners now and at the hour of our death Pray for us now and at the hour of our death.
+ - The lot of man is ceaseless labor, Or ceaseless idleness, which is still harder.
+ - The Church must be forever building, for it is forever decaying within and attacked from without.
+ - Half of the harm that is done in this world is due to people who want to feel important. They don’t mean to do harm. But the harm does not interest them.
+ - A cold coming we had of it, Just the worst time of the year For a journey, and such a long journey: The ways deep and the weather sharp, The very dead of winter.
+ - Birth, and copulation, and death; that’s all the facts when you come to brass tacks.
+ - Every experience is a paradox in that it means to be absolute, and yet is relative; in that it somehow always goes beyond itself and yet never escapes itself.
+ - What a poem means is as much what it means to others as what it means to the author; and indeed, in the course of time a poet may become merely reader in respect to his own works, forgetting his original meaning.
+ - Cling, swing, Spring, sing, Swing up into the apple tree.
+ - I am glad you have a Cat, but I do not believe it is So remarkable a cat as My Cat. My Cat is a Lilliecat Hubvously. What a lilliecat it is. There never was such a Lilliecat. Its Name is JELLYORUM and its one Idea is to be Usefull!!
+ - After such knowledge, what forgiveness? Think now History has many cunning passages, contrived corridors And issues, deceives with whispering ambitions Guides us by vanities.
+ - So I find words I never thought to speak In streets I never thought I should revisit When I left my body on a distant shore.
+ - The nightingales are singing near The Convent of the Sacred Heart, And sang within the bloody wood When Agamemnon cried aloud, And let their liquid siftings fall To stain the stiff dishonored shroud.
+ - And voices singing out of empty cisterns and exhausted wells.
+ - Honest criticism and sensible appreciation are directed not upon the poet but upon the poetry.
+ - Someone said, ‘The dead writers are remote from us because we know so much more than they did.’ Precisely, and they are that which we know.
+ - Men dislike being awakened from their death in life.
+ - It is not enough to understand what we ought to be, unless we know what we are; and we do not understand what we are, unless we know what we ought to be.
+ - The usual dog about the town is much inclined to play the clown.
+ - And they write innumerable books; being too vain and distracted for silence: seeking every one after his own elevation, and dodging his emptiness.
+ - I am aware of the damp souls of housemaids Sprouting despondently at area gates.
+ - A wrong attitude toward nature implies, somewhere, a wrong attitude toward God.
+ - Those who arrive at the end of the journey are not those who began.
+ - The majority of mankind is lazyminded, incurious, absorbed in vanities, and tepid in emotion, and is therefore incapable of either much doubt or much faith.
+ - If all time is eternally present, all time is unredeemable.
+ - As we grow older, the world becomes stranger, the pattern more complicated of dead and living.
+ - And the lost heart stiffens and rejoices in the lost lilac and the lost sea voices and the weak spirit quickens to rebel for the bent golden-rod and the lost sea smell quickens to recover.
+ - Let’s not be narrow, nasty, and negative.
+ - What have we given? My friend, blood shaking my heart The awful daring of a moment’s surrender Which an age of prudence can never retract By this, and this only, we have existed.
+ - Never commit yourself to a cheese without having first examined it.
+ - Webster was much possessed by death And saw the skull beneath the skin.
+ - I don’t believe one grows older. I think that what happens early on in life is that at a certain age one stands still and stagnates.
+ - Love is most nearly itself When here and now cease to matter.
+ - The overwhelming pressure of mediocrity, sluggish and indomitable as a glacier, will mitigate the most violent, and depress the most exalted revolution.
+ - When lovely woman stoops to folly and Paces about her room again, alone, She smooths her hair with automatic hand, And puts a record on the gramophone.
+ - Simple and faithless as a smile and shake of the hand.
+ - Of lovers whose bodies smell of each other Who think the same thoughts without need of speech.
+ - The True Church can never fail. For it is based upon a rock.
+ - Turning Wearily, as one would turn to nod goodbye to Rochefoucauld, If the street were time and he as the end of the street.
+ - Turn things you’ve always wanted to do, into things you’ve done.
+ - Tennyson and Browning are poets, and they think; but they do not feel their thought as immediately as the odour of a rose. A thought to Donne was an experience; it modified his sensibility.
+ - When the whole world is running headlong towards the precipice, one who walks in the opposite direction is looked at as being crazy.
+ - Humankind can’t stand too much reality.
+ - History has many cunning passages, contrived corridors and issues.
+ - The difference between being an elder statesman And posing successfully as an elder statesman Is practically negligible.
+ - Tradition: how the vitality of the past enriches the life of the present.
+ - Envy is everywhere. Who is without envy? And most people Are unaware or unashamed of being envious.
+ - I am no prophet-and here’s no great matter.
+ - In our rhythm of earthly life we tire of light. We are glad when the day ends, when the play ends; and ecstasy is too much pain.
+ - It is impossible to design a system so perfect that no one needs to be good.
+ - The poet’s mind is in fact a receptacle for seizing and storing up numberless feelings, phrases, images, which remain there until all the particles which can unite to form a new compound are present together.
+ - Would it have been worth while, To have bitten off the matter with a smile, To have squeezed the universe into a ball To roll it towards some overwhelming question.
+ - We fight to keep something alive rather than in the expectation that anything will triumph.
+ - My greatest trouble is getting the curtain up and down.
+ - No scheme for a change of society can be made to appear immediately palatable, except by falsehood, until society has become so desperate that it will accept any change.
+ - No poet, no artist of any art, has his complete meaning alone. His significance, his appreciation is the appreciation of his relation to the dead poets and artists. You cannot value him alone; you must set him, for contrast and comparison, among the dead.
+ - We have all our private terrors, our particular shadows, our secret fears. We are afraid in a fear which we cannot face, which none understands, and our hearts are torn from us, our brains unskinned like the layers of an onion, ourselves the last.
+ - Anecdote: It is by no means self-evident that human beings are most real when most violently excited; violent physical passions do not in themselves differentiate men from each other, but rather tend to reduce them to the same state.
+ - Artistic inevitability lies in the complete adequacy of the external to the emotion.
+ - Culture is the one thing that we cannot deliberately aim at. It is the product of a variety of more or less harmonious activities, each pursued for its own sake.
+ - With a poem you can say ‘I got my feeling into words for myself. I now have the equivalent in words for that much of what I have felt.’
+ - All dash to and fro in motor cars. Familiar with the roads and settled nowhere.
+ - Again I must remind you that a dog’s a dog-a cat’s a cat.
+ - Friendship should be more than biting time can sever.
+ - Genuine blasphemy, genuine in spirit and not purely verbal, is the product of partial belief, and is as impossible to the complete atheist as to the perfect Christian.
+ - I must tell you that I should really like to think there’s something wrong with me- Because, if there isn’t, then there’s something wrong with the world itself-and that’s much more frightening! That would be terrible. So I’d rather believe there is something wrong with me, that could be put right.
+ - And went on in sunlight, into the Hofgarten, And drank coffee, and talked for an hour.
+ - Good poets borrow, great poets steal.
+ - Stand on the highest pavement of the stair- Lean on a garden urn- Weave, weave the sunlight in your hair.
+ - Words strain, crack, and sometime break, under the burden.
+ - Upon the glazen shelves kept watch Matthew and Waldo, guardians of the faith The army of unalterable law.
+ - Liberty is a different kind of pain from prison.
+ - But it seems that something has happened that has never happened before: though we know not just when, or why, or how, or where.
+ - With out some kind of god, man is not very intresting.
+ - The business of the poet is not to find new emotions, but to use the ordinary ones and, in working them up into poetry, to express feelings which are not in actual emotions at all.
+ - Poetry is not a turning loose of emotion, but an escape from emotion; it is not the expression of personality but an escape from personality. But, of course, only those who have personality and emotion know what it means to want to escape from these.
+ - This is the feeling for syllable and rhythm, penetrating far below the conscious levels of thought and feeling, invigorating every word.
+ - After such knowledge, what forgiveness?
+ - It is not necessarily those lands which are the most fertile or most favored in climate that seem to me the happiest, but those in which a long struggle of adaptation between man and his environment has brought out the best qualities of both.
+ - I am moved by fancies that are curled, around these images and cling, the notion of some infinitely gentle, infinitely suffering thing.
+ - It is worth dying to find out what life is.
+ - A toothache, or a violent passion, is not necessarily diminished by our knowledge of its causes, its character, its importance or insignificance.
+ - All art emulates the condition of ritual. That is what it comes from and to that it must always return for nourishment.
+ - To country people Cows are mild, And flee from any stick they throw; But I’m a timid town bred child, And all the cattle seem to know.
+ - Humility is the most difficult of all virtues to achieve; nothing dies harder than the desire to think well of self.
+ - People to whom nothing has ever happened cannot understand the unimportance of events.
+ - I gotta use words to talk to you.
+ - Hungry Hatred, will not strive against intelligence self-interest.
+ - Where does one go from a world of insanity? Somewhere on the other side of despair.
+ - Now that the lilacs are in bloom She has a bowl of lilacs in her room.
+ - The hippopotamus’s day Is passed in sleep; at night he hunts; God works in a mysterious way- The Church can sleep and feed at once.
+ - Uncorseted, her friendly bust Gives promise of pneumatic bliss.
+ - In the life of one man, never The same time returns.
+ - Everyone’s alone – or so it seems to me. They make noises, and think they are talking to each other; They make faces, and think they understand each other. And I’m sure they don’t. Is that a delusion?
+ - A good poet will usually borrow from authors remote in time, or alien in language, or diverse in interest.
+ - There is no feeling, except the extremes of fear and grief, that does not find relief in music.
+ - War is not a life: it is a situation, one which may neither be ignored nor accepted.
+ - He is haunted by a demon, a demon against which he feels powerless, because in its first manifestation it has no face, no name, nothing; and the words, the poem he makes, are a kind of exorcism of this demon.
+ - The communication of the dead is tongued with fire beyond the language of the living.
+ - I had seen birth and death but had thought they were different.
+ - It is only in the world of objects that we have time and space and selves.
+ - For love would be love of the wrong thing; there is yet faith, But the faith and the love and the hope are all in the waiting.
+ - He had a mind so fine that no idea could violate it.
+ - I can connect Nothing with nothing.
+ - As things are, and as fundamentally they must always be, poetry is not a career, but a mug’s game. No honest poet can ever feel quite sure of the permanent value of what he has written: He may have wasted his time and messed up his life for nothing.
+ - Every phrase and every sentence is an end and a beginning, every poem an epitaph.
+ - Yet with these April sunsets, that somehow recall My buried life, and Paris in the spring, I feel immeasurably at peace, and find the world To be wonderful and youthful afterall.
+ - Composing on the typewriter, I find that I am sloughing off all my long sentences which I used to dote upon. Short, staccato, like modern French prose. The typewriter makes for lucidity, but I am not sure that it encourages subtlety.
+ - We must always take risks. That is our destiny.
+ - That was my way of putting it-not very satisfactory: A periphrastic study in a worn-out poetical fashion, Leaving one still with the intolerable wrestle With words and meanings.
+ - Every nation, every race, has not only its own creative, but its own critical turn of mind; and is even more oblivious of the shortcomings and limitations of its critical habits than of those of its creative genius.
+ - Think neither fear nor courage saves us. Unnatural vices are fathered by our heroism. Virtues are forced upon us by our impudent crimes. These tears are shaken from the wrath-bearing tree.
+ - Not the intense moment Isolated, with no before and after, But a lifetime burning in every moment.
+ - No poet, no artist of any art, has his complete meaning alone.
+ - And through the spaces of the dark Midnight shakes the memory As a madman shakes a dead geranium.
+ - We are not here to triumph by fighting, by strata gem, or by resistance, not to fight with beasts as men. We have fought the beast and have conquered. We have only to conquer now, by suffering. This is the easier victory.
+ - I suspect that in our loathing of totalitarianism, there is infused a good deal of admiration for its efficiency.
+ - No artist produces great art by a deliberate attempt to express his own personality.
+ - The naming of cats is a difficult matter.
+ - Whatever you do, don’t whimper, but take the consequences.
+ - The great ages did not contain the best talent, they wasted less.
+ - Ambition fortifies the will of man to become ruler over other men: it operates with deception, cajolery, and violence, it is the action of impurity upon impurity.
+ - Before a cat will condescend to treat you as a trusted friend, some little token of esteem is needed, like a dish of cream.
+ - Sand. Everywhere. In the bed, in the shower, all over the floor. Grrrrr.
+ - All significant truths are private truths. As they become public they cease to become truths; they become facts, or at best, part of the public character; or at worst, catchwords.
+ - With cats, some say, one rule is true: Don’t speak till you are spoken to.
+ - When comparing works of art, it is important that the art itself, and not the artists, be considered.
+ - Our difficulties of the moment must always be dealt with somehow, but our permanent difficulties are difficulties of every moment.
+ - It seems just possible that a poem might happen to a very young man: but a poem is not poetry -That is a life.
+ - I was too slow a mover to be a boxer. It was much easier to be a poet.
+ - The soul is so far from being a monad that we have not only to interpret other souls to ourself but to interpret ourself to ourself.
+ - You can evade life, but you can not evade Death.
+ - A thousand policemen directing traffic cannot tell you why you come or where you go.
+ - Gradually we come to admit that Shakespeare understands a greater extent and variety of human life than Dante; but that Dante understands deeper degrees of degradation and higher degrees of exaltation.
+ - Think not forever of yourselves, O Chiefs, nor of your own generation. Think of continuing generations of our families, think of our grandchildren and of those yet unborn, whose faces are coming from beneath the ground.
+ - You have learned enough to see that cats are much like you and me.
+ - All time is eternal, moving inexorably toward an end which we believe is a result of our actions, but over which our control is mere illusion.
+ - Thinking of the key, each confirms a prison.
+ - If you find examples of humanism which are anti-religious, or at least in opposition to the religious faith of the place and time, then such humanism is purely destructive, for it has never found anything to replace what it has destroyed.
+ - The sense of wellbeing! Its often with us When we are young, but then it’s not noticed; And by the time one has grown to consciousness It comes less often.
+ - The hint half guessed, the gift half understood, is incarnation. Here the impossible union of spheres of existence is actual. Here the past and future are conquered and reconciled.
+ - In spite of all the dishonour, the broken standards, the broken lives, The broken faith in one place or another, There was something left that was more than the tales Of old men on winter evenings.
+ - We do not quite say that the new is more valuable because it fits in; but its fitting in is a test of its value – a test, it is true, which can only be slowly and cautiously applied, for we are none of us infallible judges of conformity.
+ - You must not on any account give me credit for being penetrating. I have impressed people that way before, and the result is always disaster.
+ - Maturing as a poet means maturing as the whole man, experiencing new emotions appropriate to one’s age, and with the same intensity as the emotions of youth.
+ - No place of grace for those who avoid the Face. No time to rejoice for those who walk among noise and deny the Voice.
+ - People are only influenced in the direction in which they want to go, and influence consists largely in making them conscious of their wishes to proceed in that direction.
+ - Between the vision and the act lies the shadow.
+ - The Rum Turn Tugger is a terrible bore: When you let him in, then he wants to be out; He’s always on the wrong side of every door, And as soon as he’s at home, then he’d like to get about.
+ - Paint me the bold anfractuous rocks Faced by the snarled and yelping seas.
+ - Our lives are mostly a constant evasion of ourselves, and of our visible, sensible world.
+ - It has frequently been said that we never desire what we think absolutely inapprehensible: it is however true that some of our sharpest agonies are those in which the object of desire is regarded as both possible and imaginary.
+ - He laughed like an irresponsible foetus.
+ - Wait without thought, for you are not ready for thought.
+ - And would it have been worth it, after all, Would it have been worth while, After the sunsets and the dooryards and the sprinkled streets, After the novels, after the teacups, after the skirts that trail along the floor – And this, and so much more? -.
+ - His laughter tinkled among the teacups.
+ - We should not confuse information with knowledge.
+ - Those who talk of the bible as a monument of English prose are merely admiring it as a monument over the grave of Christianity.
+ - In order to possess what you do not possess, you must go by the way of dispossession.
+ - In life there is not time to grieve long.
+ - I do not approve the extermination of the enemy; the policy of exterminating or, as it is barbarously said, liquidating enemies, is one of the most alarming developments of modern war and peace, from the point of view of those who desire the survival.
+ - It takes so many years to learn that one is dead.
+ - I do not know much about gods; but I think that the river Is a strong brown god-sullen, untamed and intractable.
+ - It is generally a feminine eye that first detects the moral deficiencies hidden under the ‘dear deceit’ of beauty.
+ - Poetry should help, not only to refine the language of the time, but to prevent it from changing too rapidly.
+ - If you want it you must obtain it by great labor.
+ - Knowledge is invariably a matter of degree: you cannot put your finger upon even the simplest datum and say this we know.
+ - One starts an action simply because one must do something.
+ - There is no method but to be very intelligent.
+ - It’s harder to confess the sin that no one believes in Than the crime that everyone can appreciate. For the crime is in relation to the law And the sin is in relation to the sinner.
+ - But at my back from time to time I hear The sound of horns and motors, which shall bring Sweeney to Mrs. Porter in the spring. O the moon shone bright on Mrs. Porter And on her daughter They wash their feet in soda water.
+ - For he will do As he do do And there’s no doing anything about it!
+ - There is, it seems to us, At best, only a limited value In the knowledge derived from experience.
+ - There is no absolute point of view from which real and ideal can be finally separated and labelled.
+ - To become what you are not, behave as you do not.
+ - A good deal of confusion could be avoided, if we refrained from setting before the group, what can be the aim only of the individual; and before society as a whole, what can be the aim only of the group.
+ - We learn what poetry is – if we ever learn – by reading it.
+ - When the gods know that a god hath fallen, With this kindly feeling They do encourage him – Be thou a god again and again.
+ - We see the light but see not whence it comes. O Light Invisible, we glorify Thee!
+ - Because I know that time is always time And place is always and only place...
+ - If you desire to drain to the dregs the fullest cup of scorn and hatred that a fellow human being can pour out for you, let a young mother hear you call dear baby ‘it.’
+ - When war is not just it is subsequently justified; so it becomes many things. In reality, an unjust war is merely piracy. It consists of piracy, ego and, more than anything, money. War is our century’s prostitution.
+ - Television is a medium of entertainment which permits millions of people to listen to the same joke at the same time, and yet remain lonesome.
+ - I believe the moment of birth Is when we have knowledge of death I believe the season of birth Is the season of sacrifice.
+ - All our knowledge brings us nearer to our ignorance.
+ - Some editors are failed writers, but so are most writers.
+ - If one has to earn a living, therefore, the safest occupation is that most remote from the arts.
+ - The young feel tired at the end of an action, the old at the beginning.
+ - The last thing one discovers in composing a work is what to put first.
+ - The Nobel is a ticket to one’s own funeral. No one has ever done anything after he got it.
+ - A play should give you something to think about. When I see a play and understand it the first time, then I know it can’t be much good.
+ - Not only every great poet, but every genuine, but lesser poet, fulfils once for all some possibility of language, and so leaves one possibility less for his successors.
+ - We must learn to suffer more.
+ - An editor should tell the author his writing is better than it is. Not a lot better, a little better.
+ - The majority of poems one outgrows and outlives, as one outgrows and outlives the majority of human passions.
+ - Time past and time future allow but a little consciousness. To be conscious is not to be in time.
+ - War among men defiles this world.
+ - I’ve been born, and once is enough.
+ - In a mind charged with an eager purpose and an unfinished vindictiveness, there is no room for new feelings.
+ - The bad poet is usually unconscious where he ought to be conscious, and conscious where he ought to be unconscious.
+ - I must say Bernard Shaw is greatly improved by music.
+ - Any poet, if he is to survive beyond his 25th year, must alter; he must seek new literary influences; he will have different emotions to express.
+ - We know too much, and are convinced of too little. Our literature is a substitute for religion, and so is our religion.
+ - I do not believe that any writer has ever exposed this bovarysme, the human will to see things as they are not, more clearly than Shakespeare.
+ - I am glad you have a Cat, but I do not believe it is So remarkable a cat as My Cat.
+ - What we know of other people’s only our memory of the moments during which we knew them.
+ - A book is not harmless merely because no one is consciously offended by it.
+ - To justify Christian morality because it provides a foundation of morality, instead of showing the necessity of Christian morality from the truth of Christianity, is a very dangerous inversion.
+ - Where there is no temple there shall be no homes.
+ - Our emotions Are only “incidents” In the effort to keep day and night together.
+ - Playwriting gets into your blood and you can’t stop it. At least not until the producers or the public tell you to.
+ - No generation is interested in art in quite the same way as any other; each generation, like each individual, brings to the contemplation of art its own categories of appreciation, makes its own demands upon art, and has its own uses for art.
+ - People find a way in which they can say something.
+ - In the last few years everything I’d done up to sixty or so has seemed very childish.
+ - The soul of Man must quicken to creation.
+ - When a great poet has lived, certain things have been done once for all, and cannot be achieved again.
+ - The good poet welds his theft into a whole of feeling which is unique, utterly different than that from which it is torn.
+ - Writing every day is a way of keeping the engine running, and then something good may come out of it.
+ - A prose that is altogether alive demands something of the reader that the ordinary novel reader is not prepared to give.
+ - Amongst the rock one cannot stop or think.
+ - All cases are unique and very similar to others.
+ - The role of art is not to express the personality but to overcome it.
+ - Past art is subject to change.
+ - To men of a certain type The suspicion that they are incapable of loving Is as disturbing to their self-esteem As, in cruder men, the fear of impotence.
+ - Poetry is a mug’s game.
+ - But the Church cannot be, in any political sense, either conservative or liberal, or revolutionary. Conservatism is too often conservation of the wrong things: liberalism a relaxation of discipline; revolution a denial of the permanent things.
+ - Business today consists in persuading crowds.
+ - Those who say they give the public what it wants begin by underestimating public taste and end by debauching it.
+ - All time is unreedemable.
+ - The most important thing for poets to do is to write as little as possible.
+ - Probably, indeed, the larger part of the labor of an author composing his work is critical labor; the labor of sifting, combining, constructing, expunging, correcting, testing. This frightful toil is as much critical as creative.
+ - As she laughed I was aware of becoming involved in her laughter and being part of it, until her teeth were only accidental stars with a talent for squad-drill.
+
+420 quotes

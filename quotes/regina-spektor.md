@@ -1,0 +1,57 @@
+ - I’m the hero of this story, I don’t need to be saved.
+ - I’m just a soul whose intentions are good. Oh lord please don’t let me be misunderstood.
+ - Pick a star on the dark horizon and follow the light.
+ - The piano is not firewood – yet.
+ - You are my sweetest downfall.
+ - I think to me, all songs are stories.
+ - A man destined to hang can never drown.
+ - You’re using your headphones to drown out your mind.
+ - Love is the answer to a question that I have forgotten.
+ - Maybe one day you’ll understand I don’t want nothing more than to sweetly hold your hand.
+ - I’ve got a perfect body, ’cause my eyelashes catch my sweat.
+ - It doesn’t feel natural for me to write some diary type song. I want to write a classic like Yesterday but weird songs about meatballs in refrigerators come into my head – I can’t help it.
+ - Love what you have and you’ll have more love.
+ - No one’s laughing at God -We’re all laughing with God.
+ - I think that everything in this life is a story you know; our own narrative, our own history, it’s all a story.
+ - The other day I was down by the Hudson River, and I see two nuns in full habit rollerblading down the street holding hands. And I’m like, ‘Oh, my God, I get it. The world is surreal and beautiful. And everything is fine.’
+ - And the history books forgot about us, and the bible didn’t mention us.
+ - Pickle jars are just pickle jars, and pickles are just pickles.
+ - Its not like I have all the answers.
+ - Every morning I wake up with a purpose and a smirk.
+ - We’re living in a den of thieves.
+ - And people are just people, They shouldn’t make you nervous. The world is everlasting, It’s coming and it’s going.
+ - So break me to small parts, let go in small doses, but spare some for spare parts.
+ - Songs kind of live in a timeless place for me, and since I make records I dunno, about every two-and-a-half to three years or something like that, it’s just not enough to put all the songs that I have, no matter how much I put.
+ - I care so much about making things that are useful for people to have and listen to, but I don’t care so much that I won’t do whatever the hell I want. It’s just one of those things.
+ - I don’t kiss losers and I don’t kiss winners, and I don’t fight for honor ’cause we all are born sinners.
+ - It feels very good to sing in Russian. It feels so good inside my body.
+ - The world that has made us can no longer contain us.
+ - I would really hate it if I could call up Kafka or Hemingway or Salinger and any question I could throw at them they would have an answer. That’s the magic when you read or hear something wonderful – there’s no one that has all the answers.
+ - We’re trying to be faithful but we’re cheating, cheating, cheating.
+ - Maybe you should kiss someone who is nice, or lick a rock, or both.
+ - Yeah. My singing and my songs were very influenced by all of that. People would come up to me and ask, Is that a Billie Holiday song? I’d say, No, it’s my song. The lyrics would be in my style, but the songs would be very jazzy.
+ - I’ve done that kind of stuff in records, where you start going back and you want to just redo everything, destroy everything, because you think it all sucks and you can do it better.
+ - I started to write before I went to SUNY Purchase music conservatory. As an audition I submitted what I now think are really awful songs, but I guess they saw something in them.
+ - Luckily, there’s enough people who have recorded songs that I can just go online and kind of figure out how to play them.
+ - Tomorrow you might get a phone call about something wonderful and you might get a phone call about something terrible.
+ - I always have kind of a few books going at the same time.
+ - When you’re playing such brilliant music every day, then the last thing you ever want to do is try to write something of your own that’s crude and not as good.
+ - This is the way I want to die. Torn apart by angry fans who want me to play a different song.
+ - I think songwriters are more related to fiction writers. The Odyssey was a story in song. To me, that’s so beautiful, all those painted characters, all those travels and adventures.
+ - I also don’t like to make really big records, because I feel then that the songs don’t get enough space to be themselves, so I would never want to make a record that’s like seventeen songs.
+ - It’s a real gift to be able to have the works of brilliant, great people to learn from and build from. It gives you so much more to draw on, and then you don’t have to be all about three-chord pop songs. I don’t really like that kind of writing.
+ - I just like being all over the place and writing whatever comes to mind. Having the tools? It’s such a gift.
+ - Even if you’re an observer of a story that you yourself made up, you’re still very much connected to it. You love it and feel it, no less than somebody’s who’s writing from their direct ‘I’ or ‘me.’ I’m just so much more interesting in stories than confessions.
+ - I write a tiny fraction of what I used to write. My only job used to be to just write songs, and that was a really nice job to have, but only a tiny amount of people heard those songs, and I didn’t make a living from it, and eventually I begged my parents to let me move back into my room.
+ - I don’t really make records chronologically.
+ - I go through insanity before a show. It’s not really a process but it’s like absolute mortal fear.
+ - I used to be such a militant city-ist, but more and more I’ve seen forests and nature and oceans, and I don’t know any more if this is the awesomest way to live.
+ - If somebody wanted to go and find songs of mine to fill an iPod, that aren’t on any records. They could probably find dozens of songs besides the ones that are on records.
+ - I’d always wanted to work in the studio and experiment with sounds. Things that I’m really influenced by and that I love are like The Beatles and Radiohead, and all those records by bands whose music is really involved.
+ - Maybe I am skipping over the city and going from very personal things to the world, from internal experience to giant, far-away-from-space experience.
+ - I knew all this Beatles music. I knew the songs phonetically. It was like my whole experience of that music was out of focus, and somebody put the perfect glasses on me, and all of a sudden I could see everything.
+ - It’s a privilege to work with an artist that you really care for.
+ - Somebody’s got to tell all the people to be like the water.
+ - I figured, ‘If I ever get offered a chance to sign a deal, I’ll only do it if I got to do it how I want.’ So my contract is structured in such a way that I’m really protected.
+
+55 quotes

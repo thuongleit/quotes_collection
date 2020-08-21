@@ -1,0 +1,79 @@
+ - It takes nothing away from a human to be kind to an animal.
+ - I like working all the time. I hate taking breaks. I don’t like the weekends.
+ - Animal rights is a part of my everyday life. When you live by example, you create a certain level of awareness. Friends of mine – people I have never discussed animal rights or vegetarianism with – are adopting vegetarian habits because they see it.
+ - I don’t believe in god. I don’t believe in an afterlife. I don’t believe in soul. I don’t believe in anything. I think it’s totally right for people to have their own beliefs if it makes them happy, but to me it’s a pretty preposterous idea.
+ - Is it that your dream is unattainable or is it that you have the wrong dream?
+ - I’ve been in clubs. I don’t like being in an enclosed place with really loud music, and a lot of drunk people. It’s not my idea of a good time. It’s just such a miserable life.
+ - I’m proud of my brother. I would never not want to be associated with him.
+ - I once told a journalist that girls call me ‘Kitten,’ but I couldn’t have been more sarcastic, and no matter how many times I’ve said that it was a joke, it still doesn’t go away.
+ - Do I have a large frog in my hair? I have the sensation that something is eating my brain.
+ - I don’t have the slightest desire to speak over my dead brother. It gets on my nerves to always be compared with him. My brother was a magnificent person and an outstanding actor.
+ - The footage that you’re about to watch of China’s dog-leather trade is one of the worst things I’ve ever seen.
+ - I’m very thankful for the people that I’ve had the opportunity to work with. I have a good life. It’s been amazing. I’m not complaining. It’s not like acting has ruined me so I have to leave. It’s not that. I’m just done with it.
+ - I’ve never made $20 million. I’m scared. I don’t know if you gave me The Ring if I could carry it and bring it to Ozamorph, or whatever you call it.
+ - When I go out with the ladies, I don’t force them to pronounce my name. I tell them I like to go by the nickname of Kitten.
+ - My significant other right now is myself, which is what happens when you suffer from multiple personality disorder and self-obsession.
+ - Getting into the character is difficult and letting go of your life and the things that kind of define you, whatever it is in life that’s your daily routine because you sort of find yourself in this other life and that’s difficult and the other end is difficult.
+ - I’m vomiting days before I start shooting a new movie.
+ - I had a really wonderful upbringing. We were a tight family. It was wonderful to grow up with so many siblings. We were all just a year or two apart, and we were always so supportive of each other. I learned everything from my older brother and sister and taught it to my younger sisters.
+ - I love having a master. I have no problem serving my director. That’s my job. I want to make them happy.
+ - For me, I guess I’m the acting equivalent of somebody that jumps off buildings and parachutes.
+ - My dissatisfaction with acting has nothing to do with being uncomfortable or vulnerable or feeling like people are going to criticize me. That’s not the problem.
+ - Every single movie that I’ve ever done has affected my life; I always feel more changed by a character than I affect them or change them, always. I mean, that’s just kind of the way it is.
+ - When I look back I can’t believe how my parents managed, but the cliche is true. We didn’t have money, but we were rich in so many other ways.
+ - For me, I’d rather have an intense experience than not.
+ - I do like to collaborate, and I like hearing other people, and I like how somebody’s performance will affect my own.
+ - How can you work in film and still see the overt racism that exists in film and not just be furious all the time?
+ - I don’t spend most of my life in front of the media.
+ - I’ve been prepping for my role as Medusa.
+ - For as long as I’ve been making movies, I really don’t know a lot of the technical side. I mean, I’ve actively and consciously tried to avoid learning that stuff. I just want to be open and receptive to what’s happening in the moment, and I don’t want to force anything.
+ - I enjoy humour more than anything, I don’t really sit around banging my head and crying all the time.
+ - I know if I’m lost in the moment or not.
+ - The less someone knows about me, the better, because my intention is to play a variety of characters.
+ - I don’t know a single person in life that doesn’t have conflict.
+ - Every movie soaks into you for a certain amount of time.
+ - With public figures involved in a relationship it seems that there is a machine behind their love so oftentimes.
+ - I didn’t know much about him, and I wasn’t a big country music fan. I listened to the Beatles and David Bowie, so I didn’t know a lot about him.
+ - It’s an amazing feeling to go into a studio and really be alone.
+ - I just I don’t feel challenged by acting anymore. I don’t enjoy the process anymore.
+ - I becan acting when River was doing this TV series and they needed two kids for the show, so they got me and my little sister, Summer, to do it. After that I did some really weird guest spots with orangutans and stuff.
+ - I wouldn’t feel satisfied being on set every day doing a romantic comedy – I’d be bored to death.
+ - I’d see child actors and I’d get so jealous, because they’re just completely wide open.
+ - It’s hard for me to put my feelings into words.
+ - I don’t walk around like I’m a movie star because I don’t think of myself as a movie star. People usually don’t even notice me.
+ - I guess I had what you could call an unconventional upbringing.
+ - I think the day that I become comfortable doing interviews and going on talk shows is the day that I don’t know what it is to be a human being anymore.
+ - I’ve made up so many stores about my name, I can’t remember.
+ - I enjoy writing rhymes and sitting alone in a room listening to beats. It’s pretty amazing.
+ - There is no need for fur – since there are compassionate alternatives.
+ - My music is going to be true. I’m not out to sell records. I’m experiencing something, and it’s what I feel.
+ - I’m like the kid that crams for tests and never remembers anything.
+ - I don’t bring my life into a character at all.
+ - I don’t think one should be comfortable standing on a stage with people applauding and laughing at every stupid thing you say.
+ - In most films – especially in regards to the protagonist – really from the get-go they set up some scenario that endears that character to the audience. Or imbues him with some nobility or heroism or something.
+ - I still think that movies are amazing; I respect actors and directors.
+ - I’m going to sound a little weird here, but I like to spend a lot of time on my own in the woods. I don’t exactly sneak off in the middle of the night, but I like to be in a place where no one can reach me by phone or e-mail.
+ - Might I be ridiculous? Might my career in music be laughable? Yeah, that’s possible, but that’s certainly not my intention.
+ - My personal life absolutely goes down the drain when I start working; that’s something that I’m incapable of doing.
+ - I have this horrible sense of humor where I think discomfort is funny – partly because I experience discomfort a lot, and it’s a way of laughing at it and getting a release.
+ - Whether you think a film will affect society or it’s plain entertainment, it’s all excellent, it’s all noble.
+ - I wish I had fair justification for not being as informed as I should be, but I don’t.
+ - As a nation, this is the moment to start seriously investing our time, energy and resources into proven methods of reducing violence, both within our nation as well as internationally. The cost of violence to our culture and our children is simply not sustainable.
+ - The reason I keep making movies is I hate the last thing I did. I’m trying to rectify my wrongs.
+ - Well, I think that you know, I threatened myself with quitting after every movie. But I think everybody does that, right?
+ - Acting is real important to me. I love it, and it’s something I care about.
+ - In every film, whether it’s a fictional character or not, you create an idea of the character and for me I always do a bad impersonation to start with.
+ - I loved hip-hop. The first stuff I heard was Public Enemy, and I couldn’t believe it. It was amazing, and I’ve always loved hip-hop.
+ - I would try and sing along with bands that I like but it sounded so atrocious that I couldn’t.
+ - I’ve always loved hip-hop, since I was a kid, that’s the music that I loved. I think everyone of our generation kind of fantasized about hip-hop in some ways.
+ - There are certain aspects of acting that I don’t like. I’m not a person who loves being on set. I mean, I know people that have their espresso machines in their trailers and they like being in there and they put pictures on walls. But I don’t like it. I don’t like sitting around.
+ - I guess my experience with some stuff is kind of abstract.
+ - I love doing the music. I love programming beats and kind of working on the music as much, if not more, than the actual rapping.
+ - I like being an employee. I like making somebody happy – and if they’re not, then I’m crushed.
+ - The offers were, like, a lot of money – maybe not for other actors, but definitely for me. But I don’t want that power. I don’t want $20-million power.
+ - I always have the fear that, if I don’t commit 100 percent to my work, then it’s gonna suffer.
+ - I don’t know why I always get to play these guys who have few redeeming features. But don’t knock it. Villains are much more fun.
+ - You see so many earnest characters in movies all the time, everyone has a purpose.
+ - I’ve worked with a lot of people on music and often times those things don’t work out.
+
+77 quotes

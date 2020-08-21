@@ -1,0 +1,40 @@
+ - Why do anything unless it is going to be great?
+ - Ones vision is not a road map but a compass.
+ - How do you change the world? One room at a time. Which room? The one you’re in.
+ - We must establish a personal connection with each other. Connection before content. Without relatedness, no work can occur.
+ - It is a misuse of our power to take responsibility for solving problems that belong to others.
+ - Every parent’s deepest wish is that their children are self sufficient, happy, and able to live a full life.
+ - The task of leadership is to be intentional about the way we group people and the questions that we engage them in.
+ - All we have to do to create the future is to change the nature of our conversations, to go from blame to ownership, and from bargaining to commitment, and from problem solving to possibility.
+ - The shift in the world begins with a shift in our thinking. Shifting our thinking does not change the world, but it creates a condition where the shift in the world becomes possible.
+ - To be committed means you are willing to make a promise with no exception of return.
+ - Good questions work on us, we don’t work on them. They are not a project to be completed but a doorway opening onto greater depth of understanding, actions that will take us into being more fully alive.
+ - Structure influences behavior. Design spaces that make you feel “you are welcome here and that you came to the right place.”
+ - We must act as if our institutions are ours to create, our learning is ours to define, our leadership we seek is ours to become.
+ - Transformation comes more from pursuing profound questions than seeking practical answers.
+ - Relationship and connectedness are the pre-condition for change. Every meeting, every process, every training program has to get people connected first. Otherwise the content falls on deaf ears. So small groups are an essential building block to any future you want to create.
+ - The essential challenge is to transform the isolation and self-interest within our communities into connectedness and caring for the whole.
+ - What worked yesterday is the gilded cage of tomorrow.
+ - Advice is unfriendly to learning, especially when it is sought. Most of the time when people seek advice, they just want to be heard. Advice at best stops the conversation, definitely inhibits learning, and at worst claims dominance.
+ - If we believe something does not exist unless we measure it, then we put aside: love, feeling, intuition, art and philosophy.
+ - Change from the top down happens at the will and whim of those below.
+ - The goal is to balance a life that works with a life that counts.
+ - As long as we wish for safety, we will have difficulty pursuing what matters.
+ - The world does not need a better definition of issues, or better planning or project management. It needs the issues and the plans to have more of an impact, which is the promise of engagement.
+ - If there is no transformation inside of us, all the structural change in the world will have no impact on our institutions.
+ - We have banished our artists to the fringe of society and tell them to eat cake. It is our artists who choose freedom over safety and use their talents to question and confront the culture.
+ - If you need ownership and responsibility from core workers, patriarchy can’t get you there.
+ - The price of change is measured by our will and courage, our persistence, in the face of difficulty.
+ - To live our lives fully, to work whole heartily, to refuse directly what we can’t swallow, to accepts the mystery in all matters of meaning- this is the ultimate adventure.
+ - We get the leaders we create.
+ - Why follow the steps of another to find out where our dreams will lead us.
+ - Anecdotes, personal stories, reminiscences, like biblical parables, are the medium through which faith is restored. Stories are a form of poetry, and give us a saving image to personally relate to.
+ - We are reluctant to let go of the belief that if I am to care for something I must control it.
+ - The choice to worry about why we are doing something more than how we do something is risky business.
+ - Learning and performance will become one and the same thing. Everything you say about learning will be about performance. People will get the point that learning is everything.
+ - If you believe that saying no will get you shot, well, what a fine way to go.
+ - Questions draw us together. Answers push us apart.
+ - It is hard to learn when we think we know something.
+ - How many times have we brought in an outsider to tell us what we already knew?
+
+38 quotes

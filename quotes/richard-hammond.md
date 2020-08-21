@@ -1,0 +1,35 @@
+ - All of us, each and every one, lives a life that is, in its own right, an epic.
+ - You can stick a BMW badge on a dead cat – and people would still buy it.
+ - This is just the happiest car in the world! I shall call it Oliver! Not that wed ever name a car on Top Gear. I wish I hadnt said that.
+ - I like to think that my arrogance, impetuosity, impatience, selfishness and greed are the qualities that make me the lovable chap I am.
+ - At home I drive an old Land Rover.
+ - I damaged all the complicated bits of the brain to do with processing and emotional control. I was prey to every single emotion that swept over me and I couldn’t deal with it. I had to re-learn things from scratch.
+ - My first car was a 1976 Toyota Corolla Liftback in red, like the one in ‘The Blues Brothers.’ I painted a Union Jack on the roof. I was absolutely in love with it until I destroyed it, which broke my heart!
+ - I had post-traumatic amnesia, five-second memory, it happens as a result of brain injury.
+ - I do not see how hanging litter louts up by their heels and beating them with sticks could be considered a crime.
+ - I don’t particularly want to smear myself into a hillside.
+ - Failing my driving test first time; that was a disappointment on a geological scale.
+ - Unless I have been sorely misinformed, supermodels are powerless to resist a man with illuminated doorsills.
+ - If I can be cruel; I’m not a big fan of the Audi R8, actually.
+ - And to Mindy, I can only ever say a simple thank you. And dedicate the rest of my life to her.
+ - Mexican cars are just going to be lazy, feckless, flatulent, overweight, leaning against a fence asleep looking at a cactus with a blanket with a hole in the middle on as a coat.
+ - Say German cars are sort of very built and efficient. Italian cars are a bit flamboyant and quick. Mexican cars just going to be lazy, feckless, flatulent...
+ - I think a basic level of fitness can help the body cope with all manner of incidents.
+ - When the afterburner lights, I haven’t got 5,000 horsepower. I’ve got 10,000 horsepower, and possibly the biggest accident you’ve ever seen in your life.
+ - And I like pygmy goats, because they’re just lovely, and ducks.
+ - Im not reckless. I was never reckless.
+ - I would love to act. I probably won’t make it to Hollywood at 42 years of age, but I’d love to act.
+ - Mothers will be fishing kids out of obscure cubby-holes for years!
+ - Now, personally, I like a car with some sort of character.
+ - I mostly drive around in a Fiat 500 TwinAir, and that’s a pretty small car!
+ - I’ve been in a car three or four times when it filled with water and it’s not a comfortable feeling.
+ - I run a lot. I have this five-mile run that I try and do a few times a week. If I do more, I get shin splints and it drives me mad, so I have to balance it.
+ - For somebody who has injured their brain, every single thing they say and think will be the subject of their own questioning.
+ - Forty is brilliant and I love it. I’m happier now than when I was 20.
+ - The easiest and simplest thing that any one can do to make their car safer, more gas efficient, whatever – check the tire pressure.
+ - No action hero is more closely associated with cars than James Bond.
+ - My grandfather on one side was trained as a cabinetmaker but eventually worked as a coachbuilder and then built cars. I inherited from him a love of cars, but with no technical ability whatsoever, sadly!
+ - With the case of running, it really is a case of get out, set yourself a distance, run it, and then do it again the next day. It’s tremendously simple.
+ - Watching Life on Mars was quite frightening for me because dipping in and out of reality was quite like myself.
+
+33 quotes

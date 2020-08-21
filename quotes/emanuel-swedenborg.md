@@ -1,0 +1,101 @@
+ - Love comes into being through useful service to others.
+ - Conscience is God’s presence in humans.
+ - Love in its essence is spiritual fire.
+ - Man is an organ of life, and God alone is life.
+ - Hell and Heaven are near man, yes, in him; and every man after death goes to that Hell or heaven in which he was, or to his spirit, during his abode in the world.
+ - The inner self is as distinct from the outer self as heaven is from earth.
+ - The divine essence itself is love and wisdom.
+ - Self-love and the love of the world constitute hell.
+ - True charity is the desire to be useful to others with no thought of recompense.
+ - Love is the life of humanity.
+ - Love means setting aside walls, fences, and unlocking doors and saying ‘Yes.’ One can be in paradise by simply saying ‘yes’ to this moment.
+ - God created us in such a way that our inner self is in the spiritual world and our outer self is in the physical world. This was so that the spiritual part of us, which belongs in heaven, could be planted in the physical part the way a seed is planted in the ground.
+ - A life of kindness is the primary meaning of divine worship.
+ - We are all spirits inwardly. This is what’s alive in the body, not the body on its own.
+ - Goodness and love mould the form into their own image, and cause the joy and beauty of love to shine forth from every part of the face.
+ - Love consists in desiring to give what is our own to another and feeling his delight as our own.
+ - God loves every one of us but cannot directly benefit us; he can benefit us only indirectly through each other. For this reason he inspires us with his love.
+ - All union is effected by love, and love is not love without trust.
+ - Peace has in it trust in the Lord, that He governs all things, provides all things, and leads to a good end.
+ - People are unaware that spirits even exist, let alone that angels are present with them.
+ - A person’s life from infancy to old age is nothing else than an advance from the world towards heaven, the last stage of which is death; the actual transition from one life to the next.
+ - No one’s character is completely like another’sthis infinite variety is like a mirror in which we can see the infinity of God the Creator.
+ - To will and not to do when there is opportunity is in reality not to will; and to love what is good and not to do it, when it is possible, is in reality not to love it.
+ - The Divine of the Lord in heaven is love, for the reason that love is receptive of all things of heaven, such as peace, intelligence, wisdom and happiness.
+ - It is no proof of a man’s understanding to be able to affirm whatever he pleases; but to be able to discern that what is true is true, and that what is false is false, this is the mark and character of intelligence.
+ - Kindness is an inner desire that makes us want to do good things even if we do not get anything in return. It is the joy of our life to do them. When we do good things from this inner desire, there is kindness in everything we think, say, want, and do.
+ - Everything good or true that the angels inspire in us is God’s, so God is constantly talking to us. He talks very differently, though, to one person than to another.
+ - The essence of love is that what is ours should belong to someone else. Feeling the joy of someone else as joy within ourselves-that is loving.
+ - I have seen a thousand times that Angels are human form, or men, for I have conversed with them as man to man, sometimes with one alone, sometimes with many in company.
+ - Every single moment of a person’s life, both of the understanding and of the will, is a new beginning.
+ - For those who trust in the Divine all things are moving towards an everlasting state of happiness, and no matter what happens at any time to them, it contributes to that state.
+ - Sacred scripture is like a mirror in which we see God, although each in a different way.
+ - Man was so created by the Lord as to be able while living in the body to speak with spirits and angels, as in fact was done in the most ancient times; for, being a spirit clothed with a body, he is one with them.
+ - Heaven is not located on high, but where the good of love is, and this resides within a person, wherever he or she might be.
+ - Wherefore the brain must be looked upon as the universal and general sensory and at the same time as the universal and general motory organ of the body and finally as the universal and general laboratory of the animal spirits and the blood or of the essential juices of life.
+ - That every man after the life in the world lives to eternity, is evident from this, that man is then spiritual, and no longer natural, and that the spiritual man, separated from the natural, remains such as he is to eternity, for man’s state cannot be changed after death.
+ - Worship does not consist in prayers and in external devotion, but in a life of kindness.
+ - Adultery is an image of hell.
+ - Charity means love towards the neighbor and compassion, for anyone who loves his neighbor as himself also has as much compassion for him in his suffering as he does for himself in his own.
+ - Charity itself consists in acting justly and faithfully in whatever office, business and employment a person is engaged in.
+ - He who is in evil, is also in the punishment of evil.
+ - A man after death, is not a natural but a spiritual man; nevertheless he still appears in all respects like himself.
+ - There are angels that receive more interiorly the Divine that goes forth from the Lord, and others that receive it less interiorly; the former are called celestial angels, and the latter spiritual angels.
+ - Angels never attack, as infernal spirits do. Angels only ward off and defend.
+ - True wisdom is seeing what is beneficial to your eternal life, and managing your life according to that. You do this when you not only know these things and grasp them with your understanding, but also will and do them.
+ - In a word, to grow old in heaven is to grow young.
+ - The sky is an enormous man.
+ - Our love is our life itself. What our love is like determines how we live and therefore everything about what we are as human beings.
+ - All in heaven take joy in sharing their delights and blessings with others.
+ - Moreover, no one is judged from the natural man, thus not so long as he lives in the natural world, for man is then in a natural body; but everyone is judged in the spiritual man, and therefore when he comes into the spiritual world, for man is then in a spiritual body.
+ - And as the divine that goes forth from the Lord is the good of love and the truth of faith, the angels are angels and are heaven in the measure in which they receive good and truth from the Lord.
+ - All religion relates to life, and the life of religion is to do good.
+ - The quality of the Lord’s church on earth, cannot be seen by any man, so long as he lives in the world, still less how the church in process of time has turned aside from good to evil.
+ - One’s distance from Heaven is in proportion to the measure of one’s self-love.
+ - Charity is like warmth in springtime or summer that causes grass, plants, and trees to grow. Without charity, or spiritual warmth, nothing grows.
+ - Anyone can see that intending and not acting when we can is not really intending, and loving and not doing good when we can is not really loving.
+ - To have dominion by religion, is to have dominion over men’s souls, thus over their very spiritual life, and to use the Divine things, which are in their religion, as the means.
+ - This Divine truth flows into heaven from the Lord from His Divine love.
+ - The angels taken collectively are called heaven, for they constitute heaven; and yet that which makes heaven in general and in particular is the Divine that goes forth from the Lord and flows into the angels and is received by them.
+ - This I can declare: things that are in heaven are more real than things that are in the world.
+ - Goodness shapes our will, and truth shapes our understanding.
+ - The act of exploring what the men are, and moreover the separation of the good from the evil, is visitation; and the good are then removed, and the evil are left behind.
+ - Destruction was effected after visitation, for visitation always precedes.
+ - First of all it must be known who the God of heaven is, since upon that all the other things depend.
+ - So far as the Angels are recipients of that spiritual heat and light they are loves and wisdoms, not loves and wisdoms for themselves, but from the Lord.
+ - Man knows that there is love, but he does not know what love is.
+ - Angelic happiness is in service, from service, and according to service.
+ - The church of the Lord is spread over all the globe, and is thus universal; and all those are in it who have lived in the good of charity in accordance with their religion...
+ - Justice is following the divine design in all that one does, and bringing back into the divine design things that have fallen away from that design. Justice is the divine design itself.
+ - Charity is to will and do what is just and right in every transaction.
+ - The end of creation is that all things may return to the Creator and be united with Him.
+ - What is true is true, and what is false is false...
+ - Seen in its own right, a loving person’s inner spirit is an angel of heaven, and while we are living in the body we are also in the company of angels, even though we are not aware of it; and once we are released from the body we join them.
+ - The Lord casts no one down in Hell, but the spirit casts himself hither.
+ - For in every particular of the Word there is an internal sense which treats of things spiritual and heavenly, not of things natural and worldly, such as are treated of in the sense of the letter.
+ - In heaven there are two distinct loves, love to the Lord and love towards the neighbor, in the inmost or third heaven love to the Lord, in the second or middle heaven love towards the neighbor.
+ - We all have spirits present with us who are feeling the way we are.
+ - The nature of heaven is to provide a place there for all who lead good lives, no matter what their religion may be.
+ - What a man thinks in his spirit in the world, that he does after his departure from the world when he becomes a spirit.
+ - All our longings for what is loving and true reach out into heaven. They put us in touch with angels who are feeling the same way and unite us with them.
+ - A heavenly society is a harmony of many.
+ - Man knows that love is, but not what it is.
+ - The more one is absorbed in so-called philosophy, the greater one’s delusion and blindness.
+ - Angels can recognize the nature of our unique essence on the basis of nothing more than a brief conversation with us. From hearing the tone of our voice angels sense what we love; and from hearing what we say, angels sense our level of understanding.
+ - A person who knows all that is good and all that is true – as much as can be known – but does not resist evils, knows nothing.
+ - Man is so created that as to his internal he cannot die; for he is capable of believing in God, and thus of being conjoined to God by faith and love, and to be conjoined to God is to live to eternity.
+ - We are, because God is.
+ - I am well aware that many will say that no one can possibly speak with spirits and angels so long as he lives in the body; and many will say that it is all fancy, others that I relate such things in order to gain credence, and others will make other objections.
+ - Heaven is such that all who have lived well, of whatever religion, have a place there.
+ - For the judgment was accomplished not only upon all the men of the Christian church, but also upon all who are called Mohammedans, and, moreover, upon all the Gentiles in the whole world.
+ - So far any one shuns evils, so far as he does good.
+ - In the spiritual body moreover, man appears such as he is with respect to love and faith, for everyone in the spiritual world is the effigy of his own love, not only as to the face and the body, but also as to the speech and the actions.
+ - Times of happiness, bliss, and sheer delight intensify as the higher levels of our minds are opened within us One our life on earth is over, these levels keep rising forever.
+ - Two consorts in heaven are not two, but one angel.
+ - Every man is received in heaven who receives heaven in himself while in the world, and he is excluded who does not.
+ - The activity of love and faith is what makes heaven.
+ - For the spiritual sense of the Word treats everywhere of the spiritual world, that is, of the state of the church in the heavens, as well as in the earth; hence the Word is spiritual and Divine.
+ - Faith is knowing and thinking truths. Charity is willing and doing them.
+ - That all who have ever been born men from the beginning of creation, and are deceased, are either in heaven or in hell, follows from those things which have been said and shown in the preceding article, namely, that Heaven and Hell are from the human race.
+
+99 quotes

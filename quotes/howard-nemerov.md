@@ -1,0 +1,45 @@
+ - Write what you know. That should leave you with a lot of free time.
+ - A teacher is a person who never says anything once.
+ - The only way out is the way through, just as you cannot escape death except by dying. Being unable to write, you must examine in writing this being unable, which becomes for the present -henceforth?- the subject to which you are condemned.
+ - I would talk in iambic pentameter if it were easier.
+ - I think there was a revolution in poetry, associated chiefly with Eliot and Pound; but maybe it is of the nature of revolutions or of the nature of history that their innovations should later come to look trivial or indistinguishable from technical tricks.
+ - I do insist on making what I hope is sense so there’s always a coherent narrative or argument that the reader can follow.
+ - History is where tensions were.
+ - Why are stamps adorned with kings and presidents? That we may lick their hinder parts and thump their heads.
+ - I am not at all clear what free verse is anymore. That’s one of the things you learn not to know.
+ - Children, to be illustrious is sad.
+ - Nothing in the universe can travel at the speed of light, they say, forgetful of the shadow’s speed.
+ - The secrets of success are a good wife and a steady job. My wife told me.
+ - The nice thing about the Bible is it doesn’t give you too many facts. Two an a half lines and it tells you the whole story and that leaves you a great deal of freedom to elaborate on how it might have happened.
+ - Absolute power corrupts absolutely; and if you surrender your personal responsibility to a government which promises to take care of you, they will only take care of themselves.
+ - Till I, high in the tower of my time Among familiar ruins, began to cry For accident, sickness, justice, war and crime, Because all died, because I had to die. The snow fell, the trees stood, the promise kept, And a child I slept.
+ - A lot happens by accident in poetry.
+ - Short stories amount for the most part to parlour tricks, party favours with built-in snappers, gadgets for including recognition and reversals.
+ - Robert Frost had always said you mustn’t think of the last line first, or it’s only a fake poem, not a real one. I’m inclined to agree.
+ - Obvious enough that generalities work to protect the mind from the great outdoors; is it possible that this was in fact their first purpose?
+ - The spirit world doesn’t admit to communicating with me, so it’s fairly even.
+ - History is one of those marvelous and necessary illusions we have to deal with. It’s one of the ways of dealing with our world with impossible generalities which we couldn’t live without.
+ - Writing is like the relationship with your bowels. First you can, then you can’t. Finally, you must. Only then should you reach for the paper.
+ - Language is remarkable, except under the extreme constraints of mathematics and logic, it never can talk only about what it’s supposed to talk about but is always spreading around.
+ - I sometimes talk about the making of a poem within the poem.
+ - For a Jewish Puritan of the middle class, the novel is serious, the novel is work, the novel is conscientious application why, the novel is practically the retail business all over again.
+ - I’ve never read a political poem that’s accomplished anything. Poetry makes things happen, but rarely what the poet wants.
+ - It may be said that poems are in one way like icebergs: only about a third of their bulk appears above the surface of the page.
+ - I’ve thought of the last line of some poems for years and tried them out, It wouldn’t work because the last line was much too beautiful for the poem.
+ - I like all my children, even the squat and ugly ones.
+ - When you write it doesn’t occur to you that somebody could think different from what you do.
+ - When Robert Frost was alive, I was known as the other new England poet, which is to be barely known at all.
+ - When modern writers gave up telling stories, they gave up the greatest thing we had.
+ - I think there’s one thing which distinguishes our art – we don’t consider. We don’t think. We write a little verse because it comes to us.
+ - Mostly the thought and the verse come inseparably. In my poem Poetics, it’s as close as I come to telling how I do it.
+ - Once in awhile you have a thought, and you rhyme it.
+ - I liked the kid who wrote me that he had to do a term paper on a modern poet and he was doing me because, though they say you have to read poems twice, he found he could handle mine in one try.
+ - Shakespeare tells the same stories over and over in so many guises that it takes a long time before you notice.
+ - The historian is terribly responsible to what he can discern are the facts of the case, but he’s nothing if he doesn’t make out a case.
+ - I never abandoned either forms or freedom. I imagine that most of what could be called free verse is in my first book. I got through that fairly early.
+ - I have a plot, but not much happens.
+ - Occasionally a student writer comes up with something really beautiful and moving, and you won’t know for years if it was an accident or the first burst of something wonderful.
+ - That so much of our experience, or the stereotype which passes for it should be dealt with by means of the short story is perhaps a symptom not unnoticeable elsewhere in the public domain of an unlovely cynicism about human character.
+ - A chronicle is very different from history proper.
+
+43 quotes

@@ -1,0 +1,21 @@
+ - You may not be able to change the world, but at least you can embarrass the guilty.
+ - Society created the prison in its own image; will history, with its penchant for paradox, reverse those roles?
+ - Objectivity? I always have an objective.
+ - I discovered that Human Nature was not, as I had always supposed, a fixed and unalterable entity, that wars are not caused by a natural urge in men to fight, that ownership of land and factories is not necessarily the natural reward of greater wisdom and energy.
+ - O death, where is thy sting? O grave, where is thy victory? Where, indeed. Many a badly stung survivor, faced with the aftermath of some relative’s funeral, has ruefully concluded that the victory has been won hands down by a funeral establishment – in disastrously unequal battle.
+ - The character and mentality of the keepers may be of more importance in understanding prisons than the character and mentality of the kept.
+ - Gracious dying is a huge, macabre and expensive joke on the American public.
+ - Knowing few children of my age with whom to compare notes, I envied the children of literature to whom interesting things were always happening...
+ - Prison walls are meant not only to keep convicts in, but to keep the would-be investigator out.
+ - Things on the whole are faster in America; people don’t stand for election, they run for office. If a person says he’s sick, it doesn’t mean regurgitating, it means ill. Mad means angry, not insane. Don’t ask for the left-luggage; it’s called a checkroom.
+ - Now there is a society where the funeral industry got completely out of control.
+ - Growing up in the English countryside seemed an interminable process. Freezing winter gave way to frosty spring, which in turn merged into chilly summer-but nothing ever, ever happened.
+ - It is somehow reassuring to discover that the word travel is derived from travail, denoting the pains of childbirth.
+ - Picking other people’s brains is an art worth cultivating.
+ - In childbirth, as in other human endeavors, fashions start with the rich, are then adopted by the aspirant middle class with an assist from the ever-watchful media, and may or may not eventually filter down to the poor.
+ - When is conduct a crime, and when is a crime not a crime? When “Somebody Up There” – a monarch, a dictator, a Pope, a legislator – so decrees.
+ - A thirteen-year-old is a kaleidoscope of different personalities, if not in most ways a mere figment of her own imagination. At that age, what and who you are depends largely on what book you happen to be reading at the moment.
+ - I have nothing against undertakers personally. It’s just that I wouldn’t want one to bury my sister.
+ - Enemies are, to me, as important as friends in my life, and when they die I mourn their passing.
+
+19 quotes

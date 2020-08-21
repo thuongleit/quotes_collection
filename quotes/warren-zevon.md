@@ -1,0 +1,69 @@
+ - I’ll sleep when I’m dead.
+ - Enjoy every sandwich.
+ - We buy books because we believe we’re buying the time to read them.
+ - Send lawyers, guns, and money. Dad, get me out of this.
+ - I saw a Werewolf with a Chinese menu in his hand.
+ - Maybe you simply criticized someone you hardly knew. You ruined part of their life. For them, part of your life, too.
+ - There’s nothing romantic, nothing grand, nothing heroic, nothing brave, nothing like that about drinking. It’s a real coward’s death.
+ - Little old lady got mutilated late last night, werewolves of London, again.
+ - Speaking as one who has abused privilege a long time, I tell you, it’s great to be alive.
+ - I write each song individually and each one calls for individual musicians, You sit around and wonder who can we get to play a Neil Young solo, and then you realize there’s a good chance you can get Neil himself.
+ - LeRoy says there’s something you should know, not everybody has a place to go. And home is just a place to hang your head, and dream of things to do in Denver when you’re dead.
+ - I like wherever I am. That’s my big secret.
+ - It’s hard to find a girl with a heart of gold, when you’re living in a four letter world.
+ - And if California slides into the ocean, as the mystics and statistics say it will, I predict this hotel will be standing until I’ve paid my bill.
+ - I got to be Jim Morrison a lot longer than he did.
+ - We made mad love shadow love random love and abandoned love. Accidentally like a martyr. The hurt gets worse, and the heart gets harder.
+ - Your face looked like something Death brought with him in his suitcase.
+ - I’m drinking here break motor oil and Bombay gin, I’ll sleep when I’m dead.
+ - But there’s a thin line between songwriting and arranging.
+ - I’m very well acquainted with the seven deadly sins, I keep a busy schedule trying to fit them in.
+ - The hurt gets worse as the heart grows harder.
+ - To me, the message of my songs, of all songs, is “enjoy life.” My message as a person who evidently doens’t have much more planned is the same. It’s the only message I ever thought art had any business having.
+ - You’re suppose to sit on your ass and nod at stupid things.
+ - I might have made a tactical error not going to a physician for 20 years. It was one of those phobias that didn’t pay off.
+ - I’d like to go back to Paris someday and visit the Lourve museum, get a good running start, and hurl myself at the wall.
+ - My father was a boxer, though. So, I have a particular interest in Ray Mancini, I think.
+ - Glenn Gould was my hero. Glenn Gould was my idol. I loved him.
+ - If you won’t leave me, I’ll find someone who will.
+ - I wrote my songs despite the fact that I was a drunk, not because of it.
+ - Piano is like drudgery.
+ - I’ve been to Paris. And it ain’t that pretty at all.
+ - I don’t get depressed and I don’t get bored.
+ - Sickness, doctors, that scares me, not violence – helplessness. That’s why I turn to violent stories.
+ - All I can say is what I’ve always said: If you break your leg, stop thinking about dancing and start decorating the cast.
+ - Dylan doesn’t have to make Blonde On Blonde every time.
+ - I went to law school and took a law degree, and counseled all my clients to plead insanity.
+ - My first album is like a terrible John Hammond album, with drums.
+ - Everywhere I go, I have my little Steinberger, and I like it very well.
+ - I write songs about things that I’m simultaneously trying not to think about.
+ - Regrets are so far from reality.
+ - I’m not a big jazz fan.
+ - I have no guitar technique.
+ - I loved Hendrix. I mean, really, really loved him. As if he were one of the great classical composers. And he was. That’s how I saw him.
+ - Recording at home enables one to eliminate the demo stage, and the presentation stage in the studio, too.
+ - Duncan Aldrich has been my partner in most recording projects, and touring projects, for the past decade.
+ - I can saw a woman in two – but you won’t want to look in the box when I’m through.
+ - I missed jazz, kind of. And by the time I came to it in life, it was too intimidating to enjoy thoroughly.
+ - That’s my only active wish. I think if I sang like Don Henley, this would be a lot more agreeable business.
+ - And I think it’s safe to say that the single very impressive figure to me was Merle Haggard.
+ - I don’t like piano solos.
+ - Yeah, I don’t like, um, I’m not interested in rock ‘n’ roll piano. I find it a little grating.
+ - You had to go to a different part of town from where I was to get Muddy Waters singles. I had him on singles.
+ - I don’t learn so good, no matter how good the teacher is.
+ - My memory is not even what most peoples is, much less what it oughta be for a discussion like this.
+ - Can’t you just imagine digging up the King, begging him to sing about those heavenly mansions Jesus mentioned.
+ - I mean, I haven’t been completely lacking in some enjoyment of Chuck Berry or Buddy Holly. But I just didn’t pay attention to that period of music, obviously.
+ - I wish I sang better.
+ - Here’s a story that I really want to tell about Bo Diddley at the OK corral.
+ - When I was young, times were hard. When I got older it was worse.
+ - Well, I don’t think it ever did, but in the early ’60s I got interested in folk music.
+ - The primary one being, like I said, I don’t like rock ‘n’ roll piano.
+ - I played a lot of real normal, straight sessions.
+ - At least I’ve had one foot in a very normal kind of life.
+ - Mutineer is the first album of mine without a demo stage.
+ - I had a good guitar, and I was a young, young kid.
+ - But I can’t say that I didn’t like John Hammond’s performances often better than the originals.
+ - Well, I was interested in playing the piano from as early as I can remember.
+
+67 quotes

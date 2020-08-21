@@ -1,0 +1,194 @@
+ - Sometimes bad things have to happen before good things can.
+ - Your enemy’s enemy is your friend.
+ - You’re mine, Angel. And I’m yours. Nothing can change that.
+ - If I lose you, I lose everything.
+ - My life sucks when I’m only half-aware of it. If I quit drinking and saw what it’s really like, I’d probably jump off a bridge.
+ - I wondered why life had to suck so hard sometimes.
+ - I’m yours, if you’ll have me.
+ - Scared, Angel?
+ - I want to wake up with you every morning and fall asleep beside you each night.
+ - I love you more than I think I should.
+ - Anything was better than nothing. Half-full was better than empty. Ignorance was the lowest form of humiliation and suffering.
+ - I’m not going to kill you, Nora. I don’t kill people who are important to me. And you top the list.
+ - Do you sleep naked?
+ - Keep in mind that people change, but the past doesn’t.
+ - Humans are vulnerable, because they’re capable of being hurt.
+ - The problem with human attraction is not knowing if it will be returned.
+ - If I could make this go away, I would. If I could stand in your place, I wouldn’t hesitate. But I’m left with one choice, and that’s to stand by your side through the end. I won’t waver, Angel, I can promise you that. -Patch to Nora.
+ - All this time I’ve hated myself for it. I thought I’d given it up for nothing. But if I hadn’t fallen, I wouldn’t have met you.
+ - Killer skirt, deadly legs.
+ - Being nice? He’s being horny.
+ - I take my job seriously, which means I’m going to need to get acquainted with the subject matter on a personal level.
+ - Patch wasn’t the kind of guy mothers smiled on. He was the kind of guy they changed the house locks for.
+ - Thinking. A process by which I use my brain to make a rational decision.
+ - I couldn’t escape him, now or ever. He’d always be there, consuming my every thought, my heart locked in his hands. I was drawn to him by forces I couldn’t control, let alone escape.
+ - Me Jev, you Nora.
+ - Why did everyone think I needed a new boyfriend? I didn’t need a new boyfriend. I’d had enough of boyfriends to last a lifetime. The only thing a boyfriend was good for was a shattered heart.
+ - He felt warm and familiar. He felt solid and safe. I wanted to cling to his shirt, bury my face into the warm curve of his neck, and never let go.
+ - It was a smile that spelled trouble. With a promise.
+ - Gosh, it was nice talking to you, but I’ve got a lot of things I’d rather be doing. Like sticking my hand in the garbage disposal.
+ - There’s a disconnect between my mind and my heart, but I feel the truth. They say when people lose their vision, their hearing comes sharper. I’ve lost part of my memory but maybe my intuition is stronger.
+ - He’s got the whole bad-boy-in-need-of-redemption thing going on, but the catch is, most bad boys don’t want redemption. They like being bad. They like the power they get from striking fear and panic into the hearts of mothers everywhere.
+ - Your biggest dream? – Nora Grey Kiss you. – Patch Cipriano.
+ - If I had known things would turn out this way, I would have trained harder. I would have learned to take care of myself. But I guess that’s the point, isn’t it? You never know what you’re going to have to face, so you’d better be prepared.
+ - They say that when you’re about to die, your life flashes before your eyes. They never tell you that when you watch someone you once loved dying, hovering between this life and the next, it’s twice as painful, because you’re reliving two lives that traveled one road together.
+ - Kiss me in a way I’ll never forget. Kiss me in a way that will stay with me until see you again.
+ - Stay with me tonight. Let me hold you even if that’s all it is. Let me keep you safe.
+ - I missed you, Angel. Not one day went by that I didn’t feel you missing from my life. You haunted me to the point that I began to believe Hank had gone back on his oath and killed you. I couldn’t escape you and I didn’t want to. You tortured me, but it was better than losing you.
+ - I undress to impress – Patch.
+ - One more secret smile. One more shared laugh. One more electric kiss. Finding him was like finding someone I didn’t know I was searching for.
+ - Hey now, none of that. You know I don’t have one evil bone in my body. Only two hundred and six of them?
+ - Being with you never felt wrong. It’s the one thing I did right. You’re the one thing I did right.
+ - Don’t blame me. Tell your mom to move closer. Tell her there’s this new club called civilization and you guys should join.
+ - For the first time all day I felt safe. Except that Patch had cornered me in a dark tunnel and was possibly stalking me. Maybe not so safe.
+ - I would lay down everything I possess, even my soul, for you. If that isn’t love, it’s the best I have.
+ - But if I hadn’t fallen, I wouldn’t have met you.
+ - Whoa, who peed in your Cheerios?
+ - Everything had come into sharp focus : his smooth words, his black, glinting eyes, his broad experience with lies, seduction, women. I’d fallen in love with the devil.
+ - When it comes to reflexes, I’m like a cat. I’m Catwoman. I’m invulnerable. The only reason he got a piece of me is because of the rain. Cats don’t like water. It impairs us. It’s our kryptonite.
+ - My history is long, and not much of it is good. I can’t erase it, but I’m determined not to make another mistake. Not when the stakes are high, not when it comes to you.
+ - I loved you long before you loved me. It’s the only thing I have you beat at, and I’ll bring it up every chance I get.
+ - Sure thing, Gumdrop. -Scott.
+ - As in, I wouldn’t know normal if it marched up and poked me in the eye.
+ - This was it. Together. Forever. As we left it all behind, the sun warmed my back, lighting the way before us. I knew of no better omen.
+ - If I need romance, that’s what Netflix is for.
+ - I gave up something I wanted for something I need. And I need you, Angel. More than I think you’ll ever know.
+ - Call me Patch. I mean it. Call me.
+ - Busted. I’m a monster. Jev is my deceptively harmless-and shockingly handsome-alter ego.
+ - Rollover minutes don’t work with curfews.
+ - I shouldn’t have been looking at lingerie. It naturally made me think about sexy things. Like kissing. Like Patch.
+ - I don’t like the idea of dragging you into something that could get messy fast. If you need one more reason, I love you. This is uncharted territory for me, but I need to know that at the end of the night, I have you to come home to.
+ - In the end, the only thing between us was silence.
+ - I want to do a lot of things to your body, but that’s not one of them.
+ - Patch: You’re staying here, Angel. Nora: You’re taking this one alone? Patch: First, Hank can’t see us together. Second, I don’t like the idea of dragging you into something that could get messy fast. If you need one more reason, I love you.
+ - This ring belongs to the black hand. He killed your dad.
+ - His words filled my heart to the brim. I loved him in a way I’d never be able to express in words. He was part of me. And I was part of him. Tethered together for the rest of eternity.
+ - Light had a way of keeping the monsters of my imagination at bay.
+ - If you need one more reason, I love you.
+ - If I’d wanted you dead five minutes ago, you’d have died five minutes ago.
+ - Arrogance can be deadly.
+ - I stared at the phone in disbelief, then ripped a clean sheet of paper from my notebook. I scribbled ? Jerk ? on the first line. On the line beneath it I added, ? Smokes cigars. Will die of lung cancer. Hopefully soon.
+ - What little light was left inside me flickered out.
+ - I saw you, and I wanted to be close to you. I wanted you to let me in. I wanted to know you in a way no one else did. I wanted you, all of you.
+ - I’m a private contractor now. I choose my clients, not the other way around.
+ - I tended to be more a romantic than a realist, and chose blind faith over cold logic.
+ - What good is a body if I can’t have you?
+ - Patch stood over me, and a drop of rain slid from his hair, landing like ice on my collarbone. I felt it slide along my skin, disappearing beneath the neckline of my shirt. His eyes followed the raindrop, and I began to quiver on the inside.
+ - Nora: I have questions. Patch: I should have known you’ve only been keeping me around for answers. Nora: Well, that and your kisses. Anyone ever tell you you’re an incredible kisser?
+ - But if the choice I have to make comes down to you or me, I choose you. I always have. All my love, Patch.
+ - I’d fallen in love with the devil.
+ - I cared about us. But the cold hard truth was, nothing I said or did could realign the stars.
+ - Nothing makes me happy quite like a boatload of freshly fried fast food, smothered in good old MSG.
+ - Maybe Scotty the Potty turned into Scotty the Hottie. Have you thought about that?
+ - They said the moment I fell in love with you was the moment you’d leave.
+ - Say ‘provoking’ again. Your mouth looks provocative when you do.
+ - The sensible part of me wanted to dissect my emotions, overthinking and overcomplicating my reaction to Jev.
+ - I think I’m more of a guardian angel girl.
+ - Violence doesn’t equal strength.
+ - I forced a smile. It was the one I’d been practicing all morning. It felt tight at the edges and brittle everywhere in between.
+ - I couldn’t stand here, hanging on, when the very thing I held disappeared more with each passing day.
+ - I’m doing boy detox. Like a diet, only for my emotional health.
+ - The higher up, the harder the fall.
+ - I needed him like I’d never needed anyone.
+ - A girl could lather up in soap like that.
+ - It was bad enough when I thought your ghost was haunting me; I don’t think I could handle the real thing.
+ - I felt his eyes devour me as I moved around the room. He assessed me head to toe without blinking, and a hot ache shivered through me. A kiss would’ve been less intimate.
+ - For someone who’s made it clear that her life is superior to every other student’s at this school, you sure make it a habit of pursuing every facet of our boring, worthless lives.
+ - Or, if you decide you want to sleep at my place, on opposite sides of my bedroom with a Do Not Cross line drawn down the middle, I’ll do it. I won’t like it, but I’ll do it.
+ - My first job entailed spending a summer working in a cornfield in Nebraska.
+ - I wanted to imprint his touch, his taste, even the scent of him so solidly inside me that no one could take them away from me.
+ - His finger flicked open a button on my cardigan-then two, three, four. It tumbled off my shoulders, leaving me in my camisole. He pushed up the hem, teasing and stroking his thumb across my stomach. My breath came in a sharp intake of air.
+ - The only thing a boyfriend was good for was a shattered heart.
+ - Are we going to have to teach you to fight, Angel?
+ - His muscles flexed under his clothes, holding me, leading me. Never letting me stray far.
+ - Did I really want to stay on this road longer, knowing it was only going to end in devastation?
+ - Strangely enough, it wasn’t Gabe who was haunting my thoughts, though. That job belonged to a pair of sinfully black eyes that had lost their edge when they studied me, turning as soft and sultry as silk.
+ - Based on past experience, I hope not.
+ - There’s nothing special about losing your virginity over a toilet.
+ - I’m not going anywhere near a motel with you.
+ - If I wanted easy, I’d chain myself in hell beside Rixon. The two of us could kick back and soak up the rays together.
+ - Think they have any bras in here that can get my babies to lie flat? They’re called sports bras and they have a nasty side effect called the uni-boob.
+ - I already know my size. I don’t need reminding.
+ - If you can’t feel then why did you kiss me? Because I can feel it here, in my heart.
+ - Patch is the last person you want to antagoonize. He doesn’t hold grudges because the people who cross him tend to disappear quickly.
+ - I don’t have ‘five’ you can borrow. My piggy bank is officially anorexic.
+ - I couldn’t picture myself with a boyfriend, but if I had to, I envisioned a nice normal guy who turned in his math homework on time and maybe even played rec baseball.
+ - He grinned. “Busted. I’m a monster. Jev is my deceptively harmless – and shockingly handsome – alter ego.” “And I’m on top of it,” she announced with witty triumph. “Is that a Freudian slip?” His bluntness caught her off guard. A self-conscious blush rose in her face.
+ - I should probably confess that ice cream is my favorite food, and I eat it every night. When I go grocery shopping, I try to buy a new flavor, rather than reverting back to a favorite flavor. I’m on a mission to taste every flavor of ice cream out there!
+ - A feeling of violation swayed inside me, making me feel as if Id been shoved off a high platform without warning. I was falling, and I feared the sensation far more than hitting bottom. There was no end; just a constantsense of gravity having its way with me.
+ - You want a blood relative to lead your army? Get Marcie. She likes ordering people around. She’ll be a natural.
+ - I personally believe Patch scared the pants off normal, and it took off running for the far side of the world.
+ - You think the two of us and a slummy motel make for a dangerous combination?
+ - Do I look like a summer fling?
+ - One more thing. I sold the mustang. Too conspicuous. Don’t get too excited, but I bought you a little something with the extra cash. I heard you’ve had your eye on a Volkswagen. The owner is dropping it by tomorrow. I paid for a full tank of gas, so make sure she delivers.
+ - The truth is, normal might take years. Normal might never happen. But it’s definitely not going to happen if I lounge around here watching soaps and avoiding life. I’m going to school today, end of story.
+ - Right now, holding you, I feel like we have a shot at beating all odds and making it together.
+ - When I watched Lifetime original movies, it took me a day or two to get over the idea that the cute boy next door is actually a serial killer.
+ - Patch’s eyes were slate black, darker than a million secrets stacked on top of each other. He dropped his gaze to the ring in his hand, turning it over slowly. “Swear you’ll never stop loving me,” I whispered. Ever so slightly, he nodded.
+ - After a long day, my favorite way to unwind is by going running. Not exactly the most relaxing activity, granted, but I always imagine I’m sweating out all the things weighing on my mind.
+ - Any happiness, no matter how brief, seemed better than the long, simmering torture of waking up day after day, knowing I could never have him.
+ - She shrieked. “Nora! What happened to the banister!” Good thing she hadn’t seen her bedroom yet.
+ - Anyone ever tell you you’re an incredible kisser?
+ - If you keep running from me, you’re never going to figure out what’s really going on.
+ - You never know what you’re going to have to face, so you’d better be prepared.
+ - The truth is scary, but knowing nothing is crippling.
+ - Her hair was strawberry blond, and she had the shape of a popsicle stick: turn her sideways and she practically disappeared.
+ - Right now, I had everything I could ask for. It wasn’t a long list, but it was a very satisfying one, starting with the love of my life back in my arms.
+ - He gave Marcie a spare to the Jeep – I should park this thing in the ocean, twenty feet under.
+ - It didn’t escape me that he couldn’t seem to stop finding reasons to touch me. Nor did I miss that I didn’t want him to stop.
+ - I could get you to smile like that, and without sales tax.
+ - I wrinkled my nose, trying to figure out what he smelled like. Not cigarettes. Something richer, fouler. Cigars.
+ - Because I thought I was in love. And when you think you’re in love, you are willing to stick it out and make it work until it is love.
+ - His smile was sexy and warned of trouble, but I’d made up my mind that not all trouble was bad.
+ - Girl, I’m going to show you the bear in hug.
+ - If we hooked up, he could write me ballads and stuff. You gotta admit, nothing’s sexier than a guy who writes music.
+ - Hank had left me his doomed army, and he’d left Marcie his inheritance. Unfair didn’t begin to cover it.
+ - With you, what you see is what you get. And I see cheap.
+ - A war was coming either way. Now all I had to do was choose my opponent.
+ - She likes you, she just doesn’t understand you.
+ - I want Scott to look at me the way Patch looks at you.
+ - Vee scowled at him. She is famous for that scowl. It’s a look that does everything but audibly hiss.
+ - How warm I feel. How icredibly alive and vibrant and heedless every last inch of me feels next to you.
+ - The trouble was, my feelings for Patch weren’t harmless.
+ - You find the wrong boy, you ask for trouble. You find the right boy, you find love.
+ - I had to lull Mom and Hank into believing I was in the right frame of mind to be taken into public. If I exited my bedroom foaming at the mouth and dressed in black LOVE SUCKS tee, my plan would never get off the ground.
+ - The more time I spent with him, the more I knew the feelings weren’t going away.
+ - And anyway, the first three letters in the word diet should tell you what I want it to do.
+ - Your mom isn’t going to let me step foot inside this place. I’ve seen the gun she keeps on the top shelf of the pantry.
+ - The Patch I knew didn’t run from anyone.
+ - We touched base at several strategic locations down our bodies, and it took all my willpower to break away.
+ - I looked to the window. Patch was gone, but a single black feather was pressed to the outer pane, held in place by last night’s rain. Or Angel Magic.
+ - And you would have lost. We were surrounded. He threatened your life, and he would have made good on that threat. He had you, and that meant he had me, too.
+ - Does this have anything to do with the unit we’re studying? Because I can’t find anything about desired characteristics of a mate anywhere in our text.
+ - Nora: What are you planning? Patch: I wouldn’t call this planning. I’d call this throwing a Hail Mary with seconds left on the clock.
+ - Just because I’ve gone and snagged myself a hot boyfriend doesn’t mean I’m going to leave my bestfriend high and dry.
+ - Patch’s eyes were black orbs. Taking in everything and giving away nothing.
+ - Inwardly, I gouged my eyes out.
+ - Don’t panic, I thought. But already my breathing was faster, shallower. “You mean you can feel happy or sad or – ” “Desire.” A barely-there smile.
+ - What was up with class today? It was watered-down porn. He practically had you and Patch on top of your lab table, horizontal, minus your clothes, doing the Big Deed.
+ - His were the kind of eyes that held secrets. The kind that lied without flinching. The kind that once you looked into them, it was hard to break away.
+ - You’re scared of what you can’t control.
+ - We all know you’re beautiful, Scott.
+ - She cleans a toilet inside and out under a minute. More like terrifying.
+ - Vee never needed a reason to do something stupid. Sad thing was, most of the time I didn’t either.
+ - Patch was in my life for a reason. I needed him. We were two halves of the same whole.
+ - Love the hair. Love when it’s out of control. It’s like seeing a side of you that needs to come out more often.
+ - Vee lowered her lashes and smiled wickedly. “This class isn’t going to teach me anything I don’t already know.” “Vee? As in virgin?” “Not so loud.” She winked just as the bell rang, sending us both to our seats, which were side by side at our shared table.
+ - What I really wanted was the impossible.
+ - You laugh, but you haven’t seen me in a tux. Or maybe you don’t like broad-shouldered guys with muscular chest and washboard abs?
+ - I’m not leaving until you tell me why you followed me. I know I’m a fascinating guy, but this is starting to feel like an unhealthy obsession.
+ - I couldn’t look at you and breath at the same time.
+ - Boys everywhere take note: That was a kiss.
+ - Vee: And I’m not going to let you sit at home all afternoon with your sour face on. Nora: I don’t have a sour face. Vee: Yes, you do. And you’re wearing it right now. Nora: This is my annoyed face. You woke me up at six in the morning!
+ - Chauncey seethed at the outrageous insult. “And your father?” he demanded, extending the sword. He didn’t yet know all his vassals, but he was learning. He would brand the family name of this boy to memory.
+ - Nora: This is crazy. Patch: I’m crazy. About you.
+ - My arms hurt from how tightly Patch held me. “Now that’s what I call a scream,” he said, grinning at me.
+ - Hate to disappoint, but no feathers. I came to Earth stripped naked.
+ - You picked the seats you did for a reason, right? Familiarity. Too bad the best sleuths avoid familiarity. It dulls the investigative instinct.
+ - Angel.
+ - I was tired of admiring your legs from a distance.
+ - I take that back. If Hank wants to shoot Scott, he has my blessing.
+ - I was just about to ask you the same thing. I know you followed me. Don’t look so suprised. It’s called a rearview mirror. Are you stalking me for a specific reason?
+ - I believe in destiny Angel. I believe every choice I’ve made has brought me closer to you. I looked for you for a very long time. I may have fallen from heaven, but I fell for you.
+
+192 quotes

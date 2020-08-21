@@ -1,0 +1,54 @@
+ - When something looks too good to be true, it usually is.
+ - I love the silhouettes of the ’50s that were feminine and womanly without being too revealing. I’ve always gravitated towards that kind of sense of style and fashion.
+ - I know that I am my worst critic. I know that if I can walk away from the set at the end of the day and feel that I did the best job I could and feel proud, that’s what will satisfy me.
+ - I can be naked with the lights on.
+ - Being yourself is one of the hardest thing because it’s scary you always wonder whether you’ll be accepted for who you really are.
+ - Everyone messes up in relationships and has peaks and valleys in their personal lives. When I realized it wasn’t the end of the world and I would keep on standing, I knew it was going to be OK.
+ - She’s lonely and wounded and very vulnerable and it really is a story about people at the heart of it all.
+ - I went to school on the Internet. I was not a cheerleader.
+ - I feel like, as an adult, a lot of how you feel about yourself and what your inner workings are can be revealed in a sexual situation.
+ - I have a dog as well, and I’m not a vegan or anything. But I needlepoint and I have a cat, so it’s not boding well.
+ - I always wanted an older brother. That was my thing. My mom would be like, “What do you want for your birthday?” I’d be like, “I want an older brother.”
+ - Guys usually like a very natural look. I think it’s bad idea to wear a strong lip on a first date – or for the first few dates. I’m always too nervous he’ll kiss it off – if I’m lucky enough to get a kiss! I also think soft, sexy hair is important.
+ - Life can be very funny and very tragic. Everyone has stuff that they’ve been through that makes up whatever fire it is that they have in their gut, but nobody goes around wearing that as their outmost exterior, all the time.
+ - It’s the best feeling when you wake up and it’s warm and cozy, and you don’t have to go to work.
+ - My favorite episode is where the guy has a relationship with his car. An intimate and sexual and emotional relationship with his car.
+ - When a really cute dog shows up on your doorstep, you can’t be like, Yeah, no. You’re like, Oh, yay, puppy!
+ - I can put my legs behind my head and sing ‘Happy Birthday.’ Because that’s something that me and my friends used to do when we were in gymnastics class as kids, and I can still do it. I was doing it since I was 8 and 9. They used to call me Gumby. Very bendy.
+ - A lot of people would wear anger, depression or aggravation as their first layer, and they don’t. They very much understand what’s really important in life.
+ - I try to keep myself as sane and as grounded as possible by surrounding myself with normal people, such as all the friends that I’ve had from when I was little.
+ - I love Judy Garland, I love Doris Day, I love Marilyn Monroe. I love everything that comes from that era. The music is just beautiful and powerful – and simple. That’s what makes it so great.
+ - I love to create and I love to be challenged and I love to do things that are scary, so I think I would probably think about jumping off a bridge if somebody told me that’s going to make that shot real great. I’d be like, “Okay, here we go, let’s do it.” Like, yeah.
+ - That’s my dream to be old enough and mature enough that I won’t be considered an “old lady” if I have a house with a barn. Because I already do needlepoint.
+ - We like it to be realistic but not real, but I wear something I call the ‘vag pad,’ it’s kind of a little triangular panty liner that you stick to you...
+ - As an actor, and especially as a young woman, there’s so much pressure to look good all the time and it really detracts from what our job really is about, which is portraying a different person.
+ - I love music. I’d love to go on Broadway and do a musical there. I just like to kind of go with whatever’s inspiring at the moment, and kind of follow that as far as I can.
+ - It wasn’t my intention in going after this part but I suppose now I do. The adult roles are a lot meatier – you’re not always just the daughter or the girlfriend or whatever.
+ - When I was in school, I got there on the first day and everyone had long, blonde, straight hair, and I had short, dark, curly hair. I immediately felt I didn’t fit in and started growing my hair. But I’ve learned that I’m only happy when I am truly me and feel comfortable and confident in myself.
+ - It is very grand and sumptuous and awesome to look at but it was really about the characters for me.
+ - I’ve never been a person who focused on trends. I’m influenced and inspired by trends, but I don’t always subscribe to them.
+ - I had classical training but I don’t consider myself an opera singer though.
+ - Sometimes I vocalize in the car. It’s a good way to multitask. Although fellow drivers on the road think I’m craaaazy.
+ - I hope that I’m sexy in a different kind of way than I think that a lot of girls are right now. I think a lot of girls in the public eye, especially musical artists, are just kind of objectified a little bit and wearing super-skimpy outfits and leaving nothing to the imagination.
+ - I’ve never had siblings, I didn’t grow up in a big family; it was just me and my single mom. And hectic family dysfunction was actually something that I craved.
+ - Here we spent so much time together – eight months of our lives almost – and it was so great because we all got so close and that really made us not afraid to improve with each other.
+ - I’m an actor, so I love to be degraded!
+ - When I read the scripts, I’m always so excited to see what’s going to happen because it’s unpredictable.
+ - I think of Gisele Bundchen to get myself on the treadmill.
+ - Being on Twitter, live tweeting some of the episodes, I get direct feedback from people.
+ - I started singing at the Met when I was seven, and the competition was so fierce that it really prepared me.
+ - As an actor, you always look for things that will stretch you and that are different than you are, so that you can surprise yourself, and you want to surround yourself with the highest caliber of people that will make you look good.
+ - I’ve learned to take jobs as an actress that is meaningful to me because I’ve never taken a job for the money.
+ - I’m a very rational person but I pray every day.
+ - I always think I could do better. I always think that something could be more perfect, but I think that that’s just within my nature. I think I want to please a director, I want to give my everything and find every which way I could have burrowed further into a character.
+ - I just really gravitate towards a nostalgia for a time when things were simpler. When beauty was more classical and glamorous.
+ - Never get your girlfriend a pet that she didn’t know she was getting.
+ - I don’t really live my life in the media spotlight. People don’t know that much really about me or what I think.
+ - I think we’re all a lot more like our parents than we want to admit.
+ - I feel like I’ve come out of this grown up, maybe because I live through the character vicariously and she grows up so much during the course of this story.
+ - I loved getting to investigate the grey areas of morality.
+ - I think acting is a job where you’re always unemployed. You’re always looking for the next job, so I assume that it’s like other jobs that are with that same kind of setup.
+ - I’ve never had my brows done – I tweeze them myself. I used to watch my mom pluck her brows, that’s how I learned.
+ - I suppose that it doesn’t matter whether a song is written or sung by a man or a woman. If the sentiment is there, it captures the audience.
+
+52 quotes

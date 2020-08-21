@@ -1,0 +1,383 @@
+ - Turn up for work. Discipline allows creative freedom. No discipline equals no freedom.
+ - In this life, you have to be your own hero.
+ - Happy Valentines Day to those who have found love, in whatever shape or form, and to those who are still hunting, don’t give up. If you feel bad, send yourself a card. You must be worth it.
+ - Books and doors are the same thing. You open them, and you go through into another world.
+ - Book collecting is an obsession, an occupation, a disease, an addiction, a fascination, an absurdity, a fate. It is not a hobby. Those who do it must do it.
+ - Tell me a story, Pew. What kind of story, child? A story with a happy ending. There’s no such thing in all the world. As a happy ending? As an ending.
+ - This hole in my heart is in the shape of you. No one else can fit it. Why would I want them to?
+ - I don’t know which is worse: to be wrongfully accused or mistakenly understood.
+ - Many waters cannot quench love, neither can floods drown it. What then kills love? Only this: Neglect.
+ - You play, you win, you play, you lose. You play. It’s the playing that’s irresistible. Dicing from one year to the next with the things you love, what you risk reveals what you value.
+ - Reading is a rendezvous with your soul.
+ - There is no discovery without risk and what you risk reveals what you value.
+ - Life is so simple when you’re just doing your job.
+ - Don’t regret your life, child, it will pass soon enough.
+ - When I look at my life I realise that the mistakes I have made, the things I really regret, were not errors of judgement but failures of feeling.
+ - Written on the body is a secret code only visible in certain lights; the accumulations of a lifetime gather there.
+ - The probability of separate worlds meeting is very small. The lure of it is immense. We send starships. We fall in love.
+ - Memory loss is one way of coping with damage.
+ - Trust me, I’m telling you stories.
+ - It is only habit and routine that makes the void look like purpose.
+ - Gambling is not a vice, it is an expression of our humanness. We gamble. Some do it at the gaming table, some do not. You play, you win, you play, you lose. You play.
+ - Happy ending are only a pause. There are three kinds of big endings: Revenge. Tragedy. Forgiveness. Revenge and Tragedy often happen together. Forgiveness redeems the past. Forgiveness unblocks the future.
+ - Books, for me, are a home. Books don’t make a home – they are one, in the sense that just as you do with a door, you open a book, and you go inside. Inside there is a different kind of time and a different kind of space.
+ - What should I do about the wild and the tame? The wild heart that wants to be free, and the tame heart that wants to come home.
+ - No emotion is the final one.
+ - I am a writer who happens to love women. I am not a lesbian who happens to write.
+ - It’s hard to remember that this day will never come again. That the time is now and the place is here and that there are no second chances at a single moment.
+ - In the space between chaos and shape there was another chance.
+ - Only the impossible is worth the effort.
+ - I knew it like destiny, and at the same time, I knew it as choice.
+ - The only selfish life is a timid one.
+ - What is it that you contain? The Dead. Time. Light patterns of millennia. The expanding universe opening in your gut. Are your twenty-three feet of intestines loaded with stars?
+ - In the heat of her hands I thought, This is the campfire that mocks the sun.
+ - When we let ourselves respond to poetry, to music, to pictures, we are clearing a space where new stories can root, in effect we are clearing a space for new stories about ourselves.
+ - I don’t want to eke out my life like a resource in short supply. The only selfish life is a timid one. To hold back, to withdraw, to keep the best in reserve, both overvalues the self, and undervalues what the self is.
+ - Why is the measure of love loss?
+ - I think now that being free is not being powerful or rich or well regarded or without obligation but being able to love. To love someone else enough to forget about yourself even for one moment is to be free.
+ - In therapy, the therapist acts as a container for what we daren’t let out, because it is so scary, or what lets itself out every so often, and lays waste to our lives.
+ - Everyone who tells a story tells it differently, just to remind us that everybody sees it differently.
+ - You never give away your heart; you lend it from time to time. If it were not so, how could we take it back without asking?
+ - The body shuts down when it has too much to bear; goes its own way quietly inside, waiting for a better time, leaving you numb and half alive.
+ - I don’t believe in happy endings.
+ - Love demands expression. It will not stay still, stay silent, be good, be modest, be seen and not heard, no. It will break out in tongues of praise, the high note that smashes the glass and spills the liquid.
+ - To be ill adjusted to a deranged world is not a breakdown.
+ - Trust your creativity.
+ - I have a theory that every time you make an important choice, the part of you left behind continues the other life you could have had.
+ - Darkness as well as light. Or do I mean darkness, another kind of light? Lucifer would say so, and I have a weakness for fallen angels.
+ - In that house, you will find my heart. You must break in, Henri, and get it back for me.? Was she mad? We had been talking figuratively. Her heart was in her body like mine. I tried to explain this to her, but she took my hand and put it against her chest. Feel for yourself.
+ - Sometimes you have to live in precarious and temporary places. Unsuitable places. Wrong places. Sometimes the safe place won’t help you.
+ - To me, these days will never end. I am always there, in that room with her, or if not I, the imprint of myself – my fossil-love.
+ - Life cannot be calculated. That’s the big mistake our civilization made. We never accepted that randomness is not a mistake in the equation – it is part of the equation.
+ - A curse on this game. How can you stick at a game when the rules keep on changing? I shall call myself Alice and play croquet with the flamingos. In Wonderland everyone cheats and love is Wonderland, isn’t it?
+ - Art saved me; it got me through my depression and self-loathing, back to a place of innocence.
+ - In a world where meaning is often absent or imposed, reading offers a dialogue with ourselves, with society, with history, and with the dead.
+ - Nothing can be forgotten. Nothing can be lost. The universe itself is one vast memory system. Look back and you will find the beginnings of the world.
+ - Love is the one thing stronger than desire and the only proper reason to resist temptation.
+ - We don’t go to Shakespeare to find out about life in Elizabethan England; we go to Shakespeare to find out about ourselves now.
+ - What I want does exist if I dare to find it...
+ - If there’s one thing I can’t stand it’s a hero without a cause. People like that just make trouble so that they can solve it.
+ - Our broken society is not born out of the triumph of the individual, but out of his effacement. He vanishes, she vanishes, ask them who they are and they will offer you a wallet or a child.
+ - She must find a boat and sail in it. No guarantee of shore. Only a conviction that what she wanted could exist, if she dared to find it.
+ - I would rather have regrets of excess than regrets of denial.
+ - Quest is at the heart of what I do-the holy grail, and the terror that you’ll never find it, seemed a perfect metaphor for life.
+ - Birth is a shipwreck, the mewling infant shored on unknown land.
+ - I think of myself in a continuum as a woman. Two hundred years ago, it would have been very difficult for me to write at all.
+ - You know every cell in our bodies is completely renewed every seven years, so how can we talk about being the same person? We’re absolutely not.
+ - When pieces of work speak to us in a way that feels as if they were made just for us, those become our private worlds that we return to.
+ - I would eat my way into perdition to taste you.
+ - That is what literature offers – a language powerful enough to say how it is. It isn’t a hiding place. It is a finding place.
+ - She was a monster, but she was my monster.
+ - Very often history is a means of denying the past.
+ - The Humans is a laugh-and-cry book. Troubling, thrilling, puzzling, believable and impossible. Matt Haig uses words like a tin-opener. We are the tin.
+ - Time that withers you will wither me. We will fall like ripe fruit and roll down the grass together. Dear friend, let me lie beside you watching the clouds until the earth covers us and we are gone.
+ - If I let them take away my demons, I’ll have to give up what I’ve found.
+ - I want someone who is fierce and will love me until death and knows that love is as strong as death, and be on my side forever and ever. I want someone who will destroy and be destroyed by me.
+ - That walls should fall is the consequence of blowing your own trumpet.
+ - You are a pool of clear water where the light plays.
+ - But not all dark places need light, I have to remember that.
+ - Somewhere between fear and sex passion is.
+ - I don’t hate men, I just wish they’d try harder. Theyall want to be heroes and all we want is for them to stay at home and help with the housework and the kids. That’s not the kind of heroism they enjoy.
+ - They say that every snowflake is different. If that were true, how could the world go on? How could we ever get up off our knees? How could we ever recover from the wonder of it?
+ - When she bleeds the smells I know change colour. There is iron in her soul on those days. She smells like a gun.
+ - The only sex education my mother ever gave me was the injunction: ‘Never let a boy touch you down there.’ I had no idea what she meant. She seemed to be referring to my knees.
+ - I hate the word lesbian; it tells you nothing; its only purpose is to inflame.
+ - You’re never alone with a book, are you? It’s a dialogue.
+ - Everyone thinks their own situation most tragic. I am no exception.
+ - Hopeless heart that thrives on paradox; that longs for the beloved and is secretly relieved when the beloved is not there.
+ - I don’t know how to answer. I know what I think, but words in the head are like voices underwater. They are distorted.
+ - I live alone, with cats, books, pictures, fresh vegetables to cook, the garden, the hens to feed.
+ - I am good at walking away. Rejection teaches you how to reject.
+ - Whoever it is you fall in love with for the first time, not just love but be in love with, is the one who will always make you angry, the one you can’t be logical about.
+ - The curious are always in some danger. If you are curious you might never come home.
+ - Art can make a difference because it pulls people up short. It says, don’t accept things for their face value; you don’t have to go along with any of this; you can think for yourself.
+ - There are times when it will go so wrong that you will barely be alive, and times when you realise that being barely alive, on your own terms, is better than living a bloated half-life on someone else’s terms.
+ - We fear passion and laugh at too much love and those who love too much. And still we long to feel.
+ - Yes, the past is another country, but one that we can visit, and once there we can bring back the things we need.
+ - Unconditional love is what a child should expect from a parent even though it rarely works out that way.
+ - I feel in colour, strong tones that I hue down for the comfort of the pastelly inclined. Beige and magnolia and a hint of pink are what the well-decorated heart is wearing; who wants my blood red and vein-blue?
+ - Now that I have lost you I cannot allow you to develop, you must be a photograph not a poem.
+ - Islands are metaphors of the heart, no matter what poet says otherwise.
+ - Every journey conceals another journey within its lines: the path not taken and the forgotten angle.
+ - I used to think marriage was a plate-glass window just begging for a brick.
+ - I was happy but happy is an adult word. You don’t have to ask a child about happy, you see it. They are or they are not. Adults talk about being happy because largely they are not. Talking about it is the same as trying to catch the wind. Much easier to let it blow all over you.
+ - Naked is the best disguise.
+ - Names are still magic; even Sharon, Karen, Darren, and Warren are magic to somebody somewhere. In fairy stories, naming is knowledge. When I know your name, I can call your name, and when I call your name, you’ll come to me.
+ - History is not a suicide note – it is a record of our survival.
+ - You were in my arms for the first time, and you said my name, ‘Tristan.’ I answered you: ‘Isolde.’ Isolde. The world became a word.
+ - Organized religion is a very bad way of passing on spiritual values because it becomes so corrupted with political and repressive agendas which don’t help anybody to develop their spirituality.
+ - I was sixteen and my mother was about to throw me out of the house forever, for breaking a very big rule, even bigger than the forbidden books. The rule was not just No Sex, but definitely No Sex With Your Own Sex.
+ - There are many forms of love and affection, some people can spend their whole lives together without knowing each other’s names. Naming is a difficult and time-consuming process; it concerns essences, and it means power. But on the wild nights who can call you home? Only the one who knows your name.
+ - I like being on my own better than I like anything else, but I can’t give up love. Maybe it’s the tension between longing and aloneness that I need. My own funicular railway, holding in balance the two things most likely to destroy me.
+ - I keep telling this story – different people, different places, different times – but always you, always me, always this story, because a story is a tight rope between two worlds.
+ - Marriage is the flimsiest weapon against desire. You may as well take a pop-gun to a python.
+ - Whatever it is that pulls the pin, that hurls you past the boundaries of your own life into a brief and total beauty, even for a moment, it is enough.
+ - The body can endure compromise and the mind can be seduced by it. Only the heart protests. The heart. Carbon-based primitive in a silicon world.
+ - The continuous narrative of existence is a lie. There is no continuous narrative, there are lit-up moments, and the rest is dark.
+ - She was fragile, gentle, wide awake in a sleeping world.
+ - To avoid discovery I stay on the run. To discover things for myself, I stay on the run...
+ - The impulse to worship is impossible to eradicate. Even the most prosaic have to worship something.
+ - I felt like a thief with a bagful of stolen glances.
+ - Even the most solid of things, and the most real, the best-loved and the well-known, are only hand shadows on the wall. Empty space and points of light.
+ - I felt like a seed in a pomegranate. Some say that the pomegranate was the real apple of Eve, fruit of the womb, I would eat my way into perdition to taste you.
+ - To tell someone not to be emotional is to tell them to be dead.
+ - Going back after a long time will make you made, because the people you left behind do not like to think of you changed, will treat you as they always did, accuse you of being indifferent, when you are only different.
+ - Any measurement must take into account the position of the observer. There is no such thing as measurement absolute, there is only measurement relative.
+ - August. We were arguing. You want love to be like this every day don’t you? 92 degrees even in the shade.
+ - I find pieces of myself everywhere, and I cut myself handling them.
+ - Art is a foreign city, and we deceive ourselves when we think it familiar. We have to recognize that the language of art, all art, is not our mother tongue.
+ - She had made him possible. In that sense she was his god. Like God, she was neglected.
+ - To create was a fundament, to appreciate, a supplement.
+ - Nobody knows anything about Shakespeare the person. It’s all legend, it is all rumor.
+ - It’s the cliches that cause the trouble. A precise emotion seeks a precise expression.
+ - It is a true saying, that what you fear you find.
+ - Freud, one of the grand masters of narrative, knew that the past is not fixed in the way that linear time suggests. We can return. We can pick up what we dropped. We can mend what others broke. We can talk with the dead.
+ - Fragile creatures of a small blue planet, surrounded by light years of silent space.
+ - When people looked at him they had the feeling of being shut out. He did not shut them out. He shut himself in.
+ - Do all lovers feel helpless and valiant in the presence of the beloved? Helpless because the need to roll over like a pet dog is never far away. Valiant because you know you would slay a dragon with a pocket knife if you had to.
+ - I have noticed that doing the sensible thing is only a good idea when the decision is quite small. For the life-changing things, you must risk it.
+ - We shall all die, and our lives will be irrelevant then. If we make anything that lasts, it outlives us, and it outlives its personal moment. All of my work is deep-dug from me, and every book has to stand or fall without me.
+ - What are you that makes me feel thus? Who are you for whom time has no meaning?
+ - To me, life, for all its privations, is a luminous thing. You have to risk it.
+ - The pain is when the dreams change, as they do, as they must.
+ - It is not possible to control the outside of yourself until you have mastered your breathing space. It is not possible to change anything until you understand the substance you wish to change.
+ - Everything in writing begins with language. Language begins with listening.
+ - One room is always enough for one person. Two rooms is not enough for two people. That is one of the conundrums in life.
+ - The truth is that love smashes into your life like an ice floe, and even if your heart is built like the Titanic you go down.
+ - Nothing has an unlikely quality. It is heavy.
+ - Life has never been All or Nothing- it’s All and Nothing. Forget the binaries.
+ - Her butler opened it for her. His name was Boredom. She said, ‘Boredom, fetch me a plaything.’ He said ‘Very good ma’am,’ and putting on his white gloves so that fingerprints would not show he tapped at my heart and I thought he said his name was Love.
+ - I seem to have run in a great circle, and met myself again on the starting line.
+ - Passion is not well bred.
+ - In the library I felt better, words you could trust and look at till you understood them, they couldn’t change half way through a sentence like people, so it was easier to spot a lie.
+ - Love is vivid. I never wanted the pale version. Love is full strength. I never wanted the diluted version. I never shied away from love’s hugeness but I had no idea that love could be as reliable as the sun. The daily rising of love.
+ - There’s something about the authenticity rather than the autobiography that makes my story and my pain move across and become your story and your pain.
+ - We are told not to privilege one story above another. All the stories must be told. Well, maybe that’s true, maybe all stories are worth hearing, but not all stories are worth telling.
+ - Poetry is easier to learn than prose. Once you have learned it you can use it as a light and a laser. It shows up your true situation and it helps you cut through it.
+ - Meatspace still has some advantages for a carbon-based girl.
+ - When we say we can pull resources away from libraries, from culture, from those parts of the education system that are not about utility, what we are really saying is that the life of the mind is unnecessary.
+ - When I fell in love it was as though I looked into a mirror for the first time and saw myself.
+ - There are only three possible endings -aren’t there? – to any story: revenge, tragedy or forgiveness. That’s it. All stories end like that.
+ - The journey is not linear, it is always back and forth, denying the calendar, the wrinkles and lines of the body.
+ - Yes, the stories are dangerous, she was right. A book is a magic carpet that flies you off elsewhere. A book is a door. You open it. You step through. Do you come back?
+ - He wrote on a piece of paper with his pencil. Psychosis: out of touch with reality. Since then, I have been trying to find out what reality is, so that I can touch it.
+ - If you should leave me, my heart will turn to water and flood away.
+ - It may be that you are settled in another place it may be that you are happy but the one who took your heart wields final power.
+ - We are lucky, even the worst of us, for daylight comes.
+ - Wherever love is, I want to be, I will follow it as surely as the land-locked salmon finds the sea.
+ - Are we all living like this? Two lives, the ideal outer life and the inner imaginative life where we keep our secrets?
+ - When we learn to read, it’s a real product of civilization and a civilized society. It affects your brain. It affects the way you think, and it gives you that capacity for self-reflection that you simply do not have without the agency of books.
+ - Don’t you, when strangers and friends come to call, straighten the cushions, kick the books under the bed and put away the letter you were writing? How many of us want any of us to see us as we really are? Isn’t the mirror hostile enough?
+ - Shuttered like a fan no-one suspects your shoulder blades of wings.
+ - What you eat is the most political thing you do every day.
+ - I don’t write for any group. I write to bring about a change in consciousness.
+ - There are so many separate selves; no one who writes creatively hasn’t felt that.
+ - Language is a finding-place not a hiding place.
+ - I’m always nervous about going home, just as I am nervous about rereading books that have meant a lot to me.
+ - Myths hook and bind the mind because at the same time they set the mind free: they explain the universe while allowing the universe to go on being unexplained; and we seem to need this even now, in our twentieth-century grandeur.
+ - I say I’m in love with her. What does that mean? It means I review my future and my past in the light of this feeling. It is as though I wrote in a foreign language that I am suddenly able to read. Wordlessly, she explains me to myself. LIke genius she is ignorant of what she does.
+ - By betrayal, I mean promising to be on your side, then being on somebody else’s.
+ - To kiss well one must kiss solely. No groping hands or stammering hearts. The lips and the lips alone are the pleasure. Passion is sweeter split strand by strand. Divided and re-divided like mercury then gathered up only at the last moment.
+ - How easy it is to destroy the past and how difficult to forget it.
+ - One day, tens of millions of years from now, someone will find me rusted into the mud of a world they have never seen, and when they crumble me between their fingers, it will be you they find.
+ - If art, all art, is concerned with truth, then a society in denial will not find much use for it.
+ - If I can’t stay where I am, and I can’t, then I will put all that I can into the going.
+ - I have a head for heights it’s true, but no stomach for the depths. Strange then to have plumbed so many.
+ - I spin worlds where we could be together. I dream you. For me, imagination and desire are very close.
+ - I think people deceive themselves about themselves, particularly as they get older.
+ - Make three wishes and they shall all come true. Make three hundred and I will honour every one.
+ - The fact is that every atom that we’re made of is part of that first explosion of a nuclear star billions of years ago. We’re connected to the entire universe.
+ - What is more humiliating than finding the object of your love unworthy?
+ - Misery pulls away the brackets of life leaving you to free fall.
+ - The rebellion of art is a daily rebellion against the state of living death routinely called real life.
+ - I realised something important: whatever is on the outside can be taken away at any time. Only what is inside you is safe.
+ - What a strange world this is when you can have as much sex as you like but love is taboo.
+ - I dream of flight, not to be as the angels are, but to rise above the smallness of it all. The smallnesss that I am. Against the daily death the iconography of wings.
+ - Destiny is a worrying concept. I don’t want to be fated, I want to choose.
+ - Capitalism is like Japanese Knotweed: nothing kills it off. If there were only two people left on the planet, one of them would find a way of making money out of the other.
+ - Unhappiness is selfish, grief is selfish. For whom are the tears?
+ - Your weak point is the open, vulnerable place where you can always be hurt. Love, in all its aspects, opens the self so fully.
+ - I don’t own my emotions unless I can think about them. I am not afraid of feeling but I am afraid of feeling unthinkingly. I don’t want to drown. My head is my heart’s lifebelt.
+ - You cannot disown what is yours. Flung out, there is always the return, the reckoning, the revenge, perhaps the reconciliation. There is always the return.
+ - The universe has no sides, no end, can’t be mapped. Enough to make a man talk about God, make a man superstitious and worship an idol. The science never gets as far as the strangeness.
+ - Happiness is a specific. Misery is a generalization. People usually know exactly why they are happy. They very rarely know why they are miserable.
+ - Slightest accidents open up new worlds.
+ - There are two facts that all children need to disprove sooner or later; mother and father. If you go on believing in the fiction of your own parents, it is difficult to construct any narrative of your own.
+ - The mind will not believe in death, perhaps because, as far as the mind is concerned, death never happens.
+ - I return to problems i can’t solve, not because i am an idiot, but because the real problems can’t be solved. The universe is expanding. The more we see, the more we discover there is to see. Always a new beginning, a different end.
+ - Every moment you steal from the present is a moment you’ve lost forever. There is only now.
+ - In the presence of love, hearth and quest become one.
+ - We heal up through being loved, and through loving others. We don’t heal by forming a secret society of one – by assessing about the only other ‘one’ we might admit, and being doomed to disappointment.
+ - I like to look at how people work together when they are put into stressful situations, when life stops being cozy.
+ - I think we are worlds compressed into human form.
+ - I write about sex because often it feels like the most important thing in the world.
+ - Whether you want to call it God or the mystery of the cosmos doesn’t matter to me.
+ - Although I sometimes pose as a fight animal, I’m really a flight animal.
+ - Every believer is an anarchist at heart. True believers would rather see governments topple and history rewritten than scuff the cover of their faith.
+ - Every word written is a net to catch the word that has escaped.
+ - Of course, people will laugh at you, but people laugh at a great many things so there is no need to take it personally.
+ - Words are the part of silence that can be spoken.
+ - I had been taught to look for monsters and devils and I found ordinary people.
+ - I believe in communication; books communicate ideas and make bridges between people.
+ - Pain is very often a maimed creature without a mouth.
+ - I fell in love once, if love be that cruelty which takes us straight to the gates of Paradise only to remind us they are closed for ever.
+ - I dreamed I was a single moment in a single day. A note struck and vanished. A sounding. A reckoning. Gone.
+ - What can i tell you about the choices we make? Fate reads like the polar opposite of decision, and so much of life reads like fate.
+ - I don’t see myself as some kind of lone figure standing out there and doing my work in solitary splendour, but as part of the human condition and part of the continuum of writers.
+ - What the myths say, is that you have to be the hero of your own life. You’re the one who has to take charge of who you are, you’re the one who has to take control. And also, you’re the one who can bring something to the community.
+ - I have met a great many people on their way towards God and I wonder why they have chosen to look for him rather than themselves.
+ - When a woman gives birth her waters break and she pours out the child and the child runs free.
+ - Why did I walk so purposefully in a straight line? Where would it take me? He went round and round and we got there all the same.
+ - I do not accept that life has an ordinary shape, or that there is anything ordinary about life at all. We make it ordinary, but it is not.
+ - I’m not club-able, you see. I don’t like literary parties and literary gatherings and literary identities. I’d hate to join anything, however loosely.
+ - Don’t lie. You know you like to view but not to buy. I have found that I am not a space where people want to live, at least not without decorating first. And that is the stubbornness in me: I do not want to be someone’s little home.
+ - What’s invisible to us is also crucial for our own well-being.
+ - A character has a distinctive voice – you should be able to hear them in your head and conduct a conversation with them while you’re out walking. If the answers surprise you, you know it’s the character speaking and not you.
+ - Like all familiar objects, it had become invisible.
+ - I think heterosexuality and homosexuality are a kind of psychosis, and the truth is somewhere in the middle.
+ - The free man never thinks of escape.
+ - However it is debased or misinterpreted, love is a redemptive feature. To focus on one individual so that their desires become superior to yours is a very cleansing experience.
+ - You said, ‘I love you.’ Why is it that the most unoriginal thing we can say to one another is still the thing we long to hear?
+ - This is not a love story, but love is in it. That is, love is just outside it, looking for a way to break in.
+ - If we had the courage to love we would not so value these acts of war.
+ - Writers have to have a knack for listening. I need to be able to hear what is being said to me by the voices I create.
+ - We’re living in a homogenized culture where everything is the same, and books are not a homogenized culture. They are extremely varied, and they’re eccentric because they are the product of an individual mind. They are not, in any way, mediated.
+ - With animal behavior, they’re all fine until you introduce some rogue element into the cage, and then they go crazy.
+ - Of course that is not the whole story, but that is the way with stories; we make them what we will. It’s a way of explaining the universe while leaving the universe unexplained, it’s a way of keeping it all alive, not boxing it into time.
+ - The truth is I am inventing the maybe. I can only make the choices I make, so why torture myself with what I might have done, when all I can handle is what I have done? The Maybe Islands are hostile to human life.
+ - Y’know, Nature’s unpredictable – that’s why we had to tame her. Maybe we went too far, but in principle we made the right decision.
+ - As your lover describes you, so you are.
+ - I never wanted children. If I’d been deeply in love with a man and he’d wanted children, it would have been difficult.
+ - My friends and the people who are close to me know what I am. And that is enough.
+ - Odd to think that the piece of you I know best is already dead. The cells on the surface of your skin are thin and flat without the blood vessels or nerve endings. Dead cells, thickest on the palms of your hands and the soles of your feet.
+ - Language always betrays us, tells the truth when we want to lie, and dissolves into formlessness when we would most like to be precise.
+ - The world is surely wide enough to walk without fear.
+ - There is no greater grief than to find no happiness, but happiness in what is past.
+ - There is no sense in loving someone you can never wake up to except by chance.
+ - Only a fool tries to reconstruct a bunch of grapes from a bottle of wine.
+ - Perhaps all romance is like that; not a contract between equal parties but an explosion of dreams and desires that can find no outlet in everyday life. Only a drama will do and while the fireworks last the sky is a different colour.
+ - Poets will never be the highest-paid writers in the world. Instead, poetry will go on cutting a hand-made path through the mass-market insanity. For me, anyway, that path is the one that leads to the Chapel of the Grail.
+ - I go on writing so that I will always have something to read.
+ - There’s no such thing as autobiography, there’s only art and lies.
+ - I choose this story above all others because it’s a story I’m struggling to end.
+ - Quoting her mother: The trouble with a book is you never know what’s in it until it’s too late!
+ - Age is information failure. The body loses fluency.
+ - If people aren’t educated, they can’t question. If they can’t question, they can’t change anything, which is great for the status quo and all the people who can question them at their own level.
+ - I want to get to the end and feel that I’ve done all I could, given the limitations and given the opportunities.
+ - As far as I was concerned men were something you had around the place, not particularly interesting, but quite harmless. I had never shown the slightest feeling for them, and apart from my never wearing a skirt, saw nothing else in common between us.
+ - If you continually write and read yourself as a fiction, you can change what’s crushing you.
+ - It is just as likely that as I invent what I want to say, you will invent what you want to hear.
+ - There is a certain seductiveness about dead things. You can ill treat, alter and recolour what’s dead. It won’t complain.
+ - I know from my own experience that suicide is not what it seems. Too easy to try to piece together the fragmented life. The spirit torn in bits so that the body follows.
+ - As a writer, if you’re prepared to work from your own wound, you’re allowing people into the most vulnerable parts of yourself.
+ - I don’t want to conquer you; I just want to climb you.
+ - It may be that there was no reason or purpose, for mankind must always be finding reasons where there are none, and comfort in a purpose that hardly exists.
+ - When I say ‘I will be true to you’ I am drawing a quiet space beyond the reach of other desires.
+ - I have no idea what happens next.
+ - Art is enchantment and artists have the right of spells.
+ - We bury things so deep we no longer remember there was anything to bury. Our bodies remember. Our neurotic states remember. But we don’t.
+ - Confidence and superiority: It’s the usual fundamentalist stuff: I’ve got the truth, and you haven’t.
+ - Stories end in reverie, tragedy, or forgiveness.
+ - Seeing one’s books on the shelf tells you so much about the way somebody has, over the years, put together their private library, which is a reflection of their minds and their selves.
+ - Children, I suppose, are always unfinished business: they begin as part of your own body, and continue as separate as another continent.
+ - Adults talk about being happy because largely they are not.
+ - I think it would be very foolish not to take the irrational seriously.
+ - Reading is where the wild things are.
+ - I fell into the books, and left myself there for safekeeping.
+ - A homosexual is further away from a woman than a rhinoceros.
+ - What would it have meant to be happy? What would it have meant if things had been bright, clear, good between us?
+ - Where you are born – what you are born into, the place, the history of the place, how that history mates with your own – stamps who you are, whatever the pundits of globalisation have to say.
+ - The Bible writers didn’t care that they were bunching together sequences some of which were historical, some preposterous, and some downright manipulative. Faithful recording was not their business; faith was.
+ - Although wherever you are going is always in front of you, there is no such thing as straight ahead.
+ - I keep myself locked as a box when it matters, and broken open when it doesn’t matter at all.
+ - Life gives you enough hard knocks so it’s unlikely you’ll stay that sure of yourself.
+ - I didn’t want to tell the story of myself, but someone I called myself. If you read yourself as fiction, it’s rather more liberating than reading yourself as fact.
+ - Love’s lengthways splits the heart in two – the heart where you are, the heart where you want to be.
+ - She hated being a nobody and like all children, adopted or not, I have had to live out some of her unlived life. We do that for our parents – we don’t really have any choice.
+ - I looked at my palms trying to see the other life, the parallel life. The point at which my selves broke away and one married a fat man and the other stayed here.
+ - I will do whatever I have to do to reach people with the things I believe are important. Life is too short not to do everything you can.
+ - Creativity is on the side of health – it isn’t the thing that drives us mad; it is the capacity in us that tries to save us from madness.
+ - It’s not the one thing nor the other that leads to madness, but the space in between.
+ - It is silence that most needs an answering – when I can no longer speak, hear me.
+ - Each book is a different staging post on the writer’s journey, and each book stands by itself, regardless of the writer’s relationship to it.
+ - I care about doing the work as best as I can do, and that it should go on reaching people. It’s not about fame and it’s not about me. It’s about creating something that might allow someone else to create something.
+ - Writing has to have a great deal of certainty and self-assurance, but it’s not arrogant.
+ - I walked out to brood on this life of ours, which seems from birth to death to be a steady loss, disguised by sudden gains and happiness, which persuade us of good fortune, when all the while the glass is emptying.
+ - I never cared about money.
+ - I had relationships with men as well as women. I wasn’t choosing; I didn’t think I had to.
+ - Not much touches us, but we long to be touched. We lie awake at night willing the darkness to part and show us a vision.
+ - There’s so little wonder left in the world because we’ve seen everything one way or another’.
+ - I am much better at saying how I feel when I no longer feel it.
+ - It is helpful for a woman artist not to have a husband.
+ - There must be some part of Man that is more than his daily round. Some part of him that will use his profit on a matter of no profit.
+ - I was the place where you anchored. I was the deep water where you could be weightless. I was the surface where you saw your own reflection. You scooped me up in your hands.
+ - It’s true that heroes are inspiring, but mustn’t they also do some rescuing if they are to be worthy of their name? Would Wonder Woman matter if she only sent commiserating telegrams to the distressed?
+ - There’s a whole generation growing up thinking you shouldn’t seek knowledge for its own sake, and that theatre and art and books are activities that you do after-hours, rather than things that are at the heart of life. That’s a huge change.
+ - You have to engage with people who are different from you and try to work with their thinking and their mind. That’s a real challenge.
+ - Many people feel their outer self isn’t the whole self.
+ - I don’t read reviews because by then it’s too late – whatever anyone says, the book won’t change. It is written.
+ - Intensity is the desire to receive. Open yourself to light and you will become light.
+ - Why is the mind incapable of deciding its own subject matter? Why when we desperately want to think of one thing to we invariably think of another?
+ - Everything is imprinted for ever with what it once was.
+ - I hated historical novels with fluttering cloaks.
+ - When it is time to get to work, I go away completely and don’t do anything except the work. And that can be 16 hours a day.
+ - I wanted to cause trouble, but I know now it stays with you.
+ - We live in a world of buy it or leave it. Love does not signify.
+ - You’ve got these twenty million people who call themselves the Evangelical Christians who will put their hand up and say, I believe in the devil, I’m against abortion and gay rights, and we have to blow up the world. It’s frightening.
+ - I have found that I am not a space where people want to live, at least not without decorating first.
+ - For fate may hang on any moment and at any moment be changed.
+ - Today we are all speeding under the golden arms of the arches into our city, into our lives, into the world that is a stream of information, ceaselessly collected and projected.
+ - London is a small place, and it is very incestuous. People know where you live. Everybody is sort of on top of each other.
+ - Always in my books, I like to throw that rogue element into a stable situation and then see what happens.
+ - The poet will not be satisfied with recording, the poet will have to transform.
+ - Life was a pre-death experience.
+ - We are all historians in our small way.
+ - To create a past that seemed authentic but would be a fiction, you need an invented language.
+ - The work that lasts over time is the work which still speaks to us when all contemporary interest in that work is extinct.
+ - You don’t get over it because ‘it’ is the person you loved.
+ - Language is what stops the heart exploding.
+ - Strange to dream in the right shape and build in the wrong shape, but maybe that is what we do every day, never believing that a dream could tell the truth.
+ - I don’t understand why people talk of art as a luxury when it’s a mind-altering possibility.
+ - It is important not to force a character into something. Fiction writers can be too controlling – usually that’s a terror of our own unconscious processes.
+ - Part fact part fiction is what life is. And it is always a cover story. I wrote my way out.
+ - Time is a player. Time is part of today, not simply a measure of its passing.
+ - Anything outside marriage seems like freedom and excitement.
+ - If we make anything that lasts, it outlives us.
+ - I wanted to invent myself as a fictional character. And I did, and it has caused a great deal of confusion.
+ - One just spends as much money as one has. Very peculiar that! You never actually have any money. You think, If I had this much money ten years ago, I would have thought I was amazingly rich, but I still manage to spend it all and not have any left.
+ - The people who decided in their wisdom that we’re all going to go over to ebooks, they are not readers. These are technical people. These are people who think that somehow this is progress. It isn’t. It’s regressive.
+ - I am getting much more political as I get older. It’s the duty of any writer, in particular, not to stand back from the world.
+ - Capacity for love in its higher forms seems to be peculiarly human although even in humans it is still peculiar.
+ - I had huge ambition for literature. I don’t see the point of doing anything if you don’t have ambition for it.
+ - And you? Now that I have discovered you? Beautiful, dangerous, unleashed. Still I try to hold you, knowing that your body is faced with knives.
+ - History is a string full of knots, the best you can do is admire it, and maybe tie it up a bit more. History is a hammock for swinging and a game for playing.
+ - There’s no story that’s the start of itself.
+ - Academics love to make theories about a body of work, but each book consumes the writer and is the sum of his or her world.
+ - I didn’t mind being unpopular at school, because everyone else was a heathen.
+ - In my subconscious, my books were part of a single emotional journey.
+ - I know I’ve had an unusual beginning and a colourful life, but that wouldn’t matter if I couldn’t make it speak to other people.
+ - I wanted to write a new fable and see how many rules you could break.
+ - I lay there, stretched out, looking at the one star visible through the tiny window of the room. Only connect. How can you do that when the connections are broken?
+ - How many of us want any of us to see us as we really are?
+ - I need to be able to hear what is being said to me by the voices I create. Just on the other side of creativity is the nuthouse – and I often notice people looking at me strangely when I am talking out loud, but there is no other way.
+ - Passion is for holidays, not homecoming.
+ - My characters are always on the outside; the spotlight’s not on them. But they do get somewhere.
+ - I think we still believe that ambition is for boys.
+ - Their throats were bare for God.
+ - Mankind, I hazard, wherever found, Civilized or Savage, cannot keep to any purpose for much length of time, except the purpose of destroying himself.
+ - Whatever is powerful to you can be translated into something which will matter to somebody that you will never know.
+ - Our own front door can be a wonderful thing, or a sight we dread; rarely is it only a door.
+ - It is the nature of walls that they should fall.
+ - When I was born, my father wanted to drown me, but my mother persuaded him to let me live in disguise, to see if I could bring any wealth to the household.
+ - I want to be an art-hero – I want to change the form of the novel.
+ - It doesn’t have to be like that but mostly it is.
+ - My books always begin with a sentence and an image – not necessarily connected.
+ - They believed that if a mouse found your hair clippings and built a nest with them you got a headache. If the nest was big enough, you might go mad.
+ - We shall all die, and our lives will be irrelevant then.
+ - True stories are the ones that lie open at the border, allowing a crossing, a further frontier. The final frontier is just science fiction – don’t believe it. Like the universe, there is no end.
+ - There are voices and they must be heard.
+ - I like to think the price I paid by being open about my private life helped.
+ - I’ve never been tempted by God but I like his trappings.
+ - Woolf wanted to say dangerous things in Orlando but she did not want to say them in the missionary position.
+
+381 quotes

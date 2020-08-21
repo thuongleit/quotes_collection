@@ -1,0 +1,61 @@
+ - Life is a continuous process of adjustment.
+ - Forgiveness is a virtue of the brave.
+ - My grandfather once told me that there were two kinds of people: those who do the work and those who take the credit. He told me to try to be in the first group; there was much less competition.
+ - Every new experience brings its own maturity and a greater clarity of vision.
+ - Have a bias toward action – let’s see something happen now. You can break that big plan into small steps and take the first step right away.
+ - People tend to forget their duties but remember their rights.
+ - Nothing that is worthwhile is ever easy.
+ - You can’t shake hands with a clenched fist.
+ - Never forget that when we are silent, we are one. And when we speak we are two.
+ - Popularity is not a gurantee of quality.
+ - The power to question is the basis of all human progress.
+ - The purpose of life is to believe, to hope, and to strive.
+ - Whenever you take a step forward, you are bound to disturb something.
+ - I cannot understand how anyone can be an Indian and not be proud.
+ - To be liberated, woman must feel free to be herself, not in rivalry to man but in the context of her own capacity and her personality.
+ - Peace we want because there is another war to fight against poverty, disease and ignorance.
+ - The immediate is often the enemy of the ultimate.
+ - Martyrdom does not end something, it only a beginning.
+ - You must learn to be still in the midst of activity and to be vibrantly alive in repose.
+ - Home is wherever I go.
+ - There is not love where there is no will.
+ - The longer one doesn’t write, the more difficult it is to communicate.
+ - Politics is the art of acquiring, holding, and wielding power.
+ - Would you consider a man or a woman to be complicated? Is it that difficult to understand both the sexes? We say that we know what the other sex is all about, but is that really true? Perhaps the following witty, funny quotes and sayings can help simplify things down about men.
+ - I don’t mind if my life goes in the service of the nation. If I die, every drop of my blood will invigorate the nation.
+ - Education is a liberating force, and in our age it is also a democratizing force, cutting across the barriers of caste and class, smoothing out inequalities imposed by birth and other circumstances.
+ - Rebels and non-conformists are often the pioneers and designers of change.
+ - India wants to avoid a war at all costs but it is not a one-sided affair, you cannot shake hands with a clenched fist.
+ - Without peace there can be no prosperity for any people, rich or poor. And yet, there can be no peace without erasing the harshness of the growing contrast between the rich and the poor.
+ - My theory is that men are no more liberated than women.
+ - My father was a saint, I’m not.
+ - The civil servant is primarily the master of the short-term solution.
+ - Every democratic system evolves its own conventions. It is not only the water but the banks which make the river.
+ - It is our duty to create a social milieu in which the young and the socially weak feel that the present and future belong to them.
+ - There are moments in history when brooding tragedy and its dark shadows can be lightened by recalling great moments of the past.
+ - Nothing can convince me that people are at one with their work unless they’re joyous about it.
+ - To me the function of politics is to make possible the desirable.
+ - If I die a violent death, as some fear and a few are plotting, I know that the violence will be in the thought and the action of the assassins, not in my dying.
+ - People with clenched fists can not shake hands.
+ - It has been my experience that people who are at cross-purposes with nature are cynical about mankind and ill at ease with themselves.
+ - One must beware of ministers who can do nothing without money, and those who want to do everything with money.
+ - The meek may one day inherit the earth, but not the headlines.
+ - There exists no politician in India daring enough to attempt to explain to the masses that cows can be eaten.
+ - Ability is not always gauged by examination.
+ - In an underdeveloped society, the first anxiety is of infant mortality. In an advanced one it is to keep alive the aged.
+ - We would rather starve than sell our national honor.
+ - Mankind will endure when the world appreciates the logic of diversity.
+ - We have believed – and we do believe now – that freedom is indivisible, that peace is indivisible, that economic prosperity is indivisible.
+ - I would like to ask a question. Would this sort of war or savage bombing which has taken place in Vietnam have been tolerated for so long, had the people been European?
+ - We should not mourn for men of high ideals. Rather we should rejoice that we had the privilege of having had them with us, to inspire us by their radiant personalities.
+ - My father was a statesman, I am a political woman. My father was a saint. I am not.
+ - The greatest of all contraceptives is affluence.
+ - Dacca is now the free capital of a free country.
+ - To bear many children is considered not only a religious blessing but also an investment. The greater their number, some Indians reason, the more alms they can beg.
+ - The old need the company of the young so that they renew their contact with life.
+ - All my games were political games; I was, like Joan of Arc, perpetually being burned at the stake.
+ - The question before the advanced nations is not whether they can afford to help the developing nations, but whether they can afford not to do so.
+ - Defeats are always pitiful. Victories are always last resources.
+ - How can anybody who is the head of a nation afford not to be a prag-matist?
+
+59 quotes

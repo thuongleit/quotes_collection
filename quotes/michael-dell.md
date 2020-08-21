@@ -1,0 +1,51 @@
+ - Ideas are commodity. Execution of them is not.
+ - Collaboration equals innovation.
+ - You don’t have to be a genius or a visionary or even a college graduate to be successful. You just need a framework and a dream.
+ - Anything that can be measured can be improved.
+ - There’s always an opportunity to make a difference.
+ - The point is, you can’t keep doing the same thing and expect it to keep working.
+ - Don’t spend so much time trying to choose the perfect opportunity, that you miss the right opportunity.
+ - There is no better catalyst to success than curiosity.
+ - Ignore the people who tell you it won’t work, and hire people who embrace your vision.
+ - Each day that you’re moving toward your dreams without compromising who you are, you’re winning.
+ - I started Dell 28 yrs ago with $1000. Revenues in 1984 were $6 million. Last year $62.1 billion. Impossible is nothing.
+ - It’s easy to decide what you’re going to do. The hard thing is deciding what you’re not going to do.
+ - It’s exciting to see how fast your kids learn and grow. I’m not too worried about them, particularly the ones who like to break rules and don’t follow instructions; those are the ones that will do just fine because they know what’s important to them.
+ - If you want to sustain excellence over a long time, you’d better come up with a system that works well. Anyone can sprint for a little while, but you can’t sprint for forty years.
+ - Regrets are born of paths never taken.
+ - Our business is about technology, yes. But it’s also about operations and customer relationships.
+ - With the understanding that you will face tough times and amazing experiences, you must also commit to the adventure. Just have faith in the skills and the knowledge you’ve been blessed with and go.
+ - Celebrate for a nanosecond.
+ - We were always focused on our profit and loss statement. But cash flow was not a regularly discussed topic. It was as if we were driving along, watching only the speedometer, when in fact we were running out of gas.
+ - Whether you’ve found your calling, or if you’re still searching, passion should be the fire that drives your life’s work.
+ - We’ve found that customers are very open. They’ll tell you what’s going on, what’s working and what’s not. They’re looking for help.
+ - I believe that you have to understand the economics of a business before you have a strategy, and you have to understand your strategy before you have a structure. If you get these in the wrong order, you will probably fail.
+ - You just have to change. To be successful, what you have to do is have an acceptance of risk and you have to be pretty explicit about that, because if you don’t accept risk, you don’t get any innovation. And that means part of risk is you have to accept failure because not everything works.
+ - If you’re happy, that’s probably the most important thing. Everyone probably has their own definition of success, for me it’s happiness. Do I enjoy what I’m doing? Do I enjoy the people I’m with? Do I enjoy my life?
+ - People ask me all the time, ‘How can I become a successful entrepreneur?’ And I have to be honest: It’s one of my least favorite questions, because if you’re waiting for someone else’s advice to become an entrepreneur, chances are you’re not one.
+ - The very thing you fear could be the best thing to ever happen to you.
+ - If you don’t have jobs, it’s hard to have other things like health and education.
+ - It’s through curiosity and looking at opportunities in new ways that we’ve always mapped our path at Dell. There’s always an opportunity to make a difference.
+ - We are all gifts to each other, and my own growth as a leader has shown me again and again that the most rewarding experiences come from my relationships.
+ - There are a lot of things that go into creating success. I don’t like to do just the things I like to do. I like to do things that cause the company to succeed. I don’t spend a lot of time doing my favorite activities.
+ - If you have to go through life being unhappy to conform to society around you, that’s not a very good deal.
+ - I always knew I wanted to run a business someday.
+ - You can’t be afraid to fail because that’s when you learn.
+ - I have no doubt that in the future, wearable devices like Fitbit will know my blood pressure, hydration levels and blood sugar levels as well. All of this data has the potential to transform modern medicine and create a whole new era of personalized care.
+ - The interesting thing is when we design and architect a server, we don’t design it for Windows or Linux, we design it for both. We don’t really care, as long as we’re selling the one the customer wants.
+ - Recognize that there will be failures, and acknowledge that there will be obstacles. But you will learn from your mistakes and the mistakes of others, for there is very little learning in success.
+ - There are a lot of new things going on in the microprocessor world, including increased focus on power and efficiency.
+ - I had to give it a full go and see what happened.
+ - One of the things I benefited from when I started this business was that I didn’t know anything. I was just instinct with no preconceived notions. This enabled me to learn and change quickly without having to worry about maintaining any kind of status quo, like some of my bigger competitors.
+ - Today the world lost a visionary leader, the technology industry lost an iconic legend and I lost a friend and fellow founder. The legacy of Steve Jobs will be remembered for generations to come. My thoughts and prayers go out to his family and to the Apple team.
+ - Visionaries have the unique ability to dream of what’s possible and then make it a reality. We are excited to watch these visionaries use technology to help students develop skills in collaboration, critical thinking and teamwork that they’ll need to compete in the global economy.
+ - If you look at innovation, it doesn’t just occur in the lab.
+ - By questioning all the aspects of our business, we continuously inject improvement and innovation into our culture.
+ - From the time I was 7, when I purchased my first calculator, I was fascinated by the idea of a machine that could compute things.
+ - One of the things was to create a kind of amnesty environment.
+ - It had always made sense to me to build a business based on what people really wanted, rather than guess what we thought they might want.
+ - I’m a big believer in online communities and in user-generated content.
+ - The idea of being all things to all people is a thing of the past.
+ - Twenty years and $40 billion. They seem like good round numbers.
+
+49 quotes

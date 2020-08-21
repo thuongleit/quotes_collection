@@ -1,0 +1,292 @@
+ - The future belongs to those who prepare for it today.
+ - If not now then when, if not me then who?
+ - Education is our passport to the future, for tomorrow belongs to the people who prepare for it today.
+ - If you don’t stand for something you will fall for anything.
+ - If you have no critics you’ll likely have no success.
+ - My alma mater was books, a good library. I could spend the rest of my life reading, just satisfying my curiosity.
+ - People don't realize how a man's whole life can be changed by one book.
+ - We need more light about each other. Light creates understanding, understanding creates love, love creates patience, and patience creates unity.
+ - You're not to be so blind with patriotism that you can't face reality. Wrong is wrong, no matter who does it or says it.
+ - So early in my life, I had learned that if you want something, you had better make some noise.
+ - Nobody can give you freedom. Nobody can give you equality or justice or anything. If you’re a man, you take it.
+ - We cannot think of being acceptable to others until we have first proven acceptable to ourselves.
+ - You get your freedom by letting your enemy know that you'll do anything to get it. Then you'll get it. It's the only way you'll get it.
+ - Education is our passport to the future.
+ - By any means necessary.
+ - I’m for truth, no matter who tells it. I’m for justice, no matter who it is for or against. I’m a human being, first and foremost, and as such I’m for whoever and whatever benefits humanity as a whole.
+ - Read absolutely everything you get your hands on because you’ll never know where you’ll get an idea from.
+ - You can’t separate peace from freedom because no one can be at peace unless he has his freedom.
+ - Be peaceful, be courteous, obey the law, respect everyone; but if someone puts his hand on you, send him to the cemetery.
+ - I have often reflected upon the new vistas that reading has opened to me. I knew right there in prison that reading had changed forever the course of my life. As I see it today, the ability to read awoke inside me some long dormant craving to be mentally alive.
+ - The most disrespected person in America is the black woman. The most unprotected person in America is the black woman. The most neglected person in America is the black woman.
+ - Learn to see, listen, and think for yourself.
+ - If you’re not careful, the newspapers will have you hating the people who are being oppressed, and loving the people who are doing the oppressing.
+ - The media’s the most powerful entity on earth. They have the power to make the innocent guilty and to make the guilty innocent, and that’s power. Because they control the minds of the masses.
+ - Allah always gives you signs, when you are with Him, that He is with you.
+ - We can’t teach what we don’t know, and we can’t lead where we can’t go.
+ - The mother is the first teacher of the child. The message she gives that child, that child gives to the world.
+ - Don’t be in a hurry to condemn because he doesn’t do what you do or think as you think or as fast. There was a time when you didn’t know what you know today.
+ - And just because you have colleges and universities doesn’t mean you have education.
+ - I believe in the brotherhood of man, all men, but I don’t believe in brotherhood with anybody who doesn’t want brotherhood with me. I believe in treating people right, but I’m not going to waste my time trying to treat somebody right who doesn’t know how to return the treatment.
+ - One day, may we all meet together in the light of understanding.
+ - The mental flexibility of the wise man permits him to keep an open mind and enables him to readjust himself whenever it becomes necessary for a change.
+ - Only a fool would let his enemy teach his children.
+ - My alma mater was books, a good library.
+ - There is no better than adversity. Every defeat, every heartbreak, every loss, contains its own seed, its own lesson on how to improve your performance the next time.
+ - A wise man can play the part of a clown, but a clown can’t play the part of a wise man.
+ - If you’re not ready to die for it, take the word ‘freedom’ out of your vocabulary.
+ - You can’t hate the roots of a tree and not hate the tree.
+ - You can’t have capitalism without racism.
+ - I live like a man who’s dead already! I have no fear whatsoever of anybody or anything.
+ - Sometimes you have to pick the gun up to put the Gun down.
+ - Usually when people are sad, they don’t do anything. They just cry over their condition. But when they get angry, they bring about a change.
+ - A man without any history is like a tree without roots.
+ - To me, the thing that is worse than death is betrayal. You see, I could conceive death, but I could not conceive betrayal.
+ - I don’t even call it violence when it’s in self defense; I call it intelligence.
+ - The only persons who really changed history are those who changed men’s thinking about themselves.
+ - Who taught you to hate yourself?
+ - The only thing power respects, is power.
+ - The price of freedom is death.
+ - I see America through the eyes of the victim. I don’t see any American dream – I see an American nightmare.
+ - Hatred and anger are powerless when met with kindness.
+ - Hence I have no mercy or compassion in me for a society that will crush people, and then penalize them for not being able to stand up under the weight.
+ - One of the first things I think young people, especially nowadays, should learn is how to see for yourself and listen for yourself and think for yourself.
+ - Only the mistakes were mine.
+ - You don’t have to be a man to fight for freedom. All you have to do is to be an intelligent human being.
+ - Nonviolence is fine as long as it works.
+ - Why am I as I am? To understand that of any person, his whole life, from Birth must be reviewed. All of our experiences fuse into our personality. Everything that ever happened to us is an ingredient.
+ - So over you is the greatest enemy a man can have and that is fear. I know some of you are afraid to listen to the truth-you have been raised on fear and lies. But I am going to preach to you the truth until you are free of that fear...
+ - I, for one, will join in with anyone – I don’t care what color you are – as long as you want to change this miserable condition that exists on this earth.
+ - Power never takes a back step only in the face of more power.
+ - How can you thank a man for giving you what’s already yours? How then can you thank him for giving you only part of what is yours?
+ - Truth is on the side of the oppressed.
+ - Respect me, or put me to death.
+ - Our objective is complete freedom, justice and equality by any means necessary.
+ - I want to be remembered as someone who was sincere. Even if I made mistakes, they were made in sincerity. If I was wrong, I was wrong in sincerity.
+ - My sincerity is my credentials.
+ - True Islam taught me that it takes all of the religious, political, economic, psychological, and racial ingredients, or characteristics, to make the Human Family and the Human Society complete.
+ - The white man is not inherently evil, but America’s racist society influences him to act evilly. The society has produced and nourishes a psychology which brings out the lowest, most base part of human beings.
+ - A man who believes in freedom will do anything under the sun to acquire, or preserve his freedom.
+ - If you stick a knife nine inches into my back and pull it out three inches, that is not progress. Even if you pull it all the way out, that is not progress. Progress is healing the wound, and America hasn’t even begun to pull out the knife.
+ - As long as you are convinced you have never done anything, you can never do anything.
+ - The greatest mistake of the movement has been trying to organize a sleeping people around specific goals. You have to wake the people up first, then you’ll get action.
+ - There can be no black-white unity until there is first some black unity.
+ - The ability to read awoke inside of me some long dormant craving to be mentally alive.
+ - We are fighting for the right to live as free humans in this society. In fact, we are actually fighting for rights that are even greater than civil rights and that is human rights.
+ - Education is an important element in the struggle for human rights. It is the means to help our children and thereby increase self-respect. Education is our passport to the future, for tomorrow belongs to the people who prepare for it today.
+ - I am a Muslim, because it’s a religion that teaches you an eye for an eye and a tooth for a tooth. It teaches you to respect everybody, and treat everybody right. But it also teaches you if someone steps on your toe, chop off their foot. And I carry my religious axe with me all the time.
+ - America needs to understand Islam, because this is the one religion that erases from its society the race problem.
+ - That’s not a chip on my shoulder, that’s your foot on my neck.
+ - It takes two to tango; when I go, you go.
+ - To tell a woman not to talk too much was like telling Jesse James not to carry a gun, or a hen not to cackle.
+ - In fact, once he is motivated no one can change more completely than the man who has been at the bottom. I call myself the best example of that.
+ - Segregation is that which is forced upon an inferior by a superior. Separation is done voluntarily by two equals.
+ - Let’s cool it, brothers.
+ - You show me a capitalist, and I’ll show you a bloodsucker.
+ - Of all our studies, it is history that is best qualified to reward our research.
+ - I think there are plenty of good people in America, but there are also plenty of bad people in America and the bad ones are the ones who seem to have all the power and be in these positions to block things that you and I need.
+ - I don’t believe in any form of unjustified extremism! But when a man is exercising extremism – a human being is exercising extremism – in defense of liberty for human beings it’s no vice, and when one is moderate in the pursuit of justice for human beings I say he is a sinner.
+ - The zionist argument to justify Israel’s present occupation of Arab Palestine has no intelligent or legal basis in history.
+ - Be peaceful, be courteous, obey the...
+ - Just because a cat has kittens in the oven, that doesn’t make them biscuits.
+ - The only way we’ll get freedom for ourselves is to identify ourselves with every oppressed people in the world. We are blood brothers to the people of Brazil, Venezuela, Haiti, Cuba – yes Cuba too.
+ - My beliefs are now one hundred percent against racism and segregation in any form and I also believe that we don’t judge a person by the color of his skin but rather by his deeds.
+ - My father didn’t know his real name. My father got his name from his grandfather and he got his name from his grandfather and he got it from the slave master.
+ - Right now, in every big city ghetto, tens of thousands of yesterday’s and today’s school dropouts are keeping body and soul together by some form of hustling in the same way I did.
+ - What is a Dixiecrat? A Democrat. A Dixiecrat is nothing but a Democrat in disguise.
+ - The common enemy is the white man.
+ - A revolution is bloody. Revolution is hostile. Revolution knows no compromise. Revolution overturns and destroys everything that gets in its way.
+ - That is a lie. I’m not for wanton violence, I’m for justice.
+ - Here I am, back in Mecca. I am still traveling, trying to broaden my mind, for I’ve seen too much of the damage narrow-mindedness can make of things, and when I return home to America, I will devote what energies I have to repairing the damage.
+ - The death of over 120 white people is a very beautiful thing.
+ - We’re not Americans, we’re Africans who happen to be in America. We were kidnapped and brought here against our will from Africa. We didn’t land on Plymouth Rock – that rock landed on us.
+ - A new world order is in the making, and it is up to us to prepare ourselves that we may take our rightful place in it.
+ - I do not pretend to be a divine man, but I do believe in divine guidance, divine power, and in the fulfillment of divine prophecy. I am not educated, nor am I an expert in any particular field but I am sincere, and my sincerity is my credentials.
+ - In all our deeds, the proper value and respect for time determines success or failure.
+ - It’s impossible for a white person to believe in capitalism and not believe in racism.
+ - If you are Black, you were born in jail, in the North as well as the South. Stop talking about the South. As long as you are South of the Canadian border, you are South.
+ - Just as a tree without roots is dead, a people without history or cultural roots also becomes a dead people.
+ - It’ll be the ballot or the bullet. It’ll be liberty or it’ll be death.
+ - I remember one night at Muzdalifa with nothing but the sky overhead I lay awake amid sleeping Muslim brothers and I learned that pilgrims from every land – every color, and class, and rank; high officials and the beggar alike – all snored in the same language.
+ - We won’t organize any black man to be a Democrat or a Republican because both of them have sold us out. Both of them have sold us out; both parties have sold us out. Both parties are racist, and the Democratic Party is more racist than the Republican Party.
+ - The political philosophy of black nationalism means that the black man should control the politics and the politicians in his own community; no more.
+ - Human rights are something you were born with. Human rights are your God-given rights. Human rights are the rights that are recognized by all nations of this earth.
+ - I have more respect for a man who lets me know where he stands, even if he’s wrong. Than the one who comes up like an angel and is nothing but a devil.
+ - Without education, you are not going anywhere in this world.
+ - If someone puts their hands on you make sure they never put their hands on anybody else again.
+ - Western interests: imperialism, colonialism, exploitation, racism, and other negative -isms.
+ - I believe in Islam. I am a Muslim and there is nothing wrong with being a Muslim, nothing wrong with the religion of Islam. It just teaches us to believe in Allah as the God.
+ - Betty’s a good Muslim woman and wife. I don’t imagine many other women might put up with the way I am. Awakening this brainwashed black man and telling this arrogant, devilish white man the truth about himself, Betty understands, is a full-time job.
+ - The cornerstones of this country’s operation are economic and political strength and power. The black man doesn’t have the economic strength – and it will take time for him to build it. But right now the American black man has the political strength and power to change his destiny overnight.
+ - The white man was created a devil, to bring chaos upon this earth.
+ - America preaches integration and practices segregation.
+ - If you have a dog, I must have a dog. If you have a rifle, I must have a rifle. If you have a club, I must have a club. This is equality.
+ - To have once been a criminal is no disgrace. To remain a criminal is the disgrace.
+ - Its the hinge that squeaks that gets the grease.
+ - America’s greatest crime against the black man was not slavery or lynching, but that he was taught to wear a mask of self-hate and self-doubt.
+ - For one to control one’s thoughts and feelings means one can actually control one’s atmosphere and all who walk into its sphere of influence.
+ - I’m not a Republican, nor a Democrat, nor an American, and got sense enough to know it.
+ - We don’t go for segregation. We go for separation. Separation is when you have your own. You control your own economy; you control your own politics; you control your own society; you control your own everything. You have yours and you control yours; we have ours and we control ours.
+ - You can always chase a dream but it will not count if you never catch it.
+ - Wrong is wrong, no matter who does it or who says it.
+ - If Christianity had asserted itself in Germany, six million Jews would have lived.
+ - How can anyone be against love?
+ - The true Islam has shown me that a blanket indictment of all white people is as wrong as when whites make blanket indictments against blacks.
+ - An integrated cup of coffee isn’t sufficient pay for four hundred years of slave labor.
+ - Until the image of the black man in the mind of the black man has been changed, there will always be delinquency, parental and juvenile. The idea is not to change the attitude of the white man to the black man but to change the attitude of the black man to himself.
+ - I am and always will be a Muslim. My religion is Islam.
+ - Growing is the result of learning.
+ - The Constitution of the United States of America clearly affirms the right of every American citizen to bear arms. And as Americans, we will not give up a single right guaranteed under the Constitution.
+ - Power in defense of freedom is greater than power in behalf of tyranny and oppression, because power, real power, comes from our conviction which produces action, uncompromising action.
+ - If Africa wasn’t beautiful the white man wouldn’t want it.
+ - Time is on the side of the oppressed today, it’s against the oppressor. Truth is on the side of the oppressed today, it’s against the oppressor. You don’t need anything else.
+ - I’m for truth, no matter who tells it...
+ - They asked if I knew what ‘conscientious objector’ meant. I told them that when the white man asked me to go off somewhere and fight and maybe die to preserve the way the white man treated the black man in America, then my conscience made me object.
+ - Only those who have already experienced a revolution within themselves can reach out effectively to help others.
+ - New York white youth were killing victims; that was a ‘sociological’ problem. But when black youth killed somebody, the power structure was looking to hang somebody.
+ - You can cuss out colonialism, imperialism, and all other kinds of ism, but it’s hard for you to cuss that dollarism. When they drop those dollars on you, your soul goes.
+ - I’m not going to sit at your table and watch you eat, with nothing on my plate, and call myself a diner. Sitting at the table doesn’t make you a diner.
+ - Much of what I say might sound bitter, but it’s the truth. Much of what I say might sound like it’s stirring up trouble, but it’s the truth. Much of what I say might sound like its hate, but it’s the truth.
+ - Anytime you have to rely upon your enemy for a job you’re in bad shape.
+ - I don’t favor violence. If we could bring about recognition and respect of our people by peaceful means, well and good. Everybody would like to reach his objectives peacefully. But I’m also a realist. The only people in this country who are asked to be nonviolent are black people.
+ - Culture is an indispensable weapon in the freedom struggle.
+ - The black nation of Egypt is the only country that has a science named after its culture: Egyptology.
+ - We’re all in the same boat and we all are going to catch the same hell from the same man.
+ - If you stick a knife nine inches into my back and pull it out three inches, that is not progress.
+ - You don’t have a peaceful revolution. You don’t have a turn-the-cheek revolution. There’s no such thing as a nonviolent revolution.
+ - I think teaching a man to hate himself is much more criminal than teaching a man to hate someone else.
+ - Never allow your enemies to educate your children.
+ - Brothers and sisters, friends and enemies: I just can’t believe that everyone in here is a friend and I don’t want to leave anybody out.
+ - If you form the habit of taking what someone else says about a thing without checking it out for yourself, you’ll find that other people will have you hating your friends and loving your enemies.
+ - Concerning non-violence: it is criminal to teach a man not to defend himself when he is the constant victim of brutal attacks.
+ - Revolutions are never waged singing “We Shall Overcome.” Revolutions are based upon bloodshed.
+ - It’s liberty or death! It’s freedom for everybody or freedom for nobody!
+ - A race of people is like and individual man; until it uses its own talent, takes pride in its own history, expresses its own culture, affirms its own selfhood, it can never fulfill itself.
+ - You and I have never seen democracy – all we’ve seen is hypocrisy.
+ - They cripple the bird’s wing, and then condemn it for not flying as fast as they.
+ - Yes, I’m an extremist. The Black race here in North America is in extremely bad condition. You show me a Black man who isn’t an extremist and I’ll show you one who needs psychiatric attention.
+ - Revolution is always based on land. Revolution is never based on begging somebody for an integrated cup of coffee.
+ - Whenever any group can vote in a bloc, and decide the outcome of elections, and it fails to do this, then that group is politically sick.
+ - No sane black man really wants integration! No sane white man really wants integration!
+ - It has always been my belief that I, too, will die by violence. I have done all that I can to be prepared.
+ - Thoughtful white people know they are inferior to black people.
+ - If it’s necessary to form a Black Nationalist army, we’ll form a Black Nationalist army. It’ll be ballot or the bullet. It’ll be liberty or it’ll be death.
+ - When you hear me say “by any means necessary,” I mean exactly that. I believe in anything that is necessary to correct unjust conditions-political, economic, social, physical, anything that is necessary.
+ - Daring to reach, to climb, to crawl, to scratch, to get back up when you’ve been knocked down, to push forward – ever forward – to forgive. It means sacrificing everything if necessary, to carve out a place for your own existence. It means living.
+ - Racism is a human problem and a crime that is absolutely so ghastly that a person who is fighting racism is well within his rights to fight against it by any means necessary until it is eliminated.
+ - It’s got to be the ballot or the bullet. The ballot or the bullet. If you’re afraid to use an expression like that, you should get back in the cotton patch, you should get back in the alley.
+ - I am for violence if non-violence means we continue postponing a solution to the American black man’s problem just to avoid violence.
+ - Every morning when I wake up, now, I regard it as having another borrowed day.
+ - Once I was, yes. But now I have turned my direction away from anything that’s racist.
+ - I saw all races, all colors, blue eyed blonds to black skinned Africans in true brotherhood! In unity! Living as one! Worshiping as one! No segregationists, no liberals; they would not have known how to interpret the meaning of those words.
+ - After four hundred years of slave labor, we have some back pay coming, a bill owed to us that must be collected.
+ - I don’t mean go out and get violent; but at the same time you should never be nonviolent unless you run into some nonviolence. I’m nonviolent with those who are nonviolent with me. But when you drop that violence on me, then you’ve made me go insane, and I’m not responsible for what I do.
+ - I don’t advocate violence; but if a man steps on my toes, I’ll step on his...
+ - It is only after slavery and prison that the sweetest appreciation of freedom can come.
+ - Much of what I say might sound like it’s stirring up trouble, but it’s the truth!
+ - When I was in prison, I read an article – don’t be shocked when I say I was in prison. You’re still in prison. That’s what America means: prison.
+ - We are nonviolent with people who are nonviolent with us.
+ - I have been blessed to visit the Holy City of Mecca.
+ - Each of us should make the most of our lives. We should give life our best-let us use our lives more wisely to chase our dreams, find our true purpose, and be as happy and successful as possible.
+ - A ballot is like a bullet. You don’t throw your ballots until you see a target, and if that target is not in reach, keep your ballot in your pocket.
+ - Any time you demonstrate against segregation and a man has the audacity to put a police dog on you, kill that dog, kill him, I’m telling you, kill that dog. I say it if they put me in jail tomorrow, kill that dog. Then you’ll put a stop to it.
+ - As I say, if we bring up religion we’ll have differences; we’ll have arguments; and we’ll never be able to get together.
+ - Where the really sincere white people have got to do their ‘proving’ of themselves is not among the black victims, but out on the battle lines of where America’s racism really is – and that’s in their own home communities.
+ - We who follow the Honorable Elijah Muhammad feel that when you try and pass integration laws here in America, forcing white people to pretend that they are accepting black people, what you are doing is making white people act in a hypocritical way.
+ - Twenty-two million African-Americans – that’s what we are – Africans who are in America.
+ - If the so-called ‘Christianity’ now being practiced in America displays the best that world Christianity has left to offer – no one in his right mind should need any much greater proof that very close at hand is the end of Christianity.
+ - This was my first lesson about gambling: if you see somebody winning all the time, he isn’t gambling, he’s cheating. Later on in life, if I were continuously losing in any gambling situation, I would watch very closely.
+ - Any time you know you’re within the law, within your legal rights, within your moral rights, in accord with justice, then die for what you believe in. But don’t die alone. Let your dying be reciprocal. This is what is meant by equality. What’s good for the goose is good for the gander.
+ - A segregated school system produces children who, when they graduate, they do with crippled minds.
+ - I don’t care how nice one is to you, the thing you must always remember is that almost never does he really see you as he sees himself, as he sees his own kind.
+ - Despite my firm convictions, I have always been a man who tries to face facts, and to accept the reality of life as new experience and new knowledge unfolds. I have always kept an open mind, a flexibility that must go hand in hand with every form of the intelligent search for truth.
+ - America is such a paradoxical society, hypocritically paradoxical, that if you don’t have some humor, you’ll crack up.
+ - Anything I do today, I regard as urgent.
+ - If we are extremists, then we are not ashamed of it, for the conditions that our people suffer are extreme, and extreme illness can not be cured with moderate medicine.
+ - I don’t feel that I am a visitor in Ghana or in any part of Africa. I feel that I am at home.
+ - I feel like a man who has been asleep somewhat and under someone else’s control. I feel that what I’m thinking and saying is now for myself. Before it was for and by the guidance of Elijah Muhammad. Now I think with my own mind, sir!
+ - Times change so quickly that if you and I don’t keep up with the times, we’ll find ourselves with an umbrella in our hand, over our head, when the sun is out. Or we’ll find ourselves standing in the rain, with the umbrella inside the door.
+ - We do not condemn the preachers as an individual but we condemn what they teach. We urge that the preachers teach the truth, to teach our people the one important guiding rule of conduct – unity of purpose.
+ - Sitting at the table doesn’t make you a diner. You must be eating some of what’s on that plate. Being here in America doesn’t make you an American. Being born here in America doesn’t make you an American.
+ - I believe it’s a crime for anyone who is being brutalized to continue to accept that brutality without doing something to defend himself.
+ - My family was so poor we were close to eating the holes inside of doughnuts.
+ - America’s most dangerous and threatening black man is the one who has been kept sealed up by the Northerner in the black ghettos – the Northern white power structure’s system to keep talking democracy while keeping the black man out of sight somewhere, around the corner.
+ - We black men have a hard enough time in our own struggle for justice, and already have enough enemies as it is, to make the drastic mistake of attacking each other and adding more weight to an already unbearable load.
+ - They don’t stand for anything different in South Africa than America stands for. The only difference is over there they preach as well as practice apartheid. America preaches freedom and practices slavery.
+ - I was going through the hardest thing, also the greatest thing, for any human being to do; to accept that which is already within you, and around you.
+ - Anytime you find someone more successful than you are, especially when you’re both engaged in the same business – you know they’re doing something that you aren’t.
+ - I have rarely talked to anyone about my mother, for I believe that I am capable of killing a person, without hesitation, who happened to make the wrong kind of remark about my mother. So I purposely don’t make any opening for some fool to step into.
+ - If you’re born in America with a black skin, you’re born in prison, and the masses of black people in America today are beginning to regard our plight or predicament in this society as one of a prison inmate.
+ - Any time Uncle Sam, with all his machinery for warfare, is held to a draw by some rice eaters, he’s lost the battle.
+ - Integration will not bring a man back from the grave.
+ - I’ll say nothing against him. At one time the whites in the United States called him a racialist, and extremist, and a Communist. Then the Black Muslims came along and the whites thanked the Lord for Martin Luther King.
+ - Anytime you live in a society supposedly based upon law and it doesn’t enforce its own laws because the color of a man’s skin happens to be wrong, then I say those people are justified to resort to any means necessary to bring about justice when the government can’t give them justice.
+ - The most unprotected person in America is the Black woman.
+ - Mankind’s history has proved from one era to another that the true criterion of leadership is spiritual. Men are attracted by spirit. By power, men are forced. Love is engendered by spirit. By power anxieties are created.
+ - Be nonviolent only with those who are nonviolent to you. And when you can bring me a nonviolent racist, bring me a nonviolent segregationist, then I’ll get nonviolent. But don’t teach me to be nonviolent until you teach some of those crackers to be nonviolent.
+ - It is a time for martyrs now, and if I am to be one, it will be for the cause of brotherhood. That’s the only thing that can save this country.
+ - Sitting at the table doesn’t make you a diner, unless you eat some of what’s on that plate.
+ - I had blind faith in him. My faith in Elijah Muhammad was more blind and more uncompromising than any faith that any man has ever had for another man. And so I didn’t try and see him as he actually was.
+ - You can’t legislate good will – that comes through education.
+ - I don’t have any hate. I’ve got some sense. I’m not going to let anybody who hates me tell me to love him. I’m not that way-out.
+ - Here was one of the white man’s most characteristic behavior patterns – where black men are concerned. He loves himself so much that he is startled if he discovers that his victims don’t share his vainglorious self-opinion.
+ - That morning was when I first began to reappraise the ‘white man.’ It was when I first began to perceive that ‘white man,’ as commonly used, means complexion only secondarily; primarily it described attitudes and actions.
+ - Armed with the knowledge of our past, we can with confidence charter a course for our future. Culture is an indispensable weapon in the freedom struggle. We must take hold of it and forge the future with the past.
+ - Don’t you run around here trying to make friends with somebody who’s depriving you of your rights. They’re not your friends, no, they’re your enemies. Treat them like that.
+ - Learn the language that they understand, and when they come upon our doorstep to talk we can talk, and they will get the point. There will be a dialog, there will be some communication, and I am quite certain that then there will be some understanding.
+ - Those who would hunt a man need to remember that a jungle also contains those who hunt the hunters.
+ - I am not a racist in any form whatsoever. I don’t believe in any form of discrimination or segregation.
+ - In my recent travels into African countries and others, I was impressed by the importance of having a working unity among all peoples, black as well as white.
+ - I believe in recognizing every human being as a human being – neither white, black, brown, or red.
+ - The junkie can never start to cure himself until he recognizes his true condition.
+ - I could see from this, that perhaps if white Americans could accept the Oneness of God, then perhaps, too, they could accept in reality the Oneness of Man – and cease to measure, and hinder, and harm others in terms of their ‘differences’ in color.
+ - We assert that in those areas where the government is either unable or unwilling to protect the lives and property of our people, that our peopie are within our rights to protect themselves by whatever means necessary.
+ - To the same degree that your understanding of and attitude towards Afrika becomes more positive, your understanding of and attitude towards yourself will also becomes more positive...
+ - Speaking like this doesn’t mean that we’re anti-white, but it does mean we’re anti-exploitation, we’re anti-degradation, we’re anti-oppression.
+ - The whites of the younger generation, in the colleges and universities, will see the handwriting on the wall and many of them will turn to the spiritual path of truth.
+ - The same rebellion, the same impatience, the same anger that exists in the hearts of the dark people in Africa and Asia is existing in the hearts and minds of 20 million black people in this country who have been just as thoroughly colonized as the people in Africa and Asia.
+ - The day that the black man takes an uncompromising step and realizes that he’s within his rights, when his own freedom is being jeopardized, to use any means necessary to bring about his freedom or put a halt to that injustice, I don’t think he’ll be by himself.
+ - There is nothing in our book, the Koran, that teaches us to suffer peacefully. Our religion teaches us to be intelligent.
+ - I imagine that one of the biggest troubles with colleges is there are too many distractions, too much panty-raiding, fraternities, and boola-boola and all of that.
+ - It isn’t the American white man who is a racist, but it’s the American political, economic and social atmosphere that automatically nourishes a racist psychology in the white man.
+ - I am not an American; I am one of twenty-two million black people who are victims of Americanism.
+ - Stumbling isn’t falling.
+ - When we say Afro American, we include everyone in the Western Hemisphere of African descent. South America is America. Central America is America. South America has many people in it of African descent.
+ - There seems in most countries to be either one extreme or the other. Truly a paradise could exist wherever material progress and spiritual values could be properly balanced.
+ - You are either free or not free.
+ - I just don’t believe that when people are being unjustly oppressed that they should let someone else set rules for them by which they can come out from under that oppression.
+ - Revolutions are never peaceful.
+ - I’m sorry to say that the subject I most disliked was mathematics. I have thought about it. I think the reason was that mathematics leaves no room for argument. If you made a mistake, that was all there was to it.
+ - We have to keep in mind at all times that we are not fighting for integration, nor are we fighting for separation. We are fighting for recognition as free humans in this society.
+ - It’ll be the ballot or it’ll be the bullet. It’ll be liberty or it’ll be death. And if you’re not ready to pay that price don’t use the word freedom in your vocabulary.
+ - Reform is for people who have government connections, revolution is for the people!
+ - You don’t have a revolution in which you love your enemy, and you don’t have a revolution in which you are begging the system of exploitation to integrate you into it. Revolutions overturn systems. Revolutions destroy systems.
+ - I believe in a religion that believes in freedom. Any time I have to accept a religion that won’t let me fight a battle for my people, I say to hell with that religion.
+ - If the ballot doesn’t work, we’ll try something else. But let us try the ballot.
+ - I believe in human rights for everyone, and none of us is qualified to judge each other and that none of us should therefore have that authority.
+ - Anytime anyone is enslaved, or in any way deprived of his liberty, if that person is a human being, as far as I am concerned he is justified to resort to whatever methods necessary to bring about his liberty again.
+ - You spend so much time barking up the civil-rights tree, you don’t even know there’s a human-rights tree on the same floor.
+ - After you get your freedom, your enemy will respect you.
+ - In my 39 years on this earth, the Holy city of Makka had been the first time I had ever stood before the Creator of all and felt like a complete human being.
+ - But they don’t use law-they use law for their interests. They don’t go by law, international, federal, local-nothing! They go by whatever is expedient to protect the interests that are at stake.
+ - If the government can’t get the black man justice, then it’s time for the black man to get some justice for himself.
+ - Not long ago, an English writer telephoned me from London, asking questions. One was “What’s your alma mater?” I told him, “Books.” You will never catch me with a free fifteen minutes in which I’m not studying something I feel might be able to help the black man.
+ - Whenever I walk the street and see people ready to get with it, that’s my reward.
+ - Either you are a citizen or you are not a citizen at all. If you are citizen, you are free; if youre not a citizen you are a slave.
+ - I believe in the brotherhood of all men, but I don’t believe in wasting brotherhood on anyone who doesn’t want to practice it with me. Brotherhood is a two-way street.
+ - The young whites, and blacks, too, are the only hope that America has, the rest of us have always been living in a lie.
+ - And in the racial climate of this country today, it is anybody’s guess which of the ‘extremes’ in approach to the black man’s problems might personally meet a fatal catastrophe first – ‘non-violent’ Dr. King, or so-called ‘violent’ me.
+ - Muhammad teaches us the knowledge of our own selves, and of our own people. He cleans us up-morally, mentally and spiritually.
+ - Everything that came out of Europe, every blue-eyed thing, is already an American. And as long as you and I have been over here, we aren’t Americans yet.
+ - As bad as I was, as much trouble and worry as I caused my mother, I loved her.
+ - You can’t hate your origin and not end up hating yourself. You can’t hate Africa and not hate yourself.
+ - It’s easy to become a satellite today without even being aware of it. This country can seduce God. Yes, it has that seductive power; the power of the dollar.
+ - How can you thank a man for giving you what’s yours?
+ - The black man in Africa had mastered the arts and sciences. He knew the course of the stars in the universe before the man up in Europe knew that the earth wasn’t flat.
+ - I for one believe that if you give people a thorough understanding of what confronts them and the basic causes that produce it, they’ll create their own program, and when the people create a program, you get action.
+ - One of my brothers read a lot. His head was forever in some book.
+ - Everybody shall be accepted no matter what they stand for, you are not always going to agree on their faith.
+ - I think that the best thing that a person can be is sincere.
+ - History is a people’s memory, and without a memory, man is demoted to the lower animals.
+
+290 quotes

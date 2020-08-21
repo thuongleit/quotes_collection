@@ -1,0 +1,336 @@
+ - Making a better tomorrow, tomorrow.
+ - Attack life, it’s going to kill you anyway.
+ - An apple a day keeps anyone away, if you throw it hard enough.
+ - Life is an improvisation. You have no idea what’s going to happen next and you are mostly just making things up as you go along.
+ - Don’t be bitter. Everybody suffers. If you can accept your suffering then you will understand other people better. Be grateful for pain. Love life.
+ - Don’t cry over spilled milk. By this time tomorrow, it’ll be free yogurt.
+ - Truthiness is what you want the facts to be as opposed to what the facts are. What feels like the right answer as opposed to what reality will support.
+ - If this is going to be a Christian nation that doesn’t help the poor, either we have to pretend that Jesus was just as selfish as we are, or we’ve got to acknowledge that He commanded us to love the poor and serve the needy without condition and then admit that we just don’t want to do it.
+ - Cynicism masquerades as wisdom, but it is the farthest thing from it. Because cynics don’t learn anything. Because cynicism is a self-imposed blindness, a rejection of the world because we are afraid it will hurt us or disappoint us.
+ - You don’t look up truthiness in a book, you look it up in your gut.
+ - You may learn sooner than most generations the hard lesson that you must always make the path for yourself. There is no secret society out there that will tap you on your shoulder one night and show you the way.
+ - Facts matter not at all. Perception is everything. It’s certainty.
+ - If you love friends, you will serve your friends. If you love community, you will serve your community. If you love money, you will serve your money. And if you love only yourself, you will serve only yourself. And you will have only yourself.
+ - Clearly, America has no shortage of metaphorical opportunities for the poor.
+ - I’m more American than apple pie. I’m like apple pie, with a hot dog in it.
+ - Cynics always say no. Saying yes leads to knowledge. So for as long as you have the strength to, say yes.
+ - I’m a junkie for exhaustion, and I’m a junkie for setting up my expectations too high and then trying to meet them.
+ - If you’re doing nothing wrong, you have nothing to hide from the giant surveillance apparatus the government’s been hiding.
+ - If someone does offer you a job, say ‘yes.’ You can always quit later. Then at least you’ll be one of the unemployed as opposed to one of the never-employed. Nothing looks worse on a resume than nothing.
+ - The pen is mightier than the sword, if you shoot that pen out of a gun.
+ - It warps the minds of our children and weakens the resolve of our allies.
+ - What does Karl Marx put on his pasta? Communist Manipesto!
+ - Take it from me, there’s nothing like a job well done. Except the quiet enveloping darkness at the bottom of a bottle of Jim Beam after a job done any way at all.
+ - Never throw caution to the wind. It could whip back into your eyes and blind you.
+ - They said you can’t go to the moon. They said you can’t put cheese inside a pizza crust, but NASA did it. They had to, because the cheese kept floating off in space.
+ - In God’s eyes all children are beautiful but here on earth we have higher standards.
+ - I believe in pulling yourself up by your own bootstraps. I believe it is possible – I saw this guy do it once in Cirque du Soleil. It was magical.
+ - If you are a hermaphrodite, it is physically impossible to be gay.
+ - And though I am a committed Christian, I believe everyone has the right to their own religion – be you Hindu, Jewish, or Muslim, I believe there are infinite paths to accepting Jesus Christ as your personal savior.
+ - The more you know, the sadder you get.
+ - Try to love others and serve others and hopefully find those who love and serve you in return.
+ - I’ve said it a million times: Romance languages lead to premarital sex.
+ - Some say, ‘Those who ignore history are doomed to repeat it.’ I say, ‘Those who ignore history are in for a big surprise.’
+ - In order to maintain an untenable position, you have to be actively ignorant. One motto on the show is, ‘Keep your facts, I’m going with the truth.’
+ - Agnostics are just atheists without balls.
+ - Remember, you cannot be both young and wise. Young people who pretend to be wise to the ways of the world are mostly cynics.
+ - After nearly 15 minutes of soul searching, I have heard the call. Nation, I will seek the office of the president of the United States. I am doing it!
+ - And if you love only yourself, you will serve only yourself. And you will have only yourself.
+ - When meeting royalty, it is very important, no matter how excited you are, not to vomit on them. Instead, vomit on the nearest commoner.
+ - I have no interest in behaving or thinking cynically. But it’s an easy trap to be cynical about anything, certainly when you’re talking about politics or the media.
+ - Opinions are like demo tapes. I don’t want to hear yours.
+ - A press that has validity is a press that has authority. And as soon as there’s any authority to what the press says, you question the authority of the government – it’s like the existence of another authority.
+ - God works in mysterious ways but at least he works, he’s never on welfare in a mysterious way.
+ - Nothing is more vintage than dying of Rubella.
+ - I may not agree with what you have to say but I will fight you to the death for the right to fight you to the death.
+ - It’s like boxing a glacier. Enjoy that metaphor, by the way, because your grandchildren will have no idea what a glacier is.
+ - Life is chaotic and unpredictable. If a butterfly flaps its wings in one part of the world, it could cause people at the opposite end of the globe to watch a Discovery Channel special on butterflies.
+ - Folks, I don’t trust children. They’re here to replace us.
+ - There’s an old saying about those who forget history. I don’t remember it, but it’s good.
+ - Don’t get me wrong. Being a mom is no picnic. Raising the kids is the mother’s responsibility. It’s a thankless, solitary job, like sheriff or Pope.
+ - I’m disappointed that my own Catholic Church has decided that capital punishment is wrong. Which is pretty hypocritical if you think about it, because they wouldn’t even have a religion if it wasn’t for capital punishment.
+ - The shamrock is a religious symbol. St. Patrick said the leaves represented the trinity: the Father, the Son and the Holy Spirit. That’s why four leaf clovers are so lucky, you get a bonus Jesus.
+ - If women are breadwinners and men bring home the bacon, why do people complain about having no dough? I’m confused. Also hungry.
+ - It is a well known fact that reality has liberal bias.
+ - I don’t like books, they’re all fact, no heart.
+ - It used to be, everyone was entitled to their own opinion, but not their own facts. But that’s not the case anymore. Facts matter not at all. Perception is everything.
+ - The interesting thing about grief, I think, is that it is its own size. It is not the size of you. It is its own size. And grief comes to you.
+ - Who would have thought that a means of communication limited to 140 characters would ever create misunderstandin g.
+ - When I read books it’s to escape. It’s so I don’t have to talk to people.
+ - Internet users, that blue screen of death you were looking at this morning? That’s the sky. If you’re still confused, look it up on Wikipedia tomorrow.
+ - Can’t wait for tomorrow when I get to exercise my patriotic duty as an American: Complaining about how long it’s taking to VOTE.
+ - Jesus forgives sinners, not criminals.
+ - If Jesus doesn’t have a sense of humor, I am in huge trouble.
+ - Remember, Jesus would rather constantly shame gays than let orphans have a family.
+ - I live by syllogisms: God is love. Love is blind. Stevie Wonder is blind. Therefore, Stevie Wonder is God. I don’t know what I’d believe in if it wasn’t for that.
+ - Give a man a suicide bomb, he blows up once. Teach a man to suicide bomb, he also blows up once.
+ - Bill Moyers is everything I never aspire to be: Calm, Thoughtful, and Informative.
+ - Can accidentally eating halal food make you Muslim? Yes, the same way drinking a cosmo can make you gay.
+ - Class is a way of looking at society that divides people into different categories based on how much money they’re willing to make.
+ - Oops! I always thought PETA stood for Please Eat This Animal.
+ - I can’t prove it, but I can say it.
+ - You CAN make an omelette without breaking eggs. It’s just a really bad omelette.
+ - I’m getting angry at liberals.
+ - Protect yourself from Muslim vampires by making your neck non-halal.
+ - I love the Internet, and the Internet loves me back. Why else would it offer me so much sex?
+ - My grandfather did not travel across 4,000 miles of the Atlantic Ocean to see this country overrun by immigrants. He did it because he killed a man back in Ireland.
+ - North Korea is willing to go to any lengths for the whole world to honor its demands of ‘Ooh, please pay attention to us.’
+ - I’m impervious to logic.
+ - There must be a God, because I don’t know how things work.
+ - You seem cynical because you’re always talking about that selfish behavior that’s dressed up as altruism. It doesn’t mean there isn’t altruism. It just means that it’s harder to make jokes about altruism.
+ - If Obama can force you to get health insurance just by calling it a tax, than there is nothing to stop him from making you gay marry an illegal immigrant wearing a condom on a hydroponic pot farm powered by solar energy.
+ - Forgot to live-tweet the election last night, so I’m post-tweeting today. I’ll start as soon as my fingers unclench from their rage fists.
+ - If Corporations are people, I guarantee you that a government of those people, by those people, and for those people will continue to exist.
+ - If a poor family falls on hard times in the woods, and no one is around to care, did it really happen?
+ - You see, we’re America the Beautiful, not “America Well At Least She Has A Great Personality”.
+ - If we don’t cut expensive things like Head Start, child nutrition programs, and teachers, what sort of future are we leaving for our children?
+ - Arbitrary rules teach kids discipline: If every rule made sense, they wouldn’t be learning respect for authority, they’d be learning logic.
+ - Now we all know that Fidel Castro dressed up like Marilyn Monroe and gave JFK a case of syphilis so bad it eventually blew out the back of his head.
+ - Everything in nature has found a niche, a perfect harmony of balance. Man need to find his niche, his perfect balance, where he fits in the natural cycle.
+ - Baby carrots are making me gay.
+ - A father has to be a provider, a teacher, a role model, but most importantly, a distant authority figure who can never be pleased. Otherwise, how will children ever understand the concept of God?
+ - Made no mistake: America is a Christian nation. The bedrock of our theo-democracy is our Judeo-Christian values. that term, by the way, is a bit of a misnomer. It implies that Christianity and Judaism are equal.
+ - I’ve said it before: equations are the devil’s sentences. The worst one is that quadratic equation, an infernal salad of numbers, letters, and symbols.
+ - Thankfully, dreams can change. If we’d all stuck with our first dream, the world would be overrun with cowboys and princesses.
+ - There’s nothing wrong with being gay. I have plenty of friends who are going to hell.
+ - Asia: Four little letters, three billion little people.
+ - You can change the world. Please don’t do that, OK? Some of us like the way things are going now.
+ - The liberal Gluten-free agenda is turning our dogs lesbian.
+ - You know what I hate about people who criticize you? They – they criticize what you say but they never give you credit for how loud you say it.
+ - If our Founding Fathers wanted us to care about the rest of the world, they wouldn’t have declared their independence from it.
+ - And we didn’t have cell phones. If you made plans to meet someone in a snow storm, and they didn’t show up, you just had to assume they were devoured by wolves and go on with your life.
+ - Used books are the sluts of the literary world. Passed around from person to person, spreading their pages for anyone, getting cheaper and cheaper until eventually they end up in prison.
+ - Oh sure, its fine when a monkey does it. But when I throw barrels at an Italian plumber, they call it a hate crime!
+ - Global warming isn’t real because I was cold today! Also great news: world hunger is over because I just ate.
+ - America used to live by the motto “Father Knows Best.” Now we’re lucky if “Father Knows He Has Children.” We’ve become a nation of sperm donors and baby daddies.
+ - New study reveals men like to cuddle. Another study reveals men will say anything to get into bed with a woman.
+ - Status is always ripe for satire, status is always good for comedy.
+ - My guest Newt Gingrich shut down the government during the Clinton administration. I’ll ask him when it’s gonna start working again.
+ - If someone spreads hate then they’re not your religious leader.
+ - Ignorance is bliss-Oedipus ruined a great sex life by asking too many questions.
+ - There’s nothing wrong with stretching the truth. We stretch taffy, and that just makes it more delicious.
+ - Republicans: the party that brought us ‘Just Say No.’ First as a drug policy, then as their entire platform.
+ - We have no desire to make anybody look like a blithering idiot, but we do love it when they do.
+ - It’s official. Highway patrolmen are not susceptible to the Jedi Mind Trick.
+ - And of course I don’t go anywhere without my pet goldfish, Anthrax. I always tell security I’m carrying Anthrax. Yeah, sure I get a lot of guff about it, but it’s a family name; I’m not changing it.
+ - Love means never having to say you’re sorry. That’s why I never apologize to my mirror.
+ - Equations are the devil’s sentences.
+ - We’re not talking about truth, we’re talking about something that seems like truth – the truth we want to exist.
+ - It would be a very short pint. It would be gummy bears and matzah, and be called Chewy Jewy.
+ - Sure, integrating schools may sound benign. But whats the use of living in a gated community if my kids go to school and get poor all over them?
+ - You have a firm grasp of the obvious.
+ - Knock Knock. Who’s there? The Truth. No joke.
+ - I used to make up stuff in my bio all the time, that I used to be a professional ice-skater and stuff like that. I found it so inspirational. Why not make myself cooler than I am?
+ - Give a man a fish and he’ll eat for a day. Give a man a sub-prime fish loan and you’re in business, buddy!
+ - We don’t have to look for what the next thing will be. If experience is any judge, it’ll come flowing toward us like a river.
+ - Make no mistake – they’re coming for our guns. And we freedom-loving gun lovers are totally defenseless! Other than, you know, the guns.
+ - Young girls are obsessed with having a thigh gap. I blame the impossible body standards set by Spongebob.
+ - No matter how you were born, no matter how you identify, I want to be clear that I would be proud to grind you up and eat you.
+ - If you repeat it, it’s true. If you repeat it, it’s true. And through repetition, something becomes true. If you repeat it enough. Until it becomes true. Or do I need to repeat that for you?
+ - This is America. I don’t want a tomato picked by a Mexican. I want it picked by an American, then sliced by a Guatemalan and served by a Venezuelan in a spa where a Chilean gives me a Brazilian.
+ - If Germans are happy it means everyone else is miserable.
+ - President Bush, have a hot dog with me.
+ - The worst thing about affirmative action is that it encourages reverse discrimination, so-called because it goes in the opposite way of how we naturally discriminate.
+ - If you imitate someone, you owe them a royalty check. If you emulate them, you don’t. There’s a big difference. Check your lawyer.
+ - Yeah, Silver and his math are jokes, because math has a liberal bias. After all, math is the reason Mitt Romney’s tax plan doesn’t add up.
+ - Hey, single malt scotch, youre thirty years old. When are you going to settle down and get married to my stomach?
+ - If the eyes are the window to the soul, then why does it hurt when I spray them with Windex?
+ - When my car runs out of gas, I buy a new one. I don’t want to ride around with a quitter.
+ - I do my show half-hour a night four nights a week. I haven’t seen my kids in 18 months, and I am losing calcium in my bones. Doctors say I should stop. I’m not going to.
+ - There’s nothing American tourists like more than the things they can get at home.
+ - A new study shows that having a severe phobia can hasten aging. But what if my greatest fear IS aging?!?
+ - John Boehner chose a huge gavel. I think somebody’s compensating for his small government.
+ - Cardinal Dolan, of course, has a very, very hard job: trying to hold up Catholic family values in sexually liberal New York City. I’m not saying New York is the Gay Mecca. But it’s at least Gay-rusalem.
+ - NC passed law against global warming science, therefore it’s not happening. So I’m ignoring Twitter’s 140-character limit, so it’s not happ.
+ - I gut check my show. I say, I say, “Gut, gut, does that feel true to you?” And Gut says, “Yes it does, Stephen. Let’s get a grilled cheese sandwich.”
+ - I spent my first two years at a small all-male college in Virginia called Hampden-Sydney. That was like going to college 120 years ago. The languages, a year of rhetoric, all of the great books, Western Man courses, stuff like that.
+ - I thought Black Friday was when everyone puts on blackface and steals children from Wal-Mart.
+ - I can really find something interesting about almost anyone I talk to.
+ - Liberals want to burn the flag, but progressives just want to microwave it?
+ - Every night on my show, The Colbert Report, I speak straight from the gut, okay? I give people the truth, unfiltered by rational argument. I call it “The No Fact Zone.” Fox News, I hold a copyright on that term.
+ - Of course! Jeb Bush! America is hungry for another leader from that talented family!
+ - Republicans and nerds have so much in common – they both live in fantasy worlds and have no idea how to relate to women.
+ - I’m not going to name any names, but let’s just say, I want to do jokes on Donald Trump so badly, and I have no venue. So right now, I’m just dry Trumping.
+ - I’m a satirist, so I’ve got boxing gloves on if the person is worthy of satire. But I’m not an assassin.
+ - The only thing that keeps us going back to one another is that we’re all filled with such enormous self-doubt. We have doubts about our ability to be alone, to self-actualize.
+ - I’ve long been against illegal aliens, partly because they distract us from an even bigger threat: real aliens.
+ - The cost of living keeps going up, although death is surprisingly affordable.
+ - If poor people want food stamps, they should become massive corporations.
+ - Don’t cry over spilled milk – get angry and punch a cow.
+ - There’s nothing more I love than McDonald’s dollar menu. With just the change I find between my couch cushions, I can eat something with the nutritional value of a couch cushion.
+ - I believe that people, more often than not, act with the best possible intentions. And when they don’t, that’s funny to me. That’s why comedy ends up seeming cynical, because you’re talking about the gap between what people say and what they do.
+ - History moves fast. It’s hard to believe that gay Americans achieved full constitutional personhood just five years after corporations did!
+ - I’ve always been a big fan of beauty. Sure, you can’t judge a book by its cover but who wants to have sex with a book?
+ - Why would we go to war on women? They don’t have any oil.
+ - I hope you all had a wonderful Thanksgiving. Or, as it’s known to Native Americans – Sarcastic You’re Welcomesgiving.
+ - I used to play a narcissistic conservative pundit. Now I’m just a narcissist.
+ - Yes, President Romney will not take God off our coins. And that is so important because right now, just like God, the value of our currency really has to be taken on faith.
+ - You don’t need the right facts if you have the right inflection.
+ - No one has any idea what’s going to happen. Not even Elon Musk. That’s why he’s building those rockets. He wants a ‘Plan B’ on another world.
+ - John Boehner will be the new speaker unless, out of habit, he blocks his own confirmation.
+ - Mitt Romney’s email was hacked! So if you start getting messages that sound like they’re from a bot, he’s fixed the problem.
+ - Other people’s deconstruction of your motivations doesn’t help you do what you do. You can’t swallow and think about swallowing at the same time.
+ - I love the truth. It’s the facts I’m not a fan of.
+ - Sixty eight percent of Republicans don’t believe in evolution. On the other hand, only five percent of monkeys believe in Republicans.
+ - I believe that the government that governs best is a government that governs least, and by these standards we have set up a fabulous government in Iraq.
+ - I believed in global warming after Al Gore’s movie made money; the market had spoken.
+ - To all the worryworts out there who said super PACs were going to lead to a cabal of billionaires secretly buying democracy: wrong! They are publicly buying democracy.
+ - I’m not a truthiness fanatic, I’m truthiness’s father.
+ - Luckily, a recent survey published in the American Sociological Review revealed that atheists are the least trusted group in America – less trusted, even, than homosexuals. It makes sense at least we trust the homosexuals with our hair.
+ - The skinnification of America’s jeanscape has gone too far.
+ - I suppose fear is like a drug. A little bit isn’t that bad, but you can get addicted to the consumption and distribution of it.
+ - Some people perceive me as an assassin or at least someone who can slip under your guard with a knife. But if you watch what I do, that’s almost never the case. I’m just trying to keep the balloon in the air. It rarely turns into anything combative.
+ - Obama avoided the Vietnam draft with a letter from his family doctor diagnosing him as medically eight.
+ - I just think Rosa Parks was overrated. Last time I checked, she got famous for breaking the law.
+ - Atheism, a religion dedicated to its own sense of smug superiority.
+ - Here’s an easy way to figure out if you’re in a cult: If you’re wondering whether you’re in a cult, the answer is yes.
+ - After obsessively Googling symptoms for four hours, I discovered ‘obsessively Googling symptoms’ is a symptom of hypochondria.
+ - Sorry, but retirement offends me. You don’t just stop fighting in the middle of a war because your legs hurt. So why do you get to stop working in the middle of your life just because your prostate hurts? That’s desertion.
+ - Not living in fear is a great gift, because certainly these days we do it so much. And do you know what I like about comedy? You can’t laugh and be afraid at the same time – of anything. If you’re laughing, I defy you to be afraid.
+ - I’m not a fan of the facts. Facts change; my opinion never does.
+ - It’s hard to swallow your pride. That’s why I slather mine in mayonnaise.
+ - I’m an actor. I hate to blow everyone’s illusions.
+ - Christianity is the best way to cure gayness – just get on your knees, take a swig of wine, and accept the body of a man into your mouth.
+ - I could sit toe to toe at a potato table with anybody.
+ - If I’m doing a talk show or an interview, or pretty much anything where I can’t control the context, I’m loath to do the character.
+ - Thinking that other people might be better than you is what makes you Canadian, not American.
+ - It’s no surprise I am addicted to all the Republican presidential candidates. They are like crack – in that they will devastate black communities.
+ - Foreign newspapers: if they’ve got nothing to hide, how come they don’t print them in English?
+ - You have to have a passionate opinion; otherwise you sound false. You end up telling the audience jokes they’ve already heard.
+ - They say the only people who tell the truth are drunkards and children. Guess which one I am.
+ - The only thing that gets me high is the musky scent of my enemy’s fear.
+ - Mentioning Jesus in your speech: Small government. Doing what Jesus asked: Big government.
+ - I’m fascinated that people drawn to cults want to know what to do. And people want to know what to think. And people want to know how to feel. Not just what to feel but how to feel.
+ - You can’t swallow and think about your tongue. If you think about your tongue, you’ve got a giant piece of meat in your mouth and that’s a terrible feeling.
+ - I’m not here to affect you politically or socially. I’m here to make you laugh. I use the news as the palette for my jokes.
+ - Marijuana is a gateway drug that can lead to awful things, like Phish getting back together.
+ - Take the platypus – that is not a finished product. It is clearly still in beta.
+ - If God wanted us to accept gays, he’d have made us compassionate.
+ - I don’t accept the status quo. I do accept Visa, MasterCard, or American Express.
+ - What’s the worst that can happen? A tidal wave? Glaciers with guns?
+ - I have always been a fan of reality by majority vote.
+ - Am I proud of being straight? No. You know why? Because if I start acting proud, that’s going to make me seem kind of gay.
+ - The summer movies are coming out. My advice: just stay home and burn a good book.
+ - Contrary to what people may say, there’s no upper limit to stupidity.
+ - I know that the pope’s infallible, but that doesn’t mean he can’t make mistakes.
+ - You should spend more time with your families; write that novel you’ve always wanted to write. You know, the one about the fearless reporter who stands up to the administration. You know – fiction.
+ - We are the shadow cast by real people. And that shadow changes shape as the news cycle changes shape, so you always have fresh dirt to dig in.
+ - Researchers from Britain’s Keele University have found that swearing after an injury may help alleviate pain. Evidently, the pain that you feel is inversely proportional to the number of middle names you give Jesus.
+ - It’s August, which means Congress is on recess and Mitch McConnell has shimmied back into the ocean to seek a mate.
+ - Odyssey Dawn? That’s not a military operation. That’s a Carnival Cruise ship.
+ - If you use big words, no one will know you aren’t doing jack squat.
+ - Speak from the balls, not from the diaphram.
+ - Will Herman Cain become the first black President that I acknowledge? I call him a dark horse because he’s an unlikely candidate who surged forward, and not because he’s a horse.
+ - Shamelessness is a wonderful part of the character.
+ - Throughout human history, countries rise and fall. But not America-we continue to rise and rise, like dough, until Jesus bakes us in the fiery Afterscape of the Rapture.
+ - Who’s Britannica to tell me that the Panama Canal was built in 1914? If I want to say that it was built in 1941, that’s my right as an American.
+ - All Dogs Go To Heaven? Sorry, kids. It’s only the dogs who’ve accepted Christ.
+ - I hold a little fundraiser every day. Its called going to work.
+ - That’s why our TVs are brimming with so much hot man-on-pan action. You can’t channel surf for long without seeing turkey getting stuffed over and over until they finally cut to the gravy shot.
+ - Gravitas is the soup bone in the stew of television news.
+ - Leaving religious texts open too interpretation is the downfall of religion itself. If it is truly the word of God then there is no room for interpretation; you either take all of it or none. There is no selective belief.
+ - If we raise taxes on corporations, what incentive will they have to make money other than the fact that it’s the sole reason they exist.
+ - Well China, you got us. Phelps was doping – and he still beat you. He smoked the sticky-icky, and then he smoked your ass!
+ - I guess 14% plus Jesus equals victory.
+ - Warmth is to sun, as truth is to me.
+ - You don’t want to just do a joke because it works – we can make a lot of jokes work – you want to do a joke because it will hopefully build into an argument.
+ - Scientists have invented a new strain of cannabis without the high. They celebrated with non-alcoholic beer and furious dry-humping.
+ - I’ll make fun of anybody. We’re all about falling down and going boom on camera.
+ - I would say laughter is the best medicine. But it’s more than that. It’s an entire regime of antibiotics and steroids.
+ - If I had one wish, it would be for self-drying pants. Wait – no! Unlimited wishes! How do I return these stupid pants?!
+ - Obamacare needs the premiums of healthier people to cover the costs of sicker people. It’s a devious con that can only be described as insurance.
+ - I don’t get why the government is the only one that gets to print money.
+ - I can’t be gay! I’m a happily married conservative, just like Ted Haggard and Larry Craig.
+ - Ghost of Bobby: no, no you can’t eat me. I’m a ghost. Stephen Colbert: That just means that there’s less bones to pick out.
+ - I’m off for two weeks, so until I get back, take the characters in this tweet and parcel them out one per day. Use this Q wisely.
+ - Now, for my younger viewers out there, a book is something we used to have before the internet. It’s sort of a blog for people with attention spans.
+ - I’ve been accused of being unambitious, but what I do takes up every minute. I’m executive producer, I’m a writer and the host.
+ - Now you’ll have to wait for hours in line for medical care instead of immediately not getting any.
+ - I deliver my Truth hot and hard.
+ - America cannot afford a rally to restore sanity in the middle of a recession. Did you even consider how many panic-related jobs that might cost us in the fear-industrial complex?
+ - I not only loved studying theater, I loved being a theater major. It gave me an excuse to brood, to grow a beard, to wear black ‘at’ people. I didn’t just want to play Hamlet, I wanted to be Hamlet.
+ - Yes, Dr. King is pro-gun just as surely as Jesus would be pro-nails.
+ - Winning the Nobel Prize does not automatically qualify you to be commander in chief. I think George Bush has proved definitively that to be president, you don’t need to care about science, literature or peace.
+ - Hey yogurt, if you’re so cultured, how come I never see you at the opera?
+ - If you’re injecting fear into other people, then you’re trying to kill their minds. You’re trying to get them to stop thinking.
+ - Football is American; why are the Romans numering our bowls?!
+ - I don’t like the new president who hunts muslim extremists, I like the old president who is a muslim extremist.
+ - Can you really put a price on annoying two religions at once?
+ - While skin and race are often synonymous, skin cleansing is good, race cleansing is bad.
+ - It’s the way our founding fathers would have wanted it, if they had founded corporations instead of just a country.
+ - Last night was Super Tuesday – a 10-state GOP Primary orgy. A big, sweaty pile of lever-yankin Republican voters. And like most orgies, it involves a bunch of middle aged guys who are not appealing to women.
+ - There is no food closer to my heart than cheese. In fact, according to my doctor, it has nearly filled my aorta.
+ - Everybody loves dogs. They’re the pizza of the animal kingdom.
+ - Nothing reassures parents more than surrounding their kids with the kind of guys who have a lot of weapons and nothing to do on weekdays.
+ - Keep your facts, I’m going with the truth.
+ - Laughter brings the swelling down on our national psyche.
+ - Charles Darwin got totally hammered, woke up next to a monkey and decided he had to come up with a theory to make it all okay.
+ - I’m the frosting on America’s cake, and tonight I’m willing to let you lick the bowl.
+ - Women don’t want all that. Women just want a partner who is considerate and attentive, who will spoon with them while reciting Keats, and feed them organic yogurt by candlelight on a seaside cliff at sunset.
+ - Contraception leads to more babies being born out of wedlock, like fire extinguishers lead to more fires.
+ - The greatest threat facing American today – next to voter fraud, the Western Pinebark beetle, and the memory foam mattress – is the national news media.
+ - For me, improvisation is about working with a partner. That is much easier to do in the interview, because you have a sounding board.
+ - My mom kind of led me toward acting. She wanted to be an actress when she was younger. That made me interested in it when I was a kid, because she and I are very close.
+ - I don’t want someone shoving his views down my throat, unless they’re covered in a crunchy candy shell.
+ - Washington is dangerously positioned between two Canadas, Canada Canada and California’s Canada, Oregon.
+ - You said in your book that at the end of the day, every politician is human. What about during the day?
+ - I am no fan of books.
+ - In order to be a top-tier candidate, I need 7.5 million dollars, and I currently have 0.0 million dollars.
+ - Join me in standing up against any actual knowledge about guns. Let the CDC know they can take away our ignorance when the pry it from our cold dead minds.
+ - If you think you can lead your flock of sheeple and peeps to some glorified noodle fest on the mall, you got another thing coming, mister.
+ - It’s a game. That’s why we call it ‘the news.’ It’s just a game.
+ - Texas governor Rick Perry has been in the race only three days, and he’s already blowing away the competition like it is a trespassing coyote.
+ - If anybody needs anything else at their tables, just speak slowly and clearly into your table numbers. Someone from the NSA will be right over with a cocktail.
+ - Any religion whose messiah’s name isn’t recognized by Microsoft Word can’t be that much of a threat.
+ - There’s a buzz to failing and not dying.
+ - Facebook stock continues to plummet. People started selling once they found out their mom bought it too.
+ - I love being onstage.
+ - I have a generally liberal audience, but they will applaud when I nail a liberal lion.
+ - Take away the Big Bang and what has God done? Burned a bush and got a girl pregnant. Great, he’s a high school junior.
+ - I hope people’ll find out pretty quickly that the guy they saw for 10 years was my sense of humor the whole time.
+ - Comedians dissect jokes all the time. Comedians are beautiful structuralists. But ultimately it’s an athletic endeavor.
+ - Northwestern’s alumni list is truly impressive. This university has graduated best-selling authors, Olympians, presidential candidates, Grammy winners, Peabody winners, Emmy winners, and that’s just me!
+ - Yesterday in a 25 to 24 vote, Republicans welcomed back Lott back into their leadership and named him minority whip. That is great for Trent. They say minority whip is a stepping stone to Grand Wizard.
+ - In America, we know to ignore artists if they’re serious in any way.
+ - I gotta tell you, I do not envy whoever they try to put in David Letterman’s chair. Folks those are some huge shoes to fill, and some really big pants.
+ - We claim no respectability. There’s no status I would not surrender for a joke. So we don’t have to defend anything.
+ - I am down with the latest trends. And everyone knows, the thing on the streets is vampires. So I have been biting people on the neck.
+ - Now I don’t know why he’s denying them habeas corpus. I can only assume the guys they got detained over there did something really unforgivable. Like remind Obama he was once a professor of Constitutional Law.
+ - What the right-wing in the United States tries to do is undermine the press.
+ - I won’t be doing the new show in character, so we’ll all get to find out how much of him was me. I’m looking forward to it.
+ - I didn’t realize quite how liberal I was until I was asked to make passionate comedic choices as opposed to necessarily successful comedic choices.
+ - This is America. We must defend the principles symbolized by Lady Liberty – unless she’s on the pill, in which case, she is a giant green tramp.
+ - Once I’m performing the show, I think that hour show has a certain intimacy with our audience. And that intimacy is through the lens and the live audience is a witness to that, whereas the audience at home is actually the object of my efforts.
+ - My brother Billy was the joke teller. My brother Jim had a really sharp, cutting wit. And the teller of long stories, that was my brother Ed. As a child, I just absorbed everything they said, and I was always in competition for the laughs.
+ - Cain understands domestic issues because he had experience selling pizza; and he understands international issues because pizza is Italian.
+ - If I had free time to go to Los Angeles to shoot a movie, I would rather spend it with my kids.
+ - In the beginning, a monkey evolutioned gay marriage.
+ - Destroying a religious symbol and building a religious center are really the same thing if you don’t think about it.
+ - The fate of our country is now in the hands of people who don’t think about what they want until they get right up to the register at McDonald’s.
+ - I believe Sarah Palin is a true statesman, whose experience as a failed vice presidential candidate, half-term governor and eight-episode reality star has fully prepared her to take control of our nuclear arsenal.
+ - I’m just very interested in what my guests have to say. You have to be vigilant to stay ignorant.
+ - Warning: I may contain more than a trace amount of nut.
+ - If I had a dime for everytime that I was wrong, I’d be broke.
+ - So if animals aren’t our friends, then what are they? The answer can be summed up between two buns.
+ - Summer movie idea: take all the sequels that are out right now, and make movies about their backstories.
+ - The lead singer of Creed says he won’t endorse President Obama. Well that settles it – Obama will not win the 1998 presidential election.
+ - If it’s called the USA Today, why is all the news from yesterday?
+ - I love being onstage. I love the relationship with the audience. I love the letting go, the sense of discovery, the improvising.
+ - Arby’s: If I was about to be killed, I would eat it.
+ - I love the earth. If you ask me it’s the greatest planet in the world.
+ - I’m a huge news junkie. I love what the news does.
+ - Today, folks, should be all about love. Unless you’re old.
+ - I hadn’t intended to end up there. I meant to be a serious actor with a beard who wore a lot of black and wanted to share his misery with you.
+ - Obamacare takes effect in less than eight months. Do you realize what this means? If you go to the emergency room now, you’ll be covered by the time you finally see a doctor.
+ - NASA scientists have discovered a new form of life, unfortunately, it won’t date them either.
+ - News for the godless: religion is inescapable. there has never been a human society without some form of worship. And don’t point to communist societies like the Soviet Union – they worshipped blue jeans.
+ - On this show, your voice will be heard – in the form of my voice.
+ - There’s a wonderfully cooperative relationship between management and labor right now. Much like the historic partnership between oranges and a juicer.
+ - As a rule, Germans shouldn’t do comedy. Their last box office comedy was Nosferatu.
+ - Republicans will need to work hard to capture the Latino vote instead of their current strategy of capturing Latinos.
+ - Apply Truth liberally to the inflamed area.
+ - Thirty seconds is the exact amount of time Americans can tolerate something they don’t understand.
+ - I wrote things for the school’s newspaper, and – like all teenagers – I dabbled in poetry.
+ - I love making observations. That one is a classic example.
+
+334 quotes

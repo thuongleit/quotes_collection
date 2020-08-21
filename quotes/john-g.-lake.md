@@ -1,0 +1,44 @@
+ - We cannot exercise our faith beyond what we believe to be possible.
+ - Sanctification is possessing the mind of Christ.
+ - We are awakening to that marvelous truth, that Christ is not in the heavens only, nor the atmosphere only, but Christ is in you.
+ - Fear of the devil is nonsense. Fear of demons is foolish. The Spirit of God anointing the Christian heart makes the soul impregnable to the powers of darkness.
+ - Miracles are creative. Healing is the restoration of what has been.
+ - Jesus did not heal the sick in order to coax them to be Christians. He healed because it was His nature to heal.
+ - In Christ we become God’s sons, man’s servants and the devil’s masters.
+ - The secret of Christianity is in being. It is in being a possessor of the nature of Jesus Christ.
+ - Take the words of Jesus and let them become the Supreme Court of the Gospel to you.
+ - When a Christian tries to live by reason he is moving out of God’s country into the enemy’s land. We belong in the miraculous and the supernatural realm.
+ - For the sake of a dying, suffering world count the cost, pay the price and set the captives free.
+ - Science is the discovery of how God does things.
+ - Beloved, it is not our long prayers but our believing God that gets the answer.
+ - The glory of God is as destructive of evil as it is creative of good.
+ - Christ is at once the spotless descent of God into men and the sinless ascent of man into God, and the Holy Spirit is the Agent by whom this is accomplished.
+ - Men have said that the cross of Christ was not a heroic thing, but I want to tell you that the cross of Jesus Christ has put more heroism in the souls of men than any other event in human history.
+ - The ministry of Christianity is the ministry of the Spirit. It is the Spirit of God that inhabits the words, that speaks to the spirit of another and reveals Christ in and through him.
+ - Beloved, if any unholiness exists in the nature, it is not there by the consent of the Spirit of God. If unholiness is in your life it is because your soul is giving consent to it, and you are retaining it. Let it go. Cast it out and let God have His way in your life.
+ - The invitation is not, “Give Me thine head.” The invitation is, “My Son, give Me thine heart.”
+ - If you are having the right kind of spiritual fellowship, you will have power with God, and there is no escaping it!
+ - I feel that very frequently prayer is made a refuge to dodge the action of faith.
+ - When I saw for the first time by the Word of God that sickness was not the Will of God, everything in my nature rose up to defeat the will of the devil.
+ - It is a sad thing when you hear Christians with a groan in them. When I meet the groaner, I say in my heart, “God, move that man on into the place where he comprehends what Christianity is.”
+ - There is a mighty lot of difference between saying prayers and praying.
+ - Salvation is not just something God gives you that is going to bless you after you die, it is having the presence of the lord now.
+ - There were days when the Church could club men into obedience by preaching Hell to them, but that day has long passed. The world has outgrown it.
+ - If the Church ever succeeds in doing that big thing, that great thing, that unspeakable thing that God purposes that we should do, it can only be when we enter into that Divine compassion of the Son of God.
+ - The power of God, the Holy Ghost, is the Spirit of Dominion. It makes one a god.
+ - Healing is not always obtained by saying a prayer. It is obtained by obeying God.
+ - The great majority of the Christian world is still weeping at the foot of the cross. The consciousness of man is fixed on the Christ Who died, not the Christ Who LIVES. They are looking back to the Redeemer Who was, not the redeemer who IS.
+ - It became easy for me to detach myself from the course of life, so that while my hands and mind were engaged in the common affairs of every day, my spirit maintained its attitude of communion with God.
+ - There is only one reality. That reality is God. The soul of man must contact God, and unless the spirit of man is truly joined to God, there is no such thing as real Christian manifestation.
+ - Lord, take every cursed thing out of my soul that keeps me from believing the Lord Jesus Christ.
+ - The reason that people do not have a rich, beautiful faith is that their spirit is denied the privilege of communion and fellowship with the Father.
+ - A holy mind cannot repeat a vile thing, let alone be the creator of a vile suggestion.
+ - A mans life will be of the character of his thought. His outward life will be as the inner impulse is.
+ - Men tell us in these days that sin is what you think it is. Well, it is not. Sin is what God thinks it is. You may think according to your own conscience. God thinks according to His.
+ - Do you know what prayer is? It is not begging God for this and that. The first thing we have to do is to get you beggars to quit begging until a little faith moves in your souls.
+ - We live that our souls may grow. The development of the soul is the purpose of existence. God Almighty is trying to obtain some decent association for Himself.
+ - The wonder is that Jesus purposed to make your heart and mine just as sweet and lovely and pure and holy as His own.
+ - It is almost a sadness to my soul that men should be astonished and surprised at an ordinary, tangible evidence of the power of God.
+ - God, move that man on into the place where he comprehends what Christianity is.
+
+42 quotes

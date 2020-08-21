@@ -1,0 +1,231 @@
+ - The task of the leader is to get people from where they are to where they have not been. 
+ - Control oil and you control nations; control food and you control the people.
+ - A diamond is a chunk of coal that is made good under pressure.
+ - Does anyone have any questions for my answers?
+ - Who controls the food supply controls the people; who controls the energy can control whole continents; who controls money can control the world.
+ - Who controls money controls the world.
+ - If you do not know where you are going, every road will get you nowhere.
+ - To be an enemy of America can be dangerous, but to be a friend is fatal.
+ - Diplomacy: the art of restraining power.
+ - Accept everything about yourself – I mean everything, You are you and that is the beginning and the end – no apologies, no regrets.
+ - Corrupt politicians make the other ten percent look bad.
+ - Each success only buys an admission ticket to a more difficult problem.
+ - University politics are vicious precisely because the stakes are so small.
+ - America has no permanent friends or enemies, only interests.
+ - There cannot be a crisis next week. My schedule is already full.
+ - It is not a matter of what is true that counts, but a matter of what is perceived to be true.
+ - In the end, peace can be achieved only by hegemony or by balance of power.
+ - I don’t read books, I write them.
+ - The illegal we do immediately. The unconstitutional takes a little longer.
+ - NAFTA is a major stepping stone to the New World Order.
+ - We must learn to distinguish morality from moralizing.
+ - A little uncertainty is good for everyone.
+ - The test of policy is how it ends, not how it begins. Foreign policy is the art of establishing priorities. Demonization is not a policy; it is an alibi for the absence of one. The test is not absolute satisfaction but balanced dissatisfaction.
+ - Military men are just dumb, stupid animals to be used as pawns in foreign policy.
+ - If we do what is necessary, all the odds are in our favor.
+ - The enemies you make by taking a decided stand generally have more respect for you than the friends you make by being on the fence.
+ - The absence of alternatives clears the mind marvelously.
+ - Superstars strive for approbation; heroes walk alone. Superstars crave consensus; heroes define themselves by the judgment of a future they see it as their task to bring about. Superstars seek success in a technique for eliciting support; heroes pursue success as the outgrowth of inner values.
+ - World population needs to be decreased by 50%.
+ - There is no realism without an element of idealism.
+ - A bluff taken seriously is more useful than a serious threat interpreted as a bluff.
+ - I don’t stand on protocol. Just call me your Excellency.
+ - The emergence of a unified Europe is one of the most revolutionary events of our time.
+ - Oil is much too important a commodity to be left in the hands of the Arabs.
+ - An Iranian moderate is one who has run out of ammunition.
+ - China has had a long and complex history and has managed to evolve its own culture for 4,000 years. It therefore not necessarily true that we know exactly what is best for the internal structure of China.
+ - A leader does not deserve the name unless he is willing occasionally to stand alone.
+ - While we should never give up our principles, we must also realize that we cannot maintain our principles unless we survive.
+ - Access to natural resources can become a question of survival for many states.
+ - The conventional army loses if it does not win. The guerrilla wins if he does not lose.
+ - It is one of history’s ironies that Communism, advertised as a classless society, tended to breed a privileged class of feudal proportions.
+ - Statesmen think in terms of history and view society as an organism. Prophets are different since they believe absolute aims can be achieved in the foreseeable future. More people have been killed by crusaders than by statesmen.
+ - University politics make me long for the simplicity of the Middle East.
+ - The elderly are useless eaters.
+ - Depopulation should be the highest priority of foreign policy towards the third world, because the US economy will require large and increasing amounts of minerals from abroad, especially from less developed countries.
+ - Whatever must happen ultimately should happen immediately.
+ - History is not, of course, a cookbook offering pretested recipes. It teaches by analogy, not by maxims. It can illuminate the consequences of actions in comparable situations, yet each generation must discover for itself what situations are in fact comparable.
+ - There are only two reasons to sit in the back row of an airplane: Either you have diarrhea, or you’re anxious to meet people who do.
+ - High office teaches decision making, not substance. It consumes intellectual capital; it does not create it. Most high officials leave office with the perceptions and insights with which they entered; they learn how to make decisions but not what decisions to make.
+ - Every civilization that has ever existed has ultimately collapsed. History is a tale of efforts that failed, or aspirations that weren’t realized. So, as a historian, one has to live with a sense of the inevitability of tragedy.
+ - I am being frank about myself in this book. I tell of my first mistake on page 850.
+ - The nice thing about being a celebrity is that, if you bore people, they think it’s their fault.
+ - The real distinction is between those who adapt their purposes to reality and those who seek to mold reality in the light of their purposes.
+ - Behind the slogans lay an intellectual vacuum.
+ - China is a one party state. Sooner or later China will get to the point when the new social classes, which have emerged thanks to economic success, will have to be integrated into the political system. There is no guarantee that this process will run smoothly.
+ - A leader who confines his role to his people’s experience dooms himself to stagnation; a leader who outstrips his people’s experience runs the risk of not being understood.
+ - NAFTA represents the single most creative step towards a New World Order.
+ - At any rate, mutually assured destruction was never our policy.
+ - I don’t see why we need to stand by and watch a country go communist due to the irresponsibility of its people. The issues are much too important for the Chilean voters to be left to decide for themselves.
+ - The Chinese, on the other hand, were in the position of having an American military spy plane on a Chinese military base and they had their own internal problems to deal with. At first, the Chinese weren’t all that belligerent. They were just stalling to get their own bureaucracy in line.
+ - What we in America call terrorists are really groups of people that reject the international system.
+ - The art of good foreign policy is to understand and to take into consideration the values of a society, to realize them at the outer limit of the possible.
+ - Tutelage is a comfortable relationship for the senior partner, but it is demoralizing in the long run. It breeds illusions of omniscience on one side and attitudes of impotent irresponsibility on the other.
+ - Before there was the Soviet Union that could inflame matters. Now you have states not as powerful as the Soviet Union, but states like Iraq, like Iran, and to some extent Syria, having made it possible for some of these groups to operate. So it is a very difficult situation.
+ - I have learned, as I wrote, that history must be discovered, not declared. It’s an admission that one grows in life.
+ - America has made it very clear in several administrations that if there is an attack by China on Taiwan, the United States is very likely to resist.
+ - When you travel as secretary, one problem you have is that the press comes with you and wants an immediate result because it justifies their trip. And sometimes the best result is that you don’t try to get a result but try to get an understanding for the next time you go to them.
+ - I believe it is a mistake to isolate arms control from other areas of policy.
+ - Most high officials leave office with the perceptions and insights with which they entered...
+ - Obama is like a chess player who is playing simultaneous chess and has opened his game with an unusual opening.
+ - In crises the most daring course is often safest.
+ - You should not think that you can shape history only by your will. This is also why I’m against the concept of intervention when you don’t know its ultimate implications.
+ - It is frankly a mistake of amateurs to believe you can gain the upper hand in a diplomatic negotiation.
+ - Peace depends ultimately not on political arrangements but on the conscience of mankind.
+ - Certainly not a party of the workers and the peasants. In fact, Jiang Zemin in recent weeks has officially said that capitalists and the entrepreneurs should be enrolled in the Communist Party.
+ - Democracy is too important to leave up to the votes of the people.
+ - Donald Rumsfeld is the most ruthless man I have ever met? and I mean that as a compliment.
+ - Taiwan will probably not declare independence. The question isn’t independence. The issue is whether Taiwan will declare itself as a sovereign separate state. That will start a huge crisis if that happens.
+ - Baseball is the most intellectual game because most of the action goes on in your head.
+ - Withdrawal of US troops will become like salted peanuts to the American public: The more US troops come home, the more will be demanded.
+ - Competing pressures tempt one to believe that an issue deferred is a problem avoided; more often it is a crisis invited.
+ - Realism in foreign policy means careful consideration of all aspects pertinent to the issue, before taking a decision. This is the only way you can move from where you are to someplace else.
+ - If peace is equated simply with the absence of war, it can become abject pacifism that turns the world over to the most ruthless.
+ - I can think of no faster way to unite the American people behind George W. Bush than a terrorist attack on an American target overseas. And I believe George W. Bush will quickly unite the American people through his foreign policy.
+ - For any student of history, change is the law of life. Any attempt to contain it guarantees an explosion down the road; the more rigid the adherence to the status quo, the more violent the ultimate outcome will be.
+ - Intelligence is not all that important in the exercise of power, and is often, in point of fact, useless.
+ - You can’t make war in the Middle East without Egypt and you can’t make peace without Syria.
+ - Moderation is a virtue only in those who are thought to have an alternative.
+ - Covert action should not be confused with missionary work.
+ - We believe that peace is at hand.
+ - The American temptation is to believe that foreign policy is a subdivision of psychiatry.
+ - No country can act wisely simultaneously in every part of the globe at every moment of time.
+ - The convictions that leaders have formed before reaching high office are the intellectual capital they will consume as long as they continue in office.
+ - The nuclear weapons were not useful for the achievement of political objectives.
+ - I don’t consider China a communist state, no. I know that sounds paradoxical, but it’s my view.
+ - A return to the 1967 lines and the abandonment of the settlements near Jerusalem would be such a psychological trauma for Israel as to endanger its survival.
+ - Our nation is uniquely endowed to play a creative and decisive role in the new order which is taking form around us.
+ - History knows no resting places and no plateaus.
+ - I have always expressed respect for those people who make public declarations.
+ - It is steady, reliable, tough. It never yields to panic. It is never defeated one-sidedly. It achieves everything attainable by character and tenacity.
+ - Most foreign policies that history has marked highly, in whatever country, have been originated by leaders who were opposed by experts.
+ - The Vietnam War required us to emphasize the national interest rather than abstract principles. What President Nixon and I tried to do was unnatural. And that is why we didn’t make it.
+ - The capacity to admire others is not my most fully developed trait.
+ - I do not criticize people who take a public stand on human rights issues. I express my respect for them. But some people are more influential without a public confrontation.
+ - It is barely conceivable that there are people who like war.
+ - To have the United States suddenly come up with a peace proposal after a whole series of terrorist attacks is going to show to the world that this sort of method is something that western societies can’t stand.
+ - You become a superpower by being strong but also by being wise and by being farsighted. But no state is strong or wise enough to create a world order alone.
+ - In a nuclear war, even if one side were to come out ahead by systems analytical standards, both sides would be so weakened, that it would – they would be in the position of Europe after the two World Wars.
+ - The security of Israel is a moral imperative for all free peoples.
+ - Even a paranoid can have enemies.
+ - Leaders are responsible not for running public opinion polls but for the consequences of their actions.
+ - Over time even two armed blind men in a room can do enormous damage to each other, not to speak of the room.
+ - Intellectuals are cynical and cynics have never built a cathedral.
+ - I go out with actresses because I’m not apt to marry one.
+ - It is always easy to divide the world into idealists and power-oriented people. The idealists are presumed to be the noble people, and the power-oriented people are the ones that cause all the world’s trouble.
+ - An expert is someone who articulates the needs of those in power.
+ - A country that demands moral perfection in its foreign policy will achieve neither perfection nor security.
+ - The one thing man fears is the unknown. When presented with this scenario, individual rights will be willingly relinquished for the guarantee of their well-being granted to them by a World Government, a New World Order.
+ - With proper tactics, nuclear war need not be as destructive as it appears.
+ - We cannot always assure the future of our friends; we have a better chance of assuring our future if we remember who our friends are.
+ - The American foreign policy trauma of the sixties and seventies was caused by applying valid principles to unsuitable conditions.
+ - If I should ever be captured, I want no negotiation – and if I should request a negotiation from captivity they should consider that a sign of duress.
+ - Revolutionaries are rarely motivated primarily by material considerations-though the illusion that they are persists in the West.
+ - I had an opportunity to express my views, yes. I agreed with the approach which we took, namely, to make a distinction between the loss of life of the Chinese pilot and our military operations outside territorial waters or territorial limits.
+ - One has to remember that every progress that has been made towards peace in the Middle East has come under American leadership.
+ - President Nixon in his inaugural address indicated that he wanted an era of negotiation. Our reasoning was that whatever our ideological differences, whatever our geopolitical differences, we were condemned to coexistence by nuclear weapons.
+ - The American formal position has been that we oppose violence by governments against their people. That principle should not be abandoned.
+ - The key decision for a statesman is whether to commit his nation or not. There is no middle course. Once a great nation commits itself, it must prevail. It will acquire no kudos for translating its inner doubts into hesitation.
+ - I believe in freedom of expression, and I believe that societies thrive when they permit freedom of expression.
+ - What political leaders decide, intelligence services tend to seek to justify.
+ - Blessed are the people whose leaders can look destiny in the eye without flinching but also without attempting to play God.
+ - We are doomed to coexist.
+ - Every civilization that has ever existed has ultimately collapsed.
+ - Jews were segregated from 1933 on. We could only play against other Jewish teams. This wasn’t just social segregation; this was the beginning of the extermination of the Jews. That’s why my family left Germany in 1938.
+ - Statesman create; ordinary leaders consume. The ordinary leader is satisfied with ameliorating the environment, not transforming it; a statesman must be a visionary and an educator.
+ - You should not go to war for the privilege of withdrawal. You need to define your objective and the outcome, and it cannot be the removal of one man.
+ - To revolutionaries the significant reality is the world which they are fighting to bring about, not the world they are fighting to overcome.
+ - No foreign policy – no matter how ingenious – has any chance of success if it is born in the minds of a few and carried in the hearts of none.
+ - Administration has managed the extraordinary feat of having, at one and the same time, the worst relations with our allies, the worst relations with our adversaries, and the most serious upheavals in the developing world since the end of the Second World War.
+ - We attempted to try to solve every problem in the world, out of a sense of moral obligations, and attitudes, and our history. But no country can solve every problem without exhausting itself. Therefore, we have to establish priorities.
+ - I want to thank you for stopping the applause. It is impossible for me to look humble for any period of time.
+ - If eighty percent of your sales come from twenty percent of all of your items, just carry those twenty percent.
+ - It is an act of insanity and national humiliation to have a law prohibiting the President from ordering assassination.
+ - Power is the great aphrodisiac.
+ - Diplomats operate through deadlock, which is the way by which two sides can test each other’s determination. Even if they have egos for it few heads of government have the time to resolve stalemates, their meetings are too short and the demands of protocol too heavy.
+ - I also do not believe that the United States can let itself be driven into a political role by escalating terrorism, and therefore, the leaders of the Arab world and Arafat should do their utmost to put an end to this and then the United States should do its utmost to produce a political solution.
+ - Left to its own devices, the State Department machinery tends toward inertia rather than creativity; it is always on the verge of turning itself into an enormous cable machine.
+ - In my particular case foreign policy happens to be my hobby, my consuming interest. I had spent decades studying it.
+ - A nation riven by factions, in which the minority has no hope of ever becoming a majority, or in which some group knows it is perpetually outcast, will seem oppressive to its members, whatever the legal pretensions.
+ - No one will ever win the battle of the sexes; there’s too much fraternizing with the enemy.
+ - Now when I bore people at a party they think it’s their fault.
+ - Let us fashion together a new world order.
+ - The defining issue is that the government in Taiwan was considered to be the government of all of China, and the authorities in Beijing were not recognized as a government of China. So Taiwan was the residuary for all of China.
+ - American politics are normally a result of pragmatic and not philosophical reasoning. No one in Washington has said we now prefer multilateralism.
+ - How to Achieve The New World Order.
+ - The idea of abstract power only exists for academics, not in real life.
+ - Some of the critics viewed Vietnam as a morality play in which the wicked must be punished before the final curtain and where any attempt to salvage self-respect from the outcome compounded the wrong. I viewed it as a genuine tragedy. No one had a monopoly on anguish.
+ - The Russian empire under czars and commissars has been hard to deal with for other countries.
+ - Clearly security without values is like a ship without a rudder. But values without security are like a rudder without a ship.
+ - This is awful. Do it again.
+ - In his essay, ‘Perpetual Peace,’ the philosopher, Immanuel Kant, argued that perpetual peace would eventually come to the world in one of two ways, by human insight or by conflicts and catastrophes of a magnitude that left humanity no other choice. We are at such a juncture.
+ - I believe that without Watergate we would have had an extraordinary period of success with a strong Nixon and a still vital Brezhnev in power.
+ - For other nations, utopia is a blessed past never to be recovered; for Americans it is just beyond the horizon.
+ - I think China will do nothing to obstruct it, and they probably will go along with it.
+ - Americans believe that you can alter people by conversion, and that everybody in the world is a potential American. The Chinese also believe that their values are universal, but they do not believe that you can convert to becoming a Chinese unless you are born into it.
+ - I believe that there is a whole set of issues in the world – environment, proliferation, energy, cyberspace – that can only be dealt with on a global basis. The traditional patterns of national rivalry and national competition are not suitable for those cases.
+ - Well, the capacity of French intellectuals to understand a Texan way of thinking is finite.
+ - Well, he keeps saying that, and as defense secretary, of course he has to think of a lot of potential enemies. I do not think it’s a wise course to articulate this or to base our policy on it. And I do not see under modern circumstances what we would be fighting about.
+ - History is the memory of States.
+ - People think responsibility is hard to bear. It’s not. I think that sometimes it is the absence of responsibility that is harder to bear. You have a great feeling of impotence.
+ - I see the future of China as growth. I think that historically China has often gone through periods of consolidation, and then periods of sort of weakening central authority. They undoubtedly face tremendous challenges.
+ - It is, after all, the responsibility of the expert to operate the familiar and that of the leader to transcend it.
+ - The statesman’s duty is to bridge the gap between his nation’s experience and his vision.
+ - Our greatest foreign policy problem is our divisions at home. Our greatest foreign policy need is national cohesion and a return to the awareness that in foreign policy we are all engaged in a common national endeavor.
+ - In a diplomatic negotiation, you always meet the same the other side all the time. Even if you should succeed in outsmarting him or in pressuring him, it only sets up a cycle in which he will try to get even.
+ - In relations with many domestically weak countries, a radio transmitter can be a more effective form of pressure than a squadron B-52s.
+ - What China would do, I cannot predict. China has all but given up the claim to the use of force, except in the circumstance of Taiwan declaring its independence. That is a huge step forward over what the situation was many years ago.
+ - Realism in foreign policy is made up of a clear set of values, since difficult foreign policy decisions are often decided with the narrowest of majorities. Without any sense of what is right and wrong, one would drown in a flood of difficult and pragmatic decisions.
+ - The Israelis want security. The Arabs want dignity. And they consider the demands of each other as incompatible.
+ - Any fact that needs to be disclosed should be put out now or as quickly as possible, because otherwise the bleeding will not end.
+ - Certainly nothing is easier than to rewrite history. If we had made Taiwan a separate state, it would have led to a fundamental conflict with China, and probably to war. Certainly in the long term, it would have led to war.
+ - In my life, I have almost always been on the side of active foreign policy. But you need to know with whom you are cooperating. You need reliable partners.
+ - It was a Greek tragedy. Nixon was fulfilling his own nature. Once it started it could not end otherwise.
+ - For the Soul of France is masterful history, brilliantly researched, and hard to put down.
+ - I have great respect for the Taiwanese. They have done an extraordinary job. But it was not a sustainable position to say that the legitimate government of China resides in Taiwan, which at that time didn’t have much contact with the mainland.
+ - The true conservative is not at home in social struggle. He will attempt to avoid unbridgeable schism, because he knows that a stable social structure thrives not on triumphs but on reconciliations.
+ - I grew up as a discriminated minority in a dictatorship, so obviously the issue of human rights is a matter of concern for me.
+ - The position is that stability and peace in Asia depend on a cooperative relationship between China and the United States.
+ - Any international system must have two key elements for it to work. One, it has to have a certain equilibrium of power that makes overthrowing the system difficult and costly. Secondly, it has to have a sense of legitimacy.
+ - In the middle ’50s, I had written that the point would come, inevitably, at which the relationship between the cause of conflict and political objectives would be lost.
+ - In my view, there’s no doubt that the Soviets had infinitely greater trouble holding their structure together than we did.
+ - Why should we flagellate ourselves for what the Cambodians did to each other?
+ - In the hands of a determined Secretary, the Foreign Service can be a splendid instrument, staffed by knowledgeable, discreet, and energetic individuals. They do require constant vigilance lest the convictions that led them into a penurious career tempt them to preempt decision-making.
+ - Many of the scientists have believed that their contribution to ending the nuclear race is not to let any new weapons to be developed.
+ - Every American president, regardless of party, has said that America has an intense interest in a peaceful resolution. And I think it should be left at that.
+ - Committees are consumers and sometimes sterilizers of ideas, rarely creators of them.
+ - Whenever a new president comes in, people that are used to the previous president wonder if he has the same capacity.
+ - The superpowers often behave like two heavily armed blind men feeling their way around a room, each believing himself in mortal peril from the other, whom he assumes to have perfect vision.
+ - The US must carry out some act somewhere in the world which shows its determination to continue to be a world power.
+ - I think a resumption of the Cold War would be a historic tragedy. If a conflict is avoidable, on a basis reflecting morality and security, one should try to avoid it.
+ - I don’t have a brief for every single reaction of Israel, but I think it is important that the political negotiations occur free of the threat of terrorism.
+ - In 10 years, there will be no more Israel.
+ - We have three things in common: Irish wives, the ability to speak for 17 minutes without a verb, and the fact that we both speak with an accent.
+ - The history of things that didn’t happen has never been written.
+ - The first reactions are often instinctive. So one of the first things we said was that the Chinese had no right to inspect the plane, and that we had a sovereign right to. I don’t know what the legal position is, but it was surely psychologically absolutely the unwise thing to do.
+ - If it’s going to come out eventually, better have it come out immediately.
+ - Leaders must invoke an alchemy of great vision.
+ - We are not just any nation.
+ - The greatest need of the contemporary international system is an agreed concept of order.
+ - The longer I am out of office, the more infallible I appear to myself.
+ - Far too often, the Ukrainian issue is posed as a showdown: whether Ukraine joins the East or the West. But if Ukraine is to survive and thrive, it must not be either side’s outpost against the other – it should function as a bridge between them.
+ - John Paul II was one of the greatest men of the last century. Perhaps the greatest.
+ - When I became security advisor, I became familiar with the so-called SIOP war plans, I called in Secretary McNamara and asked him what they were hiding from me, because I couldn’t believe that the National policy would foresee such a level of destructiveness.
+ - In the 1960s, I would have considered China with its CPC an ideologically more dynamic country than the Soviet Union. But the Soviet Union was strategically more threatening.
+ - The essence of Richard Nixon is loneliness.
+ - One theory is that we will make war look so attractive that we undermine the deterrent. That’s Never Never Land. What we have now would have been enough to deter Hitler. But we are talking in a different order of reality.
+ - One thing I don’t want around me is a military intellectual. I don’t have to worry about you on that score.
+ - Countries do not assume burdens because it is fair, only because it is necessary.
+ - You know, this is a very strange phenomenon. I keep reading that in American newspapers, and I keep reading extensive speculations. I meet with the Chinese leaders periodically, and while I don’t say they’ve endorsed the missile shield, it has not been in the forefront of their discussions.
+ - Well, on the American side, every new administration has to cut its teeth in a crisis, because before a crisis, you don’t really know what your various subordinates are thinking under stress.
+ - Don’t be too ambitious. Do the most important thing you can think of doing every year and then your career will take care of itself.
+ - Art is man’s expression of his joy in labor.
+ - I wouldn’t say it’s a split. It’s a difference of emphasis. It does exist between, I would say, the State Department and the Defense Department.
+ - The public life of every political figure is a continual struggle to rescue an element of choice from the pressure of circumstance.
+ - We are all the President’s men.
+ - People are generally amazed that I would take an interest in any form that would require me to stop talking for three hours.
+ - Henceforth the adequacy of any military establishment will be tested by its ability to preserve the peace.
+ - This country cannot afford to tear itself apart on a partisan basis on issues so vital to our national security.
+ - I don’t think we should pay people to fight terrorism. I would be amazed if they asked for anything in return.
+
+229 quotes

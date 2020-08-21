@@ -1,0 +1,112 @@
+ - We found love in a hopeless place.
+ - Im only as good as my team, I love you guys so much.
+ - I play by my own rules so please think twice before you step into my life.
+ - I may be bad, but I’m perfectly good at it.
+ - Single life is so overrated. It sucks.
+ - Spend time with people who know how to use their days well. Just as iron sharpens iron, positive people will inspire you to be positive.
+ - You can’t master your future if you’re still a slave to your past.
+ - People gonna talk whether you doing bad or good.
+ - Sometimes it takes a thousand tries to win.
+ - Sometimes you just need your privacy.
+ - Keep your eyes on the finish line and not on the turmoil around you.
+ - When you realize who you live for, and who’s important to please, a lot of people will actually start living. I am never going to get caught up in that. I’m gonna look back on my life and say that I enjoyed it – and I lived it for me.
+ - When a door closes you have two choices: give up, or keep going.
+ - I stand up for what I believe in and a lot of the time that can be against people’s opinions.
+ - When something feels real, you don’t make any apologies for it. When it feels good to you, nothing else matters. Everything else is just noise.
+ - Never underestimate a man’s ability to make you feel guilty for his mistakes.
+ - Don’t lower your standards for anything or anyone.
+ - Took an oath, I’ma stick it out to the end.
+ - I think a lot of people are afraid of being happy because of what others might think of it.
+ - Tears were for the weaker days, I’m stronger now.
+ - So I guess I’m a fool, I’m a fool in love. But I’m willing to stay here, and bask in the glory of his heart.
+ - Lipstick can glam up a whole look, especially in red.
+ - The more I swear I’m happy the more I’m feeling alone.
+ - Success for me isn’t a destination it’s a journey. Everybody’s working to get to the top but where is the top? It’s all about working harder and getting better and moving up and up.
+ - I have too many clothes, I have too many options.
+ - The most important thing is to be happy and true to yourself. I don’t want to look back at this in 30 years from now and say, ‘I did it all to make them happy and I didn’t enjoy.’
+ - You don’t want to live your life and then meet someone. You want to share your life with someone. That’s what I’m missing right now.
+ - Sticks and stones may break my bones, but chains and whips excite me.
+ - Even angels have their wicked schemes and you take that to new extremes.
+ - If I’m wearing a top, I don’t wear a bra. If I’m wearing a bra, I just wear a bra.
+ - Ask God for forgiveness, and leave your regrets in the past!
+ - I never play the victim, I’d rather be a stalker.
+ - Even as a child I remember thinking, She can beat me, but she cannot beat my outfit.
+ - I drink a lot of coconut water. It balances out all the other toxic stuff I put into my body.
+ - It’s tougher to be vulnerable than to actually be tough.
+ - People think, because we’re young, we aren’t complex, but that’s not true. We deal with life and love and broken hearts in the same way a woman a few years older might.
+ - Alcohol is the devil and I need Chinese food.
+ - Fashion has always been my defense mechanism.
+ - I love reading people. I really enjoy watching, observing, and being able to figure out a person, the reason they wore that dress, the reason they smell the way they do.
+ - Attention is something I’ve learned to ignore. This is what I do: I live my life and they document it.
+ - You will never be stylish if you don’t take risks.
+ - Something is wrong with Eminem. He has so much in his mind that I almost feel lucky that he has music. I feel like he has so much in his head that music is such a great release for him. He is one of my favorite artists. Absolutely.
+ - God just has a way of working things out the way he wants to and you have no say in that.
+ - There’s not any religion or any culture or any race or any generation that cannot get AIDS or HIV. We all have to take responsibility for ourselves and get tested to know our status, and spread the word.
+ - I just love a challenge, whether it’s a relationship, my career, clothing.
+ - Put your troubles aside and start living.
+ - The bottom line is that everyone thinks differently.
+ - If I wasn’t a singer, I think I’d be studying to be a psychologist.
+ - When I am putting looks together, I dare myself to make something work. I always look for the most interesting silhouette or something that’s a little off, but I have to figure it out. I have to make it me. I think that’s the thrill in fashion.
+ - I want to be the black Madonna.
+ - Whatever it is, it feels like it’s laughing at me Through the glass of a two-sided mirror.
+ - If someone is right for you, you’ll know it.
+ - I don’t have anything to hide.
+ - I hate drama. But at the same time, nothing bothers me more than when life’s perfect. And that’s the sick part. I just love a challenge, whether it’s a relationship, my career, clothing...
+ - While in America beautiful is skinny, in Barbados it’s thick – girls with huge butts and nice curves.
+ - You just want something else that someone else has, but that doesn’t mean what you have isn’t beautiful, because people always want what you have, and you always want what they have – no one is ever 100 per cent like, ‘Yes, I’m the bomb dot com – from head to toe!’
+ - I have an ugly day every month; pimples on my face, I’m fat and in a bad mood. It’s more like an ugly week!
+ - When I was in love, I fell so hard. I was really, really, really in love. The way it made me feel was priceless. And in a blink of an eye, my whole life changed. Everything that I knew was different. I never thought I’d feel that pain in my life.
+ - My story is definitely going to be a happily ever after, no matter what.
+ - I’m crazy and I don’t pretend to be anything else.
+ - To me makeup is a major accessory. It can change an outfit, it can make the outfit, it can be the outfit, and that’s why I like to play with it.
+ - Let go of the things that make you feel dead. Life is worth living!
+ - I don’t do things for the response or for the controversy. I just live my life.
+ - My knees on the ground, dear father, don’t let me break, please make me stronger.
+ - You the one that I dream about all day. You the one that I think about always. You are the one so I make sure I behave! My love is your love, your love is my love.
+ - Young people, we have this thing about us, this invincibility, because we’re young and we’re growing up and we want to have fun, and we want to be crazy, and nothing’s wrong with that unless you’re not being responsible.
+ - If I cry, it’s because I’m very angry and I can’t do anything about it because I’ve run into a dead end. That’s when the tears would come down.
+ - I have friends from rock stars to Rastas; I don’t even know what an unexpected friend is.
+ - Eff love. Come out of the situation and look at it third person.
+ - You have to just accept your body. You may not love it all the way, but you just have to be comfortable with it, comfortable with knowing that that’s your body.
+ - I am never satisfied; I always want more. I always want to get better. I always want to climb another step.
+ - Love is great, love is fine. Out the box, out of line. The affliction of the feeling leaves me wanting more.
+ - All humans are born with the ability to be attracted to both sexes. I mean, I could see myself in a relationship with a girl.
+ - I’m really looking forward to seeing what life brings to me.
+ - I always keep my guard up with guys and I guess that can get in the way sometimes. I can make them go through hell.
+ - I hate going to the gym and doing it the old-fashioned way. I hate anything that’s too straightforward, too routine, too familiar. I get bored really, really quickly.
+ - I never eat salad. I make sure I don’t put a lot of junk into my system, but I hate vegetables!
+ - I found the one, he changed my life, but was it me that changed?
+ - It is one thing to record an album but it’s a huge difference when people play it and listen to it and embrace it the way that I do. It has always been my dream to get my music out to the world and have people hear it.
+ - They’re gonna keep knocking away until all this comes crashing down. But I’m not gonna ever crash. I’m in control.
+ - Man down is a song about a girl who has committed a murder that she regrets and is completely remorseful about.
+ - Fashion for me is another way I get to express myself creatively. It is one of the fun things I get to do: to play dress-up, and create outfits and looks that aren’t typical. I am an artist, so I like creating things. Shoes are my favorite thing.
+ - People hesitate to follow their desires because they don’t know how to divide their soul from their spirit.
+ - When I was fourteen and first started going out, I always wanted to be the opposite of everyone else. So I would go to the club in a polo T-shirt and pants and sneakers and a hat on backward, just so I would not be dressed like other girls.
+ - Nicki Minaj has a better booty; but I have better shoes.
+ - I can compensate for all my weaknesses with my fashion.
+ - I just really wanted to be myself. I wanted to be sassy, the attitude, all these things that I am.
+ - I feel like pop stars can’t be rock stars anymore because they have to be role models, and it takes the fun out of it for us, because we just want to have fun with art.
+ - I am a child but I have to think and act like a woman, this business forces you to.
+ - I don’t think I could walk down the street wearing bubbles or a dress made of ham. What Lady GaGa has done has been kind of amazing. I am the opposite. I wear clothes I would wear on the street. I’m all about a real look.
+ - My way probably wont work for most people but the more I got naked the more comfortable I felt.
+ - I’m in a positive space, but I do have my days. Everybody has their days.
+ - When it comes to fashion, I like to see individuality.
+ - I’d love to date somebody cool, fun, funny.
+ - Dancing was always part of my culture growing up in Barbados. When I shot my 1st video I worked really hard with my choreographer to perfect the routines.
+ - I like Toronto; the people are really chill.
+ - The way I dress depends on how I feel. I never have to psych myself up. Usually it just feels like it works.
+ - I never know what day it is. Never, ever, ever.
+ - I definitely want to go and do some more research. My dad used to make me sit outside on the steps all night long, looking for a UFO flying by and I had to do that for years.
+ - As a young female I think it’s important that young people know there’s nothing wrong with having fun, nobody is telling us to be square or be boring, but we have to be safe.
+ - Music and fashion go hand in hand. I think music inspires all types of arts; it inspires life, emotion, mood, and all of those things are reflected in my fashion and my style. One doesn’t go without the other.
+ - The thrill in fashion for me is taking a risk and daring myself to make it work. Even when I go shopping, I always buy something twisted and I know I’m going to have to figure out somehow to pull it off and make it my own.
+ - I happen to think like a man, and do certain things guys like to do. I grew up around boys.
+ - The music is an important and crucial part to an animated film. You don’t think about it, but you can watch Tom and Jerry with no words, for hours, and the music dictates the emotion and where the story is going and how you’re supposed to feel. Everything is in the music.
+ - When I cut my hair, the whole sound changed, my style changed.
+ - Music is what I love to do, so you’ll never have to worry about me not doing that.
+ - I have several videos on my phone that I’ve never released. Having dance parties in our car, don’t be jealous!
+ - I’m open to love. But guys should have to earn it. Because the minute they get it, they want something else.
+ - Any man that tells me what to do is sexy!
+ - Only one party sticks out in my mind as a kid. It was the best party ever. I was 5 years old, and my mom dressed me up in a church dress and stockings to go to the party and park.
+
+110 quotes

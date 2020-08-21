@@ -1,0 +1,159 @@
+ - A day without laughter is a day wasted.
+ - Do not suppose opportunity will knock twice at your door.
+ - Pleasure can be supported by an illusion; but happiness rests upon truth.
+ - Contemplation often makes life miserable. We should act more, think less, and stop watching ourselves live.
+ - There is a melancholy that stems from greatness.
+ - Anticipation leads the way to victory, and is the spur to conquest.
+ - Whoever is not a misanthrope at forty can never have loved mankind.
+ - Eminence without merit earns deference without esteem.
+ - The best philosophical attitude to adopt towards the world is a union of the sarcasm of gaiety with the indulgence of contempt.
+ - Pleasure may come from illusion, but happiness can come only of reality.
+ - Chance is a nickname for Providence.
+ - A woman is like your shadow; follow her, she flies; fly from her, she follows.
+ - Public opinion reigns in society because stupidity reigns among the stupid.
+ - It is passion that makes man live; wisdom makes one only last.
+ - A modicum of discord is the very spice of courtship.
+ - Contemptuous people are sure to be contemptible.
+ - Philosophy, like medicine, has plenty of drugs, few good remedies, and hardly any specific cures.
+ - One can be certain that every generally held idea, every received notion, will be idiocy because it has been able to appeal to the majority.
+ - Intelligent people make many mistakes because they cannot believe the world is really as foolish as it is.
+ - It is commonly supposed that the art of pleasing is a wonderful aid in the pursuit of fortune; but the art of being bored is infinitely more successful.
+ - The most wasted day of all is that on which we have not laughed.
+ - Public opinion is the worst of all opinions.
+ - Nature never said to me: Do not be poor; still less did she say: Be rich; her cry to me was always: Be independent.
+ - Knowledge is boundless, – human capacity, limited.
+ - Tragedy has the great moral defect of giving too much importance to life and death.
+ - Wicked people sometimes perform good actions. I suppose they wish to see if this gives as great a feeling of pleasure as the virtuous claim for it.
+ - When a man and a woman have an overwhelming passion for each other, it seems to me, in spite of such obstacles dividing them as parents or husband, that they belong to each other in the name of Nature, and are lovers by Divine right, in spite of human convention or the laws.
+ - Love is like epidemic diseases. The more one fears it the more likely one is to contract it.
+ - Be my brother or I will kill you.
+ - There are two things that one must get used to or one will find life unendurable: the damages of time and injustices of men.
+ - It is among uneducated women that we may look for the most confirmed gossips. Goethe tells us there is nothing more frightful than bustling ignorance.
+ - Nearly all men are slaves for the same reason that the Spartans assigned for the servitude of the Persians – lack of power to pronounce the syllable, “No.” To be able to utter that word and live alone, are the only means to preserve one’s freedom and one’s character.
+ - Whatever evil a man may think of women, there is no woman but thinks more.
+ - Every woman in choosing a lover takes more account of the way in which other women regard the man than of her own.
+ - Do you think that revolutions are made with rose water?
+ - To possess a good cognomen is a long way on the road of success in life.
+ - Every day I add to the list of things I refuse to discuss. The wiser the man, the longer the list.
+ - I have three kinds of friends: those who love me, those who pay no attention to me, and those who detest me.
+ - Success makes success, like money makes money.
+ - Celebrity is the advantage of being known to people who we don’t know, and who don’t know us.
+ - He who leaves the game wins it.
+ - Change, change, – we all covet change.
+ - An author is often obscure to the reader because they proceed from the thought to expression than like the reader from the expression to the thought.
+ - Remorse turns us against ourselves.
+ - The threat of a neglected cold is for doctors what the threat of purgatory is for priests-a gold mine.
+ - We justly consider women to be weaker than ourselves, and yet we are governed by them.
+ - We take our colors, chameleon-like, from each other.
+ - The success of many books is due to the affinity between the mediocrity of the author’s ideas and those of the public.
+ - Conviction is the conscience of intellect.
+ - Most of those who make collections of verse or epigram are like men eating cherries or oysters: they choose out the best at first, and end by eating all.
+ - A lover is a man who tries to be more amiable than it is possible for him to be.
+ - Thought consoles us for all, and heals all. If at times it does you ill, ask it for the remedy for that ill and it will give it to you.
+ - Where violence reigns, reason is weak.
+ - A person of intellect without energy added to it, is a failure.
+ - The sunset glow of self-possession.
+ - Conscience is a dog that does not stop us from passing but that we cannot prevent from barking.
+ - A man should swallow a toad every morning to be sure of not meeting with anything more revolting in the day ahead.
+ - Love is the exchange of two fantasies and the contact of two skins...
+ - The new friends whom we make after attaining a certain age and by whom we would fain replace those whom we have lost, are to our old friends what glass eyes, false teeth and wooden legs are to real eyes, natrual teeth and legs of flesh and bone.
+ - It is said of a lonely man that he does not appreciate the life of society. This is like saying he hates hiking because he dislikes walking in thick forest on a dark night.
+ - Hope is but a charlatan that ceases not to deceive us. For myself happiness only began when I had lost it.
+ - There are more fools than wise men, and even in a wise man there is more folly than wisdom.
+ - The only thing that stops God from sending another flood is that the first one was useless.
+ - In love, everything is true, everything is false; it is the one subject on which one cannot express an absurdity.
+ - Stupidity would not be absolute stupidity did it not fear intelligence.
+ - Society is composed of two great classes, those that have more dinners than appetite, and those who have more appetite than dinners.
+ - Love, a pleasant folly; ambition, a serious stupidity.
+ - Almost the whole of history is but a sequence of horrors.
+ - It is with happiness as with watches: the less complicated, the less easily deranged.
+ - We leave unmolested those who set the fire to the house, and prosecute those who sound the alarm.
+ - Society is divided into two classes, the shearers and the shorn.
+ - To enjoy and give enjoyment, without injury to yourself or others; this is true morality.
+ - Love is more pleasant than marriage for the same reason that novels are more amusing than history.
+ - Marriage follows on love as smoke on flame.
+ - Marriage, as practised by high society, is arranged indecency.
+ - Too elevated qualities often unfit a man for society. We do not go to market with ingots, but with silver and small change.
+ - Women bestow on friendship only what they borrow from love.
+ - All passions exaggerate; and they are passions only because they do exaggerate.
+ - There aren’t many benefactors who don’t say, like Satan: All these things will I give you if you bow down and worship me.
+ - If taking vitamins doesn’t keep you healthy enough, try more laughter: The most wasted of all days is that on which one has not laughed.
+ - Egotism is the tongue of vanity.
+ - Change of fashion is the tax levied by the industry of the poor on the vanity of the rich.
+ - Secrecy is best taught by starting with ourselves.
+ - Obscurity and Innocence, twin sisters, escape temptations which would pierce their gossamer armor, in contact with the world.
+ - There are more people who wish to be loved than there are who are willing to love.
+ - How many fools does it take to make up a public?
+ - The person is always happy who is in the presence of something they cannot know in full. A person as advanced far in the study of morals who has mastered the difference between pride and vanity.
+ - Calumny is like the wasp which worries you, and which it is not best to try to get rid of unless you are sure of slaying it; for otherwise it returns to the charge more furious than ever.
+ - Most books today seemed to have been written overnight from books read the day before.
+ - Women of the world crave excitement.
+ - Though we best know and cannot deny our imperfections, it is not for us to lose our self-reliance and true manhood.
+ - People are governed with the head; kindness of heart is little use in chess.
+ - The art of the parenthesis is one of the greatest secrets of eloquence in Society.
+ - Someone described Providence as the baptismal name of chance; no doubt some pious person will retort that chance is the nickname of Providence.
+ - Sometimes apparent resemblance of character will bring two men together and for a certain time unite them. But their mistake gradually becomes evident, and they are astonished to find themselves not only far apart, but even repelled, in some sort, at all their points of contact.
+ - The contact of two epidermises.
+ - A fool who has a flash of wit creates astonishment and scandal, like hack-horses setting out to gallop.
+ - It is when their age of passions is past that great men produce their masterpieces, just as it is after volcanic eruptions that the soil is most fertile.
+ - We gild our medicines with sweets; why not clothe truth and morals in peasant garments as well?
+ - Vain is equivalent to empty; thus vanity is so miserable a thing, that one cannot give it a worse name than its own. It proclaims itself for what it is.
+ - We must start human society from scratch; as Francis Bacon said, we must recreate human understanding.
+ - All passions are exaggerated, otherwise they would not be passions.
+ - Wrinkles and ill-nature together made a woman hideous.
+ - In the library of the world men have hitherto been ranged according to the form, and the binding; the time is coming when they will take rank and order according to their contents and intrinsic merits.
+ - Of lies, false modesty is the most decent.
+ - An economist is a surgeon with an excellent scalpel and a rough-edged lancet, who operates beautifully on the dead and tortures the living.
+ - There is no history worthy attention save that of free nations; the history of nations under the sway of despotism is no more than a collection of anecdotes.
+ - Society would be a charming affair if we were only interested in one another.
+ - If you must love your neighbor as yourself, it is at least as fair to love yourself as your neighbor.
+ - Man reaches each stage of his life as a novice.
+ - What we love intensely or for a long time we are likely to bring within the citadel, and to assert as part of oneself.
+ - Education must have two foundations – morality as a support for virtue, prudence as a defense for self against the vices of others. By letting the balance incline to the side of morality, you only make dupes or martyrs; by letting it incline to the other, you make calculating egoists.
+ - Your intelligence often bears the same relation to your heart as the library of a chateau does to its owner.
+ - A man is not necessarily intelligent because he has plenty of ideas, any more than he is a good general because he has plenty of soldiers.
+ - Most benefactors are like unskillful generals who take the city and leave the citadel intact.
+ - She commands who is blest with indifference.
+ - Women see faults much more readily in each other than they can discover perfections.
+ - Preoccupation with money is the great test of small natures, but only a small test of great ones.
+ - There some trifles well habited, as there are some fools well clothed.
+ - There is as much expression in the feet as in the hands.
+ - Swallow a toad in the morning and you will encounter nothing more disgusting the rest of the day.
+ - Woman’s weakness, not man’s merit, oftenest gains the suitor’s victory.
+ - It’s a question of prudence. Nobody has a high opinion of fishwives but who would dare offend them while walking through the fish market.
+ - Contact with the world either breaks or hardens the heart.
+ - Narrow waists and narrow minds go together.
+ - The philosopher who would fain extinguish his passions resembles the chemist who would like to let his furnace go out.
+ - The great always sell their society to the vanity of the little.
+ - In a country where everyone strives for attention, it is better to be bankrupt than to be nothing.
+ - At the sight of what goes on in the world, the most misanthropic of men must end by being amused, and Heraclitus must die laughing.
+ - A man without nobility cannot have kindliness; he can only have good nature.
+ - The majority of the books of our time give one the impression of having been manufactured in a day out of books read the day before.
+ - We need to be just before we are generous, as we need shirts before ruffles.
+ - Satire is the disease of art.
+ - If a woman were about to proceed to her execution, she would demand a little time to perfect her toilet.
+ - Someone has said that to plagiarise from the ancients is to play the pirate beyond the Equator, but that to steal from the moderns is to pick pockets at street corners.
+ - Many men and women enjoy popular esteem, not because they are known, but because they are not known.
+ - In the fine arts, as in many other things, we know well only what we have not learned.
+ - It is children only who enjoy the present; their elders either live on the memory of the past or the hope of the future.
+ - Anyone whose needs are small seems threatening to the rich, because he’s always ready to escape their control.
+ - He who disguises tyranny, protection, or even benefits under the air and name of friendship reminds me of the guilty priest who poisoned the sacramental bread.
+ - It is inconceivable how much wit it requires to avoid being ridiculous.
+ - Tis easier to make certain things legal than to make them legitimate.
+ - If it were not for the government, we should have nothing to laugh at in France.
+ - It must be admitted that there are some parts of the soul which we must entirely paralyse before we can live happily in this world.
+ - If it wasn’t for me, I’d do brilliantly.
+ - The poor are the blacks of Europe.
+ - Man may aspire to virtue, but he cannot reasonably aspire to truth.
+ - Running a house should be left to innkeepers.
+ - Most anthologists of poetry or quotations are like those who eat cherries or oysters, first picking the best and ending by eating everything.
+ - Covetousness is a sort of mental gluttony, not confined to money, but craving honor, and feeding on selfishness.
+ - Life is a malady in which sleep soothes us every sixteen hours; it is a palliation; death is the remedy.
+ - One must not hope to be more than one can be.
+ - In living and in seeing other men, the heart must break or become as bronze.
+ - Were a man to consult only his reason, who would marry? For myself, I wouldn’t marry, for fear of having a son who resembled me.
+ - In great matters, men behave as they are expected to; in little ones, as they would naturally.
+ - Men’s hearts and faces are always wide asunder; women’s are not only in close connection, but are mirror-like in the instant power of reflection.
+ - All that I’ve learned, I’ve forgotten. The little that I still know, I’ve guessed.
+
+157 quotes

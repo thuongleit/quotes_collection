@@ -1,0 +1,22 @@
+ - Treat a child as though he already is the person he’s capable of becoming.
+ - I can be a tool of torture or an instrument of inspiration. I can humiliate or heal. In all situations, it is my response that decides whether a crisis will be escalated or de-escalated and a child humanized or dehumanized.
+ - Teachers are expected to reach unattainable goals with inadequate tools. The miracle is that at times they accomplish this impossible task.
+ - If you want your children to improve, let them overhear the nice things you say about them to others.
+ - Only if a child feels right can he think right.
+ - If we treat people as they are, we make them worse. If we treat people as they ought to be, we help them become what they are capable of becoming.
+ - A modern teacher educates children to value their emotions.
+ - While parents possess the original key to their offspring’s experience, teachers have a spare key. They, too, can open or close the minds and hearts of children.
+ - When a child hits a child, we call it aggression. When a child hits an adult, we call it hostility. When an adult hits an adult, we call it assault. When an adult hits a child, we call it discipline.
+ - To be himself, one neeeds to be free from the pressure of evaluative praise.
+ - Misbehavior and punishment are not opposites that cancel each other – on the contrary they breed and reinforce each other.
+ - Parenthood is an endless series of small events, periodic conflicts, and sudden crises which call for a response. The response is not without consequence: it affects personality for better or for worse.
+ - The search for a personal identity is the life task of a teenager.
+ - Responsibility is fostered by allowing children a voice and wherever indicated a choice in matters that affect them.
+ - Wise parents know that fighting a teenager, like fighting a riptide, is inviting doom.
+ - Teenagers crave independence. The more self-suf-ficient we make them feel, the less hostile they are toward us.
+ - Adolescence can be a time of turmoil and turbulence, of stress and storm. Rebellion against authority and against convention is to be expected and tolerated for the sake of learning and growth.
+ - Parents often talk about the younger generation as if they didn’t have anything to do with it.
+ - Each of us carries within himself a collection of instant insults.
+ - Many teenagers are tormented by terrors they deem private and personal. They do not know that their anxieties and doubts are universal.
+
+20 quotes

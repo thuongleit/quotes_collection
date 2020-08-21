@@ -1,0 +1,82 @@
+ - All knowledge is worth having.
+ - That which yields is not always weak.
+ - Why is there ever this perverse cruelty in humankind, that makes us hurt most those we love best?
+ - What’s the point of being a grown-up if you can’t indulge the kid inside you every now and then?
+ - Love as thou wilt.
+ - The tapestry of history is woven of many threads.
+ - After you, it’s all cheap tequila.
+ - Oh love and hate are two sides of the same blade.
+ - Yes my lord, but questions are dangerous, for they have answers.
+ - There’s more to clothing than just adornment. It does more than merely change how the world perceives us. It changes how we perceive ourselves.
+ - There is no fulfillment that is not made sweeter for the prolonging of desire.
+ - When Love cast me out, it was Cruelty who took pity upon me.
+ - And having once chosen, never to seek to return to the crossroads of that decision-for even if one chooses wrongly, the choice cannot be unmade.
+ - Stand at the crossroads if you will, but if you’ll not choose, I’ll move on without you.
+ - If you will not die for us, you cannot ask us to die for you.
+ - Happiness is the highest form of wisdom.
+ - It is a fine line, in all of us, between civilization and savagery. To any who think they would never cross it, I can only say, if you have never known what it is to be utterly betrayed and abandoned, you cannot know how close it is.
+ - Your dreaming self seeks to tell you something your waking ears will not hear.
+ - It’s the same questions we ask of our existence, and the answer is always the same. The mystery lies not in the question nor the answer, but in the asking and answering themselves, over and over again, and the end is engendered in the beginning.
+ - Fear and lies fester in darkness. The truth may wound, but it cuts clean.
+ - Love is hard, harder than steel and thrice as cruel. It is inexorable as the tides, and life and death alike follow in its wake.
+ - Pain redeems all. It is the awareness of life, a reminder of death.
+ - It’s funny, because in deference to conventional wisdom, I spent my struggling writer years trying to suppress my naturally baroque literary voice and write clean, spare prose. I finally gave up and embraced my baroque tendencies when I wrote the Kushiel series.
+ - Let the warriors clamor after gods of blood and thunder; love is hard, harder than steel and thrice as cruel.
+ - To have a traitor for an ally is to have an enemy in waiting.
+ - Nothing spoils idle pleasure like too much awareness.
+ - A nervous silence loosens tongues.
+ - My lord. It is too much, and not enough.
+ - True friendship must be akin to romance, I think. only without all the anguish and anxiety.
+ - Even a stunted tree reaches for sunlight.
+ - All exiles carry a map within them that points the way homeward.
+ - Spontaneity is the province of youth.
+ - There are patterns which emerge in one’s life, circling and returning anew, an endless variation on a theme. So musicians say the greatest sonatas are composed; whether or not it is true, I do not know, but of a surety I have seen it emerge in the tapestry of my life.
+ - Garner knowledge, by any means possible.
+ - But slight mistakes accumulate, and grow to gross errors if unchecked.
+ - For every victory there is a price.
+ - And for a price, I will pretend absolutely nothing.
+ - Well, I was living it, but a shared dream half-lived is a hollow thing.
+ - The pain of the flesh is naught to that of the heart.
+ - Pain obliterates everything else. In pain, there is only the eternal present.
+ - I preferred a hard truth to a well-meant lie.
+ - We pay for sins we do not remember, and seek to do a will we can scarce fathom. That is what it is, to be a god’s chosen.
+ - Surely if we knew what bitterness fate held in store, we would shrink back in fear and let the cup of life pass us by untasted.
+ - Stupid to speak of blame when the wills of the immortals are involved.
+ - Are you a minor character in my tale, or am I a lesser figure in yours?
+ - We may not have demon fathers dangling offers of infernal power before us, but everyone understands what it means to struggle with temptation or resist the urge to give in to our baser natures.
+ - Beauty is at its most poignant when the cold hand of Death holds poised to wither it imminently.
+ - Soon never comes soon enough to a young child.
+ - I can see patterns in events, and behaviors; in mathematics, I follow slower.
+ - One must gauge one’s trust carefully.
+ - Truly, it is in loss that we learn a thing’s true value.
+ - It is a comfort, in anguish, to be reminded of the scale of one’s own troubles against the mighty breadth of the world.
+ - To recongnize that the treachery of one member of a house does not taint all born within it.
+ - There are patterns which emerge in one’s life, circling and returning anew, an endless variation of a theme.
+ - If you thought better of me, you would not be so surprised.
+ - I would that I could have stopped time and preserved that day forever. It was a perfect day. There was the shadow of sorrow, yes. It would always be there. But that was the nature of life. The bright mirror and the dark, reflecting one another. And today there was so much brightness.
+ - It is not everyday that one learns an entire militia has sworn unbeknownest to obey you.
+ - It is not wise to meddle with D’Angelines in matters of love.
+ - There is as much deception in noise as there is in silence.
+ - Some chains are forged for us – those are the hardest to bear.
+ - It’s funny how despair can soon become an old companion.
+ - Clearly, Im drawn to characters with inner conflicts.
+ - We speak of stories ending, when in truth it is we who end. The stories go on and on.
+ - What is fear but courage’s shadow?
+ - It’s funny, how one can look back on a sorrow one thought one might well die of at the time, and know that one had not yet reckoned the tenth part of true grief.
+ - For this too I learned, that a storyteller’s tale may end, but history goes on always. These events, so distant in legend, play a part in shaping the very events we witness about us, each and every day.
+ - And Kushiel sends no punishment that we are not fit to bear.
+ - Genius requires an audience.
+ - I had begun to think my ripening body would wither untasted on the vine.
+ - A little truth seasons a lie like salt.
+ - Battle for the sake of honor may be a fine thing for bards to sing of, but it is no way to preserve one’s homeland.
+ - It is my observations, though, that happiness limits the amount of suffering one is willing to inflict upon others.
+ - I wish sometimes that the gods would either choose better, or make their wishes clearer.
+ - Only insofar as you enjoy being sorry, my dear, which, while it is a considerable amount, occurs only after the fact, thus making it a singularly ineffective deterrent, yes?
+ - There is no folly like the folly of the wise.
+ - Night breeds its own sort of anticipation.
+ - If I had to fall from Cassiel’s grace, at least I know it took a courtesan worthy of Kings to do it.
+ - This is the secret that none dares tell who fights for a cause. Dying, we are all alike.
+ - The harp sounds at each passing breeze, but that does not mean the tune is masterfully played.
+ - Wars come and go; politics endure.
+
+80 quotes

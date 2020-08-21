@@ -1,0 +1,25 @@
+ - Up until 35 I had a slightly skewed world view. I honestly believed everybody in the world wanted to make abstract paintings, and people only became lawyers and doctors and brokers and things because they couldn’t make abstract paintings.
+ - The aim of art is to create space.
+ - I don’t like to say I have given my life to art. I prefer to say art has given me my life.
+ - The one thing I learned is not to say anything about my own paintings. Keep my mouth shut. You’ll never stop hearing what you said. It will come back to you again and again, people will always tell you about it. Even if you were the source of what’s wrong with it.
+ - Architecture can’t fully represent the chaos and turmoil that are part of the human personality, but you need to put some of that turmoil into the architecture, or it isn’t real.
+ - I get cranky real easily. So the honor of it and the wonder of it all and everything has a hard time overcoming the petty annoyances; I mean, that’s simply the reality of being alive, I guess.
+ - You see what you know!
+ - But, after all, the aim of art is to create space – space that is not compromised by decoration or illustration, space within which the subjects of painting can live.
+ - When I’m painting the picture, I’m really painting a picture. I may have a flat-footed technique, or something like that, but still, to me, the thrill, or the meat of the thing, is the actual painting. I don’t get any thrill out of laying it out.
+ - Making art is complicated because the categories are always changing. You just have to make your own art, and whatever categories it falls into will come later.
+ - No art is any good unless you can feel how it’s put together. By and large it’s the eye, the hand and if it’s any good, you feel the body. Most of the best stuff seems to be a complete gesture, the totality of the artist’s body; you can really lean on it.
+ - Once I really started to understand Frank Stella’s work and follow it, there’s a certain type of invention and playfulness and extreme rigor with which he kept going forward.
+ - There’s a lot of difference between being well known and being notorious and the black paintings didn’t make me well known – they made me notorious.
+ - One learns about painting by looking at and imitating other painters. I can’t stress enough how important it is, if you are interested at all in painting, to look and to look a great deal at painting. There is no other way to find out about painting.
+ - I want to make exalted art. A successful image has pictorial lift. I am looking for whatever is up there.
+ - A sculpture is just a painting cut out and stood up somewhere.
+ - Abstract paintings must be as real as those created by the 16th century Italians.
+ - I don’t like a lot of the stuff that goes on in the art world, but it’s hard to be old and like what goes on around you.
+ - I think for a lot of artists, if you’re lucky enough to have a kind of career, especially toward the end, you start to think about what the whole ensemble looks like. It’s the whole that counts. The parts are given, but you don’t know how the whole thing’s going to look when it’s all put together.
+ - I was worried in the ’80s that the best abstract painting had become obsessed with materiality, and painterly gestures and materiality were up against the wall.
+ - One learns about painting by looking at and imitating other painters.
+ - Any artist can’t get away from the way the world works, which is that it wants to know what you did, and you’re only interested in what you’re doing right now.
+ - It’s hard to say that my twenties were the most miserable time in my life or that my first wife drove me crazy or that I hated the job that I had. You can say all of those things. But for the most part, people manage to have a good time when they’re that age.
+
+23 quotes

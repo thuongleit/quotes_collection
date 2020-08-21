@@ -1,0 +1,33 @@
+ - Mathematics is an escape from reality.
+ - It is most important in creative science not to give up. If you are an optimist you will be willing to “try” more than if you are a pessimist.
+ - Whatever is worth saying, can be stated in fifty words or less.
+ - The infinite we shall do right away. The finite may take a little longer.
+ - One conversation centered on the ever accelerating progress of technology and changes in the mode of human life, which gives the appearance of approaching some essential singularity in the history of the race beyond which human affairs, as we know them, could not continue.
+ - In its evolution from a more primitive nervous system, the brain, as an organ with ten or more billion neurons and many more connections between them must have changed and grown as a result of many accidents.
+ - Do not lose your faith. A mighty fortress is our mathematics. Mathematics will rise to the challenge, as it always has.
+ - Knowing what is big and what is small is more important than being able to solve partial differential equations.
+ - Thoughts are steered in different ways.
+ - In mathematics, as in physics, so much depends on chance, on a propitious moment.
+ - I’m an agnostic. Sometimes I muse deeply on the forces that are for me invisible. When I am almost close to the idea of God, I feel immediately estranged by the horrors of this world, which he seems to tolerate...
+ - It is still an unending source of surprise for me how a few scribbles on a blackboard or on a piece of paper can change the course of human affairs.
+ - There may be such a thing as habitual luck. People who are said to be lucky at cards probably have certain hidden talents for those games in which skill plays a role. It is like hidden parameters in physics, this ability that does not surface and that I like to call “habitual luck”.
+ - What exactly is mathematics? Many have tried but nobody has really succeeded in defining mathematics; it is always something else.
+ - Thanks to my memory, which enabled me to quote Latin and to discuss Greek and Roman civilization, it became obvious to some of my colleagues in other fields that I was interested in things outside mathematics. This lead quickly to very pleasant relationships.
+ - Even the simplest calculation in the purest mathematics can have terrible consequences. Without the invention of the infinitesimal calculus most of our technology would have been impossible. Should we say therefore that calculus is bad?
+ - I was still very hopeful that much work lay ahead of me. Perhaps because much of what I had worked on or thought about had not yet been put into writing, I felt I still had things in reserve. Given this optimistic nature, I feel this way even now when I am past sixty.
+ - I am turned off when I see only formulas and symbols, and little text.
+ - I am always amazed how much a certain facility with a special and apparently narrow technique can accomplish.
+ - Rota’s personality is compatible with mine.
+ - According to recent studies, at least one star out of three is multiple.
+ - Sometimes I feel that a more rational explanation for all that has happened during my lifetime is that I am still only thirteen years old, reading Jules Verne or H. G. Wells, and have fallen asleep.
+ - Thinking very hard about the same problem for several hours can produce a severe fatigue, close to a breakdown. I never really experienced a breakdown, but have felt “strange inside” two or three times during my life.
+ - As a mathematician, von Neumann was quick, brilliant, efficient, and enormously broad in scientific interests beyond mathematics itself. He knew his technical abilities; his virtuosity in following complicated reasoning and his insights were supreme; yet he lacked absolute self confidence.
+ - With sixty professors there are roughly eighteen hundred pairs of professors. Out of that many pairs it was not surprising that there were some whose members did not like one another.
+ - It is not so much whether a theorem is useful that matters, but how elegant it is.
+ - Mathematics may be a way of developing physically, that is anatomically, new connections in the brain.
+ - It was not so much that I was doing mathematics, but rather that mathematics had taken possession of me.
+ - Very soon I discovered that if one gets a feeling for no more than a dozen other radiation and nuclear constants, one can imagine the subatomic world almost tangibly, and manipulate the picture dimensionally and qualitatively, before calculating more precise relationships.
+ - For many years I was the youngest among my mathematical friends. It makes me melancholy to realize that I now have become the oldest in most groups of scientists.
+ - The mathematicians know a great deal about very little and the physicists very little about a great deal.
+
+31 quotes

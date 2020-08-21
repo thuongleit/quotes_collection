@@ -1,0 +1,32 @@
+ - The world doesn’t need what women have, it needs what women are.
+ - Anyone who seeks truth seeks God, whether or not he realizes it.
+ - The woman’s soul is fashioned as a shelter in which other souls may unfold.
+ - Let go of your plans. The first hour of your morning belongs to God. Tackle the day’s work that he charges you with, and he will give you the power to accomplish it.
+ - Those who remain silent are responsible.
+ - Just take everything exactly as it is, put it in God’s hands and leave it with Him.
+ - And when night comes, and you look back over the day and see how fragmentary everything has been, and how much you planned that has gone undone, and all the reasons you have to be embarrassed and ashamed: just take everything exactly as it is, put it in God’s hands and leave it with Him.
+ - Each woman who lives in the light of eternity can fulfill her vocation, no matter if it is in marriage, in a religious order, or in a worldly profession.
+ - One cannot desire freedom from the Cross when one is especially chosen for the Cross.
+ - Who can sleep on the night that God became man?
+ - Usually one gets a heavier cross when one attempts to get rid of an old one.
+ - My longing for truth was a single prayer.
+ - Do not accept anything as love which lacks truth.
+ - Each finite creature can reflect only a fraction of the divine nature; thus, in the diversity of His creatures, God’s infinity, unity and oneness appear to be broken into an effulfgence of manifold rays.
+ - I had given up practising my Jewish religion when I was a 14-year-old girl and did not begin to feel Jewish again until I had returned to God.
+ - Woman’s soul is present and lives more intensely in all parts of the body, and it is inwardly affected by that which happens to the body; whereas, with men, the body has more pronoucedly the character of an instrument which serves them in their work and which is accompanied by a certain detachment.
+ - Woman naturally seeks to embrace that which is living, personal, and whole. To cherish, guard, protect, nourish and advance growth is her natural, maternal yearning.
+ - The Bread that we need each day to grow in eternal life, makes of our will a docile instrument of the Divine Will; sets the Kingdom of God within us; gives us pure lips, and a pure heart with which to glorify his holy name.
+ - An ‘I’ without a body is a possibility. But a body without an ‘I’ is utterly impossible.
+ - The limitless loving devotion to God, and the gift God makes of Himself to you, are the highest elevation of which the heart is capable; it is the highest degree of prayer. The souls that have reached this point are truly the heart of the Church.
+ - On the question of relating to our fellowman – our neighbor’s spiritual need transcends every commandment. Everything else we do is a means to an end. But love is an end already, since God is love.
+ - There is no profession which cannot be practiced by a woman.
+ - One could say that in case of need, every normal and healthy woman is able to hold a position. And there is no profession which cannot be practiced by a woman.
+ - Everything abstract is ultimately part of the concrete. Everything inanimate finally serves the living. That is why every activity dealing in abstraction stands in ultimate service to a living whole.
+ - We can do nothing ourselves; God must do it. To speak to Him thus is easier by nature for woman than for man because a natural desire lives in her to give herself completely to someone.
+ - The motive, principle, and end of the religious life is to make an absolute gift of self to God in a self-forgetting love, to end one’s own life in order to make room for God’s life.
+ - Those who join the Carmelite Order are not lost to their near and dear ones, but have been won for them, because it is our vocation to intercede to God for everyone.
+ - Everywhere the need exists for maternal sympathy and help...
+ - We will always find fundamentally the compulsion to become what the soul should be...
+ - Energy apparently increases with the amount of work to be done. When nothing of burning urgency is waiting, it decreases much sooner. Heaven seems to understand such economy.
+
+30 quotes

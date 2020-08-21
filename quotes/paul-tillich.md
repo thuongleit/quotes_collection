@@ -1,0 +1,85 @@
+ - Doubt isn’t the opposite of faith; it is an element of faith.
+ - The first duty of love is to listen.
+ - Decision is a risk rooted in the courage of being free.
+ - God does not exist. He is being-itself beyond essence and existence. Therefore to argue that God exists is to deny him.
+ - The most intimate motions within the depths of our souls are not completely our own. For they belong also to our friends, to humankind, to the universe, and the Ground of all being, the aim of our life.
+ - Courage is a greater virtue than love. At best, it takes courage to love.
+ - Sometimes I think it is my mission to bring faith to the faithless, and doubt to the faithful.
+ - The courage to be is rooted in the God who appears when God has disappeared in the anxiety of doubt.
+ - Boredom is rage spread thin.
+ - The fatal pedagogical error is to throw answers like stones at the heads of those who have not yet asked the questions.
+ - He who risks and fails can be forgiven. He who never risks and never fails is a failure in his whole being.
+ - There is no love which does not become help.
+ - He who knows about depth knows about God.
+ - The name of this infinite and inexhaustible depth and ground of all being is God.
+ - The vitality that can stand the abyss of meaninglessness is aware of a hidden meaning within the destruction of meaning.
+ - The character of human life, like the character of the human condition, like the character of all life, is “ambiguity”: the inseparable mixture of good and evil, the true and false, the creative and destructive forces-both individual and social.
+ - In the courageous standing of uncertainty, faith shows most visibly its dynamic character.
+ - One cannot be strong without love. For love is not an irrelevant emotion; it is the blood of life.
+ - In this respect fundamentalism has demonic traits. It destroys the humble honesty of the search for truth, it splits the conscience of its thoughtful adherents, and it makes them fanatical because they are forced to suppress elements of truth of which they are dimly aware.
+ - Theology moves back and forth between two poles, the eternal truth of its foundations and the temporal situation in which the eternal truth must be received.
+ - The basic anxiety, the anxiety of a finite being about the threat of non-being, cannot be eliminated. It belongs to existence itself.
+ - Religion is the state of being grasped by an ultimate concern, a concern which qualifies all other concerns as preliminary and which itself contains the answer to the question of a meaning of our life.
+ - Faith is an act of a finite being who is grasped by, and turned to, the infinite.
+ - Enthusiasm for the universe, in knowing as well as in creating, also answers the question of doubt and meaninglessness. Doubt is the necessary tool of knowledge. And meaninglessness is no threat so long as enthusiasm for the universe and for man as its center is alive.
+ - There is no condition for forgiveness.
+ - The courage to be is the courage to accept oneself, in spite of being unacceptable.
+ - Mystical identification transcends the aristocratic virtue of courageous self-sacrifice. It is self- surrender in a higher, more complete, and more complete and more radical form. It is the perfect form of self-affirmation.
+ - I hope for the day when everyone can speak again of God without embarrassment.
+ - Fear is the absence of faith.
+ - Every institution is inherently demonic.
+ - Individualism is the self-affirmation of the individual self as individual self without regard to its participation in its world. As such it is the opposite of collectivism, the self affirmation of the self as part of a larger whole without regard to its character as an individual self.
+ - Grace strikes us when we are in great pain and restlessness.
+ - I loved thee beautiful and kind, And plighted an eternal vow; So altered are thy face and mind, t’were perjury to love thee now!
+ - The separation of faith and love is always a consequence of a deterioration of religion.
+ - I have given no definition of love. This is impossible, because there is no higher principle by which it could be defined. It is life itself in its actual unity. The forms and structures in which love embodies itself are the forms and structures in which love overcomes its self-destructive forces.
+ - Man’s ultimate concern must be expressed symbolically, because symbolic language alone is able to express the ultimate.
+ - Loneliness can be conquered only by those who can bear solitude.
+ - We can speak without voice to the trees and the clouds and the waves of the sea. Without words they respond through the rustling of leaves and the moving of clouds and the murmuring of the sea.
+ - Existential anxiety of doubt drives the person toward the creation of certitude of systems of meaning, which are supported by tradition and authority. Neurotic anxiety builds a narrow castle of certitude which can be defended with the utmost certainty.
+ - Destiny is not a strange power which determines what shall happen to me. It is myself as given, formed by nature, history, and myself. My destiny is the basis of my freedom; my freedom participates in shaping my destiny.
+ - Man and nature belong together in their created glory – in their tragedy and in their salvation.
+ - The anxiety of fate is conquered by the self-affirmation of the individual as an infinitely significant microcosmic representation of the universe .
+ - Wine is like the incarnation – it is both divine and human.
+ - Accept the fact that you are accepted, despite the fact that you are unacceptable.
+ - The awareness of the ambiguity of one’s highest achievements, as well as one’s deepest failures is a definite symptom of maturity.
+ - Where there is faith there is an awareness of holiness.
+ - There is faith in every serious doubt, namely, the faith in the truth as such, even if the only truth we can express is our lack of truth.
+ - Being religious means asking passionately the question of the meaning of our existence and being willing to receive answers, even if the answers hurt.
+ - In the depth of the anxiety of having to die is the anxiety of being eternally forgotten.
+ - Being human means asking the questions of one’s own being and living under the impact of the answers given to this question. And, conversely, being human means receiving answers to the questions of one’s own being and asking questions under the impact of the answers.
+ - The existential attitude is one of involvement in contrast to a merely theoretical or detached attitude. “Existential” in this sense can be defined as participating in a situation, especially a cognitive situation, with the whole of one’s existence.
+ - Wisdom loves the children of men, but she prefers those who come through foolishness to wisdom.
+ - Only the philosophical question is perennial, not the answers.
+ - Parents need to listen as much to their kids as they do to them: “The first duty of love is to listen.”
+ - The joy about our work is spoiled when we perform it not because of what we produce but because of the pleasure with which it can provide us, or the pain against which it can protect us.
+ - Faith as the state of being ultimately concerned implies love, namely, the desire and urge toward the reunion of the separated.
+ - Our spirituality is the ground of our being.
+ - Forgiving presupposes remembering.
+ - The abundance of a grateful heart gives honor to God even if it does not turn to Him in words. An unbeliever who is filled with thanks for his very being has ceased to be an unbeliever.
+ - If my tongue were trained to measures, I would sing a stirring song.
+ - All things and all people, so to speak, call on us with small or loud voices. They want us to listen. They want us to understand their intrinsic claims, their justice of being. But we can give it to them only through the love that listens.
+ - Love that cares, listens.
+ - In Calvinism and sectarianism man became more and more transformed into an abstract moral subject, as in Descartes he was considered an epistemological subject.
+ - Neurosis is the way of avoiding non-being by avoiding being.
+ - Cruelty towards others is always also cruelty towards ourselves.
+ - Doubt is the necessary tool of knowledge.
+ - Faith consists in being vitally concerned with that ultimate reality to which I give the symbolical name of God. Whoever reflects earnestly on the meaning of life is on the verge of an act of faith.
+ - Man is able to decide for or against reason, he is able to create beyond reason or to destroy below reason.
+ - We are known in a depth of darkness through which we ourselves do not even dare to look. And at the same time, we are seen in a height of a fullness which surpasses our highest vision.
+ - The affirmation of one’s essential being in spite of desires and anxieties creates joy.
+ - Knowledge of that which concerns us infinitely is possible only in an attitude of infinite concern.
+ - Astonishment is the root of philosophy.
+ - Man is not what he believes himself to be in his conscious decisions.
+ - Nothing truly real is forgotten eternally, because everything real comes from eternity and goes to eternity.
+ - Since the last decades of the nineteenth century, revolt against the objectified world has determined the character of art and literature.
+ - There is no place to which we could flee from God, which is outside of God.
+ - Faith is the state of being ultimately concerned.
+ - Cynically speaking, one could say that it is true to life to be cynical about it.
+ - Faith embraces itself and the doubt about itself.
+ - Love is the infinite which is given to the finite.
+ - But freedom is the possibility of a total and centered act of the personality, an act in which all the drives and influences which constitute the destiny of man are brought into the centered unity of a decision.
+ - The passion for truth is silenced by answers which have the weight of undisputed authority.
+ - Man is asked to make of himself what he is supposed to become to fulfill his destiny.
+
+83 quotes

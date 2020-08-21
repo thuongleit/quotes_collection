@@ -1,0 +1,28 @@
+ - When people feel threatened by you, they find something that is belittling.
+ - I’m not romantic at all. I’m a moaner. I should be on Grumpy Old Men. I’m terrible.
+ - I’m a sucker for turquoise sea, white beaches and palm trees. I’ve been to the tropics every year since I could afford it. It’s the perfect place to unwind. I can chill out, read, do a bit of yoga.
+ - I don’t like myself. I’m not vain at all. I hate looking at myself – I always think I look ugly. Honest.
+ - I love contemporary art, although I wouldn’t want a pickled shark in my house.
+ - When I visit a country, I like to experience local food.
+ - I think school is so important. I was good student. A rebel, but I did well in my studies. I don’t close myself to anything. I liked reading and I still love learning. I loved history and German.
+ - Mum had a job fitting upholstery into cars, but, in the evenings, she worked as a seamstress.
+ - Dad was a bus driver, and when he finished work he would repair cars.
+ - It’s horrible how money and fame can make you acceptable while, if you’re not famous or rich, you’re not acceptable.
+ - In reality, nobody gets successful in America by being lazy.
+ - Before a long-haul flight, buy yourself a cheap, big, comfortable pillow. It makes a huge difference.
+ - I’ve been in love with the cinema since childhood and it’s a fantasy of mine to appear in a Hollywood movie.
+ - I look after myself. I train and go to the gym.
+ - I’m with people all the time so I often go away on my own.
+ - I started dancing before I could talk. Other babies learn to stand and then walk – I just danced.
+ - When it came to the stylish and graceful art of ballroom dancing, my dad was a king of the clubs, a prowling tiger and a wonderfully natural mover.
+ - I just like to take my time, have a cup of tea and read the paper. I don’t like starting the day in a panic.
+ - A good show makes me happy. It’s a great sensation. If you could capture a great atmosphere and do it every time, that would be amazing.
+ - If I had a place with a studio where I could paint I’d be happy.
+ - I like to read about subjects unrelated to my work, especially history.
+ - I eat well, but I don’t believe in diets.
+ - My parents wanted me to work in a bank or as an accountant.
+ - When people speak their own language you get a much better sense of who they are.
+ - When I was 10, I knew there was something different about me. Everyone was football-mad, but I just wanted to watch musicals and see art.
+ - I love reading. I’m very much into history, novels, biographies and I have a wide range of thrillers.
+
+26 quotes

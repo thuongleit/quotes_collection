@@ -1,0 +1,42 @@
+ - Today’s science fiction is tomorrow’s science fact. ~~Isaac Asimov
+ - People forget facts, but they remember stories. ~~Joseph Campbell
+ - Facing facts is always empowering. ~~Eckhart Tolle
+ - The fact that life has no meaning is a reason to live – moreover, the only one. ~~Emil Cioran
+ - Impossible is not a fact. It’s an opinion. Impossible is not a declaration. It’s a dare. Impossible is potential. Impossible is temporary. Impossible is nothing. ~~John C. Maxwell
+ - When you face a problem, solve it then and there if you have the facts necessary to make a decision. Don’t keep putting off decisions. ~~Dale Carnegie
+ - A pessimist is an optimist in full possession of the facts. ~~Arthur Schopenhauer
+ - When you’re not patient, you start complaining. And the fact that you’re complaining is a sign that you’re not grateful. ~~Nouman Ali Khan
+ - Patience is a form of wisdom. It demonstrates that we understand and accept the fact that sometimes things must unfold in their own time. ~~Jon Kabat-Zinn
+ - The idea was fantastically, wildly improbable. But like most fantastically, wildly improbable ideas it was at least as worthy of consideration as a more mundane one to which the facts had been strenuously bent to fit. ~~Douglas Adams
+ - It’s a scientific fact that gratitude reciprocates. ~~Matthew McConaughey
+ - And even if somebody else has it much worse, that doesn’t really change the fact that you have what you have. Good and bad. ~~Stephen Chbosky
+ - I’ve never tried to hide the fact that it is my intention to become the best. ~~Cristiano Ronaldo
+ - Rationality is the recognition of the fact that nothing can alter the truth and nothing can take precedence over that act of perceiving it. ~~Ayn Rand
+ - What we call reality is in fact nothing more than a culturally sanctioned and linguistically reinforced hallucination. ~~Terence McKenna
+ - Opinions don’t affect facts. But facts should affect opinions, and do, if you’re rational. ~~Ricky Gervais
+ - The plain fact is: religion must die for mankind to live. ~~Bill Maher
+ - If you find from your own experience that something is a fact and it contradicts what some authority has written down, then you must abandon the authority and base your reasoning on your own findings. ~~Leonardo da Vinci
+ - It is a rare mind indeed that can render the hitherto non-existent blindingly obvious. The cry ‘I could have thought of that’ is a very popular and misleading one, for the fact is that they didn’t, and a very significant and revealing fact it is too. ~~Douglas Adams
+ - The depravity of man is at once the most empirically verifiable reality but at the same time the most intellectually resisted fact. ~~Malcolm Muggeridge
+ - We are fighting for the right to live as free humans in this society. In fact, we are actually fighting for rights that are even greater than civil rights and that is human rights. ~~Malcolm X
+ - To condense fact from the vapor of nuance. ~~Neal Stephenson
+ - In reading, the mind is, in fact, only the playground of another’s thoughts. ~~Arthur Schopenhauer
+ - Atticus told me to delete the adjectives and I’d have the facts. ~~Harper Lee
+ - Morality and values depend on the existence of conscious minds – and specifically on the fact that such minds can experience various forms of well-being and suffering in this universe. ~~Sam Harris
+ - I don’t know why people expect art to make sense. They accept the fact that life doesn’t make sense. ~~David Lynch
+ - The fact that you are free is not your achievement, but rather a failure on our side. ~~Felix Dzerzhinsky
+ - According to quantum mechanics there is no such thing as objectivity. We cannot eliminate ourselves from the picture. We are part of nature, and when we study nature there is no way around the fact that nature is studying itself. ~~Gary Zukav
+ - Become aware of and recognize fully the fact that the Principle of Power within you is God Himself. You must consciously identify yourself with the Highest. ~~Wallace D. Wattles
+ - I believe it’s a fact of life that what we have is less important than what we make out of what we have. ~~Fred Rogers
+ - Comment is free but facts are sacred. ~~C. P. Scott
+ - While washing dishes one should be washing the dishes, which means that while washing the dishes one should be completely aware of the fact that one is washing dishes. ~~Nhat Hanh
+ - When facts are few, speculations are most likely to represent individual psychology. ~~C.G. Jung
+ - It is faith alone that justifies, but faith that justifies can never be alone, though one is justified by faith alone, the faith which justifies is never in fact alone. ~~N. T. Wright
+ - Most successful investors, in fact, do nothing most of the time. ~~Jim Rogers
+ - Any fact facing us is not as important as our attitude toward it, for that determines our success or failure. ~~Norman Vincent Peale
+ - Don’t let adverse facts stand in the way of a good decision. ~~Colin Powell
+ - We are part of this universe; we are in this universe, but perhaps more important than both of those facts, is that the universe is in us. ~~Neil deGrasse Tyson
+ - Truth depends upon the intensity of imagination, not upon facts. ~~Neville Goddard
+ - Paranoia is knowing all the facts. ~~Woody Allen
+
+40 quotes

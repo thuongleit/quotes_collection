@@ -1,0 +1,24 @@
+ - Through my fiction, I make mainstream readers see the new Americans as complex human beings, not as just The Other.
+ - I am aware of myself as a four-hundred-year-old woman, born in the captivity of a colonial, pre-industrial oral culture and living now as a contemporary New Yorker.
+ - My first novel, ‘The Tiger’s Daughter,’ embodies the loneliness I felt but could not acknowledge, even to myself, as I negotiated the no man’s land between the country of my past and the continent of my present.
+ - Bengalis love to celebrate their language, their culture, their politics, their fierce attachment to a city that has been famously dying for more than a century. They resent with equal ferocity the reflex stereotyping that labels any civic dysfunction anywhere in the world ‘another Calcutta.’
+ - I’m very moved by chaos theory, and that sense of energy. That quantum physics. We don’t really, in Hindu tradition, have a father figure of a God. It’s about cosmic energy, a little spark of which is inside every individual as the soul.
+ - What was the duty of the teacher if not to inspire?
+ - In Hindu societies, especially overprotected patriarchal families like mine, daughters are not at all desirable. They are trouble. And a mother who, as mine did, has three daughters, no sons, is supposed to go and hang herself, kill herself, because it is such an unlucky kind of motherhood to have.
+ - My life has gotten a little more complicated than my ability to describe it. That used to be the definition of madness, now it’s just continuous overload.
+ - Growing up in an old-fashioned Bengali Hindu family and going to a convent school run by stern Irish nuns, I was brought up to revere rules. Without rules, there was only anarchy.
+ - The traveler feels at home everywhere, because she is never at home anywhere.
+ - I feel empowered to be a different kind of writer. The longer I stay here, the more light filters into my work. I feel very American. I belong.
+ - Ancestral habits of mind can be constricting; they also confer one’s individuality.
+ - What was the function of poetry if not to improve the petty, cautious minds of evasive children?
+ - Dullness is a kind of luxury.
+ - There was no audience for my books. The Indians didn’t regard me as an Indian and North Americans couldn’t conceive of me of a North American writer, not being white and brought up on wheat germ. My fiction got lost.
+ - We do things when it is our time to do them. They do not occur to us until it is time; they cannot be resisted, once their time has come. It’s a question of time, not motive.
+ - I had a 2-week courtship with a fellow student in the fiction workshop in Iowa and a 5-minute wedding in a lawyer’s office above the coffee shop where we’d been having lunch that day. And so I sent a cable to my father saying, ‘By the time you get this, Daddy, I’ll already be Mrs. Blaise!’
+ - In India, there are real consequences to inattention; drivers who jeopardize pedestrians can be lynched on the spot.
+ - I have to put down roots where I decide to stay. It wasn’t enough for me to be an expatriate Indian in Canada. If I can’t feel that I can make social, political and emotional commitments to a place, I have to find another place.
+ - But, Christ, there’s a difference between exotic and foreign, isn’t there? Exotic means you know how to use your foreignness, or you make yourself a little foreign in order to appear exotic. Real foreign is a little scary, believe me.
+ - I am an American, not an Asian-American. My rejection of hyphenation has been called race treachery, but it is really a demand that America deliver the promises of its dream to all its citizens equally.
+ - A farmer is dependent on too many things outside his control; it makes for modesty.
+
+22 quotes

@@ -1,0 +1,27 @@
+ - Let us be enraged about injustice, but let us not be destroyed by it.
+ - We need, in every community, a group of angelic troublemakers.
+ - We are all one – and if we don’t know it, we will learn it the hard way.
+ - I believe in social dislocation and creative trouble.
+ - When an individual is protesting society’s refusal to acknowledge his dignity as a human being, his very act of protest confers dignity on him.
+ - If we desire a society without discrimination, then we must not discriminate against anyone in the process of building this society. If we desire a society that is democratic, then democracy must become a means as well as an end.
+ - God does not require us to achieve any of the good tasks that humanity must pursue. What God requires of us is that we not stop trying.
+ - To be afraid is to behave as if the truth were not true.
+ - If I do not fight bigotry wherever it is, bigotry is thereby strengthened. And to the degree that it is strengthened, it will, thereby, have the power to turn on me.
+ - The proof that one truly believes is in action.
+ - The moral man is he who is opposed to injustice per se, opposed to injustice wherever he finds it; the moral man looks for injustice first of all in himself.
+ - You have to join every other movement for the freedom of people.
+ - I am an opponent of war and of war preparations and an opponent of universal military training and conscription; but entirely apart from that issue, I hold that segregation in any part of the body politic is an act of slavery and an act of war.
+ - The only weapon we have is our bodies, and we need to tuck them in places so wheels don’t turn.
+ - Bigotrys birthplace is the sinister back room of the mind where plots and schemes are hatched for the persecution and oppression of other human beings.
+ - There is a strong moralistic strain in the civil rights movement that would remind us that power corrupts, forgetting that the absence of power also corrupts.
+ - Since Israel is a democratic state surrounded by essentially undemocratic states which have sworn her destruction, those interested in democracy everywhere must support Israel’s existence.
+ - The Journey of Reconciliation was organized not only to devise techniques for eliminating Jim Crow in travel, but also as a training ground for similar peaceful projects against discrimination in such major areas as employment and in the armed services.
+ - I am a Quaker. And as everyone knows, Quakers, for 300 years, have, on conscientious ground, been against participating in war. I was sentenced to three years in federal prison because I could not religiously and conscientiously accept killing my fellow man.
+ - Every indifference to prejudice is suicide because, if I don’t fight all bigotry, bigotry itself will be strengthened and, sooner or later, it will return on me.
+ - The organizers and perpetuators of segregation are as much the enemy of America as any foreign invader.
+ - If we desire a society in which men are brothers, then we must act towards one another with brotherhood. If we can build such a society, then we would have achieved the ultimate goal of human freedom.
+ - Surely, I must at all times attempt to obey the law of the state. But when the will of God and the will of the state conflict, I am compelled to follow the will of God.
+ - When you’re wrong, you’re wrong. But when you’re right, you’re wrong anyhow.
+ - Conscription for war is inconsistent with freedom of conscience, which is not merely the right to believe but to act on the degree of truth that one receives, to follow a vocation which is God-inspired and God-directed.
+
+25 quotes

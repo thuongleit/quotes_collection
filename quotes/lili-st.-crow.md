@@ -1,0 +1,30 @@
+ - I’m sorry about shooting you.
+ - You told me it was us against the world.
+ - And death doesn’t wait for you when your rested and ready. It sneaks up on you when your exhausted and hungry and cold and so scared you can’t even see straight.
+ - If wishes were fishes, even beggars would eat.
+ - You’ve got a better chance with me, Dru. Don’t do something stupid again. If something happens, it’s you and me against the world. Got it?
+ - I don’t have an accent. Northerners just talk funny.
+ - I was always holding onto people, and they were always leaving.
+ - It’s easy to get rid of people, Christophe. All you have to do is rely on them.
+ - Little pig, little pig, let me in.
+ - I’ve been bitten, beat up, tied to a bed, James Bonded out, and now you finish off by choking a goddamn teacher!
+ - His undies had ridden up into the crack of his narrow ass, of which I was treated to a full view of as he turned and tried to go as quietly as possible up the stairs.
+ - You’re not dead. You’re too goddamn annoying to be dead.
+ - That was what “different” meant. It’s just another word for lonely.
+ - Boys always get the best lashes; it’s like some kind of cosmic law.
+ - Anna never wanted to walk when she could be carried, your mother wanted to walk when she could fly, and you want to run before you can walk.
+ - Anything for you, Dru. And I mean it. Now, be quiet and let me concentrate.
+ - Get to it. I mean, if you’re wanting to beat me up, too, you’ll have to stand in line.
+ - What. The hell.
+ - I even poured him a glass of milk. Call me domestic.
+ - People are goddamn geniuses at not seeing what they don’t want to see.
+ - He was full of suprises, my Goth Boy.
+ - No problem. First one’s free.
+ - I just bonked a werewulf on the noggin. Jeez.
+ - He was so close it was hard to breathe. It was exactly like being next to an oven baking a really spicy apple pie.
+ - Boys. Jeez.
+ - Whoa. Back up. I smell?
+ - Call them fangs, Dru. That’s what they are.
+ - I crossed my arms over my chest. Jeez, it was cold in here all of a sudden. And had he always smelled this good? Was it a cologne? Eau de Christmas Pie?
+
+28 quotes

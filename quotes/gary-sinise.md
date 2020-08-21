@@ -1,0 +1,22 @@
+ - Careers, like rockets, don’t always take off on schedule. The key is to keep working the engines.
+ - While we can never do enough to show gratitude to our nation’s defenders, we can always do a little more.
+ - When I think of work, it’s mostly about having control over your destiny, as opposed to being at the mercy of what’s out there.
+ - But I’ve got more to learn, too. I don’t feel like I’m done or I know it all.
+ - I was always fascinated with rock ‘n’ roll, or girls, or something like that when I was a kid.
+ - I save money when I’m working so that I never have to take a role simply to pay the bills.
+ - You’ve got to keep taking certain risks, because my priority is in acting, it’s not in movie stardom.
+ - Its a way for you to support the children by sending pencils, beanie babies or soccer balls. That all started because of one of those convoys I was on.
+ - It’s always been my dream to do a dance scene with Anthony Hopkins.
+ - I’ve directed enough in the theatre and a couple of films to know that – to feel fairly secure that if I find a story that I really like I can probably get it done somewhat.
+ - I’ve worked with a lot of really fine actors, both on stage and on screen. The level of their game lifts me up and brings the level of my game up to theirs. Always. It’s like a constant upgrade.
+ - Sometimes you’re in great demand. Then suddenly your career hits the breaks.
+ - Wherever I go for the military, they always call me Lt. Dan. They just can’t help it.
+ - Well, I’ve been to Iraq twice now. I was in Baghdad in June and then north of Baghdad in November.
+ - I started a theater called Steppenwolf. We’ve been very supportive of the veterans there.
+ - Yeah, I volunteered to support the troops, and get out there and show them that we care about them.
+ - So for, you know, for a good 20 years now I’ve been involved with veterans and soldiers and in support of them no matter what they’re doing.
+ - Well, youre not incorrect on either front, because absolutely, there are children here in this country that need help as are everywhere in the world.
+ - I study to learn, to be an educated person.
+ - I’m not like one of those actors who’s a frustrated director.
+
+20 quotes

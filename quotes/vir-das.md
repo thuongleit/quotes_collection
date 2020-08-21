@@ -1,0 +1,34 @@
+ - Surround yourself with a bunch of like-minded people, and you’ll soak up their habits like a starved sponge. Fat people with fat friends care less about their weight.
+ - Comedy comes from confusion.
+ - Time management is the mantra of my life.
+ - To me, the trick is not how can I make people laugh. It is, how can I make people laugh in a different way.
+ - I fear debt. I don’t like being indebted to banks. I have a rule in life that I will get it when I can afford it.
+ - I have a rule – ‘funny is funny!’ When I write comedy, it’s not my aim to upset people. I will be offensive, edgy and immature, but I will also be very intelligent and relevant. At my shows, there are no holy cows.
+ - I am edgy, raw, offensive, vulgar, untruthful, but intelligent. My jokes are always realistic. I do not make fun of children or people who cannot fight back. That is my limitation.
+ - Comedy is a live art, and the only way to record a comedy rock album is to do it live. The audience and their laughter is just as much a part of the album sound as our music. No retakes, no room for error.
+ - For me, it is very important to believe in the kind of movies I do. ‘Rang De Basanti’ made me feel good about Indian cinema. The movie instilled in me a confidence so strong, that I wanted to be a part of the revolution in Bollywood.
+ - I’ve been reading a lot of books on history, and watching a lot of educational TV. Wikipedia too, even though it is not reliable.
+ - In Bollywood, people struggle because there is a new person joining every week, who joins an assembly line of people who are very replaceable. But if you are unique, you don’t have to struggle that much.
+ - I do films which get me out of my comedian routine so that I don’t get bored being a stand-up comedian. And with films, it’s here today, gone tomorrow. So stand-up comedy is here to stay for me.
+ - When it comes to English stand-up comedy, Indians have only seen the best – Jerry Seinfeld, Bill Cosby and the like. So, when someone claims to be an English stand-up comedian in India, he’d better be very good if he’s going to make a life of it.
+ - Someday social media might, hopefully in some small measure, wake up to the fact that other people’s failures are not your successes.
+ - I feel like I share a great relationship with my audience where they trust my judgment and choice of films and sense of comedy.
+ - I love the food, the girls, the sky and everything that is Delhi. I have very fond memories of the Moolchand flyover.
+ - In ‘Delhi Belly,’ I was bald; in other movies I always carried a different look.
+ - A stand-up comedian will never be the life of a party. Instead, he will be the guy who is standing at a corner and observing people.
+ - You realise the responsibility of carrying a film on your shoulders when people are investing money in you and they recognise the hard work you have to put in.
+ - Delhi women – they’re the most beautiful women! But the fact remains that they know they are gorgeous.
+ - I am a big fan of Adam Sandler and Ben Stiller, who have carved a niche for themselves. I think doing different kind of films gives you longevity and the ability to set yourself apart.
+ - Relationship humour gets the most laughs. If I’m able to get the women laughing, men will have to laugh along because they would be scared to death.
+ - I’m a stand-up comedian-turned-actor-turned-vampire at night.
+ - My personal favorite is Woody Allen, who is just amazing as a comedian.
+ - In Bollywood, I think Boman Irani and Vinay Pathak are unbelievably good at comedy.
+ - In a big Bollywood romantic film, taking my shirt off and spreading the hand towards the mountain with dancers behind me are not my cup of tea.
+ - Class I to XII wasn’t much help; I was always a mediocre student. But when I pursued higher education and studied economics with theatre or psychology with science fiction, I got a whole new world view.
+ - I auditioned nine times for ‘Delhi Belly,’ and it was torturous!
+ - Whatever movies I sign, they have to get me out of my comfort zone. Otherwise, I would get bored very easily.
+ - All of the films I’m doing are young, urban, high-concept, funny films. That’s the zone where I’d like to play and have fun in.
+ - The idea is to do out-of-the-box films that showcase my versatility and talent.
+ - Women do come up to me after a show, but it’s usually to say, ‘Yhank you for making us laugh,’ and all that.
+
+32 quotes

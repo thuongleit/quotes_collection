@@ -1,0 +1,149 @@
+ - There is only one cause of unhappiness: the false beliefs you have in your head, beliefs so widespread, so commonly held, that it never occurs to you to question them.
+ - Perfect love casts out fear. Where there is love there are no demands, no expectations, no dependency. I do not demand that you make me happy; my happiness does not lie in you. If you were to leave me, I will not feel sorry for myself; I enjoy your company immensely, but I do not cling.
+ - If it is peace you want, seek to change yourself, not other people. It is easier to protect your feet with slippers than to carpet the whole of the earth.
+ - I leave you free to be yourself: to think your thoughts, indulge your tastes, follow your inclinations, behave in ways that you decide are to your liking.
+ - May the peace of God disturb you always.
+ - Nothing has changed but my attitude, therefore, everything has changed.
+ - All is well, all is well. Though everything is a mess, all is well.
+ - All conflict comes from attachment.
+ - Loneliness is not cured by human company. Loneliness is cured by contact with reality.
+ - All that you give to others you are giving to yourself.
+ - Problems only exist in the human mind.
+ - If you look carefully you will see that there is one thing and only one thing that causes unhappiness. The name of that thing is attachment. What is an attachment? An emotional state of clinging caused by the belief that without some particular thing or some person you cannot be happy.
+ - You are never in love with anyone. You’re only in love with your prejudiced and hopeful idea of that person.
+ - I’m going to write a book someday and the title will be I’m an Ass, You’re an Ass. That’s the most liberating, wonderful thing in the world, when you openly admit you’re an ass. It’s wonderful. When people tell me, You’re wrong I say, What can you expect of an ass?
+ - Drop your false ideas. See through people. If you see through yourself, you will see through everyone. Then you will love them. Otherwise you spend the whole time grappling with your wrong notions of them, with your illusions that are constantly crashing against reality.
+ - Suffering is given to you that you might open your eyes to the truth.
+ - Love springs from awareness.
+ - You don’t have to add anything in order to be happy; you’ve got to drop something.
+ - We do not have a fear of the unknown. What we fear is giving up the known.
+ - Wisdom comes to those who learn nothing, unlearn everything.
+ - When the sage points at the moon, all that the idiot sees is the finger.
+ - Live your life as you see fit. That’s not selfish. Selfish is to demand that others live their lives as you see fit.
+ - What you are aware of you are in control of; what you are not aware of is in control of you.
+ - Life is easy, life is delightful. It’s only hard on your illusions, your ambitions, your greed, your cravings.
+ - How sad if we pass through life and never see it with the eyes of a child.
+ - We’re crazy, We’re living on crazy ideas about love, about relationships, about happiness, about joy, about everything.
+ - Look for competence not claims.
+ - The spiritual quest is a journey without distance. You travel from where you are right now To where you have always been. From ignorance to recognition...
+ - If you want to know what it means to be happy, look at a flower, a bird, a child; they are perfect images of the kingdom. For they live from moment to moment in the eternal now with no past and no future.
+ - Can one talk about the ocean to a frog in a well or about the divine to people who are restricted by their concepts?
+ - So love the thought of death, love it.
+ - Wisdom tends to grow in proportion to one’s awareness of one’s ignorance.
+ - Is there life before death? – that is the question!
+ - Enlightenment is: absolute cooperation with the inevitable.
+ - Silence is not the absence of sound, but the absence of self.
+ - Sin is a refusal to grow, a refusal to love, a refusal to get committed, to be concerned, and to take risks.
+ - The present moment is never intolerable. What’s intolerable is what’s going to happen in the next four hours. To have your body here at 8 pm and your mind at 10:30 pm, that’s what causes us suffering.
+ - It is a great mystery that though the human heart longs for Truth, in which alone it finds liberation and delight, the first reaction of human beings to Truth is one of hostility and fear!
+ - A thought is a screen, not a mirror; that is why you live in a thought envelope, untouched by Reality.
+ - If the heart is unobstructed, the result is love.
+ - You are only a disciple because your eyes are closed. The day you open them you will see there is nothing you can learn from me or anyone.
+ - The three most difficult things for a human being are not physical feats or intellectual achievements. They are, first, returning love for hate; second, including the excluded; third, admitting that you are wrong.
+ - Obedience keeps the rules. Love knows when to break them.
+ - Before enlightenment, I used to be depressed; after enlightenment, I continue to be depressed.
+ - You have within yourself the answer to every question you propose – if you only knew how to look for it. In the Land of the spirit, you cannot walk by the light of someone else’s lamp. You want to borrow mine. I’d rather teach you how to make your own.
+ - If you never condemned you would never need to forgive.
+ - A nice definition of an awakened person: a person who no longer marches to the drums of society, a person who dances to the tune of the music that springs up from within.
+ - The only way to change is by changing your understanding.
+ - These things will destroy the human race: politics without principle, progress without compassion, wealth without work, learning without silence, religion without fearlessness, and worship without awareness.
+ - Wisdom can be learned. But it cannot be taught .
+ - Doesn’t everyone see Reality as it is?
+ - You will seek for God in vain till you understand that God can’t be seen as a “thing”; he needs a special way of looking similar to that of little children whose sight is undistorted by prefabricated doctrines and beliefs .
+ - As soon as you look at the world through an ideology, you are finished. No reality fits ideology.
+ - All suffering comes from a person’s inability to sit still and be alone.
+ - Said the master: “Where does your question come from?”
+ - What is a loving heart? A loving heart is sensitive to the whole of life, to all persons; a loving heart doesn’t harden itself to any persons or things.
+ - Happiness is not something you acquire; love is not something you produce; love is not something you have; love is something that has you.
+ - Understand your darkness and it will vanish; then you will know what light is. Understand your nightmare for what it is and it will stop; then you will wake up to reality. Understand your false beliefs and they will drop; then you will know the taste of happiness.
+ - We live in a flash of light; evening comes and it is night forever. It’s only a flash and we waste it. We waste it with our anxiety, our worries, our concerns, our burdens.
+ - Pleasant experiences make life delightful. Painful experiences lead to growth.
+ - You’re not living until it doesn’t matter a tinker’s damn to you whether you live or die. At that point you live. When you’re ready to lose your life, you live it.
+ - You sanctify whatever you are grateful for.
+ - If I haven’t received any grace today, then I was not at home. This is because God is sending deliveries constantly.
+ - When I speak, you must not listen to the words, my dear. Listen to the Silence.
+ - Whatever is truly alive must die. Look at the flowers; only plastic flowers never die.
+ - Take the leap! You cannot cross a chasm in little jumps.
+ - The Rose does not preen herself to catch my eye. She blooms because she blooms. A saint is a saint until he knows he is one.
+ - Ordinarily, everything we do is in our self-interest. Everything.
+ - You keep insisting, I feel good because the world is right! Wrong! The world is right because I feel good. That’s what all the mystics are saying.
+ - You see persons and things not as they are but as you are.
+ - Are you your clothes? Are you your name? Are you your profession? Stop identifying with them. They come and go.
+ - People kill for money or for power. But the most ruthless murderers are those who kill for their ideas.
+ - Said the monk: “All these mountains and rivers and the earth and stars – where do they come from?” Said the master: “Where does your question come from?”
+ - When you cling, life is destroyed; when you hold on to anything, you cease to live.
+ - Every word, every image used for God is a distortion more than a description.
+ - People who want a cure, provided they can have it without pain, are like those who favour progress, provided they can have it without change.
+ - The seeker says, “I do not know.” That takes honesty. The master says, “I do not know.” That takes a mystic’s mind that knows things through non-knowing. The disciple says, “I know.” That takes ignorance, in the form of borrowed knowledge.
+ - The important thing is not to know who “I” is or what “I” is. You’ll never succeed. There are no words for it. The important thing is to drop the labels.
+ - Rare indeed, is the relationship in which the other is not cultivated for what one can get for oneself.
+ - My experience is that it’s precisely the ones who don’t know what to do with this life who are all hot and bothered about what they are going to do with another life.
+ - The only way someone can be of help to you is in challenging your ideas. If you’re ready to listen and if you’re ready to be challenged, there’s one thing that you can do, but no one can help you. What is this most important thing of all? It’s called self-observation.
+ - A disciple was one day recalling how Buddha, Jesus, Mohammed were branded as rebels and heretics by their contemporaries. Said the Master, Nobody can be said to have attained the pinnacle of Truth until a thousand sincere people have denounced him for blasphemy .
+ - The poor think they will be happy when they become rich. The rich think they will be happy when they are rid of their ulcers.
+ - My commitment is not to consistency but to the Truth .
+ - When someone offends you, you can raise your spirits to heights where offenses cannot reach.
+ - The butterfly in a caterpillar: the eagle in an egg; the saint in a selfish human being.
+ - All I did was sit on the riverbank handing out river water. After I’m gone, I trust you will notice the river.
+ - As the Japanese Zen masters say, “Don’t seek the truth; just drop your opinions”. Drop your theories; don’t seek the truth.
+ - The sun and its light, the ocean and the wave, the singer and his song – not one. Not two.
+ - When you are guilty, it is not your sins you hate but yourself.
+ - Thought can organize the world so well that you are no longer able to see it.
+ - People who deliberate fully before they take a step will spend their lives on one leg.
+ - If you make me your authority, you harm yourself because you will not see things for yourself, and you harm me too because you refuse to see me as I am.
+ - The human mind makes foolish divisions in what love sees as one.
+ - The best things in life cannot be willed into being.
+ - You can read books without ever stepping into a library; and practice spirituality without ever going to a temple.
+ - You can will an act of service but you cannot will love.
+ - When God means you to be a healer he sends you patients; when he makes you a teacher he sends you pupils; when he destines you to be a Master he sends you stories .
+ - Spirituality practiced in the state of activity is incomparably superior to that practiced in a state of withdrawel.
+ - Can one be fully human without experiencing tragedy? The only tragedy there is in the world is ignorance; all evil comes from that.
+ - Step by step, let whatever happens happen. Real change will come when it is brought about, not by your ego, but by reality. Awareness releases reality to change you.
+ - A lost coin is found by means of a candle; the deepest truth is found by means of a simple story.
+ - There comes a point in your life when you become stark raving insane, commit suicide or become a mystic.
+ - God in heaven holds each person by a string. When you sin, you cut the string. Then God ties it up again. Making a knot, bringing you a little closer to Him. Again and again your sins cut the string and with each knot God keeps drawing you closer and closer.
+ - To a woman who complained about her destiny the Master said, “It is you who make your destiny.” “But surely I am not responsible for being born a woman?” “Being born a woman isn’t destiny. That is fate. Destiny is how you accept your womanhood and what you make of it.”
+ - One always treads with a joyful step when one has dropped the burden called the ego.
+ - When you fight something, you’re tied to it forever. As long as you’re fighting it, you’re giving it power.
+ - It’s only when you become love – in other words, when you have dropped your illusions and attachments – that you will “know.” As you identify less and less with the “me,” you will be more at ease with everybody and with everything.
+ - The day you are happy for no reason whatsoever, the day you find yourself taking delight in everything and in nothing, you will know that you have found the land of unending joy called the kingdom.
+ - One day, a philosopher asked, “What is the purpose of creation?” “Lovemaking,” said the Master. Later, to his disciples, he said, “Before creation, love was. After creation, love was made. When love is consummated, creation will cease to be, and love will be forever.”
+ - A good teacher offers practice, a bad one offers theories .
+ - Another illusion is that external events have the power to hurt you, that other people have the power to hurt you. They don’t. It’s you who give this power to them.
+ - If you don’t look at things through your concepts, you’ll never be bored. Every single thing is unique.
+ - This truth I firmly hold, all evidence to the contrary notwithstanding; my life has been a gift, a blessing to the world.
+ - To those who seek to protect their ego true Peace brings only disturbance.
+ - People who want to rise above a well-cooked meal and a well-tailored garment, are out of their spiritual minds.
+ - No. An unremitting readiness to admit you may be wrong.
+ - The master never seemed to have his fill of gazing at his firstborn child. “What do you want him to be when he grows up?” someone asked. “Outrageously happy,” said the master.
+ - Those who make no mistakes are making the biggest mistakes of all – they are attempting nothing new.
+ - People mistakenly assume that their thinking is done by their head; it is actually done by the heart which first dictates the conclusion, then commands the head to provide the reasoning that will defend it.
+ - To fight evil with activity is like fighting darkness with one’s hands. So what you need is light, not fit.
+ - Most people don’t live aware lives. They live mechanical lives, mechanical thoughts – generally somebody else’s – mechanical emotions, mechanical actions, mechanical reactions.
+ - You’ve got to drop something. You’ve got to drop illusions. You don’t have to add anything in order to be happy; you’ve got to drop something. Life is easy, life is delightful. It’s only hard on your illusions, your ambitions, your greed, your cravings.
+ - The world is right because I feel good. p. 83, Awareness, copyright 1990.
+ - Because everyone is the same distance from the sun. Does it really lessen the distance if you live on top of a skyscraper?
+ - To relate is to react. To react is to understand oneself. To understand oneself is to be enlightened. Relationships are schools for enlightenment.
+ - In many ways we were drugged when we were young. We were brought up to need people. For what? For acceptance, approval, appreciation, applause.
+ - You’re so ashamed of your past; drop it! You’re so proud of your past; drop it!
+ - A newly married couple said, “What shall we do to make our love endure?” Said the Master, “Love other things together”...
+ - Any time you are with anyone or think of anyone you must say to yourself: I am dying and this person too is dying, attempting the while to experience the truth of the words you are saying. If every one of you agrees to practice this, bitterness will die out, harmony will arise.
+ - Sinners often speak the truth. And saints have led people astray. Examine what is said, not the one who says it.
+ - When the eye is unobstructed, the result is sight. When the ear is unobstructed, the result is hearing. When the mind is unobstructed the result is truth. When the heart is unobstructed, the result is joy and love.
+ - There’s nothing you can do to see – it is a gift.
+ - You do not have to change for God to love you.
+ - Concepts are always frozen. Reality flows.
+ - This is what is ultimate in our human knowledge of God, to know that we do not know.
+ - The Master would insist that the final barrier to our attaining God was the word and concept God.
+ - There were rules in the monastery, but the Master always warned against the tyranny of the law. ‘Obedience keeps the rules,’ he would say. ‘Love knows when to break them.’
+ - If what you said was true, where was the need to shout?
+ - I wish to become a teacher of the Truth.
+ - The words of the scholar are to be understood. The words of the master are not to be understood. They are to be listened to as one listens to the wind in the trees and the sound of the river and the song of the bird. They will awaken something within the heart that is beyond all knowledge.
+ - Take away human beings from this planet and life would go on, nature would go on in all its loveliness and violence. Where would the problem be? No problem. You created the problem. You are the problem. You identified with “me” and that is the problem. The feeling is in you, not in reality.
+ - Religion is the finger pointing to God. People are too busy licking the finger to notice where it’s pointing.
+ - The feigning sleeper can delude others he cannot delude himself. The false mystic, unfortunately, can delude both others and himself.
+ - Because you cannot see outside of you what you fail to see inside.
+ - You have to understand, my dears, that the shortest distance between truth and a human being is a story.
+ - One year of life is worth more than twenty years of hibernation.
+
+147 quotes

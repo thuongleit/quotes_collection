@@ -1,0 +1,50 @@
+ - I love my family, I’ll do anything for them.
+ - If you break your knee, you have therapy on your knee, and it’s the same for your heart.
+ - I like being in love. I want to be in love, but at this stage of my life, my career is, by far, the most important thing to me. It’s my passion.
+ - I can imagine you touching my private parts. With just the thought of you I can’t help, but touch myself.
+ - Like Scarlett O’Hara, I won’t be broke again.
+ - I learned that I had to believe in myself and not just to be comfortable with the opinions of others. I’m just more in control; I finalize everything.
+ - All I want is moonlight, with you there inside of me, all night, doing it again and again. You know I want you so bad.
+ - I don’t smoke often, maybe once or twice a month, but it makes me feel sexy and romantic.
+ - How could an Angel break my heart? Why didn’t he catch my falling star? I wish I didn’t wish so hard. Maybe I wished our love apart.
+ - But I don’t want to be out there anymore; I don’t want people asking me about my health issues, about my kids. I choose not to be a public paparazzi girl on purpose.
+ - Broadway, I have to memorize everything. You get one time to do it right.
+ - I’ll probably be 80 years old and still performing. Music is like fashion, it changes. But some things will always be the same.
+ - Some people say I’m kinda country, but I like to take risks on fashion. I kinda go left sometimes, so you can get a taste of my personality.
+ - I often felt like I was walking around with this Scarlet Letter stitched to my chest from the way that people treated me.
+ - I’m a businesswoman who’s serious about her money. I want an empire.
+ - Dating is different when you get older. You’re not as trusting, or as eager to get back out there and expose yourself to someone.
+ - Will people think I’ve been dropped? Oh God, you don’t want people to think that. No one will want to touch you if they think you got dropped.
+ - I had a 23 per cent blockage in my micro-arteries. At first the doctors thought I needed a heart transplant, then they said I have microvascular angina, which means I will be on medication for the rest of my life.
+ - Grammys, American Music Awards, successful albums, I’d pick my kids any day over any of it.
+ - I’d lose my mind if I heard my kid call the nanny Mommy.
+ - You lose the arrogance you need to be successful, but you need that arrogance because the second someone sees that side of you and chip at it, it’s over.
+ - I’ve always tried to be positive. There’s a lot going on.
+ - When I first go out on stage, there are tummy bubbles everywhere.
+ - I let everybody else’s negative energy feed on me a little.
+ - There are problems with the single already. I don’t want to put out the first single, Hit the Freeway.
+ - I think that once an artist has proven herself and you sell lots of records, you should be compensated.
+ - To do what you love can sometimes be stressful.
+ - I’ve always been able to do sprinkles of hip-hop here and there in all my albums, but I’m not sure how my fans are gonna feel about coming out first with something that’s so hip-hop.
+ - I felt that putting my all into the relationship would have taken me away from my career. And I couldn’t do that then.
+ - I was a 10 million-plus selling artist.
+ - Although becoming a singer was my plan A after first hearing Whitney Houston when I was 17, I started off with plan B by going to the teacher-training college that my dad went to. It was a slow coming of age.
+ - I take an active role in my imaging and how I look.
+ - When I watched American Idol, I always thought Simon was the most realistic. Simon’s like, It was absolutely horrid. That’s what they tell in the music industry.
+ - If anyone did any harm to my children, I don’t know what I would do.
+ - When you take high risks, the rewards are higher. So sometimes I’ll gamble just to see what happens. If it doesn’t work, I know I can’t do that.
+ - It sometimes makes me feel sexy to wear something revealing. But I have gone too far. I have to be honest about that.
+ - I look at other artists who have had fabulous first albums, and you don’t know what they’re doing today. Who’s to say I’ll be an exception to that rule?
+ - Sad songs seem to work for me, but I don’t want to be redundant; I want to add a little flavor.
+ - My ideal kinda guy, if I was really gonna go there even though he’s married, is Mark Wahlberg. To me he’s a little black and white, the kinda guy who would understand if I pull my weave out.
+ - I was so glad I did Beauty and the Beast. I always wanted to act, and if the bankruptcy thing hadn’t happened, I wouldn’t have started acting.
+ - I’m in love with kid’s stories and animation.
+ - I’ve been advised not to have any more children for medical reasons, so that’s it – the shop has closed, even though I would have loved a daughter.
+ - You can never go back to the first two albums in a career.
+ - I do six shows a week. Sometimes my voice gets tired, but I love it.
+ - If I’m uncomfortable, you’d never know.
+ - I can’t record in the morning because I sound like Barry White.
+ - You don’t want a whole bunch of yes people around you.
+ - Performing live is the greatest high in the world. That’s why I do what I do.
+
+48 quotes

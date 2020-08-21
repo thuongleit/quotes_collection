@@ -1,0 +1,24 @@
+ - Doctor, do you think it could have been the sausage?
+ - Truth has nothing to do with the number of people it convinces.
+ - Intelligence is nothing without delight.
+ - Speak about Christ only when you are asked. But live so that people ask about Christ!
+ - We must not seek happiness in peace, but in conflict.
+ - Gentlemen, in the little moment that remains to us between the crisis and the catastrophe, we may as well drink a glass of Champagne.
+ - Open your eyes! The world is still intact; it is as pristine as it was on the first day, as fresh as milk!
+ - In a word, poetry can not exist without emotion, or, if you will, without a movement of the soul which regulates the words.
+ - Art imitates nature not in its effects as such, but in its causes, in its ‘manner,’ in its process, which are nothing but a participation in and a derivation of actual objects, of the Art of God himself.
+ - The only living socities are those which are animated by inequality and injustice.
+ - Jesus did not come to explain away suffering or remove it. He came to fill it with His Presence.
+ - Eighty years old! No eyes left, no ears, no teeth, no legs, no wind! And when all is said and done, how astonishingly well one does without them.
+ - When man tries to imagine Paradise on earth, the immediate result is a very respectable Hell.
+ - The words I use Are everyday words and yet are not the same! You will find no rhymes in my verse, no magic. There are your very own phrases.
+ - How amazing it is to be alive Anyone who lives and breathes and puts both feet on the ground, What possible reason could he have for envying the gods.
+ - Time: all things consume it, love alone makes use of it.
+ - All that passes is raised to the dignity of expression; all that happens is raised to the dignity of meaning. Everything is either symbol or parable.
+ - The priest has just baptized you a Christian with water; and I baptize you a Frenchman, daring child, with a dewdrop of champagne on your lips.
+ - Now I know that at the heart of the universe is joy.
+ - You explain nothing, O poet, but thanks to you all things become explicable.
+ - It is fortunate that diplomats have long noses since they usually cannot see beyond them.
+ - Every birth is a getting to know.
+
+22 quotes

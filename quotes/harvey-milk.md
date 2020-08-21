@@ -1,0 +1,26 @@
+ - Hope will never be silent.
+ - If a bullet should enter my brain, let that bullet destroy every closet door.
+ - All young people, regardless of sexual orientation or identity, deserve a safe and supportive environment in which to achieve their full potential.
+ - It takes no compromise to give people their rights.
+ - Freedom is too enormous to be slipped under a closet door.
+ - Rights are won only by those who make their voices heard.
+ - All men are created equal. Now matter how hard they try, they can never erase those words. That is what America is about.
+ - It takes no compromising to give people their rights. It takes no money to respect the individual. It takes no survey to remove repressions.
+ - Coming out is the most political thing you can do.
+ - Burst down those closet doors once and for all, and stand up and start to fight.
+ - I like to sit in the window and watch the cute boys walk by.
+ - We will not win our rights by staying quietly in our closets.
+ - I have tasted freedom. I will not give up that which I have tasted. I have a lot more to drink. For that reason, the political numbers game will be played. I know the rules of their game now and how to play it.
+ - To sit on the front steps – whether it’s a veranda in a small town or a concrete stoop in a big city – and to talk to our neighborhoods is infinitely more important than to huddle on the living-room lounger and watch a make-believe world in not-quite living color.
+ - If it were true that children mimicked their teachers, you’d sure have a helluva lot more nuns running around.
+ - The American Dream starts with the neighborhoods.
+ - I finally reached the point where I knew I had to become involved or shut up.
+ - Never take an elevator in city hall.
+ - If I do a good job, people won’t care if I am green or have three heads.
+ - The fact is that more people have been slaughtered in the name of religion than for any other single reason. That, that my friends, that is true perversion!
+ - A reading of the Declaration of Independence on the steps of a building is widely covered. The events that started the American Revolution were the meetings in homes, pubs, on street corners.
+ - Some people call me the unofficial mayor of Castro Street.
+ - If we wish to rebuild our cities, we must first rebuild our neighborhoods.
+ - Out of the bars and into the streets!
+
+24 quotes

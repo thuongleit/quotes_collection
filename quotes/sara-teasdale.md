@@ -1,0 +1,59 @@
+ - You will recognize your own path when you come upon it because you will suddenly have all the energy and imagination you will ever need.
+ - I make the most of all that comes and the least of all that goes.
+ - My soul is a broken field, plowed by pain.
+ - Stephen kissed me in the spring, Robin in the fall, But Colin only looked at me And never kissed at all. Stephen’s kiss was lost in jest, Robin’s lost in play, But the kiss in Colin’s eyes Haunts me night and day.
+ - It is strange how often a heart must be broken before the years can make it wise.
+ - No one worth possessing can be quite possessed.
+ - I am not yours, nor lost in you, not lost, although I long to be. Lost as a candle lit at noon, lost as a snowflake in the sea. You love me, and I find you still a spirit beautiful and bright, yet I am I, who long to be lost as a light is lost in light.
+ - Until I lose my soul and lie Blind to the beauty of the earth, Deaf though shouting wind goes by, Dumb in a storm of mirth; Until my heart is quenched at length And I have left the land of men, Oh, let me love with all my strength Careless if I am loved again.
+ - Oh to be free of myself, With nothing left to remember, To have my heart as bare As a tree in December; Resting, as a tree rests After its leaves are gone, Waiting no more for a rain at night Nor for the red at dawn.
+ - I shall have peace, as leafy trees are peaceful when rain bends down the bough; And I shall be more silent and cold hearted than you are now.
+ - Beauty, more than bitterness, makes the heart break.
+ - When I can look life in the eyes, grown calm and very coldly wise, life will have given me the truth, and taken in exchange – my youth.
+ - Spend all you have for loveliness, Buy it and never count the cost; For one white singing hour of peace Count many a year of strife well lost, And for a breath of ecstasy Give all you have been, or could be.
+ - Faults They came to tell your faults to me, They named them over one by one; I laughed aloud when they were done, I knew them all so well before, – Oh, they were blind, too blind to see Your faults had made me love you more.
+ - Oh who can tell the range of joy or set the bounds of beauty?
+ - Love said, “Wake still and think of me,” Sleep, “Close your eyes till break of day,” But Dreams came by and smilingly Gave both to Love and Sleep their way.
+ - My soul is a dark ploughed field In the cold rain; My soul is a broken field Ploughed by pain.
+ - Now at last I have come to see what life is, Nothing is ever ended, everything only begun, And the brave victories that seem so splendid Are never really won.
+ - There in the windy flood of morning Longing lifted its weight from me, Lost as a sob in the midst of cheering, Swept as a sea-bird out to sea.
+ - Love in my heart is a cry forever Lost as the swallow’s flight, Seeking for you and never, never Stilled by the stars at night.
+ - The world is tired, the year is old, The faded leaves are glad to die...
+ - I saw a star slide down the sky Blinding the north as it went by Too buring and too quick to hold Too lovely to be bought or sold Good only to make wishes on And then forever to be gone.
+ - Let it be forgotten, as a flower is forgotten, Forgotten as a fire that once was singing gold, Let it be forgotten forever and ever, Time is a kind friend, he will make us old.
+ - All through the deep blue night The fountain sang alone; It sang to the drowsy heart of the satyr carved in stone. The fountain sang and sang But the satyr never stirred- Only the great white moon In the empty heaven heard.
+ - Oh Earth, you gave me all I have, I love you, I love you, – oh what have IThat I can give you in return – Except my body after I die?
+ - Let this single hour atone For the theft of all of me.
+ - Into my heart’s treasury I slipped a coin That Time cannot take Nor a thief purloin- O better than the minting Of a gold-crowned king Is the safe-kept memory Of a lovely thing.
+ - I saw above a sea of hills A solitary planet shine, And there was no one, near or far, to keep the world from being mine.
+ - O beauty, are you not enough; why am I crying after love.
+ - Take love when love is given.
+ - Life is a frail moth flying Caught in the web of the years that pass.
+ - Joy was a flame in me Too steady to destroy. Lithe as a bending reed, Loving the storm that sways her.
+ - Life has loveliness to sell, all beautiful and splendid things, blue waves whitened on a cliff, soaring fire that sways and sings, and children’s faces looking up, holding wonder like a cup.
+ - My heart is a garden tired with autumn.
+ - I am the pool of gold When sunset burns and dies – You are my deepening skies; Give me your stars to hold.
+ - SONG You bound strong sandals on my feet, You gave me bread and wine, And sent me under sun and stars, For all the world was mine. Oh, take the sandals off my feet, You know not what you do, For all my world is in your arms, My sun and stars are you.
+ - Down the hill I went, and then, I forgot the ways of men, For night-scents, heady and damp and cool Wakened ecstasy.
+ - With my singing I can make, a refuge for my spirit’s sake; a house of shining words, to be my fragile immortality.
+ - For I shall learn from flower and leaf, That color every drop they hold, To change the lifeless wine of grief To living gold.
+ - Call him wise whose actions, words, and steps are all a clear because to a clear why.
+ - Spend all you have for loveliness.
+ - Only by love is life made real.
+ - It is enough for me by day To walk the same bright earth with him; Enough that over us by night The same great roof of stars is dim. I do not hope to bind the wind Or set a fetter on the sea – It is enough to feel his love Blow by like music over me.
+ - Time is a kind friend, he will make us old.
+ - There is a quiet at the heart of love, And I have pierced the pain and come to peace.
+ - Take love when love is given, But never think to find it A sure escape from sorrow Or a complete repose.
+ - I found more joy in sorrow than you could find in joy.
+ - The ache of empty arms was an old tale to you.
+ - Wisdom is not acquired save as the result of investigation.
+ - But you I never understood, Your spirit’s secret hides like goldSunk in a Spanish galleon Ages ago in waters cold.
+ - Though I know he loves me, tonight my heart is sad; his kiss was not so wonderful as all the dreams I had.
+ - What we have never had, remains; It is the things we have that go.
+ - The poet should try to give his poem the quiet swiftness of flame, so that the reader will feel and not think while he is reading. But the thinking will come afterwards.
+ - I shall not let a sorrow die Until I find the heart of it, Nor let a wordless joy go by Until it talks to me a bit.
+ - Of my own spirit let me be in sole though feeble mastery.
+ - Make songs for Death as you would sing to Love -But you will not assuage him. He aloneOf all the gods will take no gifts from men.
+ - It is my heart that makes my songs, not I.
+
+57 quotes

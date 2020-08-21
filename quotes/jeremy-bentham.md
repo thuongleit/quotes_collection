@@ -1,0 +1,45 @@
+ - A civilized society must count animals as worthy of moral consideration and ethical treatment. The question is not, Can they reason? nor Can they talk? but, Can they suffer?
+ - Create all the happiness you are able to create; remove all the misery you are able to remove.
+ - Create all the happiness you are able to create; remove all the misery you are able to remove. Every day will allow you, – will invite you to add something to the pleasure of others, – or to diminish something of their pains.
+ - It is with government as with medicine, its only business is the choice of evils. Every law is an evil, for every law is an infraction of liberty.
+ - Publicity is the very soul of justice. It is the keenest spur to exertion, and the surest of all guards against improbity.
+ - It is vain to talk of the interest of the community, without understanding what is the interest of the individual.
+ - Lawyers sometimes tell the truth. They’ll do anything to win a case.
+ - Why should the law refuse its protection to any sensitive being? The time will come when humanity will extend its mantle over everything which breathes...
+ - Nature has placed mankind under the government of two sovereign masters, pain and pleasure.
+ - Pleasure is in itself a good; nay, even setting aside immunity from pain, the only good.
+ - Natural rights is simple nonsense: natural and imprescriptible rights, rhetorical nonsense – nonsense upon stilts.
+ - The word “independence” is united to the accessory ideas of dignity and virtue. The word “dependence” is united to the ideas of inferiority and corruption.
+ - Reputation is the road to power.
+ - All poetry is misrepresentation.
+ - Happiness is a very pretty thing to feel, but very dry to talk about.
+ - Is it possible for a man to move the earth? Yes; but he must first find out another earth to stand upon.
+ - There is no pestilence in a state like a zeal for religion, independent of morality.
+ - The day may come when the rest of the animal creation may acquire those rights which never could have been withholden from them but by the hand of tyranny.
+ - The spirit of dogmatic theology poisons anything it touches.
+ - Prose is when all the lines except the last go on to the end. Poetry is when some of them fall short of it.
+ - We may scatter the seeds of courtesy and kindness about us at little expense. Some of them will fall on good ground, and grow up into benevolence in the minds of others, and all of them will bear fruit of happiness in the bosom whence they spring.
+ - No power of government ought to be employed in the endeavor to establish any system or article of belief on the subject of religion.
+ - The turn of a sentence has decided the fate of many a friendship, and, for aught that we know, the fate of many a kingdom.
+ - As to the evil which results from censorship, it is impossible to measure it, because it is impossible to tell where it ends.
+ - Want keeps pace with dignity. Destitute of the lawful means of supporting his rank, his dignity presents a motive for malversation, and his power furnishes the means.
+ - The question is not can animals speak but can they suffer.
+ - O Logic: born gatekeeper to the Temple of Science, victim of capricious destiny: doomed hitherto to be the drudge of pedants: come to the aid of thy master, Legislation.
+ - Without publicity, no good is permanent; under the auspices of publicity, no evil can continue.
+ - The law of England has established trial by judge and jury in the conviction that it is the mode best calculated to ascertain the truth.
+ - How is property given? By restraining liberty; that is, by taking it away so far as necessary for the purpose. How is your house made yours? By debarring every one else from the liberty of entering it without your leave.
+ - Lawsuits generally originate with the obstinate and the ignorant, but they do not end with them; and that lawyer was right who left all his money to the support of an asylum for fools and lunatics, saying that from such he got it, and to such he would bequeath it.
+ - Every law is an infraction of liberty.
+ - All government is a trust. Every branch of government is a trust, and immemorially acknowledged to be so.
+ - I don’t care whether animals are capable of thinking; all I care about is that they are capable of suffering!
+ - If Christianity needed an Anti-Christ, they needed look no farther than Paul.
+ - To what shall the character of utility be ascribed, if not to that which is a source of pleasure?
+ - The addability of the happiness of different subjects is a postulum without which all political reasonings are at a stand.
+ - The request of industry to government is as modest as that of Diogenes to Alexander: Get out of my light.
+ - Bodies are real entities. Surfaces and lines are but fictitious entities. A surface without depth, a line without thickness, was never seen by any man; no; nor can any conception be seriously formed of its existence.
+ - Unkind language is sure to produce the fruits of unkindness – that is, suffering in the bosom of others.
+ - He who thinks and thinks for himself, will always have a claim to thanks; it is no matter whether it be right or wrong, so as it be explicit. If it is right, it will serve as a guide to direct; if wrong, as a beacon to warn.
+ - Those physical difficulties which you cannot account for, be very slow to arraign; for he that would be wiser than Nature would be wiser than God.
+ - Among the several cloudy appellatives which have been commonly employed as cloaks for misgovernment, there is none more conspicuous in this atmosphere of illusion than the word Order.
+
+43 quotes

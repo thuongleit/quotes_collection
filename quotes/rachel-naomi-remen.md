@@ -1,0 +1,73 @@
+ - Helping, fixing, and serving represent three different ways of seeing life. When you help, you see life as weak. when you fix, you see life as broken. When you serve, you see life as whole. Fixing and helping may be the work of the ego, and service the work of the soul.
+ - When you listen generously to people they can hear the truth in themselves, often for the first time.
+ - Being safe is about being seen and heard and allowed to be who you are and to speak your truth.
+ - A loving silence often has more power to heal and to connect than the most well-intentioned words.
+ - Healing may not be so much about getting better, as about letting go of everything that isn’t you – all of the expectations, all of the beliefs – and becoming who you are.
+ - The willingness to consider possibility requires a tolerance of uncertainty.
+ - Life offers its wisdom generously. Everything teaches. Not everyone learns.
+ - Grieving allows us to heal, to remember with love rather than pain. It is a sorting process. One by one you let go of the things that are gone and you mourn for them. One by one you take hold of the things that have become a part of who you are and build again.
+ - Our purpose in life is to grow in wisdom and in love.
+ - The most basic and powerful way to connect to another person is to listen. Just listen.
+ - The secret of living well is not in having all the answers but in pursuing unanswerable questions in good company.
+ - Perhaps the most important thing we ever give each other is our attention.
+ - It has been my experience that presence is a more powerful catalyst for change than analysis.
+ - Silence is a place of great power and healing.
+ - An unanswered question is a fine traveling companion. It sharpens your eye for the road.
+ - Anger is just a demand for change, a passionate wish for things to be different.
+ - I don’t think there’s such a thing as a bad emotion. The only bad emotion is a stuck emotion.
+ - Our listening creates a sanctuary for the homeless parts within another person.
+ - A shaman is someone who has a wound that will not heal. He sits by the side of the road with his open wound exposed.
+ - Facts bring us to knowledge, but stories lead to wisdom.
+ - Our wounds are our sources of growth.
+ - When we pray, we don’t change the world, we change ourselves.
+ - The wisdom in the story of the most educated and powerful person is often not greater than the wisdom in the story of a child, and the life of a child can teach us as much as the life of a sage.
+ - It has been said that sometimes we need a story more than food in order to live. p 374.
+ - Religion is a bridge to the spiritual, but the spiritual lies beyond religion.
+ - Belief traps or frees us.
+ - In the silence of listening, you can know yourself in everyone, the unseen singing softly to itself and to you.
+ - Those who bless and serve life find a place of belonging and strength, a refuge.
+ - When we know ourselves to be connected to all others, acting compassionately is simply the natural thing to do.
+ - We may need to let go of our beliefs and ideas about life in order to have life.
+ - Befriending life is less a matter of knowledge than a question of wisdom. It is not about mastering life, controlling it or exerting our will over it, no matter how well intentioned our will may be. Befriending life is more about harmlessness than it is about control.
+ - Perhaps wisdom is simply a matter of waiting, and healing a question of time. And anything good you’ve ever been given is yours forever.
+ - From a good teacher you may learn the secret of listening. You will never learn the secret of life. You will have to listen for yourself.
+ - Big messages come in small packages. All it may take to restore someone’s trust in life may be returning a lost earring or a dropped glove.
+ - At the deepest level, the creative process and the healing process arise from a single source. When you are an artist, you are a healer; a wordless trust of the same mystery is the foundation of your work and its integrity.
+ - Just Listen an excerpt.
+ - Life is known only by those who have found a way to be comfortable with change and the unknown. Given the nature of life, there may be no security, but only adventure.
+ - We are all born to be a blessing.
+ - Of course love is never earned. It is a grace we give one another. Anything we need to earn is only approval.
+ - In our instinctive attachments, our fear of change, and our wish for certainty and permanence, we may undercut the impermanence which is our greatest strength, our most fundamental identity. Without impermanence, there is no process. The nature of life is change. All hope is based on process.
+ - Most of us lead far more meaningful lives than we know. Often finding meaning is not about doing things differently; it is about seeing familiar things in new ways.
+ - Suffering shapes the life force, sometimes into anger, sometimes into blame and self-pity. Eventually it may show us the wisdom of embracing and loving life.
+ - The sacred lives beyond labels and judgment, in the wood-of-no-names.
+ - What we do to survive is often different from what we may need to do in order to live.
+ - Being alive is being aware, being able to be touched and moved and changed, being able to respond rather than to react, being able to see and hear.
+ - The choice people have to make is never between slavery and freedom. We will always have to choose between slavery and the unknown.
+ - When we listen, we offer with our attention an opportunity for wholeness.
+ - A blessing is not something that one person gives another. A blessing is a moment of meeting, a certain kind of relationship in which both people involved remember and acknowledge their true nature and worth, and strengthen what is whole in one another.
+ - Cancer changes your whole life.
+ - People have the natural capacity to affirm and embrace life in the most difficult of circumstances.
+ - Goose bumps happen when your soul is close to you, breathing lightly on the back of your neck, and wakes you up.
+ - Illiness could be considered a Western form of meditation.
+ - Our limitations serve, our wounds serve, even our darkness can serve.
+ - As I age I am grateful to find that a silence has begun to gather in me, coexisting with my tempers and my fears, unchanged by my joys or my pain. Sanctuary. Connected to the Silence everywhere.
+ - I think that people get experiences, and out of those experiences come meaning and ideas. It’s like watching a rose bush grow.
+ - I have no idea about what death is, but because I have been in association with it so intimately, I have a much greater sense of the value of life and of what life can be.
+ - When people are blessed they discover that their lives matter, that there is something in them worthy of blessing.
+ - I think ideas only lead to change for intellectual people; and not even them. What really leads to change is experience. Life itself is the teacher.
+ - It is not that we have a soul, but that we are a soul.
+ - If you carry someone else’s fears and live by someone else’s values, you may find that you have lived their lives.
+ - Everybody is a story.
+ - Fear is the friction in all transitions.
+ - Is it possible to live so defensively that you never get to live at all?
+ - Sooner or later we will come to the edge of all that we can control and find life, waiting there for us.
+ - When we are seen by the heart we are seen for who we are. We are valued in our uniqueness by those who are able to see us in this way and we become able to know and value ourselves.
+ - The way towards freedom from a situation often lies in acceptance of the situation.
+ - My sense is that you can never teach anybody anything, or change anybody in ways that they don’t already have in mind.
+ - All natural processes are long processes and they last.
+ - If we fear loss enough, in the end the things we possess will come to possess us.
+ - I spent the first forty years of my life making major interventions into other people’s lives, and I have an idea of the limitations of that method. I see a major event as rather like major surgery. It is a moment, but whether people use it, whether people go with it, needs to be seen.
+ - People are waking up in their homes – without conferences. They’re waking up because life is waking them up, not because of some conference called “Body and Soul.”
+
+71 quotes

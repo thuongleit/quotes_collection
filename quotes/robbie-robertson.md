@@ -1,0 +1,55 @@
+ - You fog the mind, you stir the soul.
+ - There’s something so healthy about young people speaking up in unity.
+ - There is an extraordinary collaborative spirit when you are learning and growing.
+ - Working on ‘The Last Waltz’ introduced me to Martin Scorsese, and I had been a movie bug since I was a young kid.
+ - You don’t stumble upon your heritage. It’s there, just waiting to be explored and shared.
+ - Confused by the big city blues, he didn’t know who’s life he’s leading. Put yourself behind the wheel, see if you can get that feel.
+ - Say a prayer for the lost generation, who spin the wheel out of desperation.
+ - Most of my younger Native American friends are not in any way looking for sympathy, and they’re not looking to lay guilt on anybody. They have their dignity, and they do what they do.
+ - For years after ‘The Last Waltz,’ I got all kinds of silly movie offers – or, maybe, not silly, but parts that are not my calling lots of offers to play some wonderful boyfriend.
+ - Music should never be harmless.
+ - It’s a bit of a sore spot, the Thanksgiving in Indian country.
+ - I don’t like overt traditionalism.
+ - I think the world of Chuck Berry.
+ - I don’t believe it’s all for nothing. It’s not just written in the sand.
+ - The rock concert experience for people was really pretty stupid, you know, at the time. People would go to concerts not with the idea of listening at all.
+ - I play guitar quite a bit, because I’m always in search of something. I don’t play to jam, but because I’m fishing. I’m looking for something, that I hope you can never find. If I do find it, I’m afraid I won’t have a need to do this any more.
+ - I’d always thought Cage’s ‘Root of an Unfocus’ would be great in a movie.
+ - If I can play one note and make you cry, then that’s better than those fancy dancers playing twenty notes.
+ - People go through periods when things are dark and cloudy, and they talk dark and cloudy.
+ - I admire those old road dogs, Willie Nelson, Bob Dylan. That’s their life.
+ - Everybody grows in their own way.
+ - We need to have a taste factor in our life. It isn’t about what’s popular; it’s about what’s really good.
+ - When I was playing with Bob Dylan in, like, 1966, I was, like, 20 years old.
+ - You never know what could be interesting tomorrow.
+ - Give us the strength, give us the wisdom, and give us tomorrow.
+ - When I was younger, I thought I was too young to really be personal. I thought that what I was feeling and thinking might be half-baked.
+ - I think, some countries, you have to be dead to have your picture on a stamp.
+ - I love the idea of having a kid who says, ‘Yeah, of course I knew about Billie Holiday and Johnny Cash when I was nine years old.’
+ - I wanted to develop a guitar style where phrases and lines get there just in the nick of time, like with Curtis Mayfield and Steve Cropper. Subtleties mean so much, and there is a stunning beauty in them.
+ - Some music is supposed to be disposable; that’s OK. A lot of music is fun for today, but it isn’t supposed to be timeless; it’s supposed to be trendy.
+ - At a young age I thought, ‘Wow, that fiddle thing, that’s pretty cool. That mandolin is great. These drums, I like these drums ’ They were Indian drums. And I was saying, ‘But that guitar. That guitar. Girls are going to like that guitar.’
+ - I’m really lucky because I found myself in a position where I can do whatever I want to do. I can make records, produce records, make movies, or I can do nothing. I’m not a slave to the dollar.
+ - I come from a family who prided themselves, both sides, on memory. And I was told growing up, constantly, that I was born with a really good memory.
+ - That whole lifestyle – make a record, do a tour: I know how to do that. It doesn’t interest me.
+ - I haven’t been to many music events where somebody was performing and it actually made me cry.
+ - Boy, do I got some stories to tell.
+ - Lord please save his soul, he was the king of rock and roll.
+ - Some people love some music, and they hear it a year later and they think, ‘What was I thinking?’
+ - It’s extraordinary that revolutions taking place around the world were sparked by communication on the Internet.
+ - I really have to feel a sense of freedom in my storytelling.
+ - I don’t want to be one of those people saying, ‘Remember when things were better?’
+ - I’ve always been in love with that Delta-flavored music the music that came from Mississippi and Memphis and, especially, New Orleans. When I was 14, I was in a wanna-be New Orleans band in Toronto.
+ - When you make a record, your own record, and you don’t even recognize it yourself, it’s hard to think if anybody else is going to recognize.
+ - I think that there’s always great music being made. Always has been, always will be.
+ - Once you establish a foundation of knowing what the greatest recording artists of all time were Wouldn’t you want your kids to know this stuff?
+ - The Beatles tried to do some tours and found it to be completely pointless and became a non-touring band after that, and with very good reason.
+ - Time is not kind to everything.
+ - I like to work on records when I feel inspired, not because it’s expected of me.
+ - I try not to think the song to death. The main criteria is if it’s working on an emotional level.
+ - Musical revolutions, I don’t know how many I’ve been through.
+ - There’s a bookstore in New York where you could buy scripts, and I got addicted to them because they were easy, quick reads and the pictures were so vivid.
+ - Bob Dylan is as influential as any artist that there has been.
+ - Record making is an extraordinary experience.
+
+53 quotes

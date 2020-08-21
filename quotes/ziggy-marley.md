@@ -1,0 +1,166 @@
+ - If you keep hiding your true self, your life becomes like slow death. Once you become free from the lies and the hiding of yourself, then life becomes vibrant again.
+ - God is like the sun. When the sun shines, it shines for everyone. God is for everyone.
+ - As a viewer, I love watching movies. There has to be an emotional connection.
+ - The people who are teaching religion and not teaching love are missing the message.
+ - The solution for mankind is of a spiritual nature. It is not a political or religious solution. It’s the ability to love each other. That’s the only solution I see.
+ - The long-term study of GMO foods is going on in real time and in real life. Not in a lab.
+ - Doing something that is productive is a great way to alleviate emotional stress. Get your mind doing something that is productive.
+ - There’s a rainbow in the sky, all the time, don’t be blind.
+ - There’s more to life than physical and material.
+ - The revolution will come from the people and the willingness to work towards something better, to fight for a better living.
+ - Each of us has some change within us, we cannot change the political or the social system of the world unless we change inside of us as individuals and that’s the direction I am in now which I call spiritual.
+ - The present is what slips by us while we’re pondering the past and worrying about the future.
+ - Reggae has a philosophy, you know? It’s not just entertainment. There’s an idea behind it, a way of life behind the music, which is a positive way of life, which is a progressive way of life for better people.
+ - I believe we are all connected to other people. I am connected to people who are suffering. We all are.
+ - Reggae music is simple music – but it’s from the heart. Just as people need water to drink, people also need music. If it is true music, the people will be drawn to it.
+ - In my songs, the sex is all subliminal. It’s subliminal, spiritual.
+ - I learned from my father that music is from God and the message is from God.
+ - I don’t condemn and I don’t convert. I’ve been searching through books and bibles to find what this life is worth, and I’ve made up my mind: Love is my religion. You can take it or leave it, and you don’t have to believe it. Love is my religion.
+ - The African-American community still needs to come together as one and stand up for rights of the people and of what’s happening in their culture, their community.
+ - No matter the bad things that happened in past time, let’s try to live the best we can now.
+ - Running is a part of my medicine. It’s what helps relieve my stress, and it’s what helps me get away from the concerns of business and anything else that’s going on in my life that I need to escape from at times – to find who I am. Running really helps me with that.
+ - Nobody owns me or my music.
+ - Love is cheering and sharing and compassion and giving and receiving. Love is an action thing more than a word thing, that brings comfort or joy or relief to anyone or anything.
+ - Last time I was in Jamaica I financed a teacher to teach in an orphanage.
+ - Record stores keep the human social contact alive it brings people together. Without the independent record stores the community breaks down with everyone sitting in front of their computers.
+ - Growing up, music was an important part of my childhood. I see it being just as important in my children and all children’s growth and development, and in a parent’s connection with their children.
+ - I’m a spiritual musician, I think there has been enough political musicians and I think everything that can be said has been said about political, social things, you know, and there’s still some more to be said but not much.
+ - Old music used to mean something. There is none of that today.
+ - I don’t care what you play, where you’re from, who you produce. It depends on what you’re doing when you’re with me. That’s what counts. I don’t pre-judge anything or anybody.
+ - I want people to get over the stigma about hemp. These seeds can’t make you high, but they will make you feel good.
+ - Children are wonderful, and they add to my whole life.
+ - My father loved all different types of music. He wasn’t a snob. He wasn’t a purist.
+ - Jamaica has problems; America has problems; everywhere has problems.
+ - Using political tools to change social conditions won’t work.
+ - I like doing nothing, actually. Doing nothing is better thing when I am not working.
+ - Screaming, it’s not me. I tried it before! Action is more my thing. Not talking. It’s hard for me to have word fights, fighting with words. I’d rather just listen.
+ - I would look at a dog and when our eyes met, I realized that the dog and all creatures are my family. They’re like you and me.
+ - I want the people who listen to my music to feel the feeling that I feel, to cry the cry that I cry – justice. I want them to feel in their hearts the need for justice.
+ - Love is more than one thing.
+ - People are loving me because they don’t even know me. “You’re Bob’s son. We love you.” So I think that’s a good thing for a father to leave so much that people are loving their children. I’m proud of that.
+ - There is a physical relationship with a woman that you don’t have with anybody else, but that’s not about love. Love is a spiritual thing.
+ - If there is no love in your heart – so sorry, Then there is no hope for you – true, true.
+ - I was born by myself but carry the spirit and blood of my father, mother and my ancestors. So I am really never alone. My identity is through that line.
+ - Success means different things to different people. To me, the greatest quality of successful human beings is the ability to love.
+ - I love running in nature. I don’t like running on the streets, I don’t like running in the city, I don’t like running on the concrete. I love running in nature, so Jamaica provides a lot of that for me.
+ - The last thing my father told me was: ‘On your way up, take me up. On your way down, don’t let me down.’ A father telling his son that puts some responsibility on my shoulders. He told me that, and I take it very seriously.
+ - I am not trying to be better than my father. I am not trying to be like him. I am just trying to be myself and express myself how I feel.
+ - People love me everywhere I go.
+ - I’m a big reader. My kids love reading, and I think it’s important, not just for development but for bonding. You start reading to kids before they can even understand what you’re saying to them, so I look at it as a fundamental tool for connection.
+ - My father’s music gives hope to people and also inspires them to break the bonds of injustice and to be positive in life. I’ve seen that everywhere I go, especially in poor countries and poor neighborhoods.
+ - Proud about my father? What am I most proud of? I think I’m proud of the legacy he left I think is what it is. He has left us so much.
+ - The sun is always shining. We have oxygen, trees, birds. There’s so much good things on Earth, still. We haven’t destroyed everything.
+ - I’ve been in Africa, America, moving around a lot. It’s helped me to open up my mind. I was born in Jamaica; I’ve lived all my life there and got all I could from Jamaica. But I needed to be somewhere else to grow.
+ - I think that music, beats, melody, sound are a natural part of our DNA, our vibe. It’s just a part of the cycle of our lives, we’re born, we have eyes, we have music.
+ - People treat you according to your energy or what you put out there, so what I put out there is very open. I’m not paranoid or scared, I’m open. That’s how I treat people, with respect and speak truthfully.
+ - Success to me does not mean money.
+ - I think if I’m serious about affecting people with music, I have to affect people on a human to human level, not on a grand social idea or political idea, it has to be a human being idea so it has to be what’s inside a human being.
+ - My father was like the Old Testament. I am the New Testament. I am part of a new generation. In time, people will realize this.
+ - I’ve tried body surfing. It’s nice.
+ - My dream is to live a good life and be loving, be close to God and be a good human being and bring peace to people.
+ - My father’s songs don’t intimidate me; my father’s songs are my songs. My songs are his songs. There’s no intimidation.
+ - Everything, I just wanted to be like my father. And, as I grew within the music, I kind of became myself which was even more like my father, only without me trying though.
+ - I can feel my father’s spirit within me. I can feel similarities within us from the artistic perspective from being a musician. We have a lot of similarities.
+ - I am freely able to express myself honestly to the public without trying to polish it over, trying to hide something. I’m just trying to be free with my expression.
+ - I am not reggae, I am me. I am bigger than the limits that are put on me. It all has to do with the individual journey.
+ - If African countries can unite and pull resources together, then that will be the best thing we could ever do for the problems in Africa including AIDS.
+ - I’m digging Batman. I’m digging that balance, that duality. He’s always on the edge and trying to balance himself within the rules of what’s lawful and justice, and being Bruce Wayne and being Batman.
+ - Social revolutions and group revolutions are good, and we need that, but we also need personal revolution – revolution within ourselves that change who we are as people.
+ - My father, his spirit is with me constantly, and I’m a believer in that world and the world of dreams and that stuff.
+ - I am a compassionate human being. I am who I am.
+ - This dragonfly came up to me. He was hovering right in front of my face, and I was really examining him, thinking, How does he see me? I became enlightened.
+ - The people don’t run the system; the people are victims of the system. The people choose the leaders thinking that they will help them. But when they turn around, there is no help.
+ - I think parents today are looking for meaningful things for their kid. It’s about feeding them something with meaning.
+ - The Rastafari culture has a very strong connection to Haile Selassie, a descendant of King Solomon.
+ - I was in my yard and thought that the tree was a living being. We take trees for granted. We don’t believe they are as much alive as we are.
+ - Music is a unifying force.
+ - I am a leader. Leaders always get heat. They’re always going against the grain. Jimi Hendrix got heat; Bob Marley got heat; Miles Davis got heat. Every great artist got heat. Heat means you’re doing something right.
+ - The political system is not for the people. The people are secondary to the economy. It’s about what generates money, not about what benefits the people.
+ - As an artist, I feel that my father’s biggest influence is me realizing that music has a purpose and it’s not just for business and that music is spiritual. I get that from him that music is a spiritual thing.
+ - Children are the world’s future, and we need to take care of them like we would any precious resource.
+ - My father, my Rastafari culture, has a tight link to the Jewish culture. We have a strong connection from when I was a young boy and read the Bible, the Old Testament.
+ - I don’t have to wait to realize the good old days.
+ - We believe in the almighty and we believe in God and that music is from God and we’re inspired by God to give messages and ideas to people.
+ - I’ve opened up more by traveling outside Jamaica. It helps me to grow as a person to be outside of my element; to be on my own in a strange place meeting people.
+ - I’m not so much into the beats. I’m more into the spiritual side of the music.
+ - It takes years to develop into the kind of human being you want to be.
+ - I follow the universe; I follow G-d. G-d made the sun, and the sun shines on everyone.
+ - Yoga is a great thing and meditation is also great to get connected to yourself more.
+ - The more red meat and blood we eat, the more bloodthirsty we get, the more violent we get. The more vegetarian food we eat, the more peace is taken into us.
+ - I have found that children are the most open-minded of all my audiences. They are not set in their ways. They are open to ideas.
+ - Politics, nature, and what is happening all over the world is important to who we are and where we live.
+ - I prefer the country life. I live in Kingston, but there is lots of trees.
+ - It’s very important that we instill some respect for the parents. In America especially, the kids are unruly, screaming at Mommy and Daddy, running the show.
+ - The roots of my music start from the ghetto.
+ - My father was interested in bringing reggae music to the entire world.
+ - I was 12 when my father passed, so I didn’t have a father during my teenage years.
+ - I don’t fight creativity. I don’t fight against not being creative. If I’m not being creative, I’m not forcing it.
+ - My father and I had a really good relationship. We’re cool. I am not trying to outdo him or anything like that.
+ - How come “fat chance” and “slim chance” mean the same thing?
+ - It was my dad’s idea that music is supposed to be more than simply about entertainment and making a living, but about being of service as an integral part of the consciousness of the world. In honor of him and because it’s right, I use music in that light.
+ - A record is a message, timeless.
+ - I left Jamaica for a while, because as an artist I need to experience different things, see the world, have different energies. Living in one place is not good for me.
+ - I never did feel any pressure in Jamaica. You just someone, not nobody big.
+ - It’s that kind of in-born music thing – I could pick up the guitar and play something. It’s not something I consciously do.
+ - I want to be fulfilled in myself, rather than try to follow exactly in my father’s footsteps.
+ - Kids are an important audience to reach for the future of the planet.
+ - My father speaks for himself, through his music.
+ - I don’t think we should do anything that should make the people hate the American people more.
+ - I have a satellite radio show called ‘The Legends of Reggae.’ It’s a cool way to branch out and do other things. I’m paying respect to the legends of reggae.
+ - Society and the system and politicians don’t want people to be aware of things. They want people to believe what they have to show ’em.
+ - When people come to Jamaica, we don’t want them to think about the problems of Jamaica. So let them come be in their paradise.
+ - Some of my songs I don’t do on tour because they don’t work well live.
+ - Working on my own gave me a chance to take my time and experiment a lot.
+ - The challenges we face are never as important as the challenges we face up to.
+ - My best business decision was to be independent as a musician and artist. My worst was compromising on certain aspects of a deal for the sake of other members of my group when I shouldn’t have, because I was right in the end.
+ - I used to have this little mouse. I buy birds from the pet store and I let them go.
+ - The more I grow as an artist, the more I think I become like my father as an artist. The more I diversify, the more I become like my father, which is true to who he was.
+ - If religion had a good purpose, then man would have created something great. But we’re man: we mess up everything. We mess up nature. We mess up God. We take what is given to us and make it into what we think it should be.
+ - The most important thing my father taught me is that every man has to stand up for his rights.
+ - Children are not a burden.
+ - Everything I’ve taken away from my father has been significant. So, I can’t say that any one lesson is the most significant. By being around him, I learned that there is a purpose in life, and that if we are inspired to help people, we should do it.
+ - I think my type of personality has all music inside of it, so I am full of music, without even knowing it, without even learning it, without even hearing it.
+ - I’m not Catholic, I’m not Orthodox and I wouldn’t even say Rastafarian, that still divides people, I don’t want to divide people so anything that I say is something that must be so big and great that it did encompass everyone and it’s love.
+ - If food is labeled, some people might choose to eat stuff that’s genetically modified. They might decide they love it. But give us a choice.
+ - I’m not a slave to the recording industry. I have the freedom to make an album that I want to make and do it the way I want.
+ - Today, music is great for entertainment, but it is lacking soul; it’s lacking substance, and it’s difficult to find good stuff. There are too many corporate interests. It’s not about the actual music because it’s about the corporation, and music just becomes part of a package.
+ - I think Americans should have a policy of love. That should be the foreign policy, love. Export Love.
+ - I don’t like to do things for any other reason than it happens spontaneously or there’s something that makes it happen naturally. I don’t like putting down too many plans and trying to do a strategy to get a certain response or a certain effect.
+ - I come to sing for the people, not for the government. God made the sunshine for everyone and made the moon for everyone. We have to follow his example so we have to play music for everyone too. We have a message, and in order for our message to reach the people, we have to play.
+ - We still have to evolve, that’s how we’re created, we’re created to evolve so you can believe in that the answer is in this book or in this one idea that the masses most believe in, each individual must evolve themselves, spiritually and consciously.
+ - I think the people should have a right to boycott whoever they want to boycott without the government making them into criminals and try to protect corporations from people. They should protect people from corporations.
+ - My whole family is spiritual. My grandmother, grand aunt, cousins, they’re all preachers and pastors. Spirituality is a part of my family, from generations ago.
+ - I don’t believe in other people’s ideas. I have my own ideas.
+ - I think God surrounds us, in all different manifestations of the energy.
+ - Sometimes my mistakes turn into interesting music because I do things that aren’t supposed to be done.
+ - I rented a house, recorded the stuff in a house. Just took my time ’cuz sometimes it’s just rush, rush, rush. I just wanna live and play music.
+ - Fitness has always been one of the top priorities in my life because that’s the way I grew up, with soccer being the sport of choice.
+ - In Jamaica, we eradicated polio many years ago, but there are a lot of kids suffering in Africa still.
+ - Hemp is a part of the cannabis plant, and it is very useful.
+ - The truth – you’ve got to deal with it or it will kill you bit by bit.
+ - Each father wants their sons to be just like them, really.
+ - I’ve never read one book about my father.
+ - I try to make my music interesting to me first, then hopefully other people will find it interesting, too.
+ - I’m into anything that really helps children.
+ - People have to know there is more to living than physical things.
+ - I am expressing myself truthfully. That is an important thing.
+ - Things like lack of leadership and a lack of the willingness to evolve, they’re so used to keeping people within the constraints of the idea that has been the same idea for a thousand years.
+ - Art is always good. It just depends if you like or not.
+ - URGE is a grassroots charity. We organized to get some incubators to give to the hospital for the kids. We donate money to orphanages.
+ - I’m not an American, Do they count the votes in America? I haven’t voted in Jamaica either.
+ - I don’t chase what I hear on the radio. I try not to compete with anybody.
+ - It’s hard to say a favorite song of my father’s. I listen to all his stuff – a lot of the old stuff before the ’70s.
+ - Religion has become so many different things. Religion is an economic thing for some people. Religion is a gun.
+ - As an artist myself I don’t like to be preached. I want to enjoy myself, so I kind of use that perspective to make music.
+ - I run four times a week. And I don’t count miles – I don’t do that. I don’t care about that. I care about how I feel, and I run according to how I feel.
+ - The idea of who my father is to me is very different than who he is to you, or to the rest of the world.
+ - I grew up with coconuts as the main flavor in food in Jamaica. It’s part of our culture.
+ - I think it’s wrong the way they criminalize herb. There are many more uses than just smoking. Beneficial to mankind.
+ - I’m inspired to do music. I really can’t stop unless I stop being inspired.
+ - I just got into the Beatles a couple years ago, you know, I like it.
+ - Music is one of the most essential things in life. It is what teaches us.
+ - It’s natural that anyone is compared to their father.
+ - I’ve spent a lot of time in America since Sept. 11, 2001. Being here, I was noticing that the people, who in the ’60s used to voice their opinions about their rights, are much different today. People are afraid to voice opposition to the government in a mass way.
+ - I make music that I know that people will enjoy, and balance the ideas and philosophy that we put in music with music that when we play it live, people can move to it and groove to it.
+
+164 quotes

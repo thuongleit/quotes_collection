@@ -1,0 +1,502 @@
+ - When you want something, all the universe conspires in helping you to achieve it.
+ - Sometimes you have to travel a long way to find what is near.
+ - If you’re brave enough to say goodbye, life will reward you with a new hello.
+ - Travel is never a matter of money but of courage.
+ - You have two choices, to control your mind or to let your mind control you.
+ - It’s the possibility of having a dream come true that makes life interesting.
+ - The world is changed by your example, not by your opinion.
+ - There is only one thing that makes a dream impossible to achieve: the fear of failure.
+ - You are what you believe yourself to be.
+ - When we strive to become better than we are, everything around us becomes better, too.
+ - Be brave. Take risks. Nothing can substitute experience.
+ - Don’t allow your mind to tell your heart what to do. The mind gives up easily.
+ - So, I love you because the entire universe conspired to help me find you.
+ - It’s what you do in the present that will redeem the past and thereby change the future.
+ - You can't avoid pain, but you can choose to overcome it.
+ - We must never stop dreaming. Dreams provide nourishment for the soul, just as a meal does for the body.
+ - You will never be able to escape from your heart. So it’s better to listen to what it has to say.
+ - There is no time to leave important words unsaid.
+ - A life without a cause is a life without effect.
+ - We always know which is the best road to follow, but we follow only the road that we have become accustomed to.
+ - The danger of an adventure is worth a thousand days of ease and comfort.
+ - If you think adventure is dangerous, try routine; it is lethal.
+ - Fortunate are those who take the first steps.
+ - If you believe in victory, then victory will believe in you.
+ - Happiness is something that multiplies when it is divided.
+ - If you love someone, you must be prepared to set them free.
+ - Fight for your dreams, and your dreams will fight for you.
+ - Haters are confused admirers who can’t understand why everybody else likes you
+ - Life always waits for some crisis to occur before revealing itself at its most brilliant.
+ - Love simply is.
+ - The universe only makes sense when we have someone to share our feelings with.
+ - Be like the fountain that overflows, not like the cistern that merely contains.
+ - Sadness does not last forever when we walk in the direction of that which we always desired.
+ - Life has many ways of testing a person’s will, either by having nothing happen at all or by having everything happen all at once.
+ - One is loved because one is loved. No reason is needed for loving.
+ - The secret of life, though, is to fall seven times and to get up eight times.
+ - Don’t waste your time with explanations: people only hear what they want to hear.
+ - The axe always forgets. The tree always remembers.
+ - The simple things are also the most extraordinary things, and only the wise can see them.
+ - Life is short. Kiss slowly, laugh insanely, love truly and forgive quickly.
+ - If you are never alone, you cannot know yourself.
+ - Waiting is painful. Forgetting is painful. But not knowing which to do is the worst kind of suffering.
+ - Your eyes show the strength of your soul.
+ - Don’t explain. Your friends do not need it, and your enemies will not believe you.
+ - Love is just a word until someone comes along and gives it meaning.
+ - Remember that wherever your heart is, there you will find your treasure.
+ - Stay mad, but behave like normal people. Run the risk of being different, but learn to do so without attracting attention.
+ - Nothing in this world happens by chance.
+ - Tell your heart that the fear of suffering is worse than the suffering itself. And that no heart has ever suffered when it goes in search of its dreams, because every second of the search is a second’s encounter with God and with eternity.
+ - If it’s still in your mind, it is still in your heart.
+ - If you conquer yourself, then you conquer the world.
+ - Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day.
+ - Tears are words that need to be written.
+ - Whenever you want to achieve something, keep your eyes open, concentrate and make sure you know exactly what it is you want. No one can hit their target with their eyes closed.
+ - What hurts us is what heals us.
+ - I don’t live in either my past or my future. I’m interested only in the present. If you can concentrate always on the present, you’ll be a happy man. Life will be a party for you, a grand festival, because life is the moment we’re living now.
+ - People are afraid to pursue their most important dreams, because they feel that they don’t deserve them, or that they’ll be unable to achieve them.
+ - I can choose either to be a victim of the world or an adventurer in search of treasure. It’s all a question of how I view my life.
+ - Freedom is not the absence of commitments, but the ability to choose – and commit myself to – what is best for me.
+ - And one has to understand that braveness is not the absence of fear but rather the strength to keep on going forward despite the fear.
+ - Remember the saying, What doesn’t kill you, makes you stronger? It’s true!
+ - No one loses anyone, because no one owns anyone. That is the true experience of freedom: having the most important thing in the world without owning it.
+ - When I had nothing to lose, I had everything. When I stopped being who I am, I found myself.
+ - It’s the simple things in life that are the most extraordinary.
+ - Only two things can reveal life’s great secrets: suffering and love.
+ - Love is not to be found in someone else, but in ourselves; we simply awaken it. But in order to do that, we need the other person. The universe only makes sense when we have someone to share our feelings with.
+ - It’s only those who are persistent and willing to study things deeply, who achieve the master work.
+ - And, when you can’t go back, you have to worry only about the best way of moving forward.
+ - Anyone who loves in the expectation of being loved in return is wasting their time.
+ - Listen to your heart. It knows everything.
+ - All you have to do is to pay attention; lessons always arrive when you are ready, and if you can read the signs, you will learn everything you need to know in order to take the next step.
+ - Don’t give in to your fears. If you do, you won’t be able to talk to your heart.
+ - There are moments when troubles enter our lives and we can do nothing to avoid them. But they are there for a reason. Only when we have overcome them will we understand why they were there.
+ - Every blessing ignored becomes a curse.
+ - What is a teacher? I’ll tell you: it isn’t someone who teaches something, but someone who inspires the student to give of her best in order to discover what she already knows.
+ - Whoever you are, or whatever it is that you do, when you really want something, it’s because that desire originated in the soul of the universe. It’s your mission on earth.
+ - There is only one way to learn. It’s through action. Everything you need to know you have learned through your journey.
+ - Scars speak more loudly than the sword that caused them.
+ - Everyone on earth has a treasure that awaits him.
+ - Certain things in life simply have to be experienced -and never explained. Love is such a thing.
+ - If I must be faithful to someone or something, I have, first of all, have to be faithful to myself.
+ - Every moment in life is an act of faith.
+ - Accept what life offers you and try to drink from every cup. All wines should be tasted; some should only be sipped, but with others, drink the whole bottle.
+ - Intuition is really a sudden immersion of the soul into the universal current of life.
+ - And if I’m alone in bed, I will go to the window, look up at the sky, and feel certain that loneliness is a lie, because the Universe is there to keep me company.
+ - You are someone who is different, but who wants to be the same as everyone else. And that in my view is a serious illness. God chose you to be different. Why are you disappointing God with this kind of attitude?
+ - To love is to lose control.
+ - Sometimes there’s just no way to hold back the river.
+ - My heart might be bruised, but it will recover and become capable of seeing beauty of life once more. It’s happened before, it will happen again, I’m sure. When someone leaves, it’s because someone else is about to arrive – I’ll find love again.
+ - But if you believe yourself worthy of the thing you fought so hard to get, then you become an instrument of God, you help the Soul of the World, and you understand why you are here.
+ - I don’t regret my painful times, i bare my scars as if they were medals. I know that freedom has a high price, as high as that of slavery; the only difference is that you pay with pleasure and a smile, even when that that smile dimmed by tears.
+ - Love is only a word, until we decide to let it possess us with all its force. Love is only a word, until someone arrives to give it meaning. Don’t give up. Remember, it’s always the last key on the key ring that opens the door.
+ - If pain must come, may it come quickly. Because I have a life to live, and I need to live it in the best way possible. If he has to make a choice, may he make it now. Then I will either wait for him or forget him.
+ - With the rain, falls the wisdom of heaven.
+ - Dreaming is very pleasant as long as you are not forced to put your dreams into practice.
+ - Borges said there are only four stories to tell: a love story between two people, a love story between three people, the struggle for power and the voyage. All of us writers rewrite these same stories ad infinitum.
+ - Death frees from the fear of dying.
+ - This is what we call love. When you are loved, you can do anything in creation. When you are loved, there’s no need at all to understand what’s happening, because everything happens within you.
+ - If there is any possible consolation in the tragedy of losing someone we love very much, it’s the necessary hope that perhaps it was for the best.
+ - If one day I could get out of here, I would allow myself to be crazy. Everyone is indeed crazy, but the craziest are the ones who don’t know they’re crazy; they just keep repeating what others tell them to.
+ - If you want to be successful, you must respect one rule. Never lie to yourself.
+ - Only cowards hide behind silence.
+ - The devil is in the detail.
+ - When you say ‘yes’ to others, make sure you are not saying ‘no’ to yourself.
+ - Life is like a garden, you reap what you sow.
+ - Remember your dreams and fight for them.
+ - I start to think that I’m losing the love I have without having yet won the love I hope to win.
+ - Imagine a new story for your life and start living it.
+ - Do something instead of killing time. Because time is killing you.
+ - Always remember the proverb: “This too shall pass.” Your negative feelings won’t last forever, there’s a light at the end of every tunnel. It might not happen today or tomorrow, but you’ll feel better eventually.
+ - Never apologize for being yourself.
+ - Even if it is only for a matter of moments, because those moments bring with them a Love so intense that it justifies the rest of our days.
+ - Impossible is just an opinion.
+ - If you only walk on sunny days you’ll never reach your destination.
+ - It’s always easy to blame others. You can spend your entire life blaming the world, but your successes or failures are entirely your own.
+ - People are capable, at any time in their lives, of doing what they dream of.
+ - The adrenaline and stress of an adventure are better than a thousand peaceful days.
+ - When I had all the answers, the questions changed.
+ - And a mistake repeated more than once is a decision.
+ - Remember your dreams and fight for them. You must know what you want from life. There is just one thing that makes your dream become impossible: the fear of failure.
+ - Discipline and freedom are not mutually exclusive but mutually dependent because otherwise, you’d sink into chaos.
+ - At a certain point in our lives, we lose control of what’s happening to us, and our lives become controlled by fate. That’s the world’s greatest lie.
+ - You are not defeated when you lose. You are defeated when you quit.
+ - The eyes are the mirror of the soul and reflect everything that seems to be hidden; and like a mirror, they also reflect the person looking into them.
+ - Straight roads do not make skillful drivers.
+ - Every search begins with beginner’s luck. And every search ends with the victor’s being severely tested.
+ - Dreamers can’t be tamed.
+ - Empty your mind, stop thinking about anything, simply be.
+ - Love is just a word until someone comes along and gives it meaning. Dream is also just a word until you decide to fight for it with all your enthusiasm and commitment.
+ - Never give up. When your heart becomes tired, just walk with your legs – but move on.
+ - Miracles only happen if you believe in miracles.
+ - Your decision to walk creates the path ahead.
+ - The power of storytelling is exactly this: to bridge the gaps where everything else has crumbled.
+ - People are capable, at any time in their lives, of doing what they dream of. It’s the possibility of having a dream come true that makes life interesting. And, when you want something, all the universe conspires in helping you to achieve it.
+ - Teaching is only demonstrating that it is possible. Learning is making it possible for yourself.
+ - The darkest hour was just before dawn.
+ - Choose the mountain you want to climb: don’t pay attention to what other people say, such as “that one’s more beautiful” or “this one’s easier”. You’ll be spending lots of energy and enthusiasm to reach your objective, so you’re the only one responsible and you should be sure of what you’re doing.
+ - Life was always a matter of waiting for the right moment to act.
+ - Telling the truth and making someone cry is better than telling a lie and making someone smile.
+ - An enthusiastic heart finds opportunities everywhere.
+ - Listen to your heart. It knows all things, because it came from the Soul of the World and it will one day return there.
+ - Everything in life has its price.
+ - If you don’t care about what people think, you already passed the first step of success.
+ - A great pleasure in life is to do what they say you can’t.
+ - You can’t change the wind. But you can adjust the sails to reach your destination.
+ - Fear of suffering is worse than the suffering itself.
+ - You drown not by falling into a river, but by staying submerged in it.
+ - People never learn anything by being told, they have to find out for themselves.
+ - Love is an unconditional commitment to an imperfect person. To love somebody isn’t just a strong feeling. It is a decision, a judgment, and a promise.
+ - Hold the hand of the child within you. For this child, nothing is impossible.
+ - Change. But start slowly, because direction is more important than speed.
+ - I’m not a body with a soul, I’m a soul that has a visible part called the body.
+ - When in doubt, just take the next small step.
+ - It is always important to know when something has reached its end. Closing circles, shutting doors, finishing chapters, it doesn’t matter what we call it; what matters is to leave in the past those moments in life that are over.
+ - When you find your path, you must not be afraid. You need to have sufficient courage to make mistakes. Disappointment, defeat, and despair are the tools God uses to show us the way.
+ - To me, a witch is a woman that is capable of letting her intuition take hold of her actions, that communes with her environment, that isn’t afraid of facing challenges.
+ - To realize one’s destiny is a person’s only obligation.
+ - The two hardest tests on the spiritual road are the patience to wait for the right moment and the courage not to be disappointed with what we encounter.
+ - When you are enthusiastic about what you do, you feel this positive energy. It’s very simple.
+ - Don’t give up. Normally it is the last key on the ring which opens the door.
+ - A Warrior of the Light cannot always choose his battlefield.
+ - With every farewell comes a hidden hope.
+ - Dreams are the language of God.
+ - You are the light of the world. Shine, and darkness will disappear.
+ - Don’t live every day as if it were your last. Live every day as if it were your first.
+ - Never hate jealous people. They are jealous because they think you are better than them.
+ - Seize every opportunity that life offers you because, when opportunities go, they take a long time to come back.
+ - To enjoy the rainbow, first enjoy the rain.
+ - Hurry up: your dreams are waiting for you, but they will not wait forever.
+ - How people treat other people is a direct reflection of how they feel about themselves.
+ - Success is falling down 7 times but getting up 8!
+ - God always offers us a second chance in life.
+ - Suffering comes from desire, not from pain.
+ - At every moment of our lives, we all have one foot in a fairy tale and the other in the abyss.
+ - There is always a gap between intention and action...
+ - When you dance you can enjoy the luxury of being you.
+ - Trust and start walking. We are not alone in the dark, our path will unfold as we move.
+ - Everything that happens once can never happen again. But everything that happens twice will surely happen a third time.
+ - Intelligent people discuss ideas. Fools discuss how people should behave.
+ - There are some things in life that are worth fighting for to the end.
+ - Everyone seems to have a clear idea of how other people should lead their lives, but none about his or her own.
+ - Talent is a universal gift, but it takes a lot of courage to use it. Don’t be afraid to be the best.
+ - We warriors of light must be prepared to have patience in difficult times and to know that the Universe is conspiring in our favor, even though we may not understand how.
+ - When each day is the same as the next, it’s because people fail to recognize the good things that happen in their lives every day that the sun rises.
+ - Stop thinking about life and choose to live it.
+ - Don’t be intimidated by other people’s opinions. Only mediocrity is sure of itself, so take risks and do what you really want to do.
+ - Life is a long pilgrimage from fear to love.
+ - You don’t need to explain your dreams. They belong to you.
+ - All religions lead to the same God, and all deserve the same respect.
+ - Never stop dreaming.
+ - Be realistic: always wish the impossible.
+ - Now that she had nothing to lose, she was free.
+ - Live fully, love deeply, let go with no bitterness.
+ - Tolerance and compassion are qualities of fearless people.
+ - The secret of happiness is to see all the marvels of the world, and never to forget the drops of oil on the spoon.
+ - It takes a huge effort to free yourself from memory, but when you succeed, you start to realize that you’re capable of far more than you imagined.
+ - I opened the window and my heart. The sun flooded my house and Love flooded my soul.
+ - A child can teach an adult three things: to be happy for no reason, to always be busy with something, and to know how to demand with all his might that which he desires.
+ - No matter what he does, every person on earth plays a central role in the history of the world. And normally he doesn’t know it.
+ - Being human means having doubts and yet still continuing on your path.
+ - You must be the person you have never had the courage to be. Gradually, you will discover that you are that person, but until you can see this clearly, you must pretend and invent.
+ - Don’t allow your wounds to transform you into someone you are not.
+ - I free myself from hatred through forgiveness and love.
+ - Knowledge without transformation is not wisdom.
+ - The alchemists spent years in their laboratories, observing the fire that purified the metals. They spent so much time close to the fire that gradually they gave up the vanities of the world. They discovered that the purification of the metals had led to a purification of themselves.
+ - I have seen many storms in my life. Most storms have caught me by surprise, so I had to learn very quickly to look further and understand that I am not capable of controlling the weather, to exercise the art of patience and to respect the fury of nature.
+ - May love fill your heart, compassion guide your mind, faith rule your soul.
+ - If you don’t fear, the Unknown will be KIND to you.
+ - For the Warrior of Light there is no such thing as an impossible love. He is not intimidated by silence, indifference or rejection. He knows that, behind the mask of ice that people wear, there beats a heart of fire. Without love, he is nothing.
+ - Every Warrior of the Light has, at least once, believed he was not a Warrior of the Light.
+ - When you repeat a mistake, it is not a mistake anymore: it is a decision.
+ - Don’t expect to get anything back, don’t expect recognition for your efforts, don’t expect your genius to be discovered or your love to be understood. Act because you need to act.
+ - I can control my destiny, but not my fate. Destiny means there are opportunities to turn right or left, but fate is a one-way street. I believe we all have the choice as to whether we fulfil our destiny, but our fate is sealed.
+ - Say “NO” without guilt. Say “YES” without fear.
+ - Hatred is public demonstration of inferiority complex.
+ - The brave are always stubborn.
+ - If you have a work instead of a job, every day is holiday.
+ - We must never stop dreaming. Dreams provide nourishment for the soul, just as a meal does for the body. Many times in our lives we see our dreams shattered and our desires frustrated, but we have to continue dreaming. If we don’t, our soul dies, and agape cannot reach it.
+ - Sometimes it’s what you don’t say that counts.
+ - How much I missed, simply because I was afraid of missing it.
+ - Follow your dreams, transform your life.
+ - When someone leaves, it’s because someone else is about to arrive.
+ - Love is an untamed force. When we try to control it, it destroys us. When we try to imprison it, it enslaves us. When we try to understand it, it leaves us feeling lost and confused.
+ - We never lose our loved ones. The accompany us; they don’t disappear from our lives. We are merely in different rooms.
+ - In my world, everything is possible and everything is relative.
+ - We can never judge the lives of others, because each person knows only their own pain and renunciation. It’s one thing to feel that you are on the right path, but it’s another to think that yours is the only path.
+ - Enjoy your magic moment today. As it will not be here tomorrow.
+ - It takes a huge effort to free yourself from memory.
+ - To change the world, we need to combine Ancient wisdom with new technologies.
+ - Life sometimes separates people so that they can realize how much they mean to each other.
+ - If you live your life fully, you will die only once. But if you are scared, fear will kill you day after day.
+ - The boat is safer anchored at the port; but that’s not the aim of boats.
+ - The ship is safest when it is in port, but that’s not what ships were built for.
+ - People want to change everything and, at the same time, want it all to remain the same.
+ - Don’t forget: Beautiful sunsets need cloudy Skies...
+ - I will never be yours, and you will never be mine; nevertheless, I can honestly say: I love you, I love you, I love you.
+ - Closing cycles. Not because of pride, incapacity or arrogance, but simply because that no longer fits your life. Shut the door, change the record, clean the house, shake off the dust. Stop being who you were, and change into who you are.
+ - Outer beauty is inner beauty made visible, and it manifests itself in the light that flows in our eyes.
+ - The strongest love is the love that can demonstrate its fragility.
+ - Many times the wrong train took me to the right place.
+ - We lose many things simply out of our fear of losing them.
+ - Before I die, I want to fight for life.
+ - You can choose between being a victim of destiny or an adventurer who is fighting for something important.
+ - Everything tells me that I am about to make a wrong decision, but making mistakes is just part of life. What does the world want of me? Does it want me to take no risks, to go back to where I came from because I didn’t have the courage to say “yes” to life?
+ - If you start by promising what you don’t even have yet, you’ll lose your desire to work towards getting it.
+ - Don’t ask permission. If it does not work, you can apologize later.
+ - Because true love never keeps a man from pursuing his destiny.
+ - Dreams nourish the soul just as food nourishes the body. The pleasure of the search and of adventure feeds our dreams.
+ - Hide your craziness behind a beautiful smile. That’s all you need.
+ - Solitude is not the absence of company, but the moment when our soul is free to speak to us and help us decide what to do with our life.
+ - The universe conspires to help the dreamer.
+ - But there is suffering in life, and there are defeats. No one can avoid them. But it’s better to lose some of the battles in the struggles for your dreams than to be defeated without ever knowing what you’re fighting for.
+ - Even if loving meant leaving, or solitude, or sorrow, love was worth every penny of its price.
+ - It’s true; life really is generous to those who pursue their destiny.
+ - Miracles occur all around us, signs from God show us the way, angels plead to be heard, but we pay little attention to them.
+ - What was broken will never be the same again.
+ - Forgive but do not forget, or you will be hurt again. Forgiving changes the perspectives. Forgetting loses the lesson.
+ - Beware of making a woman cry. God is counting her tears.
+ - It is not enough to dream of the Impossible Love – it is necessary to conquer it too.
+ - I want to continue being crazy; living my life the way I dream it, and not the way the other people want it to be.
+ - The Warrior of the light knows that when somebody wants something, the whole Universe conspires in their favor.
+ - Face your path with courage, don’t be scared of people’s criticism. And, above all, don’t let yourself get paralyzed by your own criticism.
+ - In a forest of a hundred thousand trees, no two leaves are alike. And no two journeys along the same path are alike.
+ - A fall from the third floor hurts as much as a fall from the hundredth. If I have to fall, may it be from a high place.
+ - I prefer to be crazy and happy rather than normal and bitter.
+ - Only when l know, the truth will set me free!
+ - I’ve learned that waiting is the most difficult bit, and I want to get used to the feeling, knowing that you’re with me, even when you’re not by my side.
+ - Today don’t beg, don’t ask, just thank God in silence for all the blessings in your life.
+ - Enjoy the questions because they open many doors. Forget the answers because they always change.
+ - The moment we begin to seek love, love begins to seek us. And to save us.
+ - Tough times test your valor, persistence and ability to make decisions. They force you to fight for your dreams.
+ - Loneliness, when accepted, becomes a gift that will lead us to find a purpose in life.
+ - In order to arrive you must follow the signs. God inscribed on the world the path that each man must follow. It is just a matter of reading the inscription He wrote for you.
+ - Tell your story: yes, tell your story! Give your example. Tell everyone that it’s possible, and other people will then have the courage to face their own mountains.
+ - Sometimes, we are so attached to our way of life that we turn down wonderful opportunities simply because don’t know what to do with it.
+ - If you must say yes, say it with an open heart. If you must say no, say it without fear.
+ - Life is one long training session, in preparation for what will come. Life and death lose their meaning, there are only challenges to be met with joy and overcome with tranquility.
+ - If you have a past with which you feel dissatisfied, then forget it, now. Imagine a new story for your life and believe in it. Focus only on the moments when you achieved what you desired, and that strength will help you to get what you want.
+ - Believe that if Allah wants you to know something, someone will tell you.
+ - Love your enemy. But don’t forget he is not your friend.
+ - God judges a tree by its fruits and not by its roots.
+ - Go further than you planned. Ask for the moon: you will be surprised how often you get it.
+ - I am two women: one wants to have all the joy, passion and adventure that life can give me. The other wants to be a slave to routine, to family life, to the things that can be planned and achieved. I’m a housewife and a prostitute, both of us living in the same body and doing battle with each other.
+ - Love like rain, can nourish from above, drenching couples with a soaking joy. But sometimes under the angry heat of life, love dries on the surface and must nourish from below, tending to its roots keeping itself alive.
+ - But he was wrong. Because I had fought with my heart and defeated it long ago. I was certainly not going to become passionate about something that was impossible. I knew my limits; I knew how much suffering i could bear.
+ - Yesterday’s pain is the Warrior of the Light’s strength.
+ - When there is no turning back, then we should concern ourselves only with the best way of going forward.
+ - The more violent the storm, the quicker it passes.
+ - In the cycle of nature there is no such thing as victory or defeat; there is only movement.
+ - If everybody loves you, something is wrong. Find at least one enemy to keep you alert.
+ - Simplicity is the heart of everything. If you look to the desert, apparently the desert is very simple but it’s full of life, it’s full of hidden places and the beauty is that it looks simple but it’s complex in the way that it expresses the soul of the world or God.
+ - On your journey to your dream, be ready to face oasis and deserts. In both cases, don’t stop.
+ - Vanity of vanities, all is vanity, and there is nothing new under the sun, as Solomon said more than three thousand years ago.
+ - You could tell your soul mate by the light in their eyes, and since the time began, that has been how people have recognized their true love.
+ - Only children believe they’re capable of everything.
+ - Writing means sharing. It’s part of the human condition to want to share things – thoughts, ideas, opinions.
+ - The magic moment is the moment when a ‘yes’ or a ‘no’ can change our whole existence.
+ - A warrior of light knows that in the silence of his heart he will hear an order that will guide him.
+ - Never abandon your dreams. Follow the signs.
+ - I saw that everything really was written there before me, and that the doors had only been closed before because I hadn’t realized that I was the one person in the world with the authority to open them.
+ - The great victory, which appears so simple today, was the result of a series of small victories that went unnoticed.
+ - Postpone joy, it will diminish. Postpone a problem, it will grow.
+ - What makes life interesting are the challenges we face.
+ - God is here, right now, at our side. We can see him in this mist, in the ground we’re walking on, even in my shoes. His angels keep watch while we sleep and help us in our work. In order to find God, you have only to look around.
+ - I made some mistakes, but I wasn’t a coward. I lived my life and did what I had to do.
+ - Love is not a habit, a commitment, or a debt. It isn’t what romantic songs tell us it is – love simply is.
+ - Fear of failure leads to failure.
+ - If you think small, your world will be small. If you think big, your world will be big.
+ - I am surprised how difficult for people is to say “I love you”. They only say the three magic words when they are sure they will hear “I love you too” back. C’mon! Spread the energy of love without expecting anything! Cowards are incapable of expressing love; it is the prerogative of the brave.
+ - It is Easy to be a Hater. Go for the difficult Task: be a Lover!
+ - Sometimes life is very mean: a person can spend days, weeks, months and years without feeling new. Then, when a door opens – a positive avalanche pours in. One moment, you have nothing, the next, you have more than you can cope with.
+ - Break the glass, please, and free us from all these damned rules, from needing to find an explanation for everything, from doing only what others approve of.
+ - Because when we love, we always strive to become better than we are.
+ - You can achieve anything if you believe in yourself. But the opposite is also true; without strong self-belief you will not go far.
+ - The warrior of the light has a destiny to fulfill.
+ - Sometimes it’s better to leave things as they are, he thought to himself, and decided to say nothing.
+ - All haters are losers, even when they win.
+ - Treat every challenge as a lesson, every mistake you make as a blessing and move on.
+ - With love, there are no rules. The heart decides and what it decides is all that really matters.
+ - A Warrior of the Light shares with others what he knows of the path.
+ - Happiness is the only goal worth pursuing.
+ - Beauty is the greatest seducer of man.
+ - Visit your soul; don’t visit your past.
+ - I closed my eyes and let the music flow through me, cleansing my soul of all fear and sin and reminding me that I am always better than I think and stronger than I believe.
+ - What is success? It is being able to go to bed each night with your soul at peace.
+ - Love is looking at the same mountains from different angles.
+ - Collective madness is called sanity...
+ - Nobody plays this life with marked cards, so sometimes we win and sometimes we lose. Do not expect anything in return, do not expect your efforts to be appreciated, your genius to be discovered, your love to be understood.
+ - Be crazy! But learn how to be crazy without being the center of attention. Be brave enough to live different.
+ - When life makes us face difficult situations-such as a personal loss-we have to understand that eternity is taking one more step.
+ - I always was a rich person because money’s not related to happiness.
+ - I believe that I am guided by chance encounters. I believe in the miracle of chance encounters.
+ - Books are not about messages. I write to understand my soul.
+ - Nobody is worth your tears, and the one who is won’t make you cry.
+ - Love is what dreams are made of!
+ - What makes people weak? Their need for validation and recognition, their need to feel important. Don’t get caught in this trap.
+ - Love is beyond time or rather love is both time and space but all focused on one single constantly evolving point-the Aleph.
+ - I understand that everything is connected, that all roads meet, and that all rivers flow into the same sea.
+ - You deserve all the good things that happen to you. Don’t feel guilty and accept the blessings.
+ - Learn to recognize omens, and follow them.
+ - Love is a disease no one wants to get rid of. Those who catch it never try to get better, and those who suffer do not wish to be cured.
+ - The beauty of truth: whether it is bad or good, it is liberating.
+ - Mistakes you commit through audacity are easily corrected with more audacity.
+ - Long since, the desert wind wiped away our footprints in the sand. But at every second of my existence, I remember what happened, and you still walk in my dreams and in my reality. Thank you for having crossed my path.
+ - People need not fear the unknown if they are capable of achieving what they need and want.
+ - Don’t let yourself be weighed down by what other people think, because in a few years, in a few decades, or in a few centuries, that way of thinking will have changed. Live now what others will only live in the future.
+ - The glory of the world is transitory, and we should not measure our lives by it, but by the choice we make to follow our personal legend, to believe in our utopias and to fight for our dreams.
+ - Life has been very hard on me, but, at the same time, it has taught me a great deal.
+ - In real life, love has to be possible. Even if it is not returned right away, love can only survive when the hope exists that you will be able to win over the person you desire.
+ - When you drink water, don’t forget the fountain.
+ - Never save the best for later. You don’t know what tomorrow holds.
+ - It has been said that there is no such thing as coincidence in this world.
+ - The most powerful hallucinogen in this planet is called Love. Highly Addictive! You will see and hear things that don’t exist!
+ - The True Lover is the one who realizes that Loyalty must go hand in hand with Freedom.
+ - Love is joy. Don’t convince yourself that suffering is a part of it.
+ - Eat when it’s time to eat. And move along when it’s time to move along.
+ - When I had nothing more to lose, I was given everything. When I ceased to be who I am, I found myself. When I experienced humiliation and yet kept on walking, I understood that I was free to choose my destiny.
+ - If you can concentrate always on the present, you’ll be a happy man.
+ - The act of discovering who we are will force us to accept that we can go further than we think.
+ - The energy of hatred won’t get you anywhere; but the energy of forgiveness, which reveals itself through love, will transform your life in a positive way.
+ - If we seek something, that same thing is seeking us.
+ - Everyday God gives us the sun, and also the moment in wich have the ability to change everything that makes us unhappy. Our magic moment helps us to change and send us off in search of our dreams.
+ - I carry with me many scars, but I also carry with me moments that would not have happened if I had not dared to go beyond my limits.
+ - Writing is one of the most solitary activities in the world.
+ - Past and future exist only in our memory. The present moment, though, is outside of time, it’s Eternity.
+ - Courage is the quality most essential to understanding the language of the world.
+ - I have inside me the winds, the deserts, the oceans, the stars, and everything created in the universe. We were all made by the same hand, and we have the same soul.
+ - The world lies in the hands of those that have the courage to dream and who take the risk of living out their dreams – each according to his or her own talent.
+ - God exists wherever He is allowed to enter.
+ - Time heals almost everything. But when you are healed, you are too old to enjoy.
+ - You can become blind by seeing each day as a similar one. Each day is a different one, each day brings a miracle of its own. It’s just a matter of paying attention to this miracle.
+ - A Warrior of Light values a child’s eyes because they are able to look at the world without bitterness. When he wants to find out if the person beside him is worthy of his trust, he tries to see him as a child would.
+ - Even God has a hell: his love of Mankind.
+ - Courage in the path is what makes the path manifest itself.
+ - Emotions are wild horses.
+ - Today I am a woman torn between the terror that everything might change and the equal terror that everything might carry on exactly the same for the rest of my days.
+ - Don’t give to anyone the power to put you down. Haters are losers pretending to be winners.
+ - The soul of the world is nourished by people’s Happiness.
+ - Let go of the idea that the path will lead you to your goal. The truth is that with each step we take, we arrive. Repeat that to yourself every morning: ‘I’ve arrived.’ That way you’ll find it much easier to stay in touch with each second of your day.
+ - Everything which is done in the present, affects the future by consequence, and the past by redemption.
+ - When you have an intense contact of love with nature or another human being, like a spark, then you understand that there is no time and that everything is eternal.
+ - The best way to live a miserable life is to pay attention to what other people are saying about you.
+ - A warrior accepts defeat. He does not treat it as a matter of indifference nor does he try to make a victory of it.
+ - Every person on the face of the earth has a gift. In some this reveals itself spontaneously, others have to work to find it.
+ - Choosing one path means abandoning others – if you try to follow every possible path you will end up following none.
+ - In dire times you can lose joy, but you can’t lose hope. Hope is your guide.
+ - Give yourself freedom to try out new things Don’t be so set in your ways that you can’t grow.
+ - Although anxiety is part of life, never let it control you.
+ - Passion makes a person stop eating, sleeping, working, feeling at peace. A lot of people are frightened because, when it appears, it demolishes all the old things it finds in its path.
+ - We are afraid of losing what we have, whether it’s our life or our possessions and property. But this fear evaporates when we understand that our life stories and the history of the world were written by the same hand.
+ - What interests me in life is curiosity, challenges, the good fight with its victories and defeats.
+ - After all, what is happiness? Love, they tell me. But love doesn’t bring and never has brought happiness. On the contrary, it’s a constant state of anxiety, a battlefield; it’s sleepless nights, asking ourselves all the time if we’re doing the right thing. Real love is composed of ecstasy and agony.
+ - Open your heart and listen to what it is telling you. Follow your dreams, because only a man who is unashamed of himself can manifest the glory of God.
+ - I must have no fear of failure. It was my fear of failure that first kept me from attempting the Master Work.
+ - We can see the Divine in each speck of dust, but that doesn’t stop us from wiping it away with a wet sponge. The Divine doesn’t disappear; it’s transformed into the clean surface.
+ - Stay close to those who sing, tell stories, and enjoy life, and whose eyes sparkle with happiness. Because happiness is contagious and will always manage to find a solution, whereas logic can find only an explanation for the mistake made.
+ - What really matters in a pencil is not its wooden exterior, but the graphite inside. So always pay attention to what is happening inside you.
+ - If I must fall, may it be from a high place.
+ - You can only learn when you teach.
+ - So you see, Good and Evil have the same face; it all depends on when they cross the path of each individual human being.
+ - It is possible to avoid pain? Yes, but you’ll never learn anything. Is it possible to know something without ever having experiencing it? Yes, but it will never truly be part of you.
+ - The only job you have in life is to recognize and honor your personal legend.
+ - We are responsible for everything that happens in this world. We are warriors of light, and with the strength of our love and of our will we can change our destiny and that of many other people.
+ - Our time on this earth is sacred, and we should celebrate every moment.
+ - Fashion may renew itself every six months but one thing remains the same: bouncers always wear black.
+ - If you accept such love with purity and humility, you will understand that Love is neither giving nor receiving -it is participating.
+ - I am living here and now. The blessing of my life is that I am totally concentrating on the present moment. And I want to be because there is nothing but the present moment.
+ - I cannot lose the one thing that keeps me alive : hope -.
+ - You don’t need to climb a mountain to know that it’s high.
+ - We, their hearts, become fearful just thinking of loved ones who go away forever, or of moments that could have been good but weren’t, or of moments that could have been found but were forever hidden in the sands.
+ - Use fear as an engine, not as a brake.
+ - A Warrior is always vigilant.
+ - Life takes us by surprise and orders us to move toward the unknown -even when we don’t want to and when we think we don’t need to.
+ - Saying ‘No’ does not always show a lack of generosity and that saying ‘Yes’ is not always a virtue.
+ - To travel is the experience of ceasing to be the person you are trying to be, and becoming the person you really are.
+ - I don’t regret the painful times; I bare my scars as if they were medals.
+ - The mirror reflects perfectly; it makes no mistakes because it doesn’t think. To think is to make mistakes.
+ - The warrior of light only risks his heart for something worthwhile.
+ - I told you that your dream was a difficult one. It’s the simple things in life that are the most extraordinary; only wise men are able to understand them.
+ - Defeat ends when we launch into another battle. Failure has no end: it is a lifetime choice.
+ - Blessed are those who do not fear solitude, who are not afraid of their own company, who are not always desperately looking for something to do, something to amuse themselves with, something to judge.
+ - There are two kinds of idiots – those who don’t take action because they have received a threat, and those who think they are taking action because they have issued a threat.
+ - The world we live in will be either better or worse depending on whether we become better or worse.
+ - But in the end all religions point to the same light. In between the light and us, sometimes there are too many rules. The light is here and there are no rules to follow this light.
+ - Body and soul need new challenges.
+ - To teach is to show what is possible; to learn is to make yourself possible.
+ - We need to forget what we think we are, so that we can really become what we are.
+ - I am learning the Language of World and everything in the world is beginning to make sense to me.
+ - One can abandon one’s personal legend for a time, as long as one does not forget about it entirely and returns to it as soon as possible.
+ - When we least expect it, life sets us a challenge to test our courage and willingness to change.
+ - A Warrior also knows that the fool who gives advice about someone else’s garden is not tending his own plants.
+ - Dreams cannot be tamed. Dreamers cannot be ruled.
+ - To say “no” is painful, but much better than a “yes” that brings regrets.
+ - People learn twenty-five percent from their teacher, twenty-five percent from listening to themselves, twenty-five percent from their friends, and twenty-five percent from time.
+ - Don’t fear the light within. May it ignite the Sacred Flame in your soul.
+ - Our dreams are our own, and only we can know the effort required to keep them alive.
+ - But no one can lose sight of what he desires. Even if there are moments when he believes the world and the others are stronger. The secret is this: do not surrender.
+ - Sometimes it is impossible to stop the river of life.
+ - Ever since time began, people have recognized their true Love by the light in their eyes.
+ - We will only understand the miracle of life fully when we allow the unexpected to happen.
+ - She would consider each day a miracle – which indeed it is, when you consider the number of unexpected things that could happen in each second of our fragile existences.
+ - The wise are wise only because they love. And the foolish are foolish only because they think they can understand love.
+ - You are protected. But if you don’t take risks, God will retreat and become only a subject of philosophical speculation...
+ - Boredom is not in the world, but in the way we see the world.
+ - Fairy tales had been her first experience of the magical universe, and more than once she had wondered why people ended up distancing themselves from that world, knowing the immense joy that childhood had brought to their lives.
+ - She wasn’t a victim of fate, she was running her own risks, pushing beyond her own limits, experiencing things which, one day, in the silence of her heart, in the tedium of old age, she would remember almost with nostalgia – however absurd that might seem.
+ - But how will I know who my Soulmate is? Brida felt that this was one of the most important questions she had ever asked in her life.
+ - She didn’t quite know what the relationship was between lunatics and the moon, but it must be a strong one, if they used a word like that to describe the insane.
+ - Life is too short to be wasted in finding answers. Enjoy the questions.
+ - If you are honest, people may cheat you. Be honest anyway.
+ - Reason lost the battle, and all I could do was surrender and accept I was in love.
+ - If I can learn to understand this language without words, I can learn to understand the world.
+ - All life’s battles teach us something, even those we lose. When you grow up, you’ll discover that you have defended lies, deceived yourself, or suffered foolishness. If you’re a good warrior you will not blame yourself for this, but neither will you allow your mistakes to repeat themselves.
+ - Haven’t you learned anything, not even with the approach of death? Stop thinking all the time that you’re in the way, that you’re bothering the person next to you. If people don’t like it, they can complain. And if they don’t have the courage to complain, that’s their problem.
+ - No one ever loses anyone. We are all one soul that needs to continue growing and developing in order for the world to carry on and for us all to meet once again.
+ - A man’s dignity isn’t measured by the people he has around him when he’s at the peak of his success, but by his ability not to forget those who helped him when his need was greatest.
+ - It is said that all people who are happy have God within them.
+ - It’s a good idea always to do something relaxing prior to making an important decision in your life.
+ - I am going to sit here in the river. If you go home to sleep, I will sleep in front of your house. And if you go away, I will follow you – until you tell me to go away. Then I’ll leave. But I have to love you for the rest of my life...
+ - Believing that power is much more important than money and that money is much more important than happiness.
+ - Every human being should know two languages: the language of society and the language of signs. One serves to communicate with other people, the other serves to understand God’s messages.
+ - Our true friends are those who are with us when the good things happen. They cheer us on and are pleased by our triumphs. False friends only appear at difficult times, with their sad, supportive faces, when, in fact, our suffering is serving to console them for their miserable lives.
+ - Usually the threat of death makes people a lot more aware of their lives.
+ - May love be your guide in every moment of your life.
+ - Real love changes and grows with time and discovers new ways of expressing itself.
+ - A warrior of light who trusts too much in his intelligence will end up underestimating the power of his opponent.
+ - We make a lot of detours, but we’re always heading for the same destination.
+ - Everyone’s looking for the perfect teacher, but although their teachings might be divine, teachers are all too human, and that’s something people find hard to accept. Don’t confuse the teacher with the lesson, the ritual with the ecstasy, the transmitter of the symbol with the symbol itself.
+ - Laugh at your worries and insecurities. View your anxieties with humor. It will be difficult at first, but you’ll gradually get used to it.
+ - A warrior knows that the farthest-flung star in the Universe reveals itself in the things around him.
+ - Words are tears that have been written down. Tears are words that need to be shed. Without them, joy loses all its brilliance and sadness has no end.
+ - Do not seek to be loved at any price, because Love has no price.
+ - Because there is a force that wants you to realize your Personal Legend; it whets your appetite with a taste of success.
+ - In fairy tales, the princesses kiss the frogs, and the frogs become princes. In real life, the pricesses kiss princes, and the princes turn into frogs.
+ - Everything on earth is being continuously transformed, because the earth is alive. and it has a soul. We are part of that soul, so we rarely recognize that it is working for us.
+ - All my life, I thought of love as some kind of voluntary enslavement. Well, that’s a lie: freedom only exists when love is present. The person who gives him or herself wholly, the person who feels freest, is the person who loves most wholeheartedly.
+ - Don’t bother trying to explain your emotions. Live everything as intensely as you can and keep whatever you felt as a gift from God. The best way to destroy the bridge between the visible and invisible is by trying to explain your emotions.
+ - Emotions were like wild horses and it required wisdom to be able to control them.
+ - He knew one of the women well, and had shared his universe with her. They had seen the same mountains, and the same trees, although each of them had seem them differently. She knew his weaknesses, his moments of hatred, of despair. Yet she was there at his side. They shared the same universe.
+ - Love is an act of faith in another person, not an act of surrender.
+ - When faced by any loss, there’s no point in trying to recover what has been, it’s best to take advantage of the large space that opens up before us and fill it with something new.
+ - Love gives us the strength to perform impossible tasks.
+ - Coincidence is the language of the stars, for something to happen, so many forces have to be put into action.
+ - When two people fall in love, past and future disappear.
+ - This is the first teaching of the Knights: You will erase everything you had written in the book of your life up until now: restlessness, uncertainty, lies. And in the place of all this you will write the word courage.
+ - Life is too short, or too long, for me to allow myself the luxury of living it so badly.
+ - Everyone has their own way of learning.
+ - In love, no one can harm anyone else; we are each responsible for our own feelings and cannot blame someone else for what we feel.
+ - In Eleven Minutes, I started with the question of why sexuality is considered one of the major issues in life.
+ - No matter how many detours and adjustments it made, the caravan moved toward the same compass point. Once obstacles were overcome, it returned to its course, sighting on a star that indicated the location of the oasis.
+ - Most people see the world as a threatening place, and, because they do, the world turns out, indeed, to be a threatening place.
+ - The only thing tragedy gives us is the opportunity to rebuild our life.
+ - Blessed are those who are not afraid to admit that they don’t know something.
+ - Her silence was the blank space between the words.
+ - If only we could be enlightened enough to be able to listen in the silence.
+ - Ever since your goal found out that you were traveling toward it, it has been running to meet you.
+ - It is not time that changes man nor knowledge the only thing that can change someone’s mind is love.
+ - Each day for me is a musical note that I use to compose the symphony of my life.
+ - The path to wisdom is not being afraid to make mistakes.
+ - A bird in a cage is safe but God didn’t create birds for that.
+
+500 quotes

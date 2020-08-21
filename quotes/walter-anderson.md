@@ -1,0 +1,28 @@
+ - Focus on the solution, not the problem.
+ - Bad things do happen; how I respond to them defines my character and the quality of my life. I can choose to sit in perpetual sadness, immobilized by the gravity of my loss, or I can choose to rise from the pain and treasure the most precious gift I have – life itself.
+ - Our lives improve only when we take chances – and the first and most difficult risk we can take is to be honest with ourselves.
+ - We’re never so vulnerable than when we trust someone-but paradoxically, if we cannot trust, neither can we find love or joy.
+ - The quickest way to relieve anxiety is ACTION!
+ - I am responsible. Although I may not be able to prevent the worst from happening, I am responsible for my attitude toward the inevitable misfortunes that darken life. Bad things do happen; how I respond to them defines my character and the quality of my life.
+ - If you’re angry at a loved one, hug that person. And mean it. You may not want to hug – which is all the more reason to do so. It’s hard to stay angry when someone shows they love you, and that’s precisely what happens when we hug each other.
+ - Believe in something big. Your life is worth a noble motive.
+ - The most sincere compliment we can pay is attention.
+ - I read myself out of poverty, long before I worked myself out of poverty.
+ - Anxiety and fear produce energy. Where we focus that energy noticeably affects the quality of our lives: focus on the solution, not the problem.
+ - Greatest risk of all: to be vulnerable, to allow others to see us as we really are.
+ - You and I are not what we eat; we are what we think.
+ - Beware by whom you are called sane.
+ - True hope dwells on the possible, even when life seems to be a plot written by someone who wants to see how much adversity we can overcome.
+ - Bad things do happen; how I respond to them defines my character and the quality of my life.
+ - True hope responds to the real world, to real life; it is an active effort...
+ - Sadly, some folks want others to feel their pain, to hurt as much as they do-or more. My grandmother once told me to avoid colds and angry people whenever I could. It’s sound advice.
+ - Our lives improve only when we take chances.
+ - True success is always the last of a string of failed attempts to get it right.
+ - Nothing quells anxiety like action!
+ - You must take chances. If you do nothing, you reduce the possibilities you have for greater joy.
+ - Smile. Have you ever noticed how easily puppies make human friends? Yet all they do is wag their tails and fall over.
+ - It is your choices that make you uniquely you...
+ - How many human beings anywhere, hold on to a relationship merely because it exists? This fear of loneliness, abandonment, or failure can, if we let it, hold any of us back from doing exactly what each of us needs to do to feel fulfilled.
+ - Courage is always and only one thing: It is acting with fear, not without it.
+
+26 quotes

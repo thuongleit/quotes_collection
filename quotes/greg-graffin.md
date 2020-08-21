@@ -1,0 +1,41 @@
+ - Whether you reach a lot of people or have a profound impact on a few people, their memories of you are your afterlife.
+ - PUNK IS: the personal expression of uniqueness that comes from the experiences of growing up in touch with our human ability to reason and ask questions.
+ - Our faith should be expressed in working toward a better planet for our children and not the selfish, juvenile hope for a better afterlife for ourselves. I don’t think anyone is going to Hell, because it only exists in the minds of people who wish ill will on others.
+ - You can’t let your personal disposition be dictated by the world around you.
+ - We should enjoy and make the most of life, not because we are in constant fear of what might happen to us in a mythical afterlife, but because we have only one opportunity to live.
+ - Naturalism teaches one of the most important things in this world. There is only this life, so live wonderfully and meaningfully.
+ - I’ve always been on a quest to use science in an artful way.
+ - I don’t think anyone is going to Hell because it only exists in the minds of people who wish ill-will on others.
+ - Bad Religion has never been about criticizing people who are Christian. But we’ve always been about pointing out the irony and contradictions in Christian theology and the more extreme versions of Christians that seek to challenge modern secularism.
+ - For me, the existence of nonexistence of God is a nonissue.
+ - We should enjoy and make the most of life.
+ - If there is no destiny, there is no design. There’s only life and death. My goal is to learn about life by living it, not by trying to figure out a cryptic plan that the Creator had in store for me.
+ - One of our great thematic traditions in Bad Religion has been to question human nature.
+ - I definitely was attracted to similar things in punk and science. They both depend on a healthy dose of skepticism.
+ - If you can believe in God, then you can believe in anything. It’s a gang mentality.
+ - When I create, I feel that I am a participant in the grand pageant of life, a part of the ongoing creative engine of the universe. I don’t know if that feeling is enough to replace the solace of religion in the lives of most people, but it is for me.
+ - So much of the habitat destruction and pollution is based on the simple principle that we somehow have been given free license over other species to degrade the planet.
+ - I usually am thinking about my next book the second I put the last dot on the previous one that I turn in.
+ - I was in a choir as a kid. It was from those early days that my outlook on harmonies and arrangements were nurtured. I always took that with me, even on the earliest Bad Religion record, which strangely was only about six years after that.
+ - I don’t think workaholic is in the dictionary as an affliction, but it’s obviously someone who has a disease, and I don’t feel diseased by it. I just think that I enjoy life and life has many offerings. I feel lucky to be able to have a forum to share a lot of these ideas.
+ - The vocal arrangements are a big part of the formula for a Bad Religion song – layered harmonies and background vocals. So when I start to describe the elements of Bad Religion’s sound, it starts to sound like a Christmas choir.
+ - I would say there’s a lot of similarity between folk and punk. It’s written for the common man.
+ - Society has to be structured such that there are checks and balances, so that it can’t be manipulated, for instance, for the profit of just some multinational company who’s going to get rich on trying to legislate the environment.
+ - You can’t take up all the music bins at a CD retail outlet with Spice Girls CDs and leave nothing for the Joan Jett catalogue.
+ - I want some fact-based evidence about where we came from. Things we consider mysterious need not be attributed to a deity.
+ - Whether or not punk is the flavor of the month is not important for us. Bad Religion has been popular through many different climates. When heavy metal was popular, when new wave was popular, Bad Religion was still there underneath the mainstream selling more and more records.
+ - Unfortunately, the average guy on the street believes that studying evolution leads to atheism.
+ - The thread of culture that runs through the entire history of punk is also a dedication to challenging the authoritarian.
+ - I’m trying to champion the naturalist’s worldview and show it’s not as heathen as most religious people would make it out to be.
+ - Science is very vibrant. There are always new observations to be found. And it’s all in the interest in challenging the authority that came before you. That’s consistent with the punk rock ethos that suggests that you should not take what people say at face value...
+ - We delude ourselves into believing that morality comes from somewhere else, whereas in reality we behave as we’ve been told to behave.
+ - Life is never static. Despite catastrophic tragedies, life has persisted in evolving new varieties of unimaginable forms. I find comfort in the narrative of evolutionary history.
+ - I don’t bill myself as an atheist but as a naturalist. Naturalism is a belief system. A lot of scientists bristle at that. We all have to believe we can find the truth. Evidence is my guide. I rely on observation, experimentation and verification.
+ - It’s been an objective of mine since I started writing songs to include both intellect and energy.
+ - People need to understand the basics of evolution if they are going to reject it – otherwise, they are not contributing anything productive to modern society.
+ - Almost everyone shuts down when science becomes too technical; you’ve got to infuse it with entertainment and storytelling to make it effective. From high school on, science is taught in a very dry manner, which isn’t as potent.
+ - I believe in strong legislation for the environment. So the only question is being smart enough and educated enough to scrutinize the people who are writing the legislation, because there are plenty of ulterior motives out there.
+ - It’s not a random chance that we have Alanis Morissette. She didn’t evolve out of a null and void. She came from a former template. She borrowed styles and sounds from a very limited set of other artists.
+ - I’m saying that there were many great naturalists before Darwin’s time who were very pious people and who knew more about nature than most of us. These were great naturalists; people I would admire for their knowledge of natural science given the time.
+
+39 quotes

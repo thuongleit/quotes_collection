@@ -1,0 +1,28 @@
+ - I was a bookworm who aced every test – until third grade, when my teacher handed out a pop quiz about Jesus and the Apostles.
+ - Do what you love. Live fearlessly and take risks. Don’t take no for an answer from anyone – go ahead and prove the naysayers wrong. Believe that anything can be possible.
+ - People love stories. They need stories.
+ - A haunting, harrowing punch to the heart, Among the Missing is flat-out brilliant. About the secrets we keep, the lives we are desperate to live, and the chances we miss, it’s a psychological dazzler. Truly, one of my favorite books of this year-or any year.
+ - There have been years where I’ve had to take a real job and I wrote during slow times and lunches. I think never forgetting how lucky I am to be able to do something I love has really fueled me.
+ - My first husband was a serial cheater.
+ - I really want to go into the future 500 years and be a quantum physicist. Not only would I get to see all the incredible inventions I know will be out there, but I’d be able to understand the science behind them!
+ - I had a nervous breakdown at 17 when my first love left me, and he was a typical bad boy, albeit a charismatic one, with a string of broken hearts trailing behind him.
+ - Never be with anyone you couldn’t imagine yourself being able to live without.
+ - Housewives of the 1950s were supposed to create show-stopping meals every night for their hard-working husbands.
+ - I think it’s crucial to live, play and work passionately. I’m inspired by my husband, my son and the sense of possibility in the world.
+ - I always think that in a big city, anything is possible, including reinventing yourself.
+ - I think the Internet has made things a lot easier. Twitter and Facebook let you really connect to your readers effortlessly!
+ - A product name has to be specific. You know that Tasty Soup is tasty – that Hot Chips will burn off the roof of your mouth.
+ - I am an indifferent cook, but I can make pie.
+ - I think my stubbornness has served me well. I just knew at an early age what I wanted to do and I was determined to be able to make it happen, no matter how long it took.
+ - I just love that feeling of being in another world, of creating characters and watching where they go.
+ - I have to admit that many of the relationships I write about are destructive, but that’s the yin to the yang of a good relationship. Maybe you have to experience the terrible ones to appreciate the good unions!
+ - A lot of people hurl themselves into relationships to lose themselves, but I think the best relationships help us to be more ourselves, to bring forth our best selves.
+ - When you love what you do, it stops seeming like work and instead becomes necessity.
+ - E-readers are changing the way we read, and the author is now required to get out there and be a kind of showman, an unlikely role for introspective people used to working in their pajamas!
+ - Open adoption, when it works, is fabulous. But when it goes wrong, it’s so traumatizing for everybody.
+ - I write about the things that haunt or obsess me.
+ - Writers are magpies, and we collect details about people and we use them for fictional characters.
+ - I’ve always had a clear sense that time is short and we need to live as fully as we can in every moment.
+ - Everyone thinks that a new place or a new identity will jumpstart a new life.
+
+26 quotes

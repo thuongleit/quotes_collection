@@ -1,0 +1,32 @@
+ - When everyone is a contrarian, nobody is a contrarian.
+ - You can judge a man by the books in his library.
+ - Bitcoin is not an actual physical coin, and if computers are shut down, you can’t buy or sell them. That’s why nothing will ever replace gold and silver coins themselves, and all investors should have them at home or in a safe deposit box.
+ - Taxation is the price we pay for failing to build a civilized society. The higher the tax level, the greater the failure. A centrally planned totalitarian state represents a complete defeat for the civilized world, while a totally voluntary society represents its ultimate success.
+ - Balance in life is the key, as Aristotle taught us. Nobody likes a naive Pollyanna, but neither do we like to be around people who are constantly complaining and finding fault.
+ - Bill Gates and Warren Buffett have their ‘Giving Pledge,’ where billionaires promise to give away the majority of their wealth when they die. My Social Security Pledge is better – to give money to good causes when you are alive. Besides, more Americans can participate.
+ - Gold and Silver have always had value, never gone to zero. Can you say the same for stocks and bonds?
+ - In a free society, individuals have the right to do right or wrong, as long as they don’t threaten or infringe upon the rights or property of others.
+ - I find it ironic how New York City Mayor Mike Bloomberg is so focused on such small issues as drink sizes, while ignoring the massive infrastructure challenges in New York – lousy roads, third-world airports, traffic jams, etc.
+ - The profit motive promotes economic growth by creating better products at cheaper prices.
+ - The triumph of persuasion over force is the sign of a civilized society.
+ - The income tax is flawed for a number of reasons – it discourages economic growth and encourages a bloated government.
+ - Gold is as steady as a rock, a standardbearer by which all currencies can be accurately measured.
+ - Banking technology has made it simple and efficient to invest in good causes.
+ - Here in America, government began as a tool to assure freedom. It gradually turned into a hideously expensive political toy designed to redistribute your wealth and control most aspects of your business and private life.
+ - I’ve felt for some time that economics needs to be taught differently by economists who actually have had experience making a payroll or investing on Wall Street. When economics is taught by pure academics, watch out.
+ - No one spends someone elses money as carefully as he spends his own.
+ - For those of us in the financial world, Black Friday has a strong negative connotation, referring to a stock market catastrophe.
+ - Donating money to a few of my favorite free-market organizations used to be a pleasant duty, but now I’m literally inundated with demands from hundreds of think tanks and public-policy groups, all vying for my limited funds.
+ - I am tired of the constant demonizing of people via political labels.
+ - Even though I’ve reached retirement age, I still plan to work – writing my investment newsletter, speaking at conferences, publishing books, and producing conferences like FreedomFest.
+ - The worst thing that can happen to an investor is to make money on his first trade; he thinks investing is easy.
+ - We shall never change our political leaders until we change the people who elect them.
+ - I only have disdain for New York City Mayor Michael Bloomberg. He raised taxes and has increased regulations. What else is new? He’s a bully who wants to micro-manage people’s lives by mandate, not persuasion.
+ - Contrary to what President Obama said in his inaugural address, going on Medicare and food stamps does not strengthen us. Just ask people who are fourth-generation welfare recipients.
+ - If you are wealthy enough, use part or all of your Social Security proceeds to invest in a favorite cause or two. Invest 10 percent or 100 percent of your monthly Social Security check in your favorite charity, foundation, think tank, church or synagogue, or other good cause.
+ - The media simply does not understand Econ 101.
+ - In the early 1980s, I burned my Social Security card at the New Orleans Investment Conference in protest of the state pension system.
+ - Negative books can be bestsellers, but seldom classics.
+ - It is business that generates the jobs, income and taxes that keep a country going.
+
+30 quotes

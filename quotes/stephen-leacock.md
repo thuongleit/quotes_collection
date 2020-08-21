@@ -1,0 +1,76 @@
+ - A half truth, like half a brick, is always more forcible as an argument than a whole one. It carries better.
+ - Writing is not hard. Just get paper and pencil, sit down, and write as it occurs to you. The writing is easy-it’s the occurring that’s hard.
+ - Life, we learn too late, is in the living, the tissue of every day and hour.
+ - Chess is one long regret.
+ - In ancient times they had no statistics so they had to fall back on lies.
+ - There is an old motto that runs, “If at first you don’t succeed, try, try again.” This is nonsense. It ought to read, “If at first you don’t succeed, quit, quit at once.”
+ - It may be those who do most, dream most.
+ - Advertising: the science of arresting the human intelligence long enough to get money from it.
+ - I am what is called a professor emeritus – from the Latin e, ‘out,’ and meritus, ’so he ought to be.
+ - The Lord said ‘let there be wheat’ and Saskatchewan was born.
+ - All our yesterdays, it is true, have only lighted fools the way to dusty death. But we need at least the dates of the yesterdays and the list of the fools.
+ - It was Einstein who made the real trouble. He announced in 1905 that there was no such thing as absolute rest. After that there never was.
+ - Hockey captures the essence of Canadian experience in the New World. In a land so inescapably and inhospitably cold, hockey is the chance of life, and an affirmation that despite the deathly chill of winter we are alive.
+ - I’ve seen lifelong friends drift apart over golf just because one could play better, but the other counted better.
+ - Anybody who has listened to certain kinds of music, or read certain kinds of poetry, or heard certain kinds of performances on the concertina, will admit that even suicide has its brighter aspects.
+ - Many a man in love with a dimple makes the mistake of marrying the whole girl.
+ - Humor may be defined as the kindly contemplation of the incongruities of life, and the artistic expression thereof.
+ - About the only good thing you can say about old age is, it’s better than being dead!
+ - Too much has been said of the heroes of history-the strong men, the troublesome men; too little of the amiable, the kindly, the tolerant.
+ - Humour is essentially a comforter, reconciling us to things as they are in contrast to things as they might be.
+ - The classics are only primitive literature. They belong to the same class as primitive machinery and primitive music and primitive medicine.
+ - It is to be observed that ‘angling’ is the name given to fishing by people who can’t fish.
+ - Humour in its highest reach mingles with pathos: it voices sorrow for our human lot and reconciliation with it.
+ - I detest life-insurance agents: they always argue that I shall some day die, which is not so.
+ - The English are terribly lazy about fighting. They like to get it over and done with and then set up a game of cricket.
+ - In point of morals, the average woman is, even for business, too crooked.
+ - Modern critics, who refuse to let a plain thing alone, have now started a theory that Cervantes’s work is a vast piece of “symbolism.” If so, Cervantes didn’t know it himself and nobody thought of it for three hundred years. He meant it as a satire upon the silly romances of chivalry.
+ - You know, many a man realizes late in life that if when he was a boy he had known what he knows now, instead of being what he is he might be what he won’t; but how few boys stop to think that if they knew what they don’t know instead of being what they will be, they wouldn’t be?
+ - The landlady of a boarding-house is a parallelogram – that is, an oblong angular figure, which cannot be described, but which is equal to anything.
+ - Men are able to trust one another, knowing the exact degree of dishonesty they are entitled to expect.
+ - Now, the essence, the very spirit of Christmas is that we first make believe a thing is so, and lo, it presently turns out to be so.
+ - The tears of childhood fall fast and easily, and evil be to him who makes them flow.
+ - In earlier times they had no statistics and so they had to fall back on lies. Hence the huge exaggerations of primitive literature, giants, miracles, wonders! It’s the size that counts. They did it with lies and we do it with statistics: but it’s all the same.
+ - If every day in the life of a school could be the last day but one, there would be little fault to find with it.
+ - The Compleat Angler is acknowledged to be one of the world’s books. Only the trouble is that the world doesn’t read its books, it borrows a detective story instead.
+ - A silk dress in four sections, and shoes with high heels that would have broken the heart of John Calvin.
+ - The classical scholars have kept alive the tradition of the superiority of the ancient languages – a kaleidoscopic mass of suffixes and prefixes, supposed to represent an infinite shading of meaning. It is a character they share with the Ojibway and the Zulu.
+ - You cannot depict love inside a frame of fact. It needs a mist to dissolve in.
+ - I owe a lot to my teachers and mean to pay them back some day.
+ - It is difficult to be funny and great at the same time. Aristophanes and Moliere and Mark Twain must sit below Aristotle and Bossuet and Emerson.
+ - The road comes to an end just when it ought to be getting somewhere. The passengers alight, shaken and weary, to begin, all over again, something else.
+ - The minute a man is convinced he is interesting, he isn’t.
+ - It’s called political economy because it is has nothing to do with either politics or economy.
+ - Being a specialist is one thing, getting a job is another.
+ - He flung himself from the room, flung himself upon his horse and rode madly off in all directions.
+ - It’s a lie, but Heaven will forgive you for it.
+ - I admit that when the facts are not good enough, I always exaggerate them.
+ - If I were founding a university I would begin with a smoking room; next a dormitory; and then a decent reading room and a library. After that, if I still had more money that I couldn’t use, I would hire a professor and get some text books.
+ - Golf may be played on Sunday, not being a game within the view of the law, but being a form of moral effort.
+ - Newspapermen learn to call a murderer “an alleged murderer” and the King of England “the alleged King of England” in order to avoid libel suits.
+ - A sportsman is a man who, every now and then, simply has to get out and kill something.
+ - Personally, I would sooner have written Alice in Wonderland than the whole Encyclopedia Britannica.
+ - Most people can tire of a lecture in fifteen minutes, clever people can do it in five, and sensible people don’t go to lectures at all.
+ - Electricity is of two kinds, positive and negative. The difference is, I presume, that one comes a little more expensive, but is more durable; the other is a cheaper thing, but the moths get into it.
+ - The sorrows and disasters of Europe always brought fortune to America.
+ - Indeed I have always found that the only thing in regard to Toronto which faraway people know for certain is that McGill University is in it.
+ - There are two things in ordinary conversation which ordinary people dislike – information and wit.
+ - All Dickens’s humour couldn’t save Dickens, save him from his overcrowded life, its sordid and neurotic central tragedy and its premature collapse. But Dickens’s humour, and all such humour, has saved or at least greatly served the world.
+ - Any two meals at a boarding-house are together less than two square meals.
+ - What we call creative work, ought not to be called work at all, because it isn’t. I imagine that Thomas Edison never did a day’s work in his last fifty years.
+ - We think of the noble object for which the professor appears tonight, we may be assured that the Lord will forgive any one who will laugh at the professor.
+ - You can never have international peace as long as you have national poverty.
+ - Any man will admit if need be that his sight is not good, or that he cannot swim or shoots badly with a rifle, but to touch upon his sense of humour is to give him mortal affront.
+ - The attempt to make the consumption of beer criminal is as silly and as futile as if you passed a law to send a man to jail for eating cucumber salad.
+ - With the Great Detective, to think was to act, and to act was to think. Frequently he could do both together.
+ - It takes a good deal of physical courage to ride a horse. This, however, I have. I get it at about forty cents a flask, and take it as required.
+ - On the same bill and on the same side of it there should not be two charges for the same thing.
+ - Each section of the British Isles has its own way of laughing, except Wales, which doesn’t.
+ - Astronomy teaches the correct use of the sun and the planets.
+ - When actors begin to think, it’s time for a change. They are not fitted for it.
+ - Professors of theory merely hold post-mortems.
+ - The Victorians needed parody. Without it their literature would have been a rank and weedy growth, over-watered with tears.
+ - My parents migrated to Canada in 1876, and I decided to go with them.
+ - To write well it is first necessary to have something to say.
+
+74 quotes

@@ -1,0 +1,29 @@
+ - To enter a theatre for a performance is to be inducted into a magical space, to be ushered into the sacred arena of the imagination.
+ - Everything that we have gone through, are going through, and will go through is there in Shakespeare. It is all of human life.
+ - To live another person’s life is quite a weird thing.
+ - I would say critically of myself that I am somebody without secrets. Sometimes acting depends on you having a secret. I don’t think I’ve ever had that.
+ - I love storytelling and I love just relating directly to an audience. That’s why we do theatre, it’s because we love contact with the audience. We love the fact that the audience will change us. The way the audience responds makes us change our performance.
+ - I’ve come to this conclusion: What makes a great actor is great need. A huge need of acting.
+ - I don’t practise any religion but I am deeply interested in the answers that mankind has come up with to explain the human situation.
+ - Shakespeare speaks for the human heart but Dickens speaks for the social man and for injustices.
+ - I went to Queen’s University Belfast and stayed nine months, then I ran away to be an actor.
+ - Very often my weekends are spent performing on Saturday, on stage in the afternoon and again in the evening.
+ - The elderly are all someone’s flesh and blood and we cannot just shut them in a cupboard and hand over the responsibility for taking care of them to the state.
+ - There is something essentially sanguine about me, which I am inclined to attribute to the fact that I was born by caesarean section. It must affect you.
+ - When the BBC decided to bring Doctor Who back as a feature film a few years ago, one national newspaper ran a poll to ask its readers who should be the new Doctor, and I topped it.
+ - When children have grieving parents it’s also common for them to feel an obligation to cheer them up and make them happy.
+ - Many actors have protested about mobile phones going off in theatres, but the real menace now is people texting during a show. It may only disturb a few people around them, but for me, as an actor, when I spot them answering their emails, I am outraged.
+ - I hated Sundays when I was growing up in Streatham, south London. Everything closed down and stopped.
+ - Like many Catholics, I was very affected by the personality of Jesus and that impression, pious as it was, has stayed with me.
+ - I actually wanted to be a writer long before I wanted to be an actor.
+ - Increasingly I’ve come to think that what’s at the core of acting is thinking. Most people would say it’s feeling.
+ - You could say Shakespeare is so extraordinary precisely because he was so ordinary. He had all the usual anxieties and understandings of what it is to have children, lose children, get married, struggle to make a living and so on.
+ - I am never bored, never short of anything to do and I don’t even ever feel lonely. I am quite gregarious and I get out and about a lot, but sometimes it is just wonderful to be on your own.
+ - Jesus is absolutely at the centre of Western civilisation and part of my fascination with him is, why? What is it about this particular man and his story?
+ - Artists probably should have some impenetrable aspects of themselves.
+ - I’d like to direct more operas.
+ - Childhood didn’t have a big influence on me, really – in fact I spent most of it plotting how to escape.
+ - My mother wanted me to be a teacher. She had this vision of me walking across the quadrangle in an Oxford college wearing my academic gown.
+ - Having caught a glimpse of what I might be able to do with my talent, I feel a tremendous obligation to try to fulfill it.
+
+27 quotes

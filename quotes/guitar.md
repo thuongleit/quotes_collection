@@ -1,0 +1,42 @@
+ - Your sound is in your hands as much as anything. It’s the way you pick, and the way you hold the guitar, more than it is the amp or the guitar you use. ~~Stevie Ray Vaughan
+ - Shut Up and Play your Guitar. ~~Frank Zappa
+ - I play guitar because it lets me dream out loud. ~~Michael Hedges
+ - My guitar is like my best friend. My guitar can get me through anything. If I can sit down and write an amazing song with my guitar about what’s going on in life, then that’s the greatest therapy for me. ~~Miley Cyrus
+ - All I’ve got is a red guitar, three chords and the truth. ~~Bob Dylan
+ - I’m only myself when I have a guitar in my hands. ~~George Harrison
+ - Let me live my life the way I want to. ~~Jimi Hendrix
+ - You can only make a good noise on the guitar if you’re committed. Little careful noise doesn’t work. You have to be bold. ~~Hans Zimmer
+ - The disgusting stink of a too-loud electric guitar; now that’s my idea of a good time. ~~Frank Zappa
+ - My first love was the sound of guitar. ~~Boz Scaggs
+ - Country music isn’t a guitar, it isn’t a banjo, it isn’t a melody, it isn’t a lyric. It’s a feeling. ~~Waylon Jennings
+ - If I don’t practice one day, I know it; two days, the critics know it; three days, the public knows it. ~~Jascha Heifetz
+ - I still believe in the need for guitars and drums and desperate poetry. ~~Frank Turner
+ - If you can’t play as good or as fast as me, just give up, sell your guitar on eBay and kill yourself. ~~John Petrucci
+ - When the intellectual part of guitar playing overrides the spiritual, you don’t get to extreme heights. ~~John Frusciante
+ - I guess you go too far when pianos try to be guitars. ~~Tori Amos
+ - Tonight I just need my guitar. ~~Jimmy Buffett
+ - I just love playing guitar, so that’s what I’m going to do. ~~St. Vincent
+ - I am up there onstage alone with that guitar. I don’t have to consider no one else and whether they are comfortable. I need very little. ~~Lauryn Hill
+ - Like Paul Kraston said, all I ask in life is a water bed, a TV and a typewriter. Well, I’ll just have an ordinary bed, a TV and a guitar. ~~John Lennon
+ - A child playing air guitar plays no wrong notes. ~~Victor Wooten
+ - My God is rock’n’roll. It’s an obscure power that can change your life. The most important part of my religion is to play guitar. ~~Lou Reed
+ - I just go where the guitar takes me. ~~Angus Young
+ - I’m not a good guitar player. ~~Adam Jones
+ - He holds his guitar like a Tommy gun. ~~Elvis Presley
+ - If you pick up a guitar and it says, ‘take me, I’m yours,’ then that’s the one for you. ~~Frank Zappa
+ - We don’t play slow and we don’t play fast, we play half fast. ~~Louis Armstrong
+ - Starts out slow and then fizzles out altogether. ~~Neil Young
+ - A guitar has moonlight in it. ~~James M. Cain
+ - I sing a bit and play guitar. ~~Jesse Metcalfe
+ - All I want for Christmas is a rock n roll electric guitar... ~~Chuck Berry
+ - The guitar is an orchestra in itself. ~~Ludwig van Beethoven
+ - When God plays guitar he uses Jeff Beck’s hands. ~~Steve Lukather
+ - I’m left handed, but my dad taught me to play guitar right-handed. ~~Dustin Diamond
+ - I write lyrics. I play the guitar. If the rest of the band had to do my schedule, they would be dead. ~~John Frusciante
+ - I just want to be a guy with a guitar. ~~Jeff Buckley
+ - Gonna wind it up on my guitar. Gonna make that silver sing. ~~Tom Petty
+ - When I lived in a little flat in Pimlico in 1981, I’d write in the hallway. As you walked in, there was a tiny little recess type thing, hardly a hallway, really, and I’d sit there writing songs with my guitar. ~~Paul Weller
+ - When I was 17 I got a guitar for my birthday and started discovering Bob Dylan and James Taylor and the whole ’60s thing, and that made me want to make songs, to go beyond just playing an instrument. I needed to write I guess. ~~Jason Reeves
+ - Of course, it is very important to be sober when you take an exam. Many worthwhile careers in the street-cleansing, fruit-picking and subway-guitar-playing industries have been founded on a lack of understanding of this simple fact. ~~Terry Pratchett
+
+40 quotes

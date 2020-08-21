@@ -1,0 +1,27 @@
+ - My opponent is my teacher, my ego is my enemy.
+ - Even if you don’t win you learn. So there’s no losing. You win the fight or you learn.
+ - There’s more philosophy in jiu-jitsu mats than in any Ivy League school in America.
+ - A black belt is a white belt who never quits!
+ - Life is about fighting. You will going to have to fight everyday of your lifetime.
+ - A good friend doesn’t try to break up a fight. A good friend comes in with a flying kick.
+ - The harder I train, the luckier I get.
+ - Be brave, be bold and above all be honest, some people will hate you and some will love you but they will all see the real you.
+ - A boxer is like a lion, the greatest predator on land, but you throw him in the shark tank and he’s just another meal.
+ - You can’t measure a man by his size. You measure him by the fight he has inside.
+ - We are all fighting something.
+ - Fighting is the best thing a man can have in his soul.
+ - The more you give, the better you become.
+ - Every time I see open space I see a mat on the floor.
+ - It’s not a one time heroic moment but is living each day with bravery.
+ - The secret of this sport is, while you’re the nail, hang in there, let them hit you, until the day you become the hammer, then you smash them back!
+ - There is no better reason in life for you to something than because you love it.
+ - To me, life is memories and experiences.
+ - What is a champion but a guy that didn’t quit?
+ - People ask if I hate my opponents; I don’t. I love them. They are the ones that actually make me bring the best I have.
+ - If I die tomorrow the world is in great hands. In a much better hands than mine.
+ - We are like artists by nature, constantly we’re trying to add beauty to movements.
+ - For multiple opponents, I have multiple brothers.
+ - I believe in myself over everyone else. There’s nothing that walks on two legs that I’m afraid of.
+ - Once you make a mistake in a fight or competition you never do that again.
+
+25 quotes

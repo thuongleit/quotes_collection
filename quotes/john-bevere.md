@@ -1,0 +1,34 @@
+ - The greater hardship you endure, the greater the authority God entrusts to you.
+ - Do not be afraid to allow the Holy Spirit to reveal any unforgiveness or bitterness. The longer you hide it, the stronger it will become and the harder your heart will grow. Stay tenderhearted.
+ - I say that trials and tests locate a person. In other words they determine where you are spiritually. They reveal the true condition of your heart. How you react under pressure is how the real you reacts.
+ - This truth remains: Only those you care about can hurt you. You expect more from them-after all, you’ve given more of yourself to them. The higher the expectations, the greater the fall.
+ - If we don’t risk being hurt, we cannot give unconditional love. Unconditional love gives others the right to hurt us.
+ - True humility is absolute obedience and dependence on God. It puts Him first, others second, and ourselves third in all things.
+ - God is waiting to satisfy us, yet His goodness will not satisfy us if we are already full of other things.
+ - How can a good God appoint cruel people to positions of authority? The answer is simple: God is the originator of the authority, but He is not the author of the cruelty. Man is responsible for his cruel actions, not God. All authority is of God, but not all authority is godly.
+ - Physical maturity is bound to time. Spiritual maturity is bound to obedience.
+ - An offended heart is the breeding ground of deception.
+ - Offended people still may experience miracles, words of utterance, strong preaching, and healing in their lives. But these are gifts of the Spirit, not fruits. We will be judged according to fruit, not gifting. A gift is given. Fruit is cultivated.
+ - God doesn’t author hardship but uses it to strengthen us for greater conquests. He never leads us into a storm that He doesn’t give us the power to overcome.
+ - The Spirit of God is jealous over us; He doesn’t want superficial fellowship, but genuine intimacy.
+ - Christianity is not a sprint but an endurance run. Therefore it is not how we start the race that counts, but how we complete it. How we finish is determined by the choices we make, and those are often formed by patterns we develop along the way.
+ - We don’t honor just to get a reward; we honor because it is the heart of God, and it is our delight.
+ - Simply put, the promises of God are not automatic; they must be acquired by faith.
+ - Our response to an offense determines our future.
+ - We don’t want to merely obey God: we need to catch His heart. It is then we will glimpse the wisdom behind His directives, and not just see them as laws.
+ - We must always keep in mind all legitimate authority is from God, and is given for protection, provision, and peace.
+ - Jesus never gave advice.
+ - We are like horses that must be broken; basically that one should submit to a pastor even if he is wrong.
+ - Physical growth is a function of time. No two-year-old child has ever been six feet tall. Intellectual growth is a function of learning. Spiritual growth is neither a function of time or learning, but it is a function of obedience.
+ - The man or woman who doesn’t forgive has forgotten the price that Christ paid for them on the Cross.
+ - Grace gives us the power to live, and mercy keeps us free from guilt, condemnation, and shame.
+ - True honor is an outflow from a heart that fears God.
+ - When we oppose God’s delegated authority, we oppose God Himself.
+ - God is seeking those who hear His call to a life of worship. Those who heed are those who will walk in His presence. They will know Him intimately as He will manifest Himself to them.
+ - Behold, I have refined you, but not as silver; I have tested you in the furnace of affliction.
+ - Love forgets wrongs so that there is hope for the future.
+ - We all have life-defining moments. They are like open-book tests, but we don’t know we have been examined until it is over.
+ - What we say in private we must be willing to say with a heart burning with love and honor before the face of our leaders. If not, we will poison our spirits and it will manifest in the presence of our leaders.
+ - There is no other way to know good from evil, right from wrong, unless we have His Word dwelling richly in our heart. It’s good for us to spend time in His Word.
+
+32 quotes

@@ -1,0 +1,65 @@
+ - Stop, collaborate and listen.
+ - Anything less than the best is a felony.
+ - Drop that zero and get with the hero!
+ - Show me who your friends are and I’ll show you who you are. It works for me. Stay positive and good things happen.
+ - It doesn’t sound anything like ‘Under Pressure.’
+ - Negativity spreads faster than any Justin Bieber song.
+ - I don’t have any reason to hate anybody; I believe in good karma and spreading good energy.
+ - I use the music to vent, and a lot of the stuff that I am writing about or was writing about contained a lot of anger and anxiety, stress and depression, so that’s how the album came out so dark.
+ - Listen, if you don’t talk big game, you never get anywhere. If you don’t think big, you don’t get big. Some people call it egotistical, some people call it high hopes, some people call it confidence. It’s all in how you want to dissect it.
+ - Be yourself and enjoy yourself. Show me a smile and I’ll show you one back. Karma: Believe in it. It’s real. It comes back to you.
+ - Show me a smile, and I’ll show you one back.
+ - To the extreme I rock a mike like a vandal.
+ - Even in a bad market, location, location, location is a way to still buy and sell property.
+ - Not everyone agrees on music. Some people like rap, some like country – it’s all an opinion. F the critics.
+ - One thing I didn’t understand in life was that I had $100,000,000 in the bank and I couldn’t buy happiness. I had everything: mansions, yachts, Ferraris, Lamborghinis, but I was depressed. I didn’t know where I fitted in. But then I found family and friends and I learned the value of life.
+ - I’m to trying to say I’m something I’m not. Black people understand that. I’m just doing my raps, my way. Rap is black. I recognize that and respect that. I’m just a white guy trying to rap, and I got lucky.
+ - I was born in Dallas, Texas, but I was raised in south Florida. ‘Ice Ice Baby’ is about that area.
+ - I like Jay-Z, 50 Cent and Common. But I like the underground stuff like Young Jeezy, Black Rob and Shine. I also love heavy metal like Slipknot and Pantera, It’s very intense stuff.
+ - Honestly, a lot of people thought that I was on top of the world selling so many millions of records, and that this is the life that everybody would want, but I never got to enjoy any of my success.
+ - I used the music kind of as therapy, and it’s just amazing that I feel so free after doing that. I feel like I had it trapped inside of me and now I feel free. So it’s been a very good therapy session for me as well.
+ - I own a mortgage company and a real estate company funded by the music. Florida is a kinda gold mine.
+ - It took me a while and a lot of hard times to figure out my purpose, I am so happy with my life. I just want to help make other people happy, too.
+ - Act smarter than you are and always know where your exit is in case you get into too much trouble.
+ - What makes critics dictate what is cool and what is not. What gives them the pass to say that their opinion on music or movies or anything is what should be cool and what shouldn’t. I don’t think it should be up to one person.
+ - I just kept it real and had the freedom to do what I want. It’s not designed for any age group. It’s not made for radio. There are no edits. The whole album contains explicit lyrics but that’s because you need it.
+ - I have been known to hang out and party back in the day. I had a weekend that lasted a few years.
+ - I do freestyle jumping. Been doing since I was eight years old and can’t quit. I’m addicted. I’ve broken many bones, but I ride with confidence. It’s my thing – there’s no high on earth like it. It’s my hobby and I really enjoy it.
+ - If you look at the statistics, people spend most of their time in the kitchen. Aside from the backyard, it’s one of my favorite places to renovate.
+ - Learn from my mistakes and you don’t have to make them yourself.
+ - I bring people on stage with me. It’s a good time, and people love to join in on the party. Show me a smile, and I’ll show you one back.
+ - I have a very broad demographic, from the 8-year-old who knows every word to ‘Ice Ice Baby’ and the college kid who grew up on ‘Ninja Rap’ to the soccer mom and grandparent.
+ - No way! Let me tell you, I’m no Elvis. Elvis had his time. I’m Vanilla Ice, and it’s my turn now.
+ - Rap is from the streets and I’m from the streets. That’s why a lot of people accept me.
+ - I don’t harp on what I could change about the past, because I can’t go back and change it. But definitely a lot of things I would change.
+ - My mom raised me to be clean, so it’s in my nature. I have two little girls, and I’m married, but we’ve got a nanny and a maid.
+ - And all the zig-zags and lines in my hair? I used to do that myself. I just thought it was cool that you could actually do that with your hair.
+ - I didn’t want the public in my personal life at all – I thought that people might perceive me as too normal, and I’d lose that larger-than-life rock star persona. You’ve got to protect that!
+ - It wasn’t until ’94 when I tried to commit suicide that I realized that it wasn’t about the money.
+ - All my friends were black and Mexican. I was the only white kid in our group and had to work hard to be accepted. Year after year, we’d breakdance and we all became close and they labeled me “Vanilla” – like “Hey, Vanilla” and they knew I hated it, so of course they kept calling me it.
+ - I’m a random guy. I shake a hand and make a friend. I don’t do egotistical things.
+ - I got caught up on drugs for a few years, I’m off it, I’m very happy, got two kids and a family and everything. And like I said I’m making the underground music, and keeping it real.
+ - I like Cleveland. I like the Cavaliers. Nothing wrong with Cleveland. I have lots of friends there.
+ - I don’t know all the certain words to word it.
+ - More than half of all the hip hop record sales are white people, and I think that might be a result of my record helping people to accept hip hop.
+ - If you grew up in my generation, you’re going to be influenced by Run DMC, the Beastie Boys and also listen to Metallica – it wasn’t segregated anymore.
+ - With the mega-fame came the mega-downfall – you know, with the press and everything – and at a young age, it was very stressful to me.
+ - Another car is not going to help me out, a nicer car, I’ve already got it. A bigger house ain’t gonna do anything for me, and you know, a yacht, it’s not going to do anything for me anymore. So how can I find happiness?
+ - My main thing is music; it’s what I do.
+ - We are who we are because of who we were.
+ - I’ve never met anybody in this world like me.
+ - Concerts every night, autograph signings, endorsements, and so on. That’s not what real life is about.
+ - A lot of people think I was an overnight success, but I was an opening act for three or four years, and then I signed my contract with EMI. Then it kind of blew up overnight.
+ - I’ve never left music behind, but I’ve had success in television.
+ - I will not say anything about my father. Period. I don’t have a dad.
+ - I turned a lot of people in white America – and not just white America, but middle-class America – into hip-hoppers, you know?
+ - For three years, between 16 and 19, I was the opening-act-for-the-opening-act-for-the-opening-act, you know? And then I was on tour with Ice-T, Stetsasonic, EPMD, Sir Mix-a-Lot – legends – and went on to sell 160 million records. It still baffles me.
+ - To be truthful, Jay-Z wouldn’t have a quarter of the records sold today if it wasn’t for the white people buying his records.
+ - I do a lot of TV stuff, but I also turn a lot down – it’s got to be an adventure.
+ - I’m a Christian, but I don’t believe in religion or anything like that.
+ - I’ve been playing concerts for many years, and it’s still as exciting as it was the first time. I hope that shows when I’m performing.
+ - I’m the kind of guy who really likes a challenge. It’s more rewarding.
+ - A lot of people don’t remember anything since ‘Ice Ice Baby,’ but I’ve got 3 records out since then and they’re all successes – but not commercially.
+ - This was totally influenced by me and the direction that I am writing about and the stuff that I am writing about. There is just no way that you can be as intense as what I have been through in my life over a drum beat machine, sample, or loop; it’s just not going to happen.
+
+63 quotes

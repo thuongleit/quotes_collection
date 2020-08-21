@@ -1,0 +1,110 @@
+ - I will wait for you as long as it takes. I will love you every moment across time.
+ - Of all the pairs the Throne endorsed None rose to burn as bright As Lucifer, the Morning Star, And Lucinda, his Evening Light.
+ - I want you to know that I would do it all again. I will choose you every time.
+ - Sometimes beautiful things come into our lives out of nowhere. We can’t always understand them, but we have to trust in them. I know you want to question everything, but sometimes it pays to just have a little faith.
+ - Mortality is the most romantic story ever told. Just one chance to do everything you should. Then, magically, you move on.
+ - I’ll love you with all my heart, in every life, through every death. I will not be bound by anything but my love for you.
+ - You are the soul that fits into mine.
+ - We meet. We always meet, somehow we’re always thrown together, no matter where I go, no matter how I try to distance myself from you. It never matters. You always find me.
+ - There is no darkness as dark as a great light corrupted.
+ - Do you ever feel like ‘nothing’ has happened to you? Like you know you have a destiny, but all you’ve seen of life so far is unexceptional? I want my life to be different. I want to feel that it’s begun. I’m waiting for ‘that’ kiss.
+ - I will always catch you when you fall.
+ - Love is the only thing worth fighting for.
+ - Love was a dance floor where everyone you loved left a mark behind.
+ - Her heart was pounding impossibly fast. Then she realized She was feeling both of their hearts, racing each other. A kind of desperate conversation, one they couldn’t have with words.
+ - I love you too much to say goodbye.
+ - And the way he looked at her was so intense, his big green eyes probing into her, like he approved of everything she held inside.
+ - One day, our love will conquer this dark circle. That’s worth everything to me.
+ - Loneliness in a crowd of people was the worst kind of loneliness, but she couldn’t help it.
+ - This is why angels choose sides, why people join teams. It costs too much not to; it weighs too heavily to soldier on alone.
+ - She had sand in her mouth and between her toes, the briny wind raising goose bumps on her skin, and the sweetest, spellbound feeling spilling from her heart. She could, at that moment, have died for him.
+ - Silence is what causes most of humanity’s problems.
+ - Wisdom holds a candle to experience, but you’ve got to take the candle and walk alone.
+ - The only way to survive eternity is to be able to appreciate each moment.
+ - Every single lifetime, I’ll choose you. Just as you have always chosen me. Forever.
+ - She buried her face in his shoulder. And while the truth still scared her, being in his arms made her feel like the sea finding its shore, like a traveler returning after a long, hard, distant trip – finally returning home.
+ - Love never dies.
+ - You have to stop loving me. Because I stopped loving you.
+ - Trust is a careless pursuit at best. At worst, it’s a good way to get yourself killed.
+ - And the sweetest, spellbound feeling spilling from her heart.
+ - Would love be so different with someone else? Was love even possible with someone else? Love was supposed to be easy, wasn’t it? Then why did she feel so tormented?
+ - The past is important for all the information and wisdom it holds. But you can get lost in it. You’ve got to learn to keep the knowledge of the past with you as you pursue the present.
+ - His eyes burned violet – not with anger but with intense desire. The kind of look that made you love a person so much, you missed him even when he was standing right in front of you.
+ - How many lives do you need to live before you fine someone worth dying for?
+ - Suicide was a mortal luxury not afforded to angels.
+ - It felt so good just to be held.
+ - I cannot be other than what I am, and I am the choices of all my days.
+ - When one lover suffered from a broken heart, no matter how badly the other wanted to help, she couldn’t be the one to heal it.
+ - The last thing we expect others to do, its the last thing they do before we learn we cannot trust them.
+ - What you call love does not sound very beautiful.
+ - End times aren’t supposed to be very pretty.
+ - I’ve never asked for a happy ending.
+ - Heartbreak is its own form of amnesia.
+ - There is always some regret when we accept that love has moved away from us.
+ - Grief can choke you. It’s dangerous, something else you have to beat.
+ - She would not stop until she beat the devil.
+ - How easy it was to fall in love with every moment of her existence!
+ - Trust is a careless pursuit.
+ - Inspiration is an excuse for doing something you already want to do.
+ - We put our faith in love.
+ - She just wished loving him didn’t always have to be so hard.
+ - What if the person you were meant to be with could never be yours?
+ - Then the angels, the demon, and the Nephilim flew to distant corners of the sky, leaving a moment’s brilliant flash of light behind them, as below, Luce and Daniel fell in love for the first-and the last- time.
+ - After such an emotional day with her own parents, the thought nearly brought Luce to her knees with sadness. Daniel was alone in the world.
+ - Oh yes, we’re going to brawl, baby. Over you. Again.
+ - Luce and Daniel fell in love for the first- and the last- time.
+ - Had God created Love to make pain feel even worse?
+ - I know nothing. I know no one. I’m lonely. Every time I see you, you’ve put up some new wall, and you never let me in.
+ - It’s such a beautiful question, Luce. I adore you for asking it, and I wish I could explain it better. All I can tell you is this: The only way to survive eternity is to be able to appreciate each moment.
+ - Sometimes love was not about winning, but about wise sacrifice and the realiability of friends like Arianne. Friendship, Roland realized, was its very own kind of love.
+ - Cam: She is so lovely when she sleeps. Daniel: Is that why you wanted her to sleep for all eternity?
+ - All that is good in Heaven and on Earth is born of love. This war is not just. This war is not good. Love is the only thing worth fighting for.
+ - Luce: You could have kept your promises. Daniel: I promised I’d stay.
+ - She took comfort in the soft occasional sound of turning pages.
+ - She knew she shouldn’t want him with every fiber of her being, but she couldn’t help herself. Gazing at him feeling his touch – the rest of the world faded into the background.
+ - I can’t wait to make you the love of my mortal life.
+ - They could steam up windows with their kisses, but as soon as they started using their mouths for other things – like talking – everything got so complicated.
+ - Luce didn’t know how to pull away from Cam.
+ - I hope that I live for a thousand years, and have a thousand daughters so that there will always be a woman who can curse your name.
+ - He dipped her low and kissed her fiercely, as if he were angry, and each time his lips left hers, even just for half a second, the most parching thirst ran through her, making her cry out.
+ - The tender pressure of his lips soothed her, like a warm drink in the dead of the winter, when every part of her felt so cold.
+ - Cooking is the best way to unwind at the end of a long writing day. There’s something mindless and hands-on about cooking, which makes it feel like the very opposite of writing, which is heady but inactive.
+ - Well, Luce, my dear, you may have gone to boarding school parties, but you’ve never seen a throw-down like reform school kids do it.
+ - I’ve met you many times Lucinda, and most of the time, you’re a downright bore.
+ - He had the innate sense that something bad was just around the bend, but a hope that something incredible was waiting in the distance. It had to be. His burning love for her cursed through him until he felt so full he didn’t know whether he would fit through the portal.
+ - Ms. Sophia was evil bananas.
+ - And while Luce dreamed below of the most glorious wings unfurling-the likes of which she’d never seen before-two angels in the rafters shook hands.
+ - Get to part B, Daniel. Think fast. Patience is a virtue, and you know how Cam feels about those.
+ - When he turned to face her, the drawn look on his face was one of absolute agony as if Luce had just ripped his heart out.
+ - Luce blushed. “Then what kind of angel are you?” “I’m sort of in between gigs right now,” Daniel said.
+ - Callie always said Luce was incapable of brutal honesty and that was why she got herself stuck in so many crappy situations with guys whom she should have just told no.
+ - Oh that moment when Daniel thought he’d lost her to Cam’s starshot! His wings hat felt too heavy to lift. Colder than death. In that instant, he’d given up all hope.
+ - This was weird. The thing that could have driven two friends instantly apart was actually drawing them closer together.
+ - Daniel didn’t have to shoulder his punishment alone anymore. It was something they could do together.
+ - You know, Roland and I were just talking about how we don’t have any pyromaniac friends. And everyone knows you need a good pyro to pull off any reform school prank worth the effort.
+ - The voice sank through luce’s skin and straight into her heart. Daniel’s voice. He was calling to her. He wanted her. Needed her. Luce moved towards the sound.
+ - And she knew without opening her eyes that it was Daniel. No other body in the universe fit hers so well.
+ - She liked the way he smelled – kind of free and open, like driving with the windows down at night.
+ - Cam’s wings were so bright they were almost blinding as they pulsed. “Holy Hell,” Callie whispered, blinking.“More or less,” Arriane said.
+ - Cam stepped into the clearing. His eyes were rimmed with a thick, shimmering gold shadow, and it shone on his face in the moonlight, making him look like a wildcat.
+ - There was nothing mean about his voice. In fact it was almost too nice. Like she was too dim to grasp whatever was so obvious to him. Which made her absolutely furious.
+ - Cam was so much clearer, easier to figure out. Like he was algebra and Daniel was calculus.
+ - I know he would die if you died, Luce.
+ - Daniel’s face – the way it had been bathed in violet light when he’d carried her home this morning – appeared before her eyes. His gleaming golden hair. His tender, knowing eyes. The way one touch of his lips transported her far away from any darkness. For him, she’d suffer all of this, and more.
+ - Luce: But I thought you said I should stay away from the hard cases. Arriane: Rule number two – don’t listen to me!
+ - But you were only sixteen and not far off from the truth, as only sixteen-year-olds can be.
+ - People are here because they’ve got baggage. I’m talking curbside-check-in, pay-the-fine-’cause-it’s-over-fifty-pounds kind of baggage. Get it?
+ - Was their love worth the erasure of the world and all its stories?
+ - You must remember how to dream what you already know.
+ - Do I need to ease up on the psychedelics, or did LP just recall one of her past lives unprompted at the most crucial juncture ever?
+ - Daniel had ruined that couple’s life. Killed their daughter. All because he’d been some hotshot angel who saw something he wanted and went after it.
+ - Friendship, Roland realized, was its very own kind of love.
+ - This wasn’t strong-willed, fly-by-the-seat-of-her-miniskirt Kate that I’d befriended last year. You think you know a girl- and then she goes and loses her virginity at a Mardi Gras party and goes soft.
+ - You know everyone loves to hate a happy pair of lovebirds.
+ - This train of thought was heading straight for Pity City, and she wanted to get off.
+ - Would he find her? Without question. Would he save her? Always.
+ - Fear is the only way to greet the devil.
+ - Oh. My. God. They were fighting. In the library. Over her.
+ - No, he hadn’t just dragged her to California. He’d dragged her into a cursed eternity. A burden that should have been his alone to bear.
+
+108 quotes

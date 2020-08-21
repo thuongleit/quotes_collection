@@ -1,0 +1,30 @@
+ - Scars remind us where we’ve been – they don’t have to dictate where we are going.
+ - You can’t bluff someone that’s not paying attention.
+ - For every Mother Teresa, there’s a Jeffrey Dahmer.
+ - I mean, it’s the life lessons that I suppose you learn that nobody gets a free ride and that you do the best you can with the means that you can and try to open yourself to as much knowledge and all that that you can.
+ - I’m in the wrong racket if I didn’t want a public life.
+ - If at the end of the day, people look at it and say, oh, yeah, I liked his stuff, or for the most part I liked his stuff, or I’ve enjoyed watching some of the things he’s done, that’s all I can hope for.
+ - That’s why I like the scenes where we’re just in the kitchen having breakfast, because it’s the interaction between people. The chaos.
+ - There’s good and evil going on. We have cops. We have robbers.
+ - If humanity can exist for another million years, everybody’s going to be a light shade of yellow-brown-red-tan.
+ - I mean, believe me, I’m not for censorship.
+ - You know the way I play golf, it’s a good I do these things for charities.
+ - But what I will do is I’ll acknowledge it and if it can be of any help the fact that I do acknowledge it then maybe other people will benefit from it because I do have somewhat of a public forum being in the line of work I am.
+ - I’m a character actor so I’ve jumped around to all kinds of things.
+ - There’s now a Fat Tony doll, which cracks me up. But you feel honored that they asked you to do a voice.
+ - The actual time you’re acting is miniscule compared to the time you’re getting ready to do the work. The big difference on series television is, there’s not a lot of hanging-out time. You’re pumping those pages out, you’re doing six, seven, eight pages a day. And I like that pace.
+ - For the last thirty years in my career I never know what I’m doing next.
+ - They put me in the drama class, and that’s the path I’ve taken.
+ - I wouldn’t be surprised if some day, they put the Simpsons in the Smithsonian. It’s become part of our culture, those characters.
+ - I think of being an actor as a blue-collar profession.
+ - Actors are journeymen. We show up for work. We do the job and then we go. What goes on behind the scenes is what goes on behind the scenes.
+ - I did plays and movies and whatever all over the place.
+ - There are a lot of people who will come to me for advice or whatever.
+ - I’ve spent the better part of the last twenty-five years doing a lot of traveling.
+ - I reached that day that I always thought might happen, where I say to myself I don’t want to do this anymore. I’m looking for some stability. I want to stay home.
+ - If you’re going to believe in a God, then you also have to equally believe that there’s a flip side to this.
+ - But we’re still in somewhat a Puritanical society in a lot of ways.
+ - That’s why I really don’t play cards or gamble. Because I’d crack.
+ - Dean Martin is one of my heroes.
+
+28 quotes

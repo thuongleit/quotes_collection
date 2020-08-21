@@ -1,0 +1,47 @@
+ - In the beginning Man created God; and in the image of Man created he him. And Man gave unto God a multitude of names, that he might be Lord over the earth when it was suited to man.
+ - The Christmas spirit is not what you drink.
+ - Jump up, look around, find yourself some fun. No sense in sitting there hating everyone.
+ - My words are a whisper, your deafness a shout.
+ - In the beginning Man created God: and in the image of Man created he him.
+ - He’s watching me watching you watching him watching me watching him watching.
+ - She’s a warm fart at Christmas.
+ - Did you ever get the feeling that the story’s too damn real?
+ - Too many heroes stepping on too many toes, too many yes-men nodding when they really mean no.
+ - The doer and the thinker, no allowances for the other, as the failing light illuminates the mercenaries creed.
+ - Everyone’s saved, we’re in the grave. See you there for afternoon tea.
+ - I’ll make love to you in all good places, under black mountains and open spaces.
+ - I came across Mother Goose, so I turned her loose, she was screaming.
+ - I’ll pour a cup to you my darling, raise it up, say Cheerio.
+ - Be sure to leave your underpants with someone you can trust.
+ - Join the crazed institution of the stars.
+ - Songs from the wood make you feel much better.
+ - We’ll have Superman for President, let Robin save the day.
+ - Actor of the low IQ, let’s hear your view.
+ - He hears the silence howling catches angels as they fall, and the all time winner has got him by the fun.
+ - Her legs went on forever, like staring at infinity through a wisp of cotton panty along a skin of satin sea.
+ - You were bred for humanity and sold to society. One day you’ll wake up in the present day, a million generations removed from the expectations of being who you really want to be.
+ - The excrement bubbles, the century slime decays, and the brainwashing government lackeys would have us say it’s under control.
+ - I’m a tiger when I want love, but I’m a snake if we disagree.
+ - The legends lie cradled in the seagulls call, and the promise they made are ground beneath the sadist’s fall.
+ - Who would be a poor man, a beggar man, a thief, if he held a rich man in his hand?
+ - Snot is running down his nose, greasy fingers, smearing shabby clothes.
+ - Lend me your ear, while I call you a fool.
+ - He is the God of nothing, if that is all you can see. He is the God of everything, he’s inside you and me.
+ - God of ages, Lord of Time, mine is the right to be wrong.
+ - A sweetly scented angel fell, she laid her head upon my disbelief, and battled with me with her ever smile.
+ - To tell the truth, I’d scare me too.
+ - Ages passed I knew at last my life had never been.
+ - Hold your head up to the gun of a million cathode ray tubes aired at your tiny skull.
+ - How can you laugh when your mother’s hungry? How can you smile when the reasons for smiling are wrong?
+ - Take your place in a wiser world of bigger motor cars.
+ - She’s a nice girl, but her bad girl’s better.
+ - Give us Direction; the best of goodwill; Put us in touch with fair winds. Sing to us softly, hum the evening’s song. Tell us what the blacksmith has done for you.
+ - And a bearded lady said to me...
+ - In your pomp and all your glory, you’re a poorer man than me.
+ - Roll us down the mountain and I’m sure the fatman would win.
+ - I don’t know about carry out, but you can carry me off to bed.
+ - Too many temples where we could worship the beast.
+ - Everyone is from somewhere, even if you’ve never been there.
+ - The sand-castle virtues are all swept away in the tidal destruction, the moral melee.
+
+45 quotes

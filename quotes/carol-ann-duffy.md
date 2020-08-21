@@ -1,0 +1,40 @@
+ - For me, poetry is the music of being human. And also a time machine by which we can travel to who we are and to who we will become.
+ - It is a moon wrapped in brown paper.
+ - The stars are filming us for no one.
+ - What will you do now with the gift of your left life?
+ - Better off dead than giving in; not taking what you want.
+ - I like to use simple words, but in a complicated way.
+ - How would you prepare to die on a perfect April evening?
+ - Poets deal in writing about feelings and trying to find the language and images for intense feelings.
+ - My prose is turgid, it just hasn’t got any energy.
+ - I’ll be left writing picture books and fairy tales.
+ - Poetry and prayer are very similar.
+ - As anyone who has the slightest knowledge of my work knows, I have little in common with Larkin, who was tall, taciturn and thin-on-top, and unlike him I laugh, nay, sneer, in the face of death. I will concede one point: we are both lesbian poets.
+ - I see the shape of the poem before I start writing, and the writing is just the process of arriving at the shape.
+ - I think all poets must feel this: that there is constantly something new to be discovered in the language. It’s like a thrilling encounter, and you can find things.
+ - I have piles of poetry books in the bathroom, on the stairs, everywhere. The only way to write poetry is to read it.
+ - If we think of what’s up ahead, with climate change and wars over water, it’s very frightening.
+ - I always say that I’ll have a go and see whether the poem works and if it does, then fine.
+ - I write quite a lot of sonnets, and I think of them almost as prayers: short and memorable, something you can recite.
+ - You have me like a drawing, erased, coloured in, untitled, signed by your tongue.
+ - When you have a child, your previous life seems like someone else’s. It’s like living in a house and suddenly finding a room you didn’t know was there, full of treasure and light.
+ - Every day is a gift with a child, no matter what problems you have.
+ - You can find poetry in your everyday life, your memory, in what people say on the bus, in the news, or just what’s in your heart.
+ - Like the sand and the oyster, it’s a creative irritant. In each poem, I’m trying to reveal a truth, so it can’t have a fictional beginning.
+ - It’s always good when women win things in fiction because it tends to be more male-dominated, unlike poetry, which is more equal.
+ - Auden said poetry makes nothing happen. But I wonder if the opposite could be true. It could make something happen.
+ - I always wanted a child. Being a mother is the central thing in my life.
+ - She stood upon a continent of ice, which sparkled between sea and sky, endless and dazzling, as though the world kept all its treasure there; a scale which balanced poetry and prayer.
+ - Having a child takes you back to all those parts of your own childhood that you had hidden away.
+ - I still read Donne, particularly his love poems.
+ - If I felt, in the event of a royal wedding, inspired to write about people coming together in marriage or civil partnership, I would just be grateful to have an idea for the poem. And if I didn’t, I’d ignore it.
+ - Christmas is taken very seriously in this household. I believe in Father Christmas, and there’s no way I’d do anything to undermine that belief.
+ - Between 9am and 3pm is when I work most intensely.
+ - I think poetry can help children deal with the other subjects on the curriculum by enabling them to see a subject in a new way.
+ - I think the dangers are different now. Our abuse of the planet and our resources is an anxiety.
+ - Poets sing our human music for us.
+ - The moment of inspiration can come from memory, or language, or the imagination, or experience – anything that makes an impression forcibly enough for language to form.
+ - I like to think that I’m a sort of poet for our times.
+ - I am always pleased to be asked to write a poem.
+
+38 quotes

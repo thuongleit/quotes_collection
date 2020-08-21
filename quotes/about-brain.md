@@ -1,0 +1,41 @@
+ - Fill your brain with giant dreams so it has no space for petty pursuits. ~~Robin S. Sharma
+ - Whatever you do, you must never let the voice in your head control the brain in your heart. ~~Steve Jobs
+ - The brain is a muscle that can move the world. ~~Stephen King
+ - The brain is like a muscle. When it is in use we feel very good. Understanding is joyous. ~~Carl Sagan
+ - Our entire biological system, the brain, and the Earth itself, work on the same frequencies. ~~Nikola Tesla
+ - Every human brain is both a broadcasting and receiving station for the vibration of thought. ~~Napoleon Hill
+ - Follow your heart but take your brain with you. ~~Alfred Adler
+ - The best brains of the nation may be found on the last benches of the classroom. ~~Abdul Kalam
+ - But instinct is something which transcends knowledge. We have, undoubtedly, certain finer fibers that enable us to perceive truths when logical deduction, or any other willful effort of the brain, is futile. ~~Nikola Tesla
+ - We are all now connected by the Internet, like neurons in a giant brain. ~~Stephen Hawking
+ - When wireless is fully applied the earth will be converted into a huge brain, capable of response in every one of its parts. ~~Nikola Tesla
+ - I am a brain, Watson. The rest of me is a mere appendix. ~~Arthur Conan Doyle
+ - My Brain is the key that sets me free. ~~Harry Houdini
+ - My brain hums with scraps of poetry and madness. ~~Virginia Woolf
+ - No brain, no gain. Stay in school. ~~Michael Jordan
+ - Anger may bring extra energy, but it eclipses the best part of our brain: its rationality. The energy of anger is almost always unreliable. ~~Dalai Lama XIV
+ - I’m a visual thinker, not a language-based thinker. My brain is like Google Images. ~~Temple Grandin
+ - You have a brain and mind of your own. Use it, and reach your own decisions. ~~Napoleon Hill
+ - My brain is only a receiver, in the Universe. ~~Nikola Tesla
+ - If I never see you again I will always carry you inside outside on my fingertips and at brain edges and in centers centers of what I am of what remains. ~~Charles Bukowski
+ - Instead of trying to produce a programme to simulate the adult mind, why not rather try to produce one which simulates the child’s? If this were then subjected to an appropriate course of education one would obtain the adult brain. ~~Alan Turing
+ - Every man if he so desires becomes sculptor of his own brain. ~~Santiago Ramón y Cajal
+ - Neurons that fire together wire together. You can rewire your brain for higher consciousness by focusing on love. ~~Deepak Chopra
+ - Everyone should occasionally break the law in some small and delightful way. It’s good for the hygiene of the brain. ~~Terry Pratchett
+ - And in man is a three-pound brain which, as far as we know, is the most complex and orderly arrangement of matter in the universe. ~~Isaac Asimov
+ - Brains first and then Hard Work. ~~A. A. Milne
+ - All beauty comes from beautiful blood and a beautiful brain. ~~Walt Whitman
+ - A beautiful woman is a beautiful woman, but a beautiful woman with a brain is an absolutely lethal combination. ~~Prabal Gurung
+ - The brain that doesn’t feed itself, eats itself. ~~Gore Vidal
+ - Turn off your brain and turn on your heart. ~~Axwell
+ - Never let the brain idle. ‘An idle mind is the devil’s workshop.’ And the devil’s name is Alzheimer’s. ~~George Carlin
+ - My fundamental premise about the brain is that its workings – what we sometimes call “mind” – are a consequence of its anatomy and physiology, and nothing more. ~~Carl Sagan
+ - Each one of you has something no one else has, or has ever had: your fingerprints, your brain, your heart. Be an individual. Be unique. Stand out. Make noise. Make someone notice. That’s the power of individuals. ~~Jon Bon Jovi
+ - You have to train your brain to be positive just like you work out your body. ~~Shawn Achor
+ - I try not to get analytical in the writing process. I try to just kind of keep the flow from my brain to my hand as far as the pen is concerned and go with the moment and go with my guts. ~~Quentin Tarantino
+ - My own brain is to me the most unaccountable of machinery – always buzzing, humming, soaring roaring diving, and then buried in mud. And why? What’s this passion for? ~~Virginia Woolf
+ - Put a gun to my head and paint the wall with my brains. ~~Chuck Palahniuk
+ - My brain cannot process failure. It will not process failure ~~Kobe Bryant
+ - A mob is a group of persons with heads but no brains. ~~Jet Li
+
+39 quotes

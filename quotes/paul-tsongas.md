@@ -1,0 +1,33 @@
+ - No one on his deathbed ever said, “I wish I had spent more time on my business.”
+ - America is hope. It is compassion. It is excellence. It is valor.
+ - This land, this water, this air, this planet – this is our legacy to our young.
+ - Democrats love employees, it’s employers they hate.
+ - In this era of the global village, the tide of democracy is running. And it will not cease, not in China, not in South Africa, not in any corner of this earth, where the simple idea of democracy and freedom has taken root.
+ - Two hundred years ago, our Founding Fathers gave us a democracy. It was based upon the simple, yet noble, idea that government derives its validity from the consent of the governed.
+ - The cold war is over; Japan won.
+ - You cannot be pro-jobs and anti-business at the same time. You cannot love employment and hate employers.
+ - Breastroke is an athletic event, butterfly is a political statement.
+ - Don’t fear your mortality, because it is this very mortality that gives meaning and depth and poignancy to all the days that will be granted to you.
+ - When George Bush used the Willie Horton ad, he knew what he was doing.
+ - I wish I had spent more time at the office.
+ - My father’s generation gave to my generation a land of wealth and purpose and world economic dominance.
+ - We are a continuum. Just as we reach back to our ancestors for our fundamental values, so we, as guardians of that legacy, must reach ahead to our children and their children. And we do so with a sense of sacredness in that reaching.
+ - Let’s try winning and see what it feels like. If we don’t like it, we can go back to our traditions.
+ - America is the sum of all our journeys as we search for our national community and our national culture.
+ - That’s a good question. Let me try to evade you.
+ - Our destiny is greatness and we must return to its fulfillment.
+ - No one is immune from the larger events of his or her time – the Depression, World War II, civil rights, Vietnam, the spring of 1989 in China. These events intrude upon our lives and radically affect our directions.
+ - Journey with me to a true commitment to our environment. Journey with me to the serenity of leaving to our children a planet in equilibrium.
+ - Our only weapons in this war of your lifetime are the weapons of the mind.
+ - That sense of sacredness, that thinking in generations, must begin with reverence for this earth.
+ - A commencement is a time of joy. It is also a time of melancholy. But then again, so is life.
+ - Seven and half years ago I began my own journey. For me and my family it was a time of adversity. But during that adversity I derived a deeper faith. And born out of that adversity was a commitment to devote myself to those people and to those issues that truly matter to me.
+ - It was a myth that’s often perpetuated at commencement that holds that only hope and promise lie beyond the halls of academe. Don’t worry, be happy. Everything is fine.
+ - Lowell is my home. It is where I drew my first breath. It is where I will always derive a sense of place and a sense of belonging.
+ - Thinking in generations also means enabling our young to have a decent standard of living.
+ - You are Americans. You love this country. Together we are entrusted with the principles that represent mankind’s greatest political and social achievement.
+ - I am an American. I love this country.
+ - From a viable economy to the full funding of Headstart, from a clean environment to true equality for women, from a strong military to a commitment to racial brotherhood, from schools that are honored to streets free of excessive violence.
+ - I want to deploy the leadership to meet the challenges that face us and to restore America’s greatness.
+
+31 quotes

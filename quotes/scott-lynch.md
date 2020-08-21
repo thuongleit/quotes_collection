@@ -1,0 +1,34 @@
+ - There’s no freedom quite like the freedom of being constantly underestimated.
+ - I think it’s fairly common for writers to be afflicted with two simultaneous yet contradictory delusions, the burning certainty that we’re unique geniuses, and the constant fear that we’re witless frauds who are speeding toward epic failure.
+ - Stand aside, and try not to catch fire if I shed sparks of genius.
+ - If reassurances could dull pain, nobody would ever go to the trouble of pressing grapes.
+ - Any man can fart in a closed room and say that he commands the wind.
+ - I can’t name the poison that’s killing your friend. But the one that’s killing you is called hope.
+ - When you can’t cheat the game, you’d best find a means to cheat the players.
+ - Yeah, but if I don’t start my nervous pacing now, I’ll never have it all done in time.
+ - Enlightenment! When it comes, it comes like a brick to the head, doesn’t it?
+ - It was strange, how readily authority could be conjured with nothing but a bit of strutting jackassery.
+ - A boy may be as disagreeable as he pleases, but when a girl refuses to crap sunshine on command, the world mutters darkly about her moods.
+ - My name’s Jean Tannen, and I’m the ambush.
+ - We like what we like, we want what we want, and nobody needs to give us permission to feel that way!
+ - Only one way to win when you’re being chased by someone bigger and tougher than you. Turn straight around, punch their teeth out, and hope the gods are fond of you.
+ - You can’t help being young, but it’s past time that you stopped being stupid.
+ - You can knock down kingdoms on a whim. What you need is someone to make sure you don’t get hit by a carriage when you cross the street.
+ - I think piracy is a bit like drinking. You want to stay out all night doing it, you pay the price the next day.
+ - They kissed for the sort of endless moment that only exists between lovers whose lips are still new territory to one another.
+ - You simply collapsed, sir. In layman’s terms, your body revoked its permission for you to continue heaping abuse upon it.
+ - Throwing blondes at Locke Lamora was not unlike throwing lettuce at sharks.
+ - Worst of all, the inner vault is guarded by a live dragon, attended by fifty naked women armed with poisoned spears, each of them sworn to die in Requin’s service. All redheads. -You’re just making that up, Jean.
+ - What is government but theft by consent?
+ - The water caught the Falselight glimmer like layers of shifting, translucent mirrors and formed split-second works of art in the air, but men cursed it anyway, because it made their heads wet.
+ - In the glass burrow beneath their feet, the flames began to rise. First the flames, and then the screams.
+ - To us – richer and cleverer than everyone else!
+ - I’m not as reckless as I used to be. You know, when I was little.
+ - Nobody admires anyone else without qualification. If they do they’re after an image, not a person.
+ - Cold walls do not a prison make, nor iron bands a bondsman.
+ - As for history, we are living in its ruins. And as for biographies, we are living with the consequences of all the decisions ever made in them. I tend not to read them for pleasure. It’s not unlike carefully scrutinizing the map when one has already reached the destination.
+ - The only constant in the soul of man is inconstancy; anything and everything else can pass out of fashion-even something as utilitarian as a hill stuffed full of corpses.
+ - You’re ten pints of crazy in a one-pint glass.
+ - I suspect this is all gonna end in screaming and drowning.
+
+32 quotes

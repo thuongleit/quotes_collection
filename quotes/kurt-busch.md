@@ -1,0 +1,30 @@
+ - I guess good things come to those who wait.
+ - It’s better sometimes to be lucky than good.
+ - I am grateful to Penske Racing for six very productive years. Together we won a lot of races – 16 in all. I’m proud that we won on a variety of tracks.
+ - I’m technologically challenged, so I finally hooked up Bluetooth in my truck so I can talk going down the road.
+ - Dale Earnhardt told me it doesn’t matter if fans boo or cheer, as long as they’re making noise.
+ - You think I’m a pretty good race car driver? Wait until you see my brother. He’s the best driver in the family.
+ - I know where my priorities lie.
+ - Leaving a great organization and a lucrative contract is not easy, but it allows me to take a deep breath and work on things that can make me a better driver and a better person.
+ - Over the Thanksgiving holiday I took time to reflect on what is most important to me and realized I need to find a way to put the fun back into racing.
+ - I wouldn’t say it came easy, but I understood how to win and I determined how I could do it.
+ - My father instilled in me a love for racing.
+ - That’s what I try to do each and every week is give my best effort and not give up, no matter what comes at us.
+ - I also appreciate the lasting friendships I’ve made while working with our great sponsors through the years, including Miller Lite, Shell and Dodge.
+ - The Daytona 500 is a big race, and Darlington is just as big of an event, and a lot of people get excited for it.
+ - There are a lot of lessons that you learn, and you have to learn them quickly if you want to be competitive at this top level.
+ - James Finch is exactly what I’m looking for, as far as getting back into the race car to have fun.
+ - There wouldn’t be any way I could have jumped into Cup with the success I had without the truck series. I wish I had more time to spend there. There are so many things the truck teaches you about aerodynamics, the professional ranks of racing, and working with a professional team.
+ - I’m on probation, so I can’t even pick my nose the right way.
+ - You really don’t put a value on your first win, it is priceless no matter where you are.
+ - This 51 Phoenix Racing team, I love them to death. They’ve got my back, I’ve got theirs.
+ - It was such a dramatic escalator that I was on. It was at 90 degrees. I was going straight up like a rocket ship into space. And I was thrown in with the sharks. They said sink or swim in this Cup deal.
+ - There are going to be little victories that we claim, even if it’s finishing 15th and putting the car back in hauler without a scratch on it.
+ - Is my strike zone bigger than others? Yeah. It might be bigger than others, but I don’t have a problem with it.
+ - James Finch has always had pretty stout cars for the restrictor-plate races and I know we’ll be very competitive at Daytona.
+ - I’ve been fined probably more than any driver, and I’ve probably paid it out of my own pocket more than any driver.
+ - You know, its just a matter of working through the pitfalls sometimes and working through the challenges that lie ahead.
+ - I never did any of things I was accused of. It was a total fabrication.
+ - Each driver has their own identity and from one week to another, normally it stays the same.
+
+28 quotes

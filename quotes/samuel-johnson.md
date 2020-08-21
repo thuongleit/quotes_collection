@@ -1,0 +1,502 @@
+ - He who makes a beast of himself gets rid of the pain of being a man.
+ - Knock the ‘t’ off the ‘can’t.’
+ - Integrity without knowledge is weak and useless, and knowledge without integrity is dangerous and dreadful.
+ - There can be no friendship without confidence, and no confidence without integrity.
+ - My dear friend, clear your mind of can’t.
+ - People need to be reminded more often than they need to be instructed.
+ - The first step to greatness is to be honest.
+ - The true measure of a man is how he treats someone who can do him absolutely no good.
+ - Curiosity is one of the most permanent and certain characteristics of a vigorous intellect.
+ - What we hope ever to do with ease, we must learn first to do with diligence.
+ - Our aspirations are our possibilities.
+ - The chains of habit are too weak to be felt until they are too strong to be broken.
+ - Great works are performed, not by strength, but by perseverance. Those that walk with vigor, three hours a day, will pass in seven years a space equal to the circumference of the globe.
+ - The future is purchased by the present.
+ - Language is the dress of thought.
+ - Knowledge is of two kinds. We know a subject ourselves, or we know where we can find information upon it.
+ - If you want to be a writer, then write. Write every day!
+ - You can never be wise unless you love reading.
+ - Nothing will ever be attempted if all possible objections must first be overcome.
+ - It is better to suffer wrong than to do it, and happier to be sometimes cheated than not to trust.
+ - If your determination is fixed, I do not counsel you to despair. Few things are impossible to diligence and skill. Great works are performed not by strength, but perseverance.
+ - Revenge is an act of passion; vengeance of justice. Injuries are revenged; crimes are avenged.
+ - A writer only begins a book. A reader finishes it.
+ - Books like friends, should be few and well-chosen.
+ - Prudence is an attitude that keeps life safe, but does not often make it happy.
+ - Slander is the revenge of a coward, and dissimulation of his defense.
+ - Gratitude is a fruit of great cultivation; you do not find it among gross people.
+ - Bias and impartiality is in the eye of the beholder.
+ - It is our first duty to serve society.
+ - The natural flights of the human mind are not from pleasure to pleasure, but from hope to hope.
+ - When a man is tired of London, he is tired of life; for there is in London all that life can afford.
+ - To keep your secret is wisdom; but to expect others to keep it is folly.
+ - God Himself, sir, does not propose to judge a man until his life is over. Why should you and I?
+ - Almost every man wastes part of his life attempting to display qualities which he does not possess.
+ - Kindness is in our power, even when fondness is not.
+ - Every man thinks meanly of himself for not having been a soldier, or not having been at sea.
+ - You hesitate to stab me with a word, and know not – silence is the sharper sword.
+ - The true art of memory is the art of attention.
+ - Some desire is necessary to keep life in motion.
+ - Change is not made without inconvenience.
+ - Curiosity is, in great and generous minds, the first passion and the last.
+ - Courage is the greatest of all virtues, because if you haven’t courage, you may not have an opportunity to use any of the others.
+ - Between falsehood and useless truth there is little difference. As gold which he cannot spend will make no man rich, so knowledge which cannot apply will make no man wise.
+ - All travel has its advantages. If the passenger visits better countries, he may learn to improve his own. And if fortune carries him to worse, he may learn to enjoy it.
+ - Solitude is dangerous to reason, without being favorable to virtue. Remember that the solitary mortal is certainly luxurious, probably superstitious, and possibly mad.
+ - A horse that can count to ten is a remarkable horse, not a remarkable mathematician.
+ - Marriage has many pains, but celibacy has no pleasures.
+ - Reason and truth will prevail at last.
+ - Deviation from Nature is deviation from happiness.
+ - Exert your talents, and distinguish yourself, and don’t think of retiring from the world, until the world will be sorry that you retire.
+ - No man was ever great by imitation.
+ - Life, however short, is made still shorter by waste of time.
+ - Those who do not feel pain seldom think that it is felt.
+ - There is nothing, Sir, too little for so little a creature as man. It is by studying little things that we attain the great art of having as little misery and as much happiness as possible.
+ - He who waits to do a great deal of good at once will never do anything.
+ - The habit of looking on the bright side of every event is worth more than a thousand pounds a year.
+ - No man but a blockhead ever wrote except for money.
+ - I hate mankind, for I think myself one of the best of them, and I know how bad I am.
+ - Ignorance, when it is voluntary, is criminal.
+ - Hell is paved with good intentions.
+ - Of the blessings set before you make your choice, and be content.
+ - If you are idle, be not solitary; if you are solitary be not idle.
+ - It is better to live rich than to die rich.
+ - Few things are impossible to diligence and skill.
+ - Man alone is born crying, lives complaining, and dies disappointed.
+ - Agriculture not only gives riches to a nation, but the only riches she can call her own.
+ - What is written without effort is in general read without pleasure.
+ - I am always sorry when any language is lost, because languages are the pedigrees of nations.
+ - Patriotism is the last refuge of the scoundrel.
+ - It matters not how a man dies, but how he lives.
+ - Music is the only sensual pleasure without vice.
+ - To let friendship die away by negligence and silence is certainly not wise. It is voluntarily to throw away one of the greatest comforts of the weary pilgrimage.
+ - No man can taste the fruits of autumn while he is delighting his scent with the flowers of spring.
+ - Lexicographer: a writer of dictionaries, a harmless drudge, that busies himself in tracing the original, and detailing the signification of words.
+ - A man will turn over half a library to make one book.
+ - That we must all die, we always knew; I wish I had remembered it sooner.
+ - It is one of the maxims of the civil law, that definitions are hazardous.
+ - Studious to please, yet not ashamed to fail.
+ - It is commonly a weak man who marries for love.
+ - If the abuse be enormous, nature will rise up, and claiming her original rights, overturn a corrupt political system.
+ - Stand Firm for your country, and become a man Honour’d and lov’d: It were a noble life, To be found dead, embracing her.
+ - There must always be a struggle between a father and son, while one aims at power and the other at independence.
+ - Fraud and falsehood only dread examination. Truth invites it.
+ - All history was at first oral.
+ - It is incident to physicians, I am afraid, beyond all other men, to mistake subsequence for consequence.
+ - In traveling, a man must carry knowledge with him, if he would bring home knowledge.
+ - The supreme end of education is expert discernment in all things-the power to tell the good from the bad, the genuine from the counterfeit, and to prefer the good and the genuine to the bad and the counterfeit.
+ - The triumph of hope over experience.
+ - All severity that does not tend to increase good, or prevent evil, is idle.
+ - Books without the knowledge of life are useless.
+ - The next best thing to knowing something is knowing where to find it.
+ - Abstinence is as easy to me as temperance would be difficult.
+ - Pleasure itself is not a vice.
+ - At seventy-seven it is time to be in earnest.
+ - Where grief is fresh, any attempt to divert it only irritates.
+ - When making your choice in life, do not neglect to live.
+ - If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair.
+ - It matters not how a man dies, but how he lives. The act of dying is not of importance, it lasts so short a time.
+ - Hope is necessary in every condition. The miseries of poverty, sickness and captivity would, without this comfort, be insupportable.
+ - It is our first duty to serve society, and after we have done that, we may attend wholly to the salvation of our own souls.
+ - Every man has a right to utter what he thinks truth, and every other man has a right to knock him down for it. Martyrdom is the test.
+ - When a man knows he is to be hanged in a fortnight, it concentrates his mind wonderfully.
+ - Catch, then, oh! catch the transient hour, Improve each moment as it flies; Life’s a short summer-man a flower; He dies-alas! how soon he dies!
+ - Wine gives great pleasure, and every pleasure is of itself a good. and A man should cultivate his mind so as to have that confidence and readiness without wine, which wine gives.
+ - An old friend never can be found, and nature has provided that he cannot easily be lost.
+ - Ignorance, madam, pure ignorance.
+ - He who would bring home the wealth of the Indies must carry the wealth of the Indies with him.
+ - A tavern chair is the throne of human felicity.
+ - Consider what importance to society the chastity of women is. Upon that all the property in the world depends. We hang a thief for stealing a sheep; but the unchastity of a woman transfers sheep and farm and all from the right owner.
+ - Women have two weapons – cosmetics and tears.
+ - No knowledge is useless, with the exception of heraldry.
+ - We may take Fancy for a companion, but must follow Reason as our guide.
+ - To preserve health is a moral and religious duty, for health is the basis of all social virtues. We can no longer be useful when not well.
+ - By taking a second wife he pays the highest compliment to the first, by showing that she made him so happy as a married man, that he wishes to be so a second time.
+ - By writing, you learn to write.
+ - By forbearing to do what may innocently be done, we may add hourly new vigor to resolution.
+ - The world is like a grand staircase, some are going up and some are going down.
+ - All wonder is the effect of novelty on ignorance.
+ - New things are made familiar, and familiar things are made new.
+ - To be happy at home is the ultimate result of all ambition.
+ - Claret is the liquor for boys; port for men; but he who aspires to be a hero must drink brandy.
+ - The only end of writing is to enable readers better to enjoy life or better to endure it.
+ - You raise your voice when you should reinforce your argument.
+ - There is no wisdom in useless and hopeless sorrow.
+ - He that will enjoy the brightness of sunshine, must quit the coolness of the shade.
+ - The most fatal disease of friendship is gradual decay.
+ - As peace is the end of war, so to be idle is the ultimate purpose of the busy.
+ - Life of Ages, richly poured, Love of God unspent and free, Flowing in the Prophet’s word And the People’s liberty! Never was to chosen race That unstinted tide confined; Thine is every time and place, Fountain sweet of heart and mind!
+ - Politeness is one of those advantages which we never estimate rightly but by the inconvenience of its loss.
+ - While grief is fresh, every attempt to divert only irritates. You must wait till it be digested, and then amusement will dissipate the remains of it.
+ - Getting money is not all a man’s business: to cultivate kindness is a valuable part of the business of life.
+ - He that accepts protection, stipulates obedience. We have always protected the Americans; we may therefore subject them to government.
+ - Oats. A grain, which in England is generally given to horses, but in Scotland supports the people.
+ - The traveler that resolutely follows a rough and winding path will sooner reach the end of his journey than he that is always changing his direction, and wastes the hour of daylight in looking for smoother ground and shorter passages.
+ - If misery be the effect of virtue, it ought to be reverenced; if of ill-fortune, to be pitied; and if of vice, not to be insulted, because it is perhaps itself a punishment adequate to the crime by which it was produced.
+ - If a madman were to come into this room with a stick in his hand, no doubt we should pity the state of his mind; but our primary consideration would be to take care of ourselves. We should knock him down first, and pity him afterwards.
+ - Curiosity, like all other desires, produces pain as well as pleasure.
+ - Health is certainly more valuable than money, because it is by health that money is procured.
+ - Language is only the instrument of science, and words are but the signs of ideas.
+ - The most Heterogeneous ideas are yoked by violence together.
+ - I have always said the first Whig was the Devil.
+ - I will be conquered; I will not capitulate.
+ - Actions are visible, though motives are secret.
+ - Self-confidence is the first requisite to great undertakings.
+ - Many useful and valuable books lie buried in shops and libraries, unknown and unexamined, unless some lucky compiler opens them by chance, and finds an easy spoil of wit and learning.
+ - When speculation has done its worst, two and two still make four.
+ - A Poet, Naturalist, and Historian, Who left scarcely any style of writing untouched, And touched nothing that he did not adorn.
+ - Resolve not to be poor: whatever you have, spend less. Poverty is a great enemy to human happiness; it certainly destroys liberty, and it makes some virtues impracticable, and others extremely difficult.
+ - A mere literary man is a dull man; a man who is solely a man of business is a selfish man; but when literature and commerce are united, they make a respectable man.
+ - To be happy at home is the ultimate result of all ambition, the end to which every enterprise and labor tends, and of which every desire prompts the prosecution.
+ - The return of my birthday, if I remember it, fills me with thoughts which it seems to be the general care of humanity to escape.
+ - Learn that the present hour alone is man’s.
+ - In civilized society we all depend upon each other, and our happiness is very much owing to the good opinion of mankind.
+ - Each person’s work is always a portrait of himself.
+ - Life is short. The sooner that a man begins to enjoy his wealth the better.
+ - The perfect day for quitting is not real. It will never come, so might as well start today.
+ - Of all noises, I think music is the least disagreeable.
+ - Bachelors have consciences, married men have wives.
+ - A gentleman who had been very unhappy in marriage, married immediately after his wife died; it was the triumph of hope over experience.
+ - The feeling of friendship is like that of being comfortably filled with roast beef; love, like being enlivened with champagne.
+ - Lectures were once useful; but now when all can read, and books are so numerous, lectures are unnecessary.
+ - The greatest part of a writer’s time is spent in reading in order to write. A man will turn over half a library to make a book.
+ - Human reason borrowed many arts from the instinct of animals.
+ - Courage is a quality so necessary for maintaining virtue, that it is always respected, even when it is associated with vice.
+ - The size of a man’s understanding can be justly measured by his mirth.
+ - Truth allows no choice.
+ - The natural progress of the works of men is from rudeness to convenience, from convenience to elegance, and from elegance to nicety.
+ - The essence of poetry is invention; such invention as, by producing something unexpected, surprises and delights.
+ - No mind is much employed upon the present; recollection and anticipation fill up almost all our moments.
+ - To do nothing is in everyone’s power.
+ - All envy would be extinguished, if it were universally known that there are none to be envied.
+ - Do not accustom yourself to consider debt only as an inconvenience; you will find it a calamity.
+ - Life is barren enough surely with all her trappings; let us be therefore cautious of how we strip her.
+ - We go from anticipation to anticipation, not from satisfaction to satisfaction.
+ - Idleness and timidity often despair without being overcome, and forbear attempts for fear of being defeated; and we may promote the invigoration of faint endeavors, by showing what has already been performed.
+ - A transition from an author’s book to his conversation, is too often like an entrance into a large city.
+ - Where there is emulation, there will be vanity; where there is vanity, there will be folly.
+ - Mankind have a great aversion to intellectual labor; but even supposing knowledge to be easily attainable, more people would be content to be ignorant than would take even a little trouble to acquire it.
+ - Marriage is the best state for man in general, and every man is a worst man in proportion to the level he is unfit for marriage.
+ - There are in every age new errors to be rectified and new prejudices to be opposed.
+ - Wasting a fortune is evaporation by a thousand imperceptible means.
+ - No people can be great who have ceased to be virtuous.
+ - It is a maxim that no man was ever enslaved by influence while he was fit to be free.
+ - In the motive lies the good or ill.
+ - Were it not for imagination a man would be as happy in arms of a chambermaid as of a duchess.
+ - Apologies are seldom of any use.
+ - The wise man applauds he who he thinks most virtuous; the rest of the world applauds the wealthy.
+ - Few enterprises of great labor or hazard would be undertaken if we had not the power of magnifying the advantages we expect from them.
+ - This is my history; like all other histories, a narrative of misery.
+ - He who attempts to do all will waste his life in doing little.
+ - Such is the emptiness of human enjoyment that we are always impatient of the present. Attainment is followed by neglect, and possession by disgust.
+ - Tomorrow is an old deceiver, and his cheat never grows stale.
+ - This mournful truth is everywhere confessed, slow rises worth by poverty depressed.
+ - He is no wise man who will quit a certainty for an uncertainty.
+ - The drama’s laws the drama’s patrons give. For we that live to please must please to live.
+ - Whoever wishes to attain an English style, familiar but not coarse, and elegant but not ostentatious, must give his days and nights to the volumes of Addison.
+ - A man has no more right to say an uncivil thing than to act one; no more right to say a rude thing to another than to knock him down.
+ - He that embarks on the voyage of life will always wish to advance rather by the impulse of the wind than the strokes of the oar; and many fold in their passage; while they lie waiting for the gale.
+ - A short letter to a distant friend is, in my opinion, an insult like that of a slight bow or cursory salutation – a proof of unwillingness to do much, even where there is a necessity of doing something.
+ - Nothing odd will do long. Tristram Shandy did not last.
+ - Never trust your tongue when your heart is bitter.
+ - Our desires always increase with our possessions. The knowledge that something remains yet unenjoyed impairs our enjoyment of the good before us.
+ - There lurks, perhaps, in every human heart a desire of distinction, which inclines every man first to hope, and then to believe, that Nature has given him something peculiar to himself.
+ - There are charms made only for distant admiration.
+ - Example is always more efficacious than precept.
+ - We never do anything consciously for the last time without sadness of heart.
+ - Criticism, as it was first instituted by Aristotle, was meant as a standard of judging well.
+ - The world is not yet exhausted: let me see something tomorrow which I never saw before.
+ - Knowledge is more than equivalent to force. The master of mechanics laughs at strength.
+ - No money is better spent than what is laid out for domestic satisfaction. A man is pleased that his wife is dressed as well as other people, and the wife is pleased that she is dressed.
+ - A man who both spends and saves money is the happiest man, because he has both enjoyments.
+ - Worth seeing, yes; but not worth going to see.
+ - Age looks with anger on the temerity of youth, and youth with contempt on the scrupulosity of age.
+ - A little knowledge is a dangerous thing – it only hastens fools to rush in where angels fear to tread.
+ - Friendship, peculiar boon of Heaven, The noble mind’s delight and pride, To men and angels only given, To all the lower world denied.
+ - Self-love is often rather arrogant than blind; it does not hide our faults from ourselves, but persuades us that they escape the notice of others.
+ - The law is the last result of human wisdom acting upon human experience for the benefit of the public.
+ - The true genius is a mind of large general powers, accidentally determined to some particular direction.
+ - When once the forms of civility are violated, there remains little hope of return to kindness or decency.
+ - A man, sir, should keep his friendship in a constant repair.
+ - Let him go abroad to a distant country; let him go to some place where he is not known. Don’t let him go to the devil, where he is known.
+ - Club: An assembly of good fellows, meeting under certain conditions.
+ - He that is already corrupt is naturally suspicious, and he that becomes suspicious will quickly become corrupt.
+ - The joy of life is variety; the tenderest love requires to be rekindled by intervals of absence.
+ - Politics are now nothing more than means of rising in the world.
+ - Gloomy calm of idle vacancy.
+ - The most fatal disease of friendship is gradual decay, or dislike hourly increased by causes too slender for complaint, and too numerous for removal.
+ - The expense is damnable, the position is ridiculous, and the pleasure fleeting.
+ - Always, Sir, set a high value on spontaneous kindness. he whose inclination prompts him to cultivate your friendship of his own accord, will love you more than one whom you have been at pains to attach to you.
+ - In the description of night in Macbeth, the beetle and the bat detract from the general idea of darkness – inspissated gloom.
+ - The seeds of knowledge may be planted in solitude, but must be cultivated in public.
+ - Every other author may aspire to praise; the lexicographer can only hope to escape reproach.
+ - An epithet or metaphor drawn from nature ennobles art; an epithet or metaphor drawn from art degrades nature.
+ - Nature never gives everything at once.
+ - Sorrow is a kind of rust of the soul, which every new idea contributes in its passage to scour away. It is the putrefaction of stagnant life, and is remedied by exercise and motion.
+ - If in an actor there appears an utter vacancy of meaning, a frigid equality, a stupid languor, a torpid apathy, the greatest kindness that can be shown him is a speedy sentence of expulsion.
+ - Allow children to be happy in their own way, for what better way will they find?
+ - Rain is good for vegetables, and for the animals who eat those vegetables, and for the animals who eat those animals.
+ - The stream of Time, which is continually washing the dissoluble fabrics of other poets, passes without injury by the adamant of Shakespeare.
+ - Nature has given women so much power that the law has very wisely given them little.
+ - Attainment is followed by neglect, possession by disgust, and the malicious remark of the Greek epigrammatist on marriage may be applied to many another course of life, that its two days of happiness are the first and the last.
+ - Smoking is a shocking thing – blowing smoke out of our mouths into other people’s mouths, eyes, and noses, and having the same thing done to us.
+ - A blade of grass is always a blade of grass, whether in one country or another.
+ - And panting Time toil’d after him in vain.
+ - Must helpless man, in ignorance sedate, roll darkly down the torrent of his fate.
+ - Sir, they are a race of convicts and ought to be grateful for anything we allow them short of hanging.
+ - Dictionaries are like watches, the worst is better than none and the best cannot be expected to go quite true.
+ - Then with no throbs of fiery pain, No cold gradations of decay, Death broke at once the vital chain, And freed his soul the nearest way.
+ - No weakness of the human mind has more frequently incurred animadversion, than the negligence with which men overlook their own faults, however flagrant, and the easiness with which they pardon them, however frequently repeated.
+ - In bed we laugh, in bed we cry, and born in bed, in bed we die; the near approach a bed may show of human bliss to human woe.
+ - It is generally agreed, that few men are made better by affluence or exaltation.
+ - In solitude we have our dreams to ourselves, and in company we agree to dream in concert.
+ - Fate wings, with every wish, the afflictive dart, Each gift of nature, and each grace of art.
+ - The violence of war admits no distinction; the lance, that is lifted at guilt and power, will sometimes fall on innocence and gentleness.
+ - Unconstraint is the grace of conversation.
+ - A quibble is to Shakespeare what luminous vapours are to the traveller: he follows it at all adventures; it is sure to lead him out of his way and sure to engulf him in the mire.
+ - Friendship may well deserve the sacrifice of pleasure, though not of conscience.
+ - Modern writers are the moons of literature; they shine with reflected light, with light borrowed from the ancients.
+ - The business of the poet, said Imlac, is to examine, not the individual, but the species.
+ - We may have many acquaintances, but we can have but few friends; this made Aristotle say that he that hath many friends hath none.
+ - We are not here to sell a parcel of boilers and vats, but the potentiality of growing rich beyond the dreams of avarice.
+ - Many need no other provocation to enmity than that they find themselves excelled.
+ - As pride sometimes is hid under humility, idleness if often covered by turbulence and hurry.
+ - The chief glory of every people arises from its authors.
+ - A fishing rod is a stick with a hook at one end and a fool at the other.
+ - I have protracted my work till most of those whom I wished to please have sunk into the grave, and success and miscarriage are empty sounds: I therefore dismiss it with frigid tranquillity, having little to fear or hope from censure or from praise.
+ - Pleasure is very seldom found where it is sought. Our brightest blazes are commonly kindled by unexpected sparks.
+ - Wise married women don’t trouble themselves about infidelity in their husbands.
+ - How is it that we hear the loudest yelps for liberty among the drivers of negroes?
+ - The end of writing is to instruct; the end of poetry is to instruct by pleasing.
+ - He endearing elegance of female friendship.
+ - The dangers gather as the treasures rise.
+ - From Bard, to Bard, the frigid Caution crept, Till Declamation roar’d, while Passion slept.
+ - Reproof should not exhaust its power upon petty failings.
+ - A cow is a very good animal in the field; but we turn her out of a garden.
+ - He who does not mind his belly, will hardly mind anything else.
+ - There is less flogging in our great schools than formerly-but then less is learned there; so what the boys get at one end they lose at the other.
+ - By seeing London, I have seen as much of life as the world can show.
+ - To a people warlike and indigent, an incursion into a rich country is never hurtful.
+ - Lichfield, England. Swallows certainly sleep all winter. A number of them conglobulate together, by flying round and round, and then all in a heap throw themselves under water, and lye in the bed of a river.
+ - There is nothing which has yet been contrived by man, by which so much happiness is produced as by a good tavern.
+ - The power of punishment is to silence, not to confute.
+ - Exercise is labor without weariness.
+ - A man of genius has been seldom ruined but by himself.
+ - Life protracted is protracted woe.
+ - I would rather be attacked than unnoticed. For the worst thing you can do to an author is to be silent as to his works.
+ - No government power can be abused long. Mankind will not bear it.
+ - A man may be very sincere in good principles, without having good practice.
+ - Language is the dress of thought; and as the noblest mien or most graceful action would be degraded and obscured by a garb appropriated to the gross employments of rusticks or mechanics, so the most heroick sentiments will lose their efficacy.
+ - The fountain of contentment must spring up in the mind.
+ - Men know that women are an overmatch for them, and therefore they choose the weakest or the most ignorant. If they did not think so, they never could be afraid of women knowing as much as themselves.
+ - It was said of Euripides, that every verse was a precept; and it may be said of Shakespeare, that from his works may be collected a system of civil and economical prudence.
+ - Prosperity’s right hand is industry and her left hand is frugality.
+ - The animadversions of critics are commonly such as may easily provoke the sedatest writer to some quickness of resentment and asperity of reply.
+ - Milton, Madam, was a genius that could cut a Colossus from a rock; but could not carve heads upon cherry-stones.
+ - All intellectual improvement arises from leisure.
+ - Poetry cannot be translation.
+ - Life has no pleasure higher or nobler than that of friendship.
+ - If the guardian or the mother Tell the woes of willful waste, Scorn their counsel and their pother, You can hang or drown at last.
+ - Much may be made of a Scotchman, if he be caught young.
+ - Life affords no higher pleasure than that of surmounting difficulties.
+ - A decent provision for the poor is the true test of civilization.
+ - Politics are now nothing more than means of rising in the world. With this sole view do men engage in politics, and their whole conduct proceeds upon it.
+ - Expectation improperly indulged in must end in disappointment.
+ - A successful author is equally in danger of the diminution of his fame, whether he continues or ceases to write.
+ - Knowledge always desires increase, it is like fire, which must first be kindled by some external agent, but which will afterwards propagate itself.
+ - Men more frequently require to be reminded than informed.
+ - We suffer equal pain from the pertinacious adhesion of unwelcome images, as from the evanescence of those which are pleasing and useful.
+ - Shame arises from the fear of men, conscience from the fear of God.
+ - Sir, I did not count your glasses of wine, why should you number up my cups of tea?
+ - He that reads and grows no wiser seldom suspects his own deficiency, but complains of hard words and obscure sentences, and asks why books are written which cannot be understood.
+ - Pour forth thy fervors for a healthful mind, Obedient passions, and a will resigned.
+ - A fly, Sir, may sting a stately horse and make him wince; but, one is but an insect, and the other is a horse still.
+ - Ladies, stock and tend your hive, Trifle not at thirty-five; For, howe’er we boast and strive, Life declines from thirty-five; He that ever hopes to thrive Must begin by thirty-five.
+ - A wise man will make haste to forgive, because he knows the true value of time, and will not suffer it to pass away in unnecessary pain.
+ - From ignorance our comfort flows, the only wretched are the wise.
+ - Dishonor waits on perfidy. A man should blush to think a falsehood; it is the crime of cowards.
+ - He who fails to please in his salutation and address is at once rejected, and never obtains an opportunity of showing his latest excellences or essential qualities.
+ - Praise, like gold and diamonds, owes its value only to its scarcity.
+ - An author places himself uncalled before the tribunal of criticism and solicits fame at the hazard of disgrace.
+ - While an author is yet living, we estimate his powers by his worst performance; and when he is dead, we rate him by his best.
+ - Let observation with extensive view, Survey mankind from China to Peru; Remark each anxious toil, each eager strife, And watch the busy scenes of crowded life.
+ - In lapidary inscriptions a man is not upon oath.
+ - To embarrass justice by multiplicity of laws, or to hazard it by confidence in judges, seem to be the opposite rocks on which all civil institutions have been wrecked, and between which legislative wisdom has never yet found an open passage.
+ - Of the blessings set before you make your choice, and be content. No man can taste the fruits of autumn while he is delighting his scent with the flowers of the spring: no man can, at the same time, fill his cup from the source and from the mouth of the Nile.
+ - The liberty of the press is a blessing when we are inclined to write against others, and a calamity when we find ourselves overborne by the multitude of our assailants.
+ - Don’t tell me of deception; a lie is a lie, whether it be a lie to the eye or a lie to the ear.
+ - An exotic and irrational entertainment, which has been always combated, and always has prevailed.
+ - The process is the reality.
+ - Be not too hasty to trust or to admire the teachers of morality; they discourse like angels, but they live like men.
+ - Was there ever yet anything written by mere man that was wished longer by its readers, excepting Don Quixote, Robinson Crusoe, and the Pilgrim’s Progress?
+ - Slavery is now nowhere more patiently endured, than in countries once inhabited by the zealots of liberty.
+ - In misery’s darkest cavern known, His useful care was ever nigh Where hopeless anguish pour’d his groan, And lonely want retir’d to die.
+ - When men come to like a sea-life, they are not fit to live on land.
+ - We are more pained by ignorance than delighted by instruction.
+ - The disturbers of happiness are our desires, our griefs, and our fears.
+ - Advice is seldom welcome. Those who need it most, like it least.
+ - Happiness consists in the multiplicity of agreeable consciousness.
+ - As I know more of mankind I expect less of them, and am ready now to call a man a good man upon easier terms than I was formerly.
+ - A man who exposes himself when he is intoxicated, has not the art of getting drunk.
+ - Superfluous lags the veteran on the stage, Till pitying Nature signs the last release, And bids afflicted worth retire to peace.
+ - We love to expect, and when expectation is either disappointed or gratified, we want to be again expecting.
+ - A lexicographer, a writer of dictionaries, a harmless drudge.
+ - Fear naturally quickens the flight of guilt.
+ - To neglect at any time preparation for death is to sleep on our post at a siege; to omit it in old age is to sleep at an attack.
+ - Distance has the same effect on the mind as on the eye.
+ - He was dull in a new way, and that made many think him great.
+ - The great source of pleasure is variety.
+ - There ambush here relentless ruffians lay, And here the fell attorney prowls for prey.
+ - Turn on the prudent ant thy heedful eyes. Observe her labors, sluggard, and be wise.
+ - It is commonly observed, that when two Englishmen meet, their first talk is of the weather; they are in haste to tell each other, what each must already know, that it is hot or cold, bright or cloudy, windy or calm.
+ - All the performances of human art, at which we look with praise or wonder, are instances of the resistless force of perseverance.
+ - Questioning is not the mode of conversation among gentlemen.
+ - He who has so little knowledge of human nature as to seek happiness by changing anything but his own disposition will waste his life in fruitless efforts.
+ - Greece appears to be the fountain of knowledge; Rome of elegance.
+ - The truly strong and sound mind is the mind that can embrace equally great things and small.
+ - None but a fool worries about things he cannot influence.
+ - The mind is refrigerated by interruption; the thoughts are diverted from the principle subject; the reader is weary, he suspects not why; and at last throws away the book, which he has too diligently studied.
+ - The truth is that the spectators are always in their senses, and know, from the first act to the last, that the stage is only a stage, and that the players are only players.
+ - Frugality may be termed the daughter of Prudence, the sister of Temperance, and the parent of Liberty.
+ - Pity is not natural to man. Children always are cruel. Savages are always cruel.
+ - The lust of gold succeeds the rage of conquest; The lust of gold, unfeeling and remorseless! The last corruption of degenerate man.
+ - Beauty, without kindness, dies unenjoyed and undelighting.
+ - Nay, Madam, when you are declaiming, declaim; and when you are calculating, calculate.
+ - A man used to vicissitudes is not easily dejected.
+ - Every man has a lurking wish to appear considerable in his native place.
+ - I look upon this as I did upon the Dictionary: it is all work, and my inducement to it is not love or desire of fame, but the want of money, which is the only motive to writing that I know of.
+ - To strive with difficulties, and to conquer them, is the highest human felicity.
+ - A man ought to read just as inclination leads him, for what he reads as a task will do him little good.
+ - Each change of many-colour’d life he drew, Exhausted worlds, and then imagin’d new.
+ - Nothing is more hopeless than a scheme of merriment.
+ - Prejudice, not being founded on reason, cannot be removed by argument.
+ - Some have little power to do good, and have likewise little strength to resist evil.
+ - What is easy is seldom excellent.
+ - Books that you carry to the fire, and hold readily in your hand, are most useful after all.
+ - Memory is the primary and fundamental power, without which there could be no other intellectual operation.
+ - Officious, innocent, sincere, Of every friendless name the friend.
+ - Sir, I have found you an argument; but I am not obliged to find you an understanding.
+ - Whisky making is the art of making poison pleasant.
+ - We are easily shocked by crimes which appear at once in their full magnitude, but the gradual growth of our own wickedness, endeared by interest, and palliated by all the artifices of self-deceit, gives us time to form distinctions in our own favor.
+ - Sir, what is poetry? Why, Sir, it is much easier to say what it is not. We all know what light is; but it is not easy to tell what it is.
+ - I inherited a vile melancholy from my father, which has made me mad all my life, at least not sober.
+ - Prepare for death, if here at night you roam, and sign your will before you sup from home.
+ - Justice is indispensably and universally necessary, and what is necessary must always be limited, uniform, and distinct.
+ - Politeness is fictitious benevolence.
+ - There are occasions on which all apologies are rudeness.
+ - Just praise is only a debt, but flattery is a present.
+ - Who drives fat oxen should himself be fat.
+ - There are few ways in which a man can be more innocently employed than in getting money.
+ - No one is much pleased with a companion who does not increase, in some respect, their fondness for themselves.
+ - Madam, before you flatter a man so grossly to his face, you should consider whether or not your flattery is worth his having.
+ - Promise, large promise, is the soul of an advertisement.
+ - The reciprocal civility of authors is one of the most risible scenes in the farce of life.
+ - Applause abates diligence.
+ - Excise: A hateful tax levied upon commodities, and adjudged not by the common judges of property, but wretches hired by those to whom excise is paid.
+ - In a man’s letters his soul lies naked.
+ - Poetry is the art of uniting pleasure with truth.
+ - In the bottle discontent seeks for comfort, cowardice for courage, and bashfulness for confidence.
+ - To talk in public, to think in solitude, to read and to hear, to inquire and answer inquiries, is the business of the scholar.
+ - Every old man complains of the growing depravity of the world, of the petulance and insolence of the rising generation.
+ - A woman of fortune being used the handling of money, spends it judiciously; but a woman who gets the command of money for the first time upon her marriage, has such a gust in spending it, that she throws it away with great profusion.
+ - Sorrow is properly that state of the mind in which our desires are fixed upon the past without looking forward to the future.
+ - Whoever commits a fraud is guilty not only of the particular injury to him who he deceives, but of the diminution of that confidence which constitutes not only the ease but the existence of society.
+ - A man with a good coat upon his back meets with a better reception than he who has a bad one.
+ - Cruel with guilt, and daring with despair, the midnight murderer bursts the faithless bar; invades the sacred hour of silent rest and leaves, unseen, a dagger in your breast.
+ - Moral sentences appear ostentatious and tumid, when they have no greater occasions than the journey of a wit to his home town: yet such pleasures and such pains make up the general mass of life; and as nothing is little to him that feels it with gre.
+ - Too much vigor in the beginning of an undertaking often intercepts and prevents the steadiness and perseverance always necessary in the conduct of a complicated scheme.
+ - He who expects much will be often disappointed; yet disappointment seldom cures us of expectation, or has any other effect than that of producing a moral sentence or peevish exclamation.
+ - Since life itself is uncertain, nothing which has life for its basis can boast much stability.
+ - The use of traveling is to regulate imagination by reality.
+ - Praise, like gold and diamonds, owes its value only to its scarcity. It becomes cheap as it becomes vulgar, and will no longer raise expectation or animate enterprise.
+ - Melancholy, indeed, should be diverted by every means but drinking.
+ - Small debts are like small shot; they are rattling on every side, and can scarcely be escaped without a wound: great debts are like cannon; of loud noise, but little danger.
+ - It is the just doom of laziness and gluttony to be inactive without ease and drowsy without tranquility.
+ - The wretched have no compassion, they can do good only from strong principles of duty.
+ - Almost all absurdity of conduct arises from the imitation of those who we cannot resemble.
+ - Bounty always receives part of its value from the manner in which it is bestowed.
+ - Friendship is not always the sequel of obligation...
+ - Words are daughters of earth but ideas are sons of heaven.
+ - I would be loath to speak ill of any person who I do not know deserves it, but I am afraid he is an attorney.
+ - The fiction of happiness is propagated by every tongue and confirmed by every look till at last all profess the joy which they do not feel and consent to yield to the general delusion.
+ - The happiest part of a man’s life is what he passes lying awake in bed in the morning.
+ - Reason elevates our thoughts as high as the stars, and leads us through the vast space of this mighty fabric; yet it comes far short of the real extent of our corporeal being.
+ - Towering is the confidence of twenty-one.
+ - There are some sluggish men who are improved by drinking; as there are fruits that are not good until they are rotten.
+ - To hear complaints with patience, even when complaints are vain, is one of the duties of friendship.
+ - What signifies protesting so against flattery when a person speaks well of one, it must either be true or false, you know if true, let us rejoice in his good opinion if he lies, it is a proof at least that he loves more to please me, than to sit s.
+ - Mutual cowardice keeps us in peace.
+ - Words become low by the occasions to which they are applied, or the general character of them who use them; and the disgust which they produce arises from the revival of those images with which they are commonly united.
+ - A man who uses a great many words to express his meaning is like a bad marksman who, instead of aiming a single stone at an object, takes up a handful and throws at it in hopes he may hit.
+ - Tears are often to be found where there is little sorrow, and the deepest sorrow without any tears.
+ - Grief is a species of idleness.
+ - He that voluntarily continues in ignorance, is guilty of all the crimes which ignorance produces.
+ - Norway, too, has noble prospects; and Lapland is remarkable for prodigious noble wild prospects. But, Sir, let me tell you, the noblest prospect which a Scotchman ever sees is the high road that leads him to England!
+ - Books have always a secret influence on the understanding; we cannot at pleasure obliterate ideas; he that reads books of science, thogh without any fixed desire of improvement, will grow more knowing...
+ - A book should teach us to enjoy life, or to endure it.
+ - His most frequent ailment was the headache which he used to relieve by inhaling the steam of coffee.
+ - Words too familiar, or too remote, defeat the purpose of a poet.
+ - Avarice is always poor.
+ - Whatever withdraws us from the power of our senses; whatever makes the past, the distant, or the future predominate over the present, advances us in the dignity of thinking beings.
+ - Sleep undisturbed within the peaceful shrine till angels wake thee with a note like thine.
+ - Conjecture as to things useful, is good; but conjecture as to what it would be useless to know, is very idle.
+ - In Shakespeare’s plays, the mourner hastening to bury his friend is all the time colliding with the reveller hastening to his wine.
+ - There is, indeed, nothing that so much seduces reason from vigilance, as the thought of passing life with an amiable woman.
+ - In life’s last scene what prodigies surprise, Fears of the brave, and follies of the wise! From Marlborough’s eyes the streams of dotage flow, And Swift expires a driveller and a show.
+ - Cucumber should be well sliced, dressed with pepper and vinegar, and then thrown out.
+ - The history of mankind is little else than a narrative of designs which have failed and hopes that have been disappointed.
+ - Admiration and love are like being intoxicated with champagne; judgment and friendship are like being enlivened.
+ - Terrestrial happiness is of short duration. The brightness of the flame is wasting its fuel; the fragrant flower is passing away in its own odors.
+ - When any fit of gloominess, or perversion of mind, lays hold upon you, make it a rule not to publish it by complaints.
+ - Timidity is a disease of the mind, obstinate and fatal; for a man once persuaded that any impediment is insuperable has given it, with respect to himself, that strength and weight which it had not before.
+ - To a poet nothing can be useless.
+ - What a strange narrowness of mind now is that, to think the things we have not known are better than the things we have known.
+ - Sir, when you have seen one green field, you have seen all green fields. Let us walk down Cheapside.
+ - Difficult do you call it, Sir? I wish it were impossible.
+ - Invention is almost the only literary labour which blindness cannot obstruct.
+ - When first the college rolls receive his name, The young enthusiast quilts his ease for fame; Through all his veins the fever of renown Burns from the strong contagion of the gown.
+ - The world is seldom what it seems; to man, who dimly sees, realities appear as dreams, and dreams realities.
+ - Pleasure that is obtained by unreasonable and unsuitable cost must always end in pain.
+ - No man is a hypocrite in his pleasures.
+ - If I had no duties, and no reference to futurity, I would spend my life in driving briskly in a post-chaise with a pretty woman.
+ - The work of a correct and regular writer is a garden accurately formed and diligently planted, varied with shades, and scented with flowers.
+ - Some people wave their dogmatic thinking until their own reason is entangled.
+ - It is as foolish to make experiments upon the constancy of a friend, as upon the chastity of a wife.
+ - Year chases year, decay pursues decay, Still drops some joy from with’ring life away; New forms arise, and diff’rent views engage.
+ - Every period of life is obliged to borrow its happiness from time to come.
+ - The world will never be long without some good reason to hate the unhappy; their real faults are immediately detected; and if those are not sufficient to sink them into infamy, an individual weight of calumny will be super-added.
+ - It seems not more reasonable to leave the right of printing unrestrained, because writers may be afterwards censured, than it would be to sleep with doors unbolted, because by our laws we can hang a thief.
+ - He that never labors may know the pains of idleness, but not the pleasures.
+ - Bravery has no place where it can avail nothing.
+ - Politeness is fictitious benevolence. Depend upon it, the want of it never fails to produce something disagreeable to one or other.
+ - When a man feel the reprehension of a friend seconded by his own heart, he is easily heated into resentment.
+ - People have now a-days got a strange opinion that every thing should be taught by lectures. Now, I cannot see that lectures can do as much good as reading the books from which the lectures are taken.
+ - Genius is that energy which collects, combines, amplifies, and animates.
+ - When there is no hope, there can be no endeavor.
+ - He left the name at which the world grew pale, To point a moral, or adorn a tale.
+ - London! the needy villain’s general home, The common sewer of Paris and of Rome! With eager thirst, by folly or by fate, Sucks in the dregs of each corrupted state.
+ - Fear is implanted in us as a preservative from evil.
+ - The cure for the greatest part of human miseries is not radical, but palliative.
+ - A wise man is cured of ambition by ambition itself; his aim is so exalted that riches, office, fortune and favour cannot satisfy him.
+ - High people, sir, are the best; take a hundred ladies of quality, you’ll find them better wives, better mothers, more willing to sacrifice their own pleasures to their children, than a hundred other woman.
+ - I am not so lost in lexicography as to forget that words are the daughters of earth, and that things are the sons of heaven.
+ - All censure of a man’s self is oblique praise. It is in order to show how much he can spare.
+ - Friendship, like love, is destroyed by long absence, though it may be increased by short intermissions.
+ - Pride is seldom delicate; it will please itself with very mean advantages.
+ - I never desire to converse with a man who has written more than he has read.
+ - The business of life is to go forward.
+ - There mark what ills the scholar’s life assail, toil, envy, want, and patron.
+ - Fears of the brave and follies of the wise.
+ - We are all prompted by the same motives, all deceived by the same fallacies, all animated by hope, obstructed by danger, entangled by desire, and seduced by pleasure.
+ - There are innumerable questions to which the inquisitive mind can in this state receive no answer: Why do you and I exist? Why was this world created? Since it was to be created, why was it not created sooner?
+ - Pain is less subject than pleasure to careless expression.
+ - Words are but the signs of ideas.
+ - Let me rejoice in the light which Thou hast imparted; let me serve Thee with active zeal, humbled confidence, and wait with patient expectation for the time in which the soul which Thou receivest shall be satisfied with knowledge.
+ - Round numbers are always false.
+ - A translator is to be like his author; it is not his business to excel him.
+ - But though it cannot be reasonable not to gain happiness for fear of losing it, yet it must be confessed, that in proportion to the pleasure of possession, will be for some time our sorrow for the loss.
+ - Genius, that power which constitutes a poet; that quality without which judgment is cold, and knowledge is inert; that energy which collects, combines, amplifies and animates.
+ - Mutual complacency is the atmosphere of conjugal love.
+ - The mental disease of the present generation is impatience of study, contempt of the great masters of ancient wisdom, and a disposition to rely wholly upon unassisted genius and natural sagacity.
+
+500 quotes

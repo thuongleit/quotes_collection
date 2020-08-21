@@ -1,0 +1,23 @@
+ - We all fight on two fronts, the one facing the enemy, the one facing what we do to the enemy.
+ - I never want to play down to the reader. I think readers are willing to go along if they’re intrigued.
+ - Sometimes, it’s not getting what we want that offers us the most important Lessons.
+ - There’s something sexy in cooking for a man who likes my food. Am I growing up?
+ - Fascinating, often hilarious, always devastatingly truthful, The Inconvenient Indian is destined to become a classic of historical narrative. For those who wish to better understand Native peoples, it is a must read. For those who don’t wish to understand, it is even more so.
+ - I say that humans are the only ones in this world that need everything within it. but there is nothing in the world that needs us for its survival. We aren’t the masters of the earth. We’re the servants.
+ - Canada and America are very, very different. It’s true that we share a language and many customs. But Americans have a very different view of the world.
+ - There’s the concept that dreams are as important – if not more important – than reality. The attention that one pays to those things in the shadows is very much a part of the Indian experience.
+ - I’m fascinated by the magic realism used by many writers. I think it goes hand-in-hand with the Indian experience. It’s a very different way of viewing the world.
+ - When I die, nieces, I want to be cremated, my ashes taken up in a bush plane and sprinkled onto the people in town below. Let them think my body is snowflakes, sticking in their hair and on their shoulders like dandruff.
+ - There were incredibly complex societies already existing in North America long before Europeans arrived. So many people think that before European contact it was just Natives huddling around a fire, waiting for civilization to come save them. But that was not the case.
+ - Compared to Americans, Canadians are often more gentle in their approach to things. They’re much more apologetic. There’s less room for conflict.
+ - America seems to celebrate its more violent past, but Canada doesn’t like to recognize those things. The willingness to accept the existence of violence separates our two countries.
+ - The beliefs of Native people are no less powerful or important just because they focus on a different “form of magic.”
+ - During World War I the Canadians were the shock troops. In many historical cases, Canadians have been very proficient at killing, and doing what we have to in order to survive. But no one wants to acknowledge that fact.
+ - We aren’t the masters of the earth. We’re the servants.
+ - From a craft standpoint, telling a story in the first-person present tense over the course of 500 pages is a daunting challenge.
+ - The history needs to serve the story, not the story the history. But at the same time you can’t stray too far.
+ - As a fiction writer, of course, you need to take some leeway with certain aspects of history to make the story work.
+ - People will say that Canada, unlike America, was not birthed from violence. But I want to say, “What are you talking about?” It’s just not true.
+ - I’m intrigued by the classic Greek tragedies, as well as by the idea of the Greek chorus.
+
+21 quotes

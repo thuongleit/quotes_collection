@@ -1,0 +1,74 @@
+ - A dose of humility goes a long way in life and in politics.
+ - If Mitt Romney is vanilla, Chris Christie is three hefty scoops of Rocky Road topped with whipped cream, Red Bull, and gravel.
+ - President George W. Bush won reelection in 2004 largely because he was seen as comfortable in his own skin, while rival John Kerry was viewed as a flip-flopping opportunist.
+ - It’s a deft trick to turn American exceptionalism into an exceptional political tactic.
+ - If you like your health insurance plan, you can keep your health insurance plan.
+ - Don’t stigmatize in a rush to explain inexplicable evil.
+ - Anything can go wrong in a debate, and Obama is not a perfect debater.
+ - We, the people. Manifest Destiny. Conceived in liberty. Fear itself. Ask not. Morning in America. United we stand. Yes, we can. In times of great change and tumult, presidents seek to inspire beleaguered Americans by reminding them of their national identity.
+ - American exceptionalism is the recurring character in the nation’s narrative.
+ - We’re living in an era of unprecedented change, and I want to be a part of documenting it.
+ - Although we were never pals and occasionally butted heads, my relationship with Clinton and his wife, Hillary, made me a better journalist.
+ - Once a popular Alaska governor with a modest record of accomplishment, Palin could conceivably revive her reputation in this era of short memories. But it’s hard to imagine her name atop the GOP ballot in 2016, when a cast of heavyweights who sat out 2012 will be vying for the nomination.
+ - Somebody must be up and somebody must be down. Trouble is, campaigns are messy, subtle creatures that don’t follow convenient narratives.
+ - According to a Public Policy Polling survey, most Americans find lice and colonoscopies more appealing than Capitol Hill.
+ - Political consultants are pugilists, masters in the dark art of negativity. Which is why it’s surprising to hear Democrats such as Steve McMahon and Republicans like Rich Galen urging their presidential candidates to be more, well, positive.
+ - Washington’s answer to a self-inflicted financial crisis reminded Americans why they so deeply distrust the political class. The ‘fiscal cliff’ process was secretive and sloppy, and the nation’s so-called leadership lacked the political courage to address our root problems: joblessness and debt.
+ - White House operatives went to great lengths to show Obama shifting focus from wars abroad to domestic issues at home.
+ - It’s an appeal as old as America and its presidency: This is an extraordinary country populated by hard-working, big-dreaming, freedom-loving people graced by God when they’re not pulling themselves up by the bootstraps.
+ - It’s a bit unfair to accuse Obama of dividing the nation when the facts show that it already is.
+ - This is Romney’s biggest political weakness. His policy flip-flops and the general sense that he’s not comfortable in his own skin leads voters, including many supporters, wondering about his core values.
+ - Perhaps we should wait until his second term begins before carving Barack Obama’s face in Mount Rushmore. Is that asking too much?
+ - Like a cowboy saddling a bucking stallion, Republican leaders tried to tame the Tea Party while riding it to victories.
+ - At the start of his second term, one wonders less about Obama’s fitness than his willingness: Why doesn’t he do more to build and maintain the relationships required to govern in era of polarization?
+ - At his best, Obama promised to work with Republicans to reduce the deficit in a way that honors both individualism and community.
+ - Obama shows no sign of easing up on negativity.
+ - AP promoted me to the White House beat because I knew Clinton, his family, friends, and staff better than anybody in the national press corps. Those contacts helped me break a few stories and get my career in Washington jump-started.
+ - For a man who has compared himself to Theodore Roosevelt and the nation’s challenges to those of the Gilded Age, Obama put forward a tepid agenda.
+ - Mandates are rarely won on election night. They are earned after Inauguration Day by leaders who spend their political capital wisely, taking advantage of events without overreaching.
+ - You can almost see voters nodding their heads at home: The public’s faith in politicians and political institutions has been on a steep and dangerous decline for decades, because elected leaders fail to deliver.
+ - With gridlock the norm, Congress’s approval rating is below 10 percent and the public has lost faith in its national leadership.
+ - A presidential debate is a job interview. And voters look for certain traits in people applying to be president.
+ - Romney and Democratic rival President Obama have led their partisan backers down a trail of lies, negativity and vacuous policies that seem certain to guarantee an angry electorate four more years of gridlock.
+ - Barack Obama won a second term but no mandate. Thanks in part to his own small-bore and brutish campaign, victory guarantees the president nothing more than the headache of building consensus in a gridlocked capital on behalf of a polarized public.
+ - The 2016 presidential election is ripe for the emergence of a game-changing political leader who either dramatically reforms one of the existing parties or mounts an independent bid.
+ - A concrete agenda and landslide victory might not even guarantee a president his mandate in a capital as polarized as Washington.
+ - By nominating Chuck Hagel to be his Defense secretary, President Obama is putting forward an aloof contrarian who doesn’t suffer fools – a striving politician who considers himself above politics.
+ - Got good news and bad news for you, Mr. President. The good news is that Chief Justice John Roberts just saved your legacy and, perhaps, your presidency by writing for the Supreme Court majority to rule health care reform constitutional.
+ - Political reporters and political professionals rushed to judgment against Romney because we crave clear, unambiguous story lines.
+ - Don’t underestimate questions from the crowd; technology has made voters more informed than ever.
+ - Obama won the presidency on the strength of his message and the skills of the messenger. Now the talk of hope and change feels out of tune when so many Americans are out of work, over-mortgaged, and worried that life will be even tougher for their children.
+ - If history is a guide, a victory for Obama means he faces the prospect of a second term dogged by scandal or inertia.
+ - Climate change was a point of division between Obama and Republican rival Mitt Romney. The president declared climate change a global threat, acknowledged that the actions of humanity were deepening the crisis, and pledged to do something about it if elected.
+ - Obama still has work to do with the vision thing. Convincing voters that he has a credible, practical plan to turn the nation around is a process, not a speech.
+ - Obama will learn from his mistakes.
+ - Blending hard-bitten realism with long-view optimism, Obama said that every 20 or 30 years brings a new cycle of pessimism in America.
+ - President Obama is casting his lot in the middle of a debate as old as America itself: Are we rugged individualists pulling ourselves up by the bootstraps? Or are we a nation of community, all connected and counting on one another?
+ - Republicans would have preferred the court overturn the health care bill, an act that would have underscored Obama’s biggest liability – the perception among voters, including those who like and trust him, that he has been ineffective.
+ - I’m hearing echoes of Bill Clinton, circa 1996, in President Obama’s reelection rhetoric.
+ - In Washington, compromise has become a dirty word.
+ - If acknowledging that racial misgivings and misunderstandings are still a part of politics and life in America, I plead guilty.
+ - Obama considers himself above deal-making and back-slapping, political necessities he often delegates to Vice President Joe Biden and other lesser sorts.
+ - Sitting in the Oval Office, beneath a painting of George Washington, with a bust of Martin Luther King Jr. over his right shoulder and a bust of Abraham Lincoln over his left shoulder, Obama told ‘National Journal’ that the country’s economic woes are deep and endemic.
+ - Palin seems to have forgotten that her poll ratings have plummeted since the summer of 2011.
+ - Obama might do well to remember that his fast rise from the Illinois state Senate was due in large part to an uncanny ability to make friends and find mentors.
+ - Washington, Jefferson, Lincoln and Roosevelt faced adversities that, in their times, seemed impregnable. Great presidents overcome great odds.
+ - Historians will likely give Obama credit for steering the country away from the brink of economic collapse in 2009.
+ - Movies such as ‘Mr. Smith Goes to Washington’ in 1939 to ‘Dave’ in 1993 portray Washington leaders as the ultimate Everymen – decent people just like you and me, only thrust onto greatness.
+ - Secretary of State Hillary Rodham Clinton is the most influential woman in Washington – for what she has accomplished and for what she may yet do: win the presidency.
+ - Election night is the easiest time to act like a grownup.
+ - Obama ran a hard-edged and negative campaign against Romney, hoping to convince recession-weary voters that his rival was unworthy of the job.
+ - Obama is capable – as evidenced by his first-term success with health care reform. But mandate-building requires humility, a trait not easily associated with him.
+ - Anything may be possible in America, but a Palin presidency is virtually implausible.
+ - The fact that Obama is getting criticism from the left and the right might reflect his understanding of the underlying political dynamics.
+ - In times of tumult, voters are likely to forgive a president, if not reward him, for compromises made in service of solutions.
+ - Andrew Jackson was the first president to claim that the desires of the public overrode Congress’s constitutional prerogatives. Virtually every president since Jackson has claimed the mantle, even while lacking two ingredients of an electoral mandate: a landslide victory and a specific agenda.
+ - Most political journalists come to Washington because they’re snappy writers, big thinkers, or news breakers. Me? My ticket to the big leagues had little to do with talent. It was mostly about the governor I was covering, Bill Clinton.
+ - Clearly, the Obama presidency hasn’t wiped out racial prejudices.
+ - Most Tea Party activists consider Obama a big-spending liberal. Some even question his eligibility to be president.
+ - Obama does not need to worry as much as past Democratic presidents about being labeled soft on national security – not after giving the order that led to the assassination of Osama bin Laden. No, his biggest concern is being labeled tone deaf on joblessness and debt.
+ - Since declaring that she would not serve in a second Obama administration, Clinton has dismissed suggestions that she will run in 2016.
+ - One of Obama’s most impressive attributes is his quiet confidence: Voters sense that he is comfortable in his own skin, a dedicated father and friend who won’t waste time with the phony rituals of Washington.
+ - Every now and then, a presidential candidate surprises us with a truly human and honest moment.
+
+72 quotes

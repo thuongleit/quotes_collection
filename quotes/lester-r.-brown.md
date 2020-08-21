@@ -1,0 +1,25 @@
+ - In Mexico City, Tehran, Kolkata, Bangkok, Shanghai, and hundreds of other cities, the air is no longer safe to breathe. In some cities, the air is so polluted that breathing is equivalent to smoking two packs of cigarettes per day.
+ - No civilization has survived the ongoing destruction of its natural support systems. Nor will ours.
+ - Our numbers expand, but Earth’s natural systems do not.
+ - Socialism failed because it couldn’t tell the economic truth. Capitalism may fail because it couldn’t tell the ecological truth.
+ - The 20th century was the time when the world turned to use of fossil fuels and the 21st century will be the century of the renewables.
+ - In this era of tightening world food supplies, the ability to grow food is fast becoming a new form of geopolitical leverage. Food is the new oil. Land is the new gold.
+ - Today, more than ever, we need political leaders who can see the big picture, who understand the relationship between the economy and its environmental support systems.
+ - Yet, most of the readily accessible reserves of oil formed over hundreds of millions of years will be consumed within a single generation, spanning the years from 1960 to 1995.
+ - Children whose developing lungs are particularly vulnerable suffer the most from air pollution. For children, breathing the air in cities with the worst pollution, such as Beijing, Calcutta, Mexico City, Shanghai, and Tehran, is equivalent to smoking two packs of cigarettes a day.
+ - One way or another, the choice will be made by our generation, but it will affect life on earth for all generations to come.
+ - Rising oil prices have focused the world’s attention on the depletion of oil reserves. But the depletion of underground water resources from overpumping is a far more serious issue. Excessive pumping for irrigation to satisfy food needs today almost guarantees a decline in food production tomorrow.
+ - The biggest threat to global stability is the potential for food crises in poor countries to cause government collapse.
+ - Saving civilization is not a spectator sport.
+ - The challenge is either to build an economy that is sustainable or to stay with our unsustainable economy until it declines. It is not a goal that can be compromised. One way or another, the choice will be made by our generation, but it will affect life on earth for all generations to come.
+ - We can build an economy that does not destroy its natural support systems, a global community where the basic needs of all the Earth’s people are satisfied, and a world that will allow us to think of ourselves as civilized. This is entirely doable.
+ - If an economy is to sustain progress, it must satisfy the basic principles of ecology. If it does not, it will decline and eventually collapse. There is no middle ground.
+ - Nuclear power, once regarded as petroleum’s natural heir, has become less and less attractive as its numerous drawbacks come to light. Coal, the other fossil fuel, is ultimately as exhaustible as oil.
+ - We are witnessing the beginning of one of the great tragedies of history. The United States, in a misguided effort to reduce its oil insecurity by converting grain into fuel for cars, is generating global food insecurity on a scale never seen before.
+ - Nations are in effect ceding portions of their sovereignty to the international community and beginning to create a new system of international environmental governance.
+ - They have also been adopting fuel efficiency standards for automobiles in China.
+ - Humanity’s greatest challenge may soon be just making it to the next harvest.
+ - The throwaway economy that has been evolving over the last half-century is an aberration, now itself headed for the junk heap of history.
+ - The foundation is being laid for the emergence of both wind and solar cells as cornerstones of the new energy economy.
+
+23 quotes

@@ -1,0 +1,39 @@
+ - True beauty is knowing who you are and believing in yourself. Happy people know their purpose, have courage to fight for it and strength to keep going.
+ - I’ve always been into looking different.
+ - I am committed to glamour.
+ - I love nature, so I’d love to go out and just look at things and not care what I look like.
+ - Know yourself; keep your circle tight. Keep your friends and your work circle tight.
+ - Clothes are fun. The designers have so much fun making them, you should have fun wearing them, too.
+ - I’ve always tried to be independent. It’s just my personality. I’ve always been the type to motivate the camp. I’ve always wanted to be the fuel for something – for music, the fuel for my family, the fuel for my best friend. Helping someone with what I’m doing.
+ - Stand naked in front of the mirror and say, ‘I’m f–king sexy.’ That’s where it starts.
+ - Women love an honest man.
+ - The public’s not stupid.
+ - I think I’ve always been fine on stage – though I get nervous beforehand. But once I’m on stage, all of that goes out of the window.
+ - I’m most scared of failing, of disappointing people.
+ - I dyed my hair blonde when I was 14. My mom was not happy. But I love being blonde.
+ - I love sharing my life with my followers. Hopefully, they are following me because they genuinely want to know me. It’s a way to connect with fans that wasn’t available just a few years ago.
+ - I’d love to go and camp out and live in a tent in the middle of nowhere and see how long I could live and survive.
+ - Everyone thinks their mom is a superhero, and l feel like I want to be just like my mom. A superhero. She’s a very strong lady.
+ - Every person has a signature. Just some people don’t know it yet.
+ - I’d like to be the Princess. But I want a nice black crown, not a pink crown because I hate pink. I wanna be the naughty Princess from Roc Nation.
+ - The best thing Jay-Z ever taught me was patience.
+ - I was signed at 18 and had to grow up quickly.
+ - I’d love to sponsor a dolphin.
+ - I’m often mistaken for Spanish or Latin descent.
+ - Roc Nation is such an incredible, unique team, especially in the music industry. Everyone genuinely loves and cares about each other.
+ - It’s nice to always make an effort when you get photographed.
+ - I have always liked the contrast between being blonde and having dark features.
+ - When I was a kid, I’d spray paint my hair, cut clothes up.
+ - I don’t think I could do a reality show, no.
+ - I have had young fascinations but never love.
+ - I don’t know what it feels like not to have a great family support system – I was lucky to have that.
+ - I really have paid my dues. When I get to stay in fancy hotel suites these days, I remind myself of that.
+ - The worst thing is when a guy just looks awkward. It’s not attractive.
+ - I’m not going to have a baby until I’m around 30-something.
+ - When I record music I like to be in one place and kind of have a base to keep going back to.
+ - You can tell an honest artist from one who’s just given all their songs.
+ - My mum and my dad are the sweetest couple.
+ - When it comes down to the music, it’s just you and the microphone. It’s not you and the record execs.
+ - All I can do is take influences from where I was raised.
+
+37 quotes

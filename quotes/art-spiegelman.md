@@ -1,0 +1,28 @@
+ - To die, it’s easy. But you have to struggle for life.
+ - Comics are a gateway drug to literacy.
+ - No matter what I accomplish, it doesn’t seem like much compared to surviving Auschwitz.
+ - The technology that threatens to kill off books as we know them – the ‘physical book,’ a new phrase in our language – is also making the physical book capable of being more beautiful than books have been since the middle ages.
+ - I live in my own bubble. I was looking for an audience that wouldn’t necessarily be looking for escapism when they came to my comics.
+ - Well, I am not 100 percent sure of the definition of polemic, but it wasn’t meant to convince anybody of anything.
+ - One way of understanding a graphic novel is that it’s an ambitious comic and one way or another my comics have had ambitions. I have no problem with escapism. When I get my depressions all I want to do is escape reality.
+ - I know this is insane, but i somehow wish i had been in auschwitz with my parents so i could really know what they lived through! I guess it’s some kind of guilt about having had an easier life than they did.
+ - I always had more allergies toward the superhero comics than the others. I thought those were aimed more toward the people who would beat me up.
+ - A manifesto, a diary, a crumpled suicide note, and a still relevant love letter.
+ - Comics can be pernicious, fascist propaganda or anti-authoritarian. The ones that shaped me were particularly anti-authoritarian.
+ - I wanted to create comics as soon as a I learned humans were behind them, that they were not natural phenomena like trees and boulders.
+ - With any work worth its salt, you have to trust the author enough to take its measure. And if you apply too many preconceptions, you are not taking its measure.
+ - Style is a capitalist invention. It’s a trademark. It’s very useful in the world of commerce to have a good trademark, but it wasn’t my first concern. I got restless.
+ - What’s called art now probably has some legitimate things happening in it, but I’ve become more and more distrustful of a lot of it because it seems like an extension of the fashion trade and the stock market.
+ - I became a degenerate artist. My parents were shaped by their own experiences, and artists weren’t so useful in the death camps.
+ - In 1908, you could easily earn $20 to $200 as a cartoonist. What’s amazing is that it’s still true!
+ - There’s a therapeutic aspect to all making, but the nature of working is to compress, condense, and shape stuff, not to just expunge it. It’s not just an exorcism.
+ - I became comfortable with what I knew would be the process of trying to pick up the pieces of brain that were in the rubble and tried to make some mosaic out of the pieces and that that would be the trajectory.
+ - I would say that, in the future, the book will be reserved for things that function best as a book. So, if I need a textbook that’s going to be out of date because of new technological inventions, you’re better off having it where you can download the supplements or the update.
+ - Instead of yelling at a TV set, I get to talk.
+ - I’m supposed to be making comics, so I had to do it the best way I knew how, which is what those guys at the beginning of the Twentieth Century were doing.
+ - I think a lot of America turned to art and culture after Sept. 11. I know the sales of bibles went shooting up, but so did the sales of poetry. I think in a crisis one looks to one’s culture, partially to give validation to why one would want that culture to survive.
+ - Comics seem to be cooking these days. It’s like being a rock star.
+ - Some of the reviewers wanted less. Some wanted lots more. Some wanted lots more of something else. But these strips are exactly what they are.
+ - Sometimes I don’t feel like a functioning adult.
+
+26 quotes

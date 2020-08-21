@@ -1,0 +1,43 @@
+ - We like to think that our parents made a decision to bring us into the world.
+ - Often as a child you see someone with a learning disability or Down’s Syndrome and my mum and dad were always very quick to explain exactly what was going on and to be in their own way inclusive and welcoming.
+ - When you seek revenge, be sure to dig two graves.
+ - I love my accent, I thought it was useful in Gone In 60 Seconds because the standard villain is upper class or Cockney. My Northern accent would be an odd clash opposite Nic Cage.
+ - I think the themes of belonging and parentage and love are obviously universal.
+ - We all need a firm sense of identity.
+ - Lots of middle class people are running around pretending to be Cockney.
+ - The person who gives you your first job is so important in any industry.
+ - No matter how big a name you are, how many big series you’ve been in or how good looking you are, in the end, all actors are secondary to the writer.
+ - I don’t see a lot of films. I’m quite choosy, but there’s certain films that stick out.
+ - Thank you to everybody who voted for me, and to the British public for their encouragement over the last 17 years.
+ - I went being unemployed for three years to being the lead in a British feature in the days when we only made two a year, 1990. It was ridiculous really.
+ - Jacobean plays, before Shakespeare, were particularly visceral.
+ - My parents always knew I was hopeless at everything else, I was fortunate in that I was backed all the way. I came to it late and only because I thought there’d be loads of women and drinking!
+ - On The Others, very atmospheric and probably mysterious is how I would say it felt to be on the set. It felt just a little uneasy, the atmosphere that we were trying to capture.
+ - I think film and television are really a director’s medium, whereas theatre is the actor’s medium.
+ - What we have is the here and now, and what we have is each other, and let’s find a way to deal truthfully with each other.
+ - I think theatre is by far the most rewarding experience for an actor. You get 4 weeks to rehearse your character and then at 7:30 pm you start acting and nobody stops you, acting with your entire soul.
+ - Any horror element is as much psychological as special effects.
+ - I got a tiny part in a play, auditioned for another one and got that as well. Not only that, the first finished on the Saturday and the other started on the Monday which is like an actor’s dream!
+ - I’ve never been up with the times, always been slightly out of step.
+ - I had to help to coax the performances and I really enjoyed that extra responsibility.
+ - I heard the various terms of abuse at school and probably indulged them in the way you do as a kid.
+ - Television, although It’s in steep decline, still occasionally gives voices to people who don’t have voices.
+ - It can be very difficult to trace your birth parents.
+ - I used my instincts. It’s very easy to imagine how you’d feel, actually. I just had to tell the narrative.
+ - Twelve years on sets watching directors, I’ve taken a bit from everybody and rejected a lot.
+ - I know exactly where I’ve come from, I know exactly who my mum and dad are.
+ - Theatre is expensive to go to. I certainly felt when I was growing up that theatre wasn’t for us. Theatre still has that stigma to it. A lot of people feel intimidated and underrepresented in theatre.
+ - I care more about telly because it made me an actor and there’s a much more immediate response to TV. You can address the political or cultural fabric of your country.
+ - I wasn’t always such a great fan of Shakespeare, mind you. I can guess we all at one time had it rammed down our necks at school, which tends to take the edge off it.
+ - I love Dead Ringers. A democratic set, the work was taken seriously.
+ - I don’t like to watch playback. But being on the set, watching the way the camera is being moved and the way the light is being used, you do get an idea of it.
+ - I want to direct but I think I’d be bloody awful and I don’t want to produce but I think I’d be a very good producer because if I believed in something I’d be able to protect it.
+ - What goes down on film is different to what you see with the naked eye.
+ - I only ever worked on interiors, and an interior is an interior. I don’t know what they did about exteriors.
+ - The money is better in films and television. But in terms of acting, theatre is more rewarding.
+ - Many times I’ve sat with a camera and another actor and seen all their fears and insecurities and struggles. You want to support them and help them as much as you can.
+ - Rather than disliking theatre, I’ve expressed a preference for television because it tends to deal in its small way much more with issues and is able to reach a broader church of people than theatre.
+ - I had bags of energy as a kid.
+ - The film is about Joe discovering who his mother and father are and his relationship with them, and the identity crisis he goes through once he finds out who his parents are.
+
+41 quotes

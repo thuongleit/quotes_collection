@@ -1,0 +1,26 @@
+ - Most of my life wasn’t about knowledge from books, but experiential knowledge.
+ - Who’s gonna make you happy when you’re your own worst enemy?
+ - I don’t think you could pull one Bob Marley song that didn’t have quotes from the Torah or the Old Testament.
+ - I can show you where to dig, and what to dig for, but the digging you must do for yourself.
+ - I can’t choose the most meaningful song that I’ve written. That would be like choosing one child over another. But first borns are always special.
+ - My life is not separate from my music, you know? It’s not like a day job that I leave and go home. It’s who I am as a person and how I am trying to grow, come closer to God, be a better person.
+ - Everyone’s right or wrong, Everyone’s got an opinion, put them in a song and let me keep on living.
+ - I think there is a tendency for people to get rigid and caught up in their beliefs of what is right and wrong, and they lose sight of humanity. Being human has to come first before right or wrong.
+ - Reggae music isn’t Jewish, but a lot of the ideas are.
+ - I am reclaiming myself. Trusting my goodness and my divine mission.
+ - When there’s light shining on a tree, that tree takes on different meaning. If there’s no light at all it just looks dead. If you look at light as godly meaning, the world comes alive in a certain way.
+ - Is it possible Hanukkah doesn’t inspire folksy songs? Plot lines may be a part. The Christmas story has a lot of material to work with. There’s Jesus and his birth, the wise men, their gifts and tons of frankincense.
+ - We’re so quick to go to make things black and white, and to put things in their box. But everything is this mixture – and that’s what this world is – is this blend of different things.
+ - My music is not really about one ideology. It’s not about one truth.
+ - The religious lifestyle keeps you focused. It’s helpful when trying to manoeuvre through the music scene.
+ - Vocal rest is awesome. It is like any kind of fast. Firstly, it is a purification of speech. It made me realize how not careful I am with the things I say. It also makes you find new ways of communication and new methods to connect with people.
+ - Before I was 14, I wanted to be a singer, an actor, or a hockey player. By 15, I knew I was going to be a singer.
+ - The world that I come from is the world of raves, hip-hop clubs, and rock and roll.
+ - If I’ve grown as an artist, it will be represented in the art. There’s no need to explain it.
+ - I started performing at home as a kid putting on shows and lip-syncing Michael Jackson for the grown-ups. Then, in musicals and plays in school. At 17, I was performing in coffee shops and in parking lots at Phish shows. At 18, I had a band that played local shows in the Northwest.
+ - Growing up, the way that I looked was very important to me. I was always trying to impress people, and when I grew my beard there was a certain freedom, a separation, getting past this the way I looked, identify myself as a spiritual seeker.
+ - I was into acting as a kid. There was a time when I was 18 that I played the boy in a production of ‘Equus’ in Oregon, and I thought that was going to be my life.
+ - Music has always been such an amazing tool for me to access self and emotion.
+ - Some artists are bound to an image: Bob Marley has dreadlocks, Matisyahu has a beard. But that’s a reminder that the whole thing is not about style. It’s about music.
+
+24 quotes

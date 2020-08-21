@@ -1,0 +1,32 @@
+ - When people don’t want the best for you, they are not the best for you.
+ - The dream for any parent is you want to raise happy, healthy, responsible, compassionate, kind kids. We all have a responsibility to do that.
+ - I majored in psychology, and I still love listening to people’s problems.
+ - The joy of reading can take you so many different places. In addition to intelligence and stretching your mind, I just think reading is so crucial in terms of being a well-rounded person.
+ - My first memory of the Rolling Stones is listening to ‘Satisfaction’ at a sixth-grade slumber party at a friend’s house in Ankara, Turkey, where my family was living at the time. In the middle of our sleepover, my friend’s dad stopped the record when he heard the words ‘girlie action!’
+ - I’ve been watching Mad Men since day one.
+ - I have to admit, if Oprah were a man, I would marry her.
+ - How do I love Tim McGraw? Let me count the ways: I love that he’s a country boy with a city sensibility. I love that he refuses to be pegged, and his duet with Nelly proves it. And I really love that he had the brains to marry Faith Hill.
+ - I’m the oldest of three girls. My sisters say I can be bossy.
+ - People respond faster to you on a text than an e-mail. Why is that? Why will they ignore an e-mail, but get back to a text?
+ - I’ll always remember when I bumped into Good Morning America’s Robin Roberts on a flight to my mother’s funeral in 1994, and how kind she was during that difficult time.
+ - I would love to have dinner with Jay-Z and Beyonce. I think we would have a lot to chat about. I like them both so much, and I love them as a couple. I like that they are both at the top of their game – and that they have a mutual respect and admiration for each other.
+ - I have an impressionable palate. A well-worded menu or beautifully presented dish excites me. I get a great deal of pleasure just thinking about food.
+ - The first time I met Beyonce she was about 18 years old, sitting in a makeup chair eating fried chicken, and I knew it was only a matter of time before everyone would know her name.
+ - I wish I wasn’t so technically challenged, because it puts you at a distinct disadvantage. I wish I could figure out a way to get more up to speed.
+ - Any film featuring Bradley Cooper’s gorgeous blue eyes is automatically on my must-see list and they did not disappoint in ‘The Words,’ which is so intense and confusing that I was pretty lost by the end!
+ - When I want to support a film starring actors I like, I purchase several tickets at the box office – even if I can’t stay for the movie.
+ - I’ll do almost anything for cake – even trample little children!
+ - A good restaurant just makes me giddy. I can go all day with anticipation just knowing where I’m going to eat. Sometimes it’s well planned, sometimes it’s spontaneous. Either way works.
+ - We’re all spending way too much of our time and energy trying to fight the stuff we can’t change.
+ - I changed my name from Gail to Gayle in seventh grade because I liked to make a loopy ’y.
+ - People think that I don’t work, and I fly around in Oprah’s private plane doing whatever I want.
+ - I know exercise is important, but I hate it!
+ - I love a man who loves his mama, which is one of the many reasons I’m crazy about Justin Timberlake.
+ - Boots in January are always a good look, and some of the cutest ones I’ve seen lately were designed by Ivanka Trump, who knows a thing or two about style.
+ - I grew up in an all-white community.
+ - When I found out that I was going to be CBS every morning, my first phone call was to Jenny Craig. Ten days later, I lost nine pounds. Now I even take the plan’s popcorn with me to the movies.
+ - I only tweet if I discover something that’s fantastic, or if I heard something really great.
+ - And, I believe that one of the most loving things you can do is prepare a meal for someone you love. None of which I know how to do!
+ - I’m basically a really happy person. My life is nuts, but it feels complete.
+
+30 quotes

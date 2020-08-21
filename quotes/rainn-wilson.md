@@ -1,0 +1,64 @@
+ - I think God has a tremendous sense of humor.
+ - Not everything is a lesson. Sometimes you just fail.
+ - I’m about as big a star as the Baha’i faith has got, which is pretty pathetic.
+ - The making of art is no different than prayer.
+ - I know what I look like – a weird, sad clown puppet. I’m fine with that.
+ - Life is suffering. Life is not resistance to suffering. The point of life is to suffer. This is why we’re here: We’re here to suffer. I believe in a higher power that compassionately allows suffering for us as a race, to grow and mature.
+ - I think creative blocks come from people’s life journeys. If you don’t know who you are or what you’re about or what you believe in it’s really pretty impossible to be creative.
+ - I like being a Baha’i who has an out-there sense of humor. God gives us talents and faculties, and making people laugh is one of mine.
+ - Absolutely father knows best, always do what your fathers say, and if you can’t find one then just ask me, I am a father and I know best.
+ - Everyone is an artist. Everyone is creative in their own way and that that creativity is a great thing. It’s a human thing and it needs to be nurtured and it can help us go down life’s path and help us to become deeper, richer, more satisfied human beings.
+ - A guy may wear a suit and have a high-paying job and appear very mature, but essentially, he’s a 14-year-old boy.
+ - This is one doodle that can’t be undid homeskillet.
+ - Music is universal too. Even deaf people like to dance, love rhythm, and can kind of pick it up.
+ - I’m a much better listener when I’m acting than I am as a person in real life because you learn as an actor that listening is so important. You have to really key into what the other person you’re acting with is saying and how they’re saying it and react in the moment to what is going on.
+ - The Baha’i celebrity, or the Belebrity, is a character actor with a big head playing an annoying creep on a TV show.
+ - And I do believe that the way to change a society, to uplift people – not just their spirit, but to uplift their society and economic base – is through education.
+ - Scotland is the Canada of England!
+ - I love being an actor, and I don’t want to be a spokesman for anything, I don’t want to do anything crazy or fancy like that. I just love playing characters and getting paid for it, and that’s what I want to do till the day I die.
+ - Absolutely. I am a father, and I know best. If there’s any question, just ask me.
+ - There was one point in high school actually when I was on the chess team, marching band, model United Nations and debate club all at the same time. And I would spend time with the computer club after school. And I had just quit pottery club, which I was in junior high, but I let that go.
+ - I play Dwight. That is just much me being of service and worshiping as if I’m on my knees in some temple somewhere or bowing my head in prayer to God in some way. It’s really all just the same thing.
+ - When I was a little kid I loved the Marx brothers and discovered Monty Python when I was 10 or 11-years-old. I used to take a tape recorder and hold it up in front of the TV to record entire episodes to play over and over again, so that I could memorise it.
+ - Some of the most morally conscious, kindest, most compassionate people are in the entertainment industry, people who want to affect the world and make it a better place through telling human, heartfelt stories.
+ - A lot of actors are just like la la la – they’re never really connected and then they’re in the scene and then boom. They’re looking you in the eyes and they’re just really focused.
+ - Dwight is a sad clown. You’ve seen those paintings of sad clown.
+ - I joined an acting class in my junior year in high school. I’d always wanted to try it.
+ - I think that charity is a tricky thing, because a lot of times, people equate charity with handouts. I don’t believe in handouts.
+ - We’ve seen that there are a lot of people out there – teenagers in Topeka, housewives in Long Island, millionaire Internet start-up moguls – that all want to connect with each other about what it is to be human.
+ - The great challenge working on this show for me is wearing polyester all day long and having the worst haircut known to man at the top of my head and sitting under fluorescent lights. That is America, people. Polyester, bad haircuts, under fluorescent lights.
+ - I was this weird misfit guy from suburban Seattle, I never really fit in, and then I became a drama geek, among all the other different kinds of geek that I was growing up, and I found I was pretty good at it.
+ - In every decade rock and roll starts to get very serious and navel gazing and kind of self serious and every once and a while it kind of needs a kick in the pants.
+ - What’s interesting is the show allows for the awkward pauses to be captured, which makes it stylistically unique, especially for American audiences.
+ - I don’t want to sound pretentious, but I love art, I like to go to museums, and I like to read books.
+ - I would love to see some comedies about loser women.
+ - And I want to find a way to be of service to humanity. I think that’s crucial. So want to be an artist and a servant, a humanitarian, and I want to play goofy weirdoes.
+ - There’s like ten minutes when it’s like, ‘Okay, wait, who is this guy again?’ And then, you know, I just put on the calculator watch and the glasses, and just be all, you know, inappropriate. And then it just works out fine.
+ - My mom was an actress in the local Seattle theater doing experimental plays.
+ - Creativity is absolutely for everyone. I firmly believe this. I think if you’re the driest accountant with the plastic pocket pen protector it’s in how you interact with the world. There is artistry in everything that we do and there is expression in everything that we do.
+ - My dad wanted to name me after Rainier Maria Rilke, the poet.
+ - I want to keel over on stage playing King Lear at age 99 or something like that.
+ - The great thing about ‘The Office’ and it being single-camera and the documentary style is that it’s mostly a comedy, but 10 percent of it is, we get to show the existential angst that exists in the American workplace.
+ - I think we’re the only jokeless show on television. I mean really, we have no setups and no punch lines. It’s not a joke show. There are funny lines and funny moments but again the comedy is born of the human experience and awkward pauses are a great part of what it is to be human.
+ - Some of the biggest movie stars in the world are essentially characters.
+ - I think meditation helps greatly with creativity. If it’s a pure expression of yourself no matter what it is or what medium, it’s going to shine. It’s going to resonate.
+ - I came to realize I did believe in God. I couldn’t conceive of a universe without someone overseeing it in a compassionate way.
+ - I’m lucky to have a wife and a child that keep me grounded.
+ - I grew up watching comedy. It was among all the geeky things that I did.
+ - The camera adds ten pounds and ten thousand dollars.
+ - I found it very easy to transform into creeps and weirdos and losers and goof-balls, and I’m happy to play eccentric kinds of characters, and I have a great affinity for the outsider, but I definitely am about expanding my range as well.
+ - My body has been making women laugh for the last 20 years and I’m happy to continue to oblige.
+ - I am all for controlling guns.
+ - Our society is all about focusing on the externals, “These people like me, I’m successful because of these people, they view me as being good” and we need to take that vision and instead of expanding it outwards we need to look inside ourselves.
+ - You meet people in Hollywood that are famous, and you’re not sure what they got famous for.
+ - I was a total dork in high school.
+ - I have an eight-year-old child, and I literally can’t wrap my mind around the kind of grief that must be felt when you lose a child.
+ - I think Dwight loves being number two. I don’t think he has any desire to be number one. He wants to be number two no matter where he goes. It’s like Avis. ‘We try harder.’ That’s Dwight.
+ - I started in theatre, and for me, it was all about transformation. You transform into the character that you’re playing.
+ - I’ve actually rented Bjork’s swan dress. I know that’s kind of recycling, but I saw An Inconvenient Truth.
+ - I think that actors are terrible communicators as people by and large. I think our tendency is to kind of be self-centered and tune people out and just kind of get really me-focused, so I think communication for actors is a big challenge actually.
+ - I think definitely people know me from playing creeps and weirdos, and I’m definitely looking to expand my range.
+ - Well, Dwight was born to be No. 2 and I don’t think he would know what to do as a leader. But he loves following. He would have made a great fascist.
+ - I’ve always been terrible on regular sitcoms with lots of jokes. I don’t know how to tell jokes.
+
+62 quotes

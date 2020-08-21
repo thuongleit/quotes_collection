@@ -1,0 +1,26 @@
+ - I feel like I’m on cloud nine right now.
+ - I am so blessed. How blessed I am to have the life that I have.
+ - It’s Niagara Falls. It’s one of the most beautiful natural wonders in the world. Who wouldn’t want to walk across it?
+ - What an incredibly beautiful city at night Chicago is. Absolutely beautiful.
+ - I’ve trained all my life not to be distracted by distractions.
+ - My great-grandfather, Karl Wallenda, was my biggest hero in life, my biggest inspiration behind everything I do.
+ - I’d love to come to Australia. I’d love to walk about the Sydney Opera House.
+ - I have never in my life walked with a harness. The weight of the tether, makes it feel like I’m dragging an anchor behind me.
+ - Every walk that I do, there’s obstacles in the way. There’s always somebody or something that comes across negative, but I live for that sort of thing.
+ - The mist was so challenging and the winds hit me, definitely more than I expected. It was definitely those winds, you can’t re-enact them, you can’t recreate them. Then my forearms started to tense up and you feel like running.
+ - I respect what I do deeply. I don’t get nervous to the point of fear.
+ - One thing that was passed on from generation to generation in my family, over seven generations in 200 years, was never give up. That’s the way we live.
+ - I’m often very relaxed when I’m on the wire.
+ - One of the things I enjoy is the challenge of Mother Nature.
+ - I do everything I do to pay tribute to my great-grandfather.
+ - I’m one of those people who always tries to overachieve. I want to do more. I want to do bigger things.
+ - There’s weight on me to raise the bar, to carry on that legacy. But that’s what drives me. Making sure that no one ever forgets who the Wallendas are.
+ - What I’m doing is a natural wonder. If not, there’d be 150 people behind me on the wire.
+ - If you think you can fall, you’re more likely to.
+ - A lot of praying helped me a lot.
+ - I have permits to be the first person in the world to walk across the Grand Canyon so that’s a process we’ll start working on. I’d say within three to five years I’ll accomplish that as well.
+ - If you take suede leather and put it on a piece of steel, and put moisture on it, it actually sticks.
+ - I’m always looking for the next major hurdle and doing something that the world has never seen.
+ - The impossible is not quite impossible if you put your mind to it.
+
+24 quotes

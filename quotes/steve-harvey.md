@@ -1,0 +1,99 @@
+ - If you want to be successful, you have to jump, there’s no way around it. When you jump, I can assure you that your parachute will not open right away. But if you do not jump, your parachute will never open. If you’re safe, you’ll never soar!
+ - A woman can’t change a man because she loves him. A man changes himself because he loves her.
+ - You are never too old to reinvent yourself.
+ - Don’t hate the player; change the game.
+ - Your setback is just a setup for your comeback.
+ - If you pray about it don’t worry about it. If you’re going to worry about it don’t pray about it.
+ - Your dream has to be bigger than your fear.
+ - You can’t tell big dreams to small minded people.
+ - Your career is what you’re paid for. Your calling is what you’re made for.
+ - Your reality is yours. Stop wasting time looking at someone else’s reality while doing nothing about yours.
+ - The most successful people in this world recognize that taking chances to get what they want is much more productive than sitting around being too scared to take a shot.
+ - Catch fire today! Make today the day you stop complaining and do something!
+ - Failure means you’ve now learned another valuable lesson that pushes you one step closer to success.
+ - There’s no such thing as luck. These are blessings. God endows them upon you. He makes you a blessing to become a blessing.
+ - Act like a lady think like a man.
+ - Do what you say you’re going to do! People can do nothing but respect that.
+ - Ask any guy if sex is important in a relationship and the one who says no is lying. I just haven’t met that guy yet. When you meet him, let’s get him in to the Smithsonian – he’s that special and rare.
+ - Procrastinatio n will delay your change!!! Today is a very good day to change; don’t let YOU stop yourself from growing!
+ - Don’t be afraid to lose him, because if a man truly loves you, he’s not going anywhere.
+ - But even in my darkest days I had faith it would turn around.
+ - It’s a woman’s right to know a man’s intentions upfront. Because, once you get emotionally attached to a man and you sleep with him, it’s too late.
+ - Men respect standards- get some!
+ - People see me laughing and telling jokes, but they had no idea after the show was over, I had no joy in my life, in my heart.
+ - Everybody by your side ain’t on your side.
+ - The only way woman can truly be completely satisfied is to get herself four different men – an old one, an ugly one, a Mandingo, and a gay guy.
+ - What you want most out of life is the thing you have to give the most of.
+ - Men are, by nature, hunters, and women have been put in the position of being the prey.
+ - God lets you be successful because he trusts you that you will do the right thing with it. Now, does he get disappointed often? All the time, because people get there and they forget how they got it.
+ - My father instilled in me to take care of my family. Show up even when you don’t want to show up.
+ - I’m still very much a Christian and have a great relationship with God. I love Him, but one of my flaws is that I cuss.
+ - But remember what drives a man; real men do what they have to do to make sure their people are taken care of, clothed, housed, and reasonably sastisfied, and if they’re doing anything less than that, they’re not men.
+ - The first time I saw my wife, Marjorie, I was doing stand-up in Memphis, and she was sitting in the front row. Afterward, I walked up and said, ‘Ma’am, I’m going to marry you one day.’ And 15 years later, I did.
+ - I was homeless. I lived in a car for a couple of years. That was the worst. But nothing was worse than when I was 40 and my mom passed away. My mother was the best person I ever knew. Those were the two lowest points.
+ - People don’t like to hear the truth out here cause the truth makes them think.
+ - A person has to remember that the road to success is always under construction. You have to get that through your head. That it is not easy becoming successful.
+ - You don’t just sit in the car and let some guy drive you through life, wasting your time.
+ - Failure is a great teacher, and I think when you make mistakes and you recover from them and you treat them as valuable learning experiences, then you’ve got something to share.
+ - Catch Fire, Do Something, Get Excited by Finding Your Purpose In Life.
+ - Boys Shack, MEN build homes.
+ - Love is never going to go out of style, a man is always going to want to have the love of a woman. She just needs a game plan to work out how to get his love.
+ - My mother was a Sunday school teacher. So I am a byproduct of prayer. My mom just kept on praying for her son.
+ - You have nothing if you’re texting a guy in a relationship. We can text six women a minute. We can text it and push ‘reply all.’ I mean, since we’re lying, we might as well lie to everybody.
+ - How can smart women be so stupid about men sometimes? Lack of knowledge. It’s what men have kept secret for so long.
+ - Sometimes we don’t appreciate Prayer until we have to go through something!
+ - All I knew growing up was that my father was married to and loved my momma, period. He worked hard, made some money, and put it on the dresser. She spent it on the family, and he went out and earned some more. He taught me the most about love.
+ - There has been nothing more impactful on my life and meaningful to me than the introduction of Christ. That, hands down, blows away every joke I’ve ever written.
+ - You can be happy, or you can be right. If you want to be part of a couple and win every argument, you’re in trouble.
+ - We all think that this relationship thing is a game out here. All I’m saying to women is, ‘Okay. If it’s a game, here are the rules that we play by.’
+ - God has given me a life far beyond anything I ever dreamed about. God is, man, God is something else man.
+ - I don’t rehearse on either of my shows, ‘Family Feud’ or my talk show. I never rehearse with the guests. I don’t want to have any preconceived thoughts, notions, because that kills my creativity as a host and as a stand up.
+ - I don’t want to be 60 years old standing on stage telling some jokes. I want my life to mean something.
+ - Men don’t come up to you to just talk. We come up to you with a plan. We’re looking across the room at you, and we don’t care about your hopes and dreams. We don’t care about what your future holds. We saw something we wanted.
+ - If you don’t have a base – you can’t not have a spiritual base and survive. That’s probably what has kept me out of the tabloids. Then I go home, I’ve got a family, and I keep my wife in front of my head.
+ - I tell my boys not to play rough with their younger sister. I try to teach them what I know already: You’re never going to win an argument with a girl, so just let her have what she wants!
+ - The problem is, women have stopped setting the bar high.
+ - God has positioned me just this way to be just like I am, to say what I say how I say it.
+ - Sometimes out of your biggest misery, comes your greatest gain.
+ - I tell jokes for a check; I’m on TV for a check.
+ - Anyone can sleep with a guy in 24-48 hours, but you’re sending the wrong signal to the guy if you do that.
+ - I think that we, as the African-American men in hip-hop, we have a greater responsibly because we have the ears of so many millions of our young people. And they listenin’.
+ - I have seen some crazy people do some crazy things on my variety show. I have to stop and ask them a lot of the time, just how they figured out that they could do the things that they do, some of it is just plain freaky.
+ - The Lord saved my soul.
+ - Comedians walk out, get a feel for the crowd. If it’s not going good, we change directions. If we got to drag your momma into this thing, we will. Whatever we got to do.
+ - When people think you are speaking against them as a group, they try to shut it down out here.
+ - I’m a comedian first. I’ve learned how to act. I just draw on life experiences and that’s how I’ve learned. I didn’t take classes or anything. I don’t need no classroom.
+ - Hip-hop is a beautiful thing. I think that the music genre itself has created more millionaires than any other music genre before it, especially in our community.
+ - I’m just a living witness that you can be an imperfect soldier and still be in the army fighting for God Almighty. Don’t you think you got to be perfect ’cause I ain’t.
+ - The truth is I’ve always been a Christian. What’s amazing, is that the flaws that come with Christianity are really weird, because mine have a microphone and a camera attached to them. Most people don’t have to live under that microscope.
+ - There’s a lot more to me than just funny.
+ - There many guys out there who are actually fishing for a woman whom they are planning on keeping. But there are guys out there who are just sports fishing – catching them and then throwing them back into the ocean.
+ - Providing for the ones he loves and care about, whether it’s monetarily or with sweat equity, is part of a man’s DNA, and if he loves and cares for you, this man will provide for you all these things with no limits.
+ - I can’t cuss and tell jokes the rest of my life. I gotta say something meaningful. I gotta give something back to a Creator who has given so much to me.
+ - The cookie is the critical part. It’s a word I created for sex and you’ve got to give a man all three things. If you miss one out, he is going to find it somewhere else.
+ - If I were an animal, I’d probably be a bald eagle, since I’m already bald and I love to fish. But I’d probably be a shaky-ass eagle because I’m afraid of flying.
+ - You’ve got to quit lowering your standards. Set your requirements up front so when a guy hooks you, he has to know this is business.
+ - Too many women have given up the power over the years because men have created the terms.
+ - If you don’t believe in God, then where is your moral barometer?
+ - You can take lessons to become almost anything: flying lessons, piano lessons, skydiving lessons, acting lessons, race car driving lessons, singing lessons. But there’s no class for comedy. You have to be born with it. God has to give you this gift.
+ - I’m not a good mother at all.
+ - Every day, President Obama sends a beautiful message about how we should treat our women based on how he treats his wife. When people went after his wife during the campaign, he took a stand.
+ - Men automatically know from the moment she opens her mouth that if they want her, they’ll have to get in line whith her standards and requirments, or keep it moving because she’s done with the games and isn’t interested in playing.
+ - I don’t have much of an attention span for TV – I nod off during the basketball playoffs – but when I watch ‘Game of Thrones’ on On Demand, I’m glued to the set. It’s mystical and addictive. Tyrion Lannister, that’s my man.
+ - I don’t think it’s cool for people to say, ‘You shouldn’t reference God because I don’t believe that, and I don’t want to hear it.’ Well, there’s a lot of stuff I don’t believe that I still gotta hear.
+ - If he hasn’t lined up the who he is, the what he does, and the how much he makes in the way that he sees fit, he can’t possibly be to you what he wants to be.
+ - The best timed joke or the best timed phrase comes at spontaneous moments and just relies on me as the host to be very quick, and that’s what I do.
+ - TV is a different animal. I belong on that little screen. The big silver screen, not so much, ’cause I’ve seen my face up close when it’s 25-feet tall. I’m okay as long as you keep me in that little box.
+ - You’ve got to be in a bad relationship to really understand what a great one is.
+ - Men and women really do want the same things. We just need each other to bring it out. That’s really the truth of the matter.
+ - I’m not a doctor. I just have a tremendous amount of common sense.
+ - My mother raised me in the church. I was not allowed to stay home on Sunday; there was no option. I sang in the choir all the way up until I went to college.
+ - A guy that’s really serious about you, he’s gotta be talking to you, he’s gotta want to have one-on-one, in-your-face interaction. That’s how we are.
+ - I know how men think when they’re not responding to questions in a clinical study.
+ - I tell people I’m a stand-up comedian two hours a week. The rest of the time, I’m somebody’s husband, I’m somebody’s father. I’m a man. I take great pride in that.
+ - Other than my foundation – mentoring programs – everything I do is for money.
+ - To be No. 1 on the ‘New York Times’ best-seller list, well, that’s alarming. Having been a stand-up comedian, I think it’s surprising to a lot of people that I had the insight I had.
+ - It’s really unimaginable that I could start where I was and get here today.
+ - I never saw myself not being a stand-up. That was my plan.
+
+97 quotes

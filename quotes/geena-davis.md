@@ -1,0 +1,72 @@
+ - If you risk nothing, then you risk everything.
+ - The most common occupation for women in G rated films is royalty – which is a great gig, if you can get it.
+ - The main thing about archery is a battle with yourself. You can ruin it all. Once you have learned the technique, the point is to recreate the perfect technique over and over and over.
+ - I almost never get nervous. I have ice water in my veins.
+ - Are you stupid or did you just take lessons?
+ - I had very, very bad self-esteem – that I was a fake, everybody was going to find out, that I didn’t deserve to have success, just about my looks and really, really bad self esteem.
+ - Something’s like crossed over in me and I can’t go back. I couldn’t live.
+ - Archery is something that I took up later and didn’t know I had a natural aptitude for.
+ - Ridiculously – fortunately – my first job was with Dustin Hoffman. I had a little part in this movie called Tootsie. And he taught me how to watch dailies. That it was very important.
+ - It’s partly because our culture so hyper-sexualizes females that if you don’t measure up to whatever we’re forced to think is the standard, then you feel inadequate.
+ - It’s really important for boys to see that girls take up half of the planet – which we do.
+ - All of Hollywood is run on one assumption: That women will watch stories about men, but men won’t watch stories about women. It is a horrible indictment of our society of we assume that one half of our population is just not interested in the other half.
+ - This dapper little mouse that wore such cute clothes and said such interesting things, yeah. I thought it was a great idea to have a mouse like that in your family, so now I get to see what it was like.
+ - I used to be very unathletic. I was always so gangly and self-conscious about my height. I had convinced myself I was uncoordinated. And as a result, I didn’t want to try stuff.
+ - The ratio of male to female characters in movies has been exactly the same since 1946. So if you’ve ever had people say, you know, “It’s better now, it’s all changed, it’s all different,” it’s not, it hasn’t. Not yet.
+ - My thing in high school was being the tallest kid in class. Always. I was always the tallest kid in class.
+ - I think I always had joie de vivre. But I had pretty bad self-esteem growing up and much of my adult life.
+ - Somebody warned me early on to be very careful about brushing up against the chocolate...
+ - It’s a horrible and wonderful battle with yourself, to stay calm, stay in the moment. My coach said, “Stay here, not at the target. Don’t be down there.” It’s why they call it the Zen art.
+ - I was tall from minute one. Always the tallest kid by a large margin. And my fantasy was to take up less space in the world.
+ - Archers are pretty focused.
+ - I remember very distinctly being so tall I didn’t fit sleeves, so I ended up modeling lingerie and bathing suits, sleeveless stuff, basically. I didn’t have a good body, but I believed I knew how to stand or pose to mask it.
+ - The only movies I saw till I was 17 were made by Disney. My parents had this thing. Disney was like, you know, “Ford is a good car. Disney makes good movies that are good for kids and safe.”
+ - I love theater. Just, it never spoke to me.
+ - We are in effect enculturating kids from the very beginning to see women and girls as not taking up half of the space.
+ - My theory of everything is that we are training kids to have gender bias against girls, therefore when you are an adult, you don’t see it. We think it’s normal.
+ - There were so many women who had worked throughout the war in every possible job. They were told, “Now leave, so the men can come in” and there was this whole feminizing of women: You have to be very, very retiring and submissive and whatever.
+ - We have it in our heads that women only need to take up a certain amount of space and then we’ve done right by them. It’s the same in every profession. We get a handful of women professors, a few female board members – that looks normal.
+ - The second I finish shooting something, I know I could have done it better if we started right then.
+ - I have a Web site that parents and girls can use to learn about Title IX and take action if they find their school is not in compliance. Thirty years after Title IX passed, 80 percent of schools are not in compliance.
+ - I had a deliberate plan to get into movies by becoming a model, so I went to New York and got a job pretending to be a mannequin in store windows.
+ - I got cast playing the best baseball player anybody’s ever seen. I don’t know how to play any sport, including baseball, but I trained really hard. They had these great coaches, and they started saying, “Wow, you have some like really untapped athletic ability.”
+ - I’m not somebody who takes stuff home with them, that if I shoot a scene and I’m personally impacted for days or something. I mean it certainly is affecting and everything, but it doesn’t penetrate to some deeper layer. I’m in it when I’m in it.
+ - I haven’t ever gone to any Mensa meetings.
+ - I do have a very chill – I can watch all my movies. A lot of people don’t like to watch their work. I watch everything. All the time.
+ - Women are in many ways second-class citizens in the United States in 2016, because of the way that we’re portrayed in popular culture.
+ - I just love all the details about movies, and it’s fun to be involved in everything. I just love it. It’s just a little added fun thing to be consulted about stuff.
+ - I watch very little television, actually. There’s so many shows I want to watch and then I know I’ll get hooked and I have to binge-watch the entire thing.
+ - I have an elbow that bends the wrong way, and I’d do things like stand in an elevator and the doors would close, and I’d pretend that my arm had got caught in it, and then I’d scream, ‘Ow, ow, put it back!’
+ - The more hours of television a girl watches, the fewer options she thinks she has in life.
+ - On film, you can’t do it over again. And you do have to stop shooting at a certain point.
+ - I think if you’re doing a play, you’re rehearsing enough that you get to a point where it’s freeing again. But in a movie, if you rehearse too much, now you’ve just shown everybody what you’re going to do. And any element of surprise or impulsiveness is taken away.
+ - I played this character twice in live action, and now I’ve become an animated character. It was actually fun to see myself drawn – I’ve never been a drawn character before.
+ - I watched a lot of series. I didn’t watch a lot of movies on TV. But I watched Gilligan’s Island and Star Trek and all that stuff.
+ - I had a pretty poor self-image for a long time. I broke into acting as a model in New York. I was never anything like a “supermodel,” but I made a living at it for a couple years. The thing was, I was convinced that I was tricking everyone into thinking I was attractive.
+ - I just read that 81 percent of Americans are ready to vote for a woman. So it sounds like America is ready.
+ - Obviously, movies don’t almost ever shoot in sequence.
+ - I don’t know how in the twenty-first century we can possibly justify not showing girls things that they can aspire to, and at the same time, how can we possibly be showing boys this narrow vision of what women are and what they can be.
+ - A woman as the leader of the Free World is an impossibility. Muslim countries won’t talk to you.
+ - My sons last summer, they won a trophy from their surfing camp and they came home and went right over to the shelf and put it up next to my Oscar. That’s where we put our trophies.
+ - Once I fix what kids watch, I’ll be moving on to everything else.
+ - They called and said, “I know we’re not supposed to even tell you, but you’ve been offered to play the President.” And I said, “OK. Say yes.” And they were like, “Do you want to read it maybe?” And I was like, “No, I just want to be the president.”
+ - My scripts are always filled with notes. I like to just analyze everything from the point of view of the whole picture, of the movie, my whole picture.
+ - I had told my agents that I never wanted to do an hour-long TV show. I said, “I’m not that stupid.” Because it’s the worst lifestyle in Hollywood.
+ - I once read a quote that I think was Michelle Pfeiffer in an article, who said that she thought people went into acting because maybe if you could convince millions of people to like you, you will finally like yourself, approve of yourself. I don’t know if that may have been a part of it.
+ - I’m so not a party person. I’m so not social and don’t go to parties.
+ - I was lucky enough to be in some movies where I had powerful characters or I got to be the president on TV for a little while. Very short administration.
+ - I immediately noticed there were far more male characters than female characters in the programs, even now, in the 21st century.
+ - If it isn’t a success, that still wouldn’t be grounds for divorce.
+ - Because I had some roles that resonated with women, I immediately noticed that there were far more male characters than female characters in what we’re showing little kids in the 21st century, which was stunning to me. But I couldn’t find anybody else who noticed.
+ - Instead of trying to manufacture feelings, use the way you already feel. Or at least add that in.
+ - The most important thing is to change what children see from the beginning. To not create a problem we have to fix later.
+ - All I wanted, to be petite and attractive. I was afraid I’d never stop growing.
+ - When it came time for college, I told my parents I was going to major in acting. And they were so removed from anything to do with show business – my dad built our house and my mom grew our food.
+ - I always want a challenge. My whole career has been based on trying to avoid female characters that don’t get to do anything. And it’s really hard to avoid those.
+ - When I was a model, actually, for a little while, my friend that I worked with a lot, she had horrible self-esteem too. We decided that the exact moment when we actually thought we were attractive, we wouldn’t be any more. We would just, like, miss it.
+ - Kids need to see entertainment where females are valued as much as males.
+ - I do like the process of producing. Later in my career, like when I had the TV show, I was a producer and I’ve been on a few things.
+ - I don’t think male characters are as one-dimensional as female characters.
+ - I just passed on some a script that I was sent, because I said, “I haven’t yet played the person staying home, the one that says, ‘Good luck, honey,’ or whatever.” And so that’s what I look for. Therefore, by virtue of that exclusion, I’m always trying to find roles that are challenging.
+
+70 quotes

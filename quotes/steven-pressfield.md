@@ -1,0 +1,167 @@
+ - Start before you’re ready.
+ - The professional does not wait for inspiration; he acts in anticipation of it.
+ - Fear doesn’t go away. The warrior and the artist live by the same code of necessity, which dictates that the battle must be fought anew every day.
+ - Art is a war – between ourselves and the forces of self-sabotage that would stop us from doing our work. The artist is a warrior.
+ - Figure out what scares you the most and do that first.
+ - Start before you’re ready. Good things happen when we start before we’re ready.
+ - The amateur believes he must first overcome his fear; then he can do his work. The professional knows that fear can never be overcome. He knows there is no such thing as a fearless warrior or a dread-free artist.
+ - Are you paralyzed with fear? That’s a good sign. Fear is good. Like self-doubt, fear is an indicator. Fear tells us what we have to do. Remember one rule of thumb: the more scared we are of a work or calling, the more sure we can be that we have to do it.
+ - Put your ass where your heart wants to be.
+ - Most of us have two lives. The life we live, and the unlived life within us. Between the two stands Resistance.
+ - On the field of The Self stand a knight and a dragon. You are the knight. Resistance is the dragon.
+ - Socrates demonstrated long ago, that the truly free individual is free only to the extent of his own self-mastery.
+ - The difference between an amateur and a professional is in their habits. An amateur has amateur habits. A professional has professional habits. We can never free ourselves from habit. But we can replace bad habits with good ones.
+ - It is one thing to study war and another to live the warrior’s life.
+ - There’s a secret that real writers know that wannabe writers don’t, and the secret is this: It’s not the writing part that’s hard. What’s hard is sitting down to write. What keeps us from sitting down is Resistance.
+ - The opposite of fear is love – love of the challenge, love of the work, the pure joyous passion to take a shot at our dream and see if we can pull it off.
+ - Resistance is not a peripheral opponent. Resistance arises from within. It is self-generated and self-perpetuated. resistance is the enemy within.
+ - Resistance will tell you anything to keep you from doing your work.
+ - Resistance is directly proportional to love. If you’re feeling massive Resistance, the good news is, it means there’s tremendous love there too. If you didn’t love the project that is terrifying you, you wouldn’t feel anything. The opposite of love isn’t hate; it’s indifference.
+ - Don’t cheat the world of your contribution. Give it what you’ve got.
+ - A child has no trouble believing the unbelievable, nor does the genius or the madman. It’s only you and I, with our big brains and our tiny hearts, who doubt and overthink and hesitate.
+ - Don’t prepare. Begin. Our enemy is not lack of preparation. The enemy is resistance, our chattering brain producing excuses. Start before you are ready.
+ - When we turn pro we stop running from our fears. We turn around and face them.
+ - The most important thing about art is to work. Nothing else matters except sitting down every day and trying.
+ - Rule of thumb: The more important a call or action is to our soul’s evolution, the Resistance we will feel toward pursuing it.
+ - Don’t wait for someone else to validate you. Validate yourself.
+ - Be too dumb to quit and too stubborn to back off.
+ - The essence of professionalism is the focus upon the work and its demands, while we are doing it, to the exclusion of all else.
+ - It’s better to be in the arena, getting stomped by the bull, than to be up in the stands or out in the parking lot.
+ - I wrote in the War of Art that I could divide my life neatly into two parts: before turning pro and after. After is better.
+ - The more scared we are of a work or calling, the more sure we can be that we have to do it.
+ - Our job in this life is not to shape ourselves into some ideal we imagine we ought to be, but to find out who we already are and become it.
+ - Never forget: This very moment, we can change our lives. There never was a moment, and never will be, when we are without the power to alter our destiny.
+ - Ambition, I have come to believe, is the most primal and sacred and fundament of our being. To feel ambition and to act upon it is to embrace the unique calling of our souls. Not to act upon that ambition is to turn our backs on ourselves and on the reason for our existence.
+ - The artist must be like that Marine. He has to know how to be miserable. He has to love being miserable. He has to take pride in being more miserable than any soldier or swabbie or jet jockey. Because this is war, baby. And war is hell.
+ - Resistance is greatest just before the finish line.
+ - Long-term, we must begin to build our internal strengths. It isn’t just skills like computer technology. It’s the old-fashioned basics of self-reliance, self-motivation, self-reinforcement, self-discipline, self-command.
+ - The artist committing himself to his calling has volunteered for hell, whether he knows it or not. He will be dining for the duration on a diet of isolation, rejection, self-doubt, despair, ridicule, contempt, and humiliation.
+ - Resistance by definition is self-sabotage.
+ - Go tell the Spartans, stranger passing by, that here obedient to their laws we lie.
+ - The professional has learned that success, like happiness, comes as a by-product of work. The professional concentrates on the work and allows rewards to come or not come, whatever they like.
+ - Those who will not govern themselves are condemned to find masters to govern over them.
+ - Thr principle of organization is built into nature. Chaos itself is self-organizing. Out of primordial disorder, stars find their orbit; rivers make their way to the sea.
+ - As resistance works to keep us from becoming who we were born to be, equal and opposite powers are counterpoised against it. These are our allies and angels.
+ - To yield to Resistance deforms our spirit. It stunts us and makes us less than we are and were born to be.
+ - You don’t need to take a course or buy a product. All you have to do is change your mind.
+ - The professional arms himself with patience, not only to give the stars time to align in his career, but to keep himself from flaming out in each individual work.
+ - The professional conducts his business in the real world. Adversity, injustice, bad hops and rotten calls, even good breaks and lucky bounces all comprise the ground over which the campaign must be waged. The field is level, the professional understands, only in heaven.
+ - Slay that dragon once, and he will never have power over you again.
+ - The athlete knows the day will never come when he wakes up pain-free. He has to play hurt.
+ - To feel ambition and to act upon it is to embrace the unique calling of our souls.
+ - What finally convinced me to go ahead was simply that I was so unhappy not going ahead.
+ - Resistance’s goal is not to wound or disable. Resistance aims to kill.
+ - We are all warriors. Each of us struggles every day to define and defend our sense of purpose and integrity, to justify our existence on the planet and to understand, if only within our own hearts, who we are and what we believe in.
+ - We show up. We do our best. Good things happen.
+ - When we conquer our fears, we discover a boundless, bottomless, inexhaustible well of passion.
+ - Do you love your idea? Does it feel right on instinct? Are you willing to bleed for it?
+ - When we sit down to work, we become like a magnetized rod that attracts iron filings. Ideas come. Insights accrete.
+ - The counterfeit innovator is wildly self-confident. The real one is scared to death.
+ - On the artist’s journey we are redefining and reconfiguring ourselves and our lives.
+ - Writers think in metaphors. Editors work in metaphors. A great reader reads in metaphors.
+ - We come into this world with a specific, personal destiny. We have a job to do, a calling to enact, a self to become. We are who we are from the cradle, and we’re stuck with it.
+ - Concerning all acts of initiative there is one elementary truth, the ignorance of which kills countless ideas and splendid plans: that the moment one definitely commits oneself, then providence moves too.
+ - Every sun casts a shadow, and genius’s shadow is Resistance.
+ - We will have to choose between the life we want for our future and the life we have left behind.
+ - The artist cannot look to others to validate his efforts or his calling. If you don’t believe me, ask Van Gogh, who produced masterpiece after masterpiece and never found a buyer in his whole life.
+ - Contempt for failure is our cardinal virtue.
+ - The professional, though he accepts money, does his work out of love. He has to love it. Otherwise he wouldn’t devote his life to it of his own free will.
+ - The part we create from can’t be touched by anything our parents did, or society did. That part is unsullied, uncorrupted; soundproof, waterproof, and bulletproof. In fact, the more troubles we’ve got, the better and richer that part becomes.
+ - No matter how great a writer, artist, or entrepreneur, he is a mortal, he is fallible. He is not proof against Resistance. He will drop the ball; he will crash. That’s why they call it rewriting.
+ - The critic hates most that which he would have done himself if he had had the guts.
+ - The working artist will not tolerate trouble in her life because she knows trouble prevents her from doing her work. The working artist banishes from her world all sources of trouble. She harnesses the urge for trouble and transforms it in her work.
+ - I believe in previous lives and the Muse – and that books and music exist before they are written and that they are propelled into material being by their own imperative to be born, via the offices of those willing servants of discipline, imagination and inspiration whom we call artists.
+ - He who whets his steel, whets his courage.
+ - Stay stupid. Follow your unconventional crazy heart.
+ - The Spartans say that any army may win while it still has legs under it; the real test comes when all strength is fled and the men must produce victory on will alone.
+ - Tomorrow morning the critic will be gone, but the writer will still be there facing the blank page. Nothing matters but that he keep working.
+ - Have you ever wondered why the slang terms for intoxication are so demolition-oriented? Stoned, smashed, hammered. It’s because they’re talking about the Ego. It’s the Ego that gets blasted, waxed, plastered.
+ - Resistance really takes the shape, for me, in voices in my head telling me why I can’t do something or why I should put it off for another day, procrastinate for another day.
+ - If you’re are paralyzed with fear it’s a good sign. It shows you what you have to do.
+ - If you were meant to cure cancer or write a symphony or crack cold fusion and you don’t do it, you not only hurt yourself, even destroy yourself. You hurt your children. You hurt me. You hurt the planet.
+ - The only intercourse possible between the knight and the dragon is battle.
+ - Evolution has programmed us to feel rejection in our guts. This is how the tribe inforced obedience, by wielding the threat of expulsion. Fear of rejection isn’t just psychological; it’s biological. It’s in our cells.
+ - We cannot let external criticism, even if it’s true, fortify our internal foe. That foe is strong enough already.
+ - When we see others beginning to live their authentic selves, it drives us crazy if we have not lived out our own.
+ - The highest treason a crab can commit is to make a leap for the rim of the bucket.
+ - To labor in the arts for any reason other than love is prostitution.
+ - It’s not the writing part that’s hard. What’s hard is sitting down to write.
+ - Resistance cannot be seen, touched, heard, or smelled. But it can be felt.
+ - In other words, any act that rejects immediate gratification in favor of long-term grown, health, or integrity. Or, expressed another way, any act that derives from our high nature instead of our lower. Any of these will elicit Resistance.
+ - Playing the game for money produces the proper professional attitude. It inculcates the lunch-pail state of mind that shows up for work despite rain or snow or dark of night and slugs it out day after day.
+ - Defeating Resistance is like giving birth. It seems absolutely impossible until you remember that women have been pulling it off successfully, with support and without, for fifty million years.
+ - Resistance is implacable, intractable, indefatigable.
+ - Picasso painted with passion, Mozart composed with it. A child plays with it all day long. You may think you’ve lost your passion, or that you can’t identify it, or that you have so much of it, it threatens to overwhelm you. None of these is true.
+ - I’m superstitious. I keep mum while I’m working on something.
+ - A cavalryman’s horse should be smarter than he is. But the horse must never be alowed to know this.
+ - I guess what I want to say to us artists and entrepreneurs is that conventional yardsticks of success don’t apply to all enterprises. Labors of love count.
+ - The artist and the fundamentalist both confront the same issue, the mystery of their existence as individuals.
+ - The last element in drama is high stakes. War, of course, is life and death – survival, not only for the story’s characters, but often for the society itself. That’s why I’m drawn to stories that are built around wars, even if they’re not technically “war stories.”
+ - You are a writer when you tell yourself you are. No one else’s opinion matters. Screw them. You are when you say you are.
+ - Writers think in metaphors. Editors work in metaphors. A great reader reads in metaphors. All are continually asking, “What does this represent? What does it stand for?” They are trying to take everything one level deeper. When they get to that level, they will try to go deeper again.
+ - These are not easy questions. Who am I? Why am I here? They’re not easy because the human being isn’t wired to function as an individual.
+ - Anything that draws attention to ourselves through pain-free or artificial means is a manifestation of Resistance.
+ - Artists are modest. They know they’re not doing the work; they’re just taking dictation.
+ - Always attack. Even in defense, attack. The attacking arm possesses the initiative and thus commands the action. To attack makes men brave; to defend makes them timorous.
+ - Making a judgment, taking a stand and then acting against an injustice or acting to support excellence is the stuff of the everyman hero. If you are an aspiring artist and you wish to avoid “judgments,” you’ll find that you have nothing to say.
+ - Courage is inseparable from love and leads to what may arguably be the noblest of all warrior virtues: selflessness.
+ - When we’re living as amateurs, we’re running away from our calling – meaning our work, our destiny, the obligation to become our truest and highest selves.
+ - It is a commonplace among artists and children at play that they’re not aware of time or solitude while they’re chasing their vision. The hours fly. The sculptress and the tree-climbing tyke both look up blinking when Mom calls, ‘Suppertime!’
+ - Don’t prepare, do. Don’t let Resistance sucker you into wasting months on background, foundation, planning. All that can come later.
+ - The artist and the mother are vehicles, not originators. They don’t create the new life, they only bear it. This is why birth is such a humbling experience. The new mom weeps in awe at the little miracle in her arms. She knows it came out of her but not from her, through her but not of her.
+ - Seeking support from friends and and family is like having people gathered around at your deathbed. It’s nice, but when the ship sails, all they can do is stand on the dock waving goodbye.
+ - Nothing is as empowering as real-world validation, even if it’s for failure.
+ - The song we’re composing already exists in potential. Our work is to find it.
+ - A contemporary or near-future book is much harder because you can’t fake the facts. There are people alive who know much more than you do about the subject. You have to really have your research together – and of course no one can know everything about a topic.
+ - We’re wrong if we think we’re the only ones struggling with Resistance. Everyone who has a body experiences Resistance.
+ - Playing for money, or adopting the attitude of one who plays for money, lowers the fever.
+ - Every artist has to face his own demons and evolve his own method of working.
+ - The most pernicious aspect of procrastination is that it can become a habit. We don’t just put off our lives today; we put them off till our deathbed.
+ - The amateur tweets. The pro works.
+ - In the hierarchy, the artist faces outward. Meeting someone new he asks himself, What can this person do for me? How can this person advance my standing? In the hierarchy, the artist looks up and looks down. The one place he can’t look is that place he must: within.
+ - A work-in-progress generates its own energy field. You, the artist or entrepreneur, are pouring love into the work; you are suffusing it with passion and intention and hope.
+ - Fame Imperishable and glory that will never die – that is what we march for!
+ - The professional respects his craft. He does not consider himself superior to it. He recognizes the contributions of those who have gone before him. He apprentices himself to them.
+ - The hero wanders, the hero suffers, the hero returns. You are that hero.
+ - As all born teachers, he was primarily a student.
+ - Do I really believe that my work is crucial to the planet’s survival? Of course not. But it’s as important to me as catching that mouse is to the hawk circling outside my window. He’s hungry. He needs a kill. So do I.
+ - Many pedestrians have been maimed or killed at the intersection of Resistance and Commerce.
+ - Right now with blogs and the flood of internet access, a multitude of aspiring writers think they’re ready for prime time. They’re not. Be great. Read. Write. Bust your ass. Learn and find your voice. As hard as you think it is, it’s a hundred times harder.
+ - The great thing about writing about the ancient Spartans or Athenians is that so much knowledge is no longer extant that no one, except maybe a Cambridge or Oxford don, can call you out and prove you wrong.
+ - I had always been an enthusiastic reader of stuff about ancient Greece. I would read Herodotus and Thucydides just for fun.
+ - A horse must be a bit mad to be a good cavalry mount, and its rider must be completely so.
+ - We need to ascend beyond our own petty Resistance, our own negative self-judgment and self-sabotage, our own “I’m not worthy” mind-set.
+ - The last thing we want is to remain as we are.
+ - When you’re a working writer, sooner or later friends and acquaintances will get you alone and confide that they, too, have a book in them.
+ - The professional is acutely aware of the intangibles that go into inspiration. Out of respect for them, she lets them work. She grants them their sphere while she concentrates on hers.
+ - One thing I’ve found in any project is almost universally about three quarters of the way through – or maybe a little father, maybe seventh eighths on the way through – any project will explode.
+ - There is an enemy. There is an intelligent, active, malign force working against us. Step one is to recognize this. This recognition alone is enormously powerful. It saved my life, and it will save yours.
+ - We must do our work for its own sake, not for fortune or attention or applause.
+ - The professional tackles the project that will make him stretch. He takes on the assignment that will bear him into uncharted waters, compel him to explore unconscious parts of himself. Is he scared? Hell, yes. He’s petrified.
+ - The instinct that pulls us toward art is the impulse to evolve, to learn, to heighten and elevate our consciousness. The Ego hates this. Because the more awake we become, the less we need the Ego.
+ - The professional does not permit himself to become hidebound within one incarnation, however comfortable or successful. Like a transmigrating soul, he shucks his outworn body and dons a new one. He continues his journey.
+ - When a novelist or screenwriter is looking for a subject, the element he’s seeking is conflict. Conflict makes drama. Conflict produces great characters and memorable scenes. So war is a natural topic.
+ - It can pay off, being a hack. Given the depraved state of American culture, a slick dude can make millions being a hack. But even if you succeed, you lose, because you’ve sold out your Muse, and your Muse is you, the best part of yourself, where your finest and only true work comes from.
+ - Do we have to stare death in the face to make us stand up and confront Resistance?
+ - The professional learns to recognize envy-driven criticism and to take it for what it is: the supreme compliment. The critic hates most that which he would have done himself if he had had the guts.
+ - As artists and professionals, it is our obligation to enact our own internal revolution, a private insurrection inside our own skulls. In this uprising we free ourselves from the tyranny of consumer culture.
+ - Our greatest battle is to become ourselves, in the face of adversity.
+ - Creative work is not a selfish act or a bid for attention on the part of the actor. It’s a gift to the world and every being in it. Don’t cheat us of your contribution. Give us what you’ve got.
+ - I am going to write my symphony; I’m just going to start tomorrow.
+ - A writer writes with his genius; an artist paints with hers; everyone who creates operates from this sacramental center.
+ - No industry is immune and no occupation is safe. All of us need to begin to think in terms of our own inner strengths, our resilience and resourcefulness, our capacity to adapt and to rely upon ourselves and our families.
+ - It’s one thing to lie to ourselves. It’s another thing to believe it.
+ - Resistance is experienced as fear; the degree of fear equates to the strength of Resistance.
+ - If we were born to overthrow the order of ignorance and injustice of the world, it’s our job to realize it and get down to business.
+ - Late at night have you experienced a vision of the person you might become, the work you could accomplish, the realized being you were meant to be? Are you a writer who doesn’t write, a painter who doesn’t paint, an entrepreneur who never starts a venture? Then you know what Resistance is.
+ - But nothing really clicked for me until I gave up completely on hitting the overlap and just did what I loved, even when I thought nobody else in the world would be interested.
+ - What force is yanking at our sleeves? This process of self-revision and self-correction is so common we don’t even notice. But it’s a miracle.
+ - Research can become Resistance. We want to work, not prepare to work.
+ - A great trick that I learned having worked as a screenwriter for many years, the way screenwriters work, is they break the project down into three-act structure: Act 1, Act 2, Act 3. I think that is a great way to break down any project, whether it’s a new business or anything at all.
+ - The best and only thing that one artist can do for another is to serve as an example and an inspiration.
+ - Of any activity you do, ask yourself: If I were the last person on earth, would I still do it?
+ - The awakening an artist must be ruthless, not only with herself but with others.
+ - The professional loves her work. She is invested in it wholeheartedly. But she does not forget that the work is not her.
+ - The sign of the amateur is overglorification of and preoccupation with the mystery. The professional shuts up. She doesn’t talk about it. She does her work.
+
+165 quotes

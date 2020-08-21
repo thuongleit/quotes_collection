@@ -1,0 +1,39 @@
+ - I’m ugly, I’m overweight, but I’m happy.
+ - I always listen to music before I go out to bat. Any track, really, just whatever I feel like at the time.
+ - I’m not really superstitious – I don’t have any lucky charms or a mascot.
+ - I like to think I’m calm. Sometimes I have arrived at the ground in the morning in a bad mood – you’re not always going to be in the best of moods are you? – but by the time you get into the ground and you have a brew then it’s normally fine.
+ - My family is not a distraction. They’re the most important thing in my life.
+ - That means I can drive a flock of sheep through the town centre, drink for free in no less than 64 pubs and get a lift home with the police when I become inebriated. What more could you want?
+ - A lot of the lads have a bat for the nets, a bat for facing the bowling machine and a separate bat for the match. I’ll just crack on with a bat until it breaks – then crack on with another one.
+ - Captaincy is something you get better at through experience. You’ve got to trust your instincts.
+ - I can lose my temper from time to time, but I try not to lose it on the pitch because it can’t help.
+ - I’ve read a lot of Irvine Welsh – Trainspotting, Glue – he’s written some beauties.
+ - If you go out to bat against Australia, they come at you hard.
+ - When it comes to sledging, I think people often get the wrong view.
+ - I’m completely different from Pietersen. He would turn up to the opening of an envelope.
+ - Whatever was written in the media was beyond me. The only thing I could control was getting fit.
+ - I’m not too good with packing. I always have every intention of doing it the week before and then leave it until the last moment – but at least I do it myself, I don’t leave it to the missus.
+ - It’s a big part of my life, listening to music and watching TV.
+ - I’m comfortable in the way I play and comfortable in who I am.
+ - Personally I prefer to work things out by feel, by instinct.
+ - I’m not keen on making predictions.
+ - Sure, you can do without the hard personal comments, but it doesn’t really happen apart from a few isolated incidents.
+ - If I’m playing well I’ll get through a bat in three weeks. I batter them.
+ - There are times when I have felt the pressure, but at the moment I play cricket the only way I can.
+ - It’s usually the funny comments which are the better ones – and they are good for the game.
+ - I’m not really someone who looks forward to the gym. But I realise it’s something that I have to do to perform well on the pitch.
+ - While I’m at second slip I’m not just thinking of what I’m going to have for tea. I’m considering the match as well, wondering how I can help, if there is anything I can offer.
+ - In the past five weeks I’ve trained hard, trying to get my ankle back to where I want it to be.
+ - But there is no danger of my not concentrating on cricket. I’m comfortable on the pitch, and that will never change. I have to remember what I do for a living.
+ - I’m not someone who needs to bat and bat to be in form.
+ - I’m not sure if I’m looking forward to facing Brett Lee again. He bowls at 95mph so enjoyment is not the word I would use.
+ - I have a varied taste, I’ll listen to anything. Well, not anything, no techno.
+ - Cricket is great, but I’m not as comfortable with everything else that goes with it.
+ - We have to take care of our own game. There’s only one place we’ve got to stick up for ourselves and that’s the pitch.
+ - I’ll take my iPod – though I’m not very good with gadgets to be honest – and that has everything I like.
+ - It’s far more daunting than bowling to Ricky Ponting or facing Shane Warne.
+ - When I have a day off, I will have a day off.
+ - There are of course mornings when you wouldn’t mind a lie in.
+ - If you’re batting and you go off on one it can’t really help you.
+
+37 quotes

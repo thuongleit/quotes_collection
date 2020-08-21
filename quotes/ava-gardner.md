@@ -1,0 +1,40 @@
+ - When I’m old and gray, I want to have a house by the sea. And paint. With a lot of wonderful chums, good music, and booze around. And a damn good kitchen to cook in.
+ - I do everything for a reason. Most of the time the reason is money.
+ - I wish to live to 150 years old, but the day I die, I wish it to be with a cigarette in one hand and a glass of whiskey in the other.
+ - He will always be my Sir Galahad.
+ - Deep down, I’m pretty superficial.
+ - Fame gives you everything you never wanted.
+ - Doing nothing feels like floating on warm water to me. Delightful, perfect.
+ - If I had my life to live over again, I’d live it the same way. Maybe a few changes here or there, but nothing special. The truth is, honey, I’ve enjoyed my life. I’ve had a hell of a good time.
+ - I think the main reason my marriages failed is that I always loved too well but never wisely.
+ - Petting is the study of the anatomy in braille.
+ - The truth is that the only time I’m happy is when I’m doing absolutely nothing. I don’t understand people who like to work and talk about it like it was some sort of goddamn duty. Doing nothing feel like floating on warm water to me. Delightful, perfect.
+ - Sing me not a song; let me hear your recital of veneration and respect; this I will listen to over and over when I share your need of pleasing.
+ - God knows I’ve got so many frailties myself, I ought to be able to understand and forgive them in others. But I don’t.
+ - Love is nothing but a pain in the ass.
+ - Elizabeth Taylor is not beautiful, she is pretty – I was beautiful.
+ - Fame and fortune does not mean anything if you don’t have a happy home.
+ - When I lose my temper, honey, you can’t find it any place.
+ - I hate cheating. I won’t put up with it. I don’t do it myself.
+ - I haven’t taken an overdose of sleeping pills and called my agent. I haven’t been in jail, and I don’t go running to the psychiatrist every two minutes. That’s something of an accomplishment these days.
+ - Although no one believes me, I have always been a country girl and still have a country girl’s values.
+ - For the loot, honey, for the loot.
+ - So this was where lust was satisfied. If I’d been an old-time miner I’d have asked for my gold nugget back.
+ - I’ve certainly never taken the care of myself that I should have. On the contrary. I’ve done a lot of late nights without enough sleep and all that. But I’ve had fun. Whatever wrinkles are there, I’ve enjoyed getting them.
+ - Because I was promoted as a sort of a siren and played all those sexy broads, people made the mistake of thinking I was like that off the screen. They couldn’t have been more wrong.
+ - I don’t mind growing old. If I have to go before my time, this is how I’ll go – cigarette in one hand, glass of scotch in the other.
+ - I suffered, I really suffered, with all three of my husbands. And I tried damn hard with all three, starting each marriage certain that it was going to last until the end of my life. Yet none of them lasted more than a year or two.
+ - I have only one rule in acting – trust the director and give him heart and soul.
+ - It’s a pity nobody believes in simple lust anymore.
+ - Maybe, in the final analysis, they saw me as something I wasn’t and I tried to turn them into something they could never be. I loved them all but maybe I never understood any of them. I don’t think they understood me.
+ - After my screen test, the director clapped his hands gleefully and yelled: “She can’t talk! She can’t act! She’s sensational!”
+ - All I have going is my looks. When my beauty goes, I’m through.
+ - I was never an actress – none of us kids at Metro were. We were just good to look at.
+ - I was lazy. I would have been a hell of a lot better actress had I taken it more seriously. I never had the proper respect for acting. Quite often, I learned my lines on the way to the studio.
+ - Oh, what the hell did I know? I went to the set the first day in full makeup and the director told me to take it off. So I did the film without makeup. I had nothing to do with anything I did. I never understood why I was so famous.
+ - And the news got worse. It appeared that there was this whole other person Jesus Christ whose birthday a lot of people tended to confuse with mine. I was personally outraged. It was a long time before I forgave the Lord for that.
+ - Women’s liberation as a movement makes some valid points. But in the final analysis, it doesn’t matter who wears the pants – as long as there’s money in the pockets.
+ - I am deeply superficial.
+ - What I’d really like to say about stardom is that it gave me everything I never wanted.
+
+38 quotes

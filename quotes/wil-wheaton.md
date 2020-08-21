@@ -1,0 +1,29 @@
+ - Stay strong. Depression lies.
+ - Be honest. Be kind. Be honorable. Work hard. And always be awesome.
+ - Being a nerd is not about what you love, it’s about how you love it.
+ - Keep playing games. Make time to play games with your friends and family, because it’s surprisingly heartbreaking to wipe a thin layer of dust off a game you love, before you put it back on the shelf because the real world is calling you.
+ - The Lord of the Rings trilogy restored the balance in the Force after the Star Wars prequels ruined everything that was awesome about being a nerd at the movies.
+ - If the world were a bar, America would currently be the angry drunk waving around a loaded gun. Yeah, the other people in the bar may be afraid of him, but they sure as hell don’t respect him.
+ - No matter what I do with my life, or how successful I am, I will always be a socially awkward penguin inside.
+ - Sorry, Vern. I guess a more experienced shopper could have gotten more for your seven cents.
+ - Don’t let the fear of not pleasing someone stop you from being creative.
+ - My wife is the most awesome person in the universe. She’s made this experience much less miserable for me, with her compassion, patience and understanding.
+ - I guess I’m up to about 70% of normal, which is a real relief. My doctor gave me clearance to go out in public again, so I’ve been able to go to the store and help out a little bit around the house.
+ - Found a dead body when I was 12, saved the Enterprise a few times, Ran the Axis of Anarchy, broke up Penny and Leonard. Currently running the non-lethal weapons lab at Global Dynamics.
+ - When you get a group of kids together, especially boys, the psychology of those kids requires that they find a weak kid or a sensitive kid or a soft kid.
+ - Sometimes we know in our bones what we really need to do, but we’re afraid to do it. Taking a chance and stepping beyond the safety of the world we’ve always known is the only way to grow, though and without risk there is no reward.
+ - The goal isn’t to make something everyone will love; the goal is to get excited, and make a thing where something wasn’t before.
+ - I spent a lot of my childhood not fitting in, in a lot of different ways.
+ - I like to quote things.
+ - When you say a ‘former child star,’ you may as well say ’failed child star.
+ - Even when I was little and going on auditions, it was clear who was there because they wanted to be there, and who was there because their stage parents were making them be there. There was a major difference.
+ - Even when I was little, people would always ask me if I wanted to be a movie star, and I would always say, ‘No, I just want to be an actor.’
+ - If you enjoyed making a thing, and you’re proud of the thing you made, that’s enough. Not everyone is going to like it, and that’s okay.
+ - It’s not about what you said. It’s not about what you did. It’s not about what you love. It’s about them feeling bad about themselves.
+ - Sometimes, a person who likes your work and a person who don’t will show up within milliseconds of each other to let you know how they feel. One does not need to cancel out the other, positively or negatively; if you’re proud of the work, and you enjoyed the work, that is what’s important.
+ - I’ve done a lot of geeky things in my life, but I think the geekiest of all was my first effort to build props and cosplay, when I was about twelve years-old.
+ - I’m going to go talk to some people to see if you could be in the movie because you should be in the movie.
+ - People who don’t want to give a creator money are never going to give a creator money.
+ - One of the things that drives me crazy is the belief in Hollywood that bittorrent exists solely for stealing things.
+
+27 quotes

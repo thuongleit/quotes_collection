@@ -1,0 +1,29 @@
+ - Repetition makes us feel secure and variation makes us feel free.
+ - Take the time to write. You can do your life’s work in half an hour a day.
+ - One may prefer spring and summer to autumn and winter, but preference is hardly to the point. The earth turns, and we live in the grain of nature, turning with it.
+ - It’s hell writing and it’s hell not writing. The only tolerable state is having just written.
+ - Images are not quite ideas, they are stiller than that, with less implication outside themselves. And they are not myth, they do not have the explanatory power; they are nearer to pure story. Nor are they always metaphors; they do not say this is that, they say this is.
+ - Writing is an incessant process of discovery.
+ - A word is elegy to what it signifies.
+ - Longing, we say, because desire is full of endless distances.
+ - Sometimes from this hillside just after sunset The rim of the sky takes on a tinge Of the palest green, like the flesh of a cucumber When you peel it carefully.
+ - Imagination runs through the places where we live like water. We need both things-a living knowledge of the land and a live imagination of it and our place in it- if we are going to preserve it.
+ - Poetry is a fireplace in summer or a fan in winter.
+ - Nostalgia locates desire in the past where it suffers no active conflict and can be yearned toward pleasantly.
+ - All the new thinking is about loss. In this it resembles all the old thinking.
+ - I think that the job of poetry, its political job, is to refresh the idea of justice, which is going dead in us all the time.
+ - Reading is a gymnasium for the imagination where people can work out, get ready for the shocks of existence. For me, the intimate teachers have not only taught me how to make things, they have represented some qualities of mind and mindfulness that I would like to have.
+ - The first book that really knocked me out was the ‘Brothers Karamazov.’ I read it when I was a senior in high school.
+ - Not to make too much of a claim for poetry, but this is a question that goes to the moral heart of the business of any art: How do you see the world, and what right do you have to see the world in the way that you do?
+ - When I was in college, I lost my scholarship one year. I had enough money for tuition, but not room and board. So I camped in the hills.
+ - It is good sometimes for poetry to disenchant us.
+ - Someone will always want to mobilize Death on a massive scale for economic Domination or revenge. And the task, taken As a task, appeals to the imagination. The military is an engineering profession.
+ - When I was in high school in the ’50s you were supposed to be an Elvis Presley, a James Dean, a Marlon Brando or a Kingston Trio type in a button-down shirt headed for the fraternities at Stanford or Cal.
+ - Ko Un is a crucial poet for the twenty-first century, and this is an enormously fresh and vivid translation.
+ - I teach a lecture course on American poetry to as many as 150 students. For a lot of them, its their only elective, so this is their one shot. Theyll take the Russian Novel or American Poetry, so I want to give them the high points, the inescapable poets.
+ - The Earth forgives the previous year every year.
+ - Golf is a worrier’s game, inward, concentrated, a matter of inches, invented by the same people who gave us Presbyterianism.
+ - Such tenderness, those afternoons and evenings, saying blackberry, blackberry, blackberry.
+ - What we usually find is that when people think they have a new idea or approach something for the first time, it is actually a recurrence of a line of thinking explored in the past.
+
+27 quotes

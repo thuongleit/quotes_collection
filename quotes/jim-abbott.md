@@ -1,0 +1,30 @@
+ - Find something you love, and go after it, with all of your heart.
+ - It’s not the disability that defines you; it’s how you deal with the challenges the disability presents you with.
+ - Never allow the circumstances of your life to become an excuse. People will allow you to do it. But I believe we have a personal obligation to make the most of the abilities we have.
+ - If you keep harping on a disability, then you’ll start believing there is one. So I don’t.
+ - People will tell you that I overcame obstacles? Maybe. But the truth is I was incredibly blessed in my life. More was given than was ever taken away.
+ - I loved throwing a baseball. It is so important to find something in life you feel crazy about. Because you are so passionate you naturally practice. The hard work that it takes to do something well will come easily.
+ - My goal is to encourage people to see the possibilities that life holds. So many great things can happen in life, if we can find our own way of doing things, and believe in ourselves, no matter what challenges surround you.
+ - The bible tells us to be grateful in every situation. I am grateful for mine.
+ - I worked very hard. I felt I could play the game. The only thing that could stop me was myself.
+ - It was always just trying to move to the next limit. I didn’t think about making the major leagues – every kid has that dream, I had it, but when I was in Little League I just wanted to make the junior high team. When I was in junior high, I wanted to make the Varsity team.
+ - I think you need optimism. I believe that’s incredibly important that you be optimistic that you can do things different and still do them just as well. That’s very important to success – just to have a positive outlook. I know it’s not easy to do that.
+ - I knew how far a little boy or girl could run with 50 words of reassurance.
+ - I hope what people learned from watching me is that just because you do things a little differently doesn’t mean you can’t do them just as well.
+ - What’s cool about baseball is you don’t have to see someone for years, but when you see them, you just hustle up and give them a big hug. Those friendships endure.
+ - There are times when you’re tired and times when you don’t believe in yourself. That’s when you have to stick it out and draw on the confidence that you have deep down beneath all the doubts and worries.
+ - I had an incredible experience living in New York, playing for the Yankees, to go through all of the things I did, including the no-hitter. It was a very memorable time.
+ - In the 8th inning you can’t hear the roar of the 9th, all you can do to hold yourself together, and trust.
+ - I think my career will be remembered for what it was and what it is, and I don’t need more than that.
+ - My advice is that you go and do something that you are really driven to do. I loved to play baseball and, because I loved it, I practiced it. Some of us have limitations, but if you are passionate about something and if you have the drive, then you can accomplish it.
+ - The no-hitter was the highlight of my career. The specialness of it, I didn’t know how lasting it would be when it happened. Everywhere I go, people talk about that game, how exciting it was. That makes me very proud. I’m awfully happy that a ball didn’t bloop in somewhere.
+ - I still get a lot of letters from kids and parents who face different challenges and disabilities. I share some of the lessons that I learned through sports and baseball, which makes me feel good. It’s incredible to have an impact that way.
+ - I want my career to be judged by what I did on the field. I appreciate the honors.
+ - Slowing it all down and analyzing our mental approach is a surprisingly effective way of becoming a better player.
+ - One of the beautiful things about baseball is the history.
+ - I benefited from tremendous encouragement as a kid. So many people reached out to me, helped me, and believed in me even when I didn’t always believe in myself.
+ - I always wanted to be a shortstop so I could play more often!
+ - I could always throw the ball pretty well and I worked pretty hard at learning how to play the game. But I didn’t consider it work as a kid, since I just loved playing baseball.
+ - I believe that challenges can push us beyond what we might otherwise be able to accomplish.
+
+28 quotes

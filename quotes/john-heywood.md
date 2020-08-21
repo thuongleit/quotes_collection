@@ -1,0 +1,113 @@
+ - Rome was not built in one day.
+ - There are none so blind as those who will not see. The most deluded people are those who choose to ignore what they already know.
+ - Nothing is impossible to a willing heart.
+ - Beggars can’t be choosers.
+ - Every dog has its day.
+ - Look before you leap.
+ - The more haste, the less speed.
+ - Make hay while the sun shines.
+ - Cut your coat according to your cloth.
+ - None so blind as those who won’t see.
+ - Follow pleasure, and then will pleasure flee, Flee pleasure, and pleasure will follow thee.
+ - If nothing is ventured, nothing is gained.
+ - It’s an ill wind that blows no good.
+ - A hard beginning maketh a good ending.
+ - Don’t put the cart before the horse.
+ - It’s no use closing the barn door after the horse is gone.
+ - A man may well bring a horse to water but he cannot make him drink.
+ - I know on which side my bread is buttered.
+ - Half a loaf is better than none.
+ - A fig for a care, a fig for a woe!
+ - A cat may look at a king.
+ - Let the world wagge, and take mine ease in myne Inne.
+ - When all candles be out, all cats be grey.
+ - Feed by measure, and defy the physician.
+ - A woman hath nine lives like a cat.
+ - Who waiteth for dead man’s shoes will go long barefoot.
+ - It is a poor dog that is not worth the whistling.
+ - But in deede, A friend is never knowne till a man have neede.
+ - Better one byrde in hand than ten in the wood.
+ - Hunger makes hard beans sweet.
+ - Wedding is destiny, and hanging likewise.
+ - All’s well that ends well.
+ - No man loveth his fetters, be they made of gold.
+ - The rolling stone never gathereth mosse.
+ - Many handis make light warke.
+ - There is no fool to the old fool.
+ - One swallow never makes a summer.
+ - It hurteth not the toung to give faire words.
+ - Who will in time present pleasure refrain, shall in time to come the more pleasure obtain.
+ - And death makes equal the high and low.
+ - It takes nine tailors to make a man.
+ - If you will call your troubles experiences, and remember that every experience develops some latent force within you, you will grow vigorous and happy, however adverse your circumstances may seem to be.
+ - There is no fyre without some smoke.
+ - Tis not the robe or garment I affect; For who would marry with a suit of clothes?
+ - All is fish that comth to net.
+ - When the iron is hot, strike.
+ - Every cocke is proud on his owne dunghill.
+ - Better is to bow than breake.
+ - The greatest Clerkes be not the wisest men.
+ - The moon is made of a green cheese.
+ - Three may keep counsel, if two be away.
+ - The grey mare is the better horse.
+ - Time trieth troth in every doubt.
+ - Let the world slide, let the world go; A fig for care, and a fig for woe! If I can’t pay, why I can owe, And death makes equal the high and low.
+ - Who is so deaf or so blind as is he that willfully will neither hear nor see?
+ - I pray thee let me and my fellow have a haire of the dog that bit us last night.
+ - Went in at the one ear and out at the other.
+ - The nearer to the church, the further from God.
+ - Happy man, happy dole.
+ - For when I gave you an inch, you tooke an ell.
+ - All a green willow, willow, All a green willow is my garland.
+ - The happy man’s without a shirt.
+ - What heart can think, or tongue express, The harm that groweth of idleness?
+ - When the devil drives, needs must.
+ - Be the day never so long, Evermore at last they ring to evensong.
+ - Though he love not to buy the pig in the poke.
+ - Tell tales out of school.
+ - Hit the nail on the head.
+ - God never sends the mouth but he sendeth meat.
+ - He must needes go that the dyvell dryveth.
+ - So many heads so many wits.
+ - While the grass groweth the horse starveth.
+ - To give importance to trifling matters.
+ - What is got over the devil’s back is spent under his belly.
+ - The wise man sayth, store is no sore.
+ - Burnt child fire dredth.
+ - A short horse is soone currid.
+ - Would ye both eat your cake and have your cake?
+ - The cat would eate fish, and would not wet her feete.
+ - The loss of wealth is loss of dirt, as sages in all times assert; The happy man’s without a shirt.
+ - I perfectly feele even at my fingers end.
+ - It is a foule byrd that fyleth his owne nest.
+ - A fooles bolt is soone shot.
+ - Now for good lucke, cast an old shooe after mee.
+ - Much water goeth by the millThat the miller knoweth not of.
+ - Men say, kinde will creepe where it may not goe.
+ - She is nether fish nor flesh, nor good red herring.
+ - And while I at length debate and beate the bush, There shall steppe in other men and catch the burdes.
+ - Feare may force a man to cast beyond the moone.
+ - It will not out of the flesh that is bred in the bone.
+ - The still sowe eats up all the draffe.
+ - One good turne asketh another.
+ - When the sunne shineth, make hay.
+ - Good to be merie and wise.
+ - Might have gone further and have fared worse.
+ - The tide tarrieth no man.
+ - Children and fooles cannot lye.
+ - No man ought to looke a given horse in the mouth.
+ - Fieldes have eies and woods have eares.
+ - To say that which is instructive and also pleasing.
+ - Children learne to creepe ere they can learne to goe.
+ - Hee must have a long spoone, shall eat with the devill.
+ - Nought venture nought have.
+ - A day after the faire.
+ - When the steede is stolne, shut the stable durre.
+ - It is good the have a hatch before the durre.
+ - Put your toong in your purse.
+ - Love me litle, love me long. 1546.
+ - Small pitchers have wyde eares.
+ - But now I see well the old proverb is true: That parish priest forgetteth that ever he was a clerk!
+ - Better to give then to take.
+
+111 quotes

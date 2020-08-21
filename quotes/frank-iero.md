@@ -1,0 +1,45 @@
+ - My tattoos are like a scrapbook of my life. Sometimes you don’t feel comfortable in your own skin, so covering it up with pictures helps.
+ - No one is born with hate in their heart. Hate is something that has been taught. It is not an innate survival skill that we need; It is a form of stupidity that penetrates our minds and will eventually destroy us.
+ - Love what you do and who you truly are. Be willing to die for it. If you are true to yourself, you can never go wrong.
+ - The best music happens when you have a personal connection to it. That same philosophy can extend to the instrument you hold in your hands: if a guitar means something special, you’re bound to do great things with it.
+ - The future’s too bright to dwell on the past. Life moves fast, run faster.
+ - Emo always meant emotional. Any kind of art or music should be emotional. If its not, than it’s pretty much just a jingle selling bleach or pizza.
+ - These are dangerous days we live in and you, the artists, are our last defense.
+ - The messenger is not as important as the message.
+ - I would rather be trampled by thousands of children than touch a spider.
+ - My name is Frank Iero and I hate mushrooms. All mushrooms. No matter how they’re prepared, I feel like they’re all slimy and they taste like dirt.
+ - If I couldn’t play, I wouldn’t be alive.
+ - It could be anything, give a homeless guy a sandwich, help an old lady across the street like anything to make this world a better place. If everybody just did one good thing for another person like a selfless good deed just think about how much a better place this would be.
+ - If you don’t listen, you’re never gonna learn.
+ - At times, it could be a bit difficult to understand everything that’s being said when just listening, but I wanted the lyrics to be the first impression.
+ - No one is born with hate in their heart...
+ - I don’t understand how people can make such a fuss about people that are happy and in love, when there’s people dying of hunger and war and they don’t even notice that. I really don’t understand that. That makes me so angry!
+ - Having kids had a big effect on me, but nothing more than when they started to get older- that really made me realize how fleeting each moment is.
+ - When you break it all down, my punk rock is my dad’s blues. It’s music from the underground, and it’s real, and it’s written for the downtrodden in uncertain times.
+ - I was feeling miserable physically, in a lot of pain to the point where it was almost crippling me, especially creatively. I decided to take that and use it as an inspiration for getting out of bed and making something again.
+ - People don’t always realize that a record is forever. It’ll always be there under your name. You’ve got to be certain that it’s right.
+ - Where my heart lies is in the real-life, but at the same time part of it lies in this creative realm where I need to go in and put out that fire, scratch that itch, in order to be all rounded.
+ - Publishing the lyric books, poetry or comics of other musicians I know. That’s the thing I really want to break into!
+ - Popsicles should be the new black and then everyone would have one.
+ - You can only hold on to something for so long and enjoy it just by yourself, what’s the point? It’s very selfish. For better or for worse, I feel like the point of all of this is to make someone feel something.
+ - I made songs really for myself – I didn’t ever expect to put it out there.
+ - Even as a kid- do all kids think about this? I hope they don’t, I hope my kids don’t think about this- I was always thinking about, “Well, what are we doing? What is this all about?”
+ - I’ve always been in bands writing songs with friends in order to play shows or record a future record.
+ - Every time I felt the pain coming on I’d go downstairs and hammer out an idea. After a few months I started to take a look at what I was making, I had for the first time in my life written a large grip of songs completely alone and without any expectations or plans of what they would be for.
+ - Everything I’ve ever dreamed of, everything in my wildest dreams, is coming true.
+ - My first show was when I was a high school freshman, but it was at the junior class dance. My older friend and bandmate booked it.
+ - I have a split – of my real home-life side that’s real-life, and then the creative side that is not necessarily real-life, but it intersects my real-life so much.
+ - Every time somebody ever told you that you weren’t gonna amount to anything, you know, that’s your time to shine, you know? You can show everybody and prove to yourself what you’re doing is real and that it counts and that it makes a difference.
+ - Anytime you put yourself in a creative box, it’s going to stifle you; it’s not conducive to the writing or recording process.
+ - About six years ago my family was affected by multiple sclerosis.
+ - It’s always awkward to pretend to play. I feel like Ashlee Simpson. Oooh, zing.
+ - People never cease to amaze us.
+ - If you lose count of how many cookies you ate, the calorie intake ceases to exist. True story.
+ - I have no want or desire to solo. I’d rather create melodies and accompanying parts.
+ - I also remember the second band I was in ever. We were called Hybrid. We got a show at this local street fair, and we were playing on the back of a flatbed truck. There was an ad in the paper, and it said that ‘Hybird’ is playing. I was so mad.
+ - This is a dream come true. I have wanted to tour with Green Day since I was 15.
+ - Really I don’t know anything other than Jersey. I like the dirtiness of it. Now I’m getting to see the world, and it’s great, but it’s not better than Jersey.
+ - My biggest addictions have been chocolate cake, mashed potatoes, and butter sandwiches.
+ - The relationship between ‘My Chemical Romance’ and Michael Pedicone is over. He was caught red-handed stealing from the band and confessed to police after our show last night in Auburn, Washington. We are heartbroken and sick to our stomachs over this entire situation.
+
+43 quotes

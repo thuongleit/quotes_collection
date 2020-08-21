@@ -1,0 +1,129 @@
+ - If someone ever asks you to do something for them, do it really bad so you never have to do it again.
+ - What’s Walmart, do they sell like wall stuff?
+ - The only rule is don’t be boring.
+ - It will work. I am a marketing genius.
+ - Never give up on the things that make you smile.
+ - The way I see it, you should live everyday like its your birthday.
+ - Being grown up and in a serious relationship, I’ve learned so much. I’m happier than I’ve every been.
+ - You know your the best when people you don’t know hate you.
+ - I’d love to have a family one day. Having kids is the meaning of life and I can’t wait to be a mom.
+ - I take my dog Tinkerbell seriously. I take my job seriously. But I don’t take myself all that seriously.
+ - The only rule is don’t be boring and dress cute wherever you go. Life is too short to blend in.
+ - No matter what a woman looks like, if she’s confident, she’s sexy.
+ - If you have a beautiful face you don’t need fake boobs to get anyone’s attention.
+ - Every woman should have four pets in her life. A mink in her closet, a jaguar in her garage, a tiger in her bed, and a jackass who pays for everything.
+ - Whatever I write in email, it doesn’t mean anything. It is just words I write.
+ - I think I am a good role model, and a lot of mothers come up to me and they’re really happy, and I think if any girl follows their dreams then anything can happen to them.
+ - A girl can dazzle – just naturally!
+ - I’m not the same person I was. I used to act dumb. It was an act. I am 26 years old, and that act is no longer cute. It is not who I am, nor do I want to be that person for the young girls who looked up to me. I know now that I can make a difference, that I have the power to do that.
+ - The only people you need in your life are the ones that prove they need you in theirs.
+ - There is no sin worse in life than being boring and nothing worse than letting other people tell you what to do.
+ - Some girls are just born with glitter in their veins.
+ - I’m not a kid anymore. And I’m excited for all the amazing things to come.
+ - I really don’t like going out anymore. I used to love it, but now it’s not fun. I’d rather have friends come over and hot have to worry about crazy people taking pictures.
+ - There’s nobody in the world like me. I think every decade has an iconic blonde, like Marilyn Monroe or Princess Diana and, right now, I’m that icon.
+ - I don’t really think, I just walk.
+ - Always walk around like you have on an invisible tiara.
+ - If I could read a book, I’d definitely read one of yours.
+ - My favorite toast is rye toast.
+ - I got my eye on you boy, and when I get my eye on something, it’s like search and destroy.
+ - It’s good to just smile and go on with your day.
+ - The best accessories a girl can have are her closest friends.
+ - Barbie is my role modle. She might not do anything, but she looks good doing it.
+ - I didn’t want to be like all these socialites – they sit at home, and go to the debutant ball, and marry some rich guy and that’s it. That’s all they do. I wanted to do my own thing so I could buy whatever I want, do whatever I want.
+ - Everybody’s looking at me But it’s alright I like attention The clubs not hot until I walk through They stop and stare and watch me move Like damn I like that I’m sexy and you know it.
+ - Some people change when they think they’re a star or something.
+ - A life without orgasms is like a world without flowers.
+ - I’m just a very creative and outgoing person and I love being around people and being around music. It just gives me energy.
+ - I’m a really good person. I’m down to earth. I have a big heart. I have feelings. And I’m just like everybody else.
+ - By channeling my inner heiress, I created a new opportunity for young heiresses.
+ - I have seen the breakups between people who love each other and rush into getting married too quickly and I do not want to make that mistake.
+ - I love Africa in general South Africa and West Africa, they are both great countries.
+ - I’m the kind of person who, if I see a shooting star, I wouldn’t stay there and watch it. I’d run to my friends and tell them because I would want everyone to see it too.
+ - I would say natural is the best way to describe the real me. I’m not always going out or dressed up like I am on the red carpet. On a normal day, I wear normal clothes and wear little to no make-up. I’m always a bit girly, though.
+ - All it takes is one drink to mess with the way you drive – it clouds your judgment and slows your reflexes. Don’t take any chances. It just isn’t worth it.
+ - Kabbalah helps you confront your fears. If a girl borrowed my clothes and never gave them back, and I saw her wearing them months later, I would confront her.
+ - I’m the nicest, most loyal person in the world when it comes to my friends.
+ - I hate the taste of alcohol. When I’m drinking, I’m drinking Red Bull.
+ - I don’t like parties past 2 am. Then it’s all losers and weirdos.
+ - Yes, I’ve kissed a lot of guys. I like to kiss, but that’s it. I don’t go home with anyone. I sleep with my animals, like my baby monkey, Brigitte Bardot.
+ - I’m blonde and tanned and normal-sized! I’m sweet, shy, funny, have a big heart and I’m nice – and I like to eat.
+ - There will come a day A hazy day in May Or a storm in mid-December When you need someone Just to have a little fun Then I could be the perfect girl for you.
+ - I think a lot of people have seen me on The Simple Life and think I’m a “spoilt airhead,” but I was playing a character. The producers said they wanted Nicole and I just to be crazy and funny and say outlandish things.
+ - This is Earth. Isn’t it hot?
+ - I’ve made all my money on my own without my family and I work very hard.
+ - Well, it hurts my feelings because the person that I read about sometimes in these gossip magazines is not the person who I am. So I don’t want, you know, my fans to think that’s how I am.
+ - All British people have plain names, and that works pretty well over there.
+ - I’m not, like, that smart.
+ - I’m very intelligent. I’m capable of doing everything put to me. I’ve launched a perfume and want my own hotel chain. I’m living proof blondes are not stupid.
+ - When Paris has to pee, Paris has to pee!
+ - I love Marilyn Monroe. I think she was the coolest blonde. I think like me she just didn’t care what anyone thinks. She’s happy. She’s smiling. I don’t know, I just always thought she was so beautiful and she just seemed, like, magical.
+ - One night stands are not for me. I think it’s gross when you just give it up.
+ - I like my mug shot. I think I have a really great mug shot. It looks like a magazine shoot.
+ - Barbie is my fashion icon. People think I’m Paris Barbie – and it’s a compliment.
+ - I started recording the album four years ago. It was very different then – totally rock and roll.
+ - People just – they don’t really know me. They see me on “The Simple Life,” they think that’s really who I am.
+ - Every girl is beautiful if they have the ability to believe in themselves.
+ - A true heiress is never mean to anyone – except a girl who steals your boyfriend.
+ - My mom decorated with lots of antiques. I never liked it when I was a little girl – I wanted to live in a modern house. But now I love it.
+ - I have this great test to see if a girl’s a real friend. When we’re shopping I’ll pick out an outfit that I know looks hot and one that is awful. If my friend says the bad one looks good, I know she’s not a good friend.
+ - When I was in London for The Brits recently I read that I had asked for a Jacuzzi in the dressing room – how ridiculous is that?
+ - First I wanted to be a veterinarian. And then I realized you had to give them shots to put them to sleep, so I decided I’d just buy a bunch of animals and have them in my house instead.
+ - I’m totally normal. I think it’s obnoxious when people demand limos or bodyguards. I eat at McDonald’s or Taco Bell. My parents always taught us to be humble. We’re not spoiled.
+ - It hurts that, you know, the media’s made me into sort of this like punching bag or cartoon character-they think that I don’t have any feelings, and, you know, it hurts like anyone else.
+ - At parties, everyone always thinks I’m drinking, but actually I rarely drink. I live on energy drinks, basically. I love vitamin water.
+ - I always knew I had a voice and I’ve always known I could sing, but I was too shy to let it come out. I think it’s the hardest thing to do, to sing in front of people. When I finally let go and did it, I realized it’s what I’m most talented at and what I love to do the most.
+ - I don’t think there’s ever been anyone like me that’s lasted. And I’m going to keep on lasting.
+ - A lot of my dreams have to do with animals I think because I’m such a huge animal lover. I have so many pets. I always have crazy dreams where I’m like riding an elephant through the jungle or hanging out with a bunch of monkeys.
+ - Ibiza, if you’ve never been there before, is very overwhelming. It’s like nowhere on earth. The best advice is to sleep as late as possible because nothing gets going until around 3am and it goes until like 7 or 8.
+ - I love music. It’s always been a big part of my life, and I don’t think people should, you know, judge me by my last name instead of listening to the album. I think the music definitely speaks for itself, and it’s a great album.
+ - Well, since I’m six years old, I’ve been playing the violin, the piano, I’ve been singing. It’s always been a dream of mine, but I really never had the courage to actually go and do it professionally.
+ - Having a nightclub in your house really helps for having a party, because then you don’t need to go out.
+ - It’s called Paris, not Hilton, just me, because I don’t want people to think it’s my family’s. It’s mine.
+ - I’ve just always had a boyfriend my whole life, and I’ve – now I’m really focusing on myself and I think that’s more important right now.
+ - What is the soup kitchen?
+ - When I was younger, my family would go camping and fishing on our ranches. My dad loves being around all kinds of animals. He’s the one who got me to be a really big animal lover.
+ - I’m an animal activist. Many people say that I’m a hypocrite, because I eat burgers and stuff like that but I won’t wear fur. But I’m not a hypocrite. I just only wear fake fur.
+ - I’d rather not do anything. Guys want you more when you don’t. Young girls should know that.
+ - I can’t stand black guys. I would never touch one. It’s gross?
+ - The Backstreet Boys were so ten years ago. Whatever.
+ - I don’t want to be known as the Hilton heiress, because I didn’t do anything for that.
+ - I get along with guys; most of my friends are guys. It’s easier to trust men sometimes. I only have a few close girlfriends that I trust.
+ - First, I think of myself as a brand, a businesswoman. Musician is something I just do because it’s my passion – I love it and it’s something I do for fun. I love music and I love to make people dance.
+ - I’m going to do the time and I am going to do it the right way.
+ - It’s sexier when a girl is flirty but she doesn’t do anything.
+ - My life is, like, really, really fun.
+ - Just going through a lot in my life, becoming more confident in myself, writing my own music and just really getting in the studio and just doing it.
+ - I play dumb like Jessica Simpson plays dumb. But we know exactly what we’re doing. We’re smart blondes.
+ - I used to act dumb. That act is no longer cute. Now, I would like to make a difference God has given me this new chance.
+ - Everything I do is blown out of proportion. It really hurts my feelings.
+ - It’s traditional for an heiress to be raised in a sheltered way. No one thinks that’s true of me, but it actually was.
+ - You are all so lucky to be living here. If I live in Manila I would definitely live in Azure.
+ - I’m an actress, a brand, a businesswoman. I’m all kinds of stuff.
+ - You don’t have to be an heiress to look like one, if you act like one then everyone will just presume you are one.
+ - I just think that the media is just making things up. I don’t really pay attention.
+ - I have done everything that I wanted to do, and I feel very blessed that I have been very successful on every area. So it’s very exciting. There is nothing else to do.
+ - I like it, but it’s yellow, and I’m like, I didn’t want yellow for my engagement ring.
+ - There’s a lot of advantages to being my best friend.
+ - To me, anything goes. But that’s me.
+ - For the past couple of years I was doing the party thing – going out a lot. But now I’ve turned 25, I feel I’m an adult.
+ - I travel around the world constantly promoting my projects and endorsing products. Yes, I do get paid to go to parties; in fact, I’m the person who started the whole trend of paid appearances. But when you see me at a party, I’m always working or promoting something.
+ - I definitely think that fashion is a form of art and love that people can express themselves through what they wear.
+ - I have so many great things going on in my life that I don’t need to pay attention to some writer.
+ - You need to look like a lady at the Oscars. Otherwise, Joan Rivers will tear you apart. Then again, you aren’t really anyone till Joan Rivers tears you apart.
+ - When I’m working, I don’t wear any makeup at all. Unless I am doing an event, I love to wear no makeup at all, which is hardly ever as I am working every day!
+ - It’s been my dream to have four babies by 30. I look after animals, so I’d have a lot to give my kids.
+ - Not every heiress is famous. Or fun. There are a lot of boring heiresses out there.
+ - I’m not like anybody else. I’m like an American princess.
+ - I would do the baby voice and it’s kind of like this character I made up. But in real life, I’m completely different. I’m very smart. I think a lot of people will assume I’m an airhead.
+ - I talk in that baby talk voice when I’m on TV, it’s a put on.
+ - When you’re in the public eye, it’s wrong to cheat on someone, unless you’re very careful. If you’re normal and no one’s going to know, then do it.
+ - I’d rather sit in bed and watch TV. All of my ex-boyfriends, of course, not Paris, would be like, ‘What’s the problem? You’re so not sexual.’
+ - I don’t like people who sit on computers all day long and write about people they don’t know anything about.
+ - I don’t want to be known as the granddaughter of the Hiltons. I want to be known as Paris.
+ - My kitchen looks like the one from my childhood – very homey, with a little bit of Alice in Wonderland!
+ - A man must walk before he can fly – one cannot fly into flying.
+ - I don’t care about people who don’t care about me. If people are negative or mean, then that’s their issue. Screw them.
+ - I’m not like that smart. I like, forget stuff all the time.
+
+127 quotes

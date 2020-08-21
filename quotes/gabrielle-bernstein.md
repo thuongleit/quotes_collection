@@ -1,0 +1,39 @@
+ - I let go of my need to control and allow the Universe to do her thing.
+ - Allow your passion to become your purpose, and it will one day become your profession.
+ - What you believe, you receive.
+ - The key to serenity is trusting that the universe has your back.
+ - Those who are certain of the outcome can afford to wait, and wait without anxiety.
+ - It’s time to let go, be guided and expect miracles.
+ - When you choose to perceive Love over fear, life begins to flow.
+ - I am willing to see things differently. I am willing to see love.
+ - The universe will always remove what is no longer serving you.
+ - True abundance isn’t based on our net worth, it’s based on our self-worth.
+ - The simple intention to surrender control is all you need to experience miracles.
+ - When you focus on your greatness you elevate everyone around you.
+ - True manifesting is allowing the universe to catch up with your dreams.
+ - A miracle is a shift in perception. The moment that we choose to perceive our life with love, we can create miraculous change.
+ - You can’t make people be or do what you want. All you can do is be unapologetic about what you want and let others show up however they can.
+ - Take action once a day to do something that ignites your life.
+ - The moment you accept that there’s a guidance system supporting you, then you experience a new sense of freedom and peace.
+ - I learned that real happiness doesn’t come from getting but from giving.
+ - I’ve learned that fear is simply an illusion based on past experiences that we project into the present and onto the future.
+ - Today I no longer need to change the world around me. I just need to change the way I see it.
+ - Now is the perfect time to make powerful change-your willingness is at an all-time high.
+ - Remember that you have a choice in what you see. If you choose to see a person’s darkness, you strengthen your darkness within. If you choose to see their light, you shine from the inside out.
+ - The moment we begin to celebrate ourselves and focus on our successes is the moment we begin living.
+ - Whenever you notice your thoughts detour into attack mode, say out loud or to yourself: Happiness is a choice I make.
+ - Sometimes your higher self will guide you to make mistakes so you can learn lessons.
+ - Each day when you wake up, say: “What miracles would you have me perform today?” Then listen.
+ - The great paradox is that our lack of faith in love and miracles is what blocks us from receiving love and miracles.
+ - My definition of God is: the ever-present essence of love.
+ - Much of our anxiety and stress comes when we’re focused on fear and disconnected from the voice of our inner guide.
+ - Be faithful that your authentic power is all you need to truly share your light with the world.
+ - When we fulfill our function, which is to truly love ourselves and share love with others, then true happiness sets in.
+ - So much of what holds us back in life are the long-held resentments stemming from childhood.
+ - Get naked with your truth, offering the world your greatest gift: your authentic self.
+ - Dreams are the way to unfulfilled wishes in the individual; visions are the way to unfulfilled dreams in mankind.
+ - Forgiveness isn’t about letting the other person off the hook – it’s about releasing ourselves.
+ - The more difficult it is to forgive someone the greater the opportunity for spiritual growth.
+ - Neglecting passion blocks creative flow. When you’re passionate, you’re energized. Likewise, when you lack passion, your energy is low and unproductive. Energy is everything when it comes to being successful.
+
+37 quotes

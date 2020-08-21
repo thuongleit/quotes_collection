@@ -1,0 +1,36 @@
+ - The extent of one man’s guilt may be defined by how much of it is experienced by the party he injured.
+ - Photographing expresses human desire to preserve passing time. It is like a man struggling with time that elapses, and in general – a desire to preserve oneself.
+ - When is a crisis reached? When questions arise that can’t be answered.
+ - How do cultures differ from one another? Above all, in their customs. Tell me how you dress, how you act, what are your habits, which gods you honor, and I will tell you who you are. Man not only creates culture, he carries it around with him. Man is culture.
+ - My writing is a combination of three elements. The first is travel: not travel like a tourist, but travel as exploration. The second is reading literature on the subject. The third is reflection.
+ - When man meets an obstacle he can’t destroy, he destroys himself.
+ - More than anything, one is struck by the light. Light everywhere. Brightness everywhere. Everywhere, the sun.
+ - Literature seemed to be everything then. People looked to it for the strength to live, for guidance, for revelation.
+ - Money changes all the iron rules into rubber bands.
+ - Our salvation is in striving to achieve what we know we’ll never achieve.
+ - First you destroy those who create values. Then you destroy those who know what the values are, and who also know that those destroyed before were in fact the creators of values. But real barbarism begins when no one can any longer judge or know that what he does is barbaric.
+ - The Cold War in Africa is one of the darkest, most disgraceful pages in contemporary history, and everybody ought to be ashamed.
+ - In the First World War, there was the sudden passion of nationalism, and the killing took place because of these emotions. But the Soviet case is different, because you had systematic murder, like the Holocaust.
+ - There are several reasons why Russians view the oppressive state positively. First, in the Russian Orthodox religion, there is an understanding of authority as something sent by God.
+ - The tradition of Russian literature is also an eastern tradition of learning poetry and prose by heart.
+ - Amin hid nothing. Everybody knew everything. Yet the American Senate only introduced a resolution breaking off trade with Amin three months before his overthrow.
+ - He killed his enemies because he was afraid they would kill him. Amin ordered entire tribes to be put to death, because he feared they would rebel.
+ - There is a lack of critical assessment of the past. But you have to understand that the current ruling elite is actually the old ruling elite. So they are incapable of a self-critical approach to the past.
+ - Amin knew that neither West nor East would criticize him for fear that he would support the other side. He felt he was untouchable and he said so openly.
+ - The Cold War was waged in a particularly brutal and cynical way in Africa, and Africa seemed powerless to do anything to stop it.
+ - The official independence celebration was going to be held over four or five days, and a group of journalists from all over the world was allowed to fly in, because Angola was closed otherwise.
+ - In modern Russia, you have no official, formal assessment of this past. Nobody in any Russian document has said that the policy of the Soviet government was criminal, that it was terrible. No one has ever said this.
+ - Do not be misled by the fact that you are at liberty and relatively free; that for the moment you are not under lock and key: you have simply been granted a reprieve.
+ - I remember that during the period leading up to independence in Angola in 1975, I was the only correspondent there at all for three months.
+ - Our job is like a baker’s work – his rolls are tasty as long as they’re fresh; after two days they’re stale; after a week, they’re covered with mould and fit only to be thrown out.
+ - If the crowd disperses, goes home, does not reassemble, we say the revolution is over.
+ - There is a fundamental difference between the Polish experience of the state and the Russian experience. In the Polish experience, the state was always a foreign power. So, to hate the state was a patriotic act.
+ - In order to feel contempt, you generally need to cherish some kind of feelings.
+ - I remember in 1978 meeting two Ugandan captains in the hotel talking Russian. They had been educated in Moscow and since they came from different Ugandan peoples, it was the only way they could understand one another.
+ - Amin is the shame of the whole world. The fact that he managed to rule so long and commit so many crimes was only possible thanks to the hypocrisy of the East and the West who were waging the Cold War for world domination.
+ - In the Russian experience, although the Russian state is oppressive, it is their state, it is part of their fabric, and so the relation between Russian citizens and their state is complicated.
+ - This is the most intimate relationship between literature and its readers: they treat the text as a part of themselves, as a possession.
+ - I’m trying to put more elements of the essay into my writing.
+ - Most correspondents came from the former colonial powers – there were British, French, and a lot of Italians, because there were a lot of Italian communities there. And of course there were a lot of Russians.
+
+34 quotes

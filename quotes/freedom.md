@@ -1,0 +1,42 @@
+ - Freedom is the oxygen of the soul. ~~Moshe Dayan
+ - Life without liberty is like a body without spirit. ~~Khalil Gibran
+ - I prefer liberty with danger than peace with slavery. ~~Jean-Jacques Rousseau
+ - Freedom is what you do with what’s been done to you. ~~Jean-Paul Sartre
+ - If the freedom of speech is taken away then dumb and silent we may be led, like sheep to the slaughter. ~~George Washington
+ - Reality is merely an illusion, albeit a very persistent one. ~~Albert Einstein
+ - Conformity is the jailer of freedom and the enemy of growth. ~~John F. Kennedy
+ - Man is born free and everywhere he is in chains. ~~Jean-Jacques Rousseau
+ - All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. ~~Winston Churchill
+ - Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. ~~Sigmund Freud
+ - Start with what is right rather than what is acceptable. ~~Franz Kafka
+ - The undisciplined are slaves to moods, appetites and passions. ~~Stephen R. Covey
+ - Independence is my happiness, and I view things as they are, without regard to place or person; my country is the world, and my religion is to do good. ~~Thomas Paine
+ - Man is condemned to be free; because once thrown into the world, he is responsible for everything he does. ~~Jean-Paul Sartre
+ - The only way to deal with an unfree world is to become so absolutely free that your very existence is an act of rebellion. ~~Albert Camus
+ - War is peace. Freedom is slavery. Ignorance is strength. ~~George Orwell
+ - Free will is the ability to do gladly that which I must do. ~~C.G. Jung
+ - If you want a vision of the future, imagine a boot stamping on a human face – forever. ~~George Orwell
+ - Nobody can give you freedom. Nobody can give you equality or justice or anything. If you’re a man, you take it. ~~Malcolm X
+ - Our freedom can be measured by the number of things we can walk away from. ~~Vernon Howard
+ - From a certain point onward there is no longer any turning back. That is the point that must be reached. ~~Franz Kafka
+ - Without a struggle, there can be no progress. ~~Frederick Douglass
+ - Those who make peaceful revolution impossible will make violent revolution inevitable. ~~John F. Kennedy
+ - Expose yourself to your deepest fear; after that, fear has no power, and the fear of freedom shrinks and vanishes. You are free. ~~Jim Morrison
+ - None are more hopelessly enslaved than those who falsely believe they are free. ~~Johann Wolfgang von Goethe
+ - People might not get all they work for in this world, but they must certainly work for all they get. ~~Frederick Douglass
+ - If you want total security, go to prison. There you’re fed, clothed, given medical care and so on. The only thing lacking... is freedom. ~~Dwight D. Eisenhower
+ - Freedom is never voluntarily given by the oppressor; it must be demanded by the oppressed. ~~Martin Luther King Jr.
+ - Democracy is the theory that the common people know what they want, and deserve to get it good and hard. ~~H. L. Mencken
+ - Have a vision. Be demanding. ~~Colin Powell
+ - You can’t separate peace from freedom because no one can be at peace unless he has his freedom. ~~Malcolm X
+ - Underlying most arguments against the free market is a lack of belief in freedom itself. ~~Milton Friedman
+ - We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution. ~~Abraham Lincoln
+ - Peace is more than just an absence of war. True peace is justice, true peace is freedom, and true peace dictates the recognition of human rights. ~~Ronald Reagan
+ - Everything that is really great and inspiring is created by the individual who can labor in freedom. ~~Albert Einstein
+ - To have faith is to trust yourself to the water. When you swim you don’t grab hold of the water, because if you do you will sink and drown. Instead you relax, and float. ~~Alan Watts
+ - I am free because I know that I alone am morally responsible for everything I do. I am free, no matter what rules surround me. If I find them tolerable, I tolerate them; if I find them too obnoxious, I break them. I am free because I know that I alone am morally responsible for everything I do. ~~Robert A. Heinlein
+ - To laugh often and much; to win the respect of intelligent people and the affection of children, to leave the world a better place, to know even one life has breathed easier because you have lived, this is to have succeeded. ~~Ralph Waldo Emerson
+ - There may be times when we are powerless to prevent injustice, but there must never be a time when we fail to protest. ~~Elie Wiesel
+ - Democracy means simply the bludgeoning of the people by the people for the people. ~~Oscar Wilde
+
+40 quotes

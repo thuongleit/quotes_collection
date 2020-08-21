@@ -1,0 +1,24 @@
+ - If you listen to the wind very carefully, you’ll be able to hear me whisper my love for you.
+ - With every fragment of rock that fall from me, I can hear the voice of Marianne Engle. I love you. Aishiteru. Ego amo te. Ti amo. Eg elska pig. Ich liebe dich. It is moving across time, coming to me in every language of the world, and it sounds like pure love.
+ - Love is an action you must repeat ceaselessly.
+ - If you cannot love the pain, you can at least love the lessons it teaches.
+ - Accidents ambush the unsuspecting, often violently, just like love.
+ - Only a man unable to handle the actual world would create another one in which to hide.
+ - Everything burns if the flame is hot enough. The world is nothing but a crucible.
+ - Love is as strong as death, as hard as hell.
+ - You’ll swoop from incredible highs when you’re just glad to be alive, to those lows when you wish you were dead. And just when you start thinking that you’ve accepted who you are, that changes, too. Because who you are is not permanent.
+ - I envy all suffering, because suffering is necessary to become spiritually beautiful.
+ - That which is painful sharpens one’s love.
+ - Perhaps there are just some things you leave behind when you choose a new life.
+ - It doesn’t matter how fast you move, I learned, if you never go anywhere.
+ - Didn’t anyone ever tell you that the mouth is the front gate of all misfortune?
+ - The true master knows that if he had a God he could understand, he would never hold Him to be God.
+ - Heaven is an idea constructed by man to help him cope with the fact that life on earth is both brutally short and, paradoxically, far too long.
+ - I am not a hero in soul and never will be, but I am better than I was before. Or so I tell myself; and for now that is enough.
+ - Who would have guessed that the monster of fraud was a democracy?
+ - Things should be judged by distance traveled rather than by current position.
+ - Vanity is both a great motivator and a great deceiver.
+ - All history is just one man trying to take something away from another man, and usually it doesn’t really belong to either of them.
+ - There I lay, wearing dead people as armor against death.
+
+22 quotes

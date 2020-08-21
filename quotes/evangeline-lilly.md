@@ -1,0 +1,94 @@
+ - The world is full of opportunities, and I want to try as many as I possibly can.
+ - My home is my castle, and I spend a lot of time nurturing it, redecorating – moving this and adjusting that, adding flowers and candles.
+ - My bedroom is my sanctuary. It’s the only place in the house that has a beautiful lush shag rug, which is my favorite.
+ - I’m a very stubborn woman and I’m from a very stubborn family of headstrong women. I have sisters, so the women rule the coop in my house.
+ - I’m very proud of being a woman, and as a woman, I don’t even like the word feminism because when I hear that word, I associate it with women trying to pretend to be men, and I’m not interested in trying to pretend to be a man. I don’t want to embrace manhood, I want to embrace my womanhood.
+ - That’s what happens in Hollywood. People are like, ‘I want to hate you, because everyone else seems to love you.’ But the reality is this: I’m a simple person who’s not interested in attention and who just wants to go about her business.
+ - There is a little bit of evil in all of us, and it’s very easy to draw that out.
+ - Money is the longest route to happiness.
+ - If you watch a film from beginning to end, with no women in it, it’s really difficult.
+ - As I grew older, I developed a very innate passion for art. I was actually pretty good at it.
+ - Even if you’re unhappy, just pretend that you’re happy. Eventually, your smile will be contagious to yourself. I had to learn that, I used to think, I’m being fake, but you know what? Better to be fake and happy than real and miserable.
+ - Nature inspires us. Not being able to reach out and touch it, or see it, makes me get really antsy.
+ - I read every single letter. Some just break my heart. I’ve cried over letters that have come in, from young women and older women alike, saying to me, “You know, you made me want to stop crash dieting and just be healthy. You are my role model. I want to be like you.”
+ - If your home is peaceful, then you’re going to go out in your day peacefully.
+ - I love being outside – that’s where I’m the happiest.
+ - I felt like I was a good woman, a good person. But I was sinking deeper and deeper into depression, because my soul wasn’t living. I was purposely holding down my soul and my spirit. It was dying inside of me.
+ - Outside of acting, the person that I admire the most is my mother.
+ - I cried myself to sleep wishing I was ugly because men leered and disrespected me.
+ - I’m very sensitive. Emotionally, I bruise very easily. I’m a Leo, and this is very characteristic of our sign.
+ - I’m very picky when it comes to men. I come across a man who I’m really attracted to about once every five years.
+ - Truthfully, I love being in the jungle. I love it when the make-up artists come to set, they come equipped with dirt and sweat. I spend my days climbing trees and I can crawl out of bed and walk on set and that’s exactly all I have to look like.
+ - I’m surrounded by people who care about me and love me. I have a great job. I have wonderful roommates who take care of me. I have a family who adores me.
+ - I love the creative end of acting. But I hate fame.
+ - I bought almost every single thing that I furnished my house with at the Salvation Army in Hawaii. All second hand. Some of them are kind of retro, and some of them you’d never know.
+ - I just like short hair on women; I think its cool.
+ - I just wanted friends. I just wanted people to like me. I just wanted for things to be simple and good. So, for five years I actively sought out mediocrity.
+ - I eventually want to come back to Canada, to disappear, have nobody know me, and just be a writer and do what I want to do.
+ - The people on my mum’s side of the family are atheist intellectuals who are ueber-proper. My dad’s side of the family are missionaries who are more comfortable sitting around in sweatpants than they are in a five-star restaurant. But those two influences converged in my life.
+ - To put it simply – you know, a lot of people believe that the benefit of this job is fame and fortune. I believe that you pay for the fortune through the fame. I don’t buy into the notion that being famous is somehow a good thing, or an exciting thing, or a wonderful thing.
+ - I have to have nature around me. I love the earth and this insanely beautiful creation that we live in. I just think it’s to be marveled at and appreciated. It gives us life.
+ - I try my very hardest to remember that I don’t have to be anything but Evangeline. That’s all that’s expected of me. And if I try to be more or less, I will fall flat on my face. So if I just continue to hold my head high and keep myself in check, I’m being who I was born to be.
+ - The difference in my body from pre-pregnancy to post-baby was night and day. I didn’t have the strength, I didn’t have the flexibility, I didn’t have the stamina, I didn’t have the mobility. I felt like I was handicapped.
+ - I tended to be a solitary young girl, and I still am. I would like to find a quiet corner and color in my coloring book. When I think back, I made that corner mine, not really caring about the rest of the house.
+ - Even though I’m resting I’m accomplishing something by sewing that shirt that I’ve been meaning to sew for weeks. And it’s relaxing. It’s so very meditative and quiet and enjoyable. But at least I’m producing something. I’m being productive in some way. I have a very hard time being completely idle.
+ - As a filmmaker, you have to understand the essence of the book and tell the story you want to see on the screen, and hopefully please yourself – because you cant possibly please everyone.
+ - Diets are a fool’s errand. I eat something sweet every day, whether it’s chocolate or a cookie. If I don’t, I guarantee you that there’s going to be a day every week when I’m going to stuff myself, especially if it’s PMS time.
+ - I changed jobs like I changed shirts. It was something I just like to do – I like trying my hand at everything.
+ - I like ambiguity. I think it’s so much more interesting to play than an overtly good or an overtly evil person.
+ - If Americans could choose, would they choose to work on the infrastructure for cancer-causing oil power or would they choose to work on the infrastructure for health-reviving wind power?
+ - Writing is my number one passion. I’ve written two novels. I’ve written a screenplay. I also write short stories and poetry.
+ - I’ve had to find my sanity.
+ - When I got the job on ‘Lost,’ I was a broke university student living in the crappiest part of town, with a duct-taped back window on a broken-down car. I existed on peanut butter and tea.
+ - The directors did an amazing job and Josh Holloway is just he’s just shining. I think that, of the people I started working with, he’s one of the people I’m most impressed with. How he’s grown and learned and he’s been just stunning everyone with his performances.
+ - When I was young I was soft spoken and a little bit timid and passive. My dream then was to be a ballerina or a figure skater – something very delicate.
+ - Ironically, when I hit adolescence, I was approached about modeling and acting all the time. And, for five years, I said, “No, I’m not interested. I want a simple life, I don’t want to be in the spotlight.”
+ - Every night I bring home flowers and burn candles. And I have a real sense that home is what starts everything inside of you.
+ - I was a good student, I was good at soccer, I was vice president of the student council, I was a pretty girl.
+ - There are jobs to be created on both sides of the climate argument. Whether we are investing in oil or sun, coal or wind, gas or algae, the economy will be stimulated by the investment. The economy, unlike each of us, is not swayed by ideology.
+ - I love getting older! I really believe that a woman doesn’t reach her peak until her 40s.
+ - I have these huge, pointed ears. They’re like three times the size of Orlando Bloom’s ears. And I think he has ear envy, I love my ears.
+ - I don’t know why, but the warmth and the comfort of flickering light help. And a fire, in the fireplace or on the beach, is very comforting. I think when you make something consistent and familiar, it helps. I light candles every single night in my home.
+ - I would love to pretend I don’t diet, but I work very hard. I stay active and eat very healthy. Anybody who says otherwise is either unhealthy or lying! I will admit that I’m addicted to sugar – licorice, Jujubees and jelly candies. And I actually love bran muffins!
+ - I just really like ants, and I really like science. I was interested and curious about the quantum world and the physics behind how it all works.
+ - My family didn’t have a lot of money, and I’m grateful for that. Money is the longest route to happiness.
+ - I have two roommates, so it’s a challenge to keep the house the way I like.
+ - I don’t have the educated knowledge of what textures, colors, shapes and spaces need to be put together to make something just right. I’m learning it by trial and error, which is something that’s slow going.
+ - Originally, I wanted to do humanitarian work. I actually feel that getting into acting, which fate has led me to, is my window and path into humanitarian work. I always said I want to do something important. And I feel this work is what’s helping me get there.
+ - I like fantasy. I like worlds where sometimes you need the special effects to make it come alive, but it’s not so fun acting it.
+ - I definitely come down on the spiritual side. I think very few things in life happen by chance.
+ - I think doing a female Elf in the Woodland realm was a bit safer, because we haven’t met one of those yet.
+ - I made a conscious decision when I was about 17 years old to strive towards mediocrity. I completely abandoned the idea of grandeur and importance, and I wanted to be mediocre.
+ - I love my home. It’s the only thing I really spend money on. I don’t really spend a lot of money on anything else. No fancy cars. No designer clothes.
+ - I like to be around people who make me laugh. It’s one of my favorite things on a set. I hate it when people take themselves serious in a film set.
+ - I’m always changing things around. I have to change it all the time. I’m rearranging furniture and taking down paintings and putting up new ones, and buying new pieces of art.
+ - I consider acting a day job – it’s not my dream; it’s not my be-all, end-all.
+ - I don’t want everyone to think of me as just ‘that kid who called Jesse Jackson a communist in middle school.’ That’s why I decided to become a famous actress.
+ - When I pick a role, one of the things that I aspire to is that somebody’s parent will come up to me after the film has come out and say, “My daughter idealizes that character. You’re her hero.” That’s what I aim for. We’re in the business of making heroes.
+ - I know I can never work in a comedy because I can’t keep a goddamn straight face.
+ - A month and a half after my first audition, I won the role on Lost.
+ - The way I’ve been able to embrace fame is by realizing that celebrity is just a means to send whatever message you want out into the world.
+ - When I was little, I attended five different elementary schools. My parents are very restless people, which is probably where I get my own nomadic lifestyle from.
+ - You can’t have a movie with a group of people that are significant players in the story, that push forward the plot, without introducing at least one or two of them.
+ - I didn’t grow up in a home that glorified Hollywood. We didn’t watch TV. We didn’t have a lot of magazines around.
+ - For me there’s a need for balance – fulfilling the sensitive side, letting my guard down, holding back the warrior in me. And I have to be vulnerable which is very hard for me to do.
+ - I adore having people over to my home. My number one reason I love that is because I love to see people at ease with each other.
+ - I started to do everything I could to succeed, but found that the more successful I became, the less people liked me.
+ - I always wear something slightly masculine.
+ - I am who I am and I am what I am. And it’s beautiful. And it’s okay even if it doesn’t look like the sexiest Victoria Secret model. It also boils down to my interactions with people.
+ - One of the great pleasures of working in Middle Earth is you get to be another being.
+ - In your 20s you can be pretty, but you don’t accomplish real beauty until you find wisdom and depth.
+ - I just don’t think that a lot of the time the messages we send kids prepare them for real life.
+ - Acting is something I appreciate, and I think it’s been an amazing experience. But I’m not passionate about acting the way you probably should be to call yourself an actor.
+ - I actually write as a passion, as something I actually am more passionate about than acting.
+ - It’s not your circumstances that make or break your day. It’s your attitude!
+ - My heart is in helping people and in the less materialistic side of things, but there’s the side of me that’s more polished.
+ - I enjoy the idea that even though I’m resting, I’m accomplishing something by reading a book.
+ - I am so glad that I get to maintain a relatively down-to-earth lifestyle.
+ - I think my style is very eclectic, because I love so many different things. And, that’s true, too, in almost every aspect of my life. I can go from really edgy to tailored and professional, and I just love to change things up.
+ - I think one of the things that is easy to have happened in a superhero story is that the female character, whether she be a heroine or not, can often be the wart on the man.
+ - Every woman is after a kind of classy image.
+ - As an actress, and as a person, I really admire Diane Keaton. She’s feisty, strong, beautiful and talented, and intelligent.
+ - I haven’t sat down and memorized the language of Elvish, and anyone who does that is crazy!
+
+92 quotes

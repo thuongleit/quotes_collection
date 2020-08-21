@@ -1,0 +1,64 @@
+ - By constant self-discipline and self-control you can develop greatness of character.
+ - You grow your best thoughts in silence, solitude, and meditation. When you relax and think deeply, you are giving your inmost powers their best opportunity to disclose themselves.
+ - Every good thought you think is contributing its share to the ultimate result of your life.
+ - By the time you learn the rules of life, you’re too old to play the game.
+ - To every problem there is already a solution whether you know it or not.
+ - Good humor is a tonic for mind and body. It is the best antidote for anxiety and depression. It is a business asset. It attracts and keeps friends. It lightens human burdens. It is the direct route to serenity and contentment.
+ - Church members are either pillars or caterpillars. The pillars hold up the church, and the caterpillars just crawl in and out.
+ - Learn to depend upon yourself by doing things in accordance with your own way of thinking.
+ - The great things you intend to do some time must have a beginning if they are ever to be done, so begin something worthwhile today.
+ - Better untaught than ill-taught.
+ - Life does not stand still. Where there is no progress, there is disintegration.
+ - Let your intentions be good – embodied in good thoughts, cheerful words, and unselfish deeds – and the world will be to you a bright and happy place in which to work and play and serve.
+ - Make your judgment trustworthy by trusting it. Cultivate regular periods of silence and meditation. The best time to build judgment is in solitude, when you can think out things for yourself without the probability of interruption.
+ - To every problem there is already a solution, whether you know it or not. To every sum in there is already a correct answer, whether the mathematician has found it or not.
+ - The way to health, harmony, and happiness is primarily mental.
+ - Vigilantly guard your mind against erroneous and destructive thought as you would guard your house against burglars and assassins.
+ - The habit of being uniformly considerate towards others will bring increased happiness to you.
+ - The quality of your thoughts determines the quality of your personal character.
+ - Today is the day in which to attempt and achieve something worthwhile.
+ - A woman’s heart is much like the moon, always changing but always has a man in it.
+ - Do not let trifles disturb your tranquility of mind. The little pin-pricks of daily life when dwelt upon and magnified, may do great damage, but if ignored or dismissed from thought, will disappear from inanition.
+ - Keep a definite goal of achievement constantly in view. Realize that work well and worthily done makes life truly worth living.
+ - Make the most of today. Translate your good intentions into actual deeds.
+ - A ton of regret never makes an ounce of difference.
+ - Discreetly keep most of your radical opinions to yourself. When with people be a listener a large part of the time. Be considerate in every word and act, and resist the tendency to say clever things. The best evidence of your culture is the tone and temper of your conversation.
+ - You can develop good judgement as you do the muscles of your body – by judicious, daily exercise.
+ - Cultivate the giving habit as you do the saving habit.
+ - Be an earnest student of yourself. Study your leading desires and tendencies.
+ - There are many fine things which you mean to do some day, under what you think will be more favorable circumstances. But the only time that is yours is the present.
+ - To get the most out of your life, plant in your mind seeds of constructive power that will yield fruitful results.
+ - Death is God’s way of telling you not to be such a wise guy.
+ - The world needs all the help you can give by way of cheerful, optimistic, inspiring thought and personal example.
+ - It is often better to have a great deal of harm happen to one than a little; a great deal may rouse you to remove what a little will only accustom you to endure.
+ - People around you are quick to read your attitude of thought toward them. Inner thoughts and feelings are communicated in ways other than by the spoken word.
+ - You are already of consequence in the world if you are known as a man of strict integrity.
+ - You were intended not only to work, but to rest, laugh, play, and have proper leisure and enjoyment. To develop an all-around personality you must have interest outside of your regular vocation that will serve to balance your business responsibilities.
+ - The habit of being uniformly considerate toward others will bring increased happiness to you. As you put into practice the qualities of patience, punctuality, sincerity and solicitude, you will have a better opinion of the world about you.
+ - The principal object of your reading should be for the acquisition of useful knowledge, and the strengthening, refining, and ennobling of your character.
+ - There is honor in labor. Work is the medicine of the soul. It is more: it is your very life, without which you would amount to little.
+ - A word to the wise isn’t as good as a word from the wise.
+ - Most men have worried about things which never happened, and more men have been killed by worry than by hard work.
+ - Today a thousand doors of enterprise are open to you, inviting you to useful work.
+ - Defeat isn’t bitter if you don’t swallow it.
+ - The good thoughts you send out to others will return to you multiplied.
+ - A rumor is like a check – never endorse it till you’re sure it’s genuine.
+ - Your mind grows through use.
+ - Actions are destiny’s pen.
+ - Thought rules mankind.
+ - Books are ever available friends, ready to serve you at will.
+ - When you want a thing deeply, earnestly and intensely, this feeling of desire reinforces your will and arouses in you the determination to work for the desired object.
+ - Today is the day in which to express your noblest qualities of mind and heart, to do at least one worthy thing you have long postponed.
+ - Today a thousand doors of enterprise are open to you, inviting you to useful work. To live at this time is an inestimable privilege, and a sacred obligation devolves upon you to make right use of your opportunities. Today is the day in which to attempt and achieve something worthwhile.
+ - Make your judgment trustworthy by trusting it.
+ - If you are willing, great things are possible to you.
+ - Study words so that you can use them significantly, effectively, worthily.
+ - Cheerfulness has a directly beneficial influence upon health.
+ - Periods of wholesome laziness, after days of energetic effort, will wonderfully tone up the mind and body.
+ - The most successful men have used seeming failures as stepping stones to better things.
+ - This is the time to speak the word of appreciation.
+ - It is possible to make each year bring with it a lasting gift to add to the fullness of experience, to be treasured up, savored, and remembered. They need not be startling, these gifts of the years; they may be things that lie within the reach of all.
+ - Let the spirit of your work be right, and whether your task be great or small you will then have the satisfaction of knowing it is worth while.
+ - You need have no dull hours if you are a sincere lover of books.
+
+62 quotes

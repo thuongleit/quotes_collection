@@ -1,0 +1,390 @@
+ - Morning is an important time of day, because how you spend your morning can often tell you what kind of day you are going to have.
+ - He who hesitates is lost.
+ - Do the scary thing first, and get scared later.
+ - At times the world may seem an unfriendly and sinister place, but believe that there is much more good in it than bad. All you have to do is look hard enough. and what might seem to be a series of unfortunate events may in fact be the first steps of a journey.
+ - The world is quiet here.
+ - If we wait until we’re ready, we’ll be waiting for the rest of our lives.
+ - Every problem has a solution. Sometimes it just takes a long time to find the solution – even if it’s right in front of your nose.
+ - Sometimes words are not enough. There are some circumstances so utterly wretched that I cannot describe them in sentences or paragraphs or even a whole series of books.
+ - Sometimes words are not enough.
+ - When things don’t go right, go left.
+ - In love, as in life, one misheard word can be tremendously important. If you tell someone you love them, for instance, you must be absolutely certain that they have replied “I love you back” and not “I love your back” before you continue the conversation.
+ - A mystery is solved with a story.
+ - For Beatrice, summer without you is as cold as winter. Winter without you, is even colder.
+ - Don’t repeat yourself. It’s not only repetitive, it’s redundant, and people have heard it before.
+ - For Beatrice, our love broke my heart, and stopped yours.
+ - A library is like an island in the middle of a vast sea of ignorance, particularly if the library is very tall and the surrounding area has been flooded.
+ - Your initial opinion on just about anything may change over time.
+ - It was a curious feeling, that something could be so close and so distant at the same time.
+ - It is a lonely feeling when someone you care about becomes a stranger.
+ - I don’t know if you’ve ever noticed this, but first impressions are often entirely wrong.
+ - Just because you don’t understand it doesn’t mean it isn’t so.
+ - Keep anyone with whom you can read in silence.
+ - No reality has the power to dispel a dream.
+ - I’m telling you why we broke up, Ed. I’m writing this letter, the whole truth of why it happened. And the truth is that I goddamn loved you so much.
+ - Grammar is the greatest joy in life, don’t you find?
+ - There are many, many types of books in the world, which makes good sense, because there are many, many types of people, and everybody wants to read something different.
+ - I was stupid, the official descriptive phrase for happy.
+ - It is my fate that some of my questions will never be answered.
+ - I stand entwined in fire on the inextinguishable bonfire of inconceivable love.
+ - It was darker than a pitch-black panther, covered in tar, eating black licorice at the very bottom of the deepest part of the Black Sea.
+ - But I must admit I miss you terribly. The world is too quiet without you nearby.
+ - Someone can break your heart, leave you dead on the lawn, and still you never learn what to say to stop it all over again.
+ - We are all told to ignore bullies. It’s something they teach you, and they can teach you anything. It doesn’t mean you learn it. It doesn’t mean you believe it. One should never ignore bullies. One should stop them.
+ - When trouble strikes, head to the library. You will either be able to solve the problem, or simply have something to read as the world crashes down around you.
+ - Is it OK not to be a virgin, yes. Most people aren’t virgins, Min. That’s why there’s people to begin with.
+ - Miracles can happen, even to those who are small, flammable, and dressed all in black.
+ - Life never end when you are in it.
+ - This knowledge sits in my heart, heavy as a paperweight.
+ - Just because something is traditional is no reason to do it, of course. Piracy, for example, is a tradition that has been carried on for hundreds of years, but that doesn’t mean we should all attack ships and steal their gold.
+ - There is no easy way to train an apprentice. My two tools are example and nagging.
+ - Grief, a type of sadness that most often occurs when you have lost someone you love, is a sneaky thing, because it can disappear for a long time, and then pop back up when you least expect it.
+ - Just about everything in this world is easier said than done, with the exception of “systematically assisting Sisyphus’s stealthy, cyst-susceptible sister,” which is easier done than said.
+ - An Overall Feeling of Doom that One Cannot Ever Escape no Matter What One Does.
+ - Anyone who thinks the pen is mightier than the sword has not been stabbed with both.
+ - There is only laughing across the land as the car moves you along, on your way someplace with love in the car.
+ - Perhaps if we saw what was ahead of us, and glimpsed the follies, and misfortunes that would befall us later on, we would all stay in our mother’s wombs, and then there would be nobody in the world but a great number of very fat, very irritated women.
+ - I think pirates, like astronauts, particularly for a boy, are always kind of worth thinking about.
+ - I always think it’s silly when people talk about works of culture taking risks. Because there’s not any risk involved.
+ - For Beatrice- When we were together I felt breathless. Now you are.
+ - If everyone fought fire with fire, the whole world would go up in smoke.
+ - For Beatrice, I cherished, you perished, The world’s been nightmarished.
+ - For Beatrice, when we met, my life began. Soon afterwards, yours ended.
+ - Either you have the feeling or you don’t. Hawk Davies.
+ - That night was a dark day. Of course, all nights are dark days, because night is simply a badly lit version of day,...
+ - Sometimes the things you’ve lost can be found again in unexpected places.
+ - I love no one but you, I have discovered, but you are far away and I am here alone.
+ - Appearance matters a great deal because you can often tell a lot about people by looking at how they present themselves.
+ - Death is something you cannot escape, such as death, or a cheesecake that has curdled, both of which always turn up sooner later.
+ - For Beatrice, when we first met, I was lonely, and you were pretty. Now I am pretty lonely.
+ - All cannot be lost when there is still so much being found.
+ - You can invent things like automatic popcorn poppers. You can invent things like steam-powered window washers. But you can’t invent more time.
+ - Assumptions are dangerous things to make, and like all dangerous things to make – bombs, for instance, or strawberry shortcake – if you make even the tiniest mistake you can find yourself in terrible trouble.
+ - The way sadness works is one of the strange riddles of the world. If you are stricken with a great sadness, you may feel as if you have been set aflame, not only because of the enormous pain, but also because your sadness may spread over your life, like smoke from an enormous fire.
+ - This is an absurd moral, for you and I both know that sometimes not only is it good to lie, it is necessary to lie.
+ - Wherever it’s good, whatever strange, faraway land, let’s go there, let’s stay in that place alone.
+ - One wanders through life as if wandering through a field in the dark of night, wearing a blindfold and very heavy shoes, with a poisonous toad waiting patiently beneath a clump of weeds, knowing full well that eventually you will step on him.
+ - I didn’t realize this was a sad occasion.
+ - Anyone who gives you a cinnamon roll fresh out of the oven is a friend for life.
+ - People don’t always get what they deserve in this world.
+ - Accidents happen all the time.
+ - I wore it, this careless thing you don’t even remember giving to me from your bag. It wasn’t a gift, this thing I’m returning. It was barely a gesture, almost forgotten already, this thing I wore like it was dear to me. And it was. No wonder we broke up.
+ - Dead women tell no tales. Sad men write them down.
+ - It is not always the job of people shouting outside impressive buildings to solve problems. It is often the job of the people inside, who have paper, pens, desks, and an impressive view.
+ - Literature doesn’t exactly have a strong mental-health track record.
+ - I’d ruin any day, all my days, for those long nights with you, and I did.
+ - The trick to following someone without getting caught is to follow somebody who doesn’t think they’re being followed.
+ - Desperation is like a spilled drink; even if it’s delicious, no one will get near it. Cultivate an aura of glamorous unapproachability.
+ - Certain people have said that the world is like a calm pond, and that anytime a person does even the smallest thing, it is as if a stone has dropped into the pond, spreading circles of ripples further and further out, until the entire world has been changed by one tiny action.
+ - I’m happier than a pig eating bacon!
+ - Friends can make you feel that the world is smaller and less sneaky than it really is, because you know people who have similar experiences.
+ - One of the most difficult things to think about in life is one’s regrets. Something will happen to you, and you will do the wrong thing, and for years afterward you will wish you had done something different.
+ - Miracles are like meatballs, because nobody can exactly agree on what they are made of, where they come from, or how often they should appear.
+ - For Beatrice – My love for you shall live forever. You, however, did not.
+ - Someone feeling wronged is like someone feeling thirsty. Don’t tell them they aren’t. Sit with them and have a drink.
+ - I started making plans, thinking we would get that far.
+ - Everything else has vanished, so you take them now. Maybe if you’re the one keeping them, I’ll be the one feeling better.
+ - It is not the diamonds or the birds, the people or the potatoes; it is not any of the nouns. The miracle is the adverbs, the way things are done. It is the way love gets done despite every catastrophe.
+ - I want to love you and take you pretty places. Yes, I have things wrong, but also I can walk through walls if you’ll let me show you.
+ - Temper tantrums, however fun they may be to throw, rarely solve whatever problem is causing them.
+ - There are two types of panicking: standing still and not saying a word, and leaping all over the place babbling anything that comes into your head.
+ - It is difficult, when faced with a situation you cannot control, to admit you can do nothing.
+ - It is very difficult to make one’s way in this world without being wicked at one time or another, when the world’s way is so wicked to being with.
+ - The Basic Eight and Watch Your Mouth both have first-person voices, and I ended up investigating those voices and investing so much in them that I think many people took them more seriously than they ought to have.
+ - The sad truth is the truth is sad.
+ - It is very unnerving to be proven wrong, particularly when you are really right and the person who is really wrong is proving you wrong and proving himself, wrongly, right.
+ - The thing with your heart’s desire is that your heart doesn’t even know what it desires until it turns up.
+ - You can’t believe everything you read.
+ - I will love you as the iceberg loves the ship, and the passengers love the lifeboat and the lifeboat loves the teeth of the sperm whale, and the sperm whale loves the flavor of naval uniforms.
+ - There are those who say that life is like a book, with chapters for each event in your life and a limited number of pages on which you can spend your time. But I prefer to think that a book is like a life, particularly a good one, which is well to worth staying up all night to finish.
+ - How do you forget something? You just walk away from it, those who are still alive. There are so few clearings in our hearts and minds, so few places where something can’t grow on top of whatever happened to us before, and this is love too.
+ - When someone is crying, of course, the noble thing to do is to comfort them. But if someone is trying to hide their tears, it may also be noble to pretend you do not notice them.
+ - Tears are curious things, for like earthquakes or puppet shows, they can occur at any time, without any warning and without any good reason.
+ - It is terribly rude to tell people that their troubles are boring.
+ - Labor Day is a holiday honoring those who work for a living. Laborious Day is a lesser known holiday honoring those who cannot stop talking about their work.
+ - I don’t know why wicked places generally look wicked. You’d think they’d look nice, to fool people, but they hardly ever do.
+ - Like a church bell, a coffin, and a vat of melted chocolate, a supply closet is rarely a comfortable place to hide.
+ - There are two kinds of fears: rational and irrational- or in simpler terms, fears that make sense and fears that don’t.
+ - Every time you enter a library you might say to yourself, “The world is quiet here,” as a sort of pledge proclaiming reading to be the greater good.
+ - Historically, a story about people inside impressive buildings ignoring or even taunting people standing outside shouting at them turns out to be a story with an unhappy ending.
+ - The worst surroundings in the world can be tolerated if the people in them are interesting and kind.
+ - Count Olaf certainly does sound evil. Imagine forcing children to stand near a stove!
+ - Frustration is an interesting emotional state, because it tends to bring out the worst in whoever is frustrated.
+ - With a library it is easier to hope for serendipity than to look for a precise answer.
+ - A passport, as I’m sure you know, is a document that one shows to government officials whenever one reaches a border between two countries, so that the official can learn who you are, where you were born, and how you look when photographed unflatteringly.
+ - She gave me a hug and for a second I was embraced by a body that makes me want to go home and never eat again.
+ - Why not rise from the grave and terrorize a little instead of staying buried and dead in the cemetery?
+ - You know, there’s a big world out there filled with desperate orphans who would gladly swim across an ocean of thumbtacks just to be eclipsed by the long shadow that is cast by my accomplishments.
+ - Complimenting someone in an exaggerated way is known as flattery, and flattery will generally get you anything you want...
+ - Announcing your death should be like announcing that you are a lunar moth: It must be done quietly or it will not be believed.
+ - It is always sad when someone leaves home, unless they are simply going around the corner and will return in a few minutes with ice-cream sandwiches.
+ - Love can smack you like a seagull, and pour all over your feet like junkmail. You can’t be ready for such a thing any more than salt water taffy gets you ready for the ocean.
+ - Taking one’s chances is like taking a bath, because sometimes you end up feeling comfortable and warm, and sometimes there is something terrible lurking around that you cannot see until it is too late and you can do nothing else but scream and cling to a plastic duck.
+ - Young writers should read books past bedtime and write things down in notebooks when they are supposed to be doing something else.
+ - Never, under any circumstances, let the Virginian wolfsnake near a typewriter.
+ - The expression ‘Those who can’t do, teach’ is a curious one, because if you look at the world, you’ll see that teachers aren’t particularly worse at doing things than anyone else, so perhaps the expression might be better worded as ’nobody can do anything.
+ - It is easy to decide on what is wrong to wear to a party, such as deep-sea diving equipment or a pair of large pillows, but deciding what is right is much trickier.
+ - A bolt from the blue.
+ - This is my knife. It is very sharp and very eager to hurt you.
+ - A successful villain should have all these things at his or her villainous fingertips, or else give up villainy altogether and try to lead a life of decency, integrity, and kindness, which is much more challenging and noble, if not always quite as exciting.
+ - It was a secret time and place, you next to me, untraceable and out of this world.
+ - For every teenager I know, having a phone is a mixed blessing, because your parents can press a button and figure out where you are.
+ - They say in every library there is a single book that can answer the question that burns like a fire in the mind.
+ - This is love, and the trouble with it: it can make you embarrassed. Love is really liking someone a whole lot and not wanting to screw that up. Everybody’s chewed over this. This unites us, this part of love.
+ - Klaus sighed, and opened a book, and as at so many other times when the middle Baudelaire child did not want to think about his circumstances, he began to read.
+ - Hello, freaky peoples!
+ - It looked exhausting and pointless, two things that should be avoided at all costs.
+ - Put your hair up, Min. The secret ingredient is not your hair.
+ - There’s an easy method for finding someone when you hear them scream. First get a clean sheet of paper and a sharp pencil. Then sketch out nine rows of fourteen squares each. Then throw the piece of paper away and find whoever is screaming so you can help them. It is no time to fiddle with paper.
+ - The real Santa Claus is at the mall.
+ - Oftentimes. when people are miserable, they will want to make other people miserable, too. But it never helps.
+ - I think we’ll always miss our parents. But I think we can miss them without being miserable all the time. After all, they wouldn’t want us to be miserable.
+ - Besides getting several paper cuts in the same day or receiving the news that someone in your family has betrayed you to your enemies, one of the most unpleasant experiences in life is a job interview.
+ - You’d think that sweet would be a land far, far away from irritating, but as it turns out they’re right next door, and always having border disputes.
+ - Well-read people are less likely to be evil.
+ - My general writing preface is to write an outline and then ignore about half of it, both on a micro level with the individual book, and on a macro level with the series as a whole, and that’s pretty much what’s happened.
+ - It is one of the peculiar truths of life that people often say things that they know full well are ridiculous.
+ - The way sadness works is one of the strangest riddles of the world.
+ - The story of the Baudelaires takes place in a very real world, where some people are laughed at just because they have something wrong with them, and where children can find themselves all alone in the world, struggling to understand the mystery that surrounds them.
+ - If I were to say, “Yes, I am a fascinating, erudite person,” what would that say about me? I don’t know.
+ - If you are allergic to a thing, it is best not to put that thing in your mouth, particularly if the thing is cats.
+ - What happens in a certain place can stain your feelings for that location, just as ink can stain a white sheet.
+ - You meet people who are in pain in life and love and you forgive them for behaving the way they do.
+ - It seemed to me that every adult did something terrible sooner or later. And every child, I thought, sooner or later becomes an adult.
+ - Having a personal philosophy is like having a pet marmoset, because it may be very attractive when you acquire it, but there may be situations when it will not come in handy at all.
+ - A good thing to do when one is sitting, eating, and resting is to have a conversation.
+ - The only thing he cares about.
+ - I am heartbroken, but I have been heartbroken before, and this might be the best for which I can hope.
+ - There are many things in life that become different if you take a long look at them.
+ - I think if I were walking someplace and I saw a corpse my brain would tell me it was a million things before I believed it was a corpse.
+ - I was too jitterbuggy happy to sleep, and the whole day kept playing in my brain’s little screening room.
+ - How can someone so wonderful do something so terrible?
+ - I can’t imagine why you would want to take your child to see what the career of a writer is like, because it mostly consists of sitting in a room typing, or going to the library and looking something up. Those are not exciting things to watch.
+ - This feeling is not unlike the sinking in one’s stomach when one is in an elevator that suddenly goes down, or when you are snug in your bed and your closet door suddenly creaks open to reveal the person who has been hiding there.
+ - It is always tedious when someone tells you that if you don’t stop crying, they will give you something to cry about, because if you are crying then you already have something to cry about, and so there is no reason for them to give you anything additional to cry about, thank you very much.
+ - The moral of Snow White is never eat apples.
+ - Figuratively, they escaped from Cout Olaf and their miserable existence. They did not literally escape, because they were still in his house and vulnerable to Olaf’s evil in loco parentis ways.
+ - I stayed there loving you, though the love made me, not sad but I guess melancholy, for a reason I couldn’t point to.
+ - It is one of life’s bitterest truths that bedtime so often arrives just when things are really getting interesting.
+ - Adverbs is a book about love, and I thought that was pretty cheerful, but people who are reading it now are telling me that it’s actually quite dark.
+ - But the world did not match the picture in my head, and instead I was with a strange, uncombed person, overlooking a sea without water and a forest without trees.
+ - Sometime during your life – in fact, very soon – you may find yourself reading a book, and you may notice that a book’s first sentence can often tell you what sort of story your book contains.
+ - The right boys I always toss and the wrong ones I keep on top of me like paperweights.
+ - The last safe place is safe no more.
+ - For Beatrice – you will always be in my mind, in my heart and in your grave.
+ - Members of your family might say they are working hard all day long, while you are off at school or clarinet lessons, but the only way to know this for sure is to follow them at a discreet distance.
+ - There are secrets everywhere. I think everyone’s parents have secrets. You just have to know where to look for them.
+ - The key to good eavesdropping is not getting caught.
+ - I hadn’t even been looking, not for you, and now you were my heart’s desire.
+ - I can see it, Ed, I leaned deeper into you, felt you nodding along with the sounds in the room, and your warmth signaled through to me from under your shirt, lovely strong, safe and right.
+ - When I wrote Rick, I had the idea that I would take the plot of nearly every opera and turn it into a dark film, which is something I still may do.
+ - The Long Goodbye’ is one book I like to read over and over again, and it was an enormous inspiration for ‘All The Wrong Questions’.
+ - They were almond cookies, although they could have been made of spinach and shoes for all I cared. I ate eleven of them, right in a row. It is rude to take the last cookie.
+ - There are few sights sadder than a ruined book.
+ - Wishing, like sipping a glass of punch, or pulling aside a bearskin rug in order to access a hidden trapdoor in the floor, is merely a quiet way to spend one’s time before the candles are extinguished on one’s birthday cake.
+ - We need things, and the opposite of them, and we are so rarely completely comfortable.
+ - It is not very polite to interrupt a person, of course, but sometimes if the person is very unpleasant you can hardly stop yourself.
+ - I like to think that I get better and better as a writer, but it seems pretty easy to me to slip on disguises of various people.
+ - Blinded following the Blindfolded.
+ - Wherever there’s a conductor, you’re sure to find a dead composer!
+ - It looked like something the Hemlock needed, or a piece of equipment a plumber had left behind. It looked like none of your business.
+ - I write storys to entertain not to be the best.
+ - In times of extreme stress, one can often find energy hidden in even the most exhausted areas of the body.
+ - If you have ever slept in a covered casserole dish on the highest peak of a mountain range, then you know that it is an uncomfortable place to lay one’s head, even if you find a dish towel inside it that can serve as a blanket.
+ - I was so grateful that Lemony Snicket wasn’t the worst movie ever made that I overlooked many things that might have otherwise upset me.
+ - There is nothing particularly wrong with salmon, of course, but like caramel candy, strawberry yogurt, or liquid carpet cleaner, if you eat too much of it you are not going to enjoy your meal.
+ - Writing is a dying form. One reads of this every day.
+ - One of the world’s most popular entertainments is a deck of cards, which contains thirteen each of four suits, highlighted by kings, queens and jacks, who are possibly the queen’s younger, more attractive boyfriends.
+ - There’s information about everything from poetry to pills, from picture frames to pyramids, and from pudding to psychology – and that’s just in the P aisle, which we’re walking down right now.
+ - Sometimes, just saying that you hate something, and having someone agree with you, can make you feel better about a terrible situation.
+ - Even the best plans can change if there’s an accident.
+ - Dumping you times infinity. Still not enough.
+ - If you have ever lost a loved one, then you know exactly how it feels. And if you have not, then you cannot possibly imagine it.
+ - Every new promise was like something heavy I had to carry, with no place to put anything down.
+ - The miracle is the adverbs, the way things are done.
+ - Unless you have been very, very lucky, you have undoubtedly experienced events in your life that have made you cry. So unless you have been very, very lucky, you know that a good, long session of weeping can often make you feel better, even if your circumstances have not changed one bit.
+ - Occasionally there are parents who say, “I brought my child so he or she could learn what the career of a writer is like, and you did this long theatrical performance instead, and I’m very disappointed.”
+ - A girl meets a boy, Ed, and everything changes, or so she says.
+ - Everyone tells you it’s all right to cry, but not enough people say it’s all right if you don’t want people to know.
+ - Various parts of my body told me that in the future they would appreciate it if I slept lying down on a bed instead of sitting at the counter of Black Cat Coffee. I quietly reassured them that this was an unusual situation, and had the machinery make me some bread as a breakfast.
+ - Beef. Yes. Roast beef. It’s the Swedish term for beef that is roasted.
+ - Having an aura of menace is like having a pet weasel, because you rarely meet someone who has one, and when you do, it makes you want to hide under the coffee table.
+ - Every night I give a violin recital for six hours, and attendance is mandatory. The word ‘mandatory’ means that if you don’t show up, you have to buy me a large bag of candy and watch me eat it.
+ - Like People, animals will become frightened and likely do whatever you say if you whip them enough.
+ - If you enjoy books with happy endings than you are better off reading some other book.
+ - To stutter through it with you or even stop stuttering and say nothing, was so lucky and soft, better talk than mile-a-minute with anyone. After a few minutes we’d stop rattling, we’d adjust, we’d settle in, and the conversation would speed into the night.
+ - Whenever you are examining someone else’s belongings, you are bound to learn many interesting things about the person of which you were not previously aware.
+ - Here we are at the bottom, almost empty. It’s like confetti, these dried remnants you find in the street for a party no one invited you to. But they used to be, I can admit, part of something beautiful.
+ - For obvious reasons, I never told you about my notebook, with a cover as green as mansions long ago, which I use as a commonplace book, a phrase which here means ’place where I have collected passages from some of the most important books I have read.
+ - Right, good temporarily defeated, is stronger than evil triumphant.
+ - Knowing that something is wrong and doing it anyway happens very often in life, and I doubt I will ever know why.
+ - I was not a particularly brave child, I think, because I had a narrative mind, because my mind automatically went to any terrible thing that could happen.
+ - Criminals should be punished, not fed pastries.
+ - A good library will never be too neat, or too dusty, because somebody will always be in it, taking books off the shelves and staying up late reading them.
+ - Reader: Dear Mr. Snicket, What is the best way to keep a secret? Lemony Snicket : Tell it to everyone you know, but pretend you are kidding.
+ - Blank paper has always inspired me.
+ - You’re just jealous of me because I’m a tap-dancing ballerina fairy princess veterinarian!
+ - Strange as it may seem, I still hope for the best, even though the best, like an interesting piece of mail, so rarely arrives, and even when it does it can be lost so easily.
+ - We laughed the rest of the way, because the point of this story is, it is not the cookies. It is the love.
+ - Bad circumstances have a way of ruining things that would otherwise be pleasant.
+ - The way that the stories go in the Snicket books is just the way stories naturally go to me. They’re full of misery, and yet the misery ends up being slightly hilarious. And in terms of the warnings on the back of the books, that really started as an honest assessment of their marketability.
+ - Chestnuts in stuffing tastes like someone chewed up a tree branch and then French-kissed it into your mouth.
+ - I like to give people novels I think they would like, on no particular occasion – just when we’re in a bookstore together. I like to receive reference books on my birthday.
+ - Nobody wants to hear that you will try your best. It is the wrong thing to say. It is like saying ‘I probably won’t hit you with a shovel.’ Suddenly everyone is afraid you will do the opposite.
+ - This toast feels raw. Is it safe to eat raw toast?
+ - If you wish to avoid an unpleasant story you had best put this book down.
+ - Shyness is a curious thing, because, like quicksand, it can strike people at any time, and also, like quicksand, it usually makes its victims look down.
+ - Just because something is traditional is no reason to do it, of course.
+ - Tell me what it is, or prepare to eat harpoon.
+ - Sometimes even in most unfortunate of lives there will occur a moment or two of good.
+ - I’m not a cuckoo, either. I’m a fool is what.
+ - The quoting of an aphorism, like the angry barking of a dog or the smell of overcooked broccoli, rarely indicates that something helpful is about to happen.
+ - Waiting is one of life’s hardships.
+ - Any playlist without Prince is no friend of mine.
+ - I’m not very good at the accordion. If I played guitar, I wouldn’t be on anyone’s album. But because I play the accordion and no one else does, I end up doing strange things.
+ - When do you learn that the world, like any diner worth its salt, is open twenty-four hours a day?
+ - The children of this world and the adults of this world are in entirely separate boats and only drift near each other when we need a ride from someone or when someone needs us to wash our hands.
+ - If you are trying to fool a farsighted or dimwitted person, a veiled facial disguise might be enough.
+ - Those unable to catalog the past are doomed to repeat it.
+ - If you know somebody very well, like your grandmother or your baby sister, you will know when they are real and when they are fake.
+ - There is no worse sound in the world than someone who cannot play the violin but insists on doing so anyway.
+ - Can’t we sleep ten minutes more? I was having a lovely dream about sneezing without covering my mouth, and giving everybody germs.
+ - Hup hup ha ha hammy hee hee!
+ - Why haven’t we fixed sick yet? You scientists there – put down those starfish and HELP us. I hereby demand that all the people who are good at math make the world free of illness. The rest of us will write you epic poems and staple them together into a booklet.
+ - You might be afraid of the dark, but the dark is not afraid of you. That’s why the dark is always close by.
+ - To hear the phrase “our only hope” always makes one anxious, because it means that if the only hope doesn’t work, there is nothing left.
+ - I have a dream of what would have happened if what happened instead hadn’t.
+ - It is almost as if happiness is an acquired taste, like coconut cordial or ceviche, to which you can eventually become accustomed, but despair is something surprising each time you encounter it.
+ - There are many difficult things in this world to hide, but a secret is not one of them.
+ - Just because something is typed-whether it is typed on a business card or typed in a newspaper or book-this does not mean that it is true.
+ - Instead of the word ‘love’ there was an enormous heart, a symbol sometimes used by people who have trouble figuring out the difference between words and shapes.
+ - Never look a gift lion in the mouth.
+ - It has been said that the hardest job in the world is raising a child, but the people who says this have probably never worked at a comb factory or captured pirates on the high seas.
+ - I was once almost forced off the stage at a large chain bookstore that shall remain nameless, because she introduced me as Lemony Snicket, and I immediately interrupted her and said, “Oh no, Lemony Snicket isn’t here,” and then she tried to cancel the event right then and there.
+ - It’s funny, particularly when you’re a writer and you’re doing well, you have that sense of like, “Oh! My view of the world is the one that’s going to be published.”
+ - But there are times in this harum-scarum world when figuring out the right thing to do is quite simple, but doing the right thing is simply impossible...
+ - They say that when you’re really in love, the world becomes gossamer and gorgeous, but in my experience the world gets grimy, and the love object is in stark relief from the surroundings. This is love, a pretty thing on an ugly street.
+ - He looked like the sort of person who would tell you that he did not have an umbrella to lend you when he actually had several and simply wanted to see you get soaked.
+ - Today was a very cold and bitter day, as cold and bitter as a cup of hot chocolate, if the cup of hot chocolate had vinegar added to it and were placed in a refrigerator for several hours.
+ - It is so rare in this world to meet a trustworthy person who truly wants to help you, and finding such a person can make you feel warm and safe, even if you are in the middle of a windy valley high up in the mountains.
+ - 13. 99 percent is a very large percentage. For instance, easily 99 percent of people want a roof over their heads, food on their tables, and the occasional slice of cake for dessert. Surely an arrangement can be made with that niggling 1 percent who disagree.
+ - Nobody wants to fall into a safety net, because it means the structure in which they’ve been living is in a state of collapse and they have no choice but to tumble downwards. However, it beats the alternative.
+ - All the secrets of the world are contained in books. Read at your own risk.
+ - Fetching objects for people who are too lazy to fetch them for themselves is never a pleasant task, particularly when the people are insulting you.
+ - The hallway was lined with numbered doors, odd numbers on one side and even numbers on the other, and large ornamental vases, too large to hold flowers and too small to hold spies.
+ - I’ve never had a musical career. So I think it’s been unaffected. I play the accordion. In terms of thinking of it as a musical career, I think it’s sort of like calling yourself an astronaut because you have a shiny suit.
+ - Miracles are like pimples, because once you start looking for them you find more than you ever dreamed you’d see.
+ - I like writing for movies. It’s nice to be alone working on fiction in your room, and then it’s nice to be in a room with a bunch of people working on a movie.
+ - Love is candy from a stranger, but it’s candy you’ve had before and it probably won’t kill you.
+ - You would run much slower if you were dragging something behind you, like a knapsack or a sheriff.
+ - I will love you as misfortune loves orphans, as fire loves innocence, and as justice loves to sit and watch while everything goes wrong.
+ - The trouble with talking about irony is, it’s such a slippery thing that the second you start talking about it, you’re a better example of it than you are an analyst.
+ - When you start reading nonfiction books about piracy, you realize that it’s actually just a history of desperate people.
+ - Mostly, it’s flattering to meet fans. As long as it’s in a planned, professional meeting, rather than, say, someone dropping by my home, which is not as pleasant.
+ - I often can’t remember which scenes are and aren’t in the final product, because I saw so many different versions of the Lemony Snicket that I forget which ended up on the cutting-room floor.
+ - I was never a fan of anything, and yet some people are fans of my books. That’s a bit odd. But I like meeting them.
+ - My chauffer once told me that I would feel better in the morning, but when I woke up the two of us were still on a tiny island surrounded by man-eating crocodiles, and, as I’m sure you can understand, I didn’t feel any better about it.
+ - They’re book addicts.
+ - There are almost as many kinds of libraries as there are kinds of readers.
+ - I am so tired, I can hardly type these worfs.
+ - I opened my mouth and kissed you then, the first time all night, attacked you and surrendered completely, and let’s get out of here. I’m ready, I’m finished, let’s not break up, no, no. Take me home, my boyfriend, my love.
+ - So she loved him. She just did immediately and again often and clearly naturally and soundly and obviously and many others.
+ - No matter who you are, no matter where you live, and no matter how many people are chasing you, what you don’t read is often as important as what you do read.
+ - The thing you hope will never happen to you might just happen to someone else instead, who has been spending their life dreading the thing that will happen to you.
+ - The file clanked against me, my stupid idea nobody would have gotten had I ever done it. You even wouldn’t have gotten it, Ed, I thought, watching her go. It’s why we broke up, so here it is. Ed, how could you?
+ - Siblings that say they never fight are most definitely hiding something.
+ - It is often said that reading is a gift, but to my mind that is an insufficient description, for the size of the gift of reading is so vast that it is difficult to see what is outside its wrapping.
+ - Love was in the air, so both of us walked through love on our way to the corner.
+ - It is useless for me to describe to you how terrible Violet, Klaus, and even Sunny felt in the time that followed. If you have ever lost someone very important to you, then you already know how it feels, and if you haven’t, you cannot possibly imagine it.
+ - The library was one enormous room, with long, high metal shelves and the perfect quiet that libraries provide for anyone looking for an answer.
+ - One of the remarkable things about love is that, despite very irritating people writing poems and songs about how pleasant it is, it really is quite pleasant.
+ - One can remain alive long past the usual date of disintegration if one is unafraid of change, insatiable in intellectual curiosity, interested in big things, and happy in small ways.
+ - People who say money doesn’t matter are like people who say cake doesn’t matter – it’s probably because they’ve already had a few slices.
+ - Love can change a person the way a parent can change a baby- awkwardly, and often with a great deal of mess.
+ - I don’t think film is the writer’s medium, and so I was interested to see what a director would do with it.
+ - I never want to be away from you again, except at work, in the restroom or when one of us is at a movie the other does not want to see.
+ - In the secret pocket, she often kept a small pocket dictionary, which she would take out whenever she encountered a word she did not know.
+ - In this book, not only is there no happy ending, there is no happy beginning and very few happy things in the middle.
+ - When you need a haircut, it looks like you have no one to take care of you.
+ - I’m always interested to see what films are made of books. I kind of don’t participate as a filmgoer in any kind of debate about what’s better, the book or the movie. So I think it’s interesting when people want to do it.
+ - There are some people who believe that home is where one hangs one’s hat, but these people tend to live in closets and on little pegs.
+ - There are some who go through life with a shadow hanging over them, particularly if they live in a building which has long wide awnings.
+ - Even though there are no ways of knowing for sure, there are ways of knowing for pretty sure.
+ - This is love, to sit with someone you’ve known forever in a place you’ve been meaning to go, and watching as their life happens to them until you stand up and it’s time to go.
+ - Money is like a child – rarely unaccompanied. When it disappears, look to those who were supposed to be keeping an eye on it while you were at the grocery store. You might also look for someone who has a lot of extra children sitting around, with long, suspicious explanations for how they got there.
+ - Grinning is something you do when you are entertained in some way, such as reading a good book or watching someone you don’t care for spill orange soda all over themselves.
+ - The difference between a house and a home is like the difference between a man and a woman – it might be embarrassing to explain, but it would be very unusual to get them confused.
+ - I will love you if I never see you again, and I will love you if I see you every Tuesday.
+ - Everybody has a theory.
+ - Make sure you have your own mask on, before helping others with theirs.
+ - All his life, Klaus had believed that if you read enough books, you could solve any problem, but now he wasn’t so sure.
+ - That night it felt that somehow by flicking them off the roof, the matches would burn down everything, the sparks from the tips of the flames, torching the world and all the heartbroken people in it.
+ - The last time I saw you, I was trying to throw thumbtacks into your cradle!
+ - Most schools have a loud system of loud bells, which startle the students and teachers at regular intervals and remind them that time is passing even more slowly than it seems.
+ - Sometimes, even the best of plans will occur to you when it is too late.
+ - I found powerful the idea that everything we have is, in effect, stolen from everybody else.
+ - Troublesome things tend to remain troublesome no matter how many times you do them.
+ - Olaf: Of course I’m trying to trick you! That’s the way of the world, Baudelaires. Everyone runs around with their secrets and their schemes, trying to outwit everyone else.
+ - Making you happy isn’t making me happy.
+ - Take back the smile and the night, take it all back, I wish I could.
+ - Normally it is not polite to go into somebody’s room without knocking, but you can make an exception if the person is dead, or pretending to be dead.
+ - The smell of cooking food is often a calming one.
+ - A new experience can be extremely pleasurable, or extremely irritating, or somewhere in between, and you never know until you try it out.
+ - There was still plenty of water in the basement, and I felt it soaking me from the knees on down. If someone wanted to torture me until I told them a critical piece of information, all they would have to do is get my socks wet. It feels terrible.
+ - Are you who I think you are?
+ - Everybody will die, but very few people want to be reminded of that fact.
+ - Just about everybody has written a first novel that they throw away before writing their actual first novel.
+ - I wrote Rick before I was published, and I had no vision of it, really. It was just a story that occurred to me, and that put its little claws in my brain, and I wrote it, and I showed it to a couple people, and they all said, “This is ghastly.”
+ - We are a nation of children letting horrible things happen, and flunking Calc.
+ - I suppose I’ll have to add the force of gravity to my list of enemies.
+ - What do your parents know, about surviving?
+ - So you’re reluctant, I said to myself. Many, many people are reluctant. It’s like having feet. It’s nothing to brag about.
+ - I kind of always think my work is unfilmable, and when I meet people who are interested in filming it, I’m always stunned.
+ - It is likely I will die next to a pile of things I was meaning to read.
+ - This is love if it’s not with you, a terrible fiery something that makes people look away, and it feels like a punch in the throat.
+ - Of course, it is boring to read about boring thing, but it is better to read something that makes you yawn with boredom than something that will make you weep uncontrollably, pound your fists against the floor, and leave tearstains all over your pillowcase, sheets, and boomerang collection.
+ - I do think of emotions as being on a circular path, so you can feel terrible and terrible and terrible, and then all of a sudden it becomes quite funny.
+ - The movie was kickass, which was appropriate, because tonight it was called Kickass: The Movie.
+ - Goodness! Golly! Good God! Blessed Allah! Zeus and Hera! Mary and Joseph! Nathaniel Hawthorne! Don’t touch her! Grab her! Move closer! Run away! Don’t move! Kill the snake! Leave it alone! Give it some food! Don’t let it bite her! Lure the snake away! Here, snakey! Here, snakey snakey!
+ - Arguing with somebody is never pleasant, but sometimes it is useful and necessary to do so.
+ - If you have ever had a miserable experience, then you have probably had it said to you that you would feel better in the morning. This, of course, is utter nonsense, because a miserable experience remains a miserable experience even on the loveliest of morning.
+ - What you don’t read is often as important as what you do read.
+ - You know I want to be a director, but you could never truly see the movies in my head and that, Ed, is why we broke up.
+ - When you say, “History is written by the winners,” you like to think about someone who isn’t you. You want to think, “Oh, that’s the juggernaut I’m standing against.” But you’re probably part of it.
+ - It is always cruel to laugh at people, of course, although sometimes if they are wearing an ugly hat it is hard to control yourself.
+ - The rinsed foam swirled into one drain that always clogged come October when the maples dropped Canadian propaganda over everything.
+ - There are some secrets you want to keep to yourself, even if they don’t matter. They might only matter if you keep them secret.
+ - Stretched out in front of me was my time as an adult, and then a skeleton, and then nothing except perhaps a few books on a few shelves.
+ - I gasped and pointed the way. I gave you an adventure, Ed, right in front of you but you never saw it until I showed you, and that’s why we broke up.
+ - Sometimes when someone tells a ridiculous lie, it is best to ignore it entirely.
+ - The more I protest that I’m not Lemony Snicket, and that I’m Daniel Handler instead, the more it becomes clear to the audience that I am in fact Lemony Snicket, that I am in fact standing in front of them.
+ - I love meeting people who have absolutely no sense of irony. It’s really fascinating to imagine what it would be like to go through life without understanding even the most basic of ironies.
+ - But just suddenly I really, really needed to see you again right that minute, that night.
+ - It is often difficult to admit that someone you love is not perfect, or to consider aspects of a person that are less than admirable.
+ - Take it back, Ed. Take it all back.
+ - There is a pair of snakes who have learned to drive a car so recklessly that they would run you over in the street and never stop to apologize.
+ - One has to adopt a sort of Zen calm, in which you know you wrote the best book that you could at the time.
+ - And then like a song we’d forgotten was even on the mix, you stepped into the house and my whole life.
+ - It is very easy to say that the important thing is to try your best, but if you are in real trouble the most important thing is not trying your best, but getting to safety.
+ - I liked, I admit, that we didn’t pretend there hadn’t been other girls. There was always a girl on you in the halls at school, like they came free with a backpack.
+ - But there was more, as there always is when the love goes. She was haunted, naturally. Otherwise what is the point, why leave your rickety house, and why this yo-yo world giving us things and yanking them back?
+ - Tell it to everyone you know, but pretend you’re kidding.
+ - There is no way of knowing for sure whether or not you can trust someone, for the simple reason that circumstances change all of the time.
+ - Once more, this is love: it rings and you open up unless it looks like an ax murderer.
+ - There are times to stay put, and what you want will come to you, and there are times to go out into the world and find such a thing for yourself.
+ - I go to bed early and rise late and feel as if I have hardly slept, probably because I have been reading almost the entire time.
+ - They looked at each other like a pair of parentheses.
+ - The sea is nothing but a library of all the tears in history.
+ - I think there are probably just as many adults who would miss the humor of my books, if not more, as there are children.
+ - Is it useful to feel fear, because it prepares you for nasty events, or is it useless, because nasty events will occur whether you are frightened or not?
+ - This world is suchier than we are, and the best thing to do is keep moving and find your keys.
+ - I can’t think of a story that doesn’t have something terrible in it. Otherwise, it’s dull. So when I embarked into the world of picture books, my first thought was to do something about the dark.
+ - It is always terrible to be told to go play with people one doesn’t know...
+ - After a certain age, you couldn’t even say where you were from. You went someplace, and lived there. And then you went someplace else.
+ - One cannot spend forever sitting and solving the mysteries of oone’s history.
+ - Count Olaf sounds like an awful person. I hope he is torn apart by wild animals someday. Wouldn’t that be satisfying?
+ - You should never stick something that you are allergic to into your mouth, especially if that thing is cats.
+ - I have produced things that I would say were sincerely cheerful. But then I am reminded by other people that no one else would see them that way.
+ - I find reading screenplays difficult, as they’re only a roadmap for what a movie might end up being.
+
+388 quotes

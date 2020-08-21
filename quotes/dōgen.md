@@ -1,0 +1,109 @@
+ - Life and death are of supreme importance. Time swiftly passes by and opportunity is lost. Each of us should strive to awaken. Awaken. Take heed, do not squander your life.
+ - A flower falls, even though we love it; and a weed grows, even though we do not love it.
+ - What is the way of the Buddha? It is to study the self. What is the study of the self? It is to forget oneself. To forget oneself is to enlightened by everything in the world.
+ - If you want to travel the Way of Buddhas and Zen masters, then expect nothing, seek nothing, and grasp nothing.
+ - Do not follow the ideas of others, but learn to listen to the voice within yourself. Your body and mind will become clear and you will realize the unity of all things.
+ - A zen master’s life is one continuous mistake.
+ - In the mundane, nothing is sacred. In sacredness, nothing is mundane.
+ - The whole moon and the entire sky are reflected in one dewdrop on the grass.
+ - In a mind clear as still water, even the waves, breaking, are reflecting its light.
+ - A fool sees himself as another, but a wise man sees others as himself.
+ - Do not travel to other dusty lands, forsaking your own sitting place; if you cannot find the truth where you are now, you will never find it.
+ - To be in harmony with the wholeness of things is not to have anxiety over imperfections.
+ - One must be deeply aware of the impermanence of the world.
+ - Enlightenment is intimacy with all things.
+ - To escape from the world means that one’s mind is not concerned with the opinions of the world.
+ - Students, when you want to say something, think about it three times before you say it. Speak only if your words will benefit yourselves and others. Do not speak if it brings no benefit.
+ - Your body is like a dew-drop on the morning grass, your life is as brief as a flash of lightning. Momentary and vain, it is lost in a moment.
+ - You should stop searching for phrases and chasing after words. Take the backward step and turn the light inward. Your body-mind of itself will drop off and your original face will appear. If you want to attain just this, immediately practice just this.
+ - When we discover that the truth is already in us, we are all at once our original selves.
+ - Just practice good, do good for others, without thinking of making yourself known so that you may gain reward. Really bring benefit to others, gaining nothing for yourself. This is the primary requisite for breaking free of attachments to the Self.
+ - No matter how bad a state of mind you may get into, if you keep strong and hold out, eventually the floating clouds must vanish and the withering wind must cease.
+ - If we seek the Buddha outside the mind, the Buddha changes into a devil.
+ - If you are unable to find the truth right where you are, where else do you expect to find it?
+ - What you think in your own mind to be good, or what people of the world think is good, is not necessarily good.
+ - Do not be amazed by the true dragon.
+ - Working with plants, trees, fences and walls, if they practice sincerely they will attain enlightenment.
+ - Why abandon a seat in your own home to wander in vain through dusty regions of another land? If you make one false step, you miss what is right before your eyes.
+ - To start from the self and try to understand all things is delusion. To let the self be awakened by all things is enlightenment.
+ - Truth is not far away. It is nearer than near. There is no need to attain it, since not one of your steps leads away from it.
+ - I haven’t got any Buddhism. I live by letting things happen.
+ - Learn the backward step that turns your light inward to illuminate your self. Body and mind of themselves will drop away, and your original face will be manifest.
+ - If you do not get it from yourself, where will you go for it?
+ - The recognition of the coming and going of things is a first step in training and practice.
+ - Zazen is an activity that is an extension of the universe. Zazen is not the life of an individual, it’s the universe that’s breathing.
+ - When one first seeks the truth, one separates oneself from it.
+ - Consider that nirvana is itself no other than our life.
+ - Cease from practice based on intellectual understanding, pursuing words, and following after speech.
+ - Meditation is not a way to enlightenment, Nor is it a method of achieving anything at all. It is peace itself. It is the actualization of wisdom, The ultimate truth of the oneness of all things.
+ - If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace.
+ - Inside the treasury of the dharma eye a single grain of dust.
+ - There is no beginning to practice nor end to enlightenment; There is no beginning to enlightenment nor end to practice.
+ - Do not miss the opportunity of offering even a single drop into the ocean of merit or a grain atop the mountain of the roots of beneficial activity.
+ - Clearly I know, the mind is mountains, rivers, and the great earth; sun, moon, and stars.
+ - Forgetting oneself is opening oneself.
+ - When you walk in the mist, you get wet.
+ - Practice and enlightenment are not two.
+ - There are mountains hidden in mountains. There are mountains hidden in hiddenness. This is complete understanding.
+ - Let your heart go out and abide in things. Let things return and abide in your heart.
+ - Prefer to be defeated in the presence of the wise than to excel among fools.
+ - Do not doubt that mountains walk simply because they may not appear to walk like humans.
+ - We must always be disturbed by the truth.
+ - What is reality? An icicle forming in fire.
+ - The coming and going of birth and death is a painting. Unsurpassed enlightenment is a painting. The entire phenomenal universe and the empty sky are nothing but a painting.
+ - Though it has no thought of keeping watch, it’s not for naught that the scarecrow stands in the grain field.
+ - Zazen is the ultimate practice. This is indeed the True Self. The Buddhadharma is not to be sought outside of this.
+ - When you find your place where you are, practice occurs, actualizing the fundamental point.
+ - Mountains and oceans have whole worlds of innumerable wondrous features. We should understand that it is not only our distant surroundings that are like this, but even what is right here, even a single drop of water.
+ - In autumn even though I may see it again, how can I sleep with the moon this evening?
+ - In a snowfall that covers the winter grass a white heron uses his own whiteness to disappear.
+ - I asked, “What are words?” The tenzo said, “One, two, three, four, five.” I asked again, “What is practice?” “Nothing in the entire universe is hidden.”
+ - That the self advances and confirms the ten thousand things is called delusion; that the ten thousand things advance and confirm the self is called enlightenment.
+ - If you want to see things just as they are, then you yourself must practice just as you are.
+ - An ancient buddha said, “Mountains are mountains; waters are waters.” These words do not mean mountains are mountains; they mean mountains are mountains.
+ - You should study not only that you become a mother when your child is born, but also that you become a child.
+ - Those who see worldly life as an obstacle to Dharma see no Dharma in everyday actions. They have not yet discovered that there are no everyday actions outside of Dharma.
+ - Does a dragon still sing from within a withered tree?
+ - Those who practice know whether realization is attained or not, just as those who drink water know whether it is hot or cold.
+ - Sitting is the gateway of truth to total liberation.
+ - If we look at the world with a deluded body and mind, we will think that our self is permanent. But if we practice correctly and return to our true self, we will realize that nothing is permanent.
+ - Do not view mountains from the scale of human thought.
+ - Nothing in the entire universe is hidden.
+ - To study Buddhism is to study ourselves. To study ourselves is to forget ourselves.
+ - There are myriads of forms and hundreds of grasses throughout the entire earth, yet each grass and each form itself is the entire earth.
+ - Emptiness is bound to bloom, like hundreds of grasses blossoming.
+ - There are thousands upon thousands of students who have practiced meditation and obtained its fruits. Do not doubt its possibilities because of the simplicity of the method. If you can not find the truth right where you are, where else do you expect to find it?
+ - That you carry yourself forward and experience the myriad things is delusion. That the myriad things come forward and experience themselves is awakening.
+ - Coming, going, the waterbirds don’t leave a trace, don’t follow a path.
+ - Students today should live fully every moment of time. This dew-like life fades away; time speeds swiftly. In this short life of ours, avoid involvement in superfluous things and just study the Way.
+ - Time is three eyes and eight elbows.
+ - There are those who, attracted by grass, flowers, mountains, and waters, flow into the Buddha Way.
+ - People like what is not true and they don’t like what is true.
+ - When the old plum tree blooms, the entire world blooms.
+ - The color of the mountains is Buddha’s body; the sound of running water is his great speech.
+ - Every man possesses the Buddha-nature. Do not demean yourselves.
+ - Because monks come from the midst of purity, they consider as good and pure what does not arouse desire among other people.
+ - All that’s visible springs from causes intimate to you. While walking, sitting, lying down, the body itself is complete truth. If someone asks the inner meaning of this: Inside the treasury of dharma eye a single grain of dust.
+ - Because mountains are high and broad, the way of riding the clouds is always reached in the mountains; the inconceivable power of soaring in the wind comes freely from the mountains.
+ - Handle even a single leaf of green in such a way that it manifests the body of the Buddha. This in turn allows the Buddha to manifest through the leaf.
+ - Be mindful of the passing of time, and engage yourself in zazen as though you are saving your head from fire.
+ - Those who seek the easy way do not seek the true way.
+ - Something you want badly enough can always be gained. No matter how fierce the enemy, how remote the beautiful lady, or how carefully guarded the treasure, there is always a means to the goal for the earnest seeker. The unseen help of the guardian gods of heaven and earth assure fulfillment.
+ - People who truly follow the Way would do well to conceal the fact that they are Buddhists.
+ - Yet you must not cling to the words of the old sages either; they, too, may not be right. Even if you believe them, you should be alert so that, in the event that something superior comes along, you may follow that.
+ - When you paint Spring, do not paint willows, plums, peaches, or apricots – just paint Spring.
+ - Understand clearly that when a great need appears a great use appears also; when there is small need there is small use; it is obvious, then, that full use is made of all things at all times according to the necessity thereof.
+ - Do not arouse disdainful mind when you prepare a broth of wild grasses; do not arouse joyful mind when you prepare a fine cream soup.
+ - Realization doesn’t destroy the individual any more than the reflection of the moon breaks a drop of water. A drop of water can reflect the whole sky.
+ - Refraining from all evil, not clinging to birth and death, working in deep compassion for all sentient beings, respecting those over you and pitying those below you, without any detesting or desiring, worrying or lamentation – this is what is called Buddha. Do not search beyond it.
+ - When you paint Spring, do not paint willows, plums, peaches, or apricots, but just paint Spring. To paint willows, plums, peaches, or apricots is to paint willows, plums, peaches, or apricots – it is not yet painting Spring.
+ - Do not practice buddha-dharma with the thought that it is to benefit others.
+ - When both body and mind are at peace, all things appear as they are: perfect, complete, lacking nothing.
+ - Students of the Way must not study Buddhism for the sake of themselves. They must study Buddhism only for the sake of Buddhism. The key to this is to renounce both body and mind without holding anything back and to offer them to the great sea of Buddhism.
+ - Since it is the practice of enlightenment, that practice has no beginning and since it is enlightenment within the practice, that realization has no end.
+ - Just study Buddhism. Don’t follow the sentiments of the world.
+ - Do not think you will necessarily be aware of your own enlightenment.
+ - If you want to do a certain thing, you first have to be a certain person. Once you become that certain person, you will not care anymore about doing that certain thing.
+ - When other sects speak well of Zen, the first thing that they praise is its poverty.
+
+107 quotes

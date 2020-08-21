@@ -1,0 +1,34 @@
+ - Do what you love and success will follow. Passion is the fuel behind a successful career.
+ - When people use your brand name as a verb, that is remarkable.
+ - If you have fun at your job, I think you’re going to be more effective.
+ - Steve Jobs was an iconic entrepreneur and businessman whose impact on technology was felt beyond Silicon Valley. He will be remembered for the innovation he brought to market and the inspiration he brought to the world.
+ - Communications is at the heart of e-commerce and community.
+ - A business leader has to keep their organization focused on the mission. That sounds easy, but it can be tremendously challenging in today’s competitive and ever-changing business environment. A leader also has to motivate potential partners to join.
+ - Most of us can’t even begin to imagine.
+ - Guess what? The world changes. eBay has defined e-commerce.
+ - It is very clear that voice communications is moving on to the Internet. In the end, the price that anyone can provide for voice transmission on the Net will trend toward zero.
+ - To be effective, leaders must have the qualities and attitudes essential to work in a group setting.
+ - When a small business grows like eBay did, it has a multiplier effect. It creates other small businesses that supply it with intellectual capital, goods and services.
+ - I think we can be the very best place to start a business, to grow a business, to invent a new technology, to change the world, to change the country. But we’ve got a lot of work to deliver a new California to the people of California.
+ - A monkey could drive this train.
+ - Silicon Valley is 130 miles from Sacramento, but it might as well be a million miles away given how it operates.
+ - Regulation is strangling businesses of all sizes in California, and we’ve got to streamline regulation so it’s easy, not hard, to do business.
+ - For me, the international expansion of eBay was the best idea. We are now in 35 countries, and have a huge global network. The second best one was the acquisition of PayPal – the wallet on eBay.
+ - I’m not a career politician. I spent 30 years in business. I can tell you that people in California have had it with career politicians: they are done.
+ - What’s sort of interesting about the whole public relations disaster that is the Net, in some ways, is that the fundamentals are really good.
+ - Sometimes it’s a little bit like being a politician. We have work to do in understanding our users sentiments.
+ - Well, California used to be in the dream-making business, and unfortunately what’s happened I think we’re now in the dream-breaking business.
+ - If we don’t rededicate ourselves to education with the same attitude Americans have applied to going to the moon and fighting wars, the results will be profound. We will gradually lose our successful workforce.
+ - We have always said that advertising is just the icing on the cake. It is not the cake.
+ - My view is that, just as in many businesses, brands really matter. There will always be a role for destination sites. Eighty million users come to our destination. I think that will be the vast majority of our future business.
+ - And I want to be able to – you know, make Republicans and Democrats famous for keeping jobs in California.
+ - People ask me, how is managing in the New Economy different from managing in the Old Economy? Actually, it’s a lot the same. It’s about the financial discipline of the bottom line, understanding your customers, segmenting your customers by their needs, and building a world-class management team.
+ - You know, I think, people of all stripes in California, Republicans, Democrats, conservatives, liberals, frankly, as I have traveled the state, the number one issue is jobs. And they are looking for which candidate can get the economy back on track.
+ - I want to spend 100 percent of my time focused on what I think I can make the biggest difference on as the governor of California.
+ - In my judgment, we have to avoid, at all costs, tax increases. That would be the worst possible thing to do and will make a bad economy even worse. Beyond that, targeted tax relief should be expanded upon.
+ - One good thing about California is we have quite a broad-based economy. We provide more fruits and vegetables and produce to the United States than any other state. So we have actually the single largest agricultural sector in the country.
+ - Because what happens is, as the economy suffers, tax revenues go down. But unlike businesses, where at least your variable costs go down, in government your variable costs go up: unemployment insurance, workmen’s compensation, health care benefits, welfare, you name it.
+ - Look at growth, look at how much time people spend on the Net and look at the variety of things that they are doing. It’s all really good, so I am actually encouraged by the fundamentals that underlie usage growth on the Net...
+ - I think maybe it is about time for a governor who has created jobs, who’s managed a budget, who’s led and inspired large organizations, who listens well, and who can drive an agenda.
+
+32 quotes

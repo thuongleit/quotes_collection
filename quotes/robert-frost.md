@@ -1,0 +1,314 @@
+ - The woods are lovely, dark and deep, but I have promises to keep, and miles to go before I sleep, and miles to go before I sleep.
+ - The best way out is always through.
+ - In three words I can sum up everything I’ve learned about life: it goes on.
+ - Two roads diverged in a wood and I – I took the one less traveled by, and that has made all the difference.
+ - I have miles to go before I sleep...
+ - Poetry is when an emotion has found its thought and the thought has found words.
+ - How many things would you attempt if you knew you could not fail?
+ - Freedom lies in being bold.
+ - Never be bullied into silence. Never allow yourself to be made a victim. Accept no one’s definition of your life; define yourself.
+ - Education is the ability to listen to almost anything without losing your temper or your self-confidence.
+ - Good fences make good neighbors.
+ - Half the world is composed of people who have something to say and can't, and the other half who have nothing to say and keep on saying it.
+ - I’m not a teacher, but an awakener.
+ - Nature's first green is gold, Her hardest hue to hold. Her early leaf's a flower; But only so an hour. Then leaf subsides to leaf. So Eden sank to grief, so dawn goes down to day. Nothing gold can stay.
+ - No tears in the writer, no tears in the reader. No surprise in the writer, no surprise in the reader.
+ - Love is an irresistible desire to be irresistibly desired.
+ - A poem begins with a lump in the throat; a homesickness or a love sickness. It is a reaching-out toward expression; an effort to find fulfillment. A complete poem is one where an emotion has found its thought and the thought has found words.
+ - By faithfully working eight hours a day you may eventually get to be boss and work twelve hours a day.
+ - The reason why worry kills more people than work is that more people worry than work.
+ - To be a poet is a condition, not a profession.
+ - We love the things we love for what they are.
+ - Some say the world will end in fire, Some say in ice. From what I’ve tasted of desire, I hold with those who favor fire. But if it had to perish twice I think I know enough of hate To say that for destruction ice Is also great And would suffice.
+ - Nothing gold can stay.
+ - Home is the place where, when you have to go there, they have to take you in.
+ - The brain is a wonderful organ; it starts working the moment you get up in the morning and does not stop until you get into the office.
+ - A diplomat is a man who always remembers a woman's birthday but never remembers her age.
+ - Dancing is a vertical expression of a horizontal desire.
+ - A bank is a place where they lend you an umbrella in fair weather and ask for it back when it begins to rain.
+ - Happiness makes up in height for what it lacks in length.
+ - A poem begins in delight and ends in wisdom. 
+ - A voice said, Look me in the stars And tell me truly, men of earth, If all the soul-and-body scars Were not too much to pay for birth.
+ - There are two kinds of teachers: the kind that fill you with so much quail shot that you can't move, and the kind that just gives you a little prod behind and you jump to the skies.
+ - We dance round in a ring and suppose, but the secret sits in the middle and knows.
+ - Two roads diverged in a yellow wood, And sorry I could not travel both And be one traveler, long I stood And looked down one as far as I could To where it bent in the undergrowth.
+ - A person will sometimes devote all his life to the development of one part of his body – the wishbone.
+ - Time and tide wait for no man, but time always stands still for a woman of 30.
+ - The difference between a job and a career is the difference between forty and sixty hours a week.
+ - A poem begins as a lump in the throat, a sense of wrong, a homesickness, a lovesickness.
+ - Nature is always hinting at us. It hints over and over again. And suddenly we take the hint.
+ - I dwell in a lonely house I know That vanished many a summer ago.
+ - Poetry is what is lost in translation. It is also what is lost in interpretation.
+ - Writing a poem is discovering.
+ - When work becomes play, and play becomes your work, your life unfolds.
+ - Forgive me my nonsense, as I also forgive the nonsense of those that think they talk sense.
+ - I hold it to be the inalienable right of anybody to go to hell in his own way.
+ - Some say the world will end in fire, some say in ice.
+ - If we couldn’t laugh we would all go insane.
+ - The heart can think of no devotion Greater than being shore to the ocean- Holding the curve of one position, Counting an endless repetition.
+ - The afternoon knows what the morning never suspected.
+ - The beauty of enmity is insecurity; the beauty of friendship is in security.
+ - Only God and I knew what I meant when I wrote it, now only God knows.
+ - There’s nothing I’m afraid of like scared people.
+ - Something we were withholding made us weak, until we found it was ourselves.
+ - Live life like its the last breath you take for that breath is the whole essence of living, the little things in life are what connects us to all the big things we live for.
+ - You’ve got to be brave and you’ve got to be bold. Brave enough to take your chance on your own discrimination, what’s right and what’s wrong, what’s good and what’s bad.
+ - I still say the only education worth anything is self-education.
+ - And nothing to look backward to with pride, and nothing to look forward to with hope.
+ - Before I built a wall I’d ask to know What I was walling in or walling out, And to whom I was like to give offence. Something there is that doesn’t love a wall, That wants it down.
+ - Heaven gives its glimpses only to those not in position to look too close.
+ - A liberal is a man too broadminded to take his own side in a quarrel.
+ - All the fun is in how you say a thing.
+ - And were an epitaph to be my story I’d have a short one ready for my own. I would have written of me on my stone: I had a lover’s quarrel with the world.
+ - I turned to speak to God About the world’s despair But to make bad matters worse I found God wasn’t there.
+ - What we live by we die by.
+ - One could do worse than be a swinger of birches.
+ - Create and stir other people to create.
+ - Before I built a wall I’d ask to know what I was walling in or walling out.
+ - My goal in life is to unite my avocation with my vocation, As my two eyes make one in sight.
+ - The middle of the road is where the white line is – and that’s the worst place to drive.
+ - My sorrow, when she’s here with me, thinks these dark days of autumn rain are beautiful as days can be; she loves the bare, the withered tree; she walks the sodden pasture lane.
+ - They cannot scare me with their empty spaces Between stars – on stars where no human race is. I have it in me so much nearer home To scare myself with my own desert places.
+ - So when at times the mob is swayed To carry praise or blame too far, We may choose something like a star To stay our minds on and be staid.
+ - I am a writer of books in retrospect. I talk in order to understand; I teach in order to learn.
+ - Let me be the one To do what is done.
+ - Being the boss anywhere is lonely. Being a female boss in a world of mostly men is especially so.
+ - I am not a nature poet. There is almost always a person in my poems.
+ - Something there is that doesn’t love a wall, and wants it down.
+ - You don’t have to deserve your mother’s love. You have to deserve your father’s.
+ - The best things and best people rise out of their separateness; I’m against a homogenized society because I want the cream to rise.
+ - To be social is to be forgiving.
+ - There are three things, after all, that a poem must reach: the eye, the ear, and what we may call the heart or the mind. It is the most important of all to reach the heart of the reader.
+ - I only hope that when I am free, as they are free to go in quest, of the knowledge beyond the bounds of life, it may not seem better to me to rest.
+ - Take care to sell your horse before he dies. The art of life is passing losses on.
+ - All those who try to go it sole alone, Too proud to be beholden for relief, Are absolutely sure to come to grief.
+ - A champion of the workingman has never been known to die of overwork.
+ - The test is always how we treat the poor.
+ - Nothing is quite honest that is not commercial, but not everything commercial is honest.
+ - The only certain freedom’s in departure.
+ - Like a piece of ice on a hot stove the poem must ride on its own melting.
+ - So was I once myself a swinger of birches. And so I dream of going back to be.
+ - Anything more than the truth would be too much.
+ - Nearly everybody is looking for something brave to do. I don’t know why people shouldn’t write poetry. That’s brave.
+ - More men die of worry than of work, because more men worry than work.
+ - I never take my own side in a quarrel.
+ - One of the hardest things in life to accept is a called third strike.
+ - The first thing I do in the morning is to make my bed and while I am making up my bed I am making up my mind as to what kind of a day I am going to have.
+ - Two such as you with such a master speed, cannot be parted nor be swept away, from one another once you are agreed, that life is only life forevermore, together wing to wing and oar to oar.
+ - Nature’s first green is gold.
+ - It should be of the pleasure of a poem itself to tell how it can. The figure a poem makes. It begins in delight and ends in wisdom. The figure is the same for love.
+ - The world is full of willing people; some willing to work, the rest willing to let them.
+ - The sun was warm but the wind was chill. You know how it is with an April day.
+ - A definite purpose, like blinders on a horse, inevitably narrows its possessor’s point of view.
+ - You’ve often heard me say – perhaps too often – that poetry is what is lost in translation. It is also what is lost in interpretation. That little poem means just what it says and it says what it means, nothing less but nothing more.
+ - Thinking is not to agree or disagree. That’s voting.
+ - Courage is the human virtue that counts most-courage to act on limited knowledge and insufficient evidence. That’s all any of us have.
+ - Don’t ever take a fence down until you know why it was put up.
+ - Don’t join too many gangs. Join few if any. Join the United States and join the family- But not much in between unless a college.
+ - There never was any heart truly great and generous, that was not also tender and compassionate.
+ - College is a refuge from hasty judgment.
+ - You’ve got to love what’s lovable, and hate what’s hateable. It takes brains to see the difference.
+ - Freud was way off base in considering sex the fundamental motivation. The ruling passion in men is minding each other’s business.
+ - We ran as if to meet the moon.
+ - Unless you are educated in metaphor, you are not safe to be let loose in the world.
+ - I’m not confused. I’m just well mixed.
+ - I write to find out what I didn’t know I knew.
+ - Ah, when to the heart of man Was it ever less than a treason To go with the drift of things, To yield with a grace to reason, And bow and accept the end Of a love or a season?
+ - Poetry is a way of taking life by the throat.
+ - How many things have to happen to you before something occurs to you?
+ - The snake stood up for evil in the Garden.
+ - I’m always saying something that’s just the edge of something more.
+ - The hurt is not enough: I long for weight and strength. To feel the earth as rough to all my length.
+ - Modern poets talk against business, poor things, but all of us write for money. Beginners are subjected to trial by market.
+ - The rose is a rose, And was always a rose. But now the theory goes That the apple’s a rose, And the pear is, and so’s The plum, I suppose. The dear only knows What will next prove a rose. You, of course, are a rose But were always a rose.
+ - It takes all sorts of in and outdoor schooling To get adapted to my kind of fooling.
+ - The greatest thing in family life is to take a hint when a hint is intended-and not to take a hint when a hint isn’t intended.
+ - Life is tons of discipline. Your first discipline is your vocabulary; then your grammar and your punctuation.
+ - A breeze discovered my open book And began to flutter the leaves to look.
+ - An idea is a feat of association.
+ - He burned his house down for the fire insurance and spent the proceeds on a telescope.
+ - A mother takes twenty years to make a man of her boy, and another woman makes a fool of him in twenty minutes.
+ - I alone of English writers have consciously set myself to make music out of what I may call the sound of sense.
+ - Poetry is the renewal of words, setting them free, and that’s what a poet is doing: loosening the words.
+ - Democracy is the best chance for the best people.
+ - I hope to leave behind a few poems it will be hard to get rid of.
+ - I have never started a poem yet whose end I knew. Writing a poem is discovering.
+ - Earth’s the right place for love. I don’t know where it’s likely to go better.
+ - The ear is the only true writer and the only true reader.
+ - There is one thing more exasperating than a wife who can cook and won’t, and that’s a wife who can’t cook and will.
+ - There is absolutely no reason for being rushed along with the rush. Everybody should be free to go slow.
+ - You can’t get too much winter in the winter.
+ - The best way for a person to have happy thoughts is to count his blessings and not his cash. Happiness makes up in height for what it lacks in length.
+ - The chance is the remotest, Of its going much longer unnoticed, That I’m not keeping pace With the headlong human race.
+ - But strictly held by none, is loosely bound By countless silken ties of love and thought To everything on earth the compass round, And only by one’s going slightly taut In the capriciousness of summer air Is of the slightest bondage made aware.
+ - If you remember only one thing I’ve said, remember that an idea is a feat of association, and the height of it is a good metaphor. If you have never made a good metaphor, then you don’t know what it’s all about.
+ - Have courage and a little willingness to venture and be defeated.
+ - Tree at my window, window tree, My sash is lowered when night comes on; But let there never be curtain drawn Between you and me.
+ - What makes a nation in the beginning is a good piece of geography.
+ - I have been one acquainted with the night. I have walked out in rain – and back in rain. I have outwalked the furthest city light. I have looked down the saddest city lane. I have passed by the watchman on his beat And dropped my eyes, unwilling to explain.
+ - The best thing we’re put here for’s to see; The strongest thing that’s given us to see with’s a telescope. Someone in every town, seems to me, owes it to the town to keep one.
+ - What is required is sight and insight- then you might add one more: excite.
+ - The nearest friends can go With anyone to death, comes so far short They might as well not try to go at all.
+ - Any work of art must first of all tell a story.
+ - Education doesn’t change life much. It just lifts trouble to a higher plane of regard.
+ - The fact is the sweetest dream that labor knows.
+ - If the writer does not cry, the reader does not cry.
+ - Always fall in with what you’re asked to accept. Take what is given, and make it over your way. My aim in life has always been to hold my own with whatever’s going. Not against: with.
+ - Poetry should be common in experience but uncommon in books.
+ - Tolerance is the uncomfortable feeling that in the end the other could be right.
+ - Poets are like baseball pitchers. Both have their moments. The intervals are the tough things.
+ - A good book has no ending.
+ - I always entertain great hopes.
+ - Forgive, O Lord, my little jokes on Thee, and I’ll forgive Thy great big joke on me.
+ - If one by one we counted people out For the least sin, it wouldn’t take us long To get so we had no one left to live with. For to be social is to be forgiving.
+ - Never discuss the poem you contemplate writing. It’s like turning on the outside spigot. It takes all the pressure off the upstairs bathroom.
+ - Humour is the most engaging cowardice. With it myself I have been able to hold some of my enemy in play far out of gunshot.
+ - I would not come in. I meant not even if asked, And I hadn’t been.
+ - A poem begins with a lump in the throat.
+ - The way a crow Shook down on me The dust of snow From a hemlock tree Has given my heart A change of mood And saved some part Of a day I had rued.
+ - I play better tennis because the court is there.
+ - Poetry is about the grief. Politics is about the grievance.
+ - Why make so much of fragmentary blue In here and there a bird, or butterfly, Or flower, or wearing-stone, or open eye, When heaven presents in sheets the solid hue?
+ - If you’re looking for something to be brave about, consider fine arts.
+ - You can be a little ungrammatical if you come from the right part of the country.
+ - Ants are a curious race.
+ - All there is to writing is having ideas. To learn to write is to learn to have ideas.
+ - Here are your waters and your watering place. Drink and be whole again beyond confusion.
+ - Have I not walked without an upward look Of caution under stars that very well Might not have missed me when they shot and fell? It was a risk I had to take-and took.
+ - The sidelong glance is what you depend on.
+ - Any eye is an evil eye That looks in on to a mood apart.
+ - The old dog barks backward without getting up I can remember when he was a pup.
+ - The mind-is not the heart. I may yet live, as I know others live, To wish in vain to let go with the mind- Of cares, at night, to sleep; but nothing tells me That I need learn to let go with the heart.
+ - Friends make pretence of following to the grave but before one is in it, their minds are turned and making the best of their way back to life and living people and things they understand.
+ - Hell is a half-filled auditorium.
+ - That day she put our heads together, Fate had her imagination about her, Your head so much concerned with outer, Mine with inner, weather.
+ - The footpath down to the well is healed.
+ - Families break up when they get hints you don’t intend and miss hints that you do.
+ - Oh, come forth into the storm and rout And be my love in the rain.
+ - There is little much beyond the grave, but the strong are saying nothing until they see.
+ - Something sinister in the tone Told me my secret must be known: Word I was in the house alone Somehow must have gotten abroad, Word I was in my life alone, Word I had no one left but God.
+ - I shall set forth for somewhere, I shall make the reckless choice Some say when they are in voice And tossing so as to scare The white clouds over them on, I shall have less to say, But I shall be none.
+ - And one of the three great things in the world is gossip, you know. First there’s religion; and then there’s science; and there’s-and then there’s friendly gossip. Those are the three-the three great things.
+ - Unless I’m wrong I but obey The urge of a song: I’m-bound-away! And I may return If dissatisfied With what I learn From having died.
+ - Now no joy but lacks salt That is not dashed with pain And weariness and fault; I crave the stain Of tears, the aftermark Of almost too much love, The sweet of bitter bark And burning clove.
+ - It looked as if a night of dark intent was coming, and not only a night, an age. Someone had better be prepared for rage...
+ - I’d like to get away from earth awhile And then come back to it and begin over. May no fate wilfully misunderstand me And half grant what I wish and snatch me away Not to return. Earth’s the right place for love: I don’t know where it’s likely to go better.
+ - The Vermont mountains stretch extended straight; New Hampshire mountains curl up in a coil.
+ - Nature does not complete things. She is chaotic. Man must finish, and he does so by making a garden and building a wall.
+ - The question that he frames in all but words is what to make of a diminished thing.
+ - I have stood still and stopped the sound of feet When far away an interrupted cry Came over houses from another street, But not to call me back or say good-bye;.
+ - If you don’t know how great this country is, I know someone who does; Russia.
+ - It’s a funny thing that when a man hasn’t anything on earth to worry about, he goes off and gets married.
+ - I cut my own hair. I got sick of barbers because they talk too much. And too much of their talk was about my hair coming out.
+ - A true sonnet goes eight lines and then takes a turn for better or worse and goes six or eight lines more.
+ - Americans are like a rich father who wishes he knew how to give his son the hardships that made him rich.
+ - I never knew what was meant by choice of words. It was one word or none.
+ - Men work together, whether they work together or apart.
+ - You’re always believing ahead of your evidence. What was the evidence I could write a poem? I just believed it. The most creative thing in us is to believe in a thing.
+ - I am assured at any rate Man’s practically inexterminate. Someday I must go into that. There’s always been an Ararat Where someone someone else begat To start the world all over at.
+ - The sweet of bitter bark And burning clove.
+ - What you want, what you’re hanging around in the world waiting for, is for something to occur to you.
+ - Nothing can make injustice just but mercy.
+ - I dwell with a strangely aching heart In that vanished abode there far apart.
+ - A jury consists of twelve persons chosen to decide who has the better lawyer.
+ - How many times it thundered before Franklin took the hint! How many apples fell on Newton’s head before he took the hint! Nature is always hinting at us. It hints over and over again. And suddenly we take the hint.
+ - Nothing flatters me more than to have it assumed that I could write prose, unless it be to have it assumed that I once pitched a baseball with distinction.
+ - We cannot tell some people what it is believe, partly because they are too stupid to understand, partly because we are too proudly vague to explain.
+ - You, of course, are a rose – But were always a rose.
+ - All great things are done for their own sake.
+ - At bottom the world isn’t a joke. We only joke about it to avoid an issue with someone, to let someone know that we know he’s there with his questions; to disarm him by seeming to have heard and done justice to his side of the standing argument.
+ - What is done is done for the love of it- or not really done at all.
+ - Poetry is a reaching out forward expression, an effort to find fulfillment.
+ - I go to school the youth to learn the future.
+ - Space ails us moderns: we are sick with space.
+ - It is absurd to think that the only way to tell if a poem is lasting is to wait and see if it lasts. The right reader of a good poem can tell the moment it strikes him that he has taken an immortal wound-that he will never get over it.
+ - Far in the pillared dark Thrush music went- Almost like a call to come in To the dark and lament. But no, I was out for stars: I would not come in. I meant not even if asked, And I hadn’t been.
+ - If society fits you comfortably enough, you call it freedom.
+ - Poets like Shakespeare know more about poetry than any $25 an hour man.
+ - There is the fear that we shan’t prove worthy in the eyes of someone who knows us at least as well as we know ourselves. That is the fear of God. And there is the fear of Man -fear that men won’t understand us and we shall be cut of from them.
+ - A civilized society is one which tolerates eccentricity to the point of doubtful sanity.
+ - The people I am most afraid of are those who are the most afraid.
+ - But he had gone his way, the grass all mown, And I must be, as he had been – alone, As all must be, I said within my heart, Whether they work together or apart.
+ - The worst disease which can afflict executives in their work is not, as popularly supposed, alcoholism; it’s egotism.
+ - They would not find me changed from him they knew – only more sure of all I thought was true.
+ - People are inexterminable like flies and bed-bugs. There will always be some that survive in cracks and crevices that’s us.
+ - The father is always a Republican toward his son, and his mother’s always a Democrat.
+ - Every poem is a momentary stay against the confusion of the world.
+ - I am sure I have heard this several times from places I can’t recall, but it’s not already in the Gaia Quotes database, so I add this profound insight from the fields of psychological healing and spiritual evolution. It sure has helped me.
+ - I could define poetry this way: it is that which is lost out of both prose and verse in translation.
+ - I never dared to be radical when young for fear it would make me conservative when old.
+ - Let him that is without stone among you cast the first thing he can lay his hands on.
+ - Don’t be an agnostic. Be something.
+ - Summoning artists to participate In the august occasions of the state Seems something artists ought to celebrate. Today is for my cause a day of days.
+ - Loyalty is that for the lack of which your gang will shoot you without benefit of trial by jury.
+ - When I was young, I was so interested in baseball that my family was afraid I’d waste my life and be a pitcher. Later they were afraid I’d waste my life and be a poet. They were right.
+ - I believe in teaching, but I don’t believe in going to school.
+ - Humor is the most engaging cowardice.
+ - Affection is an overpowering craving to be compellingly sought.
+ - For dear me, why abandon a belief Merely because it ceases to be true.
+ - But not gold in commercial quantities, Just enough gold to make the engagement rings And marriage rings of those who owned the farm. What gold more innocent could one have asked for?
+ - Most of the change we think we see in life is due to truths being in and out of favor.
+ - There are few sorrows, however poignant, in which a good income is of no avail.
+ - The difference between a man and his valet: they both smoke the same cigars, but only one pays for them.
+ - A turning point in modern history.
+ - End is a gloomy word.
+ - You can be a rank insider as well as a rank outsider.
+ - The land was ours before we were the land’s. She was our land more than a hundred years Before we were her people.
+ - Only where love and need are one, And the work is play for mortal stakes Is the deed ever truly done For Heaven and the future’s sakes.
+ - I end not far from my going forth By picking the faded blue Of the last remaining aster flower To carry again to you.
+ - A poet never takes notes. You never take notes in a love affair.
+ - I am one who has been acquainted with the night.
+ - Far more violence has been done in obeying the law than in breaking the law.
+ - Education is hanging around until you’ve caught on.
+ - Poetry is play. I’d even rather have you think of it as a sport. For instance, like football.
+ - One aged man – one man – can’t fill a house.
+ - Skepticism, is that anything more than we used to mean when we said, Well, what have we here?
+ - Man that is of woman born is apt to be as vain has his mother.
+ - Style is that which indicates how the writer takes himself and what he is saying. It is the mind skating circles around itself as it moves forward.
+ - Nobody was ever meant, To remember or invent, What he did with every cent.
+ - Fortunately, we don’t need to know how bad an age is. There is something we can always be doing without reference to how good or bad the age is.
+ - No memory of having starred atones for later disregard, or keeps the end from being hard.
+ - Everything written is as good as it is dramatic. It need not declare itself in form, but it is drama or nothing.
+ - The artist in me cries out for design.
+ - What is this talked-of mystery of birth. But being mounted bareback on the earth?
+ - Talking is a hydrant in the yard and writing is a faucet upstairs in the house. Opening the first takes the pressure off the second.
+ - There are tones of voices that mean more than words.
+ - Pressed into service means pressed out of shape.
+ - I never feel more at home than at a ballgame.
+ - The chief reason for going to school is to get the impression fixed for life that there is a book side for everything.
+ - I often say of George Washington that he was one of the few in the whole history of the world who was not carried away by power.
+ - Freedom is when you are easy in the harness.
+ - Possessing what we still were unpossessed by, Possessed by what we now no more possessed.
+ - If the day ever comes when they know who They are, they may know better where they are.
+ - Poets need not go to Niagara to write about the force of falling water.
+ - A poem may be worked over once it is in being, but may not be worried into being.
+ - One age is like another for the soul.
+ - We’re either nothing or a God’s regret.
+ - Two such as you with such a master speed Cannot be parted nor be swept away.
+ - Nature is always hinting at us.
+ - All thought is a feat of association; having what’s in front of you bring up something in your mind that you almost didn’t know you knew.
+ - Do you know, Considering the market, there are more Poems produced than any other thing? No wonder poets sometimes have to seem So much more businesslike than businessmen. Their wares are so much harder to get rid of.
+ - The people I want to hear about are the people who take risks.
+ - It’s hard to get into this world and hard to get out of it, and what’s in between doesn’t make much sense.
+ - What are we? Young or new? We must be something.
+ - Style is less the man than the way a man takes himself.
+ - Oh, give us pleasure in the orch-ard white, Like nothing else by day, like ghosts by night.
+ - He thought that I was after him for a feather – The white one in his tail: like one who takes everything said as personal to himself.
+ - Life is tons of discipline.
+ - Evolution is like walking on a rolling barrel. The walker isn’t so much interested in where the barrel is going as he is in keeping on top of it.
+ - Life must be kept up at a great rate in order to absorb any considerable amount of learning.
+ - Belief is better than anything else, and it is best when rapt – above paying its respects to anybody’s doubt whatsoever.
+ - As it is more blessed to receive, so it must be more blessed to receive than to give back.
+ - I came from a very intellectual neighborhood. When we played cowboys and Indians as kids, I had to be Gandhi.
+ - I hate the idea that you ought to read the whole of anybody.
+ - In heaven we are all ghostwriters, if we write at all.
+ - A successful lawsuit is the one worn by a policeman.
+ - It is only a moment here and a moment there that the greatest writer has. Some cognizance of the fact must be taken in your teaching.
+ - If one by one we counted people out.
+ - An idea comes as close to something for nothing as you can get.
+ - I’d just as soon play tennis with the net down.
+ - It’s God – I recognised him from Blake’s picture.
+ - The first thing I do in any town I come to is ask if it has a bookstore.
+ - Keep all ur troubles in ur own pocket. But, make sure that the pocket has a hole!
+
+312 quotes

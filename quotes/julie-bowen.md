@@ -1,0 +1,34 @@
+ - Success is getting up one more time than you fall down.
+ - There’s an expression: Great is the enemy of the good. Sometimes in trying to be great, you make a mess of things.
+ - It’s a war of attrition. If you have patience and a modicum of faith in yourself your chances are not too bad.
+ - I’m on a strict gossip diet. No gossip websites, no gossip magazines. Otherwise, I find it paralyzing to exist.
+ - I live alone with my one dog and they say it like it’s a sad, it’s a terrible thing. This woman lives alone with her two cats.
+ - I’ve had a little bad, bad media luck the new year. Well, apparently I’m dating Bill Clinton, which makes me nervous. I didn’t know, though.
+ - I’m so not stylish by nature, but I’ve learned to work with what I have.
+ - I was class mom at the preschool one year and I was pretty much asked not to do that again!
+ - I’m built like a 14-year-old boy. I have no waist, so anything I wear has to have a lot of trickeration going on. I don’t fit into girl dresses. I can’t just slip it on.
+ - I would like to say that I am a very relaxed, loving person who is not competitive, but that’s a lie!
+ - I frequently do drive carpool in the clothes I slept in, because it’s impossible to get three children out the door with lunches packed and all that stuff and have a do.
+ - I count myself lucky to be fairly anonymous but occasionally have people tell me nice things.
+ - I do find it odd people choose to do stuff that makes them look like crazy Hollywood faces, but I’ve got zero judgment.
+ - I read books more than I go out.
+ - I suffer the terrible disease of low self-esteem.
+ - I just can’t seem to make myself care about what I look like when I am working out.
+ - Baltimore is a great place.
+ - Women in Hollywood are tiny, but women in soap operas are the tiniest people alive!
+ - Children are like crazy, drunken small people in your house.
+ - I read books more than I go out. As a matter of fact, I get a little concerned about some of my anti-social habits. I will choose a night with Somerset Maugham or Russell Banks over a crowded bar any day.
+ - I’m in total celebrity denial in general, but there’s awareness that probably if somebody has met you, they might go and tell somebody. I just would rather have the word on the street stay at a neutral, not like, “She shows up in a ball gown,” but “She seemed nice.” That’s fine.
+ - I consider a day without running a crappy day. When I don’t get to run, I am a grump, but some days my schedule just doesn’t allow me to.
+ - As I have gotten older, I’ve discovered the joys of being lazy.
+ - I would love to do more movies, but the reality is women have many more opportunities on television to play a greater variety of characters.
+ - I guess I’m not that aware of such a big fan base. I have a few core people who write me no matter what I’m doing, but I hardly have sacks of mail being dropped on my door!
+ - I think it’s pretty common for people to get excited when they meet somebody that they know from the media.
+ - I have three kids. I should know how to take care of them.
+ - I had many decades of me time and now I just don’t have that anymore. There are days when I rail against it.
+ - I feel the most pulled together when I’m going for the tomboyish thing.
+ - I always come across sounding like I hate my children. I actually love them very much.
+ - I’m most certainly not the Beatles.
+ - As a matter of fact, I get a little concerned about some of my anti-social habits.
+
+32 quotes

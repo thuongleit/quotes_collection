@@ -1,0 +1,43 @@
+ - The universe is made of stories, not of atoms.
+ - What would happen if one woman told the truth about her life? The world would split open.
+ - The journey is my home.
+ - Breathe-in experience, breathe-out poetry.
+ - Try to live as if there were a God.
+ - A work of art is one through which the consciousness of the artist is able to give its emotions to anyone who is prepared to receive them.
+ - I am working out the vocabulary of my silence.
+ - All the poems of our lives are not yet made.
+ - Beware of those who talk about sacrifice.
+ - Slowly I would get to pen and paper, Make my poems for others unseen and unborn. In the day I would be reminded of those men and women, Brave, setting up signals across vast distances, considering a nameless way of living, of almost unimagined values.
+ - Whatever can happen to anyone can happen to me.
+ - Punctuation is biological. It is the physical indication of the body-rhythms which the reader is to acknowledge...
+ - No one wants to read poetry. You have to make it impossible for them to put the poem down – impossible for them to stop reading it, word after word. You have to keep them from closing the book.
+ - A world is to be fought for, sung, and built: Love must imagine the world.
+ - If there were no poetry on any day in the world, poetry would be invented that day. For there would be an intolerable hunger.
+ - We sit here, very different each from the other, until the passion arrives to give us our equality, to make us part of the play, to make the play part of us.
+ - I remember mother saying : Inventors are like poets, a trashy lot.
+ - I hear the singing of the lives of women. They clear mystery, the offering, and pride.
+ - The universe of poetry is the universe of emotional truth. Our material is in the way we feel and the way we remember.
+ - The world is not made of molecules, the world is made of stories.
+ - However confused the scene of our life appears, however torn we may be who now do face that scene, it can be faced, and we can go on to be whole.
+ - Outrage and possibility are in all the poems we know...
+ - Poetry is, above all, an approach to the truth of feeling.
+ - My lifetime listens to yours.
+ - There is also, in any history, the buried, the wasted, and the lost.
+ - The sources of poetry are in the spirit seeking completeness.
+ - Not all things are blest, but the seeds of all things are blest.
+ - I lived in the first century of world wars. Most mornings I would be more or less insane.
+ - Let us not fear the hidden. Or each other.
+ - I speak to you. You speak to me. Is that fragile?
+ - Flight is intolerable contradiction.
+ - I think there is a choice possible to us at any moment, as long as we live. But there is no sacrifice. There is a choice, and the rest falls away. Second choice does not exist. Beware of those who talk about sacrifice.
+ - One writes in order to feel...
+ - Dreams are the sources of action, the meeting and the end, a resting place among the flight of things.
+ - The process of writing a poem represents work done on the self of the poet, in order to make form.
+ - Hollywood works continually to keep its standard of contempt for the audience.
+ - Those who speak of our culture as dead or dying have a quarrel with life, and I think they cannot understand its terms, but must endlessly repeat the projection of their own desires.
+ - Always our wars have been our confessions of weakness.
+ - The fear of poetry is an indication that we are cut off from our own reality.
+ - As we live our truths, we will communicate across all barriers, speaking for the sources of peace. Peace that is not lack of war, but fierce and positive.
+ - Exchange is creation.
+
+41 quotes

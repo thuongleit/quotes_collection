@@ -1,0 +1,27 @@
+ - Social entrepreneurs are not content just to give a fish or teach how to fish. They will not rest until they have revolutionized the fishing industry.
+ - If everyone is a changemaker, there’s no way a problem can outrun a solution.
+ - Imagine a world where everyone is really a change maker.
+ - Change begets change as much as repetition reinforces repetition.
+ - It’s not to give people fish It’s not to teach them how to fish It’s to build a new and better fishing industry.
+ - The one single factor that determines society’s success is the percentage of change-makers within it.
+ - We started Ashoka here in India with a simple idea: that you needed social entrepreneurs to deal with problems that don’t fit the business paradigm.
+ - The most powerful force in the world is a big idea- if it is the hands of a great entrepreneur.
+ - Good entrepreneurs can manage, but no one but an entrepreneur can entrepreneur, let alone help build and lead the world’s community of leading social entrepreneurs and their top business entrepreneur allies.
+ - An entrepreneur is someone who brings a pattern change.
+ - What is our job as entrepreneurs if not to change things that are crazy?
+ - Every child must master empathy-based ethics because the rules are changing; the less they apply the less learning them has positive impact.
+ - Every successful organization has to make the transition from a world defined primarily by repetition to one primarily defined by change. This is the biggest transformation in the structure of how humans work together since the Agricultural Revolution.
+ - We need to teach empathy as we do literacy.
+ - Organizations must shift away from repetitive-function hierarchies with rules and enforcement and walls. Instead, we must migrate rapidly to becoming a global ‘team of teams’ that comes together in whatever combination necessary to add the greatest value to the changes underway.
+ - All the problems sitting there are an invitation for you to be creative, make use of your skills and resources and find a solution.
+ - Entrepreneurs almost always have to step out of existing institutions that embody old ways of doing things to build their vision.
+ - We have to have a revolution so that all young people grasp empathy and practice it. This is the most fundamental revolution that we have to get through.
+ - What is the most powerful lever you can imagine? A big idea, but only if it’s in the hands of a truly outstanding entrepreneur. It starts with the person and the idea, and then grows to the institution. All three are intertwined.
+ - Public service and respect for ideas is a recurrent theme in both the American and Australian sides of my family.
+ - There are millions of people who can get things done. There are very, very few people who will change the pattern in the whole field.
+ - Social entrepreneurs are married to a vision of, for example, a better way of helping young people grow up or of delivering global healthcare. They simply will not stop because they cannot be happy until their vision becomes the new pattern.
+ - The first – the most obvious test of a true social entrepreneur – is are they possessed, really possessed by an idea.
+ - Everyone says youve got to do a foundation and legal structure to finance social change. What nonsense!
+ - How could any entrepreneur, confronted by such amazing opportunities to help transform the world and to do so with such extraordinary colleagues, be tempted to lose focus? Especially since the work involves such breadth that the boredom of routine or specialization does not exist.
+
+25 quotes

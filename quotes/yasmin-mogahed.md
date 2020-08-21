@@ -1,0 +1,134 @@
+ - Resilience is very different than being numb. Resilience means you experience, you feel, you fail, you hurt. You fall. But, you keep going.
+ - Compassion is to look beyond your own pain, to see the pain of others.
+ - Let the love of Allah heal you. And free you.
+ - Know that transformation sometimes begins with a fall. So never curse the fall. The ground is where humility lives. Take it. Learn it. Breathe it in. And then come back stronger, humbler and more aware of your need for Him. Come back having seen your own nothingness and His greatness.
+ - Your life is nothing more than a love story. Between you and God. Nothing more. Every person, every experience, every gift, every loss, every pain is sent to your path for one reason and one reason only: to bring you back to Him.
+ - When the pain overtakes you, reach inside. Gather the broken pieces, and hand them to God. Ask Him to remake your heart. Different, this time. Stronger. More beautiful. This is how we are made, and remade by the Maker.
+ - Being both soft and strong is a combination very few have mastered.
+ - It is in that which you love the most that you find the greatest tests.
+ - Never lose hope. Stay close to Allah and when you mess up, go back to Him. Never, ever stop going back to Him. Repent often. Cry to Allah. And hold on tight-with your life-to His remembrance and to prayer. If you do this, you may get wet, but insha Allah never drown in this ocean of dunya.
+ - Don’t lie to me. Don’t deceive me. Give me the truth. Even if it breaks me. A painful truth is better than a pleasant lie.
+ - The body has many needs. But the soul has only one: to be with God.
+ - Holding on to hope when everything is dark, is the greatest test of faith.
+ - If you want this life to stop breaking your heart, stop giving your heart to this life.
+ - Don’t worry about what the people say. Sometimes they’ll praise you. Sometimes they’ll condemn you. All these things all fade away. And in the end, Allah takes care of everything. Perfectly.
+ - When you have friends, don’t expect your friends to fill your emptiness. When you get married, don’t expect your spouse to fulfill your every need. When you’re an activist, don’t put your hope in the results. When you’re in trouble don’t depend on yourself. Don’t depend on people. Depend on Allah.
+ - Some hearts understand each other, even in silence.
+ - As a Muslim woman, I’ve been liberated from a silent kind of bondage. I don’t answer to the slaves of God on earth. I answer to their King.
+ - Sometimes you search so hard for words. You look for a way to interpret the language of this heart and the unspoken bond you feel. But in the end you are left with nothing but silence. And deep down you hope it’s understood.
+ - When you’re in trouble don’t depend on yourself. Don’t depend on people. Depend on God.
+ - Ya Allah, envelop our hearts with a shield of your light and mercy, so the pain doesn’t penetrate.
+ - Don’t ever be afraid of giving. Give. Give of your time, your forgiveness, your understanding, your love. Give of your money. Give to the creation, and you’ll be given by the Creator. Be generous, and the Most Generous will be generous with you.
+ - Tear your heart out of your chest. And hand it to God. There is no other healing. I swear, there is no other healing.
+ - If you want to focus more on Allah in your prayers, focus more on Him outside your prayers.
+ - Tawbah is the cleaning of the heart, dhikr is the feeding of the heart.
+ - Seek the ones who never stop caring, who break down your walls, and help you come back to yourself.
+ - When someone shows you their heart, their past, their wounds, they have entrusted you with the deepest part of themselves. It is the part of themselves that makes them uniquely beautiful. To be trusted in this way is a great honor. Guard that trust with your life.
+ - Oh my heart, there is another way to love. Do not love the gift for what the gift is. Love the gift for Who it came from.
+ - Love people for the sake of God, but never love God for the sake of people.
+ - If you want the love of the people, stop running after it. The more you chase it, the more it escapes you. Love doesn’t come from the people. It comes from God.
+ - There’s a time for words and a time for silence. If you’re listening, you’ll hear the difference.
+ - Don’t get attached to moments. Good or bad, they all pass.
+ - There’s a special place in my heart for the ones who were with me at my lowest and still loved me when I wasn’t very loveable.
+ - The Dunya is like the ocean and our heart is like the ship. If a ship allows the water to enter, it will sink. Just like when we allow the Dunya to enter our heart.
+ - Your beauty is in your sensitivity. Don’t let anyone take it from you.
+ - Know that transformation sometimes begins with a fall. So never curse the fall.
+ - The greatest virtue is not in forgiving those who apologize, or in being kind to those who are kind to you. The biggest virtue is in forgiving even those who never apologize, and in being kind to even those who are not kind to you.
+ - You refuse to forgive people, and yet on the Day of Judgment you will stand bare, begging Allah to forgive you.
+ - The poison leaves bit by bit, not all at once. Be patient. You are healing.
+ - People think that tests only come in the form of hardships. Allah also tests us with ease, it’s often in the test of ease that we fail most.
+ - Give. Even when you know you can get nothing back.
+ - If there is one recipe for unhappiness it is that: expectations.
+ - Sometimes the gifts of God aren’t wrapped as we expect.
+ - If you wonder how you’ll get through this new heartbreak, just think back. Remember all you’ve been through in the past. And how each time you swore, you’d never get through it. But you did. And look where you’re at now. This too shall pass!
+ - Happiness, sadness, loss and gain all pass away. What they do to us is what remains.
+ - Beware of what you let enter your heart. There will come a day when you’d give anything to remove it.
+ - Keep praying, even if you have only a whisper left.
+ - You keep running after the love of the people, but you’ll never get it. And what you do get, will never be enough. The hole inside you is too big. You see, it was made by God, for God. How could anything less fill it?
+ - Blessings come in packages of two. With every blessing is a test. So don’t ever envy people who seem to have more than you. The more blessings, the more tests. And the greater the blessing, the harder the test.
+ - I get it. Allah put me through it first so I could rise back up and help those around me. He trains you first. Then He sends the people to you and you to the people.
+ - Tell this imprisoned soul that it will never be owned. Nothing will ever own you. But God.
+ - We cannot tolerate one mistake from others, and yet God tolerates a planet covered with His own creation that live their entire lives sinning and denying Him, and yet continues to feed, clothe and protect them.
+ - Don’t think being ‘religious’ means becoming harsh or hard. When Allah enters a heart, He softens it – He doesn’t harden it.
+ - When someone hurts you, your first thought may be to wish you had never met them at all. But remember that even those who’ve hurt you, came into your life for a reason, and left for a reason. It’s for the best and healing starts with acceptance.
+ - Be grateful for the wound that pushes you towards God.
+ - Your heart is sacred land. Don’t let just anything enter it. Guard it with your life.
+ - Times of hardship can act as both an indicator, as well as a cure, for our broken relationship with our Creator.
+ - If you’re having trouble waking up for fajr, set your alarm to play Quran. It works!
+ - Allah is al-Kareem, so if He withholds from you it is not on account of stinginess. It is on account of His generosity. He withholds to give.
+ - Any beauty you see in me is only a reflection of Him, any ugliness, a reflection of my self.
+ - Time for solitude. God, I ask you to remake my heart. Fill it with what You love. Remove from it what You don’t. And mend what I’ve broken.
+ - Can not the One who gives life to dead land, give life to dead hearts?
+ - You cried when He took away your drop of water, not knowing He’d saved for you, the sea.
+ - Speak your heart. If they don’t understand, the message was never meant for them anyway.
+ - This pain in your heart was created to make you yearn less for this life. And to yearn more for jennah. Allahu akbar.
+ - This world isn’t perfect. That means it isn’t perfectly good; but it isn’t perfectly bad, either. The ease comes with the hardship. Shift the focus of what you see, and your experience of this life will change.
+ - We will be asked, “what did you love most in this world? What did you spend life doing? What did you run after? Will it last? The things that you chased, will they last? Will they help you, or will they hurt you when the illusion of this life has passed?”
+ - When you suffer, don’t speak. Look inside and listen for the duaa He inspires in you. and then ask Him. Again and again. Don’t stop.
+ - Leaving the people and places you love, is a reminder of the impermanence of this life. And the permanence of the next.
+ - Hope shouldn’t increase with good deeds and decrease with sin. In good deeds, my hope is for Allah to accept. In sin, my hope is for Allah to forgive.
+ - Stop hating on yourself for not being perfect. If God wanted perfection, He would have made you an angel.
+ - Break in the hands of God, He’ll unbreak you. Break in the hands of people, you’ll remain forever broken. Break to no one, your heart will remain hard.
+ - Don’t despair if your heart has been through a lot of trauma. Sometimes that’s how beautiful hearts are remade: they are shattered first.
+ - If you seek Him, God can raise you up, and replace the darkness of the ocean, with the light of His Sun.
+ - Allah manages everything in the heavens and earth – the sun, the moon, the stars – with perfection, and yet we don’t trust Him to manage our lives!
+ - Time of difficulty test our faith, our fortitude and our strenght. During these times, the level of our imaan becomes manifest.
+ - Worry is a direct consequence of relying on your own efforts.
+ - I’ll tell you the only way to survive: Ask God to place a semi-permeable shield around your heart: One that only allows what He loves to enter.
+ - You have trouble feeling alive, so you stab your own heart just to feel something. It was the emptiness that was killing you. You created the sadness and the fear to fill it.
+ - Sometimes we make duaa for a door of dunya. When it doesn’t open, we cry. Not realizing that Allah has instead opened a door of jennah for us.
+ - There is meaning in all things. But are you paying attention?
+ - Never curse a fall. The ground is where humility lives.
+ - My sisters, let’s tell ‘fashion’ we love Allah more!
+ - Embrace life and all that God gives you-but never let it contain you. This world is too small to contain you.
+ - My laughter won’t last forever but neither will my tears. We say this life isn’t perfect. And it isn’t. It isn’t perfectly good. But, it also isn’t perfectly bad, either.
+ - Be careful about wanting what others have. There is always a price. Perhaps God didn’t give it to you, because He knew you wouldn’t be able to pay it.
+ - Like Musa you too will be saved from the Sea. Just look through it and see Him. Then the illusion will crumble and you’ll be left with the only Reality: Him.
+ - This life will never be without storms. Stop fearing the storm. Build your inner shelter.
+ - Loss; is the returning of what never actually belonged to us in the first place.
+ - My Nafs screams out for what it desires. But my will to be free screams louder.
+ - The worst part of getting close to someone is the part when you have to miss them.
+ - Some feel lonely because they haven’t found that perfect ‘companion’ yet. Sometimes Allah sends everyone else away so you can find that only in Him.
+ - Before anything can break your heart, it must first own your heart. Stop handing your heart to dunya-it’ll stop breaking it.
+ - If you allow dunya to own your heart, like the ocean that owns the boat, it will take over. You will sink down to the depths of the sea. You will touch the ocean floor.
+ - God tells me to cover myself, to hide my beauty and to tell the world that I’m not here to please men with my body; I’m here to please God. God elevates the dignity of a woman’s body by commanding that it be respected and covered, shown only to the deserving – only to the man I marry.
+ - If you worshipped Muhammad, know that Muhammad is dead. But if you worshipped Allah, know that Allah never dies.
+ - Everything we do is motivated by love. Even fear and hate are born of love. So be careful what you love.
+ - Once in a while, people enter our lives and lessen the loneliness of being away from Home.
+ - My dear sisters in humanity: Your beauty-both internal and external-is priceless. Only the man who marries you has a right to see it. Never forget, if he doesn’t want to marry you, he doesn’t deserve you.
+ - He chose better for me, He always chooses better.
+ - I think we seek out people who we hope will fix what our childhood broke.
+ - Everything is as it should be. God’s design is perfect.
+ - When you’re faced with a choice, remember this: Everything else will pass away. Your family. Your friends. Your material possessions. Your beauty. Your youth. Your life. And there is only one thing that remains. Ask yourself: Which are you chasing?
+ - When your failures surround you, and all the open doors have closed, look up. There’s a door that never closes, a way, when all the other ways have failed you.
+ - Like the sun that sets at the end of the day, so too will Ramadan come and go, leaving only it’s mark on our heart’s sky.
+ - Its shocking how many people believe hardships are a punishment from God! Every hardship is good for you-if it brings you closer to Him!
+ - When you Rectify your Relationship with the Creator, He Rectifies your relationship with All of the Creation.
+ - When you fall in love with a work of art, you’d die to meet the artist. I am a student of the galleries of Pacific sunsets, full moon rises on the ocean, the clouds from an airplane, autumn forests in Raleigh, first fallen snows. And I’m dying to meet the artist.
+ - Many of us rely on our own illusion of control. But when God makes it known to you that you’re not the one steering the ship, be thankful. He has removed the illusion, and forced you to rely only on Him.
+ - Yes, the heart breaks. But, it also heals.
+ - With the withering of the rose, and with each fallen petal, Allah is reminding us that everything here is passing away. He is reminding us that nothing in this world will remain, except for Allah.
+ - The one who knows himself isn’t deceived by either praise or criticism.
+ - The traveler walks through many mirages before he finds water.
+ - Let your former selves teach you, but never limit or define you.
+ - If you want to kill something, neglect it. It happens in both good and bad. Neglect a relationship, it dies. Neglect your iman, it dies. But the same principal applies when you want to kill something like a thought or a desire. Neglect it, it dies.
+ - If you want to know what’s Real, of love, of life, of loyalty, put it through the greatest test: Time.
+ - Do your part, but stop trying to steer your destiny. You’re not in charge.
+ - You can’t run in more than one direction at a time. And you will only run in the direction you are facing. So if your heart is facing anything other than Allah, it isn’t Him you’re running towards.
+ - If you study your own struggles, the struggles of others, even in movies or novels you’ll see the root of all their suffering is always attachments.
+ - Oh external worshiper, know that worship without heart is motions. Oh seeker of knowledge, know that knowledge without purification is a dangerous weapon of the ego. Oh activist, know that work without orientation of heart is fruitless. Oh lover, know that love without God is pain.
+ - You put your head on the ground, and in that moment everything was okay.
+ - People think it’s the mind that drives us. It is the heart. The mind is a slave to the heart. So check the condition of the heart.
+ - Allah does not withhold to withhold. Remaking the heart was the objective. To remake it, He sometimes breaks it first.
+ - Just as storms change the landscape of the earth, our hardships change the landscape of the heart.
+ - Love isn’t supposed to torment you. If it does, there’s probably something wrong.
+ - To me, jennah is the place where you get to be with the people you love, including those you can’t always be with in this life. And being with them forever.
+ - Everything you have is on loan. Foolish is the one who gets attached to a loan.
+ - Don’t you think there’s a problem when we live in a society that considers a woman’s greatest accomplishment being pretty for a man?
+ - We will suffer the moment we take our eyes off the End and get lost in the means.
+ - Take care of the hearts you’ve been entrusted with. Once lost, they can be lost from you forever.
+ - Let your heart go Home, even before your body arrives.
+ - Beauty attracts beauty. If you want to know what you are, look at what you are drawn to.
+ - Seek those who help you hear your own heart.
+
+132 quotes

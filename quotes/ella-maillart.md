@@ -1,0 +1,40 @@
+ - You do not travel if you are afraid of the unknown, you travel for the unknown, that reveals you with yourself.
+ - One travels to run away from routine, that dreadful routine that kills all imagination and all our capacity for enthusiasm.
+ - The true traveller is the one urged to move about for physical, aesthetic, intellectual as well as spiritual reasons.
+ - The sooner we learn to be jointly responsible, the easier the sailing will be.
+ - It is always our own self that we find at the end of the journey. The sooner we face that self, the better.
+ - One travels so as to learn once more how to marvel at life in the way a child does. And blessed be the poet, the artist who knows how to keep alive his sense of wonder.
+ - Every time I took a long leave from home, I felt as if I were going to conquer the world. Or rather, take possession of what is my birthright, my inheritance.
+ - The benefits of the accomplished journey cannot be weighed in terms of perfect moments, but in terms of how this journey affects and changes our character.
+ - The timelessness of a concept has to be woven into the running warp of dying time, vertical power has to be wedded to the horizontal earth.
+ - One travels to escape from it all, but that is the great illusion: It cannot be done, since one travels with one’s mind.
+ - From the beginning, I wanted to live my own life, and patiently I shored up that desire against wind and tide.
+ - We must develop a deeper interest and greater understanding of the people we meet here or abroad. Like us, they are passengers on board that mysterious ship called life.
+ - The wideness of the horizon has to be inside us, cannot be anywhere but inside us, otherwise what we speak about is geographic distances.
+ - I had to live in the desert before I could understand the full value of grass in a green ditch.
+ - When the heart speaks, its language is the same under all latitudes.
+ - Humanity is made up of an infinity of different individuals. Each of us travels for motives exclusively his own.
+ - One of the main points about travelling is to develop in us a feeling of solidarity, of that oneness without which no better world is possible.
+ - Certain travelers give the impression that they keep moving because only then do they feel fully alive.
+ - Only when one is able to grasp wideness can one possess it.
+ - The usual channels of university studies or secretarial work did not appeal to me. I cherished difficult dreams through confidence in myself.
+ - Shall we ever see the 10 million things of the universe simultaneously in order to be the all? I am convinced that to live is to travel towards the world’s end.
+ - Others are keen to see if natives other than us live better than we do, without heat in pipes, ice in boxes, sunshine in bulbs, music on disks, or images gliding over a pale screen.
+ - Words are impotent to describe certain emotions.
+ - You can feel as brave as Columbus starting for the unknown the first time you enter a Chinese lane full of boys laughing at you, or when you risk climbing down in a Tibetan pub for a meal of rotten meat.
+ - Those who appreciate the ways of simple tribes, where every activity is direct and immediately understandable, are able to live among them.
+ - When I look at something, it is certain that for an instant I am one with what I see.
+ - I am convinced that to live is to travel towards the world’s end.
+ - I can see now that a concept or even a feeling makes no sense unless out of our substance we spin around it a web of references, of relationships, of values.
+ - Travel can also be the spirit of adventure somewhat tamed, for those who desire to do something they are a bit afraid of.
+ - The state of minds vary according to the angle under which one examines them.
+ - There is only one valid species of voyage, which is walk towards the men.
+ - I refuse to imprison our acts in the rigid mould of sentences.
+ - I gained direct knowledge of the life of the poor in big towns: I have lived the narrowing mechanism of its conditioning and feared it.
+ - I am sure that instinctively we wish to be everything, to possess it-why cut the rose or marry the man, otherwise?
+ - Happiness is the intoxication produced by the moment of poise between a satisfactory past and an immediate future, rich with promise.
+ - Not only does travel give us a new system of reckoning, it also brings to the fore unknown aspects of our own self. Our consciousness being broadened and enriched, we shall judge ourselves more correctly.
+ - I did not want to be depressed by the gap existing between my weakness and my ambition.
+ - I wanted to learn a few foreign languages, and therefore I had to go abroad.
+
+38 quotes

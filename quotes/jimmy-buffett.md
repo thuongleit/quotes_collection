@@ -1,0 +1,155 @@
+ - Go fast enough to get there, but slow enough to see.
+ - Breathe in, breathe out, move on...
+ - Without geography you’re nowhere.
+ - I’m growing older, but not up.
+ - It takes no more time to see the good side of life than to see the bad.
+ - Wrinkles will only go where the smiles have been.
+ - Mother Mother Ocean, I have heard your call.
+ - Searching is half the fun: life is much more manageable when thought of as a scavenger hunt as opposed to a surprise party.
+ - Shells sink, dreams float. Life’s good on our boat.
+ - I’d rather die while I’m living than live while I’m dead.
+ - Indecision may or may not be my problem.
+ - Only time will tell if it was time well-spent.
+ - We got to roll with the punches, play all of our hunches, make the best of whatever comes your way. Forget that blind ambition, learn to trust your intuition – plowing straight ahead, come what may.
+ - Some of it’s magic and some of it’s tragic but I had a good life all the way.
+ - Be good, and you will be lonesome, be lonesome and you will be free. Live a lie and you will live to regret it, that’s what living is to me.
+ - People who think too much before they act don’t act too much.
+ - It’s those changes in latitudes, changes in attitudes nothing remains quite the same. With all of our running and all of our cunning, if we couldn’t laugh, we would all go insane.
+ - I’ve got a Caribbean soul I can barely control, and some Texas hidden here in my heart!
+ - Tonight I just need my guitar.
+ - Why don’t we get drunk and screw?
+ - Yes, I am a pirate, two hundred years to late. Cannons don’t thunder, there’s nothing to plunder, I’m an over forty victim of fate.
+ - I have always looked at life as a voyage, mostly wonderful, sometimes frightening. In my family and friends I have discovered treasure more valuable than gold.
+ - Some make the world go round; others watch it turn.
+ - I just want to live happily ever after, every now and then.
+ - Don’t try to describe the ocean if you’ve never seen it.
+ - If I couldn’t laugh, I just would go insane. If we couldn’t laugh, we just would go insane. If we weren’t all crazy, we would go insane.
+ - If I don’t die by Thursday, I’ll be roaring Friday night.
+ - If there’s a heaven for me, I’m sure it has a beach attached.
+ - Some people think there’s a woman to blame, but I know – it’s my own damn fault.
+ - The weather is here Wish you were beautiful.
+ - Oh, yesterdays are over my shoulder, So I can’t look back for too long. There’s just too much to see waiting in front of me, and I know that I just can’t go wrong.
+ - I’m getting old, don’t wear underwear, and I don’t go to church.
+ - I have been drunk now for over two weeks.
+ - Surrounded by stories surreal and sublime, I fell in Love in the Library once upon a time.
+ - This morning I shot six holes in my freezer. I think I’ve got cabin fever.
+ - When reality looks too ugly, fantasize.
+ - Is it time for your medication or mine?
+ - Nothing to show but this brand new tattoo. But it’s a real beauty, a Mexican cutie, how it got here I haven’t a clue.
+ - Therapy is extremely expensive. Popping bubble wrap is radically cheap.
+ - It was too much Tequila, or not quite enough.
+ - I slowly surrender to the child in me who can’t say goodbye.
+ - Forget that blind ambition, and learn to trust your intuition.
+ - I’m going back to my parrot head friends.
+ - Give me oysters and beer, for dinner every day of the year, and I’ll be fine...
+ - Sail the main course in a simple sturdy craft. Keep her well stocked with short stories and long laughs. Go fast enough to get there but slow enough to see. Moderation seems to be the key.
+ - Whatever thrills you, anything you love to do, just say – Someday, I will.
+ - My occupational hazard is my occupation’s just not around...
+ - You better lava me now or lava me not.
+ - He went to Paris looking for answers to questions that bothered him so. He was impressive, young and aggressive, saving the world on his own.
+ - If we couldn’t laugh, we would all going to go insane.
+ - Fun is about as good a habit as there is.
+ - You know Death will get you in the end, but if you are smart and have a sense of humor, you can thumb your nose at it for awhile.
+ - Drive-in, you guzzle gin, commit a little mortal sin.
+ - Gluttony, do not eat thy neighbor’s wife’s popcorn.
+ - With you, I would walk anywhere.
+ - While my mind is flexible, these brittle bones don’t bend.
+ - These old ballparks are like cathedrals in America. We don’t have big old Gothic cathedrals like they do in Europe. But we got baseball parks.
+ - Mirror that lies, mirror that lies, that can’t be me in the gorilla disguise.
+ - Mr. Bear, you know in the eyes of the Lord, we’re both beasts.
+ - Wasting away again in Margaritaville, searching for my lost shaker of salt.
+ - Humor has bailed me out of more tight situations than I can think of. If you go with your instincts and keep your humor, creativity follows. With luck, success comes, too.
+ - Barmaid, bring a pitcher, another round of brew. Honey, why don’t we get drunk and screw?
+ - Pack your bags, we’re going on a guilt trip!
+ - I recommend that you try a little mental floss.
+ - So I’ll put on my bob marley tape And practice what I preach Get jah lost in the reggae mon As I walk along the beach.
+ - Where’s the church, who took the steeple, Religion’s in the hands of some crazy ass people, Television preachers with bad hair and dimples, The God’s honest truth is, it’s not that simple.
+ - I made a deal with the devil for a whole lot of money.
+ - We’re just recycled history machines, cavemen in faded blue jeans.
+ - I got a PBS mind in an MTV world.
+ - It’s a fine line between Saturday night and Sunday morning.
+ - My head hurts, my feet stink, and I don’t love Jesus. It’s that kind of morning.
+ - I know a girl made of memories and phrases, lives her whole life in chapters and phases...
+ - I want to keep going as I have, to travel, read, perform, write, and enjoy my family. I’ve promised myself only this: no more Laundromats, no more two-shows-a-night, and no more deadlines. I’ll work at my own pace.
+ - The ocean has always been a salve to my soul.
+ - When the good times come around, they gallup in like wild horses. You just try to stay on them for as long as you can. And when they throw you offyou just wait in the shade until they come around again.
+ - It’s my job to be better than the rest, and that’s enough reason to go for me. It’s my job to be better than the rest, and that makes the day for me.
+ - If someone wants a piece of you, never let them pay. What you do not give to them time takes anyway.
+ - I was hungry and went out for a bite, ran into a chum with a bottle of rum and we wound up drinking all night.
+ - I’ve always been trying to write songs like Lightfoot. A song of mine like ‘Come Monday’ is a direct result of me trying to write a Gordon Lightfoot song.
+ - Under the heavens and under the sea there’s a friend I don’t know, who holds the right key.
+ - I got my hush puppies on. I guess I never was made meant for glitter rock and roll.
+ - Today there are two Madonnas, our lady of Fatima over here and that woman from Michigan.
+ - I got quarters in my loafers trying to fight inflation when it only used to take a cent.
+ - I hate to mention age, but I come from an era when we weren’t consumed by technology and television. My mother insisted that her children read. To describe my scarce leisure time in today’s terms, I always default to reading.
+ - What if life is just a cosmic joke, like spiders in your underwear.
+ - I’m a big follower and reactor to weather.
+ - Bryl-cream, a little dab will do you.
+ - There’s damsels in distress out there, and we got all this beer.
+ - That to me is the way any good romantic would look at his life: Live it first, then write it down before you go.
+ - I have never cared about setting world records, or filling my boat with fish, or, for that matter, even catching fish. I go for the experience of spending six hours in the arms of the ocean, never thinking of a single thing except chasing fish.
+ - I always said that I wouldn’t use a teleprompter, and if I start to sing real flat, I’ll hang it up.
+ - Any manual labor I’ve done was purely by mistake.
+ - Quitting doesn’t enter my mind.
+ - They send you off to college, try to gain a little knowledge, but all you want to do is learn how to score.
+ - The cheating was sweet, but my heart is beat. Don’t tear it apart, please by-pass this heart.
+ - Pickup’s washed and you just got paid, with any luck at all you might even get laid.
+ - When they tried to draft me, I earned a college degree.
+ - Songwriters write songs, but they really belong to the listener.
+ - Never did I think that I became family entertainment.
+ - I still consider it a summer job, though. So, I try to maintain that summer job as long as I can. But it’s exciting to be able to have the opportunity to do things I always dreamed of as a kid.
+ - There’s a little bit of fruitcake left in everyone of us.
+ - My mother insisted that her children read.
+ - Back to my childhood where those monsters reside. They snack on innocence and dine on self esteem.
+ - I just thank God I don’t live in a trailer.
+ - Is it ignorance or apathy, I forget the lessons taught to me.
+ - The wino and I know the pain of back bustin’.
+ - Lights are glowing in the palm trees...
+ - What would Pop-eye do in a tight spot like this?
+ - My only contact with the outside world was an RCA Victrola, and Elvis would sing, and then I’d dream about expensive cars.
+ - I know I should be leaving this climate, I’ve got a verse, but can’t rhyme it.
+ - Maybe there is another who sees life not as a flickering candle but as a torch that can illuminate an undiscovered world.
+ - The beautiful people in the magazines, got the normal ones living beyond their means.
+ - Elvis up in Michigan and maybe out in Mars.
+ - Be yourself, be pleasant, play hard and have no regrets...
+ - I was suppose to be a Jesuit priest or a naval academy graduate.
+ - It is an eternal truth in the political as well as the mystical body, that where one member suffers, all the members suffer with it.
+ - I remember the excruciating school task of writing a three-page term paper. But, oh, that feeling when I was done! I think I drive myself for that feeling of accomplishment.
+ - Nobody else cares about you at the beginning of your career except you-and, of course, your mother. Your mother is there because that is what mothers do.
+ - There’s a strange sense of pleasure being beat to hell by a storm when you’re on a ship that is not going to sink.
+ - I can’t fax you my love, I can’t email my heart.
+ - Any attempts at autobiography before the age of eighty seem pretty self-involved to me. There are a lot of smart middle aged people but not many wise ones.
+ - We made it nearly 20 centuries, a bunch of monkeys with PH Ds.
+ - The right combination of guilt and machismo has sent many a fool out into the jungle when he should have stayed home.
+ - I’d like to be a jellyfish, ’cause jellyfish don’t pay rent.
+ - I arm myself with punch lines and a big old water gun.
+ - And I try to give the best bang for the buck. I love performing more than anything else.
+ - You know, as a writer, I’m more of a listener than a writer, cuz if I hear something I will write it down.
+ - I still believe in rock and roll, it pays my bills.
+ - Cheeseburger in paradise!
+ - One of the inescapable encumbrances of leading an interesting life is that there have to be moments when you almost lose it.
+ - There’s no ‘dumb-ass’ vaccine.
+ - Elvis was the only man from Northeast Mississippi who could shake his hips and still be loved by rednecks, cops, and hippies.
+ - Yes, I am a pirate two hundred years too late.
+ - Found a shaman in a diaper with a poppy pot. When I asked if he was cold, he said just think hot.
+ - I ain’t no drinking man, but temptation got the best of me.
+ - Maybe roll in the sand with a rock and roll man.
+ - Tell me where are the flashbacks they all warned us would come?
+ - There will always be those who feel more comfortable not venturing from the warmth of the hearth, but there are those who prefer to look out the window and wonder what is beyond the horizon.
+ - It’s important to have as much fun as possible while we’re here. It balances out the times when the minefield of life explodes.
+ - You’ve been acting like Jesus owes you a favor, but he’s a little smart for you to fool.
+ - This imitation Elvis may not be the king, but baby I’m the next best thing.
+ - We’re wanted men, we’ll strike again, but first let’s have a beer.
+ - Truth is stranger than fishin.
+ - Love is a wave building to a crescendo. Ride if you will, ride it with me.
+ - Moderation is the key so I work certain amout of time and then I take a certain amount of time off.
+ - If the phone doesn’t ring, it’s me.
+ - Whether it’s a letter, song lyrics, part of a novel, or instructions on how to fix a kitchen sink, it’s writing. You keep your craft honed, you acquire the discipline to finish things. You turn into a self-taskmaster.
+ - You get religion as your hair turns grey.
+ - We need more fruitcakes in this world, and less bakers!
+ - My voyage was never a well-conceived plan, nor will it ever be. I have made it up as I went along.
+ - I’ve always found drugs and alcohol somewhat pedestrian. It’s like, I don’t need an external agent to open my mind. I’m here, conscious, alert, present. Why would I alter that?
+ - Where it all ends I can’t fathom, my friends. If I knew, I might toss out my anchor.
+ - Being rich and famous seems to have its ups and downs. That’s the price you pay for being troubadours and clowns.
+
+153 quotes

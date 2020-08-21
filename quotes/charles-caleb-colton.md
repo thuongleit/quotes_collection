@@ -1,0 +1,502 @@
+ - The true measure of your character is what you do when nobody’s watching.
+ - The study of mathematics, like the Nile, begins in minuteness but ends in magnificence.
+ - The greatest friend of truth is Time, her greatest enemy is Prejudice, and her constant companion is Humility.
+ - Man is an embodied paradox, a bundle of contradictions.
+ - We hate some persons because we do not know them; and will not know them because we hate them.
+ - The present time has one advantage over every other – it is our own.
+ - Money is the most envied, but the least enjoyed. Health is the most enjoyed, but the least envied.
+ - Friendship often ends in love. But love in friendship; never.
+ - Times of great calamity and confusion have been productive for the greatest minds. The purest ore is produced from the hottest furnace. The brightest thunder-bolt is elicited from the darkest storm.
+ - The road to glory would cease to be arduous if it were trite and trodden; and great minds must be ready not only to take opportunities but to make them.
+ - Most plagiarists, like the drone, have neither taste to select, industry to acquire, nor skill to improve, but impudently pilfer the honey ready prepared, from the hive.
+ - Corruption is like a ball of snow, once it’s set a rolling it must increase.
+ - Time is the most undefinable yet paradoxical of things; the past is gone, the future is not come, and the present becomes the past, even while we attempt to define it.
+ - Nothing more completely baffles one who is full of trick and duplicity, than straightforward and simple integrity in another.
+ - Men will wrangle for religion, write for it, fight for it, die for it; anything but live for it.
+ - Love is an alchemist that can transmute poison into food.
+ - Examinations are formidable even to the best prepared, for the greatest fool may ask more than the wisest man can answer.
+ - Pure truth, like pure gold, has been found unfit for circulation because men have discovered that it is far more convenient to adulterate the truth than to refine themselves.
+ - The art of declamation has been sinking in value from the moment that speakers were foolish enough to publish, and hearers wise enough to read.
+ - The mistakes of the fool are known to the world, but not to himself. The mistakes of the wise man are known to himself, but not to the world.
+ - Deliberate with caution, but act with decision and yield with graciousness, or oppose with firmness.
+ - The intoxication of anger, like that of the grape, shows us to others, but hides us from ourselves.
+ - Our wealth is often a snare to ourselves, and always a temptation to others.
+ - Mystery is not profoundness.
+ - The seeds of repentance are sown in youth by pleasure, but the harvest is reaped in age by pain.
+ - Eloquence is the language of nature, and cannot be learned in the schools; but rhetoric is the creature of art, which he who feels least will most excel in.
+ - Sturdy beggars can bear stout denials.
+ - True contentment depends not upon what we have; a tub was large enough for Diogenes, but a world was too little for Alexander.
+ - From its very inaction, idleness ultimately becomes the most active cause of evil; as a palsy is more to be dreaded than a fever. The Turks have a proverb which says that the devil tempts all other men, but that idle men tempt the devil.
+ - Riches may enable us to confer favors, but to confer them with propriety and grace requires a something that riches cannot give.
+ - Did universal charity prevail, earth would be a heaven, and hell a fable.
+ - The firmest friendships have been formed in mutual adversity, as iron is most strongly united by the fiercest flame.
+ - Those that are the loudest in their threats are the weakest in their actions.
+ - There is nothing more imprudent than excessive prudence.
+ - Wealth after all is a relative thing since he that has little and wants less is richer than he that has much and wants more.
+ - Pain may be said to follow pleasure as its shadow.
+ - Revenge is fever in our own blood, to be cured only by letting the blood of another; but the remedy too often produces a relapse, which is remorse – a malady far more dreadful than the first disease, because it is incurable.
+ - There can be no Christianity where there is no charity.
+ - Our admiration of fine writing will always be in proportion to its real difficulty and its apparent ease.
+ - Hurry is the mark of a weak mind, dispatch of a strong one.
+ - Mystery magnifies danger as the fog the sun.
+ - Envy is the coward side of Hate, And all her ways are bleak and desolate.
+ - We may lay in a stock of pleasures, as we would lay in a stock of wine, but if defer tasting them too long, we shall find that both are soured by age.
+ - If you want enemies, excel others; if you want friends, let others excel you.
+ - The smiling daughter of the storm.
+ - That extremes beget extremes is an apothegm built on the most profound observation of the human mind.
+ - A hug is worth a thousand words.
+ - We own almost all our knowledge not to those who have agreed but to those who have differed.
+ - Falsehood is never so successful as when she baits her hook with truth, and no opinions so fatally mislead us as those that are not wholly wrong, as no watches so effectively deceive the wearer as those that are sometimes right.
+ - When you have nothing to say, say nothing.
+ - None are so fond of secrets as those who do not mean to keep them; such persons covet secrets as a spendthrift covets money, for the purpose of circulation.
+ - Life often presents us with a choice of evils, rather than of goods.
+ - Ambition makes the same mistake concerning power that avarice makes concerning wealth. She begins by accumulating power as a means to happiness, and she finishes by continuing to accumulate it as an end.
+ - Time is the measurer of all things, but is itself immeasurable, and the grand discloser of all things, but is itself undisclosed.
+ - Diffidence is the better part of knowledge.
+ - The sun should not set upon our anger, neither should he rise upon our confidence. We should forgive freely, but forget rarely. I will not be revenged, and this I owe to my enemy; but I will remember, and this I owe to myself.
+ - Liberty will not descend to a people; a people must raise themselves to liberty; it is a blessing that must be earned before it can be enjoyed.
+ - A public debt is a kind of anchor in the storm; but if the anchor be too heavy for the vessel, she will be sunk by that very weight which was intended for her preservation.
+ - Early rising not only gives us more life in the same number of years, but adds, likewise, to their number; and not only enables us to enjoy more of existence in the same time, but increases also the measure.
+ - Honor is unstable and seldom the same; for she feeds upon opinion, and is as fickle as her food.
+ - We often pretend to fear what we really despise, and more often despise what we really fear.
+ - Memory is the friend of wit, but the treacherous ally of invention; there are many books that owe their success to two things; good memory of those who write them, and the bad memory of those who read them.
+ - We should choose our books as we would our companions, for their sterling and intrinsic merit.
+ - That an author’s work is the mirror of his mind is a position that has led to very false conclusions. If Satan himself were to write a book it would be in praise of virtue, because the good would purchase it for use, and the bad for ostentation.
+ - No metaphysician ever felt the deficiency of language so much as the grateful.
+ - Habit will reconcile us to everything but change.
+ - Body and mind, like man and wife, do not always agree to die together.
+ - Where we cannot invent, we may at least improve; we may give somewhat of novelty to that which was old, condensation to that which was diffuse, perspicuity to that which was obscure, and currency to that which was recondite.
+ - It is with disease of the mind, as with those of the body; we are half dead before we understand our disorder, and half cured when we do.
+ - Discretion has been termed the better part of valour, and it is more certain, that diffidence is the better part of knowledge.
+ - If rich, it is easy enough to conceal our wealth; but, if poor, it is not quite so easy to conceal our poverty. We shall find that it is less difficult to hide a thousand guineas, than one hole in our coat.
+ - Injuries accompanied with insults are never forgiven: all men, on these occasions, are good haters, and lay out their revenge at compound interest.
+ - Worldly wisdom dictates to her disciples the propriety of dressing somewhat beyond their means, but of living somewhat within them.
+ - Cruel men are the greatest lovers of Mercy, avaricious men of generosity, and proud men of humility; that is to say, in other, not in themselves.
+ - Ambition is to the mind what the cap is to the falcon; it blinds us first, and then compels us to tower by reason of our blindness.
+ - All adverse and depressing influences can be overcome, not by fighting, by by rising above them.
+ - To look back to antiquity is one thing, to go back to it is another.
+ - To know a man, observe how he wins his object, rather than how he loses it; for when we fail, our pride supports us – when we succeed, it betrays us.
+ - All preceptors should have that kind of genius described by Tacitus, “equal to their business, but not above it;” a patient industry, with competent erudition; a mind depending more on its correctness than its originality, and on its memory rather than on its invention.
+ - It is a mistake, that a lust for power is the mark of a great mind; for even the weakest have been captivated by it; and for minds of the highest order, it has no charms.
+ - A Christian builds his fortitude on a better foundation than stoicism; he is pleased with every thing that happens, because he knows it could not happen unless it first pleased God, and that which pleases Him must be best.
+ - True friendship is like sound health; the value of it is seldom known until it is lost.
+ - Mystery magnifies danger, as a fog the sun, the hand that warned Belshazzar derived its horrifying effect from the want of a body.
+ - Sleep, the type of death, is also, like that which it typifies, restricted to the earth. It flies from hell and is excluded from heaven.
+ - A youth without fire is followed by an old age without experience.
+ - A harmless hilarity and a buoyant cheerfulness are not infrequent concomitants of genius; and we are never more deceived than when we mistake gravity for greatness, solemnity for science, and pomposity for erudition.
+ - The two most precious things this side of the grave are our reputation and our life. But it is to be lamented that the most contemptible whisper may deprive us of the one, and the weakest weapon of the other.
+ - Envy ought to have no place allowed it in the hearts of people; for the goods of this present world are so vile and low that they are beneath it; and those of the future world are so vast and exalted that they are above it.
+ - Words are in this respect like water, that they often take their taste, flavour, and character, from the mouth out of which they proceed, as the water from the channel through which it flows.
+ - Self-denial is often the sacrifice of one sort of self-love for another.
+ - We ask advice but we mean approbation.
+ - Pride is less ashamed of being ignorant, than of being instructed, and she looks too high to find that, which very often lies beneath her.
+ - There is this difference between the two temporal blessings – health and money; money is the most envied, but the least enjoyed; health is the most enjoyed, but the least envied; and this superiority of the latter is still more obvious when we reflec.
+ - In most quarrels there is a fault on both sides. A quarrel may be compared to a spark, which cannot be produced without a flint, as well as steel. Either of them may hammer on wood forever; no fire will follow.
+ - Custom is the law of one description of fools, and fashion of another; but the two parties often clash – for precedent is the legislator of the first, and novelty of the last. Custom, therefore, looks to things that are past, and fashion to things that are present.
+ - He who knows himself knows others.
+ - It is much easier to ruin a man of principle than a man of none, for he may be ruined through his scruples. Knavery is supple and can bend; but honesty is firm and upright, and yields not.
+ - Those who have finished by making all others think with them, have usually been those who began by daring to think with themselves.
+ - There are three difficulties in authorship: to write anything worth publishing, to find honest men to publish it, and to find sensible men to read it.
+ - Total freedom from error is what none of us will allow to our neighbors; however we may be inclined to flirt a little with such spotless perfection ourselves.
+ - Few things are more agreeable to self-love than revenge, and yet no cause so effectually restrains us from revenge as self-love. And this paradox naturally suggests another; that the strength of the community is not unfrequently built upon the weakness of those individuals that compose it.
+ - To be continually subject to the breath of slander, will tarnish the purest virtue, as a constant exposure to the atmosphere will obscure the brightness of the finest gold; but in either case, the real value of both continues the same, although the currency may be somewhat impeded.
+ - The greatest and most amiable privilege which the rich enjoy over the poor is that which they exercise the least – the privilege of making others happy.
+ - Knowledge is two-fold, and consists not only in an affirmation of what is true, but in the negation of that which is false.
+ - Hannibal knew better how to conquer than how to profit by the conquest; and Napoleon was more skilful in taking positions than in maintaining them. As to reverses, no general cart presume to say that he may not be defeated; but he can, and ought to say, that he will not be surprised.
+ - The highest knowledge can be nothing more than the shortest and clearest road to truth; all the rest is pretension, not performance, mere verbiage and grandiloquence, from which we can learn nothing.
+ - When you have nothing to say, say nothing; a weak defense strengthens your opponent, and silence is less injurious than a bad reply.
+ - We must be careful how we flatter fools too little, or wise men too much, for the flatterer must act the very reverse of the physician, and administer the strongest dose only to the weakest patient.
+ - Criticism is like champagne, nothing more execrable if bad, nothing more excellent if good.
+ - Light, whether it be material or moral, is the best reformer; for it prevents those disorders which other remedies sometimes cure, but sometimes confirm.
+ - Bed is a bundle of paradoxes: we go to it with reluctance, yet we quit it with regret.
+ - Criticism is like champagne, nothing more execrable if bad, nothing more excellent if good; if meagre, muddy, vapid and sour, both are fit only to engender colic and wind; but if rich, generous and sparkling, they communicate a genial glow to the spirits, improve the taste, and expand the heart.
+ - Great minds had rather deserve contemporaneous applause without obtaining it, than obtain without deserving it. If it follow them it is well, but they will not deviate to follow it.
+ - A power above all human responsibility ought to be above all human attainment.
+ - Men of great and shining qualities do not always succeed in life, but the fault lies more often in themselves than in others.
+ - He that is good will infallibly become better, and he that is bad will as certainly become worse; for vice, virtue, and time are three things that never stand still.
+ - To dare to live alone is the rarest courage; since there are many who had rather meet their bitterest enemy in the field, than their own hearts in their closet.
+ - Suicide sometimes proceeds from cowardice, but not always; for cowardice sometimes prevents it; since as many live because they are afraid to die, as die because they are afraid to live.
+ - Anguish of mind has driven thousands to suicide; anguish of body, none. This proves that the health of the mind is of far more consequence to our happiness than the health of the body, although both are deserving of much more attention than either of them receive.
+ - Insults are engendered from vulgar minds, like toadstools from a dunghill.
+ - If you are under obligations to many, it is prudent to postpone the recompensing of one, until it be in your power to remunerate all; otherwise you will make more enemies by what you give, than by what you withhold.
+ - For one man who sincerely pities our misfortunes, there are a thousand who sincerely hate our success.
+ - So long as lust, whether of the world or flesh, smells sweet in our nostrils, so long we are loathsome to God.
+ - The hate which we all bear with the most Christian patience is the hate of those who envy us.
+ - When we are in the company of sensible men, we ought to be doubly cautious of talking too much, lest we lose two good things, their good opinion and our own improvement; for what we have to say we know, but what they have to say we know not.
+ - Where true religion has prevented one crime, false religions have afforded a pretext for a thousand.
+ - Much too oft we make life gloomy – When happy we might be, If we gathered more of sunshine, And not dark shadows see.
+ - Truth can hardly be expected to adapt herself to the crooked policy and wily sinuosities of worldly affairs; for truth, like light, travels only in straight lines.
+ - I have somewhere seen it observed that we should make the same use of a book that the bee does of a flower: she steals sweets from it, but does not injure it.
+ - Pity a thing often avowed, seldom felt; hatred is a thing often felt, seldom avowed.
+ - He that has never known adversity is but half acquainted with others, or with himself.
+ - If you cannot avoid a quarrel with a blackguard, let your lawyer manage it, rather than yourself. No man sweeps his own chimney, but employs a chimney-sweeper, who has no objection to dirty work, because it is his trade.
+ - Great men, like comets, are eccentric in their courses, and formed to do extensive good by modes unintelligible to vulgar minds.
+ - With the offspring of genius, the law of parturition is reversed; the throes are in the conception, the pleasure in the birth.
+ - Heaven may have happiness as utterly unknown to us as the gift of perfect vision would be to a man born blind. If we consider the inlets of pleasure from five senses only, we may be sure that the same Being who created us could have given us five hundred, if He had pleased.
+ - Death is like thunder in two particulars; we are alarmed, at the sound of it; and it is formidable only from that which preceded it.
+ - The sceptic, when he plunges into the depths of infidelity, like the miser who leaps from the shipwreck, will find that the treasures which he bears about him will only sink him deeper in the abyss.
+ - If we look backwards to antiquity it should be as those that are winning a race.
+ - To be obliged to beg our daily happiness from others bespeaks a more lamentable poverty than that of him who begs his daily bread.
+ - Any one can give advice, such as it is, but only a wise man knows how to profit by it.
+ - Expect not praise without envy until you are dead.
+ - The acquirements of science may be termed the armour of the mind; but that armour would be worse than useless, that cost us all we had, and left us nothing to defend.
+ - Nobility of birth does not always insure a corresponding unity of mind; if it did, it would always act as a stimulus to noble actions; but it sometimes acts as a clog rather than a spur.
+ - Women do not transgress the bounds of decorum so often as men; but when they do, they go greater lengths.
+ - Gaming is the child of avarice, but the parent of prodigality.
+ - The inheritance of a distinguished and noble name is a proud inheritance to him who lives worthily of it.
+ - The three great apostles of practical atheism, that make converts without persecuting, and retain them without preaching, are wealth, health and power.
+ - Duke Chartres used to boast that no man could have less real value for character than himself, yet he would gladly give twenty thousand pounds for a good one, because he could immediately make double that sum by means of it.
+ - He who studies books alone will know how things ought to be, and he who studies men will know how they are.
+ - The temple of truth is built indeed of stones of crystal, but, inasmuch as men have been concerned in rearing it, it has been consolidated by a cement composed of baser materials.
+ - The Grecian’s maxim would indeed be a sweeping clause in Literature; it would reduce many a giant to a pygmy; many a speech to a sentence; and many a folio to a primer.
+ - Unlike the sun, intellectual luminaries shine brightest after they set.
+ - The gamester, if he die a martyr to his profession, is doubly ruined. He adds his soul to every other loss, and by the act of suicide, renounces earth to forfeit Heaven.
+ - Secrecy of design, when combined with rapidity of execution, like me column that guided Israel in the deserts, becomes the guardian pillar of light and fire to our friends, a cloud of overwhelming and impenetrable darkness to our enemies.
+ - Peace is the evening star of the soul, as virtue is its sun, and the two are never far apart.
+ - When in reading we meet with any maxim that may be of use, we should take it for our own, and make an immediate application of it, as we would of the advice of a friend whom we have purposely consulted.
+ - It is better to meet danger than to wait for it. He that is on a lee shore, and foresees a hurricane, stands out to sea and encounters a storm to avoid a shipwreck.
+ - As we ascend in society, like those who climb a mountain, we shall find that the line of perpetual congelation commences with the higher circles; and the nearer we approach to the grand luminary the court, the more frigidity and apathy shall we experience.
+ - Doubt is the vestibule of faith.
+ - He that dies a martyr proves that he was not a knave, but by no means that he was not a fool; since the most absurd doctrines are not without such evidence as martyrdom can produce. A martyr, therefore, by the mere act of suffering, can prove nothing but his own faith.
+ - Our very best friends have a tincture of jealousy even in their friendship; and when they hear us praised by others, will ascribe it to sinister and interested motives if they can.
+ - It may be observed of good writing, as of good blood, that it is much easier to say what it is composed of than to compose it.
+ - A beautiful woman, if poor, should use double circumspection; for her beauty will tempt others, her poverty herself.
+ - As no roads are so rough as those that have just been mended, so no sinners are so intolerant as those that have just turned saints.
+ - Doubt is the vestibule through which all must pass before they can enter into the temple of wisdom.
+ - Kings and their subjects, masters and slaves, find a common level in two places – at the foot of the cross, and in the grave.
+ - God will excuse our prayers for ourselves whenever we are prevented from them by being occupied in such good works as to entitle us to the prayers of others.
+ - There is a holy love and a holy rage, and our best virtues never glow so brightly as when our passions are excited in the cause. Sloth, if it has prevented many crimes, has also smothered many virtues; and the best of us are better when roused.
+ - If the prodigal quits life in debt to others, the miser quits it still deeper in debt to himself.
+ - Love, like the cold bath, is never negative, it seldom leaves us where it finds us; if once we plunge into it, it will either heighten our virtues, or inflame our vices.
+ - We are sure to be losers when we quarrel with ourselves; it is civil war.
+ - To admit that there is any such thing as chance, in the common acceptation of the term, would be to attempt to establish a power independent of God.
+ - An Irish man fights before he reasons, a Scotchman reasons before he fights, an Englishman is not particular as to the order of precedence, but will do either to accommodate his customers.
+ - Ladies of Fashion starve their happiness to feed their vanity, and their love to feed their pride.
+ - Man, if he compare himself with all that he can see, is at the zenith of power; but if he compare himself with all that he can conceive, he is at the nadir of weakness.
+ - The mob is a monster, with the hands of Briareus, but the head of Polyphemus, – strong to execute, but blind to perceive.
+ - There are prating coxcombs in the world who would rather talk than listen, although Shakespeare himself were the orator, and human nature the theme!
+ - Those who bequeath unto themselves a pompous funeral, are at just so much expense to inform the world of something that had much better be concealed; namely, that their vanity has survived themselves.
+ - That is true beauty which has not only a substance, but a spirit; a beauty that we must intimately know, justly to appreciate.
+ - That author, however, who has thought more than he has read, read more than he has written, and written more than he has published, if he does not command success, has at least deserved it.
+ - Women generally consider consequences in love, seldom in resentment.
+ - If our eloquence be directed above the heads of our hearers, we shall do no execution. By pointing our arguments low, we stand a chance of hitting their hearts as well as their heads. In addressing angels, we could hardly raise our eloquence too high; but we must remember that men are not angels.
+ - The wealth is ultimately just a relative thing. As a person with little money and little more needs to rich guys money but really wishes.
+ - A wise man may be duped as well as a fool; but the fool publishes the triumph of the deceiver.
+ - Pedantry crams our heads with learned lumber and takes out our brains to make room for it.
+ - Opinions, like showers, are generated in high places, but they invariably descend into lower ones, and ultimately flow down to the people as rain unto the sea.
+ - War kills men, and men deplore the loss; but war also crushes bad principles and tyrants, and so saves societies.
+ - Were we as eloquent as angels we still would please people much more by listening rather than talking.
+ - Of all the marvelous works of God, perhaps the one angels view with the most supreme astonishment, is a proud man.
+ - The upright, if he suffer calumny to move him, fears the tongue of man more than the eye of God.
+ - The code of poor laws has at length grown up into a tree, which, like the fabulous Upas, overshadows and poisons the land; unwholesome expedients were the bud, dilemmas and depravities have been the blossom, and danger and despair are the bitter fruit.
+ - Love may exist without jealousy, although this is rare: but jealousy may exist without love, and this is common; for jealousy can feed on that which is bitter no less than on that which is sweet, and is sustained by pride as often as by affection.
+ - It is more easy to forgive the weak who have injured us than the powerful whom we have injured.
+ - If all seconds were as averse to duels as their principals, very little blood would be shed in that way.
+ - Friendship, of itself a holy tie, is made more sacred by adversity.
+ - Oppression cannot prosper where none will submit to be enslaved.
+ - Of two evils, it is perhaps less injurious to society, that good doctrine should be accompanied by a bad life, than that a good life should lend its support to a bad doctrine.
+ - Faith and works are necessary to our spiritual life as Christians, as soul and body are to our natural life as men; for faith is the soul of religion, and works the body.
+ - In death itself there can be nothing terrible, for the act of death annihilates sensation; but there are many roads to death, and some of them justly formidable, even to the bravest.
+ - We ought not to be over-anxious to encourage innovation in cases of doubtful improvement, for an old system must ever have two advantages over a new one; it is established, and it is understood.
+ - No disorders have employed so many quacks, as those that have no cure; and no sciences have exercised so many quills, as those that have no certainty.
+ - Be real and adjust you strategy according to honest results.
+ - None are so seldom found alone, and are so soon tired of their own company, as those coxcombs who are on the best terms with themselves.
+ - When millions applaud you seriously ask yourself what harm you have done; and when they disapprove you, what good.
+ - Many a man may thank his talent for his rank, but no man has ever been able to return the compliment by thanking his rank for his talent.
+ - Revenge is a much more punctual paymaster than gratitude.
+ - That writer does the most who gives his reader the most knowledge and takes from him the least time.
+ - Commerce flourishes by circumstances, precarious, transitory, contingent, almost as the winds and waves that bring it to our shores.
+ - The interests of society often render it expedient not to utter the whole truth, the interests of science never: for in this field we have much more to fear from the deficiency of truth than from its abundance.
+ - He that can please nobody is not so much to be pitied as he that nobody can please.
+ - To cure us of our immoderate love of gain, we should seriously consider how many goods there are that money will not purchase, and these the best; and how many evils there are that money will not remedy, and these the worst.
+ - Philosophy is a goddess, whose head indeed is in heaven, but whose feet are upon earth; she attempts more than she accomplishes, and promises more than she performs.
+ - As that gallant can best affect a pretended passion for one woman who has no true love for another, so he that has no real esteem for any of the virtues can best assume the appearance of them all.
+ - War is a game in which princes seldom win, the people never.
+ - There are two way of establishing a reputation, one to be praised by honest people and the other to be accused by rogues. It is best, however, to secure the first one, because it will always be accompanied by the latter.
+ - It is not until we have passed through the furnace that we are made to know how much dross there is in our composition.
+ - Mathematicians have sought knowledge in figures, Philosophers in systems, Logicians in subtleties, and Metaphysicians in sounds. It is not in any nor in all of these. He that studies only men, will get the body of knowledge without the soul, and he that studies only books, the soul without the body.
+ - We often regret we did not do otherwise, when that very otherwise would, in all probability, have done for us.
+ - There were moments of despondency when Shakespeare thought himself no poet, and Raphael no painter; when the greatest wits have doubted the excellence of their happiest efforts.
+ - Women who are the least bashful are not unfrequently the most modest; and we are never more deceived than when we would infer any laxity of principle from that freedom of demeanor which often arises from a total ignorance of vice.
+ - God is as great in minuteness as He is in magnitude.
+ - Those who visit foreign nations, but associate only with their own country-men, change their climate, but not their customs. They see new meridians, but the same men; and with heads as empty as their pockets, return home with traveled bodies, but untravelled minds.
+ - Secrecy is the soul of all great designs. Perhaps more has been effected by concealing our own intentions than by discovering those of our enemy.
+ - Let us not be too prodigal when we are young, nor too parsimonious when we are old. Otherwise we shall fall into the common error of those, who, when they had the power to enjoy, had not the prudence to acquire; and when they had the prudence to acquire, had no longer the power to enjoy.
+ - Revenge is a debt, in the paying of which the greatest knave is honest and sincere, and, so far as he is able, punctual.
+ - Avarice has ruined more men than prodigality, and the blindest thoughtlessness of expenditure has not destroyed so many fortunes as the calculating but insatiable lust of accumulation.
+ - When a man has displayed talent in some particular path, and left all competitors behind him in it, the world are too apt to give him credit for universality of genius, and to anticipate for him success in all that he undertakes.
+ - Forgiveness, that noblest of all self-denial, is a virtue which he alone who can practise in himself can willingly believe in another.
+ - Vanity finds in self-love so powerful an ally that it storms, as it were, by a coup de main,, the citadel of our heads, where, having blinded the two watchmen, it readily descends into the heart.
+ - In cases of doubtful morality, it is usual to say is there any harm in doing this? This question may sometimes be best answered by asking ourselves another; is there any harm in letting it alone?
+ - Courage is like the diamond, – very brilliant; not changed by fire, capable of high polish, but except for the purpose of cutting hard bodies useless.
+ - Perhaps that is nearly the perfection of good writing which is original, but whose truth alone prevents the reader from suspecting that it is so; and which effects that for knowledge which the lens effects for the sunbeam, when it condenses its brightness in order to increase its force.
+ - Where thou perceivest knowledge, bend the ear of attention and respect; But yield not further to the teaching, than as thy mind is warranted by reasons. Better is an obstinant disputant, that yieldeth inch by inch, Than the shallow traitor to himself, who surrendereth to half an argument.
+ - Adroit observers will find that some who affect to dislike flattery, may yet be flattered indirectly, by a well seasoned abuse and ridicule of their rivals.
+ - Grant graciously what you cannot refuse safely and conciliate those you cannot conquer.
+ - Ignorance lies at the bottom of all human knowledge, and the deeper we penetrate, the nearer we arrive unto it.
+ - Too high an appreciation of our own talents is the chief cause why experience preaches to us all in vain.
+ - As the gout seems privileged to attack the bodies of the wealthy, so ennui seems to exert a similar prerogative over their minds.
+ - Logic and metaphysics make use of more tools than all the rest of the sciences put together, and do the least work.
+ - Professors in every branch of the sciences, prefer their own theories to truth: the reason is that their theories are private property, but truth is common stock.
+ - There are some frauds so well conducted that it would be stupidity not to be deceived by them.
+ - This world cannot explain its own difficulties without the assistance of another.
+ - It is easier to pretend to be what you are not than to hide what you really are; but he that can accomplish both has little to learn in hypocrisy.
+ - If a horse has four legs, and I’m riding it, I think I can win.
+ - There is this of good in real evils; they deliver us, while they last, from the petty despotism of all that were imaginary.
+ - It has been shrewdly said, that when, men abuse us we should suspect ourselves, and when they praise us, them. It is a rare instance of virtue to despise which censure which we do not deserve; and still more rare to despise praise which we do.
+ - If Satan ever laughs, it must be at hypocrites; they are the greatest dupes he has.
+ - Were the life of man prolonged, he would become such a proficient in villainy, that it would become necessary again to drown or to burn the world. Earth would become an hell; for future rewards when put off to a great distance, would cease to encourage, and future punishments to alarm.
+ - There are three modes of bearing the ills of life, by indifference, by philosophy, and by religion.
+ - Sloth, if it has prevented many crimes, has also smothered many virtues.
+ - There are too many who reverse both the principles and the practice of the Apostles; they become all things to all men, not to serve others, but themselves; and they try all things only to hold fast that which is bad.
+ - Flattery is often a traffic of mutual meanness, where although both parties intend deception, neither are deceived.
+ - Short as life is, some find it long enough to outlive their characters, their constitutions and their estates.
+ - Of all the passions, jealousy is that which exacts the hardest service, and pays the bitterest wages. Its service is to watch the success of one’s enemy; its wages to be sure of it.
+ - Constant success shows us but one side of the world. For as it surrounds us with friends who will tell us only our merits, so it silences those enemies from whom alone we can learn our defects.
+ - He that thinks he is the happiest man, really is so. But he that thinks he is the wisest, is generally the greatest fool.
+ - Gaming has been resorted to by the affluent as a refuge from ennui. It is a mental dram, and may succeed for a moment; but, like all other stimuli, it produces indirect debility.
+ - Villains are usually the worst casuists, and rush into crimes to avoid less. Henry VIII. committed murder to avoid the imputation of adultery; and in our times, those who commit the latter crime attempt to wash off the stain of seducing the wife by signifying their readiness to shoot the husband.
+ - Style is indeed the valet of genius, and an able one too; but as the true gentleman will appear, even in rags, so true genius will shine, even through the coarsest style.
+ - What would you do if you knew for sure that no one would ever find out?
+ - Men’s arguments often prove nothing but their wishes.
+ - We should not be too niggardly in our praise, for men will do more to support a character than to raise one.
+ - Cheerfulness ought to be the viaticum vitae of their life to the old; age without cheerfulness is a Lapland winter without a sun.
+ - The victim to too severe a law is considered as a martyr rather than a criminal.
+ - Evils in the journey of life are like the hills which alarm travelers upon their road; they both appear great at a distance, but when we approach them we find that they are far less insurmountable than we had conceived.
+ - It is a common observation that any fool can get money; but they are not wise that think so.
+ - There is this paradox in fear: he is most likely to inspire it in others who has none himself!
+ - There are many women who have never intrigued, and many men who have never gamed; but those who have done either but once are very extraordinary animals.
+ - So blinded are we by our passions, that we suffer more to be damned than to be saved.
+ - Whenever we find ourselves more inclined to persecute than to persuade, we may then be certain that our zeal has more of pride in it than of charity.
+ - The brightest thunder-bolt is elicited from the darkest storm.
+ - An act by which we make one friend and one enemy is a losing game; because revenge is a much stronger principle than gratitude.
+ - Afflictions sent by providence melt the constancy of the noble minded, but confirm the obduracy of the vile, as the same furnace that liquefies the gold, hardens the clay Charles Caleb Colton.
+ - Calumny crosses oceans, scales mountains and traverses deserts, with greater ease than the Scythian Abaris, and like him, rides upon a poisoned arrow.
+ - In science, reason is the guide; in poetry, taste. The object of the one is truth, which is uniform and indivisible; the object of the other is beauty, which is multiform and varied.
+ - Be very slow to believe that you are wiser than all others; it is a fatal but common error.
+ - Two things, well considered, would prevent many quarrels: first, to have it well ascertained whether we are not disputing about terms, rather than things; and, secondly, to examine whether that on which we differ is worth contending about.
+ - He that places himself neither higher nor lower than he ought to do exercises the truest humility.
+ - The praise of the envious is far less creditable than their censure; they praise only that which they can surpass, but that which surpasses them they censure.
+ - Hope is a prodigal young heir, and experience is his banker.
+ - Love is an alliance of friendship and animalism; if the former predominates it is passion exalted and refined; if the latter, gross and sensual.
+ - When I meet with any persons who write obscurely or converse confusedly, I am apt to suspect two things; first, that such persons do not understand themselves; and secondly, that they are not worthy of being understood by others.
+ - Despotism can no more exist in a nation until the liberty of the press be destroyed than the night can happen before the sun is set.
+ - In religion as in politics it so happens that we have less charity for those who believe half our creed, than for those who deny the whole of it.
+ - Princes rule the people, and their own passions rule Princes; but Providence can over-rule the whole, and draw the instruments of his inscrutable purposes from the vices, no less than the virtues of Kings.
+ - Unity of opinion is indeed a glorious and desirable thing, and its circle cannot be too strong and extended, if the centre be truth; but if the centre be error, the greater the circumference, the greater the evil.
+ - Imitation is the highest form of flattery.
+ - He that has energy enough to root out a vice should go further, and try to plant a virtue in its place.
+ - In civil jurisprudence it too often happens that there is so much law, that there is no room for justice, and that the claimant expires of wrong in the midst of right, as mariners die of thirst in the midst of water.
+ - The greatest genius is never so great as when it is chastised and subdued by the highest reason.
+ - That profound firmness which enabler a man to regard difficulties but as evils to be surmounted, no matter what shape they may assume.
+ - Repartee is perfect when it effects its purpose with a double edge. It is the highest order of wit, as it indicates the coolest yet quickest exercise of genius, at a moment when the passions are roused.
+ - Light, whether it be material or moral, is the best reformer.
+ - Butler compared the tongues of these eternal talkers to race-horses, which go the faster the less weight they carry.
+ - Is there anything more tedious than the often repeated tales of the old and forgetful?
+ - There are three kinds of praise, that which we yield, that which we lend, and that which we pay. We yield it to the powerful from fear, we lend it to the weak from interest, and we pay it to the deserving from gratitude.
+ - The science of mathematics performs more than it promises, but the science of metaphysics promises more than it performs.
+ - Taking things not as they ought to be, but as they are, I fear it must be allowed that Macchiavelli will always have more disciples than Jesus.
+ - The hand that unnerved Belshazzar derived its most horrifying influence from the want of a body, and death itself is not formidable in what we do know of it, but in what we do not.
+ - Shakespeare, Butler and Bacon have rendered it extremely difficult for all who come after them to be sublime, witty or profound.
+ - A leveller has long ago been set down as a ridiculous and chimerical being, who, if he could finish his work to-day, would have to begin it again tomorrow.
+ - Secrecy is the soul of all great designs.
+ - We are more inclined to hate one another for points on which we differ, than to love one another for points on which we agree.
+ - The science of legislation is like that of medicine in one respect: that it is far more easy to point out what will do harm than what will do good.
+ - No company is preferable to bad. We are more apt to catch the vices of others than virtues, as disease is far more contagious than health.
+ - Life isn’t like a book. Life isn’t logical or sensible or orderly. Life is a mess most of the time. And theology must be lived in the midst of that mess.
+ - The society of dead authors has this advantage over that of the living: they never flatter us to our faces, nor slander us behind our backs, nor intrude upon our privacy, nor quit their shelves until we take them down.
+ - An honest man will continue to be so though surrounded on all sides by rogues.
+ - We shall at all times chance upon men of recondite acquirements, but whose qualifications, from the incommunicative and inactive habits of their owners, are as utterly useless to others as though the possessors had them not.
+ - Villainy that is vigilant will be an overmatch for virtue, if she slumber at her post.
+ - The most consistent men are not more unlike to others, than they are at times to themselves.
+ - There are two things that bestow consequence; great possession, or great debts.
+ - If you cannot inspire a woman with love of you, fill her above the brim with love of herself; all that runs over will be yours.
+ - Envy, if surrounded on all sides by the brightness of another’s prosperity, like the scorpion confined within a circle of fire, will sting itself to death.
+ - The further we advance in knowledge, the more simplicity shall we discover in those primary rules that regulate all the apparently endless, complicated, and multiform operations of the Godhead.
+ - As there are some faults that have been termed faults on the right side, so there are some errors that might be denominated errors on the safe side. Thus we seldom regret having been too mild, too cautious, or too humble; but we often repent having been too violent, too precipitate, or too proud.
+ - The enthusiast has been compared to a man walking in a fog; everything immediately around him, or in contact with him, appears sufficiently clear and luminous; but beyond the little circle of which he himself is the centre, all is mist and error and confusion.
+ - Jealousy is sustained as often by pride as by affection.
+ - It is far better to borrow experience than to buy it.
+ - The reason why great men meet with so little pity or attachment in adversity, would seem to be this: the friends of a great man were made by his fortune, his enemies by himself, and revenge is a much more punctual paymaster than gratitude.
+ - Most importantly: Don’t adjust your results to build up the ego of the chief strategist. Especially if the strategist is you.
+ - Theory is worth but little, unless it can explain its own phenomena, and it must effect this without contradicting itself; therefore, the facts are sometimes assimilated to the theory, rather than the theory to the facts.
+ - As there are none so weak that we may venture to injure them with impunity, so there are none so low that they may not at some time be able to repay an obligation. Therefore, what benevolence would dictate, prudence would confirm.
+ - To be satisfied with the acquittal of the world, though accompanied with the secret condemnation of conscience, this is the mark of a little mind; but it requires a soul of no common stamp to be satisfied with its own acquittal, and to despise the condemnation of the world.
+ - The head of dullness, unlike the tail of the torpedo, loses nothing of the benumbing and lethargizing influence by reiterated discharges.
+ - Some men who know that they are great are so very haughty withal and insufferable that their acquaintance discover their greatness only by the tax of humility which they are obliged to pay as the price of their friendship.
+ - Strong as our passions are, they may be starved into submission, and conquered without being killed.
+ - The good opinion of our fellow men is the strongest, though not the purest motive to virtue.
+ - Patience is the support of weakness; impatience the ruin of strength.
+ - The next thing to having wisdom ourselves, is to profit by that of others.
+ - There is but one pursuit in life which it is in the power of all to follow, and of all to attain. It is subject to no disappointments, since he that perseveres, makes every difficulty an advancement, and every contest a victory; and this is the pursuit of virtue.
+ - From the preponderance of talent, we may always infer the soundness and vigour of the commonwealth; but from the preponderance of riches, its dotage and degeneration.
+ - Physical courage, which despises all danger, will make a man brave in one way; and moral courage, which despises all opinion, will make a man brave in another.
+ - It is good to act as if. It is even better to grow to the point where it is no longer an act.
+ - Faults of the head are punished in this world, those of the heart in another; but as most of our vices are compound, so also is their punishment.
+ - Tomorrow! It is a period nowhere to be found in all the registers of time, unless, perchance, in the fool’s calendar.
+ - It is a mortifying truth, and ought to teach the wisest of us humility, that many of the most valuable discoveries have been the result of chance rather than of contemplation, and of accident rather than of design.
+ - Some reputed saints that have been canonized ought to have been cannonaded.
+ - The only kind office performed for us by our friends of which we never complain is our funeral; and the only thing which we most want, happens to be the only thing we never purchase – our coffin.
+ - Five thousand years have added no improvement to the hive of the bee, nor to the house of the beaver; but look at the habitations and the achievements of men!
+ - Genius in one grand particular is like life. We know nothing of either but by their effects.
+ - Most men know what they hate, few what they love.
+ - A wise minister would rather preserve peace than gain a victory, because he knows that even the most successful war leaves nations generally more poor, always more profligate, than it found them.
+ - Of all the faculties of the mind, memory is the first that flourishes, and the first that dies.
+ - If merited, no courage can stand against its just indignation.
+ - Ennui has made more gamblers than avarice.
+ - Some men are very entertaining for a first interview, but after that they are exhausted, and run out; on a second meeting we shall find them flat and monotonous; like hand-organs, we have heard all their tunes.
+ - Subtlety will sometimes give safety, no less than strength; and minuteness has sometimes escaped, where magnitude would have been crushed. The little animal that kills the boa is formidable chiefly from its insignificance, which is incompressible by the folds of its antagonist.
+ - When we feel a strong desire to thrust our advice upon others, it is usually because we suspect their weakness; but we ought rather to suspect our own.
+ - It is not so difficult a task to plant new truths, as to root out old errors; for there is this paradox in men, they run after that which is new, but are prejudiced in favor of that which is old.
+ - It is always safe to learn, even from our enemies; seldom safe to venture to instruct, even our friends.
+ - False reasoners are often best confuted by giving them the full swing of their own absurdities.
+ - Silence is less injurious than a weak reply.
+ - Some frauds succeed from the apparent candor, the open confidence, and the full blaze of ingenuousness that is thrown around them. The slightest mystery would excite suspicion and ruin all. Such stratagems may be compared to the stars; they are discoverable by darkness and hidden only by light.
+ - Our minds are as different as our faces. We are all traveling to one destination: happiness, but few are going by the same road.
+ - Logic is a large drawer, containing some useful instruments, and many more that are superfluous. A wise man will look into it for two purposes, to avail himself of those instruments that are really useful, and to admire the ingenuity with which those that are not so, are assorted and arranged.
+ - It is astonishing how much more people are interested in lengthening life than improving it.
+ - The whole family of pride and ignorance are incestuous, and mutually beget each other.
+ - It is the briefest yet wisest maxim which tells us to meddle not.
+ - A fool is often as dangerous to deal with as a knave, and always more incorrigible.
+ - That alliance may be said to have a double tie, where the minds are united as well as the body; and the union will have all its strength when both the links are in perfection together.
+ - Purity lives and derives its life solely from the Spirit of God.
+ - It has been well observed that the tongue discovers the state of the mind no less than that of the body; but in either case, before the philosopher or the physician can judge, the patient must open his mouth.
+ - Pain may be said to follow pleasure as its shadow; but the misfortune is that in this particular case, the substance belongs to the shadow, the emptiness to its cause.
+ - We should have a glorious conflagration, if all who cannot put fire into their works would only consent to put their works into the fire.
+ - It is far more easy to acquire a fortune like a knave, than to expend it, like a gentleman.
+ - The cynic who twitted Aristippus by observing that the philosopher who could dine on herbs might despise the company of a king, was well replied to by Aristippus, when he remarked that the philosopher who could enjoy the company or a king might also despise a dinner of herbs.
+ - A man’s profundity may keep him from opening on a first interview, and his caution on a second; but I should suspect his emptiness, if he carried on his reserve to a third.
+ - They that are loudest in their threats are the weakest in the execution of them. It is probable that he who is killed by lightning hears no noise; but the thunder-clap which follows, and which most alarms the ignorant, is the surest proof of their safety.
+ - For what are the triumphs of war, planned by ambition, executed by violence, and consummated by devastation? The means are the sacrifice of many, the end, the bloated aggrandizement of the few.
+ - Falsehood is often rocked by truth, but she soon outgrows her cradle and discards her nurse.
+ - The excess of our youth are checks written against our age and they are payable with interest thirty years later.
+ - We cannot think too highly of our nature, nor too humbly of ourselves.
+ - When the air balloon was first discovered, some one flippantly asked Dr. Franklin what was the use of it. The doctor answered this question by asking another: “What is the use of a new-born infant? It may become a man.”
+ - The rich are more envied by those who have a little, than by those who have nothing.
+ - Criticism discloses that which it would fain conceal, but conceals that which it professes to disclose; it is therefore, read by the discerning, not to discover the merits of an author, but the motives of his critic.
+ - We are not more ingenious in searching out bad motives for good actions when performed by others, than good motives for bad actions when performed by ourselves.
+ - It is an easy and vulgar thing to please the mob, and no very arduous task to astonish them.
+ - Men are more readily contented with no intellectual light than with a little; and wherever they have been taught to acquire some knowledge in order to please others, they have most generally gone on to acquire more, to please themselves.
+ - In pulpit eloquence, the grand difficulty lies here – to give the subject all the dignity it so fully deserves, without attaching any importance to ourselves. The Christian messenger cannot think too highly of his prince, nor too humbly of himself.
+ - We injure mysteries, which are matters of faith, by any attempt at explanation in order to make them matters of reason. Could they be explained, they would cease to be mysteries; and it has been well said that a thing is not necessarily against reason because it happens to be above it.
+ - It is better to have wisdom without learning than learning without wisdom.
+ - Success seems to be that which forms the distinction between confidence and conceit.
+ - A coxcomb begins by determining that his own profession is the first; and he finishes by deciding that he is the first of profession.
+ - Many books owe their success to the good memories of their authors and the bad memories of their readers.
+ - We submit to the society of those that can inform us, but we seek the society of those whom we can inform. And men of genius ought not to be chagrined if they see themselves neglected. For when we communicate knowledge, we are raised in our own estimation; but when we receive it, we are lowered.
+ - There are some men who are fortune’s favorites, and who, like cats, light forever on their legs.
+ - The masses procure their opinions ready made in open market.
+ - Those graces which from their presumed facility encourage all to attempt an imitation of them, are usually the most inimitable.
+ - None of us are so much praised or censured as we think.
+ - Antithesis may be the blossom of wit, but it will never arrive at maturity unless sound sense be the trunk and truth the root.
+ - Sincerely to aspire after virtue, is to gain her; and zealously to labour after her wages, is to receive them.
+ - I have found by experience that they who have spent all their lives in cities, improve their talents but impair their virtues; and strengthen their minds but weaken their morals.
+ - He that gives a portion of his time and talent to the investigation of mathematical truth, will come to all other questions with a decided advantage over his opponents.
+ - In the pursuit of knowledge, follow it wherever it is to be found; like fern, it is the produce of all climates, and like coin, its circulation is not restricted to any particular class.
+ - He that openly tells, his friends all that he thinks of them, must expect that they will secretly tell his enemies much that they do not think of him.
+ - It is astonishing how much more anxious people are to lengthen life than to improve it; and as misers often lose large sums of money in attempting to make more, so do hypochondriacs squander large sums of time in search of nostrums by which they vainly hope they may get more time to squander.
+ - A lady of fashion will sooner excuse a freedom flowing from admiration than a slight resulting from indifference.
+ - Self-love, in a well-regulated breast, is as the steward of the household, superintending the expenditure, and seeing that benevolence herself should be prudential, in order to be permanent, by providing that the reservoir which feeds should also be fed.
+ - Wars are to the body politic, what drams are to the individual. There are times when they may prevent a sudden death, but if frequently resorted to, or long persisted in, they heighten the energies only to hasten the dissolution.
+ - It is not so difficult a task as to plant new truths, as to root out old errors.
+ - The family is the most basic unit of government. As the first community to which a person is attached and the first authority under which a person learns to live, the family establishes society’s most basic values.
+ - We know the effects of many things, but the cause of few; experience, therefore, is a surer guide than imagination, and inquiry than conjecture.
+ - If a cause be good, the most violent attack of its enemies will not injure it so much as an injudicious defence of it by its friends.
+ - If sensuality be our only happiness we ought to envy the brutes, for instinct is a surer, shorter, safer guide to such happiness than reason.
+ - Heroism, self-denial, and magnanimity, in all instances where they do not spring from a principle of religion, are but splendid altars on which we sacrifice one kind of self-love to another.
+ - There are three kinds of power, – wealth, strength, and talent; but as old age always weakens, often destroys, the two latter, the aged are induced to cling with the greater avidity to the former.
+ - When certain persons abuse us, let us ask ourselves what description of characters it is that they admire; we shall often find this a very consolatory question.
+ - There are two modes of establishing our reputation; to be praised by honest men, and to be abused by rogues.
+ - Many speak the truth when they say that they despise riches, but they mean the riches possessed by others.
+ - To despise our own species is the price we must often pay for knowledge of it.
+ - Time,- that black and narrow isthmus between two eternities.
+ - He that can enjoy the intimacy of the great, and on no occasion disgust them by familiarity, or disgrace himself by servility, proves that he is as perfect a gentleman by nature as his companions are by rank.
+ - The martyrs to vice far exceed the martyrs to virtue, both in endurance and in number.
+ - Hope is a prodigal young heir, and Experience is his banker; but his drafts are seldom honoured, since there is often a heavy balance against him, because he draws largely on a small capital, is not yet in possession, and if he were, would die.
+ - That which we acquire with the most difficulty we retain the longest; as those who have earned a fortune are usually more careful of it than those who have inherited one.
+ - Men are born with two eyes, but with one tongue, in order that they should see twice as much as they say.
+ - Sometimes the greatest adversities turn out to be the greatest blessings.
+ - Nothing is more durable than the dynasty of Doubt; for he reigns in the hearts of all his people, but gives satisfaction to none of them, and yet he is the only despot who can never die, while any of his subjects live.
+ - Gold is worshipped in all climates, without a single temple, and by all classes, without a single hypocrite.
+ - He that will often put eternity and the world before him, and who will dare to look steadfastly at both of them, will find that the more often he contemplates them, the former will grow greater, and the latter less.
+ - The wisest man may be wiser to-day than he was yesterday, and to-morrow than he is to-day. Total freedom from change would imply total freedom from error; but this is the prerogative of Omniscience alone.
+ - There are two metals, one of which is omnipotent in the cabinet, and the other in the camp – gold and iron. He that knows how to apply them both may indeed attain the highest station.
+ - Slight sorrow for sin is sufficient, provided it at the same time produces amendment.
+ - The excesses of our youth are drafts upon our old age.
+ - Time, the cradle of hope, but the grave of ambition, is the stern corrector of fools, but the salutary counselor of the wise, bringing all they dread to the one, and all they desire to the other.
+ - With books, as with companions, it is of more consequence to know which to avoid, than which to choose, for good books are as scarce as good companions, and in both instances, all that we can learn from baad ones is, that some much time has been worse than thrown away.
+ - Reply to wit with gravity, and to gravity with wit.
+ - It was observed of Elizabeth that she was weak herself, but chose wise counsellors; to which it was replied, that to choose wise counsellors was, in a prince, the highest wisdom.
+ - Subtract from many modern poets all that may be found in Shakespeare, and trash will remain.
+ - The French have a saying that whatever excellence a man may exhibit in a public station he is very apt to be ridiculous in a private one.
+ - It is with honesty in one particular as with wealth, – those that have the thing care less about the credit of it than those who have it not. No poor man can well afford to be thought so, and the less of honesty a finished rogue possesses the less he can afford to be supposed to want it.
+ - Public charities and benevolent associations for the gratuitous relief of every species of distress, are peculiar to Christianity; no other system of civil or religious policy has originated them; they form its highest praise and characteristic feature.
+ - The man of pleasure, by a vain attempt to be more happy than any man can be, is often more miserable than most men are.
+ - If we steal thoughts from the moderns, it will be cried down as plagiarism; if from the ancients, it will be cried up as erudition.
+ - Subtract from the great man all that he owes to opportunity, all that he owes to chance, and all that he gained by the wisdom of his friends and the folly of his enemies, and the giant will often be seen to be a pygmy.
+ - The consequences of things are not always proportionate to the apparent magnitude of those events that have produced them. Thus the American Revolution, from which little was expected, produced much; but the French Revolution, from which much was expected, produced little.
+ - A society composed of none but the wicked could not exist; it contains within itself the seeds of its own destruction, and without a flood, would be swept away from the earth by the deluge of its own iniquity.
+ - He that swells in prosperity will be sure to shrink in adversity.
+ - The integrity that lives only on opinion would starve without it.
+ - There are two principles of established acceptance in morals; first, that self-interest is the mainspring of all of our actions, and secondly, that utility is the test of their value.
+ - The press is the foe of rhetoric, but the friend of reason.
+ - To judge by the event is an error all commit: for in every instance courage, if crowned with success, is heroism; if clouded by defeat, temerity. When Nelson fought his battle in the Sound, it was the result alone that decided whether he was to kiss a hand at court or a rod at a court-martial.
+ - Ignorance is a blank sheet, on which we may write; but error is a scribbled one, on which we must first erase.
+ - Temperate men drink the most, because they drink the longest.
+ - My lowest days as a Christian have been more fulfilling and rewarding than all the days of glory in the White House.
+ - In all places, and in all times, those religionists who have believed too much have been more inclined to violence and persecution than those who have believed too little.
+ - We devote the activity of our youth to revelry and the decrepitude of our old age to repentance: and we finish the farce by bequeathing our dead bodies to the chancel, which when living, we interdicted from the church.
+ - Charles Fox said that restorations were the most bloody of all revolutions; and he might have added that reformations are the best mode of preventing the necessity of either.
+ - Fortune, like other females, prefers a lover to a master, and submits with impatience to control; but he that wooes her with opportunity and importunity will seldom court her in vain.
+ - There are male as well as female gossips.
+ - A house may draw visitors, but it is the possessor alone that can detain them.
+ - If you would be known, and not know, vegetate in a village; if you would know, and not be known, live in a city.
+ - I’m aiming by the time I’m fifty to stop being an adolescent.
+ - To know the pains of power, we must go to those who have it; to know its pleasures, we must go to those who are seeking it: the pains of power are real, its pleasures imaginary.
+ - The plainest man who pays attention to women, will sometimes succeed as well as the handsomest man who does not.
+ - There are some who write, talk, and think, so much about vice and virtue, that they have no time to practice either the one or the other.
+ - Instead of exhibiting talent in the hope that the world would forgive their eccentricities, they have exhibited only their eccentricities, in the hope that the world would give them credit for talent.
+ - The more gross the fraud the more glibly will it go down, and the more greedily be swallowed, since folly will always find faith where impostors will find imprudence.
+ - We injure mysteries, which are matters of faith by any attempt at explanation in order to make them matters of reason.
+ - Tyrants have not yet discovered any chains that can fetter the mind.
+ - Silence is foolish if we are wise, but wise if we are foolish.
+ - It is doubtful whether mankind are most indebted to those who like Bacon and Butler dig the gold from the mine of literature, or to those who, like Paley, purify it, stamp it, fix its real value, and give it currency and utility.
+ - Neutrality is no favorite with Providence, for we are so formed that it is scarcely possible for us to stand neuter in our hearts, although we may deem it prudent to appear so in our actions.
+ - It is with nations as with individuals, those who know the least of others think the highest of themselves; for the whole family of pride and ignorance are incestuous, and mutually beget each other.
+ - The most notorious swindler has not assumed so many names as self-love, nor is so much ashamed of his own. She calls herself patriotism, when at the same time she is rejoicing at just as much calamity to her native country as will introduce herself into power, and expel her rivals.
+ - The avarice of the miser may be termed the grand sepulchral of all his other passions, as they successively decay.
+ - No man can purchase his virtue too dear, for it is the only thing whose value must ever increase with the price it has cost us. Our integrity is never worth so much as when we have parted with our all to keep it.
+ - The worst thing that can be said of the most powerful is that they can take your life; but the same can be said of the most weak.
+ - Wars of opinion, as they have been the most destructive, are also the most disgraceful of conflicts.
+ - Persecuting bigots may be compared to those burning lenses which Lenhenboeck and others composed from ice; by their chilling apathy they freeze the suppliant; by their fiery zeal they burn the sufferer.
+ - Pleasure is to women what the sun is to the flower; if moderately enjoyed, it beautifies, it refreshes, and it improves; if immoderately, it withers, deteriorates and destroys.
+ - Happiness is that single and glorious thing which is the very light and sun of the whole animated universe; and where she is not it were better that nothing should be.
+ - Power, like the diamond, dazzles the beholder, and also the wearer; it dignifies meanness; it magnifies littleness; to what is contemptible, it gives authority; to what is low, exaltation.
+ - How strange it is that we of the present day are constantly praising that past age which our fathers abused, and as constantly abusing that present age, which our children will praise.
+ - It is seldom that statesmen have the option of choosing between a good and an evil.
+ - He that knows himself, knows others; and he that is ignorant of himself, could not write a very profound lecture on other men’s heads.
+ - Pride requires very costly food-its keeper’s happiness.
+ - It is adverse to talent to be consorted and trained up with inferior minds and inferior companions, however high they may rank. The foal of the racer neither finds out his speed nor calls out his powers if pastured out with the common herd, that are destined for the collar and the yoke.
+ - He that aspires to be the head of a party will find it more difficult to please his friends than to perplex his foes. He must often act from false reasons which are weak, because he dares not avow the true reasons which are strong.
+ - The true motives of our actions, like the real pipes of an organ, are usually concealed; but the gilded and hollow pretext is pompously placed in the front for show.
+ - Nobility is a river that sets with a constant and undeviating current, directly into the great Pacific Ocean of Time; but, unlike all other rivers, it is more grand at its source, than at its termination.
+ - Theories are private property, but truth is common stock.
+ - Constant success shows us but one side of the world; adversity brings out the reverse of the picture.
+ - Fame is an undertaker that pays but little attention to the living, but bedizens the dead, furnishes out their funerals, and follows them to the grave.
+ - Levity is often less foolish and gravity less wise than each of them appears.
+ - Brutes leave ingratitude to man.
+ - The most ridiculous of all animals is a proud priest; he cannot use his own tools without cutting his own fingers.
+ - Religion has treated knowledge sometimes as an enemy, sometimes as a hostage; often as a captive and more often as a child; but knowledge has become of age, and religion must either renounce her acquaintance, or introduce her as a companion and respect her as a friend.
+ - God is on the side of virtue; for whoever dreads punishment suffers it, and whoever deserves it, dreads it .
+ - That cowardice is incorrigible which the love of power cannot overcome.
+ - Physicians must discover the weaknesses of the human mind, and even condescend to humor them, or they will never be called in to cure the infirmities of the body.
+ - For all the practical purposes of life, truth might as well be in a prison as in the folio of a schoolman; and those who release her from her cobwebbed shelf and teach her to live with men have the merit of liberating, if not of discovering, her.
+ - Honor is the most capricious in her rewards. She feeds us with air, and often pulls down our house, to build our monument.
+ - All poets pretend to write for immortality, but the whole tribe have no objection to present pay and present praise.
+ - Bigotry murders religion to frighten fools with her ghost.
+ - The drafts which true genius draws upon posterity, although they may not always be honored so soon as they are due, are sure to be paid with compound interest in the end.
+ - It is with antiquity as with ancestry, nations are proud of the one, and individuals of the other; but if they are nothing in themselves, that which is their pride ought to be their humiliation.
+ - Sir Richard Steele has observed, that there is this difference between the Church of Rome and the Church of England: the one professes to be infallible, the other to be never in the wrong.
+ - If martyrdom is now on the decline, it is not because martyrs are less zealous, but because martyr-mongers are more wise. The light of intellect has put out the fire of persecution, as other fires are observed to smoulder before the light of the same.
+
+500 quotes

@@ -1,0 +1,89 @@
+ - If the stock goes down we want to buy more.
+ - Enjoy your work and have ethical standards.
+ - Book values have some good and some bad features.
+ - Before selling, try to re-evaluate the company again and see where the stock sells in realtion to its book value.
+ - Have patience. Stocks don’t go up immediately.
+ - When it comes to investing, my suggestion is to first understand your strengths and weaknesses, and then devise a simple strategy so that you can sleep at night!
+ - Make sure you have the courage to stay true to your convictions and not let the market affect your emotions.
+ - Use book value as a starting point to try and establish the value of the enterprise.
+ - I agree with Warren to keep it simple and not use higher mathematics in your analysis.
+ - Try not to let your emotions affect your judgement.
+ - Stockbrokers aren’t too interested in a stock you can sit there for five years with.
+ - Don’t be afraid to be a loner but be sure that you are correct in your judgement.
+ - We basically followed the idea of buying comapnies selling below working-capital – at two thirds of working-capital.
+ - Remember that a share of stock represents a part of a business and is not just a piece of paper.
+ - Devise a simple strategy so you can sleep at night.
+ - Price is the most important factor to use in relation to value.
+ - Earnings can change dramatically. Usually assets change slowly.
+ - Don’t sell on bad news.
+ - This is a business. Like any other business.
+ - Don’t be in too much of a hurry to sell.
+ - Graham liked the idea of protection on the downside.
+ - We get a feeling, if we can, about what we think the company is worth.
+ - Timidity prompted by past failures causes investors to miss the most important bull markets.
+ - If you are honest, hardworking, reasonably intelligent and have good common sense, you can do well in the investment field as long as you are not too greedy and don’t get too emotional when things go against you.
+ - Be aware of the level of the stock market. Are yields low and PE ratios high?
+ - All the publicity about value investing – it’s become a very popular thing.
+ - Each year we buy stocks and they go up, we sell them and then we try to buy something cheaper.
+ - You know, people tend to like to buy companies that are doing well.
+ - The market is a very emotional place that appeals to fear and greed.
+ - I like the idea of company-paid dividends.
+ - Our average holding period is four years.
+ - I helped Ben with the third edition of Security Analysis, published in 1951.
+ - Basically, we try to buy value expressed in the differential between its price and what we think its worth.
+ - You have to be a little aware of the emotions of the people who have invested with you.
+ - We like to buy stocks which we feel are undervalued and then we have to have the guts to buy more when they go down.
+ - Fear and greed tend to affect one’s judgement.
+ - I’m not very good on timing. In fact, I’ve stayed away from it.
+ - Ben was really a contrarian but he didn’t use those terms because he was really buying value.
+ - If there are not too many value stocks that I can find, the market isn’t all that cheap.
+ - You have to invest the way that’s comfortable for you.
+ - If the market is so cheap, you want to get something with a little more zip in it, or potential.
+ - I found that it was much better to look at the figures rather than people.
+ - Try to look for weaknesses in your thinking.
+ - One has to know more about a company if one buys earnings.
+ - I don’t have a ticker-tape machine in my office.
+ - You never really know a stock until you own it.
+ - When you buy a depressed company it’s not going to go up right after you buy it, believe me.
+ - I’m a passive investor. There are people who are very aggressive; they try to buy companies.
+ - I have been around a long time and Wall Street has changed a lot.
+ - Ben was a very simple straightforward man with a brilliant quick mind.
+ - Ben’s emphasis was on protecting his expectation of profit with minimum risk.
+ - Be careful of leverage. It can go against you.
+ - Try to establish the value of a company.
+ - Have the courage of your convictions once you have made a decision.
+ - Most look at earnings and earnings potential, well I can’t get into that game.
+ - Have a philosophy of investment and try to follow it.
+ - Sell is tough. It’s the worst, it’s the most difficult thing of all.
+ - Fear and greed are probably the worst emotions to have in connection with the purchase and sale of stocks.
+ - Don’t buy on tips or for a quick move.
+ - Warren is a very good judge of people and he’s a very good judge of businesses.
+ - A lot of companies have lots of assets tied up in plant and equipment. Well, is it old plant, or is it new plant?
+ - Yes, Warren has done very well.
+ - I was in Graham’s office the day he bought GEICO. Warren owns one-third of the stock today.
+ - My first job at Graham-Newman was to prepare the annual report for that 10th year.
+ - You have to have confidence in what you’re doing.
+ - I find it helpful to buy near the low of the last few years.
+ - Making a decision to sell is the most difficult thing we do.
+ - If the market were way over priced, I wouldn’t own any stocks.
+ - Some kinds of stocks are easier to analyse than others.
+ - Look for companies that do not have a lot of debt.
+ - One of the tricks of this business is, keep your losses down.
+ - I liked the results of the profits in the markets.
+ - Ben didn’t want to lose money. He had had a rough time during the depression.
+ - Look at companies selling at new lows.
+ - Buy stocks where the outlook is not good.
+ - You never get the high and you never get the low.
+ - When I buy a stock, I have kind of an idea where I want to sell it.
+ - We don’t put the same amount of money in each stock.
+ - I tried to follow Ben Graham’s ideas.
+ - Ben was a great believer in buying a diversified group of securities, so that he limited his risk.
+ - By setting up Berkshire Hathaway, Warren has done everything very rationally.
+ - Try to buy assets at a discount than to buy earnings.
+ - Be sure that debt does not exceed 100% of the equity.
+ - My job was to find stocks that were undervalued.
+ - We may buy a little bit of a stock, to get our feet wet and get a feeling for it.
+ - We do not spend a great deal of time talking to management.
+ - Managements, you know, often think of themselves.
+
+87 quotes

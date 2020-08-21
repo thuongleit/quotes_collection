@@ -1,0 +1,34 @@
+ - The Holy Eucharist is like a divine Storehouse filled with every virtue; God has placed It in the world so that everyone one may draw from It.
+ - The Holy Eucharist is the perfect expression of the love of Jesus Christ for man since It is the quintessence of all the mysteries of His Life.
+ - The Eucharist is everything, because from the Eucharist, everything is.
+ - The Eucharist began at Bethlehem in Mary’s arms. It was she who brought to humanity the Bread for which it was famishing, and which alone can nourish it. She it was who took care of that Bread for us. It was she who nourished the Lamb whose life-giving Flesh we feed upon.
+ - Eucharistic adoration is the greatest of actions. To adore is to share the life of Mary on earth when she adored the Word Incarnate in her virginal womb, when she adored Him in the Crib, on Calvary, in the divine Eucharist.
+ - When we work hard, we must eat well. What a joy, that you can receive Holy Communion often! It’s our life and support in this life – Receive Communion often, and Jesus will change you into himself.
+ - I try to rekindle the fire of the Holy Eucharist.
+ - Is not our Lord as meek and humble in the Blessed Sacrament as He was during His life on earth? Is He not always the Good Shepherd, the Divine Consoler, the Changeless Friend? Happy the soul that knows how to find Jesus in the Holy Eucharist, and in the Eucharist all things!
+ - The Eucharist is the supreme proof of the love of Jesus. After this, there is nothing more but Heaven itself.
+ - Let us never forget that an age prospers or dwindles in proportion to its devotion to the Holy Eucharist. This is the measure of its spiritual life and its faith, of its charity and its virtue.
+ - The Eucharist completes the restoration begun in the Crib. Make merry therefore on this beautiful day, on which the sun of the Eucharist is rising. Let your gratitude never separate the Crib from the Altar, the Word made flesh from the God-Man made Bread of Life in the Most Blessed Sacrament.
+ - We must be pure. I do not speak merely of the purity of the senses. We must observe great purity in our will, in our intentions, in all our actions.
+ - The Eucharist is the link that binds the Christian family together. Take away the Eucharist and you have no brotherliness left.
+ - The Eucharist, behold the Christian’s treasure, his delight on earth. Since Jesus is in the Eucharist for him personally, his whole life ought to be drawn to it like a magnet to its center.
+ - Happy is the soul that knows how to find Jesus in the Eucharist, and the Eucharist in all things!
+ - Live on the divine Eucharist, like the Hebrews did on the Manna. Your soul can be entirely dedicated to the divine Eucharist and very holy in the midst of your work and contacts with the world.
+ - Have a great love for Jesus in his divine Sacrament of Love; that is the divine oasis of the desert. It is the heavenly manna of the traveller. It is the Holy Ark. It is the life and Paradise of love on earth.
+ - The Lord ‘hath set His tabernacle in the sun,’ says the Psalmist. The sun is Mary’s heart.
+ - Keep your soul at peace, in order to be able to be attentive and very faithful to the inner movement of the Holy Spirit.
+ - If the Christians continue to desert Jesus Christ in His temple, will not the Heavenly Father take away from them His well-beloved Son Whom they neglect?
+ - Today solemn exposition of the Blessed Sacrament is the grace and need of our time. Society will be restored and renewed when all its members group themselves around our Emmanuel.
+ - Communion is as necessary for us to sustain our Christian vitality, as the vision of God is necessary to the angels, to maintain their life of glory.
+ - Love cannot triumph unless it becomes the one passion of our life. Without such passion we may produce isolated acts of love; but our life is not really won over or consecrated to an ideal. Until we have a passionate love for our Lord in the Most Blessed Sacrament we shall accomplish nothing.
+ - Jesus has prepared not just one Host, but one for everyday of our life. The Hosts for us are ready. Let us not forfeit even one of them.
+ - Be the apostle of the divine Eucharist, like a flame which enlightens and warms, like the Angel of his heart who will go to proclaim him to those who don’t know him and will encourage those who love him and are suffering.
+ - If we did not have the adorable Eucharist here below, Jesus our God-with-us, this earth would be much too sad, this life too hard, and time too long. We must be grateful to the divine goodness for having left us this hidden Jesus, this pillar of cloud and fire in this desert.
+ - In one day the Eucharist will make you produce more for the glory of God than a whole lifetime without it.
+ - O my God, how happy should I be to hear from Thy lips those words which Thou didst once address to Saint Thomas of Aquin: Thou hast spoken well of Me, Pierre!
+ - As far as possible, you should pray in quiet and silent devotion. Try to have a favorite topic of prayer, such as a devotion to the passion of Jesus, the Blessed Sacrament, awareness of the divine presence; go directly to Jesus without too much fuss.
+ - The glory of His Father which our Lord sought above all else on earth is still the object of all His desires in the Blessed Sacrament. It is safe to say that Jesus Christ has clothed Himself with the sacramental state in order to continue honoring and glorifying His Father.
+ - The Lord has given me to understand the value of at once confessing one’s sins after their commission. By so doing we are always in the state of grace.
+ - To be possessed by Jesus and to possess Him – that is the perfect reign of Love.
+
+32 quotes

@@ -1,0 +1,33 @@
+ - Don’t give up your dreams.
+ - I hope I can make Pakistan proud by bringing home an Oscar.
+ - It doesn’t matter who you are or where you come from – if you put quality work out there, it will be appreciated.
+ - Education liberates a woman.
+ - I believe in telling the truth.
+ - My films are motivated by a keen interest in highlighting issues that affect marginalized populations who are caught in difficult circumstances.
+ - Fighting the Taliban and the various radical organizations on the front lines is like adding a Band-Aid to a cut, it may stop the bleeding but unless you clean it with antiseptic, the germs stay and multiply.
+ - When you play music, you don’t need a language. Music is a language.
+ - All the women in Pakistan working for change, don’t give up on your dreams, this is for you.
+ - In terms of ‘Saving Face,’ I was inspired by the stories of survivors who didn’t let their attacks stop them from pursuing justice and seeking treatment.
+ - The Pakistani government and its allies must overhaul their policies in Pakistan.
+ - I have very strong Canadian connections. My daughter was born there a year and half ago. But because of the nature of my job, I need to be in countries where I can get the stories that I am looking at.
+ - By bringing the voices of the ordinary people faced with extraordinary challenges to television screens around the world, I hope to affect change in one community at a time.
+ - My family restores my sense of ease and keeps me balanced.
+ - When I’m not working on the ground, spending time with my husband and daughter puts me at ease.
+ - It’s often said that I choose subjects that are sensational! I choose to film subjects that spark difficult conversations and make people uncomfortable. Change only comes about when people are forced to discuss an issue, and that’s what I hope my films do.
+ - Pakistan destroyed its own reputation. If anything, I have improved Pakistan’s image.
+ - I think perhaps Pakistan can take the lead. Perhaps Turkey can as well, being part of Europe. But someone has to start talking about why the Muslim world has become a boiling pot and look beyond these cartoons to what the ideological reasons are for this divide.
+ - Music is a universal language.
+ - I’m generally quite an angry person, and I like to channel my anger toward something creative.
+ - I feel that for the first time in a long time, educated Pakistanis are returning to their country to start up educational projects, to start up businesses, so instead of the brain-drain that happened in the 1950s and 1960s, the country is growing and improving economically.
+ - By giving our audience intimate access to the lives of musicians, we hope to raise awareness of the region’s beautiful cultural heritage and present a more nuanced portrait of its people.
+ - It takes one second to ruin a woman’s life.
+ - Despite their rising international acclaim, Sachal Studios remains virtually unknown in Pakistan. The ensemble is faced with a daunting task: to reclaim and reinvigorate an art that has lost its space in Pakistan’s narrowing cultural sphere.
+ - I became a documentary filmmaker because I wanted to make socially conscious films. I never studied filmmaking – everything I have learned has been on the field.
+ - In December 2011, I will be opening up my production house, Sharmeen Obaid Films, and aspire to change the way Pakistanis approach nonfiction storytelling. There are thousands of stories to be found here.
+ - I don’t think I’ll be making documentaries my whole life.
+ - As filmmakers, you’re not working on just one project, you’re producing something, directing something, shooting something, and so it becomes hard to do it by yourself.
+ - Working in any country where you want to talk about the kind of issues that other people don’t want to talk about is difficult.
+ - I’d like to do a film in Canada, but it’s too difficult. National Film Board funding takes too long, and there’s too much paperwork; by the time the film is approved the topic is dead and gone.
+ - But the biggest challenge overall was narrowing down the complex narrative elements into a clean and straightforward story while maintaining a sense of the cultural context that makes the film special.
+
+31 quotes

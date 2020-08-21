@@ -1,0 +1,31 @@
+ - Be busy in trading, receiving, and giving, for life is too good to be wasted in living.
+ - The ideal client is the very wealthy man in very great trouble.
+ - Pain has its own noble joy, when it starts a strong consciousness of life, from a stagnant one.
+ - Colors answer feeling in man; shapes answer thought; and motion answers will.
+ - Instinct is intelligence incapable of self-consciousness.
+ - The worst education which teaches self-denial, is better than the best which teaches everything else, and not that.
+ - Enthusiasm is grave, inward, self-controlled; mere excitement, outward, fantastic, hysterical, and passing in a moment from tears to laughter.
+ - Man is a substance clad in shadows.
+ - Emotion turning back on itself, and not leading on to thought or action, is the element of madness.
+ - Commerce has made all winds her mistress.
+ - There is no lie that a man will not believe; and there is no man who does not believe many lies; and there is no man who believes only lies.
+ - Faith in a better than that which appears is no less required by art than by religion.
+ - I could honor Carmen Electra. I think she’s beautiful.
+ - One dupe is as impossible as one twin.
+ - Compliments are only lies in court clothes.
+ - Poetry is in itself strength and joy, whether it be crowned by all mankind, or left alone in its own magic hermitage.
+ - Repentance clothes in grass and flowers the grave in which the past is laid.
+ - Every fancy that we would substitute for a reality is, if we saw aright, and saw the whole, not only false, but every way less beautiful and excellent than that which we sacrifice to it.
+ - Of all the tyrants the world affords, our own affections are the fiercest lords.
+ - Superstition moulds nature into an arbitrary semblance of the supernatural, and then bows down to the work of its own hands.
+ - Toil, feel, think, hope; you will be sure to dream enough before you die, without arranging for it.
+ - Modern education too often covers the fingers with rings, and at the same time cuts the sinews at the wrist.
+ - Every man’s follies are the caricature resemblances of his wisdom.
+ - Speech is as a pump, by which we raise and pour out the water from the great lake of Thought, – whither it flows back again.
+ - A man without earnestness is a mournful and perplexing spectacle. But it is a consolation to believe, as we must of such a one, that he is the most effectual and compulsive of all schools.
+ - An unproductive truth is none. But there are products which cannot be weighed even in patent scales, nor brought to market.
+ - You just cant predict baseball.
+ - Language. By this we build pyramids, fight battles, ordain and administer laws, shape and teach religion, and knit man to man, cultivate each other, and ourselves.
+ - Knowledge, or more expressively truth, – for knowledge is truth received into our intelligence, – truth is an ideal whole.
+
+29 quotes

@@ -1,0 +1,128 @@
+ - Painting is the silence of thought and the music of sight.
+ - Love is a sacred silence.
+ - Tell me then, does love make one a fool or do only fools fall in love?
+ - I read a book one day and my whole life was changed.
+ - Happiness is holding someone in your arms and knowing you hold the whole world.
+ - I don’t want to be a tree; I want to be its meaning.
+ - Life is beautiful if you are on the road to somewhere.
+ - Real museums are places where Time is transformed into Space.
+ - I am a highly disciplined person. I get up at seven every morning and, still in my pajamas, sit down at my desk where my checkered ring binders and my fountain pen are ready for use. I try to write two pages every day.
+ - Try to discover who I am from my choice of words and colors, as attentive people like yourselves might examine footprints to catch a thief.
+ - After all, a woman who doesn’t love cats is never going to be make a man happy.
+ - Heaven was the place where you kept alive the dreams of your memories.
+ - The writers secret is not inspiration – for it is never clear where it comes from – it is his stubbornness, his patience.
+ - Whatever anybody says, the most important thing in life is to be happy.
+ - Life is short, and we should respect every moment of it.
+ - The snow reminded me of the beauty and mystery of creation, of the essential joy that is life.
+ - A writer in someone who spends years patiently trying to discover the second being inside him, and the world that makes him who he is.
+ - True literature is more than just a story someone has told. It must provide the reader with the essence of the world on a moral, philosophical and emotional level.
+ - The silence of snow, thought the man sitting just behind the bus driver.
+ - The gap between compassion and surrender is love’s darkest, deepest region.
+ - Colour is the touch of the eye, Music to the deaf, A word out of darkness.
+ - She looked out the window; in her eyes was the light that you see only in children arriving at a new place, or in young people still open to new influences, still curious about the world because they have not yet been scarred by life.
+ - Where there is true art and genuine virtuosity the artist can paint an incomparable masterpiece without leaving even a trace of his identity.
+ - East and West are coming together. Whether in peace or anarchy – they are coming together. There needn’t be a clash between East and West, between Islam and Europe.
+ - How much can we ever know about the love and pain in another heart? How much can we hope to understand those who have suffered deeper anguish, greater deprivation, and more crushing disappointments than we ourselves have known?
+ - My unhappiness protects me from life.
+ - In poetically well built museums, formed from the heart’s compulsions, we are consoled not by finding in them old objects that we love, but by losing all sense of Time.
+ - To read a novel is to wonder constantly, even at moments when we lose ourselves most deeply in the book: How much of this is fantasy, and how much is real?
+ - The urbanized life has lead to the destruction of the legends.
+ - If we give what we treasure most to a Being we love with all our hearts, if we can do that without expecting anything in return, then the world becomes a beautiful place.
+ - We live but for a short time, we see but very little, and we know almost nothing; so, at least, let’s do some dreaming. Have yourself a very good Sunday, my dear readers.
+ - I realized that the longing for art, like the longing for love, is a malady that blinds us, and makes us forget the things we already know, obscuring reality.
+ - Immersing oneself in the problems of a book is a good way to keep from thinking of love.
+ - Heroic dreams are the consolation of the unhappy. After all, when people like us say we’re being heroic, it usually means we’re about to kill each other – or kill ourselves.
+ - Dogs do speak, but only to those who know how to listen.
+ - As much as I live I shall not imitate them or hate myself for being different to them.
+ - Istanbul is a vast place. There are very conservative neighbourhoods, there are places that are upper class, Westernised, consuming Western culture.
+ - Writing my own diary is the best form of remembrance, but only for my own use. I need these notes; it’s like an impulse.
+ - The first thing I learned at school was that some people are idiots; the second thing I learned was that some are even worse.
+ - Mankind’s greatest error, the biggest deception of the past thousand years is this: to confuse poverty with stupidity.
+ - National consciousness is truly a miraculous thing. When I am not in Turkey I feel even more Turkish than in Istanbul. But when I’m home my European side becomes more apparent.
+ - It’s such a shame that we know so little about our own country, that we can’t find it in our hearts to love our own kind. Instead we admire those who show our country disrespect and betray its people.
+ - People only tell lies when there is something they are terribly frightened of losing.
+ - Without patience and the skill of a craftsman, even the greatest talent is wasted.
+ - Sometimes I would see them not as mementos of the blissful hours but as the tangible precious debris of the storm raging in my soul.
+ - All great masters, in their work, seek that profound void within color and outside time.
+ - Painting taught literature to describe.
+ - The thing that binds us together is that we have both lowered our expectations of life.
+ - Now everyone is prouder and poorer.
+ - When something explosive is kept hidden away, a tension builds within that must ultimately be released.
+ - As soon as I observed myself from outside myself, I recognized and understood that I had a long-standing habit of keeping an eye on myself. That’s how I managed to pull myself together, over the years, checking myself from the outside.
+ - I consider myself a person who comes from a Muslim culture. In any case, I would not say that I’m an atheist. So I’m a Muslim who associates historical and cultural identification with this religion.
+ - As always after drinking too much, I felt like my own ghost trying to take it’s first solo walk outside the body.
+ - For if a lover’s face survives emblazoned on your heart, the world is still your home.
+ - Are you an angel that approaching you should be so terrifying?
+ - It’s a great relief for me that no one will ask me anymore: “Orhan, when will you get the Nobel Prize?”
+ - Yet does illustrating in a new way signify a new way of seeing?
+ - It’s very gratifying to me to see my works bringing people closer to my country.
+ - I believe that it isn’t victories but defeats that promote nationalism.
+ - Great changes in the direction of peace have often come from people who were no great advocates of peace to begin with.
+ - My decision to view the world through novels, as it were, which is a typically European way of looking at things, became a heavy burden for me. But I took it on consciously, even though it was torture for me.
+ - More than anything I am a novelist. But for me, an author’s job is not only to create linguistically accomplished works. As an author I also want to stimulate discussion.
+ - I need a moment of time for myself every day, like a child playing with his things. When I travel, I routinely find a quiet place, open my diary and write something in it.
+ - I sometimes joke that I am the first writer of historical fiction who can look out his window and point to the objects in his novels. I have a view of the entrance to the Bosporus, the old city, Hagia Sophia, the Blue Mosque.
+ - I am proud to be a Turk, and to write in Turkish about Turkey – and to have been translated into about 40 languages. But I don’t want to politicize things by dramatizing them.
+ - I was at the end of my tether when my first book was published. For eight years I didn’t make a penny, I worked so hard, didn’t drink, didn’t enjoy life.
+ - To savour Istanbul’s back streets, to appreciate the vines and trees that endow its ruins with accidental grace, you must, first and foremost, be a stranger to them.
+ - I need the pain of loneliness to make my imagination work.
+ - We fall in love more deeply when were unhappy.
+ - Before my birth there was infinite time, and after my death, inexhaustible time. I never thought of it before: I’d been living luminously between two eternities of darkness.
+ - What is the thing you want most from me? What can I do to make you love me?? Be yourself,? said Ipek.
+ - Ka thought it strangely depressing that the suicide girls had had to struggle to find a private moment to kill themselves. Even after swallowing their pills, even as they lay quietly dying, they’d had to share their rooms with others.
+ - My religion is complicated. Literature is my true religion. After all, I come from a completely non-religious family.
+ - Snow reminds Ka of God! But I’m not sure it would be accurate. What brings me close to God is the silence of snow.
+ - Many great authors of the 19th century wrote under conditions of strict censorship. The great thing about the art of writing a novel, is that you can write about anything. All you have to say is that it’s fiction.
+ - With the death of my father, it wasn’t just the objects of everyday life that had changed; even the most ordinary street scenes had become irreplaceable mementos of a lost world whose every detail figured in the meaning of the whole.
+ - It is not my intention to explain Turkey, its culture and its problems. My literature has a universal concern: I want to bring people and their emotions closer to my readers, not explain Turkish politics.
+ - In the mornings I used to say goodbye to my wife like someone going to work. I’d leave the house, walk around a few blocks, and come back like a person arriving at the office.
+ - Let everyone know, I lived a very happy life.
+ - Clocks and calendars do not exist to remind us of the Time we’ve forgotten but to regulate our relations with others and indeed all of society, and this is how we use them.
+ - My diary has its own kind of magic. It gives me the feeling of having accomplished something. On days when I don’t have time for this, I feel tortured.
+ - Books, which we mistake for consolation, only add depth to our sorrow.
+ - Enjoyment of football is part of the social context, and I have lost my faith in this social context.
+ - In actuality, we don’t look for smiles in pictures of bliss, but rather, for the happiness in life itself. Painters know this, but this is preciously what they cannot depict. That’s why they substitute the joy of seeing for the joy of life.
+ - I have hired a bodyguard, on the recommendation of my friends and the government. It’s outrageous, having to live like this.
+ - Oscar Wilde always makes me smile – with respect and admiration. His short stories prove that it is possible to be both sarcastic, even cynical, but deeply compassionate. Just seeing the cover of one of Wildes books in a bookshop makes me smile.
+ - The real question is how much suffering we’ve caused our womenfolk by turning headscarves into symbols – and using women as pawns in a political game.
+ - Sometimes I sensed that the books I read in rapid succession had set up some sort of murmur among themselves, transforming my head into an orchestra pit where different musical instruments sounded out, and I would realize that I could endure this life because of these musicales going on in my head.
+ - I believe strongly in an author’s moral responsibility. But his first obligation is to write good books.
+ - Nationalism stems from catastrophes, whether they are caused by earthquakes or lost wars.
+ - There’s a lot of pride involved in my refusal to believe in god.
+ - I think it’s horrible that we Turks are always seen under the aspect of Islam first. I am constantly asked about religion, and almost always with a negative undercurrent that makes me furious.
+ - I identify with my culture, but I am happy to be living on a tolerant, intellectual island where I can deal with Dostoyevsky and Sartre, both great influences for me.
+ - Turkish football serves the cause of nationalism, but not of the nation.
+ - I want to describe the psychological state of the people in a certain city.
+ - I see Turkey’s future as being in Europe, as one of many prosperous, tolerant, democratic countries.
+ - I am nothing but a corpse now, a body at the bottom of a well.
+ - I don’t read newspapers in the morning. I take a look at the dailies in the afternoon, but only when I’ve finished my work for the day. Reading about what is happening in Turkey once again would only be demoralizing for me.
+ - Morality is probably the last thing one can learn from football.
+ - Age had not made him less handsome, as is so often the case; it had simply made him less visible.
+ - I think perhaps it is a generational thing. I talk to younger people and they say, Where is this melancholy city you talk about My Istanbul is a sunny place.
+ - I really don’t want to portray the Islamists as simply evil, the way it’s often done in the west.
+ - I do not believe in a personal connection to God; that’s where it gets transcendental.
+ - My hero wants to belong too, but he doesn’t want to give up all the things he came to value in the west.
+ - Well, on the one hand the Turks have the legitimate need to defend their national dignity – and this includes being recognized as a part of the west and Europe.
+ - The drinking of coffee is an absolute sin! Our Glorious Prophet did not partake of coffee because he knew it dulled the intellect, caused ulcers, hernia and sterility; he understood that coffee was nothing but the Devil’s ruse.
+ - After all, isn’t the purpose of the novel, or of a museum, for that matter, to relate our memories with such sincerity as to transform individual happiness into a happiness all can share?
+ - Let me first state forthright that contrary to what we’ve often read in books and heard from preachers, when you are a woman, you don’t feel like the Devil.
+ - Happiness is laughing together...
+ - I work seven days a week, from 9 in the morning till 8 at night. I have the titles of the next eight novels I want to write. I feel myself pitiable, degraded on a day that I don’t write.
+ - The secularists in Turkey haven’t underestimated religion, they just made the mistake of believing they could control it with the power of the army alone.
+ - No one drives me into exile, not even the nationalists.
+ - In fact, my entire childhood consisted of looking at photographs in which the viewer sees the ball behind the line, looking through the goal net, and the poor goalkeeper in front of the net.
+ - The challenge is to lend conviction even to the voices which advocate views I find personally abhorrent, whether they are political Islamists or officers justifying a coup.
+ - Actually, it’s the other way round. In a poor country, the only consolation people can have is the one that comes from their beliefs.
+ - Football can teach us that although a team’s individual players may be weak, it can still be successful if it uses common sense. Or that we should not attack anyone physically when we suffer a depressing defeat.
+ - For the traveler we see leaning on his neighbor is an honest and well-meaning man and full of melancholy, like those Chekhov characters so laden with virtues that they never know success in life.
+ - Censorship should never be allowed. One should be able to say anything. But I refuse to let politics be foisted on me.
+ - When another writer in another house is not free, no writer is free.
+ - My childhood proved to me that there could be no enjoyment of football without community. But it becomes difficult when this community is having problems with its identity. That’s when we experience all possible forms of nationalist exaggeration.
+ - Ka knew very well that life was a meaningless string of random incidents.
+ - We’re not stupid! We’re just poor! And we have a right to insist on this distinction.
+ - What was venerated as style was nothing more than an imperfection or flaw that revealed the guilty hand.
+ - Turks have a dismissive phrase: he works like a clerk. I have turned this insult around: I am proud to say that I work like a clerk.
+ - I certainly see myself more as a craftsman than as an artist.
+ - There’s been quite a clear upswing in nationalist sentiments. Everyone is talking about it, in Turkey as well.
+
+126 quotes

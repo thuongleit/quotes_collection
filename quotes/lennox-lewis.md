@@ -1,0 +1,53 @@
+ - Action is what separates the do-ers from the dreamers.
+ - I’ve found that taking shortcuts will get you to the place you don’t want to be much quicker than they get u to the place u want to be.
+ - There is just one rule about boxing: never bet on the white guy.
+ - I’m undisputed and there’s no disputing that.
+ - The danger of a closed mind is that it can also leave good things like love, compassion and reason on its outside.
+ - The fight will last as long as I allow it to last...
+ - Whatever I do, I always want to get better.
+ - Sometimes success needs interruption to regain focus and shake off complacency.
+ - You can consider me like fine wine. I just get better with age.
+ - If I don’t feel the same hunger as I once did then I definitely shouldn’t box any more.
+ - If the media didn’t know I played chess, there’d be no angle on me at all.
+ - Boxing isn’t just about brute strength; it’s about skill and outwitting your opponent.
+ - Now I am ready to set new goals and start a new career for myself outside of the ring.
+ - I have always said I am a five-dimensional fighter.
+ - I am definitely not scared of Mike Tyson. I am at the top of the food chain and he is looking to knock me off. Mike’s an arrogant imbecile. He sounds like a cartoon character.
+ - Thomas Hauser respects boxing and boxers. He gives readers insight into what happens in and out of the ring. Everything he writes is fair-minded and reality-based with a human touch.
+ - In boxing you create a strategy to beat each new opponent, it’s just like chess.
+ - I am just taking the top fights out there for me. People will get bored seeing me every day knock someone out.
+ - I cannot fight everyone at once. I have to take one at a time.
+ - I’ve got a new life now, a new future, there’s a lot more to Lennox Lewis than just being a boxer.
+ - I am the heavyweight champion of the world, and the greatest heavyweight you have seen for a long while. With Tyson on the card, it is definitely an added bonus because Lewis-Tyson on the same card would be a great doubleheader. This is what the fans want to see.
+ - I am going to have one Klitschko for breakfast and one Klitschko for lunch.
+ - I have always been English, ever since I emigrated from England and since the kids in Canada beat me up at the age of twelve for having an East London Cockney accent. I thank them for the cockney taunts because the beatings turned me on to boxing. But on a serious note Canada has been kind to me.
+ - People are still crying out for Lennox Lewis. They still want to see Lennox Lewis. That motivated me. I am still young. I have a couple fights left in me.
+ - There are still a lot of Mike Tyson fans out there, and a lot of disbelievers in the first fight, and they want to see us fight again. I am the emperor. If he wants to fight, I am here. If he does not, I understand.
+ - I come across famous people all the time. It’s the respect factor I appreciate. They respect me, they respect what I’ve achieved and the manner I’ve done it. It’s street credibility. They know where I’m coming from, they know my reputation.
+ - I’ve worked hard and accomplished what I’ve accomplished in the heavyweight scene.
+ - I think Kirk Johnson is a more exciting fighter than Chris Byrd. A lot of people agree with me when it comes to that.
+ - It’s not rage that drives me, it’s competition.
+ - There is not too much left for me to do, but I am sure there are a couple of great fights out there for me. I have basically achieved my goals. There are a few fights the public wants to see, and that is really what is left for me.
+ - The fact is that Mike Tyson bit through my trousers and took a significant piece of flesh out of my thigh.
+ - I always ask myself why old heavyweights come back, but I plan to stay out of the ring.
+ - I just want to complete my legacy.
+ - The mission I set out on in the beginning – to become heavyweight champion of the world, undisputed, lineal champion – you could say that mission is complete.
+ - People know I was the last true champion.
+ - People want to see me back in the ring. I think it is more of a drag lying around on the beach.
+ - Fighters used to be afraid of the Russians, Cubans but then I’d figure them out and figure out how to beat them.
+ - I wanted to prove I was the best fighter in the world.
+ - You can’t spend 110 percent on something if you don’t have that same hunger and drive. I have achieved all my goals – my mission is complete.
+ - You can just fight one man at a time.
+ - When I saw Tyson knocking everybody out on TV, I thought, He’s goooood. But when I saw him in person, he didn’t look as awesome.
+ - How can you trust a man who can talk for 5 minutes and you cant understand a sentence of it!
+ - The Tyson fight was like the hardest I ever trained for a fight in my entire career.
+ - I am proud to be in Los Angeles. I have a lot of fans that love me here. When you talk about the Meccas of boxing – Las Vegas, New York – now you have to talk about Los Angeles.
+ - When I was fighting Tyrell Biggs, Tyson was telling me at ringside to hit him to the ribs. We always had a mutual respect for each other since we sparred those early times. We got that over with.
+ - During the past 23 years, I have set a number of goals for myself and I’m proud to say that these goals have been achieved.
+ - After about 25 fights you don’t always have to keep going to the bathroom before the fight.
+ - Different fights bring out different things. I consider myself a seasoned professional. I have done things in the gym that have not come out yet. People would be amazed if they saw me train.
+ - Every era that comes along has a superstar that emerges. Once we are out of the game, there will be a superstar who will emerge that everyone will notice.
+ - For me, there’s never any bad blood – unless you do something to me.
+ - I don’t have anything else to prove.
+
+51 quotes

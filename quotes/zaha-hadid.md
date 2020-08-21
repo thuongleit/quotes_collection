@@ -1,0 +1,69 @@
+ - There are 360 degrees, so why stick to one?
+ - Architecture is like writing. You have to edit it over and over so it looks effortless.
+ - You have to really believe not only in yourself; you have to believe that the world is actually worth your sacrifices.
+ - Architecture is unnecessarily difficult. It’s very tough.
+ - Yes, I’m a feminist, because I see all women as smart, gifted and tough.
+ - I am eccentric, I admit it, but I am not a nutcase.
+ - I don’t think that architecture is only about shelter, is only about a very simple enclosure. It should be able to excite you, to calm you, to make you think.
+ - I think about architecture all the time. That’s the problem. But I’ve always been like that. I dream it sometimes.
+ - I really believe in the idea of the future.
+ - I am equally proud of all of my architectural projects. It’s always rewarding to see an ambitious design become reality.
+ - I have always appreciated those who dare to experiment with materials and proportions.
+ - No. I don’t have the patience, and I’m not very tactful. People say I can be frightening.
+ - Half of architecture students are women, and you see respected, established female architects all the time.
+ - The beauty of the landscape – where sand, water, reeds, birds, buildings, and people all somehow flowed together – has never left me.
+ - Women are always told, ‘You’re not going to make it, its too difficult, you can’t do that, don’t enter this competition, you’ll never win it,’ – they need confidence in themselves and people around them to help them to get on.
+ - Architecture is how the person places herself in the space. Fashion is about how you place the object on the person.
+ - Wherever I am in the world, my perfect day begins with waking up and heading to the beach or the pool or somewhere I can be semi-comatose. I just wake up and go to the sun.
+ - As a woman, I’m expected to want everything to be nice and to be nice myself. A very English thing. I don’t design nice buildings – I don’t like them. I like architecture to have some raw, vital, earthy quality.
+ - I can’t focus when there’s too many things around. Whenever I used to go to the office, I used to always say, ‘Tidy up.’
+ - I’ve always thought that design can have equal importance to the idea of internal architecture. Professionally, things can be very dogmatic – you do the architecture, someone else does the interiors, someone else does the furniture, the fabric, etc. But I think design is all-encompassing.
+ - For a woman to go out alone into architecture is still very, very hard. It’s still a man’s world.
+ - You really have to have a goal. The goal posts might shift, but you should have a goal. Know what it is you want to find out.
+ - It’s not my duty as an architect to look at it.
+ - I am sure that as a woman I can do a very good skyscraper.
+ - I used to not like being called a ‘woman architect.’ I’m an architect, not just a woman architect. The guys used to tap me on the head and say ‘you’re OK for a girl.’ But I see an incredible amount of need from other women for reassurance that it can be done, so I don’t mind anymore.
+ - I always thought I was powerful, since I was a kid.
+ - When I taught, all my best students were women.
+ - Architecture is particularly difficult for women; there’s no reason for it to be. I don’t want to blame men or society, but I think it was for a long time, the clients were men, the building industry is all male.
+ - Good education is so important. We do need to look at the way people are taught. It not just about qualifications to get a job. It’s about being educated.
+ - I don’t think that everybody in the planet should have a child. I’ve never had the desire I should have a kid.
+ - Would they call me a diva if I were a guy?
+ - People don’t talk to you properly. It’s the way they talk to you; they dismiss you. I think it’s a combination of me being a woman and a foreigner.
+ - I miss aspects of being in the Arab world – the language – and there is a tranquility in these cities with great rivers. Whether it’s Cairo or Baghdad, you sit there and you think, ‘This river has flown here for thousands of years.’ There are magical moments in these places.
+ - Education, housing and hospitals are the most important things for society.
+ - When I first came to Guangzhou in 1981, it seemed such a hard and dour place with everyone in Chairman Mao uniforms.
+ - As a woman, you’re not accessible to every world.
+ - Being Iraqi taught me to be very cautious.
+ - The paintings have only ever been ways of exploring architecture. I don’t see them as art.
+ - People often ask me if I consider myself to be an architect, fashion designer, or artist. I’m an architect. The paintings I’ve done are very important to me, but they were part of a process of thinking and developing.
+ - When I was growing up in Iraq, there was an unbroken belief in progress and a great sense of optimism. It was a moment of nation building.
+ - I don’t think people should do things because you know, ‘I am turning this age, I must go have a husband.’ If you find somebody and it works out then have kids, it’s very nice. But if you don’t, you don’t.
+ - I have been interested in fashion since I was a kid. Then I lived in London, where it was more about costume and a personal statement of who you are than about fashion.
+ - It’s very important for cities all around the world to reinvent themselves, and Glasgow is a good example of that. The Scots are very nice. I don’t think they are burdened by their history.
+ - Of course I believe imaginative architecture can make a difference to people’s lives, but I wish it was possible to divert some of the effort we put into ambitious museums and galleries into the basic architectural building blocks of society.
+ - All the privileged can travel, see different worlds; not everyone can. I think it is important for people to have an interesting locale nearby.
+ - It was such a depressing time. I didn’t look very depressed, maybe, but it was really dire. I made a conscious decision not to stop, but it could have gone the other way.
+ - What’s similar between Britain and America is the lack of good-quality civic buildings.
+ - I love driving around east London – it’s always full of surprises. Actually, I don’t drive myself – I like to be driven.
+ - When women do succeed, the press, even the industry press, spend far too much time talking about how we dress, what shoes we’re wearing, who we’re meant to be seeing. That’s pretty sad for women, especially when it’s written by women who really should know better.
+ - My father was a politician, and a very important politician, and one of the leaders of the Iraqi Democratic Party, who believed in progress.
+ - In hospital, people should be able to have time to themselves.
+ - You don’t always have to show art in what’s called a white box; you can have a kind of complexity within an exhibit which actually respects the art as well.
+ - I am quite sensitive to politics, because you know, as an Arab, an Iraqi, all your life, you are very conscious of it.
+ - Life in the Middle East is quite different from other places.
+ - The spirit of adventure to embrace the new and the incredible belief in the power of invention attracted me to the Russian avant-garde.
+ - I made a decision when I was in school that I’d have a lot of male friends.
+ - People say I design architectural icons. If I design a building and it becomes an icon, that’s ok.
+ - For many years, I hated nature. As a student, I refused to put a plant anywhere – a living plant, that is. Dead plants were OK.
+ - I really love Miami, but I don’t think the architecture matches the city. It’s a bit too commercial.
+ - It is insufficient for architecture today to directly implement an existing building typology; it instead requires architects to carefully examine the whole area with new interventions and programmatic typologies.
+ - I don’t particularly like showing furniture on pedestals, but for whatever reasons you always have to in museums.
+ - I find industrial cities exciting. I like their toughness.
+ - In Iraq, many of my female friends were architects and professionals with a lot of power during the 1980s while all the men were at war in Iran.
+ - The commission process in America and England is different. In America, they do it through an interview process, and it’s really based on whether they like you or not. I mean, it’s nothing to do with whether you do the best scheme or the worst scheme.
+ - Contrary to popular view, I’ve never been patronized in the Middle East. Men maybe treat women differently, but they do not treat them with disrespect. They don’t hate women. It’s a very different kind of mentality.
+ - I will always have two regrets. I don’t have a presence in London, and I would have liked to have done more work in the Middle East.
+ - There are so many great galleries and museums in London, but they can be very crowded during the day.
+
+67 quotes

@@ -1,0 +1,29 @@
+ - I still am a virulent anti-communist. It is a bad system, an immoral system, and one that takes away the rights of people and the rights of individuals. And everywhere it’s gone, it’s failed.
+ - I was the first one in my family to go to college.
+ - My best quality is that I talk to everyone. My worst quality is that I talk to everyone.
+ - I’m never surprised by the insensitivity of ‘The New York Times’ editorial board.
+ - Government should steer, not row.
+ - I was born here in the city, born in the Bronx. Son of a cop. One grandfather was a taxi driver; the other was a firefighter. New York is in my DNA.
+ - New York is in my DNA.
+ - Everybody knows I return all of my phone calls. I pick up my cell phone myself, much to the chagrin of my staff.
+ - People should be respected for the strength of their convictions, and I also believe in freedom of expression.
+ - In 1964, I tried to convince my grandfather, who was active in the New York City firefighters union, to vote for Barry Goldwater over Lyndon Johnson because at the time I thought his approach to limited government was right on.
+ - I do fear God, but I will also tell you that when a doctor diagnoses you and the word ‘cancer’ comes out of his mouth, at that point, it changes your life and you do fear less and it also has allowed me to be a lot more open as a person. It’s changed me.
+ - My dad was a New York City cop. His father was a New York City fireman. And my mother’s dad was a city taxi driver.
+ - The bracelet says ‘Fear Nothing.’ It was given to me by my friends, and it was made for me and my friends during the period of time that I was going through chemotherapy. And I still wear it, because it’s a great reminder of friendship and how my buddies and others came together in my time of need.
+ - I was involved in some of the very first meetings that created the maps that showed what would happen if you had a Category 1, 2 or 3 hurricane in New York.
+ - There is no reason for anybody to have an assault weapon.
+ - I cannot be separated from Rudy Giuliani, but I am also not Rudy Giuliani.
+ - I have gone to Albany constantly in my capacity as budget director, because I don’t think the way the transit authority works with the City of New York is very appropriate.
+ - I have voted for a Republican for president ever since I was voting and since I was 18 years old.
+ - The ‘Libertarian’ thing was a mistake on my part for saying it, but I am.
+ - My favorite is always the book that I’m currently reading.
+ - Government is to point you in the right direction, and not to do everything for you.
+ - I am extremely respectful of the Jewish community. You know, I am Christian. I think of Jews as my older brothers. I mean, there wouldn’t be Christianity without the Jewish religion. There is a direct connection between the two of them.
+ - This idea of tying me to Giuliani is quite unique. I know Rudy Giuliani. I like Rudy Giuliani. I worked with him during his administration. But we’re completely different people.
+ - My earliest memories are of my father explaining to me the American Dream and how he expected me to do better than he did.
+ - I was born a limited-government person. I’ve always had this streak going through me.
+ - We’ve made tremendous strides and changes in the City of New York since 1994.
+ - Mayors of New York have been elected not because of their party label, but because of their philosophy and their approach overall, and that has been since time immemoriam in New York, that people are not party-oriented in New York.
+
+27 quotes

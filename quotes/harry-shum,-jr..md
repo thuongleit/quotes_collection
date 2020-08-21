@@ -1,0 +1,25 @@
+ - I’m actually really shy.
+ - Everyone has different talents, different styles and talents.
+ - I was born in Costa Rica and we moved to America where it was a whole new world for me.
+ - It was a big step, to go from not talking to people to stepping on to a stage. That’s when I felt the most comfortable, because I could do anything I wanted to and say anything I wanted to, even if people didn’t laugh.
+ - I’ve always been a person with patience, and I don’t like to force things.
+ - I was always an actor, starting in middle school. I was in all the plays and all that. But dancing didn’t come into my life until late into high school.
+ - With parents, that’s the only way sometimes that they can get across to their kids is by giving them an ultimatum.
+ - I wasn’t the guy who got straight As. I got As and Bs and a couple Cs.
+ - When I was younger, I was very scared to talk to people. To the point where my parents took me to a therapist because they thought something was wrong with me.
+ - Any Michael Jackson song will make any dancer go nuts.
+ - I’m really into football, gadgets, adventurous activities, and cooking new, creative recipes right now – but you’ll never catch me being boring.
+ - The tour life definitely puts strains on your body, not just because of the dancing but because of the fact that you are traveling into the wee hours of the day, getting up early, going to sound check – just the grueling process of it all.
+ - I remember the first time I felt that I was sharing the stage with someone spectacular was dancing with Beyonce. It was the dancers, the band, Beyonce and me in front of thousands of people. That was sick. It was pretty amazing that I got to travel the world with someone like her.
+ - I know what my talents are, and at the end of the day I’m an actor who can dance.
+ - Right before I jumped out of a plane, I knew what Superman felt like.
+ - When I came into the industry I started with acting and I did drama during junior high and high school. I fell into dancing as a hobby, but whenever you need work, you try out different things. So I booked a lot of jobs for dancing and it kept rolling and rolling.
+ - I’d rather dance in a corner than dance in a circle.
+ - I have the most respect for Zach Woodlee. He is one of my favorite – and one of the most capable – choreographers out there right now.
+ - I started working when I was 9 or 10.
+ - When I’m off the clock, I usually play video games – or do something nature-y so I can contribute to Mother Nature.
+ - I actually got dared to audition for the dance team. All my track-and-field buddies dared me to audition, and I was one of the few guys who did it.
+ - I’m heavily involved in the creative with choreographer Christopher Scott. I go to rehearsals with ‘Glee’ and then practice with LXD till about midnight.
+ - Obviously anything that accessorizes or enhances the iPhone is always pretty cool.
+
+23 quotes

@@ -1,0 +1,46 @@
+ - Lift every voice and sing.
+ - You are young, gifted, and Black. We must begin to tell our young, There’s a world waiting for you, Yours is the quest that’s just begun.
+ - Labor is the fabled magician’s wand, the philosophers stone, and the cap of good fortune.
+ - And God stepped out on space, and He looked around and said: I’m lonely – I’ll make me a world.
+ - Young man, young man, your arm’s too short to box with God.
+ - She was my first love, and I loved her as only a boy loves.
+ - This Great God, Like a mammy bending over her baby, Kneeled down in the dust Toiling over a lump of clay Till He shaped it in His own image.
+ - We have come over a way that with tears has been watered, We have come, treading our path through the blood of the slaughtered.
+ - It is strange how in some things honest people can be dishonest without the slightest compunction.
+ - Nothing great or enduring, especially in music, has ever sprung full-fledged and unprecedented from the brain of any master; the best he gives to the world he gathers from the hearts of the people, and runs it through the alembic of his genius.
+ - Lift every voice and sing Till earth and heaven ring, Ring with the harmonies of Liberty. Let our rejoicing rise high as the listening skies; Let it resound loud as the rolling sea.
+ - It’s no disgrace to be black, but it’s often very inconvenient.
+ - O Black and unknown bards of long ago, How came your lips to touch the sacred fire?
+ - Some men enjoy the constant strife Of days with work and worry rife, But that is not my dream of life: I think such men are crazy. For me, a life with worries few, A job of nothing much to do, Just pelf enough to see me through: I fear that I am lazy.
+ - Every race and every nation should be judged by the best it has been able to produce, not by the worst.
+ - I thought of Paris as a beauty spot on the face of the earth, and of London as a big freckle.
+ - I finally made up my mind that I would neither disclaim the black race nor claim the white race; but that I would change my name, raise a mustache, and let the world take me for what it would; that it was not necessary for me to go about with a label of inferiority pasted across my forehead.
+ - With his head in his hands, God thought and thought, Till he thought: I’ll make me a man!
+ - A great wave of humiliation and shame swept over me. Shame that I belonged to a race that could be so dealt with; and shame for my country, that it, the great example of democracy to the world, should be the only civilized, if not the only state on earth, where a human being would be burned alive.
+ - In Berlin I especially enjoyed the orchestral concerts, and I attended a large number of them. I formed the acquaintance of a good many musicians, several of whom spoke of my playing in high terms.
+ - Amsterdam was a great surprise to me. I had always thought of Venice as the city of canals; it had never entered my mind that I should find similar conditions in a Dutch town.
+ - So God stepped over to the edge of the world And He spat out the seven seas; He batted His eyes, and the lightnings flashed; He clapped His hands, and the thunders rolled; And the waters above the earth came down, The cooling waters came down.
+ - When we arrived in London, my sadness at leaving Paris was turned into despair. After my long stay in the French capital, huge, ponderous, massive London seemed to me as ugly a thing as man could contrive to make.
+ - The colored people of this country know and understand the white people better than the white people know and understand them.
+ - I’m lonely I’ll make me a world.
+ - I had enjoyed life in Paris, and, taking all things into consideration, enjoyed it wholesomely.
+ - There are a great many colored people who are ashamed of the cake-walk, but I think they ought to be proud of it.
+ - At a very early age I began to thump on the piano alone, and it was not long before I was able to pick out a few tunes? I also learned the names of the notes in both clefs, but I preferred not be hampered by notes.
+ - And so for a couple of years my life was divided between my music and my school books.
+ - This country can have no more democracy than it accords and guarantees to the humblest and weakest citizen.
+ - The Southern whites are in many respects a great people. Looked at from a certain point of view, they are picturesque. If one will put oneself in a romantic frame of mind, one can admire their notions of chivalry and bravery and justice.
+ - My mother was kept very busy with her sewing; sometimes she would have another woman helping her.
+ - My appearance was always good and my ability to play on the piano, especially ragtime, which was then at the height of its vogue, made me a welcome guest.
+ - Make yourself as happy as possible, and try to make those happy whose lives come in touch with yours. But to attempt to right the wrongs and cease the sufferings of the world in general is a waste of effort.
+ - Through my music teaching and my not absolutely irregular attendance at church, I became acquainted with the best class of colored people in Jacksonville.
+ - Shortly after this I was made a member of the boys choir, it being found that I possessed a clear, strong soprano voice. I enjoyed the singing very much.
+ - As I look back now I can see that I was a perfect little aristocrat.
+ - It is from the blues that all that may be called American music derives it most distinctive characteristics.
+ - When one has seen something of the world and human nature, one must conclude, after all, that between people in like stations of life there is very little difference the world over.
+ - Americans are immensely popular in Paris; and this is not due solely to the fact that they spend lots of money there, for they spend just as much or more in London, and in the latter city they are merely tolerated because they do spend.
+ - In the life of everyone there is a limited number of experiences which are not written upon the memory, but stamped there with a die; and in the long years after, they can be called up in detail, and every emotion that was stirred by them can be lived through anew; these are the tragedies of life.
+ - I do not see how a people that can find in its conscience any excuse whatever for slowly burning to death a human being, or for tolerating such an act, can be entrusted with the salvation of a race.
+ - My luck at the gambling table was varied; sometimes I was fifty to a hundred dollars ahead, and at other times I had to borrow money from my fellow workmen to settle my room rent and pay for my meals.
+ - The peculiar fascination which the South held over my imagination and my limited capital decided me in favor of Atlanta University; so about the last of September I bade farewell to the friends and scenes of my boyhood and boarded a train for the South.
+
+44 quotes

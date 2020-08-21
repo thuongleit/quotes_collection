@@ -1,0 +1,111 @@
+ - Science, my lad, is made up of mistakes, but they are mistakes which it is useful to make, because they lead little by little to the truth.
+ - All that is impossible remains to be accomplished.
+ - The chance which now seems lost may present itself at the last moment.
+ - Anything one man can imagine, other men can make real.
+ - There are no impossible obstacles; there are just stronger and weaker wills, that’s all!
+ - We may brave human laws, but we cannot resist natural ones.
+ - Nature’s creative power is far beyond man’s instinct of destruction.
+ - Travel enables us to enrich our lives with new experiences, to enjoy and to be educated, to learn respect for foreign cultures, to establish friendships, and above all to contribute to international cooperation and peace throughout the world.
+ - Trains, like time and tide, stop for no one.
+ - Aures habent et non audient’ – ‘They have ears but hear not.
+ - I believe that water will one day be employed as fuel, that hydrogen and oxygen which constitute it, used singly or together, will furnish an inexhaustible source of heat and light, of an intensity of which coal is not capable.
+ - As long as the heart beats, as long as body and soul keep together, I cannot admit that any creature endowed with a will has need to despair of life.
+ - A scholar has to know a little of everything.
+ - It is a great misfortune to be alone, my friends; and it must be believed that solitude can quickly destroy reason.
+ - The Great Architect of the universe built it of good firm stuff.
+ - I can undertake and persevere even without hope of success.
+ - What you do for money you do badly.
+ - How many things have been denied one day, only to become realities the next!
+ - If there were no thunder, men would have little fear of lightning.
+ - I am nothing to you but Captain Nemo; and you and your companions are nothing to me but the passengers of the Nautilus.
+ - I am very bad at expressing tender sentiments. The very word ‘love’ frightens me.
+ - You will travel in a Land of Marvels.
+ - Anything capable of being imagined will one day be made reality.
+ - On the surface of the ocean, men wage war and destroy each other; but down here, just a few feet beneath the surface, there is a calm and peace, unmolested by man.
+ - Though sleep is called our best friend, it is a friend who often keeps us waiting!
+ - But Phileas Fogg, who was not traveling, but only describing a circumfrence,...
+ - Steam seems to have killed all gratitude in the hearts of sailors.
+ - All great actions return to God, from whom they are derived.
+ - Man is never perfect nor contented.
+ - We are of opinion that instead of letting books grow moldy behind an iron grating, far from the vulgar gaze, it is better to let them wear out by being read.
+ - Poets are like proverbs: you can always find one to contradict another.
+ - Well, I feel that we should always put a little art into what we do. It’s better that way.
+ - Look with all your eyes, look.
+ - What darkness to you is light to me.
+ - Before all masters, necessity is the one most listened to, and who teaches the best.
+ - The human mind delights in grand conceptions of supernatural beings.
+ - Solitude, isolation, are painful things, and beyond human endurance.
+ - Reality provides us with facts so romantic that imagination itself could add nothing to them.
+ - The distance between the earth and her satellite is a mere trifle, and undeserving of serious consideration. I am convinced that before twenty years are over one-half of our earth will have paid a visit to the moon.
+ - What pen can describe this scene of marvellous horror; what pencil can portray it?
+ - The sea is the vast reservoir of Nature. The globe began with sea, so to speak; and who knows if it will not end with it?
+ - On the earth, even in the darkest night, the light never wholly abandons his rule. It is diffused and subtle, but little as may remain, the retina of the eye is sensible of it.
+ - Until I dicover the meaning of this sentence, I will neither eat nor sleep. “My dear uncle-” I began. “Nor you either,” he added.
+ - I looked on, I thought, I reflected, I admired, in a state of stupefaction not altogether unmingled with fear!
+ - An energetic man will succeed where an indolent one would vegetate and inevitably perish.
+ - He who is mistaken in an action which he sincerely believes to be right may be an enemy, but retains our esteem.
+ - Whatever one man is capable of imagining, other men will prove themselves capable of realizing.
+ - Hunger, prolonged, is temporary madness! The brain is at work without its required food, and the most fantastic notions fill the mind. Hitherto I had never known what hunger really meant. I was likely to understand it now.
+ - The colonists had no library at their disposal; but the engineer was a book which was always at hand, always open at the page which one wanted, a book which answered all their questions, and which they often consulted.
+ - We now know most things that can be measured in this world, except the bounds of human ambition!
+ - However, everything has an end, everything passes away, even the hunger of people who have not eaten.
+ - Scent is the soul of flowers, and sea flowers, as splendid as they may be, have no soul!
+ - I believe cats to be spirits come to earth. A cat, I am sure, could walk on a cloud without coming through.
+ - There is hope for the future, and when the world is ready for a new and better life, all these things will some day come to pass, – in God’s good time.
+ - As for Phileas Fogg, it seemed just as if the typhoon were a part of his programme.
+ - He was the most deliberate person in the world, yet always reached his destination at the exact moment. As for Phileas Fogg, it seemed just as if the typhoon were a part of his programme. Around the world in eighty days.
+ - Captain Nemo pointed to this prodigious heap of shellfish, and I saw that these mines were genuinely inexhaustible, since nature’s creative powers are greater than man’s destructive instincts.
+ - Why lower oneself to taking pride from being American or British, when you can boast of being man!
+ - The earth does not need new continents, but new men.
+ - And whichsoever way thou goest, may fortune follow.
+ - A true Englishman doesn’t joke when he is talking about so serious a thing as a wager.
+ - When the mind once allows a doubt to gain entrance, the value of deeds performed grow less, their character changes, we forget the past and dread the future.
+ - I saw the world. I learnt of new cultures. I flew across an ocean. I wore women’s clothing. Made a friend. Fell in love. Who cares if I lost a wager? Queen Victoria: I do! I’ve got 20 quid riding on you.
+ - How tranquil is a coral tomb, and may the heavens grant that my companions and I be buried in no other!
+ - Great robbers always resemble honest folk. Fellows who have rascally faces have only one course to take, and that is to remain honest; otherwise, they would be arrested off-hand.
+ - A cow peacefully grazing fifty yards away received one of the bullets in her back. She had nothing to do with the quarrel all the same.
+ - I have been, am, in his service; I have seen his generosity and goodness; and I will never betray him-not for all the gold in the world. I have come from a village where they don’t eat that kind of bread.
+ - I wanted to see what no one had yet observed, even if I had to pay for this curiosity with my life.
+ - My house is small, but may heaven grant that it is never full of friends.
+ - On the morrow the horizon was covered with clouds- a thick and impenetrable curtain between earth and sky, which unhappily extended as far as the Rocky Mountains. It was a fatality!
+ - An Englishman does not joke about such an important matter as a bet.
+ - What use are the best of arguments when they can be destroyed by force?
+ - With time and thought, one can do a good job.
+ - At Kiel, as elsewhere, a day goes by somehow or other.
+ - Wherever he saw a hole he always wanted to know the depth of it. To him this was important.
+ - An English criminal, you know is always better concealed in London than anywhere else.
+ - It was obvious that the matter had to be settled, and evasions were distasteful to me.
+ - Everything is possible for an eccentric, especially when he is English.
+ - It was all very well for an Englishman like Mr. Fogg to make the tour of the world with a carpet-bag; a lady could not be expected to travel comfortably under such conditions.
+ - Yes, I could see these enormous elephants, whose trunks were tearing down large boughs, and working in and out the trees like a legion of serpents. I could hear the sounds of the mighty tusks uprooting huge trees!
+ - Well, I thought I was so tranquil! I need to give up that illusion! There is decidedly no rest to be had in this world.
+ - The sole precoccupation of this learned society was the destruction of humanity for philanthropic reasons and the perfection of weapons as instruments of civilization.
+ - We were alone. Where, I could not say, hardly imagine. All was black, and such a dense black that, after some minutes, my eyes had not been able to discern even the faintest glimmer.
+ - But to find, all at once, right before your eyes, that the impossible had been mysteriously achieved by man himself: this staggers the mind!
+ - The wisest man may be a blind father.
+ - It’s really useful to travel, if you want to see new things.
+ - I believe cats to be spirits come to earth.
+ - It may be taken for granted that, rash as the Americans are, when they are prudent there is good reason for it.
+ - In presence of Nature’s grand convulsions man is powerless.
+ - It must be, for there is a logic to everything on this earth and nothing is done without a reason, that God sometimes lets scientists discover.
+ - The moon, by her comparative proximity, and the constantly varying appearances produced by her several phases, has always occupied a considerable share of the attention of the inhabitants of the earth.
+ - No sooner is the rage of hunger appeased than it becomes difficult to comprehend the meaning of starvation. It is only when you suffer that you really understand.
+ - Dinner was ready. Professor Lidenbrock did full justice to it, for his compulsory fast on board had turned his stomach into an unfathomable gulf.
+ - I would have bartered a diamond mine for a glass of pure spring water!
+ - Man is so constituted that health is a purely negative state. Hunger once satisfied, it is difficult for a man to imagine the horrors of starvation; they cannot be understood without being felt.
+ - Civilization never recedes; the law of necessity ever forces it onwards.
+ - During the War of the Rebellion, a new and influential club was established in the city of Baltimore in the State of Maryland.
+ - He believed in it, as certain good women believe in the leviathan-by faith, not by reason.
+ - Therever fortune clears a way, thither our ready footsteps stray.
+ - What I’d like to be above all is a writer...
+ - The cold, increased by the tremendous speed, deprived them of the power of speech.
+ - The sea is everything. It covers seven tenths of the terrestrial globe. Its breath is pure and healthy. It is an immense desert, where man is never lonely, for he feels life stirring on all sides.
+ - Ah, monsieur, to live in the bosom of the sea! Only there can independence be found! There I recognize no master! There I am free!
+ - He must have travelled everywhere, at least in the spirit.
+ - Better to put things at the worst at first and reserve the best for a surprise.
+ - Liberty is worth paying for.
+ - Powder is but a thing of yesterday, and war is as old as the human race – unhappily.
+ - In the memory of the dead all chronological differences are effaced.
+ - In lighthearted countries, people joked about this phenomenon, but such serious, practical countries as England, America, and Germany were deeply concerned.
+
+109 quotes

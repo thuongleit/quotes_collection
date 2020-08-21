@@ -1,0 +1,23 @@
+ - Ethics is knowing the difference between what you have a right to do and what is right to do.
+ - Fairness is what justice really is.
+ - Censorship reflects a society’s lack of confidence in itself.
+ - The 4th Amendment and the personal rights it secures have a long history. At the very core stands the right of a man to retreat into his own home and there be free from unreasonable governmental intrusion.
+ - Swift justice demands more than just swiftness.
+ - For the Fourth Amendment protects people, not places. What a person knowingly exposes to the public, even in his own home or office, is not a subject of Fourth Amendment protection. But what he seeks to preserve as private, even in an area accessible to the public, may be constitutionally protected.
+ - The right to defy an unconstitutional statute is basic in our scheme. Even when an ordinance requires a permit to make a speech, to deliver a sermon, to picket, to parade, or to assemble, it need not be honored when it’s invalid on its face.
+ - Abortion is inherently different from other medical procedures because no other procedure involves the purposeful termination of a potential life.
+ - The right to enjoy property without unlawful deprivation, no less that the right to speak out or the right to travel is, in truth, a “personal” right.
+ - It must always be remembered that what the Constitution forbids is not all searches and seizures, but unreasonable searches and seizures.
+ - We dedicated ourselves to a powerful idea – organic law rather than naked power. There seems to be universal acceptance of that idea in the nation.
+ - The Court today holds the Congress may say that some of the poor are too poor even to go bankrupt. I cannot agree.
+ - To force a lawyer on a defendant can only lead him to believe that the law contrives against him.
+ - I shall not today attempt further to define the kinds of material but I know it when I see it.
+ - In fact, a fundamental interdependence exists between the personal right to liberty and the personal right to property.
+ - For me this is not something that can be swept under the rug and forgotten in the interest of forced Sunday togetherness.
+ - We are concerned here only with the imposition of capital punishment for the crime of murder, and when a life has been taken deliberately by the offender, we cannot say that the punishment is invariably disproportionate to the crime. It is an extreme sanction suitable to the most extreme of crimes.
+ - The dichotomy between personal liberties and property rights is a false one. Property does not have rights. People have rights.
+ - These death sentences are cruel and unusual in the same way that being struck by lightning is cruel and unusual.
+ - A person’s mere propinquity to others independently suspected of criminal activity does not give rise to probable cause to search that person.
+ - May the state fence in the harmless mentally ill solely to save its citizens from exposure to those whose ways are different? One might as well ask if the state, to avoid public unease, could incarcerate all who are physically unattractive or socially eccentric.
+
+21 quotes

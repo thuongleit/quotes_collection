@@ -1,0 +1,37 @@
+ - Always trying new things is always more fun, and it can be scary, but it’s always more fun in the end.
+ - Trophies and medals have never meant much to me. I’ve had amazing experiences, which let you feel like you’ve accomplished something.
+ - There’s the push and pull you put on yourself and the push and pull the world puts on you. Most of the time, the world’s going to win out, because it’s just logical that you should be more successful and more motivated. You can always be more.
+ - Boston is actually the capital of the world. You didn’t know that? We breed smart-ass, quippy, funny people. Not that I’m one of them. I just sorta sneaked in under the radar.
+ - It’s not about celebrity or not. It’s all about, do you have that ‘girl in a cardigan’ in you. You gotta have that.
+ - When everything gets turned upside down, it only leads to better quality stuff.
+ - Most of the people I know who work out seriously do so because they have such an amazing outlook on life. To be who I want to be, I’m going to work out to be more positive, more active. It’s proactive.
+ - I wanted to be an English teacher. I wanted to do it for the corduroy jackets with patches on the side. When I got to college, as I was walking across campus one day, I ripped off a little flyer for this sketch-comedy group. It ended up being one of the greatest things I’ve ever done.
+ - It’s a great wake-up call for our entire industry: What movies are we making? What storytellers are we allowing to tell the stories? What people are we allowing to be cast in those stories? I think we need newer stories, and more people given the opportunity to do anything they want.
+ - People have a sense of humor, even if it’s not a good one, and everybody has stakes.
+ - Guys have a level of insecurity and vulnerability that’s exponentially bigger than you think. With the primal urge to be alpha comes extreme heartbreak. The harder we fight, the harder we fall.
+ - My favorite water cooler topic is fantasy football. I used to make fun of friends for doing it and now I’m obsessed.
+ - I know I’m guilty of and I think a lot of people are guilty of sort of getting starry-eyed with love and sort of looking over the bad things and keep going and you don’t really prepare for how much work marriage really is.
+ - If you did go to high school and then college, there’s definitely a solidarity with someone that is from your hometown and knows your mom, and all that stuff. There’s this weird politeness that we have, as a society. You don’t want to make it hard for anybody.
+ - Being funny is one of my greatest strengths. I can make girls smile when they’re down, and when they’re having a good time, I can carry on the joke.
+ - My name was originally John Collins, but I just didn’t think it had the flair I needed. I found out the poet laureate of Poland was named Krasinski and so it seemed like a shoe-in for show business.
+ - I didn’t go to the special screening on a spaceship where everybody goes to have their special screeningsEverybody knows that’s what happens in Hollywood.
+ - The only reason why I acted in school was because of the community, like I was in the chorus of every play, I was never really the lead.
+ - I think we owe absolutely everything to the fans.
+ - I’m really not feeling one way or the other with comedy or drama, I’m just sort of doing projects that I’ve been finding really fun to be a part of.
+ - I have the most incredible parents and they didn’t put pressure on me. I grew up in a house and no matter what they thought of things, it was always about my choice.
+ - I used to make fun of my friends who had BlackBerries. And I know that the expression CrackBerry has been going around, but now I fully understand it. I’m actually addicted to a piece of machinery, and that’s really embarrassing.
+ - I’ve always loved where my dad came from and the ideals that instilled in me.
+ - You can’t do anything to be funny. That’s cringeworthy. If your humor comes out of a place of love every time, you don’t make the joke bigger than you. The funniest comedians are in touch with their emotional level.
+ - I think one of the coolest things about the job is the level of trust we have for each other. The actors fully trust that the writers will write amazing episodes, and the writers trust that the actors will follow their instincts with the characters.
+ - To me, television is one of the most exciting things going on right now, as far as content goes. Some of these shows that are on television are better than any of the movies out there.
+ - The perfect gadget would somehow allow me to fly. Isn’t that what everybody wants? It would also cook a damn good microwave pizza. So while in flight you had something to eat – an in-flight meal. Where would I go? Well, nowadays, it would probably just take me to work a lot quicker.
+ - It’s definitely particular to each situation, but whether it is a long history, or someone that you’re intimidated by, or someone that you didn’t think you ever had a shot at, at the end of the day, I think we’re all living through high school, every day.
+ - I’m a sucker where I love shifting tides.
+ - A lot of times in movies, you see the “small town” people, being bowled over by this creative entity or this corporate ideal, and it’s not true, at all.
+ - Truly, when I say the show has given me everything, it’s given me everything.
+ - I’ve never been compared to Bugs Bunny and that’s amazing, thank you.
+ - Each cast member brings their own vibe and antics to the set. You’re constantly surrounded by fun loving people who can make you laugh in their own way.
+ - I’ve always loved those movies where somebody thinks they want something, and then they realize that the thing they really want is right in front of them.
+ - The funniest comedians are in touch with their emotional level.
+
+35 quotes

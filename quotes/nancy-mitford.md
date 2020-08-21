@@ -1,0 +1,33 @@
+ - If one can’t be happy, one must be amused...
+ - An aristocracy in a republic is like a chicken whose head has been cut off: it may run about in a lively way, but in fact it is dead.
+ - One thing about tourists is that it is very easy to get away from them. Like ants they follow a trail and a few yards each side of that trail there are none.
+ - It’s a funny thing that people are always ready to admit it if they’ve no talent for drawing or music, whereas everyone imagines that they themselves are capable of true love, which is a talent like any other, only far more rare.
+ - Sun, silence, and happiness.
+ - I do love translating; it is the pure pleasure of writing without the misery of inventing.
+ - I Love children, especially when they cry for then someone takes them away.
+ - I am sometimes bored by people, but never by life.
+ - To fall in love you have to be in the state of mind for it to take, like a disease.
+ - Children should be like waffles – you should be able to throw the first one away.
+ - Life is sometimes sad and often dull, but there are currants in the cake, and here is one of them.
+ - The great advantage of living in a large family is that early lesson of life’s essential unfairness.
+ - Sisters are a shield against life’s cruel adversity.
+ - You’ve no idea how long life goes on and how many, many changes it brings. Young people seem to imagine that it’s over in a flash, that they do this thing, or that thing, and then die, but I can assure you they are quite wrong.
+ - And Left-wing people are always sad because they mind dreadfully about their causes, and the causes are always going so badly.
+ - Life itself, she thought, as she went upstairs to dress for dinner, was stranger than dreams and far, far more disordered.
+ - When the loo paper gets thicker and the writing paper thinner, it’s always a bad sign, at home.
+ - I have only ever read one book in my life, and that is White Fang. It’s so frightfully good I’ve never bothered to read another.
+ - The English lord marries for love, and is rather inclined to love where money is.
+ - Always remember, children, that marriage is a very intimate relationship. It’s not just sitting and chatting to a person; there are other things, you know.
+ - Irish gardens beat all for horror. With 19 gardeners, Lord Talbot of Malahide has produced an affair exactly like a suburban golf course.
+ - I think housework is far more tiring and frightening than hunting is, no comparison, and yet after hunting we had eggs for tea and were made to rest for hours, but after housework people expect one to go on just as if nothing special had happened.
+ - Surely a King who loves pleasure is less dangerous than one who loves glory?
+ - Greece is not a country of happy mediums: everything there seems to be either wonderful or horrible...
+ - Spring came late, but when it came it was hand-in-hand with summer, and almost at once everything was baking and warm, and in the villages the people danced every night on concrete dancing floors under the plane trees...
+ - A typical Irish dinner would be: cream flavored with lobster, cream with bits of veal in it, green peas and cream, cream cheese, cream flavored with strawberries.
+ - One’s emotions are intensified in Paris – one can be more happy and also more unhappy here than in any other place. But it is always a positive source of joy to live here, and there is nobody so miserable as a Parisian in exile from his town.
+ - Most people like reading about what they already know – there is even a public for yesterday’s weather.
+ - Americans relate all effort, all work, and all of life itself to the dollar. Their talk is of nothing but dollars.
+ - Chickens are cheerless birds, I advise you to keep geese which can be taught to follow like dogs, one needs all the companionship one can get in these days.
+ - In France that is the one rule, never make trouble.
+
+31 quotes

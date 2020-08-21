@@ -1,0 +1,44 @@
+ - If it doesn’t scare you, you’re probably not dreaming big enough.
+ - Having an environment that is supportive is really important for success.
+ - Being an entrepreneur isn’t just a job title, and it isn’t just about starting a company. It’s a state of mind. It’s about seeing connections others can’t, seizing opportunities others won’t, and forging new directions that others haven’t.
+ - I like being straightforward. We can deal with anything as long as it’s on the table.
+ - One of my greatest talents is recognizing talent in others and giving them the forum to shine.
+ - I’m always perpetually out of my comfort zone.
+ - I’ve learned time management, organization and I have priorities.
+ - When I started my company, many people said I shouldn’t launch it as a retail concept because it was too big a risk. They told me to launch as a wholesaler to test the waters – because that was the traditional way.
+ - Ambition is not a four-letter word and women have to embrace that.
+ - Even if you’re not yet an entrepreneur, you can be entrepreneurial in everything you do. If you view each stop as an opportunity to learn something, there is always something you will take away from that experience.
+ - I just like easy clothes – comfort.
+ - Each job I had wasn’t necessarily the perfect job, but I always talk to young women about how you really have to take certain things from each job and learn from that and then move on to something you really want to do.
+ - My biggest challenge every day is to be a great mother and a great businesswoman.
+ - I like being behind the scene.
+ - There’s always a stigma attached to the word ‘ambition’ and women. I’ve embraced it. Ambition is NOT a four-letter word and women have to embrace that.
+ - Remember: if the most unique ideas were obvious to everyone, there wouldn’t be entrepreneurs. The one thing that every entrepreneurial journey has in common is that there are many, many steps on the road to success.
+ - Women have to embrace ambition if they want to. I had a lot of trouble taking compliments in the beginning, and it’s really important for women to embrace their title.
+ - Big businesses can help by engaging aspiring entrepreneurs and promoting initiatives which support small businesses from within.
+ - I think women do work differently; it’s important to have both men and women. They offer different things.
+ - For me, if I can design beautiful things that have the price be lower, I am thrilled.
+ - I am always interested in designing things that have a great price point attached to it.
+ - Entrepreneurs have a great ability to create change, be flexible, build companies and cultivate the kind of work environment in which they want to work.
+ - I love exploring New York and I think that’s what is so exciting about it. You find places that you’ve never heard of or seen before all the time.
+ - My company is an extension of me, so when I designed my stores I wanted people to feel that they were in my home.
+ - When I think about fashion I think women will never lose that appetite for fashion.
+ - Never underestimate the impact of a small act.
+ - I grew up on a farm in Pennsylvania, where my parents raised German shepherds – we had about 30 dogs at any given time.
+ - I’ve been writing an ongoing letter to my children since they were born, full of recollections of their childhoods. I’ve filled two journals. It’s a great thing to do as a mother – you forget a lot as you go along, but reading over what you’ve written brings all the memories back.
+ - It’s a gift to be able to give access.
+ - I never go out during the day without sunglasses.
+ - We need to get women to the point where they aren’t apologizing. Its time to take ownership in our success.
+ - It was ingrained in me to be gracious.
+ - I just love the energy of going into different areas of New York.
+ - I think when I was on the corporate ladder, it was very difficult to maintain the hours. It’s a little easier when you have you’re an entrepreneur.
+ - I wanted to help women and their families.
+ - I would love to do special products for specific countries. As we go ahead and learn the territories, we’re going to do exclusives for each area.
+ - I wanted to create a new way of looking at retail.
+ - I wanted stores that would feel like a comfortable room in my apartment, cozy and colorful and different.
+ - I could eat gazpacho three times a day.
+ - I think women want to look beautiful. I think that’s an important thing. It is relevant.
+ - I’m very forgiving so I forgive most things, really.
+ - It’s very passe to think women want to spend a fortune on clothes.
+
+42 quotes

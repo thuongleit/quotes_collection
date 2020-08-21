@@ -1,0 +1,32 @@
+ - I believe the reason I love painting so much is that it forces one to be objective.
+ - What I want to show in my work is the idea which hides itself behind so-called reality.
+ - I am seeking for the bridge which leans from the visible to the invisible through reality.
+ - The metaphysics of substance. The strange feeling which comes over us when we sense: this is skin – this is bone – all in a single vision that is completely unearthly. The dreaminess of our existence mixed at the same time with the indescribably sweet illusion of reality.
+ - When spiritual, metaphysical, material, or immaterial events come into my life, I can only fix them by way of painting.
+ - If you wish to get hold of the invisible you must penetrate as deeply as possible into the visible.
+ - There is nothing I hate more than sentimentality.
+ - What I want to show in my work is the idea which hides itself behind so-called reality. I am seeking for the bridge which leans from the visible to the invisible through reality. It may sound paradoxical, but it is in fact reality which forms the mystery of our existence.
+ - My heart beats more for a raw, average vulgar art, which doesn’t live between sleepy fairy-tale moods and poetry but rather concedes a direct entrance to the fearful, commonplace, splendid and the average grotesque banality in life.
+ - The stronger and more intense my desire becomes to capture and record that which is unsayable, the more tightly my mouth stays shut.
+ - Painting constantly appeared to me as the one and only possible achievement.
+ - What matters is real love for things of the world outside us and for the deep secrets within us.
+ - The greatest mystery of all is reality.
+ - All important things in art have always originated from the deepest feeling about the mystery of Being.
+ - One of my problems is to find the self.
+ - The important thing is first of all to have a real love for the visible world that lies outside ourselves as well as to know the deep secret of what goes on within ourselves.
+ - I went across the fields to avoid the straight highways, along the firing lines where people were shooting at a small wooded hill, which is now covered with wooden crosses and lines of graves instead of spring flowers.
+ - Love in an animal sense is an illness, but a necessity which one has to overcome.
+ - What are you? What am I? Those are the questions that constantly persecute and torment me and perhaps also play some part in my art.
+ - I do not weep: I loathe tears, for they are a sign of slavery.
+ - I think only of objects: of a leg or an arm, of the wonderful sense of foreshortening, breaking through the plane, of the division of space, of the combination of straight lines in relation to curved ones.
+ - I hardly need to abstract things, for each object is unreal enough already, so unreal that I can only make it real by means of painting.
+ - Space, and space again, is the infinite deity which surrounds us and in which we are ourselves contained.
+ - It was so wonderful outside that even the wild senselessness of this enormous death, whose music I hear again and again, could not disturb me from my great enjoyment!
+ - Learn by heart the forms to be found in nature, so that you can use them like the notes in a musical composition. That is what these forms are for. Nature is a marvellous chaos, and it is our job and our duty to bring order into that chaos and – to perfect it.
+ - In principle, any abstraction of the object is allowed which has a sufficiently strong creative power behind it.
+ - Height, width, and depth are the three phenomena which I must transfer into one plane to form the abstract surface of the picture, and thus to protect myself from the infinity of space.
+ - One of my problems is to find the Ego, which has only one form and is immortal – to find it in animals and men, in the heaven and in the hell which together form the world in which we live.
+ - My figures come and go, suggested by fortune or misfortune. I try to fix them divested of their apparent accidental quality.
+ - I passed blindly many things which belong to real and political life.
+
+30 quotes

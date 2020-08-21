@@ -1,0 +1,35 @@
+ - My God, it transformed me. My life changed.
+ - I use cinematic things in a theatrical way on stage, and in film I use theatrical techniques in a cinematic way.
+ - We tell myths over and over again, lest we forget who we are, lest we not understand that these tales take us through the darkness of our lives, and they put us into a place where you understand what it is to be human.
+ - When I was thinking about The Lion King, I said, we have to do what theater does best. What theater does best is to be abstract and not to do literal reality.
+ - What I adore is the juxtaposition of high tech and low tech. It’s sort of like I love the sacred and the profane. I love to put these extremes in the same hopper.
+ - There is incredible power in the arts to inspire and influence.
+ - I lived in Indonesia for four years and I understand trance and magic and where it comes from.
+ - But I don’t think there has ever been anything written on the nature of violent man as deep and as thorough as Shakespeare’s Titus. I think it puts all modern movies and modern exploitations of violence to shame.
+ - And I just think that to introduce an unknown Shakespeare is thrilling, too – not to do Hamlet or Romeo and Juliet, to do the richer Shakespeare. People will come to this and not know the story.
+ - One of the reasons I love to jump back and forth between mediums is that film does allow me to be more literal. I can go to the real place. I can go to the Coliseum, and I don’t have to fake it.
+ - I am, to be quite honest, sick of hero stories.
+ - When you break into song, it’s not about dialogue, it’s not about how you would speak in a naturalistic sense-it’s about expressing your inner torment or your inner joy.
+ - Theater is far superior to film in poetry, in abstract poetry.
+ - Children have an easier ability to tap into the surreal than adults do, in a funny kind of way.
+ - I received from my experience in Japan an incredible sense of respect for the art of creating, not just the creative product. We’re all about the product. To me, the process was also an incredibly important aspect of the total form.
+ - I’ve never been a puppeteer, I conceive and I write and I design and I direct. And not just puppets. I direct actors, I direct dancers, I direct singers, I direct films. I also direct puppeteers. I’m really a theatre maker, but there’s not a word for that.
+ - I’ve had male executives say that my lead character was unlikable because she slept with a lot of guys.
+ - You program music with an image and then people are desensitized.
+ - I really do believe that if you don’t challenge yourself and risk failing, that it’s not interesting.
+ - Limitations force you to find the essence of what you want to say, which is one of the most important things to know for an artist.
+ - Americans in particular are myopic. They’re not traveling as much. When you were a college student, the next thing you would do on graduation was to take a year off and travel. That’s what I did. I went to Indonesia.
+ - People will justify whatever for a good cause.
+ - I love directing Shakespeare on film. It’s fantastic that the actors would do exactly the same thing and be true to their part.
+ - It’s people who are repressed and cannot express their fears that are dangerous.
+ - Directing is much more psychological-it’s a lot like being a general. And you have to be organized. While you’re making a film, you have between two and 500 people asking you a billion questions.
+ - I have never had a problem with people not being able to understand the words and the meanings in Titus.
+ - One of the reasons why I love to do Shakespeare is that this great artist was able to talk to a wide variety of audiences. He could do the bawdy plays and the humor and the clowns-as you know, because you’re a wonderful Stephano-that speaks to the populace, the masses, the groundlings, whatever.
+ - I’m not going to spend two years on a film or four years on an opera if I don’t feel like I can put my own self into it. That doesn’t mean it has to be about myself.
+ - I have directed good actors and have gone through the process which is more detailed in theater in a way. You have to get people to stay for two or three hours in a performance. They need more talk and rehearsal than in films.
+ - What I don’t have in theater is editing.
+ - I think that both musicals and opera have a capacity to get to an inner emotional landscape.
+ - You know, I went to Oberlin. At that time, grades were – you elected to have them or not. It was all of that era where grades were out the window. But I did very well in school. I didn’t really study the arts; I practiced the arts.
+ - We have often been attracted to the story of the other, the outcast. And he and I just loved working together, so it just kept happening, and our relationship is completely bound up with our work. We enjoy each other’s art.
+
+33 quotes

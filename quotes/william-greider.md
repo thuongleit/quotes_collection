@@ -1,0 +1,39 @@
+ - Everyone’s values are defined by what they will tolerate when it is done to others.
+ - The point is, the political reporters are the ones who no longer understand the ritual they are covering. They keep searching for political meanings in the tepid events when a convention is now essentially a human drama and only that.
+ - Democracy begins in human conversation. A democratic conversation does not require elaborate rules of procedure or utopian notions of perfect consensus. What it does require is a spirit of mutual respect-people conversing critically with one another in an atmosphere of honesty and shared regard.
+ - Everyone cares for disabled people, right? What they don’t care for are genuine civil rights for disabled people. MARY JOHNSON tells the tortuous, enraging story of how Congress enacted a law that instead of protecting against discrimination has turned ‘the disabled’ into a political punching bag.
+ - Creating a positive future begins in human conversation. The simplest and most powerful investment any member of a community or an organisation can make is to begin with other people as though the answers mattered.
+ - When self-important people and powerful institutions are governed by illusion, history has a way of biting back.
+ - Aside from sending someone to war or to prison, government s ability to make people involuntarily give over their money is its strongest exercise of authority over private citizens and their institutions.
+ - Money is power in American politics. It always has been.
+ - The ways in which people treat animals will be reflected in how people relate to one another.
+ - The do-it-yourself version of pensions is a flop, as many Americans have painfully learned.
+ - The rich nations of the world are acting like ancient usurers, lending money to the desperate poor on terms that cannot possibly be met and, thus, steadily acquiring more and more control over the lives and assets of the poor.
+ - Children born today have a fifty-fifty chance of living to 100.
+ - The problem of modern democracy is rooted in its neglect of unorganized people.
+ - A profound political question is suddenly on the table: Must the country continue to give precedence to private financial gain and market determinism over human lives and broad public values?
+ - Folks in the bottom half of the economy are already squeezed hard. They will be bloodied and bankrupt if economic policy inadvertently induces a recession.
+ - The regime of globalization promotes an unfettered marketplace as the dynamic instrument organizing international relations.
+ - If we have wealth, it will be protected from inflation and possibly even enhanced in value.
+ - A newly elected representative quickly discovers that his job in government-aside from making new laws-is to act as a broker, middleman, special pleader and finagler.
+ - In its present terms, the global system values property over human life.
+ - If everyone has to be a watchdog in order to make government work, then the foxes will also volunteer to serve.
+ - In 1900 Americans on average lived for only 49 years and most working people died still on the job.
+ - Obviously, people with low or even moderate incomes could not afford such savings rates, and even diligent savings from their low wages would not be enough to pay for either retirement or healthcare.
+ - The threat to globalization is not the wasted American dollars but Washington’s readiness to mix US commercial interests with its self-appointed role as global protector.
+ - Efficiency obliterates identity.
+ - Leaks and whispers are a daily routine of news-gathering in Washington.
+ - Maybe the reason some folks lag behind in our free enterprise system is because they depend too much on the free part and not enough on their own enterprise.
+ - The economy is not governed with the bottom half in mind.
+ - Americans cannot teach democracy to the world until they restore their own.
+ - If you think about it, Washington’s overwhelming power in the world is founded on death, the awesome arsenal for killing people.
+ - The burnt odor in Washington is from the disintegrating authority of the governing classes.
+ - Democracy is held captive, not just by money, but by ideas – the ideas that money buys.
+ - Fellow senators balked at punishing Senator Alfonse D’Amato of New York though he was caught in a series of transactions that earned him the label “Senator Sleaze.” D’Amato explained their reluctance as he defended his own behavior. “There but for the grace of God go most of my colleagues,” he said.
+ - The present struggle seems less about abolishing big government than about who gets to use it.
+ - In the deregulated realm of US banking and finance, crime does occasionally pay for its foul deeds, not in prison time but by making modest rebates to the victims.
+ - If US per capita income continues to grow at a rate of 1.5 percent a year, the country will have plenty of money to finance comfortable retirements and high-quality healthcare for all citizens, including those at the bottom of the wage ladder.
+ - People know elections, like television commercials, are not real.
+ - The scandalous question that hangs over modern government and excites perpetual outrage is about political money and what it buys. What exactly do these contributors get in return for the hundreds of thousands, even millions of dollars they funnel to the politicians?
+
+37 quotes

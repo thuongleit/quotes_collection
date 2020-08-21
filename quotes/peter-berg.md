@@ -1,0 +1,33 @@
+ - Be really picky with your hiring, and hire the absolute best people you possibly can. People are the most important component of almost every business, and attracting the best talent possible is going to make a huge difference.
+ - There’s a picture of the real Coach Gary Gaines in the book and he’s sitting in the locker room after a game, and he just looks so much like Billy Bob, that we went to him.
+ - I’ve had great success and I’ve had catastrophic failure. It’s really how you handle the rough stuff that defines you, I think.
+ - I’m pretty upfront about my love and admiration for the military. One of the perks of making movies is that you get to sort of follow your own passions, and I believe quite passionately that we don’t pay enough attention and respect to our veterans. Not just our wounded veterans, but all veterans.
+ - The first movie I literally ever made in my life was about two guys playing Stratego with each other. I had all my friends dressing up like the military characters in the game. So ‘Battleship’ is really my second board game turned movie!
+ - The big fun in ‘Battleship’ is that there are no current battleships in the Navy today. The battleships are about 1,000 feet long and they have huge guns. They were what you saw in WWII. The last battleship that was used was the Missouri, which is what the Japanese surrendered to.
+ - Every movie has its own unique series of challenges.
+ - I had great luck with Tim McGraw twice in ‘Friday Night Lights’ and ‘The Kingdom.’ I love finding off-beat casting and finding someone you know in one way and you reinvent them in another way. I like doing that as a director.
+ - I don’t like alien films where you don’t get to see the aliens.
+ - I believe that anything in this world is fair game for a creative exercise.
+ - I have a tradition of working with actors, over and over again. I’ve worked with Jason Bateman, over and over again. You get to know an actor, and you get a certain trust and a comfort, and you become really good friends, and you feel like you’ve got a short-hand.
+ - I did not want ‘Battleship’ to be perceived as an American war film. I wanted to do everything I could to make the film accessible to a global audience. It felt like bringing an alien component to the film would help take the American jingoism out of it.
+ - The way you set up for a sequel is by having a successful film. The focus is on making a successful film, and making a film that travels around the world, and that people enjoy and have fun with, and that people are able to escape with.
+ - People know I love to shoot action and that I’m not afraid of emotion.
+ - Michael Mann’s always been one of my heroes.
+ - I tend to not have to handle things that are probably gonna end up being irrelevant, that aren’t gonna have much to do with the film. I have probably a better understanding of really what does matter, when to pick my battles and when to kind of let them go.
+ - It’s always an interesting sort of adventures that gets someone into a movie.
+ - Working with composers often is a really frustrating experience because you speak a different language and, oftentimes, they take two or three jobs, at the same time. They’re difficult and pretentious and they’re tormented artists.
+ - I’m much more collaborative than I probably was when I was first starting, much more willing to say, “I don’t know the answer to that.” I have really talented people and let them do their jobs and not try to control everything as much as I did when I was starting. I was a bit more insecure.
+ - Hollywood is not stupid, contrary to popular belief; it’s really a lot of intelligent people trying to figure things out.
+ - What first caught my eye about Rihanna was an interview she did with Diane Sawyer after the Chris Brown incident, where she was very articulate, very poised, obviously a smart girl who talked about a very traumatic experience.
+ - I’m a huge fan of the Navy. My father was a Naval historian, and I’ve been studying Naval battles forever.
+ - You might make a lot of money, but it’s very hard to get out from under that rug. The more you can reinvent yourself, the better – and unfortunately TV is designed not to let you redesign yourself.
+ - I think musicians oftentimes have the right skill set to be good actors. And with Rihanna, I noticed her and knew of her obviously, and was very taken with her charisma and her confidence.
+ - I wanted to do a naval film and I flirted with different ideas, most of which ended up being too intense. So when the idea of ‘Battleship’ was first suggested, I was instantly drawn to the challenge – could I invent a movie around the idea of five ships fighting five ships?
+ - Truth is, we offered it to Tom Hanks, which pretty much every movie in America does, but Tom passed. Billy Bob said that Hanks recently called and said he’s voting for all of us for Oscars, he loved the film.
+ - One of the things that’s fascinating about making movies is a movie when it’s done and you start showing it to people, it reveals its impact, which is often times not what you thought.
+ - I think I’ve been fortunate enough to have a fairly long career and hopefully I’m at the middle of it now. And I think I’m starting to develop a certain amount of experience and a certain amount of wisdom about kind of what really matters and what doesn’t matter.
+ - What kind of town do we want in the future, and how are we going to plan on that?
+ - I somewhere along the way became fascinated with exploring characters who are willing to put themselves into violent situations, whether it’s football, hockey, boxing, being a cop, being a soldier. There’s not a lot of people who are willing to put themselves into those situations.
+ - You know to me, being a good actor, the most important quality is you’ve got to love to play, and to just be open to anything.
+
+31 quotes

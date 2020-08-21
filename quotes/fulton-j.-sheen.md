@@ -1,0 +1,181 @@
+ - Patience is power. Patience is not an absence of action; rather it is “timing” it waits on the right time to act, for the right principles and in the right way.
+ - Humility is dependence on God as pride is independence of Him. The humble soul is always the thankful soul.
+ - If you do not live what you believe, you will end up believing what you live.
+ - You must remember to love people and use things, rather than to love things and use people.
+ - Moral principles do not depend on a majority vote. Wrong is wrong, even if everybody is wrong. Right is right, even if nobody is right.
+ - Unless there is a Good Friday in your life, there can be no Easter Sunday.
+ - Believe the incredible and you can do the impossible.
+ - A teacher who cannot explain any abstract subject to a child does not himself thoroughly understand his subject; if he does not attempt to break down his knowledge to fit the child’s mind, he does not understand teaching.
+ - Obedience to Truth is obedience to Love.
+ - Fasting detaches you from this world. Prayer reattaches you to the next world.
+ - Evil may have its hour, but God will have His day.
+ - Never measure your generosity by what you give, but rather by what you have left.
+ - Each of us makes his own weather, determines the color of the skies in the emotional universe which he inhabits.
+ - Show me your hands. Do they have scars from giving? Show me your feet. Are they wounded in service? Show me your heart. Have you left a place for divine love?
+ - There are not one hundred people in the United States who hate The Catholic Church, but there are millions who hate what they wrongly perceive the Catholic Church to be.
+ - Freedom does not mean that right to do whatever we please, but rather to do as we ought. The right to do whatever we please reduces freedom to a physical power and forgets that freedom is a moral power.
+ - The power of the rosary is beyond description.
+ - Temptation is not a sin but playing with temptation invites sin.
+ - It is easy to find truth, though it is hard to face it, and harder still to follow it.
+ - A man without God is not like a cake without raisins; he is like a cake without the flour and milk; he lacks the essential ingredients.
+ - Jealousy is the tribute mediocrity pays to genius.
+ - Sometimes the only way the good Lord can get into some hearts is to break them.
+ - Love was meant to be also a sign, a symbol, a messenger, a telltale of the Divine. Love is a messenger from God saying that every human affection and every ecstasy of love are sparks from the great flame of love that is God.
+ - How could science be an enemy of religion when God commanded man to be a scientist the day He told him to rule the earth and subject it?
+ - The greatest love story of all time is contained in a tiny white Host.
+ - Civilization is always in danger when those who have never learned to obey are given the right to command.
+ - The reason we’re bored is because we don’t love anything.
+ - Before the sin, Satan assures us that it is of no consequence; after the sin, he persuades us that it is unforgivable.
+ - Unless souls are saved, nothing is saved; there can be no world peace without soul peace.
+ - Prayer begins by talking to God, but it ends by listening to Him. In the face of Absolute Truth, silence is the soul’s language.
+ - Other people are like a mirror which reflects back on us the kind of image we cast.
+ - All badness is spoiled goodness. A bad apple is a good apple that became rotten. Because evil has no capital of its own, it is a parasite that feeds on goodness.
+ - We can think of Lent as a time to eradicate evil or cultivate virtue, a time to pull up weeds or to plant good seeds. Which is better is clear, for the Christian ideal is always positive rather than negative.
+ - The history of civilization could actually be written in terms of the level of its women.
+ - If you do not worship God, you worship something, and nine times out of ten it will be yourself.
+ - All worry is atheism, because it is a want of trust in God.
+ - A Catholic may sin and sin as badly as anyone else, but no genuine Catholic ever denies he is a sinner. A Catholic wants his sins forgiven – not excused or sublimated.
+ - Help someone in distress and you lighten your own burden; the very joy of alleviating the sorrow of another is the lessening of one’s own.
+ - The egocentric is always frustrated, simply because the condition of self-perfection is self-surrender. There must be a willingness to die to the lower part of self, before there can be a birth to the nobler.
+ - God does not love us because we are valuable. We are valuable because God loves us.
+ - The Soviet Union is like the Cross without Christ, while American culture is like Christ without the Cross.
+ - Love is a mutual self-giving which ends in self-recovery.
+ - The denial of the right of ownership to a man is a denial of his basic freedom: freedom without property is always incomplete. To be “secured” – but with no accompanying responsibility – is to be the slave of whatever group provides the security.
+ - Too many people get credit for being good, when they are only being passive. They are too often praised for being broadminded when they are so broadminded they can never make up their minds about anything.
+ - The difference between the love of a man and the love of a woman is that a man will always give reasons for loving, but a woman gives no reasons for loving.
+ - As long as the decent people refuse to believe that morality must manifest itself in every sphere of human activity, including the political, they will not meet the challenge of Marxism.
+ - If you do not live out your faith enthusiastically, maybe you don’t have any faith.
+ - There is no word more “dangerous” than liberalism, because to oppose it is the new “unforgivable sin.”
+ - When we die to something, something comes alive within us. If we die to self, charity comes alive; if we die to pride, service comes alive; if we die to lust, reverence for personality comes alive; if we die to anger, love comes alive.
+ - To see a priest making his meditation before Mass does more for an altar boy’s vocation than a thousand pieces of inspirational literature.
+ - In vocal prayer we go to God on foot. In meditation we go to God on horseback. In contemplation we go to God in a jet.
+ - Never forget that there are only two philosophies to rule your life: the one of the cross, which starts with the fast and ends with the feast. The other of Satan, which starts with the feast and ends with the headache.
+ - We become like that which we love. If we love what is base, we become base; but if we love what is noble, we become noble.
+ - Leisure is a form of silence, not noiselessness. It is the silence of contemplation such as occurs when we let our minds rest on a rosebud, a child at play, a Divine mystery, or a waterfall.
+ - I wonder maybe if our Lord does not suffer more from our indifference, than He did from the crucifixion.
+ - To create the world cost God nothing; to save it from sin cost His Life Blood.
+ - If you do not worship God, you worship something, and nine times out of ten it will be yourself. You have a duty to worship God, not because He will be imperfect and unhappy if you do not, but because you will be imperfect and unhappy.
+ - We must go out to Pure Life, Pure Truth, Pure Love, and that is the definition of God. He is the ultimate goal of life; from Him we came, and in Him alone do we find our peace.
+ - Criticism of others is thus an oblique form of self-commendation. We think we make the picture hang straight on our wall by telling our neighbors that all his pictures are crooked.
+ - Freedom that ignores the transcendent difference between good and evil ends in the denial of freedom itself.
+ - There are angels near you to guide you and protect you, if you would but invoke them. It is not later than we think, it is a bigger world than we think.
+ - Nature gives man corn but he must grind it; God gives man a will but he must make the right choices.
+ - The simple shepherds heard the voice of an angel and found their Lamb; the wise men saw the light of a star and found their Wisdom.
+ - Books are the most wonderful friends in the world. When you meet them and pick them up, they are always ready to give you a few ideas. When you put them down, they never get mad; when you take them up again, they seem to enrich you all the more.
+ - Pride is an admission of weakness; it secretly fears all competition and dreads all rivals.
+ - Scepticism is never certain of itself, being less a firm intellectual position than a pose to justify bad behavior.
+ - It’s impossible to lose your footing when you’re on your knees.
+ - Broadmindedness, when it means indifference to right and wrong, eventually ends in a hatred of what is right.
+ - No man discovers anything big if he does not make himself small.
+ - All love craves unity. As the highest peak of love in the human order is the unity of husband and wife in the flesh, so the highest unity in the Divine order is the unity of the soul and Christ in communion.
+ - Science is not wisdom.
+ - Much suffering in hospitals is wasted.
+ - A woman never tells you why she loves; she just tells you how she loves.
+ - Nothing ever happens in the world that does not happen first inside human hearts.
+ - The danger today is in believing there are no sick people, there is only a sick society.
+ - The forgiveness of God is one thing, but the proof that we want that forgiveness is the energy we expend to make amends for the wrong.
+ - Atheism, nine times out of ten, is born from the womb of a bad conscience. Disbelief is born of sin, not of reason.
+ - Once you have surrendered yourself, you make yourself receptive. In receiving from God, you are perfected and completed.
+ - It takes three to make love, not two: you, your spouse, and God. Without God people only succeed in bringing out the worst in one another. Lovers who have nothing else to do but love each other soon find there is nothing else. Without a central loyalty life is unfinished.
+ - A smile across the aisle of a bus in the morning could save a suicide later in the day.
+ - Prayer is helplessness casting itself on Power, infirmity leaning on Strength, misery reaching to Mercy, and a prisoner clamoring for Relief.
+ - Judge the Catholic Church not by those who barely live by its spirit, but by the example of those who live closest to it.
+ - The proud man counts his newspaper clippings, the humble man his blessings.
+ - When a child is given to his parents, a crown is made for that child in Heaven, and woe to the parents who raise a child without consciousness of that eternal crown!
+ - In every friendship hearts grow and entwine themselves together, so that the two hearts seem to make only one heart with only a common thought. That is why separation is so painful; it is not so much two hearts separating, but one being torn asunder.
+ - The way not to lead a monotonous life is to live for others.
+ - Too many people get credit for being good, when they are only being passive.
+ - Communism is the final logic of the dehumanization of man. The industrial civilization of the Western world has no intent to destroy man’s freedom or to deny his personality. But Communism does. Denying God, it reduces man to a robot.
+ - The Christmas gift of peace was the uncoiling of the links of a triple chain that first unites a person with God, then with himself, then with his neighbor.
+ - Our personal dispositions are as windowpanes through which we see the world either as rosy or dull. The way we color the glasses we wear is the way the world seems to us.
+ - Why is it that any time we speak of temptation we always speak of temptation as something that inclines us to wrong. We have more temptations to become good than we do to become bad.
+ - Life is like a cash register, in that every account, every thought, every deed, like every sale, is registered and recorded.
+ - A man may stand for the justice of God, but a woman stands for His Mercy.
+ - The Rosary is the best therapy for these distraught, unhappy, fearful, and frustrated souls, precisely because it involves the simultaneous use of three powers: the physical, the vocal, and the spiritual, and in that order.
+ - Far better it is for you to say: “I am a sinner,” than to say: “I have no need of religion.” The empty can be filled, but the self-intoxicated have no room for God.
+ - If I were not a Catholic, and were looking for the true Church in the world today, I would look for the one Church which did not get along well with the world; in other words, I would look for the Church which the world hated.
+ - Communism is the final logic of the dehumanization of man.
+ - It was to a virgin woman that the birth of the Son of God was announced. It was to a fallen woman that his resurrection was announced.
+ - Wars come from egotism and selfishness. Every macrocosmic or world war has its origin in microcosmic wars going on inside millions and millions of individuals.
+ - Counsel involving right and wrong should never be sought from a man who does not say his prayers.
+ - Communism is an aggressive religion of the species.
+ - Every child should have an occasional pat on the back as long as it is applied low enough and hard enough.
+ - Modern man has so long preached a doctrine of false tolerance; he has so long believed that right and wrong were only differences in a point of view, that now when evil works itself out in practice he is paralyzed to do anything against it.
+ - There are 200 million poor in the world who would gladly take the vow of poverty if they could eat, dress and have a home like I do.
+ - Most of us do not like to look inside ourselves for the same reason we don’t like to open a letter that has bad news.
+ - Man wants three things; life, knowledge, and love.
+ - A woman gets angry when a man denies his faults, because she knew them all along. His lying mocks her affection; it is the deceit that angers her more than the faults.
+ - Do mathematics have a relation to reality or are they only a mathematical symbol?
+ - The term science means something quite different for our generation than it did not so many generations ago.
+ - Sex has become one of the most discussed subjects of modern times. The Victorians pretended it did not exist; the moderns pretend nothing else exists.
+ - Knowing belongs to man’s intellect or reason; loving belongs to his will. The object of the intellect is truth; the object of the will is goodness or love.
+ - No man hates God without first hating himself.
+ - Head knowledge is worthless, unless accompanied by submission of the will and right action.
+ - Love burdens itself with the wants and woes and losses and even the wrongs of others.
+ - You have a chance to move in far better society than the Joneses. Why worry about keeping up with the Joneses? Keep up with the Angels and you’ll be far wiser and happier.
+ - Satan always tempts the pure – the others are already his.
+ - If we wish to have the light, we must keep the sun; if we wish to keep our forests we must keep our trees; if we wish to keep our perfumes, we must keep our flowers- and if we wish to keep our rights, then we must keep our God.
+ - If you wish to convert anyone to the fullness of the knowledge of Our Lord and of His Mystical Body, then teach him the Rosary. One of two things will happen. Either he will stop saying the Rosary – or he will get the gift of faith.
+ - Any book which inspires us to lead a better life is a good book.
+ - Satan stations more devils on monastery walls than in the dens of iniquity, for the latter offer no resistance.
+ - The Rosary is the book of the blind.
+ - Our generosity is measured not by what we give but by what we keep.
+ - Sin is a disproportionate seriousness.
+ - The old liberal rebelled against taxation without responsibility, the new liberal wants the taxation as a handout without responsibility.
+ - It is not particularly difficult to find thousands who will spend two or three hours a day in exercising, but if you ask them to bend their knees to God in five minutes of prayer they protest that it is too long.
+ - Many souls fail to find God because they want a religion which will remake society without remaking themselves.
+ - Let those who think that the Church pays too much attention to Mary give heed to the fact that Our Blessed Lord Himself gave ten times as much of His life to her as He gave to His Apostles.
+ - When you are getting kicked from the rear it means you are in front.
+ - Hearing is the motion of molecules; sound is a wave in the atmosphere; solidity is the characteristic of spatial juxtaposition of atoms; smell is something given off by a body, rather than something belonging to a body.
+ - Confiscation in any form is an unhealthy solution for a real disease. It amounts to telling men that because they are economically crippled, they must abandon all efforts to get well and allow the state to provide them with free wheelchairs.
+ - Education lays hold of what is best in a person, but character lays hold of what is worse. It takes hold of a failing and by very skillful manipulation and training turns it into a perfection.
+ - Grace does not work like a penny in a slot machine. Grace will move you only when you want it to move you, and only when you let it move you. The supernatural order supposes the freedom of the natural order, but it does not destroy it.
+ - Our Lord did not ask us to give up the things of earth, but to exchange them for better things.
+ - There are no planes in the spiritual life; we are either going uphill or coming down.
+ - Skeptics always want miracles such as stepping down from the Cross, but never the greater miracle of forgiveness.
+ - Most commit the same mistake with God that they do with their friends: they do all the talking.
+ - It is a long established principle of the Church never to completely drop from her public worship any ceremony, object or prayer which once occupied a place in that worship.
+ - The very freedom which the sinner supposedly exercises in his self-indulgence is only another proof that he is ruled by the tyrant.
+ - The principle of democracy is a recognition of the sovereign, inalienable rights of man as a gift from God, the Source of law.
+ - One function of the angels is illumination, and the other function is that of being a guardian.
+ - To love what is below the human is degradation; to love what is human for the sake of the human is mediocrity; to love the human for the sake of the Divine is enriching; to love the Divine for its own sake is sanctity.
+ - A person is great, not by the ferocity of his hatred of evil, but by the intensity of his love for God.
+ - Penance does not require hair shirts today; our neighbors are hair shirts.
+ - Liberty is no heirloom. It requires the daily bread of self-denial, the salt of law and, above all, the backbone of acknowledging responsibility for our deeds.
+ - The mark of the Christian is the willingness to look for the Divine in the flesh of a babe in a crib, the continuing Christ under the appearance of bread on an altar, and a meditation and a prayer on a string of beads.
+ - Being is the soul of every concept, of every judgment and of every reasoning.
+ - Whenever man attempts to do what he knows to be the Master’s will, a power will be given him equal to the duty.
+ - All love craves unity.
+ - Men work harder and more readily when they labor on that which is their own.
+ - Facts themselves do not give knowledge.
+ - Man is incurably curious.
+ - One becomes more interested in a job of work after the first impulse to drop it has been overcome.
+ - It is the basic principle of Marxism that any attempt to reconcile capital and labor so that they both co-operate in peace and prosperity is a betrayal of communism.
+ - The higher the love, the more demands will be made on us to conform to that ideal.
+ - There is more grace per square foot in San Francisco than any place on earth.
+ - Some will not look on suffering because it creates responsibility.
+ - The only time laughter is wicked is when it is turned against Him Who gave it.
+ - We are all born with the power of speech, but we need grammar. Conscience, too, needs Revelation.
+ - Each of us comes into life with fists closed, set for aggressiveness and acquisition. But when we abandon life our hands are open; there is nothing on earth that we need, nothing the soul can take with it.
+ - By the mere fact that we do not go forward, we go backward.
+ - Our happiest times are those in which we forget ourselves, usually in being kind to someone else. That tiny moment of self-abdication is an act of true humility: the man who loses himself finds himself and finds his happiness.
+ - The only way to win audiences is to tell people about the life and death of Christ. Every other approach is a waste.
+ - When the record of any human life is set down, there are three pairs of eyes who see it in a different light. There is the life as I see it. as others see it, and as God sees it.
+ - Souls generally do not fall away from Christ because of the Creed; they first have difficulty with the Commandments.
+ - The mind has three operations: the formation of ideas, judgements and reasoning.
+ - Health, power, riches, possessions and honor can be snatched from you, but your will is irrevocably your own.
+ - God could not keep, as it were, the secret of His love, and the telling of it was creation.
+ - Remember that every science is based upon an abstraction. An abstraction is taking a point of view or looking at things under a certain aspect or from a particular angle.
+ - If we had intellectual vigour enough to ascend from effects to causes, we would explain political, economical and social phenomena less by credit sheets, balance of trade and reparations than by our attitude towards God.
+ - Why are those who are notoriously undisciplined and unmoral also most contemptuous of religion and morality? They are trying to solace their own unhappy lives by pulling the happy down to their own abysmal depths.
+ - Once a man ceases to be of service to his neighbor, he begins to be a burden to him.
+ - All our anxieties relate to time.
+ - I feel it is time that I also pay tribute to my four writers, Matthew, Mark, Luke and John.
+ - Nothing is more destined to create deep-seated anxieties in people than the false assumption that life should be free from anxieties.
+ - Baloney is flattery laid on so thick it cannot be true, and blarney is flattery so thin we love it.
+ - If there is continuity in the universe, it is fitting that there should be intelligent beings without bodies which are called angels.
+ - Every man rejoices twice when he has a partner in his joy. He who shares tears with us wipes them away. He divides them in two, and he who laughs with us makes the joy double.
+ - The science of a religious man must be scientific; the religion of a scientific man must be religious.
+ - When the will loves anything that is below it in dignity, it degrades itself.
+
+179 quotes

@@ -1,0 +1,37 @@
+ - Go Hard or Go Home, but never go home hard!
+ - Technology and social media have brought power back to the people.
+ - Hypocrisy is the scarlet letter in politics.
+ - My brother is one of my true heroes. Steady and sober where I am impulsive and emotional.
+ - Limited government, low taxes, controlled spending and debt, and a restrained regulatory environment make Texas work.
+ - A messy participatory process is representative democracy at its best.
+ - As history has repeatedly proven, one trade tariff begets another, then another – until you’ve got a full-blown trade war. No one ever wins, and consumers always get screwed.
+ - Marketers know – no matter how deep the emotional connection or brand loyalty – when a product does not perform, rational thought overtakes emotion, and most consumers make a new choice.
+ - Defending birthright citizenship is about being on the right side of liberty. The 14th Amendment is a great legacy of the Republican Party.
+ - As a husband and as a father of girls, I cannot imagine any woman in my family making the sacrifice of sanity required to run for office. The limited reward for public service cannot blunt the cost.
+ - Reasonable people can reasonably disagree on policy.
+ - As in nature, politics abhors a vacuum. Without a strong voice for more moderate leadership, the Tea Party is filling that vacuum.
+ - It’s just madness. First email. Then instant message. Then MySpace. Then Facebook. Then LinkedIn. Then Twitter. It’s not enough anymore to ‘Just do it.’ Now we have to tell everyone we are doing it, when we are doing it, where we are doing it and why we are doing it.
+ - Mention the name George W. Bush in mixed company, and you’re likely to spark a lot of debate and emotion – hot and cold, good and bad. Not a lot of neutral reaction. He was elected in the most controversial contest in American electoral history and governed during one of the most tumultuous decades.
+ - If we cannot come together to pause, to respect our dead and the heroic lives of meaning they led, then ours is truly a civilization lost.
+ - America’s commitment to religious freedom and tolerance should not be conditional.
+ - Debates require a lot of hard work and preparation. If you try to wing it, it shows.
+ - To pull off successful attacks in debates, you have to execute with nuance and subtlety. It has to be artful.
+ - I prefer for government to err toward less regulation, lower taxation, and free markets. And I’m a radical free trader.
+ - Presidents should do whatever possible and practical to encourage an environment of cooperation and bipartisanship. And they should maintain a certain level of decorum, diplomacy and decency. But, at the end of the day, presidents get elected to enact change.
+ - I’ve spent the better part of my career in politics and public policy working on and fighting for education reforms.
+ - A competition of the best ideas – that should be what Congress is about.
+ - Democrats love to criticize Republicans on guns, but they are generally mute when it comes to taking on Hollywood or the gaming industry.
+ - America glories in its tradition of the self-made individual. Political candidates compete to be a friend to entrepreneurs, and policymakers, imagining the next Microsoft or Google, design laws to back the innovator in the garage.
+ - America as we know it will end unless we end Medicare as we know it.
+ - Negativity drove me out of politics in the mid-Nineties.
+ - Mitt Romney is a businessman, a turnaround artist, a CEO. That is who he is. The former governor has experience in the public and private sector.
+ - A Rick Santorum presidency would be very, very dangerous for America.
+ - I think the press has an interest in communicating to its viewers or readers, and their viewers or readers drive profit for those news organizations, so I think those news organizations have a certain bias toward their own readers. Yeah, I think they are a special interest. Of course they are.
+ - It’s much more powerful and compelling to create a positive vision than it is to tear somebody down.
+ - Contrary to conventional military and game theory, the most effective offense is sometimes a direct attack against your political opponent’s greatest strength – not his weaknesses – to place him immediately on the defensive.
+ - At some point he has to show that he has a vision of a better way. He can’t just say ‘The future is bleak, follow me.’ Because no one will.
+ - As a Republican, I never expected to be working with Hillary Clinton.
+ - Democracy is but an experiment in the long history of the world.
+ - Elections are about the future. And the GOP will not win a campaign focused on the past.
+
+35 quotes

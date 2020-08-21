@@ -1,0 +1,22 @@
+ - Nothing limits intelligence more than ignorance; nothing fosters ignorance more than one’s own opinions; nothing strengthens opinions more than refusing to look at reality.
+ - As vocabulary is reduced, so are the number of feelings you can express, the number of events you can describe, the number of the things you can identify! Not only understanding is limited, but also experience. Man grows by language. Whenever he limits language he retrogresses!
+ - To me, fantasy has always been the genre of escape, science fiction the genre of ideas. So if you can escape and have a little idea as well, maybe you have some kind of a cross-breed between the two.
+ - I’m not sure a world run by women would be any better. They’re human beings!
+ - The sidesaddle was designed to protect a maiden’s virginity, while risking the maiden’s neck. Rather much for rather little, I thought.
+ - There are writers who say they have no social responsibility except to write a good book, but that doesn’t satisfy me.
+ - All around the Mediterranean you’ll find cultures that believe men can’t control themselves and shouldn’t have to try.
+ - I will raise up prophets to make conflicting pronouncements that inevitably will be garbled in transcription, resulting in mutually exclusive definitions of orthodoxy from which the open-minded will flee in dismay.
+ - Creation has the truth written all over it – the age of the universe, the history of the world – but nine-tenths of mankind either don’t know it or think it’s a sham, because it isn’t what their book or their prophet says, and it isn’t cozy or manipulable enough.
+ - Boys play with death as though it were a game, cutting their teeth on daggers.
+ - The sooner we can separate salvageable skeptics from self-righteous absolutists, the sooner we can move along.
+ - It may be important to write a book that doesn’t come up to what I would like to have rather than to write no book at all.
+ - Mankind accepts good fortune as his due, but when bad occurs, he thinks it was aimed at him, done to him, a hex, a curse, a punishment by his deity for some transgression, as though his god were a petty storekeeper, counting up the day’s receipts.
+ - Science fiction still is an idea genre.
+ - The only people who have the long view are some scientists and some science fiction writers.
+ - Whoever declares another heretic is himself a devil. Whoever places a relic or artifact above justice, kindness, mercy, or truth is himself a devil and the thing elevated is a work of evil magic.
+ - The practice of diplomacy, I have found, is sometimes like eating soup with a fork: much activity yielding little nourishment.
+ - What do I have to say to the universe? A soul ought to have something to say to the universe if it’s going to be immortal.
+ - The expression of divinity is in variety.
+ - Men like to think well of themselves, and poets help them do it.
+
+20 quotes

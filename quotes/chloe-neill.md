@@ -1,0 +1,26 @@
+ - The best revenge is a life well lived.
+ - You are a Cadogan vampire, by blood and bone. You have fought for this House, and you are mine to protect. My Sentinel, my Novitiate. As long as I am here to do it, I will protect you. As long as this House exists, you will have a home here. -Ethan.
+ - I have been given a third chance at life, even if the circumstances are somewhat disconcerting. You are mine, and we both know it.
+ - Consider the possibility that I made a mistake I regret-and that I’ll continue to regret that mistake and try to convince you to give me another chance until the earth stops turning.
+ - Avoidance helped settle the emotions. Considerably.
+ - And maybe leprechauns will poop rainbows on your pillow.
+ - You are caught, Sentinel.? His voice was rough.
+ - He turned on his heel and began down the hall, then called back, “And we’ll need to chat about your running off campus and into the arms of shifters without so much as a telephone call.” Sometimes, he was so predictable.
+ - Asking about someone’s animal is the shifter equivalent of pulling a ruler and asking a guy to whip it out.
+ - I wouldn’t say I was forward, but I made a move when I was interested.
+ - Where was a boom box when you needed one?
+ - Awkwardness, thy name is vampire.
+ - No one said love was easy, Sentinel. -Ethan.
+ - Sometimes life is about being sad and doing things anyway. Sometimes it’s about being hurt and doing things anyway. The point isn’t perfection. The point is doing it anyway.
+ - She is mine. -Ethan.
+ - Words have power? That sounds like you’re into some Harry Potter juju.
+ - Now that, my friends, is what we vampires call a good exit.
+ - You can tell a lot by the size of a mans library.
+ - You can run. You can keep running to the ends of the earth. But I won’t be far behind you.
+ - Say what you had to about Ethan, but the boy filled a library very, very well. Okay – arguably, that wasn’t the only thing he filled out well, but let’s stay on track.
+ - My job is to ensure the sanctity of this House. Ensuring the sanity of its Master seemed like a good start.
+ - I’d prefer to see both knees on the ground. I mean, if you’re going to grovel, be the best groveler you can, right?
+ - There are those among us who have erred, deeply and significantly. Who have wounded the world and broken themselves. The worst of them lose themselves in their errors. The best of them crawl back, one foot at a time, and seek to amend their breaches. That is the way of the brave.
+ - Be stubborn if you wish to, if you need to, but we know how this will end.
+
+24 quotes

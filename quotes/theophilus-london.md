@@ -1,0 +1,97 @@
+ - Do not fear the digital world, it will not kill us all.
+ - I believe your atmosphere and your surroundings create a mind state for you.
+ - I love to hear a cool ambient sound at runway shows. It creates a good energy.
+ - I connect to SpongeBob in a way; like, thats the homie. He can chill on the corner with me.
+ - The Internet is a very powerful tool; unfortunately its starting to get a little saturated.
+ - Ive made sure to always update my web properties constantly – Twitter, Facebook, Tumblr, my Hypebeast blog making sure I divided content across all of them to keep each outlet fresh to keep people coming back.
+ - I need to travel, of course, with my laptop, so I can do my business on the road.
+ - Im a big fan of Caribbean food, Spanish food, Dominican food – like rice and beans. Hot sauce just adds a different layer of boom to the food, you feel me?
+ - Shopping at any level is a bit of therapy for my medulla oblongata.
+ - I like to go to the airport looking stylish – you never know who youll run into. Sometimes I have fans at the airports. I never want to be bummy looking.
+ - A lot of young kids like myself use Instagram because it has swag – its more personal, and your friends generate it.
+ - My mind moves very fast. I go through a lot of moods and emotions.
+ - I find it soothing, the thought of a movie theater.
+ - I admire traveling; I appreciate it a lot.
+ - You should treat your body like a canvas.
+ - I like connecting with people through technology.
+ - Some people thought Theophilus was a fake name. Whatever.
+ - You want everything to go right. You’ve just got to let yourself be free and have good energy.
+ - Your voice is like a very serious instrument that you have to tame if you want to be an amazing singer – Marvin Gaye or Michael Jackson.
+ - When youre a kid, youre only exposed to whats going on in your mind. The mind is like a bigger-than-outer-space type of thing.
+ - In high school, I always dressed to impress the girls.
+ - I can’t wait until I touch the stage, I’m going to catch the spirit and lose my mind.
+ - I’m pretty brand-less. If I wear a brand, then you can’t tell. I’m not about the logos.
+ - The second album is the hardest to write. Its nothing like the first album.
+ - While my cousins were gang-banging, I was trying to learn what the Internet was about.
+ - I listen to a lot of really old western and country music. Theres a lot of cool stuff in there all the heartbreak of the country darkness.
+ - I wore my same look for six years. My hat and glasses – people recognize me now.
+ - I always tell myself, When Im working on my record, I wont cut my hair. I get so focused on the music that Im not really going to the hair shop and getting cut up. I just have one thing to focus on.
+ - Billie Jean was a negative dance song, and that was one of the best dance songs ever.
+ - The first time I really listened to an album and thought, This album is mine, was Kanyes Late Registration.
+ - When I want to choose to work with someone, you know, I definitely have to do some research on their background and how they were raised as people.
+ - I keep a creative group around me.
+ - Mixtapes are very personal, and they describe who you are better than an album sometimes.
+ - I love fashion week. It has great energy and vibe.
+ - My signature style is super uniformed. I like black pants, black blazers, and boots.
+ - I focus a lot on my voice because I want it to be an instrument as well. I want my voice to add color.
+ - I started getting emails from Anna Wintour inviting me to her dinners. It was just surreal.
+ - As snap-backs became more popular, I started to search and expand my hat game.
+ - New York feels vibrant It feels electric to walk the streets at night.
+ - I want to change the color of Starbucks from green to red. Whose job was it to say, This is going to be green? I want that to be my job.
+ - Growing up as a city kid is a joyous time!
+ - I went to Texas a few times for gigs and adopted the cowboy look. Every man, at some point in his life, goes through a cowboy stage – everyone! Well, at least everyone that I look up to!
+ - What I sell is the higher knowledge of knowing whats next and not following the trend of whats now.
+ - Becoming a walking, dancing, fire-breathing lifestyle dragon is not something you can pursue overnight! It takes years of studying, living, and understanding the modern culture!
+ - I never go black tie. I never grew up wearing ties or bow ties or anything.
+ - I didnt grow up drawing runway models and deciding what they should wear.
+ - The Gap has always been an iconic, go-to brand that reminds me of my childhood.
+ - Im gonna walk super, super slow to when I turn 40 or something. To me, walking and floating slow represents how wealthy you are!
+ - I love to see the rarest movies, the most talked-about movies and documentaries. I read all the reviews and compare them to see if its worth going! I have a secret movie critic blog I have shown no one or promoted, and I intend to keep it that way.
+ - I like to wear a lot of one-tone color outfits – same color trousers, same color shirt.
+ - Some people have style without even knowing it!
+ - My favorite brand I have ever artistically collaborated, entertained, and supported over the years is the huge house that Coco Chanel built: Chanel.
+ - I admire natural, untouched beauty.
+ - I wanted to only collab with women for Lovers Holiday.
+ - I am international. When I put out my second mixtape, we did four tours and a tour overseas.
+ - Karl Lagerfeld is the hardest-working man in showbiz!
+ - Brooklyn for twenty years, Ive learned that there is always someone better than you at what you do.
+ - Gold looks good on my skin, and gold looks good on black people, I think.
+ - Whatever I receive from a higher power gets me pumped, which gets the crowd pumped, which gets me more pumped, and then we’re just pumped up.
+ - When youre a new person and a new idea, you get invited to all these different things, and everybody wants a piece of you. And you want to be polite and say yes to everything, but it gets dangerous.
+ - I collect a lot of clothes when I travel around the world.
+ - I like Jeremy Scott, and he has some really dope sneakers.
+ - You gotta learn your body, how clothes fit on you.
+ - I started performing music about the age of 16. I lived in Brooklyn, New York, and this thing called the Flatbush Fair comes once a year. That was my first time on stage.
+ - It leaves a good legacy to have five records.
+ - Thirty-five percent of all my dates were at the movies from 2013 to 2014.
+ - I like vintage shopping, but I also like to mix in high-end.
+ - I take references from the past and flip them.
+ - Image plays a huge part in my music and in my lifestyle.
+ - Dressing up, for me, is looking like an idiot.
+ - I own over ninety-five different hats and, over the years, have lost or given away 120 hats. You gain to lose you lose to gain.
+ - I always imagined how cool it would be to be the face of a Gap campaign!
+ - Shout-out to my dad – he influenced my style when I was 17.
+ - I like to keep a uniform – wear a blazer, try to keep the same colour pants; very tailored, very fitted but still edgy.
+ - I might want to open a hotel and design all the rooms. Or maybe a museum that lets me curate all the events.
+ - I went to Brazil in 2010 and pretty much did songs about that trip. I was there just to hang out, chill with the people, and feel the vibe. It was great – tons of great women, great skin, good beaches. Cant complain; the food is great.
+ - I went to school for marketing for one year before I dropped out of college to make music.
+ - Believe in yourself and believe in magic.
+ - Europe were kind of the first ones to embrace my music; the kids from around the way would come out to my shows and really enjoy it.
+ - Ill buy an old jacket and attach gold buttons and a couple royal patches. Or Ill find an old busted sweatshirt, tear out the zipper, and replace it with a $700 zipper. I make things my own.
+ - Go to American Apparel; they have all of the colors of socks.
+ - On my early trips to London and Paris, in 2009, I started to shift to more wide-brimmed felt hats similar to Borsalinos and Stetsons.
+ - When I was younger, I wasnt thinking about fit. Clothes are measured just for me now. I know thats not what the average person does, but Ive gotten smart about what fits my body the right way and what makes me feel comfortable.
+ - I want to produce the best popular music I can.
+ - I feel I have so much more to deliver than music.
+ - I think its more interesting to play a place where no one really knows you, but I think touring is also great.
+ - Im a big fan of pop music – I think Marvin Gaye was pop music; things like that.
+ - A lot of my favorite artists are fashion icons.
+ - Dior jeans are one of my favorites.
+ - I’m not really good at skiing or snowboarding, or swimming, per se.
+ - I remember in the fifth grade my dad would take me to Manhattan to shop for clothes.
+ - Ive got to get my real skills up; like, I got to get my skills up, cause in case of a crazy catastrophe, I might have to learn how to swim.
+ - I am more into guys fashion, but Im inspired by womens fashion in a weird way.
+ - The most time I spent home in 2009 was about a month.
+ - To me, my style is comfortable.
+
+95 quotes

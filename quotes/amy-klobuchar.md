@@ -1,0 +1,28 @@
+ - Women tend to be problem solvers. We work together.
+ - I am a mother, so I’m used to balancing things.
+ - Families fighting childhood cancer should not have to worry about where they’re going to get the next dose of the drug they need to save their child’s life.
+ - I understand now why Hillary Clinton always wore navy blue pantsuits. Remember, for four years? If you have one or two themes, then you have the same shoes, the same bag. Otherwise, it’s a nightmare.
+ - My husband is the first man to consistently be involved in the Senate Spouses group.
+ - In my job you can’t just put your head in the sand and throw partisan bombshells. You have to get results.
+ - People who live in seven houses shouldn’t throw stones.
+ - When it’s for the good of your state, you put partisan differences aside.
+ - I believe we can incentivize more affordable health care in general by better regulating insurance and creating meaningful competition for health care services.
+ - I remember when I was prosecutor we had truancy and curfew issues and we made a refrigerator magnet, and that was hot with parents. They loved putting it up on the wall and saying, you know, if you don’t follow these rules, you could get prosecuted.
+ - Who would know but ten years ago that kids would be texting each other all the time, that that would be one of their main forms of communication.
+ - So many times, these kids know more about the technology than their parents. And so many times, we’re putting kids in very adult situations and expecting them to behave like they’re 40 years old. Well, that’s just not going to happen.
+ - Well, I think the way to go is civil unions. But I do think when you talk about the Republican Party and the debates that are going on within the Republican Party on a number of issues, what I’m hoping is that they will get to a point where they will work with us on moving forward with this economy.
+ - Every so often you might have an outburst in the gallery. That’s one of the most exciting things that happen because then you can say, ‘Unless there’s order we will call the Sergeant at Arms.’ And that sounds really scary.
+ - I believe that women make some of the best leaders.
+ - Before we even consider expanding Medicare, or another program based on its rates, we must reform our Medicare payment system so that it rewards value, not volume, and doesn’t disadvantage states like Minnesota that provide high-quality care in an efficient way.
+ - Finally, a good prosecutor knows that her job is to enforce the law without fear or favor. Likewise, a Supreme Court Justice must interpret the laws without fear or favor.
+ - We’re actually making stuff in America now. We’re exporting stuff. We’re inventing things.
+ - To criminally prosecute a child not old enough to go to the school prom makes no sense, you get much more cooperation from a victim if you give them a safe harbor, a place to live, job training, an education.
+ - We have to do a better job of putting some rules on the insurance companies.
+ - I guess my claim to fame is I’ve now gaveled Ted Kennedy to order twice.
+ - If we’re going to have standards in schools, let’s be honest and have standards.
+ - I’m looking for a Justice who appreciates the awesome responsibility that she will be given, if confirmed. A Justice who understands the gravity of the office and who respects the very different roles that the Constitution provides for each of the three branches of government.
+ - My dad was a sports writer when I was younger and then he became just a general columnist. But I grew up with him literally getting into brawls with football coaches.
+ - I think you’re going to see a number of Democrats that do want to see us grapple with spending.
+ - I would prefer a public option that would be a competitive option that would allow people to buy into a Federal Employee Health Benefits Program, which is a series of private plans.
+
+26 quotes

@@ -1,0 +1,231 @@
+ - A small daily task, if it be really daily, will beat the labours of a spasmodic Hercules.
+ - There is no royal road to learning; no short cut to the acquirement of any art.
+ - Nobody holds a good opinion of a man who holds a low opinion of himself.
+ - Above all else, never think you’re not good enough.
+ - One can only pour out of a jug that which is in it.
+ - It is very difficult to say nowadays where the suburbs of London come to an end and where the country begins. The railways, instead of enabling Londoners to live in the country have turned the countryside into a city.
+ - Ride at any fence hard enough, and the chances are you’ll get over. The harder you ride the heavier the fall, if you get a fall; but the greater the chance of your getting over.
+ - The man who worships mere wealth is a snob.
+ - The sober devil can hide his cloven hoof; but when the devil drinks he loses his cunning and grows honest.
+ - Words spoken cannot be recalled, and many a man and many a woman who has spoken a word at once regretted, are far too proud to express that regret.
+ - The habit of reading is the only enjoyment in which there is no alloy; it lasts when all other pleasures fade.
+ - Don’t let love interfere with your appetite. It never does with mine.
+ - After money in the bank, a grudge is the next best thing.
+ - Dance with a girl three times, and if you like the light of her eye and the tone of voice with which she, breathless, answers your little questions about horseflesh and music about affairs masculine and feminine, then take the leap in the dark.
+ - But who ever yet was offered a secret and declined it?
+ - Barchester Towers has become one of those novels which do not die quite at once, which live and are read for perhaps a quarter of a century.
+ - No man thinks there is much ado about nothing when the ado is about himself.
+ - Never think that you’re not good enough yourself. A man should never think that. People will take you very much at your own reckoning.
+ - Romance is very pretty in novels, but the romance of a life is always a melancholy matter. They are most happy who have no story to tell.
+ - The habit of writing clearly soon comes to the writer who is a severe critic to himself.
+ - When the ivy has found its tower, when the delicate creeper has found its strong wall, we know how the parasite plants grow and prosper.
+ - Since woman’s rights have come up a young woman is better able to fight her own battle.
+ - I run great risk of failing. It may be that I shall encounter ruin where I look for reputation and a career of honor. The chances are perhaps more in favour of ruin than of success. But, whatever may be the chances, I shall go on as long as any means of carrying on the fight are at my disposal.
+ - We cannot bring ourselves to believe it possible that a foreigner should in any respect be wiser than ourselves. If any such point out to us our follies, we at once claim those follies as the special evidence of our wisdom.
+ - It is hard to conceive that the old, whose thoughts have been all thought out, should ever love to live alone. Solitude is surely for the young, who have time before them for the execution of schemes, and who can, therefore, take delight in thinking.
+ - Success is the necessary misfortune of life, but it is only to the very unfortunate that it comes early.
+ - Why is it that when men and women congregate, though the men may beat the women in numbers by ten to one, and through they certainly speak the louder, the concrete sound that meets the ears of any outside listener is always a sound of women’s voices?
+ - No living orator would convince a grocer that coffee should be sold without chicory; and no amount of eloquence will make an English lawyer think that loyalty to truth should come before loyalty to his client.
+ - Take away from English authors their copyrights, and you would very soon take away from England her authors.
+ - I have sometimes thought that there is no being so venomous, so bloodthirsty as a professed philanthropist.
+ - The girl can look forward to little else than the chance of having a good man for her husband; a good man, or if her tastes lie in that direction, a rich man.
+ - There is no happiness in love, except at the end of an English novel.
+ - My belief of book writing is much the same as my belief as to shoemaking. The man who will work the hardest at it, and will work with the most honest purpose, will work the best.
+ - Nothing reopens the springs of love so fully as absence, and no absence so thoroughly as that which must needs be endless.
+ - There is no human bliss equal to twelve hours of work with only six hours in which to do it.
+ - A husband is very much like a house or a horse.
+ - Let no man boast himself that he has got through the perils of winter till at least the seventh of May.
+ - Poverty, to be picturesque, should be rural. Suburban misery is as hideous as it is pitiable.
+ - Audacity in wooing is a great virtue, but a man must measure even his virtues.
+ - Money is neither god nor devil, that it should make one noble and another vile. It is an accident, and if honestly possessed, may pass from you to me, or from me to you, without a stain.
+ - No other American city is so intensely American as New York.
+ - He was essentially a truth-speaking man, if only he know how to speak the truth.
+ - I believe journalism is coming to be regarded as quite a respectable occupation for gentlemen nowadays.
+ - Of all hatreds that the world produces, a wife’s hatred for her husband, when she does hate him, is the strongest.
+ - Those who have courage to love should have courage to suffer.
+ - Caveat emptor is the only motto going, and the worst proverb that ever came from the dishonest stony-hearted Rome.
+ - The bucolic mind of East Barsetshire took warm delight in the eloquence of the eminent personage who represented them, but was wont to extract more actual enjoyment from the music of his periods than from the strength of his arguments.
+ - Oxford is the most dangerous place to which a young man can be sent.
+ - The good and the bad mix themselves so thoroughly in our thoughts, even in our aspirations, that we must look for excellence rather in overcoming evil than in freeing ourselves from its influence.
+ - Love is like any other luxury. You have no right to it unless you can afford it.
+ - This at least should be a rule through the letter-writing world: that no angry letter be posted till four-and-twenty hours will have elapsed since it was written.
+ - I have no ambition to surprise my reader. Castles with unknown passages are not compatible with my homely muse.
+ - When young Mark Robarts was leaving college, his father might well declare that all men began to say all good things to him, and to extol his fortune in that he had a son blessed with so excellent a disposition.
+ - The property of manliness in a man is a great possession, but perhaps there is none that is less understood, which is more generally accorded where it does not exist, nor more frequently disallowed where it prevails.
+ - To have her meals, and her daily walk, and her fill of novels, and to be left alone, was all that she asked of the gods.
+ - Power is so pleasant that men quickly learn to be greedy in the enjoyment of it, and to flatter themselves that patriotism requires them to be imperious.
+ - The double pleasure of pulling down an opponent, and of raising oneself, is the charm of a politician’s life.
+ - Late hours, nocturnal cigars, and midnight drinkings, pleasurable though they may be, consume too quickly the free-flowing lamps of youth, and are fatal at once to the husbanded candle-ends of age.
+ - The natural man will probably be manly. The affected man cannot be so.
+ - Equality would be a heaven, if we could attain it.
+ - It’s dogged as does it. It ain’t thinking about it.
+ - In former days, when there were Whigs instead of Liberals, it was almost a rule of political life that all leading Whigs sould be uncles, brothers-in-law, or cousins to each other. This was pleasant and gave great consistency to the party; but the system has now gone out of vogue.
+ - No one can depute authority. It comes too much from personal accidents, and too little from reason or law to be handed over to others.
+ - Gentlemen lacking substantial sympathy with their leader found it to be comfortable to deceive themselves, and raise their hearts at the same time by the easy enthusiasm of noise.
+ - The Church of England is the only church in the world that interferes neither with your politics nor your religion.
+ - A man’s mind will very gradually refuse to make itself up until it is driven and compelled by emergency.
+ - High rank and soft manners may not always belong to a true heart.
+ - What man thinks of changing himself so as to suit his wife? And yet men expect that women shall put on altogether new characters when they are married, and girls think that they can do so.
+ - When any body of statesmen make public asservations by one or various voices, that there is no discord among them, not a dissentient voice on any subject, people are apt to suppose that they cannot hang together much longer.
+ - It is very hard, that necessity of listening to a man who says nothing.
+ - But then in novels the most indifferent hero comes out right at last. Some god comes out of a theatrical cloud and leaves the poor devil ten thousand-a-year and a title.
+ - I cannot hold with those who want to put down the insignificant chatter of the world.
+ - Flirting I take to be the excitement of love, without its reality, and without its ordinary result in marriage.
+ - An enemy might at any time become a friend, but while an enemy was an enemy he should be trodden on and persecuted.
+ - When men think much, they can rarely decide.
+ - It is the test of a novel writer’s art that he conceal his snake-in-the-grass; but the reader may be sure that it is always there.
+ - The grace and beauty of life will be clean gone when we all become useful men.
+ - To oblige a friend by inflicting an injury on his enemy is often more easy than to confer a benefit on the friend himself.
+ - Success is a poison that should only be taken late in life and then only in small doses.
+ - I would recommend all men in choosing a profession to avoid any that may require an apology at every turn; either an apology or else a somewhat violent assertion of right.
+ - That I can read and be happy while I am reading, is a great blessing.
+ - Men are cowards before women until they become tyrants.
+ - I think the greatest rogues are they who talk most of their honesty.
+ - On board ship there are many sources of joy of which the land knows nothing. You may flirt and dance at sixty; and if you are awkward in the turn of a valse, you may put it down to the motion of the ship. You need wear no gloves, and may drink your soda-and-brandy without being ashamed of it.
+ - When any practice has become the fixed rule of the society in which we live, it is always wise to adhere to that rule, unless it call upon us to do something that is actually wrong. One should not offend the prejudices of the world, even if one is quite sure that they are prejudices.
+ - Men will love to the last, but they love what is fresh and new. A woman’s love can live on the recollection of the past, and cling to what is old and ugly.
+ - I doubt whether I ever read any description of scenery which gave me an idea of the place described.
+ - I know very well that if you get men who are really, really swells, for that is what it is, Mr. Low, and pay them well enough, and so make it really an important thing, they can browbeat any judge and hoodwink any jury.
+ - Satire, though it may exaggerate the vice it lashes, is not justified in creating it in order that it may be lashed.
+ - She was as one who, in madness, was resolute to throw herself from a precipice, but to whom some remnant of sanity remained which forced her to seek those who would save her from herself.
+ - Wine is valued for its price, not its flavor.
+ - Of course, Lady Arabella could not suckle the young heir herself. Ladies Arabella never can. They are gifted with the powers of being mothers, but not nursing mothers. Nature gives them bosoms for show, but not for use. So Lady Arabella had a wet-nurse.
+ - Fame is a skittish jade, more fickle even than Fortune, and apt to shy, and bolt, and plunge away on very trifling causes.
+ - But the hobbledehoy, though he blushes when women address him, and is uneasy even when he is near them, though he is not master ofhis limbs in a ball-room, and is hardly master of his tongue at any time, is the most eloquent of beings, and especially eloquent among beautiful women.
+ - For themost of us, if we donot talkof ourselves, orat any rate of the individual circles of which we are the centres, we can talk of nothing. I cannot hold with those who wish to put down the insignificant chatter of the world.
+ - Your man with a thin skin, a vehement ambition, a scrupulous conscience, and a sanguine desire for rapid improvement is never a happy, and seldom a fortunate politician.
+ - And though it is much to be a nobleman, it is more to be a gentleman.
+ - It is easy for most of us to keep our hands from picking and stealing when picking and stealing plainly lead to prison diet and prison garments. But when silks and satins come of it, and with the silks and satins general respect, the net result of honesty does not seem to be so secure.
+ - The greatest mistake any man ever made is to suppose that the good things of the world are not worth the winning.
+ - It is admitted that a novel can hardly be made interesting or successful without love? It is necessary because the passion is one which interests or has interested all. Everyone feels it, has felt it, or expects to feel it.
+ - Nothing surely is as potent as a law that may not be disobeyed. It has the force of the water drop that hollows the stone. A small dainty task, if it be really daily, will beat the labours of a spasmodic Hercules.
+ - It may almost be a question whether such wisdom as many of us have in our mature years has not come from the dying out of the power of temptation, rather than as the results of thought and resolution.
+ - He was one of those men who, as in youth they are never very young, so in age are they never very old.
+ - The true picture of life as it is, if it could be adequately painted, would show men what they are, and how they might rise, not, indeed to perfection, but one step first, and then another on the ladder.
+ - Cham is the only thing to screw one up when one is down a peg.
+ - As to that leisure evening of life, I must say that I do not want it. I can conceive of no contentment of which toil is not to be the immediate parent.
+ - A bull in a china shop is not a useful animal, nor is he ornamental, but there can be no doubt of his energy. The hare was full of energy, but he didn’t win the race. The man who stands still is the man who keeps his ground.
+ - But mad people never die. That’s a well-known fact. They’ve nothing to trouble them, and they live for ever.
+ - People go on quarrelling and fancying this and that, and thinking that the world is full of romance and poetry. When they get married they know better.
+ - But the school in which good training is most practiced will, as a rule, turn out the best scholars.
+ - Here in England the welfare of the State depends on the conduct of our aristocracy.
+ - Speeches easy to young speakers are generally very difficult to old listeners.
+ - The satirist who writes nothing but satire should write but little – or it will seem that his satire springs rather from his own caustic nature than from the sins of the world in which he lives.
+ - There was but one thing for him;- to persevere till he got her, or till he had finally lost her. And should the latter be his fate, as he began to fear that it would be, then, he would live, but live only, like a crippled man.
+ - There is nothing more tyrannical than a strong popular feeling among a democratic people.
+ - A man who is supposed to have caused a disturbance between two married people, in a certain rank of life, does generally receive a certain meed of admiration.
+ - The idea of putting old Browborough into prison for conduct which habit had made second nature to a large proportion of the House was distressing to Members of Parliament generally.
+ - The best education is to be had at a price, as well as the best broadcloth.
+ - There is no road to wealth so easy and respectable as that of matrimony.
+ - But as we do not light up our houses with our brightest lamps for all comers, so neither did she emit from her eyes their brightest sparks till special occasions for such shining had arisen.
+ - When you have done the rashest thing in the world it is very pleasant to be told that no man of spirit could have acted otherwise.
+ - When a man wants to write a book full of unassailable facts, he always goes to the British Museum.
+ - For there is no folly so great as keeping one’s sorrows hidden.
+ - Neither money nor position can atone to me for low birth.
+ - I doubt whether any girl would be satisfied with her lover’s mind if she knew the whole of it.
+ - When one wants to be natural, of necessity one becomes the reverse of natural.
+ - The apostle of Christianity and the infidel can meet without a chance of a quarrel; but it is never safe to bring together two men who differ about a saint or a surplice.
+ - I do not think myself to be a worm, and a grub, grass of the field fit only to be burned, a clod, a morsel of putrid atoms that should be thrown to the dungheap, ready for the nethermost pit. Nor if I did should I therefore expect to sit with Angels and Archangels.
+ - If a cook can’t make soup between two and seven, she can’t make it in a week.
+ - It is no good any longer to have any opinion upon anything.
+ - Rights and rules, which are bonds of iron to a little man, are packthread to a giant.
+ - I think I owe my life to cork soles.
+ - Credit is a matter so subtle in its essence, that, as it may be obtained almost without reason, so, without reason, may it be made to melt away.
+ - I do not know whether there be, as a rule, more vocal expression of the sentiment of love between a man and a woman, than there is between two thrushes. They whistle and call to each other, guided by instinct rather than by reason.
+ - It has become a certainty now that if you will only advertise sufficiently you may make a fortune by selling anything.
+ - It is easy to love one’s enemy when one is making fine speeches; but so difficult to do so in the actual everyday work of life.
+ - One doesn’t have an agreement to that effect written down on parchment and sealed; but it is as well understood and ought to be as faithfully kept as any legal contract.
+ - I never knew a government yet that wanted to do anything.
+ - With many women I doubt whether there be any more effectual wayof touching their hearts than ill-using them and then confessing it. If you wish to get the sweetest fragrance from the herb at your feet, tread on it and bruise it.
+ - Till we can become divine, we must be content to be human, lest in our hurry for change we sink to something lower.
+ - Things to be done offer themselves, I suppose, because they are in themselves desirable; not because it is desirable to have something to do.
+ - Beware of creating tedium!
+ - It is my purpose to disclose the mystery at once, and to ask you to look for your interest, – should you choose to go on with my chronicle, – simply in the conduct of my persons, during this disclosure to others.
+ - Speaking of New York as a traveller I have two faults to find with it. In the first place there is nothing to see; and in the second place there is no mode of getting about to see anything.
+ - He possessed the rare merit of making a property of his time and not a burden.
+ - My sweetheart is to me more than a coined hemisphere.
+ - I ain’t a bit ashamed of anything.
+ - Marvelous is the power which can be exercised, almost unconsciously, over a company, or an individual, or even upon a crowd by one person gifted with good temper, good digestion, good intellects, and good looks.
+ - Many people talk much, and then very many people talk very much more.
+ - Any one prominent in affairs can always see when a man may steal a horse and when a man may not look over a hedge.
+ - Men and not measures are, no doubt, the very life of politics. But then it is not the fashion to say so in public places.
+ - It is the necessary nature of a political party in this country to avoid, as long as it can be avoided, the consideration of any question which involves a great change.
+ - There are some points on which no man can be contented to follow the advice of another – some subjects on which a man can consult his own conscience only.
+ - In these days a man is nobody unless his biography is kept so far posted up that it may be ready for the national breakfast-table on the morning after his demise.
+ - When it comes to money nobody should give up anything.
+ - It is self-evident that at sixty-five a man has done all that he is fit to do.
+ - People seen by the mind are exactly different to things seen by the eye. They grow smaller and smaller as you come nearer down to them, whereas things become bigger.
+ - When the little dog snarls, the big dog does not connect the snarl with himself, simply fancying that the little dog must be uncomfortable.
+ - We can generally read a man’s purpose towards us in his manner, if his purposes are of much moment to us.
+ - A fellow oughtn’t to let his family property go to pieces.
+ - It has now become the doctrine of a large clan of politicians that political honesty is unnecessary, slow, subversive of a man’s interests, and incompatible with quick onward movement.
+ - Though they were Liberals they were not democrats; nor yet infidels.
+ - Before the reader is introduced to the modest country medical practitioner who is to be the chief personage of the following tale, it will be well that he should be made acquainted with some particulars as to the locality in which, and the neighbours among whom, our doctor followed his profession.
+ - The end of a novel, like the end of a children’s dinner-party, must be made up of sweetmeats and sugar-plums.
+ - Let a man be of what side he may in politics, unless he be much more of a partisan than a patriot, he will think it well that there should be some equity of division in the bestowal of crumbs of comfort.
+ - To get away well is so very much! And to get away well is often so very difficult!
+ - Mr Palliser was one of those politicians in possessing whom England has perhaps more reason to be proud than of any other of her resources, and who, as a body, give to her that exquisite combination of conservatism and progress which is her present strength and best security for the future.
+ - When I sit down to write a novel I do not at all know, and I do not very much care, how it is to end.
+ - There’s nothing like going on with a thing.
+ - But then the pastors and men of God can only be human, – cannot altogether be men of God; and so they have oppressed us, and burned us, and tortured us, and hence come to love palaces, and fine linen, and purple, and, alas, sometimes, mere luxury and idleness.
+ - The happiest man is he, who being above the troubles which money brings, has his hands the fullest of work.
+ - It has been the great fault of our politicians that they have all wanted to do something.
+ - As to happiness in this life it is hardly compatible with that diminished respect which ever attends the relinquishing of labour.
+ - It may, indeed, be assumed that a man who loses his temper while he is speaking is endeavouring to speak the truth such as he believes it to be, and again it may be assumed that a man who speaks constantly without losing his temper is not always entitled to the same implicit faith.
+ - There are words which a man cannot resist from a woman, even though he knows them to be false.
+ - There is such a difference between life and theory.
+ - But as the clerical pretensions are more exacting than all others, being put forward with an assertion that no answer is possible without breach of duty and sin, so are they more galling.
+ - An author must be nothing if he do not love truth; a barrister must be nothing if he do.
+ - A man’s own dinner is to himself so important that he cannot bring himself to believe that it is a matter utterly indifferent to anyone else.
+ - I am not fit to marry. I am often cross, and I like my own way, and I have a distaste for men.
+ - What is there that money will not do?
+ - There are some achievements which are never done in the presence of those who hear of them. Catching salmon is one, and working all night is another.
+ - An editor is bound to avoid the meshes of the law, which are always infinitely more costly to companies, or things, or institutions, than they are to individuals.
+ - A man can’t do what he likes with his coverts.
+ - Heroes in books should be so much better than heroes got up for the world’s common wear and tear.
+ - It is hard to rescue a man from the slough of luxury and idleness combined. If anything can do it, it is a cradle filled annually.
+ - A man will be generally very old and feeble before he forgets how much money he has in the funds.
+ - Taken altogether, Washington as a city is most unsatisfactory, and falls more grievously short of the thing attempted than any other of the great undertakings of which I have seen anything in the United States.
+ - But facts always convince, and another man’s opinion rarely convinces.
+ - Three hours a day will produce as much as a man ought to write.
+ - Never let the estate decrease in your hands. It is only by such resolutions as that that English noblemen and English gentlemen can preserve their country. I cannot bear to see property changing hands.
+ - What man thinks of changing himself so as to suit his wife?
+ - The mind of the thinker and the student is driven to admit, though it be awe-struck by apparent injustice, that this inequality is the work of God. Make all men equal to-day, and God has so created them that they shall be all unequal to-morrow.
+ - But she knew this, – that it was necessary for her happiness that she should devote herself to some one. All the elegancies and outward charms of life were delightful, if only they could be used as the means to some end. As an end themselves they were nothing.
+ - It is necessary to get a lot of men together, for the show of the thing, otherwise the world will not believe. That is the meaning of committees. But the real work must always be done by one or two men.
+ - It is a grand thing to rise in the world. The ambition to do so is the very salt of the earth. It is the parent of all enterprise, and the cause of all improvement.
+ - If you cross the Atlantic with an American lady you invariably fall in love with her before the journey is over. Travel with the same woman in a railway car for twelve hours, and you will have written her down in your own mind in quite other language than that of love.
+ - I hold that gentleman to be the best-dressed whose dress no one observes.
+ - You men find so many angels in your travels. You have been honester than some. You have generally been off with the old angel before you were with the new, as far at least as I knew.
+ - There is nothing perhaps so generally consoling to a man as a well-established grievance; a feeling of having been injured, on which his mind can brood from hour to hour, allowing him to plead his own cause in his own court, within his own heart, and always to plead it successfully.
+ - Men who can succeed in deceiving no one else, will succeed at last in deceiving themselves.
+ - Then Lady Chiltern argued the matter on views directly opposite to those which she had put forward when discussing the matter with her husband.
+ - A man’s love, till it has been chastened and fastened by the feeling of duty which marriage brings with it, is instigated mainly by the difficulty of pursuit.
+ - To feel that your hours are filled to overflowing, that you can barely steal minutes enough for sleep, that the welfare of many is entrusted to you, that the world looks on and approves, that some good is always being done to others – above all things some good to your country; – that is happiness.
+ - They who do not understand that a man may be brought to hope that which of all things is the most grievous to him, have not observed with sufficient closeness the perversity of the human mind.
+ - I never believe anything that a lawyer says when he has a wig on his head and a fee in his hand. I prepare myself beforehand to regard it all as mere words, supplied at so much the thousand. I know he’ll say whatever he thinks most likely to forward his own views.
+ - Passionate love, I take it, rarely lasts long, and is very troublesome while it does last. Mutual esteem is very much more valuable.
+ - A woman’s life is not perfect or whole till she has added herself to a husband. Nor is a man’s life perfect or whole till he has added to himself a wife.
+ - A pleasant letter I hold to be the pleasantest thing that this world has to give.
+ - The secrets of the world are very marvellous, but they are not themselves half so wonderful as the way in which they become known to the world.
+ - A Minister can always give a reason; and, if he be clever, he can generally when doing so punish the man who asks for it. The punishing of an influential enemy is an indiscretion; but an obscure questioner may often be crushed with good effect.
+ - Short accounts make long friends.
+ - As will so often be the case when a men has a pen in his hand. It is like a club or sledge-hammer, in using which, either for defence or attack, a man can hardly measure the strength of the blows he gives.
+ - A novelist’s characters must be with him as he lies down to sleep, and as he wakes from his dreams. He must learn to hate them and to love them.
+ - He must have known me if he had seen me as he was wont to see me, for he was in the habit of flogging me constantly. Perhaps he did not recognize me by my face.
+ - Of all needs a book has, the chief need is to be readable.
+ - I have never walked down Fifth Avenue alone without thinking of money.
+ - Never mingle love and business.
+ - Upon the present occasion London was full of clergymen. The specially clerical clubs, the Oxford and Cambridge, the Old University, and the Athenaeum, were black with them.
+ - Lord Chiltern recognizes the great happiness of having a grievance. It would be a pity that so great a blessing should be thrown away upon him.
+ - There is no way of writing well and also of writing easily.
+ - The best way to be thankful is to use the goods the gods provide you.
+ - I know no place at which an Englishman may drop down suddenly among a pleasanter circle of acquaintance, or find himself with a more clever set of men, than he can do at Boston.
+ - The circumstances seemed to be simple; but they who understood such matters declared that the duration of a trial depended a great deal more on the public interest felt in the matter than upon its own nature.
+ - If we wish ourselves to be high, we should treat that which is over us as high.
+ - When a man is ill nothing is so important to him as his own illness.
+ - Little bits of things make me do it; – perhaps a word that I said and ought not to have said ten years ago; – the most ordinary little mistakes, even my own past thoughts to myself about the merest trifles. They are always making me shiver.
+ - We all profess to believe when we’re told that this world should be used merely as a preparation for the next; and yet there is something so cold and comfortless in the theory that we do not relish the prospect even for our children.
+ - Life is so unlike theory.
+
+229 quotes

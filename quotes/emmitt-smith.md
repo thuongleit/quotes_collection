@@ -1,0 +1,51 @@
+ - All men are created equal. Some work harder in preseason.
+ - I may win and I may lose, but I will never be defeated.
+ - Vision gets the dreams started.
+ - Don’t complain to others about your troubles. Half of them don’t care and the other half are glad.
+ - You cannot change the stripes of a leopard.
+ - Football is a team sport, and there is no one individual who is bigger than the next person.
+ - I’m an enigma, an unknown. You can’t really figure out what I’m going to do next. I like it like that.
+ - As long as you and I are still breathing, we have a purpose to serve.
+ - Consistency shows value. It breeds trust. You know that I’m going to show up every week.
+ - I’m an enigma, an unknown.
+ - We are all born naked into this world, but each of us is fully clothed in potential.
+ - In order to achieve great things in your life, you have to be consistent in what you are doing.
+ - For me, winning isn’t something that happens suddenly on the field when the whistle blows and the crowds roar. Winning is something that builds physically and mentally every day that you train and every night that you dream.
+ - I’ve learned that football sometimes was an outlet. It was a way for me to release anger, release frustration.
+ - There’s always a chance. Somebody has got to want me, and if they don’t want me, then what? I want to play. I want to do what I want to do.
+ - If you’re not settled spiritually, things can be a little bit more chaotic than normal.
+ - Dreaming means ‘rehearsing’ what you see, playing it over and over in your mind until it becomes as real to you as your life right now.
+ - Vision gets the dreams started. Dreaming employs your God-given imagination to reinforce the vision. Both are part of something I believe is absolutely necessary to building the life of a champion, a winner, a person of high character who is consistently at the top of whatever game he or she is in.
+ - My mom said, ‘Don’t get married. You’re too young. Go out there and experience what life has to offer.’ And I did.
+ - Your attitude determines your aptitude!
+ - Do not compare yourself. Find out what God has placed in your ability.
+ - Your biggest fear is the transition from football to business. You feel inferior at the beginning. You don’t have the knowledge to compete. But once you start focusing and understanding, then you start relating to things.
+ - Consistency is one of the hallmarks of my career. You knew what you were going to get out of E-Smith every game, every year, no matter if I was 22, 21 or 35 years old.
+ - I’ve given everything I can possible to the game, on and off the field.
+ - There’s a lot of dancing in football. You can see Victor Cruz doing a little bit of cha-cha or sambra move in the end zone. You can see Terrell Owens getting his popcorn ready. You can see Ochocinco doing the river dance. But not so much in the ballroom.
+ - I’m very confident I’m one of the best to ever play the game, but once you talk about the greatest, how can you define greatest?
+ - What we shared and what we were able to accomplish on the football field was something unbelievable.
+ - One thing I can say about the Dallas Cowboys: They have always had talent around them. They have been one of the most talented football teams in all of football.
+ - What I accomplished definitely wasn’t achieved by myself. Without others, none of this would have been possible.
+ - A lot of the issues of the Dallas Cowboys yesterday having pressure on Tony Romo, came from the outside pressure.
+ - Not only does he have the NFC East record for touchdowns, but also the team record.
+ - Always, through my whole life, I’ve had a thirst for knowledge.
+ - Charles Haley changed the way the Cowboys played football in the 90s. And the reason why I say that is because he was such a dominant force coming off the edge, where it took two and three to block him.
+ - Marriage is not something that’s easy, but nothing in life is easy.
+ - History has never seen Emmitt Smith. I don’t care what has come before me. That’s why they call it history you create new history.
+ - Emmitt Smith is in a position, in my opinion, where he should be the highest-paid running back in football. He’s a guy who has gone out and led the league in rushing and been productive.
+ - If you know anything about me, I’ve never been a trash-talker. That’s not even part of my DNA.
+ - I love to play bid whist as much as I love football.
+ - Every time fans turned on the television or watched the Dallas Cowboys, I wanted to give them the performance of a lifetime.
+ - The leadership definitely have to come from the leaders.
+ - I was going through a little bit of turbulence in my career. And so, it’s funny how turbulence itself will make you hold onto something for security. And so the only thing I knew is trust in the Lord and lean not unto your own heart, in all thy ways acknowledge him and he shall direct thy path.
+ - If you want to stay perfect, you cannot go undefeated with a blemish on your record.
+ - Adrian Peterson is redefining the way teams defend the running ability.
+ - I don’t have to get up in the morning and go beat up my body like I used to. I don’t have to be out there in August in 108 degree weather down in Texas.
+ - I have been a Cowboys fan since I was a little bitty boy. And my dream has finally become a reality, of not only just playing a professional, becoming a professional athlete, but playing for the team that I always wanted to play for.
+ - I don’t have to put on shoulder pads and run out there and let somebody hit on me a little bit.
+ - Emmitt Smith is someone that I have great respect for – as a player, a competitor and a person. His contributions to the organization and the NFL speak for themselves.
+ - I used to imagine what it would be like to do what Jim Brown was doing. I used to imagine what it would be like to be like a Tony Dorsett. I used to imagine what it would be like to be like a Walter Payton. I was imagining Emmitt Smith doing exactly what they were doing.
+ - I enjoyed being a teammate of Deion Sanders. He brings different elements to the game that many people would not even realize, and to watch and witness a superior talent like him and watch him prepare and train, and study the game is truly amazing.
+
+49 quotes

@@ -1,0 +1,42 @@
+ - I’m happy single, but I’m happy in both cases. I feel like I definitely thrive more as a human and I’m more successful when I’m single.
+ - I’m a curvy girl and that will never change.
+ - I could live a normal life. My motivation is only to take on new challenges.
+ - I moved on from the whole ‘Playboy’ thing five years ago and really never looked back. I’m not one of those girls who goes back to all the parties and things.
+ - I’d rather be overweight and curvy than super thin with no curves. I’m proud of my body.
+ - I don’t need a man. I’m really happy with myself and being with my friends.
+ - I want my daughter to be proud of me and look up to me. I think early on in my pregnancy I realized that to be the mom I want to be, I had to change my life, and that’s what I’m doing.
+ - My main motivation for staying in the spotlight at all is, I don’t want to just be known for being involved in ‘Playboy,’ or having been Hugh Hefner’s girlfriend – I hate that. I like to show I can do other things and take on other challenges. That’s my main motivation.
+ - I started a trial period a couple of weeks ago as a correspondent for ‘Extra,’ and now it’s become full time.
+ - I want six kids. We’ll see how it goes, but I want a big family.
+ - Once I decide I want to do something, I just work really hard and I do it, and I just know it’s going to work. I think really positively.
+ - I work hard and I don’t come from a rich family.
+ - I would love to meet my soul mate. I’m always kind of keeping my eyes open for somebody.
+ - I don’t want to be too strict, because I think kids can get rebellious, but I want to raise my daughter to be passionate about doing good things and pursuing real things and hobbies instead of frivolous materialistic stuff.
+ - I love Snooki. She’s a pickle sucker!
+ - I love chicken fingers, I love French fries. I love desserts. I’m not just into dessert or just into savoury food. I love it all. I’m a pig. I love food. So it takes a lot of discipline to eat healthy.
+ - Truthfully, being pregnant is changing me as a person. Each day is part of this amazing journey that has completely shifted the focus of my life and made me reevaluate my personal and professional goals.
+ - I have a treadmill in my house, which is great because even if I jump on it for a little bit, it makes me feel better. I love yoga and Pilates too. I have a private Pilates instructor I go to once a week.
+ - But when you have a baby inside you, you’re like ‘Whoa!’ Anything can happen here, I’ve got to give this baby all the nutrients it needs and really take care of myself, so this is definitely the healthiest I’ve ever been in my life.
+ - I have cellulite – and had it even when I was at my absolute thinnest. I’m never not going to have cellulite. People need to just accept that it’s there and maybe dress accordingly or use body makeup to cope with it.
+ - If I could have a Barbie body, which has no cellulite, I totally would. I would like to have a flatter stomach, but that won’t happen either. That is never going to happen. No matter how much weight I lose, my stomach, below the belly button, always pooches out.
+ - I love performing in Las Vegas.
+ - I don’t know why this is, maybe because I am 33 or what, but I didn’t think it would be that easy for me to get pregnant. But it was.
+ - The last couple relationships I had were long distance. It’s not like I can make much of an effort to travel and see anybody. The guy had to do all the work, unfortunately.
+ - I’m working on producing my own shows. “Girls Next Door” was a great place to start but it was somebody else’s show. I’m just ready to move on.
+ - Since I’ve been pregnant, I’ve lost my taste for fast food. I used to be the biggest McDonald’s junkie and now I don’t like it anymore. I used to be the biggest fast-food connoisseur, and now I’ve really lost my taste for it.
+ - After becoming pregnant, I had to makeover my pantry just a little to make the proper adjustments to support the baby. I’ve found some staples that will stick around after the baby is here, too.
+ - I think someone like Carmen Electra would be great in ‘Peepshow.’ Really, though, I think anyone who can sing and dance would be great.
+ - I just feel kind of out of place on Easter. I feel kind of useless because everybody else has kids and I don’t and I’m just standing there with nothing to do.
+ - Aside from performing in ‘Peepshow,’ I do yoga once a week and I like Pilates. I’m more into toning exercises over aerobics. I like working with a trainer at a private gym, but I also like going with friends because you don’t get bored or distracted.
+ - I wouldn’t mind doing Playboy again. But only if I had creative control.
+ - Having a child on the way changes your perspective. You want to do things that will make them proud of you.
+ - I’m not entirely sure what my end goal is, but I’d love to get involved in city politics and broadcast TV.
+ - I wish ghosts were real!
+ - I’ve always wanted to be a mom.
+ - I want to get into producing. I really learned a lot from ‘Girls Next Door.’ Kevin Burns is a great producer. He’s really talented, and he taught me a lot. I’m just looking forward to spreading the wings a little bit. Five seasons on ‘Girls Next Door’ was great, but it gets a little repetitive.
+ - I like food too much to go on some crazy diet. French fries are my favorite downfall.
+ - I would like to expand my brand to include destinations in Vegas and also become an entertainment news correspondent.
+ - You don’t have to just shop in the maternity section when you are pregnant – you can shop anywhere, just be shape and size savvy!
+ - I was always obsessed with being famous. I had Marilyn Monroe paper dolls as a child, and I was always obsessed with her. I’ve just been really driven in that direction, and none of my friends were. So, I don’t know what put that bug in me at a young age.
+
+40 quotes

@@ -1,0 +1,84 @@
+ - We are torn between nostalgia for the familiar and an urge for the foreign and strange. As often as not, we are homesick most for the places we have never known.
+ - The writer is by nature a dreamer – a conscious dreamer.
+ - The closest thing to being cared for is to care for someone else.
+ - Next to music beer was best.
+ - The thinking mind is best controlled by the imagination.
+ - We are homesick most for the places we have never known.
+ - How can the dead be truly dead when they still live in the souls of those who are left behind?
+ - The Heart is a Lonely Hunter.
+ - I have more to say than Hemingway, and God knows, I say it better than Faulkner.
+ - She was afraid of these things that made her suddenly wonder who she was, and what she was going to be in the world, and why she was standing at that minute, seeing a light, or listening, or staring up into the sky: alone.
+ - Falling in love is the easiest thing in the world. It’s standing in love that matters.
+ - A most mediocre person can be the object of a love which is wild, extravagant, and beautiful as the poison lillies of the swamp.
+ - Passion is more important than justice.
+ - But the hearts of small children are delicate organs. A cruel beginning in this world can twist them into curious shapes.
+ - Writing, for me, is a search for God.
+ - To know who you are, you have to have a place to come from.
+ - Imagination takes humility, love and great courage.
+ - Doctors, by God; washing their hands, looking out windows, fiddling with dreadful things while you are stretched out on a table or half undressed on a chair.
+ - There is no stillness like the quiet of the first cold nights in the fall.
+ - Nothing is so musical as the sound of pouring bourbon for the first drink on a Sunday morning. Not Bach or Schubert or any of those masters.
+ - Sunday afternoons are the longest afternoons of all...
+ - I see a green tree. And to me it is green. And you would call the tree green also. And we would agree on this. But is the colour you see as green the same colour I see as green?
+ - There are those who know and those who don’t know. And for every ten thousand who don’t know there’s only one who knows. That’s the miracle of all time – the fact that these millions know so much but don’t know this.
+ - Resentment is the most precious flower of poverty.
+ - I must go home periodically to renew my sense of horror.
+ - Her face felt like it was scattered in pieces and she could not keep it straight. The feeling was a whole lot worse than being hungry for any dinner, yet it was like that. I want – I want – I want – was all that she could think about – but just what this real want was she did no know.
+ - There are all these people here I don’t know by sight or by name. And we pass alongside each other and don’t have any connection. And they don’t know me and I don’t know them. And now I’m leaving town and there are all these people I will never know.
+ - The writer by nature of his profession is a dreamer and a conscious dreamer. He must imagine, and imagination takes humility, love and great courage. How can you create a character without live and the struggle that goes with love?
+ - The memories of childhood have a strange shuttling quality, and areas of darkness ring the spaces of light. The memories of childhood are like clear candles in an acre of night, illuminating fixed scenes from surrounding darkness.
+ - She stood in front of the mirror a long time, and finally decided she either looked like a sap or else she looked very beautiful. One or the other.
+ - Jesus would be framed and in jail if he was living today.
+ - I want – I want – I want – was all that she could think about – but just what this real want was she did not know.
+ - There was hope in him, and soon perhaps the outline of his journey would take form.
+ - That was the best of all. To speak the truth and be attended.
+ - I think we look for the differences in people because it makes us less lonely.
+ - The people dreamed and fought and slept as much as ever. And by habit they shortened their thoughts so that they would not wander out into the darkness beyond tomorrow.
+ - It was better to be in a jail where you could bang the walls than in a jail you could not see.
+ - I am not meant to be alone and without you who understands.
+ - She wished there was some place where she could go to hum it out loud. Some kind of music was too private to sing in a house cram fall of people. It was funny, too, how lonesome a person could be in a crowded house.
+ - Love is a joint experience between two persons – but the fact that it is a joint experience does not mean that it is a similar experience to the two people involved.
+ - The most fatal thing a man can do is try to stand alone.
+ - Maybe when people longed for a thing that bad the longing made them trust in anything that might give it to them.
+ - Southerners are the more lonely and spiritually estranged, I think, because we have lived so long in an artificial social system that we insisted was natural and right and just – when all along we knew it wasn’t.
+ - The world is certainty a sudden place.
+ - Comparing the Brooklyn that I know with Manhattan is like comparing a comfortable and complacent duenna to her more brilliant and neurotic sister.
+ - His own life seemed so solitary, a fragile column supporting nothing amidst the wreckage of the years.
+ - If you would not be forgotten as soon as you are gone, either write things worth reading or do things worth writing.
+ - We wander, question. But the answer waits in each separate heart – the answer of our own identity and the way by which we can master loneliness and feel that at last we belong.
+ - The theme is the theme of humiliation, which is the square root of sin, as opposed to the freedom from humiliation, and love, which is the square root of wonderful.
+ - There are the lover and the beloved, but these two come from different countries.
+ - The trouble with me is that for a long time I have just been an I person. All people belong to a We except me. Not to belong to a We makes you too lonesome.
+ - Coming down was the hardest part of any climbing.
+ - I have never gone to a doctor in my adult life, feeling instinctively that doctors meant either cutting or, just as bad, diet.
+ - The seed of the idea is developed by both labor and the unconscious, and the struggle that goes on between them.
+ - It is music that causes the heart to broaden and the listener to grow cold with ecstasy and fright.
+ - It was like she was cheated. Only nobody had cheated her. So there was nobody to take it out on. However, just the same she had that feeling. Cheated.
+ - I was like a cat always climbing the wrong tree.
+ - I got to wear blinders all the time so I won’t think sideways or in the past.
+ - There’s nothing that makes you so aware of the improvisation of human existence as a song unfinished. Or an old address book.
+ - In his face there came to be a brooding peace that is seen most often in the faces of the very sorrowful or the very wise. But still he wandered through the streets of the town, always silent and alone.
+ - I live with the people I create and it has always made my essential loneliness less keen.
+ - People, unless they are nilly-willy or very sick, cannot be taken into the hands and be changed overnight into somthing more worth-while and profitable.
+ - The value and quality of any love is determined solely by the lover himself.
+ - All we can do is go around telling the truth.
+ - But all the time-no matter what she was doing-there was music.
+ - You don’t know what it is to store up a lot of details and then come upon something real.
+ - The mind is like a richly woven tapestry in which the colors are distilled from the experiences of the senses, and the design drawn from the convolutions of the intellect.
+ - The writer must hew the phantom rock.
+ - Sometimes this fellow’s music was like little colored pieces of crystal candy, and other times it was the softest, saddest thing she had ever imagined about.
+ - Owing to the fact he was a mute they were able to give him all the qualities they wanted him to have.
+ - After the first establishment of identity there comes the imperative need to lose this new-found sense of separateness and to belong to something larger and more powerful than the weak, lonely self. The sense of moral isolation is intolerable to us.
+ - But look what the Church has done to Jesus during the last two thousand years. What they have made of Him. How they have turned every word He spoke for their own vile ends. Jesus would be framed and in jail if he was living today.
+ - I do not have any home. So why should I be homesick?
+ - They are the we of me.
+ - Some men are heroes by nature in that they will give all that is in them without regard to the effort or to the personal returns.
+ - And the curt truth is that, in a deep secret way, the state of being loved is intolerable to many.
+ - Because in some men it is in them to give up everything personal at some time, before it ferments and poisons – throw it to some human being or some human idea. They have to.
+ - Once you have lived with another, it is a great torture to have to live alone.
+ - Don’t you loathe it when doctors use the word ‘we’ when it applies only and solely to yourself?
+ - There is so much truth in children and so little self-consciousness. It always strikes me that they are so capable of losing and finding themselves and also losing and finding those things they feel close to.
+ - When a person knows and can’t make the others understand, what does he do?
+ - Death is the great gamer with a sleeve of tricks.
+
+82 quotes

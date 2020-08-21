@@ -1,0 +1,45 @@
+ - Sacrifice today for tomorrows betterment, you are willing to pay those payments with pain, because pain is just a message when you are fixing something that’s insufficient in your life.
+ - Your comfort zone is your danger zone.
+ - Success doesn’t know these things about cold or early or tired. It just knows if you showed up or not.
+ - The difference between a winner and a loser – they both failed, but the winner gets back up and does it again and again until it goes his way.
+ - You are what you do repeatedly every day. If excellence is something you’re striving for, then it’s not an accident. It’s a habit.
+ - Second by second you lose the opportunity to become the person you want to be. Take charge of your life.
+ - Opportunities Don’t Come Knocking On The Door. They Present Themselves When You Knock The Door Down!
+ - Wake up with a plan of action, go to bed with satisfaction.
+ - If you can mentally see the end of the journey, then your body will physically find a way to achieve that goal.
+ - We all fall in life The question is who gets back up!
+ - Normality is what weak people call living, I call it death.
+ - When every action has a purpose, every action has a result.
+ - If tomorrow doesn’t happen, would you still do what you’re about to do today? If that answer is no, you’re alive, but you’re not living.
+ - It’s early in the morning and your competition is still sleeping.
+ - Face your fears, endure its pain and they will be re-written in the form of pride and dreams.
+ - Don’t let anyone tell you you can’t do something, because you can!
+ - If you mentally believe it will happen, your body is going to find a way to make it physically happen.
+ - Weakness leaves, pride comes in. Confidence grows. Successful life.
+ - When you find a fear, that fear will either create you or destroy you.
+ - Today begins, tomorrow continues, and it never ends until you reach your goal.
+ - Your mind is the strongest and most valuable muscle you can grow in the gym.
+ - Get the mind right, the body will follow.
+ - Bet on yourself! You never lose if you bet on yourself!
+ - I swear, there is no chemical drug out there that can reproduce the feelings you have of achieving your goals.
+ - You must believe in yourself enough to be the person now that others will remember you for later.
+ - When the winds of life don’t hit your sails, you grab the oars of life and you start pushing.
+ - Mentally, you must believe it before you physically start it, or else you will never reach prosperity.
+ - The hardest things in life are done the least but provide the most.
+ - The more you push, pass that pain, to feel the exhilaration of what that pain really delivers, then you will find the values of who you are.
+ - The only reps you don’t grow from are the ones you don’t do.
+ - Comfort zones are deadly zones because you lose your true potential of what you can be, you start going with the status quo.
+ - When you are wondering how do you go on? The better question is, how do you NOT go on?
+ - I love the mentality that when push comes to shove, simply work harder and the results will come.
+ - Life’s as good as you make it, today we made it good.
+ - Happiness is when you finally connect your mind to your body.
+ - It’s called the pump, people – you got to experience it; it’s one of the better highs in life, you don’t need to shoot up for it, you don’t need to snort it. All you got to do is sweat for it.
+ - We’re not ordinary, you don’t want to be ordinary.
+ - I keep going till that pain says hello to me. I don’t say goodbye until that pain says hello. That’s a good set.
+ - Success can never identify who you are. You must always identify it. You cannot allow the failures to identify who you are.
+ - The difference of somebody of winning and losing, has nothing to do with their genetics, has nothing to do with their potential.
+ - Some people get up in the morning, don’t go to the gym, they go take a shower. Well, I go to the gym, and I get a shower too.
+ - When you help yourself, you feel good. But when you help somebody else get back on their feet, it’s a high that no chemical drug can ever match. It’s the greatest high in the world. It’s addictive, it’s contagious, and the world needs more of it.
+ - Our desire is the warmth in our life, it’s not a blanket.
+
+43 quotes

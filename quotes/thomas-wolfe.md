@@ -1,0 +1,32 @@
+ - Make your mistakes, take your chances, look silly, but keep on going. Don’t freeze up.
+ - You can’t go home again.
+ - Is this not the true romantic feeling; not to desire to escape life, but to prevent life from escaping you.
+ - You have reached the pinnacle of success as soon as you become uninterested in money, compliments, or publicity.
+ - Then summer fades and passes and October comes. We’ll smell smoke then, and feel an unexpected sharpness, a thrill of nervousness, swift elation, a sense of sadness and departure.
+ - Culture is the arts elevated to a set of beliefs.
+ - I have to see a thing a thousand times before I see it once.
+ - The whole conviction of my life now rests upon the belief that loneliness, far from being a rare and curious phenomenon, is the central and inevitable fact of human existence.
+ - Toil on, son, and do not lose heart or hope. Let nothing you dismay. You are not utterly forsaken. I, too, am here – here in the darkness waiting, here attentive, here approving of your labor and your dream.
+ - There is no spectacle on earth more appealing than that of a beautiful woman in the act of cooking dinner for someone she loves.
+ - Man is born to live, to suffer, and to die, and what befalls him is a tragic lot. There is no denying this in the final end. But we must deny it all along the way.
+ - All things on earth point home in old October; sailors to sea, travellers to walls and fences, hunters to field and hollow and the long voice of the hounds, the lover to the love he has forsaken.
+ - Each moment is the fruit of forty thousand years. The minute-winning days, like flies, buzz home to death, and every moment is a window on all time.
+ - There is one voyage, the first, the last, the only one.
+ - Peace fell upon her spirit. Strong comfort and assurance bathed her whole being. Life was so solid and splendid, and so good.
+ - O lost, And by the wind grieved, Ghost, Come back again.
+ - The mountains were his masters. They rimmed in life. They were the cup of reality, beyond growth, beyond struggle and death. They were his absolute unity in the midst of eternal change.
+ - Only the dead know Brooklyn.
+ - What I had to face, the very bitter lesson that everyone who wants to write has got to learn, was that a thing may in itself be the finest piece of writing one has ever done, and yet have absolutely no place in the manuscript one hopes to publish.
+ - Loneliness is and always has been the central and inevitable experience of every man.
+ - I don’t know yet what I am capable of doing, but, by God, I have genius – I know it too well to blush behind it.
+ - A young man is so strong, so mad, so certain, and so lost. He has everything and he is able to use nothing.
+ - Making the world safe for hypocrisy.
+ - By God, I shall spend the rest of my life getting my heart back, healing and forgetting every scar you put upon me when I was a child. The first move I ever made, after the cradle, was to crawl for the door, and every move I have made since has been an effort to escape.
+ - Each of us is all the sums he has not counted: subtract us into the nakedness and night again, and you shall see begin in Crete four thousand years ago the love that ended yesterday in Texas.
+ - In Sleep we lie all naked and alone, in Sleep we are united at the heart of night and darkness, and we are strange and beautiful asleep; for we are dying the darkness and we know no death.
+ - I believe that we are lost here in America, but I believe we shall be found. And this belief, which mounts now to the catharsis of knowledge and conviction, is for me – and I think for all of us – not only our own hope, but America’s everlasting, living dream.
+ - And who shall say – whatever disenchantment follows – that we ever forget magic; or that we can ever betray, on this leaden earth, the apple-tree, the singing, and the gold?
+ - Not even the most powerful organs of the press, including Time, Newsweek, and The New York Times, can discover a new artist or certify his work and make it stick. They can only bring you the scores.
+ - America – it is a fabulous country, the only fabulous country; it is the only place where miracles not only happen, but where they happen all the time.
+
+30 quotes

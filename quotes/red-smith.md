@@ -1,0 +1,24 @@
+ - Writing is easy. Just sit in front of a typewriter, open up a vein and bleed it out drop by drop.
+ - Writing is very much like bricklaying. You learn to put one brick on top of another and spread the mortar so thick.
+ - Dying is no big deal. Living is the trick.
+ - Young men have visions, old men have dreams.
+ - Unlike the normal pattern, I know I have grown more liberal as I’ve grown older. I have become more convinced that there is room for improvement in the world.
+ - Today’s game is always different from yesterday’s game.
+ - Ninety feet between home plate and first base may be the closest man has ever come to perfection.
+ - It’s no accident that of all the monuments left of the Greco- Roman culture the biggest is the ballpark, the Colosseum, the YankeeStadium of ancient times.
+ - Any sportswriter who thinks the world is no bigger than the outfield fence in not only a bad citizen, but also a lousy sportswriter.
+ - Baseball is a dull game only for those with dull minds.
+ - The natural habitat of the tongue is the left cheek.
+ - For 350 years we have been taught that reading maketh a full man, conference a ready man and writing an exact man. Football’s place is to add a patina of character, a deference to the rules and a respect for authority.
+ - It was an ideal day for football – too cold for the spectators and too cold for the players.
+ - I think it’s the real world. The people we’re writing about in professional sports, they’re suffering and living and dying and loving and trying to make their way through life just as the brick layers and politicians are.
+ - Ninety feet between the bases is the nearest thing to perfection that man has yet achieved.
+ - Now it is done. Now the story ends. And there is no way to tell it. The art of fiction is dead. Reality has strangled invention.
+ - It is well known that the older a man grows, the faster he could run as a boy.
+ - My best girl is dead.
+ - I like to get where the cabbage is cooking and catch the scents.
+ - I have known writers who paid no damned attention whatever to the rules of grammar and rhetoric and somehow made the language behave for them.
+ - In entertainment value, the Democratic clambake usually lays it over the Republican conclave like ice cream over parsnips.
+ - The Russians have a weapon that can wipe out two hundred eighty thousand Americans. That puts them exactly ten years behind Howard Cosell.
+
+22 quotes

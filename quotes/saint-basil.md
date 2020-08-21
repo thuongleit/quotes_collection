@@ -1,0 +1,71 @@
+ - He who plants kindness gathers love.
+ - They who sow courtesy reap friendship, and they who plant kindness gather love.
+ - As the pilot of a vessel is tried in the storm; as the wrestler is tried in the ring, the soldier in the battle, and the hero in adversity: so is the Christian tried in temptation.
+ - Many a man curses the rain that falls upon his head, and knows not that it brings abundance to drive away the hunger.
+ - Just as a very little fresh water is blown away by a storm of wind and dust, in like manner the good deeds, that we think we do in this life, are overwhelmed by the multitude of evils.
+ - Every divine action begins from the Father, proceeds through the Son, and is completed in the Holy Spirit.
+ - When you have become God’s in the measure he desires, then he himself will bestow you upon others; unless, to your greater glory, he chooses to keep you all to himself.
+ - If every man took only what was sufficient for his needs, leaving the rest to those in want, there would be no rich and no poor.
+ - A woman who deliberately destroys a fetus is answerable for murder. And any fine distinction as to its being completely formed or unformed is not admissible amongst us.
+ - There is still time for endurance, time for patience, time for healing, time for change. Have you slipped? Rise up. Have you sinned? Cease. Do not stand among sinners, but leap aside.
+ - Therefore, let God inspired Scripture decide between us; and on whichever side be found doctrines in harmony with the Word of God, in favor of that side will be cast the vote of truth.
+ - If everyone would take only according to his needs and would leave the surplus to the needy, no one would be rich, no one poor, no one in misery.
+ - Lust hath these three companions: the first, blindness of understanding; the second, hardness of heart; the third, want of grace.
+ - All who call the Holy Ghost a creature we pity, on the ground that, by this utterance, they are falling into the unpardonable sin of blasphemy against Him.
+ - We should even go beyond doing what is required in order to avoid scandal.
+ - Resolve to treat the things in your possession as belonging to others.
+ - Beside each believer stands an Angel as protector and shepherd, leading him to life.
+ - What is the mark of love for your neighbor? Not to seek what is for your own benefit, but what is for the benefit of the one loved, both in body and in soul.
+ - When someone steals a person’s clothes, we call him a thief. Should we not also give the same name to the one who could clothe the naked but does not?
+ - Who is the covetous man? One for whom plenty is not enough.
+ - We need not only read Sacred Scripture, but learn it as well and grow up in it. Realize that nothing is written in Scripture unnecessarily. Not to read Sacred Scripture is a great evil.
+ - O sinner, be not discouraged, but have recourse to Mary in all you necessities. Call her to your assistance, for such is the divine Will that she should help in every kind of necessity.
+ - The human being is an animal who has received the vocation to become God.
+ - The bread you store up belongs to the hungry; the cloak that lies in your chest belongs to the naked; the gold you have hidden in the ground belongs to the poor.
+ - We should not accept in silence the benefactions of God, but return thanks for them.
+ - Let sleep itself be an exercise in piety, for such as our life and conduct have been, so also of necessity will be our dreams.
+ - As it is impossible to verbally describe the sweetness of honey to one who has never tasted honey, so the goodness of God cannot be clearly communicated by way of teaching if we ourselves are not able to penetrate into the goodness of the Lord by our own experience.
+ - The sun penetrates crystal and makes it more dazzling. In the same way, the sanctifying Spirit indwells in souls and makes them more radiant. They become like so many powerhouses beaming grace and love around them.
+ - Whatever requires an undue amount of thought or trouble or involves a large expenditure of effort and causes our whole life to revolve, as it were, around solicitude for the flesh must be avoided by Christians.
+ - We glorify the Holy Ghost together with the Father and the Son, from the conviction that He is not separated from the Divine Nature; for that which is foreign by nature does not share in the same honors.
+ - Drunkenness, the ruin of reason, the destruction of strength, premature old age, momentary death.
+ - We do not accost a physician as we do any mere nobody; nor a magistrate as we do a private individual. We try to get some advantage from the skill of the one and the position of the other. Walk in the sun, and your shadow will follow you, whether you will or not.
+ - In the very nature of every human being has been sown the seed of the ability to love. You and I ought to welcome this seed, cultivate it carefully, nourish it attentively and foster its growth by going to the school of God’s commandments with help of His grace.
+ - It is not he who begins well who is perfect. It is he who ends well who is approved in God’s sight.
+ - We must always be on guard lest, under the pretext of keeping one commandment, we be found breaking another.
+ - You can see that a city is prosperous by the wealth of goods for sale in the market. Land too we call prosperous if it bears rich fruit. And so also the soul may be counted prosperous if it is full of good works of every kind.
+ - We men are easily prone to sins of thought. Therefore, He who has formed each heart individually, knowing that the impulse received from the intention constitutes the major element in sin, has ordained that purity in the ruling part of our soul be our primary concern.
+ - I cannot persuade myself that without love to others, and without, as far as rests with me, peaceableness toward all, I can be called a worthy servant of Jesus Christ.
+ - Do not, as is usually the case, thrust the care of the common weal upon your neighbor; then, as each one in his own thoughts makes light of the matter, all find to their surprise that they have drawn upon themselves by their neglect a personal misfortune.
+ - Every evil is a sickness of soul, but virtue offers the cause of its health.
+ - He who confesses magic or sorcery shall do penance for the time of murder, and shall be treated in the same manner as he who convicts himself of this sin.
+ - What is there astonishing in the death of a mortal? But we are grieved at his dying before his time. Are we sure that this was not his time? We do not know how to pick and choose what is good for our souls, or how to fix the limits of the life of man.
+ - Strive to attain to the greater virtues, but do not neglect the lesser ones. Do not make light of a fall even if it be the most venial of faults; rather, be quick to repair it by repentance, although many others may commit a large number of faults, slight and grievous, and remain unrepentant.
+ - If you begin to guard wealth it will not be yours. But if you begin to distribute it, you will not lose it.
+ - He who sows courtesy reaps friendship.
+ - First and foremost, the monk should own nothing in this world, but he should have as his possessions solitude of the body, modesty of bearing, a modulated tone of voice, and a well-ordered manner of speech. He should be without anxiety as to his food and drink, and should eat in silence.
+ - Indulging in unrestrained and immoderate laughter is a sign of intemperance, of a want of control over one’s emotions, and of failure to repress the soul’s frivolity by a stern use of reason.
+ - He who is guilty of unseemliness with males will be under discipline for the same time as adulterers.
+ - If you see your neighbor in sin, don’t look only at this, but also think about what he has done or does that is good, and infrequently trying this in general, while not partialy judging, you will find that he is better than you.
+ - To lovers of the truth, nothing can be put before God and hope in Him.
+ - Science which is acquired unwillingly, soon disappears; that which is instilled into the mind in a pleasant and agreeable manner, is more lasting.
+ - We often find comfort in telling what is painful in actual experience.
+ - Men whose sense of taste is destroyed by sickness, sometimes think honey sour. A diseased eye does not see many things which do exist, and notes many things which do not exist. The same thing frequently takes place with regard to the force of words, when the critic is inferior to the writer.
+ - The bread which you use is the bread of the hungry; the garment hanging in your wardrobe is the garment of him who is naked; the shoes you do not wear are the shoes of the one who is barefoot; the acts of charity that you do not perform are so many injustices that you commit.
+ - All of us who desire the kingdom of God are, by the Lord’s decree, under an equal and rigorous necessity of seeking after the grace of Baptism.
+ - We should not think that we achieve success in preaching through our own devices, but we should rely entirely on God.
+ - No one who is in this world will deny that evils exist. What, then, do we say? That evil is not a living and animated substance, but a condition of the soul which is opposed to virtue and which springs up In the slothful because of their falling away from good.
+ - If men are in a state in which they find it hard to be weaned from their own ways and choose rather to serve the pleasures of the flesh than to serve the Lord, and refuse to accept the Gospel life, there is no common ground between me and them.
+ - Everyone looks for the good, therefore everyone looks for God.
+ - It is right to submit to a higher authority whenever a command of God would be violated.
+ - If, therefore, there is any grace in the water, it is not from the nature of water but from the Spirit’s presence there.
+ - If someone has repented once of a sin, and again does the same sin, this is a sign that he has not been cleansed of the causes of the sin, wherefrom, as from a root, the shoots spring forth again.
+ - Truly unexpected tidings make both ears tingle.
+ - Among irrational animals the love of the offspring and of the parents for each other is extraordinary because God, who created them, compensated for the deficiency of reason by the superiority of their senses.
+ - Wherever you may go, the least plant may bring you clear remembrance of the Creator.
+ - Any one who chooses will set up for a literary critic, though he cannot tell us where he went to school, or how much time was spent in his education, and knows nothing about letters at all.
+ - The Christian ought not to say anything behind his brother’s back with the object of calumniating him, for this is slander, even if what is said is true. He ought to turn away from the brother who speaks evil against him?
+ - I heard many discourses which were good for the soul, but I could not discover in the case of any one of the teachers that his life was worthy of his words.
+ - Troubles are usually the brooms and shovels that smooth the road to a good man’s fortune.
+
+69 quotes

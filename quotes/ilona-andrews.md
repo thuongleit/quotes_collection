@@ -1,0 +1,244 @@
+ - I just had to stay cool. Zen. No punching in the face. Punching would not be Zen.
+ - Now climb, young grasshopper, so your Kung Fu won’t be weak.
+ - If the sky could dream, it would dream of dragons.
+ - Only poor people are weird. Rich people are eccentric.
+ - The phone rang. I picked it up. “Kate Daniels” “It’s me,” Curran said. “I – ” I hung up.
+ - Here, Kitty, Kitty, Kitty...
+ - When I’m with him, I can feel myself getting better. It’s like he’s picking up broken pieces of me and putting me back together, and I don’t even know he’s doing it. We never talk about it. We don’t go to therapy. He just loves me and that’s enough.
+ - Men and swords. My father said that if you put any able-bodied man, no matter how peaceful, into a room with a sword and a practice dummy and leave him alone, eventually the man would pick up the sword and try to stab the dummy. It is human nature.
+ - Do you know what separates adults from children? Self-discipline. We don’t want to go to work, we don’t want to do our chores, and we don’t want to make unpleasant decisions, but we do all those things because we’re aware of the consequences which will follow if we don’t.
+ - Put your badass face on and follow me.
+ - Need some help, Ass Kicker?
+ - I think you’re confused as to the nature of our relationship. You and I, we don’t get along. You’re a psychopathic control freak. You order me around and I want to kill you. I’m a pigheaded insubordinate ass. I drive you mad and you want to strangle me.
+ - I can’t give you the white picket fence, and if I did, you’d set it on fire.
+ - Maybe if I prayed to Miss Marple, she’d hook me up with a clue.
+ - People around me die. They drop like flies. I’ve gone through life leaving a trail of dead bodies behind me. My mother is dead, my guardian is dead, my aunt is dead – because I killed her, and when my real father finds me, he’ll move heaven and earth to make me dead.
+ - All men are liars. All women are liars, too.
+ - If a cultural reference flies over a man’s head, does it make a sound if nobody else gets it.
+ - What would I do without the moral compass of a teenage werewolf.
+ - I’m welding the bimbo room shut.
+ - One day I’ll kill him, you know. I glanced at her. She was deadly serious.
+ - Oh no, is it naked time?
+ - He caressed my cheek. “You came for me,” I whispered. “Always,” he told me.
+ - Cats randomly refuse to follow orders to prove they can.
+ - You’re problem is, you underestimate me because I’m a woman.
+ - Your master plan has holes big enough to drive a truck through.
+ - When you walk a dog on a short leash, she’s close enough to bite you.
+ - Beautiful I would never be. Striking, that I could manage.
+ - Had he expected me to hump her leg?
+ - I came to the table, pulled up a chair, and sat. “Everyone brought a pet. I feel left out.” An enthusiastic howl broke the silence, and Grendel bounded through the doorway. He galloped through the steak house, skidded on the floor, smashed into my chair, and dropped a dead rat on my lap. Awesome.
+ - No matter what happens, you will always be Pack. Because you have that loyalty and restraint. Not human, not whatever, but Kate. Unique and different, but not separate.
+ - True strength isn’t in killing – or ignoring – your opponent, it’s in having the will to shield those who need your protection.
+ - Keeping you safe keeps me in shape.
+ - Big bad merc, down with a basic hip toss. In your place I’d be blushing.
+ - Black hair, angelic face, and devil eyes.
+ - I don’t trust tragedies much. It’s easy to make a person sad by showing him something tragic. We all recognize when sad things happen: someone dies, someone loses a loved one, young love is crushed. It’s much harder to make a man laugh-what’s funny to one person isn’t funny to another.
+ - The sound of my name in his voice stopped me in midturn. I don’t know how the hell he did it, but whenever he said my name, it cut through all other distractions and made me pause, as if he’d clenched me to him and kissed me.
+ - He bared his teeth in a happy feral grin. My own personal psycho.
+ - Half-man, half-beast, all nightmare. The shapeshifter warrior form.
+ - Go home, kiss your wives, hug your children and put your affairs in order, because tomorrow I will burn your neighborhood to the ground. We will kill you, your families, your neighbors, your pets, and anyone who will stand in our path. An attack on my family will not go unpunished.
+ - But she was funny sometimes, and never boring. God, it would almost be worth it to see her face when she realized that I had saved her ass again. Actually it was quite a nice ass, come to think of it. In fact, my memory of the ass and its owner seemed to be remarkably clear.
+ - And just when I thought the pain had dulled, my mind would betray me and bring Dad back to life in my dreams. Sometimes I didn’t realize that he was dead until I awoke and then it was like a punch in the stomach. And sometimes I knew in my dream that I was dreaming, and I woke up crying.
+ - Yep, Atlanta was burning. Again.
+ - Kate Daniels, trained negotiator. When in possession of some valuable information, give it away to the first sexy man you see with no guarantee of return.
+ - What do you mean fainted? Took a dive, kissed the pavement. Swooned like a southern belle after her first kiss. Had a dreadful case of the vapors.
+ - I had an appointment with a sexual deviant and I didn’t want to be late.
+ - You sure you don’t want me to stay? I’ll make you coffee and ask you about your day.
+ - Bad days, good days, ‘I’ll cut you if you look at me the wrong way’ days. I’ll take them all.
+ - Help me, I can’t breathe, your ego is pushing all the air out of the room.
+ - She can tell you the height of the attacker from the trigonometry of the blood spatter, while I’m fuzzy on what trigonometry is.
+ - And men my prophet wail deride!
+ - I’ve never seen such a collection of idiots in my whole life.? Doolittle shook his head. ‘If you participate in this lunacy, y’all will get yourselves killed. Then don’t come crying to me.’ Now that would be a neat trick.
+ - It’s awful to be rich and mind-boggingly handsome and have women fawn over you. My heart bleeds for you. Poor dear, how do you manage?
+ - I’d give him a cup of coffee and a big helping of a knuckle sandwich. Generosity was a virtue and I was in the mood to be extremely virtuous.
+ - Technically, the dance worked best when done naked, but I didn’t feel like prancing in the nude into Morrigan Hound’s arms. I’m sure he’d be thrilled to see me.
+ - Ve haf vays of making you gif us your DNA sample.
+ - There is no such thing as privacy between a deity and his worshipper. There are no secrets, no glossed-over failures. Only promises kept and abandoned, sins committed and imagined, and raw emotion. How many of us are ready to have our lives judged? What would happen if we were found wanting?
+ - You look like Curran. You have that pissy exasperated look on your face.
+ - Kate Daniels, deadly swordmaster. Fear my twitching pinkie.
+ - Curran and I mixed about as well as glycerin and nitric acid: put us together, shake a bit, and hit the deck as we exploded.
+ - I could have fixed almost everything else, but death defeated me every time.
+ - Look at my big teeth. I’m an apex predator. My genetic material is awesome.
+ - Living in your dreams meant bitter disappointment when you woke up.
+ - I got a dog-training book. It says Grendel needs mental stimulation, so I tried to train him, but I think he must be retarded.
+ - I love you, and you’re the measure of my wrath. Declan.
+ - Peope, especially unhappy people, want a cause. They want something to belong to, to be a part of something great and bigger, and to be led. It’s easy to be a cog in a machine: you don’t have to think, you have no responsibility. You’re just following orders, doing as you’re told.
+ - Every time I think you’ve reached the limits of arrogance, you show me new heights. Truly, your egotism is like the Universe – ever expanding.
+ - Life was too short and ended too suddenly. If you didn’t take advantage of what you had today, tomorrow it might be ripped from you.
+ - In death, they all looked the same. This morning they spoke, they breathed, they kissed their loved ones good-bye. And now they lay dead. Gone forever.
+ - Anger – a better alternative to caffeine.
+ - The kid was so handsome, he almost looked unreal.
+ - My ego doesn’t need soothing. I don’t want him soothing anything of mine, including you.
+ - Some women waited for a night in shining armor. She, apparently, had ended up with a knight in black jeans and leather, who wanted to chase her down and have his evil way with her.
+ - At the core, our motives are always self-serving, Kate. Altruism is a fog created by sly minds seeking to benefit from the energy and skill of others. Nothing more.
+ - Shapeshifter parenting motto – if your kid slit somebody’s throat, always have a backup plan to make the body disappear.
+ - First rule of bodyguard detail: know where your ‘body’ is at all times.
+ - Everyone had a weakness. It was the law of nature that for each being there was a predator, or a disease, or a vulnerability built into their very core.
+ - Somewhere in that database my name sat in its own little niche, the name of a reject, undisciplined and worthless. Just the way I liked it.
+ - I stopped the blade two inches before it touched Andrea’s neck. Because she was my best friend, and sticking knives into your best friend’s windpipe was generally considered to be a social faux pas.
+ - Having a fling with you doesn’t appeal to me. You’re handsome, but you’re too inexperienced to be good in bed. Having ridden many horses doesn’t make you a good rider; it just proves that you can’t recognize a good one or don’t know how to keep her.
+ - Failure happened. The trick was to accept the risk and try anyway.
+ - Wiggles hissed as I crossed the floor toward the throne. She fixed me with her empty hateful eyes and smelled the air, her long tongue shivering through the slit of the lipless mouth. Nice to see you too, sweetheart. Remember my cattle prod?
+ - Just to make sure the odd humanoid aberration doesn’t get away, always pin it through the nuts.
+ - They’re fanatics. It’s like expecting humanity from a falling rock. It’s not going to have a fit of compassion and not crack your skull open.
+ - People can snap. People have a limit. And some people are just plain nuts.
+ - Julie was an issue riding on an issue and using a third issue for a whip.
+ - Magic could not be measured and explained in scientific terms, for magic grew through destroying the very natural principles that made science as people knew it impossible.
+ - The Dude just pounded his way in a straight line, convinced that the lion was a figment of his imagination and that the vampire ahead of him was just Grendel’s deformed mutant brother.
+ - Settle down, Princess. It’s not my first time.
+ - Butterflies were small and light, and very magic sensitive. For some reason I made them feel safe and they gravitated to me like iron shavings to a magnet. They ruined my ferocious badass image, but you’d have to be a complete beast to swat butterflies.
+ - Rumors said that if he got drunk enough, he sometimes got his jollies by stripping naked and scaring hikers out in the Broken into thinking he was Bigfoot.
+ - The Beast Lord way: often wrong but never in doubt.
+ - Strawberry Shortcake called, she wants her outfit back.
+ - Go to the Black Sea, meet new people, see beautiful places, get killed by a mutant carnivorous kangaroo goat. One item off my bucket list.
+ - Your headlights don’t scare me.
+ - Some people got vicious Dobermans. I got a shaved attack poodle in a black sweater. His tough, spawn-of-hell image had taken a fatal blow, but at least he would be warm.
+ - I wouldn’t want his demonic, undead-blood-smeared, wolf-smelling ass riding me either.
+ - On your best day, you’re only as good as I am on my worst with one arm tied behind my back.
+ - It’s a reflex. Hear a bell, get food. See an undead, throw a knife. Same thing, really.
+ - Why couldn’t she have gotten another Edger or some dimwit from the Broken for a passenger? No, she got Lord Leather Pants here.
+ - The sight of me puffing and straining apparently amused him to no end.
+ - My investigative technique mostly consisted of going through the list of interested parties and making as much noise as possible, until the culprit lost his patience and tried to shut me up.
+ - Curran looked back at me. “Why is it you always attract creeps?” “You tell me.” Ha! Walked right into that one, yes, he did.
+ - Oh my God, she was retarded and I was going to kill Jim.
+ - Long strands of drool stretched from between his fangs and dripped on the pavement, sending a heady scent of jasmine to swirl through the air. Perfumed monster spit. What was the world coming to?
+ - It’s not your job to die for your Pack! It’s your job to make the other bastards die for theirs.
+ - I dreamed that Curran and I killed a dinosaur and then had sex in the dirt.
+ - Shave that jaw, brush that hair, tone down the crazy in the eyes, and he would have to fight women off with that crossbow.
+ - Everybody has something, that one thing they must do to feel happy. I think this is yours, and I want you to be happy. You don’t have to do it, but it’s here if you choose to come back to it.
+ - Getting a lecture on restraint from the woman who threw a hissy fit and blew up Babylon.
+ - I picked up the phone and dialed Andrea’s extension. “Yes?” “He glued the chair to my ass.” Silence.
+ - Derek favored his left side. His horse refused to bear him. I couldn’t blame the horse. I wouldn’t want his demonic, undead-blood-smeared, wolf-smelling ass riding me, either. But it made us slow.
+ - I don’t want it to be attributed to a loss of control on my part. When I throw you out of the window, I want there to be no doubt the act was deliberate.
+ - The universe shrank to Curran and his pain. I had to break him free. Nothing else mattered.
+ - Georgie, stop trying to resurrect the shoes. They were never alive in the first place.
+ - A girl half my age swept by and slammed two giant tankard filled with beer on the table. Ragnvald held his up. I smashed my tankard against his. Beer splashed. We raised the tankard and pretended to take much bigger gulps than we did.
+ - You said sloppy! Look, I didn’t even use my sword; I hit him with my head, like a moron.
+ - He was going to take a dive into this lake. He just didn’t know it. Cerise rose, finding footing in the soft mud. The water came up to just below her breasts and her wet shirt stuck to her body. William’s gaze snagged on her chest. Yep, keep looking, Lord Bill. Keeeeeep looking.
+ - He gave an impression of coiled power, a contained violence that if released, would explode with terrifying intensity.
+ - As one, the shapechangers turned and looked at me. I wondered what they’d do if I asked to borrow a cup of sugar.
+ - Just once I want it to be easy and neat. But no, there is never a good decision. I pick what I can live with.
+ - Shifting in the hospital bed had blown her closet door wide open.
+ - May I say that I am delighted that my favorite alpha is feeling better. Why, you’ll be running recklessly into danger against overwhelming odds anytime now.
+ - On the other hand it was bad manners to look a gift horse in the mouth. Even if you’re getting it from an overweight cracker in a fringe shirt.
+ - Rose pictured him standing at the boundary of the Ogletree house in that enormous fur cape, with a giant sword sticking over his shoulder, roaring at the top of his lungs and then being upset that nobody came out, and laughed.
+ - I gave him my best cryptic smile. He did not fall down to his feet, kiss my shoes, and promise me the world. I must be getting rusty.
+ - Just reflecting on the fact that when the Universe punches you in the teeth, it never just lets you fall down. It kicks you in the ribs a couple of times and dumps mud on your head.
+ - In diplomacy, like in great many other things, the rules of engagement survive only until one remarkable person decides to break them.
+ - He had the prettiest hair she had ever seen on a man: dark brown, almost black, and soft like sable, it fell down to his shoulders. She wondered what he’d do if she threw some mud in it. Probably kill her.
+ - Yes, I’m too mad to punish you right now. We’ll talk about it when we get home. Go brush your teeth, comb your hair, put on dry clothes, and get the guns. We’re going to Wal-Mart.
+ - I raged across the field, killing all before me. They ran when they saw me coming, and I chased them down, and killed them before they could take someone else’s friend away from them.
+ - Crazy Curran ranked right up there with monsoons, tornadoes, earthquakes, and other natural disasters.
+ - I wouldn’t be able to do anything with my vampire horde except make it run around in a herd, but it would be a very impressive herd.
+ - We were screwed and he didn’t even kiss us first.
+ - She eats grass. Don’t ask.
+ - Judging by the hard lines of his face and the flat look in his eyes, he’d left the Marines, but the Corps hadn’t quite left him.
+ - I had the metabolism of a hummingbird on crack.
+ - Your favorite volhv showed up half an hour ago, complaining about his lack of sleep and stupid gods. He says he brought his Batman belt.
+ - I tried to picture a female version of Jim and got Jim in a dress instead. The image was disturbing.
+ - I’m going to kick you in the head when I get home. Repeatedly.
+ - I would not leave you. I’ll be there. Wherever you want ‘there’ to be.
+ - The idiot had shot their own dog. That’s what happened when the destructive potential of a man’s weapons exceeded his intelligence.
+ - Curran grinned and my heart made a little jump. I didn’t expect that. “That’s it? That’s your witty comeback?” “Yep.” Eloquence ‘R’ Us. When in trouble, keep it monosyllabic – safer that way.
+ - You don’t cause problems. You cause catastrophes.
+ - If I lost him here, to this idiotic fight, after I fought and guarded him for two weeks, after I cried and thought he was dying, I would find him in the afterlife and I would murder him again.
+ - There was something very comforting about him, and I was not sure if it was his easy manner or his complete immunity to my scowling.
+ - I’d signed six things and my stack wasn’t getting any smaller. It was like the paperwork was breeding while I worked.
+ - I did deranged quite well, when the occasion called for it.
+ - Whatever storm was brewing, I’d find it and fight it. If it was the price of being with Curran, then I would pay it. He was worth it.
+ - Ask a man how much a dollar is worth, and he’ll tell you, ‘Almost nothing.’ Try to take a dollar away from him, and you’ll get yourself a fight.
+ - Cute. I think I would prefer to be stabbed in the eye rather than be called cute.
+ - You fellows ever thought of hiring out as a Christmas lights crew? You’d make a fortune.
+ - If you can’t make it go away, wait it out.
+ - She could’ve stared into those eyes for a thousand years and never noticed the time passing by.
+ - The kind of eyes that jumped from a woman’s dreams right into her morning and made trouble in the marriage bed.
+ - I dropped all the guards. All the leashes, all the chains, everything that ever restrained me through the discipline and fear of discovery, I let it all go. No need to hide.
+ - I know people who will gently persuade you to be forthcoming.
+ - I’ve never created a riot before. I did cause a brawl at the last formal. A large number of young women there actually arrived with the expectation of seducing me into matrimony, and a couple of their mothers came to blows. It was hilari – I mean, dreadful. Simply dreadful.
+ - Aunt B walked out onto the helipad wearing loose yoga pants. “I’m just here to stretch. Kate, want to help?” “Sure.” Thirty seconds later, as I was flying through the air, I decided that this wasn’t the best idea.
+ - The door swung open and Kate walked in. Her jeans and T-shirt were splattered with blood and she was carrying a severed vampire head. The T-shirt has a smiley face on it.
+ - Nice plan. Take the gullible outsiders, walk them around for a bit, then feed them to the giant tortoise.
+ - On a scale from one to ten, the Pack was eleven and everything else a one.
+ - What is wrong with you? Many, many things.
+ - I can’t hate people that much. Don’t get me wrong. I want to murder every last Keeper I can find. But that’s not hate. That’s vengeance.
+ - I gave him a smile. I was aiming for sweet, but he turned a shade paler and scooted a bit farther from me. Note to self: work more on sweet and less on psycho-killer.
+ - I turned and bumped by head against his chest a few times. It was the nearest hard surface.
+ - Because he has the best equipment in the City and he knows how to use it!
+ - Did the Order return your sense of humor as part of the severance package?
+ - Did I ever tell you that you are like sunshine in the middle of the night?
+ - No. I don’t go through your things. I just come once in a while to make sure you’re in one piece. I like knowing you’re safe, asleep in your bed. I haven’t stolen anything...
+ - It was his eyes. When you looked into them, you saw chained violence baring teeth and claws back at you.
+ - If he full-out flexed, I would probably faint, or jump off the building.
+ - As I walked back to civilization, I realized that for the first time in the six months I had known Curran, we had managed to have a conversation and part ways without wanting to kill each other. I found that fact deeply troubling.
+ - Why could nothing with Kate be simple? Why couldn’t Jim ever just come by to tell me that he had bowled a perfect game or benched a personal best. Maybe finally asked that weird tiger girl out.
+ - It a dude and a girl, and the house and wooo scary things happen and then they kill everything.
+ - Lyc-V is a jealous virus. It exterminates all other invaders with extreme prejudice.
+ - I trusted her about as far as I could throw her. I was strong and she was small, but it still wasn’t very far.
+ - The knocking persisted. It wasn’t Derek. His knock would be careful, almost apologetic. This bastard knocked like he was doing me a favor.
+ - Curran is the Beast Lord. Tremble.
+ - If a man takes you to a restaurant of his choosing, don’t compliment him. Rave about the quality of the food and he’ll be thrilled, because he took you there.
+ - One day, she’d find a way to live her life to the fullest. She was sure of it. She just had no idea how she would manage it.
+ - The decorator of Las Colimas must have been a great admirer of both early Aztec and late Taco Bell architectural styles.
+ - The Order of Merciful Aid provided merciful aid, usually on the edge of a blade or the burn of a bullet.
+ - I’m investigating people who sacrifice trained killers to dark gods. Perfect, it will keep him occupied. In what capacity? Bait.
+ - She had wailed loudly enough to wake the dead and make them call the cops.
+ - Roland had sworn off children – they kept trying to kill him.
+ - He snarled. I showed him my teeth. A rolled-up newspaper landed on my head and then on Jim’s. “None of that in my house!” Oh my gods. The alpha of Clan Cat just got smacked with a rolled-up newspaper.
+ - He stepped forward, took a deep breath, and doubled over in a sneezing fit. My werewolf was allergic to tortoises. Why me?
+ - I don’t know if you heard, but I kind of run this place.
+ - It was one of those idiotic things that could’ve been resolved in a split second. Tara had no right to touch Raphael, and once she did he had every right to punch her. She should’ve left it at that, and now she was dead because she didn’t.
+ - He’d laugh in my face, then I’d slice him to ribbons and then he’d break my neck.
+ - I make a bad mom, but I can pull off a crazy aunt.
+ - Sometimes, when you crave certain feelings, you’ll trick yourself into thinking the other person is something other than what he apears.
+ - Some people had attack dogs. Ghastek had attack lawyers.
+ - The dark scary servant of all evil was on his way to rescue me. Somehow that thought failed to make me warm and fuzzy.
+ - Sure, I didn’t weigh a hundred and ten pounds, but my narrow waist let me bend and I could break a man’s neck with my kick.
+ - He kissed me, and I pulled my personal psycho into bed with me.
+ - Some men got excited by white lace and a translucent negligee. My love muffin got excited by a woman dressed to murder. There was probably something deeply twisted about that. Lucky for me, negligees were never my thing.
+ - The rabbis paled. I’d managed to terrify holy men. Maybe I could beat up a nun for an encore.
+ - It was the kind of sword that would make a lifelong pacifist look for tall boots and a hat with feathers.
+ - He said “woman” in the same way I’d say “Mmmmm, yummy chocolate” after waking up from hunger pains and finding a Hershey bar in an empty refrigerator.
+ - Just stay close to us. If we get in trouble, we’ll kill everything.
+ - In the whole world, there was no better place than being wrapped in him.
+ - A pissy werelion was rather difficult to live with.
+ - If my luck held, it wouldn’t be a handsome Greek demigod looking for the love of his life or at least his love of a couple of hours.
+ - Two years? That’s entirely too long. If you want, we can take care of that. After two years it’s pure therapy.
+ - Had records so stellar, they had to lock their resumes in a drawer at night, so the golden light streaming from the pages wouldn’t keep them awake.
+ - He groaned and I saw his face. “Curran!” I would’ve preferred a homicidal lunatic. Oh, wait...
+ - Syphilis. Lots and lots of magically delicious Syphilis.
+ - After I chased the werewolf and the vampire out of my office, I changed my clothes.
+ - Were you watching me sleep? Because I thought we agreed that’s creepy.
+ - Every handsome man had a flaw. It was just her luck that in William’s case that flaw was lunacy.
+ - A ghastly attempt at a smile, sure to send any normal person to a therapist.
+ - Seducing him in the tub smelling of vinegar was out of the question. There had to be some boundaries.
+ - It was the kind of place you went when your earthly troubles became too much for you and you were looking for a creative way to commit suicide.
+ - Well, check this out. Mine is bigger.
+ - She put her hand on her hip. “Where are you going?” “To the boat. You called me Lord Bill again. That means we’re cool.” Cerise slapped her forehead with the heel of her hand and followed him.
+ - Kate had never met a person she didn’t want to protect, preferably by hacking at the hostile parties with her sword.
+ - Nothing kills a party like an oversize metal hedgehog.
+ - I batted my eyelashes and did my best to appear dumb as a board.
+ - Her face looked like it would shatter any second.
+ - Rene, you want us to find you-don’t-know-who and to retrieve his you-don’t-know-what for you-won’t-tell-me-whom?
+ - I chuckled to myself and kept walking. The Universe had proven Curran wrong: a person who aggravated him more than me did, in fact, exist.
+ - Just so you know: if a rakshasa shows up, I left my sword in the car.
+ - Superstitions add texture to life.
+ - They hold a grudge like it was their family treasure.
+ - I had to give it him, to flatter and insult a woman in one propostition took talent.
+ - Now was not a good time, but we didn’t often get to chose the time to repay our debts.
+ - I want to punish them. I want that punishment to be so hard, so vicious that the next who takes their place wets himself at the mere thought of trying to fight me.
+ - The first magic wave kicked the world in the face.
+ - Great, now I’ve turned into a manga character who repeated everything everyone said.
+ - Now Julie could stay here, in the Keep full of homicidal maniacs who grew teeth the size of switchblades and erupted into a violent frenzy when threatened.
+ - Your ability to remain alive never ceases to amaze me.
+ - Kate’s Speciality: Killing things, with much bloodshed. Talking trash, infuriating authority. Driving Beast Lord crazy.
+ - This was hell and I was its fury.
+ - I wondered if kicking him in the head would make the whole explanation pop out of his mouth in one chunk.
+ - Nobody ever died of being shot by a cookie.
+ - Perhaps I just wasn’t scary enough. Maybe I should invest in some horns or fangs.
+ - I glanced at Derek. The boy wonder didn’t melt into a pile of goo, although his gaze was glued to Rowena’s chest. Avoiding eye contact. Good strategy.
+ - It’s never a good thing when the black volhv says “Uh-oh” and then runs for his life.
+ - We were not finished yet, not even close. I could still smell her. I remembered what she felt like. What she tasted like. This wasn’t a casual sexual thing. This was a mating. I would have Kate as my mate. Whatever it took, no matter how long, she would be with me.
+ - Vampires smiled for many reasons, but when a vampire male smiled at you from this distance with that kind of look in his eyes it was done for one purpose only: to impress. Look at my big teeth. I’m an apex predator. My genetic material is awesome.
+ - Morfran thrust his axe straight up. He pretty much seemed to have one sign for everything: poke a hole in the sky.
+
+242 quotes

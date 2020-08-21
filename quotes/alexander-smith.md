@@ -1,0 +1,88 @@
+ - Christmas is the day that holds all time together.
+ - A man’s real possession is his memory. In nothing else is he rich, in nothing else is he poor.
+ - Everything is sweetened by risk.
+ - A bottomless pit of violence, a Tower of Babel where all are speakers and no hearers.
+ - A tender sadness drops upon my soul, like the soft twilight dropping on the world.
+ - In the entire circle of the year there are no days so delightful as those of a fine October.
+ - Happiness never lays its finger on its pulse. If we attempt to steal a glimpse of its features it disappears.
+ - The dead keep their secrets, and in a while we shall be as wise as they – and as taciturn.
+ - If you wish to preserve your secret, wrap it up in frankness.
+ - A man does not plant a tree for himself; he plants it for posterity.
+ - A man gazing at the stars is proverbially at the mercy of the puddles in the road.
+ - Every day travels toward death; the last only arrives at it.
+ - The sea complains upon a thousand shores.
+ - There is no ghost so difficult to lay as the ghost of an injury.
+ - My friend is not perfect-no more than I am-and so we suit each other admirable.
+ - Stirling, like a huge brooch, clasps Highlands and Lowlands together.
+ - Looking forward into an empty year strikes one with a certain awe, because one finds therein no recognition. The years behind have a friendly aspect, and they are warmed by the fires we have kindled, and all their echoes are the echoes of our own voices.
+ - In life there is nothing more unexpected and surprising than the arrivals and departures of pleasure. If we find it in one place today, it is vain to seek it there tomorrow. You can not lay a trap for it.
+ - My heart like moon-charmed waters, all unrest...
+ - I go into my library and all history unrolls before me.
+ - Yet through all, we know this tangled skein is in the hands of One, Who sees the end from the beginning: He shall unravel all.
+ - In my garden I spend my days; in my library I spend my nights.
+ - We are never happy; we can only remember that we were so once.
+ - Thoughts must come naturally, like wild-flowers; they cannot be forced in a hot-bed, even although aided by the leaf-mould of your past.
+ - Love is but the discovery of ourselves in others, and the delight in the recognition.
+ - If a man is worth knowing at all, he is worth knowing well.
+ - Failure and success are not accidents, but the strictest justice.
+ - Fine phrases I value more than bank-notes. I have ear for no other harmony than the harmony of words. To be occasionally quoted is the only fame I care for.
+ - Eternity doth wear upon her face the veil of time. They only see the veil, and thus they know not what they stand so near!
+ - If the egotist is weak, his egotism is worthless. If the egotist is strong, acute, full of distinctive character, his egotism is precious, and remains a possession of the race.
+ - We twain have met like the ships upon the sea, Who behold an hour’s converse, so short, so sweet: One little hour! and then, away they speed On lonely paths, through mist, and cloud, and foam, To meet no more.
+ - The greatness of an artist or a writer does not depend on what he has in common with other artists and writers, but on what he has peculiar to himself.
+ - Fame is but an inscription on a grave, and glory the melancholy blazon on a coffin lid.
+ - To sit for one’s portrait is like being present at one’s own creation.
+ - We bury love; Forgetfulness grows over it like grass: That is a thing to weep for, not the dead.
+ - Pleasure has no logic; it never treads in its own footsteps.
+ - A poem round and perfect as a star.
+ - Sweet April’s tears, Dead on the hem of May.
+ - In my garden, care stops at the gate and gazes at me wistfully through the bars.
+ - My garden, with its silence and pulses of fragrance that come and go on the airy undulations, affects me like sweet music. Care stops at the gates, and gazes at me wistfully through the bars.
+ - If you do your fair day’s work, you are certain to get your fair day’s wage – in praise or pudding, whichever happens to suit your taste.
+ - There is a certain even-handed justice in Time; and for what he takes away he gives us something in return. He robs us of elasticity of limb and spirit, and in its place he brings tranquility and repose – the mild autumnal weather of the soul.
+ - Every man’s road in life is marked by the grave of his personal likings.
+ - Not on the stage alone, in the world also, a man’s real character comes out best in his asides.
+ - In my garden I spend my days, in my library I spend my nights. My interests are divided between my geraniums and my books. With the flower I am in the present; with the book I am in the past.
+ - The pale child, Eve, leading her mother, Night.
+ - Trees are your best antiques.
+ - A single soul is richer than all the worlds.
+ - The saddest thing that befalls a soul is when it loses faith in god and woman.
+ - If we were to live here always, with no other care than how to feed, clothe, and house ourselves, life would be a very sorry business. It is immeasurably heightened by the solemnity of death.
+ - I would rather be remembered by a song than by a victory.
+ - The world is not so much in need of new thoughts as that when thought grows old and worn with usage it should, like current coin, be called in, and, from the mint of genius, reissued fresh and new.
+ - Men praise poverty, as the African worships Mumbo Jumbo – from terror of the malign power, and a desire to propitiate at.
+ - There is nothing good in this world which time does not improve.
+ - God has thickly strewn infinity with grandeur.
+ - A great man is the man who does something for the first time.
+ - A man can bear a world’s contempt when he has that within which says he’s worthy. When he contemns himself, there burns the hell.
+ - Death is the ugly fact which Nature has to hide, and she hides it well.
+ - How deeply seated in the human heart is the liking for gardens and gardening.
+ - It is a characteristic of pleasure that we can never recognize it to be pleasure till after it is gone.
+ - Vanity in its idler moments is benevolent, is as willing to give pleasure as to take it, and accepts as sufficient reward for its services a kind word or an approving smile.
+ - If you wish to make a man look noble, your best course is to kill him. What superiority he may have inherited from his race, what superiority nature may have personally gifted him with, comes out in death.
+ - It is not of so much consequence what you say, as how you say it. Memorable sentences are memorable on account of some single irradiating word.
+ - Good-humor and, generosity carry day with the popular heart all the world over.
+ - The globe has been circumnavigated, but no man ever yet has; you may survey a kingdom and note the result in maps, but all the savants in the world could not produce a reliable map of the poorest human personality.
+ - A brave soul is a thing which all things serve.
+ - Seated in my library at night, and looking on the silent faces of my books, I am occasionally visited by a strange sense of the supernatural.
+ - The spot of ground on which a man has stood is forever interesting to him.
+ - To be occasionally quoted is the only fame I care for.
+ - The discovery of a grey hair when you are brushing out your whiskers of a morning – first fallen flake of the coming snows of age – is a disagreeable thing...
+ - To-day is always different from yesterday.
+ - An old novel has a history of its own.
+ - One never hugs one’s good luck so affectionately as when listening to the relation of some horrible misfortunes which has overtaken others.
+ - Pride’s chickens have bonny feathers, but they are an expensive brood to rear. They eat up everything, and are always lean when brought to market.
+ - The man who in this world can keep the whiteness of his soul is not likely to lose it in any other.
+ - The truly great rest in the knowledge of their own deserts, nor seek the conformation of the world.
+ - The only thing a man knows is himself.
+ - To bring the best human qualities to anything like perfection, to fill them with the sweet juices of courtesy and charity, prosperity, or, at all events, a moderate amount of it, is required, – just as sunshine is needed for the ripening of peaches and apricots.
+ - Trifles make up the happiness or the misery of mortal life.
+ - To have to die is a distinction of which no man is proud.
+ - Nature never quite goes along with us. She is somber at weddings, sunny at funerals, and she frowns on ninety-nine out of a hundred picnics.
+ - Death takes away the commonplace of life.
+ - Winter does not work only on a broad scale; he is careful in trifles.
+ - I have learned to prize the quiet, lightning deed, not the applauding thunder at its heels that men call fame.
+ - Style, after all, rather than thought, is the immortal thing in literature.
+ - A thought may be very commendable as a thought, but I value it chiefly as a window through which I can obtain insight on the thinker.
+
+86 quotes

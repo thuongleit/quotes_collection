@@ -1,0 +1,28 @@
+ - A father is the template of a man Nature gives a girl.
+ - When you’re young your mother shields you from the world because she thinks you’re too young to understand, and when she’s old you shield her because she’s too old to understand – or to have any more understanding inflicted upon her. The curve of life goes: want to know, know, don’t want to know.
+ - I forget the derivation of Boxing Day, but the feeling of wanting to invite your loved ones outside one at a time and punch them in the face, does that come into it somewhere?
+ - The great thing about unrequited love is it’s the only kind that lasts.
+ - People say that time is a great healer. Which people? What are they talking about? I think some feelings you experience in your life are written in indelible ink and the best you can hope for is that they fade a little over the years.
+ - A mother of a one-year-old boy is a movie star in a world without critics.
+ - My mother was a stay-at-home mom until I was about 11, when she got a job – and it was like a light came on inside her. It’s not wrong to be passionate about your career. When you love what you do, you bring that stimulation back to your family.
+ - When you have kids, there’s a tendency to put the marriage stew on the back burner and give it a quick stir now and then. But it’s important to remember why you had children with this person.
+ - You learned that if you’re tired enough, you can sleep sitting up. That the unendurable is perfectly endurable if you just take it a minute at a time, and when the alternative is no more minutes ever...
+ - Oh, where is the Fairy Godmother of explanations when you need her?
+ - My ideals told me that men and women could both go out to work and be truly equal. My children told me something more complicated, something I really didn’t want to hear. Their need for me was like the need for water or light: it had a devastating simplicity to it.
+ - In death, we are not defined by what we did or who we were but by what we meant to others. How well we loved and were loved in return.
+ - Death itself is too big to take in, she already sees that; the loss comes at you instead in an infinite number of small installments that can never be paid off.
+ - Anyone suffering Downton Abbey withdrawal symptoms will find an instant tonic.
+ - My husband is old-fashioned and kind, he does the greatest Sinatra impression, and I’d never have written anything if he hadn’t read all those bedtime stories and unloaded the dishwasher while I slaved over chapters.
+ - Women run the small country called Home, millions of us do it in our spare time, and no one who doesn’t run that small country really knows what it feels like in the dead of night when task lists jitter like tickertape through your seething brain.
+ - The software program for motherhood is impossible to fully download into the male brain. You give them two tasks and they’re like, ‘I have to change the baby and get the dry cleaning?’
+ - No man would ever use both hands to hold a cup of tea, unless he was one day’s march from the South Pole, with one chum dead in the snow, dogs all eaten and six fingers about to drop off. And even then he would look around the empty tent to check, in case anybody thought it was girly.
+ - My child was one of Nature’s Tories pitted against a mother who was one of nurture’s Lefties: it was no contest.
+ - I don’t believe for a minute that women really want to be understood by men.
+ - God probably thinks it’s worth giving a sense of humor only to those of us who have to laugh at all the rubbish bits that are wrong with us.
+ - Men worry about childcare with their wallets, women feel it in their wombs.
+ - The quickest way to stop noticing something may be to buy it, just as the quickest way to stop appreciating a person may be to marry them.
+ - The best musicians answer something in you when you don’t even know the question.
+ - The times you don’t make it are the ones children remember, not the times you do.
+ - For centuries, the question of men needing to comprehend women simply didn’t arise. Men were valued according to how they measured up to the manly virtues.
+
+26 quotes

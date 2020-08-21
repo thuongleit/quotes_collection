@@ -1,0 +1,25 @@
+ - We all live under the same sky, but we don’t all have the same horizon.
+ - When everybody else thinks it’s the end, we have to begin.
+ - First make yourself unpopular, then you will be taken seriously.
+ - In view of the fact that God limited the intelligence of man, it seems unfair that He did not also limit his stupidity.
+ - The good Lord set definite limits on man’s wisdom, but set no limits on his stupidity.
+ - I do not ask to be young again; all I want is to go on getting older.
+ - We all live under the same sky, but we don’t all have the same horizon. In an instant age, perhaps we must relearn the ancient truth that patience, too, has its victories.
+ - What do I care about my chitchat from yesterday?
+ - To look back into the past only makes sense if it serves the future.
+ - As soon as you are complicated, you are ineffectual.
+ - God designed the stomach to eject what is bad for it, but not the human brain.
+ - All human organs eventually tire, only the tongue doesn’t.
+ - When the world seems large and complex, we need to remember that great world ideals all begin in some home neighborhood.
+ - The rare case where the conquered is very satisfied with the conqueror.
+ - Only the stupidest calves choose their own butcher.
+ - You have to take people as they are because there are no others.
+ - Kennedy cooked the soup that Johnson had to eat.
+ - Experiences are the seeds out of which wisdom grows.
+ - All that the socialists understand about money is the fact that they want it from others.
+ - The attack on Dresden, which was overflowing with refugees, on February 13th 1945 caused around 250,000 dead.
+ - A thick hide is a gift from God.
+ - There are things about which I don’t even talk to myself.
+ - The Good Lord hasn’t done this well: He placed limits on everything, except on stupidity.
+
+23 quotes

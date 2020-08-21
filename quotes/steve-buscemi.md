@@ -1,0 +1,42 @@
+ - Do you think god stays in heaven because he too lives in fear of what he’s created here on earth?
+ - It doesn’t matter to me what the genre is.
+ - What’s “God”? Well, you know, when you want something really bad and you close your eyes and you wish for it? God’s the guy that ignores you.
+ - When I was a fireman I was in a lot of burning buildings. It was a great job, the only job I ever had that compares with the thrill of acting.
+ - Just because people want to eat the burger doesn’t mean they want to meet the cow.
+ - I can’t relate to 99% of humanity.
+ - It’s always fun to get to do independent film because I believe that that’s the life blood of film. It’s about writers and directors who truly have their own vision, and that’s hard.
+ - Communication is the key, and it’s one thing I had to learn-to talk to the actors. I was so involved with the visual and technical aspects that I would forget about the actors.
+ - I’ve had dentists who have wanted to help me out, but I say, ‘You know, I won’t work again if you fix my teeth,’
+ - I don’t tend to think of the characters i play as losers. I like the struggles that people have, people who are feeling like they don’t fit into society, because I still sort of feel that way.
+ - I never want to feel like the way that I see it isthe only way. Sometimes mistakes happen and that’s better than whatyou thought the scene could be. You allow room for the possibilities.
+ - There’s a certain type of character that you can’t help but come in contact with growing up and living in Brooklyn and Long Island. A certain mixture of moxie, heart, and a wise guy sense of humor.
+ - Really interesting things come because you don’t know what the rules are, what you can and can’t do.
+ - Character actors just pile up the credits because you work on a movie for like a few days. It’s not like I’m the lead in everything I do – far from it. I’m not spending three or four months on a picture; I’m spending three or four weeks. Sometimes three or four days.
+ - By nature, I think I am a pretty private person, and that is what is hard even doing interviews for films that I really love doing, because in some ways, it diminishes the experience that I had.
+ - Nothing’s really changed for me over the years. I like telling stories about people with problems. I can’t really put it much simpler than that. Relationships are interesting to me. Not just between men and women but fathers and sons, brothers and sisters and friends.
+ - I was going to buy a van and move to LA so I could secretly pursue acting without any of my friends knowing.
+ - I like character-driven stuff. It doesn’t matter, the size of the part.
+ - I guess I don’t think about age too much. I’ve always felt older than I really am anyway. I’m not dreading getting older and I don’t miss the anxiety of being younger.
+ - It doesn’t matter what part I play, I try and commit myself 100 percent.
+ - Anything you write, even if you have to start over, is valuable. I let the story write itself through the characters.
+ - I had a magic kit. I never really followed through on it, but I had my phase of wanting to do it, sure.
+ - Whenever you do something that is in a continuous take, and something that we’re not used to doing, because it was all in the details of if you don’t make one move seem natural it can give away all of it.
+ - The first movie I had a featured role in was Parting Glances.
+ - I hope I don’t make it sound like it’s this big to-do, but even putting on real cufflinks takes work.
+ - I never had any master plan about directing, and I don’t really write.
+ - I have a dresser, who literally is a guy who makes sure the tie is right. It’s a little bit of a process. I could probably do it by myself, but it would take me three times as long.
+ - I don’t blame any director for wanting to do something more commercial. That’s all part of the business. I certainly have done it, as an actor.
+ - I think all comics borrow from each other. Only a few have an original voice, and I wasn’t one of them. In the end, I couldn’t figure out who to steal from, so I stopped doing it.
+ - I never did improv professionally, but that was certainly in my training as an actor. I like it. Actually, when I did theater, I used to have a partner, and that was the way we used to write a lot of our sketches, through improvisation. So it’s something I feel comfortable with.
+ - Oftentimes you’ll see stuff that makes it into the mainstream that has been influenced by things that are clearly not from the mainstream.
+ - Usually, I only get to work a few weeks on a movie, or I often don’t make it to the end of the movie because I’m disposed of.
+ - I don’t think I’m that much different from any other working actor that’s trying to make a living.
+ - They’re not supposed to show prison films in prison. Especially ones that are about escaping.
+ - All the roles I play, I don’t see any of my roles in films that they’re typically leading men.
+ - I’m terrible at story and structure, but I’m not so bad at writing dialogue.
+ - I’ve never had a grand plan. I’ve only just tried to keep open to many different possibilities, have fun and work with people who are passionate about what they do.
+ - I usually get freaked out if I’m in a situation where a lot of people recognise me at once.
+ - It wasn’t until my senior year in high school that I started acting.
+ - I was very surprised that for a while I could only get cast as straight. It was that way for a few years.
+
+40 quotes

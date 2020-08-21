@@ -1,0 +1,41 @@
+ - I’m like a boomerang, I always come back.
+ - I love ‘Breathless,’ and ‘Paris, Texas,’ and ‘Badlands.’ I was obsessed with those films in my teens. I remember watching ‘Badlands’ and being amazed that there were these scenes in which nobody said anything and the silence told the whole story.
+ - I’d like a relationship that was like two tree trunks side by side, strong but independent.
+ - I definitely believe that love conquers all, yes.
+ - I’m not oblivious to that connotation of changing careers, so I’m just going in and doing the job. I think that you can’t fake doing the job. All I want to do is deliver. That’s my focus.
+ - I dress like a tomboy.
+ - I’ve always been really private about my personal life. I don’t talk about it.
+ - Laughing is, like, my favorite thing to do.
+ - If you have a connection to someone, it doesn’t matter what their exterior is.
+ - When I first started modelling, as I was walking down the catwalk I just thought, ‘Please don’t fall over, please don’t fall over, please don’t fall over!’
+ - It is so inspiring when you come across a woman who is very strong and dedicated and is amazing at what they do. That’s how I feel about Meryl Streep. You watch her, and you can’t help but notice all of that about her. She’s so influential.
+ - I can’t do modeling disconnected. And I thought, “What do I like? What do I love about modeling?” And what I love is that it’s such a creative process, with a bunch of people, and I wanted that more, which is how the acting thing came about.
+ - For modeling, I was always creating characters. I dress like a tomboy. So, when I’d go into a shoot, there’d be all these dresses, and I’d say to myself, ‘Okay, this isn’t me. It’s somebody else. So, who is this person?’ Acting is the next level of that.
+ - I’ve always got on with lads, more than I have with girls.
+ - I’ve never had formal drama-school training; I’ve just picked things up as I’ve gone along.
+ - I suppose I have stopped modeling officially. I’ve not done any for a good long while now. I think it was four years ago when my feelings were changing towards the industry. I didn’t hate it, but I was yearning to do something different. I was on a gradient. It was a gradual thing.
+ - To be supportive of myself, I have to go with what I want to do. I started acting and I was so mesmerized.
+ - I suppose each project is a new thing, so there’s all this excitement and nerves about this new thing. Every single thing is like a new thing, so it’s never what I expect. I don’t know what to expect for the next thing. There are always different people. It’s interesting.
+ - I want to play positive role models – women who mean something to other women.
+ - I don’t expect that because I was successful in one field that I will then get a ride of passage into another.
+ - Modelling is only about the look. In acting, it’s the feel that matters.
+ - Everything about acting drives me and gives me the need to really try it. It’s an evolution – doing the same thing for 12 years is kind of a chunk. Anyone would be up for a little bit of a change. It is so rewarding to do a movie, and so enjoyable. It’s hard work, but really wonderful.
+ - I don’t really see myself as a big supermodel.
+ - It will appeal to girls who are confident and have a strong personal expression of style and identity in the way that they dress and what this says about themselves.
+ - I feel like every project that I’ve been doing, I’ve learned something about myself. It’s like I’ve cracked something, or my vision of myself has gotten wider. I’m just learning and growing, and overcoming the fear.
+ - I’m not the new anything; I’m just Agyness.
+ - I don’t think a name defines the core of who you are.
+ - Well, I suppose I’ve never really had a lifestyle that needs upkeep. I don’t get cabs; I’m on the Tube with my Oyster card.
+ - I never knew modelling was what I wanted to do. I was just meandering through life having fun, having a laugh with my friends.
+ - For me, being onstage for an hour and a half, my confidence was really huge for me. Doing eight shows a week for a run, I was like: “I’m actually doing this.” And now I feel more confident going into something.
+ - A lot of stuff written about me is rubbish. I don’t know where they get it from, sometimes.
+ - Not just in modeling, but in society, there’s so much pressure about what a woman should be, and, of course, it’s just so unobtainable. You can never become that thing, because it’s such a projection.
+ - I think modelling was like the university of life, really. You get to travel but you get thrown into this adult world, which is kind of quite scary.
+ - I know I’m no Whitney Houston.
+ - I get on with all my exes, so there’s nothing I need to forget about. I don’t know – life is shorter than it seems.
+ - Fashion isn’t me, even though I work in it. It’s just materialistic stuff.
+ - I don’t really go to fashion parties; they’re not my scene.
+ - Being such a tomboy growing up, that was one thing that changed me as a person, as well. It broadened me, like me cracking myself open in a certain way.
+ - For modelling, you have to be such a strong person in a way – or seen to be a strong person, do you know what I mean? But in acting you have to get in touch with all the vulnerability that you carry.
+
+39 quotes

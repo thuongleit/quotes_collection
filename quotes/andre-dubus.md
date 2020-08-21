@@ -1,0 +1,50 @@
+ - Talent is cheap. What really matters is discipline.
+ - It is not hard to live through a day, if you can live through a moment. What creates despair is the imagination, which pretends there is a future, and insists on predicting millions of moments, thousands of days, and so drains you that you cannot live the moment at hand.
+ - The truth is life is full of joy and full of great sorrow, but you can’t have one without the other.
+ - Don’t quit. It’s very easy to quit during the first 10 years. Nobody cares whether you write or not, and it’s very hard to write when nobody cares one way or the other. You can’t get fired if you don’t write, and most of the time you don’t get rewarded if you do. But don’t quit.
+ - There are some beautiful books out there. But the ones that leave me cold are the ones where I feel – it’s that postmodern thing – it’s more experimentation with language than it is a deep compassionate falling into another human being’s experience.
+ - I think the deeper you go into questions, the deeper or more interesting the questions get. And I think that’s the job of art.
+ - I really think that if there’s any one enemy to human creativity, especially creative writing, it’s self-consciousness.
+ - We receive and we lose, and we must try to achieve gratitude; and with that gratitude to embrace with whole hearts whatever of life that remains after the losses.
+ - After the dead are buried, after the physical pain of grief has become a permanent wound in the soul, then comes the transcendent and common bond of human suffering, and with that comes forgiveness, and with forgiveness comes love.
+ - Fear is a ghost; embrace your fear, and all you’ll see in your arms is yourself.
+ - I was really surprised at the success of ‘House of Sand and Fog,’ because it is so awfully dark. Believe it or not, when writing it, I never had the word ‘tragedy’ in my head – I wasn’t trying to write a dark book at all.
+ - If you don’t put 99 percent of yourself into the writing, there will be no publishing career. There’s the writer and there’s the author. The author – you don’t ever think about the author. Just think about the writer. So my advice would be, find a way to not care – easier said than done.
+ - I see a lot of marriages crash and burn around me and my wife. I’ve always been curious about how hard it is to love well and be loved.
+ - I’m one of those writers who can’t talk about what they’re working on. The entire four years I was writing ‘House of Sand and Fog,’ my wife never saw a word of it. I just have to keep it in the womb, and then everyone can have a crack at it.
+ - I love short stories because I believe they are the way we live. They are what our friends tell us, in their pain and joy, their passion and rage, their yearning and their cry against injustice.
+ - As a matter of writing philosophy, if there is one, I try not to ever plot a story. I try to write it from the character’s point of view and see where it goes.
+ - People fascinate the hell out of me. I never get tired of watching people, listening to people. The best part is not getting up in front of people but meeting people.
+ - I read poetry every day. I love the boiled down essence of poetry. I look for poetry in prose. In a way that evocative.
+ - For the twenty million Americans who are hungry tonight, for the homeless freezing tonight, literature is as useless as a knowledge of astronomy.
+ - My own sense of the world is that very little is absolute or black and white or easily understood. I suppose in all my writing I’m trying to cast the reader into this spiritually ambivalent dream world, which hopefully mirrors more honestly the complex reality we find ourselves in.
+ - Somewhere, sometime I’d stopped expecting my father to father.
+ - It is not hard to live through a day, if you can live through a moment.
+ - For ritual allows those who cannot will themselves out of the secular to perform the spiritual, as dancing allows the tongue-tied man a ceremony of love.
+ - I feel that writers think with their noses to the ground, and the dark stuff kind of comes to me more, even though I really am sort of an upbeat guy. It’s an honest descent into darkness. And you can’t have the joy without the grief – it’s why we listen to Mozart’s ‘Requiem.’
+ - My mother was making $135 a week, but she had resilience and imagination. She might take frozen vegetables, cook them with garlic, onion and Spam, and it would taste like a four-star dinner.
+ - Don’t outline your stories. A lot of fiction workshops say you should. I say the opposite. I quote Grace Paley: “We write what we don’t know we know.”
+ - What’s so exciting and terrifying about the writing process is that it really is an act of exploration and discovery. With all of us, not just writers, there is a sort of knowledge of the other. We have a lot more in common than we realize, and I think writing is really a sustained act of empathy.
+ - I know I learn a lot from the students in my class and I’m not just saying that to sound like some generous teacher.
+ - I was always a sensitive, sweet kid, but I got brutalized and I became brutal. And frankly, I don’t think it was my natural makeup. I don’t think its anyone’s natural makeup to be a violent brawler.
+ - Romance dies hard, because its very nature is to want to live.
+ - Writers have to be careful not to confuse personal attention with the attention that’s going towards the book.
+ - One of the things I learned about writing a memoir is you can’t drag the reader through everything. Every human life is worth 20 memoirs.
+ - I truly believe the art’s larger than the artist. Who cares about John Steinbeck? I care about the Joad family.
+ - Proportion is all; and, in sports at school, I lost it by surrendering to the awful significance of my self-consciousness. Shyness has a strange element of narcissism, a belief that how we look, how we perform, is truly important to other people.
+ - I have always known that writing fiction had little effect on the world; that if it did, young men would not have gone to war after The Iliad.
+ - Years later I would hear my father say the divorce had left him dating his children. That still meant picking us up every Sunday for a matinee and, if he had the money, an early dinner somewhere.
+ - One of the accidental joys of my writing life has been that I’ve had some lovely, surprisingly good fortune with readers, and I’ve brought readers to my dad’s work. I can’t tell you the joy that gives me. Because my father’s work was masterful.
+ - I got a degree in sociology, didn’t read much fiction in college, and I was a pretty political, left-wing type of guy. I wanted to do some kind of work in social change and make things better for the poor man, and I was very romantic and passionate about it.
+ - We are all living this dance and it is clearly fraught with making choices. Lots of my choices are bad and that’s normal. None of us are attractive at all times. What is attractive to me is authenticity.
+ - Even a day writing badly for me is 10 times better than a day where I don’t write at all.
+ - I wonder if politicians know less about the land, now that they campaign by air.
+ - I’ve learned over the years that the writing is smarter and far larger than the writer and his or her own desires for it.
+ - What is art if not a concentrated and impassioned effort to make something with the little we have, the little we see?
+ - Travel by air is not travel at all, but simply a change of location; so my wife and daughter and I went to San Francisco by train, leaving Boston on a Wednesday morning in June and, then after lunch in New York, boarding Amtrak’s Broadway to Chicago.
+ - That was the source of my vanity and my cowardice: always I believed everyone was watching me.
+ - I think the writer’s job is to paint the gray because no life is clearly defined.
+ - Teaching well draws from the same well that writing draws from: the reserves of compassion and ability to listen and concentrate on another. So I have to have fine line between teaching and writing. I try not to ever think of career. I just try to go to the dream world every day.
+ - I love the earth too much to contemplate a life apart from it, although I believe in that life.
+
+48 quotes

@@ -1,0 +1,28 @@
+ - I think Fast Company has a tremendously smart focus and execution.
+ - I think up until that time a lot of focus on Internet coverage was either sort of the bits and bytes aspect of it, sort of the high-tech aspect of it, and the sociological aspect of it, which is how it was transforming culture.
+ - You can’t be distracted by the noise of misinformation.
+ - The hardest part of it was really being away from my family – I have two small children. Last year I took over 20 business trips, so being away from them was hard.
+ - You’ve just got to focus on excellence and try not to be distracted by the news and the rumors and the absurdities of the stories that were coming out.
+ - The stock market can be down, but the stock market is not an indication of where people’s spirits and enthusiam are, and where their intellectual energy is.
+ - Business people have been made into these rock stars because they’ve made a lot of money.
+ - People who say that the Internet is the bubble are incredibly misguided.
+ - Certainly there are bubble-like valuations of certain companies, but I don’t think anyone out there believes that we’re going to go back to doing business the way we used to do business.
+ - The story of the Internet is this incredibly strong, exciting change.
+ - I’m a history buff, and right now we’re sitting on one of the most dramatic historical shifts that this planet has ever seen and we have a front row seat for it.
+ - Business 2.0 was hugely profitable last year, and will be profitable this year.
+ - See, what we were going to do was say, the Internet is this great business strategy tool.
+ - There certainly was a lot of potential in the air for doing a magazine which focused on the way business, in particular, was being transformed by the Internet.
+ - You know, technology CEOs like to think of themselves as rock ’n roll stars.
+ - There was never any danger of Business 2.0 ever going under.
+ - The magazine was being started by a company that had no experience in business magazine publishing. It was a little difficult to get people to sort of buy into it and to join the staff, but we did.
+ - I got to sit down with people who I admired, and have conversations with some of the greatest thinkers and artists and performers. It’s a huge privilege for me to be a journalist.
+ - The collective energy of everyone is what really made Business 2.0 exciting.
+ - You can’t suppress creativity, you can’t suppress innovation.
+ - It’s very rare that publications double their frequency.
+ - I still believe that the mission of Business 2.0 is very strong, very fundamental, and we’re really at the beginning of where they’re going to take us.
+ - The best rock musicians are the most exciting people in the world.
+ - You have to remember a lot of business is very cyclical.
+ - Rock stars are incredibly energizing to me.
+ - And I love writing. I’ve always loved writing.
+
+26 quotes

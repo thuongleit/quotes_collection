@@ -1,0 +1,26 @@
+ - Fortune helps the brave.
+ - The less my hope, the hotter my love.
+ - Charity begins at home.
+ - Moderation in all things.
+ - Of my friends I am the only one left.
+ - They are so knowing, that they know nothing.
+ - I am a human being, so nothing human is strange to me.
+ - There is nothing so easy but that it becomes difficult when you do it reluctantly.
+ - The life of man is like a game with dice; if you don’t get the throw you want, you must show your skill in making the best of the throw you get.
+ - When the mind is in a state of uncertainty the smallest impulse directs it to either side.
+ - How unfair the fate which ordains that those who have the least should be always adding to the treasury of the wealthy.
+ - It behooves a prudent person to make trial of everything before arms.
+ - As many opinions as there are men; each a law to himself.
+ - In fact nothing is said that has not been said before.
+ - It is the common vice of all, in old age, to be too intent upon our interests.
+ - How many things both just and unjust are sanctioned by custom?
+ - Nowadays those are rewarded who make right appear wrong.
+ - She never was really charming till she died.
+ - While the mind is in doubt, it is driven this way and that by a slight impulse.
+ - Their silence is enough praise.
+ - Children should be led into the right paths, not by severity, but by persuasion.
+ - We should look at the lives of all as at a mirror, and take from others an example for ourselves.
+ - You can take a chance with any man who pays his bills on time.
+ - We are all of us the worse for too much liberty.
+
+24 quotes

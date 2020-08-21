@@ -1,0 +1,32 @@
+ - You’re either part of the solution or you’re part of the problem.
+ - Respect commands itself and can neither be given nor withheld when it is due.
+ - You don’t have to teach people how to be human. You have to teach them how to stop being inhuman.
+ - Too much agreement kills a chat.
+ - If a man like Malcolm X could change and repudiate racism, if I myself and other former Muslims can change, if young whites can change, then there is hope for America.
+ - Everybody changes, not just me.
+ - The price of hating other human beings is loving oneself less.
+ - The myth of the strong black woman is the other side of the coin of the myth of the beautiful dumb blonde.
+ - The racist conscience of America is such that murder does not register as murder really, unless the victim is whiteblacks knew that white blood is the coin of freedom in a land where for four hundred years black blood has been shed unremarked and with impunity.
+ - The Twist was a guided missile, launched from the ghetto into the very heart of suburbia. The Twist succeeded, as politics, religion, and law could never do, in writing in the heart and soul what the Supreme Court could only write on the books.
+ - All the gods are dead except the god of war.
+ - Every highly successful person is a maniac on a mission. Too much agreement kills a chat.
+ - History could pass for a scarlet text, its jot and title graven red in human blood.
+ - What America demands in her black champions is a brilliant, powerful body and a dull, bestial mind.
+ - There is no calamity which a great nation can invite which equals that which follows a supine submission to wrong and injustice and the consequent loss of national self-respect and honor, beneath which are shielded and defended a people’s safety and greatness.
+ - We have dedicated our lives, our blood, to the freedom and liberation of our people, and nothing, no force can stop us from achieving our goal. If it is necessary to destroy the United States of America, then let us destroy it with a smile on our faces.
+ - I have taken an oath in my heart to oppose communism until the day I die.
+ - With all its faults, the American political system is the freest and most democratic in the world.
+ - We shall have our manhood. We shall have it or the earth will be leveled by our attempts to gain it.
+ - I feel that I am a citizen of the American dream and that the revolutionary struggle of which I am a part is a struggle against the American nightmare.
+ - In prison, those things withheld from and denied to the prisoner become precisely what he wants most of all.
+ - But it is not that easy, is it? I seek a lasting relationship, something permanent in a world of change, in which all is transitory, ephemeral, and full of pain.
+ - The struggle of our people for freedom has progressed to the form where all of us must take a stand either for or against the freedom of our people You are either with Your People or against them. You are either part of the solution or part of the problem.
+ - The paper tiger hero, James Bond, offering the whites a triumphant image of themselves, is saying what many whites want desperately to hear reaffirmed: I am still the White Man, lord of the land, licensed to kill, and the world is still an empire at my feet.
+ - I have lived those lines and I know that if I had not been apprehended I would have slit some white throats.
+ - Americans think of themselves collectively as a huge rescue squad on twenty-four hour call to any spot on the globe where dispute and conflict may erupt.
+ - I’ve gone beyond civil rights and human rights to creation rights.
+ - Pig power in America was infuriating, but pig power in the communist framework was awesome and unaccountable.
+ - If God himself wills such misery on people whom I love, then I say I will deal with him.
+ - The object is for everyone to do their own thing, but the thing is to make one’s thing the Revolution.
+
+30 quotes

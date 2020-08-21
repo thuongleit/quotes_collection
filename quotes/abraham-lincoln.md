@@ -1,0 +1,502 @@
+ - Whatever you are, be a good one.
+ - I am a slow walker, but I never walk back.
+ - Life is hard, but so very beautiful.
+ - It is not the years in your life that count, it’s the life in your years.
+ - Give me six hours to chop down a tree and I will spend the first four sharpening the axe.
+ - Every man’s happiness is his own responsibility.
+ - I will prepare and some day my chance will come.
+ - Commitment is what transforms a promise into reality.
+ - Nothing will divert me from my purpose.
+ - Nearly all men can stand adversity, but if you want to test a man’s character, give him power.
+ - When I do good, I feel good. When I do bad, I feel bad. That's my religion.
+ - We can complain because rose bushes have thorns, or rejoice because thorn bushes have roses.
+ - Be sure you put your feet in the right place, then stand firm.
+ - You cannot escape the responsibility of tomorrow by evading it today.
+ - I’m a success today because I had a friend who believed in me and I didn’t have the heart to let him down.
+ - Things may come to those who wait, but only the things left by those who hustle.
+ - The best thing about the future is that it comes one day at a time.
+ - Discipline is choosing between what you want now, and what you want most.
+ - Always bear in mind that your own resolution to succeed is more important than any one thing.
+ - My great concern is not whether you have failed, but whether you are content with your failure.
+ - Those who look for the bad in people will surely find it.
+ - That some achieve great success, is proof to all that others can achieve it as well.
+ - I would rather be a little nobody, then to be a evil somebody.
+ - Better to remain silent and be thought a fool than to speak out and remove all doubt.
+ - Books serve to show a man that those original thoughts of his aren't very new after all.
+ - Those who deny freedom to others deserve it not for themselves.
+ - Folks are usually about as happy as they make their minds up to be.
+ - Do I not destroy my enemies when I make them my friends?
+ - Sir, my concern is not whether God is on our side; my greatest concern is to be on God’s side, for God is always right.
+ - You can tell the greatness of a man by what makes him angry.
+ - Be with a leader when he is right, stay with him when he is still right, but, leave him when he is wrong.
+ - You can fool some of the people all of the time, and all of the people some of the time, but you can not fool all of the people all of the time.
+ - I do not think much of a man who is not wiser today than he was yesterday.
+ - Character is like a tree and reputation its shadow. The shadow is what we think it is and the tree is the real thing.
+ - You cannot fail unless you quit.
+ - America will never be destroyed from the outside. If we falter and lose our freedoms, it will be because we destroyed ourselves.
+ - I don’t like that man. I must get to know him better.
+ - All that I am or ever hope to be, I owe to my angel mother.
+ - I am not bound to win, but I am bound to be true. I am not bound to succeed, but I am bound to live up to what light I have.
+ - We are not enemies, but friends. We must not be enemies. Though passion may have strained, it must not break our bonds of affection. The mystic chords of memory will swell when again touched, as surely they will be, by the better angels of our nature.
+ - Teach the children so it will not be necessary to teach the adults.
+ - I laugh because I must not cry, that is all, that is all.
+ - We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution.
+ - You have to do your own growing no matter how tall your grandfather was.
+ - I am not concerned that you have fallen – I am concerned that you arise.
+ - Get books, sit yourself down anywhere, and go to reading them yourself.
+ - Don’t worry when you are not recognized, but strive to be worthy of recognition.
+ - The better part of one’s life consists of his friendships.
+ - How many legs does a dog have if you call the tail a leg? Four. Calling a tail a leg doesn’t make it a leg.
+ - I have been driven many times upon my knees by the overwhelming conviction that I had no where else to go. My own wisdom and that of all about me seemed insufficient for that day.
+ - I walk slowly, but never backwards.
+ - He has a right to criticize, who has a heart to help.
+ - When I get ready to talk to people, I spend two thirds of the time thinking what they want to hear and one third thinking about what I want to say.
+ - My Best Friend is a person who will give me a book I have not read.
+ - The ballot is stronger than the bullet.
+ - I do the very best I know how, the very best I can, and I mean to keep on doing so until the end.
+ - No man has a good enough memory to be a successful liar.
+ - I like to see a man proud of the place in which he lives. I like to see a man live so that his place will be proud of him.
+ - Elections belong to the people. It’s their decision. If they decide to turn their back on the fire and burn their behinds, then they will just have to sit on their blisters.
+ - Nothing valuable can be lost by taking time.
+ - If I were two-faced, would I be wearing this one?
+ - To ease another’s heartache is to forget one’s own.
+ - You cannot help people permanently by doing for them, what they could and should do for themselves.
+ - Achievement has no color.
+ - It has been my experience that folks who have no vices have very few virtues.
+ - There are no bad pictures; that’s just how your face looks sometimes.
+ - A noble spirit embiggens the smallest man.
+ - I don’t know who my grandfather was; I am much more concerned to know what his grandson will be.
+ - The Lord prefers common-looking people. That is why he made so many of them.
+ - As I would not be a slave, so I would not be a master. This expresses my idea of democracy.
+ - I am in favor of animal rights as well as human rights. That is the way of a whole human being.
+ - It’s not me who can’t keep a secret. It’s the people I tell that can’t.
+ - The dogmas of the quiet past are inadequate to the stormy present. The occasion is piled high with difficulty, and we must rise with the occasion. As our case is new, so we must think anew and act anew.
+ - I have always found that mercy bears richer fruits than strict justice.
+ - Whenever I hear anyone arguing for slavery, I feel a strong impulse to see it tried on him personally.
+ - The probability that we may fail in the struggle ought not to deter us from the support of a cause we believe to be just.
+ - Hypocrite: The man who murdered his parents, and then pleaded for mercy on the grounds that he was an orphan.
+ - My father taught me to work, but not to love it. I never did like to work, and I don’t deny it. I’d rather read, tell stories, crack jokes, talk, laugh – anything but work.
+ - It is difficult to make a man miserable while he feels worthy of himself and claims kindred to the great God who made him.
+ - Tact: the ability to describe others as they see themselves.
+ - I am a firm believer in the people. If given the truth, they can be depended upon to meet any national crisis. The great point is to bring them the real facts, and beer.
+ - Stand with anyone that is right; stand with him while he is right and part with him when he goes wrong.
+ - If this is coffee, please bring me some tea; but if this is tea, please bring me some coffee.
+ - Fourscore and seven years ago our fathers brought forth on this continent, a new nation, conceived in Liberty, and dedicated to the proposition that all men are created equal.
+ - The blessing always comes back to the door of the author.
+ - If this country is ever demoralized, it will come from trying to live without work.
+ - Our government rests in public opinion. Whoever can change public opinion, can change the government, practically just so much.
+ - I believe the Bible is the best gift God has ever given to man.
+ - President Lincoln was once criticized for his attitude toward his enemies. “Why do you try to make friends of them?” asked an associate. “You should try to destroy them.” “Am I not destroying my enemies,” Lincoln gently replied, “when I make them my friends?”
+ - Study the Constitution. Let it be preached from the pulpit, proclaimed in legislatures, and enforced in courts of justice.
+ - No matter how much the cats fight, there always seem to be plenty of kittens.
+ - Die when I may, I want it said of me by those who know me best, that I always plucked a thistle and planted a flower when I thought a flower would grow.
+ - I care not for a man’s religion whose dog and cat are not the better for it.
+ - I have come to the conclusion never again to think of marrying, and for this reason, I can never be satisfied with anyone who would be blockhead enough to have me.
+ - He can compress the most words into the smallest ideas of any man I ever met.
+ - The strongest bond of human sympathy outside the family relation should be one uniting working people of all nations and tongues and kindreds.
+ - The Bible is not my book nor Christianity my profession. I could never give assent to the long, complicated statements of Christian dogma.
+ - I am busily engaged in the study of the Bible. I believe it is God’s word because it finds me where I am.
+ - The world is agreed that labor is the source from which human wants are mainly supplied. There is no dispute upon this point.
+ - God bless the soldiers and seamen, with all their brave commanders.
+ - A house divided against itself cannot stand.
+ - If you trust, you will be disappointed occasionally, but if you mistrust, you will be miserable all the time.
+ - It is not the qualified voters, but the qualified voters who choose to vote, that constitute political power.
+ - If you love something, set it free.
+ - Behind the cloud the sun is still shining.
+ - Leave nothing for to-morrow which can be done to-day.
+ - Don’t criticize them; they are just what we would be under similar circumstances.
+ - Next to creating a life the finest thing a man can do is save one.
+ - Honor to the soldier and sailor everywhere, who bravely bears his country’s cause. Honor, also, to the citizen who cares for his brother in the field and serves, as he best can, the same cause.
+ - Democracy is “government of, by and for the people”.
+ - I sincerely wish war was a pleasanter and easier business than it is, but it does not admit of holidays.
+ - As to the whiskers, having never worn any, do you not think people would call it a piece of silly affectation if I were to begin it now?
+ - When arguing with a fool, make sure the opponent isn’t doing the exact same thing.
+ - Nothing in this world is impossible to a willing heart.
+ - Let no feeling of discouragement prey upon you, and in the end you are sure to succeed.
+ - You can have anything you want if you want it badly enough. You can be anything you want to be, do anything you set out to accomplish if you hold to that desire with singleness of purpose.
+ - Truth is generally the best vindication against slander.
+ - He who represents himself has a fool for a client.
+ - Thus let bygones be bygones. Let past differences, as nothing be.
+ - I remember my mother’s prayers and they have always followed me. They have clung to me all my life.
+ - If there is a worse place than Hell, I am in it.
+ - Violence begins where knowledge ends.
+ - The will of God prevails.
+ - Everybody likes a compliment.
+ - Every man is born an original, but sadly, most men die copies.
+ - No man is poor who has a Godly mother.
+ - It is a sin to be silent when it is your duty to protest.
+ - The land-grant university system is being built on behalf of the people, who have invested in these public universities their hopes, their support, and their confidence.
+ - My dream is of a place and a time where America will once again be seen as the last best hope of earth.
+ - The greatest fine art of the future will be the making of a comfortable living from a small piece of land.
+ - Education does not mean teaching people what they do not know. It means teaching them to behave as they do not behave.
+ - The person who is incapable of making a mistake, is incapable of anything.
+ - In this sad world of ours, sorrow comes to all, and it comes with bitter agony. Perfect relief is not possible, except with the passing of time.
+ - Never change horses in midstream.
+ - Discourage litigation. Persuade your neighbors to compromise whenever you can. As a peacemaker the lawyer has superior opportunity of being a good man. There will still be business enough.
+ - It is much easier to ride a horse in the direction it is going.
+ - A man’s legs must be long enough to reach the ground.
+ - I can make a General in five minutes but a good horse is hard to replace.
+ - Too many piglets not enough tits.
+ - If you have never failed you have never lived.
+ - The best way to get a bad law repealed is to enforce it strictly.
+ - Believing everybody is dangerous, but believing nobody is more dangerous.
+ - Adhere to your purpose and you will soon feel as well as you ever did. On the contrary, if you falter, and give up, you will lose the power of keeping any resolution, and will regret it all your life.
+ - That we we here highly resolve that these dead shall not have died in vain – that this nation, under God, shall have a new birth of freedom – and that government of the people, by the people, for the people, shall not perish from the earth.
+ - The health you enjoy is largely your choice.
+ - A drop of honey catches more flies than a gallon of gall. So with men. If you would win a man to your cause, first convince him that you are his sincere friend. Therein is a drop of honey which catches his heart, which, say what he will, is the highroad to his reason.
+ - Half finished work generally proves to be labor lost.
+ - I do the very best I can, I mean to keep going. If the end brings me out all right, then what is said against me won’t matter. If I’m wrong, ten angels swearing I was right won’t make a difference.
+ - I will learn, the opportunity will come.
+ - The leading rule for the lawyer, as for the man of every other calling, is diligence. Leave nothing for to-morrow which can be done to-day.
+ - When you make it to the top, turn and reach down for the person behind you.
+ - The strength of a nation lies in the homes of its people.
+ - His argument is as thin as the homeopathic soup that was made by oiling the shadow of a pigeon that had been starved to death.
+ - Better give your path to a dog than be bitten by him in contesting for the right. Even killing the dog would not cure the bite.
+ - If you understand what you’re doing, you’re not learning anything.
+ - Laws change; people die; the land remains.
+ - Those who are ready to sacrifice freedom for security ultimately will lose both.
+ - Don’t interfere with anything in the Constitution. That must be maintained, for it is the only safeguard of our liberties.
+ - Two of my favorite things are sitting on my front porch smoking a pipe of sweet hemp, and playing my Hohner harmonica.
+ - I have two great enemies, the Southern Army in front of me and the bankers in the rear. Of the two, the one at my rear is my greatest foe.
+ - It often requires more courage to dare to do right than to fear to do wrong.
+ - Human-nature will not change.
+ - A man watches his pear-tree day after day, impatient for the ripening of the fruit. Let him attempt to force the process, and he may spoil both fruit and tree. But let him patiently wait, and the ripe pear at length falls into his lap.
+ - With firmness in the right, as God gives us to see the right.
+ - Shall we stop this bleeding?
+ - Bad promises are better broken than kept.
+ - We should be too big to take offense and too noble to give it.
+ - All my life I have tried to pluck a thistle and plant a flower wherever the flower would grow in thought and mind.
+ - The people when rightly and fully trusted will return the trust.
+ - Do you think we choose the times into which we are born? Or do we fit the times we are born into?
+ - Your organization will take on the personality of its top leaders.
+ - Think of strangers as friends you not met yet.
+ - This country, with its institutions, belongs to the people who inhabit it. Whenever they shall grow weary of the existing government, they can exercise their constitutional right of amending it, or exercise their revolutionary right to overthrow it.
+ - I am rather inclined to silence, and whether that be wise or not, it is at least more unusual nowadays to find a man who can hold his tongue than to find one who cannot.
+ - Lets have faith that right makes might; and in that faith let us, to the end, dare to do our duty as we understand it.
+ - Most people are as happy as they want to be.
+ - One is a majority if he is right.
+ - We cannot but believe that He who made the world still governs it.
+ - A nation that does not honor its heroes will not long endure.
+ - The US patent system adds the fuel of interest to the fire of genius in the discovery and production of new and useful things.
+ - There is nothing true anywhere, The true is nowhere to be seen; If you say you see the true, This seeing is not the true one.
+ - The eyes of that species of extinct giant, whose bones fill the mounds of America, have gazed on Niagara as our eyes do now.
+ - Freedom is not the right to do what we want, but what we ought.
+ - History is not history unless it is the truth.
+ - Reputation is like fine china: Once broken it’s very hard to repair.
+ - It behooves us then to humble ourselves before the offended Power to confess our national sins and to pray for clemency and forgiveness...
+ - The shepherd drives the wolf from the sheep’s for which the sheep thanks the shepherd as his liberator, while the wolf denounces him for the same act as the destroyer of liberty. Plainly, the sheep and the wolf are not agreed upon a definition of liberty.
+ - You must remember that some things legally right are not morally right.
+ - Lonely men seek companionship. Lonely women sit at home and wait. They never meet.
+ - In order to win a man to your cause, you must first reach his heart, the great high road to his reason.
+ - Love is the chain whereby to bind a child to its parents.
+ - It is my pleasure that my children are free and happy, and unrestrained by parental tyranny. Love is the chain whereby to bind a child to its parents.
+ - I claim not to have controlled events, but confess plainly that events have controlled me.
+ - Intoxicated with unbroken success, we have become too self sufficient to feel the necessity of redeeming and preserving grace, too proud to pray to the God that made us.
+ - As we keep or break the Sabbath Day we nobly save or meanly lose the last best hope by which man rises.
+ - There is no greater injustice than to wring your profits from the sweat of another man’s brow.
+ - If we could first know where we are, and whither we are tending, we could then better judge what to do, and how to do it.
+ - We shall sooner have the fowl by hatching the egg than by smashing it.
+ - But fight we must; and conquer we shall; in the end.
+ - You can have anything you want, if you want it badly enough.
+ - My policy is to have no policy.
+ - It must now atone in blood for its complicity in wickedness.
+ - Intelligence, patriotism, Christianity, and a firm reliance on Him, who has never yet forsaken this favored land, are still competent to adjust, in the best way, all our present difficulty.
+ - We live in the midst of alarms; anxiety beclouds the future; we expect some new disaster with each newspaper we read.
+ - Every person is responsible for his own looks after 40.
+ - I have an irrepressible desire to live till I can be assured that the world is a little better for my having lived in it.
+ - These men ask for just the same thing, fairness, and fairness only. This, so far as in my power, they, and all others, shall have.
+ - Freedom is the last, best hope of earth.
+ - No man ever got lost on a straight road.
+ - Elections belong to the people. It’s their decision.
+ - A statesman is he who thinks in the future generations, and a politician is he who thinks in the upcoming elections.
+ - If you are resolutely determined to make a lawyer of yourself, the thing is more than half done already.
+ - Care for him who shall have borne the battle.
+ - Always let your subordinates know that the honor will be all theirs if they succeed and the blame will be yours if they fail.
+ - There’s no honorable way to kill, no gentle way to destroy. There is nothing good in war. Except its ending.
+ - Public sentiment is everything. With public sentiment, nothing can fail. Without it, nothing can succeed.
+ - Great men are ordinary men with extra ordinary determination.
+ - You dislike the emancipation proclamation; and, perhaps, would have it retracted. You say it is unconstitutional – I think differently.
+ - A capacity and taste for reading gives access to whatever has already been discovered by others.
+ - Important principles may, and must, be inflexible.
+ - If the good people in their wisdom shall see fit to keep me in the background, I have been too familiar with disappointments to bevery much chagrined.
+ - The written word may be man’s greatest invention. It allows us to converse with the dead, the absent, and the unborn.
+ - Our attitude is more honest and more consistent than our words.
+ - Human action can be modified to some extent, but human nature can not be changed.
+ - What kills a skunk is the publicity it gives itself.
+ - The world will little note, nor long remember what we say here, but it can never forget what they did here. It is for us the living, rather, to be dedicated here to the unfinished work which they who fought here so nobly advanced.
+ - The legitimate object of government is to do for a community of people whatever they need to have done, but can not do at all, or can not so well do, for themselves – in their separate, and individual capacities.
+ - The surest way to reveal one’s character is not through adversity but by giving them power.
+ - The Constitution is not a suicide pact.
+ - Bring me Longstreet’s head on a platter and the war will be over.
+ - If you wish to be a lawyer, attach no consequence to the place you are in, or the person you are with; but get books, sit down anywhere, and go to reading for yourself. That will make a lawyer of you quicker than any other way.
+ - Always remember: Life is for enjoying.
+ - The judgments of the Lord are true and righteous altogether.
+ - It has been said of the world’s history hitherto that might makes right. It is for us and for our time to reverse the maxim, and to say that right makes might.
+ - I am an optimist because I don’t see the point in being anything else.
+ - Never stir up litigation, a worse man can scarcely be found than one who does this, who can be more nearly a fiend than he who habitually overhauls the register of deeds in search of defects in titles, whereon to stir up strife, and put money in his pocket?
+ - I never encourage deceit, and falsehood, especially if you have got a bad memory, is the worst enemy a fellow can have. The fact is truth is your truest friend, no matter what the circumstances are.
+ - What is conservatism? Is it not the adherence to the old and tried against the new and untried?
+ - Marriage is neither heaven nor hell, it is simply purgatory.
+ - Wanting to work is so rare a merit, that it should be encouraged.
+ - Teach economy. That is one of the first and highest virtues. It begins with saving money.
+ - I know that the Lord is always on the side of the right. But it is my constant anxiety and prayer that I and this nation should be on the Lord’s side.
+ - Public opinion in this country is everything.
+ - Government, possessing the power to create and issue currency and credit as money and enjoying the right to withdraw both currency and credit from circulation by taxation and otherwise, need not and should not borrow capital at interest as a means of financing government work and public enterprises.
+ - When you lack interest in the case the job will very likely lack skill and diligence in the performance.
+ - I expect to maintain this contest until successful, or till I die, or am conquered, or my term expires, or Congress or the country forsakes me...
+ - With Malice toward none, with charity for all, with firmness in the right, as God gives us to see the right, let us strive on to finish the work we are in, to bind up the nation’s wounds.
+ - Do not destroy that immortal emblem of humanity, the Declaration of Independence.
+ - It has long been recognized that the problems with alcohol relate not to the use of a bad thing, but to the abuse of a good thing.
+ - When you have got an elephant by the hind legs and he is trying to run away, it’s best to let him run.
+ - As labor is the common burden of our race, so the effort of some to shift their share of the burden onto the shoulders of others is the great durable curse of the race.
+ - Fondly do we hope, ferverently do we pray, that this mighty scourge of war may speedily pass away.
+ - Writing is the great invention of the world.
+ - I see in the near future a crisis approaching that unnerves me and causes me to tremble for the safety of my country.
+ - Labor is prior to, and independent of, capital. Capital is only the fruit of labor, and could never have existed if labor had not first existed. Labor is the superior of capital, and deserves much the higher consideration.
+ - In giving freedom to the slave, we assure freedom to the free – honorable alike in what we give and what we preserve. We shall nobly save, or meanly lose, the last best hope of earth.
+ - Again, a law may be both constitutional and expedient, and yet may be administered in an unjust and unfair way.
+ - For it has been said, all that a man hath will he give for his life; and while all contribute of their substance the soldier puts his life at stake, and often yields it up in his country’s cause. The highest merit, then is due to the soldier.
+ - It is the quality of revolutions not to go by old lines or old laws; but to break up both, and make new ones.
+ - You cannot help the poor man by destroying the rich.
+ - I was raised to farm work.
+ - I could write shorter sermons but when I get started I’m too lazy to stop.
+ - You cannot help the poor by destroying the rich. You cannot lift the wage earner by pulling down the wage payer.
+ - I am now the most miserable man living. If what I feel were felt by the whole human race, there would not be one cheerful face left on earth.
+ - The Father of Waters again goes unvexed to the sea.
+ - Honor is better than honors.
+ - I see a very dark cloud on America’s horizon, and that cloud is coming from Rome.
+ - Towering genius disdains a beaten path. It seeks regions hitherto unexplored.
+ - Sending armies to McClellan is like shoveling fleas across a barnyard, not half of them get there.
+ - I would rather be assassinated than see a single star removed from the American flag.
+ - Familiarize yourself with the chains of bondage and you prepare your own limbs to wear them.
+ - To stand in silence when they should be protesting makes cowards of men.
+ - Must I shoot a simple-minded soldier boy who deserts, while I must not touch a hair of the wily agitator who induces him to desert? I think that in such a cse to silence the agitator and save the boy is not only constitutional but withal a great mercy.
+ - The ant, who has toiled and dragged a crumb to his nest, will furiously defend the fruit of his labor, against whatever robber assails him. So plain, that the most dumb and stupid slave that ever toiled for a master, does constantly know that he is wronged.
+ - Don’t judge a man by the size of his ego or his heart, but on the epicness of his beard and the beautiful woman on his arm.
+ - If I were to try to read, much less answer, all the attacks made on me, this shop might as well be closed for any other business.
+ - The plainest print cannot be read through a gold eagle.
+ - Why don’t I drink from a straw? Because straws are for suckers.
+ - The solemn pride that must be yours to have laid so costly a sacrifice upon the altar of freedom.
+ - If there is anything that links the human to the divine, it is the courage to stand by a principle when everybody else rejects it.
+ - We have all heard of Young America. He is the most current youth of the age. Some think him conceited, and arrogant; but has he not reason to entertain a rather extensive opinion of himself? Is he not the inventor and owner of the present, and sole hope of the future?
+ - Lamon, that speech won’t scour. It is a flat failure and the people are disappointed.
+ - I happen temporarily to occupy this big White House. I am living witness that any one of your children may look to come here as my father’s child has.
+ - God is the silent partner in ALL great enterprises.
+ - Why should there not be a patient confidence in the ultimate justice of the people? Is there any better or equal hope in the world?
+ - The war, the American Civil War of 1861-1865, would never have been possible without the sinister influence of the Jesuits.
+ - I have simply tried to do what seemed best each day, as each day came.
+ - Teach hope to all, despair to none.
+ - Labor is the superior of capital, and deserves much the higher consideration.
+ - I am slow to learn and slow to forget that which I have learned. My mind is like a piece of steel, very hard to scratch any thing on it and almost impossible after you get it there to rub it out.
+ - You may have a wen or a cancer upon your person and not be able to cut it out lest you bleed to death; but surely it is no way tocure it, to engraft it and spread it over your whole body.
+ - If I am killed, I can die by once; but to live in constant dread of it, is to die over and over again.
+ - Law is nothing else but the best reason of wise men applied for ages to the transactions and business of mankind.
+ - Knavery and flattery are blood relations.
+ - Quarrel not at all. No man resolved to make the most of himself can spare time for personal contention.
+ - Persuasion, kind, unassuming persuasion, should be adopted to influence the conduct of men. The opposite course would be a reversal of human nature, which is God’s decree and can never be reversed.
+ - Let us renew our trust in god, and go forward without fear.
+ - With the Catching Ends the Pleasure of the Chase.
+ - Avoid popularity if you would have peace.
+ - Laughter is the joyous universal evergreen of life!
+ - The struggle of today, is not altogether for today – it is for a vast future also. With a reliance on Providence, all the more firm and earnest, let us proceed in the great task which events have devolved upon us.
+ - The fiery trials through which we pass will light us down in honor or dishonor to the latest generation.
+ - We can succeed only by concert. It is not ’can any of us imagine better?, but ’can we all do better?
+ - May our children and our children’s children to a thousand generations, continue to enjoy the benefits conferred upon us by a united country, and have cause yet to rejoice under those glorious institutions bequeathed us by Washington and his compeers.
+ - Few can be induced to labor exclusively for posterity; and none will do it enthusiastically. Posterity has done nothing for us; and theorize on it as we may, practically we shall do very little for it, unless we are made to think we are at the same time doing something for ourselves.
+ - With high hope for the future, no prediction is ventured.
+ - One eighth of the whole population were colored slaves, not distributed generally over the Union, but localized in the Southern part of it. These slaves constituted a peculiar and powerful interest. All knew that this interest was, somehow, the cause of the war.
+ - Whatever woman may cast her lot with mine, should any ever do so, it is my intention to do all in my power to make her happy and contented; and there is nothing I can imagine that would make me more unhappy than to fail in the effort.
+ - Neither party expected for the war, the magnitude, or the duration, which it has already attained. Neither anticipated that the cause of the conflict might cease with, or even before, the conflict itself should cease.
+ - Labor is superior to capital and precedes capital. Without labor, there is no capital.
+ - Now what is Judge Douglas Popular Sovereignty? It is, as a principle, no other than that, if one man chooses to make a slave of another man, neither that other man nor anybody else has a right to object.
+ - I pray that our Heavenly Father may assuage the anguish of your bereavement, and leave you only the cherished memory of the loved and lost, and the solemn pride that must be yours, to have laid so costly a sacrifice upon the altar of Freedom.
+ - I fear explanations explanatory of things explained.
+ - You cannot bring about prosperity by discouraging thrift. You cannot establish sound security on borrowed money. You cannot keep out of trouble by spending more than you earn.
+ - There are no accidents in my philosophy. Every effect must have its cause. The past is the cause of the present, and the present will be the cause of the future. All these are links in the endless chain stretching from the finite to the infinite.
+ - No state, upon its own mere motion, can lawfully get out of the Union. Plainly, the central idea of secession, is the essence of anarchy.
+ - No country can sustain, in idleness, more than a small percentage of its numbers. The great majority must labor at something productive.
+ - If I had my way, this war would never have been commenced. If I had been allowed my way this war would have been ended before this.
+ - Every blade of grass is a study; and to produce two, where there was but one, is both a profit and a pleasure.
+ - Legislation and adjudication must follow, and conform to, the progress of society.
+ - Your rights end where my nose begins.
+ - As a general rule never take your whole fee in advance, nor any more than a small retainer. When fully paid beforehand, you are more than a common mortal if you can feel the same interest in the case, as if something was still in prospect for you, as well as for your client.
+ - God bless the Methodist Church – bless all the churches – and blessed be God, Who, in this our great trial, giveth us the churches.
+ - Nothing is more damaging to you than to do something that you believe is wrong.
+ - A Prohibition law strikes a blow at the very principles upon which our government was founded.
+ - All that harms labor is treason to America.
+ - With the fearful strain that is on me night and day, if I did not laugh I should die.
+ - There is no America without labor, and to fleece the one is to rob the other.
+ - If once you forfeit the confidence of your fellow-citizens, you can never regain their respect and esteem.
+ - Whenever there is a conflict between human rights and property rights, human rights must prevail.
+ - Military glory-that attractive rainbow, that rises in showers of blood-that serpent’s eye, that charms to destroy...
+ - You can’t make a weak man strong by making a strong man weak.
+ - Moral principle is a looser bond than pecuniary interest.
+ - What are you gonna do for a face when the baboon wants his ass back?
+ - If there is anything that a man can do well, I say let him do it. Give him a chance.
+ - I go for all sharing the privileges of the government who assist in bearing its burdens. Consequently I go for admitting all whites to the right of suffrage who pay taxes or bear arms, by no means excluding females.
+ - Now I confess myself as belonging to that class in the country who contemplate slavery as a moral, social and political evil...
+ - I can see how it might be possible for a man to look down upon the earth and be an atheist, but I cannot conceive how a man could look up into the heavens and say there is no God.
+ - Friends, I agree with you in Providence; but I believe in the Providence of the most men, the largest purse, and the longest cannon.
+ - Property is the fruit of labor; property is desirable; it is a positive good.
+ - The power of hope upon human exertion, and happiness, is wonderful.
+ - The power confided in me will be used to hold, occupy and possess the property and places belonging to the government, and to collect the duties and imposts.
+ - IF you are going to fight, don’t let them talk you into negotiating. But, if you are going to negotiate, don’t let them talk you into fighting.
+ - A friend is one who has the same enemies as you have.
+ - It is easiest to “be all things to all men,” but it is not honest. Self-respect must be sacrificed every hour in the day.
+ - You know you’ve reached middle age when all you exercise is caution.
+ - I cannot imaging anyone looking at the sky and denying God.
+ - I can’t spare this man, he fights!
+ - Why don’t you laugh? If I did not laugh I should die, and you need this medicine as much as I do.
+ - He will have to learn, I know, that all people are not just- that all men and women are not true. Teach him that for every scoundrel there is a hero that for every enemy there is a friend. Let him learn early that the bullies are the easiest people to lick.
+ - If you would win a man to your cause, first convince him that you are his sincere friend.
+ - We shall not fail – if we stand firm, we shall not fail. Wise counsels may accelerate, or mistakes delay it, but, sooner or later, the victory is sure to come.
+ - I cannot make it better known than it already is that I strongly favor colonization.
+ - And having thus chosen our course, without guile, and with pure purpose, let us renew our trust in God, and go forward without fear, and with manly hearts.
+ - I am very glad indeed to see you to-night, and yet I will not say I thank you for this call, but I do most sincerely thank Almighty God for the occasion on which you have called.
+ - My politics are short and sweet, like the old woman’s dance.
+ - A new book is like a friend that I have yet to meet.
+ - Killing the dog does not cure the bite.
+ - Our strife pertains to ourselves-to the passing generations of men-and it can without convulsion be hushed forever with the passing of one generation.
+ - The Union is much older than the Constitution. It was formed in fact, by the Articles of Association in 1774. It was matured and continued by the Declaration of Independence in 1776.
+ - During the Civil War, on hearing complaints that Gen. Ulysses S. Grant drank alcohol to excess Find out what Grant drinks and send a barrel of it to each of my other generals!
+ - I am naturally anti-slavery. If slavery is not wrong, nothing is wrong. I can not remember when I did not so think, and feel. And yet I have never understood that the Presidency conferred upon me an unrestricted right to act officially upon this judgment and feeling.
+ - My Dear McClellan, if you don’t want to use the army I should like to borrow it for a while. Yours respectfully.
+ - Nor must Uncle Sam’s Web-feet be forgotten. At all the watery margins they have been present. Not only on the deep sea, the broadbay, and the rapid river, but also up the narrow muddy bayou, and wherever the ground was a little damp, they have been, and made their tracks.
+ - Let us diligently apply the means, never doubting that a just God, in his own good time, will give us the rightful result.
+ - All the armies of Europe combined could not by force make a track upon the Blue Ridge, or take a drink from the Ohio. If we are to be destroyed, we must do it ourselves.
+ - War, at the best, is terrible, and this war of ours, in its magnitude and in its duration, is one of the most terrible.
+ - Beware of rashness, but with energy and sleepless vigilance go forward and give us victories.
+ - A long visit to a friend is often a great bore. Never make people twice glad.
+ - Don’t be fooled. I kept all my workout clothes in that top hat.
+ - The struggle of today is not altogether for today – it is for a vast future also.
+ - What is to be, will be, and no prayers of ours can arrest the decree.
+ - The Bible says somewhere that we are desperately selfish. I think we would have discovered that fact without the Bible.
+ - Any society that takes away from those most capable and gives to the least will perish.
+ - The political horizon looks dark and lowering; but the people, under Providence, will set all right.
+ - As a peacemaker the lawyer has superior opportunity of being a good man.
+ - Work, work, work, is the main thing.
+ - If I could save the Union without freeing any slave, I would do it.
+ - Peace does not appear so distant as it did. I hope it will come soon, and come to stay; and so come as to be worth the keeping in all future time.
+ - The trouble with Hooker is that he’s got his headquarters where his hindquarters aught to be.
+ - No client ever had money enough to bribe my conscience or to stop its utterance against wrong, and oppression.
+ - A day spent helping no one but yourself is a day wasted.
+ - Let us do nothing through passion and ill temper.
+ - I have never united myself to any church because I found difficulty in giving my assent without mental reservation to the long, complicated statements of Christian doctrine which characterize the articles of belief and the usual confession of faith.
+ - An allusion has been made to the Homestead Law. I think it worthy of consideration, and that the wild lands of the country should be distributed so that every man should have the means and opportunity of benefitting his condition.
+ - You cannot build character and courage by taking away people’s initiative and independence.
+ - We can not have free government without elections; and if the rebellion could force us to forego, or postpone a national election it might fairly claim to have already conquered and ruined us.
+ - That on the first day of January, in the year of our Lord one thousand eight hundred ans sixty-three, all persons held as slaves within any state or designated part of a State, the people whereof shall then be in rebellion against the United States, shall be then, thence forward, and forever free...
+ - I am always for the man who wishes to work.
+ - Familiarize yourselves with the chains of bondage and you prepare your own limbs to wear them. Accustomed to trample on the rights of others, you have lost the genius of your own independence and become the fit subjects of the first cunning tyrant who rises among you.
+ - Don’t kneel to me, that is not right. You must kneel to God only, and thank Him for the liberty you will hereafter enjoy.
+ - I believe I shall never be old enough to speak without embarrassment when I have nothing to talk about.
+ - Allow me to assure you, that suspicion and jealousy never did help any man in any situation.
+ - Free labor has the inspiration of hope; pure slavery has no hope.
+ - Never let your correspondence fall behind.
+ - You have more of a feeling of personal resentment than I have. Perhaps, I have too little of it, but I never thought it paid.
+ - The very spot where grew the bread that formed my bones, I see. How strange, old field, on thee to tread, and feel I’m part of thee.
+ - I think to lose Kentucky is nearly the same as to lose the whole game.
+ - Calling a tail a leg does not make it a leg.
+ - In law it is good policy to never plead what you need not, lest you oblige yourself to prove what you can not.
+ - Our reliance is in the love of liberty which God has planted in our bosoms.
+ - Our defense is in the preservation of the spirit which prizes liberty as a heritage of all men, in all lands, everywhere. Destroy this spirit and you have planted the seeds of despotism around your own doors.
+ - My friends I now leave, not knowing when, or whether ever, I may return, with a task before me greater than that which rested upon Washington. Without the assistance of that Divine Being, who ever attended him, I cannot succeed. With that assistance, I cannot fail.
+ - As President, I have no eyes but constitutional eyes; I cannot see you.
+ - If they do kill me, I shall never die another death.
+ - As long as the Almighty permitted intelligent men, created in his image and likeness, to fight in public and kill each other while the world looks on approvingly, it’s not for me to deprive the chickens of the same privilege.
+ - While the people retain their virtue and vigilance, no administration, by any extreme of wickedness or folly, can very seriously injure the government in the short space of four years.
+ - I was elected a Captain of Volunteers – a success which gave me more pleasure than any I have had since.
+ - We shall meanly lose or nobly save the last hope of earth.
+ - I have never had a feeling politically that did not spring from the sentiments embodied in the Declaration of Independence.
+ - Discourage litigation. Persuade your neighbors to compromise whenever you can.
+ - The way for a young man to rise is to improve himself in every way he can, never suspecting that anybody wishes to hinder him.
+ - I am satisfied that when the Almighty wants me to do or not do any particular thing, He finds a way of letting me know it.
+ - I could not sleep when I got on the hunt for an idea, until I had caught it. This was a kind of passion with me, and it has stuck with me.
+ - We should avoid planting and cultivating too many thorns in the bosom of society.
+ - If we believe the Bible, we must accept the fact that, in the old days, God and his angels came to humans in their sleep and made themselves known in dreams.
+ - Let us at all times remember that all American citizens are brothers of a common country, and should dwell together in bonds of fraternal feeling.
+ - We must settle this question now – whether in a free government the minority have the right to break it up whenever they choose. If we fail, it will go far to prove the incapability of the people to govern themselves.
+ - But, slavery is good for some people! ! ! As a good thing, slavery is strikingly peculiar, in this, that it is the only good thing which no man ever seeks the good of, for himself.
+ - I have always wanted to deal with everyone I meet candidly and honestly. If I have made any assertion not warranted by facts, and it is pointed out to me, I will withdraw it cheerfully.
+ - He has got the slows, Mr. Blair.
+ - I hold that while a man exists, it is his duty to improve not only his own condition, but to assist in ameliorating mankind.
+ - Let no young man choosing the law for a calling for a moment yield to the popular belief – resolve to be honest at all events; and if in your own judgment you cannot be an honest lawyer, resolve to be honest without being a lawyer.
+ - What I want is to get done what the people desire to have done, and the question for me is how to find that out exactly.
+ - Continue to execute all the express provisions of our national Constitution, and the Union will endure forever-it being impossible to destroy it, except by some action not provided for in the instrument itself.
+ - Well, I wish some of you would tell me the brand of whiskey that Grant drinks. I would like to send a barrel of it to my other generals.
+ - If by the mere force of numbers a majority should deprive a minority of any clearly written constitutional right, it might, in a moral point of view, justify revolution.
+ - To secure to each laborer the whole product of his labor, or as nearly as possible, is a worthy object of any good government.
+ - Too big to cry too young to laugh...
+ - The occasion is piled high with difficulty. We must rise to the occasion.
+ - The things I want to know are in books; my best friend is the man who’ll get me a book I ain’t read.
+ - I believe, if we take habitual drunkards as a class, their heads and their hearts will bear an advantageous comparison with those of any other class. There seems ever to have been a proneness in the brilliant and warm-blooded to fall into this vice.
+ - I don’t s’pose anybody on earth likes gingerbread better’n I do-and gets less’n I do.
+ - Capital has its rights, which are as worthy of protection as any other right.
+ - To give victory to the right, not bloody bullets, but peaceful ballots only, are necessary.
+ - Our political problem now is “Can we, as a nation, continue together permanentlyforever – half slave, and half free?” The problem is too mighty for me. May God, in his mercy, superintend the solution.
+ - I will either be America’s greatest president or its last.
+ - And then, there will be some black men who can remember that, with silent tongue, and clenched teeth, and steady eye, and well-poised bayonnet, they have helped mankind on to this great consummation...
+ - This human struggle and scramble for office, for a way to live without work, will finally test the strength of our institutions.
+ - If all do not join now to save the good old ship of the Union this voyage nobody will have a chance to pilot her on another voyage.
+ - He who sees cruelty and does nothing about it is himself cruel.
+ - I can make more generals, but horses cost money.
+ - Among free men there can be no successful appeal from the ballot to the bullet.
+ - A nation may be said to consist of its territory, its people, and its laws. The territory is the only part which is of certain durability.
+ - How many times have I laughed at you telling me plainly that I was too lazy to be anything but a lawyer.
+ - I believe the declaration that ‘all men are created equal’ is the great fundamental principle upon which our free institutions rest.
+ - I failed, I failed, and that is about all that can be said about it.
+ - I couldn’t be two faced. If I had two faces, I wouldn’t wear this one.
+ - Let every American, every lover of liberty, every well wisher to his posterity, swear by the blood of the Revolution, never to violate in the least particular, the laws of the country; and never to tolerate their violation by others.
+ - The only person who is a worse liar than a faith healer is his patient.
+ - When the conduct of men is designed to be influenced, persuasion, kind, unassuming persuasion, should ever be adopted. It is an old and a true maxim, that ‘a drop of honey catches more flies than a gallon of gall.’
+ - We must ask where we are and whither we are tending.
+ - We must free the slaves or be ourselves subdued.
+ - Let the people know the truth and the country is safe.
+ - The privilege of creating and issuing money is not only the supreme prerogative of government, but it is the government’s greatest creative opportunity.
+ - Ballots are the rightful and peaceful successors of bullets, and that when ballots have fairly and constitutionall y decided there can be no successful appeal back to bullets.
+ - A husband and wife may be divorced and go out of the presence and beyond the reach of each other, but the different parts of our country can not do this. They can but remain face to face, and intercourse, either amicable or hostile, must continue between them.
+ - In all that people can do for themselves, government ought not to interfere.
+ - Whereas, the Senate of the United States, devoutly recognizing the Supreme Authority and just Government of Almighty God, in all the affairs of men and of nations, has, by a resolution, requested the President to designate and set apart a day for National prayer and humiliation...
+ - So you’re the little woman who wrote the book that made this great war!
+ - I can only say that I have acted upon my best convictions, without selfishness or malice, and that by the help of God I shall continue to do so.
+ - The demon of intemperance ever seems to have delighted in sucking the blood of genius and of generosity.
+ - With educated people, I suppose, punctuation is a matter of rule; with me it is a matter of feeling. But I must say I have a great respect for the semicolin; it’s a useful little chap.
+ - Be not deceived. Revolutions do not go backward.
+ - I know the hole he went in at, but I can’t tell you what hole he will come out of.
+ - I am not a very sentimental man; and the best sentiment I can think of is, that if you collect the signatures of all persons who are no less distinguished than I, you will have a very undistinguishing mass of names.
+ - Weakness is what keeps driving us to God, by the overwhelming conviction that there just isn’t anywhere else to go.
+ - Through their deeds, the dead of battle have spoken more eloquently for themselves than any of the living ever could. But we can only honor them by rededicating ourselves to the cause for which they gave a last full measure of devotion.
+ - Friendship is the start for what you call love.
+ - The legalized liquor business is the tragedy of our civilization. Alcohol is the greatest and most blighting curse of our modern civilization. The liquor seller is simply and only a privileged malefactor – a criminal.
+ - I am busily engaged in study of the Bible.
+ - If frienship is your weakest point then you are the strongest person in the world.
+ - Many free countries have lost their liberty, and ours may lose hers; but, if she shall, be it my proudest plume, not that I was the last to desert, but that I never deserted her.
+ - I never had a policy; I have just tried to do my very best each and every day.
+ - There is another old poet whose name I do not now remember who said, ‘Truth is the daughter of Time.’
+ - The sense of obligation to continue is present in all of us. A duty to strive is the duty of us all. I felt a call to that duty.
+ - Politics, as a trade, finds most and leaves nearly all dishonest.
+ - There may sometimes be ungenerous attempts to keep a young man down; and they will succeed too, if he allows his mind to be diverted from its true channel to brood over the attempted injury. Cast about, and see if this feeling has not injured every person you have ever known to fall into it.
+ - I have always hated slavery, I think as much as any Abolitionist.
+ - Everyone likes a good quote – don’t forget to share.
+ - The severest justice may not always be the best policy.
+ - I have never studied the art of paying compliments to women; but I must say that if all that has been said by orators and poets since the creation of the world in praise of women were applied to the women of America, it would not do them justice for their conduct during this war.
+ - The people themselves, and not their servants, can safely reverse their own deliberate decisions.
+ - My paramount objective in this struggle is to save the Union, and is not to either save or destroy Slavery.
+ - May the Almighty grant that the cause of truth, justice, and humanity, shall in no wise suffer at my hands.
+ - Again I admonish you not to be turned from your stern purpose of defending your beloved country and its free institutions by any arguments urged by ambitious and designing men, but stand fast to the Union and the old flag.
+ - A jury too often has at least one member more ready to hang the panel than to hang the traitor.
+ - The philosophy of the school room in one generation will be the philosophy of government in the next.
+ - A universal feeling, whether well or ill founded, cannot be safely disregarded.
+ - In the early days of the world, the Almighty said to the first of our race “In the sweat of thy face shalt thou eat bread”; and since then, if we except the light and the air of heaven, no good thing has been, or can be enjoyed by us, without having first cost labour.
+ - Ballots are the rightful and peaceful successors to bullets.
+ - The dogmas of the quiet past are inadequate to the stormy present.
+ - We were proclaiming ourselves political hypocrites before the world, by thus fostering Human Slavery and proclaiming ourselves, at the same time, the sole friends of Human Freedom.
+ - Can treaties be more faithfully enforced between aliens than laws can among friends? Suppose you go to war, you cannot fight always; and when, after much loss on both sides, and no gain on either, you cease fighting, the identical old questions as to terms of intercourse are again upon you.
+ - I have a congenital aversion to failure.
+ - When Judge Douglas says that whoever, or whatever community, wants slaves, they have a right to have them, he is perfectly logical if there is nothing wrong in the institution; but if you admit that it is wrong, he cannot logically say that anybody has a right to do wrong.
+ - If you intend to go to work there is no better place than right where you are; if you do not intend to go to work, you can not get along anywhere.
+ - It’s bad. It’s damned bad.
+ - You have confidence in yourself, which is valuable, if not an indispensable quality.
+ - I know not how to aid you, save in the assurance of one of mature age, and much severe experience, that you can not fail, if you resolutely determine, that you will not.
+
+500 quotes

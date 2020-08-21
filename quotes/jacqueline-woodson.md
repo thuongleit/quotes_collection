@@ -1,0 +1,27 @@
+ - Diversity is about all of us, and about us having to figure out how to walk through this world together.
+ - Time comes to us softly, slowly. It sits beside us for a while. Then, long before we are ready, it moves on.
+ - In all your getting, get understanding.
+ - I think only once in your life do you find someone that you say, “Hey, this is the person I want to spend the rest of my time on this earth with.” And if you miss it, or walk away from it, or even maybe, blink – it’s gone.
+ - I believe in one day and someday and this perfect moment called Now.
+ - Lately, I’d been feeling like I was standing outside watching everything and everybody. Wishing I could take the part of me that was over there and the part of me that was over here and push them together – make myself into one whole person like everybody else.
+ - I definitely believe in a greater good. I definitely believe that there’s a reason each of us is here and that we’ve been brought here to do something. And we need to get busy doing it. And I definitely believe that there is something moving us forward that’s good.
+ - Sometimes you do have to laugh to keep from crying. And sometimes the world feels all right and good and kind of like it’s becoming nice again around you. And you realize it, and realize how happy you are in it, and you just gotta laugh.
+ - Mama was always saying I was a brain snob, that I didn’t like people who didn’t think. I didn’t know if that was snobby. Who wanted to walk around explaining everything to people all the time?
+ - I loved and still love watching words flower into sentences and sentences blossom into stories.
+ - There is something so deeply visceral about libraries for me-rooms and rooms full of people dreaming and remembering.
+ - You can’t always be pushing people away. Someday nobody’ll come back.
+ - Mama says it’s okay to be on the quiet side – if quiet means you’re listening, watching, taking it all in.
+ - From a really young age, I was reading like a writer. I was reading for the deep understanding of the literature; not simply to hear the story but to understand how the author got the story on the page.
+ - Racism doesn’t know color, death doesn’t know age, and pain doesn’t know might.
+ - Maybe this was our last summer as best friends. I feel like something’s going to change now and I’m not going to be able to change it back. – Margaret.
+ - Fifteen. Sixteen was probably something, but fifteen – fifteen was a place between here and nowhere.
+ - I think I’d rather have my heart broke than do the breaking. – Lena.
+ - That’s what makes best friends. It’s not whether or not you live on the same block or go to the same school, but how you feel about each other in your hearts.
+ - I’m not afraid of silence. You know, I’m not afraid to sit in a room and have the conversation drop into silence. I think that’s a very southern thing.
+ - Sometimes it seems as though not a moment has moved, but then you look up and you’re already old or you already have a household of kids or you look down and see your feet are miles and miles away from the rest of you – and you realize you’ve grown up.
+ - No matter how big you get, it’s still okay to cry because everybody’s got a right to their own tears.
+ - Seems like every time life starts straightening itself out, something’s gotta go and happen.
+ - I couldnt be a writer without hope. I think I became a writer because Im pretty optimistic.
+ - The Bible is big in the religion, treating people as you want to be treated.
+
+25 quotes

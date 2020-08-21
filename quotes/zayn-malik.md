@@ -1,0 +1,79 @@
+ - No matter how many times people try to criticize you, the best revenge is to prove them wrong.
+ - Just close your eyes and enjoy the roller coaster that is life.
+ - If people talk behind your back, it's because you're ahead of them.
+ - No matter how hard life is, don’t lose hope.
+ - Enjoy life, it has an expiration date.
+ - There comes a day when you realise turning the page is the best feeling in the world, because you realise there's so much more to the book than the page you were stuck on.
+ - Life isn't a music player where you choose whats being played, it is a radio where you have to enjoy whats being played.
+ - Just because your prince hasn't come doesn't mean you're not a princess.
+ - Never look back, reminising on yesterday, smile for the future, tomorrow’s a new day.
+ - Before you judge people, judge yourself.
+ - Loving someone who doesn’t love you is like waiting for a ship at the airport.
+ - I don’t need the perfect one, I just need somebody who will make me feel like I’m the only one.
+ - Don’t call a girl a flirt, she’s just trying to be nice. Don’t call a girl obsessed when she’s just in love.
+ - There’s so much more to the book than the page you were stuck on.
+ - I want a girl who doesn’t know that she’s beautiful, so i have an excuse to let her know all the time.
+ - Life is funny. Things change, people change, but you will always be you, so stay true to yourself and never sacrifice who you are for anyone.
+ - Live for who and what you love and never compromise your beliefs for anything or anyone.
+ - Never live life in fear of death.
+ - Loving you is what I’ve learned so easily but trying to forget you is the last thing I could hardly learn.
+ - I will never hurt a girl, I respect them too much.
+ - Smile doesn’t mean that someone is happy. Sometimes it just means that you’re strong.
+ - In life, we always fall for the person who will never fall for us, always want things we can’t have, and say things we shouldn’t.
+ - I’m kind of like a bit of everything wrapped into one.
+ - You’ve got to take risks if you want to find love.
+ - I wouldn’t change anything ’cause I love my life.
+ - The person who will give you unexplained happiness, will also be the reason for your unexplained sadness.
+ - When people are putting pressure on me I just completely ignore it.
+ - Live for who and what you love.
+ - Two years ago, if anyone had told me I’d be doing half the stuff I’m doing, I wouldn’t have believed it.
+ - Everyone happens for a reason, learn it and move on. Don’t be bitter about what happened, be happy about what will.
+ - It doesn’t matter how much you flirt the whole day, at night you’ll always end up thinking about the one you truly love.
+ - Vas Happening?
+ - I can’t swim but if my girlfriend was drowning, I’d still dive in to save her.
+ - In life we have decisions to make, paths to take and opportunities to take advantage of.
+ - My new year’s resolution is definitely to quit smoking. I need to do it.
+ - Life is a funny thing, the minute you think you’ve got everything figured out something comes along and turns it all upside down.
+ - You can say whatever you want about me, I’m not really bothered. But when it starts to upset people I care about or I hear about it from my mum, then that’s a problem.
+ - I am the most jealous boy in the world, when I’m with my girlfriend. I always kiss her so that the other guys know she’s mine.
+ - I’m always drawing, so Draw Something is a cool game to play against your friends when you’re bored and sat chilling out and relaxing.
+ - My trademark saying is probably “VAS HAPPENIN?!”
+ - Get on with life because life gets on without you.
+ - Some girls like to say one thing and mean another. And me being who I am, I’m very straightforward. Everything is very black and white for me. I don’t really like playing mind games.
+ - I’d make Liam my slave and I would make him be my uh personal trainer!
+ - I’m not one to get involved with what anyone says about me.
+ - I love the fact I grew up wanting a brother and now I have four.
+ - I like the term ‘misunderstood.’ But I am a bit of a bad boy.
+ - You don’t need a prince to be a princess.
+ - I’m very attracted to a girl’s eyes. I think you can tell a lot by a girl’s eyes.
+ - I love samosas filled with mincemeat. My mum makes really great ones.
+ - Quick! Do a roly, roly poly!
+ - I would date a model, but I would rather marry a fan or a normal person.
+ - It’s cool to know that I can make girls faint.
+ - I do believe in love at first sight. I’m experiencing it everyday.
+ - I thought I had a type but I don’t really have a type anymore. I just look for a girl who doesn’t take herself too seriously.
+ - I do feel like I’ve missed out a bit because I was really close with my sisters when I was at home. It must be weird for them but they cope really well.
+ - I am a bit of a bad boy. I have tattoos and I mess around. That’s part of my image, so it’s cool.
+ - It’s pretty strange because you have images of people in your head when you left, then you just think they’re going to be the same when you come back, like time freezes. I have sisters and from the ages of 11 to 13 – it’s a big change for girls.
+ - If you meet a girl, you meet a girl. It’s normal, so if you exchange numbers, whatevs, it’s cool.
+ - Your hand fits in mine Like it’s made just for me But bear this in mind It was meant to be And I’m joining up the dots with the freckles on your cheeks And it all makes sense to me.
+ - The reason I don’t tweet as much as I used to, is because I’m sick of all the useless opinions and hate that I get daily. Goodbye Twitter.
+ - One Direction is the main thing I’m doing and I’m 100 per cent dedicated to the group.
+ - Our parents are obviously proud, but they’re still trying to get used to the fact that we’re in a band. I have a feeling my mom would actually like One Direction if I wasn’t in it!
+ - Little Things isn’t about anyone in particular, it’s about all girls. You’re all beautiful and you need to hear it more often.
+ - I was a bit of a handful when I was a kid because I was quite hyperactive. Even in the house my mum used to put me in my pram because I was so full-on.
+ - Without the fans there’s no reason to be One Direction.
+ - Whenever anything went wrong at home, because I was the only boy, I would get blamed for it straight away. Girls stick together.
+ - I just wanted somebody to tell me that I could sing.
+ - I’m a massive fan of Drake, and we walked right past him. He’s too cool to be clapping One Direction though.
+ - When fans start screaming when they see me it makes my heart smile.
+ - We didn’t really expect to achieve anything outside of the UK, and it just went crazy. It’s just crazy that people know our music. We’re just humbled by it.
+ - Mom I’m not going to war!
+ - I prefer to date younger girls to be more protective.
+ - I just love comic books. I’ve always loved comic book art, and I just think it’s amazing.
+ - I like girls that are chilled out, that dont really care, that are just cool.
+ - The amount of hot girls who come to signings is incredible!
+ - I like a girl who knows what she wants and makes me work for her.
+ - There’s 3 types of fans. There’s the ones that scream, the ones that want to talk to you and the ones that don’t speak at all.
+
+77 quotes

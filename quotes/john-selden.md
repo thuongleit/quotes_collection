@@ -1,0 +1,72 @@
+ - Wise people say nothing in dangerous times.
+ - Commonly we say a judgment falls upon a man for something in him we cannot abide.
+ - We see the judges look like lions, but we do not see who moves them.
+ - Ignorance of the law excuses no man; not that all men know the law, but because ’tis an excuse every man will plead, and no man can tell how to refute him.
+ - Old friends are best.
+ - Preachers say, “Do as I say, not as I do.” But if a physician had the same disease upon him that I have, and he should bid me do one thing and he do quite another, could I believe him?
+ - Religion is like the fashion, one man wears his doublet slashed, another lashed, another plain; but every man has a doublet; so every man has a religion. We differ about the trimming.
+ - A glorious Church is like a magnificent feast; there is all the variety that may be, but every one chooses out a dish or two that he likes, and lets the rest alone: how glorious soever the Church is, every one chooses out of it his own religion, by which he governs himself, and lets the rest alone.
+ - Humility is a virtue all preach, none practice; and yet everybody is content to hear.
+ - A gallant man is above ill words.
+ - Ignorance of the law excuses no man.
+ - Pride may be allowed to this or that degree, else a man cannot keep up dignity. In gluttony there must be eating, in drunkenness there must be drinking; ’tis not the eating, and ’tis not the drinking that must be blamed, but the excess. So in pride.
+ - There was never a merry world since the fairies left off dancing.
+ - While you are upon the earth, enjoy the good things that are here.
+ - Patience is the chiefest fruit of study; a man that strives to make himself different from other men by much reading gains this chiefest good, that in all fortunes he hath something to entertain and comfort himself withal.
+ - Take a straw and throw it up into the air, you may see by that which way the wind is.
+ - Money makes a man laugh.
+ - Humility is a virtue all men preach, none practice, and yet everybody is content to hear. The master thinks it good doctrine for his servants, the laity for the clergy, and the clergy for the laity.
+ - Never tell your resolution beforehand, or it’s twice as onerous a duty.
+ - The Parish makes the constable, and when the constable is made, he governs the Parish.
+ - No man is the wiser for his learning; it may administer matter to work in, or objects to work upon; but wit and wisdom are born with a man.
+ - The happiness of married life depends upon making small sacrifices with readiness and cheerfulness.
+ - Old friends are best. King James used to call for his old shoes; they were the easiest for his feet.
+ - We measure the excellency of other men by some excellency we conceive to be in ourselves.
+ - Idolatry is in a man’s own thought, not in the opinion of another.
+ - It’s not the drinking to be blamed, but the excess.
+ - Abundance consists not alone in material possession, but in an uncovetous spirit.
+ - First, in your sermons, use your logic, and then your rhetoric; Rhetoric without logic, is like a tree with leaves and blossoms, but no root; yet more are taken with rhetoric than logic, because they are caught with fine expressions when they understand not reason.
+ - Marriage is a desperate thing.
+ - A wise man should never resolve upon anything, at least, never let the world know his resolution, for if he cannot reach that he is ashamed.
+ - Of all the actions of a man’s life, his marriage does least concern other people, yet of all the actions of our lives, ’tis the most meddled with by other people.
+ - Pleasure is nothing else but the intermission of pain, the enjoying of something I am in great trouble for till I have it.
+ - More solid things do not show the complexion of the times so well as Ballads and Libels.
+ - He that hath a scrupulous conscience is like a horse that is not well weighed; he starts at every bird that flies out of the hedge.
+ - Tis not seasonable to call a man traitor, that has an army at his heels.
+ - We look after religion as the butcher did after his knife, when he had it in his mouth.
+ - Casting out devils is mere juggling; they never cast out any but what they first cast in.
+ - The world cannot be governed without juggling.
+ - No man is the wiser for his learning.
+ - Those that govern most make least noise.
+ - Pleasures are all alike simply considered in themselves: he that hunts, or he that governs the commonwealth, they both please themselves alike, only we commend that, whereby we ourselves receive some benefit.
+ - Prayer should be short, without giving God Almighty reasons why he should grant this, or that; he knows best what is good for us.
+ - Talk what you will of the Jews, – that they are cursed: they thrive wherever they come; they are able to oblige the prince of their country by lending him money; none of them beg; they keep together; and as for their being hated, why, Christians hate one another as much.
+ - They that are against superstition oftentimes run into it of the wrong side. If I wear all colors but black, then I am superstitious in not wearing black.
+ - Fine wits destroy themselves with their own plots, in meddling with great affairs of state.
+ - A king is a thing men have made for their own sakes, for quietness sake. Just as in a family one man is appointed to buy the meat.
+ - Thou little thinkest what a little foolery governs the world.
+ - To preach long, loud, and Damnation, is the way to be cried up. We love a man that damns us, and we run after him again to save us.
+ - The clergy would have us believe them against our own reason, as the woman would have her husband against his own eyes.
+ - Preaching, in the first sense of the word, ceased as soon as ever the gospel was written.
+ - Never king dropped out of the clouds.
+ - Wit and wisdom differ; wit is upon the sudden turn, wisdom is bringing about ends.
+ - Pride may be allowed to this or that degree, else a man cannot keep up his dignity.
+ - We pick out a text here and there to make it serve our turn; whereas, if we take it all together, and considered what went before and what followed after, we should find it meant no such thing.
+ - In a troubled state we must do as in foul weather upon a river, not think to cut directly through, for the boat may be filled with water; but rise and fall as the waves do, and give way as much as we conveniently can.
+ - The law against witches does not prove there be any; but it punishes the malice of those people that use such means to take away men’s lives.
+ - Philosophy is nothing but discretion.
+ - Wit and wisdom are born with a man.
+ - Opinion is something wherein I go about to give reasons why all the world should think as I think.
+ - Few men make themselves masters of the things they write or speak.
+ - The House of Commons is called the Lower House, in twenty Acts of Parliament; but what are twenty Acts of Parliament amongst Friends?
+ - When men comfort themselves with philosophy, ’tis not because they have got two or three sentences, but because they have digested those sentences, and made them their own: philosophy is nothing but discretion.
+ - There is no book on which we can rest in a dying moment but the Bible.
+ - Every law is a contract between the king and the people and therefore to be kept.
+ - In quoting of books, quote such authors as are usually read; others you may read for your own satisfaction, but not name them.
+ - Gentelmen heve ever been more temperate in their religion than common people, as having more reason.
+ - If the prisoner should ask the judge whether he would be content to be hanged, were he in his case, he would answer no. Then, says the prisoner, do as you would be done to.
+ - Women ought not to know their own wit, because they will still be showing it, and so spoil it.
+ - Twas an unhappy Division that has been made between Faith and Works; though in my Intellect I may divide them, just as in the Candle I know there is both Light and Heat. But yet, put out the Candle, and they are both gone.
+ - Ceremony keeps up things: ’tis like a penny glass to a rich spirit, or some excellent water; without it the water were spilt, and the spirit lost.
+
+70 quotes

@@ -1,0 +1,52 @@
+ - People working together in a strong community with a shared goal and a common purpose can make the impossible possible.
+ - There are children with dreams counting on us.
+ - If we can get people to focus on fruits and vegetables and more healthy foods, we’ll be better in terms of our healthcare situation.
+ - I don’t think the face of the Democratic Party is Nancy Pelosi.
+ - The rise of childhood obesity has placed the health of an entire generation at risk.
+ - If I had a rain prayer or a rain dance I could do, I would do it.
+ - Now our job, our duty, our responsibility to ensure the safety and security of our citizens cannot be complete unless we guarantee health care security for our citizens.
+ - President Obama’s fight for rural America is personal. He was raised by a single mom and grandparents from Kansas. He hails from a farming state, Illinois.
+ - There are a lot of farmers and ranchers who are struggling. I get on my knees every day. If I had a rain prayer or a rain dance I could do, I would do it.
+ - And sometimes people don’t realize that 90 percent of the persistent poverty counties are located in rural America.
+ - Over the past two years, the Obama Administration and USDA have worked to build a foundation for sustainable economic growth in rural America. At the center of our vision is an effort to increase domestic production and use of renewable energy.
+ - Many young and beginning farmers start out in local markets. Some stay there, and some scale up.
+ - Food is a fairly significant aspect of my life. I have struggled mightily with food. With my weight. And I’m conscious of it. So I have a sensitivity to people who struggle with their weight.
+ - One out of every 12 jobs in the economy is connected in some way, shape or form to what happens on the farm.
+ - More than half of America’s rural counties are losing population and with it, political representation.
+ - What Republicans have done in my view is that they are systematically dismantling a sense of community in America.
+ - To help producers serve larger institutional customers like schools and hospitals, USDA has helped fund new regional infrastructure like cold storage warehouses, commercial kitchens and local slaughter facilities.
+ - If we are to transition to a new economy and to lead it, we must start by transforming our schools.
+ - You know, this country today, it seems to me – it’s about fear. And it shouldn’t be about fear. It should be about hope and optimism and creativity and accepting a challenge and being a moral leader and being a great nation.
+ - Food during my early years was a very difficult issue for me. I grew up in an addictive family. My mother had serious problems with alcohol and prescription drugs. I was an overweight kid. I can remember back in those days there weren’t the strategies that there are today to deal with those issues.
+ - Small businesses are the lifeblood of our economy.
+ - The lack of access to proper nutrition is not only fueling obesity, it is leading to food insecurity and hunger among our children.
+ - Quality, affordable housing is a key element of a strong and secure Iowa.
+ - President Obama has expressed his commitment to responsible stewardship of our land, water, and other natural resources. And one way of restoring the land to its natural condition is what we are doing here today – breaking pavement for the People’s Garden.
+ - In the past 40 years, the United States lost more than a million farmers and ranchers. Many of our farmers are aging. Today, only nine percent of family farm income comes from farming, and more and more of our farmers are looking elsewhere for their primary source of income.
+ - I grew up in a city. My parents would think there was something wrong with America if they knew I was secretary of agriculture.
+ - My friends, history, history calls us to this time and to this place. A solemn choice rests with us – where do we go from here? Do we move slowly and incrementally? Or do we seize the challenge of our time and tackle the great issues of our day.
+ - Proper school nutrition must be complemented by activities outside of the cafeteria. The decisions parents make to keep their kids healthy are critical in fighting this battle on the home front.
+ - I wish I could give you all the examples over the last two years as secretary of agriculture, where I hear people in rural America constantly being criticized, without any expression of appreciation for what they do do.
+ - It’s how you make decisions that matters, and that ought to be the question that people ask of any candidate for any executive office, whether it’s mayor, governor or president. How do you make decisions? Who do you want in the room helping you make those decisions?
+ - The future of healthcare security should include flexibility from the federal government to allow us to serve the state’s most vulnerable citizens.
+ - A healthy workforce is essential to grow our state and compete in the global marketplace. These actions are important to improve the health security of Iowans by making healthcare more affordable and accessible.
+ - During a national crisis, we as a nation become a single community and no one should take advantage of a crisis.
+ - To keep farmers on the farm we must maintain a strong farm safety net, but we will also have to build a thriving companion economy to compliment production agriculture in rural America.
+ - Although they are some of the hardest working folks I know, rural Americans earn, on average, $11,000 less than their urban counterparts each year. And they are more likely to live in poverty.
+ - We have a long tradition in this state of caring for our neighbors – it is truly an Iowa value.
+ - When you’ve paid your debt to society, you need to be reconnected and re-engaged in society.
+ - Local and regional food systems are about opportunity.
+ - There is more potential for economic growth in rural America than at any time in decades.
+ - If we truly want an innovative and creative renewable fuel industry, then it needs to be challenged. And if we create a set of protections that allow it to not be as creative and innovative as possible, then we aren’t doing a service to the industry or to the people of this country.
+ - This is an exciting time for farmers and ranchers of all types and sizes as agriculture is a bright spot in the American economy. In 2011, agricultural exports hit a record high and producers saw their best incomes in nearly 40 years.
+ - I think we all share the same goal, which is a United States of America that inspires people and leads.
+ - The Obama administration will continue to fight for a comprehensive immigration solution that includes AgJobs and a stable workforce for our farms.
+ - Democrats have always historically referred to our families as working families, and I have sort of changed that moniker. I think what we have is a nation of worried families – families that are concerned about job security, families who thought their pensions were secure and now have questions.
+ - Let us tackle the big issues with bold ideas that transform Iowa to accomplish our shared mission to grow Iowa, and realize our shared vision of Iowa as the best place to live, work and raise a family.
+ - To amplify our efforts, USDA is joining with First Lady Michelle Obama in aggressively promoting the ‘Let’s Move’ campaign, which will combat the epidemic of childhood obesity through a comprehensive approach that builds on effective strategies, and mobilizes public and private sector resources.
+ - The food pyramid is very complicated. It doesn’t give you as much info in a quick glance as the plate does.
+ - Today, President Obama is making smart investments in clean energy – wind, solar, biofuels – as part of an all-of-the-above energy strategy that supports thousands of jobs, not in the Middle East, but in the Midwest.
+ - Rural Americans want leaders who help middle-class communities to plan and prosper over the long-term – not opportunists who reap the rewards for themselves, leaving nothing for the people who do the sowing.
+ - But It doesn’t make sense for us to have a continued reliance on a supply of oil where whenever there is unrest in another part of the world, gasoline prices jump up. We need a renewable fuel industry that’s more than corn-based, of course, and there are a whole series of great opportunities here.
+
+50 quotes

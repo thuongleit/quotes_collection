@@ -1,0 +1,56 @@
+ - All you who sleep tonight Far from the ones you love, No hand to left or right, An emptiness above – Know that you aren’t alone. The whole world shares your tears, Some for two nights or one, And some for all your years.
+ - God save us from people who mean well.
+ - Is it not love that knows how to make smooth things rough and rough things smooth?
+ - I need my natural laziness to be counteracted by obsession in order to do anything.
+ - Put your backbone where your wishbone is.
+ - I don’t think people give Indian society enough credit. We may not like to talk much about things but we do, basically, want to live and let live.
+ - I think if something is worth doing, it’s worth doing well. And worth thinking about it as well.
+ - I don’t pick and choose subjects or settings; they pick and choose me.
+ - The thing about inspiration is that it takes your mind off everything else.
+ - Why do writers, say, give up a job in economics and decide to write poetry? Or, why do they give up a job in a bank and decide to paint, like Krishan Khanna? They want to convey something.
+ - I tend to follow a scattershot approach to reading a lot of very diverse subjects interest me, and I’m quite happy to read stuff on any of them.
+ - You know, I can imagine not writing a novel and writing poetry only.
+ - For a writer, obsession is a good substitute for self-discipline.
+ - I think it’s possible to be multi-rooted, rather like a banyan tree, without being deracinated.
+ - Don’t put things off till it’s too late. You are the DJ of your fate.
+ - Think of many things. Never place your happiness in one person’s power. Be just to yourself.
+ - And an equation is the same whether it’s written in red or green ink.
+ - Fiction basically is a form of gossip where you want to enter other people’s lives, the lives of people you don’t know, and you want to know what’s going to happen to them.
+ - I sometimes seem to myself to wander around the world merely accumulating material for future nostalgias.
+ - Poetry, I think, intensifies the reader’s experience. If it’s a humorous facet of the story, poetry makes it more exuberant. If it’s a sad facet, poetry can make it more poignant.
+ - What is the difference between my life and my love? One gets me low, the other lets me go.
+ - I want my books to sell, to be read. I’m not interested in being obscure.
+ - There are plenty of good Indian writers in English, and none of us feel we are carrying the burden of being a poster boy.
+ - In a painting, you can’t make out whether the artist painted the left eye before the right eye. In Chinese calligraphy, you can see the progression of the artist’s stroke.
+ - I just love music – by no stretch of the imagination am I professionally competent.
+ - I rarely listen to music while writing. If I don’t like it, it bothers me, and if I like it, it absorbs me so much I can’t write.
+ - It’s not the gods But our own hearts We need to fear. The evil starts Against all odds Not there but here.
+ - Every object strives for its proper place. A book seeks to be near its truest admirer. Just as this helpless moth seeks to be near the candle that infatuates him.
+ - In spite of all temptations of belonging to many nations, I’ve remained an Indian.
+ - Music, such music, is a sufficient gift. Why ask for happiness; why hope not to grieve? It is enough, it is to be blessed enough, to live from day to day and to hear such music-not too much, or the soul could not sustain it-from time to time.
+ - I don’t think anyone should be banned. If you don’t like a book, set it aside.
+ - You get your inspiration – suggestions – wherever you have to, even from your mother.
+ - Those books of mine that are remunerative – I’m not talking about poetry here – take years to write, and I am never sure they’ll be successful. So writing is a risk in more senses than one.
+ - My eyes close. I am here and not here. A waking nap? A flight to the end of the galaxy and perhaps a couple of billion light-years beyond?
+ - I think goodness is about how person behaves to person, and also person to world, to nature.
+ - Quietly they moved down the calm and sacred river that had come down to earth so that its waters might flow over the ashes of those long dead, and that would continue to flow long after the human race had, through hatred and knowledge, burned itself out.
+ - I have a reputation for being hermitlike. I’m not. I’m just obsessed with my work.
+ - And the process of reading is such a private one. I once came into a room where a friend of mine was reading one of my books, and he clicked his tongue impatiently and shooed me off.
+ - I’m not sure anyone can understand a whole life, even their own.
+ - Of course, the greater one’s need, the greater one’s propensity to be mesmerized.
+ - I spent many years of my life as an economist and demographer. I was finally distracted by writing my novels and poetry. I’m enormously happy that was the case. I feel that with writing I have found my metier.
+ - You can talk good ideas out of existence.
+ - It is exciting to write about the present once one gets beyond the trivia of the moment. As a time to live in, as a time to think about, the present is intriguing.
+ - You have to learn a few things, which you do along the way, but basically, poetry is a matter of the ear. Iambic pentameters or what constitutes a stanza comes naturally – your ears will know.
+ - Revision has its own peculiar pleasures and its own peculiar frustrations. The ground rules are already established; the characters already exist. You don’t have to bring the characters to life, but you do have to make them more convincing.
+ - I recall drinking sherry in California and dreaming of England, where I ate dalmoth and dreamed of Delhi. What is the purpose, I wonder, of all this restlessness? I sometimes seem to myself to wander around the world merely accumulating material for future nostalgias.
+ - I simply seem to drift. But I sort of allow the drift, because it has a kind of check – it forces me to work harder at what I’m interested in.
+ - Dear though the reader might be, I’d be silly to cater to what the reader wanted.
+ - Boredom provides a stronger inclination to write than anything.
+ - I certainly think its very important that writers as citizens – not necessarily as writers, but just as ordinary citizens – should talk about things that matter to them.
+ - Good music is good music, but it has to be good.
+ - So many Indian novels, quite unfairly, do not get the prominence they should because they have been written in a language other than English.
+ - I am certainly not allergic to causes – particularly on subjects such as religious intolerance.
+ - I often feel newspapers are just filling up space. Of course, I also know people who write really long books.
+
+54 quotes

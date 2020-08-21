@@ -1,0 +1,22 @@
+ - Well-crafted things inspire me, whether it’s pottery or art or music.
+ - Wellness within is mindfulness and acceptance of what you are, what you feel inside and how it’s always changing. That process is helped by being attentive to the breath as it moves through the body.
+ - The most important pieces of equipment you need for doing yoga are your body and your mind.
+ - When someone’s really sick and their family is tired and concerned about what will take place, those are the times that they need a support group around them to take care of them as a human being.
+ - Train yourself to be in awe of the subtle, and you will live in a world of beauty and ease.
+ - That’s exactly how it is in yoga. The places where you have the most resistance are actually the places that are going to be the areas of the greatest liberation.
+ - What we’re trying to do in yoga is to create a union, and so to deepen a yoga pose is to actually increase the union of the pose, not necessarily put your leg around your head.
+ - When you stand in the present moment, you are timeless.
+ - Coming to Haramara is like coming home. My body returns to the earth, my mind mesmerized by the rhythms of the ocean and my spirit flies in this magical place. Yoga is a way of life and Haramara Retreat is where we can re-educate ourselves to live in balance.
+ - A well trained body is a beautiful instrument on which to play the melody of the present moment.
+ - As we look deeply within, we understand our perfect balance. There is no fear of the cycle of birth, life and death. For when you stand in the present moment, you are timeless.
+ - The practice of yoga has been an amazing tool to actually unearth where my inspiration lives inside my body and mind and heart.
+ - Listen deeply. Meditate on that which is arising. Even if it’s boredom or difficulty or maybe a feeling of being stuck, that in itself can be the work for your practice.
+ - Any doorway that leads you to a deeper understanding of who you are is worthwhile.
+ - The study of yoga makes me inspired.
+ - There’s so much fear running our lives that we forget to be human when it really counts.
+ - Yoga is the methodology with which to unveil the miracle that exists right in front of our faces and inside ourselves.
+ - Philosophy is unbelievably inspiring to me.
+ - Teaching is really a natural extension of one’s practice – one wants to share something that’s so influential and beautiful in one’s life.
+ - Yoga is the study of the human body. It is the surge for the human soul.
+
+20 quotes

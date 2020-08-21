@@ -1,0 +1,74 @@
+ - What is grit? Grit is refusing to give up. It’s persistence. It’s making your own luck.
+ - The best way to become a billionaire is to help a billion people.
+ - The day before something is a breakthrough, it’s a crazy idea.
+ - The world’s biggest problems are the world’s biggest business opportunities.
+ - The first trillionaire can be made in space.
+ - If the risk is fully aligned with your purpose and mission, then it’s worth considering.
+ - A Masai warrior on a cellphone in the middle of Kenya has better mobile comm than President Reagan did 25 years ago.
+ - Every second of every day, our senses bring in way too much data than we can possibly process in our brains.
+ - When faced without a challenge, make one.
+ - Stuff goes wrong. Expect it, learn from it, fix it. That’s how remarkable happens.
+ - At its core, bitcoin is a smart currency, designed by very forward-thinking engineers. It eliminates the need for banks, gets rid of credit card fees, currency exchange fees, money transfer fees, and reduces the need for lawyers in transitions all good things.
+ - An expert is someone who can tell you exactly how it can’t be done.
+ - I have the general philosophy of creating the future you want to see.
+ - You need to be a little crazy to change the world, and you can’t really fake it.
+ - Today, a group of 20 individuals empowered by the exponential growing technologies of AI and robotics and computers and networks and eventually nanotechnology can do what only nation states could have done before.
+ - Space is an inspirational concept that allows you to dream big.
+ - Companies have too many experts who block innovation. True innovation really comes from perpendicular thinking.
+ - More than ever before in history, individuals can now band together to solve grand challenges. We face enormous problems, but we ‘as individuals’ have enormous power to solve them.
+ - Without risks, there can’t be breakthroughs.
+ - Bad news sells because the amygdala is always looking for something to fear.
+ - True disruption means threatening your existing product line and your past investments. Breakthrough products disrupt current lines of businesses.
+ - If someone is always to blame, if every time something goes wrong someone has to be punished, people quickly stop taking risks. Without risks, there can’t be breakthroughs.
+ - Mining asteroids will ultimately benefit humanity on and off the Earth in a multitude of ways.
+ - You either disrupt your own company or someone else will.
+ - Humans are the worst control system to put in front of a car.
+ - Super-ambitious goals tend to be unifying and energizing to people; but only if they believe there’s a chance of success.
+ - We are racing toward a world of abundance, and we are going to be increasing the quality of life for everyone on this planet. The world’s biggest problems are the world’s biggest business opportunities.
+ - If you stop and you think about everything we hold of value on this planet, metal, minerals, energy, real estate, the things that nations fight wars over. These things are in near infinite quantities out there.
+ - Technology is a resource liberating force!
+ - Small teams driven by their passion with a clear focus can do extraordinary things. Things that only large corporations and governments could do in the past.
+ - My childhood dreams were focused on being part of the effort to make humanity a multiplanetary species.
+ - You should command and demand the tenfold leverage on your dollars when you give it away as well.
+ - I believed that once we got to the Moon, there was no stopping us. But in fact, we did stop.
+ - I get demoralized by organizations that start off with a mission and pull back when they find it’s risky.
+ - I became very much, if I have to describe myself, I’m sort of a Libertarian Capitalist, and I was looking for, what’s the economic engine that’s going to drive us into space.
+ - One of my goals is to reinvent philanthropy.
+ - I don’t think the space station is innovative. Going to the moon was innovative because we had no idea how to do it.
+ - The question companies have to ask, or governments have to ask is, where do we allow crazy ideas to bubble up? Because if there is a failure, what happens? Someone gets blame. There’s a lawsuit, there’s a congressional investigation. And so, those things shut down the creative engine.
+ - Back in 2007, I had the opportunity to meet Professor Stephen Hawking through the X PRIZE Foundation. In my first conversation with him I learned that he was passionate about flying into space someday.
+ - I ended up realizing that NASA was unlikely to get me into space, or get me to the moon or beyond, and I needed some other way to drive this.
+ - The meek shall inherit the earth. The rest of us are going to the stars.
+ - We are not going to stop here on planet Earth. We’re going to move out to other planetary bodies.
+ - I think people are dreaming big because they have the tools to dream big. I hope that people are dreaming big because it makes them feel good about their lives.
+ - Many have built their careers buttressing the status quo, reinforcing what theyve already accomplished, and resisting the radical thinking that can topple their legacy – not exactly the attitude you want when trying to drive innovation forward.
+ - My goal is there’s a new generation of cars. And people can say we’re living in a new day and age. A new day and age of cars that are beautiful, affordable, safe, and of course every car gets over 100 mpg, why wouldn’t it.
+ - What opened up the American West was the fact that you owned the real estate. You owned the gold mines, the oil wells. The creation of these, back then, million dollar industries drove the railroads and eventually the airlines to provide this kind of transportation.
+ - Today, philanthropy is a very unsophisticated, old world process where people who make a shitload of money go and give it away and when they’re making their money, they’re focused on 10x, 100x returns on the dollar.
+ - I’m a nine-year old kid inside and my passion has been all my life to want to travel into space.
+ - My father, who grew up picking olives on the Greek island of Lesbos, was a doctor. So my family expected me to become a physician.
+ - Eight billion people will have Internet access by 2020.
+ - If you can make a big impact on the global literacy problem, you can uplift a big portion of society.
+ - NASA calls stuff nominal instead of phenomenal, like it really is. So I have given up that there is going to be a balance and NASA is going to do certain things and we are finally in a state of existence where small groups of individuals can do extraordinary things, funded by single people.
+ - I founded a launch company called International Microspace when I graduated medical school in 1989. We were trying to build a microsatellite launcher.
+ - In the space business, space had gotten very much to be the aerospace industry. This is something that governments only do and it’s where the Boeings and the Lockheed’s and the Northrop’s and so forth. And there’s no way these small companies could do it.
+ - The paradigm I want to change is that, you can have a car that is beautiful, manufacturable, affordable, safe, fast, and oh, by the way, does 100 mpg, or its energy equivalent. Why wouldn’t you?
+ - Space is not a two-year objective. It used to be, in the early ’60’s, we had this eye candy of Mercury and Gemini and Apollo and every year we would do something more and more and it met those needs. But the easy stuff has been done.
+ - We have these 100 mms delays, you know, our attention is on our PDA, we’re always in a rush. We drive around in these 4,000 pound metal wombs, these 4,000 pound containment systems to protect us from these 6,000 pound cars from smacking us.
+ - As lower-cost phones begin to penetrate, they’ll become the educator and physician everywhere on the planet.
+ - The price to generate a megawatt or a gigawatt of energy is coming down year after year. We’re learning how to print it, make it more efficient.
+ - When cars have the sensory systems around them, GPS intelligence, they’re looking at the world not only in visual spectrum, but infrared, ultraviolet and everything else that’s going on and they’ve got reaction times in microseconds. Not a tenth of a second. They’re a hundred thousand times faster.
+ - As you may know, I’m the co-founder and co-chairman of an asteroid company called Planetary Resources that is backed by a group of eight billionaires to implement the bold mission of extracting resources from near-Earth asteroids.
+ - If you give people unlimited time and money, they’ll do things the same old way. But if they have to achieve the goal in a brief time, they’ll either give up or try something new.
+ - We live in a world bathed in 5,000 times more energy than we consume as a species in the year, in the form of solar energy.
+ - The quality of your life is a function of who you go through life with.
+ - You’ve got to choose your horse ahead of time. So, if you’re interested in water technology, energy technology, you get to choose between the three or four companies that you have insight into. And you have to make a bet on them before they prove anything out.
+ - If you believe that the developing world deserves the same standards of living that we do in the developed world, then to achieve that, they need resources. They need the metals and the minerals to build the industries and the buildings and so forth, and the energy.
+ - Every generation feels it has the problems that will destroy it. That’s because we can perceive them a long time before we have the ability to fix them.
+ - Research shows that the wealthier, more educated, and healthier a nation, the less violence and civil unrest among its populace, and the less likely that unrest will spread across its borders.
+ - You could not legally put a human and fly them into space. In fact, you couldn’t bring a spaceship back. All those spaceships we were sending commercially into space were one way. You sort of like, got rid of them. And most passengers, who go up, do want to come back down.
+ - Go and try to start your own government in the United States today and you’ll be squashed very quickly.
+ - The idea of a young thin woman who weighs 100 pounds driving herself around in a 4,000 pound SUV is laughable.
+ - Large companies and government agencies have a lot to protect and therefore are not willing to take big risks. A large company taking a risk can threaten its stock price. A government agency taking a risk can threaten congressional investigation.
+
+72 quotes

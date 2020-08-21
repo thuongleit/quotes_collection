@@ -1,0 +1,38 @@
+ - We must all suffer from one of two pains: the pain of discipline or the pain of regret. The difference is discipline weighs ounces while regret weighs tons.
+ - We become what we repeatedly do.
+ - Depending on what they are, our habits will either make us or break us. We become what we repeatedly do.
+ - One of the few things that can’t be recycled is wasted time.
+ - We are free to choose our paths, but we can’t choose the consequences that come with them.
+ - Life is a mission, not a career. A career is a profession, a mission is a cause. A career asks, What’s in it for me? A mission asks, How can I make a difference?
+ - Small changes can make huge destination differences.
+ - If you decide to just go with the flow, you’ll end up where the flow goes, which is usually downhill, often leading to a big pile of sludge and a life of unhappiness. You’ll end up doing what everyone else is doing.
+ - Being gentle means forgiving yourself when you mess up. We should learn from our mistakes, but we shouldn’t beat the tar out of ourselves over them. The past is just that, past. Learn what went wrong and why. Make amends if you need to. Then drop it and move on.
+ - Don’t wait until people are dead to give them flowers.
+ - Education must be a lifelong pursuit. The person who doesn’t read is not better off than the person who can’t.
+ - Isn’t it kind of silly to think that tearing someone else down builds you up?
+ - If you could envision the type of person God intended you to be, you would rise up and never be the same again.
+ - Now think deeply. What have you done with your life over the past year? How do you feel inside?
+ - Strong minds talk about ideas; weak minds talk about people.
+ - I think the greatest challenge between child and parent is communication.
+ - If you’re planning on dropping out of high school, prepare yourself for the future by repeating aloud each day: ‘I’m looking forward to low-paying jobs for the rest of my life.’
+ - One of the greatest gifts a parent can give a child is to help them find their talents.
+ - Make as many friends as you can, but don’t build your life on them alone. It’s an unstable foundation.
+ - These problems are real, and you can’t turn off real life. So I won’t try. Instead, I’ll give you a set of tools to help you deal with real life.
+ - All the events of your past have formed a lens, or paradigm, through which you see the world. And since no one’s past is exactly like anyone else’s, no two people see alike.
+ - The average teen today spends about 35 hours a week in front of a screen of some kind: iPod, movie, TV, video. And a lot of it is good, but a lot of it’s not. And so I think you’ve got that five hours a day of media coming into your kid’s head that’s creating a lot of havoc out there.
+ - Instead of trying to blend in and be like everyone else, be proud of and celebrate your unique differences and qualities. A fruit salad is delicious precisely because each fruit maintains its own flavor.
+ - The primary purpose of going to college isn’t to get a great job. The primary purpose of college is to build a strong mind, which leads to greater self-awareness, capability, fulfillment, and service opportunities, which, incidentally, should lead to a better job.
+ - Honesty is always the best policy, even when it’s not the trend.
+ - Listening can heal wounds.
+ - You can usually tell when a couple becomes centered on each other because they are forever breaking up and getting back together.
+ - It’s hard, but sometimes it is better to have no friends for a time than to have the wrong friends. The wrong group can lead you down all kinds of paths you really don’t want to be on. And retracing your steps can be a long and hard journey.
+ - My dad told me that when I was born my cheeks were so fat the doctors didn’t know which end to spank.
+ - Don’t let your pride or a lack of courage stand in the way of saying you’re sorry to people you may have offended.
+ - My dad is a good role model for me, and then I had a high school coach that really helped me out when I was struggling and made a big difference in my life.
+ - My focus has kind of been on teenagers, you know, and I think we’ve got a huge crisis right now in America, among our teens.
+ - It’s especially hard to admit that you made a mistake to your parents, because, of course, you know so much more than they do.
+ - The following is a list of statements made many years ago by experts in their fields. At the time they were said they sounded intelligent. With the passing of time, they sound idiotic.
+ - You should see my baby pictures. My cheeks hung off my face like water balloons. You can imagine how often I was teased.
+ - A fruit salad is delicious precisely because each fruit maintains its own flavor.
+
+36 quotes

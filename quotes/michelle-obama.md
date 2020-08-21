@@ -1,0 +1,181 @@
+ - The only limit to the height of your achievements is the reach of your dreams and your willingness to work hard for them.
+ - There is no magic to achievement. It’s really about hard work, choices, and persistence.
+ - Choose people who lift you up.
+ - Success isn’t about how much money you make. It’s about the difference you make in people’s lives.
+ - Women and girls can do whatever they want. There is no limit to what we as women can accomplish.
+ - Always stay true to yourself and never let what somebody says distract you from your goals.
+ - The benefits of studying abroad are almost endless.
+ - You can’t make decisions based on fear and the possibility of what might happen.
+ - Value everyone’s contribution and treat everyone with respect.
+ - As women, we must stand up for ourselves. We must stand up for each other. We must stand up for justice for all.
+ - You’ve got to make choices that make sense for you because there’s always going to be somebody who’ll think you should do something differently.
+ - Success is only meaningful and enjoyable if it feels like your own.
+ - No matter who you are, no matter where you come from, you are beautiful.
+ - There are still many causes worth sacrificing for, so much history yet to be made.
+ - Success doesn’t count unless you earn it fair and square.
+ - Walk away from ‘friendships’ that make you feel small and insecure, and seek out people who inspire you and support you.
+ - Do not die in the history of your past hurts and past experiences, but live in the now and future of your destiny.
+ - I never cut class. I loved getting A’s, I liked being smart. I liked being on time. I thought being smart is cooler than anything in the world.
+ - One of the lessons that I grew up with was to always stay true to yourself and never let what somebody else says distract you from your goals. And so when I hear about negative and false attacks, I really don’t invest any energy in them, because I know who I am.
+ - Education is the single-most important civil rights issue that we face today.
+ - No country can ever truly flourish if it stifles the potential of its women and deprives itself of the contributions of half of its citizens.
+ - I’ve seen firsthand that being president doesn’t change who you are. It reveals who you are.
+ - Childhood obesity issue is critically important to me because it’s critically important to the health and success of our kids, and of this nation, ultimately.
+ - We need to do a better job of putting ourselves higher on our own ‘to do’ list.
+ - We should always have three friends in our lives-one who walks ahead who we look up to and follow; one who walks beside us, who is with us every step of our journey; and then, one who we reach back for and bring along after we’ve cleared the way.
+ - Hope and change are hard-fought things.
+ - Every girl, no matter where she lives, deserves the opportunity to develop the promise inside of her.
+ - We have an obligation to fight for the world as it should be.
+ - We’ve got a responsibility to live up to the legacy of those who came before us by doing all that we can to help those who come after us.
+ - Communities and countries and ultimately the world are only as strong as the health of their women.
+ - How hard you work matters more than how much you make.
+ - Don’t let anyone speak for you, and don’t rely on others to fight for you.
+ - Good health is multifaceted – it’s physical, it’s internal, it’s my diet, and my emotional state. It’s all tied in together.
+ - Doing the impossible is the history of this nation. It is how this country was built.
+ - I am an example of what is possible when girls from the very beginning of their lives are loved and nurtured by people around them. I was surrounded by extraordinary women in my life who taught me about quiet strength and dignity.
+ - He’s always asking: ‘Is that new? I haven’t seen that before.’ It’s like, Why don’t you mind your own business? Solve world hunger. Get out of my closet.
+ - Wounded Warriors tell me they’re not just going to walk again, they’re going to run, and they’re going to run marathons!
+ - For me exercise is more than just physical, it’s therapeutic.
+ - Just keep focusing on the work that you’re doing. Focus on what’s in front of you today. And don’t read the papers, just go campaign. Just do your thing. Talk to people directly.
+ - Find people who will make you better.
+ - Learning through the arts reinforces critical academic skills in reading, language arts and math and provides students with the skills to creatively solve problems.
+ - I am only as good as my children are.
+ - My happiness isn’t connected to my husband’s or my boss’s or my children’s behavior. You have control over your own actions, your own well-being.
+ - Being a healthy woman isn’t about getting on a scale or measuring your waistline. We need to start focusing on what matters-on how we feel, and how we feel about ourselves.
+ - I was too worried about the grades and I should have been more worried about learning.
+ - If we truly believe that every girl in every corner of the globe is worthy of an education as our own daughters and granddaughters are, then we need to deepen our commitment to these efforts.
+ - Whether you come from a council estate or a country estate, your success will be determined by your own confidence and fortitude.
+ - My goal is to be a great-looking 70-year-old! I won’t mind being 70, but I want people to say, “You’re 70?”
+ - All of us are driven by a simple belief that the world as it is just won’t do – that we have an obligation to fight for the world as it should be.
+ - My message to women: Do what makes you feel good, because there’ll always be someone who thinks you should do it differently. Whether your choices are hits or misses, at least they’re your own.
+ - I tell this to my girls all the time: This journey we’re on is a once – in – a – lifetime opportunity.
+ - It’s all about patience and persistence – you often have to expose a child to a new food numerous times before he or she will begin to like it. So keep trying!
+ - To be a good parent, you need to take care of yourself so that you can have the physical and emotional energy to take care of your family.
+ - My happiness is tied to how I feel about myself.
+ - What I tell my kids is, ‘I’m preparing you for college and for life. So, having independence, knowing how to set your own boundaries, figuring out how to make that balance. We still have screen-time rules.’
+ - The arts can enrich all of us in this nation as individuals. The arts can enrich all of our communities and the country. And the arts can connect us to each other like nothing else can.
+ - The arts are not just a nice thing to have or to do if there is free time or if one can afford it. Rather, paintings and poetry, music and fashion, design and dialogue, they all define who we are as a people and provide an account of our history for the next generation.
+ - Be passionate about something and lean to that strength.
+ - Service is a limitless opportunity, it is the reason why we breathe.
+ - And then there’s this guy, Barack Obama, who lost – I could take up a whole afternoon talking about his failures, but – he lost his first race for Congress, and now he gets to call himself my husband.
+ - I always want to be on the cusp of being in the best shape that I can be.
+ - I never thought I’d be on Sesame Street with Elmo and Big Bird. I’m still thrilled. I’m on a high.
+ - Together, we can help make sure that every family that walks into a restaurant can make an easy, healthy choice.
+ - The beauty of my job is that I get to see more of that America. And that feeds me.
+ - I have never been proud of America my entire adult life.
+ - We need all hands on deck, and that means clearing hurdles for women and girls as they navigate careers in science, technology, engineering, and math.
+ - If my future were determined just by my performance on a standardized test, I wouldn’t be here. I guarantee you that.
+ - We were so young, so in love, and so in debt.
+ - I know what makes me happy. I pick the clothes that make me happy – sometimes people like them, sometimes they don’t. I try to listen to my own internal guide.
+ - I am a sleeper. When you wake up at 4:30 in the morning to do a workout, you’re sleepy at 8 in the evening. By 10 o’clock at the latest, I’m in bed.
+ - Whether an illness affects your heart, your leg or your brain, it’s still an illness, and there should be no distinction.
+ - I don’t, as my mom would say, sweat the small stuff in our relationship. Because when I think of day-to-day irritations that you might have with the one you love, they’re nothing compared to the bigger task at hand.
+ - Sometimes, it’s just easier to say yes to that extra snack or dessert, because frankly, it is exhausting to keep saying no. It’s exhausting to plead with our kids to eat just one more bite of vegetables.
+ - Barack knows that we are going to have to make sacrifices; we are going to have to change our conversation; we’re going to have to change our traditions, our history; we’re going to have to move into a different place as a nation.
+ - Barack didn’t pledge riches, only a life that would be interesting. On that promise he delivered.
+ - Happiness for me is when my kids are good and when my family is whole.
+ - And let’s be clear: It’s not enough just to limit ads for foods that aren’t healthy. It’s also going to be critical to increase marketing for foods that are healthy.
+ - When I’m unhappy with something, people know, because I don’t want to hold on to it. I’d rather deal immediately with the stuff that bothers me, so using my network – my girlfriends, my husband, my mom – I talk a lot, I vent.
+ - Even my husband is happier when I’m happy. He has always said, “You figure out what you want to do,” because he’s discovered that personal happiness is connected to everything.
+ - If I can have any impact, I want women to feel good about themselves and have fun with fashion.
+ - Barack is one of the smartest people you will ever encounter who will deign to enter this messy thing called politics.
+ - The problem is when that fun stuff becomes the habit. And I think that’s what’s happened in our culture. Fast food has become the everyday meal.
+ - I think that people are tired. They’re tired of the same old kind of politics. People want a new tone to politics.
+ - Exercise is really important to me – it’s therapeutic. So if I’m ever feeling tense or stressed or like I’m about to have a meltdown, I’ll put on my iPod and head to the gym or out on a bike ride along Lake Michigan with the girls.
+ - I can make choices that make me happy, and it will ripple and benefit my kids, my husband, and my physical health. That’s hard for women to own; we’re not taught to do that.
+ - I know what it feels like to struggle to get the education that you need.
+ - I think that mentoring is such a critical part of the role I can play in my position. I see how little bits of exposure and big bits of exposure really change my girls significantly, and I want that for more girls around the country and the world.
+ - My most important title is Mom in Chief.
+ - Good relationships feel good. They feel right. They don’t hurt.
+ - There is nothing more important to this nation’s future than investing in our young people.
+ - Earlier in my college career, there was no doubt in my mind that as a member of the Black community I was somehow obligated to this community and would utilize all of my present and future resources to benefit this community first and foremost.
+ - And I come here as a daughter, raised on the South Side of Chicago – by a father who was a blue-collar city worker and a mother who stayed at home with my brother and me.
+ - So we know that it’s not enough for us to simply encourage more people to study abroad. We also need to make sure that they can actually afford it.
+ - For the first time in my adult lifetime, I am really proud of my country. And not just because Barack has done well, but because I think people are hungry for change. And I have been desperate to see our country moving in that direction.
+ - My experiences at Princeton have made me far more aware of my ‘blackness’ than ever before.
+ - When I hear about negative and false attacks, I really don’t invest any energy in them, because I know who I am.
+ - I joke that I stick with the job because it covers my insurance, but the reality is that my career has always been very important to me.
+ - I love that we can trust Barack to do what he says he’s going to do, even when it’s hard – especially when it’s hard.
+ - I try to have no absolute nos. I love french fries, I like a good burger, and I like pie. And that’s okay.
+ - There’s no expert on this planet who says that the government telling people what to do actually does any good with this issue, this is going to require an effort on everyone’s part.
+ - I was not raised with wealth or resources or any social standing to speak of.
+ - Don’t worry about what candidates have done or said, just vote for the Democrats. Then, afterwards, you can go eat fried chicken.
+ - I like to talk about my obsession with french fries because I don’t want people to think that ‘Let’s Move’ is about complete, utter deprivation. It’s about moderation and real-life changes and ideas that really work for families.
+ - I try to be thoughtful about spreading the wealth: young designers. Mixing things up is important to me.
+ - We can aim to create a culture, where kids ask for healthy options instead of resisting them.
+ - And the first thing we have to do is vote. Hey, no, not just once in a while. Not just when my husband or somebody you like is on the ballot. But in every election at every level, all of the time.
+ - I’ve always been a closet jock. With exercising, the more you do it, the more you get into it. And the more you see results, the more you’re pushing for the next level.
+ - Our job is, first and foremost, to make sure our family is whole.
+ - My sense is that being a First Lady is a full-time job, but I’ll know more when the time comes.
+ - I’ve always tried to make sure that what I do really connects with the broader agenda of what my husband is trying to do.
+ - Oh, I can’t play soccer, and I’m not a great swimmer. I won’t drown, but you won’t see me doing laps in a pool.
+ - I believe that each of us-no matter what our age or background or walk of life-each of us has something to contribute to the life of this nation.
+ - We have to make sure that our kids still feel good about themselves no matter what their weight, no matter how they feel. We need to make sure that our kids know that we love them no matter who they are, what they look like, what they’re eating.
+ - We need to support Mary Burke for Governor!
+ - Ultimately this issue is on us. We’re the ones who make the decisions about what our kids eat.
+ - At the end of the day, when it comes time to make that decision, as president, all you have to guide you are your values, and your vision, and the life experiences that make you who you are.
+ - Child hunger and child obesity are really just two sides of the same coin. Both rob our children of the energy, the strength and the stamina they need to succeed in school and in life. And that, in turn, robs our country of so much of their promise.
+ - We’re going to have to change our traditions, our history.
+ - We need to fix our souls. Our souls are broken in this nation. We have lost our way. And it begins with inspiration. It begins with leadership.
+ - A lot of young people think they’re invincible, but the truth is young people are knuckleheads. Now young people can get insurance for as little as $50 a month, less than the cost of gym shoes.
+ - I am so tired of fear. And I don’t want my girls to live in a country, in a world, based on fear.
+ - In our house we don’t take ourselves too seriously, and laughter is the best form of unity, I think, in a marriage.
+ - I am desperate for change – now – not in 8 years or 12 years, but right now.
+ - Childhood obesity isn’t some simple, discrete issue. There’s no one cause we can pinpoint. There’s no one program we can fund to make it go away. Rather, it’s an issue that touches on every aspect of how we live and how we work.
+ - You can be a good mom and still work out, get your rest, have a career – or not. My mother encouraged me to find that balance.
+ - Policies that support families aren’t political issues. They’re personal. They’re the causes I carry with me every single day.
+ - I admit it: I am louder than the average human being and have no fear of speaking my mind. These traits don’t come from the color of my skin but from an unwavering belief in my own intelligence.
+ - People have notions of what a wife’s role should be in this process, and it’s been a traditional one of blind adoration. My model is a little different – I think most real marriages are.
+ - America is just downright mean.
+ - I come here tonight as a sister, blessed with a brother who is my mentor, my protector and my lifelong friend. And I come here as a wife who loves my husband and believes he will be an extraordinary president.
+ - The truth is, in order to get things like universal health care and a revamped education system, then someone is going to have to give up a piece of their pie so that someone else can have more.
+ - Let me tell you something. For the first time in my adult life, I am really proud of my country, because it feels like hope is finally making a comeback.
+ - Slowly but surely, we’re beginning to turn the tide on childhood obesity in America. Together, we are inspiring leaders from every sector to take ownership of this issue.
+ - You see, at the end of the day, my most important title is still ‘mom-in-chief.’ My daughters are still the heart of my heart and the center of my world.
+ - It is my hope that our garden’s story-and the stories of gardens across America-will inspire families, schools, and communities to try their own hand at gardening and enjoy all the gifts of health, discovery, and connection a garden can bring.
+ - To me, with age, everything has gotten better. You have way more control; you know yourself better.
+ - Some of my best memories are sitting on my dad’s lap, cheering on Olga and Nadia, Carl Lewis and others for their brilliance and perfection.
+ - Throughout my life, I’ve learned to make choices that make me happy and make sense for me. Even my husband is happier when I’m happy.
+ - If proud Americans can be who they are and boldly stand at the altar with who they love then surely, surely we can give everyone in this country a fair chance at that great American Dream.
+ - An educational foundation is only part of the equation. In order for creativity to flourish and imagination to take hold, we also need to expose our children to the arts from a very young age.
+ - I tell my kids, ‘I am thinking about you every other minute of my day.’
+ - Every day, through engagement in the arts, our children learn to open their imagination, to dream just a little bigger and to strive every day to reach those dreams.
+ - For me, as a mother, I am just, you know, I just can’t put into words how important it is for every American, for every mother, for every person in this country, to have healthcare.
+ - I’ve always been a closet jock, but when I got married and had kids, that fell by the wayside.
+ - We all need to start making some changes to how our families eat. Now, everyone loves a good Sunday dinner. Me included. And there’s nothing wrong with that. The problem is when we eat Sunday dinner Monday through Saturday.
+ - My mother’s love has always been a sustaining force for our family, and one of my greatest joys is seeing her integrity, her compassion, her intelligence reflected in my daughters.
+ - People are always going to have opinions, and people have a right to their opinions.
+ - My kids are normal. If they could eat burgers and fries and ice cream every day, they would. And so would I. But that doesn’t sustain us.
+ - Fashion is about so much more than just a pretty pair of pumps or the perfect hemline. For so many people across the country, it is a calling, it is a career, and it’s a way they feed their families.
+ - I try to tell young people to get in shape now, because it’s easier. If you’re 30 and want to drop 10 pounds, all you have to do is just walk.
+ - Barack knows the American Dream because he’s lived it – and he wants everyone in this country to have that same opportunity, no matter who we are, or where we’re from, or what we look like, or who we love.
+ - Millions of Americans who know that Barack understands their dreams; that Barack will fight for people like them; and that Barack will finally bring the change we need.
+ - Countries are stronger and more prosperous when the voices and opinions of all their citizens can be heard.
+ - Over the years I’ve become more confident in people’s ability to recognize a good thing.
+ - To get kids involved in meal planning and preparation, create games out of trying new foods, and provide ample opportunities for physical activity, recognizing it may take some time to find an activity they truly enjoy.
+ - Even if we give parents all the information they need and we improve school meals and build brand new supermarkets on every corner, none of that matters if when families step into a restaurant, they can’t make a healthy choice.
+ - Barack Obama was a black man that lived on the South Side of Chicago, who had his share of troubles catching cabs.
+ - First and foremost, I wear what I love. That’s what women have to focus on: what makes them happy and what makes them feel comfortable and beautiful. If I can have any impact, I want women to feel good about themselves and have fun with fashion.
+ - I’m not a big fan of young kids having Facebook. It’s not something they need. It’s not necessary.
+ - No, I think that if he had known he would be president, he would have started dying his hair, like, 10 years ago. Now it’s too late.
+ - As women, we cannot afford to neglect ourselves.
+ - People want to feel hopeful.
+ - If I point to anything that makes me who I am, it’s that I have a whole lot of common sense. I’ve got a good mind and a good ability to read people and situations.
+ - I mean, hope doesn’t get actualized in three and a half years. If that were the case, we’d be out of luck as a country.
+ - I hate fund-raising. Haaaaate it. Hate, hate it.
+ - As a mom, I know it is my responsibility, and no one else’s, to raise my kids. But we have to ask ourselves, what does it mean when so many parents are finding their best efforts undermined by an avalanche of advertisements aimed at our kids.
+ - When I was younger, I could eat whatever I wanted, as long as I exercised; or if I didn’t exercise and just watched what I ate, I’d maintain. Now I have to do both.
+ - The realities are that, you know, as a black man, you know, Barack can get shot going to the gas station, you know.
+ - I’m varying my workouts so it’s not just cardio but also includes moves to maintain my flexibility.
+ - And what has been just completely heart warming is to see that people are really hungry for something different.
+ - Another suggestion is to cook a meal, maybe not every night, but a couple more times a week than you usually do. That way you have leftovers, and you take your lunch to work.
+ - Believe it or not, when we were first married, our combined monthly student loan bills were actually higher than our mortgage.
+ - I would be depressed if I felt I could never eat the things that I love. I also don’t want my girls to be obsessed about food.
+ - Discriminating against same-sex couples just isn’t right.
+ - It’s hard to make speeches with your hair in your face!
+ - It’s always positive to hear how many people are willing to step up – whether it is the employment community, mental health community, or medical community.
+ - I feel fortunate as a woman to have a husband who loves me and shows me in every way.
+ - What I love about design is the artistic and scientific complexity that also becomes useful...
+ - I’ve seen how the issues that come across a president’s desk are always the hard ones – the problems where no amount of data or numbers will get you to the right answer.
+
+179 quotes

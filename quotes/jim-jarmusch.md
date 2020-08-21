@@ -1,0 +1,43 @@
+ - Nothing is original. Steal from anywhere that resonates with inspiration or fuels your imagination.
+ - Ghost Dog: In the words of the ancients, one should make his decision within the space of seven breaths. It is a matter of being determined and having the spirit to break through to the other side.
+ - It’s a sad and beautiful world.
+ - The beauty of life is in small details, not in big events.
+ - If anyone tells you there is only one way, their way, get as far away from them as possible, both physically and philosophically.
+ - I thought The Limits of Control could be interpreted in two ways: as the limits of one’s self-control; and as the limits of allowing other people’s control over one’s -consciousness – which I kind of thought was a double meaning that was appropriate.
+ - Life has no plot, why must films or fiction?
+ - Nothing is original. Steal from anywhere that resonates with inspiration or fuels your imagination Authenticity is invaluable; originality is non-existent. And don’t bother concealing your thievery – celebrate it if you feel like it.
+ - A lot of innovation in language comes from poetry.
+ - When I get depressed, or anything, I go ‘think of all the music I haven’t even heard yet!’ So, it’s the one thing. Imagine the world without music. Man, just hand me a gun, will you?
+ - It’s hard to get lost if you don’t know where you’re going.
+ - I am interested in the non-dramatic moments in life. I’m not at all attracted to making films that are about drama. A few years back, I saw a biopic about a famous American abstract expressionist artist. And you know what? It really horrified me.
+ - Select only things to steal from that speak directly to your soul.
+ - I didn’t get my degree at NYU; I got it later, they gave me an honourary one.
+ - I always start with characters rather than with a plot, which many critics would say is very obvious from the lack of plot in my films – although I think they do have plots – but the plot is not of primary importance to me, the characters are.
+ - I think of poets as outlaw visionaries in a way.
+ - Separate two particles, place them at opposite ends of the universe, produce some effect in one, and the other will be identically affected.
+ - I didn’t get the degree because in my last year, for my thesis film I made a feature called Permanent Vacation and they’d given me a scholarship, the Louis B Mayer fellowship and they made a mistake.
+ - When I hear the word ‘independent’ I reach for my revolver. At this point, what the hell does that mean? The English Patient is an independent film. Hootie and the Blowfish are alternative music. I’m the Queen of Denmark. I don’t know what it means anymore.
+ - I love rehearsing because in rehearsals there are no mistakes, nothing is wrong, some things apply or lead you to focus on the character and the things that don’t apply are equally valuable because they lead you to towards what does.
+ - I prefer to be subcultural rather than mass-cultural. I’m not interested in hitting the vein of the mainstream.
+ - When I left Ohio when I was 17 and ended up in New York and realised that not all films had the giant crab monsters in them, it really opened up a lot of things for me.
+ - Specific music starts feeding my imagination and gives me a landscape that corresponds somehow, in some abstract way, to the world I’m just starting to imagine.
+ - Baseball is one of the most beautiful games. It is. It is a very Zen-like game.
+ - If you go into a bar in most places in America and even say the word poetry, you’ll probably get beaten up. But poetry is a really strong, beautiful form to me, and a lot of innovation in language comes from poetry.
+ - A lot of poets too live on the margins of social acceptance, they certainly aren’t in it for the money. William Blake – only his first book was legitimately published.
+ - I like to rehearse with the actors scenes that are not in the script and will not be in the film because what we’re really doing is trying to establish their character, and good acting to me is about reacting.
+ - I’m like a navigator and I try to encourage our collaboration and find the best way that will produce fruit. I like fruit. I like cherries, I like bananas.
+ - Jim Jarmusch: Poets are always ahead of things in a certain way, their sense of language and their vision.
+ - Cricket makes no sense to me. I find it beautiful to watch and I like that they break for tea. That is very cool, but I don’t understand. My friends from The Clash tried to explain it years and years ago, but I didn’t understand what they were talking about.
+ - I have to tell everyone that when I finish a film and it goes out and is released, I never look at my films again. I don’t like looking back. I don’t even like talking about ’em! So I’m really digging back in my memory because I don’t like to sit and look at my films again.
+ - It was a really interesting time in New York in the late 70s and early 80s, and the music scene was really, really interesting because you didn’t have to be a virtuoso to make music, it was more about your desire to express things.
+ - Before she married my father, my mother was a film reviewer for The Akron Beacon Journal – a small newspaper.
+ - I start with actors that I know personally or I know their work, and there are things about their work or their presence or their own personality that make a character, that exaggerates some qualities and suppresses other qualities. It’s always a real collaboration for me.
+ - I’ve always loved films, always. I studied literature and I went to Columbia in New York and I went to Paris for part of one year and ended up staying there.
+ - When I’m trying to imagine something, I have a few elements, a few ideas, maybe a certain actor or actress I want to create a certain type of character for, or maybe a certain place.
+ - For me, the music is always like the small rowboat I get into at the very beginning of my process.
+ - I started working with friends of mine and that, to some degree, continues.
+ - No mistakes can be make during rehearsals, only progress toward what works best.
+ - I don’t like American football. I think it’s boring and ridiculous and predictable. But baseball is very beautiful. It’s played on a diamond.
+ - I’d wanted to be a writer and when I came back to New York worked as a musician too, but I found my writing starting to get more and more referential to cinema.
+
+41 quotes

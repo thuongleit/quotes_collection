@@ -1,0 +1,21 @@
+ - Method acting is a label I don’t really understand, because there’s a method to everybody’s acting.
+ - The point is to be involved in the moment.
+ - You grow up a lot in terms of your understanding of the industry and how to deal with the corporate things.
+ - You should be careful what you wish for, as the reasons for war get confused. One person can be very clear in their motives, but others can have different agendas.
+ - I just love jumping into someone else’s life. It is a relatively cheap way to experience things you would be too scared to contemplate in your own life.
+ - Sometimes you just can’t walk away from films you’re offered, like the Dylan Thomas thing.
+ - You’re making a movie, not a documentary. If you made a film like the historians would like you to make, you’re not going to go and see it. I’d rather see paint dry.
+ - Being a salesman and an actor were not that dissimilar: It is a good lesson in covering up your feelings. No one wants to buy from someone who looks depressed.
+ - The success of the film is down to the crew.
+ - I tend to do golf charity things because it’s much safer and you don’t get much chance of a broken arm or leg.
+ - Sometimes people say to you that you should try to be in a bigger film, but it’s the way it pans out.
+ - I am an actor through and through.
+ - I got involved in script development from the beginning. It was nice to see how a film gets made right from the beginning. It was quite hands-on for me.
+ - Fairfax was incredibly important to the shaping of the country.
+ - I don’t like acting things; I like feeling things.
+ - I’m doing a Dylan Thomas film, Map of Love, with Mick Jagger producing again. It’s a wonderful script.
+ - In terms of jumping into a characters skin, I try to immerse myself in the role as much as possible to bring me closer to them. All I do is whats required to achieve what I want to achieve.
+ - When you do bigger films, the financiers take more risks.
+ - I try and do films I know I’m going to enjoy watching as well as being in.
+
+19 quotes

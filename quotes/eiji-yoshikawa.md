@@ -1,0 +1,32 @@
+ - The summit is believed to be the object of the climb. But its true object – the joy of living – is not in the peak itself, but in the adversities encountered on the way up.
+ - I want to dedicate myself to training and discipline. I want to spend every moment of every day working to improve myself.
+ - Enemies were teachers in disguise.
+ - Great character is forged through hardships.
+ - Every act is an expression of one’s self.
+ - Sincerity, even if it speaks with a stutter, will sound eloquent when inspired.
+ - Not only must a warrior be strong with his bow, but he must have a heart full of pity for all living creatures.
+ - The bitter winds in February were sometimes called the First East Winds, but the longing for spring somehow made them seem more piercing.
+ - It is easy to crush an enemy outside oneself but impossible to defeat an enemy within.
+ - Don’t yield! Keep up your courage! The same sun looks down on all of us!
+ - When a woman dislikes the man who is courting her, she parries him cleverly, like a willow in the wind.
+ - Fighting isn’t all there is to the Art of War. The men who think that way, and are satisfied to have food to eat and a place to sleep, are mere vagabonds. A serious student is much more concerned with training his mind and disciplining his spirit than with developing martial skills.
+ - Hold on to your life and make it honest and brave.
+ - Think what you like. There are people who die by remaining alive and others who gain life by dying.
+ - Danger was the grindstone on which the swordsman whetted his spirit. Enemies were teachers in disguise.
+ - Love was like a toothache.
+ - The greatest happiness of life was to stand at the difficult border between success and failure.
+ - Oh, you crows! Feast away! What a spread! Soup straight from the eye sockets! And thick red sake! But don’t have too much Or you’ll surely get drunk.
+ - Beyond the shadow of a doubt, food was more important than a woman’s suffering.
+ - It’s interesting, isn’t it? Being in the world.
+ - It’s no good to want to win still more when you have already won.
+ - The truth of the scholar, alone in his study, does not always accord with what the world at large considers to be true.
+ - The line between life and death is not thicker than an eyelid.
+ - If a man wanted to put the entire universe in his breast, he couldn’t do it with his chest stuck out.
+ - It does happen, of course, that the priesthood has been on bad terms with womankind for some three thousand years. You see, Buddhism teaches that women are evil. Fiends. Messengers of hell. I’ve spent years immersed in the scriptures, so it’s no accident that you and I fight all the time.
+ - I want to lead an important life. I want to do it because I was born a human being.
+ - To the courtiers flushed with wine, life was pleasure, and pleasure life.
+ - A wise man who cultivates wisdom may sometimes drown in it.
+ - Monks transgress the Laws of the Buddha, stir up the common people, store wealth and weapons, and spread rumors; under the guise of religion, they are nothing more than self-serving agitators.
+ - There’s not much benefit in attacking an empty house.
+
+30 quotes

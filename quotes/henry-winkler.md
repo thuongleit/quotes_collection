@@ -1,0 +1,29 @@
+ - Assumptions are the termites of relationships.
+ - Music takes us where words cannot.
+ - A human being’s first responsibility is to shake hands with himself.
+ - How you learn has nothing to do with how brilliant you are.
+ - In school, I was an underachiever.
+ - I rode it once, which was up the driveway in the opening credits of the show. I didn’t know how to stop it. I actually nearly killed the director of photography, and I smashed into the sound truck.
+ - Ten out of ten people die, so don’t take life too seriously.
+ - As a child, I was called stupid and lazy. On the SAT I got 159 out of 800 in math. My parents had no idea that I had a learning disability.
+ - Somebody asked me if I could go back and start again with a different brain, would I. Years ago I thought yes, I would, and now I know I wouldn’t. Because whatever challenges I had in school, I guess they forced me to where I am today. So I now see them as an asset.
+ - I truly believe fishing is like a washing machine for your brain.
+ - Being down in Orlando, Florida, where we filmed the movie, I learned how to bass fish. Jerry Reed, who plays the villain in the movie, taught me how to bass fish.
+ - Your mind knows only some things. Your inner voice, your instinct, knows everything. If you listen to what you know instinctively, it will always lead you down the right path.
+ - To me acting is like a jigsaw puzzle. The jigsaw puzzle is of the sky and all the pieces are blue. Out of this you have to create a human being and put it together.
+ - You see, I don’t know how to ride a motorcycle, actually.
+ - Your inner voice, your instinct, knows everything.
+ - That problem has been going on since men and women and their children moved from the plains and into caves. How many times have you heard Howard Cunningham talking to Marian about shopping? Too many.
+ - When Richie Cunningham drank too many beers, his parents sat him down and explained their concerns. If you live on this earth, you find out that we are all the same.
+ - I do most of my work with kids. They are the very foundation of our future. We are so incredibly disrespectful to them in America in every way because they can’t vote.
+ - As we sit here and idly chat, there are woman, female human beings, rolling around in strange beds with strange men, and we are making money from that.
+ - When you love what you do, then you’re talking to one of the luckiest guys on the face of the earth.
+ - Wes Craven is a wonderful friend, and we had a really good time together.
+ - Right now I belong to the wonderful organization called The Children’s Action Network. The first thing we did was immunize 200,000 children across the country against childhood diseases.
+ - Producing is the hardest of the three because there is almost no closure. Every time you solve a problem, another one pops up. Directing is second, and acting is the most fun.
+ - To have people like my work, even if it’s my old work, I can’t ask for nothing nicer than that.
+ - It is not easy to compete when you have LD, but it is possible.
+ - The theater of my mind has a seating capacity of just one, and its sold out for all performances.
+ - Adam Sandler is truly brilliant. He plays these goofy characters, but he is a brilliant fellow.
+
+27 quotes

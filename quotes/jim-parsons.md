@@ -1,0 +1,36 @@
+ - Someone else’s success is not your failure.
+ - I’m not crazy; my mother had me tested.
+ - Coffee is to wake up, coffee is to work with, coffee is to live with, coffee is life.
+ - You learn a lot as a kid, like you don’t know anything. I didn’t know what was gonna happen if I opened the door. I thought I was gonna be in another world somehow.
+ - I was very fascinated with meteorology at a young age. I lived on the Gulf Coast and hurricanes blew through there. That is the class I failed in college: meteorology.
+ - It was just wet, not stinky?
+ - I think in any form of acting, you’re always well served if you’ve done theater.
+ - I feel like the universe is so big it’d be foolish to pull out the “no” for it.
+ - My Emmy competition is awfully good. My stomach is already in knots. The problem is that I don’t drink, so I can’t calm myself that way. I wish I could be better at pretending I don’t care.
+ - I think intelligence is usually sexy until it becomes irritating. After that, you’re stuck.
+ - Well, I’m a big believer in ’never say never.
+ - I’ve grown out of dancing in my car – is it sad? Or I’ve just become a better driver!
+ - I was a very shy child.
+ - Home is where you feel unjudged, and where what I do isn’t necessarily stupid or wrong.
+ - I try to master every facet of a character in order to build a safety net for myself, so I can go on to take more risks to create someone really distinct.
+ - It’s a shame, but every time I get something scientific in the script, I read up to find out what I’m talking about – but then I’m on to the next script and it’s forgotten.
+ - I did have a Twitter account that I tried for a couple days, but found I had nothing to say. There are some interesting facts I could share, but I don’t want to share that part of myself.
+ - I want to drive! I love to drive! I drive at home in Barbados.
+ - Playing Sheldon is just heaven for me. I realize how enormously lucky I am to play a role that makes me so incredibly happy. As I told Chuck Lorre in a Christmas card a few years ago, I’m living a version of the dream.
+ - I was very average in the social label scale going through school. I was neither the coolest person in school, nor did I suffer the slings and arrows of being made fun of to such a degree that I couldn’t get through the day.
+ - I grew up with two different parakeets – one that lived for five years, and one that lived for 13 years – so I always had a bit of an attraction to birds and it’s an oddly good fit to be in a movie about birdwatchers.
+ - Every time I think about writing, comedy doesn’t interest me in the slightest. I can play comedy, but I don’t think in terms of comic dialogue.
+ - My choices in projects have all been character or role-based, and on a financial level, it’s obvious: as an actor on a TV series, I get a wonderful paycheck, and a consistent paycheck, which doesn’t always happen when you’re doing theater or movies.
+ - If I ever wrote a script myself, it would be strongly emotional material.
+ - I don’t think the jet-setting life is really for most people.
+ - When I first started out in Houston, it was theater or bust. And I loved it. I still love it. And then I went to undergraduate and graduate school for acting.
+ - To have a job you can count on as an actor is so rare, whether that means belonging to a regional theater company or being on TV.
+ - As a human being, you know that there are some days when you’d rather not talk to anybody – but I can’t really do that anymore without appearing rude.
+ - I love seeing tennis up close.
+ - There’s no audience to wonderfully get in your way when you’re doing a single-camera anything, whether it’s a sitcom or drama or film. And I do mean that in the best way.
+ - I’m also a big ‘American Idol’ fan. I think it’s just great fun.
+ - What this is about is hopefully an opportunity for me to help pave the way for my future in terms of getting financially choosier. You have to plan the windfall as if it’ll be your only one.
+ - I’ve always loved TV very much, and as a child I was so religious with it, but now it’s more when it fits in.
+ - I had a very strong interest in music, specifically the piano from a very small age.
+
+34 quotes

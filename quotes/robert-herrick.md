@@ -1,0 +1,71 @@
+ - Gather ye rose-buds while ye may, Old Time is still a flying: And this same flower that smiles to day, Tomorrow will be dying.
+ - Gather ye rosebuds, while ye may...
+ - Happy is the bride that the sun shines on.
+ - A spark neglected makes a mighty fire.
+ - Tears are the noble language of eyes, and when true love of words is destitute. The eye by tears speak, while the tongue is mute.
+ - Give me a kiss, and to that kiss a score; Then to that twenty, add a hundred more: A thousand to that hundred: so kiss on, To make that thousand up a million. Treble that million, and when that is done, Let’s kiss afresh, as when we first begun.
+ - So when or you or I are made A fable, song, or fleeting shade; All love, all liking, all delight Lies drowned with us in endless night. Then while time serves, and we are but decaying; Come, my Corinna, come, let’s go a Maying.
+ - Thus times do shift, each thing his turn does hold; New things succeed, as former things grow old.
+ - Necessity makes dastards valiant men.
+ - Men are suspicious; prone to discontent: Subjects still loathe the present Government.
+ - Fain would I kiss my Julia’s dainty leg, Which is as white and hairless as an egg.
+ - Conquer we shall, but, we must first contend! It’s not the fight that crowns us, but the end.
+ - Who covets more is evermore a slave.
+ - O thou, the drink of gods and angels! Wine.
+ - The body is the soul’s poor house or home, whose ribs the laths are and whose flesh the loam.
+ - Humble we must be, if to heaven we go; High is the roof there, but the gate is low.
+ - Love is a circle that doth restless move in the same sweet eternity of love.
+ - Tears are the noble language of the eye.
+ - The glorious lamp of heaven, the sun.
+ - In things a moderation keep; Kings ought to shear, not skin, their sheep.
+ - I’ll write, because I’ll give – You critics means to live; For should I not supply – The cause, the effect would die.
+ - But ne’er the rose without the thorn.
+ - It is the end that crowns us, not the fight.
+ - In the hour of my distress, When temptations me oppress, And when I my sins confess, Sweet Spirit, comfort me.
+ - He loves his bonds who, when the first are broke, Submits his neck into a second yoke.
+ - Welcome, maids of honor, You doe bring In the spring, And wait upon her.
+ - Here a pretty Baby lies Sung asleep with Lullabies: Pray be silent, and not stirre The easie earth that covers her.
+ - None pities him that is in the snare, who warned before, would not beware.
+ - When one is past, another care we have; Thus woe succeeds a woe, as wave a wave.
+ - Here a little child I stand, Heaving up my either hand; Cold as paddocks though they be, Here I lift them up to Thee, for a benison to fall on our meat, and on us all. Amen.
+ - Against diseases here the strongest fence is the defensive vertue, Abstinence.
+ - Tis not the food, but the content, That makes the table’s merriment.
+ - It takes great wit and interest and energy to be happy. The pursuit of happiness is a great activity. One must be open and alive. It is the greatest feat man has to accomplish.
+ - Hell is no other but a soundlesse pit, Where no one beame of comfort peeps in it.
+ - What though the sea be calm? trust to the shore, Ships have been drown’d, where late they danc’d before.
+ - In vain our labours are, whatsoe’er they be, unless God gives the Benediction.
+ - Let’s live with that small pittance which we have; Who covets more is evermore a slave.
+ - I do love I know not what; Sometimes this, and sometimes that.
+ - My soul I’ll pour into thee.
+ - Outdid the meat, outdid the frolic wine.
+ - Fight thou with shafts of silver, and o’ercome When no force else can get the masterdom.
+ - What is a kiss? Why this, as some approve: the sure, sweet cement, glue, and lime of love.
+ - The person lives twice who lives the first life well.
+ - Give, if thou can, an alms; if not, a sweet and gentle word.
+ - Who with a little cannot be content, endures an everlasting punishment.
+ - Bid me to love, and I will give a loving heart to thee.
+ - Praise they that will times past, I joy to see My selfe now live: this age best pleaseth mee.
+ - For pitty, Sir, find out that Bee Which bore my Love away I’le seek him in your Bonnet brave, I’le seek him in your eyes.
+ - Who after his transgression doth repent, Is halfe, or altogether, innocent.
+ - Temptations hurt not, though they have accesse; Satan o’ercomes none but by willingnesse.
+ - Buying, possessing, accumulating – this is not worldliness. But doing this in the love of it, with no love of God paramount – doing it so that thoughts of eternity and God are an intrusion – doing it so that one’s spirit is secularized in the process; this is worldliness.
+ - The readiness of doing doth expresse No other but the doer’s willingnesse.
+ - Wealth cannot make a life, but Love.
+ - Art quickens nature; care will make a face; Neglected beauty perisheth apace.
+ - Those Saints, which God loves best, The Devil tempts not least.
+ - He who has suffered shipwreck, fears to sail Upon the seas, though with a gentle gale.
+ - A careless shoe string, in whose tie I see a wilde civility.
+ - In prayer the lips ne’er act the winning part, Without the sweet concurrence of the heart.
+ - T is the will that makes the action good or ill.
+ - It is an active flame that fliesFirst to the babies in the eyes.
+ - When a daffadill I see, Hanging down his head towards me, Guess I may, what I must be: First, I shall decline my head; Secondly, I shall be dead: Lastly, safely buryed.
+ - Like will to like, each creature loves his kind.
+ - Roses at first were white, Till thy co’d not agree, Whether my Sapho’s breast, Or they more white sho’d be.
+ - Know when to speak – for many times it brings danger, to give the best advice to kings.
+ - The first act’s doubtful, but we say, it is the last commends the play.
+ - In ways to greatness think on this, That slippery all ambition is.
+ - Some asked me where the rubies grew, And nothing I did say; But with my finger pointed to The lips of Julia.
+ - Whatever comes, let’s be content withal; Among God’s blessings there is not one small.
+ - Hast thou attempted greatnesse? Then go on; Back-turning slackens resolution.
+
+69 quotes

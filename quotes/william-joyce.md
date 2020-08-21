@@ -1,0 +1,29 @@
+ - I say, Ich liebe Deutschland! Heil Hitler! and farewell.
+ - Keep moving forward.
+ - Everyone’s story matters.
+ - To understand pretending is to conquer all barriers of time and space.
+ - Germany calling! Germany Calling!
+ - I did not win and in fact I was called into the principal’s office for a consultation with my parents. But that was the beginning of my literary career.
+ - If war breaks out, I will fight for Hitler since such a war would be against Jewry.
+ - Almost everything in ‘A Day With Wilbur Robinson’ has some basis in truth. And yes, my sister did pay me to feed her grapes while she talked to her boyfriend on the phone.
+ - The possibilities were endless. Battles would be fought. Wonders revealed. Many journeys. Many lands. Many joys. Many sorrows. But stories all...
+ - His life was a book of his own writing, one orderly page after another.
+ - Life is made up of danger and heartbreak, I laugh in the face of both!
+ - So if you’re a robot and you’re living on this planet, you can do things that you can’t do in real life – things that you wished you could do: like fly; like have a car that flies; like have furniture that is alive.
+ - I don’t regard Jews as a class. I regard them as a privileged misfortune.
+ - The first book I ever wrote was in fourth grade and it was called ‘Billy’s Booger.’ It was an autobiographical piece about a kid who was really bad at math.
+ - Watch over our child. Guide him safely from the ways of harm. Keep happy his heart, brave his soul, and rosy his cheeks. Guard with your life his hopes and dreams, for he is all that we have, all that we are, and all that we will ever be.
+ - You know, I hate to give advice because my life has been so odd that almost nothing that’s happened to me can apply.
+ - I’ve always liked getting away with just a little bit of what you’re not supposed to. Like my first book, Billy’s Booger, got me in trouble with the principal’s office.
+ - But if you really love to write and you really love to tell stories and you really love to draw, you just have to keep doing it no matter what anybody says.
+ - Apart from my absolute belief in National Socialism and my conviction of Hitler’s superhuman heroism, I had always been attracted to Germany.
+ - And I was lucky enough to have teachers that really, really looked out for me and really encouraged all that. And in rural Louisiana, that was a rare thing back then.
+ - I know that I have been denounced as a traitor and I resent the accusation, as I conceive myself to have been guilty of no underhand or deceitful act against Britain, although I am also able to understand the resentment that my broadcasts have, in many quarters, aroused.
+ - And they’re also very good at math, these super boogers, and so they teach Billy the ways of mathematics.
+ - Chuchill has renounced all British interests in Europe and those of his people who are not blind now realise that the pretext for this war was far removed from the cause of it, namely, the subservience of the so-called democratic politicians to their Jewish masters.
+ - Their toys are alive and can sometimes come to their aid, or get lost and Olie has to find them. They go to other planets. They go to the ice cream planet.
+ - I have known lots of adults who enjoyed similar enthusiasms as a kid and weren’t encouraged and then didn’t go anywhere with it and so they’re unhappy in their jobs as adults.
+ - The people of England will curse themselves for having preferred ruin from Churchill to peace from Hitler.
+ - If you really want to tell stories, do it and don’t be dissuaded.
+
+27 quotes

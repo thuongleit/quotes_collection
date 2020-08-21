@@ -1,0 +1,35 @@
+ - We must dissent from the fear.
+ - In recognizing the humanity of our fellow beings, we pay ourselves the highest tribute.
+ - To protest against injustice is the foundation of all our American democracy.
+ - The measure of a country’s greatness is its ability to retain compassion in times of crisis.
+ - What is the quality of your intent?
+ - Truth is more than a mental exercise.
+ - Equal means getting the same thing, at the same time and in the same place.
+ - A man can make what he wants of himself if he truly believes that he must be ready for hard work and many heartbreaks.
+ - Our Constitution is the envy of the world, as it should be for it is the grand design of the finest nation on earth.
+ - Ending racial discrimination in jury selection can be accomplished only by eliminating peremptory challenges entirely.
+ - If the First Amendment means anything, it means that a state has no business telling a man, sitting alone in his house, what books he may read or what films he may watch.
+ - What’s shaking, chiefy baby?
+ - The Ku Klux Klan never dies. They just stop wearing sheets because sheets cost too much.
+ - History teaches that grave threats to liberty often come in times of urgency, when constitutional rights seem too extravagant to endure.
+ - Sometimes history takes things into its own hands.
+ - The process of democracy is one of change. Our laws are not frozen into immutable form, they are constantly in the process of revision in response to the needs of a changing society.
+ - Mere access to the courthouse doors does not by itself assure a proper functioning of the adversary process.
+ - The United States has been called the melting pot of the world. But it seems to me that the colored man either missed getting into the pot or he got melted down.
+ - The First Amendment serves not only the needs of the polity but also those of the human spirit- a spirit that demands self-expression .
+ - I’m the world’s original gradualist. I just think ninety-odd years is gradual enough.
+ - Lawlessness is lawlessness. Anarchy is anarchy is anarchy. Neither race nor color nor frustration is an excuse for either lawlessness or anarchy.
+ - None of us got where we are solely by pulling ourselves up by our bootstraps.
+ - The government they devised was defective from the start, requiring several amendments, a civil war, and major social transformations to attain the system of constitutional government and its respect for the freedoms and individual rights, we hold as fundamental today.
+ - Today’s Constitution is a realistic document of freedom only because of several corrective amendments. Those amendments speak to a sense of decency and fairness that I and other Blacks cherish.
+ - Surely the fact that a uniformed police officer is wearing his hair below his collar will make him no less identifiable as a policeman.
+ - Customary greeting to Chief Justice Warren E. Burger, What’s shaking, chiefy baby?
+ - We can always stick together when we are losing, but tend to find means of breaking up when we’re winning. In Grace under Pressure, by Hastie, 1984.
+ - None of us got where we are solely by pulling ourselves up by our bootstraps. We got here because somebody – a parent, a teacher, an Ivy League crony or a few nuns – bent down and helped us pick up our boots.
+ - Some years ago I said in an opinion that if this country is a melting pot, then either the Afro-Americans didn’t get in the pot or he didn’t get melted down.
+ - Classifications and distinctions based on race or color have no moral or legal validity in our society. They are contrary to our constitution and laws.
+ - I have a lifetime appointment and I intend to serve it. I expect to die at 110, shot by a jealous husband.
+ - Our whole constitutional heritage rebels at the thought of giving government the power to control men’s minds.
+ - A man can make what he wants of...
+
+33 quotes

@@ -1,0 +1,30 @@
+ - I still love red velvet cake.
+ - Tips like that. Wearing necklaces, knowing how to layer, wearing a statement piece. Don’t wear big earrings and a big necklace and a big ring all at the same time. Pick your magic. I have this whole thing: if you look good, you feel good, and if you feel good, you look good.
+ - I’ve also learned that sometimes, no matter how much you want things to work, you have to accept that sometimes they just don’t.
+ - I value so many people who have to work full time, definitely single mothers. Their work is the hardest work. I applaud it so much. I absolutely love being a mother. I love his milestones. I love his smile. I love that he’s talking and making sentences and telling me he loves me. It’s amazing.
+ - Be yourself, fill your life with good people, and don’t get a big head. It can all be gone tomorrow.
+ - Basically, high protein, low carb. I work out three to four times a week. I definitely don’t do the same thing every day, whether it be spinning or hiking or walking or doing the treadmill. I try to do something different every day. But definitely the one thing is, I sweat.
+ - My mom FedExes a red velvet cake she makes from scratch to me every birthday.
+ - So forget the price tag. I mean, forget the size tag and focus on “Does it look right on me?” Would it look better with a little more blouse? A lot of people think, “Oh, my God, it’s got to be tight, it’s got to be tight.” Actually, you look thinner when it’s not as tigh.
+ - I was always getting run-down from jet lag and being in strange towns where I didn’t speak the language or know what the food was like.
+ - I’ve always wanted to do things differently, and if one person or ten people are doing the same, then I want to do it differently. I love to travel, I love art, I love fashion. I love going to great restaurants and trying different things. Different cultures are inspiring to me.
+ - Fish oil is a great protein for your hair.
+ - I do try to watch it. I’m not saying you have to put yourself on a diet, because I hate the word “diet.” But it’s more of, like, having a balanced lifestyle makes me feel better. I try to do one to two days with no meat. I try to lessen my gluten. Those are things that I struggle with.
+ - When you work with the same people for 10 years, they become family. Now when I see them – it might not be for nine months – but when I see them, it’s great.
+ - I grew up watching Lee Trevino, Jack Nicklaus, Arnold Palmer.
+ - Don’t believe everything you read.
+ - I think that since I’ve had the baby, who’s almost two, it’s a work-hard-play-hard. Imake a lot of lists, I’m very scheduled, which is hard sometimes, but it keeps me organized – I know Now I can play or Now I’ve got to work.
+ - I believe in magic, psychics and all that.
+ - I think it’s important to come from a humble place.
+ - I’m the one who’s always kissing all the boys and stuff.
+ - This does not come naturally. I have to work out 60 to 90 minutes at least five days a week and stick to a high- fiber, low-calorie eating plan.
+ - For an hour every day, I did something. I was on the elliptical or the treadmill, and if someone asked me to go to a class – whether it was spinning, boxing, yoga, you name it – I went. By the end of the month, I felt so good, I just kept going. I didn’t want to lose my momentum.
+ - I think I’ve done every crazy diet there was in the beginning, but it’s weird: I’m thinner now than I was when I was modeling. I don’t obsess about it.
+ - Best thing that’s ever happened to me. I focus so much less on me. It’s made me content, it’s made me happy. It’s like a Christmas present every single day that I get to unwrap. It’s hard work.
+ - I wanted to be consistent with my exercise, so I committed to working out for 30 days in a row, no matter what.
+ - I’ve spoken to people who I swear can tell the future.
+ - I’m much better off the tee. I’m not a great putter. I do not have a good short game.
+ - I tried to be really healthy and eat whole and organic as much as possible. I think that’s the key to avoiding crazy weight gain.
+ - I do really well under pressure.
+
+28 quotes

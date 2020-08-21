@@ -1,0 +1,37 @@
+ - Good things do not come easy. The road is lined with pitfalls.
+ - If you don’t know what to do, don’t do anything.
+ - One of my biggest problems with comedy was that I did not understand some of the jokes.
+ - I was an only child, but I did have a hell of a lot of cousins.
+ - It’s really amazing that two people from such different backgrounds and geographical origins ever got together. That was perhaps part of the attraction.
+ - An actor who is good at comedy can also be very good at drama, but not necessarily vice versa.
+ - The success of I Love Lucy is something that happens only once in a lifetime, if you are fortunate enough to have it happen at all.
+ - Since I was very young I have always worked hard at whatever I have had to do.
+ - Joe McCarthy and his Senate hearings were like witch-hunts.
+ - I went to high school with Al Capone.
+ - Everyone seemed to be doing well except me and my career. And my accent was no helping me any.
+ - American people have the ability to laugh at themselves. It is one of the things that makes this country the great country that it is.
+ - Making a television show is not like making Coca-Cola or Bacardi rum. The human element in our business prevents us from finding a successful formula every time.
+ - Real intellectuals like to escape once in a while from their world of intellect.
+ - I learned a lot from Xavier Cugat.
+ - Al Jolson was one of the greatest entertainers who ever lived.
+ - No one could ever argue with me about people in show business being kind of nice.
+ - When I get in the sun I get very tanned. You can’t tell me from the native fishermen in Hawaii or Mexico.
+ - In 1934 there were very few Cubans in Miami.
+ - I didn’t know anything about acting, much less about acting in a comedy.
+ - I don’t think anyone can tell you what it is that makes you a star.
+ - A single prop that does not look real to an audience can louse you up. The same is true of the smallest flaw in setting up the motivation in a story line.
+ - I received my Greetings from Uncle Sam in May 1943. I applied for the Air Force.
+ - The thing I remember about New York was how little I felt. I arrived with one small bag and $15.
+ - The way the Army does things is sometimes a little strange.
+ - I was the only male of the Arnaz family in my generation.
+ - The straw hat is the typical hat Cubans use. It’s cool and keeps the sun away from your face.
+ - I could have stayed home and been kept by my wife.
+ - An audience is so important. I would never have had the guts to dub in that big a laugh.
+ - Mother came to New York to keep house for me.
+ - The Spanish and Cuban people have the same kind of wakes the Irish do. They go on for two or three days and drink a lot of booze and eat a lot of food.
+ - Motion-picture studio floors used to be all wooden and not smooth at all. This was difficult when moving a camera around on a dolly.
+ - It was easy for viewers to identify with our show. The characters were believable.
+ - The custom of my grandfather’s day is still going strong in Latin America. American girls do not seem to understand it.
+ - Drinking intensifies all your pressures and your needs.
+
+35 quotes

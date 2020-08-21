@@ -1,0 +1,24 @@
+ - The arts celebrate multiple perspectives. One of their large lessons is that there are many ways to see and interpret the world.
+ - Art is literacy of the heart.
+ - The arts teach students that small differences can have large effects. The arts traffic in subtleties.
+ - The ultimate aim of education is to enable individuals to become the architects of their own education and through that process to continually reinvent themselves.
+ - If apple is the language of the future, then art must be the core.
+ - The arts help children learn to say what cannot be said. When children are invited to disclose what a work of art helps them feel, they must reach into their poetic capacities to find the words that will do the job.
+ - The arts teach children that problems can have more than one solution and that questions can have more than one answer.
+ - The arts teach children that in complex forms of problem-solving, purposes are seldom fixed, but change with circumstance and opportunity.
+ - The kinds of nets we know how to weave determine the kinds of nets we cast. These nets, in turn, determine the kinds of fish we catch...
+ - The arts make vivid the fact that words do not, in their literal form or number, exhaust what we can know. The limits of our language do not define the limits of our cognition.
+ - The arts enable us to have experience we can have from no other source and through such experience to discover the range and variety of what we are capable of feeling.
+ - The arts teach children to make good judgments about qualitative relationships. Unlike much of the curriculum in which correct answers and rules prevail, in the arts it is judgment rather than rules that prevail.
+ - Learning in the arts requires the ability and a willingness to surrender to the unanticipated possibilities of the work as it unfolds.
+ - In some sense our aim ought to be to convert the school from an academic institution into an intellectual one. That shift in the culture of schooling would represent a profound shift in emphasis and in direction.
+ - The disposition to continue to learn throughout life is perhaps one of the most important contributions that schools can make to an individual’s development.
+ - All art forms employ some means through which images become real.
+ - Schools are not about enabling children to have a living but about children being able to have a life.
+ - We have inadvertently designed a system in which being good at what you do as a teacher is not formally rewarded, while being poor at what you do is seldom corrected nor penalized.
+ - The arts inform as well as stimulate; they challenge as well as satisfy. Their location is not limited to galleries, concert halls and theatres. Their home can be found wherever humans chose to have attentive and vita intercourse with life itself.
+ - The limits of our language do not define the limits of our cognition.
+ - The needs of children during adolescence are particular and acute. They need an opportunity to develop a sense of identity and to maintain the sense of security that emanates from group acceptance.
+ - Minds, unlike brains, are not entirely given at birth. Minds are also forms of cultural achievement.
+
+22 quotes

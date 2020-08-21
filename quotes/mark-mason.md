@@ -1,0 +1,29 @@
+ - Professional land surveyors take on a lot of responsibility, and should be compensated appropriately.
+ - Land surveyors can spend as much time reading legislation, bylaws, and engineering documents as we spend in front of an instrument in the field or calculating coordinates for a subdivision. We are mathematicians, historians, project managers, advocates, engineers, and even chainsaw operators!
+ - Some land surveyors delve into land development advocacy, working with local government on behalf of clients in order to facilitate progress on a project. Others stick to strictly surveying. The approach depends on the individual firm and the needs of the local area.
+ - In general, salary for land surveyors is often similar to that of a professional engineer or lawyer – surveyors are often “comfortable” but not “wealthy.”
+ - Sometimes I imagine a surveyor 100 years from now reading my plan, retracing my boundaries, and finding the monuments that I set. It’s an honor to make a mark in history like that.
+ - Legal land surveyors are few and far between and can find themselves in demand.
+ - Land surveyors start as employees, and move up to partnership in a firm or to ownership of their own enterprise if they wish. Some wind up working for government, private corporations, or public enterprise.
+ - Land surveying has been a positive influence on my life, and I’d encourage anyone who hasn’t considered it to give it a chance!
+ - If you’re looking for an adventure, an intellectual challenge, and a close-knit community of professionals, consider land surveying! It’s not for everyone, and I’d recommend working as a surveyor’s assistant or office staff before committing to the necessary schooling.
+ - A lot of people don’t think much about what land surveyors do. In a nutshell, we are the interpreters and providers of landmarks and records that directly impact real property.
+ - I automate some tasks and delegate many others. Doing research, job organization, data processing, field surveys, and plan preparation can be tedious, detailed work.
+ - The most difficult days have been the ones I’ve had to spend correcting a mistake. We’re all human, and we make errors in spite of the pains we take not to. It’s important to take ownership of the situation and to work to make it right.
+ - I was attracted to the direct connection with history that land surveyors experience in the form of plans, field notes, and from surveying monuments from decades or even centuries in the past.
+ - I think that people can get caught up in the “gee-whiz” technology of surveying, which is constantly changing, and forget about the legal aspects and the professional responsibility that surveyors bear – something that hasn’t changed much at all in hundreds of years.
+ - Completing a large or difficult survey can be a very satisfying thing, especially if there have been hurdles or setbacks along the way. In our work, we get to “tick” off jobs quite often, so the sense of completion can also be rewarding.
+ - This is the worst thing about waiting for someone. You have to look good all the time because they could turn up at any minute and see you before you’ve seen them.
+ - Building smart processes to streamline the workflow can make the work easier and the results more reliable, which keeps my head above water and my clients happy.
+ - It’s important to know that, unlike lawyers, land surveyors put the public interest first. That means we’re not biased by our client – this means that the property line will be drawn in the most equitable position, regardless of which neighbor is paying the bill.
+ - I liked the idea of working outside, using my body and my mind together. I haven’t been disappointed! Land surveying can be very physical work, but there is a strong intellectual and technological component as well.
+ - Conversation can be a learning experience for everyone. I never hesitate to reach out when I’m in over my head, and I’ll never hesitate to return the favor.
+ - People sometimes are under the impression that finding their property corners should cost as much as changing their oil or blowing out their sprinklers. What they don’t realize is that land surveyors are required to stand behind their work for the rest of their lives.
+ - Some surveyors live for the work, putting in weeks or months at a time in remote locations. With a young family and hobbies that I’m passionate about, that isn’t the path I’ve chosen. Like in many careers, you need to make your own decisions and follow your own path.
+ - Learning how to weigh evidence and fairly re-establish a boundary can be as much an art as a science.
+ - I’ve met very few professional land surveyors who regret their career path, and even fewer, who are out of work, even during economic slowdowns.
+ - It’s easy to be hard on ourselves, but the important thing is to turn a mistake into a learning experience.
+ - I’m lucky enough to split my time between the field and the office. Some land surveyors in larger outfits can work mostly from behind a desk, managing many field crews at once.
+ - When I got my commission, other land surveyors told me to ask for advice from my peers when I was struggling with something.
+
+27 quotes

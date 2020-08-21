@@ -1,0 +1,41 @@
+ - We are made to persist. that’s how we find out who we are.
+ - The human heart is a dark forest.
+ - You don’t teach information in a writing workshop.
+ - Memory is funny. Once you hit a vein the problem is not how to remember but how to control the flow.
+ - It’s probably why I’m a short story writer. I tend to remember things in the past in narrative form, in story form, and I grew up around people who told stories all the time.
+ - We each after a while have to become reconciled to what it is that our talents and appetites lead us to.
+ - Want! You must want something. What do you want?
+ - I was giving up – being realistic, as people liked to say, meaning the same thing. Being realistic made me feel bitter.
+ - The beauty of a fragment is that it still supports the hope of brilliant completeness.
+ - Fearlessness in those without power is maddening to those who have it.
+ - One can imagine a world without essays. It would be a little poorer, of course, like a world without chess, but one could live in it.
+ - When your power comes from others, on approval, you are their slave. Never sacrifice yourselves – never! Whoever urges you to self-sacrifice is worse than a common murderer, who at least cuts your throat himself, without persuading YOU to do it.
+ - Real maturity is the ability to imagine the humanity of every person as fully as you believe in your own humanity.
+ - Because I don’t have to be careful of people’s feelings when I teach literature, and I do when I’m teaching writing.
+ - But as my brother was doing his research for a book about my father, it became his opinion that the most influential anti-semitism my father encountered when he was growing up was from Jews, because his relatives were German Jews, and doctors.
+ - What writers do is they tell their own story constantly through other people’s stories. They imagine other people, and those other people are carrying the burden of their struggles, their questions about themselves.
+ - There are writers who do start doing the same thing again and again and almost inevitably fall into self-parody.
+ - Time, which is your enemy in almost everything in this life, is your friend in writing.
+ - I teach one semester a year, and this year I’m just teaching one course during that semester, a writing workshop for older students in their late 20s and early 30s, people in our graduate program who are already working on a manuscript and trying to bring it to completion.
+ - Writers cannot let themselves be servants of the official mythology. They have to, whatever the cost, say what truth they have to say.
+ - I love Chekhov. I could go on all day about him.
+ - Everything has to be pulling weight in a short story for it to be really of the first order.
+ - Reasons always came with a purpose, to give the appearance of a struggle between principle and desire. Principle had power only until you found what you had to have.
+ - Our memories tell us who we are and they cannot be achieved through committee work, by consulting other people about what happened. That doesn’t mean that at all times memories are telling us the absolute truth, but that the main source of who we are is that memory, flawed or not.
+ - I believe that the short story is as different a form from the novel as poetry is, and the best stories seem to me to be perhaps closer in spirit to poetry than to novels.
+ - One of the things that draws writers to writing is that they can get things right that they got wrong in real life by writing about them.
+ - Had he learned nothing from all those years of teaching Hawthorne? Through story after story he’d led his boys to consider the folly of obsession with purity – its roots sunk deep in pride, flowering condemnation and violence against others and self.
+ - Like so many writers I started writing stories because I didn’t have much time for anything else.
+ - To be a writer you need to see things as they are, and to see things as they are you need a certain basic innocence.
+ - You have to be kind of clued into them, they are a world of their own, and most people find them disappointing because the best short stories are not constructed like novels.
+ - There’s a joy in writing short stories, a wonderful sense of reward when you pull certain things off.
+ - Work for most people is really very social, and the actual thinking is often done in community.
+ - I try to help people become the best possible editors of their own work, to help them become conscious of the things they do well, of the things they need to look at again, of the wells of material they have not even begun to dip their buckets into.
+ - Perhaps that is why the novel flourished in England. You had these communities that would stay put and people would see one another all the time and cause one another to change and have the opportunity to observe the changes over time.
+ - There are very few professions in which people just sit down and think hard for five or six hours a day all by themselves. Of course it’s why you want to become a writer – because you have the liberty to do that, but once you have the liberty you also have the obligation to do it.
+ - You felt it as a depth of ease in certain boys, their innate, affable assurance that they would not have to struggle for a place in the world; that is already reserved for them.
+ - One of the last courses I taught was on the Russian short story, which I love.
+ - But a lot of writers – and I’m one of them – do tend to feel dissatisfied. It makes you a little hard to live with, but it’s a goad and does keep you alert and restless.
+ - There’s no right way to tell all stories, only the right way to tell a particular story.
+
+39 quotes

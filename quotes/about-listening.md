@@ -1,0 +1,42 @@
+ - Listening is not understanding the words of the question asked, listening is understanding why the question was asked in the first place. ~~Simon Sinek
+ - People don’t listen to understand. They listen to reply. The collective monologue is everyone talking and no one listening. ~~Stephen R. Covey
+ - One of the most sincere forms of respect is actually listening to what another has to say. ~~Bryant McGill
+ - We have two ears and one mouth so that we can listen twice as much as we speak. ~~Epictetus
+ - Everybody talks, nobody listens. Good listeners are as rare as white crows. ~~Helen Keller
+ - If you’re not listening, you’re not learning. ~~Lyndon B. Johnson
+ - Always keep your ego in check and not be afraid to listen. Listening is a great art form. ~~Clint Eastwood
+ - Before you speak, listen. ~~William Arthur Ward
+ - Listening without bias or distraction is the greatest value you can pay another person. ~~Denis Waitley
+ - Attentive listening to others lets them know that you love them and builds trust, the foundation of a loving relationship. ~~Brian Tracy
+ - Wisdom comes with the ability to be still. Just look and just listen. No more is needed. Being still, looking, and listening activates the non-conceptual intelligence within you. Let stillness direct your words and actions. ~~Eckhart Tolle
+ - Listen with your heart, you will understand. ~~Pocahontas
+ - Go out in the world and work like money doesn’t matter, sing as if no one is listening, love as if you have never been hurt, and dance as if no one is watching. ~~Victor Hugo
+ - Let go of your mind and then be mindful. Close your ears and listen! ~~Rumi
+ - Listen to the sound of silence. ~~Paul Simon
+ - Teaching is listening, learning is talking. ~~Deborah Meier
+ - The size of your audience doesn’t matter. What’s important is that your audience is listening. ~~Randy Pausch
+ - Concentrate on what you want to say to yourself and your friends. Follow your inner moonlight; don’t hide the madness. You say what you want to say when you don’t care who’s listening. ~~Allen Ginsberg
+ - I’m listening to Aphex Twin. That makes me cultured and interesting. ~~Thom Yorke
+ - You can tell a person’s past, present and future by listening to the words they use. ~~Robert T. Kiyosaki
+ - Wisdom is the reward you get for a lifetime of listening when you’d have preferred to talk. ~~Doug Larson
+ - The reality of the other person is not in what he reveals to you, but in what he cannot reveal to you. Therefore, if you would understand him, listen not to what he says but rather to what he does not say. ~~Khalil Gibran
+ - Lead by listening – to be a good leader you have to be a great listener. ~~Richard Branson
+ - No man ever listened himself out of a job. ~~Calvin Coolidge
+ - Listening is not the same as hearing and hearing is not the same as listening. ~~Pauline Oliveros
+ - Compassionate listening is to help the other side suffer less. If we realize that other people are the same people as we are, we are no longer angry at them. ~~Nhat Hanh
+ - Keep listening to music, it gets you through everything. I promise. ~~Mitch Lucker
+ - Prayer is first of all listening to God. It’s openness. God is always speaking; he’s always doing something. ~~Henri J.M. Nouwen
+ - There’s a time for words and a time for silence. If you’re listening, you’ll hear the difference. ~~Yasmin Mogahed
+ - Listening, Testing, Coding, Designing. That’s all there is to software. Anyone who tells you different is selling something. ~~Kent Beck
+ - Be loyal to your boss, your company, your co-workers. Someone is always listening. ~~Brian Tracy
+ - Proper listening is the foundation of proper living. ~~Plutarch
+ - Beware of listening to this impostor; you are undone if you once forget that the fruits of the earth belong to us all, and the earth itself to nobody. ~~Jean-Jacques Rousseau
+ - Seungri, are you listening? I love you. ~~G-Dragon
+ - I’m not ashamed, or embarrassed. I’m happy that I grew up listening to gospel music and came from where I came from. I feel like I have a history and a story. That’s what I am and that’s what I’ll always be from. I was never running away from it. ~~Katy Perry
+ - Listen to them! How wholly infused with God is this one big word of love that we call the world! ~~John Muir
+ - Our bodies communicate to us clearly and specifically, if we are willing to listen to them. ~~Shakti Gawain
+ - There is no such thing as a worthless conversation, provided you know what to listen for. And questions are the breath of life for a conversation. ~~James N. Miller
+ - I remind myself every morning: Nothing I say this day will teach me anything. So if I’m going to learn, I must do it by listening. ~~Larry King
+ - Through our eyes, the universe is perceiving itself. Through our ears, the universe is listening to its harmonies. We are the witnesses through which the universe becomes conscious of its glory, of its magnificence. ~~Alan Watts
+
+40 quotes

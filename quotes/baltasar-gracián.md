@@ -1,0 +1,226 @@
+ - Self-reflection is the school of wisdom.
+ - A wise man gets more use from his enemies than a fool from his friends.
+ - Never contend with a man who has nothing to lose.
+ - Hear, see, and be silent.
+ - Put a grain of boldness into everything you do.
+ - The wise does at once what the fool does at last.
+ - Without courage, wisdom bears no fruit.
+ - The truth is generally seen, rarely heard.
+ - The path to greatness is along with others.
+ - He who puts off nothing till tomorrow has done a great deal.
+ - Let the first impulse pass, wait for the second.
+ - Never open the door to a lesser evil, for other and greater ones invariably slink in after it.
+ - Attempt easy tasks as if they were difficult, and difficult as if they were easy; in the one case that confidence may not fall asleep, in the other that it may not be dismayed.
+ - Silence is the sanctuary of prudence.
+ - Oh life, you should never had begun, but since you did, you should never end.
+ - Success rarely brings satisfaction.
+ - When you counsel someone, you should appear to be reminding him of something he had forgotten, not of the light he was unable to see.
+ - The sage has one advantage: he is immortal. If this is not his century, many others will be.
+ - A single lie destroys a whole reputation of integrity.
+ - Don’t show off every day, or you’ll stop surprising people. There must always be some novelty left over. The person who displays a little more of it each day keeps up expectations, and no one ever discovers the limits of his talent.
+ - Do not commit yourself to anybody or anything, for that is to be a slave, a slave to every man Above all, keep yourself free of commitments and obligations – they are the device of another to get you into his power.
+ - True knowledge lies in knowing how to live.
+ - Put yourself on view. This brings your talents to light.
+ - Exaggeration is a branch of lying.
+ - Respect yourself if you would have others respect you.
+ - One must pass through the circumference of time before arriving at the center of opportunity.
+ - Never have a companion that casts you in the shade.
+ - Work is the price which is paid for reputation.
+ - One should cultivate good habits of memory, for it is capable of making existence a Paradise or an Inferno.
+ - Rate the intensive above the extensive. The perfect does not lie in quantity, but in quality.
+ - Quit while you’re ahead. All the best gamblers do.
+ - There is no wilderness like a life without friends; friendship multiplies blessings and minimizes misfortunes; it is a unique remedy against adversity, and it soothes the soul.
+ - A beautiful woman should break her mirror early.
+ - To find one real friend in a lifetime is good fortune; to keep him is a blessing.
+ - Dreams will get you nowhere, a good kick in the pants will take you a long way.
+ - Do not make mistakes about character. Better be cheated in the price than in the quality of goods.
+ - Wise men appreciate all men, for they see the good in each and know how hard it is to make anything good.
+ - Know or listen to those who know.
+ - There is no wilderness like a life without friends.
+ - The things we remember best are those better forgotten.
+ - Hurry is the weakness of fools.
+ - Be first the master of yourself.
+ - Mix a little mystery with everything, for mystery arouses veneration.
+ - Don’t lie, but don’t tell the whole truth.
+ - Attain and maintain a reputation, for it is the usufruct of fame. A stiff climb, for it is the issue of excellence, as rare as mediocrity is common.
+ - The crutch of Time accomplishes more than the club of Hercules.
+ - Many people who pretend to be very busy have the least to do.
+ - When desire dies, fear is born.
+ - Knowledge without courage is sterile.
+ - Don’t take the wrong side of an argument just because your opponent has taken the right side.
+ - Words are feminine; deeds are masculine.
+ - Share weight and woe, for misfortune falls with double force on him that stands alone.
+ - A man is judged by his friends, for the wise and the foolish have never agreed.
+ - Little said is soon amended. There is always time to add a word, never to withdraw one.
+ - Keep to yourself the final touches of your art.
+ - Maturity of mind is best shown in slow belief.
+ - It is better to sleep on things beforehand than lie awake about them afterwards.
+ - There is no need to show your ability before everyone.
+ - Possession hinders enjoyment. It merely gives you the right to keep things for or from others, and thus you gain more enemies than friends.
+ - Friends provoked become the bitterest of enemies.
+ - Some would be sages if they did not believe they were so already.
+ - To keep is more important than to make friends.
+ - Knowing how to keep a friend is more important than gaining a new one.
+ - Evil report carries further than any applause.
+ - Never risk your reputation on a single shot, for if you miss the loss is irreparable.
+ - Hope is a great falsifier of truth.
+ - None is so perfect that he does not need at times the advice of others.
+ - The greatest wisdom often consist in ignorance.
+ - To oblige persons often costs little and helps much.
+ - Do not be held a cheat, even though it is impossible to live today without being one. Let your greatest cunning lie in covering up what looks like cunning.
+ - I strive to be brief, and I become obscure.
+ - He who finds Fortune on his side should go briskly ahead, for she is wont to favor the bold.
+ - They make the greatest show of what they have done, who have done least.
+ - Man is born a barbarian, and only raises himself above the beast by culture.
+ - You should aim to be independent of any one vote, of any one fashion, of any one century.
+ - Nature scarcely ever gives us the very best; for that we must have recourse to art.
+ - There are certain inessential activities-moths of precious time-and it is worse to busy yourself with the trivial than to do nothing.
+ - The wise have a solid sense of silence and the ability to keep a storehouse of secrets. Their capacity and character are respected.
+ - Let him that hath no power of patience retire within himself, though even there he will have to put up with himself.
+ - A man of honour should never forget what he is because he sees what others are.
+ - Exaggeration is a prodigality of the judgment which shows the narrowness of one’s knowledge or one’s taste.
+ - Do pleasant things yourself, but unpleasant things through others.
+ - It is a great piece of skill to know how to guide your luck even while waiting for it.
+ - The more merit, the less affection.
+ - Know how to use evasion. That is how smart people get out of difficulties.
+ - For a thing to remain undone nothing more is needed than to think of it done.
+ - Nothing is good for him for whom nothing is bad.
+ - Advice is sometimes transmitted more successfully through a joke than grave teaching.
+ - It is a novel kind of supremacy, the best that life can offer, to have as servants by skill those who by nature are our masters.
+ - Hope is a great falsifier. Let good judgment keep her in check.
+ - A gilded No is more satisfactory than a dry Yes.
+ - Wisdom is immortal. She can wait forever, but you cannot.
+ - Nothing arouses ambition so much in the heart as the trumpet-clang of another’s fame.
+ - Politeness is the chief sign of culture.
+ - Trust your heart, especially when it is a strong one.
+ - Excellence resides in quality, not in quantity. The best is always few and rare; much lowers value.
+ - Life is a warfare against the malice of others.
+ - If to talk to oneself when alone is folly, it must be doubly unwise to listen to oneself in the presence of others.
+ - One deceit needs many others, and so the whole house is built in the air and must soon come to the ground.
+ - Better mad with the rest of the world than wise alone.
+ - Friendship multiplies the good of life and divides the evil.
+ - The greatest service you can render someone else is helping him help himself.
+ - Everything foreign is respected, partly because it comes from afar, partly because it is ready made and perfect.
+ - Knowledge and courage take turns at greatness.
+ - Not he that adorns but he that adores makes a divinity.
+ - There is no revenge like oblivion, for it is the entombment of the unworthy in the dust of their own nothingness.
+ - Great ability develops and reveals itself increasingly with every new assignment.
+ - Always act as if you were seen.
+ - There are rules to luck, not everything is chance for the wise; luck can be helped by skill.
+ - Treat your enemies with courtesy, and you’ll see how valuable it really is. It costs little but pays a nice dividend: those who honor are honored. Politeness and a sense of honor have this advantage: we bestow them on others without losing a thing.
+ - It is better to have too much courtesy than too little, provided you are not equally courteous to all, for that would be injustice.
+ - Truth always lags behind, limping along on the arm of Time.
+ - It takes more to make one sage today than it did to make the seven of Greece. And you need more resources to deal with a single person these days than with an entire nation in times past.
+ - Cunning grows in deceit at seeing itself discovered, and tries to deceive with truth itselft.
+ - Keep expectation alive. Keep stirring it up. Let much promise more, and great deeds herald greater.
+ - The envious die not once, but as oft as the envied win applause.
+ - The wise person finds enemies more useful than the fool does friends .
+ - Know the great men of your age.
+ - Make your friends your teachers and mingle the pleasures of conversation with the advantages of instruction.
+ - Many have had their greatness made for them by their enemies.
+ - Do not show your wounded finger for everything will knock up against it.
+ - Passion colors all that it touches in its own hues.
+ - The best skill at cards is knowing when to discard.
+ - Character and intelligence are the poles you talent spins on, displaying your gifts.
+ - A bad manner spoils everything, even reason and justice; a good one supplies everything, gilds a No, sweetens a truth, and adds a touch of beauty to old age itself.
+ - You should avoid making yourself too clear even in your explanations.
+ - Know how to choose well. Most of life depends thereon. It needs good taste and correct judgment, for which neither intellect nor study suffices.
+ - Fools rush in through the door; for folly is always bold.
+ - It is more offensive to outshine in dignity than in personal attractions.
+ - There is no beauty unaided, no excellence that does not sink to the barbarous, unless saved by art.
+ - The wise are always impatient, for he that increases knowledge increases impatience of folly.
+ - At twenty a man is a peacock, at thirty a lion, at forty a camel, at fifty a serpent, at sixty a dog, at seventy an ape, at eighty a nothing at all.
+ - No one demands more caution than a spy, and when someone has the skeleton key to minds, counter him by leaving the key of caution inside, on the other side of the keyhole.
+ - Don’t express your ideas too clearly. Most people think little of what they understand, and venerate what they do not.
+ - We have more days to live through than pleasures. Be slow in enjoyment, quick at work, for men see work ended with pleasure, pleasure ended with regret.
+ - We live by information, not by sight.
+ - To overvalue something is a form of lying.
+ - Things do not pass for what they are, but for what they seem. Most things are judged by their jackets.
+ - When you find Fortune favorable, stride boldly forward, for she favors the bold, and being a woman, the young.
+ - Sometimes it proves the highest understanding not to understand.
+ - Every fool stands convinced; and everyone convinced is a fool. The faultier a person’s judgement the firmer their convictions.
+ - It requires as much caution to tell the truth as to conceal it.
+ - Courtesy is the politic witchery of great personages.
+ - Mediocrity obtains more with application than superiority without it.
+ - Tis much to gain universal admiration; more, universal love.
+ - Those who insist on the dignity of their office show they have not deserved it.
+ - A synonym is a word you use when you can’t spell the other one.
+ - To be at ease is better than to be at business. Nothing really belongs to us but time, which even he has who has nothing else.
+ - Two kinds of people are good at foreseeing danger: those who have learned at their own expense, and the clever people who learn a great deal at the expense of others.
+ - Beauty and folly are generally companions.
+ - Know how to ask. There is nothing more difficult for some people, nor for others, easier.
+ - The sole advantage of power is that you can do more good.
+ - To equal a predecessor, one must have twice they worth.
+ - Few are the friends of a mans self, most those of his circumstances.
+ - Fortunate people often have very favorable beginnings and very tragic endings. What matters isn’t being applauded when you arrive – for that is common – but being missed when you leave.
+ - If there is nothing left to desire, there is everything to fear, an unhappy state of happiness.
+ - What is not seen is as if it was not. Even the Right does not receive proper consideration if it does not seem right.
+ - He that can live alone resembles the brute beast in nothing, the sage in much, and God in everything.
+ - An ounce of prudence is worth a pound of cleverness.
+ - Censure is like the lightning which strikes the highest mountains.
+ - Fortune soon tires of carrying anyone long on her shoulders.
+ - The true way is the middle one, halfway between deserving a place and pushing oneself into it.
+ - There is none who cannot teach somebody something, and there is none so excellent but he is excelled.
+ - It is impossible to live without brains, either one’s own or borrowed.
+ - He that communicates his secret to another makes himself that other’s slave.
+ - You have to appear wiser and more prudent than is required by the people you are dealing with if you want to give a high opinion of yourself.
+ - It is profound philosophy to sound the depths of feeling and distinguish traits of character. Men must be studied as deeply as books.
+ - If you are wise, live as you can; if you cannot, live as you would.
+ - Most do violence to their natural aptitude, and thus attain superiority in nothing.
+ - Display startling novelty-rise afresh like the sun every day. Change too the scene on which you shine, so that you rloss may be felt in the old scenes of your triumph, while the novelty of your powers wins applause in the new.
+ - He who laughs at everything is as big a fool as he who weeps at everything.
+ - The greatest fool is he who thinks he is not one and all others are.
+ - Never participate in the secrets of those above you; you think you share the fruit, and you share the stones – the confidence of a prince is not a grant, but a tax.
+ - Cultivate those who can teach you.
+ - Even knowledge has to be in the fashion, and where it is not, it is wise to affect ignorance.
+ - Fortune pays you sometimes for the intensity of her favors by the shortness of their duration. She soon tires of carrying any one long on her shoulders.
+ - Many get the repute of being witty but thereby lose the credit of being sensible. Jest has its little hour, seriousness should have all the rest.
+ - Truth is for the minority.
+ - There are friendships merely for pleasure, some for the exchange of ideas. Rarest are those friends of one’s inmost self.
+ - Tis by no means the least of life’s rules: To let things alone.
+ - Peacemakers not only live, they rule life.
+ - Even monarchs have need of authors, and fear their pens more than ugly women the painter’s pencil.
+ - It is a great misfortune to be of use to nobody; scarcely less to be of use to everybody.
+ - It is therefore an excellent device to acquire knowledge from everybody.
+ - The wise persono would rather see others needing him than thanking him.
+ - Begin with another’s to end with your own.
+ - Superiority is always detested.
+ - The passions are the humors of the mind, and the least excess sickens our judgment. If the disease spreads to the mouth, your reputation will be in danger.
+ - Never do anything when you are in a temper, for you will do everything wrong.
+ - Nature often lets us down when we most need her; let us turn to art.
+ - The heaven of the envied is hell for the envious.
+ - All victories breed, and that over your superior is foolish or fatal.
+ - You may be obliged to wage war, but not to use poisoned arrows.
+ - We often have to put up with most from those on whom we most depend.
+ - The liar suffers twice: he neither believes nor is believed.
+ - There must be something good in a thing that pleases so many; even if it cannot be explained, it is certainly enjoyed.
+ - Chance has something to say in everything, even how to write a good letter.
+ - Politeness and a sense of honor have this advantage: we bestow them on others without losing a thing.
+ - He that has satisfied his thirst turns his back on the well.
+ - Leave your luck while still winning.
+ - The great art of giving consists in this the gift should cost very little and yet be greatly coveted, so that it may be the more highly appreciated.
+ - What the multitude says, is so, or soon will be so.
+ - The best remedy for disturbances is to let them run their course, for so they quiet down.
+ - Deceit comes in through the ears, but usually leaves through the eyes.
+ - You can cultivate taste, as you can the intellect. Full understanding whets the appetite and desire, and, later, sharpens the enjoyment of possession.
+ - Maturity is the slowness in which a man believes.
+ - It is good to vary in order that you may frustrate the curious, especially those who envy you.
+ - Honorable beginnings should serve to awaken curiosity, not to heighten people’s expectations. We are much better off when reality surpasses our expectations, and something turns out better than we thought it would.
+ - Luck can be assisted. It is not all chance with the wise.
+ - A prudent man will think more important what fate has conceded to him, than what it has denied.
+ - It is a great deed to leave nothing for tomorrow.
+ - One who was adored by all in prosperity is abhorred by all in adversity.
+ - Always leave something to wish for; otherwise you will be miserable from your very happiness.
+ - The happy are an exception who enjoy innocently their simple happiness.
+ - The truest wild beasts live in the most populous places.
+ - Harness the imagination, for she is the whole of happiness.
+ - God Himself chasteneth not with a rod but with time.
+ - The worthless usually live long.
+ - Be known for pleasing others, especially if you govern them. Ruling other has one advantage: you can do more good than anyone else.
+ - Surfeits of happiness are fatal.
+ - When everyone covets something, they are easily annoyed by it.
+ - To be at ease is better than to be at business.
+ - A wise prince must never take things easy in times of peace.
+ - Yes and no are soon said, but give much to think over.
+
+224 quotes

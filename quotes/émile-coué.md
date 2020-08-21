@@ -1,0 +1,24 @@
+ - Day by day, in every way, I am getting better and better.
+ - Simplify always – do not complicate.
+ - Always think that what you have to do is easy and it will become so.
+ - If you are to succeed in anything, you must first be able to imagine it.
+ - When you believe yourself to be master of your thoughts, you become so.
+ - If you have the thought in your mind that you are sick, you surely will be.
+ - Patience and perseverance are necessary in autosuggestion, as well as in everything else.
+ - It is the certainty that you are about to recover, that brings results, not the hope.
+ - Conscious auto-suggestion, made with confidence, faith, and perseverance realizes itself automatically, in all matters within reason.
+ - When the imagination and will power are in conflict, are antagonistic, it is always the imagination which wins, without any exception.
+ - The power of thought, of idea, is incommensurable, is immeasurable. The world is dominated by thought.
+ - Nothing is impossible to us, except of course, that which is contrary to the laws of nature and the Universe.
+ - Rich is he who thinks he is rich and poor is he who thinks he is poor.
+ - We possess within us a force of incalculable power, which if we direct it in a conscious and wise manner, gives us the mastery of ourselves and allows us not only to escape from physical and mental ills, but also to live in relative happiness.
+ - Every thought, good or bad, becomes concrete; it materializes and becomes a reality.
+ - It’s not the number of years that makes you old, but the idea that you are getting old.
+ - We can be, and should be, the masters of events, and not their playthings.
+ - From our birth to our death we are all the slaves of suggestion.
+ - Perhaps one day the dreams of Utopists may be realized and humanity will shake off the chains of materialism which still separate us from what we think to be supernatural knowledge, but which, in reality, is already in us, only waiting to be discerned.
+ - It is we ourselves who alone shall shape our destinies, rising always above the external circumstances and conditions which from time to time shall be thrown across our paths.
+ - Even evil and evil-doing can be overcome by suggestion.
+ - We can make, to ourselves, very much stronger suggestions than anyone else can, whoever that person may be.
+
+22 quotes

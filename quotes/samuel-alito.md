@@ -1,0 +1,36 @@
+ - I learned that hard work and self-discipline can overcome many obstacles.
+ - When I get a case about discrimination, I have to think about people in my own family who suffered discrimination because of their ethnic background or because of religion or because of gender. And I do take that into account.
+ - I’ve learned a lot during my years on the 3rd Circuit, particularly, I think, about the way in which a judge should go about the work of judging. I’ve learned by doing, by sitting on all of these cases. And I think I’ve also learned from the examples of some really remarkable colleagues.
+ - Many people have been positive influences in my life. My parents, whom I mentioned, were the most important, but many of my teachers were also a big help to me.
+ - My parents grew up in poor families where little English was spoken, they both went to college and became teachers. They believed that anything was possible with hard work, and they particularly stressed the importance of education. They instilled that same belief in my sister and me.
+ - When I was growing up, we always had a big family dinner at around noon on Sunday. I still love that whenever it is possible to gather the family together.
+ - The most important quality for a judge is open- mindedness to the arguments.
+ - All of my grandparents came to the United States from Italy during the early years of the 20th century. I believe that my grandparents came here to take advantage of the opportunities furnished by a growing country with an open society.
+ - In southern Italy, where my grandparents had lived, there were few opportunities. The society was static, with rigid social classes. Poor people, like my grandparents, had little chance to improve their lives, no matter their talents or willingness to work.
+ - I assume that those who cling to old beliefs will be able to whisper their thoughts in the recesses of their homes, but if they repeat those views in public, they will risk being labeled as bigots and treated as such by governments, employers, and schools.
+ - I’m not any kind of a bigot, I’m not.
+ - The separation of church and state has been a cornerstone of American democracy for over two hundred years. Getting rid of it was long overdue.
+ - When I entered college, I thought that I wanted to be a lawyer, but by the time I was set to graduate, I was not too sure of that.
+ - You want us to step in and render a decision based on an assessment of the effects of this institution which is newer than cellphones or the Internet? I mean we – we are not – we do not have the ability to see the future.
+ - I think that what my parents taught me about hard work, optimism and education still holds true.
+ - I am deeply honored to have been nominated for a position on the Supreme Court. And I an humbled to have been nominated for the seat that is now held by Justice Sandra Day O’Connor.
+ - A corporation is simply a form of organization used by human beings to achieve desired ends. Protecting the free-exercise rights of corporations like Hobby Lobby, Conestoga, and Mardel protects the religious liberty of the humans who own and control those companies.
+ - I know that some poor immigrants from that era had unrealistic expectations and were disappointed, but I don’t think my grandparents were disappointed at all, even though they experienced some very hard times during the Great Depression.
+ - Good judges develop certain habits of mind. One of those habits of mind is the habit of delaying reaching conclusions until everything has been considered.
+ - It’s been a great honor for me to spend my career in public service.
+ - A generation earlier, I think that somebody from my background probably would not have felt fully comfortable at a college like Princeton. But, by the time I graduated from high school, things had changed.
+ - I have been a judge for 15 years and I’ve made up my own mind during all that time.
+ - Justice Sandra Day O’Connor has been a pioneer, and her dedicated service on the Supreme Court will never be forgotten. And the people of the country certainly owe her a great debt for the service that she has provided.
+ - A judge can’t have any preferred outcome in any particular case. The judge’s only obligation – and it’s a solemn obligation – is to the rule of law.
+ - I am especially indebted to a 10th grade English teacher who encouraged me to read great works of literature.
+ - I had the good fortune to begin my legal career as a law clerk for a judge who really epitomized open-mindedness and fairness. He read the record in detail in every single case that came before me; he insisted on scrupulously following precedents.
+ - As I mentioned, things were particularly hard during the Depression. My paternal grandfather was frequently out of work, and the family was evicted from their home.
+ - If settled means that it cant be re-examined, thats one thing. If settled means that it is a precedent that is entitled to respect then it is a precedent that is protected.
+ - If you want know what sort of a justice I would make, then look at what sort of a judge I have been.
+ - Part of me wanted to get a graduate degree in political science. Had I done that, I suppose I would have become a college professor.
+ - If I’m confirmed, I’ll be myself.
+ - My grandparents came worked hard, and I believe they never regretted their decision to come here and make a new start.
+ - This was a time of great intellectual excitement for me. Both college and law school opened up new worlds of ideas.
+ - I think that the legitimacy of the court would be undermined in any case if the court made a decision based on its perception of public opinion.
+
+34 quotes

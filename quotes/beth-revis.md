@@ -1,0 +1,23 @@
+ - And in her smile I see something more beautiful than the stars.
+ - Power isn’t control at all – power is strength, and giving that strength to others. A leader isn’t someone who forces others to make him stronger; a leader is someone willing to give his strength to others that they may have the strength to stand on their own.
+ - I quit thinking.
+ - I’ll always come back to you.
+ - But death doesn’t work like that. It doesn’t care if someone loves you, doesn’t want you to go. It just takes. It takes and it takes until eventually you have nothing left.
+ - He’s the only stable thing in the swirling chaos.
+ - But there’s a difference, isn’t there? Between saying goodbye and death.
+ - What is in our hearts is real whether we name it or let it exist only in darkness or silence.
+ - I wrote a book. It sucked. I wrote nine more books. They sucked, too. Meanwhile, I read every single thing I could find on publishing and writing, went to conferences, joined professional organizations, hooked up with fellow writers in critique groups, and didn’t give up. Then I wrote one more book.
+ - The glitter in the sky looks as if I could scoop it all up in my hands and let the stars swirl and touch one another but they are so distant so very far apart that they cannot feel the warmth of each other even though they are made of burning.
+ - Maybe the secret of the stars has nothing to do with being alone.
+ - It is like a piece of my soul had been lost, empty, and it is now filled with the light of a million stars.
+ - And there is nothing between us but rain. Then there is nothing between us at all.
+ - There is only him and me and this thing between us that I cannot name, not out loud, but that my heart knows is love.
+ - For a moment, he looks back at me, and his farewell is in his smile. Then he turns to the stars. And he is gone.
+ - Emotion courses through my veins, choking me. I feel so insignificant, a tiny speck surrounded by a million stars. A million suns.
+ - It’s bad, being frozen, but it’s better than waking up alone.
+ - And I look at Harley, and the billions of stars are in his eyes, and he’s drinking them up, pouring them into his soul.
+ - Love without choice isn’t love at all.
+ - And I know without being told that she killed herself. And I totally understand why.
+ - Choice or no, my heart is his.
+
+21 quotes

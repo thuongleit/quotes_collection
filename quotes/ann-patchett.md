@@ -1,0 +1,92 @@
+ - I will write my way into another life.
+ - Never be so focused on what you’re looking for that you overlook the thing you actually find.
+ - Reading fiction not only develops our imagination and creativity, it gives us the skills to be alone. It gives us the ability to feel empathy for people we’ve never met, living lives we couldn’t possibly experience for ourselves, because the book puts us inside the character’s skin.
+ - Love is a rebellious bird that no one can tame.
+ - Show kindness whenever possible. Show it to the people in front of you, the people coming up behind you, and the people with whom you are running neck and neck. It will vastly improve the quality of your own life, the lives of others, and the state of the world.
+ - I think the best vacation is the one that relieves me of my own life for a while and then makes me long for it again.
+ - Just because things hadn’t gone the way I had planned didn’t necessarily mean they had gone wrong.
+ - Reading fiction is important. It is a vital means of imagining a life other than our own, which in turn makes us more empathetic beings.
+ - You throw a person in the river and then make a spectacle of jumping in to save them.
+ - Writing is a miserable, awful business. Stay with it. It is better than anything in the world.
+ - Praise and criticism seem to me to operate exactly on the same level. If you get a great review, it’s really thrilling for about ten minutes. If you get a bad review, it’s really crushing for ten minutes. Either way, you go on.
+ - Using your imagination is the one time in life you can really go anywhere.
+ - It makes you wonder. All the brilliant things we might have done with our lives if only we suspected we knew how.
+ - The secret is to keep adding voices, adding ideas, and moving things around as you put together your life. If you’re lucky, putting together your life is a process that will last through every single day you’re alive.
+ - Home, bed, sleep, mother – who knew more beautiful words than these?
+ - You can’t pick up and leave everything behind because there is too much sadness in the world and not enough places to go.
+ - Whenever I saw her, I felt like I had been living in another country, doing moderately well in another language, and then she showed up speaking English and suddenly I could speak with all the complexity and nuance that I hadn’t realized was gone. With Lucy I was a native speaker.
+ - It’s always better to have too much to read than not enough.
+ - The quality of gifts depends on the sincerity of the giver.
+ - Art stands on the shoulders of craft, which means that to get to the art, you must master the craft.
+ - Hope is a horrible thing, you know. I don’t know who decided to package hope as a virtue because it’s not. It’s a plague. Hope is like walking around with a fishhook in your mouth and somebody just keeps pulling it and pulling it.
+ - There was no time for kissing but she wanted him to know that in the future there would be. A kiss in so much loneliness was like a hand pulling you up out of the water, scooping you up from a place of drowning and into the reckless abundance of air. A kiss, another kiss.
+ - You can’t control what other people think about your art. Think about the part of yourself that you can control, which is your ability to be kind and loving and creative.
+ - It was never the right time or it was always the right time, depending on how you looked at it.
+ - If what a person wants is his life, he tends to be quiet about wanting anything else. Once the life begins to seem secure, one feels the freedom to complain.
+ - Because of her singing they all went away feeling moved, feeling comforted, feeling, perhaps, the slightest tremors of faith.
+ - There was no one clear point of loss. It happened over and over again in a thousand small ways and the only truth there was to learn was that there was no getting used to it.
+ - Sometimes love does not have the most honorable beginnings, and the endings, the endings will break you in half. It’s everything in between we live for.
+ - Maybe the private life wasn’t forever. Maybe everyone got it for a little while and then spent the rest of their lives remembering.
+ - She sang as if she was saving the life of every person in the room.
+ - No one tells the truth to people they don’t actually know, and if they do it is a horrible trait. Everyone wants something smaller, something neater than the truth.
+ - You are always someones favorite unfolding story.
+ - Our friendship was like our writing in some ways. It was the only thing that was interesting about our otherwise dull lives. We were better off when we were together. Together we were a small society of ambition and high ideals. We were tender and patient and kind. We were not like the world at all.
+ - I wanted to eat her pain, take it into me and make it my own.
+ - Writing is a job, a talent, but it’s also the place to go in your head. It is the imaginary friend you drink your tea with in the afternoon.
+ - If someone loves you for what you can do then it’s flattering, but why do you love them? If someone loves you for who you are then they have to know you, which means you have to know them.
+ - It’s easier to love a woman when you can’t understand a word she’s saying.
+ - But we cannot unbraid the story of another person’s life and take out all the parts that don’t suit our purposes and put forth only the ones that do.
+ - The light was cut to lace by the trees that had grown so thick with leaves in the last few months.
+ - It turns out that the distance from head to hand, from wafting butterfly to entomological specimen, is achieved through regular practice. What begins as something like a dream will in fact stay a dream forever unless you have the tools and the discipline to bring it out.
+ - He used to say we all had a compass inside of us and what we needed to do was to find it and to follow it.
+ - There can be something cruel about people who have had good fortune. They equate it with personal goodness.
+ - Sometimes not having any idea where we’re going works out better than we could possibly have imagined.
+ - It was too much work to remember things you might not have again, and so one by one they opened up their hands and let them go.
+ - Part of it is living in Tennessee. I’m so out of the loop. And as a person, I’m out of the loop. I’m oblivious by nature.
+ - I have been accused of being a Pollyanna, but I think there are plenty of people dealing with the darker side of human nature, and if I am going to write about people who are kind and generous and loving and thoughtful, so what? In my life I have met astonishingly good people.
+ - I was very influenced by The Magic Mountain. It’s a book that had a huge impact on me. I loved that as a shape for a novel: put a bunch of people in a beautiful place, give them all tuberculosis, make them all stay in a fur sleeping bag for several years and see what happens.
+ - No matter how much we love a book, the experience of reading it isn’t complete until we can give it to someone who will love it as much as we do.
+ - Only a few of us are going to be willing to break our own hearts by trading in the living beauty of imagination for the stark disappointment of words.
+ - The kind of love that offers its life so easily, so stupidly, is always the love that is not returned.
+ - Time has a funny way of collapsing when you go back to a place you once loved. You find yourself thinking, I was kissed in that building, I climbed up that tree.
+ - Happiness compresses time, makes it dense and bright, pocketsized.
+ - If you’re trying to find out what’s coming next, turn off everything you own that has an OFF switch and listen.
+ - That was the way things worked. When you were looking for the big fight, the moment that you thought would knock everything over, nothing much happened at all.
+ - When well told, a story captured the subtle movement of change. If a novel was a map of a country, a story was the bright silver pin that marked the crossroads.
+ - People gave me such a bad time about wanting a baby. I didn’t want a baby, and I still don’t. I wanted a dog.
+ - For a man to know what he has when he had it, that is what makes him a fortunate man.
+ - Everyone knows everything eventually.
+ - The thing you can count on in life is that Tennessee will always be scorching hot in August.
+ - You see an absolutely brilliant film later, as an adult, and you walk out thinking about what to have for dinner. Whereas something like Jaws winds up having a huge effect on me. If only my parents had been taking me to Kurosawa films when I was eight, but no.
+ - Coming back is the thing that enables you to see how all the dots in your life are connected.
+ - I can’t write the book I want to write, but I can and will write the book I am capable of writing.
+ - I believe, in my better moments, that there is a plan and things go not the way we want them to but the way they should.
+ - If a person has never given writing a try, they assume that a brilliant idea is hard to come by. But really, even if it takes some digging, ideas are out there. Just open your eyes and look at the world. Writing the ideas down, it turns out, is the real trick.
+ - The tricky thing about being a writer, or about being any kind of artist, is that in addition to making art you also have to make a living.
+ - I think of Nashville as a very natural place. We’re easy going, we are ourselves. There isn’t a lot of preening or trying to impress. So it’s an easy place to just be and that is a good state from which to write.
+ - The love between humans is the thing that nails us to the earth.
+ - It is said the sesta is one of the only gifts the Europeans brought to South America, but I imagine the Brazilians could have figured out how to sleep in the afternoon without having to endure centuries of murder and enslavement.
+ - Carmen prayed hard. She prayed while standing near the priest in hopes it would give her request extra credibility. What she prayed for was nothing. She prayed that God would look on them and see the beauty of their existence and leave them alone.
+ - Even though I didn’t know I was applying for the job, I have somehow become the spokesperson for independent book stores.
+ - No one should have to go back to the place where she had once been a girl.
+ - Well, I always say that the two things I was most disastrous at in my life, being a teenager and being a wife, were the two things I really wound up cashing in on when I was writing fluffy magazine pieces.
+ - Love was action. It came to you. It was not a choice.
+ - Sometimes if there’s a book you really want to read, you have to write it yourself.
+ - Maybe there would be a bad outcome for some of the others, but no one was going to shoot a soprano.
+ - Learn to write by writing.
+ - But these last months had turned him around and now Gen saw there could be as much virtue in letting go of what you knew as there had ever been in gathering new information. He worked as hard at forgetting as he had ever worked to learn.
+ - Staying within the world of a novel gives us the ability to be quiet and alone, two skills that are disappearing faster than the polar icecaps.
+ - The Swedish he knew was mostly from Bergman films. He had learned it as a college student, matching the subtitles to the sounds. In Swedish, he could only converse on the darkest of subjects.
+ - I think people become consumed with selling a book when they need to be consumed with writing it.
+ - If you’ve had good gin on a hot day in Southern California with the people you love, you forget Nebraska. The two things cannot coexist. The stronger, better of the two wins.
+ - I don’t write for an audience, I don’t think whether my book will sell, I don’t sell it before I finish writing it.
+ - I can write for any magazine now, in any voice. I can do it in two hours, I could do it in my sleep, it’s like writing a grocery list.
+ - Maybe that was the definition of life everlasting: the belief that the next generation would carry your work forward.
+ - Thank God Roxane Coss had not fallen in love with one of the Russians. She doubted they could make it up the stairs without stopping for a cigarette and telling at least one loud story that no one could understand.
+ - Society was nothing but a long, dull dinner party conversation in which one was forced to speak to one’s partner on both the left and the right.
+ - Why is it that we understand playing the cello will require work, but we attribute writing to the magic of inspiration?
+ - If you want to write and can’t figure out how to do it, try this: Pick an amount of time to sit at your desk every day. Start with twenty minutes, say, and work up as quickly as possible to as much time as you can spare. Do you really want to write? Sit for two hours a day.
+ - It was all in my head and now all I had to do was figure out a way to get it down on paper.
+ - One must not be shy where language is concerned.
+
+90 quotes

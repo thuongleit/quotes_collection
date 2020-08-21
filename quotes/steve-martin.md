@@ -1,0 +1,238 @@
+ - Be so good they can’t ignore you.
+ - Thankfully, persistence is a great substitute for talent.
+ - A day without sunshine is like, you know, night.
+ - It’s pain that changes our lives.
+ - Talking about music is like dancing about architecture.
+ - Be undeniably good.
+ - Before you criticize a man, walk a mile in his shoes. That way, when you do criticize him, you’ll be a mile away and have his shoes.
+ - I thought yesterday was the first day of the rest of my life but it turns out today is.
+ - Comedy is the art of making people laugh without making them puke.
+ - The conscious mind is the editor, and the subconscious mind is the writer.
+ - Or is it that I think too much?
+ - The greatest thing you can do is surprise yourself.
+ - I’ve got to keep breathing. It’ll be my worst business mistake if I don’t.
+ - Writer’s block is a fancy term made up by whiners so they can have an excuse to drink alcohol.
+ - The operation was a success, but I’m afraid the doctor is dead.
+ - I’ve heard lots of people lie to themselves but they never fool anyone.
+ - I like a woman with a head on her shoulders. I hate necks.
+ - I saw the movie, ‘Crouching Tiger, Hidden Dragon’ and was surprised because I didn’t see any tigers or dragons. And then I realized why: they’re crouching and hidden.
+ - No art comes from the conscious mind.
+ - I don’t really manage my time. I really just wait until I’m inspired to do something. And when I’m inspired to do something, it just happens.
+ - I believe in equality. Equality for everybody. No matter how stupid they are or how superior I am to them.
+ - You know what your problem is, it’s that you haven’t seen enough movies – all of life’s riddles are answered in the movies.
+ - How to make a million dollars: First, get a million dollars.
+ - It’s not the size of the nose that matters, it’s what’s inside that counts.
+ - Chaos in the midst of chaos isn’t funny, but chaos in the midst of order is.
+ - All I’ve ever wanted was an honest week’s pay for an honest day’s work.
+ - I believe that sex is one of the most beautiful, natural, wholesome things that money can buy.
+ - As much as I remember, I just thought, I want to sing a song that starts normal and ends crazy.
+ - First the doctor told me the good news: I was going to have a disease named after me.
+ - I was always very shy but as I get older I think, What am I being shy for? You just grow weary of your own hang-ups.
+ - I will do anything to look like him – except, of course, exercise or eat right.
+ - There’s someone out there for everyone-even if you need a pickaxe, a compass, and night goggles to find them.
+ - I’m not a human being. I’m despicable and disgusting – but that’s where the money is.
+ - Love is a promise delivered already broken.
+ - You know that look that women get when they want to have sex? Me neither.
+ - Always make room for the unexpected in yourself.
+ - A father carries pictures where his money used to be.
+ - I think I did pretty well, considering I started out with nothing but a bunch of blank paper.
+ - My problem is that I don’t get the same exhiliration from success as I get depression from failure.
+ - Women have choices, and men have responsibilities.
+ - Ah, yes. I remember my first beer.
+ - So, I can hurt now, or hurt later.
+ - Always do business as if the person you’re doing business with is trying to screw you, because he probably is. And if he’s not, you can be pleasantly surprised.
+ - She tried to get even with him through psychological warfare but couldn’t, because he didn’t care.
+ - Nothing I do is done by popular demand.
+ - How many people have never raised their hand before?
+ - I believe entertainment can aspire to be art, and can become art, but if you set out to make art you’re an idiot.
+ - I was deeply unhappy, but I didn’t know it because I was so happy all the time.
+ - I’m always looking for something to engage my imagination and take me on a little mental voyage. I just want a new topic in my life.
+ - I handed in a script last year and the studio didn’t change one word. The word they didn’t change was on page 87.
+ - I have no fear, no fear at all. I wake up, and I have no fear. I go to bed without fear. Fear, fear, fear, fear. Yes, ‘fear’ is a word that is not in my vocabulary.
+ - A friend of mine once asked how to make it in show business and I said “Be so good that they can’t ignore you.” She thought I was being flip but it’s true. The challenge is trying to live up to the opportunities given me.
+ - I’ve decided to take up smoking, my doctor said I wasn’t getting enough tar.
+ - Teaching is a form of show business.
+ - I’m for the Wall Street Occupiers. But will they accept me when they find out I sell packaged mortgage default instruments to children?
+ - If you’re studying Geology, which is all facts, as soon as you get out of school you forget it all, but Philosophy you remember just enough to screw you up for the rest of your life.
+ - The Apple Pie Hubbub was a significant novel for me, because that’s when I first started using verbs.
+ - I cannot smell mothballs because it’s so difficult to get their little legs apart.
+ - Some nights, alone, he thinks of her, and some nights, alone, she thinks of him. Some night these thoughts, separated by miles and time zones, occur at the same objective moment, and Ray and Mirabelle are connected without ever knowing it.
+ - Relationships end, but they don’t end your life. But people do often spending more time finding out about failed relationships than finding successful ones.
+ - If I screw up raising my kids, nothing I achieve will matter much.
+ - There are few takers for the quiet heart.
+ - Home to me is when someone comes up to me and says, “Can I get a selfie?” No. It’s where your wife and your family are. It’s the emotional place where you feel like you’re not away from it.
+ - You can’t really conduct your life by one or two phrases.
+ - An apology? Bah! Disgusting! Cowardly! Beneath the dignity of any gentleman, however wrong he might be.
+ - When someone less capable is ahead of me, I am not pleased. It makes me insane.
+ - I used to think a wedding was a simple affair. Boy and girl meet, they fall in love, he buys a ring, she buys a dress, they say I do. I was wrong. That’s getting married. A wedding is an entirely different proposition.
+ - I guess I wouldn’t believe in anything anymore if it weren’t for my lucky astrology mood watch.
+ - A celebrity is any well-known TV or movie star who looks like he spends more than two hours working on his hair.
+ - As a school board we felt it’s an unfair expense to families. The lawsuit has a certain logic to it – if you have free public education, you can’t put these things on top of it. It defeats the purpose.
+ - She was feeling her bohemian oats.
+ - Writing is something I took up rather than anything I had an inclination toward. I like acting -delivering someone else’s message – but writing is more of an accomplishment.
+ - I actually credit Twitter with fine-tuning some joke-writing skills. I still feel like I’m working at it.
+ - I just believe that the interesting time in a career is pre-success, what shaped things, how did you get to this point.
+ - You know when you’re telling these little stories? Here’s a good idea: have a point. It makes it so much more interesting for the listener!
+ - I’ve run into people in my life who were so dramatic; people who are so extreme and so frustrating to be around that you end up thinking about them and talking about them for literally years after your experience with them is over.
+ - I think communication is so firsbern.
+ - You can’t make something beautiful by trying to make something beautiful. Something becomes beautiful in the process of trying to be something else.
+ - I would like a wine. The purpose of the wine is to get me drunk. A bad wine will get me as drunk as a good wine. I would like the good wine. And since the result is the same no matter which wine I drink, I’d like to pay the bad wine price.
+ - It’s not tipping I believe in. It’s overtipping.
+ - There is one thing I would break up over, and that is if she caught me with another woman. I won’t stand for that.
+ - To me, torture would be, “I can’t think what to write in the next sentence. I’m stuck.” Torture would be if you didn’t have the next idea.
+ - College totally changed my life. It changed what I believe and what I think about everything. I majored in philosophy.
+ - I just wanted to be in show business. I didn’t care if I was going to be an actor or a magician or what. Comedy was a point of the least resistance, really. And on the simplest level, I loved comedy.
+ - Kids like my act because I’m wearing nose glasses. Adults like my act because there’s a guy who thinks putting on nose glasses is funny.
+ - I’m tired of wasting letters when punctuation will do, period.
+ - With comedy, you have no place to go but more comedy, so you’re never off the hook.
+ - I got a flue shot and now my chimney works perfectly.
+ - He never complicates a desire by overthinking it, unlike Mirabelle, who spins a cocoon around an idea until it is immobile.
+ - I have heard it said that a complicated childhood can lead to a life in the arts. I tell you this story of my father and me to let you know I am qualified to be a comedian.
+ - I’m the leader of the platoon and I run gambling and lotteries, dances and I sell beer illegally. I’m a con man and I’m thoroughly lovable.
+ - The course was more plodding than heroic. I did not strive valiantly against doubters but took incremental steps studded with a few intuitive leaps.
+ - We’ve taken what was just once a racetrack and made it a multifaceted gaming destination for the entire region.
+ - It’s like painting the same blank canvas over and over and over and over and over. Once the concept is known, you don’t need to see two. And that was in the back of my head, that I was really done artistically with what I had created or pastiched.
+ - A remarkable memoir that’s packed with anecdotes, advice and humor, all while maintaining a high level of dignity and self-awareness.
+ - I never had a movie that I wanted to do turned down in my whole life. I always write the script first so it speaks for itself.
+ - I find animated movies very touching. They reach an audience that’s hard to get with a live-action film.
+ - It’s not what you know, it’s what you think you know.
+ - With comedy, you never know until you put it in front of an audience. You shoot it and a year later you have no idea if it’s going to work. And then you get the response. It’s great when it’s good.
+ - She had destroyed whatever was between us by making a profound gaffe: She met me.
+ - Comedy is a distortion of what is happening, and there will always be something happening.
+ - I’m trying to think of other ones. Oh, yeah, I’d say – somebody would buy something and we’d say, and because you are our hundredth customer today, you get a free paperback.
+ - Writing is extremely personal, and that’s the joy of it for me.
+ - With a cheery delicacy she divided my obsessions into three categories: acceptable, unacceptable, and hilarious.
+ - Performing music is a way to do comedy, but without the obligation to do a solid hour, hour and half of a standup. I could intersperse it with music, so it became a really good format for me.
+ - I really enjoy the social aspects of music as much as anything.
+ - The conscious mind is the editor, and the subconscious mind is the writer. And the joy of writing, when you’re writing from your subconscious, is beautiful – it’s thrilling. When you’re editing, which is your conscious mind, it’s like torture.
+ - I am a wild and crazy guy!
+ - I can juggle. I started juggling as a kid. And when I worked at Disneyland, I knew a juggler there named Christopher Faire, and he taught me how to juggle. I used it in my comedy act for a while.
+ - There is something going on now in Mexico that I happen to think is cruelty to animals. What I’m talking about, of course, is cat juggling.
+ - Lots of women are getting involved. They’re not satisfied just being passengers anymore.
+ - I’m not trying to be a big shot or anything like that, but I get my drinks half price.
+ - Whether I’m involved in creating something or not, it’s a personal issue of do I respect it. But you can only know that five or ten years later.
+ - Dinosaurs did not walk with humans. The evolutionary record says different. They gambled.
+ - If you feel tired midway through, give Neil Patrick Harris a Red Bull and throw some sheet music at him.
+ - I could never be a woman, ’cause I’d just stay home and play with my breasts all day.
+ - When I die, now don’t think that I’m a nut, don’t want no fancy funeral, just one like old King Tut.
+ - I choose a project based on whether it feels worthwhile working on when it comes to me. But secondly I choose it if it sounds like fun. Projects are determined by just how they strike me at the moment, as they have done throughout my whole life.
+ - There are some people that will not pick up a phone and call you, but if you knock on a door and talk to them, they’ll talk back to you.
+ - I’ve put an umbrella in my mouth and opened it. I sat in a lemon-meringue pie. I’ve done terrible things to my dog with a fork...
+ - I would assign every lie a color: yellow when they were innocent, pale blue when they sailed over you like the sky, red because I knew they drew blood. And then there was the black lie. That’s the worst of all. A black lie was when I told you the truth.
+ - I never touched a gun in my life. That and that alone forever doomed me to middle management.
+ - Why sip from a tea cup, when you can drink from the river.
+ - A kiss may not be the truth, but it is what we wish were true.
+ - I actually learned about sex watching neighborhood dogs. And it was good. Go ahead and laugh. I think the most important thing I learned was: Never let go of the girl’s leg, no matter how hard she tries to shake you off.
+ - Comedy may be big business but it isn’t pretty.
+ - The banjo is such a happy instrument – you can’t play a sad song on the banjo – it always comes out so cheerful.
+ - I was very vulnerable to criticism for many years. I could read a bad review and remember it my whole life.
+ - You cannot make your opportunities concur with the opportunities of people whose incomes are ten times greater than yours.
+ - Don’t have sex man. It leads to kissing and pretty soon you have to start talking to them.
+ - I’m a bitter, sad, sour young man who makes a career out of hastling people with real careers.
+ - You know, a lot of people come to me and they say, “Steve, how can you be so funny?” There’s a secret to it, it’s no big deal. Before I go out, I put a slice of bologna in each of my shoes. So when I’m on stage, I feel funny.
+ - Boy, those French: they have a different word for everything!
+ - I just downloaded eleven hundred books onto my Kindle, and now I can’t lift it.
+ - I believe you should place a woman on a pedestal: high enough so you can look up her dress.
+ - I started a grease fire at McDonald’s – threw a match in the cook’s hair.
+ - There’s a lot of thought in art. People get to talk about important things. There’s a lot of sex, you know, in art. There’s a lot of naked women and men, and there’s intrigue, there’s fakery. It’s a real microcosm of the larger world.
+ - The banjo is truly an American instrument, and it captures something about our past.
+ - The self-prepared dinner is a great time killer for lonely people and as much time should be spent on it as possible.
+ - In talking to girls I could never remember the right sequence of things to say. I’d meet a girl and say, Hi, was it good for you too? If a girl spent the night, I’d wake up in the morning and then try to get her drunk.
+ - How is it possible to miss a woman whom you kept at a distance, so that when she was gone you would not miss her?
+ - I just gave my cat a bath. Now how do I get all this fur off my tounge?
+ - I really enjoy finding the right word, creating a good, flowing sentence. I enjoy the rhythm of the words.
+ - A joke that works is complete knowledge in a nanosecond...
+ - I can understand the drug thing. So they feel that it’s more important to take the drugs than to do a good show for the people.
+ - Halle Berry is here, whose win last year broke down barriers for unbelievably hot women.
+ - All of life’s riddles are answered in the movies.
+ - Lacy was just as happy alone as with company. When she was alone, she was potential; with others she was realized.
+ - So, while fitting in, she was like a wicked detail standing out against a placid background.
+ - If you’ve got a dollar and you spend 29 cents on a loaf of bread, you’ve got 71 cents left; But if you’ve got seventeen grand and you spend 29 cents on a loaf of bread, you’ve still got seventeen grand. There’s a math lesson for you.
+ - Were they beautiful? We were all beautiful. We were in our twenties.
+ - Acting keeps me alert to people, and life. I don’t know, there’s something about going to work early in the morning, and having to stay alert and concentrated. Maybe that keeps your mind alive.
+ - What means the most to me changes through the years. There was a time when movies meant the most. But when I’m concentrating on a project, that’s what means the most to me.
+ - Anyone who’s ever worked with Meryl Streep always says the same thing: can that woman act! And what’s with all the Hitler memorabilia?
+ - Acting has helped me understand people, not only because you are acting as a character, but also because you are watching other actors work. That really helps you identify in life when someone is acting, not being true.
+ - Private companies have a lot of capital. They can run things efficiently and get projects built.
+ - I just don’t identify myself with a place. I just don’t get it. Like, why am I cheering for this town? Towns are good and bad but they don’t have principles, constitutions. You wouldn’t go to war for your town.
+ - I love money. I love everything about it. I bought some pretty good stuff. Got me a $300 pair of socks. Got a fur sink. An electric dog polisher. A gasoline powered turtleneck sweater. And, of course, I bought some dumb stuff, too.
+ - I always think back to my high school days and realize all the people who were so popular then are nowhere now and all the people who were steadfast and steady-going are somewhere. So high school doesn’t necessarily translate to later in life.
+ - There’s no better way to learn something than to learn it in front of an audience. Your terror drives you.
+ - Talent is the ability to say things well, but genius is the ability to, well, say things.
+ - I didn’t worry if a bit got no response, as long as I believed it had enough response to linger.
+ - I did a lot of things when I first started out. In order to be in show business, I juggled, I did magic tricks, cards tricks and I played the banjo.
+ - Being on Twitter is like having a fern.
+ - Mirabelle is not affected by a man’s failures to approach her, as her own self-depreciating attitude never allows the idea that he would in the first place.
+ - To be with another woman, that is French. To be caught, that is American.
+ - You kill me and I’ll see that you never work in this town again.
+ - Hello. I’m hello, and I’d like to say myself.
+ - A girl who is willing to give every ounce of herself to someone, who could never betray her lover, who never suspects maliciousness of anyone, and whose sexuality sleeps in her, waiting to be stirred.
+ - Comedy is not pretty.
+ - I think when the movie ‘Roxanne’ came out, which I also had written, I felt something new that I never felt, which was respect.
+ - When you’re reaching for a star, there’s a long way to fall.
+ - Working at the magic shop really gave me a sense of comedy because it was all jokes.
+ - I was very interested in vaudeville. It was the only sort of discipline that was a five-minute act on stage, which is what I really enjoyed and saw myself doing. And I bought books on it.
+ - I have found that – just as in real life – imagination sometimes has to stand in for experience.
+ - She has learned that her body is precious and it mustn’t be offered carelessly ever again, as it holds a direct connection to her heart.
+ - Hollywood must be the only place on earth where you can be fired by a man wearing a Hawaiian shirt and a baseball cap.
+ - The environment changed with Martha Stewart and Enron.
+ - Unlike Ray Porter, his love is fearless and without reservation.
+ - Awards mean nothing to comedians. What matters is the audience, how you’re doing – artistically, for the most part – at that moment.
+ - The real joy is in constructing a sentence. But I see myself as an actor first because writing is what you do when you are ready and acting is what you do when someone else is ready.
+ - I thought ‘Borat’ was a breakthrough comedy, because it was really funny. It wasn’t some studio-produced script with 14 writers.
+ - Anyway, seeking work is a tad difficult given the poor design of the streets with their prohibitive curbs and driveways that don’t quite line up.
+ - I’m enamored with the art world. Anytime you look at anything that’s considered artistic, there’s a commercial world around it: the ballet, opera, any kind of music. It can’t exist without it.
+ - The emotions of men, however, were of a different order. They were pesky annoyances, small dust devils at her feet. Her knack for causing heartbreak was innate, but her vitality often made people forgive her romantic misdeeds.
+ - Acting is collaborative because you are working with another actor, and it’s almost like a two-man juggling team. You have to really be in sync.
+ - Relationships end, but they don’t end your life.
+ - Mirabelle is attractive; it’s just that she is never the first or second girl chosen.
+ - It’s funny that some ideas start with a little “What if?” and then suddenly you’re spending a million dollars to shoot the scene and hoping that it works.
+ - After one of my plays came out, I had mixed reviews, some bad and some good. One day, it dawned on me. I thought, ‘I wrote a play and he wrote a review, and that’s the difference between him and me.’
+ - When I was in college, I was debating to try my hand at show business, or to become a professor. I just thought of the risk of not going into show business and always wondering if I would’ve had a chance. Because that’s where my real heart was.
+ - Rebelliousness really is the province of young people-that kind of iconoclasm.
+ - I loved magic, and so I would practice my magic tricks in front of a mirror for hours and hours and hours because I was told that you must practice, you must practice and never present a trick before it’s ready.
+ - Through the years, I have learned there is no harm in charging oneself up with delusions between moments of valid inspiration.
+ - I think films are about having a good time, so I don’t know that there’s a message. The message of a film is always what a critic writes, and the fun of a film or the emotion of a film is what the audience feels.
+ - Deeply funny musings and adventures elevate Paul Rudnick to the highest level of American comedy writing.
+ - In my banjo show with the Steep Canyon Rangers, I do do comedy during that show. It’d be absurd just to stand there mute and play 25 banjo songs.
+ - I happened to take a photo, and there was my wife, my dog and my banjo, all in the same shot – and I thought, “Oh, that’s like a family portrait right there.”
+ - Hosting the Oscars is much like making love to a woman. It’s something I only get to do when Billy Crystal is out of town.
+ - These days it’s hard to look at a poodle without thinking what a good meal he would make.
+ - Romance takes place when you first fall in love. It stirs all emotions and you can manipulate and be manipulated.
+ - Yeah, well, we’re all writers, aren’t we? He’s a writer that hasn’t been published, and I’m a writer who hasn’t written anything.
+ - I think there are people out there writing original bluegrass songs, but it’s hard to get them out on the air.
+ - It was so sweet backstage, you should have seen it: The Teamsters were helping Michael Moore into the trunk of his limo.
+ - I feel good about being able to take bluegrass on to television like ‘Letterman’ and ‘The View,’ and I’ve heard nice things about being able to do that. I really haven’t felt any negativity toward me or my music.
+ - I took literally everything I knew how to do on stage with me, which was juggling, magic and banjo and my little comedy routines.
+ - Knowledge of means without knowledge of ends is animal training.
+ - I like all kinds of music. I listen to Abigail Washburn, the Punch Brothers, and Marc Johnson, the great clawhammer player. I also listen a lot to Sirius Radio, there’s a lot of bluegrass there.
+ - Reviews for someone like me come in three packages. One is justifiable praise, the second is justifiable criticism, and the third is, “This is only published because he’s a celebrity.”
+ - You want to be a bit compulsive in your art or craft or whatever you do.
+ - You know, there’s a moment when you’re famous when it’s unbearable to go out because you’re too famous. And then there’s a moment when you’re famous just right.
+ - I just respected comedians whether they were or they weren’t, from, you know, new or old.
+ - There’s a big difference between the National Book Awards and the Academy Awards. At the Academy Awards you can feel the greed and envy and ego. Whereas the National Book Awards are in New York.
+ - I always felt the audience sorta tolerated the serious musical parts while I was doing my comedy.
+ - I ignored my stand-up career for 25 years, but now, having finished this memoir, I view this time with surprising warmth. One can have, it turns out, an affection for the war years.
+ - The presence of excessive wealth puts an unnatural spin on the appreciation of art.
+ - Comedians don’t get Oscars, so I gave up on that a long time ago. And I can’t really speak about the Oscar-worthiness of my own performance.
+ - She didn’t even finish her last sentence; it just trailed off. I think the subject had changed in her head while her mouth had continued on the old topic, not realizing it was out of supplies.
+ - I’ve always believed that there are funny people everywhere, but they’re just not comedians. In fact, some of my best comedic inspirations were not professional entertainers.
+ - Any type of humor can be transferred to the screen, as long as there’s clarity. The audience wants to know just what they’re supposed to be feeling, when they’re supposed to laugh.
+ - I love animated films when they are good, because they do bring a lot of emotion and heart that’s very difficult to get in a live action film.
+ - The overhead lights reflect in the glass countertop and mingle in the gray and black of the gloves, resulting in a mother-of-pearl swirl that sometimes sends Mirabelle into a shallow hypnotic dream.
+ - I was not self-destructive, though I almost destroyed myself. In the end, I turned away from stand-up with a tired swivel of my head.
+ - Well, today the Grammys is much much better than the Oscars. I think the differences in the shows are that the Grammys are much wilder. The Oscars is much more people in the industry. And people dress wilder, I think, at the Grammys.
+ - It was easier to sell a painting that was not for sale.
+ - I was seeking comic originality, and fame fell on me as a byproduct.
+ - Comedy makes you humble. Because there are so many opportunities to miss, and strike out.
+ - I cringe at backstory. Because it never quite explains or gets into some psychological thing that is never quite right and never quite the truth and who knows why someone is some way.
+ - I was not naturally talented. I didn’t sing, dance or act, though working around that minor detail made me inventive.
+ - I love doing my surreal sing-along that had words that no one could follow.
+ - Only then does he realize what he has done to Mirabelle, how wanting a square inch of her and not all of her has damaged them both, and how he cannot justify his actions except that, well, it was life.
+ - It was essential that I never show doubt about what I was doing.
+ - I’m not Vegas. Places I play usually cost like $3 to get in, you know, and people are going: Gee, I’ve got $3, I think I’ll throw it away.
+ - I don’t think comic timing is the same as music timing, but I definitely find that I’ve learned from just writing in general that songs can be narrative without having a story.
+ - To have someone play off and be with a band is more pleasurable.
+ - I understood that as much as I had resisted the outside, as much as I had constricted my life, as much as I had closed and narrowed the channels into me, there were still many takers for the quiet heart.
+
+236 quotes

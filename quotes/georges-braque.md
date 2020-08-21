@@ -1,0 +1,59 @@
+ - Truth exists; only lies are invented.
+ - Art is a wound turned into light.
+ - The function of Art is to disturb. Science reassures.
+ - Writing is not describing, painting is not depicting. Verisimilitude is merely an illusion.
+ - The painting is finished when the idea has disappeared.
+ - If we had never met Picasso, would Cubism have been what it is? I think not. The meeting with Picasso was a circumstance in our lives.
+ - I am much more interested in achieving unison with nature than in copying it.
+ - The things that Picasso and I said to one another during those years will never be said again, and even if they were, no one would understand them anymore. It was like being roped together on a mountain.
+ - Reality only reveals itself when it is illuminated by a ray of poetry.
+ - There is only one valuable thing in art: the thing you cannot explain.
+ - One day I noticed that I could go on working my art motif no matter what the weather might be. I no longer needed the sun, for I took my light everywhere with me.
+ - La ve rite existe; on n’invente que le mensonge. Truth exists; only lies are invented.
+ - Poetry is to a painting what life is to man.
+ - I find that it is important to work slowly. Anyone who looks at such a canvas will follow the same path the artist took, and he will experience that it is the path which counts more than the outcome of it, and that the route taken has been the most interesting part.
+ - Colour acts simultaneously with form, but has nothing to do with form.
+ - Perspective is a ghastly mistake which it has taken four centuries to redress.
+ - I realized that one cannot reveal oneself without mannerism, without some evident trace of one’s personality. But all the same one should not go too far in that direction...
+ - Colour could give rise to sensations which would interfere with our conception of space.
+ - Evidence exhausts the truth.
+ - Out of limitations, new forms emerge.
+ - One must not imitate what one wants to create.
+ - Art is polymorphic. A picture appears to each onlooker under a different guise.
+ - Thanks to the oval I have discovered the meaning of the horizontal and the vertical.
+ - It is the limitation of means that determines style, gives rise to new forms and makes creativity possible.
+ - To define a thing is to substitute the definition for the thing itself.
+ - Nature is a mere pretext for a decorative composition, plus sentiment. It suggests emotion, and I translate that emotion into art.
+ - Emotion should not be rendered by an excited trembling; it can neither be added on nor be imitated. It is the seed, the work is the flower.
+ - I have made a great discovery. I no longer believe in anything.
+ - One has to arrive at a specific temperature, at which the objects become malleable.
+ - With age, art and life become one.
+ - Art upsets, science reasures.
+ - It is the unforeseeable that creates the event.
+ - We will never have repose. The present is perpetual.
+ - In a painting, what counts is the unexpected.
+ - The painter thinks in terms of form and color. The goal is not to be concerned with the reconstitution of an anecdotal fact, but with constitution of a pictorial fact.
+ - To work from nature is to improvise.
+ - In art, progress lies not in an extension, but in a knowledge of limitations.
+ - I do not believe in things. I believe in relationships.
+ - Never join an organization.
+ - Painting is a nail to which I fasten my ideas.
+ - When one reaches this state of harmony between things and one’s self, one reaches a state of perfect freedom and peace-which makes everything possible and right. Life becomes perpetual revelation.
+ - Whatever is in common is true; but likeness is false.
+ - Perspective starts from one viewpoint and never gets away from it. But the viewpoint is quite unimportant. It is though someone were to draw profiles all his life, leading people to think that a man has only one eye...
+ - Once an object has been incorporated in a picture it accepts a new destiny.
+ - One has to guard against a formula that is good for everything, that can interpret reality in addition to the other arts, and that rather than creating can only result in a style, or a stylization.
+ - The space between the dish and the pitcher, that I paint also.
+ - I considered that the painter’s personality should be kept out of things, and therefore pictures should be anonymous. It was I who decided that pictures should not be signed, and for a time Picasso did the same.
+ - There is more sensitivity in technique than in the rest of the picture.
+ - Work to perfect the mind. There is no certitude but in what the mind conceives.
+ - Scientific perspective forces the objects in a picture to disappear away from the beholder instead of bringing them within his reach as painting should.
+ - It is not sufficient that what one paints should be made visible. It must be made tangible.
+ - Limited means often constitute the charm and force of primitive painting. Extension, on the contrary, leads the arts to decadence.
+ - I do not think my painting has ever been revolutionary. It was not directed against any kind of painting. I have never wanted to prove that I was right and someone else wrong...
+ - I thought that from the moment someone else could do the same as myself, there was no difference between the pictures and they should not be signed. Afterwards I realized it was not so and began to sign my pictures again. Picasso had begun again anyhow.
+ - You put a blob of yellow here, and another at the further edge of the canvas: straight away a rapport is established between them. Colour acts in the way that music does...
+ - Progress in art does not consist in reducing limitations, but in knowing them better.
+ - Whatever is valuable in painting is precisely what one is incapable of talking about.
+
+57 quotes

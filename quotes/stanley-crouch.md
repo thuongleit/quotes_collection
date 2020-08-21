@@ -1,0 +1,36 @@
+ - You must be willing to accept the fact that pain is a part of the process of revelation.
+ - Everybody has to be reminded that there’s another way to be. Another more mysterious, unpredictable way to be that’s not necessarily based upon contrivances.
+ - Your ethnic or sexual identity, what region of the country you’re from, what your class is – those aspects of your identity are not the same as your aesthetic identity.
+ - Volumptuous women look good. Ignorant messages from mass media tell women what size to be, but female qualities-a softness, a soothing capacity that a woman has no matter what size she happens to be-sustain the more humane aspects of civilization.
+ - The high point of civilization is that you can hate me and I can hate you but we develop an etiquette that allows us to deal with each other because if we acted solely upon our impulse we’d probably go to war.
+ - If there’s an intellectual highway, there’s also an intellectual subway.
+ - Rap actually comes out of punk rock, not black music.
+ - The grand irony, however, is that Southern segregation was not brought to an end, nor redneck violence dramatically reduced, by violence.
+ - Popular culture tells you that schools and parents don’t know what’s going on, the police are dogs, politicians are all liars and scum, and any crime that’s not committed by the Mafia is done by the CIA.
+ - When a violent minority that crosses color lines comes to believe that killing those you know or do not know is a reasonable solution to problems, we are in need of another vision.
+ - Louis Armstrong, who learned to be in exquisite dress, came from the bottom, and he’s not a trash can.
+ - The discussion of ideas as opposed to the American narcissistic obsession with what’s going on with the self, that’s the general thing people are talking about.
+ - Our society has gotten to the point where we might soon become less and less shocked by any kind of violence.
+ - Our job as writers and thinkers in the time is how to bring about the occasions that let people have that first-person experience – or the metaphoric experience that allows them to see human continuity as opposed to total threat, total willingness to do violence.
+ - When people conclude that all is futile, then the absurd becomes the norm.
+ - Unfortunately, I’m not a person that’s always capable of living up to the Boy Scout philosophy.
+ - In America, we have to learn to be patient enough to figure out what somebody is saying. Somebody might actually be saying something.
+ - All of us are made up of the stories that we listen to, the ones we disagree with and the ones that we agree with.
+ - Big business, for all its lobbying, is often put in line by investigative reporting, public scandals and multi-million-dollar judgments in court against those who put products on the market that are dangerous to their buyers.
+ - But there are a number of attitudes that should not be emotionally or psychologically ingested by young people.
+ - I also wanted to do something that I hadn’t really seen in almost any black novels, which was a complex love story in which both people were extremely intelligent and talented and understood a lot of things and were still at odds getting it together.
+ - You can meet a young person who goes to school and is really enthusiastic, but if a sufficiently strong personality convinces them that this is a waste of time, that person might flunk out.
+ - Getting to the pint where the other is not the enemy is a big leap.
+ - I don’t know any women who don’t think about what they look like, and I don’t know any men who don’t think about what women look like.
+ - You’d never know that listening to people in the UN but tribalism is the father of racism.
+ - The point is, you have an ethnic heritage and you have a human heritage. Your human heritage includes everything of human value.
+ - I wanted to get to that aesthetic proposition that comes out of learning the human elements of a world, so that those notes and rhythms mean something to you besides just the academic way in which they fall in place.
+ - People don’t really think other people are the same.
+ - But the myth of violent solutions as the ultimate solutions maintains itself in much of popular media.
+ - When you’re artistic director of a program, you present the music you want to present.
+ - If you’re going to get in the ring and try to take the belt, you have to prepare to get hit.
+ - Our democratic richness arrives when we’re able to comprehend our collective humanity accurately.
+ - Now the writing in the head, I definitely do every day, thinking about how I want to phrase something or how I’d like to rephrase something I’ve already written.
+ - What we need in America is a renaissance. We need to go forward by going backward.
+
+34 quotes

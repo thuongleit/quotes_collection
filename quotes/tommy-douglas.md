@@ -1,0 +1,29 @@
+ - Courage, my friends; ’tis not too late to build a better world.
+ - We are all in this world together, and the only test of our character that matters is how we look after the least fortunate among us. How we look after each other, not how we look after ourselves. That’s all that really matters, I think.
+ - The inescapable fact is that when we build a society based on greed, selfishness, and ruthless competition, the fruits we can expect to reap are economic insecurity at home and international discord abroad.
+ - We should never, never be afraid or ashamed about dreams. The dreams won’t all come true; we won’t always make it; but where there is no vision a people perish. Where people have no dreams and no hopes and aspirations, life becomes dull and a meaningless wilderness.
+ - Fascism begins the moment a ruling class, fearing the people may use their political democracy to gain economic democracy, begins to destroy political democracy in order to retain its power of exploitation and special privilege.
+ - The Bible is like a bull fiddle, you can play almost any tune you want on it.
+ - I came to believe that health services ought not to have a price tag on them, and that people should be able to get whatever health services they required irrespective of their individual capacity to pay.
+ - Man can now fly in the air like a bird, swim under the ocean like a fish, he can burrow into the ground like a mole. Now if only he could walk the earth like a man, this would be paradise.
+ - Canada is like an old cow. The West feeds it. Ontario and Quebec milk it. And you can well imagine what it’s doing in the Maritimes.
+ - To accept the principal that “all power proceeds from the barrel of a gun” is to accept a society which will be dominated by those with the biggest guns.
+ - The Liberals talk about a stable government but we don’t know how bad the stable is going to smell.
+ - Setting people to spy on one another is not the way to protect freedom.
+ - We are not anti-American. we do not dislike Americans though we abhor American imperialism in all its manifestations. But then, so do many Americans. Many of them have said that even more forthrightly than we have, and many of them have suffered more than any of us for their plain speaking.
+ - The religion of tomorrow will be less concerned with the dogmas of theology and more concerned with the social welfare of humanity.
+ - I am proud that my daughter believes, as I do, that hungry children should be fed whether they are Black Panthers or White Republicans.
+ - A recession is when your neighbour has to tighten his belt. A depression is when you have to tighten your own belt. And a panic is when you have no belt to tighten and your pants fall down.
+ - The trouble with socialists is that they let their bleeding hearts go to their bloody heads.
+ - We agree with the statement contained in the encyclical Quadragesimo Anno, written by Pope Leo XIII, that “anything which dominates the life of the community should be owned by the community.” That is the basis upon which we believe there should be government ownership of monopolistic enterprises.
+ - We must never underestimate our opponents; nor should we forget that the closer we come to reaching our objectives, the more vicious and forthright will their opposition become.
+ - Houdini used to pull rabbits out of a hat, but he never tried to make a living out of selling them when he had pulled them out of the hat.
+ - I don’t mind being a symbol but I don’t want to become a monument. There are monuments all over the Parliament Buildings and I’ve seen what the pigeons do to them.
+ - Those who want to burn books are either afraid of the ideas contained within the covers or they haven’t the courage to stand up for the views which they themselves profess to hold.
+ - The greatest way to defend democracy is to make it work.
+ - Will it be a great source of comfort to certain Canadian boys to know that the bullet that maimed them for life was made from Canadian nickel sold by the International Nickel Company?
+ - We believe that no nation can survive politically free but economically enslaved.
+ - He was the only man I ever knew who could get money from the rich and votes from the poor with the promise to protect them from each other.
+ - In Washington they have their hawks and doves and in Ottawa we have our parrots.
+
+27 quotes

@@ -1,0 +1,174 @@
+ - Two possibilities exist: either we are alone in the Universe or we are not. Both are equally terrifying.
+ - The only way of finding the limits of the possible is by going beyond them into the impossible.
+ - Any sufficiently advanced technology is indistinguishable from magic.
+ - Magic is just science that we don’t understand yet.
+ - The best proof that there’s intelligent life in outer space is the fact that it hasn’t come here.
+ - The only way of discovering the limits of the possible is to venture a little way past them into the impossible.
+ - The Moon is the first milestone on the road to the stars.
+ - It may be that our role on this planet is not to worship God but to create him.
+ - Before you become too entranced with gorgeous gadgets and mesmerizing video displays, let me remind you that information is not knowledge, knowledge is not wisdom, and wisdom is not foresight. Each grows out of the other, and we need them all.
+ - When a distinguished but elderly scientist states that something is possible, he is almost certainly right. When he states that something is impossible, he is very probably wrong.
+ - It has yet to be proven that intelligence has any survival value.
+ - If man can live in Manhattan, he can live anywhere.
+ - I don’t believe in astrology; I’m a Sagittarius and we’re skeptical.
+ - Science demands patience.
+ - I have never grown up, but I will never stop growing.
+ - People go through four stages before any revolutionary development: 1. It’s nonsense, don’t waste my time. 2. It’s interesting, but not important. 3. I always said it was a good idea. 4. I thought of it first.
+ - Sometimes when I’m in a bookstore or library, I am overwhelmed by all the things that I do not know. Then I am seized by a powerful desire to read all the books, one by one.
+ - Space is what stops everything from happening in the same place.
+ - We have to abandon the idea that schooling is something restricted to youth. How can it be, in a world where half the things a man knows at 20 are no longer true at 40 – and half the things he knows at 40 hadn’t been discovered when he was 20?
+ - Somewhere in me is a curiosity sensor. I want to know what’s over the next hill. You know, people can live longer without food than without information. Without information, you’d go crazy.
+ - How inappropriate to call this planet Earth when it is quite clearly Ocean.
+ - I’m sure the universe is full of intelligent life. It’s just been too intelligent to come here.
+ - As our own species is in the process of proving, one cannot have superior science and inferior morals. The combination is unstable and self-destroying.
+ - I don’t pretend we have all the answers. But the questions are certainly worth thinking about.
+ - Science is the only religion of mankind.
+ - One of the great tragedies of mankind is that morality has been hijacked by religion. So now people assume that religion and morality have a necessary connection. But the basis of morality is really very simple and doesn’t require religion at all.
+ - The only real problem in life is what to do next.
+ - Astronomy, as nothing else can do, teaches men humility.
+ - The goal of the future is full unemployment, so we can play. That’s why we have to destroy the present politico-economic system.
+ - The object of teaching a child is to enable the child to get along without the teacher. We need to educate our children for their future, not our past...
+ - It may be that the old astrologers had the truth exactly reversed, when they believed that the stars controlled the destinies of men. The time may come when men control the destinies of stars.
+ - In all the universe there is nothing more precious than mind.
+ - When you finally understand the universe, it will not only be stranger than you imagine, it will be stranger than you can imagine.
+ - There is hopeful symbolism in the fact that flags do not wave in a vacuum.
+ - The space elevator will be built about 50 years after everyone stops laughing.
+ - Getting information from the internet is like getting a glass of water from the Niagara Falls.
+ - The goal of the future is full unemployment.
+ - The difference between machines and human beings is that human beings can be reproduced by unskilled labour.
+ - The one fact about the future of which we can be certain is that it will be utterly fantastic.
+ - We over estimate technology in the short term and under estimate technology in the long term.
+ - The dinosaurs disappeared because they could not adapt to their changing environment. We shall disappear if we cannot adapt to an environment that now contains spaceships, computers – and thermonuclear weapons.
+ - A faith that cannot survive collision with the truth is not worth many regrets.
+ - The greatest tragedy in mankind’s entire history may be the hijacking of morality by religion.
+ - Good morning, Dr. Chandra. This is Hal. I am ready for my first lesson.
+ - What we need is a machine that will let us see the other guy’s point of view.
+ - It was the mark of a barbarian to destroy something one could not understand.
+ - Human judges can show mercy. But against the laws of nature, there is no appeal.
+ - If there are any gods whose chief concern is man, they can’t be very important gods.
+ - Science fiction seldom attempts to predict the future. More often than not, it tries to prevent the future.
+ - It is vital to remember that information – in the sense of raw data – is not knowledge, that knowledge is not wisdom, and that wisdom is not foresight. But information is the first essential step to all of these.
+ - Guns are the crutches of the impotent.
+ - Politicians should read science fiction, not westerns and detective stories.
+ - No trilogy should have more than four books.
+ - Even by the twenty-second century, no way had yet been discovered of keeping elderly and conservative scientists from occupying crucial administrative positions. Indeed, it was doubted if the problem ever would be solved.
+ - If I didn’t exist, I would have invented myself.
+ - The universe must be full of voices, calling from star to star in a myriad tongues. One day we shall join that cosmic conversation.
+ - Until we get rid of religion, we won’t be able to conduct the search for God.
+ - Overhead, without any fuss, the stars were going out.
+ - Belief in God is apparently a psychological artifact of mammalian reproduction.
+ - But he knew well enough that any man in the right circumstances could be dehumanised by panic.
+ - I have great faith in optimism as a guiding principle, if only because it offers us the opportunity of creating a self-fulfilling prophecy.
+ - Perhaps no other year before or since 1984 has been awaited with such eager anticipation.
+ - This is the first age that’s ever paid much attention to the future, which is a little ironic since we may not have one.
+ - As three laws were good enough for Newton, I have modestly decided to stop there.
+ - We always thought the living Earth was a thing of beauty. It isn’t. Life has had to learn to defend itself against the planet’s random geological savagery.
+ - They had not yet attained the stupefying boredom of omnipotence; their experiments did not always succeed.
+ - The truth, as always, will be far stranger.
+ - Sometimes I think we’re alone in the universe, and sometimes I think we’re not. In either case the idea is quite staggering.
+ - In the long run, there are no secrets. in science. The universe will not cooperate in a cover-up.
+ - The rash assertion that “God made man in His own image” is ticking like a time bomb at the foundation of many faiths.
+ - Anything that is theoretically possible will be achieved in practice, no matter what the technical difficulties are, if it is desired greatly enough.
+ - Those meaningless and unanswerable questions the minds keep returning to, like a tongue exploring a broken tooth.
+ - Civilization will reach maturity only when it learns to value diversity of character and of ideas.
+ - When the Sun shrinks to a dull red dwarf, it will not be dying. It will just be starting to live and everything that has gone before will merely be a prelude to its real history.
+ - Space can be mapped and crossed and occupied without definable limit; but it can never be conquered.
+ - Floyd could imagine a dozen things that could go wrong; it was little consolation that it was always the thirteenth that actually happened.
+ - I am an optimist. Anyone interested in the future has to be otherwise he would simply shoot himself.
+ - Sometimes a decision has to be made by a single individual, who has the authority to enforce it. That’s why you need a captain. You can’t run a ship by a committee-at least not all the time.
+ - When one has to ask, “Am I really in love?” the answer is always “No”.
+ - A single test which proves some piece of theory wrong is more valuable than a hundred tests showing that idea might be true.
+ - It must be wonderful to be seventeen, and to know everything.
+ - Every revolutionary idea seems to evoke three stages of reaction. They may be summed up by the phrases: 1- It’s completely impossible. 2- It’s possible, but it’s not worth doing. 3- I said it was a good idea all along.
+ - Reading computer manuals without the hardware is as frustrating as reading sex manuals without the software.
+ - I don’t believe in God but I’m very interested in her.
+ - Humor was the enemy of desire.
+ - No one of intelligence resents the inevitable.
+ - When beauty is universal, it loses its power to move the heart, and only its absence can produce any emotional effect.
+ - Few artists thrive in solitude and nothing is more stimulating than the conflict of minds with similar interests.
+ - Excessive interest in pathological behavior was itself pathological.
+ - The person one loves never really exists, but is a projection focused through the lens of the mind onto whatever screen it fits with least distortion.
+ - Why, Robert Singh often wondered, did we give our hearts to friends whose life spans are so much shorter than our own?
+ - Now, before you make a movie, you have to have a script, and before you have a script, you have to have a story; though some avant-garde directors have tried to dispense with the latter item, you’ll find their work only at art theaters.
+ - I doubt if there is a single field of study so theoretical, so remote from what is laughingly called everyday life, that it may not one day produce something that will shake the world.
+ - Can the synthesis of man and machine ever be stable, or will the purely organic component become such a hindrance that it has to be discarded?
+ - Absolutely no religious rites of any kind, relating to any religious faith, should be associated with my funeral.
+ - All explorers are seeking something they have lost. It is seldom that they find it, and more seldom still that the attainment brings them greater happiness than the quest.
+ - We stand now at the turning point between two eras. Behind us is a past to which we can never return...
+ - After their encounter on the approach to Jupiter, there would aways be a secret bond between them – not of love, but of tenderness, which is often more enduring.
+ - You don’t believe in organized religion, yet a major theme in so many of your works seems to be a quest for God.
+ - My objection to organized religion is the premature conclusion to ultimate truth that it represents...
+ - A well-stocked mind is safe from boredom.
+ - Open the pod bay doors, Hal.
+ - Isn’t killing people in the name of God a pretty good definition of insanity?
+ - You can’t have it both ways. You can’t have both free will and a benevolent higher power who protects you from yourself.
+ - Behind every man now alive stand thirty ghosts, for that is the ratio by which the dead outnumber the living.
+ - Judge me by my deeds, though they are few, rather than my words, though they are many.
+ - Any path to knowledge is a path to God-or Reality, whichever word one prefers to use.
+ - If we have learned one thing from the history of invention and discovery, it is that, in the long run-and often in the short one-the most daring prophecies seem laughably conservative.
+ - If children have interests then education happens.
+ - No communication technology has ever disappeared, but instead becomes increasingly less important as the technological horizon widens.
+ - SETI is probably the most important quest of our time, and it amazes me that governments and corporations are not supporting it sufficiently.
+ - Science can destroy religion by ignoring it as well as by disproving its tenets. No one ever demonstrated, so far as I am aware, the nonexistence of Zeus or Thor, but they have few followers now.
+ - Those wanderers must have looked on Earth, circling safely in the narrow zone between fire and ice, and must have guessed that it was the favourite of the Sun’s children.
+ - Death focuses the mind on the things that really matter: why are we here, and what should we do?
+ - The intelligent minority of this world will mark 1 January 2001 as the real beginning of the 21st century and the Third Millennium.
+ - The time was fast approaching when Earth, like all mothers, must say farewell to her children.
+ - Religion is a by-product of fear. For much of human history it may have been a necessary evil, but why was it more evil than necessary? Isn’t killing people in the name of god a pretty good definition of insanity?
+ - Now I’m a scientific expert; that means I know nothing about absolutely everything.
+ - Never attribute to malevolence what is merely due to incompetence.
+ - Good morning, doctors. I have taken the liberty of removing Windows 95 from my hard drive.
+ - There were some things that only time could cure. Evil men could be destroyed, but nothing could be done with good men who were deluded.
+ - God said, ‘Cancel Program GENESIS.’ The universe ceased to exist.
+ - Any smoothly functioning technology will have the appearance of magic.
+ - One theory which can no longer be taken very seriously is that UFOs are interstellar spaceships.
+ - One of the biggest roles of science fiction is to prepare people to accept the future without pain and to encourage a flexibility of the mind. Politicians should read science fiction, not westerns and detective stories.
+ - Religion is the most malevolent of all mind viruses.
+ - Isaac Asimov is, in reality, based on something I had invented a few years previously.
+ - We stand now at the turning point between two eras. Behind us is a past to which we can never return The coming of the rocket brought to an end a million years of isolation the childhood of our race was over and history as we know it began.
+ - The phenomenon of UFO doesn’t say anything about the presence of intelligence in space. It just shows how rare it is here on the earth.
+ - The entire sweep of human history from the dark ages into the unknown future was considerably less important at the moment than the question of a certain girl and her feelings toward him.
+ - Utopia was here at last: its novelty had not yet been assailed by the supreme enemy of a ll Utopias – boredom.
+ - Only small minds are impressed by large numbers.
+ - There is a special sadness in achievement, in the knowledge that a long-desired goal has been attained at last, and that life must now be shaped toward new ends.
+ - I would defend the liberty of consenting adult creationists to practice whatever intellectual perversions they like in the privacy of their own homes; but it is also necessary to protect the young and innocent.
+ - Almost any seat was comfortable at one-sixth of a gravity.
+ - It is not easy to see how the more extreme forms of nationalism can long survive when men have seen the Earth in its true perspective as a single small globe against the stars.
+ - Creationism, perhaps the most pernicious of the intellectual perversions now afflicting the American public.
+ - The more wonderful the means of communication, the more trivial, tawdry, or depressing its contents seemed to be.
+ - Whether we are based on carbon or on silicon makes no fundamental difference we should each be treated with appropriate respect.
+ - There is the possibility that humankind can outgrow its infantile tendencies, as I suggested in Childhood’s End. But it is amazing how childishly gullible humans are.
+ - Training was one thing, reality another.
+ - The piece of equipment I’m most found off is my telescope. The other night I had a superb view of the moon.
+ - Moses Kaldor had always loved mountains; they made him feel nearer to the God whose nonexistence he still sometimes resented.
+ - The realisation that our small planet is only one of many worlds gives mankind the perspective it needs to realise sooner that our own world belongs to all its creatures.
+ - I sometimes think that the universe is a machine designed for the perpetual astonishment of astronomers.
+ - The Shuttle is to space flight what Lindbergh was to commercial aviation.
+ - As his body became more and more defenseless, so his means of offense became steadily more frightful.
+ - One of the great tragedies of mankind is that morality has been hijacked by religion.
+ - When all else failed, you had to rely on eyeball intrumentation.
+ - I have a fantasy where Ted Turner is elected President but refuses because he doesn’t want to give up power.
+ - It is really quite amazing by what margins competent but conservative scientists and engineers can miss the mark, when they start with the preconceived idea that what they are investigating is impossible.
+ - For if not true, they are well imagined...
+ - Since women are better at producing babies, presumably Nature has given men some talent to compensate. But for the moment I can’t think of it.
+ - If such a thing had happened once, it must surely have happened many times in this galaxy of a hundred billion suns.
+ - What was more, they had taken the first step toward genuine friendship. They had exchanged vulnerabilities.
+ - I’ve been saying for a long time that I’m hoping to find intelligent life in Washington.
+ - I want to be remembered most as a writer – one who entertained readers, and, hopefully, stretched their imagination as well.
+ - Once you can reproduce a phenomenon, you are well on the way to understanding it.
+ - The future is not to be forecast, but created.
+ - We seldom stop to think that we are still creatures of the sea, able to leave it only because, from birth to death, we wear the water-filled space suits of our skins.
+ - The best measure of a man’s honesty isn’t his income tax return. It’s the zero adjust on his bathroom scale.
+ - The moment when one first meets a great work of art has an impact that can never again be recaptured.
+ - Our own grandchildren may demonstrate that-sometimes- Gigantic is Beautiful.
+ - The creation of wealth is certainly not to be despised, but in the long run the only human activities really worthwhile are the search for knowledge, and the creation of beauty. This is beyond argument, the only point of debate is which comes first.
+ - I am unable to distinguish clearly between your religious ceremonies and apparently identical behavior at the sporting and cultural functions you have transmitted to me.
+ - Our lifetime may be the last that will be lived out in a technological society.
+ - The exploration of the planets is now closer to us in time than the exploration of Africa by Stanley and Livingstone.
+ - The West needs to relearn what the rest of the world has never forgotten – that there is nothing sinful in leisure as long as it does not degenerate into mere sloth.
+ - Now times had changed, and the inherited wisdom of the past had become folly.
+ - It was one thing to have guessed it, another to have had that guess confirmed beyond possibility of refutation.
+ - At the present rate of progress, it is almost impossible to imagine any technical feat that cannot be achieved – if it can be achieved at all – within the next few hundred years.
+ - He found it both sad and fascinating that only through an artificial universe of video images could she establish contact with the real world.
+
+172 quotes

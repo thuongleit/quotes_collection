@@ -1,0 +1,34 @@
+ - There’s nothing like biting off more than you can chew, and then chewing anyway.
+ - Facing your fears robs them of their power.
+ - I will guarantee you that the day you step outside your comfort zone by making success your goal is the day you discover that adversity, risk, and daring will make life sweeter than you ever imagined.
+ - My mantra is: Realize you’re going to fail all the time, and accept it. That doesn’t mean I’m not frightened of it.
+ - The best person to get something done is a busy person.
+ - In Botswana in the Kalahari Desert there’s a tented camp called Jack’s Camp, which is like old Africa meets Ralph Lauren. The Oriental rugs, the old leather chairs – you feel like you’ve just jumped out of a Ralph Lauren ad.
+ - In my teens, I joined the Parachute Regiment. I jumped out of lots of airplanes, as much as the Government budget would allow us to. I did two active tours of duty: Northern Ireland, and then the Falklands war.
+ - I needed to be in the bush. There I find solitude and beauty and purity and focus. That’s where my heart lies.
+ - In Europe and Australia, there is something called the Tall Poppy Syndrome: People like to cut the tall poppies. They don’t want you to succeed, and they cut you down – especially people from your own social class.
+ - I look at decisions like – it’s like an Indiana Jones movie. The guy comes to a rope ladder, and he’s being chased. There’s uncertainty on the other side, but he knows when he gets to the other side, he’s going to take his machete and cut the rope ladder behind him. He has no retreat.
+ - Bug eating and backstabbing are the stuff of great entertainment.
+ - You can’t just decide to take the subject matter of The Bible and figure out you can just change what you want. I mean, the audience knows, and if you give them a Biblical story, you better get it right.
+ - As the show’s executive producer, I envisioned something akin to “Gilligan’s Island” meets Lord of the Flies meets Ten Little Indians mets “The Real World.” “Survivor” marks a return to a core element of adventure: staying alive.
+ - I very much like Kenya. It’s hard to beat the Masai Mara and the idea of ballooning across it. I have a great time at Lewa. There’s more rhinos than you’ll find anywhere. A great part for the children is you can ride horses with the giraffes and the zebra.
+ - America is the most giving nation on Earth. One of the best ways to feel better is by doing something for somebody else.
+ - You’ve heard the saying, ‘Analysis creates paralysis.’ You can’t be 100 percent sure of anything.
+ - I learned firsthand that there would simply be no wars if people engaged in real conversation.
+ - Whether it is the cavemen in the caves thousands of years ago, Shakespeare plays, television, movies and books, stories and characters take us on a journey. All I do is tell those stories without scripts and without actors.
+ - One of the greatest freedoms of living in America is being able to ask the question: “If I could do anything I wanted with my life – money being no object – what would I do?” In many parts of the world, people don’t have the luxury of asking that question.
+ - Attitude produces character, and character produces hope.
+ - Every show on television has a downward trend because there are so many more things to watch. You can only deal with what is the benchmark of a hit series and ‘Survivor’ clearly remains a hit series.
+ - The world is changing, and the Internet is about to become the next broadcast network.
+ - I honestly think that in five years time, television will be watched on computer screens anyway and you’ll be doing multiple things. You’ll be ‘IMing’ while you’re watching a show and checking the news.
+ - I came here with nothing, with maybe a hundred bucks in my pocket and had to get a job. And these wealthy people who had made their money themselves, I worked for. It did show me what could be achieved in America, what’s possible if you have some vision to take big risks.
+ - I learned in America that Americans are into results. Americans don’t care where you came from, what your family did, what school you graduated from. They care about if you can deliver the results. That’s what makes America the country it is.
+ - The way I see it, more people are wired with broadband from 9 to 5 during the day than watch TV at night. So therefore isn’t the real prime time 9 to 5? Playing games at your desk – that’s the new prime time, isn’t it?
+ - There’s no reason the story of Christianity wouldn’t be more prevalent in film and television considering the audience size who love and believe the stories. This is a broad audience and deserves to be on broadcast TV.
+ - How many times have you been out for a beer or dinner and people are coming up with business ideas? Everybody wants to think they’ve got that great business idea.
+ - There are screens at the gas station, there are screens at the shopping mall. And they all need content.
+ - Singing shows are fun. Every viewer has their own opinion. We all know whether we think a voice sounds good or not. There’s a play-along element. All these shows can be supported.
+ - No one’s going to watch The Bible on primetime TV.
+ - I’m the kind of person who if I was playing the role of someone who got shot, I’d probably want to get shot so I knew what it felt like.
+
+32 quotes

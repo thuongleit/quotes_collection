@@ -1,0 +1,26 @@
+ - I don’t suffer from a mental illness, I live with it.
+ - It’s how you deal with failure that determines how you achieve success.
+ - Watching Phil Mickelson play golf is like watching a drunk chasing a balloon near the edge of a cliff.
+ - I lost 150 lbs. if you include my wife.
+ - Being bipolar and an addict and an alcoholic I have to keep myself very busy. I don’t sleep. I am lucky if I get three hours of sleep a night, and so I get up, and my head is full of slamming doors.
+ - Playing Augusta is like playing a Salvador Dali landscape. I expected a clock to fall out of the trees and hit me in the face.
+ - Colin Montgomerie is a few French fries short of a Happy Meal.
+ - I didn’t quit drinking because I was a bad drunk. I quit because I was a spectacular drunk. It got to be like a video game, where you get to the highest level and it’s not even a challenge any more.
+ - Never has my flabber been so completely gasted.
+ - I was swinging like a toilet door on a prawn trawler.
+ - Hurling looks a bit like a cross between lacrosse and second degree murder.
+ - I have a healthy disrespect for religion. I really do. When Columbus came to this country in 1492 he brought syphilis, diphtheria, tuberculosis, influenza and Christianity. The diseases were curable.
+ - The world’s No. 1 tennis player spends 90 percent of his time winning, while the world’s No. 1 golfer spends 90 percent of his time losing. Golfers are great losers.
+ - I don’t want anybody to understand what my depression feels like because in order to understand it you have to have been there, and I don’t want anybody else to go.
+ - I adore dogs to the extent I think they are much more important than human beings. I like your dog much more than I like you.
+ - The hardest thing I ever did was get sober. I was drinking two and a half bottles of whiskey a day and taking 40 Vicodin. If I had known I was going to live this long, I would have taken better care of myself.
+ - I hunt feral hogs. I try not to shoot creatures. That doesn’t do anything for me. But big, nasty, smelly, bristly things with tusks that destroy everything that they touch. Yeah, I’ll shoot them.
+ - Everybody knows pretty much everything about me. I emptied all the skeletons out of my closet a long time ago.
+ - If god wanted people to believe in him, why’d he invent logic then?
+ - It’s hard to tell who’s going to win this week, but it probably won’t be a big, fat guy.
+ - Win and you are the superior being in all the universe; lose, and may the fleas of a million rodents, infect your every orifice.
+ - I have got to do something that makes me focus on one thing, and so I will sit and listen to music, or I will read, or I will go and make ammunition in my workshop. I have just got to keep myself busy.
+ - That’s the trouble with Nick. The only time he opens his mouth is to change feet.
+ - The course is so long, I had to take the curvature of the Earth into consideration.
+
+24 quotes

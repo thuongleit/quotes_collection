@@ -1,0 +1,68 @@
+ - The real Tragedy is the tragedy of the man who never in his life braces himself for his one supreme effort-he never stretches to his full capacity, never stands up to his full stature.
+ - The chief beauty about time is that you cannot waste it in advance. The next year, the next day, the next hour are lying ready for you, as perfect, as unspoiled, as if you had never wasted or misapplied a single moment in all your life. You can turn over a new leaf every hour if you choose.
+ - Worry is evidence of an ill-controlled brain; it is merely a stupid waste of time in unpleasantness. If men and women practiced mental calisthenics as they do physical calisthenics, they would purge their brains of this foolishness.
+ - Procrastination is suicide on the installment plan.
+ - You are not in charge of the universe; you are in charge of yourself.
+ - It is easier to go down a hill than up, but the view is from the top.
+ - You wake up in the morning, and your purse is magically filled with twenty-four hours of un-manufactured tissue of the universe of your life! It is yours. It is the most precious of possessions. No one can take it from you. And no one receives either more or less than you receive.
+ - Ninety percent of the friction of daily life is caused by tone of voice.
+ - Falsehood often lurks upon the tongue of him, who, by self-praise, seeks to enhance his value in the eyes of others.
+ - The proper, wise balancing of one’s whole life may depend upon the feasibility of a cup of tea at an unusual hour.
+ - To my mind the most poignant mystical exhoration ever written is “Be still and know that I am God.”
+ - The most important preliminary to the task of arranging one’s life so that one may live fully and comfortably within one’s daily budget of 24 hours is the calm realization of the extreme difficulty of the task, of the sacrifices and the endless effort which it demands.
+ - Always behave as if nothing had happened, no matter what has happened.
+ - The manner in which one single ray of light, one single precious hint, will clarify and energize the whole mental life of him who receives it, is among the most wonderful and heavenly of intellectual phenomena.
+ - Prepare to live by all means, but for Heaven’s sake do not forget to live.
+ - All wrong doing is done in the sincere belief that it is the best thing to do.
+ - The only way to write a great book is to write it with the eyes of a child who sees things for the first time.
+ - Good taste is better than bad taste, but bad taste is better than no taste.
+ - The best cure for worry, depression, melancholy, brooding, is to go deliberately forth and try to lift with one’s sympathy the gloom of somebody else.
+ - The saxophone is the embodied spirit of beer.
+ - Saw Washington Monument. Phallic. Appalling. A national catastrophe.
+ - The great advantage of being in a rut is that when one is in a rut, one knows exactly where one is.
+ - During a long and varied career as a bachelor, I have noticed that marriage is the death of politeness between a man and a woman.
+ - The price of Justice is eternal publicity.
+ - It is only people of small stature who have to stand on their dignity.
+ - Time is the explicable raw material of everything.
+ - Because her instinct has told her, or because she has been reliably informed, the faded virgin knows that the supreme joys are not for her; she knows by a process of the intellect; but she can feel her deprivation no more than the young mother can feel the hardship of the virgin’s lot.
+ - If you’ve ever really been poor you remain poor at heart all your life. I’ve often walked when I could very well afford to take a taxi because I simply couldn’t bring myself to waste the shilling it would cost.
+ - In search of ideas I spent yesterday morning in walking about, and went to the stores and bought things in four departments. A wonderful and delightful way of spending time. I think this sort of activity does stimulate creative ideas.
+ - Its language is a language which the soul alone understands, but which the soul can never translate.
+ - I don’t read my reviews, I measure them.
+ - Great wealth may be to its owner a blessing or a curse. Alas! I fear it is too often the latter. It hardens the heart, blunts the finer susceptibilities, and transforms into a fiend what under more favourable circumstances might have been a human being.
+ - Only a very gifted mind could cope singly with all the problems which present themselves in the perfecting of a home.
+ - It is within the experience of everyone that when pleasure and pain reach a certain intensity they are indistinguishable.
+ - The test of a first-rate work, and a test of your sincerity in calling it a first-rate work, is that you finish it.
+ - It is difficult to make a reputation, but is even more difficult seriously to mar a reputation once properly made – so faithful is the public.
+ - At moments we are all artists.
+ - Pessimism, when you get used to it, is just as agreeable as optimism.
+ - The parents exist to teach the child, but also they must learn what the child has to teach them; and the child has a very great deal to teach them.
+ - The gain in self-confidence of having accomplished a tiresome labour is immense.
+ - If you’ve ever really been poor, you remain poor at heart all your life.
+ - Beware of undertaking too much at the start. Be content with quite a little. Allow for accidents. Allow for human nature, especially your own.
+ - One of the chief things which my typical man has to learn is that the mental faculties are capable of a continuous hard activity; they do not tire like an arm or a leg. All they want is change – not rest, except in sleep.
+ - I will never cease advising my friends and enemies to read poetry before anything.
+ - I know people who read and read, and for all the good it does them, they might as well cut bread and butter. Unless you give at least 45 minutes of careful, fatiguing reflection upon what you are reading, your minutes are chiefly wasted.
+ - A man of sixty has spent twenty years in bed and over three years in eating.
+ - The people who live in the past must yield to the people who live in the future. Otherwise the world would begin to turn the other way round.
+ - To write is to make oneself the echo of what cannot cease speaking.
+ - Most people sleep themselves stupid.
+ - Concentrate on something useful. Having decided to achieve a task, achieve it at all costs.
+ - Essential characteristic of the really great novelist: a Christ-like, all-embracing compassion.
+ - Being a husband is a whole-time job.
+ - Literature exists so that where one man has lived finely ten thousand may afterward live finely.
+ - The moment you’re born you’re done for.
+ - The pleasure of doing a thing in the same way at the same time every day, and savoring it, should be noted.
+ - I think it rather fine, this necessity for the tense bracing of the will before anything worth doing can be done. I rather like it myself. I feel it is to be the chief thing that differentiates me from the cat by the fire.
+ - As a rule people don’t collect books; they let books collect themselves.
+ - No mind, however loving, could bear to see plainly into all the recess of another mind.
+ - The war years count double. Things and people not actively in use age twice as fast.
+ - The man who begins to go to bed forty minutes before he opens his bedroom door is bored; that is to say, he is not living.
+ - Does there, I wonder, exist a being who has read all, or approximately all, that the person of average culture is supposed to have read, and that not to have read is a social sin? If such a being does exist, surely he is an old, a very old man.
+ - A true friend is one who likes you despite your achievements.
+ - I ought to reflect again and again, and yet again, that the beings that I have to steer are just as inevitable in the scheme of evolution as I am myself; have just as much right to be themselves as I am entitled to; and they all deserve from me as much sympathy as I give to myself.
+ - Every scene, even the commonest, is wonderful, if only one can detach oneself, casting off all memory of use and custom and behold it, as it were, for the first time.
+ - Make love to every woman you meet; if you get five per cent of your outlay it’s a good investment.
+ - Time is the inexplicable raw material of everything. With it, all is possible, without it nothing. The supply of time is truly a daily miracle, an affair genuinely astonishing when one examines it.
+
+66 quotes

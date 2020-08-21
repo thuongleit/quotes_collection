@@ -1,0 +1,67 @@
+ - Great heroes need great sorrows and burdens, or half their greatness goes unnoticed. It is all part of the fairy tale.
+ - Take me with you. For laughs, for luck, for the unknown. Take me with you.
+ - We are our own dragons and our own heroes. We must rescue ourselves from ourselves.
+ - Beyond the town, darker than dark, King Haggard’s castle teetered like a lunatic on stilts...
+ - I have been mortal, and some part of me is mortal yet. I am full of tears and hunger and the fear of death, although I cannot weep, and I want nothing, and I cannot die. I am not like the others now, for no unicorn was ever born who could regret, but I do. I regret.
+ - There are no happy endings, because nothing ends.
+ - Your name is a golden bell hung in my heart. I would break my body to pieces to call you once by your name.
+ - Heroes know that things must happen when it is time for them to happen. A quest may not simply be abandoned; unicorns may go unrescued for a long time, but not forever; a happy ending cannot come in the middle of the story.
+ - Real magic can never be made by offering someone else’s liver. You must tear out your own, and not expect to get it back.
+ - I am what I am. I would tell you what you want to know if I could, for you have been kind to me. But I am a cat, and no cat anywhere ever gave anyone a straight answer.
+ - The last unicorn lived in a lilac wood, and she lived all alone.
+ - Ah, love may be strong, but a habit is stronger, And I knew when I loved by the way I behaved.
+ - You pile of stones, you waste, you desolation, I’ll stuff you with misery till it comes out of your eyes. I’ll change your heart into green grass, and all you love into a sheep. I’ll turn you into a bad poet with dreams.
+ - But what I thought, and what I still think, and always will, is that she saw me. Nobody else has ever seen me – me, Jenny Gluckstein – like that. Not my parents, not Julian, not even Meena. Love is one thing – recognition is something else.
+ - Unicorns are immortal. It is their nature to live alone in one place: usually a forest where there is a pool clear enough for them to see themselves – for they are a little vain, knowing themselves to be the most beautiful.
+ - He had never missed God or the hope of heaven, but he had dearly wanted confession to rest his mind, Communion to let him touch something beyond Father Krone’s dry, shaky hand, and holy water to taste like starlight.
+ - I am infected with life and will die of it in time.
+ - How’s the Angel of Death supposed to do his job with clipped wings?
+ - Ravens bring things to people. We’re like that. It’s our nature. We don’t like it.
+ - It’s a rare man who is taken for what he truly is.
+ - We are not always what we seem, and hardly ever what we dream.
+ - Her voice left a flavor of honey and gunpowder on the air.
+ - I think love is stronger than habits or circumstances. I think it is possible to keep yourself for someone for a long time and still remember why you were waiting when she comes at last.
+ - Sparrows and cats will live in my shoe, Sooner than I will live with you. Fish will come walking out of the sea, Sooner than you will come back to me.
+ - The most professional curse ever snarled or croaked or thundered can have no effect on a pure heart.
+ - I fear it, for her sake. It would mean that she too is a wanderer now, and that is a fate for human beings, not for unicorns. But I hope, of course I hope.
+ - This creature is the Pooka. Pay no mind to the shape he wears, for he’s none of his own, and no soul either. Ware him ever, trust him never, but when the wind’s right he has his uses. Never forget that you will never know him. The Pooka’s mystery even to the Pooka.
+ - What is plucked will grow again, What is slain lives on, What is stolen will remain – What is gone is gone.
+ - A rhinoceros is as ugly as a human being, and it too is going to die, but at least it never thinks that it is beautiful.
+ - Who has choices need not choose. We must, who have none. We can love but what we lose – What is gone is gone.
+ - Whatever can die is beautiful – more beautiful than a unicorn, who lives forever, and who is the most beautiful creature in the world. Do you understand me?
+ - Don’t be afraid. Don’t be afraid of anything. Whatever you have been, you are mine now. I can hold you.
+ - The moon was gone, but to the magician’s eyes the unicorn was the moon, cold and white and very old, lighting his way to safety, or to madness.
+ - The magician stood erect, menacing the attackers with demons, metamorphoses, paralyzing ailments, and secret judo holds. Molly picked up a rock.
+ - My son, your ineptitude is so vast, your incompetence so profound, that I am certain you are inhabited by greater power than I have ever known.
+ - Wisdom is finding joy in bewilderment.
+ - Her face was a stranger’s face, which was as it should be. Love each other from the day we are born to the day we die, we are still strangers every minute, and nobody should forget that, even though we have to.
+ - You ever want to see real witchcraft, you watch people protecting their comfort, their beliefs.
+ - As for you and your heart and the things you said and didn’t say, she will remember them all when men are fairy tales in books written by rabbits.
+ - Walking by yourself in the rain is for college kids who think loneliness makes poets.
+ - I always say perseverance is nine-tenths of any art – not that it’s much help to be nine-tenths an artist, of course.
+ - Only to a magician is the world forever fluid, infinitely mutable and eternally new. Only he knows the secret of change, only he knows truly that all things are crouched in eagerness to become something else, and it is from this universal tension that he draws his power.
+ - The horns came riding in like the rainbow masts of silver ships.
+ - Men have to have heroes, but no man can ever be as big as the need, and so a legend grows around a grain of truth, like a pearl.
+ - The tune was wailing and mournful, almost flagrantly so, and the total effect was of a heartbroken piccolo being parted forever from its bagpipe lover.
+ - And what good is it to me that you’re here now? Where where you twenty years ago, ten years ago? How dare you, how dare you come to me now, when I am this?
+ - Ah. My story. Are you certain you wish to hear it? It is long, unlikely, and remarkably unedifying – shameful, even, to come from a minister’s lips. Blasphemous, too, properly regarded.
+ - You have to be very deep to be dead, he thought, and I’m not. He began to have some concept of forever, and his mind shivered as his body had when he had wakened in the cold nights and thrust his hands between his thighs to keep warm. It will be a long night, he thought.
+ - If a man loved me, I would have talked myself into loving him, and I would have loved him very deeply after a while.
+ - A Clock is not time; it’s numbers and springs. Pay it no mind.
+ - But I still feel I waste a lot of time leaning on my elbow and thinking to myself, ‘alright sucker, now what?’
+ - I feel a whole country growing inside me, thousands of years, millions of people, stupid, crazy, shrewd people, and all of them me. I never felt like that before, I never felt that there was anything inside me, even myself.
+ - Sitting up all night would be pointless if somebody you loved wasn’t sitting up with you, picking out music to play and helping you kill the bourbon. Walking by yourself in the rain is for college kids who think loneliness makes poets.
+ - There are honest people in the world, but only because the devil considers their asking prices ridiculous.
+ - The unicorn halted in her slow, desperate round of the cage, realizing for the first time that the magician understood her speech. He smiled, and she saw that his face was frighteningly young for a grown man-untraveled by time, unvisited by grief or wisdom. “I know you,” he said.
+ - We are raised to honor all the wrong explorers and discoverers thieves planting flags, murderers carrying crosses. Let us at last praise the colonizers of dreams.
+ - It’s really not so good to have time. Rush, scramble, desperation, this missed, that left behind, those others too big to fit into such a small space – that’s the way life was meant to be. You’re supposed to be too late for some things. Don’t worry about it.
+ - Love was generous precisely because it could never be immortal.
+ - They know these mornings well and love them desperately because they cannot last – these people who know that nothing lasts.
+ - I know how to live here, I know how everything smells, and tastes, and is. What could I ever search for in the world, except this again?
+ - He thought, or said, or sang, I did not know that I was so empty, to be so full.
+ - What use is magic if it can’t save a unicorn?
+ - Never run from anything immortal. It attracts their attention.
+ - When I was very young every grownup was a hero. It’s been all downhill since then, and I have only two left.
+ - What do men know? Because they have seen no unicorns for a while does not mean we have all vanished.
+
+65 quotes

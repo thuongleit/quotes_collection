@@ -1,0 +1,22 @@
+ - When you come to the edge of all that you know, you must believe one of two things: either there will be ground to stand on, or you will be given wings to fly.
+ - Love is patient. Love is kind. It bears all things. Love never fails. Love is as strong as death.
+ - If I have not love, I am Nothing.
+ - Whatever will happen will happen. You either face it as a coward or you face it as a hero.
+ - Hope burns eternal in the human heart.
+ - Life isn’t as magical here, and you’re not the only one who feels like you don’t belong, or that it’s better somewhere else. But there ARE things worth living for. And the best part is you never know what’s going to happen next.
+ - If you’re betwixt and between, trust the one with red hair.
+ - Where there is no respect for life, there you will find evil.
+ - For every pleasure, there must be a sacrifice.
+ - All my books reflect travel adventures of some kind, and all have a soul: a spiritual or mystical underpinning.
+ - We considered behaving, but it’s against our nature.
+ - When you write for children and young adults, you have much more affect and influence on them than when you write for adults. The books that get us through our childhood stay with us for life.
+ - Life is a journey through a foreign land.
+ - Where do we record the passing of wildlife? Who mourns the silent deaths of the small?
+ - Those who rise first are morally superior. It’s a universal law.
+ - You shouldn’t read so much, you’ll get a brain tumor.
+ - By that which you kill are you bound.
+ - You can’t really know what you are made of until you are tested.
+ - Im omnivorous in my tastes, fiction and non-fiction, always several books on the go, though Ill read a novel in a day or two.
+ - I was fortunate in that I attended university in Canada in the early 1970s when you could take a true liberal arts degree with no programmes, majors or minors.
+
+20 quotes

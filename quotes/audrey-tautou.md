@@ -1,0 +1,43 @@
+ - I understand that nobody understands me, but I can’t be someone I’m not.
+ - Charm is more valuable than beauty. You can resist beauty but you can’t resist charm.
+ - I like photography and writing and travel, so I have a lot of cerebral occupations. I am going to become a sailor and do a world tour on my yacht if I don’t get any more work.
+ - I don’t want to think my life as a career.
+ - I never want to do the same things twice. I like surprises.
+ - It might seem paradoxical given my profession, but I’m not someone who likes to be in the limelight.
+ - After each experience, you grow up, you get enriched with something, and you don’t know how you’re going to be in six months, you don’t know what you’re going to want, what you’re going to need.
+ - It was new to play a woman who plays with her sincerity, and who is a seductress, a manipulator and a liar! I was able to compose a character as opposed to being very natural, so it was very interesting for me. It was great to realise that I could be this kind of real woman!
+ - I would love to occasionally do English-speaking films, but the script is as important for me as the director.
+ - I’m not imagining me being the James Bond girl, because anyway I don’t have the good maturation.
+ - I understand that we cannot make other people happy when they are unhappy.
+ - I really like to discover a new culture, a new country, a new rhythm of living. I really, really like that. I think that’s the most enriching thing, for my nature, because I like the psychology of people.
+ - I believe in God, but I am not sure to trust Him so much.
+ - I like the light that comes off metal shutters at siesta time in the summer, having a break from driving in the shops at motorway services, the odour of petrol at petrol stations, rolling down little slopes. I hate it when you tread in a puddle and the water soaks your socks.
+ - It’s so easy and comfortable to lie to yourself. Success is to become who you are. I think Hollywood thinks in a totally different way. But I think that as a human being, and not only an actress, that’s really how you lead a successful life.
+ - What we wear is the shell of who we are.
+ - When I was a teenager, I thought nothing would ever happen to me because my childhood was so normal. I had this complex of normality.
+ - In France we have a law which doesn’t allow the press to publish a photo that you didn’t approve. It lets the paparazzi take the picture, but if they publish this picture, you have the choice to sue the newspaper. So me, I always sued them.
+ - I’ve received some English-speaking scripts, but I was not interested in them.
+ - When you decide to adapt some Russian novel, it’s like everyone knows about it but nobody has read it.
+ - I like actors who are themselves. I know in America you like actors who change their nose or wear a lot of wigs, and they like to take pretty girls and make them super ugly.
+ - A certain type of critic doesn’t really want French movies to be visual. They think movies started from books and they forgot this part of moviemaking, like Chaplin and Buster Keaton, which I didn’t forget.
+ - I’ve never really had a relationship with Hollywood. I’ve never had a desire to work there.
+ - I like movies that have strong personalities, and Michel Gondry is so creative that his films are always something special to watch.
+ - I can be maternal with my friends.
+ - I’m not inspired by any career because I don’t have any expectations.
+ - I’m not sure that it’s easy to find very interesting female characters in Hollywood movies.
+ - Usually, I read the script very often. I think that everything is hiding in the script.
+ - It’s difficult to feel that people are looking at you in the street. I don’t like the fuss.
+ - I think that when you create something or at least try to create something, you slither between excitement and pleasure and you understand this huge emotional frustration. You did one feat, then you go back one.
+ - I’ve never sent a Tweet. I think I have an account but I don’t know who runs it. I’ve never done one in my life.
+ - What I like about theatre is the responsibility you have with your character.
+ - I show through my movies that I can do something else. But I always play strong-minded characters. I think it’s maybe because I’m like that. I love being by myself.
+ - I love the fact that there’s an evolution in your understanding and the difference between the first time you play the role and last time you play the role – there’s an incredible arc and that’s wonderful.
+ - Even if I have only ten more years in front of me, it’s such an intensive life. I have the feeling that I have already lived three lives in three years.
+ - You have to have the essential pleasure of making a movie. It’s such a huge factor and adventure for a director because you really are the leader and the captain.
+ - I don’t want to think my life as a career. I’m interested in my work only because of the meaning I can make.
+ - I’m not ready to do any compromises for my work.
+ - I think that if you do an American movie it’s important to earn some money, but in a stupid way, to be respected.
+ - I’m very interested in people, in general.
+ - People in France are very intrusive when they recognize you. In New York, they are very polite, with quick words, so it’s great.
+
+41 quotes

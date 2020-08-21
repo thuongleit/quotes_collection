@@ -1,0 +1,21 @@
+ - Man has ruled this world as a stumbling demented child king, long enough. And as his empire crumbles, my precious black widow shall rise as his most fitting successor.
+ - A man who limits his interests limits his life.
+ - I sometimes feel that I’m impersonating the dark unconscious of the whole human race. I know this sounds sick, but I love it.
+ - I don’t play monsters. I play men besieged by fate and out for revenge.
+ - Be curious about life, and cautious with it!
+ - It’s as much fun to scare as to be scared.
+ - In art, religion, and politics the respect must be mutual, no matter how violent the disagreement.
+ - Well, what do you owe yourself? Do you dare take time out to listen to the grass grow, or can you even afford the expense of getting far enough away from life’s daily cacophony to hear it grow if you took the time?
+ - It’s just endless what you can learn from a single work of art. You can fill up the crevices of your life, the cracks of your life, the places where the mortar comes out and falls away-you can fill it up with the love of art.
+ - If I could prescribe a single rule for looking at a work of art it would be to enjoy it. If we’re honest with ourselves, we have to admit we enjoy our tears just as much as we enjoy our laughter. The only moments of life that are a bore are when we don’t care one way or another.
+ - No one but Gene Tierney could have played ‘Laura.’ There was no other actress around with her particular combination of beauty, breeding, and mystery.
+ - There comes a time in life when you know what you like and have to make up your mind to like what you know, or at least have begun to know. In other words, you must determine in what direction your knowledge is leading, thus far.
+ - We exponents of horror do much better than those Method actors. We make the unbelievable believable. More often than not, they make the believable unbelievable.
+ - Art is excitement which if we can’t create ourselves, we can at least, through love of it, make available to others.
+ - I trust people who are violent about art, as long as they aren’t closed-minded. But, unfortunately, most art blowhards are also art bigots.
+ - Someone called actors ‘sculptors in snow.’ Very apt. In the end, it’s all nothing.
+ - I know what I like – I like art – and I like what I know.
+ - What’s important about an actor is his acting, not his life.
+ - Do you ever rub your eyes and suddenly find you’re awake and not asleep, as you’d grown to suspect you were?
+
+19 quotes

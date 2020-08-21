@@ -1,0 +1,24 @@
+ - Nothing is as far away as one minute ago.
+ - A golf ball can stop in the fairway, rough, woods, bunker or lake. With five equally likely options, very few balls choose the fairway.
+ - Death is as casual and often as unexpected as birth. It is as difficult to define grief as joy. Each is finite. Each will fade.
+ - Archaeology is the peeping Tom of the sciences. It is the sandbox of men who care not where they are going; they merely want to know where everyone else has been.
+ - Books, I found, had the power to make time stand still, retreat or fly into the future.
+ - True love is night jasmine, a diamond in darkness, the heartbeat no cardiologist has ever heard. It is the most common of miracles, fashioned of fleecy clouds – a handful of stars tossed into the night sky.
+ - Autumn carries more gold in its pocket than all the other seasons.
+ - The future is an opaque mirror. Anyone who tries to look into it sees nothing but the dim outlines of an old and worried face.
+ - It is difficult to live in the present, ridiculous to live in the future, and impossible to live in the past. Nothing is as far away as one minute ago.
+ - What makes a good writer of history is a guy who is suspicious. Suspicion marks the real difference between the man who wants to write honest history and the one who’d rather write a good story.
+ - Nobody understands anyone 18, including those who are 18.
+ - Raising a child is very much like building a skyscraper. If the first few stories are slightly out of line. no one will notice. But when the building is 18 or 20 stories high, everyone will see that it tilts.
+ - It is impossible to read for pleasure from something to which you are both father and mother, born in such travail that the writer despises the thing that enslaved him.
+ - Gimme: an agreement between two losers who can’t putt.
+ - A good writer of history is a guy who is suspicious.
+ - A reporter meets interesting people. If he endures, he will get to know princes and presidents, popes and paupers, prostitutes and panderers. And always, in the back of his head, there will be a dozen men and women he will never meet. And always, he will feel the poorer for it.
+ - At 19, everything is possible and tomorrow looks friendly.
+ - To have courage, one must first be afraid. The deeper the fear, the more difficult the climb toward courage.
+ - I can look at my books with pleasure from a distance. Four feet is close enough.
+ - A newspaper is lumber made malleable. It is ink made into words and pictures. It is conceived, born, grows up and dies of old age in a day.
+ - Perhaps the best thing which can be said about newspapers in the United States is that they are in chronic disagreement with each other. That is what is meant by a free press.
+ - Mulligan: invented by an Irishman who wanted to hit one more twenty yard grounder.
+
+22 quotes

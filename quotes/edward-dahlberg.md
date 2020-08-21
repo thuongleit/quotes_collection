@@ -1,0 +1,57 @@
+ - Intellectual sodomy, which comes from the refusal to be simple about plain matters, is as gross and abundant today as sexual perversion and they are nowise different from one another.
+ - Hardly a book of human worth, be it heaven’s own secret, is honestly placed before the reader; it is either shunned, given a Periclean funeral oration in a hundred and fifty words, or interred in the potter’s field of the newspapers back pages.
+ - It takes a long time to understand nothing.
+ - When one realizes that his life is worthless he either commits suicide or travels.
+ - No people require maxims so much as the American. The reason is obvious: the country is so vast, the people always going somewhere, from Oregon apple valley to boreal New England, that we do not know whether to be temperate orchards or sterile climate.
+ - A strong foe is better than a weak friend.
+ - What has a writer to be bombastic about? Whatever good a man may write is the consequence of accident, luck, or surprise, and nobody is more surprised than an honest writer when he makes a good phrase or says something truthful.
+ - Every decision you make is a mistake.
+ - Man pines to live but cannot endure the days of his life.
+ - We are always talking about being together, and yet whatever we invent destroys the family, and makes us wild, touchless beasts feeding on technicolor prairies and rivers.
+ - Everything ultimately fails, for we die, and that is either the penultimate failure or our most enigmatical achievement.
+ - Utility is our national shibboleth: the savior of the American businessman is fact and his uterine half-brother, statistics.
+ - We are ruled by chance but never have enough patience to accept its despotism.
+ - One of the weaknesses in the cooperative is that it has never been sufficiently leavened by the imagination. This is a quick-silver faculty, and likely to be a cause of worry to any collective settlement.
+ - The newspaper has debauched the American until he is a slavish, simpering, and angerless citizen; it has taught him to be a lump mass-man toward fraud, simony, murder, and lunacies more vile than those of Commodus or Caracalla.
+ - There is a strange and mighty race of people called the Americans who are rapidly becoming the coldest in the world because of this cruel, man-eating idol, lucre.
+ - I would rather take hellebore than spend a conversation with a good, little man.
+ - To write is a humiliation.
+ - Those who write for lucre or fame are grosser than the cartel robbers, for they steal the genius of the people, which is its will to resist evil.
+ - Men are too unstable to be just; they are crabbed because they have not passed water at the usual time, or testy because they have not been stroked or praised.
+ - The ruin of the human heart is self-interest, which the American merchant calls self-service. We have become a self-service populace, and all our specious comforts -the automatic elevator, the escalator, the cafeteria -are depriving us of volition and moral and physical energy.
+ - A man who can be entertaining for a full day will be in his grave by night-fall.
+ - Of all the animals on earth, none is so brutish as man when he seeks the delirium of coition.
+ - There are men that are birds, and their raiment is trembling feathers, for they show their souls to everyone and everything that is ungentle or untutored or evil or mockery is as a rude stone cast at them, and they suffer all day long, or as Paul remarks they are slain every moment.
+ - Look at this poet William Carlos Williams: he is primitive and native, and his roots are in raw forest and violent places; he is word-sick and place-crazy. He admires strength, but for what? Violence! This is the cult of the frontier mind.
+ - The bad poet is a toady mimicking nature.
+ - Men are mad most of their lives; few live sane, fewer die so. The acts of people are baffling unless we realize that their wits are disordered. Man is driven to justice by his lunacy.
+ - It is hideous and coarse to assume that we can do something for others-and it is vile not to endeavor to do it.
+ - No country has suffered so much from the ruins of war while being at peace as the American.
+ - The earnings of a poet could be reckoned by a metaphysician rather than a bookkeeper.
+ - Genius, like truth, has a shabby and neglected mien.
+ - Recognize the cunning man not by the corpses he pays homage to but by the living writers he conspires against with the most shameful weapon, Silence, or the briefest review.
+ - Nothing in our times has become so unattractive as virtue.
+ - We cannot live, suffer or die for somebody else, for suffering is too precious to be shared.
+ - Man hoards himself when he has nothing to give away.
+ - So much of our lives is given over to the consideration of our imperfections that there is no time to improve our imaginary virtues. The truth is we only perfect our vices, and man is a worse creature when he dies than he was when he was born.
+ - Writing is conscience, scruple, and the farming of our ancestors.
+ - We can only write well about our sins because it is too difficult to recall a virtuous act or even whether it was the result of good or evil motives.
+ - Perhaps Samuel Johnson was a great man; he was certainly a drumbling one.
+ - Though man is the only beast that can write, he has small reason to be proud of it. When he utters something that is wise it is nothing that the river horse does not know, and most of his creations are the result of accident.
+ - Herman Melville was as separated from a civilized literature as the lost Atlantis was said to have been from the great peoples of the earth.
+ - I know sage, wormwood, and hyssop, but I can’t smell character unless it stinks.
+ - Man is at the nadir of his stregth when the Earth, the seas, the mountains are not in him, for without them his soul is unsourced, and he has no images by which to abide.
+ - We are a most solitary people, and we live, repelled by one another, in the gray, outcast cities of Cain.
+ - Ambition is a Dead Sea fruit, and the greatest peril to the soul is that one is likely to get precisely what he is seeking.
+ - What is most appalling in an F. Scott Fitzgerald book is that it is peopleless fiction: Fitzgerald writes about spectral, muscledsuits; dresses, hats, and sleeves which have some sort of vague, libidinous throb. These are plainly the product of sickness.
+ - Narcissus never wrote well nor was a friend.
+ - Who has enough credit in this world to pay for his mistakes?
+ - We are uneasy with an affectionate man, for we are positive he wants something of us, particularly our love.
+ - A painter can hang his pictures, but a writer can only hang himself.
+ - The machine has had a pernicious effect upon virtue, pity, and love, and young men used to machines which induce inertia, and fear, are near impotent.
+ - One cat in a house is a sign of loneliness.
+ - I have no confidence in a man whose faults you cannot see.
+ - The ancients understood the regulation of power better than the regulation of liberty.
+ - It is very perplexing how an intrepid frontier people, who fought a wilderness, floods, tornadoes, and the Rockies, cower before criticism, which is regarded as a malignant tumor in the imagination.
+
+55 quotes

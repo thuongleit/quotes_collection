@@ -1,0 +1,184 @@
+ - Journalism is literature in a hurry.
+ - If there ever comes a time when the women of the world come together purely and simply for the benefit of mankind, it will be a force such as the world has never known.
+ - Come to me in my dreams, and then By day I shall be well again. For then the night will more than pay The hopeless longing of the day.
+ - And each day brings it’s pretty dust, Our soon-choked souls to fll And we forget because we must, And not because we will.
+ - Sad Patience, too near neighbour to despair.
+ - Life is not having and getting, but being and becoming.
+ - Poetry is simply the most beautiful, impressive, and widely effective mode of saying things.
+ - Without poetry our science will appear incomplete, and most of what now passes with us for religion and philosophy will be replaced by poetry.
+ - Men of culture are the true apostles of equality.
+ - I am bound by my own definition of criticism : a disinterested endeavour to learn and propagate the best that is known and thought in the world.
+ - Most men eddy about Here and there-eat and drink, Chatter and love and hate, Gather and squander, are raised Aloft, are hurled in the dust, Striving blindly, achieving Nothing; and then they die- Perish;-and no one asks Who or what they have been.
+ - Art still has truth. Take refuge there.
+ - Nature, with equal mind, Sees all her sons at play, Sees man control the wind, The wind sweep man away.
+ - Religion – that voice of the deepest human experience.
+ - Our inequality materializes our upper class, vulgarizes our middle class, brutalizes our lower class.
+ - Wandering between two worlds, one dead, The other powerless to be born.
+ - We do not what we ought; What we ought not, we do; And lean upon the thought That chance will bring us through; But our own acts, for good or ill, are mightier powers.
+ - We cannot kindle when we will The fire which in the heart resides, The spirit bloweth and is still, In mystery our soul abides: But tasks in hours of insight will’d Can be through hours of gloom fulfill’d.
+ - Waiting for the spark from heaven to fall.
+ - For poetry the idea is everything; the rest is a world of illusion, of divine illusion. Poetry attaches its emotion to the idea; the idea is the fact. The strongest part of our religion today is its unconscious poetry.
+ - Change doth unknit the tranquil strength of men.
+ - Resolve to be thyself: and know that he who finds himself, loses his misery.
+ - Oxus, forgetting the bright speed he had In his high mountain cradle in Pamere, A foiled circuitous wanderertill at last The longed-for dash of waves is heard, and wide His luminous home of waters opens, bright And tranquil, from whose floor the new-bathed stars Emerge, and shine upon the Aral Sea.
+ - Conduct is three-fourths of our life and its largest concern.
+ - Miracles do not happen.
+ - Culture, the acquainting ourselves with the best that has been known and said in the world, and thus with the history of the human spirit.
+ - All the live murmur of a summer’s day.
+ - Truth sits upon the lips of dying men, And falsehood, while I lived, was far from mine.
+ - ForTime, not Corydon, hath conquered thee.
+ - Like driftwood spares which meet and pass Upon the boundless ocean-plain, So on the sea of life, alas! Man nears man, meets, and leaves again.
+ - The heart less bounding at emotion new, The hope, once crushed, less quick to spring again.
+ - O born in days when wits were fresh and clear, And life ran gaily as the sparkling Thames; Before this strange disease of modern life, With its sick hurry, its divided aims, Its heads o’ertax’d, its palsied hearts, was rife.
+ - I am a Liberal, yet I am a Liberal tempered by experience, reflexion, and renouncement, and I am, above all, a believer in culture.
+ - Have something to say, and say it as clearly as you can. That is the only secret.
+ - The sea of faith Was once, too, at the full, and round earth’s shore Lay like the folds of a bright girdle furled. But now I only hear Its melancholy, long, withdrawing roar, Retreating, to the breath Of the night-wind, down the vast edges drear And naked shingles of the world.
+ - Who hesitate and falter life away, and lose tomorrow the ground won today.
+ - The kings of modern thought are dumb.
+ - At the present moment two things about the Christian religion must surely be clear to anybody with eyes in his head. One is, that men cannot do without it; the other, that they cannot do with it as it is.
+ - One thing only has been lent to youth and age in common – discontent.
+ - And see all sights from pole to pole, And glance, and nod, and hustle by; And never once possess our soul Before we die.
+ - However, if I shall live to be eighty I shall probably be the only person left in England who reads anything but newspapers and scientific publications.
+ - Six years-six little years-six drops of time.
+ - He spoke, and loos’d our heart in tears. He laid us as we lay at birth On the cool flowery lap of earth.
+ - Poetry; a criticism of life under the conditions fixed for such a criticism by the laws of poetic truth and poetic beauty.
+ - Calm soul of all things! make it mine To feel, amid the city’s jar, That there abides a peace of thine, Man did not make, and cannot mar! The will to neither strive nor cry, The power to feel what others give! Calm, calm me more! nor let me die Before I have begun to live.
+ - Sand-strewn caverns, cool and deep, Where the winds are all asleep; Where the spent lights quiver and gleam; Where the salt weed sways in the stream.
+ - The governing idea of Hellenism is spontaneity of consciousness ; that of Hebraism, strictness of conscience .
+ - For the creation of a masterwork of literature two powers must concur, the power of the man and the power of the moment, and the man is not enough without the moment.
+ - Others abide our question. Thou art free. We ask and ask. Thou smilest and art still, Out-topping knowledge.
+ - Yes! in the sea of life enisled, With echoing straits between us thrown, Dotting the shoreless watery wild, We mortal millions live alone.
+ - To hear the world applaud the hollow ghost Which blamed the living man.
+ - Culture being a pursuit of our total perfection by means of getting to know, on all the matters which most concern us, the best which has been thought and said in the world.
+ - Strew on her roses, roses, And never a spray of yew! In quiet she reposes; Ah, would that I did too!
+ - Genius is mainly an affair of energy, and poetry is mainly an affair of genius; therefore a nation whose spirit is characterized by energy may well be imminent in poetry – and we have Shakespeare.
+ - All this I bear, for, what I seek, I know: Peace, peace is what I seek, and public calm: Endless extinction of unhappy hates.
+ - Cutlure looks beyond machinery, culture hates hatred; culture has one great passion, – the passion for sweetness and light.
+ - But there remains the question: what righteousness really is. The method and secret and sweet reasonableness of Jesus.
+ - Goethe in Weimar sleeps, and Greece, Long since, saw Byron ’s struggle cease.
+ - Time, so complain’d of, Who to no one man Shows partiality, Brings round to all men Some undimm’d hours.
+ - Coleridge: poet and philosopher wrecked in a mist of opium.
+ - Saw life steadily and saw it whole.
+ - History – a vast Mississippi of falsehoods.
+ - The true meaning of religion is thus not simply morality, but morality touched by emotion.
+ - Coldly, sadly descends The autumn evening. The Field Strewn with its dank yellow drifts Of wither’d leaves, and the elms, Fade into dimness apace, Silent; hardly a shout From a few boys late at their play!
+ - Greatness is a spiritual condition worthy to excite love, interest, and admiration; and the outward proof of possessing greatness is that we excite love, interest, and admiration.
+ - Now the great winds shoreward blow Now the salt tides seaward flow Now the wild white horses play Champ and chafe and toss in the spray.
+ - Weary of myself, and sick of asking What I am, and what I ought to be, At this vessel’s prow I stand, which bears me Forwards, forwards, o’er the starlit sea.
+ - Creep into thy narrow bed, Creep, and let no more be said!
+ - Our society distributes itself into Barbarians, Philistines and Populace; and America is just ourselves with the Barbarians quite left out, and the Populace nearly.
+ - Most men in a brazen prison live, Where, in the sun’s hot eye, With heads bent o’er their toil, they languidly Their lives to some unmeaning taskwork give, Dreaming of nought beyond their prison-wall.
+ - Ah! two desires toss about The poet’s feverish blood; One drives him to the world without, And one to solitude.
+ - I keep saying, Shakespeare, Shakespeare, you are as obscure as life is.
+ - For eager teachers seized my youth, pruned my faith and trimmed my fire. Showed me the high, white star of truth, there bade me gaze and there aspire.
+ - The world hath failed to impart the joy our youth forebodes; failed to fill up the void which in our breasts we bear.
+ - If one were searching for the best means to efface and kill in a whole nation the discipline of self-respect, the feeling for what is elevated, he could do no better than take the American newspapers.
+ - What really dissatisfies in American civilisation is the want of the interesting, a want due chiefly to the want of those two great elements of the interesting, which are elevation and beauty.
+ - Alas! is even love too weak To unlock the heart, and let it speak?
+ - All knowledge is interesting to a wise man, and the knowledge of nature is interesting to all men.
+ - Nature herself seems, I say, to take the pen out of his hand, and to write for him with her own bare, sheer, penetrating power.
+ - Force and right are the governors of this world; force till right is ready.
+ - Time may restore us in his course Goethe’s sage mind and Byron’s force: But where will Europe’s latter hour Again find Wordsworth’s healing power?
+ - The same heart beats in every human breast.
+ - Where great whales come sailing by, Sail and sail, with unshut eye, Round the world for ever and aye.
+ - Life is the application of noble and profound ideas to life.
+ - I knew the mass of men conceal’d Their thoughts, for fear that if reveal’d They would by other men be met With blank indifference.
+ - He will find one English book and one only, where, as in the “Iliad” itself, perfect plainness of speech is allied with perfect nobleness; and that book is the Bible.
+ - France, famed in all great arts, in none supreme.
+ - Philistine must have originally meant, in the mind of those who invented the nickname, a strong, dogged, unenlightened opponent of the chosen people, of the children of the light.
+ - The grand stye arises in poetry, when a noble nature, poetically gifted, treats with simplicity or with severity a serious subject.
+ - The best poetry will be found to have a power of forming, sustaining, and delighting us, as nothing else can.
+ - Fate gave, what Chance shall not control, His sad lucidity of soul.
+ - What shelter to grow ripe is ours? What leisure to grow wise?
+ - English civilization the humanizing, the bringing into one harmonious and truly humane life, of the whole body of English society that is what interests me.
+ - Nature’s great law, and the law of all men’s minds? To its own impulse every creature stirs: Live by thy light, and Earth will live by hers.
+ - Culture is both an intellectual phenomenon and a moral one.
+ - Physician of the Iron Age, Goethe has done his pilgrimage. He took the suffering human race, He read each wound, each weakness clear – And struck his finger on the place, And said – Thou ailest here, and here.
+ - And amongst us one, Who most has suffer’d, takes dejectedly His seat upon the intellectual throne.
+ - The eternal not ourselves that makes for righteousness.
+ - Indeed there can be no more useful help for discovering what poetry belongs to the class of the truly excellent, and can therefore do us most good, than to have always in one’s mind lines and expressions of the great masters, and to apply them as a touchstone to other poetry.
+ - Below the surface stream, shallow and light, Of what we say and feel below the stream, As light, of what we think we feel, there flows With noiseless current, strong, obscure and deep, The central stream of what we feel indeed.
+ - Sanity – that is the great virtue of the ancient literature; the want of that is the great defect of the modern, in spite of its variety and power.
+ - Children of men! the unseen Power, whose eye Forever doth accompany mankind, Hath look’d on no religion scornfully That men did ever find.
+ - The brave, impetuous heart yields everywhere to the subtle, contriving head.
+ - Religion is ethics heightened, enkindled, lit up by feeling.
+ - Use your gifts faithfully, and they shall be enlarged; practice what you know, and you shall attain to higher knowledge.
+ - The working-class is now issuing from its hiding-place to assert an Englishman’s heaven-born privilege of doing as he likes, and is beginning to perplex us by marching where it likes, meeting where it likes, bawling what it likes, breaking what it likes.
+ - To thee only God granted A heart ever new: To all always open; To all always true.
+ - For science, God is simply the stream of tendency by which all things seek to fulfill the law of their being.
+ - The bloom is gone, and with the bloom go I.
+ - And thou, who didst the stars and sunbeams know, Self-school’d, self-scann’d, self-honour’d, self-secure, Didst tread on earth unguess’d at. Better so! All pains the immortal spirit must endure, All weakness which impairs, all griefs which bow, Find their sole speech in that victorious brow.
+ - The power of the Latin classic is in character, that of the Greek is in beauty. Now character is capable of being taught, learnt, and assimilated: beauty hardly.
+ - For poetry the idea is everything; the rest is a world of illusion.
+ - The love of science, and the energy and honesty in the pursuit of science, in the best of the Aryan races do seem to correspond in a remarkable way to the love of conduct, and the energy and honesty in the pursuit of conduct, in the best of the Semitic.
+ - How many minds – almost all the great ones – were formed in secrecy and solitude!
+ - Calm’s not life’s crown, though calm is well.
+ - Not a having and a resting, but a growing and a becoming, is the character of perfection as culture conceives it.
+ - Unquiet souls. In the dark fermentation of earth, in the never idle workshop of nature, in the eternal movement, yea shall find yourselves again.
+ - Weep bitterly over the dead, for he is worthy, and then comfort thyself; drive heaviness away: thou shall not do him good, but hurt thyself.
+ - Is it so small a thing To have enjoyed the sun...
+ - Good poetry does undoubtedly tend to form the soul and character; it tends to beget a love of beauty and of truth in alliance together, it suggests, however indirectly, high and noble principles of action, and it inspires the emotion so helpful in making principles operative.
+ - I do not believe today everything I believed yesterday I wonder will I believe tomorrow everything I believe today.
+ - Too quick despairer, wherefore wilt thou go? Soon will the high Midsummer pomps come on, Soon will the musk carnations break and swell.
+ - Once read thy own breast right, And thou hast done with fears.
+ - Home of lost causes, and forsaken beliefs, and unpopular names, and impossible loyalties!
+ - We, peopling the void air, Make Gods to whom to impute The ills we ought to bear; With God and Fate to rail at, suffering easily.
+ - Not deep the poet sees, but wide.
+ - For this is the true strength of guilty kings, When they corrupt the souls of those they rule.
+ - Ah love, let us be true to one another, which seems to lie before us like a land of dreams; so various, so beautiful, so new, hath really neither joy nor love nor life.
+ - The strongest part of a religion today is its unconscious poetry.
+ - It is a very great thing to be able to think as you like; but, after all, an important question remains: what you think.
+ - Whoever sets himself to see things as they are will find himself one of a very small circle but it is only by this small circle resolutely doing its own work that adequate ideas will ever get current at all.
+ - Morality represents for everybody a thoroughly definite and ascertained idea: the idea of human conduct regulated in a certain manner.
+ - Philistinism! – We have not the expression in English. Perhaps we have not the word because we have so much of the thing.
+ - Nothing could moderate, in the bosom of the great English middle class, their passionate, absorbing, almost blood-thirsty clinging to life.
+ - The discipline of the Old Testament may be summed up as a discipline teaching us to abhor and flee from sin; the discipline of the New Testament, as a discipline teaching us to die to it.
+ - Everything in our political life tends to hide from us that there is anything wiser than our ordinary selves.
+ - To have the sense of creative activity is the great happiness and the great proof of being alive.
+ - The sophist sneers: Fool, take Thy pleasure, right or wrong! The pious wail: Forsake A world these sophists throng! Be neither saint nor sophist-led, but be a man.
+ - Come, dear children, let us away; Down and away below!
+ - Say, has some wet bird-haunted English lawn Lent it the music of its trees at dawn?
+ - Was Christ a man like us?-Ah! let us try If we then, too, can be such men as he!
+ - Miracles are doomed; they will drop out like fairies and witchcraft, from...
+ - To the Bible men will return; and why? Because they cannot do without it.
+ - Greatness is a spiritual condition.
+ - The bent of our time is towards science, towards knowing things as they are...
+ - The need of expansion is as genuine an instinct in man as the need in a plant for the light, or the need in man himself for going upright. The love of liberty is simply the instinct in man for expansion.
+ - Still bent to make some port he knows not where, still standing for some false impossible shore.
+ - The difference between genuine poetry and the poetry of Dryden, Pope, and all their school, is briefly this: their poetry is conceived and composed in their wits, genuine poetry is conceived and composed in the soul.
+ - Know, man hath all which Nature hath, but more, And in that more lie all his hopes of good.
+ - Truth illuminates and gives joy; and it is by the bond of joy, not of pleasure, that men’s spirits are indissolubly held.
+ - The sea is calm tonight. The tide is full, the moon lies fair Upon the straits;- on the French coast the light Gleams and is gone; the cliffs of England stand, glimmering and vast, out in the tranquil bay.
+ - All the biblical miracles will at last disappear with the progress of science.
+ - Man errs not that he deems His welfare his true aim, He errs because he dreams The world does but exist that welfare to bestow.
+ - Dreams dawn and fly: friends smile and die, Like spring flowers. Our vaunted life is one long funeral. Men dig graves, with bitter tears, For their dead hopes; and all, Mazed with doubts, and sick with fears, Count the hours.
+ - Genius is mainly an affair of energy.
+ - We must hold fast to the austere but true doctrine as to what really governs politics and saves or destroys states. Having in mind things true, things elevated, things just, things pure, things amiable, things of good report; having these in mind, studying and loving these, is what saves states.
+ - Because thou must not dream, thou need not despair.
+ - The will is free; Strong is the soul, and wise, and beautiful; The seeds of godlike power are in us still; Gods are we, bards, saints, heroes, if we will!
+ - Grey time-worn marbles Hold the pure Muses. In their cool gallery, By yellow Tiber, They still look fair.
+ - Be neither saint nor sophist-led, but be a man.
+ - The “hairy quadruped furnished with a tail and, pointed ears, probably arboreal in his habits,” this good fellow carried hidden in his nature, apparently, something destined to develop into a necessity for humane letters.
+ - A wanderer is man from his birth. He was born in a ship On the breast of the river of Time.
+ - What is it to grow old? Is it to lose the glory of the form, The lustre of the eye? Is it for Beauty to forego her wreath? Yes; but not this alone.
+ - O strong soul, by what shore Tarriest thou now? For that force, Surely, has not been left vain!
+ - Culture is properly described as the love of perfection; it is a study of perfection.
+ - Culture, then, is a study of perfection, and perfection which insists on becoming something rather than in having something, in an inward condition of the mind and spirit, not in an outward set of circumstances.
+ - Nations are not truly great solely because the individuals composing them are numerous, free, and active; but they are great when these numbers, this freedom, and this activity are employed in the service of an ideal higher than that of an ordinary man taken by himself.
+ - Business could not make dull, nor passion wild; Who saw life steadily, and saw it whole.
+ - That which in England we call the middle class is in America virtually the nation.
+ - If an historian be an unbeliever in all heroism, if he be a man who brings every thing down to the level of a common mediocrity, depend upon it, the truth is not found in such a writer.
+ - Protestantism has the method of Jesus with His secret too much left out of mind; Catholicism has His secret with His method too much left out of mind; neither has His unerring balance, His intuition, His sweet reasonableness. But both have hold of a great truth, and get from it a great power.
+ - It is almost impossible to exaggerate the proneness of the human mind to take miracles as evidence, and to seek for miracles as evidence.
+ - Hither and thither spins The wind-borne mirroring soul, A thousand glimpses wins, And never sees a whole.
+ - But so many books thou readest, But so many schemes thou breedest, But so many wishes feedest, That thy poor head almost turns.
+ - Mind is a light which the Gods mock us with, To lead those false who trust it.
+ - If Paris that brief flight allow, My humble tomb explore! It bears: Eternity, be thou My refuge! and no more.
+ - One must, I think, be struck more and more the longer one lives, to find how much in our present society a man’s life of each day depends for its solidity and value upon whether he reads during that day, and far more still on what he reads during it.
+ - One has often wondered whether upon the whole earth there is anything so unintelligent, so unapt to perceive how the world is really going, as an ordinary young Englishman of our upper class.
+ - But thou, my son, study to make prevail One colour in thy life, the hue of truth.
+ - And long we try in vain to speak and act Our hidden self, and what we say and do Is eloquent, is well – but ’tis not true!
+ - On the breast of that huge Mississippi of falsehood called History, a foam-bell more or less is no consequence.
+ - No, no! The energy of life may be Kept on after the grave, but not begun; And he who flagg’d not in the earthly strife, From strength to strength advancing – only he His soul well-knit, and all his battles won, Mounts, and that hardly, to eternal life.
+
+182 quotes

@@ -1,0 +1,78 @@
+ - The family – that dear octopus from whose tentacles we never quite escape, nor, in our inmost hearts, ever quite wish to.
+ - Perhaps watching someone you love suffer can teach you even more than suffering yourself can.
+ - Truthfulness so often goes with ruthlessness.
+ - What is it about the English countryside – why is the beauty so much more than visual? Why does it touch one so?
+ - Why is summer mist romantic and autumn mist just sad?
+ - I am a restlessness inside a stillness inside a restlessness.
+ - Contemplation seems to be about the only luxury that costs nothing.
+ - When I read a book, I put in all the imagination I can, so that it is almost like writing the book as well as reading it – or rather, it is like living it. It makes reading so much more exciting, but I don’t suppose many people try to do it.
+ - Noble deeds and hot baths are the best cures for depression.
+ - It is rather exciting to write by moonlight.
+ - My hand is very tired but I want to go on writing. I keep resting and thinking. All day I have been two people – the me imprisoned in yesterday and the me out here on the mound; and now there is a third me trying to get in – the me in what is going to happen next.
+ - And who says you always have to understand things? You can like them without understanding them – like ’em better sometimes.
+ - If you love people, you take them on trust.
+ - Ah, but you’re the insidious type – Jane Eyre with of touch of Becky Sharp. A thoroughly dangerous girl.
+ - I have found that sitting in a place where you have never sat before can be inspiring.
+ - How I wish I lived in a Jane Austen novel!
+ - Only the margin left to write on now. I love you, I love you, I love you.
+ - I write this sitting in the kitchen sink.
+ - It came to me that Hyde Park has never belonged to London – that it has always been, in spirit, a stretch of countryside; and that it links the Londons of all periods together most magically – by remaining forever unchanged at the heart of a ever-changing town.
+ - So many of the loveliest things in England are melancholy.
+ - Stew’s so comforting on a rainy day.
+ - I like seeing people when they can’t see me.
+ - I suppose the best kind of spring morning is the best weather God has to offer.
+ - Like many other much-loved humans, they believed that they owned their dogs, instead of realizing that their dogs owned them.
+ - I could hear rain still pouring from the gutters and a thin branch scraping against one of the windows; but the church seemed completely cut off from the restless day outside – just as I felt cut off from the church. I thought: I am a restlessness inside a stillness inside a restlessness.
+ - Just to be in love seemed the most blissful luxury I had ever known. The thought came to me that perhaps it is the loving that counts, not the being loved in return – that perhaps true loving can never know anything but happiness. For a moment I felt that I had discovered a great truth.
+ - Even a broken heart doesn’t warrant a waste of good paper.
+ - I found it quite easy to carry on a casual conversation it was as if my real feelings were down fathoms deep in my mind and what we said was just a feathery surface spray.
+ - Cruel blows of fate call for extreme kindness in the family circle.
+ - Death is too much to ask of the living.
+ - I was wandering around as usual, in my unpleasantly populated sub-conscious...
+ - Oh, comfortable cocoa!
+ - Perhaps what you call conventionality, I call decency.
+ - I shouldn’t think even millionaires could eat anything nicer than new bread and real butter and honey for tea.
+ - Walking down Belmotte was the oddest sensation – every step took us deeper into the mist until at last it closed over our heads. It was like being drowned in the ghost of water.
+ - Perhaps if I make myself write I shall find out what is wrong with me.
+ - Wakings are the worst times – almost before my eyes are open a great weight seems to roll on my heart.
+ - Certain unique books seem to be without forerunners or successors as far as their authors are concerned. Even though they may profoundly influence the work of other writers, for their creator they’re complete, not leading anywhere.
+ - Ham with mustard is a meal of glory.
+ - Thinking of death – strange, beautiful, terrible and a long way off – made me feel happier than ever.
+ - There was a wonderful atmosphere of gentle age, a smell of flowers and beeswax, sweet yet faintly sour and musty; a smell that makes you feel very tender towards the past.
+ - Time takes the ugliness and horror out of death and turns it into beauty.
+ - The one Bach piece I learnt made me feel I was being repeatedly hit on the head with a teaspoon.
+ - What a tiny list of friends I have! All my fault. I less and less want to see people.
+ - Was I the only woman in the world who, at my age – and after a lifetime of quite rampant independence – still did not quite feel grown up?
+ - Still, looking through the old volumes was soothing, because thinking of the past made the present seem a little less real.
+ - It’s a beautiful sight to see good dancers doing simple steps. It’s a painful sight to see beginners doing complicated patterns.
+ - Oh, wise young judge.
+ - I could marry the Devil himself if he had some money.
+ - Oh, it is wonderful to wake up in the morning with things to look forward to!
+ - And at last father flung the rug off as if it were hampering him and strode over to the table saying, ‘cocoa, cocoa!’ – it might have been the most magnificent drink in the world; which, personally, I think it is.
+ - And no bathroom on earth will make up for marrying a bearded man you hate.
+ - I know all about the facts of life, and I don’t think much of them.
+ - I wanted so terribly to be good to him.
+ - Well, my paper has asked me to do a series: Lives of the Great Musicians, reading time 2 minutes.
+ - I’m convinced England’s overflowing with eccentric people, places, happenings. Indeed, you might say eccentricity’s normal in England.
+ - How can a young man like to wear a beard?
+ - I have really sinned. I am going to pause now, and sit here on the mound repenting in deepest shame...
+ - I wonder if there isn’t a catch about having plenty of money? Does it eventually take the pleasure out of things?
+ - People’s clothes ought to be buried with them.
+ - The tea was a comfort – and by that time I more than needed comfort.
+ - Everything in the least connected with him has value for me; if someone even mentions his name it is like a little present to me-and I long to mention it myself.
+ - When things mean a very great deal to you, exciting anticipation just isn’t safe.
+ - I should rather like to tear these last pages out of the book. Shall I? No-a journal ought not to cheat.
+ - I only want to write. And there’s no college for that except life.
+ - Perhaps it would really be rather dull to be married and settled for life. Liar! It would be heaven.
+ - The Devil’s out of fashion.
+ - Rose doesn’t like the flat country, but I always did – flat country seems to give the sky such a chance.
+ - Topaz was wonderfully patient – but sometimes I wonder if it is not only patience, but also a faint resemblance to cows.
+ - Only half a page left now. Shall I fill it with ‘I love you, I love you’ – like father’s page of cats on the mat? No. Even a broken heart doesn’t warrant a waste of good paper.
+ - I have noticed that rooms which are extra clean feel extra cold.
+ - I believe it is customary to get one’s washing over first in baths and bask afterwards; personally, I bask first. I have discovered that the first few minutes are the best and not to be wasted – my brain always seethes with ideas and life suddenly looks much better than did.
+ - It’s odd how different a house feels when one is alone in it. It makes it easier to think rather private thoughts...
+ - But some characters in books are really real – Jane Austen’s are; and I know those five Bennets at the opening of Pride and Prejudice, simply waiting to raven the young men at Netherfield Park, are not giving one thought to the real facts of marriage.
+ - Prayer’s a very tricky business.
+ - Americans do seem to say things which make the English notice England.
+
+76 quotes

@@ -1,0 +1,33 @@
+ - I think anything is possible if you have the mindset and the will and desire to do it and put the time in.
+ - I don’t want to speak to two empty chairs.
+ - When I get too much rest, I’m usually erotic.
+ - The student body was huge at UT and you had to mature pretty quick, very quick actually. I enjoyed it and it helped me a lot in my life in general – not only in the classroom but on the baseball field as well.
+ - Everybody kind of perceives me as being angry. It’s not anger, it’s motivation.
+ - If someone met me on a game day, he wouldn’t like me. The days in between, I’m the goodest guy you can find.
+ - Going to Omaha for the College World Series – the people there are tremendous – huge crowds and a lot of excitement. I still remember those days – you make a lot of friends that you never forget when you win a championship like that.
+ - The tradition you have at the University of Texas is like no other. It helped me in the future where I got to play in 2 cities that were rich in tradition.
+ - The reality is that my stepfather was like a father to me and watching him die from a sudden heart attack was one of the hardest things I have ever gone through.
+ - Some of my finest memories are from my time at the University of Texas. College baseball, I love it.
+ - I’d be cheating everyone here, the staff and rest of my teammates, if I wasn’t able to stay on top of my work. It was almost like therapy, to come back and get in an environment I’m comfortable with.
+ - He hit the ball so hard, I couldn’t even turn around in time to see it go over the fence.
+ - I was pitching on all adrenaline and challenging them. I was throwing the ball right down the heart of the plate.
+ - I’ve been very fortunate. I feel very thankful. I’ve been able to come home and do some fun things and make it exciting for people here at home.
+ - My only day off is the day I pitch.
+ - But I’m not looking forward to trying to strike out a lot of guys.
+ - It was an exciting time for me personally because the number of times I’ve been to the playoffs, that was the opportunity to obtain the first ring. That was special, that’s for sure.
+ - If you’re going to cook a fresh chicken, it’s not a big concern. But if you’re going to ship a chicken, there’s a change in structure.
+ - When you have a chance to take the ball for the world champs, you take the ball.
+ - Every time I toe the rubber, it’s no different for me than it was in the World Series.
+ - Even though I play a professional sport now, I love college baseball.
+ - If I get two strikes, I’ll go to a pitch maybe that will help induce that a little bit.
+ - My main concern is when it’s 2-0, I’ve got to keep it at 2-0. It gives us a little more of a chance. To give up four more runs, that isn’t going to get it done. I don’t care who you’re facing or who you’re playing, it’s not going to get it done.
+ - The soreness I have is expected. I have total movement.
+ - I wish there was a bar I could send opposing teams to and get them hammered or something – I could tell my buddies in New York to leave their places open or something. Playing for the Yankees, guys come at you extremely hard. I have to be ready or I’ll be embarrassed.
+ - When I look back at the tapes, your first everything, your first All-Star Game, your first playoff experience, it just seems like it went by really fast.
+ - I don’t bat an eye at stuff like that. I’ve had my share of wins. If I worried about the games I should have won, it would probably drive me crazy. It was a fun game to pitch in.
+ - I love to work with the younger kids who are trying to live out their dreams, if in fact that’s what they plan on doing after college to take the next step. A very select few have that opportunity so when you do have the opportunity you know, those guys take advantage of it.
+ - I had to will my way through that game. Sometimes, it takes more than talent or more than a 95-mile-an-hour fastball. You have to will it.
+ - You know in 1982, the year we came in tied for 3rd, we probably had a better team – I mean as far as talent. When we came back the following year and won it, our pitching staff was a little more experienced and it was such a thrill.
+ - That’s when I use the word frustrating, when your body breaks down or your body doesn’t do the things I’m asking it to do at my age, because I’m trying to keep up with the Joneses.
+
+31 quotes

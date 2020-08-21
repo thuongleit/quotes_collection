@@ -1,0 +1,65 @@
+ - You only live once. Life is a show.
+ - Out of ugly, make something beautiful.
+ - We are each an army of one. March forward with your army, never let go of your future and never listen to idiots who tell you ‘no.’
+ - To me, skating should look effortless even when you’re doing the hardest of elements.
+ - Nobody gets lucky all the time. Nobody can win all the time. Nobody’s a robot. Nobody’s perfect.
+ - I suppose being fierce is a very good thing, and a very cool thing. But more than fierce, I think I’m a strong person and a strong individual. And that’s what I take with me every day.
+ - To me, figure skating is an art form, and that’s what I always try to bring in, even to my competitive programs.
+ - I’m different, and I have to be a warrior to be that way. But I have had some success; I hope I have touched the lives of some wonderful people, all by being what I see as myself but some others people see as different.
+ - Nothing shocks me anymore. I’ve embraced men in thongs, I’ve embraced women with padded bras. I mean, I can embrace Larry King saying ‘fierce.’
+ - Finding someone to share your life with is one of the most important things a human can do and was preached to me by my mother.
+ - I’m going to skate exactly the way I want to, create programs that I like, and everything will fall into place where it is supposed to.
+ - I have always thought that being a good American is appreciating the world, not just your own country.
+ - Despite the usual idea of a figure skater, I have no rhythm when it comes to even walking off the ice. I fall off curbs all the time.
+ - It’s really grinding to always play out of both sides of your mind and always be thinking what will offend people. Or what won’t. But I’m strong enough to deal with that. I own that I’m freakish in my way.
+ - Figure skating is theatrical. It’s artistic. It’s elegant. It’s extremely athletic. And there’s a very specific audience for that.
+ - If just one person, one child who is made to feel isolated, looks at me and sees that it is okay to be your own person and walk down your own path, then everything I have ever gone through will be worth it.
+ - I definitely feel like I’m more of an artist than an athlete. But I’m good at both.
+ - It’s easier for me to go to Russia and train with top coaches and choreographers there than go to Colorado Springs and train with 14 of my competitors.
+ - I showed myself a lesser version of myself that night, and I’m glad I learned from it.
+ - Creating emotion was what my career was all about. I wanted people to laugh at me; I wanted people to cry with me. I wanted people to feel good or to think about something when they watched me. I think that’s why, even not being an Olympic champion, I have such a huge following around the world.
+ - When you are an athlete, it’s difficult to take time off and say you want to come back without everyone judging you and attacking you.
+ - I think being in the public eye can only help me launch into the world of fashion.
+ - There are some things I keep sacred. My middle name. Who I sleep with. And what kind of hand moisturizer I use.
+ - My family, the support of my friends, the amount of people that have written and come up to me on the street and said, ‘Thank you for representing us,’ and Adam Lambert, and Lady Gaga, that’s been amazing.
+ - Figure skating is theatrical, and a part of it is wearing costumes. My costumes were very over-the-top and outrageous for figure skating. But for me, it’s all beautiful. Even when nobody else believed they were beautiful, I felt beautiful in them.
+ - The booing and the drama help make the Olympics interesting, but at what cost? When will people finally get tired of it and start watching the X-Games or competitive tire rolling instead?
+ - Some people eat, some people drink, some people smoke. I Pledge.
+ - I’m going to be a happy housewife. I’m going to be washing boxers and cooking and doing all those sorts of housewife duties. I just want to be happy and proud of every single day.
+ - In figure skating, your body can only last for so long. I can’t be 50 and trying to skate but I can be 50 and be in fashion, so I have to look to my future and what I want to achieve.
+ - I will be 60 or 70 years old still rocking my Chanel blazer with my hair all coiffed.
+ - Figure skating is a bit dated – it’s like that tweed jacket you pull out of the back of your closet from time to time, and I’m going to try to Chanel it up a little bit.
+ - I don’t want to spend my life on an ice cube.
+ - I’m not commercial, I’m not for Special K cereal and I’m not a Wheaties boy; I’m a little bit more avant-garde, a little bit more out there.
+ - I’m a tough person. I wasn’t afraid of other kids because I understood that someday they’d wash my car.
+ - I’ve held onto Ugg boots. I will never graduate to Crocs, but Ugg boots are always and forever. That’s my fashion stepchild.
+ - I played soccer, and I was the kid who ran the wrong way, or I was pretending to be some sort of zebra and I would flail my arms and kick up my legs.
+ - I grew my beard out a little bit just to show that, indeed, I am a man.
+ - In spite of all the skills that I do have, to relate to the normal world I have no applicable skills. I can speak Russian, I can speak French. I know about Chanel. Especially vintage Chanel. I know what Halston is. All of these things, but they can’t really be applied to a nine-to-five.
+ - Anytime you get men in glitter, it’s a flamboyant occasion!
+ - I have a whole fur closet. I’m not afraid of PETA.
+ - The gymnastic events are really what I tune into the Summer Olympics for.
+ - I love the Olympic Games. The Olympics are an event that few can fathom but all can enjoy, and that’s why athletes work our whole lives to put on the greatest show on Earth.
+ - I drink Vitamin Water nonstop – I should have an IV.
+ - I’m a huge fur fan; it’s no secret to anyone anymore.
+ - I think it is important for young people to see other young people on television doing something positive with their life, making positive changes and growing. I don’t think there is enough of that on TV. I mean, we’ve got ‘Jersey Shore,’ and I don’t know what that teaches young kids.
+ - I would love to be a spokes model for Karl Lagerfeld or Balenciaga or something like that.
+ - To sum up my idea of on-ice costume fashion sense, it’s probably that too much is never enough.
+ - That makes me think of spandex-covered football players. It’s not me. I’m in rhinestones and velvet, not spandex.
+ - I’ve always wanted to make a music video with skating and different imagery, something very artistic.
+ - I feel like at the Olympics I gave the best performance of my life and I wasn’t rewarded for that as an athlete. Yes, my fans and my mom were happy about it, but I didn’t win that gold medal.
+ - I got into figure skating for the art of it, as well as the sport, and how much I love it. And, you know, I do everything that I want. I march to my own drummer. Sometimes people have an issue with that, and I can’t control it.
+ - I am an American man, and in America, we still think of figure skaters as little girls in pretty, sparkly dresses – I worked very hard to change the perception and image of figure skating, and I think I’ve done a great job on my end, but in figure skating, taste needs to evolve.
+ - Being in the public eye is part of what I do, and taking on a multitude of different projects – television, radio, fashion, writing or deep-sea diving – is a blessing. It is also how I pay my bills and fund my own skating, as I don’t have a sponsor or financial help from my federation.
+ - The skating community is very fickle. And with me, they’re especially fickle for whatever reason. Maybe I bring it on myself, but if you don’t prove yourself and you don’t skate consistently, then they can very easily write you off and bring somebody from behind you and put them in your place.
+ - I don’t eat as much as an athlete should. I just don’t like it.
+ - I’d say in general, my style is Johnny Weir style. It’s my style. I can’t classify it as anything else.
+ - I design all of my costumes. I like to go out there and feel like I have contributed to every part of what I do. I choose the music, the choreographer, I’ve obviously chosen my coach, my costumes – all if that falls under my realm of power, my realm of influence.
+ - I wouldn’t participate in ‘Stars on Ice’ if I were asked. I find it an amateurish tour in a way, the production quality.
+ - I love skating and sparkling and flying around the ice, and people clap for you. It’s an amazing feeling.
+ - I definitely don’t think of myself as an actual male model. I’m far too short and my legs are far too muscular.
+ - I want to create things while I have time on Earth, and the art of costume and culture has always inspired me.
+ - Don’t bring a prop. It’s almost like they were afraid nobody would know who they are.
+ - I am often criticized for spending too much time off the ice, but if you were in my shoes, you’d see how necessary it is.
+
+63 quotes

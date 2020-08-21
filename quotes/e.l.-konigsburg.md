@@ -1,0 +1,41 @@
+ - Finish. The difference between being a writer and being a person of talent is the discipline it takes to apply the seat of your pants to the seat of your chair and finish. Don’t talk about doing it. Do it. Finish.
+ - Five minutes of planning are worth fifteen minutes of just looking.
+ - Indecisiveness wears a person out.
+ - True simplicity is elegant.
+ - Happiness is excitement that has found a settling down place, but there is always a little corner that keeps flapping around.
+ - It often takes more courage to be a passenger than a driver.
+ - Often the search proves more profitable than the goal.
+ - Before you can be anything, you have to be yourself. That’s the hardest thing to find.
+ - Talk was like the vitamins of our friendship: Large daily doses kept it healthy.
+ - Some days you must learn a great deal. But you should also have days when you allow what is already in you to swell up and touch everything. If you never let that happen, then you just accumulate facts, and they begin to rattle around inside of you.
+ - How can you know what is missing if you’ve never met it? You must know of something’s existence before you can notice its absence.
+ - Sometimes silence is a habit that hurts?
+ - When you hug someone, you learn something else about them. An important something else.
+ - By the time they get to 6th grade honor roll students won’t risk making a mistake, and sometimes to be successful, you have to risk making mistakes.
+ - Biding one’s time is a very different thing from patience.
+ - Sometimes we even have to risk making fools of ourselves.
+ - Lying in bed just before going to sleep is the worst time for organized thinking; it is the best time for free thinking. Ideas drift like clouds in an undecided breeze, taking first this direction and then that.
+ - They are saying that if life has a structure, a staff, a sensible scaffold, we hang our nonsense on it. And they are saying that broken parts add color and music to the staff of life.
+ - Going to school- picking an apple Getting an education- eating it.
+ - Silence does for thinking what a suspension bridge does for space – it makes connections.
+ - I am convinced that not only do children need children’s books to fine-tune their brains, but our civilization needs them if we are not going to unplug ourselves from our collective past.
+ - I’ve been the oldest child since before you were born.
+ - I believe in courtesy. It is the way we avoid hurting people’s feelings. She thought that maybe, just maybe, western civilization was in decline because people did not take time to take tea at four o’clock.
+ - Whenever someone makes out a guest list, the people not on it become officially uninvited, and that makes them the enemies of the invited. Guest lists are just a way of choosing sides.
+ - Every job in the world has some built-in boredom. No man can stay excited about something every minute he is doing it. Routine is as necessary to life as water is to beer; it is the base that holds the flavors and spices together.
+ - Secrets are the kind of adventure she needs. Secrets are safe, and they do much to make you different. On the inside where it counts.
+ - Because way down deep they know that civilized people have to preserve rare birds.
+ - I don’t think there is any feeling I like more than the one that someone is glad to see me. – Connor Kane.
+ - A nasty letter or a sarcastic one can make you righteously angry, but what can you do about a polite letter of rejection? Nothing, really, except cry.
+ - But happiness is not always loud and bright and crowded. Happiness ripens like a watermelon, sweet and rosy on the inside with only a thin top layer altogether free of small black pits. And, like a watermelon, the whole thing can be covered with a plain dark rind.
+ - Kids want acceptance from their peers, but in two different, opposing ways: They want to be like everyone else and they want to be different from everyone else. So the question is: How do you reconcile these opposing longings?
+ - I waited for her to catch up, and when I did, she slowed down, and I missed seeing the light in her hair. I never told Nadia how much I liked seeing the halo the sunlight made of her hair. Sometimes silence is a habit that hurts.
+ - Can you know excellence if you’ve never seen it? Can you know good if you have seen only bad?
+ - Every now and then, a person must do something simply because he wants to, because it seems to him worth doing. And that does not make it worthless or a waste of time.
+ - There’s something nice and safe about having money.
+ - It is sometimes necessary to use unnecessary words like thank you and please just to make life prettier.
+ - I’m not sure that love and like aren’t like cats and dogs: One can’t grow up to be the other, but they can be taught to live under the same roof.
+ - There were times in school when a person had to do things fast, cheap, and without character.
+ - Jamie, you know, you could go clear around the world and still come home wondering if the tuna fish sandwiches at Chock Full O’Nuts still cost thirty-five cents.
+
+39 quotes

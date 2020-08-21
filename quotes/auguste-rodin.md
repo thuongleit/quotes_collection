@@ -1,0 +1,57 @@
+ - Nothing is a waste of time if you use the experience wisely.
+ - Patience is also a form of action.
+ - Love your calling with passion, it is the meaning of your life.
+ - The more simple we are, the more complete we become.
+ - I invent nothing, I rediscover.
+ - You must always work.
+ - Where shall we begin? There is no beginning. Start where you arrive. Stop before what entices you. And work! You will enter little by little into the entirety. Method will be born in proportion to your interest.
+ - What is commonly called ugliness in nature can in art become full of beauty.
+ - The nude alone is well dressed.
+ - To the artist there is never anything ugly in nature.
+ - The artist has only to trust his eyes.
+ - The artist must create a spark before he can make a fire and before art is born, the artist must be ready to be consumed by the fire of his own creation.
+ - The body always expresses the spirit whose envelope it is. And for him who can see, the nude offers the richest meaning.
+ - People say I think too much about women, yet, after all what is there more important to think about?
+ - It is the artist who is truthful and it is photography which lies, for in reality time does not stop.
+ - There is nothing ugly in art except that which is without character, that is to say, that which offers no outer or inner truth.
+ - To any artist, worthy of the name, all in nature is beautiful, because his eyes, fearlessly accepting all exterior truth, read there, as in an open book, all the inner truth.
+ - In art, immorality cannot exist. Art is always sacred.
+ - He who is discouraged after a failure is not a real artist.
+ - The sculptor represents the transition from one pose to another he indicates how insensibly the first glides into the second. In his work we still see a part of what was and we discover a part of what is to be.
+ - The main thing is to be moved, to love, to hope, to tremble, to live. Be a man before being an artist!
+ - The human body is first and foremost a mirror to the soul and its greatest beauty comes from that.
+ - I have unbounded admiration for the nude. I worship it like a god.
+ - I am like a moon that shines on an immense, unknown sea where ships never pass.
+ - Man enjoys living on the edge of his dreams and neglects the real things of the world which are so beautiful. The ignorant and indifferent destroy beautiful things merely by looking at the marble. Things that remake the soul of him who understands them.
+ - Black is the queen of colours.
+ - I choose a block of marble and chop off whatever I don’t need.
+ - Inside you there’s an artist you don’t know about. He’s not interested in how things look different in moonlight.
+ - Man’s naked form belongs to no particular moment in history; it is eternal, and can be looked upon with joy by the people of all ages.
+ - The artist is the confidant of nature, flowers carry on dialogues with him through the graceful bending of their stems and the harmoniously tinted nuances of their blossoms, Every flower has a cordial word which nature directs towards him.
+ - Art is the pleasure of a spirit that enters nature and discovers that it too has a soul.
+ - If we now seek the spiritual significance of the technique of Michelangelo we shall find that his sculpture expressed restless energy...
+ - The delicate droop of the petals standing out in relief, is like the eyelid of a child.
+ - Where did I learn to understand sculpture? In the woods by looking at the trees, along roads by observing the formation of clouds, in the studio by studying the model, everywhere except in the schools.
+ - There should be no argument in regard to morality in art. There is no morality in nature.
+ - Genius only comes to those who know how to use their eyes and their intelligence.
+ - The realities of nature surpass our most ambitious dreams.
+ - There are unknown forces in nature; when we give ourselves wholly to her, without reserve, she lends them to us; she shows us these forms, which our watching eyes do not see, which our intelligence does not understand or suspect.
+ - The only principle in art is to copy what you see. Dealers in aesthetics to the contrary, every other method is fatal.
+ - If the artist only reproduces superficial features as photography does, if he copies the lineaments of a face exactly, without reference to character, he deserves no admiration. The resemblance which he ought to obtain is that of the soul.
+ - Sculpture is the art of the hole and the lump.
+ - If the artist succeeds in producing the impression of a movement which takes several moments for accomplishment, his work is certainly much less conventional than the scientific image, where time is abruptly suspended.
+ - True artists are almost the only men who do their work for pleasure.
+ - I would have to talk for a year to repeat a single on of my works with words.
+ - In front of the model I work with the same will to reproduce truth as if I were making a portrait. I do not correct nature, I incorporate myself into it; it directs me. I can only work with a model. The sight of human forms nourishes and comforts me.
+ - My drawings are the result of my sculpture.
+ - The modes of expression of men of genius differ as much as their souls, and it is impossible to say that in some among them, drawing and color are better or worse than in others.
+ - Even with all the documents, you can never forge nature.
+ - An artist worthy of the name should express all the truth of nature, not only the exterior truth, but also, and above all, the inner truth.
+ - Recently I have taken to isolating limbs, the torso. Why am I blamed for it? Why is the head allowed and not portions of the body? Every part of the human figure is expressive.
+ - I grant you that the artist does not see Nature as she appears to the vulgar, because his emotion reveals to him the hidden truths beneath appearances.
+ - Nobody does good to men with impunity.
+ - I know very well that one must fight, for one is often in contradiction to the spirit of the age.
+ - Art is contemplation. It is the pleasure of the mind which searches into nature and which there divines the spirit of which nature herself is animated.
+ - Mystery is like a kind of atmosphere which bathes the greatest works of the masters.
+
+55 quotes

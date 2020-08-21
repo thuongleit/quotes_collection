@@ -1,0 +1,24 @@
+ - Lucid dreaming lets you make use of the dream state that comes to you every night to have a stimulating reality.
+ - Control yourself, not your dreams.
+ - Dream research is a wonderful field. All you do is sleep for a living.
+ - Our brain simulates reality. So, our everyday experiences are a form of dreaming, which is to say, they are mental models, simulations, not the things they appear to be.
+ - Pause now to ask yourself the following question: ‘Am I dreaming or awake, right now?’ Be serious, really try to answer the question to the best of your ability and be ready to justify your answer.
+ - Be true to yourself and you will never fail.
+ - We don’t teach our children how to dream.
+ - We dream every night, all the time.
+ - The consciousness of lucid dreaming is a cultural evolution. It’s something that we are talking about and learning about, not biological evolution.
+ - Dreams, remembered or not, can color our mood for a good part of the day.
+ - Dreams and waking life are both the same kinds of things. The difference is that dreaming is perceiving free of external constraints, whereas perceiving otherwise is dreaming true. Meaning what you dream about actually happens.
+ - Dreams look real, but they’re in your mind, so you realize that the physical world is also a construction, which shows that the mind can affect reality in more ways than you can imagine.
+ - If the experience of reality matters, than nothing is going to be better than dreaming. Because dreams feel real to everybody while they are happening. Some people have vivid imagination, some not so vivid, but everybody has vivid dreams.
+ - In most of our dreams, our inner eye of reflection is shut and we sleep within our sleep. The exception takes place when we seem to awake within our dreams, without disturbing or ending the dream state, and learn to recognize that we are dreaming while the dream is still happening.
+ - In the dream state, the only essential difference from waking is the relative absence of sensory input, which makes dreaming a special case of perception without sensory input.
+ - Lucid dreaming has considerable potential for promoting personal growth and self-development, enhancing self-confidence, improving mental and physical health, facilitating creative problem solving and helping you to progress on the path to self-mastery.
+ - Some people have vivid imagination, some not so vivid, but everybody has vivid dreams.
+ - Although the events we appear to perceive in dreams are illusory, our feelings in response to dream content are real. Indeed, most of the events we experience in dreams are real; when we experience feelings, say, anxiety or ecstasy, in dreams, we really do feel anxious or ecstatic at the time.
+ - It is certainly important to be looking for cures to medical disorders, but it is equally important to conduct research on human health and well-being.
+ - If you dream you do something, it’s as if you actually are doing it from your brain’s point of view.
+ - I have never been awake before.
+ - I have high-tech tastes. If I had $100 million, I would spend it on research equipment rather than a yacht.
+
+22 quotes

@@ -1,0 +1,38 @@
+ - Learning how to love is the goal and the purpose of spiritual life – not learning how to develop psychic powers, not learning how to bow, chant, do yoga, or even meditate, but learning to love. Love is the truth. Love is the light.
+ - We all have spiritual DNA; wisdom and truth are part of our genetic structure even if we don’t always access it.
+ - Also not being afraid to stand up for what you believe in while taking into account that you could very well be wrong, or maybe there’s another way to look at it- that things are not what they seem to be, and that everything is subjective.
+ - We each need to make peace with our own memories. We have all done things that make us flinch.
+ - There’s many lanes on the highway of enlightenment, they don’t have to be on the razor’s edge like the yellow line dotted in the middle. Balance is appropriate, not too tight, not too loose, the Middle Way as we call it in Buddhist dharma teachings.
+ - May all beings everywhere with whom we are inseparably connected, be fulfilled, awakened, liberated and free. May there be peace in this world and throughout the entire universe, and may we all together complete the spiritual journey.
+ - It’s not like we’re all animalistic people trying to become more spiritual. We’re really living spirit, trying to find out how to live embodied in this nitty gritty world, these corporeal forms, in these fleeting bodies in the material world where everything’s changing and we’re not in control.
+ - The secret, or innermost, level of wisdom is pure intuition, clarity, lucidity, innate wakefulness, presence, and recognition of reality. This transcendental wisdom is within all of us – it just needs to be discovered and developed, unfolded and actualized.
+ - Don’t wait to find solid ground. Dance in emptiness.
+ - So we have to be ready, willing, and able to really transform ourselves, and each other in the world, not just say it and affirm it, “Oh, I want to change”. Intention is important, but so is action.
+ - I think that today, integration is the name of the game and not separating these things out, and not trying to find the razor’s edge, the narrow path. There’s a lot of lanes in the highway, the trick is not fall into the ditches on either side, like a one sided nihilism, nothing matters life.
+ - I always thought he gave me that name because I have a kind of outgoing or sunny disposition. And in those days I was kinda blonde and bearded and had an afro and was bushy like a sun. So I don’t know, he named me Surya Das but who knows.
+ - You have to go through the darkness to truly know the light. This may sound like a cliche, but it’s true nonetheless. Often the greatest doubts occur just before a breakthrough.
+ - The Pearl Principle – no inner irritation, no pearl.
+ - When the sunset of life arrives, and its twilight shadows fade away; while dreams of the next begin to appear more vividly; may the inner-light essence of the Buddha, and all the radiant awakened ones, continuously guide us onwards and upwards, on the path of spiritual enlightment.
+ - If we accept and internalize the fact of our own mortality, then, by definition, we have to deal with the essential questions of how we live and spend our allotted time. We have to stop procrastinating, pretending that we have forever to do what we want to do and be what we long to be.
+ - We learn by doing, not just by thinking. So I feel like beyond Buddhism, or Hinduism, or Judaism, or Christianity we need today to think about a global spirituality. We need to make it very personal and transformative for one self, and each other, together for those who are interested.
+ - Spiritually speaking, everything that one wants, aspires to, and needs is ever-present, accessible here and now – for those with eyes to see.
+ - Other people can’t cause us to be impatient unless we let them do so. In other words, others don’t make us impatient. We make ourselves impatient, through our expectations and demands, fixated attachments and stuckness.
+ - I started to think more about becoming peace rather than fighting for peace, and the contradiction in terms, and the anger and violence that we were prey to and involved in to some extent in those days.
+ - So we’re all living spirit. It’s not about isms and schims or religions. Religions are almost like political institutions, but the heart of it is the spirituality.
+ - Who’s willing to face the unknown- the difficulties, the disappointments, the surprises of the unfamiliar. If you’re going to change, you have to face those things, and who’s able? Who has the skillful means, the knowhow, the perseverance, the help, the fortitude to keep going?
+ - Our lack of compassion stems from our inability to see deeply into the nature of things.
+ - Everything passes, nothing remains. Understand this, loosen your grip and fine serenity...
+ - Everyone has values, and values their family, values their health, their sanity, their safety and security, and their families, their parents, their children, their pets, their environments, well-being in general.
+ - One-half plus one-half does not equal one; one whole plus one whole equals relational wholeness.
+ - The heart is an organ of perception.
+ - Embracing our environment is a good direction, a very spiritual direction. It’s too Aristotelian to separate man from the animals and man; humans from the environment.
+ - We’re human beings trying to understand and cultivate what it means to feel divine love. We have to start with small, realistic goals.
+ - I realize that was becoming a contradiction in terms, especially after my friend Alison Krauss was shot and killed in Kent State in 1970 on campus by the National Guard.
+ - There’s plenty going on that’s substantial and transformative, beneficial and authentic. Just because somebody is in the media, it doesn’t mean they’re bad. It may mean they’re the best, and occasionally you know the cream rises to the surface, but not always everything on the surface is cream.
+ - Spiritual joy is devotion, it’s like a virus you know? It’s a benevolent virus, but it spreads. It’s infectious. Ram Dass was like a mentor in those days.
+ - Well there were other Maharajis, so Neem Karoli Baba was his technical name, like there are a thousand Lamas called Rinpoche.
+ - Taking the decision-making process away from people disempowers them. It also makes them much less likely to buy into the decision, however right it may be. One’s own conscience remains the ultimate arbiter.
+ - On the other side, is a substantial, more materialism, everything is real long to the extent we can see or measure it, and things are as real as I think they. That’s way too materialistic or substantialist, because things are not really what they seem to be.
+ - Like many others, I sometimes find that cooking can be naturally grounding.
+
+36 quotes

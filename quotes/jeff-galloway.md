@@ -1,0 +1,21 @@
+ - A lifestyle change begins with a vision and a single step.
+ - We are designed to run and we increase our chance of daily happiness when we do so.
+ - Being an athlete is a state of mind which is not bound by age, performance or place in the running pack.
+ - Everyone has stress. A good run may not erase it, but it can reduce the effect and allow runners to gain control.
+ - To finish will leave you feeling like a champion and positively change your life.
+ - The marathon is a competition between your will and your possibilities.
+ - Here is the start, there is the finish line. Between that, you have to run.
+ - When using the run-walk method to finish a marathon, the most important walk break comes in the first mile. The second most important one comes in the second mile, and so on. The point is, walk before you become fatigued.
+ - Marathon training doesn’t have to be a grind. By running for about 30 minutes two times a week, and by gradually increasing the length of a third weekly run-the long run-anyone can finish a marathon.
+ - The most important force inside you for feeling better all the time is the will to get more fit.
+ - Even world class performers can benefit from walk breaks.
+ - Our bodies crave exercise, and reward us in so many ways when we do so.
+ - We have a no puke rule. The purpose is performance, not puking.
+ - There’s an old adage that for every second too fast per mile in the first half of the race, you’ll run at least 2 seconds slower at the end.
+ - The more you frame the marathon as a stressful experience, the more negative messages you’ll receive. But it’s just as easy to frame it as a positively challenging journey.
+ - If you’re laboring up a steep hill, imagine that a towrope is attached to the center of your chest, pulling you steadily toward the top.
+ - When I finish a run, every part of me is smiling.
+ - Most people have this perception that you have to be out there running for an hour and a half every day. But you don’t have to give up your career and family to run a marathon.
+ - Find a way to enjoy parts of every run. Most of your runs should be mostly enjoyable.
+
+19 quotes

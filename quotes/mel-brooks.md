@@ -1,0 +1,96 @@
+ - Hope for the Best. Expect the worst. Life is a play. We’re unrehearsed.
+ - It’s good to be the king.
+ - Life literally abounds in comedy if you just look around you.
+ - My mind is a raging torrent, flooded with rivulets of thought cascading into a waterfall of creative alternatives.
+ - Tragedy is when I cut my finger. Comedy is when you fall into an open sewer and die.
+ - No creative writer knows what is commercial and what isn’t. You just write from your heart, you write from the deepest, creative urges in you, and you write from your soul, and you just either get lucky or not.
+ - My liveliness is based on an incredible fear of death. In order to keep death at bay, I do a lot of “Yah! Yah! Yah!” And death says, “All right. He’s too noisy and busy. I’ll wait for someone who’s sitting quietly, half asleep.”
+ - Everything starts with writing.
+ - We mock the things we are to be.
+ - An egg cream can do anything. An egg cream to a Brooklyn Jew is like water to an Arab. A Jew will kill for an egg cream. It’s the Jewish malmsey.
+ - You got to be brave. If you feel something, you’ve really got to risk it.
+ - I don’t think in terms of results at all. I think: what next insanity can I shock the world with?
+ - Not only should we laugh about Hitler. We must laugh about him. Especially in Berlin.
+ - Coleman Jacoby and Arnie Rosen won an Emmy and Mel Brooks didn’t! Niezsche was right! There is no God! There is no God!
+ - Writing is simply one thought after another dying upon the one before.
+ - Usually when a lot of men get together, it’s called a war.
+ - Every human being has hundreds of separate people living under his skin...
+ - The only weapon I’ve got is comedy.
+ - I’ve always loved songwriting, and I vowed to be a songwriter like Cole Porter when I was only 9 years old.
+ - Look, I had to take chances or it wasn’t fun being funny.
+ - That’s it baby, if you’ve got it, flaunt it.
+ - I was born on the kitchen table. We were so poor my mother couldn’t afford to have me; the lady next door gave birth to me.
+ - The egg cream is psychologically the opposite of circumcision – it pleasurably reaffirms your Jewishness.
+ - Merchandising, merchandising, where the real money from the movie is made.
+ - There’s no such thing as too far. If it works it’s funny, if it doesn’t work it’s too far, it’s stupid. Really there’s no such thing as “too far.” You’re joining the politically correct when you use words like “too far.” You don’t want to join the army of politically correct.
+ - All right, I am often brash, rude and brutally direct. Someday I’m going to die and I don’t have time to toe-dance around the periphery of hatred.
+ - I make people laugh for a living. I believe I can say objectively that what I do I do as well as anybody. Just say I’m one of the best broken field runners that ever lived. For 35 years I was a cult hero, an underground funny.
+ - My job is to go out and entertain the most people possible. The job is to make people laugh. I don’t have a mission. I don’t have a torch to burn.
+ - Be interested in everything. You don’t have to adore it. I don’t adore hip-hop, I don’t think it’s great music, but I’m interested, I listen. I watch a lot of new films, I see everything. I still read, I like books, whether they are old books, new books. I’m interested – you gotta stay interested!
+ - Tragedy is what happens to me; comedy is what happens to you.
+ - I’m married to a beautiful and talented woman who can lift your spirits just by looking at you.
+ - Nothing is free. You got to pay to be in society. First you start with homework.
+ - Bad taste is simply saying the truth before it should be said.
+ - One day, God said ‘Let there be prey.’ And he created pigeons, rabbits, lambs and Gene Wilder.
+ - Woody Allen is a genius. His films are wonderful. He’s poetic, but he’s also a critic. He artfully steps back from a social setting and criticizes it without – I suspect – without letting himself be vulnerable to it.
+ - Good taste is the enemy of comedy.
+ - Ill just say whats in my heart: Ba-bump, ba-bump, ba-bump.
+ - Humor is just another defense against the universe.
+ - As long as the world is turning and spinning, we’re gonna be dizzy and we’re gonna make mistakes.
+ - I love gentiles. In fact, on of my favorite activities is Protestant spotting.
+ - When I was a little boy, I thought when I grew up I would talk Yiddish. I thought little kids talked English, but when they became adults, they would talk Yiddish like the adults did. There would be no reason to talk English anymore, because we would have made it.
+ - I was out in the combat engineers. We would throw up bridges in advance of the infantry but mainly we would just throw up.
+ - I had low blood sugar, a chemical imbalance, plus the normal nervous breakdown everyone goes through from adolescence to adulthood.
+ - Being short never bothered me for three seconds. The rest of the time I wanted to commit suicide.
+ - The thing is to be brave and move the audience with you, instead of cater to the lowest common denominator, you know, slipping on a banana peel and falling on your ass. You got to move the audience a little further ahead in terms of their appreciation of what is comedy. It’s complicated.
+ - Sir, I have seen your film and it is vulgar! Madame, my film rises below vulgarity.
+ - If you’re alive, make a lot of noise, because life is the very opposite of death.
+ - Every human being has hundreds of separate people living under his skin. The talent of a writer is his ability to give them their separate names, identities, personalities and have them relate to other characters living with him.
+ - Creative people should always be striving, they should always be hungry, they should be looking for the next place to go.
+ - You’re young forever when you write. Alfred Hitchcock directed until the day he died. As long as you don’t have any dementia or Alzheimer’s, if you have your All-Bran every day and clear yourself out, I think your brains are gonna be all right.
+ - When we got to our hotel rooms, mosquitoes as big as George Foreman were waiting for us. They were sitting in armchairs with their legs crossed.
+ - Look at Jewish history. Unrelieved lamenting would be intolerable. So for every ten Jews beating their breasts, God designated one to be crazy and amuse the breast-beaters. By the time I was five I knew I was that one.
+ - You cannot have fun with anything that you don’t love or admire or respect.
+ - When I was a little kid at home, I thought the whole world was Jewish. For years I thought Roosevelt was Jewish. I loved him. I thought of him as my father. I’m always stunned when I find out that people like Roosevelt and Tolstoy weren’t Jewish. How could I love them so much?
+ - My God, I’d love to smash into the casket of Dostoyevsky, grab that bony hand and scream at the remains, ‘Well done, you god-damn genius.’
+ - Critics can’t even make music by rubbing their back legs together.
+ - Why should I waste my good time making a straight dramatic film? The people who can’t make you laugh can do that.
+ - Some critics are emotionally desiccated, personally about as attractive as a year-old peach in a single girl’s refrigerator.
+ - We want to get people laughing; we don’t want to offend anybody.
+ - All short women have a delayed fuse. Marry a taller woman: My wife was an inch or two taller than me; it’s a sign of security.
+ - I usually start with the words. The rhythm of the words gives me the rhythm of the song, and then I look for the musical highlights in it to carry it.
+ - You want me to admit I’m a four-foot, six-inch freckle-faced person of Jewish extraction? I admit it. All but the extraction. But being short never bothered me for three seconds. The rest of the time I wanted to commit suicide.
+ - Cat angels are the reason there are no mice angels.
+ - My brothers went to work at 12 and put themselves through school and brought the family out of ruin into food and clothing.
+ - In every spoof I make real love to the things I am spoofing.
+ - The audience got jaded, they want a hit, they want a big success, and so you don’t want to experiment because you say, well, I’ll disappoint the audience, they may not like it, I better do something that I think is more commercial.
+ - The final test of fame is to have a crazy person imagine he is you.
+ - I also try to surround myself with people I love – make a family out of the company. So I tend to use the same people over and over. There’s a sort of Mel Brooks Repertory Company.
+ - Basically, I’m a writer. I’m the proprietor of the vision. I alone know what I eventually want to happen on the screen. So if you have a valuable idea, the only way to protect it is to direct it.
+ - A cinema villain essentially needs a moustache so he can twiddle with it gleefully as he cooks up his next nasty plan.
+ - I don’t believe in this business of being behind, better to be in front.
+ - When you get big special effects pictures, sci-fi and things, there’s little or no comedy. Or it’s a domestic comedy and there’s not one special effect. But very rarely do these things fuse and come out right.
+ - It would be hypocritical of me to take issue with anything in questionable taste, seeing that I invented bad taste in films.
+ - If you’re quiet, you’re not living. You’ve got to be noisy and colorful and lively.
+ - My movies were not reaping the kind of emotional rewards that I wanted. I wanted them to be appreciated and they weren’t. I didn’t want the reviews to say, “Mel Brooks has made another movie,” and you get the title somewhere in the second paragraph.
+ - Immortality is a by-product of good work. Masterpieces are not for artists, they’re for critics. Critics can’t even make music by rubbing their back legs together. My message to the world is ‘Let’s swing, sing, shout, make noise! Let’s not mimic death before our time comes! Let’s be wet and noisy!’
+ - There’s not enough bad taste! I LOVE bad taste! I live for bad taste! I am the spokesman for bad taste!
+ - I have always been a huge admirer of my own work. I’m one of the funniest and most entertaining writers I know.
+ - Tolstoy was the most gifted writer who ever lived. It’s like he stuck a pen in his heart and it didn’t even go through his mind on its way to the page.
+ - Organizations like the CIA and the FBI are still kind of supermen, kind of SS troops: We’re blond and the best and everyone else should be incinerated. They don’t know right from wrong. That’s what makes a satire of these government bureaus really funny.
+ - I realised that all one really had to do was just observe. Observe and slightly exaggerate, and you had comedy. Instead of creating a mythical premise for a stupid joke, I found playing off truth got the best result.
+ - Comedy is serious – deadly serious. Never, never try to be funny! The actors must be serious. Only the situation must be absurd. Funny is in the writing, not in the performing. If the situation isn’t absurd, no amount of joke will help.
+ - I have been lucky that some critics joined the mob in loving something I’ve done, or in appreciating it. I’ve been lucky. But most of the critics don’t like what the people like. I think they have a very strange job, and they are meant to criticize.
+ - Directing is a terrible, anxious process. It’s all collaboration, and if you have a dream, it’s diluted very quickly by the slightest ineptness in any of your collaborators. They’re supposed to help you, but too often they help you into your grave.
+ - I like people with big talents and small neuroses – not always an easy combination to find. I’ve discovered that if the neurosis is too big, it diminishes the talent and you wind up working too hard for what you get.
+ - I wanted to entertain so badly that I kept at it until I was good. I just browbeat my way into show business.
+ - I always thought it was great to be able to make people feel better. It was a little like being God.
+ - I was in the army, and to me it was like a newsreel.
+ - Do you have a dollar on you? I hate to answer questions for nothing.
+ - My mother is very short – four-eleven. She could walk under tables and never hit her head.
+ - There’s an army story in me, and I think there’s a WWII Brooks film somewhere.
+ - Making a movie is like making an ocean voyage, and the script is your ship.
+ - I’m always stunned when I find out people like Roosevelt and Tolstoy weren’t Jewish. How could I love them so much?
+ - You want to be as smart as you can about being stupid.
+
+94 quotes

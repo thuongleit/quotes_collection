@@ -1,0 +1,72 @@
+ - Empathy is the main thing, putting yourself in somebody else’s shoes and trying not to judge.
+ - I see the world through my eyes. It’s sometimes a strange world.
+ - If only I wasn’t an atheist, I could get away with anything. You’d just ask for forgiveness and then you’d be forgiven. It sounds much better than having to live with guilt.
+ - I don’t think that you can fake warmth. You can fake lust, jealousy, anger; those are all quite easy. But actual, genuine warmth? I don’t think you can fake it.
+ - I like watching films when I don’t know anything about the people.
+ - My mum says that I was born 45, and I do remember at six thinking that I should be earning my own living.
+ - Be happy in your body. It’s the only one you’ve got, so you might as well like it.
+ - Prince William definitely isn’t my type, he’s too horsey-looking.
+ - Nice is the worst word.
+ - It’s all about perfection, isn’t it?
+ - I’ve got a lot of experience with anorexia – my grandmother and great-grandmother suffered from it, and I had a lot of friends at school who suffered from it. I know it’s not something to be taken lightly and I don’t.
+ - I think women’s bodies are a battleground and photography is partly to blame. Our society is so photographic now, it becomes more difficult to see all of those different varieties of shape.
+ - I see a pair of shoes I adore, and it doesn’t matter if they have them in my size. I buy them anyway.
+ - Some people say Dylan Thomas mischievous, he’s a child, and other people say he’s quite demonic. I don’t think we should dictate about him, if that’s your view of him, that’s wonderful, but it’s great to know that other people think differently.
+ - Half of my mum’s family is Welsh. I remember when I was a kid she used to read to me, and witches and wizards in books always had a Welsh accent, so I guess I took it from that really.
+ - I totally agree. I hate knowing too much when I’m going to the cinema and watching as a viewer. I don’t want to know that the actor has just gone through a divorce. I don’t want to know that the person is an alcoholic. It just gets in the way of my pleasure of watching the character on the screen.
+ - I wish I was Sienna Miller. When I talk to her, I hope a bit of her party personality will rub off on me, but it never does.
+ - I don’t want to deny my femininity. But would I want to be a stay-at-home mother? No. On the other hand, you should be allowed to do that, as should men, without being sneered at.
+ - I’m a tomboy beanpole? I can’t use a computer, so maybe I’m a bit out of the loop. I don’t know whether to be flattered or not flattered. The beanpole bit, is that good? Can you be a sexy beanpole?
+ - I find it difficult to see the romance in digital.
+ - I think that there’s absolutely no point trying to force your body to be anything than what it is. I think that when you see people who are really pushing themselves to terrifying lengths to achieve what is perceived as being beautiful today, then that’s just terrifying, it’s really terrifying.
+ - I have no idea whether I am completely sane. I don’t think anybody is. I see the world through my eyes. It’s sometimes a strange world. I hope I don’t hurt people. You hope not to hurt yourself too much, either. Maybe that’s the definition of keeping yourself in check?
+ - A lot of times in cinema today the women are overly sentimental, so I constantly try to do the opposite. I like strident women.
+ - I love costume dramas, I love performing in them, because in a funny kind of way, you feel more free. You know about the period, you can read the books, you can see the paintings, but you’ve never actually going to know what it was like. You can kind of stretch those boundaries a bit.
+ - In film as a medium, you’re often given a baddie and a goodie and told what to think about them; it’s usually a very definite point of view.
+ - I wasn’t allowed to do commercials. I wasn’t allowed to do TV series. I wasn’t allowed to do soaps or basically anything that would mean I missed too much school.
+ - I cook. I go to farmers markets in London and cook really good sort of organic foods.
+ - I tried college for three months but I was desperately unhappy. I just wanted to perform. I was getting straight As but I had no friends and cried every day.
+ - Beauty is everywhere. And my photography came naturally without any particular inspirations growing up.
+ - In LA, I’m twice the size- height and everything else- of most of the other actresses who are going for an audition.
+ - I’ve always gravitated towards people who are extreme. Whether its drugs, or kicking down doors. Normally, the people in my life had to escape to get back.
+ - I don’t have a problem with my body. I’m not just going to strip off all my clothing, but if the part calls for it and I don’t think there’s any way round, I’m absolutely fine.
+ - My upbringing is why I am the person I am today. I have very wise parents.
+ - I think it doesn’t matter where you’re from, we all need a bit of romance.
+ - It’s very rare to get a film script that has good dialogue. A lot of the time, you spend on film sets really fighting to find out how to say the words.
+ - I am a slow reader. I always loved words, which is a strange thing given that I couldn’t actually read them.
+ - It’s an interesting thing when you discover something about yourself. To go: ‘Wow, I’m not the person I thought I was. I’m in the middle of something and I can’t actually deal with it.’
+ - I always feel like I’m the one with everything to prove.
+ - You have to learn the rules to be able to know how to break them.
+ - I always find it much easier when there’s one person whose vision you’re following, as opposed to many people.
+ - If I don’t do this film. I’ll be acting in corsets for the next 20 years.
+ - The most important thing in playing any character is not judging.
+ - It’s a difficult thing when you try and make a film of a book that you really love. You have about two hours to tell the story, and it’s never going to be enough.
+ - It’s not everyday you get to do a pirate movie, you might as well go for it.
+ - The thing I love about acting is getting to change and look at different people in different lives and do different projects.
+ - When I was about 5 I think, I desperately wanted to be a pirate and have the hat and everything.
+ - I made a conscious decision to live my life the best way I could and that meant to publicise myself as little as possible.
+ - I find it quite difficult on studio films because there are so many different executives and things like that that you have to go through, so very often getting that definitive opinion is actually quite difficult.
+ - I like to do the pictures before people get too self-conscious. I like to be spontaneous and get a shot before the subject thinks too much about it.
+ - In the movie, you’re moving, you have personality, you don’t have to be great looking.
+ - All through my life what I’ve loved doing is watching movies. I love the escapism of film, I love stories. So it is incredible to be able to be in them as much as I am, to see them from the first stitch in a costume to the end product.
+ - And we’re fortunate if we have parents who are great and loving and inspiring. But, unfortunately, there are people who don’t have that.
+ - Bigger films are more difficult because the number of people is so huge.
+ - My doctor was like, ‘Any questions?’ And I was like, ‘Yes! When can I drink please?!’ I just want a margarita.
+ - I’m doing a film now with a lot of guys as well, so at the end of that I will be growing a beard.
+ - At this particular time, I probably am more comfortable with myself. Just now I’m having a lovely time.
+ - The celebrity thing’s completely crazy. I think I just have to move away or give it up altogether. I couldn’t have kids in the situation I’m in now. But I could just do something else. That’s probably what’s going to happen. I made a decision very recently that I want a life instead.
+ - I went from everyone saying, “She-can’t-act-she-can’t-act-she-can’t-act,” to an Oscar nomination. So there was something quite sublime about that!
+ - You bring yourself to every role, it doesn’t matter who it is, it doesn’t matter if it’s a mass murderer, you can bring something to it.
+ - You already feel unsure of yourself, and then you see your worst fears in print. It really knocked me – which is why, I think, I was working, working, working, because I was trying to run away from the fact that I thought I couldn’t do it.
+ - I don’t quite understand what Tolstoy’s actual personal view of Anna is – whether he likes her or hates her, whether she’s the heroine or the antiheroine.
+ - I went through voice coaching. I was absolutely terrified. I thought my knees were going to buckle, and the first couple of takes I sounded like a pubescent boy. I didn’t realise I was going to have to do it live.
+ - I’ve had my body manipulated so many different times for so many different reasons, whether it’s paparazzi photographers or for film posters.
+ - It’s good to know that other people think differently, and that’s what makes the characters interesting.
+ - The whole point for me is to change as much as possible. If I’ve done one movie, I’ve done that, move on.
+ - Because it does feel important to say it really doesn’t matter what shape you are.
+ - I think everybody has the right to a private life.
+ - I think quite often when you have a hell of a lot more money and time, as you very much do on a big studio film, you don’t necessarily have to make the decisions right there. You can always goback and reshoot it.
+ - Well, the thing about great fictional characters from literature, and the reason that they’re constantly turned into characters in movies, is that they completely speak to what makes people human.
+ - The highest percentage of England’s top jobs are filled by graduates from about two different universities.
+
+70 quotes

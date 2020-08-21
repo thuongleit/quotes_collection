@@ -1,0 +1,61 @@
+ - Don’t expect much and you won’t be disappointed.
+ - But it’s not enough to know right from wrong. You need the strength to do what’s right, even when what you want most in the world is the wrong thing.
+ - Hope is a dangerous thing, Raisa thought. Once kindled, it’s hard to put out. It makes wise people into fools.
+ - Do not forget duty. But choose love when you can.
+ - Just because you’re the enemy of my enemy don’t mean you’re my friend, Han thought.
+ - Falling in love was like falling off a cliff. It felt pretty much like flying until you hit the ground.
+ - And it’s not just a matter of you hurting me. I will hurt you too, even if I don’t want to, I’m not the girl you think I am. And you will remember this conversation, and wish that you’d listened to me.
+ - I have lost everything, Han thought. Then he corrected himself. Every time I think I’ve lost everything, I find there’s still something else to lose.
+ - Tears stung her eyes. She sank her knees next to the sleeping bench and gently raked strands of golden hair from him forehead. “Don’t you die. don’t you dare. I forbid it.” As if Han Alister had ever listened to anything she said.
+ - The answer is no, I would rather marry the Demon King himself than marry you. I suggest you look elsewhere for a bride. And heaven help the one you choose.
+ - And, like a fool, she kissed him back. Kissed him a way that would leave no doubt about the way she felt about him. Kissed him because she knew the chances were slim she’d have very many kisses like that in her lifetime. Which is a sad thing when you’re only seventeen.
+ - Sometimes you have to go somewhere else to appreciate what we have here.
+ - He’s not lazy. He’s just highly inefficient.
+ - I live in the present because the future is always chancy. When it comes to being with you, I’m willing to take the risk.
+ - She had never felt more alive than when she lay dying in Han Alister’s arms.
+ - He swept Raisa up into his arms and kissed her like it was his first, last, and only.
+ - Nobody’s going to hand you anything. You don’t get what you don’t go after.
+ - There’s something about a roof isn’t there? It makes you feel like it doesn’t matter what’s going on below. All of those things that get in the way of your dreams – you’re above them. Anything is possible.
+ - Crow walked toward her, arms outstretched like a man in a dream, which he was, in a way. Sometimes a dream is enough.
+ - We may all end up dead, but we’re sticking it to them in the meantime.
+ - Admit nothing – that was his first rule. Appeal to logic – second rule. Delay the inevitable – third rule.
+ - And they always slept better with blades beneath their beds.
+ - His aster-blue eyes shown out from a face blackened by bruises and soot, his fair hair glittering in the firelight. Dressed all in black, silhouetted against flame, he looked rather like a demon, raised from the dead, trading for souls on the other side.
+ - Did the destruction of one dream leave a vacuum that required filling with another? Is a broken heart more vulnerable?
+ - Just a rat, she repeated to herself. After all, there were rats in the palace. Human and otherwise. Could be worse.
+ - You look like a boy who has eaten the fruit of the tree of knowledge and doesn’t like the taste.
+ - They were like two pieces of a failed star, drawn together by a shared history and a memory of illicit kisses.
+ - You do not respond to an attempt on your life with a slap on the hand. Or a joke.
+ - It was a peculiar marriage of interests- Lord Averill and Captain Byrne and Lord Bayar and Han Alister agreeing on anything was as rare as gold in Ragmarket.
+ - A vocation is not something you slap on, like a coat of paint, and change whenever you want. A vocation is built into you. You have no choice. If you try to do something else, you fail.
+ - I’d rather have a go at life, so there’s something to talk about once we’re gone.
+ - It was one of the warm nights at the end of summer that makes promises that won’t be kept.
+ - But maybe it’s better to go after something, and not get it, than to not even try.
+ - I need to go to parties, Raisa mused, so I don’t think so much.
+ - Weird is good, strange is bad.
+ - You touch me again, you arrogant Ardenine swine, and I swear on the blood of Hanalea the warrior, I will geld you. Do you understand?
+ - For Hanalea the Warrior!
+ - He would find a way to make it work, because he finally understood that sometimes you have to raise your expectations. And sometimes you need to make a claim on the world and the people you love to get what you most desire.
+ - Plus he was naturally lucky at cards. As Mam had always said, lucky at cards, or lucky at life. One or the other. Not both.
+ - You couldn’t keep your mouth shut? I’m calling you Glitterhair from now on. Or Talksalot.
+ - More and more, there were no revelations, but simply the uncovering of truths long known but dimly remembered. Everything had been written long ago. There was nothing truly new in the world, but only the slow, circular march of time that revealed the old things once again.
+ - I’ve found it wise to enjoy any time of truce, while recognizing it for what it is. A truce.
+ - If you want to be a writer, you must be in love with the process of writing, whether you achieve financial success or not.
+ - I have to think it’s possible to suffer a great wrong and walk away from it. To build a life of small, exquisitely important moments.
+ - Which is a sad thing when you’re only seventeen.
+ - One more thing: Linda, can you get to Canterbury and take over my Chaucerian Society? They’re at Dovecote Hostelry in the old city. We’re visiting all the scenes of the great murders. Tomorrow they want to see where Becket was killed. They’re a bloodthirsty lot, it seems.
+ - She padded toward Han, barefoot, like a faerie startled out of a forest bower, bewitching mix of clan and flatland beauty.
+ - I like rough edges. That’s what makes a person real.
+ - I continue to believe in miracles. But i know that miracles come to those who work very hard.
+ - The human mind had a remarkable ability both to discount what it sees and make reality conform to expectation.
+ - A fiction writer is never entirely alone. Her characters are constantly whispering in her ear.
+ - He keeps this up, he’s bound to be caught, she thought. And this time they’ll dangle him for certain.
+ - Both Averill and Bayar were like actors speaking lines for their audience and not to each other.
+ - The only way to get what you want is to make them more afraid of you than they are of each other.
+ - Jason felt humiliated and frustrated. Rejected by a rock.
+ - What kind of love would drive a man for miles through solid rock?
+ - Fitch is on his way. He’s coming after he blows up some wizards.
+ - Her clothes still smoked from the wizard’s assault. But to him, she always smelled of flowers.
+ - He expects nothing, she thought, because he’s never had anything. And nothing was expected of him. He was free in a way she never would be.
+
+59 quotes

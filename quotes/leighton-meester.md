@@ -1,0 +1,93 @@
+ - I’m excited to start a new chapter in my life.
+ - It’s always important to be yourself.
+ - Enjoy your life and put a smile on your face, no matter how hard it may seem.
+ - My inspiration is life. My family, my friends, travelling, books, music, love, food, fashion. What inspires you?
+ - Success to me is being happy, truly fulfilled, being proud of myself, and doing different things all the time.
+ - I love New York. You’re never alone, but you’re always on your own.
+ - Figure out what works for you and what doesn’t.
+ - I grew up reading ‘Sense and Sensibility’ and ‘Pride and Prejudice’ – girly kind of books.
+ - Never give up. In the end it’ll all be worth it.
+ - I feel more mature than most people my age.
+ - Be yourself. The happiest and most successful people are those who feel the most comfortable with themselves.
+ - I get inspiration everywhere – by my friends, my family, and mostly love.
+ - Forgive thyself little, and others much.
+ - It’s so important to always be yourself. If you do that, you will be successful as you, instead of worrying about trying to conform.
+ - I think guys who are rebels and make their own rules are appealing.
+ - I love live music and I love to see people’s faces when I’m performing.
+ - I’ve never fallen in love right off the bat. I get scared to say I love you too soon because it means so much. It means you’re not seeing an end to things.
+ - Follow your gut and your heart. You’ll almost always make the right choice.
+ - Wear your heart on your sleeve and be kind. And just be the way you are-what you see is what you get.
+ - I love my parents very much, but people either continue or break the patterns of what their life should be and I just want to completely break whatever patterns would lead me to the same life choices that they made.
+ - I’m proud of the work that I’ve done. I don’t care what people label me as.
+ - Everyone has this universal understanding of roommate drama.
+ - I think love changes you over time, and whether you have good or bad experiences, you always grow and learn from them.
+ - I don’t want to pursue someone at all – I want someone to pursue me.
+ - I don’t want to have a friend unless I can call them one of my best friends.
+ - I just go at my own pace and I like control of the TV and I like to decide when I take a shower and wash the dishes and stuff like that. So I don’t know who would want to live with me to be honest!
+ - Any fear of aging, I think, is simply vanity.
+ - I don’t want fame. I want to grow as an actor and a person while having my family and my life.
+ - High school for me was not all that fun. I think it’s a lot more fun after when you realize that high school ends, and everything that’s important at that time is sort of not important if people don’t like your jeans or whatever. It doesn’t matter.
+ - I’ve learned to let things roll off my back.
+ - I couldn’t relate to kid stuff. ‘Jimmy doesn’t like me!’ Who cares? I was worried we didn’t have gas money or food. Those were my concerns.
+ - I look up to my mom. She’s a beautiful woman.
+ - When I’m singing a song, I picture somebody in particular. A lot of it is to a guy.
+ - I’ve never been crazy. I’m a very good girl, to be honest. I don’t do anything to hurt anybody.
+ - Guys who are unavailable are actually a dream come true for me because I’m unavailable all the time. It’s great they’re not down your throat.
+ - I believe in love, children and being a good person.
+ - I never wear makeup when I’m not at work. It can make you forget what you look like, and I’ve grown to really love the way I look without it.
+ - Being a feminist simply means you believe in equal rights, and I think if you ask anybody if they believe in equal rights, they’ll say yes, man or woman. And if they don’t – who the heck would say that?
+ - Daily life shouldn’t be a fashion show all the time.
+ - Sometimes you’re a little too close for comfort, and I think anybody can relate to that, whether you’re in college or just moving out on your own.
+ - You can take what is handed to you and use it as an excuse to mess up. But I’ve always handled what was given to me by life. I consider myself lucky. I was never lied to. And I was loved.
+ - You can’t judge anyone for what they’ve done, because people change.
+ - I didn’t really like modeling; it was fun but I always wanted acting.
+ - I’ve been so blessed to work with the people I have.
+ - The only person pressuring me is myself.
+ - I’m not really a partier, in general. I’ve definitely learned that that’s probably the least interesting thing you can do with your time.
+ - I’m not sure I ever want to get married.
+ - Honestly, all I ever do is work.
+ - I want an identity outside of my work.
+ - I couldn’t be happier.
+ - I love Edith Wharton. And I love old New York. Anything to do with New York.
+ - Even when people are so judgmental about what you wear or your weight you just have to step away and be like, ‘I’m a normal, fine human being.’
+ - When I do get free time, I spend a lot of it at home with my family and my close friends and I think that’s what keeps me happy, healthy, grounded, and totally in check.
+ - In this world, everyone wants to know everything about you, and I think that’s funny.
+ - I’ve gotten to wear such beautiful clothes and had such a variety and it’s just been so nice because I feel like I’ve grown so much with my style and everything because I’ve been able to have fun with it. It’s really fun for me.
+ - People are pretty respectful for the most part.
+ - I used to drink tons of caffeine. Now I make smoothies with frozen berries and Green Vibrance health powder.
+ - I might play a lot of dramatic roles, but I’m really sort of silly.
+ - I remember looking through magazines or watching movies even just a couple of years ago and being like, ‘I really want to be part of that,’ but not realizing what that was.
+ - If thou wouldst find much favor and peace with God and man, be very low in thine own eyes; forgive thyself little, and others much.
+ - I want to be myself. That’s when you feel the most comfortable, that’s when you have the most success, and that’s when you’re the most happy.
+ - I’m a grown woman and sometimes, I might be a little fat, you know? Am I alone there? Not really.
+ - I think you have to know how you feel when you’re sad and it’s healthy to mourn if a relationship ends.
+ - There’s no sense in trying to be or look like anyone other than yourself.
+ - I don’t know if it’d be any time soon but I’d really like to work on a collaboration with somebody – I always have ideas for stuff like that.
+ - Don’t try to be anything but yourself, and find success as yourself. Otherwise, you won’t be happy.
+ - Honestly, I’ve hated every boyfriend I’ve had.
+ - The only time a relationship is good is when you really love them.
+ - I never played sports. I wasn’t any good at them.
+ - I had a bunch of different hair colors. I was experimenting to see what I liked. It started off brown, then I did red, then I got really, really blonde!
+ - When I don’t have to be at work, I want to be the real me – the comfortable me!
+ - I always change my hair, but I don’t like haircuts!
+ - I’ve been through a lot as far as love.
+ - You know how you’re supposed to choose between playing up your eyes or your lips? I always choose lips. I love the drama.
+ - When you see how you react when you suffer that’s when you know what you are made of.
+ - It’s hard to have any kind of luck in this business.
+ - I haven’t ever really relied on relationships with guys. They come around and it’s cool, but it’s never been a big thing. I guess I’ve just been really distracted by work.
+ - Just have a little bit of something that you want. Don’t overdo it.
+ - The way I become friends with somebody is a slow process. You can’t just spill your guts and tell them everything about yourself and expect them to listen and understand you because you don’t know them. It’s the same thing with a relationship.
+ - In real life I’ve learned to love not wearing any makeup whatsoever, and I’m super low-maintenance when it comes to my hair.
+ - I really like to be able to have variety and to try different things – that’s the beauty of fashion.
+ - I watched a lot of TV, and it clicked one day that these people were acting. It sounded like the most fun thing ever.
+ - I’m not trying to satisfy anybody but myself and the role that I’m playing.
+ - I like to be judged by my family and friends because they know me.
+ - I do so much work that I don’t have a lot of time for my life!
+ - If you get a wrinkle, I don’t feel that’s indicative of your losing ground. That’s ridiculous.
+ - Singing really is acting. In a lot of ways, it’s much more personal. I love music, and being able to work on that is amazing.
+ - It’ll be kids next. I like the grown-up stuff. I like having a house. I’ve got dogs.
+ - I don’t even think about fame at all.
+ - I’m trying to think of what I’m ashamed of. But, damn, I don’t really have any shame.
+ - I’m so accustomed to being alone.
+
+91 quotes

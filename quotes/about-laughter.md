@@ -1,0 +1,42 @@
+ - If you’re going to try, go all the way. There is no other feeling like that. You will be alone with the gods, and the nights will flame with fire. You will ride life straight to perfect laughter. It’s the only good fight there is. ~~Charles Bukowski
+ - A smile is a curve that sets everything straight. ~~Phyllis Diller
+ - Always remember that you are absolutely unique. Just like everyone else. ~~Margaret Mead
+ - A smile is the universal welcome. ~~Max Eastman
+ - I’m sorry, if you were right, I’d agree with you. ~~Robin Williams
+ - I know not all that may be coming, but be it what it will, I’ll go to it laughing. ~~Herman Melville
+ - The cause of laughter is simply the sudden perception of the incongruity between a concept and the real project. ~~Arthur Schopenhauer
+ - A day without laughter is a day wasted. ~~Charlie Chaplin
+ - I think we need more love in the world. We need more kindness, more compassion, more joy, more laughter. I definitely want to contribute to that. ~~Ellen DeGeneres
+ - It cannot be seen, cannot be felt, Cannot be heard, cannot be smelt, It lies behind stars and under hills, And empty holes it fills, It comes first and follows after, Ends life, kills laughter. ~~J. R. R. Tolkien
+ - Give up being right. Instead radiate peace, harmony, love, and laughter from your heart. ~~Deepak Chopra
+ - Laughter is the most inexpensive and most effective wonder drug. Laughter is a universal medicine. ~~Bertrand Russell
+ - I am Peter Pan. He represents youth, childhood, never growing up, magic, flying. ~~Michael Jackson
+ - It takes considerable knowledge just to realize the extent of your own ignorance. ~~Thomas Sowell
+ - The first half of life is learning to be an adult-the second half is learning to be a child. ~~Pablo Picasso
+ - By all means let’s be open-minded, but not so open-minded that our brains drop out. ~~Richard Dawkins
+ - Laughter and tears are both responses to frustration and exhaustion. I myself prefer to laugh, since there is less cleaning up to do afterward. ~~Kurt Vonnegut
+ - I celebrate myself, and sing myself, And what I assume you shall assume, For every atom belonging to me as good belongs to you. ~~Walt Whitman
+ - When the material, psychological and spiritual dimensions are brought into balance, life becomes whole, and this union brings feelings of comfort and security. ~~Deepak Chopra
+ - What brings understanding is love. When your heart is full, then you will listen to the teacher, to the beggar, to the laughter of children, to the rainbow, and to the sorrow of man. Under every stone and leaf, that which is eternal exists. ~~Jiddu Krishnamurti
+ - Ever since I was a little boy, I dreamed I would do something important in aviation. ~~Neil Armstrong
+ - I hope and hoping feeds my pain I weep and weeping feeds my failing heart I laugh but the laughter does not pass within I burn but the burning makes no mark outside. ~~Niccolò Machiavelli
+ - I left in love, in laughter, and in truth, and wherever truth, love and laughter abide, I am there in spirit. ~~Bill Hicks
+ - What if everything in the world were a misunderstanding, what if laughter were really tears? ~~Soren Kierkegaard
+ - For what do we live, but to make sport for our neighbors and laugh at them in our turn? ~~Jane Austen
+ - Laughter is the shock absorber that eases the blows of life. ~~Yogi Berra
+ - Audacious ribald: your laughter will finish in hideous boredom before morning. ~~George Bernard Shaw
+ - I live a very joyful life, with a lot of laughter and good times. ~~Kimberly Elise
+ - Nothing is worth more than laughter. It is strength to laugh and to abandon oneself, to be light. Tragedy is the most ridiculous thing. ~~Frida Kahlo
+ - The human race has one really effective weapon, and that is laughter. ~~Mark Twain
+ - Laughter is the language of the soul. ~~Pablo Neruda
+ - Today, give a stranger one of your smiles. It might be the only sunshine he sees all day. ~~H. Jackson Brown Jr.
+ - Our happiness depends on the habit of mind we cultivate. So practice happy thinking every day. Cultivate the merry heart, develop the happiness habit, and life will become a continual feast. ~~Norman Vincent Peale
+ - The surest sign that intelligent life exists elsewhere in the universe is that it has never tried to contact us. ~~Bill Watterson
+ - I learned law so well, the day I graduated I sued the college, won the case, and got my tuition back. ~~Fred Allen
+ - You can’t have everything. Where would you put it? ~~Steven Wright
+ - Real religion is the transformation of anxiety into laughter. ~~Alan Watts
+ - With mirth and laughter let old wrinkles come. ~~William Shakespeare
+ - Those people who think they know everything are a great annoyance to those of us who do. ~~Isaac Asimov
+ - A happy life consists in tranquility of mind. ~~Marcus Tullius Cicero
+
+40 quotes

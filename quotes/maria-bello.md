@@ -1,0 +1,24 @@
+ - Life goes so fast, and there is so much to do. But the moments that have enriched my life the most came when I slowed down and connected with the people I care about.
+ - I’m a girl who loves fashion. I’m such a Cinderella – I love to put on a great dress and heels. It’s fun!
+ - I just want to use all of myself, for the rest of my life, in every facet of my life, as long as I live.
+ - You serve the best by doing what you love the most.
+ - I don’t think you understand what levels or what fears until you have a child of your own. I mean, I’ve never loved someone so much and I’ve never been so afraid in my life. And the truth is I would kill someone, whoever tried to hurt him. I would. I have no doubt about it.
+ - You can be feminine and strong, at the same time. You can be a bad-ass and, at the same time, have a vulnerableness when you’re hysterically crying, like most of us girls.
+ - When I had my son, it was the worst day and the best day of my life because I realized that I will never love someone so much, but I will never be able to keep him from the lessons that he’s meant to learn, in this lifetime.
+ - My mother told me when I was a kid that each time we get to what feels like the edge of a cliff, we have two choices: to turn around and run, or to jump. I have learned over time to jump – and though it is scary, I know somewhere inside me that I will be caught.
+ - I was always anti-marriage. I didn’t understand monogamy. I couldn’t figure out how that could last. And then I met Bryn and I started to understand the beauty of constancy and history and change and going on the roller coaster with someone – of having a partner in life.
+ - People are kinda still a bit puritanical, perhaps. People don’t expect a woman to feel so open, in a way, about her sexuality onscreen, and they probably find it fascinating. I think more actors are doing it and being open to that and not being afraid of it, so it’s becoming less of a thing.
+ - I’m not afraid to play my age. I never was. I’ve never been an ingenue. I like getting older.
+ - People tend to think when you’re on dramatic films, that it’s all so heavy, but it’s really not when you’re working with great actors.
+ - There’s usually not a lot of rehearsal when you do films.
+ - When I do Pilates, or when I do work out, I feel better all day. Yet I still struggle to keep it on my schedule.
+ - I just have a gut feeling about something, if I really want to do it, if I’m excited about it, if I want to explore it. And that goes across all different sorts of genres.
+ - Acting and emotionally expressing myself, seeing the world and being a mom are just all very exciting to me. I’m a real curious person.
+ - I want to do more action adventures and more romantic comedies.
+ - I feel like, in a way, after doing it for so many years, you learn a certain concentration and how to turn it on and off.
+ - I was really conflicted. I had always planned to help the world. Instead, I was going to become an actress? That seemed like such a selfish thing to do.
+ - There is always one person on the set who has a lot of anxiety, an actor who is really intense and has to stay in character and holds himself away from the rest of us.
+ - So many actors wear wigs nowadays. Besides, if someone is hiring me because of how I wear my hair, I don’t want to work with them anyway.
+ - I’m interested in people who have lived, who are searching and questioning.
+
+22 quotes

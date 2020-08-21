@@ -1,0 +1,28 @@
+ - Behind all this, some great happiness is hiding.
+ - And as we stray further from love, we multiply the words. Had we remained together we could have become a silence.
+ - Every intelligent person, whether hes an artist or not – a mathematician, a doctor, a scientist – possesses a poetic way of seeing and describing the world.
+ - Jerusalem is a port city on the shore of eternity.
+ - Tonight I think again of many days that are sacrificed for one night of love. Of the waste and the fruit of the waste, of plenty and of fire. And how painlessly-time.
+ - From the place where we are right, flowers will not grow in the spring.
+ - The memory of my father is wrapped up in white paper, like sandwiches taken for a day of work. Just as a magician takes towers and rabbits out of his hat, he drew love from his small body.
+ - My poems are political in the deeper sense of the word. Political means to live in your time, to be a man of your time.
+ - The world of religion isn’t a logical world; that’s why children like it. It’s a world of worked-out fantasies, very similar to children’s stories or fairy tales.
+ - I’ve often said that all poetry is political. This is because real poems deal with a human response to reality and politics is part of reality, history in the making. Even if a poet writes about sitting in a glass house drinking tea, it reflects politics.
+ - And I said to myself: That’s true, hope needs to be like barbed wire to keep out despair, hope must be a mine field.
+ - It was not an adventure; it was my life.
+ - God has pity on kindergarten children.
+ - The reason a poet is a poet is to write poems, not to advertise himself as a poet.
+ - I think the end is endless. It’s either a big black hole or a big white light or both together. But it’s totally meaningless, because even if someone would explain it, I wouldn’t understand it.
+ - A flock of sheep near the airport or a high voltage generator beside the orchard: these combinations open up my life like a wound, but they also heal it. That’s why my feelings always come in twos.
+ - Love is like a reservoir of kindness and pleasure, like silos and pools during a siege.
+ - The phrase I like to use to describe my sense of time-a play on comparative literature-is comparative time.
+ - There are two languages: one as things seem to us and the other of knowledge.
+ - Knowledge of peace passes from country to country, like children’s games, which are so much alike, everywhere.
+ - I try to stay a civilian, to live as a human, not as a poet.
+ - I was a very religious child – I went to synagogue at least once, sometimes twice, a day. And I remember my religiousness as good – I think religion is good for children, especially educated children, because it allows for imagination, a whole imaginative world apart from the practical world.
+ - And what will you do now? You’ll collect loves Like stamps. You’ve got doubles and no one Will trade you and you have the damaged ones.
+ - I wanted to be calm, like a mound with all its cities destroyed, and tranquil, like a full cemetery.
+ - I’ve never been in those places where I’ve never been and never will be, I have no share in the infinity of light-years and dark-years, but the darkness is mine, and the light, and my time is my own.
+ - Even if a poet writes about sitting in a glass house drinking tea, it reflects politics.
+
+26 quotes

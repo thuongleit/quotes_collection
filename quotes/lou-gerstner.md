@@ -1,0 +1,47 @@
+ - Everything starts with the customer.
+ - People don’t do what you expect but what you inspect.
+ - I came to see, in my time at IBM, that culture isn’t just one aspect of the game; it is the game.
+ - Never confuse activity with results.
+ - Customer complaints are the schoolbooks from which we learn.
+ - IBM needed – an enormous sense of urgency.
+ - The thing I have learned at IBM is that culture is everything.
+ - I think that my leadership style is to get people to fear staying in place, to fear not changing.
+ - I look for people who work to solve problems and help colleagues, I sack politicians.
+ - The last thing IBM needs right now is a vision.
+ - Watch the turtle. He only moves forward by sticking his neck out.
+ - The real mechanism for corporate governance is the active involvement of the owners.
+ - Computers are magnificent tools for the realization of our dreams, but no machine can replace the human spark of spirit, compassion, love, and understanding.
+ - In the end an organization is nothing more than the collective capacity of its people to create value.
+ - We built this company from the customer back, not from the company out.
+ - I don’t want to use the word reorganization. Reorganization to me is shuffling boxes, moving boxes around. Transformation means that you’re really fundamentally changing the way the organization thinks, the way it responds, the way it leads. It’s a lot more than just playing with boxes.
+ - What I’m trying to do is deliver results, not promises; results, not vision; results, not concepts. The world is cynical about IBM’s promises.
+ - You don’t get points for predicting rain. You get points for building arks.
+ - The rewards system is a powerful driver of behavior and therefore culture.
+ - I want to take IBM back to its roots.
+ - No institution will go through fundamental change unless it believes it is in deep trouble and needs to do something different to survive.
+ - It is not about bits, bytes and protocols, but profits, losses and margins.
+ - The networked world offers the promise that maybe the information technology industry will start to, for the first time in a decade or so, address CEO-level issues.
+ - You can never be comfortable with your success, you’ve got to be paranoid you’re going to lose it.
+ - The Internet is ultimately about innovation and integration, but you don’t get the innovation unless you integrate Web technology into the processes by which you run your business.
+ - I think values are really, really important, but I also think that too many values are just words.
+ - If CEO compensation was performance-driven, which I believe it was in IBM’s case, nobody would ever argue. If the shareholders didn’t make billions and billions of dollars, I wouldn’t make millions of dollars. My salary was the same for 10 years. It was all performance-based.
+ - If the practices and processes inside a company don’t drive the execution of values, then people don’t get it. The question is, do you create a culture of behavior and action that really demonstrates those values and a reward system for those who adhere to them?
+ - I have always believed you cannot run a successful enterprise from behind a desk.
+ - Lou Gerstner knows how to do a deal, and George Bush Sr., less so.
+ - I firmly believe that IBM’s size can be used to its advantage.
+ - What we believe is going to be very important is the delivery of traditional software and services and hardware over the Net. That’s a form of electronic marketplace.
+ - If life was so easy that you could just go buy success, there would be a lot more successful companies in the world. Successful enterprises are built from the ground up.
+ - We do not need Departments of Commerce, Labor, and Education; we need a single Department of Skills that will promote an integrated approach to global competitiveness.
+ - Quite frankly, I am not very comfortable in chitchat. When I go to board meetings, I arrive two minutes before and leave when it’s over. I don’t stay for lunch or go early and have coffee.
+ - The next thing is: we can make IBM even better. We brought IBM back but we’re gunning for leadership.
+ - I’m leery of legislative solutions to what is morality.
+ - I initially wanted to be a teacher, and then I was going to become an engineer and build bridges and highways, but pretty soon I went into the business world. I never did get to be a teacher except in a different way.
+ - This really is a merger of equals. I wouldn’t have come back to work for anything less than this fantastic opportunity. This lets me combine my two great loves – technology and biscuits.
+ - A lot of people saved IBM. Yes, I was the leader of that team, but I could never have done it without a group of IBMers helping me.
+ - The world is full of CEOs that think that just because they write a memo or they write a letter inside an annual report or they give a little video speech that gets sent around the company, they think that’s what’s really going to affect employees.
+ - My parents worked enormously hard to put four children through college. We didn’t have a lot of money.
+ - For the first month, I listened, and I tried very hard not to draw conclusions.
+ - I want to become a student. I want to read Chinese history and go on a dig.
+ - Our military should be trained and structured around missions, not the elements of air, water, and land.
+
+45 quotes

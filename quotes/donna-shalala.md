@@ -1,0 +1,31 @@
+ - In fairy tales, the children are saved by caring adults. We need more caring adults in the lives of our children.
+ - I compensate for big risks by always doing my homework and being well-prepared. I can take on larger risks by reducing the overall risk.
+ - I bring other constituencies – I also have ties to minority communities. And obviously, to the world of world-class research universities. So I can bring some constituencies that I’m used to working with.
+ - You can’t have a university without having free speech, even though at times it makes us terribly uncomfortable. If students are not going to hear controversial ideas on college campuses, they’re not going to hear them in America. I believe it’s part of their education.
+ - Fear drives you and makes you better.
+ - By putting people around me who will calm me down and slow me down and make sure I work through an issue.
+ - The dog doesn’t know the difference between Saturday, Sunday, and Monday, so I have to walk the dog early those days too.
+ - We know the parental support, community support, makes a difference. It’s not just the metrics of testing and putting pressure on the schools and on the teachers.
+ - Our young people are out on the streets looking for parties, a place to dance, looking for a scene. No institutions are providing them with alternatives, fun things to do that don’t necessarily have alcohol at the center.
+ - I have long ties to the women’s community.
+ - Every year, I am reminded of the kids who aren’t in the freshman class and aren’t graduating. I remember every single one of them. That is the worst of times for me, to see the future snuffed out.
+ - I am interested in getting people to use the healthcare system at the right time, getting them to see the doctor early enough, before a small health problem turns serious.
+ - We have not yet concluded that needle-exchange programs do not encourage drug use.
+ - We are living longer, and we need to live better.
+ - In every community, whether large or small, there are people who lead in their community in easy and difficult times.
+ - Asking the government to help you for short periods of time is different than asking the government to take care of you for the rest of your life.
+ - We can’t afford as a nation – not because of money but because of our social fabric – to have large numbers of people who are not working.
+ - I think anyone that thought that we were coming in as a bunch of liberal Democrats to deliver more large-scale social programs was nuts. I sure didn’t expect it.
+ - I’ve spent my whole life with people underestimating me.
+ - We have to mainstream everybody. No matter what their circumstances when they were growing up. Part of that is knowing that after they’re finished with school, everybody in this country gets up and goes to work.
+ - You don’t want to destroy the energy that comes out of a campaign.
+ - I’m pretty disciplined and am almost always on schedule.
+ - I have to admit, in January and February I was in an absolute fuzz. I had no one on board. It wasn’t that I didn’t know what I was doing, but we didn’t have all the pieces put together.
+ - What you really remember at the beginning was that you have to throw a budget together. We made some terrible mistakes at the beginning in my own budget that took us at least a year to catch up on.
+ - I’ll be one of the spokespeople, one of the people who sells the Administration’s plans.
+ - Sure, it is apparent that presidents are looking at polls, but they are also stepping up on issues. President Clinton stepped up on tobacco. He shaped the polls on the tobacco issue.
+ - I try to deal with my serious reading before work.
+ - The government is fully capable of delivering services. Even complex services.
+ - I think President Bush tried to step up on Social Security even though the polls showed that was unpopular. He has not been successful and backed off, but I admire people who take on big problems.
+
+29 quotes

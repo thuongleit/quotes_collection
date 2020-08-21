@@ -1,0 +1,59 @@
+ - Creativity is allowing yourself to make mistakes. Art is knowing which ones to keep. ~~Scott Adams
+ - Creativity is intelligence having fun. ~~Albert Einstein
+ - The worst enemy to creativity is self-doubt. ~~Sylvia Plath
+ - Creativity is just connecting things. ~~Steve Jobs
+ - Creativity is knowing how to hide your sources. ~~Albert Einstein
+ - You can’t just turn on creativity like a faucet. You have to be in the right mood. What mood is that? Last-minute panic. ~~Bill Watterson
+ - You can’t use up creativity. The more you use, the more you have. ~~Maya Angelou
+ - Creativity requires the courage to let go of certainties. ~~Erich Fromm
+ - Don’t think. Thinking is the enemy of creativity. It’s self-conscious and anything self-conscious is lousy. You can’t try to do things. You simply must do things. ~~Ray Bradbury
+ - Vulnerability is the birthplace of innovation, creativity and change. ~~Brené Brown
+ - Everything begins with an idea. ~~Earl Nightingale
+ - Creativity takes courage.  ~~Henri Matisse
+ - Creativity is the greatest rebellion in existence. ~~Osho
+ - The chief enemy of creativity is good sense. ~~Pablo Picasso
+ - Failure is success in progress. ~~Albert Einstein
+ - And by the way, everything in life is writable about if you have the outgoing guts to do it, and the imagination to improvise. The worst enemy to creativity is self-doubt. ~~Sylvia Plath
+ - What keeps life fascinating is the constant creativity of the soul. ~~Deepak Chopra
+ - Creativity is an act of defiance. ~~Twyla Tharp
+ - There is no innovation and creativity without failure. Period. ~~Brené Brown
+ - The magic, the wonder, the mystery and the innocence of a child’s heart are the seeds of creativity that will heal the world. ~~Michael Jackson
+ - Learning gives creativity. Creativity leads to thinking. Thinking provides knowledge. Knowledge makes you great. ~~Abdul Kalam
+ - Creativity springs from the yearning to be the fullness of who you are. ~~Ram Dass
+ - Creativity is a wild mind and a disciplined eye. ~~Dorothy Parker
+ - I do not seek. I find. ~~Pablo Picasso
+ - Instead of competing, all we have to do is create. ~~Earl Nightingale
+ - Classes will dull your mind, destroy the potential for authentic creativity. ~~John Forbes Nash
+ - I have this mental sickness called creativity. ~~Philippe Starck
+ - To me, the greatest pleasure of writing is not what it’s about, but the inner music that words make. ~~Truman Capote
+ - An idea, like a ghost, must be spoken to a little before it will explain itself. ~~Charles Dickens
+ - The secret of unleashing your true power is setting goals that are exciting enough that they truly inspire your creativity and ignite yourpassion. ~~Tony Robbins
+ - The whole difference between construction and creation is exactly this: that a thing constructed can only be loved after it is constructed; but a thing created is loved before it exists. ~~Charles Dickens
+ - Gratitude in advance is the most powerful creative force in the universe. ~~Neale Donald Walsch
+ - The best ideas come as jokes. Make your thinking as funny as possible. ~~David Ogilvy
+ - If you gave your inner genius as much credence as your inner critic, you would be light years ahead of where you now stand. ~~Alan Cohen
+ - Creativity has much to do with experience, observation and imagination, and if any one of those key elements is missing, it doesn’t work. ~~Bob Dylan
+ - Anxiety is the hand maiden of creativity. ~~T. S. Eliot
+ - There is no such thing as a failed experiment, only experiments with unexpected outcomes. ~~R. Buckminster Fuller
+ - Anxiety is the dizziness of freedom. ~~Soren Kierkegaard
+ - I must create a system or be enslaved by another mans; I will not reason and compare: my business is to create. ~~William Blake
+ - There is a time and a place for creativity. ~~William Redington Hewlett
+ - It’s better to dance than to march through life. ~~Yoko Ono
+ - When words become unclear, I shall focus with photographs. When images become inadequate, I shall be content with silence. ~~Ansel Adams
+ - The road to enlightenment is paved with authenticity, not imitation. ~~Alan Cohen
+ - Humor is by far the most significant activity of the human brain. ~~Edward De Bono
+ - And that’s what innocence is. It’s simple and trusting like a child, not judgmental and committed to one narrow point of view. If you are locked into a pattern of thinking and responding, your creativity gets blocked. You miss the freshness and magic of the moment. Learn to be innocent again, and that freshness never fades. ~~Michael Jackson
+ - Each morning when I awake, I experience again a supreme pleasure: that of being Salvador Dali. ~~Salvador Dalí
+ - If uncertainty is unacceptable to you, it turns into fear. If it is perfectly acceptable, it turns into increased aliveness, alertness, and creativity. ~~Eckhart Tolle
+ - Experiencing sadness and anger can make you feel more creative, and by being creative, you can get beyond your pain or negativity. ~~Yoko Ono
+ - I call the age we are entering the creative age because the key factor propelling us forward is the rise of creativity as the primary mover of our economy. ~~Richard Florida
+ - I love reading about history. Sometimes, I feel I was born in the wrong era. There was more creativity in the air when people were still discovering new worlds. ~~Shakira
+ - Some might think that the creativity, imagination, and flights of fancy that give my life meaning are insanity. ~~Vladimir Nabokov
+ - God wants to increase you financially, by giving you promotions, fresh ideas and creativity. ~~Joel Osteen
+ - Vulnerability is the core of shame and fear and our struggle for worthiness, but it appears that it’s also the birthplace of joy, of creativity, of belonging, of love. ~~Brené Brown
+ - A man should hear a little music, read a little poetry, and see a fine picture every day of his life, in order that worldly cares may not obliterate the sense of the beautiful which God has implanted in the human soul. ~~Johann Wolfgang von Goethe
+ - Don’t hire a dog, then bark yourself. ~~David Ogilvy
+ - There is a boundary to men’s passions when they act from feelings; but none when they are under the influence of imagination. ~~Edmund Burke
+ - Creativity is an import-export business. ~~Ethan Zuckerman
+
+57 quotes

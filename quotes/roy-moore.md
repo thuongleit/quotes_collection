@@ -1,0 +1,29 @@
+ - Separation of church and state was never meant to separate God and government.
+ - The Ten Commandments are the divinely revealed law.
+ - Without God there would be no freedom to believe what you want.
+ - The basic premise of the Constitution was a separation of powers and a system of checks and balances because man was perceived as a fallen creature and would always yearn for more power.
+ - Worship With Your Vote.
+ - I was asked three times directly in the hearing before the board of the judiciary whether or not I would continue to acknowledge God if I were to resume my position as chief justice. And I said I would.
+ - I consider it my duty to acknowledge God. To take down the Ten Commandments and to stop holding prayer would be a violation of that duty. I will not take down the Ten Commandments and I will not stop holding prayer.
+ - If God gives you rights, no man and no government can take them away from you.
+ - God has chosen this time and this place so we can save our country and save our courts for our children.
+ - We may have failed to teach our children right from wrong, but we’ve done a great job of teaching self-esteem!
+ - The time has come to recover the valiant courage of our forefathers, who understood that faith and freedom are inseparable, and that they are worth fighting for.
+ - All the Ten Commandments and prayer is an acknowledgement of the Almighty God. We will not back down from that.
+ - We’ve voted in a government that’s rotting at the core, Appointing Godless Judges who throw reason out the door, Too soft to place a killer in a well deserved tomb, But brave enough to kill a baby before he leaves the womb.
+ - Anytime you deny the acknowledgement of God you are undermining the entire basis for which our country exists.
+ - The whole basis of the Constitution was a restriction of power, and the whole basis of the federalist system was that there was not one sovereign centralized power from which all authority flows.
+ - Indeed, the acknowledgement of God is not synonymous with religion.
+ - That’s not the federal law. What you’re confusing is law with the opinion of a justice, what one lone federal judge says is not law.
+ - If you’re here tonight to support me, you shouldn’t be here. This is not about me. This is about something far more important. It transcends race, it transcends politics, it transcends gender. This is about the laws of God.
+ - To restore morality we must first recognize the source from which all morality springs. From our earliest history in 1776 when we were declared to be the United States of America, our forefathers recognized the sovereignty of God.
+ - They might object to some of my opinions, but they don’t object to my behavior as a judge.
+ - I must acknowledge God. It says so in the Constitution of Alabama. It says so in the First Amendment of the Constitution.
+ - Acknowledgment of God is not now, or ever has been, a violation of the US constitution.
+ - And government’s only role is to secure our rights for us.
+ - It can have a secular purpose and have a relationship to God because God was presumed to be both over the state and the church, and separation of church and state was never meant to separate God from government.
+ - But in the long term, I think it is improper to limit your future.
+ - But I have made no plans to run for any office right now.
+ - Power’s not what the Constitution was about.
+
+27 quotes

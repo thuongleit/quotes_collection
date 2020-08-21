@@ -1,0 +1,87 @@
+ - Life is pain, highness. Anyone who says differently is selling something.
+ - Good night, Westley. Good work. Sleep well. I’ll most likely kill you in the morning.
+ - Her heart was a secret garden and the walls were very high.
+ - Love is many things none of them logical.
+ - Do I love you? My God, if your love were a grain of sand, mine would be a universe of beaches.
+ - Have fun storming the castle!
+ - My name is Inigo Montoya, you killed my father, prepare to die!
+ - Never get involved in a land war in Asia.
+ - Life isn’t fair, it’s just fairer than death, that’s all.
+ - When was the last time you read a book? The truth now. And picture books don’t count-I mean something with print in it.
+ - In Hollywood, no one knows anything.
+ - Since the invention of the kiss, there have only been five kisses that were rated the most passionate, the most pure. This one left them all behind.
+ - Cynics are simply thwarted romantics.
+ - Death cannot stop true love. All it can do is delay it for a while.
+ - Who says life is fair, where is that written?
+ - Let’s look on the bright side: we’re having an adventure, Fezzik, and most people live and die without being as lucky as we are.
+ - This is my favorite book in all the world, though I have never read it.
+ - I’m not witch. I’m your wife.
+ - Yes, I am a failed playwright. I had three shows on Broadway by the time I was 30. They all flopped, and I fled.
+ - True love is the best thing in the world, except for cough drops.
+ - Just because you’re beautiful and perfect, it’s made you conceited.
+ - People don’t remember me. Really. It’s not a paranoid thing; I just have this habit of slipping through memories. It doesn’t bother me all that much, except I guess that’s a lie; it does. For some reason, I test very high on forgettability.
+ - Get used to disappointment.
+ - I’ll tell you the truth and its up to you to live with it.
+ - I love you. Okay? Want it louder? I LOVE YOU. Spell it out, should I? I ell-oh-vee-ee why-oh-you. Want it backward? You love I.
+ - But when a girl gives a boy a dead squid – that had to mean something.
+ - The hollowness was in his arms and the world was snowing.
+ - I don’t guess. I think. I ponder. I deduce. Then I decide. But I never guess.
+ - You can never trust what you read.
+ - The first morning after Westley’s departure, Buttercup thought she was entitled to do nothing more than sit around moping and feeling sorry for herself. After all, the love of her life had fled, life had no meaning, how could you face the future, et cetera, et cetera.
+ - Whoever invented the meeting must have had Hollywood in mind. I think they should consider giving Oscars for meetings: Best Meeting of the Year, Best Supporting Meeting, Best Meeting Based on Material from Another Meeting.
+ - I’ve been saying it so long to you, you just wouldn’t listen. Every time you said ‘Farm Boy do this’ you thought I was answering ‘As you wish’ but that’s only because you were hearing wrong. ‘I love you’ was what it was, but you never heard.
+ - It’s an accepted fact that all writers are crazy, even the normal ones are weird.
+ - The Princess Bride S. Morgenstern’s Classic Tale of True Love and High Adventure You had to admire a guy who called his own new book a classic before it was published and anyone had a chance to read it.
+ - A good writer is not someone who knows how to write- but how to rewrite.
+ - Life is pain, highness. Anyone who says differently is selling something. If this is true, or if you are one of the people who believe this is true, then the one universal way to enjoy life is still the same, which is to learn to be grateful that it is not worse!!
+ - He had risked his life and now it was walking away from him, hand-in-hand with a Ruffian prince.
+ - Westley: This is true love – you think this happens every day?
+ - I know something you do not know. I am not left-handed either.
+ - The Duchess set about studying Annette and shortly found her adversary’s tragic flaw. Chocolate.
+ - I’ve been in the revenge buisness for so long, now that it’s over I don’t know what to do with the rest of my life.
+ - What kind of human person has a favorite eraser?
+ - You are trying to kidnap what I have rightfully stolen, and I think it quite ungentlemanly.
+ - There are always too few perfect breasts in this world; leave yours alone.
+ - You are wonderful, Father.“”I’m more than wonderful, how dare you insult me.
+ - No. Not yet. A craftsman only. But I dream to be an artist. I pray that someday, if I work with enough care, if I am very very lucky, I will make a weapon that is a work of art. Call me an artist then, and I will answer.
+ - Dummy, dummy, go out now and fill your tummy.
+ - Inigo Montoya: He’s right on top of us. I wonder if he is using the same wind we are using.
+ - Mawidge is a dweam wiffin a dweam. The dweam of wuv wapped wiffin the gweater dweam of everwasting west. Eternity is our fwiend, wemember that, and wuv wiw fowwow you fowever.
+ - Anything there is that I can do for you, I will do for you; anything there is that I cannot do, I will learn to do.
+ - I write out of revenge.
+ - As far as the filmmaking process is concerned, stars are essentially worthless – and absolutely essential.
+ - Flaws would not only bring death but, far worse, humiliation.
+ - I seemed busy, busy, busy, but I suppose, if pressed, I might have admitted that, for all my frenzy, I was very much alone.
+ - Never argue with your wife about hostility when she’s a certified Freudian.
+ - I am as devoted to adventure now as then, and that’s never going to stop.
+ - I guess the most amazing thing about crying though is that when you’re in it, you think it’ll go on forever but it never really lasts half what you think. Not in terms of real time. In terms of real emotions, it’s worse than you think, but not by the clock.
+ - Westley and I are joined by the bond of love and you cannot track that, not with a thousand bloodhounds, and you cannot break it, not with a thousand swords.
+ - Inside and out, Westley’s world was ripping apart and he could do nothing but crack along with it.
+ - Being a screenwriter is not enough for a full creative life.
+ - He was the mighty Fezzik, lover of rhymes, and you did not give up, no matter what.
+ - There is no room in my body for anything but you.
+ - You could concentrate much more deeply when you were alone with agony.
+ - Fezzik’s in trouble, bubble bubble, His brain is just not in the pink, His mind is rubble, rub-a-dub double, Because everyone needs him to think.
+ - I mean if we even had a wheelbarrow, that would be something.
+ - There were some things you did, no matter what, and when a friend needed help, you helped them.
+ - Duhhhhhhh, tanks, Buttercup.
+ - I just know once you’re over your emotional outbursts, you’ll come up with-? I mean if we even had a wheelbarrow, that would be something,? Westley said.
+ - One way an author dies a little each day is when his books go out of print.
+ - Inconceivable!
+ - The enemy is always in the mind.
+ - You have to protect your writing time. You have to protect it to the death.
+ - Mawwage. Mawwage is what bwings us together today.
+ - One of the things that happens to careers out here is that people destroy themselves because they begin to think they’re wonderful. They begin to think they know what they’re doing, and the minute that happens, it’s over.
+ - Existence was really very simple when you did what you were told.
+ - At 8:23 there seemed every chance of a lasting alliance starting between Florin and Guilder. At 8:24 the two nations were very close to war.
+ - Is this a kissing book?
+ - Never go in against a Sicilian when death is on the line.
+ - The boys. The beef-witted featherbrained rattleskulled clod-pated dim-domed noodle-noggined sapheaded lunk-knobbed boys. How could anybody accuse her of stealing them? Why would anybody want them anyway?
+ - There is one crucial rule that must be followed in all creative meetings. Never speak first. At least at the start, your job is to shut up.
+ - You have a dizzying intellect.
+ - My Westley will come for me.
+ - If all that’s going on in your scenes is what’s going on in your scenes, think about it a long time.
+ - Someone would have to keep his wits, and he had assumed automatically that since Fezzik had so few, he would find retaining them not all that difficult.
+ - When I was your age, television was called books.
+
+85 quotes

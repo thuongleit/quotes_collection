@@ -1,0 +1,55 @@
+ - Forgiveness is man’s deepest need and highest achievement.
+ - Somewhere under the stars God has a job for you to do and nobody else can do it.
+ - Every man’s life is a plan of God.
+ - The more difficulties one has to encounter, within and without, the more significant and the higher in inspiration his life will be.
+ - By His trials, God means to purify us, to take away all our self-confidence, and our trust in each other, and bring us into implicit, humble trust in Himself.
+ - Take your burdens, and troubles, and losses, and wrongs, if come they must and will, as your opportunities, knowing that God has girded you for greater things than these.
+ - As long as we abide in Christ, our action is from Him, not from our own corrupt and broken nature.
+ - It doth not yet appear what we shall be. We lie here in our nest, unfledged and weak, guessing dimly at our future, and scarce believing what even now appears. But the power is in us, and that power is finally to be revealed. And what a revelation will that be!
+ - A true Christian man is distinguished from other men, not so much by his beneficent works, as by his patience.
+ - Trust in God for great things. With your five loaves and two fishes He will show you a way to feed thousands.
+ - Jesus is the true manifestation of God, and He is manifested to be the regenerating power of a divine life.
+ - The resurrection morning is a true sun-rising, the inbursting of a cloudless sky on all the righteous dead. They wake transfigured, at their Maker’s call, with the fashion of their countenance altered and shining like His own.
+ - True conviction of sin – how difficult it is, when its appearances and modes of life are so fair, when it twines itself so cunningly about, or creeps so insidiously into, our amiable qualities, and sets off its internal disorders by so many outward charms and attractions.
+ - Guilt is the very nerve of sorrow.
+ - Christ’s sacrifice stands in glorious proportions with the work to be done. Nothing else or less would suffice. It is a work supernatural, transacted in the plane of nature; and what but such a work could restore the broken order of the soul under evil?
+ - To understand a philosopher requires a philosopher.
+ - Nature has no promise for society, least of all, any remedy for sin.
+ - Christ does not dress up a moral picture, and ask you to observe its beauty. He only tells you how to live; and the most beautiful characters the world has ever seen, have been those who received and lived these precepts without once conceiving their beauty.
+ - Go to your duty, every man, and trust yourself to Christ; for He will give you all supply just as fast as you need it. You will have just as much power as you believe you can have. Be a Christian; throw yourself upon God’s work; and get the ability you want in it.
+ - Nothing is necessary for you in maintaining a Christian life, but just to stay by the helm, and put yourself where the power is. Come unto God, unite yourself to God, and the doing power you have is infinite.
+ - O Thou Lamb of God that taketh away the sin of the world, what Thou bearest in Thy blessed hands and feet I cannot bear; take it all away. Hide me in the depths of Thy suffering love, mold me to the image of Thy divine passion.
+ - God made sin possible just as he made all lying wonders possible, but he never made it a fact, never set anything in his plan to harmonize with it. Therefore it enters the world as a forbidden fact against everything that God has ordained.
+ - Be an observer of providence; for God is showing you ever, by the way in which He leads you, whither He means to lead. Study your trials, your talents, the world’s wants, and stand ready to serve God now, in whatever He brings to your hand.
+ - It is only Christianity, the great bond of love and duty to God, that makes any existence valuable or even tolerable.
+ - Not all the winds, and storms, and earthquakes, and seas, and seasons of the world, have done so much to revolutionize the earth as Man, the power of an endless life, has done since the day he came forth upon it, and received dominion over it.
+ - Christ commands you to take up His cross and follow Him, not that He may humble you, or lay some penance upon you, but that you may surrender the low self-will and the feeble pride of your sin, and ascend into the sublime patience of heavenly charity.
+ - Jesus does not drive His followers on before, as a herd of unwilling disciples, but goes before Himself, leading them into paths that He has trod, and dangers He has met, and sacrifices He has borne Himself, calling them after Him and to be only followers.
+ - Christ is known only by them that receive Him into their love, their faith, their deep want; known only as He is enshrined within, felt as a Divine force, breathed in the inspirations of the secret life.
+ - We come, in our trust, unto God, and the moment we so embrace Him, by committing our total being and eternity to Him, we find every thing is transformed. There is life in us from God; a kind of Christ-consciousness is opened in us, testifying with the apostle, – Christ liveth in me.
+ - O, if there be any kind of life most sad, and deepest in the scale of pity, it is the dry, cold impotence of one, who has honestly set to the work of his own self-redemption.
+ - Live as with God; and, whatever be your calling, pray for the gift that will perfectly qualify you in it.
+ - We shall never recover the true apostolic energy, and be endued with power from on high, as the first disciples were, ’till we recover the lost faith.
+ - There never has been a great and beautiful character, which has not become so by filling well the ordinary and smaller offices appointed of God.
+ - It is not necessary for all men to be great in action. The greatest and sublimest power is often simple patience.
+ - The peoples of the old world have their cities built for times gone by, when railroads and gunpowder were unknown. We can have cities for the new age that has come, adopted to its better conditions of use and ornament. We want, therefore, a city planning profession...
+ - Christianity is not so much the advent of a better doctrine as of a perfect character.
+ - However dark our lot may be, there is light enough on the other side of the cloud...
+ - Education is only second to nature.
+ - A house without a roof would scarcely be a more different home, than a family unsheltered by God’s friendship, and the sense of being always rested in His providential care and guidance.
+ - God listens for nothing so tenderly, as when His children help each other by their testimonies to His goodness and the way in which He has brought them deliverance.
+ - Morality, taken as apart from religion, is but another name for decency in sin. It is just that negative species of virtue which consists in not doing what is scandalously depraved and wicked. But there is no heart of holy principle in it, any more than there is in the grosser sin.
+ - O, if we could tear aside the vail, and see for but one hour what it signifies to be a soul in the power of an endless life, what a revelation would it be!
+ - If you had the seeds of pestilence in your body you would not have a more active contagion that you have in your tempers, tastes, and principles. Simply to be in this world, whatever you are, is to exert an influence, compared with which mere language and persuasion are feeble.
+ - We are to work after no set fashion of high endeavor; but to walk with Jesus, performing, as it were, a ministry on foot, that we may stop at the humblest matter, and prove our fidelity there.
+ - Christ is redemption only as He actually redeems and delivers our nature from sin. If He is not the law and spring of a new spirit of life, He is nothing. “As many as are led by the Spirit of God, they are the sons of God,” as many, no more.
+ - Christ wants to lead men by their love, their personal love to Him, and the confidence of His personal love to them.
+ - Morality, taken as apart from religion, is but another name for decency of sin.
+ - Fashionable dances as now carried on are revolting to every feeling of delicacy and propriety and are fraught with the greatest danger to millions.
+ - Persecution has not crushed it, power has not beaten it back, time has not abated its force, and, what is most wonderful of all, the abuses and treasons of its friends have not shaken its stability.
+ - Habits are to the soul what the veins and arteries are to the blood, the courses in which it moves.
+ - Faith is the act of trust by which one being, a sinner, commits himself to another being, a Saviour.
+ - Be sure that Christ is not behind you, but before, calling and drawing you on. This is the liberty, the beautiful liberty of Christ. Claim your glorious privilege in the name of a disciple; be no more a servant, when Christ will own you as a friend.
+ - It is the grand endeavor of the gospel to communicate God to men.
+
+53 quotes

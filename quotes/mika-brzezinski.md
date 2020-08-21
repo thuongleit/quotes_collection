@@ -1,0 +1,31 @@
+ - Don’t apologize for asking for what you deserve.
+ - Often I feel like I can run forever. If someone told me I had to run for 10 hours, I probably could.
+ - Everyday I find myself reminding women around me to know their value. I also have to remind myself.
+ - A bad boyfriend is someone you give everything to – you live with him, cook for him, sleep with him – thinking he is going to marry you and then he doesn’t. When you are giving your all to a job and not getting credit, your job is a bad boyfriend.
+ - Don’t make your journey through life harder by placing rules on yourself like, ‘I can’t get married till I get promoted to your dream job.’
+ - We have to stop judging people who are struggling with their weight.
+ - If we can’t quantify and communicate our value with confidence, the achievements of the tremendous women before us will have all been for nothing.
+ - I suffered from a mild case of postpartum depression after my second child and the physical challenge of maintaining an overnight shift at CBS, a marriage, and two in diapers made the symptoms worse and everyone in the house paid the price.
+ - A fundamental lesson on being fired: Never lie about it. People will know what you’re saying is a cover-up for how you really feel – embarrassed, discouraged, and afraid.
+ - Finding a job is hard enough, but have you ever considered the odds and the challenges of finding a good man?
+ - There’s always more money to be made.
+ - My salary situation at ‘Morning Joe’ wasn’t right. I made five attempts to fix it, then realized I’d made the same mistake every time: I apologised for asking.
+ - We have to unclutter our brains from worries that maybe people don’t like us. Women tend to worry about popularity; it doesn’t matter if they like you. They need to respect you. They need to show that respect for you in your pay check. And that needs to be okay.
+ - My family was always active, and our thing was family walks. Not walks around the block, but more like eight-mile hikes up mountains.
+ - I try my best to be extremely disciplined about my diet.
+ - My parents found me very difficult to educate.
+ - I am not afraid to say my relationship with my man is important, even vital, to who I am as a person.
+ - I think women have a hard time not apologizing their way into negotiations. We tend to back in to these conversations in a self-deprecating and ultimately self-defeating way.
+ - I’d been fired by CBS News in a semipublic way, and as the months went by, there was a perception that I was damaged goods.
+ - After being let go from CBS and looking for a year for work, I will never catch myself complaining about being too busy.
+ - On ‘Morning Joe’ I can say what I think, be my sometimes unorthodox self, have fun, yet be serious as well.
+ - I have mugs of hot water every morning because the studio is cold, and also because it makes my throat sound clearer.
+ - Women play into each other’s weaknesses.
+ - Why don’t these companies making big profits just pay people better than $14 an hour? It’s kind of simple. When you’re making record profits, why not? I don’t get it.
+ - Despite my professional experience, the fifteen-hour workdays, and a successful new show that I had helped build, MSNBC was still refusing to pay me what I was worth.
+ - I’ve worked with Ed Bradley, Dan Rather and lots of different local news anchors.
+ - I was fired at the pinnacle of my career, on my 39th birthday. And in the year that followed, I learned that there are many psychological phases of being ‘let go.’
+ - Being unemployed has so many real and palpable ramifications but there are also psychological side effects which you can only understand if youve truly lived through it.
+ - The needs of babies and toddlers were constant and drained the life out my sense of self and my familys relationship with each other.
+
+29 quotes

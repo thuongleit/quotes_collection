@@ -1,0 +1,81 @@
+ - Don’t be afraid to close your eyes and dream, but then open your eyes and see.
+ - If you dream and you believe, you can do it.
+ - If you’re chasing your dream, you’re not running fast enough. Run faster.
+ - Words can’t express what you mean to me.
+ - If you want something bad enough and you have that desire, you’ll walk to another state or country if you have to.
+ - Keep on pushing the boundaries and reaching for higher heights.
+ - Initiative is key. Anybody who wants to be somebody is going to work as hard as they can to fulfill that dream.
+ - The sun don’t shine forever, but as long as it’s here, then we might as well shine together.
+ - I came in to win, you know. This is why I stay up late while other people are sleeping.
+ - I’ve always been a daydreamer.
+ - I want to have a cultural impact. I want to be an inspiration, to show people what can be done.
+ - Music is the most powerful form of communication in the world. It brings us all together. Even religion separates us, but a hit record unites us across religious beliefs, race, politics.
+ - Though I love you like a brother, I would rather be your lover.
+ - I don’t believe in fear – I live my life without regrets.
+ - Put up your guards, keep faith in God, I promise you all the world will be ours.
+ - I don’t say it in a cocky way, but I take pride in being one of the best at doing what I do.
+ - Do you know how powerful you are?
+ - I’m the definition of half man, half drugs.
+ - I miss my kids sometimes and that can get me down when I’ve been away working, but then I wake up and recognize how incredibly lucky I am. Spending time being down is less time out there achieving and enjoying.
+ - But treat dimes fair and I’m bigger than the city lights down in times square.
+ - Can’t nobody take my pride. Can’t nobody hold me down.
+ - Let your soul lead the way, cause I’m that enemy that you can’t see.
+ - My mind is always racing, and always going and always working, and it’s a gift and a curse.
+ - I can’t say that I’ve fully achieved my dream yet. I’m just starting to evolve.
+ - You should do what we do, stack chips like Hebrews.
+ - I feel safe in white because deep down inside, I’m an angel.
+ - Lil Wayne is definitely the greatest youngest rapper alive.
+ - Get money, have fun and treat a woman like she’s a queen.
+ - Everyone has challenges and lessons to learn – we wouldn’t be who we are without them.
+ - I just want to be happy. You know what I’m saying? I just want to be happy, and I want to be able to make somebody else happy.
+ - Sleep is forbidden. When I’m working, I’m a machine and I don’t look at other people like they are human.
+ - At an early age, I started my own paper route. Once I saw how you could service people and do a good job and get paid for it, I just wanted to be the best I could be in whatever I did.
+ - It feels like I could go outside with a bikini thong on right now.
+ - Gotta be more than grabbing nines to buck tin in, gotta be more than just to lust women, gotta be more than platinum Rolexes.
+ - I want to convey how beautiful it is to close your eyes and dream. And then to open them and make that dream a reality.
+ - You have to be somewhat crazy, if you want to be successful.
+ - I got a chance to have my dream come true, and I wanted to make sure I made the decision as to when I dropped my last album. If I don’t feel like this album is an incredible piece of work, then I’m cool with the albums I’ve done. I don’t have to put out another album.
+ - Bad Boy Entertainment did not shoot anybody. I didn’t shoot anybody.
+ - Take the craziest dream you ever had and go after it. Make it a reality. I don’t want you to dream, I want you to do.
+ - I demand the best. Sleep is forbidden. If you work for me, you have to roll how I roll. Im not really human. Im like a machine.
+ - My message is all about peace.
+ - If you’re looking for a deep album or you’re looking for me to talk about past situations, it’s not even about that. It’s just 14 hot records that are gonna make you dance.
+ - I’m glad the truth is out. I’m glad everyone knows I’m innocent, not guilty.
+ - Nearly every black man faces an unacceptable level of violence in this society. I’m not different. Money can shield you; it can protect you. But it doesn’t make you white.
+ - I want to give a shout-out to all my Saudi Arabian brothers and sisters. If you could all please send me some oil for my jet, I would truly appreciate it.
+ - It is going to be changed to straight P. Diddy. You could call me P. or Diddy, or P. Diddy. I just want something fresh, man.
+ - I’ve got to take a break, to be honest. I’m not even going to lie.
+ - It just gets draining on a person being in the papers every day. So I was like, I’m gonna come back here. I want to talk to all the people, the fans. I want to let them know how much I appreciate all their support.
+ - Smell is incredibly important and sensual; it communicates who you are.
+ - You must wanna be in the Guinness Book of World Records as the dumbest.
+ - Fans made me. The fans gave me a chance, and they made me. Beyond that, my career has been trials and tribulations and ups and downs, so I have to have true fans riding with me.
+ - We value-packs, you all small fries.
+ - I think that’s good that I have to watch how I act and what I say. I think that’s a part of growing up.
+ - My mother was always working for a job, so I guess I was always trained that I should have multiple jobs, multiple aspirations. And I remember she had multiple aspirations, always hearing about her dreams and things she did in the past and things she wanted to do.
+ - We used to talk about wanting to get some money, but that’s when hip-hop was based on your dreams and your fantasy. The whole thing now is the dreams and fantasies were achieved, and you don’t want to make it the focal point. You can’t keep beating that dead horse.
+ - I’m a big Backstreet Boys fan. I always give y’all shoutouts. I love the things y’all do.
+ - Revolt is my new – cable music network. It’s distributed through Time Warner and Comcast. And to put it simply, it is the ESPN of music.
+ - Never is my life have I ever experienced anything as crazy as this.
+ - It’s okay to be crazy, but don’t be insane.
+ - Don’t get yourself in certain circumstances or instances, because it’s not a good feeling to be sitting in that chair where you’ve got 12 people that are in control of your life. You have an opportunity to be in control of your life for yourself by the decisions that you make.
+ - All I’ve been trying to do all my life is to make great music.
+ - I’ve never really taken more than four days off, so it was a lot for me to go away for three-and-a-half months. I went all over Europe. I walked on a whole bunch of beaches and I did a lot of thinking.
+ - Being from New York, there’s three things you know about Hollywood. You know about the Hollywood sign, Sunset Strip and Hollywood Boulevard with the stars.
+ - I have so much respect for people in the theater. You can’t do 10 or 15 takes. It’s all live. It’s like life in motion.
+ - I think that you have to believe. That’s one of my biggest mantras, is believe. I wouldn’t be here if I didn’t believe in myself.
+ - When I decided I wanted to be an actor, I said I wanted to work with quality actors and directors.
+ - One of my weaknesses is that I actually have a conscience.
+ - I have learned to enjoy the ups for what they are, because those are the moments that feel like they go by the quickest.
+ - I take pride in being one of the most successful producers in hip-hop history, having the most successful record in hip-hop history, I have the most number ones.
+ - Picture all the money that I’ve gotten off tours. Now picture me plotting for more.
+ - I’m hyperactive, and I went in the studio and I would just start making records, for no reason.
+ - I would never withhold information about the murder of my man Biggie, or anybody else. It’s just silly and ridiculous. The accusations are just flying out. All I’ve been trying to do all my life is to make great music.
+ - I’m in the studio 24 hours a day. It’s true that once you get a certain level of success, you become a target. Talk magazine should be ashamed of themselves.
+ - I think Hanson is gonna be around for a long time. I think that they’re three great, talented young men.
+ - I love New York, it’s always been my home. It has everything – music, fashion, entertainment, impressive buildings, huge parks, street cafes. And it’s very international, with people from all over the world.
+ - If I change my name again y’all can have me certified as crazy. Alright?
+ - I wouldn’t abandon nobody. I would be lying if I said I was just talking to everybody.
+ - Ive always been a daydreamer. When the other kids were playing, I was listening to the roar at Yankee Stadium – I was always attracted to the roar of the crowd.
+ - There’s a huge AIDS epidemic in Africa, and one of Bad Boy’s plans this year is to give more awareness to that. We’re gonna be doing a big charity concert helping to save some of the brothers and sisters in Africa.
+
+79 quotes

@@ -1,0 +1,119 @@
+ - Don’t ever, for any reason, do anything to anyone, for any reason, ever, no matter what.
+ - The only time I set the bar low is for limbo.
+ - A warrior with a cause is the most dangerous soldier of all.
+ - Imagination is more important than knowledge. For knowledge is limited to all we know and understand, while imagination embraces the entire world, and all there ever will be to know and understand.
+ - The day we stop learning is the day we die.
+ - Sometimes I’ll start a sentence and I don’t know where it’s going. I just hope to find it somewhere along the way. Like an improv conversation. An improversation.
+ - The line between confidence and arrogance is very fine, and the line between arrogance and stupidity even finer.
+ - In my experience, we only ever regret the things we have not done.
+ - I am both a night owl and an early bird. So I am wise and I have worms.
+ - The strong survive, but the courageous triumph.
+ - Make friends first, make sales second, make love third. In no particular order.
+ - It’s never too early for ice cream.
+ - Do I want to be feared or loved? That’s a good question. I want both. I want people to be afraid of how much they love me.
+ - Great change always comes down to the actions of a single person.
+ - Guess what? I have flaws. What are they? Oh I donno, I sing in the shower? Sometimes I spend too much time volunteering. Occasionally I’ll hit somebody with my car. So sue me – no, don’t sue me. That is opposite the point I’m trying to make.
+ - Every story starts with an idea, but it is the characters that move this idea forward.
+ - We’re all homos. Homo sapiens.
+ - Do I need to be liked? Absolutely not. I like to be liked. I enjoy being liked. I have to be liked. But it’s not like a compulsive need to be liked. Like my need to be praised.
+ - Fools lie, clever men stick to the truth.
+ - Distance makes everything beautiful.
+ - We humans are nothing more than the sum of our memories.
+ - Abraham Lincoln once said that if you are a racist, I will attack you with the north. And those are the principles that I carry with me in the workplace.
+ - Am I a hero? I really can’t say, but yes.
+ - Wait. Look. Notice. If you keep those three words in mind, you just might survive the next few days.
+ - I love inside jokes. I hope to be a part of one some day.
+ - There is no such thing as an appropriate joke. That’s why it’s a joke.
+ - At the heart of every legend there is a grain of truth.
+ - And once begun, change cannot be reversed.
+ - I’ll have an awesome blossom, EXTRA awesome.
+ - The people that you work with are, when you get down to it, your very best friends.
+ - My mom always used to say that average people are the most special people in the world. And that’s why God made so many.
+ - You are not living, you are surviving.
+ - Reverse psychology is an awesome tool, I don’t know if you guys know about it, but basically you can make someone think the opposite of what you believe, and that tricks them into doing something stupid. Works like a charm.
+ - First up, the lost and found has gone missing. It itself, is lost. So please try not to lose anything until we find it.
+ - I swore to myself that if I ever got to walk around the room as manager, people would laugh when they saw me coming, and would applaud as I walked away.
+ - Wikipedia is the best thing ever.
+ - What is it like being single? I like it! I like starting each day with a sense of possibility. And I’m optimistic, because everyday I get a little more desperate. And desperate situations yield the quickest results.
+ - You don’t call retarded people retards. It’s bad taste. You call your friends retards when they are acting retarded.
+ - But the truth is a double-edged sword; it is a dangerous thing.
+ - A good story is always a journey. It is about taking the journey, the people the hero meets along the way and how they change him or her. All stories are journeys. They don’t have to be shocking or outrageous: they simply have to be interesting.
+ - You must learn to heed your senses. Humans use but a tiny percentage of theirs. They barely look, they rarely listen, they never smell, and they think that they can only experience feelings through their skin. But they talk, oh, do they talk.
+ - Coffee is the great incentivizer in the office.
+ - He who retreats lives longer.
+ - When I said that I was king of forwards, you’ve got to understand that I don’t come up with this stuff. I just forward it along. You wouldn’t arrest a guy who was just passing drugs from one guy to another.
+ - Good or bad is a matter of perspective. I met an immortal hunami once, a man called William Shakespeare, who wrote that there is nothing either good or bad, but thinking makes it so.
+ - Negotiations are about controlling things, about being in the driver’s seat and make one tiny mistake; you’re dead. I made one tiny mistake, I wore women’s clothes.
+ - I don’t want somebody sucking up to me because they think I am going to help their career. I want them sucking up to me because they genuinely love me.
+ - This year, more people will use cocaine than will read a book to their children.
+ - Knowledge itself is never dangerous, it is how that knowledge is used that is dangerous.
+ - 'What is the greatest mistake a parent can make?' she asked. 'To believe that your children will be just like you.'
+ - Presents are the best way to show someone how much you care. It is like this tangible thing that you can point to and say, Hey man, I love you this many dollars-worth.
+ - I never avoid something that challenges my guts and my heart. While I might occasionally puke my guts out, I have never puked my heart out.
+ - The research. It is always the best part of writing. And, of course, it is the great excuse to travel.
+ - Love is the water of life, drink deeply.
+ - We do not always get what we want. Sometimes life presents us with surprises.
+ - You know I hate disappointing even one person, and I really hate disappointing everyone but I love burlington coat factory.
+ - To remain unknown in this modern world: that, indeed, is real power.
+ - There is always something to see, if you only know how to look.
+ - Water is the life-giver and the death-bringer.
+ - Being immortal must have a lot of attractions. You can travel all over the world, see everything, do everything. But what happens if you are immortal and your friends and family are not? You are then destined to watch them age and die.
+ - The fifth force was the magic of Time, the greatest of all the magics.
+ - The best moment is when you walk into a bookstore and see a pile of your books – that is the oddest experience in the world!
+ - The two that are one, the one that is all!
+ - Good collaboration essentially boils down to personalities who work well together and are able to integrate each other’s notes and ideas without killing each other.
+ - It is St. Patrick’s Day. And here in Scranton, that is a huge deal. It is the closest that the Irish will ever get to Christmas.
+ - Once you have been touched by magic, you are forever changed. You leave a trail.
+ - My advice is to write about what you are interested in. If you read science fiction and fantasy, then write in that genre. If you read romance novels, then try writing one.
+ - People are dying who haven’t had that opportunity to say yes to the Lord.
+ - A boy and a girl, dressed in the T-shirts and denim that are the shabby uniform of this age.
+ - You told me it was a mistake to fight the scarred warriors. They were the survivors.
+ - And in their rush to create wonders, they have ignored the wonders all around them, ignored the mysteries, the beauty.
+ - Even that. What is the point in living forever, if it is not with the woman I love?
+ - Here words can kill – literally.
+ - What you call magic is nothing more than an act of the imagination fired by the senses, then given shape by the power of your aura.
+ - The biggest challenge in working together is simply listening;.
+ - Middle school’s amazing. It is extraordinary. An extraordinary time.
+ - What the guys have learned is that whether you’re preaching to one or 10,000, it really doesn’t matter. That one person you touch may change the nation – could be the Billy Graham of Ethiopia.
+ - People get caught up in asking whether Americans should be going here or there. What it boils down to is the call of the Lord. If the Lord has called you to a specific area, that’s where you are going to see the fruit.
+ - I never base characters on real people – you can get into so much trouble that way!
+ - You’re saying we lost the powers of magic because we grew lazy.
+ - The most reward experience is having another writer come up to you and say that they started writing because they read my books. That is how writing as a profession continues: readers becomes writers who inspire new readers.
+ - I have a huge music library and deliberately choose the piece of music to match the piece I’m writing. So, every book I write has its own “soundtrack.”
+ - I’m probably better known in the US as a YA writer, I have a huge body of adult horror and fantasy behind me.
+ - I’m always writing – its what I like to do. But when I’m not writing, I’m reading.
+ - I am thrilled when I read about fans using my stories as springboards to read about either the historical characters or the myths and legends in the books.
+ - I’m not a magician. I’am an alchemyst, a man of science, though perhaps not the science you would be familiar with.
+ - He is many things – dangerous and devious, cunning and deadly, a good friend and an implacable enemy – but he comes from an age when a man’s word was indeed precious.
+ - I am Michael, and I am part English, Irish, German, and Scottish, sort of a virtual United Nations.
+ - Just as a pebble thrown into the water creates ripples, so our thoughts create similar effects on our palms.
+ - There was no honor in war, less in killing, and none in dying. But there was true dignity in how men comported themselves in battle. And there was always honor to be found in standing for a just cause and defending the defenseless.
+ - Master the rules of the game until you can play it better they can.
+ - I was born and raised in Dublin, Ireland and it is still home to me. My writing has taken me all over the world, but this is the place I come back to and the place where I find it easiest to write.
+ - I am a great believer that all the primary research has to be done before principle writing begins. I’m a huge advocate of plotting.
+ - The Elders had nothing but contempt for human emotion; they considered it their biggest weakness. Perenelle knew it was humankind’s greatest strength.
+ - But magic is really only the utilization of the entire spectrum of the senses.
+ - Villains often more the story along while the heros react to the villains, so the villain becomes the engine of the story.
+ - The SUV was the only car moving. Josh had his foot pressed flat to the floor, and the needle on the speedometer hovered close to eighty. He was becoming more comfortable with the controls – he hadn’t hit anything for at least a minute.
+ - Nicholas: One of the oldest secrets of alchemy is that every living thing, from the most complex creatures right down to the simplest leaf, carries the seeds of its creation within itself. Josh: DNA.
+ - All great literary works influence us as writers, not their stories as much as their storytelling ability.
+ - There are some adventures not worth having.
+ - Artists want to sell their work, sure. But they aren’t out there asking questions about what people want and what they don’t want, now are they?
+ - Research is always the best part. As we dug deeper into the history and mythology behind each of the hallows, we discovered more and more stories – some of them deserving of novels in themselves.
+ - Adults, Sophie has decided a long time before, were really bad at making up good excuses.
+ - The idea of selling a Cezanne to buy a Morisot seems explosively contentious.
+ - The credibility of any item in finance is inversely proportionate to the amount of publicity it receives.
+ - In fact, writing for younger adults is tougher. They remember everything and if they spot a problem, they’ll be sure to let you know.
+ - I wanted to be a librarian from a very young age. Some of my earliest memories are being taken to the local library. I ended up working as a bookseller. Becoming a writer was the logical offshoot of being a reader.
+ - Making sure that the geography and timelines work is always the hardest part of writing. But you owe it to the readers to get it right!
+ - I have been very lucky: my writing has taken me across the world, and I have seen some extraordinary sites and sights.
+ - When you’ve lived as long as I have, nothing much surprises you.
+ - Here, you can walk into a bookstore and pick up a Bible or Christian literature and learn. Over there, they are lucky if they have one Bible for a whole village.
+ - Some stories wait their turn to be told, others just tap you on the shoulder and insist you tell them.
+ - It’s always been Apple’s goal to ship something we were proud of and something people would be proud to own, and I think that’s still true from thirty years ago.
+ - But what science cannot understand, it dismisses.
+ - The problem with contemporary art is that no one bothers to do the research necessary to give people what they want.
+ - You might argue that the history of contemporary art is a series of avant-garde movements, each new wave outraging the last.
+ - Most writers, I’m afraid, live very boring lives sitting in front of a screen. However, having said that: every writer puts a bit of themselves into the characters to bring them alive.
+
+117 quotes

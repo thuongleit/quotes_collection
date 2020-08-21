@@ -1,0 +1,32 @@
+ - I feel sorry for people who don’t drink. When they wake up in the morning, that’s as good as they’re going to feel all day.
+ - Everybody Loves Somebody Sometime.
+ - Love is a flower that blooms so tender, each kiss a dew drop of sweet surrender. Love is a moment of life enchanting, let’s take that moment that tonight is granting.
+ - Motivation is a lotta crap.
+ - You’re not drunk if you can lie on the floor without holding on.
+ - If this is just the beginning, my life’s gonna be beautiful.
+ - If you drink don’t drive. Don’t even putt.
+ - I was so drunk last night I fell down and missed the floor.
+ - Your love made it all worth waiting for some like you.
+ - Return to me, for my heart wants you only. Hurry home, hurry home, won’t you please hurry home to my heart.
+ - Everybody makes mistakes; look at Hitler.
+ - When the world seems to shine like you’ve had too much wine, that’s amore.
+ - Your lips and mine, two sips of wine, memories are made of this.
+ - In a tuxedo, I’m a star. In regular clothes, I’m a nobody.
+ - When Jerry Lewis and I were big, we used to go to parties, and everybody thought I was big-headed and stuck up, and I wasn’t. It was because I didn’t know how to speak good English, so I used to keep my mouth shut.
+ - The reason I drink is because when I’m sober I think I’m Eddie Fisher.
+ - The world is the same you never change it, as sure as the stars shine above. Well, you’re nobody til somebody loves you, so find yourself somebody to love.
+ - Somewhere there’s a someone for me. Though I may be lonely now, I’ll see it through somehow, to somebody’s heart I know I hold the key.
+ - I take the juice of two bottles of whisky.
+ - If people want to think I get drunk and stay out all night, let’em. That’s how I got here you know I drink because my body craves, needs alcohol. I don’t drink, my body’s a drunk.
+ - We try to find chemistry; we don’t do a lot of situational baseball.
+ - The whole world is drunk and we’re just the cocktail of the moment. Someday soon, the world will wake up, down two aspirin with a glass of tomato juice, and wonder what the hell all the fuss was about.
+ - Haven’t got a girl, but I can wish. So I’ll take me down to Main Street and that’s where I’ll select my imaginary dish.
+ - In order to share intimate feelings, you have to have intimate feelings.
+ - With his blessings from above, serve it generously with love. One man, one wife, one love, through life.
+ - Brother, you can’t go to jail for what you’re thinking, or that look in your eye, just standing on the corner watching all the girls go by.
+ - There’s a statue of Jimmy Stewart in the Hollywood Wax Museum, and the statue talks better than he does.
+ - I know it’s the gentlemanly thing to let the wife file. But, then, everybody knows I’m no gentleman.
+ - The thing I notice first about a woman is her walk. A beautiful woman is like a race horse-slim, sleek and with a beautiful carriage.
+ - I once shook hands with Pat Boone and my whole right side sobered up.
+
+30 quotes

@@ -1,0 +1,26 @@
+ - Alcoholism is a well documented pathological reaction to unresolved grief.
+ - Life has a strange way of working itself out.
+ - If you wanna know the truth, you make or break my day. If you wanna know the truth, I wouldn’t have it any other way.
+ - If you can’t do anything about it, laugh like hell.
+ - I think the future is whatever I’m willing to make it.
+ - My brothers are my backbone. My parents are my oxygen. I can’t live without them.
+ - Enjoy the experience, don’t just experience the experience.
+ - I think every good song tells a story, as ambiguous and vague as it may be. And if you know what a song is talking about, it can only help your performance.
+ - I absolutely think the Seattle grunge sound was instrumental to my music education.
+ - I will never shy away from embarrassing myself for a good cause.
+ - I actually got to write with one of my musical heroes, a guy named Raine Maida from Our Lady Peace. I got to sit down and write some songs with him, and that was pretty heavy. I listened to Our Lady Peace growing up. It got me through the teenage angst.
+ - I knew at the time my haircut was pretty damn god-awful, so I was just hoping that I wasn’t one of the joke ones. And they put me through to Hollywood and I thought, “Well okay, maybe I’m still one of the joke ones but at least I’m not terrible?”
+ - With the Chiefs, you can’t live in Kansas City and not like the Chiefs. To go catch a game at Arrowhead is a pretty great experience. I haven’t had the chance to go to games anywhere else, but, from what I’m told, I don’t really need to.
+ - I live for Tuesdays, and die by Wednesdays.
+ - There’s definitely a visual aspect and an emotional aspect to a song. And that harks back, for me, to theater.
+ - I’m competitive to a fault, so of course every week I’m just like, “I want to win, I want to do great.”
+ - I got to play with ZZ Top and introduce Bryan Adams and George Michael. And to have it all topped off by me winning ‘American Idol?!’ It’s pretty absurd.
+ - It’s amazing what a haircut and forgetting to shave will do.
+ - I’d always wanted to grow my hair out. And now looking back on those photos I understand why I probably shouldn’t have...
+ - I have to be involved. Whether it’s me writing by myself or with other people, I definitely want to have my hand in the creative process. That’s part of why I got into music in the first place.
+ - Some of the best rock shows I ever saw were those appealing to all your senses.
+ - I never want to play a show where it feels overly programmed, processed, and all that. For anybody that comes to one of our shows, the goal for me is to make sure that’s their show. That nobody else is going to see that show ever again. You know what I mean? I try to make it different every day.
+ - I’m admittedly a record guy. Singles and I are a different beast. I’m definitely an overall picture thinker.
+ - I spent a majority of my life in Kansas City, so I am a Chiefs and Royals guy. I used to work for the Royals for like five years in the suites department and in the stadium club restaurant.
+
+24 quotes

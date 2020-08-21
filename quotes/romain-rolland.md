@@ -1,0 +1,44 @@
+ - There is only one heroism in the world: to see the world as it is, and to love it.
+ - To a man whose mind is free there is something even more intolerable in the sufferings of animals than in the sufferings of man. For with the latter it is at least admitted that suffering is evil and that the man who causes it is a criminal. But thousands of animals are uselessly butchered every day without a shadow of remorse. If any man were to refer to it, he would be thought ridiculous. And that is the unpardonable crime.
+ - The friend who understands you, creates you.
+ - Passion is like genius: a miracle.
+ - To understand everything is to hate nothing.
+ - No one ever reads a book. He reads himself through books.
+ - A hero is a man who does what he can.
+ - If there is one place on the face of earth where all the dreams of living men have found a home from the very earliest days when man began the dream of existence, it is India.
+ - If a man is to shed the light of the sun upon other men, he must first of all have it within himself.
+ - Everything is music for the born musician.
+ - Most men are essentially dead by thirty.
+ - When nothing hampers action, the soul has fewer reasons for action.
+ - Be reverent before the dawning day. Do not think of what will be in a year, or in ten years. Think of to-day.
+ - It is not peace that I seek, but life.
+ - Any man who is really a man must learn to be alone in the midst of others, to think alone for others, and, if necessary, against others.
+ - It is the artist’s business to create sunshine when the sun fails.
+ - There are some dead who are more alive than the living.
+ - Love of my country does not demand that I shall hate and slay those noble and faithful souls who also love theirs.
+ - All these young millionaires were anarchists, of course: when a man possesses everything it is the supreme luxury for him to deny society: for in that way he can evade his responsibilities.
+ - The artist is the compass which, through the raging of the storm, points steadily to the north.
+ - A great nation assailed by war has not only its frontiers to protect: it must also protect its good sense. It must protect itself from the hallucinations, injustices, and follies which the plague lets loose.
+ - Leave your theories. All theories, you see, even those of virtue, are bad, foolish, mischievous.
+ - Everyone, deep down within, carries a small cemetery of those he has loved.
+ - One makes mistakes; that is life. But it is never a mistake to have loved.
+ - Mozart was able to do what he wished in music and he never wished to so what was beyond him.
+ - There is no joy other than the joy of creating. There is no man who is truly alive other than one who is creating. All others are just shadows on the earth with nothing to do with being alive. The joy of living, whether it is love or action, is the joy of creating.
+ - You desire a popular art? Begin by having a “people” whose minds are liberated, a people not crushed by misery and ceaseless toil, not brutalized by every superstition and every fanaticism, a people of itself, and victor in the fight that is being waged today.
+ - There is only one necessary condition for the emergence of a new theatre, that the stage and auditorium should be open to the masses, should be able to contain a people and the actions of a people.
+ - One day History will pass judgment on each of the nations at war; she will weigh their measure of errors, lies, and heinous follies. Let us try to make ours light before her!
+ - The greatest human ideal is the great cause of bringing together the thoughts of Europe and Asia; the great soul of India will topple our world.
+ - As a result of all his education, from everything he hears and sees around him, the child absorbs such a lot of lies and foolish nonsense, mixed in with essential truths, that the first duty of the adolescent who wants to be a healthy man is to disgorge it all.
+ - I know at last what distinguishes man from animals; financial worries.
+ - Each man must learn his own ideal and try to accomplish it: that is a surer way of progress than to take the ideas of another.
+ - Discussion is impossible with someone who claims not to seek the truth, but already to possess it.
+ - Take possession of the air, submit the elements, penetrate the last redoubts of nature, make space retreat, make death retreat.
+ - I find war detestable but those who praise it without participating in it even more so.
+ - Every man, every art, has its hypocrisy. The world is fed with little and many lies.
+ - I would rather have this life of combat than the moral calm and mournful stupor of these last years. God give me struggle, enemies, howling crowds, all the combot of which I am capable.
+ - Skepticism, riddling the faith of yesterday, prepared the way for the faith of tomorrow.
+ - History furnishes to politics all the arguments that it needs, for the chosen cause.
+ - You want to be a hero. That is why you do such silly things.
+ - The theatre, like the fresco, is art fitted to its place. And therefore it is above all else the human art, the living art.
+
+42 quotes

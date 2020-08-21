@@ -1,0 +1,85 @@
+ - Empathy is about finding echoes of another person in yourself.
+ - Sufi poetry is, in a sense, self-help poetry about how to live a decent life, how to deal with your mortality.
+ - The ruins proclaim the building was beautiful.
+ - She was struggling against a current that brought her inside herself.
+ - I don’t listen to music when I write. I need silence so I can hear the sound of the words.
+ - Time only moves in one direction. Remember that. Things always change.
+ - When the uncertain future becomes the past, the past in turn becomes uncertain.
+ - It is the effect of scarcity; one’s rules of propriety make one thirst for the improper.
+ - For me, writing a novel is like solving a puzzle. But I don’t intend my novels as puzzles. I intend them as invitations to dance.
+ - Literature helps us transcend ourselves.
+ - I felt suddenly very young – or perhaps I felt my age.
+ - I am not much of a researcher as a novelist; I write mainly from experience.
+ - Childbirth changed my perception of my wife. She was now the bloodied special forces soldier who had fought and risked everything for our family.
+ - I’d rather create a miniature painting than a Taj Mahal of a book.
+ - The fruits of labor are delicious, but individually they’re not particularly fattening. So don’t share yours, and munch on those of others whenever you can.
+ - Lahore, the second largest city of Pakistan, ancient capital of the Punjab, home to nearly as many people as New York, layered like a sedimentary plain with the accreted history of invaders from the Aryans to the Mongols to the British.
+ - Islam is not a race, yet Islamophobia partakes of racist characteristics.
+ - I was, in my own eyes, a veritable James Bond – only younger, darker, and possibly better paid.
+ - In a subway car, my skin would typically fall in the middle of the color spectrum. On street corners, tourists would ask me for directions. I was, in four and a half years, never an American; I was immediately a New Yorker.
+ - I responded to the gravity of an invisible moon at my core, and I undertook journeys I had not expected to take.
+ - What else is belief but direction?
+ - Novels are make-believe and play for adults.
+ - I take six or seven years to write really small books. There is a kind of aesthetic of leanness, of brevity.
+ - Yes, Manila had its slums; one saw them on the drive from the airport: vast districts of men in dirty white undershirts lounging idly in front of auto-repair shops – like a poorer version of the 1950s America depicted in such films as Grease.
+ - And with a last stardrop, a last circle, I arrive, and she’s there, chemical wonder in her eyes.
+ - But when you read a book, what you see are black squiggles on pulped wood or, increasingly, dark pixels on a pale screen. To transform these icons into characters and events, you must imagine. And when you imagine, you create.
+ - Which is stronger, politics or love? is like asking, Which is stronger, exhaling or inhaling? They are two sides of the same thing.
+ - It is remarkable indeed how we human beings are capable of delighting in the mating call of a flower while we are surrounded by the charred carcasses of our fellow animals.
+ - Four thousand years ago, we, the people of the Indus River basin, had cities that were laid out on grids and boasted underground sewers, while the ancestors of those who would invade and colonize America were illiterate barbarians.
+ - There’s a reason prophets perform miracles; language lacks the power to describe faith.
+ - There really still is a deep wound, you know, in the collective psyche of Pakistan. And the violence has left enormous human and emotional and psychic damage. That’s not going to go away. But that said, I think I’m cautiously optimistic that we’re looking at a better future.
+ - Capitalism is like the law of the jungle with a few rules. There isn’t another system that works for our society but left unchecked, capitalism can have a dehumanising effect.
+ - I did not grow up in poverty. But I did grow up with a poor boy’s sense of longing, in my case not for what my family had never had, but for what we had had and lost.
+ - The gun of the father is always the undoing of the son.
+ - As a child I read all kinds of stuff, whether it was ‘Asterix and Obelix’ and ‘Tin Tin’ comic books, or ‘Lord of the Rings,’ or Frank Herbert’s sci-fi. Or ‘The Wind in the Willows.’ Or ‘Charlotte’s Web.’
+ - Why the brevity? Because I’d rather people read my book twice than only half-way through.
+ - When people talk about the death of the novel, they are speaking of the need for the birth of something different.
+ - As a writer, I am constantly aware that I take my life in my hands with everything I do and say. It’s just a fact of life. For me it always has been.
+ - If differences can be hidden, perhaps they aren’t differences at all.
+ - Novel writing is the slowest art form in the world. It is not a sprint. It is not even a marathon. It is a series of marathons that stretch over and over across a continent.
+ - When I travel, I feel more like a nomad than a tourist.
+ - I am a strong believer in the intertwined nature of the personal and the political; I think they move together.
+ - Readers don’t work for writers. They work for themselves.
+ - Like many of my friends in the Pakistani diaspora – and many of my friends in Pakistan itself, for that matter – I have sometimes looked at the country of my birth and wondered whether its future will be one of steady and sad decline.
+ - One ought not to encourage beggars, and yes, you are right, it is far better to donate to charities that address the causes of poverty rather than to him, a creature who is merely its symptom.
+ - My earliest memories are of watching Star Trek and MASH while my parents barbecued chicken in the back yard. I was an American kid, through and through.
+ - I think I’ve always been drawn to the second person. When I was growing up and playing with my friends, the usual way we interacted with imaginary worlds was as characters: a bench was ‘your’ boat, leaves on a lawn were the fins of sharks out to get ‘you.’
+ - Farmers and people who make a living from the land are finding it impossible to survive. So the first step is to get out of that place. Come to the city where there are opportunities.
+ - I think there’s really strong social stratification in South Asia.
+ - When the machine of a human being is turned on, it seems to produce a protagonist, just as a television produces an image.
+ - Pakistan now is like a horror film franchise. You know, it’s ‘Friday the 13th, Episode 63: The Terrorist from Pakistan.’ And each time we hear of Pakistan it’s in that context.
+ - Maybe we are all prospective migrants. The lines of national borders on maps are artificial constructs, as unnatural to us as they are to birds flying overhead. Our first impulse is to ignore them.
+ - And also I think the rise of other, you could say, destinations for international jihadis mean that Pakistan isn’t necessarily the place where people from all over the world who want to engage in these activities gravitate to. They’re going now to places like Syria or Yemen Libya, elsewhere.
+ - Islamophobia, in all its guises, seeks to minimise the importance of the individual and maximise the importance of the group. Yet our instinctive stance ought to be one of suspicion towards such endeavours. For individuals are undeniably real. Groups, on the other hand, are assertions of opinion.
+ - Chance plays a powerful role in every life – our brains and personalities are just chemical soup, after all; a few drops here or there matter enormously – but consequences often become more serious as income levels go down.
+ - I took a couple of creative writing classes with Joyce Carol Oates at Princeton University, and in my senior year there, I took a long fiction workshop with Toni Morrison. I fell in love with it.
+ - I come from an enormous and very close family. I have over a dozen aunts and uncles in Pakistan, dozens of cousins. I have many close friends. I have received so much love in Lahore that the city always pulls me.
+ - Lived religion is a very different thing from strict textual analysis. Very few people of any faith live their lives as literalist interpretations of scripture.
+ - Being a writer is not the point. Writing is.
+ - I don’t want to be a Michael Moore-style artist, which is not to disparage Michael Moore. But he seems rather unsuccessful at winning people over who don’t already agree with him.
+ - I think there’s a natural link between the fact that our self is a story that we make up and that we’re drawn to stories. It resonates, in a way.
+ - So in many ways, the bombing at the end of this year and the terrorist attack of last year in Peshawar have bookended both those years in a very unfortunate way. But at a bigger picture since, the impression in Pakistan is that things are actually improving on the terrorism front quite dramatically.
+ - I think the most effective forms of critique are ones that establish a common ground for people to occupy, and then appeal to the best nature of people on that common ground.
+ - I’m not sure if guys are supposed to read Vanity Fair. I feel very metrosexual with it but am not sure it’s in my comfort zone.
+ - It is not surprising that most Pakistanis do not support America’s bombardment of Afghanistan. The Afghans are neighbours on the brink of starvation and devastated by war. America has shown itself to be untrustworthy, a superpower that uses its values as a scabbard for its sword.
+ - If your sense of self is destabilised, to imagine being another becomes pretty easy.
+ - Only in novels can we take another human being into our head and create something jointly.
+ - I believe one can gauge a book’s impact only after about 10 years.
+ - A reader should encounter themselves in a novel, I think.
+ - What did I think of Princeton? Well, the answer to that question requires a story. When I first arrived, I looked around me at the Gothic buildings – younger, I later learned, than many of the mosques of this city, but made through acid treatment and ingenious stone-masonry to look older...
+ - The world seems concerned with Pakistan primarily as an actor in global attempts to combat terrorism.
+ - We need a self because the complexity of the chemical processes that make up our individual humanities exceeds the processing power of our brains.
+ - It seems an obvious thing to say, but you should not imagine that we Pakistanis are all potential terrorists, just as we should not imagine that you Americans are all undercover assassins.
+ - Certainly, historically, there has been more attention given in the international media to Indian English-language writers than to Pakistani English-language writers. But that, in my opinion, was justified by the sheer number of excellent writers coming from India and the Indian diaspora.
+ - How many big businesses don’t resort to underhand means?
+ - Television has given Pakistan a truly open national forum for the first time in its history. Ideas are debated, leaders are assessed and criticised, and a nation of 170 million people is finally discovering, together, what it thinks.
+ - Novel writing is solitary work.
+ - Growing up in Pakistan in the 1980s, I lived in the shadow of a tyrannical state.
+ - I don’t know if I’m truly at home in any language.
+ - I like the idea of an open, international London that thrives on attracting hard-working, talented people but has the confidence to tell them they must play by the same rules as everyone else.
+ - If it takes you seven years to write each novel, you need a patron. And I would rather have my corporate self as my patron than any arts council or bestower of grants.
+ - When terrorism strikes, divisive anger is a natural response.
+ - America’s strength has made it a sort of Gulliver in world affairs: By wiggling its toes it can, often inadvertently, break the arm of a Lilliputian.
+
+83 quotes

@@ -1,0 +1,32 @@
+ - We should try to hold on to the Christmas spirit, not just one day a year, but all 365. ~~Mary Martin
+ - Peace on earth will come to stay, when we live Christmas every day. ~~Helen Steiner Rice
+ - I will honor Christmas in my heart, and try to keep it all the year. ~~Charles Dickens
+ - Christmas is not a time nor a season, but a state of mind. To cherish peace and goodwill, to be plenteous in mercy, is to have the real spirit of Christmas. ~~Calvin Coolidge
+ - Christmas is doing a little something extra for someone. ~~Charles M. Schulz
+ - Remember this December, that love weighs more than gold! ~~Josephine Dodge Daskam Bacon
+ - To celebrate the heart of Christmas is to forget ourselves in the service of others. ~~Henry C. Link
+ - Christmas, my child, is love in action. Every time we love, every time we give, it’s Christmas. ~~Dale Evans
+ - He who has not Christmas in his heart will never find it under a tree. ~~Roy L. Smith
+ - Christmas is not a date. It is a state of mind. ~~Mary Ellen Chase
+ - Christmas is not as much about opening our presents as opening our hearts. ~~Janice Maeditere
+ - It is Christmas in the heart that puts Christmas in the air. ~~W.T. Ellis
+ - Christmas is the season of joy, of holiday greetings exchanged, of gift-giving, and of families united. ~~Norman Vincent Peale
+ - So every year when Christmas comes, I realize a new, the best gift life can offer is having friends like you. ~~Helen Steiner Rice
+ - Blessed is the season which engages the whole world in a conspiracy of love. ~~Hamilton Wright Mabie
+ - Christmas is most truly Christmas when we celebrate it by giving the light of love to those who need it most. ~~Ruth Carter Stapleton
+ - The joy of brightening other lives, bearing each others’ burdens, easing other’s loads and supplanting empty hearts and lives with generous gifts becomes for us the magic of Christmas. ~~William Carey Jones
+ - Christmas waves a magic wand over this world, and behold, everything is softer and more beautiful.  ~~Norman Vincent Peale
+ - Expectancy is the atmosphere for miracles. ~~Edwin Louis Cole
+ - Christmas is a season for kindling the fire for hospitality in the hall, the genial flame of charity in the heart. ~~Washington Irving
+ - My idea of Christmas, whether old-fashioned or modern, is very simple: loving others. Come to think of it, why do we have to wait for Christmas to do that? ~~Bob Hope
+ - A good conscience is a continual Christmas. ~~Benjamin Franklin
+ - Christmas is a necessity. There has to be at least one day of the year to remind us that we’re here for something else besides ourselves. ~~Eric Sevareid
+ - A lovely thing about Christmas is that it’s compulsory, like a thunderstorm, and we all go through it together. ~~Garrison Keillor
+ - Happy, happy Christmas, that can win us back to the delusions of our childhood days, recall to the old man the pleasures of his youth, and transport the traveler back to his own fireside and quiet home! ~~Charles Dickens
+ - I once bought my kids a set of batteries for Christmas with a note on it saying, toys not included. ~~Bernard Manning
+ - Christmas is for children. But it is for grownups too. Even if it is a headache, a chore, and nightmare, it is a period of necessary defrosting of chill and hide bound hearts. ~~Lenora Mattingly Weber
+ - Gifts of time and love are surely the basic ingredients of a truly merry Christmas. ~~Peg Bracken
+ - At Christmas play and make good cheer, for Christmas comes but once a year. ~~Thomas Tusser
+ - There’s nothing sadder in this world than to awake Christmas morning and not be a child. ~~Erma Bombeck
+
+30 quotes

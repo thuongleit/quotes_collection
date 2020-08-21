@@ -1,0 +1,26 @@
+ - Poems are difficult to silence.
+ - First of all, there was a volcano of words, an eruption of words that Shakespeare had never used before that had never been used in the English language before. It’s astonishing. It pours out of him.
+ - Art always penetrates the particular fissures in one’s psychic life.
+ - The greatest obstacle to pleasure is not pain; it is delusion.
+ - What we know is that Shakespeare wrote perhaps the most remarkable body of passionate love poetry in the English language to a young man.
+ - Compared to the unleashed forces of warfare and of faith, Mount Vesuvius was kinder to the legacy of antiquity.
+ - The exercise of reason is not available only to specialists; it is accessible to everyone.
+ - I believe in broken, fractured, complicated narratives, but I believe in narratives as a vehicle for truth, not simply as a form of entertainment, though I love entertainment, but also a way of conveying what needs to be conveyed about the works that I care about.
+ - I believe that nothing comes of nothing, even in Shakespeare. I wanted to know where he got the matter he was working with and what he did with that matter.
+ - Through reading literature we can make ghosts speak to us, and we can speak back to them.
+ - The first and perhaps the most important requirement for a successful writing performance – and writing is a performance, like singing an aria or dancing a jig – is to understand the nature of the occasion.
+ - It is not that Shakespeare’s art is in technicolor and fancy, and that real life is black and white and tedious. The life that Shakespeare was living was the only life he had, and he had to use it to create what he was doing.
+ - Writing is a performance, like singing an aria or dancing a jig.
+ - But I never listen to music while I’m writing.
+ - My father who in this case was an obsessive life-long storyteller, and by a very peculiar trick of my father’s. My father would tell a very, very long story, and the punch line would be in Yiddish.
+ - Now a Protestant confronting a Catholic ghost is exactly Shakespeare’s way of grappling with what was not simply a general social problem but one lived out in his own life.
+ - I believe that it is a whole lifetime of work on Shakespeare’s part that enabled him to do what he did. But the question is how you can explain this whole lifetime in such a way to make it accessible and available to us, to me.
+ - First of all, Shakespeare is about pleasure and interest. He was from the first moment he actually wrote something for the stage, and he remains so.
+ - The Shakespeare that Shakespeare became is the name that’s attached to these astonishing objects that he left behind.
+ - In short, it became possible – never easy, but possible – in the poet Auden’s phrase to find the mortal world enough.
+ - I think the writing of literature should give pleasure. What else should it be about? It is not nuclear physics. It actually has to give pleasure or it is worth nothing.
+ - But if Shakespeare himself is maybe about meaning and truth, I don’t know, then he is certainly about pleasure and interest, we start with pleasure and interest, but maybe eventually it gets to meaning and truth.
+ - What I wanted to do was to get that sense of being in touch with this lost world while holding onto what draws readers and audiences there in the first place.
+ - No special writing rituals. And my desk is usually cluttered.
+
+24 quotes

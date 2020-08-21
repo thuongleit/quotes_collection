@@ -1,0 +1,27 @@
+ - Don’t follow a trend. Follow your heart.
+ - When Nirvana hit it big, it was overwhelming because we were part of the counterculture. Nirvana didn’t go to the mainstream – the mainstream came to Nirvana.
+ - She’s intense and passionate, so she’s perfect.
+ - But my role is to just apply the skills I’ve learned over the years: you listen to the guitar, you listen to the vocal melodies, you listen to the rhythm, and you come up with something that helps you take the song somewhere.
+ - We remember Kurt for what he was: caring, generous and sweet.
+ - Mike Watt and I had the same teacher. Mr. Tanaka.
+ - And Seattle isn’t really crazy anymore. It’s a big dot-com city.
+ - I wanted to stimulate thought instead of throwing things out or try to give a perspective. I just put stuff up and it’s up for two or three weeks and I get tired of it, so I take it down and put something else up.
+ - If you’ve got a guitar and a lot of soul, just bang something out and mean it. You’re the superstar.
+ - The perception of him as brooding and dark and miserable, that is baloney. Kurt Cobain was a funny dude.
+ - But this is pretty new for me, both songwriting and singing.
+ - Let’s keep the music with us. We’ll always have it.
+ - No band is special, no player royalty.
+ - Theodore Roethke was a poet I was raised with so he has a lot of sentimental value for me.
+ - I really like to write, so I can just relax and think about things and realize things and then try to express it on my computer.
+ - But whenever history is in the making, there’s some kind of intangible feeling.
+ - I live out in the country now and it’s quiet and it’s a place where I can think a lot.
+ - I think pot should be legalized, but I think the promotion of party culture is irresponsible.
+ - But remember, guitar players are a dime a dozen.
+ - I’m just really happy, because I think we’re a great band, and I really like great bands.
+ - I can’t remember the last time I looked at a Nirvana web site.
+ - Just the other day I pulled out this old cassette of Ragged Glory and I popped it into my cassette player and I was digging it. They were just a great rock and roll band, one that presents the song ahead of everything else – there’s no grand idea or concept behind it.
+ - When I perform, I like to immerse myself in the music, and I just try to get off on the diversity of music.
+ - I’m really into Sweet 75 right now, and I dig playing Nirvana, don’t get me wrong. Even if Kurt never died, more than likely I’d be in Sweet 75 today still.
+ - Sunshine Cake is just a fun hobby thing. That’s about it.
+
+25 quotes

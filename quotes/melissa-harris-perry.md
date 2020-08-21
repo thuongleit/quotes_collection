@@ -1,0 +1,44 @@
+ - It actually does matter what people think about you.
+ - Even if you think it is right for Bill Cosby to face charges, it’s impossible to ignore that the system which just charged him is a system that has been indicted by a national social movement, as being unable or unwilling to deliver meaningful and just outcomes.
+ - I’m a sexual assault survivor. I have long felt like Bill Cosby needed to be held accountable. But I keep wondering if this is a system that can bring that accountability.
+ - Stereotypes work to help divide women from recognizing their common interests.
+ - Housing affects everything, and we continue to live in very, very segregated communities.
+ - Once it’s everybody’s responsibility and not just the household’s we start making better investments.
+ - Loss of social standing is an ever-present threat for individuals whose social acceptance is based on behavioral traits rather than unconditional human value.
+ - Bill Cosby was charged with sexual assault. No matter the outcome of this case this moment is an important public acknowledgement that even though many years have passed, there’s still the responsibility to take charges of sexual assault seriously.
+ - So part of it is we have to break through our kind of private idea that kids belong to their parents, or kids belong to their families, and recognize that kids belong to whole communities.
+ - Politics are a part of athletics now. Politics is a part of everything. And athletics is no exception.
+ - Bill Cosby no longer on Temple University’s board. His name has been removed from various college scholarships and buildings. Two dozen colleges and universities have rescinded honorary degrees they gave him.
+ - Having a white parent undoubtedly makes for a different childhood experience than having two black parents.
+ - I think the idea that you’re somehow rejecting whiteness if you don’t identify yourself as biracial is odd because everybody engages in whiteness. If you live in America, you’re doing whiteness all the time, even if you have no white people in your family.
+ - Undoubtedly, the biggest influence on my life is my mom, followed pretty closely by my dad.
+ - You just have to be strong if you’re a black woman.
+ - I’m horrible with money. I make bad business decisions every hour of the day.
+ - Therapists are less likely to perceive a black woman as sad; instead they see her as angry or anxious.
+ - I don’t know what people mean when they ask me whether I’m embracing my whiteness. Whiteness is ubiquitous.
+ - While the establishment Republican candidates are busy doing this, attacking each other, and doing everything they can to bring each other down, they seem to be missing the bull’s-eye. They’re missing the targets.
+ - Adults who enter into public life implicitly consent to having less privacy, but their families – especially their children – should not be treated callously or thoughtlessly.
+ - Many people consider darts a sport, with a live audience and very excited fans and competitors who aren’t hitting the bull’s-eye.
+ - I just keep thinking of how many times I’ve heard Ferguson effect. And I’ve heard it because of protests, officers are afraid to do their job because of – because of a YouTube effect.
+ - I do feel like there’s this Republican Party establishment is in disarray. That’s the story that the Donald Trump surge seems to tell.
+ - The problem is that many of our policymakers want to base sweeping laws on those feelings.
+ - Donald Trump has changed the rule and so have the stations and the media coverage.
+ - With Donald Trump, you know, what I would tell you is that he’s got shelf life like I never would have guessed.
+ - I learned that you can’t write a book in the margins of your life. I’d forgotten how much uninterrupted time it takes to write chapters, and how you have to push everything else aside and really focus.
+ - I would agree if the race were today, most likely, our nominee would be Donald Trump, but it isn’t today.
+ - You are five times more likely to be killed by your abuser if your abuser can get their hands on a gun. That’s not a small problem.
+ - I hate to play YouTube.
+ - The Republicans don’t need black folks to vote Republican, they just need them to not vote.
+ - The removal of Bill Cosby from his cultural pedestal seems pretty complete.
+ - Look, I grew up in, went to school in, and now live in the American South, and southern white women are interesting, complex and quirky, even the ones with racial anxieties.
+ - I think the most critical needs of the African-American communities aren’t being addressed primarily because of decisions being made by Republican Congressional leaders.
+ - For me, success is when I’m making a contribution and fully engaging all of my talents. In terms of the key quality, it’s being willing to continue to believe in yourself even when other people don’t, and being able to fail and to come back.
+ - A recent analysis of election coverage by the Tindall report which tracks network nicely news programs found that Bernie Sanders received just ten minutes out of 857 minutes of campaign coverage in 2015. Compare that to 234 minutes for Donald Trump, and 113 for Hillary Clinton.
+ - I would want to know that my daughter is going to enjoy a long, happy and healthy life.
+ - A big part of the Republican 2016 race is now basically a bunch of establishment Republicans going after each other. Jeb Bush going after Marco Rubio, and the governors, Chris Christie going after Marco Rubio. Rubio firing back, John Kasich going after Jeb Bush.
+ - I had a friend say to me the other day, I hate when I see Jonathan Metzl on your show because I know it’s bad news. I know that there has been a shooting.
+ - I can understand how someone might read wearing a blonde wig as a desire to be white, but I suspect that the same shaming smirk can happen if you wear a big afro or any number of other hairstyles.
+ - You can’t use hair spray, because hair spray is going to affect the ozone. I’m trying to figure out – okay, I’m in my room in New York City and I want to put a little spray, so that I can – all right? Right?
+ - Popular films are so powerful and compelling that it’s often easier to accept their versions of history than the much more complicated true stories.
+
+42 quotes

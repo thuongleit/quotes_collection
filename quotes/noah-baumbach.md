@@ -1,0 +1,86 @@
+ - We all have these notions of cool that come about at different points in our lives, and it’s interesting in how it evolves or doesn’t evolve in different people.
+ - I live in Manhattan now, because, in a way, it was my fantasy.
+ - I’m interested in the way major events don’t necessarily announce themselves as major events. They’re often little things – the drip, drip of life that changes people or affects people.
+ - I’ve always felt some kind of connection to people who are kind of over-smart. People who over-think things to the point of some sort of paralysis, and I think that certainly can be me on any given day.
+ - I think sometimes bad behaviour can be liberating for certain people. They need to behave badly to find themselves – to go off path to find their path. You see it with kids all the time: They’re testing boundaries, and I think that’s healthy.
+ - Wes Anderson’s films, 6-year-olds are crazy about them.
+ - I think it’s always interesting how music means different things to different people, and people who overthink it are looking to in some ways show off with music, versus people who just respond to a song and decide to sing it.
+ - We expect forty-year-olds to have grown up at some point, and to be engaged and adult and take responsibility, and doing nothing would seem to go against that.
+ - I’m curious how people build up the codes that they live their life by, and how they come to think that that’s the best way for them to function.
+ - When you’re around your family, and you have that history and that shared language, you say things you’d be embarrassed to hear quoted back to you later.
+ - Being articulate, my parents could make anything sound reasonable.
+ - I grew up in the heat of ’70s postmodern fiction and post-Godard films, and there was this idea that what mattered was the theory or meta in art.
+ - It’s kind of major, learning to drive. I feel like it kicked up other stuff in my life.
+ - It’s nice being friends over a period of time with people whose music you like so much, or other filmmakers, seeing people change, go through trials.
+ - There’s something really vulnerable about playing something that you like for someone. You don’t know what their reaction will be.
+ - Being funny, in some ways, is about being connected to psychology.
+ - I do like having books on my shelves. I do value that life.
+ - I didn’t train in directing; I talk to actors the way I talk to anybody.
+ - Defining yourself by your taste is easier than defining yourself by any genuine stance on something.
+ - That’s the nice thing about collaborating with someone: Your work becomes a conversation.
+ - I’m always looking for overlooked post-Dylan singer-songwriter records from the ’70s.
+ - As a kid, I thought of myself as a funny person who secretly wanted to be serious, but now I think maybe I’m a serious person who secretly wants to be funny.
+ - When I meet certain filmmakers, sometimes you sit down and you do have some kind of shorthand. It can be fun to see them as someone who has been through similar experiences, but also as someone who just loves film. You can talk with them about films in a way that feels really free.
+ - When you find yourself on the Internet when you’re supposed to be writing, you’ve already lost. It’s even beyond procrastination when you end up on the Internet.
+ - I used a video camera, and shot on film cameras at school and stuff, but I had a lot more training as a writer. I kind of live like a writer. I get up and I write. I’ve done that my whole life.
+ - I kind of live like a writer. I get up and I write. I’ve done that my whole life.
+ - There are the people who overthink making mix CDs and playlists, and how that works generationally is all really interesting to me.
+ - I’m sure I’ve said some pretty bad pick-up lines.
+ - Wes Anderson grew up in Houston, and he and I talk about Manhattan in similar ways, as a kind of fantasy world.
+ - I think anxiety is dangerous, but it makes you think it’s your friend.
+ - I suppose some studio executive would say it’s death for a comedy if people aren’t all laughing in the same places, but I find with my movies that people laugh in very different places. I can’t control it.
+ - I was late to the Knicks. My dad was a big fan. But I first started watching baseball; I became a Red Sox fan. My dad was a Mets fan. I wanted to have my own team and league.
+ - I try to procrastinate, if I can, productively, like I’ll work on something else as procrastination. Or I take a walk. Because often I find, if you get out, more things come to you.
+ - When I was a kid, I would fantasize about my own funeral.
+ - A film set becomes its own family anyway, and all family dynamics come out during a shoot. The trick is hiring people who know how to handle that.
+ - How you start the movie is critical. And how often you feel that there’s no reason for how it’s starting.
+ - I like shooting in New York because I have such a connection to the city. I have so many memories there.
+ - Dance is a profession with an expiration date for many people.
+ - I get a lot of responses to my movies. Some people say, ‘Oh, I thought it was really funny – I hope that’s okay!’ And my answer always is ‘Yes. It’s totally okay.’
+ - I like to have memories of a place. It brings something extra. I’m not even sure what it is. I mean, it’s the same part of it as I like using friends in small parts or people I know or my doorman.
+ - I’m a huge proponent of therapy and analysis, but it’s something that, in a nonprofessional way, can be abused.
+ - I’m interested in music as an extension of character.
+ - I’ve always liked working with friends or, you know, people I have outside relationships with.
+ - A lot of black-and-white films generally have a color version that will be used for TV.
+ - I watch movies all the time, so it’s hard to pick certain specific directors that have inspired me in the aggregate.
+ - I love black-and-white movies that are about contemporary subjects.
+ - I made two movies very young, and then I had trouble getting a movie made, and so – which was both, I think, a plus and a minus. It was a minus because it made me unhappy.
+ - I guess I’m interested in people who are very sophisticated in intellectual ways, while being completely off the mark in emotional ones, with huge blind spots in terms of their own behavior.
+ - When I make a movie, I have both a specific and vague, amorphous dream idea of what the movie is going to be. Of course, I don’t actually know what it’s going to be, but I’m still striving to get to some place with it.
+ - I feel a real connection to Brooklyn, certainly, because I spent 20 years of my life there, but I don’t think of myself as a Brooklyn artist any more than I think of myself as a male artist.
+ - I find a lot of writing happens when you’re not actually at the computer. So I carry a notebook.
+ - There was a telemarketing job one summer in high school that I was rejected for. I still walk by the building that I actually had the interview in. It’s still in New York, and I always think about that job and why I didn’t get it.
+ - I’ve had great experiences or joyful experiences making a movie that people found very disturbing.
+ - When I start a movie, there will be certain films that I watch again just because the vibe seems right.
+ - I like having associations with locations beyond their meaning for the specific movie.
+ - I don’t agree with the idea that my characters are unlikeable.
+ - Anyone who’s putting money into your movie would always rather you cast well-known people.
+ - The real achievement of Woody Allen was that he was making movies that felt very personal, and for a whole group of people, it spoke to them. Then he became an archetype, like Groucho Marx or Chaplin.
+ - I always viewed life as material for a movie.
+ - I guess I probably took New York for granted. Growing up, playing in the street, going down to the Avenue to the record store and to the grocery store and stuff like that.
+ - It’s always really special to be at the New York Film Festival, and always a real privilege.
+ - Peter Bogdanovich is a good friend.
+ - I wouldn’t say ‘Frances Ha’ is autobiographical, but it’s definitely very personal.
+ - I like the way corduroys feel. I like the sort of jean aspect of corduroys, but also the texture of them. They probably remind me of my childhood, too, I think. I wore cords, and my dad had a corduroy jacket.
+ - My dad was a great movie companion. He wouldn’t diminish ‘The Jerk.’ If I liked it, he liked it. He could see it through my eyes.
+ - Music is like color or acting or whatever. It’s really something I think about from the beginning. Not that I always know exactly what I’m going to use, but I don’t see it as something like, “Let’s find some songs now!” after we have a finished film.
+ - I’ve had times in my life when I really haven’t been able to figure myself out.
+ - I think I was going through a lot of change at 27, but I didn’t know it was happening until it was over.
+ - I don’t like when you necessarily know that this is the end of the movie. I like when a movie ends abruptly. You go through this, and some of the scenes are uncomfortable, and some are funny – and then suddenly it’s over.
+ - I think I’ve always been drawn to the notion of talk as cinematic.
+ - I try to write ‘and it’s all very funny’ after each scene description so that the reader can imagine the movie in their head.
+ - Adaptations are fun for me because they connect to the idea of filmmaking I had when I was a kid. I would see a movie and think: ‘I’m gonna make that movie.’
+ - I think all my movies are about transitions to some degree.
+ - I like to try to shoot in the city in a way that allows the city to go about its business while we’re shooting, and that’s always a challenge because unfortunately people on the street don’t know not to look in the camera or interact with the actors.
+ - It’s near impossible to make a movie in black and white in the system.
+ - Manhattan is so tailored. It’s driven by appealing to the very wealthy and tourists.
+ - I read all the time. Sometimes I get asked if I’ve thought about writing a novel.
+ - You can be aware that something is idiosyncratic, and give it to a character, but keep doing it.
+ - Friends of friends had bands in college or in their early 20s and had a moment where they had some kind of interest from a record label or manager. It’s always interesting how people handle those decisions and those moments.
+ - Other people have worked with big studios and maintained control over their movies. I see no reason why it wouldn’t work for me.
+ - There’s always some generational-guys-hanging-out movie that is made every few years, I think, and some of them are great.
+ - I always wanted to write movies that I’d direct. I didn’t come at it from a writing standpoint more than a directing standpoint, except that growing up, I didn’t have the opportunity to shoot as much as I did to write.
+ - Will Ferrell’s made a lot of brilliant movies.
+ - I’m good with a grill. I like to make cheeseburgers – I once read in a David Goodis crime novel that you’re only supposed to flip a burger once.
+
+84 quotes

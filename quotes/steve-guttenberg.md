@@ -1,0 +1,47 @@
+ - A career is a series of ups and downs, of comebacks.
+ - Sometimes it’s good to miss a bus. It might be the wrong bus.
+ - Underneath all the skin, we’re all the same.
+ - When you have nothing to lose, the sky’s the limit.
+ - I’ve always been proud of my character and how I live my life. So my regrets are few, and the ones I do have, I’m glad I have.
+ - If you’re an underdog, mentally disabled, physically disabled, if you don’t fit in, if you’re not as pretty as the others, you can still be a hero.
+ - Directing is a tremendous art.
+ - I’ve made a lot of people a lot of money, and I’ve made a lot of people really happy. I’ve entertained millions and millions of people.
+ - I turned down Short Circuit 2 too and I now wish I hadn’t. Sequels are a lot of fun and you get to hang out with all your friends.
+ - If you put down a list of jobs, doctor, lawyer, janitor, teacher or movie star, everybody would pick the movie star. And why? So you could lie around the pool, drink margaritas and send money to your parents. So that’s what I did.
+ - Making art is an act of courage. Do you know who said that?
+ - What life really is all about is happiness. It’s not money, or stature, or the amount of cars you have in your driveway. Life, a really successful life, is one in which you are loved and love somebody else, or some other people.
+ - My thoughts were to become a dentist when I first went to Albany State. I didn’t know where I would end up, but I knew I’d be happy, and I knew I would have a nice life. That was always my goal, to have a nice, happy life. That’s, to me, being rich.
+ - You never know who’s going to become your friend. Friends are always chance meetings.
+ - When people are nasty, it gets everybody’s attention, and it gives them a name.
+ - I’m not bragging but my movies have grossed well over a billion dollars.
+ - Show business has never been my everything. It’s a means; it’s not the end. It’s a means to the end. I want and have always wanted freedom. That was always my goal, to not have a boss, to not have anybody tell me what to do. Luckily, as an actor, I got that.
+ - I love the fame and the money and the power. You have to keep working to have that.
+ - No matter how bad your life gets, you can always turn it around.
+ - I’m somebody who’s really contributed to culture. Popular culture.
+ - It’s all about commerce. Movies are not made like paintings, where you can make them for free and put them at the side. Movies are supposed to make money.
+ - In show business, you can’t make a living. You can only make a fortune, but you can’t make a living.
+ - I’m lucky to be in this business. I’m very grateful.
+ - In Utah, there are no bad things in the water there. It’s just smooth, really beautiful.
+ - The allure of Hollywood is huge when you don’t know anything. You don’t know the knives behind the smiles.
+ - I’m somebody who deserves to be supported and encouraged to continue my work because I have a lot to give.
+ - Wanting to work is a luxury; having to work is not. If you’re an artist, an actor, and you don’t have to work, then you do work that you wanna do.
+ - It’s good Xerox is known for its copying machines, and it’s good Jim Carrey is known for comedy.
+ - Everyone keeps asking me, What are you doing? I say, Why do I need to do anything? I’m rich.
+ - When you’re starting out as an actor, there isn’t much food around. I was lucky to have a hit pretty early on. I didn’t starve too long.
+ - Unless you’re Jack Lemmon or Cary Grant, there are few guys who can do comedy and drama.
+ - From 1980 to 1990, I shot more films than any other actor in the Screen Actors Guild, apart from Gene Hackman.
+ - You’re never really playing yourself. You’re always acting. It’s an illusion that you’re really playing yourself. The only time I’m playing myself is when I’m at home!
+ - I’ve only had good experiences with actors. Starring next to them and directing them, for the most part they’re all inspiring, special people.
+ - It is hard to look back and talk about a set of disjointed experiences as though they were part of one smooth progression.
+ - Wanting to work is a luxury; having to work is not.
+ - There’s tons of waste on every film. It really doesn’t matter the budget, as long as it hits a bull’s-eye.
+ - For 15 years I did two to three movies a year, sometimes four. I didn’t get to spend time building my personal life.
+ - Typecasting is a good thing. It’s good to be known for what you do.
+ - Let’s look at people as artists and try to support them; just because Picasso painted a couple of bad paintings, that’s no reason to say he’s a lousy painter.
+ - Every film can be fun, even if it’s a terror.
+ - I’m not going to say, I’m an actor and I’m changing the world. Who cares?
+ - You can tell when you’re in a hit.
+ - Someone’s just told me the English are still trying to take over the United States – is that true?
+ - There are 100,000 actors in the Screen Actors Guild. Only 2,000 of them make more than $75,000 a year.
+
+45 quotes

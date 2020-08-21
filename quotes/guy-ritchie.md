@@ -1,0 +1,43 @@
+ - I like death. I’m a big fan of it.
+ - It’s OK to have beliefs, just don’t believe in them.
+ - My principal job is to make interesting and entertaining films, and I’m not proud of which format or which particular technique I use. I just wanted the film to look good.
+ - I’m not under too much of an illusion of how smart or un-smart I am because filmmaking ultimately is about teamwork.
+ - The best thing to do is find one person in your life and try to love them unconditionally. If you’ve accomplished that, you’ve accomplished a lot.
+ - I’m single again and I wouldn’t have it any other way. I’m loving it at the moment. This is what I’ve been missing.
+ - In fact, 95% of the people in my films have been nothing less than a pleasure to work with.
+ - I don’t like the idea of agents in a typical form. The idea of agents, to me, brings up the idea of a man in a very boring suit who’s not very good looking and doesn’t have much attention to style.
+ - I still love her. But she’s retarded, too.
+ - We can all be conned but at what point do we realize that we’re being conned and to what point do we allow ourselves to be conned?
+ - I’m not politically motivated. I used to be – passionately. I used to be very Left wing. Then I went very Right wing, and now I rest somewhere in the middle.
+ - Sugar is responsible for a lot of deaths. Arguably more than crack cocaine.
+ - After Lock, Stock, all these really nasty small town characters came knocking at my door trying to tell me stories, and somehow I ended up with this guy whose brother was feeding people to pigs, and that’s what he did to get rid of people.
+ - I love fatherhood. I could bang on about kids forever.
+ - We are not that flash, me or the missus. In fact, we are quite low-maintenance.
+ - The English countryside is the most staggeringly beautiful place. I can’t spend as much time there as I like, but I like everything about it. I like fishing, I like clay- pigeon shooting.
+ - Jake Green isn’t just Jake Green. Jake represents all of us. The colour green is the central column of the spectrum and the name Jake has all sorts of numerical values. All things come back to him within the film’s world of cons and games.
+ - We’re not unique. We’re quite volatile as individuals, but that doesn’t work exponentially when we are together. Relationships are about eating humble pie.
+ - I don’t know enough about Woody Allen to be a fan of him.
+ - You get a different kick out of all aspects of filmmaking.
+ - If you find a TV series that you like, you like the tone of the TV series or the movie.
+ - I’d like to work with the missus, but there’s nothing in the pipeline at the moment.
+ - It’s still too early to say how my wife will influence my life. But I do already know that it’s sometimes hard work living with her.
+ - Other than the fact that I like a country house, I can’t think of anything I’d want to spend my money on.
+ - Previously, on Lock, Stock, I went to bed at two in the morning and woke up at five in the morning, and on this one I was known to nod off on the set occasionally.
+ - I can understand that the whole world is interested in my wife Madonna. That’s even why I married her.
+ - I like filming in the UK – I’ll sleep in my own bed, which I’m really happy about.
+ - I think there’s a natural system in your own head about how much violence the scene warrants. It’s not an intellectual process, it’s an instinctive process.
+ - It’s not easy to strap yourself down to a desk and bash on a keyboard when you know you can direct lots of films, because directing films is fun and interactive and gregarious. Writing isn’t.
+ - I am relatively familiar with getting a good old rumping from the critics. In some cases, the critics just didn’t like the film – fair cop. Others, I think, didn’t understand it.
+ - I suppose directing on set is the most fun because it’s a good crack and you feel you’re on the battlefield whereas writing is a fairly solitary undertaking.
+ - The idea is that that there is no such thing as an external enemy.
+ - I got too fed up with films that didn’t make you think. I liked the idea of one that you’d have to be dancing around with. I like my mind to be engaged when I watch a film.
+ - Its about not letting the internal enemy, the real enemy, have his way because the more he does the stronger he becomes. The films about the devastating results that can manifest from the internal enemy being unbridled and allowed to unleash chaos.
+ - If somebody has a better idea than me, I’ll take it if it surpasses what we have on the page because at the end of the day, it’s me that takes the credit anyway!
+ - I think it’s that much harder to make a good comedy than it is straight and apparently serious.
+ - I got into film-making because I was interested in making entertaining movies, which I felt there was a lack of.
+ - I think everything you do, characters I always find, have their own voices and once you establish who that character is you find a different voice. I think it’s just a question of establishing that character and the voice speaks through that character.
+ - One of the interesting and exciting things about my job is watching technological ground being pioneered.
+ - I like to think that we’ve got a plan, so let’s stick to it. That said, once we’ve stuck to it, we’re allowed as much improvisation as anyone cares to indulge themselves in.
+ - What I liked about American movies when I was a kid was that they’re sort of larger than life and I think I’m still suffering from that reaction.
+
+41 quotes

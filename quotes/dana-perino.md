@@ -1,0 +1,37 @@
+ - Time goes by so fast and worry is really wasted time and energy.
+ - A lot of people think that public speaking means that you are standing at a podium giving a speech, but public speaking comes in lots of different formats.
+ - If you have a crippling fear of public speaking, recognize that that is perfectly normal. And know that the only way to get over those nerves is to fully understand the material, the points, the policy you are trying to explain – and then practice it a little bit.
+ - Trustworthiness is the thing that you need the most going to a presidential election. Honest and trustworthy is one of the main questions in any presidential election.
+ - Live to fight another day on better legislation.
+ - Hardest job in America is being a single mom. There are a lot of them and a lot of them in Baltimore and I think that they absolutely do their best. They can’t keep continue to do their best if businesses flee the city.
+ - I think I deserve an apology.
+ - I suggest that people make an effort to reach out to five people a month. Not just by Facebook or email or Twitter. I’m talking hard-copy note.
+ - I’m a worrier by nature. My husband says that if I’m not worried about something, I’m worried about what I’ve forgotten to be worried about.
+ - Choosing to be loved and to take the leap to get married younger than most of my friends was not a career-limiting decision for me.
+ - What woman wants to go home with a guy that lives with his mother?
+ - I’m sure lots of people would love to ridicule me when I say this, but it is true: many people die from cold related deaths every winter, and here are studies that say that climate change in certain areas of the world would help those individuals.
+ - I waited tables at Govnr’s Park Tavern in Denver.
+ - We did not have a terrorist attack on our country during President Bush’s term.
+ - I hear a lot of young people talking about the need to network. I think that is true, and I think that building a network makes sense. But I also think that there is another way to approach it, and that is to try to make friends. Just try to make a lot of friends.
+ - I think that having love in your life does open up doors and other possibilities.
+ - Senator Lugar will also travel to Libya for official meetings as a part of the president’s initiative to move toward more normal relations reflecting that country’s renunciation of terrorism and abandonment of its weapons of mass destruction and longer range missiles.
+ - Even before the hearings that led to confirmation of Chief Justice Roberts, senators were saying they were reserving judgment on how they would vote until they got to know him better at the hearings.
+ - Take any job, get started and stop with the video games and pot. I’m not for that.
+ - I’m for freedom, which I believe is a universal value that every human being is and that is a gift from God.
+ - The intelligence activities undertaken by the United States government are lawful, necessary and required to protect Americans from terrorist attacks.
+ - It’s not good enough to just know what to say about the policy; it’s really important to take the extra step to learn the policy, to be able to understand it, and articulate it.
+ - Believe it or not, the number one fear in America remains public speaking. And, in some ways, I think that is a real shame because we are so blessed to live in a country where we are able to express ourselves, so we should want to do that.
+ - Once you break someone of the habit of up-talking, they can start to see immediate improvement in their careers.
+ - I actually think that the president owes the Jews of Europe an apology. They deserve better from the President of the United States. Anti-semitism is on the rise, and somebody must stick up for them.
+ - Whether it’s foreign money or hiding emails, these stories are creating a narrative about Hillary Clinton trying to be above everyone else and operating under her own set of rules.
+ - I think a lot of women, especially ones that want to achieve career goals, tend to worry. I don’t want anyone to worry their life away.
+ - Just recognize that you are not going to become a comfortable public speaker overnight. It can take a long time.
+ - I think, certainly, in history, if you look back, a lot of people would go through their careers, build a business, or be a doctor, lawyer, and then they would go and do public service later on in their careers.
+ - Most women beat themselves up because they think they are not good enough at anything. All of those things just eat at you all the time.
+ - I’ve found that knowing the material or the policy or the facts better than anyone else in the room is so empowering – and that means fully understanding them.
+ - The democratic race is really boring when the media is basically writing stories and spending money to ask questions in a poll about somebody who is not even a declared candidate.
+ - Why does everyone like this movie? And Americans kept going to the movie. So Hollywood figures out the market, and the market wants to know what happened in Benghazi.
+ - The energy problems that we face today were built up over a long period of time and are not going to be solved overnight.
+ - President Obama deserves credit for building what you call the largest coalition to fight terror.
+
+35 quotes

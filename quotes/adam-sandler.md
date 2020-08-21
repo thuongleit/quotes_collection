@@ -1,0 +1,131 @@
+ - It’s hard to soar with the eagles when you’re surrounded by turkeys.
+ - I kinda feel like an idiot sometimes. Although I am an idiot, so it kinda works out.
+ - Chemistry can be a good and bad thing. Chemistry is good when you make love with it. Chemistry is bad when you make crack with it.
+ - My hobbies are run-on sentences.
+ - I’m a big fan of money. I like it, I use it, I have a little. I keep it in a jar on top of my refrigerator. I’d like to put more in that jar. That’s where you come in.
+ - I choose to ignore hell in my life. When I was a little kid I asked my Dad “Am I going to go to hell?” because I’d heard about hell. And he said, “Nothing you’re gonna do will get you into hell.” And so I got to ignore it.
+ - The only reason I got into stand-up was because my brother told me to. I had no idea what I was going to do with my life. I was 17 and my brother went to a comedy club and he said – you can do that.
+ - I’m getting older, and it happens. You don’t care as much. I don’t care about too much anymore. I’ve got to think about that a little bit.
+ - My name is Adam Sandler. I’m not particularly talented. I’m not particularly good-looking. And yet I’m a multi-millionaire.
+ - I drew the duck blue because I’ve never seen a blue duck before and, to be honest with you I wanted to see a blue duck.
+ - Alright, remember, alcohol equals puke equals smelly mess equals nobody likes you.
+ - I never had a speech from my father ‘this is what you must do or shouldn’t do’ but I just learned to be led by example. My father wasn’t perfect.
+ - I finished a big book the other day. 421 pages. That’s a lot of coloring when you think about it.
+ - I don’t want want to go to jail, I’m fragile.
+ - I was raised by a mother who told me I was great every day of my life.
+ - On this lovely, lovely Hanukkah, drink your gin and tonica.
+ - I mean, I look at my dad. He was twenty when he started having a family, and he was always the coolest dad. He did everything for his kids, and he never made us feel like he was pressured. I know that it must be a great feeling to be a guy like that.
+ - Some of us will never ever find true love. Take, for instance me. And I’m pretty sure that guy right there. And that lady with the sideburns. And basically everybody at table nine.
+ - Bedtime stories were definitely a big part of my life because I was just so excited my father was talking to me.
+ - As a kid, I’d go into the bathroom when I was having a tantrum. I’d be in the bathroom crying, studying myself in the mirror. I was preparing for future roles.
+ - In one day, I have times where I’m feeling great, I feel like I love my life, and then 2:30 rolls around and I’m the angriest man alive. My wife sees it.
+ - I say things, like every other parent, that reminds you of your own parents. One thing I do know about being a parent, you understand why your father was in a bad mood a lot.
+ - I’m not making every decision due to my children. But I do hope they never see some movies I’m doing. But I do want to do more family-friendly movies.
+ - I wanted to make sure that I did one movie in my career that mothers hug me for.
+ - When I was younger and did a stand-up gig, it would take me two weeks to recover. Sometimes I’d get so panicked that I would stutter.
+ - The toughest part is that when your kid’s upset, you’re upset. You’re rocked until they’re not upset. Even when they’re not upset, you’re like, “I hope that doesn’t happen, down the line.” You’re always nervous because you want your kid to be happy.
+ - I’m in a mood, Dave. A bad mood, a very bad mood! I was fired from my ice cream truck job today! No more Fudgicles!
+ - Mama says that, happiness is from magic rays of sunshine that come down when you’re feeling blue...
+ - I don’t know what the hell I’m doing; I like what I’ve been doing. I believe in what I’ve done in the past and I hope to make a movie that; I hope my kid enjoys the movies I’ve made and enjoys some of the movies in the future.
+ - I’ve got a hockey record, I took off my skate and tried to stab a guy, I’m the only person who ever tried that.
+ - I don’t laugh at me. I used to. I used to get the giggles when I’d see myself. But now, I see myself onscreen, and I sure don’t laugh.
+ - We just bought this house. It’s too big. It’s like 400,000 square feet, or something. We got an indoor lake and ski slope in the house! It’s just too big.
+ - I don’t know who I touch and who I don’t. I work hard trying to make people laugh. I try to do the kind of stuff that made me laugh growing up. I don’t have any secrets. I don’t know the reasons I’ve been so well received.
+ - I think the reason I don’t read is because, when I’m reading, I feel like I’m missing out on something else. You know, What are my friends doing? Where’s my girlfriend?
+ - My comedy is different every time I do it. I don’t know what the hell I’m doing.
+ - I think when I bought a house, that’s when I thought I felt like that’s a grown up thing to do.
+ - Eat turkey all night long, 50 million Elvis fans can’t be wrong.
+ - My movies just kind of sneak up on you. I don’t have to worry too much about what everybody is going to say. Anyway, I really don’t pay attention to what the world says about my movies. I just care about what my buddies think.
+ - Wasted is when you have a hankering for ice cream.
+ - I grew up cursing a lot.
+ - I don’t want my kid to hear any of the albums that I’ve made.
+ - It’s important I surround myself with people who make me happy.
+ - My intention is never to hurt anybody. I’m happy when people are having a good time.
+ - The Canteen Boy, the reason you feel bad for him and you can laugh is because he, and I guess a lot of my characters, they don’t notice they’re getting made fun of. So they’ll say something back that’s not that great a quip, but in their mind they won the argument.
+ - When I was kid, yeah, my family, my parents wanted me to marry a Jewish girl because that was what they taught their children, and thought it would be an easier life for me to raise a Jewish kid. And I have a Jewish wife, I have a Jewish kid. They seem pretty happy about it.
+ - Of course, I peed my pants, everyone my age pees their pants. It’s the coolest.
+ - My name is Adam. My father’s name is Adam. Having the same name as your father, it’s alright until your voice changes. My friends would always call up, ‘Is Adam there?’ My father would say, ‘This is Adam.’ My friends would say, ‘Adam, you were so wasted last night.’
+ - I wasn’t a kid growing up thinking, ‘One day I’ll get an Oscar and make a speech.’ That wasn’t on my mind.
+ - Comedy, such a lovely lady, she’ll pick you up, you your feeling blue.
+ - I sang a song at my sister’s wedding. My mother forced me into that, too. But that one felt all right.
+ - I did rocks, all this dumb stuff. But now it’s just trying to stay afloat and just get through the days.
+ - I have a love in my life. It makes me stronger than anything you can imagine.
+ - When I was a kid you always heard about the Israeli army and you always heard about this tiny little country and how everyone around them wants them gone, and every time somebody comes after them they take care of business. And so as a Jewish kid you were proud of that.
+ - I sing seriously to my mom on the phone. To put her to sleep, I have to sing ‘Maria’ from West Side Story. When I hear her snoring, I hang up.
+ - How do I speak Spanish? Not too well.
+ - Well I have a microphone and you don’t so you will listen to every damn word I have to say!
+ - I know I want to always do the best I can.
+ - I had my moments of being humiliated, and then I had moments of doing something humiliating. I’m glad I lived out both roles.
+ - Sometimes you can’t prioritise family and you feel guilty.
+ - My sisters are stronger and my brother’s bigger than me.
+ - It definitely has learning a lesson about the way you’re living your life. I wouldn’t compare our movie to that, but it has a structure where it’s about a man who doesn’t appreciate all that he has and finds out at the end that life has been great and he has to enjoy that.
+ - Now that I’m a parent, I understand why my father was in a bad mood a lot.
+ - I’m not comfortable being around too many people. I don’t like being out in public too much. I don’t like going to bars. I don’t like doing celebrity stuff. So most of the characters I play are people who don’t always feel comfortable beyond their small circle of friends.
+ - My mother says to me, when I’m making a new movie, she says, “Oh, is Steve Buscemi in it?” I’d say, “Yeah.” And she, “Oh, then it’s going to be a good one.” I swear to God, she says that every time. And when I say Steve’s not in it, she says, “Oh.”
+ - I think I’m playing grown up because I have kids now. But I don’t feel grown up yet.
+ - I don’t want to run around with new people. I feel safer with my friends.
+ - I don’t like being on a horse. That’s the only negative of doing a Western. I like the whole get up, and I look great in a hat. But I get tense around horses. So, if they could make a fake horse, then I’d do a Western.
+ - I’ve always liked older ladies, ever since my mother would have B’nai B’rith at our house.
+ - This character feels so much like my brother. He has two children. He has a wife. He works with me. He chooses to stay in New Hampshire because he wants his kids to grow up in the school they started with. He doesn’t want them to lose friends. He is his family’s hero.
+ - God gave me some weird, beautiful scent that makes men and women go crazy. People compare it to Carvel. It is a whale of a smell.
+ - I wish I was a better athlete. That would have been a little cooler, being a great boxer and walking into a room and going: “I can knock everybody out!” That’s a good feeling.
+ - I was just a young guy who was excited to become a comedian and an actor and I just wanted to get to do what I got to do.
+ - The fact that you can see a movie at home, it’s great. You’re making it for as many people to see it as possible. And that’s nice.
+ - Kids end up seeing my movies anyway but some of the mothers get mad at me so I figured I’d make one that I can’t get yelled at for.
+ - I still get very scared when I step in front of a live audience.
+ - I grew up cursing a lot. It felt natural. My parents told me to stop.
+ - I was a big fan of Kurt Russell growing up and I always wanted to be the modern day Kurt Russell.
+ - When I take my kid to school, all the parents stop and stare.
+ - I do love the films I’ve done in the past. I work hard in my movies and my friends work hard and we’re trying to make people laugh and I’m very proud of that.
+ - When I do stand-up shows at colleges, girls will talk to me after the show, and that always feels good. I like talking to them.
+ - I read to my kid, but I can’t stand reading.
+ - When you’re shooting a movie you are away from home most of the time. It’s an amazing thing that we get to do what we get to do, but you definitely are away from the family more than you’d like to be.
+ - SNL is a home. You’ve got all of your brothers and sisters there, and it’s a great time.
+ - Sir one more comment like that and I will strangle you with my microphone wire!
+ - My kids don’t have a trust fund, they have a debt fund.
+ - I still like doing stand-up now, but it’s not the same. It used to be that I was out there with five other comedians. Now I usually just do it alone.
+ - Doing Saturday Night Live definitely affects my relationship with my girlfriend and with my family, because you feel so much pressure to do well that night. But I think everyone’s grown to accept that and so they give me my space at the show.
+ - I’m not looking to get away from anything. I like what I’ve done. I like what I get to do and I enjoy working with my friends. I loved those movies, but this is incredible.
+ - I don’t like being out in public too much. I don’t like going to bars. I don’t like doing celebrity stuff.
+ - I’ve always just had troubles with my family because I’m psychotic. It had nothing to do with that.
+ - I go to sleep thinking about my kids being spoiled and I wake up thinking about it.
+ - I’m not great at bedtime stories. Bedtime stories are supposed to put the kid to sleep. My kid gets riled up and then my wife has to come in and go, ‘All right! Get out of the room.’
+ - I’ve got the kid. I feel a little more relief that I don’t have to just think about myself too much.
+ - The problem with me, as far as getting married and having a family, is that my comedy is so important to me. So I don’t know if I’ll ever be as good a dad as my dad.
+ - Sixth grade was a big time, in my childhood, of hoops and friendship, and coming up with funny things.
+ - I definitely connected to the fact that life gets out of control and you end up doing things and wishing you were doing other things instead.
+ - I’ll continue to make the typical Adam Sandler comedies.
+ - I’m just looking to make good movies and looking to be as good as I can be in them and that’s about it. But I feel much more comfortable doing a comedy, but the fact that I got to try a few dramas, I feel I’ve tested myself a little bit.
+ - I shouldn’t be near Vegas and have money in my pocket.
+ - Feels good to try, but playing a father, I’m getting a little older. I see now that I’m taking it more serious and I do want that lifestyle.
+ - I still like some of the stuff, skateboarding. Just stupid things.
+ - With the amount of money I have, it’s difficult raising children the way I was raised.
+ - I’ve always wanted to do a family movie.
+ - I really do enjoy making movies and I try to test myself on occasion with some different stuff.
+ - When I’m around the kids I feel like I act the most grown-up just because you’re supposed to. And I say things, like every other day, that remind me of my own parents.
+ - My buddies, we’ve always just tried to make each other laugh. I mean, just like all friends hanging out – that’s the goal.
+ - I’m filthy rich! It’s good to be Adam Sandler!
+ - Put on your yarmulkahHere comes HannukahSo much funnukahTo celebrate Hannukah.
+ - I don’t know what drives me to succeed.
+ - I’m 31 now. I think I’m beginning to understand what life is, what romance is, and what a relationship means.
+ - When I’m up there, and I know the show’s coming to a close, in my head I’m saying to myself, Oh man, you gotta get off and be a normal person again. That’s what I don’t like so much.
+ - In high school I wanted to be a rock star and was in a lot of bands.
+ - My father used to wear the same pants for like a week.
+ - I’ve been called a moron since I was about four. My father called me a moron. My grandfather said I was a moron. And a lot of times when I’m driving, I hear I’m a moron. I like being a moron.
+ - I enjoy doing all different types of movies even though I am the most comfortable with comedy.
+ - Girls are soft and pretty.
+ - It’s nice when little teams win.
+ - I like sitting and writing with my buddies.
+ - My grandmother used to embarrass me more, when she would pick me up from school wearing a big fuzzy hat. I didn’t like that.
+ - Most of the stuff I do on the show comes out of me just trying to make my friends laugh.
+ - You’ve just got to give yourself time – that’s good advice I think. Give yourself time to figure out what you’re good at and what you’re not good at.
+ - A lot of critics object to what I do, but I got into comedy to make people laugh, and I’ve always worked hard.
+ - It’s just weird that out of nowhere God said, May the three best-looking guys in Hollywood have babies – Tom Cruise, Brad Pitt and me. It was bizarre that God said, I want to make the planet more beautiful, and I got the call.
+ - I’ve always had lots of friends and my house was the house they all hung out at.
+ - I prefer musicals, because I am the best dancer who ever lived. The best plies, the best sashays, and by far the best-smelling Capezios.
+ - I do want children. I study dads more. I watch what they go through. I admire my father more than I ever did and my brother and my sister.
+ - When the kids are laughing in the audience, I tear up, I’m so happy I did a nice thing.
+ - I’ve always liked older ladies. I’m comfortable with it. They seem to be nice. They’ve seen it all.
+ - Back to school to prove to Dad that I’m not a fool.
+
+129 quotes

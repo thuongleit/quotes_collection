@@ -1,0 +1,56 @@
+ - Change isn’t easy, it takes time.
+ - It’s true, Christmas can feel like a lot of work, particularly for mothers. But when you look back on all the Christmases in your life, you’ll find you’ve created family traditions and lasting memories. Those memories, good and bad, are really what help to keep a family together over the long haul.
+ - As much as we need a prosperous economy, we also need a prosperity of kindness and decency.
+ - Poetry is really a way of sharing feelings and ideas.
+ - I enjoy writing. I enjoy that kind of process.
+ - I grew up in New York, I love New York.
+ - To the extent that we are all educated and informed, we will be more equipped to deal with the gut issues that tend to divide us.
+ - It is not easy to stand up against your constituents or your friends or colleagues or your community and take a tough stand for something you believe is right. Because you always want to keep working and live to fight another battle and it might cost you your career.
+ - The bedrock of our democracy is the rule of law and that means we have to have an independent judiciary, judges who can make decisions independent of the political winds that are blowing.
+ - I have come to believe, more strongly than ever, that after people die they really do live on through those who love them.
+ - In a funny way, poems are suited to modern life. They’re short, they’re intense. Nobody has time to read a 700-page book. People read magazines, and a poem takes less time than an article.
+ - After my mom died, there was so much written about her fashion and her style and all that, and I felt that one of the most important parts of her was missing, her real intellectual curiosity.
+ - When you make the right decision, it doesn’t really matter what anyone else thinks.
+ - You have to remind kids to stay connected to the meaning of Christmas. Sometimes it takes a little bit of effort, but it’s so worth it.
+ - Sharing the holiday with other people, and feeling that you’re giving of yourself, gets you past all the commercialism.
+ - I don’t remember my father reading to me, but I remember him telling me bedtime stories. I got to pick what was in them, and then he’d make them up.
+ - In those rare moments, when such a person comes along, we need to put aside our plans and reach for what we know is possible.
+ - Well there’s nobody who has a more supportive husband than I do, and he has a business that he runs, and it’s his own business, so he has work to do, my kids have school to do, I mean, people have – there are other things in life besides politics.
+ - I have a lifelong devotion to public service.
+ - Now is the time to move this country forward.
+ - I have never had a president who inspired me the way people tell me that my father inspired them. But for the first time, I believe I have found the man who could be that president – not just for me, but for a new generation of Americans.
+ - In terms of my marriage, you know, falling in love with my husband was by far the best thing that’s ever happened to me.
+ - Most of the books that I’ve written have been focused on, sort of, the individual, and sort of, either a voice, a personal voice, or a kind of transforming event where they step forward to fight for something they value.
+ - I feel that my father’s greatest legacy was the people he inspired to get involved in public service and their communities, to join the Peace Corps, to go into space. And really that generation transformed this country in civil rights, social justice, the economy and everything.
+ - Education was the most important value in our home when I was growing up.
+ - There’s so much to think about when you’re becoming an adult, and there’s so many great poems about that apprehension and excitement.
+ - I grew up in a household where reading was encouraged. My mother believed in the power of words, and my father obviously did too.
+ - In my family in particular, I think, there was a sense we have to work twice as hard.
+ - I can see both sides of term limits, and I think, in different positions, term limits make more sense than in some others.
+ - The most beautiful people are all in the library.
+ - I never thought I’d be doing poetry books. I never really studied poetry. But the first one I did was after my mother died, and I realized that people sort of think and talk about her style and fashion, but in fact, what made her the person she was was really her love of reading and ideas.
+ - People don’t always realize that my parents shared a sense of intellectual curiosity and a love of reading and of history.
+ - One of the greatest gifts my brother and I received from my mother was her love of literature and language. With their boundless energy, libraries open the door to these worlds and so many others. I urge young and old alike to embrace all that libraries have to offer.
+ - Growing up in politics I know that women decide all elections because we do all the work.
+ - The biggest problem is people are afraid of poetry, think they can’t understand it or that it will be boring.
+ - I’ve been a Democrat all my life.
+ - John and I were lucky because our mother was a strong woman with high expectations and a strong sense of values. She encouraged us to pursue things we were interested in and not think about what other people wanted us to do.
+ - I am, you know, a Democrat through and through. I’ve always voted Democratic. You know, that is where my heart lies.
+ - I feel like my grandparents and parents gave me a tremendous amount. And if I can pass some of that on, then I’ll be very happy.
+ - Well I’ve been writing books. So that, by its nature, is kind of a solitary occupation. And from time to time I have research help, but mostly I’ve done those completely on my own.
+ - I’m not as shy as everybody makes me out to be.
+ - Many people remember that spirit that President Kennedy summoned forth. Many people look to me as somebody who embodies that sense of possibility.
+ - Going into politics is something people have asked me about forever.
+ - I think one of my father’s great legacies is the people that he inspired and the generation that he inspired transformed America through civil rights, women’s rights, equal justice, and they’ve passed that on to their children and grandchildren.
+ - I know how important it is to, you know, to be my own person.
+ - The amazing thing about the winners is that none of them really felt that they were doing anything special. They just felt like it was the right thing to do.
+ - I’ve raised three kids. I’m a lawyer. I’ve written books on the Constitution.
+ - We need a President who is not afraid of complexity, who believes in an open and tolerant society, and who knows that the world can be made new again – and that President is Al Gore.
+ - I may, and I think I represent a tradition that means a lot to me, which has really always been about fighting for others, for middle-class families, for working class – for working people, you know, and that’s a tradition and a commitment that I take very seriously.
+ - Well, the role of money in politics is pretty corrupting right now.
+ - I know my mother so well, so it’s hard for me to remember that people have a certain image of her, but they don’t really know her personality.
+ - I think that the presidency really brings out the best in a lot of people.
+ - I’ve campaigned for people. I’ve campaigned across the country for people. I have supported people in local elections. I do work with groups and causes. So, I feel like I am a participant and a civically-engaged citizen.
+ - Well, I think, you know, the arts are really what – one of the things that make this country strong. We always think it’s our economy or our military power, but in fact, I think it’s our culture, our civilization, our ideas, our creativity.
+
+54 quotes

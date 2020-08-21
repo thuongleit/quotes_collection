@@ -1,0 +1,59 @@
+ - The hijrah to Allah includes abandoning what He hates and doing what He loves and accepts.
+ - Wasting time is worse than death, because death separates you from this world whereas wasting time separates you from Allah.
+ - The perfection of Tawheed is found when there remains nothing in the heart except Allaah.
+ - As long as you are performing prayer, you are knocking at the door of Allah, and whoever is knocking at the door of Allah, Allah will open it for him.
+ - If a heart becomes attached to anything other than Allah, Allah makes him dependent on what he is attached to. And he will be betrayed by it.
+ - A real man is one who fears the death of his heart, not of his body.
+ - If the heart becomes hardened, the eye becomes dry.
+ - Sins have many side-effects. One of them is that they steal knowledge from you.
+ - Beware of every hour and how it passes, and only spend it in the best possible way, do not neglect yourself, but render it accustomed to the noblest and best of actions, and send to your grave that which will please you when you arrive to it.
+ - The heart will rest and feel relief if it is settled with Allah. And it will worry and feel anxious if it is settled with the people.
+ - Love of Allah is the power of the heart, the sustenance of the heart, the light of the heart.
+ - Whoever desires to purify his heart, then let him prefer Allah to his desires.
+ - This wordly life is like a shadow. If you try to catch it, you will never be able to do so. If you turn your back towards it, it has no choice but to follow you.
+ - When Allah tests you it is never to destroy you. When He removes something in your possession it is only in order to empty your hands for an even greater gift.
+ - There is no joy for the one who does not bear sadness, there is no sweetness for the one who does not have patience, there is no delight for the one who does not suffer, and there is no relaxation for the one who does not endure fatigue.
+ - A person’s tongue can give you the taste of his heart.
+ - Allah will never humiliate the one who takes his Lord as friend and patron.
+ - Be sincere in your aim and you will find the support of Allaah surrounding you.
+ - Speech remains as a slave to you, but the moment it leaves your mouth, you become its slave.
+ - The keys to the life of the heart lie in reflecting upon the Quran, being humble before Allah in secret, and leaving sins.
+ - One of the most beneficial of remedies is persisting in du’a.
+ - There are six stages to knowledge: Firstly: Asking questions in a good manner. Secondly: Remaining quiet and listening attentively. Thirdly: Understanding well. Fourthly: Memorising. Fifthly: Teaching. Sixthly- and it is its fruit: Acting upon the knowledge and keeping to its limits.
+ - Women are one half of society which gives birth to the other half so it is as if they are the entire society.
+ - Patience is that the heart does not feel anger towards that which is destined and that the mouth does not complain.
+ - If you knew the true value of yourself, you will never allow yourself to be humiliated by committing sins.
+ - Happiness is attained by three things: being patient when tested, being thankful when receiving a blessing, and being repentant upon sinning.
+ - If you wish to check how much you love Allah, then see how much your heart loves the Quran, and you will know the answer.
+ - Beware of preoccupying your heart with what it has not been created for.
+ - How strange! You lose a little from you and you cry. And your whole life is wasting and you’re laughing.
+ - When a person spends his entire day with no concern but Allah alone, Allah will take care of all his needs and take care of all that is worrying him; He will empty his heart so that it will be filled only with love for Him.
+ - Sitting with the poor and less fortunate people removes the ego and pride from your heart.
+ - The sinner does not feel any remorse over his sins, that is because his heart is already dead.
+ - Every love that leads away from His love is in fact a punishment; only a love that leads to His love is a heartfelt and pure love.
+ - And if a person were given all of the world and what is in it, it would not fill his emptiness.
+ - When there is money in your hand and not in your heart, it will not harm you even if it is a lot; and when it is in your heart, it will harm you even if there is none in your hands.
+ - Be to Allah as He wishes, and He will be to you more than you can wish for.
+ - He who keeps his heart near God will find peace and tranquility, whilst he who gives his heart to the people will find restlessness and apprehension.
+ - A tear that runs down a believer’s cheek is more beneficial than a thousand raindrops on the earth.
+ - Whoever prefers Allah to all others, Allah will prefer him to others.
+ - There are no means of attaining faith and certainty except through the Qur’an.
+ - O you, who spends his lifetime disobeying his Lord, no one amongst your enemies is wicked to you more than you are to yourself.
+ - A true believer does not fear physical death, rather he fears the death of his heart.
+ - Ibn Taymiyyah lived poorly. He was imprisoned and threatened. But I have never seen anyone as happy as him.
+ - And verily for everything that a slave loses there is a substitute, but the one who loses Allah will never find anything to replace Him.
+ - If the heart is fed by love, the greed for pleasure would disappear.
+ - O people who take pleasure in a life that will vanish, falling in love with a fading shadow is sheer stupidity.
+ - Every gulp of air that goes out in a cause other than the cause of Allah will turn to sorrow and regret on the Day of Judgement.
+ - The soul will never become pious and purified except through undergoing afflictions. It is the same as gold that can never be pure except after removing all the base metals in it.
+ - Whoever mocks his brother for a sin they repented from will not die till he himself falls into the same sin.
+ - If a man’s patience is stronger than his whims and desires, then he is like an angel, but if his whims and desires are stronger than his patience, then he is like a devil. If his desire for food, drink and sex is stronger than his patience, then he is no better than an animal.
+ - A slave stands infront of Allah on two occasions. The first during salah, and secondly on the Day of Judgment. Whoseover stands correctly in the first, the second standing will be made easier for him. And whosoever, disregards the first standing, the second standing will be extremely difficult.
+ - As long as one is following the right way, one should never be concerned about the reproaches of those who like to find faults.
+ - Losing time is harder than death, as losing time keeps you away from Allah and the Hereafter, while death keeps you away from the worldly life and people.
+ - Everything that is loved, if it is not loved for His sake then this love is nothing but distress and punishment. Every action that is not performed for His sake then it is wasted and severed. Every heart that does not reach Him is wretched; veiled from achieving its success and happiness.
+ - Doom comes about because of neglecting to evaluate one’s self and because of just following one’s whims.
+ - The sea of pleasures may drown its owner and the swimmer fears to open his eyes under the water.
+ - As you can taste a pot full of food with a spoon likewise someone’s tounge can tell you about his heart.
+
+57 quotes

@@ -1,0 +1,143 @@
+ - Humility is nothing but truth, and pride is nothing but lying.
+ - Noise makes no good, good makes no noise.
+ - Practice humility and patience.
+ - If God is the center of your life, no words are necessary. Your mere presence will touch hearts.
+ - There is no act of charity that is not accompanied by justice or that permits us to do more than we reasonably can.
+ - One beautiful diamond is worth more than a mountain of stones, and one virtuous act of acquiescence and submission is better than an abundance of good works done for others.
+ - The angels would become incarnate if they could, so that they might come to earth to imitate the example and virtues of the Son of God!
+ - Put your trust in Him and following His example, always act humbly, graciously, and in good faith.
+ - Our Lord and the saints accomplished more by suffering than by acting.
+ - So, our vocation is to go, not just to one parish, not just to one diocese, but all over the world; and do what? To set people’s hearts on fire, to do what the Son of God did. He came to set the world on fire in order to inflame it with His love.
+ - People are made in such a way that even the holiest ones are liable to offend one another.
+ - Fear not; calm will follow the storm, and perhaps soon.
+ - What you are saying is true of those who want everything to give way to them, nothing to oppose them, everything to go their way, people to obey them without comment or delay and, in a manner of speaking, to be adored.
+ - We must be firm but not rough in our guidance and avoid an insipid kind of meekness, which is ineffective.
+ - If there is any danger in the present weather, in the name of God, Monsieur, wait until spring.
+ - When we receive with an entire and perfect resignation the afflictions which God sends us they become for us favors and benefits; because conformity to the will of God is a gain far superior to all temporal advantages.
+ - There is a vast difference between an Apostolic life and the solitude of the Carthusians. The latter is truly very holy but is not suited to those whom God has called to the former, which is in itself more excellent.
+ - If, in order to succeed in an enterprise, I were obliged to choose between fifty deer commanded by a lion, and fifty lions commanded by a deer, I should consider myself more certain of success with the first group than with the second.
+ - When in Rome, you must do as the Romans do and accept the local customs, if they are not immoral.
+ - I will always welcome joyfully any opportunity that comes my way to be of service to you.
+ - Nature makes trees put down deep roots before having them bear fruit, and even this is done gradually.
+ - We should spend as much time in thanking God for his benefits as we do in asking him for them.
+ - Perfection consists in a constant perseverance to acquire the virtues and become proficient in their practice, because on God’s road, not to advance is to fall back since man never remains in the same condition.
+ - Experience has shown us that virtue puts down only shallow roots in those who are there for just a short time.
+ - If you grant asylum to so many refugees, your house may be sacked sooner by the soldiers; I see that clearly. The question is, however, whether, because of this danger, you should refuse to practice such a beautiful virtue as charity.
+ - Naturally, everyone loves his freedom, but we must beware of this as of a broad road that leads to perdition.
+ - Is it not better to fail after asking advice than to risk acting on our own?
+ - Make it a practice to judge persons and things in the most favorable light at all times and under all circumstances.
+ - We should take as a maxim never to be surprised at current difficulties, no more than at a passing breeze, because with a little patience we shall see them disappear. Time changes everything.
+ - Peace is worth more than all worldly possessions; in addition, God rewards it even in this life.
+ - He also always blesses humble beginnings much more than those accompanied by a lot of show.
+ - We should strive to keep our hearts open to the sufferings and wretchedness of other people, and pray continually that God may grant us that spirit of compassion which is truly the spirit of God.
+ - The kingdom of God is peace in the Holy Spirit; He will reign in you if your heart is at peace. So, be at peace, Mademoiselle, and you will honor in a sovereign way the God of peace and love.
+ - Your soul will be blessed, Sister, if you bear patiently the troubles of mind and body His Providence sends you, or which come to you from within and without.
+ - All comes at the proper time to him who knows how to wait.
+ - You say you experience great difficulty in the mission. Alas! Monsieur, there is no lot in life where there is nothing to be endured.
+ - If you think something should be done, take the trouble to write to me about it, and together we will decide the time and manner of doing it.
+ - We must endeavor to have God reign sovereignly in us, and then in others. The trouble with me is that I take more care to have Him reign in others than in myself.
+ - To this end, we should help and support one another and strive for peace and union among ourselves. This is the wine that cheers and strengthens travelers along the narrow path of Jesus Christ.
+ - Let us be submissive to Providence, He will see to our affairs in His own time and in His own way.
+ - All of you desire to belong entirely to God, and God also wants all of you to belong to Him.
+ - In order to become soundly virtuous, it is advisable to make good practical resolutions concerning particular acts of the virtues and to be faithful in carrying the out afterwards. Without doing that, one is often virtuous only in one’s imagination.
+ - O Monsieur de Sergis, how important a matter is submission of spirit to a superior!
+ - Remember, Monsieur, that Saint Augustine says that a person who does not obey the doctors is doing his best to kill himself.
+ - Divine Providence is never wanting in things undertaken at Its command. Even though the whole world should rise up and destroy us, nothing could happen but what is pleasing to God. The less there is of man in affairs, the more there is of God.
+ - All beginnings are somewhat strange; but we must have patience, and little by little, we shall find things, which at first were obscure, becoming clearer.
+ - God always gives a great blessing to humble beginnings than to those that start with the chiming of bells.
+ - With God’s help, you will continue to succeed in your leadership and in your duties, because Our Lord’s work is accomplished not so much by the multitude of workers as by the fidelity of the small number whom He calls.
+ - The most powerful weapon to conquer the devil is humility. For, as he does not know at all how to employ it, neither does he know how to defend himself from it.
+ - The children of our Lord walk gladly in his ways; they have confidence in him, and so when they fall, they rise again; and if, instead of stopping to grumble about the stone they have tripped over, they humble themselves at their fall, this helps them to advance with great strides in his love.
+ - Let us do our duty well; let us go straight to God; let us work to become very humble, very patient, very mortified, and very charitable.
+ - God allows us to give rise to the practice of two beautiful virtues: perseverance, which leads us to attain the goal, and constancy, which helps us to overcome difficulties.
+ - In the name of Our Lord, Monsieur, do all you can to regain your health and take good care of it so that you can serve God and the poor for a longer time. This moderate care does not preclude the obligation we have of generously risking our lives when the salvation of our neighbor is concerned.
+ - Our Lord is pleased to deprive us of temporal goods; may it please His Divine Goodness to give us spiritual ones!
+ - In the name of God, Monsieur, let us have greater confidence in Him than we do; let us allow Him to steer our little bark; if it is useful and pleasing to Him, He will save it from shipwreck.
+ - Who will excuse us before God for the loss of such a great number of people, who could be saved by the slight assistance we could give them?
+ - Since God is satisfied with our good will and honest efforts, let us also be satisfied with the outcome He gives to them, and our actions will never be without good results.
+ - If you must be in a hurry, then let it be according to the old adage, and hasten slowly.
+ - We must be full reservoirs in order to let our water spill out without becoming empty, and we must possess the spirit with which we want them to be animated, for no one can give what he does not have.
+ - Since you know the means of getting better, in the name of God, make use of them. Do not take on anything beyond your strength, do not be anxious, do not take things too much to heart, go gently, do not work too long or too hard.
+ - You should not open your mouth except to express gratitude for benefits you have received, and never to mention your discontent.
+ - If you do not see any good in these persons, then say nothing, but if you do see some, speak about it to honor God in them because all good proceeds from Him.
+ - Always be quite simple and sincere and ask God to grant me those two virtues.
+ - In the name of God, Monsieur, let us not be so little attached to God’s service that we yield to a useless fear which may cause us to abandon the task He has given us.
+ - Let us allow God to act; He brings things to completion when we least expect it.
+ - We must be firm but not rough in our guidance and avoid an insipid kind of meekness, which is ineffective. We will learn from Our Lord how our meekness should always be accompanied by humility and grace so as to attract hearts to Him and not cause anyone to turn away from Him.
+ - Rarely is any good done without difficulty; the devil is too subtle and the world too corrupt not to attempt to nip such a good work in the bud.
+ - I am the only wretch who keeps on heaping new iniquities and abominations on myself. O Monsieur, how merciful God is to put up with me with so much patience and forbearance, and how weak and miserable I am to abuse his mercies so greatly!
+ - Do not be afraid of undertaking too much of what you can do without coming and going; but fear only the thought of doing more than you are doing and more than God is giving you the means to do.
+ - So, we pray well when we remain in this way in the presence of God, with no exertion of the understanding or will. Therefore, you will do well to listen to God in the urge you feel to return to us.
+ - If after so much effort and prayer, the matter is not successful, it will be a clear sign that God does not will it.
+ - A doctor who keeps a person from becoming ill deserves more merit than one who cures him.
+ - Remember the maxim of the Romans which states that by union and counsel we can achieve anything.
+ - Never betray His principles for any reason whatsoever, and take great care not to spoil God’s affairs by too much haste in them.
+ - There are good, God-fearing persons who still fall into certain faults, and it is better to bear with them than to be hard on them.
+ - If your men grow weary of the work or balk at obedience, you must bear with them. Get what you can gently from them. True, it is good to be firm in attaining your goal, but use appropriate, attractive, and agreeable means.
+ - The works of God are not accomplished when we wish them, but whenever it pleases Him.
+ - Remember, Monsieur that roses are not gathered except in the midst of thorns and that heroic acts of virtue are accomplished only in weakness.
+ - Peace is worth far more than anything they might take from you.
+ - Let us reflect that we shall always do God’s Will and He will do ours when we carry out that of our Superiors.
+ - I feel so strongly about the truths Our Lord taught us by word and example that I cannot help but see how everything done according to that teaching always succeeds perfectly well, while things done the opposite way have a quite different result.
+ - With whose imperfections will you bear, and what insult are you capable of enduring, if a thoughtless word from your own Superior is unbearable?
+ - The vine-stock bears fruit as long as it is attached to its stem; apart from that, no.
+ - In this way, through experience they will be formed adequately, will be encouraged, and will be capable of rendering service to God.
+ - I cannot think of the results of your labors without shame at the little we do.
+ - In a word, we owe obedience to the bishops in all things pertaining to our work in the missions, with ordinands, etc., but the spiritual and internal direction belongs to the Superior General.
+ - Nevertheless, when one is ill, one should be submissive to the doctor and obey him.
+ - The wisest persons, surprised by some passion, often say things they later regret.
+ - It is not light they need but strength, and strength permeates through the external balm of words and good example.
+ - Be acted upon rather than active. In this way, God will do through you alone what all men put together could not do without Him.
+ - In a word, we are like the servants of the centurion in the Gospel with regard to the bishops, insofar as when they say to us: go, we are obliged to go; if they say: come, we are obliged to come; do that, and we are obliged to do it.
+ - It is a maxim of ours to work in the service of the people, with the good pleasure of the pastors, and never to act contrary to their wishes. And, at the opening and closing of each mission, we get their blessing in a spirit of dependence.
+ - I would rather him to bear patiently with it than to put himself in danger of a greater evil.
+ - Man’s condition is never the same; he is humbled, then exalted; sometimes at peace, sometimes persecuted; enlightened today and plunged into darkness tomorrow. What is to be done? As I said, let us be prepared for whatever may happen.
+ - God’s affairs are accomplished gradually and almost imperceptibly and His spirit is neither violent nor tempestuous.
+ - If we want to find the manna hidden in our vocation, let us restrict and confine all our desires within it.
+ - Would that God, Monsieur, had rendered us worthy of spending our lives, as Our Lord did, for the salvation of those poor souls so far removed from all assistance.
+ - Remember, Monsieur, that the downfall of most Communities comes from the cowardice of Superiors in not holding firm and in not purging them of the troublesome and incorrigible.
+ - We must hold as an irrefutable maxim that the difficulties we have with our neighbor arise more from our immortified moods than from anything else.
+ - You know, Monsieur, that, although the contemplative life is more perfect than the active life, it is not, however, more so than one which embraces at the same time contemplation and action, as does yours, by God’s grace.
+ - A man who behaves poorly in a Community will not do well in a parish.
+ - Laws must never be made compatible with crimes, no more than lying should be in harmony with the truth.
+ - That’s what our Rules engage us to do, to help poor persons, our lords and masters.
+ - So, do not dwell any longer on what you are, but consider Our Lord close by you and within you, ready to put His hand to the work as soon as you call upon Him for help, and you will see that all will go well.
+ - Since I am a great sinner, I cannot reject those who have been, provided they have good will.
+ - It seems to me that the best way will be the one that is most gentle and forbearing, which is more in conformity with the Spirit of Our Lord and more apt to win hearts.
+ - May God be pleased to make it known to you, and fill you increasingly with His Spirit, so that through you it may be poured into the souls you guide, and your own soul may be more greatly sanctified!
+ - Experience teaches that what is feasible at the beginning is sometimes harmful as things go on, or subject to troublesome inconveniences.
+ - Providence must call us and we must follow it, if we are to go forward confidently.
+ - You can give me no greater consolation nor render greater service to your neighbor than to place yourself in a condition to serve him for a long time.
+ - Make an effort to serve good bread and good meat and not to sell the better wine so as to serve what is inferior...
+ - His Divine Goodness asks that we never do good in any place to make ourselves look important but that we always consider Him directly, immediately, and without intermediary in all our actions.
+ - Far from rejecting such a good man as you, He never even abandons a wicked man who hopes for His mercy.
+ - God has seen fit that, since our services are useful to many persons, everyone approves them, but only when they are carried out in the spirit of Our Lord.
+ - In God’s name, Monsieur, let us remain indifferent; let us strive to be equally attached to whatever obedience marks out for us, be it agreeable or disagreeable. By the grace of God, we belong to Him; what else should we desire except to please Him?
+ - Furthermore, the apostolic life does not exclude contemplation but encompasses it and profits by it to know better the eternal truths it must proclaim.
+ - It is not easy to find perfect men in whom there is nothing to criticize.
+ - God has granted me today a very particular fondness for requesting of Him that same virtue of ever choosing the worst and that which is contrary to my own liking.
+ - I have never come away from you without reflecting that the Spirit of God and His holy workings reside in you.
+ - We must love our neighbor as being made in the image of God and as an object of His love.
+ - I have made to God the offering you made to me of your heart and have asked him to unite mine with yours in that of Our Lord.
+ - Far from being a bad thing to seek advice, you must, on the contrary, do so when the matter is of any importance, or when we cannot come to a clear decision on our own.
+ - I hope that this man can be won over by your bearing charitably with him, advising him prudently, and praying for him. This is what I do for your family in general and for you in particular.
+ - Oh! how happy the man of means who uses his wealth and his life for the greater glory of God, from whom he has received them!
+ - And what are we doing if we are not doing God’s Will?
+ - You know that you yourself are not always in the same state. If you are exact today, closely united to God, and a consolation to the whole house, tomorrow you will be out of sorts, indolent, and a source of affliction to others. Then you will need their support, as you have supported them.
+ - Indeed, good is not good if one does not suffer in doing it.
+ - If the Company takes my advice, it will always be preserved through this maxim, for if we are good, we will not lack any, and if we are not, we already have too many houses anyway, and can hardly fill the few we have.
+ - It is a ruse of the devil, by which he deceives good people, to induce them to do more than they are able, so that they end up not being able to do anything. The spirit of God urges one gently to do the good that can be done reasonably, so that it may be done perseveringly and for a long time.
+ - There are some persons who are content with everything and others who are scarcely content with anything. These latter need patience to bear with themselves.
+ - I have never made any distinction between those who have taken vows and those who have not; some should not be overburdened in order to spare others.
+ - Scandal often does as much harm to the listeners as to those who devise it, even if it were to do no other harm than disturb the mind, as it does, and give rise to temptations to speak or write about it to others.
+ - If you say that a good reputation serves to benefit the neighbor more, I admit that. However, since it should be based on a good life, it is, therefore, preserved by the practice of virtue and not by human intrigue.
+ - It will be easier for you to bring him around to where you want him more by gentleness and patience than by being too uncompromising.
+ - He is greatly honored by the time we take to weigh with mature deliberation matters having to do with his service, as are all those with which we deal.
+ - You must moderate yourself according to your strength. When you have done all that you can to see that no Christian is perverted, you must find your consolation in Our Lord, who could prevent this misfortune and who is not doing so.
+ - If we divested ourselves, once and for all, of all self-will, we would then be in a position of being sure of doing the Will of God, in which the angels find all their delight and men all their happiness.
+ - Naturally, everyone is disheartened by sharp reprimands, and by the most amiable corrections as well, if they are frequent, immoderate, or given inappropriately.
+ - There is nothing good that does not meet with opposition, and it should not be valued any less because it encounters objections.
+ - Three can do more than ten when Our Lord puts His hand to things, and He always does so when He takes away the means of doing otherwise.
+ - God uproots the vine that He Himself has not planted.
+
+141 quotes

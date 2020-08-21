@@ -1,0 +1,286 @@
+ - Some of us think holding on makes us strong; but sometimes it is letting go.
+ - Whoever wants music instead of noise, joy instead of pleasure, soul instead of gold, creative work instead of business, passion instead of foolery, finds no home in this trivial world of ours.
+ - I can think. I can wait. I can fast.
+ - There is a miracle in every new beginning.
+ - Within you there is a stillness and sanctuary to which you can retreat at any time and be yourself.
+ - You have to try the impossible to achieve the possible.
+ - The true profession of a man is to find his way to himself.
+ - I have always believed, and I still believe, that whatever good or bad fortune may come our way we can always give it meaning and transform it into something of value.
+ - The bird fights its way out of the egg. The egg is the world. Who would be born must first destroy a world. The bird flies to God. That God’s name is Abraxas.
+ - Alas, Siddhartha, I see you suffering, but you’re suffering a pain at which one would like to laugh, at which you’ll soon laugh for yourself.
+ - If I know what love is, it is because of you.
+ - Love your suffering. Do not resist it, do not flee from it. It is only your aversion to it that hurts, nothing else.
+ - There is no reality except the one contained within us.
+ - I am in truth the Steppenwolf that I often call myself; that beast astray that finds neither home nor joy nor nourishment in a world that is strange and incomprehensible to him.
+ - Learn what is to be taken seriously and laugh at the rest.
+ - Youth ends when egotism does; maturity begins when one lives for others.
+ - We are not going in circles, we are going upwards. The path is a spiral; we have already climbed many steps.
+ - Without words, without writing and without books there would be no history, there could be no concept of humanity.
+ - When we hate a person, what we hate in his image is something inside ourselves. Whatever isn’t inside us can’t excite us.
+ - Siddhartha stopped fighting his fate this very hour, and he stopped suffering.
+ - I have been and still am a seeker, but I have ceased to question stars and books; I have begun to listen to the teaching my blood whispers to me.
+ - Your soul is the whole world.
+ - He had loved and he had found himself. Most people love to lose themselves.
+ - Theory is knowledge that doesn’t work. Practice is when everything works and you don’t know why.
+ - As a body everyone is single, as a soul never.
+ - You are only afraid if you are not in harmony with yourself.
+ - Because the world is so full of death and horror, I try again and again to console my heart and pick the flowers that grow in the midst of hell.
+ - To achieve the possible, we must attempt the impossible again and again.
+ - Solitude is independence. It had been my wish and with the years I had attained it. It was cold. Oh, cold enough! But it was also still, wonderfully still and vast like the cold stillness of space in which the stars revolve.
+ - I live in my dreams – that’s what you sense. Other people live in dreams, but not in their own. That’s the difference.
+ - I wanted only to live in accord with the promptings which came from my true self. Why was that so very difficult?
+ - There’s no reality except the one contained within us. That’s why so many people live an unreal life. They take images outside them for reality and never allow the world within them to assert itself.
+ - How could I fail to be a lone wolf, and an uncouth hermit, as I did not share one of its aims nor understand one of its pleasures?
+ - Words can not express the joy of new life.
+ - I have had to experience so much stupidity, so many vices, so much error, so much nausea, disillusionment and sorrow, just in order to become a child again and begin anew. I had to experience despair, I had to sink to the greatest mental depths, to thoughts of suicide, in order to experience grace.
+ - The river is everywhere.
+ - Happiness is love, nothing else.
+ - Art is the contemplation of the world in a state of grace.
+ - The river has taught me to listen; you will learn from it, too. The river knows everything; one can learn everything from it. You have already learned from the river that it is good to strive downwards, to sink, to seek the depths.
+ - When you like someone, you like them in spite of their faults. When you love someone, you love them with their faults.
+ - You are only afraid if you are not in harmony with yourself. People are afraid because they have never owned up to themselves. A whole society composed of men afraid of the unknown within them!
+ - Our god’s name is Abraxas and he is God and Satan and he contains both the luminous and the dark world.
+ - Making music together is the best way for two people to become friends.
+ - Each man’s life represents a road toward himself, an attempt at such a road, the intimation of a path. No man has ever been entirely and completely himself.
+ - A house without books is a poor house, even if beautiful rugs are covering its floors and precious wallpapers and pictures cover its walls.
+ - Everything becomes a little different as soon as it is spoken out loud.
+ - Everyone can perform magic, everyone can reach his goals, if he is able to think, if he is able to wait, if he is able to fast.
+ - Knowledge can be communicated, but not wisdom. One can find it, live it, be fortified by it, do wonders through it, but one cannot communicate and teach it.
+ - Happiness is a how; not a what. A talent, not an object.
+ - To be able to throw one’s self away for the sake of a moment, to be able to sacrifice years for a woman’s smile – that is happiness.
+ - Oh, love isn’t there to make us happy. I believe it exists to show us how much we can endure.
+ - Opinions mean nothing; they may be beautiful or ugly, clever or foolish, anyone can embrace or reject them.
+ - Each man’s life represents a road toward himself.
+ - The river taught us how to listen with a silent heart, with a waiting open soul...
+ - My real self wanders elsewhere, far away, wanders on and on invisibly and has nothing to do with my life.
+ - A longing to wander tears my heart when I hear trees rustling in the wind at evening...
+ - It was all a lie, it all stank, stank of lies, it all gave the illusion of meaning and happiness and beauty, and all of it was just putrefaction that no one would admit to. Bitter was the taste of the world. Life was a torment.
+ - Loneliness is the way by which destiny endeavors to lead man to himself.
+ - Our mind is capable of passing beyond the dividing line we have drawn for it. Beyond the pairs of opposites of which the world consists, other, new insights begin.
+ - I call that man awake who, with conscious knowledge and understanding, can perceive the deep unreasoning powers in his soul, his whole innermost strength, desire and weakness, and knows how to reckon with himself.
+ - I have always thirsted for knowledge, I have always been full of questions.
+ - Often it is the most deserving people who cannot help loving those who destroy them.
+ - I began to understand that suffering and disappointments and melancholy are there not to vex us or cheapen us or deprive us of our dignity but to mature and transfigure us.
+ - It is not our purpose to become each other; it is to recognize each other, to learn to see the other and honor him for what he is.
+ - The marvel of the Bhagavad-Gita is its truly beautiful revelation of life’s wisdom which enables philosophy to blossom into religion.
+ - If time is not real, then the dividing line between this world and eternity, between suffering and bliss, between good and evil, is also an illusion.
+ - The best weapons against the infamies of life are courage, wilfulness and patience. Courage strenthens, wilfulness is fun and patience provides tranquility.
+ - All life is a breath exhaled by God. All dying is a breath inhaled by God.
+ - Each man carries the vestiges of his birth; the slime and eggshells of his primeval past with him to the end of his days. Some never become human, remaining frog, lizard, ant. Some are human above the waist, fish below.
+ - Each man had only one genuine vocation to find the way to himself.
+ - I will no longer mutilate and destroy myself in order to find a secret behind the ruins.
+ - All higher humor begins with ceasing to take oneself seriously.
+ - To nobody can you communicate in words and teachings, what happened to you in your hour of enlightenment.
+ - Yes, I am going into the woods; I am going into the unity of all things.
+ - I cannot tell my story without reaching a long way back.
+ - So you can’t dance? Not at all? Not even one step? How can you say that you’ve taken any trouble to live when you won’t even dance?
+ - What could I say to you that would be of value, except that perhaps you seek too much, that as a result of your seeking you cannot find.
+ - The deity is within you, not in ideas and books. Truth is lived, not taught.
+ - Faith and doubt go hand in hand, they are complementaries. One who never doubts will never truly believe.
+ - Chaos demands to be recognized and experienced before letting itself be converted into a new order.
+ - Every man is more than just himself; he also represents the unique, the very special and always significant and remarkable point at which the world’s phenomena intersect, only once in this way, and never again.
+ - Age is a state of mind. Youth and age exist only among the ordinary people. All the more talented and exceptional of us; are sometimes old, just as we are sometimes happy, and sometimes sad.
+ - It is not for me to judge another man’s life. I must judge, I must choose, I must spurn, purely for myself. For myself, alone.
+ - Not in his speech, not in his thoughts, I see his greatness, only in his actions, in his life.
+ - Siddhartha has one single goal-to become empty, to become empty of thirst, desire, dreams, pleasure and sorrow-to let the Self die. No longer to be Self, to experience the peace of an emptied heart, to experience pure thought-that was his goal.
+ - It may be important to great thinkers to examine the world, to explain and despise it. But I think it is only important to love the world, not to despise it, not for us to hate each other, but to be able to regard the world and ourselves and all beings with love, admiration and respect.
+ - I have always been a great dreamer. In dreams I have always been more active than in my real life, and these shadows sapped me of my health and energy.
+ - Abraxas was the god who was both god and devil.
+ - No permanence is ours, we are a wave that flows to fit whatever form it finds.
+ - The opposite of every truth is just as true.
+ - Every healthy person must have a goal in life and that life must have content.
+ - In every truth, the opposite is equally true. A truth can only be expressed and enveloped in words if it is one-sided.
+ - I shall begin my story with an experience I had when I was ten and attended our small town’s Latin school.
+ - Did all this make sense?
+ - But your questions, which are unanswerable without exception, all spring from the same erroneous thinking.
+ - During deep meditation it is possible to dispel time, to see simultaneously all the past, present, and future, and then everything is good, everything is perfect, everything is Brahman.
+ - Eternity is a mere moment, just long enough for a joke.
+ - Seriousness is an accident of time. It consists of putting too high a value on time. In eternity there is no time. Eternity is a moment, just long enough for a joke.
+ - A wild longing for strong emotions and sensations seethes in me, a rage against this toneless, flat, normal and sterile life. I have a mad impulse to smash something, a warehouse perhaps, or a cathedral, or myself, to committ outrages...
+ - Painting is marvelous; it makes you happier and more patient. Afterwards you do not have black fingers as with writing, but blue and red ones.
+ - Words do not express thoughts very well. They always become a little different immediately after they are expressed, a little distorted, a little foolish.
+ - Faith is stronger than so-called reason.
+ - There are always a few such people who demand the utmost of life and yet cannot come to terms with its stupidity and crudeness.
+ - A man who is ill-adjusted to the world is always on the verge of finding himself. One who is adjusted to the world never finds himself, but gets to be a cabinet minister.
+ - The bourgeois prefers comfort to pleasure, convenience to liberty, and a pleasant temperature to the deathly inner consuming fire.
+ - Writing is good, thinking is better. Cleverness is good, patience is better.
+ - The voices of all creatures are in the voices of the river.
+ - A mere nothing suffices – and the lightning strikes.
+ - You are willing to die, you coward, but not to live.
+ - Whither will my path yet lead me? This path is stupid, it goes in spirals, perhaps in circles, but whichever way it goes, I will follow it.
+ - Despair is the result of each earnest attempt to go through life with virtue, justice and understanding, and to fulfill their requirements. Children live on one side of despair, the awakened on the other side.
+ - It was the first rent in the holy image of my father, it was the first fissure in the columns that had upheld my childhood, which every individual must destroy before he can become himself.
+ - For me, trees have always been the most penetrating preachers. I revere them when they live in tribes and families, in forests and groves.
+ - Passion is always a mystery and unaccountable, and unfortunately there is no doubt that life does not spare its purest children; often it is just the most deserving people who cannot help loving those that destroy them.
+ - The truth has a million faces, but there is only one truth.
+ - Beauty does not bring happiness to the one who possesses it, but to the one who loves and admires it.
+ - Every phenomenon on earth is symbolic, and each symbol is an open gate through which the soul, if it is ready, can enter into the inner part of the world, where you and I and day and night are all one.
+ - Meaning and reality were not hidden somewhere behind things, they were in them, in all of them.
+ - Solitude is independence.
+ - Whether you and I and a few others will renew the world some day remains to be seen. But within ourselves we must renew it each day.
+ - That is where my dearest and brightest dreams have ranged – to hear for the duration of a heartbeat the universe and the totality of life in its mysterious, innate harmony.
+ - In fear I hurried this way and that. I had the taste of blood and chocolate in my mouth, the one as hateful as the other.
+ - I felt knowledge and the unity of the world circulate in me like my own blood.
+ - One day I would be a better hand at the game. One day I would learn how to laugh. Pablo was waiting for me, and Mozart too.
+ - Only within yourself exists that other reality for which you long.
+ - Trees are sanctuaries. Whoever knows how to speak to them, whoever knows how to listen to them, can learn the truth. They do not preach learning and precepts, they preach, undeterred by particulars, the ancient law of life.
+ - People with courage and character always seem sinister to the rest.
+ - One never reaches home, but wherever friendly paths intersect the whole world looks like home for a time.
+ - Every experience has its element of magic.
+ - Good that you ask – you should always ask, always have doubts.
+ - The world is not imperfect or slowly evolving along a path to perfection. No, it is perfect at every moment, every sin already carries grace in it.
+ - If a man has nothing to eat, fasting is the most intelligent thing he can do.
+ - Love can be begged, bought, or received as a gift, one can find it in the street, but one cannot steal it.
+ - Wisdom is nothing but a preparation of the soul, a capacity, a secret art of thinking, feeling and breathing thoughts of unity at every moment of life.
+ - Only within yourself exists the other reality for which you long. I can give you nothing that has not already its being within yourself. I can throw open to you no picture gallery but your own soul.
+ - An enlightened man had but one duty – to seek the way to himself, to reach inner certainty, to grope his way forward, no matter where it led.
+ - If my life were not a dangerous, painful experiment, if I did not constantly skirt the abyss and feel the void under my feet, my life would have no meaning and I would not have been able to write anything.
+ - I believe that I am not responsible for the meaningfulness or meaninglessness of life, but that I am responsible for what I do with the life I’ve got.
+ - Seeking means: to have a goal; but finding means: to be free, to be receptive, to have no goal. You, O worthy one, are perhaps indeed a seeker, for in striving towards your goal, you do not see many things that are under your nose.
+ - When dealing with the insane, the best method is to pretend to be sane.
+ - The only reality is the one we have inside us. What makes most people’s lives so artificial and unworthy is that they falsely regard outside images as reality and they never allow their own inner world to speak.
+ - Every man’s story is important, eternal and sacred. That is why every man, as long as he lives and fulfills the will of nature, is wondrous and worthy of every consideration.
+ - But it’s a poor fellow who can’t take his pleasure without asking other people’s permission.
+ - You must find your dream, then the way becomes easy.
+ - And here is a doctrine at which you will laugh. It seems to me, Govinda, that love is the most important thing in the world.
+ - Knowledge can be conveyed, but not wisdom. It can be found, it can be lived, it is possible to be carried by it, miracles can be performed with it, but it cannot be expressed in words and taught.
+ - The world, as it is now, wants to die, wants to perish – and it will.
+ - To such men the desperate and horrible thought has come that perhaps the whole of human life is but a bad joke, a violent and ill-fated abortion of the primal mother, a savage and dismal catastophe of nature.
+ - And whether this happiness lasted a hundred seconds or ten minutes, it was so far removed from time that it resembled every other genuine happiness as completely as one fluttering blue lycaenid butterfly resembles another.
+ - In the beginning was the myth.
+ - What you call passion is not spiritual force, but friction between the soul and the outside world.
+ - For the first time in my life I tasted death, and death tasted bitter, for death is birth, is fear and dread of some terrible renewal.
+ - We have to stumble through so much dirt and humbug before we reach home. And we have no one to guide us. Our only guide is our homesickness.
+ - The art of love-giving and taking become one.
+ - My goal is this: always to put myself in the place in which I am best able to serve, wherever my gifts and qualities find the best soil to grow, the widest field of action. There is no other goal.
+ - We kill when we close our eyes to poverty, affliction, or infamy. We kill when, because it is easier, we countenance, or pretend to approve of atrophied social, political, educational, and religious institutions, instead of resolutely combating them.
+ - There is, so I believe, in the essence of everything, something that we cannot call learning. There is, my friend, only a knowledge – that is everywhere.
+ - One can beg, buy, be presented with and find love in the streets, but it can never be stolen.
+ - One must find the source within one’s own Self, one must possess it. Everything else was seeking – a detour, an error.
+ - The greatest threat to our world and its peace comes from those who want war, who prepare for it, and who, by holding out vague promises of future peace or by instilling fear of foreign aggression, try to make us accomplices to their plans.
+ - Any attempt to replace a personal conscience by a collective conscience does violence to the individual and is the first step toward totalitarianism.
+ - His way had therefore come full circle, or rather had taken the form of an ellipse or a spiral, following as ever no straight unbroken line, for the rectilinear belongs only to Geometry and not to Nature and Life.
+ - Without a mother, one cannot love. Without a mother, one cannot die.
+ - You show the world as a complete, unbroken chain, an eternal chain, linked together by cause and effect.
+ - But peace, too, is a living thing and like all life it must wax and wane, accommodate, withstand trials, and undergo changes.
+ - When two cultures collide is the only time when true suffering exists.
+ - Nothing was, nothing will be, everything has reality and presence.
+ - Seeking means: to have a goal; but finding means: to be free, to be receptive, to have no goal.
+ - Every sin already carries grace within in, all small children are potential old men, all sucklings have death within them, all dying people – eternal life. The Buddha exists in the robber and dice player; the robber exists in the Brahmin.
+ - In the beginning was the myth. God, in his search for self -expression, invested the souls of Hindus, Greeks, and Germans with poetic shapes and continues to invest each child ’s soul with poetry every day.
+ - All I really wanted was to try and live the life that was spontaneously welling up within me. Why was that so very difficult?
+ - Lovers should not separate from each other after making love without admiring each other, without being conquered as well as conquering, so that no feeling of satiation or desolation arises nor the horrid feeling of misusing or having been misused.
+ - I want to learn from myself, want to be my student, want to get to know myself, the secret of Siddhartha.
+ - Who travels far will often see things Far removed from what was believed as Truth.
+ - To study history means submitting to chaos and nevertheless retaining faith in order and meaning.
+ - Dreams and restless thoughts came flowing to him from the river, from the twinkling stars at night, from the sun’s melting rays. Dreams and a restlessness of the soul came to him.
+ - I do want more. I am not content with being happy. I was not made for it. It is not my destiny. My destiny is the opposite.
+ - It taught him how to listen – how to listen with a quiet heart and a waiting soul, open soul, without passion, without desire, without judgment, without opinion.
+ - Life is waiting everywhere, the future is flowering everywhere, but we only see a small part of it and step on much of it with our feet.
+ - So you find yourself surrounded by death and horror in the world, and you escape it into lust. But lust has no duration; it leaves you again in the desert.
+ - Nevertheless, whether in occurrences lasting days, hours or mere minutes at a time, I have experienced happiness often, and have had brief encounters with it in my later years, even in old age.
+ - Never is a man wholly a saint or a sinner.
+ - I realize today that nothing in the world is more distasteful to a man than to take the path that leads to himself.
+ - I am much inclined to live from my rucksack, and let my trousers fray as they like.
+ - Human life is reduced to real suffering, to hell, only when two ages, two cultures and religions overlap.
+ - I am fond of music I think because it is so amoral. Everything else is moral and I am after something that isn’t. I have always found moralizing intolerable.
+ - You’ve never lived what you are thinking, and that isn’t good. Only the ideas we actually live are of any value.
+ - How foolish it is to wear oneself out in vain longing for warmth! Solitude is independence.
+ - Look: We hate nothing that exists, not even death, suffering and dying, does not horrify our souls, as long as we learn more deeply to love.
+ - What isn’t part of ourselves doesn’t disturb us.
+ - Every natural form is latent within us, originates in the soul whose essence is eternity, whose essence we cannot know but which most often intimates itself to us as the power to love and create.
+ - One of the aphorisms occurred to me now and I wrote it under the picture: “Fate and temperament are two words for one and the same concept.” That was clear to me now.
+ - They both listened silently to the water, which to them was not just water, but the voice of life, the voice of Being, the voice of perpetual Becoming.
+ - He saw that the water continually flowed and flowed and yet it was always there; it was always the same and yet every moment it was new.
+ - Friendship is identification and difference.
+ - I, also, would like to look and smile, sit and walk like that, so free, so worthy, so restrained, so candid, so childlike and mysterious. A man only looks and walks like that when he has conquered his Self. I also will conquer my Self.
+ - When the suffering becomes acute enough, one goes forward.
+ - What for me is bliss and life and ecstasy and exaltation, the world in general seeks at most in imagination; in life it finds it absurd.
+ - This happiness consisted of nothing else but the harmony of the few things around me with my own existence, a feeling of contentment and well-being that needed no changes and no intensification.
+ - You knew all along that your sanctioned world was only half the world, and you tried to suppress the other half the same way the priests and teachers do. You won’t succeed. No one succeeds in this once he has begun to think.
+ - Everything that was not suffered to the end and finally concluded, recurred, and the same sorrows were undergone.
+ - Remember this: one can be a strict logician or grammarian and at the same time full of imagination and music.
+ - Everyone gives what he has. The soldier gives strength, the merchant goods, the teacher instruction, the farmer rice, the fisherman fish.
+ - Love is like death. It is fulfillment and an evening after which nothing more may follow.
+ - You treat world history as a mathematician does mathematics, in which nothing but laws and formulas exist, no reality, no good and evil, no time, no yesterday, no tomorrow, nothing but an eternal, shallow, mathematical present.
+ - Love must neither beg nor demand. Love must be strong enough to find certainty within itself. It then cease to be moved and becomes the mover.
+ - The man of power is ruined by power, the man of money by money, the submissive man by subservience, the pleasure seeker by pleasure.
+ - The world was beautiful when looked at in this way-without any seeking, so simple, so childlike.
+ - Gratitude is not a virtue I believe in, and to me it seems hypocritical to expect it from a child.
+ - The call of death is a call of love. Death can be sweet if we answer it in the affirmative, if we accept it as one of the great eternal forms of life and transformation.
+ - What constitutes a real, live human being is more of a mystery than ever these days, and men each one of whom is a valuable, unique experiment on the part of nature are shot down wholesale.
+ - And all the voices, all the goals, all the yearnings, all the sorrows, all the pleasures, all the good and evil, all of them together was the world. All of them together was the stream of events, the music of life.
+ - The day had gone by just as days go by. I had killed it in accordance with my primitive and retiring way of life.
+ - Until 1914 I loved to travel; I often went to Italy and once spent a few months in India. Since then I have almost entirely abandoned travelling, and I have not been outside of Switzerland for over ten years.
+ - When all the Self was conquered and dead, when all passions and desires were silent, then the last must awaken, the innermost of Being that is no longer Self – the great secret!
+ - Once it happened, as I lay awake at night, that I suddenly spoke in verses, in verses so beautiful and strange that I did not venture to think of writing them down, and then in the morning they vanished; and yet they lay hidden within me like the hard kernel within an old brittle husk.
+ - One cannot apologize for something fundamental, and a child feels and knows this as well and as deeply as any sage.
+ - Perhaps people like us cannot love. Ordinary people can – that is their secret.
+ - In Germany I have been acknowledged again since the fall of Hitler, but my works, partly suppressed by the Nazis and partly destroyed by the war; have not yet been republished there.
+ - What should I possibly have to tell you, oh venerable one? Perhaps that you’re searching far too much? That in all that searching, you don’t find the time for finding?
+ - Beautiful was this world, looking at it thus, without searching, thus simply, thus childlike.
+ - Every path leads homeward, every step is birth, every step is death, every grave is mother.
+ - Wisdom is not communicable. The wisdom which a wise man tries to communicate always sounds foolish.
+ - The tree does not die, it waits.
+ - The cup was emptied and would never be filled again.
+ - That seems to be the way of things. Everyone takes, everyone gives. Life is like that.
+ - Every important cultural gesture comes down to a morality, a model for human behavior concentrated into a gesture.
+ - Among mathematicians, even in those days, the reputation of being a good Glass Bead Game player meant a great deal; it was equivalent to being a very good mathematician.
+ - At that time two opposing concepts of the Game called forth commentary and discussion. The foremost players distinguished two principal types of Game, the formal and the psychological.
+ - In each individual the spirit is made flesh, in each one the whole of creation suffers, in each one a Savior is crucified.
+ - We create gods and struggle with them, and they bless us.
+ - To recognize causes is to think, and through thought alone feelings become knowledge and are not lost, but become real and begin to mature.
+ - Those who are too lazy and comfortable to think for themselves and be their own judges obey the laws. Others sense their own laws within them.
+ - The bourgeois today burns as heretics and hangs as criminals those to whom he erects monuments tomorrow.
+ - I sped through heaven and saw god at work. I suffered holy pains. I dropped all my defenses and was afraid of nothing in the world. I accepted all things and to all things I gave up my heart.
+ - It was still quiet in the house, and not a sound was heard from outside, either. Were it not for this silence, my reverie would probably have been disrupted by reminders of daily duties, of getting up and going to school.
+ - Sentimentality is a basking in feelings that in reality you don’t take seriously enough to make the slightest sacrifice to or ever translate into action.
+ - Once you are able to make your request in such a way that you will be quite certain of its fulfillment, then the fulfillment will come.
+ - Everyone can reach his goal, if he can think, wait and fast.
+ - In my brain were stored a thousand pictures.
+ - What is the holding of breath? It is a flight from the Self, it is a temporary escape from the torment of Self. It is a temporary palliative against the pain and folly of life.
+ - It is a pity that you students aren’t fully aware of the luxury and abundance in which you live.
+ - His life oscillates, as everyone’s does, not merely between two poles, such as the body and the spirit, the saint and the sinner, but between thousands and thousands.
+ - I had grown a thin mustache, I was a full-grown man, and yet I was completely helpless and without a goal in life.
+ - The way to innocence, to the uncreated and to God leads on, not back, not back to the wolf or to the child, but ever further into sin, ever deeper into human life.
+ - Those who cannot think or take responsibility for themselves need, and clamor for, a leader.
+ - A father can pass on his nose and eyes and even his intelligence to his child, but not his soul. In every human being the soul is new.
+ - It was lovely, and tempting, to exert power over men and to shine before others, but power also had its perditions and perils.
+ - I believe that the struggle against death, the unconditional and self-willed determination to live, is the mode of power behind the lives and activities of all outstanding men.
+ - She stood a moment before my eyes, clearly and painfully, loved and deeply woven into my destiny; then fell away again in a deep oblivion, at a half regretted distance.
+ - Every politician in the world is all for revolution, reason, and disarmament-but only in enemy countries, not in his own.
+ - In any case, the most lively young people become the best old people, not those who pretend to be as wise as grandfathers while they are still at school.
+ - Within us there is someone who knows everything, wills everything, does everything better than we ourselves.
+ - Like one who has eaten and drunk too much and vomits painfully and then feels better, so did the restless man wish he could rid himself with one terrific heave of these pleasures, of these habits of this entirely senseless life.
+ - Only the ideas that we really live have any value.
+ - I was out of my bed in one second, trembling with excitement, and I dashed to the door and into the adjoining room, where I could watch the streets below from the windows.
+ - Everything is necessary, everything needs only my agreement, my assent, my loving understanding; then all is well with me and nothing can harm me.
+ - To die is to go into the Collective Unconscious, to lose oneself in order to be transformed into form, pure form.
+ - Among the letters my readers write me, there is a certain category which is continuously growing, and which I see as a symptom of the increasing intellectualization of the relationship between readers and literature.
+ - I have known it for a long time but I have only just experienced it. Now I know it not only with my intellect, but with my eyes, with my heart, with my stomach.
+ - I called the world of phenomena an illusion, I called my eyes and my tongue and accident, valueless phenomena. No, that is all over; I have awakened, I have really awakened and have just been born today.
+ - Were not the gods forms created like me and you, mortal, transient?
+ - Love of God is not always the same as love of good.
+ - That life is difficult, I have often bitterly realized.
+ - Life is always frightful. We cannot help it and we are responsible all the same. One’s born and at once one is guilty.
+ - You learned people and artists have, no doubt, all sorts of superior things in your heads; but you’re human beings like the rest of us, and we, too, have our dreams and fancies.
+ - They slept profoundly, desperately, greedily, as though for the last time, as though they had been condemned to stay awake forever and had to drink in all the sleep in the world during these last hours.
+ - Was it not his Self, his small, fearful and proud Self, with which he had wrestled for so many years, but which had always conquered him again, which appeared each time again and again, which robbed him of happiness and filled him with fear?
+ - The sacred sense of beyond, of timelessness, of a world which had an eternal value and the substance of which was divine had been given back to me today by this friend of mine who taught me dancing.
+ - For me, however, that beloved, glowing little word happiness has become associated with everything I have felt since childhood upon hearing the sound of the word itself.
+ - When trying to remember my share in the glow of the eternal present, in the smile of God, I return to my childhood, too, for that is where the most significant discoveries turn up.
+ - All men of goodwill have this in common – that our works put us to shame.
+ - Is not every life, every work fine?
+ - A thousand times I was ready to regret and take back my rash statement – yet it had been the truth.
+ - For what I always hated and detested and cursed above all things was this contentment, this healthiness and comfort, this carefully preserved optimism of the middle classes, this fat and prosperous brood of mediocrity.
+ - Romantic souvenirs had a way of attaching themselves to one when one wanted to move on, but they were not to be taken seriously.
+ - Each of us is merely one human being, merely an experiment, a way station. But each of us should be on the way toward perfection, should be striving to reach the center, not the periphery.
+ - At one time I had given much thought to why men were so very rarely capable of living for an ideal. Now I saw that many, no, all men were capable of dying for one.
+ - Knowledge can communicated but not wisdom.
+ - My resolve to die was not the whim of an hour. It was the ripe, sound fruit that had slowly grown to full size, lightly rocked by the winds of fate whose next breath would bring it to the ground.
+ - All interpretation, all psychology, all attempts to make things comprehensible, require the medium of theories, mythologies, and lies.
+ - What he had not learned, however, was this: to find contentment in himself and his own life.
+ - God does not send us despair in order to kill us; he sends it in order to awaken us to new life.
+ - I hope death will be a great happiness, a happiness as great as that of love, fulfilled love.
+
+284 quotes

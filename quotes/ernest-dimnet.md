@@ -1,0 +1,25 @@
+ - Children have to be educated, but they have also to be left to educate themselves.
+ - Ideas are the roots of creation.
+ - A school is a place through which you have to pass before entering life, but where the teaching proper does not prepare you for life.
+ - Every now and then we discover in the seething mass of humanity round us a person who does not seem to need anybody else, and the contrast with ourselves is stinging.
+ - Do not read good books-life is too short for that-read only the best.
+ - The happiness of most people is not ruined by great catastrophes or fatal errors, but by the repetition of slowly destructive little things.
+ - Reading, to most people, means an ashamed way of killing time disguised under a dignified name.
+ - You can believe in God without believing in immortality, but it is hard to see how anyone can believe in immortality and not believe in God.
+ - Architecture, of all the arts, is the one which acts the most slowly, but the most surely, on the soul.
+ - A book, like a landscape, is a state of consciousness varying with readers.
+ - Mankind might be divided between multitude who hate to be kept waiting because they get bored and the happy few who rather like it because it gives them time for thought.
+ - The history of the past interests us only in so far as it illuminates the history of the present.
+ - Most people suspend their judgment till somebody else has expressed his own and then they repeat it.
+ - Americans cannot realize how many chances for mental improvement they lose by their inveterate habit of keeping six conversations when there are twelve in the room.
+ - Prejudices subsist in people’s imagination long after they have been destroyed by their experience.
+ - Whatever we read from intense curiosity gives us a model of how we should always read.
+ - Many men absorbed in business show such a rare quality of culture that we are surprised at it. The reason invariably is partly because hard work and even the weariness it leaves carry a nobility with them, but also because there is no room in such lives for inferior mental occupation.
+ - Too often we forget that genius, too, depends upon the data within its reach, that even Archimedes could not have devised Edison’s inventions.
+ - Life is a succession of lessons enforced by immediate reward, or, oftener, by immediate chastisement.
+ - Learn to attack things frontally but according to the most scientific methods.
+ - All serious conversations gravitate towards philosophy.
+ - The object of reflection is invariably the discovery of something satisfying to the mind which was not there at the beginning of the search.
+ - Education is the methodical creation of the habit of thinking.
+
+23 quotes

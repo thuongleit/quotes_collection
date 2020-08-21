@@ -1,0 +1,303 @@
+ - Attention is the rarest and purest form of generosity.
+ - All sins are attempts to fill voids.
+ - To be rooted is perhaps the most important and least recognized need of the human soul.
+ - Everything which originates from pure love is lit with the radiance of beauty.
+ - Love of God is pure when joy and suffering inspire an equal degree of gratitude.
+ - There are only two things that pierce the human heart. One is beauty. The other is affliction.
+ - Human beings are so made that the ones who do the crushing feel nothing; it is the person crushed who feels what is happening. Unless one has placed oneself on the side of the oppressed, to feel with them, one cannot understand.
+ - I can, therefore I am.
+ - Grace fills empty spaces, but it can only enter where there is a void to receive it, and it is grace itself which makes this void.
+ - The joy of learning is as indispensable in study as breathing is in running.
+ - Attentiveness is the heart of prayer.
+ - The lure of quantity is the most dangerous of all.
+ - We must not wish for the disappearance of our troubles but for the grace to transform them.
+ - There is only one fault, only one: our inability to feed upon light.
+ - Imaginary evil is romantic and varied; real evil is gloomy, monotonous, barren, boring. Imaginary good is boring; real good is always new, marvelous, intoxicating.
+ - The destruction of the past is perhaps the greatest of all crimes.
+ - Every being cries out in silence to be read differently. Do not be indifferent to these cries.
+ - Just as the power of the sun is the only force in the natural universe that causes a plant to grow against gravity, so the grace of God is the only force in the spiritual universe that causes a person to grow against the gravity of their own ego.
+ - It is a fault to wish to be understood before we have made ourselves clear to ourselves.
+ - Contradiction is the lever of transcendence.
+ - Pain and suffering are a kind of currency passed from hand to hand until they reach someone who receives them but does not pass them on.
+ - True definition of science: the study of the beauty of the world.
+ - One has only the choice between God and idolatry. There is no other possibility. For the faculty of worship is in us, and it is either directed somewhere into this world, or into another.
+ - The only way into truth is through one’s own annihilation; through dwelling a long time in a state of extreme and total humiliation.
+ - Friendship is a miracle by which a person consents to view from a certain distance, without coming any nearer, the very being who is as necessary to him as food.
+ - We must prefer real hell to an imaginary paradise.
+ - Joy is being fully aware of reality...
+ - The glossy surface of our civilization hides a real intellectual decadence.
+ - One does not play Bach without having done scales. But neither does one play a scale merely for the sake of the scale.
+ - To be always relevant, you have to say things which are eternal.
+ - In reality nothing is so beautiful as the good, nothing is so monotonous and boring as evil.
+ - A hurtful act is the transference to others of the degradation which we bear in ourselves.
+ - Attachment is a manufacturer of illusion and whoever wants reality ought to be detached.
+ - Art is the symbol of the two noblest human efforts: to construct and to refrain from destruction.
+ - Gregorian chant, Romanesque architecture, the Iliad, the invention of geometry were not, for the people through whom they were brought into being and made available to us, occasions for the manifestation of personality.
+ - I also am other than what I imagine myself to be. To know this is forgiveness.
+ - The highest ecstasy is the attention at its fullest.
+ - I am not a Catholic; but I consider the Christian idea, which has its roots in Greek thought and in the course of the centuries has nourished all of our European civilization, as something that one cannot renounce without becoming degraded.
+ - Compassion directed toward oneself is true humility.
+ - Modern life is given over to immoderation. Immoderation invades everything: actions and thought, public and private life.
+ - The children of God should not have any other country here below but the universe itself, with the totality of all the reasoning creatures it ever has contained, contains, or ever will contain. That is the native city to which we owe our love.
+ - Necessity is God’s veil.
+ - It is grace that forms the void inside us and it is grace that can fill the void.
+ - Love is not consolation, it is light.
+ - Oppression that is clearly inexorable and invincible does not give rise to revolt but to submission.
+ - A Pharisee is someone who is virtuous out of obedience to the Great Beast.
+ - We only possess what we renounce; what we do not renounce escapes from us.
+ - Men owe us what they imagine they will give us. We must forgive them this debt.
+ - Punishment is a vital need of the human soul.
+ - Even if our efforts of attention seem for years to be producing no result, one day a light that is in exact proportion to them will flood the soul.
+ - To be a hero or a heroine, one must give an order to oneself.
+ - Difficult as it is really to listen to someone in affliction, it is just as difficult for him to know that compassion is listening to him.
+ - Charity. To love human beings in so far as they are nothing. That is to love them as God does.
+ - Distance is the soul of beauty.
+ - Real genius is nothing else but the supernatural virtue of humility in the domain of thought.
+ - Someone who does not see a pane of glass is not aware of not seeing it.
+ - It is only from the light which streams constantly from heaven that a tree can derive the energy to strike its roots deep into the soil. The tree is in fact rooted in the sky.
+ - The danger is not lest the soul should doubt whether there is any bread, but lest, by a lie, it should persuade itself that it is not hungry.
+ - There is no detachment where there is no pain. And there is no pain endured without hatred or lying unless detachment is present too.
+ - The capacity to give one’s attention to a sufferer is a very rare and difficult thing; it is almost a miracle; it is a miracle. Nearly all those who think they have the capacity do not possess it.
+ - Never react to an evil in such a way as to augment it.
+ - Attachment is the great fabricator of illusions; reality can be obtained only by someone who is detached.
+ - One must always be ready to change sides with justice, that fugitive from the winning camp.
+ - The extreme greatness of Christianity lies in the fact that it does not seek a supernatural remedy for suffering but a supernatural use for it.
+ - At the bottom of the heart of every human being, from earliest infancy until the tomb, there is something that goes on indomitably expecting, in the teeth of all experience of crimes committed, suffered, and witnessed, that good and not evil will be done.
+ - Love consents to all and commands only those who consent. Love is abdication. God is abdication.
+ - The beauty of the world is Christ’s tender smile for us coming through matter.
+ - Absolutely unmixed attention is prayer.
+ - Humanism was not wrong in thinking that truth, beauty, liberty, and equality are of infinite value, but in thinking that man can get them for himself without grace.
+ - Every perfect life is a parable invented by God.
+ - Beauty always promises, but never gives anything.
+ - The sea is not less beautiful in our eyes because we know that sometimes ships are wrecked by it.
+ - The Great Beast is the only object of idolatry, the only ersatz of God, the only imitation of something which is infinitely far from me and which is I myself.
+ - All the tragedies which we can imagine return in the end to the one and only tragedy: the passage of time.
+ - Money destroys human roots wherever it is able to penetrate, by turning desire for gain into the sole motive. It easily manages to outweigh all other motives, because the effort it demands of the mind is so very much less. Nothing is so clear and so simple as a row of figures.
+ - The contradictions the mind comes up against, these are the only realities, the criterion of the real. There is no contradiction in what is imaginary. Contradiction is the test of necessity.
+ - Evil being the root of mystery, pain is the root of knowledge.
+ - A beautiful woman looking at her image in the mirror may very well believe the image is herself. An ugly woman knows it is not.
+ - Patriotism is idolatry of the self.
+ - School children and students who love God should never say: “For my part I like mathematics”; “I like French”; “I like Greek.” They should learn to like all these subjects, because all of them develop that faculty of attention which, directed toward God, is the very substance of prayer.
+ - It is only necessary to know that love is a direction and not a state of the soul. If one is unaware of this, one falls to despair at the first onslaught of affliction.
+ - The supernatural virtue of justice consists of behaving exactly as though there were equality when one is the stronger in an unequal relationship.
+ - Justice consists in seeing that no harm is done to men. Whenever a man cries inwardly: ‘Why am I being hurt?’ harm is being done to him. He is often mistaken when he tries to define the harm, and why and by whom it is being inflicted on him. But the cry itself is infallible.
+ - Liberty, taking the word in its concrete sense, consists in the ability to choose.
+ - Justice, truth, and beauty are sisters and comrades. With three such beautiful words we have no need to look for any others.
+ - Workers need poetry more than bread. They need that their life should be a poem. They need some light from eternity. Religion alone can be the source of such poetry.
+ - In what concerns divine things, belief is not appropriate. Only certainty will do. Anything less than certainty is unworthy of God.
+ - Everything beautiful has a mark of eternity.
+ - The world is God’s language to us.
+ - Whoever is uprooted himself uproots others. Whoever is rooted himself doesn’t uproot others.
+ - The future is made of the same stuff as the present.
+ - At the centre of the human heart is the longing for an absolute good, a longing which is always there and is never appeased by any object in this world.
+ - Love: To feel with one’s whole self the existence of another being...
+ - Rome is the Great Beast of atheism and materialism, adoring nothing but itself. Israel is the Great Beast of religion. Neither one nor the other is likable. The Great Beast is always repulsive.
+ - Fortunately the sky is beautiful everywhere.
+ - The afflicted are not listened to. They are like someone whose tongue has been cut out and who occasionally forgets the fact. When they move their lips no ear perceives any sound. And they themselves soon sink into impotence in the use of language, because of the certainty of not being heard.
+ - Those who are unhappy have no need for anything in this world but people capable of giving them their attention.
+ - If you want to know what a man is really like, take notice of how he acts when he loses money.
+ - Petroleum is a more likely cause of international conflict than wheat.
+ - Fire destroys that which feeds it.
+ - A well ordered society would be one where the State only had a negative action, comparable to that of a rudder: a light pressure at the right moment to counteract the first suggestion of any loss of equilibrium.
+ - Nothing can have as its destination anything other than its origin. The contrary idea, the idea of progress, is poison.
+ - We cannot take a single step toward heaven. It is not in our power to travel in a vertical direction. If however we look heavenward for a long time, God comes and takes us up.
+ - The proper method of philosophy consists in clearly conceiving the insoluble problems in all their insolubility and then in simply contemplating them, fixedly and tirelessly, year after year, without any hope, patiently waiting.
+ - Two prisoners whose cells adjoin communicate with each other by knocking on the wall. The wall is the thing which separates them but is also their means of communication. It is the same with us and God. Every separation is a link.
+ - Intellectual adherence is never owed to anything whatsoever, for it is never in any degree a voluntary thing. Attention alone is voluntary. It alone forms the subject of an obligation.
+ - Capitalism has brought about the emancipation of collective humanity with respect to nature. But this collective humanity has itself taken on with respect to the individual the oppressive function formerly exercised by nature.
+ - If we go down into ourselves, we find that we possess exactly what we desire.
+ - Two forces rule the universe: light and gravity.
+ - A doctrine serves no purpose in itself, but it is indispensable to have one if only to avoid being deceived by false doctrines.
+ - No human being escapes the necessity of conceiving some good outside himself towards which his thought turns in a movement of desire, supplication, and hope.
+ - To get power over is to defile. To possess is to defile.
+ - It is only the impossible that is possible for God. He has given over the possible to the mechanics of matter and the autonomy of his creatures.
+ - Stars and blossoming fruit-trees: utter permanence and extreme fragility give an equal sense of eternity.
+ - Algebra and money are essentially levelers; the first intellectually, the second effectively.
+ - Religion is a form of nourishment. It is difficult to appreciate the flavor and food-value of something one has never eaten.
+ - The simultaneous existence of opposite virtues in the soul like pincers to catch hold of God.
+ - Purity is the ability to contemplate defilement.
+ - It is not religion but revolution which is the opium of the people.
+ - Beauty is a fruit which we look at without trying to seize it.
+ - The virtue of hope is an orientation of the soul towards a transformation after which it will be wholly and exclusively love.
+ - One cannot imagine St. Francis of Assisi talking about rights.
+ - Equality is the public recognition, effectively expressed in institutions and manners, of the principle that an equal degree of attention is due to the needs of all human beings.
+ - The beautiful is the experimental proof that the incarnation is possible.
+ - When a contradiction is impossible to resolve except by a lie, then we know that it is really a door.
+ - Prayer consists simply in giving to God all the careful attention of which the soul is capable.
+ - The world needs saints who have genius, just as a plague-stricken town needs doctors.
+ - It is not through the way in which someone speaks about God that I can see whether that person has passed through the crucible of Divine Love, but through the way the person speaks to me about things here on earth.
+ - The world is the closed door. It is a barrier. And at the same time it is the way through.
+ - There is an easiness in salvation which is more difficult to us than all our efforts.
+ - The appetite for power, even for universal power, is only insane when there is no possibility of indulging it; a man who sees the possibility opening before him and does not try to grasp it, even at the risk of destroying himself and his country, is either.
+ - If a young girl is being forced into a brothel she will not talk about her rights. In such a situation the word would sound ludicrously inadequate.
+ - A mind enclosed in language is in prison.
+ - It is only by entering the transcendental, the supernatural, the authentically spiritual order that man rises above the social. Until then, whatever he may do, the social is transcendent in relation to him.
+ - Imagination and fiction make up more than three quarters of our real life.
+ - Every kind of reward constitutes a degradation of energy.
+ - A test of what is real is that it is hard and rough. Joys are found in it, not pleasure. What is pleasant belongs to dreams.
+ - Creation is an act of love and it is perpetual.
+ - A society like the Church, which claims to be Divine is perhaps more dangerous on account of the ersatz good which it contains then on account of the evil which sullies it. Something of the social labelled divine: an intoxicating mixture which carries with it every sort of license. Devil disguised.
+ - The real sin of idolatry is always committed on behalf of something similar to the State.
+ - The real stumbling-block of totalitarian regimes is not the spiritual need of men for freedom of thought; it is men’s inability to stand the physical and nervous strain of a permanent state of excitement, except during a few years of their youth.
+ - The contemporary form of true greatness lies in a civilization founded on the spirituality of work.
+ - There are two atheisms of which one is a purification of the notion of God.
+ - Evil when we are in its power is not felt as evil but as a necessity, or even a duty.
+ - The demonstrable correlation of opposites is an image of the transcendental correlation of contradictories.
+ - We are only geometricians of matter; the Greeks were, first of all, geometricians in the apprenticeship to virtue.
+ - I only read what I am hungry for at the moment when I have an appetite for it, and then I do not read, I eat.
+ - Everything without exception which is of value in me comes from somewhere other than myself, not as a gift but as a loan which must be ceaselessly renewed.
+ - As soon as men know that they can kill without fear of punishment or blame, they kill; or at least they encourage killers with approving smiles.
+ - More than in any other performing arts the lack of respect for acting seems to spring from the fact that every layman considers himself a valid critic.
+ - To set up as a standard of public morality a notion which can neither be defined nor conceived is to open the door to every kind of tyranny.
+ - There is no greater joy for me than looking at the sky on a clear night with an attention so concentrated that all my other thoughts disappear; then one can think that the stars enter into one’s soul.
+ - Of two men who have no experience of God, he who denies him is perhaps nearer to him than the other.
+ - If we forgive God for his crime against us, which is to have made us finite creatures, He will forgive our crime against him, which is that we are finite creatures.
+ - Only he who has measured the dominion of force, and knows how not to respect it, is capable of love andjustice.
+ - The struggle between the opponents and defenders of capitalism is a struggle between innovators who do not know what innovation to make and conservatives who do not know what to conserve.
+ - Evil is license, and that is why it is monotonous: everything has to be drawn from ourselves. One is condemned to false infinity. That is hell itself.
+ - Whatever debases the intelligence degrades the entire human being.
+ - A right which goes unrecognized by anybody is not worth very much.
+ - The work of art which I do not make, none other will ever make.
+ - If we are suffering illness, poverty, or misfortune, we think we shall be satisfied on the day it ceases. But there too, we know it is false; so soon as one has got used to not suffering one wants something else.
+ - To be innocent is to bear the weight of the entire universe. It is to throw away the counterweight.
+ - Human existence is so fragile a thing and exposed to such dangers that I cannot love without trembling.
+ - Affliction hardens and discourages us because, like a red hot iron, it stamps the soul to its very depths with the scorn, the disgust, and even the self-hatred and sense of guilt that crime logically should produce but actually does not.
+ - Bourgeois society is infected by monomania: the monomania of accounting. For it, the only thing that has value is what can be counted in francs and centimes. It never hesitates to sacrifice human life to figures which look well on paper, such as national budgets or industrial balance sheets.
+ - Every atheist is an idolater- unless he is worshipping the true God in his impersonal aspect. The majority of the pious are idolaters.
+ - We are like plants that have the one choice of being in or out of the light.
+ - Sin is nothing else but the failure to recognize human wretchedness.
+ - Expectant waiting is the foundation of the spiritual life.
+ - The development of the faculty of attention forms the real object and almost the sole interest of studies.
+ - The poet produces the beautiful by fixing his attention on something real.
+ - To claim that theft or adultery or lying are “evil” simply reflects our degraded idea of good- – that it has something to do with respect for property, respectability, and sincerity.
+ - An atheist may be simply one whose faith and love are concentrated on the impersonal aspects of God.
+ - If it were conceivable that in obeying God one should bring about one’s own damnation whilst in disobeying him one could be saved, I should still choose the way of obedience.
+ - We are like horses who hurt themselves as soon as they pull on their bits – and we bow our heads. We even lose consciousness of the situation, we just submit. Any re-awakening of thought is then painful.
+ - To die for God is not a proof of faith in God. To die for an unknown and repulsive convict who is a victim of injustice, that is a proof of faith in God.
+ - All those who possess in its pure state the love of their neighbour and the acceptance of the order of the world, inclucing affliction-all those, even should they live and die to all appearances atheists, are surely saved.
+ - Official history is a matter of believing murderers on their own word.
+ - It is much easier to imagine ourselves in the place of God the Creator than in the place of Christ crucified.
+ - The word ‘revolution’ is a word for which you kill, for which you die, for which you send the labouring masses to their deaths; but which does not contain any content.
+ - It may be that vice, depravity, and crime are nearly always, or even perhaps always, in their essence, attempts to eat beauty, to eat what we should only look at.
+ - Time’s violence rends the soul, by the rent eternity enters.
+ - Renunciation is submission to time.
+ - Whenever a human being, through the commission of a crime, has become exiled from good, he needs to be reintegrated with it through suffering. The suffering should be inflicted with the aim of bringing the soul to recognize freely some day that its infliction was just.
+ - Time does us violence; it is the only violence.
+ - The miser deprives himself of his treasure because of his desire for it.
+ - Truth is one, but error is manifold.
+ - In struggling against anguish one never produces serenity; the struggle against anguish only produces new forms of anguish.
+ - When once a certain class of people has been placed by the temporal and spiritual authorities outside the ranks of those whose life has value, then nothing comes more naturally to men than murder.
+ - Today it is not nearly enough to be a saint, but we must have the saintliness demanded by the present moment, a new saintliness, itself also without precedent.
+ - It is precisely those artists and writers who are most inclined to think of their art as the manifestation of their personality who are in fact the most in bondage to public taste.
+ - War is the supreme form of prestige.
+ - How many people have been thus led, through lack of self-confidence, to stifle their most justified doubts?
+ - One of the most exquisite pleasures of human love – to serve the loved one without his knowing it – is only possible, as regards the love of God, through atheism.
+ - In order to obey God, one must receive his commands. How did it happen that I received them in adolescence, while I was professing atheism? To believe that the desire for good is always fulfilled – that is faith, and whoever has it is not an atheist.
+ - Modern war appears as a struggle led by all the State apparatuses and their general staffs against all men old enough to bear arms...
+ - There is one, and only one, thing in modern society more hideous than crime namely, repressive justice.
+ - We should do only those righteous actions which we cannot stop ourselves from doing...
+ - Life does not need to mutilate itself in order to be pure.
+ - Force is as pitiless to the man who possesses it, or thinks he does, as it is to its victims; the second it crushes, the first it intoxicates. The truth is, nobody really possesses it.
+ - What a country calls its vital economic interests are not the things which enable its citizens to live, but the things which enable it to make war. Petrol is more likely than wheat to be a cause of international conflict.
+ - When literature becomes deliberately indifferent to the opposition of good and evil it betrays its function and forfeits all claim to excellence.
+ - The speed with which bureaucracy has invaded almost every branch of human activity is something astounding once one thinks about it.
+ - Death. An instantaneous state, without past or future. Indispensable for entering eternity.
+ - Why is it that reality, when set down untransposed in a book, sounds false?
+ - I would suggest that barbarism be considered as a permanent and universal human characteristic which becomes more or less pronounced according to the play of circumstances.
+ - You could not be born at a better period than the present, when we have lost everything.
+ - The apprehension of necessity is an imitation of creation.
+ - The most important part of teaching is to teach what it is to know.
+ - Contemplating an object fixedly with the mind, asking myself, ‘What is it?’ without thinking of any other object or relating it to anything else for hours on end.
+ - Imagination is always the fabric of social life and the dynamic of history. The influence of real needs and compulsions, of real interests and materials, is indirect because the crowd is never conscious of it.
+ - To want friendship is a great fault. Friendship ought to be a gratuitous joy, like the joys afforded by art or life.
+ - A science which does not bring us nearer to God is worthless.
+ - We cannot take a step toward the heavens. God crosses the universe and comes to us.
+ - An imaginary perfection is automatically at the same level as I who imagine it neither higher nor lower.
+ - It is impossible that the whole of truth should not be present at every time and every place, available for anyone who desires it.
+ - The full expression of personality depends upon its being inflated by social prestige; it is a social privilege.
+ - God’s love for us is not the reason for which we should love him. God’s love for us is the reason for us to love ourselves.
+ - Academic work is one of those fields which contain a pearl so precious that it is worth while to sell all our possessions, keeping nothing for ourselves, in order to be able to acquire it.
+ - The whole of our civilization is founded on specialization, which implies the enslavement of those who execute to those who coordinate...
+ - In the intellectual order, the virtue of humility is nothing more nor less than the power of attention.
+ - The human soul has need of security and also of risk. The fear of violence or of hunger or of any other extreme evil is a sickness of the soul. The boredom produced by a complete absence of risk is also a sickness of the soul.
+ - I suffer more from the humiliations inflicted by my country than from those inflicted on her.
+ - There are only two sorts of greatness: true greatness, which is of a spiritual order, and the old, old lie of world conquest. Conquest is an ersatz greatness.
+ - It is an eternal obligation toward the human being not to let him suffer from hunger when one has a chance of coming to his assistance.
+ - In this world we live in a mixture of time and eternity. Hell would be pure time.
+ - If there were no affliction in this world we might think we were in paradise.
+ - Only an indirect method is effective. We do nothing if we have not first drawn back.
+ - We must wish either for that which actually exists or for that which cannot in any way exist or, still better, for both. That which is and that which cannot be are both outside the realm of becoming.
+ - Meditation on the chance which led to the meeting of my mother and father is even more salutary than meditation on death.
+ - What is surprising is not that oppression should make its appearance only after higher forms of economy have been reached, but that it should always accompany them.
+ - The villagers seldom leave the village; many scientists have limited and poorly cultivated minds apart from their specialty...
+ - All the Freudian system is impregnated with the prejudice which it makes it its mission to fight – the prejudice that everything sexual is vile.
+ - War, which perpetuates itself under the form of preparation for war, has once and for all given the State an important role in production.
+ - It is not my business to think about myself. My business is to think about God. It is for God to think about me.
+ - To write the lives of the great in separating them from their works necessarily ends by above all stressing their pettiness, because it is in their work that they have put the best of themselves.
+ - Truth is sought not because it is truth but because it is good.
+ - Our science is like a store filled with the most subtle intellectual devices for solving the most complex problems, and yet we are almost incapable of applying the elementary principles of rational thought.
+ - A work of art has an author and yet, when it is perfect, it has something which is anonymous about it.
+ - Every time that I think of the crucifixion of Christ, I commit the sin of envy.
+ - Misfortunes leave wounds which bleed drop by drop even in sleep; thus little by little they train man by force and dispose him to wisdom in spite of himself. Man must learn to think ofhimself as a limited and dependent being; and only suffering teaches him this.
+ - We can only know one thing about God – that he is what we are not. Our wretchedness alone is an image of this. The more we contemplate it, the more we contemplate him.
+ - A man whose mind feels that it is captive would prefer to blind himself to the fact. But if he hates falsehood, he will not do so; and in that case he will have to suffer a lot. He will beat his head against the wall until he faints. He will come to again.
+ - The payment of debts is necessary for social order. The non-payment is quite equally necessary for social order. For centuries humanity has oscillated, serenely unaware, between these two contradictory necessities.
+ - The entire universe is nothing but a great metaphor.
+ - The poison of skepticism becomes, like alcoholism, tuberculosis, and some other diseases, much more virulent in a hitherto virgin soil.
+ - The feeding of those that are hungry is a form of contemplation.
+ - Electra weeping for the dead Orestes. If we love God while thinking that he does not exist, he will manifest his existence.
+ - There can be a true grandeur in any degree of submissiveness, because it springs from loyalty to the laws and to an oath, and not from baseness of soul.
+ - The only hope of socialism resides in those who have already brought about in themselves, as far as is possible in the society of today, that union between manual and intellectual labor which characterizes the society we are aiming at.
+ - The intelligent man who is proud of his intelligence is like the condemned man who is proud of his large cell.
+ - The need for truth is more sacred than any other need.
+ - A self-respecting nation is ready for anything, including war, except for a renunciation of its option to make war.
+ - Nothing is worse than extreme affliction which destroys the “I” from the outside, because after that we can no longer destroy it ourselves.
+ - It is human misery and not pleasure which contains the secret of the divine wisdom.
+ - Religion as a source of consolation is an obstacle to true faith.
+ - Who were the fools who spread the story that brute force cannot kill ideas? Nothing is easier. And once they are dead they are no more than corpses.
+ - Uprooting is by far the most dangerous of the ills of human society, for it perpetuates itself.
+ - The mysteries of faith are degraded if they are made into an object of affirmation and negation, when in reality they should be an object of contemplation.
+ - The role of the intelligence – that part of us which affirms and denies and formulates opinions is merely to submit.
+ - Nothing is less instructive than a machine.
+ - Art has no immediate future, because all art is collective and there is no more collective life.
+ - With no matter what human being, taken individually, I always find reasons for concluding that sorrow and misfortune do not suit him; either because he seems too mediocre for anything so great, or, on the contrary, too precious to be destroyed.
+ - Education-whether its object be children or adults, individuals or an entire people-consists in creating motives.
+ - If someone does me injury I must desire that this injury shall not degrade me. I must desire this out of love for him who inflicts it, in order that he may not really have done evil.
+ - The essential thing to know about God is that God is Good. All the rest is secondary.
+ - Sin is not a distance, it is a turning of our gaze in the wrong direction.
+ - The notion of obligations comes before that of rights, which is subordinate and relative to the former. A right is not effectual by itself, but only in relation to the obligation to which it corresponds...
+ - In the Church, considered as a social organism, the mysteries inevitably degenerate into beliefs.
+ - What hope is there for innocence if it is not recognized?
+ - If Germany, thanks to Hitler and his successors, were to enslave the European nations and destroy most of the treasures of their past, future historians would certainly pronounce that she had civilized Europe.
+ - Man alone can enslave man.
+ - The whole evolution of present-day society tends to develop the various forms of bureaucratic oppression and to give them a sort of autonomy in regard to capitalism as such.
+ - We do not obtain the most precious gifts by going in search of them but by waiting for them.
+ - We should desire neither the immortality nor the death of any human being, whoever he may be, with whom we have to do.
+ - There is a certain kind of morality which is even more alien to good and evil than amorality is.
+ - The Our Father is to prayer what Christ is to humanity.
+ - Those who love a cause are those who love the life which has to be led in order to serve it.
+ - We must love all facts, not for their consequences, but because in each fact God is there present.
+ - The joy of learning is as indispensable in study as breathing is in running. Where it is lacking there are no real students, but only poor caricatures of apprentices who, at the end of their apprenticeship, will not even have a trade.
+ - One should identify oneself with the universe itself. Everything that is less than the universe is subjected to suffering.
+ - The difference between more or less intelligent men is like the difference between criminals condemned to life imprisonment in smaller or larger cells. The intelligent man who is proud of his intelligence is like a condemned man who is proud of his large cell.
+ - Science is voiceless; it is the scientists who talk.
+ - The only great spirit of our time.
+ - The essential characteristic of the first half of the twentieth century is the growing weakness, and almost the disappearance, of the idea of value.
+ - It is not the cause for which men took up arms that makes a victory more just or less, it is the order that is established when arms have been laid down.
+ - The soul is the human being considered as having a value in itself.
+ - When a man’s life is destroyed or damaged by some wound or privation of soul or body, which is due to other men’s actions or negligence, it is not only his sensibility that suffers but also his aspiration toward the good. Therefore there has been sacrilege towards that which is sacred in him.
+ - For when two beings who are not friends are near each other there is no meeting, and when friends are far apart there is no separation.
+ - On reaching a certain degree of pain we lose the world.
+ - Most works of art, like most wines, ought to be consumed in the district of their fabrication.
+ - Every new development for the last three centuries has brought men closer to a state of affairs in which absolutely nothing would be recognized in the whole world as possessing a claim to obedience except the authority of the State. The majority of people in Europe obey nothing else.
+ - The needs of a human being are sacred. Their satisfaction cannot be subordinated either to reasons of state, or to any consideration of money, nationality, race, or color, or to the moral or other value attributed to the human being in question, or to any consideration whatsoever.
+ - God is rich in mercy. I know this wealth of his with the certainty of experience, I have touched it.
+ - Do not allow yourself to be imprisoned by any affection. Keep your solitude. The day, if it ever comes, when you are given true affection, there will be no opposition between interior solitude and friendship, quite the reverse. It is even by this infallible sigh that you will recognize it.
+ - One might lay down as a postulate: All conceptions of God which are incompatible with a movement of pure charity are false. All other conceptions of him, in varying degree, are true.
+ - We have to try to cure our faults by attention and not by will.
+ - Contradiction itself, far from always being a criterion of error, is sometimes a sign of truth.
+ - There is nothing that comes closer to true humility than the intelligence. It is impossible to feel pride in one’s intelligence at the moment when one really and truly exercises it.
+ - He who has not God in himself cannot feel His absence.
+ - Whenever one tries to suppress doubt, there is tyranny .
+
+301 quotes

@@ -1,0 +1,42 @@
+ - Big results require big ambitions. ~~Heraclitus
+ - Comfort kills ambition. Get uncomfortable and get used to it in your pursuit of your goals and dreams. ~~Robert T. Kiyosaki
+ - My ambition cannot be stopped! ~~Cao Cao
+ - As long as I have a want, I have a reason for living. Satisfaction is death. ~~George Bernard Shaw
+ - Criticism is the price of ambition. ~~Robin S. Sharma
+ - If you want to reach a goal, you must ‘see the reaching’ in your own mind before you actually arrive at your goal. ~~Zig Ziglar
+ - If I fail it is only because I have too much pride and ambition. ~~Julius Caesar
+ - Do it, and then you will feel motivated to do it. ~~Zig Ziglar
+ - Make mistakes of ambition and not mistakes of sloth. Develop the strength to do bold things, not to suffer. ~~Niccolò Machiavelli
+ - At least eighty percent of millionaires are self-made. That is, they started with nothing but ambition and energy, the same way most of us start. ~~Brian Tracy
+ - Your ambition should be to get as much life out of living as you possibly can, as much enjoyment, as much interest, as much experience, as much understanding. Not simply be what is generally called a ‘success.’ ~~Eleanor Roosevelt
+ - You can start right where you stand and apply the habit of going the extra mile by rendering more service and better service than you are now being paid for. ~~Napoleon Hill
+ - Our ambition should be to rule ourselves, the true kingdom for each one of us; and true progress is to know more, and be more, and to do more. ~~Oscar Wilde
+ - Anyone can be an entrepreneur. All it takes is a little drive and ambition. ~~Robert T. Kiyosaki
+ - My ambition is handicapped by laziness. ~~Charles Bukowski
+ - The biggest changes in a women’s nature are brought by love; in man, by ambition. ~~Rabindranath Tagore
+ - I think my greatest ambition in life is to pass on to others what I know. ~~Frank Sinatra
+ - We pay a price for everything we get or take in this world; and although ambitions are well worth having, they are not to be cheaply won, but exact their dues of work and self denial, anxiety and discouragement. ~~L.M. Montgomery
+ - I’m going to let love lead the way, always. And I was born with this blind – blind ambition, and it’s kind of gotten me here to this point. And I think that I’ll stick to it. ~~Katy Perry
+ - Ambition means tying your well-being to what other people say or do. Self-indulgence means tying it to the things that happen to you. Sanity means tying it to your own actions. ~~Marcus Aurelius
+ - Ambition is not a vice of little people. ~~Michel de Montaigne
+ - Nothing else so destroys the power to stand alone as the habit of leaning upon others. If you lean, you will never be strong or original. Stand alone or bury your ambition to be somebody in the world. ~~Orison Swett Marden
+ - Routine, in an intelligent man, is a sign of ambition. ~~W.H. Auden
+ - All progress depends on the unreasonable man. ~~George Bernard Shaw
+ - Here we may reign secure; and in my choice To reign is worth ambition, though in hell: Better to reign in hell than serve in heaven. ~~John Milton
+ - Happiness is man’s greatest aim in life. Tranquility and rationality are the cornerstones of happiness. ~~Epicurus
+ - My main ambition in life is to be on the Devil’s most wanted list. ~~Leonard Ravenhill
+ - When ambition ends, happiness begins. ~~Thomas Merton
+ - Your ambition outweighed your talent. ~~Casey Stoner
+ - To make a great dream come true, you must first have a great dream. ~~Hans Selye
+ - The only way to coast is downhill. ~~Zig Ziglar
+ - Welcome to the graveyard of ambition. ~~David Nicholls
+ - Ambition, fueled by compassion, wisdom and integrity, is a powerful force for good that will turn the wheels of industry and open the doors of opportunity for you and countless others. ~~Zig Ziglar
+ - Nothing leads so straight to futility as literary ambitions without systematic knowledge. ~~H. G. Wells
+ - For me, ambition has become a dirty word. I prefer hunger. To be hungry- great. To have hopes, dreams- great. ~~Johnny Depp
+ - When I was young, my ambition was to be one of the people who made a difference in this world. My hope is to leave the world a little better for having been there. ~~Jim Henson
+ - History consists, for the greater part, of the miseries brought upon the world by pride, ambition, avarice, revenge, lust, sedition, hypocrisy, ungoverned zeal, and all the train of disorderly appetite. ~~Edmund Burke
+ - Learning to code is useful no matter what your career ambitions are. ~~Arianna Huffington
+ - To seek solitude like a wild animal. That is my only ambition. ~~Dalai Lama XIV
+ - Weakness of attitude becomes weakness of character. ~~Albert Einstein
+
+40 quotes

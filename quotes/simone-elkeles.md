@@ -1,0 +1,162 @@
+ - Great minds think alike.
+ - You shouldn’t love me. I don’t deserve you.
+ - I want to live life on my own terms.
+ - Music is my drug, the one thing that makes me numb.
+ - I wish I could turn back time, but I can’t. I made a stupid decision because I thought I was invincible, and I’ll pay for it the rest of my life.
+ - I never stopped loving you. Even when I tried desperately to forget you, I couldn’t.
+ - You make me believe in the impossible.
+ - I can’t sleep. Too many thoughts running through my useless head.
+ - If you let him go and he doesn’t come back to you, he wasn’t yours to begin with. It’s a lesson learned in first grade.
+ - Next time I want to do something nice, slap me.
+ - There’s a thin line between love and hate. Maybe you’re confusing your emotions.
+ - Unfortunately, I can’t run from my heart. It hurts, deep inside my body. And I know I’ll never be the same.
+ - God take care of him, because he’s my past and my future.
+ - We need to look back sometimes and realize the past taught us to appreciate our future.
+ - I gave you my heart, but it wasn’t enough.
+ - Every time I break out of what is expected of me and do what feels right, I feel stronger.
+ - Unfortunately, real life doesn’t have a remote control.
+ - Stop focusing on the bad stuff because life is too damn short.
+ - I don’t belong here. It doesn’t matter, because even if I don’t belong in this place, she’s here and I want to be where she is.
+ - I want to try making things right because picking up the pieces is way better than leaving them the way they are.
+ - One of the things that makes me who I am is the loyalty I have to people I hold close to my heart.
+ - Sometimes you have to steer away from the crowd in order to be a better person. It’s not always easy, that’s for sure. But it’s right. And sometimes doing the right thing feels good, even if it does end up in a trip to the principal’s office.
+ - Playing with fire doesn’t necessarily get you burned.
+ - Nobody really knows her Except the chosen few Her secrets are kept hidden Behind that sun-kissed hue. If I reach out to touch her She’ll just run away My Forever and Always Will have to wait another day.
+ - From the moment I laid eyes on you I couldn’t stop looking at you. From the moment we talked I couldn’t stop arguing with you. From the moment we kissed I couldn’t stop kissing you. And from the moment we shared our hopes, fears and insecurities I couldn’t stop loving you.
+ - Problem is, the bathroom pass can’t help you escape life. It’s still there when you come out. Problems and crap don’t go away hiding in the can.
+ - Love is honesty. Love is a mutual respect for one another.
+ - I want to tell her how much she’s become the center of my being. But I can’t. The words won’t come.
+ - I can’t help but smile as I swipe a lone tear trailing down my cheek. How can I not be crazy in love with this guy? Time away from him didn’t change anything. I can’t deny him another chance. That would be denying myself.
+ - I don’t want to end up like my mom. That’s my biggest fear in life.
+ - This connection we have isn’t going away, it’s only getting stronger. Because the more I spend time with her, the closer I want to be.
+ - Tofu tacos are not Mexican. I think putting tofu on anything and calling it Mexican is an insult to my people.
+ - Don’t be afraid to be unique. Love yourself before you love another.
+ - Expectations make people miserable, so whatever yours are, lower them. You’ll definitely be happier.
+ - Secrets she’ll take to the grave and secrets she’s dying to share.
+ - My dream is to find a guy who’ll love me despite my flaws and won’t turn away from me when a perfect girl walks by. Maybe a boy like that doesn’t even exist.
+ - Daddy, What’s the horizontal tango?
+ - If you tiptoe into cold water, you’re missing out on the rush of plunging in headfirst.
+ - But wishes are only granted in fairy tales.
+ - He’s my brother, my blood. He annoys the hell out of me most of the time, but when it comes right down to it I want to see him graduate from college and have little annoying mini-Alexes and mini-Brittanys running around in the future.
+ - I saw you happy. Happier than you’ve been in a long time. With someone you like that much, the lows are as low as the highs are high.
+ - She ignores me, so I cup my hands over my mouth and do something I haven’t done in years – barnyard sounds.
+ - With someone you like that much, the lows are as low as the highs are high. Does that make sense?? It does. It also makes me sound bipolar.? Love will do that to a person.
+ - This attitude means you haven’t met a girl worthy of your attention. You’ll want to get caught if the right girl comes along.
+ - It’s the music that pulls me in and makes me forget about my problems at home. Music is my drug, the one thing that makes me numb.
+ - If I had any choice in the matter, I’d stay in my comfy bed and eat warm chocolate chip cookies all day.
+ - As If I could just turn my feelings off like a faucet.
+ - Does she realize she looks like a sunflower, ready to rain sunlight on all who look down upon her?
+ - Sometimes I wish there were do over years or fast forward days.
+ - It’s pure instinct that makes me rebel every time someone tries to control my life and hand out more rules.
+ - Love isn’t about honesty. It’s about protecting the people you love from things that will hurt them.
+ - You are the one girl that made me risk eveything for a future worth having.
+ - I want to know how to make this girl laugh. I want to know what makes her cry. I want to know what it feels like to have her look at me as if I’m her knight in shinning armor.
+ - Mujer, you own my soul.
+ - I understand the reasons behind his keeping a distance from a girl he cares about. Because the truth is, sometimes getting close to the fire does actually burn you.
+ - Fifty percent of all doctors graduate in the bottom half of their class – Hope your surgery went well!
+ - I lost my dad when I was younger, and I know what its like to lose a beloved parent.
+ - I want to live life on my own terms. But I’m Mexican, so mi familia is always there to guide me in everything I do, whether I want them to or not. Well, “guide” is too weak a word. “Dictate” is more like it.
+ - No, the next time i kiss you it’ll last a long, long time. And then when we’re done you’re gonna realize being turned on is not about experience.
+ - Since you came back from summer break, our entire relationship is about fooling around. We never talk anymore, and I’m sick of feeling guilty for not ripping my clothes off and spreading my legs to prove I love you.
+ - Man, my girl is one tough chick when she wants to be. I wonder if it has something to do with those big, comfy granny panties she’s got on.
+ - I now know why people break up in e-mails and text messages. Doing it face-to-face is so hard because you have to stand in front of the person and witness their reaction. Face their wrath.
+ - I love you because you’re the only person I want to make love to without any conditions and – and I love that you need me.
+ - I’m ready for something private, private and real.
+ - I realise it’s going to happen. This girl of my dreams, this girl who is more like me than anyone I’ve ever met, wants to kiss me.
+ - Alex kneels down to Shelley’s level. The simple act of respect tears at something suspiciously like my heart. Colin always ignores my sister, treating her as if she’s blind and deaf as well as physically and mentally disabled.
+ - You once told me that I make you believe in the impossible. You make me believe in love, which I’d given up on. Thank you for proving to me it’s not just a fairy tale.
+ - Trust me, he whispers against my lips. Maggie, you’re my paradise.
+ - I’m poor, not homeless.
+ - Girls like you want to cut guy’s nuts off and hang ’em from your rearview mirror.
+ - I write edgy, sexy teen romances, and that’s what I’ll continue to do.
+ - I find myself daydreaming about him when I wake up in the morning, in school when something reminds me of him, and when I fall asleep at night.
+ - But I know loving someone means losing a part of myself.
+ - Sometimes things are better off forgotten.
+ - Opening yourself up to making mistakes and being vulnerable is what makes it beautiful and special with the person you love.
+ - Don’t let your life outside of school dictate your future.
+ - Who am I kidding? I have no reason for being here other that the fact that I want to be near her.
+ - Love. Is it just a word that boys use to manipulate girls?
+ - From the look of us, you’d never know we slept in the same bed last night and made out like the world was going to end if we stopped.
+ - He has no clue that I have the patience of a saint. At least that’s what Carlos says, although that isn’t saying much, considering his fuse is about as short as an eyelash.
+ - Being brave is not as easy as it looks.
+ - Don’t they give you happy pills in this place?
+ - When she wraps her arms around my neck, all I want to do is protect this girl for the rest of my life.
+ - She’s a Texan, born and raised. Football is in our blood.
+ - Thoughts of being a pirate and stealing her away to my ship race across my mind. Although I’m not a pirate, and she’s not my captured princess.
+ - I flip open my phone to text Jessica: Me: Guess who’s pregnant? Jess: u? Me: Get real. Jess: ur mom? Me: yep Jess: Mazel tov!? Me: Don’t congratulate me, plz Jess: Could b worse Me: How? Jess: Could be u? Me: I’m a virgin. Jess: Nobody’s perfect.
+ - I guess we’re all a bunch of mismatched couples – that actually fit.
+ - Sometimes we have to prove to others we’re strong even where we’re not.
+ - Maggie squeezes my hand. It’s a silent message that everything will be okay. Somehow I believe her. In the end everything will be okay. But hurdles have to be jumped through first.
+ - How funny it is that the most unlikely person sometimes becomes your ally.
+ - I’ve had more students die than I ever thought possible. My husband urges me to quit Fairfield and teach at some school without gang members who live their lives only to die or end up as drug dealers.
+ - Should I tell him I’m not afraid of being hurt? I’m afraid of not being in control.
+ - I want to be wherever you are.
+ - It’s hard keeping everything the same when the same things look and feel so different.
+ - I’m staring into chocolate eyes. although my brain is clouded and I’m dizzy, I know enough to register that chocolate is the opposite of blue. I don’t want blue. Blue confuses me too much. Chocolate is straight-forward, easier to deal with.
+ - Whether it’s right or wrong, fight for what you believe in.
+ - If you sprinkle when you tinkle please be neat and wipe the seat.
+ - Alex took a piece of my heart with him when he left.
+ - It’ll be impossible to protect Brittany for the rest of her life from all the other guys who want to be near her, to see her as I’ve seen her. Touch her as I’ve touch her. Man, I never want to let her go.
+ - Doing something positive will help turn your mood around. When you smile, your body relaxes. When you experience human touch and interaction, it eases tension in your body.
+ - Our lie is like a cancer that’s spread to every single area of our lives.
+ - I tried writing adult romances, but it just didn’t fit my voice.
+ - If you can’t share with your friends, who can you share with?
+ - I wonder if it’s medically possible to be addicted to another human being.
+ - He may be out of my life physically, but he’ll always be a part of me. I can’t let go even if I wanted to.
+ - I hate games I can’t win.
+ - Sometimes moving on takes effort. Sometimes moving on is harder than it looks.
+ - I like to write books that touch my heart. I want to entertain, and I love to entertain myself.
+ - You can run from some problems, but then you get caught up in others.
+ - You’re where I want to be.
+ - I eye Chuy like a pitcher in baseball does when a guy leads too far off base.
+ - Outward appearances mean everything.
+ - My history defines who I am.
+ - Running should be saved for the times when you’re being chased.
+ - There are no rules to attraction. Jake is nothing like who I wanted.
+ - The end of one thing is just the beginning of another.
+ - That wouldn’t fit my right testicle.
+ - I don’t play games with people’s lives like you do.
+ - Just the fact that you need me to prove I love you is probably a clue it isn’t working.
+ - The percentage of couples who stay together after high school is, like, less than five percent, you guys.
+ - For my Perfect Chemistry series, I did movie-style book trailers, and my fans went crazy for them.
+ - Mr. Latino with the big ego got bested by a ditzy, blond bimbo.
+ - It’s as if I’m taking away his pain and he’s taking away mine.
+ - If any guy threatened her she’d probably suffocate him with her oversized tee.
+ - Senior year is supposed to be a blast-easy and fun. So far it’s been anything but.
+ - Isn’t that why we’re put on this earth to begin with, to make it a better place? It’s not a religious quest; it’s a humanitarian one.
+ - If no words come, you can always give him the finger.
+ - Romance novels are my favorite books to read. I write young adult romances, and am so happy to be promoting this wonderful genre.
+ - It reminds me of myself – seemingly perfect on the outside but inside is all a mush.
+ - Is anyone human actually normal? I’m beginning to think being normal is actually abnormal.
+ - Gary, who’s wearing a coral shirt and white pants, growls to look tough. It doesn’t work.
+ - Feelings can’t be a part of this game.
+ - It’s not Brittney’s face, not her smile, not even her eyes. All of that surface stuff made the world see her as beautiful, but it was the deeper stuff that made her different.
+ - Alex probably brings his dates sharp knives as gifts, in case she’ll need one when she’s out on a date with him.
+ - And right this second I want to live in ignorant bliss.
+ - What is this?? ‘A Smart Car’ It looked like an SUV took a dump and out came the Smart Car.
+ - I wish my life was a John Grisham novel. His heroes always seem to be one step away from death but come up with a brilliant plan. Unfortunately, real life can’t be wrapped up with a nice little bow.
+ - I don’t want to always be ‘the best I can be.’ I just want to be me.
+ - I’m not starting any fights. I might finish one though.
+ - Oh, and just so you know, before we go out to the field we all get into a huddle and yell ‘Go Queers!’ really loud.
+ - You know you can do more, but everyone expects you to quit.
+ - What would it take for you to go out with me?
+ - Want to get in trouble with me, Carlos?
+ - Fans always say they laughed and they cried while reading my books. And I tell them that I laughed and cried while writing them.
+ - I never believed in love at first sight, until I met Derek. It’s all-consuming and delicious and wonderful and exciting. At the same time, it makes me nervous and self-conscious and emotional. Love exists. I know it does, because I’m madly, deeply, hopelessly in love.
+ - I’ve spent so much time avoiding arguments and smoothing relationships with the people around me, this confrontation is painful.
+ - He has eyes so expressive they give a hint to more than what he portrays. He’s dedicated to his friends, family, and even his motorcyle. He touched me as if I were made of glass. He kissed me as if he’d savor it for the rest of his life.
+ - You’re stressing too much about what might be. Do something to take your mind off thinking about what might never happen.
+ - It’d be cool if God gave everyone a Do Over Day and you could yell “Do Over!” and the day would start new.
+ - Truth is, it’s a relief to finally put my life in the hands of someone I trust.
+ - The threat of taking something away makes us appreciate it more.
+ - Football players are misunderstood. They arent the dumb jocks people think they are.
+ - Who knew Lenny was an encyclopedia for useless information?
+ - From the moment I told her about my dad, it was as if her whole body sighed in relief. As if someone else’s misery comforted her, made her feel as if she wasn’t alone.
+ - Guys are control freaks and hate when other people know what’s best for them.
+ - Tell me what we had was real, I whisper.
+ - I don’t want to point out her flaws, but if I see her going on a self-destructive path, isn’t it up to me as her friend to stop her?
+ - Unfortunately, there are no guarentees in life.
+ - I want to hold you, Nikki. Will you let me?
+ - I feel so selfish, because I want the best of both worlds. I want to keep the image I’ve worked so hard to create.
+
+160 quotes

@@ -1,0 +1,25 @@
+ - We are stronger together than we are alone.
+ - When you’re good at something, you’ll tell everyone. When you’re great at something, they’ll tell you.
+ - Remember, tomorrow is promised to no one.
+ - Tough times go away, tough people do not.
+ - Work hard or don’t work at all.
+ - If you forget your roots, you’ve lost sight of everything.
+ - If you ask me how I want to be remembered, it is as a winner.
+ - Running alone is the toughest. You get to the point where you have to keep pushing yourself.
+ - I want to be remembered as the guy who gave his all whenever he was on the field.
+ - Never die easy. Why run out of bounds and die easy? Make that linebacker pay. It carries into all facets of your life. It’s okay to lose, to die, but don’t die without trying, without giving it your best.
+ - A lot of fans were drawn to me because they knew that whatever the score was, I was going to run as hard as I could on every play. You don’t have that now, you have guys waiting for next week or even next year.
+ - All people, regardless of whether they’re athletes or not, should treat people the way they want to be treated.
+ - Most important thought, if you love someone, tell him or her, for you never know what tomorrow may have in store.
+ - When you speak of role models, when we talk to our kids, everybody is a role model, everyone, just as you look at a Michael Jordan to be the terrific athlete he is.
+ - If I’m going to get hit, why let the guy who’s going to hit me get the easiest and best shot? I explode into the guy who’s trying to tackle me.
+ - I developed my training routine going into my senior year at Jackson State. I found this sandbank by the Pearl River near my hometown, Columbia, Miss. I laid out a course of 65 yards or so. Sixty-five yards on sand is like 120 on turf, but running on sand helps you make your cuts at full speed.
+ - Money isnt everything. Do you get married because of money? Do you have kids because of money?
+ - God’s been very good to me. I’m truly blessed.
+ - I am happy to say that everyone that I have met in my life, I have gained something from them; be it negative or positive, it has enforced and reinforced my life in some aspect.
+ - I try to run on the hottest days, at the hottest time, because that’s the most difficult time. And sometimes I worry about drying out, and dying.
+ - I wanted to be a professional drummer.
+ - If you could go back and change things, you might not be the person you are right now.
+ - I don’t have to jump up and smile just because TV wants me to.
+
+23 quotes

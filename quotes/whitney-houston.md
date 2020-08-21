@@ -1,0 +1,69 @@
+ - There can be miracles when you believe.
+ - I believe that children are our future. Teach them well and let them lead the way. Show them all the beauty they possess inside.
+ - Learning to love yourself, is the greatest love all.
+ - I wish to you, joy and happiness. But above all this, I wish you love.
+ - I believe the children are our future.
+ - I’d rather be alone than unhappy.
+ - If I fail, if I succeed, at least I live as I believe.
+ - When the night falls, my lonely heart calls.
+ - Nobody makes me do anything I don’t want to do. It’s my decision. So the biggest devil is me. I’m either my best friend or my worst enemy.
+ - My daughter is my greatest inspiration.
+ - You can fool people. You can fool anybody anytime of the day, but you can’t fool yourself. At night, when you go home, you’ve got to be straight up with you.
+ - Let the children’s laughter remind us how we used to be.
+ - Judge not for your flaws, but for your Triumphs!
+ - If you say my eyes are beautiful, it’s because they are looking at you.
+ - My mother taught me that when you stand in the truth and someone tells a lie about you, don’t fight it.
+ - I feel so blessed to just have done what I had done. To be able to just use what God has given me is a blessing. You know, never mind the Grammys, never mind the records, never mind all of that. Just to be able to sing.
+ - Sometimes you’ll laugh. Sometimes you’ll cry. Life never tells us, the when’s or why’s. When you’ve got friends, to wish you well. You’ll find your point when. You will exhale.
+ - God gave me a voice to sing with, and when you have that, what other gimmick is there?
+ - When I heard Aretha, I could feel her emotional delivery so clearly. It came from down deep within. That’s what I wanted to do.
+ - When you’re feeling full of doubt and fear has got you in a bind, love will save the day.
+ - I broke my heart for every gain, to taste the sweet I faced the pain.
+ - I’m either my best friend or my worst enemy.
+ - I’m tired of people taking off their clothes.
+ - I would stay in my room for days, for days at times, just trying to get it together, to know what my next phase was going to be.
+ - Growing around great musicians, you just can’t help it. I identified with it immediately. It was something that was so natural to me that when I started singing, it was almost like speaking.
+ - Crack is cheap. I make too much money to ever smoke crack. Let’s get that straight. OK? We don’t do crack. We don’t do that. Crack is whack.
+ - I’m an old-fashioned girl. And I love gospel. I like things that lift me up, inspire me.
+ - I have priorities. Maintaining my daughter is my first.
+ - I can tell you that I am not self-destructive. I’m not a person who wants to die. I’m a person who has life, who wants to live. And I always have. And I wouldn’t mistake it for anything else other than that.
+ - I’m good where I am at this moment.
+ - I’m proud of being a mother, a wife, a daughter, and a sister, and a lover and a friend We’re all God’s children.
+ - My name is not Susan, so watch what you say. If you still need her, then be on your way.
+ - I know that I could really kill for my daughter. I know because I’m living for her, so I’m fierce when it comes down to it. And I feel the same about my husband and my family. I’m just fiercely protective. It’s like, that’s my lair and nobody messes with my lair.
+ - No, I’m not a drug addict, and neither is my husband. If that were so, you’d get a lot less work out of me. It would show in the performances and in the work.
+ - I’ve always been a thin girl. I’m not going to be fat, ever. Let’s get that straight. Whitney is not going to be fat, ever. Okay?
+ - I finally faced the fact that it isn’t a crime not having friends. Being alone means you have fewer problems.
+ - Being around people like Aretha Franklin and Gladys Knight, Dionne Warwick and Roberta Flack, all these greats, I was taught to listen and observe.
+ - I like being a woman, even in a man’s world. After all, men can’t wear dresses, but we can wear the pants.
+ - I’m not crazy about arenas just because I can sell them out. It doesn’t do anything for my ego at all. I want to play places where people don’t have to sit in the nosebleed seats and wonder what the hell is going on.
+ - When I decided to be a singer, my mother warned me I’d be alone a lot. Basically we all are. Loneliness comes with life.
+ - Loneliness comes with life.
+ - From the beginning, the camera and I were great friends. It loves me, and I love it.
+ - I love to sing, but it’s just not fun anymore.
+ - In grammar school some of the girls had problems with me. My face was too light. My hair was too long. It was the black-consciousness period, and I felt really bad.
+ - You don’t have a baby based on that publicity madness. People don’t live like that. Especially black people who were raised in families with morals and standards and integrity.
+ - Sometimes you do have a good time. But when it gets to the point where you’re sitting in your home and you’re just trying to cover what you don’t want people to know. It’s painful. And then you want more just so that you don’t let anybody see you cry. Or anybody to see we’re not happy.
+ - I’m just fiercely protective. It’s like, that’s my lair and nobody messes with my lair.
+ - My mother taught me beauty really lives in places like a smile.
+ - I am not self-destructive. I am not a person who wants to die.
+ - Never let your heart take precedence over reason, otherwise you will have problems.
+ - I’ve turned down a lot of arena dates because I’ve done the big-arena thing. Now, I want to do something where people can feel me and I can feel them.
+ - No one makes me do anything I don’t want to do.
+ - I have a mother that’s very strong and family that surround me and constantly tell me they love me.
+ - What’s in your soul is in your soul.
+ - I wanted to be a teacher. I love children, so I wanted to deal with children. Then I wanted to be a veterinarian. But by the age of ten or eleven, when I opened my mouth and said, ‘Oh, God, what’s this?’ I kind of knew teaching and being a veterinarian were gonna have to wait.
+ - You get that love from the people. It lets me know that all the madness I go through, all the stuff that the business has to offer with all its madness; it makes it worthwhile.
+ - I was aware of people staring at me. No one moved. They seemed almost in trance. I just stared at the clock in the center of the church. When I finished, everyone clapped and started crying.
+ - I’m a person who has life and wants to live, and always have.
+ - I almost wish I could be more exciting, that I could match what is happening out there to me.
+ - Nobody likes to be picked on. Nobody.
+ - My mother was the first singer I had contact with. She sang constantly to us around the house, in church.
+ - I think over the years, being a mother, I’ve matured in so many ways.
+ - BSB are a great bunch of guys, I really like them.
+ - I’ve got some good saints out there – that’s right – that pray for me constantly. You’ve gotta have that! You do.
+ - I’ve never felt like this in any other country. I feel at home, I feel wonderful.
+ - I’m the kind of person, if, if I have a day that is nerve-wracking, or my week has been bad or something’s going down, I won’t eat. Some people eat, I don’t eat. And it shows in my physical frame.
+ - My mother sang with me in her stomach; I sang with Bobbi Kris in my stomach. I believe the child starts to develop within, and whatever you read, whatever you think, whatever you do affects the child.
+
+67 quotes

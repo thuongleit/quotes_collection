@@ -1,0 +1,27 @@
+ - By self-analysis you can not change your character, but you may change your mentality.
+ - Body language is so important, as is composition. You can not say something, and then the body reacts, and it says a lot of things dialogue can also say.
+ - There’s a lot about records that you cannot feel from a CD.
+ - I am a village boy, and Amsterdam for me was always the big town.
+ - Sometimes you don’t know if your memory is because you really experienced it or because you look at your old pictures. I have a nice picture of myself held up by my grandfather and my father standing next to me. We all have the same name – we’re all called Anton Corbijn. That’s something I cherish.
+ - Grain is life, there’s all this striving for perfection with digital stuff. Striving is fine, but getting there is not great. I want a sense of the human and that is what breathes life into a picture. For me, imperfection is perfection.
+ - I don’t crop my images and I always shoot handheld. By doing that I build in a kind of imperfection and this helps to emphasize reality.
+ - There’s only one music video that had an emotional impact on me, and that’s ‘Hurt’ by Johnny Cash. That’s exceptional. There is no music video I can think of apart from that one that really reaches you inside.
+ - I don’t think I treat my film work as an extension of my photography. There are two different sets of rules there.
+ - Like stories, people have individual lives, and are all caught up in this murky thing. All of them have the best intentions. In that sense, you could just as easily tell the same story from another character’s perspective. Maybe that’s a good idea for a TV series.
+ - I don’t have lights, I don’t have assistants, I just go and meet somebody and take a photograph. That’s really basic, and that’s how I used to work when I was 17 or 18 in Holland.
+ - I never really enjoyed getting a portfolio together then sending it out; whereas, putting up the website is quite an enjoyable experience. The net’s just a much faster and more modern way to distribute things, and you have to embrace it.
+ - I feel that when I shoot anything, and I have something beautiful, I just move on.
+ - Apart from photography and music videos, I also do graphic design.
+ - It’s only when people get involved, when there’s money involved, that you have a lot opinions around you. I try not to listen to them too much.
+ - I’ve gotten used to not looking too far into the future; it’s best when you can begin each day anew.
+ - Photography has taken me from isolation.
+ - With photography, you are lucky if you get people to look at your pictures at some point. There’s no formal way to show them.
+ - The really simple approach to photography is a great balance to making the films.
+ - Photography was the only thing that mattered in my life and I gave it everything.
+ - I have such a love of good music that I find even melancholic music uplifting. Maybe I’m a rare breed.
+ - My biggest fear always is that I’ll photograph an idea rather than a person, so I try to be quite sensitive to how people are.
+ - I’m a very, very basic photographer. The main strength of my pictures, I guess, is the mood and feel I get out of the people that I meet. But technically I don’t think I’m very advanced. That never interested me.
+ - My way in for photographing people is really their work. I’m always interested in what people make, and then I photograph the person. Sometimes the person is a disappointment. But that’s the risk. It informs me a lot about the character of a person if I know their work first.
+ - My life changed incredibly when I moved from Holland to England.
+
+25 quotes

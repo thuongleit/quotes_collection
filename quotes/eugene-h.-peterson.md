@@ -1,0 +1,75 @@
+ - Sabbath is that uncluttered time and space in which we can distance ourselves from our own activities enough to see what God is doing.
+ - One way to define spiritual life is getting so tired and fed up with yourself you go on to something better, which is following Jesus.
+ - We cannot be too careful about the words we use; we start out using them and they end up using us.
+ - The Bible is not a script for a funeral service, but it is the record of God always bringing life where we expected to find death. Everywhere it is the story of resurrection.
+ - If you don’t take a Sabbath, something is wrong. You’re doing too much, you’re being too much in charge. You’ve got to quit, one day a week, and just watch what God is doing when you’re not doing anything.
+ - Wisdom is the art of living skillfully in whatever actual conditions we find ourselves.
+ - Waiting means going about our assigned tasks, confident that God will provide the meaning and the conclusions.
+ - Stories are verbal acts of hospitality.
+ - My job is not to solve people’s problems or make them happy, but to help them see the grace operating in their lives.
+ - No life of faith can be lived privately. There must be overflow into the lives of others.
+ - Worship does not satisfy our hunger for God; it whets our appetite.
+ - The hard work of sowing seed in what looks like perfectly empty earth has a time of harvest. All suffering, pain, emptiness, disappointment is seed: sow it in God and He will, finally, bring a crop of joy from it.
+ - Go out into the world uncorrupted, a breath of fresh air in this squalid and polluted society. Provide people with a glimpse of good living and of the living God.
+ - Prayer gets us in on what God is doing.
+ - Like the sacramental use of water and bread and wine, friendship takes what’s common in human experience and turns it into something holy.
+ - Our Father in heaven, Reveal who you are. Set the world right; Do what’s best – As above, so below. Keep us alive with three square meals. Keep us forgiven with you and forgiving others. Keep us safe from ourselves and the Devil. You’re in charge!
+ - Count yourself lucky, how happy you must be – you get a fresh start, your slate’s wiped clean. Count yourself lucky – God holds nothing against you and you’re holding nothing back from Him.
+ - Suffering attracts fixers the way road-kills attract vultures.
+ - That’s the whole spiritual life. It’s learning how to die. And as you learn how to die, you start losing all your illusions, and you start being capable now of true intimacy and love.
+ - Worship is an act that develops feelings for God, not a feeling for God that is expressed in an act of worship.
+ - People are not problems to be solved. They are mysteries to be explored.
+ - Praying puts us at risk of getting involved in God’s conditions. Be slow to pray. Praying most often doesn’t get us what we want but what God wants, something quite at variance with what we conceive to be in our best interests.
+ - Prayer is the disciplined refusal to act before God acts.
+ - There is nothing terribly difficult in the Bible – at least in a technical way. The Bible is written in street language, common language. Most of it was oral and spoken to illiterate people. They were the first ones to receive it. So when we make everything academic, we lose something.
+ - Real faith is refined in the fires and storms of pain.
+ - If we get our information from the biblical material there is no doubt that the Christian life is a dancing, leaping, daring life.
+ - God is the larger context and plot in which our stories find themselves.
+ - I will not try to run my own life or the lives of others; that is God’s business.
+ - When we sin and mess up our lives, we find that God doesn’t go off and leave us- he enters into our trouble and saves us.
+ - Love is not a word that describes my feelings; it is not a technique by which I fulfill my needs; it is not an ideal, abstract and pure, on which I meditate or discourse. It is acting in correspondence with or in response to God in relation to persons.
+ - The minute the church and pastors start saying what do people want and then giving it to them, we betray our calling. We’re called to have people follow Jesus. We’re called to have people learn how to forgive their enemies.
+ - The silence that makes it possible to hear God speak also makes it possible for us to hear the world’s words for what they really are – tinny and unconvincing lies.
+ - Church is the textured context in which we grow up in Christ to maturity. But church is difficult. Sooner or later, though, if we are serious about growing up in Christ, we have to deal with church. I say sooner.
+ - O God, when my faith gets overladen with dust, blow it clean with the wind of your Spirit. When my habits of obedience get stiff and rusty, anoint them with the oil of your Spirit. Restore the enthusiasm of my first love for you.
+ - If people don’t know their pastor, it’s easy to put the pastor on a pedestal and depersonalize him or her. It’s also easy for pastors, who don’t know their congregations, simply to classify congregants as saved or unsaved, involved or not involved, tithers or non-tithers.
+ - You don’t make your words true by embellishing them with religious lace. In making your speech sound more religious, it becomes less true.
+ - The Bible makes it clear that every time that there is a story of faith, it is completely original. God’s creative genius is endless.
+ - A person has to get fed up with the ways of the world before he, before she acquires an appetite for the world of grace.
+ - Jesus almost never talked in terms of explaining. He was always using enigmatic stories and difficult metaphors. He was always pulling people into some kind of participation.
+ - It is easier to find guides, someone to tell you what to do, than someone to be with you in a discerning, prayerful companionship as you work it out yourself. This is what spiritual direction is.
+ - If you keep the Sabbath, you start to see creation not as somewhere to get away from your ordinary life, but a place to frame an attentiveness to your life.
+ - I believe God takes the things in our lives – family, background, education – and uses them as part of his calling. It might not be to become a pastor. But I don’t think God wastes anything.
+ - That’s why I tell stories: to create readiness, to nudge the people toward receptive insight. In their present state they can stare till doomsday and not see it, listen till they’re blue in the face and not get it.
+ - When you are part of a megachurch, you have no responsibility to anybody else.
+ - There’s nobody who doesn’t have problems with the church, because there’s sin in the church. But there’s no other place to be a Christian except the church.
+ - I didn’t write because I had anything to say, but in order to find out what there was to say.
+ - Isn’t it interesting that all of the biblical prophets and psalmists were poets?
+ - We’ve all met a certain type of spiritual person. She’s a wonderful person. She loves the Lord. She prays and reads the Bible all the time. But all she thinks about is herself. She’s not a selfish person. But she’s always at the center of everything she’s doing.
+ - Pity can be nearsighted and condescending; shared suffering can be dignifying and life-changing.
+ - The task of the prophet is not to smooth things over but to make things right.
+ - The most important thing a pastor does is stand in a pulpit every Sunday and say, ‘Let us worship God.’ If that ceases to be the primary thing I do in terms of my energy, my imagination, and the way I structure my life, then I no longer function as a pastor.
+ - The moment the organic unity of belief and behaviour is damaged in any way, we are incapable of living out the full humanity for which we were created.
+ - The life of faith is a daily exploration of the constant and countless ways in which Gods grace and love are expereinced.
+ - All the persons of faith I know are sinners, doubters, uneven performers. We are secure not because we are sure of ourselves but because we trust that God is sure of us.
+ - Neither the adventure of goodness nor the pursuit of righteousness gets headlines.
+ - I think pastors are the worst listeners. We’re so used to speaking, teaching, giving answers. We must learn to be quiet, quit being so verbal, learn to pay attention to what’s going on, and listen.
+ - Pastors are highly susceptible to the sin of sloth.
+ - The Spirit works through community. Somebody will have a stupid, screwy idea. That’s okay. The point of having creeds and confessions and traditions is to keep us in touch with the obvious errors.
+ - When we submit our lives to what we read in scripture, we find that we are not being led to see God in our stories but our stories in God’s. God is the larger context and plot in which our stories find themselves.
+ - In high school I was very much involved in poetry. You cannot read a poem quickly. There’s too much going on there. There are rhythms and alliterations. You have to read poetry slow, slow, slow to absorb it all.
+ - People learn to shop for churches; there is no loyalty to the church. They’re consumers being attracted to one product or another. I think it’s sacrilege, to tell you the truth, it really is.
+ - I cannot fail to call the congregation to worship God, to listen to his Word, to offer themselves to God.
+ - One of the reasons that Christians read Scripture repeatedly and carefully is to find out just how God works in Jesus Christ so that we can work in the name of Jesus Christ.
+ - I don’t want to end up a bureaucrat in the time-management business for God or a librarian cataloguing timeless truths. Salvation is kicking in the womb of creation right now, any time now. Pay attention.
+ - Pastors need to know what’s going on in the world and what has been going on for 4,000 years. We need a way to read Scripture which is imaginative, interpretive.
+ - It’s essential for us to develop an imagination that is participatory. Art is the primary way in which this happens. It’s the primary way in which we become what we see or hear.
+ - There is something about Christmas that requires a rug rat. Little kids make Christmas fun. I wonder if could rent one for the holidays. When I was tiny we would by a real tree and stay up late drinking hot chocolate and finding just the right place for the special decorations.
+ - Religion is a very scary thing, because a pastor is in a position of power. And if you use that power badly, you ruin people’s lives, and you ruin your own life.
+ - American culture is probably the least Christian culture that we’ve ever had because it is so materialistic and it’s so full of lies. The whole advertising world is just, it’s just intertwined with lies, appealing to the worst of the instincts we have.
+ - I get asked, ‘What do you miss most about being a pastor?’ I think it’s the intimacy, the incredible gift of intimacy. You go through death with somebody, with their families, and there’s an intimacy that comes through that that is just incomparable.
+ - The religious leader is the most untrustworthy of leaders; in no other station do we have so many opportunities for pride, covetousness and lust, and with so many excellent disguises to keep such ignobility from being found out and called to account.
+ - The role of the pastor is to embody the gospel. And of course to get it embodied, which you can only do with individuals, not in the abstract.
+ - Spirituality is no different from what weve been doing for two thousand years just by going to church and receiving the sacraments, being baptized, learning to pray, and reading Scriptures rightly. Its just ordinary stuff.
+
+73 quotes

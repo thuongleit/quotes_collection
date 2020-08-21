@@ -1,0 +1,38 @@
+ - I love my country more than anything else.
+ - My doctors say I am very healthy.
+ - In Israel we tend to be carried away by our emotions.
+ - I sometimes feel tired. But there are so many reasons for being tired.
+ - I was not born to be prime minister, and I’m not going to stay here until the end of my life. I’m too young for that.
+ - I am focused on what needs to be done for the people of Israel. Period. I do not pity myself and I do not pat myself on the shoulder. I get up in the morning full of energy to fulfill my mission.
+ - When you fight for the impossible, sometimes you lose everything.
+ - I know I’m unpopular.
+ - I don’t want to block every contact with the Palestinians, I think that would be a mistake, and I think that Abu Mazen has an independent status as democratically elected head of the Palestinian people, and it’s important if I will talk with him.
+ - Political leaders can help change the psychological climate which affects the quality of relationships among people.
+ - Iran is an anti-Semitic, terrorist government.
+ - Leadership is tested not by one’s capacity to survive politically but by the ability to make tough decisions in trying times.
+ - There is no ceasefire. There will not be any ceasefire.
+ - There were certain people who were out to get me. I know who those people were. They exist, believe me. They know that I know. They spent millions of dollars in order to try to get rid of me. I’m happy they lost most of their money.
+ - A prime minister must not promise things that can’t be fulfilled.
+ - When the President of Iran talks about removing Israel from the face of the Earth and is building nuclear bombs with a range of 3000km, you have to be worried.
+ - I know the war in Iraq is controversial in the States, but for us in the Middle East it has made a great and significant impact.
+ - Peace is important for Israel.
+ - Israel always has to be in a position to defend itself against any adversary and against any threat of any kind.
+ - Israeli lives are worth more than Palestinian ones.
+ - The formula for the parameters of a unilateral solution are: To maximize the number of Jews; to minimize the number of Palestinians; not to withdraw to the 1967 border and not to divide Jerusalem.
+ - I want to arrive at the possibility of peace with the Syrians, and when I believe that the conditions are right, I will not miss the opportunity.
+ - Iran is a major threat to the well-being of Europe and America just as much as it is for the state of Israel.
+ - I never thought that Syria and Israel should engage in a violent confrontation because I don’t think that there is any particular interest for any of us to do it.
+ - How are fears born? They are born because of differences in tradition and history; they are born because of differences in emotional, political and national circumstances. Because of such differences, people fear they cannot live together.
+ - It is important that democracy in Lebanon is protected and that Hezbollah will not be supported by outside forces like Syria and Iran.
+ - A prime minister has to keep a certain balance when dealing with sensitive issues.
+ - I’m not in power, but my ideas are in power. And my ideas will prevail.
+ - For me to propose a division of Jerusalem was really terrible. I did it because I reached a conclusion that without which there will not be peace.
+ - Look, miracles in the Middle East are a reality.
+ - Who thinks seriously that if we sit on another hilltop, on another hundred meters, that this is what will make the difference for the state of Israel’s basic security?
+ - The military operation in Lebanon was the most successful military operation in recent Israeli history. Many in Israel don’t recognise that.
+ - I think the attempt to draw a comparison between Iran and Syria is false, misleading and dangerous.
+ - I have to think about the possible ramifications of an early retirement.
+ - Israel will not tolerate a situation in which Iran has effective control of non-conventional weapons that can be used directly against the state of Israel.
+ - There is nothing that I’d love to do more than negotiate with Palestinians. This is my desire. This is my dream. This is my mission.
+
+36 quotes

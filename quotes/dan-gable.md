@@ -1,0 +1,53 @@
+ - If you’re afraid to fail, you’ll never succeed.
+ - Talent is everywhere, winning attitude is not.
+ - Pain is nothing compared to what it feels like to quit. Give everything you got today for tomorrow may never come.
+ - Always remember the pain of defeat, and never let it happen again.
+ - I shoot, I score. He shoots, I score.
+ - Gold medals aren’t really made of gold. They’re made of sweat, determination, and a hard-to-find alloy called guts.
+ - If we don’t progress, we backslide into bad habits, laziness and poor attitude.
+ - When I’d get tired and want to stop, I’d wonder what my next opponent was doing. I’d wonder if he was still working out. I’d tried to visualize him. When I could see him working, I’d start pushing myself. When I could see him in the shower, I’d push myself harder.
+ - More enduringly than any other sport, wrestling teaches self-control and pride. Some have wrestled without great skill – none have wrestled without pride.
+ - Determination is the strength needed to succeed.
+ - There’s always ways of motivating yourself to higher levels. Write about it, dream about it. But after that, turn it into action. Don’t just dream.
+ - I’m a big believer in starting with high standards and raising them. We make progress only when we push ourselves to the highest level. If we don’t progress, we backslide into bad habits, laziness and poor attitude.
+ - Once you’ve wrestled, everything in life is easy.
+ - A clean, hard-fought wrestling match is the most honest of athletic contests. There is no technological interventions, no teammates to blame, no panel of judges to bias the score. In wrestling, you compete or you quit. No alibis. I like that.
+ - My valleys are higher than most people’s peaks. I stay at that level.
+ - There is no mat space for malcontents or dissenters. One must neither celebrate insanely when he wins, nor sulk when he loses. He accepts victory professionally, humbly; he hates defeat, but makes no poor display of it.
+ - Raising your level of performance requires a proper mentality and meaning from within. This gives you the ability and drive to work on the things necessary to go to a higher level. When people ask me how to raise their level of performance, the first thing I ask is, How important is it to you?
+ - There is no mat space for malcontents or dissenters.
+ - You don’t really measure the year until the whole year is done. I’m sure there are some concerned people, including the coaches right now.
+ - The 1st period is won by the best technician. The 2nd period is won by the kid in the best shape. The 3rd period is won by the kid with the biggest heart.
+ - But we’ve got to work. We can’t just live on reputations at all – by any means.
+ - A lot of my intensity in wrestling was due to my mental preparation before the matches. I got myself into a different world.
+ - There’s nothing like success.
+ - My advice to young wrestlers is that your surroundings really make a difference. You want to put yourself in good, positive surroundings.
+ - All I worried about was what Owings was doing to me, instead of what I was doing to him. When you start worrying about that stuff, you’re going down the wrong path.
+ - Right out of high school I never had the fear of getting beat, which is how most people lose.
+ - You can’t ever work too much because there’s no such thing as being in too good condition. You can’t ever lift too many weights because you can’t ever get too strong. You can’t ever wrestle too much because you can always do better.
+ - My wrestling and family go together. It’s always been that way, from day one with my mom and dad, my sister, my wife, four daughters, grandsons, son-in-laws.
+ - The obvious goals were there- State Champion, NCAA Champion, Olympic Champion. To get there I had to set an everyday goal which was to push myself to exhaustion or, in other words, to work so hard in practice that someone would have to carry me off the mat.
+ - Great wrestlers make other wrestlers great.
+ - I can take anyone down at anytime; they can’t take me down; no one can ride or turn me; I can control anyone.
+ - Many of those who have paid the ultimate price for freedom have come through the wrestling ranks. We need to honor them and win this decision to have wrestling – the world’s oldest sport – remain a part of the most prestigious athletic competition in the world, the Olympics.
+ - The easiest thing to do in the world is pull the covers up over your head and go back to sleep.
+ - My coaches were great. My mom and dad. My dad never missed a wrestling meet.
+ - Wrestling has been a way of life with me day in and day out. I won’t get too far away from it. I might walk through the wrestling room once a week. I could go every day if I wanted. But just walk through, make sure it’s still there.
+ - Wrestling is the only sport I’ve ever competed in that puts you totally in a situation of constant motion without breaks. I could play football or baseball, swim – but there’s always some kind of situation that would break my thoughts, break my concentration.
+ - Freedom across the world is a result of many individuals working together.
+ - I’ve never changed my life since I was 4 and went to the YMCA with a gym bag. I still have that philosophy. In fact, I still have that gym bag.
+ - I don’t think college wrestling is in danger of extinction by any means. But I am concerned if one program drops.
+ - Wrestlers are a little more dedicated than, and are different from, the other people, which may be strange.
+ - The bells are a very good investment. They never break if they are maintained. I can teach the kids the basics. They may play bells for only one year, but many of them go on to play at local churches.
+ - I went to college. I had a double major in biology and physical education, but my major was wrestling.
+ - I’m delighted to be back in coaching. Our goal is to put Iowa wrestling back on top, and I want to do everything I can to make it happen.
+ - I’ve been a fanatic about working out all my life.
+ - But after that, turn it into action. Don’t just dream.
+ - If you’re going to stay in the Olympics, you’ve got to be entertaining and get sponsorship.
+ - When my wrestlers got their hands raised, I jumped for joy.
+ - I never won anything by myself. I was always strong because of help that gave me extra strength to win.
+ - Greatness in the mat is achieved through training that make you push to survive.
+ - My mind’s never gone very far away from what I wanted to accomplish.
+ - We, as a wrestling community, better remember it is more than one individual that makes a winner.
+
+51 quotes

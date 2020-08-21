@@ -1,0 +1,27 @@
+ - Write the book you want to read, the one you cannot find.
+ - It’s hard work being a person, you have to do it every single day.
+ - Here’s to another year and let’s hope it’s above ground.
+ - We are too kind, too willing – too unwilling too – reaching out blindly with a grasping hand but not knowing how to ask for what we don’t even know we want.
+ - So this is where the years of maturity deliver us – to this needy, selfish, unwieldy wish to be somebody else’s first and primal other.
+ - A woman’s life isn’t worth a plateful of cabbage if she hasn’t felt life stir under her heart. Taking a little one to nurse, watching him grow to manhood, that’s what love is.
+ - Happiness is the lucky pane of glass you carry in your head. It takes all your cunning just to hang on to it, and once it’s smashed you have to move into a different sort of life.
+ - Bookish people, who are often maladroit people, persist in thinking they can master any subtlety so long as it’s been shaped into acceptable expository prose.
+ - Open a book this minute and start reading. Don’t move until you’ve reached page fifty. Until you’ve buried your thoughts in print. Cover yourself with words. Wash yourself away. Dissolve.
+ - This is why I read novels: so I can escape my own unrelenting monologue.
+ - Words are our life. We are human because we use language. So I think we are less human when we use less language.
+ - It occurs to her that she should record this flash of insight in her journal – otherwise she is sure to forget, for she is someone who is always learning and forgetting and obliged to learn again...
+ - The scolding voice is her own, so abrasive and quick, yet so powerless to move her.
+ - He dares not concern himself with the future for fear of disturbing the present.
+ - Eventually, everything gets stuck between a pair of parentheses or buried in the bottom of a trunk.
+ - Why should men be allowed to strut under the privilege of their life adventures, wearing them like a breast full of medals, while women went all gray and silent beneath the weight of theirs?
+ - Our friendship is made up of these brief frenzied exchanges, but the quality of our conversation, for all its feverish outpouring, is genuine.
+ - I couldn’t have been a novelist without being a mother. It gives you a unique witness point of the growth of a personality. It was a kind of biological component for me that had to come first. My children gave this other window on the world.
+ - I’m concerned about the unknowability of other people.
+ - There are chapters in every life which are seldom read and certainly not aloud.
+ - The silence is perfect, and yet a torment...
+ - The larger loneliness of our lives evolves from our unwillingness to spend ourselves, stir ourselves. We are always damping down our inner weather, permitting ourselves the comforts of postponement, of rehearsals.
+ - In a long and healthy life, which is what most of us have, there is plenty of time.
+ - A childhood is what anyone wants to remember of it. It leaves behind no fossils, except perhaps in fiction.
+ - I don’t think I would have been a writer if I hadn’t been a mother. I wanted to construct something that contained some of these feelings that I had, some of these discoveries or revelations.
+
+25 quotes

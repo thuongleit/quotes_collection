@@ -1,0 +1,54 @@
+ - Most people give up just when they’re about to achieve success. They quit on the one yard line. They give up at the last minute of the game one foot from a winning touchdown.
+ - My role in life is that of the grain of sand to the oyster-it irritates the oyster and out comes a pearl.
+ - The debt is like a crazy aunt we keep down in the basement. All the neighbors know she’s there, but nobody wants to talk about her.
+ - Life is never more fun than when you’re the underdog competing against the giants.
+ - The activist is not the man who says the river is dirty. The activist is the man who cleans up the river.
+ - Spend a lot of time talking to customers face to face. You’d be amazed how many companies don’t listen to their customers.
+ - Failures are like skinned knees, painful but superficial.
+ - When building a team, I always search first for people who love to win. If I can’t find any of those, I look for people who hate to lose.
+ - Something in human nature causes us to start slacking off at our moment of greatest accomplishment. As you become successful, you will need a great deal of self-discipline not to lose your sense of balance, humility and commitment.
+ - One voice is tiny, and alone it cannot be heard above the din of politics as usual. The peoples voice, when it cries as one, is a great roar.
+ - Don’t run your life by what’s legal or illegal. Run your life based on what’s right or wrong...
+ - A weak currency is the sign of a weak economy, and a weak economy leads to a weak nation.
+ - War has rules, mud wrestling has rules – politics has no rules.
+ - Written reports stifle creativity.
+ - This planet is our home. If we destroy the planet, we’ve destroyed our home, so it is fundamentally important.
+ - We have to succeed, so we will.
+ - So many people spend their lives chasing money and end up as the richest men in the cemetery. I don’t want to be like that.
+ - If you see a snake, just kill it – don’t appoint a committee on snakes.
+ - Revitalizing General Motors is like teaching an elephant to tap dance. You find the sensitive spot and start poking.
+ - The first EDSer to see a snake kills it. At GM, first thing you do is organize a committee on snakes. Then you bring in a consultant who knows a lot about snakes. Third thing you do is talk about it for a year.
+ - Inventories can be managed, but people must be led.
+ - The budget should be balanced, the treasury should be refilled, the public debt should be reduced and the arrogance of public officials should be controlled.
+ - It is the individual’s ability to deal with the unexpected that characterizes the difference between success and failure.
+ - Business is not just doing deals; business is having great products, doing great engineering, and providing tremendous service to customers. Finally, business is a cobweb of human relationships.
+ - You don’t have to be the biggest to beat the biggest.
+ - Anything that is excellent or praiseworthy stands moment by moment on the cutting edge and must be constantly fought for. Well placed priorities always sit on the edge.
+ - Talk is cheap. Words are plentiful. Deeds are precious.
+ - Life is like a cobweb, not an organization chart.
+ - Success is like Halley’s comet, you know. Every now and then it just comes around.
+ - The American dream. Those three short, simple words encompass the hopes and aspirations of all the peoples on earth. The words are not only short and simple. They are also fragile.
+ - I came from an environment where if you see a snake, you kill it. At General motors, if you see a snake, the first thing you do is to hire a consultant on snakes.
+ - In plain Texas talk, it’s ‘do the right thing’
+ - Punishing honest mistakes stifles creativity. I want people moving and shaking the earth and they’re going to make mistakes.
+ - If you can’t stand a little sacrifice and you can’t stand a trip across the desert with limited water, we’re never going to straighten this country out.
+ - If someone as blessed as I am is not willing to clean out the barn, who will?
+ - Action is greater than writing. A good man is a nobler object of contemplation than a great author. There are but two things worth living for: to do what is worthy of being written; and to write what is worthy of being read.
+ - If we really want to know who is responsible for the mess we’re in, all we have to do is look in the mirror. You and I own this country, and we are responsible for what happens to it.
+ - Generosity is something we learn, from our parents, schools and community.
+ - In business, people are held accountable. In Washington, nobody is held accountable. In business, people are judged on results. In Washington, people are measured by their ability to get reelected.
+ - Big is not beautiful. Big is inefficient.
+ - I honestly believe I’d make one of the worst elected officials in the history of this country.
+ - There is no accountability in the public school system – except for coaches. You know what happens to a losing coach. You fire him. A losing teacher can go on losing for 30 years and then go to glory.
+ - It takes five years to design a new car in this country. Heck, we won World War II in four years.
+ - Anybody can cut prices, but it takes brains to produce a better article.
+ - The most successful people in the world aren’t usually the brightest. They are the ones who persevere.
+ - Modern politics has become little more than shirking responsibility and blaming somebody else.
+ - Which one of the three candidates would you want your daughter to marry?
+ - The best way to make money is not to have money as your primary goal. I’ve seen great people come into the business world primarily motivated to make money. Almost without exception they failed.
+ - Most people give up just when they’re about to achieve success.
+ - I love this country, I love the principles on which it’s founded.
+ - If we decide to take this level of business creating ability nationwide, we’ll all be plucking chickens for a living.
+ - Most new jobs won’t come from our biggest employers. They will come from our smallest. We’ve got to do everything we can to make entrepreneurial dreams a reality.
+
+52 quotes

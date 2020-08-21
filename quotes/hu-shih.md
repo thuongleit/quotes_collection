@@ -1,0 +1,28 @@
+ - India Conquered and dominated China culturally for 20 centuries without ever having to send a single soldier across her border.
+ - Confucius was a humanist and an agnostic.
+ - The underlying sickness of human life is an unwillingness to look with open eyes at the condition of the world.
+ - In such diffused changes of culture two factors are necessary: contact and understanding.
+ - Even the absolute universality of the law of causality does not necessarily limit a person’s freedom, because the law of causality not only enables him to explain the past and predict the future, but also encourages him to use his intelligence to create new causes and attain new results.
+ - On the basis of biological, sociological, and historical knowledge, we should recognize that the individual self is subject to death or decay, but the sum total of individual achievement, for better or worse, lives on in the immortality of The Larger.
+ - Another important historical factor is the fact that this already very simple religion was further simplified and purified by the early philosophers of ancient China. Our first great philosopher was a founder of naturalism; and our second great philosopher was an agnostic.
+ - On July 26, 1916, I announced to all my friends in America that from now on I resolved to write no more poems in the classical language, and to begin my experiments in writing poetry in the so-called vulgar tongue of the people.
+ - The knowledge that mankind needs is not the way or principle which has an absolute existence, but the particular truths for here and now and for particular individuals. Absolute truth is imaginary, abstract, vague, without evidence, and cannot be demonstrated.
+ - Only when we realize that there is no eternal, unchanging truth or absolute truth can we arouse in ourselves a sense of intellectual responsibility.
+ - It is only through contact and comparison that the relative value or worthlessness of the various cultural elements can be clearly and critically seen and understood.
+ - Life and human society are the chief concern of Confucianism and, through it, the chief concern of the Chinese people.
+ - And lastly, the political revolutions from 1911 to the present time have done more to bring about tremendous social changes everywhere than even the economic and industrial changes and the new schools.
+ - Within my own life, I read all the beloved novels by lamps of vegetable oil; I saw the Standard Oil invading my own village, I saw gas lamps in the Chinese shops in Shanghai; and I saw their elimination by electric lights.
+ - Practically all the prominent leaders of thought in China today are openly agnostics and even atheists.
+ - The Chinese people, too, went through all kinds of vicissitudes in their religious development.
+ - No student of Chinese history can say that the Chinese are incapable of religious experience, even when judged by the standards of medieval Europe or pious India.
+ - In the year 1915 a series of trivial incidents led some Chinese students in Cornell University to take up the question of reforming the Chinese language.
+ - Historically, there had been many periods of Chinese Renaissance.
+ - The Jesuits had learned that a Christian mission to China could never succeed if it were not in a position to show and convince the Chinese intelligentsia of the superiority of the European culture.
+ - What is sacred among one people may be ridiculous in another; and what is despised or rejected by one cultural group, may in a different environment become the cornerstone for a great edifice of strange grandeur and beauty.
+ - For all the social changes in China can be traced to their early beginnings in the days when the new tools or vehicles of commerce and locomotion first brought the Chinese people into unavoidable contact with the strange ways and novel goods of the Western peoples.
+ - The rise of the dramas in the thirteenth century, and the rise of the great novels in a later period, together with their frank glorification of love and the joys of life, may be called the Third Renaissance.
+ - It is true that the Chinese are not so religious as the Hindus, or even as the Japanese; and they are certainly not so religious as the Christian missionaries desire them to be.
+ - And revolutions always mean the breakdown of old authority.
+ - But I wish to point out that it is entirely wrong to say that the Chinese are not religious.
+
+26 quotes

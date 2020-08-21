@@ -1,0 +1,63 @@
+ - I would love to go to Paris. I have to go to Paris. I would love to go there, that’s like my dream.
+ - If people say “no” to you and it’s something you really want to do, keep going and you’ll succeed.
+ - I want to write and direct a movie one day.
+ - I bite my nails so bad. They’re awful! My nails are so ugly. I need to stop biting them.
+ - I love fashion! I love clothes!
+ - Dakota Fanning is my favorite actress.
+ - If I asked you, “Do you think you’re beautiful?” everyone should say yes.
+ - One boy made fun of me because one day, I had really curly hair, and I wear glasses normally, and I also bite my nails. I feel like everyone is different in their own way, so, people shouldn’t try to make them feel bad because of that.
+ - I can’t really remember my life without movies.
+ - I’m a big fish eater. Salmon – I love salmon. My sister loves Chinese food and sushi and all that. I’m not as big of a fan, but she likes it so we eat it a lot. So I’m beginning to like it more. I don’t like the raw sushi. I liked the cooked crab and lobster and everything.
+ - I don’t wear any make-up on normal days and at school. But, if I’m going somewhere, I always do something with my eyes – crazy colors, sparkles. I’m all for it. I love experimenting.
+ - I love all vintage-everything, really. I love fashion. I’ve always loved it. And the fifties, I’ve always loved.
+ - I’ll always have acting. But then if I had to choose something else it’d probably be singing or dancing – if I had to. Or maybe, like, designer, like sketching designs.
+ - I was 12 when I did ‘Super 8,’ and when Dakota was 12, she did ‘War of the Worlds.’ Steven Spielberg was involved with both movies, so we both worked with Steven when we were 12.
+ - The hardest thing that I’ll ever do, is ballet. Because you are either good or bad.
+ - I have a sliding glass door on my closet, and when I slide it one way I can see all my uniforms, and the other way is all my own clothes.
+ - I get a lot of butterflies at auditions because I get so scared. It’s scary because you’ve never met the people before. You have to meet them, and you have to hurry up and get to know them in five seconds. And then, you have to spill your emotions out to these strangers. It’s funny.
+ - For a long time, I refused to wear jeans. I liked high-waisted pants, but jeans made me feel like I wasn’t being unique. Even now, I won’t wear the skinny-jeans style, because most people wear those – they have to be baggier, boyfriend-looking, or sort of like a mom jean. I’m real funny that way.
+ - I like mixing things. I wear a lot of boots. Love boots. And then jeans, but I like to wear them with a really ruffly top. Or I love high-waisted anything.
+ - I feel like with every character, you try to put yourself in that person’s position and just completely use your imagination. That’s what I do, at least. Everything is just pretend.
+ - I would love to work with Marion Cotillard and my sister! I’ve never worked with Dakota before in a movie. It’d be so cool to be on screen interacting with each other one day. It will happen, I’m just not sure when.
+ - There is also an awakening to beauty, because when you’re really young you don’t have that concept or opinion in place, so you make your own discoveries. It’s different now with technology, and the constant bombardment of images.
+ - It’s fun because you can escape and learn about what other people’s minds have created. It inspires you to think maybe you could come up with a creature yourself. I like that.
+ - Everyone in my grade is turning 13, so there are bunches of bar and bat mitzvahs. They’re very dressy. It’s fun picking out outfits. One girl, for her bat mitzvah, wore a huge red ball gown!
+ - I was 13 and a teenager, as well. When you’re that age, you want to be an adult, in a way, but you don’t want to have the responsibilities of an adult. You still want to have the freedom.
+ - I sort of make believe. That’s why I like acting. You can create or imagine anything.
+ - You have to have a balance between your normal life and movies.
+ - I’d much rather dress like a 5 year old than a 21 year old. I’d much rather wear a puffy sleeved shirt than some low-cut top.
+ - As my sister got older, I saw how excited she got when she got to do all of that stuff. I was always like, “One day, I’ll get to do older parts.” I thought that was cool.
+ - But it’s cool working with female directors because I’m a girl, so you do relate to them more. You can talk to them about other stuff like clothes and all that.
+ - In a funny way, I like the past, I’m a very nostalgic person.
+ - I used to play sports in school, but it was hard to do that because you’re part of a team and you don’t want to let your team down.
+ - I’m a normal kid, really. I just love to act.
+ - I would love to work with my sister in a movie one day – like play sisters or something like that, because we’ve never been on-screen at the same time together.
+ - I don’t think you should try to be anything you’re not. If you’re not smiling all the time or always happy – I don’t think it matters. If you’re having bad day, show you’re having a bad day. Don’t try to put up something that’s fake.
+ - I do after-school ballet and also hip-hop and jazz.
+ - I always try to do something very different with each character because that’s why I like to do this, because I can become someone else completely and it’s fun.
+ - What’s the best part of a movie? I love to know what my name is. It’s just so fun. That’s the first thing I ask. It’s just fun because you have a different name in every movie.
+ - I think as an artist that’s the best thing you can have – a personal stamp on something.
+ - To be an actor or actress, you have to feel on a deep level and tap into emotions that you’ve never felt before. You’re imagining how something would feel. You have to use your imagination so much.
+ - I love fashion! I love clothes! I really like vintage clothes, so in my closet there’s a lot of ’50s stuff. I go to the stores and shop around.
+ - I was always a fan of Nic. With his movie, you know it’s “A Nic Refn Movie.”
+ - I remember going to the wardrobe-fitting for the first time and seeing all the cool high-waisted jeans and halter-tops – and that style is coming back anyway – so I loved that!
+ - In a funny way, acting, to me, is all make-believe, even if the film has unicorns in it or is a normal movie that can be set in real-life time. I’m still imagining that I’m a different character, so it’s all, in a funny way, like fantasy.
+ - We take art, and I love all that. But I also like science for some reason. I just like finding out why things happen.
+ - We’re constantly taking pictures of ourselves. It’s a bit scary, because images are essentially dead, so we judge beauty on something that isn’t alive.
+ - I like Jodie Foster and then Meryl Streep. They’re just, like, the greatest ever.
+ - I’m pretty good with not being afraid to just go up to people and introduce myself.
+ - I get very emotional about time periods I never lived in, but I have a weird connection to them. The mystery of it becomes about hearing the stories of those eras, and creating nostalgia from those stories.
+ - When I go home, I play with my baby dolls and strollers and stuffed animals, pretend like they’re real dogs.
+ - I mean, it’s amazing that I get to meet all these people. I’ve learned so much from all of them. I just worked with Sofia Coppola and that was amazing. I learned so much from her. I can’t even describe how much fun I had.
+ - I go to ballet five days a week. I would love to go to a fashion show one day, because I never have.
+ - I like necklaces that are short, the way skateboarders used to wear them in the seventies.
+ - I remember the first time Dakota asked me for fashion advice about what to put with what. I was like, My big sister is asking me?
+ - Some people do piano lessons after school; I do movies.
+ - I love the ’70s, I’m very into that right now. The long Chloe dresses, very Virgin Suicides.
+ - I would like to continue acting. But also – if this is a dream world where everything could become true – I’d want to be a ballerina.
+ - I wore the Marc Jacobs dress, so I love Marc Jacobs. He has a vintage flair. But I’ve always worn a lot of vintage stuff, so it hasn’t been a lot of designers. If I see something that I like, I just buy it.
+ - I like playing characters with as many emotions as possible. I’d love to play a really crazy person – someone truly out of her mind.
+ - I would love to do a musical!
+ - It’s cool because, as you get older, you get offered older parts. You’re older, so you can’t play 10 anymore. That was always very exciting for me.
+
+61 quotes

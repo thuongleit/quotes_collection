@@ -1,0 +1,42 @@
+ - You can close your eyes to the things you don’t want to see, but you can’t close your heart to the things you don’t want to feel. ~~Johnny Depp
+ - The rain will stop, the night will end, the hurt will fade. Hope is never so lost that it can’t be found. ~~Ernest Hemingway
+ - No man is rich enough to buy back his past. ~~Oscar Wilde
+ - Sorrows are our best educator. A man can see further through a tear than a telescope. ~~Bruce Lee
+ - The wound is the place where the Light enters you. ~~Rumi
+ - Don’t be reckless with other peoples hearts. And don’t put up with people that are reckless with yours. ~~Kurt Vonnegut
+ - Don’t fix what’s not broken. ~~Robert Atkins
+ - Don’t worry about losing. If it is right, it happens – The main thing is not to hurry. Nothing good gets away. ~~John Steinbeck
+ - To offer a man friendship when love is in his heart is like giving a loaf of bread to one who is dying of thirst. ~~Frank Frankfort Moore
+ - I belong deeply to myself. ~~Warsan Shire
+ - There is a road from the eye to heart that does not go through the intellect. ~~Gilbert K. Chesterton
+ - I’m really a very happy, contented little person in spite of my broken heart. ~~L.M. Montgomery
+ - Yes, I will go. I would rather grieve over your absence than over you. ~~Antonio Porchia
+ - Chains of habit are too light to be felt until they are too heavy to be broken. ~~Warren Buffett
+ - The harder they hit, the more encouraged I get. ~~Hillary Clinton
+ - The act of forgiveness is the act of returning to present time. And that’s why when one has become a forgiving person, and has managed to let go of the past, what they’ve really done is they’ve shifted their relationship with time. ~~Caroline Myss
+ - Maybe there’s a god above but the only thing I learned from love was how to shoot at somebody who outdrew you. ~~Leonard Cohen
+ - Forgiveness is the fragrance that the violet sheds on the heel that has crushed it. ~~Mark Twain
+ - Be still my heart; thou hast known worse than this. ~~Homer
+ - There are many ways of breaking a heart. Stories were full of hearts broken by love, but what really broke a heart was taking away its dream – whatever that dream might be. ~~Pearl S. Buck
+ - Love is the hardest habit to break, and the most difficult to satisfy. ~~Drew Barrymore
+ - It is the end of happiness and the beginning of peace. ~~George Bernard Shaw
+ - Throughout my lifetime I’ve left pieces of my heart here and there. And now, there’s almost barely enough to stay alive. But I force a smile, knowing that my ambition far exceeded my talent. ~~Johnny Depp
+ - Some say love, it is a razor that leaves your soul to bleed. ~~Bette Midler
+ - The heart will break, but broken live on. ~~Lord Byron
+ - You left ground and sky weeping, mind and soul full of grief. No one can take your place in existence or in absence. ~~Rumi
+ - It’s the ones who resist that we most want to kiss, wouldn’t you say? ~~George Michael
+ - The first magic of love is our ignorance that it can ever end. ~~Benjamin Disraeli
+ - When you are sorrowful look again in your heart, and you shall see that in truth you are weeping for that which has been your delight. ~~Khalil Gibran
+ - The human heart has hidden treasures, In secret kept, in silence sealed; The thoughts, the hopes, the dreams, the pleasures, Whose charms were broken if revealed. ~~Charlotte Brontë
+ - Promises and pie-crust are made to be broken. ~~Jonathan Swift
+ - It isn’t enough for your heart to break because everybody’s heart is broken now. ~~Allen Ginsberg
+ - Mishaps are like knives, that either serve us or cut us, as we grasp them by the blade or the handle. ~~James Russell Lowell
+ - If you love something set it free, but don’t be surprised if it comes back with herpes. ~~Chuck Palahniuk
+ - How can I be reasonable? To me our love was everything and you were my whole life. It is not very pleasant to realize that to you it was only an episode. ~~W. Somerset Maugham
+ - Love does not begin and end the way we seem to think it does. Love is a battle, love is a war; love is a growing up. ~~James Baldwin
+ - Though lovers be lost love shall not. ~~Dylan Thomas
+ - Love is something that hangs up behind the bathroom door and smells of Lysol. ~~Ernest Hemingway
+ - Moshing and broken glass just don’t go together. ~~Billie Joe Armstrong
+ - The sweeter the apple, the blacker the core. Scratch a lover and find a foe! ~~Dorothy Parker
+
+40 quotes

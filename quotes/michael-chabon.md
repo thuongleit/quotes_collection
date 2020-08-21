@@ -1,0 +1,104 @@
+ - With patience and calm, persistence and stoicism, good handwriting and careful labeling, they would meet persecution, indignity, and hardship head-on.
+ - Childhood is a branch of cartography.
+ - Do what you gotta do and stay fly.
+ - It was nice standing out in the darkness, in the damp grass, with spring coming on and a feeling in my heart of imminent disaster.
+ - The fundamental truth: a baseball game is nothing but a great slow contraption for getting you to pay attention to the cadence of a summer day.
+ - My Saturday Night. My Saturday night is like a microwave burrito. Very tough to ruin something that starts out so bad to begin with.
+ - A father is a man who fails every day.
+ - Some things that are invisible and untouchable can nevertheless be seen and felt.
+ - You need three things to become a successful novelist: talent, luck and discipline. Discipline is the one element of those three things that you can control, and so that is the one that you have to focus on controlling, and you just have to hope and trust in the other two.
+ - A true storyteller is really good at writing himself into a corner and then finding a way out of that corner.
+ - Novelist time is reptile time; novelists tend to be ruminant and brooding, nursers of ancient grievances, second-guessers, Tuesday afternoon quarterbacks, retrospectators, endlessly, like slumping hitters, studying the film of their old whiffs.
+ - Drunk, Jane spoke as though she were Nancy Drew. I was a fool for a girl with a dainty lexicon.
+ - In the immemorial style of young men under pressure, they decided to lie down for a while and waste time.
+ - Take care-there is no force more powerful than that of an unbridled imagination.
+ - I have a good memory for words, and when I come upon a word I don’t know, I remember it, or try to – it’s almost like a tic.
+ - I was thinking, too, of Superman and his fortress of solitude.
+ - He had no idea of how long his life would one day seem to have gone on; how daily present the absence of love would come to feel. “Just watch me,” he said.
+ - Art is a form of exploration, of sailing off into the unknown alone, heading for those unmarked places on the map. If children are not permitted-not taught-to be adventurers and explorers as children, what will become of the world of adventure, of stories, of literature itself?
+ - Undressing her was an act of recklessness, a kind of vandalism, like releasing a zoo full of animals, or blowing up a dam.
+ - Every golden age is as much a matter of disregard as of felicity.
+ - Every generation loses the Messiah it has failed to deserve.
+ - There’s nothing more embarrassing than to have earned the disfavor of a perceptive animal.
+ - The First Amendment has the same role in my life as a citizen and a writer as the sun has in our ecosystem.
+ - Poor little librarians of the world, those girls, secretly lovely, their looks marred forever by the cruelty of a pair of big dark eyeglasses!
+ - Forget about what you are escaping from. Reserve your anxiety for what you are escaping to.
+ - I took comfort, as a kid, in knowing that things had always been as awful and as wonderful as they were now, that the world was always on the edge of total destruction.
+ - Bina rolls her eyes, hands on her hips, glances at the door. Then she comes over and drops her bag and plops down beside him. How many times, he wonders, can she have enough of him, already, and still have not quite enough?
+ - Childhood, at its best, is a perpetual adventure, in the truest sense of that overtaxed word: a setting forth into trackless lands that might have come to existence the instant before you first laid eyes on them.
+ - Mr. Feld was right; life was like baseball, filled with loss and error, with bad hops and wild pitches, a game in which even champions lost almost as often as they won, and even the best hitters were put out seventy percent of the time.
+ - The true magic of this broken world lay in the ability of the things it contained to vanish, to become so thoroughly lost, that they might never have existed in the first place.
+ - My heart was simultaneously broken and filled with lust, I was exhausted, and I loved every minute of it. It was strange and elating to find myself for once the weaker.
+ - I’d spent my whole life waiting to awake on an ordinary morning in the town that was destined to be my home, in the arms of the woman I was destined to love, knowing the people and doing the work that would make up the changing but essentially invariable landscape of my particular destiny.
+ - Rueful, bittersweet, funny, written with tenderness and bite, Merrill Feitell’s stories, like so many classic short stories, are made from the plain and painful stuff of this world, and haunted by the possibility, and the impossibility, of a better one.
+ - The devolution of American culture takes another great step forward.
+ - Every Messiah fails, the moment he tries to redeem himself.
+ - Only love could pick a nested pair of steel Bramah locks.
+ - The whole house seemed to exhale a melancholy breath of emptiness.
+ - That evening I rode downtown on an unaccountably empty bus, sitting in the last row. At the front I saw a thin cloud of smoke rising around the driver’s head. ‘Hey, bus driver,’ I said. ‘Can I smoke?’ ‘May I,’ said the bus driver. ‘I love you,’ I said.
+ - He looked so profoundly disappointed in me that I wondered for a moment if he was someone I knew.
+ - Entertainment is a sacred pursuit when done well. When done well, it raises the quality of human life.
+ - All novels are sequels; influence is bliss.
+ - Dr. Roboy, in Litvak’s measured view, had a vice common to believers: He was all strategy and no tactics. He was prone to move for the sake of moving, too focused on the goal to bother with the intervening sequence.
+ - I can imagine anything except having no imagination.
+ - Jerome Charyn is one of the most important writers in American literature and one of only three now writing whose work makes me truly happy to be a reader.
+ - The world like our heads was meant to be escaped from, they are prisons world and head alike.
+ - A delicate, inexorable lattice of inferences began to assemble themselves, like a crystal, in the old man’s mind, shivering, catching the light in glints and surmises.
+ - It struck me that the chief obstacle to marital contentment was this perpetual gulf between the well-founded, commendable pessimism of women and the sheer dumb animal optimism of men, the latter a force more than any other responsible for the lamentable state of the world.
+ - While writing, I’ll go anywhere I find that is quiet, has no internet. I have a big internet problem.
+ - We have the idea that our hearts, once broken, scar over with an indestructible tissue that prevents their ever breaking again in quite the same place...
+ - I don’t do a lot of foisting, because when it comes to books I don’t really like to be foisted upon.
+ - That’s why school was invented – to give your parents some peace and quiet during the day.
+ - His dreams had always been Houdiniesque: they were the dreams of a pupa struggling in its blind cocoon, mad for a taste of light and air.
+ - The handy thing about being a father is that the historic standard is so pitifully low.
+ - For me, nostalgia is an involuntary emotion. I think it’s just a natural human response to loss.
+ - It’s always been hard for me to tell the difference between denial and what used to be known as hope.
+ - Anything good that I have written has, at some point during its composition, left me feeling uneasy and afraid. It has seemed, for a moment at least, to put me at risk.
+ - It is always so simple, and so complicating, to accept an apology.
+ - When I finish a first draft, it’s always just as much of a mess as it’s always been. I still make the same mistakes every time.
+ - All the preparation in the world doesn’t avail you if you can’t make that imaginative leap and put yourself in the position of the characters you’ve created, to imagine what it’s like to be somebody else.
+ - Fathering imposed an obligation that was more than your money, your body, or your time, a presence neither physical nor measurable by clocks: open-ended, eternal, and invisible, like the commitment of gravity to the stars.
+ - I don’t mean to make a big deal out of sobriety, by the way. Of all the modes of human consciousness available to the modern consumer I consider it to be the most overrated.
+ - I thought, I fanced, that in a moment, I would be standing on nothing at all, and for the first time in my life, I needed the wings none of us has.
+ - It took Marvel Comics years to begin to put together any worthwhile superheroines. The first crop was, to a gal, embarrassingly disappointing. They had all the measly powers that fifties and sixties male chauvinism could contrive to bestow on a superwoman.
+ - He is by nature a vegetarian but would never consider giving up meat.
+ - I said, “I need to hear something that’s going to save my life.” Re: Selecting songs from a jukebox.
+ - Not only would I never want to belong to any club that would have me for a member – if elected I would wear street shoes onto the squash court and set fire to the ballroom curtains.
+ - I found one remaining box of comics which I had saved. When I opened it up and that smell came pouring out, that old paper smell, I was struck by a rush of memories, a sense of my childhood self that seemed to be contained in there.
+ - That’s the best thing about writing, when you’re in that zone, you’re porous, ready to absorb the solution.
+ - So it was scary, but that’s how it goes. To my great delight, I discovered that it did all belong.
+ - I knew that I shouldn’t have, but I did it all the same; and there you have my epitaph, or one of them, because my grave is going to require a monument inscribed on all four sides with rueful mottoes, in small characters, set close together.
+ - The rest of Sitka’s homicides are so-called crimes of passion, which is a shorthand way of expressing the mathematical product of alcohol and firearms.
+ - As long as she was falling in love with me, I might as well start making her promises I didn’t intend to keep.
+ - I’m a man who falls in love so easily, and with such reckless lack of consideration for the consequences of my actions, that from the very first instant of entering into a marriage I become, almost by definition, an adulterer.
+ - I love Richard Yates, his work, and the novel, Revolutionary Road. It’s a devastating novel.
+ - But the first lie in the series is the one you make with the greatest trepidation and the heaviest heart.
+ - He was a fugitive, lurking soul, James Leer. He didn’t belong anywhere, but things went much better for him in places where nobody belonged.
+ - A story begins with this nebulous feeling that’s hard to get a hold of and you’re testing your feelings and assumptions, testing what you believe. They end up turning into keepsakes and mementos –like amber in which a memory gets trapped.
+ - A hope fulfilled is already half a disappointment.
+ - And then the man reminded Max, with a serious but suave and practiced air, that freedom was a debt that could be repaid only by purchasing the freedom of others.
+ - She was a natural blonde, with delicate hands and feet, and in her youthful photographs one saw a girl with mocking eyes and a tragic smile, the course of whose life would conspire in time to transpose that pair of adjectives.
+ - There were so many Pittsburgh poets in my hallway that if, at that instant, a meteorite had come smashing through my roof, there would never have been another stanza written about rusting fathers and impotent steelworkers and the Bessemer convertor of love.
+ - The instructor, Ms. Pease, also taught in the church’s religious school, and she had a Sunday school manner at once saccharine and condemnatory.
+ - There was something unmistakably exultant about the mess that Rosa had made. Her bedroom-studio was at once the canvas, journal, museum, and midden of her life. She did not “decorate” it; she infused it.
+ - I wanted to give readers the feeling of knowing the characters, a mental image.
+ - I saw a lot of lousy movies and watched a ton of crappy television and read a bunch of utterly forgettable books and comics and listened to hours of junk music as a kid. And I’m still drawing profitably in my own art on some of the tawdry treasure I stored up in those years.
+ - I have a deadline. I’m glad. I think that will help me get it done.
+ - People keep saying, ‘Oh, you’re getting all these great reviews, that must make you really happy.’ I guess it does, but mostly it’s just a relief.
+ - All male friendships are essentially quixotic: they last only so long as each man is willing to polish the shaving-bowl helmet, climb on his donkey, and ride off after the other in pursuit of illusive glory and questionable adventure.
+ - The truth of some promises is not as important as whether or not you can believe in them, with all your heart.
+ - I’m never going to be a Tom Clancy. And I wouldn’t really want to be – not that I have anything against him, and I wish him continued success – because that’s not why I’m writing novels. I’m doing it because I have to. I feel like I have to, anyway.
+ - No; he could be ruined again and again by hope, but he would never be capable of belief.
+ - They lay there for a few seconds, in the dark, in the future, listening to the fabulous clockwork of their hearts and lungs, and loving each other.
+ - He comes to this other world and he has to reinvent himself. Again, it felt natural, even though I’d been working really hard trying to come up with something.
+ - Nothing is boring exept to people who aren’t really paying attention.
+ - I was surprised that my wife thought it was a good idea, then again with my agent, another woman, then my editor, another woman – in spite of the fact that all three of them reacted positively I still have this fear.
+ - What’s going to be hard for me is to try to divorce myself as much as possible from what I wrote. I’ll have to approach it simply as raw material and try to craft a film script out of it.
+ - Most science fiction seemed to be written for people who already liked science fiction; I wanted to write stories for anyone, anywhere, living at any time in the history of the world.
+ - Miracles prove nothing except to those whose faith is bought very cheap, sir.
+ - He took a step toward her, than another, tentatively, gathering all his strength, as though about to throw a heavy switch that would, if his calculations were correct, bring light to a hundred cities and ten thousand darkened rooms. He was going to ask her to dance – that was all.
+ - Every time another review comes out I let out a deep breath.
+ - The things I keep going back to, rereading, maybe they say more about me as a reader than about the books. Love in the Time of Cholera, Pale Fire.
+ - Louis Pasteur said, ‘Chance favors the prepared mind.’ If you’re really engaged in the writing, you’ll work yourself out of whatever jam you find yourself in.
+
+102 quotes

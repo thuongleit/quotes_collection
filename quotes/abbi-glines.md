@@ -1,0 +1,170 @@
+ - I love you. I love you so damn much it consumes me. I don’t deserve you, but I’m gonna become the man who does deserve you. I promise you. I’ll make you proud of me.
+ - I love you. I’ll never leave you and I swear to you sweetheart that you will never be alone.
+ - You only deserve what you make yourself worthy of.
+ - When you find your reason for living, hold onto it. Never let it go. Even if it means burning other bridges along the way.
+ - I don’t want to lose you. I’m in love with you Blaire. I’ve never wanted anything or anyone the way I want you. I can’t imagine my world now without you in it.
+ - I know I’m doing something wrong and I feel guilty but neither of those things matter enough to make me stop.
+ - When I’m with you, my world is complete. When I touch you, I understand the meaning of life. When I lost you, I completely shattered. You. Own. Me.
+ - No excuses; those were just weak.
+ - I know this because I understand now what love really feels like. The kind that consumes you. Love holds the power to break you. It holds the power to complete you.
+ - Are you sure it wasn’t my sexy-as-hell voice whispering in your ear that caused your momentary lack of oxygen?
+ - The love she left behind will be the reason dreams are reached. She was the rock in a world that was crumbling. Her strength will remain. It’s in our hearts.
+ - I’m not losing you again. You’re with me. I want you there beside me. Always.
+ - I don’t just love her, she owns me. Completely. I’d do anything for her.
+ - Talk. We are going to talk first. I want to see you smile and laugh. I want to know what your favorite show was when you were a kid and who made you cry at school and what boy band you hung posters of on your wall. Then I want you naked in my bed again.
+ - Don’t give up. You’ll regret it.
+ - If you were mine, I would never let you go.
+ - You’re my present and my future Sadie, I will use whatever power I have to make you happy.
+ - This sweet, determined, sexy-as-hell blonde walked into my life and gave me a reason to live.
+ - She started walking toward me and perfect white teeth caught her full bottom lip between them. I’d fantasized about those lips way too many times. She’d barely covered up her long tanned legs with a pair of shorts that made me want to go to church this Sunday just to thank God for creating her.
+ - You are mine. Do you hear me? You are mine, Della Sloane. I will take care of you. Nothing is taking you away from me. Nothing.
+ - I’m not going to hurt her. I know she’s special and I tried to stay away, but when I’m with I don’t feel so cold and alone.
+ - Write every day. Writing is a muscle that gets stronger with use.
+ - Unconditional love is hard to compete with.
+ - You’re mine, Pagan Moore. You will always be mine.
+ - Luckily, I’s learned at an early age that self-preservation was the only way to survive with your soul intact.
+ - I don’t want to beg or promise you things I can’t give you. There isn’t much of me to give, but what I have is yours. This is all up to you, Sadie. If you want me, I’m yours. If you can’t do this, then I’ll walk away and leave you alone. I swear.
+ - No man has ever loved a woman as much as I love you. Nothing will ever come before you. I don’t know what else I have to do to prove to you that I won’t let you down again. I won’t hurt you. You don’t have to be alone anymore. I need you.
+ - Hold her for me. Hold her tight. Don’t let her be lonely. Don’t let her hurt. Please.
+ - Don’t be sorry. Just try not to let him touch you. When he touches you I see red. I can’t take it. I don’t want to see him or anyone else touch you.
+ - I am in awe of the things you’ve been put through and the fact you can still light up a room when you walk in. When I look at you I see life. I see joy. I see my future.
+ - I don’t want you to just be my tutor. I want you to be the girl I look for in the halls every morning and save a seat for in the cafeteria. I want you to be the one waiting for me when I walk off the field at my games. I want you to be the one I pick up the phone to call just to make me smile.
+ - Would you tell Dank that I will alway love him? That I’m sorry that I can’t leave here. I’m protecting those I love. But I will think of him every day and I will hum his song to myself every night as I go to sleep.
+ - I can’t do this Ash. It’s killing me. Having you this close and not touching you is driving me insane. You’re his Ash. You’re his. You made your choice and I understand why you chose him. I don’t hold it against you but dammit Ash it hurts.
+ - Maybe not this year or the next but one day they’d end up married. In this lifetime and every one after it. Just knowing that I’d get to watch them find each other and fall in love in every life made me smile.
+ - You’re it for me, baby. Just you. You’re not going to be your mother. You’re special and unique and we’re going to get you help. But I will be right by your side the entire time. I’ll never leave you. I swear it.
+ - I’ll be whatever you allow me to be, Blaire. Just don’t shut me out again. Please.
+ - When a soul is created, so is its mate. In every lifetime those souls find each other. They complete the other’s destiny.
+ - You are not a body. You have a body. You are a soul.
+ - I don’t want you under those damn stairs. I hate it. But I can’t move you up here. I’ll never be able to stay away from you. I need you safely tucked away.
+ - Please. Forgive me. One more chance, Blaire. I want this. I want you.
+ - Good isn’t my thing but Sawyer’s important to me. Please remember I’ve got my limits and you studying my mouth like you want a taste is pushing me dangerously close to the edge of those limits.
+ - I know you love her. I’ve never seen you act this crazed in your life. I get that. But Nan hates her. If you love Blaire then protect her from the venom that is dripping from your sister’s fangs. Or I will.
+ - Even if I had stayed she wouldn’t have ever wanted me. She didn’t want me for anything more than a summer fling. I was a way of moving on for her.
+ - Whatever we had is over. It died the minute I walked downstairs and realized the world I’d always known was a lie.- Blaire Wynn.
+ - But Ash, I can’t continue to want you from a distance. To love you and not have you. I’d end up in jail if anyone tried to touch you and God forbid you tried to date someone.
+ - In the screwed-up life I’d been dealt, she was my only source of comfort.
+ - Don’t become me. Don’t let her down like I did. You only deserve what you make yourself worthy of. Do what I couldn’t. Be a man.
+ - I had fallen too far. I was in love with Rush Finlay.
+ - Not everyone sees you the way you do. Sometimes our imperfections are what makes us special. – Tripp.
+ - No matter where I am, I will always be there when you need me.
+ - Why couldn’t I have just made it home without seeing them? I wasn’t in the mood to play good freaking Samaritan to Beau and his trashy girlfriend.
+ - It didn’t mean forever but for right now I wanted Rush to be my first. He wouldn’t be my last. A stop I might never forget or get over. That was what scared me the most. Not being able to move on.
+ - I was taking the bad boy off the market for good.
+ - But when we find that one person who completes us, we don’t give up. No matter how bad we screw up. We make it right.
+ - Because I can’t live without Della. I don’t want to. She’s the reason I get up in the mornings – Woods.
+ - No. Don’t you do this to us.
+ - He wasn’t what sent me running. He was what had made me want to stay.
+ - Don’t frown beautiful, you fascinate me.
+ - I ain’t the only old woman looking. I’m just the only one honest enough to admit it. The others just hire the boy to cut their grass so they can sit at the window and drool.
+ - As I took a step toward him your eyes met mine and I saw the silent pleading for forgiveness or acceptance. I wasn’t sure which. All I knew was you were Sawyer’s now. My best friend was gone. I envied him and hated him for the first time that day. He’d finaly won the one prize I thought was mine.
+ - I’ll probably always love him. Doesn’t mean I can ever trust him again. That doesn’t make a relationship.
+ - Things happen in life and you can’t control them. It sucks and you have to move on.
+ - Sometimes what we want isn’t what’s best for us – Della.
+ - You’re my existence. I’m yours.
+ - Ash, I want you. Bad, very very bad. But you deserve better than this.
+ - In all her twisted perfection she had made me fall helplessly in love with her. A life without her in it seemed pointless.
+ - I want to have the memories of my time with you to keep me warm.
+ - You tempt me. I can’t be tempted. I’m not made to be tempted.
+ - I don’t need designer things. And YOU are designer, Rush.
+ - But dreams change. Fate has a way showing you paths you want more.
+ - I’m trying my hardest to get you so wrapped up in me you never leave.
+ - I know being with me is not easy. But I want you to understand no one has me, or has ever had me, except you.
+ - I dropped my phone on the floor and let the pain assail me. I’d given my heart away to someone who didn’t want it. Even knowing that, I didn’t regret it. I just wanted him to want me. I just wanted him to love me too.
+ - We had our thing. It is a really good memory but now we’re older. Things change.
+ - Ashton grinne and raised her eyebrows. “I can’t believe you’re telling me a Vincent boy brought you to Grove, Alabama and not me.” Shrugging, I returned her smile. “They’re heard to resist.” “Don’t I know it.”
+ - The one thing I’d learned was that having someone with you all the time did not take away the loneliness. You could be surrounded by people and be lonely. Something was missing. I could almost pinpoint it, but right when it was within my grasp I forgot; it just slipped away.
+ - If I had a life with Woods to look forward to I knew I could fight whatever darkness that tried to take me. Before Woods, I didnt know what I was living for. In my search to find myself, Id found so much more. I knew now why I wanted to live. I understood love. I had found it.
+ - And you’ve got a boy right there who looks at you like he would drink your bathwater if you’d ask him!
+ - With Woods arms wrapped around me and the beat of his heart pressed against my chest, I knew he would hold me steady. If I ever fell, I’d have him to catch me.
+ - It’s called Valentine’s Day, you moron. If you’re going to date a human, Dankmar, you need to remember their holidays.
+ - Beau’s arms slipped around my waist. I knew I should step away but I couldn’t make myself. This was home. Being in his arms like this was where I found peace.
+ - Hearts don’t realize they’ve been lied to. They still love anyway.
+ - He seems like a man who knows what he wants, and the problem is he wants what I want.
+ - Then the fear all humans felt when met with Death’s gaze came over his face. That’s right buddy, I’m Death, now move away from my girl.
+ - Trouble can be a lot of fun. It’s the straight and narrow that makes life tedious and boring.
+ - You feel real good, Lana. Makes me forget everything else.
+ - Or maybe I’d lost my soul already. I doubted God let someone like me keep any gift from him. It was highly likely I’d been born without one.
+ - Be glad I don’t have my gun because right now I’m considering the different ways I can get you to shut up. Let me scream and back off.
+ - I couldn’t forget. I couldn’t break. She had the power to break me. No one had ever been given that power, ever.
+ - Love shouldn’t make our choices for us; it should just add importance to our choices.
+ - In my search to find myself, I’d found so much more. I knew now why I wanted to live. I understood love. I had found it.
+ - I might never breathe again once he walked away from me.
+ - He doesn’t deserve it. he can have any girl in the world’s love and he took yours. someone who deserves so much more than a summer fling.
+ - If I’d known Ashton wanted my attention at any point I would have pushed Nicole aside and given her my undivided attention. But most of the time she was wrapped in Sawyer’s arms and I needed the distraction Nicole provided.
+ - Loosing you would be the only thing that could destroy me.
+ - I wanted to live. For the father and brother who I never knew and for my mother who was cheated of a life of happiness. I wanted to live for them. And I wanted to live for me.
+ - Staying with him. Letting him touch you, hold you, GOD. It’s eating me alive. You may be keeping Sawyer from hating me but you’re only making me hate him.
+ - Goodbyes weren’t all they were cracked up to be.
+ - Nothing in life was as precious as this woman. It never would be. I’d found my happiness.
+ - Having you close like this makes me forget the reasons why this won’t work. We will never work.
+ - You said everything I needed to hear. I’m hooked now. You have me. What are you going to do with me?
+ - Sometimes the answer we need is in our heart. We just have to listen to it.
+ - Identifying pain in others was easy for me. I was drawn to it in some strange perverse way.
+ - I need you. Right now. Let me love you right here, please.
+ - Sawyer was always the Vincent boy worth fighting for. He’s the special one.
+ - What Death protects can’t be harmed and baby, you’re the only thing I protect – Dank, Predestined.
+ - He’d made sure i had something old, something new, something borrowed, and something blue.
+ - I will do anything. Anything, Blaire, just to be near you. I can’t think about anything else. I can’t focus on anything. So never think you’re inconveniencing me. You need me, I’m there.
+ - I was already headed for Hell, I might as well enjoy the ride.
+ - Blaire, even if all we do is kiss or just lay there and talk, I’m okay with that. I just wanted you up here. Close to me.
+ - This may be invading her privacy but I was Death, dammit. I should get some privileges.
+ - I loved her. I loved her with a something so fierce I couldn’t even name it.
+ - She was the rock in a world that was crumbling.
+ - Don’t walk out of here. I can’t lose you.
+ - Because I’ve had a taste and I’m not sharing. This isn’t just for fun. I may be slightly addicted.
+ - The few moments of heaven were not worth the hell he put me through when he was done.
+ - As the music played over the speakers and the waterfall in the pool filled the silence around us, I knew that without a doubt I had just been ruined.
+ - Sawyer: Alone in your tent? Um, no. You’re in my tent.
+ - Last night I’d made love to a woman for the first and last time. It had been amazing and I had a memory that would shape the rest of my life.
+ - I’m trying to make myself let you go before Ms. Mary comes to get you, but you go and shiver at my touch and weaken my resolve to stop holding you.
+ - No. One. Comes. Before You.
+ - Fine. You don’t want to be good enough for me, then you will never be. I deserve someone who wants to be what I need.
+ - Last question. Why do you love Della? – Braden Until Della walked into my life I didn’t understand the idea of love. I had never been in love and experienced very little love in my life. But I’d seen it once -Woods.
+ - That’s okay. You an be selfish with me all you want. I’m yours.
+ - You want to know what happened? YOU happened Rush. That’s what happened.
+ - When you love someone, you can’t lie to them. It hurts to much. It’s a deception that goes too deep.
+ - I didn’t need taming. I needed saving.
+ - A small laugh startled me and I looked over to see her actually smiling. Making her do that more often was a new goal.
+ - If I lose you because of the blind idiot I’ve been then I will be the one who is destroyed.
+ - He did say I fascinated him, but he really should have clarified to me that I was just the fascination for the day.
+ - Girl, there ain’t a boy in this town who can hold a candle to Beau Vincent with his shirt off.
+ - Everyone always says that love was enough. It wasn’t. Not when your soul has been shattered.
+ - I never imagined anyone like you, Blaire. But every time I think about forever with you, I’m humbled that you chose me.
+ - Listen to me, Blaire. If you try to go anywhere I will chase you down. I will become your shadow.
+ - My girl and my kid gets the best, always.
+ - How do I soothe his ache when mine was a big gaping hole large enough for both of us to fit in?
+ - Did you really think I would be this excited about college if I thought I’d be leaving my girl behind?
+ - Blaire, tell me what you want me to do. I’ll do whatever it is you need.
+ - If hearts could shatter, mine just did.
+ - He was so good and honest. Why couldn’t I love him instead?
+ - I had Lana and she was the number one player on my team.
+ - For the first time, the object of what I want is more important than fulfilling my desires.
+ - I was very aware that you were a girl, Ash. I was just scared because the one person in the world who knew every secret I’d ever had also happened to be the most beautiful girl I’d ever known. My feelings for you were scary as Hell.
+ - The heart wants who the heart wants. We can’t help that.
+ - It was like she’d become the sun, and I started revolving around her. She was my center.
+ - My forgiving you doesn’t make my heart hurt less. It takes awhile to heal.
+ - Well, let’s see, I found out Pagan has low blood sugar and becomes a complete b – witch if she doesn’t eat a candy bar during a stressful moment.
+ - Sleeping on it didn’t make accepting it any easier. It seemed like a really bad dream.
+ - When you get inside go change into something loose and baggy. And for all that’s holy, please wear panties and a bra.
+ - Good because I want you too. Now. Forever. Just you.
+ - This is what it feels like to care about someone who doesn’t feel the same. I’d only known how it felt to love someone who loved me just as fiercely. I’d never known rejection. I’d never wanted someone who didn’t want me. The longing didn’t go away with rejection.
+ - Just maybe I was worthy of love.
+ - The whole town’s talking about the way Jax Stone sat in your hospital room and snag to you until you came out of your coma. Then he apparently wouldn’t leave you alone for a minute. The boy sounds hooked.
+ - Inside I knew he was meant to be the guy that taught me about life. Even if he broke my heart eventually.
+ - I’d walked too close to heaven and gotten a glimpse. The hell I’d lived before her no longer appealed to me.
+ - You aren’t what I expected. I wish you were. It’d be so much easier.
+ - You’re my all-in Della. I’ll throw it all away for you. I just want you. I’m all in, baby. This life with you, I’m planning on us.
+ - The emptiness where I used pain to fill the hole no longer controls me, no longer calls me because of you.
+ - Adjusting to Beau being a caveman over a girl had been almost as hard as seeing him with Ash. Beau didn’t do jealous, not until Ashton had become his. Now he was a freaking lunatic.
+ - I perfected the art of being uninteresting.
+ - My heart may be black but it was still capable of heart failure.
+ - She was crazy. I could be too. It was my greatest fear, that I’d snap one day too. Just like she had. I wanted to live life because if that day came I wanted to have lived once.
+ - And let her think I don’t care she’s with you? No can do. She needs to know what I want.
+ - I want whatever part of you I can have.
+ - When you fall for the one that owns you, she’ll be the only one that has the power to make you cry.
+ - This was why I loved my Grana. Being with her always made me laugh. She accepted life for what it was. She didn’t pretend or put on airs. She was just Grana.
+ - Too late. I’ve already seen the blush. Stop trying to hide it from me. I think it’s adorable.
+ - I understood that pain was real and sometimes things didn’t last. Sometimes you just had to enjoy it while it lasts and cherish it when it’s gone.
+
+168 quotes

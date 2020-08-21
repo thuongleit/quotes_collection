@@ -1,0 +1,25 @@
+ - I’m so in love, every time I look at you my soul gets dizzy.
+ - Chemistry is one of these crazy things you can’t teach or learn or you can’t fake. You go in hoping it will work, hope that you will connect with the other actors. I was fortunate on ‘Modern Family’ and ‘The Procession.’ They are great people, very easy to like.
+ - You left, and my heart is a ceaseless sermon of loneliness.
+ - Angels, pixies, faerie dust Treading love and living lust.
+ - I have lots of Scottish blood and know that my family name is Scottish. At my home in the States I have a tartan crest but, unfortunately, I do a terrible Scottish accent.
+ - The definition of marriage cannot be disputed. It’s right there in black and white and it’s been the same since the start of Wikipedia.
+ - Growing up, I was a very shy kid but I felt that being on stage or playing another character would somehow open me up. And I think it did.
+ - I’m holding a teardrop for a friend Until his heartache and misery end.
+ - I like suits. I mean, I always feel good in a suit; I’m more of a suit guy than a shirt-and-jeans-type guy, probably. You know, like, I love Brad Goresky’s style. And sometimes he’ll wear a pair of, like, leopard pants, and I’m like, I couldn’t pull that off, but I appreciate it from afar.
+ - I get great joy from creating the perfect Norman Rockwell holiday. This is why I think I might be Martha Stewart’s brother from another mother.
+ - I did my New York debut at 21. It was ‘On the Town’ at the George Gershwin Theatre. New York is my artistic home.
+ - I could smell myself awake with that coffee.
+ - I don’t have that kind of voice, the big baritone or rousing tenor sound. My wheelhouse was in the frothier pieces. So my appreciation for those older musicals and revivals grew.
+ - I don’t like improv at all. It terrifies me. I like to know exactly what I’m going to say. Being surprised does make me a better actor. Anytime I’m afraid of something that makes me rise to the occasion, it scares me, but it’s what makes great actors – being in the moment.
+ - I love TV now, and ‘Modern Family,’ but what draws me back to theater is that initial instinct of wanting to be a theater actor. I love the challenge of starting a play and not stopping until you finish. I love the immediacy of trusting your instincts.
+ - I still feel like a novice when it comes to classical theater, but I don’t ever want to become comfortable with anything. The greatest creativity comes from being nervous and uncomfortable.
+ - Me being a shy kid, very closed off, showing vulnerability in a character was sort of a safe space on stage. It’s always been in my toolbox, there for me when I need it.
+ - Having red hair is never good when you’re a kid. I was picked on a lot and didn’t have a lot of friends. But I think that gave me a thick skin and helped make me a better person.
+ - Well, certainly at the Golden Globes, during every commercial break everyone gets up and schmoozes with each other.
+ - If I had a reality show, it would probably be called ‘Keeping Fit with Jesse Tyler Ferguson’ because then I’d be forced to hit the gym every day.
+ - All my roots are Broadway. I got my Equity Card doing a Broadway show, and my first love is theater.
+ - I wanted to be an actor because I wanted to be onstage. I wanted to do musical theater, and from that I realized I was interested in plays. I never imagined myself on television. I was so lucky to be onstage my whole life.
+ - At my first Golden Globes, I met people I was very much enamored by: Julianne Moore, Meryl Streep, Brad Pitt and Angelina Jolie. It was surreal to see them in person.
+
+23 quotes

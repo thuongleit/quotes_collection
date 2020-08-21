@@ -1,0 +1,45 @@
+ - Intrapreneurs work and lead with the Producer mindset. They run their department, team, or company with an abundance mentality, an attachment to true principles, and a fearless and informed faith in people and quality.
+ - The war is for the family. The battle for their children’s education and their grandchildren’s freedom is as real to them as if they could witness the clangs of bayonets on the field or hear the blasts of mortars in the harbor.
+ - Today we are at a crossroads. The technology is available for two great options: The massive surveillance state, or the renewed freedom of a deeply-involved citizenry thinking independently and holding the government to the highest standards.
+ - Thinking is like exercise, it requires consistency and rigor. Like barbells in a weightlifting room, the classics force us to either put them down or exert our minds. They require us to think.
+ - The myth is that it is possible for one human being to educate another.
+ - Producers think in the language of abundance rather than scarcity, take initiative instead of waiting for someone else to provide them with opportunity, and boldly venture wise risks instead of surrendering to fear that they can’t make a difference.
+ - Most people spend less than 20 hrs a year learning about freedom, yet many wonder why it’s in decline. Don’t fight upstream. Instead, turn it around.
+ - Education means the ability to think independently and creatively, and development of the skill of applying one’s knowledge in dealing with people and situations in the real world.
+ - The slaves in Rome were incapable of leisure and so their masters gave them entertainment to keep them pacified.
+ - Real value means people value-and creating value really means helping people choose better lives.
+ - What the great mentor is always looking for is a person who is willing to tap his genius, to put it through the refiner’s fire, to do the hard work to develop it. Indeed, mentoring is the medieval art of alchemy-turning plain old human steel into hearts and minds of gold.
+ - Find a model of great education in history and you will find a great teacher who inspired students to make the hard choice to study. Wherever you find such a teacher, you will also find self-motivated students who study hard. When students study hard, learning occurs.
+ - Our children must be offered an education up to par with thier potential-and equal to the needs of the Twenty-first century.
+ - Government intervention is not solving the problems, and in fact the governments around the world that are intervening the most in their economies are struggling more.
+ - It is time to stop talking so much about what kind of leaders we want, to give less lip service to what Washington or Wall Street or Hollywood should do, and to act a lot more like citizens who actually deserve freedom.
+ - Great teachers and schools expect and nurture quality work and quality performance. Great teachers inspire and demand quality, ever urging their students to higher levels of excellence. They shun mere conformity and expect their students to think and perform to their ever-increasing potential.
+ - No matter what the Constitution says, it won’t endure if the people don’t closely read it and demand that it be followed.
+ - Small business people have gotten us out of nearly all modern recessions – not by waiting for others to fix things or turning to government, but rather by applying leadership, inventiveness, creativity and originality.
+ - When we let our freedoms slip away without a fight or even without concern, we take freedom, prosperity and happiness away from our posterity. What kind of people do that? Are we such people? These are questions each of us must face.
+ - The most powerful lessons occur where studies intersect with real life.
+ - Our middle class majority, deeply in personal debt, elects political leaders who increase our benefits. Then we vote them out because we dislike the soaring national debt.
+ - We tend to let our freedoms slip away because they are tucked away in documents and policies that we don’t ever deal with directly.
+ - When you look into the eyes of your children and grandchildren, when you picture their greatness and potential, do you feel that they are getting the education that is up to par with who they were born to become?
+ - Until the American majority is willing to live within its means, it can hardly force its political leaders to do so.
+ - Still reading but learning a lot about true education and the process of guiding our children in their educational pursuits.
+ - This is the crisis! Difficulty getting credit, slow growth, high unemployment, low consumer confidence-these are challenges entrepreneurs can overcome with hard work, smart risk and tenacious teamwork. This is precisely what entrepreneurs do!
+ - The shortest distance between where we are today as a nation and an effective return to increasing our freedoms and widespread prosperity is for regular American citizens to read and study the great books.
+ - Those who wait for the future to happen before aligning their educational goals with the new realities will be left behind in the new ecomomy. A better path is to know what is ahead and prepare-this is education.
+ - The best thing government can do now is get out of the way and let small businesses innovate, hire and grow. Unfortunately, this is unlikely to happen unless Washington stops increasing regulations, taxes and other blocks to business growth.
+ - There are really only two ways to teach. You can inspire the student to voluntarily and enthusiastically choose to do the hard work necessary to get a great education, or you can attempt to require it of him.
+ - Our generation, and that of our children, will face its share of crises, just like every generation in the past. When those calls come, will you be ready? The answer depends on how we educate the next generation.
+ - Prosperity and abundance in a society depend on a certain type of person: the producer. Societies with few producers stagnate and decay, while nations with a large number of producers vibrantly grow-in wealth, freedom, power, influence and the pursuit of happiness.
+ - Will we follow the course of societies past that have lost their way and crumbled under the devastating forces of economic upheaval, war and other crises? Or we pull together as families and communities to create a brighter future?
+ - When we discover this and give our lives to it, we are leaders. This is the Path of Leadership. Whatever our age or phase of life, we must enter and stay on the Path of Leadership. The future of the world depends upon it-upon you.
+ - Americans must either choose big government and be willing to pay for and submit to it, or they must move toward smaller, less intrusive government and be willing to enjoy fewer government programs.
+ - The problem in modern America is not that an individual can’t make a difference, but that nearly all of us are too distracted to even consider trying.
+ - Instead of asking, “What can I do to make these students perform?” the great teacher says, “Something’s not working! I must not be truly inspirational. What do I need to do to spark their passion to do the hard work to get a superb education?”
+ - The only person who can fix education is the student.
+ - In our day, a vast majority of people is dependent either on an employer or the government-or both. One way to rate your level of independence might be to measure how long you can survive, feed your family and live in your home after your employer stops paying you anything.
+ - In nations that have become too complex, taxes and regulation cause at least a doubling of the amount employers must spend on labor. Many experts call this ‘progress,’ but the natural result is that many companies respond by sending their operations and jobs to less costly nations.
+ - Indeed, we have reached a level of complexity where simplicity itself is suspect. For example, the simple reality is that jobs migrate to less difficult nations. It’s the old Rule of Capital: Capital goes where it is treated well.
+ - Teachers teach and students educate. Students are the only true educators. Historically, every other method of education has failed. Education occurs when students get excited about learning and apply themselves; students do this when they experience great teachers.
+ - Nothing will have more impact on the future of the world than for each of us to find out why we were born and to do it. Human beings tend to do this when parents, teachers and other mentors invite us to it.
+
+43 quotes

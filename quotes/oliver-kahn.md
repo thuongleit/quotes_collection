@@ -1,0 +1,28 @@
+ - Goalkeepers Need an Element of Insanity.
+ - Of course, success is a relative term. It can be something completely different from winning the German championship eight times or making millions.
+ - I think Neuer changed the game of goalkeeping in the World Cup.
+ - I would never have thought I was capable of sitting on the bench as the number two man. And it showed me that you can really achieve everything in life, even the unthinkable, as long as you’re willing to work on yourself a little bit.
+ - The goalkeeper plays in a psychological position, and he’s dealing with mental things. I wanted to describe the things I’ve done wrong and, most of all, what I’ve done right, so that other people, including those in other professions, could learn from my experiences.
+ - We are Bayern Munich and English teams always have trouble as soon as they leave the island.
+ - Messi is undoubtedly a gifted footballer, like Maradona and Pele, and he’s playing for the best club side in the world at the moment. He’s successful and he’s winning trophies, so it’s only logical that he’ll be voted the best player in the world.
+ - It took me a long time to realize that football isn’t martyrdom, but a game that’s enjoyable, and one in which getting better at it is supposed to be fun. Perhaps it would have been better if I had understood this as a young man.
+ - It’s part of my game to occasionally send a message, one that may be unpopular to the outside world, but can be important for the team.
+ - I’ve never really seen myself in the role of the victim.
+ - I have always seen myself as an athlete. Of course, I made the mistake of unintentionally opening the door to my private life by just a crack. I wouldn’t do the same thing again. It has to be accepted that my private life is private, and if that isn’t the case, I have to do something about it.
+ - Big matches on the big stage are often decided at the back.
+ - I’m not the type who spends his free time in training camp playing with his Playstation or playing cards on trips. The other players thought it was odd: There he is, reading again.
+ - If we perform as a unit and if every single player gives it his very best, everything can happen.
+ - After a decade in a club it’s quite normal and necessary that you seek and take a new challenge.
+ - The realization that you’re not always standing down there on the field merely to win, to be successful, was very liberating. One can be successful by helping the team, the other players. All of a sudden I felt the kind of empathy for people that I hadn’t felt before.
+ - I was so obsessed with football that you could say I was taking the goal home with me at night. And then one day the system fell apart.
+ - A Germany team should not be afraid going into a tournament. History shows that we can raise the level of our game when it matters.
+ - I have a feeling we are going to be world champions, I can’t really explain why. Brazil are probably the best team in the world in terms of individual players. But the team with the most gifted players do not always win.
+ - If I play, I try to concentrate on producing my best.
+ - It looked pretty wild, but I was actually in control of myself. I’ve never really injured anyone throughout my career.
+ - When you look at our programme for the next few weeks, you do not fancy a trip to the Oktoberfest.
+ - Complaining and arguing will not help. We are fully concentrating on the game against the Czechs.
+ - After the 2006 World Cup, I knew that you don’t always need success, success, success on the pitch.
+ - I want to successfully make the transition from a life in professional sports to another life, without running into major upheavals.
+ - I am firmly convinced that you shouldn’t necessarily emphasize hedonism, especially at the beginning of a career, but should instead focus entirely on performance.
+
+26 quotes

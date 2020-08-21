@@ -1,0 +1,125 @@
+ - Best of luck in your future endeavors!
+ - I am The Catalyst of Change.
+ - The best thing you can probably do is keep a low profile, keep your eyes and ears open, your mouth shut, and you will learn a ton.
+ - I am the voice of the voiceless.
+ - You’re not funny and nobody likes you!
+ - I don’t smoke, I don’t drink, I don’t use drugs. That may be boring for some people, but that’s just me. That’s how I live my life.
+ - I pride myself on being a jerk, because I’m brutally honest all the time.
+ - Luck? Good luck? GM, the last time I checked, luck is for losers.
+ - I’m a very goal-oriented person.
+ - I don’t drink. I don’t smoke. I don’t do drugs. My addiction is wrestling.
+ - I’m straight edge, and that means I’m better than you.
+ - Sometimes it’s what you don’t do that makes you who you are.
+ - I will kick you in the nuts and you will smile and like it.
+ - I’m the kind of person that if I’m not getting something that I need from somewhere. I don’t cry about it, I’m like OK I’m going to go here and find what I need.
+ - Do you know what it’s like going through life being better than everybody? It’s hard.
+ - Whatever your walk in life is, you pick what you want to be, then go ahead and be the best one.
+ - I am the best wrestler in the world.
+ - I am STILL better than you. Because I AM drug free, I AM alcohol free, and I’m straightedge.
+ - When you step in the ring, your arms are just too short to box with God.
+ - People like to come up to me and tell me that I’ve got nice ink. Except these tattoos aren’t just decorations. They are declarations. Every tattoo I have tells its own story about who I am. Drug-free. Honor. And a war against the system.
+ - I’d much rather be a one-hit wonder than a phony.
+ - All your heroes are dead! I killed them!
+ - Where, oh, where are my WWE ice cream bars?!
+ - I’ll go be the best in the world somewhere else.
+ - I’m not a suit and tie kind of guy. I wear a suit once a year, for the Hall of Fame, or if I have to go to a funeral or something. It’s just not me.
+ - It’s a good time to be CM Punk right now.
+ - I’ve never stolen anything in my life, except maybe a couple hearts here and there.
+ - Don’t look at me like that, Michael Cole.
+ - Different people are afforded different opportunities. I’ve been given some awesome opportunities, and I feel that I’ve always knocked them out of the park. But I’ve always been scaled back after that.
+ - He spilled my diet soda!
+ - Sir! Sir! I’m afraid your music is just too loud!
+ - If Triple H asked you to jump off a bridge, would you? Because I think that’s good for business.
+ - If hell is to roam, then i’ve got hell to pave...
+ - In 50 years, your grandchildren will be asking you where you were when CM Punk beat the Undertaker’s streak!
+ - I don’t drink, I don’t smoke, I don’t do drugs. I kick people in the face for a living. So, if that’s something you’re into – if you like watching people get kicked in the face – come see me. I’ll probably be your favorite wrestler.
+ - I am fat and I don’t care.
+ - To John Cena after the fans kept throwing his shirt back in the ring : They didn’t throw my shirt back.
+ - What you’ve lost sight of is what you are, and what you are is what you hate. You’re the 10-time WWE Champion! You’re the man! You, like the Red Sox, like Boston, are no longer the underdog! You’re a dynasty. You are what you hate. You have become the New York Yankees!
+ - Right now at the announce table we’ve got two kings and a queen, I’ll let you figure out who’s who.
+ - I don’t know if this sounds bad, but I am set. I don’t spend my money. I don’t buy cars or have an expensive drug habit. The only thing I’ve ever bought with the money I’ve made is my house.
+ - Do I want an ice cream bar with my name on it? You’re DAMN right!
+ - John, what are you doing? John, my diet soda. What are you doing?
+ - Hey Colt Cabana, how you doing.
+ - I hear you guys all the time talking about Daniel Bryan, trained by Shawn Michaels. One curious thing to me is, how come you guys never mention William Regal? William Regal did the real work with this young man. Shawn Michaels took $3,000 from him, that’s all he ever did.
+ - King Kofi Kingston, that does have a nice ring to it. But not so much the initials, though.
+ - My hair is pure. It stands for purity because no foreign chemicals or substances has ever touched my hair.
+ - I don’t want to sound egotistical, but I’m egotistical to an extent.
+ - King Kofi Kingston. The initials are horrible but the name sounds great.
+ - On the road, the WWE is a family. The divas are my sisters, and like any big brother, I don’t want creeps around my little sisters.
+ - My dream match is me and Chris Benoit against Fit Finlay and William Regal. That way I get to work with Benoit and I get to beat up and get beat up by Finlay and Regal.
+ - Pete and Repeat are in a boat, Pete jumps out who’s left in the boat?
+ - I’m not doing my job if people are like, “What you do is fake.” And literally people on the street are confused, generally, for the first time.
+ - I don’t like having debts. I don’t like buying anything that I can’t buy in cash.
+ - I fancy myself as being very good at Guitar Hero. I really don’t play any other videogames. I kind of fell in love with Guitar Hero the first time I played it, and went out and bought a system for it.
+ - I did try out for football and wrestling but they wouldn’t let me on the teams because I had blue hair.
+ - Texas is dicktown. No basement in the alamo. I didnt capitalize that on purpose.
+ - I had a Chicago Street Fight a couple of years back in Ring of Honor that was really bloody and really violent. That is probably the closest thing to the Extreme Elimination Chamber I can think of.
+ - I’m not Superman. Eventually, the grind gets to you. If you’re away from your friends, you’re not traveling with anyone you like, and you’re doing stuff that doesn’t creatively stimulate you, that’s when it becomes a job.
+ - No matter how much people want to pretend that they’re embarrassed by it, that they don’t watch it, everybody knows about it. It’s truly, I believe, one of the only art forms that America has actually given to the world, besides jazz and comic books.
+ - This is not the Spanish announce table!
+ - I’m not allowed to wear my street clothes on TV because Vince McMahon says I don’t look like CM Punk when I’m not in my gear.
+ - Security, we have a jumper! Security?
+ - Its Not a Belt, its a Championship Title!
+ - Yes, I wanted to win! I wanted the belt! I’m a belt mark! I want to sleep with it! I want to wear that and nothing else to church on Sunday!
+ - I think drugs and alcohol aren’t a wrestling problem, it’s a life problem, it’s a people problem.
+ - Please. Thank you. Learn it. Love it. Or be disappointed.
+ - I’ve always been me. The last three weeks of my career, I’ve cut some of the best promos I’ve ever cut, and I do consider myself to be a promo guy.
+ - My name’s Punk. CM Punk.
+ - I was a huge Sub-Zero guy, but the fact that you can download Freddy Krueger is the coolest thing I’ve heard of in a very long time.
+ - I’m a living, breathing example of someone who does the same exact thing, but drugs and alcohol just aren’t a part of who I am.
+ - See, Josh, that’s what you do when someone slaps you in the face. So the next time it happens to you, try to retaliate.
+ - Right now, I would like complete silence when I’m talking.
+ - Screw you and your 38,000 twitter followers!
+ - The CM stands for Cole Miner.
+ - One week I’ll get pancakes at Bongo Room, the next week I go to Kuma’s Corner. But I always end up at Coldstone. I love ice cream.
+ - I am stoked for this. This is my favorite part of the entire show.
+ - Anybody wants to call me the Triple H of Ring of Honor, I think that’s hilarious. I would prefer to call Triple H the CM Punk of the WWE.
+ - Stay down, David. Stay down.
+ - It looks like they’ve been watching old Japan tapes!
+ - If the story’s there for it, if there’s a reason for it, then I’m all for it. But if you throw in a barbed wire match just to do a barbed wire match, then it makes no sense to me.
+ - A whole bunch of people told me that if I went to WWE, I’d never make it. But it’s like I never heard them. I never listened. To me, I’m exactly where I belong. I feel like I was born to do this. Whatever your walk in life is, you pick what you want to be, then go ahead and be the best one.
+ - There’s one thing you’re better at than I am, and that’s kissing Vince McMahon’s ass. You’re as good as kissing Vince’s ass as Hulk Hogan was. -To John Cena.
+ - I came here to do a job, and my job is to hurt people.
+ - Can we not say ‘dumped’ and ‘Bellas’ in the same sentence, please?
+ - You’d figure he’d go do something with his life, like maybe he could enlist and actually become a marine!
+ - I am officially a member of The New Breed!
+ - Wrestling is pretty DIY. I’ve been doing it for 12 years, completely on my own. It’s like being in a band or running a zine – except that I get to kick people in the face.
+ - Fix him so I can break him again!
+ - We have the worst security!
+ - Can I wear your blazer?
+ - One of the things I want to find out is where the hell are the WWE ice cream bars?!
+ - For some reason, talking is easy for me. Practice does make perfect; I’ve been doing it for a while. Being out there in a high-pressure situation with a live audience and a live TV camera on you, it brings something out. It’s very organic.
+ - If something sucks, I’ve always been completely vocal about it, and I’ve been punished many, many times because of that. But I don’t think I’d be in the spot I’m in right now if I wasn’t me. I’ve always just been me.
+ - I’m not the kind of guy that really thinks I’m a celebrity or feels that I’m important or anything like that.
+ - Climb up the ladder! Climb up the ladder! Are you stupid?!
+ - Looks like he’s dressed for court.
+ - Cole, you stay right where you are. Miz has enough people at ringside tonight.
+ - I don’t know if you guys know this but I’m sort of a big deal.
+ - I would never be happy with just coming to TV tapings, not working house shows, and just getting by, staying in the shadows. I’m proud of the fact that I can turn chickenshit to chicken salad.
+ - My chair just broke by the way. It’s a billion dollar corporation and I can’t get a decent chair and somebody to come out here and fix this announce table.
+ - Survivor Series is something that was very surreal to me to be a part of, but now, I just want to do it again.
+ - It’s a good thing a DUI’s job security.
+ - Is he under the influence or something?
+ - How come when I was a kid, I couldn’t be picked on bullies like that?
+ - Pro wrestling has always been ingrained into American culture. It was one of the first things that was ever on television, so everybody watched it.
+ - I think Mixed Martial Arts is going to be a huge thing coming up in pro wrestling, and I like to think of myself as one of the first guys to try and implement that into my style.
+ - You can tell that hold is effective because his face is red and the rest of his body is the color of a bottle of 2% milk.
+ - I believe Melina is wearing Uggs. Which is exactly how I feel about her.
+ - The idea of being on television is to wear your T-shirt so people see it and maybe buy it.
+ - Wherever I am, I think it’s my show.
+ - Gorgeous day here in Chicago. Sure is better than Canada.
+ - A lot of people have used the frog splash over the years. Every one else that used it is a four star frog splash, when RVD did it, it became a five star frog splash.
+ - People get hired based off of a certain look or something like that and they have no intention of paying their dues or even respecting the business. It’s not a good idea to do that.
+ - I might wear a tux on Monday. Or a kimono!
+ - I would, but I know where that hand’s been.
+ - Planning stuff out sucks. If you plan stuff out, you wind up talking in a very monotonous, unnatural way.
+ - So what? I’m out here doing commentary with Malaria.
+ - I think it’s good to have different styles, though. I think it’s good to have a lucha on a show, some Japanese flavor, I think MMA is a good thing, a little bit of the hardcore and the blood and guts is good. That is what makes a show for me.
+ - He just hit himself in the dinger with a rubber.
+ - I like all kinds of wrestling, I like pro wrestling, so if there’s a guy I’ve been feuding with for over a year, and damn it, the only thing left to do is beat the crap out of each other in a steel cage, then it’s time to do it.
+ - Can I read it? They really liked it when I did it.
+ - I owe my career to Paul Heyman.
+ - I think pro wrestling doesn’t seem to get a lot of mainstream attention until somebody dies.
+
+123 quotes

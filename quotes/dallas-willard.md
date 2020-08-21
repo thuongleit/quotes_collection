@@ -1,0 +1,146 @@
+ - Discipleship is the process of becoming who Jesus would be if he were you.
+ - Ruthlessly eliminate hurry from your life.
+ - Prayer is talking with God about what we are doing together.
+ - God’s address is at the end of your rope.
+ - A disciple is a person who has decided that the most important thing in their life is to learn how to do what Jesus said to do.
+ - The most important thing in your life is not what you do; it’s who you become. That’s what you will take into eternity.
+ - We are unceasing spiritual beings with an eternal destiny in God’s great universe.
+ - Spiritual formation for the Christian basically refers to the Spirit-driven process of forming the inner world of the human self in such a way that it becomes like the inner being of Christ himself.
+ - Grace is not opposed to effort, it is opposed to earning. Earning is an attitude. Effort is an action. Grace, you know, does not just have to do with forgiveness of sins alone.
+ - The main thing God gets out of your life is not the achievements you accomplish. It’s the person you become.
+ - Grace is not opposed to effort; it’s opposed to earning.
+ - The greatest challenge the church faces today is to be authentic disciples of Jesus.
+ - Spiritual people are not those who engage in certain spiritual practices; they are those who draw their life from a conversational relationship with God.
+ - Spiritual formation cannot, in the nature of the case, be a ‘private’ thing, because it is a matter of whole-life transformation. You need to seek out others in your community who are pursuing the renovation of the heart.
+ - The will is transformed by experience, not information.
+ - There is no problem in human life that apprenticeship to Jesus cannot solve.
+ - Our failure to hear His voice when we want to is due to the fact that we do not in general want to hear it, that we want it only when we think we need it.
+ - We don’t believe something by merely saying we believe it, or even when we believe that we believe it. We believe something when we act as if it were true.
+ - Human beings are at their core defined by what they worship rather than primarily by what they think, know, or believe. That is bound up with the central Augustinian claim that we are what we love.
+ - Few people arise in the morning as hungry for God as they are for cornflakes or toast and eggs.
+ - Every church needs to be able to answer two questions. First, what is our plan for making disciples? And second, does our plan work?
+ - The ultimate freedom we have as human beings is the power to select what we will allow or require our minds to dwell upon.
+ - One of the hardest things in the world is to be right and not hurt other people with it.
+ - Spiritual formation in Christ moves us toward a total interchange of our ideas and images for his.
+ - The first act of love is always the giving of attention.
+ - Discipline, strictly speaking, is activity carried on to prepare us indirectly for some activity other than itself. We do not practice the piano to practice the piano well, but to play it well.
+ - You can live opposite of what you profess, but you cannot live opposite of what you believe.
+ - You can no more trust Jesus and not intend to obey him than you could trust your doctor and your auto mechanic and not intend to follow their advice. If you don’t intend to follow their advice, you simply don’t trust them. Period.
+ - The basic question ‘will I obey Christ ‘s teaching?’ is rarely taken as a serious issue. For example, to take one of Jesus’ commands, that is relevant to contemporary life, I don’t know of any church that actually teaches a church how to bless people who curse them, yet this is a clear command.
+ - The key, then, to loving God is to see Jesus, to hold him before the mind with as much fullness and clarity as possible. It is to adore him.
+ - Obedience to Christ is the easy way, take my yoke...
+ - Projects of personal transformation rarely if ever succeed by accident, drift or imposition.
+ - The true saint burns grace like a 747 burns fuel on takeoff.
+ - Understanding is the basis of care. What you would take care of you must first understand, whether it be a petunia or a nation.
+ - Everyone gets a spiritual formation. It’s like education. Everyone gets an education; it’s just a matter of which one you get.
+ - The hardest thing about leadership is the intimacy it requires.
+ - We are becoming who we will be-forever.
+ - If our gospel does not free the individual up for a unique life of spiritual adventure in living with God daily, we simply have not entered fully into the good news that Jesus brought.
+ - One does not miss heaven by a hair, but by constant effort to avoid and escape God.
+ - The more we pray, the more we think to pray, and as we see the results of prayer-the responses of our Father to our requests-our confidence in God’s power spills over into other areas of our life.
+ - Jesus is the human face on the kingdom of God. He makes it concretely accessible.
+ - Grace is opposed to earning, but not to effort.
+ - God’s aim in human history is the creation of an inclusive community of loving persons, with himself included as its primary sustainer and most glorious inhabitant.
+ - The Spiritual disciplines are wisdom and not righteousness.
+ - As we mature in Christ, it is actually possible to outgrow fear.
+ - Jesus is actually looking for people he can trust with his power.
+ - It would be of course a low voltage spiritual life in which prayer was chiefly undertaken as a discipline, rather than as a way of co-labouring with God to accomplish good things and advancing his Kingdom purposes.
+ - My central claim is that we can become like Christ by doing one thing – by following him in the overall style of life he chose for himself.
+ - And God has set up prayer in such a way that, if you want to explain it away, you can. That’s the human mind. God set it up like that for a reason, which is this: God ordained that people should be governed in the end by what they want.
+ - Paul followed Jesus by living as He lived. And how did he do that? Through activities and ways of living that would train his whole personality to depend upon the risen Christ as Christ trained Himself to depend upon the Father.
+ - Knowing the ‘right answers’ does not mean we believe them. To believe them means to act as though they’re true.
+ - When we receive God’s gift of life by relying on Christ, we find that God comes to act with us as we rely on him in our actions.
+ - When we think of “taking Christ into the workplace” or “keeping Christ in the home,” we are making our faith into a set of special acts. The “specialness” of such acts just underscores the point – that being a Christian, being Christ’s isn’t thought of as a normal part of life.
+ - Most problems in contemporary churches can be explained by the fact that members have never decided to follow Christ.
+ - In Spiritual formation we are aiming at a character and life that is so shaped that the deeds of Christ routinely and easily come from what is inside.
+ - The prospering of God’s cause on earth depends upon his people thinking well.
+ - The idea of having faith in Jesus has come to be totally isolated from being his apprentice and learning how to do what he said.
+ - The open secret of many Bible believing Churches is that a vanishingly small percentage of those talking about prayer and Bible reading are actually doing what they are talking about.
+ - Kingdom obedience is kingdom abundance.
+ - And the God who hears is also the one who speaks. He has spoken and is still speaking. Humanity remains his project, not its own, and his initiatives are always at work among us.
+ - When we pass through what we call death, we do not loose the world. Indeed, we see it for the first time as it really is.
+ - The greatest danger to the Christian church today is that of pitching its message too low.
+ - The people to whom we minister and speak will not recall 99 percent of what we say to them, but they will never forget the kind of persons we are.
+ - Fasting confirms our utter dependence upon God by finding in Him a source of sustenance beyond food.
+ - If you have a group of people come together around a vision for real discipleship, people who are committed to grow, committed to change, committed to learn, then a spiritual assessment tool can work.
+ - If you don’t have a teacher you can’t have a disciple.
+ - When the light comes into a room, we do not have to say, “Now what are we going to do about the darkness?” It’s gone!
+ - When the will is enslaved to a desire, it will in turn enslave the mind.
+ - Many Christians were suddenly prepared to look at traditional methods of spiritual formation. They could not help but see that spiritual growth and vitality stem from what we actually do with our lives, from the habits we form, and from the character that results.
+ - It is the responsibility of every Christ-centred follower to carve out a satisfying life under the loving rule of God or else sin will start to look good.
+ - It’s very difficult to be right about something without hurting someone with it.
+ - God inducts us into the eternal kind of life that flows through himself. He does this first by bringing that life to bear upon our needs, and then by diffusing it throughout our deeds – deeds done with expectation that he and his Father will act with and in our actions.
+ - The cautious faith that never saws off a limb on which it is sitting, never learns that unattached limbs may find strange unaccountable ways of not falling.
+ - The effect of standing before God by welcoming him before us will be the transformation of our entire life.
+ - Blessing is the projection of good into the life of another.
+ - Almost everything worth doing in human life is very difficult in its early stages and the good we are aiming at is never available at first, to strengthen us when we seem to need it most.
+ - The command is “Do no work.” Just make space. Attend to what is around you. Learn that you don’t have to DO to BE. accept the grace of doing nothing. Stay with it until you stop jerking and squirming.
+ - Happiness in reality consists only in rest, and not in being stirred up. This instinct conflicts with the drive to diversion, and we develop the confused idea that leads people to aim at rest through excitement.
+ - To withhold our bodies from religion is to exclude religion from our lives.
+ - There is no avoiding the fact that we live at the mercy of our ideas This is never more true than with our ideas about God.
+ - Today we are apt to downplay or disregard the importance of good thinking to strong faith; and some, disastrously, even regard thinking as opposed to faith.
+ - As Augustine say clearly, God being God offends human pride. If God is running the universe and has first claim on our lives, guess who isn’t running the universe and does not get to have things as they please.
+ - What is thinking? It is the activity of searching out what must be true, or cannot be true, in the light of the given facts or assumptions.
+ - The union Christ had with the Father was the greatest that we can conceive of in this life-if indeed we can conceive of it.
+ - A leader enables people to love and honor the role they play in the organization or group they are part of.
+ - Play is the creation of value that is not necessary.
+ - You cannot trust Jesus in areas in which you don’t think him competent.
+ - Why doesn’t God just force us to do the things he knows to be right? It is because that would lose precisely that which he has intended in our creation: freely chosen character.
+ - Theology is a part of our lives. It’s unavoidable. A thoughtless theology guides our lives with just as much force as a thoughtful and informed one.
+ - In many cases, our need to wonder about or be told what God wants in a certain situation is nothing short of a clear indication of how little we are engaged in His work.
+ - I’m practicing the discipline of not having to have the last word.
+ - We are invited to make a pilgrimage – into the heart and life of God.
+ - Does Christ commend the famous ‘apathy’ of the Stoic or the Buddhist elimination of desire? Far from it. The issue is not just feeling or desire, but right feeling or desire, or being controlled by feeling or desire.
+ - Feelings are good servants, but they are disastrous masters.
+ - Find a person who has embraced anger, and you will find a person with a wounded ego.
+ - Other kingdoms are still present on earth along with the kingdom of the heavens. That is the human condition.
+ - No one need worry about our getting the best of God in some bargain with him, or that we might somehow succeed in using him for our purposes. Anyone who thinks this is a problem has seriously underestimated the intelligence and agility of our Father in the heavens. He will not be tricked or cheated.
+ - Those who have been touched by forgiveness and new life and have thus entered into God’s rule become, like Jesus, bearers of that rule.
+ - At the center of care for the heart is the love of God. This must be the joyful aim of our life.
+ - God has yet to bless anyone except where they actually are, and if we faithlessly discard situation after situation, moment after moment, as not being “right,” we will simply have no place to receive his kingdom into our life.
+ - Suppose our failures occur, not in spite of what we are doing, but precisely because of it.
+ - Reality is what you can count on.
+ - Grace is not just about forgiveness but about life.
+ - Even professing Christians, by and large, devote to their spiritual growth and well-being a tiny fraction of the time they devote to their body, and it is even tinier fraction if we include what they worry about.
+ - God does not ‘love’ us without liking us...
+ - What is truly profound is thought to be stupid and trivial, or worse, boring, while what is actually stupid and trivial is thought to be profound. That is what it means to fly upside down.
+ - Two ways of thinking: Human kingdom and human cleverness or God’s kingdom and God’s cleverness.
+ - Churches are not the kingdom of God, but are primary and inevitable expressions, outposts, and instrumentalities of presence of the kingdom among us. They are ‘societies’ of Jesus.
+ - If we allow everything access to our mind, we are simply asking to be kept in a state of mental turmoil or bondage. For nothing enters the mind without having an effect for good or evil.
+ - In solitude we find psychic distance, the perspective from which we can see, in the light of eternity, the created things that trap, worry, and oppress us.
+ - Clinical depression is an extreme form of a ‘bad mood.’
+ - When Jesus directs us to pray, “Thy kingdom come,” he does not mean we should pray for it to come into existence.
+ - Thoughts are the place where we can and must begin to change. There the light of God first begins to move upon us through the word of Christ, and there the divine Spirit begins to direct our will to God and his way.
+ - When I left home after graduating high school, I left as a migrant agricultural worker with a Modern Library edition of Plato in my duffel bag. It sounds kind of crazy, but I loved it. I loved the stuff. Before I knew there was a subject called philosophy, I loved it.
+ - I believe that every human being is sufficiently depraved that when we get to heaven, no one will be able to say, I merited this.
+ - In a world apart from God, the power of denial is absolutely essential if life is to proceed. The will or spirit cannot-psychologically cannot-sustain itself for any length of time in the face of what it clearly acknowledges to be the case. Therefore it must deny and evade and delude itself.
+ - The humility that cringes in order that reproof may be escaped or favor obtained is as unchristian as it is profoundly immoral.
+ - Keep eternity before the children.
+ - Crooked thinking, unintentional or not, always favors evil.
+ - Business is a primary arrangement on God’s part for people to love one another and serve one another.
+ - To depart from righteousness is to choose a life of crushing burdens, failures, and disappointments, a life caught in the toils of endless problems that are never resolved.
+ - We live in a culture that has, for centuries now, cultivated the idea that the skeptical person is always smarter than one who believes. You can almost be as stupid as a cabbage as long as you doubt.
+ - The kingdom of God is the true ecology of the human soul.
+ - We are built to live in the kingdom of God. It is our natural habitat.
+ - If we are to use our minds rightly, we must live in an attitude of constant openness and learning.
+ - Kingdom praying and its efficacy is entirely a matter of the innermost heart’s being totally open and honest before God. It is a matter of what we are saying with our whole being, moving with resolute intent and clarity of mind into the flow of God’s action.
+ - Sometimes we get caught up in trying to glorify God by praising what He can do and we lose sight of the practical point of what He actually does do.
+ - My hope is to gain a fresh hearing for Jesus, especially among those who believe they already understand him. In his case, quite frankly, presumed familiarity has led to unfamiliarity, unfamiliarity has led to contempt, and contempt has led to profound ignorance.
+ - The disciple of Jesus is not the deluxe or heavy-duty model of the Christian-especially padded, textured, streamlined, and empowered for the fast lane on the straight and narrow way. He stands on the pages of the New Testament as the first level of basic transportation in the kingdom of God.
+ - Bodily pleasure is not in itself a bad thing. But when it is exalted to a necessity and we become dependent upon it, then we are slaves of our body and its feelings. Only misery lies ahead.
+ - Feelings too must be renovated: old ones removed in many cases, or at least thoroughly modified, and new ones installed or at least heightened into a new prominence.
+ - Belief is when your whole being is set to act as if something is so.
+ - The truly powerful ideas are precisely the ones that never have to justify themselves.
+ - Today it is the skeptics who are the social conformists, though because of powerful intellectual propaganda they continue to enjoy thinking of themselves as wildly individualistic and unbearably bright.
+ - We need to understand that Jesus is a thinker, that this is not a dirty word but an essential work, and that his other attributes do not preclude thought, but only ensure that he is certainly the greatest thinker of the human race: “the most intelligent person who ever lived on earth”
+ - Theology is just what you really think about God, and if you’re going to do that, you’d better use your mind and not just let it be a receptacle – a catch-all for whatever beliefs happen to be passing by.
+ - Actions are not impostions on who we are, but are expressions of who we are. They come out of our heart and the inner realities it supervises and interacts with.
+ - Of course, we do the righteous deed because of our redemption, not for our redemption.
+ - In accord with his original intent, the heavenly Father has in fact prepared an individualized kingdom for every person, from the outset of creation.
+ - Great faith, like great strength in general, is revealed by the ease of its workings. Most of what we think we see as the struggle OF faith is really the struggle to act as IF we had faith when in fact we do not.
+ - What we can accomplish as good as it may be does not compare to what God can accomplish.
+ - We Christians should be aware that there’s something at stake in cultural participation that we wouldn’t have been concerned about if all we did was worry about the messages in culture.
+ - What a child does when not told what to do is the final indicator of what and who that child is.
+ - Your mind will really talk to you when you begin to deny fulfillment to your desires, and you will find how subtle and shameless it is.
+
+144 quotes

@@ -1,0 +1,28 @@
+ - Reading one book is like eating one potato chip.
+ - The Spear in the Other’s heart is the spear in your own: you are he.
+ - How am I supposed to save the universe with all this noise?!
+ - Footsteps in the snow suggest where you have been, point to where you were going: but when they suddenly vanish, never dismiss the possibility of flight...
+ - Belief made no difference to the truth.
+ - Do it now and avoid the June rush! Fear death by water!
+ - Dear Artificer, I’ve blown my quanta and gone to the Good Place!
+ - It’d be a poor kind of world where there was just one explanation for things. – Rhiow.
+ - Well, the rollout of new technology always affects how wizards do business.
+ - A little science. A little magic. A little chicken soup.
+ - You should know how terrible a power belief is, especially in the wrong hands – and how do you tell which hands are wrong? Believe something and the Universe is on its way to being changed. Because you’ve changed, by believing. Once you’ve changed, other things start to follow.
+ - So rage, proud Power: fail again! And see my blood teach Death to die!
+ - What teens will realize is always a mystery to me. I’m still realizing so many things myself, very belatedly, that it seems unwise to think I have any right to be showing people things in hopes that they’ll realize them.
+ - The issues of the choice between right and wrong has to be an ongoing concern for everybody, at every age. There is no magical point in a human life when anyone is or becomes immune to the second-by-second choice to do right instead of wrong.
+ - I may have one more ‘Star Trek’ novel in me, but it would be in the old universe, not the new one.
+ - You walk on water, and complain that you can’t find anything to drink!
+ - My first generation of young readers now have not only children, but some of them have grandchildren to whom they’re introducing their old passion.
+ - She tried to walk softly and wished the trees wouldn’t stare at her so.
+ - There is a rule for fantasy writers: The more truth you mix in with a lie, the stronger it gets.
+ - Doctors couldn’t be everywhere, so the Lord invented Vulcans. I thought you knew.
+ - All the drawing lacks is the final touch: To add eyes to the dragon.
+ - What I try to do for my readers is to pass on some of the things that I found out about being thirteen after doing it for forty years.
+ - Sometimes we do not hear the Whisperer even at her loudest because she speaks in our own voice, the one we most often discount.
+ - And we will cause it to be well-made, this Sacrifice. You, young and never loving; I, old and never loved. Such a Song the Sea will never have seen.
+ - Those who don’t know the mistakes of the past won’t be able to enjoy it when they make them again in the future.
+ - It’s always been the children who have saved the universe from the previous generation and remade the world in their own image. – Carl.
+
+26 quotes

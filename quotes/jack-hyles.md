@@ -1,0 +1,70 @@
+ - God’s mighty power comes when God’s people learn to walk with God.
+ - Failure plus failure plus failure equals success. You only fail when you quit.
+ - Success is on the same road as failure; success is just a little further down the road.
+ - If God called us to a task, He will then qualify us for the job.
+ - Love is the doorway through which the human soul passes from selfishness to service.
+ - We need God as much in the calm as in the storm.
+ - The greatest blessing in the whole world is being a blessing.
+ - I know enough of God to want to know more.
+ - I’d rather die in the will of God than to live outside of it.
+ - Jesus makes you happy in reality. The world makes you happy escaping from reality.
+ - A prepared person will always have his opportunity.
+ - Old-fashioned, Spirit-filled, Christ-honoring, sin-hating, soul-winning, Bible-preaching. It is the hope of the church. It is the hope of the nation. It is the hope of the world.
+ - Being loved is life’s second greatest blessing; loving is the greatest.
+ - On the essentials, unity. On the nonessentials, liberty. In everything, charity.
+ - There is always a prepared place for a prepared person.
+ - Faith is the willingness to risk anything on God.
+ - If a task is worthy of our attention, it is worthy of our best.
+ - There are two ways to be rich in life: have what you want or want what you have.
+ - I can’t make you love me, but you can’t keep me from loving you.
+ - You do not have to seek God’s will when you are doing God’s will.
+ - Leadership is made for service.
+ - You don’t endorse error, you allow it.
+ - He who cannot obey cannot command.
+ - The best way to help those who are behind you is to heed those before you.
+ - The ones who disappoint you need you the most.
+ - Hearts are united when they ache and break together.
+ - Greatness is in the preparation, not in the performance.
+ - You will never really love until you love someone who hates you.
+ - Do not ask for fears to be removed; ask for courage equal to the fears.
+ - Back of the clouds, the sun is always shining.
+ - Preaching is truth set on fire.
+ - The reward that outdoes all others is the peace of knowing that you did right.
+ - God does not choose those who are fit. He outfits those whom He chooses.
+ - To lose something in the will of God is to find something better.
+ - Soul winning is not a method; it is a command. We are supposed to go soul winning and do soul winning if our churches grow or if our churches decrease in attendance.
+ - A tribulation gives you the opportunity to test a truth you have always believed.
+ - The difference between success and failure is work.
+ - A good name is what is given you by others and that which has been earned by you.
+ - The fire doesn’t make you what you are; it reveals what you were.
+ - A tear today is an investment in a laugh tomorrow.
+ - Nothing unites people as sharing the same affliction.
+ - Let principles make decisions.
+ - Just to love, that’s enough; being loved, that’s a bonus.
+ - Preaching is fire in the pulpit that melts the ice in the pew.
+ - You stay successful the same way you became successful.
+ - You don’t get strength for the load; you get strength from the load.
+ - If I and a need meet, God must have had in mind my filling it.
+ - The follower is as important as the leader.
+ - If there’s anything I’d like to preach about, the loudest, other than the Gospel, it’s selfishness. If there’s anything I’d like to impress upon the hearts and minds of my people, it’s to get out of the self life.
+ - If we prepare ourselves for life’s inevitables, we will not be perplexed by life’s transitions.
+ - Nothing is happy until it fulfills the purpose for which it was created by God.
+ - Love is hope when reason despairs.
+ - God’s people cannot be shamed into serving God; they need to be challenged.
+ - It is tragic for our God, Who gave us His Son to die on the cross, to beg us to love Him.
+ - Love is a heavenly quality that is given to prepare men to enjoy the heavenly city more.
+ - Failing is not a disgrace unless you make it the last chapter of your book.
+ - You are as crooked as a bank robber if you do not pay your debts on time.
+ - Everything you declare with your lips will be tested in your life.
+ - I never had a trial I wanted to have, but I never had trial I wasn’t glad I had.
+ - God never gives us anything to do that He does not give us the strength to do.
+ - When you get to the top, raise the top and climb some more.
+ - What we do today is more important than what we plan to do in the future.
+ - The pursuit of things robs me of investing more in the work of Christ.
+ - If you preachers would start winning souls everywhere you go, you wouldn’t have to get a book of illustrations to preach from next Sunday.
+ - God never leads anyone anywhere for money.
+ - Laughter means nothing unless there have been tears.
+ - The best thing I can do for you is to love you.
+ - It is easy to be grateful for a bonus; it is character to be grateful for a salary.
+
+68 quotes

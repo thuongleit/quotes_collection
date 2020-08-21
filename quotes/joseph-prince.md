@@ -1,0 +1,65 @@
+ - Look within, get depressed; Look around, get distressed; Look to Jesus, find perfect rest.
+ - The law condemns the best of us; but grace saves the worst of us.
+ - It will never be about our love for God. It will always be about His magnificent love for us.
+ - One day in God’s grace is equivalent to a thousand days of striving by your own efforts.
+ - Use money and love people. Don’t love money and use people.
+ - Believing that you are the righteousness of God through Christ Jesus and simply receiving the gift of no condemnation gives you the power to go and sin no more.
+ - You are destined to reign in life. You are called by the Lord to be a success, to enjoy wealth, to enjoy health, and to enjoy a life of victory. It is not the Lord’s desire that you live a life of defeat, poverty, and failure.
+ - We don’t fight for victory, we fight from victory.
+ - You are transformed by beholding, not by working.
+ - What you believe is powerful. If you can change what you believe, you can change your life!
+ - The cure for a lonely heart is to be alone with Jesus!
+ - God does not leave you wondering whether you are saved or not. He tells you outright that you are His and that nothing can ever separate you from the love of Christ. Not even sin because His blood is greater than your sin!
+ - Come to God for your healing. Don’t hesitate. God, who is so full of goodness and supply, is always willing to bless, preserve, heal and restore you.
+ - Right believing produces right living.
+ - Laughter is God’s blessing.
+ - Don’t just cope, walk in victory.
+ - Faith is having a good opinion of God. That God is a good God. He is not a taker but a give!!!
+ - Grace is the truth that Jesus came to give us.
+ - Sin does not stop God’s grace from flowing, but God’s grace will stop sin.
+ - Only those who are built up can build others up, amen?
+ - The way of grace is dependent, I cannot but He can.
+ - Don’t use all your health to chase after wealth, only to spend all your wealth later to get back your health.
+ - For generations, the body of Christ has been defeated and put under a constant siege of condemnation from the accuser because they believe wrongly that the Holy Spirit convicts believers of their sins.
+ - The gospel of grace is not the license to sin. On the contrary, it is the power for them to sin no more!
+ - Only the holy spirit, the spirit of the lord, can transform us.
+ - As you walk in God’s divine wisdom, you will surely begin to see a greater measure of victory and good success in your life.
+ - The law is about you looking at yourself. The new covenant is all about you seeing Jesus.
+ - The only reason I don’t want to commit adultery is because I love my wife and I love my lord.
+ - God is righteous in making the sinner righteous.
+ - Grace is not a theology. It is not a subject matter. It is not a doctrine. It is a person, and his name is Jesus. That’s the reason the Lord wants you to receive the abundance of grace, for to have the abundance of grace is to have the abundance of Jesus.
+ - We are not forgiven because we are good. We are forgiven because Christ bore our sins.
+ - Grace isn’t a license to sin; it’s a license from sin.
+ - Under grace, God is the blesser and you, the blessed. Can you simply take your place?
+ - Even when you have failed, Jesus is right there with you, ready to pick you up and restore you to wholeness. Jesus is a faithful, dependable and trustworthy friend.
+ - You have all these things not because you deserve them, but because Jesus shed His blood and gave you the right to have them. All these blessings are yours today because God is for you! And if God is for you, who can be against you!
+ - Every time your faith is strengthened as you hear the Word, release it through your mouth to receive your miracle, for God’s Word is out to prosper you!
+ - The world looks at what you have, while God sees who you have. The world’s system is based on what you have done, while God looks at what Jesus has done on the cross for you.
+ - I’m not saying everything out there is bad and toxic, but there are some things that are not scriptural. For example, some people don’t understand that the law was given by Moses, but grace and truth came by Jesus Christ.
+ - His grace is cheapened when you think that He has only forgiven you of your sins up to the time you got saved, and after that point, you have to depend on your confession of sins to be forgiven. God’s forgiveness is not given in installments.
+ - Knowing that you are completely forgiven destroys the power of sin in your life.
+ - God does not keep an itemized account of all your failures.
+ - Jesus sat down to demonstrate to us that the work is indeed finished.
+ - When we are fearful and worried all the time, we are living as if we don’t believe that we have a strong and able Shepherd who is tenderhearted toward us, who only leads us to good places, who protects us and lovingly watches over us.
+ - Beloved, pursue Jesus and you will experience wisdom in every area of your life. You cannot try to earn, deserve or study to acquire God’s wisdom. It comes by His unmerited favor. His wisdom will give you good success in your career. It will cause you to succeed as a student, parent or spouse.
+ - Wrong believing puts people in a prison. Right believing is a light that illuminates the path to freedom out of this prison.
+ - Prayer means dependence on the Lord.
+ - Freedom, my friend, can only be found in His grace.
+ - Listen with grace, with no judgment, without imposing the law.
+ - One of the best ways to practice the presence of the Lord is to thank Him all the time.
+ - What we need today are not more laws to govern believers. What we need is a greater revelation and appreciation of Jesus and everything that He has done for us!
+ - The law never tells you to pray.
+ - Do you clean yourself before you take a bath?
+ - There are seminars that teach us how to cope with depression, sickness and relationship break down. But God wants us to overcome.
+ - Today, begin to believe right by choosing to know and believe in the powerful truths of God’s Word and in His love for you.
+ - God wants to light your way.
+ - What you believe is very powerful. If you have toxic emotions of fear, guilt and depression, it is because you have wrong thinking, and you have wrong thinking because of wrong believing.
+ - You cannot mock God because whatever good thing you do, you’re gonna reap for it.
+ - Isn’t it interesting that God appears holy when he’s gracious?
+ - You are exactly like Jesus when you are wearing his armor.
+ - My friend, God wants to throw a beam of light on your path today.
+ - The time of Jesus and grace has come.
+ - Of all the people on Earth, the prefect and the greatest Man prayed.
+ - A lot of things we don’t have to have, but they’re enjoyable.
+
+63 quotes

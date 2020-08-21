@@ -1,0 +1,38 @@
+ - Amateurs study tactics; professionals study logistics.
+ - Set your course by the stars, not by the lights of every passing ship.
+ - Bravery is the capacity to perform properly even when scared half to death.
+ - The second best decision in time is infinitely better than the perfect decision too late.
+ - I learned that good judgment comes from experience and that experience grows out of mistakes.
+ - In war there is no second prize for the runner-up.
+ - This is as true in everyday life as it is in battle: we are given one life and the decision is ours whether to wait for circumstances to make up our mind, or whether to act, and in acting, to live.
+ - The world has achieved brilliance without conscience. Ours is a world of nuclear giants and ethical infants.
+ - Dependability, integrity, the characteristic of never knowingly doing anything wrong, that you would never cheat anyone, that you would give everybody a fair deal. Character is a sort of an all-inclusive thing. If a man has character, everyone has confidence in him.
+ - War: A wretched debasement of all the pretenses of civilization.
+ - Leadership means firmness, not harshness or bullying; understanding, not weakness; justice, not irresponsible freedom; humaneness, not intolerance; generosity, not selfishness; pride, not egotism.
+ - The greatness of a leader is measured by the achievements of the led. This is the ultimate test of his effectiveness.
+ - A piece of paper makes you an officer, a radio makes you a commander.
+ - Wars can be prevented just as surely as they can be provoked, and we who fail to prevent them, must share the guilt for the dead.
+ - We’ve learned how to destroy, but not to create; how to waste, but not to build; how to kill men, but not how to save them; how to die, but seldom how to live.
+ - Leadership is intangible, and therefore no weapon ever designed can replace it.
+ - With the monstrous weapons man already has, humanity is in danger of being trapped in this world by its moral adolescents.
+ - We have grasped the mystery of the atom and rejected the sermon on the mount.
+ - The nation needs men who think in terms of service to their country and not in terms of their country’s debt to them.
+ - Our humanity is trapped by moral adolescents. We have too many men of science, too few men of God. The world has achieved brilliance without wisdom and power without conscience.
+ - Only one military organization can hold and gain ground in war-a ground army supported by tactical aviation with supply lines guarded by the navy.
+ - Our technology has already outstripped our ability to control it.
+ - We are dealing with veterans, not procedures; with their problems, not ours.
+ - Ours is a world of nuclear giants and ethical infants. We know more about war that we know about peace, more about killing that we know about living.
+ - If we continue to develop our technology without wisdom or prudence, our servant may prove to be our executioner.
+ - Airpower has become predominant, both as a deterrent to war, and-in the eventuality of war-as the devastating force to destroy an enemy’s potential and fatally undermine his will to wage war.
+ - Every member of our baseball team at West Point became a general: this proves the value of team sports.
+ - America today is running on the momentum of a godly ancestry, and when that momentum runs down, God help America.
+ - The greatest leader in the world could never win a campaign unless he understood the men he had to lead.
+ - The way to win an atomic war is to make certain it never starts.
+ - Peace is our goal but preparedness is the price we must pay.
+ - As far as I am concerned, war itself is immoral.
+ - If you will help run our government in the American way, then there will never be any danger of our government running America in the wrong way.
+ - I am convinced that the best service a retired general can perform is to turn in his tongue along with his suit and to mothball his opinions.
+ - Each player on this team whether he shines in the spotlight or eats dirt on the line, must be an All-American.
+ - It seems very unfortunate that in order to secure political preference, people are made Vice President who are never intended, neither by party nor by the Lord, to be Presidents.
+
+36 quotes

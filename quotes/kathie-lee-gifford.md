@@ -1,0 +1,54 @@
+ - I don’t believe in coincidence. I just think that all things work together for good.
+ - If you settle for what you’ve got, you deserve what you get.
+ - Trust takes one second to lose and a lifetime to rebuild.
+ - Love in the real world means saying you’re sorry 10 times a day.
+ - Sexual harassment is complex, subtle, and highly subjective.
+ - I’m not a fan of religion. Religion ties people up and binds them and puts them back in chains but faith – true relationship – releases us to be all what God ever intended us to be. That’s what I’m interested in.
+ - A fear of the unknown keeps a lot of people from leaving bad situations.
+ - I’m post-menopausal. I have nothing but time. Post-menopausal do not sleep. You obviously don’t know one. We get about three hours of sleep a night and the rest of the time we have to do something productive with our time.
+ - I sang with Anita Bryant in the Southern Baptist churches.
+ - I hate politics, hate deals, and deal-making, hate meeting with attorneys and agents.
+ - I change my hairstyle every day for the show, I’m fastidious and vain about my nails and teeth and grooming and makeup, but a perfect body, forget it. Dust to dust, wuggies to wuggies.
+ - I believe it was Today show fourth-hour host Kathie Lee Gifford who said, ‘If drag queens love you, you’ll have the longest career in the world. They know phony and they know real.’
+ - I think when you’ve gone through a betrayal in life then when somebody’s been betrayed you can talk to the person about it. If your husband’s been unfaithful to you, you know what that’s like, you know how that feels. You can share true empathy with someone.
+ - A two-career couple with children is a complex, sensitive piece of machinery with lots of moving parts. Anything less than total cooperation will throw it out of whack and shut it down. A couple can wind up paying the ultimate price for trying to have it all – losing it all.
+ - No wonder women have achieved a more equal footing with men in areas they never fought for – ulcers, hypertension, and heart attacks. We’re racing around trying to be all things to all people, burdened by a brutal mix of ambition, anxiety, and guilt.
+ - What most people perceive as energy is really strength of spirit. It comes from the joy of knowing God, loving Him, and being loved by Him.
+ - I like sitting in the dark and watching people far more talented than I’ll ever be sing my songs and say my words. It’s thrilling.
+ - We’re imperfect people trapped in an imperfect world until we get to that place beyond.
+ - If I’m in love I want to get married. That’s how stupid I am.
+ - Mom thinks I live in this dream world where everybody’s Ivana Trump.
+ - I did feel from day one that I was a born performer.
+ - Twenty-four hours is never enough for a busy person and way too much for somebody with nothing to do.
+ - God didn’t bless me with success so I could eat caviar every day.
+ - They don’t call me spontaneous and irreverant for nothing.
+ - Just because I’m happy doesn’t mean I’m shallow.
+ - Our culture is in moral chaos. On TV we celebrate freaks instead of honest, decent people.
+ - I would never want to hurt anyone by writing a book.
+ - I think sometimes the very reason we go through something is so that we can be empathetic with another person later on.
+ - If I prayed as much as I pluck, I’d be the Dalai Lama.
+ - I have empathy for the person who is being interviewed and written about with all kinds of misperceptions and misconceptions and flat-out lies. So I feel for them, I feel their pain. I know what that is like.
+ - I want to be free and free indeed and live and live abundant!
+ - I was told all my life I was part Cherokee. Then it was Crow. The latest is Blackfoot.
+ - For many people religion can be so easy they stumble right over it.
+ - Love someone too much to help them prevent making a mistake.
+ - I wasn’t ever interested in marrying someone else’s career or bank account.
+ - Life seemed so simple and joyous when I was growing up.
+ - Other kids did drugs; I did crafts. I never knew where I fit in.
+ - People may be in awe of perfection, but they warm to humanity.
+ - We heard stories about fakery and decoys at revivals. I never personally saw any trickery.
+ - If I could learn to treat triumph and disaster the same, then I would find bliss.
+ - I once said the Queen of England could use some fashion advice.
+ - It’s no secret that I love to talk, but the real secret is I love to listen, too.
+ - Over the years my mom has become a self-taught Biblical scholar.
+ - There was no way we’d ever get spoiled. Daddy made sure to instill in us a work ethic.
+ - To this day I do not believe I’m great at anything.
+ - People were referring to me as the new Anita Bryant. Anita would get a little jealous.
+ - The payoffs in showbiz seemed as random as a slot machine.
+ - Miracles is the sort of book that once you’ve read it you’ll wonder where it’s been all your life.
+ - If you can do something with your eyes closed, it is time to try something new.
+ - When I was almost 13 I was ripe for religion. I was actually just plain ripe.
+ - For every sleazeball in the business there are plenty of decent and wonderful people.
+ - To me an audition is 30 crazed people in a room waiting to be axed.
+
+52 quotes

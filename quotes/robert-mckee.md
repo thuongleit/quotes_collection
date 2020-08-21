@@ -1,0 +1,55 @@
+ - Storytelling is the most powerful way to put ideas into the world today.
+ - True character is revealed in the choices a human being makes under pressure – the greater the pressure, the deeper the revelation, the truer the choice to the character’s essential nature.
+ - Writing is a marathon, not a sprint.
+ - Do research. Feed your talent. Research not only wins the war on cliche, it’s the key to victory over fear and it’s cousin, depression.
+ - Stories are the creative conversion of life itself into a more powerful, clearer, more meaningful experience. They are the currency of human contact.
+ - All writing is discipline, but screenwriting is a drill sergeant.
+ - A fine work of art – music, dance, painting, story – has the power to silence the chatter in the mind and lift us to another place.
+ - Life is chaotic and meaningless, and you have to find your meaning. You must find the answer, you can’t just live. That’s the point of story: helping you find your meaning in life.
+ - To connect to people at the deepest level, you need stories.
+ - Anxious, inexperienced writers obey rules. Rebellious, unschooled writers break rules. Artists master the form.
+ - When you do enough research, the story almost writes itself. Lines of development spring loose and you’ll have choices galore.
+ - To get the truth, you want to get your own heart to pound while you write.
+ - We rarely know where we are going; writing is a discovery.
+ - Secure writers don’t sell first drafts. They patiently rewrite until the script is as director-ready, as actor-ready as possible. Unfinished work invites tampering, while polished, mature work seals its integrity.
+ - When we want mood experiences, we go to concerts or museums. When we want meaningful emotional experience, we go to the storyteller.
+ - Influence is just persuasion in slow motion.
+ - Most of life’s actions are within our reach, but decisions take willpower.
+ - Don’t be didactic – don’t write about poverty. Write about poor people. When you dramatize their lives and let life and characters be your inspiration, you will express the ‘idea’ dynamically and without preaching.
+ - Talent without craft is like fuel without an engine, it burns wildly but accomplishes nothing.
+ - Ninety percent of what we create is not our best work.
+ - If you can’t play all the instruments in the orchestra of story, no matter what music may be in your imagination, you’re condemned to hum the same old tune.
+ - Of all the reasons for wanting to write, the only one that nurtures us through time is love of the work itself.
+ - Stories build cultures by answering the big questions.
+ - In life two negatives don’t make a positive. Double negatives turn positive only in math and formal logic. In life things just get worse and worse and worse.
+ - Story is about eternal, universal forms, not formulas.
+ - The universal erosion of values has lead to the universal erosion of story.
+ - Never sleep with anybody who has more problems than you do.
+ - A culture cannot evolve without honest, powerful storytelling. When a society repeatedly experiences glossy, hollowed-out, pseudo-stories, it degenerates. We need true satires and tragedies, dramas and comedies that shine a clean light into the dingy corners of the human psyche and society.
+ - There is no screenplay-writing recipe that guarantees your cake will rise.
+ - Classical design is a mirror of the human mind. It’s how we see the world.
+ - The dirty secret of art is you don’t have to show people your bad writing. That’s what we have the delete key for.
+ - We often put off doing something for as long as possible, then as we finally make the decision and step into the action, we’re surprised by its relative ease. We’re left to wonder why we dreaded it until we realize that most of life’s actions are within our reach, but decisions take willpower.
+ - No matter our talent, we all know in the midnight of our souls that 90 percent of what we do is less than our best.
+ - Stories are how we remember; we tend to forget lists and bullet points.
+ - No civilization, including Plato’s, has ever been destroyed because its citizens learned too much.
+ - The material of literary talent is words; the material of story talent is life itself.
+ - What happens is fact, not truth. Truth is what we think about what happens.
+ - The mark of a master is to select only a few moments, but give us a lifetime.
+ - Stories are the currency of human relationships.
+ - In a world of lies and liars, an honest work of art is always an act of social responsibility.
+ - Leaders use story to author the future.
+ - God help you if you use voice-over in your work, my friends. God help you. That’s flaccid, sloppy writing. Any idiot can write a voice-over narration to explain the thoughts of a character.
+ - Politics is the name we give to the orchestration of power in any society.
+ - In comedy laughter settles all arguments.
+ - It seems to me that the civilized human being is a skeptic someone who believes nothing at face value.
+ - Oh, by the way, I tend to use a lot of profanities. I do that for a reason: I like it.
+ - Story is metaphor for life and life is lived in time.
+ - The Business story is designed to trigger the listener to take an effective action. If it doesn’t, the story fails.
+ - Boredom is the inner conflict we suffer when we lose desire, when we lack a lacking.
+ - Given the choice between trivial material brilliantly told versus profound material badly told, an audience will always choose the trivial told brilliantly.
+ - I cannot be a character in a bad movie. I can’t be.
+ - The students realize that it’s their life I’m talking about: it’s out of balance, they’re struggling to put it into balance. How are they going to do it?
+ - Angry contradiction of the patriarch is not creativity; it’s delinquency calling for attention. Difference for the sake of difference is as empty an achievement as slavishly following the commercial imperative.
+
+53 quotes

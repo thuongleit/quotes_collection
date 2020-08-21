@@ -1,0 +1,23 @@
+ - If you control your distribution, you control your image.
+ - Affordable luxury – these are two words that don’t go together.
+ - I think in business, you have to learn to be patient. Maybe I’m not very patient myself. But I think that I’ve learned the most is be able to wait for something and get it when it’s the right time.
+ - I meet the designers very often, we discuss the products, they show me their ideas, we discuss the ad campaigns and every new invention that we can find for the future.
+ - Louis Vuitton, the world’s biggest luxury brand in terms of sales, is planning to dampen its expansion worldwide and focus on high-end products to preserve its exclusive image.
+ - When something has to be done, do it! In France we are full of good ideas, but we rarely put them into practice.
+ - A good product can last forever.
+ - When I was working in my first job engineering construction, what I liked the most was working with architects and making buildings that had this creative side coming from the architect and that were making them a big success.
+ - It is not enough to have a talented designer; the management must be inspired too. The creative process is very disorganised; the production process has to be very rational.
+ - When you are on the management side, you still have to understand the artistic sensibility so that there is a dialogue with the creative side.
+ - What we do in our group is the opposite of the bad effects of globalization. We produce in Italy and in France and we sell to China, when usually it’s the opposite.
+ - I take time to get close to, and I don’t immediately throw my arms round someone.
+ - I like that combination between creativity and the creative process and the organization needed to make a business like this successful worldwide.
+ - If you deeply appreciate and love what creative people do and how they think, which is usually in unpredictable and irrational ways, then you can start to understand them. And finally, you can see inside their minds and DNA.
+ - Once we decided to do a tower in New York, it had to say something about our group, reflecting the mix of modernity and creativity in our organization. It’s a symbol.
+ - I’ve always been pleased with the investments I’ve made with my friend Albert Frere and I regret not having followed him more, because I would have been a lot richer.
+ - Luxury goods are the only area in which it is possible to make luxury margins.
+ - In the luxury business, you have to build on heritage.
+ - From time to time, the Vienna Philharmonic could play without a conductor because they are so good.
+ - Oh, I was brought up in the north of France, and I had a very enjoyable childhood with my family working as entrepreneur.
+ - I am and will remain a tax resident in France and in this regard I will, like all French people, fulfill my fiscal obligations.
+
+21 quotes

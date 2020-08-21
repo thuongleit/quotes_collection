@@ -1,0 +1,31 @@
+ - I lost my virginity when I was 6 years old.
+ - I’ll tell you one thing you can’t do: you can’t put your shoes on, then your socks on.
+ - The moments we have behind us, you won’t be able to see again. We’re only responsible for what we live in right now.
+ - I want a girl who looks good when she wakes up in the morning. We could take her face and dip it in dough and she’ll make some nice-face cookies. Some girls wake up, man, you could put their face in dough and you’ll get a gorilla cookie, for real!
+ - So get up, get, get get down 911 is a joke in yo town.
+ - One thing you can’t do with babies, you can’t give them steak.
+ - I wear my Viking helmet because the horns define how sharp my brains are. If you try to rub me the wrong way, I will stick you with both of my horns.
+ - The hype man’s job is to get everybody out of their seats and on the dance floor to have a good time.
+ - I just want to show the world it’s never too late to get your diploma, and show kids they should stay in school and not wait until you’re old to get it.
+ - If I do look back, I’ll say that I’m blessed. I’m blessed, and I appreciate God for not only letting me live through everything, but to prosper.
+ - Definitely, I think I’m a life coach for real. The lessons I give are lessons you can take to the bank.
+ - I’m not doing no more ‘Flavor of Loves.’ I’m trying to grow. I don’t want to stay on the same page. You can’t stay on the same page in order to get to the next chap.
+ - I’m trying to grow. I don’t want to stay on the same page.
+ - Best advice that I ever got is to do whatever it takes to make myself happy, so that I’ll be able to make others happy. If I’m not happy, I can’t make other people happy.
+ - I got a lot happening, a whole lot, and it’s not always easy being me.
+ - I got my degree in culinary arts in 1978.
+ - I have over a hundred clocks. I’ve got fancy clocks and clocks from all over the world that people made for me.
+ - When I was in jail, I was a lot of people’s favorite person. I practically ran the jail. I had more freedom than the police.
+ - I look more to the future. That’s where my head is at.
+ - Doing scripted acting is a challenge to me. I can’t remember things too good, so remembering lines is a challenge to your boy.
+ - Honestly, Flav is not much of a video game player these days. BUT, I used to spend hours on Time Crisis. I beat all levels, man.
+ - I try and spend a lot of time with my kids. I try and have fun with my kids. I try to put father time in there.
+ - I’m a real big celebrity. I’m this megastar.
+ - We never broke up. As long as I’m living and as long as Chuck D is living, Public Enemy is always going to be alive.
+ - Queen Latifah used to help me out with my kids, because while we were all out on tour – Public Enemy, Naughty By Nature, Queen Latifah, Heavy D – when Public Enemy went onstage, I didn’t have anybody solid to watch my kids. So, Latifah would help me out.
+ - What I’m trying to do is put back into rap music what’s missing – which is the good part, the fun part, that party part.
+ - My parents owned a soul food diner. It inspired me to go to culinary school.
+ - I worked as a head cook at courthouses and high schools. I left it behind when I started getting into my music real heavy.
+ - I set our house on fire when I was a little child playing with lighters. Boy, did I burn the place down!
+
+29 quotes

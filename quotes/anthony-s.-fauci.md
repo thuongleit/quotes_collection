@@ -1,0 +1,33 @@
+ - I believe in striving for excellence. I sweat the big and small stuff! I do not apologize for this.
+ - Activism has been very productive in our society.
+ - I believe I have a personal responsibility to make a positive impact on society.
+ - The worst potential bio-terrorist is nature itself.
+ - The bodys immune system is like any other system of the body. Each of them have their vital function for the human host.
+ - You help someone’s health, and you prevent them from infecting others.
+ - One of the by-products of being a perfectionist and constantly trying to improve myself are sobering feelings of low-grade anxiety and a nagging sense of inadequacy This anxiety keeps me humble.
+ - The immune systems goal is to protect the body against invaders either from without, such as microbes, or from within, such as cancers and different types of neoplastic transformation.
+ - The nature of a protective immune response to HIV is still unclear. Because in a very, very unique manner, unlike virtually any other microbe with which we’re familiar, the HIV virus has evolved in a way that the immune system finds it very difficult, if not impossible, to deal with the virus.
+ - Science is telling us that we can do phenomenal things if we put our minds and our resources to it.
+ - When I was a child, there were not that many vaccines. I was vaccinated for polio. I actually got measles as a child. I got pertussis, whooping cough. I remember that very well.
+ - Although it is still important to develop an HIV vaccine, we have significant tools already at our disposal that can make a major impact on the trajectory of this epidemic.
+ - You can have an epidemic in a state. You can have it in a region. You can have it in a country where the critical level of disease passes a certain threshold, and we call that an epidemic threshold.
+ - Investigating rare diseases gives researchers more clues about how the healthy immune system functions.
+ - Today we know the best way to prevent the spread of Ebola infection is through public health measures.
+ - When you put someone on therapy, you lower the level of virus such that it makes it very difficult for them to infect others.
+ - The world is a place that is so interconnected that what happens in another part of the world will impact us.
+ - The chances of there being transmissibility by blood to blood contact on a basketball court is so infinitesimally small that it is something that shouldn’t influence a decision whether someone would come back or not.
+ - I run a modest-sized laboratory thats looking specifically at what we call the pathogenic mechanisms of HIV disease, or AIDS.
+ - We feel confident that there won’t be an outbreak.
+ - I enjoy very much communication. I think that scientists need to communicate.
+ - Staph lives on skin. Thats the reason why many infections start as a boil.
+ - There has been treatment for hepatitis C, but the treatment has not been overwhelmingly effective, number 1. And number 2, it has had considerable toxicity.
+ - Previous efforts to eradicate malaria failed for several reasons, including political instability and technical challenges in delivering resources, especially in certain countries in Africa.
+ - A pandemic influenza would mean widespread infection essentially throughout every region of the world.
+ - We can sharply deflect the curve of HIV incidence.
+ - There cannot be any impediment to science that will ultimately be good to the general public.
+ - The launch of phase 1 Ebola vaccine studies is a first step in developing a vaccine that could be licensed and used in the field to protect not only the front line health care workers but also those living in areas where Ebola virus exists.
+ - Testing two vaccines against different H1N1s at the same time has never been done.
+ - When a company is fairly certain of a profit margin that is substantial, it can assume responsibility for the clinical trials to develop a blockbuster drug.
+ - Im generally considered a conservative in my predictions for disease.
+
+31 quotes

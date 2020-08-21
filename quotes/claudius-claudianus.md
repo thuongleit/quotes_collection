@@ -1,0 +1,31 @@
+ - Death is the great leveller.
+ - He who seeks to terrify others is more in fear himself.
+ - Whoever desires is always poor.
+ - What Roman power slowly built, an unarmed traitor instantly overthrew.
+ - Virtue when concealed is a worthless thing.
+ - Nature has given the opportunity of happiness to all, knew they but how to use it.
+ - Lust, forgetful of future suffering, hurries us along the forbidden path.
+ - Death renders all equal.
+ - The afflictions to which we are accustomed, do not disturb us.
+ - The fickle populace always change with the prince.
+ - The people become more observant of justice, and do not refuse to submit to the laws when they see them obeyed by their enactor.
+ - Virtue is indeed its own reward.
+ - Nature has placed his own happiness in each man’s hands, if he only knew how to use it.
+ - Alas! by what slight means are great affairs brought to destruction.
+ - They are raised on high that they may be dashed to pieces with a greater fall.
+ - Here is a fine field for talent.
+ - Nor is heaven always at peace.
+ - Alas! the slippery nature of tender youth.
+ - Nothing is more annoying than a low man raised to a high position.
+ - Nothing can allay the rage of biting envy.
+ - He is next to the gods whom reason, and not passion, impels; and who, after weighing the facts, can measure the punishment with discretion.
+ - The noblest character is stained by the addition of pride.
+ - Luxury, that alluring pest with fair forehead, which, yielding always to the will of the body, throws a deadening influence over the senses, and weakens the limbs more than the drugs of Circe’s cup.
+ - Men live best upon a little; Nature has given to all the privilege of being happy, if they but knew how to use their gifts.
+ - Power call achieve more by gentle means than by violence.
+ - A severe war lurks under the show of peace.
+ - Liberty begets license.
+ - The people are fashioned according to the example of their kings; and edicts are of less power than the life of their ruler.
+ - Clemency alone makes us equal to the gods.
+
+29 quotes

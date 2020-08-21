@@ -1,0 +1,96 @@
+ - Life will break you. Nobody can protect you from that, and living alone won’t either, for solitude will also break you with its yearning. You have to love. You have to feel. It is the reason you are here on earth.
+ - Of course, English is a very powerful language, a colonizer’s language and a gift to a writer. English has destroyed and sucked up the languages of other cultures – its cruelty is its vitality.
+ - We do know that no one gets wise enough to really understand the heart of another, though it is the task of our life to try.
+ - There is no such thing as a complete lack of order, only a design so vast it appears unrepetitive up close.
+ - Things which do not grow and change are dead things.
+ - When women age into their power, no wind can upset them, no hand turn aside their knowledge, no fact can deflect their point of view.
+ - When we are young, the words are scattered all around us. As they are assembled by experience, so also are we, sentence by sentence, until the story takes shape.
+ - I think she is confused by the way I want her, which is like nobody else. I know this deep down. I want her in a new way, a way she’s never been told about.
+ - When every inch of the world is known, sleep may be the only wilderness that we have left.
+ - So what is wild? What is wilderness? What are dreams but an internal wilderness and what is desire but a wildness of the soul?
+ - We started dying before the snow, and like the snow, we continued to fall.
+ - Now that I knew fear, I also knew it was not permanent. As powerful as it was, its grip on me would loosen. It would pass.
+ - If life’s a joke, then suicide’s a bad punch line.
+ - Right and wrong were shades of meaning, not sides of a coin.
+ - I stood there in the shadowed doorway thinking with my tears. Yes, tears can be thoughts, why not?
+ - We passed over in a sweep of sorrow that would persist into our small forever. We just keep going.
+ - Power travels in the bloodlines, handed out before birth.
+ - It was just enough to sit there without words.
+ - What happens when you let an unsatisfactory present go on long enough? It becomes your entire history.
+ - Her clothes were filled with safety pins and hidden tears.
+ - All through my life I never did believe in human measurement. Numbers, time, inches, feet. All are just ploys for cutting nature down to size. I know the grand scheme of the world is beyond our brains to fathom, so I don’t try, just let it in.
+ - You have to love. You have to feel. It is the reason you are here on earth. You are here to risk your heart.
+ - Our songs travel the earth. We sing to one another. Not a single note is ever lost and no song is original. They all come from the same place and go back to a time when only the stones howled.
+ - Love won’t be tampered with, love won’t go away. Push it to one side and it creeps to the other.
+ - He had a thousand-year-old stare.
+ - History works itself out in the living.
+ - There are ways of being abandoned even when your parents are right there.
+ - Columbus only discovered that he was in some new place. He didn’t discover America.
+ - Women don’t realize how much store men set on the regularity of their habits. We absorb their comings and goings into our bodies, their rhythms into our bones.
+ - To sew is to pray. Men don’t understand this. They see the whole but they don’t see the stitches. They don’t see the speech of the creator in the work of the needle.
+ - By the time I was done with the car it looked worse than any typical Indian car that has been driven all its life on reservation roads, which they always say are like government promises – full of holes.
+ - The greatest wisdom doesn’t know itself. The richest plan is not to have one.
+ - Hunger steals the memory.
+ - In order to purify yourself, you have to understand yourself, Father Trais went on. Everything out in the world is also in you. Good, bad, evil, perfection, death, everything. So we study our souls.
+ - Ravens are the birds I’ll miss most when I die. If only the darkness into which we must look were composed of the black light of their limber intelligence. If only we did not have to die at all. Instead, become ravens.
+ - Here I am, where I ought to be. A writer must have a place where he or she feels this, the place to love and be irritated with.
+ - Death is the least civilized rite of passage.
+ - Society is like this card game here, cousin. We got dealt our hand before we were even born, and as we grow we have to play as best as we can.
+ - Our tribe unraveled like a coarse rope, frayed at either end as the old and new among us were taken.
+ - I don’t pray. When I was young, I vowed I never would be caught begging God. If I want something I get it for myself. I go to church only to show the old hens they don’t get me down.
+ - Time was rushing around me like water around a big wet rock. The only difference is, I was not so durable as stones. Very quickly I would be smoothed away.
+ - Your life feels different on you, once you greet death and understand your heart’s position.
+ - Each life is one short word slowly uttered.
+ - I spend my time dwelling on revenge and try to deal with the monsters crawling out of the ashes.
+ - By writing I can live in ways that I could not survive.
+ - Women are strong, strong, terribly strong. We don’t know how strong until we’re pushing out our babies.
+ - Life is made up of three kinds of people – those who live it, those afraid to, those in between.
+ - Be lovely and do no harm.
+ - What men call adventures usually consist of the stoical endurance of appalling daily misery.
+ - But if there was embellishment, it only had to do with the facts.
+ - I got well by talking. Death could not get a word in edgewise, grew discouraged, and traveled on.
+ - To be of mixed blood is a great gift for a writer. I have one foot on tribal lands and one foot in middle-class life.
+ - I did not choose solitude. Who would? It came on me like a kind of vocation, demanding an effort that married women can’t picture.
+ - What is this life but the sound of an appalling love.
+ - I was in love with the whole world and all that lived in its rainy arms.
+ - Old love, middle love, the kind of love that knows itself and knows that nothing lasts, is a desperate shared wildness.
+ - Numbers, time, inches, feet. All are just ploys for cutting nature down to size.
+ - I thought how we might have to yell to be heard by Higher Power, but that’s not saying it’s not there. And that is faith for you. It’s belief even when the gods don’t deliver.
+ - The only time I see the truth is when I cross my eyes.
+ - People forget the good, because the bad has more punch.
+ - All of our actions have in their doing the seed of their undoing.
+ - There is a legacy of violence against native women that has gotten worse and worse over time.
+ - I knew each person’s delusion, the places their records had scratched, where the sounds repeated.
+ - They were so strong in their beliefs that there came a time when it hardly mattered what exactly those beliefs were; they all fused into a single stubbornness.
+ - The universe is transformation.
+ - Every so often something shatters like ice and we are in the river of our existence. We are aware.
+ - The world tips away when we look into our children’s faces.
+ - You know, some people fall right through the hole in their lives. Its invisible, but they come to it after time, never knowing where.
+ - Freedom, I found is not only in the running but in the heart, the mind, the hands.
+ - He despised his body for its boring hungers, reflex anger; its petty, obliterating rage. But now he’d become detached. He regarded his body with a tender regret. It was the thing his spirit had to haul.
+ - It’s impossible to write about Native life without humor-that’s how people maintain sanity.
+ - It kills your writing if you try to manipulate it with crude politics.
+ - The music was more than music – at least what we are used to hearing. The music was feeling itself. The sound connected instantly with something deep and joyous.
+ - I tried out the unfamiliar syllables. They fit. They cracked in my ears like a fist through ice.
+ - Can you stop your mother from singing to you? Who would do such a thing?
+ - We are never so poor that we cannot bless another human being, are we? So it is that every evil, whether moral or material, results in good. You’ll see.
+ - The length of sky is just about the size of my ignorance. Pure and wide.
+ - There are people who are always, I think, going to remain people of the book, to use another author’s title, but people of the book, who really must be around.
+ - I prefer to have some beliefs that don’t make logical sense.
+ - A woman’s body is the gate to this life. A man’s body is the gate to the next life.
+ - To think about love and passion and political correctness all together, it doesn’t work. Art has to go way past the political to be effective.
+ - I feel myself becoming less a person than a place, inhabited, a foreign land.
+ - I am part of what she thinks is her illness, a symptom of which she thinks she has been cured. She, on the other hand, is what I was looking for.
+ - When small towns find they cannot harm the strangest of their members, when eccentrics show resilience, they are eventually embraced and even cherished.
+ - Love. The black hook. The spear singing through the mind.
+ - You never know where you’re going to find the same thoughts in another brain, but when it happens you know it right off, just like you were connected by a small electrical wire that suddenly glows red hot and sparks.
+ - I truly think that you can’t go and stalk your material, you have to leave the door open and whatever chooses you, chooses you. You can’t go and wrestle it to the ground.
+ - The contents of a house can trigger all sorts of revisions to family history.
+ - Veils of love which was only hate petrified by longing – that was me.
+ - I think one of the reasons to be here on earth is to finally be who we are, at all times – to know and be predictable to ourselves.
+ - I have always kept notebooks and I go back to them over and over. They are my compost pile of ideas.
+ - We all got holes in our lives. Nobody dies in a perfect garment.
+ - There will never come a time when I will be able to resist my emotions.
+ - Money helps, though not so much as you think when you don’t have it.
+
+94 quotes

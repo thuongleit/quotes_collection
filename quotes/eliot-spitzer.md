@@ -1,0 +1,56 @@
+ - Global warming threatens our health, our economy, our natural resources, and our children’s future. It is clear we must act.
+ - Never write when you can talk. Never talk when you can nod. And never put anything in an e-mail.
+ - Yes, people pull the trigger – but guns are the instrument of death. Gun control is necessary, and delay means more death and horror.
+ - I believe in an evolving Constitution. A flexible Constitution leaves room for us to consider not merely how the world once was, but how it ought to be.
+ - After 25-plus years as a lawyer, prosecutor, and defense attorney, I have developed a deep appreciation for both the wisdom of the law and the role that jurists play in framing the rights and responsibilities that define our society.
+ - From those to whom much is given, much is expected. I have been given much – the love of my family, the faith and trust of the people of New York, and the chance to lead this state. I am deeply sorry that I did not live up to what was expected of me.
+ - Our criminal justice system is fallible. We know it, even though we don’t like to admit it. It is fallible despite the best efforts of most within it to do justice. And this fallibility is, at the end of the day, the most compelling, persuasive, and winning argument against a death penalty.
+ - The pace of global warming is accelerating and the scale of the impact is devastating. The time for action is limited – we are approaching a tipping point beyond which the opportunity to reverse the damage of CO2 emissions will disappear.
+ - In the melting pot that is America, inclusive trumps exclusive. Whether it’s single women, young adults, or minorities, alienating the rapidly growing voting blocs is not smart politics.
+ - President Obama is doing the right thing by offering young immigrants, most often in this country through no action of their own, a chance to live and work openly, free from the fear of deportation.
+ - I have disappointed and failed to live up to the standard I expected of myself.
+ - I don’t care about motivation. I care about credibility.
+ - Mitt Romney’s primary season embrace of the social and economic agenda of the more rabid elements of his party doomed him, especially the shrill immigration rhetoric and the harshly insensitive theory that no additional sacrifice or contribution should be sought from those at the top.
+ - Sometimes in politics, you think you’ve seen it all. Turns out I was wrong.
+ - I do not believe that politics in the long run is about individuals. It is about ideas.
+ - As someone with a deep faith in competition and the market, I also know that markets only work with tough enforcement of the rules that guarantee competition and fair play – and that the pressure to break those rules only gets stronger as the amount of money involved gets larger.
+ - A significant piece of the wealth that the NFL owners garner is a result of the enormous TV revenues they get – and those revenues are supported by a legislatively granted exemption from the antitrust laws that has been made applicable to sports leagues, primarily the NFL.
+ - Some say that I should settle down, go slower and not push so hard, so quickly for such transformational change. To them, I say that you misunderstand the size of the problems we face, the strength of the status quo and the urgency of the people’s desire for change.
+ - Jimmy Carter laid out policies that we now look back at and say, ‘Gee, that actually made sense.’ But you also need to explain it and convey and communicate in a way that provides that tableau, that understanding.
+ - I don’t like politicians who vacillate.
+ - It sucks. I used to be governor of New York.
+ - In 2007, when I was governor of New York, I proposed that our state once again permit undocumented immigrants to obtain a driver’s license. To say the proposal lit a firestorm in the political arena is an understatement.
+ - It’s not Big Brother that we now have to be afraid of, but Big Browser.
+ - To every New Yorker – and to all those who believed in what I tried to stand for – I sincerely apologize.
+ - The Tea Party isolated Mitt Romney from mainstream voters, linking him to a rabid ideology that he could not shake as he desperately tried to move to the middle in the closing weeks of the campaign. Lesson: The loudest voices don’t often command the votes needed to win in November.
+ - In politics you learn to always smile.
+ - One of the biggest lies in capitalism is that companies like competition. They don’t. Nobody likes competition.
+ - Power must be used, but it must be tempered by soul-searching and the recognition of our human capacity for error. That is the maxim that should inform our approach to every challenge, from reforming state government to engaging in foreign affairs.
+ - The reason to drive this point home with a vivid and frank comparison is many New Yorkers are still not confronting the reality of how serious our crisis is. It was an exhortation to face reality.
+ - Health care reform, the marquee legislative accomplishment of the Obama administration’s first term, was passed before we entered the world of divided government.
+ - I apologize to the public, whom I promised better.
+ - Public speaking? I speak to myself on the street!
+ - The Occupy movement needs an organizing principle, and – just as the Tea Party did – it needs some actual measures of success. Choose one candidate whose agenda is squarely within that of the movement and make his or her electoral success a focal point.
+ - Why does it have to be politics? Is there a dynamism to that world and a theoretical capacity to do things that draws many talented people? Absolutely. Are there other ways to be involved and lead an interesting life? Of course.
+ - I don’t have any particular expertise-I’ve never been a banker or an investment banker. But I did see an evolution in the system that I thought was problematic.
+ - While their fiscal views aren’t mine, the moderates are the last reasonable voice in the current Republican Party.
+ - My career was obviously cut shorter than I wanted it to be.
+ - The big lie out there, the big lie that the Republicans propagate day after day, is that cutting marginal rates for those at the top is going to create jobs. It’s simply not true.
+ - When you’re in office, there are tangible moments when you can see tangible successes.
+ - I don’t think Michael Bloomberg would say that his greatest skill is delivering the speech. He would say he’s more of a nuts-and-bolts mayor-picking up the trash, dealing with the school system.
+ - A year is an eternity in politics – though less than a moment in history.
+ - Virtually everywhere in the world, people still wake up and want their country to be more like the United States than any other nation. We are the envy of the world because of what we stand for and how our democratic process, flawed as it may often seem to be, operates. We should take pride in that.
+ - It’s time to let science and medicine, not politics and rhetoric, lead us to good, sound policy.
+ - Companies that pollute should be taxed so that a product’s cost to society is reflected in the price of that product.
+ - The Republican argument that raising the debt ceiling encourages additional future spending is logically irresponsible. The debt ceiling has to be raised to authorize spending already approved by Congress. Despite that fallacy, the GOP has been able to score political points with its argument.
+ - Those who are critical of Alliance are the same people who have done nothing for 30 years.
+ - I would say to those who don’t like the metaphor This is reality.
+ - I think President Obama could have handled politics and policies differently. But he has been decisive, strong, and consistent – important qualities in a president. Mitt Romney is indeed an Etch A Sketch, the antithesis of leadership.
+ - Tax rates for the wealthy should revert to Clinton-era levels, both because it is necessary for long-term deficit reduction and because fairness dictates it. Moreover, there is no proof that higher marginal rates dissuade investment, all the rhetoric from the Right notwithstanding.
+ - The world has conducted a massive macro-economic experiment since the cataclysm of 2008. In Europe, the fans of austerity have had their chance, and the results have been a disaster.
+ - I stand before you today because this vision of government as the engine of opportunity is what I believe in.
+ - Shareholders have the right and obligation to set the parameters of corporate behavior within which management pursues profit.
+ - The attacks on the World Trade Center and the Pentagon shook our nation to the core. Americans were deeply frightened, sad, and angry, and they rallied around a President who, at the time, showed impressive certitude and calm.
+ - Imagine if investors in Wal-Mart really cared about bribery at that company’s overseas operations or safety standards at its overseas manufacturing plants. If investors pulled their capital, corporate leaders would have to respond.
+
+54 quotes

@@ -1,0 +1,35 @@
+ - You can speak well if your tongue can deliver the message of your heart.
+ - Revenge proves its own executioner.
+ - Electronics is clearly the winner of the day.
+ - When in doubt, make a western.
+ - Diamonds cut diamonds.
+ - What is done, is done: Spend not the time in tears, but seek for justice.
+ - The main thing about directing is: photograph the people’s eyes.
+ - Not only does God play dice with the universe, He’s using loaded dice.
+ - Contentment gives a crown, where fortune hath denied it.
+ - Busy opinion is an idle fool.
+ - The joys of marriage are the heaven on earth, Life’s paradise, great princess, the soul’s quiet, Sinews of concord, earthly immortality, Eternity of pleasures.
+ - Melancholy Is not, as you conceive, indisposition Of body, but the mind’s disease.
+ - Tell us, pray, what devil This melancholy is, which can transform Men into monsters.
+ - Let them fear bondage who are slaves to fear; the sweetest freedom is an honest heart.
+ - Delay in vengeance delivers a heavier blow.
+ - Sister, look ye, How, by a new creation of my tailor’s I’ve shook off old mortality.
+ - A bachelor May thrive by observation on a little, A single life’s no burthen: but to draw In yokes is chargeable, and will require A double maintenance.
+ - They are the silent griefs which cut the heart-strings.
+ - Titles of honor add not to his worth, who is himself an honor of his titles.
+ - I love making pictures but I don’t like talking about them.
+ - Why, I hold fate Clasped in my fist, and could command the course Of time’s eternal motion, hadst thou been One thought more steady than an ebbing sea.
+ - Love is a tyrant, resisted.
+ - Who better than an Irishman can understand the Indians, while still being stirred by tales of the US cavalry?
+ - Tis as manlike to bear extremities as godlike to forgive.
+ - I didn’t show up at the ceremony to collect any of my first three Oscars. Once I went fishing, another time there was a war on, and on another occasion, I remember, I was suddenly taken drunk.
+ - Affections injured by tyranny, or rigor of compulsion, like tempest-threatened trees, unfirmly rooted, never spring to timely growth.
+ - Honour, How much we fight with weakness to preserve thee!
+ - Whilst we strive To live most free, we’re caught in our own toils.
+ - Anybody can direct a picture once they know the fundamentals. Directing is not a mystery, it’s not an art. The main thing about directing is: photograph the people’s eyes.
+ - How did I get to Hollywood? By train.
+ - Truth is child of Time.
+ - He hath shook hands with time.
+ - Physicians are the cobblers, rather the botchers, of men’s bodies; as the one patches our tattered clothes, so the other solders our diseased flesh.
+
+33 quotes

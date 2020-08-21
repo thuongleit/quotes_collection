@@ -1,0 +1,31 @@
+ - Hofstadter’s Law: It always takes longer than you expect, even when you take into account Hofstadter’s Law.
+ - It turns out that an eerie type of chaos can lurk just behind a facade of order – and yet, deep inside the chaos lurks an even eerier type of order.
+ - This idea that there is generality in the specific is of far-reaching importance.
+ - The following sentence is false. The preceding sentence is true.
+ - I am the thought you are now thinking.
+ - Meaning lies as much in the mind of the reader as in the Haiku.
+ - You make decisions, take actions, affect the world, receive feedback from the world, incorporate it into yourself, then the updated ‘you’ makes more decisions, and so forth, ’round and ’round.
+ - In the end, we self-perceiving, self-inventing, locked-in mirages are little miracles of self-reference.
+ - Reductionism is merciless.
+ - Below Every Tangled Hierarchy Lies An Inviolate Level.
+ - In fact, a sense of essence is, in essence, the essence of sense, in effect.
+ - Irrationality is the square root of all evil.
+ - It as if you took a lot of very good food and some dog excrement and blended it all up so that you can’t possibly figure out what’s good or bad. It’s an intimate mixture of rubbish and good ideas, and it’s very hard to disentangle the two, because these are smart people; they’re not stupid.
+ - The nice thing about having a brain is that one can learn, that ignorance can be supplanted by knowledge, and that small bits of knowledge can gradually pile up into substantial heaps.
+ - If a mosquito has a soul, it is mostly evil. So I don’t have too many qualms about putting a mosquito out of its misery. I’m a little more respectful of ants.
+ - Relying on words to lead you to the truth is like relying on an incomplete formal system to lead you to the truth. A formal system will give you some truths, but as we shall soon see, a formal system, no matter how powerful cannot lead to all truths.
+ - Enormous numbers of people are taken in, or at least beguiled and fascinated, by what seems to me to be unbelievable hocum, and relatively few are concerned with or thrilled by the astounding-yet true-facts of science, as put forth in the pages of, say, Scientific American.
+ - Many people believe that our lives end not when we die but when the very last person who knew us dies. Memory is part of it, yes, but I think it’s much more than memory.
+ - The strange flavour of AI work is that people try to put together long sets of rules in strict formalisms which tell inflexible machines how to be flexible.
+ - It is an inherent property of intelligence that it can jump out of a task which it is performing and survey what it has done...
+ - Some of us, perhaps all of us, believe that it is legitimate to kill enemy soldiers in a war, as if war were a special circumstance that shrinks the sizes of enemy souls.
+ - This sentence contradicts itself – no actually it doesn’t.
+ - You can imagine a soul as being a detailed, elaborate pattern that exists very clearly in one brain. When a person dies, the original is no longer around. But there are other versions of it in other people’s brains. It’s a less detailed copy, it’s coarse-grained.
+ - It is perhaps wrong to say that the enemy of enlightenment is logic; rather, it is dualistic, verbal thinking. In fact, it is even more basic than that: it is perception.
+ - Sometimes it seems as though each new step towards AI, rather than producing something which everyone agrees is real intelligence, merely reveals what real intelligence is not.
+ - I don’t feel I have the right to snuff the lives of chicken and fish.
+ - I would like to understand things better, but I don’t want to understand them perfectly.
+ - No reference is truly direct – every reference depends on SOME kind of coding scheme. It’s just a question of how implicit it is.
+ - There has to be a common sense cutoff for craziness, and when that threshold is exceeded, then the criteria for publication should get far, far more stringent.
+
+29 quotes

@@ -1,0 +1,99 @@
+ - Carry out a random act of kindness, with no expectation of reward, safe in the knowledge that one day someone might do the same for you.
+ - Only do what your heart tells you.
+ - I don’t go by the rule book. I lead from the heart, not the head.
+ - Helping people in need is a good and essential part of my life, a kind of destiny.
+ - I like to be a free spirit. Some don’t like that, but that’s the way I am.
+ - There’s no better way to dismantle a personality than to isolate it.
+ - I’d like to be queen of people’s hearts.
+ - Life is just a journey.
+ - I knew what my job was; it was to go out and meet the people and love them.
+ - They say it is better to be poor and happy than rich and miserable, but how about a compromise like moderately rich and just moody?
+ - Everyone needs to be valued. Everyone has the potential to give something back.
+ - It is a weakness that I lead from my heart, and not my head?
+ - I have a woman’s instinct and it’s always a good one.
+ - The biggest disease this day and age is that of people feeling unloved.
+ - A mother’s arms are more comforting than anyone else’s.
+ - I do things differently, because I don’t go by a rule book, because I lead from the heart, not the head, and albeit that’s got me into trouble in my work, I understand that.
+ - When you are happy you can forgive a great deal.
+ - Whoever is in the distress can call me. I will come running wherever they are.
+ - Everywhere I go I smell fresh paint.
+ - If you find someone you love in your life, then hang on to that love.
+ - I’m a free spirit – unfortunately for some.
+ - The greatest problem in the world today is intolerance. Everyone is so intolerant of each other.
+ - I wish all the mothers, fathers and children out there realize how much I need them and how much I value their support.
+ - I don’t want expensive gifts; I don’t want to be bought. I have everything I want. I just want someone to be there for me, to make me feel safe and secure.
+ - Call me Diana, not Princess Diana.
+ - I wear my heart on my sleeve.
+ - You can’t comfort the afflicted with afflicting the comfortable.
+ - Everybody needs hugs.
+ - I am not a political figure. The fact is I am a humanitarian figure and always will be.
+ - HIV does not make people dangerous to know, so you can shake their hands and give them a hug: Heaven knows they need it.
+ - It’s not sissy to show your feeling.
+ - I work on instinct. It’s my best adviser.
+ - I think the biggest disease the world suffers from in this day and age is the disease of people feeling unloved. I know that I can give love for a minute, for half an hour, for a day, for a month, but I can give. I am very happy to do that, I want to do that.
+ - I will fight for my children on any level so they can reach their potential as human beings and in their public duties.
+ - Nothing brings me more happiness than trying to help the most vulnerable people in society. It is a goal and an essential part of my life – a kind of destiny. Whoever is in distress can call on me. I will come running wherever they are.
+ - I’d like to be a queen in people’s hearts but I don’t see myself being queen of this country.
+ - I want to walk into a room, be it a hospital for the dying or a hospital for the sick children, and feel that I am needed. I want to do, not just to be.
+ - Any sane person would have left long ago. But I cannot. I have my sons.
+ - I should never have played with fire and I did. And I got very burned.
+ - Family is the most important thing in the world.
+ - Hugs can do great amounts of good – especially for children.
+ - One day I’m going to go up in a helicopter and it’ll just blow up. MI5 will do away with me.
+ - I am always going to be true to myself.
+ - People think that at the end of the day a man is the only answer. Actually, a fulfilling job is better for me.
+ - There were three of us in this marriage, so it was a bit crowded.
+ - I thought I was the luckiest girl in the world. I had tremendous hope in me.
+ - I understand that change is frightening for people, especially if there’s nothing to go to. It’s best to stay where you are. I understand that.
+ - I was compelled to perform. When I say perform, I was compelled to go out and do my engagements and not let people down and support them and love them. In a way, by being out in public, they supported me although they weren’t aware of just how much healing they were giving me. It carried me through.
+ - I went to the school and put it to William, particularly, that if you find someone you love in life, you must hang onto it, and look after it, and if you were lucky enough to find someone who loved you, then you must protect it.
+ - It has always been my concern to touch people with leprosy, trying to show in a simple action that they are not reviled, nor are we repulsed.
+ - I found myself being more and more involved with people who were rejected by society – with drug addicts, alcoholism, battered this, battered that – and I found an affinity there.
+ - I understand people’s suffering, people’s pain, more than you will every know yourself.
+ - Everyone of us needs to show how much we care for each other and, in the process, care for ourselves.
+ - The world is too little aware of the waste of life, limb and land which anti-personnel landmines are causing among some of the poorest people on earth.
+ - I’ve got what my mother’s got – however bloody you are feeling you can put on the most amazing show of happiness.
+ - My God. What’s happened?
+ - Don’t call me an icon. I’m just a mother trying to help.
+ - Being constantly in the public eye gives me a special responsibility, particularly that of using the impact of photographs to transmit a message, to sensitize the word to an important cause, to defend certain values.
+ - I desperately loved my husband and I wanted to share everything together, and I thought that we were a very good team.
+ - My first thoughts are that I should not let people down, that I should support them and love them.
+ - I’m aware that people I have loved and have died and are in the spirit world looking after me.
+ - It’s vital that the monarchy keeps in touch with the people. It’s what I try and do.
+ - As always, a million heartfelt thanks for bringing such joy into this chick’s life.
+ - I am not a political figure, nor do I want to be one; but I come with my heart.
+ - Whatever ‘in love’ means.
+ - I’ve got to have a place where I can find peace of mind.
+ - I don’t even know how to use a parking meter, let alone a phone box.
+ - I decline to go fox hunting.
+ - I am all about caring. I have always been like that.
+ - You see yourself as a good product that sits on a shelf and sells well, and people make a lot of money out of you.
+ - I think like any marriage, especially when you’ve had divorced parents like myself; you want to try even harder to make it work.
+ - If I am to care for people in hospital I really must know every aspect of their treatment and to understand their suffering.
+ - I live for my sons. I would be lost without them.
+ - I remember when I used to sit on hospital beds and hold people s hands, people used to be shocked because they d never seen this before. To me it was quite normal.
+ - Being a princess isn’t all it’s cracked up to be.
+ - I love meeting people and helping them.
+ - What must it be like for a little boy to read that daddy never loved mummy?
+ - Yes, I do touch. I believe that everyone needs that.
+ - The worse illness of our time, is that so many people have to suffer from never being loved.
+ - You can’t do anything good that you don’t feel in your heart.
+ - I’d like people to think of me as someone who cares about them.
+ - Death doesn’t frighten me.
+ - The people that I care about are the people out there on the street. I can identify with them.
+ - All people want to be touched.
+ - From the first day I joined that family, nothing could be done naturally any more.
+ - I always thought Camilla was the perfect love match with Charles.
+ - I want my boys to have an understanding of people’s emotions, their insecurities, people’s distress, and their hopes and dreams.
+ - I’m as thick as a plank.
+ - I adore him I have never been so happy. I have real love.
+ - As for becoming queen, it was never on the forefront of my mind when I married my husband. It was a long way off, that thought.
+ - The public wanted a fairy princess to come and touch them and everything would turn to gold. Little did they realise that the individual is crucifying herself inside because she didn’t think she was good enough.
+ - Princess Diana was a wonderful, caring philanthropist. She would come sometimes into the church and sit at the back and pray.
+ - So many people supported me through my public life and I will never forget them.
+ - I love to hold people’s hands when I visit hospitals, even though they are shocked because they haven’t experienced anything like it before, but to me it is a normal thing to do.
+ - My husband asked for the separation and I supported it. We had struggled to keep it going, but obviously we’d both run out of steam.
+ - If men had to have babies, they would only ever have one each.
+ - I am never going to get divorced, and that’s that.
+
+97 quotes

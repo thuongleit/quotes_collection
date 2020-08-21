@@ -1,0 +1,22 @@
+ - I know Im not going to book everything I go in on, and thats just the nature of the business. You have to keep hustling and not get down on it. You have to keep at it and find your way in. Everybodys story is different.
+ - To me, an untrained ear, a young person at the time, I would hear off the different feels, all these different sounds, and then years later realize that everyone had used the same equipment, just to their own ends.
+ - When Depeche Mode put out a single you knew that a week later you could go and buy the 12" and it would have six versions and they were all better.
+ - Despite a lot of people thinking that everything gets more and more difficult, I always assumed that people are going to be “Oh, at last you buckled, you’re trying to be commercial.”
+ - I realize Im an ambitious guy, but I just try to take things as they come, you know, for the most part.
+ - The biggest revolutions are the ones that happen in-between our ears.
+ - It’s very hard to predict what people are thinking.
+ - If we spent as much time feeling positive about getting older, as we do trying to stay young, how much different our lives would be.
+ - You can sit in front of a computer and have a blank slate and be completely overwhelmed by the possibilities and not get anywhere.
+ - Your reputation is what influences people to think, feel and talk about you the way they do.
+ - We cannot make rivers whole unless we wholly understand them.
+ - Let’s face it, we’re all clones nowadays. We’ve all got the same archives, we’ve all got the same Hyundai, we’ve all got the same Mac or PC components, and we’re all being told the same news stories globally.
+ - When you’re in the studio, you’ve got a narrative for what goes on, you might switch on a bit of gear and it might not work as you intended or come out a bit wrong, and you try and exploit it.
+ - It seems like people need to get into the last album until they can tolerate the next one. And then, slowly but surely, by the time the new one’s available, they’ve gotten into the last one and they really love it.
+ - You can’t go back and edit during the live set in the club. In the studio it’s different.
+ - I know that there’s a lot of room to maneuver in those kind of ghostly musical spheres...
+ - I would like to be remembered as a responsible human being who handled business while also taking care of his family.
+ - When you work on a computer in the studio, it’s almost like fossilizing on the spot, you know, the idea of getting solidified on the spot, like a snowflake might create branches by accumulation.
+ - There’s not much room for deviation, yet if you manage to crack it, there then you can express things that actually do sound unique and genuinely original.
+ - I wouldn’t judge people on their instant responses.
+
+20 quotes

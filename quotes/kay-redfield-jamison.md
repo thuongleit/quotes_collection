@@ -1,0 +1,80 @@
+ - Look to the living, love them, and hold on.
+ - Children need the freedom and time to play. Play is not a luxury; the time spent engaged in it is not time that could be better spent in more formal educational pursuits. Play is a necessity.
+ - We all build internal sea walls to keep at bay the sadnesses of life and the often overwhelming forces within our minds. In whatever way we do this – through love, work, family, faith, friends, denial, alcohol, drugs, or medication, we build these walls, stone by stone, over a lifetime.
+ - I think people don’t understand how intimately tied suicide is to mental illness, particularly to depressive illness and bipolar illness.
+ - One of things so bad about depression and bipolar disorder is that if you don’t have prior awareness, you don’t have any idea what hit you.
+ - Love has, at its best, made the inherent sadness of life bearable, and its beauty manifest.
+ - There is always a part of my mind that is preparing for the worst, and another part of my mind that believes if I prepare enough for it, the worst won’t happen.
+ - But, with time, one has encountered many of the monsters, and one is increasingly less terrified of those still to be met.
+ - Mother, who has an absolute belief that it is not the cards that one is dealt in life, it is how one plays them, is, by far, the highest card I was dealt.
+ - Every seventeen minutes in America, someone commits suicide. Mostly, I have been impressed by how little value our society puts on saving the lives of those who are in such despair as to want to end them. It is a societal illusion that suicide is rare. It is not.
+ - If people can talk about having breast cancer, why can’t people who have mental illness talk about mental illness? Until we’re able to do that, we’re not going to be treated with the same kind of respect for our diseases as other people.
+ - I have had manic-depressive illness, also known as bipolar disorder, since I was 18 years old. It is an illness that ensures that those who have it will experience a frightening, chaotic and emotional ride. It is not a gentle or easy disease.
+ - Suicide carries in its aftermath a level of confusion and devastation that is, for the most part, beyond description.
+ - Suicide Note: The calm, Cool face of the river Asked me for a kiss. -Langston Hughes.
+ - Each way to suicide is its own: intensely private, unknowable, and terrible. Suicide will have seemed to its perpetrator the last and best of bad possibilities, and any attempt by the living to chart this final terrain of life can be only a sketch, maddeningly incomplete.
+ - Never once, during any of my bouts of depression, had I been inclined or able to pick up a telephone and ask a friend for help. It wasn’t in me.
+ - Manic depression distorts moods and thoughts, incites dreadful behaviors, destroys the basis of rational thought, and too often erodes the desire and will to live.
+ - The quickness and flexibility of a well mind, a belief or hope that things will eventually sort themselves out-these are the resources lost to a person when the brain is ill.
+ - Suicide is not a blot on anyone’s name; it is a tragedy.
+ - I think psychotherapy saves lives and is hugely meaningful and I think that one of the unfortunate aspects of prescription drugs working well is that people tend to think that’s enough.
+ - Confidentiality is an ancient and well-warranted social value.
+ - The pursuit of knowledge is an intoxicant, a lure that scientists and explorers have known from ancient times; indeed, exhilaration in the pursuit of knowledge is part of what has kept our species so adaptive.
+ - In depression, your capacity to feel just flattens and disappears and what you feel is pain and a kind of pain that you can’t describe to anybody. So it’s an isolating pain, a completely isolating pain.
+ - I am reminded of the importance of small kindnesses.
+ - If I can’t feel, if I can’t move, if I can’t think, and I can’t care, then what conceivable point is there in living?
+ - We all move uneasily within our restraints.
+ - No amount of love can cure madness or unblacken one’s dark moods. Love can help, it can make the pain more tolerable, but, always, one is beholden to medication that may or may not always work and may or may not be bearable.
+ - I am tired of hiding, tired of misspent and knotted energies, tired of the hypocrisy, and tired of acting as though I have something to hide.
+ - I am a huge advocate of prescription drugs given wisely and for the right reasons and the right diagnosis and also psychotherapy.
+ - But money spent while manic doesn’t fit into the Internal Revenue Service concept of medical expense or business loss. So after mania, when most depressed, you’re given excellent reason to be even more so.
+ - People are more impulsive and they get slightly less impulsive as they get older and the impulsiveness interacting with the depression is particularly devastating and lethal, potentially lethal.
+ - People talk about grief as if it’s kind of an unremittingly awful thing, and it is. It is painful, but it’s a very, very interesting sort of thing to go through and it really helps you out.
+ - I look back over my shoulder and feel the presence of an intense young girl and then a volatile and disturbed young woman, both with high dreams and restless, romantic aspirations.
+ - Once a restless or frayed mood has turned to anger, or violence, or psychosis, Richard, like most, finds it very difficult to see it as illness, rather than being willful, angry, irrational or simply tiresome.
+ - Grief comes and goes, but depression is unremitting.
+ - Love, like life, is much stranger and far more complicated than one is brought up to believe.
+ - One is what one is, and the dishonesty of hiding behind a degree, or a title, or any manner and collection of words, is still exactly that: dishonest.
+ - Everything previously moving with the grain is now against – you are irritable, angry, frightened, uncontrollable, and enmeshed totally in the blackest caves of the mind. You never knew those caves were there. It will never end, for madness carves its own reality.
+ - Anyone who suggests that coming back from suicidal despair is a straightforward journey has never taken it.
+ - Knowledge is marvelous, but wisdom is even better.
+ - Which of my feelings are real? Which of the me’s is me? The wild, impulsive, chaotic, energetic, and crazy one? Or the shy, withdrawn, desperate, suicidal, doomed, and tired one? Probably a bit of both, hopefully much that is neither.
+ - It took me far too long to realize that lost years and relationships cannot be recovered. That damage done to oneself and others cannot always be put right again.
+ - You become aware of an illness by understanding yourself and understanding the meaning that that illness has in your own life, symbolically and, more importantly, quite literally.
+ - I think you have waves of awareness and one of the things that I found with grief was actually – I was well prepared for it by the cyclicality of my manic depressive illness because I was used to things coming and going and so forth.
+ - I don’t think grief of grief in a medical way at all. I think that I and many of my colleagues, are very concerned when grief becomes pathological, that there is no question that grief can trigger depression in vulnerable people and there is no question that depression can make grief worse.
+ - The ancient dialogue between reason and the senses is almost always more interestingly and passionately resolved in favor of the senses.
+ - Mood disorders are terribly painful illnesses, and they are isolating illnesses. And they make people feel terrible about themselves when, in fact, they can be treated.
+ - Without science, there would be no such hope.
+ - There is an assumption, in attaching Puritan concepts such as ‘successful’ and ‘unsuccessful’ to the awful, final act of suicide, that those who ‘fail’ at killing themselves not only are weak, but incompetent, incapable even of getting their dying quite right.
+ - I think wanting to write is a fundamental sign of disease and discomfort. I don’t think people who are comfortable want to write...
+ - As best I could make out, having never heard the term until I arrived in California, being a WASP meant being mossbacked, lockjawed, rigid, humorless, cold, charmless, insipid, less than penetratingly bright, but otherwise – and inexplicably – to be envied.
+ - Nothing good comes out of depression.
+ - Anybody who’s had to contend with mental illness – whether it’s depression, bipolar illness or severe anxiety, whatever – actually has a fair amount of resilience in the sense that they’ve had to deal with suffering already, personal suffering.
+ - The awareness of the damage done by severe mental illness – to the individual himself and to others – and fears that it may return again play a decisive role in many suicides.
+ - Conditions of thought, memory, and desire, persuaded by impulse and irrationality, are influenced as well by personal aesthetics and private meanings.
+ - When I am high I couldn’t worry about money of I tried. So I don’t. The money will come from from somewhere; I am entitled; God will provide. Credit cards are disastrous, personal checks worse. Unfortunately, for manics anyway, mania is a natural extension of the economy.
+ - Chaos and intensity are no substitute for lasting love, nor are they necessarily an improvement on real life.
+ - I had a terrible temper, after all, and though it rarely erupted, when it did it frightened me and anyone near its epicenter. It was the only crack, but a disturbing one, in the otherwise vacuum-sealed casing of my behavior.
+ - I had been simply treating water, settling on surviving and avoiding pain rather than being actively involved in seeking out life.
+ - I am by temperament an optimist, and I thought from the beginning that there was much to be written about suicide that was strangely heartening.
+ - The assumption that rigidly rejecting words and phrases that have existed for centuries will have much impact on public attitudes is rather dubious.
+ - Who would not want an illness that has among its symptoms elevated and expansive mood, inflated self-esteem, abundance of energy, less need for sleep, intensified sexuality, and- most germane to our argument here-“sharpened and unusually creative thinking” and “increased productivity”?
+ - Exuberance is a gift of grace that allows us to move on, to seek, to love again.
+ - I think that for thousands of years people have made the observation that there are certain kinds of extreme depressive states that seem to be more likely to produce philosophers, people in the arts, unusually brilliant scientists.
+ - Most people don’t have the advantage of being able to evaluate their doctor in advance.
+ - Mania can be as terrifying as it gets. It is certainly as insane as one gets and so it’s frightening when it gets out of control, but there are periods of mania when it can be extremely attractive.
+ - An ardent temperament makes one very vulnerable to dreamkillers.
+ - There are relatively few things that kill people that are young other than car accidents and suicide.
+ - I realized that it was not that I didn’t want to go on without him. I did. It was just that I didn’t know why I wanted to go on.
+ - It is true that I had wanted to die, but that is peculiarly different from regretting having been born. Overwhelmingly, I was enormously glad to have been born, grateful for life, and I couldn’t imagine not wanting to pass on life to someone else.
+ - Nature is the first tutor. No one remains untouched or unschooled by the earth, seasons, and heavens.
+ - I was bitterly resentful, but somehow greatly relieved. And I respected him enormously for his clarity of thought, his obvious caring, and his unwillingness to equivocate in delivering bad news.
+ - One of the advantages of science is that one’s work, ultimately, is either replicated or it is not.
+ - Moods are such an essential part of the substance of life, of one’s notion of oneself, that even psychotic extremes in mood and behavior somehow can be seen as temporary, even understandable, reactions to what life has dealt.
+ - Somehow, like so many people who get depressed, we felt our depressions were more complicated and existentially based than they actually were.
+ - In some cases, some people do get depressed in the middle of their grief and they really need to be treated for depression.
+ - From a public health point of view, still the overwhelming problem is that people are not treated enough for depression; depression remains under treated.
+ - The complexities of what we are given in life are vast and beyond comprehension.
+
+78 quotes

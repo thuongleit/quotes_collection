@@ -1,0 +1,94 @@
+ - If Jesus didn’t rise from the dead, an even greater miracle happened: 12 relatively uneducated guys changed the world and were martyred to protect a lie.
+ - Friday and Saturday nights have a funny way of revealing what we really believe on Sunday mornings.
+ - Courage doesn’t mean we’re not afraid. Courage means we refuse to be mastered by fear.
+ - Time is the most valuable commodity we have, worth more than gold, yet wasted more than all else. Efficient use of time begins with prayer.
+ - Laziness in prayer is like handing the devil a key to your house.
+ - God made saints out of far worse people than you.
+ - When I get “too busy” to pray, I envision Jesus at the Pearly Gates showing me the time I wasted looking for something to watch on Netflix.
+ - The devil doesn’t sit idly by while you seek God. If you’re pursuing Christ, the enemy is pursuing you.
+ - Faith does not contradict reason. Faith exceeds reason.
+ - God didn’t give Adam and Eve the right to decide what was good and evil. He gave them the right to choose between good and evil.
+ - If you want to love God better, hate sin more.
+ - The miracle of Good Friday is that there was no miracle. Legions of angels stood – with swords sheathed – watching as the Son took our place.
+ - When it’s hardest to pray are usually the times I need to pray the hardest. Not sure if that’s irony or common sense.
+ - Much of Satan’s time is spent trying to make you remember what God has already forgotten. Reconcile, rejoice, and look forward.
+ - You can usually tell by the look on someone’s face if they woke up counting their problems or their blessings.
+ - True holiness is not achieved by what we do, but what we allow God to do in us.
+ - What annoys us most in other people is oftentimes the same area God wants us to grow in ourselves.
+ - An annoyed and joyless Christian is the devil’s greatest billboard.
+ - Sunday doesn’t just prepare us for the week ahead – it prepares us for eternity.
+ - The truest friends are usually the ones telling you what you don’t want to hear.
+ - The Church needs more people willing to wash feet, not just point out they’re dirty or complain that they smell.
+ - If today were your final day of this life, would those things causing you stress still do so?
+ - Are you willing to go the extra mile in this new year to know God?
+ - We can’t experience all that Heaven has to offer until we renounce all that the world offers in its place.
+ - We must not become so preoccupied looking for “major” miracles that we miss all the daily ones.
+ - Many of us want to know why we don’t “hear” God when we pray. Few of us shut up long enough to really listen.
+ - Maybe if we said that sin causes cancer, people would take it more seriously.
+ - It’s one of the greatest comforts of working in ministry: the unspoken certitude that your spouse did not marry you for your money.
+ - If more husbands and fathers would put as much energy into their marriages and families as they do their jobs, the world would change.
+ - We often talk about how we are God’s “hands and feet,” which is true. That being said, we can’t fall into the trap of thinking God needs us like we need Him. He’s God – which makes the reality that He wants to use us and be in relationship with us an even sweeter, more profound truth.
+ - I’m a sinner. I don’t always love God as strongly as I could or as directly as I should. Ash Wednesday reminds me that it is only through God that I have life; He gave it to me. God forgives. He loves. And He gives this sinner a second chance. Put simply: my God kicks ash.
+ - God is holding you in His heart, right at this very moment. It’s a fact that can make you feel so small yet so big at the same time.
+ - Stress will either drive you crazy or drive you to your knees. It depends on who is in control of your life.
+ - A broken heart is merely an empty manger. Invite the Virgin and the carpenter to pray beside you. Invite the Savior to dwell there.
+ - I’m at my 3 year-olds year-end concert. It’s full of very off-key, mostly unfocused children, but this father is still beaming. Must be how God feels on Sunday.
+ - If true love were only about feelings, Jesus would have been hugged to death for our redemption. Thank God for His cross this and every day.
+ - God doesn’t desire our worship because He is egocentric. He desires it because we are.
+ - Reconciliation is the fastest way to change your life.
+ - Enthusiasm is contagious – so is a lack of it. Joyless Christians are a greater assault on the gospel than atheism.
+ - Gray and overcast from my earthly perspective, but it’s sunny above these storm clouds. Grace lets us see life from God’s point of view.
+ - If the heart is hardened, the intellect is darkened.
+ - God loves us too much to pretend our sin isn’t there. Sin is a cancer and Christ the surgeon. True prayer signs the consent form.
+ - God has a plan for you today: one designed to help get you to Heaven.
+ - Some people say, “If you trust in God’s unconditional love, why do you need to pray?” A better ending is “why wouldn’t you want to?”
+ - The people hung upon His words – that is, until they hung Him on a cross. Admiration is fleeting. Love is eternal.
+ - Everything we have – every blessing, every talent – is a gift from our Father. The only thing that’s all ours is our sin.
+ - If you want to live as a Christian, get comfortable with being uncomfortable.
+ - Fatherhood has taught me when it’s too quiet my kids are usually sinning. God the Father knows the same. Are you praying?
+ - In the Lord’s Prayer, Jesus offers more than God’s personal email or private cell number – He offers us a heart transplant.
+ - It’s funny how the closer you get to God, the more you realize how far you are from Him.
+ - Oh, how thunderous the applause must be in Heaven, all those times we are mocked on earth for the sake of His name.
+ - Giving God permission to make you a saint will ruin your life.
+ - It’s easier not to love. Beware of the easy path this day.
+ - The holidays often bring challenging conversations and situations. Sometimes holiness demands that we speak, other times it invites us to be silent. In all circumstances, though, we are called to love.
+ - Teacher: “If your daughter knew her spelling words as well as her Bible stories she’d get into Harvard.” Me: “I’ll settle for Heaven.”
+ - Speaking truth will rarely earn you friends, but it will reveal who your true friends are and who are true friends of Christ.
+ - The commandments are a gift, not a curse. Sin is less about breaking the rules and more about breaking the Father’s heart.
+ - Prayer is where the cross changes shoulders.
+ - How beautiful that after 2,000 years, no one can outdo “God is love.” It’s the most perfectly concise, hopeful phrase in history.
+ - If the person who says they love you is unwilling to sacrifice for you it ain’t love.
+ - Saints didn’t set out to have everyone follow them. Saints set out to follow Jesus, and others followed them in their pursuit of Him.
+ - As I get older I’ve come to realize that the best way to “get even” with someone is to forgive – and then forget.
+ - Married couples, may we never forget that when attacks come the grace of the sacrament is eternally stronger than we are.
+ - Authentic Christianity is a roller-coaster ride, not a merry-go-round.
+ - What did all the saints have in common? They feared sin more than even physical death.
+ - When we get ashes we are not publicly proclaiming our greatness, but God’s. We are not saying, ‘look at how great I am,’ but ‘ask me about how great my God is!’
+ - You can’t do God’s will and satisfy everyone.
+ - Consider God’s love for you. Now double it. Now multiply that by 900 trillion. You’re still not even close.
+ - You don’t become a saint by comparing yourself to a sinner.
+ - Christ always calls us to life and constantly to greater joy, but rarely does He call us to comfort.
+ - The funny thing about the boy who gave away his loaves and fish is that he, too, ended the day with a full stomach.
+ - The amount of “followers” you have does not make you better than anyone else. Hitler had millions. Jesus had twelve.
+ - It’s pretty sad that when people see a guy buying flowers, they assume he’s in trouble.
+ - Fatherhood: How God blesses you out of your selfishness and floods your soul with love, all while reminding you how little you know...
+ - Your faith is measured by how well you love those who can’t stand you.
+ - Great morning prayer is like marinating in the Holy Spirit.
+ - A homeless man standing at the off-ramp: the question in these moments isn’t whether Jesus is in Him, but in me.
+ - Don’t make Christ ride shotgun.
+ - If your sin feels “too big,” your vision of God is too small.
+ - There are 2 main things I’ve learned about following the Holy Spirit: It will never be easy. It will never be boring.
+ - If we could see, even for a split second, the depths of God’s love for us – all we’d want to do is worship and prayer would never seem a chore.
+ - It is so beautifully ironic that St. Francis – the great lover of animals – is now a pigeon’s target in countless yards.
+ - A parent asked me today, “How do you get your children to pray in church?” My response? “Pray at home.”
+ - As a father of young girls, I want to publicly thank all women who dress and carry themselves like ladies. Your example is a gift.
+ - It’s been a few days since I’ve seen my kids. My hearts racing; I can’t wait to hold them. This is just a glimpse into God’s heart at Mass.
+ - Sometimes we forget that sin really is optional.
+ - If I were as good at praying as I am at not praying I’d be really holy.
+ - When a majority of my prayers are for others to change, I’ve gotten off track. Lord, change this sinner’s heart.
+ - Oh, how much holier the world would be if more people invoked their right to remain silent.
+ - It is in our darkest cultures that the greatest saints rise, stand, and lead.
+ - Sometimes holiness demands that we speak up, but oftentimes it calls us to shut up.
+ - It breaks my heart when couples focus more on being wed than being married. Two become one doesn’t happen without work, humility, and sacrifice.
+
+92 quotes

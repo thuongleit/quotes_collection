@@ -1,0 +1,137 @@
+ - Everything in nature takes its form from the sphere, the cone and the cylinder.
+ - Everything is about to disappear. You’ve got to hurry up if you still want to see things.
+ - Everything vanishes, falls apart, doesn’t it? Nature is always the same but nothing in her that appears to us lasts. Our art must render the thrill of her permanence, along with her elements, the appearance of all her changes. It must give us a taste of her Eternity.
+ - Art is a harmony parallel with nature.
+ - I am progressing very slowly, for nature reveals herself to me in very complex forms; and the progress needed is incessant.
+ - The Louvre is the book in which we learn to read.
+ - Time and reflection change the sight little by little ’till we come to understand.
+ - If I think, everything is lost.
+ - The day is coming when a single carrot, freshly observed, will set off a revolution.
+ - There is no light painting or dark painting, but simply relations of tones.
+ - The clear French landscape is as pure as a verse of Racine.
+ - To paint is not to copy the object slavishly, it is to grasp a harmony among many relationships.
+ - Optics, developing in us through study, teach us to see.
+ - The truth is in nature, and I shall prove it.
+ - See nature in terms of the cone, the cylinder, and the sphere.
+ - The approbation of others is a stimulus of which one must sometimes be wary. The feeling of one’s own strength makes one modest.
+ - The world doesn’t understand me and I don’t understand the world, that’s why I’ve withdrawn from it.
+ - Monet is only an eye, but my God, what an eye!
+ - You have to hurry up if you want to see something, everything disappears.
+ - Long live the sun which gives us such beautiful color.
+ - Shadow is a colour as light is, but less brilliant; light and shadow are only the relation of two tones.
+ - If isolation tempers the strong, it is the stumbling-block of the uncertain.
+ - There is no such thing as an amateur artist as different from a professional artist. There is only good art and bad art.
+ - Keep good company – that is, go to the Louvre.
+ - It’s not just about looking and copying, it’s about feeling too.
+ - Treat nature by the cylinder, the sphere, the cone, everything in proper perspective so that each side of an object or a plane is directed towards a central point.
+ - The landscape thinks itself in me and I am its consciousness.
+ - Nature is more depth than surface, the colours are the expressions on the surface of this depth; they rise up from the roots of the world.
+ - Light is a thing that cannot be reproduced, but must be represented by something else – by color.
+ - Everything in nature is formed upon the sphere, the cone and the cylinder. One must learn to paint these simple figures and then one can do all that he may wish.
+ - With an apple I will astonish Paris.
+ - It is not about painting life, it is about making painting alive.
+ - Yes, a bunch of carrots, observed directly, painted simply in the personal way one sees it, worth more than the Ecole’s everlasting slices of buttered bread, that tobacco-juice painting, slavishly done by the book? The day is coming when a single original carrot will give birth to a revolution.
+ - Under this fine rain I breathe in the innocence of the world. I feel coloured by the nuances of infinity. At this moment I am one with my picture. We are an iridescent chaos...
+ - It’s so fine and yet so terrible to stand in front of a blank canvas.
+ - What I am trying to translate to you is more mysterious, it is entwined in the very roots of being, in the implacable source of sensations.
+ - Genius is the ability to renew one’s emotions in daily experience.
+ - One is neither too scrupulous nor too sincere nor too submissive to nature; but one is more or less master of one’s model, and, above all, of the means of expression.
+ - Tell me, do you think I’m going mad? I sometimes wonder, you know.
+ - Taste is the best judge. It is rare. Art only addresses itself to an excessively small number of individuals.
+ - The awareness of our own strength makes us modest.
+ - I owe you the truth in painting, and I will tell it to you.
+ - The contour eludes me.
+ - I ask you to pray for me, for once age has overtaken us, we find consolation only in religion.
+ - Sometimes I imagine colors as if they were living ideas, being of pure reason with which to communicate. Nature is not on the surface, it is deep down.
+ - I have not tried to reproduce nature; I have represented it.
+ - When the color achieves richness, the form attains its fullness also.
+ - The Louvre is a good book to consult, but it must only be an intermediary. The real and immense study that must be taken up is the manifold picture of nature.
+ - I am still searching for the expression of those confused sensations that we bring with us at birth.
+ - The artist must scorn all judgment that is not based on an intelligent observation of character. He must beware of the literary spirit which so often causes a painting to deviate from its true path – the concrete study of nature – to lose itself all too long in intangible speculations.
+ - You must think. The eye is not enough; it needs to think as well.
+ - Painting, like any art, comprises a technique, a workmanlike handling of material, but the accuracy of a tone and the fictitious combination of effects depend entirely on the choice made by the artist.
+ - Surely, a single bunch of carrots painted naively, just as we personally see it, is worth all the endless banalities of the Schools, all those dreary pictures concocted out of tobacco juice according to time-honored formulas?
+ - It took me 40 years to find out that painting is not sculpture...
+ - A work of art which did not begin in emotion is not art.
+ - See how the light tenderly love the apricots, it takes them over completely, enters into their pulp, light them from all sides! But it is miserly with the peaches and light only one side of them.
+ - Pure drawing is an abstraction. Drawing and colour are not distinct, everything in nature is coloured.
+ - If I were called upon to define briefly the word Art, I should call it the reproduction of what the senses preceive in nature, seen through the veil of the soul.
+ - A thousand painters ought to be killed yearly. Say what you like: I’m every inch a painter.
+ - To achieve progress nature alone counts, and the eye is trained through contact with her. It becomes concentric by looking and working.
+ - My age and health will never allow me to realize the dream of art I’ve been pursuing all my life.
+ - One had to immerse oneself in one’s surroundings and intensely study nature or one’s subject to understand how to recreate it.
+ - When I judge art, I take my painting and put it next to a God made object like a tree or flower. If it clashes, it is not art.
+ - When a picture isn’t realized, you pitch it in the fire and start another one!
+ - For an Impressionist to paint from nature is not to paint the subject, but to realize sensations.
+ - Art first of all is optical. That’s where the material of our art is: in what our eyes think.
+ - Michelangelo is a constructor, and Rafael an artist who, great as he is, is always limited by the model. When he tries to be thoughtful he falls below the niveau of his great rival.
+ - Design and color are not distinct and separate. As one paints, one draws. The more the colors harmonize, the more the design takes form. When color is at it’s richest, form is at its fullest.
+ - I want to die painting.
+ - All pictures painted inside in the studio will never be as good as the things done outside.
+ - I’ll always be grateful to the public of intelligent amateurs.
+ - I am a pupil of Pissarro.
+ - Is it the factitious and the conventional that most surely succeed on earth and in the course of life?
+ - Don’t be an art critic. Paint. There lies salvation.
+ - I am not altogether displeased with the shirt-front.
+ - An optical impression is produced on our organs of sight which makes us classify as light, half-tone or quartertone, the surfaces represented by colour sensations. So that light does not exist for the painter.
+ - A puny body weakens the soul.
+ - You say a new era in art is preparing; you sensed it coming; continue your studies without weakening. God will do the rest.
+ - The sun penetrates me soundlessly like a distant friend that stirs up my laziness, fertilizes it. We bring forth life.
+ - Chatter about art is almost always useless.
+ - Nature is the best instructor.
+ - Doubtless there are things in nature which have not yet been seen. If an artist discovers them, he opens the way for his successors.
+ - Knowledge of the means to express our emotion is essential- and is acquired only after a very long experience.
+ - Painting is damned difficult – you always think you’ve got it, but you haven’t.
+ - Painting is founded on the heart controlled by the head.
+ - To be sure an artist wishes to raise his standard intellectually as much as possible, but the man must remain in obscurity. Pleasure must be found in the studying.
+ - Literature expresses itself by abstractions, whereas painting, by means of drawing and colour, gives concrete shape to sensations and perceptions.
+ - What is one to think of those fools who tell one that the artist is always subordinate to nature? Art is a harmony parallel with nature.
+ - There are two things in the painter, the eye and the mind; each of them should aid the other.
+ - Here on the edge of the river, the motifs are very plentiful, the same subject seen from a different angle gives a subject for study of the highest interest and so varied that I think I could be occupied for months without changing my place, simply bending a little more to the right or left.
+ - Pleasure must be found in study.
+ - There is no model, there is only color.
+ - I paint as if I were Rothschild.
+ - The artist makes things concrete and gives them individuality.
+ - I allow no one to touch me.
+ - All my compatriots are asses compared to me.
+ - My nervous system is very much weakened – nothing but painting in oil can keep me going.
+ - Is art really the priesthood that demands the pure in heart who belong to it wholly?
+ - I’ve come to the conclusion that it’s not really possible to help others.
+ - I have nothing to hide in art. The initial force alone can bring anyone to the end he must attain.
+ - I am more a friend of art than a producer of painting.
+ - Studying the model and realizing it is sometimes very slow in coming for the artist.
+ - Get to the heart of what is before you and continue to express yourself as logically as possible.
+ - I am the primitive of the method I have invented.
+ - I cannot attain the intensity that is unfolded before my senses. I have not the magnificent richness of colouring that animates nature.
+ - One can do good things without being very much of a harmonist or a colourist. It is sufficient to have a sense of art – and this sense is doubtless the horror of the bourgeois.
+ - One does not substitute oneself for the past, one merely adds to it a new link.
+ - I lack the magnificent richness of color that animates nature.
+ - Here, on the river’s verge, I could be busy for months without changing my place, simply leaning a little more to right or left.
+ - Pure drawing is an abstraction.
+ - Whoever the master is whom you prefer, this must only be a directive for you. Otherwise you will never be anything but an imitator.
+ - An art which isn’t based on feeling isn’t an art at all.
+ - I advance all of my canvas at one time.
+ - I could paint for a hundred years, a thousand years without stopping and I would still feel as though I knew nothing.
+ - The transposition that a painter makes with an original vision gives to the representation of nature a new interest.
+ - I wished to copy nature. I could not. But I was satisfied when I discovered the sun, for instance, could not be reproduced, but only represented by something else.
+ - My nervous system is enfeebled, only work in oils can sustain me.
+ - In order to make progress, there is only nature, and the eye is turned through contact with her.
+ - I must be more sensible and realize that at my age, illusions are hardly permitted and they will always destroy me.
+ - It is impossible for emotion not to come on us in thinking of that time now flowed away.
+ - There is a logic of colors, and it is with this alone, and not with the logic of the brain, that the painter should conform.
+ - We must not be content to memorize the beautiful formulas of our illustrious predecessors. Let us go out and study beautiful nature.
+ - The most seductive thing about art is the personality of the artist himself.
+ - One must see one’s model correctly and experience it in the right way; and furthermore express oneself forcibly and with distinction.
+ - People think how a sugar basin has no physiognomy, no soul. But it changes every day.
+ - The painter must enclose himself within his work; he must respond not with words, but with paintings.
+ - With a painter’s temperament, all that’s needed are the means of expression sufficient to be intelligible to the wide public.
+ - I am beginning to consider myself stronger than all those around me, and you know that the good opinion I have of myself has only been reached after mature consideration.
+ - All the theories mess you up inside.
+ - Perhaps I was born too early. I was more the painter of your generation than of mine.
+ - The painter unfolds that which has not been seen.
+ - Talks on art are almost useless. The work which goes to bring progress in one’s own subject is sufficient compensation for the incomprehension of imbeciles.
+ - It is necessary to introduce light vibrations, represented by reds and yellows, and a sufficient amount of blues, to obtain an airy feeling.
+ - Two sittings a day of my models and I’m totally exhausted.
+ - You have no idea how life-giving it is to find around one a youth that agrees not to bury one on the spot.
+
+135 quotes

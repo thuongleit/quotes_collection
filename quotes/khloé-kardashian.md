@@ -1,0 +1,58 @@
+ - You can have 100 people tell you how beautiful you look, and one person will say, “God, did you sleep last night?” Not even “You’re ugly,” but “Did you sleep?” and you’re all of a sudden like, “What?!” And the whole day that’s what you’ll remember.
+ - You can’t expect everyone to love you. I’m not someone who just wants to throw out hate, just because.
+ - I am an organization freak!
+ - We’re all our own worst critics and so hard on ourselves, but for me, my biggest insecurity is my arms. I just hate the tops of them. I work out and they still never look good enough for me. So, over the years I’ve learned to dress to make myself feel better.
+ - I’m proud of my body. My body weight will always be something I’ll struggle with for the rest of my life, but I’m finally in a good place and learning to love me for me, and not somebody else’s standards.
+ - If you’re too embarrassed and want to hide behind your computer screen, that’s what this is for. It’s about building confidence and that’s what U by Kotex does. Girls owning their bodies and health.
+ - I don’t believe in revenge. When people are bullies it’s because of a deeper-rooted issue – either their family life is tough or they’re being bullied by someone bigger than they are.
+ - A moment on the lips is a lifetime on the hips.
+ - It’s easier to date a football player for sure. Football players have one game a week, and they practice every day, but they’re all at home. In basketball, they’re on the road all the time.
+ - I’m the ugly sister. I’m the fat one. I’m the transvestite. I have had those mean things said about me at least twice a day for the last five years. It’s horrible, you know? But I can brush that stuff off.
+ - You know, I’m allowed to f – king date, I haven’t seen this guy in three years. We’re in the middle of a divorce. For a woman, she has to wait. For a man, who cares? That’s what it’s painted as.
+ - Keep away from people who try to belittle your ambitions. Never allow anyone to take YOUR spirit away from you.
+ - One of the biggest struggles of my life is my weight. My weight is always going up and down, and I’m always fighting that, and I think that no matter what I do, I’m never going to look good enough to everybody else.
+ - I try to focus more on the positive, but it’s half the time I’m getting, “Oh you’re only in the gym to take a picture,” and it’s like, “So what the f – k, I’m in here every day, I drove an hour just to take a picture?”
+ - I would surrender my being to see you whole once more.
+ - Wow my sister has changed. She used to whip her boobs out for no reason. Now she does it to feed her child.
+ - My weight fluctuates, like any normal girl, and I have times when I feel insecure.
+ - I’m proud of myself. I could break and go get all this plastic surgery and get my nose fixed and get lipo or do whatever, but I haven’t chosen to do that because I know I’m a great person. I’m pretty damn hot, if you ask me.
+ - I don’t feel the pressure by outsiders. I’m not someone who’s easily influenced by the public.
+ - It just sucks when you’ve given so much and you realize it still wasn’t good enough for someone.
+ - Not to be vain, but I have nice long legs, so I like to accentuate them. Find what part of your body you love most – it can be your arms, your chest, your legs – and emphasize that.
+ - A few years ago I lost 30 pounds, and people still wanted to criticize. And honestly, I’m happy with myself if I’m a little heavier. I realized: ‘Why am I trying to conform to someone else’s idea of beauty?’ I think I’m beautiful either way.
+ - I think – and even with the Live Chin Up movement – it’s about women doing things for themselves. Being empowered. Doing things that make you happy. I believe in that philosophy.
+ - Part of being married is knowing when your husband needs your support.
+ - I don’t think because I hang out with enough black people, I’m gonna turn black. What kind of rationalization is that? I’m just friends with people that I like. I don’t care what skin color you are.
+ - If I’m cooking dinner for my hubby or designing a line or selling on QVC, I try to do it in an authentic way. To speak to people like I want to be spoken to, to be a voice for people who don’t have one and to give them things they need and love.
+ - I’ve had a lot of really influential people in my life, like my grandmother M. J., who have helped me along the way. But there are so many of us girls in my family, and even though they’re all so open and honest, who I seek advice from depends on what aspect of life I’m dealing with.
+ - I just think that knowing about your body at any age, whether it’s educating yourself on fertility, getting mammograms, going through puberty – whatever it may be, is really important. I just really encourage women empowerment and being comfortable talking about these issues.
+ - You know, it’s funny, no matter what I do – I mean, you’re always going to have negatives and positives.
+ - I’m thrilled to continue my partnership with U by Kotex for Generation Know while helping to empower girls. I’ve always been a motivational resource for my younger sisters and hope I can positively impact and inspire other young girls too.
+ - If I even imagined someone talking to my husband too close, I would beat the crap out of them.
+ - I always have mini bottles of Unbreakable, the fragrance I did with my husband. I’m Armenian, so I’m oily and always have blotting papers.
+ - I like to do designs on the side of my face, or cut out foil stickers from the crafts store and put them on my forehead.
+ - A lot of adults don’t think it’s their place to interfere with kids. I interfere all the time.
+ - I have two younger sisters and I’m such an advocate of owning who you are as a person. Don’t be ashamed or intimidated. Never feel like you are not amazing.
+ - I’m not big on looking up myself. I don’t get Google alerts, and I don’t look on blogs.
+ - If I want to wear a long flowing dress, someone will say I’m pregnant.
+ - I never said I was a weightlifter. I never said I was trained. I’m not a personal trainer. I just enjoy working out. So sometimes I feel like, do I have to write a disclaimer? Like, disclaimer: “I’m not a trainer.”
+ - When I was at home, I felt loved and safe. My sisters were always a safe haven for me. I knew they would always play with me and make me feel like I was one of them.
+ - I’m a modern girl, but you should put your husband first. I like to think divorce is not an option.
+ - I’m not shy about wearing a lot of makeup! But when I don’t have to be done up, I just use a bit of concealer and maybe some lip balm.
+ - I just let my hair go – if there’s no hairdresser around I really can’t be bothered!
+ - Everyone expects me to be 9 feet tall and weigh 200 pounds when they meet me.
+ - I’m strong and fearless and not afraid to take risks in business.
+ - I just find it funny what people will comment on, I try to not pay that much attention to it, but the crazy part is that if I’m doing a squat and I have an action photo, they’re like, “Oh your form is off!” And I’m like, are you kidding? I’m still at the gym and you’re not!
+ - I used to follow trends and try to do exactly what I saw in the magazines, but I’m not a Victoria’s Secret model who can wear anything.
+ - I say all the time I think there should be some courses in the regular schooling system that isn’t, even like about credit, things that matter later in life. I learned the harder way: ‘Look, I got a $500 credit card in the mail, let’s go shopping!’
+ - When I did the cover of ‘Cosmo International,’ Turkey picked it up and I got a lot of backlash for it.
+ - I live in a world where there’s magazines and blogs, and people feel like they are allowed to criticize me, and in the meanest way.
+ - I love all of my shoes! It is a must to have them color coordinated, and to be able to see each and every one of them. I know exactly where each one lives and I can tell if one has even been moved!
+ - To be able to design for the plus-sized consumer, for me, that’s just beyond. It’s a dream.
+ - I love doing fashion.
+ - People make me feel like I have a problem because I haven’t had a kid yet.
+ - Fame comes and fame goes, but you have to be able to laugh about yourself and to take it with a grain of salt.
+ - I’m not really an actress.
+ - Now we have so many more social outlets, so many ways to be stalked and bullied. If social media is too much for you to handle, then don’t have a Twitter or Facebook account. Just be yourself. Be who you want to be.
+
+56 quotes

@@ -1,0 +1,82 @@
+ - Meet me where the sky touches the sea. Wait for me where the world begins.
+ - Namaste. It was a Nepalese greeting. It meant: The light within me bows to the light within you.
+ - Hope is the crystal meth of emotions. It hooks you fast and kills you hard.
+ - Life’s all about the revolution, isn’t it? The one inside, I mean. You can’t change history. You can’t change the world. All you can ever change is yourself.
+ - I don’t like hope very much. In fact, I hate it. It’s the crystal meth of emotions. It hooks you fast and kills you hard. It’s bad news. The worst. It’s sharp sticks and cherry bombs. When hope shows up, it’s only a matter of time until someone gets hurt.
+ - Voice is not just the sound that comes from your throat, but the feelings that come from your words.
+ - He who cannot endure the bad will not live to see the good.
+ - Little by little, the old world crumbled, and not once did the king imagine that some of the pieces might fall on him.
+ - History is a Rorschach test, people. What you see when you look at it tells you as much about yourself as it does about the past.
+ - Turn away. From the darkness, the madness, the pain. Open your eyes and look at the light.
+ - Come on you raver, you seer of visions, come on you painter, you piper, you prisoner, and shine...
+ - We’re not punished for our sins, lad. We’re punished by them.
+ - There is a ghost here. A lonely, heartbroken spirit. The ghost of everything that could’ve been and never was.
+ - For mad I may be, but I will never be convenient.
+ - I play until my fingers are blue and stiff from the cold, and then I keep on playing. Until I’m lost in the music. Until I am the music – notes and chords, the melody and harmony. It hurts, but it’s okay because when I’m the music, I’m not me. Not sad. Not afraid. Not desperate. Not guilty.
+ - I will rain down silver and gold for you. I will shatter the black night, break it open, and pour out a million stars. Turn away from the darkness, the madness, the pain. Open your eyes and know that I am here. That I remember and hope. Open your eyes and look at the light.
+ - Stop yelling. If everyone’s yelling, no one can be heard.
+ - He’s wearing boots, a kilt, and a long-sleeve tee. No coat, even though it’s December. Beautiful people don’t need coats. They’ve got their auras to keep them warm.
+ - I’m wishing he could see that music lives. Forever. That it’s stronger than death. Stronger than time. And that its strength holds you together when nothing else can.
+ - Why is it that weeks and months and years go by so quickly, all in a blur, but moments last forever?
+ - Because in a small dark room, a broken child lies on a filthy bed and stares up at a high window. He waits for me, too. And I – I who have failed at everything and have failed everyone – I must not, I cannot, I will not fail him.
+ - The rain comes down harder as I write. It sheets off the roof in torrents. I wish it would pound against me. Pound the life from my body. The flesh from my bones. The pain from my heart.
+ - Things are NEVER what they seem, Pa, I thought. I used to think they were, but I was wrong or stupid or blind or something. Old folks are forever complaining about their failing eyesight, but I think your vision gets better as you get older. Mine surely was.
+ - Becuse God loves us, but the devil takes an interest.
+ - The world goes on, stupid and brutal, but I do not. Can’t you see? I do not.
+ - I have done this – made the sad prince laugh. Made his grieving parents smile. None but me. Think you only kings have power? Stand on a stage and hold the hearts of men in your hands. Make them laugh with a gesture, cry with a word. Make them love you. And you will know what power is.
+ - He pressed himself into me and kissed my neck, and it was as if everything strong and solid inside me, heart and bones and muscle and gut, softened and melted from the heat of him.
+ - There is only one thing I fear now-love. For I have seen it and I have felt it and I know that it is love, not death, that undoes us.
+ - Be careful what you show the world. You never know when the wolf is watching.
+ - Yeah. Sure. My brother’s dead. My mother’s insame. Hey, let’s have a crepe.
+ - Together in our house, in the firelight, we are the world made small.
+ - Sometimes, when you catch someone unaware at just the right time and in just the right light, you can catch sight of what they will be.
+ - I’ve always admired your rather formidable will, your refusal to back away from difficulties, but sometimes strength isn’t about perseverance. Sometimes it’s about knowing when to quit.
+ - Cripes Miss Wilcox, they’re not guns,? I said. No, they’re not Mattie, they’re books. And a hundred times more dangerous.
+ - It has an L on it. L for love. See? It’s the key to the universe, Dad. You said you were looking for it. You told Mom you were. I found it for you so you don’t have to look anymore. So you can come home at night.
+ - Only the hopeless love God.
+ - Most of the mess that is called history comes about because kings and presidents cannot be satisfied with a nice chicken and a good loaf of bread.
+ - You can’t argue with the dead, no matter what you say, they always have the last word.
+ - Happiness was useless to me. It was heartache that filled my purse. What happy man has need of Shakespeare?
+ - There were times when I lifted my face to the sky, stretched my arms wide to the winter night, and laughed out loud, so happy was I. The memory of it makes me laugh now, but not from happiness. Be careful what you show the world. You never know when the wolf is watching.
+ - One expects decent people to stand up for the good of all. Decent people shut their doors and hide behind them as decent people do. Massacres could never happen if it weren’t for decent people.
+ - I grew up on a mixed diet of mass and class, and I still read that way. I hate it when people apologize for what they read. Some bestsellers aren’t exactly literary. So what? They’re fun and rip-roaring, Who instituted the book police and why do we have to answer them? Grrrrr!
+ - I could almost hear the characters inside, murmuring and jostling, impatient for me to open the cover and let them out.
+ - When you can write music that endures, bravo. Until then, keep quiet and study the work of those who can.
+ - Every heart is made of stories.
+ - I know it is a bad thing to break a promise, but I think now that it is a worse thing to let a promise break you.
+ - I need a boy who thinks with his big head, not his little one. Since they do not exist, I have fashioned my own.
+ - And Robespierre, the Incorruptible, who loved us so much he cut off our heads so we would not be troubled by too many thoughts.
+ - Who needs make-believe monsters when there are so many real ones.
+ - But words are more powerful than anything.
+ - But his words fall away. He looks confused. He looks flustered and sorry. Like you do when you run up to someone you think you know and take her arm and she turns around and you were wrong.
+ - She was everything he wanted from his life, the very measure of his dreams.
+ - Had you but seen it, I promise you, your high-minded principles would have melted like candle wax. Never would you have wished such beauty away.
+ - It’s a good thing you and your pills weren’t around a few hundred years ago or there never would have been a Vermeer or a Caravaggio. You’d have drugged “Girl with a Pearl Earring” and “The Taking of Christ” right the hell out of them.
+ - I just love historical fiction.
+ - Because just for a few seconds, someone else hurts, too. For just a few seconds, I’m not alone.
+ - Never take what’s offered, always ask for more.
+ - I play until my fingertips are raw. Until I rip a nail and bleed on the strings. Until my hands hurt so bad I forget my heart does.
+ - She’s got a big belt around her hips. It has a shiny buckle with PRADA on it, which is Italian for insecure.
+ - Bravery is feeling fear but doing the thing anyway.
+ - Writers are damned liars. Every single one of them.
+ - For the first time, I saw what was in his heart, and I wondered if he might ever want to look deep enough to see mine.
+ - The more obscure our tastes, the greater the proof of our genius.
+ - The greenest of pastures are right here on earth.
+ - There was a basket at her feet. She reached into it and lifted out the head of a young woman, a marquise. She wore Bourbon white to her death, but wears the tricolor now – white cheeks, blue lips, red dripping from her neck. Long live the revolution.
+ - It’s only the body that’s gone. Only the body. There’s a part that doesn’t go in the ground, a part that stays inside you forever.
+ - He loves the sparkling fountains and their cascades and says the strangest things as he watches them. they look like stars breaking. Or, They look like Mama’s diamonds. Or, They look like all the souls in heaven.
+ - I played a role. That is what actors do. But I played it too well. I went too far. And by the time I wanted to stop, to take a bow and leave the stage, it was too late.
+ - I listened as the words became sentences and the sentences became pages and the pages became feelings and voices and places and people.
+ - Airports should all belong to the same country. The country of Crappacia. Or Bleakovania. Or Suckitan.
+ - She was his soulmate, as much a part of him as the very flesh and bone that made him. She was with him, in him, in everything he did. She was everything he wanted from his life, the very measure of his dreams.
+ - There is an advantage to be found in most everything that happens to you, even if it is not immediately apparent.
+ - Who knew that listening to a guy sleep could be so much deeper than sleeping with a guy.
+ - It is hope, not despair, that undoes us all.
+ - I struggled for a long time to get anything published.
+ - I think your vision gets better as you get older.
+ - The guitar’s still around me. I slip it off and put it down. I want to feel him. To feel his breath on my neck. The warmth of his skin. To feel something other than sadness. Hold me, I tell him silently. Hold me here. To this place. This life. Make me want you. Want this. Want something. Please.
+ - I was only glad to be saved and never once thought to ask why.
+ - I will go out again this very night with my rockets and fuses. I will blow them straight out of their comfortable beds. Blow the rooftops off their houses. Blow the black, wretched night to bits. I will not stop. For mad I may be, but I will never be convenient.
+ - For the first time in a long time, he didn’t think of the past. And of all the things he’d lost. He thought only of the present, and what he had. And how it was so much more than he deserved. And he prayed then that he would never, ever lose it.
+
+80 quotes

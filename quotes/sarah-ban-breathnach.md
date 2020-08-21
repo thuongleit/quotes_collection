@@ -1,0 +1,154 @@
+ - The world needs dreamers and the world needs doers But above all The world needs dreamers who do.
+ - Success is not just money in the bank but a contented heart and peace of mind.
+ - Take a leap of faith and begin this wondrous new year by believing. Believe in yourself. And believe that there is a loving Source – a Sower of Dreams – just waiting to be asked to help you make your dreams come true.
+ - Take a leap of faith and begin this wondrous new year by believing.
+ - Those who live passionately teach us how to love. Those who love passionately teach us how to live.
+ - Making it look easy is the hardest thing in the world to do.
+ - Always remember that striving and struggle precede success even in the dictionary.
+ - Playing it safe is the riskiest choice we can ever make.
+ - Begin today. Declare out loud to the universe that you are willing to let go of struggle and eager to learn through joy.
+ - A new chapter in life waiting to be written. New questions to be asked, embraced, and loved.
+ - Remember, no matter what life throws at us, we can always bake a cake!
+ - Only dreams give birth to change.
+ - Both abundance and lack exist simultaneously in our lives, as parallel realities. It is always our conscious choice which secret garden we will tend...
+ - The greatest secret to living a happy, fulfilled life is the realization that everything is created in our minds before it manifests itself in the outer world. We must believe it before we can see it.
+ - Authentic success is being so grateful for the many blessings bestowed on you and yours that you can share your portion with others.
+ - Whatever you are waiting for-peace of mind, contentment, grace, the inner awareness of Simple Abundance-it will surely come, but only when you are ready to receive it with an open and grateful heart.
+ - If we are to flourish as creative beings, if we are to grow into wholeness, we must bloom wherever we are planted.
+ - Every time we remember to say “thank you”, we experience nothing less than heaven on earth.
+ - Change is the essence of life; change is the great challenge, the great constant. Change is the ultimate teller of tales.
+ - Be grateful for the home you have, knowing that at this moment, all you have is all you need.
+ - Today carve out a quiet interlude for yourself in which to dream, pen in hand. Only dreams give birth to change.
+ - Today expect something good to happen to you no matter what occurred yesterday.
+ - While we cry ourselves to sleep, gratitude waits patiently to console and reassure us; there is a landscape larger than the one we can see.
+ - You simply will not be the same person two months from now after consciously giving thanks each day for the abundance that exists in your life. And you will have set in motion an ancient spiritual law: the more you have and are grateful for, the more will be given you.
+ - Your life at this exact moment is a direct result of choices you made once upon a time. Thirty minutes or 30 year ago.
+ - Harmony is the inner cadence of contentment we feel when the melody of life is in tune.
+ - Joy is your birthright.
+ - A powerful connection between two people is a potent psychic factor that exists regardless of either person’s opinion about the relationship.
+ - When I think about my father, the first image that comes to mind is holding his hand as he drove me to the train station six weeks before he died; I had never noticed how beautiful his hands were until I saw them, for the first and last time, entwined in mine.
+ - Life is not made up of minutes, hours, days, weeks, months, or years, but of moments. You must experience each one before you can appreciate it.
+ - All we need is the awareness of how blessed we really are.
+ - You’ve got to make a conscious choice every day to shed the old – whatever “the old” means for you.
+ - Open your arms as wide as you can to receive all the miracles with your name on them. Never forget that all you have is all you need.
+ - Take another look at your life. Give thanks. Accept your circumstances. Give thanks. Count your blessings. Give thanks. Show up for each day’s meditation. Be willing to give the basic tools a fair chance. They can help you find your way.
+ - It’s a perfect moment to quietly meditate on the cosmic Great Mother who can inspire us all; the divine, feminine Spirit of nurturance known as The Goddess, so revered in ancient times and being rediscovered by women today.
+ - Forgiveness is a form of gratitude. When we forgive others, we show them the mercy that we have often received and been thankful for.
+ - Gratitude is the most passionate transformative force in the cosmos. When we offer thanks to God or to another human being, gratitude gifts us with renewal, reflection, reconnection.
+ - Invite Divine Order into your life today and a more serene tomorrow will unfold.
+ - We can stop waiting for life to become perfect and start working with what we’ve got to make it as satisfying as we can. We can accept, bless, give thanks, and get going. Today, we can begin to call forth the riches from our everyday life. Today we can move from lack to abundance.
+ - You develop patience that enables you to wait gracefully and gratefully until the best arrives because you know it will.
+ - When you learn what you can live without, you are able to ask life for the very best because you possess the gift of discernment. You are able to create an authentic life because you are able to make conscious choices.
+ - Gradually as you become curator of your own contentment, you will learn to embrace the gentle yearnings of your heart.
+ - Consider the track record of your naysayers. How many dreams have they successfully brought into this world?
+ - Always remember, it’s simply not an adventure worth telling if there aren’t any dragons.
+ - Today, look at the blue sky, hear the grass growing beneath your feet, inhale the scent of spring, let the fruits of the earth linger on your tongue, reach out and embrace those you love. Ask Spirit to awaken your awareness to the sacredness of your sensory perceptions.
+ - It doesn’t really matter whether we reflect the light through our authentic gifts or whether our authentic calling is to spread it. What matters is that tonight is that the world is dark, cold, and bleak. Your flame burns so brightly. Share your Love and warmth with others. Watch the Light return.
+ - Let’s choose today to quench our thirst for the ‘good life’ we thinks others lead by acknowledging the good that already exists in our lives. We can then offer the universe the gift of our grateful hearts.
+ - Expect to have hope rekindled. The dry seasons in life do not last. The spring rains will come again.
+ - Gratitude is the most passionate transformative force in the cosmos.
+ - It’s hard to tell our bad luck from our good luck sometimes. And most of us have wept copious tears over someone or something when if we’d understood the situation better we might have celebrated our good fortune instead.
+ - Turn away from the world this year and begin to listen. Listen to the whispers of your heart. Look within. Your silent companion has lit lanterns of love to illuminate the path to Wholeness. At long last, the journey you were destined to take has begun.
+ - Don’t wish today away. Don’t waste it. Redeem one hour to be grateful. Let your thanksgiving rise above the din of disappointment – opportunities lost, mistakes made, the clamor of all that has not yet come.
+ - So burrow in. Snuggle deep. A winter idyll of simple splendor awaits.
+ - Become aware that you already possess all the inner wisdom, strength, and creativity needed to make your dreams come true.
+ - Never forget that the most essential fashion accessories, the ones no woman can afford to do without, come from within. A generous heart, a spontaneous smile, and eyes that sparkle with delight can be part of any woman’s signature look once she awakens to her authentic beauty.
+ - Only when the clamor of the outside world is silenced will you be able to hear the deeper vibration. Listen carefully.
+ - One way of celebrating the Solstice is to consider it a sacred time of reflection, release, restoration, and renewal.
+ - Lavish love on every living being you meet. See how different you feel at the end of the day.
+ - Second thoughts have aborted more dreams than all the difficult circumstances, overwhelming obstacles, and dangerous detours fate ever could throw at you.
+ - Success in life is not how well we execute Plan A; it’s how smoothly we cope with Plan B.
+ - Today is not the day you quit. Nor is it the day you cry. Today you know that you have all the passion and wisdom to find that quiet center of solace, serenity and strength necessary to create and sustain an authentic life.
+ - Each day offers us the gift of being a special occasion if we can simply learn that as well as giving, it is blessed to receive with grace and a grateful heart.
+ - Conscious choice is creative. Unconscious choice is destructive. That is how we end up living other people’s lives.
+ - Sometimes when we awaken from the bad dream of disowning ourselves, we think that the sojourn to self-discovery is a new one. But it is an ancient quest.
+ - Usually, when the distractions of daily life deplete our energy, the first thing we eliminate is the thing we eliminate is the thing we need the most: quiet, reflective time. Time to dream, time to contemplate what’s working and what’s not, so that we can make changes for the better.
+ - Some holiday traditions are sacred. In our house one such tradition is the annual Christmas classic cinema celebration.
+ - Because the truth is – and we know it – we were born to die without regrets. Regret is the only wound from which the soul never recovers.
+ - Authentic success is living by your own lights.
+ - The seasons of life are not meant to be frenetic, just full. Blessed is the woman who knows her own limits.
+ - Today, and everyday, take as your personal mantra: I am what I am and what I am is wonderful.
+ - Half-truths are the devil’s IOUs.
+ - Celebrate the Sacred in the ordinary.
+ - Choice is destiny’s soul mate.
+ - Ironically, gratitude’s most powerful mysteries are often revealed when we are struggling in the midst of personal turmoil.
+ - The simpler we make our lives, the more abundant they become. There is no scarcity except in our souls.
+ - Grace is available for each of us every day – our spiritual daily bread – but we’ve got to remember to ask for it with a grateful heart and not worry about whether there will be enough for tomorrow.
+ - Indifference breeds animosity.
+ - One of the most important milestones we’ll all hit along the way is the moment when we finally own our unique point of view and realize how priceless it is.
+ - Our success already exists on a spiritual level; it’s a matter of pulling it into the physical world.
+ - Become abundant with your compliments to others. We’re all so fragile, especially when we put on a brave face. A sincere compliment can penetrate beneath even the most sophisticated masks to soothe troubled souls.
+ - The authentic self is the soul made visable.
+ - Being Grateful. That is the first step on the path to Joy.
+ - Dare yourself to believe in your creativity, wherever it may lead you. Trust that where it leads, is exactly where you’re supposed to be. Your authentic self knows where you’re headed. Don’t wrestle with Spirit, collaborate with it.
+ - We’re not meant to fit in. We’re meant to stand out.
+ - What if you began to expect the best from any situation? Isn’t it possible that you could write new chapters in your life with happy endings? Suspend your disbelief? Take a leap of faith? After all, what have you got to lose but misery and lack?
+ - When you first awaken or before drifting off to sleep, quiet your mind, lift up your heart, muse, mull over, make discoveries. Consider, conceive, create, connect, concede that it all starts within.
+ - It takes tenacity and daring to travel the darkest interior of one’s self.
+ - I approach my work with a passionate intensity, acting as if its success depends entirely on me. “But once I’ve done my best, I try to let go as much as possible and have no expectations about how my work will be received by the world.”
+ - Let us each grasp a new idea this year. Let us grasp the awareness of what it is that makes us truly happy. Let us consider our personal preferences and learn how to recognize, then embrace, moments of happiness that are uniquely our own.
+ - Discerning our personal gifts is essential if we are to experience harmony in our lives.
+ - When we appreciate how much we have, we feel the urge to pare down, get back to basics, and learn what is essential for our happiness. We long to realize what’s really important.
+ - This moment is always the best one in which to express your care for others.
+ - Let your heart be awakened to the transforming power of gratefulness.
+ - We are far betting dealing with the big losses-death, divorce, debt, and debilitating illness-than with the daily onslaught of little losses.
+ - Observe how gently but surely the natural world renews itself daily.
+ - Not every one of our desires can be immediately gratified. We’ve got to learn to wait patiently for our dreams to come true, especially on the path we’ve chosen.
+ - The key to loving how you live is in knowing what it is you truly love.
+ - No one needs to know that you’ve shut the world out and are meditating as you stroll down the street. Twenty minutes to a half-hour every day is a good amount of time to restore a sense of serenity.
+ - Stressed souls need the reassuring rhythm of self-nurturing rituals.
+ - Success doesn’t have to pull, tug, or chafe if we wear our real size.
+ - Human beings, as far as I can tell, seem to be divided into two subspecies – the resigned, who live in quiet desperation, and the exhausted, who exist in restless agitation.
+ - We should write an elegy for every day that has slipped through our lives unnoticed and unappreciated. Better still, we should write a song of thanksgiving for all the days that remain-now that we know how to cherish them.
+ - Faith is the very first thing you should pack in a hope chest.
+ - Sometimes the tasks we take on seem virtually impossible. But amazingly, when we harness the incredible power of the subconscious in our lives, we can accomplish whatever we set out to do, no matter what obstacles we have to overcome.
+ - Trust that through the balm of simplicity your frazzled and weary soul can discover the place where you ought to be. Every day offers us simple gifts when we are willing to search our hearts for the place that’s right for each of us.
+ - Self-loathing is the silent hemorrhaging of the soul. You don’t feel or see the life force fleeing until it’s not longer there, and then, of course, it’s too late.
+ - After self-nurturance, listening to the whispers of our hearts is probably the hardest task we’ve ever attempted.
+ - Make peace with the knowledge that you can’t have everything you want. Why? Because it’s more important for us to get everything we need.
+ - Real Life – the real life of joy we are meant to be living – begins when we restore a sense of reverence to our daily affairs. Today, search for the Sacred in the ordinary with gratitude in your heart and you will surely find it.
+ - There are several occasions in the course of any woman’s day when, without question, screaming is the appropriate response...
+ - It is difficult to experience moments of happiness if we are not aware of what it is we genuinely love.
+ - There’s no doubt in my mind that sleep deprivation is the hidden number one cause of arguments and cybersex. I’m convinced that countless good relationships end and bad ones begin because of chronic fatigue. Never make a major decision until after you’ve taken a nap.
+ - All of us know about learning life’s lessons through pain, struggle, and loss. But few of us realize that it is often the gentlest lessons that teach us most. Serendipity can instruct us as much as sorrow.
+ - Soul-directed events defy logic and ridicule reason.
+ - We can learn to be the catalysts for our own change.
+ - Many of us squander precious natural resources -time, creative energy, emotion- comparing our talents to those of others. Today ask Spirit to call forth your authentic gifts, so that you might know them, acknowledge them, and own them.
+ - Today you may not be familiar with the happiness habit. But like any new behavior, happiness can be learned.
+ - Start moving, a step at a time, step after step. The positive momentum will take you from there.
+ - My philosophy is very simple: when in doubt, take a bath.
+ - How could I expect more from the universe when I didn’t appreciate what I already had?
+ - We can then offer the universe the gift of our grateful hearts.
+ - The biggest surprise on the soulful journey to authenticity, whether as a philosophy or a spiritual path, is that the path is a spiral. We go up, but we go in circles. Eash time around, the view gets a little bit wider.
+ - When we live our lives authentically, we discover our true place in the world for the first time.
+ - How much time, creative energy, and emotion do we expend resisting change because we assume growth must always be painful? Much personal growth is uncomfortable, but it’s worse to thwart the ascent of your authenticity.
+ - Self-nurturance, or learning to bask in bliss, is an acquired art form.
+ - How many of us go through our days parched and empty, thirsting after happiness, when we’re really standing knee-deep in the river of abundance?
+ - Our deepest wishes are whispers of our authentic selves. We must learn to respect them. We must learn to listen.
+ - Always remember that dreams-your creative visualizations-must come before their physical manifestations.
+ - Many of us have unconsciously erected barriers to protect ourselves from failing or succeeding. We may think we’re protecting ourselves by denying our creative impulses, but all we’re doing is burying our authentic selves alive.
+ - Deliberately seeking solitude-quality time spent away from family and friends-may seem selfish. It is not. Solitude is as necessary for our creative spirits to develop and flourish as are sleep and food for our bodies to survive.
+ - That each day that you love, honor, and respect your own unique point of view, you’re a step closer to finding a fortune.
+ - Let the past go. A simply abundant world awaits.
+ - Once you accept and rejoice in your authenticity, you begin to see things as YOU are. You begin to see the authentic self is the Soul made visible. Godspeed on your journey to wholeness.
+ - Often writers cast their words out prophetically, as a sorceress might cast a spell, and many times when the words return to you, enclosed between covers, your phantom is so fully fleshed out in its own persona, you don’t recognize your own creation.
+ - Solvency feels better than anything you can spend money on.
+ - Let passion be your muse. Let her guide and teach you to trust your instincts.
+ - Learning to live in the present moment is part of the path of joy.
+ - Authenticity pushes us past our comfort zone – it’s meant to.
+ - When I looked at my life’s ledger I realized I was a very rich woman. What I was experiencing was merely a temporary cash-flow problem. Finally, I came to an inner awareness that my personal net worth couldn’t possibly be determined by the size of my checking account balance. Neither can yours.
+ - I truly believe that we each have a House of Belonging waiting for us. Waiting to be found, waiting to be built, waiting to be renovated, waiting to be cleaned up. Waiting to rescue us. Waiting for the real thing: a grown-up, romantic, reciprocal relationship.
+ - Fortunately for us, life’s highway has as many on ramps as it does off ramps.
+ - An authentic life is the most personal form of worship. Everyday life has become my prayer.
+ - As the season of believing seems to wind down let me gently remind you that many dreams still wait in the wings. Many authentic sparks must be fanned before passion performs her perfect work in you. Throw another log on the fire.
+ - Every day we’re given chances to embrace the new.
+ - This moment is your life. It is the process of living, the journey, that is life itself, and we often wish away our lives by focusing only on what tomorrow could, should, would bring.
+ - Procrastination has robbed us of too many opportunities.
+ - There might be a few things in a woman’s life that a romantic interlude won’t cure, but I don’t know any of them.
+ - No behavior can be changed before it’s acknowledged. And no addiction is beyond the reach of Love.
+ - No matter what our decorating style – realized or aspired to the essential spiritual grace our home should possess is the solace of comfort.
+ - This I can report from the front lines: life never calms down long enough for us to wait until tomorrow to start living the lives we deserve.
+ - Your heart will always tell you what’s working and what’s not.
+ - Little changes and little choices add up to be revolutionary changes in your life.
+
+152 quotes

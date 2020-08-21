@@ -1,0 +1,22 @@
+ - Our assignment comes with the alignment. Too many people look for the assignment without first finding their alignment.
+ - For a while, I thought a lot about lineage. Where do I belong? Who am I standing next to?
+ - I was feeling a strong need to change, grow, and break with particular things that were going on in my life and my history, and the material was the perfect answer for that.
+ - Landscape is a piece that is emotional and psychological.
+ - Color is an intense experience on its own.
+ - Often, I work out of my work. One work takes me to the next thing.
+ - Color is for me the purest form of expression, the purest abstract reality.
+ - When I make art, I think about its ability to connect with others, to bring them into the process.
+ - I wasn’t interested in holding onto the evidence of things.
+ - As a viewer, my own work elicits strong emotional reaction from me.
+ - My big concern is keeping people off the highways today, so that we have no further accidents.
+ - I was trying to write an autobiography using prints and patterns that reference emotional, psychological, and personal development in my work, as a person growing up, figuring out who I was. I used fabrics to stand in for occurrences.
+ - It’s as if I were collaborating with myself, revealing my relationship to the material. My hand would make the drawing. Then my mouth would transmit it.
+ - However, some of my work is very subtle, and one should expect very subtle reactions to it.
+ - I think young people have a wonderful reaction to color because it’s not screwed up by too many references.
+ - When I started working with mirrors, it seemed to be the perfect material to stand in for that waiting.
+ - I work from a personal place, and the work has personal meaning for me.
+ - I think that some works are more accessible than others.
+ - I move very slowly. It’s usually material first. I sit with the material for a long time.
+ - But most people don’t come up to me and express a lot of emotion.
+
+20 quotes

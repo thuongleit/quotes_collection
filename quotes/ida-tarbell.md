@@ -1,0 +1,28 @@
+ - Life is but a collection of habits.
+ - Imagination is the only key to the future. Without it none exists – with it all things are possible.
+ - The first and most imperative necessity in war is money, for money means everything else – men, guns, ammunition.
+ - Rockefeller and his associates did not build the Standard Oil Co. in the board rooms of Wall Street banks. They fought their way to control by rebate and drawback, bribe and blackmail, espionage and price cutting, by ruthless efficiency of organization.
+ - A mind which really lays hold of a subject is not easily detached from it.
+ - Many men ridicule the idea that it can be scientifically handled. They tell us the unemployed have always been with us, and always must be. It is the oldest reason in the world for tolerating injustice and misery.
+ - A mind truly cultivated never feels that the intellectual process is complete until it can reproduce in some media the thing which it has absorbed.
+ - The only reason I am glad I am a woman is because I will not have to marry one.
+ - A popular disturbance never remains long in the full control of those who start it.
+ - One of the most depressing features of the ethical side of the matter is that instead of such methods arousing contempt they are more or less openly admired. And this is logical. Canonise ‘business success,’ and men who made a success like that of the Standard Oil Trust become national heroes!
+ - In walking through the world there is a choice for a man to make. He can choose the fair and open path, the path which sound ethics, sound democracy, and the common law prescribe, or choose the secret way by which he can get the better of his fellow man.
+ - There is no man more dangerous, in a position of power, than he who refuses to accept as a working truth the idea that all a man does should make for rightness and soundness, that even the fixing of a tariff rate must be moral.
+ - My whole theory for the improvement of society is based on a belief in the discipline and the education of the individual to self-control and right doing, for the sake of right doing. I have never seen fundamental improvements imposed from the top by ordinances and laws.
+ - The quest of the truth had been born in me – the most tragic and incomplete, as well as the most essential, of man’s quests.
+ - The whole force of the respectable circles to which I belonged, that respectable circle which knew as I did not the value of security won, the slender chance of replacing it if lost or abandoned, was against me.
+ - Very often people who admit the facts, who are willing to see that Mr. Rockefeller has employed force and fraud to secure his ends, justify him by declaring, ‘It’s business.’ That is, ‘it’s business’ has come to be a legitimate excuse for hard dealing, sly tricks, special privileges.
+ - We are a commercial people. We cannot boast of our arts, our crafts, our cultivation; our boast is in the wealth we produce. As a consequence business success is sanctified, and, practically, any methods which achieve it are justified by a larger and larger class.
+ - Ripe old age, cheerful, useful, and understanding, is one of the finest influences in the world.
+ - There is no more effective medicine to apply to feverish public sentiments than figures.
+ - It is not alone that justice is wounded by denying women a part in the making of the civilized world – a more immediate wrong is the way the movement for a fuller, freer life for all human beings is hampered.
+ - Buy cheap and sell high is a rule of business, and when you control enough money and enough banks you can always manage that a stock you want shall be temporarily cheap. No value is destroyed for you – only for the original owner.
+ - Perhaps our national ambition to standardize ourselves has behind it the notion that democracy means standardization. But standardization is the surest way to destroy the initiative, to denumb the creative impulse above all else essential to the vitality and growth of democratic ideals.
+ - You cannot settle a new country without suffering, exposure, and danger. Cheerful endurance of hardships and contempt of surroundings become a virtue in a pioneer. Comfort is a comparatively new thing in the United States.
+ - The theory that the man who raises corn does a more important piece of work than the woman who makes it into bread is absurd. The inference is that the men alone render useful service. But neither man nor woman eats these things until the woman has prepared it.
+ - One of the permanent possessions of the human heart is the memory of its noble enthusiasms.
+ - It’s always a revolution, you know, when things occur of which you have never happened to hear!
+
+26 quotes

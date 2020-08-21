@@ -1,0 +1,38 @@
+ - The healing of the land and the purification of the human spirit is the same process.
+ - Ignorance, hatred and greed are killing nature.
+ - The ultimate goal of farming is not the growing of crops, but the cultivation and perfection of human beings.
+ - The simple hearth of the small farm is the true center of our universe.
+ - The increasing desolation of nature, the exhaustion of resources, the uneasiness and disintegration of the human spirit, all have been brought about by humanity’s trying to accomplish something.
+ - Left alone, the earth maintains its own fertility, in accordance with the orderly cycle of plant and animal life.
+ - The greening of the desert means sowing seeds in people’s hearts and creating a green paradise of peace on earth.
+ - There is no time in modern agriculture for a farmer to write a poem or compose a song.
+ - If we throw mother nature out the window, she comes back in the door with a pitchfork.
+ - We receive our nourishment from the Mother Earth. So we should put our hands together in an attitude of prayer and say “please” and “thank you” when dealing with nature.
+ - Giving up your ego is the shortest way to unification with nature.
+ - My ultimate dream is to sow seeds in the desert. To revegetate the deserts is to sow seed in people’s hearts.
+ - The final principle of natural farming is NO PESTICIDES. Nature is in perfect balance when left alone.
+ - Modern research divides nature into tiny pieces and conducts tests that conform neither with natural law nor with practical experience. The results are arranged for the convenience of research, not according to the needs of the farmer.
+ - We have come to the point at which there is no other way than to bring about a ‘movement’ not to bring anything about.
+ - The irony is that science has served only to show how small human knowledge is.
+ - I wonder how it is that people’s philosophies have come to spin faster than the changing seasons.
+ - There is no one so great as the one who does not try to accomplish anything.
+ - We must find our way back to true nature. We must set ourselves to the task of revitalizing the earth. Regreening the earth, sowing seeds in the desert – that is the path society must follow.
+ - Unless people can become natural people, there can be neither natural farming nor natural food.
+ - Gradually I came to realize that the process of saving the desert of the human heart and revegetating the actual desert is actually the same thing.
+ - As we kill nature, we are killing ourselves, and God incarnate as the world as well.
+ - Before researchers become researches they should become philosophers.
+ - If you do not try to make food delicious, you will find that nature has made it so.
+ - The real path to natural farming requires that a person know what unaltered nature is, so that he or she can instinctively understand what needs to be done – and what must not be done – to work in harmony with its processes.
+ - I started natural farming after the war with just one small plot, but gradually I acquired additional acreage by taking over surrounding pieces of abandoned land and caring for them by hand.
+ - By raising tall trees for windbreaks, citrus underneath, and a green manure cover down on the surface, I have found a way to take it easy and let the orchard manage itself!
+ - I believe that even ‘returning-to-nature’ and anti pollution activities, no matter how commendable, are not moving toward a genuine solution if they are carried out solely in reaction to the over development of the present age.
+ - Life on a small farm might seem primitive, but by living such a life we become able to discover the Great Path. I believe that one who deeply respects his neighborhood and everyday world in which he lives will be shown the greatest of all worlds.
+ - Straw mulch, a ground cover of white clover interplanted with the crops, and temporary flooding all provide effective weed control in my fields.
+ - The only sensible approach to disease and insect control, I think, is to grow sturdy crops in a healthy environment.
+ - Although natural farming – since it can teach people to cultivate a deep understanding of nature – may lead to spiritual insight, it’s not strictly a spiritual practice.
+ - Natural farming is just farming, nothing more. You don’t have to be a spiritually oriented person to practice my methods.
+ - If a farmer does abandon his or her “tame” fields completely to nature, mistakes and destruction are inevitable.
+ - Since I turned the fields back to their natural state, I can’t say I’ve had any really difficult problems with insects or disease.
+ - A farmer does not grow something in the sense that he or she creates it. That human is only a small part of the whole process by which nature expresses its being.
+
+36 quotes

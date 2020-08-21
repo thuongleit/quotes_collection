@@ -1,0 +1,46 @@
+ - Be the best. No negativity. No weakness. No acquiescence to fear or disaster. No errors of ignorance. No evasion to reality.
+ - I just want to have a completely adventurous, passionate, weird life.
+ - If you feel blocked, do not turn to others, but look inside, in silence, for the enemy of your progress.
+ - I just want to be a guy with a guitar.
+ - We are born to live, we are born to understand, we are born to carry a cursed pattern and be transformed by pain.
+ - And though the meaning fits, there’s no relief in this. I miss my beautiful friend.
+ - I prefer to learn everything through music. If you want divinity, the music in every human being and their love for music is pretty much it. It’s the big indication of their spirituality and their ability to love and make love, or feel pain or joy, and really manifest it, really be real.
+ - Fight despite the crowds of the walking dead.
+ - Love heals all wounds and not just time alone.
+ - Music should be like making love. Sometimes you want it soft and tender, another time you want it hard and aggressive.
+ - Words are beautiful but restricted. They’re very masculine, with a compact frame. But voice is over the dark, the place where there’s nothing to hang on: it comes from a part of yourself that simply knows, expresses itself, and is.
+ - Your soul can fly outward, stringed to your ribcage like a shimmering kite in the shape of an open hand. Be still and listen to the evidence of your own holiness.
+ - Above all do not give yourself airs. Breaking the moment of past habits is the challenge here: In the life of the spirit you are always at the beginning.
+ - I have no advice for anybody; except to, you know, be awake enough to see where you are at any given time, and how that is beautiful, and has poetry inside. Even places you hate.
+ - You can’t kill the past by denying the past. You can kill it only by making it obsolete. And even in that, you have to find honor in the past. You can’t hack off pieces of yourself, and expect them to grow again.
+ - Turn your head away from the screen, my friend. It will tell you nothing more.
+ - The music can tell people everything they need to know about being human beings. It’s not my information, it’s not mine. I didn’t make it. I just discovered it.
+ - I want to be ripped apart by music...
+ - There’s the moon asking to stay long enough for the clouds to fly me away.
+ - To do something that will just fly away is kind of special. Every time somebody tell you they love you, that “I love you” flies away, and you wait until the next one.
+ - The most audacious thing I could possibly state in this day and age is that life is worth living. It’s worth being bashed against. It’s worth getting scarred by. It’s worth pouring yourself over every one of its coals.
+ - Sensitivity isn’t about being wimpy. It’s about being so painfully aware that a flea landing on a dog is like a sonic boom.
+ - Fate is gonna find you in your glass of champagne.
+ - I like a spirituality with a God that knows how to drive a car, that knows how to take his girl to the dance club, dance all night, have a little drink, kiss the kid when they come back in and go to sleep. God doesn’t need a chauffeur – he needs to drive himself.
+ - There’s no time for hatred, only questions. Where is love? Where is happiness? What is life? Where is peace?
+ - I resent the fact that a parental warning sticker has to be included on an album as cover art. To me that’s censorship.
+ - In love we are all brothers and sisters.
+ - If you do anything regularly for a while, sooner or later the weirdoes will show up.
+ - If you want to get somewhere in this life, learn to draw beautiful women.
+ - I sacrificed my anonymity for my father, whereas he sacrificed me for his fame.
+ - I don’t really need to be remembered. I hope the music’s remembered.
+ - I’m convinced I got signed because of who I am. And it makes me sad.
+ - But music seems to me to be the most closely identified with my soul. I mean, I feel that it’s the best for me. It just gets into the bloodstream so quickly, for no reason at all. You can close your heart, and you can sleep even with your eyes closed, but you can never close your ears.
+ - When all of this music sounds like you know what you want to say, then it will have been of all worth, ever. You will be something complete unto yourself, present and unique.
+ - Music was like my first real toy. I was an only child for a while, and I was alone a lot of the time – and I liked it. I still like being alone.
+ - Too young to hold on and too old to just break free and run.
+ - I’ve always felt that the quality of the voice is where the real content of a song lies. Words only suggest an experience, but the voice is that experience.
+ - I don’t want my reputation to take me over, I just want to be judged on my songs. I want people to come and see me because they want to, not because fashion dictates it.
+ - Thinking so hard on her soft eyes and memories of the signs that it’s over. It’s over.
+ - The people who raised me musically are my mother, who is a classically trained pianist, and my stepfather.
+ - A tune has to resonate with whatever is happening around it.
+ - Kiss me out of desire, but not consolation.
+ - I’ve already created my own thing.
+ - There is no good singing, there is only present and absent.
+
+44 quotes

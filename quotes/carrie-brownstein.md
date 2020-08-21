@@ -1,0 +1,80 @@
+ - The internet is just a scary place. It’s better to just go to the doctor. Don’t let Google get inside your head. It will do bad things to you.
+ - I think that half of us feel fraudulent in our lives anyway. There’s that strange disconnect of not really knowing what we’re doing sometimes, or why it matters. It’s our existential crisis.
+ - I love coffee. I love a midday espresso on set, just for the energy.
+ - I think that there’s always an assumption, when a band goes on hiatus or stops playing, that there’s some acrimony brewing under the surface.
+ - I need a template of a template.
+ - Over the years, music put a weapon in my hand and words in my mouth it backed me up and shielded me, it shook me and scared me and showed me the way; music opened me up to living and being and feeling.
+ - I have no problem spending money on a great meal with friends or a flight to see somebody that I love, versus something like a fancy car. I don’t need a fancy car. I don’t need a giant TV.
+ - I don’t want to mislead people.
+ - Nothing is as nice as plugging in your guitar and turning up the volume really loud, just seeing what kind of beautiful noise you can make with it.
+ - Music has always been my constant, my salvation. It’s cliche to write that, but it’s true.
+ - I think short-term goals are important. Trying to set a missive for yourself for the entire year can be daunting, and it can feel too easy to fail or fall short of that.
+ - No matter what people are struggling with, or based on whatever. Sexuality, ethnicity, economic status, size. I don’t wish smallness for anyone. It’s a terrible place to live.
+ - Practice. Learn and then unlearn – that’s the trick in finding your own style of playing. You can’t merely emulate, you have to innovate, or at the very least create your own path into the process.
+ - These new bands sound like Gang of Four – if Gang of Four sucked.
+ - I think you should be prepared for a green-screen CGI at all times.
+ - Rihanna has guts and she always seems to be singing from someplace honest, dark and fierce.
+ - With Rock Band, you can play along to Black Sabbath or Nirvana and possibly find new ways of appreciating their artistry by being allowed to perform parallel to it. Rock Band puts you inside the guts of a song.
+ - I’m all about being prudent. And I’ve started to appreciate experiences more than actual objects.
+ - People are wearing fleece, which is a hard fabric to be angry in.
+ - You can’t bury a part of yourself that’s so innate to who you’ve been, even if it’s not for the sake of anything other than a pure enjoyment of it.
+ - I’ve realized that I have a lot of different loves, and I want to pursue writing, but I can never divorce myself from music.
+ - For film and television, it’s interesting how fans feel that their particular ways of manifesting their affections are the correct ones. It’s not just about being a fan, it’s about how you perform your fandom. That’s always been interesting to me.
+ - I’m always trying to encourage people not to limit themselves in the same way that many of our parents stayed with one job forever.
+ - I always felt that the most common thread in my life from when I was young until now has been a highly observant, very analytical mind.
+ - I like how blogging emulates fandom because it’s so completist and spontaneous. It really mirrors the way people listen to music, and I like that fluidity with online content.
+ - It’s so nice to have a band name you don’t have to explain.
+ - I like to connect with people through my work. That’s my favorite way – meetings of the minds, fans at a show. Those are nice mediated ways of hanging out.
+ - It’s hard to beat the visceral high of playing live and creating something spontaneous.
+ - I really don’t know what to do when my life is not chaotic.
+ - For a while I had somebody that came to clean my house that turned out to be in a band that I really loved.
+ - It does feel great to be writing, but the process is sometimes excruciating.
+ - Well, in some ways I had sort of the opposite experience of other people that are sort of dreaming of being in a rock band. I was dreaming of like corporate lunches and just like, and I’m not really joking. Like the whole idea to me was really appealing.
+ - You can never underestimate that moment of somebody explaining your life to you, something you thought was inexplicable, through music. That was the way out of loneliness.
+ - To be a fan is to be curious, and to be curious is to have openness. Part of being a fan is to allow 360 degress of experience – to immerse without judgment. It’s like a really fearless step forward into new experience. There’s something that feels very timeless about fandom.
+ - I don’t think I would live outside of the Northwest. I think the quality of life in Portland is really good. People move from intense, high-powered jobs, and move to Portland, work half as much and live twice as good.
+ - I think hypochondria always plays a part in the healthcare landscape.
+ - I’ve learned to really enjoy video games. It’s really toxic to have in your house, because it’s really distracting.
+ - Just invest in apps. Just download apps and then pay yourself the dividend.
+ - I think grief is a step towards strength because it allows you to be porous and take everything in, and have it transform you. What will sit within you is despairing, but at least it’s feeling. You’re not numb. Grief is sort of the allowance of feeling.
+ - I got kind of tired of playing, I think. But I think it will be part of my life again, maybe.
+ - I think closing-off is the most detrimental thing we can do as people. Also, the idea of not judging oneself.
+ - After Sleater-Kinney broke up in 2006 I had very little desire to play music. It took well over three years before picking up a guitar meant anything to me other than an exercise.
+ - I think proteins are really good for your brain. And your brain is where comedy comes from.
+ - I’m interested in the crevices, and the grotesque, and the unsavory. That started out when I was young. I’ve never quite been able to shake that.
+ - If you always want to look relevant, just be CGI-prepared.
+ - I read a lot; fiction and non-fiction are the mediums I find most edifying and inspiring. I watch movies and listen to music and take lots and lots of walks. Nature is a nice reset button for me, it’s how I get a lot of thinking done.
+ - The natural world operates by its own set of rules. The animal world, all the places that are feral and ungovernable, that’s where I find a lot of inspiration. There is just as much beauty there, but there is also decay and violence.
+ - I wrote so much about fandom and participation for NPR that I eventually realized my most fertile way of participating in music is to actually play it, at least in a way that made the most sense to me.
+ - I’ve always loved writing. Doing that at the same time as playing music can be tiring.
+ - You do have to live through things, and to live through things is to observe want, and to observe lacking. Even if the hunger is a curiosity.
+ - I am a horrible visual artist. I can’t fix a car, sew, knit, cook, etc. Statistically, there is more I don’t do than do.
+ - Twitter is sort of version of labeling, except with 140 characters instead of a labelmaker. It’s the way of calling things out for what they are, wearing badges. Twitter is like the new Scarlet Letter.
+ - There are foods you should avoid. For me, sugar is a no. Because it gives me a spike and then a crash.
+ - I’m kind of a hermit – it’s almost easier for me to write about connection than to actually connect.
+ - I think one of the reasons I haven’t been doing music is because I think that some of my performance, like, needs are being taken care of in other mediums.
+ - What I value most in new music is strangeness, oddity. Passion. And humor. I listen to a lot of hip-hop because it combines so many things like that.
+ - I will say, as a woman, when you put a mustache on, you find out a lot of things about yourself.
+ - To really be tortured by a song, it needs to be more than just something you don’t like or don’t get; it has to make your skin crawl by getting under it. Strangely, that last clause could describe provocative or daring music, as well.
+ - Once you’re away from music, I realize that’s as intrinsic to who I am as anything else. That’s the part that takes me out of my brain.
+ - I’m really drawn to the uncompromising realness of natural process: It’s unadorned. It’s not very pretty.
+ - I’ll admit that I’m not quite certain how to sum up an entire year in music anymore; not when music has become so temporal, so specific and personal, as if we each have our own weather system and what we listen to is our individual forecast.
+ - I have to erase my Google search histories, because they always lead to an obituary.
+ - As a kid, before I got into music, I did all the drama classes, went to theater camp in the summers, so it wasn’t totally a foreign world.
+ - I’ve never understood people who play up the artifice of music.
+ - I like to take things incrementally, and strive for something that feels more attainable.
+ - I feel like I came in comedy’s side door, and still feel very fraudulent in many ways.
+ - With Portlandia, I don’t think our intention is always to find something funny. Sometimes the humor comes from taking something really seriously. We’re okay with making somebody feel uncomfortable or uneasy.
+ - A lot of music for me was about – I mean aside from the fun and challenge of writing and being really good friends with my bandmates – getting to perform.
+ - I think, for some artists, the fear of taking on a political identity stems from not wanting to be pigeonholed as political actor or a political musician. It becomes this thing where somehow your art can no longer exist on its own and be multifaceted.
+ - I think in some ways, whether you’ve ever actually been to Portland, people definitely understand this highly curated niche lifestyle, because a lot of people are sort of striving for that now. Or they’re hating on it.
+ - From a self-conscious standpoint, it’s hard to see myself on a screen in a way that isn’t just me playing music or doing something silly.
+ - I have no desire to play music unless I need music.
+ - It was writing about music for NPR – connecting with music fans and experiencing a sense of community – that made me want to write songs again. I began to feel I was in my head too much about music, too analytical.
+ - I’ve mostly been focusing on writing, and I’ve really enjoyed not playing music. It will always be part of my life, but I don’t feel the immediate need to be playing for people.
+ - I would not call myself an optimist, even though I would aspire to be. I am innately a skeptic. There’s kind of an incessant dissatisfaction that I have, that I’m always trying to either expose or fight against or wrestle with.
+ - With Sleater-Kinney, we did a lot of improvisation in our live shows, and even our process of songwriting involved bringing in disparate parts and putting them together to form something cohesive.
+ - For me, being in shape means, like, not having cynicism out-weigh optimism on a daily basis.
+ - To me, curiosity is married to optimism. And that’s where a lot of my motivation comes from. A lot of my way out of depression and anxiety is that intersection between optimism and curiosity. Because it means taking a step forward with the hope that there will be discovery.
+
+78 quotes

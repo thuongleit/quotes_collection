@@ -1,0 +1,30 @@
+ - I did my best, and God did the rest.
+ - I’d rather make $700 a week playing a maid than earn $7 a day being a maid.
+ - Why should I complain about making $7,000 a week playing a maid? If I didn’t, I’d be making $7 a week being one.
+ - Faith is the black person’s federal reserve system.
+ - I don’t belong on this earth. I always feel out of place – like a visitor.
+ - I’d rather play a maid than be one.
+ - A woman’s gifts will make room for her.
+ - I sincerely hope that I shall always be a credit to my race, and to the motion picture industry.
+ - Putting a little time aside for clean fun and good humor is very necessary to relieve the tensions of our time.
+ - When I was 8 years old, I knew what I was going to be – an actress.
+ - You can best fight any existing evil from the inside.
+ - That’s a powerful lucky rabbit’s foot. I got the part in Gone With the Wind because of it. I got my Warner contract, thanks to it.
+ - We all respect sincerity in our friends and acquaintances, but Hollywood is willing to pay for it.
+ - The only choice permitted us is either to be servants for $7 a week or to portray them for $700 per week.
+ - My desire for the part of Mammy was not dominated by selfishness for Hollywood has been good to me and I am grateful.
+ - Every actor and actress is possessed of the absorbing passion to create something distinctive and unique.
+ - As for those grapefruit and buttermilk diets, I’ll take roast chicken and dumplings.
+ - The entire race is usually judged by the actions of one man or woman.
+ - I always have the best of everything.
+ - In playing the part of Mammy, I tried to make her a living, breathing character, the way she appeared to me in the book.
+ - I’m letting no man handle my bank account.
+ - I’ve played everything but a harp.
+ - It sure looks good to see an honest-to-goodness audience after looking at you all for so long from the silver screen.
+ - When I was little, my mother taught me how to use a fork and knife. The trouble is that Mother forget to teach me how to stop using them!
+ - What is the thing that Hollywood demands most? Sincerity. No place in the world will pay such a high price for this admirable trait.
+ - Always remember this: There are only eighteen inches between a pat on the back and a kick in the rump.
+ - Playing the Mammy of Miss Leigh was just about the biggest thrill I’ve ever had.
+ - I am loathe to get married again. I’ve been married enough; I just prefer to forget it.
+
+28 quotes

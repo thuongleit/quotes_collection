@@ -1,0 +1,23 @@
+ - Money can’t buy happiness.
+ - Passion will make you crazy, but is there any other way to live?
+ - Do the impossible, because almost everyone has told me my ideas are merely fantasies.
+ - I intend to be, the richest man in the world.
+ - If I have made a mistake in the design, then I’m the one who should pay for it. I certainly would not ask somebody else to fly a plane if I were afraid to do it myself.
+ - I am by nature a perfectionist, and I seem to have trouble allowing anything to go through in a half-perfect condition. So if I made any mistake it was in working too hard and in doing too much of it with my own hands.
+ - My father told me, never have partners.
+ - Once you consent to some concession, you can never cancel it and put things back the way they are.
+ - The human brain is still undergoing rapid adaptive evolution,.
+ - We don’t have a monopoly. Anyone who wants to dig a well without a Hughes bit can always use a pick and shovel.
+ - Play off everyone against each other so that you have more avenues of action open to you.
+ - Every man has his price, or a guy like me couldn’t exist.
+ - I want to be remembered for only one thing: my contribution to aviation.
+ - Sometimes I truly fear that I am losing my mind. And if I did it it would be like flying blind.
+ - A million dollars isn’t what it used to be.
+ - I intend to be the greatest golfer in the world, the finest film producer in Hollywood, the greatest pilot in the world, and the richest man in the world.
+ - Never make a decision. Let someone else make it and then if it turns out to be the wrong one, you can disclaim it, and if it is the right one you can abide by it.
+ - I’m not a paranoid deranged millionaire.
+ - I put the sweat of my life into this project, and if it’s a failure, I’ll leave the country and never come back.
+ - Wash four distinct and separate times, using lots of lather each time from individual bars of soap.
+ - One of our anxieties is de-focusing the relatively small number of engineers we have. Within our own core development, I am reluctant to fund projects that are way afield of where we are.
+
+21 quotes

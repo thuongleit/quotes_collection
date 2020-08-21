@@ -1,0 +1,232 @@
+ - If you believe in yourself anything is possible.
+ - Life’s a climb. But the view is great.
+ - The greatest opportunities in life come with fear and risk.
+ - The minute you stop making mistakes is the minute you stop learning.
+ - Music is the love of my life. It's a total escape from reality. Music transports you to another place, someplace unexpected and meaningful.
+ - There’s always gonna be another mountain, I’m always gonna wanna make it move, Always gonna be a uphill battle, Sometimes I’m gonna have to lose, Ain’t about how fast I get there, Ain’t about what’s waiting on the other side, It’s the climb.
+ - Nobody’s Perfect.
+ - Remember that only God can judge us; forget the haters, because Somebody loves you.
+ - My heart wont let you go, and I need you to know, I miss you.
+ - Nobody notices your sorrow, your pain, but everyone notices your mistakes.
+ - We run things, things don’t run we.
+ - And I hope you find it, what your looking for, and I hope it’s everything you dreamed your life could be and so much more.
+ - Everyone is beautiful in their own way, in and out and you have no right to tell them otherwise.
+ - GOD gave you this life because HE knew you could handle it.
+ - My guitar is like my best friend. My guitar can get me through anything. If I can sit down and write an amazing song with my guitar about what’s going on in life, then that’s the greatest therapy for me.
+ - There are tough times and mountains to climb, but you’ve got to go for it.
+ - Maybe it’s your time to lift off and fly You won’t know if you never try.
+ - You can’t blame me for who I am.
+ - I remember when we kissed. I still feel it on my lips. The time you danced with me with no music playing. I remember the simple things. I remember till I cry. But the one thing I wish I’d forget, the memory I wanna forget is goodbye.
+ - Life is all about having a good time.
+ - You can’t live a positive life with a negative mind and if you have a positive outcome you have a positive income and just to have more positivity and just to kind of laugh it off.
+ - God wants my life to be about being successful and being happy and blessing other people and being blessed.
+ - Anything can happen in this world, for an ordinary girl.
+ - For every action there is an equal and opposite reaction. You never know what it’s going to look like on the other side, but you’ll see it eventually if you keep your eyes open.
+ - Everybody needs inspiration Everbody needs a song. A beautiful melody, When the night’s so long. Cause there is no guarantee, That this life is easy.
+ - The struggles I’m facing The chances I’m taking Sometimes might knock me down But no, I’m not breaking.
+ - The dreams that you hold for your future are what you dream about at night. They’re always at the back of your mind. They’re what your heart desires. They keep you going. Accept reality and have a backup plan, but always follow your dreams no matter what.
+ - As long as you’re not hurting anyone, your choices are your choices.
+ - I don’t know what’s waiting for me around the corner and I don’t know what else I’m going to be doing in the future – but you’ve got to enjoy things while you’re doing them. There are tough times and mountains to climb, but you’ve got to go for it.
+ - You can’t stop people from talking about you, but you can stop giving them something to talk about.
+ - Life is a climb and it’s a struggle getting to the top but the drop to the bottom can be quick and so I think you have to embrace every moment of the day.
+ - When you are ready to move on or if you come to peace with pain, you’ll find a silver lining.
+ - I learned from you that I do not crumble. I learned that strength is somthing you choose.
+ - I don’t really have a style – I’m just me. My style is kinda whatever I feel like wearing. A lot of girls feel like they need to wear what everyone else is wearing. But it’s good to have your own trend. People will start following it!
+ - This is a new point in my life, and things are totally changing. But like the sunsets I saw on Tybee Island, the miles I’ve already gone are going to stay with me.
+ - Growing up is important, and I’ve got to do that gracefully, but also keep myself at a good pace.
+ - People more think of me as a party animal. Which, I am a self-proclaimed party animal, but I’m also the hardest working person you’ll ever know.
+ - I tell people, you know, going to the club doesn’t make me a bad person, going to church doesn’t make you a good one.
+ - Life is a climb but once you get to the top you’ll realize that the view is beautiful!!
+ - For me the most important thing is being a really good person, and that doesn’t depend on what you do on stage, that depends on how you treat people when you’re offstage.
+ - I learned that it’s super important to stay true to yourself and your family. I’ve also learned that I’ve got a lot to learn about life, but that’s just part of growing up.
+ - Pink isn’t just a color, it’s an attitude!
+ - I try to not work too many Sundays. At least on Sunday nights, I try to chill out a little bit. I call it Sunday Funday.
+ - Anyone that hates on you is always below you, because they’re just jealous of what you have.
+ - There are multiple sides to all of us. Who we are – and who we might be if we follow our dreams.
+ - Music is what I breath, what I love to do. It keeps me alive.
+ - I never faked anything. I never played the Disney game of smiling and being a princess and then suddenly having a hard time, saying, ‘That isn’t who I really am.’
+ - Imperfectios equal beauty. We are all imperfect.
+ - Fear’s the only obstacle that gets in the way of doing what we love. Fear holds us back from living the lives we’re made to live.
+ - There’s not much that I’m closed off about, and the universe gave me all that so I could help people feel like they don’t have to be something they’re not or feel like they have to fake happy. There’s nothing worse than being fake happy.
+ - Talk is Cheap.
+ - I’m just a girl, With a dream that got the best of me, In a world that believes fame is everything.
+ - You know, I’ve made my money. If no one buys my album, cool. It’s fine. I’ve got a house, and I’ve got dogs that I love. I don’t need anything else.
+ - All I wanted was to break your walls, all you wanted was to break me.
+ - You are my glue. Without you, I’d be nothing but broken pieces.
+ - I need more friends. It’s kind of like my quest right now just to have more true friends.
+ - I don’t think you can be too ashamed of anything as long as you were being yourself. I think why people feel, um, so entitled over me is that they’ve watched me grow up. But that’s a blessing and a curse.
+ - I don’t respect your statement because of the anger that came with it.
+ - If someone tells you you’re not beautiful, turn around and walk away so they can have a great view of your fabulous ass.
+ - All I do is work, so I eat to live and to keep going.
+ - So when I’m in that teddy bear suit, I’m like a creepy, sexy baby.
+ - Even the hard times are part of your life story. If you acknowledge them and move past them, they eventually add up to the experience that makes you wise.
+ - I’ve learned how to respect myself and how to say no. I’ve learned who I can really trust. I have 200 or 300 friends, but I probably trust four.
+ - It was hard to leave my school. I’ve been going to the same school since kindergarden.
+ - I think water’s, like, a really important thing.
+ - I have candy all the time. I live on gummy bears and peach rings. They’re like dried-up peaches, only dipped in sugar. You can get ’em at gas stations. They’re like 99 cents for four bags. And cashews. I love cashews.
+ - I think that turning on the charm without being fake is really important.
+ - I get more anxious than nervous before a concert.
+ - If you don’t like my songs, don’t hear it. If you don’t like my music videos, don’t watch it. If you hate me, I don’t care.
+ - You need to see things, REALLY see them, feel them, live them, so you know what’s big and what’s little, what matters and what to put aside.
+ - It is important to ask yourself why you’re doing what you’re doing and what purpose it serves in the big picture.
+ - Every day after work, my mom and I go shopping. My dad is about to kill me. I say, We need it, daddy!
+ - I’m representing women in a cool way.
+ - I’m just enjoying playing a character of myself. People’s mouths drop when I dance, but my friends are like, “You dance like that in the kitchen!”
+ - I lay in bed at night by myself and I’m totally okay, and that’s so much stronger than the person three years ago, who would have thought they would have died if they didn’t have a boyfriend.
+ - Embarrassment is the worst! It’s the feeling of having your entire body go numb and not knowning what to do with yourself for that one moment.
+ - Some people think you have more privileges than other teenagers because of what you do, and that’s not it at all. It’s actually the opposite.
+ - People don’t know how to talk about being depressed – that it’s totally okay to feel sad.
+ - I like being the girl nobody can have.
+ - I’m not really trying to be sexy. I try to explain to girls that you don’t have to have long blond hair and big boobs.
+ - I thought that we were getting somewhere, but we’re still nowhere at all. I watch your tail lights fading, I try but a tear won’t fall.
+ - When in doubt dance out.
+ - The Gypsy Heart tour is a dream come true. Not only because of all the beautiful cities I will get to visit, but all of the beautiful people I will get to meet. Gypsy Heart is not just a tour for me, but a mission to spread love.
+ - The last thing I ever want to do is disappoint my parents. If something ever happened to one of my parents, I’d want them to go knowing I made them proud.
+ - I never had, like, a nanny that took care of me. My mom always fed me breakfast, lunch, and dinner.
+ - It’s awkward and silent as I wait for you to say, what I need to hear now, your sincere apology. When you mean it, I’ll believe it, if you text it I’ll delete, let’s be clear. Oh, I’m not coming back, you’re taking 7 steps here...
+ - I am so excited to let fans in on how important my relationship with my family is to me. I hope to motivate mothers and daughters to build lifetimes of memories together and inspire kids around the world to live their dreams.
+ - Demi is my best friend in the whole wide world, the media needs to back off and let the girl relax.
+ - I’ve never just been able to be alone, and I’m obsessed with being alone and hearing my thoughts. I’m trying to take this alone time – the five minutes I do have a day – to learn as much as I can.
+ - I am not very good at keeping secrets at all! If you want your secret kept do not tell me!
+ - My dad has never actually grounded me. He always tells my mom to do it. He tells her, “Miley was so bad today, you need to ground her.”
+ - As soon as I step on that stage, nothing matters. I don’t think of it as work. It’s just so much fun.
+ - I got the total package, you know, the curves, the rhythm, and the voice. I’m just the best.
+ - I’m still learning who I am. One minute I have black hair, the next it’s red. One day I’m wearing Converse sneakers, and the next I’m in the hippie look.
+ - Most people hate that their mum has a Facebook page, but I love that my mum does.
+ - Being famous is like a dream come true but it’s really difficult because you lose your freedom. I don’t want to lose being a kid.
+ - I don’t feel rushed to figure myself out. I have all the time in the world to do that.
+ - Drugs are for idiots. I’m never going to be that person.
+ - I don’t ever want to have to need someone again – where you feel like, without them, you can’t be yourself.
+ - There’s no better feeling than making somebody smile.
+ - I love my fans more than life itself.
+ - Don’t be anything you don’t want to be, always be yourself.
+ - Remember what things make you special and embrace those because there are so many things that aren’t on the outside that are so important and people find so beautiful.
+ - Shopping, eating, and being with my friends. So, anytime that I am at home chillin’, I will find a way to shop online. I’m like, “If I’m not allowed out of the house tonight then I am shopping online!”
+ - I try to keep my life as private as I can, but I definitely don’t do what I do for the attention because if I knew coming into that I would have all those people outside my house, I might have given myself a second thought.
+ - The only people that you really have, that I learned, are your family, because they love you no matter what.
+ - You don’t have to go out and party every night. You can act because it’s your dream.
+ - Everyone should try no gluten for a week! The change in your skin, physical and mental health is amazing. You won’t go back!
+ - You’ve got a million ways to make me laugh.
+ - For me, the movement has to be bigger than just a record. For me, a movement represents like taking over the world.
+ - There are so many things that can take over your life: money, alcohol, drugs – even fashion. People hand you things, and you start to believe life is easy. And it’s not like that – you’re not supposed to be the person you play in the movies.
+ - The best part of my carreer is getting to meet so many different people, because I learn so much from everyone.
+ - I think there are always going to be things that you’re going to want to do. It’s about picking yourself back up and starting again.
+ - I come from this really small town near Nashville, Tennessee, where everything was la-di-da and normal.
+ - Always look forward and try to push pass the negativity. I think everyone’s beautiful and they deserve to be happy no matter what.
+ - People like controversy because that’s what sells.
+ - There are times in my life where I’ve had boyfriends or girlfriends.
+ - I’ll be out with my friends and be recognized, and little girls will ask me for my autograph. It is so much fun living out your dream. It, like, totally reflects me 100%.
+ - When preparing for a concert, I do lots of training. I work with a choreographer to create great moves and then I have to keep my voice strong with lessons.
+ - My 13-year-old self would have beaten up my 17-year-old self because she would be like, ‘You’re a sellout!’
+ - I think it’s an important time not to Google myself.
+ - Hopefully people will take me more seriously as an actress. That’s what I really want to do, it’s my passion and it’s what I want to be considered to do. I just want to continue to do film, it’s what I love.
+ - A lot of people wanted to try to make me the white Nicki Minaj. That’s not what I’m trying to do. I love ‘hood’ music, but my talent is as a singer.
+ - People are impressed with me – because I can sleep for just 45 minutes – I’m used to it.
+ - I think at some point during everyone’s life, you finally figure yourself out. I haven’t even done that yet. I’m still learning who I am.
+ - I have an opinion. I have my own taste.
+ - No one is talking about the man behind the ass. It was a lot of ‘Miley twerks on Robin Thicke,’ but never, ‘Robin Thicke grinds up on Miley.’ They’re only talking about the one that bent over. So, obviously there’s a double standard.
+ - I like to think of myself as the girl that no one can get, that no one can keep in their hand.
+ - I’m not letting any stupid decisions get in my way. I want to be a role model, letting girls know that they can follow their dreams.
+ - Beauty is the enemy. We try to conquer not feeling beautiful all our lives. It’s a battle that can’t be won. There’s no definition of beauty. The only way to achieve beauty is to feel it from inside without breaking down into individual physical attributes.
+ - But I don’t necessarily define my faith by going to church every Sunday.
+ - I think the reason that a lot of people have to have a lot of people around is just about being smart and knowing what you want to talk about.
+ - I always love coming to Disneyland but celebrating my birthday here with my family, friends and the kids from YSA is really awesome!, this is a night I’ll never forget.
+ - I like keeping my mind as far away from money and the material aspects of my job as possible.
+ - I’m a bit of a tomboy.
+ - Hollywood is a coke town, but weed is so much better. And Molly, too; those are happy drugs – social drugs. They make you want to be with friends. You’re out in the open. You’re not in a bathroom.
+ - My priorities are my friends and my family.
+ - I have a lot more real friends, than friends that I’m talking to on the Internet. That’s not cool, not safe, not fun and most likely not real. Everything is just better when you’re not so wrapped up in that. I just think it’s lame.
+ - I’m actually graduating early. I got a lot of work done already. Being home schooled, I have had a lot of tutors help me.
+ - I don’t wanna be shaped like a girl. I love being shaped like a woman, and trust me ladies, your man won’t mind either.
+ - I don’t keep secrets because I’m no good at them!
+ - My favourite sport is cheerleading!
+ - Jesus is who saved me. He’s what keeps me full and whole.
+ - I do have limits on my money. I like calling my mom to ask, “Can I have that?” Because I know I can be spending my money more wisely.
+ - I love to sleep. I’d sleep all day if I could.
+ - I think it’s selfish to go out partying all the time, especially if you have little ones in your family.
+ - I write in my sleep. I don’t know how, but I’ll work on a song, go to sleep and it’s finished when I wake up.
+ - You know, what can I say. If a relationship can’t work out, make a record.
+ - Some people don’t have a family to fall back on, like I have, and that’s when something greater than even that comes in, and that’s faith and that’s what I have for me, that’s what keeps me strong.
+ - As soon as I read the script for Hannah Montana, I knew it kinda related to me. I wanted to disguise myself as not some celebrity’s daughter, just be me and find people that like me for me.
+ - It’s so weird. I like shrimp. I will eat like a whole thing of shrimp. I’m a vegetarian, but that is the only thing that I will eat. So, I will eat and eat shrimp and, like, fries.
+ - I would say I’m a nice person, and I take pride in the fact that I treat everyone really well, so there’s no reason for anyone to ever come at me because I only want the best for everybody else.
+ - People ask me how I stay happy and sane: I never google myself.
+ - I love looking out at 27 semis and being like, every single one of those semi trucks is there to put together my stage.
+ - It’s the little things that make us who we are in the bigger world.
+ - There’s so much negativity in the world and what you only need to hear is all the love.
+ - I think that if you’re doing something that’s important, that’s significant in your life, it takes some of the pain away.
+ - I’m just about equality, period. It’s not like, I’m a woman, women should be in charge! I just want there to be equality for everybody.
+ - I can mix and match a cute shirt with some skinny jeans under a leather jacket and it looks fun and unique.
+ - I love animals, but I don’t really like riding animals. Like, I don’t love being on a horse – it’s just not my thing.
+ - You can’t get a dolphin. What are you gonna do, like, put it in your pool?
+ - Faith is the main thing. That’s kind of why I’m like here in Hollywood: to be like a light, a testimony to say God can take someone from Nashville and make me this, but it’s his will that made this happen.
+ - It’s hard to imagine that our love is a story with an end. But you know, at least I’m getting some really good songs out of it.
+ - I think my mom did everything pretty close to perfect, and I want to be the cool mom that the kids run home to.
+ - It just kills me to see people lose someone they love, so I want to do as much as I can: give money to doctors and hospitals; get nurses in there that care; put a smile on a little kid’s face.
+ - The reason I never want a book to end is that I start to feel like the characters are my friends. I’ll miss them when they’re gone.
+ - Some of the worst things that have happened in my career, like things getting leaked, have actually been what’s best for me, because people knew when I was on that show that I was really growing up.
+ - Those minutes that I’m on stage are the best! Being there and looking at the crowd and seeing their faces, hearing them sing the positive words from the songs.
+ - I think faith can be anything. It can be believing in yourself, or if you believe there’s a higher being that’s watching over you.
+ - My mom is always telling me it takes a long time to get to the top, but a short time to get to the bottom.
+ - There’s nothing more fun than being out on stage and getting the vibe from the crowd. There’s nothing like being on a set where you are there to make other people happy and to make them laugh. That’s the best job in the world.
+ - I think I am a pretty good sister.
+ - Every career thing I do can’t be perfect and sometimes my decisions are wrong.
+ - People do not understand that what I do on stage is a character, my fans know who I truly am.
+ - There’s no right or wrong, success or failure.
+ - You know you’re a stoner when your friends make you a Bob Marley cake.
+ - Michael Jackson was my inspiration. Love and blessings.
+ - I probably have an earlier curfew than anyone. My mom wants to keep me really safe and my dad’s not overly protective, but he’s a dad no matter what.
+ - I’m pretty outspoken.
+ - I have four shelves covered with journals that I’ve written. Dad and I are writing songs together. I’ve probably written 100 songs.
+ - There are certain movies you go and see, and then after, you wanna go home and talk to your best friend and tell her that you really love her.
+ - Kissing is something that everybody does!
+ - Life’s what you make it.
+ - I have more fun playing Hannah, because I like to sing and dress up.
+ - I want everything to be perfect, if I’m going to do it.
+ - I don’t need the money. I don’t care if I make a dime on this. Let me make a good record.
+ - I love my music so much, and I love what I’m doing so much that that has become my other half-rather than another person.
+ - I’m kind of bipolar in my acting choices because I just want to do a little bit of everything.
+ - Little moments attach themselves to other little moments and collect into big dreams. We become what we experience.
+ - Sometimes when I’m in the studio I feel so much but don’t know how to express it. You’re just like in a cave – life goes on without you.
+ - I think my dad is a lot cooler than other dads. He still acts like he’s still 17.
+ - I guess I kind of realized that my whole life isn’t one giant press junket. I don’t have to be smiling all the time and always have the perfect answer.
+ - Making a film is like learning the ropes all over again.
+ - Hopefully my hair grows really quick, I want it long again.
+ - I don’t understand how most pop stars live this life being told what to do, what to wear, all the time. Maybe money does mean more to some people.
+ - No matter how long what I’m doing here lasts, I want to be a songwriter for the rest of my life. I love it and it’s my escape.
+ - If I could get any animal it would be a dolphin. I want one so bad. Me and my mom went swimming with dolphins and I was like, ‘How do we get one of those?’ and she was like, ‘You can’t get a dolphin. What are you gonna do, like, put it in your pool?’
+ - I think Hannah gets nervous just like any other person would. She’s like a dork, personally. She’s just really, really fun.
+ - Most of my fans are young; they pay for their own tickets and work really hard to be able to come, and so I want to give all of them the best show.
+ - I don’t want to be perfect, but I do want to be a role model. My mom always tells me that imperfections equal beauty. All of us are imperfect.
+ - I thought a lot of girls wanna have their secret identity and have something they don’t want to tell people about.
+ - I hate being thought of as a product.
+ - I kind of take Hilary as a role model because she started out at about the same age, she hadn’t done much before starting her series, and I haven’t either.
+ - I want to be real. I want to be a real person. That’s what an artist is. An artist has to be honest. Without honesty, there’s nothing.
+ - Some people recognize me. I really like it.
+ - I’ve actually had a melody on my guitar since the day I learned how to play it, back when I was 7. And for some reason I can’t add lyrics to it.
+ - I think that I’m allowing girls to be really free with their sexuality.
+ - I listen to zero pop music, which is really weird from someone who makes pop music.
+ - My dad, like, he’s the most trusting human in the world.
+ - Sometimes pop artists, it’s all about clothes and pyro. My thing is about my band.
+ - I’m a big Hilary Duff person! My family loves her.
+ - I am fully committed to Hannah Montana. It’s what gave me this amazing opportunity to reach out to so many people.
+ - I don’t have a normal life.
+ - With yourself, I think you have to decide the kind of person that you really want to be, and for me, it’s just a sweet girl.
+ - I’m the most antimedication person, but some people need medicine, and there was a time where I needed some too.
+ - People actually say Miley mostly because they see Miley mostly on the show. When I have the wig on, they’ll say Hannah, but when I don’t, they’ll say Miley.
+ - Dad always says that I could sing before I could talk.
+ - I take a hiatus every now and again, but I’m not good at that.
+ - There are so many people that have come up to me during our shows and tell me: ‘The hour that we are watching your show is the hour that my kids are happiest and are smiling, they are laughing,’ and that is what I long to do.
+ - Honestly, musicals? I just can’t. What if this was real life and I was just walking down the street on Rodeo Drive and all of a sudden I just burst into song about how much I love shoes?
+ - They’re not role models. So for me it was a bad decision, because of my fans and because of what I stand for.
+ - When you write or sing a song that means something to you, you are saying, ‘You know what? This is who I am!’
+ - She did not use it at all well mostly.
+ - I’ve not taken like acting lessons or anything but it doesn’t mean I don’t need to because I’m sure I do.
+ - There were so many things I have had to say sorry for that I wasn’t sorry about.
+ - Dream.
+ - It’s so much easier to know who you are when there aren’t a thousand people telling you who they think you are.
+ - Hannah in the show is enormous, like a Hilary Duff of TV. I hope everyone really likes her. She’s a great person!
+ - Whatever person kids relate to the most, I want them to call me that. Sp of Hannah’s more who they find their inspiration in, call me Hannah. If they’re more an average girl who wants to blend in with everybody else, then call me Miley.
+ - I tell kids not to be on the Internet. It’s dangerous. It’s not fun. It wastes your life. You should just be outside playing sports, instead of sitting in front of any type of screen.
+
+230 quotes

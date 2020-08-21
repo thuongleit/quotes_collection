@@ -1,0 +1,60 @@
+ - Relationships are monuments build on lies.
+ - We all have our scars. That’s what falling is love is all about: revealing your scars to somebody who then loves you anyway.
+ - Kids are like heroin, a little heroin addiction. When it’s bad, you’ve never been so miserable, but when it’s good you’ve never been so high.
+ - Books are magic: you never know where they’re going to end up.
+ - I’m not a Pollyanna sort of kumbaya type.
+ - Today’s unspeakable perversion is tomorrow’s kink, is next week’s good clean fun.
+ - Mother’s Day is a torment if your mother is dead. Valentine’s Day is a torment if you don’t got one. And at some point in our lives, we will be tormented by Valentine’s Day even if we’re relatively lucky in love.
+ - The bullied straight kid goes home to a shoulder to cry on and support and can talk freely about his experience at school and why he’s being bullied. I couldn’t go home and open up to my parents.
+ - Children have a right to some stability and constancy from the adults in their lives.
+ - Oftentimes, when people write me 4,000-word letters, I write them back and tell them if their problem’s that complicated, they probably need a lawyer or a cop, and not me.
+ - Bisexuals need to recognize that their being closeted is a huge contributing factor to the hostility they face.
+ - Straight couples don’t have to be monogamous to be married or married to be monogamous. Monogamy no more defines marriage than the presence of children does. Monogamy isn’t compulsory and its absence doesn’t invalidate a marriage.
+ - The Bible is a radically pro-slavery document. Slave owners waved Bibles over their heads in the Civil War and justified it.
+ - I get letters every year from women who think Valentine’s Day is an empty exercise, but are ironically pretty exercised when their boyfriends neglect or forget it.
+ - A lot of kids are bullied because of their sexual identity or expression. It’s often the effeminate boys and the masculine girls, the ones who violate gender norms and expectations, who get bullied.
+ - I waver between a cop-out agnostic and principled atheism.
+ - I’m always telling people who say two men can’t make a baby: ‘Anything is possible for God. I’m going to keep inseminating my husband and keep my fingers crossed.’
+ - I think the best thing for you to do is just live your life. Live a life that’s worth living, one where you do what you want to do, pursue your passions. That way, if you meet someone, they’ll be joining a life that’s already really good.
+ - Owning a gun in America is one way for conservative white males to demonstrate their anger at crime, liberalism, feminism, and modernity.
+ - Ultimately life is disease, death and oblivion. It’s still better than high school.
+ - TV commercials make parenting look like there are going to be good days and bad days – like, it’ll be this gentle wave, like you’ll have a blissed-out, really wonderful day or two, and then, you know, then you’ll have an issue. And what parenting is, is kind of earthquake.
+ - You know, my problem is I cant say no to people, especially people who want to write me checks to do things.
+ - Is it adultery if I’m committing it at one end of a guy and he’s committing it at the other end of that same guy?
+ - So while gun owners are always saying that owning guns is about defending freedom, the only freedom gun owners seem interested in defending with their guns is the freedom to defend their freedom to own guns.
+ - The right to life, liberty, and the pursuit of happiness means that each of us is free to go our own way, even if the ways some of us may choose to go seem sinful or shocking to our fellow citizens.
+ - I don’t understand how real Christians let that little f – ker get away with that.
+ - Parenting is about being competent and responsible. It’s not about gender, necessarily.
+ - Outing is brutal and it should be reserved for brutes.
+ - I’m an agnosto-theist. I cross myself on airplanes. I pray when I’m sick. When you’re sick I’ll keep you in my thoughts; when I’m sick, I’m entreating a higher power.
+ - Women can go on marrying and pretending that their boyfriends and husbands are Mr. Darcy or some RomCom dream man. But where’s that going to get ’em? Besides divorce court?
+ - I don’t think that sin and pursuing happiness are not necessarily the same thing.
+ - I got picked on a lot, even by teachers too. I liked to listen to musicals and bake, and my homeroom teacher found out and mocked me in front of the whole class for baking.
+ - I believe it’s in the best interests of a child to be in a stable environment.
+ - We’re living through an age of irrationality and religious “fervor” I would call it religious idiocy. It’s exhausting to year after year be on the receiving end of this demagoguery.
+ - The mistake that straight people made was imposing the monogamous expectation on men. Men were never expected to be monogamous.
+ - Every question is a hypothetical question for everyone but the person who asks it.
+ - I don’t write about my life in my column.
+ - Every American may have equal access to ice cream, but there’s no guarantee that the outcome of eating ice cream will be equal.
+ - Only someone obsessed with sexual fidelity to an unhealthy degree places a higher value on preserving the ideal of monogamous marriage over preserving an actual marriage.
+ - The cultural expectation should be if there’s infidelity, the marriage is more important than fidelity.
+ - When you’re a writer, you want to try to avoid cliches. Unfortunately, when you’re writing about marriage or family, all cliches seem to apply.
+ - The truly revolutionary promise of our nation’s founding document is the freedom to pursue happiness-with-a-capital-H.
+ - In an open adoption agreement, you agree to a minimum number of visits – a floor, not a ceiling. It’s enforceable.
+ - School is very conformist, and one of the very first conforming that goes on in preschool and kindergarten is gender.
+ - A lot of people are living their lives online in much more public ways with Facebook and Twitter.
+ - Sometimes I talk to religious people about my column or what I do, and I ask them to, you know, read 20 or 30 of them and then come tell me that the message at the heart of every column isn’t, ‘Do unto others as you would have them do unto you.’ In every possible sense.
+ - I didn’t want kids to think that to be happy, they had to be famous or rich or live in the big city.
+ - I have a thick skin, but I have a heart.
+ - Natural isn’t something I get called a lot in Texas.
+ - I wouldn’t say that holidays are manufactured by corporations, but they’re certainly exploited and mined by them.
+ - But it doesn’t matter what you’re doing, it matters how you’re doing it.
+ - Preaching to the choir actually arms the choir with arguments and elevates the choir’s discourse. There’s a reason the right does it and does it well and triumphs.
+ - One man’s blasphemy doesn’t override other people’s free-speech rights, their freedom to publish, freedom of thought.
+ - How can you tell somebody who is pursuing happiness that they’re somehow not American when that was the very first promise that America made?
+ - Yes, yes: Taking out Saddam Hussein means war, and war is bad for children and other living things. I went to grade school in the 1970s, and I recall the poster. But there are times when war is not only a tragic and unavoidable necessity, but also good for children and other living things.
+ - I think the ‘South Park’ guys are brilliant.
+ - I own a lot of my house, because I’m Irish and from people who never owned anything.
+ - I really enjoy doing theater, but doing theater in Seattle is like dropping a brick in a bottomless well. It’s gratifying, but it’s almost like doing radio. It’s ephemeral.
+
+58 quotes

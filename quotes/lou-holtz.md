@@ -1,0 +1,164 @@
+ - It’s not the load that breaks you down, it’s the way you carry it.
+ - Ability is what you’re capable of doing. Motivation determines what you do. Attitude determines how well you do it.
+ - Without self-discipline, success is impossible, period.
+ - You were not born a winner, and you were not born a loser. You are what you make yourself be.
+ - Do right. Do your best. Treat others as you want to be treated.
+ - Life is 10 percent what happens to you and ninety percent how you respond to it.
+ - In this world you’re either growing or you’re dying so get in motion and grow.
+ - Your talent determines what you can do. Your motivation determines how much you are willing to do. Your attitude determines how well you do it.
+ - I follow three rules: Do the right thing, do the best you can, and always show people you care.
+ - I never learn anything talking. I only learn things when I ask questions.
+ - You’re never as good as everyone tells you when you win, and you’re never as bad as they say when you lose.
+ - Winners embrace hard work. They love the discipline of it, the trade-off they’re making to win. Losers, on the other hand, see it as punishment. And that’s the difference.
+ - Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.
+ - Everybody needs four things in life: Something to do, someone to love, someone to believe in and something to hope for.
+ - If what you did yesterday seems big, you haven’t done anything today.
+ - If you’re bored with life – you don’t get up every morning with a burning desire to do things – you don’t have enough goals.
+ - Don’t tell your problems to people: eighty percent don’t care; and the other twenty percent are glad you have them.
+ - If you are killing time, it’s not murder. It’s suicide.
+ - No one has ever drowned in sweat.
+ - What’s important now? – To evaluate the past, focus on the future, and tell you what you have to do in the present.
+ - Don’t ever promise more than you can deliver, but always deliver more than you promise.
+ - Don’t be a spectator, don’t let life pass you by.
+ - Teamwork is the foundation of success. The three universal questions that an individual asks of his coach, player, employee, employer are: Can I trust you? Are you committed to excellence? And, do you care about me?
+ - In life, be a participant, not a spectator.
+ - Only the unprepared are overcome by pressure.
+ - Don’t tell me how rocky the sea is, just bring the ship in.
+ - You might not be able to outthink, outmarket or outspend your competition, but you can outwork them.
+ - What you are capable of achieving is determined by your talent and ability. What you attempt to do is determined by your motivation. How well you do something is determined by your attitude.
+ - Those who know Notre Dame, no explanation’s necessary. Those who don’t, no explanation will suffice.
+ - I do know this: God does answer your prayers, but it’s not always in the way you expect. God knows what’s best for us, though, so there’s no need to worry when things don’t go how we originally wanted them to go.
+ - Nothing is as good as it seems and nothing is as bad, but somewhere between reality falls.
+ - The man who complains about the way the ball bounces is likely the one who dropped it.
+ - Never settle for second when first is available.
+ - Build your empire on the firm foundation of the fundamentals.
+ - Show me someone who has done something worthwhile, and I’ll show you someone who has overcome adversity.
+ - First we become the best, then we’ll become first.
+ - Don’t run if you can walk. Don’t walk if you can stand. Don’t stand if you can sit. Don’t sit if you can lie down.
+ - It’s always better to face the truth, no matter how uncomfortable, than to continue coddling a lie.
+ - In the successful organization, no detail is too small to escape close attention.
+ - Remember. Every day, some ordinary person does something extraordinary. Today, it’s your turn.
+ - If you don’t make a total commitment to whatever you are doing, then you start looking to bail out the first time the boat starts leaking.
+ - We aren’t where we want to be; we aren’t where we ought to be; but thank goodness we aren’t where we used to be.
+ - When people need love and understanding and support the most is when they deserve it the least.
+ - It always amazes me that spectators want to coach, coaches want to officiate, and officials just want to watch the game.
+ - Winners and losers aren’t born, they are the products of how they think.
+ - No matter how bad someone has it, there are others who have it worse. Remembering that makes life a lot easier and allows you to take pleasure in the blessings you have been given.
+ - If you burn your neighbors house down, it doesn’t make your house look any better.
+ - How you respond to the challenge in the second half will determine what you become after the game, whether you are a winner or a loser.
+ - Motivation is simple. You eliminate those who are not motivated.
+ - People eyeing you as a potential leader tend to ask three questions: Are you committed? Do you care about me? Can I trust you?
+ - A team wins with the elimination of mistakes and with people who want to win and can’t stand losing.
+ - The key to winning is choosing to do God’s will and loving others with all you’ve got.
+ - So many times people are afraid of competition, when it should bring out the best in us. We all have talents and abilities, so why be intimidated by other people’s skills?
+ - It’s the extra effort after you have done your best that creates victory.
+ - You’ve got to have great athletes to win, I don’t care who the coach is. You can’t win without good athletes but you can lose with them. This is where coaching makes the difference.
+ - On this team, we’re all united in a common goal: to keep my job.
+ - If you’ve been there, no explanation is necessary. If you haven’t, none is adequate.
+ - You always have to prepare for the obstacles that are going to come. Consequently, when they do come, it doesn’t affect you mentally near as much as when you’re unprepared for them.
+ - Sacrifice, discipline and prayer are essential. We gain strength through God’s word. We receive grace from the sacrament. And when we fumble due to sin – and it’s gonna happen – confession puts us back on the field.
+ - All winning teams are goal-oriented. Teams like these win consistently because everyone connected with them concentrates on specific objectives. They go about their business with blinders on; nothing will distract them from achieving their aims.
+ - Underconfidence breeds underachievement.
+ - Don’t let failure get you down. Babe Ruth struck out over 1,300 times.
+ - See, winners embrace hard work.
+ - You can’t motivate a group of people or a Team. You have to motivate people individually, and that motivation has to be in an environment in which that person has a goal – something they want to accomplish in their lives.
+ - I think that we have opportunities all around us – sometimes we just don’t recognize them.
+ - Everybody is looking for instant success, but it doesn’t work that way. You build a successful life one day at a time.
+ - How do you know what it’s like to be stupid if you’ve never been smart?
+ - The standards you establish for others must reflect the standards you set for yourself. No one will follow a hypocrite.
+ - God looks after children, animals and idiots.
+ - I used to pray that God would make me a great athlete, and He never did.
+ - I believe that having a spiritual life is so important in everybody’s life.
+ - After winning, most teams become individuals; most teams become complacent.
+ - You’ll never get ahead of anyone as long as you try to get even with him.
+ - Everyone goes through adversity in life, but what matters is how you learn from it.
+ - One reason I won’t compromise is because I believe honesty helps you win over the long haul. You can win a game tomorrow and lose a team. You can lose a game tomorrow and win a football team.
+ - Everything ends badly, otherwise it would not end.
+ - You must have dreams and goals if you are ever going to achieve anything in this world.
+ - My wife doesn’t even want to spend 2 hours with me.
+ - You will never be indecisive if you know your purpose.
+ - The problem with having a sense of humor is often that people you use it on aren’t in a very good mood.
+ - The best way to save face is not to use the lower half.
+ - I’ve never known anybody to achieve anything without overcoming adversity.
+ - The way you motivate a football team is to eliminate the unmotivated ones.
+ - I don’t think we can win every game. Just the next one.
+ - First and foremost I am a teacher, I care. Caring is helping the players to develop.
+ - There are certain things in this world we all have in common such as time. Everybody has sixty seconds to a minute, sixty minutes to an hour, twenty-four hours to a day. The difference is what we do with that time and how we use it.
+ - The answer is surprisingly simple. Just do right. Live an honorable life.
+ - I feel that God wants me to coach; otherwise, he wouldn’t have put the desire in me.
+ - For victory in life, we’ve got to keep focused on the goal, and the goal is Heaven.
+ - If you don’t demand that your people maintain. High performances to remain on your team, Why should they be proud of the association?
+ - Remember this. Bear Bryant retired at age 69, and he died 28 days after he stopped coaching. If you don’t have something, and a purpose in your life, you’re gonna die.
+ - The freedom to do your own thing ends when you have obligations and responsibilities.
+ - Absolutely. There are a 1000 better coaches in the cities, but I’m the best in the country.
+ - It’s a better view if you’re standing up than if you’re laying down.
+ - One day you are drinking the wine, and they next day you are picking the grapes.
+ - It’s good to be successful but it’s great to be significant.
+ - You can pay people to perform, but you can’t pay people to excel.
+ - I was born January 6, 1937, eight years after Wall Street crashed and two years before John Steinbeck published The Grapes of Wrath, his Pulitzer Prize-winning novel about the plight of a family during the Great Depression.
+ - Adversity is another way to measure the greatness of individuals. I never had a crisis that didn’t make me stronger.
+ - You don’t go to Notre Dame to learn something, you go to Notre Dame to be somebody.
+ - Ya know, Hitler was a great leader, too.
+ - If you make a fist and hold it for two hours, you won’t be able to pick up a glass because you’ll be so weak. Let’s stay loose. Let’s have fun.
+ - In the nineties, everybody wants to talk about their rights and privileges. Twenty-five years ago, people talked about their obligations and responsibilities.
+ - They say a tie is like kissing your sister. I guess that is better than kissing your brother.
+ - I think everyone should experience defeat at least once during their career. You learn a lot from it.
+ - Momentum is whatever your attitude determines it to be.
+ - I’d say handling people is the most important thing you can do as a coach. I’ve found every time I’ve gotten into trouble with a player, it’s because I wasn’t talking to him enough.
+ - I don’t drink water, haven’t drank water in 40 years.
+ - God answers prayers, but he doesn’t always answer it your way.
+ - The freedom to do your own thing ends when you have obligations and responsibilities. If you want to fail yourself – you can – but you cannot do your own thing if you have responsibilities to team members.
+ - An agent won’t help you get drafted higher, won’t make you win more games, and won’t make you faster or stronger.
+ - I don’t play well enough to be allowed to throw my clubs.
+ - Behind every successful person, stands a very successful mother-in-law.
+ - Had I been a great athlete, I’m not sure I would have even gone into coaching. I may have turned out feeling that my life ended when my athletic career ended, as happens so many times with various athletes.
+ - Football coaches don’t have real problems.
+ - I believe your attitude is the most important choice you can make.
+ - Everyone wants to win on Saturday afternoon when the game is played. It’s what you do the other six days that decides the outcome.
+ - You live up – or down – to your expectations.
+ - I asked you to pack your headgear and shoulder pads, but more importantly your defense and your kicking game, because that’s what wins game like this.
+ - All an agent is going to do is buy things for a player, damage his eligibility, and make the player dependent on them.
+ - You aren’t going to find anybody that’s going to be successful without making a sacrifice and without perseverance.
+ - It was a great game if you don’t care who won. I cared.
+ - When all is said and done, more is said than done.
+ - No, but you can see it from here.
+ - Don’t ever ask a player to do something he doesn’t have the ability to do. He’ll just question your ability as a coach, not his as an athlete.
+ - When the bank asks me about my assets, I include my friendship with Regis Philbin.
+ - Attitude determines how well you do it.
+ - In golf, the player, coach and official are rolled into one, and they overlap completely. Golf really is the best microcosm of life – or at least the way life should be.
+ - We are not going to win because you have a new head coach, any more than you are going to fix a flat tire by changing the driver. We will win the minute all of us get rid of excuses as to why we can’t win and stop wallowing in self-pity.
+ - ESPN is a great organization to work for.
+ - I believe – we all pay taxes. I’m happy to pay it, but I hate to have it abused, money wasted, no accountability. That’s going to bother you.
+ - We will use some kind of option and we will throw the football. I hope it will be at our people.
+ - I’ve never seen the yellow light, umm the yellow line be wrong.
+ - I look at athletes in all sports and try to picture what kind of football player they’d be, what position they’d play and so on.
+ - My philosophy in life is, Decide what you want to do. You have to have something to hope for.
+ - I can’t explain why a bride buys her wedding dress, whereas a groom rents his tux.
+ - The only people who aren’t going to be criticized are those who do absolutely nothing.
+ - No matter what happens on the field, getting an education makes you a winner.
+ - I just have an enthusiasm for life.
+ - If he’s got golf clubs in his truck or a camper in his driveway, I don’t hire him.
+ - To win a national championship, you’ve got to be a little lucky.
+ - One thing about me is I try to be honest.
+ - A lifetime contract for a coach means if you’re ahead in the third quarter and moving the ball, they can’t fire you.
+ - I’ll assure you this: I will have nothing to do with politics.
+ - I’m not a disciplinarian. I simply enforce other people’s decisions.
+ - I give opinions, not advice.
+ - I was raised in a religious environment, and my wife is one of the more religious people that I have ever known.
+ - Whenever you give up something, you must replace it with something.
+ - I have no desire at all to become the winningest coach at Notre Dame. The record belongs to Knute Rockne or some other coach in the future.
+ - Remember that adversity presents us with numerous possibilities for success, if we are just willing to see them.
+ - I bet you went on one date and wanted to get married.
+ - I do think coaches need to get away from the game more, though. It’s good for them.
+ - Broadcasting is easy; you just talk until you think of something to say.
+ - Give me a blackboard. I can stop anything on a blackboard.
+ - When I work a game as an analyst, all I do is look at the game like a coach.
+ - If Tiger Woods had played football, he would have been a quarterback.
+ - Give your players something they can physically do – don’t ask them to do something they can’t do.
+ - You build a successful life a day at a time.
+ - Coaching is nothing more than eliminating mistakes before you get fired.
+ - All my life, I’ve been trying to make a hole-in-one. The closest I’ve come is a bogey.
+ - Actually, all I ever wanted to be was the best in my field.
+ - It’s not my job to motivate players. They bring extraordinary motivation to our program. It’s my job not to de-motivate them.
+
+162 quotes

@@ -1,0 +1,112 @@
+ - This is your life and the clock is ticking.
+ - Life’s a marathon, not a sprint.
+ - There is no reality, only perception.
+ - You can’t change what you don’t acknowledge.
+ - The difference between winners and losers is that winners do things losers don’t want to do.
+ - You must demand nothing less than the best of yourself and for yourself. You must tell yourself that it is not wrong to want it all.
+ - A mother is only as happy as her saddest child.
+ - If what you’re doing isn’t working, change it.
+ - Instead of being ashamed of what you’ve been through, be proud of what you have overcome!
+ - You teach people how to treat you.
+ - Take the high road, there’s a lot less traffic up there.
+ - If you don’t have a plan, days turn into weeks, weeks turn into months, months turn into years, and before you know it you’re looking back saying, I should’ve had a plan.
+ - We teach people how to treat us.
+ - Sometimes you make the right decision, sometimes you make the decision right.
+ - Anger is nothing more than an outward expression of hurt, fear and frustration.
+ - There is power in forgiveness.
+ - Stand up and walk out of your history.
+ - Awareness without action is worthless.
+ - When you allow a person’s words to upset you, you’re giving away your power.
+ - Anyone can do something when they want to do it. Really successful people do things when they don’t want to do it.
+ - Take it from a guy: If you’re in love with somebody, you will swim the stream, you will climb the mountain, you will slay the dragon. You’re going to get to her somehow, some way.
+ - You wouldnt care so much about what people think about you if you knew how little they did.
+ - I mean, if you degrade someone, you isolate them, you control them, you call them names, you demean them. That’s a horrible existence for people.
+ - Life is a full-contact sport, and there’s a score up on the board.
+ - Life is managed; it is not cured.
+ - People have the right to think and say whatever they want to. But you have the right not to take it to heart, and not to react.
+ - People who have nothing to hide, hide nothing. You should be an open book, be transparent.
+ - Life is not a success only journey.
+ - Unless you know who you are, you will always be vulnerable to what people say.
+ - Sometimes you just got to give yourself what you wish someone else would give you.
+ - You need to listen to your body because your body is listening to you.
+ - If you marry for money you will earn every penny.
+ - People say time heals all wounds. Let me tell you, time heals nothing. You can do the wrong thing for 10 years and it doesn’t equal the right thing for one day.
+ - When you get married, your loyalty, first and foremost, is to your spouse, and to the family that you create together.
+ - You are your own most important resource for making your life work. Life rewards action. Until your knowledge, awareness, insights, and understandings are translated into action, they are of no value.
+ - Men fall in love with their eyes. Women fall in love with their ears.
+ - In life you have three options with any situation that is a challenge. Remove yourself from the situation, change it, or accept it.
+ - There are some sick people in this world.
+ - You’re only lonely if you’re not there for you.
+ - Know your goal, make a plan and pull the trigger.
+ - A year from now, you’re gonna weigh more or less than what you do right now.
+ - If you need a miracle, be a miracle.
+ - Some people prefer the passenger role, because it imposes no real pressure to decide or stand accountable for their life results.
+ - Don’t wait until you’re in a crisis to come up with a crisis plan.
+ - This is no dress rehearsal.
+ - We all have a social mask, right? We put it on, we go out, put our best foot forward, our best image. But behind that social mask is a personal truth, what we really, really believe about who we are and what we’re capable of.
+ - You have to name it to claim it.
+ - If you’re trying to get out of debt, you have to be willing to treat everything as expendable.
+ - At the end of the day, whether or not those people are comfortable with how you’re living your life doesn’t matter. What matters is whether you’re comfortable with it.
+ - There’s a big difference between falling in love and being in love. There’s a big difference between infatuation and falling in love.
+ - You don’t need a pack of wild horses to learn how to make a sandwich.
+ - You can’t put feathers on a dog and call it a chicken!
+ - You need to face the pain and the fear and walk through the Grief.
+ - We are proud to have a platform through the Dr Phil show and the Dr. Phil Foundation to offer children the voice they need to meet their goals in having a better life.
+ - Are you doing what you’re doing today because you want to do it, or because it’s what you were doing yesterday?
+ - Everyone faces the challenge of finding meaning to their suffering.
+ - If you don’t know what it is you want – and I mean specifically – then you won’t even know when you have it.
+ - You either get it or you don’t. Become one of those who get it.
+ - Grief is a process to go through, not a destination in which to wallow. In a process, you keep putting one foot in front of the other, and each little step is part of your healing.
+ - It’s so much easier to tell people what they want to hear instead of what they need to hear.
+ - Relationships are negotiated and if you deal with ultimatums and authority all the time, then you’re not going to get anywhere.
+ - You don’t need a rope to pinch a stranger’s butt.
+ - It’s hard to see your own face without a mirror.
+ - Happiness isn’t a one-size-fits-all proposition. You must define what it looks like for you and then make a conscious effort to access whatever gets you to your unique definition of joy.
+ - The truth doesn’t have versions, it just is.
+ - If I was on the air and was just kind of a plain-vanilla personality that took the safe road and the safe way trying to please all of the people all of the time, I’d been gone in two weeks.
+ - Leaders inspire. They aren’t assigned leadership. They command it.
+ - I’m one of those that believes you can’t be one kind of a man and another kind of president.
+ - I do not believe, even remotely, that you have to have a partner in your life in order to be whole, in order to be complete, in order to be fulfilled. You just don’t have to.
+ - People who consistently win have a clear and thoughtful strategy. They know what they need to do and when they need to do it. They write it down so they stay on course, and avoid any alternative that does not get them closer to the finish line.
+ - Eighty percent of all choices are based on fear. Most people don’t choose what they want; they choose what they think is safe.
+ - There is an interconnectedness among members that bonds the family, much like mountain climbers who rope themselves together when climbing a mountain, so that if someone should slip or need support, he’s held up by the others until he regains his footing.
+ - I’m embarrassed every time I look a teacher in the eye, because we ask them to do so much for so little.
+ - You have got to decide, look, this is who I am; this is my best way to present myself, and I’m going to ride that horse to the finish line. Not everybody will like it, but that’s OK.
+ - There is nothing wrong with your marriage if you’re dealing with bills and kids and the broken garbage disposal and in-laws and work demands. That’s a normal marriage.
+ - Do it! People who succeed don’t just sit and think about what they want to do. They take meaningful, purposeful, directional action consistently and persistently. Every step they take puts them toward the outcome they’re looking for.
+ - I grew up in athletics, where people keep score.
+ - I just am not good at math.
+ - I tell you, if you’re in the front row of the parade and you stop walking, pretty soon you’re back in the tuba section. And if you want to lead the parade you’ve got to keep moving.
+ - If you want more, you have to require more from yourself.
+ - Well, let me tell you, if you’re 45, had three children and are post-menopausal, you’re not going to weigh what you did the day you graduated from high school. Get that out of your head. That’s a media-driven ideal that you’re never going to healthfully obtain.
+ - I mean, look, teachers don’t do their job for the money, obviously, because we pay them ridiculously little amounts for what they put in. Most of them come out of their own pocket for materials and things to help the children and all that.
+ - Those who marry for money end up EARNING it anyway.
+ - I’ve talked to so many people, men and women alike, that get overweight and their self-esteem just goes in the tank. They think they’re judged. They think they’re unattractive.
+ - I think every parent, every generation has wanted their children to do better and have a higher standard of living. But I think there’s too much guilt.
+ - Pain is the price you pay for resisting life.
+ - Every one of us have things that we believe about ourselves when nobody else is looking, nobody else is listening, nobody else is monitoring what we’re doing. We believe things about ourselves.
+ - Food is a coping mechanism; people are afraid of giving it up because then they’ll feel confused and lost.
+ - Eighty percent of all questions are statements in disguise.
+ - People create their own experiences.
+ - Champions get what they want because they know what they want. They have a vision that keeps them motivated and efficiently on track. They see it, feel it, and experience it in their minds and hearts. What is success for you? You won’t get there without knowing what it feels and looks like.
+ - You have to figure out what that is, and you have to make a plan to get to it. And the plan has got to have a timeline. You have to choose something that you can afford to do and then lock it in and passionately do it.
+ - You should consider an employment change before you consider selling out.
+ - I think I’ve got the best staff in television.
+ - Most choices are driven by immediate results.
+ - Everybody should have the opportunity to do and be everything they can be.
+ - I’ve learned a tremendous amount from Oprah.
+ - You cannot be who and what you are unless you have a lifestyle, both internally and externally, that is designed to support that definition of self.
+ - Common sense needs to be more common.
+ - You know, what we do know is that there is a high frequency of violence in the home of those who bully.
+ - Loving smart means believing in you, your worth and your value.
+ - The most you get is what you ask for.
+ - Effective negotiators have a style that those whom they are trying to influence, relate to and admire.
+ - Oh, everybody wears a mask. We all put our best foot forward. We all try and make a statement, I’m not saying that’s bad.
+ - Learn when’s a good time to shut up.
+ - A lot of people do have tragic childhoods. But you know what? Get over it.
+ - The Internet is just bringing all kinds of information into the home. There’s just a lot of distraction, a lot of competition for the parent’s voice to resonate in the children’s ears.
+ - Change can come in either of two important ways: Start behaving positively or stop behaving negatively.
+ - You get what you ask for in this life. If you ask for nothing, you get nothing.
+ - Well, I’m not sure what pop psychology is, but I don’t like it.
+
+110 quotes

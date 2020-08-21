@@ -1,0 +1,23 @@
+ - If following Christ has never cost you anything, you’re not following Him.
+ - I spend a lot of time thinking of the Hereafter – each time I enter a room I wonder what I’m here after.
+ - It’s hard to be sad when you’re laughing, so I enjoy making people happy.
+ - Fortunately my wife is understanding. When I come home from the races she never asks any questions, if I tell her I just ate a $380 hot dog.
+ - I like to work a lot with wood. I make furniture that falls apart. I also sew.
+ - Don Knotts was a really big influence, especially on the Steve Allen show. I mean, look at the guy, his entire life is in his face.
+ - I’ve never really taken anything very seriously. I enjoy life because I enjoy making other people enjoy it.
+ - At first I wanted to be a jockey. I rode horses in Cleveland but I kept falling off and I was afraid of horses. So there wasn’t much of a future in it.
+ - People enjoy sitting back knowing they won’t hear a lot of four-letter words.
+ - I figure you’re only here for a matter of moments. Ever since I was a kid watching movies I’ve always wanted to make people laugh or have some sort of emotional reaction.
+ - Phyllis Diller came through a mine field of male comedians when she arrived on the comedy scene and she defused them all. She won her place in the Hall of Comedy as the First Lady. I will miss her.
+ - I resent my barber when he charges the full cost after he cuts my hair, but he says he’s charging me for finding it.
+ - I’ve known Harvey for over 40 years and I worked with him on the Burnett show for 11 years. I guess you could say we’re about as close as you can get to being a comedy team.
+ - If only my folks had beaten me, I could have gotten some material about my miserable childhood. But as it is, I’ve had a great life.
+ - You can’t TV surf without coming across an Andy of Mayberry episode where you’ve just got to watch Don as Barney. That’s why I put Don in several of my movies.
+ - A lot of people like to live on laurels that happened 20 or 30 years ago, but it’s nice to get awards. It’s nice to be labeled and things like that, but I’m not sure everybody qualifies.
+ - My career is pretty much over. I’m out in the Valley eating soft-boiled eggs.
+ - The reason ‘The Carol Burnett Show’ did so well in the ratings is because people were looking for that comfort zone when the whole family sat around and watched television and enjoyed it.
+ - As a kid I was short and only weighed 95 pounds. And though I was active in a lot of Sports and got along with most of the guys, I think I used comedy as a defense mechanism. You know making someone laugh is a much better way to solve a problem than by using your fists.
+ - When I watch TV, I’m embarrassed by some of what’s on.
+ - I don’t watch a lot of TV anymore. A lot of it isn’t the kind of thing you can feel comfortable with watching with your kids. And I still feel that way even though, now, my kids are in their 30s.
+
+21 quotes

@@ -1,0 +1,35 @@
+ - Testing leads to failure, and failure leads to understanding.
+ - Science is not about consensus, and consensus is not science.
+ - Everything looks nonsensical before it works.
+ - When theres ever a breakthrough, a true breakthrough, you can go back and find a time period when the consensus was well, thats nonsense! so what that means is that a true creative researcher has to have confidence in nonsense.
+ - I believe that research, that you can claim that you’re doing research only if half of the people, and I’m talking about half of the experts, believe that the goal is impossible.
+ - The Russians did much bigger space launch vehicles for launching satellites and for getting men in orbit. They did that much sooner than America because America was very good at something else.
+ - At various times over 20 years, I did preliminary designs for aircraft like the Stratolaunch. For that whole time I was encouraging us to do something that almost everyone else felt you could not do.
+ - Confidence in nonsense is required.
+ - A NASA astronaut and a Russian cosmonaut can’t be creative. He has to follow a predetermined detailed checklist written by an engineer and if he gets a little creative he’ll never fly again.
+ - Within 25 years, virtual reality meetings will be essentially transparent to being there in person. Once we can do this, the idea of climbing into an aircraft, and burning up huge quantities of fossil fuels to propel our bodies and briefcases full of papers, will seem absolutely backward.
+ - The criticism is, once I get something flying, I lose interest in it.
+ - We’ll go back to the moon by not learning anything new.
+ - In the coming era of manned space exploration by the private sector, market forces will spur development and yield new, low-cost space technologies. If the history of private aviation is any guide, private development efforts will be safer, too.
+ - Flight out of the atmosphere is a simple thing to do and should have been available to the public twenty years ago. Ten years from now, we will have space tourism where you will be able to see the black sky and the curvature of the earth. It will be the most exciting roller coaster ride you can buy.
+ - Achieving something that has never existed in manned spaceflight and that is high volume and public access.
+ - I spent about seven years during the Vietnam War flight-testing airplanes for the Air Force. And then I went in and I had a lot of fun building airplanes that people could build in their garages. And some 3,000 of those are flying. Of course, one of them is around-the-world Voyager.
+ - We didn’t know the importance of home computers before the Internet. We had them mostly for fun, then the Internet came along and was enabled by all the PCs out there.
+ - Look at the aerospace industry as it was just after the Kennedy talk. We were hiring like crazy. We were trying to get people graduated from college. Hey, you got to go to the program. We need you.
+ - With any luck, by the time NASA’s space probe hits Pluto, you’ll be booking a spaceflight with a privately run suborbital airline.
+ - NASA’s myriad failures are in many ways the natural consequence of a catastrophic combination of bureaucracy, monopoly, and a calcifying aversion to the kind of risk necessary for innovation.
+ - I have a hunch the most important reason we’re going to space is not known now.
+ - NASA is doing nothing but development. They’re not doing research in manned spaceflight at all and I see no reason for them to do that because we already know that it will work and we already know exactly how it will work.
+ - A NASA-funded study estimates that if the price of a ticket to space approached $100,000, close to a million people would buy one. That’s a $100 billion industry. Microsoft cofounder Paul Allen gave me $20 million in startup funding to go after that market.
+ - We didn’t have practical model rockets in the ’50s. The ones we made were very dangerous and the kids that played with them didn’t have all their fingers, and sometimes were blind in one eye.
+ - Since Yuri Gagarin and Al Shepard’s epoch flights in 1961, all space missions have been flown only under large, expensive government efforts. By contrast, our program involves a few, dedicated individuals who are focused entirely on making spaceflight affordable.
+ - Our goal is to show that you can develop a robust, safe manned space program and do it at an extremely low cost.
+ - We need affordable space travel to inspire our youth, to let them know that they can experience their dreams, can set significant goals and be in a position to lead all of us to future progress in exploration, discovery and fun. Thanks to the X Prize for the inspiration.
+ - NASA works for the White House. There are many at NASA that wish they were building a modern replacement for the Shuttle. However, they had marching orders to instead work on other things, some of which should have no place in a research organization.
+ - A true creator researches how to have confidence in nonsense.
+ - I don’t see anything beneficial about the US spending 100 billion dollars to go back to the moon unless we learn something new that will help us go to the moons of Saturn okay and so we ought to use that to breed new breakthroughs and to test new breakthroughs and to fund it.
+ - No one knows how to make going to orbit orders of magnitude safer and orders of magnitude more affordable.
+ - There will be a new industry, and we are just now in the beginning. I will predict that in twelve or fifteen years there will be tens of thousands, maybe even hundreds of thousands of people, that fly and see that black sky.
+ - Virgin Galactic, which will be operating SpaceShipTwo, will be only one of several spacelines. The competitors for Virgin include the Russians, Bezos’s Blue Origin, and possibly Rocketplane Kistler. And likely a couple of others who are smart enough not to tell people what they are doing!
+
+33 quotes

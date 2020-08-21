@@ -1,0 +1,30 @@
+ - It is an irrepressible conflict between opposing and enduring forces.
+ - The two systems slave and free-labor are incompatible. They have never permanently existed together in one country, and they never can.
+ - We show our sympathy with slavery by emancipating slaves where we cannot reach them, and holding them in bondage where we can set them free.
+ - The whole hope of human progress is suspended on the ever-growing influence of the Bible.
+ - Sir, there is no Christian nation, thus free to choose as we are, which would establish slavery.
+ - The circumstances of the world are so variable that an irrevocable purpose or opinion is almost synonymous with a foolish one.
+ - There is no social life outside of Christendom.
+ - There is a higher law than the Constitution.
+ - But there is a higher law than the Constitution, which regulates our authority over the domain, and devotes it to the same noble purposes.
+ - Revolutions never go backward.
+ - But assuming the same premises, to wit, that all men are equal by the law of nature and of nations, the right of property in slaves falls to the ground; for one who is equal to another cannot be the owner or property of that other.
+ - I know and all the world knows, that revolutions never go backwards.
+ - There is not only no free state which would now establish it, but there is no slave state, which, if it had had the free alternative as we now have, would have founded slavery.
+ - The right to have a slave implies the right in some one to make the slave; that right must be equal and mutual, and this would resolve society into a state of perpetual war.
+ - I speak on due consideration because Britain, France, and Mexico, have abolished slavery, and all other European states are preparing to abolish it as speedily as they can.
+ - Therefore, states are equal in natural rights.
+ - Whatever policy we adopt, there must be an energetic prosecution of it. For this purpose it must be somebody’s business to pursue and direct it incessantly.
+ - It would be contrary to the spirit of the American Government to use force to subjugate the South.
+ - I deem it established, then, that the Constitution does not recognize property in man, but leaves that question, as between the states, to the law of nature and of nations.
+ - But I deny that the Constitution recognizes property in man.
+ - Simultaneously with the establishment of the Constitution, Virginia ceded to the United States her domain, which then extended to the Mississippi, and was even claimed to extend to the Pacific Ocean.
+ - The United States are a political state, or organized society, whose end is government, for the security, welfare, and happiness of all who live under its protection.
+ - I mean to say that Congress can hereafter decide whether any states, slave or free, can be framed out of Texas. If they should never be framed out of Texas, they never could be admitted.
+ - But the Constitution was made not only for southern and northern states, but for states neither northern nor southern, namely, the western states, their coming in being foreseen and provided for.
+ - I have learned, by some experience, that virtue and patriotism, vice and selfishness, are found in all parties, and that they differ less in their motives than in the policies they pursue.
+ - The proposition of an established classification of states as slave states and free states, as insisted on by some, and into northern and southern, as maintained by others, seems to me purely imaginary, and of course the supposed equilibrium of those classes a mere conceit.
+ - It is the maintenance of slavery by law in a state, not parallels of latitude, that makes its a southern state; and the absence of this, that makes it a northern state.
+ - But you answer, that the Constitution recognizes property in slaves. It would be sufficient, then, to reply, that this constitutional recognition must be void, because it is repugnant to the law of nature and of nations.
+
+28 quotes

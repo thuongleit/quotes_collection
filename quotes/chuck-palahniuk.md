@@ -1,0 +1,502 @@
+ - It’s only after we’ve lost everything that we’re free to do anything.
+ - We all die. The goal isn’t to live forever, the goal is to create something that will.
+ - I let go. Lost in oblivion. Dark and silent and complete. I found freedom. Losing all hope was freedom.
+ - It’s so hard to forget pain, but it’s even harder to remember sweetness. We have no scar to show for happiness. We learn so little from peace.
+ - No fear. No distractions. The ability to let that which does not matter truly slide.
+ - You are not special. You are not a beautiful or unique snowflake. You’re the same decaying organic matter as everything else.
+ - Art never comes from happiness.
+ - This was freedom. Losing all hope was freedom.
+ - If you don’t know what you want, you end up with a lot you don’t.
+ - Maybe self-improvement isn’t the answer, maybe self-destruction is the answer.
+ - This is your life and its ending one moment at a time.
+ - Your past is just a story. And once you realize this it has no power over you.
+ - If you died right now, how would you feel about your life?
+ - There’s nothing special in the world. Nothing magic. Just physics.
+ - Life is short, death is forever.
+ - Nothing of me is original. I am the combined effort of everyone I’ve ever known.
+ - Only after disaster can we be resurrected. It’s only after you’ve lost everything that you’re free to do anything. Nothing is static, everything is evolving, everything is falling apart.
+ - Worker bees can leave. Even drones can fly away. The Queen is their slave.
+ - You must realize that one day you will die. Until then you are worthless.
+ - How much can you know about yourself if you’ve never been in a fight?
+ - The first rule of fight club is, you don’t talk about fight club.
+ - We’ve all been raised on television to believe that one day we’d all be millionaires, and movie gods, and rock stars. But we won’t. And we’re slowly learning that fact. And we’re very, very pissed off.
+ - Our Generation has had no Great war, no Great Depression. Our war is spiritual. Our depression is our lives.
+ - May I never be complete. May I never be content. May I never be perfect.
+ - People don’t listen, they just wait for their turn to talk.
+ - Have your adventures, make your mistakes, and choose your friends poorly – all these make for great stories.
+ - What would Tyler Durden do?
+ - The lower you fall, the higher you’ll fly.
+ - Find out what you’re afraid of and go live there.
+ - I don’t want to die without any scars.
+ - Don’t do what you want. Do what you don’t want. Do what you’re trained not to want. Do the things that scare you the most.
+ - Without pain, without sacrifice we would have nothing. Like the first monkey shot into space.
+ - We’ll never be as young as we are tonight.
+ - What I want is to be needed. What I need is to be indispensable to somebody. Who I need is somebody that will eat up all my free time, my ego, my attention. Somebody addicted to me. A mutual addiction.
+ - On a long enough time line, the survival rate for everyone drops to zero.
+ - If you can change the way people think. The way they see themselves. The way they see the world. If you do that, you can change the way people live their lives. That’s the only lasting thing you can create.
+ - Put a gun to my head and paint the wall with my brains.
+ - What we call chaos is just patterns we haven’t recognized. What we call random is just patterns we can’t decipher.
+ - Just for the record, the weather today is calm and sunny, but the air is full of bullshit.
+ - Our real discoveries come from chaos, from going to the place that looks wrong and stupid and foolish.
+ - You’re always haunted by the idea you’re wasting your life.
+ - How everything you ever love will reject you or die. Everything you ever create will be thrown away. Everything you’re proud of will end up as trash.
+ - Sticks and stones may break your bones but words can hurt like hell.
+ - I am Jack’s complete lack of surprise. I am Jack’s Broken Heart.
+ - Reject the basic assumptions of civilization, especially the importance of material possessions.
+ - If you love something set it free, but don’t be surprised if it comes back with herpes.
+ - Do you know why most survivors of the Holocaust are vegan? It’s because they know what it’s like to be treated like an animal.
+ - Sorry, mom. Sorry, God.
+ - Are these things really better than the things I already have? Or am I just trained to be dissatisfied with what I have now?
+ - Just keep asking yourself: What would Jesus not do?
+ - With insomnia, you’re never really awake; but you’re never really asleep.
+ - What makes earth feel like hell is our expectation that it should feel like heaven.
+ - Love and life belongs to great risk.
+ - The unreal is more powerful than the real. Because nothing is as perfect as you can imagine it. Because it’s only intangibles, ideas, concepts, beliefs, fantasies that last. Stone crumbles. Wood rots. People, well, they die.
+ - I’m working harder than I have ever worked in my entire life, but what the hell, my life is my job now, and my job is my life and that’s the way it should be.
+ - Everyone’s in their own personal coma.
+ - I’m a toxic waste byproduct of God’s creation.
+ - That’s why I write, because life never works except in retrospect. You can’t control life, at least you can control your version.
+ - You gain power by pretending to be weak. By contrast, you make people feel strong. You save people by letting them save you.
+ - We’re consumers. We are by-products of a lifestyle obsession. Murder, crime, poverty, these things don’t concern me. What concerns me are celebrity magazines, television with 500 channels, some guy’s name on my underwear. Rogaine, Viagra, Olestra...
+ - Carl Jung called this his shadow work. He said we never see others. Instead we see only aspects of ourselves that fall over them. Shadows. Projections. Our associations.
+ - I am Jack’s smirking revenge.
+ - Sex pretty much cures everything.
+ - If You Don’t Claim Your Humanity, You Will Become A Statistic.
+ - There’s no escaping fate, it just keeps going. Day and night, the future just keeps coming at you.
+ - What you have to consider is the possibility that God doesn’t like you. Could be, God hates us. This is not the worst thing that could happen.
+ - The truth is you can be orphaned again and again and again. The truth is, you will be. And the secret is, this will hurt less and less each time until you can’t feel a thing. Trust me on this.
+ - Just for the record, the weather today is increasing turmoil with a possible physical and emotional breakdown.
+ - You have endless ways you can commit suicide without dying dying.
+ - You’ll need to suffer to make any real art.
+ - When you reach the end of your life – trust me, you won’t look back and savor the moments you spent alone.
+ - College is like a fountain of knowledge – and the students are there to drink.
+ - I ran. I ran until my muscles burned and my veins pumped battery acid. Then I ran some more.
+ - The most boring thing in the entire world is nudity. The second most boring thing is honesty.
+ - Reality means you live until you die. The real truth is nobody wants reality.
+ - Marla’s philosophy of life, she told me, is that she can die at any moment. The tragedy of her life is that she doesn’t.
+ - The trick to forgetting the big picture is to look at everything close-up.
+ - No, it’s not fair, but what makes Earth feel like Hell is our expectation that it should feel like Heaven. Earth is earth. Dead is dead. You’ll find out for yourself soon enough. It won’t help the situation for you to get all upset.
+ - People fall so in love with their pain, they can’t leave it behind. The same as the stories they tell. We trap ourselves.
+ - No, none of us seem so very real. We’re only supporting characters in the lives of each other. Any real truth, any precious fact will always be lost in a mountain of shattered make-believe.
+ - There are only patterns. Patterns on top of patterns, patterns that affect other patterns, patterns hidden by patterns, patterns within patterns.
+ - The problem with educating stupid people was that they didn’t know they were stupid. The same went for curing crazy people.
+ - There’s no way you can get the past right. You can pretend. You can delude yourself, but you can’t re-create what’s over.
+ - The best fights don’t occur between strangers. They occur between friends who trust each other.
+ - What you see at fight club is a generation of men raised by women.
+ - It’s pathetic how we can’t live with the things we can’t understand. How we need everything labeled and explained and deconstructed.
+ - I’m living the life I love, I tell myself, and loving the life I live. I tell myself: I deserved this. This is exactly what I wanted.
+ - If emotion can create a physical action, then duplicating the physical action can re-create the emotion.
+ - It’s easy to cry when you realize that everyone you love will reject you or die.
+ - Your birth is a mistake you’ll spend your whole life trying to correct.
+ - It’s only in drugs or death we’ll see anything new, and death is just too controlling.
+ - I am an invisible monster, and I am incapable of loving anybody. You don’t know which is worse.
+ - You always kill the one you love.
+ - You are permanent, but this life is not.
+ - Drugs or overeating or alcohol or sex, it was all just another way to find peace. To escape what we know. Our education. Our bite of the apple.
+ - The trick to forgetting the big picture is to look at everything close-up. The shortcut to closing a door is to bury yourself in the details. This is how we must look to God. As if everything’s fine.
+ - No matter how much you think you love somebody, you’ll step back when the pool of their blood edges up too close.
+ - A male chauvinist pig isn’t born, he’s made, and more and more of them are being made by women.
+ - You can only hold a smile for so long, after that it’s just teeth.
+ - The more things you own, the more they own you.
+ - Waiters will always pee in soup, people will always fall in love.
+ - It only takes one mistake and nothing else you ever do will matter. No matter how hard you work or how smart you become, you’ll always be known for that one poor choice.
+ - So here I am. This is as good as it gets. Take it or leave it.
+ - I want to have your abortion.
+ - Without true chaos, we can never have true peace.
+ - The truth is, every son raised by a single mom is pretty much born married. I don’t know, but until your mom dies it seems like all the other women in your life can never be more than just your mistress.
+ - Someday you will die, and until you know that, you’re useless to me.
+ - Only after disaster can we be resurrected.
+ - You kill strangers deliberately so you don’t accidentally kill the people you love.
+ - The answer is there is no answer.
+ - Without access to true chaos, we’ll never have true peace. Unless everything can get worse, it won’t get any better.
+ - It’s all mirror, mirror on the wall because beauty is power the same way money is power the same way a gun is power.
+ - All God does is watch us and kill us when we get boring. We must never, ever be boring.
+ - You realize that our mistrust of the future makes it hard to give up the past.
+ - The one you love and the one who loves you are never, ever the same person.
+ - The first step – especially for young people with energy and drive and talent, but not money – the first step to controlling your world is to control your culture. To model and demonstrate the kind of world you demand to live in. To write the books. Make the music. Shoot the films. Paint the art.
+ - The only way to find true happiness is to risk being completely cut open.
+ - Big Brother isn’t watching. He’s singing and dancing. He’s pulling rabbits out of a hat. Big Brother’s busy holding your attention every moment you’re awake. He’s making sure you’re always distracted. He’s making sure you’re fully absorbed.
+ - Skinny guys fight till they’re burger.
+ - I really believe it’s the moments we can’t talk about that become the rest of our lives. It’s the moments we can’t process by telling a story that destroy us in the end.
+ - If a tree falls in the forest and nobody is there to hear it, doesn’t it just lie there and rot?
+ - The air will always be to filled with something. Your body too sore or tired. Your father too drunk. Your wife too cold. You will always have some excuse not to live your life.
+ - I wanted to destroy everything beautiful I’d never have.
+ - Some people are just born human, the rest of us, we take a lifetime to get there.
+ - Don’t rush or force the ending. All you have to know is the next scene, or the next few scenes.
+ - What kind of dining set defines me as a person?
+ - Real writers write because they love to write. They don’t write for public acclaim.
+ - Here in your mind you have complete privacy. Here there’s no difference between what is and what could be.
+ - The difference between how you look and how you see yourself is enough to kill most people. And maybe the reason vampires don’t die is because they can never see themselves in photographs or mirrors.
+ - You have a choice. Live or die. Every breath is a choice. Every minute is a choice. To be or not to be.
+ - Masochism is a valuable job skill.
+ - A baby is such a blank slate, like training the understudy for a role you’re planning to leave. You truly hope your replacement will do the play justice, but in secret you want future critics to say you played the character better.
+ - Me with nothing left to lose, plotting my big revenge in the spotlight. Give me violent revenge fantasies as a coping mechanism.
+ - If I could wake up in a different place, at a different time, could I wake up as a different person?
+ - Tell the world what scares you most. Save the world with some advice from the future.
+ - Nothing was solved when the fight was over, but nothing mattered.
+ - You know, the condom is the glass slipper of our generation. You slip it on when you meet a stranger. You dance all night, then you throw it away.
+ - Our culture has made us all the same. No one is truly white or black or rich, anymore. We all want the same. Individually, we are nothing.
+ - More and more, the hardest part of crying is when I can’t stop.
+ - Just each of us being me, me, me first. The murderer, the victim, the witness each of us thinks our role is the lead. Probably that goes for anybody in the world.
+ - You could stab a knife right through my heart and you’d be too late.
+ - Angel says that rich people don’t like to tolerate much. Money gives you permission to just walk away from everything that isn’t pretty and perfect. You can’t put up with anything less than lovely. You spend your life running, avoiding, escaping.
+ - Actually, watching television and surfing the Internet are really excellent practice for being dead.
+ - Parents are like God because you wanna know they’re out there, and you want them to think well of you, but you really only call when you need something.
+ - Ever since college, I make friends. They get married. I lose friends.
+ - People will listen to you only when they know you’re dying, otherwise they’re just waiting for their turn to talk.
+ - How I feel is cheap and used, dirty and humiliated. Dirty and tricked and thrown away.
+ - Nothing happened, and nothing kept happening.
+ - On a night without moon or stars you can’t see a thing, but you can imagine anything.
+ - Having nothing to lose is the new wealth.
+ - If there had been zombies on the iceberg when the Titanic hit it, that would have made a much better movie.
+ - You have to give up! you have to give up! You have to realize that someday you will die, Until you know that, you are useless!
+ - What you write should entertain you and serve you first. Don’t worry about maintaining anything beyond your own attention. Focus on exorcising your demons in the work. If you can do that, then you’ll succeed in the world.
+ - I am not loved. I am not a beautiful soul. I am not a good-natured, giving person. I am not anybody’s savior.
+ - The best way is not to fight it, just go. Don’t be trying all the time to fix things. What you run from only stays with you longer. When you fight something, you only make it stronger.
+ - Maybe we have to break everything to make something better out of ourselves.
+ - I love everything about Tyler Durden, his courage and his smarts. His nerve. Tyler is funny and charming and forceful and independent, and men look up to him and expect him to change their world. Tyler is capable and free, and I am not.
+ - We are not special. We are not crap or trash, either. We just are. We just are, and what happens just happens.
+ - We can spend our lives letting the world tell us who we are. Sane or insane. Saints or sex addicts. Heroes or victims. Letting history tell us how good or bad we are. Letting our past decide our future. Or we can decide for ourselves. And maybe it’s our job to invent something better.
+ - The voice says, maybe you don’t go to hell for the things you do. Maybe you go to hell for the things you don’t do. The things you don’t finish.
+ - Generations have been working in jobs they hate, just so they can buy what they don’t really need.
+ - Also consider that someday, when you’re dead and rotted, kids with their baby teeth will sit in their time-geography class and laugh about how stupid you were.
+ - For six months I couldn’t sleep. With insomnia, nothing’s real. Everything is far away. Everything is a copy of a copy of a copy.
+ - The damaged loves the damaged.
+ - I suppose it’s comfort, perhaps a sense of self-control, doing worse things to yourself than the world will ever dare inflict.
+ - If you ask me, reincarnation is just another way to procrastinate.
+ - At some point, your memories, your stories, your adventures, will be the only things you’ll have left.
+ - Your being born makes your parents God. You owe them your life, and they can control you. Then puberty makes you Satan, just because you want something better.
+ - How you’re still always trapped. How your head is the cave, your eyes the cave mouth. How you live inside your head and only see what you want. How you only watch the shadows and make up your own meaning.
+ - Men are destroyed for being rebellious, and women destroy themselves by failing to be rebellious. Unless you can make that next jump to either getting along with people or resisting people, you are ultimately destroying yourself.
+ - Every stage of life has its own form of power, and we’re always sort of terrified as to whether we can make the jump to the next form of power.
+ - Everyone smiles with that invisible gun to their head.
+ - This is how it is with insomnia. Everything is so far away, a copy of a copy of a copy. The insomnia distance of everything, you can’t touch anything and nothing can touch you.
+ - We’ll be remembered more for what we destroy than what we create.
+ - I just want one person I can rescue and I want one person who needs me. Who can’t live without me. I want to be a hero, but not just one time.
+ - You know how they say you only hurt the ones you love? Well, it works both ways.
+ - Yes, terrible things happen, but sometimes those terrible things- they save you.
+ - Until you find something to fight for, you settle for something to fight against.
+ - The truth is, immigrants tend to be more American than people born here.
+ - Just let your hand drop; and let fate decide for you.
+ - If people thought you were dying, they gave you their full attention.
+ - When you don’t share your problems, you resent hearing the problems of other people.
+ - Everyone is equal and everyone is forced to participate; you can’t just be a spectator.
+ - We live and we die and anything else is just a delusion.
+ - We’ve been speaking English as a second language so long that we’ve forgotten it as our first.
+ - You have to jump into disaster with both feet.
+ - Today is the sort of day where the sun only comes up to humiliate you.
+ - You had to risk your life to get love. You had to get right to the edge of death to ever be saved.
+ - Hey, even the Mona Lisa is falling apart.
+ - If your body is a temple, you can pile up too much deferred maintenance. If your body is a temple, mine was a real fixer-upper.
+ - Don’t do this. I love you. Don’t shut me out.
+ - All human beings search for either reasons to be good, or excuses to be bad.
+ - All you can do is hope for a pattern to emerge, and sometimes it never does. Still, with a plan, you only get the best you can imagine. I’d always hoped for something better than that.
+ - We’re all of us haunted and haunting.
+ - First your parents, they give you your life, but then they try to give you their life.
+ - People take conventional ways that other people have always decorated their cars, and use them as ways of giving other people permission to approach them.
+ - The bad news is we don’t have any control. The good news is we can’t make any mistakes.
+ - We come from a generation of people who need their TV or stereo playing all the time. These people so scared of silence. These soundaholics, these quietophobics.
+ - I wanted to write about the moment when your addictions no longer hide the truth from you. When your whole life breaks down. That’s the moment when you have to somehow choose what your life is going to be about.
+ - I can manage my own pain. I can drink. I can go to the doctor and get a prescription. I can exercise. I can write a story about it. I’ve done it a million times! But I don’t want to see the people I love tortured and suffering.
+ - The amazing miracle of death, when one second you’re walking and talking, and the next second you’re an object.
+ - When nobody will look at you, you can stare a hole in them. Picking out all the little details you’d never stare long enough to get if they’d even just return your gaze, this, this is your revenge.
+ - I want out of the labels. I don’t want my whole life crammed into a single word. A story. I want to find something else, unknowable, some place to be that’s not on the map. A real adventure.? A spinx. A mystery. A blank. Unknown. Undefined.
+ - That’s the American Dream: to make your life into something you can sell.
+ - Everyone thinks their whole life should be at least as much fun as masturbation.
+ - We’ve spent so much time judging what other people created that we’ve created very, very little of our own.
+ - I am the cause of all my upsets. I am my worst enemy.
+ - Hey, you created me! I didn’t create some loser alter-ego to make myself feel better. Take some responsibility!
+ - The big reason why folks leave a small town,? Rant used to say, ‘is so they can moon over the idea of going back. And the reason they stay put is so they can moon about getting out.’ Rant meant that no one is happy, anywhere.
+ - There are the most fantastic, beautiful things and people out there. It’s up to you to find them.
+ - Everybody looks a little crazy if you’re looking close enough and if you can’t look that close, then you don’t really love them.
+ - I want to find something else, unknowable, some place that’s not on the map. A real adventure.
+ - If I can’t be beautiful, I want to be invisible.
+ - Besides, hysteria is only possible with an audience.
+ - Because nothing is as perfect as you can imagine it.
+ - This is the biggest mistake I could think would save me. I wanted to give up the idea that I had any control. Shake things up. To be saved by chaos. To see if I could cope, I wanted to force myself to grow again. To explode my comfort zone.
+ - More and more, it feels like I’m doing a really bad impersonation of myself.
+ - I think standardization is really the first step to something being commodified.
+ - Rant would tell people: “You’re a different human being to everybody you meet.”
+ - You can’t base your life on the past or the present. You have to tell me about your future.
+ - The only difference between suicide and martyrdom is press coverage.
+ - Sticking feathers up your butt does not make you a chicken!
+ - We all have some proper noun to blame.
+ - Yes, these are bruises from fighting and I’m okay with that.
+ - Everything is funnier in retrospect, funnier and prettier and cooler. You can laugh at anything from far enough away.
+ - A shadow of a reflection of an image of an illusion.
+ - I feel my heart ache, but I’ve forgotten what that feeling means.
+ - You know how both life and porno movies end. The only difference is life starts with the orgasm.
+ - Where we’re standing right now, in the ruins in the dark, what we build could be anything.
+ - The weather today is partly angry, leading to resignation and ultimatums.
+ - It’s so quiet this high up, the feeling you get is that you’re one of those space monkeys. You do the little job you’re trained to do. Pull a lever. Push a button. You don’t understand any of it, and then you just die.
+ - I am the child of a lunatic. Not a child of God.
+ - We’ve taken the world apart but we have no idea what to do with the pieces.
+ - All the effort in the world won’t matter if you’re not inspired.
+ - You turn up your music to hide the noise. Other people turn up their music to hide yours. You turn up yours again. Everyone buy s a bigger stereo system. This is the arms race of sound. You don’t win with a lot of treble.
+ - It’s easy to attack and destroy an act of creation. It’s a lot more difficult to perform one.
+ - In the end, it’s never what you worry about that gets you.
+ - Every woman is just a different kind of problem.
+ - It’s not living alone if you keep a rifle under the bed.
+ - You realize that there’s no point in doing anything if nobody’s watching. You wonder, if there had been a low turnout at the crucifixion, would they have rescheduled?
+ - If you flee from the things you fear, there’s no resolution.
+ - Just let yourself be broken and humiliated. Just your whole life, keep telling people, I’m sorry. I’m sorry. I’m sorry. I’m sorry. I’m sorry...
+ - After a good-looking boy gives you rabies two, three times, you’ll settle down and marry somebody less exciting for the rest of your life.
+ - A good story should make you laugh, and a moment later break your heart.
+ - The same as real life, there is no happily ever after.
+ - I need to rebel against myself. It’s the opposite of following your bliss. I need to do what I most fear.
+ - People are all over the world telling their one dramatic story and how their life has turned into getting over this one event. Now their lives are more about the past than their future.
+ - The first step to eternal life, is you have to die.
+ - If you’re male and you’re Christian and living in America, your father is your model for God. And if you never know your father, if your father bails out or dies or is never at home, what do you believe about God?
+ - Being tired isn’t the same as being rich, but most times it’s close enough.
+ - For this moment, nothing matters. Look up into the stars and you’re gone.
+ - The joke is, we all have the same punchline.
+ - There’s worse that people can steal from you than money.
+ - In a city this size, every year, hundreds of husbands walk away. Kids leave home. Wives escape. People disappear.
+ - Every character sees the world through a framework of education and experience that they’re proud experts about. To write a character, find out what they know best, and THEN you’ll know how they’ll describe a “hot day.” Or a “pretty girl.”
+ - You gain power by pretending to be weak.
+ - People used what they called a telephone because they hated being close together and they were scared of being alone.
+ - Every breath is a choice. Every minute is a choice. To be or not to be. Every time you don’t throw yourself down the stairs, that’s a choice. Every time you don’t crash your car, you re-enlist.
+ - If you start in the pit of despair with these profane, awful things, even a glimmer of hope or awareness is going to occur that’s much brighter coming from this dark, awful beginning.
+ - You see, life only turns out good or bad for only a little bit. And then it turns out some other way.
+ - We don’t have a great war in our generation, or a great depression, but we do, we have a great war of the spirit. We have a great revolution against the culture. The great depression is our lives. We have a spiritual depression.
+ - Let’s all embrace someone near us. Pick someone special to you. Tell this someone how you feel.
+ - Besides, it happens fast for some people and slow for some, accidents or gravity, but we all end up mutilated. Most women know this feeling of being more and more invisible everyday.
+ - What we think of as Halloween is really the product of media barons, city mayors, and candy-makers. You know, before the 1920s, Halloween was really a terrible, terrible night.
+ - Las Vegas looks the way you’d imagine heaven must look at night.
+ - There’s an old saying: ‘No piece of writing is ever finished, it’s just abandoned.’ But my own rule is: No piece of work is done until you want to kill everyone involved in the publishing process, especially yourself.
+ - When deep space exploration ramps up, it’ll be the corporations that name everything, the IBM Stellar Sphere, the Microsoft Galaxy, Planet Starbucks.
+ - It’s not love or anything, but I think I like you, too.
+ - The weather today is an increasing trend towards denial.
+ - The evil queen was stupid to play Snow White’s game. There’s an age where a woman has to move on to another kind of power. Money, for example. Or a gun.
+ - I’ve been choking to death for years. By now this should be easy.
+ - Some writers research in order to write. I write in order to research topics that interest me. Especially if I can meet with other people, in forums from illness support groups to phone-sex hotlines, and learn what other people know best.
+ - Not everything is about money. You didn’t even say, hello. You are not your sad little wallet.
+ - To hell with housework, our top priority has always been between our legs.
+ - Find good in what the world says is evil.
+ - Any ‘artist’ makes a living by expressing what others can’t – because they’re unaware of their feelings, they’re too afraid to express those feelings, or they lack the skills to communicate and be understood.
+ - After you find out all the things that can go wrong, your life becomes less about living and more about waiting.
+ - Writers should be able to fully deduct from their taxes all writing-related expenses, including alcohol, parking tickets, court judgments, fines for lewd public behavior, Zoloft, and cigarettes.
+ - Since change is constant, you wonder if people crave death because it’s the only way they can get anything really finished.
+ - There are a lot of things we don’t want to know about the people we love.
+ - I take a lot of flak from the counter-establishment for selling out.
+ - There’s a terrible dark joy when the only person who knows all your secrets is finally dead.
+ - What I mean is sometimes, for an artist, chronic pain can be a gift.
+ - According to Plato, we don’t learn anything. Our soul has lived so many lives that we know everything. Teachers and education can only remind us of what we already know.
+ - We’re the culture that cried wolf.
+ - When we don’t know who to hate, we hate ourselves.
+ - Maybe we should always assume the worst.
+ - You realize that people take drugs because it’s the only real personal adventure left to them in their time-constrained, law-and-order, property-lined world. It’s only in drugs or death we’ll see anything new, and death is just too controlling.
+ - When did the future switch from being a promise to a threat?
+ - The greatest weapon any warrior can carry into battle is absolute certainty of her eternal soul.
+ - I tiger can smile A snake will say it loves you Lies make us evil.
+ - If you’re not drunk and half naked by this point, you’re not paying attention.
+ - When you understand, that what you’re telling is just a story. It isn’t happening anymore. When you realize the story you’re telling is just words, when you can just crumble up and throw your past in the trashcan, then we’ll figure out who you’re going to be.
+ - These flowers will be rotten in a couple hours. Birds will crap on them. The smoke here will make them stink, and tomorrow a bulldozer will probably run over them, but for right now they are so beautiful.
+ - In a world where billions believe their deity conceived a mortal child with a virgin human, it’s stunning how little imagination most people display.
+ - People don’t want their lives fixed. Nobody wants their problems solved. Their dramas. Their distractions. Their stories resolved. Their messed cleaned up. Because what would they have left? Just the big scary unknown.
+ - Because nothing is as good as you can imagine it. No one is as beautiful as she is in your head. Nothing is as exciting as your fantasy.
+ - Now is the autumn of our ennui.
+ - As a lower-class kid, I was raised to think success would be owning stuff. Having that great job, too. Now I find my parents’ dream was wrong. You never really own anything. And you’re never really finished as a person.
+ - I always thought I’d write when I retired – when I turned 65. But by the time I was 33, to tell you the truth, I was a little bored with drugs and sex, and I thought I’d do the writing thing.
+ - I used to work in a funeral home to feel good about myself, just the fact that I was breathing.
+ - Some people still think knowledge is power.
+ - It’s funny how the beauty of art has so much more to do with the frame than the artwork itself.
+ - The future you have, tomorrow, won’t be the same future you had, yesterday.
+ - A knife, it felt like a knife, and I’d discovered that despite everything that’s happened, I still had an endless untapped potential for getting hurt.
+ - Going to work just looked crazy. Eating another meal, ever, made about as much sense as planting tulip bulbs in the shadow of a falling atom bomb.
+ - Cassie Wright knows, the moment you make yourself available to any man, he starts to take you for granted.
+ - The government says Rant’s alive because they need a villain. The kids say he’s alive because they need a hero.
+ - As an artist you organize your life so that you get a chance to paint, a window of time, but that’s no guarantee you’ll create anything worth all your effort. You’re always haunt by the idea you’re wasting your life.
+ - I’m not so much a good friend as I’m the savior who wants you to worship him forever.
+ - And the seventh rule is if this is your first night at fight club, you have to fight.
+ - Help me give up my addiction to Hope.
+ - Anytime my work can coax bodily fluids out of someone, I’m happy.
+ - You tell yourself that noise is what defines silence. Without noise, silence would not be golden. Noise is the exception.
+ - In truth, the degree of anyone’s success depends on how often they can say the word yes and hear the word no.
+ - Getting fired,’ Tyler says, ’is the best thing that could happen to any of us. That way, we’d quit treading water and do something with our lives.
+ - My inventory of people who can save me is down to just me.
+ - We kind of deny the stages of life.
+ - Suicide is very contagious.
+ - More and more people are defining themselves not by what they are about, but by what they are against, what they are overcoming, the thing that is wrong with them.
+ - From famous artists to building contractors, we all want to leave our signature. Our lasting effect. Your life after death. We all want to explain ourselves. Nobody wants to be forgotten.
+ - These stories are ghosts, bringing people back from the dead. Just for a moment. For a visit. Every story is a ghost.
+ - Make me into anything, but just love me.
+ - My stories tend to bring people from isolation into community – with at least one other person, usually with a whole community of people – so that they find themselves accepted back by a world that they kind of fled from.
+ - For the record, knowing when people are only pretending to like you isn’t such a great skill to have.
+ - My books are always about someone obtaining a power to replace the previous sort of power that they held.
+ - Griping isn’t the same as creating something. Rebelling isn’t rebuilding. Ridiculing isn’t replacing. We’ve taken the world apart but we have no idea what to do with the pieces.
+ - For the most part my friends can always be more entertaining than the tube ever can be.
+ - Crying is right at hand in the smothering dark, closed inside someone else, when you see how everything you can ever accomplish will end up as trash.
+ - And if you can find any way out of our culture, then that’s a trap too. Just wanting to get out of the trap reinforces the trap.
+ - Leonardo’s Mona Lisa is just a thousand thousand smears of paint. Michelangelo’s David is just a million hits with a hammer. We’re all of us a million bits put together the right way.
+ - By the time you read this, you’ll be older than you remember.
+ - I know this because Tyler knows this.
+ - This is less teaching than damage control. You may as well paint a house that’s on fire.
+ - Almost all the time, you tell yourself you’re loving somebody when you’re just using them. This only looks like love.
+ - This is the worst problem with living history museums. They always leave the best parts out. Like typhus. And opium. And scarlet letters. Shunning. Witch-burning.
+ - You realize you have no control over how you’re perceived.
+ - Optimism is the first symptom that any disease is fatal.
+ - Everybody’s trying to make every minute of the present last forever. Preserve every second.
+ - Writing is like sex, if it’s difficult you’re not doing it right.
+ - I write because it’s a way of presenting something without having to be there.
+ - Six hundred and forty fish later, the only thing I know is everything you love will die. The first time you meet someone special, you can count on them one day being dead and in the ground.
+ - Because everything up to now is a story and everything after now is a story.
+ - You love me. You ignore me. You save my life, then you cook my mother into soap.
+ - The girl is infectious human waste, and she’s confused and afraid to commit to the wrong thing and so she won’t commit to anything.
+ - If it is the case that love does survive death, then you may consider this to be a happy ending. Boy meets girl. Boy gets girl. Happily ever after or not.
+ - Tyler’s words coming out of my mouth. I used to be such a nice person.
+ - Burn the Louvre, and wipe your ass with the Mona Lisa. This way at least, God would know our names.
+ - Get married before the sex gets boring or you’ll never get married.
+ - What people forget is a journey to nowhere starts with a single step, too.
+ - I still love him so much I’ll hide any amount of conjugated estrogen in his food. So much I’ll do anything to destroy him.
+ - If you look at old pictures, Irene Casey is so pretty. Not just young, but pretty the way you look when your face goes smooth, the skin around your eyes and lips relaxed, the pretty you only look when you love the person taking the picture.
+ - Mylife might be little and boring, but at least it’s mine – not some assembly-line, secondhand, hand-me-down life.
+ - Demon or angel or evil spirit, I just need something to show itself. Ghoulie or ghosty or long-legged beastie, I just want my hand held.
+ - Because after you’ve crossed some lines, you just keep crossing them. And there’s no escaping from constant escape. Distracting ourselves. Avoiding confrontation. Getting past the moment. Jacking off. Television. Denial.
+ - Now this is the first rule of fight club: There is nothing a blue collar Nobody in Oregon with a public school education can imagine that a million-billion people haven’t already done...
+ - You don’t care where I live or how I feel, or what I eat or how I feed my kids or how I pay the doctor if I get sick, and yes I am stupid and bored and weak, but I am still your responsibility.
+ - We’d turn our lives into a terrible adventure. A true-life horror story with a happy ending. A trial we’d survive to talk about.
+ - To preserve yourself as the center of the world, to stay your own best authority on everything, your own expert on all topics, infallible, omniscient. Always, every time of the month, forever: Use birth control.
+ - You can spend your whole life building a wall of facts between you and anything real.
+ - If you could be either God’s worst enemy or nothing, which would you choose?
+ - She’s not wearing makeup so her face just looks like skin.
+ - My first time I jacked off, I thought I’d invented it. I looked down at my sloppy handful of junk and thought, This is going to make me rich.
+ - Any time some well-meaning person forces you to demonstrate you have no talent and rubs your nose in the fact you’re a failure at the only dream you ever had, take another drink.
+ - Here are the shadows left behind by a thousand moments, a thousand moods, of needs traced here on the wall by men who are gone. Here is the record of their being here.
+ - Women are already born so far ahead ability-wise. The day men can give birth, that’s when we can start talking about equal rights.
+ - Hysteria is impossible without an audience. Panicking by yourself is the same as laughing alone in an empty room. You feel really silly.
+ - It takes a lot to get people talking in airplanes. But once they start talking, you just can’t shut them up.
+ - Give me lust, baby. Flash. Give me malice. Flash. Give me detached existentialist ennui. Flash. Give me rampant intellectualism as a coping mechanism. Flash.
+ - That quest for something pretty. A cheat. A cliche. Flowers and Christmas lights, it’s what we’re programmed to love.
+ - A comedy ends with a wedding, and a tragedy ends with a funeral: you always have to juxtapose sex and death.
+ - Portland in particular is a cheap enough place to live that you can still develop your passion – painting, writing, music. People seem less status-conscious. Even wealthy people buy second-hand clothes and look a little bit homeless.
+ - If you make people laugh too much, their blood becomes – I believe it is acidic as opposed to alkaline. It changes the oxygen level in the blood, and people are likelier to pass out at that point.
+ - I came to Party Crashing because accidents happen. People you love will die. Nothing you treasure will last forever. And I need to accept and embrace that fact.
+ - Get through the moment. Avoid confrontation. Run away. That’s pretty much how we get through our own lives, watching television. Smoking crap. Self-medicating. Redirecting our own attention. Jacking off. Denial.
+ - Just for the record, she still loves you. She wouldn’t bother to torture you if she didn’t.
+ - I hate how I don’t feel real enough unless people are watching.
+ - Torture is torture and humiliation is humiliation only when you choose to suffer.
+ - Either a species learns to control its own population, or something like disease, famine, war, will take care of the issue.
+ - The gyms you go to are crowded with guys trying to look like men, as if being a man means looking the way a sculptor or an art director says.
+ - The feeling is less like an ending than just another starting point.
+ - He was the kind of boy any young girl should date while she’s still able to recover.
+ - Did perpetual happiness in the Garden of Eden maybe get so boring that eating the apple was justified?
+ - The little boy smiled back at all the angry faces glaring in at him. And the little boy blew kisses.
+ - Ultimately, everyone is acting out of what they feel is the best choice. In a way, they’re all trying to improve the world. And I think that those basic choices make the world a better place.
+ - There’s always the chance you could die right in the middle of your life story.
+ - Let me be the ring leader in your guilt gang-bang.
+ - Stone crumbles. Wood rots. People, well they die. But things as fragile as a thought, a dream, a legend, they can go on and on.
+ - Life’s greatest comfort is being able to look over your shoulder and see people worse off, waiting in line behind you.
+ - No matter how much you love someone, you still want to have you own way.
+ - It’s not enough to be numbered with the grains of sand on the beach and the stars in the sky.
+ - Recycling and speed limits are bullshit. They’re like someone who quits smoking on his deathbed.
+ - I’m not sure what we’re running from. Nobody. Or the future. Fate. Growing up. Getting old. Picking up the pieces. As if running we won’t have to get on with our lives.
+ - The police are asking through the bedroom door, why did I make a batch of strawberry daiquiris before I called them? Because we were out of raspberries. Because, can’t they see, it just does not matter. Time was not of the essence.
+ - You cannot be the person they know and the great, glorious person you want to become. Not at the same time.
+ - I think in a way, you’re doomed, once you can envision something. You’re sort of doomed to make it happen. I’ve found that the moment I can envision leaving a relationship, that’s usually the moment that the relationship starts to fall apart.
+ - The photographer in my head says: Give me peace. Flash. Give me release. Flash.
+ - We are a nation of physical animals who have forgotten how much we enjoy being that. We are cushioned by this kind of make-believe, unreal world and have no idea what we can survive because we are never challenged or tested.
+ - I remember selling my first short story and thinking, Oh my god, I sold something for fifty dollars! That gives me the authority to say I’m a writer and to actually write more things! It legitimized the activity.
+ - I would say any behavior that is not the status quo is interpreted as insanity, when, in fact, it might actually be enlightenment. Insanity is sorta in the eye of the beholder.
+ - You ever wonder when god’s coming back with a lot of barbecue sauce?
+ - After long enough, everyone in the world will be you enemy.
+ - My life has been about living like a monk and looking like a priest so that people will come up to me and tell me their most appalling stories. They have to make their confession to somebody, and it might as well be me.
+ - That’s how a scary story works. It echoes some ancient fear. It re-creates some forgotten terror. Something we’d like to think we’ve grown beyond. But it can still scare us to tears. It’s something you’d hoped was healed.
+ - Everyone holds a certain type of power. For young people, it’s their youth, their attractiveness, and their energy. But they’re terrified that as those qualities fade, what are they going to replace that form of power with?
+ - If the living are haunted by the dead, then the dead are haunted by their own mistakes.
+ - If it comes down to a choice between being unloved and being vulnerable and sensitive and emotional, then you can just keep your love.
+ - Idiot people like Angel Delaporte who look for a supernatural reason for ordinary events, those people drive Misty nuts.
+ - In the big factory of perfecting human souls, the Earth was kind of tumbler. The sale as the kind people use to polish rocks. All souls come here to rub the sharp edges off each other. This isn’t suffering. It’s erosion.
+ - People have to really suffer before they can risk doing what they love.
+ - We all want to explain ourselves. Nobody wants to be forgotten.
+ - Sometimes you do something, and you get screwed. Sometimes it’s the things you don’t do, and you get screwed.
+ - There are bodies buried everywhere you just have to know where to look.
+ - Part of her doing suicide intervention is my caseworker has to mix me another gin and tonic.
+ - The laws that keep us safe, these same laws condemn us to boredom.
+ - I disconnect the telephone to keep the outside world in it’s correct place.
+ - A minute of perfection was worth the effort. A moment was the most you could ever expect from perfection.
+ - The money is in television. Books are not the dominant medium of our time, so fewer people will create them. In a sad way, books have become a form of “comfort food” we expect to lull us to sleep.
+ - Yeah. Well. Whatever. You can’t teach God anything.
+ - I’m never going to have to work. None of my descendants are ever going to have to work; this is going to make me so much money. It was such a letdown when I realized that wasn’t my invention.
+ - Picture anybody growing up so stupid he didn’t know that hope is just another phase you’ll grow out of.
+ - We have pain and hate and love and joy and war in the world because we want them.
+ - The girl traced the outline of her lover’s shadow so she would always have a record of how he looked...
+ - Katherine Kenton remains among the generation of women who feel that the most sincere form of flattery is the male erection.
+ - Maybe this is why Misty loved him. Loved you. Because you believed in her so much more than she did. You expected more from her than she did from herself.
+ - I thought why not write a kind of mystery, murder, thriller book, but use romance language where the language plays completely against the very dark subject matter, that very strange murderous plot, but use that Harlequin Romance language.
+ - History is filled with brilliant people who wanted to fix things and just made them worse.
+ - They’re just words is all. Powerless. Vocabulary. Dialogue.
+ - The avant-garde in every field consists of the lonely, the friendless, the uninvited. All progress is the product of the unpopular.
+ - Sometimes the past seems too big for the present to hold.
+ - Give me rampant intellectualism as a coping mechanism.
+ - Of all the priceless objects left behind, this is what we rescue. These artifacts. Memory cues. Useless souvenirs. Nothing you could auction. The scars left from happiness.
+ - That’s what I love about fire, how it would kill me as quick as anybody else. How it can’t know I’m its mother. It’s so beautiful and powerful and beyond feeling anything for anybody, that’s what I love about fire.
+ - Could you hold the chainsaw a bit closer to your mouth, please?
+ - To some of us, the nights are too long. To some, the days.
+ - Most times, it’s just a lot easier not to let the world know what’s wrong.
+ - Regret, Daisy knew, was the only confirmation of a well-lived life. If you didn’t occasionally go too far, you weren’t going anywhere.
+ - You spend your entire life becoming God and then you die.
+ - This is our world now, and those ancient people are dead.
+ - Love is a skill you learn.
+ - Her mom and dad are both doctors and want her to follow her dream, not turn out the way they have, no matter how much it costs them.
+ - The liberator who destroys my property is fighting to save my spirit. The teacher who clears all possessions from my path will set me free.
+ - I’m always trying to reach a transcendent point, a romantic point, but reach it in a really unconventional way, a really profane way. To get to that romantic, touching, heartbreaking place, but through a lot of acts of profanity.
+ - Every time we burn a gallon of gas or an acre of rain forest, aren’t we killing the future to preserve the present?
+ - It’s a fun playtime. Please, don’t kill it with big words.
+ - People die’, she says. ‘People tear down houses. But furniture, fine, beautiful furniture, it just goes on and on, surviving everything.’ She says, ’Armoires are the cockroaches of our culture.
+ - I am nothing, and not even that.
+ - Honest is how I want to look. The truth doesn’t glitter and shine.
+ - And if you believe that we really have free will, then you know that God can’t really control us. And since God can’t control us, all God does is watch and change channels when He gets bored.
+ - You can kill a lifetime without feeling anything but skin.
+ - Disaster is a natural part of my evolution toward tragedy and dissolution.
+ - It’s because we’re so trapped in our culture, in the being of being human on this planet with the brains we have, and the same two arms and legs everybody has. We’re so trapped that any way we could imagine to escape would be just another part of the trap. Anything we want, we’re trained to want.
+ - New carpet will exude poisonous formaldehyde for up to two years after it’d been laid. I know the feeling.
+ - A child who is disillusioned abruptly, by his peers or siblings, being ridiculed for his faith and imagination, may choose never to believe in anything- tangible or intangible- again. To never trust or wonder.
+ - Our purest form of joy comes when people we envy get hurt. That most genuine form of joy.
+ - No matter what happens, it’s always now.
+ - Think of spoiled cat food and ulcerated cankers and expired donor organs. That’s how beautiful she looks.
+ - I am a writer and the greatest compliment I can get is to know that I’ve contributed language to the culture, that I’ve defined something, given it a name. So I think that is one of the great things a writer can do.
+ - I really love idiot, enlightened characters – these characters who fail to engage with the drama of their immediate circumstances; they fail to be reactive and enrolled by drama as it happens around them.
+ - Someone bent on suicide won’t have much sense of humor left.
+ - The bigger the mistake looks, the better chance I’ll have to break out and live a real life. Our real discoveries come from chaos. – Brandy Alexander.
+ - A couple drinks. A couple aspirin. Repeat.
+ - No matter how bad things get, you can still walk away.
+ - On the other side of the handrail, the hallway’s gray marble floor looks as if we’ve climbed a stairway through the clouds.
+ - At the last minute, I couldn’t wear the Hitler mustache because Tiger Stripe ate it; and then I didn’t want to take my kitty and risk his coughing up some big Nazi hairball on someone’s front stoop.
+ - In good old Colonial Dunsboro, masochism is a valuable job skill. It is in most jobs.
+ - That if you could acquire enough, accomplish enough, you’d never want to own or do another thing. That if you could eat or sleep enough, you’d never need more. That if enough people loved you, you’d stop needing love.
+ - Ask yourself: What did I eat for breakfast today? What did I eat for dinner last night? You see how fast reality fades away?
+ - When both of you are beautiful, neither of you is beautiful. Together, as a couple, you’re less than the sum of your parts.
+ - If death meant just leaving the stage long enough to change costume and come back as a new character, would you slow down? Or speed up?
+ - There are worse things you can do to the people you love than kill them. The regular way is just to watch the world do it. Just read the newspaper.
+ - On game shows, some people will take the trip to France, but most people will take the washer and dryer pair.
+ - Some little part of themselves for someone in the future to discover. Maybe a thought. We were here. We built this. A reminder.
+ - We thought all this teaching was to make us smart. What it did was make us stupid. With all the little facts we learned, we never had the time to think.
+ - Why is it you feel like a dope if you laugh alone, but that’s usually how you end up crying?
+ - And if I do fall asleep, Marla has to keep track of Tyler. Where he goes. What he does. So maybe during the day, I can rush around and undo the damage.
+ - Brandy is so attractive you could chop her head off and put it on blue velvet in the window at Tiffany’s and somebody would buy it for a million dollars.
+ - A good story should change the way you see the world.
+ - Hope is something really tough and tenacious you have to give up. It’s an addiction to break.
+ - When you’re thinking about the rest of your life, you’re never really thinking more than a couple years down the road.
+ - Because I can’t hit bottom, I can’t be saved.
+ - We’re so structured and micromanaged, this isn’t a world anymore, it’s a damn cruise ship.
+ - Since we do operate in a binary world, if there’s something that cannot be this or that, it drives us crazy.
+ - We just had a near-life experience!
+ - What’s burning down is a re-creation of a period revival house patterned after a copy of a copy of a copy of a mock Tudor big manor house. It’s a hundred generations removed from anything original, but the truth is aren’t we all?
+ - Imagine books and music and movies being filtered and homogenized. Certified. Approved for consumption. People will be happy to give up most of their culture for the assurance that the tiny bit that comes through is safe and clean. White noise.
+ - We went sailing one time, and he wore a Speedo, and any smart woman should know that means bisexual at least.
+ - What I did was pour out about a gallon of Chanel Number Five and put a burning wedding invitation to it, and boom, I’m recycling.
+ - What they don’t teach you in art school is how your whole life is about discovering who you already were.
+ - Every generation wants to be the last.
+ - A moment is all you can expect from perfection.
+ - The only reason why we ask other people how their weekend was is so we can tell them about our own weekend.
+ - Inspiration needs disease, injury, madness.
+ - The lucky ones are just born dead.
+ - Only through destroying myself can I discover the greater power of my spirit.
+ - I am Joe’s Enraged, Inflamed, sense of rejection.
+ - The cancer I don’t have is everywhere now.
+ - Which is worse: Hell or nothing?
+ - With a gun barrel between your teeth, you speak only in vowels.
+ - Parenthood is the opiate of the masses.
+
+500 quotes

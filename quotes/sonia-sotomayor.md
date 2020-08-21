@@ -1,0 +1,112 @@
+ - Remember that no one succeeds alone. Never walk alone in your future paths.
+ - A surplus of effort could overcome a deficit of confidence.
+ - Don’t mistake politeness for lack of strength.
+ - Diabetes taught me discipline.
+ - Success is its own reward, but failure is a great teacher too, and not to be feared.
+ - The Latina in me is an ember that blazes forever.
+ - I have never had to face anything that could overwhelm the native optimism and stubborn perseverance I was blessed with.
+ - In every position that I’ve been in, there have been naysayers who don’t believe I’m qualified or who don’t believe I can do the work. And I feel a special responsibility to prove them wrong.
+ - Until we get equality in education, we won’t have an equal society.
+ - There are no bystanders in this life.
+ - My judicial philosophy is fidelity to the law.
+ - I would hope that a wise Latina woman with the richness of her experiences would more often than not reach a better conclusion than a white male who hasn’t lived that life.
+ - Experience has taught me that you cannot value dreams according to the odds of their coming true. Their real value is in stirring within us the will to aspire.
+ - There are uses to adversity, and they don’t reveal themselves until tested. Whether it’s serious illness, financial hardship, or the simple constraint of parents who speak limited English, difficulty can tap unexpected strengths.
+ - An alcoholic father, poverty, my own juvenile diabetes, the limited English my parents spoke – although my mother has become completely bilingual since. All these things intrude on what most people think of as happiness.
+ - You can’t dream unless you know what the possibilities are.
+ - I am an ordinary person who has been blessed with extraordinary opportunities and experiences. Today is one of those experiences.
+ - We educated, privileged lawyers have a professional and moral duty to represent the underrepresented in our society, to ensure that justice exists for all, both legal and economic justice.
+ - Sometimes, even if there was no useful advice to give, I saw that listening still helped.
+ - I have never, ever focused on the negative of things. I always look at the positive.
+ - The dynamism of any diverse community depends not only on the diversity itself but on promoting a sense of belonging among those who formerly would have been considered and felt themselves outsiders.
+ - You know, failure hurts. Any kind of failure stings. If you live in the sting, you will – undoubtedly – fail. My way of getting past the sting is to say no, I’m just not going to let this get me down.
+ - Pretending to be a princess is fun, but it is definitely not a career.
+ - I’m young at heart. I’m young in spirit, and I’m still adventurous.
+ - I think being a Catholic made me a better person. It taught me how to choose good over evil, and how to be a more caring human being.
+ - You make your life choices understanding that you might and do have to work harder to prove yourself.
+ - Each time I see a split infinitive, an inconsistent tense structure or the unnecessary use of the passive voice, I blister.
+ - My job as a prosecutor is to do justice. And justice is served when a guilty man is convicted and an innocent man is not.
+ - A role model in the flesh provides more than inspiration; his or her very existence is confirmation of possibilities one may have every reason to doubt, saying, Yes, someone like me can do this.
+ - I have come to believe that in order to thrive, a child must have at least one adult in her life who shows her unconditional love, respect, and confidence.
+ - People who live in difficult circumstances need to know that happy endings are possible. Page 1.
+ - The challenges I have faced – among them material poverty, chronic illness, and being raised by a single mother – are not uncommon, but neither have they kept me from uncommon achievements.
+ - The truth is that since childhood I had cultivated an existential independence. It came from perceiving the adults around me as unreliable, and without it I felt I wouldn’t have survived. I cared deeply for everyone in my family, but in the end I depended on myself.
+ - I was a keen observer and listener. I picked up on clues. I figured things out logically, and I enjoyed puzzles. I loved the clear, focused feeling that came when I concentrated on solving a problem and everything else faded out.
+ - If your child marches to a different beat, a different drummer, you might just have to go along with that music. Help them achieve what’s important to them.
+ - I was fifteen years old when I understood how it is that things break down: people can’t imagine someone else’s point of view.
+ - Although wisdom is built on life experiences, the mere accumulation of years guarantees nothing.
+ - To me, lawyering is the height of service – and being involved in this profession is a gift.
+ - I firmly believe in the rule of law as the foundation for all of our basic rights.
+ - I’ve spent my whole life learning how to do things that were hard for me.
+ - As you discover what strength you can draw from your community in this world from which it stands apart, look outward as well as inward. Build bridges instead of walls.
+ - I strive never to forget the real world consequences of my decisions on individuals, businesses and government.
+ - Sometimes, idealistic people are put off the whole business of networking as something tainted by flattery and the pursuit of selfish advantage. But virtue in obscurity is rewarded only in Heaven. To succeed in this world you have to be known to people.
+ - I am a product of affirmative action. I am the perfect affirmative action baby. I am Puerto Rican, born and raised in the south Bronx. My test scores were not comparable to my colleagues at Princeton and Yale. Not so far off so that I wasn’t able to succeed at those institutions.
+ - As you may know from my life story, my cousin who was my soul mate went to a public school. And he died of AIDS. Would I and my brother have been able to resist the lure of drugs in the surrounding schools? Who knows.
+ - There are cultural biases built into testing, and that was one of the motivations for the concept of affirmative action – to try to balance out those effects.
+ - Since I have difficulty defining merit and what merit alone means – and in any context, whether it’s judicial or otherwise – I accept that different experiences in and of itself, bring merit to the system.
+ - Don’t be shy about making a teacher of any willing party who knows what he or she is doing.
+ - If the system is broken, my inclination is to fix it rather than to fight it. I have faith in the process of the law, and if it is carried out fairly, I can live with the results, whatever they may be.
+ - As members of the judiciary tasked with intervening to carry out the guarantee of equal protection, we ought not sit back and wish away, rather than confront, the racial inequality that exists in our society.
+ - That tide of insecurity would come in and out over the years, sometimes stranding me for a while but occasionally lifting me just beyond what I thought I could acomplish. Either way, it would wash over the same bedrock certainty: ultimately, I know myself.
+ - We apply law to facts. We don’t apply feelings to facts.
+ - I came to accept during my freshman year that many of the gaps in my knowledge and understanding were simply limits of class and cultural background, not lack of aptitude or application as I’d feared.
+ - I don’t believe we should bend the Constitution under any circumstance. It says what it says. We should do honor to it.
+ - In my experience when a friend unloaded about a boyfriend or spouse, the listener soaked up the complaint and remembered it long after the speaker had forgiven the offense.
+ - Much of the uncertainty of law is not an unfortunate accident: it is of immense social value.
+ - Whether born from experience or inherent physiological or cultural differences, our gender and national origins may and will make a difference in our judging.
+ - It really takes growing up to treasure the specialness of being different.
+ - So many people grew up with challenges, as I did. There weren’t always happy things happening to me or around me. But when you look at the core of goodness within yourself – at the optimism and hope – you realize it comes from the environment you grew up in.
+ - In examining witnesses, I learned to ask general questions so as to elicit details with powerful sensory associations: the colors, the sounds, the smells that lodge an image in the mind and put the listener in the burning house.
+ - It is very important when you judge to recognize that you have to stay impartial. That’s what the nature of my job is. I have to unhook myself from my emotional responses and try to stay within my unemotional, objective persona.
+ - I have ventured to write more intimately about my personal life than is customary for a member of the Supreme Court, and with that candor comes a measure of vulnerability.
+ - When you come from a background like mine, where you’re entering worlds that are so different than your own, you have to be afraid.
+ - When I call myself an affirmative action baby, I’m talking about the essence of what affirmative action was when it started.
+ - I stand on the shoulders of countless people, yet there is one extraordinary person who is my life aspiration. That person is my mother, Celina Sotomayor.
+ - No matter how liberal I am, I’m still outraged by crimes of violence. Regardless of whether I can sympathize with the causes that lead these individuals to do these crimes, the effects are outrageous.
+ - I barely saw my mother, and the mom I saw was often angry and unhappy. The mother I grew up with is not the mother I know now. It’s not the mother she became after my father died, and that’s been the greatest prize of my life.
+ - Even though Article IV of the Constitution says that treaties are the ‘supreme law of the land,’ in most instances they’re not even law.
+ - The worst thing you want is a willy-nilly judge who is swayed by the political whims of the era or the time. What you want is a judge who is thinking about what he or she is doing and is thinking about it in a principled way.
+ - I think that even someone who got into an institution through affirmative action could prove they were qualified by what they accomplished there.
+ - Oh my God, I don’t think you can say anyone looks forward to controversy.
+ - I am a very spiritual person. Maybe not traditionally religious in terms of Sunday Mass every week, that sort of thing.
+ - I would warn any minority student today against the temptations of self-segregation: take support and comfort from your own group as you can, but don’t hide within it.
+ - Although I grew up in very modest and challenging circumstances, I consider my life to be immeasurably rich.
+ - There’s a great variety of people in Washington, but I think because of the great concentration of people in New York, that variety is more visible. You walk the streets and there are people of every color, shape and size, ethnic background, religion, it doesn’t matter. It’s always present.
+ - My hope is that I will take the good from my experiences and extrapolate them further into areas with which I am unfamiliar. I simply do not know exactly what that difference will be in my judging. But I accept there will be some based on my gender and my Latina heritage.
+ - I think there’s a large segment of the mainland population that does not really understand the number of territories that are part of the United States.
+ - What’s quote-unquote a ‘good’ lawyer, doctor, or whatever the profession is. And if you’re a male who grew up professionally in a male-dominated profession, then your image of what a good lawyer is a male image.
+ - Without question, so many people, throughout my life, never think of Puerto Rico as part of the United States. Many people have no idea what the relationship is between Puerto Rico and the United States. And certainly, I have been asked if we are citizens.
+ - If you’re poor, you don’t often live near a good school. If it’s a competitive public school program, our kids are not prepared to enter those programs.
+ - I wouldn’t approach the issue of judging in the way the president does. Judges can’t rely on what’s in their heart. They don’t determine the law. Congress makes the law. The job of a judge is to apply the law.
+ - When you have strong views about how to approach thinking about the law, then that view is going to lead to certain results in certain situations. And so people seem to think this predictability is based on some kind of partisan political view. But it’s not.
+ - I’ve never wanted to get adjusted to my income, because I knew I wanted to go back to public service. And in comparison to what my mother earns and how I was raised, it’s not modest at all. I have no right to complain.
+ - When I’m concentrating, I can be fixed in place for hours. In fact, there was a joke in my office that everybody would come and chat outside my door because they knew – no matter how loud they talked – if I was concentrating, it would not disturb me at all.
+ - I have had positive experiences with cameras. When I have been asked to join experiments using cameras in the courtroom, I have participated; I have volunteered.
+ - I realized that people had an unreal image of me, that somehow I was a god on Mount Olympus. I decided that if I were going to make use of my role as a Supreme Court Justice, it would be to inspire people to realize that, first, I was just like them and second, if I could do it, so could they.
+ - It is our responsibility to explain to the public how an often unpredictable system of justice is one that serves a productive, civilized, but always evolving, society.
+ - The best I could say about third grade was that it was a more or less continuous state of dread.
+ - It’s not the heart that compels conclusions in cases, it’s the law.
+ - If the issue is letting the states experiment and letting the society have more time to figure out its direction, why is taking a case now the answer?
+ - All I can say is that with business and the interest of any party before me, I will consider and apply the law as it is written by Congress and informed by precedent.
+ - I have spent my years since Princeton, while at law school and in my various professional jobs, not feeling completely a part of the worlds I inhabit. I am always looking over my shoulder wondering if I measure up.
+ - I want to state upfront, unequivocally and without doubt: I do not believe that any racial, ethnic or gender group has an advantage in sound judging. I do believe that every person has an equal opportunity to be a good and wise judge, regardless of their background or life experiences.
+ - Personal experiences affect the facts that judges choose to see.
+ - I do think there is a value in the services of judges for long periods of time.
+ - I come to every case with an open mind. Every case is new to me.
+ - I honestly felt no envy or resentment, only astonishment at how much of a world there was out there and how much of it others already knew. The agenda for self-cultivation that had been set for my classmates by their teachers and parents was something I’d have to develop for myself.
+ - I was raised in a Bronx public housing project, but studied at two of the nation’s finest universities. I did work as an assistant district attorney, prosecuting violent crimes that devastate our communities.
+ - I’m a New Yorker, and I jaywalk with the best of them.
+ - I’ve never had my dexterity called into question, but I think if that was ever the case, I could acquit myself by tossing a ball back and forth horizontally between my hands.
+ - If I write a book where all I’ve ever experienced is success, people won’t take a positive lesson from it. In being candid, I have to own up to my own failures, both in my marriage and in my work environment.
+ - All judges have cases that touch our passions deeply, but we all struggle constantly with remaining impartial.
+ - We have to look and ensure that we’re paying attention to what we’re doing, so that we don’t reflexively institute processes and procedures that exclude people without thought.
+ - There are drones flying over the air randomly that are recording everything that’s happening on what we consider our private property. That type of technology has to stimulate us to think about what is it that we cherish in privacy, and how far we want to protect it and from whom.
+ - Reaching a conclusion has to start with what the parties are arguing, but examining in all situations carefully the facts as they prove them or not prove them, the record as they create it, and then making a decision that is limited to what the law says on the facts before the judge.
+ - I listened very, very carefully to the world around me to pick up the signals of when trouble was coming. Not that I could stop it. But it made me observant. That was helpful when I became a lawyer, because I knew how to read people’s signals.
+ - You can’t be a minority in this society without having someone express disapproval about affirmative action.
+ - The task of a judge is not to make the law – it is to apply the law.
+ - This wealth of experiences, personal and professional, have helped me appreciate the variety of perspectives that present themselves in every case that I hear.
+ - All of the legal defense funds out there, they’re looking for people out there with court of appeals experience, because court of appeals is where policy is made. And I know, I know this is on tape and I should never say that because we don’t make law, I know. I know.
+
+110 quotes

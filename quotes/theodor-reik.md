@@ -1,0 +1,21 @@
+ - Love is an attempt to change a piece of a dream world into reality.
+ - The secret of human happiness is not in self-seeking but in self-forgetting.
+ - In order to be happy oneself it is necessary to make at least one other person happy.
+ - It is always possible to approach a goal by a detour.
+ - Work and love; these are the basics. Without them there is neurosis.
+ - To express unafraid and unashamed what one really thinks and feels is one of the great consolations of life.
+ - No person loving or admiring himself is alone.
+ - Romance fails us and so do friendships, but the relationship of parent and child, less noisy than all the others, remains indelible and indestructible, the strongest relationship on earth.
+ - Even the wisest men make fools of themselves about women, and even the most foolish women are wise about men.
+ - The man who has never made a fool of himself in love will never be wise in love.
+ - The repressed memory is like a noisy intruder being thrown out of the concert hall. You can throw him out, but he will bang on the door and continue to disturb the concert. The analyst opens the door and says, If you promise to behave yourself, you can come back in.
+ - We are all in a race for dear life: that is to say, we are fugitives from death.
+ - In our civilization men are afraid they will not be man enough, and women are afraid that they might be considered only women.
+ - Women in general want to be loved for what they are and men for what they accomplish.
+ - Great innovators and original thinkers and artists attract the wrath of mediocrities as lightning rods draw the flashes.
+ - Nothing said to us, nothing we can learn from others, reaches us so deep as that which we find in ourselves.
+ - The lover is a monotheist who knows that other people worship different gods but cannot himself imagine that there could be other gods.
+ - The small share of happiness attainable by man exists only insofar as he is able to cease to think of himself.
+ - Women see through each other, but they rarely look into themselves.
+
+19 quotes

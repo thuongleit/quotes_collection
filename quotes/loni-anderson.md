@@ -1,0 +1,30 @@
+ - You’re always better off if you quit smoking; it’s never too late.
+ - I am the odd man out in the family.
+ - There is no cure for emphysema, but you can start treating it and have a better quality of life.
+ - In the movies, Bette Davis lights two cigarettes and hands the second one to James Cagney. It was just so glamorous and romantic.
+ - Smoking is related to practically every terrible thing that can happen to you.
+ - My memory of my mom is a wine glass in one hand and a cigarette in the other. She was a runway fashion model, and she was quite a glamorous woman.
+ - My grandmother was a teacher, my sister was a teacher, my daughter was a teacher and is now a superintendent in northern California, and my son-in-law is a high school principal. I am surrounded.
+ - My dad had emphysema and both of my parents had chronic bronchitis and ended up with cancers – all smoking related.
+ - My mom started smoking when she was 11. She went to the hill next door to try her first cigarette. She set the entire hill on fire, but it didn’t deter her.
+ - I’ve been working with the National Lung Health Education Program to raise awareness about Chronic Obstructive Pulmonary Disease.
+ - When women smoke, it is hard for them to quit because they are so worried about their weight; it’s a vanity issue and a mindset.
+ - I’d had my daughter when I was a teenager – I took my daughter to college with me.
+ - I think you should not limit yourself to dating somebody older or younger.
+ - My daughter teases me once in a while saying, Remember when you used to be my mother and you had black hair?
+ - If you want to be alive and live in a real world, if you want to have any emotions at all in your life, you must willingly, knowingly, repeatedly set yourself up for things possibly not ending up ’happily ever after.
+ - I talk about acting to students making the transition from high school to UCLA. Kids going into this profession really need to know the reality of it.
+ - Young people think that nothing bad will ever happen to them.
+ - Once you are hooked, smoking is harder to quit then heroin.
+ - They almost ran me off the road several times. There are so many chances that they take to get the right photo.
+ - Look at any black-and-white movie; everybody is smoking.
+ - Almost every person over 45, and definitely those who have ever smoked, should have a spirometry test.
+ - There’s nothing glamorous about being dead.
+ - I’ve always been very involved in anything that had to do with lung disease or cancer.
+ - My sister and I are both diagnosed with second-hand smoke syndromes. We have never smoked, but we grew up with second-hand smoke our entire lives.
+ - Who says there can’t be more than one very attractive woman on a show without it becoming CHARLIE’S ANGELS?
+ - The theater is where I belonged; I simply wanted to be an actress my whole life.
+ - I have an education degree from the University of Minnesota, and I was a teacher for about a minute.
+ - Look up the definition of rejection in the dictionary, get really comfortable with it, and then maybe you can go into acting.
+
+28 quotes

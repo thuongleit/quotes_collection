@@ -1,0 +1,33 @@
+ - Global warming is real – it is man-made and it is an important problem. But it is not the end of the world.
+ - My suggestion is that we should first work to ensure the Third World has clean drinking water and sanitation.
+ - Wishful thinking is not sound public policy.
+ - The total efforts of the last 20 years of climate policy has likely reduced global emissions by less than 1 percent, or about 250 million metric tons of carbon dioxide per year.
+ - If every country committed to spending 0.05 per cent of GDP on researching non-carbon-emitting energy technologies, that would cost $25 billion a year, and it would do a lot more than massive carbon cuts to fight warming and save lives.
+ - I’m an old member of Greenpeace. I worried intensely, as I think most of my friends did, that the world was coming apart.
+ - Even if I was a bad right wing guy, to the extent of whether my arguments are right or wrong, they’re right or wrong independently if I’m right or left.
+ - Surely the biggest problem we have in the world is that we all die. But we don’t have a technology to solve that, right? So the point is not to prioritize problems; the point is to prioritize solutions to problems.
+ - The obvious issue is providing clean drinking water and sanitation to every single human being on earth at the cost of little more than one year of the Kyoto treaty.
+ - We need to invest dramatically in green energy, making solar panels so cheap that everybody wants them. Nobody wanted to buy a computer in 1950, but once they got cheap, everyone bought them.
+ - Listen, global warming is a real problem, but it’s not the end of the world. A 30-centimetre sea level rise is just not going to bring the world to a standstill, just like it didn’t over the last 150 years.
+ - I’m a vegetarian, but I don’t expect other people not to eat meat.
+ - So it’s mainly a question of helping the Third World overcome the effects of global warming.
+ - There is no question that global warming will have a significant impact on already existing problems such as malaria, malnutrition, and water shortages. But this doesn’t mean the best way to solve them is to cut carbon emissions.
+ - On average, global warming is not going to harm the developing world.
+ - It seems incontrovertible to me that there is a global warming effect and that it is going to be serious, probably not in the amount of, say, six degrees warming, but it’s likely that we’ll get two to three degrees warming and that will be serious enough.
+ - Think on a 50-year scale, which is a much more natural time-scale for global warming. The US is right now spending about 200 million dollars annually on research into renewable energy.
+ - The only thing that will really change global warming in the long run is if we radically increase the speed with which we get alternative technologies to deal with climate change.
+ - I really try to say things as they basically are and it so happens that it is a good message that things are getting better, but there are still problems.
+ - I found university a little dispiriting. I thought I would enter the great halls of Plato, but instead I entered the halls of an intellectual sausage factory. I wanted to do something not on the main course, and chose the environment.
+ - I tentatively believe in a god. I was brought up in a fairly religious home. I think the world is compatible with reincarnation, karma, all that stuff.
+ - To prepare adequately for the challenge of global warming, we must acknowledge both the good and the bad that it will bring. If our starting point is to prove that Armageddon is on its way, we will not consider all of the evidence, and will not identify the smartest policy choices.
+ - I think Al Gore has done a great service in making global warming cool. He’s basically taken it from a nerdy, almost ignored issue to making it what it is – namely, a problem.
+ - Im no expert on American politics.
+ - The second thing is, if you want to do something about global warming, you have to think much more long-term. There is something wrong with saying we should start using renewables now, while they are still incredibly expensive.
+ - Obviously any group that has to have funding also needs to get attention to their issues.
+ - In the rich world, the environmental situation has improved dramatically. In the United States, the most important environmental indicator, particulate air pollution, has been cut by more than half since 1955, rivers and coastal waters have dramatically improved, and forests are increasing.
+ - I think it’s great that we have organisations like Greenpeace. In a pluralistic society, we want to have people who point out all the problems that the Earth could encounter. But we need to understand that they are not presenting a full and rounded view.
+ - For the longest time in Denmark I didn’t want to say what I was politically. I thought it was irrelevant.
+ - The fact that we’re catching more fish per person than we’ve ever done before doesn’t mean that there are not particular places where we’ve managed fisheries badly.
+ - The Kyoto treaty has an estimated cost of between US$150 and $350 billion a year, starting in 2010.
+
+31 quotes

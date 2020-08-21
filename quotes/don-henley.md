@@ -1,0 +1,77 @@
+ - Sometimes you get the best light from a burning bridge.
+ - The more I know, the less I understand.
+ - There are people in your life who’ve come and gone, they let you down and hurt your pride. Better put it all behind you, life goes on, you keep carrying that anger, it’ll eat you up inside.
+ - The bubble headed bleach blonde comes on at five, she can tell you about the plane crash with a gleam in her eye. It’s interesting when people die, gives us dirty laundry.
+ - Sometimes to keep it together you’ve got to leave it alone.
+ - We satisfy our endless needs and justify our bloody deeds in the name of destiny and in the name of God.
+ - We all know that crap is king, give us dirty laundry.
+ - I saw a Dead Head sticker on a Cadillac. A little voice inside my head said, don’t look back, you can never look back.
+ - In the old days, words like sin and Satan had a moral certitude. Today, they’re replaced with self-help jargon, words like dysfunction and antisocial behavior, discouraging any responsibility for one’s actions...
+ - There are no facts, there is no truth, just data to be manipulated.
+ - Nobody on the road. Nobody on the beach. I feel it in the air, the summer’s out of reach.
+ - Armchair warriors often fail – and we’ve been poisoned by these fairy tales.
+ - No shame, no solution, no remorse, no retribution, just people selling t-shirts.
+ - Fortune smiles on some, and lets the others go free.
+ - How can love survive in such a graceless age? The trust and self assurance that lead to happiness, they’re the very things we kill.
+ - Lawsuits should not be used to destroy a viable and independent distribution system. The solution lies in the marketplace and not the courtroom.
+ - I am an expert witness because I say I am.
+ - Oh beautiful for spacious skies, but now those skies are threatening. They’re beating plowshares into swords for this tired old man we elected king.
+ - It’s an inside job to learn about forgiving, it’s an inside job to hang on to the joy of living.
+ - It was a pretty good year for predators.
+ - What are these voices outside love’s open door, make us throw off our contentment, and beg for something more?
+ - I was flying back from Lubbock and I saw Jesus on the plane, or maybe it was Elvis. You know, they kind of look the same.
+ - The government bugged the men’s room in the local disco lounge.
+ - Let hope inspire you, but let not idealism blind you. Don’t look back, you can never look back.
+ - This year, notoriety got confused with fame, and the devil is down hearted because there is nothing left for him to claim.
+ - Cause a man with a briefcase can steal more money than any man with a gun.
+ - I don’t care what anybody says about Ringo. I cut my rock-n-roll teeth listening to him.
+ - My creative life is a constant struggle to achieve a balance between letting things flow in and letting things flow out.
+ - I’m not easy to live with and I know that it’s true. However, you’re no picnic either, babe, and that’s one of the things I liked about you.
+ - For every moment of joy Every hour of fear For every winding road that brought me here For every breath, for every day of living This is my Thanksgiving.
+ - My love for you will still be strong after the boys of summer have gone.
+ - Arm chair warriors often fail.
+ - Remember how you made me crazy, remember how I made you scream.
+ - I don’t mind doing two or three Eagles songs and playing the drums. I’m not one of those artists who’s going to sit here and deny the past.
+ - Insect politics, indifferent universe. Bang your head against the wall, but apathy is worse.
+ - To want what I have, to take what I’m given with grace. For this I pray...
+ - Sharper than a serpents tongue, tighter than a bongo drum, quicker than a one night stand, slicker than a mambo band.
+ - I’m certainly not thrilled with everything the Eagles did, but there are some things I’m quite proud of.
+ - I said, baby, do you have no shame? She just looked at me, uncomprehendingly, like cows at a passing train.
+ - So much time weeping and wailing and shaking our fists, creating enemies that really don’t exist.
+ - You’re driving with your eyes closed.
+ - The land of opportunity spawned a whole new breed of men without souls.
+ - The trouble with you and me my friend, is the trouble with this nation, too many blessings, too little Appreciation.
+ - Fame, at one time, was associated with accomplishment, but in this day and age fame and notoriety have become confused.
+ - Who knows how long this will last, now we’ve come so far so fast.
+ - It was pretty frightening because as we all know, when large, famous groups breakup, a lot of the members don’t survive in solo careers.
+ - The wisdom that living brings, since I got a telegram from the God of simple things.
+ - If dirt were dollars, I wouldn’t have to worry anymore.
+ - An angry man can only get so far until he reconciles the way he thinks.
+ - I have a bad back partially from playing the drums and singing. I used to have to hold my body in such a position that my spine got out of alignment.
+ - I could have played more complex stuff. I could have been a busier player. But that’s not what I wanted to do. I played what I wanted to play.
+ - I now derive physical and spiritual pleasure from gardening and there is tremendous satisfaction in knowing that I could survive almost anywhere if I had to.
+ - I remember a time when things were a lot more fun around here, when good was good and evil was evil, before things got fuzzy.
+ - I’m fortunate that I’ve been in this business long enough that I’ve earned the right to be left alone by my record company.
+ - Some records with drum machines on them sound phony and plastic. It all depends on how you use the tools.
+ - Sometimes songwriters and singers forget that. They get a melody in their head and the notes will take precedence, so that they wind up forcing a word onto a melody. It doesn’t ring true.
+ - For you girl, there is not enough love in the world.
+ - In forty-five minutes, it’ll all be done. We’ll all be good and crispy, but we’ll still be number one.
+ - We live a protracted adolescence. At some point you must leave the party.
+ - There is not wrong, there is no right, and I will sleep very well tonight.
+ - I played drums on Keith Carradine’s first record.
+ - We’re being treated to the wisdom of some puffed up, little fart. Doing exactly what I used to do, pretensions to anarchy and art.
+ - The Eagles and the critics were not the best of friends.
+ - I think my first instrument was a ukulele that they gave me. I used to know how to play that pretty well.
+ - Selling eight million copies of your first album will mess you up.
+ - I’m always jotting things down on pieces of paper. I’ve got pieces of paper all over my house.
+ - Mick Jagger can’t even make a successful solo album, and the Stones are the biggest rock group that ever was.
+ - Between each album I try to gain a new insight that I didn’t have before and perhaps write a song about something that I’ve written about before, but from a fresh viewpoint.
+ - I try to write conversationally; I try to write like people speak and put the emphasis on the right syllable.
+ - Johnny can get down and Johnny can throw up, but Johnny can’t read.
+ - I’m blessed with a pretty good voice. So just sitting back there banging on the tubs wasn’t enough.
+ - I have a certain pool of subject matter that I like to write about, things that interest me: politics, religion, ecology, and relationships between men and women. And that’s usually what I focus on.
+ - The Eagles ended on a rather abrupt note, although in retrospect I realize now that it had been ending for quite some time.
+ - I don’t want to discount talent and ability, but I still maintain that a lot of it is just sheer desire.
+ - Playing the drums hurts my back.
+
+75 quotes

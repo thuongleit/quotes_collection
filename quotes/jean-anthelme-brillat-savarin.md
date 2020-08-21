@@ -1,0 +1,77 @@
+ - Tell me what you eat, and I will tell you who you are.
+ - Poultry is for the cook what canvas is for the painter.
+ - To invite people to dine with us is to make ourselves responsible for their well-being for as long as they are under our roofs.
+ - I appreciate the potato only as a protection against famine, except for that, I know of nothing more eminently tasteless.
+ - The discovery of a new dish does more for the happiness of the human race than the discovery of a star.
+ - Beasts feed. Man eats. Only the man of intellect knows how to eat.
+ - Gourmandism is an act of judgment, by which we prefer things which have a pleasant taste to those which lack this quality.
+ - The limits of pleasures are as yet neither known nor fixed, and we have no idea what degree of bodily bliss we are capable of attaining.
+ - In fine, the truffle is the very diamond of gastronomy.
+ - Burgundy makes you think of silly things; Bordeaux makes you talk about them, and Champagne makes you do them.
+ - To know how to eat well, one must first know how to wait.
+ - Smell and taste are in fact but a single composite sense, whose laboratory is the mouth and its chimney the nose.
+ - The sense of smell, like a faithful counsellor, foretells its character.
+ - He who receives his friends and gives no personal attention to the meal which is being prepared for them, is not worthy of having friends.
+ - Dessert without cheese is like a beauty with only one eye.
+ - In the hands of an able cook, fish can become an inexhaustible source of perpetual delight.
+ - Cooking is one of the oldest arts and one which has rendered us the most important service in civic life.
+ - The pleasures of the table belong to all times and ages, to every country and every day; they go hand in hand with all our other pleasures, outlast them, and remain to console us for their loss.
+ - The most indispensable qualification of a cook is punctuality. The same must be said of guests.
+ - Place a substantial meal before a tired man and he will eat with effort and be little better for it at first. Give him a glass of wine or brandy, and immediately he feels better: you see him come to life again before you.
+ - Animals feed themselves; men eat; but only wise men know the art of eating.
+ - Whosoever says truffle, utters a grand word, which awakens erotic and gastronomic ideas...
+ - Salad freshens without enfeebling and fortifies without irritating.
+ - Turkey is undoubtedly one of the best gifts that the New World has made to the Old.
+ - Gourmandise is an impassioned, rational and habitual preference for all objects that flatter the sense of taste.
+ - The fate of a nation depends on the way that they eat.
+ - Those from whom nature has withheld taste invented trousers.
+ - The truffle is not a positive aphrodisiac, but it can upon occasion make women tenderer and men more apt to love.
+ - Another novelty is the tea-party, an extraordinary meal in that, being offered to persons that have already dined well, it supposes neither appetite nor thirst, and has no object but distraction, no basis but delicate enjoyment.
+ - Once fire was discovered, the instinct for improvement made men bring food to it. First to dry it, then to put it on the coals to cook.
+ - A man who was fond of wine was offered some grapes at dessert after dinner. “Much obliged,” said he, pushing the plate aside, “I am not accustomed to take my wine in pills.”
+ - I will only observe, that that ethereal sense – sight, and touch, which is at the other extremity of the scale, have from time acquired a very remarkable additional power.
+ - Let the progress of the meal be slow, for dinner is the last business of the day; and let the guests conduct themselves like travelers due to reach their destination together.
+ - The Lord hath created medicines out of the earth, and he that is wise will not abhor them.
+ - Gluttony is mankind’s exclusive prerogative.
+ - L’alcool est le monarque des liquides, et porte au dernier degre l’exaltation palatale. Alcohol is the prince of liquids, and carries the palate to its highest pitch of exaltation.
+ - The sense of smell explores; deleterious substances almost always have an unpleasant smell.
+ - For unknown foods, the nose acts always as a sentinal and cries. ‘Who goes there?’
+ - In the centre of a spacious table rose a pastry as large as a church, flanked on the north by a quarter of cold veal, on the south by an enormous ham, on the east by a monumental pile of butter, and on the west by an enormous dish of artichokes, with a hot sauce.
+ - All languages had their birth, their apogee and decline.
+ - In the state of society in which we now find ourselves, it is difficult to imagine a nation which lived solely on bread and vegetables.
+ - Hearing, which, by the motion of the air, informs us of the motion of sounding or vibrating bodies.
+ - The number of flavors is infinite, for every soluble body has a peculiar flavor, like none other.
+ - Those persons who suffer from indigestion, or who become drunk, are utterly ignorant of the true principles of eating and drinking.
+ - La de couverte d’un mets nouveau fait plus pour le bonheur du genre humain que la de couverte d’une e toile. The discoveryof a newdish doesmore for thehappiness of mankind than the discovery of a star.
+ - Vegetables, which are the lowest in the scale of living things, are fed by roots, which, implanted in the native soil, select by the action of a peculiar mechanism, different subjects, which serve to increase and to nourish them.
+ - Nothing is more pleasant than to see a pretty woman, her napkin well placed under her arms, one of her hands on the table, while the other carries to her mouth, the choice piece so elegantly carved.
+ - When I need a word and do not find it in French, I select it from other tongues, and the reader has either to understand or translate me. Such is my fate.
+ - La truffe n’est point un aphrodisiaque positif; mais elle peut, en certaines occasions, rendre les femmes plus tendres et les hommes plus aimables. The truffle is not a true aphrodisiac; but in certain circumstances it can make women more affectionate and men more attentive.
+ - Alcohol is the monarch of liquids.
+ - All men, even those we call savages, have been so tormented by the passion for strong drinks, that limited as their capacities were, they were yet able to manufacture them.
+ - If one swallows a cup of chocolate only three hours after a copious lunch, everything will be perfectly digested and there will still be room for dinner.
+ - I am essentially an amateur medecin, and this to me is almost a mania.
+ - The German Doctors say that persons sensible of harmony have one sense more than others.
+ - I am not accustomed to take my wine in pills.
+ - The table is the only place where we do not get weary during the first hour.
+ - Food is all those substances which, submitted to the action of the stomach, can be assimilated or changed into life by digestion, and can thus repair the losses which the human body suffers through the act of living.
+ - Dear gourmands! my bowels yearn towards them as a father’s toward his children. They are so good natured! They have such sparkling eyes!
+ - No man under forty can be dignified with the title of gourmet.
+ - Alcohol carries the pleasures of the palate to their highest degree.
+ - Frying gives cooks numerous ways of concealing what appeared the day before and in a pinch facilitates sudden demands, for it takes little more time to fry a four-pound carp than to boil an egg.
+ - La volaille est pour la cuisine ce qu’est la toile pour les peintres. Fowls are to the kitchen what his canvas is to the painter.
+ - To claim that wines should not be changed is a heresy; the palate becomes saturated and after the third glass the best of wines arouses nothing but an obscure sensation.
+ - The universe is nothing without the things that live in it, and everything that lives, eats.
+ - The first thing we become convinced of is that man is organized so as to be far more sensible of pain than of pleasure.
+ - The centuries last passed have also given the taste important extension; the discovery of sugar, and its different preparations, of alcoholic liquors, of wine, ices, vanilla, tea and coffee, have given us flavors hitherto unknown.
+ - The torrent of centuries rolling over the human race, has continually brought new perfections, the cause of which, ever active though unseen, is found in the demands made by our senses, which always in their turns demand to be occupied.
+ - Meals, in the sense in which we understand this word, began with the second age of the human species.
+ - The dyspeptic and the drunkard do not know how to eat or drink.
+ - I am a strong partisan of second causes, and I believe firmly that the entire gallinaceous order has been merely created to furnish our larders and our banquets.
+ - Sight and touch, being thus increased in capacity, might belong to some species far superior to man; or rather the human species would be far different had all the senses been thus improved.
+ - Those truffled turkeys, of which the reputation and the price are still increasing, appear like beneficient stars, and make the eyes sparkle of all sorts of gourmands of every category, whilst their faces beam with delight and they themselves dance with pleasure.
+ - The senses are the organs by which man places himself in connexion with exterior objects.
+ - The Spanish ladies of the New World are madly addicted to chocolate, to such a point that, not content to drink it several times each day, they even have it served to them in church.
+ - An intelligently planned feast is like a summing up of the whole world, where each part is represented by its envoys.
+
+75 quotes

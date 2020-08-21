@@ -1,0 +1,38 @@
+ - I’m not really a fan of people who think they’re better than others. There’s no reason to act that way. I couldn’t even stand to yell at someone if they bumped right into me.
+ - Anything that I can do with my voice thats good, Ill try to do.
+ - Acting and singing are actually very similar because they’re both telling a story.
+ - I think that it doesn’t matter if I travel all over the place. I’ll always be a normal teenager on the inside. It always depends on how you act yourself, not what happens to you. That’s my view of it all.
+ - It’s good to kind of get away from the star treatment.
+ - I miss my friends in public school, but it’s kind of a part of something that you have to give up. I’d rather perform than go to public school.
+ - I just sing. But I have a fun hobby: I love to do archery. I’m pretty good on target. I’m not sure about the distances – maybe only 7 or 10 feet, so far, but I’ve scored the bull’s eye several times, but usually always hit the target.
+ - I write about heartbreak because I like writing about sad things, but I’m writing happy songs, too!
+ - I don’t think I’ll ever want to do pop music. I think I’ll only ever want to do classical crossover because it’s something that I love, and pop just doesn’t work for me.
+ - Whenever I’m waiting behind the stage, it’s kind of like my normal Jackie mode is me talking a lot, playing around, but superstar Jackie mode is me concentrating on making sure that this performance was going to be a great performance.
+ - Celine Dion is my major inspiration.
+ - Yes, my parents are strict about me having a childhood. I go ice skating and sledding, and swimming in the summer.
+ - My parents are OK with me wearing a small heel, up to 1.5 inches high. Heels give me height when I wear such long dresses. For me, they complete the outfit.
+ - I love Lady Gaga. She’s not afraid to take risks and be herself.
+ - When I go to school, I’m always happy because it’s a normal kid thing.
+ - I love being in Malibu. It’s so cool there, and the water is just, it’s nice and, and I love the beach. And I found a sand dollar there.
+ - I say three prayers every night to make sure that God knows I thank him so much.
+ - It’s always exciting to see different cities I love, and go on tour buses. It’s so much fun to travel. My favorite part is being able to perform live in front of all these amazing people; being able to connect with them and seeing their reaction makes me feel very special.
+ - My advice would be to follow your dream. Most of my life, I was in second place before I came in first place. I hope that inspired people to never give up.
+ - I still have my school friends who are actually friends. It’s nice that they don’t think much about my singing career. They think it is cool, and they are happy for me, but they don’t really bother me about it. To them, I’m still just the schoolgirl from next door.
+ - Singing is my main goal, and I think philosophy will help me write songs.
+ - I look up to Andrea Boccelli and Sarah Brightman. The best part about ‘America’s Got Talent’ was performing with her!
+ - I know that I’m definitely not a big big snob, and I know that at the times that I am a diva I know I’m being a diva. It’s kind of annoying to know that you are. Because it’s a person I do not want to be. So I’m trying my best not to become a jerk.
+ - I like listening to Beyonce, and I like Jason Derulo. I love his new song ‘Don’t Wanna Go Home.’
+ - I love to shop at Macy’s. It has a huge Guess section and lots of Jessica Simpson stuff.
+ - That’s really all I want, to be able to change the world with my voice.
+ - I like ‘Sponge Bob’ and ‘The Last Airbender.’ I like shows where people get creative to do the impossible.
+ - Um, well, I made a new CD called ‘Dream With Me’ and it’s out now, and I’m really excited about it.
+ - When I’m at home, I want to be a normal person. I don’t want to hear, ‘Can I have your autograph?’
+ - I’d love to do a Broadway show, but I can’t because of the style I sing.
+ - I normally wear Stuart Weitzman or Kors Michael Kors.
+ - I write almost everything, actually. Songs, poems, stories. And stories out of every genre, too.
+ - I would like to sing for the Pope. And the Queen, and at Simon Cowell’s wedding.
+ - My family still treats me like they did when I was 7 or 6.
+ - The music kind of possesses me when I sing. So whenever I start to sing on a show – I mean, first, I’m nervous, and then when I get into it, it’s just like I feel like I’m the person who sang the song first.
+ - I’m not going to choose between classical, Broadway or pop. I would love to stay where I am now – a mix of everything.
+
+36 quotes

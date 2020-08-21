@@ -1,0 +1,37 @@
+ - You have to do what you think is the right thing, but just make sure it’s the right thing in the long run, and not just for the moment.
+ - What I mean is, I love winter, and when you really love something, then it loves you back, in whatever way it has to love.
+ - Sarcasm is the protest of the weak.
+ - Everyone has a moment in history which belongs particularly to him.
+ - As I said, this was my sarcastic summer. It was only long after that I recognized sarcasm as the protest of people who are weak.
+ - Peace is indivisible, and the surrounding world confusion found no reflection inside me.
+ - Looking back now across fifteen years I could see with great clarity the fear I had lived in, which must mean that in the interval I had succeeded in a very important undertaking: I must have made my escape from it.
+ - As I walked briskly out the road the wind knifed at my face, but this sun caressed the back of my neck.
+ - There was no harm in taking aim, even if the target was a dream.
+ - Everything has to evolve or else it perishes.
+ - The next major advance in the health of the American people will be determined by what the individual is willing to do for himself.
+ - There are special, strange gifted people in the world and they have to be treated with understanding.
+ - I did no know everything there was to know about myself, and knew that I did not know it.
+ - Stranded in this mill town railroad yard while the whole world was converging elsewhere, we seemed to be nothing but children playing among heroic men.
+ - I knew that part of friendship consisted in accepting a friend’s shortcomings, which sometimes included his parents.
+ - So the more things stay the same, the more they change after all.
+ - Life is fighting. In life, it’s the look ahead that counts. We are all born equally far from the sun. There is a land of the living and a land of the dead and the bridge is love.
+ - I felt that I was not, never had been and never would be a living part of this overpoweringly solid and deeply meaningful world around me.
+ - But I was used to finding something deadly in things that attracted me; there was always something deadly lurking in anything I wanted, anything I loved.
+ - The best teaching I ever experienced was at Exeter. Yale was a distinct letdown afterward.
+ - All of them, all except Phineas, constructed at infinite cost to themselves these Maginot Lines against this enemy they thought they saw across the frontier, this enemy who never attacked that way-if he ever attacked at all; if he was indeed the enemy.
+ - But something held me back. Perhaps I was stopped by that level of feeling, deeper than thought, which contains the truth.
+ - Nothing endures. Not a tree. Not love. Not even death by violence.
+ - I never killed anybody and I never developed an intense level of hatred for the enemy. Because my war ended before I ever put on a uniform; I was on active duty all my time at school; I killed my enemy there.
+ - My father was in the coal business in West Virginia. Both dad and mother were, however, originally from Massachusetts; New England, to them, meant the place to go if you really wanted an education.
+ - It seemed clear that wars were not made by generations and their special stupidities, but that wars were made instead by something ignorant in the human heart.
+ - I began to know that each morning reasserted the problems of night before, that sleep suspended all but changed nothing, that you couldn’t make yourself over between dawn and dusk.
+ - Young people in my generation were sort of in lockstep, and it wasn’t just the ’40s, either. In the ’30s and in the ’50s it was the same. No one ever dropped out unless he got sick or got kicked out.
+ - Teenagers today are more free to be themselves and to accept themselves.
+ - Always say some prayers at night because it might turn out that there is a God.
+ - We are all born equally far from the sun.
+ - It is a sad day when one looks back and sees that his largest regrets have become some of the most integral elements of his dreams.
+ - Exeter was, I suspect, more crucial in my life than in the lives of most members of my class, and conceivably, than in the lives of almost anyone else who ever attended the school.
+ - The summer of 1943 at Exeter was as happy a time as I ever had in my life.
+ - There are simply more young people than there ever were. You get this feeling of strength. Also, large numbers can be a drawback, making it difficult to lose one’s anonymity.
+
+35 quotes

@@ -1,0 +1,30 @@
+ - Pop culture is not about depth. It’s about marketing, supply and demand, consumerism.
+ - I need to broaden my horizons.
+ - Different people bring out different aspects of ones personality.
+ - It’s too hard for me to comment on the sorry state of our culture.
+ - I take all of my music seriously and personally.
+ - After realising my natural affinity towards surrealism several years ago I decided to study it’s origins and definitions.
+ - I never understood why the metal heads in my school hated the punks.
+ - I’m comfortable, but not satisfied and I hope to always feel that way.
+ - Harry Patch didn’t get enough recognition. Jerry Garcia got too much.
+ - If I can introduce someone to something new, as is constantly happening to me, then I am elated.
+ - Now I am obsessed with collecting Platypus paraphernalia.
+ - The bungle tour is a bit up in the air due to the fact this at we are getting screwed by our overseas label.
+ - I have no inflated ideas about success anyway.
+ - But I also like to be in control, like anyone else. I try to achieve a balance.
+ - I love being a musician. I love the lifestyle. But I think it’s probably as difficult and frustrating as anything.
+ - If you want music that speaks to you, that LISTENS to you, you have to go out of your way, which I enjoy actually. I’m constantly on a private-eye kick to find the totally obscure.
+ - Bungle is definitely a priority right now.
+ - There’s a reason I moved to NYC, and if I listed all the musicians on my list you’d grow weary.
+ - I don’t really know why I chose bass except that it was different than guitar.
+ - I feel akin to the Platypus. An orphan in a family. A swimmer, a recluse. Part bird, part fish, part lizard.
+ - Music is a very personal and emotional form of communication.
+ - Mullets are still going strong in the south and places like St Louis or the Carolinas.
+ - I mean, I would hope that I have a style or personality that is evident wherever I go.
+ - I’ve experienced as much fame as I ever want to.
+ - Being in several, disparate bands is what I thrive on.
+ - It wasn’t until after private lessons and learning bass lines that I even noticed bass in the music I was listening to at that age. My ears were blown wide open.
+ - Hopefully, as a band, it will grow and develop for a good length of time.
+ - I remember when metal was something you really had to search out, and now I hear it on car commercials.
+
+28 quotes

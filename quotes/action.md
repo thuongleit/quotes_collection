@@ -1,0 +1,42 @@
+ - Words may inspire but only action creates change. ~~Simon Sinek
+ - Ideas without action are useless. ~~Helen Keller
+ - Knowledge is NOT power. Knowledge is only POTENTIAL power. Action is power. ~~Tony Robbins
+ - Action will destroy your procrastination. ~~Og Mandino
+ - Never lower your target ; increase your actions. ~~Grant Cardone
+ - Happy people plan actions, they don’t plan results. ~~Denis Waitley
+ - Inaction breeds doubt and fear. Action breeds confidence and courage. ~~Dale Carnegie
+ - Knowing is not enough! You must take action. ~~Tony Robbins
+ - It isn’t what we say or think that defines us, but what we do. ~~Jane Austen
+ - Your attitude determines your actions, and your actions determine your accomplishment. ~~John C. Maxwell
+ - Motivation is motive in action. ~~Denis Waitley
+ - Successful people are action oriented. ~~Jim Rohn
+ - Passion is the genesis of genius. ~~Tony Robbins
+ - Action without planning is the cause of all failure. Action with planning is the cause of all success. ~~Brian Tracy
+ - Attitude drives actions. Actions drive results. Results drive lifestyles. ~~Jim Rohn
+ - Listen to me. We’re here to make a dent in the universe. Otherwise why even be here? ~~Steve Jobs
+ - Get action. Do things; be sane; don’t fritter away your time; create, act, take a place wherever you are and be somebody; get action. ~~Theodore Roosevelt
+ - Commit to “CAN I!” – Constant And Never-Ending Improvement. ~~Tony Robbins
+ - Setting goals helps bring your future into your present and the present is the only time we can take action. ~~Zig Ziglar
+ - Compassion is an action word with no boundaries. ~~Prince
+ - Winners take imperfect action while losers are still perfecting the plan. ~~Tony Robbins
+ - Do it, and then you will feel motivated to do it. ~~Zig Ziglar
+ - Hoping drains your energy. Action creates energy. ~~Robert T. Kiyosaki
+ - Doubt is only removed by action. If you’re not working then that’s when doubt comes in. ~~Conor McGregor
+ - The most important actions are never comfortable. ~~Tim Ferriss
+ - Your words will tell others what you think. Your actions will tell them what you believe. ~~T.D. Jakes
+ - When every action has a purpose, every action has a result. ~~Greg Plitt
+ - The greatest happiness is to transform one’s feelings into action. ~~Madame de Stael
+ - When your every thought and your every action is directed to your ultimate life goals, you become unstoppable and assured of great success and happiness. ~~Robin S. Sharma
+ - Knowledge is only potential power. It becomes power only when, and if, it is organized into definite plans of action, and directed to a definite end. ~~Napoleon Hill
+ - Action without thought is mindlessness, and thought without action is hypocritical. ~~Ayn Rand
+ - Good actions are a guard against the blows of adversity. ~~Abu Bakr
+ - Wisdom comes with the ability to be still. Just look and just listen. No more is needed. Being still, looking, and listening activates the non-conceptual intelligence within you. Let stillness direct your words and actions. ~~Eckhart Tolle
+ - You cannot make yourself feel something you do not feel, but you can make yourself do right in spite of your feelings. ~~Pearl S. Buck
+ - The impediment to action advances action. What stands in the way becomes the way. ~~Marcus Aurelius
+ - Psychology is action, not thinking about oneself. ~~Albert Camus
+ - Man is nothing else but what he purposes, he exists only in so far as he realizes himself, he is therefore nothing else but the sum of his actions, nothing else but what his life is. ~~Jean-Paul Sartre
+ - Worship is an inward feeling and outward action that reflects the worth of God. ~~John Piper
+ - An action is essentially good if the motive of the agent be good, regardless of the consequences. ~~Immanuel Kant
+ - Name a moral statement or action, uttered or performed by a religious person that could not have been uttered or performed by an unbeliever. ~~Christopher Hitchens
+
+40 quotes

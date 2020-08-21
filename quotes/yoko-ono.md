@@ -1,0 +1,292 @@
+ - Art is a way of survival.
+ - You change the world by being yourself.
+ - You may think I’m small, but I have a universe inside my mind.
+ - Art is my life and my life is art.
+ - Smile in the mirror. Do that every morning and you’ll start to see a big difference in your life.
+ - Some people are old at 18 and some are young at 90. Time is a concept that humans created.
+ - The sky is always there for me, while my life has been going through many, many changes. When I look up the sky, it gives me a nice feeling, like looking at an old friend.
+ - When people don’t understand my work, I don’t feel like explaining.
+ - World peace is one project that we have to do together.
+ - It’s better to dance than to march through life.
+ - Confusion has become a state of mind, more of less; we’re trained to be confused. Quite simply, the people in power are keeping us down, keeping us docile and keeping us consuming with this confusion. It’s a cultural confusion and it is deliberate.
+ - When people ask me what the most important thing is in life, I answer: ‘Just breathe.’
+ - But only art and music have the power to bring peace.
+ - Most people think that I am too optimistic, but my optimism is based on the thought that negative thinking is a luxury that we can’t afford.
+ - Smile to the future and it will smile back to you.
+ - Try to say nothing negative about anybody for three days, for forty-five days, for three months. See what happens to your life.
+ - There’s a long life ahead of you and it’s going to be beautiful, as long as you keep loving and hugging each other.
+ - Remember love. Remember our hearts are one. Even when we are fighting with each other, our hearts are beating in unison. I love you.
+ - Listen to the sound of the earth turning.
+ - I’m just trying to do my best every day, hoping that I have done my best every day, and its very easy in a way, but also it’s not that easy. Every day counts.
+ - Healing yourself is connected with healing others.
+ - All my life, I have been in love with the sky. Even when everything was falling apart around me, the sky was always there for me.
+ - If your life changes, we can change the world, too.
+ - I trust myself. You need that to survive.
+ - Every drop in the ocean counts.
+ - We are never alone. We are all aspects of one great being. No matter how far apart we are, the air links us.
+ - Experiencing sadness and anger can make you feel more creative, and by being creative, you can get beyond your pain or negativity.
+ - You can be very wild and still be very wise.
+ - We get shy about saying things like I love you. Life is so short. It’s crazy, that we hesitate to express our true thoughts to each other.
+ - Be kind to yourself this evening. Buy something for yourself. Treat yourself to a meal. Look in the mirror and give yourself a smile.
+ - The opposite of love is fear, not hate.
+ - Spring passes and one remembers one’s innocence. Summer passes and one remembers one’s exuberance. Autumn passes and one remembers one’s reverence. Winter passes and one remembers one’s perseverance.
+ - The regret of my life is that I have not said ‘I love you’ often enough.
+ - You can’t love someone unless you are in an equal position with them. A lot of women have to cling to men out of fear or insecurity, and that’s not love – basically that’s why women hate men.
+ - We are all dreamers creating the next world, the next beautiful world for ourselves and for our children.
+ - Don’t ever give up on life. Life can be so beautiful, especially after you’ve spent a lot of time with it.
+ - It is sad that the air is the only thing we share. No matter how close we get to each other, there is always air between us.
+ - I’m kind of honored to be a dragon lady. The dragon is a very powerful, mythical animal.
+ - All women are feminists. Being a feminist is allowing woman to be natural, for what she is, whatever it is. All of us can be natural and we’re all feminists in that sense.
+ - Look at a star in the sky not as something unreachable but as a planet you would visit one day.
+ - What a beautiful future it will be! Don’t worry about life being boring. It will never be.
+ - Loneliness is equal to the radius of one’s awareness.
+ - Money is not everything. We don’t need billions and trillions of dollars.
+ - Distance doesn’t exist, in fact, and neither does time. Vibrations from love or music can be felt everywhere, at all times.
+ - Every moment in our lives is a miracle we should enjoy instead of ignoring.
+ - Japanese are very proud and workaholics. Proud workaholics.
+ - There’s nothing bad about feminism. We have to help each other, because there’s a lot of women in the world who are suffering because the fact is we’re not equal. It’s as plain as that. It’s still a men’s world. I don’t know. We’ll go on with it.
+ - Fracking kills, and it doesn’t just kill us. It kills the land, nature and, eventually, the whole world.
+ - Remember, each one of us has the power to change the world. Just start thinking peace, and the message will spread quicker than you think.
+ - Mirror becomes a razor when it’s broken. A stick becomes a flute when it’s loved.
+ - Transform jealousy to admiration, and what you admire will become part of your life.
+ - Watch the sun until it comes into your body and stays as a tiny sun. It will keep your face shining even in the coldest of winter.
+ - Tape the sound of friends laughing together. Save it for a rainy day.
+ - Society was built on male power, and women’s power was... ignored is the best word to describe it I suppose, we have been running society on one power, half a power really. And that’s so terrible. The world needs women’s power too.
+ - Events are the best teacher for us. You try to learn from people, there is always some bend to it.
+ - A lot of things have been thrown at me in life, and I’ve got through it all without a rule book, taking it one day at a time.
+ - Is truth always positive? Of course. Once the truth comes out, you know, it’s all right. We’re scared that if the truth comes out that it’s not all right. It’s the other way around.
+ - When I speak out against the guns or against the big corporations, some of my friends say, ‘Oh Yoko, be careful. These people have all the power.’ But, you know, most people don’t speak out because they are frightened.
+ - Countries have lost their culture because what they wanted was money. Money became the running theme in every country and culture was sacrificed.
+ - Walking on thin ice, I’m paying the price. I’m throwing the dice in the air. Why must we learn it the hard way, and play the game of life with your heart?
+ - Our thoughts determine our age.
+ - I have only one life, so I want to make sure it’s a good one.
+ - We’re all water from different rivers, That’s why it’s so easy to meet, We’re all water in this vast, vast ocean, Someday we’ll evaporate together.
+ - Words are power. And a book is full of words. Be careful what power you get from it. But know that you do.
+ - I realized that if my thoughts immediately affect my body, I should be careful about what I think. Now if I get angry, I ask myself why I feel that way. If I can find the source of my anger, I can turn that negative energy into something positive.
+ - Use your blood to paint. Keep painting until you faint. Keep painting until you die.
+ - The human race is a very, very magical race. We have a magic power of witches and wizards. We’re here on this earth to unravel the mystery of this planet. The planet is asking for it.
+ - I love to work. Doing things we love is how we relax, I think.
+ - Unclog your mind. Unclog your room. Arrange your room in a way you wish your mind would be.
+ - Performance art is going to be the future. Plays on Broadway are so restricted. But performance art is like haikus, just one line thing. And it’s more casual but more interesting.
+ - Marriage is a difficult project. When seven years have passed and all your body’s cells have been replaced, you’re meant to experience that seven-year itch.
+ - I don’t think you should always stay calm in a tense situation, because you might not ever confront the problem. Maybe it’s better to actually let yourself be tense – and find a solution.
+ - Next time you meet a ‘foreigner’, remember it’s only like a window with a different shape to it and the person who’s sitting inside is you.
+ - What the Beatles did was something incredible, it was more than what a band could do. We have to give them respect.
+ - I am extremely rebellious. I have this strong, defiant spirit.
+ - Stand in the evening light until you become transparent or until you fall asleep.
+ - Hide until everybody goes home. Hide until everybody forgets about you. Hide until everybody dies.
+ - We don’t live by just sleeping and eating. We need pride and dignity in our lives. Work gives you that.
+ - See what you can do. See what you want to do. See what you will do about it. Find your way out.
+ - We’ve been filled with great treasure for one purpose: to be spilled.
+ - Sometimes I am happy and sometimes not. I am, after all, a human being, you know. And I am glad that we are sometimes happy and sometimes not. You get your wisdom working by having different emotions.
+ - When I got pregnant, I had to concentrate on being pregnant for a whole nine months, even though I knew it was ruining my career at the time.
+ - When you say ‘I love you’, you are not just saying it to that person. You are saying ‘I love you’ to yourself, the planet & The Universe.
+ - My beauty secret is... nothing! I don’t drink too much water. I don’t eat very well. Sometimes I cheat and grab some chocolate. The best thing is to eat what you want, but not very much.
+ - I think I’m an observer in a way. And my life was not so – well, my life was bad too – but it’s just that I had the sense to cope with it. But it’s probably not that easy to cope if you’re in a society where you get killed when your husband dies.
+ - If I was a Jewish girl in Hitler’s day, I would become his girlfriend. After ten days in bed, he would come to my way of thinking.
+ - One day, the dance charts will be the biggest chart in the music world. Because we all need to dance. This planet will be a fun planet when the judges in court will end the day with a dance!
+ - Kill all the men you have slept with. Put the bones in a box and send it into the sea with flowers.
+ - People say that this new generation is so used to the Internet that their heads are already different. They can’t read a book from beginning to end. That is not a tragedy. The book changes form.
+ - Women are put in a position of feeling embarrassed about their bodies. It’s so ridiculous, but also astounding – we have to always be apologetic about having created the human race.
+ - I just go with the flow, so any style can be in my music – that makes it exciting.
+ - Think of the Earth as a turning point in eternity. Think of the Earth as a meeting point in infinity.
+ - When you are feeling bad, do one thing a day to make your heart dance. It could be a simple thing like looking up at the sky.
+ - No one person could have broken up a band, especially one the size of the Beatles.
+ - Every time I create something, just before that there’s a kind of – you’re feeling very low, you’re feeling very down and insecure. Then you create and then it’s fine. This is the way I observe me doing it.
+ - Tell the Earth how much you care, how beautiful she is, and how much you love her. Ask for her forgiveness for having been so careless.
+ - Keep going until your efforts start to make things better in your hometown.
+ - When you go to war, both sides lose totally.
+ - When you are suffering, you become more understanding about yourself, but also about other people’s sufferings too. That’s the first step to understand somebody is to understand their sufferings. So then love follows.
+ - Music is like my security blanket.
+ - If you have too many quotes from other people in your head, you can’t create. You have to keep your head empty. That’s why I am constantly enjoying the sky, the park, the walk.
+ - Each time we don’t say what we wanna say, we’re dying.
+ - I started to notice that simpleness is divine. I think we all start trying to use very complex harmonies and rhythms and all that because of a certain kind of ambition. But I was always trying to create something simple.
+ - I relate to happiness as an ecstatic moment – something you don’t create, you encounter.
+ - Tape the sound of the moon fading at dawn. Give it to your mother to listen to when she’s in sorrow.
+ - I often wish my mother had died so that at least I could get some people’s sympathy. But there she was, a perfectly beautiful mother.
+ - My father was a banker, but he was an independent spirit. He was a very good pianist and very much into music.
+ - After my husband John Lennon passed away, I tried to smile for my health.
+ - You have to release your emotion in order to keep your sanity.
+ - People are still thinking of solving problems by violence and war, and that has to stop.
+ - I saw that nothing was permanent. You don’t want to possess anything that is dear to you because you might lose it.
+ - The first idea, the first art piece I ever did, was when I was four. I cut the seed of a pear in half and the seed of an apple in half in put those two halves together and planted the seed, hoping a very strange tree might grow. And I never stopped.
+ - It’s better that you’re criticized than complimented as a person.
+ - Everybody’s an artist. Everybody’s God. It’s just that they’re inhibited.
+ - Nobody’s life is a bed of roses. We all have crosses to bear and we all just do our best.
+ - People accuse artists of being narcissists – of course we are! If we don’t like ourselves, who’s going to like us?
+ - Sometimes I have compared myself with a scientist or something: when you discover something and you don’t expect the whole world to understand it. I always thought I was doing that kind of activity, in art and in music too.
+ - Give peace a chance and let’s hope that one day we will all live in peace.
+ - Controversy is part of the nature of art and creativity.
+ - I just like to explore all sorts of different forms – no, ‘explore’ is not even the word – enjoy. You don’t want to limit yourself to a particular form.
+ - Dancing is a very healthy thing to do for our body.
+ - Art for me is like breathing.
+ - When you’re imagining peace, you can’t kill anyone. That’s good isn’t it?
+ - I don’t work for a long time on anything. I don’t have too much time in life.
+ - Please know that being 80 is not a scary thing. When you’re 80, your life is much freer.
+ - I’m free from holding personal anger because I can express what I want through my music.
+ - John would have been the first white rapper. And also he would have cherished the Internet.
+ - The people have got to trust in themselves.
+ - Society tells you that when you’re old you have to retire. You have to defy that.
+ - I did not break up the Beatles. You can’t have it both ways. If you’re going to blame me for breaking the Beatles up, you should be thankful that I made them into myth rather than a crumbling group.
+ - I think that all women are witches, in the sense that a witch is a magical being. And a wizard, which is a male version of a witch, is kind of revered, and people respect wizards. But a witch, my god, we have to burn them.
+ - Imagine a dolphin dancing in the sky. Let it dance with joy. Think of yourself at the bottom of the ocean watching.
+ - When you are totally depressed, you should try giggling. Just make yourself laugh. Force yourself to laugh.
+ - Even my mother told me: ‘You are a handsome woman, but you’re not pretty. Pretty girls don’t have those big bones.’
+ - People think that their world will get smaller as they get older. My experience is just the opposite. Your senses become more acute. You start to blossom.
+ - In your head, a sunset can go on for days.
+ - Many of my songs were dance orientated from way back. That’s because I love dance! When I hear a dance number, just hearing the first eight bars, it immediately makes my bod start moving and dancing.
+ - You should do something that will make your heart dance once a day. If you can’t do that because you’re too depressed, then do something that will make somebody else’s heart dance.
+ - Losing my daughter was a very serious pain. There was always some empty space in my heart.
+ - If people want to make war they should make a color war, and paint each others’ cities up in the night in pinks and greens.
+ - Women are very intelligent and not appreciated. We try to pretend that we are not clever, and it’s such a pity that we can’t show how clever we are.
+ - Love is an incredibly strong thing, it goes everywhere, it’s like water, you can’t stop it. Love, once you have it, once you create a kind of pathway for it to come out, it just keeps on coming out.
+ - My husband John Lennon was a very special man. A man of humble origin, he brought light and hope to the whole world with his words and music.
+ - I have the outsider’s vision, which is creating wisdom I can share with the world. The fact that I am misunderstood has always given me an added impetus to work on communication to bridge the gap.
+ - I never went to art school and I never thought of going to an art school. It was just a way of manifesting these ideas I had. Ideas came to me that I needed to express.
+ - Life keeps getting better. If anything, you start to carry a certain pride in having survived all those years.
+ - When you go through a negative situation, don’t think about it. Make it positive.
+ - Women have become stronger, and there’s a backlash. Men have become terribly possessive. I find it much easier to get on with women.
+ - I really feel that artists or musicians are controversial people. Controversy is part of the nature of art and creativity. If people are not doing that, they’re not artists – they’re artisans.
+ - Give death announcements each time you move instead of giving announcements of the change of address. Send the same when you die.
+ - I am aware of the sufferings of women in India, which is also the suffering of women in many, many countries on our planet. My heart is filled with empathy and love for them.
+ - Look at yourself in the mirror and don’t be afraid to notice how beautiful you are.
+ - We don’t read people’s wishes. The wishes are suppose to be direct communication to the Universe. Your interception will weaken the power of the wish.
+ - Marriage is a gamble, let’s be honest.
+ - It’s always good to do something that is not a repeat. I just don’t believe in repeating.
+ - The odds of not meeting in this life are so great that every meeting is like a miracle. It’s a wonder that we don’t make love to every single person we meet.
+ - The Establishment likes people who take no responsibility and cannot respect themselves.
+ - You can’t always be in awe of someone’s talent, living with them.
+ - Creativity is innate and it manifests itself in so many forms. It needs to come out somehow or it destroys you in some way.
+ - John wrote with a very deep love for the human race and a concern for its future.
+ - I think if you give in and accept society’s stereotypes, then you start thinking, ‘I cannot dance till late at night because I’m 70.’
+ - I think that there is incredible prejudice about witches while there is no prejudice about wizards. Words are very important, and I’m really into destroying myths.
+ - My heart is mysteriously alive in the world of sounds – a totally different dimension from the daily life.
+ - If you’re criticized then you can use it as an experience. Compliments, you can’t use.
+ - Dance in your dream. Go out into the street and hug everyone you meet. Tell them how beautiful they are. Dance together.
+ - DJs are in incredible competition, musically. And they are the most musically creative and sensitive people in all the music charts. I am amazed how they are.
+ - There’s many women now who think, ‘Surely we don’t need feminism anymore, we’re all liberated and society’s accepting us as we are’. Which is just hogwash. It’s not true at all.
+ - It’s a waste of time to think that if you colored a painting red what might have happened if you painted it black.
+ - When you burn the chair, you suddenly realize that the chair in your mind did not burn or disappear.
+ - I’m very thankful that I can make people happy just by signing my name.
+ - Fracking is an incredible risk to the human race, I don’t know why they even thought of doing it.
+ - Cosmetics is a boon to every woman, but a girl’s best beauty aid is still a near-sighted man.
+ - The amazing thing is that we could live in the world together peacefully, feed the world, shelter the world. We have that capability both spiritually and technologically.
+ - The 1960s were about releasing ourselves from conventional society and freeing ourselves.
+ - Imagine painting all the statues in the world in the color of the sky.
+ - Art is an effort to make you walk a half an inch above ground.
+ - I was born into a very important family in Japan. My grandfather was a descendant of the Emperor, and we were very wealthy.
+ - I wonder why men get serious at all. They have this delicate, long thing hanging outside their bodies which goes up and down by its own will. If I were a man I would always be laughing at myself.
+ - I’m a politician. Politics is just a convenience for our life and we just have to create a beautiful world together that would be very convenient for us and just enjoyable.
+ - People don’t remember each tree in a park but all of us benefit from the trees. And in a way, artists are like trees in a park.
+ - Someday I’ll be remembered for The phone calls I never made Letters I never mailed And the stories I never finished telling anyone.
+ - What is beauty? It’s what you love.
+ - I am the type of person who would do something thoroughly if someone said, “I don’t think you can do it.” I am extremely rebellious. I have this strong, defiant spirit.
+ - When I was four years old, my mother put me into a school for early music education where you get perfect pitch and harmony and composition.
+ - I’m not the kind of woman who would love to make soup or knit sweaters. I never cherished that so much.
+ - I think energy is the most important thing that we can give to people as performers. Anything else is a little bit pretentious. But energy is not.
+ - We artists have the dignity to tell the truth to the people, unlike politicians.
+ - I never want projects to be finished; I have always believed in unfinished work. I got that from Schubert, you know, the ‘Unfinished Symphony.’
+ - Being alone is very difficult.
+ - Art is like breathing for me. If I don’t do it, I start to choke.
+ - My life has always been unplanned. So when something comes along, I feel like, Why not give it a try? It’s fun to experiment like that.
+ - Everyone is an artist and a genius, I think. If we don’t choose to limit ourselves then we are totally accomplished.
+ - I think people place limitations on each other and on ourselves. There is a great fear of expressing ourselves, of making creativity happen.
+ - Be kind once a day – even if it’s just in your mind.
+ - The only instrument I can play is piano. Whenever I make songs at home, I play the piano and make them on the piano.
+ - Power is power. It’s energy. And if you get big, big energy, you can use that in a good way.
+ - This society is driven by neurotic speed and force accelerated by greed and frustration of not being able to live up to the image of men and woman we have created for ourselves; the image has nothing to do with the reality of people.
+ - Artists are going to be the metronome of this society.
+ - I’m into indie music. I think indie is going to bring back the spirit in music. There was a time when it was all about accommodating the music business, the music was getting tasteless, but the spirit is back.
+ - In the Second World War, I was a little girl. I was evacuated in my country.
+ - I respect Lady Gaga very much.
+ - At least I had that, one guy understood me.
+ - The whole world is starting to realize that it was the most unwise thing for our society to have ignored women power, to run the society with male priorities.
+ - I thought art was a verb, rather than a noun.
+ - The Beatles were a group made up of four very complex men, and my small hand could not have broken these men up.
+ - If your judgement is clouded, you must be carrying too many things which are being a burden to you.
+ - If everybody thinks of something, then it will happen. Your mind is part of the universe. It is connected, you can use its energy.
+ - Life with another person is always difficult.
+ - Perhaps one feels more pain when parents are there. It’s like when you’re hungry, you know, it’s worse to get a symbol of a cheeseburger than no cheeseburger at all. It doesn’t do you any good, you know.
+ - I admire all people who are trying to be a good power in this chaotic world.
+ - Everything has complexity. Everything has simplicity. You just grab it.
+ - People just love to be entertained, and in order to entertain them, you have to do things in a way that they understand.
+ - I travel a lot, so when I arrive in a city, I like to go to good local bookshops and make a selection based on how I’m feeling and what I’m thinking. The book I pick usually seems to have a definite karmic connection!
+ - When you go on a stage, before you go on a stage you’re really scared and you’re really frightened. You don’t know what to do. “Why did I say yes to this?” But once you’re on the stage you think, “Okay.”
+ - I think that there is a sort of spiritual power that is translating into our bodies as we perform. Performers give, and giving is so important. It can heal. That is my experience, anyway.
+ - Bless you for your jealousy; it is a sign of empathy.
+ - When I turned 60, it didn’t bother me at all.
+ - True artists are prophets. I don’t want to be that prophetic in that sense because it’s so lonely.
+ - There is an incredible love in creating art unless somebody is saying, ‘Hey, let’s just make money,’ because it doesn’t work when you do it that way. If you are aiming for that, forget it.
+ - I’m a very obsessive type. If I do get into it, I’ll soon be there 12 hours a day. I just don’t want to do that.
+ - Faces can lie. Backsides can’t.
+ - Spring passes and one remembers one’s innocence.
+ - I don’t think you make a choice to be an artist. There was no decision for me. I’ve been expressing myself this way since I can remember.
+ - Music is something that even when you close your eyes it gets into your body.
+ - You know harmony only exists in music-isn’t that amazing? I think that if you see earth from very far away, the color is blue. That is very interesting because blue is the color of communication.
+ - I’m not interested so much in collaboration. You see that from the history of my albums.
+ - Beatles was 20th-century folksong in the framework of capitalism; they couldn’t do anything different if they wanted to communicate within that framework.
+ - To have a relationship that is pure and passionate and beautiful – I think people are scared of having that now. Especially guys.
+ - There’s a big difference between sending your art in a statement or something like that, and sending yourself there. When you send yourself somewhere, then you are sharing your information uncontrollably – like all yourself.
+ - All my concerts had no sounds in them; they were completely silent. People had to make up their own music in their minds!
+ - When I’m inspired, I jot things down and put them in a pile.
+ - People make music to get a reaction. Music is communication.
+ - I think of John every day. I do try to block it, but December 8th is not the only day I think of him.
+ - You can’t always measure the effects of activist work; you just have to wish and pray that the message gets through.
+ - All I’m saying is that perhaps we can make a revolution without violence.
+ - Artists are magicians and I definitely think John Lennon was a Wizard.
+ - Touch, touch, touch, touch me love, I’m shaking inside.
+ - I think there is a big difference between the music business and music. And my relationship is to music, not music business. I think the business will keep changing, but music won’t. Music will be there.
+ - The only way you can better John is by copying him exactly.
+ - Sometimes the father feels pushed out because of the connection between the mother and the child.
+ - When I hear music, my body just starts to move. It has nothing to do with training or anything. That’s just me. That’s just my body. And I was like that as a child, too.
+ - We know that our cells are speaking to each other.
+ - The cynicism that you have is not your real soul.
+ - The boats outside the window were always still I wondered if one of them would take me to the ocean.
+ - You know, something happened to me when I became 70. I started to feel a tremendous love for the human race, and life and this planet, the universe, the whole shebang.
+ - Mothers are not supposed to give guidance.
+ - It is very difficult for us to know we love somebody because it is an insecure position to be in. But in the end, it is important to be honest about your love because life is not that long.
+ - I feel sad that he’s just a voice now.
+ - When Orientals are attacked, they don’t hit back.
+ - Energy is so important. If you don’t have it, don’t bother with rock and roll.
+ - In a way the new music showed things could be transformed by new channels of communication.
+ - There are things you can never take, no matter how strong you are.
+ - Our public officials have forgotten that they are ultimately accountable to the people who put them in office, that the information they keep in secrecy belongs to all of us.
+ - Rather than deal with problems in relationships, I’ve always moved on. That’s why I’m one of the very few survivors as a woman, you know.
+ - The nice thing about the gallery shows is that without having to pay any money you can just go and see it.
+ - I want to incite people to loosen their oppression by giving them something to work with, to build on. They shouldn’t be frightened of creating themselves – that’s why I make things very open, with things for people to do.
+ - I’m not going to doubt my life.
+ - And the more you are active about something you love, the world is going to be a better place.
+ - If a woman writes about a domestic situation, everyone automatically assumes that it’s about her.
+ - I have a woman inside my soul.
+ - All I can say is, it’s not very easy for a woman to be associated with The Beatles.
+ - I saw sorrow turning into clarity.
+ - I never wanted to be a professional artist; I think that’s limiting.
+ - Bad stories are written about me because the press knows they can make me into a weeping dog and few people will object.
+ - I always thought that I was an important musician. If you don’t have that confidence, why would you go on and do it?
+ - Most of the fans of John Lennon and maybe John and Yoko are younger than me.
+ - You can’t dance if you got too much muck in your head.
+ - I get very nervous before I get on the stage, but once I’m on the stage, I’m just, you know, me. Nothing hurts me.
+ - Violence isn’t just a conceptual thing. it could happen to your kids.
+ - I have been known as the minimal and conceptual artist for over five decades. I think I haven’t changed much.
+ - My life was pretty rough.
+ - I see so many activists... who are artists because they feel that they have the power of communication.
+ - I never thought, “I’m going to be an artist”. When I actually began to become successful in the art world I made it a point to say, ‘I am a dilettante, I am not a professional artist”, which is true.
+ - I get very sad when I think about Vietnam where there seems to be no choice but violence. This violence goes on for centuries perpetuating itself.
+ - Luckily we never injected because both of us were totally scared about needles. So that probably saved us. And the other thing that saved us was our connection was not very good.
+ - The art world was not initially really accepting my kind of work. I was ahead of my time.
+ - We created a thing called culture and civilization, and now we’re about to lose it because we’re trying to destroy everything. And I kind of miss it. I miss culture and civilization.
+ - I don’t really believe in going with somebody to have tea and chat. I don’t do that. It’s just a waste of time.
+ - I never thought I would go into the dance charts.
+ - Many incredible artists die before they were famous.
+ - I have to be pretty inclusive. I have to be pretty much inside of me rather than going out and finding out what people are doing. I don’t have the time to. I just listen to my mind, in a way.
+ - Your private life is really very important for you. You know, all of us, you know.
+ - Great Art is Great because it inspired you greatly. If it didn’t, no matter what the critics, the museums and the galleries say, it’s not great art for you.
+ - What we do really affects the world. Most of us think we can’t do anything, but it really isn’t true.
+ - Women artists are still treated differently from men.
+ - Artists and musicians of the Sixties were definitely into clothes.
+ - We need to really do something about the world. Otherwise, we’re all going to blow up together.
+ - The thing is, even after the revolution, if people don’t have any trust in themselves, they’ll get new problems.
+ - If you go back to all my albums, they’re all confessional.
+ - I don’t particularly consider myself just an artist. I’m a woman – I’m a human being.
+
+290 quotes

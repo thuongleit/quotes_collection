@@ -1,0 +1,56 @@
+ - Heavy Metal is the most conservative of all loud music. Let’s face it, not even a gym teacher could get as many people to dress alike.
+ - Don’t hate the media, become the media.
+ - If you liked school, you’re gonnnnna lovvvvve work!
+ - Our biggest national security threat is the environmental destruction of our planet and the arms race with ourselves.
+ - In many ways, I have no idea what would have become of me if punk hadn’t happened, because the ’70s turned out to be so stale, and so boring, and so backward compared to what had come just before. We were too young to have fully experienced the ’60s and the fervor of the anti-war movement.
+ - If voting could change anything, it would be illegal.
+ - Then as I got older, I always gravitated towards the hard stuff, Born To Be Wild, then Black Sabbath.
+ - It’s very irresponsible as a parent to follow Tipper Gore or the Religious Right’s advice and just take the offending CD or game away from the kid without discussing it.
+ - The Sonics I found later and that was pretty important.
+ - I got turned on to rock music almost by mistake when I was seven years old.
+ - Shut up, be happy. Obey all orders without question. The happiness you have demanded is now mandatory.
+ - When my sixth grade teacher opened the class with subtle praise for the guardsmen shooting four people to death at Kent State, I’d given up arguing with her by that point. But I was very riled up inside and vowed that I would never forget that.
+ - In the case of Michael Moore, having a deep, I’d even say passionate, understanding of other types of people in America who might be progressive thinkers without even realizing it.
+ - I have very mixed feelings about Jesse Jackson. He’s very good about labor, and human and civil rights issues, but not so good on cultural issues.
+ - When “Search and Destroy” by the Stooges came on as a Nike shoe commercial, I got physically sick. That song meant the world to me, and I didn’t feel this was the way it ought to be used.
+ - A hairstyle’s not a lifestyle.
+ - That’s the way both they and I travel sometimes. Pick road at random, and when it’s time to pull over, you pull over and hope you can find a place to crash.
+ - Punk rock will never die, until something more dangerous replaces it.
+ - I would hate to have “Holiday in Cambodia” become as tiresome to other people as hearing “Like a Rock” in a Chevrolet commercial.
+ - When there’s people on the other side of the room trying to wipe out your life and things are stacked against you, you can get nervous.
+ - I think Noam Chomsky is a national treasure – make that an international treasure.
+ - The underground scene is still a cool way to meet a lot of cool people, see a lot of interesting bands and get a lot of food for thought, but people have to remain curious and get their brain activity food from other places besides punk.
+ - Looking back, I didn’t realize until years later what a huge influence Red Skelton was in my stage demeanor with the band. I mean, I always liked things that were funny, and later I realized that having a sly sense of humor was a way to get attention and even respect in school.
+ - This is my home. Home is where the disease is. As long as I stay in America, I’ll never run out of subjects for songs.
+ - No matter what I do, my songs come out in a certain style, and if that sounds like Dead Kennedys, then there’s probably a reason for it. Don’t forget, I wrote most of those songs, music and lyrics.
+ - I don’t think it’s too hippie to want to clean up the planet so you don’t wind up dying of some kind of cancer when you’re 45 years old. It enrages me that these big cancer-research organizations can’t be bothered to man the front lines of environmental protest.
+ - I’m tired of being ruled by the Skull and Bones. The only place they belong are on punk-rock albums!
+ - Jimi Hendrix once said, ‘You will never hear surf music again.’ Well, tonight, you will hear ‘serf’ music again – S-E-R-F music.
+ - It depends on the situation. I mean, on one hand there’s the argument that people should be left alone on the other hand, there’s the argument to wade in a stop slaughters in places like Bosnia and Kosovo and what we probably should have done in Rwanda.
+ - I think one of the most important things punk brought back was the whole concept of staying independent and doing things yourself. It made music a lot less boring in any category you can name.
+ - What they’re not doing is marketing the Dead Kennedys in the spirit of what the band stood for.
+ - Patriotism does not mean giving blind loyalty and a blank check to George W. Bush.
+ - I’ve never been a big fan of subtle art. I like art that gets deep into my head and starts my brain spinning with new ideas and inspiration and my whole body is full of energy.
+ - A lot of the best acting training I had was in junior high and high school. We had very demanding directors and did real plays. You put our plays up against any theater troupe of any age, and they usually did pretty damn well.
+ - All my different kinds of artwork have been designed to inspire people to think. They may not always agree with me, but at least they will have some feelings and some passion about whatever it is.
+ - I think there’s plenty of room, even in the most serious activist circles, for humor. Humor can be very effective both to inspire, and as a weapon. Just ask Frank Zappa and Charlie Chaplin.
+ - Respecting other people’s cultures is well and good, but I draw the line at where some branches of Islam, what they do to women. It’s indefensible.
+ - I’m appalled at how many people my age, or even five or ten years younger, have no tangible memories of important history that happened when we were growing up.
+ - What does it say about our country when people are so desperate for an alternative to our one-party state masquerading as a two-party state that they’ll even elect a professional wrestler governor?
+ - Method acting has had a major influence both in writing through the eyes of other people, and seeing through the eyes of other people, trying to address different ideas in a way that would go beyond preaching to the choir.
+ - Well, once you get involved with bloodsport litigation, you can not only get drunk on your own greed but start to believe your own lies.
+ - Well, I don’t think I’ll ever stop being frustrated or feel fulfilled artistically.
+ - I went to Seattle as just another geek in the food chain, thinking, “Well, in my own puny little way, I’d rather be a part of history than just sit and watch it on TV.” So, the fact that so many people are starting to ask the right questions and rack their brains for solutions does give me hope.
+ - The jury had down right contempt for punk rock grass roots ethics.
+ - I don’t know whether I see it as slipping inside the villains, but part of what makes Ralph Nader and Michael Moore such effective speakers and communicators is that they know how corporate culture works, how our lawmaking bodies really work, and where the bones are buried.
+ - We don’t need a flat tax, but a flattening tax, to truly level the playing field.
+ - From the beginning, there was so much pressure in the early San Francisco punk scene for everyone to be different than everyone else, to flaunt your intelligence and insights instead of every band sounding alike, like what plagues punk music in particular today.
+ - We’ve never had a situation where mass media has been so censored, at least in my lifetime. When I was younger, networks like NBC, CBS, were independently owned, and took their jobs as journalists seriously. There used to be documentaries like “The Selling of the Pentagon.”
+ - I enjoy getting people angry and getting underneath their skin, especially people who don’t think.
+ - If I go without rock for too long, I feel depressed.
+ - Another part of what gave me a questioning, rabble-rousing, activist heart and soul is that when all these heavy events went down, my parents did not shelter the kids from it.
+ - If I get even five per cent of my ideas out and documented before I die, I’ll be lucky. I’m not in danger of running out of riffs or ideas anytime soon. They overwhelm me and it’s hard to find time to deal with them.
+ - Any alternative culture that inspires a lot of passion and inspiration is also in danger of being set in its ways, almost from the moment it’s born.
+ - So basically the understanding on these so-called reissues is that they were done behind my back, without my permission, and the band informed me that I would no longer be paid on them at all.
+
+54 quotes

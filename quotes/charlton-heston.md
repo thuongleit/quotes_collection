@@ -1,0 +1,69 @@
+ - You can have my gun when you pry it from my cold, dead fingers.
+ - There’s no such thing as a good gun. There’s no such thing as a bad gun. A gun in the hands of a bad man is a very dangerous thing. A gun in the hands of a good person is no danger to anyone except the bad guys.
+ - The Internet is for lonely people. People should live.
+ - To the divisive forces that would take freedom away, I want to tell you something: You can have my gun. You can pry it from my cold dead hands!
+ - Political correctness is just tyranny with manners. I wish for you the courage to be unpopular. Popularity is history’s pocket change. Courage is history’s true currency.
+ - Life is full of surprises, isn’t it?
+ - Maybe it’s good if God gives you something to think about every so often.
+ - Lenin in 1921 observed very presciently that motion pictures were the most powerful tool ever invented to shape the way we thought. He was right. Political films can be successful.
+ - Political correctness is tyranny with manners.
+ - What you hold in your hand is proof of man’s power – against which our strength means nothing. It has the force of 100 spears. I warn you, man’s ingenuity goes hand-in-hand with their cruelty. No creature is as devious or violent.
+ - It’s the camel’s nose in the tent. Look at Stalin, Mussolini, Hitler, Mao Zedong, Pol Pot, Idi Amin – every one of these monsters, on seizing power, their first act was to confiscate all firearms in private hands...
+ - You simply disobey. Peaceably, yes. Respectfully, of course. Nonviolently, absolutely. But when told how to think or what to say or how to behave, we don’t. We disobey the social protocol that stifles and stigmatizes personal freedom.
+ - Another plague upon the land, as devastating as the locusts God loosed on the Egyptians, is ‘Political Correctness.’
+ - We will preach the truth to a new generation: The doorway to all freedoms is framed with muskets. It’s time the apologists step aside and let freedom’s followers lead the way.
+ - Moses is the keystone to every man’s ethical code. He was the first man of record in history to conceive of the law as separate from the will of a ruler, to choose whether a man should live by grace of law, or law by grace of man. In a literal sense Moses lives at every council table today.
+ - I always work on the theory that the audience will believe you best if you believe yourself.
+ - I don’t seem to fit really into the 20th Century.
+ - You could say that the paparazzi and the tabloids are sort of the ‘assault weapons’ of the First Amendment. They’re ugly, a lot of people don’t like them, but they’re protected by the First Amendment – just as ‘assault weapons’ are protected by the Second Amendment.
+ - I’m not a vegetarian but I want you to know that my four dogs are safe.
+ - One way or another, if you’re persistent, fortune always smiles on you.
+ - In what I think is the most serious problem the world faces, which is the population explosion, we will come I think to a time when measures that are not even dreamt of now will become necessary.
+ - My dad always said he wanted to be remembered for his body of work, and he’s made more than 75 pictures, some good, some bad, and they will be his legacy to the world of acting.
+ - In recent years, anyone in the government, certainly anyone in the FBI or the CIA, or recently, in again, Clint’s film, In the Line of Fire, the main bad guy is the chief advisor to the president.
+ - Skijoring is just something that people want to see, it’s like Ben Hur on snow, the modern way. I love the speed, the adrenalin rush is something special. It’s just unique.
+ - A policemans job is only easy in a police state.
+ - Celebrity is a corrosive condition for the soul.
+ - I have played some of the great men in history and I believe in the great man who does heroic deeds, even in these egalitarian times.
+ - A war put off is not a war avoided.
+ - The prime motivation in making almost any film is success, because film is the art form of the 20th century.
+ - Dirty Harry, for example. Clint Eastwood was not a rogue cop. He was a maverick cop, but he was a good guy.
+ - So that this nation may long endure, I urge you to follow in the hallowed footsteps of the great disobedience of history that freed exiles, founded religions, defeated tyrants, and yes, in the hands of an aroused rabble in arms and a few great men.
+ - I’ve come to feel very strongly, not as a joke, that if you appoint a committee of more than four people, their efficiency starts to deteriorate.
+ - I have lived my whole life on the stage and screen before you. I found purpose and meaning in your response.
+ - The trouble with movies as a business is that it’s an art, and the trouble with movies as art is that it’s a business.
+ - Telling us what to think has evolved into telling us what to say, so telling us what to do can’t be far behind.
+ - I’ve been a public person for most of my life. It has advantages and disadvantages. I can’t take my kids to Disneyland. On the other hand, I can get a table at a restaurant or tickets to a play.
+ - I’ve used too many pistols in too many movies. They’re kind of heavy to carry...
+ - You can spend a lifetime, and, if you’re honest with yourself, never once was your work perfect.
+ - To be an actor you need four things: energy, concentration, a lot of luck and, of course, good roles.
+ - As an actor, I’m thankful I have lived not one life, but many.
+ - I intend to dedicate my remaining time as president of the NRA to ensure that the Second Amendment is safe from Al Gore and all those who threaten it.
+ - An epic is the easiest kind of picture to make badly.
+ - To the world, you are America.
+ - I’ve played three presidents, three saints and two geniuses – and that’s probably enough for any man.
+ - My dissatisfaction with television as a medium has nothing to do with the audience or the fact that you don’t require as much time to do it as you do a movie, but with its technical limitations.
+ - It’s fashionable for modern actors to talk about getting ‘inside’ a character. But you can’t get to the inside without getting the outside right first.
+ - Doing a picture with Willie Wyler is like getting the works at a Turkish bath. You damn near drown, but you come out smelling like a rose.
+ - I don’t think rock music has any positive function.
+ - Society mends its wounds. And that’s invariably true in all the tragedies, in the comedies as well. And certainly in the histories.
+ - I’m neither giving up nor giving in.
+ - The First Amendment is crucial. Of course it is. So are all the others. And the Second Amendment is the one that guarantees that people can bear arms to protect themselves.
+ - For an actor, there is no greater loss than the loss of his audience.
+ - I am very proud of the fact that I led the arts contingent on the civil rights march in the summer of ’63. In many ways, I think it was the high-water mark of the civil rights movement.
+ - Well, we have certainly produced great art before we did this. In my view, there are any number of areas of government which tax money should not be spent.
+ - The minute you feel you have given a faultless performance is the time to get out.
+ - Above all, a director has to be a good captain.
+ - To me Moses is all men grown to gigantic proportions.
+ - I used to think if it wasn’t possible to be a family man and a totally dedicated artist, I’d rather be the former. I’m an idealist and a romantic.
+ - And their pals vote for their stuff when they’re not on the panel, and it just keeps going that way. And they tend to be very fringe artists, so anything before the 20th century is not worth considering. This is out of date.
+ - Film is the only art form whose raw materials are so horrendously expensive that the artist cannot afford to buy them for himself.
+ - Undeniably the American art form, too. And yet more and more, we see films made that diminish the American experience and example. And sometimes trash it completely.
+ - You have to be very careful to view yourself with a somewhat skeptical eye and to remember that you’re not here taking down everything I’m saying because you think I’m such a marvelous fellow but because your editors say go get 1,200 words or whatever on Chuck Heston.
+ - A clear enunciation of these rights needs to be enshrined in the constitution to guarantee that this basic right of law-abiding gun owners and sportsmen shall not be infringed upon by anti-gun public officials.
+ - The big studio era is from the coming of sound until 1950, until I came in I came in at a crux in film, which was the end of the studio era and the rise of filmmaking.
+ - I think narcotics and alcohol, and even tobacco are enormously costly ingredients in our society.
+ - Sometimes, to be silent is to be most eloquent.
+ - We don’t think well of our presidents when they are serving. Even Kennedy, with such a short presidency, was beginning to lose his remarkable appeal to the American people when he was suddenly sainted by death.
+
+67 quotes

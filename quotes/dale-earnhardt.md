@@ -1,0 +1,37 @@
+ - Second place is just the first place loser.
+ - The winner ain’t the one with the fastest car. It’s the one who refuses to lose.
+ - The only way to be productive is to be positive.
+ - You can’t let one bad moment spoil a bunch of good ones.
+ - I always have fun. I don’t really go without fun too long.
+ - You’ve got to be closer to the edge than ever to win. That means sometimes you go over the edge, and I don’t mean driving, either.
+ - Winning isn’t everything to me, but it’s a close second. Losing isn’t something that I can just brush off and fake a smile to hide my frustration. It’s that will and determination that I hope will get me where I want to go.
+ - If my wheel comes off and I hit the fence real hard, I get to whack every damn one of you with a hammer.
+ - You win some, lose some, and wreck some.
+ - It’s a never ending battle of making your cars better and also trying to be better yourself.
+ - I’m just trying not to get run over. That’s number one. Number two is you gotta catch the guy in front of ya.
+ - That’s life. You’ve got to deal with it, good and bad. We’ll be all right. I mean, if we make the chase, we make it. If we don’t, we don’t.
+ - Finishing races is important, but racing is more important.
+ - I’ve had confidence in myself all along. It was just a matter of getting the pieces back in place.
+ - My father could look straight ahead but concentrate on something on the very edge of his vision, almost nearly behind him.
+ - I felt like the track came to us, but then it went beyond us.
+ - When he was young, I told Dale Jr. that hunting and racing are a lot alike. Holding that steering wheel and holding that rifle both mean you better be responsible.
+ - I enjoy Saturday night racing.
+ - I don’t want to argue with my wife about her car – or my driving.
+ - The thing about it is, all those races we lost, we won this race together. We won it as a team.
+ - Two of my favorite things are my steering wheel and my Remington rifle.
+ - Tried on daddy’s 1979 rookie firesuit a while back. Smelled every bit of 36 years old.
+ - Maybe now that we have the same sponsor in Remington we can spend some time together outdoors.
+ - It’s just really hard to work and get better, building and planning for the future with the new Monte Carlo and keeping the race team intact and keeping them healthy.
+ - In what other sport do you get a 15-second break every hour?
+ - I started 20 years without missing a race and ESPN started broadcasting on the air waves.
+ - You would not believe how loose this car is for two laps after the green. Then, just like that, it’s back to how it was before. But, those first few laps, damn, it’s loose! JUNIOR NO LIKEY!
+ - I want to be up front racing.
+ - But I’m good to go through my contract with Childress, and my determination is to win races and try to win that other championship.
+ - That strategy of racing for the top five and racing for the win is where everybody wants to be.
+ - As a GM Goodwrench Service Plus dealer, I understand how good service makes a difference to our customers.
+ - I woke up this morning, and I still don’t believe I won the Daytona 500.
+ - Growing up, I’ve enjoyed hunting with my father.
+ - The atmosphere seems to change once the sun goes down and the race fans get to watch a good show.
+ - Richard Childress and myself have made some important innovations on our cars.
+
+35 quotes

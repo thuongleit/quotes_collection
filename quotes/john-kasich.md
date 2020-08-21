@@ -1,0 +1,89 @@
+ - Nothing is more important to me than my family, my faith, and my friends.
+ - I’m not a big guy that believes that you gain energy from demonizing other people. I think you gain energy from giving people hope.
+ - God gives me unconditional love. I’m going to give it to my family and my friends and the people around me.
+ - I believe we can solve anything. I believe people working together can lift everybody.
+ - Affirmative action has a negative effect on our society when it means counting us like so many beans and dividing us into separate piles.
+ - You know, since the 6th century, Sunni and Shia have been fighting.
+ - If we intend to provide a better life, and a better world, for future generations, we can’t ignore the quality of the environment we leave them.
+ - I’m not a plotter or a schemer. I’m a guy that looks at problems and tries to solve them, which I have done all of my career, creating jobs in Washington, creating jobs in Ohio.
+ - The republican party is my vehicle, not my master.
+ - If you go into a room of 100-plus people, and you want to be the prince of darkness, you can be it. But I don’t operate in the dark, I operate in the light.
+ - Sometimes people just don’t understand the way that I work in politics.
+ - Let’s start off with my father being a mailman.
+ - We need to give everybody a chance, treat everybody with respect, and let them share in this great American dream that we have.
+ - Everybody across this country knows that the tsunami of drugs is – is threatening their very families.
+ - In faith, I’m a believer in the do’s – you know, love your neighbor, love your enemy. I don’t spend a lot of time thinking on the don’ts ’cause I can’t get the do’s right.
+ - Every time I go to Washington, I break out in a cold sweat. So I try not to spend too much time there.
+ - A friend asked one of my daughters, “Do you like politics?” And my daughter said, “No, I don’t. And the reason I don’t like it is because there’s too much fighting, too much yelling. It’s so loud, I don’t like it.” You know, I turned to my friend and I said, “You know, she’s really on to something.”
+ - A leader has a sound program, has a good policy, and then brings people together to solve problems.
+ - We’ve got to listen to other people’s voices, respect them, but keep in mind, and I believe in terms of the things that I’ve read in my lifetime, the Lord is not picking us. But because of how we respect human rights, because that we are a good force in the world, he wants America to be strong.
+ - The Pentagon needs precious resources to build the strength of America, and we can’t say, ‘this is really important to this community, and it’s really not vital to the national security, but we ought to do it anyway.’ So, I think we have to have a discipline on this.
+ - I don’t want my marriage or my guns registered in Washington. And if people have an opinion, it’s a religious opinion that is heartly felt, obviously they should be allowed to practice that and no government should interfere with them.
+ - A president of the United States, again, has to bring people together, have a position. We need to be able to penetrate these people when they are involved in these plots and these plans. And we have to give the local authorities the ability to penetrate to disrupt. That’s what we need to do.
+ - We will strengthen our country when we come together.
+ - People are frustrated. They’re fed up. They don’t think the government is working for them.
+ - Let’s think about how we can bring economic development, let’s see if people could learn a little more of the rule of law, rather than the rule of man, which is kind of what you see in China.
+ - Nobody wants anybody who’s radical, who wants to move in here to be able to gain access. I said we should take a pause on these Syrian migrants. And I believe we should do that.
+ - I’m an old-fashioned person and I happen to believe in traditional marriage.
+ - I mean, the fact of the matter is, Ohio ’s coming back because we set a clear path, we cut taxes, we balanced our budget, we got credit upgrades when the whole rest of the world, including America, was being downgraded.
+ - The first thing we better get going is strengthening our economy, because if we don’t have a strong economy, we can’t pay for all of this. And the world wants us to be able to function from strength, believe it or not.
+ - We’ve got to unite our country again, because we’re stronger when we are united and we are weaker when we are divided.
+ - Here is the thing about Donald Trump. Donald Trump is hitting a nerve in this country.
+ - Business people have a a good view of what’s happening internally in countries, and they can be a positive force.
+ - I try to keep what I say. And I – I’m not deviated from this position at all.
+ - When I listen to candidates spend all their time attacking Barack Obama, I’m glad they’re not driving this bus because they’d be looking through the rear-view mirror. I look through the windshield at the road ahead.
+ - You want your children to be safe. You want your families to be safe. We know that.
+ - There is a big problem. It’s called encryption. And the people in San Bernardino were communicating with people who the FBI had been watching. But because their phone was encrypted, because the intelligence officials could not see who they were talking to, it was lost.
+ - I’ve always been underestimated. It’s happened throughout my entire career.
+ - If somebody wants to sit down with me for an hour and interview me and ask me any question about my record, my policies, my foreign policy experience, my domestic policy experience, I’m willing to do that.
+ - My job is to try to figure out how to fix things, and I’m going to fix things as best as I can. I’m going to get a team together to fix things. And I can’t sit around and worrying what the heck the chairman of the Republican Party thinks about what I’m doing.
+ - I’m a change agent. And what we’re beginning to see is a lot of the establish people, one more time, trying to stop me.
+ - And, frankly, what happens out of Washington is, it creates a wind in my face, uncertainty over Obamacare, uncertainty over their tax policy, uncertainty over the regulatory policy.
+ - I think people are frustrated with dysfunction, not just dysfunction in government, but a lot of dysfunction that surrounds them. I get the frustration with drugs in the neighborhood or my kids with big college loans can’t find a job.
+ - And no one ever expect me to get in the race. They didn’t think I would get on the debate stage. I did. They didn’t think I’d do well in New Hampshire. I finished second. And so we went to South Carolina. In a short period of time later, two weeks ago people in South Carolina had no clue who I was.
+ - We have to solve the encryption problem. It is not easy.
+ - I was a member of the Armed Services Committee for 18 years. I spent a big chunk of my life studying national security issues and our role in the world.
+ - People are beginning to understand my vision and my message because finally people are beginning to allow me to be heard.
+ - God created astrologers to make pollsters look accurate.
+ - If the B2 is invisible, just announce you’ve built 100 of them and don’t build them.
+ - Everybody has a right to their God-given purpose.
+ - I served on the Armed Services Committee for 18 years and we must lead, or the job won’t get done, unfortunately, for our country.
+ - I am told that the Saudis have organized 34 countries who want to join in the battle against terrorism.
+ - I said that we needed to have people on the ground, troops on the ground in a coalition similar to what we had in the first Gulf War.
+ - I don’t make promises, by and large, that I can’t keep.
+ - In this country, people are concerned about their economic future. They’re very concerned about it. And they wonder whether somebody is getting something to – keeping them from getting it. That’s not the America that I’ve ever known.
+ - Say, oh well, the Republicans don’t like this therefor I shouldn’t do it. What kind of a government would that be. We’re not a parliamentary system.
+ - Politics can not only be drudgery and Captain Queeg with the balls in his hands.
+ - There are moderates in Syria who we should be supporting.
+ - You cannot build a little guy up by tearing a big guy down – Abraham Lincoln said it.
+ - I don’t look at polls, I pay no attention to them. I pay attention to the public, and the sense of where the public is on certain things, but you have to lead.
+ - The stuff that I propose are things that I’m ready to govern with. They’re not tools to get elected. They are programs and plans to do when you get elected.
+ - A great power has to have the discipline not only to go when necessary but to know when not to go. Getting involved in ethnic, religious civil wars is a recipe for disaster.
+ - We have to go massively, like we did in the first Gulf War where we destroyed Saddam’s ability to take Kuwait. We need to have a coalition that will stand for nothing less than the total destruction of ISIS and we have to be the leader.
+ - We got to make sure that we have the incentives for people to rise and not put them in a position of where they go to work and they lose more than what they gain and they’re like this system is terrible.
+ - Everybody should have a chance to rise. That’s our philosophy in Ohio and that’s my philosophy for America.
+ - I’ve heard a lot of nasty rhetoric about the president. We’re going to kick your rear end out of the White House and stuff. That’s just not the way I behave.
+ - I want people to hear what I think about these foundational American values of personal responsibility, resilience, family and faith, there are things that people can learn from somebody who leads a state like Ohio which is, frankly, a microcosm of the country.
+ - I worry about America. For the first time in my lifetime, I’m worried about us, i’m worried about how our values to some degree have been eroded, of personal responsibility and compassion and teamwork. I worry about it, I worry about the fact that we’re so divided.
+ - For the Russians, frankly, it’s time that we punched the Russians in the nose. They’ve gotten away with too much in this world and we need to stand up against them, not just there, but also in Eastern Europe where they threaten some of our most precious allies.
+ - I was the chairman of the Budget Committee and the lead architect the last time it happened in Washington, and when we did it we had great economic growth, we cut taxes, and we had a big surplus.
+ - For heaven’s sake, this is 2015. I’ve run the largest technology company in the world. Let me assure you we know how to build an employer verification system that would work. We can solve this. We just need to do it.
+ - At the end, the Saudis have agreed to put together a coalition inside of Syria to stabilize that country.
+ - I don’t think America should be the policeman of the world, but we have to be engaged and we have to be a leader, and that comes from strong economic growth, a strong military, good diplomatic efforts, and integrating our business community. I just think it’s a whole new paradigm.
+ - We don’t have to fight all the time. It can be done, and we will be great when we join together.
+ - There is a difference between Iraq, where you have Sunni, Shia, and Kurds put together after the First World War by the Western powers. It doesn’t work. It needs to break up into three parts.
+ - Im a believer in bipartisanship.
+ - I can’t work any harder. I can’t do any more. I am literally just blown away and humbled by the volunteers and how hard they’re working. I think they’ve got a sense that they’re going to be part of something bigger than themselves.
+ - I’m concerned about the fact there seems to be a war on the poor – that if you’re poor, somehow you’re shiftless and lazy.
+ - America is a miracle country.
+ - Somebody tells me no, they’re not going to keep telling me no, because I’m going to bother them to the point where it’s a lot easier for them to say yes than keep saying no.
+ - I remember when the Egyptian ambassador to the United States stood in the Rose Garden and pledged Arab commitment to removing Saddam Hussein from Kuwait.
+ - We still have systems we don’t need, we have infrastructure we don’t need. Why do you have over 900,000 bureaucrats working in one way or another in all these systems.
+ - I do not support a civil war. I don’t want to be policeman of the world. But we can’t back off of this.
+ - First and foremost, we need to go and destroy ISIS. And we need to do this with our Arab friends and our friends in Europe.
+ - We’re now going to develop the standards on transparency, data collection for police, but the whole goal is to fully integrate the police into the community because everybody has the same goals.
+ - But, frankly, to try to create some sort of a religious standard in terms of who can come to America, we’re a melting pot. And as long as people have positive and good intent, they ought to be able to come.
+ - I think if there’s anything that’s important today, it’s credibility with the voter, because the voter is tired of being sold a bill of goods.
+ - America needs somebody to restore the strength of this great land of ours.
+
+87 quotes

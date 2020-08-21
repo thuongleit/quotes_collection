@@ -1,0 +1,387 @@
+ - I don't want to believe. I want to know.
+ - Somewhere, something incredible is waiting to be known.
+ - The cosmos is within us. We are made of star-stuff. We are a way for the universe to know itself.
+ - The nitrogen in our DNA, the calcium in our teeth, the iron in our blood, the carbon in our apple pies were made in the interiors of collapsing stars. We are made of starstuff.
+ - We are a way for the cosmos to know itself.
+ - We are like butterflies who flutter for a day and think it is forever.
+ - The universe is a pretty big place. If it’s just us, seems like an awful waste of space.
+ - Imagination will often carry us to worlds that never were. But without it we go nowhere.
+ - We can judge our progress by the courage of our questions and the depth of our answers, our willingness to embrace what is true rather than what feels good.
+ - It pays to keep an open mind, but not so open your brains fall out.
+ - The sky calls to us. If we do not destroy ourselves, we will one day venture to the stars.
+ - We are star stuff which has taken its destiny into its own hands.
+ - For small creatures such as we the vastness is bearable only through love.
+ - Across the sea of space, the stars are other suns.
+ - Every one of us is, in the cosmic perspective, precious. If a human disagrees with you, let him live. In a hundred billion galaxies, you will not find another.
+ - If you wish to make an apple pie from scratch, you must first invent the universe.
+ - In all our searching, the only thing we've found that makes the emptiness bearable is each other.
+ - The universe seems neither benign nor hostile, merely indifferent.
+ - We find that we live on an insignificant planet of a humdrum star lost in a galaxy tucked away in some forgotten corner of a universe in which there are far more galaxies than people.
+ - You are made of a hundred trillion cells. We are, each of us, a multitude.
+ - Science is a way of thinking much more than it is a body of knowledge.
+ - We began as wanderers, and we are wanderers still.
+ - The absence of evidence is not the evidence of absence.
+ - If it can be destroyed by the truth, it deserves to be destroyed by the truth.
+ - Exploration is in our nature. We began as wanderers, and we are wanderers still. We have lingered long enough on the shores of the cosmic ocean. We are ready at last to set sail for the stars.
+ - We are made of star-stuff. Our bodies are made of star-stuff. There are pieces of star within us all.
+ - Your god is too small for my universe.
+ - You have to know the past to understand the present.
+ - The Cosmos is all that is or ever was or ever will be.
+ - All civilizations become either spacefaring or extinct.
+ - Our planet is a lonely speck in the great enveloping cosmic dark. In our obscurity, in all this vastness, there is no hint that help will come from elsewhere to save us from ourselves.
+ - Don’t judge everyone else by your own limited experience.
+ - We live in a society exquisitely dependent on science and technology, in which hardly anyone knows anything about science and technology.
+ - Preserve and cherish the pale blue dot, the only home we’ve ever known.
+ - After the earth dies, some 5 billion years from now, after it’s burned to a crisp, or even swallowed by the Sun, there will be other worlds and stars and galaxies coming into being – and they will know nothing of a place once called Earth.
+ - One glance at a book and you hear the voice of another person, perhaps someone dead for 1,000 years. To read is to voyage through time.
+ - Understanding is a kind of ecstasy.
+ - Who are we, if not measured by our impact on others? That’s who we are! We’re not who we say we are, we’re not who we want to be – we are the sum of the influence and impact that we have, in our lives, on others.
+ - Extinction is the rule. Survival is the exception.
+ - The brain is like a muscle. When it is in use we feel very good. Understanding is joyous.
+ - Science is more than a body of knowledge. It’s a way of thinking: a way of skeptically interrogating the universe.
+ - Even through your hardest days, remember we are all made of stardust.
+ - Writing is perhaps the greatest of human inventions, binding together people who never knew each other, citizens of distant epochs. Books break the shackles of time. A book is proof that humans are capable of magic.
+ - It is far better to grasp the universe as it really is than to persist in delusion, however satisfying and reassuring.
+ - Every star may be a sun to someone.
+ - The cure for a fallacious argument is a better argument, not the suppression of ideas.
+ - You can’t convince a believer of anything; for their belief is not based on evidence, it’s based on a deep seated need to believe.
+ - The beauty of a living thing is not the atoms that go into it, but the way those atoms are put together.
+ - There are in fact 100 billion galaxies, each of which contain something like a 100 billion stars. Think of how many stars, and planets, and kinds of life there may be in this vast and awesome universe.
+ - There are naive questions, tedious questions, ill-phrased questions, questions put after inadequate self-criticism. But every question is a cry to understand the world. There is no such thing as a dumb question.
+ - To live in the hearts of others is to never die in those we leave behind.
+ - The notion that science and spirituality are somehow mutually exclusive does a disservice to both.
+ - When Kepler found his long-cherished belief did not agree with the most precise observation, he accepted the uncomfortable fact. He preferred the hard truth to his dearest illusions, that is the heart of science.
+ - Better by far to embrace the hard truth than a reassuring fable. If we crave some cosmic purpose, then let us find ourselves a worthy goal.
+ - In the vastness of space and the immensity of time, it is my joy to share a planet and an epoch with Annie.
+ - Better the hard truth, I say, than the comforting fantasy.
+ - Science is only a Latin word for knowledge.
+ - Valid criticism does you a favor.
+ - A new consciousness is developing which sees the earth as a single organism and recognizes that an organism at war with itself is doomed. We are one planet.
+ - I promise to question everything my leaders tell me. I promise to use my critical faculties. I promise to develop my independence of thought. I promise to educate myself so I can make my own judgments.
+ - You’re an interesting species. An interesting mix. You’re capable of such beautiful dreams, and such horrible nightmares. You feel so lost, so cut off, so alone, only you’re not. See, in all our searching, the only thing we’ve found that makes the emptiness bearable, is each other.
+ - Maxwell’s Equations have had a greater impact on human history than any ten presidents.
+ - Our posturings, our imagined self-importance, the delusion that we have some privileged position in the universe are challenged by this point of pale light.
+ - But our preferences do not determine what’s true.
+ - We are one species. We are starstuff.
+ - Not explaining science seems to me perverse. When you’re in love, you want to tell the world.
+ - The nuclear arms race is like two sworn enemies standing waist deep in gasoline, one with three matches, the other with five.
+ - I don’t know the answer. Maybe no one knows. Maybe when you grow up, you’ll be the first to find out.
+ - We are an intelligent species and the use of our intelligence quite properly gives us pleasure. In this respect the brain is like a muscle. When we think well, we feel good. Understanding is a kind of ecstasy.
+ - When we look up at night and view the stars, everything we see is shinning because of distant nuclear fusion.
+ - A multitude of aspects of the natural world that were considered miraculous only a few generations ago are now thoroughly understood in terms of physics and chemistry.
+ - For all its material advantages, the sedentary life has left us edgy, unfulfilled, even after 400 generations in villages and cities, we haven’t forgotten: The open road still softly calls like a nearly forgotten song of childhood.
+ - Life is but a momentary glimpse of the wonder of this astonishing universe, and it is sad to see so many dreaming it away on spiritual fantasy.
+ - You’re capable of such beautiful dreams and such horrible nightmares...
+ - When you make the finding yourself – even if you’re the last person on Earth to see the light – you’ll never forget it.
+ - Once we overcome our fear of being tiny, we find ourselves on the threshold of a vast and awesome Universe that utterly dwarfs – in time, in space, and in potential – the tidy anthropocentric proscenium of our ancestors.
+ - My parents were not scientists. They knew almost nothing about science. But in introducing me simultaneously to skepticism and to wonder, they taught me the two uneasily cohabiting modes of thought that are central to the scientific method.
+ - Time spent with children is time well spent. Their little minds are not constrained by ‘reality’ or focused upon goals. Anything and everything is possible. Imagination will often carry us to worlds that never were. But without it we go nowhere.
+ - It is of interest to note that while some dolphins are reported to have learned English – up to fifty words used in correct context – no human being has been reported to have learned dolphinese.
+ - Our species needs, and deserves, a citizenry with minds wide awake and a basic understanding of how the world works.
+ - We are, in the most profound sense, children of the Cosmos.
+ - Advances in medicine and agriculture have saved vastly more lives than have been lost in all the wars in history.
+ - Extraordinary claim requires extraordinary proof.
+ - People are not stupid. They believe things for reasons. The last way for skeptics to get the attention of bright, curious, intelligent people is to belittle or condescend or to show arrogance toward their beliefs.
+ - We live in a vast and awesome universe in which, daily, suns are made and worlds destroyed, where humanity clings to an obscure clod of rock.
+ - An organism at war with itself is doomed.
+ - The old appeals to racial, sexual and religious chauvinism to rabid nationalist fervor, are beginning not to work.
+ - Arguments from authority carry little weight – authorities have made mistakes in the past. They will do so again in the future. Perhaps a better way to say it is that in science there are no authorities; at most, there are experts.
+ - Other things being equal, it is better to be smart than to be stupid.
+ - My fundamental premise about the brain is that its workings – what we sometimes call “mind” – are a consequence of its anatomy and physiology, and nothing more.
+ - We have heard the rationales offered by the nuclear superpowers. We know who speaks for the nations. But who speaks for the human species? Who speaks for Earth?
+ - Books break the shackles of time, proof that humans can work magic.
+ - In the long run, the aggressive civilizations destroy themselves, almost always. It’s their nature. They can’t help it.
+ - What an astonishing thing a book is.
+ - So those who wished for some central cosmic purpose for us, or at least our world, or at least our solar system, or at least our galaxy, have been disappointed, progressively disappointed. The universe is not responsive to our ambitious expectations.
+ - The suppression of uncomfortable ideas may be common in religion or in politics, but it is not the path to knowledge; it has no in the endeavor of science. We do not know in advance who will discover fundamental insights.
+ - Sailors on a becalmed sea, we sense the stirring of a breeze.
+ - Accommodation to change, the thoughtful pursuit of alternative futures are keys to the survival of civilization and perhaps of the human species.
+ - The illegality of cannabis is outrageous, an impediment to full utilization of a drug which helps produce the serenity and insight, sensitivity and fellowship so desperately needed in this increasingly mad and dangerous world.
+ - We live in a society exquisitely dependent on science.
+ - Anything else you’re interested in is not going to happen if you can’t breathe the air and drink the water. Don’t sit this one out. Do something. You are by accident of fate alive at an absolutely critical moment in the history of our planet.
+ - The total number of stars in the Universe is larger than all the grains of sand on all the beaches of the planet Earth.
+ - Science is not perfect. It’s often misused; it’s only a tool, but it’s the best tool we have. Self-correcting, ever changing, applicable to everything: with this tool, we vanquish the impossible.
+ - But I could be wrong.
+ - And after we returned to the savannahs and abandoned the trees, did we long for those great graceful leaps and ecstatic moments of weightlessness in the shafts of sunlight of the forest roof?
+ - Cosmos is a Greek word for the order of the universe. It is, in a way, the opposite of Chaos. It implies the deep interconnectedness of all things. It conveys awe for the intricate and subtle way in which the universe is put together.
+ - Books are key to understanding the world and participating in a democratic society.
+ - We are the product of 4.5 billion years of fortuitous, slow biological evolution. There is no reason to think that the evolutionary process has stopped. Man is a transitional animal. He is not the climax of creation.
+ - Science is not only compatible with spirituality; it is a profound source of spirituality.
+ - The desire to be connected with the cosmos reflects a profound reality, but we are connected; not in the trivial ways that astrology promises, but in the deepest ways.
+ - Be grateful everyday for the brief but magnificent opportunity that life provides.
+ - We live on a mote of dust suspended in a sunbeam.
+ - We are, each of us, a multitude. Within us is a little universe.
+ - In our time, we have sifted the sands of Mars, we have established a presence there, we have fulfilled a century of dreams!
+ - A book is proof that humans are capable of working magic.
+ - A galaxy is composed of gas and dust and stars – billions upon billions of stars. Every star may be a sun to someone.
+ - Billions and billions.
+ - Our ancestors worshipped the Sun, and they were not that foolish. It makes sense to revere the Sun and the stars, for we are their children.
+ - The universe is not required to be in perfect harmony with human ambition.
+ - There are as many atoms in one molecule of DNA as there are stars in a typical galaxy.
+ - Books permit us to voyage through time, to tap the wisdom of our ancestors.
+ - I believe our future depends powerfully on how well we understand this cosmos in which we float, like a mote of dust in the morning sky.
+ - It will not be we who reach Alpha Centauri, and the other nearby stars. It will be a species very like us – but with more of our strengths and fewer of our weaknesses.
+ - The truth may be puzzling. It may take some work to grapple with. It may be counterintuitive. It may contradict deeply held prejudices. It may not be consonant with what we desperately want to be true. But our preferences do not determine what’s true.
+ - We are made of star stuff. For the most part, atoms heavier than hydrogen were created in the interiors of stars and then expelled into space to be incorporated into later stars. The Sun is probably a third generation star.
+ - Atoms are mainly empty space. Matter is composed chiefly of nothing.
+ - We humans appear on the cosmic calendar so recently that our recorded history occupies only the last few seconds of the last minute of December 31st.
+ - If I finish a book a week, I will read only a few thousand books in my lifetime, about a tenth of a percent of the contents of the greatest libraries of our time. The trick is to know which books to read.
+ - We on Earth have just awakened to the great oceans of space and time from which we have emerged.
+ - We are the custodians of life’s meaning.
+ - The size and age of the Cosmos are beyond ordinary human understanding. Lost somewhere between immensity and eternity is our tiny planetary home.
+ - Every kid starts out as a natural-born scientist, and then we beat it out of them. A few trickle through the system with their wonder and enthusiasm for science intact.
+ - For all our failings, despite our limitations and fallibilities, we humans are capable of greatness.
+ - The sacred truth of science is that there are no sacred truths.
+ - Any civilization that doesn’t develop space travel dies.
+ - We wish to find the truth, no matter where it lies. But to find the truth we need imagination and skepticism both. We will not be afraid to speculate, but we will be careful to distinguish speculation from fact.
+ - Maybe it’s a little early. Maybe the time is not quite yet. But those other worlds – promising untold opportunities – beckon. Silently, they orbit the Sun, waiting.
+ - We are made of stellar ash. Our origin and evolution have been tied to distant cosmic events. The exploration of the cosmos is a voyage of self-discovery.
+ - There are lots of ways to communicate what we know, but few ways to communicate what we feel. Music is one way to communicate emotions.
+ - Our loyalties are to the species and the planet. We speak for Earth.
+ - The words “question” and “quest” are cognates. Only through inquiry can we discover truth.
+ - What began in deadly competition has helped us to see that global cooperation is the essential precondition for our survival. Travel is broadening. It’s time to hit the road again.
+ - The open road still softly calls, like a nearly forgotten song of childhood.
+ - We should be teaching our children the scientific method and the reasons for a Bill of Rights. With it comes a certain decency, humility and community spirit.
+ - Many religions have attempted to make statues of their gods very large, and the idea, I suppose, is to make us feel small. But if that’s their purpose, they can keep their paltry icons. We need only look up if we wish to feel small.
+ - Stars are phoenixes, rising from their own ashes.
+ - Every thinking person fears nuclear war, and every technological state plans for it. Everyone knows it is madness, and every nation has an excuse.
+ - By looking far out into space we are also looking far back into time, back toward the horizon of the universe, back toward the epoch of the Big Bang.
+ - Who is more humble? The scientist who looks at the universe with an open mind and accepts whatever the universe has to teach us, or somebody who says everything in this book must be considered the literal truth and never mind the fallibility of all the human beings involved?
+ - I worry that, especially as the Millennium edges nearer, pseudo-science and superstition will seem year by year more tempting, the siren song of unreason more sonorous and attractive.
+ - Cutting off fundamental, curiosity-driven science is like eating the seed corn. We may have a little more to eat next winter but what will we plant so we and our children will have enough to get through the winters to come?
+ - The prediction of nuclear winter is drawn not, of course, from any direct experience with the consequences of global nuclear war, but rather from an investigation of the governing physics.
+ - Better the hard truth, I say, than the comforting fantasy. And in the final tolling it often turns out that the facts are more comforting than the fantasy.
+ - Who will speak for Planet Earth?
+ - I think if we ever reach the point where we think we thoroughly understand who we are and where we came from, we will have failed.
+ - The candle flame gutters. Its little pool of light trembles. Darkness gathers. The demons begin to stir.
+ - But nature is always more subtle, more intricate, more elegant than what we are able to imagine.
+ - Whatever the reason you’re on Mars, I’m glad you’re there, and I wish I was with you.
+ - It is the tension between creativity and skepticism that has produced the stunning and unexpected findings of science.
+ - A blade of grass is a commonplace on Earth; it would be a miracle on Mars. Our descendants on Mars will know the value of a patch of green. And if a blade of grass is priceless, what is the value of a human being?
+ - First rule in government spending: Why build one, when you can have two at twice the price?
+ - Real patriots ask questions.
+ - The open road still softly calls...
+ - Ask courageous questions. Do not be satisfied with superficial answers.
+ - Each of us is a tiny being, permitted to ride on the outermost skin of one of the smaller planets for a few dozen trips around the local star.
+ - In the fabric of space and in the nature of matter, as in a great work of art, there is, written small, the artist’s signature.
+ - We are star stuff harvesting sunlight.
+ - The Earth is a very small stage in a vast cosmic arena.
+ - Those who seek power at any price detect a societal weakness, a fear that they can ride into office.
+ - To read is to voyage through time.
+ - Those with the courage to explore the weave and structure of the Cosmos, even where it differs profoundly from their wishes and prejudices, will penetrate its deepest mysteries.
+ - It is all a matter of time scale. An event that would be unthinkable in a hundred years may be inevitable in a hundred million.
+ - Not all birds can fly. What separates the flyers from the walkers is the ability to take off.
+ - The dumbing down of America is evident in the slow decay of substantive content, a kind of celebration of ignorance.
+ - Modern science has been a voyage into the unknown, with a lesson in humility waiting at every stop. Many passengers would rather have stayed home.
+ - The surface of the Earth is the shore of the cosmic ocean. From it we have learned most of what we know. Recently, we have waded a little out to sea, enough to dampen our toes or, at most, wet our ankles. The water seems inviting. The ocean calls.
+ - We humans look rather different from a tree. Without a doubt we perceive the world differently than a tree does. But down deep, at the molecular heart of life, the trees and we are essentially identical.
+ - Human history can be viewed as a slowly dawning awareness that we are members of a larger group.
+ - The immense distances to the stars and the galaxies mean that we see everything ins pace int he past, some as they were before the Earth came to be. Telescopes are time machines.
+ - If we can’t think for ourselves, if we’re unwilling to question authority, then we’re just putty in the hands of those in power.
+ - My view is that if there is no evidence for it, then forget about it. An agnostic is somebody who doesn’t believe in something until there is evidence for it, so I’m agnostic.
+ - But down deep, at the molecular heart of life we’re essentially identical to trees.
+ - The uniqueness of humans has been claimed on many grounds, but most often because of our tool-making, culture, language, reason and morality. We have them, the other animals don’t, and – so the argument goes – that’s that.
+ - We are the only species on the planet, so far as we know, to have invented a communal memory stored neither in our genes nor in our brains. The warehouse of this memory is called the library.
+ - The Hindu religion is the only of the World’s great faiths dedicated to the idea that the Cosmos itself undergoes an immense, indeed an infinite, number of deaths and rebirths.
+ - Nothing disturbs me more than the glorification of stupidity.
+ - It does no harm to the romance of the sunset to know a little bit about it.
+ - This oak tree and me, we’re made of the same stuff.
+ - It is clear that the nations of the world now can only rise and fall together. It is not a question of one nation winning at the expense of another. We must all help one another or all perish together.
+ - We were wanderers from the beginning.
+ - Where did God come from? If we decide this is an unanswerable question why not save a step and conclude that the origin of the universe is an unanswerable question.
+ - Demon mean knowledge in Greek, especially about the material world. Science means knowledge in Latin. A jurisdictional dispute is exposed, even if we look no further.
+ - Man is the matter of the cosmos, contemplating itself.
+ - Where we have strong emotions, we’re liable to fool ourselves.
+ - Virtually every major technological advance in the history of the human species – back to the invention of stone tools and the domestication of fire – has been ethically ambiguous.
+ - Science is a way to call the bluff of those who only pretend to knowledge. It is a bulwark against mysticism, against superstition, against religion misapplied to where it has no business being.
+ - What a marvelous cooperative arrangement – plants and animals each inhaling each other’s exhalations, a kind of planet-wide mutual mouth-to-stoma resuscitation, the entire elegant cycle powered by a star 150 million kilometers away.
+ - The passion to explore is at the heart of being human.
+ - There is a lurking fear that some things are not meant to be known.
+ - On the day that we do discover that we are not alone, our society may begin to evolve and transform in some incredible and wondrous new ways.
+ - If the greenhouse effect is a blanket in which we wrap ourselves to keep warm, nuclear winter kicks the blanket off.
+ - Is mankind alone in the universe? Or are there somewhere other intelligent beings looking up into their night sky from very different worlds and asking the same kind of question?
+ - Observation: I can’t see a thing. Conclusion: Dinosaurs.
+ - Frederick Douglas taught that literacy is the path from slavery to freedom. There are many kinds of slavery and many kinds of freedom, but reading is still the path.
+ - I am often amazed at how much more capability and enthusiasm for science there is among elementary school youngsters than among college students.
+ - I believe that the extraordinary should be pursued. But extraordinary claims require extraordinary evidence.
+ - All of the books in the world contain no more information than is broadcast as video in a single large American city in a single year. Not all bits have equal value.
+ - Knowing a great deal is not the same as being smart; intelligence is not information alone but also judgement, the manner in which information is coordinated and used.
+ - Our loyalties are to the species and the planet. We speak for Earth. Our obligation to survive is owed not just to ourselves but also to that Cosmos, ancient and vast, from which we spring.
+ - If we say that God has always been, why not save a step and conclude that the universe has always been?
+ - It is said that men may not be the dreams of the god, but rather that the gods are the dreams of men.
+ - Books are like seeds. They can lie dormant for centuries and then flower in the most unpromising soil.
+ - A religion old or new, that stressed the magnificence of the universe as revealed by modern science, might be able to draw forth reserves of reverence and awe hardly tapped by the conventional faiths. Sooner or later such a religion will emerge.
+ - Any sufficiently crisp question can be answered by a single binary digit-0 or 1, yes or no.
+ - I’m only a four-dimensional creature. Haven’t got a clue how to visualise infinity. Even Einstein hadn’t. I know because I asked him.
+ - Thus the recent rapid evolution of human intelligence is not only the cause of but also the only conceivable solution to the many serious problems that beset us.
+ - My wonder button is being pushed all the time.
+ - If our long-term survival is at stake, we have a basic responsibility to our species to venture to other worlds. Sailors on a becalmed sea, we sense the stirring of a breeze.
+ - An atheist is someone who is certain that God does not exist, someone who has compelling evidence against the existence of God. I know of no such compelling evidence.
+ - If you are only skeptical, then no new ideas make it through to you.
+ - I maintain there is much more wonder in science than in pseudoscience. And in addition, to whatever measure this term has any meaning, science has the additional virtue, and it is not an inconsiderable one, of being true.
+ - Books tap the wisdom of our species – the greatest minds, the best teachers – from all over the world and from all our history. And they’re patient.
+ - Science is a collaborative enterprise, spanning the generations. When it permits us to see the far side of some new horizon, we remember those who prepared the way – seeing for them also.
+ - The method of science, as stodgy and grumpy as it may seem, is far more important than the findings of science.
+ - Football is a thinly disguised re-enactment of hunting; we played it before we were human.
+ - One trend that bothers me is the glorification of stupidity, that the media is reassuring people it’s alright not to know anything. That to me is far more dangerous than a little pornography on the Internet.
+ - Except for fools and madmen, everyone knows that nuclear war would he an unprecedented human catastrophe.
+ - Clutching our crystals and religiously consulting our horoscopes, our critical faculties in steep decline, unable to distinguish between what’s true and what feels good, we slide, almost without noticing, into superstition and darkness.
+ - As the ancient myth makers knew, we are children equally of the earth and the sky.
+ - The simplest thought, like the concept of the number one, has an elaborate logical underpinning.
+ - There is today-in a time when old beliefs are withering-a kind of philosophical hunger, a need to know who we are and how we got here. It is an on-going search, often unconscious, for a cosmic perspective for humanity.
+ - Atheism is very stupid.
+ - Otherwise we don’t run the government the government runs us.
+ - Those at too great a distance may, I am well are, mistake ignorance for perspective.
+ - There is a report that says that kids who watch violent TV programs tend to be more violent when they grow up. But did the TV cause the violence, or do violent children preferentially enjoy watching violent programs?
+ - Our children long for realistic maps of the future that they can be proud of. Where are the cartographers of human purpose?
+ - Science is based on experiment, on a willingness to challenge old dogma, on an openness to see the universe as it really is. Accordingly, science sometimes requires courage – at the very least the courage to question the conventional wisdom.
+ - If we continue to accumulate only power and not wisdom, we will surely destroy ourselves.
+ - Those afraid of the universe as it really is, those who pretend to nonexistent knowledge and envision a Cosmos centered on human beings will prefer the fleeting comforts of superstition.
+ - Science is a way to not fool ourselves.
+ - It would be wryly interesting if in human history the cultivation of marijuana led generally to the invention of agriculture, and thereby to civilization.
+ - The method of science is tried and true. It is not perfect, it’s just the best we have. And to abandon it, with its skeptical protocols, is the pathway to a dark age.
+ - Any faith that admires truth, that strives to know God, must be brave enough to accommodate the universe.
+ - The price we pay for anticipation of the future is anxiety about it.
+ - The gears of poverty, ignorance, hopelessness and low self-esteem interact to create a kind of perpetual failure machine that grinds down dreams from generation to generation. We all bear the cost of keeping it running. Illiteracy is its linchpin.
+ - We have begun to contemplate our origins: starstuff pondering the stars; organized assemblages of ten billion billion billion atoms considering the evolution of atoms; tracing the long journey by which, here at least, consciousness arose.
+ - When permitted to listen to alternative opinions and engage in substantive debate, people have been known to change their minds. It can happen.
+ - Our perceptions are fallible. We sometimes see what isn’t there. We are prey to optical illusions. Occasionally we hallucinate. We are error-prone.
+ - Which aspects of our nature will prevail is uncertain, particularly when our visions and prospects are bound to one small part of the small planet Earth. But up there in the Cosmos an inescapable perspective awaits.
+ - It seems madness to say, ‘We’re worried that they’re going to become addicted to marijuana’ – there’s no evidence whatever that it’s an addictive drug, but even if it were, these people are dying, what are we saving them from?
+ - Not all bits have equal value.
+ - Our concern for the future can be tested by how well we support our libraries.
+ - Writing is perhaps the greatest of human inventions.
+ - It’s sometimes easier to reject strong evidence than to admit that we’ve been wrong, this is information about ourselves worth having.
+ - Our ancestors lived out of doors. They were as familiar with the night sky as most of us are with our favorite television programs.
+ - One of the great commandments of science is: ‘Mistrust arguments from authority.’
+ - In a complex universe, in a society undergoing unprecedented change, how can we find the truth if we are not willing to question everything and to give a fair hearing to everything?
+ - But the fact that some geniuses were laughed at does not imply that all who are laughed at are geniuses. They laughed at Columbus, they laughed at Fulton, they laughed at the Wright Brothers. But they also laughed at Bozo the Clown.
+ - The secrets of evolution are death and time-the deaths of enormous numbers of lifeforms that were imperfectly adapted to the environment; and time for a long succession of small mutations.
+ - The fact is that far more crime and child abuse has been committed by zealots in the name of God, Jesus and Mohammed than has ever been committed in the name of Satan. Many people don’t like that statement, but few can argue with it.
+ - Writing a novel is like trying to solve a very long mathematical equation. Changing anything can change everything else.
+ - But amid much elegance and precision, the details of life and the Universe also exhibit haphazard, jury-rigged arrangements and much poor planning. What shall we make of this: an edifice abandoned early in construction by the architect?
+ - How smart does a chimp have to be before killing him constitutes murder?
+ - Science is far from a perfect instrument of knowledge. It’s just the best we have.
+ - A millennium before Europeans were willing to divest themselves of the Biblical idea that the world was a few thousand years old, the Mayans were thinking of millions and the Hindus billions.
+ - It’s hard to kill a creature once it lets you see its consciousness.
+ - The surface of the Earth is the shore of the cosmic ocean.
+ - I find science so much more fascinating than science fiction. It also has the advantage of being true.
+ - I consider it an extremely dangerous doctrine, because the more likely we are to assume that the solution comes from the outside, the less likely we are to solve our problems ourselves.
+ - Humans – who enslave, castrate, experiment on, and fillet other animals – have had an understandable penchant for pretending animals do not feel pain.
+ - What counts is not what sounds plausible, not what we would like to believe, not what one or two witnesses claim, but only what is supported by hard evidence rigorously and skeptically examined. Extraordinary claims require extraordinary evidence.
+ - You are worth about 3 dollars worth in chemicals.
+ - I can find in my undergraduate classes, bright students who do not know that the stars rise and set at night, or even that the Sun is a star.
+ - These days there seems to be nowhere left to explore, at least on the land area of the Earth. Victims of their very success, the explorers now pretty much stay home.
+ - Perhaps the depth of love can be calibrated by the number of different selves that are actively involved in a given relationship.
+ - You could just as well say that an agnostic is a deeply religious person with at least a rudimentary knowledge of human fallibility.
+ - All inquiries carry with them some element of risk.
+ - The fact that so little of the findings of modern science is prefigured in Scripture to my mind casts further doubt on it divine inspiration.
+ - I would love to believe that when I die I will live again, that some thinking, feeling, remembering part of me will continue.
+ - Every time you look up at the sky, every one of those points of light is a reminder that fusion power is extractable from hydrogen and other light elements, and it is an everyday reality throughout the Milky Way Galaxy.
+ - One of the greatest gifts adults can give – to their offspring and to their society – is to read to children.
+ - Every cell is a triumph of natural selection, and we’re made of trillions of cells. Within us, is a little universe.
+ - Both the Freudian and the Platonic metaphors emphasize the considerable independence of and tension among the constituent parts of the psyche, a point that characterizes the human condition.
+ - In Mozambique, the story goes, monkeys do not talk, because they know if they utter even a single word some man will come and put them to work.
+ - Avoidable human misery is more often caused not so much by stupidity as by ignorance, particularly our ignorance about ourselves.
+ - The lifetime of a human being is measured by decades, the lifetime of the Sun is a hundred million times longer. Compared to a star, we are like mayflies, fleeting ephemeral creatures who live out their lives in the course of a single day.
+ - If we are merely matter intricately assembled, is this really demeaning? If there’s nothing here but atoms, does that make us less or does that make matter more?
+ - If we long to believe that the stars rise and set for us, that we are the reason there is a Universe, does science do us a disservice in deflating our conceits?
+ - In the deepest sense the search for extraterrestrial intelligence is a search for ourselves.
+ - We can always take but never give.
+ - The very act of understanding is a celebration of joining, merging, even if on a very modest scale, with the magnificence of the Cosmos.
+ - Man is a transitional animal. He is not the climax of creation.
+ - If constellations had been named in the 20th century, I suppose we would see bicycles.
+ - My deeply held belief is that if a god of anything like the traditional sort exists, our curiosity and intelligence is provided by such a God. We would be unappreciative of that gift if we suppressed our passion to explore the universe and ourselves.
+ - But I try not to think with my gut. If I’m serious about understanding the world, thinking with anything besides my brain, as tempting as that might be, is likely to get me into trouble.
+ - The well-meaning contention that all ideas have equal merit seems to me little different from the disastrous contention that no ideas have any merit.
+ - Discussing the possibilities of extraterrestrial life: I would love it even if they were short, sullen, grumpy and sexually obsessed. But there just isn’t any good evidence.
+ - We are the children equally of the Sky and the Earth.
+ - The difference between physics and metaphysics is not that the practitioners of one are smarter than the practitioners of the other. The difference is that the metaphysicist has no laboratory.
+ - There are no forbidden questions in science, no matters too sensitive or delicate to be probed, no sacred truths.
+ - Human beings have a demonstrated talent for self-deception when their emotions are stirred.
+ - Personally, I would be delighted if there were a life after death, especially if it permitted me to continue to learn about this world and others, if it gave me a chance to discover how history turns out.
+ - Even today the most jaded city dweller can be unexpectedly moved upon encountering a clear night sky studded with thousands of twinkling stars. When it happens to me after all these years it still takes my breath away.
+ - The vast distances that separate the stars are providential. Beings and worlds are quarantined from one another. The quarantine is lifted only for those with sufficient self-knowledge and judgment to have safely traveled from star to star.
+ - I think the health of our civilization, the depth of our awareness about the underpinnings of our culture, and our concern for the future, can all be tested by how well we support our libraries.
+ - I would suggest that science is, at least in my part, informed worship.
+ - If we ruin the earth, there is no place else to go.
+ - Human beings grew up in forests; we have a natural affinity for them. How lovely a tree is, straining toward the sky.
+ - The visions we offer our children shape the future.
+ - If all the suns but ours collapsed tonight, how many lifetimes would it take us to realize that we were alone?
+ - Nobody listens to mathematicians.
+ - We are at a crossroads in human history. Never before has there been a moment so simultaneously perilous and promising. We are the first species to have taken evolution into our own hands.
+ - The way to find out about our place in the universe is by examining the universe and by examining ourselves – without preconceptions, with as unbiased a mind as we can muster.
+ - I hold that popularization of science is successful if, at first, it does no more than spark the sense of wonder.
+ - I would be very ashamed of my civilization if we did not try to find out if there is life in outer space.
+ - We live at a moment when our relationships to each other, and to all other beings with whom we share this planet, are up for grabs.
+ - The fact that someone says something doesn’t mean it’s true. Doesn’t mean they’re lying, but it doesn’t mean it’s true.
+ - In the vastness of the Cosmos there must be other civilizations far older and more advanced than ours.
+ - I also wish that the Pledge of Allegiance were directed at the Constitution and the Bill of Rights, as it is when the President takes his oath of office, rather than to the flag and the nation.
+ - If we’re capable of conjuring up terrifying monsters in childhood, why shouldn’t some of us, at least on occasion, be able to fantasize something similar, something truly horrifying, a shared delusion, as adults?
+ - For years I’ve been stressing with regard to UFOs that extraordinary claims require extraordinary evidence.
+ - UFOs: The reliable cases are uninteresting and in the interesting cases are unreliable.
+ - Science is merely an extremely powerful method of winnowing what’s true from what feels good.
+ - With insufficient data it is easy to go wrong.
+ - Nature does not always conform to our predispositions and preferences, to what we deem comfortable and easy to understand.
+ - We have entered, almost without noticing, an age of exploration and discovery unparalleled since the Renaissance.
+ - Wisdom lies in understanding our limitations.
+ - In a lot of scientists, the ratio of wonder to skepticism declines in time. That may be connected with the fact that in some fields-mathematics, physics, some others-the great discoveries are almost entirely made by youngsters.
+ - All inquires carry with them some element of risk. There is no guarantee that the universe will conform to our predispositions.
+ - Few scientists now dispute that today’s soaring levels of carbon dioxide and other gases in the atmosphere will cause global temperature averages to rise by as much as nine degrees Fahrenheit sometime after the year 2000.
+ - All colours are arbitrary.
+ - If intelligence is our only edge, we must learn to use it better, to shape it, to understand its limitations and deficiencies – to use it as cats use stealth, as katydids use camouflage – to make it the tool of our survival.
+ - Our intelligence is imperfect, surely, and newly arisen; the ease with which it can be sweet-talked, overwhelmed, or subverted by other hardwired propensities – sometimes themselves disguised as the cool light of reason – is worrisome.
+ - There are wonders enough out there without our inventing any.
+ - We can make a similar examination, but with greater uncertainty, of the extraterrestrial hypothesis that holds that a wide range of UFOs viewed on the planet Earth are space vehicles from planets of other stars.
+ - Ours is the first generation that has grown up with science-fiction ideas.
+ - If we teach only the findings and products of science – no matter how useful and even inspiring they may be – without communicating its critical method, how can the average person possibly distinguish science from pseudoscience?
+ - The understanding of the intent of the artist which I can achieve when high sometimes carries over to when I’m down. This is one of many human frontiers which cannabis has helped me traverse.
+ - A general problem with much of Western theology in my view is that the god portrayed is too small. It is a god of a tiny world and not a god of a galaxy much less of a universe.
+ - Looking at fires when high, by the way, especially through one of those prism kaleidoscopes which image their surroundings, is an extraordinarily moving and beautiful experience.
+ - There are many hypotheses in science which are wrong. That’s perfectly all right: it’s the aperture to finding out what’s right. Science is a self-correcting process.
+ - The prediction I can make with the highest confidence is that the most amazing discoveries will be the ones we are not today wise enough to foresee.
+ - Much of human history can, I think, be described as a gradual and sometimes painful liberation from provincialism, the emerging awareness that there is more to the world than was generally believed by our ancestors.
+ - War is murder writ large.
+ - Who are we, if not measured by our impact on others?
+ - I believe that in every person is a kind of circuit which resonates to intellectual discovery-and the idea is to make that resonance work.
+ - Religions are often state-protected nurseries of pseudoscience, although there’s no reason why religions have to play that role. In a way, it’s an artefact from times long gone.
+ - At the extremes it is difficult to distinguish pseudoscience from rigid, doctrinaire religion.
+ - In more than one respect, the exploring of the Solar System and homesteading other worlds constitutes the beginning, much more than the end, of history.
+ - If we are to survive, our loyalties must be broadened further, to include the whole human community, the entire planet Earth.
+ - We’ve arranged a civilization in which most crucial elements profoundly depend on science and technology.
+ - We can’t help it. Life looks for life.
+ - The fact that some geniuses were laughed at does not imply that all who are laughed at are geniuses.
+ - An atheist has to know more than I know. An atheist is someone who knows there is no God.
+ - Modern Darwinism makes it abundantly clear that many less ruthless traits, some not always admired by robber barons and Fuhrers – altruism, general intelligence, compassion – may be the key to survival.
+ - We are not smart enough to decide which pieces of knowledge are permissible and which are not.
+ - It took the Church until 1832 to remove Galileo ’s work from its list of books which Catholics were forbidden to read at the risk of dire punishment of their immortal souls.
+ - The illegality of cannabis is outrageous...
+ - Skeptical scrutiny is the means, in both science and religion, by which deep thoughts can be winnowed from deep nonsense.
+ - The politicians and the religious leaders and the weapons scientists have been at it for a long time and they’ve made a thorough mess of it. I mean, we’re in deep trouble.
+ - If we do not speak for Earth, who will? If we are not committed to our own survival, who will be?
+ - Philosophers and scientists confidently offer up traits said to be uniquely human, and the monkeys and apes casually knock them down – toppling the pretension that humans constitute some sort of biological aristocracy among the beings on Earth.
+ - There is in this Universe much of what seems to be design.
+ - Humans are very good at dreaming, although you’d never know it from your television.
+ - In exchange for freedom of inquiry, scientists are obliged to explain their work.
+ - What’s the harm of a little mystification? It sure beats boring statistical analyses.
+ - We are prodding, challenging, seeking contradictions or small, persistent residual errors, proposing alternative explanations, encouraging heresy. We give our highest rewards to those who convincingly disprove established beliefs.
+ - I set before you two ways: You can use your technology to destroy yourselves or to carry you to the planets and the stars. It’s up to you.
+ - Science cuts two ways, of course; its products can be used for both good and evil. But there’s no turning back from science. The early warnings about technological dangers also come from science.
+ - It goes with a courageous intent to greet the universe as it really is, not to foist our emotional predispositions on it but to courageously accept what our explorations tell us.
+ - There is every reason to think that in the coming years Mars and its mysteries will become increasingly familiar to the inhabitants of the Planet Earth.
+ - The universe forces those who live in it to understand it.
+ - It means nothing to be open to a proposition we don’t understand.
+ - The evidence, so far at least and laws of Nature aside, does not require a Designer. Maybe there is one hiding, maddeningly unwilling to be revealed.
+ - For a long time the human instinct to understand was thwarted by facile religious explanations.
+ - While our behavior is still significantly controlled by our genetic inheritance, we have, through our brains, a much richer opportunity to blaze new behavioral and cultural pathways on short timescales.
+ - The Earth is a place. It is by no means the only place. It is not even a typical place.
+ - Cleverly designed experiments are the key.
+ - If we long for our planet to be important, there is something we can do about it. We make our world significant by the courage of our questions and by the depth of our answers.
+ - For all I know we may be visited by a different extraterrestrial civilization every second Tuesday, but there’s no support for this appealing idea. The extraordinary claims are not supported by extraordinary evidence.
+ - There is never only ONE of anything in nature.
+ - If the press descended, the science would surely suffer.
+ - You can get into a habit of thought in which you enjoy making fun of all those other people who don’t see things as clearly as you do. We have to guard carefully against it.
+ - When you look more generally at life on Earth, you find that it is all the same kind of life. There are not many different kinds; there’s only one kind. It uses about fifty fundamental biological building blocks, organic molecules.
+ - A celibate clergy is an especially good idea, because it tends to suppress any hereditary propensity toward fanaticism.
+
+385 quotes
